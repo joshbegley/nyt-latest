@@ -1,3 +1,15 @@
+**Brock Purdy shriveled Monday night. The 49ers need him to bounce back in a hurry**\
+`Three first-half interceptions turned Purdy into a dink-and-dunker for the rest of the game. The 49ers need the good Purdy back pronto.`\
+https://nytimes.com/athletic/6836642/2025/11/25/brock-purdy-49ers-panthers-monday-night-football/
+
+**FIFA confirms World Cup draw seedings and pathways, with implications for co-hosts**\
+`The two top-ranked teams, Spain and Argentina, will be kept apart until the final — if they win their groups.`\
+https://nytimes.com/athletic/6836523/2025/11/25/fifa-world-cup-draw-seeding-pathway/
+
+**Iranian Professor in Oklahoma Released 3 Days After His Detention by ICE**\
+`Vahid Abedini, who colleagues said was in the United States on an H-1B visa, was arrested on his way to a conference in Washington. It was unclear why.`\
+https://nytimes.com/2025/11/25/us/vahid-abedini-oklahoma-professor-ice.html
+
 **NFL best bets Week 13: Why the Cowboys have value against Mahomes**\
 `Austin Mock's model continues to put out winning weeks and has a few bets for Week 13, including a Thanksgiving play.`\
 https://nytimes.com/athletic/6836618/2025/11/25/nfl-best-bets-week-13-cowboys-chiefs/
