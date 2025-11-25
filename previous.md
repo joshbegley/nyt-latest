@@ -1,3 +1,15 @@
+**Kelly's attorneys press LSU for clarity on coach's firing in letters**\
+`Kelly would withdraw his lawsuit once LSU confirms he was fired without cause and meets 'its contractual obligations,' his attorneys said.`\
+https://nytimes.com/athletic/6836536/2025/11/25/brian-kelly-lsu-lawsuit-firing-cause/
+
+**How to watch Hawks vs. Wizards: Time, TV, streaming**\
+`Find out how to watch the Atlanta Hawks play the Washington Wizards, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6836651/2025/11/25/hawks-vs-wizards-stream-how-to-watch-nov-25/
+
+**Arteta 'hopeful' Odegaard can return to Arsenal squad vs. Bayern Munich**\
+`The 26-year-old has missed seven games after sustaining a left knee injury in October.`\
+https://nytimes.com/athletic/6823662/2025/11/25/martin-odegaard-injury-arsenal/
+
 **How to watch Tennessee vs. Houston men's basketball: Time, TV, streaming**\
 `Find out how to watch the Tennessee Volunteers play the Houston Cougars, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6836616/2025/11/25/tennessee-vs-houston-stream-how-to-watch-nov-25/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/11/25/science/seal-milk.html
 **Mick Schumacher to join IndyCar in 2026 with David Letterman co-owned team**\
 `Schumacher becomes the latest former F1 driver to join America's biggest open-wheel racing series`\
 https://nytimes.com/athletic/6836498/2025/11/25/mick-schumacher-indycar-2026-letterman-rahal/
-
-**She Tried to Leave America. She Entered an Immigration Hall of Mirrors.**\
-`After more than 20 years in the U.S., an Eritrean mother and nurse tried to self-deport to Canada. She found herself in a Texas detention center instead.`\
-https://nytimes.com/2025/11/25/world/canada/usa-ice-eritrea-deportation-asylum.html
-
-**Man Utd hiring Kyle Macaulay as head of senior scouting**\
-`United have been looking to add a key figure to assist on transfers since July.`\
-https://nytimes.com/athletic/6835796/2025/11/25/manchester-united-kyle-macaulay-scouting/
-
-**Market Volatility Underscores Epic Buildup of Global Risk**\
-`Some experts see a dangerous combination of factors reminiscent of practices that led to previous financial crises.`\
-https://nytimes.com/2025/11/25/business/economy/stocks-bitcoin-markets-risk.html
 

@@ -1,3 +1,15 @@
+**Kelly's attorneys press LSU for clarity on coach's firing in letters**\
+`Kelly would withdraw his lawsuit once LSU confirms he was fired without cause and meets 'its contractual obligations,' his attorneys said.`\
+https://nytimes.com/athletic/6836536/2025/11/25/brian-kelly-lsu-lawsuit-firing-cause/
+
+**How to watch Hawks vs. Wizards: Time, TV, streaming**\
+`Find out how to watch the Atlanta Hawks play the Washington Wizards, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6836651/2025/11/25/hawks-vs-wizards-stream-how-to-watch-nov-25/
+
+**Arteta 'hopeful' Odegaard can return to Arsenal squad vs. Bayern Munich**\
+`The 26-year-old has missed seven games after sustaining a left knee injury in October.`\
+https://nytimes.com/athletic/6823662/2025/11/25/martin-odegaard-injury-arsenal/
+
 **How to watch Tennessee vs. Houston men's basketball: Time, TV, streaming**\
 `Find out how to watch the Tennessee Volunteers play the Houston Cougars, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6836616/2025/11/25/tennessee-vs-houston-stream-how-to-watch-nov-25/
