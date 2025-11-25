@@ -1,3 +1,7 @@
+**Trump Moves Toward Labeling Parts of Muslim Brotherhood as Terrorists**\
+`The president’s order took no immediate action, but opened the door to financial and travel sanctions for members of the movement in Egypt, Jordan and Lebanon.`\
+https://nytimes.com/2025/11/24/us/politics/trump-moves-toward-labeling-parts-of-muslim-brotherhood-as-terrorists.html
+
 **How the Coast Guard Revised Its Policy on Swastikas, Nooses and Bullying**\
 `After days of backlash, the Homeland Security Department said hateful and violent behavior would not be tolerated.`\
 https://nytimes.com/2025/11/24/us/coast-guard-hate-policy.html

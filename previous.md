@@ -1,3 +1,7 @@
+**Trump Moves Toward Labeling Parts of Muslim Brotherhood as Terrorists**\
+`The president’s order took no immediate action, but opened the door to financial and travel sanctions for members of the movement in Egypt, Jordan and Lebanon.`\
+https://nytimes.com/2025/11/24/us/politics/trump-moves-toward-labeling-parts-of-muslim-brotherhood-as-terrorists.html
+
 **How the Coast Guard Revised Its Policy on Swastikas, Nooses and Bullying**\
 `After days of backlash, the Homeland Security Department said hateful and violent behavior would not be tolerated.`\
 https://nytimes.com/2025/11/24/us/coast-guard-hate-policy.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6834525/2025/11/24/tatsuya-imai-free-agency-dodgers
 **Is a New $3,500-a-Night Safari Camp Blocking a Wildlife Corridor?**\
 `Ritz-Carlton’s luxury camp in Kenya’s Masai Mara offers “front row seats” to the Great Migration. But some Masai tribe members and wildlife experts say it’s in a sensitive area and should not have been approved.`\
 https://nytimes.com/2025/11/24/travel/ritz-carlton-safari-camp-masai-tribe-great-migration.html
-
-**Nick Sirianni says Eagles won't change offense's play-calling duties despite struggles**\
-`Philadelphia's offense has been struggling all season, but the Eagles still have an 8-3 record.`\
-https://nytimes.com/athletic/6834647/2025/11/24/eagles-offense-nick-sirianni-kevin-patullo/
 
