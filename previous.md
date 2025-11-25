@@ -1,3 +1,23 @@
+**Day: Ohio State WRs Smith, Tate trending toward return at Michigan**\
+`Updating the injury status of standout Ohio State wide receivers Jeremiah Smith and Carnell Tate ahead of the Michigan game.`\
+https://nytimes.com/athletic/6836625/2025/11/25/jeremiah-smith-carnell-tate-injuries-osu-michigan/
+
+**Until Saturday: Carousel overdrive resuming soon**\
+`Until Saturday is The Athletic's free college football newsletter.`\
+https://nytimes.com/athletic/6836901/2025/11/25/college-football-coaching-changes-until-saturday/
+
+**‘She’s Clearly Playing Us’: Influencer Dined and Dashed Through Williamsburg**\
+`Restaurant owners in Brooklyn have warned one another about a woman who frequents their establishments, photographs her food and then doesn’t pay for it.`\
+https://nytimes.com/2025/11/25/nyregion/nyc-dine-dash-food-influencer-pei-chung.html
+
+**A Volcano in Ethiopia Spews Ash Into Asia, Disrupting Flights**\
+`The ash cloud drifted over northern India, causing some flight delays and cancellations, and continued toward China.`\
+https://nytimes.com/2025/11/25/world/africa/ethiopia-volcano-hayli-gubbi.html
+
+**Tatiana Schlossberg’s Profile in Courage**\
+`Readers express sorrow about her cancer and dismay at her cousin’s actions as health secretary. Also: Revenge prosecutions; Mark Kelly; donors to universities.`\
+https://nytimes.com/2025/11/25/opinion/tatiana-schlossberg.html
+
 **Brock Purdy shriveled Monday night. The 49ers need him to bounce back in a hurry**\
 `Three first-half interceptions turned Purdy into a dink-and-dunker for the rest of the game. The 49ers need the good Purdy back pronto.`\
 https://nytimes.com/athletic/6836642/2025/11/25/brock-purdy-49ers-panthers-monday-night-football/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6836618/2025/11/25/nfl-best-bets-week-13-cowboys-ch
 **Slot confirms Gomez had knee injection but is available**\
 `Head coach Slot also said the team's current poor form was "ridiculous, almost” and “unexpected”.`\
 https://nytimes.com/athletic/6836823/2025/11/25/liverpool-joe-gomez-injury-slot/
-
-**The story behind the making of Arsenal's iconic north London derby tifo**\
-`It is already an iconic Arsenal image.`\
-https://nytimes.com/athletic/6836436/2025/11/25/arsenal-tifo-emirates-north-london-derby/
-
-**Ronaldo avoids World Cup ban as FIFA grants Portugal captain 'probationary period'**\
-`Ronaldo, 40, was sent off in Portugal's penultimate World Cup qualifier against the Republic of Ireland.`\
-https://nytimes.com/athletic/6809592/2025/11/25/cristiano-ronaldo-world-cup-ban-fifa/
-
-**How Much Will Thanksgiving Dinner Cost? It Depends on Whom You Ask.**\
-`As Americans become increasingly concerned about affordability, there’s scrutiny on the annual meal.`\
-https://nytimes.com/2025/11/25/business/thanksgiving-dinner-cost-turkey-meal-expensive.html
-
-**Even the U.K. Prime Minister Can’t Resist ‘6-7’**\
-`Prime Minister Keir Starmer egged on first graders doing the viral gesture, then apologized when told the school prohibited it. “I didn’t start it, Miss,” he said.`\
-https://nytimes.com/2025/11/25/world/europe/keir-starmer-6-7-school-uk.html
-
-**Red Sox to bolster rotation with trade for Cardinals' Sonny Gray: Sources**\
-`Boston stated a desire to improve the rotation behind ace Garrett Crochet and addressed that with Gray.`\
-https://nytimes.com/athletic/6826751/2025/11/25/sonny-gray-trade-cardinals-red-sox-mlb-news/
 
