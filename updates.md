@@ -1,3 +1,7 @@
+**How to watch East Carolina vs. Michigan State men's basketball: Time, TV, streaming**\
+`Find out how to watch the East Carolina Pirates play the Michigan State Spartans, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6835851/2025/11/25/east-carolina-vs-michigan-state-stream-how-to-watch-nov-25/
+
 **U.S. Plans Compounds to House Palestinians in Israeli-Held Half of Gaza**\
 `The project could offer relief for tens of thousands of Palestinians who have endured two years of war, but has raised questions about whether it could entrench the partition of Gaza into Israeli- and Hamas-controlled zones.`\
 https://nytimes.com/2025/11/25/world/middleeast/us-plans-compounds-to-house-palestinians-in-israeli-held-half-of-gaza.html
