@@ -1,3 +1,11 @@
+**How the Coast Guard Revised Its Policy on Swastikas, Nooses and Bullying**\
+`After days of backlash, the Homeland Security Department said hateful and violent behavior would not be tolerated.`\
+https://nytimes.com/2025/11/24/us/coast-guard-hate-policy.html
+
+**The Incomprehensible March Toward Regime Change in Venezuela**\
+`The administration’s drug war rhetoric seems like a pretext. But a pretext for what?`\
+https://nytimes.com/2025/11/24/opinion/venezuela-trump-regime-change.html
+
 **With Tom Felton as Draco Malfoy, ‘Harry Potter’ Breaks Its Own Broadway Record**\
 `The actor is now playing an adult version of the sinister child he portrayed in the film series.`\
 https://nytimes.com/2025/11/24/theater/harry-potter-tom-felton-broadway.html
