@@ -1,3 +1,7 @@
+**At a Congressional Hearing, Residents Detail the Trauma of the L.A. Raids**\
+`More than two dozen people described the upheaval the raids had caused in immigrant communities and aired accusations of mistreatment by agents.`\
+https://nytimes.com/2025/11/24/us/ice-raids-congressional-hearing.html
+
 **100 Notable Books Are a Lot! Help Me Find One I’ll Love.**\
 `We’ve broken down our annual list by theme.`\
 https://nytimes.com/interactive/2025/11/24/books/book-recommendations-notables.html

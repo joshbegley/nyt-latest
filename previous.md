@@ -1,3 +1,7 @@
+**At a Congressional Hearing, Residents Detail the Trauma of the L.A. Raids**\
+`More than two dozen people described the upheaval the raids had caused in immigrant communities and aired accusations of mistreatment by agents.`\
+https://nytimes.com/2025/11/24/us/ice-raids-congressional-hearing.html
+
 **100 Notable Books Are a Lot! Help Me Find One I’ll Love.**\
 `We’ve broken down our annual list by theme.`\
 https://nytimes.com/interactive/2025/11/24/books/book-recommendations-notables.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/24/us/politics/trump-russia-ukraine-peace-plan-middl
 **‘Find a Job,’ Ontario Premier Tells Protester While Passing a New Housing Law**\
 `During a raucous hearing, the Ontario legislature passed a bill backed by Premier Doug Ford meant to expedite housing development and the eviction of tenants who are behind on their rent.`\
 https://nytimes.com/2025/11/24/world/canada/doug-ford-ontario-housing-bill-60.html
-
-**Hunting for a repeat, Shohei Ohtani will represent Japan again in 2026 WBC**\
-`The four-time MVP has won two World Series titles and three MVP awards since he last donned Japan’s uniform in 2023. `\
-https://nytimes.com/athletic/6835155/2025/11/24/shohei-ohtani-team-japan-world-baseball-classic/
 
