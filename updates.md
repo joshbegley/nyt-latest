@@ -1,3 +1,7 @@
+**Jimmy Kimmel Is Touched by the Trump-Mamdani Bromance**\
+`“What a turn of events!” Kimmel said of the president’s warm words for New York’s mayor-elect. “It was like he was giving a wedding toast to his new son-in-law.”`\
+https://nytimes.com/2025/11/25/arts/television/jimmy-kimmel-trump-mamdani.html
+
 **No. 12 Gonzaga answers the doubters in win over No. 8 Alabama**\
 `The Zags found themselves down at No. 12 in the latest AP Top 25, leading Mark Few's group to take out any frustrations on the Crimson Tide.`\
 https://nytimes.com/athletic/6835688/2025/11/25/underrated-gonzaga-win-alabama/
