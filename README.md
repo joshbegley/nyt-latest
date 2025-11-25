@@ -1,3 +1,7 @@
+**Australian Senator Suspended for Stunt of Wearing a Burqa in Parliament**\
+`Pauline Hanson, the head of the far-right One Nation party, wore the garment as a prop to push legislation to bar the garment in public places.`\
+https://nytimes.com/2025/11/25/world/australia/australia-hanson-burqa-suspended.html
+
 **Rafael Nadal's tennis and life after an era-defining rivalry: 'We never had time to relax'**\
 `Nadal's life after tennis did not see him pick up a racket until a year post-retirement. But he has plenty of opinions about its new stars.`\
 https://nytimes.com/athletic/6598134/2025/11/25/rafael-nadal-tennis-retirement-big-three-rivalry/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/25/nyregion/venezuela-children-deported-parents.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/11/25/crosswords/spelling-bee-forum.html
-
-**Warmed by Japan’s Support, Taiwan Takes Up Sushi Diplomacy**\
-`China closed off Japanese seafood imports after Japan’s new leader declared strong support for Taiwan. Suddenly, sushi is everywhere on Taiwanese social media.`\
-https://nytimes.com/2025/11/25/world/asia/taiwan-china-japan-sushi.html
 
