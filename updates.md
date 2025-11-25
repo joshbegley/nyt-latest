@@ -1,3 +1,15 @@
+**NFL best bets Week 13: Why the Cowboys have value against Mahomes**\
+`Austin Mock's model continues to put out winning weeks and has a few bets for Week 13, including a Thanksgiving play.`\
+https://nytimes.com/athletic/6836618/2025/11/25/nfl-best-bets-week-13-cowboys-chiefs/
+
+**Slot confirms Gomez had knee injection but is available**\
+`Head coach Slot also said the team's current poor form was "ridiculous, almost” and “unexpected”.`\
+https://nytimes.com/athletic/6836823/2025/11/25/liverpool-joe-gomez-injury-slot/
+
+**Red Sox to bolster rotation with trade for Cardinals' Sonny Gray: Sources**\
+`Boston stated a desire to improve the rotation behind ace Garrett Crochet and addressed that with Gray.`\
+https://nytimes.com/athletic/6826751/2025/11/25/sonny-gray-trade-cardinals-red-sox-mlb-news/
+
 **The story behind the making of Arsenal's iconic north London derby tifo**\
 `It is already an iconic Arsenal image.`\
 https://nytimes.com/athletic/6836436/2025/11/25/arsenal-tifo-emirates-north-london-derby/

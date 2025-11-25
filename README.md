@@ -1,3 +1,15 @@
+**Brock Purdy shriveled Monday night. The 49ers need him to bounce back in a hurry**\
+`Three first-half interceptions turned Purdy into a dink-and-dunker for the rest of the game. The 49ers need the good Purdy back pronto.`\
+https://nytimes.com/athletic/6836642/2025/11/25/brock-purdy-49ers-panthers-monday-night-football/
+
+**FIFA confirms World Cup draw seedings and pathways, with implications for co-hosts**\
+`The two top-ranked teams, Spain and Argentina, will be kept apart until the final — if they win their groups.`\
+https://nytimes.com/athletic/6836523/2025/11/25/fifa-world-cup-draw-seeding-pathway/
+
+**Iranian Professor in Oklahoma Released 3 Days After His Detention by ICE**\
+`Vahid Abedini, who colleagues said was in the United States on an H-1B visa, was arrested on his way to a conference in Washington. It was unclear why.`\
+https://nytimes.com/2025/11/25/us/vahid-abedini-oklahoma-professor-ice.html
+
 **NFL best bets Week 13: Why the Cowboys have value against Mahomes**\
 `Austin Mock's model continues to put out winning weeks and has a few bets for Week 13, including a Thanksgiving play.`\
 https://nytimes.com/athletic/6836618/2025/11/25/nfl-best-bets-week-13-cowboys-chiefs/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/11/25/world/europe/keir-starmer-6-7-school-uk.html
 **Red Sox to bolster rotation with trade for Cardinals' Sonny Gray: Sources**\
 `Boston stated a desire to improve the rotation behind ace Garrett Crochet and addressed that with Gray.`\
 https://nytimes.com/athletic/6826751/2025/11/25/sonny-gray-trade-cardinals-red-sox-mlb-news/
-
-**Review: A Revolution Without Poetry in the Met Opera’s ‘Chénier’**\
-`Umberto Giordano’s tragedy of love undone by the French Revolution has returned, but as an evening of coarse music making.`\
-https://nytimes.com/2025/11/25/arts/music/andrea-chenier-met-opera-review.html
-
-**Four More Arrested in Connection With Louvre Heist**\
-`A Paris prosecutor said two men and two women were arrested as part of an investigation into the robbery at the museum.`\
-https://nytimes.com/2025/11/25/world/europe/four-new-arrests-louvre-heist.html
-
-**Ask a Journalist: Photographing What’s Interesting About Your Hometown**\
-`The Times photographer James Estrin joins us in December to chat with teenagers about using a camera to explore the place where you live. Post your comments and questions for him by Dec. 12.`\
-https://nytimes.com/2025/11/25/learning/lesson-plans/ask-a-journalist-photographing-whats-interesting-about-your-hometown.html
 
