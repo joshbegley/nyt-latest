@@ -1,3 +1,7 @@
+**Christian McCaffrey leads 49ers to MNF victory over Panthers: Takeaways**\
+`The 49ers running back topped 100 yards from scrimmage for the 10th time this season to make up for his quarterback's three interceptions.`\
+https://nytimes.com/athletic/6834786/2025/11/24/panthers-49ers-score-result-takeaways-mnf/
+
 **49ers' Jauan Jennings swings at Panthers' Tre'von Moehrig after 'cheap shot'**\
 `Tensions rose in the final few minutes of San Francisco's 20-9 win over Carolina.`\
 https://nytimes.com/athletic/6835420/2025/11/24/jauan-jennings-trevon-moehrig-49ers-panthers-altercation/
