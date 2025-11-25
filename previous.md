@@ -1,3 +1,11 @@
+**Brighton are flying in the Premier League, but how are their loanees getting on?**\
+`As with permanent transfers, uncontrollable factors can have a bearing on the success of the temporary moves made by Brighton players`\
+https://nytimes.com/athletic/6766470/2025/11/25/brighton-premier-league-loan-players-analysis/
+
+**Barnes and Eze brilliance only underline the depth of England's attacking talent**\
+`Harvey Barnes was the hero for Newcastle against Manchester City. But he has one England cap, which shows the talent available to Tuchel`\
+https://nytimes.com/athletic/6833312/2025/11/25/barnes-eze-england-tuchel-world-cup/
+
 **Auston Trusty interview: 'Everything right now is aligning for me'**\
 `After struggling at the start of the season, the 27-year-old defender is finding fitness and form for the USMNT and Celtic`\
 https://nytimes.com/athletic/6828546/2025/11/25/auston-trusty-interview-usmnt-celtic-world-cup/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6833191/2025/11/25/pep-guardiola-weird-sky-camera/
 **Ajax gets his face back: Dutch giants revert to hand-drawn 1928 badge**\
 `Ajax have reverted to the hand-drawn badge of the ancient Greek mythological hero the club is named after, which was introduced in 1928`\
 https://nytimes.com/athletic/6833398/2025/11/25/ajax-badge-125-anniversary-amsterdam-1928/
-
-**Andres Iniesta on Guardiola's Barcelona prophecy, playing with Xavi, that Chelsea goal and 'croquetas'**\
-`Iniesta won it all with Barcelona and Spain and scored some memorable goals. But it was never just about that`\
-https://nytimes.com/athletic/6829130/2025/11/25/barcelona-iniesta-guardiola-xavi-chelsea/
-
-**Champions League projections: Will Arsenal or Bayern extend their perfect start?**\
-`The state of play as Europe's biggest teams prepare to get matchweek five underway`\
-https://nytimes.com/athletic/6832902/2025/11/25/champions-league-projections-md5/
 

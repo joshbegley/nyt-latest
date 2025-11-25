@@ -1,3 +1,11 @@
+**Brighton are flying in the Premier League, but how are their loanees getting on?**\
+`As with permanent transfers, uncontrollable factors can have a bearing on the success of the temporary moves made by Brighton players`\
+https://nytimes.com/athletic/6766470/2025/11/25/brighton-premier-league-loan-players-analysis/
+
+**Barnes and Eze brilliance only underline the depth of England's attacking talent**\
+`Harvey Barnes was the hero for Newcastle against Manchester City. But he has one England cap, which shows the talent available to Tuchel`\
+https://nytimes.com/athletic/6833312/2025/11/25/barnes-eze-england-tuchel-world-cup/
+
 **Auston Trusty interview: 'Everything right now is aligning for me'**\
 `After struggling at the start of the season, the 27-year-old defender is finding fitness and form for the USMNT and Celtic`\
 https://nytimes.com/athletic/6828546/2025/11/25/auston-trusty-interview-usmnt-celtic-world-cup/
