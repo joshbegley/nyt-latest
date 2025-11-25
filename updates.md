@@ -1,3 +1,7 @@
+**Boeing Tackles Quality With a ‘War on Defects’**\
+`Two years after a panel flew off a 737 Max, Boeing is doing more inspections, completing work in its intended order and making other changes. Can the company keep it up?`\
+https://nytimes.com/2025/11/25/business/boeing-737-max-factory.html
+
 **Jimmy Kimmel Is Touched by the Trump-Mamdani Bromance**\
 `“What a turn of events!” Kimmel said of the president’s warm words for New York’s mayor-elect. “It was like he was giving a wedding toast to his new son-in-law.”`\
 https://nytimes.com/2025/11/25/arts/television/jimmy-kimmel-trump-mamdani.html

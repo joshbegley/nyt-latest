@@ -1,3 +1,7 @@
+**Rafael Nadal's tennis and life after an era-defining rivalry: 'We never had time to relax'**\
+`Nadal's life after tennis did not see him pick up a racket until a year post-retirement. But he has plenty of opinions about its new stars.`\
+https://nytimes.com/athletic/6598134/2025/11/25/rafael-nadal-tennis-retirement-big-three-rivalry/
+
 **Boeing Tackles Quality With a ‘War on Defects’**\
 `Two years after a panel flew off a 737 Max, Boeing is doing more inspections, completing work in its intended order and making other changes. Can the company keep it up?`\
 https://nytimes.com/2025/11/25/business/boeing-737-max-factory.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/25/crosswords/spelling-bee-forum.html
 **Warmed by Japan’s Support, Taiwan Takes Up Sushi Diplomacy**\
 `China closed off Japanese seafood imports after Japan’s new leader declared strong support for Taiwan. Suddenly, sushi is everywhere on Taiwanese social media.`\
 https://nytimes.com/2025/11/25/world/asia/taiwan-china-japan-sushi.html
-
-**Acclaimed Writer of Indigenous Stories Says He Is Not Cherokee**\
-`Thomas King said he felt “ripped in half” on learning he had no Indigenous ancestry. The Canadian author has dedicated his career to writing about Indigenous people.`\
-https://nytimes.com/2025/11/25/world/canada/thomas-king-indigenous.html
 
