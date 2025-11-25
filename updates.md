@@ -1,3 +1,7 @@
+**She Tried to Leave America. She Entered an Immigration Hall of Mirrors.**\
+`After more than 20 years in the U.S., an Eritrean mother and nurse tried to self-deport to Canada. She found herself in a Texas detention center instead.`\
+https://nytimes.com/2025/11/25/world/canada/usa-ice-eritrea-deportation-asylum.html
+
 **Man Utd hiring Kyle Macaulay as head of senior scouting**\
 `United have been looking to add a key figure to assist on transfers since July.`\
 https://nytimes.com/athletic/6835796/2025/11/25/manchester-united-kyle-macaulay-scouting/

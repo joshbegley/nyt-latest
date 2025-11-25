@@ -1,3 +1,7 @@
+**She Tried to Leave America. She Entered an Immigration Hall of Mirrors.**\
+`After more than 20 years in the U.S., an Eritrean mother and nurse tried to self-deport to Canada. She found herself in a Texas detention center instead.`\
+https://nytimes.com/2025/11/25/world/canada/usa-ice-eritrea-deportation-asylum.html
+
 **Man Utd hiring Kyle Macaulay as head of senior scouting**\
 `United have been looking to add a key figure to assist on transfers since July.`\
 https://nytimes.com/athletic/6835796/2025/11/25/manchester-united-kyle-macaulay-scouting/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6834346/2025/11/25/college-football-playoff-odds-or
 **Kane says 'very unlikely' he leaves Bayern this summer**\
 `"I’m sure I’ll have talks with Bayern in the next few months, then we’ll see what’s best for the future,” Kane told Bild.`\
 https://nytimes.com/athletic/6836361/2025/11/25/harry-kane-contract-bayern-future-barcelona/
-
-**The Bounce: Anybody else worth tanking for? Plus, who's fattening up on soft schedules**\
-`Zach Harper catches you up on the latest NBA news in our newsletter.`\
-https://nytimes.com/athletic/6836221/2025/11/25/aj-dybantsa-nba-draft-pistons-the-bounce/
 
