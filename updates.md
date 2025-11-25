@@ -1,3 +1,11 @@
+**The story behind the making of Arsenal's iconic north London derby tifo**\
+`It is already an iconic Arsenal image.`\
+https://nytimes.com/athletic/6836436/2025/11/25/arsenal-tifo-emirates-north-london-derby/
+
+**Ronaldo avoids World Cup ban as FIFA grants Portugal captain 'probationary period'**\
+`Ronaldo, 40, was sent off in Portugal's penultimate World Cup qualifier against the Republic of Ireland.`\
+https://nytimes.com/athletic/6809592/2025/11/25/cristiano-ronaldo-world-cup-ban-fifa/
+
 **Ronaldo avoids World Cup ban as FIFA grant Portugal captain 'probationary period'**\
 `Ronaldo, 40, was sent off in Portugal's penultimate World Cup qualifier against the Republic of Ireland.`\
 https://nytimes.com/athletic/6809592/2025/11/25/cristiano-ronaldo-world-cup-ban-fifa/

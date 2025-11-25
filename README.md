@@ -1,3 +1,11 @@
+**NFL best bets Week 13: Why the Cowboys have value against Mahomes**\
+`Austin Mock's model continues to put out winning weeks and has a few bets for Week 13, including a Thanksgiving play.`\
+https://nytimes.com/athletic/6836618/2025/11/25/nfl-best-bets-week-13-cowboys-chiefs/
+
+**Slot confirms Gomez had knee injection but is available**\
+`Head coach Slot also said the team's current poor form was "ridiculous, almost” and “unexpected”.`\
+https://nytimes.com/athletic/6836823/2025/11/25/liverpool-joe-gomez-injury-slot/
+
 **The story behind the making of Arsenal's iconic north London derby tifo**\
 `It is already an iconic Arsenal image.`\
 https://nytimes.com/athletic/6836436/2025/11/25/arsenal-tifo-emirates-north-london-derby/
@@ -15,7 +23,7 @@ https://nytimes.com/2025/11/25/business/thanksgiving-dinner-cost-turkey-meal-exp
 https://nytimes.com/2025/11/25/world/europe/keir-starmer-6-7-school-uk.html
 
 **Red Sox to bolster rotation with trade for Cardinals' Sonny Gray: Sources**\
-`Boston stated a desire to improve the rotation behind ace Garrett Crochet.`\
+`Boston stated a desire to improve the rotation behind ace Garrett Crochet and addressed that with Gray.`\
 https://nytimes.com/athletic/6826751/2025/11/25/sonny-gray-trade-cardinals-red-sox-mlb-news/
 
 **Review: A Revolution Without Poetry in the Met Opera’s ‘Chénier’**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/25/world/europe/four-new-arrests-louvre-heist.html
 **Ask a Journalist: Photographing What’s Interesting About Your Hometown**\
 `The Times photographer James Estrin joins us in December to chat with teenagers about using a camera to explore the place where you live. Post your comments and questions for him by Dec. 12.`\
 https://nytimes.com/2025/11/25/learning/lesson-plans/ask-a-journalist-photographing-whats-interesting-about-your-hometown.html
-
-**Kelly's attorneys press LSU for clarity on coach's firing in letters**\
-`Kelly would withdraw his lawsuit once LSU confirms he was fired without cause and meets 'its contractual obligations,' his attorneys said.`\
-https://nytimes.com/athletic/6836536/2025/11/25/brian-kelly-lsu-lawsuit-firing-cause/
-
-**How to watch Hawks vs. Wizards: Time, TV, streaming**\
-`Find out how to watch the Atlanta Hawks play the Washington Wizards, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6836651/2025/11/25/hawks-vs-wizards-stream-how-to-watch-nov-25/
 
