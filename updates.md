@@ -1,3 +1,7 @@
+**Violence Is Driving Catastrophic Hunger in Nigeria, U.N. Report Says**\
+`Africa’s most populous nation was already facing one of the world’s biggest hunger crises. It’s getting much worse.`\
+https://nytimes.com/2025/11/25/world/africa/nigeria-food-violence-usaid.html
+
 **With draw pots set, what are USMNT's best, worst and most interesting World Cup groups?**\
 `We can now fully assess all the possibilities for what the U.S.'s World Cup group could look like next summer. Buckle up`\
 https://nytimes.com/athletic/6837167/2025/11/25/usmnt-2026-world-cup-draw-group-scenarios/
