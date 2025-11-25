@@ -1,3 +1,7 @@
+**Alonso: Managing Madrid personalities 'as important as tactical work'**\
+`The Athletic reported on Monday that Vinicius Junior had told Madrid that he does not wish to sign a new contract at the club.`\
+https://nytimes.com/athletic/6835837/2025/11/25/xabi-alonso-real-madrid-vinicius/
+
 **Prime Tire: The Las Vegas GP reset everything. Here are 5 ways the F1 title could end**\
 `Welcome to Prime Tire, The Athletic's Formula One newsletter.`\
 https://nytimes.com/athletic/6836457/2025/11/25/f1-championship-scenarios-prime-tire/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6835168/2025/11/25/cam-ward-tennessee-titans-rookie
 **Ryan Rollins, Derik Queen, and 15 other reasons to be thankful for fantasy hoops**\
 `Stan Son offers a list of fantasy basketball gratitude that includes not drafting Joel Embiid and Jalen Duren's breakout. `\
 https://nytimes.com/athletic/6836597/2025/11/25/fantasy-basketball-ryan-rollins-derik-queen/
-
-**Cranberry Curd Tart, Our Most Popular Thanksgiving Dessert**\
-`And some classic, no-fail sides for that dinner that you have on Thursday.`\
-https://nytimes.com/2025/11/25/dining/cranberry-curd-tart-our-most-popular-thanksgiving-dessert.html
 
