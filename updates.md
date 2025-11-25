@@ -1,3 +1,11 @@
+**What I'm hearing about the Canucks' direction amid their disappointing start**\
+`Has the time come for the Canucks to proactively chart a clear direction for the franchise?`\
+https://nytimes.com/athletic/6834909/2025/11/25/canucks-standings-quinn-hughes-kiefer-sherwood/
+
+**Red Corduroys and Sentimental Jewelry**\
+`Meaningful accessories finished an outfit combining solid colors and prints.`\
+https://nytimes.com/2025/11/25/style/street-style-look-red-pants.html
+
 **Inside Barcelona: Champions League morale, Garcia contract, Boateng statement**\
 `Our Barcelona writers share their latest information and news on all the big talking points at the Spanish club`\
 https://nytimes.com/athletic/6836134/2025/11/25/barcelona-raphinha-yamal-chelsea-flick-champions-league/

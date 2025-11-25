@@ -1,3 +1,11 @@
+**What I'm hearing about the Canucks' direction amid their disappointing start**\
+`Has the time come for the Canucks to proactively chart a clear direction for the franchise?`\
+https://nytimes.com/athletic/6834909/2025/11/25/canucks-standings-quinn-hughes-kiefer-sherwood/
+
+**Red Corduroys and Sentimental Jewelry**\
+`Meaningful accessories finished an outfit combining solid colors and prints.`\
+https://nytimes.com/2025/11/25/style/street-style-look-red-pants.html
+
 **Inside Barcelona: Champions League morale, Garcia contract, Boateng statement**\
 `Our Barcelona writers share their latest information and news on all the big talking points at the Spanish club`\
 https://nytimes.com/athletic/6836134/2025/11/25/barcelona-raphinha-yamal-chelsea-flick-champions-league/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6835288/2025/11/25/nfl-mock-draft-2026-ty-simpson-j
 **How to watch NC State vs. Boise State men's basketball: Time, TV, streaming**\
 `Find out how to watch the NC State Wolfpack play the Boise State Broncos, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6836160/2025/11/25/nc-state-vs-boise-state-stream-how-to-watch-nov-25/
-
-**How to watch Iowa State vs. Creighton men's basketball: Time, TV, streaming**\
-`Find out how to watch the Iowa State Cyclones play the Creighton Bluejays, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6836156/2025/11/25/iowa-state-vs-creighton-stream-how-to-watch-nov-25/
-
-**Trump Administration Live Updates: Bondi Vows to Appeal Dismissal of Comey and James Cases**\
-``\
-https://nytimes.com/live/2025/11/25/us/trump-news
 
