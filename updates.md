@@ -1,3 +1,15 @@
+**Everton Women CEO to step down at end of season**\
+`Hannah Forshaw only officially began work at the club in September but will exit at the end of the 2025-26 campaign.`\
+https://nytimes.com/athletic/6836040/2025/11/25/everton-women-hannah-forshaw/
+
+**Can Caleb Williams and the 8-3 Bears keep winning this way?**\
+`The Black Friday game in Philadelphia might tell us how good the Bears really are, but for now, it's hard to doubt the progress. `\
+https://nytimes.com/athletic/6834602/2025/11/25/bears-winning-ways-caleb-williams/
+
+**How Eze's shot volume and desire to 'try things' is transforming Arsenal**\
+`Not every shot he takes will go in, but having players who play off instinct in those areas on edge of the area is what makes a difference`\
+https://nytimes.com/athletic/6835853/2025/11/25/eberechi-eze-shooting-arsenal/
+
 **Suns' Dillon Brooks irritates everyone, his former Rockets teammates included**\
 `In the midst of a career year, Brooks still brings the "invaluable" skill of the guy you love to see on the court — if he's on your team.`\
 https://nytimes.com/athletic/6835795/2025/11/25/dillon-brooks-phoenix-suns-houston-rockets-defense/
