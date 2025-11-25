@@ -1,3 +1,11 @@
+**Brussels Sprouts With Pickled Shallots and Labneh**\
+`Pickled onions and labneh lend brightness to this brussels sprouts dish that’s full of flavors and textures, making it a show-stopping addition to the Thanksgiving table.`\
+https://nytimes.com/video/dining/100000010366318/brussels-sprouts-with-pickled-shallots-and-labneh.html
+
+**Must-See Moments From the N.B.A.**\
+`On Monday, Tyler Herro scored 24 points in his season debut, the Detroit Pistons tied a team record, Nikola Jokic notched another triple-double, and Brandon Ingram put up 37 points for the Toronto Raptors.`\
+https://nytimes.com/video/sports/basketball/100000010545965/must-see-moments-from-the-nba.html
+
 **Australian Senator Suspended for Stunt of Wearing a Burqa in Parliament**\
 `Pauline Hanson, the head of the far-right One Nation party, wore the garment as a prop to push legislation to bar the garment in public places.`\
 https://nytimes.com/2025/11/25/world/australia/australia-hanson-burqa-suspended.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/25/nyregion/sro-apartments-nyc.html
 **Challengers Take on N.Y. House Democrats, Targeting Their Ties to Israel**\
 `Several Democratic incumbents are facing primary battles after Zohran Mamdani’s win suggested that being pro-Israel was no longer a universal selling point.`\
 https://nytimes.com/2025/11/25/nyregion/israel-congress-mamdani-challengers.html
-
-**Deported and Desperate to Be Reunited With Their Children**\
-`Across the United States, children have been left in the care of relatives and neighbors after deportations. In Venezuela, parents are clamoring for the return of their sons and daughters.`\
-https://nytimes.com/2025/11/25/nyregion/venezuela-children-deported-parents.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/11/25/crosswords/spelling-bee-forum.html
 
