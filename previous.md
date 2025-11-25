@@ -1,3 +1,35 @@
+**Shorter Days, Signs of Fatigue: Trump Faces Realities of Aging in Office**\
+`President Trump has always used his stamina and energy as a political strength. But that image is getting harder for him to sustain.`\
+https://nytimes.com/2025/11/25/us/politics/trump-age-health.html
+
+**Heavy Snow Expected Across Upper Midwest Through Thanksgiving**\
+`Forecasters said the snow was expected to be unusually intense, even for areas used to heavy snow.`\
+https://nytimes.com/2025/11/25/weather/minnesota-wisconsin-snow-forecast.html
+
+**Thanksgiving and the New Births of Freedom**\
+`An opportunity for families and friends and, by extension, communities, states, and the country itself to have a national reset.`\
+https://nytimes.com/2025/11/25/opinion/thanksgiving-and-the-new-births-of-freedom.html
+
+**The Briefing: Chelsea 3 Barcelona 0 - Estevao shines as Maresca's side produce statement win in Champions League**\
+`The Athletic's writers break down the key moments from Tuesday's Champions League game at Stamford Bridge`\
+https://nytimes.com/athletic/6831148/2025/11/25/chelsea-barcelona-champions-league-analysis/
+
+**Swalwell Files Suit Against Housing Official, Claiming Privacy Law Violations**\
+`The lawsuit claims that repeated disclosures by Bill Pulte, the director of the Federal Housing Finance Agency, were intended to damage prominent Democrats over their criticism of the president.`\
+https://nytimes.com/2025/11/25/us/politics/swalwell-pulte-privacy-lawsuit.html
+
+**Senator Agrees to Pay Over $5 Million in Back Taxes to I.R.S.**\
+`Senator Jim Justice, a Republican and former governor of West Virginia, agreed to pay just hours after the tax agency sued to collect unpaid taxes from 2009.`\
+https://nytimes.com/2025/11/25/us/jim-justice-irs.html
+
+**The Briefing: Manchester City 0 Bayer Leverkusen 2 - Guardiola's 10 changes, Haaland misses chances**\
+`Manchester City suffer back-to-back defeats after being convincingly beaten at home in the Champions League `\
+https://nytimes.com/athletic/6831348/2025/11/25/manchester-city-0-bayer-leverkusen-2-briefing/
+
+**Fantasy football strength of schedule: Week 13 and playoff matchup rankings**\
+`Jake Ciely's Week 13 matchup rankings can help with difficult start/sit decisions this week. Playoff rankings aid future plans. `\
+https://nytimes.com/athletic/6837407/2025/11/25/fantasy-football-strength-of-schedule-week-13-playoff-matchup-rankings/
+
 **Indiana Lawmakers Are Poised to Vote on Redistricting After All**\
 `Republican leaders in the legislature backtracked and said they would vote on a new congressional map that President Trump wants, though support remained uncertain.`\
 https://nytimes.com/2025/11/25/us/indiana-redistricting-republicans.html
@@ -5,32 +37,4 @@ https://nytimes.com/2025/11/25/us/indiana-redistricting-republicans.html
 **Oklahoma State expected to hire North Texas' Eric Morris as next head coach**\
 `After firing long time coach Mike Gundy, Oklahoma State will turn to North Texas' Eric Morris as its next head coach.`\
 https://nytimes.com/athletic/6837665/2025/11/25/oklahoma-state-eric-morris-north-texas-coach/
-
-**USMNT's McKennie scores for Juventus in Champions League vs. Bodo/Glimt**\
-`The USMNT midfielder gave his side the lead in Norway with the eighth Champions League goal of his career`\
-https://nytimes.com/athletic/6837662/2025/11/25/weston-mckennie-goal-juventus-champions-league-bodo-glimt/
-
-**The New Wave of Sculpture Parks Redefining How Art Is Seen**\
-`Five destinations, whether in the English countryside or a forest in Thailand, where the work and nature go hand in hand.`\
-https://nytimes.com/2025/11/25/t-magazine/art-sculpture-parks.html
-
-**Crunchtime for Europe on Ukraine**\
-`President Trump’s peace plan is forcing the continent to confront some hard choices about military power.`\
-https://nytimes.com/2025/11/25/world/europe-ukraine-russia-budget-day-ethiopia-volcano.html
-
-**Once Foes of Obamacare, Some Republicans Push to Protect It**\
-`A small cadre of politically vulnerable Republicans in Congress is breaking with the party to push for the extension of health care tax credits for a program the G.O.P. reviles.`\
-https://nytimes.com/2025/11/25/us/politics/republicans-trump-obamacare-subsidies.html
-
-**Are You Smarter Than a Billionaire?**\
-`In a single week, collectors spent $2.2 billion on art at New York’s auction houses, including the $236 million Klimt portrait.`\
-https://nytimes.com/interactive/2025/11/25/arts/design/art-auction-quiz.html
-
-**Prosecutors Prepare to Try Suspect in Etan Patz Case for the Third Time**\
-`The defendant, Pedro Hernandez, was convicted in 2017 of kidnapping the 6-year-old, who disappeared in 1979 in SoHo.`\
-https://nytimes.com/2025/11/25/nyregion/etan-patz-retrial.html
-
-**Submit your questions for Kevin Fishbain's Bears mailbag**\
-`The first-place Bears are 8-3, but now they take a step up in class against the defending champion Eagles. Share your questions here.`\
-https://nytimes.com/athletic/6837560/2025/11/25/bears-mailbag-questions-50/
 

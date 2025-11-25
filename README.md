@@ -1,3 +1,7 @@
+**The Briefing: Marseille 2 Newcastle 1 - Inexplicable Nick Pope error, another away defeat**\
+`Newcastle United fell to a fourth successive away defeat in all competitions as they threw away a lead to lose in the Champions League`\
+https://nytimes.com/athletic/6831349/2025/11/25/marseille-2-newcastle-1-pope-aubameyang/
+
 **Shorter Days, Signs of Fatigue: Trump Faces Realities of Aging in Office**\
 `President Trump has always used his stamina and energy as a political strength. But that image is getting harder for him to sustain.`\
 https://nytimes.com/2025/11/25/us/politics/trump-age-health.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6837407/2025/11/25/fantasy-football-strength-of-sch
 **Indiana Lawmakers Are Poised to Vote on Redistricting After All**\
 `Republican leaders in the legislature backtracked and said they would vote on a new congressional map that President Trump wants, though support remained uncertain.`\
 https://nytimes.com/2025/11/25/us/indiana-redistricting-republicans.html
-
-**Oklahoma State expected to hire North Texas' Eric Morris as next head coach**\
-`After firing long time coach Mike Gundy, Oklahoma State will turn to North Texas' Eric Morris as its next head coach.`\
-https://nytimes.com/athletic/6837665/2025/11/25/oklahoma-state-eric-morris-north-texas-coach/
 
