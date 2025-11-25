@@ -1,3 +1,11 @@
+**Tentative Signs of Hope as the Amazon Burns**\
+`This year’s U.N. climate negotiations were seen by activists as a letdown. But a Times reporter found some encouraging signs on the ground in the Brazilian Amazon.`\
+https://nytimes.com/2025/11/25/climate/amazon-fires-cop30.html
+
+**Minority Alawites Protest in Syria After Sectarian Attacks**\
+`The demonstrations followed unrest over the weekend in Homs, Syria’s third-largest city, which set off reprisal attacks on Alawites, a community once favored by the ousted Assad regime.`\
+https://nytimes.com/2025/11/25/world/europe/syria-alawites-protest.html
+
 **Nigeria defender Fredrick set to miss AFCON through injury**\
 `Fredrick, 20, missed club side Dender's Belgian Pro League victory over Royal Antwerp on Sunday due to the injury.`\
 https://nytimes.com/athletic/6837137/2025/11/25/benjamin-fredrick-nigeria-afcon-injury/
