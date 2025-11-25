@@ -1,3 +1,23 @@
+**The ‘New’ Solution for the N.Y.C. Housing Crisis: Tiny Apartments**\
+`There is a push to revive single-room occupancy housing, where kitchens and bathrooms are shared among apartments as small as 100 square feet each.`\
+https://nytimes.com/2025/11/25/nyregion/sro-apartments-nyc.html
+
+**Challengers Take on N.Y. House Democrats, Targeting Their Ties to Israel**\
+`Several Democratic incumbents are facing primary battles after Zohran Mamdani’s win suggested that being pro-Israel was no longer a universal selling point.`\
+https://nytimes.com/2025/11/25/nyregion/israel-congress-mamdani-challengers.html
+
+**Deported and Desperate to Be Reunited With Their Children**\
+`Across the United States, children have been left in the care of relatives and neighbors after deportations. In Venezuela, parents are clamoring for the return of their sons and daughters.`\
+https://nytimes.com/2025/11/25/nyregion/venezuela-children-deported-parents.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/11/25/crosswords/spelling-bee-forum.html
+
+**Acclaimed Writer of Indigenous Stories Says He Is Not Cherokee**\
+`Thomas King said he felt “ripped in half” on learning he had no Indigenous ancestry. The Canadian author has dedicated his career to writing about Indigenous people.`\
+https://nytimes.com/2025/11/25/world/canada/thomas-king-indigenous.html
+
 **Warmed by Japan’s Support, Taiwan Takes Up Sushi Diplomacy**\
 `China closed off Japanese seafood imports after Japan’s new leader declared strong support for Taiwan. Suddenly, sushi is everywhere on Taiwanese social media.`\
 https://nytimes.com/2025/11/25/world/asia/taiwan-china-japan-sushi.html
