@@ -1,3 +1,11 @@
+**How to watch NC State vs. Boise State men's basketball: Time, TV, streaming**\
+`Find out how to watch the NC State Wolfpack play the Boise State Broncos, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6836160/2025/11/25/nc-state-vs-boise-state-stream-how-to-watch-nov-25/
+
+**How to watch Iowa State vs. Creighton men's basketball: Time, TV, streaming**\
+`Find out how to watch the Iowa State Cyclones play the Creighton Bluejays, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6836156/2025/11/25/iowa-state-vs-creighton-stream-how-to-watch-nov-25/
+
 **Trump Administration Live Updates: Bondi Vows to Appeal Dismissal of Comey and James Cases**\
 ``\
 https://nytimes.com/live/2025/11/25/us/trump-news
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/25/business/dealbook/fed-big-tech-market-rally.html
 **Continuity was supposed to help Timberwolves. So why do they keep collapsing?**\
 `Minnesota followed Friday's faceplant against Phoenix by losing in overtime to the Kings. The team doesn't look comfortable. `\
 https://nytimes.com/athletic/6835541/2025/11/25/timberwolves-losses-anthony-edwards-julius-randle-kings/
-
-**Would you rather be the football coach at Florida or Florida State?**\
-`Florida is looking for a new football coach, and Florida State's Mike Norvell will be on the hot seat entering 2026. What's the better gig?`\
-https://nytimes.com/athletic/6833766/2025/11/25/florida-fsu-rivalry-coaching-job-norvell/
-
-**Are Schools a Problem?**\
-`We look into the mental health crisis affecting American youth.`\
-https://nytimes.com/2025/11/25/briefing/are-schools-a-problem.html
 
