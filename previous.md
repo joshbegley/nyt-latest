@@ -1,3 +1,11 @@
+**Full Time: Is Gotham a dynasty now?**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/6835408/2025/11/24/gotham-nwsl-championship-full-time/
+
+**NFL playoff picture after Week 12: Patriots seize control of AFC; Eagles lose grip on NFC**\
+`The race for the No. 1 seeds is heating up, with two new teams sitting atop the conference standings after Sunday's slate.`\
+https://nytimes.com/athletic/6815148/2025/11/24/nfl-playoff-picture-week-12-patriots-eagles-update/
+
 **Brutal injury wave makes Blue Jackets' ugly loss to Capitals seem secondary**\
 `Kirill Marchenko went down during the morning skate while two other key players did not finish the game against Washington.`\
 https://nytimes.com/athletic/6835193/2025/11/24/blue-jackets-injuries-marchenko-olivier-werenski-capitals/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6835174/2025/11/24/brandon-ingram-highlights-raptor
 **Scoop City: Risers and fallers after Week 12**\
 `The Patriots are trending down despite their ninth-straight win, while the Chiefs, Bears and long snappers are Week 12 risers`\
 https://nytimes.com/athletic/6835223/2025/11/24/week-12-risers-fallers-nfl-patriots-rams-scoop-city/
-
-**'Pay close attention to what we’re building': Gotham FC celebrate NWSL trophy in NYC**\
-`Two years after their first NWSL Championship, Gotham FC finally got their confetti in downtown Manhattan.`\
-https://nytimes.com/athletic/6834608/2025/11/24/gotham-fc-nwsl-championship-nyc-celebrations/
-
-**How Rubio Tried to Bring a Pro-Russia Peace Plan to Middle Ground**\
-`While President Trump attacked the Ukrainians, Secretary of State Marco Rubio flew to Geneva to seize control of negotiations that were going off the rails.`\
-https://nytimes.com/2025/11/24/us/politics/trump-russia-ukraine-peace-plan-middle-ground.html
 

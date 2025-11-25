@@ -1,3 +1,11 @@
+**Full Time: Is Gotham a dynasty now?**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/6835408/2025/11/24/gotham-nwsl-championship-full-time/
+
+**NFL playoff picture after Week 12: Patriots seize control of AFC; Eagles lose grip on NFC**\
+`The race for the No. 1 seeds is heating up, with two new teams sitting atop the conference standings after Sunday's slate.`\
+https://nytimes.com/athletic/6815148/2025/11/24/nfl-playoff-picture-week-12-patriots-eagles-update/
+
 **Brutal injury wave makes Blue Jackets' ugly loss to Capitals seem secondary**\
 `Kirill Marchenko went down during the morning skate while two other key players did not finish the game against Washington.`\
 https://nytimes.com/athletic/6835193/2025/11/24/blue-jackets-injuries-marchenko-olivier-werenski-capitals/
