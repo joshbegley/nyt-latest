@@ -1,3 +1,7 @@
+**The Briefing: Marseille 2 Newcastle 1 - Inexplicable Nick Pope error, another away defeat**\
+`Newcastle United fell to a fourth successive away defeat in all competitions as they threw away a lead to lose in the Champions League`\
+https://nytimes.com/athletic/6831349/2025/11/25/marseille-2-newcastle-1-pope-aubameyang/
+
 **Shorter Days, Signs of Fatigue: Trump Faces Realities of Aging in Office**\
 `President Trump has always used his stamina and energy as a political strength. But that image is getting harder for him to sustain.`\
 https://nytimes.com/2025/11/25/us/politics/trump-age-health.html
