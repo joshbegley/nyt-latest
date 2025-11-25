@@ -1,3 +1,11 @@
+**Why Raiders' Chip Kelly era should signal a stop to pipeline of college-to-NFL coaches**\
+`Predictable play calling combined with a bad offensive line and a lack of talent at receiver has been disastrous for the Raiders.`\
+https://nytimes.com/athletic/6832852/2025/11/25/chip-kelly-raiders-fired-offense-film-review/
+
+**The Pulse: The tournament changing college hoops**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6833611/2025/11/25/players-era-tournament-las-vegas-the-pulse/
+
 **U.S. Air Force Searches for Fallen Reaper Drone in Yellow Sea**\
 `The MQ-9 Reaper was conducting a routine mission when it fell into the ocean on Monday near a U.S. military base in South Korea.`\
 https://nytimes.com/2025/11/25/world/asia/us-drone-crash-south-korea.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6834625/2025/11/25/max-brosmer-vikings-jj-mccarthy-
 **Trump’s Retribution Campaign Hits a Major Roadblock, and Health Care Costs Set to Surge**\
 `Plus, what a social media break can do for your brain.`\
 https://nytimes.com/2025/11/25/podcasts/the-headlines/trump-comey-james-health-care-costs.html
-
-**Rangers end 4-game skid by getting back to low-event hockey, plus 8 more thoughts**\
-`Mike Sullivan implored the Rangers to simplify and get back to the controlled game that made them one of the league’s stingiest defenses.`\
-https://nytimes.com/athletic/6835503/2025/11/25/rangers-end-4-game-skid-by-getting-back-to-low-event-hockey-plus-8-more-thoughts/
-
-**Corey LaJoie lost his Cup Series ride, then found something to 'turn the ship back'**\
-`Once a rising prospect, LaJoie found himself without a Cup ride for 2025. Then came Amazon Prime with a new opportunity.`\
-https://nytimes.com/athletic/6824518/2025/11/25/corey-lajoie-nascar-cup-series-amazon-prime/
 
