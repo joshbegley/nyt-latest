@@ -36,5 +36,5 @@ https://nytimes.com/athletic/6835851/2025/11/25/east-carolina-vs-michigan-state-
 
 **U.S. Plans Compounds to House Palestinians in Israeli-Held Half of Gaza**\
 `The project could offer relief for tens of thousands of Palestinians who have endured two years of war, but has raised questions about whether it could entrench the partition of Gaza into Israeli- and Hamas-controlled zones.`\
-https://nytimes.com/2025/11/25/world/middleeast/us-plans-compounds-to-house-palestinians-in-israeli-held-half-of-gaza.html
+https://nytimes.com/2025/11/25/world/middleeast/us-compounds-palestinians-israel-gaza-strip.html
 
