@@ -1,3 +1,7 @@
+**Man Utd were always going to lose games this season. But not like this**\
+`It was the manner of the defeat to Everton, rather than just the defeat itself, which was so worrying for Ruben Amorim`\
+https://nytimes.com/athletic/6835339/2025/11/25/manchester-united-everton-result-analysis/
+
 **The New York Times in Print for Tuesday, Nov. 25, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/11/25/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6835467/2025/11/25/nikola-jokic-pass-highlight-nugg
 **Liverpool are missing Luis Diaz - and in more ways than one**\
 `The Colombian's energy, dynamism and mentality are all conspicuous by their absence at Anfield just now`\
 https://nytimes.com/athletic/6833744/2025/11/25/liverpool-luis-diaz-bayern-miss/
-
-**Pulisic and Maignan's derby heroics, Conte's staying, imperial Roma: Horncastle's Serie A Briefing**\
-`The goals finally flowed in Serie A this weekend - with USMNT star Christian Pulisic scoring the winner in the Milan derby as Roma march on`\
-https://nytimes.com/athletic/6832909/2025/11/25/james-horncastles-serie-a-pulisic-maignan-napoli-roma/
 

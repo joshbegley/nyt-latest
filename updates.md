@@ -1,3 +1,7 @@
+**Man Utd were always going to lose games this season. But not like this**\
+`It was the manner of the defeat to Everton, rather than just the defeat itself, which was so worrying for Ruben Amorim`\
+https://nytimes.com/athletic/6835339/2025/11/25/manchester-united-everton-result-analysis/
+
 **The New York Times in Print for Tuesday, Nov. 25, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/11/25/todays-new-york-times
