@@ -1,3 +1,7 @@
+**Auston Trusty interview: 'Everything right now is aligning for me'**\
+`After struggling at the start of the season, the 27-year-old defender is finding fitness and form for the USMNT and Celtic`\
+https://nytimes.com/athletic/6828546/2025/11/25/auston-trusty-interview-usmnt-celtic-world-cup/
+
 **How we will be watching football in 2035**\
 `Six predictions for the how viewing football will change — from gaming-style presentation to smart glasses`\
 https://nytimes.com/athletic/6815096/2025/11/25/how-to-watch-football-tv-future/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6829130/2025/11/25/barcelona-iniesta-guardiola-xavi
 **Champions League projections: Will Arsenal or Bayern extend their perfect start?**\
 `The state of play as Europe's biggest teams prepare to get matchweek five underway`\
 https://nytimes.com/athletic/6832902/2025/11/25/champions-league-projections-md5/
-
-**Quote of the Day: Haitians Cheer Soccer Success in Era of Crisis**\
-`Quotation of the Day for Tuesday, November 25, 2025.`\
-https://nytimes.com/2025/11/25/pageoneplus/quote-of-the-day-haitians-cheer-soccer-success-in-era-of-crisis.html
 
