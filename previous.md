@@ -1,3 +1,15 @@
+**Milan Lucic's NHL comeback attempt falls short as Blues terminate AHL pro tryout**\
+`The 37-year-old was attempting a return to professional hockey after two years.`\
+https://nytimes.com/athletic/6837874/2025/11/25/milan-lucic-blues-ahl-pro-tryout-nhl/
+
+**The brilliant Estevao goal that shows he belongs on the Champions League stage**\
+`Chelsea's Brazilian teenager did not look out of place on the same pitch as Lamine Yamal on Tuesday night `\
+https://nytimes.com/athletic/6837879/2025/11/25/the-brilliant-estevao-goal-that-shows-he-belongs-on-the-champions-league-stage/
+
+**School Groups Sue to Stop Dismantling of the Education Department**\
+`The new complaint is aimed at changes the Trump administration would make to shift significant functions from the department to other federal agencies.`\
+https://nytimes.com/2025/11/25/us/politics/school-coalition-lawsuit-education-department.html
+
 **Thanksgiving Costs Draw Scrutiny**\
 `Also, the 100 most notable books of the year. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2025/11/25/briefing/thanksgiving-costs-draw-scrutiny.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6837799/2025/11/25/borussia-dortmund-la-liga-banner
 **Trump’s Retribution Push Has Expanded Even as It Hits Legal Barriers**\
 `A judge dismissed indictments against two of the president’s foes, but a new Pentagon investigation of a prominent Democrat shows how he is using a whole-of-government approach to punish those who cross him.`\
 https://nytimes.com/2025/11/25/us/politics/trumps-retribution-legal-barriers.html
-
-**In trade for elite strike-thrower Sonny Gray, Red Sox land a key rotation piece**\
-`On Tuesday, the Red Sox traded for Gray, who is a much-needed addition to their rotation and helps balance out their handedness.`\
-https://nytimes.com/athletic/6837589/2025/11/25/sonny-gray-trade-keith-law/
-
-**The Briefing: Marseille 2 Newcastle 1 – Inexplicable Nick Pope error, another away defeat**\
-`Newcastle United fell to a fourth successive away defeat in all competitions as they threw away a lead to lose in the Champions League`\
-https://nytimes.com/athletic/6831349/2025/11/25/marseille-2-newcastle-1-pope-aubameyang/
-
-**Heavy Snow Expected Across Upper Midwest Through Thanksgiving**\
-`Forecasters said the snow was expected to be unusually intense, even for areas used to heavy snow.`\
-https://nytimes.com/2025/11/25/weather/minnesota-wisconsin-snow-forecast.html
 
