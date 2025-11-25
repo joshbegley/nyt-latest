@@ -1,3 +1,19 @@
+**Hamas Victims’ Families Sue Binance, Accusing It of Aiding Terrorism**\
+`A lawsuit claims the cryptocurrency exchange turned a blind eye as $1 billion used to finance the Oct. 7 attacks in Israel and other acts moved through its network.`\
+https://nytimes.com/2025/11/25/business/binance-hamas-terrorism.html
+
+**Goan Curry Shrimp, Sweet and Sour Eggplant and One-Pot Chicken and Rice**\
+`Saucy, punchy flavors before the potatoes hit on Thursday.`\
+https://nytimes.com/2025/11/25/dining/goan-curry-shrimp-sweet-and-sour-eggplant-and-one-pot-chicken-and-rice.html
+
+**Seal Milk Is the Cream of the Molecular Crop**\
+`You won’t be drinking it any time soon, but the aquatic mammal’s milk is much more chemically complex than that of other mammals, including humans.`\
+https://nytimes.com/2025/11/25/science/seal-milk.html
+
+**Mick Schumacher to join IndyCar in 2026 with David Letterman co-owned team**\
+`Schumacher becomes the latest former F1 driver to join America's biggest open-wheel racing series`\
+https://nytimes.com/athletic/6836498/2025/11/25/mick-schumacher-indycar-2026-letterman-rahal/
+
 **She Tried to Leave America. She Entered an Immigration Hall of Mirrors.**\
 `After more than 20 years in the U.S., an Eritrean mother and nurse tried to self-deport to Canada. She found herself in a Texas detention center instead.`\
 https://nytimes.com/2025/11/25/world/canada/usa-ice-eritrea-deportation-asylum.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6836371/2025/11/25/red-light-oilers-goalies-chris-d
 **Kyiv Residents Doubt Peace Talks After Deadly Russian Barrage**\
 `A large-scale Russian aerial barrage on the Ukrainian capital killed at least six people on Tuesday. The attack came hours after a round of peace talks between U.S. and Ukrainian mediators that ended in Geneva.`\
 https://nytimes.com/video/world/europe/100000010546188/kyiv-doubt-peace-talks-russian-strikes.html
-
-**How New York Could Protect Its Street Vendors**\
-`The city’s history can be understood through the people who sell food on sidewalks. Here’s how New York could set them up for success.`\
-https://nytimes.com/2025/11/25/dining/street-vendors-new-york-food.html
-
-**'We gotta figure it out': The Bucks are sliding without Giannis Antetokounmpo**\
-`Both Giannis and Kevin Porter Jr. are "pretty close" to a return, according to Doc Rivers. What exactly that means is unclear.`\
-https://nytimes.com/athletic/6835952/2025/11/25/blazers-bucks-giannis-injury-nba/
-
-**CFP odds: Which teams have the best chances of getting in?**\
-`After a week with no upsets among the top 14 teams, the College Football Playoff race remains mostly the same. What teams still need help?`\
-https://nytimes.com/athletic/6834346/2025/11/25/college-football-playoff-odds-oregon-byu/
-
-**Kane says 'very unlikely' he leaves Bayern this summer**\
-`"I’m sure I’ll have talks with Bayern in the next few months, then we’ll see what’s best for the future,” Kane told Bild.`\
-https://nytimes.com/athletic/6836361/2025/11/25/harry-kane-contract-bayern-future-barcelona/
 
