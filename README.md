@@ -1,3 +1,7 @@
+**Quincy Wilson commits to Maryland on heels of Olympic gold medal**\
+`Wilson chose Maryland over finalists South Carolina, USC, Texas A&M and UCLA.`\
+https://nytimes.com/athletic/6836317/2025/11/25/quincy-wilson-maryland-olympics-track/
+
 **The Collector's Mindset**\
 `Collecting is more than a hobby, it’s closer to sport for the most elite. And for every collector there is a story, a piece, a moment that started their craze to get the rarest and most illustrious items.
 `\
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6835853/2025/11/25/eberechi-eze-shooting-arsenal/
 **Suns' Dillon Brooks irritates everyone, his former Rockets teammates included**\
 `In the midst of a career year, Brooks still brings the "invaluable" skill of the guy you love to see on the court — if he's on your team.`\
 https://nytimes.com/athletic/6835795/2025/11/25/dillon-brooks-phoenix-suns-houston-rockets-defense/
-
-**2026 NFL Mock Draft, top 10 picks: Caleb Downs to Jets, Fernando Mendoza to Browns**\
-`The Titans are in line to land the No. 1 pick for the second straight year, but they no longer need a QB. How would that impact the top 10?`\
-https://nytimes.com/athletic/6835288/2025/11/25/nfl-mock-draft-2026-ty-simpson-jeremiyah-love/
 
