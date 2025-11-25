@@ -1,3 +1,19 @@
+**Dutch Historian Accuses BBC of Censoring Trump Criticism**\
+`Rutger Bregman said his comment that President Trump was the “most openly corrupt president in American history” was removed before his lecture was broadcast on Tuesday.`\
+https://nytimes.com/2025/11/25/world/europe/uk-bbc-trump.html
+
+**Scoop City: Three stars on pace to break big records**\
+`Records Matthew Stafford, Jaxon Smith-Njigba and Myles Garrett are on pace to shatter`\
+https://nytimes.com/athletic/6837388/2025/11/25/nfl-records-jaxon-smith-njigba-myles-garrett-matthew-stafford/
+
+**NFL suspends Panthers safety Moehrig for throwing punch at Jauan Jennings**\
+`Moehrig is seen on camera swinging at Jennings late in the game and Jennings retaliated by punching Moehrig after the game ended.`\
+https://nytimes.com/athletic/6836577/2025/11/25/trevon-moehrig-panthers-suspended-jauan-jennings-49ers/
+
+**Diamond Lovers Fall for a New Palette**\
+`Jewelry collectors break tradition with earth-toned diamonds.`\
+https://nytimes.com/paidpost/de-beers/de-beers/diamond-lovers-fall-for-a-new-palette.html
+
 **How the Ukraine Peace Plan Is Evolving**\
 `President Trump’s plan for a settlement of Russia’s war in Ukraine, which alarmed the Ukrainians and Europeans, has evolved since it was first proposed last week.`\
 https://nytimes.com/video/us/politics/100000010545174/how-the-ukraine-peace-plan-is-evolving.html
