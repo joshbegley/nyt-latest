@@ -1,3 +1,7 @@
+**49ers' Jauan Jennings swings at Panthers' Tre'von Moehrig after 'cheap shot'**\
+`Tensions rose in the final few minutes of San Francisco's 20-9 win over Carolina.`\
+https://nytimes.com/athletic/6835420/2025/11/24/jauan-jennings-trevon-moehrig-49ers-panthers-altercation/
+
 **Full Time: Is Gotham a dynasty now?**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/6835408/2025/11/24/gotham-nwsl-championship-full-time/

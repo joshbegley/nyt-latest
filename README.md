@@ -1,3 +1,7 @@
+**Christian McCaffrey leads 49ers to MNF victory over Panthers: Takeaways**\
+`The 49ers running back topped 100 yards from scrimmage for the 10th time this season to make up for his quarterback's three interceptions.`\
+https://nytimes.com/athletic/6834786/2025/11/24/panthers-49ers-score-result-takeaways-mnf/
+
 **49ers' Jauan Jennings swings at Panthers' Tre'von Moehrig after 'cheap shot'**\
 `Tensions rose in the final few minutes of San Francisco's 20-9 win over Carolina.`\
 https://nytimes.com/athletic/6835420/2025/11/24/jauan-jennings-trevon-moehrig-49ers-panthers-altercation/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/24/us/cpsc-rad-power-bikes-batteries.html
 **Pistons win 13th straight game, tying franchise record**\
 `The Pistons have won 13 in a row twice before in franchise history. In both seasons, they won the NBA championship. `\
 https://nytimes.com/athletic/6835186/2025/11/24/pistons-13-wins-in-row-franchise-record-tied-2025/
-
-**Brandon Ingram leads Raptors to longest win streak since 2022**\
-`The new Raptors forward, acquired last season at the trade deadline, continues to power Toronto's hot start to the season.`\
-https://nytimes.com/athletic/6835174/2025/11/24/brandon-ingram-highlights-raptors-win-cavaliers/
 

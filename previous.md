@@ -1,3 +1,7 @@
+**49ers' Jauan Jennings swings at Panthers' Tre'von Moehrig after 'cheap shot'**\
+`Tensions rose in the final few minutes of San Francisco's 20-9 win over Carolina.`\
+https://nytimes.com/athletic/6835420/2025/11/24/jauan-jennings-trevon-moehrig-49ers-panthers-altercation/
+
 **Full Time: Is Gotham a dynasty now?**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/6835408/2025/11/24/gotham-nwsl-championship-full-time/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6835186/2025/11/24/pistons-13-wins-in-row-franchise
 **Brandon Ingram leads Raptors to longest win streak since 2022**\
 `The new Raptors forward, acquired last season at the trade deadline, continues to power Toronto's hot start to the season.`\
 https://nytimes.com/athletic/6835174/2025/11/24/brandon-ingram-highlights-raptors-win-cavaliers/
-
-**Scoop City: Risers and fallers after Week 12**\
-`The Patriots are trending down despite their ninth-straight win, while the Chiefs, Bears and long snappers are Week 12 risers`\
-https://nytimes.com/athletic/6835223/2025/11/24/week-12-risers-fallers-nfl-patriots-rams-scoop-city/
 
