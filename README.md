@@ -1,3 +1,11 @@
+**Indiana Lawmakers Are Poised to Vote on Redistricting After All**\
+`Republican leaders in the legislature backtracked and said they would vote on a new congressional map that President Trump wants, though support remained uncertain.`\
+https://nytimes.com/2025/11/25/us/indiana-redistricting-republicans.html
+
+**Oklahoma State expected to hire North Texas' Eric Morris as next head coach**\
+`After firing long time coach Mike Gundy, Oklahoma State will turn to North Texas' Eric Morris as its next head coach.`\
+https://nytimes.com/athletic/6837665/2025/11/25/oklahoma-state-eric-morris-north-texas-coach/
+
 **USMNT's McKennie scores for Juventus in Champions League vs. Bodo/Glimt**\
 `The USMNT midfielder gave his side the lead in Norway with the eighth Champions League goal of his career`\
 https://nytimes.com/athletic/6837662/2025/11/25/weston-mckennie-goal-juventus-champions-league-bodo-glimt/
@@ -25,12 +33,4 @@ https://nytimes.com/2025/11/25/nyregion/etan-patz-retrial.html
 **Submit your questions for Kevin Fishbain's Bears mailbag**\
 `The first-place Bears are 8-3, but now they take a step up in class against the defending champion Eagles. Share your questions here.`\
 https://nytimes.com/athletic/6837560/2025/11/25/bears-mailbag-questions-50/
-
-**Democrats Say F.B.I. Is Investigating Them Over Illegal Orders Video**\
-`The move came one day after the Pentagon said it was investigating Senator Mark Kelly for his participation in the video.`\
-https://nytimes.com/2025/11/25/us/politics/congress-military-video-fbi.html
-
-**Rangers bail on Juuso Pärssinen bet, plus other practice notes**\
-`Less than a year after acquiring and signing him to a two-year deal, the Rangers have placed Juuso Pärssinen on waivers.`\
-https://nytimes.com/athletic/6837235/2025/11/25/juuso-parssinen-rangers-waivers-practice/
 
