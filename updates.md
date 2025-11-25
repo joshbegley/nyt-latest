@@ -1,3 +1,11 @@
+**Inside Barcelona: Champions League morale, Garcia contract, Boateng statement**\
+`Our Barcelona writers share their latest information and news on all the big talking points at the Spanish club`\
+https://nytimes.com/athletic/6836134/2025/11/25/barcelona-raphinha-yamal-chelsea-flick-champions-league/
+
+**Fantasy football Week 13 drops: Adios, Alvin Kamara, Rashid Shaheed**\
+`Gary Davenport shares the names you should no longer bother to make room for on your fantasy football plates this holiday weekend.`\
+https://nytimes.com/athletic/6835152/2025/11/25/fantasy-football-week-13-drops-adios-alvin-kamara-rashid-shaheed/
+
 **Everton Women CEO to step down at end of season**\
 `Hannah Forshaw only officially began work at the club in September but will exit at the end of the 2025-26 campaign.`\
 https://nytimes.com/athletic/6836040/2025/11/25/everton-women-hannah-forshaw/

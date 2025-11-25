@@ -1,3 +1,11 @@
+**Inside Barcelona: Champions League morale, Garcia contract, Boateng statement**\
+`Our Barcelona writers share their latest information and news on all the big talking points at the Spanish club`\
+https://nytimes.com/athletic/6836134/2025/11/25/barcelona-raphinha-yamal-chelsea-flick-champions-league/
+
+**Fantasy football Week 13 drops: Adios, Alvin Kamara, Rashid Shaheed**\
+`Gary Davenport shares the names you should no longer bother to make room for on your fantasy football plates this holiday weekend.`\
+https://nytimes.com/athletic/6835152/2025/11/25/fantasy-football-week-13-drops-adios-alvin-kamara-rashid-shaheed/
+
 **Everton Women CEO to step down at end of season**\
 `Hannah Forshaw only officially began work at the club in September but will exit at the end of the 2025-26 campaign.`\
 https://nytimes.com/athletic/6836040/2025/11/25/everton-women-hannah-forshaw/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6836156/2025/11/25/iowa-state-vs-creighton-stream-h
 **Trump Administration Live Updates: Bondi Vows to Appeal Dismissal of Comey and James Cases**\
 ``\
 https://nytimes.com/live/2025/11/25/us/trump-news
-
-**How does a GM help turn around a small-budget Conference USA team? 'There's no blueprint'**\
-`Jose Jefferson has been on a long path from being Kurt Warner's WR in arena football to helping FIU make a bowl game as general manager.`\
-https://nytimes.com/athletic/6835966/2025/11/25/jose-jefferson-fiu-general-manager-football/
-
-**How to watch College Football Playoff rankings show: Big reveal before Rivalry Week**\
-`Rivalry Week is upon us. Tuesday's rankings will lay out what's at stake ahead of this weekend's biggest college football games. `\
-https://nytimes.com/athletic/6834623/2025/11/25/college-football-playoff-rankings-rivalry-week-how-to-watch/
 
