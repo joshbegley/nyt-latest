@@ -31,6 +31,6 @@ https://nytimes.com/2025/11/25/arts/music/amplifier-newsletter-new-songs-robyn.h
 https://nytimes.com/2025/11/25/style/miss-universe-norway-salmon-costume.html
 
 **The Disaster to Come: New York’s Next Superstorm**\
-`Heavy rain would make a hurricane catastrophic. See the neighborhoods would face the worst flooding.`\
+`Heavy rain would make a hurricane catastrophic. See the neighborhoods that could face the worst flooding.`\
 https://nytimes.com/interactive/2025/11/25/nyregion/nyc-storm-hurricane-flooding.html
 
