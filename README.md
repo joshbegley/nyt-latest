@@ -1,3 +1,11 @@
+**The Disaster to Come: New York’s Next Superstorm**\
+`Heavy rain would make a hurricane catastrophic. See the neighborhoods would face the worst flooding.`\
+https://nytimes.com/interactive/2025/11/25/nyregion/nyc-storm-hurricane-flooding.html
+
+**Bolsonaro to Start Serving 27-Year Sentence Over Coup Plot**\
+`Brazil’s Supreme Court court ordered former President Jair Bolsonaro to begin serving a prison term for conspiring to remain in power after losing the last election.`\
+https://nytimes.com/2025/11/25/world/americas/bolsonaro-arrest-prison-sentence.html
+
 **Alonso: Managing Madrid personalities 'as important as tactical work'**\
 `The Athletic reported on Monday that Vinicius Junior had told Madrid that he does not wish to sign a new contract at the club.`\
 https://nytimes.com/athletic/6835837/2025/11/25/xabi-alonso-real-madrid-vinicius/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6836768/2025/11/25/giants-pitching-coach-justin-mec
 **These Are the Elements That Define Us**\
 `A series of short films about how the elements of the periodic table shape our lives.`\
 https://nytimes.com/interactive/2025/11/25/opinion/elements-periodic-table.html
-
-**What you see in Cam Ward's rookie season depends on where you look**\
-`You wouldn't know it from the Titans' record, but Cam Ward is a wildly talented QB saddled with an unusable team. `\
-https://nytimes.com/athletic/6835168/2025/11/25/cam-ward-tennessee-titans-rookie/
-
-**Ryan Rollins, Derik Queen, and 15 other reasons to be thankful for fantasy hoops**\
-`Stan Son offers a list of fantasy basketball gratitude that includes not drafting Joel Embiid and Jalen Duren's breakout. `\
-https://nytimes.com/athletic/6836597/2025/11/25/fantasy-basketball-ryan-rollins-derik-queen/
 
