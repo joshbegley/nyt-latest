@@ -1,3 +1,19 @@
+**With draw pots set, what are USMNT's best, worst and most interesting World Cup groups?**\
+`We can now fully assess all the possibilities for what the U.S.'s World Cup group could look like next summer. Buckle up`\
+https://nytimes.com/athletic/6837167/2025/11/25/usmnt-2026-world-cup-draw-group-scenarios/
+
+**Betting for (by) dummies: Michigan, Lions and Eagles among a feast of bets**\
+`Before stuffing their faces with food, Jon Greenberg and Zac Jackson stuffed their faces with bets.`\
+https://nytimes.com/athletic/6837774/2025/11/25/betting-for-by-dummies-michigan-lions-eagles/
+
+**Bills sign veteran Brandin Cooks to bolster wide receiver room**\
+`Cooks was most recently with the Saints before the two sides parted ways. Buffalo may look to Cooks to challenge defenses vertically.`\
+https://nytimes.com/athletic/6837978/2025/11/25/brandin-cooks-signed-bills-veteran-wide-receiver/
+
+**Warriors' Jonathan Kuminga to join 5-on-5 scrimmage, return still unclear**\
+`Warriors coach Steve Kerr sounds optimistic Jonathan Kuminga's return could be imminent.`\
+https://nytimes.com/athletic/6837942/2025/11/25/kuminga-injury-status-return-5-on-5-kerr/
+
 **Warriors' Jonathan Kuminga joins 5-on-5 practice, return still unclear**\
 `Warriors coach Steve Kerr sounds optimistic Jonathan Kuminga's return could be imminent.`\
 https://nytimes.com/athletic/6837942/2025/11/25/kuminga-injury-status-return-5-on-5-kerr/
