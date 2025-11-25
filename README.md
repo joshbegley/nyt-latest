@@ -1,5 +1,9 @@
+**Jewish Leaders Rebuke Mamdani Over Response to Synagogue Protest**\
+`The mayor-elect chastised a synagogue that hosted an event promoting migration to Israel and occupied settlements. His spokeswoman said the gathering promoted “activities in violation of international law.”`\
+https://nytimes.com/2025/11/24/nyregion/mamdani-synagogue-protest.html
+
 **Padres to hire veteran coach Randy Knorr, former outfielder Steven Souza Jr.: Sources**\
-`Souza, a co-owner of a baseball training academy in the Seattle area, spent this past season back in the Rays’ organization as an advisor.`\
+`Souza, a co-owner of a baseball training academy in the Seattle area, spent last season back in the Rays’ organization as an advisor.`\
 https://nytimes.com/athletic/6835016/2025/11/24/san-diego-padres-coaching-hires-steven-souza-jr/
 
 **Trump Orders Construction of A.I. Platform to Use Troves of Government Data for Research**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6834944/2025/11/24/virginia-tech-vs-virginia-stream
 **How to watch Northwestern vs. Illinois: Time, TV, streaming**\
 `Find out how to watch the Northwestern Wildcats play the Illinois Fighting Illini, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6834937/2025/11/24/northwestern-vs-illinois-stream-how-to-watch-nov-29/
-
-**How to watch Alabama vs. Auburn: Time, TV, streaming**\
-`Find out how to watch the Alabama Crimson Tide play the Auburn Tigers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6834938/2025/11/24/alabama-vs-auburn-stream-how-to-watch-nov-29/
 

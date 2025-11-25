@@ -1,3 +1,7 @@
+**Padres to hire veteran coach Randy Knorr, former outfielder Steven Souza Jr.: Sources**\
+`Souza, a co-owner of a baseball training academy in the Seattle area, spent this past season back in the Rays’ organization as an advisor.`\
+https://nytimes.com/athletic/6835016/2025/11/24/san-diego-padres-coaching-hires-steven-souza-jr/
+
 **Trump Orders Construction of A.I. Platform to Use Troves of Government Data for Research**\
 `The executive order signed on Monday directs the Department of Energy’s national laboratories to create the A.I. platform in partnership with A.I. companies.`\
 https://nytimes.com/2025/11/24/us/politics/trump-ai-executive-order.html
