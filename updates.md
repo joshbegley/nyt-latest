@@ -1,3 +1,15 @@
+**Brandon Ingram leads Raptors to longest win streak since 2022**\
+`Ingram scored a season-high 37 points as the Raptors won their eighth game in a row, 110-99 over the Cleveland Cavaliers.`\
+https://nytimes.com/athletic/6835174/2025/11/24/brandon-ingram-highlights-raptors-win-cavaliers/
+
+**Scoop City: Risers and fallers after Week 12**\
+`The Patriots are trending down despite their ninth-straight win, while the Chiefs, Bears and long snappers are Week 12 risers`\
+https://nytimes.com/athletic/6835223/2025/11/24/week-12-risers-fallers-nfl-patriots-rams-scoop-city/
+
+**Jewish Leaders Rebuke Mamdani Over Response to Synagogue Protest**\
+`The mayor-elect chastised a synagogue that hosted an event promoting migration to Israel and occupied settlements. His stance further tested his strained relationship with pro-Israel Jews.`\
+https://nytimes.com/2025/11/24/nyregion/mamdani-synagogue-protest.html
+
 **Hunting for a repeat, Shohei Ohtani will represent Japan again in 2026 WBC**\
 `The four-time MVP has won two World Series titles and three MVP awards since he last donned Japan’s uniform in 2023. `\
 https://nytimes.com/athletic/6835155/2025/11/24/shohei-ohtani-team-japan-world-baseball-classic/

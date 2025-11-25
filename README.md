@@ -1,3 +1,7 @@
+**Pistons win 13th straight game, tying franchise record**\
+`The Pistons had won 13 in a row twice before in franchise history. In both seasons, they won the NBA championship. `\
+https://nytimes.com/athletic/6835186/2025/11/24/pistons-13-wins-in-row-franchise-record-tied-2025/
+
 **Brandon Ingram leads Raptors to longest win streak since 2022**\
 `Ingram scored a season-high 37 points as the Raptors won their eighth game in a row, 110-99 over the Cleveland Cavaliers.`\
 https://nytimes.com/athletic/6835174/2025/11/24/brandon-ingram-highlights-raptors-win-cavaliers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6835016/2025/11/24/san-diego-padres-coaching-hires-
 **Trump Orders Construction of A.I. Platform to Use Troves of Government Data for Research**\
 `The executive order signed on Monday directs the Department of Energy’s national laboratories to create the A.I. platform in partnership with A.I. companies.`\
 https://nytimes.com/2025/11/24/us/politics/trump-ai-executive-order.html
-
-**How to watch North Carolina vs. North Carolina State: Time, TV, streaming**\
-`Find out how to watch the North Carolina Tar Heels play the North Carolina State Wolfpack, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6834962/2025/11/24/how-to-watch-north-carolina-vs-north-carolina-state-tv-channel-and-streaming-options-for-november-29/
 
