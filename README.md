@@ -1,3 +1,7 @@
+**Boeing Tackles Quality With a ‘War on Defects’**\
+`Two years after a panel flew off a 737 Max, Boeing is doing more inspections, completing work in its intended order and making other changes. Can the company keep it up?`\
+https://nytimes.com/2025/11/25/business/boeing-737-max-factory.html
+
 **Jimmy Kimmel Is Touched by the Trump-Mamdani Bromance**\
 `“What a turn of events!” Kimmel said of the president’s warm words for New York’s mayor-elect. “It was like he was giving a wedding toast to his new son-in-law.”`\
 https://nytimes.com/2025/11/25/arts/television/jimmy-kimmel-trump-mamdani.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/25/world/asia/taiwan-china-japan-sushi.html
 **Acclaimed Writer of Indigenous Stories Says He Is Not Cherokee**\
 `Thomas King said he felt “ripped in half” on learning he had no Indigenous ancestry. The Canadian author has dedicated his career to writing about Indigenous people.`\
 https://nytimes.com/2025/11/25/world/canada/thomas-king-indigenous.html
-
-**How to watch Notre Dame vs. Stanford: Time, TV, streaming**\
-`Find out how to watch the Notre Dame Fighting Irish play the Stanford Cardinal, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6835711/2025/11/25/notre-dame-vs-stanford-stream-how-to-watch-nov-29/
 
