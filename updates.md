@@ -1,3 +1,7 @@
+**How the Ukraine Peace Plan Is Evolving**\
+`President Trump’s plan for a settlement of Russia’s war in Ukraine, which alarmed the Ukrainians and Europeans, has evolved since it was first proposed last week.`\
+https://nytimes.com/video/us/politics/100000010545174/how-the-ukraine-peace-plan-is-evolving.html
+
 **How to watch Clippers vs. Lakers: Time, TV, streaming**\
 `Find out how to watch the Los Angeles Clippers play the Los Angeles Lakers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6837400/2025/11/25/clippers-vs-lakers-stream-how-to-watch-nov-25/
