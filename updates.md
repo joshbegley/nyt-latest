@@ -1,3 +1,11 @@
+**What will Tuesday's College Football Playoff rankings look like? Predicting the Top 25**\
+`The College Football Playoff bubble is looking crowded. How much movement will there be in Tuesday's selection committee Top 25?`\
+https://nytimes.com/athletic/6834227/2025/11/25/college-football-playoff-rankings-predictions-november-25/
+
+**Why MLB may have a tough time copying the Blue Jays, who made contact hitting cool again**\
+`“I find that it’s sort of a copycat league," one exec said. "If it works, people follow it.” But contact hitting isn't easy to replicate.`\
+https://nytimes.com/athletic/6833344/2025/11/25/blue-jays-contact-hitting-mlb/
+
 **As Trump Pushes to End Ukraine War, Europe Toils to Have a Say**\
 `Initially cut out of development of the 28-point peace plan, European leaders are now trying to recast its pro-Russian slant. So far, it seems to be working.`\
 https://nytimes.com/2025/11/25/world/europe/trump-ukraine-war-peace-plan-merz-macron-starmer.html
