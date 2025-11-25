@@ -1,3 +1,7 @@
+**Nigeria defender Fredrick set to miss AFCON through injury**\
+`Fredrick, 20, missed club side Dender's Belgian Pro League victory over Royal Antwerp on Sunday due to the injury.`\
+https://nytimes.com/athletic/6837137/2025/11/25/benjamin-fredrick-nigeria-afcon-injury/
+
 **What I'm hearing on Rutger McGroarty and other Wilkes-Barre players with NHL futures**\
 `Rutger McGroarty will be back in Pittsburgh sooner rather than later. When he returns, the Penguins are expecting big things. `\
 https://nytimes.com/athletic/6836624/2025/11/25/penguins-what-im-hearing-rutger-mcgroarty/

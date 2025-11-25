@@ -1,3 +1,7 @@
+**Minority Alawites Protest in Syria After Sectarian Attacks**\
+`The demonstrations followed unrest over the weekend in Homs, Syria’s third-largest city, which set off reprisal attacks on Alawites, a community once favored by the ousted Assad regime.`\
+https://nytimes.com/2025/11/25/world/europe/syria-alawites-protest.html
+
 **Nigeria defender Fredrick set to miss AFCON through injury**\
 `Fredrick, 20, missed club side Dender's Belgian Pro League victory over Royal Antwerp on Sunday due to the injury.`\
 https://nytimes.com/athletic/6837137/2025/11/25/benjamin-fredrick-nigeria-afcon-injury/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/11/25/dining/f1-las-vegas-bellagio-hotel-fountain-club.
 **Super Bowl odds: 2 teams are clearly at the top followed by a logjam**\
 `The Los Angeles Rams have overtaken the Philadelphia Eagles as the favorite to win the Super Bowl.`\
 https://nytimes.com/athletic/6836952/2025/11/25/super-bowl-odds-rams-eagles/
-
-**8 New Songs You Should Hear Now**\
-`Catch up on recent releases from Robyn, Oneohtrix Point Never, Mavis Staples and more.`\
-https://nytimes.com/2025/11/25/arts/music/amplifier-newsletter-new-songs-robyn.html
 
