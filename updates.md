@@ -1,3 +1,7 @@
+**'We gotta figure it out': The Bucks are sliding without Giannis Antetokounmpo**\
+`Both Giannis and Kevin Porter Jr. are "pretty close" to a return, according to Doc Rivers. What exactly that means is unclear.`\
+https://nytimes.com/athletic/6835952/2025/11/25/blazers-bucks-giannis-injury-nba/
+
 **Explained: Why FIFA's 2026 World Cup draw is at the heart of a political controversy**\
 `How much FIFA has paid to host the 2026 World Cup draw at the Washington, D.C. performing arts venue is under scrutiny`\
 https://nytimes.com/athletic/6835424/2025/11/25/world-cup-draw-kennedy-center-controversy-fifa-washington-dc/
