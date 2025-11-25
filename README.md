@@ -1,3 +1,11 @@
+**A Volcano in Ethiopia Spews Ash Into Asia, Disrupting Flights**\
+`The ash cloud drifted over northern India, causing some flight delays and cancellations, and continued toward China.`\
+https://nytimes.com/2025/11/25/world/africa/ethiopia-volcano-hayli-gubbi.html
+
+**Tatiana Schlossberg’s Profile in Courage**\
+`Readers express sorrow about her cancer and dismay at her cousin’s actions as health secretary. Also: Revenge prosecutions; Mark Kelly; donors to universities.`\
+https://nytimes.com/2025/11/25/opinion/tatiana-schlossberg.html
+
 **Brock Purdy shriveled Monday night. The 49ers need him to bounce back in a hurry**\
 `Three first-half interceptions turned Purdy into a dink-and-dunker for the rest of the game. The 49ers need the good Purdy back pronto.`\
 https://nytimes.com/athletic/6836642/2025/11/25/brock-purdy-49ers-panthers-monday-night-football/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6809592/2025/11/25/cristiano-ronaldo-world-cup-ban-
 **How Much Will Thanksgiving Dinner Cost? It Depends on Whom You Ask.**\
 `As Americans become increasingly concerned about affordability, there’s scrutiny on the annual meal.`\
 https://nytimes.com/2025/11/25/business/thanksgiving-dinner-cost-turkey-meal-expensive.html
-
-**Even the U.K. Prime Minister Can’t Resist ‘6-7’**\
-`Prime Minister Keir Starmer egged on first graders doing the viral gesture, then apologized when told the school prohibited it. “I didn’t start it, Miss,” he said.`\
-https://nytimes.com/2025/11/25/world/europe/keir-starmer-6-7-school-uk.html
-
-**Red Sox to bolster rotation with trade for Cardinals' Sonny Gray: Sources**\
-`Boston stated a desire to improve the rotation behind ace Garrett Crochet and addressed that with Gray.`\
-https://nytimes.com/athletic/6826751/2025/11/25/sonny-gray-trade-cardinals-red-sox-mlb-news/
 
