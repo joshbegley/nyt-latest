@@ -1,3 +1,7 @@
+**Submit questions for our next Yankees mailbags**\
+`With transactions expected to pick up with the Winter Meetings coming soon, what questions do you have about the Yankees? Submit them here. `\
+https://nytimes.com/athletic/6836088/2025/11/25/yankees-offseason-reader-questions/
+
 **The Fed and Big Tech Lift Investors’ Spirits**\
 `Markets appear to be hoping again that the central bank will cut rates next month, and that the artificial intelligence boom has room to run.`\
 https://nytimes.com/2025/11/25/business/dealbook/fed-big-tech-market-rally.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6834678/2025/11/25/rosario-central-argentina-campeo
 **Lane Kiffin could soon be the $14 million man. Is he worth it?**\
 `Kiffin's only championship rings as a head coach were won in Conference USA. He soon could be the highest-paid coach in college football.`\
 https://nytimes.com/athletic/6831101/2025/11/25/lane-kiffin-ole-miss-lsu-florida-14-million/
-
-**Kenneth Walker III is finally RB1 again. Can he steady Seahawks' run game?**\
-`Walker played his largest share of the snaps all season on Sunday, and the increased workload is expected to continue.`\
-https://nytimes.com/athletic/6834705/2025/11/25/kenneth-walker-zach-charbonnet-seahawks-run-game/
 
