@@ -1,3 +1,27 @@
+**How to watch Clippers vs. Lakers: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Clippers play the Los Angeles Lakers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6837400/2025/11/25/clippers-vs-lakers-stream-how-to-watch-nov-25/
+
+**How to watch Magic vs. 76ers: Time, TV, streaming**\
+`Find out how to watch the Orlando Magic play the Philadelphia 76ers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6837398/2025/11/25/magic-vs-76ers-stream-how-to-watch-nov-25/
+
+**How to watch Stars vs. Oilers: Time, TV, streaming**\
+`Find out how to watch the Dallas Stars play the Edmonton Oilers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6837396/2025/11/25/stars-vs-oilers-stream-how-to-watch-nov-25/
+
+**Why FIFA reducing Cristiano Ronaldo's ban should surprise nobody**\
+`As we were reminded on Monday, the Portugal forward is still the most famous footballer in the world, and that carries significant currency`\
+https://nytimes.com/athletic/6837146/2025/11/25/cristiano-ronaldo-world-cup-red-card/
+
+**Fantasy football market share report: Devin Neal, Andrei Iosivas eye Week 13 opportunities**\
+`Michael Salfino analyzes the touches and targets distribution for Week 12, and likes the upside for a couple injury replacements in Week 13.`\
+https://nytimes.com/athletic/6837062/2025/11/25/fantasy-football-market-share-week-12-touches-targets-neal-iosivas/
+
+**Dereck Lively experiencing 'swelling and discomfort' in surgically repaired foot**\
+`The 21-year-old Mavericks center has missed significant time in his career due to foot and knee injuries. `\
+https://nytimes.com/athletic/6837371/2025/11/25/dereck-lively-injury-mavericks-foot-status/
+
 **How to watch Jaguars vs. Titans: Time, TV, streaming**\
 `Find out how to watch the Jacksonville Jaguars play the Tennessee Titans, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6837360/2025/11/25/jaguars-vs-titans-stream-how-to-watch-nov-30/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6837352/2025/11/25/rams-vs-panthers-stream-how-to-w
 **How to watch Texans vs. Colts: Time, TV, streaming**\
 `Find out how to watch the Houston Texans play the Indianapolis Colts, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6837348/2025/11/25/texans-vs-colts-stream-how-to-watch-nov-30/
-
-**How to watch Tennessee Tech vs. USC women's basketball: Time, TV, streaming**\
-`Find out how to watch the Tennessee Tech Golden Eagles play the USC Trojans, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6837344/2025/11/25/tennessee-tech-vs-usc-stream-how-to-watch-nov-25/
-
-**How to watch Maryland vs. Gonzaga men's basketball: Time, TV, streaming**\
-`Find out how to watch the Maryland Terrapins play the Gonzaga Bulldogs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6837340/2025/11/25/maryland-vs-gonzaga-stream-how-to-watch-nov-25/
-
-**How to watch Falcons vs. Jets: Time, TV, streaming**\
-`Find out how to watch the Atlanta Falcons play the New York Jets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6837338/2025/11/25/falcons-vs-jets-stream-how-to-watch-nov-30/
-
-**How to watch UCLA vs. Cal men's basketball: Time, TV, streaming**\
-`Find out how to watch the UCLA Bruins play the California Golden Bears, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6837336/2025/11/25/ucla-vs-cal-stream-how-to-watch-nov-25/
-
-**How to watch Southern vs. Washington women's basketball: Time, TV, streaming**\
-`Find out how to watch the Southern Jaguars play the Washington Huskies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6837333/2025/11/25/southern-vs-washington-stream-how-to-watch-nov-25/
-
-**How to watch Michigan vs. Auburn men's basketball: Time, TV, streaming**\
-`Find out how to watch the Michigan Wolverines play the Auburn Tigers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6837331/2025/11/25/michigan-vs-auburn-stream-how-to-watch-nov-25/
 
