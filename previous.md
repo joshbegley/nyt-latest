@@ -1,3 +1,11 @@
+**Four More Arrested in Connection With Louvre Heist**\
+`A Paris prosecutor said two men and two women were arrested as part of an investigation into the robbery at the museum.`\
+https://nytimes.com/2025/11/25/world/europe/four-new-arrests-louvre-heist.html
+
+**Ask a Journalist: Photographing What’s Interesting About Your Hometown**\
+`The Times photographer James Estrin joins us in December to chat with teenagers about using a camera to explore the place where you live. Post your comments and questions for him by Dec. 12.`\
+https://nytimes.com/2025/11/25/learning/lesson-plans/ask-a-journalist-photographing-whats-interesting-about-your-hometown.html
+
 **Kelly's attorneys press LSU for clarity on coach's firing in letters**\
 `Kelly would withdraw his lawsuit once LSU confirms he was fired without cause and meets 'its contractual obligations,' his attorneys said.`\
 https://nytimes.com/athletic/6836536/2025/11/25/brian-kelly-lsu-lawsuit-firing-cause/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/25/business/binance-hamas-terrorism.html
 **Goan Curry Shrimp, Sweet and Sour Eggplant and One-Pot Chicken and Rice**\
 `Saucy, punchy flavors before the potatoes hit on Thursday.`\
 https://nytimes.com/2025/11/25/dining/goan-curry-shrimp-sweet-and-sour-eggplant-and-one-pot-chicken-and-rice.html
-
-**Seal Milk Is the Cream of the Molecular Crop**\
-`You won’t be drinking it any time soon, but the aquatic mammal’s milk is much more chemically complex than that of other mammals, including humans.`\
-https://nytimes.com/2025/11/25/science/seal-milk.html
-
-**Mick Schumacher to join IndyCar in 2026 with David Letterman co-owned team**\
-`Schumacher becomes the latest former F1 driver to join America's biggest open-wheel racing series`\
-https://nytimes.com/athletic/6836498/2025/11/25/mick-schumacher-indycar-2026-letterman-rahal/
 
