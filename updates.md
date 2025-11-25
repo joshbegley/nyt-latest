@@ -1,3 +1,11 @@
+**How Rubio Tried to Bring a Pro-Russia Peace Plan to Middle Ground**\
+`While President Trump attacked the Ukrainians, Secretary of State Marco Rubio flew to Geneva to seize control of negotiations that were going off the rails.`\
+https://nytimes.com/2025/11/24/us/politics/trump-russia-ukraine-peace-plan-middle-ground.html
+
+**‘Find a Job,’ Ontario Premier Tells Protester While Passing a New Housing Law**\
+`During a raucous hearing, the Ontario legislature passed a bill backed by Premier Doug Ford meant to expedite housing development and the eviction of tenants who are behind on their rent.`\
+https://nytimes.com/2025/11/24/world/canada/doug-ford-ontario-housing-bill-60.html
+
 **‘Find a Job,’ Ontario Premier Tells Protester While Passing a New Housing Law**\
 `During a raucous hearing, the Ontario legislature passed a bill meant to expedite housing development and the eviction of tenants who are behind on their rent.`\
 https://nytimes.com/2025/11/24/world/canada/doug-ford-ontario-housing-bill-60.html
