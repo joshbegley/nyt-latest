@@ -1,3 +1,11 @@
+**Thanksgiving Costs Draw Scrutiny**\
+`Also, the 100 most notable books of the year. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2025/11/25/briefing/thanksgiving-costs-draw-scrutiny.html
+
+**Those saying Joe Burrow should sit don't understand what got him here: Dehner Jr.**\
+`Cincinnati's quarterback will start on Thursday against the division-rival Baltimore Ravens after rehabbing his injured toe.`\
+https://nytimes.com/athletic/6837926/2025/11/25/joe-burrow-return-from-injury-bengals-ravens/
+
 **The ‘Wild Card’ in the Comey and James Cases: Will Judges Pick the Next Prosecutor?**\
 `The dismissal of indictments that President Trump sought against his perceived foes opens the door for federal judges to pick a new U.S. attorney to replace a Trump loyalist.`\
 https://nytimes.com/2025/11/25/us/politics/comey-james-cases-next-steps.html
