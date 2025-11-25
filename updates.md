@@ -1,3 +1,7 @@
+**Rafael Nadal's tennis and life after an era-defining rivalry: 'We never had time to relax'**\
+`Nadal's life after tennis did not see him pick up a racket until a year post-retirement. But he has plenty of opinions about its new stars.`\
+https://nytimes.com/athletic/6598134/2025/11/25/rafael-nadal-tennis-retirement-big-three-rivalry/
+
 **Boeing Tackles Quality With a ‘War on Defects’**\
 `Two years after a panel flew off a 737 Max, Boeing is doing more inspections, completing work in its intended order and making other changes. Can the company keep it up?`\
 https://nytimes.com/2025/11/25/business/boeing-737-max-factory.html
