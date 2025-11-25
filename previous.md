@@ -1,3 +1,7 @@
+**100 Notable Books Are a Lot! Help Me Find One I’ll Love.**\
+`We’ve broken down our annual list by theme.`\
+https://nytimes.com/interactive/2025/11/24/books/book-recommendations-notables.html
+
 **Post at Sea**\
 `Try not to spiral as you solve John Ewbank’s puzzle.`\
 https://nytimes.com/2025/11/24/crosswords/daily-puzzle-2025-11-25.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/24/world/canada/doug-ford-ontario-housing-bill-60.ht
 **Hunting for a repeat, Shohei Ohtani will represent Japan again in 2026 WBC**\
 `The four-time MVP has won two World Series titles and three MVP awards since he last donned Japan’s uniform in 2023. `\
 https://nytimes.com/athletic/6835155/2025/11/24/shohei-ohtani-team-japan-world-baseball-classic/
-
-**Jewish Leaders Rebuke Mamdani Over Response to Synagogue Protest**\
-`The mayor-elect chastised a synagogue that hosted an event promoting migration to Israel and settlements in occupied territories. His stance further tested his strained relationship with pro-Israel Jews.`\
-https://nytimes.com/2025/11/24/nyregion/mamdani-synagogue-protest.html
 

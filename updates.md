@@ -1,3 +1,7 @@
+**100 Notable Books Are a Lot! Help Me Find One I’ll Love.**\
+`We’ve broken down our annual list by theme.`\
+https://nytimes.com/interactive/2025/11/24/books/book-recommendations-notables.html
+
 **Post at Sea**\
 `Try not to spiral as you solve John Ewbank’s puzzle.`\
 https://nytimes.com/2025/11/24/crosswords/daily-puzzle-2025-11-25.html
