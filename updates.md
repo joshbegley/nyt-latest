@@ -1,3 +1,7 @@
+**Submit questions for our next Yankees mailbags**\
+`With transactions expected to pick up with the Winter Meetings coming soon, what questions do you have about the Yankees? Submit them here. `\
+https://nytimes.com/athletic/6836088/2025/11/25/yankees-offseason-reader-questions/
+
 **The Fed and Big Tech Lift Investors’ Spirits**\
 `Markets appear to be hoping again that the central bank will cut rates next month, and that the artificial intelligence boom has room to run.`\
 https://nytimes.com/2025/11/25/business/dealbook/fed-big-tech-market-rally.html
