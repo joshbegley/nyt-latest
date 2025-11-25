@@ -1,3 +1,7 @@
+**What I'm hearing on Rutger McGroarty and other Wilkes-Barre players with NHL futures**\
+`Rutger McGroarty will be back in Pittsburgh sooner rather than later. When he returns, the Penguins are expecting big things. `\
+https://nytimes.com/athletic/6836624/2025/11/25/penguins-what-im-hearing-rutger-mcgroarty/
+
 **Critical fantasy football insights for Week 13: The rise of John Metchie, Jayden Higgins**\
 `Brandon Funston and Jess Bryant look at usage metrics to give actionable Week 13 fantasy football advice. `\
 https://nytimes.com/athletic/6833778/2025/11/25/critical-fantasy-football-insights-usage-week-13/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/11/25/arts/music/amplifier-newsletter-new-songs-robyn.h
 **At Miss Universe, a Salmon Costume Steals the Show**\
 `The designer behind Miss Norway’s wild outfit was not surprised at the attention it received. “The original plan was to make noise.”`\
 https://nytimes.com/2025/11/25/style/miss-universe-norway-salmon-costume.html
-
-**The Disaster to Come: New York’s Next Superstorm**\
-`Heavy rain would make a hurricane catastrophic. See the neighborhoods that could face the worst flooding.`\
-https://nytimes.com/interactive/2025/11/25/nyregion/nyc-storm-hurricane-flooding.html
 

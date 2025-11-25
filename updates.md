@@ -1,3 +1,7 @@
+**What I'm hearing on Rutger McGroarty and other Wilkes-Barre players with NHL futures**\
+`Rutger McGroarty will be back in Pittsburgh sooner rather than later. When he returns, the Penguins are expecting big things. `\
+https://nytimes.com/athletic/6836624/2025/11/25/penguins-what-im-hearing-rutger-mcgroarty/
+
 **Critical fantasy football insights for Week 13: The rise of John Metchie, Jayden Higgins**\
 `Brandon Funston and Jess Bryant look at usage metrics to give actionable Week 13 fantasy football advice. `\
 https://nytimes.com/athletic/6833778/2025/11/25/critical-fantasy-football-insights-usage-week-13/
