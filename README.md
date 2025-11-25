@@ -1,3 +1,7 @@
+**Critical fantasy football insights for Week 13: The rise of John Metchie, Jayden Higgins**\
+`Brandon Funston and Jess Bryant look at usage metrics to give actionable Week 13 fantasy football advice. `\
+https://nytimes.com/athletic/6833778/2025/11/25/critical-fantasy-football-insights-usage-week-13/
+
 **New York Leads Effort to Stop Plan That Could Cut Housing for 170,000**\
 `The Trump administration is pushing a new approach to America’s homeless crisis, favoring shelters and rehabilitation centers over long-term housing for people who use drugs and alcohol.`\
 https://nytimes.com/2025/11/25/nyregion/homeless-funding-grants-nyc.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/11/25/style/miss-universe-norway-salmon-costume.html
 **The Disaster to Come: New York’s Next Superstorm**\
 `Heavy rain would make a hurricane catastrophic. See the neighborhoods would face the worst flooding.`\
 https://nytimes.com/interactive/2025/11/25/nyregion/nyc-storm-hurricane-flooding.html
-
-**Bolsonaro to Start Serving 27-Year Sentence Over Coup Plot**\
-`Brazil’s Supreme Court court ordered former President Jair Bolsonaro to begin serving a prison term for conspiring to remain in power after losing the last election.`\
-https://nytimes.com/2025/11/25/world/americas/bolsonaro-arrest-prison-sentence.html
 

@@ -1,3 +1,7 @@
+**New York Leads Effort to Stop Plan That Could Cut Housing for 170,000**\
+`The Trump administration is pushing a new approach to America’s homeless crisis, favoring shelters and rehabilitation centers over long-term housing for people who use drugs and alcohol.`\
+https://nytimes.com/2025/11/25/nyregion/homeless-funding-grants-nyc.html
+
 **Times Analysis Finds Errors in Trump’s Supreme Court Filing That Calls for National Guard in Chicago**\
 `The Trump administration has claimed the police were slow to protect federal agents on Oct. 4, but videos and audio show that their rationale conflates hours of events involving a shooting, a protest, a car crash and a police radio call.`\
 https://nytimes.com/2025/11/25/us/trump-supreme-court-national-guard-chicago-errors.html
