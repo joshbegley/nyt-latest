@@ -1,3 +1,11 @@
+**What to watch in the NBA this week: Cup knockout scenarios take center stage**\
+`This week's Cup schedule is loaded with playoff rematches and style clashes, featuring the defending champs and the current leading scorer.`\
+https://nytimes.com/athletic/6834147/2025/11/25/nba-cup-updates-timberwolves-thunder-lakers-how-to-watch/
+
+**Jonathan Kuminga's absence continues to cast a pall over the Warriors**\
+`Steve Kerr's frustration level appears to be rising as the 23-year-old forward remains out of Golden State's lineup.`\
+https://nytimes.com/athletic/6835767/2025/11/25/warriors-where-is-jonathan-kuminga/
+
 **Georgia Tech sold its Georgia home game for $10 million. It has no regrets**\
 `Part of the reason the Yellow Jackets are doing so well this season is the money they received for moving Friday's game.`\
 https://nytimes.com/athletic/6834841/2025/11/25/georgia-tech-georgia-mercedes-benz-college-football/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6833865/2025/11/25/heisman-trophy-race-fernando-men
 **Twins roster projection 1.0: Where things stand, biggest holes to fill as offseason begins**\
 `With a roster long on left-handed-hitting outfielders and short on quality relievers, the Twins have a lot of work to do this offseason.`\
 https://nytimes.com/athletic/6834426/2025/11/25/twins-roster-projection-2025-2026-offseason/
-
-**You can't count out the Bears, but can you count on them in the last 6 games?**\
-`To make the playoffs, the Bears must win at least two more games and likely three. It could go down to the very end — at home against Lions.`\
-https://nytimes.com/athletic/6834664/2025/11/25/chicago-bears-playoff-race-caleb-williams/
-
-**Why Tyler Skaggs' iPad could trigger millions in punitive damages against Angels**\
-`In past cases in California, even limited property damages have led to large payouts, including in the O.J. Simpson civil trial.`\
-https://nytimes.com/athletic/6835372/2025/11/25/tyler-skaggs-angels-ipad-punitive-damages/
 
