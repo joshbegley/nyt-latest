@@ -1,10 +1,10 @@
-**Ronaldo avoids World Cup ban as FIFA grant Portugal captain 'probationary period'**\
+**The story behind the making of Arsenal's iconic north London derby tifo**\
+`It is already an iconic Arsenal image.`\
+https://nytimes.com/athletic/6836436/2025/11/25/arsenal-tifo-emirates-north-london-derby/
+
+**Ronaldo avoids World Cup ban as FIFA grants Portugal captain 'probationary period'**\
 `Ronaldo, 40, was sent off in Portugal's penultimate World Cup qualifier against the Republic of Ireland.`\
 https://nytimes.com/athletic/6809592/2025/11/25/cristiano-ronaldo-world-cup-ban-fifa/
-
-**The story behind Arsenal's NLD tifo: German efficiency, Hale End's role and redemption after PSG 'shower curtain'**\
-`After the disappointment of a tifo used against PSG last season, the club and fans were keen to make amends. Here's how it was done.`\
-https://nytimes.com/athletic/6836436/2025/11/25/arsenal-tifo-emirates-north-london-derby/
 
 **How Much Will Thanksgiving Dinner Cost? It Depends on Whom You Ask.**\
 `As Americans become increasingly concerned about affordability, there’s scrutiny on the annual meal.`\
