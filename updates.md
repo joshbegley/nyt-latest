@@ -1,3 +1,15 @@
+**The Bounce: Anybody else worth tanking for? Plus, who's fattening up on soft schedules**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/6836221/2025/11/25/aj-dybantsa-nba-draft-pistons-the-bounce/
+
+**Taricco to quit role at K League champions after ban for alleged racism**\
+`The Argentine received a five-match ban and was fined 20 million won ($13,646) for allegedly making a racist gesture during a K League game.`\
+https://nytimes.com/athletic/6836306/2025/11/25/mauricio-taricco-ban-racism-jeonbuk-hyundai-motors/
+
+**Quincy Wilson commits to Maryland on heels of Olympic gold medal**\
+`Wilson chose Maryland over finalists South Carolina, USC, Texas A&M and UCLA.`\
+https://nytimes.com/athletic/6836317/2025/11/25/quincy-wilson-maryland-olympics-track/
+
 **The Collector's Mindset**\
 `Collecting is more than a hobby, it’s closer to sport for the most elite. And for every collector there is a story, a piece, a moment that started their craze to get the rarest and most illustrious items.
 `\
