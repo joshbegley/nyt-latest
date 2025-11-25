@@ -1,3 +1,15 @@
+**Are You Smarter Than a Billionaire?**\
+`In a single week, collectors spent $2.2 billion on art at New York’s auction houses, including the $236 million Klimt portrait.`\
+https://nytimes.com/interactive/2025/11/25/arts/design/art-auction-quiz.html
+
+**Prosecutors Prepare to Try Suspect in Etan Patz Case for the Third Time**\
+`The defendant, Pedro Hernandez, was convicted in 2017 of kidnapping the 6-year-old, who disappeared in 1979 in SoHo.`\
+https://nytimes.com/2025/11/25/nyregion/etan-patz-retrial.html
+
+**Submit your questions for Kevin Fishbain's Bears mailbag**\
+`The first-place Bears are 8-3, but now they take a step up in class against the defending champion Eagles. Share your questions here.`\
+https://nytimes.com/athletic/6837560/2025/11/25/bears-mailbag-questions-50/
+
 **Democrats Say F.B.I. Is Investigating Them Over Illegal Orders Video**\
 `The move came one day after the Pentagon said it was investigating Senator Mark Kelly for his participation in the video.`\
 https://nytimes.com/2025/11/25/us/politics/congress-military-video-fbi.html
@@ -21,20 +33,4 @@ https://nytimes.com/athletic/6837364/2025/11/25/matt-jackson-wolves-technical-di
 **Tracking Freezing Temperatures Across Europe**\
 `See detailed maps of the latest temperature forecasts across Europe.`\
 https://nytimes.com/interactive/2025/world/europe/europe-cold-map-tracker.html
-
-**Tracking Freezing Temperatures Across Canada**\
-`See detailed maps of the latest temperature forecasts across Canada.`\
-https://nytimes.com/interactive/2025/world/canada/canada-cold-map-tracker.html
-
-**Tracking Freezing Temperatures Across the World**\
-`See detailed maps of the latest temperature forecasts across the world.`\
-https://nytimes.com/interactive/2025/world/global-cold-map-tracker.html
-
-**Dutch Historian Accuses BBC of Censoring Trump Criticism**\
-`Rutger Bregman said his comment that President Trump was the “most openly corrupt president in American history” was removed before his lecture was broadcast on Tuesday.`\
-https://nytimes.com/2025/11/25/world/europe/uk-bbc-trump.html
-
-**Scoop City: Three stars on pace to break big records**\
-`Records Matthew Stafford, Jaxon Smith-Njigba and Myles Garrett are on pace to shatter`\
-https://nytimes.com/athletic/6837388/2025/11/25/nfl-records-jaxon-smith-njigba-myles-garrett-matthew-stafford/
 
