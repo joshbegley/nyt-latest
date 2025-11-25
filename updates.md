@@ -1,3 +1,15 @@
+**'We gotta figure it out': The Bucks are sliding without Giannis Antetokounmpo**\
+`Both Giannis and Kevin Porter Jr. are "pretty close" to a return according to Doc Rivers. What exactly that means is unclear.`\
+https://nytimes.com/athletic/6835952/2025/11/25/blazers-bucks-giannis-injury-nba/
+
+**CFP odds: Which teams have the best chances of getting in?**\
+`After a week with no upsets among the top 14 teams, the College Football Playoff race remains mostly the same. What teams still need help?`\
+https://nytimes.com/athletic/6834346/2025/11/25/college-football-playoff-odds-oregon-byu/
+
+**Kane says 'very unlikely' he leaves Bayern this summer**\
+`"I’m sure I’ll have talks with Bayern in the next few months, then we’ll see what’s best for the future,” Kane told Bild.`\
+https://nytimes.com/athletic/6836361/2025/11/25/harry-kane-contract-bayern-future-barcelona/
+
 **The Bounce: Anybody else worth tanking for? Plus, who's fattening up on soft schedules**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/6836221/2025/11/25/aj-dybantsa-nba-draft-pistons-the-bounce/
