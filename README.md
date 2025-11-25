@@ -1,3 +1,7 @@
+**China and Japan, With Trump in the Middle, Stoke an Existential Showdown**\
+`With Japan’s new leader refusing to back down from China’s show of force and claims on Taiwan, Xi Jinping picks up the phone to try to pry the U.S.-Japan alliance apart.`\
+https://nytimes.com/2025/11/25/world/asia/japan-takaichi-trump-china-xi.html
+
 **Why Raiders' Chip Kelly era should signal a stop to pipeline of college-to-NFL coaches**\
 `Predictable play calling combined with a bad offensive line and a lack of talent at receiver has been disastrous for the Raiders.`\
 https://nytimes.com/athletic/6832852/2025/11/25/chip-kelly-raiders-fired-offense-film-review/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6835276/2025/11/25/red-wings-defense-hamonic-fight-
 **Who is Max Brosmer? Why the Vikings' possible starter vs. Seahawks has felt inevitable**\
 `The Vikings were impressed this summer with the play of the undrafted rookie out of Minnesota. Now, he could get his first NFL start.`\
 https://nytimes.com/athletic/6834625/2025/11/25/max-brosmer-vikings-jj-mccarthy-injury/
-
-**Trump’s Retribution Campaign Hits a Major Roadblock, and Health Care Costs Set to Surge**\
-`Plus, what a social media break can do for your brain.`\
-https://nytimes.com/2025/11/25/podcasts/the-headlines/trump-comey-james-health-care-costs.html
 
