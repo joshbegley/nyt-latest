@@ -1,3 +1,23 @@
+**Continuity was supposed to help Timberwolves. So why do they keep collapsing?**\
+`Minnesota followed Friday's faceplant against Phoenix by losing in overtime to the Kings. The team doesn't look comfortable. `\
+https://nytimes.com/athletic/6835541/2025/11/25/timberwolves-losses-anthony-edwards-julius-randle-kings/
+
+**Would you rather be the football coach at Florida or Florida State?**\
+`Florida is looking for a new football coach, and Florida State's Mike Norvell will be on the hot seat entering 2026. What's the better gig?`\
+https://nytimes.com/athletic/6833766/2025/11/25/florida-fsu-rivalry-coaching-job-norvell/
+
+**Are Schools a Problem?**\
+`We look into the mental health crisis affecting American youth.`\
+https://nytimes.com/2025/11/25/briefing/are-schools-a-problem.html
+
+**What to watch in the NBA this week: Cup knockout scenarios take center stage**\
+`This week's Cup schedule is loaded with playoff rematches and style clashes, featuring the defending champs and the current leading scorer.`\
+https://nytimes.com/athletic/6834147/2025/11/25/nba-cup-updates-timberwolves-thunder-lakers-how-to-watch/
+
+**Jonathan Kuminga's absence continues to cast a pall over the Warriors**\
+`Steve Kerr's frustration level appears to be rising as the 23-year-old forward remains out of Golden State's lineup.`\
+https://nytimes.com/athletic/6835767/2025/11/25/warriors-where-is-jonathan-kuminga/
+
 **Georgia Tech sold its Georgia home game for $10 million. It has no regrets**\
 `Part of the reason the Yellow Jackets are doing so well this season is the money they received for moving Friday's game.`\
 https://nytimes.com/athletic/6834841/2025/11/25/georgia-tech-georgia-mercedes-benz-college-football/
