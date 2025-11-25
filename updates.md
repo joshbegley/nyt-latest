@@ -1,3 +1,15 @@
+**Yann Gueho: Man charged with attempted murder of former Chelsea and France prodigy**\
+`The former football youth talent has remained in intensive care since the incident which took place across November 9-10.`\
+https://nytimes.com/athletic/6833853/2025/11/25/yann-gueho-attempted-murder-charge/
+
+**Word of the Day: esoteric**\
+`This word has appeared in 157 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/11/25/learning/word-of-the-day-esoteric.html
+
+**Thanksgiving Hot Takes**\
+`What are your most provocative opinions about the holiday?`\
+https://nytimes.com/2025/11/25/learning/thanksgiving-hot-takes.html
+
 **How Everton endured a ridiculous red card and a night of 'suffering' to make history**\
 `A combination of resilience, ruthlessness and unrelenting hard work gave David Moyes' side a famous win at Manchester United`\
 https://nytimes.com/athletic/6835039/2025/11/25/everton-gueye-red-card-manchester-united/

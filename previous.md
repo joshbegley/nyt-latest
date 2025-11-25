@@ -1,3 +1,15 @@
+**Yann Gueho: Man charged with attempted murder of former Chelsea and France prodigy**\
+`The former football youth talent has remained in intensive care since the incident which took place across November 9-10.`\
+https://nytimes.com/athletic/6833853/2025/11/25/yann-gueho-attempted-murder-charge/
+
+**Word of the Day: esoteric**\
+`This word has appeared in 157 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/11/25/learning/word-of-the-day-esoteric.html
+
+**Thanksgiving Hot Takes**\
+`What are your most provocative opinions about the holiday?`\
+https://nytimes.com/2025/11/25/learning/thanksgiving-hot-takes.html
+
 **How Everton endured a ridiculous red card and a night of 'suffering' to make history**\
 `A combination of resilience, ruthlessness and unrelenting hard work gave David Moyes' side a famous win at Manchester United`\
 https://nytimes.com/athletic/6835039/2025/11/25/everton-gueye-red-card-manchester-united/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6766470/2025/11/25/brighton-premier-league-loan-pla
 **Barnes and Eze brilliance only underline the depth of England's attacking talent**\
 `Harvey Barnes was the hero for Newcastle against Manchester City. But he has one England cap, which shows the talent available to Tuchel`\
 https://nytimes.com/athletic/6833312/2025/11/25/barnes-eze-england-tuchel-world-cup/
-
-**Auston Trusty interview: 'Everything right now is aligning for me'**\
-`After struggling at the start of the season, the 27-year-old defender is finding fitness and form for the USMNT and Celtic`\
-https://nytimes.com/athletic/6828546/2025/11/25/auston-trusty-interview-usmnt-celtic-world-cup/
-
-**How we will be watching football in 2035**\
-`Six predictions for the how viewing football will change — from gaming-style presentation to smart glasses`\
-https://nytimes.com/athletic/6815096/2025/11/25/how-to-watch-football-tv-future/
-
-**Nikola Jokić's game-sealing, behind-the-back pass stuns his opponents**\
-`The three-time MVP sealed Denver's win over Memphis as only he can.`\
-https://nytimes.com/athletic/6835467/2025/11/25/nikola-jokic-pass-highlight-nuggets-grizzlies/
 
