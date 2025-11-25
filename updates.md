@@ -1,3 +1,15 @@
+**China and Japan, With Trump in the Middle, Stoke an Existential Showdown**\
+`With Japan’s new leader refusing to back down from China’s show of force and claims on Taiwan, Xi Jinping picks up the phone to try to pry the U.S.-Japan alliance apart.`\
+https://nytimes.com/2025/11/25/world/asia/japan-takaichi-trump-china-xi.html
+
+**Why Raiders' Chip Kelly era should signal a stop to pipeline of college-to-NFL coaches**\
+`Predictable play calling combined with a bad offensive line and a lack of talent at receiver has been disastrous for the Raiders.`\
+https://nytimes.com/athletic/6832852/2025/11/25/chip-kelly-raiders-fired-offense-film-review/
+
+**The Pulse: The tournament changing college hoops**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6833611/2025/11/25/players-era-tournament-las-vegas-the-pulse/
+
 **U.S. Air Force Searches for Fallen Reaper Drone in Yellow Sea**\
 `The MQ-9 Reaper was conducting a routine mission when it fell into the ocean on Monday near a U.S. military base in South Korea.`\
 https://nytimes.com/2025/11/25/world/asia/us-drone-crash-south-korea.html
