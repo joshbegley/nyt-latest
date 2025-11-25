@@ -11,7 +11,7 @@ https://nytimes.com/2025/11/24/us/politics/trump-russia-ukraine-peace-plan-middl
 https://nytimes.com/2025/11/24/world/canada/doug-ford-ontario-housing-bill-60.html
 
 **Hunting for a repeat, Shohei Ohtani will represent Japan again in 2026 WBC**\
-`The four-time MVP has won two World Series titles and two MVP awards since he last donned Japan’s uniform in 2023. `\
+`The four-time MVP has won two World Series titles and three MVP awards since he last donned Japan’s uniform in 2023. `\
 https://nytimes.com/athletic/6835155/2025/11/24/shohei-ohtani-team-japan-world-baseball-classic/
 
 **Jewish Leaders Rebuke Mamdani Over Response to Synagogue Protest**\

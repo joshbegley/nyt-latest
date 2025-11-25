@@ -1,3 +1,7 @@
+**'Pay close attention to what we’re building': Gotham FC celebrate NWSL trophy in NYC**\
+`Two years after their first NWSL Championship, Gotham FC finally got their confetti in downtown Manhattan.`\
+https://nytimes.com/athletic/6834608/2025/11/24/gotham-fc-nwsl-championship-nyc-celebrations/
+
 **How Rubio Tried to Bring a Pro-Russia Peace Plan to Middle Ground**\
 `While President Trump attacked the Ukrainians, Secretary of State Marco Rubio flew to Geneva to seize control of negotiations that were going off the rails.`\
 https://nytimes.com/2025/11/24/us/politics/trump-russia-ukraine-peace-plan-middle-ground.html
