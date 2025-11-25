@@ -1,3 +1,7 @@
+**Elle Duncan, ESPN to fully part ways with her move to Netflix: Sources**\
+`Duncan could still appear on other networks or platforms as part of her Netflix agreement.`\
+https://nytimes.com/athletic/6836974/2025/11/25/elle-duncan-espn-netflix/
+
 **What the Giants are hoping for from their new pitching coach, Justin Meccage**\
 `Every team wants fewer runs scored against them, and if Justin Meccage seems to make that happen regularly, he’ll be a fan favorite.`\
 https://nytimes.com/athletic/6836768/2025/11/25/giants-pitching-coach-justin-meccage/

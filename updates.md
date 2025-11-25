@@ -1,3 +1,7 @@
+**What the Giants are hoping for from their new pitching coach, Justin Meccage**\
+`Every team wants fewer runs scored against them, and if Justin Meccage seems to make that happen regularly, he’ll be a fan favorite.`\
+https://nytimes.com/athletic/6836768/2025/11/25/giants-pitching-coach-justin-meccage/
+
 **These Are the Elements That Define Us**\
 `A series of short films about how the elements of the periodic table shape our lives.`\
 https://nytimes.com/interactive/2025/11/25/opinion/elements-periodic-table.html

@@ -1,3 +1,7 @@
+**What the Giants are hoping for from their new pitching coach, Justin Meccage**\
+`Every team wants fewer runs scored against them, and if Justin Meccage seems to make that happen regularly, he’ll be a fan favorite.`\
+https://nytimes.com/athletic/6836768/2025/11/25/giants-pitching-coach-justin-meccage/
+
 **These Are the Elements That Define Us**\
 `A series of short films about how the elements of the periodic table shape our lives.`\
 https://nytimes.com/interactive/2025/11/25/opinion/elements-periodic-table.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/11/25/dining/nyc-restaurant-news.html
 **Day: Ohio State WRs Smith, Tate trending toward return at Michigan**\
 `Updating the injury status of standout Ohio State wide receivers Jeremiah Smith and Carnell Tate ahead of the Michigan game.`\
 https://nytimes.com/athletic/6836625/2025/11/25/jeremiah-smith-carnell-tate-injuries-osu-michigan/
-
-**Until Saturday: Carousel overdrive resuming soon**\
-`Until Saturday is The Athletic's free college football newsletter.`\
-https://nytimes.com/athletic/6836901/2025/11/25/college-football-coaching-changes-until-saturday/
 
