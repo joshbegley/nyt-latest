@@ -1,3 +1,7 @@
+**Newcastle know they need to evolve but Joelinton remains critical to their game-plan**\
+`Modern football is a squad game - when will Eddie Howe use more of his regularly?`\
+https://nytimes.com/athletic/6832753/2025/11/25/joelinton-remains-critical-to-newcastles-game-plan-and-highlights-a-need-for-evolution/
+
 **Brighton are flying in the Premier League, but how are their loanees getting on?**\
 `As with permanent transfers, uncontrollable factors can have a bearing on the success of the temporary moves made by Brighton players`\
 https://nytimes.com/athletic/6766470/2025/11/25/brighton-premier-league-loan-players-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6833091/2025/11/25/claudio-echeverri-man-city-futur
 **Row Z: Weird Pep, Birmingham's Mary Poppins vision and Championship masochism**\
 `Reviewing the stranger aspects of football over the past week, also featuring a very grumpy striker in Scotland`\
 https://nytimes.com/athletic/6833191/2025/11/25/pep-guardiola-weird-sky-camera/
-
-**Ajax gets his face back: Dutch giants revert to hand-drawn 1928 badge**\
-`Ajax have reverted to the hand-drawn badge of the ancient Greek mythological hero the club is named after, which was introduced in 1928`\
-https://nytimes.com/athletic/6833398/2025/11/25/ajax-badge-125-anniversary-amsterdam-1928/
 

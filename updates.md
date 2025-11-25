@@ -1,3 +1,7 @@
+**Newcastle know they need to evolve but Joelinton remains critical to their game-plan**\
+`Modern football is a squad game - when will Eddie Howe use more of his regularly?`\
+https://nytimes.com/athletic/6832753/2025/11/25/joelinton-remains-critical-to-newcastles-game-plan-and-highlights-a-need-for-evolution/
+
 **Brighton are flying in the Premier League, but how are their loanees getting on?**\
 `As with permanent transfers, uncontrollable factors can have a bearing on the success of the temporary moves made by Brighton players`\
 https://nytimes.com/athletic/6766470/2025/11/25/brighton-premier-league-loan-players-analysis/

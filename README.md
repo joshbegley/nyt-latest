@@ -1,3 +1,7 @@
+**U.S. Army Secretary Travels to U.A.E. for Meetings With Russian Envoys**\
+`The secretary, Daniel Driscoll, was in Geneva over the weekend for talks with a Ukrainian delegation.`\
+https://nytimes.com/2025/11/25/us/daniel-driscoll-uae-russia-ukraine.html
+
 **Newcastle know they need to evolve but Joelinton remains critical to their game-plan**\
 `Modern football is a squad game - when will Eddie Howe use more of his regularly?`\
 https://nytimes.com/athletic/6832753/2025/11/25/joelinton-remains-critical-to-newcastles-game-plan-and-highlights-a-need-for-evolution/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6832909/2025/11/25/james-horncastles-serie-a-pulisi
 **What has happened to Claudio Echeverri at Leverkusen?**\
 `The 19-year-old is eligible to play against his parent club tonight, but a starting berth seems unlikely - so what next for the Argentinian?`\
 https://nytimes.com/athletic/6833091/2025/11/25/claudio-echeverri-man-city-future/
-
-**Row Z: Weird Pep, Birmingham's Mary Poppins vision and Championship masochism**\
-`Reviewing the stranger aspects of football over the past week, also featuring a very grumpy striker in Scotland`\
-https://nytimes.com/athletic/6833191/2025/11/25/pep-guardiola-weird-sky-camera/
 
