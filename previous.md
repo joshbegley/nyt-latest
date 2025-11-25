@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6836754/2025/11/25/nfl-mvp-odds-stafford-maye/
 https://nytimes.com/2025/11/25/us/politics/republicans-trump-ukraine.html
 
 **Ramen by Ra Graduates From Bowery Market to Bricks and Mortar**\
-`Gertie moves from Williamsburgv to Prospect Heights, Michelin shakes things up and more restaurant news.`\
+`Gertie moves from Williamsburg to Prospect Heights, Michelin shakes things up and more restaurant news.`\
 https://nytimes.com/2025/11/25/dining/nyc-restaurant-news.html
 
 **Day: Ohio State WRs Smith, Tate trending toward return at Michigan**\
@@ -33,8 +33,4 @@ https://nytimes.com/2025/11/25/opinion/tatiana-schlossberg.html
 **Brock Purdy shriveled Monday night. The 49ers need him to bounce back in a hurry**\
 `Three first-half interceptions turned Purdy into a dink-and-dunker for the rest of the game. The 49ers need the good Purdy back pronto.`\
 https://nytimes.com/athletic/6836642/2025/11/25/brock-purdy-49ers-panthers-monday-night-football/
-
-**FIFA confirms World Cup draw seedings and pathways, with implications for co-hosts**\
-`The two top-ranked teams, Spain and Argentina, will be kept apart until the final — if they win their groups.`\
-https://nytimes.com/athletic/6836523/2025/11/25/fifa-world-cup-draw-seeding-pathway/
 

@@ -1,3 +1,7 @@
+**Ramen by Ra Graduates From Bowery Market to Bricks and Mortar**\
+`Gertie moves from Williamsburg to Prospect Heights, Michelin shakes things up and more restaurant news.`\
+https://nytimes.com/2025/11/25/dining/nyc-restaurant-news.html
+
 **NFL MVP odds: It's now a two-player race**\
 `Matthew Stafford is the clear favorite to win NFL MVP and it appears only Drake Maye can catch him.`\
 https://nytimes.com/athletic/6836754/2025/11/25/nfl-mvp-odds-stafford-maye/
