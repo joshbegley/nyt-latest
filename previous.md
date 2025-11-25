@@ -1,3 +1,7 @@
+**The Fed and Big Tech Lift Investors’ Spirits**\
+`Markets appear to be hoping again that the central bank will cut rates next month, and that the artificial intelligence boom has room to run.`\
+https://nytimes.com/2025/11/25/business/dealbook/fed-big-tech-market-rally.html
+
 **Continuity was supposed to help Timberwolves. So why do they keep collapsing?**\
 `Minnesota followed Friday's faceplant against Phoenix by losing in overtime to the Kings. The team doesn't look comfortable. `\
 https://nytimes.com/athletic/6835541/2025/11/25/timberwolves-losses-anthony-edwards-julius-randle-kings/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6831101/2025/11/25/lane-kiffin-ole-miss-lsu-florida
 **Kenneth Walker III is finally RB1 again. Can he steady Seahawks' run game?**\
 `Walker played his largest share of the snaps all season on Sunday, and the increased workload is expected to continue.`\
 https://nytimes.com/athletic/6834705/2025/11/25/kenneth-walker-zach-charbonnet-seahawks-run-game/
-
-**Arvell Reese? Peter Woods? Assessing the early Bengals draft view with Dane Brugler**\
-`Cincinnati currently sits at No. 8 and could use reinforcements for a struggling defense.`\
-https://nytimes.com/athletic/6826421/2025/11/25/bengals-draft-top-10-dane-brugler/
 
