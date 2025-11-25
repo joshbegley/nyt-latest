@@ -1,5 +1,9 @@
+**How Rubio Tried to Bring a Pro-Russia Peace Plan to Middle Ground**\
+`While President Trump attacked the Ukrainians, Secretary of State Marco Rubio flew to Geneva to seize control of negotiations that were going off the rails.`\
+https://nytimes.com/2025/11/24/us/politics/trump-russia-ukraine-peace-plan-middle-ground.html
+
 **‘Find a Job,’ Ontario Premier Tells Protester While Passing a New Housing Law**\
-`During a raucous hearing, the Ontario legislature passed a bill meant to expedite housing development and the eviction of tenants who are behind on their rent.`\
+`During a raucous hearing, the Ontario legislature passed a bill backed by Premier Doug Ford meant to expedite housing development and the eviction of tenants who are behind on their rent.`\
 https://nytimes.com/2025/11/24/world/canada/doug-ford-ontario-housing-bill-60.html
 
 **Hunting for a repeat, Shohei Ohtani will represent Japan again in 2026 WBC**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6834956/2025/11/24/how-to-watch-no-20-james-madison
 **How to watch UCLA vs. USC: Time, TV, streaming**\
 `Find out how to watch the UCLA Bruins play the USC Trojans, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6834954/2025/11/24/how-to-watch-ucla-vs-no-19-usc-tv-channel-and-streaming-options-for-november-29/
-
-**What to Know About Trump’s Peace Plan for Russia and Ukraine**\
-`U.S. officials have responded to a storm of criticism about the plan by insisting that it is still a work in progress.`\
-https://nytimes.com/2025/11/24/us/politics/trump-peace-plan-russia-ukraine.html
 
