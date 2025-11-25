@@ -1,3 +1,7 @@
+**Russia Bombards Kyiv After Peace Talks End in Geneva**\
+`A missile-and-drone barrage killed at least six people in Ukraine’s capital, officials said, hours after officials said they had made some headway on a peace proposal.`\
+https://nytimes.com/2025/11/25/world/europe/ukraine-russia-strike-peace-plan.html
+
 **The ‘New’ Solution for the N.Y.C. Housing Crisis: Tiny Apartments**\
 `There is a push to revive single-room occupancy housing, where kitchens and bathrooms are shared among apartments as small as 100 square feet each.`\
 https://nytimes.com/2025/11/25/nyregion/sro-apartments-nyc.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000010545766/james-comey-letitia-case-d
 **Yann Gueho: Man charged with attempted murder of former Chelsea and France prodigy**\
 `The former football youth talent has remained in intensive care since the incident which took place across November 9-10.`\
 https://nytimes.com/athletic/6833853/2025/11/25/yann-gueho-attempted-murder-charge/
-
-**Word of the Day: esoteric**\
-`This word has appeared in 157 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/11/25/learning/word-of-the-day-esoteric.html
 
