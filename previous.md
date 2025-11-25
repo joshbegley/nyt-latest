@@ -1,3 +1,11 @@
+**Man Utd hiring Kyle Macaulay as head of senior scouting**\
+`United have been looking to add a key figure to assist on transfers since July.`\
+https://nytimes.com/athletic/6835796/2025/11/25/manchester-united-kyle-macaulay-scouting/
+
+**Market Volatility Underscores Epic Buildup of Global Risk**\
+`Some experts see a dangerous combination of factors reminiscent of practices that led to previous financial crises.`\
+https://nytimes.com/2025/11/25/business/economy/stocks-bitcoin-markets-risk.html
+
 **Explained: Why FIFA's 2026 World Cup draw is at the heart of a political controversy**\
 `How much FIFA has paid to host the 2026 World Cup draw at the Washington, D.C. performing arts venue is under scrutiny`\
 https://nytimes.com/athletic/6835424/2025/11/25/world-cup-draw-kennedy-center-controversy-fifa-washington-dc/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6836361/2025/11/25/harry-kane-contract-bayern-futur
 **The Bounce: Anybody else worth tanking for? Plus, who's fattening up on soft schedules**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/6836221/2025/11/25/aj-dybantsa-nba-draft-pistons-the-bounce/
-
-**Taricco to quit role at K League champions after ban for alleged racism**\
-`The Argentine received a five-match ban and was fined 20 million won ($13,646) for allegedly making a racist gesture during a K League game.`\
-https://nytimes.com/athletic/6836306/2025/11/25/mauricio-taricco-ban-racism-jeonbuk-hyundai-motors/
-
-**Quincy Wilson commits to Maryland on heels of Olympic gold medal**\
-`Wilson chose Maryland over finalists South Carolina, USC, Texas A&M and UCLA.`\
-https://nytimes.com/athletic/6836317/2025/11/25/quincy-wilson-maryland-olympics-track/
 

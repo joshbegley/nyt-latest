@@ -1,3 +1,11 @@
+**Man Utd hiring Kyle Macaulay as head of senior scouting**\
+`United have been looking to add a key figure to assist on transfers since July.`\
+https://nytimes.com/athletic/6835796/2025/11/25/manchester-united-kyle-macaulay-scouting/
+
+**Market Volatility Underscores Epic Buildup of Global Risk**\
+`Some experts see a dangerous combination of factors reminiscent of practices that led to previous financial crises.`\
+https://nytimes.com/2025/11/25/business/economy/stocks-bitcoin-markets-risk.html
+
 **'We gotta figure it out': The Bucks are sliding without Giannis Antetokounmpo**\
 `Both Giannis and Kevin Porter Jr. are "pretty close" to a return, according to Doc Rivers. What exactly that means is unclear.`\
 https://nytimes.com/athletic/6835952/2025/11/25/blazers-bucks-giannis-injury-nba/
