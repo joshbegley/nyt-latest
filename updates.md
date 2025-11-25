@@ -1,3 +1,7 @@
+**Hunting for a repeat, Shohei Ohtani will represent Japan again in 2026 WBC**\
+`The four-time MVP has won two World Series titles and three MVP awards since he last donned Japan’s uniform in 2023. `\
+https://nytimes.com/athletic/6835155/2025/11/24/shohei-ohtani-team-japan-world-baseball-classic/
+
 **'Pay close attention to what we’re building': Gotham FC celebrate NWSL trophy in NYC**\
 `Two years after their first NWSL Championship, Gotham FC finally got their confetti in downtown Manhattan.`\
 https://nytimes.com/athletic/6834608/2025/11/24/gotham-fc-nwsl-championship-nyc-celebrations/

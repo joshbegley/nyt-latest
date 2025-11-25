@@ -1,3 +1,7 @@
+**Scoop City: Risers and fallers after Week 12**\
+`The Patriots are trending down despite their ninth-straight win, while the Chiefs, Bears and long snappers are Week 12 risers`\
+https://nytimes.com/athletic/6835223/2025/11/24/week-12-risers-fallers-nfl-patriots-rams-scoop-city/
+
 **'Pay close attention to what we’re building': Gotham FC celebrate NWSL trophy in NYC**\
 `Two years after their first NWSL Championship, Gotham FC finally got their confetti in downtown Manhattan.`\
 https://nytimes.com/athletic/6834608/2025/11/24/gotham-fc-nwsl-championship-nyc-celebrations/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6834962/2025/11/24/how-to-watch-north-carolina-vs-n
 **How to watch Florida State vs. Florida: Time, TV, streaming**\
 `Find out how to watch the Florida State Seminoles play the Florida Gators, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6834958/2025/11/24/how-to-watch-florida-state-vs-florida-tv-channel-and-streaming-options-for-november-29/
-
-**How to watch James Madison vs. Coastal Carolina: Time, TV, streaming**\
-`Find out how to watch the James Madison Dukes play the Coastal Carolina Chanticleers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6834956/2025/11/24/how-to-watch-no-20-james-madison-vs-coastal-carolina-tv-channel-and-streaming-options-for-november-29/
 
