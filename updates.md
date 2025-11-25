@@ -1,3 +1,15 @@
+**Trump’s Retribution Push Has Expanded Even as It Hits Legal Barriers**\
+`A judge dismissed indictments against two of the president’s foes, but a new Pentagon investigation of a prominent Democrat shows how he is using a whole-of-government approach to punish those who cross him.`\
+https://nytimes.com/2025/11/25/us/politics/trumps-retribution-legal-barriers.html
+
+**In trade for elite strike-thrower Sonny Gray, Red Sox land a key rotation piece**\
+`On Tuesday, the Red Sox traded for Gray, who is a much-needed addition to their rotation and helps balance out their handedness.`\
+https://nytimes.com/athletic/6837589/2025/11/25/sonny-gray-trade-keith-law/
+
+**The Briefing: Manchester City 0 Bayer Leverkusen 2 – Guardiola's 10 changes, Haaland misses chances**\
+`Manchester City suffer back-to-back defeats after being convincingly beaten at home in the Champions League `\
+https://nytimes.com/athletic/6831348/2025/11/25/manchester-city-0-bayer-leverkusen-2-briefing/
+
 **The Briefing: Marseille 2 Newcastle 1 - Inexplicable Nick Pope error, another away defeat**\
 `Newcastle United fell to a fourth successive away defeat in all competitions as they threw away a lead to lose in the Champions League`\
 https://nytimes.com/athletic/6831349/2025/11/25/marseille-2-newcastle-1-pope-aubameyang/

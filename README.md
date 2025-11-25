@@ -1,3 +1,7 @@
+**Dortmund fans protest games abroad with defamatory La Liga banner**\
+`Dortmund fans displayed the banners before the Champions League tie against Villarreal, also targeting the Spanish FA.`\
+https://nytimes.com/athletic/6837799/2025/11/25/borussia-dortmund-la-liga-banner/
+
 **Trump’s Retribution Push Has Expanded Even as It Hits Legal Barriers**\
 `A judge dismissed indictments against two of the president’s foes, but a new Pentagon investigation of a prominent Democrat shows how he is using a whole-of-government approach to punish those who cross him.`\
 https://nytimes.com/2025/11/25/us/politics/trumps-retribution-legal-barriers.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/25/us/politics/swalwell-pulte-privacy-lawsuit.html
 **Senator Agrees to Pay Over $5 Million in Back Taxes to I.R.S.**\
 `Senator Jim Justice, a Republican and former governor of West Virginia, agreed to pay just hours after the tax agency sued to collect unpaid taxes from 2009.`\
 https://nytimes.com/2025/11/25/us/jim-justice-irs.html
-
-**The Briefing: Manchester City 0 Bayer Leverkusen 2 – Guardiola's 10 changes, Haaland misses chances**\
-`Manchester City suffer back-to-back defeats after being convincingly beaten at home in the Champions League `\
-https://nytimes.com/athletic/6831348/2025/11/25/manchester-city-0-bayer-leverkusen-2-briefing/
 
