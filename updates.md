@@ -1,3 +1,7 @@
+**Spat With China Becomes an Asset for Japan’s New Leader**\
+`Japan’s prime minister, Sanae Takaichi, is not backing off from comments about Taiwan that enraged China. Many of Japan’s voters like her stance.`\
+https://nytimes.com/2025/11/26/world/asia/japan-china-taiwan-takaichi-dispute.html
+
 **Abducted Girls Are Freed in Nigeria, Where Violence Worsens Hunger**\
 `Two dozen schoolgirls were freed on Tuesday after being kidnapped in Kebbi state. A wave of mass kidnappings has spread terror and deepened the nation’s hunger crisis.`\
 https://nytimes.com/video/world/africa/100000010548810/nigeria-food-violence-usaid.html
