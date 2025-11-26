@@ -1,3 +1,7 @@
+**In City Hall Housecleaning, Mamdani Asks 179 Adams Staff Members to Quit**\
+`Zohran Mamdani will be sworn in as mayor on Jan. 1. His request for resignations targeted political appointees.`\
+https://nytimes.com/2025/11/25/nyregion/mamdani-adams-staff-resignations.html
+
 **U.S. Announces Negotiated Prices for 15 Drugs Under Medicare**\
 `The Trump administration said that had the new prices been in effect last year, Medicare would have saved $12 billion, which would have reduced its spending on those drugs by 44 percent.`\
 https://nytimes.com/2025/11/25/health/drugs-prices-medicare.html

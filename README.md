@@ -1,3 +1,7 @@
+**Latest CFP Top 25 leaves BYU, Miami, Utah on brink of final at-large spot**\
+`Every team ranked in the top 14 that played in Week 13 won, leaving little opportunity for movement in the rankings.`\
+https://nytimes.com/athletic/6837669/2025/11/25/college-football-playoff-rankings-byu-utah-miami/
+
 **In City Hall Housecleaning, Mamdani Asks 179 Adams Staff Members to Quit**\
 `Zohran Mamdani will be sworn in as mayor on Jan. 1. His request for resignations targeted political appointees.`\
 https://nytimes.com/2025/11/25/nyregion/mamdani-adams-staff-resignations.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6838253/2025/11/25/raiders-vs-chargers-stream-how-t
 **How to watch Vikings vs. Seahawks: Time, TV, streaming**\
 `Find out how to watch the Minnesota Vikings play the Seattle Seahawks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6838247/2025/11/25/vikings-vs-seahawks-stream-how-to-watch-nov-30/
-
-**How to watch Alabama vs. UNLV men's basketball: Time, TV, streaming**\
-`Find out how to watch the Alabama Crimson Tide play the UNLV Rebels, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6838243/2025/11/25/alabama-vs-unlv-stream-how-to-watch-nov-26/
 
