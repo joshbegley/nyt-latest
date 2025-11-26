@@ -22,7 +22,7 @@ https://nytimes.com/athletic/6836462/2025/11/26/tottenham-psg-thomas-frank-vitin
 `Daniel Driscoll has met with Ukrainian and Russian officials during a whirlwind of trips as the Trump administration pushes its latest proposal.`\
 https://nytimes.com/2025/11/26/us/politics/ukraine-russia-peace-talks-daniel-driscoll.html
 
-**The Briefing: Liverpool 1 PSV 4 - Risk of not qualifying? Is conceding first an issue?**\
+**The Briefing: Liverpool 1 PSV 4 - Risk of Slot's side not qualifying? Is conceding first an issue?**\
 `Liverpool fell to a shock 4-1 loss to PSV Eindhoven on Wednesday night to make it three defeats in a row`\
 https://nytimes.com/athletic/6836398/2025/11/26/liverpool-psv-result-report-score-analysis/
 

@@ -1,3 +1,11 @@
+**North Carolina Can Use Republican-Friendly Congressional Map, Court Says**\
+`The district court ruling means that the party is one step closer to securing another seat in the U.S. House and retain its majority, at the urging of President Trump.`\
+https://nytimes.com/2025/11/26/us/north-carolina-congressional-map-republicans.html
+
+**Breaking down Mbappe's seven-minute Champions League hat-trick (and his fourth)**\
+`The hat-trick was Mbappe's 19th, 20th and 21st goals of the season for Madrid and came after his side had fallen behind against Olympiacos.`\
+https://nytimes.com/athletic/6840912/2025/11/26/kylian-mbappe-hattrick-real-madrid-olympiacos/
+
 **What is the National Guard?**\
 `By Alyce McFadden and Anushka Patil`\
 https://nytimes.com/live/2025/11/26/us/national-guard-shooting-dc/what-is-national-guard

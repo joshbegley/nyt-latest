@@ -1,9 +1,13 @@
+**North Carolina Can Use Republican-Friendly Congressional Map, Court Says**\
+`The district court ruling means that the party is one step closer to securing another seat in the U.S. House and retain its majority, at the urging of President Trump.`\
+https://nytimes.com/2025/11/26/us/north-carolina-congressional-map-republicans.html
+
 **What is the National Guard?**\
 `By Alyce McFadden and Anushka Patil`\
 https://nytimes.com/live/2025/11/26/us/national-guard-shooting-dc/what-is-national-guard
 
 **Breaking down Mbappe's seven-minute Champions League hat-trick (and his fourth)**\
-`The hat-trick was Mbappe's 19th, 20th and 21st goals of the season for Madrid and came after his side had fallen behind against Olympiacos`\
+`The hat-trick was Mbappe's 19th, 20th and 21st goals of the season for Madrid and came after his side had fallen behind against Olympiacos.`\
 https://nytimes.com/athletic/6840912/2025/11/26/kylian-mbappe-hattrick-real-madrid-olympiacos/
 
 **The Briefing: Arsenal 3 Bayern Munich 1: Mikel Arteta's winning machine marches on**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/26/world/europe/croatia-trash-dubrovnik-plastic.html
 **‘I Wanted to Cry’: Gunshots Rattled Residents and Tourists**\
 `On the eve of Thanksgiving, bystanders said the sound of gunfire was followed by anxiety over who did the shooting.`\
 https://nytimes.com/2025/11/26/us/washington-shooting-guard-witnesses.html
-
-**Tennessee Seventh District Special Election 2025: Latest Polls**\
-`Track the latest polls about Democrat Aftyn Behn and Republican Matt Van Epps in the special election in Tennessee's Seventh Congressional District.`\
-https://nytimes.com/interactive/polls/tennessee-us-house-7-special-election-polls-2025.html
 
