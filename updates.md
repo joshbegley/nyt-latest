@@ -1,3 +1,7 @@
+**Apple TV Series ‘The Hunt’ Is Pulled Amid Accusations of Plagiarism**\
+`Apple TV postponed the launch of the French-language series following accusations that its creator copied key elements from a 1973 novel.`\
+https://nytimes.com/2025/11/26/arts/television/apple-tv-the-hunt-plagiarism.html
+
 **The Pulse: The central battle of MLB’s offseason**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6837378/2025/11/26/its-the-dodgers-vs-everyone-plus-the-latest-cfp-rankings/
