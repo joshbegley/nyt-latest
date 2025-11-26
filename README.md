@@ -1,4 +1,8 @@
-**Sebastian Berhalter has come to epitomize everything Mauricio Pochettino wants to see**\
+**Anthony Davis calls Nico Harrison firing 'surprising' as he nears return from injury**\
+`DALLAS — If it’s up to Anthony Davis, he’ll make his return from injury Friday against his former team, the Los Angeles Lakers.`\
+https://nytimes.com/athletic/6840538/2025/11/26/mavericks-anthony-davis-nico-harrison/
+
+**Sebastian Berhalter has come to epitomize everything Mauricio Pochettino wants**\
 `Quite a plot twist: The son of the old coach has become a prototype for what the new coach wants leading into the USMNT's home World Cup`\
 https://nytimes.com/athletic/6837821/2025/11/26/sebastian-berhalter-mauricio-pochettino-usmnt-culture/
 
