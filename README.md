@@ -1,6 +1,10 @@
-**UAE National Media Office BRIDGE Summit 2025**\
+**CFP rankings show delayed nearly 50 minutes by college hoops, football fans livid**\
+`College football fans waited almost an hour past the scheduled 7 p.m. start to find out that, as expected, Ohio State is still No. 1.`\
+https://nytimes.com/athletic/6839837/2025/11/26/college-football-playoff-rankings-broadcast-delay/
+
+**BRIDGE Summit 2025**\
 ` It’s a monumental initiative, but one that is more necessary now than ever before. `\
-https://nytimes.com/paidpost/bridge-summit-abu-dhabi/uae-national-media-office-bridge-summit-_bridge-summit-2025/uae-national-media-office-bridge-summit-2025.html
+https://nytimes.com/paidpost/bridge-summit-abu-dhabi/uae-national-media-office-bridge-summit-2025.html
 
 **College football best bets Week 14: 3 rivalry week games that have value**\
 `Rivalry week has a loaded schedule, but Austin Mock dips into the lesser games to find some betting value.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6840158/2025/11/26/jets-vs-capitals-stream-how-to-w
 **How to watch Pistons vs. Celtics: Time, TV, streaming**\
 `Find out how to watch the Detroit Pistons play the Boston Celtics, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6840156/2025/11/26/pistons-vs-celtics-stream-how-to-watch-nov-26/
-
-**How to watch Blues vs. Devils: Time, TV, streaming**\
-`Find out how to watch the St. Louis Blues play the New Jersey Devils, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6840153/2025/11/26/blues-vs-devils-stream-how-to-watch-nov-26/
 
