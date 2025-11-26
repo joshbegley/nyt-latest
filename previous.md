@@ -1,3 +1,27 @@
+**The Briefing: Arsenal 3 Bayern Munich 1: Mikel Arteta's winning machine marches on, match-winning substitutes**\
+`The Athletic unpicks a commanding Arsenal win over Bayern Munich`\
+https://nytimes.com/athletic/6836397/2025/11/26/arsenal-bayern-munich-result-champions-league/
+
+**PSG 5 Spurs 3 - Were there positives for Frank? How did Vitinha score that? Richarlison-Kolo Muani combo?**\
+`Our writers break down the action from an entertaining Champions League game in Paris.`\
+https://nytimes.com/athletic/6836462/2025/11/26/tottenham-psg-thomas-frank-vitinha/
+
+**U.S. Army Secretary’s Unusual Role in Ukraine Peace Negotiations**\
+`Daniel Driscoll has met with Ukrainian and Russian officials during a whirlwind of trips as the Trump administration pushes its latest proposal.`\
+https://nytimes.com/2025/11/26/us/politics/ukraine-russia-peace-talks-daniel-driscoll.html
+
+**The Briefing: Liverpool 1 PSV 4 - Risk of not qualifying? Is conceding first an issue?**\
+`Liverpool fell to a shock 4-1 loss to PSV Eindhoven on Wednesday night to make it three defeats in a row`\
+https://nytimes.com/athletic/6836398/2025/11/26/liverpool-psv-result-report-score-analysis/
+
+**Top U.S. Negotiator Warned Europeans That Russia Is Stockpiling Missiles**\
+`Daniel P. Driscoll, the U.S. Army secretary, used the growing threat from Moscow as a way to sell a quick peace deal unfavorable to Ukraine.`\
+https://nytimes.com/2025/11/26/world/europe/ukraine-peace-talks-russia-missiles.html
+
+**Dubrovnik, Known for Its Beautiful Beaches, Faces a Mound of New Trash**\
+`Officials in Dubrovnik, Croatia, say the strong currents of the Adriatic Sea washed ashore a vast amount of garbage, mostly from Albania, during a recent storm.`\
+https://nytimes.com/2025/11/26/world/europe/croatia-trash-dubrovnik-plastic.html
+
 **‘I Wanted to Cry’: Gunshots Rattled Residents and Tourists**\
 `On the eve of Thanksgiving, bystanders said the sound of gunfire was followed by anxiety over who did the shooting.`\
 https://nytimes.com/2025/11/26/us/washington-shooting-guard-witnesses.html
@@ -13,28 +37,4 @@ https://nytimes.com/video/weather/100000010550486/thanksgiving-weather-forecast-
 **Paul Ekman, Who Linked Facial Expressions to Universal Emotions, Dies at 91**\
 `Often called the world’s most famous face reader, he inspired the TV show ‘Lie to Me.’ But some questioned his assumption that human expressions were ‘pan-cultural.’`\
 https://nytimes.com/2025/11/26/science/paul-ekman-dead.html
-
-**David Lerner, a Mr. Fix-it of Apple Computers, Dies at 72**\
-`He and a partner founded Tekserve, a Manhattan emergency room for frozen hard drives, keyboards, screens and their confounded owners.`\
-https://nytimes.com/2025/11/26/technology/personaltech/david-lerner-dead.html
-
-**NFL Week 13 model-projected scores and point totals for every game**\
-`Austin Mock's NFL Projection Model gives its predictions for the points differentials and totals for every Week 13 game.`\
-https://nytimes.com/athletic/6840936/2025/11/26/nfl-week-13-projected-scores-model-point-spreads-totals/
-
-**F.D.A. Withdraws Rule to Require Testing Cosmetics Made With Talc for Asbestos**\
-`The agency said it planned to craft a more comprehensive rule, but the move alarmed public health advocates, who have long worked to eliminate asbestos in consumer products.`\
-https://nytimes.com/2025/11/26/health/fda-cosmetics-talc-asbestos.html
-
-**U.K. Budget Plan Calms Markets and Labour Faithful. Will It Appeal to Voters?**\
-`The plan presented by the chancellor of the Exchequer, Rachel Reeves, called for spending increases and higher taxes on the wealthy and the middle class.`\
-https://nytimes.com/2025/11/26/world/europe/uk-budget-starmer-reeves.html
-
-**Former Lions All-Pro center Frank Ragnow comes out of retirement**\
-`The three-time All Pro second teamer will be a massive boost to Detroit's offensive line that has struggled at points this season.`\
-https://nytimes.com/athletic/6840886/2025/11/26/frank-ragnow-lions-retirement-comeback/
-
-**An Asia-Pacific Showdown**\
-`China and Japan are in a diplomatic feud over Taiwan, with President Trump in the middle.`\
-https://nytimes.com/2025/11/26/world/china-japan-trump-showdown-fire-riyadh.html
 
