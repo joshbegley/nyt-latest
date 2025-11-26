@@ -1,3 +1,11 @@
+**Dominican Republic Allows U.S. to Use Territory to Fight International Organized Crime**\
+`The Dominican leader, Luis Abinader, said the Pentagon could use restricted areas within the San Isidro Air Base and Las Américas International Airport for refueling and transporting equipment and technical personnel.`\
+https://nytimes.com/2025/11/26/us/politics/dominican-republic-us-military.html
+
+**Trump Says South Africa Is Not Invited to G20 Summit in U.S. in 2026**\
+`The president did not attend this year’s annual gathering in South Africa, which has been a frequent target of his attacks.`\
+https://nytimes.com/2025/11/26/world/africa/trump-south-africa-g20.html
+
 **As Hopes for a Trade Deal With Trump Vanish, Canada Tackles Tariff Fallout**\
 `Prime Minister Mark Carney announced curbs on steel imports, a new tariff and help with steel and lumber freight costs in a bid to aid Canadian industries.`\
 https://nytimes.com/2025/11/26/world/canada/trump-carney-canada-tariffs-trade.html
