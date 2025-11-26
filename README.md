@@ -1,3 +1,7 @@
+**Broncos agree to 4-year extension with center Luke Wattenberg: Source**\
+`The deal is for $48 million and comes with $27 million guaranteed, placing him among the league's five highest-paid centers in terms of AAV.`\
+https://nytimes.com/athletic/6838649/2025/11/25/center-luke-wattenberg-contract-four-year-extension/
+
 **NWSL final draws more than 1 million TV viewers, smashes audience record for league**\
 `Gotham FC's 1-0 win over the Washington Spirit delivered an average of 1.184 million viewers, a new high for any NWSL game airing on TV.`\
 https://nytimes.com/athletic/6838622/2025/11/25/nwsl-championship-tv-record-viewership/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6838290/2025/11/25/marshawn-kneeland-death-crash-co
 **Latest CFP Top 25 leaves BYU, Miami, Utah on brink of final at-large spot**\
 `Every team ranked in the top 14 that played in Week 13 won, leaving little opportunity for movement in the rankings.`\
 https://nytimes.com/athletic/6837669/2025/11/25/college-football-playoff-rankings-byu-utah-miami/
-
-**In City Hall Housecleaning, Mamdani Asks 179 Adams Staff Members to Quit**\
-`Zohran Mamdani will be sworn in as mayor on Jan. 1. His request for resignations targeted political appointees.`\
-https://nytimes.com/2025/11/25/nyregion/mamdani-adams-staff-resignations.html
 
