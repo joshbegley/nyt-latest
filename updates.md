@@ -1,3 +1,15 @@
+**How to watch Western Kentucky vs. Vanderbilt men's basketball: Time, TV, streaming**\
+`Find out how to watch the Western Kentucky Hilltoppers play the Vanderbilt Commodores, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6839333/2025/11/26/western-kentucky-vs-vanderbilt-stream-how-to-watch-nov-26/
+
+**How to watch Syracuse vs. Iowa State men's basketball: Time, TV, streaming**\
+`Find out how to watch the Syracuse Orange play the Iowa State Cyclones, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6839331/2025/11/26/syracuse-vs-iowa-state-stream-how-to-watch-nov-26/
+
+**How to watch New Orleans vs. Texas Tech men's basketball: Time, TV, streaming**\
+`Find out how to watch the New Orleans Privateers play the Texas Tech Red Raiders, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6839329/2025/11/26/new-orleans-vs-texas-tech-stream-how-to-watch-nov-26/
+
 **U.S. Nuclear Arms Chief Warns Against Leaks of Secret Information**\
 `The email sent to atom bomb officials by Brandon Williams highlights the managerial challenge faced by the former one-term congressman.`\
 https://nytimes.com/2025/11/26/science/brandon-williams-nuclear-weapons-nnsa.html
