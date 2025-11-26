@@ -1,3 +1,7 @@
+**As Prices Pinch, Bessent Looks for Ways to Mollify Wary Consumers**\
+`Treasury Secretary Scott Bessent has offered a variety of creative justifications for President Trump’s import duties.`\
+https://nytimes.com/2025/11/26/business/scott-bessent-inflation.html
+
 **Feringa: 'Women’s sports fans just want to be respected as sport fans'**\
 `The Women's League Cup draw descended into chaos, marred by lewd sexual innuendos and a ball mistakenly being placed back into the bag`\
 https://nytimes.com/athletic/6839244/2025/11/26/womens-league-cup-sports-fans-soccer/
