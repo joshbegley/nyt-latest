@@ -1,3 +1,7 @@
+**New York Sues Over Rule Barring Thousands of Immigrants From SNAP**\
+`The Trump administration says refugees and asylum seekers can never get food stamps, but attorneys general from New York and nearly two dozen other states say that is unlawful.`\
+https://nytimes.com/2025/11/26/nyregion/snap-immigrants-new-york-lawsuit.html
+
 **Pope Leo Blesses Rave Crowd in Slovakia**\
 `Pope Leo XIV blessed a crowd on video earlier this month at a rave in Slovakia hosted by Guilherme Peixoto, a Portuguese priest who doubles as an electronic D.J.`\
 https://nytimes.com/video/world/europe/100000010549597/pope-leo-blessing-rave.html

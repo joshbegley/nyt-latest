@@ -1,9 +1,17 @@
+**The High Stakes in the Ukraine Talks**\
+`Readers discuss the proposed deal to end the war between Ukraine and Russia. Also: Immigrant family separations; unplugging A.I.`\
+https://nytimes.com/2025/11/26/opinion/ukraine-russia-peace-talks.html
+
+**Fantasy football injuries, inactives, cheat sheet Week 13**\
+`Fantasy football relevant injuries and their impact, weather reports and game previews. Plus, Ciely's Week 13 player rankings and more.`\
+https://nytimes.com/athletic/6839913/2025/11/26/fantasy-football-injuries-inactives-cheat-sheet-week-13/
+
 **New York Sues Over Rule Barring Thousands of Immigrants From SNAP**\
 `The Trump administration says refugees and asylum seekers can never get food stamps, but attorneys general from New York and nearly two dozen other states say that is unlawful.`\
 https://nytimes.com/2025/11/26/nyregion/snap-immigrants-new-york-lawsuit.html
 
 **Pope Leo Blesses Rave Crowd in Slovakia**\
-`Pope Leo XIV blessed a crowd on video earlier this month at a rave in Slovakia hosted by Guilherme Peixoto, a Portuguese priest who doubles as an electronic D.J.`\
+`Pope Leo XIV blessed hundreds of people at a rave in Slovakia via a video message in early November. The event was hosted by Guilherme Peixoto, a Portuguese priest who doubles as an electronic D.J.`\
 https://nytimes.com/video/world/europe/100000010549597/pope-leo-blessing-rave.html
 
 **Green Card Interviews End in Handcuffs for Spouses of U.S. Citizens**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/26/world/asia/hong-kong-fire-what-to-know.html
 **Vikings QB J.J. McCarthy not expected to play Sunday vs. Seahawks: Sources**\
 `With the 22-year-old quarterback in the concussion protocol, undrafted rookie Max Brosmer is expected to get the start.`\
 https://nytimes.com/athletic/6840294/2025/11/26/jj-mccarthy-vikings-concussion-max-brosmer-seahawks/
-
-**State Court Rules School Vaccine Law Can’t Bar Religious Exemptions**\
-`The decision was handed down by a judge in West Virginia, which has one of the country’s strictest school vaccination laws and one of the highest vaccination rates.`\
-https://nytimes.com/2025/11/26/us/west-virginia-court-vaccine-law-religious-exemptions.html
-
-**NCAA proposes reducing transfer portal window to 15 days in men's and women's basketball**\
-`Under the current rules, the transfer portal window is 30 days and begins in late March, while postseason tournaments are still underway.`\
-https://nytimes.com/athletic/6840295/2025/11/26/ncaa-basketball-transfer-portal-window-changes/
 
