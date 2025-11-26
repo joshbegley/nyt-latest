@@ -1,3 +1,11 @@
+**What to Know About the Fire at a Hong Kong Apartment Complex**\
+`Firefighters struggled to contain the blaze in the high-rise buildings. At least 36 people were killed, and many more were feared trapped inside the towers.`\
+https://nytimes.com/2025/11/26/world/asia/hong-kong-fire-what-to-know.html
+
+**Vikings QB J.J. McCarthy not expected to play Sunday vs. Seahawks: Sources**\
+`With the 22-year-old quarterback in the concussion protocol, undrafted rookie Max Brosmer is expected to get the start.`\
+https://nytimes.com/athletic/6840294/2025/11/26/jj-mccarthy-vikings-concussion-max-brosmer-seahawks/
+
 **State Court Rules School Vaccine Law Can’t Bar Religious Exemptions**\
 `The decision was handed down by a judge in West Virginia, which has one of the country’s strictest school vaccination laws and one of the highest vaccination rates.`\
 https://nytimes.com/2025/11/26/us/west-virginia-court-vaccine-law-religious-exemptions.html
