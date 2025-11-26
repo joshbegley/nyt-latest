@@ -1,3 +1,7 @@
+**What I'm hearing about J.J. McCarthy, Jerry Jones' trade steal and more**\
+`Also: Tom Brady's Raiders frustrations, Kyle Shanahan's latest masterpiece and the NFL storylines that will carry Thanksgiving conversation.`\
+https://nytimes.com/athletic/6838665/2025/11/26/nfl-rumors-news-j-j-mccarthy-jerry-jones-george-pickens/
+
 **What You’re Thankful For**\
 `Six-word stories of gratitude.`\
 https://nytimes.com/2025/11/26/briefing/what-youre-thankful-for.html
