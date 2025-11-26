@@ -1,3 +1,7 @@
+**Must-See Moments From the N.B.A.**\
+`On Tuesday, the Washington Wizards won their first N.B.A. Cup game, and the Orlando Magic’s 51-point second quarter catalyzed a big road win against the Philadelphia 76ers.`\
+https://nytimes.com/video/sports/basketball/100000010548835/must-see-moments-from-the-nba.html
+
 **Spat With China Becomes an Asset for Japan’s New Leader**\
 `Japan’s prime minister, Sanae Takaichi, is not backing off from comments about Taiwan that enraged China. Many of Japan’s voters like her stance.`\
 https://nytimes.com/2025/11/26/world/asia/japan-china-taiwan-takaichi-dispute.html

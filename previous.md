@@ -1,3 +1,7 @@
+**Must-See Moments From the N.B.A.**\
+`On Tuesday, the Washington Wizards won their first N.B.A. Cup game, and the Orlando Magic’s 51-point second quarter catalyzed a big road win against the Philadelphia 76ers.`\
+https://nytimes.com/video/sports/basketball/100000010548835/must-see-moments-from-the-nba.html
+
 **Spat With China Becomes an Asset for Japan’s New Leader**\
 `Japan’s prime minister, Sanae Takaichi, is not backing off from comments about Taiwan that enraged China. Many of Japan’s voters like her stance.`\
 https://nytimes.com/2025/11/26/world/asia/japan-china-taiwan-takaichi-dispute.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/26/arts/television/seth-meyers-trump-turkey-pardon.h
 **How to watch Broncos vs. Commanders: Time, TV, streaming**\
 `Find out how to watch the Denver Broncos play the Washington Commanders, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6839096/2025/11/26/broncos-vs-commanders-stream-how-to-watch-nov-30/
-
-**Clippers' Kris Dunn ejected after pushing Luka Dončić in loss to Lakers**\
-`Frustration boiled over for the Clippers' wing late in Tuesday night's loss to the Lakers.`\
-https://nytimes.com/athletic/6839048/2025/11/26/lakers-clippers-kris-dunn-luka-doncic/
 
