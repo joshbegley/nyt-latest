@@ -1,3 +1,7 @@
+**Northwestern University Nears Deal to Resolve Its Conflict With the White House**\
+`The school, one of several to face pressure campaigns from the Trump administration, would pay a $75 million fine and have its research funding restored under terms of the agreement being discussed.`\
+https://nytimes.com/2025/11/26/us/politics/northwestern-university-trump-deal.html
+
 **The High Stakes in the Ukraine Talks**\
 `Readers discuss the proposed deal to end the war between Ukraine and Russia. Also: Immigrant family separations; unplugging A.I.`\
 https://nytimes.com/2025/11/26/opinion/ukraine-russia-peace-talks.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6835189/2025/11/26/nfl-week-13-picks-chiefs-cowboys
 **What to Know About the Fire at a Hong Kong Apartment Complex**\
 `Firefighters struggled to contain the blaze in the high-rise buildings. At least 36 people were killed, and many more were feared trapped inside the towers.`\
 https://nytimes.com/2025/11/26/world/asia/hong-kong-fire-what-to-know.html
-
-**Vikings QB J.J. McCarthy not expected to play Sunday vs. Seahawks: Sources**\
-`With the 22-year-old quarterback in the concussion protocol, undrafted rookie Max Brosmer is expected to get the start.`\
-https://nytimes.com/athletic/6840294/2025/11/26/jj-mccarthy-vikings-concussion-max-brosmer-seahawks/
 

@@ -1,3 +1,15 @@
+**The High Stakes in the Ukraine Talks**\
+`Readers discuss the proposed deal to end the war between Ukraine and Russia. Also: Immigrant family separations; unplugging A.I.`\
+https://nytimes.com/2025/11/26/opinion/ukraine-russia-peace-talks.html
+
+**Fantasy football injuries, inactives, cheat sheet Week 13**\
+`Fantasy football relevant injuries and their impact, weather reports and game previews. Plus, Ciely's Week 13 player rankings and more.`\
+https://nytimes.com/athletic/6839913/2025/11/26/fantasy-football-injuries-inactives-cheat-sheet-week-13/
+
+**Pope Leo Blesses Rave Crowd in Slovakia**\
+`Pope Leo XIV blessed hundreds of people at a rave in Slovakia via a video message in early November. The event was hosted by Guilherme Peixoto, a Portuguese priest who doubles as an electronic D.J.`\
+https://nytimes.com/video/world/europe/100000010549597/pope-leo-blessing-rave.html
+
 **New York Sues Over Rule Barring Thousands of Immigrants From SNAP**\
 `The Trump administration says refugees and asylum seekers can never get food stamps, but attorneys general from New York and nearly two dozen other states say that is unlawful.`\
 https://nytimes.com/2025/11/26/nyregion/snap-immigrants-new-york-lawsuit.html
