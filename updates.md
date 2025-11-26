@@ -1,3 +1,15 @@
+**How Leagues Are Responding to Betting Scandals**\
+`Leagues like the N.B.A., M.L.B. and N.F.L. have started to respond to the recent sports betting scandals. Hannah Vanbiber, a senior sports betting editor at The Athletic, explains the latest reactions and how regulations can be changed.`\
+https://nytimes.com/video/the-athletic/100000010546370/how-leagues-are-responding-to-betting-scandals.html
+
+**Drive Back**\
+`John McClung makes his New York Times Crossword debut.`\
+https://nytimes.com/2025/11/25/crosswords/daily-puzzle-2025-11-26.html
+
+**Magic-76ers first half sees Anthony Black score 27, Jalen Suggs ejected**\
+`Tuesday night’s first half between the Magic and 76ers featured some fireworks from Anthony Black and Jalen Suggs.`\
+https://nytimes.com/athletic/6838636/2025/11/25/jalen-suggs-ejected-anthony-black-stats-orlando-76ers/
+
 **Broncos agree to 4-year extension with center Luke Wattenberg: Source**\
 `The deal is for $48 million and comes with $27 million guaranteed, placing him among the league's five highest-paid centers in terms of AAV.`\
 https://nytimes.com/athletic/6838649/2025/11/25/center-luke-wattenberg-contract-four-year-extension/

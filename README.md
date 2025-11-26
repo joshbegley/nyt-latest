@@ -1,3 +1,11 @@
+**John Green on Hope Versus Despair**\
+`John Green is the author of the mega-best-selling “The Fault in Our Stars.`\
+https://nytimes.com/video/podcasts/100000010546368/the-interview-with-john-green-john-green-on-hope-versus-despair.html
+
+**Robert L. Dear Jr., Who Killed 3 at Colorado Planned Parenthood, Dies in Prison**\
+`Four police officers were among those wounded by Mr. Dear in his 2015 rampage when he targeted the clinic in Colorado Springs.`\
+https://nytimes.com/2025/11/25/us/robert-dear-planned-parenthood-dead.html
+
 **How Leagues Are Responding to Betting Scandals**\
 `Leagues like the N.B.A., M.L.B. and N.F.L. have started to respond to the recent sports betting scandals. Hannah Vanbiber, a senior sports betting editor at The Athletic, explains the latest reactions and how regulations can be changed.`\
 https://nytimes.com/video/the-athletic/100000010546370/how-leagues-are-responding-to-betting-scandals.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6837553/2025/11/25/st-louis-cardinals-sonny-gray-tr
 **CJ McCollum's 27-point first half sparks Wizards' win vs. Hawks**\
 `McCollum finished a season-high 46 points to help Washington beat Atlanta.`\
 https://nytimes.com/athletic/6838481/2025/11/25/cj-mccollum-stats-first-half-wizards-hawks/
-
-**The Red Sox like Sonny Gray's strikeout potential, but can he be a No. 2 starter?**\
-`Boston acquired Gray from the Cardinals. He waived his no-trade clause, showing he wants to pitch again in a big market for a playoff team.`\
-https://nytimes.com/athletic/6838204/2025/11/25/boston-red-sox-sonny-gray-trade-fit/
-
-**An Undefeated Football Team and a Missing Coach Who Became a Wanted Man**\
-`An Appalachian community in Virginia was electrified by its high school team’s winning streak. Until the team’s coach disappeared — and allegations against him surfaced.`\
-https://nytimes.com/2025/11/25/us/coach-missing-charges-undefeated-football-team.html
 
