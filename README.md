@@ -1,3 +1,7 @@
+**Deadly Flooding in Thailand Prompts Rescues and Evacuations**\
+`The military sent troops, helicopters and boats to rescue stranded people. At least 33 people have been killed and more than two million displaced over the past week.`\
+https://nytimes.com/2025/11/26/world/asia/southern-thailand-flooding.html
+
 **To stay in the playoff hunt, Cowboys need best version of CeeDee Lamb vs. Chiefs**\
 `The Dallas star receiver had multiple drops against the Eagles — one costly in the end zone — but has moved on: "We need to get this win."`\
 https://nytimes.com/athletic/6838187/2025/11/26/cowboys-ceedee-lamb-drops-thanksgiving-chiefs/
@@ -31,10 +35,6 @@ https://nytimes.com/athletic/6838241/2025/11/26/panthers-rico-dowdle-dave-canale
 https://nytimes.com/issue/todaysinyt/2025/11/26/todays-new-york-times-international-edition
 
 **Huge Fire Engulfs Apartment Buildings in Hong Kong**\
-`Firefighters tried to douse the blaze at an apartment complex in the city’s northern Tai Po district, which reports say killed at least four people.`\
+`Firefighters tried to douse the blaze at an apartment complex in the city’s northern Tai Po district, which killed at least four people.`\
 https://nytimes.com/2025/11/26/world/asia/hong-kong-fire-apartment-buildings.html
-
-**How to watch Western Kentucky vs. Vanderbilt men's basketball: Time, TV, streaming**\
-`Find out how to watch the Western Kentucky Hilltoppers play the Vanderbilt Commodores, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6839333/2025/11/26/western-kentucky-vs-vanderbilt-stream-how-to-watch-nov-26/
 
