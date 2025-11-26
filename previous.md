@@ -1,3 +1,27 @@
+**Cowboys, Rams make cases for top WR duo; Cam Ward shows promise: Week 12 film review**\
+`CeeDee Lamb and George Pickens showed why they're a dangerous combo vs. the Eagles, but where do they rank in the league?`\
+https://nytimes.com/athletic/6835359/2025/11/26/top-wr-duo-cowboys-pickens-lamb-cam-ward/
+
+**What will Connor Bedard's next contract look like for the Blackhawks?**\
+`Considering how Bedard is developing in his third NHL season and the increasing salary cap, there are plenty of reasons for intrigue.`\
+https://nytimes.com/athletic/6836759/2025/11/26/connor-bedard-blackhawks-contract-nhl-projection/
+
+**Yankees mailbag: Will club target Tatsuya Imai? Jasson Domínguez's future**\
+`Elsewhere, what are the odds that the Yankees trade Spencer Jones before Opening Day 2026?`\
+https://nytimes.com/athletic/6837682/2025/11/26/ny-yankees-mailbag-tatsuya-imai/
+
+**How will Lane Kiffin know what to do next? We're here to help**\
+`Trying to figure out what Kiffin is going to do feels like a game. So let's make it one. What do you think he'll do?`\
+https://nytimes.com/athletic/6837093/2025/11/26/lane-kiffin-news-coach-ole-miss-lsu-florida/
+
+**Browns should be encouraged by their rookie class despite the team's uncertain future**\
+`While Cleveland hasn't had much success in the win column this season, the rookie class has been one of the team's bright spots.`\
+https://nytimes.com/athletic/6838032/2025/11/26/browns-rookie-class-uncertain-future/
+
+**Phillies fan survey: How do you feel about the team and this offseason?**\
+`As Phillies fans wait for moves, we invite them to share their opinions on this offseason and the state of the franchise.`\
+https://nytimes.com/athletic/6839353/2025/11/26/phillies-fan-offseason-survey/
+
 **One thing each Hurricanes player is thankful for this season**\
 `Carolina, collectively, can have gratitude for its strong record — but what about individual players?`\
 https://nytimes.com/athletic/6838316/2025/11/26/carolina-hurricanes-slavin-jarvis/
@@ -13,28 +37,4 @@ https://nytimes.com/video/world/asia/100000010549017/hong-kong-apartments-fire.h
 **Ben Johnson's 'secret sauce' for the surging Bears? Preparation, passion, belief**\
 `With a high-stakes Black Friday game on tap, the first-place Bears have an energetic coach and plans to stop the tush push.`\
 https://nytimes.com/athletic/6838093/2025/11/26/bears-ben-johnson-secret-sauce/
-
-**The Lions on TV, a growing national audience and building brand: A Thanksgiving tradition**\
-`"We kind of invented Thanksgiving football when no one else wanted to do it," Lions team president Rod Wood said.`\
-https://nytimes.com/athletic/6837046/2025/11/26/detroit-lions-thanksgiving-tv-packers/
-
-**Do the Knicks need to make a move before the NBA trade deadline?**\
-`Answering Knicks fan questions about the team's depth, Karl-Anthony Towns' inconsistencies and more.`\
-https://nytimes.com/athletic/6836158/2025/11/26/knicks-nba-trade-deadline-mailbag/
-
-**Why Chiefs' Patrick Mahomes says it will be 'surreal' to play Cowboys at AT&T Stadium**\
-`Mahomes was once a Dallas Cowboys fan. It's not the only reason he's looking forward to Thanksgiving.`\
-https://nytimes.com/athletic/6837136/2025/11/26/chiefs-patrick-mahomes-homecoming-cowboys/
-
-**College football rivalry week streaming guide: OSU-Michigan, Iron Bowl, Egg Bowl**\
-`College football's last regular-season weekend awakens rivalries across the country.`\
-https://nytimes.com/athletic/6826975/2025/11/26/ohio-state-michigan-rivalry-texas-alabama-how-to-watch/
-
-**Emma Hayes says opportunities for USWNT players to play in Europe should be 'celebrated'**\
-`Emma Hayes gets asked many versions of the same question a lot. She thinks it shows a lack of understanding of the bigger picture`\
-https://nytimes.com/athletic/6838002/2025/11/26/emma-hayes-uswnt-players-europe/
-
-**Against the Magic, the Sixers looked like the Sixers of last year**\
-`Philadelphia were non-competitive against Orlando, and nowhere near the resilient team they have been for most of the season.`\
-https://nytimes.com/athletic/6839053/2025/11/26/sixers-lose-magic-nba-cup/
 
