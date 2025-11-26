@@ -1,3 +1,7 @@
+**CJ McCollum isn't the Wizards' future, but he gave them a glimpse of it**\
+`McCollum's 46-point outburst against the Hawks provided the young Wizards with a blueprint for what should be their top priority.`\
+https://nytimes.com/athletic/6838013/2025/11/26/cj-mccollum-wizards-future/
+
 **Cowboys, Rams make cases for top WR duo; Cam Ward shows promise: Week 12 film review**\
 `CeeDee Lamb and George Pickens showed why they're a dangerous combo vs. the Eagles, but where do they rank in the league?`\
 https://nytimes.com/athletic/6835359/2025/11/26/top-wr-duo-cowboys-pickens-lamb-cam-ward/
