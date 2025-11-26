@@ -1,3 +1,11 @@
+**NWSL final draws more than 1 million TV viewers, smashes audience record for league**\
+`In-stadium attendance for the NWSL playoffs also surged.`\
+https://nytimes.com/athletic/6838622/2025/11/25/nwsl-championship-tv-record-viewership/
+
+**Why Keep Racing in the Same Park for 50 Years? It Never Gets Old.**\
+`Two runners, Anthony Ruiz and Leo Murillo, have been returning to Van Cortlandt Park for cross-country races since they were in high school in the 1970s.`\
+https://nytimes.com/card/2025/11/26/well/move/van-cortlandt-park-cross-country-masters
+
 **In dealing Sonny Gray, Cardinals' Chaim Bloom shows clear direction. What's next?**\
 `The Cardinals want to return to being perennial contenders, and Bloom is willing to make difficult decisions now to better ensure that.`\
 https://nytimes.com/athletic/6837553/2025/11/25/st-louis-cardinals-sonny-gray-trade-direction/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6837669/2025/11/25/college-football-playoff-ranking
 **In City Hall Housecleaning, Mamdani Asks 179 Adams Staff Members to Quit**\
 `Zohran Mamdani will be sworn in as mayor on Jan. 1. His request for resignations targeted political appointees.`\
 https://nytimes.com/2025/11/25/nyregion/mamdani-adams-staff-resignations.html
-
-**U.S. Announces Negotiated Prices for 15 Drugs Under Medicare**\
-`The Trump administration said that had the new prices been in effect last year, Medicare would have saved $12 billion, which would have reduced its spending on those drugs by 44 percent.`\
-https://nytimes.com/2025/11/25/health/drugs-prices-medicare.html
-
-**The New Putin Calendar Is Here: ‘A Man for Every Season’**\
-`January shows the Russian leader astride a snowmobile. For February, he flips a judo partner. In August, he offers advice: “My recipe for energy: Sleep little, work a lot and don’t whine.”`\
-https://nytimes.com/2025/11/25/world/europe/putin-calendar-russia.html
 
