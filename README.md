@@ -1,3 +1,15 @@
+**F.D.A. Withdraws Rule to Require Testing Cosmetics Made With Talc for Asbestos**\
+`The agency said it planned to craft a more comprehensive rule, but the move alarmed public health advocates, who have long worked to eliminate asbestos in consumer products.`\
+https://nytimes.com/2025/11/26/health/fda-cosmetics-talc-asbestos.html
+
+**U.K. Budget Plan Calms Markets and Labour Faithful. Will It Appeal to Voters?**\
+`The plan presented by the chancellor of the Exchequer, Rachel Reeves, called for spending increases and higher taxes on the wealthy and the middle class.`\
+https://nytimes.com/2025/11/26/world/europe/uk-budget-starmer-reeves.html
+
+**Former Lions All-Pro center Frank Ragnow comes out of retirement**\
+`The three-time All Pro second teamer will be a massive boost to Detroit's offensive line that has struggled at points this season.`\
+https://nytimes.com/athletic/6840886/2025/11/26/frank-ragnow-lions-retirement-comeback/
+
 **An Asia-Pacific Showdown**\
 `China and Japan are in a diplomatic feud over Taiwan, with President Trump in the middle.`\
 https://nytimes.com/2025/11/26/world/china-japan-trump-showdown-fire-riyadh.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/11/26/style/tiny-modern-love-stories-no-hugging-and-def
 **Workers Inflate Balloons Ahead of Macy’s Thanksgiving Day Parade**\
 `Teams of workers in New York City began inflating balloons on Wednesday for the 99th Macy’s Thanksgiving Day Parade.`\
 https://nytimes.com/video/nyregion/100000010550198/macys-thanksgiving-parade-balloon-inflation.html
-
-**Health Care, Ukraine Differences Roil a Chaotic G.O.P. Congress**\
-`Republican lawmakers and the White House have unloaded on one another as post-shutdown tension over policy and performance spreads across Capitol Hill.`\
-https://nytimes.com/2025/11/26/us/health-care-ukraine-congress-gop.html
-
-**How to watch Spurs vs. Trail Blazers: Time, TV, streaming**\
-`Find out how to watch the San Antonio Spurs play the Portland Trail Blazers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6840774/2025/11/26/spurs-vs-trail-blazers-stream-how-to-watch-nov-26/
-
-**How to watch Bucks vs. Heat: Time, TV, streaming**\
-`Find out how to watch the Milwaukee Bucks play the Miami Heat, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6840772/2025/11/26/bucks-vs-heat-stream-how-to-watch-nov-26/
 
