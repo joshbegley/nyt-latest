@@ -1,3 +1,11 @@
+**A Speedy Art-Career Rise Fueled by a Descent Into Our Modern Abyss**\
+`Contemporary life, speculative fiction, Asian futurism and social documentary all meet in Ayoung Kim’s videos at MoMA PS1. And are they fun to watch!`\
+https://nytimes.com/2025/11/26/arts/design/ayoung-kim-video-artist-ps1.html
+
+**Gibbs-White to miss Nottingham Forest's Malmo tie through injury**\
+`The midfielder has picked up what manager Sean Dyche described as a minor injury, adding he was "hopeful" it was nothing serious.`\
+https://nytimes.com/athletic/6839985/2025/11/26/morgan-gibbs-white-injury-nottingham-forest/
+
 **‘The Secret Agent’ Review: Carnival in the Face of Carnage**\
 `Wagner Moura takes cover in this knockout from the filmmaker Kleber Mendonça Filho that is largely set in 1977 during Brazil’s miliary dictatorship.`\
 https://nytimes.com/2025/11/26/movies/the-secret-agent-review.html
