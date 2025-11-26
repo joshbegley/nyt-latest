@@ -1,3 +1,15 @@
+**F.D.A. Withdraws Rule to Require Testing Cosmetics Made With Talc for Asbestos**\
+`The agency said it planned to craft a more comprehensive rule, but the move alarmed public health advocates, who have long worked to eliminate asbestos in consumer products.`\
+https://nytimes.com/2025/11/26/health/fda-cosmetics-talc-asbestos.html
+
+**U.K. Budget Plan Calms Markets and Labour Faithful. Will It Appeal to Voters?**\
+`The plan presented by the chancellor of the Exchequer, Rachel Reeves, called for spending increases and higher taxes on the wealthy and the middle class.`\
+https://nytimes.com/2025/11/26/world/europe/uk-budget-starmer-reeves.html
+
+**Former Lions All-Pro center Frank Ragnow comes out of retirement**\
+`The three-time All Pro second teamer will be a massive boost to Detroit's offensive line that has struggled at points this season.`\
+https://nytimes.com/athletic/6840886/2025/11/26/frank-ragnow-lions-retirement-comeback/
+
 **An Asia-Pacific Showdown**\
 `China and Japan are in a diplomatic feud over Taiwan, with President Trump in the middle.`\
 https://nytimes.com/2025/11/26/world/china-japan-trump-showdown-fire-riyadh.html
