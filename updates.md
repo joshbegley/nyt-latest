@@ -1,3 +1,5 @@
+
+
 **North Carolina Can Use Republican-Friendly Congressional Map, Court Says**\
 `The district court ruling means that the party is one step closer to securing another seat in the U.S. House and retain its majority, at the urging of President Trump.`\
 https://nytimes.com/2025/11/26/us/north-carolina-congressional-map-republicans.html
