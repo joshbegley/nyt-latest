@@ -1,3 +1,15 @@
+**Taiwan’s President to Seek an Extra $40 Billion for Military**\
+`President Lai Ching-te says the spending, which must be approved by the island’s legislature, would fund purchases of arms from the United States.`\
+https://nytimes.com/2025/11/25/world/asia/taiwan-40-billion-military-trump.html
+
+**John Green on Hope Versus Despair**\
+`John Green is the author of the mega-best-selling “The Fault in Our Stars.`\
+https://nytimes.com/video/podcasts/100000010546368/the-interview-with-john-green-john-green-on-hope-versus-despair.html
+
+**Robert L. Dear Jr., Who Killed 3 at Colorado Planned Parenthood, Dies in Prison**\
+`Four police officers were among those wounded by Mr. Dear in his 2015 rampage when he targeted the clinic in Colorado Springs.`\
+https://nytimes.com/2025/11/25/us/robert-dear-planned-parenthood-dead.html
+
 **How Leagues Are Responding to Betting Scandals**\
 `Leagues like the N.B.A., M.L.B. and N.F.L. have started to respond to the recent sports betting scandals. Hannah Vanbiber, a senior sports betting editor at The Athletic, explains the latest reactions and how regulations can be changed.`\
 https://nytimes.com/video/the-athletic/100000010546370/how-leagues-are-responding-to-betting-scandals.html
