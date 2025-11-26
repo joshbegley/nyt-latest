@@ -1,3 +1,7 @@
+**U.S. Announces Negotiated Prices for 15 Drugs Under Medicare**\
+`The Trump administration said that had the new prices been in effect last year, Medicare would have saved $12 billion, which would have reduced its spending on those drugs by 44 percent.`\
+https://nytimes.com/2025/11/25/health/drugs-prices-medicare.html
+
 **The New Putin Calendar Is Here: ‘A Man for Every Season’**\
 `January shows the Russian leader astride a snowmobile. For February, he flips a judo partner. In August, he offers advice: “My recipe for energy: Sleep little, work a lot and don’t whine.”`\
 https://nytimes.com/2025/11/25/world/europe/putin-calendar-russia.html
