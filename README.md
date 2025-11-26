@@ -1,3 +1,11 @@
+**The Red Sox like Sonny Gray's strikeout potential, but can he be a No. 2 starter?**\
+`For his part, in waiving his no-trade clause, Gray showed his desire to once again pitch in a big market for a playoff contender.`\
+https://nytimes.com/athletic/6838204/2025/11/25/boston-red-sox-sonny-gray-trade-fit/
+
+**An Undefeated Football Team and a Missing Coach Who Became a Wanted Man**\
+`An Appalachian community in Virginia was electrified by its high school team’s winning streak. Until the team’s coach disappeared — and allegations against him surfaced.`\
+https://nytimes.com/2025/11/25/us/coach-missing-charges-undefeated-football-team.html
+
 **The Gifts We’re Most Excited About This Year**\
 `Text by Wirecutter Staff`\
 https://nytimes.com/card/2025/11/26/smarter-living/wirecutter/
@@ -29,12 +37,4 @@ https://nytimes.com/video/travel/100000010547959/ethiopia-volcano-india-flight-d
 **Trump Administration Will Raise Prices for Foreign Tourists at National Parks**\
 `The price increases comes as more and more international travelers are choosing to stay away from the United States and amid turmoil at the National Park Service.`\
 https://nytimes.com/2025/11/25/us/politics/national-parks-prices-tourists-trump.html
-
-**Ranking college football's 13 open coaching jobs: LSU No. 1; Cal or Stanford?**\
-`This could be the most active coaching carousel college football has seen in many years.`\
-https://nytimes.com/athletic/6662286/2025/11/25/college-football-open-coaching-jobs-rankings/
-
-**How to watch Bills vs. Steelers: Time, TV, streaming**\
-`Find out how to watch the Buffalo Bills play the Pittsburgh Steelers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6838264/2025/11/25/how-to-watch-bills-vs-steelers-tv-channel-and-streaming-options-for-november-30/
 
