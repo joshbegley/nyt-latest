@@ -1,3 +1,11 @@
+**‘The Secret Agent’ Review: Carnival in the Face of Carnage**\
+`Wagner Moura takes cover in this knockout from the filmmaker Kleber Mendonça Filho that is largely set in 1977 during Brazil’s miliary dictatorship.`\
+https://nytimes.com/2025/11/26/movies/the-secret-agent-review.html
+
+**Grand Slam Track asks vendors to swallow millions in losses to save Michael Johnson's league**\
+`The start-up track organization beset by financial problems has sent letters asking vendors to accept 50 percent of what they are owed.`\
+https://nytimes.com/athletic/6837948/2025/11/26/grand-slam-track-michael-johnson-debts-bankruptcy/
+
 **Arsenal's Munoz, 13, becomes youngest UEFA Youth League player**\
 `The 2011-born midfielder came on in the 85th minute to play alongside Max Dowman and Emerson Nwaneri.`\
 https://nytimes.com/athletic/6839858/2025/11/26/arsenal-munoz-record-youngest-player/
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/asia/100000010549033/thailand-military-deploymen
 **How a Canucks white flag is a Canadiens opportunity — and a test of their patience**\
 `The Canucks have let every other team know their UFAs are available, and one of them should be very appealing to the Canadiens.`\
 https://nytimes.com/athletic/6839084/2025/11/26/canadiens-canucks-trade-sherwood-nhl/
-
-**Map: Small Quakes Shake Northern California**\
-`View the location of the quake’s epicenter and shake area.`\
-https://nytimes.com/interactive/2025/11/26/us/earthquake-northern-california-gilroy.html
-
-**The Bounce: What every NBA team should be thankful for. Plus, an NBA Cupdate**\
-`Zach Harper catches you up on the latest NBA news in our newsletter.`\
-https://nytimes.com/athletic/6839827/2025/11/26/nba-cup-thankful-thunder-spurs-the-bounce/
 
