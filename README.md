@@ -1,3 +1,15 @@
+**Matthews, Knies to return to Maple Leafs lineup vs. Blue Jackets**\
+`Having lost seven of their last eight games and sitting last place in the Eastern Conference, the lineup changes come at a crucial point.`\
+https://nytimes.com/athletic/6840451/2025/11/26/auston-matthews-matthew-knies-maple-leafs/
+
+**NFL Week 13 confidence picks: Why the Cowboys will upset the Chiefs**\
+`KC Joyner's confidence picks have been on a roll lately. This week, his top picks are the Seahawks, Rams and Broncos.`\
+https://nytimes.com/athletic/6839543/2025/11/26/nfl-week-13-confidence-picks-cowboys-chiefs/
+
+**Ex-Arsenal player Cygan wants to send NYC mayor Mamdani an old jersey**\
+`Speaking about his love of Arsenal earlier this week, Mamdani had said: "Every day I wake up, I think about Squillaci, Cygan, Chamakh."`\
+https://nytimes.com/athletic/6840550/2025/11/26/zohran-mamdani-arsenal-pascal-cygan/
+
 **Smoke, a Knock on the Door and a Battle to Escape**\
 `Residents describe how a blaze in a high-rise building in Hong Kong quickly spread, taking many by surprise and trapping an unknown number of people in the burning buildings.`\
 https://nytimes.com/2025/11/26/world/asia/hong-kong-apartments-fire-residents.html
@@ -10,27 +22,15 @@ https://nytimes.com/athletic/6840292/2025/11/26/alex-rodriguez-points-to-hypocri
 `The Patriots will place Campbell, the No. 4 pick in the 2025 NFL Draft, on injured reserve. He'll miss at least the next four games.`\
 https://nytimes.com/athletic/6840446/2025/11/26/will-campbell-patriots-injured-reserve/
 
-**Bamboo scaffolding, like cladding, can create an unforgiving challenge for firefighters, an expert says.**\
+**The fire in Hong Kong shared similarities with a fire at the Grenfell Tower in London.**\
 `By James Glanz`\
-https://nytimes.com/live/2025/11/26/world/hong-kong-fire/hongkong-fire-grenfell
+https://nytimes.com/live/2025/11/26/world/hong-kong-fire/bamboo-scaffolding-hong-kong-fire
 
-**Trump Administration Says It Will Not Commemorate World AIDS Day**\
+**Trump Administration Will No Longer Commemorate World AIDS Day**\
 `The State Department warned employees not to use government funds for the occasion and to “refrain from publicly promoting World AIDS Day through any communication channels.”`\
 https://nytimes.com/2025/11/26/health/trump-us-world-aids-day.html
 
 **What’s in Our Queue? ‘Didi’ and More**\
 `Text by Livia Albeck-Ripka`\
 https://nytimes.com/card/2025/11/26/arts/editors-recommendations-didi
-
-**NFL Week 13 survivor pool advice: Which teams you should trust and those to be wary of**\
-`Adam Gretz and Renee Miller answer reader questions and give their survivor pool picks for Week 13. `\
-https://nytimes.com/athletic/6840270/2025/11/26/nfl-week-13-survivor-pool-picks-strategy-chargers/
-
-**Falcons battling to save their season despite rash of injuries**\
-`The Falcons, who face the Jets on Sunday in New York, have lost four starters and several key reserves for the season due to injury.`\
-https://nytimes.com/athletic/6837242/2025/11/26/falcons-injuries-drake-london-michael-penix/
-
-**Broncos sign DL Malcolm Roach to 3-year deal: Source**\
-`After helping resurrect the Broncos’ run defense in the two seasons since his arrival, Roach is cashing in on a much more lucrative deal.`\
-https://nytimes.com/athletic/6840404/2025/11/26/broncos-malcolm-roach-contract-deal/
 

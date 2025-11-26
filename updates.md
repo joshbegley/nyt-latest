@@ -1,5 +1,13 @@
 **Smoke, a Knock on the Door and a Battle to Escape**\
 `Residents describe how a blaze in a high-rise building in Hong Kong quickly spread, taking many by surprise and trapping an unknown number of people in the burning buildings.`\
+https://nytimes.com/2025/11/26/world/asia/hong-kong-apartments-fire-residents.html
+
+**Trump Administration Says It Will Not Commemorate World AIDS Day**\
+`The State Department warned employees not to use government funds for the occasion and to “refrain from publicly promoting World AIDS Day through any communication channels.”`\
+https://nytimes.com/2025/11/26/health/trump-us-world-aids-day.html
+
+**Smoke, a Knock on the Door and a Battle to Escape**\
+`Residents describe how a blaze in a high-rise building in Hong Kong quickly spread, taking many by surprise and trapping an unknown number of people in the burning buildings.`\
 https://nytimes.com/2025/11/26/world/asia/smoke-a-knock-on-the-door-and-a-battle-to-escape.html
 
 **Alex Rodriguez points to 'hypocrisy' behind Bud Selig’s Hall of Fame induction**\
