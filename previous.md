@@ -1,40 +1,40 @@
-**Deadly Flooding in Thailand Prompts Rescues and Evacuations**\
-`The military sent troops, helicopters and boats to rescue stranded people. At least 33 people have been killed and more than two million displaced over the past week.`\
-https://nytimes.com/2025/11/26/world/asia/southern-thailand-flooding.html
+**Ben Johnson's 'secret sauce' for the surging Bears? Preparation, passion, belief**\
+`With a high-stakes Black Friday game on tap, the first-place Bears have an energetic coach and plans to stop the tush push.`\
+https://nytimes.com/athletic/6838093/2025/11/26/bears-ben-johnson-secret-sauce/
 
-**To stay in the playoff hunt, Cowboys need best version of CeeDee Lamb vs. Chiefs**\
-`The Dallas star receiver had multiple drops against the Eagles — one costly in the end zone — but has moved on: "We need to get this win."`\
-https://nytimes.com/athletic/6838187/2025/11/26/cowboys-ceedee-lamb-drops-thanksgiving-chiefs/
+**The Lions on TV, a growing national audience and building brand: A Thanksgiving tradition**\
+`"We kind of invented Thanksgiving football when no one else wanted to do it," Lions team president Rod Wood said.`\
+https://nytimes.com/athletic/6837046/2025/11/26/detroit-lions-thanksgiving-tv-packers/
 
-**If you want to believe in Aaron Glenn's Jets, start here**\
-`As the first-year coach pledges a brighter future, there are reasons he should be believed.`\
-https://nytimes.com/athletic/6837647/2025/11/26/aaron-glenn-new-york-jets-rebuild-optimism/
+**Do the Knicks need to make a move before the NBA trade deadline?**\
+`Answering Knicks fan questions about the team's depth, Karl-Anthony Towns' inconsistencies and more.`\
+https://nytimes.com/athletic/6836158/2025/11/26/knicks-nba-trade-deadline-mailbag/
 
-**What will it take for the Steelers to make the playoffs?**\
-`According to The Athletic’s NFL Playoff Simulator, the Steelers currently have an 18 percent chance to make the postseason.`\
-https://nytimes.com/athletic/6838509/2025/11/26/steelers-playoffs-chances-nfl/
+**Why Chiefs' Patrick Mahomes says it will be 'surreal' to play Cowboys at AT&T Stadium**\
+`Mahomes was once a Dallas Cowboys fan. It's not the only reason he's looking forward to Thanksgiving.`\
+https://nytimes.com/athletic/6837136/2025/11/26/chiefs-patrick-mahomes-homecoming-cowboys/
 
-**Setting the table for an NFL Thanksgiving slate packed with playoff implications**\
-`Seven of the eight teams playing Thursday and Friday are in the thick of a playoff race. `\
-https://nytimes.com/athletic/6836828/2025/11/26/nfl-thanksgiving-games-cowboys-chiefs-lions-packers/
+**College football rivalry week streaming guide: OSU-Michigan, Iron Bowl, Egg Bowl**\
+`College football's last regular-season weekend awakens rivalries across the country.`\
+https://nytimes.com/athletic/6826975/2025/11/26/ohio-state-michigan-rivalry-texas-alabama-how-to-watch/
 
-**A journey to Michigan's Upper Peninsula, where the Lions and Packers draw the lines**\
-`On a swath of land in Michigan, Lions and Packers fans live side-by-side. They're called the Yoopers.`\
-https://nytimes.com/athletic/6837163/2025/11/26/detroit-lions-green-bay-packers-yoopers/
+**Emma Hayes says opportunities for USWNT players to play in Europe should be 'celebrated'**\
+`Emma Hayes gets asked many versions of the same question a lot. She thinks it shows a lack of understanding of the bigger picture`\
+https://nytimes.com/athletic/6838002/2025/11/26/emma-hayes-uswnt-players-europe/
 
-**The Year of Tommy**\
-`Scottie Scheffler won two majors. Rory McIlroy won the career Grand Slam. But why is it we can't stop talking about Tommy Fleetwood?`\
-https://nytimes.com/athletic/6836563/2025/11/26/tommy-fleetwood-pga-tour-win-ryder-cup-star/
+**Against the Magic, the Sixers looked like the Sixers of last year**\
+`Philadelphia were non-competitive against Orlando, and nowhere near the resilient team they have been for most of the season.`\
+https://nytimes.com/athletic/6839053/2025/11/26/sixers-lose-magic-nba-cup/
 
-**Confused by the Panthers' pass-heavy play calls vs. 49ers? Rico Dowdle probably was, too**\
-`One of the league's top runners, Rico Dowdle had just six carries for 38 yards in the loss Monday night in San Francisco.`\
-https://nytimes.com/athletic/6838241/2025/11/26/panthers-rico-dowdle-dave-canales-49ers/
+**Josh Allen has some Hall of Fame credentials. Are Bills wasting him without more support?**\
+`Allen's supporting cast has remained meager this season.`\
+https://nytimes.com/athletic/6838275/2025/11/26/buffalo-bills-josh-allen-hall-of-fame-credentials/
 
-**The New York Times International Edition in Print for Thursday, Nov. 27, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/11/26/todays-new-york-times-international-edition
+**'We keep touching the stove': Bulls' latest stretch a reminder of slow-burn defense**\
+`The Bulls' defensive soul searching, an identity in their infancy, burst into view this week.`\
+https://nytimes.com/athletic/6837688/2025/11/26/bulls-nba-defense/
 
-**Huge Fire Engulfs Apartment Buildings in Hong Kong**\
-`Firefighters tried to douse the blaze at an apartment complex in the city’s northern Tai Po district, which killed at least four people.`\
-https://nytimes.com/2025/11/26/world/asia/hong-kong-fire-apartment-buildings.html
+**Ravens' Nate Wiggins is drenched in confidence. And for him, that's nothing new**\
+`The 2024 first-round pick has always been extremely talented, but his most impressive trait may be the supreme confidence he has in himself.`\
+https://nytimes.com/athletic/6835530/2025/11/26/nate-wiggins-ravens-cornerback-confidence/
 
