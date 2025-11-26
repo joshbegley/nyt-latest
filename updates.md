@@ -1,3 +1,7 @@
+**Broncos sign DL Malcolm Roach to 3-year deal: Source**\
+`After helping resurrect the Broncos’ run defense in the two seasons since his arrival, Roach is cashing in on a much more lucrative deal.`\
+https://nytimes.com/athletic/6840404/2025/11/26/broncos-malcolm-roach-contract-deal/
+
 **Yes, the Flyers will have to make a big trade. No, it doesn't mean everyone is available**\
 `Whether or not Quinn Hughes will be available, the Flyers will look at a big move — but only at a certain cost.`\
 https://nytimes.com/athletic/6840341/2025/11/26/philadelphia-flyers-trade-hughes-michkov/
