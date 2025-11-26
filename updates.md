@@ -1,3 +1,7 @@
+**College football rivalry week projected scores: Model predicts every FBS game**\
+`Austin Mock's projection model takes a look at what to expect for rivalry week, including just how close the Texas A&M-Texas game is.`\
+https://nytimes.com/athletic/6840958/2025/11/26/college-football-rivalry-week-projected-scores-model/
+
 **E.P.A. Delays Requirements to Cut Methane, a Potent Greenhouse Gas**\
 `Oil and gas firms were supposed to start reducing methane, a powerful driver of climate change. The agency is giving them more time and may cancel the requirement.`\
 https://nytimes.com/2025/11/26/climate/epa-delays-methane-oil-gas.html
