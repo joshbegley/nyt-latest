@@ -1,3 +1,7 @@
+**Broncos' Alex Singleton back in action after having cancerous tumor removed**\
+`Star cornerback Pat Surtain, who missed the past three games with a pectoral injury, also returned to practice Wednesday.`\
+https://nytimes.com/athletic/6837639/2025/11/26/broncos-alex-singleton-return-cancer/
+
 **There have been numerous instances of violence near the White House over the years.**\
 `By Soumya Karlamangla`\
 https://nytimes.com/live/2025/11/26/us/national-guard-shooting-dc/there-have-been-numerous-instances-of-violence-near-the-white-house-over-the-years

@@ -1,3 +1,11 @@
+**Blue Jays, Dylan Cease agree to seven-year, $210 million contract: Sources**\
+`With Max Scherzer and Chris Bassitt coming off the books, the Jays entered the winter looking to add a top starter. `\
+https://nytimes.com/athletic/6801828/2025/11/26/toronto-blue-jays-dylan-cease-free-agent-signing-sources/
+
+**Raiders' Geno Smith apologizes for flipping off fans**\
+`It's the second time this season Smith has flipped off fans.`\
+https://nytimes.com/athletic/6841108/2025/11/26/geno-smith-apologizes-raiders-fans/
+
 **Broncos' Alex Singleton back in action after having cancerous tumor removed**\
 `Star cornerback Pat Surtain, who missed the past three games with a pectoral injury, also returned to practice Wednesday.`\
 https://nytimes.com/athletic/6837639/2025/11/26/broncos-alex-singleton-return-cancer/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/26/world/canada/trump-carney-canada-tariffs-trade.ht
 **College basketball player in Oklahoma dies after suffering head injury during game**\
 `Ethan Dietz, a 6-foot-8 forward for Connors State College in eastern Oklahoma, was injured during the Cowboys’ game against Grayson College`\
 https://nytimes.com/athletic/6841002/2025/11/26/connors-state-ethan-dietz-death/
-
-**College football picks ATS: OSU-Michigan, Iron Bowl make for loaded rivalry week**\
-`Rivalry week features plenty of games with tons on the line beyond bragging rights. See how our staff is picking the games.`\
-https://nytimes.com/athletic/6837661/2025/11/26/college-football-rivalry-week-picks-spread-ohio-state-michigan-alabama-auburn/
-
-**College football rivalry week projected scores: Model predicts every FBS game**\
-`Austin Mock's projection model takes a look at what to expect for rivalry week, including just how close the Texas A&M-Texas game is.`\
-https://nytimes.com/athletic/6840958/2025/11/26/college-football-rivalry-week-projected-scores-model/
 
