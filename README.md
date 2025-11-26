@@ -1,3 +1,11 @@
+**Jakarta Shoots to No. 1 in World Population Ranking From No. 33. How?**\
+`The capital of Indonesia surpassed Tokyo as the world’s most populous city after the United Nations overhauled how it measures urban populations.`\
+https://nytimes.com/2025/11/26/world/asia/worlds-largest-city-un-jakarta-indonesia.html
+
+**After another loss, Clippers fortunes vs. the Lakers have been reversed**\
+`The Clippers were on a serious roll against the Lakers as recently as January. Then the Lakers got Luka Dončić and everything changed.`\
+https://nytimes.com/athletic/6839251/2025/11/26/clippers-lakers-reversal-fortunes/
+
 **What I'm hearing about J.J. McCarthy, Jerry Jones' trade steal and more**\
 `Also: Tom Brady's Raiders frustrations, Kyle Shanahan's latest masterpiece and the NFL storylines that will carry Thanksgiving conversation.`\
 https://nytimes.com/athletic/6838665/2025/11/26/nfl-rumors-news-j-j-mccarthy-jerry-jones-george-pickens/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6837696/2025/11/26/ohio-state-michigan-rivalry-losi
 **Coaching carousel notebook: Where key searches stand entering Thanksgiving weekend**\
 `We’re days away from the regular season ending and coaches officially taking news jobs, including Lane Kiffin … right?`\
 https://nytimes.com/athletic/6839012/2025/11/26/cfb-coaching-carousel-latest-lane-kiffin/
-
-**Can Lamar Jackson find his superstar self before it's too late?: Week 12 Quick Outs**\
-`Jackson found enough of a groove through the air to secure a win Sunday, but he still doesn't have the explosiveness we're used to seeing.`\
-https://nytimes.com/athletic/6836313/2025/11/26/nfl-week-12-jackson-ravens-playoff-push/
-
-**Is there any hope for Dakota Joshua and Matias Maccelli with the Leafs?**\
-`For Joshua and Maccelli, “there’s no time to be the new guy anymore” — and they're running out of time to find their way with Toronto.`\
-https://nytimes.com/athletic/6837677/2025/11/26/maple-leafs-dakota-joshua-matias-maccelli/
 
