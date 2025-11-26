@@ -1,3 +1,7 @@
+**As Prices Pinch, Bessent Looks for Ways to Mollify Wary Consumers**\
+`Treasury Secretary Scott Bessent has offered a variety of creative justifications for President Trump’s import duties.`\
+https://nytimes.com/2025/11/26/business/scott-bessent-inflation.html
+
 **Feringa: 'Women’s sports fans just want to be respected as sport fans'**\
 `The Women's League Cup draw descended into chaos, marred by lewd sexual innuendos and a ball mistakenly being placed back into the bag`\
 https://nytimes.com/athletic/6839244/2025/11/26/womens-league-cup-sports-fans-soccer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6837948/2025/11/26/grand-slam-track-michael-johnson
 **Arsenal's Munoz, 13, becomes youngest UEFA Youth League player**\
 `The 2011-born midfielder came on in the 85th minute to play alongside Max Dowman and Emerson Nwaneri.`\
 https://nytimes.com/athletic/6839858/2025/11/26/arsenal-munoz-record-youngest-player/
-
-**Did the Giant Heads of Easter Island Once Walk?**\
-`Scholars have long debated how the massive stone figures of Rapa Nui got to where they stand today. A new study offers one possible explanation.`\
-https://nytimes.com/2025/11/26/science/archaeology-easter-island-rapa-nui.html
 

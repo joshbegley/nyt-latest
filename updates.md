@@ -1,3 +1,19 @@
+**Feringa: 'Women’s sports fans just want to be respected as sport fans'**\
+`The Women's League Cup draw descended into chaos, marred by lewd sexual innuendos and a ball mistakenly being placed back into the bag`\
+https://nytimes.com/athletic/6839244/2025/11/26/womens-league-cup-sports-fans-soccer/
+
+**Pope Leo Blesses Rave-Goers in Slovakia**\
+`A papal video message appeared before a crowd of hundreds, as Guilherme Peixoto, a priest who doubles as an electronic D.J., put on a show.`\
+https://nytimes.com/2025/11/26/world/europe/pope-leo-rave-blessing-slovakia.html
+
+**Trump Defends Envoy’s Tactics in Ukraine Negotiations**\
+`President Trump said the envoy, Steve Witkoff, was using standard negotiating methods, after he appeared to coach a Russian official in a leaked call.`\
+https://nytimes.com/2025/11/26/us/politics/trump-ukraine-peace-deal-witkoff.html
+
+**Ranking college football's 12 open coaching jobs: LSU No. 1; Cal or Stanford?**\
+`This could be the most active coaching carousel college football has seen in many years.`\
+https://nytimes.com/athletic/6662286/2025/11/26/college-football-open-coaching-jobs-rankings/
+
 **A Speedy Art-Career Rise Fueled by a Descent Into Our Modern Abyss**\
 `Contemporary life, speculative fiction, Asian futurism and social documentary all meet in Ayoung Kim’s videos at MoMA PS1. And are they fun to watch!`\
 https://nytimes.com/2025/11/26/arts/design/ayoung-kim-video-artist-ps1.html
