@@ -1,3 +1,11 @@
+**Mbatata (Sweet Potato Cookies)**\
+`Mbatata is the word in Chichewa for the dense, creamy variety of this starchy root vegetable.`\
+https://nytimes.com/video/dining/100000010546461/mbatata-sweet-potato-cookies.html
+
+**The Orlando Magic are thriving. Can they keep playing this well?**\
+`Tuesday's big win over the 76ers was Orlando at its best. "I think we're figuring out our identity," forward Franz Wagner said.`\
+https://nytimes.com/athletic/6838968/2025/11/26/orlando-magic-franz-wagner-paolo-banchero-desmond-bane/
+
 **What's the best college football rivalry? We ranked the top 100**\
 `Rivalries form the backbone of college football. After months of research and debate, here's how the top 100 stack up.`\
 https://nytimes.com/athletic/6469306/2025/11/26/best-college-football-rivalries-rankings-100/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/26/technology/personaltech/iphone-google-pixel-smart
 **Jesus Bot Is Always on Demand (for a Small Monthly Fee)**\
 `Faith is not meant to be transactional or tailored to you.`\
 https://nytimes.com/2025/11/26/opinion/faith-bot-individualism.html
-
-**I Think My Good Friend Is Betraying Me, but I’m Not Sure. What Should I Do?**\
-`A reader suspects that a friend is divulging her secrets. If not, why do people around town seem to know her personal business?`\
-https://nytimes.com/2025/11/26/style/friendship-secrets-trust.html
-
-**The Kings are starting to trust Brandt Clarke, and he's pushing for more**\
-`The day Clarke takes the reins as the Kings' No. 1 option is still a ways away, but the young defenseman looks primed to get there.`\
-https://nytimes.com/athletic/6838046/2025/11/26/brandt-clarke-kings-doughty/
 
