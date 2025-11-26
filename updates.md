@@ -1,3 +1,7 @@
+**Latest CFP Top 25 leaves BYU, Miami, Utah on brink of final at-large spot**\
+`Every team ranked in the top 14 that played in Week 13 won, leaving little opportunity for movement in the rankings.`\
+https://nytimes.com/athletic/6837669/2025/11/25/college-football-playoff-rankings-byu-utah-miami/
+
 **In City Hall Housecleaning, Mamdani Asks 179 Adams Staff Members to Quit**\
 `Zohran Mamdani will be sworn in as mayor on Jan. 1. His request for resignations targeted political appointees.`\
 https://nytimes.com/2025/11/25/nyregion/mamdani-adams-staff-resignations.html
