@@ -1,3 +1,15 @@
+**Mbatata (Sweet Potato Cookies)**\
+`Mbatata is the word in Chichewa for the dense, creamy variety of this starchy root vegetable.`\
+https://nytimes.com/video/dining/100000010546461/mbatata-sweet-potato-cookies.html
+
+**The Orlando Magic are thriving. Can they keep playing this well?**\
+`Tuesday's big win over the 76ers was Orlando at its best. "I think we're figuring out our identity," forward Franz Wagner said.`\
+https://nytimes.com/athletic/6838968/2025/11/26/orlando-magic-franz-wagner-paolo-banchero-desmond-bane/
+
+**What's the best college football rivalry? We ranked the top 100**\
+`Rivalries form the backbone of college football. After months of research and debate, here's how the top 100 stack up.`\
+https://nytimes.com/athletic/6469306/2025/11/26/best-college-football-rivalries-rankings-100/
+
 **Apple TV Series ‘The Hunt’ Is Pulled Amid Accusations of Plagiarism**\
 `Apple TV postponed the launch of the French-language series following accusations that its creator copied key elements from a 1973 novel.`\
 https://nytimes.com/2025/11/26/arts/television/apple-tv-the-hunt-plagiarism.html
