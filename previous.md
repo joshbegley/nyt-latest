@@ -1,3 +1,7 @@
+**Cole Palmer FC? Chelsea are showing they can flourish with or without their key man**\
+`The prospect of facing Arsenal without their No 10 was once a cause for major concern. Now, Chelsea have plenty of other attacking options`\
+https://nytimes.com/athletic/6838600/2025/11/26/chelsea-cole-palmer-estevao-barcelona/
+
 **Colorado State expected to hire UConn coach Jim Mora: Source**\
 `Mora just wrapped up his fourth regular season at UConn last week, posting a second consecutive nine-win season.`\
 https://nytimes.com/athletic/6838947/2025/11/26/colorado-state-uconn-jim-mora-cfb/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6837116/2025/11/26/arsenal-women-champions-league-w
 **Arsenal's 'Make it happen' scarves and what they say about Arteta and psychology**\
 `The slogan is visible throughout the club, but these motiviational tactics affect players positively? Or can they breed scepticism?`\
 https://nytimes.com/athletic/6836084/2025/11/26/mikel-arteta-arsenal-psychology-make-it-happen/
-
-**Ilias Chair and the day everything changed: 'I just wish I could take it back'**\
-`The Morocco midfielder speaks for the first time about his 2024 assault conviction and how he has tried to rebuild his life`\
-https://nytimes.com/athletic/6337353/2025/11/26/ilias-chair-qpr-assault-interview/
 

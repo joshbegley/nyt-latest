@@ -1,3 +1,7 @@
+**Cole Palmer FC? Chelsea are showing they can flourish with or without their key man**\
+`The prospect of facing Arsenal without their No 10 was once a cause for major concern. Now, Chelsea have plenty of other attacking options`\
+https://nytimes.com/athletic/6838600/2025/11/26/chelsea-cole-palmer-estevao-barcelona/
+
 **Colorado State expected to hire UConn coach Jim Mora: Source**\
 `Mora just wrapped up his fourth regular season at UConn last week, posting a second consecutive nine-win season.`\
 https://nytimes.com/athletic/6838947/2025/11/26/colorado-state-uconn-jim-mora-cfb/
