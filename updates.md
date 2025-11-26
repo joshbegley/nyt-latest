@@ -1,3 +1,19 @@
+**How to watch Ohio State vs. West Virginia women's basketball: Time, TV, streaming**\
+`Find out how to watch the Ohio State Buckeyes play the West Virginia Mountaineers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6839667/2025/11/26/ohio-state-vs-west-virginia-stream-how-to-watch-nov-26/
+
+**How to watch Notre Dame vs. Houston men's basketball: Time, TV, streaming**\
+`Find out how to watch the Notre Dame Fighting Irish play the Houston Cougars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6839664/2025/11/26/notre-dame-vs-houston-stream-how-to-watch-nov-26/
+
+**How to watch Texas vs. UCLA women's basketball: Time, TV, streaming**\
+`Find out how to watch the Texas Longhorns play the UCLA Bruins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6839662/2025/11/26/texas-vs-ucla-stream-how-to-watch-nov-26/
+
+**How to watch Louisiana Tech vs. Baylor women's basketball: Time, TV, streaming**\
+`Find out how to watch the Louisiana Tech Lady Techsters play the Baylor Bears, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6839660/2025/11/26/louisiana-tech-vs-baylor-stream-how-to-watch-nov-26/
+
 **Trump Administration Live Updates: President Discloses List of Transition Donors**\
 ``\
 https://nytimes.com/live/2025/11/26/us/trump-news

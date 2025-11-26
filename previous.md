@@ -1,3 +1,19 @@
+**How to watch Ohio State vs. West Virginia women's basketball: Time, TV, streaming**\
+`Find out how to watch the Ohio State Buckeyes play the West Virginia Mountaineers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6839667/2025/11/26/ohio-state-vs-west-virginia-stream-how-to-watch-nov-26/
+
+**How to watch Notre Dame vs. Houston men's basketball: Time, TV, streaming**\
+`Find out how to watch the Notre Dame Fighting Irish play the Houston Cougars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6839664/2025/11/26/notre-dame-vs-houston-stream-how-to-watch-nov-26/
+
+**How to watch Texas vs. UCLA women's basketball: Time, TV, streaming**\
+`Find out how to watch the Texas Longhorns play the UCLA Bruins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6839662/2025/11/26/texas-vs-ucla-stream-how-to-watch-nov-26/
+
+**How to watch Louisiana Tech vs. Baylor women's basketball: Time, TV, streaming**\
+`Find out how to watch the Louisiana Tech Lady Techsters play the Baylor Bears, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6839660/2025/11/26/louisiana-tech-vs-baylor-stream-how-to-watch-nov-26/
+
 **Trump Administration Live Updates: President Discloses List of Transition Donors**\
 ``\
 https://nytimes.com/live/2025/11/26/us/trump-news
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6837119/2025/11/26/edmonton-oilers-grades-report-ca
 **Chargers are a team searching for an identity: Mailbag**\
 `Daniel Popper also weighs in on best O-line combo, man coverage and returning edge rushers. `\
 https://nytimes.com/athletic/6837839/2025/11/26/chargers-search-for-identity-nfl-mailbag/
-
-**Michigan's plan to run past Ohio State has an Ohio flavor: 'A game to stamp my legacy'**\
-`The Wolverines will be leaning on Ohio native running back Jordan Marshall and former Ohio State running backs coach Tony Alford.`\
-https://nytimes.com/athletic/6837303/2025/11/26/michigan-osu-alford-marshall-kuzdzal/
-
-**Jakarta Shoots to No. 1 in World Population Ranking From No. 33. How?**\
-`The capital of Indonesia surpassed Tokyo as the world’s most populous city after the United Nations overhauled how it measures urban populations.`\
-https://nytimes.com/2025/11/26/world/asia/worlds-largest-city-un-jakarta-indonesia.html
-
-**After another loss, Clippers fortunes vs. the Lakers have been reversed**\
-`The Clippers were on a serious roll against the Lakers as recently as January. Then the Lakers got Luka Dončić and everything changed.`\
-https://nytimes.com/athletic/6839251/2025/11/26/clippers-lakers-reversal-fortunes/
-
-**What I'm hearing about J.J. McCarthy, Jerry Jones' trade steal and more**\
-`Also: Tom Brady's Raiders frustrations, Kyle Shanahan's latest masterpiece and the NFL storylines that will carry Thanksgiving conversation.`\
-https://nytimes.com/athletic/6838665/2025/11/26/nfl-rumors-news-j-j-mccarthy-jerry-jones-george-pickens/
 
