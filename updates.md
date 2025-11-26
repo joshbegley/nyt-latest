@@ -1,3 +1,7 @@
+**Seth Meyers Bastes Trump for His Rambling Turkey Pardon**\
+`The president spent so much time talking that Meyers thinks the turkeys would have preferred to be put out of their misery.`\
+https://nytimes.com/2025/11/26/arts/television/seth-meyers-trump-turkey-pardon.html
+
 **Pep Guardiola gave his squad players a chance to impress against Leverkusen — they did not take it**\
 `A rare triple change at half-time was not enough to rescue the game for Manchester City`\
 https://nytimes.com/athletic/6837271/2025/11/26/manchester-city-leverkusen-squad-depth/
