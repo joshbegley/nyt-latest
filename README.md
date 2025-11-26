@@ -1,3 +1,7 @@
+**State Court Rules School Vaccine Law Can’t Bar Religious Exemptions**\
+`The decision was handed down by a judge in West Virginia, which has one of the country’s strictest school vaccination laws and one of the highest vaccination rates.`\
+https://nytimes.com/2025/11/26/us/west-virginia-court-vaccine-law-religious-exemptions.html
+
 **NCAA proposes reducing transfer portal window to 15 days in men's and women's basketball**\
 `Under the current rules, the transfer portal window is 30 days and begins in late March, while postseason tournaments are still underway.`\
 https://nytimes.com/athletic/6840295/2025/11/26/ncaa-basketball-transfer-portal-window-changes/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6839837/2025/11/26/college-football-playoff-ranking
 **BRIDGE Summit 2025**\
 ` It’s a monumental initiative, but one that is more necessary now than ever before. `\
 https://nytimes.com/paidpost/bridge-summit-abu-dhabi/uae-national-media-office-bridge-summit-2025.html
-
-**College football best bets Week 14: 3 rivalry week games that have value**\
-`Rivalry week has a loaded schedule, but Austin Mock dips into the lesser games to find some betting value.`\
-https://nytimes.com/athletic/6839945/2025/11/26/college-football-best-bets-week-14-minnesota-duke/
 

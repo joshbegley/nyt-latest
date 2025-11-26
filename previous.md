@@ -1,3 +1,7 @@
+**NCAA proposes reducing transfer portal window to 15 days in men's and women's basketball**\
+`Under the current rules, the transfer portal window is 30 days and begins in late March, while postseason tournaments are still underway.`\
+https://nytimes.com/athletic/6840295/2025/11/26/ncaa-basketball-transfer-portal-window-changes/
+
 **Video: Caleb Williams is playing unlike any NFL QB. It's working, but is it sustainable?**\
 `Williams has cut his sack rate in half despite holding the ball longer on average than we've seen in 13 years. What is happening?`\
 https://nytimes.com/athletic/6832878/2025/11/26/caleb-williams-bears-sack-avoidance/
@@ -33,8 +37,4 @@ https://nytimes.com/paidpost/bridge-summit-abu-dhabi/uae-national-media-office-b
 **College football best bets Week 14: 3 rivalry week games that have value**\
 `Rivalry week has a loaded schedule, but Austin Mock dips into the lesser games to find some betting value.`\
 https://nytimes.com/athletic/6839945/2025/11/26/college-football-best-bets-week-14-minnesota-duke/
-
-**Miroslaw Chojecki, Solidarity’s ‘Minister of Smuggling,’ Dies at 76**\
-`First in Warsaw and later from Paris, he supplied anti-Communist activists in Poland with steady stream of leaflets, newsletters and banned books.`\
-https://nytimes.com/2025/11/26/world/europe/miroslaw-chojecki-dead.html
 
