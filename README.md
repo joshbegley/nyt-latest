@@ -1,3 +1,7 @@
+**Vikings QB J.J. McCarthy not expected to play Sunday vs. Seahawks: Sources**\
+`With the 22-year-old quarterback in the concussion protocol, undrafted rookie Max Brosmer is expected to get the start.`\
+https://nytimes.com/athletic/6840294/2025/11/26/jj-mccarthy-vikings-concussion-max-brosmer-seahawks/
+
 **State Court Rules School Vaccine Law Can’t Bar Religious Exemptions**\
 `The decision was handed down by a judge in West Virginia, which has one of the country’s strictest school vaccination laws and one of the highest vaccination rates.`\
 https://nytimes.com/2025/11/26/us/west-virginia-court-vaccine-law-religious-exemptions.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6840265/2025/11/26/adrian-newey-aston-martin-team-p
 **CFP rankings show delayed nearly 50 minutes by college hoops, football fans livid**\
 `College football fans waited almost an hour past the scheduled 7 p.m. start to find out that, as expected, Ohio State is still No. 1.`\
 https://nytimes.com/athletic/6839837/2025/11/26/college-football-playoff-rankings-broadcast-delay/
-
-**BRIDGE Summit 2025**\
-` It’s a monumental initiative, but one that is more necessary now than ever before. `\
-https://nytimes.com/paidpost/bridge-summit-abu-dhabi/uae-national-media-office-bridge-summit-2025.html
 
