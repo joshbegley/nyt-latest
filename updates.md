@@ -1,3 +1,7 @@
+**Colorado State expected to hire UConn coach Jim Mora: Source**\
+`Mora just wrapped up his fourth regular season at UConn last week, posting a second consecutive nine-win season.`\
+https://nytimes.com/athletic/6838947/2025/11/26/colorado-state-uconn-jim-mora-cfb/
+
 **The New York Times in Print for Wednesday, Nov. 26, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/11/26/todays-new-york-times
