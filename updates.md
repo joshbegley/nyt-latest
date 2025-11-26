@@ -1,3 +1,15 @@
+**Pushing the Limits**\
+`Explore the thrill, speed and physical and mental challenges of racing across water in world-class events such as Mubadala Abu Dhabi Sail Grand Prix.`\
+https://nytimes.com/paidpost/athletic/mubadala/pushing-the-limits.html
+
+**Blue Jays, Dylan Cease agree to 7-year, $210M contract: Sources**\
+`With Max Scherzer and Chris Bassitt coming off the books, the Jays entered the winter looking to add a top starter. `\
+https://nytimes.com/athletic/6801828/2025/11/26/toronto-blue-jays-dylan-cease-free-agent-signing-sources/
+
+**Raiders' Geno Smith apologizes for flipping off fans**\
+`It's the second time this season Smith has flipped off fans.`\
+https://nytimes.com/athletic/6841108/2025/11/26/geno-smith-apologizes-raiders-fans/
+
 **Broncos' Alex Singleton back in action after having cancerous tumor removed**\
 `Star cornerback Pat Surtain, who missed the past three games with a pectoral injury, also returned to practice Wednesday.`\
 https://nytimes.com/athletic/6837639/2025/11/26/broncos-alex-singleton-return-cancer/
