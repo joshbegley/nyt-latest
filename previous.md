@@ -1,9 +1,13 @@
+**In dealing Sonny Gray, Cardinals' Chaim Bloom shows clear direction. What's next?**\
+`The Cardinals want to return to being perennial contenders, and Bloom is willing to make difficult decisions now to better ensure that.`\
+https://nytimes.com/athletic/6837553/2025/11/25/st-louis-cardinals-sonny-gray-trade-direction/
+
 **CJ McCollum's 27-point first half sparks Wizards' red-hot start vs. Hawks**\
 `McCollum made his first five 3-pointers and seven of eight attempts from long distance to help Washington open a 22-point halftime lead.`\
 https://nytimes.com/athletic/6838481/2025/11/25/cj-mccollum-stats-first-half-wizards-hawks/
 
 **The Red Sox like Sonny Gray's strikeout potential, but can he be a No. 2 starter?**\
-`For his part, in waiving his no-trade clause, Gray showed his desire to once again pitch in a big market for a playoff contender.`\
+`Boston acquired Gray from the Cardinals. He waived his no-trade clause, showing he wants to pitch again in a big market for a playoff team.`\
 https://nytimes.com/athletic/6838204/2025/11/25/boston-red-sox-sonny-gray-trade-fit/
 
 **An Undefeated Football Team and a Missing Coach Who Became a Wanted Man**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/25/health/drugs-prices-medicare.html
 **The New Putin Calendar Is Here: ‘A Man for Every Season’**\
 `January shows the Russian leader astride a snowmobile. For February, he flips a judo partner. In August, he offers advice: “My recipe for energy: Sleep little, work a lot and don’t whine.”`\
 https://nytimes.com/2025/11/25/world/europe/putin-calendar-russia.html
-
-**Volcanic Eruption in Ethiopia Creates Flight Delays in India**\
-`The volcanic eruption sent into the atmosphere an ash cloud, which gusts of wind blew eastward toward the Indian subcontinent. Multiple flights in India were delayed or rerouted as a precaution, according to India’s Ministry of Civil Aviation.`\
-https://nytimes.com/video/travel/100000010547959/ethiopia-volcano-india-flight-delay.html
 

@@ -1,3 +1,11 @@
+**In dealing Sonny Gray, Cardinals' Chaim Bloom shows clear direction. What's next?**\
+`The Cardinals want to return to being perennial contenders, and Bloom is willing to make difficult decisions now to better ensure that.`\
+https://nytimes.com/athletic/6837553/2025/11/25/st-louis-cardinals-sonny-gray-trade-direction/
+
+**The Red Sox like Sonny Gray's strikeout potential, but can he be a No. 2 starter?**\
+`Boston acquired Gray from the Cardinals. He waived his no-trade clause, showing he wants to pitch again in a big market for a playoff team.`\
+https://nytimes.com/athletic/6838204/2025/11/25/boston-red-sox-sonny-gray-trade-fit/
+
 **CJ McCollum's 27-point first half sparks Wizards' red-hot start vs. Hawks**\
 `McCollum made his first five 3-pointers and seven of eight attempts from long distance to help Washington open a 22-point halftime lead.`\
 https://nytimes.com/athletic/6838481/2025/11/25/cj-mccollum-stats-first-half-wizards-hawks/
