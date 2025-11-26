@@ -1,3 +1,15 @@
+**What is going on with Uche and does he have a future at Crystal Palace?**\
+`The €20million summer signing can barely get on the pitch and his manager seems less than impressed`\
+https://nytimes.com/athletic/6830331/2025/11/26/christantus-uche-crystal-palace-getafe/
+
+**What's going wrong for Arsenal's Champions League winners?**\
+`After being crowned champions of Europe in May, this was supposed to be Arsenal's season. But it isn't working out like that`\
+https://nytimes.com/athletic/6837116/2025/11/26/arsenal-women-champions-league-wrong/
+
+**Breaking down Liverpool's body language — and why it is being criticised**\
+`The champions' body language has come under scrutiny from fans and pundits in recent weeks. We asked experts to analyse it`\
+https://nytimes.com/athletic/6836519/2025/11/26/liverpool-body-language/
+
 **Arsenal's 'Make it happen' scarves and what they say about Arteta and psychology**\
 `The slogan is visible throughout the club, but these motiviational tactics affect players positively? Or can they breed scepticism?`\
 https://nytimes.com/athletic/6836084/2025/11/26/mikel-arteta-arsenal-psychology-make-it-happen/
