@@ -1,40 +1,40 @@
-**Must-See Moments From the N.B.A.**\
-`On Tuesday, the Washington Wizards won their first N.B.A. Cup game, and the Orlando Magic’s 51-point second quarter catalyzed a big road win against the Philadelphia 76ers.`\
-https://nytimes.com/video/sports/basketball/100000010548835/must-see-moments-from-the-nba.html
+**U.S. Nuclear Arms Chief Warns Against Leaks of Secret Information**\
+`The email sent to atom bomb officials by Brandon Williams highlights the managerial challenge faced by the former one-term congressman.`\
+https://nytimes.com/2025/11/26/science/brandon-williams-nuclear-weapons-nnsa.html
 
-**Spat With China Becomes an Asset for Japan’s New Leader**\
-`Japan’s prime minister, Sanae Takaichi, is not backing off from comments about Taiwan that enraged China. Many of Japan’s voters like her stance.`\
-https://nytimes.com/2025/11/26/world/asia/japan-china-taiwan-takaichi-dispute.html
+**Mark Kelly Is Being Investigated for Telling the Truth**\
+`Who wants to silence a senator? I’ll give you one guess.`\
+https://nytimes.com/2025/11/26/opinion/kelly-hegseth-trump-unlawful-orders.html
 
-**Abducted Girls Are Freed in Nigeria, Where Violence Worsens Hunger**\
-`Two dozen schoolgirls were freed on Tuesday after being kidnapped in Kebbi state. A wave of mass kidnappings has spread terror and deepened the nation’s hunger crisis.`\
-https://nytimes.com/video/world/africa/100000010548810/nigeria-food-violence-usaid.html
+**The Question Hanging Over Peace Talks: What Will Putin Accept?**\
+`A U.S. proposal may cross a number of red lines for the Russian leader, who sees little to lose and much to potentially gain from continuing to fight.`\
+https://nytimes.com/2025/11/26/world/europe/russia-putin-ukraine-peace-talks.html
 
-**How to Watch the Macy’s Thanksgiving Day Parade**\
-`The 99th edition of the New York parade will feature performances from Cynthia Erivo and Busta Rhymes, as well as dozens of floats and balloons.`\
-https://nytimes.com/2025/11/26/nyregion/macys-thanksgiving-day-parade-how-to-watch.html
+**Has Marjorie Taylor Greene Really Seen the Light?**\
+`This is a classic breakup drama.`\
+https://nytimes.com/2025/11/26/opinion/marjorie-taylor-greene-resignation-republican.html
 
-**Gratitude List**\
-`What are you grateful for this year?`\
-https://nytimes.com/2025/11/26/learning/gratitude-list.html
+**I Prosecuted R. Kelly. This Is Why the Epstein Files Should Be Redacted.**\
+`Releasing the documents wholesale could hinder prosecutions and inflict new trauma on victims.`\
+https://nytimes.com/2025/11/26/opinion/epstein-files-redactions-victims.html
 
-**The Race for Mikie Sherrill’s House Seat Is On, and It’s Crowded**\
-`The dozen candidates include an activist endorsed by Bernie Sanders, New Jersey’s lieutenant governor and an ousted congressman running in a new district.`\
-https://nytimes.com/2025/11/26/nyregion/mikie-sherrill-congressional-seat-new-jersey-primary.html
+**How ‘Stranger Things’ Defined the Era of the Algorithm**\
+`A nostalgic hit built out of vintage pop-culture references captured the “If you liked that, you’ll like this” spirit of Netflix.`\
+https://nytimes.com/interactive/2025/11/26/arts/television/how-stranger-things-defined-the-era-of-the-algorithm.html
 
-**The Key to Their 50-Year Marriages and Close-Knit Families? Friendship.**\
-`Six women in their 70s, all married and all mothers and grandmothers, have been meeting twice a month for 44 years. They talk about everything that life throws at them.`\
-https://nytimes.com/2025/11/26/nyregion/group-women-friendships-marriage-family.html
+**Nobody Should Go to Jail for a Harmless Meme**\
+`The best way to honor Charlie Kirk is not to criminalize speech.`\
+https://nytimes.com/2025/11/26/opinion/charlie-kirk-free-speech-bushart.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/11/26/crosswords/spelling-bee-forum.html
+**A Therapist’s Emotional Tool Kit for a Better Holiday Season**\
+`Family holidays can be stressful. They don’t have to be.`\
+https://nytimes.com/2025/11/26/podcasts/nedra-tawwab-holidays-family-thanksgiving.html
 
-**Seth Meyers Bastes Trump for His Rambling Turkey Pardon**\
-`The president spent so much time talking that Meyers thinks the turkeys would have preferred to be put out of their misery.`\
-https://nytimes.com/2025/11/26/arts/television/seth-meyers-trump-turkey-pardon.html
+**Detroit Has Its Own Thanksgiving Parade. The City Gets Bigheaded About It.**\
+`The march down Woodward Avenue, which endured through the city’s hardest years, features papier-mâché caricatures that are uniquely Detroit.`\
+https://nytimes.com/2025/11/26/us/detroit-michigan-thanksgiving-parade.html
 
-**How to watch Broncos vs. Commanders: Time, TV, streaming**\
-`Find out how to watch the Denver Broncos play the Washington Commanders, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6839096/2025/11/26/broncos-vs-commanders-stream-how-to-watch-nov-30/
+**The First Thanksgiving Proclamation, 12 Years Before the Constitution**\
+`The revolutionary Samuel Adams is credited with writing the document in 1777. It referred to “a just and necessary war” against the British.`\
+https://nytimes.com/2025/11/26/nyregion/thanksgiving-proclamation-1777-christies.html
 
