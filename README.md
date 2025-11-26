@@ -1,3 +1,7 @@
+**New York Sues Over Rule Barring Thousands of Immigrants From SNAP**\
+`The Trump administration says refugees and asylum seekers can never get food stamps, but attorneys general from New York and nearly two dozen other states say that is unlawful.`\
+https://nytimes.com/2025/11/26/nyregion/snap-immigrants-new-york-lawsuit.html
+
 **Pope Leo Blesses Rave Crowd in Slovakia**\
 `Pope Leo XIV blessed a crowd on video earlier this month at a rave in Slovakia hosted by Guilherme Peixoto, a Portuguese priest who doubles as an electronic D.J.`\
 https://nytimes.com/video/world/europe/100000010549597/pope-leo-blessing-rave.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/26/us/west-virginia-court-vaccine-law-religious-exem
 **NCAA proposes reducing transfer portal window to 15 days in men's and women's basketball**\
 `Under the current rules, the transfer portal window is 30 days and begins in late March, while postseason tournaments are still underway.`\
 https://nytimes.com/athletic/6840295/2025/11/26/ncaa-basketball-transfer-portal-window-changes/
-
-**Video: Caleb Williams is playing unlike any NFL QB. It's working, but is it sustainable?**\
-`Williams has cut his sack rate in half despite holding the ball longer on average than we've seen in 13 years. What is happening?`\
-https://nytimes.com/athletic/6832878/2025/11/26/caleb-williams-bears-sack-avoidance/
 
