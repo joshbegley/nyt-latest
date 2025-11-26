@@ -1,3 +1,7 @@
+**Live Updates: Two National Guard Members Shot Near White House**\
+`The identity and condition of the Guardsmen were not immediately known. The Washington D.C. police said one suspect was in custody.`\
+https://nytimes.com/live/2025/11/26/us/national-guard-shooting-dc
+
 **When the Next Pandemic Comes, MAHA Says, You’re on Your Own**\
 `The N.I.H. director has learned all the wrong lessons from Covid.`\
 https://nytimes.com/2025/11/26/opinion/when-the-next-pandemic-comes-maha-says-youre-on-your-own.html

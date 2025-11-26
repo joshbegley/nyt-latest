@@ -1,3 +1,11 @@
+**How to watch St. John's vs. Auburn men's basketball: Time, TV, streaming**\
+`Find out how to watch the St. John's Red Storm play the Auburn Tigers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6840719/2025/11/26/st-john-s-vs-auburn-stream-how-to-watch-nov-26/
+
+**How to watch NJIT vs. Louisville men's basketball: Time, TV, streaming**\
+`Find out how to watch the NJIT Highlanders play the Louisville Cardinals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6840713/2025/11/26/njit-vs-louisville-stream-how-to-watch-nov-26/
+
 **When the Next Pandemic Comes, MAHA Says, You’re on Your Own**\
 `The N.I.H. director has learned all the wrong lessons from Covid.`\
 https://nytimes.com/2025/11/26/opinion/when-the-next-pandemic-comes-maha-says-youre-on-your-own.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6837821/2025/11/26/sebastian-berhalter-mauricio-poc
 **Matthews, Knies to return to Maple Leafs lineup vs. Blue Jackets**\
 `Having lost seven of their last eight games and sitting last place in the Eastern Conference, the lineup changes come at a crucial point.`\
 https://nytimes.com/athletic/6840451/2025/11/26/auston-matthews-matthew-knies-maple-leafs/
-
-**NFL Week 13 confidence picks: Why the Cowboys will upset the Chiefs**\
-`KC Joyner's confidence picks have been on a roll lately. This week, his top picks are the Seahawks, Rams and Broncos.`\
-https://nytimes.com/athletic/6839543/2025/11/26/nfl-week-13-confidence-picks-cowboys-chiefs/
-
-**Ex-Arsenal player Cygan wants to send NYC mayor-elect Mamdani an old jersey**\
-`Speaking about his love of Arsenal earlier this week, Mamdani had said: "Every day I wake up, I think about Squillaci, Cygan, Chamakh."`\
-https://nytimes.com/athletic/6840550/2025/11/26/zohran-mamdani-arsenal-pascal-cygan/
 
