@@ -1,3 +1,7 @@
+**How to watch Broncos vs. Commanders: Time, TV, streaming**\
+`Find out how to watch the Denver Broncos play the Washington Commanders, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6839096/2025/11/26/broncos-vs-commanders-stream-how-to-watch-nov-30/
+
 **Clippers' Kris Dunn ejected after pushing Luka Dončić in loss to Lakers**\
 `Frustration boiled over for the Clippers' wing late in Tuesday night's loss to the Lakers.`\
 https://nytimes.com/athletic/6839048/2025/11/26/lakers-clippers-kris-dunn-luka-doncic/

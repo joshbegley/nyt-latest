@@ -1,3 +1,7 @@
+**How to watch Broncos vs. Commanders: Time, TV, streaming**\
+`Find out how to watch the Denver Broncos play the Washington Commanders, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6839096/2025/11/26/broncos-vs-commanders-stream-how-to-watch-nov-30/
+
 **Clippers' Kris Dunn ejected after pushing Luka Dončić in loss to Lakers**\
 `Frustration boiled over for the Clippers' wing late in Tuesday night's loss to the Lakers.`\
 https://nytimes.com/athletic/6839048/2025/11/26/lakers-clippers-kris-dunn-luka-doncic/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/26/opinion/nuclear-energy-california-massachusetts.h
 **Mick Jagger. Rolling Stone. Cultural icon. And cricket streaming pioneer**\
 `The Rolling Stones' lead singer, a huge cricket fan, spotted the huge potential of the internet while others still treated it with suspicion`\
 https://nytimes.com/athletic/6789244/2025/11/26/mick-jagger-rolling-stone-cultural-icon-and-cricket-streaming-pioneer/
-
-**'He never hides' - how Amorim copes with the highs and lows of management**\
-`Filipe Celikkaya knows the Manchester United head coach better than most in football - he says sticking to his principles will pay off `\
-https://nytimes.com/athletic/6836161/2025/11/26/ruben-amorim-manchester-united-filipe-celikkaya/
 
