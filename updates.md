@@ -1,3 +1,15 @@
+**Yes, the Flyers will have to make a big trade. No, it doesn't mean everyone is available**\
+`Whether or not Quinn Hughes will be available, the Flyers will look at a big move — but only at a certain cost.`\
+https://nytimes.com/athletic/6840341/2025/11/26/philadelphia-flyers-trade-hughes-michkov/
+
+**Italy Passes a Femicide Law, Seeking to Prevent Violence Against Women**\
+`Murders of women killed for misogynistic reasons will now be classified as femicide. Campaigners say a broader cultural shift is still needed.`\
+https://nytimes.com/2025/11/26/world/europe/italy-femicide-violence-women.html
+
+**Giving thanks (and explaining) the most filling sports week of the year: MoneyCall**\
+`Also in this week's sports business cheat sheet: The top women's sports city snub, Elle Duncan, Mick Jagger, NWSL TV records and more.`\
+https://nytimes.com/athletic/6840427/2025/11/26/thanksgiving-nfl-amazon-black-friday-moneycall/
+
 **Northwestern University Nears Deal to Resolve Its Conflict With the White House**\
 `The school, one of several to face pressure campaigns from the Trump administration, would pay a $75 million fine and have its research funding restored under terms of the agreement being discussed.`\
 https://nytimes.com/2025/11/26/us/politics/northwestern-university-trump-deal.html

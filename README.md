@@ -1,3 +1,7 @@
+**Broncos sign DL Malcolm Roach to 3-year deal: Source**\
+`After helping resurrect the Broncos’ run defense in the two seasons since his arrival, Roach is cashing in on a much more lucrative deal.`\
+https://nytimes.com/athletic/6840404/2025/11/26/broncos-malcolm-roach-contract-deal/
+
 **Yes, the Flyers will have to make a big trade. No, it doesn't mean everyone is available**\
 `Whether or not Quinn Hughes will be available, the Flyers will look at a big move — but only at a certain cost.`\
 https://nytimes.com/athletic/6840341/2025/11/26/philadelphia-flyers-trade-hughes-michkov/
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/europe/100000010549597/pope-leo-blessing-rave.ht
 **Green Card Interviews End in Handcuffs for Spouses of U.S. Citizens**\
 `Agents are arresting foreign-born spouses when they report for the final step to obtain permanent residency, and charging them with visa violations that could result in deportation.`\
 https://nytimes.com/2025/11/26/us/trump-green-card-interview-arrests.html
-
-**YES Network refutes rumors that Paul O'Neill has cancer**\
-`Social media posts claimed that the five-time World Series winner faced the "toughest battle of his life."`\
-https://nytimes.com/athletic/6840335/2025/11/26/paul-oneill-cancer-denial-yes-network/
 
