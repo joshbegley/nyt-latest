@@ -1,3 +1,23 @@
+**Pope Leo Blesses Rave Crowd in Slovakia**\
+`Pope Leo XIV blessed a crowd on video earlier this month at a rave in Slovakia hosted by Guilherme Peixoto, a Portuguese priest who doubles as an electronic D.J.`\
+https://nytimes.com/video/world/europe/100000010549597/pope-leo-blessing-rave.html
+
+**Green Card Interviews End in Handcuffs for Spouses of U.S. Citizens**\
+`Agents are arresting foreign-born spouses when they report for the final step to obtain permanent residency, and charging them with visa violations that could result in deportation.`\
+https://nytimes.com/2025/11/26/us/trump-green-card-interview-arrests.html
+
+**YES Network refutes rumors that Paul O'Neill has cancer**\
+`Social media posts claimed that the five-time World Series winner faced the "toughest battle of his life."`\
+https://nytimes.com/athletic/6840335/2025/11/26/paul-oneill-cancer-denial-yes-network/
+
+**Supreme Court Defers Ruling on Trump’s Effort to Oust Copyright Official**\
+`An appeals court panel had said that Shira Perlmutter, the head of the U.S. Copyright Office, could remain in her role as an adviser to Congress.`\
+https://nytimes.com/2025/11/26/us/politics/supreme-court-trump-copyright-official.html
+
+**NFL Week 13 staff picks: The games that are the turkey, stuffing and sides**\
+`With three Thanksgiving games, and a matchup of 8-3 teams on Black Friday, here's a breakdown of what you can feast on in NFL Week 13.`\
+https://nytimes.com/athletic/6835189/2025/11/26/nfl-week-13-picks-chiefs-cowboys-bears-eagles/
+
 **What to Know About the Fire at a Hong Kong Apartment Complex**\
 `Firefighters struggled to contain the blaze in the high-rise buildings. At least 36 people were killed, and many more were feared trapped inside the towers.`\
 https://nytimes.com/2025/11/26/world/asia/hong-kong-fire-what-to-know.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6840295/2025/11/26/ncaa-basketball-transfer-portal-
 **Video: Caleb Williams is playing unlike any NFL QB. It's working, but is it sustainable?**\
 `Williams has cut his sack rate in half despite holding the ball longer on average than we've seen in 13 years. What is happening?`\
 https://nytimes.com/athletic/6832878/2025/11/26/caleb-williams-bears-sack-avoidance/
-
-**Army Takes Control in Guinea-Bissau Amid Apparent Coup**\
-`The West African nation had recently held a presidential election in which the main opposition party was barred from the ballot.`\
-https://nytimes.com/2025/11/26/world/africa/guinea-bissau-coup.html
-
-**Lowetide: Why do Evan Bouchard's issues always crop up early for the Oilers?**\
-`Bouchard's ghastly October has given way to a substantially better November, but he still has off games.`\
-https://nytimes.com/athletic/6834757/2025/11/26/oilers-evan-bouchard-stats-standings-2025/
-
-**Can I Use My Parents’ Address to Get Our Kids Into a Better School?**\
-`I feel guilty about the lie we’d have to keep up, but we would be much happier.`\
-https://nytimes.com/2025/11/26/magazine/parents-address-school-ethics.html
-
-**For the Macy’s Thanksgiving Day Parade, Broadway Hits the Streets**\
-`We tagged along to a late-night rehearsal for performers from “Just in Time,” “Buena Vista Social Club” and “Ragtime.”`\
-https://nytimes.com/2025/11/26/theater/macys-thanksgiving-day-parade-broadway.html
-
-**Newey to become Aston Martin F1 team principal from 2026 after reshuffle**\
-`The 66-year-old joined Aston Martin this year as its managing technical partner following a 19-year stint with Red Bull Racing.`\
-https://nytimes.com/athletic/6840265/2025/11/26/adrian-newey-aston-martin-team-principal-f1/
 
