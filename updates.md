@@ -1,3 +1,19 @@
+**The Red Sox like Sonny Gray's strikeout potential, but can he be a No. 2 starter?**\
+`For his part, in waiving his no-trade clause, Gray showed his desire to once again pitch in a big market for a playoff contender.`\
+https://nytimes.com/athletic/6838204/2025/11/25/boston-red-sox-sonny-gray-trade-fit/
+
+**An Undefeated Football Team and a Missing Coach Who Became a Wanted Man**\
+`An Appalachian community in Virginia was electrified by its high school team’s winning streak. Until the team’s coach disappeared — and allegations against him surfaced.`\
+https://nytimes.com/2025/11/25/us/coach-missing-charges-undefeated-football-team.html
+
+**The Gifts We’re Most Excited About This Year**\
+`Text by Wirecutter Staff`\
+https://nytimes.com/card/2025/11/26/smarter-living/wirecutter/
+
+**Cowboys’ Marshawn Kneeland was driving more than 145 mph in police chase**\
+`The records offered the fullest picture yet of the pursuit and chaotic search for Kneeland before his death.`\
+https://nytimes.com/athletic/6838290/2025/11/25/marshawn-kneeland-death-crash-cowboys/
+
 **How to watch Bills vs. Steelers: Time, TV, streaming**\
 `Find out how to watch the Buffalo Bills play the Pittsburgh Steelers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6838264/2025/11/25/how-to-watch-bills-vs-steelers-tv-channel-and-streaming-options-for-november-30/
