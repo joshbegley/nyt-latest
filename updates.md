@@ -1,3 +1,7 @@
+**Pep Guardiola gave his squad players a chance to impress against Leverkusen — they did not take it**\
+`A rare triple change at half-time was not enough to rescue the game for Manchester City`\
+https://nytimes.com/athletic/6837271/2025/11/26/manchester-city-leverkusen-squad-depth/
+
 **How to watch Broncos vs. Commanders: Time, TV, streaming**\
 `Find out how to watch the Denver Broncos play the Washington Commanders, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6839096/2025/11/26/broncos-vs-commanders-stream-how-to-watch-nov-30/

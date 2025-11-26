@@ -14,7 +14,7 @@ https://nytimes.com/athletic/6835958/2025/11/26/nick-pope-aaron-ramsdale-newcast
 `This word has appeared in 86 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/11/26/learning/word-of-the-day-coterie.html
 
-**Pep Guardiola gave his squad players a chance to impress against Leverkusen - they did not take it**\
+**Pep Guardiola gave his squad players a chance to impress against Leverkusen — they did not take it**\
 `A rare triple change at half-time was not enough to rescue the game for Manchester City`\
 https://nytimes.com/athletic/6837271/2025/11/26/manchester-city-leverkusen-squad-depth/
 
