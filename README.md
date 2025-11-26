@@ -1,3 +1,31 @@
+**Hendersonville, N.C., Surrounded by Natural Treasures**\
+`“The City of Four Seasons” sits on the western edge of the Blue Ridge Mountains.`\
+https://nytimes.com/2025/11/26/realestate/hendersonville-north-carolina-guide.html
+
+**A Moderate From Manhattan Claims Enough Support to Lead City Council**\
+`Julie Menin, a councilwoman from the Upper East Side, was seen by some supporters as a necessary check on Mayor-elect Zohran Mamdani, a democratic socialist with an ambitious policy agenda.`\
+https://nytimes.com/2025/11/26/nyregion/julie-menin-nyc-city-council.html
+
+**How to watch Tennessee Tech vs. Kentucky men's basketball: Time, TV, streaming**\
+`Find out how to watch the Tennessee Tech Golden Eagles play the Kentucky Wildcats, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6840123/2025/11/26/tennessee-tech-vs-kentucky-stream-how-to-watch-nov-26/
+
+**How to watch Kansas vs. Tennessee men's basketball: Time, TV, streaming**\
+`Find out how to watch the Kansas Jayhawks play the Tennessee Volunteers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6840119/2025/11/26/kansas-vs-tennessee-stream-how-to-watch-nov-26/
+
+**How to watch Michigan vs. Detroit Mercy women's basketball: Time, TV, streaming**\
+`Find out how to watch the Michigan Wolverines play the Detroit Mercy Titans, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6840120/2025/11/26/michigan-vs-detroit-mercy-stream-how-to-watch-nov-26/
+
+**How to watch Duke vs. South Carolina women's basketball: Time, TV, streaming**\
+`Find out how to watch the Duke Blue Devils play the South Carolina Gamecocks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6840116/2025/11/26/duke-vs-south-carolina-stream-how-to-watch-nov-26/
+
+**How to watch Kentucky vs. Maryland women's basketball: Time, TV, streaming**\
+`Find out how to watch the Kentucky Wildcats play the Maryland Terrapins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6840112/2025/11/26/kentucky-vs-maryland-stream-how-to-watch-nov-26/
+
 **NYC's Holiday History**\
 ``\
 https://nytimes.com/spotlight/nycs-holiday-history
@@ -9,32 +37,4 @@ https://nytimes.com/2025/11/26/world/middleeast/eli-zeira-dead.html
 **New Prosecutor Asks for Charges to be Dropped in Georgia Trump Case**\
 `The development was a victory for President Trump, who has seen three criminal cases against him dissolve since he was re-elected last year.`\
 https://nytimes.com/2025/11/26/us/trump-georgia-election-racketeering.html
-
-**Spinach Corn Dip Is the Ideal Party Snack**\
-`Or, as one reader puts it, “what I want to eat for dinner for the rest of my days.”`\
-https://nytimes.com/2025/11/26/dining/spinach-corn-dip-is-the-ideal-party-snack.html
-
-**NASA Rover Makes a Shocking Discovery: Lightning on Mars**\
-`The Perseverance rover picked up audio evidence of electric discharges in the red planet’s atmosphere.`\
-https://nytimes.com/2025/11/26/science/mars-lightning-nasa.html
-
-**As Prices Pinch, Bessent Looks for Ways to Mollify Wary Consumers**\
-`Treasury Secretary Scott Bessent has offered a variety of creative justifications for President Trump’s import duties.`\
-https://nytimes.com/2025/11/26/business/scott-bessent-inflation.html
-
-**Feringa: 'Women’s sports fans just want to be respected as sport fans'**\
-`The Women's League Cup draw descended into chaos, marred by lewd sexual innuendos and a ball mistakenly being placed back into the bag`\
-https://nytimes.com/athletic/6839244/2025/11/26/womens-league-cup-sports-fans-soccer/
-
-**Pope Leo Blesses Rave-Goers in Slovakia**\
-`A papal video message appeared before a crowd of hundreds, as Guilherme Peixoto, a priest who doubles as an electronic D.J., put on a show.`\
-https://nytimes.com/2025/11/26/world/europe/pope-leo-rave-blessing-slovakia.html
-
-**Trump Defends Envoy’s Tactics in Ukraine Negotiations**\
-`President Trump said the envoy, Steve Witkoff, was using standard negotiating methods, after he appeared to coach a Russian official in a leaked call.`\
-https://nytimes.com/2025/11/26/us/politics/trump-ukraine-peace-deal-witkoff.html
-
-**A Speedy Art-Career Rise Fueled by a Descent Into Our Modern Abyss**\
-`Contemporary life, speculative fiction, Asian futurism and social documentary all meet in Ayoung Kim’s videos at MoMA PS1. And are they fun to watch!`\
-https://nytimes.com/2025/11/26/arts/design/ayoung-kim-video-artist-ps1.html
 
