@@ -1,3 +1,15 @@
+**How to watch Bills vs. Steelers: Time, TV, streaming**\
+`Find out how to watch the Buffalo Bills play the Pittsburgh Steelers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6838264/2025/11/25/how-to-watch-bills-vs-steelers-tv-channel-and-streaming-options-for-november-30/
+
+**How to watch Raiders vs. Chargers: Time, TV, streaming**\
+`Find out how to watch the Las Vegas Raiders play the Los Angeles Chargers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6838253/2025/11/25/how-to-watch-raiders-vs-chargers-tv-channel-and-streaming-options-for-november-30/
+
+**How to watch Vikings vs. Seahawks: Time, TV, streaming**\
+`Find out how to watch the Minnesota Vikings play the Seattle Seahawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6838247/2025/11/25/how-to-watch-vikings-vs-seahawks-tv-channel-and-streaming-options-for-november-30/
+
 **Latest CFP Top 25 leaves BYU, Miami, Utah on brink of final at-large spot**\
 `Every team ranked in the top 14 that played in Week 13 won, leaving little opportunity for movement in the rankings.`\
 https://nytimes.com/athletic/6837669/2025/11/25/college-football-playoff-rankings-byu-utah-miami/

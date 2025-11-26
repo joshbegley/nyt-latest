@@ -1,3 +1,11 @@
+**The Gifts We’re Most Excited About This Year**\
+`Text by Wirecutter Staff`\
+https://nytimes.com/card/2025/11/26/smarter-living/wirecutter/
+
+**Cowboys’ Marshawn Kneeland was driving more than 145 mph in police chase**\
+`The records offered the fullest picture yet of the pursuit and chaotic search for Kneeland before his death.`\
+https://nytimes.com/athletic/6838290/2025/11/25/marshawn-kneeland-death-crash-cowboys/
+
 **Latest CFP Top 25 leaves BYU, Miami, Utah on brink of final at-large spot**\
 `Every team ranked in the top 14 that played in Week 13 won, leaving little opportunity for movement in the rankings.`\
 https://nytimes.com/athletic/6837669/2025/11/25/college-football-playoff-rankings-byu-utah-miami/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6662286/2025/11/25/college-football-open-coaching-j
 **How to watch Bills vs. Steelers: Time, TV, streaming**\
 `Find out how to watch the Buffalo Bills play the Pittsburgh Steelers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6838264/2025/11/25/how-to-watch-bills-vs-steelers-tv-channel-and-streaming-options-for-november-30/
-
-**How to watch Raiders vs. Chargers: Time, TV, streaming**\
-`Find out how to watch the Las Vegas Raiders play the Los Angeles Chargers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6838253/2025/11/25/how-to-watch-raiders-vs-chargers-tv-channel-and-streaming-options-for-november-30/
-
-**How to watch Vikings vs. Seahawks: Time, TV, streaming**\
-`Find out how to watch the Minnesota Vikings play the Seattle Seahawks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6838247/2025/11/25/how-to-watch-vikings-vs-seahawks-tv-channel-and-streaming-options-for-november-30/
 
