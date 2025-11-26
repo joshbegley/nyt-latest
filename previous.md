@@ -1,3 +1,7 @@
+**Michigan's plan to run past Ohio State has an Ohio flavor: 'A game to stamp my legacy'**\
+`The Wolverines will be leaning on Ohio native running back Jordan Marshall and former Ohio State running backs coach Tony Alford.`\
+https://nytimes.com/athletic/6837303/2025/11/26/michigan-osu-alford-marshall-kuzdzal/
+
 **Jakarta Shoots to No. 1 in World Population Ranking From No. 33. How?**\
 `The capital of Indonesia surpassed Tokyo as the world’s most populous city after the United Nations overhauled how it measures urban populations.`\
 https://nytimes.com/2025/11/26/world/asia/worlds-largest-city-un-jakarta-indonesia.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6836368/2025/11/26/jesper-wallstedt-breakout-wild-n
 **Can The Game be tamed? How Ohio State is trying to bring normalcy to Michigan week**\
 `Ohio State doesn't hide from the importance of the Michigan rivalry, but now it's stressing normal routines above all else as it prepares.`\
 https://nytimes.com/athletic/6837696/2025/11/26/ohio-state-michigan-rivalry-losing-streak/
-
-**Coaching carousel notebook: Where key searches stand entering Thanksgiving weekend**\
-`We’re days away from the regular season ending and coaches officially taking news jobs, including Lane Kiffin … right?`\
-https://nytimes.com/athletic/6839012/2025/11/26/cfb-coaching-carousel-latest-lane-kiffin/
 

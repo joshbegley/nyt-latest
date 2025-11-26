@@ -1,3 +1,7 @@
+**Michigan's plan to run past Ohio State has an Ohio flavor: 'A game to stamp my legacy'**\
+`The Wolverines will be leaning on Ohio native running back Jordan Marshall and former Ohio State running backs coach Tony Alford.`\
+https://nytimes.com/athletic/6837303/2025/11/26/michigan-osu-alford-marshall-kuzdzal/
+
 **Jakarta Shoots to No. 1 in World Population Ranking From No. 33. How?**\
 `The capital of Indonesia surpassed Tokyo as the world’s most populous city after the United Nations overhauled how it measures urban populations.`\
 https://nytimes.com/2025/11/26/world/asia/worlds-largest-city-un-jakarta-indonesia.html
