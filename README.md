@@ -30,11 +30,11 @@ https://nytimes.com/athletic/6840112/2025/11/26/kentucky-vs-maryland-stream-how-
 ``\
 https://nytimes.com/spotlight/nycs-holiday-history
 
-**Eli Zeira Dies at 97; Israeli Official Dismissed Warnings of Yom Kippur War**\
+**Eli Zeira, 97, Dies; Israeli Official Dismissed Warnings of Yom Kippur War**\
 `As Israel’s head of military intelligence, he disregarded signs Egypt and Syria were about to attack in 1973. A commission blamed him for the lack of preparation.`\
 https://nytimes.com/2025/11/26/world/middleeast/eli-zeira-dead.html
 
-**New Prosecutor Asks for Charges to be Dropped in Georgia Trump Case**\
-`The development was a victory for President Trump, who has seen three criminal cases against him dissolve since he was re-elected last year.`\
+**Judge Dismisses Georgia Election Interference Case Against Trump**\
+`The president has now seen three criminal cases against him dissolve since he was re-elected last year.`\
 https://nytimes.com/2025/11/26/us/trump-georgia-election-racketeering.html
 
