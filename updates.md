@@ -1,3 +1,11 @@
+**Jakarta Shoots to No. 1 in World Population Ranking From No. 33. How?**\
+`The capital of Indonesia surpassed Tokyo as the world’s most populous city after the United Nations overhauled how it measures urban populations.`\
+https://nytimes.com/2025/11/26/world/asia/worlds-largest-city-un-jakarta-indonesia.html
+
+**After another loss, Clippers fortunes vs. the Lakers have been reversed**\
+`The Clippers were on a serious roll against the Lakers as recently as January. Then the Lakers got Luka Dončić and everything changed.`\
+https://nytimes.com/athletic/6839251/2025/11/26/clippers-lakers-reversal-fortunes/
+
 **What I'm hearing about J.J. McCarthy, Jerry Jones' trade steal and more**\
 `Also: Tom Brady's Raiders frustrations, Kyle Shanahan's latest masterpiece and the NFL storylines that will carry Thanksgiving conversation.`\
 https://nytimes.com/athletic/6838665/2025/11/26/nfl-rumors-news-j-j-mccarthy-jerry-jones-george-pickens/
