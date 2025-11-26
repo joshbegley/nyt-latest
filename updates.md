@@ -1,3 +1,7 @@
+**E.P.A. Delays Requirements to Cut Methane, a Potent Greenhouse Gas**\
+`Oil and gas firms were supposed to start reducing methane, a powerful driver of climate change. The agency is giving them more time and may cancel the requirement.`\
+https://nytimes.com/2025/11/26/climate/epa-delays-methane-oil-gas.html
+
 **How the Rockets break basketball**\
 `No team has ever dominated the boards like this season's Houston Rockets. In the process, they're reinventing the idea of good offense.`\
 https://nytimes.com/athletic/6837585/2025/11/26/rockets-rebounding-video-nba-highlights/

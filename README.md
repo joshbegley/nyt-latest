@@ -1,3 +1,7 @@
+**College football rivalry week projected scores: Model predicts every FBS game**\
+`Austin Mock's projection model takes a look at what to expect for rivalry week, including just how close the Texas A&M-Texas game is.`\
+https://nytimes.com/athletic/6840958/2025/11/26/college-football-rivalry-week-projected-scores-model/
+
 **E.P.A. Delays Requirements to Cut Methane, a Potent Greenhouse Gas**\
 `Oil and gas firms were supposed to start reducing methane, a powerful driver of climate change. The agency is giving them more time and may cancel the requirement.`\
 https://nytimes.com/2025/11/26/climate/epa-delays-methane-oil-gas.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/26/us/politics/ukraine-russia-peace-talks-daniel-dri
 **The Briefing: Liverpool 1 PSV 4 - Risk of Slot's side not qualifying? Is conceding first an issue?**\
 `Liverpool fell to a shock 4-1 loss to PSV Eindhoven on Wednesday night to make it three defeats in a row`\
 https://nytimes.com/athletic/6836398/2025/11/26/liverpool-psv-result-report-score-analysis/
-
-**Top U.S. Negotiator Warned Europeans That Russia Is Stockpiling Missiles**\
-`Daniel P. Driscoll, the U.S. Army secretary, used the growing threat from Moscow as a way to sell a quick peace deal unfavorable to Ukraine.`\
-https://nytimes.com/2025/11/26/world/europe/ukraine-peace-talks-russia-missiles.html
 
