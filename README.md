@@ -1,3 +1,7 @@
+**The New Putin Calendar Is Here: ‘A Man for Every Season’**\
+`January shows the Russian leader astride a snowmobile. For February, he flips a judo partner. In August, he offers advice: “My recipe for energy: Sleep little, work a lot and don’t whine.”`\
+https://nytimes.com/2025/11/25/world/europe/putin-calendar-russia.html
+
 **Volcanic Eruption in Ethiopia Creates Flight Delays in India**\
 `The volcanic eruption sent into the atmosphere an ash cloud, which gusts of wind blew eastward toward the Indian subcontinent. Multiple flights in India were delayed or rerouted as a precaution, according to India’s Ministry of Civil Aviation.`\
 https://nytimes.com/video/travel/100000010547959/ethiopia-volcano-india-flight-delay.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/25/us/sean-duffy-healthier-plane-snacks.html
 **He’s Beautiful, but He Has a Huge Blind Spot**\
 `Males of two species of pheasants seem to trade attractiveness for the ability to get a good look at predators.`\
 https://nytimes.com/2025/11/25/science/pheasants-blind-spot-vision.html
-
-**Fears About A.I. Prompt Talks of Super PACs to Rein In the Industry**\
-`As artificial intelligence companies prepare to pour money into the midterm elections, some in the A.I. world are hatching plans of their own to curb the industry’s influence.`\
-https://nytimes.com/2025/11/25/us/politics/ai-super-pac-anthropic.html
 
