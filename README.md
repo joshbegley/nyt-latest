@@ -1,3 +1,11 @@
+**A Speedy Art-Career Rise Fueled by a Descent Into Our Modern Abyss**\
+`Contemporary life, speculative fiction, Asian futurism and social documentary all meet in Ayoung Kim’s videos at MoMA PS1. And are they fun to watch!`\
+https://nytimes.com/2025/11/26/arts/design/ayoung-kim-video-artist-ps1.html
+
+**Gibbs-White to miss Nottingham Forest's Malmo tie through injury**\
+`The midfielder has picked up what manager Sean Dyche described as a minor injury, adding he was "hopeful" it was nothing serious.`\
+https://nytimes.com/athletic/6839985/2025/11/26/morgan-gibbs-white-injury-nottingham-forest/
+
 **‘The Secret Agent’ Review: Carnival in the Face of Carnage**\
 `Wagner Moura takes cover in this knockout from the filmmaker Kleber Mendonça Filho that is largely set in 1977 during Brazil’s miliary dictatorship.`\
 https://nytimes.com/2025/11/26/movies/the-secret-agent-review.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6837523/2025/11/26/usa-olympic-hockey-jerseys-milan
 **The last time Hong Kong had a major fire was 2008.**\
 `The last five-alarm fire in Hong Kong engulfed a 15-story building in the Mong Kong district, killing four people.`\
 https://nytimes.com/live/2025/11/26/world/hong-kong-fire/the-last-time-hong-kong-had-a-major-fire-was-2008
-
-**Thailand Deploys Military to Rescue People Stranded by Deadly Floods**\
-`Troops, helicopters and boats from Thailand’s military on Wednesday carried out rescue and relief efforts in southern areas devastated by floods that have killed at least 33 people and displaced more than two million others over the past week.`\
-https://nytimes.com/video/world/asia/100000010549033/thailand-military-deployment-floods.html
-
-**How a Canucks white flag is a Canadiens opportunity — and a test of their patience**\
-`The Canucks have let every other team know their UFAs are available, and one of them should be very appealing to the Canadiens.`\
-https://nytimes.com/athletic/6839084/2025/11/26/canadiens-canucks-trade-sherwood-nhl/
 
