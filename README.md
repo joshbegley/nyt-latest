@@ -1,3 +1,7 @@
+**Mick Jagger. Rolling Stone. Cultural icon. And cricket streaming pioneer**\
+`The Rolling Stones' lead singer, a huge cricket fan, spotted the huge potential of the internet while others still treated it with suspicion`\
+https://nytimes.com/athletic/6789244/2025/11/26/mick-jagger-rolling-stone-cultural-icon-and-cricket-streaming-pioneer/
+
 **'He never hides' - how Amorim copes with the highs and lows of management**\
 `Filipe Celikkaya knows the Manchester United head coach better than most in football - he says sticking to his principles will pay off `\
 https://nytimes.com/athletic/6836161/2025/11/26/ruben-amorim-manchester-united-filipe-celikkaya/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6836519/2025/11/26/liverpool-body-language/
 **Why Real Madrid want to make huge changes to their ownership model**\
 `Florentino Perez made a dramatic announcement at the club's annual general meeting on Sunday. This is what it means`\
 https://nytimes.com/athletic/6836385/2025/11/26/real-madrid-ownership-florentino-perez-investment/
-
-**A Year Later, Donors to Trump’s Transition Come to Light**\
-`A 46-person list includes billionaires and people he went on to appoint to positions of power.`\
-https://nytimes.com/2025/11/26/us/politics/trump-transition-donors.html
 
