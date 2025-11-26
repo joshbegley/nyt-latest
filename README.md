@@ -1,3 +1,7 @@
+**Dubrovnik, Known for Its Beautiful Beaches, Faces a Mound of New Trash**\
+`Officials in Dubrovnik, Croatia, say the strong currents of the Adriatic Sea washed ashore a vast amount of garbage, mostly from Albania, during a recent storm.`\
+https://nytimes.com/2025/11/26/world/europe/croatia-trash-dubrovnik-plastic.html
+
 **‘I Wanted to Cry’: Gunshots Rattled Residents and Tourists**\
 `On the eve of Thanksgiving, bystanders said the sound of gunfire was followed by anxiety over who did the shooting.`\
 https://nytimes.com/2025/11/26/us/washington-shooting-guard-witnesses.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/26/world/europe/uk-budget-starmer-reeves.html
 **Former Lions All-Pro center Frank Ragnow comes out of retirement**\
 `The three-time All Pro second teamer will be a massive boost to Detroit's offensive line that has struggled at points this season.`\
 https://nytimes.com/athletic/6840886/2025/11/26/frank-ragnow-lions-retirement-comeback/
-
-**An Asia-Pacific Showdown**\
-`China and Japan are in a diplomatic feud over Taiwan, with President Trump in the middle.`\
-https://nytimes.com/2025/11/26/world/china-japan-trump-showdown-fire-riyadh.html
 
