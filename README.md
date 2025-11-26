@@ -1,3 +1,23 @@
+**How to Watch the Macy’s Thanksgiving Day Parade**\
+`The 99th edition of the New York parade will feature performances from Cynthia Erivo and Busta Rhymes, as well as dozens of floats and balloons.`\
+https://nytimes.com/2025/11/26/nyregion/macys-thanksgiving-day-parade-how-to-watch.html
+
+**Gratitude List**\
+`What are you grateful for this year?`\
+https://nytimes.com/2025/11/26/learning/gratitude-list.html
+
+**The Race for Mikie Sherrill’s House Seat Is On, and It’s Crowded**\
+`The dozen candidates include an activist endorsed by Bernie Sanders, New Jersey’s lieutenant governor and an ousted congressman running in a new district.`\
+https://nytimes.com/2025/11/26/nyregion/mikie-sherrill-congressional-seat-new-jersey-primary.html
+
+**The Key to Their 50-Year Marriages and Close-Knit Families? Friendship.**\
+`Six women in their 70s, all married and all mothers and grandmothers, have been meeting twice a month for 44 years. They talk about everything that life throws at them.`\
+https://nytimes.com/2025/11/26/nyregion/group-women-friendships-marriage-family.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/11/26/crosswords/spelling-bee-forum.html
+
 **Seth Meyers Bastes Trump for His Rambling Turkey Pardon**\
 `The president spent so much time talking that Meyers thinks the turkeys would have preferred to be put out of their misery.`\
 https://nytimes.com/2025/11/26/arts/television/seth-meyers-trump-turkey-pardon.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6835958/2025/11/26/nick-pope-aaron-ramsdale-newcast
 **Word of the Day: coterie**\
 `This word has appeared in 86 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/11/26/learning/word-of-the-day-coterie.html
-
-**Pep Guardiola gave his squad players a chance to impress against Leverkusen — they did not take it**\
-`A rare triple change at half-time was not enough to rescue the game for Manchester City`\
-https://nytimes.com/athletic/6837271/2025/11/26/manchester-city-leverkusen-squad-depth/
-
-**Cole Palmer FC? Chelsea are showing they can flourish with or without their key man**\
-`The prospect of facing Arsenal without their No 10 was once a cause for major concern. Now, Chelsea have plenty of other attacking options`\
-https://nytimes.com/athletic/6838600/2025/11/26/chelsea-cole-palmer-estevao-barcelona/
-
-**Colorado State expected to hire UConn coach Jim Mora: Source**\
-`Mora just wrapped up his fourth regular season at UConn last week, posting a second consecutive nine-win season.`\
-https://nytimes.com/athletic/6838947/2025/11/26/colorado-state-uconn-jim-mora-cfb/
-
-**The New York Times in Print for Wednesday, Nov. 26, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/11/26/todays-new-york-times
-
-**Give Nuclear Power Another Chance**\
-`California and eight other states have outdated restrictions on building nuclear power plants.`\
-https://nytimes.com/2025/11/26/opinion/nuclear-energy-california-massachusetts.html
 
