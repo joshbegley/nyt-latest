@@ -1,3 +1,7 @@
+**CJ McCollum's 27-point first half sparks Wizards' red-hot start vs. Hawks**\
+`McCollum made his first five 3-pointers and seven of eight attempts from long distance to help Washington open a 22-point halftime lead.`\
+https://nytimes.com/athletic/6838481/2025/11/25/cj-mccollum-stats-first-half-wizards-hawks/
+
 **The Red Sox like Sonny Gray's strikeout potential, but can he be a No. 2 starter?**\
 `For his part, in waiving his no-trade clause, Gray showed his desire to once again pitch in a big market for a playoff contender.`\
 https://nytimes.com/athletic/6838204/2025/11/25/boston-red-sox-sonny-gray-trade-fit/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/25/world/europe/putin-calendar-russia.html
 **Volcanic Eruption in Ethiopia Creates Flight Delays in India**\
 `The volcanic eruption sent into the atmosphere an ash cloud, which gusts of wind blew eastward toward the Indian subcontinent. Multiple flights in India were delayed or rerouted as a precaution, according to India’s Ministry of Civil Aviation.`\
 https://nytimes.com/video/travel/100000010547959/ethiopia-volcano-india-flight-delay.html
-
-**Trump Administration Will Raise Prices for Foreign Tourists at National Parks**\
-`The price increases comes as more and more international travelers are choosing to stay away from the United States and amid turmoil at the National Park Service.`\
-https://nytimes.com/2025/11/25/us/politics/national-parks-prices-tourists-trump.html
 
