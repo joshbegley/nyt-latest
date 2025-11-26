@@ -1,3 +1,7 @@
+**Spat With China Becomes an Asset for Japan’s New Leader**\
+`Japan’s prime minister, Sanae Takaichi, is not backing off from comments about Taiwan that enraged China. Many of Japan’s voters like her stance.`\
+https://nytimes.com/2025/11/26/world/asia/japan-china-taiwan-takaichi-dispute.html
+
 **Abducted Girls Are Freed in Nigeria, Where Violence Worsens Hunger**\
 `Two dozen schoolgirls were freed on Tuesday after being kidnapped in Kebbi state. A wave of mass kidnappings has spread terror and deepened the nation’s hunger crisis.`\
 https://nytimes.com/video/world/africa/100000010548810/nigeria-food-violence-usaid.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6839096/2025/11/26/broncos-vs-commanders-stream-how
 **Clippers' Kris Dunn ejected after pushing Luka Dončić in loss to Lakers**\
 `Frustration boiled over for the Clippers' wing late in Tuesday night's loss to the Lakers.`\
 https://nytimes.com/athletic/6839048/2025/11/26/lakers-clippers-kris-dunn-luka-doncic/
-
-**Is it time for Newcastle to drop Pope?**\
-`The England international has been at least partly at fault for goals in recent weeks. Should Aaron Ramsdale be given a chance?`\
-https://nytimes.com/athletic/6835958/2025/11/26/nick-pope-aaron-ramsdale-newcastle/
 
