@@ -1,3 +1,11 @@
+**France’s Ex-President Loses Graft Appeal, Weeks After He Was Jailed in Separate Case**\
+`France’s highest court has upheld a conviction against Nicolas Sarkozy, who led France until 2012. It comes weeks after he was jailed in a different fraud trial.`\
+https://nytimes.com/2025/11/26/world/europe/france-sarkozy-corruption-conviction.html
+
+**Live Updates: At Least 13 Are Killed as Fire Engulfs Hong Kong Apartments**\
+`Firefighters were still trying to extinguish the blaze at an apartment complex in the city’s northern Tai Po district.`\
+https://nytimes.com/live/2025/11/26/world/hong-kong-fire
+
 **Is Trump’s Plan to Remake the Fed Coming Into Focus?**\
 `Kevin Hassett, a top White House economic adviser , is said to become the front-runner to lead the Federal Reserve, raising questions about its independence.`\
 https://nytimes.com/2025/11/26/business/dealbook/hassett-trump-fed.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6836153/2025/11/26/broncos-contract-extensions-fran
 **Mandel's Mailbag: Everyone wants Lane Kiffin. Are we sure that's a good idea?**\
 `Plus, will CFP playoff expansion really solve the problems of win-now or bust leading to high coaching turnover?`\
 https://nytimes.com/athletic/6838709/2025/11/26/lane-kiffin-ole-miss-college-football-playoff/
-
-**The best recruiter on Nebraska's campus? Try the assistant volleyball coach**\
-`Nebraska coaches in other sports view Jaylen Reyes as a resource and occasionally tap into his expertise.`\
-https://nytimes.com/athletic/6837549/2025/11/26/nebraska-volleyball-jaylen-reyes-coach-recruiting/
-
-**Oilers report cards: Goalies, defencemen get low grades after 25 games**\
-`Though there are many reasons for their slow start, the Oilers have looked nothing like a Stanley Cup contender.`\
-https://nytimes.com/athletic/6837119/2025/11/26/edmonton-oilers-grades-report-cards-2025/
 

@@ -1,3 +1,11 @@
+**France’s Ex-President Loses Graft Appeal, Weeks After He Was Jailed in Separate Case**\
+`France’s highest court has upheld a conviction against Nicolas Sarkozy, who led France until 2012. It comes weeks after he was jailed in a different fraud trial.`\
+https://nytimes.com/2025/11/26/world/europe/france-sarkozy-corruption-conviction.html
+
+**Live Updates: At Least 13 Are Killed as Fire Engulfs Hong Kong Apartments**\
+`Firefighters were still trying to extinguish the blaze at an apartment complex in the city’s northern Tai Po district.`\
+https://nytimes.com/live/2025/11/26/world/hong-kong-fire
+
 **Is Trump’s Plan to Remake the Fed Coming Into Focus?**\
 `Kevin Hassett, a top White House economic adviser , is said to become the front-runner to lead the Federal Reserve, raising questions about its independence.`\
 https://nytimes.com/2025/11/26/business/dealbook/hassett-trump-fed.html
