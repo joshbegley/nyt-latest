@@ -1,3 +1,11 @@
+**One thing each Hurricanes player is thankful for this season**\
+`Carolina, collectively, can have gratitude for its strong record — but what about individual players?`\
+https://nytimes.com/athletic/6838316/2025/11/26/carolina-hurricanes-slavin-jarvis/
+
+**NHL 2025-26 attendance check-in: Wild and Blackhawks down, Sharks and Blue Jackets up**\
+`Where does your team rank in attendance over a quarter of the way through 2025-26, and is it a jump up or down?`\
+https://nytimes.com/athletic/6838507/2025/11/26/nhl-2025-26-attendance-wild-sharks-blackhawks/
+
 **Fire Engulfs High-Rise Buildings in Hong Kong**\
 `At least four people died after a blaze tore through high-rise apartment towers in Hong Kong on Wednesday, a government spokeswoman said.`\
 https://nytimes.com/video/world/asia/100000010549017/hong-kong-apartments-fire.html
