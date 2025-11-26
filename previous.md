@@ -1,3 +1,15 @@
+**As Hopes for a Trade Deal With Trump Vanish, Canada Tackles Tariff Fallout**\
+`Prime Minister Mark Carney announced curbs on steel imports, a new tariff and help with steel and lumber freight costs in a bid to aid Canadian industries.`\
+https://nytimes.com/2025/11/26/world/canada/trump-carney-canada-tariffs-trade.html
+
+**College basketball player in Oklahoma dies after suffering head injury during game**\
+`Ethan Dietz, a 6-foot-8 forward for Connors State College in eastern Oklahoma, was injured during the Cowboys’ game against Grayson College`\
+https://nytimes.com/athletic/6841002/2025/11/26/connors-state-ethan-dietz-death/
+
+**College football picks ATS: OSU-Michigan, Iron Bowl make for loaded rivalry week**\
+`Rivalry week features plenty of games with tons on the line beyond bragging rights. See how our staff is picking the games.`\
+https://nytimes.com/athletic/6837661/2025/11/26/college-football-rivalry-week-picks-spread-ohio-state-michigan-alabama-auburn/
+
 **College football rivalry week projected scores: Model predicts every FBS game**\
 `Austin Mock's projection model takes a look at what to expect for rivalry week, including just how close the Texas A&M-Texas game is.`\
 https://nytimes.com/athletic/6840958/2025/11/26/college-football-rivalry-week-projected-scores-model/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6840912/2025/11/26/kylian-mbappe-hattrick-real-madr
 **The Briefing: Arsenal 3 Bayern Munich 1: Mikel Arteta's winning machine marches on**\
 `The Athletic unpicks a commanding Arsenal win over Bayern Munich`\
 https://nytimes.com/athletic/6836397/2025/11/26/arsenal-bayern-munich-result-champions-league/
-
-**PSG 5 Spurs 3 - Were there positives for Frank? How did Vitinha score that? How did Richarlison and Kolo Muani combine?**\
-`Our writers break down the action from an entertaining Champions League game in Paris`\
-https://nytimes.com/athletic/6836462/2025/11/26/tottenham-psg-thomas-frank-vitinha/
-
-**U.S. Army Secretary’s Unusual Role in Ukraine Peace Negotiations**\
-`Daniel Driscoll has met with Ukrainian and Russian officials during a whirlwind of trips as the Trump administration pushes its latest proposal.`\
-https://nytimes.com/2025/11/26/us/politics/ukraine-russia-peace-talks-daniel-driscoll.html
-
-**The Briefing: Liverpool 1 PSV 4 - Risk of Slot's side not qualifying? Is conceding first an issue?**\
-`Liverpool fell to a shock 4-1 loss to PSV Eindhoven on Wednesday night to make it three defeats in a row`\
-https://nytimes.com/athletic/6836398/2025/11/26/liverpool-psv-result-report-score-analysis/
 
