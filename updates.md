@@ -1,4 +1,8 @@
 **NWSL final draws more than 1 million TV viewers, smashes audience record for league**\
+`Gotham FC's 1-0 win over the Washington Spirit delivered an average of 1.184 million viewers, a new high for any NWSL game airing on TV.`\
+https://nytimes.com/athletic/6838622/2025/11/25/nwsl-championship-tv-record-viewership/
+
+**NWSL final draws more than 1 million TV viewers, smashes audience record for league**\
 `In-stadium attendance for the NWSL playoffs also surged.`\
 https://nytimes.com/athletic/6838622/2025/11/25/nwsl-championship-tv-record-viewership/
 
