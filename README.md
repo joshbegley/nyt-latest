@@ -1,3 +1,31 @@
+**How SailGP was created from scratch and 'cracked the code'**\
+`As SailGP's season comes to a conclusion this weekend, the league has enjoyed further growth this year but will it ever be mainstream?`\
+https://nytimes.com/athletic/6836328/2025/11/26/sail-gp-growth-ryan-reynlds-hugh-jackman/
+
+**‘You Start Getting Desperate’: How It Feels to Be Young and Jobless in Britain**\
+`Rising youth unemployment is one of the challenges that will affect the success of the British chancellor’s economic approach as she unveils a crucial budget on Wednesday.`\
+https://nytimes.com/2025/11/26/world/europe/uk-budget-youth-unemployment-minimum-wage.html
+
+**Pope Leo Set to Visit Mideast on First Trip as Pontiff**\
+`Leo XIV will meet political and religious leaders in Turkey and Lebanon, providing an early test of his geopolitical mettle. Here’s what to know.`\
+https://nytimes.com/2025/11/26/world/middleeast/pope-leo-trip-turkey-lebanon.html
+
+**Connections: Sports Edition Coach: Hints for Nov. 26, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6838885/2025/11/26/connections-sports-edition-hints-for-nov-26-2025/
+
+**Fantasy football rankings Week 13: Sleepers, starts, best Thanksgiving food, and worst**\
+`Jake Ciely prepares you for the holiday week slate with sleepers, start/sit notes, and a list of the best (and worst) Thanksgiving foods.`\
+https://nytimes.com/athletic/6837273/2025/11/26/fantasy-football-rankings-week-13-sleepers-starts-notes/
+
+**A Major Moment for the British Economy: What to Watch in the U.K. Budget**\
+`Rachel Reeves, the top economic official in an increasingly unpopular government, will appear in Parliament to present tax and spending plans.`\
+https://nytimes.com/2025/11/26/business/uk-budget-rachel-reeves-tax-spending.html
+
+**Corrections: Nov. 26, 2025**\
+`Corrections that appeared in print on Wednesday, Nov. 26, 2025.`\
+https://nytimes.com/2025/11/26/pageoneplus/corrections-nov-26-2025.html
+
 **Quote of the Day: U.S. Envisions Gazans Living In Compounds**\
 `Quotation of the Day for Wednesday, November 26, 2025.`\
 https://nytimes.com/2025/11/25/pageoneplus/quote-of-the-day-us-envisions-gazans-living-in-compounds.html
@@ -9,32 +37,4 @@ https://nytimes.com/2025/11/25/t-magazine/holiday-table-styling.html
 **Taiwan’s President to Seek an Extra $40 Billion for Military**\
 `President Lai Ching-te says the spending, which must be approved by the island’s legislature, would fund purchases of arms from the United States.`\
 https://nytimes.com/2025/11/25/world/asia/taiwan-40-billion-military-trump.html
-
-**John Green on Hope Versus Despair**\
-`John Green is the author of the mega-best-selling “The Fault in Our Stars.`\
-https://nytimes.com/video/podcasts/100000010546368/the-interview-with-john-green-john-green-on-hope-versus-despair.html
-
-**Robert L. Dear Jr., Who Killed 3 at Colorado Planned Parenthood, Dies in Prison**\
-`Four police officers were among those wounded by Mr. Dear in his 2015 rampage when he targeted the clinic in Colorado Springs.`\
-https://nytimes.com/2025/11/25/us/robert-dear-planned-parenthood-dead.html
-
-**How Leagues Are Responding to Betting Scandals**\
-`Leagues like the N.B.A., M.L.B. and N.F.L. have started to respond to the recent sports betting scandals. Hannah Vanbiber, a senior sports betting editor at The Athletic, explains the latest reactions and how regulations can be changed.`\
-https://nytimes.com/video/the-athletic/100000010546370/how-leagues-are-responding-to-betting-scandals.html
-
-**Drive Back**\
-`John McClung makes his New York Times Crossword debut.`\
-https://nytimes.com/2025/11/25/crosswords/daily-puzzle-2025-11-26.html
-
-**Magic-76ers first half sees Anthony Black score 27, Jalen Suggs ejected**\
-`Tuesday night’s first half between the Magic and 76ers featured some fireworks from Anthony Black and Jalen Suggs.`\
-https://nytimes.com/athletic/6838636/2025/11/25/jalen-suggs-ejected-anthony-black-stats-orlando-76ers/
-
-**Broncos agree to 4-year extension with center Luke Wattenberg: Source**\
-`The deal is for $48 million and comes with $27 million guaranteed, placing him among the league's five highest-paid centers in terms of AAV.`\
-https://nytimes.com/athletic/6838649/2025/11/25/center-luke-wattenberg-contract-four-year-extension/
-
-**NWSL final draws more than 1 million TV viewers, smashes audience record for league**\
-`Gotham FC's 1-0 win over the Washington Spirit delivered an average of 1.184 million viewers, a new high for any NWSL game airing on TV.`\
-https://nytimes.com/athletic/6838622/2025/11/25/nwsl-championship-tv-record-viewership/
 

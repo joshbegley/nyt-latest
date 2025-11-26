@@ -1,3 +1,7 @@
+**Quote of the Day: U.S. Envisions Gazans Living In Compounds**\
+`Quotation of the Day for Wednesday, November 26, 2025.`\
+https://nytimes.com/2025/11/25/pageoneplus/quote-of-the-day-us-envisions-gazans-living-in-compounds.html
+
 **How to Style a Holiday Table Your Guests Will Never Forget**\
 `A textile designer, a chef and an artist share their tablescapes and their tips.`\
 https://nytimes.com/2025/11/25/t-magazine/holiday-table-styling.html

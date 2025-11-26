@@ -1,3 +1,7 @@
+**Quote of the Day: U.S. Envisions Gazans Living In Compounds**\
+`Quotation of the Day for Wednesday, November 26, 2025.`\
+https://nytimes.com/2025/11/25/pageoneplus/quote-of-the-day-us-envisions-gazans-living-in-compounds.html
+
 **How to Style a Holiday Table Your Guests Will Never Forget**\
 `A textile designer, a chef and an artist share their tablescapes and their tips.`\
 https://nytimes.com/2025/11/25/t-magazine/holiday-table-styling.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6838649/2025/11/25/center-luke-wattenberg-contract-
 **NWSL final draws more than 1 million TV viewers, smashes audience record for league**\
 `Gotham FC's 1-0 win over the Washington Spirit delivered an average of 1.184 million viewers, a new high for any NWSL game airing on TV.`\
 https://nytimes.com/athletic/6838622/2025/11/25/nwsl-championship-tv-record-viewership/
-
-**Why Keep Racing in the Same Park for 50 Years? It Never Gets Old.**\
-`Two runners, Anthony Ruiz and Leo Murillo, have been returning to Van Cortlandt Park for cross-country races since they were in high school in the 1970s.`\
-https://nytimes.com/card/2025/11/26/well/move/van-cortlandt-park-cross-country-masters
 
