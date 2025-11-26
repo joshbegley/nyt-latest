@@ -1,9 +1,13 @@
+**When the Next Pandemic Comes, MAHA Says, You’re on Your Own**\
+`The N.I.H. director has learned all the wrong lessons from Covid.`\
+https://nytimes.com/2025/11/26/opinion/when-the-next-pandemic-comes-maha-says-youre-on-your-own.html
+
 **Deadly, fast-moving fire is less likely in Midtown Manhattan, experts say.**\
 `The area’s high-rises have robust safety features and are not as densely packed as those in Hong Kong, making them less susceptible to blazes.`\
 https://nytimes.com/live/2025/11/26/world/hong-kong-fire/midtown-manhattan-fire-safety
 
-**Live Updates: National Guard Member Shot Near White House**\
-`Dozens of emergency responders and police vehicles were amassed at the scene of the shooting, an area of downtown Washington where troops have been patrolling for months.`\
+**Live Updates: Two National Guard Members Shot Near White House**\
+`Dozens of emergency responders and police vehicles were amassed at the scene in downtown Washington, where troops have been patrolling for months. The D.C. police said one suspect was in custody.`\
 https://nytimes.com/live/2025/11/26/us/national-guard-shooting-dc
 
 **Here’s the latest.**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6839543/2025/11/26/nfl-week-13-confidence-picks-cow
 **Ex-Arsenal player Cygan wants to send NYC mayor-elect Mamdani an old jersey**\
 `Speaking about his love of Arsenal earlier this week, Mamdani had said: "Every day I wake up, I think about Squillaci, Cygan, Chamakh."`\
 https://nytimes.com/athletic/6840550/2025/11/26/zohran-mamdani-arsenal-pascal-cygan/
-
-**Smoke, a Knock on the Door and a Battle to Escape**\
-`Residents describe how a blaze in a high-rise building in Hong Kong quickly spread, taking many by surprise and trapping an unknown number of people in the burning buildings.`\
-https://nytimes.com/2025/11/26/world/asia/hong-kong-apartments-fire-residents.html
 

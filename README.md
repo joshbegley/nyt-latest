@@ -7,7 +7,7 @@ https://nytimes.com/2025/11/26/opinion/when-the-next-pandemic-comes-maha-says-yo
 https://nytimes.com/live/2025/11/26/world/hong-kong-fire/midtown-manhattan-fire-safety
 
 **Live Updates: Two National Guard Members Shot Near White House**\
-`Dozens of emergency responders and police vehicles were amassed at the scene in downtown Washington, where troops have been patrolling for months. The D.C. police said one suspect was in custody.`\
+`The identity and condition of the Guardsmen were not immediately known. The Washington D.C. police said one suspect was in custody.`\
 https://nytimes.com/live/2025/11/26/us/national-guard-shooting-dc
 
 **Here’s the latest.**\

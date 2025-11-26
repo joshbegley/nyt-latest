@@ -1,3 +1,11 @@
+**When the Next Pandemic Comes, MAHA Says, You’re on Your Own**\
+`The N.I.H. director has learned all the wrong lessons from Covid.`\
+https://nytimes.com/2025/11/26/opinion/when-the-next-pandemic-comes-maha-says-youre-on-your-own.html
+
+**Live Updates: Two National Guard Members Shot Near White House**\
+`Dozens of emergency responders and police vehicles were amassed at the scene in downtown Washington, where troops have been patrolling for months. The D.C. police said one suspect was in custody.`\
+https://nytimes.com/live/2025/11/26/us/national-guard-shooting-dc
+
 **Deadly, fast-moving fire is less likely in Midtown Manhattan, experts say.**\
 `The area’s high-rises have robust safety features and are not as densely packed as those in Hong Kong, making them less susceptible to blazes.`\
 https://nytimes.com/live/2025/11/26/world/hong-kong-fire/midtown-manhattan-fire-safety
