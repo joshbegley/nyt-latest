@@ -1,3 +1,7 @@
+**Trump Administration Live Updates: President Discloses List of Transition Donors**\
+``\
+https://nytimes.com/live/2025/11/26/us/trump-news
+
 **Broncos have handed out loads of extensions under Sean Payton. Who could be next?**\
 `Kicker Wil Lutz was the 10th Broncos player in the past 18 months to sign a multi-year extension with the team. More deals could be coming.`\
 https://nytimes.com/athletic/6836153/2025/11/26/broncos-contract-extensions-franklin-myers-dobbins/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6839251/2025/11/26/clippers-lakers-reversal-fortune
 **What I'm hearing about J.J. McCarthy, Jerry Jones' trade steal and more**\
 `Also: Tom Brady's Raiders frustrations, Kyle Shanahan's latest masterpiece and the NFL storylines that will carry Thanksgiving conversation.`\
 https://nytimes.com/athletic/6838665/2025/11/26/nfl-rumors-news-j-j-mccarthy-jerry-jones-george-pickens/
-
-**What You’re Thankful For**\
-`Six-word stories of gratitude.`\
-https://nytimes.com/2025/11/26/briefing/what-youre-thankful-for.html
 
