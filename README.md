@@ -1,3 +1,15 @@
+**How to watch Western Kentucky vs. Vanderbilt men's basketball: Time, TV, streaming**\
+`Find out how to watch the Western Kentucky Hilltoppers play the Vanderbilt Commodores, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6839333/2025/11/26/western-kentucky-vs-vanderbilt-stream-how-to-watch-nov-26/
+
+**How to watch Syracuse vs. Iowa State men's basketball: Time, TV, streaming**\
+`Find out how to watch the Syracuse Orange play the Iowa State Cyclones, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6839331/2025/11/26/syracuse-vs-iowa-state-stream-how-to-watch-nov-26/
+
+**How to watch New Orleans vs. Texas Tech men's basketball: Time, TV, streaming**\
+`Find out how to watch the New Orleans Privateers play the Texas Tech Red Raiders, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6839329/2025/11/26/new-orleans-vs-texas-tech-stream-how-to-watch-nov-26/
+
 **U.S. Nuclear Arms Chief Warns Against Leaks of Secret Information**\
 `The email sent to atom bomb officials by Brandon Williams highlights the managerial challenge faced by the former one-term congressman.`\
 https://nytimes.com/2025/11/26/science/brandon-williams-nuclear-weapons-nnsa.html
@@ -25,16 +37,4 @@ https://nytimes.com/interactive/2025/11/26/arts/television/how-stranger-things-d
 **Nobody Should Go to Jail for a Harmless Meme**\
 `The best way to honor Charlie Kirk is not to criminalize speech.`\
 https://nytimes.com/2025/11/26/opinion/charlie-kirk-free-speech-bushart.html
-
-**A Therapist’s Emotional Tool Kit for a Better Holiday Season**\
-`Family holidays can be stressful. They don’t have to be.`\
-https://nytimes.com/2025/11/26/podcasts/nedra-tawwab-holidays-family-thanksgiving.html
-
-**Detroit Has Its Own Thanksgiving Parade. The City Gets Bigheaded About It.**\
-`The march down Woodward Avenue, which endured through the city’s hardest years, features papier-mâché caricatures that are uniquely Detroit.`\
-https://nytimes.com/2025/11/26/us/detroit-michigan-thanksgiving-parade.html
-
-**The First Thanksgiving Proclamation, 12 Years Before the Constitution**\
-`The revolutionary Samuel Adams is credited with writing the document in 1777. It referred to “a just and necessary war” against the British.`\
-https://nytimes.com/2025/11/26/nyregion/thanksgiving-proclamation-1777-christies.html
 
