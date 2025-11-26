@@ -1,3 +1,15 @@
+**Feringa: 'Women’s sports fans just want to be respected as sport fans'**\
+`The Women's League Cup draw descended into chaos, marred by lewd sexual innuendos and a ball mistakenly being placed back into the bag`\
+https://nytimes.com/athletic/6839244/2025/11/26/womens-league-cup-sports-fans-soccer/
+
+**Pope Leo Blesses Rave-Goers in Slovakia**\
+`A papal video message appeared before a crowd of hundreds, as Guilherme Peixoto, a priest who doubles as an electronic D.J., put on a show.`\
+https://nytimes.com/2025/11/26/world/europe/pope-leo-rave-blessing-slovakia.html
+
+**Trump Defends Envoy’s Tactics in Ukraine Negotiations**\
+`President Trump said the envoy, Steve Witkoff, was using standard negotiating methods, after he appeared to coach a Russian official in a leaked call.`\
+https://nytimes.com/2025/11/26/us/politics/trump-ukraine-peace-deal-witkoff.html
+
 **A Speedy Art-Career Rise Fueled by a Descent Into Our Modern Abyss**\
 `Contemporary life, speculative fiction, Asian futurism and social documentary all meet in Ayoung Kim’s videos at MoMA PS1. And are they fun to watch!`\
 https://nytimes.com/2025/11/26/arts/design/ayoung-kim-video-artist-ps1.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6839858/2025/11/26/arsenal-munoz-record-youngest-pl
 **Did the Giant Heads of Easter Island Once Walk?**\
 `Scholars have long debated how the massive stone figures of Rapa Nui got to where they stand today. A new study offers one possible explanation.`\
 https://nytimes.com/2025/11/26/science/archaeology-easter-island-rapa-nui.html
-
-**College Football Playoff bubble watch: What a blind resume test reveals about the at-large race**\
-`If you take the logos off every team's resume, who stands out?`\
-https://nytimes.com/athletic/6839811/2025/11/26/college-football-playoff-bubble-notre-dame-alabama-byu/
-
-**Saints add York to practice squad over Tucker, release Grupe**\
-`In 23 career games, York has made 33 of 45 field goals and 51 of 54 extra point attempts for 150 points. `\
-https://nytimes.com/athletic/6839791/2025/11/26/saints-release-blake-grupe-cade-york/
-
-**Team USA unveils hockey jerseys for Milan-Cortina 2026 Olympics, Paralympics**\
-`USA Hockey revealed the jerseys that the American men’s, women’s and para teams will wear at the 2026 Olympics and Paralympics.`\
-https://nytimes.com/athletic/6837523/2025/11/26/usa-olympic-hockey-jerseys-milan-2026/
 
