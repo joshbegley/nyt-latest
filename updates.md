@@ -1,3 +1,11 @@
+**David Lerner, a Mr. Fix-it of Apple Computers, Dies at 72**\
+`He and a partner founded Tekserve, a Manhattan emergency room for frozen hard drives, keyboards, screens and their confounded owners.`\
+https://nytimes.com/2025/11/26/technology/personaltech/david-lerner-dead.html
+
+**NFL Week 13 model-projected scores and point totals for every game**\
+`Austin Mock's NFL Projection Model gives its predictions for the points differentials and totals for every Week 13 game.`\
+https://nytimes.com/athletic/6840936/2025/11/26/nfl-week-13-projected-scores-model-point-spreads-totals/
+
 **F.D.A. Withdraws Rule to Require Testing Cosmetics Made With Talc for Asbestos**\
 `The agency said it planned to craft a more comprehensive rule, but the move alarmed public health advocates, who have long worked to eliminate asbestos in consumer products.`\
 https://nytimes.com/2025/11/26/health/fda-cosmetics-talc-asbestos.html

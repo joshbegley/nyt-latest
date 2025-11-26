@@ -1,3 +1,11 @@
+**David Lerner, a Mr. Fix-it of Apple Computers, Dies at 72**\
+`He and a partner founded Tekserve, a Manhattan emergency room for frozen hard drives, keyboards, screens and their confounded owners.`\
+https://nytimes.com/2025/11/26/technology/personaltech/david-lerner-dead.html
+
+**NFL Week 13 model-projected scores and point totals for every game**\
+`Austin Mock's NFL Projection Model gives its predictions for the points differentials and totals for every Week 13 game.`\
+https://nytimes.com/athletic/6840936/2025/11/26/nfl-week-13-projected-scores-model-point-spreads-totals/
+
 **F.D.A. Withdraws Rule to Require Testing Cosmetics Made With Talc for Asbestos**\
 `The agency said it planned to craft a more comprehensive rule, but the move alarmed public health advocates, who have long worked to eliminate asbestos in consumer products.`\
 https://nytimes.com/2025/11/26/health/fda-cosmetics-talc-asbestos.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6840794/2025/11/26/packers-cowboys-bengals-thanksgi
 **The 11.30.25 Issue**\
 ``\
 https://nytimes.com/issue/magazine/2025/11/26/the-113025-issue
-
-**Tiny Love Stories: ‘No Hugging … and Definitely Nothing Lewd’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://nytimes.com/2025/11/26/style/tiny-modern-love-stories-no-hugging-and-definitely-nothing-lewd.html
-
-**Workers Inflate Balloons Ahead of Macy’s Thanksgiving Day Parade**\
-`Teams of workers in New York City began inflating balloons on Wednesday for the 99th Macy’s Thanksgiving Day Parade.`\
-https://nytimes.com/video/nyregion/100000010550198/macys-thanksgiving-parade-balloon-inflation.html
 
