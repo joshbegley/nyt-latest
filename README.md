@@ -1,3 +1,19 @@
+**Ben Johnson's 'secret sauce' for the surging Bears? Preparation, passion, belief**\
+`With a high-stakes Black Friday game on tap, the first-place Bears have an energetic coach and plans to stop the tush push.`\
+https://nytimes.com/athletic/6838093/2025/11/26/bears-ben-johnson-secret-sauce/
+
+**The Lions on TV, a growing national audience and building brand: A Thanksgiving tradition**\
+`"We kind of invented Thanksgiving football when no one else wanted to do it," Lions team president Rod Wood said.`\
+https://nytimes.com/athletic/6837046/2025/11/26/detroit-lions-thanksgiving-tv-packers/
+
+**Do the Knicks need to make a move before the NBA trade deadline?**\
+`Answering Knicks fan questions about the team's depth, Karl-Anthony Towns' inconsistencies and more.`\
+https://nytimes.com/athletic/6836158/2025/11/26/knicks-nba-trade-deadline-mailbag/
+
+**Why Chiefs' Patrick Mahomes says it will be 'surreal' to play Cowboys at AT&T Stadium**\
+`Mahomes was once a Dallas Cowboys fan. It's not the only reason he's looking forward to Thanksgiving.`\
+https://nytimes.com/athletic/6837136/2025/11/26/chiefs-patrick-mahomes-homecoming-cowboys/
+
 **College football rivalry week streaming guide: OSU-Michigan, Iron Bowl, Egg Bowl**\
 `College football's last regular-season weekend awakens rivalries across the country.`\
 https://nytimes.com/athletic/6826975/2025/11/26/ohio-state-michigan-rivalry-texas-alabama-how-to-watch/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6837688/2025/11/26/bulls-nba-defense/
 **Ravens' Nate Wiggins is drenched in confidence. And for him, that's nothing new**\
 `The 2024 first-round pick has always been extremely talented, but his most impressive trait may be the supreme confidence he has in himself.`\
 https://nytimes.com/athletic/6835530/2025/11/26/nate-wiggins-ravens-cornerback-confidence/
-
-**U.S. Olympic GM Bill Guerin on star injuries, crunch time for roster decisions: 'Dial in'**\
-`Who's in? Who's out? Who's on the bubble? Guerin discusses what his management group is looking at with five weeks until rosters are due.`\
-https://nytimes.com/athletic/6838128/2025/11/26/bill-guerin-united-states-olympic-roster-injuries/
-
-**Fantasy football best and worst Week 13 matchups: Start your Broncos!**\
-`Name your Broncos. Quarterback, running back, receivers ... KC Joyner likes them all in Week 13.`\
-https://nytimes.com/athletic/6835961/2025/11/26/fantasy-football-best-and-worst-week-13-matchups-its-start-your-broncos-week/
-
-**'Dangerous' court comes closest to stopping Luka Dončić, Lakers in win over Clippers**\
-`“I slipped a lot of times,” Dončić said after Tuesday's 135-118 victory. “And you could see a lot of players slipped. And that's dangerous.”`\
-https://nytimes.com/athletic/6839263/2025/11/26/lakers-doncic-clippers-court-nba-cup/
-
-**Unsung defensive spark lifts Tennessee past Houston — and strengthens its Final Four case**\
-`Once a benchwarmer, Bishop Boswell became Tennessee’s difference-maker on defense, boosting the Vols’ Final Four outlook.`\
-https://nytimes.com/athletic/6838907/2025/11/26/college-basketball-houston-tennessee-final-four/
 
