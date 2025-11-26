@@ -10,6 +10,10 @@ https://nytimes.com/athletic/6839985/2025/11/26/morgan-gibbs-white-injury-nottin
 `Wagner Moura takes cover in this knockout from the filmmaker Kleber Mendonça Filho that is largely set in 1977 during Brazil’s miliary dictatorship.`\
 https://nytimes.com/2025/11/26/movies/the-secret-agent-review.html
 
+**Ranking college football's 12 open coaching jobs: LSU No. 1; Cal or Stanford?**\
+`This could be the most active coaching carousel college football has seen in many years.`\
+https://nytimes.com/athletic/6662286/2025/11/26/college-football-open-coaching-jobs-rankings/
+
 **Grand Slam Track asks vendors to swallow millions in losses to save Michael Johnson's league**\
 `The start-up track organization beset by financial problems has sent letters asking vendors to accept 50 percent of what they are owed.`\
 https://nytimes.com/athletic/6837948/2025/11/26/grand-slam-track-michael-johnson-debts-bankruptcy/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6839791/2025/11/26/saints-release-blake-grupe-cade-
 **Team USA unveils hockey jerseys for Milan-Cortina 2026 Olympics, Paralympics**\
 `USA Hockey revealed the jerseys that the American men’s, women’s and para teams will wear at the 2026 Olympics and Paralympics.`\
 https://nytimes.com/athletic/6837523/2025/11/26/usa-olympic-hockey-jerseys-milan-2026/
-
-**The last time Hong Kong had a major fire was 2008.**\
-`The last five-alarm fire in Hong Kong engulfed a 15-story building in the Mong Kong district, killing four people.`\
-https://nytimes.com/live/2025/11/26/world/hong-kong-fire/the-last-time-hong-kong-had-a-major-fire-was-2008
 
