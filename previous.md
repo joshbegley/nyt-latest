@@ -1,3 +1,15 @@
+**Mick Jagger. Rolling Stone. Cultural icon. And cricket streaming pioneer**\
+`The Rolling Stones' lead singer, a huge cricket fan, spotted the huge potential of the internet while others still treated it with suspicion`\
+https://nytimes.com/athletic/6789244/2025/11/26/mick-jagger-rolling-stone-cultural-icon-and-cricket-streaming-pioneer/
+
+**'He never hides' - how Amorim copes with the highs and lows of management**\
+`Filipe Celikkaya knows the Manchester United head coach better than most in football - he says sticking to his principles will pay off `\
+https://nytimes.com/athletic/6836161/2025/11/26/ruben-amorim-manchester-united-filipe-celikkaya/
+
+**Could PSG homecoming finally be the night Spurs see the best of Randal Kolo Muani?**\
+`Tottenham have yet to see the best of the on-loan France striker, despite a few impressive flashes - it's time that changed...`\
+https://nytimes.com/athletic/6836882/2025/11/26/randal-kolo-muani-spurs-psg/
+
 **What is going on with Uche and does he have a future at Crystal Palace?**\
 `The €20million summer signing can barely get on the pitch and his manager seems less than impressed`\
 https://nytimes.com/athletic/6830331/2025/11/26/christantus-uche-crystal-palace-getafe/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6836519/2025/11/26/liverpool-body-language/
 **Why Real Madrid want to make huge changes to their ownership model**\
 `Florentino Perez made a dramatic announcement at the club's annual general meeting on Sunday. This is what it means`\
 https://nytimes.com/athletic/6836385/2025/11/26/real-madrid-ownership-florentino-perez-investment/
-
-**A Year Later, Donors to Trump’s Transition Come to Light**\
-`A 46-person list includes billionaires and people he went on to appoint to positions of power.`\
-https://nytimes.com/2025/11/26/us/politics/trump-transition-donors.html
-
-**How SailGP was created from scratch and 'cracked the code'**\
-`As SailGP's season comes to a conclusion this weekend, the league has enjoyed further growth this year but will it ever be mainstream?`\
-https://nytimes.com/athletic/6836328/2025/11/26/sail-gp-growth-ryan-reynlds-hugh-jackman/
-
-**‘You Start Getting Desperate’: How It Feels to Be Young and Jobless in Britain**\
-`Rising youth unemployment is one of the challenges that will affect the success of the British chancellor’s economic approach as she unveils a crucial budget on Wednesday.`\
-https://nytimes.com/2025/11/26/world/europe/uk-budget-youth-unemployment-minimum-wage.html
 
