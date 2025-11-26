@@ -1,3 +1,11 @@
+**Did the Giant Heads of Easter Island Once Walk?**\
+`Scholars have long debated how the massive stone figures of Rapa Nui got to where they stand today. A new study offers one possible explanation.`\
+https://nytimes.com/2025/11/26/science/archaeology-easter-island-rapa-nui.html
+
+**College Football Playoff bubble watch: What a blind resume test reveals about the at-large race**\
+`If you take the logos off every team's resume, who stands out?`\
+https://nytimes.com/athletic/6839811/2025/11/26/college-football-playoff-bubble-notre-dame-alabama-byu/
+
 **Saints add York to practice squad over Tucker, release Grupe**\
 `In 23 career games, York has made 33 of 45 field goals and 51 of 54 extra point attempts for 150 points. `\
 https://nytimes.com/athletic/6839791/2025/11/26/saints-release-blake-grupe-cade-york/

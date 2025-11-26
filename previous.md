@@ -1,3 +1,11 @@
+**Did the Giant Heads of Easter Island Once Walk?**\
+`Scholars have long debated how the massive stone figures of Rapa Nui got to where they stand today. A new study offers one possible explanation.`\
+https://nytimes.com/2025/11/26/science/archaeology-easter-island-rapa-nui.html
+
+**College Football Playoff bubble watch: What a blind resume test reveals about the at-large race**\
+`If you take the logos off every team's resume, who stands out?`\
+https://nytimes.com/athletic/6839811/2025/11/26/college-football-playoff-bubble-notre-dame-alabama-byu/
+
 **Saints add York to practice squad over Tucker, release Grupe**\
 `In 23 career games, York has made 33 of 45 field goals and 51 of 54 extra point attempts for 150 points. `\
 https://nytimes.com/athletic/6839791/2025/11/26/saints-release-blake-grupe-cade-york/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6839827/2025/11/26/nba-cup-thankful-thunder-spurs-t
 **Mbatata (Sweet Potato Cookies)**\
 `Mbatata is the word in Chichewa for the dense, creamy variety of this starchy root vegetable.`\
 https://nytimes.com/video/dining/100000010546461/mbatata-sweet-potato-cookies.html
-
-**The Orlando Magic are thriving. Can they keep playing this well?**\
-`Tuesday's big win over the 76ers was Orlando at its best. "I think we're figuring out our identity," forward Franz Wagner said.`\
-https://nytimes.com/athletic/6838968/2025/11/26/orlando-magic-franz-wagner-paolo-banchero-desmond-bane/
-
-**What's the best college football rivalry? We ranked the top 100**\
-`Rivalries form the backbone of college football. After months of research and debate, here's how the top 100 stack up.`\
-https://nytimes.com/athletic/6469306/2025/11/26/best-college-football-rivalries-rankings-100/
 
