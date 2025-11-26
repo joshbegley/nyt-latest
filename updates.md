@@ -1,3 +1,15 @@
+**Saints add York to practice squad over Tucker, release Grupe**\
+`In 23 career games, York has made 33 of 45 field goals and 51 of 54 extra point attempts for 150 points. `\
+https://nytimes.com/athletic/6839791/2025/11/26/saints-release-blake-grupe-cade-york/
+
+**Team USA unveils hockey jerseys for Milan-Cortina 2026 Olympics, Paralympics**\
+`USA Hockey revealed the jerseys that the American men’s, women’s and para teams will wear at the 2026 Olympics and Paralympics.`\
+https://nytimes.com/athletic/6837523/2025/11/26/usa-olympic-hockey-jerseys-milan-2026/
+
+**Map: Small Quakes Shake Northern California**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/11/26/us/earthquake-northern-california-gilroy.html
+
 **The last time Hong Kong had a major fire was 2008.**\
 `The last five-alarm fire in Hong Kong engulfed a 15-story building in the Mong Kong district, killing four people.`\
 https://nytimes.com/live/2025/11/26/world/hong-kong-fire/the-last-time-hong-kong-had-a-major-fire-was-2008
