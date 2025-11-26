@@ -1,3 +1,7 @@
+**Northwestern University Nears Deal to Resolve Its Conflict With the White House**\
+`The school, one of several to face pressure campaigns from the Trump administration, would pay a $75 million fine and have its research funding restored under terms of the agreement being discussed.`\
+https://nytimes.com/2025/11/26/us/politics/northwestern-university-trump-deal.html
+
 **The High Stakes in the Ukraine Talks**\
 `Readers discuss the proposed deal to end the war between Ukraine and Russia. Also: Immigrant family separations; unplugging A.I.`\
 https://nytimes.com/2025/11/26/opinion/ukraine-russia-peace-talks.html

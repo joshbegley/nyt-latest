@@ -1,3 +1,15 @@
+**Yes, the Flyers will have to make a big trade. No, it doesn't mean everyone is available**\
+`Whether or not Quinn Hughes will be available, the Flyers will look at a big move — but only at a certain cost.`\
+https://nytimes.com/athletic/6840341/2025/11/26/philadelphia-flyers-trade-hughes-michkov/
+
+**Italy Passes a Femicide Law, Seeking to Prevent Violence Against Women**\
+`Murders of women killed for misogynistic reasons will now be classified as femicide. Campaigners say a broader cultural shift is still needed.`\
+https://nytimes.com/2025/11/26/world/europe/italy-femicide-violence-women.html
+
+**Giving thanks (and explaining) the most filling sports week of the year: MoneyCall**\
+`Also in this week's sports business cheat sheet: The top women's sports city snub, Elle Duncan, Mick Jagger, NWSL TV records and more.`\
+https://nytimes.com/athletic/6840427/2025/11/26/thanksgiving-nfl-amazon-black-friday-moneycall/
+
 **Northwestern University Nears Deal to Resolve Its Conflict With the White House**\
 `The school, one of several to face pressure campaigns from the Trump administration, would pay a $75 million fine and have its research funding restored under terms of the agreement being discussed.`\
 https://nytimes.com/2025/11/26/us/politics/northwestern-university-trump-deal.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/11/26/us/trump-green-card-interview-arrests.html
 **YES Network refutes rumors that Paul O'Neill has cancer**\
 `Social media posts claimed that the five-time World Series winner faced the "toughest battle of his life."`\
 https://nytimes.com/athletic/6840335/2025/11/26/paul-oneill-cancer-denial-yes-network/
-
-**Supreme Court Defers Ruling on Trump’s Effort to Oust Copyright Official**\
-`An appeals court panel had said that Shira Perlmutter, the head of the U.S. Copyright Office, could remain in her role as an adviser to Congress.`\
-https://nytimes.com/2025/11/26/us/politics/supreme-court-trump-copyright-official.html
-
-**NFL Week 13 staff picks: The games that are the turkey, stuffing and sides**\
-`With three Thanksgiving games, and a matchup of 8-3 teams on Black Friday, here's a breakdown of what you can feast on in NFL Week 13.`\
-https://nytimes.com/athletic/6835189/2025/11/26/nfl-week-13-picks-chiefs-cowboys-bears-eagles/
-
-**What to Know About the Fire at a Hong Kong Apartment Complex**\
-`Firefighters struggled to contain the blaze in the high-rise buildings. At least 36 people were killed, and many more were feared trapped inside the towers.`\
-https://nytimes.com/2025/11/26/world/asia/hong-kong-fire-what-to-know.html
 
