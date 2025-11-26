@@ -1,3 +1,7 @@
+**Patriots rookie LT Will Campbell headed to IR**\
+`The Patriots will place Campbell, the No. 4 pick in the 2025 NFL Draft, on injured reserve. He'll miss at least the next four games.`\
+https://nytimes.com/athletic/6840446/2025/11/26/will-campbell-patriots-injured-reserve/
+
 **Bamboo scaffolding, like cladding, can create an unforgiving challenge for firefighters, an expert says.**\
 `By James Glanz`\
 https://nytimes.com/live/2025/11/26/world/hong-kong-fire/hongkong-fire-grenfell
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6840341/2025/11/26/philadelphia-flyers-trade-hughes
 **Italy Passes a Femicide Law, Seeking to Prevent Violence Against Women**\
 `Murders of women killed for misogynistic reasons will now be classified as femicide. Campaigners say a broader cultural shift is still needed.`\
 https://nytimes.com/2025/11/26/world/europe/italy-femicide-violence-women.html
-
-**Giving thanks (and explaining) the most filling sports week of the year: MoneyCall**\
-`Also in this week's sports business cheat sheet: The top women's sports city snub, Elle Duncan, Mick Jagger, NWSL TV records and more.`\
-https://nytimes.com/athletic/6840427/2025/11/26/thanksgiving-nfl-amazon-black-friday-moneycall/
 
