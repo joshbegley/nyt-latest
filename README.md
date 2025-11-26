@@ -1,40 +1,40 @@
-**How to watch St. John's vs. Auburn men's basketball: Time, TV, streaming**\
-`Find out how to watch the St. John's Red Storm play the Auburn Tigers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6840719/2025/11/26/st-john-s-vs-auburn-stream-how-to-watch-nov-26/
+**How to watch Timberwolves vs. Thunder: Time, TV, streaming**\
+`Find out how to watch the Minnesota Timberwolves play the Oklahoma City Thunder, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6840766/2025/11/26/timberwolves-vs-thunder-stream-how-to-watch-nov-26/
 
-**How to watch NJIT vs. Louisville men's basketball: Time, TV, streaming**\
-`Find out how to watch the NJIT Highlanders play the Louisville Cardinals, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6840713/2025/11/26/njit-vs-louisville-stream-how-to-watch-nov-26/
+**How to watch Sharks vs. Avalanche: Time, TV, streaming**\
+`Find out how to watch the San Jose Sharks play the Colorado Avalanche, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6840764/2025/11/26/sharks-vs-avalanche-stream-how-to-watch-nov-26/
 
-**When the Next Pandemic Comes, MAHA Says, You’re on Your Own**\
-`The N.I.H. director has learned all the wrong lessons from Covid.`\
-https://nytimes.com/2025/11/26/opinion/when-the-next-pandemic-comes-maha-says-youre-on-your-own.html
+**How to watch Pacers vs. Raptors: Time, TV, streaming**\
+`Find out how to watch the Indiana Pacers play the Toronto Raptors, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6840762/2025/11/26/pacers-vs-raptors-stream-how-to-watch-nov-26/
 
-**Deadly, fast-moving fire is less likely in Midtown Manhattan, experts say.**\
-`The area’s high-rises have robust safety features and are not as densely packed as those in Hong Kong, making them less susceptible to blazes.`\
-https://nytimes.com/live/2025/11/26/world/hong-kong-fire/midtown-manhattan-fire-safety
+**How to watch Stars vs. Kraken: Time, TV, streaming**\
+`Find out how to watch the Dallas Stars play the Seattle Kraken, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6840761/2025/11/26/stars-vs-kraken-stream-how-to-watch-nov-26/
 
-**Live Updates: Two National Guard Members Shot Near White House**\
-`The identity and condition of the Guardsmen were not immediately known. The Washington D.C. police said one suspect was in custody.`\
-https://nytimes.com/live/2025/11/26/us/national-guard-shooting-dc
+**How to watch Canucks vs. Ducks: Time, TV, streaming**\
+`Find out how to watch the Vancouver Canucks play the Anaheim Ducks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6840758/2025/11/26/canucks-vs-ducks-stream-how-to-watch-nov-26/
 
-**Here’s the latest.**\
-`Dozens of emergency responders and police vehicles were amassed at the corner of the shooting.`\
-https://nytimes.com/live/2025/11/26/us/national-guard-shooting-dc/dc-shooting-national-guard
+**How to watch Suns vs. Kings: Time, TV, streaming**\
+`Find out how to watch the Phoenix Suns play the Sacramento Kings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6840757/2025/11/26/suns-vs-kings-stream-how-to-watch-nov-26/
 
-**ICE Detains Woman With Family Ties to White House Press Secretary**\
-`Bruna Caroline Ferreira, the mother of a nephew of the White House press secretary, Karoline Leavitt, was pulled over and arrested on her way to pick up her son from school, Ms. Ferreira’s lawyer said.`\
-https://nytimes.com/2025/11/26/us/karoline-leavitt-ice-family-member-bruna-ferreira.html
+**How to watch Wild vs. Blackhawks: Time, TV, streaming**\
+`Find out how to watch the Minnesota Wild play the Chicago Blackhawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6840754/2025/11/26/wild-vs-blackhawks-stream-how-to-watch-nov-26/
 
-**Anthony Davis calls Nico Harrison firing 'surprising' as he nears return from injury**\
-`The Mavericks are 3-11 this season without their star big man, who hopes to return Friday against his former team, the Lakers.`\
-https://nytimes.com/athletic/6840538/2025/11/26/mavericks-anthony-davis-nico-harrison/
+**How to watch Canadiens vs. Mammoth: Time, TV, streaming**\
+`Find out how to watch the Montreal Canadiens play the Utah Mammoth, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6840752/2025/11/26/canadiens-vs-mammoth-stream-how-to-watch-nov-26/
 
-**Sebastian Berhalter has come to epitomize everything Mauricio Pochettino wants**\
-`Quite a plot twist: The son of the old coach has become a prototype for what the new coach wants leading into the USMNT's home World Cup`\
-https://nytimes.com/athletic/6837821/2025/11/26/sebastian-berhalter-mauricio-pochettino-usmnt-culture/
+**How to watch Senators vs. Golden Knights: Time, TV, streaming**\
+`Find out how to watch the Ottawa Senators play the Vegas Golden Knights, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6840750/2025/11/26/senators-vs-golden-knights-stream-how-to-watch-nov-26/
 
-**Matthews, Knies to return to Maple Leafs lineup vs. Blue Jackets**\
-`Having lost seven of their last eight games and sitting last place in the Eastern Conference, the lineup changes come at a crucial point.`\
-https://nytimes.com/athletic/6840451/2025/11/26/auston-matthews-matthew-knies-maple-leafs/
+**‘In Triage Every Day.’ A Beleaguered Speaker Says He’s Overwhelmed**\
+`In a podcast interview, Speaker Mike Johnson opened up about the crushing demands of a job that he joked was his in name only.`\
+https://nytimes.com/2025/11/26/us/politics/speaker-mike-johnson-beleagured.html
 

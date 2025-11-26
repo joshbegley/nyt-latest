@@ -1,3 +1,11 @@
+**How to watch St. John's vs. Auburn men's basketball: Time, TV, streaming**\
+`Find out how to watch the St. John's Red Storm play the Auburn Tigers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6840719/2025/11/26/st-john-s-vs-auburn-stream-how-to-watch-nov-26/
+
+**How to watch NJIT vs. Louisville men's basketball: Time, TV, streaming**\
+`Find out how to watch the NJIT Highlanders play the Louisville Cardinals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6840713/2025/11/26/njit-vs-louisville-stream-how-to-watch-nov-26/
+
 **Live Updates: Two National Guard Members Shot Near White House**\
 `The identity and condition of the Guardsmen were not immediately known. The Washington D.C. police said one suspect was in custody.`\
 https://nytimes.com/live/2025/11/26/us/national-guard-shooting-dc
