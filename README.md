@@ -20,7 +20,7 @@ https://nytimes.com/athletic/6839084/2025/11/26/canadiens-canucks-trade-sherwood
 
 **Map: Small Quakes Shake Northern California**\
 `View the location of the quake’s epicenter and shake area.`\
-https://nytimes.com/interactive/2025/11/26/us/earthquake-san-francisco-bay-area.html
+https://nytimes.com/interactive/2025/11/26/us/earthquake-northern-california-gilroy.html
 
 **The Bounce: What every NBA team should be thankful for. Plus, an NBA Cupdate**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
