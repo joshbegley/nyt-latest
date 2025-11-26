@@ -1,3 +1,23 @@
+**How to Watch the Macy’s Thanksgiving Day Parade**\
+`The 99th edition of the New York parade will feature performances from Cynthia Erivo and Busta Rhymes, as well as dozens of floats and balloons.`\
+https://nytimes.com/2025/11/26/nyregion/macys-thanksgiving-day-parade-how-to-watch.html
+
+**Gratitude List**\
+`What are you grateful for this year?`\
+https://nytimes.com/2025/11/26/learning/gratitude-list.html
+
+**The Race for Mikie Sherrill’s House Seat Is On, and It’s Crowded**\
+`The dozen candidates include an activist endorsed by Bernie Sanders, New Jersey’s lieutenant governor and an ousted congressman running in a new district.`\
+https://nytimes.com/2025/11/26/nyregion/mikie-sherrill-congressional-seat-new-jersey-primary.html
+
+**The Key to Their 50-Year Marriages and Close-Knit Families? Friendship.**\
+`Six women in their 70s, all married and all mothers and grandmothers, have been meeting twice a month for 44 years. They talk about everything that life throws at them.`\
+https://nytimes.com/2025/11/26/nyregion/group-women-friendships-marriage-family.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/11/26/crosswords/spelling-bee-forum.html
+
 **Seth Meyers Bastes Trump for His Rambling Turkey Pardon**\
 `The president spent so much time talking that Meyers thinks the turkeys would have preferred to be put out of their misery.`\
 https://nytimes.com/2025/11/26/arts/television/seth-meyers-trump-turkey-pardon.html
