@@ -1,3 +1,7 @@
+**He’s Beautiful, but He Has a Huge Blind Spot**\
+`Males of two species of pheasants seem to trade attractiveness for the ability to get a good look at predators.`\
+https://nytimes.com/2025/11/25/science/pheasants-blind-spot-vision.html
+
 **Fears About A.I. Prompt Talks of Super PACs to Rein In the Industry**\
 `As artificial intelligence companies prepare to pour money into the midterm elections, some in the A.I. world are hatching plans of their own to curb the industry’s influence.`\
 https://nytimes.com/2025/11/25/us/politics/ai-super-pac-anthropic.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6837874/2025/11/25/milan-lucic-blues-ahl-pro-tryout
 **The brilliant Estevao goal that shows he belongs on the Champions League stage**\
 `Chelsea's Brazilian teenager did not look out of place on the same pitch as Lamine Yamal on Tuesday night `\
 https://nytimes.com/athletic/6837879/2025/11/25/the-brilliant-estevao-goal-that-shows-he-belongs-on-the-champions-league-stage/
-
-**School Groups Sue to Stop Dismantling of the Education Department**\
-`The new complaint is aimed at changes the Trump administration would make to shift significant functions from the department to other federal agencies.`\
-https://nytimes.com/2025/11/25/us/politics/school-coalition-lawsuit-education-department.html
 
