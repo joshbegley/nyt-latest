@@ -1,3 +1,7 @@
+**He’s Beautiful, but He Has a Huge Blind Spot**\
+`Males of two species of pheasants seem to trade attractiveness for the ability to get a good look at predators.`\
+https://nytimes.com/2025/11/25/science/pheasants-blind-spot-vision.html
+
 **Fears About A.I. Prompt Talks of Super PACs to Rein In the Industry**\
 `As artificial intelligence companies prepare to pour money into the midterm elections, some in the A.I. world are hatching plans of their own to curb the industry’s influence.`\
 https://nytimes.com/2025/11/25/us/politics/ai-super-pac-anthropic.html

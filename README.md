@@ -1,3 +1,7 @@
+**Transportation Chief Wants Healthier In-Flight Snack Options**\
+`Sean Duffy, who has been promoting greater decorum among air travelers, said he would like to see choices besides salty pretzels and buttery cookies.`\
+https://nytimes.com/2025/11/25/us/sean-duffy-healthier-plane-snacks.html
+
 **He’s Beautiful, but He Has a Huge Blind Spot**\
 `Males of two species of pheasants seem to trade attractiveness for the ability to get a good look at predators.`\
 https://nytimes.com/2025/11/25/science/pheasants-blind-spot-vision.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6837857/2025/11/25/wsl-tottenham-league-cup-draw-gk
 **Milan Lucic's NHL comeback attempt falls short as Blues terminate AHL pro tryout**\
 `The 37-year-old was attempting a return to professional hockey after two years.`\
 https://nytimes.com/athletic/6837874/2025/11/25/milan-lucic-blues-ahl-pro-tryout-nhl/
-
-**The brilliant Estevao goal that shows he belongs on the Champions League stage**\
-`Chelsea's Brazilian teenager did not look out of place on the same pitch as Lamine Yamal on Tuesday night `\
-https://nytimes.com/athletic/6837879/2025/11/25/the-brilliant-estevao-goal-that-shows-he-belongs-on-the-champions-league-stage/
 
