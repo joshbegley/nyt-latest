@@ -1,3 +1,7 @@
+**Arsenal's Munoz, 13, becomes youngest UEFA Youth League player**\
+`The 2011-born midfielder came on in the 85th minute to play alongside Max Dowman and Emerson Nwaneri.`\
+https://nytimes.com/athletic/6839858/2025/11/26/arsenal-munoz-record-youngest-player/
+
 **Did the Giant Heads of Easter Island Once Walk?**\
 `Scholars have long debated how the massive stone figures of Rapa Nui got to where they stand today. A new study offers one possible explanation.`\
 https://nytimes.com/2025/11/26/science/archaeology-easter-island-rapa-nui.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/11/26/us/earthquake-northern-california-gil
 **The Bounce: What every NBA team should be thankful for. Plus, an NBA Cupdate**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/6839827/2025/11/26/nba-cup-thankful-thunder-spurs-the-bounce/
-
-**Mbatata (Sweet Potato Cookies)**\
-`Mbatata is the word in Chichewa for the dense, creamy variety of this starchy root vegetable.`\
-https://nytimes.com/video/dining/100000010546461/mbatata-sweet-potato-cookies.html
 

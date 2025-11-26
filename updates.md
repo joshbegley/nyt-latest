@@ -1,3 +1,7 @@
+**Arsenal's Munoz, 13, becomes youngest UEFA Youth League player**\
+`The 2011-born midfielder came on in the 85th minute to play alongside Max Dowman and Emerson Nwaneri.`\
+https://nytimes.com/athletic/6839858/2025/11/26/arsenal-munoz-record-youngest-player/
+
 **Did the Giant Heads of Easter Island Once Walk?**\
 `Scholars have long debated how the massive stone figures of Rapa Nui got to where they stand today. A new study offers one possible explanation.`\
 https://nytimes.com/2025/11/26/science/archaeology-easter-island-rapa-nui.html
