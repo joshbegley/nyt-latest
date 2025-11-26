@@ -1,3 +1,19 @@
+**‘I Wanted to Cry’: Gunshots Rattled Residents and Tourists**\
+`On the eve of Thanksgiving, bystanders said the sound of gunfire was followed by anxiety over who did the shooting.`\
+https://nytimes.com/2025/11/26/us/washington-shooting-guard-witnesses.html
+
+**Tennessee Seventh District Special Election 2025: Latest Polls**\
+`Track the latest polls about Democrat Aftyn Behn and Republican Matt Van Epps in the special election in Tennessee's Seventh Congressional District.`\
+https://nytimes.com/interactive/polls/tennessee-us-house-7-special-election-polls-2025.html
+
+**Winter Storm Brings Heavy Snow to Upper Midwest**\
+`Blizzards blanketed the parts of northern Wisconsin and Michigan’s Upper Peninsula with heavy snow. Some areas may receive up to 30 inches of snow, according to the Weather Service.`\
+https://nytimes.com/video/weather/100000010550486/thanksgiving-weather-forecast-upper-midwest-snow-storm.html
+
+**Paul Ekman, Who Linked Facial Expressions to Universal Emotions, Dies at 91**\
+`Often called the world’s most famous face reader, he inspired the TV show ‘Lie to Me.’ But some questioned his assumption that human expressions were ‘pan-cultural.’`\
+https://nytimes.com/2025/11/26/science/paul-ekman-dead.html
+
 **David Lerner, a Mr. Fix-it of Apple Computers, Dies at 72**\
 `He and a partner founded Tekserve, a Manhattan emergency room for frozen hard drives, keyboards, screens and their confounded owners.`\
 https://nytimes.com/2025/11/26/technology/personaltech/david-lerner-dead.html
