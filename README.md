@@ -1,3 +1,7 @@
+**What You’re Thankful For**\
+`Six-word stories of gratitude.`\
+https://nytimes.com/2025/11/26/briefing/what-youre-thankful-for.html
+
 **Battle 4 Atlantis watch guide: Schedule, teams in Feast Week men's tournament**\
 `With eight NCAA Tournament-hopeful teams in the field, the 2025 Battle 4 Atlantis could have a lasting impact on a March resume. `\
 https://nytimes.com/athletic/6837886/2025/11/26/battle-4-atlantis-schedule-bracket-how-to-watch/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6837677/2025/11/26/maple-leafs-dakota-joshua-matias
 **College Football Playoff committee members don't need to make sense — they watch ball!**\
 `Alabama's win at South Carolina was impressive one week. Unimpressive another week. Elite QB is a good thing. Unless it's not. `\
 https://nytimes.com/athletic/6838771/2025/11/26/college-football-playoff-committee-miami-notre-dame/
-
-**Six stats that highlight Rams' dominance during 6-game win streak**\
-`We take a look at some stats that illustrate how impressive the Rams have been since suffering their last loss in Week 5. `\
-https://nytimes.com/athletic/6837547/2025/11/26/rams-stats-six-game-win-streak/
 
