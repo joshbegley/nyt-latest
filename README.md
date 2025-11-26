@@ -1,3 +1,11 @@
+**The New York Times in Print for Wednesday, Nov. 26, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/11/26/todays-new-york-times
+
+**Give Nuclear Power Another Chance**\
+`California and eight other states have outdated restrictions on building nuclear power plants.`\
+https://nytimes.com/2025/11/26/opinion/nuclear-energy-california-massachusetts.html
+
 **Mick Jagger. Rolling Stone. Cultural icon. And cricket streaming pioneer**\
 `The Rolling Stones' lead singer, a huge cricket fan, spotted the huge potential of the internet while others still treated it with suspicion`\
 https://nytimes.com/athletic/6789244/2025/11/26/mick-jagger-rolling-stone-cultural-icon-and-cricket-streaming-pioneer/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6337353/2025/11/26/ilias-chair-qpr-assault-intervie
 **How Kompany defied his sceptics and quietly rebuilt Bayern Munich**\
 `The man portrayed by many 18 months ago as a panic hire has flourished in the pressured, politicised environment of Germany's biggest club`\
 https://nytimes.com/athletic/6835954/2025/11/26/vincent-kompany-bayern-munich-manager/
-
-**Breaking down Liverpool's body language — and why it is being criticised**\
-`The champions' body language has come under scrutiny from fans and pundits in recent weeks. We asked experts to analyse it`\
-https://nytimes.com/athletic/6836519/2025/11/26/liverpool-body-language/
-
-**Why Real Madrid want to make huge changes to their ownership model**\
-`Florentino Perez made a dramatic announcement at the club's annual general meeting on Sunday. This is what it means`\
-https://nytimes.com/athletic/6836385/2025/11/26/real-madrid-ownership-florentino-perez-investment/
 
