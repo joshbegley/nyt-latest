@@ -1,3 +1,7 @@
+**How to Style a Holiday Table Your Guests Will Never Forget**\
+`A textile designer, a chef and an artist share their tablescapes and their tips.`\
+https://nytimes.com/2025/11/25/t-magazine/holiday-table-styling.html
+
 **Taiwan’s President to Seek an Extra $40 Billion for Military**\
 `President Lai Ching-te says the spending, which must be approved by the island’s legislature, would fund purchases of arms from the United States.`\
 https://nytimes.com/2025/11/25/world/asia/taiwan-40-billion-military-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6838622/2025/11/25/nwsl-championship-tv-record-view
 **Why Keep Racing in the Same Park for 50 Years? It Never Gets Old.**\
 `Two runners, Anthony Ruiz and Leo Murillo, have been returning to Van Cortlandt Park for cross-country races since they were in high school in the 1970s.`\
 https://nytimes.com/card/2025/11/26/well/move/van-cortlandt-park-cross-country-masters
-
-**In dealing Sonny Gray, Cardinals' Chaim Bloom shows clear direction. What's next?**\
-`The Cardinals want to return to being perennial contenders, and Bloom is willing to make difficult decisions now to better ensure that.`\
-https://nytimes.com/athletic/6837553/2025/11/25/st-louis-cardinals-sonny-gray-trade-direction/
 

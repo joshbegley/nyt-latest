@@ -1,3 +1,7 @@
+**How to Style a Holiday Table Your Guests Will Never Forget**\
+`A textile designer, a chef and an artist share their tablescapes and their tips.`\
+https://nytimes.com/2025/11/25/t-magazine/holiday-table-styling.html
+
 **Taiwan’s President to Seek an Extra $40 Billion for Military**\
 `President Lai Ching-te says the spending, which must be approved by the island’s legislature, would fund purchases of arms from the United States.`\
 https://nytimes.com/2025/11/25/world/asia/taiwan-40-billion-military-trump.html
