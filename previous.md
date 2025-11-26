@@ -1,3 +1,7 @@
+**There have been numerous instances of violence near the White House over the years.**\
+`By Soumya Karlamangla`\
+https://nytimes.com/live/2025/11/26/us/national-guard-shooting-dc/there-have-been-numerous-instances-of-violence-near-the-white-house-over-the-years
+
 **Two National Guard Members Shot Near White House**\
 `Two members of the West Virginia National Guard were in critical condition after being shot near the White House on Wednesday. Officials said the gunman was in custody and appeared to have acted alone.`\
 https://nytimes.com/video/us/100000010550901/national-guard-shooting-white-house.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6840958/2025/11/26/college-football-rivalry-week-pr
 **E.P.A. Delays Requirements to Cut Methane, a Potent Greenhouse Gas**\
 `Oil and gas firms were supposed to start reducing methane, a powerful driver of climate change. The agency is giving them more time and may cancel the requirement.`\
 https://nytimes.com/2025/11/26/climate/epa-delays-methane-oil-gas.html
-
-**How the Rockets break basketball**\
-`No team has ever dominated the boards like this season's Houston Rockets. In the process, they're reinventing the idea of good offense.`\
-https://nytimes.com/athletic/6837585/2025/11/26/rockets-rebounding-video-nba-highlights/
 
