@@ -1,3 +1,11 @@
+**The 11.30.25 Issue**\
+``\
+https://nytimes.com/issue/magazine/2025/11/26/the-113025-issue
+
+**Tiny Love Stories: ‘No Hugging … and Definitely Nothing Lewd’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2025/11/26/style/tiny-modern-love-stories-no-hugging-and-definitely-nothing-lewd.html
+
 **Workers Inflate Balloons Ahead of Macy’s Thanksgiving Day Parade**\
 `Teams of workers in New York City began inflating balloons on Wednesday for the 99th Macy’s Thanksgiving Day Parade.`\
 https://nytimes.com/video/nyregion/100000010550198/macys-thanksgiving-parade-balloon-inflation.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6840766/2025/11/26/timberwolves-vs-thunder-stream-h
 **How to watch Sharks vs. Avalanche: Time, TV, streaming**\
 `Find out how to watch the San Jose Sharks play the Colorado Avalanche, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6840764/2025/11/26/sharks-vs-avalanche-stream-how-to-watch-nov-26/
-
-**How to watch Pacers vs. Raptors: Time, TV, streaming**\
-`Find out how to watch the Indiana Pacers play the Toronto Raptors, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6840762/2025/11/26/pacers-vs-raptors-stream-how-to-watch-nov-26/
-
-**How to watch Stars vs. Kraken: Time, TV, streaming**\
-`Find out how to watch the Dallas Stars play the Seattle Kraken, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6840761/2025/11/26/stars-vs-kraken-stream-how-to-watch-nov-26/
 

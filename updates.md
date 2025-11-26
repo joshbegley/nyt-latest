@@ -1,3 +1,11 @@
+**The 11.30.25 Issue**\
+``\
+https://nytimes.com/issue/magazine/2025/11/26/the-113025-issue
+
+**Tiny Love Stories: ‘No Hugging … and Definitely Nothing Lewd’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2025/11/26/style/tiny-modern-love-stories-no-hugging-and-definitely-nothing-lewd.html
+
 **Workers Inflate Balloons Ahead of Macy’s Thanksgiving Day Parade**\
 `Teams of workers in New York City began inflating balloons on Wednesday for the 99th Macy’s Thanksgiving Day Parade.`\
 https://nytimes.com/video/nyregion/100000010550198/macys-thanksgiving-parade-balloon-inflation.html
