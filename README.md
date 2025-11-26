@@ -1,5 +1,5 @@
 **Anthony Davis calls Nico Harrison firing 'surprising' as he nears return from injury**\
-`DALLAS — If it’s up to Anthony Davis, he’ll make his return from injury Friday against his former team, the Los Angeles Lakers.`\
+`The Mavericks are 3-11 this season without their star big man, who hopes to return Friday against his former team, the Lakers.`\
 https://nytimes.com/athletic/6840538/2025/11/26/mavericks-anthony-davis-nico-harrison/
 
 **Sebastian Berhalter has come to epitomize everything Mauricio Pochettino wants**\

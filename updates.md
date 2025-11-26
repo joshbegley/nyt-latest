@@ -1,3 +1,15 @@
+**Anthony Davis calls Nico Harrison firing 'surprising' as he nears return from injury**\
+`DALLAS — If it’s up to Anthony Davis, he’ll make his return from injury Friday against his former team, the Los Angeles Lakers.`\
+https://nytimes.com/athletic/6840538/2025/11/26/mavericks-anthony-davis-nico-harrison/
+
+**Sebastian Berhalter has come to epitomize everything Mauricio Pochettino wants**\
+`Quite a plot twist: The son of the old coach has become a prototype for what the new coach wants leading into the USMNT's home World Cup`\
+https://nytimes.com/athletic/6837821/2025/11/26/sebastian-berhalter-mauricio-pochettino-usmnt-culture/
+
+**Ex-Arsenal player Cygan wants to send NYC mayor-elect Mamdani an old jersey**\
+`Speaking about his love of Arsenal earlier this week, Mamdani had said: "Every day I wake up, I think about Squillaci, Cygan, Chamakh."`\
+https://nytimes.com/athletic/6840550/2025/11/26/zohran-mamdani-arsenal-pascal-cygan/
+
 **Matthews, Knies to return to Maple Leafs lineup vs. Blue Jackets**\
 `Having lost seven of their last eight games and sitting last place in the Eastern Conference, the lineup changes come at a crucial point.`\
 https://nytimes.com/athletic/6840451/2025/11/26/auston-matthews-matthew-knies-maple-leafs/

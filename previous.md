@@ -1,3 +1,11 @@
+**Anthony Davis calls Nico Harrison firing 'surprising' as he nears return from injury**\
+`DALLAS — If it’s up to Anthony Davis, he’ll make his return from injury Friday against his former team, the Los Angeles Lakers.`\
+https://nytimes.com/athletic/6840538/2025/11/26/mavericks-anthony-davis-nico-harrison/
+
+**Sebastian Berhalter has come to epitomize everything Mauricio Pochettino wants**\
+`Quite a plot twist: The son of the old coach has become a prototype for what the new coach wants leading into the USMNT's home World Cup`\
+https://nytimes.com/athletic/6837821/2025/11/26/sebastian-berhalter-mauricio-pochettino-usmnt-culture/
+
 **Matthews, Knies to return to Maple Leafs lineup vs. Blue Jackets**\
 `Having lost seven of their last eight games and sitting last place in the Eastern Conference, the lineup changes come at a crucial point.`\
 https://nytimes.com/athletic/6840451/2025/11/26/auston-matthews-matthew-knies-maple-leafs/
@@ -6,7 +14,7 @@ https://nytimes.com/athletic/6840451/2025/11/26/auston-matthews-matthew-knies-ma
 `KC Joyner's confidence picks have been on a roll lately. This week, his top picks are the Seahawks, Rams and Broncos.`\
 https://nytimes.com/athletic/6839543/2025/11/26/nfl-week-13-confidence-picks-cowboys-chiefs/
 
-**Ex-Arsenal player Cygan wants to send NYC mayor Mamdani an old jersey**\
+**Ex-Arsenal player Cygan wants to send NYC mayor-elect Mamdani an old jersey**\
 `Speaking about his love of Arsenal earlier this week, Mamdani had said: "Every day I wake up, I think about Squillaci, Cygan, Chamakh."`\
 https://nytimes.com/athletic/6840550/2025/11/26/zohran-mamdani-arsenal-pascal-cygan/
 
@@ -29,8 +37,4 @@ https://nytimes.com/live/2025/11/26/world/hong-kong-fire/bamboo-scaffolding-hong
 **Trump Administration Will No Longer Commemorate World AIDS Day**\
 `The State Department warned employees not to use government funds for the occasion and to “refrain from publicly promoting World AIDS Day through any communication channels.”`\
 https://nytimes.com/2025/11/26/health/trump-us-world-aids-day.html
-
-**What’s in Our Queue? ‘Didi’ and More**\
-`Text by Livia Albeck-Ripka`\
-https://nytimes.com/card/2025/11/26/arts/editors-recommendations-didi
 
