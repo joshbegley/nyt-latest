@@ -1,3 +1,11 @@
+**Deadly Flooding in Thailand Prompts Rescues and Evacuations**\
+`The military sent troops, helicopters and boats to rescue stranded people. At least 33 people have been killed and more than two million displaced over the past week.`\
+https://nytimes.com/2025/11/26/world/asia/southern-thailand-flooding.html
+
+**Huge Fire Engulfs Apartment Buildings in Hong Kong**\
+`Firefighters tried to douse the blaze at an apartment complex in the city’s northern Tai Po district, which killed at least four people.`\
+https://nytimes.com/2025/11/26/world/asia/hong-kong-fire-apartment-buildings.html
+
 **To stay in the playoff hunt, Cowboys need best version of CeeDee Lamb vs. Chiefs**\
 `The Dallas star receiver had multiple drops against the Eagles — one costly in the end zone — but has moved on: "We need to get this win."`\
 https://nytimes.com/athletic/6838187/2025/11/26/cowboys-ceedee-lamb-drops-thanksgiving-chiefs/
