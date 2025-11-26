@@ -1,3 +1,7 @@
+**Abducted Girls Are Freed in Nigeria, Where Violence Worsens Hunger**\
+`Two dozen schoolgirls were freed on Tuesday after being kidnapped in Kebbi state. A wave of mass kidnappings has spread terror and deepened the nation’s hunger crisis.`\
+https://nytimes.com/video/world/africa/100000010548810/nigeria-food-violence-usaid.html
+
 **How to Watch the Macy’s Thanksgiving Day Parade**\
 `The 99th edition of the New York parade will feature performances from Cynthia Erivo and Busta Rhymes, as well as dozens of floats and balloons.`\
 https://nytimes.com/2025/11/26/nyregion/macys-thanksgiving-day-parade-how-to-watch.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6839048/2025/11/26/lakers-clippers-kris-dunn-luka-d
 **Is it time for Newcastle to drop Pope?**\
 `The England international has been at least partly at fault for goals in recent weeks. Should Aaron Ramsdale be given a chance?`\
 https://nytimes.com/athletic/6835958/2025/11/26/nick-pope-aaron-ramsdale-newcastle/
-
-**Word of the Day: coterie**\
-`This word has appeared in 86 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/11/26/learning/word-of-the-day-coterie.html
 
