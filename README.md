@@ -1,3 +1,7 @@
+**Colorado State expected to hire UConn coach Jim Mora: Source**\
+`Mora just wrapped up his fourth regular season at UConn last week, posting a second consecutive nine-win season.`\
+https://nytimes.com/athletic/6838947/2025/11/26/colorado-state-uconn-jim-mora-cfb/
+
 **The New York Times in Print for Wednesday, Nov. 26, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/11/26/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6836084/2025/11/26/mikel-arteta-arsenal-psychology-
 **Ilias Chair and the day everything changed: 'I just wish I could take it back'**\
 `The Morocco midfielder speaks for the first time about his 2024 assault conviction and how he has tried to rebuild his life`\
 https://nytimes.com/athletic/6337353/2025/11/26/ilias-chair-qpr-assault-interview/
-
-**How Kompany defied his sceptics and quietly rebuilt Bayern Munich**\
-`The man portrayed by many 18 months ago as a panic hire has flourished in the pressured, politicised environment of Germany's biggest club`\
-https://nytimes.com/athletic/6835954/2025/11/26/vincent-kompany-bayern-munich-manager/
 
