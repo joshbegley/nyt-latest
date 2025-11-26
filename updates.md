@@ -1,3 +1,11 @@
+**Two National Guard Members Shot Near White House**\
+`Two members of the West Virginia National Guard were in critical condition after being shot near the White House on Wednesday. Officials said the gunman was in custody and appeared to have acted alone.`\
+https://nytimes.com/video/us/100000010550901/national-guard-shooting-white-house.html
+
+**U.S. to Press Europe and Other Allies on ‘Mass Migration,’ Document Says**\
+`American diplomats were told to raise U.S. concerns about “violent crimes associated with people of a migration background.”`\
+https://nytimes.com/2025/11/26/us/politics/trump-rubio-mass-migration.html
+
 **Dominican Republic Allows U.S. to Use Territory to Fight International Organized Crime**\
 `The Dominican leader, Luis Abinader, said the Pentagon could use restricted areas within the San Isidro Air Base and Las Américas International Airport for refueling and transporting equipment and technical personnel.`\
 https://nytimes.com/2025/11/26/us/politics/dominican-republic-us-military.html

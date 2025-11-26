@@ -1,3 +1,11 @@
+**Two National Guard Members Shot Near White House**\
+`Two members of the West Virginia National Guard were in critical condition after being shot near the White House on Wednesday. Officials said the gunman was in custody and appeared to have acted alone.`\
+https://nytimes.com/video/us/100000010550901/national-guard-shooting-white-house.html
+
+**U.S. to Press Europe and Other Allies on ‘Mass Migration,’ Document Says**\
+`American diplomats were told to raise U.S. concerns about “violent crimes associated with people of a migration background.”`\
+https://nytimes.com/2025/11/26/us/politics/trump-rubio-mass-migration.html
+
 **Dominican Republic Allows U.S. to Use Territory to Fight International Organized Crime**\
 `The Dominican leader, Luis Abinader, said the Pentagon could use restricted areas within the San Isidro Air Base and Las Américas International Airport for refueling and transporting equipment and technical personnel.`\
 https://nytimes.com/2025/11/26/us/politics/dominican-republic-us-military.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/26/climate/epa-delays-methane-oil-gas.html
 **How the Rockets break basketball**\
 `No team has ever dominated the boards like this season's Houston Rockets. In the process, they're reinventing the idea of good offense.`\
 https://nytimes.com/athletic/6837585/2025/11/26/rockets-rebounding-video-nba-highlights/
-
-**North Carolina Can Use Republican-Friendly Congressional Map, Court Says**\
-`The district court ruling means that the party is one step closer to securing another seat in the U.S. House and retain its majority, at the urging of President Trump.`\
-https://nytimes.com/2025/11/26/us/north-carolina-congressional-map-republicans.html
-
-**What is the National Guard?**\
-`By Alyce McFadden and Anushka Patil`\
-https://nytimes.com/live/2025/11/26/us/national-guard-shooting-dc/what-is-national-guard
 
