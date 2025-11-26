@@ -1,3 +1,7 @@
+**Fire Engulfs High-Rise Buildings in Hong Kong**\
+`At least four people died after a blaze tore through high-rise apartment towers in Hong Kong on Wednesday, a government spokeswoman said.`\
+https://nytimes.com/video/world/asia/100000010549017/hong-kong-apartments-fire.html
+
 **Ben Johnson's 'secret sauce' for the surging Bears? Preparation, passion, belief**\
 `With a high-stakes Black Friday game on tap, the first-place Bears have an energetic coach and plans to stop the tush push.`\
 https://nytimes.com/athletic/6838093/2025/11/26/bears-ben-johnson-secret-sauce/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6838275/2025/11/26/buffalo-bills-josh-allen-hall-of
 **'We keep touching the stove': Bulls' latest stretch a reminder of slow-burn defense**\
 `The Bulls' defensive soul searching, an identity in their infancy, burst into view this week.`\
 https://nytimes.com/athletic/6837688/2025/11/26/bulls-nba-defense/
-
-**Ravens' Nate Wiggins is drenched in confidence. And for him, that's nothing new**\
-`The 2024 first-round pick has always been extremely talented, but his most impressive trait may be the supreme confidence he has in himself.`\
-https://nytimes.com/athletic/6835530/2025/11/26/nate-wiggins-ravens-cornerback-confidence/
 
