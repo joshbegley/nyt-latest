@@ -1,3 +1,7 @@
+**CJ McCollum's 27-point first half sparks Wizards' red-hot start vs. Hawks**\
+`McCollum made his first five 3-pointers and seven of eight attempts from long distance to help Washington open a 22-point halftime lead.`\
+https://nytimes.com/athletic/6838481/2025/11/25/cj-mccollum-stats-first-half-wizards-hawks/
+
 **The Red Sox like Sonny Gray's strikeout potential, but can he be a No. 2 starter?**\
 `For his part, in waiving his no-trade clause, Gray showed his desire to once again pitch in a big market for a playoff contender.`\
 https://nytimes.com/athletic/6838204/2025/11/25/boston-red-sox-sonny-gray-trade-fit/
