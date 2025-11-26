@@ -28,13 +28,13 @@ https://nytimes.com/athletic/6662286/2025/11/25/college-football-open-coaching-j
 
 **How to watch Bills vs. Steelers: Time, TV, streaming**\
 `Find out how to watch the Buffalo Bills play the Pittsburgh Steelers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6838264/2025/11/25/bills-vs-steelers-stream-how-to-watch-nov-30/
+https://nytimes.com/athletic/6838264/2025/11/25/how-to-watch-bills-vs-steelers-tv-channel-and-streaming-options-for-november-30/
 
 **How to watch Raiders vs. Chargers: Time, TV, streaming**\
 `Find out how to watch the Las Vegas Raiders play the Los Angeles Chargers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6838253/2025/11/25/raiders-vs-chargers-stream-how-to-watch-nov-30/
+https://nytimes.com/athletic/6838253/2025/11/25/how-to-watch-raiders-vs-chargers-tv-channel-and-streaming-options-for-november-30/
 
 **How to watch Vikings vs. Seahawks: Time, TV, streaming**\
 `Find out how to watch the Minnesota Vikings play the Seattle Seahawks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6838247/2025/11/25/vikings-vs-seahawks-stream-how-to-watch-nov-30/
+https://nytimes.com/athletic/6838247/2025/11/25/how-to-watch-vikings-vs-seahawks-tv-channel-and-streaming-options-for-november-30/
 
