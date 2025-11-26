@@ -1,3 +1,7 @@
+**Abducted Girls Are Freed in Nigeria, Where Violence Worsens Hunger**\
+`Two dozen schoolgirls were freed on Tuesday after being kidnapped in Kebbi state. A wave of mass kidnappings has spread terror and deepened the nation’s hunger crisis.`\
+https://nytimes.com/video/world/africa/100000010548810/nigeria-food-violence-usaid.html
+
 **How to Watch the Macy’s Thanksgiving Day Parade**\
 `The 99th edition of the New York parade will feature performances from Cynthia Erivo and Busta Rhymes, as well as dozens of floats and balloons.`\
 https://nytimes.com/2025/11/26/nyregion/macys-thanksgiving-day-parade-how-to-watch.html
