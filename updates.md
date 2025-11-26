@@ -1,3 +1,7 @@
+**Broncos agree to 4-year extension with center Luke Wattenberg: Source**\
+`The deal is for $48 million and comes with $27 million guaranteed, placing him among the league's five highest-paid centers in terms of AAV.`\
+https://nytimes.com/athletic/6838649/2025/11/25/center-luke-wattenberg-contract-four-year-extension/
+
 **CJ McCollum's 27-point first half sparks Wizards' win vs. Hawks**\
 `McCollum finished a season-high 46 points to help Washington beat Atlanta.`\
 https://nytimes.com/athletic/6838481/2025/11/25/cj-mccollum-stats-first-half-wizards-hawks/
