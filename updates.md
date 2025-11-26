@@ -1,3 +1,19 @@
+**For the Macy’s Thanksgiving Day Parade, Broadway Hits the Streets**\
+`We tagged along to a late-night rehearsal for performers from “Just in Time,” “Buena Vista Social Club” and “Ragtime.”`\
+https://nytimes.com/2025/11/26/theater/macys-thanksgiving-day-parade-broadway.html
+
+**Newey to become Aston Martin F1 team principal from 2026 after reshuffle**\
+`The 66-year-old joined Aston Martin this year as its managing technical partner following a 19-year stint with Red Bull Racing.`\
+https://nytimes.com/athletic/6840265/2025/11/26/adrian-newey-aston-martin-team-principal-f1/
+
+**CFP rankings show delayed nearly 50 minutes by college hoops, football fans livid**\
+`College football fans waited almost an hour past the scheduled 7 p.m. start to find out that, as expected, Ohio State is still No. 1.`\
+https://nytimes.com/athletic/6839837/2025/11/26/college-football-playoff-rankings-broadcast-delay/
+
+**BRIDGE Summit 2025**\
+` It’s a monumental initiative, but one that is more necessary now than ever before. `\
+https://nytimes.com/paidpost/bridge-summit-abu-dhabi/uae-national-media-office-bridge-summit-2025.html
+
 **UAE National Media Office BRIDGE Summit 2025**\
 ` It’s a monumental initiative, but one that is more necessary now than ever before. `\
 https://nytimes.com/paidpost/bridge-summit-abu-dhabi/uae-national-media-office-bridge-summit-_bridge-summit-2025/uae-national-media-office-bridge-summit-2025.html

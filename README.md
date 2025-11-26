@@ -1,11 +1,3 @@
-**For the Macy’s Thanksgiving Day Parade, Broadway Hits the Streets**\
-`We tagged along to a late-night rehearsal for performers from “Just in Time,” “Buena Vista Social Club” and “Ragtime.”`\
-https://nytimes.com/2025/11/26/theater/macys-thanksgiving-day-parade-broadway.html
-
-**Newey to become Aston Martin F1 team principal from 2026 after reshuffle**\
-`The 66-year-old joined Aston Martin this year as its managing technical partner following a 19-year stint with Red Bull Racing.`\
-https://nytimes.com/athletic/6840265/2025/11/26/adrian-newey-aston-martin-team-principal-f1/
-
 **CFP rankings show delayed nearly 50 minutes by college hoops, football fans livid**\
 `College football fans waited almost an hour past the scheduled 7 p.m. start to find out that, as expected, Ohio State is still No. 1.`\
 https://nytimes.com/athletic/6839837/2025/11/26/college-football-playoff-rankings-broadcast-delay/
@@ -37,4 +29,12 @@ https://nytimes.com/athletic/6840161/2025/11/26/sabres-vs-penguins-stream-how-to
 **How to watch Bruins vs. Islanders: Time, TV, streaming**\
 `Find out how to watch the Boston Bruins play the New York Islanders, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6840162/2025/11/26/bruins-vs-islanders-stream-how-to-watch-nov-26/
+
+**How to watch Jets vs. Capitals: Time, TV, streaming**\
+`Find out how to watch the Winnipeg Jets play the Washington Capitals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6840158/2025/11/26/jets-vs-capitals-stream-how-to-watch-nov-26/
+
+**How to watch Pistons vs. Celtics: Time, TV, streaming**\
+`Find out how to watch the Detroit Pistons play the Boston Celtics, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6840156/2025/11/26/pistons-vs-celtics-stream-how-to-watch-nov-26/
 
