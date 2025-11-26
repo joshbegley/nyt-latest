@@ -1,40 +1,40 @@
-**CJ McCollum isn't the Wizards' future, but he gave them a glimpse of it**\
-`McCollum's 46-point outburst against the Hawks provided the young Wizards with a blueprint for what should be their top priority.`\
-https://nytimes.com/athletic/6838013/2025/11/26/cj-mccollum-wizards-future/
+**What You’re Thankful For**\
+`Six-word stories of gratitude.`\
+https://nytimes.com/2025/11/26/briefing/what-youre-thankful-for.html
 
-**Cowboys, Rams make cases for top WR duo; Cam Ward shows promise: Week 12 film review**\
-`CeeDee Lamb and George Pickens showed why they're a dangerous combo vs. the Eagles, but where do they rank in the league?`\
-https://nytimes.com/athletic/6835359/2025/11/26/top-wr-duo-cowboys-pickens-lamb-cam-ward/
+**Battle 4 Atlantis watch guide: Schedule, teams in Feast Week men's tournament**\
+`With eight NCAA Tournament-hopeful teams in the field, the 2025 Battle 4 Atlantis could have a lasting impact on a March resume. `\
+https://nytimes.com/athletic/6837886/2025/11/26/battle-4-atlantis-schedule-bracket-how-to-watch/
 
-**What will Connor Bedard's next contract look like for the Blackhawks?**\
-`Considering how Bedard is developing in his third NHL season and the increasing salary cap, there are plenty of reasons for intrigue.`\
-https://nytimes.com/athletic/6836759/2025/11/26/connor-bedard-blackhawks-contract-nhl-projection/
+**Paul Doyle changes pleas to guilty on all charges in Liverpool parade crash trial**\
+`More than 130 people, ranging from a six-month-old baby to a 78-year-old woman, were injured.`\
+https://nytimes.com/athletic/6839470/2025/11/26/liverpool-parade-crash-paul-doyle-guilty/
 
-**Yankees mailbag: Will club target Tatsuya Imai? Jasson Domínguez's future**\
-`Elsewhere, what are the odds that the Yankees trade Spencer Jones before Opening Day 2026?`\
-https://nytimes.com/athletic/6837682/2025/11/26/ny-yankees-mailbag-tatsuya-imai/
+**After trading for Sonny Gray, what's next for Red Sox? Breaking down payroll and priorities**\
+`Craig Breslow acknowledged Tuesday that the focus will likely turn to bolstering the lineup, as the club seeks at least one power bat.`\
+https://nytimes.com/athletic/6838598/2025/11/26/red-sox-post-sonny-gray-trade-payroll-priorities/
 
-**How will Lane Kiffin know what to do next? We're here to help**\
-`Trying to figure out what Kiffin is going to do feels like a game. So let's make it one. What do you think he'll do?`\
-https://nytimes.com/athletic/6837093/2025/11/26/lane-kiffin-news-coach-ole-miss-lsu-florida/
+**Behind Jesper Wallstedt's gratifying run for the Wild, proving doubters wrong: 'They're loving me'**\
+`Wallstedt’s red-hot start to this season — 6-0-2 with three shutouts — is making those who were skeptical of the Wild prospect eat crow.`\
+https://nytimes.com/athletic/6836368/2025/11/26/jesper-wallstedt-breakout-wild-nhl/
 
-**Browns should be encouraged by their rookie class despite the team's uncertain future**\
-`While Cleveland hasn't had much success in the win column this season, the rookie class has been one of the team's bright spots.`\
-https://nytimes.com/athletic/6838032/2025/11/26/browns-rookie-class-uncertain-future/
+**Can The Game be tamed? How Ohio State is trying to bring normalcy to Michigan week**\
+`Ohio State doesn't hide from the importance of the Michigan rivalry, but now it's stressing normal routines above all else as it prepares.`\
+https://nytimes.com/athletic/6837696/2025/11/26/ohio-state-michigan-rivalry-losing-streak/
 
-**Phillies fan survey: How do you feel about the team and this offseason?**\
-`As Phillies fans wait for moves, we invite them to share their opinions on this offseason and the state of the franchise.`\
-https://nytimes.com/athletic/6839353/2025/11/26/phillies-fan-offseason-survey/
+**Coaching carousel notebook: Where key searches stand entering Thanksgiving weekend**\
+`We’re days away from the regular season ending and coaches officially taking news jobs, including Lane Kiffin … right?`\
+https://nytimes.com/athletic/6839012/2025/11/26/cfb-coaching-carousel-latest-lane-kiffin/
 
-**One thing each Hurricanes player is thankful for this season**\
-`Carolina, collectively, can have gratitude for its strong record — but what about individual players?`\
-https://nytimes.com/athletic/6838316/2025/11/26/carolina-hurricanes-slavin-jarvis/
+**Can Lamar Jackson find his superstar self before it's too late?: Week 12 Quick Outs**\
+`Jackson found enough of a groove through the air to secure a win Sunday, but he still doesn't have the explosiveness we're used to seeing.`\
+https://nytimes.com/athletic/6836313/2025/11/26/nfl-week-12-jackson-ravens-playoff-push/
 
-**NHL 2025-26 attendance check-in: Wild and Blackhawks down, Sharks and Blue Jackets up**\
-`Where does your team rank in attendance over a quarter of the way through 2025-26, and is it a jump up or down?`\
-https://nytimes.com/athletic/6838507/2025/11/26/nhl-2025-26-attendance-wild-sharks-blackhawks/
+**Is there any hope for Dakota Joshua and Matias Maccelli with the Leafs?**\
+`For Joshua and Maccelli, “there’s no time to be the new guy anymore” — and they're running out of time to find their way with Toronto.`\
+https://nytimes.com/athletic/6837677/2025/11/26/maple-leafs-dakota-joshua-matias-maccelli/
 
-**Fire Engulfs High-Rise Buildings in Hong Kong**\
-`At least four people died after a blaze tore through high-rise apartment towers in Hong Kong on Wednesday, a government spokeswoman said.`\
-https://nytimes.com/video/world/asia/100000010549017/hong-kong-apartments-fire.html
+**College Football Playoff committee members don't need to make sense — they watch ball!**\
+`Alabama's win at South Carolina was impressive one week. Unimpressive another week. Elite QB is a good thing. Unless it's not. `\
+https://nytimes.com/athletic/6838771/2025/11/26/college-football-playoff-committee-miami-notre-dame/
 

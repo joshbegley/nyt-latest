@@ -1,3 +1,7 @@
+**What I'm hearing about J.J. McCarthy, Jerry Jones' trade steal and more**\
+`Also: Tom Brady's Raiders frustrations, Kyle Shanahan's latest masterpiece and the NFL storylines that will carry Thanksgiving conversation.`\
+https://nytimes.com/athletic/6838665/2025/11/26/nfl-rumors-news-j-j-mccarthy-jerry-jones-george-pickens/
+
 **What You’re Thankful For**\
 `Six-word stories of gratitude.`\
 https://nytimes.com/2025/11/26/briefing/what-youre-thankful-for.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6836313/2025/11/26/nfl-week-12-jackson-ravens-playo
 **Is there any hope for Dakota Joshua and Matias Maccelli with the Leafs?**\
 `For Joshua and Maccelli, “there’s no time to be the new guy anymore” — and they're running out of time to find their way with Toronto.`\
 https://nytimes.com/athletic/6837677/2025/11/26/maple-leafs-dakota-joshua-matias-maccelli/
-
-**College Football Playoff committee members don't need to make sense — they watch ball!**\
-`Alabama's win at South Carolina was impressive one week. Unimpressive another week. Elite QB is a good thing. Unless it's not. `\
-https://nytimes.com/athletic/6838771/2025/11/26/college-football-playoff-committee-miami-notre-dame/
 
