@@ -1,3 +1,19 @@
+**Video: Caleb Williams is playing unlike any NFL QB. It's working, but is it sustainable?**\
+`Williams has cut his sack rate in half despite holding the ball longer on average than we've seen in 13 years. What is happening?`\
+https://nytimes.com/athletic/6832878/2025/11/26/caleb-williams-bears-sack-avoidance/
+
+**Army Takes Control in Guinea-Bissau Amid Apparent Coup**\
+`The West African nation had recently held a presidential election in which the main opposition party was barred from the ballot.`\
+https://nytimes.com/2025/11/26/world/africa/guinea-bissau-coup.html
+
+**Lowetide: Why do Evan Bouchard's issues always crop up early for the Oilers?**\
+`Bouchard's ghastly October has given way to a substantially better November, but he still has off games.`\
+https://nytimes.com/athletic/6834757/2025/11/26/oilers-evan-bouchard-stats-standings-2025/
+
+**Can I Use My Parents’ Address to Get Our Kids Into a Better School?**\
+`I feel guilty about the lie we’d have to keep up, but we would be much happier.`\
+https://nytimes.com/2025/11/26/magazine/parents-address-school-ethics.html
+
 **For the Macy’s Thanksgiving Day Parade, Broadway Hits the Streets**\
 `We tagged along to a late-night rehearsal for performers from “Just in Time,” “Buena Vista Social Club” and “Ragtime.”`\
 https://nytimes.com/2025/11/26/theater/macys-thanksgiving-day-parade-broadway.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6839945/2025/11/26/college-football-best-bets-week-
 **Miroslaw Chojecki, Solidarity’s ‘Minister of Smuggling,’ Dies at 76**\
 `First in Warsaw and later from Paris, he supplied anti-Communist activists in Poland with steady stream of leaflets, newsletters and banned books.`\
 https://nytimes.com/2025/11/26/world/europe/miroslaw-chojecki-dead.html
-
-**Tai Po is a crucial link between Hong Kong and mainland China.**\
-`The city`\
-https://nytimes.com/live/2025/11/26/world/hong-kong-fire/tai-po-is-a-crucial-link-between-hong-kong-and-mainland-china
-
-**How to watch Flames vs. Lightning: Time, TV, streaming**\
-`Find out how to watch the Calgary Flames play the Tampa Bay Lightning, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6840164/2025/11/26/flames-vs-lightning-stream-how-to-watch-nov-26/
-
-**How to watch Sabres vs. Penguins: Time, TV, streaming**\
-`Find out how to watch the Buffalo Sabres play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6840161/2025/11/26/sabres-vs-penguins-stream-how-to-watch-nov-26/
-
-**How to watch Bruins vs. Islanders: Time, TV, streaming**\
-`Find out how to watch the Boston Bruins play the New York Islanders, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6840162/2025/11/26/bruins-vs-islanders-stream-how-to-watch-nov-26/
 
