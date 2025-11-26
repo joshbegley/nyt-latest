@@ -1,3 +1,19 @@
+**An Asia-Pacific Showdown**\
+`China and Japan are in a diplomatic feud over Taiwan, with President Trump in the middle.`\
+https://nytimes.com/2025/11/26/world/china-japan-trump-showdown-fire-riyadh.html
+
+**USMNT's Robinson optimistic after prolonged injury threatened his World Cup**\
+`The U.S. left-back's recovery from an injury suffered in November 2024 has not gone to plan, but all hope is not lost`\
+https://nytimes.com/athletic/6820248/2025/11/26/antonee-robinson-injury-usmnt-world-cup-fulham/
+
+**What Are National Guard Troops Doing in Washington?**\
+`The troops are deployed in the capital as part of the president’s crackdown on crime.`\
+https://nytimes.com/2025/11/26/us/politics/national-guard-dc-deployment.html
+
+**Scoop City: Recipes for three Thanksgiving upsets**\
+`How three underdogs can win tomorrow, plus Mike Sando on why Kansas City remains a top-five team`\
+https://nytimes.com/athletic/6840794/2025/11/26/packers-cowboys-bengals-thanksgiving-upsets-chiefs/
+
 **The 11.30.25 Issue**\
 ``\
 https://nytimes.com/issue/magazine/2025/11/26/the-113025-issue
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6840774/2025/11/26/spurs-vs-trail-blazers-stream-ho
 **How to watch Bucks vs. Heat: Time, TV, streaming**\
 `Find out how to watch the Milwaukee Bucks play the Miami Heat, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6840772/2025/11/26/bucks-vs-heat-stream-how-to-watch-nov-26/
-
-**How to watch Grizzlies vs. Pelicans: Time, TV, streaming**\
-`Find out how to watch the Memphis Grizzlies play the New Orleans Pelicans, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6840770/2025/11/26/grizzlies-vs-pelicans-stream-how-to-watch-nov-26/
-
-**How to watch Rockets vs. Warriors: Time, TV, streaming**\
-`Find out how to watch the Houston Rockets play the Golden State Warriors, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6840768/2025/11/26/rockets-vs-warriors-stream-how-to-watch-nov-26/
-
-**How to watch Timberwolves vs. Thunder: Time, TV, streaming**\
-`Find out how to watch the Minnesota Timberwolves play the Oklahoma City Thunder, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6840766/2025/11/26/timberwolves-vs-thunder-stream-how-to-watch-nov-26/
-
-**How to watch Sharks vs. Avalanche: Time, TV, streaming**\
-`Find out how to watch the San Jose Sharks play the Colorado Avalanche, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6840764/2025/11/26/sharks-vs-avalanche-stream-how-to-watch-nov-26/
 

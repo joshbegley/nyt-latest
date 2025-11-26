@@ -1,3 +1,19 @@
+**An Asia-Pacific Showdown**\
+`China and Japan are in a diplomatic feud over Taiwan, with President Trump in the middle.`\
+https://nytimes.com/2025/11/26/world/china-japan-trump-showdown-fire-riyadh.html
+
+**USMNT's Robinson optimistic after prolonged injury threatened his World Cup**\
+`The U.S. left-back's recovery from an injury suffered in November 2024 has not gone to plan, but all hope is not lost`\
+https://nytimes.com/athletic/6820248/2025/11/26/antonee-robinson-injury-usmnt-world-cup-fulham/
+
+**What Are National Guard Troops Doing in Washington?**\
+`The troops are deployed in the capital as part of the president’s crackdown on crime.`\
+https://nytimes.com/2025/11/26/us/politics/national-guard-dc-deployment.html
+
+**Scoop City: Recipes for three Thanksgiving upsets**\
+`How three underdogs can win tomorrow, plus Mike Sando on why Kansas City remains a top-five team`\
+https://nytimes.com/athletic/6840794/2025/11/26/packers-cowboys-bengals-thanksgiving-upsets-chiefs/
+
 **The 11.30.25 Issue**\
 ``\
 https://nytimes.com/issue/magazine/2025/11/26/the-113025-issue
