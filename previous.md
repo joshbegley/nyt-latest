@@ -1,3 +1,7 @@
+**Huge Fire Engulfs Apartment Buildings in Hong Kong**\
+`Firefighters tried to douse the blaze at an apartment complex in the city’s northern Tai Po district, which reports say killed at least four people.`\
+https://nytimes.com/2025/11/26/world/asia/hong-kong-fire-apartment-buildings.html
+
 **How to watch Western Kentucky vs. Vanderbilt men's basketball: Time, TV, streaming**\
 `Find out how to watch the Western Kentucky Hilltoppers play the Vanderbilt Commodores, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6839333/2025/11/26/western-kentucky-vs-vanderbilt-stream-how-to-watch-nov-26/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/26/opinion/epstein-files-redactions-victims.html
 **How ‘Stranger Things’ Defined the Era of the Algorithm**\
 `A nostalgic hit built out of vintage pop-culture references captured the “If you liked that, you’ll like this” spirit of Netflix.`\
 https://nytimes.com/interactive/2025/11/26/arts/television/how-stranger-things-defined-the-era-of-the-algorithm.html
-
-**Nobody Should Go to Jail for a Harmless Meme**\
-`The best way to honor Charlie Kirk is not to criminalize speech.`\
-https://nytimes.com/2025/11/26/opinion/charlie-kirk-free-speech-bushart.html
 
