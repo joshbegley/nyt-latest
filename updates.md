@@ -1,3 +1,11 @@
+**Patriots rookie LT Will Campbell headed to IR**\
+`The Patriots will place Campbell, the No. 4 pick in the 2025 NFL Draft, on injured reserve. He'll miss at least the next four games.`\
+https://nytimes.com/athletic/6840446/2025/11/26/will-campbell-patriots-injured-reserve/
+
+**Bamboo scaffolding, like cladding, can create an unforgiving challenge for firefighters, an expert says.**\
+`By James Glanz`\
+https://nytimes.com/live/2025/11/26/world/hong-kong-fire/hongkong-fire-grenfell
+
 **Trump Administration Cancels U.S. Observance of World AIDS Day**\
 `The State Department warned employees not to use government funds for the occasion and to “refrain from publicly promoting World AIDS Day through any communication channels.”`\
 https://nytimes.com/2025/11/26/health/trump-us-world-aids-day.html
