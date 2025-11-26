@@ -1,3 +1,7 @@
+**Trump Administration Cancels U.S. Observance of World AIDS Day**\
+`The State Department warned employees not to use government funds for the occasion and to “refrain from publicly promoting World AIDS Day through any communication channels.”`\
+https://nytimes.com/2025/11/26/health/trump-us-world-aids-day.html
+
 **What’s in Our Queue? ‘Didi’ and More**\
 `Text by Livia Albeck-Ripka`\
 https://nytimes.com/card/2025/11/26/arts/editors-recommendations-didi
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6840427/2025/11/26/thanksgiving-nfl-amazon-black-fr
 **Northwestern University Nears Deal to Resolve Its Conflict With the White House**\
 `The school, one of several to face pressure campaigns from the Trump administration, would pay a $75 million fine and have its research funding restored under terms of the agreement being discussed.`\
 https://nytimes.com/2025/11/26/us/politics/northwestern-university-trump-deal.html
-
-**The High Stakes in the Ukraine Talks**\
-`Readers discuss the proposed deal to end the war between Ukraine and Russia. Also: Immigrant family separations; unplugging A.I.`\
-https://nytimes.com/2025/11/26/opinion/ukraine-russia-peace-talks.html
 
