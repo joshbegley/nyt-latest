@@ -1,3 +1,23 @@
+**What is the National Guard?**\
+`By Alyce McFadden and Anushka Patil`\
+https://nytimes.com/live/2025/11/26/us/national-guard-shooting-dc/what-is-national-guard
+
+**Breaking down Mbappe's seven-minute Champions League hat-trick (and his fourth)**\
+`The hat-trick was Mbappe's 19th, 20th and 21st goals of the season for Madrid and came after his side had fallen behind against Olympiacos`\
+https://nytimes.com/athletic/6840912/2025/11/26/kylian-mbappe-hattrick-real-madrid-olympiacos/
+
+**The Briefing: Arsenal 3 Bayern Munich 1: Mikel Arteta's winning machine marches on**\
+`The Athletic unpicks a commanding Arsenal win over Bayern Munich`\
+https://nytimes.com/athletic/6836397/2025/11/26/arsenal-bayern-munich-result-champions-league/
+
+**PSG 5 Spurs 3 - Were there positives for Frank? How did Vitinha score that? How did Richarlison and Kolo Muani combine?**\
+`Our writers break down the action from an entertaining Champions League game in Paris`\
+https://nytimes.com/athletic/6836462/2025/11/26/tottenham-psg-thomas-frank-vitinha/
+
+**Dubrovnik, Known for Its Beauty, Faces a Mound of New Trash**\
+`Officials in Dubrovnik, Croatia, say the strong currents of the Adriatic Sea washed ashore a vast amount of garbage, mostly from Albania, during a recent storm.`\
+https://nytimes.com/2025/11/26/world/europe/croatia-trash-dubrovnik-plastic.html
+
 **The Briefing: Arsenal 3 Bayern Munich 1: Mikel Arteta's winning machine marches on, match-winning substitutes**\
 `The Athletic unpicks a commanding Arsenal win over Bayern Munich`\
 https://nytimes.com/athletic/6836397/2025/11/26/arsenal-bayern-munich-result-champions-league/
