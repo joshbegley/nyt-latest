@@ -1,3 +1,7 @@
+**ICE Detains Woman With Family Ties to White House Press Secretary**\
+`Bruna Caroline Ferreira, the mother of a nephew of the White House press secretary, Karoline Leavitt, was pulled over and arrested on her way to pick up her son from school, Ms. Ferreira’s lawyer said.`\
+https://nytimes.com/2025/11/26/us/karoline-leavitt-ice-family-member-bruna-ferreira.html
+
 **Anthony Davis calls Nico Harrison firing 'surprising' as he nears return from injury**\
 `The Mavericks are 3-11 this season without their star big man, who hopes to return Friday against his former team, the Lakers.`\
 https://nytimes.com/athletic/6840538/2025/11/26/mavericks-anthony-davis-nico-harrison/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6840446/2025/11/26/will-campbell-patriots-injured-r
 **The fire in Hong Kong shared similarities with a fire at the Grenfell Tower in London.**\
 `By James Glanz`\
 https://nytimes.com/live/2025/11/26/world/hong-kong-fire/bamboo-scaffolding-hong-kong-fire
-
-**Trump Administration Will No Longer Commemorate World AIDS Day**\
-`The State Department warned employees not to use government funds for the occasion and to “refrain from publicly promoting World AIDS Day through any communication channels.”`\
-https://nytimes.com/2025/11/26/health/trump-us-world-aids-day.html
 
