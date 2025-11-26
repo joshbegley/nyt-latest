@@ -1,3 +1,7 @@
+**State Court Rules School Vaccine Law Can’t Bar Religious Exemptions**\
+`The decision was handed down by a judge in West Virginia, which has one of the country’s strictest school vaccination laws and one of the highest vaccination rates.`\
+https://nytimes.com/2025/11/26/us/west-virginia-court-vaccine-law-religious-exemptions.html
+
 **NCAA proposes reducing transfer portal window to 15 days in men's and women's basketball**\
 `Under the current rules, the transfer portal window is 30 days and begins in late March, while postseason tournaments are still underway.`\
 https://nytimes.com/athletic/6840295/2025/11/26/ncaa-basketball-transfer-portal-window-changes/
