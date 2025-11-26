@@ -1,3 +1,7 @@
+**ICE Detains Woman With Family Ties to White House Press Secretary**\
+`Bruna Caroline Ferreira, the mother of a nephew of the White House press secretary, Karoline Leavitt, was pulled over and arrested on her way to pick up her son from school, Ms. Ferreira’s lawyer said.`\
+https://nytimes.com/2025/11/26/us/karoline-leavitt-ice-family-member-bruna-ferreira.html
+
 **Anthony Davis calls Nico Harrison firing 'surprising' as he nears return from injury**\
 `The Mavericks are 3-11 this season without their star big man, who hopes to return Friday against his former team, the Lakers.`\
 https://nytimes.com/athletic/6840538/2025/11/26/mavericks-anthony-davis-nico-harrison/
