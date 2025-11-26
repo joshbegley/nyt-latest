@@ -1,40 +1,40 @@
-**Deadly Flooding in Thailand Prompts Rescues and Evacuations**\
-`The military sent troops, helicopters and boats to rescue stranded people. At least 33 people have been killed and more than two million displaced over the past week.`\
-https://nytimes.com/2025/11/26/world/asia/southern-thailand-flooding.html
+**College football rivalry week streaming guide: OSU-Michigan, Iron Bowl, Egg Bowl**\
+`College football's last regular-season weekend awakens rivalries across the country.`\
+https://nytimes.com/athletic/6826975/2025/11/26/ohio-state-michigan-rivalry-texas-alabama-how-to-watch/
 
-**To stay in the playoff hunt, Cowboys need best version of CeeDee Lamb vs. Chiefs**\
-`The Dallas star receiver had multiple drops against the Eagles — one costly in the end zone — but has moved on: "We need to get this win."`\
-https://nytimes.com/athletic/6838187/2025/11/26/cowboys-ceedee-lamb-drops-thanksgiving-chiefs/
+**Emma Hayes says opportunities for USWNT players to play in Europe should be 'celebrated'**\
+`Emma Hayes gets asked many versions of the same question a lot. She thinks it shows a lack of understanding of the bigger picture`\
+https://nytimes.com/athletic/6838002/2025/11/26/emma-hayes-uswnt-players-europe/
 
-**If you want to believe in Aaron Glenn's Jets, start here**\
-`As the first-year coach pledges a brighter future, there are reasons he should be believed.`\
-https://nytimes.com/athletic/6837647/2025/11/26/aaron-glenn-new-york-jets-rebuild-optimism/
+**Against the Magic, the Sixers looked like the Sixers of last year**\
+`Philadelphia were non-competitive against Orlando, and nowhere near the resilient team they have been for most of the season.`\
+https://nytimes.com/athletic/6839053/2025/11/26/sixers-lose-magic-nba-cup/
 
-**What will it take for the Steelers to make the playoffs?**\
-`According to The Athletic’s NFL Playoff Simulator, the Steelers currently have an 18 percent chance to make the postseason.`\
-https://nytimes.com/athletic/6838509/2025/11/26/steelers-playoffs-chances-nfl/
+**Josh Allen has some Hall of Fame credentials. Are Bills wasting him without more support?**\
+`Allen's supporting cast has remained meager this season.`\
+https://nytimes.com/athletic/6838275/2025/11/26/buffalo-bills-josh-allen-hall-of-fame-credentials/
 
-**Setting the table for an NFL Thanksgiving slate packed with playoff implications**\
-`Seven of the eight teams playing Thursday and Friday are in the thick of a playoff race. `\
-https://nytimes.com/athletic/6836828/2025/11/26/nfl-thanksgiving-games-cowboys-chiefs-lions-packers/
+**'We keep touching the stove': Bulls' latest stretch a reminder of slow-burn defense**\
+`The Bulls' defensive soul searching, an identity in their infancy, burst into view this week.`\
+https://nytimes.com/athletic/6837688/2025/11/26/bulls-nba-defense/
 
-**A journey to Michigan's Upper Peninsula, where the Lions and Packers draw the lines**\
-`On a swath of land in Michigan, Lions and Packers fans live side-by-side. They're called the Yoopers.`\
-https://nytimes.com/athletic/6837163/2025/11/26/detroit-lions-green-bay-packers-yoopers/
+**Ravens' Nate Wiggins is drenched in confidence. And for him, that's nothing new**\
+`The 2024 first-round pick has always been extremely talented, but his most impressive trait may be the supreme confidence he has in himself.`\
+https://nytimes.com/athletic/6835530/2025/11/26/nate-wiggins-ravens-cornerback-confidence/
 
-**The Year of Tommy**\
-`Scottie Scheffler won two majors. Rory McIlroy won the career Grand Slam. But why is it we can't stop talking about Tommy Fleetwood?`\
-https://nytimes.com/athletic/6836563/2025/11/26/tommy-fleetwood-pga-tour-win-ryder-cup-star/
+**U.S. Olympic GM Bill Guerin on star injuries, crunch time for roster decisions: 'Dial in'**\
+`Who's in? Who's out? Who's on the bubble? Guerin discusses what his management group is looking at with five weeks until rosters are due.`\
+https://nytimes.com/athletic/6838128/2025/11/26/bill-guerin-united-states-olympic-roster-injuries/
 
-**Confused by the Panthers' pass-heavy play calls vs. 49ers? Rico Dowdle probably was, too**\
-`One of the league's top runners, Rico Dowdle had just six carries for 38 yards in the loss Monday night in San Francisco.`\
-https://nytimes.com/athletic/6838241/2025/11/26/panthers-rico-dowdle-dave-canales-49ers/
+**Fantasy football best and worst Week 13 matchups: Start your Broncos!**\
+`Name your Broncos. Quarterback, running back, receivers ... KC Joyner likes them all in Week 13.`\
+https://nytimes.com/athletic/6835961/2025/11/26/fantasy-football-best-and-worst-week-13-matchups-its-start-your-broncos-week/
 
-**The New York Times International Edition in Print for Thursday, Nov. 27, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/11/26/todays-new-york-times-international-edition
+**'Dangerous' court comes closest to stopping Luka Dončić, Lakers in win over Clippers**\
+`“I slipped a lot of times,” Dončić said after Tuesday's 135-118 victory. “And you could see a lot of players slipped. And that's dangerous.”`\
+https://nytimes.com/athletic/6839263/2025/11/26/lakers-doncic-clippers-court-nba-cup/
 
-**Huge Fire Engulfs Apartment Buildings in Hong Kong**\
-`Firefighters tried to douse the blaze at an apartment complex in the city’s northern Tai Po district, which killed at least four people.`\
-https://nytimes.com/2025/11/26/world/asia/hong-kong-fire-apartment-buildings.html
+**Unsung defensive spark lifts Tennessee past Houston — and strengthens its Final Four case**\
+`Once a benchwarmer, Bishop Boswell became Tennessee’s difference-maker on defense, boosting the Vols’ Final Four outlook.`\
+https://nytimes.com/athletic/6838907/2025/11/26/college-basketball-houston-tennessee-final-four/
 
