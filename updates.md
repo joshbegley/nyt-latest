@@ -1,3 +1,11 @@
+**Eli Zeira, 97, Dies; Israeli Official Dismissed Warnings of Yom Kippur War**\
+`As Israel’s head of military intelligence, he disregarded signs Egypt and Syria were about to attack in 1973. A commission blamed him for the lack of preparation.`\
+https://nytimes.com/2025/11/26/world/middleeast/eli-zeira-dead.html
+
+**Judge Dismisses Georgia Election Interference Case Against Trump**\
+`The president has now seen three criminal cases against him dissolve since he was re-elected last year.`\
+https://nytimes.com/2025/11/26/us/trump-georgia-election-racketeering.html
+
 **Hendersonville, N.C., Surrounded by Natural Treasures**\
 `“The City of Four Seasons” sits on the western edge of the Blue Ridge Mountains.`\
 https://nytimes.com/2025/11/26/realestate/hendersonville-north-carolina-guide.html
