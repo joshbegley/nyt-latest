@@ -1,3 +1,11 @@
+**Volcanic Eruption in Ethiopia Creates Flight Delays in India**\
+`The volcanic eruption sent into the atmosphere an ash cloud, which gusts of wind blew eastward toward the Indian subcontinent. Multiple flights in India were delayed or rerouted as a precaution, according to India’s Ministry of Civil Aviation.`\
+https://nytimes.com/video/travel/100000010547959/ethiopia-volcano-india-flight-delay.html
+
+**Ranking college football's 13 open coaching jobs: LSU No. 1; Cal or Stanford?**\
+`This could be the most active coaching carousel college football has seen in many years.`\
+https://nytimes.com/athletic/6662286/2025/11/25/college-football-open-coaching-jobs-rankings/
+
 **Trump Administration Will Raise Prices for Foreign Tourists at National Parks**\
 `The price increases comes as more and more international travelers are choosing to stay away from the United States and amid turmoil at the National Park Service.`\
 https://nytimes.com/2025/11/25/us/politics/national-parks-prices-tourists-trump.html
