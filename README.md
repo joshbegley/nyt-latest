@@ -1,3 +1,7 @@
+**Apple TV Series ‘The Hunt’ Is Pulled Amid Accusations of Plagiarism**\
+`Apple TV postponed the launch of the French-language series following accusations that its creator copied key elements from a 1973 novel.`\
+https://nytimes.com/2025/11/26/arts/television/apple-tv-the-hunt-plagiarism.html
+
 **The Pulse: The central battle of MLB’s offseason**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6837378/2025/11/26/its-the-dodgers-vs-everyone-plus-the-latest-cfp-rankings/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6838046/2025/11/26/brandt-clarke-kings-doughty/
 **Cleats for a cause: Austen Pleasants raises awareness for son, limb-different community**\
 `"To show people who may be going through similar situations that they're not alone is such a blessing," Pleasants said.`\
 https://nytimes.com/athletic/6838213/2025/11/26/49ers-austen-pleasants-son-limb-difference-cleats/
-
-**France’s Ex-President Loses Graft Appeal, Weeks After He Was Jailed in Separate Case**\
-`France’s highest court has upheld a conviction against Nicolas Sarkozy, who led France until 2012. It comes weeks after he was jailed in a different fraud trial.`\
-https://nytimes.com/2025/11/26/world/europe/france-sarkozy-corruption-conviction.html
 

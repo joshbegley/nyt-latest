@@ -1,3 +1,7 @@
+**The Pulse: The central battle of MLB’s offseason**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6837378/2025/11/26/its-the-dodgers-vs-everyone-plus-the-latest-cfp-rankings/
+
 **Hojicha Cheesecake Pie**\
 `A Japanese toasted green tea with warm, nutty flavor, hojicha is perfect for a sweet pie. This recipe calls for hojicha powder, which is readily available at Japanese grocery stores or online.`\
 https://nytimes.com/video/dining/100000010523084/hojicha-cheesecake-pie.html

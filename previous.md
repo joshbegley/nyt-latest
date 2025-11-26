@@ -1,3 +1,7 @@
+**The Pulse: The central battle of MLB’s offseason**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6837378/2025/11/26/its-the-dodgers-vs-everyone-plus-the-latest-cfp-rankings/
+
 **Hojicha Cheesecake Pie**\
 `A Japanese toasted green tea with warm, nutty flavor, hojicha is perfect for a sweet pie. This recipe calls for hojicha powder, which is readily available at Japanese grocery stores or online.`\
 https://nytimes.com/video/dining/100000010523084/hojicha-cheesecake-pie.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6838213/2025/11/26/49ers-austen-pleasants-son-limb-
 **France’s Ex-President Loses Graft Appeal, Weeks After He Was Jailed in Separate Case**\
 `France’s highest court has upheld a conviction against Nicolas Sarkozy, who led France until 2012. It comes weeks after he was jailed in a different fraud trial.`\
 https://nytimes.com/2025/11/26/world/europe/france-sarkozy-corruption-conviction.html
-
-**Live Updates: At Least 13 Are Killed as Fire Engulfs Hong Kong Apartments**\
-`Firefighters were still trying to extinguish the blaze at an apartment complex in the city’s northern Tai Po district.`\
-https://nytimes.com/live/2025/11/26/world/hong-kong-fire
 
