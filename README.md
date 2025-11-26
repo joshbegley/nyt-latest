@@ -1,3 +1,7 @@
+**Taiwan’s President to Seek an Extra $40 Billion for Military**\
+`President Lai Ching-te says the spending, which must be approved by the island’s legislature, would fund purchases of arms from the United States.`\
+https://nytimes.com/2025/11/25/world/asia/taiwan-40-billion-military-trump.html
+
 **John Green on Hope Versus Despair**\
 `John Green is the author of the mega-best-selling “The Fault in Our Stars.`\
 https://nytimes.com/video/podcasts/100000010546368/the-interview-with-john-green-john-green-on-hope-versus-despair.html
@@ -33,8 +37,4 @@ https://nytimes.com/card/2025/11/26/well/move/van-cortlandt-park-cross-country-m
 **In dealing Sonny Gray, Cardinals' Chaim Bloom shows clear direction. What's next?**\
 `The Cardinals want to return to being perennial contenders, and Bloom is willing to make difficult decisions now to better ensure that.`\
 https://nytimes.com/athletic/6837553/2025/11/25/st-louis-cardinals-sonny-gray-trade-direction/
-
-**CJ McCollum's 27-point first half sparks Wizards' win vs. Hawks**\
-`McCollum finished a season-high 46 points to help Washington beat Atlanta.`\
-https://nytimes.com/athletic/6838481/2025/11/25/cj-mccollum-stats-first-half-wizards-hawks/
 
