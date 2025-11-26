@@ -1,3 +1,7 @@
+**E.P.A. Delays Requirements to Cut Methane, a Potent Greenhouse Gas**\
+`Oil and gas firms were supposed to start reducing methane, a powerful driver of climate change. The agency is giving them more time and may cancel the requirement.`\
+https://nytimes.com/2025/11/26/climate/epa-delays-methane-oil-gas.html
+
 **How the Rockets break basketball**\
 `No team has ever dominated the boards like this season's Houston Rockets. In the process, they're reinventing the idea of good offense.`\
 https://nytimes.com/athletic/6837585/2025/11/26/rockets-rebounding-video-nba-highlights/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6836398/2025/11/26/liverpool-psv-result-report-scor
 **Top U.S. Negotiator Warned Europeans That Russia Is Stockpiling Missiles**\
 `Daniel P. Driscoll, the U.S. Army secretary, used the growing threat from Moscow as a way to sell a quick peace deal unfavorable to Ukraine.`\
 https://nytimes.com/2025/11/26/world/europe/ukraine-peace-talks-russia-missiles.html
-
-**Dubrovnik, Known for Its Beauty, Faces a Mound of New Trash**\
-`Officials in Dubrovnik, Croatia, say the strong currents of the Adriatic Sea washed ashore a vast amount of garbage, mostly from Albania, during a recent storm.`\
-https://nytimes.com/2025/11/26/world/europe/croatia-trash-dubrovnik-plastic.html
 
