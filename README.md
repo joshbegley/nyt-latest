@@ -1,6 +1,14 @@
+**Volcanic Eruption in Ethiopia Creates Flight Delays in India**\
+`The volcanic eruption sent into the atmosphere an ash cloud, which gusts of wind blew eastward toward the Indian subcontinent. Multiple flights in India were delayed or rerouted as a precaution, according to India’s Ministry of Civil Aviation.`\
+https://nytimes.com/video/travel/100000010547959/ethiopia-volcano-india-flight-delay.html
+
 **Trump Administration Will Raise Prices for Foreign Tourists at National Parks**\
 `The price increases comes as more and more international travelers are choosing to stay away from the United States and amid turmoil at the National Park Service.`\
 https://nytimes.com/2025/11/25/us/politics/national-parks-prices-tourists-trump.html
+
+**Ranking college football's 13 open coaching jobs: LSU No. 1; Cal or Stanford?**\
+`This could be the most active coaching carousel college football has seen in many years.`\
+https://nytimes.com/athletic/6662286/2025/11/25/college-football-open-coaching-jobs-rankings/
 
 **How to watch Bills vs. Steelers: Time, TV, streaming**\
 `Find out how to watch the Buffalo Bills play the Pittsburgh Steelers, with time, TV channel and streaming information.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/25/science/pheasants-blind-spot-vision.html
 **Fears About A.I. Prompt Talks of Super PACs to Rein In the Industry**\
 `As artificial intelligence companies prepare to pour money into the midterm elections, some in the A.I. world are hatching plans of their own to curb the industry’s influence.`\
 https://nytimes.com/2025/11/25/us/politics/ai-super-pac-anthropic.html
-
-**Violence Is Driving Catastrophic Hunger in Nigeria, U.N. Report Says**\
-`Africa’s most populous nation was already facing one of the world’s biggest hunger crises. It’s getting much worse.`\
-https://nytimes.com/2025/11/25/world/africa/nigeria-food-violence-usaid.html
-
-**With draw pots set, what are USMNT's best, worst and most interesting World Cup groups?**\
-`We can now fully assess all the possibilities for what the U.S.'s World Cup group could look like next summer. Buckle up`\
-https://nytimes.com/athletic/6837167/2025/11/25/usmnt-2026-world-cup-draw-group-scenarios/
 

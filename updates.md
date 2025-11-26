@@ -1,3 +1,7 @@
+**Trump Administration Will Raise Prices for Foreign Tourists at National Parks**\
+`The price increases comes as more and more international travelers are choosing to stay away from the United States and amid turmoil at the National Park Service.`\
+https://nytimes.com/2025/11/25/us/politics/national-parks-prices-tourists-trump.html
+
 **How to watch Bills vs. Steelers: Time, TV, streaming**\
 `Find out how to watch the Buffalo Bills play the Pittsburgh Steelers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6838264/2025/11/25/bills-vs-steelers-stream-how-to-watch-nov-30/
