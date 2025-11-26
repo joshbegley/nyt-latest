@@ -1,3 +1,19 @@
+**Eli Zeira Dies at 97; Israeli Official Dismissed Warnings of Yom Kippur War**\
+`As Israel’s head of military intelligence, he disregarded signs Egypt and Syria were about to attack in 1973. A commission blamed him for the lack of preparation.`\
+https://nytimes.com/2025/11/26/world/middleeast/eli-zeira-dead.html
+
+**New Prosecutor Asks for Charges to be Dropped in Georgia Trump Case**\
+`The development was a victory for President Trump, who has seen three criminal cases against him dissolve since he was re-elected last year.`\
+https://nytimes.com/2025/11/26/us/trump-georgia-election-racketeering.html
+
+**Spinach Corn Dip Is the Ideal Party Snack**\
+`Or, as one reader puts it, “what I want to eat for dinner for the rest of my days.”`\
+https://nytimes.com/2025/11/26/dining/spinach-corn-dip-is-the-ideal-party-snack.html
+
+**NASA Rover Makes a Shocking Discovery: Lightning on Mars**\
+`The Perseverance rover picked up audio evidence of electric discharges in the red planet’s atmosphere.`\
+https://nytimes.com/2025/11/26/science/mars-lightning-nasa.html
+
 **As Prices Pinch, Bessent Looks for Ways to Mollify Wary Consumers**\
 `Treasury Secretary Scott Bessent has offered a variety of creative justifications for President Trump’s import duties.`\
 https://nytimes.com/2025/11/26/business/scott-bessent-inflation.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/11/26/arts/design/ayoung-kim-video-artist-ps1.html
 **Gibbs-White to miss Nottingham Forest's Malmo tie through injury**\
 `The midfielder has picked up what manager Sean Dyche described as a minor injury, adding he was "hopeful" it was nothing serious.`\
 https://nytimes.com/athletic/6839985/2025/11/26/morgan-gibbs-white-injury-nottingham-forest/
-
-**‘The Secret Agent’ Review: Carnival in the Face of Carnage**\
-`Wagner Moura takes cover in this knockout from the filmmaker Kleber Mendonça Filho that is largely set in 1977 during Brazil’s miliary dictatorship.`\
-https://nytimes.com/2025/11/26/movies/the-secret-agent-review.html
-
-**Ranking college football's 12 open coaching jobs: LSU No. 1; Cal or Stanford?**\
-`This could be the most active coaching carousel college football has seen in many years.`\
-https://nytimes.com/athletic/6662286/2025/11/26/college-football-open-coaching-jobs-rankings/
-
-**Grand Slam Track asks vendors to swallow millions in losses to save Michael Johnson's league**\
-`The start-up track organization beset by financial problems has sent letters asking vendors to accept 50 percent of what they are owed.`\
-https://nytimes.com/athletic/6837948/2025/11/26/grand-slam-track-michael-johnson-debts-bankruptcy/
-
-**Arsenal's Munoz, 13, becomes youngest UEFA Youth League player**\
-`The 2011-born midfielder came on in the 85th minute to play alongside Max Dowman and Emerson Nwaneri.`\
-https://nytimes.com/athletic/6839858/2025/11/26/arsenal-munoz-record-youngest-player/
 

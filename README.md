@@ -1,3 +1,7 @@
+**NYC's Holiday History**\
+``\
+https://nytimes.com/spotlight/nycs-holiday-history
+
 **Eli Zeira Dies at 97; Israeli Official Dismissed Warnings of Yom Kippur War**\
 `As Israel’s head of military intelligence, he disregarded signs Egypt and Syria were about to attack in 1973. A commission blamed him for the lack of preparation.`\
 https://nytimes.com/2025/11/26/world/middleeast/eli-zeira-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/26/us/politics/trump-ukraine-peace-deal-witkoff.html
 **A Speedy Art-Career Rise Fueled by a Descent Into Our Modern Abyss**\
 `Contemporary life, speculative fiction, Asian futurism and social documentary all meet in Ayoung Kim’s videos at MoMA PS1. And are they fun to watch!`\
 https://nytimes.com/2025/11/26/arts/design/ayoung-kim-video-artist-ps1.html
-
-**Gibbs-White to miss Nottingham Forest's Malmo tie through injury**\
-`The midfielder has picked up what manager Sean Dyche described as a minor injury, adding he was "hopeful" it was nothing serious.`\
-https://nytimes.com/athletic/6839985/2025/11/26/morgan-gibbs-white-injury-nottingham-forest/
 
