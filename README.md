@@ -1,3 +1,7 @@
+**Trump Administration Will Raise Prices for Foreign Tourists at National Parks**\
+`The price increases comes as more and more international travelers are choosing to stay away from the United States and amid turmoil at the National Park Service.`\
+https://nytimes.com/2025/11/25/us/politics/national-parks-prices-tourists-trump.html
+
 **How to watch Bills vs. Steelers: Time, TV, streaming**\
 `Find out how to watch the Buffalo Bills play the Pittsburgh Steelers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6838264/2025/11/25/bills-vs-steelers-stream-how-to-watch-nov-30/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/25/world/africa/nigeria-food-violence-usaid.html
 **With draw pots set, what are USMNT's best, worst and most interesting World Cup groups?**\
 `We can now fully assess all the possibilities for what the U.S.'s World Cup group could look like next summer. Buckle up`\
 https://nytimes.com/athletic/6837167/2025/11/25/usmnt-2026-world-cup-draw-group-scenarios/
-
-**Betting for (by) dummies: Michigan, Lions and Eagles among a feast of bets**\
-`Before stuffing their faces with food, Jon Greenberg and Zac Jackson stuffed their faces with bets.`\
-https://nytimes.com/athletic/6837774/2025/11/25/betting-for-by-dummies-michigan-lions-eagles/
 
