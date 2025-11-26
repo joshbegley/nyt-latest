@@ -11,7 +11,7 @@ https://nytimes.com/athletic/6840912/2025/11/26/kylian-mbappe-hattrick-real-madr
 https://nytimes.com/athletic/6836397/2025/11/26/arsenal-bayern-munich-result-champions-league/
 
 **PSG 5 Spurs 3 - Were there positives for Frank? How did Vitinha score that? How did Richarlison and Kolo Muani combine?**\
-`Our writers break down the action from an entertaining Champions League game in Paris.`\
+`Our writers break down the action from an entertaining Champions League game in Paris`\
 https://nytimes.com/athletic/6836462/2025/11/26/tottenham-psg-thomas-frank-vitinha/
 
 **U.S. Army Secretary’s Unusual Role in Ukraine Peace Negotiations**\
