@@ -1,3 +1,15 @@
+**Deadly, fast-moving fire is less likely in Midtown Manhattan, experts say.**\
+`The area’s high-rises have robust safety features and are not as densely packed as those in Hong Kong, making them less susceptible to blazes.`\
+https://nytimes.com/live/2025/11/26/world/hong-kong-fire/midtown-manhattan-fire-safety
+
+**Live Updates: National Guard Member Shot Near White House**\
+`Dozens of emergency responders and police vehicles were amassed at the scene of the shooting, an area of downtown Washington where troops have been patrolling for months.`\
+https://nytimes.com/live/2025/11/26/us/national-guard-shooting-dc
+
+**Here’s the latest.**\
+`Dozens of emergency responders and police vehicles were amassed at the corner of the shooting.`\
+https://nytimes.com/live/2025/11/26/us/national-guard-shooting-dc/dc-shooting-national-guard
+
 **ICE Detains Woman With Family Ties to White House Press Secretary**\
 `Bruna Caroline Ferreira, the mother of a nephew of the White House press secretary, Karoline Leavitt, was pulled over and arrested on her way to pick up her son from school, Ms. Ferreira’s lawyer said.`\
 https://nytimes.com/2025/11/26/us/karoline-leavitt-ice-family-member-bruna-ferreira.html

@@ -1,3 +1,15 @@
+**Deadly, fast-moving fire is less likely in Midtown Manhattan, experts say.**\
+`The area’s high-rises have robust safety features and are not as densely packed as those in Hong Kong, making them less susceptible to blazes.`\
+https://nytimes.com/live/2025/11/26/world/hong-kong-fire/midtown-manhattan-fire-safety
+
+**Live Updates: National Guard Member Shot Near White House**\
+`Dozens of emergency responders and police vehicles were amassed at the scene of the shooting, an area of downtown Washington where troops have been patrolling for months.`\
+https://nytimes.com/live/2025/11/26/us/national-guard-shooting-dc
+
+**Here’s the latest.**\
+`Dozens of emergency responders and police vehicles were amassed at the corner of the shooting.`\
+https://nytimes.com/live/2025/11/26/us/national-guard-shooting-dc/dc-shooting-national-guard
+
 **ICE Detains Woman With Family Ties to White House Press Secretary**\
 `Bruna Caroline Ferreira, the mother of a nephew of the White House press secretary, Karoline Leavitt, was pulled over and arrested on her way to pick up her son from school, Ms. Ferreira’s lawyer said.`\
 https://nytimes.com/2025/11/26/us/karoline-leavitt-ice-family-member-bruna-ferreira.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6840550/2025/11/26/zohran-mamdani-arsenal-pascal-cy
 **Smoke, a Knock on the Door and a Battle to Escape**\
 `Residents describe how a blaze in a high-rise building in Hong Kong quickly spread, taking many by surprise and trapping an unknown number of people in the burning buildings.`\
 https://nytimes.com/2025/11/26/world/asia/hong-kong-apartments-fire-residents.html
-
-**Alex Rodriguez points to 'hypocrisy' behind Bud Selig’s Hall of Fame induction**\
-`Alex Rodriguez points to hypocrisy in Cooperstown’s treatment of steroid-era stars.`\
-https://nytimes.com/athletic/6840292/2025/11/26/alex-rodriguez-points-to-hypocrisy-behind-bud-seligs-hall-of-fame-induction/
-
-**Patriots rookie LT Will Campbell headed to IR**\
-`The Patriots will place Campbell, the No. 4 pick in the 2025 NFL Draft, on injured reserve. He'll miss at least the next four games.`\
-https://nytimes.com/athletic/6840446/2025/11/26/will-campbell-patriots-injured-reserve/
-
-**The fire in Hong Kong shared similarities with a fire at the Grenfell Tower in London.**\
-`By James Glanz`\
-https://nytimes.com/live/2025/11/26/world/hong-kong-fire/bamboo-scaffolding-hong-kong-fire
 
