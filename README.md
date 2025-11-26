@@ -1,3 +1,7 @@
+**In City Hall Housecleaning, Mamdani Asks 179 Adams Staff Members to Quit**\
+`Zohran Mamdani will be sworn in as mayor on Jan. 1. His request for resignations targeted political appointees.`\
+https://nytimes.com/2025/11/25/nyregion/mamdani-adams-staff-resignations.html
+
 **U.S. Announces Negotiated Prices for 15 Drugs Under Medicare**\
 `The Trump administration said that had the new prices been in effect last year, Medicare would have saved $12 billion, which would have reduced its spending on those drugs by 44 percent.`\
 https://nytimes.com/2025/11/25/health/drugs-prices-medicare.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6838247/2025/11/25/vikings-vs-seahawks-stream-how-t
 **How to watch Alabama vs. UNLV men's basketball: Time, TV, streaming**\
 `Find out how to watch the Alabama Crimson Tide play the UNLV Rebels, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6838243/2025/11/25/alabama-vs-unlv-stream-how-to-watch-nov-26/
-
-**Transportation Chief Wants Healthier In-Flight Snack Options**\
-`Sean Duffy, who has been promoting greater decorum among air travelers, said he would like to see choices besides salty pretzels and buttery cookies.`\
-https://nytimes.com/2025/11/25/us/sean-duffy-healthier-plane-snacks.html
 
