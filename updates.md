@@ -1,3 +1,11 @@
+**The New York Times in Print for Wednesday, Nov. 26, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/11/26/todays-new-york-times
+
+**Give Nuclear Power Another Chance**\
+`California and eight other states have outdated restrictions on building nuclear power plants.`\
+https://nytimes.com/2025/11/26/opinion/nuclear-energy-california-massachusetts.html
+
 **Mick Jagger. Rolling Stone. Cultural icon. And cricket streaming pioneer**\
 `The Rolling Stones' lead singer, a huge cricket fan, spotted the huge potential of the internet while others still treated it with suspicion`\
 https://nytimes.com/athletic/6789244/2025/11/26/mick-jagger-rolling-stone-cultural-icon-and-cricket-streaming-pioneer/
