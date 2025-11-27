@@ -30,7 +30,7 @@ https://nytimes.com/athletic/6842972/2025/11/27/explained-trap-mclaren-las-vegas
 `The opposition has accused the president of putting a general in charge of the government so that he could stay in power.`\
 https://nytimes.com/2025/11/27/world/africa/guinea-bissau-coup.html
 
-**Map: 6.0-Magnitude Earthquake Shakes Alaska Near Anchorage**\
+**Maps: 6.0-Magnitude Earthquake Shakes Alaska Near Anchorage**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/11/27/us/earthquake-alaska-anchorage.html
 

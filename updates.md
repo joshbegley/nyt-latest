@@ -1,3 +1,7 @@
+**Maps: 6.0-Magnitude Earthquake Shakes Alaska Near Anchorage**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/11/27/us/earthquake-alaska-anchorage.html
+
 **Why Is the U.S. Threatening Venezuela?**\
 `Venezuela doesn’t play a large role in the drug trade to the United States, so what is motivating the massive military buildup? Julian E. Barnes, who reports on intelligence and international security, discusses the issues with our senior writer Katrin Bennhold.`\
 https://nytimes.com/video/world/americas/100000010549651/trump-venezuela-pressure-campaign.html
