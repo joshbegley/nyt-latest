@@ -1,3 +1,11 @@
+**The New York Times in Print for Thursday, Nov. 27, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/11/27/todays-new-york-times
+
+**If You’re Reading This on Thanksgiving, It’s Not Too Late**\
+`Last-minute holiday recipes for side dishes and desserts, and a few ideas for tomorrow.`\
+https://nytimes.com/2025/11/27/dining/if-youre-reading-this-on-thanksgiving-its-not-too-late.html
+
 **Travis Head, Australia's new Ashes hero and the magic of the moustache**\
 `England were put to the sword by the makeshift opener in Perth, but they have suffered at the hands of moustachioed Australians before`\
 https://nytimes.com/athletic/6830866/2025/11/27/travis-head-australia-ashes-hero-moustache/
