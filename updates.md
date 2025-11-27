@@ -1,3 +1,7 @@
+**The New York Times in Print for Thursday, Nov. 27, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/11/27/todays-new-york-times
+
 **Footage Shows Early Stages of Hong Kong Fire**\
 `An eyewitness filmed the early moments of a fire that grew into a deadly blaze, consuming an apartment complex in Hong Kong.`\
 https://nytimes.com/video/world/asia/100000010551289/hong-kong-fire.html
