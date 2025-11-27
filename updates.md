@@ -1,3 +1,16 @@
+**This Thanksgiving, Everything Is Going to Be All Right**\
+`A pep talk for the day.`\
+https://nytimes.com/2025/11/27/briefing/this-thanksgiving-everything-is-going-to-be-all-right.html
+
+**Newcastle to report ‘disproportionate’ force from Marseille police**\
+`The Tyneside club say their fans were "indiscriminately assaulted" after the 2-1 loss to the Ligue 1 side. `\
+https://nytimes.com/athletic/6842114/2025/11/27/newcastle-marseille-police-fans/
+
+**Tristan Jarry's redemption tour resumes as Penguins hold off Sabres: 10 observations**\
+`Jarry picked up right where he left off after returning from injury in Pittsburgh's 4-2 win over Buffalo.
+`\
+https://nytimes.com/athletic/6841585/2025/11/27/penguins-sabres-tristan-jarry-observations/
+
 **Tristan Jarry's redemption tour resumes as Penguins hold off Sabres: 10 observations**\
 `Jarry picked up right where he left off after returning from injury in Pittsburgh's 4-2 win over Buffalo.
 `\
