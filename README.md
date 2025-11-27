@@ -1,3 +1,7 @@
+**The D.C. shooting suspect had worked with C.I.A.-backed units in Afghanistan.**\
+`By Julian E. Barnes and Hamed Aleaziz`\
+https://nytimes.com/live/2025/11/27/us/national-guard-shooting-dc/the-dc-shooting-suspect-had-worked-with-cia-backed-units-in-afghanistan
+
 **Thomas appointed INEOS director of racing**\
 `The former Tour de France winner spent over two decades in the World Tour peloton before finishing his career at the 2025 Tour of Britain. `\
 https://nytimes.com/athletic/6842329/2025/11/27/geraint-thomas-ineos-cycling/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6840498/2025/11/27/this-week-in-sports-trivia-novem
 **A gripping situation: 49ers' Brock Purdy won't wear glove in stormy Cleveland**\
 `Purdy, who has struggled in rain games, faces two forces of nature Sunday: Myles Garrett and a November storm.`\
 https://nytimes.com/athletic/6841068/2025/11/27/brock-purdy-weather-rain-snow-49ers-browns/
-
-**How the Dakota schools cornered the market for FCS dominance**\
-`For the first time in their FCS history, all four Missouri Valley schools from North and South Dakota made the 24-team playoff field.`\
-https://nytimes.com/athletic/6840277/2025/11/27/north-south-dakota-state-fcs-championships/
 
