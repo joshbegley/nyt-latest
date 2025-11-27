@@ -1,3 +1,11 @@
+**France Creates Voluntary Military Service as Europe Faces Russian Threat**\
+`The effort is aimed at young people and came after an army chief angered many by saying the country must accept the possible loss of children in a future war.`\
+https://nytimes.com/2025/11/27/world/europe/france-military-service.html
+
+**The British Public Think Immigration is Up. It’s Actually Down, Sharply.**\
+`Net migration to Britain has fallen by almost 80 percent from its 2023 peak, according to data released on Thursday.`\
+https://nytimes.com/2025/11/27/world/europe/uk-immigration-statistics.html
+
 **Extreme Measures for the Fentanyl Crisis**\
 `Readers respond to a guest essay about America’s fentanyl problem. Also: A dark echo at Penn.`\
 https://nytimes.com/2025/11/27/opinion/fentanyl-drugs-trump.html
