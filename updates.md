@@ -1,3 +1,11 @@
+**LeBron James, Darius Garland among NBA stars leading Thanksgiving drives**\
+`From turkey drives to youth feasts, NBA players made a visible impact this holiday week.`\
+https://nytimes.com/athletic/6840555/2025/11/26/nba-stars-leading-thanksgiving-drives-lebron-james-darius-garland/
+
+**What We Know About the Shooting of National Guard Troops**\
+`Two National Guard members are in critical condition after a man shot them near the White House on the eve of Thanksgiving.`\
+https://nytimes.com/2025/11/26/us/national-guard-dc-shooting-suspect.html
+
 **Before the Shooting, Some Troops and Officials Worried About the Guard’s Safety**\
 `In an internal memo, Guard commanders warned that troops were in a “heightened threat environment.”`\
 https://nytimes.com/2025/11/26/us/guard-troops-officials-worried-safety.html

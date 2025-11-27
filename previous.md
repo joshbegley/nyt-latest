@@ -1,3 +1,11 @@
+**LeBron James, Darius Garland among NBA stars leading Thanksgiving drives**\
+`From turkey drives to youth feasts, NBA players made a visible impact this holiday week.`\
+https://nytimes.com/athletic/6840555/2025/11/26/nba-stars-leading-thanksgiving-drives-lebron-james-darius-garland/
+
+**What We Know About the Shooting of National Guard Troops**\
+`Two National Guard members are in critical condition after a man shot them near the White House on the eve of Thanksgiving.`\
+https://nytimes.com/2025/11/26/us/national-guard-dc-shooting-suspect.html
+
 **Before the Shooting, Some Troops and Officials Worried About the Guard’s Safety**\
 `In an internal memo, Guard commanders warned that troops were in a “heightened threat environment.”`\
 https://nytimes.com/2025/11/26/us/guard-troops-officials-worried-safety.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/26/world/asia/arrests-hong-kong-fire-manslaughter.ht
 **Rams' Ahkello Witherspoon returns to practice as Roger McCreary goes on IR**\
 `Witherspoon's return creates a good problem for the Rams at outside cornerback.`\
 https://nytimes.com/athletic/6841364/2025/11/26/rams-ahkello-witherspoon-returns-ir/
-
-**Leaked Transcript of Witkoff Call Shows U.S. Deference to Russia**\
-`The White House envoy’s conversation suggests that President Trump is determined to make a deal to end the war in Ukraine, even if it is mostly on Russia’s terms.`\
-https://nytimes.com/2025/11/26/us/politics/witkoff-leaked-transcript-deference-russia.html
-
-**In signing Dylan Cease, Blue Jays pay heavy price for oft-inconsistent starter**\
-`With Cease, Toronto is getting durability, and perhaps the Blue Jays think they can unlock some untapped potential that the Padres couldn't.`\
-https://nytimes.com/athletic/6841245/2025/11/26/blue-jays-dylan-cease-signing-analysis/
 
