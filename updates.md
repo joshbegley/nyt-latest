@@ -1,3 +1,7 @@
+**Valerenga player cleared of doping violation after ingesting rubber from artificial pitch**\
+`An investigation found that the rubber crumb from an artificial pitch contained the banned substance 1,3-dimethylbutylamine (DMBA).`\
+https://nytimes.com/athletic/6840546/2025/11/27/valerenga-anti-doping-rubber-crumb/
+
 **Explained: The trap that caught McLaren in Las Vegas F1 double disqualification**\
 `The reason for McLaren's double disqualification in the 2025 Las Vegas GP has come to light in the Qatar GP paddock`\
 https://nytimes.com/athletic/6842972/2025/11/27/explained-trap-mclaren-las-vegas-f1-double-disqualification/
