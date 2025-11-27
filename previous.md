@@ -1,5 +1,5 @@
 **ABBA’s Popular Hologram Show Could Come to New York City**\
-`ABBA Voyage, the popular London, show features holograph versions of the Swedish pop band when they were decades younger.`\
+`ABBA Voyage, the popular London show, features holograph versions of the Swedish pop band when they were decades younger.`\
 https://nytimes.com/2025/11/27/nyregion/abba-voyage-nyc.html
 
 **Spelling Bee Forum**\
