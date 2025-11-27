@@ -1,3 +1,11 @@
+**Labubu and KPop Demon Hunters Join Macy’s Thanksgiving Day Parade**\
+`Crowds in New York City bundled up to take in the latest version of a tradition that has run for nearly a century.`\
+https://nytimes.com/2025/11/27/nyregion/macys-thanksgiving-day-parade.html
+
+**Champions League projections: Arsenal's grip strengthens as Liverpool prospects fade**\
+`Our Opta-powered projections still have Bayern as second favourites to land the trophy in May, followed by reigning champions PSG`\
+https://nytimes.com/athletic/6842201/2025/11/27/champions-league-projections-md5-results/
+
 **France Creates Voluntary Military Service as Europe Faces Russian Threat**\
 `The effort is aimed at young people and came after an army chief angered many by saying the country must accept the possible loss of children in a future war.`\
 https://nytimes.com/2025/11/27/world/europe/france-military-service.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6842470/2025/11/27/maryland-vs-hofstra-stream-how-t
 **How to watch TCU vs. Florida men's basketball: Time, TV, streaming**\
 `Find out how to watch the TCU Horned Frogs play the Florida Gators, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6842468/2025/11/27/tcu-vs-florida-stream-how-to-watch-nov-27/
-
-**Images From the Deadly High-Rise Fire in Hong Kong**\
-`The blaze tore through an apartment complex, killing at least 55 people. Dozens more are believed to be missing in what remains of the buildings.`\
-https://nytimes.com/2025/11/27/world/asia/hongkong-fire-photos.html
-
-**Pope Leo Visits Turkey on His First Trip as Pontiff**\
-`The pope started his six-day trip, which will also include a visit to Lebanon.`\
-https://nytimes.com/2025/11/27/world/europe/pope-leo-trip-pictures.html
 
