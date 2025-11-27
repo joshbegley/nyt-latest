@@ -1,3 +1,7 @@
+**Tottenham's entertaining defeat at PSG offers Frank an attacking blueprint**\
+`After the dour defeat against Arsenal, Spurs' head coach selected a more adventurous line-up and was rewarded, even in defeat at PSG`\
+https://nytimes.com/athletic/6841359/2025/11/27/tottenham-psg-thomas-frank/
+
 **Arsenal's squad depth is a frightening prospect for their rivals**\
 `Mikel Arteta was able to turn to his bench to defeat Bayern Munich – when you have a winning team, everyone wants to be part of it`\
 https://nytimes.com/athletic/6841516/2025/11/27/arsenal-squad-depth-bayern-champions-league/

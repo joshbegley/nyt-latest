@@ -1,3 +1,7 @@
+**Tottenham's entertaining defeat at PSG offers Frank an attacking blueprint**\
+`After the dour defeat against Arsenal, Spurs' head coach selected a more adventurous line-up and was rewarded, even in defeat at PSG`\
+https://nytimes.com/athletic/6841359/2025/11/27/tottenham-psg-thomas-frank/
+
 **Arsenal's squad depth is a frightening prospect for their rivals**\
 `Mikel Arteta was able to turn to his bench to defeat Bayern Munich – when you have a winning team, everyone wants to be part of it`\
 https://nytimes.com/athletic/6841516/2025/11/27/arsenal-squad-depth-bayern-champions-league/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6841681/2025/11/27/michigan-gonzaga-players-era-fes
 **FPL: The best replacements for your AFCON departures**\
 `Following on from our previous article, we break down the best replacements as well as the players who might benefit most once AFCON starts`\
 https://nytimes.com/athletic/6837664/2025/11/27/fantasy-premier-league-fpl-afcon-salah-mbeumo/
-
-**Trump Administration Pauses Immigration From Afghanistan After D.C. Shooting**\
-`The U.S. agency overseeing immigration made the announcement after an Afghan man shot two National Guard troops near the White House.`\
-https://nytimes.com/2025/11/27/us/trump-immigration-pause-afghanistan.html
 
