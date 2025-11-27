@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By Hamed Aleaziz, Campbell Robertson, Elian Peltier and Jin Yu Young`\
+https://nytimes.com/live/2025/11/27/us/national-guard-shooting-dc/heres-the-latest
+
+**Live Updates: 2 National Guard Members in Critical Condition After D.C. Shooting**\
+`The suspect, an Afghan man who entered the United States in 2021, was arrested after the shooting near the White House. President Trump halted immigration applications from Afghanistan.`\
+https://nytimes.com/live/2025/11/27/us/national-guard-shooting-dc
+
 **How to watch North Carolina vs. South Dakota State women's basketball: Time, TV, streaming**\
 `Find out how to watch the North Carolina Tar Heels play the South Dakota State Jackrabbits, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6842095/2025/11/27/north-carolina-vs-south-dakota-state-stream-how-to-watch-nov-27/

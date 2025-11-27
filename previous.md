@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By Hamed Aleaziz, Campbell Robertson, Elian Peltier and Jin Yu Young`\
+https://nytimes.com/live/2025/11/27/us/national-guard-shooting-dc/heres-the-latest
+
+**Live Updates: 2 National Guard Members in Critical Condition After D.C. Shooting**\
+`The suspect, an Afghan man who entered the United States in 2021, was arrested after the shooting near the White House. President Trump halted immigration applications from Afghanistan.`\
+https://nytimes.com/live/2025/11/27/us/national-guard-shooting-dc
+
 **How to watch North Carolina vs. South Dakota State women's basketball: Time, TV, streaming**\
 `Find out how to watch the North Carolina Tar Heels play the South Dakota State Jackrabbits, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6842095/2025/11/27/north-carolina-vs-south-dakota-state-stream-how-to-watch-nov-27/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/27/opinion/trump-kelly-hegseth-duffy-turkey.html
 **‘Blossoms Shanghai’ Review: In the Mood for Commerce**\
 `Wong Kar-wai’s first TV series, streaming on the Criterion Channel, is a lush melodrama about an economic miracle.`\
 https://nytimes.com/2025/11/27/arts/television/blossoms-shanghai-review.html
-
-**The New York Times News Quiz, Nov. 27, 2025**\
-`This week, instead of our usual news quiz, The Morning team has put together a food quiz to celebrate the holiday. Happy Thanksgiving!`\
-https://nytimes.com/interactive/2025/11/27/briefing/quiz-trump-thanksgiving-turkey.html
-
-**5 Years After His Death, John Prine Gets a Cinematic Send-Off**\
-`The singer and songwriter died in April 2020 of Covid-19, delaying proper tributes. Now he is the subject of a new documentary, “You Got Gold.”`\
-https://nytimes.com/2025/11/27/arts/music/john-prine-documentary-you-got-gold.html
 
