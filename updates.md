@@ -1,3 +1,11 @@
+**Intelligence on U.S. Military’s Boat Strikes Is Limited**\
+`The U.S. military has killed more than 80 people since the campaign began in early September. But it does not know who specifically is being killed.`\
+https://nytimes.com/2025/11/27/us/politics/us-military-boat-strikes.html
+
+**Robert A.M. Stern, Architect Who Reinvented Prewar Splendor, Dies at 86**\
+`He designed museums, schools and libraries before winning international acclaim late in life for 15 Central Park West in Manhattan, hailed as a rebirth of the luxury apartment building.`\
+https://nytimes.com/2025/11/27/arts/design/robert-am-stern-dead.html
+
 **Hong Kong Residents Reel From Deadliest Fire in Decades**\
 `Dozens were killed in a fire that engulfed several apartment buildings in Hong Kong. Firefighters were still battling the blaze on Thursday, and dozens of people were still missing.`\
 https://nytimes.com/video/world/asia/100000010551811/hong-kong-deadliest-fire-in-decades-residents.html
