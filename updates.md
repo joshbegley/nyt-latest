@@ -1,3 +1,7 @@
+**Russia Labels Navalny’s Anti-Corruption Group as Terrorist Organization**\
+`A legal assault against the opposition leader’s movement has deepened since his death in prison last year.`\
+https://nytimes.com/2025/11/27/world/europe/russia-navalny-terrorist.html
+
 **Rocket Attack on Iraqi Gas Field Cuts Power to Most of Kurdistan**\
 `The strike is the latest in a string of attacks on energy infrastructure in Iraq’s northern Kurdish region, which some regional authorities have privately blamed on Iran-affiliated militias.`\
 https://nytimes.com/2025/11/27/world/middleeast/rocket-attack-iraq-power-kurdistan.html
