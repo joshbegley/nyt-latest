@@ -1,3 +1,7 @@
+**Rams' Ahkello Witherspoon returns to practice as Roger McCreary goes on IR**\
+`Witherspoon's return adds a good problem to have for the Rams at outside cornerback.`\
+https://nytimes.com/athletic/6841364/2025/11/26/rams-ahkello-witherspoon-returns-ir/
+
 **Leaked Transcript of Witkoff Call Shows U.S. Deference to Russia**\
 `The White House envoy’s conversation suggests that President Trump is determined to make a deal to end the war in Ukraine, even if it is mostly on Russia’s terms.`\
 https://nytimes.com/2025/11/26/us/politics/witkoff-leaked-transcript-deference-russia.html
@@ -33,8 +37,4 @@ https://nytimes.com/paidpost/athletic/mubadala/pushing-the-limits.html
 **Blue Jays, Dylan Cease agree to 7-year, $210M contract: Sources**\
 `With Max Scherzer and Chris Bassitt coming off the books, the Jays entered the winter looking to add a top starter.`\
 https://nytimes.com/athletic/6801828/2025/11/26/toronto-blue-jays-dylan-cease-free-agent-signing-sources/
-
-**Raiders' Geno Smith apologizes for flipping off fans**\
-`It's the second time this season Smith has flipped off fans.`\
-https://nytimes.com/athletic/6841108/2025/11/26/geno-smith-apologizes-raiders-fans/
 

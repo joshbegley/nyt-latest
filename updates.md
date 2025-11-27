@@ -1,3 +1,7 @@
+**Rams' Ahkello Witherspoon returns to practice as Roger McCreary goes on IR**\
+`Witherspoon's return adds a good problem to have for the Rams at outside cornerback.`\
+https://nytimes.com/athletic/6841364/2025/11/26/rams-ahkello-witherspoon-returns-ir/
+
 **Leaked Transcript of Witkoff Call Shows U.S. Deference to Russia**\
 `The White House envoy’s conversation suggests that President Trump is determined to make a deal to end the war in Ukraine, even if it is mostly on Russia’s terms.`\
 https://nytimes.com/2025/11/26/us/politics/witkoff-leaked-transcript-deference-russia.html
