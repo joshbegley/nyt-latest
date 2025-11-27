@@ -1,3 +1,15 @@
+**Canada Lifts Laws to Allow Alberta Oil Pipeline, Turning From Climate Focus**\
+`Prime Minister Mark Carney reached a tentative deal with the province as part of his program to curb the country’s economic dependence on the United States.`\
+https://nytimes.com/2025/11/27/world/canada/alberta-oil-pipeline-climate-change.html
+
+**The Blue Jays are betting big on Dylan Cease — their pitching history shows why**\
+`Like José Berríos, Chris Bassitt and Kevin Gausman before, Cease’s top trait is consistently taking the ball.`\
+https://nytimes.com/athletic/6843558/2025/11/27/blue-jays-dylan-cease-pitching-history/
+
+**Is Craig Berube ready to make more changes to the Leafs lineup?**\
+`Berube might look to continue scratching Maple Leafs players who have been regulars in the lineup to "put a little more fire in them."`\
+https://nytimes.com/athletic/6843459/2025/11/27/maple-leafs-lineup-craig-berube-max-domi/
+
 **Louvre to Raise Ticket Prices for Americans and Some Other Foreigners**\
 `From Jan. 14, visitors to the museum from outside the European Economic Area will pay 45 percent more for entry to help finance its ambitious renovation plan.`\
 https://nytimes.com/2025/11/27/world/europe/louvre-higher-ticket-prices.html
