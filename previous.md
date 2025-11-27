@@ -1,5 +1,9 @@
-**Pope Departs on First Foreign Trip**\
-`Leo XIV arrived in Ankara, Turkey, for the opening leg of a trip that will also take in Lebanon.`\
+**Chelsea dealt Earls Court blow as council approves development plan**\
+`The empty land at Earls Court has long been mooted as a potential site for a new stadium for Chelsea.`\
+https://nytimes.com/athletic/6839584/2025/11/27/chelsea-stadium-earls-court-stamford-bridge/
+
+**Pope Lands in Turkey, Planning to Meet Erdogan With a Message of Outreach**\
+`Leo XIV arrived in the country’s capital, Ankara, and will be received by President Recep Tayyip Erdogan on the opening leg of a trip that will also take in Lebanon.`\
 https://nytimes.com/2025/11/27/world/middleeast/pope-first-foreign-trip-turkey-erdogan.html
 
 **ABBA’s Popular Hologram Show Could Come to New York City**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6841516/2025/11/27/arsenal-squad-depth-bayern-champ
 **Jimmy Fallon Gets Into the Spirit of ‘Drinksgiving’**\
 `“’Twas the night before Thanksgiving, and in your parents’ house, they put the Peloton in your old bedroom, so you’re sleeping on the couch,” Fallon mused.`\
 https://nytimes.com/2025/11/27/arts/television/jimmy-fallon-thanksgiving-drinksgiving.html
-
-**Warriors star Stephe Curry exits with right quad contusion, will get MRI**\
-`Curry stayed in the game before heading to the locker room to get checked out during a timeout called in the final seconds.`\
-https://nytimes.com/athletic/6841789/2025/11/27/steph-curry-warriors-rockets-right-quad-contusion-mri/
 
