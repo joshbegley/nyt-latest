@@ -1,4 +1,4 @@
-**Packers-Lions takeaways: Love, Wicks lead Green Bay to 31-24 divisional win**\
+**Packers-Lions takeaways: Love, Wicks lead Green Bay to key divisional win**\
 `Detroit lost star receiver Amon-Ra St. Brown in the first quarter to a knee injury. `\
 https://nytimes.com/athletic/6843093/2025/11/27/packers-vs-lions-takeaways-result-score-thanksgiving-day-game/
 
