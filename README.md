@@ -1,3 +1,7 @@
+**Newcastle to report ‘disproportionate’ force from Marseille police**\
+`The Tyneside club say their fans were "indiscriminately assaulted" after the 2-1 loss to the Ligue 1 side. `\
+https://nytimes.com/athletic/6842114/2025/11/27/newcastle-marseille-police-fans/
+
 **‘No Alarm Went Off’: Hong Kong Fire Survivor Recounts Harrowing Escape**\
 `Many windows were covered, preventing residents from seeing the fire and smoke, one survivor said.`\
 https://nytimes.com/2025/11/27/world/asia/hong-kong-fire-survivors-escape.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6841582/2025/11/27/blue-jackets-maple-leafs-overtim
 **Why this Blackhawks losing streak feels different than the 56 that preceded it**\
 `Chicago has showed a lot of growth this season, even when its not winning.`\
 https://nytimes.com/athletic/6841748/2025/11/27/blackhawks-losing-streak-different/
-
-**Todd McLellan is still waiting for the Red Wings to learn their lesson**\
-`Detroit dropped a home game to the last-place Predators Wednesday, leaving coach Todd McLellan repeating himself.`\
-https://nytimes.com/athletic/6841583/2025/11/27/todd-mclellan-red-wings-defense/
 
