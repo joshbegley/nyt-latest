@@ -1,3 +1,7 @@
+**AFC North Whiparound: What can keep the Ravens from winning the division?**\
+`Also, Thanksgiving complaints, each team's most telling stat and predictions as the Ravens and Bengals get things started.`\
+https://nytimes.com/athletic/6840521/2025/11/27/afc-north-whiparound-ravens-steelers-bengals-browns-week-13/
+
 **Labubu and KPop Demon Hunters Join Macy’s Thanksgiving Day Parade**\
 `Crowds in New York City bundled up to take in the latest version of a tradition that has run for nearly a century.`\
 https://nytimes.com/2025/11/27/nyregion/macys-thanksgiving-day-parade.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6842379/2025/11/27/maui-invitational-results-highli
 **How to watch Maryland vs. Hofstra women's basketball: Time, TV, streaming**\
 `Find out how to watch the Maryland Terrapins play the Hofstra Pride, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6842470/2025/11/27/maryland-vs-hofstra-stream-how-to-watch-nov-27/
-
-**How to watch TCU vs. Florida men's basketball: Time, TV, streaming**\
-`Find out how to watch the TCU Horned Frogs play the Florida Gators, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6842468/2025/11/27/tcu-vs-florida-stream-how-to-watch-nov-27/
 
