@@ -1,3 +1,11 @@
+**Travis Head, Australia's new Ashes hero and the magic of the moustache**\
+`England were put to the sword by the makeshift opener in Perth, but they have suffered at the hands of moustachioed Australians before`\
+https://nytimes.com/athletic/6830866/2025/11/27/travis-head-australia-ashes-hero-moustache/
+
+**Michigan wins Players Era Festival title in blowout win over Gonzaga**\
+`Michigan so thoroughly dominated the Zags that in the second half, they were attempting Harlem Globetrotters-esque reverse dunks.`\
+https://nytimes.com/athletic/6841681/2025/11/27/michigan-gonzaga-players-era-festival-title/
+
 **FPL: The best replacements for your AFCON departures**\
 `Following on from our previous article, we break down the best replacements as well as the players who might benefit most once AFCON starts`\
 https://nytimes.com/athletic/6837664/2025/11/27/fantasy-premier-league-fpl-afcon-salah-mbeumo/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6837555/2025/11/27/aston-villa-portugal-premier-lea
 **Heading to the Mideast, Pope Leo May Show ‘Who He Really Is’**\
 `The pontiff begins a trip to Turkey and Lebanon on Thursday — the first foreign voyage of his papacy, and his biggest test yet.`\
 https://nytimes.com/2025/11/27/world/middleeast/pope-leo-trip.html
-
-**Can Joseph Woll help the Maple Leafs turn their season around?**\
-`Woll was the deciding factor in earning two points to start the Leafs' longest road trip of the season.`\
-https://nytimes.com/athletic/6841648/2025/11/27/maple-leafs-joseph-woll-blue-jackets/
-
-**Connections: Sports Edition Coach: Hints for Nov. 27, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6841692/2025/11/27/connections-sports-edition-hints-for-nov-27-2025/
 

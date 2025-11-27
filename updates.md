@@ -1,3 +1,11 @@
+**Travis Head, Australia's new Ashes hero and the magic of the moustache**\
+`England were put to the sword by the makeshift opener in Perth, but they have suffered at the hands of moustachioed Australians before`\
+https://nytimes.com/athletic/6830866/2025/11/27/travis-head-australia-ashes-hero-moustache/
+
+**Michigan wins Players Era Festival title in blowout win over Gonzaga**\
+`Michigan so thoroughly dominated the Zags that in the second half, they were attempting Harlem Globetrotters-esque reverse dunks.`\
+https://nytimes.com/athletic/6841681/2025/11/27/michigan-gonzaga-players-era-festival-title/
+
 **FPL: The best replacements for your AFCON departures**\
 `Following on from our previous article, we break down the best replacements as well as the players who might benefit most once AFCON starts`\
 https://nytimes.com/athletic/6837664/2025/11/27/fantasy-premier-league-fpl-afcon-salah-mbeumo/
