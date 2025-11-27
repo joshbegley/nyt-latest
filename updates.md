@@ -1,3 +1,11 @@
+**Labubu and KPop Demon Hunters Join Macy’s Thanksgiving Day Parade**\
+`Crowds in New York City bundled up to take in the latest version of a tradition that has run for nearly a century.`\
+https://nytimes.com/2025/11/27/nyregion/macys-thanksgiving-day-parade.html
+
+**Champions League projections: Arsenal's grip strengthens as Liverpool prospects fade**\
+`Our Opta-powered projections still have Bayern as second favourites to land the trophy in May, followed by reigning champions PSG`\
+https://nytimes.com/athletic/6842201/2025/11/27/champions-league-projections-md5-results/
+
 **The British Public Thinks Immigration Is Up. It’s Actually Down, Sharply.**\
 `Net migration to Britain has fallen by almost 80 percent from its 2023 peak, according to data released on Thursday.`\
 https://nytimes.com/2025/11/27/world/europe/uk-immigration-statistics.html
