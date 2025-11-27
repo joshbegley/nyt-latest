@@ -1,3 +1,11 @@
+**U.S. Reviews Biden Asylum Cases After Shooting**\
+`A Homeland Security Department spokeswoman accused the previous administration of failing to vet asylum applicants “on a massive scale.”`\
+https://nytimes.com/2025/11/27/us/politics/biden-asylum-cases-shooting.html
+
+**Guinea-Bissau Installs Military Ruler After Claims of a ‘Fabricated’ Coup**\
+`The opposition has accused the president of putting a general in charge of the government so that he could stay in power.`\
+https://nytimes.com/2025/11/27/world/africa/guinea-bissau-coup.html
+
 **Valerenga player cleared of doping violation after ingesting rubber from artificial pitch**\
 `An investigation found that the rubber crumb from an artificial pitch contained the banned substance 1,3-dimethylbutylamine (DMBA).`\
 https://nytimes.com/athletic/6840546/2025/11/27/valerenga-anti-doping-rubber-crumb/
