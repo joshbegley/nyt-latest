@@ -8,7 +8,7 @@ https://nytimes.com/2025/11/27/world/asia/hong-kong-fire-volunteers-aid-help-don
 
 **Hong Kong’s Worst Fire in Generations Fuels Scrutiny of Safety Lapses**\
 `The authorities said flammable netting and foam boards may have fueled the city’s deadliest blaze in nearly 70 years, killing 55 and prompting arrests.`\
-https://nytimes.com/live/2025/11/27/world/hong-kong-fire/hong-kongs-worst-fire-in-generations-fuels-scrutiny-of-safety-lapses
+https://nytimes.com/2025/11/27/world/asia/hong-kongs-worst-fire-in-generations-fuels-scrutiny-of-safety-lapses.html
 
 **How Kansas QB Jalon Daniels is living up to a deal he made with his mom**\
 `The sixth-year quarterback started a nonprofit foundation to empower single mothers and honor his upbringing. `\
