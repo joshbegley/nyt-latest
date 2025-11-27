@@ -1,3 +1,7 @@
+**Campbell’s Says Executive Accused of Offensive Remarks Has Left the Company**\
+`The comments came to light after an audiotape was released, tied to a lawsuit filed by a former employee.`\
+https://nytimes.com/2025/11/26/business/campbells-executive-insulting-audio.html
+
 **LSU terminates Brian Kelly without cause, clearing way for full buyout**\
 `Last Friday, LSU's board voted to allow new school president Wade Rousse to formally terminate Kelly.`\
 https://nytimes.com/athletic/6841191/2025/11/26/lsu-formally-terminates-brian-kelly-without-cause/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6837639/2025/11/26/broncos-alex-singleton-return-ca
 **There have been numerous instances of violence near the White House over the years.**\
 `By Soumya Karlamangla`\
 https://nytimes.com/live/2025/11/26/us/national-guard-shooting-dc/there-have-been-numerous-instances-of-violence-near-the-white-house-over-the-years
-
-**Two National Guard Members Shot Near White House**\
-`Two members of the West Virginia National Guard were in critical condition after being shot near the White House on Wednesday. Officials said the gunman was in custody and appeared to have acted alone.`\
-https://nytimes.com/video/us/100000010550901/national-guard-shooting-white-house.html
 
