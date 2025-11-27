@@ -1,3 +1,11 @@
+**How to watch North Carolina vs. South Dakota State women's basketball: Time, TV, streaming**\
+`Find out how to watch the North Carolina Tar Heels play the South Dakota State Jackrabbits, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6842095/2025/11/27/north-carolina-vs-south-dakota-state-stream-how-to-watch-nov-27/
+
+**How to watch Vanderbilt vs. VCU men's basketball: Time, TV, streaming**\
+`Find out how to watch the Vanderbilt Commodores play the VCU Rams, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6842093/2025/11/27/vanderbilt-vs-vcu-stream-how-to-watch-nov-27/
+
 **How Europe Lost Its Voice on Ukraine, Then Tried to Get It Back**\
 `European leaders were blindsided by President Trump’s 28-point-plan to end the Ukraine war, setting off a dash for influence.`\
 https://nytimes.com/2025/11/27/world/europe/europe-ukraine-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2025/11/27/briefing/quiz-trump-thanksgiving-turk
 **5 Years After His Death, John Prine Gets a Cinematic Send-Off**\
 `The singer and songwriter died in April 2020 of Covid-19, delaying proper tributes. Now he is the subject of a new documentary, “You Got Gold.”`\
 https://nytimes.com/2025/11/27/arts/music/john-prine-documentary-you-got-gold.html
-
-**This Year, the Billionaires Give Thanks for Trump**\
-`This year, it’s not about giving back; it’s about getting yours.`\
-https://nytimes.com/2025/11/27/opinion/culture/trump-billionaires-thanksgiving.html
-
-**Irresistible Deals Put Them in Debt. Now They’re Trying to Manage Their Overspending.**\
-`The convenience of one-click purchases and “buy now, pay later” loans is making it easier for people to shop — and shop and shop — during the holidays.`\
-https://nytimes.com/2025/11/27/business/black-friday-shopping-debt.html
 
