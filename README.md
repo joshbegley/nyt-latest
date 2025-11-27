@@ -19,7 +19,7 @@ https://nytimes.com/athletic/6841880/2025/11/27/giants-vs-patriots-stream-how-to
 https://nytimes.com/live/2025/11/27/world/hong-kong-fire/heres-the-latest
 
 **Live Updates: Death Toll From Hong Kong Apartment Fire Rises to 55**\
-`Firefighters were still trying to fully extinguish the blaze, a day after it engulfed several towers in the complex. More than 270 people were still missing.`\
+`Firefighters were still trying to fully extinguish the blaze, a day after it engulfed several towers in the complex. Many people were still trapped in the buildings.`\
 https://nytimes.com/live/2025/11/27/world/hong-kong-fire
 
 **Arsenal's squad depth is a frightening prospect for their rivals**\

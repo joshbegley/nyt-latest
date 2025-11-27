@@ -1,3 +1,19 @@
+**ABBA’s Popular Hologram Show Could Come to New York City**\
+`ABBA Voyage, the popular London, show features holograph versions of the Swedish pop band when they were decades younger.`\
+https://nytimes.com/2025/11/27/nyregion/abba-voyage-nyc.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/11/27/crosswords/spelling-bee-forum.html
+
+**Here’s the latest.**\
+`By Joy Dong, Alexandra Stevenson and Keith Bradsher`\
+https://nytimes.com/live/2025/11/27/world/hong-kong-fire/heres-the-latest
+
+**Live Updates: Death Toll From Hong Kong Apartment Fire Rises to 55**\
+`Firefighters were still trying to fully extinguish the blaze, a day after it engulfed several towers in the complex. More than 270 people were still missing.`\
+https://nytimes.com/live/2025/11/27/world/hong-kong-fire
+
 **If You’re Reading This on Thanksgiving, It’s Not Too Late**\
 `Last-minute holiday recipes for side dishes and desserts, and a few ideas for tomorrow.`\
 https://nytimes.com/2025/11/27/dining/if-youre-reading-this-on-thanksgiving-its-not-too-late.html
