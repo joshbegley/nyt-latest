@@ -1,3 +1,7 @@
+**A Bunch of People Are Out of Town, Let’s Feast!**\
+`Four restaurants to check out before the holiday crowds descend in full force.`\
+https://nytimes.com/2025/11/27/dining/a-bunch-of-people-are-out-of-town-lets-feast.html
+
 **Giants QB Jaxson Dart clears concussion protocol ahead of Patriots game**\
 `Rookie QB missed the previous two games due to a concussion he suffered in the Giants' Week 10 loss to the Chicago Bears.`\
 https://nytimes.com/athletic/6836827/2025/11/27/ny-giants-qb-jaxson-dart-concussion-patriots/
