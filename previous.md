@@ -1,10 +1,18 @@
+**Cade Cunningham, Pistons see win streak snapped after clutch-time struggles**\
+`The Pistons were a bad bounce on a Cade Cunningham free throw away from 14 consecutive wins, but they remain hungry for more.`\
+https://nytimes.com/athletic/6841235/2025/11/26/pistons-celtics-winning-streak-snapped-nba/
+
+**Tread on Me!**\
+`Alexander Liebeskind goes back to his roots.`\
+https://nytimes.com/2025/11/26/crosswords/daily-puzzle-2025-11-27.html
+
 **What Is Operation Allies Welcome, the Program That Gave Some Afghans Entry to the U.S.?**\
 `The Biden administration set up the initiative after the Taliban retook power in Afghanistan in August 2021 for those who assisted U.S. troops.`\
 https://nytimes.com/2025/11/26/us/operation-allies-welcome-dc-shooting.html
 
-**Three people tied to a construction company were arrested on suspicion of manslaughter.**\
-`By Alexandra Stevenson`\
-https://nytimes.com/live/2025/11/26/world/hong-kong-fire/arrests-manslaughter
+**Hong Kong Arrests 3 Tied to Construction Company After Deadly Fire**\
+`The police said that building materials used by the company for the work at Wang Fuk Court may not have been up to fire safety standards. The police did not identify the company or who was arrested.`\
+https://nytimes.com/2025/11/26/world/asia/arrests-hong-kong-fire-manslaughter.html
 
 **Rams' Ahkello Witherspoon returns to practice as Roger McCreary goes on IR**\
 `Witherspoon's return creates a good problem for the Rams at outside cornerback.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6841191/2025/11/26/lsu-formally-terminates-brian-ke
 **Trump Orders 500 More National Guard Members to D.C. After Shooting**\
 `The deployment also follows a monthslong debate about the role of the National Guard in American cities.`\
 https://nytimes.com/2025/11/26/us/politics/trump-national-guard-dc-shooting.html
-
-**A Highway Is Crumbling. New York Can’t Agree on How to Fix It.**\
-`The Brooklyn-Queens Expressway has exceeded its life span. Clashing visions have hindered a solution.`\
-https://nytimes.com/interactive/2025/11/26/special-series/brooklyn-queens-expressway-new-york-highway.html
-
-**How to watch Maryland vs. Alabama men's basketball: Time, TV, streaming**\
-`Find out how to watch the Maryland Terrapins play the Alabama Crimson Tide, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6841207/2025/11/26/maryland-vs-alabama-stream-how-to-watch-nov-27/
 

@@ -1,3 +1,15 @@
+**Cade Cunningham, Pistons see win streak snapped after clutch-time struggles**\
+`The Pistons were a bad bounce on a Cade Cunningham free throw away from 14 consecutive wins, but they remain hungry for more.`\
+https://nytimes.com/athletic/6841235/2025/11/26/pistons-celtics-winning-streak-snapped-nba/
+
+**Tread on Me!**\
+`Alexander Liebeskind goes back to his roots.`\
+https://nytimes.com/2025/11/26/crosswords/daily-puzzle-2025-11-27.html
+
+**Hong Kong Arrests 3 Tied to Construction Company After Deadly Fire**\
+`The police said that building materials used by the company for the work at Wang Fuk Court may not have been up to fire safety standards. The police did not identify the company or who was arrested.`\
+https://nytimes.com/2025/11/26/world/asia/arrests-hong-kong-fire-manslaughter.html
+
 **What Is Operation Allies Welcome, the Program That Gave Some Afghans Entry to the U.S.?**\
 `The Biden administration set up the initiative after the Taliban retook power in Afghanistan in August 2021 for those who assisted U.S. troops.`\
 https://nytimes.com/2025/11/26/us/operation-allies-welcome-dc-shooting.html
