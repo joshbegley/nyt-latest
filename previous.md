@@ -1,3 +1,11 @@
+**Why Is the U.S. Threatening Venezuela?**\
+`Venezuela doesn’t play a large role in the drug trade to the United States, so what is motivating the massive military buildup? Julian E. Barnes, who reports on intelligence and international security, discusses the issues with our senior writer Katrin Bennhold.`\
+https://nytimes.com/video/world/americas/100000010549651/trump-venezuela-pressure-campaign.html
+
+**Atletico Madrid fined €30,000 for racist behaviour by supporters**\
+`The incidents occurred during Atleti's 4-0 defeat in north London in the Champions League on October 21.`\
+https://nytimes.com/athletic/6843142/2025/11/27/atletico-madrid-fine-racism-uefa-arsenal/
+
 **Here’s What We Know About the National Guard Shooting Victims**\
 `The father of one of the West Virginia National Guard members said his daughter had a “mortal wound.” A man at the other member’s home asked for prayers for his son.`\
 https://nytimes.com/2025/11/27/us/national-guard-shooting-andrew-wolfe-sarah-beckstrom.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2025/11/27/us/earthquake-alaska-anchorage.html
 **The Nigerian Musician Championed by Zohran Mamdani**\
 `Our critic’s latest Song of the Week is by ODUMODUBLVCK, an artist who embodies the full spectrum of Nigerian Afrobeats.`\
 https://nytimes.com/video/podcasts/100000010544923/the-nigerian-musician-championed-by-zohran-mamdani.html
-
-**Pope Leo Visits Mideast on First Foreign Trip as Pontiff**\
-`Pope Leo XIV landed in Muslim-majority Turkey on Thursday, beginning the first international trip of his papacy. The voyage is aimed at promoting interfaith dialogue and cooperation between Christian groups.`\
-https://nytimes.com/video/world/middleeast/100000010551743/pope-leo-turkey-trip.html
-
-**Map: Small Quakes Shake Northern California on Thanksgiving Morning**\
-`View the location of the quake’s epicenter and shake area.`\
-https://nytimes.com/interactive/2025/11/27/us/earthquake-northern-california-tracker.html
 

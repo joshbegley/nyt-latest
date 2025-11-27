@@ -1,3 +1,11 @@
+**Why Is the U.S. Threatening Venezuela?**\
+`Venezuela doesn’t play a large role in the drug trade to the United States, so what is motivating the massive military buildup? Julian E. Barnes, who reports on intelligence and international security, discusses the issues with our senior writer Katrin Bennhold.`\
+https://nytimes.com/video/world/americas/100000010549651/trump-venezuela-pressure-campaign.html
+
+**Atletico Madrid fined €30,000 for racist behaviour by supporters**\
+`The incidents occurred during Atleti's 4-0 defeat in north London in the Champions League on October 21.`\
+https://nytimes.com/athletic/6843142/2025/11/27/atletico-madrid-fine-racism-uefa-arsenal/
+
 **Here’s What We Know About the National Guard Shooting Victims**\
 `The father of one of the West Virginia National Guard members said his daughter had a “mortal wound.” A man at the other member’s home asked for prayers for his son.`\
 https://nytimes.com/2025/11/27/us/national-guard-shooting-andrew-wolfe-sarah-beckstrom.html
