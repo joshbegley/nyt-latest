@@ -1,3 +1,7 @@
+**Two-time major champion golfer Fuzzy Zoeller dies at 74**\
+`Golfer saw his legacy tainted by a racially insensitive comment about Tiger Woods in 1997.`\
+https://nytimes.com/athletic/6843267/2025/11/27/fuzzy-zoeller-major-champion-dies/
+
 **How to watch Oregon State vs. Vanderbilt women's basketball: Time, TV, streaming**\
 `Find out how to watch the Oregon State Beavers play the Vanderbilt Commodores, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6843444/2025/11/27/oregon-state-vs-vanderbilt-stream-how-to-watch-nov-27/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6843336/2025/11/27/colts-daniel-jones-fibula-injury
 **Aston Villa-Young Boys halted after players struck with objects**\
 `The episode started following Donyell Malen's 27th-minute opening goal and escalted after he doubled Villa's lead.`\
 https://nytimes.com/athletic/6843272/2025/11/27/aston-villa-young-boys-europa-league-trouble-crowd/
-
-**Stephen Curry expected to miss at least a week with quad contusion: Source**\
-`Curry exited at the end of Wednesday's loss to the Rockets with the injury.`\
-https://nytimes.com/athletic/6843110/2025/11/27/warriors-steph-curry-injury-update/
 
