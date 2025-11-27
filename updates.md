@@ -1,3 +1,11 @@
+**Leaked Transcript of Witkoff Call Shows U.S. Deference to Russia**\
+`The White House envoy’s conversation suggests that President Trump is determined to make a deal to end the war in Ukraine, even if it is mostly on Russia’s terms.`\
+https://nytimes.com/2025/11/26/us/politics/witkoff-leaked-transcript-deference-russia.html
+
+**In signing Dylan Cease, Blue Jays pay heavy price for oft-inconsistent starter**\
+`With Cease, Toronto is getting durability, and perhaps the Blue Jays think they can unlock some untapped potential that the Padres couldn't.`\
+https://nytimes.com/athletic/6841245/2025/11/26/blue-jays-dylan-cease-signing-analysis/
+
 **Campbell’s Says Executive Accused of Offensive Remarks Has Left the Company**\
 `The comments came to light after an audiotape was released, tied to a lawsuit filed by a former employee.`\
 https://nytimes.com/2025/11/26/business/campbells-executive-insulting-audio.html
