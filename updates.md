@@ -1,4 +1,8 @@
 **Rams' Ahkello Witherspoon returns to practice as Roger McCreary goes on IR**\
+`Witherspoon's return creates a good problem for the Rams at outside cornerback.`\
+https://nytimes.com/athletic/6841364/2025/11/26/rams-ahkello-witherspoon-returns-ir/
+
+**Rams' Ahkello Witherspoon returns to practice as Roger McCreary goes on IR**\
 `Witherspoon's return adds a good problem to have for the Rams at outside cornerback.`\
 https://nytimes.com/athletic/6841364/2025/11/26/rams-ahkello-witherspoon-returns-ir/
 
