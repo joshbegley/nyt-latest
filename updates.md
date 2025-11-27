@@ -1,3 +1,11 @@
+**Giants fan selling Daniel Jones mega-collection as Colts resurgence brings some relief**\
+`So will the auction proceeds go toward Jaxson Dart rookie cards? `\
+https://nytimes.com/athletic/6841534/2025/11/27/daniel-jones-rookie-cards-auction/
+
+**Three things we learned from the Maui Invitational: USC wins, Seton Hall impresses**\
+`Chad Baker-Mazara’s shot-making and the Trojans’ wealth of length and depth shined throughout the tournament.`\
+https://nytimes.com/athletic/6842379/2025/11/27/maui-invitational-results-highlights-usc-seton-hall/
+
 **How to watch Maryland vs. Hofstra women's basketball: Time, TV, streaming**\
 `Find out how to watch the Maryland Terrapins play the Hofstra Pride, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6842470/2025/11/27/maryland-vs-hofstra-stream-how-to-watch-nov-27/
