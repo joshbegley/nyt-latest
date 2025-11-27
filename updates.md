@@ -1,3 +1,7 @@
+**UFC Hall of Famer Amanda Nunes to return at UFC 324 against Kayla Harrison**\
+`UFC 324 will be headlined by a matchup up of fan favorites Justin Gaethje and Paddy "The Baddy" Pimblett.`\
+https://nytimes.com/athletic/6841650/2025/11/27/amanda-nunes-ufc-return-paramount-kayla-harrison-justin-gaethje-paddy-pimblett/
+
 **The Uniquely American Heartbreak of Yet Another Shooting**\
 `The National Guard members shot in Washington are the latest victims of a political violence permeating our society.`\
 https://nytimes.com/2025/11/27/opinion/national-guard-shot-dc.html
