@@ -1,3 +1,7 @@
+**The D.C. shooting suspect had worked with C.I.A.-backed units in Afghanistan.**\
+`By Julian E. Barnes and Hamed Aleaziz`\
+https://nytimes.com/live/2025/11/27/us/national-guard-shooting-dc/the-dc-shooting-suspect-had-worked-with-cia-backed-units-in-afghanistan
+
 **Hong Kong’s Worst Fire in Generations Fuels Scrutiny of Safety Lapses**\
 `The authorities said flammable netting and foam boards may have fueled the city’s deadliest blaze in nearly 70 years, killing 55 and prompting arrests.`\
 https://nytimes.com/2025/11/27/world/asia/hong-kongs-worst-fire-in-generations-fuels-scrutiny-of-safety-lapses.html
