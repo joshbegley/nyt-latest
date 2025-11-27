@@ -1,3 +1,11 @@
+**How to watch Giants vs. Patriots: Time, TV, streaming**\
+`Find out how to watch the New York Giants play the New England Patriots, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6841880/2025/11/27/giants-vs-patriots-stream-how-to-watch-dec-1/
+
+**Warriors star Stephe Curry exits with right quad contusion, will get MRI**\
+`Curry stayed in the game before heading to the locker room to get checked out during a timeout called in the final seconds.`\
+https://nytimes.com/athletic/6841789/2025/11/27/steph-curry-warriors-rockets-right-quad-contusion-mri/
+
 **Here’s the latest.**\
 `By Alexandra Stevenson, Joy Dong and Keith Bradsher`\
 https://nytimes.com/live/2025/11/27/world/hong-kong-fire/heres-the-latest
