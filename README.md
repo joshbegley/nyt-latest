@@ -1,4 +1,4 @@
-**Map: Earthquake Shakes Alaska Near Anchorage**\
+**Map: 6.0-Magnitude Earthquake Shakes Alaska Near Anchorage**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/11/27/us/earthquake-alaska-anchorage.html
 
