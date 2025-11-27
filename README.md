@@ -1,3 +1,7 @@
+**The Uniquely American Heartbreak of Yet Another Shooting**\
+`The National Guard members shot in Washington are the latest victims of a political violence permeating our society.`\
+https://nytimes.com/2025/11/27/opinion/national-guard-shot-dc.html
+
 **Packers-Lions takeaways: Love, Wicks lead Green Bay to key divisional win**\
 `Detroit lost star receiver Amon-Ra St. Brown in the first quarter to a knee injury. `\
 https://nytimes.com/athletic/6843093/2025/11/27/packers-vs-lions-takeaways-result-score-thanksgiving-day-game/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/27/world/ai-valuations-markets-technology-hongkong-f
 **Ruth Thorne-Thomsen, Photographer of Dreamlike Tableaux, Dies at 82**\
 `Using a pinhole camera, she captured miniature landscapes that she had fashioned to resemble surreal versions of 19th-century travel photos.`\
 https://nytimes.com/2025/11/27/arts/ruth-thorne-thomsen-dead.html
-
-**A Bunch of People Are Out of Town, Let’s Feast!**\
-`Four restaurants to check out before the holiday crowds descend in full force.`\
-https://nytimes.com/2025/11/27/dining/a-bunch-of-people-are-out-of-town-lets-feast.html
 
