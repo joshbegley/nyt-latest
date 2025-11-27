@@ -1,3 +1,7 @@
+**Trump shuts the door to Afghans who face crises at home.**\
+`By Elian Peltier`\
+https://nytimes.com/live/2025/11/27/us/national-guard-shooting-dc/trump-shuts-the-door-to-afghans-who-face-crises-at-home
+
 **This Thanksgiving, Everything Is Going to Be All Right**\
 `A pep talk for the day.`\
 https://nytimes.com/2025/11/27/briefing/this-thanksgiving-everything-is-going-to-be-all-right.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6841527/2025/11/27/wild-rally-kaprizov-overtime-win
 `Jarry picked up right where he left off after returning from injury in Pittsburgh's 4-2 win over Buffalo.
 `\
 https://nytimes.com/athletic/6841585/2025/11/27/penguins-sabres-tristan-jarry-observations/
-
-**As Blue Jackets blow another lead, their margin for error is getting thinner**\
-`The Blue Jackets' propensity for blowing leads and throwing away valuable points has become the theme of the early season.`\
-https://nytimes.com/athletic/6841582/2025/11/27/blue-jackets-maple-leafs-overtime-loss/
 

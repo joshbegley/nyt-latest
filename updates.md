@@ -1,3 +1,12 @@
+**Trump shuts the door to Afghans who face crises at home.**\
+`By Elian Peltier`\
+https://nytimes.com/live/2025/11/27/us/national-guard-shooting-dc/trump-shuts-the-door-to-afghans-who-face-crises-at-home
+
+**Tristan Jarry's redemption tour resumes as Penguins hold off Sabres: 10 observations**\
+`Jarry picked up right where he left off after returning from injury in Pittsburgh's 4-2 win over Buffalo.
+`\
+https://nytimes.com/athletic/6841585/2025/11/27/penguins-sabres-tristan-jarry-observations/
+
 **Tristan Jarry's redemption tour resumes as Penguins hold off Sabres: 10 observations**\
 `Jarry picked up right where he left off after returning from injury in Pittsburgh's 4-2 win over Buffalo.
 `\
