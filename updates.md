@@ -1,3 +1,11 @@
+**Before the Shooting, Some Troops and Officials Worried About the Guard’s Safety**\
+`In an internal memo, Guard commanders warned that troops were in a “heightened threat environment.”`\
+https://nytimes.com/2025/11/26/us/guard-troops-officials-worried-safety.html
+
+**Cade Cunningham, Pistons see win streak snapped after clutch-time struggles**\
+`The Pistons were a bad bounce on a Cade Cunningham free throw from a chance to extend the streak to 14 straight and are hungry for more.`\
+https://nytimes.com/athletic/6841235/2025/11/26/pistons-celtics-winning-streak-snapped-nba/
+
 **The Giannis-less Bucks couldn't handle the surging Heat in Miami**\
 `With Antetokounmpo missing his fourth consecutive game, the Bucks tied their longest losing streak in a decade.`\
 https://nytimes.com/athletic/6841546/2025/11/26/bucks-heat-nba-cup-group-play-loss/
