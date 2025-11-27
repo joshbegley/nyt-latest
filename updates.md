@@ -1,3 +1,7 @@
+**If You’re Reading This on Thanksgiving, It’s Not Too Late**\
+`Last-minute holiday recipes for side dishes and desserts, and a few ideas for tomorrow.`\
+https://nytimes.com/2025/11/27/dining/if-youre-reading-this-on-thanksgiving-its-not-too-late.html
+
 **The New York Times in Print for Thursday, Nov. 27, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/11/27/todays-new-york-times
