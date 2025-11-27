@@ -2,8 +2,8 @@
 `The empty land at Earls Court has long been mooted as a potential site for a new stadium for Chelsea.`\
 https://nytimes.com/athletic/6839584/2025/11/27/chelsea-stadium-earls-court-stamford-bridge/
 
-**Pope Departs on First Foreign Trip**\
-`Leo XIV arrived in Ankara, Turkey, for the opening leg of a trip that will also take in Lebanon.`\
+**Pope Lands in Turkey, Planning to Meet Erdogan With a Message of Outreach**\
+`Leo XIV arrived in the country’s capital, Ankara, and will be received by President Recep Tayyip Erdogan on the opening leg of a trip that will also take in Lebanon.`\
 https://nytimes.com/2025/11/27/world/middleeast/pope-first-foreign-trip-turkey-erdogan.html
 
 **ABBA’s Popular Hologram Show Could Come to New York City**\
