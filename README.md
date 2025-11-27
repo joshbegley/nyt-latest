@@ -1,3 +1,7 @@
+**LSU terminates Brian Kelly without cause, clearing way for full buyout**\
+`Last Friday, LSU's board voted to allow new school president Wade Rousse to formally terminate Kelly.`\
+https://nytimes.com/athletic/6841191/2025/11/26/lsu-formally-terminates-brian-kelly-without-cause/
+
 **Trump Orders 500 More National Guard Members to D.C. After Shooting**\
 `The deployment also follows a monthslong debate about the role of the National Guard in American cities.`\
 https://nytimes.com/2025/11/26/us/politics/trump-national-guard-dc-shooting.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/11/26/us/national-guard-shooting-dc/there-have-bee
 **Two National Guard Members Shot Near White House**\
 `Two members of the West Virginia National Guard were in critical condition after being shot near the White House on Wednesday. Officials said the gunman was in custody and appeared to have acted alone.`\
 https://nytimes.com/video/us/100000010550901/national-guard-shooting-white-house.html
-
-**U.S. to Press Europe and Other Allies on ‘Mass Migration,’ Document Says**\
-`American diplomats were told to raise U.S. concerns about “violent crimes associated with people of a migration background.”`\
-https://nytimes.com/2025/11/26/us/politics/trump-rubio-mass-migration.html
 
