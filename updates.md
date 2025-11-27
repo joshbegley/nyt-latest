@@ -1,3 +1,15 @@
+**Jimmy Fallon Gets Into the Spirit of ‘Drinksgiving’**\
+`“’Twas the night before Thanksgiving, and in your parents’ house, they put the Peloton in your old bedroom, so you’re sleeping on the couch,” Fallon mused.`\
+https://nytimes.com/2025/11/27/arts/television/jimmy-fallon-thanksgiving-drinksgiving.html
+
+**Warriors star Steph Curry exits with right quad contusion, will get MRI**\
+`Curry stayed in the game until the waning moments.`\
+https://nytimes.com/athletic/6841789/2025/11/27/steph-curry-warriors-rockets-right-quad-contusion-mri/
+
+**Arne Slot and Liverpool. What next?**\
+`Liverpool look broken.`\
+https://nytimes.com/athletic/6841554/2025/11/27/arne-slot-liverpool-psv-eindhoven/
+
 **The New York Times in Print for Thursday, Nov. 27, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/11/27/todays-new-york-times

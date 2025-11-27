@@ -1,3 +1,15 @@
+**Jimmy Fallon Gets Into the Spirit of ‘Drinksgiving’**\
+`“’Twas the night before Thanksgiving, and in your parents’ house, they put the Peloton in your old bedroom, so you’re sleeping on the couch,” Fallon mused.`\
+https://nytimes.com/2025/11/27/arts/television/jimmy-fallon-thanksgiving-drinksgiving.html
+
+**Warriors star Steph Curry exits with right quad contusion, will get MRI**\
+`Curry stayed in the game until the waning moments.`\
+https://nytimes.com/athletic/6841789/2025/11/27/steph-curry-warriors-rockets-right-quad-contusion-mri/
+
+**Arne Slot and Liverpool. What next?**\
+`Liverpool look broken.`\
+https://nytimes.com/athletic/6841554/2025/11/27/arne-slot-liverpool-psv-eindhoven/
+
 **The New York Times in Print for Thursday, Nov. 27, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/11/27/todays-new-york-times
@@ -25,16 +37,4 @@ https://nytimes.com/2025/11/27/us/trump-immigration-pause-afghanistan.html
 **Could Mason Greenwood be going to the World Cup?**\
 `The Marseille forward is the top scorer in France, impressing in the Champions League, has England ambitions and is wanted by Jamaica`\
 https://nytimes.com/athletic/6839845/2025/11/27/mason-greenwood-jamaica-england-world-cup/
-
-**The Alternative Premier League Table: No 13 — Errors that lead to shots and goals**\
-`A detailed look at how each club has been impacted by defensive errors so far this season `\
-https://nytimes.com/athletic/6839562/2025/11/27/the-alternative-premier-league-table-errors-leading-to-goals/
-
-**Mailbag: Why has Piastri's form dipped? Will the Strip be repaved?**\
-`The Las Vegas Grand Prix ensured there is still plenty of jeopardy in the drivers' championship. Our experts answer your questions`\
-https://nytimes.com/athletic/6840068/2025/11/27/las-vegas-grand-prix-mailbag/
-
-**The Tactics Board: Why has the 4-3-1-2 disappeared?**\
-`The final part of The Athletic's series on football formations takes a close look at the demise of the 4-3-1-2 diamond`\
-https://nytimes.com/athletic/6823347/2025/11/27/tactics-board-how-4-3-1-2-works/
 
