@@ -1,3 +1,7 @@
+**AFC North Whiparound: What can keep the Ravens from winning the division?**\
+`Also, Thanksgiving complaints, each team's most telling stat and predictions as the Ravens and Bengals get things started.`\
+https://nytimes.com/athletic/6840521/2025/11/27/afc-north-whiparound-ravens-steelers-bengals-browns-week-13/
+
 **Labubu and KPop Demon Hunters Join Macy’s Thanksgiving Day Parade**\
 `Crowds in New York City bundled up to take in the latest version of a tradition that has run for nearly a century.`\
 https://nytimes.com/2025/11/27/nyregion/macys-thanksgiving-day-parade.html
