@@ -1,3 +1,11 @@
+**Trump Orders 500 More National Guard Members to D.C. After Shooting**\
+`The deployment also follows a monthslong debate about the role of the National Guard in American cities.`\
+https://nytimes.com/2025/11/26/us/politics/trump-national-guard-dc-shooting.html
+
+**A Highway Is Crumbling. New York Can’t Agree on How to Fix It.**\
+`The Brooklyn-Queens Expressway has exceeded its life span. Clashing visions have hindered a solution.`\
+https://nytimes.com/interactive/2025/11/26/special-series/brooklyn-queens-expressway-new-york-highway.html
+
 **How to watch Maryland vs. Alabama men's basketball: Time, TV, streaming**\
 `Find out how to watch the Maryland Terrapins play the Alabama Crimson Tide, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6841207/2025/11/26/maryland-vs-alabama-stream-how-to-watch-nov-27/

@@ -1,3 +1,11 @@
+**Trump Orders 500 More National Guard Members to D.C. After Shooting**\
+`The deployment also follows a monthslong debate about the role of the National Guard in American cities.`\
+https://nytimes.com/2025/11/26/us/politics/trump-national-guard-dc-shooting.html
+
+**A Highway Is Crumbling. New York Can’t Agree on How to Fix It.**\
+`The Brooklyn-Queens Expressway has exceeded its life span. Clashing visions have hindered a solution.`\
+https://nytimes.com/interactive/2025/11/26/special-series/brooklyn-queens-expressway-new-york-highway.html
+
 **How to watch Maryland vs. Alabama men's basketball: Time, TV, streaming**\
 `Find out how to watch the Maryland Terrapins play the Alabama Crimson Tide, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6841207/2025/11/26/maryland-vs-alabama-stream-how-to-watch-nov-27/
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/100000010550901/national-guard-shooting-white-house
 **U.S. to Press Europe and Other Allies on ‘Mass Migration,’ Document Says**\
 `American diplomats were told to raise U.S. concerns about “violent crimes associated with people of a migration background.”`\
 https://nytimes.com/2025/11/26/us/politics/trump-rubio-mass-migration.html
-
-**Dominican Republic Allows U.S. to Use Territory to Fight International Organized Crime**\
-`The Dominican leader, Luis Abinader, said the Pentagon could use restricted areas within the San Isidro Air Base and Las Américas International Airport for refueling and transporting equipment and technical personnel.`\
-https://nytimes.com/2025/11/26/us/politics/dominican-republic-us-military.html
-
-**Trump Says South Africa Is Not Invited to G20 Summit in U.S. in 2026**\
-`The president did not attend this year’s annual gathering in South Africa, which has been a frequent target of his attacks.`\
-https://nytimes.com/2025/11/26/world/africa/trump-south-africa-g20.html
 
