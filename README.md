@@ -1,3 +1,7 @@
+**Russia Labels Navalny’s Anti-Corruption Group as Terrorist Organization**\
+`A legal assault against the opposition leader’s movement has deepened since his death in prison last year.`\
+https://nytimes.com/2025/11/27/world/europe/russia-navalny-terrorist.html
+
 **Rocket Attack on Iraqi Gas Field Cuts Power to Most of Kurdistan**\
 `The strike is the latest in a string of attacks on energy infrastructure in Iraq’s northern Kurdish region, which some regional authorities have privately blamed on Iran-affiliated militias.`\
 https://nytimes.com/2025/11/27/world/middleeast/rocket-attack-iraq-power-kurdistan.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/27/nyregion/macys-thanksgiving-day-parade.html
 **Champions League projections: Arsenal's grip strengthens as Liverpool prospects fade**\
 `Our Opta-powered projections still have Bayern as second favourites to land the trophy in May, followed by reigning champions PSG`\
 https://nytimes.com/athletic/6842201/2025/11/27/champions-league-projections-md5-results/
-
-**France Creates Voluntary Military Service as Europe Faces Russian Threat**\
-`The effort is aimed at young people and came after an army chief angered many by saying the country must accept the possible loss of children in a future war.`\
-https://nytimes.com/2025/11/27/world/europe/france-military-service.html
 

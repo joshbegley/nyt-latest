@@ -1,3 +1,7 @@
+**Rocket Attack on Iraqi Gas Field Cuts Power to Most of Kurdistan**\
+`The strike is the latest in a string of attacks on energy infrastructure in Iraq’s northern Kurdish region, which some regional authorities have privately blamed on Iran-affiliated militias.`\
+https://nytimes.com/2025/11/27/world/middleeast/rocket-attack-iraq-power-kurdistan.html
+
 **Leeds finishing 17th would be 'a great success', says Farke**\
 `Farke's side are 18th in the Premier League heading into Saturday's game at Manchester City.`\
 https://nytimes.com/athletic/6842637/2025/11/27/leeds-daniel-farke-manchester-city/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6842201/2025/11/27/champions-league-projections-md5
 **France Creates Voluntary Military Service as Europe Faces Russian Threat**\
 `The effort is aimed at young people and came after an army chief angered many by saying the country must accept the possible loss of children in a future war.`\
 https://nytimes.com/2025/11/27/world/europe/france-military-service.html
-
-**The British Public Thinks Immigration Is Up. It’s Actually Down, Sharply.**\
-`Net migration to Britain has fallen by almost 80 percent from its 2023 peak, according to data released on Thursday.`\
-https://nytimes.com/2025/11/27/world/europe/uk-immigration-statistics.html
 

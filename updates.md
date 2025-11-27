@@ -1,3 +1,7 @@
+**Rocket Attack on Iraqi Gas Field Cuts Power to Most of Kurdistan**\
+`The strike is the latest in a string of attacks on energy infrastructure in Iraq’s northern Kurdish region, which some regional authorities have privately blamed on Iran-affiliated militias.`\
+https://nytimes.com/2025/11/27/world/middleeast/rocket-attack-iraq-power-kurdistan.html
+
 **Leeds finishing 17th would be 'a great success', says Farke**\
 `Farke's side are 18th in the Premier League heading into Saturday's game at Manchester City.`\
 https://nytimes.com/athletic/6842637/2025/11/27/leeds-daniel-farke-manchester-city/
