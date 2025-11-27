@@ -1,3 +1,7 @@
+**Aston Villa-Young Boys halted after players struck with objects**\
+`The episode started following Donyell Malen's 27th-minute opening goal and escalted after he doubled Villa's lead.`\
+https://nytimes.com/athletic/6843272/2025/11/27/aston-villa-young-boys-europa-league-trouble-crowd/
+
 **Stephen Curry expected to miss at least a week with quad contusion: Source**\
 `Curry exited at the end of Wednesday's loss to the Rockets with the injury.`\
 https://nytimes.com/athletic/6843110/2025/11/27/warriors-steph-curry-injury-update/
