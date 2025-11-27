@@ -22,7 +22,7 @@ https://nytimes.com/athletic/6843436/2025/11/27/richmond-vs-tcu-stream-how-to-wa
 `Find out how to watch the Texas Longhorns play the South Carolina Gamecocks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6843427/2025/11/27/texas-vs-south-carolina-stream-how-to-watch-nov-27/
 
-**Giants QB Jaxson Dart clears concussion protocol, will start vs. Patriots**\
+**Giants QB Jaxson Dart clears concussion protocol ahead of Patriots game**\
 `Rookie QB missed the previous two games due to a concussion he suffered in the Giants' Week 10 loss to the Chicago Bears.`\
 https://nytimes.com/athletic/6836827/2025/11/27/ny-giants-qb-jaxson-dart-concussion-patriots/
 
