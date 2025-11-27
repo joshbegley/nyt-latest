@@ -1,3 +1,16 @@
+**Kimmich says 'set-piece' reliant Arsenal are not best team Bayern have faced this year**\
+`Arsenal defeated the German champions 3-1 on Wednesday night.`\
+https://nytimes.com/athletic/6842189/2025/11/27/arsenal-bayern-joshua-kimmich-champions-league/
+
+**How to watch 2025 F1 Qatar Grand Prix: Streaming, schedule and title odds**\
+`Las Vegas reshaped the F1 title race. Norris still leads, but Verstappen now has a real chance. How will Qatar impact the standings?`\
+https://nytimes.com/athletic/6841039/2025/11/27/f1-qatar-how-to-watch-title-odds/
+
+**Tristan Jarry's redemption tour resumes as Penguins hold off Sabres: 10 observations**\
+`Jarry picked up right where he left off after returning from injury in Pittsburgh's 4-2 win over Buffalo.
+`\
+https://nytimes.com/athletic/6841585/2025/11/27/penguins-sabres-tristan-jarry-observations/
+
 **NFL Thanksgiving watch guide: Packers-Lions, Chiefs-Cowboys, Burrow's return versus Lamar**\
 `The 2025 action is spread across three networks and 12 hours of live TV. Here's what to know and how to watch it all.`\
 https://nytimes.com/athletic/6837310/2025/11/27/thanksgiving-nfl-packers-lions-chiefs-cowboys-bengals-ravens/
