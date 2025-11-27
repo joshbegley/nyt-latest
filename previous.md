@@ -1,4 +1,8 @@
-**Canada Lifts Laws to Allow Alberta Oil Pipeline, Turning From Climate Focus**\
+**Packers-Lions takeaways: Love, Wicks lead Green Bay to key divisional win**\
+`Detroit lost star receiver Amon-Ra St. Brown in the first quarter to a knee injury. `\
+https://nytimes.com/athletic/6843093/2025/11/27/packers-vs-lions-takeaways-result-score-thanksgiving-day-game/
+
+**Canada Lifts Climate Laws for Alberta Oil Sands, Planning Pipeline**\
 `Prime Minister Mark Carney reached a tentative deal with the province as part of his program to curb the country’s economic dependence on the United States.`\
 https://nytimes.com/2025/11/27/world/canada/alberta-oil-pipeline-climate-change.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/27/arts/ruth-thorne-thomsen-dead.html
 **A Bunch of People Are Out of Town, Let’s Feast!**\
 `Four restaurants to check out before the holiday crowds descend in full force.`\
 https://nytimes.com/2025/11/27/dining/a-bunch-of-people-are-out-of-town-lets-feast.html
-
-**Two-time major champion golfer Fuzzy Zoeller dies at 74**\
-`Golfer saw his legacy tainted by a racially insensitive comment about Tiger Woods in 1997.`\
-https://nytimes.com/athletic/6843267/2025/11/27/fuzzy-zoeller-major-champion-dies/
 

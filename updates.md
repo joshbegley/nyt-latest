@@ -1,3 +1,11 @@
+**Packers-Lions takeaways: Love, Wicks lead Green Bay to key divisional win**\
+`Detroit lost star receiver Amon-Ra St. Brown in the first quarter to a knee injury. `\
+https://nytimes.com/athletic/6843093/2025/11/27/packers-vs-lions-takeaways-result-score-thanksgiving-day-game/
+
+**Canada Lifts Climate Laws for Alberta Oil Sands, Planning Pipeline**\
+`Prime Minister Mark Carney reached a tentative deal with the province as part of his program to curb the country’s economic dependence on the United States.`\
+https://nytimes.com/2025/11/27/world/canada/alberta-oil-pipeline-climate-change.html
+
 **Canada Lifts Laws to Allow Alberta Oil Pipeline, Turning From Climate Focus**\
 `Prime Minister Mark Carney reached a tentative deal with the province as part of his program to curb the country’s economic dependence on the United States.`\
 https://nytimes.com/2025/11/27/world/canada/alberta-oil-pipeline-climate-change.html
