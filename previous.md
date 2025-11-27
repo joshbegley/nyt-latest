@@ -1,3 +1,7 @@
+**Suddenly unbeatable, the Raptors have their longest win streak since 2020**\
+`Thanks to Brandon Ingram, the Toronto Raptors — winners of nine in a row — cannot find a way to lose.`\
+https://nytimes.com/athletic/6841556/2025/11/26/raptors-brandon-ingram-winning-streak-nba/
+
 **Cade Cunningham, Pistons see win streak snapped after clutch-time struggles**\
 `The Pistons were a bad bounce on a Cade Cunningham free throw away from 14 consecutive wins, but they remain hungry for more.`\
 https://nytimes.com/athletic/6841235/2025/11/26/pistons-celtics-winning-streak-snapped-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/26/business/campbells-executive-insulting-audio.html
 **LSU terminates Brian Kelly without cause, clearing way for full buyout**\
 `Last Friday, LSU's board voted to allow new school president Wade Rousse to formally terminate Kelly.`\
 https://nytimes.com/athletic/6841191/2025/11/26/lsu-formally-terminates-brian-kelly-without-cause/
-
-**Trump Orders 500 More National Guard Members to D.C. After Shooting**\
-`The deployment also follows a monthslong debate about the role of the National Guard in American cities.`\
-https://nytimes.com/2025/11/26/us/politics/trump-national-guard-dc-shooting.html
 

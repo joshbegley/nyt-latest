@@ -1,3 +1,7 @@
+**Suddenly unbeatable, the Raptors have their longest win streak since 2020**\
+`Thanks to Brandon Ingram, the Toronto Raptors — winners of nine in a row — cannot find a way to lose.`\
+https://nytimes.com/athletic/6841556/2025/11/26/raptors-brandon-ingram-winning-streak-nba/
+
 **Cade Cunningham, Pistons see win streak snapped after clutch-time struggles**\
 `The Pistons were a bad bounce on a Cade Cunningham free throw away from 14 consecutive wins, but they remain hungry for more.`\
 https://nytimes.com/athletic/6841235/2025/11/26/pistons-celtics-winning-streak-snapped-nba/
