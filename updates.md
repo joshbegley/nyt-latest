@@ -1,3 +1,7 @@
+**Colts' Daniel Jones has fractured fibula, plans to play through it: Report**\
+`Jones said Wednesday he'll be "ready to go on Sunday." He was a full participant in practice Thursday, league sources said.`\
+https://nytimes.com/athletic/6843336/2025/11/27/colts-daniel-jones-fibula-injury/
+
 **Aston Villa-Young Boys halted after players struck with objects**\
 `The episode started following Donyell Malen's 27th-minute opening goal and escalted after he doubled Villa's lead.`\
 https://nytimes.com/athletic/6843272/2025/11/27/aston-villa-young-boys-europa-league-trouble-crowd/

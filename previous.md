@@ -1,3 +1,7 @@
+**Colts' Daniel Jones has fractured fibula, plans to play through it: Report**\
+`Jones said Wednesday he'll be "ready to go on Sunday." He was a full participant in practice Thursday, league sources said.`\
+https://nytimes.com/athletic/6843336/2025/11/27/colts-daniel-jones-fibula-injury/
+
 **Aston Villa-Young Boys halted after players struck with objects**\
 `The episode started following Donyell Malen's 27th-minute opening goal and escalted after he doubled Villa's lead.`\
 https://nytimes.com/athletic/6843272/2025/11/27/aston-villa-young-boys-europa-league-trouble-crowd/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/27/us/politics/biden-asylum-cases-shooting.html
 **Valerenga player cleared of doping violation after ingesting rubber from artificial pitch**\
 `An investigation found that the rubber crumb from an artificial pitch contained the banned substance 1,3-dimethylbutylamine (DMBA).`\
 https://nytimes.com/athletic/6840546/2025/11/27/valerenga-anti-doping-rubber-crumb/
-
-**Explained: The trap that caught McLaren in Las Vegas F1 double disqualification**\
-`The reason for McLaren's double disqualification in the 2025 Las Vegas GP has come to light in the Qatar GP paddock`\
-https://nytimes.com/athletic/6842972/2025/11/27/explained-trap-mclaren-las-vegas-f1-double-disqualification/
 
