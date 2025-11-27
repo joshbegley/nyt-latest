@@ -1,3 +1,7 @@
+**Canada Lifts Laws to Allow Alberta Oil Pipeline, Turning From Climate Focus**\
+`Prime Minister Mark Carney reached a tentative deal with the province as part of his program to curb the country’s economic dependence on the United States.`\
+https://nytimes.com/2025/11/27/world/canada/alberta-oil-pipeline-climate-change.html
+
 **The Blue Jays are betting big on Dylan Cease — their pitching history shows why**\
 `Like José Berríos, Chris Bassitt and Kevin Gausman before, Cease’s top trait is consistently taking the ball.`\
 https://nytimes.com/athletic/6843558/2025/11/27/blue-jays-dylan-cease-pitching-history/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/27/dining/a-bunch-of-people-are-out-of-town-lets-fea
 **Two-time major champion golfer Fuzzy Zoeller dies at 74**\
 `Golfer saw his legacy tainted by a racially insensitive comment about Tiger Woods in 1997.`\
 https://nytimes.com/athletic/6843267/2025/11/27/fuzzy-zoeller-major-champion-dies/
-
-**How to watch Oregon State vs. Vanderbilt women's basketball: Time, TV, streaming**\
-`Find out how to watch the Oregon State Beavers play the Vanderbilt Commodores, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6843444/2025/11/27/oregon-state-vs-vanderbilt-stream-how-to-watch-nov-27/
 
