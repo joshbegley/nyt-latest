@@ -1,3 +1,7 @@
+**How to watch Giants vs. Patriots: Time, TV, streaming**\
+`Find out how to watch the New York Giants play the New England Patriots, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6841880/2025/11/27/giants-vs-patriots-stream-how-to-watch-dec-1/
+
 **Here’s the latest.**\
 `By Alexandra Stevenson, Joy Dong and Keith Bradsher`\
 https://nytimes.com/live/2025/11/27/world/hong-kong-fire/heres-the-latest
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6841554/2025/11/27/arne-slot-liverpool-psv-eindhove
 **The New York Times in Print for Thursday, Nov. 27, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/11/27/todays-new-york-times
-
-**If You’re Reading This on Thanksgiving, It’s Not Too Late**\
-`Last-minute holiday recipes for side dishes and desserts, and a few ideas for tomorrow.`\
-https://nytimes.com/2025/11/27/dining/if-youre-reading-this-on-thanksgiving-its-not-too-late.html
 
