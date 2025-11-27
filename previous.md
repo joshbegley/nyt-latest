@@ -1,3 +1,7 @@
+**Jameis Winston details favorite Thanksgiving dish, Taysom Hill's advice**\
+`The Giants quarterback raved about a collard greens dish his wife Breion makes each year. `\
+https://nytimes.com/athletic/6842654/2025/11/27/jameis-winston-thanksgiving-giants-taysom-hill/
+
 **Marshall Faulk expected to become Southern's coach: Source**\
 `Details are being finalized on the deal that would return the 52-year-old New Orleans native to his home state.`\
 https://nytimes.com/athletic/6842645/2025/11/27/marshall-faulk-southern-head-coach/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/27/world/europe/uk-immigration-statistics.html
 **Extreme Measures for the Fentanyl Crisis**\
 `Readers respond to a guest essay about America’s fentanyl problem. Also: A dark echo at Penn.`\
 https://nytimes.com/2025/11/27/opinion/fentanyl-drugs-trump.html
-
-**The Pulse: Thanksgiving Draft Vol. 2**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6837401/2025/11/27/the-pulse-thanksgiving-draft/
 

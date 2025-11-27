@@ -1,3 +1,7 @@
+**Jameis Winston details favorite Thanksgiving dish, Taysom Hill's advice**\
+`The Giants quarterback raved about a collard greens dish his wife Breion makes each year. `\
+https://nytimes.com/athletic/6842654/2025/11/27/jameis-winston-thanksgiving-giants-taysom-hill/
+
 **Marshall Faulk expected to become Southern's coach: Source**\
 `Details are being finalized on the deal that would return the 52-year-old New Orleans native to his home state.`\
 https://nytimes.com/athletic/6842645/2025/11/27/marshall-faulk-southern-head-coach/
