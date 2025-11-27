@@ -1,3 +1,11 @@
+**Extreme Measures for the Fentanyl Crisis**\
+`Readers respond to a guest essay about America’s fentanyl problem. Also: A dark echo at Penn.`\
+https://nytimes.com/2025/11/27/opinion/fentanyl-drugs-trump.html
+
+**The Pulse: Thanksgiving Draft Vol. 2**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6837401/2025/11/27/the-pulse-thanksgiving-draft/
+
 **Giants fan selling Daniel Jones mega-collection as Colts resurgence brings some relief**\
 `So will the auction proceeds go toward Jaxson Dart rookie cards? `\
 https://nytimes.com/athletic/6841534/2025/11/27/daniel-jones-rookie-cards-auction/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6841160/2025/11/27/key-fantasy-football-questions-f
 **Players Era has elite teams and matchups. Now it must improve format, atmosphere**\
 `Improving the format with a true bracket and amping up the atmosphere should be priorities for organizers in 2026.`\
 https://nytimes.com/athletic/6842225/2025/11/27/players-era-festival-2025-format-crowd/
-
-**The risk in Adrian Newey's rise to lead Aston Martin F1 and what it means for Christian Horner**\
-`Through a motorsport career spanning 45 years, Adrian Newey has been instrumental to some of the greatest championship wins in Formula One`\
-https://nytimes.com/athletic/6842316/2025/11/27/adrian-newey-aston-martin-f1-team-boss/
-
-**The D.C. shooting suspect had worked with C.I.A.-backed units in Afghanistan.**\
-`By Julian E. Barnes and Hamed Aleaziz`\
-https://nytimes.com/live/2025/11/27/us/national-guard-shooting-dc/the-dc-shooting-suspect-had-worked-with-cia-backed-units-in-afghanistan
 
