@@ -1,3 +1,7 @@
+**Putin Defends Witkoff Against Accusations of Pro-Russia Bias**\
+`The Russian leader called the U.S. special envoy “an intelligent man” who is properly representing his country in peace negotiations.`\
+https://nytimes.com/2025/11/27/world/europe/putin-witkoff-trump.html
+
 **Intelligence on U.S. Military’s Boat Strikes Is Limited**\
 `The U.S. military has killed more than 80 people since the campaign began in early September. But it does not know who specifically is being killed.`\
 https://nytimes.com/2025/11/27/us/politics/us-military-boat-strikes.html
