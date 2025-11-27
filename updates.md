@@ -1,3 +1,7 @@
+**Hong Kong’s Worst Fire in Generations Fuels Scrutiny of Safety Lapses**\
+`The authorities said flammable netting and foam boards may have fueled the city’s deadliest blaze in nearly 70 years, killing 55 and prompting arrests.`\
+https://nytimes.com/2025/11/27/world/asia/hong-kongs-worst-fire-in-generations-fuels-scrutiny-of-safety-lapses.html
+
 **Thomas appointed INEOS director of racing**\
 `The former Tour de France winner spent over two decades in the World Tour peloton before finishing his career at the 2025 Tour of Britain. `\
 https://nytimes.com/athletic/6842329/2025/11/27/geraint-thomas-ineos-cycling/
