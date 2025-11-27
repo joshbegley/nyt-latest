@@ -1,3 +1,7 @@
+**U.S. Reviews Biden Asylum Cases After Shooting**\
+`A Homeland Security Department spokeswoman accused the previous administration of failing to vet asylum applicants “on a massive scale.”`\
+https://nytimes.com/2025/11/27/us/politics/biden-asylum-cases-shooting.html
+
 **Valerenga player cleared of doping violation after ingesting rubber from artificial pitch**\
 `An investigation found that the rubber crumb from an artificial pitch contained the banned substance 1,3-dimethylbutylamine (DMBA).`\
 https://nytimes.com/athletic/6840546/2025/11/27/valerenga-anti-doping-rubber-crumb/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/27/weather/winter-storm-thanksgiving-travel.html
 **Suspected Shooter Was in a ‘Zero Unit’ in Afghanistan. Here’s What We Know.**\
 `The units were backed by the C.I.A. and trained to conduct missions in Afghanistan during the U.S. war in the country.`\
 https://nytimes.com/2025/11/27/us/dc-shooting-suspect-afghanistan-cia-unit.html
-
-**New Middlesbrough head coach Hellberg targeting Premier League**\
-`The 37-year-old Swede led Hammarby to successive second-place finishes in the Allsvenskan and replaces Rob Edwards at the Riverside Stadium.`\
-https://nytimes.com/athletic/6842996/2025/11/27/kim-hellberg-middlesbrough-premier-league/
 
