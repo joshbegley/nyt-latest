@@ -1,3 +1,15 @@
+**How to watch North Carolina vs. Michigan State men's basketball: Time, TV, streaming**\
+`Find out how to watch the North Carolina Tar Heels play the Michigan State Spartans, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6842899/2025/11/27/north-carolina-vs-michigan-state-stream-how-to-watch-nov-27/
+
+**How to watch BYU vs. Miami (FL) men's basketball: Time, TV, streaming**\
+`Find out how to watch the BYU Cougars play the Miami Hurricanes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6842897/2025/11/27/byu-vs-miami-fl-stream-how-to-watch-nov-27/
+
+**Slot says he retains support of Liverpool hierarchy despite poor run**\
+`Slot has presided over nine defeats in Liverpool's last 12 games.`\
+https://nytimes.com/athletic/6842609/2025/11/27/arne-slot-liverpool-future-fsg/
+
 **Your Turkey Is Done at 165 Degrees**\
 `And more Thanksgiving Day affirmations, tips, snacks and drinks (margs, anyone?).`\
 https://nytimes.com/2025/11/27/dining/your-turkey-is-done-at-165-degrees.html

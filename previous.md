@@ -1,3 +1,15 @@
+**How to watch North Carolina vs. Michigan State men's basketball: Time, TV, streaming**\
+`Find out how to watch the North Carolina Tar Heels play the Michigan State Spartans, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6842899/2025/11/27/north-carolina-vs-michigan-state-stream-how-to-watch-nov-27/
+
+**How to watch BYU vs. Miami (FL) men's basketball: Time, TV, streaming**\
+`Find out how to watch the BYU Cougars play the Miami Hurricanes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6842897/2025/11/27/byu-vs-miami-fl-stream-how-to-watch-nov-27/
+
+**Slot says he retains support of Liverpool hierarchy despite poor run**\
+`Slot has presided over nine defeats in Liverpool's last 12 games.`\
+https://nytimes.com/athletic/6842609/2025/11/27/arne-slot-liverpool-future-fsg/
+
 **Your Turkey Is Done at 165 Degrees**\
 `And more Thanksgiving Day affirmations, tips, snacks and drinks (margs, anyone?).`\
 https://nytimes.com/2025/11/27/dining/your-turkey-is-done-at-165-degrees.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6842654/2025/11/27/jameis-winston-thanksgiving-gian
 **Marshall Faulk expected to become Southern's coach: Source**\
 `Details are being finalized on the deal that would return the 52-year-old New Orleans native to his home state.`\
 https://nytimes.com/athletic/6842645/2025/11/27/marshall-faulk-southern-head-coach/
-
-**Shooting Suspect Is Afghan Man Who Lived in Washington State, Official Says**\
-`The suspect accused of critically wounding two National Guard members was identified as a man living in Bellingham who had fled the Taliban takeover of Afghanistan.`\
-https://nytimes.com/2025/11/27/us/shooting-afghanistan-refugees-washington.html
-
-**Colorado State Senator Is Killed in Car Crash**\
-`Faith Winter, a 45-year-old Democratic state senator and environmental activist, died on Wednesday night.`\
-https://nytimes.com/2025/11/27/us/faith-winter-crash-dead-colorado-senator.html
-
-**AFC North Whiparound: What can keep the Ravens from winning the division?**\
-`Also, Thanksgiving complaints, each team's most telling stat and predictions as the Ravens and Bengals get things started.`\
-https://nytimes.com/athletic/6840521/2025/11/27/afc-north-whiparound-ravens-steelers-bengals-browns-week-13/
 
