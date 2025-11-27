@@ -1,3 +1,7 @@
+**Hong Kong Residents Reel From Deadliest Fire in Decades**\
+`Dozens were killed in a fire that engulfed several apartment buildings in Hong Kong. Firefighters were still battling the blaze on Thursday, and dozens of people were still missing.`\
+https://nytimes.com/video/world/asia/100000010551811/hong-kong-deadliest-fire-in-decades-residents.html
+
 **How to watch North Carolina vs. Michigan State men's basketball: Time, TV, streaming**\
 `Find out how to watch the North Carolina Tar Heels play the Michigan State Spartans, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6842899/2025/11/27/north-carolina-vs-michigan-state-stream-how-to-watch-nov-27/
