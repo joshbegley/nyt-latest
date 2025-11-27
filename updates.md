@@ -1,3 +1,7 @@
+**The Uniquely American Heartbreak of Yet Another Shooting**\
+`The National Guard members shot in Washington are the latest victims of a political violence permeating our society.`\
+https://nytimes.com/2025/11/27/opinion/national-guard-shot-dc.html
+
 **Packers-Lions takeaways: Love, Wicks lead Green Bay to key divisional win**\
 `Detroit lost star receiver Amon-Ra St. Brown in the first quarter to a knee injury. `\
 https://nytimes.com/athletic/6843093/2025/11/27/packers-vs-lions-takeaways-result-score-thanksgiving-day-game/
