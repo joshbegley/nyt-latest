@@ -1,3 +1,7 @@
+**Footage Shows Early Stages of Hong Kong Fire**\
+`An eyewitness filmed the early moments of a fire that grew into a deadly blaze, consuming an apartment complex in Hong Kong.`\
+https://nytimes.com/video/world/asia/100000010551289/hong-kong-fire.html
+
 **How to watch Giants vs. Patriots: Time, TV, streaming**\
 `Find out how to watch the New York Giants play the New England Patriots, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6841880/2025/11/27/giants-vs-patriots-stream-how-to-watch-dec-1/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6841789/2025/11/27/steph-curry-warriors-rockets-rig
 **Arne Slot and Liverpool. What next?**\
 `It would have been unthinkable until very recently, but the head coach faced questions about his future after yet another defeat`\
 https://nytimes.com/athletic/6841554/2025/11/27/arne-slot-liverpool-psv-eindhoven/
-
-**The New York Times in Print for Thursday, Nov. 27, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/11/27/todays-new-york-times
 
