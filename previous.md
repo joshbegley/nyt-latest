@@ -1,3 +1,27 @@
+**How to watch Oregon State vs. Vanderbilt women's basketball: Time, TV, streaming**\
+`Find out how to watch the Oregon State Beavers play the Vanderbilt Commodores, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6843444/2025/11/27/oregon-state-vs-vanderbilt-stream-how-to-watch-nov-27/
+
+**How to watch UCLA vs. Duke women's basketball: Time, TV, streaming**\
+`Find out how to watch the UCLA Bruins play the Duke Blue Devils, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6843442/2025/11/27/ucla-vs-duke-stream-how-to-watch-nov-27/
+
+**How to watch Arkansas vs. Duke men's basketball: Time, TV, streaming**\
+`Find out how to watch the Arkansas Razorbacks play the Duke Blue Devils, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6843432/2025/11/27/arkansas-vs-duke-stream-how-to-watch-nov-27/
+
+**How to watch Richmond vs. TCU women's basketball: Time, TV, streaming**\
+`Find out how to watch the Richmond Spiders play the TCU Horned Frogs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6843436/2025/11/27/richmond-vs-tcu-stream-how-to-watch-nov-27/
+
+**How to watch Texas vs. South Carolina women's basketball: Time, TV, streaming**\
+`Find out how to watch the Texas Longhorns play the South Carolina Gamecocks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6843427/2025/11/27/texas-vs-south-carolina-stream-how-to-watch-nov-27/
+
+**Giants QB Jaxson Dart clears concussion protocol, will start vs. Patriots**\
+`Rookie QB missed the previous two games due to a concussion he suffered in the Giants' Week 10 loss to the Chicago Bears.`\
+https://nytimes.com/athletic/6836827/2025/11/27/ny-giants-qb-jaxson-dart-concussion-patriots/
+
 **Learning new tricks: 76ers' Tyrese Maxey joins National Dog Show fun**\
 `Maxey directed two energetic dogs through a series of obstacles that included tunnels, weave poles and a tire for the dogs to leap through.`\
 https://nytimes.com/athletic/6843282/2025/11/27/76ers-tyrese-maxey-2025-national-dog-show/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6843272/2025/11/27/aston-villa-young-boys-europa-le
 **Stephen Curry expected to miss at least a week with quad contusion: Source**\
 `Curry exited at the end of Wednesday's loss to the Rockets with the injury.`\
 https://nytimes.com/athletic/6843110/2025/11/27/warriors-steph-curry-injury-update/
-
-**Lions receiver Amon-Ra St. Brown ruled out with ankle injury vs. Packers**\
-`The Lions are already without their top two tight ends.`\
-https://nytimes.com/athletic/6843254/2025/11/27/lions-amon-ra-st-brown-ankle-injury-questionable/
-
-**Why Is the U.S. Threatening Venezuela?**\
-`Venezuela doesn’t play a large role in the drug trade to the United States, so what is motivating the massive military buildup? Julian E. Barnes, who reports on intelligence and international security, discusses the issues with our senior writer Katrin Bennhold.`\
-https://nytimes.com/video/world/americas/100000010549651/trump-venezuela-pressure-campaign.html
-
-**Atletico Madrid fined €30,000 for racist behaviour by supporters**\
-`The incidents occurred during Atleti's 4-0 defeat in north London in the Champions League on October 21.`\
-https://nytimes.com/athletic/6843142/2025/11/27/atletico-madrid-fine-racism-uefa-arsenal/
-
-**Here’s What We Know About the National Guard Shooting Victims**\
-`The father of one of the West Virginia National Guard members said his daughter had a “mortal wound.” A man at the other member’s home asked for prayers for his son.`\
-https://nytimes.com/2025/11/27/us/national-guard-shooting-andrew-wolfe-sarah-beckstrom.html
-
-**Missouri, Eli Drinkwitz agree to contract extension through 2031**\
-`After being rumored as a candidate for other openings, Drinkwitz agreed to an extension that tacks two years onto his deal.`\
-https://nytimes.com/athletic/6842971/2025/11/27/missouri-eli-drinkwitz-contract-extension-2031/
-
-**U.S. Reviews Biden Asylum Cases After Shooting**\
-`A Homeland Security Department spokeswoman accused the previous administration of failing to vet asylum applicants “on a massive scale.”`\
-https://nytimes.com/2025/11/27/us/politics/biden-asylum-cases-shooting.html
 
