@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By Alexandra Stevenson, Joy Dong and Keith Bradsher`\
+https://nytimes.com/live/2025/11/27/world/hong-kong-fire/heres-the-latest
+
+**Live Updates: Hong Kong Towers Smolder From Fire That Has Killed at Least 44**\
+`Firefighters were still trying to fully extinguish the blaze, a day after it engulfed an apartment complex. More than 270 people were still missing.`\
+https://nytimes.com/live/2025/11/27/world/hong-kong-fire
+
 **Why Kieffer Moore is the key to unlocking Wrexham's goalscoring potential in the Championship**\
 `The return of the big striker from injury immediately opened up opportunities for teammates – something Phil Parkinson needs more of`\
 https://nytimes.com/athletic/6835822/2025/11/27/wrexham-goalscorer-spread-bristol-city/

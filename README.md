@@ -22,8 +22,8 @@ https://nytimes.com/athletic/6841516/2025/11/27/arsenal-squad-depth-bayern-champ
 `“’Twas the night before Thanksgiving, and in your parents’ house, they put the Peloton in your old bedroom, so you’re sleeping on the couch,” Fallon mused.`\
 https://nytimes.com/2025/11/27/arts/television/jimmy-fallon-thanksgiving-drinksgiving.html
 
-**Warriors star Steph Curry exits with right quad contusion, will get MRI**\
-`Curry stayed in the game until the waning moments.`\
+**Warriors star Stephe Curry exits with right quad contusion, will get MRI**\
+`Curry stayed in the game before heading to the locker room to get checked out during a timeout called in the final seconds.`\
 https://nytimes.com/athletic/6841789/2025/11/27/steph-curry-warriors-rockets-right-quad-contusion-mri/
 
 **Arne Slot and Liverpool. What next?**\
