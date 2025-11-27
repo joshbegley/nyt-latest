@@ -1,3 +1,7 @@
+**In signing Dylan Cease, Blue Jays pay heavy price for oft-inconsistent starter**\
+`With Cease, Toronto is getting durability, and perhaps the Blue Jays think they can unlock some untapped potential that the Padres couldn't.`\
+https://nytimes.com/athletic/6841245/2025/11/26/blue-jays-dylan-cease-signing-analysis/
+
 **Campbell’s Says Executive Accused of Offensive Remarks Has Left the Company**\
 `The comments came to light after an audiotape was released, tied to a lawsuit filed by a former employee.`\
 https://nytimes.com/2025/11/26/business/campbells-executive-insulting-audio.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6841108/2025/11/26/geno-smith-apologizes-raiders-fa
 **Broncos' Alex Singleton back in action after cancerous tumor removed**\
 `Star cornerback Pat Surtain, who missed the past three games with a pectoral injury, also returned to practice Wednesday.`\
 https://nytimes.com/athletic/6837639/2025/11/26/broncos-alex-singleton-return-cancer/
-
-**There have been numerous instances of violence near the White House over the years.**\
-`By Soumya Karlamangla`\
-https://nytimes.com/live/2025/11/26/us/national-guard-shooting-dc/there-have-been-numerous-instances-of-violence-near-the-white-house-over-the-years
 
