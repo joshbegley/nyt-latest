@@ -1,3 +1,7 @@
+**What Is Operation Allies Welcome, the Program That Gave Some Afghans Entry to the U.S.?**\
+`The Biden administration set up the initiative after the Taliban retook power in Afghanistan in August 2021 for those who assisted U.S. troops.`\
+https://nytimes.com/2025/11/26/us/operation-allies-welcome-dc-shooting.html
+
 **Three people tied to a construction company were arrested on suspicion of manslaughter.**\
 `By Alexandra Stevenson`\
 https://nytimes.com/live/2025/11/26/world/hong-kong-fire/arrests-manslaughter

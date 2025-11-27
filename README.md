@@ -4,7 +4,7 @@ https://nytimes.com/2025/11/26/us/operation-allies-welcome-dc-shooting.html
 
 **Three people tied to a construction company were arrested on suspicion of manslaughter.**\
 `By Alexandra Stevenson`\
-https://nytimes.com/live/2025/11/26/world/hong-kong-fire/arrests-manslaughter
+https://nytimes.com/2025/11/26/world/asia/arrests-manslaughter.html
 
 **Rams' Ahkello Witherspoon returns to practice as Roger McCreary goes on IR**\
 `Witherspoon's return creates a good problem for the Rams at outside cornerback.`\
