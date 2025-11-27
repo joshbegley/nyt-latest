@@ -1,3 +1,7 @@
+**The Giannis-less Bucks couldn't handle the surging Heat in Miami**\
+`With Antetokounmpo missing his fourth consecutive game, the Bucks tied their longest losing streak in a decade.`\
+https://nytimes.com/athletic/6841546/2025/11/26/bucks-heat-nba-cup-group-play-loss/
+
 **Suddenly unbeatable, the Raptors have their longest win streak since 2020**\
 `Thanks to Brandon Ingram, the Toronto Raptors — winners of nine in a row — cannot find a way to lose.`\
 https://nytimes.com/athletic/6841556/2025/11/26/raptors-brandon-ingram-winning-streak-nba/

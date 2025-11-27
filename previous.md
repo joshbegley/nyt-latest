@@ -1,3 +1,7 @@
+**The Giannis-less Bucks couldn't handle the surging Heat in Miami**\
+`With Antetokounmpo missing his fourth consecutive game, the Bucks tied their longest losing streak in a decade.`\
+https://nytimes.com/athletic/6841546/2025/11/26/bucks-heat-nba-cup-group-play-loss/
+
 **Suddenly unbeatable, the Raptors have their longest win streak since 2020**\
 `Thanks to Brandon Ingram, the Toronto Raptors — winners of nine in a row — cannot find a way to lose.`\
 https://nytimes.com/athletic/6841556/2025/11/26/raptors-brandon-ingram-winning-streak-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6841245/2025/11/26/blue-jays-dylan-cease-signing-an
 **Campbell’s Says Executive Accused of Offensive Remarks Has Left the Company**\
 `The comments came to light after an audiotape was released, tied to a lawsuit filed by a former employee.`\
 https://nytimes.com/2025/11/26/business/campbells-executive-insulting-audio.html
-
-**LSU terminates Brian Kelly without cause, clearing way for full buyout**\
-`Last Friday, LSU's board voted to allow new school president Wade Rousse to formally terminate Kelly.`\
-https://nytimes.com/athletic/6841191/2025/11/26/lsu-formally-terminates-brian-kelly-without-cause/
 
