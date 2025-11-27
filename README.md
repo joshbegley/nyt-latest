@@ -1,3 +1,11 @@
+**Giants fan selling Daniel Jones mega-collection as Colts resurgence brings some relief**\
+`So will the auction proceeds go toward Jaxson Dart rookie cards? `\
+https://nytimes.com/athletic/6841534/2025/11/27/daniel-jones-rookie-cards-auction/
+
+**Three things we learned from the Maui Invitational: USC wins, Seton Hall impresses**\
+`Chad Baker-Mazara’s shot-making and the Trojans’ wealth of length and depth shined throughout the tournament.`\
+https://nytimes.com/athletic/6842379/2025/11/27/maui-invitational-results-highlights-usc-seton-hall/
+
 **How to watch Maryland vs. Hofstra women's basketball: Time, TV, streaming**\
 `Find out how to watch the Maryland Terrapins play the Hofstra Pride, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6842470/2025/11/27/maryland-vs-hofstra-stream-how-to-watch-nov-27/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6842316/2025/11/27/adrian-newey-aston-martin-f1-tea
 **The D.C. shooting suspect had worked with C.I.A.-backed units in Afghanistan.**\
 `By Julian E. Barnes and Hamed Aleaziz`\
 https://nytimes.com/live/2025/11/27/us/national-guard-shooting-dc/the-dc-shooting-suspect-had-worked-with-cia-backed-units-in-afghanistan
-
-**Thomas appointed INEOS director of racing**\
-`The former Tour de France winner spent over two decades in the World Tour peloton before finishing his career at the 2025 Tour of Britain. `\
-https://nytimes.com/athletic/6842329/2025/11/27/geraint-thomas-ineos-cycling/
-
-**Hong Kongers Volunteer Goods and Time to Help Fire Victims**\
-`Residents from across the city have quickly organized to donate food, water, clothing and other supplies in Tai Po for the many displaced people.`\
-https://nytimes.com/2025/11/27/world/asia/hong-kong-fire-volunteers-aid-help-donations.html
 
