@@ -1,3 +1,11 @@
+**Here’s What We Know About the National Guard Shooting Victims**\
+`The father of one of the West Virginia National Guard members said his daughter had a “mortal wound.” A man at the other member’s home asked for prayers for his son.`\
+https://nytimes.com/2025/11/27/us/national-guard-shooting-andrew-wolfe-sarah-beckstrom.html
+
+**Missouri, Eli Drinkwitz agree to contract extension through 2031**\
+`After being rumored as a candidate for other openings, Drinkwitz agreed to an extension that tacks two years onto his deal.`\
+https://nytimes.com/athletic/6842971/2025/11/27/missouri-eli-drinkwitz-contract-extension-2031/
+
 **U.S. Reviews Biden Asylum Cases After Shooting**\
 `A Homeland Security Department spokeswoman accused the previous administration of failing to vet asylum applicants “on a massive scale.”`\
 https://nytimes.com/2025/11/27/us/politics/biden-asylum-cases-shooting.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/middleeast/100000010551743/pope-leo-turkey-trip.
 **Map: Small Quakes Shake Northern California on Thanksgiving Morning**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/11/27/us/earthquake-northern-california-tracker.html
-
-**Winter Storm in Northern U.S. Expected to Snarl Post-Thanksgiving Travel**\
-`Forecasters say a winter storm could disrupt travel, dumping up to a foot of snow across parts of the Midwest through the holiday weekend.`\
-https://nytimes.com/2025/11/27/weather/winter-storm-thanksgiving-travel.html
-
-**Suspected Shooter Was in a ‘Zero Unit’ in Afghanistan. Here’s What We Know.**\
-`The units were backed by the C.I.A. and trained to conduct missions in Afghanistan during the U.S. war in the country.`\
-https://nytimes.com/2025/11/27/us/dc-shooting-suspect-afghanistan-cia-unit.html
 
