@@ -1,3 +1,7 @@
+**Arne Slot and Liverpool. What next?**\
+`Liverpool look broken.`\
+https://nytimes.com/athletic/6841554/2025/11/27/arne-slot-liverpool-psv-eindhoven/
+
 **The New York Times in Print for Thursday, Nov. 27, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/11/27/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6839562/2025/11/27/the-alternative-premier-league-t
 **Mailbag: Why has Piastri's form dipped? Will the Strip be repaved?**\
 `The Las Vegas Grand Prix ensured there is still plenty of jeopardy in the drivers' championship. Our experts answer your questions`\
 https://nytimes.com/athletic/6840068/2025/11/27/las-vegas-grand-prix-mailbag/
-
-**The Tactics Board: Why has the 4-3-1-2 disappeared?**\
-`The final part of The Athletic's series on football formations takes a close look at the demise of the 4-3-1-2 diamond`\
-https://nytimes.com/athletic/6823347/2025/11/27/tactics-board-how-4-3-1-2-works/
 
