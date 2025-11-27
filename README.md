@@ -1,3 +1,11 @@
+**ABBA’s Popular Hologram Show Could Come to New York City**\
+`ABBA Voyage, the popular London, show features holograph versions of the Swedish pop band when they were decades younger.`\
+https://nytimes.com/2025/11/27/nyregion/abba-voyage-nyc.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/11/27/crosswords/spelling-bee-forum.html
+
 **Footage Shows Early Stages of Hong Kong Fire**\
 `An eyewitness filmed the early moments of a fire that grew into a deadly blaze, consuming an apartment complex in Hong Kong.`\
 https://nytimes.com/video/world/asia/100000010551289/hong-kong-fire.html
@@ -7,11 +15,11 @@ https://nytimes.com/video/world/asia/100000010551289/hong-kong-fire.html
 https://nytimes.com/athletic/6841880/2025/11/27/giants-vs-patriots-stream-how-to-watch-dec-1/
 
 **Here’s the latest.**\
-`By Alexandra Stevenson, Joy Dong and Keith Bradsher`\
+`By Joy Dong, Alexandra Stevenson and Keith Bradsher`\
 https://nytimes.com/live/2025/11/27/world/hong-kong-fire/heres-the-latest
 
-**Live Updates: Hong Kong Towers Smolder From Fire That Has Killed at Least 44**\
-`Firefighters were still trying to fully extinguish the blaze, a day after it engulfed an apartment complex. More than 270 people were still missing.`\
+**Live Updates: Death Toll From Hong Kong Apartment Fire Rises to 55**\
+`Firefighters were still trying to fully extinguish the blaze, a day after it engulfed several towers in the complex. More than 270 people were still missing.`\
 https://nytimes.com/live/2025/11/27/world/hong-kong-fire
 
 **Arsenal's squad depth is a frightening prospect for their rivals**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6841789/2025/11/27/steph-curry-warriors-rockets-rig
 **Arne Slot and Liverpool. What next?**\
 `It would have been unthinkable until very recently, but the head coach faced questions about his future after yet another defeat`\
 https://nytimes.com/athletic/6841554/2025/11/27/arne-slot-liverpool-psv-eindhoven/
-
-**The New York Times in Print for Thursday, Nov. 27, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/11/27/todays-new-york-times
-
-**If You’re Reading This on Thanksgiving, It’s Not Too Late**\
-`Last-minute holiday recipes for side dishes and desserts, and a few ideas for tomorrow.`\
-https://nytimes.com/2025/11/27/dining/if-youre-reading-this-on-thanksgiving-its-not-too-late.html
 
