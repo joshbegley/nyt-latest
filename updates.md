@@ -1,3 +1,7 @@
+**Live Updates: Death Toll From Hong Kong Apartment Fire Rises to 55**\
+`Firefighters were still trying to fully extinguish the blaze, a day after it engulfed several towers in the complex. Many people were still trapped in the buildings.`\
+https://nytimes.com/live/2025/11/27/world/hong-kong-fire
+
 **ABBA’s Popular Hologram Show Could Come to New York City**\
 `ABBA Voyage, the popular London, show features holograph versions of the Swedish pop band when they were decades younger.`\
 https://nytimes.com/2025/11/27/nyregion/abba-voyage-nyc.html
