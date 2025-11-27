@@ -1,3 +1,7 @@
+**Three people tied to a construction company were arrested on suspicion of manslaughter.**\
+`By Alexandra Stevenson`\
+https://nytimes.com/live/2025/11/26/world/hong-kong-fire/arrests-manslaughter
+
 **Rams' Ahkello Witherspoon returns to practice as Roger McCreary goes on IR**\
 `Witherspoon's return creates a good problem for the Rams at outside cornerback.`\
 https://nytimes.com/athletic/6841364/2025/11/26/rams-ahkello-witherspoon-returns-ir/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6841207/2025/11/26/maryland-vs-alabama-stream-how-t
 **Pushing the Limits**\
 `Explore the thrill, speed and physical and mental challenges of racing across water in world-class events such as Mubadala Abu Dhabi Sail Grand Prix.`\
 https://nytimes.com/paidpost/athletic/mubadala/pushing-the-limits.html
-
-**Blue Jays, Dylan Cease agree to 7-year, $210M contract: Sources**\
-`With Max Scherzer and Chris Bassitt coming off the books, the Jays entered the winter looking to add a top starter.`\
-https://nytimes.com/athletic/6801828/2025/11/26/toronto-blue-jays-dylan-cease-free-agent-signing-sources/
 
