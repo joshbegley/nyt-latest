@@ -1,4 +1,4 @@
-**Kimmich says 'set-piece' reliant Arsenal are not best team Bayern have faced this year**\
+**Kimmich says 'set-piece reliant' Arsenal are not best team Bayern have faced this year**\
 `Arsenal defeated the German champions 3-1 on Wednesday night.`\
 https://nytimes.com/athletic/6842189/2025/11/27/arsenal-bayern-joshua-kimmich-champions-league/
 
