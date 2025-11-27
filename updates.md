@@ -1,3 +1,7 @@
+**Stephen Curry expected to miss at least a week with quad contusion: Source**\
+`Curry exited at the end of Wednesday's loss to the Rockets with the injury.`\
+https://nytimes.com/athletic/6843110/2025/11/27/warriors-steph-curry-injury-update/
+
 **Lions receiver Amon-Ra St. Brown exits with ankle injury, questionable to return**\
 `The Lions are already without their top two tight ends.`\
 https://nytimes.com/athletic/6843254/2025/11/27/lions-amon-ra-st-brown-ankle-injury-questionable/

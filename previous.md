@@ -1,3 +1,7 @@
+**Stephen Curry expected to miss at least a week with quad contusion: Source**\
+`Curry exited at the end of Wednesday's loss to the Rockets with the injury.`\
+https://nytimes.com/athletic/6843110/2025/11/27/warriors-steph-curry-injury-update/
+
 **Lions receiver Amon-Ra St. Brown exits with ankle injury, questionable to return**\
 `The Lions are already without their top two tight ends.`\
 https://nytimes.com/athletic/6843254/2025/11/27/lions-amon-ra-st-brown-ankle-injury-questionable/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6842972/2025/11/27/explained-trap-mclaren-las-vegas
 **Guinea-Bissau Installs Military Ruler After Claims of a ‘Fabricated’ Coup**\
 `The opposition has accused the president of putting a general in charge of the government so that he could stay in power.`\
 https://nytimes.com/2025/11/27/world/africa/guinea-bissau-coup.html
-
-**Maps: 6.0-Magnitude Earthquake Shakes Alaska Near Anchorage**\
-`View the location of the quake’s epicenter and shake area.`\
-https://nytimes.com/interactive/2025/11/27/us/earthquake-alaska-anchorage.html
 
