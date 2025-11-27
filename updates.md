@@ -1,3 +1,11 @@
+**Arsenal's squad depth is a frightening prospect for their rivals**\
+`Mikel Arteta was able to turn to his bench to defeat Bayern Munich – when you have a winning team, everyone wants to be part of it`\
+https://nytimes.com/athletic/6841516/2025/11/27/arsenal-squad-depth-bayern-champions-league/
+
+**Arne Slot and Liverpool. What next?**\
+`It would have been unthinkable until very recently, but the head coach faced questions about his future after yet another defeat`\
+https://nytimes.com/athletic/6841554/2025/11/27/arne-slot-liverpool-psv-eindhoven/
+
 **Jimmy Fallon Gets Into the Spirit of ‘Drinksgiving’**\
 `“’Twas the night before Thanksgiving, and in your parents’ house, they put the Peloton in your old bedroom, so you’re sleeping on the couch,” Fallon mused.`\
 https://nytimes.com/2025/11/27/arts/television/jimmy-fallon-thanksgiving-drinksgiving.html
