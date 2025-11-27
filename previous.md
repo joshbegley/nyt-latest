@@ -1,3 +1,15 @@
+**How to watch Maryland vs. Hofstra women's basketball: Time, TV, streaming**\
+`Find out how to watch the Maryland Terrapins play the Hofstra Pride, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6842470/2025/11/27/maryland-vs-hofstra-stream-how-to-watch-nov-27/
+
+**How to watch TCU vs. Florida men's basketball: Time, TV, streaming**\
+`Find out how to watch the TCU Horned Frogs play the Florida Gators, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6842468/2025/11/27/tcu-vs-florida-stream-how-to-watch-nov-27/
+
+**Images From the Deadly High-Rise Fire in Hong Kong**\
+`The blaze tore through an apartment complex, killing at least 55 people. Dozens more are believed to be missing in what remains of the buildings.`\
+https://nytimes.com/2025/11/27/world/asia/hongkong-fire-photos.html
+
 **Pope Leo Visits Turkey on His First Trip as Pontiff**\
 `The pope started his six-day trip, which will also include a visit to Lebanon.`\
 https://nytimes.com/2025/11/27/world/europe/pope-leo-trip-pictures.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6842329/2025/11/27/geraint-thomas-ineos-cycling/
 **Hong Kongers Volunteer Goods and Time to Help Fire Victims**\
 `Residents from across the city have quickly organized to donate food, water, clothing and other supplies in Tai Po for the many displaced people.`\
 https://nytimes.com/2025/11/27/world/asia/hong-kong-fire-volunteers-aid-help-donations.html
-
-**Hong Kong’s Worst Fire in Generations Fuels Scrutiny of Safety Lapses**\
-`The authorities said flammable netting and foam boards may have fueled the city’s deadliest blaze in nearly 70 years, killing 55 and prompting arrests.`\
-https://nytimes.com/2025/11/27/world/asia/hong-kongs-worst-fire-in-generations-fuels-scrutiny-of-safety-lapses.html
-
-**How Kansas QB Jalon Daniels is living up to a deal he made with his mom**\
-`The sixth-year quarterback started a nonprofit foundation to empower single mothers and honor his upbringing. `\
-https://nytimes.com/athletic/6837678/2025/11/27/kansa-football-jalon-daniels-mom-foundation/
-
-**Eight Eagles Thoughts: Perspective on Kevin Patullo's inconsistent offense, Black Friday prediction**\
-`Patullo has a chance to quiet (or at least calm) criticism against the Chicago Bears' defense`\
-https://nytimes.com/athletic/6840875/2025/11/27/eagles-kevin-patullo-offense-black-friday/
 
