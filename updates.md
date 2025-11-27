@@ -1,3 +1,11 @@
+**Extreme Measures for the Fentanyl Crisis**\
+`Readers respond to a guest essay about America’s fentanyl problem. Also: A dark echo at Penn.`\
+https://nytimes.com/2025/11/27/opinion/fentanyl-drugs-trump.html
+
+**The Pulse: Thanksgiving Draft Vol. 2**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6837401/2025/11/27/the-pulse-thanksgiving-draft/
+
 **Giants fan selling Daniel Jones mega-collection as Colts resurgence brings some relief**\
 `So will the auction proceeds go toward Jaxson Dart rookie cards? `\
 https://nytimes.com/athletic/6841534/2025/11/27/daniel-jones-rookie-cards-auction/
