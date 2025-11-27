@@ -1,3 +1,11 @@
+**Louvre to Raise Ticket Prices for Americans and Some Other Foreigners**\
+`From Jan. 14, visitors to the museum from outside the European Economic Area will pay 45 percent more for entry to help finance its ambitious renovation plan.`\
+https://nytimes.com/2025/11/27/world/europe/louvre-higher-ticket-prices.html
+
+**Officials Identify National Guard Shooting Suspect**\
+`Officials said the gunman immigrated from Afghanistan in 2021 after working with C.I.A.-backed military units. The suspect drove across the country to carry out the attack. The two wounded members of the National Guard remain in critical condition.`\
+https://nytimes.com/video/us/100000010552479/national-guard-shooting-suspect-afghanistan-washington.html
+
 **Eminem joins Jack White for Thanksgiving halftime show in Detroit**\
 `Eminem surprised fans by joining Jack White on stage for the Detroit Lions’ 2025 Thanksgiving halftime show.`\
 https://nytimes.com/athletic/6843547/2025/11/27/eminem-jack-white-detroit-lions-thanksgiving-halftime/
