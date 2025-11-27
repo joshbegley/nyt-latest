@@ -1,3 +1,11 @@
+**Explained: The trap that caught McLaren in Las Vegas F1 double disqualification**\
+`The reason for McLaren's double disqualification in the 2025 Las Vegas GP has come to light in the Qatar GP paddock`\
+https://nytimes.com/athletic/6842972/2025/11/27/explained-trap-mclaren-las-vegas-f1-double-disqualification/
+
+**Guinea-Bissau Installs Military Ruler After Claims of ‘Fabricated’ Coup**\
+`The opposition claimed a new general has been put in charge of the government to help keep the current president in power.`\
+https://nytimes.com/2025/11/27/world/africa/guinea-bissau-coup.html
+
 **Map: 6.0-Magnitude Earthquake Shakes Alaska Near Anchorage**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/11/27/us/earthquake-alaska-anchorage.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6842996/2025/11/27/kim-hellberg-middlesbrough-premi
 **Time for ‘The Nutcracker’ and Brat Winter**\
 `At New York City Ballet, two boys from the School of American Ballet get to play a coveted role: Fritz, a terror of a little brother.`\
 https://nytimes.com/2025/11/27/arts/dance/the-nutcracker-new-york-city-ballet-fritz-brat.html
-
-**‘His legs have gone’: Unpicking the four words no footballer wants to hear**\
-`Mohamed Salah and Virgil van Dijk are just the latest players to be subjected to one of the game's most damning criticisms`\
-https://nytimes.com/athletic/6842190/2025/11/27/mohamed-salah-virgil-van-dijk-carragher/
-
-**How a Rediscovered Klimt Got Swept Up in an International Dispute**\
-`The Viennese painter’s portrait of a West African prince was owned by a Jewish family who fled the Nazi occupation. It was then taken to Hungary, which has now moved to block a sale by an Austrian gallery.`\
-https://nytimes.com/2025/11/27/arts/klimt-african-prince-hungary-austria.html
 

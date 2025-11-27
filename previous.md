@@ -1,3 +1,7 @@
+**Map: 6.0-Magnitude Earthquake Shakes Alaska Near Anchorage**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/11/27/us/earthquake-alaska-anchorage.html
+
 **The Nigerian Musician Championed by Zohran Mamdani**\
 `Our critic’s latest Song of the Week is by ODUMODUBLVCK, an artist who embodies the full spectrum of Nigerian Afrobeats.`\
 https://nytimes.com/video/podcasts/100000010544923/the-nigerian-musician-championed-by-zohran-mamdani.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6842190/2025/11/27/mohamed-salah-virgil-van-dijk-ca
 **How a Rediscovered Klimt Got Swept Up in an International Dispute**\
 `The Viennese painter’s portrait of a West African prince was owned by a Jewish family who fled the Nazi occupation. It was then taken to Hungary, which has now moved to block a sale by an Austrian gallery.`\
 https://nytimes.com/2025/11/27/arts/klimt-african-prince-hungary-austria.html
-
-**Putin Defends Witkoff Against Accusations of Pro-Russia Bias**\
-`The Russian leader called the U.S. special envoy “an intelligent man” who is properly representing his country in peace negotiations.`\
-https://nytimes.com/2025/11/27/world/europe/putin-witkoff-trump.html
 

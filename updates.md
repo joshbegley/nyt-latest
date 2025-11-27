@@ -1,3 +1,7 @@
+**Map: 6.0-Magnitude Earthquake Shakes Alaska Near Anchorage**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/11/27/us/earthquake-alaska-anchorage.html
+
 **The Nigerian Musician Championed by Zohran Mamdani**\
 `Our critic’s latest Song of the Week is by ODUMODUBLVCK, an artist who embodies the full spectrum of Nigerian Afrobeats.`\
 https://nytimes.com/video/podcasts/100000010544923/the-nigerian-musician-championed-by-zohran-mamdani.html
