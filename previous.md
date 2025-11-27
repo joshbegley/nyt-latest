@@ -1,3 +1,15 @@
+**What's Trending in the NFL: Most iconic Thanksgiving moments in NFL history**\
+`The NFL on Thanksgiving is embedded in our culture and so are these can't-forget moments from holiday games over the years.`\
+https://nytimes.com/athletic/6840039/2025/11/27/thanksgiving-nfl-moments-leon-lett-butt-fumble/
+
+**NFL Week 13 roundtable: Who wins Packers-Lions? Will Bears or Eagles make NFC title game?**\
+`A special holiday edition of our weekly roundtable breaks down Packers-Lions, Cowboys-Chiefs, Bengals-Ravens and Bears-Eagles.`\
+https://nytimes.com/athletic/6837405/2025/11/27/nfl-week-13-packers-lions-bears-eagles/
+
+**The New York Times International Edition in Print for Friday, Nov. 28, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/11/27/todays-new-york-times-international-edition
+
 **Here’s the latest.**\
 `By Hamed Aleaziz, Campbell Robertson, Elian Peltier and Jin Yu Young`\
 https://nytimes.com/live/2025/11/27/us/national-guard-shooting-dc/heres-the-latest
@@ -25,16 +37,4 @@ https://nytimes.com/2025/11/27/opinion/trump-russia-ukraine-putin-zelensky.html
 **They Upsized to a Single-Family House in Brooklyn for Less Than $900,000. But Where?**\
 `When their Ditmas Park apartment became too cramped, a young family looked for a house in central Brooklyn where they could spread out. Here’s what they found.`\
 https://nytimes.com/interactive/2025/11/27/realestate/brooklyn-houses-sale.html
-
-**Here Comes Labubu**\
-`A global sensation gets her moment at the Thanksgiving Day parade.`\
-https://nytimes.com/2025/11/27/style/labubu-float-macys-thanksgiving-day-parade.html
-
-**All of the Turkeys Ain’t in the Zoo**\
-`Many affluent Americans no longer believe in civic institutions or community groups.`\
-https://nytimes.com/2025/11/27/opinion/trump-kelly-hegseth-duffy-turkey.html
-
-**‘Blossoms Shanghai’ Review: In the Mood for Commerce**\
-`Wong Kar-wai’s first TV series, streaming on the Criterion Channel, is a lush melodrama about an economic miracle.`\
-https://nytimes.com/2025/11/27/arts/television/blossoms-shanghai-review.html
 

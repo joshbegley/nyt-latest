@@ -1,3 +1,15 @@
+**What's Trending in the NFL: Most iconic Thanksgiving moments in NFL history**\
+`The NFL on Thanksgiving is embedded in our culture and so are these can't-forget moments from holiday games over the years.`\
+https://nytimes.com/athletic/6840039/2025/11/27/thanksgiving-nfl-moments-leon-lett-butt-fumble/
+
+**NFL Week 13 roundtable: Who wins Packers-Lions? Will Bears or Eagles make NFC title game?**\
+`A special holiday edition of our weekly roundtable breaks down Packers-Lions, Cowboys-Chiefs, Bengals-Ravens and Bears-Eagles.`\
+https://nytimes.com/athletic/6837405/2025/11/27/nfl-week-13-packers-lions-bears-eagles/
+
+**The New York Times International Edition in Print for Friday, Nov. 28, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/11/27/todays-new-york-times-international-edition
+
 **Here’s the latest.**\
 `By Hamed Aleaziz, Campbell Robertson, Elian Peltier and Jin Yu Young`\
 https://nytimes.com/live/2025/11/27/us/national-guard-shooting-dc/heres-the-latest
