@@ -1,3 +1,11 @@
+**The Tactics Board: Why has the 4-3-1-2 disappeared?**\
+`The final part of The Athletic's series on football formations takes a close look at the demise of the 4-3-1-2 diamond`\
+https://nytimes.com/athletic/6823347/2025/11/27/tactics-board-how-4-3-1-2-works/
+
+**Aston Villa, Portugal and the free-kick technology that assisted three goals in two weeks**\
+`Trackman’s launch monitor, which helps the world’s best golfers revolutionise their shots, might now have its crowning moment in football`\
+https://nytimes.com/athletic/6837555/2025/11/27/aston-villa-portugal-premier-league-world-cup-trackman/
+
 **Heading to the Mideast, Pope Leo May Show ‘Who He Really Is’**\
 `The pontiff begins a trip to Turkey and Lebanon on Thursday, the first of his papacy — and his biggest test yet.`\
 https://nytimes.com/2025/11/27/world/middleeast/pope-leo-trip.html
