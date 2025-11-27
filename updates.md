@@ -1,3 +1,5 @@
+
+
 **The D.C. shooting suspect had worked with C.I.A.-backed units in Afghanistan.**\
 `By Julian E. Barnes and Hamed Aleaziz`\
 https://nytimes.com/live/2025/11/27/us/national-guard-shooting-dc/the-dc-shooting-suspect-had-worked-with-cia-backed-units-in-afghanistan
