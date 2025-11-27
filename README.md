@@ -1,3 +1,7 @@
+**Why Kieffer Moore is the key to unlocking Wrexham's goalscoring potential in the Championship**\
+`The return of the big striker from injury immediately opened up opportunities for teammates – something Phil Parkinson needs more of`\
+https://nytimes.com/athletic/6835822/2025/11/27/wrexham-goalscorer-spread-bristol-city/
+
 **Tottenham's entertaining defeat at PSG offers Frank an attacking blueprint**\
 `After the dour defeat against Arsenal, Spurs' head coach selected a more adventurous line-up and was rewarded, even in defeat at PSG`\
 https://nytimes.com/athletic/6841359/2025/11/27/tottenham-psg-thomas-frank/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6830866/2025/11/27/travis-head-australia-ashes-hero
 **Michigan wins Players Era Festival title in blowout win over Gonzaga**\
 `Michigan so thoroughly dominated the Zags that in the second half, they were attempting Harlem Globetrotters-esque reverse dunks.`\
 https://nytimes.com/athletic/6841681/2025/11/27/michigan-gonzaga-players-era-festival-title/
-
-**FPL: The best replacements for your AFCON departures**\
-`Following on from our previous article, we break down the best replacements as well as the players who might benefit most once AFCON starts`\
-https://nytimes.com/athletic/6837664/2025/11/27/fantasy-premier-league-fpl-afcon-salah-mbeumo/
 
