@@ -1,3 +1,7 @@
+**Pope Departs on First Foreign Trip**\
+`Leo XIV arrived in Ankara, Turkey, for the opening leg of a trip that will also take in Lebanon.`\
+https://nytimes.com/2025/11/27/world/middleeast/pope-first-foreign-trip-turkey-erdogan.html
+
 **ABBA’s Popular Hologram Show Could Come to New York City**\
 `ABBA Voyage, the popular London show, features holograph versions of the Swedish pop band when they were decades younger.`\
 https://nytimes.com/2025/11/27/nyregion/abba-voyage-nyc.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/27/arts/television/jimmy-fallon-thanksgiving-drinksg
 **Warriors star Stephe Curry exits with right quad contusion, will get MRI**\
 `Curry stayed in the game before heading to the locker room to get checked out during a timeout called in the final seconds.`\
 https://nytimes.com/athletic/6841789/2025/11/27/steph-curry-warriors-rockets-right-quad-contusion-mri/
-
-**Arne Slot and Liverpool. What next?**\
-`It would have been unthinkable until very recently, but the head coach faced questions about his future after yet another defeat`\
-https://nytimes.com/athletic/6841554/2025/11/27/arne-slot-liverpool-psv-eindhoven/
 

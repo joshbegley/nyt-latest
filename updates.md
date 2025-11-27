@@ -1,3 +1,7 @@
+**Pope Departs on First Foreign Trip**\
+`Leo XIV arrived in Ankara, Turkey, for the opening leg of a trip that will also take in Lebanon.`\
+https://nytimes.com/2025/11/27/world/middleeast/pope-first-foreign-trip-turkey-erdogan.html
+
 **ABBA’s Popular Hologram Show Could Come to New York City**\
 `ABBA Voyage, the popular London show, features holograph versions of the Swedish pop band when they were decades younger.`\
 https://nytimes.com/2025/11/27/nyregion/abba-voyage-nyc.html
