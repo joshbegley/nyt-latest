@@ -1,3 +1,7 @@
+**Arsenal's squad depth is a frightening prospect for their rivals**\
+`Mikel Arteta was able to turn to his bench to defeat Bayern Munich – when you have a winning team, everyone wants to be part of it`\
+https://nytimes.com/athletic/6841516/2025/11/27/arsenal-squad-depth-bayern-champions-league/
+
 **Jimmy Fallon Gets Into the Spirit of ‘Drinksgiving’**\
 `“’Twas the night before Thanksgiving, and in your parents’ house, they put the Peloton in your old bedroom, so you’re sleeping on the couch,” Fallon mused.`\
 https://nytimes.com/2025/11/27/arts/television/jimmy-fallon-thanksgiving-drinksgiving.html
@@ -7,7 +11,7 @@ https://nytimes.com/2025/11/27/arts/television/jimmy-fallon-thanksgiving-drinksg
 https://nytimes.com/athletic/6841789/2025/11/27/steph-curry-warriors-rockets-right-quad-contusion-mri/
 
 **Arne Slot and Liverpool. What next?**\
-`Liverpool look broken.`\
+`It would have been unthinkable until very recently, but the head coach faced questions about his future after yet another defeat`\
 https://nytimes.com/athletic/6841554/2025/11/27/arne-slot-liverpool-psv-eindhoven/
 
 **The New York Times in Print for Thursday, Nov. 27, 2025**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6837664/2025/11/27/fantasy-premier-league-fpl-afcon
 **Trump Administration Pauses Immigration From Afghanistan After D.C. Shooting**\
 `The U.S. agency overseeing immigration made the announcement after an Afghan man shot two National Guard troops near the White House.`\
 https://nytimes.com/2025/11/27/us/trump-immigration-pause-afghanistan.html
-
-**Could Mason Greenwood be going to the World Cup?**\
-`The Marseille forward is the top scorer in France, impressing in the Champions League, has England ambitions and is wanted by Jamaica`\
-https://nytimes.com/athletic/6839845/2025/11/27/mason-greenwood-jamaica-england-world-cup/
 
