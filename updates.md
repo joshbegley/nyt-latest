@@ -1,3 +1,15 @@
+**Eminem joins Jack White for Thanksgiving halftime show in Detroit**\
+`Eminem surprised fans by joining Jack White on stage for the Detroit Lions’ 2025 Thanksgiving halftime show.`\
+https://nytimes.com/athletic/6843547/2025/11/27/eminem-jack-white-detroit-lions-thanksgiving-halftime/
+
+**A.I. and the Trillion-Dollar Question**\
+`Even the companies building the technology don’t seem exactly sure where it’s headed.`\
+https://nytimes.com/2025/11/27/world/ai-valuations-markets-technology-hongkong-fire.html
+
+**Ruth Thorne-Thomsen, Photographer of Dreamlike Tableaux, Dies at 82**\
+`Using a pinhole camera, she captured miniature landscapes that she had fashioned to resemble surreal versions of 19th-century travel photos.`\
+https://nytimes.com/2025/11/27/arts/ruth-thorne-thomsen-dead.html
+
 **A Bunch of People Are Out of Town, Let’s Feast!**\
 `Four restaurants to check out before the holiday crowds descend in full force.`\
 https://nytimes.com/2025/11/27/dining/a-bunch-of-people-are-out-of-town-lets-feast.html
