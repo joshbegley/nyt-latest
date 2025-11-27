@@ -1,3 +1,23 @@
+**Heading to the Mideast, Pope Leo May Show ‘Who He Really Is’**\
+`The pontiff begins a trip to Turkey and Lebanon on Thursday, the first of his papacy — and his biggest test yet.`\
+https://nytimes.com/2025/11/27/world/middleeast/pope-leo-trip.html
+
+**Can Joseph Woll help the Maple Leafs turn their season around?**\
+`Woll was the deciding factor in earning two points to start the Leafs' longest road trip of the season.`\
+https://nytimes.com/athletic/6841648/2025/11/27/maple-leafs-joseph-woll-blue-jackets/
+
+**Connections: Sports Edition Coach: Hints for Nov. 27, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6841692/2025/11/27/connections-sports-edition-hints-for-nov-27-2025/
+
+**Corrections: Nov. 27, 2025**\
+`Corrections that appeared in print on Thursday, Nov. 27, 2025.`\
+https://nytimes.com/2025/11/27/pageoneplus/corrections-nov-27-2025.html
+
+**Quote of the Day: In GPS Age, Aspiring Cabbies Study London, Lane by Lane**\
+`Quotation of the Day for Thursday, November 27, 2025.`\
+https://nytimes.com/2025/11/26/pageoneplus/quote-of-the-day-in-gps-age-aspiring-cabbies-study-london-lane-by-lane.html
+
 **LeBron James, Darius Garland among NBA stars leading Thanksgiving drives**\
 `From turkey drives to youth feasts, NBA players made a visible impact this holiday week.`\
 https://nytimes.com/athletic/6840555/2025/11/26/nba-stars-leading-thanksgiving-drives-lebron-james-darius-garland/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6841546/2025/11/26/bucks-heat-nba-cup-group-play-lo
 **Suddenly unbeatable, the Raptors have their longest win streak since 2020**\
 `Thanks to Brandon Ingram, the Toronto Raptors — winners of nine in a row — cannot find a way to lose.`\
 https://nytimes.com/athletic/6841556/2025/11/26/raptors-brandon-ingram-winning-streak-nba/
-
-**Cade Cunningham, Pistons see win streak snapped after clutch-time struggles**\
-`The Pistons were a bad bounce on a Cade Cunningham free throw from a chance to extend the streak to 14 straight and are hungry for more.`\
-https://nytimes.com/athletic/6841235/2025/11/26/pistons-celtics-winning-streak-snapped-nba/
-
-**Tread on Me!**\
-`Alexander Liebeskind goes back to his roots.`\
-https://nytimes.com/2025/11/26/crosswords/daily-puzzle-2025-11-27.html
-
-**What Is Operation Allies Welcome, the Program That Gave Some Afghans Entry to the U.S.?**\
-`The Biden administration set up the initiative after the Taliban retook power in Afghanistan in August 2021 for those who assisted U.S. troops.`\
-https://nytimes.com/2025/11/26/us/operation-allies-welcome-dc-shooting.html
-
-**Hong Kong Arrests 3 Tied to Construction Company After Deadly Fire**\
-`The police said that building materials used by the company for the work at Wang Fuk Court may not have been up to fire safety standards. The police did not identify the company or who was arrested.`\
-https://nytimes.com/2025/11/26/world/asia/arrests-hong-kong-fire-manslaughter.html
-
-**Rams' Ahkello Witherspoon returns to practice as Roger McCreary goes on IR**\
-`Witherspoon's return creates a good problem for the Rams at outside cornerback.`\
-https://nytimes.com/athletic/6841364/2025/11/26/rams-ahkello-witherspoon-returns-ir/
 

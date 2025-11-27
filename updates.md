@@ -1,3 +1,23 @@
+**Heading to the Mideast, Pope Leo May Show ‘Who He Really Is’**\
+`The pontiff begins a trip to Turkey and Lebanon on Thursday, the first of his papacy — and his biggest test yet.`\
+https://nytimes.com/2025/11/27/world/middleeast/pope-leo-trip.html
+
+**Can Joseph Woll help the Maple Leafs turn their season around?**\
+`Woll was the deciding factor in earning two points to start the Leafs' longest road trip of the season.`\
+https://nytimes.com/athletic/6841648/2025/11/27/maple-leafs-joseph-woll-blue-jackets/
+
+**Connections: Sports Edition Coach: Hints for Nov. 27, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6841692/2025/11/27/connections-sports-edition-hints-for-nov-27-2025/
+
+**Corrections: Nov. 27, 2025**\
+`Corrections that appeared in print on Thursday, Nov. 27, 2025.`\
+https://nytimes.com/2025/11/27/pageoneplus/corrections-nov-27-2025.html
+
+**Quote of the Day: In GPS Age, Aspiring Cabbies Study London, Lane by Lane**\
+`Quotation of the Day for Thursday, November 27, 2025.`\
+https://nytimes.com/2025/11/26/pageoneplus/quote-of-the-day-in-gps-age-aspiring-cabbies-study-london-lane-by-lane.html
+
 **LeBron James, Darius Garland among NBA stars leading Thanksgiving drives**\
 `From turkey drives to youth feasts, NBA players made a visible impact this holiday week.`\
 https://nytimes.com/athletic/6840555/2025/11/26/nba-stars-leading-thanksgiving-drives-lebron-james-darius-garland/

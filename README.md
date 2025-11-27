@@ -1,3 +1,11 @@
+**The Tactics Board: Why has the 4-3-1-2 disappeared?**\
+`The final part of The Athletic's series on football formations takes a close look at the demise of the 4-3-1-2 diamond`\
+https://nytimes.com/athletic/6823347/2025/11/27/tactics-board-how-4-3-1-2-works/
+
+**Aston Villa, Portugal and the free-kick technology that assisted three goals in two weeks**\
+`Trackman’s launch monitor, which helps the world’s best golfers revolutionise their shots, might now have its crowning moment in football`\
+https://nytimes.com/athletic/6837555/2025/11/27/aston-villa-portugal-premier-league-world-cup-trackman/
+
 **Heading to the Mideast, Pope Leo May Show ‘Who He Really Is’**\
 `The pontiff begins a trip to Turkey and Lebanon on Thursday, the first of his papacy — and his biggest test yet.`\
 https://nytimes.com/2025/11/27/world/middleeast/pope-leo-trip.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/26/us/national-guard-dc-shooting-suspect.html
 **Before the Shooting, Some Troops and Officials Worried About the Guard’s Safety**\
 `In an internal memo, Guard commanders warned that troops were in a “heightened threat environment.”`\
 https://nytimes.com/2025/11/26/us/guard-troops-officials-worried-safety.html
-
-**The Giannis-less Bucks couldn't handle the surging Heat in Miami**\
-`With Antetokounmpo missing his fourth consecutive game, the Bucks tied their longest losing streak in a decade.`\
-https://nytimes.com/athletic/6841546/2025/11/26/bucks-heat-nba-cup-group-play-loss/
-
-**Suddenly unbeatable, the Raptors have their longest win streak since 2020**\
-`Thanks to Brandon Ingram, the Toronto Raptors — winners of nine in a row — cannot find a way to lose.`\
-https://nytimes.com/athletic/6841556/2025/11/26/raptors-brandon-ingram-winning-streak-nba/
 
