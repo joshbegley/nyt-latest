@@ -1,3 +1,11 @@
+**The New York Times in Print for Thursday, Nov. 27, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/11/27/todays-new-york-times
+
+**If You’re Reading This on Thanksgiving, It’s Not Too Late**\
+`Last-minute holiday recipes for side dishes and desserts, and a few ideas for tomorrow.`\
+https://nytimes.com/2025/11/27/dining/if-youre-reading-this-on-thanksgiving-its-not-too-late.html
+
 **Travis Head, Australia's new Ashes hero and the magic of the moustache**\
 `England were put to the sword by the makeshift opener in Perth, but they have suffered at the hands of moustachioed Australians before`\
 https://nytimes.com/athletic/6830866/2025/11/27/travis-head-australia-ashes-hero-moustache/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6840068/2025/11/27/las-vegas-grand-prix-mailbag/
 **The Tactics Board: Why has the 4-3-1-2 disappeared?**\
 `The final part of The Athletic's series on football formations takes a close look at the demise of the 4-3-1-2 diamond`\
 https://nytimes.com/athletic/6823347/2025/11/27/tactics-board-how-4-3-1-2-works/
-
-**Aston Villa, Portugal and the free-kick technology that assisted three goals in two weeks**\
-`Trackman’s launch monitor, which helps the world’s best golfers revolutionise their shots, might now have its crowning moment in football`\
-https://nytimes.com/athletic/6837555/2025/11/27/aston-villa-portugal-premier-league-world-cup-trackman/
-
-**Heading to the Mideast, Pope Leo May Show ‘Who He Really Is’**\
-`The pontiff begins a trip to Turkey and Lebanon on Thursday — the first foreign voyage of his papacy, and his biggest test yet.`\
-https://nytimes.com/2025/11/27/world/middleeast/pope-leo-trip.html
 
