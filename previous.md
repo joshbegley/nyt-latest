@@ -1,3 +1,7 @@
+**How to watch Maryland vs. Alabama men's basketball: Time, TV, streaming**\
+`Find out how to watch the Maryland Terrapins play the Alabama Crimson Tide, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6841207/2025/11/26/maryland-vs-alabama-stream-how-to-watch-nov-27/
+
 **Pushing the Limits**\
 `Explore the thrill, speed and physical and mental challenges of racing across water in world-class events such as Mubadala Abu Dhabi Sail Grand Prix.`\
 https://nytimes.com/paidpost/athletic/mubadala/pushing-the-limits.html
@@ -10,7 +14,7 @@ https://nytimes.com/athletic/6801828/2025/11/26/toronto-blue-jays-dylan-cease-fr
 `It's the second time this season Smith has flipped off fans.`\
 https://nytimes.com/athletic/6841108/2025/11/26/geno-smith-apologizes-raiders-fans/
 
-**Broncos' Alex Singleton back in action after having cancerous tumor removed**\
+**Broncos' Alex Singleton back in action after cancerous tumor removed**\
 `Star cornerback Pat Surtain, who missed the past three games with a pectoral injury, also returned to practice Wednesday.`\
 https://nytimes.com/athletic/6837639/2025/11/26/broncos-alex-singleton-return-cancer/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/26/us/politics/dominican-republic-us-military.html
 **Trump Says South Africa Is Not Invited to G20 Summit in U.S. in 2026**\
 `The president did not attend this year’s annual gathering in South Africa, which has been a frequent target of his attacks.`\
 https://nytimes.com/2025/11/26/world/africa/trump-south-africa-g20.html
-
-**As Hopes for a Trade Deal With Trump Vanish, Canada Tackles Tariff Fallout**\
-`Prime Minister Mark Carney announced curbs on steel imports, a new tariff and help with steel and lumber freight costs in a bid to aid Canadian industries.`\
-https://nytimes.com/2025/11/26/world/canada/trump-carney-canada-tariffs-trade.html
 

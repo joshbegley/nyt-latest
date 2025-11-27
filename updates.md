@@ -1,3 +1,11 @@
+**How to watch Maryland vs. Alabama men's basketball: Time, TV, streaming**\
+`Find out how to watch the Maryland Terrapins play the Alabama Crimson Tide, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6841207/2025/11/26/maryland-vs-alabama-stream-how-to-watch-nov-27/
+
+**Broncos' Alex Singleton back in action after cancerous tumor removed**\
+`Star cornerback Pat Surtain, who missed the past three games with a pectoral injury, also returned to practice Wednesday.`\
+https://nytimes.com/athletic/6837639/2025/11/26/broncos-alex-singleton-return-cancer/
+
 **Blue Jays, Dylan Cease agree to 7-year, $210M contract: Sources**\
 `With Max Scherzer and Chris Bassitt coming off the books, the Jays entered the winter looking to add a top starter.`\
 https://nytimes.com/athletic/6801828/2025/11/26/toronto-blue-jays-dylan-cease-free-agent-signing-sources/
