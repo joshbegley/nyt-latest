@@ -1,3 +1,11 @@
+**Here’s What We Know About the National Guard Shooting Victims**\
+`The father of one of the West Virginia National Guard members said his daughter had a “mortal wound.” A man at the other member’s home asked for prayers for his son.`\
+https://nytimes.com/2025/11/27/us/national-guard-shooting-andrew-wolfe-sarah-beckstrom.html
+
+**Missouri, Eli Drinkwitz agree to contract extension through 2031**\
+`After being rumored as a candidate for other openings, Drinkwitz agreed to an extension that tacks two years onto his deal.`\
+https://nytimes.com/athletic/6842971/2025/11/27/missouri-eli-drinkwitz-contract-extension-2031/
+
 **U.S. Reviews Biden Asylum Cases After Shooting**\
 `A Homeland Security Department spokeswoman accused the previous administration of failing to vet asylum applicants “on a massive scale.”`\
 https://nytimes.com/2025/11/27/us/politics/biden-asylum-cases-shooting.html
