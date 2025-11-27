@@ -1,3 +1,7 @@
+**Learning new tricks: 76ers' Tyrese Maxey joins National Dog Show fun**\
+`Maxey directed two energetic dogs through a series of obstacles that included tunnels, weave poles and a tire for the dogs to leap through.`\
+https://nytimes.com/athletic/6843282/2025/11/27/76ers-tyrese-maxey-2025-national-dog-show/
+
 **Colts' Daniel Jones has fractured fibula, plans to play through it: Report**\
 `Jones said Wednesday he'll be "ready to go on Sunday." He was a full participant in practice Thursday, league sources said.`\
 https://nytimes.com/athletic/6843336/2025/11/27/colts-daniel-jones-fibula-injury/
@@ -10,7 +14,7 @@ https://nytimes.com/athletic/6843272/2025/11/27/aston-villa-young-boys-europa-le
 `Curry exited at the end of Wednesday's loss to the Rockets with the injury.`\
 https://nytimes.com/athletic/6843110/2025/11/27/warriors-steph-curry-injury-update/
 
-**Lions receiver Amon-Ra St. Brown exits with ankle injury, questionable to return**\
+**Lions receiver Amon-Ra St. Brown ruled out with ankle injury vs. Packers**\
 `The Lions are already without their top two tight ends.`\
 https://nytimes.com/athletic/6843254/2025/11/27/lions-amon-ra-st-brown-ankle-injury-questionable/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6842971/2025/11/27/missouri-eli-drinkwitz-contract-
 **U.S. Reviews Biden Asylum Cases After Shooting**\
 `A Homeland Security Department spokeswoman accused the previous administration of failing to vet asylum applicants “on a massive scale.”`\
 https://nytimes.com/2025/11/27/us/politics/biden-asylum-cases-shooting.html
-
-**Valerenga player cleared of doping violation after ingesting rubber from artificial pitch**\
-`An investigation found that the rubber crumb from an artificial pitch contained the banned substance 1,3-dimethylbutylamine (DMBA).`\
-https://nytimes.com/athletic/6840546/2025/11/27/valerenga-anti-doping-rubber-crumb/
 
