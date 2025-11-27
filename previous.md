@@ -1,3 +1,19 @@
+**The Nigerian Musician Championed by Zohran Mamdani**\
+`Our critic’s latest Song of the Week is by ODUMODUBLVCK, an artist who embodies the full spectrum of Nigerian Afrobeats.`\
+https://nytimes.com/video/podcasts/100000010544923/the-nigerian-musician-championed-by-zohran-mamdani.html
+
+**Pope Leo Visits Mideast on First Foreign Trip as Pontiff**\
+`Pope Leo XIV landed in Muslim-majority Turkey on Thursday, beginning the first international trip of his papacy. The voyage is aimed at promoting interfaith dialogue and cooperation between Christian groups.`\
+https://nytimes.com/video/world/middleeast/100000010551743/pope-leo-turkey-trip.html
+
+**Map: Small Quakes Shake Northern California on Thanksgiving Morning**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/11/27/us/earthquake-northern-california-tracker.html
+
+**Winter Storm in Northern U.S. Expected to Snarl Post-Thanksgiving Travel**\
+`Forecasters say a winter storm could disrupt travel, dumping up to a foot of snow across parts of the Midwest through the holiday weekend.`\
+https://nytimes.com/2025/11/27/weather/winter-storm-thanksgiving-travel.html
+
 **Suspected Shooter Was in a ‘Zero Unit’ in Afghanistan. Here’s What We Know.**\
 `The units were backed by the C.I.A. and trained to conduct missions in Afghanistan during the U.S. war in the country.`\
 https://nytimes.com/2025/11/27/us/dc-shooting-suspect-afghanistan-cia-unit.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/11/27/arts/klimt-african-prince-hungary-austria.html
 **Putin Defends Witkoff Against Accusations of Pro-Russia Bias**\
 `The Russian leader called the U.S. special envoy “an intelligent man” who is properly representing his country in peace negotiations.`\
 https://nytimes.com/2025/11/27/world/europe/putin-witkoff-trump.html
-
-**Intelligence on U.S. Military’s Boat Strikes Is Limited**\
-`The U.S. military has killed more than 80 people since the campaign began in early September. But it does not know who specifically is being killed.`\
-https://nytimes.com/2025/11/27/us/politics/us-military-boat-strikes.html
-
-**Robert A.M. Stern, Architect Who Reinvented Prewar Splendor, Dies at 86**\
-`He designed museums, schools and libraries before winning international acclaim late in life for 15 Central Park West in Manhattan, hailed as a rebirth of the luxury apartment building.`\
-https://nytimes.com/2025/11/27/arts/design/robert-am-stern-dead.html
-
-**Hong Kong Residents Reel From Deadliest Fire in Decades**\
-`Dozens were killed in a fire that engulfed several apartment buildings in Hong Kong. Firefighters were still battling the blaze on Thursday, and dozens of people were still missing.`\
-https://nytimes.com/video/world/asia/100000010551811/hong-kong-deadliest-fire-in-decades-residents.html
-
-**How to watch North Carolina vs. Michigan State men's basketball: Time, TV, streaming**\
-`Find out how to watch the North Carolina Tar Heels play the Michigan State Spartans, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6842899/2025/11/27/north-carolina-vs-michigan-state-stream-how-to-watch-nov-27/
 

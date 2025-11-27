@@ -1,3 +1,19 @@
+**The Nigerian Musician Championed by Zohran Mamdani**\
+`Our critic’s latest Song of the Week is by ODUMODUBLVCK, an artist who embodies the full spectrum of Nigerian Afrobeats.`\
+https://nytimes.com/video/podcasts/100000010544923/the-nigerian-musician-championed-by-zohran-mamdani.html
+
+**Pope Leo Visits Mideast on First Foreign Trip as Pontiff**\
+`Pope Leo XIV landed in Muslim-majority Turkey on Thursday, beginning the first international trip of his papacy. The voyage is aimed at promoting interfaith dialogue and cooperation between Christian groups.`\
+https://nytimes.com/video/world/middleeast/100000010551743/pope-leo-turkey-trip.html
+
+**Map: Small Quakes Shake Northern California on Thanksgiving Morning**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/11/27/us/earthquake-northern-california-tracker.html
+
+**Winter Storm in Northern U.S. Expected to Snarl Post-Thanksgiving Travel**\
+`Forecasters say a winter storm could disrupt travel, dumping up to a foot of snow across parts of the Midwest through the holiday weekend.`\
+https://nytimes.com/2025/11/27/weather/winter-storm-thanksgiving-travel.html
+
 **Suspected Shooter Was in a ‘Zero Unit’ in Afghanistan. Here’s What We Know.**\
 `The units were backed by the C.I.A. and trained to conduct missions in Afghanistan during the U.S. war in the country.`\
 https://nytimes.com/2025/11/27/us/dc-shooting-suspect-afghanistan-cia-unit.html
