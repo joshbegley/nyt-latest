@@ -1,3 +1,7 @@
+**Giants QB Jaxson Dart clears concussion protocol ahead of Patriots game**\
+`Rookie QB missed the previous two games due to a concussion he suffered in the Giants' Week 10 loss to the Chicago Bears.`\
+https://nytimes.com/athletic/6836827/2025/11/27/ny-giants-qb-jaxson-dart-concussion-patriots/
+
 **Two-time major champion golfer Fuzzy Zoeller dies at 74**\
 `Golfer saw his legacy tainted by a racially insensitive comment about Tiger Woods in 1997.`\
 https://nytimes.com/athletic/6843267/2025/11/27/fuzzy-zoeller-major-champion-dies/
