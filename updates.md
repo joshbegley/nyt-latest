@@ -1,3 +1,7 @@
+**Footage Shows Early Stages of Hong Kong Fire**\
+`An eyewitness filmed the early moments of a fire that grew into a deadly blaze, consuming an apartment complex in Hong Kong.`\
+https://nytimes.com/video/world/asia/100000010551289/hong-kong-fire.html
+
 **How to watch Giants vs. Patriots: Time, TV, streaming**\
 `Find out how to watch the New York Giants play the New England Patriots, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6841880/2025/11/27/giants-vs-patriots-stream-how-to-watch-dec-1/
