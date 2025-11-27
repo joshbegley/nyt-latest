@@ -1,3 +1,8 @@
+**Tristan Jarry's redemption tour resumes as Penguins hold off Sabres: 10 observations**\
+`Jarry picked up right where he left off after returning from injury in Pittsburgh's 4-2 win over Buffalo.
+`\
+https://nytimes.com/athletic/6841585/2025/11/27/penguins-sabres-tristan-jarry-observations/
+
 **‘No Alarm Went Off’: Hong Kong Fire Survivor Recounts Harrowing Escape**\
 `Many windows were covered, preventing residents from seeing the fire and smoke, one survivor said.`\
 https://nytimes.com/2025/11/27/world/asia/hong-kong-fire-survivors-escape.html
