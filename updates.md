@@ -1,3 +1,7 @@
+**Blue Jays, Dylan Cease agree to 7-year, $210M contract: Sources**\
+`With Max Scherzer and Chris Bassitt coming off the books, the Jays entered the winter looking to add a top starter.`\
+https://nytimes.com/athletic/6801828/2025/11/26/toronto-blue-jays-dylan-cease-free-agent-signing-sources/
+
 **Pushing the Limits**\
 `Explore the thrill, speed and physical and mental challenges of racing across water in world-class events such as Mubadala Abu Dhabi Sail Grand Prix.`\
 https://nytimes.com/paidpost/athletic/mubadala/pushing-the-limits.html

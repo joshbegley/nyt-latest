@@ -3,7 +3,7 @@
 https://nytimes.com/paidpost/athletic/mubadala/pushing-the-limits.html
 
 **Blue Jays, Dylan Cease agree to 7-year, $210M contract: Sources**\
-`With Max Scherzer and Chris Bassitt coming off the books, the Jays entered the winter looking to add a top starter. `\
+`With Max Scherzer and Chris Bassitt coming off the books, the Jays entered the winter looking to add a top starter.`\
 https://nytimes.com/athletic/6801828/2025/11/26/toronto-blue-jays-dylan-cease-free-agent-signing-sources/
 
 **Raiders' Geno Smith apologizes for flipping off fans**\
