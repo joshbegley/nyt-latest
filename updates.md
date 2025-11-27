@@ -1,3 +1,27 @@
+**FPL: The best replacements for your AFCON departures**\
+`Following on from our previous article, we break down the best replacements as well as the players who might benefit most once AFCON starts`\
+https://nytimes.com/athletic/6837664/2025/11/27/fantasy-premier-league-fpl-afcon-salah-mbeumo/
+
+**Trump Administration Pauses Immigration From Afghanistan After D.C. Shooting**\
+`The U.S. agency overseeing immigration made the announcement after an Afghan man shot two National Guard troops near the White House.`\
+https://nytimes.com/2025/11/27/us/trump-immigration-pause-afghanistan.html
+
+**Could Mason Greenwood be going to the World Cup?**\
+`The Marseille forward is the top scorer in France, impressing in the Champions League, has England ambitions and is wanted by Jamaica`\
+https://nytimes.com/athletic/6839845/2025/11/27/mason-greenwood-jamaica-england-world-cup/
+
+**The Alternative Premier League Table: No 13 — Errors that lead to shots and goals**\
+`A detailed look at how each club has been impacted by defensive errors so far this season `\
+https://nytimes.com/athletic/6839562/2025/11/27/the-alternative-premier-league-table-errors-leading-to-goals/
+
+**Mailbag: Why has Piastri's form dipped? Will the Strip be repaved?**\
+`The Las Vegas Grand Prix ensured there is still plenty of jeopardy in the drivers' championship. Our experts answer your questions`\
+https://nytimes.com/athletic/6840068/2025/11/27/las-vegas-grand-prix-mailbag/
+
+**Heading to the Mideast, Pope Leo May Show ‘Who He Really Is’**\
+`The pontiff begins a trip to Turkey and Lebanon on Thursday — the first foreign voyage of his papacy, and his biggest test yet.`\
+https://nytimes.com/2025/11/27/world/middleeast/pope-leo-trip.html
+
 **The Tactics Board: Why has the 4-3-1-2 disappeared?**\
 `The final part of The Athletic's series on football formations takes a close look at the demise of the 4-3-1-2 diamond`\
 https://nytimes.com/athletic/6823347/2025/11/27/tactics-board-how-4-3-1-2-works/
