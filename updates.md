@@ -1,3 +1,11 @@
+**Your Turkey Is Done at 165 Degrees**\
+`And more Thanksgiving Day affirmations, tips, snacks and drinks (margs, anyone?).`\
+https://nytimes.com/2025/11/27/dining/your-turkey-is-done-at-165-degrees.html
+
+**Why Arsenal's defensive lockdown of Harry Kane should not be underestimated**\
+`Kane’s lack of involvement was a reflection of the well-executed out-of-possession plan, rather than being a specific approach to target him`\
+https://nytimes.com/athletic/6842239/2025/11/27/arsenal-defensive-strength-kane-lockdown/
+
 **Russia Labels Navalny’s Anti-Corruption Group as Terrorist Organization**\
 `A legal assault against the opposition leader’s movement has deepened since his death in prison last year.`\
 https://nytimes.com/2025/11/27/world/europe/russia-navalny-terrorist.html

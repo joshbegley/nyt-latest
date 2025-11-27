@@ -1,3 +1,11 @@
+**Your Turkey Is Done at 165 Degrees**\
+`And more Thanksgiving Day affirmations, tips, snacks and drinks (margs, anyone?).`\
+https://nytimes.com/2025/11/27/dining/your-turkey-is-done-at-165-degrees.html
+
+**Why Arsenal's defensive lockdown of Harry Kane should not be underestimated**\
+`Kane’s lack of involvement was a reflection of the well-executed out-of-possession plan, rather than being a specific approach to target him`\
+https://nytimes.com/athletic/6842239/2025/11/27/arsenal-defensive-strength-kane-lockdown/
+
 **Russia Labels Navalny’s Anti-Corruption Group as Terrorist Organization**\
 `A legal assault against the opposition leader’s movement has deepened since his death in prison last year.`\
 https://nytimes.com/2025/11/27/world/europe/russia-navalny-terrorist.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/27/us/faith-winter-crash-dead-colorado-senator.html
 **AFC North Whiparound: What can keep the Ravens from winning the division?**\
 `Also, Thanksgiving complaints, each team's most telling stat and predictions as the Ravens and Bengals get things started.`\
 https://nytimes.com/athletic/6840521/2025/11/27/afc-north-whiparound-ravens-steelers-bengals-browns-week-13/
-
-**Labubu and KPop Demon Hunters Join Macy’s Thanksgiving Day Parade**\
-`Crowds in New York City bundled up to take in the latest version of a tradition that has run for nearly a century.`\
-https://nytimes.com/2025/11/27/nyregion/macys-thanksgiving-day-parade.html
-
-**Champions League projections: Arsenal's grip strengthens as Liverpool prospects fade**\
-`Our Opta-powered projections still have Bayern as second favourites to land the trophy in May, followed by reigning champions PSG`\
-https://nytimes.com/athletic/6842201/2025/11/27/champions-league-projections-md5-results/
 
