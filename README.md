@@ -1,3 +1,7 @@
+**What Is Operation Allies Welcome, the Program That Gave Some Afghans Entry to the U.S.?**\
+`The Biden administration set up the initiative after the Taliban retook power in Afghanistan in August 2021 for those who assisted U.S. troops.`\
+https://nytimes.com/2025/11/26/us/operation-allies-welcome-dc-shooting.html
+
 **Three people tied to a construction company were arrested on suspicion of manslaughter.**\
 `By Alexandra Stevenson`\
 https://nytimes.com/live/2025/11/26/world/hong-kong-fire/arrests-manslaughter
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/11/26/special-series/brooklyn-queens-expres
 **How to watch Maryland vs. Alabama men's basketball: Time, TV, streaming**\
 `Find out how to watch the Maryland Terrapins play the Alabama Crimson Tide, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6841207/2025/11/26/maryland-vs-alabama-stream-how-to-watch-nov-27/
-
-**Pushing the Limits**\
-`Explore the thrill, speed and physical and mental challenges of racing across water in world-class events such as Mubadala Abu Dhabi Sail Grand Prix.`\
-https://nytimes.com/paidpost/athletic/mubadala/pushing-the-limits.html
 
