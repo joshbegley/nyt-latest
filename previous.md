@@ -1,3 +1,7 @@
+**Leeds finishing 17th would be 'a great success', says Farke**\
+`Farke's side are 18th in the Premier League heading into Saturday's game at Manchester City.`\
+https://nytimes.com/athletic/6842637/2025/11/27/leeds-daniel-farke-manchester-city/
+
 **Jameis Winston details favorite Thanksgiving dish, Taysom Hill's advice**\
 `The Giants quarterback raved about a collard greens dish his wife Breion makes each year. `\
 https://nytimes.com/athletic/6842654/2025/11/27/jameis-winston-thanksgiving-giants-taysom-hill/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/27/world/europe/france-military-service.html
 **The British Public Thinks Immigration Is Up. It’s Actually Down, Sharply.**\
 `Net migration to Britain has fallen by almost 80 percent from its 2023 peak, according to data released on Thursday.`\
 https://nytimes.com/2025/11/27/world/europe/uk-immigration-statistics.html
-
-**Extreme Measures for the Fentanyl Crisis**\
-`Readers respond to a guest essay about America’s fentanyl problem. Also: A dark echo at Penn.`\
-https://nytimes.com/2025/11/27/opinion/fentanyl-drugs-trump.html
 

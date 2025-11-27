@@ -1,3 +1,7 @@
+**Leeds finishing 17th would be 'a great success', says Farke**\
+`Farke's side are 18th in the Premier League heading into Saturday's game at Manchester City.`\
+https://nytimes.com/athletic/6842637/2025/11/27/leeds-daniel-farke-manchester-city/
+
 **Jameis Winston details favorite Thanksgiving dish, Taysom Hill's advice**\
 `The Giants quarterback raved about a collard greens dish his wife Breion makes each year. `\
 https://nytimes.com/athletic/6842654/2025/11/27/jameis-winston-thanksgiving-giants-taysom-hill/
