@@ -1,3 +1,11 @@
+**Kimmich says 'set-piece' reliant Arsenal are not best team Bayern have faced this year**\
+`Arsenal defeated the German champions 3-1 on Wednesday night.`\
+https://nytimes.com/athletic/6842189/2025/11/27/arsenal-bayern-joshua-kimmich-champions-league/
+
+**How to watch 2025 F1 Qatar Grand Prix: Streaming, schedule and title odds**\
+`Las Vegas reshaped the F1 title race. Norris still leads, but Verstappen now has a real chance. How will Qatar impact the standings?`\
+https://nytimes.com/athletic/6841039/2025/11/27/f1-qatar-how-to-watch-title-odds/
+
 **NFL Thanksgiving watch guide: Packers-Lions, Chiefs-Cowboys, Burrow's return versus Lamar**\
 `The 2025 action is spread across three networks and 12 hours of live TV. Here's what to know and how to watch it all.`\
 https://nytimes.com/athletic/6837310/2025/11/27/thanksgiving-nfl-packers-lions-chiefs-cowboys-bengals-ravens/
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6841583/2025/11/27/todd-mclellan-red-wings-defense/
 **Self-inflicted mistakes send Sabres crashing back to East basement: 5 thoughts**\
 `Conor Timmins and Ukko-Pekka Luukkonen had rough outings, while Jack Quinn had a hand in both Buffalo goals.`\
 https://nytimes.com/athletic/6841626/2025/11/27/sabres-timmins-luukkonen-quinn-penguins/
-
-**Sunderland fan receives three-year ban for racially abusing Leeds' Ampadu and Ramazani**\
-`The incident occurred on February 17 this year, after Leeds’s last-gasp win over Sunderland at Elland Road.`\
-https://nytimes.com/athletic/6842099/2025/11/27/leeds-ethan-ampadu-largie-ramazani-racist-abuse/
-
-**Derrick White, Celtics find the blueprint in gritty win against Pistons**\
-`The Celtics were small, but scrappy. They made mistakes, but overcame them with heart in ending Detroit's 13-game winning streak.`\
-https://nytimes.com/athletic/6841586/2025/11/27/derrick-white-celtics-gritty-win-pistons/
 

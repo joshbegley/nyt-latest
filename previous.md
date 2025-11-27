@@ -1,40 +1,41 @@
-**What's Trending in the NFL: Most iconic Thanksgiving moments in NFL history**\
-`The NFL on Thanksgiving is embedded in our culture and so are these can't-forget moments from holiday games over the years.`\
-https://nytimes.com/athletic/6840039/2025/11/27/thanksgiving-nfl-moments-leon-lett-butt-fumble/
+**NFL Thanksgiving watch guide: Packers-Lions, Chiefs-Cowboys, Burrow's return versus Lamar**\
+`The 2025 action is spread across three networks and 12 hours of live TV. Here's what to know and how to watch it all.`\
+https://nytimes.com/athletic/6837310/2025/11/27/thanksgiving-nfl-packers-lions-chiefs-cowboys-bengals-ravens/
 
-**NFL Week 13 roundtable: Who wins Packers-Lions? Will Bears or Eagles make NFC title game?**\
-`A special holiday edition of our weekly roundtable breaks down Packers-Lions, Cowboys-Chiefs, Bengals-Ravens and Bears-Eagles.`\
-https://nytimes.com/athletic/6837405/2025/11/27/nfl-week-13-packers-lions-bears-eagles/
+**What Frank Ragnow's return from retirement means for the Lions' offense**\
+`Few saw this news coming, but it undoubtedly alters how we think about the Lions this season.`\
+https://nytimes.com/athletic/6841358/2025/11/27/frank-ragnow-detroit-lions-returns/
 
-**The New York Times International Edition in Print for Friday, Nov. 28, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/11/27/todays-new-york-times-international-edition
+**Kaprizov extends record with latest OT winner after Wild rally in third: Takeaways**\
+`The Wild extended their point streak against the Blackhawks to 17 games after a slow start forced them to rally.`\
+https://nytimes.com/athletic/6841527/2025/11/27/wild-rally-kaprizov-overtime-winner-blackhawks/
 
-**Here’s the latest.**\
-`By Hamed Aleaziz, Campbell Robertson, Elian Peltier and Jin Yu Young`\
-https://nytimes.com/live/2025/11/27/us/national-guard-shooting-dc/heres-the-latest
+**Tristan Jarry's redemption tour resumes as Penguins hold off Sabres: 10 observations**\
+`Jarry picked up right where he left off after returning from injury in Pittsburgh's 4-2 win over Buffalo.
+`\
+https://nytimes.com/athletic/6841585/2025/11/27/penguins-sabres-tristan-jarry-observations/
 
-**Live Updates: 2 National Guard Members in Critical Condition After D.C. Shooting**\
-`The suspect, an Afghan man who entered the United States in 2021, was arrested after the shooting near the White House. President Trump halted immigration applications from Afghanistan.`\
-https://nytimes.com/live/2025/11/27/us/national-guard-shooting-dc
+**As Blue Jackets blow another lead, their margin for error is getting thinner**\
+`The Blue Jackets' propensity for blowing leads and throwing away valuable points has become the theme of the early season.`\
+https://nytimes.com/athletic/6841582/2025/11/27/blue-jackets-maple-leafs-overtime-loss/
 
-**How to watch North Carolina vs. South Dakota State women's basketball: Time, TV, streaming**\
-`Find out how to watch the North Carolina Tar Heels play the South Dakota State Jackrabbits, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6842095/2025/11/27/north-carolina-vs-south-dakota-state-stream-how-to-watch-nov-27/
+**Why this Blackhawks losing streak feels different than the 56 that preceded it**\
+`Chicago has showed a lot of growth this season, even when its not winning.`\
+https://nytimes.com/athletic/6841748/2025/11/27/blackhawks-losing-streak-different/
 
-**How to watch Vanderbilt vs. VCU men's basketball: Time, TV, streaming**\
-`Find out how to watch the Vanderbilt Commodores play the VCU Rams, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6842093/2025/11/27/vanderbilt-vs-vcu-stream-how-to-watch-nov-27/
+**Todd McLellan is still waiting for the Red Wings to learn their lesson**\
+`Detroit dropped a home game to the last-place Predators Wednesday, leaving coach Todd McLellan repeating himself.`\
+https://nytimes.com/athletic/6841583/2025/11/27/todd-mclellan-red-wings-defense/
 
-**How Europe Lost Its Voice on Ukraine, Then Tried to Get It Back**\
-`European leaders were blindsided by President Trump’s 28-point-plan to end the Ukraine war, setting off a dash for influence.`\
-https://nytimes.com/2025/11/27/world/europe/europe-ukraine-trump.html
+**Self-inflicted mistakes send Sabres crashing back to East basement: 5 thoughts**\
+`Conor Timmins and Ukko-Pekka Luukkonen had rough outings, while Jack Quinn had a hand in both Buffalo goals.`\
+https://nytimes.com/athletic/6841626/2025/11/27/sabres-timmins-luukkonen-quinn-penguins/
 
-**‘We Are Going to Have to Fight Three Wars’**\
-`How much will Trump ask Zelensky to pay for peace in Ukraine?`\
-https://nytimes.com/2025/11/27/opinion/trump-russia-ukraine-putin-zelensky.html
+**Sunderland fan receives three-year ban for racially abusing Leeds' Ampadu and Ramazani**\
+`The incident occurred on February 17 this year, after Leeds’s last-gasp win over Sunderland at Elland Road.`\
+https://nytimes.com/athletic/6842099/2025/11/27/leeds-ethan-ampadu-largie-ramazani-racist-abuse/
 
-**They Upsized to a Single-Family House in Brooklyn for Less Than $900,000. But Where?**\
-`When their Ditmas Park apartment became too cramped, a young family looked for a house in central Brooklyn where they could spread out. Here’s what they found.`\
-https://nytimes.com/interactive/2025/11/27/realestate/brooklyn-houses-sale.html
+**Derrick White, Celtics find the blueprint in gritty win against Pistons**\
+`The Celtics were small, but scrappy. They made mistakes, but overcame them with heart in ending Detroit's 13-game winning streak.`\
+https://nytimes.com/athletic/6841586/2025/11/27/derrick-white-celtics-gritty-win-pistons/
 
