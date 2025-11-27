@@ -1,3 +1,7 @@
+**Three people tied to a construction company were arrested on suspicion of manslaughter.**\
+`By Alexandra Stevenson`\
+https://nytimes.com/live/2025/11/26/world/hong-kong-fire/arrests-manslaughter
+
 **Rams' Ahkello Witherspoon returns to practice as Roger McCreary goes on IR**\
 `Witherspoon's return creates a good problem for the Rams at outside cornerback.`\
 https://nytimes.com/athletic/6841364/2025/11/26/rams-ahkello-witherspoon-returns-ir/
