@@ -1,3 +1,7 @@
+**Intelligence on U.S. Military’s Boat Strikes Is Limited**\
+`The U.S. military has killed more than 80 people since the campaign began in early September. But it does not know who specifically is being killed.`\
+https://nytimes.com/2025/11/27/us/politics/us-military-boat-strikes.html
+
 **Robert A.M. Stern, Architect Who Reinvented Prewar Splendor, Dies at 86**\
 `He designed museums, schools and libraries before winning international acclaim late in life for 15 Central Park West in Manhattan, hailed as a rebirth of the luxury apartment building.`\
 https://nytimes.com/2025/11/27/arts/design/robert-am-stern-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/27/world/europe/russia-navalny-terrorist.html
 **Rocket Attack on Iraqi Gas Field Cuts Power to Most of Kurdistan**\
 `The strike is the latest in a string of attacks on energy infrastructure in Iraq’s northern Kurdish region, which some regional authorities have privately blamed on Iran-affiliated militias.`\
 https://nytimes.com/2025/11/27/world/middleeast/rocket-attack-iraq-power-kurdistan.html
-
-**Leeds finishing 17th would be 'a great success', says Farke**\
-`Farke's side are 18th in the Premier League heading into Saturday's game at Manchester City.`\
-https://nytimes.com/athletic/6842637/2025/11/27/leeds-daniel-farke-manchester-city/
 
