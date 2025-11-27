@@ -1,3 +1,11 @@
+**France Creates Voluntary Military Service as Europe Faces Russian Threat**\
+`The effort is aimed at young people and came after an army chief angered many by saying the country must accept the possible loss of children in a future war.`\
+https://nytimes.com/2025/11/27/world/europe/france-military-service.html
+
+**The British Public Think Immigration is Up. It’s Actually Down, Sharply.**\
+`Net migration to Britain has fallen by almost 80 percent from its 2023 peak, according to data released on Thursday.`\
+https://nytimes.com/2025/11/27/world/europe/uk-immigration-statistics.html
+
 **Extreme Measures for the Fentanyl Crisis**\
 `Readers respond to a guest essay about America’s fentanyl problem. Also: A dark echo at Penn.`\
 https://nytimes.com/2025/11/27/opinion/fentanyl-drugs-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/27/world/asia/hongkong-fire-photos.html
 **Pope Leo Visits Turkey on His First Trip as Pontiff**\
 `The pope started his six-day trip, which will also include a visit to Lebanon.`\
 https://nytimes.com/2025/11/27/world/europe/pope-leo-trip-pictures.html
-
-**Key fantasy football questions for Week 13: K9 unleashed? Minnesota to the Max?**\
-`Dalton Del Don breaks down the key fantasy football topics for Week 13, including backfield situations in Seattle, Tampa and New Orleans.`\
-https://nytimes.com/athletic/6841160/2025/11/27/key-fantasy-football-questions-for-week-13-k9-unleashed-minnesota-to-the-max/
-
-**Players Era has elite teams and matchups. Now it must improve format, atmosphere**\
-`Improving the format with a true bracket and amping up the atmosphere should be priorities for organizers in 2026.`\
-https://nytimes.com/athletic/6842225/2025/11/27/players-era-festival-2025-format-crowd/
 
