@@ -1,3 +1,7 @@
+**Why Kieffer Moore is the key to unlocking Wrexham's goalscoring potential in the Championship**\
+`The return of the big striker from injury immediately opened up opportunities for teammates – something Phil Parkinson needs more of`\
+https://nytimes.com/athletic/6835822/2025/11/27/wrexham-goalscorer-spread-bristol-city/
+
 **Tottenham's entertaining defeat at PSG offers Frank an attacking blueprint**\
 `After the dour defeat against Arsenal, Spurs' head coach selected a more adventurous line-up and was rewarded, even in defeat at PSG`\
 https://nytimes.com/athletic/6841359/2025/11/27/tottenham-psg-thomas-frank/
