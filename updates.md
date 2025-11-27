@@ -1,3 +1,11 @@
+**Learning new tricks: 76ers' Tyrese Maxey joins National Dog Show fun**\
+`Maxey directed two energetic dogs through a series of obstacles that included tunnels, weave poles and a tire for the dogs to leap through.`\
+https://nytimes.com/athletic/6843282/2025/11/27/76ers-tyrese-maxey-2025-national-dog-show/
+
+**Lions receiver Amon-Ra St. Brown ruled out with ankle injury vs. Packers**\
+`The Lions are already without their top two tight ends.`\
+https://nytimes.com/athletic/6843254/2025/11/27/lions-amon-ra-st-brown-ankle-injury-questionable/
+
 **Colts' Daniel Jones has fractured fibula, plans to play through it: Report**\
 `Jones said Wednesday he'll be "ready to go on Sunday." He was a full participant in practice Thursday, league sources said.`\
 https://nytimes.com/athletic/6843336/2025/11/27/colts-daniel-jones-fibula-injury/
