@@ -1,3 +1,7 @@
+**‘No Alarm Went Off’: Hong Kong Fire Survivor Recounts Harrowing Escape**\
+`Many windows were covered, preventing residents from seeing the fire and smoke, one survivor said.`\
+https://nytimes.com/2025/11/27/world/asia/hong-kong-fire-survivors-escape.html
+
 **Kimmich says 'set-piece reliant' Arsenal are not best team Bayern have faced this year**\
 `Arsenal defeated the German champions 3-1 on Wednesday night.`\
 https://nytimes.com/athletic/6842189/2025/11/27/arsenal-bayern-joshua-kimmich-champions-league/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6841748/2025/11/27/blackhawks-losing-streak-differe
 **Todd McLellan is still waiting for the Red Wings to learn their lesson**\
 `Detroit dropped a home game to the last-place Predators Wednesday, leaving coach Todd McLellan repeating himself.`\
 https://nytimes.com/athletic/6841583/2025/11/27/todd-mclellan-red-wings-defense/
-
-**Self-inflicted mistakes send Sabres crashing back to East basement: 5 thoughts**\
-`Conor Timmins and Ukko-Pekka Luukkonen had rough outings, while Jack Quinn had a hand in both Buffalo goals.`\
-https://nytimes.com/athletic/6841626/2025/11/27/sabres-timmins-luukkonen-quinn-penguins/
 

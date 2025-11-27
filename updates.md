@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6841585/2025/11/27/penguins-sabres-tristan-jarry-observations/
 
+**Tristan Jarry's redemption tour resumes as Penguins hold off Sabres: 10 observations**\
+`Jarry picked up right where he left off after returning from injury in Pittsburgh's 4-2 win over Buffalo.
+`\
+https://nytimes.com/athletic/6841585/2025/11/27/penguins-sabres-tristan-jarry-observations/
+
 **Kimmich says 'set-piece reliant' Arsenal are not best team Bayern have faced this year**\
 `Arsenal defeated the German champions 3-1 on Wednesday night.`\
 https://nytimes.com/athletic/6842189/2025/11/27/arsenal-bayern-joshua-kimmich-champions-league/
