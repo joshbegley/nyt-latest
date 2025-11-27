@@ -1,3 +1,11 @@
+**Explained: The trap that caught McLaren in Las Vegas F1 double disqualification**\
+`The reason for McLaren's double disqualification in the 2025 Las Vegas GP has come to light in the Qatar GP paddock`\
+https://nytimes.com/athletic/6842972/2025/11/27/explained-trap-mclaren-las-vegas-f1-double-disqualification/
+
+**Guinea-Bissau Installs Military Ruler After Claims of ‘Fabricated’ Coup**\
+`The opposition claimed a new general has been put in charge of the government to help keep the current president in power.`\
+https://nytimes.com/2025/11/27/world/africa/guinea-bissau-coup.html
+
 **Map: 6.0-Magnitude Earthquake Shakes Alaska Near Anchorage**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/11/27/us/earthquake-alaska-anchorage.html
