@@ -1,40 +1,40 @@
-**Chelsea dealt Earls Court blow as council approves development plan**\
-`The empty land at Earls Court has long been mooted as a potential site for a new stadium for Chelsea.`\
-https://nytimes.com/athletic/6839584/2025/11/27/chelsea-stadium-earls-court-stamford-bridge/
+**The New York Times News Quiz, Nov. 27, 2025**\
+`This week, instead of our usual news quiz, The Morning team has put together a food quiz to celebrate the holiday. Happy Thanksgiving!`\
+https://nytimes.com/interactive/2025/11/27/briefing/quiz-trump-thanksgiving-turkey.html
 
-**Pope Lands in Turkey, Planning to Meet Erdogan With a Message of Outreach**\
-`Leo XIV arrived in the country’s capital, Ankara, and will be received by President Recep Tayyip Erdogan on the opening leg of a trip that will also take in Lebanon.`\
-https://nytimes.com/2025/11/27/world/middleeast/pope-first-foreign-trip-turkey-erdogan.html
+**5 Years After His Death, John Prine Gets a Cinematic Send-Off**\
+`The singer and songwriter died in April 2020 of Covid-19, delaying proper tributes. Now he is the subject of a new documentary, “You Got Gold.”`\
+https://nytimes.com/2025/11/27/arts/music/john-prine-documentary-you-got-gold.html
 
-**ABBA’s Popular Hologram Show Could Come to New York City**\
-`ABBA Voyage, the popular London show, features holograph versions of the Swedish pop band when they were decades younger.`\
-https://nytimes.com/2025/11/27/nyregion/abba-voyage-nyc.html
+**This Year, the Billionaires Give Thanks for Trump**\
+`This year, it’s not about giving back; it’s about getting yours.`\
+https://nytimes.com/2025/11/27/opinion/culture/trump-billionaires-thanksgiving.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/11/27/crosswords/spelling-bee-forum.html
+**Irresistible Deals Put Them in Debt. Now They’re Trying to Manage Their Overspending.**\
+`The convenience of one-click purchases and “buy now, pay later” loans is making it easier for people to shop — and shop and shop — during the holidays.`\
+https://nytimes.com/2025/11/27/business/black-friday-shopping-debt.html
 
-**Footage Shows Early Stages of Hong Kong Fire**\
-`An eyewitness filmed the early moments of a fire that grew into a deadly blaze, consuming an apartment complex in Hong Kong.`\
-https://nytimes.com/video/world/asia/100000010551289/hong-kong-fire.html
+**Sean Duffy Longs for the ‘Golden Age’ of Air Travel. What Was That Like?**\
+`Back in the ’50s and ’60s, passengers (well-dressed, of course, and with perfect manners) could count on hot meals on china, plenty of legroom, the occasional piano bar, even wool blankets. Those days are gone.`\
+https://nytimes.com/2025/11/27/travel/air-travel-sean-duffy.html
 
-**How to watch Giants vs. Patriots: Time, TV, streaming**\
-`Find out how to watch the New York Giants play the New England Patriots, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6841880/2025/11/27/giants-vs-patriots-stream-how-to-watch-dec-1/
+**Gen X-ers Have Money to Spend. Why Are Retailers Ignoring Them?**\
+`Three in four Americans ages 45 to 60 say they expect to overspend for the holidays. They’re “sort of like the glue within the consumer spectrum.”`\
+https://nytimes.com/2025/11/27/business/gen-x-holiday-spending.html
 
-**Here’s the latest.**\
-`By Joy Dong, Alexandra Stevenson and Keith Bradsher`\
-https://nytimes.com/live/2025/11/27/world/hong-kong-fire/heres-the-latest
+**36 Hours in San Antonio**\
+`Stroll a 15-mile riverside promenade, eat street-style tacos and dance to Tejano and cumbia music in this big Texan city with a small-town feel.`\
+https://nytimes.com/interactive/2025/11/27/travel/things-to-do-san-antonio.html
 
-**Live Updates: Death Toll From Hong Kong Apartment Fire Rises to 55**\
-`Firefighters were still trying to fully extinguish the blaze, a day after it engulfed several towers in the complex. Many people were still trapped in the buildings.`\
-https://nytimes.com/live/2025/11/27/world/hong-kong-fire
+**A Guide to N.Y.C. Holiday Events: Music, Lights and More**\
+`Matinees, ice skating and train shows: Here are some of our favorite things to do this season.`\
+https://nytimes.com/2025/11/27/arts/a-guide-to-nyc-holiday-events.html
 
-**Arsenal's squad depth is a frightening prospect for their rivals**\
-`Mikel Arteta was able to turn to his bench to defeat Bayern Munich – when you have a winning team, everyone wants to be part of it`\
-https://nytimes.com/athletic/6841516/2025/11/27/arsenal-squad-depth-bayern-champions-league/
+**6 New Books We Love This Week**\
+`Reading recommendations from critics and editors at The New York Times.`\
+https://nytimes.com/2025/11/27/books/review/new-recommended-books.html
 
-**Jimmy Fallon Gets Into the Spirit of ‘Drinksgiving’**\
-`“’Twas the night before Thanksgiving, and in your parents’ house, they put the Peloton in your old bedroom, so you’re sleeping on the couch,” Fallon mused.`\
-https://nytimes.com/2025/11/27/arts/television/jimmy-fallon-thanksgiving-drinksgiving.html
+**Beekeepers, Farmers and the Fight to Save a Century-Old Research Hub**\
+`Industry groups and scientists have urged the Trump administration to reconsider its plan to close a renowned Agriculture Department center in Maryland and disperse its work around the country.`\
+https://nytimes.com/2025/11/27/us/politics/beekeepers-farmers-research-hub-barc.html
 
