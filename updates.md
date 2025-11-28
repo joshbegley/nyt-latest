@@ -1,3 +1,11 @@
+**Iowa vs. Nebraska: Hawkeyes offense rolls Huskers during rivalry-week rout**\
+`One year after putting together a six-win season, the Huskers failed to make substantial improvement despite making roster improvements.`\
+https://nytimes.com/athletic/6845651/2025/11/28/iowa-nebraska-score-result-football/
+
+**Ole Miss completes 11-1 season to likely seal Playoff bid, but Lane Kiffin decision looms**\
+`Kiffin, a candidate at LSU, said he hasn't made a decision yet. "I've got a lot of praying to do to figure that out tomorrow," he said.`\
+https://nytimes.com/athletic/6845696/2025/11/28/ole-miss-mississippi-state-score-result-lane-kiffin/
+
 **Ole Miss competes 11-1 season to likely seal Playoff bid, but Lane Kiffin decision looms**\
 `Kiffin, a candidate at LSU, said he hasn't made a decision yet. "I've got a lot of praying to do to figure that out tomorrow," he said.`\
 https://nytimes.com/athletic/6845696/2025/11/28/ole-miss-mississippi-state-score-result-lane-kiffin/

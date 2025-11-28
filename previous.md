@@ -1,4 +1,8 @@
-**Ole Miss competes 11-1 season to likely seal Playoff bid, but Lane Kiffin decision looms**\
+**Iowa vs. Nebraska: Hawkeyes offense rolls Huskers during rivalry-week rout**\
+`One year after putting together a six-win season, the Huskers failed to make substantial improvement despite making roster improvements.`\
+https://nytimes.com/athletic/6845651/2025/11/28/iowa-nebraska-score-result-football/
+
+**Ole Miss completes 11-1 season to likely seal Playoff bid, but Lane Kiffin decision looms**\
 `Kiffin, a candidate at LSU, said he hasn't made a decision yet. "I've got a lot of praying to do to figure that out tomorrow," he said.`\
 https://nytimes.com/athletic/6845696/2025/11/28/ole-miss-mississippi-state-score-result-lane-kiffin/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6845732/2025/11/28/76ers-vs-nets-stream-how-to-watc
 **How to watch Spurs vs. Nuggets: Time, TV, streaming**\
 `Find out how to watch the San Antonio Spurs play the Denver Nuggets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6845728/2025/11/28/spurs-vs-nuggets-stream-how-to-watch-nov-28/
-
-**How to watch Cavaliers vs. Hawks: Time, TV, streaming**\
-`Find out how to watch the Cleveland Cavaliers play the Atlanta Hawks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6845731/2025/11/28/cavaliers-vs-hawks-stream-how-to-watch-nov-28/
 
