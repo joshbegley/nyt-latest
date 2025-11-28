@@ -1,3 +1,11 @@
+**How to watch Lightning vs. Red Wings: Time, TV, streaming**\
+`Find out how to watch the Tampa Bay Lightning play the Detroit Red Wings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6844486/2025/11/28/lightning-vs-red-wings-stream-how-to-watch-nov-28/
+
+**How to watch Rangers vs. Bruins: Time, TV, streaming**\
+`Find out how to watch the New York Rangers play the Boston Bruins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6844484/2025/11/28/rangers-vs-bruins-stream-how-to-watch-nov-28/
+
 **How to watch Vanderbilt vs. Saint Mary's (CA) men's basketball: Time, TV, streaming**\
 `Find out how to watch the Vanderbilt Commodores play the Saint Mary's Gaels, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6844477/2025/11/28/vanderbilt-vs-saint-mary-s-ca-stream-how-to-watch-nov-28/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/28/world/asia/choco-pie-custard-theft-court.html
 **Cup Geekery: All of Friday's NBA Cup scenarios**\
 `The Magic play the Pistons and the Thunder play the Suns in the night's biggest games, but more is at stake on final night of group play.`\
 https://nytimes.com/athletic/6842813/2025/11/28/nba-cup-scenarios-final-night-group-play/
-
-**Aftershocks of an Epic Art Crime Reverberate in Japan**\
-`At least four works by a famous convicted forger have been discovered in Japan. Transparency about the mistakes, however, has sparked as much curiosity as scandal.`\
-https://nytimes.com/2025/11/28/world/asia/japan-art-forgeries.html
-
-**Can You Compel Your Children to Sing for Their Snacks?**\
-`A ruling on an unusual postconcert tradition.`\
-https://nytimes.com/interactive/2025/11/28/magazine/exciting-snacks-hodgman-quiz.html
 

@@ -1,3 +1,11 @@
+**How to watch Lightning vs. Red Wings: Time, TV, streaming**\
+`Find out how to watch the Tampa Bay Lightning play the Detroit Red Wings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6844486/2025/11/28/lightning-vs-red-wings-stream-how-to-watch-nov-28/
+
+**How to watch Rangers vs. Bruins: Time, TV, streaming**\
+`Find out how to watch the New York Rangers play the Boston Bruins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6844484/2025/11/28/rangers-vs-bruins-stream-how-to-watch-nov-28/
+
 **How to watch Vanderbilt vs. Saint Mary's (CA) men's basketball: Time, TV, streaming**\
 `Find out how to watch the Vanderbilt Commodores play the Saint Mary's Gaels, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6844477/2025/11/28/vanderbilt-vs-saint-mary-s-ca-stream-how-to-watch-nov-28/
