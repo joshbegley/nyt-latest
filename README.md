@@ -1,3 +1,7 @@
+**Sri Lanka on High Alert as Cyclone Death Toll Reaches 56**\
+`Heavy rainfall was forecast for nearly all of the island nation as Cyclone Ditwah churned northwest toward India.`\
+https://nytimes.com/2025/11/28/world/asia/sri-lanka-cyclone-ditwah-toll.html
+
 **The New York Times in Print for Friday, Nov. 28, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/11/28/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6842113/2025/11/28/arsenal-squad-depth-analysis/
 **Omar Marmoush is in Haaland Purgatory. What's the solution for him and Man City?**\
 `Marmoush finds himself in a similar position to Julian Alvarez when he was at Man City, knowing he was clearly second fiddle to Haaland`\
 https://nytimes.com/athletic/6838139/2025/11/28/omar-marmoush-erling-haaland-man-city-analysis/
-
-**Everything you need to know about the 2026 World Cup draw**\
-`The 2026 World Cup draw takes place on December 5 with U.S. President Donald Trump expected to be in attendance`\
-https://nytimes.com/athletic/6833086/2025/11/28/world-cup-draw-format-watch-teams-pot/
 
