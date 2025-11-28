@@ -1,3 +1,7 @@
+**Goodbye, Price Tags. Hello, Dynamic Pricing.**\
+`Shopping has always been a game. And now it’s being rigged against you.`\
+https://nytimes.com/video/opinion/100000010545604/goodbye-price-tags-hello-dynamic-pricing.html
+
 **Walsh says majority of WSL players have been abused online, calls for 'more action'**\
 `3,000 social media posts containing “hostile or concerning content” were directed at the England team during Euro 2025, per a report.`\
 https://nytimes.com/athletic/6844594/2025/11/28/england-keira-walsh-online-abuse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6838214/2025/11/28/bears-eagles-nfl-black-friday-ga
 **Michigan-Ohio State breakdown: Coaches under pressure, players to watch, predictions**\
 `The Athletic’s Cameron Teague Robinson and Austin Meek discuss key questions ahead of this year's showdown.`\
 https://nytimes.com/athletic/6839625/2025/11/28/ohio-state-michigan-preview-predictions-2/
-
-**NHL Power Rankings: The Wild enter the top 5 and every team's best side dish**\
-`In this week's edition, we want to highlight the NHL's real heroes: The side dishes that deserve recognition.`\
-https://nytimes.com/athletic/6842818/2025/11/28/nhl-power-rankings-wild/
 

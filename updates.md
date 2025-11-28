@@ -1,3 +1,7 @@
+**Goodbye, Price Tags. Hello, Dynamic Pricing.**\
+`Shopping has always been a game. And now it’s being rigged against you.`\
+https://nytimes.com/video/opinion/100000010545604/goodbye-price-tags-hello-dynamic-pricing.html
+
 **Walsh says majority of WSL players have been abused online, calls for 'more action'**\
 `3,000 social media posts containing “hostile or concerning content” were directed at the England team during Euro 2025, per a report.`\
 https://nytimes.com/athletic/6844594/2025/11/28/england-keira-walsh-online-abuse/
