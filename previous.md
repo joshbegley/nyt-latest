@@ -1,3 +1,11 @@
+**Trump Announces Pardon for Honduran Ex-President Convicted in Drug Case**\
+`President Trump said he would pardon Juan Orlando Hernández, who prosecutors said partnered with cocaine traffickers as Honduras’s president and is serving a 45-year sentence.`\
+https://nytimes.com/2025/11/28/world/americas/trump-pardon-honduras-hernandez.html
+
+**PWHL's Torrent break U.S. attendance record for pro women’s hockey game**\
+`The Seattle Torrent's home opener against the Minnesota Frost on Friday at Climate Pledge Arena drew 16,014 fans.`\
+https://nytimes.com/athletic/6846000/2025/11/28/seattle-torrent-womens-hockey-attendance-record-pwhl/
+
 **The Warriors are glad to know Steph Curry's quad injury could've been worse**\
 `The Warriors announced Thursday that Curry would be re-evaluated in a week.`\
 https://nytimes.com/athletic/6845964/2025/11/28/warriors-kerr-update-curry-kuminga-melton-nba/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/28/books/ellen-bryant-voigt-dead.html
 **Jets' Kris Boyd returns to hospital with 'health issues' after shooting**\
 `Boyd has been rehospitalized with issues from the Manhattan shooting on Nov. 16, as police continue investigating.`\
 https://nytimes.com/athletic/6845631/2025/11/28/jets-kris-boyd-hospital-health-issues-shooting/
-
-**College Football Playoff 2025 projections: The most likely bracket as Rivalry Week begins**\
-`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
-https://nytimes.com/athletic/6560541/2025/11/28/college-football-playoff-bracket-projections-odds/
-
-**Iowa vs. Nebraska: Hawkeyes offense rolls Huskers during rivalry-week rout**\
-`One year after putting together a seven-win season, the Huskers failed to make substantial improvement despite making roster improvements.`\
-https://nytimes.com/athletic/6845651/2025/11/28/iowa-nebraska-score-result-football/
 

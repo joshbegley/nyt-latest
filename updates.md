@@ -1,3 +1,11 @@
+**Trump Announces Pardon for Honduran Ex-President Convicted in Drug Case**\
+`President Trump said he would pardon Juan Orlando Hernández, who prosecutors said partnered with cocaine traffickers as Honduras’s president and is serving a 45-year sentence.`\
+https://nytimes.com/2025/11/28/world/americas/trump-pardon-honduras-hernandez.html
+
+**PWHL's Torrent break U.S. attendance record for pro women’s hockey game**\
+`The Seattle Torrent's home opener against the Minnesota Frost on Friday at Climate Pledge Arena drew 16,014 fans.`\
+https://nytimes.com/athletic/6846000/2025/11/28/seattle-torrent-womens-hockey-attendance-record-pwhl/
+
 **The Warriors are glad to know Steph Curry's quad injury could've been worse**\
 `The Warriors announced Thursday that Curry would be re-evaluated in a week.`\
 https://nytimes.com/athletic/6845964/2025/11/28/warriors-kerr-update-curry-kuminga-melton-nba/
