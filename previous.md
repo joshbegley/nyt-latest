@@ -1,3 +1,7 @@
+**Recent Afghan Arrivals Fear Their Futures in the U.S. Are Now in Jeopardy**\
+`Many are anxious after the Trump administration vowed to undertake sweeping reviews of immigrants after the shooting of two National Guard troops.`\
+https://nytimes.com/2025/11/27/us/politics/afghans-immigrants-fearful-guard-shooting.html
+
 **Packers coach Matt LaFleur backs referees on controversial timeout decision**\
 `Asked at what point the official heard LaFleur ask for a timeout, referee Ron Torbert only said, “before the false start.”`\
 https://nytimes.com/athletic/6843859/2025/11/27/packers-matt-lafleur-referees-controversial-timeout/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/27/world/canada/alberta-oil-pipeline-climate-change.
 **The Blue Jays are betting big on Dylan Cease — their pitching history shows why**\
 `Like José Berríos, Chris Bassitt and Kevin Gausman before, Cease’s top trait is consistently taking the ball.`\
 https://nytimes.com/athletic/6843558/2025/11/27/blue-jays-dylan-cease-pitching-history/
-
-**Is Craig Berube ready to make more changes to the Leafs lineup?**\
-`Berube might look to continue scratching Maple Leafs players who have been regulars in the lineup to "put a little more fire in them."`\
-https://nytimes.com/athletic/6843459/2025/11/27/maple-leafs-lineup-craig-berube-max-domi/
 

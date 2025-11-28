@@ -1,3 +1,7 @@
+**Recent Afghan Arrivals Fear Their Futures in the U.S. Are Now in Jeopardy**\
+`Many are anxious after the Trump administration vowed to undertake sweeping reviews of immigrants after the shooting of two National Guard troops.`\
+https://nytimes.com/2025/11/27/us/politics/afghans-immigrants-fearful-guard-shooting.html
+
 **Packers coach Matt LaFleur backs referees on controversial timeout decision**\
 `Asked at what point the official heard LaFleur ask for a timeout, referee Ron Torbert only said, “before the false start.”`\
 https://nytimes.com/athletic/6843859/2025/11/27/packers-matt-lafleur-referees-controversial-timeout/

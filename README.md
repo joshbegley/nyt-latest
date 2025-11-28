@@ -3,7 +3,7 @@
 https://nytimes.com/2025/11/27/us/politics/afghans-immigrants-fearful-guard-shooting.html
 
 **Packers coach Matt LaFleur backs referees on controversial timeout decision**\
-`Asked at what point the official heard LaFleur ask for a timeout, referee Ron Torbert only said, “before the false start.”`\
+`Asked at what point the official heard LaFleur ask for a timeout, referee Ron Torbert only said “before the false start.”`\
 https://nytimes.com/athletic/6843859/2025/11/27/packers-matt-lafleur-referees-controversial-timeout/
 
 **Post Malone honors Cowboys' Marshawn Kneeland in Thanksgiving halftime show**\
