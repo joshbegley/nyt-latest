@@ -1,3 +1,7 @@
+**Property Tied to Ukraine’s Lead Negotiator Is Searched in Corruption Case**\
+`The scrutiny of Andriy Yermak, President Volodymyr Zelensky’s chief of staff, could disrupt U.S.-led peace talks and further rattle Ukrainian politics.`\
+https://nytimes.com/2025/11/28/world/europe/ukraine-yermak-corruption-peace-talks.html
+
 **N.Y. Lawmakers Put Pressure on Hochul to Sign Prison Reform Bills**\
 `The bills, which have already passed the State Legislature, would help prevent brutality in prisons, supporters say. But the governor has yet to enact them.`\
 https://nytimes.com/2025/11/28/nyregion/ny-prisons-abuse-lawmakers-reform.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6839463/2025/11/28/crystal-palace-strasbourg-missed
 **Roma face Napoli test, Leverkusen host Dortmund after shocking Manchester City**\
 `With derbies in Italy, Spain and France this weekend, here are the games outside of the Premier League to put on your radar `\
 https://nytimes.com/athletic/6843098/2025/11/28/real-madrid-roma-napoli-dortmund-leverkusen/
-
-**Dyche is getting Forest's Europa League balancing act right**\
-`Nottingham Forest rotated heavily against Malmo but managed to win the game 3-0`\
-https://nytimes.com/athletic/6843714/2025/11/28/nottingham-forest-malmo-analysis/
 
