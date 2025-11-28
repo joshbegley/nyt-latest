@@ -1,3 +1,11 @@
+**USA begins FIBA World Cup qualifying, with Brandon Knight chasing NBA return**\
+`USA's qualifying journey officially begins in Nicaragua with a short-term team, a long-term goal and at least one veteran hoping to impress.`\
+https://nytimes.com/athletic/6845055/2025/11/28/usa-world-cup-qualifying-nicaragua-brandon-knight/
+
+**Rockets mailbag: Reed Sheppard’s effect on approach in trade market; defensive potential with KD?**\
+`Will Guillory answers your questions about Houston's upcoming trade deadline, Kevin Durant's defense and more. `\
+https://nytimes.com/athletic/6844435/2025/11/28/rockets-reed-sheppard-kevin-durant-mailbag/
+
 **Lowetide: If Oilers make a coaching change, is there a perfect fit candidate?**\
 `Knoblauch just signed an extension in October, and there's plenty of time for him to turn the Oilers around.`\
 https://nytimes.com/athletic/6841499/2025/11/28/edmonton-oilers-kris-knoblauch-coaching-candidates/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/28/world/europe/zelensky-yermak-resigns-ukraine-corr
 **Cardinals tight end Trey McBride's journey to stardom began with a hometown mentor**\
 `"He was the guy from my hometown who made it. Everything he did, I wanted to do, and I think that's a huge reason why I'm here."`\
 https://nytimes.com/athletic/6844164/2025/11/28/arizona-cardinals-trey-mcbride-tight-end-joel-dreessen/
-
-**These Rivals Wanted Art Fans to Pick a Side. This Show Lets You Choose Both.**\
-`J.M.W. Turner and John Constable were fueled by competition, but united by a common wonder at nature’s beauty.`\
-https://nytimes.com/2025/11/28/arts/turner-constable-tate-britain.html
-
-**Israeli Raid in Southern Syria Kills at Least 13, Syrian Officials Say**\
-`The raid appeared to be one of Israel’s deadliest cross-border incursions since Bashar al-Assad, Syria’s former dictator, was ousted last year.`\
-https://nytimes.com/2025/11/28/world/europe/israel-syria-raid-beit-jinn.html
 
