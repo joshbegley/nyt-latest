@@ -1,3 +1,7 @@
+**The Warriors are glad to know Steph Curry's quad injury could've been worse**\
+`The Warriors announced Thursday that Curry would be re-evaluated in a week.`\
+https://nytimes.com/athletic/6845964/2025/11/28/warriors-kerr-update-curry-kuminga-melton-nba/
+
 **Rangers respond well to momentum swings in Boston, plus other thoughts**\
 `It wasn’t a full 60-minute effort from New York, but it was enough for the team to beat Boston 6-2 and win its third in a row.`\
 https://nytimes.com/athletic/6845913/2025/11/28/rangers-bruins-vincent-trocheck-mika-zibanejad/

@@ -1,3 +1,7 @@
+**The Warriors are glad to know Steph Curry's quad injury could've been worse**\
+`The Warriors announced Thursday that Curry would be re-evaluated in a week.`\
+https://nytimes.com/athletic/6845964/2025/11/28/warriors-kerr-update-curry-kuminga-melton-nba/
+
 **Rangers respond well to momentum swings in Boston, plus other thoughts**\
 `It wasn’t a full 60-minute effort from New York, but it was enough for the team to beat Boston 6-2 and win its third in a row.`\
 https://nytimes.com/athletic/6845913/2025/11/28/rangers-bruins-vincent-trocheck-mika-zibanejad/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6560541/2025/11/28/college-football-playoff-bracket
 **Iowa vs. Nebraska: Hawkeyes offense rolls Huskers during rivalry-week rout**\
 `One year after putting together a seven-win season, the Huskers failed to make substantial improvement despite making roster improvements.`\
 https://nytimes.com/athletic/6845651/2025/11/28/iowa-nebraska-score-result-football/
-
-**Ole Miss completes 11-1 season to likely seal Playoff bid, but Lane Kiffin decision looms**\
-`Kiffin, a candidate at LSU, said he hasn't made a decision yet. "I've got a lot of praying to do to figure that out tomorrow," he said.`\
-https://nytimes.com/athletic/6845696/2025/11/28/ole-miss-mississippi-state-score-result-lane-kiffin/
 
