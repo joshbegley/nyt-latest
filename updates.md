@@ -1,3 +1,7 @@
+**Australia captain Pat Cummins set to miss second Test, hosts name unchanged squad**\
+`The fast bowler will continue to build up his workload in Brisbane with a view to returning in the third Test in Adelaide next month`\
+https://nytimes.com/athletic/6844332/2025/11/28/australia-cummins-ashes-brisbane/
+
 **Property Tied to Ukraine’s Lead Negotiator Is Searched in Corruption Case**\
 `The scrutiny of Andriy Yermak, President Volodymyr Zelensky’s chief of staff, could disrupt U.S.-led peace talks and further rattle Ukrainian politics.`\
 https://nytimes.com/2025/11/28/world/europe/ukraine-yermak-corruption-peace-talks.html
