@@ -1,3 +1,7 @@
+**Canadiens, Mike Matheson agree to 5-year contract extension**\
+`Matheson has 14 points in 22 games with a team-best plus-13 rating and is known as the Canadiens' best-conditioned player.`\
+https://nytimes.com/athletic/6845190/2025/11/28/canadiens-mike-matheson-contract-extension/
+
 **Lane Kiffin: MSU supporters broke into Ole Miss locker room, stole QB's jersey**\
 `Ole Miss reportedly traveled with backup jerseys, so it shouldn't be an issue for the Egg Bowl.`\
 https://nytimes.com/athletic/6845261/2025/11/28/lane-kiffin-egg-bowl-locker-room-break-in/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6845250/2025/11/28/uab-vs-tcu-stream-how-to-watch-n
 **How to watch Eastern Illinois vs. Louisville women's basketball: Time, TV, streaming**\
 `Find out how to watch the Eastern Illinois Panthers play the Louisville Cardinals, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6845248/2025/11/28/eastern-illinois-vs-louisville-stream-how-to-watch-nov-28/
-
-**How to watch Morgan State vs. Kentucky women's basketball: Time, TV, streaming**\
-`Find out how to watch the Morgan State Lady Bears play the Kentucky Wildcats, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6845246/2025/11/28/morgan-state-vs-kentucky-stream-how-to-watch-nov-28/
 

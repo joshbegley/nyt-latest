@@ -1,3 +1,7 @@
+**Canadiens, Mike Matheson agree to 5-year contract extension**\
+`Matheson has 14 points in 22 games with a team-best plus-13 rating and is known as the Canadiens' best-conditioned player.`\
+https://nytimes.com/athletic/6845190/2025/11/28/canadiens-mike-matheson-contract-extension/
+
 **Lane Kiffin: MSU supporters broke into Ole Miss locker room, stole QB's jersey**\
 `Ole Miss reportedly traveled with backup jerseys, so it shouldn't be an issue for the Egg Bowl.`\
 https://nytimes.com/athletic/6845261/2025/11/28/lane-kiffin-egg-bowl-locker-room-break-in/
