@@ -1,6 +1,10 @@
+**Late Rally Pushes Stocks Back Near Record High**\
+`A midmonth stumble, driven by worries about the frenzy around artificial intelligence, was reversed as investors inched back into stocks this week.`\
+https://nytimes.com/2025/11/28/business/stock-markets-november-sp500.html
+
 **Jones says he previously offered Jets first-round pick, Parsons for Williams**\
 `Williams is indirectly part of the return on the Cowboys’ trade of Parsons, which means there will be comparisons made for a long time.`\
-https://nytimes.com/athletic/6845402/2025/11/28/cowboys-jerry-jones-says-he-offered-jets-first-round-pick-micah-parsons-for-quinnen-williams/
+https://nytimes.com/athletic/6845402/2025/11/28/cowboys-jones-jets-trade-parsons-williams/
 
 **‘My Baby Girl Has Passed to Glory,’ Says Father of Guard Soldier Killed in D.C. Shooting**\
 `Specialist Sara Beckstrom, who died on Thursday, was not initially excited to go to Washington, but had grown to enjoy the city. Staff Sgt. Andrew Wolfe remained in critical condition on Friday.`\
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/asia/100000010552971/hong-kong-rescue-ends-fire.
 **Instant grades for college football's 2025-26 head-coaching hires**\
 `In college football, you never really know whether a coaching hire is going to work. But it's never too early to talk about fit.`\
 https://nytimes.com/athletic/6827060/2025/11/28/college-football-coaching-carousel-grades/
-
-**Mike Matheson, Canadiens agree to 5-year contract extension**\
-`Matheson has 14 points in 22 games with a team-best plus-13 rating and is known as the Canadiens' best-conditioned player.`\
-https://nytimes.com/athletic/6845190/2025/11/28/canadiens-mike-matheson-contract-extension/
 

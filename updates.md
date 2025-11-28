@@ -1,3 +1,11 @@
+**Late Rally Pushes Stocks Back Near Record High**\
+`A midmonth stumble, driven by worries about the frenzy around artificial intelligence, was reversed as investors inched back into stocks this week.`\
+https://nytimes.com/2025/11/28/business/stock-markets-november-sp500.html
+
+**Jones says he previously offered Jets first-round pick, Parsons for Williams**\
+`Williams is indirectly part of the return on the Cowboys’ trade of Parsons, which means there will be comparisons made for a long time.`\
+https://nytimes.com/athletic/6845402/2025/11/28/cowboys-jones-jets-trade-parsons-williams/
+
 **Jones says he previously offered Jets first-round pick, Parsons for Williams**\
 `Williams is indirectly part of the return on the Cowboys’ trade of Parsons, which means there will be comparisons made for a long time.`\
 https://nytimes.com/athletic/6845402/2025/11/28/cowboys-jerry-jones-says-he-offered-jets-first-round-pick-micah-parsons-for-quinnen-williams/
