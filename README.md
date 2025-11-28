@@ -1,40 +1,40 @@
-**How to watch Providence vs. Florida men's basketball: Time, TV, streaming**\
-`Find out how to watch the Providence Friars play the Florida Gators, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6844758/2025/11/28/providence-vs-florida-stream-how-to-watch-nov-28/
+**Police chief seeks assurances of 'credibility' of intelligence over Maccabi Tel Aviv fan ban**\
+`Ten people were arrested on the night of the match against Aston Villa after heated protests at the Israeli club's lack of fan allocation.`\
+https://nytimes.com/athletic/6844215/2025/11/28/west-midlands-police-maccabi-tel-aviv/
 
-**How to watch Wisconsin vs. Ole Miss women's basketball: Time, TV, streaming**\
-`Find out how to watch the Wisconsin Badgers play the Ole Miss Rebels, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6844756/2025/11/28/wisconsin-vs-ole-miss-stream-how-to-watch-nov-28/
+**Trump Promises to Pause Migration From ‘Third World Countries’ After D.C. Shooting**\
+`In social media posts, President Trump also seemed to target migrants who were already in the country.`\
+https://nytimes.com/2025/11/28/us/trump-immigration-pause-third-world-countries.html
 
-**49ers Kyle Juszczyk thankful to be a surprising 201 games in and a fan favorite**\
-`The game slows down for the fullback just like it does for elite quarterbacks.`\
-https://nytimes.com/athletic/6843717/2025/11/28/49ers-kyle-juszczyk-fan-favorite-juice/
+**How to watch Canadiens vs. Golden Knights: Time, TV, streaming**\
+`Find out how to watch the Montreal Canadiens play the Vegas Golden Knights, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6844788/2025/11/28/canadiens-vs-golden-knights-stream-how-to-watch-nov-28/
 
-**Why counter-attacks are the next stage of Mikel Arteta's Arsenal masterplan**\
-`To stay at the top of the football tree, Arsenal have empowered their attack with direct balls into the channels, catching opponents out`\
-https://nytimes.com/athletic/6833000/2025/11/28/arsenal-transitions-eze-gyokeres-arteta/
+**How to watch Devils vs. Sabres: Time, TV, streaming**\
+`Find out how to watch the New Jersey Devils play the Buffalo Sabres, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6844787/2025/11/28/devils-vs-sabres-stream-how-to-watch-nov-28/
 
-**Through injuries and tragedy, Teddy Prochazka persevered to find purpose at Nebraska**\
-`“This place has given so much to me,” Prochazka said, “and I feel like I still have a lot more to give to this place.”`\
-https://nytimes.com/athletic/6844087/2025/11/28/nebraska-senior-day-teddy-prochazka/
+**How to watch Kings vs. Ducks: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Kings play the Anaheim Ducks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6844783/2025/11/28/kings-vs-ducks-stream-how-to-watch-nov-28/
 
-**The University of California knows its stereotypes. How does college football fit in?**\
-`At Berkeley, college football is an afterthought — but brings the most differentiating viewpoints together. `\
-https://nytimes.com/athletic/6840475/2025/11/28/california-bears-football-berkeley-politics/
+**How to watch Senators vs. Blues: Time, TV, streaming**\
+`Find out how to watch the Ottawa Senators play the St. Louis Blues, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6844780/2025/11/28/senators-vs-blues-stream-how-to-watch-nov-28/
 
-**FPL live Q&A: Gameweek 13 advice from Ben Dinnery**\
-`Ben Dinnery of premierinjuries.com is on hand to offer his expert advice to give you the best chance of FPL success`\
-https://nytimes.com/athletic/6844386/2025/11/28/fantasy-premier-league-live-qa-gameweek-13-advice-from-ben-dinnery/
+**How to watch Flyers vs. Islanders: Time, TV, streaming**\
+`Find out how to watch the Philadelphia Flyers play the New York Islanders, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6844776/2025/11/28/flyers-vs-islanders-stream-how-to-watch-nov-28/
 
-**Israeli Forces Kill Two Palestinians After They Appear to Surrender, Video Shows**\
-`The Israeli authorities said they were reviewing the shooting, which came amid days of extensive military operations in the West Bank.`\
-https://nytimes.com/2025/11/28/world/middleeast/israel-west-bank-shooting-palestinians-video.html
+**How to watch Canucks vs. Sharks: Time, TV, streaming**\
+`Find out how to watch the Vancouver Canucks play the San Jose Sharks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6844779/2025/11/28/canucks-vs-sharks-stream-how-to-watch-nov-28/
 
-**TAFC: Radar guide to 2026 transfers, violence at Villa, Infantino's Super Bowl calculations**\
-`Today in TAFC: Our guide to transfers in 2026, Malen hit on head by object from crowd during Villa game, does World Cup = 104 Super Bowls?`\
-https://nytimes.com/athletic/6844407/2025/11/28/transfer-news-2026-villa-violence-super-bowl/
+**How to watch Flames vs. Panthers: Time, TV, streaming**\
+`Find out how to watch the Calgary Flames play the Florida Panthers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6844774/2025/11/28/flames-vs-panthers-stream-how-to-watch-nov-28/
 
-**NFL Week 13 schedule rankings: Top 5 Sunday games with the best jersey combos**\
-`We're talking throwback uniforms, landscape stadiums and visual appeal in this week's NFL Sunday schedule rankings.`\
-https://nytimes.com/athletic/6838729/2025/11/28/nfl-week-13-schedule-jerseys-bills-steelers-vikings-seahawks/
+**How to watch Avalanche vs. Wild: Time, TV, streaming**\
+`Find out how to watch the Colorado Avalanche play the Minnesota Wild, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6844772/2025/11/28/avalanche-vs-wild-stream-how-to-watch-nov-28/
 
