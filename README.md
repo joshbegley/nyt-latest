@@ -1,3 +1,7 @@
+**Fourth-down failures and, just like that, Lions are in a hole and running out of time**\
+`The Lions dropped to 7-5 with the loss Thursday and remain behind the Packers and Bears in the NFC North standings.`\
+https://nytimes.com/athletic/6843757/2025/11/27/lions-playoff-hopes-thanksgiving-loss-packers/
+
 **Matt LaFleur and the Packers make a statement in season sweep of Lions**\
 `The Packers will sit atop the NFC North entering Week 14 if the Eagles beat the Bears on Friday afternoon.`\
 https://nytimes.com/athletic/6843866/2025/11/27/matt-lafleur-packers-lions-thanksgiving/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6841650/2025/11/27/amanda-nunes-ufc-return-paramoun
 **The Uniquely American Heartbreak of Yet Another Tragedy**\
 `The National Guard members shot in Washington are the latest victims of a political violence permeating our society.`\
 https://nytimes.com/2025/11/27/opinion/national-guard-shot-dc.html
-
-**Packers-Lions takeaways: Love, Wicks lead Green Bay to key divisional win**\
-`Detroit lost star receiver Amon-Ra St. Brown in the first quarter to a knee injury. `\
-https://nytimes.com/athletic/6843093/2025/11/27/packers-vs-lions-takeaways-result-score-thanksgiving-day-game/
 
