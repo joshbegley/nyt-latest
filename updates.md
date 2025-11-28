@@ -1,3 +1,7 @@
+**Matt LaFleur and the Packers make a statement in season sweep of Lions**\
+`The Packers will sit atop the NFC North entering Week 14 if the Eagles beat the Bears on Friday afternoon.`\
+https://nytimes.com/athletic/6843866/2025/11/27/matt-lafleur-packers-lions-thanksgiving/
+
 **Cowboys' playoff hopes take leap behind Pickens, Prescott: Takeaways**\
 `Dallas wins third straight, will Kansas City drops to .500 with third loss in four games.`\
 https://nytimes.com/athletic/6843626/2025/11/27/chiefs-cowboys-thanksgiving-score-result-takeaways/
