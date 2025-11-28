@@ -1,3 +1,11 @@
+**FPL live Q&A: Gameweek 13 advice from Ben Dinnery**\
+`Ben Dinnery of premierinjuries.com is on hand to offer his expert advice to give you the best chance of FPL success`\
+https://nytimes.com/athletic/6844386/2025/11/28/fantasy-premier-league-live-qa-gameweek-13-advice-from-ben-dinnery/
+
+**Behind the scenes with Michigan in Las Vegas: Late nights, a $1 million prize and raised expectations**\
+`The Athletic went all-access with the Wolverines as they pummeled Gonzaga by 40 points to win the Players Era Festival.`\
+https://nytimes.com/athletic/6844128/2025/11/28/michigan-basketball-players-era-championship/
+
 **Israeli Forces Kill Two Palestinians After They Appear to Surrender, Video Shows**\
 `The Israeli authorities said they were reviewing the shooting, which came amid days of extensive military operations in the West Bank.`\
 https://nytimes.com/2025/11/28/world/middleeast/israel-west-bank-shooting-palestinians-video.html

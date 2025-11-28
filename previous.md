@@ -1,3 +1,7 @@
+**FPL live Q&A: Gameweek 13 advice from Ben Dinnery**\
+`Ben Dinnery of premierinjuries.com is on hand to offer his expert advice to give you the best chance of FPL success`\
+https://nytimes.com/athletic/6844386/2025/11/28/fantasy-premier-league-live-qa-gameweek-13-advice-from-ben-dinnery/
+
 **Israeli Forces Kill Two Palestinians After They Appear to Surrender, Video Shows**\
 `The Israeli authorities said they were reviewing the shooting, which came amid days of extensive military operations in the West Bank.`\
 https://nytimes.com/2025/11/28/world/middleeast/israel-west-bank-shooting-palestinians-video.html
@@ -31,10 +35,6 @@ https://nytimes.com/athletic/6840023/2025/11/28/gunner-stockton-haynes-king-heis
 https://nytimes.com/athletic/6843402/2025/11/28/the-athletics-friday-football-quiz-question-83/
 
 **Behind the scenes with Michigan in Las Vegas: Late nights, a $1 million prize and raised expectations**\
-`LAS VEGAS — Dusty May breaks from watching film on Sunday afternoon when a visitor stops by Michigan’s temporary headquarters inside a ballroom at the Park MGM Hotel.`\
+`The Athletic went all-access with the Wolverines as they pummeled Gonzaga by 40 points to win the Players Era Festival.`\
 https://nytimes.com/athletic/6844128/2025/11/28/michigan-basketball-players-era-championship/
-
-**Can Irish remain focused with CFP bid looming? Notre Dame vs. Stanford predictions**\
-`Notre Dame must stay focused as it faces a program with a lame-duck coach in his final game.`\
-https://nytimes.com/athletic/6840902/2025/11/28/notre-dame-stanford-football-preview/
 
