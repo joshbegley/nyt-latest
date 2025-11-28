@@ -1,3 +1,7 @@
+**On Thanksgiving, an Unexpected Kind of Grace**\
+`SNAP benefits helped Leanna Nieves of Haverhill, Mass., buy Thanksgiving dinner for her family, but she used the day to set aside what have been chronic worries about the federal program.`\
+https://nytimes.com/2025/11/27/us/politics/snap-benefits-trump-thanksgiving.html
+
 **OKC's Jalen Williams off injury report, reportedly to make season debut Friday**\
 `The Thunder guard has yet to play this season while recovering from offseason surgery on his wrist.`\
 https://nytimes.com/athletic/6843698/2025/11/27/okc-all-star-jalen-williams-return/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/27/world/europe/louvre-higher-ticket-prices.html
 **Officials Identify National Guard Shooting Suspect**\
 `Officials said the gunman immigrated from Afghanistan in 2021 after working with C.I.A.-backed military units. The suspect drove across the country to carry out the attack. The two wounded members of the National Guard remain in critical condition.`\
 https://nytimes.com/video/us/100000010552479/national-guard-shooting-suspect-afghanistan-washington.html
-
-**Eminem joins Jack White for Thanksgiving halftime show in Detroit**\
-`Eminem surprised fans by joining Jack White on stage for the Detroit Lions’ 2025 Thanksgiving halftime show.`\
-https://nytimes.com/athletic/6843547/2025/11/27/eminem-jack-white-detroit-lions-thanksgiving-halftime/
 
