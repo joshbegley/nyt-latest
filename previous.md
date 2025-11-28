@@ -10,7 +10,7 @@ https://nytimes.com/athletic/6843698/2025/11/27/okc-all-star-jalen-williams-retu
 `UFC 324 will be headlined by a matchup up of fan favorites Justin Gaethje and Paddy "The Baddy" Pimblett.`\
 https://nytimes.com/athletic/6841650/2025/11/27/amanda-nunes-ufc-return-paramount-kayla-harrison-justin-gaethje-paddy-pimblett/
 
-**The Uniquely American Heartbreak of Yet Another Shooting**\
+**The Uniquely American Heartbreak of Yet Another Tragedy**\
 `The National Guard members shot in Washington are the latest victims of a political violence permeating our society.`\
 https://nytimes.com/2025/11/27/opinion/national-guard-shot-dc.html
 

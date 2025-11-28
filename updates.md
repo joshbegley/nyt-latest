@@ -1,3 +1,7 @@
+**The Uniquely American Heartbreak of Yet Another Tragedy**\
+`The National Guard members shot in Washington are the latest victims of a political violence permeating our society.`\
+https://nytimes.com/2025/11/27/opinion/national-guard-shot-dc.html
+
 **On Thanksgiving, an Unexpected Kind of Grace**\
 `SNAP benefits helped Leanna Nieves of Haverhill, Mass., buy Thanksgiving dinner for her family, but she used the day to set aside what have been chronic worries about the federal program.`\
 https://nytimes.com/2025/11/27/us/politics/snap-benefits-trump-thanksgiving.html
