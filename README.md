@@ -1,40 +1,40 @@
-**At Last, a Name for the Murderous Face in a Holocaust Photo**\
-`With the help of A.I., a historian has identified the killer in a 1941 image that defined the savagery of the Nazi regime.`\
-https://nytimes.com/2025/11/28/science/holocaust-nazi-photography.html
+**Aftershocks of an Epic Art Crime Reverberate in Japan**\
+`At least four works by a famous convicted forger have been discovered in Japan. Transparency about the mistakes, however, has sparked as much curiosity as scandal.`\
+https://nytimes.com/2025/11/28/world/asia/japan-art-forgeries.html
 
-**Australia captain Pat Cummins set to miss second Test, hosts name unchanged squad**\
-`The fast bowler will continue to build up his workload in Brisbane with a view to returning in the third Test in Adelaide next month`\
-https://nytimes.com/athletic/6844332/2025/11/28/australia-cummins-ashes-brisbane/
+**Can You Compel Your Children to Sing for Their Snacks?**\
+`A ruling on an unusual postconcert tradition.`\
+https://nytimes.com/interactive/2025/11/28/magazine/exciting-snacks-hodgman-quiz.html
 
-**Property Tied to Ukraine’s Lead Negotiator Is Searched in Corruption Case**\
-`The scrutiny of Andriy Yermak, President Volodymyr Zelensky’s chief of staff, could disrupt U.S.-led peace talks and further rattle Ukrainian politics.`\
-https://nytimes.com/2025/11/28/world/europe/ukraine-yermak-corruption-peace-talks.html
+**‘Hey, Lemonade!’: A Backstage Fixture at the Grand Ole Opry**\
+`Legions of backstage workers have helped the Grand Ole Opry thrive for a century in Nashville. Diana McBride is known for her lemonade — and much more.`\
+https://nytimes.com/2025/11/28/us/politics/hey-lemonade-a-backstage-fixture-at-the-grand-ole-opry.html
 
-**N.Y. Lawmakers Put Pressure on Hochul to Sign Prison Reform Bills**\
-`The bills, which have already passed the State Legislature, would help prevent brutality in prisons, supporters say. But the governor has yet to enact them.`\
-https://nytimes.com/2025/11/28/nyregion/ny-prisons-abuse-lawmakers-reform.html
+**An Understated Approach to Holiday Décor in the Country**\
+`The designer Shawn Henderson leans into simple greens and vintage lights for his home in Hillsdale, N.Y.`\
+https://nytimes.com/2025/11/28/realestate/holiday-decorations-garlands-wreaths.html
 
-**Why Nadine Menendez Still Hasn’t Visited Her Husband in Prison**\
-`Robert Menendez, a former Democratic senator, has been in prison since June. He hasn’t seen his wife, who is set to begin serving her sentence next summer.`\
-https://nytimes.com/2025/11/28/nyregion/nadine-robert-menenedez-prison.html
+**How to Live to 100, According to Dick Van Dyke**\
+`The star of “Mary Poppins” and “Chitty Chitty Bang Bang” still hits the gym and touches his toes.`\
+https://nytimes.com/2025/11/28/well/dick-van-dyke-health-habits.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/11/28/crosswords/spelling-bee-forum.html
+**7 New Movies Our Critics Are Talking About This Week**\
+`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
+https://nytimes.com/2025/11/28/movies/new-movies-this-week-critics.html
 
-**The Transfer Radar 2026: The Athletic's ultimate guide to the players clubs will be keeping an eye on**\
-`Welcome to The 2026 Transfer Radar, our scouting guide for next year's windows`\
-https://nytimes.com/athletic/6838191/2025/11/28/transfer-radar-latest-january-summer-window/
+**Three Great Documentaries to Stream**\
+`In this month’s picks, a portrait of a vanguard filmmaker, a look back at a televised clash between writers, and a reflection on a Hollywood star and pinup.`\
+https://nytimes.com/2025/11/28/movies/three-great-documentaries-to-stream.html
 
-**National Guard Soldier Dies After Being Shot in Washington**\
-`Another Guard member was in critical condition. The suspect is an Afghan man who once served in a paramilitary unit that worked with U.S. forces, officials said.`\
-https://nytimes.com/2025/11/28/us/national-guard-shooting-washington.html
+**What Do You Know About Black Friday?**\
+`What used to be a single day of holiday havoc is now a weekslong stretch of sales and promotions. Let’s take a walk down memory lane… at the mall.`\
+https://nytimes.com/interactive/2025/11/28/business/black-friday-shopping-quiz.html
 
-**Death Toll Rises to 128 in Hong Kong High-Rise Fire**\
-`Hope of finding survivors has dwindled, with many residents of the densely packed Wang Fuk Court apartment towers still unaccounted for.`\
-https://nytimes.com/2025/11/28/world/asia/hong-kong-fire.html
+**Every Generation Gets the Shakespeare It Deserves**\
+`Our love of his plays have led to a centuries-long fascination with the writer. So why does each new fictional iteration get his life so wrong?`\
+https://nytimes.com/2025/11/28/opinion/hamnet-shakespeare-adaptation-fiction.html
 
-**Sheffield Wednesday targeted by six bidders, administrators want at least £30m**\
-`Championship club's administrator reveals takeover latest and how a £1m loan from a fan has helped ease immediate concerns`\
-https://nytimes.com/athletic/6843179/2025/11/28/sheffield-wednesday-administration-bidders/
+**Goodbye, Price Tags. Hello, Dynamic Pricing.**\
+`Shopping has always been a game. And now it’s being rigged against you.`\
+https://nytimes.com/2025/11/28/opinion/dynamic-pricing-algorithms.html
 
