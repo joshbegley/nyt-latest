@@ -1,3 +1,15 @@
+**A Different Type of Dementia is Changing What’s Known About Cognitive Decline**\
+`On its own, LATE dementia is less severe than Alzheimer’s, but in combination, it makes Alzheimer’s symptoms worse, scientists say.`\
+https://nytimes.com/2025/11/28/health/late-dementia-alzheimers.html
+
+**3 Rebel Nuns Can Stay in Abbey, if They Give Up Social Media**\
+`After the octogenarian nuns refused to return to their senior center, the abbot has finally folded. But he has some conditions.`\
+https://nytimes.com/2025/11/28/world/europe/austria-nuns-abbot-escape-senior-home.html
+
+**Trump’s Response to Shooting Shows Intensified Anti-Migrant Stance**\
+`The president is furiously demanding limits on migration and attacking ethnic groups as he steps up his efforts to equate immigration with crime and economic distress.`\
+https://nytimes.com/2025/11/28/us/politics/trumps-response-to-shooting-shows-intensified-anti-migrant-stance.html
+
 **Video Shows Israeli Forces Killing Militants Who Appeared to Surrender**\
 `Israeli security forces on Thursday killed two militants in the West Bank after they appeared to surrender, according to footage of the episode. The Israeli authorities said they were investigating.`\
 https://nytimes.com/video/world/middleeast/100000010553137/video-shows-israeli-forces-killing-militants-who-appeared-to-surrender.html
