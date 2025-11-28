@@ -1,3 +1,11 @@
+**Palace's three huge missed chances and why Glasner has stopped seeing the positives**\
+`Palace should have beaten Strasbourg but ended up losing Thursday night's game 2-1`\
+https://nytimes.com/athletic/6839463/2025/11/28/crystal-palace-strasbourg-missed-chances/
+
+**Roma face Napoli test, Leverkusen host Dortmund after shocking Manchester City**\
+`With derbies in Italy, Spain and France this weekend, here are the games outside of the Premier League to put on your radar `\
+https://nytimes.com/athletic/6843098/2025/11/28/real-madrid-roma-napoli-dortmund-leverkusen/
+
 **Dyche is getting Forest's Europa League balancing act right**\
 `Nottingham Forest rotated heavily against Malmo but managed to win the game 3-0`\
 https://nytimes.com/athletic/6843714/2025/11/28/nottingham-forest-malmo-analysis/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6842380/2025/11/28/idrissa-gueye-everton-profile/
 **Verbruggen interview: Forest redemption, switching off from football, his World Cup dream**\
 `Verbruggen explains why he's very happy with the 'personality' and goalkeeping group at Brighton - and his 'boyhood dream' to come next year`\
 https://nytimes.com/athletic/6833794/2025/11/28/verbruggen-brighton-forest-world-cup-netherlands/
-
-**FPL: Should you consider playing a Free Hit in Gameweek 13?**\
-`While still having a stock of chips is advantageous for FPL managers, time is running out to activate them before Gameweek 19`\
-https://nytimes.com/athletic/6839258/2025/11/28/fantasy-premier-league-fpl-tips-gameweek-13-free-hit/
-
-**Spurs and Frank in uncharted territory with new-look hierarchy watching on**\
-`We have become accustomed to the cameras cutting to Daniel Levy when Spurs are struggling. But now we're in a new, less-familiar era`\
-https://nytimes.com/athletic/6843089/2025/11/28/frank-spurs-board/
 
