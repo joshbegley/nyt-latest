@@ -1,3 +1,7 @@
+**Gone in 13 seconds? Lithuania stuns Great Britain with 9 late points, buzzer-beater**\
+`Victory was in sight for the home team, 87-80 up with seconds to go. But Lithuania's Ignas Sargiunas had other ideas.`\
+https://nytimes.com/athletic/6844488/2025/11/28/lithuania-buzzer-beater-ignas-sargiunas/
+
 **LeBron James' fitting in, Magic's smash-mouth offense and more NBA trends I'm watching**\
 `An offense is emerging. An all-time great is fitting in, not out. And a defensive menace is refusing to flop.`\
 https://nytimes.com/athletic/6842643/2025/11/28/nba-trends-lebron-return-magic-offense/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6842818/2025/11/28/nhl-power-rankings-wild/
 **Black Friday could give Jaelan Phillips nightmares. Instead, he's ready to 'rewrite history'**\
 `The last time he played on Black Friday, Phillips tore his Achilles tendon on national television. He's ready to be in the spotlight again.`\
 https://nytimes.com/athletic/6843349/2025/11/28/jaelan-phillips-eagles-black-friday/
-
-**Seahawks, Vikings both made Sam Darnold gambles. Now they’re headed in opposite directions**\
-`The Vikings visit Seattle reeling without reliability at QB, while their former signal-caller has the Seahawks flying high and dreaming big.`\
-https://nytimes.com/athletic/6840683/2025/11/28/sam-darnold-seahawks-vikings-quarterback/
 

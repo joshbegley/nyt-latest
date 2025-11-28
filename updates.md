@@ -1,3 +1,7 @@
+**Gone in 13 seconds? Lithuania stuns Great Britain with 9 late points, buzzer-beater**\
+`Victory was in sight for the home team, 87-80 up with seconds to go. But Lithuania's Ignas Sargiunas had other ideas.`\
+https://nytimes.com/athletic/6844488/2025/11/28/lithuania-buzzer-beater-ignas-sargiunas/
+
 **LeBron James' fitting in, Magic's smash-mouth offense and more NBA trends I'm watching**\
 `An offense is emerging. An all-time great is fitting in, not out. And a defensive menace is refusing to flop.`\
 https://nytimes.com/athletic/6842643/2025/11/28/nba-trends-lebron-return-magic-offense/

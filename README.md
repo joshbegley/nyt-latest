@@ -1,3 +1,7 @@
+**Walsh says majority of WSL players have been abused online, calls for 'more action'**\
+`3,000 social media posts containing “hostile or concerning content” were directed at the England team during Euro 2025, per a report.`\
+https://nytimes.com/athletic/6844594/2025/11/28/england-keira-walsh-online-abuse/
+
 **Gone in 13 seconds? Lithuania stuns Great Britain with 9 late points, buzzer-beater**\
 `Victory was in sight for the home team, 87-80 up with seconds to go. But Lithuania's Ignas Sargiunas had other ideas.`\
 https://nytimes.com/athletic/6844488/2025/11/28/lithuania-buzzer-beater-ignas-sargiunas/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6839625/2025/11/28/ohio-state-michigan-preview-pred
 **NHL Power Rankings: The Wild enter the top 5 and every team's best side dish**\
 `In this week's edition, we want to highlight the NHL's real heroes: The side dishes that deserve recognition.`\
 https://nytimes.com/athletic/6842818/2025/11/28/nhl-power-rankings-wild/
-
-**Black Friday could give Jaelan Phillips nightmares. Instead, he's ready to 'rewrite history'**\
-`The last time he played on Black Friday, Phillips tore his Achilles tendon on national television. He's ready to be in the spotlight again.`\
-https://nytimes.com/athletic/6843349/2025/11/28/jaelan-phillips-eagles-black-friday/
 
