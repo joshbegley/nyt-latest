@@ -1,3 +1,7 @@
+**Packers coach Matt LaFleur backs referees on controversial timeout decision**\
+`Asked at what point the official heard LaFleur ask for a timeout, referee Ron Torbert only said, “before the false start.”`\
+https://nytimes.com/athletic/6843859/2025/11/27/packers-matt-lafleur-referees-controversial-timeout/
+
 **Post Malone honors Cowboys' Marshawn Kneeland in Thanksgiving halftime show**\
 `Kneeland, who played defensive end for the Cowboys, died on Nov. 6 at age 24 from an apparent self-inflicted gunshot wound.`\
 https://nytimes.com/athletic/6843722/2025/11/27/post-malone-kneeland-94-halftime-cowboys-chiefs/
