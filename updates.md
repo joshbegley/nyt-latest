@@ -1,3 +1,7 @@
+**The Transfer Radar 2026: The Athletic's ultimate guide to the players clubs will be keeping an eye on**\
+`Welcome to The 2026 Transfer Radar, our scouting guide for next year's windows`\
+https://nytimes.com/athletic/6838191/2025/11/28/transfer-radar-latest-january-summer-window/
+
 **National Guard Soldier Dies After Being Shot in Washington**\
 `Another Guard member was in critical condition. The suspect is an Afghan man who once served in a paramilitary unit that worked with U.S. forces, officials said.`\
 https://nytimes.com/2025/11/28/us/national-guard-shooting-washington.html
