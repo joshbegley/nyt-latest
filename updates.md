@@ -1,3 +1,7 @@
+**Walsh says majority of WSL players have been abused online, calls for 'more action'**\
+`3,000 social media posts containing “hostile or concerning content” were directed at the England team during Euro 2025, per a report.`\
+https://nytimes.com/athletic/6844594/2025/11/28/england-keira-walsh-online-abuse/
+
 **Gone in 13 seconds? Lithuania stuns Great Britain with 9 late points, buzzer-beater**\
 `Victory was in sight for the home team, 87-80 up with seconds to go. But Lithuania's Ignas Sargiunas had other ideas.`\
 https://nytimes.com/athletic/6844488/2025/11/28/lithuania-buzzer-beater-ignas-sargiunas/
