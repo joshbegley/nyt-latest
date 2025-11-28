@@ -11,7 +11,7 @@ https://nytimes.com/athletic/6841250/2025/11/28/calgary-flames-gm-craig-conroy-c
 https://nytimes.com/athletic/6845235/2025/11/28/florida-lane-kiffin-jon-sumrall-alex-golesh-coaching-search/
 
 **Anthony Davis planning to return from calf injury vs. Lakers: Source**\
-`Anthony Davis will face his former team for the first time since the February trade that sent him to Dallas for Luka Dončić.`\
+`Anthony Davis will play against his former team for the first time since the February trade that sent him to Dallas for Luka Dončić.`\
 https://nytimes.com/athletic/6845491/2025/11/28/mavericks-anthony-davis-return-lakers/
 
 **Snow Squalls and Heavy Winds Pummel Parts of Southern Ontario**\
