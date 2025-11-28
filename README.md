@@ -1,3 +1,7 @@
+**Anthony Davis planning to return from calf injury vs. Lakers: Source**\
+`Anthony Davis will face his former team for the first time since the February trade that sent him to Dallas for Luka Dončić.`\
+https://nytimes.com/athletic/6845491/2025/11/28/mavericks-anthony-davis-return-lakers/
+
 **Snow Squalls and Heavy Winds Pummel Parts of Southern Ontario**\
 `More localized bands of squalls were expected to form, with up to two feet of snow possible in some areas, according to Canada’s forecast agency.`\
 https://nytimes.com/2025/11/28/weather/snow-ontario-quebec-forecast.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/28/business/stock-markets-november-sp500.html
 **Jones says he previously offered Jets first-round pick, Parsons for Williams**\
 `Williams is indirectly part of the return on the Cowboys’ trade of Parsons, which means there will be comparisons made for a long time.`\
 https://nytimes.com/athletic/6845402/2025/11/28/cowboys-jones-jets-trade-parsons-williams/
-
-**‘My Baby Girl Has Passed to Glory,’ Says Father of Guard Soldier Killed in D.C. Shooting**\
-`Specialist Sara Beckstrom, who died on Thursday, was not initially excited to go to Washington, but had grown to enjoy the city. Staff Sgt. Andrew Wolfe remained in critical condition on Friday.`\
-https://nytimes.com/2025/11/28/us/politics/dc-shooting-victims-beckstrom-wolfe.html
 
