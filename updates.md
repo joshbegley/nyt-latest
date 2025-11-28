@@ -1,3 +1,11 @@
+**How to watch Providence vs. Florida men's basketball: Time, TV, streaming**\
+`Find out how to watch the Providence Friars play the Florida Gators, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6844758/2025/11/28/providence-vs-florida-stream-how-to-watch-nov-28/
+
+**How to watch Wisconsin vs. Ole Miss women's basketball: Time, TV, streaming**\
+`Find out how to watch the Wisconsin Badgers play the Ole Miss Rebels, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6844756/2025/11/28/wisconsin-vs-ole-miss-stream-how-to-watch-nov-28/
+
 **49ers Kyle Juszczyk thankful to be a surprising 201 games in and a fan favorite**\
 `The game slows down for the fullback just like it does for elite quarterbacks.`\
 https://nytimes.com/athletic/6843717/2025/11/28/49ers-kyle-juszczyk-fan-favorite-juice/
