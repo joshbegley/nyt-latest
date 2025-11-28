@@ -1,9 +1,13 @@
+**Cowboys' playoff hopes take leap behind Pickens, Prescott: Takeaways**\
+`Dallas wins third straight, will Kansas City drops to .500 with third loss in four games.`\
+https://nytimes.com/athletic/6843626/2025/11/27/chiefs-cowboys-thanksgiving-score-result-takeaways/
+
 **Recent Afghan Arrivals Fear Their Futures in the U.S. Are Now in Jeopardy**\
 `Many are anxious after the Trump administration vowed to undertake sweeping reviews of immigrants after the shooting of two National Guard troops.`\
 https://nytimes.com/2025/11/27/us/politics/afghans-immigrants-fearful-guard-shooting.html
 
 **Packers coach Matt LaFleur backs referees on controversial timeout decision**\
-`Asked at what point the official heard LaFleur ask for a timeout, referee Ron Torbert only said, “before the false start.”`\
+`Asked at what point the official heard LaFleur ask for a timeout, referee Ron Torbert only said “before the false start.”`\
 https://nytimes.com/athletic/6843859/2025/11/27/packers-matt-lafleur-referees-controversial-timeout/
 
 **Post Malone honors Cowboys' Marshawn Kneeland in Thanksgiving halftime show**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6843093/2025/11/27/packers-vs-lions-takeaways-resul
 **Canada Lifts Climate Laws for Alberta Oil Sands, Planning Pipeline**\
 `Prime Minister Mark Carney reached a tentative deal with the province as part of his program to curb the country’s economic dependence on the United States.`\
 https://nytimes.com/2025/11/27/world/canada/alberta-oil-pipeline-climate-change.html
-
-**The Blue Jays are betting big on Dylan Cease — their pitching history shows why**\
-`Like José Berríos, Chris Bassitt and Kevin Gausman before, Cease’s top trait is consistently taking the ball.`\
-https://nytimes.com/athletic/6843558/2025/11/27/blue-jays-dylan-cease-pitching-history/
 
