@@ -1,3 +1,7 @@
+**For Shooting Suspect, a Long Path of Conflict From Afghanistan to America**\
+`Rahmanullah Lakanwal was among the Afghans who came to the United States after the Taliban takeover of Afghanistan. Earlier, he served in a paramilitary unit that worked with U.S. forces.`\
+https://nytimes.com/2025/11/27/us/guard-shooting-suspect-profile.html
+
 **Hustle**\
 `Jacob McDermott opens our solving weekend.`\
 https://nytimes.com/2025/11/27/crosswords/daily-puzzle-2025-11-28.html

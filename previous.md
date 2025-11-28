@@ -1,3 +1,7 @@
+**For Shooting Suspect, a Long Path of Conflict From Afghanistan to America**\
+`Rahmanullah Lakanwal was among the Afghans who came to the United States after the Taliban takeover of Afghanistan. Earlier, he served in a paramilitary unit that worked with U.S. forces.`\
+https://nytimes.com/2025/11/27/us/guard-shooting-suspect-profile.html
+
 **Hustle**\
 `Jacob McDermott opens our solving weekend.`\
 https://nytimes.com/2025/11/27/crosswords/daily-puzzle-2025-11-28.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/27/us/politics/snap-benefits-trump-thanksgiving.html
 **OKC's Jalen Williams off injury report, reportedly to make season debut Friday**\
 `The Thunder guard has yet to play this season while recovering from offseason surgery on his wrist.`\
 https://nytimes.com/athletic/6843698/2025/11/27/okc-all-star-jalen-williams-return/
-
-**UFC Hall of Famer Amanda Nunes to return at UFC 324 against Kayla Harrison**\
-`UFC 324 will be headlined by a matchup up of fan favorites Justin Gaethje and Paddy "The Baddy" Pimblett.`\
-https://nytimes.com/athletic/6841650/2025/11/27/amanda-nunes-ufc-return-paramount-kayla-harrison-justin-gaethje-paddy-pimblett/
 
