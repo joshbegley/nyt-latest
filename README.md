@@ -1,3 +1,11 @@
+**How to watch Providence vs. Florida men's basketball: Time, TV, streaming**\
+`Find out how to watch the Providence Friars play the Florida Gators, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6844758/2025/11/28/providence-vs-florida-stream-how-to-watch-nov-28/
+
+**How to watch Wisconsin vs. Ole Miss women's basketball: Time, TV, streaming**\
+`Find out how to watch the Wisconsin Badgers play the Ole Miss Rebels, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6844756/2025/11/28/wisconsin-vs-ole-miss-stream-how-to-watch-nov-28/
+
 **49ers Kyle Juszczyk thankful to be a surprising 201 games in and a fan favorite**\
 `The game slows down for the fullback just like it does for elite quarterbacks.`\
 https://nytimes.com/athletic/6843717/2025/11/28/49ers-kyle-juszczyk-fan-favorite-juice/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6844407/2025/11/28/transfer-news-2026-villa-violenc
 **NFL Week 13 schedule rankings: Top 5 Sunday games with the best jersey combos**\
 `We're talking throwback uniforms, landscape stadiums and visual appeal in this week's NFL Sunday schedule rankings.`\
 https://nytimes.com/athletic/6838729/2025/11/28/nfl-week-13-schedule-jerseys-bills-steelers-vikings-seahawks/
-
-**Two Young Boys fans arrested after crowd trouble at Villa**\
-`West Midlands Police said in a statement that two away fans had been arrested "on suspicion of affray and assaulting a police officer."`\
-https://nytimes.com/athletic/6844611/2025/11/28/young-boys-fans-arrest-trouble-aston-villa-police/
-
-**How Gen Z Is Shopping**\
-`We look at their habits on Black Friday.`\
-https://nytimes.com/2025/11/28/briefing/how-gen-z-is-shopping.html
 
