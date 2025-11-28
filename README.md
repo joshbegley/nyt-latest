@@ -1,3 +1,7 @@
+**Matt LaFleur and the Packers make a statement in season sweep of Lions**\
+`The Packers will sit atop the NFC North entering Week 14 if the Eagles beat the Bears on Friday afternoon.`\
+https://nytimes.com/athletic/6843866/2025/11/27/matt-lafleur-packers-lions-thanksgiving/
+
 **Cowboys' playoff hopes take leap behind Pickens, Prescott: Takeaways**\
 `Dallas wins third straight, will Kansas City drops to .500 with third loss in four games.`\
 https://nytimes.com/athletic/6843626/2025/11/27/chiefs-cowboys-thanksgiving-score-result-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/27/opinion/national-guard-shot-dc.html
 **Packers-Lions takeaways: Love, Wicks lead Green Bay to key divisional win**\
 `Detroit lost star receiver Amon-Ra St. Brown in the first quarter to a knee injury. `\
 https://nytimes.com/athletic/6843093/2025/11/27/packers-vs-lions-takeaways-result-score-thanksgiving-day-game/
-
-**Canada Lifts Climate Laws for Alberta Oil Sands, Planning Pipeline**\
-`Prime Minister Mark Carney reached a tentative deal with the province as part of his program to curb the country’s economic dependence on the United States.`\
-https://nytimes.com/2025/11/27/world/canada/alberta-oil-pipeline-climate-change.html
 
