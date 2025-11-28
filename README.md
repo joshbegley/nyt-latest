@@ -1,3 +1,19 @@
+**Lowetide: If Oilers make a coaching change, is there a perfect fit candidate?**\
+`Knoblauch just signed an extension in October, and there's plenty of time for him to turn the Oilers around.`\
+https://nytimes.com/athletic/6841499/2025/11/28/edmonton-oilers-kris-knoblauch-coaching-candidates/
+
+**The Leftovers (2025)**\
+`You have a turkey carcass, cranberry sauce and some cheese scraps. We have spicy, reviving birria de pavo and cranberry grilled cheese.`\
+https://nytimes.com/2025/11/28/dining/the-leftovers-2025.html
+
+**After Teen’s Death, a Seattle Icon Confronts a New Label, Nuisance**\
+`For years, architects and design experts have resisted safety changes at Seattle’s Gas Works Park, but after a teenager died there this summer, his parents want it declared a public nuisance.`\
+https://nytimes.com/2025/11/28/us/politics/gas-works-park-teen-death.html
+
+**Five Action Movies to Stream Now**\
+`This month’s picks include elaborate ambulance chasing, a killer shark and crime south of the border.`\
+https://nytimes.com/2025/11/28/movies/five-action-movies-to-stream-now.html
+
 **Officials Had Been Warned for Over a Year Before Hong Kong Fire**\
 `Residents of Wang Fuk Court apartments had raised concerns about flammable foam panels and scaffold netting, but the government did not take decisive action.`\
 https://nytimes.com/2025/11/28/world/asia/hong-kong-fire-officials-warned.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/11/28/arts/turner-constable-tate-britain.html
 **Israeli Raid in Southern Syria Kills at Least 13, Syrian Officials Say**\
 `The raid appeared to be one of Israel’s deadliest cross-border incursions since Bashar al-Assad, Syria’s former dictator, was ousted last year.`\
 https://nytimes.com/2025/11/28/world/europe/israel-syria-raid-beit-jinn.html
-
-**Mel Robbins on Avoiding Holiday Burnout**\
-`We invited Mel Robbins to The Wirecutter Show for help navigating the expectations and pressures that come with the holiday season.`\
-https://nytimes.com/video/smarter-living/wirecutter/100000010553309/mel-robbins-on-avoiding-holiday-burnout.html
-
-**No Corrections: Nov. 28, 2025**\
-`No corrections appeared in print on Friday, Nov. 28, 2025.`\
-https://nytimes.com/2025/11/28/pageoneplus/no-corrections-nov-28-2025.html
-
-**Palmer is 'available' for Chelsea after 13 games out, Maresca says**\
-`The England international sustained a groin injury in September before fracturing a toe last week. `\
-https://nytimes.com/athletic/6844907/2025/11/28/cole-palmer-injury-news-chelsea-maresca/
-
-**Under center? The pistol? Falcons still searching for the right offensive identity**\
-`Offensive coordinator Zac Robinson talked about the (lack of) difference between offensive alignments for QB Kirk Cousins this week.`\
-https://nytimes.com/athletic/6844807/2025/11/28/falcons-kirk-cousins-offense-under-center-pistol/
 
