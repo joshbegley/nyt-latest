@@ -1,40 +1,40 @@
-**Reasons to be concerned about the Jets' latest rebuild**\
-`There have been some familiar themes for the Aaron Glenn-led Jets.`\
-https://nytimes.com/athletic/6844076/2025/11/28/aaron-glenn-new-york-jets-rebuild-concerns/
+**LeBron James' fitting in, Magic's smash-mouth offense and more NBA trends I'm watching**\
+`An offense is emerging. An all-time great is fitting in, not out. And a defensive menace is refusing to flop.`\
+https://nytimes.com/athletic/6842643/2025/11/28/nba-trends-lebron-return-magic-offense/
 
-**Holiday gifts for golfers: Our writers share their favorite things**\
-`Buying the right gift for the golfers in your life is never easy, but our experts are here to help`\
-https://nytimes.com/athletic/6836586/2025/11/28/golf-gift-guide-apparel-books-equipment/
+**Lamar Jackson at a loss over Ravens' recent offensive struggles: 'I can’t call it'**\
+`In front of a prime-time Thanksgiving audience, Cincinnati became the latest team to make Baltimore's offense look mistake-prone and inept.`\
+https://nytimes.com/athletic/6844253/2025/11/28/ravens-offensive-struggles-lamar-jackson-loss-bengals/
 
-**The New York Times International Edition in Print for Saturday, Nov. 29, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/11/28/todays-new-york-times-international-edition
+**Why Thanksgiving night touched Joe Burrow's emotions and his teammates' belief**\
+`After a long road Burrow officially announced to the NFL world he was back Thursday night — and the Bengals just might be, too`\
+https://nytimes.com/athletic/6844340/2025/11/28/joe-burrow-bengals-ravens-thanksgiving/
 
-**Trump’s Aid Cuts Are Replacing Fresh Food With Junk**\
-`The Trump administration has cut nearly a billion dollars in food aid, creating a scarcity crisis at food banks across the country. We traveled to Georgia to observe how a decades-old emergency food system supported by the U.S.D.A. is being eroded by government spending cuts.`\
-https://nytimes.com/video/us/100000010552406/trumps-aid-cuts-are-replacing-fresh-food-with-junk.html
+**Tetairoa McMillan's impact is undeniable: Grading Panthers offensive rookies**\
+`McMillan might be tough on himself when it comes to grading his season, but he's been an excellent addition to the offense.`\
+https://nytimes.com/athletic/6841354/2025/11/28/panthers-tetairoa-mcmillan-offense-rookie-grades/
 
-**How to watch Lightning vs. Red Wings: Time, TV, streaming**\
-`Find out how to watch the Tampa Bay Lightning play the Detroit Red Wings, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6844486/2025/11/28/lightning-vs-red-wings-stream-how-to-watch-nov-28/
+**The Cowboys' offense is great, but their defense is why playoff talk is intensifying**\
+`The Cowboys have won three consecutive games, and while their playoff chances remain slim, their confidence is building.`\
+https://nytimes.com/athletic/6844134/2025/11/28/cowboys-beat-chiefs-playoff-chase-thanksgiving/
 
-**How to watch Rangers vs. Bruins: Time, TV, streaming**\
-`Find out how to watch the New York Rangers play the Boston Bruins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6844484/2025/11/28/rangers-vs-bruins-stream-how-to-watch-nov-28/
+**What to know about the NFL Black Friday game between the Bears and Eagles**\
+`Both teams hit Black Friday with 8-3 records and first-place division standings. This game is available without a Prime subscription.`\
+https://nytimes.com/athletic/6838214/2025/11/28/bears-eagles-nfl-black-friday-game-prime-watch/
 
-**How to watch Vanderbilt vs. Saint Mary's (CA) men's basketball: Time, TV, streaming**\
-`Find out how to watch the Vanderbilt Commodores play the Saint Mary's Gaels, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6844477/2025/11/28/vanderbilt-vs-saint-mary-s-ca-stream-how-to-watch-nov-28/
+**Michigan-Ohio State breakdown: Coaches under pressure, players to watch, predictions**\
+`The Athletic’s Cameron Teague Robinson and Austin Meek discuss key questions ahead of this year's showdown.`\
+https://nytimes.com/athletic/6839625/2025/11/28/ohio-state-michigan-preview-predictions-2/
 
-**How to watch Charlotte vs. Oklahoma State women's basketball: Time, TV, streaming**\
-`Find out how to watch the Charlotte 49ers play the Oklahoma State Cowgirls, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6844475/2025/11/28/charlotte-vs-oklahoma-state-stream-how-to-watch-nov-28/
+**NHL Power Rankings: The Wild enter the top 5 and every team's best side dish**\
+`In this week's edition, we want to highlight the NHL's real heroes: The side dishes that deserve recognition.`\
+https://nytimes.com/athletic/6842818/2025/11/28/nhl-power-rankings-wild/
 
-**How to watch Eastern Illinois vs. Purdue men's basketball: Time, TV, streaming**\
-`Find out how to watch the Eastern Illinois Panthers play the Purdue Boilermakers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6844473/2025/11/28/eastern-illinois-vs-purdue-stream-how-to-watch-nov-28/
+**Black Friday could give Jaelan Phillips nightmares. Instead, he's ready to 'rewrite history'**\
+`The last time he played on Black Friday, Phillips tore his Achilles tendon on national television. He's ready to be in the spotlight again.`\
+https://nytimes.com/athletic/6843349/2025/11/28/jaelan-phillips-eagles-black-friday/
 
-**How to watch Kansas State vs. North Carolina women's basketball: Time, TV, streaming**\
-`Find out how to watch the Kansas State Wildcats play the North Carolina Tar Heels, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6844471/2025/11/28/kansas-state-vs-north-carolina-stream-how-to-watch-nov-28/
+**Seahawks, Vikings both made Sam Darnold gambles. Now they’re headed in opposite directions**\
+`The Vikings visit Seattle reeling without reliability at QB, while their former signal-caller has the Seahawks flying high and dreaming big.`\
+https://nytimes.com/athletic/6840683/2025/11/28/sam-darnold-seahawks-vikings-quarterback/
 
