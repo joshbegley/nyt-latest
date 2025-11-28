@@ -1,3 +1,7 @@
+**‘My Baby Girl Has Passed to Glory,’ Says Father of Guard Soldier Killed in D.C. Shooting**\
+`Specialist Sara Beckstrom, who died on Thursday, was not initially excited to go to Washington, but had grown to enjoy the city. Staff Sgt. Andrew Wolfe remained in critical condition on Friday.`\
+https://nytimes.com/2025/11/28/us/politics/dc-shooting-victims-beckstrom-wolfe.html
+
 **Edvardsen apologises after mocking appearance of Stuttgart's Stiller**\
 `Edvardsen, standing in the face of Stiller, mockingly gestured at his own nose, sparking a clash between the two teams.`\
 https://nytimes.com/athletic/6845381/2025/11/28/victor-edvardsen-angelo-stiller-apology/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6845190/2025/11/28/canadiens-mike-matheson-contract
 **Lane Kiffin: MSU supporters broke into Ole Miss locker room, stole QB's jersey**\
 `Ole Miss reportedly traveled with backup jerseys, so it shouldn't be an issue for the Egg Bowl.`\
 https://nytimes.com/athletic/6845261/2025/11/28/lane-kiffin-egg-bowl-locker-room-break-in/
-
-**How to watch Maple Leafs vs. Capitals: Time, TV, streaming**\
-`Find out how to watch the Toronto Maple Leafs play the Washington Capitals, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6845273/2025/11/28/maple-leafs-vs-capitals-stream-how-to-watch-nov-28/
 

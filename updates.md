@@ -1,3 +1,7 @@
+**‘My Baby Girl Has Passed to Glory,’ Says Father of Guard Soldier Killed in D.C. Shooting**\
+`Specialist Sara Beckstrom, who died on Thursday, was not initially excited to go to Washington, but had grown to enjoy the city. Staff Sgt. Andrew Wolfe remained in critical condition on Friday.`\
+https://nytimes.com/2025/11/28/us/politics/dc-shooting-victims-beckstrom-wolfe.html
+
 **Edvardsen apologises after mocking appearance of Stuttgart's Stiller**\
 `Edvardsen, standing in the face of Stiller, mockingly gestured at his own nose, sparking a clash between the two teams.`\
 https://nytimes.com/athletic/6845381/2025/11/28/victor-edvardsen-angelo-stiller-apology/
