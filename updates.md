@@ -1,3 +1,7 @@
+**We need to talk about McLaren conspiracies. Plus, Piastri leads early in Qatar**\
+`More conspiracy theories engulfed the McLaren F1 team this week. Here's why they're wide of the mark`\
+https://nytimes.com/athletic/6845187/2025/11/28/mclaren-f1-conspiracy-theories/
+
 **Trapped for Two Hours in a Burning Tower: One Resident’s Account**\
 `In his own words, William Li, a resident of the Hong Kong apartment complex that became an inferno, recounted how he and two neighbors survived until help arrived.`\
 https://nytimes.com/2025/11/28/world/asia/hong-kong-fire-survivor-escape-story.html

@@ -1,3 +1,7 @@
+**We need to talk about McLaren conspiracies. Plus, Piastri leads early in Qatar**\
+`More conspiracy theories engulfed the McLaren F1 team this week. Here's why they're wide of the mark`\
+https://nytimes.com/athletic/6845187/2025/11/28/mclaren-f1-conspiracy-theories/
+
 **Trapped for Two Hours in a Burning Tower: One Resident’s Account**\
 `In his own words, William Li, a resident of the Hong Kong apartment complex that became an inferno, recounted how he and two neighbors survived until help arrived.`\
 https://nytimes.com/2025/11/28/world/asia/hong-kong-fire-survivor-escape-story.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6845273/2025/11/28/maple-leafs-vs-capitals-stream-h
 **How to watch Jets vs. Hurricanes: Time, TV, streaming**\
 `Find out how to watch the Winnipeg Jets play the Carolina Hurricanes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6845271/2025/11/28/jets-vs-hurricanes-stream-how-to-watch-nov-28/
-
-**How to watch Penguins vs. Blue Jackets: Time, TV, streaming**\
-`Find out how to watch the Pittsburgh Penguins play the Columbus Blue Jackets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6845269/2025/11/28/penguins-vs-blue-jackets-stream-how-to-watch-nov-28/
 
