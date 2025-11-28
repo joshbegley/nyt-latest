@@ -1,3 +1,11 @@
+**Von Miller picked the Commanders because he wanted to win. Now what?**\
+`As the Broncos come to Washington, Miller's former team is flying high, while the Commanders are just trying to salvage a lost season.`\
+https://nytimes.com/athletic/6844695/2025/11/28/von-miller-broncos-commanders/
+
+**Until Saturday: College football's biggest Friday ever?**\
+`Until Saturday is The Athletic's free college football newsletter.`\
+https://nytimes.com/athletic/6844770/2025/11/28/college-football-black-friday-lane-kiffin-until-saturday/
+
 **Police chief seeks assurances of 'credibility' of intelligence over Maccabi Tel Aviv fan ban**\
 `Ten people were arrested on the night of the match against Aston Villa after heated protests at the Israeli club's lack of fan allocation.`\
 https://nytimes.com/athletic/6844215/2025/11/28/west-midlands-police-maccabi-tel-aviv/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6844776/2025/11/28/flyers-vs-islanders-stream-how-t
 **How to watch Canucks vs. Sharks: Time, TV, streaming**\
 `Find out how to watch the Vancouver Canucks play the San Jose Sharks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6844779/2025/11/28/canucks-vs-sharks-stream-how-to-watch-nov-28/
-
-**How to watch Flames vs. Panthers: Time, TV, streaming**\
-`Find out how to watch the Calgary Flames play the Florida Panthers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6844774/2025/11/28/flames-vs-panthers-stream-how-to-watch-nov-28/
-
-**How to watch Avalanche vs. Wild: Time, TV, streaming**\
-`Find out how to watch the Colorado Avalanche play the Minnesota Wild, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6844772/2025/11/28/avalanche-vs-wild-stream-how-to-watch-nov-28/
 
