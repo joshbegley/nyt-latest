@@ -1,3 +1,7 @@
+**No Corrections: Nov. 28, 2025**\
+`No corrections appeared in print on Friday, Nov. 28, 2025.`\
+https://nytimes.com/2025/11/28/pageoneplus/no-corrections-nov-28-2025.html
+
 **Palmer is 'available' for Chelsea after 13 games out, Maresca says**\
 `The England international sustained a groin injury in September before fracturing a toe last week. `\
 https://nytimes.com/athletic/6844907/2025/11/28/cole-palmer-injury-news-chelsea-maresca/
