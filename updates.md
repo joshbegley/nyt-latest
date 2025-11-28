@@ -1,3 +1,11 @@
+**Dyche is getting Forest's Europa League balancing act right**\
+`Nottingham Forest rotated heavily against Malmo but managed to win the game 3-0`\
+https://nytimes.com/athletic/6843714/2025/11/28/nottingham-forest-malmo-analysis/
+
+**Remembering 'Barmy Charlie', English football's most famous flag man**\
+`Charlie Barlow was not a household name but if you have watched sport in England in the past 30 years, you will have seen his handiwork`\
+https://nytimes.com/athletic/6842271/2025/11/28/barmy-charlie-flag-manchester-united/
+
 **Sri Lanka on High Alert as Cyclone Death Toll Reaches 56**\
 `Heavy rainfall was forecast for nearly all of the island nation as Cyclone Ditwah churned northwest toward India.`\
 https://nytimes.com/2025/11/28/world/asia/sri-lanka-cyclone-ditwah-toll.html
