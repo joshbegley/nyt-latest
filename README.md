@@ -1,3 +1,11 @@
+**Officials Had Been Warned for Over a Year Before Hong Kong Fire**\
+`Residents of Wang Fuk Court apartments had raised concerns about flammable foam panels and scaffold netting, but the government did not take decisive action.`\
+https://nytimes.com/2025/11/28/world/asia/hong-kong-fire-officials-warned.html
+
+**Oregon State hires Alabama co-OC JaMarcus Shephard as head coach**\
+`At Oregon State, Shephard replaces Trent Bray, who was fired midway through his second season.`\
+https://nytimes.com/athletic/6845040/2025/11/28/oregon-state-coaching-hire-jamarcus-shephard/
+
 **Zelensky’s Top Aide Resigns Amid Widening Corruption Scandal**\
 `Andriy Yermak, President Volodymyr Zelensky’s chief of staff and top peace negotiator, became the highest-ranking casualty of an investigation into a vast kickback scheme.`\
 https://nytimes.com/2025/11/28/world/europe/zelensky-yermak-resigns-ukraine-corruption-scandal.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6844907/2025/11/28/cole-palmer-injury-news-chelsea-
 **Under center? The pistol? Falcons still searching for the right offensive identity**\
 `Offensive coordinator Zac Robinson talked about the (lack of) difference between offensive alignments for QB Kirk Cousins this week.`\
 https://nytimes.com/athletic/6844807/2025/11/28/falcons-kirk-cousins-offense-under-center-pistol/
-
-**The Pulse: Super Bowl contenders go splat**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6839028/2025/11/28/thanksgiving-nfl-results-the-pulse/
-
-**A Giftable, Mesmerizing Cheese Cutter**\
-`We’re starting a petition to have this cheesy contraption at every holiday party from here on out. You in? Writer Maki Yazawa reviewed the medieval-looking cheese cutter that “provides boundless entertainment for my inquisitive guests.”`\
-https://nytimes.com/video/smarter-living/wirecutter/100000010553268/a-giftable-mesmerizing-cheese-cutter.html
 
