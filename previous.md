@@ -1,3 +1,7 @@
+**The New York Times in Print for Friday, Nov. 28, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/11/28/todays-new-york-times
+
 **England's grim fascination with the batting collapse: 'You feel like you’ve had no time to breathe'**\
 `The tourists' capitulation after lunch on day two of the first Test at Perth was another example of their batting line-up falling apart`\
 https://nytimes.com/athletic/6839455/2025/11/28/ashes-england-batting-collapse-perth-adelaide-vaughan-jones/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6838139/2025/11/28/omar-marmoush-erling-haaland-man
 **Everything you need to know about the 2026 World Cup draw**\
 `The 2026 World Cup draw takes place on December 5 with U.S. President Donald Trump expected to be in attendance`\
 https://nytimes.com/athletic/6833086/2025/11/28/world-cup-draw-format-watch-teams-pot/
-
-**Joe Burrow shines in return as Cincinnati defense stifles Ravens: Takeaways**\
-`Quarterback throws two touchdown passes in his first start since Week 2 as Bengals rout struggling Ravens.`\
-https://nytimes.com/athletic/6844111/2025/11/28/bengals-ravens-thanksgiving-score-result-takeaways/
 

@@ -1,3 +1,7 @@
+**The New York Times in Print for Friday, Nov. 28, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/11/28/todays-new-york-times
+
 **England's grim fascination with the batting collapse: 'You feel like you’ve had no time to breathe'**\
 `The tourists' capitulation after lunch on day two of the first Test at Perth was another example of their batting line-up falling apart`\
 https://nytimes.com/athletic/6839455/2025/11/28/ashes-england-batting-collapse-perth-adelaide-vaughan-jones/
