@@ -1,3 +1,7 @@
+**Ellen Bryant Voigt, Poet With a Musical Ear, Dies at 82**\
+`Her nine volumes included “Kyrie,” a suite of sonnets about the 1918 influenza epidemic. She was also Pulitzer Prize finalist and a poet laureate of Vermont.`\
+https://nytimes.com/2025/11/28/books/ellen-bryant-voigt-dead.html
+
 **College Football Playoff 2025 projections: The most likely bracket as Rivalry Week begins**\
 `Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
 https://nytimes.com/athletic/6560541/2025/11/28/college-football-playoff-bracket-projections-odds/
