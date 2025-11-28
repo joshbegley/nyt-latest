@@ -1,3 +1,11 @@
+**Snow Squalls and Heavy Winds Pummel Parts of Southern Ontario**\
+`More localized bands of squalls were expected to form, with up to two feet of snow possible in some areas, according to Canada’s forecast agency.`\
+https://nytimes.com/2025/11/28/weather/snow-ontario-quebec-forecast.html
+
+**Women's World Cup 2031: 50 stadiums submitted for U.S., Mexico, Costa Rica, Jamaica bid**\
+`U.S. Soccer has submitted a bid book of potential host cities: 28 in the U.S., six in Mexico, and one each in Costa Rica amd Jamaica.`\
+https://nytimes.com/athletic/6845439/2025/11/28/womens-world-cup-2031-bid-stadiums-cities/
+
 **What to Know About Andriy Yermak**\
 `The chief of staff to President Volodymyr Zelensky of Ukraine was seen as the second-most powerful person in Ukraine. He was dismissed on Friday.`\
 https://nytimes.com/2025/11/28/world/europe/yermak-zelensky-ukraine-what-to-know.html
