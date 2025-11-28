@@ -35,6 +35,6 @@ https://nytimes.com/athletic/6840023/2025/11/28/gunner-stockton-haynes-king-heis
 https://nytimes.com/athletic/6843402/2025/11/28/the-athletics-friday-football-quiz-question-83/
 
 **Behind the scenes with Michigan in Las Vegas: Late nights, a $1 million prize and raised expectations**\
-`LAS VEGAS — Dusty May breaks from watching film on Sunday afternoon when a visitor stops by Michigan’s temporary headquarters inside a ballroom at the Park MGM Hotel.`\
+`The Athletic went all-access with the Wolverines as they pummeled Gonzaga by 40 points to win the Players Era Festival.`\
 https://nytimes.com/athletic/6844128/2025/11/28/michigan-basketball-players-era-championship/
 
