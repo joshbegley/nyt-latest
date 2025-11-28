@@ -1,3 +1,35 @@
+**Jadon Sancho is still a work in progress at Aston Villa - he must prove himself quickly**\
+`The Manchester United loanee's career remains in a state of drift, but Thursday evening offered some signs of promise`\
+https://nytimes.com/athletic/6843597/2025/11/28/jadon-sancho-aston-villa-young-boys/
+
+**Why Gueye's Everton explosion was so shocking: 'He's very calm'**\
+`The Senegalese's outburst took everyone by surprise on Monday, not least his own team-mates`\
+https://nytimes.com/athletic/6842380/2025/11/28/idrissa-gueye-everton-profile/
+
+**Verbruggen interview: Forest redemption, switching off from football, his World Cup dream**\
+`Verbruggen explains why he's very happy with the 'personality' and goalkeeping group at Brighton - and his 'boyhood dream' to come next year`\
+https://nytimes.com/athletic/6833794/2025/11/28/verbruggen-brighton-forest-world-cup-netherlands/
+
+**FPL: Should you consider playing a Free Hit in Gameweek 13?**\
+`While still having a stock of chips is advantageous for FPL managers, time is running out to activate them before Gameweek 19`\
+https://nytimes.com/athletic/6839258/2025/11/28/fantasy-premier-league-fpl-tips-gameweek-13-free-hit/
+
+**Spurs and Frank in uncharted territory with new-look hierarchy watching on**\
+`We have become accustomed to the cameras cutting to Daniel Levy when Spurs are struggling. But now we're in a new, less-familiar era`\
+https://nytimes.com/athletic/6843089/2025/11/28/frank-spurs-board/
+
+**Analysing the squad depth that has underpinned Arsenal's dream start to this season**\
+`Last season, Mikel Arteta demanded more availability in his squad – now he has plenty of it`\
+https://nytimes.com/athletic/6842113/2025/11/28/arsenal-squad-depth-analysis/
+
+**Omar Marmoush is in Haaland Purgatory. What's the solution for him and Man City?**\
+`Marmoush finds himself in a similar position to Julian Alvarez when he was at Man City, knowing he was clearly second fiddle to Haaland`\
+https://nytimes.com/athletic/6838139/2025/11/28/omar-marmoush-erling-haaland-man-city-analysis/
+
+**Everything you need to know about the 2026 World Cup draw**\
+`The 2026 World Cup draw takes place on December 5 with U.S. President Donald Trump expected to be in attendance`\
+https://nytimes.com/athletic/6833086/2025/11/28/world-cup-draw-format-watch-teams-pot/
+
 **Joe Burrow shines in return as Cincinnati defense stifles Ravens: Takeaways**\
 `Quarterback throws two touchdown passes in his first start since Week 2 as Bengals rout struggling Ravens.`\
 https://nytimes.com/athletic/6844111/2025/11/28/bengals-ravens-thanksgiving-score-result-takeaways/

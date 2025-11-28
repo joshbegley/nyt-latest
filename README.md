@@ -1,3 +1,7 @@
+**England's grim fascination with the batting collapse: 'You feel like you’ve had no time to breathe'**\
+`The tourists' capitulation after lunch on day two of the first Test at Perth was another example of their batting line-up falling apart`\
+https://nytimes.com/athletic/6839455/2025/11/28/ashes-england-batting-collapse-perth-adelaide-vaughan-jones/
+
 **Jadon Sancho is still a work in progress at Aston Villa - he must prove himself quickly**\
 `The Manchester United loanee's career remains in a state of drift, but Thursday evening offered some signs of promise`\
 https://nytimes.com/athletic/6843597/2025/11/28/jadon-sancho-aston-villa-young-boys/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6833086/2025/11/28/world-cup-draw-format-watch-team
 **Joe Burrow shines in return as Cincinnati defense stifles Ravens: Takeaways**\
 `Quarterback throws two touchdown passes in his first start since Week 2 as Bengals rout struggling Ravens.`\
 https://nytimes.com/athletic/6844111/2025/11/28/bengals-ravens-thanksgiving-score-result-takeaways/
-
-**Vladimir Coufal interview: 'West Ham decided to go in a different direction. I'm still not over it'**\
-`The defender spent five years at the club and was shocked when he was told he was being released. The pain is still raw`\
-https://nytimes.com/athletic/6839785/2025/11/28/vladimir-coufal-interview-west-ham/
 

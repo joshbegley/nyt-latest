@@ -1,3 +1,35 @@
+**Jadon Sancho is still a work in progress at Aston Villa - he must prove himself quickly**\
+`The Manchester United loanee's career remains in a state of drift, but Thursday evening offered some signs of promise`\
+https://nytimes.com/athletic/6843597/2025/11/28/jadon-sancho-aston-villa-young-boys/
+
+**Why Gueye's Everton explosion was so shocking: 'He's very calm'**\
+`The Senegalese's outburst took everyone by surprise on Monday, not least his own team-mates`\
+https://nytimes.com/athletic/6842380/2025/11/28/idrissa-gueye-everton-profile/
+
+**Verbruggen interview: Forest redemption, switching off from football, his World Cup dream**\
+`Verbruggen explains why he's very happy with the 'personality' and goalkeeping group at Brighton - and his 'boyhood dream' to come next year`\
+https://nytimes.com/athletic/6833794/2025/11/28/verbruggen-brighton-forest-world-cup-netherlands/
+
+**FPL: Should you consider playing a Free Hit in Gameweek 13?**\
+`While still having a stock of chips is advantageous for FPL managers, time is running out to activate them before Gameweek 19`\
+https://nytimes.com/athletic/6839258/2025/11/28/fantasy-premier-league-fpl-tips-gameweek-13-free-hit/
+
+**Spurs and Frank in uncharted territory with new-look hierarchy watching on**\
+`We have become accustomed to the cameras cutting to Daniel Levy when Spurs are struggling. But now we're in a new, less-familiar era`\
+https://nytimes.com/athletic/6843089/2025/11/28/frank-spurs-board/
+
+**Analysing the squad depth that has underpinned Arsenal's dream start to this season**\
+`Last season, Mikel Arteta demanded more availability in his squad – now he has plenty of it`\
+https://nytimes.com/athletic/6842113/2025/11/28/arsenal-squad-depth-analysis/
+
+**Omar Marmoush is in Haaland Purgatory. What's the solution for him and Man City?**\
+`Marmoush finds himself in a similar position to Julian Alvarez when he was at Man City, knowing he was clearly second fiddle to Haaland`\
+https://nytimes.com/athletic/6838139/2025/11/28/omar-marmoush-erling-haaland-man-city-analysis/
+
+**Everything you need to know about the 2026 World Cup draw**\
+`The 2026 World Cup draw takes place on December 5 with U.S. President Donald Trump expected to be in attendance`\
+https://nytimes.com/athletic/6833086/2025/11/28/world-cup-draw-format-watch-teams-pot/
+
 **Joe Burrow shines in return as Cincinnati defense stifles Ravens: Takeaways**\
 `Quarterback throws two touchdown passes in his first start since Week 2 as Bengals rout struggling Ravens.`\
 https://nytimes.com/athletic/6844111/2025/11/28/bengals-ravens-thanksgiving-score-result-takeaways/
@@ -5,36 +37,4 @@ https://nytimes.com/athletic/6844111/2025/11/28/bengals-ravens-thanksgiving-scor
 **Vladimir Coufal interview: 'West Ham decided to go in a different direction. I'm still not over it'**\
 `The defender spent five years at the club and was shocked when he was told he was being released. The pain is still raw`\
 https://nytimes.com/athletic/6839785/2025/11/28/vladimir-coufal-interview-west-ham/
-
-**If Liverpool sack Slot, they just become like every other club**\
-`A title-winning manager has never been dismissed at Anfield - ripping up that record cannot be done lightly`\
-https://nytimes.com/athletic/6825725/2025/11/28/arne-liverpool-manager-sack/
-
-**What's next for Vinicius Junior and Real Madrid?**\
-`The 25-year-old Brazilian's future has been a talking point at Real Madrid for months, but this week it has really heated up`\
-https://nytimes.com/athletic/6842102/2025/11/28/vinicius-jr-real-madrid-contract-renewal-next/
-
-**'Until I started coaching, I was paralysed' - David Flitcroft on football and grief**\
-`The loss of his father in 2008 has been the spur for Flitcroft to get involved coaching kids at grassroots level`\
-https://nytimes.com/athletic/6835979/2025/11/28/until-i-started-coaching-i-was-paralysed-david-flitcroft-on-football-and-grief/
-
-**How a Paris basketball team nurtured two current NBA coaches**\
-`When the Portland Trail Blazers and Memphis Grizzlies meet on December 7, a team in Paris will be watching with intent`\
-https://nytimes.com/athletic/6797772/2025/11/28/paris-basketball-tuomas-iisalo-thiago-splitter-nba/
-
-**Is the World Cup really the equivalent of 104 Super Bowls?**\
-`FIFA president Gianni Infantino claimed that next summer's World Cup will be the equivalent of three Super Bowls a day. Is he right?`\
-https://nytimes.com/athletic/6823244/2025/11/28/is-the-world-cup-really-the-equivalent-of-104-super-bowls/
-
-**Premier League Predictions: Chelsea vs Arsenal, West Ham vs Liverpool and the rest of Matchday 13**\
-`Who's leading after MD12? And what does our writer, the algorithm, a child and this week's subscriber expect to see on Matchday 13?`\
-https://nytimes.com/athletic/6839270/2025/11/28/premier-league-predictions-chelsea-arsenal-matchday-13/
-
-**In Turkey, Pope Seeks to Soothe an Ancient Christian Divide**\
-`In Istanbul, Pope Leo XIV will meet the patriarch of the Eastern Orthodox Church to show amity between two of the world’s largest Christian groups.`\
-https://nytimes.com/2025/11/28/world/middleeast/pope-leo-turkey-church.html
-
-**Quote of the Day: Climate ‘Shock’ is Eating Away at Home Values**\
-`Quotation of the Day for Friday, November 28, 2025.`\
-https://nytimes.com/2025/11/28/pageoneplus/quote-of-the-day-climate-shock-is-eating-away-at-home-values.html
 
