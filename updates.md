@@ -1,3 +1,7 @@
+**Cyclone Ditwah Triggers Deadly Rains in Sri Lanka**\
+`Several dozen people in Sri Lanka have been killed in storms that intensified with the approach of Cyclone Ditwah, the country’s deadliest natural disaster since 2017.`\
+https://nytimes.com/video/world/asia/100000010553205/sri-lanka-cyclone-ditwah-deaths.html
+
 **Von Miller picked the Commanders because he wanted to win. Now what?**\
 `As the Broncos come to Washington, Miller's former team is flying high, while the Commanders are just trying to salvage a lost season.`\
 https://nytimes.com/athletic/6844695/2025/11/28/von-miller-broncos-commanders/

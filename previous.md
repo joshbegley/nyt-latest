@@ -1,3 +1,7 @@
+**Cyclone Ditwah Triggers Deadly Rains in Sri Lanka**\
+`Several dozen people in Sri Lanka have been killed in storms that intensified with the approach of Cyclone Ditwah, the country’s deadliest natural disaster since 2017.`\
+https://nytimes.com/video/world/asia/100000010553205/sri-lanka-cyclone-ditwah-deaths.html
+
 **Von Miller picked the Commanders because he wanted to win. Now what?**\
 `As the Broncos come to Washington, Miller's former team is flying high, while the Commanders are just trying to salvage a lost season.`\
 https://nytimes.com/athletic/6844695/2025/11/28/von-miller-broncos-commanders/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6844780/2025/11/28/senators-vs-blues-stream-how-to-
 **How to watch Flyers vs. Islanders: Time, TV, streaming**\
 `Find out how to watch the Philadelphia Flyers play the New York Islanders, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6844776/2025/11/28/flyers-vs-islanders-stream-how-to-watch-nov-28/
-
-**How to watch Canucks vs. Sharks: Time, TV, streaming**\
-`Find out how to watch the Vancouver Canucks play the San Jose Sharks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6844779/2025/11/28/canucks-vs-sharks-stream-how-to-watch-nov-28/
 
