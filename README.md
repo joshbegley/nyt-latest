@@ -1,3 +1,15 @@
+**$2 Million Homes in São Paulo, Brazil**\
+`A modernist house in Alto de Pinheiros, an eight-acre estate in Campos do Jordão, and a 15th-floor apartment with city views.`\
+https://nytimes.com/2025/11/28/realestate/sao-paulo-brazil-homes-sale.html
+
+**Hope for Survivors Fades as Hong Kong Fire Rescue Efforts Cease**\
+`The rescue operation in the Hong Kong fire disaster ceased on Friday, two days after the blaze started. At least 128 were killed and 200 others remained unaccounted for, local officials said.`\
+https://nytimes.com/video/world/asia/100000010552971/hong-kong-rescue-ends-fire.html
+
+**Instant grades for college football's 2025-26 head-coaching hires**\
+`In college football, you never really know whether a coaching hire is going to work. But it's never too early to talk about fit.`\
+https://nytimes.com/athletic/6827060/2025/11/28/college-football-coaching-carousel-grades/
+
 **Canadiens, Mike Matheson agree to 5-year contract extension**\
 `Matheson has 14 points in 22 games with a team-best plus-13 rating and is known as the Canadiens' best-conditioned player.`\
 https://nytimes.com/athletic/6845190/2025/11/28/canadiens-mike-matheson-contract-extension/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6845189/2025/11/28/crystal-palace-strasbourg-fans-a
 **Ranking college football's 11 open coaching jobs: LSU No. 1; Cal or Stanford?**\
 `This could be the most active coaching carousel college football has seen in many years.`\
 https://nytimes.com/athletic/6662286/2025/11/28/college-football-open-coaching-jobs-rankings/
-
-**How to watch Coppin State vs. Oklahoma women's basketball: Time, TV, streaming**\
-`Find out how to watch the Coppin State Eagles play the Oklahoma Sooners, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6845252/2025/11/28/coppin-state-vs-oklahoma-stream-how-to-watch-nov-28/
-
-**How to watch UAB vs. TCU women's basketball: Time, TV, streaming**\
-`Find out how to watch the UAB Blazers play the TCU Horned Frogs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6845250/2025/11/28/uab-vs-tcu-stream-how-to-watch-nov-28/
-
-**How to watch Eastern Illinois vs. Louisville women's basketball: Time, TV, streaming**\
-`Find out how to watch the Eastern Illinois Panthers play the Louisville Cardinals, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6845248/2025/11/28/eastern-illinois-vs-louisville-stream-how-to-watch-nov-28/
 
