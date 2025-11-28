@@ -1,3 +1,7 @@
+**Flashback: Your Weekly History Quiz, Nov. 29, 2025**\
+`Can you sort 8 historical events?`\
+https://nytimes.com/interactive/2025/11/28/upshot/flashback.html
+
 **Cowboys' Pickens says sun cost him a catch at AT&T Stadium: Why it's an issue**\
 `The unique configuration of Cowboys' stadium continues to cause problems for players, but Jerry Jones is resistant to change.`\
 https://nytimes.com/athletic/6845530/2025/11/28/cowboys-att-stadium-sunlight-issues/
