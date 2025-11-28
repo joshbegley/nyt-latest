@@ -1,3 +1,7 @@
+**Florida shifting focus from Kiffin, Tulane's Sumrall, USF's Golesh among options: Sources**\
+`The Athletic previously reported Wednesday that Florida was going through several options outside of Kiffin.`\
+https://nytimes.com/athletic/6845235/2025/11/28/florida-lane-kiffin-jon-sumrall-alex-golesh-coaching-search/
+
 **Anthony Davis planning to return from calf injury vs. Lakers: Source**\
 `Anthony Davis will face his former team for the first time since the February trade that sent him to Dallas for Luka Dončić.`\
 https://nytimes.com/athletic/6845491/2025/11/28/mavericks-anthony-davis-return-lakers/

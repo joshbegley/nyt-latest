@@ -1,3 +1,11 @@
+**Trump Spoke by Phone Last Week With Maduro, Venezuela’s Leader**\
+`They discussed a possible meeting between the two of them, but nothing has been scheduled, and the administration continues to increase the military pressure on Venezuela.`\
+https://nytimes.com/2025/11/28/us/politics/trump-spoke-by-phone-last-week-with-maduro-venezuelas-leader.html
+
+**Flames sign Conroy, Maloney, senior management staff to 2-year extensions**\
+`Maloney was named team president in April 2023. Conroy became the GM the following month.`\
+https://nytimes.com/athletic/6841250/2025/11/28/calgary-flames-gm-craig-conroy-contract-extension/
+
 **Florida shifting focus from Kiffin, Tulane's Sumrall, USF's Golesh among options: Sources**\
 `The Athletic previously reported Wednesday that Florida was going through several options outside of Kiffin.`\
 https://nytimes.com/athletic/6845235/2025/11/28/florida-lane-kiffin-jon-sumrall-alex-golesh-coaching-search/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/28/world/europe/austria-nuns-abbot-escape-senior-hom
 **Trump’s Response to Shooting Shows Intensified Anti-Migrant Stance**\
 `The president is furiously demanding limits on migration and attacking ethnic groups as he steps up his efforts to equate immigration with crime and economic distress.`\
 https://nytimes.com/2025/11/28/us/politics/trumps-response-to-shooting-shows-intensified-anti-migrant-stance.html
-
-**Video Shows Israeli Forces Killing Militants Who Appeared to Surrender**\
-`Israeli security forces on Thursday killed two militants in the West Bank after they appeared to surrender, according to footage of the episode. The Israeli authorities said they were investigating.`\
-https://nytimes.com/video/world/middleeast/100000010553137/video-shows-israeli-forces-killing-militants-who-appeared-to-surrender.html
-
-**Late Rally Pushes Stocks Back Near Record High**\
-`A midmonth stumble, driven by worries about the frenzy around artificial intelligence, was reversed as investors inched back into stocks this week.`\
-https://nytimes.com/2025/11/28/business/stock-markets-november-sp500.html
 

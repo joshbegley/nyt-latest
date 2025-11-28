@@ -1,3 +1,7 @@
+**Florida shifting focus from Kiffin, Tulane's Sumrall, USF's Golesh among options: Sources**\
+`The Athletic previously reported Wednesday that Florida was going through several options outside of Kiffin.`\
+https://nytimes.com/athletic/6845235/2025/11/28/florida-lane-kiffin-jon-sumrall-alex-golesh-coaching-search/
+
 **Anthony Davis planning to return from calf injury vs. Lakers: Source**\
 `Anthony Davis will face his former team for the first time since the February trade that sent him to Dallas for Luka Dončić.`\
 https://nytimes.com/athletic/6845491/2025/11/28/mavericks-anthony-davis-return-lakers/
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000010553137/video-shows-israeli-f
 **Late Rally Pushes Stocks Back Near Record High**\
 `A midmonth stumble, driven by worries about the frenzy around artificial intelligence, was reversed as investors inched back into stocks this week.`\
 https://nytimes.com/2025/11/28/business/stock-markets-november-sp500.html
-
-**Jones says he previously offered Jets first-round pick, Parsons for Williams**\
-`Williams is indirectly part of the return on the Cowboys’ trade of Parsons, which means there will be comparisons made for a long time.`\
-https://nytimes.com/athletic/6845402/2025/11/28/cowboys-jones-jets-trade-parsons-williams/
 
