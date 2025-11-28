@@ -1,3 +1,15 @@
+**Trump Spoke by Phone Last Week With Maduro, Venezuela’s Leader**\
+`They discussed a possible meeting between the two of them, but nothing has been scheduled, and the administration continues to increase the military pressure on Venezuela.`\
+https://nytimes.com/2025/11/28/us/politics/trump-spoke-by-phone-last-week-with-maduro-venezuelas-leader.html
+
+**Flames sign Conroy, Maloney, senior management staff to 2-year extensions**\
+`Maloney was named team president in April 2023. Conroy became the GM the following month.`\
+https://nytimes.com/athletic/6841250/2025/11/28/calgary-flames-gm-craig-conroy-contract-extension/
+
+**Anthony Davis planning to return from calf injury vs. Lakers: Source**\
+`Anthony Davis will play against his former team for the first time since the February trade that sent him to Dallas for Luka Dončić.`\
+https://nytimes.com/athletic/6845491/2025/11/28/mavericks-anthony-davis-return-lakers/
+
 **Florida shifting focus from Kiffin, Tulane's Sumrall, USF's Golesh among options: Sources**\
 `The Athletic previously reported Wednesday that Florida was going through several options outside of Kiffin.`\
 https://nytimes.com/athletic/6845235/2025/11/28/florida-lane-kiffin-jon-sumrall-alex-golesh-coaching-search/
