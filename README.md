@@ -1,3 +1,7 @@
+**Zelensky’s Top Aide Resigns Amid Widening Corruption Scandal**\
+`Andriy Yermak, Volodymyr Zelensky’s chief of staff — and chief enforcer — became the highest-ranking casualty of an investigation that threatens the Ukrainian president’s ability to govern.`\
+https://nytimes.com/2025/11/28/world/europe/zelensky-yermak-resigns-corruption-scandal.html
+
 **Cardinals tight end Trey McBride's journey to stardom began with a hometown mentor**\
 `"He was the guy from my hometown who made it. Everything he did, I wanted to do, and I think that's a huge reason why I'm here."`\
 https://nytimes.com/athletic/6844164/2025/11/28/arizona-cardinals-trey-mcbride-tight-end-joel-dreessen/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6839028/2025/11/28/thanksgiving-nfl-results-the-pul
 **A Giftable, Mesmerizing Cheese Cutter**\
 `We’re starting a petition to have this cheesy contraption at every holiday party from here on out. You in? Writer Maki Yazawa reviewed the medieval-looking cheese cutter that “provides boundless entertainment for my inquisitive guests.”`\
 https://nytimes.com/video/smarter-living/wirecutter/100000010553268/a-giftable-mesmerizing-cheese-cutter.html
-
-**Jesus 'very close' to Arsenal comeback but Arteta cautious over return date**\
-`The 28-year-old has been out for 11 months after suffering an anterior cruciate ligament injury in January.`\
-https://nytimes.com/athletic/6844951/2025/11/28/gabriel-jesus-fitness-return-arteta-arsenal/
 
