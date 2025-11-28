@@ -1,3 +1,19 @@
+**How to watch BYU vs. Dayton men's basketball: Time, TV, streaming**\
+`Find out how to watch the BYU Cougars play the Dayton Flyers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6845686/2025/11/28/byu-vs-dayton-stream-how-to-watch-nov-28/
+
+**How to watch UCSD vs. Washington women's basketball: Time, TV, streaming**\
+`Find out how to watch the UCSD Tritons play the Washington Huskies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6845684/2025/11/28/ucsd-vs-washington-stream-how-to-watch-nov-28/
+
+**How to watch Marist vs. LSU women's basketball: Time, TV, streaming**\
+`Find out how to watch the Marist Red Foxes play the LSU Tigers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6845682/2025/11/28/marist-vs-lsu-stream-how-to-watch-nov-28/
+
+**Lakers won't use NBA Cup floor vs. Mavericks due to safety concerns**\
+`Following the Lakers' win Tuesday, Luka Dončić said the NBA Cup floor was too slippery and technicians from the league deemed it unplayable.`\
+https://nytimes.com/athletic/6845580/2025/11/28/lakers-nba-cup-floor-luka-doncic/
+
 **Florida shifting focus from Kiffin; Tulane's Sumrall, USF's Golesh among options: Sources**\
 `The Athletic previously reported Wednesday that Florida was going through several options outside of Kiffin.`\
 https://nytimes.com/athletic/6845235/2025/11/28/florida-lane-kiffin-jon-sumrall-alex-golesh-coaching-search/
