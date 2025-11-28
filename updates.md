@@ -1,3 +1,11 @@
+**Jets' Kris Boyd returns to hospital with 'health issues' after shooting**\
+`Boyd has been rehospitalized with issues from the Manhattan shooting on Nov. 16, as police continue investigating.`\
+https://nytimes.com/athletic/6845631/2025/11/28/jets-kris-boyd-hospital-health-issues-shooting/
+
+**Iowa vs. Nebraska: Hawkeyes offense rolls Huskers during rivalry-week rout**\
+`One year after putting together a seven-win season, the Huskers failed to make substantial improvement despite making roster improvements.`\
+https://nytimes.com/athletic/6845651/2025/11/28/iowa-nebraska-score-result-football/
+
 **Iowa vs. Nebraska: Hawkeyes offense rolls Huskers during rivalry-week rout**\
 `One year after putting together a six-win season, the Huskers failed to make substantial improvement despite making roster improvements.`\
 https://nytimes.com/athletic/6845651/2025/11/28/iowa-nebraska-score-result-football/
