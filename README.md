@@ -1,3 +1,11 @@
+**Cardinals tight end Trey McBride's journey to stardom began with a hometown mentor**\
+`"He was the guy from my hometown who made it. Everything he did, I wanted to do, and I think that's a huge reason why I'm here."`\
+https://nytimes.com/athletic/6844164/2025/11/28/arizona-cardinals-trey-mcbride-tight-end-joel-dreessen/
+
+**These Rivals Wanted Art Fans to Pick a Side. This Show Lets You Choose Both.**\
+`J.M.W. Turner and John Constable were fueled by competition, but united by a common wonder at nature’s beauty.`\
+https://nytimes.com/2025/11/28/arts/turner-constable-tate-britain.html
+
 **Israeli Raid in Southern Syria Kills at Least 13, Syrian Officials Say**\
 `The raid appeared to be one of Israel’s deadliest cross-border incursions since Bashar al-Assad, Syria’s former dictator, was ousted last year.`\
 https://nytimes.com/2025/11/28/world/europe/israel-syria-raid-beit-jinn.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/smarter-living/wirecutter/100000010553268/a-giftable-m
 **Jesus 'very close' to Arsenal comeback but Arteta cautious over return date**\
 `The 28-year-old has been out for 11 months after suffering an anterior cruciate ligament injury in January.`\
 https://nytimes.com/athletic/6844951/2025/11/28/gabriel-jesus-fitness-return-arteta-arsenal/
-
-**Red Light: Is the NHL overdoing overtime? Plus: If the playoffs started today**\
-`The NHL loves its parity party, and it’s been apparent in the standings all year.`\
-https://nytimes.com/athletic/6844931/2025/11/28/nhl-red-light-overtime/
-
-**Slippers We’ve Loved for Over a Decade**\
-`Wirecutter has recommended Glerups wool slippers for years, and they still impress us in testing. Take that, swampy, sweaty, nasty feet.`\
-https://nytimes.com/video/smarter-living/wirecutter/100000010553259/slippers-weve-loved-for-over-a-decade.html
 
