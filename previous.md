@@ -1,3 +1,7 @@
+**Edvardsen apologises after mocking appearance of Stuttgart's Stiller**\
+`Edvardsen, standing in the face of Stiller, mockingly gestured at his own nose, sparking a clash between the two teams.`\
+https://nytimes.com/athletic/6845381/2025/11/28/victor-edvardsen-angelo-stiller-apology/
+
 **We need to talk about McLaren conspiracies. Plus, Piastri leads early in Qatar**\
 `More conspiracy theories engulfed the McLaren F1 team this week. Here's why they're wide of the mark`\
 https://nytimes.com/athletic/6845187/2025/11/28/mclaren-f1-conspiracy-theories/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6845261/2025/11/28/lane-kiffin-egg-bowl-locker-room
 **How to watch Maple Leafs vs. Capitals: Time, TV, streaming**\
 `Find out how to watch the Toronto Maple Leafs play the Washington Capitals, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6845273/2025/11/28/maple-leafs-vs-capitals-stream-how-to-watch-nov-28/
-
-**How to watch Jets vs. Hurricanes: Time, TV, streaming**\
-`Find out how to watch the Winnipeg Jets play the Carolina Hurricanes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6845271/2025/11/28/jets-vs-hurricanes-stream-how-to-watch-nov-28/
 

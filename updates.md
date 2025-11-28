@@ -1,3 +1,7 @@
+**Edvardsen apologises after mocking appearance of Stuttgart's Stiller**\
+`Edvardsen, standing in the face of Stiller, mockingly gestured at his own nose, sparking a clash between the two teams.`\
+https://nytimes.com/athletic/6845381/2025/11/28/victor-edvardsen-angelo-stiller-apology/
+
 **We need to talk about McLaren conspiracies. Plus, Piastri leads early in Qatar**\
 `More conspiracy theories engulfed the McLaren F1 team this week. Here's why they're wide of the mark`\
 https://nytimes.com/athletic/6845187/2025/11/28/mclaren-f1-conspiracy-theories/
