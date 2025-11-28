@@ -1,3 +1,7 @@
+**Video Shows Israeli Forces Killing Militants Who Appeared to Surrender**\
+`Israeli security forces on Thursday killed two militants in the West Bank after they appeared to surrender, according to footage of the episode. The Israeli authorities said they were investigating.`\
+https://nytimes.com/video/world/middleeast/100000010553137/video-shows-israeli-forces-killing-militants-who-appeared-to-surrender.html
+
 **Late Rally Pushes Stocks Back Near Record High**\
 `A midmonth stumble, driven by worries about the frenzy around artificial intelligence, was reversed as investors inched back into stocks this week.`\
 https://nytimes.com/2025/11/28/business/stock-markets-november-sp500.html
