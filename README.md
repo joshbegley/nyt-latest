@@ -1,3 +1,7 @@
+**Flashback: Your Weekly History Quiz, Nov. 29, 2025**\
+`Can you sort 8 historical events?`\
+https://nytimes.com/interactive/2025/11/28/upshot/flashback.html
+
 **Cowboys' Pickens says sun cost him a catch at AT&T Stadium: Why it's an issue**\
 `The unique configuration of Cowboys' stadium continues to cause problems for players, but Jerry Jones is resistant to change.`\
 https://nytimes.com/athletic/6845530/2025/11/28/cowboys-att-stadium-sunlight-issues/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6845731/2025/11/28/cavaliers-vs-hawks-stream-how-to
 **How to watch Wizards vs. Pacers: Time, TV, streaming**\
 `Find out how to watch the Washington Wizards play the Indiana Pacers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6845729/2025/11/28/wizards-vs-pacers-stream-how-to-watch-nov-28/
-
-**How to watch Kings vs. Jazz: Time, TV, streaming**\
-`Find out how to watch the Sacramento Kings play the Utah Jazz, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6845727/2025/11/28/kings-vs-jazz-stream-how-to-watch-nov-28/
 
