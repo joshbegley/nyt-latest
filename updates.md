@@ -1,3 +1,7 @@
+**Bruins’ David Pastrnak, Charlie McAvoy and a ludicrous injury aftermath**\
+`Looking at the nine ways in which absences impacted Boston's lineup in a 6-2 loss to the Rangers.`\
+https://nytimes.com/athletic/6845880/2025/11/28/bruins-david-pastrnak-charlie-mcavoy-injury/
+
 **Ellen Bryant Voigt, Poet With a Musical Ear, Dies at 82**\
 `Her nine volumes included “Kyrie,” a suite of sonnets about the 1918 influenza epidemic. She was also Pulitzer Prize finalist and a poet laureate of Vermont.`\
 https://nytimes.com/2025/11/28/books/ellen-bryant-voigt-dead.html

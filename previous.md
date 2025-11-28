@@ -1,3 +1,7 @@
+**Bruins’ David Pastrnak, Charlie McAvoy and a ludicrous injury aftermath**\
+`Looking at the nine ways in which absences impacted Boston's lineup in a 6-2 loss to the Rangers.`\
+https://nytimes.com/athletic/6845880/2025/11/28/bruins-david-pastrnak-charlie-mcavoy-injury/
+
 **Ellen Bryant Voigt, Poet With a Musical Ear, Dies at 82**\
 `Her nine volumes included “Kyrie,” a suite of sonnets about the 1918 influenza epidemic. She was also Pulitzer Prize finalist and a poet laureate of Vermont.`\
 https://nytimes.com/2025/11/28/books/ellen-bryant-voigt-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6845622/2025/11/28/mammoth-clayton-keller-father/
 **How to watch Mavericks vs. Lakers: Time, TV, streaming**\
 `Find out how to watch the Dallas Mavericks play the Los Angeles Lakers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6845738/2025/11/28/mavericks-vs-lakers-stream-how-to-watch-nov-28/
-
-**How to watch Suns vs. Thunder: Time, TV, streaming**\
-`Find out how to watch the Phoenix Suns play the Oklahoma City Thunder, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6845735/2025/11/28/suns-vs-thunder-stream-how-to-watch-nov-28/
 
