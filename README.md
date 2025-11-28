@@ -1,3 +1,7 @@
+**Trump Pauses Domestic Applications for Asylum**\
+`It was the latest restrictive change to the immigration system after this week’s shooting of two National Guard members.`\
+https://nytimes.com/2025/11/28/us/politics/trump-affirmative-asylum.html
+
 **Bears-Eagles takeaways: Chicago bullies Philly with ground game in win**\
 `D'Andre Swift, Kyle Monangai both rush for more than 100 yards as Bears win battle of division leaders.`\
 https://nytimes.com/athletic/6845867/2025/11/28/bears-eagles-black-friday-score-result-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/28/business/airbus-software-a320-jets.html
 **Bruins’ David Pastrnak, Charlie McAvoy and a ludicrous injury aftermath**\
 `Looking at the nine ways in which absences impacted Boston's lineup in a 6-2 loss to the Rangers.`\
 https://nytimes.com/athletic/6845880/2025/11/28/bruins-david-pastrnak-charlie-mcavoy-injury/
-
-**Ellen Bryant Voigt, Poet With a Musical Ear, Dies at 82**\
-`Her nine volumes included “Kyrie,” a suite of sonnets about the 1918 influenza epidemic. She was also Pulitzer Prize finalist and a poet laureate of Vermont.`\
-https://nytimes.com/2025/11/28/books/ellen-bryant-voigt-dead.html
 
