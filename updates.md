@@ -1,3 +1,11 @@
+**Heavy Snow in Parts of the U.S. Complicates Post-Thanksgiving Travel**\
+`Forecasters say a winter storm will bring heavy snow, sleet, freezing rain and blizzard conditions to the Northern Plains, Upper Midwest and Great Lakes from Friday through the weekend.`\
+https://nytimes.com/video/weather/100000010553410/winter-weather-snow-ohio.html
+
+**Mike Matheson, Canadiens agree to 5-year contract extension**\
+`Matheson has 14 points in 22 games with a team-best plus-13 rating and is known as the Canadiens' best-conditioned player.`\
+https://nytimes.com/athletic/6845190/2025/11/28/canadiens-mike-matheson-contract-extension/
+
 **$2 Million Homes in São Paulo, Brazil**\
 `A modernist house in Alto de Pinheiros, an eight-acre estate in Campos do Jordão, and a 15th-floor apartment with city views.`\
 https://nytimes.com/2025/11/28/realestate/sao-paulo-brazil-homes-sale.html
