@@ -1,3 +1,23 @@
+**A Giftable, Mesmerizing Cheese Cutter**\
+`We’re starting a petition to have this cheesy contraption at every holiday party from here on out. You in? Writer Maki Yazawa reviewed the medieval-looking cheese cutter that “provides boundless entertainment for my inquisitive guests.”`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010553268/a-giftable-mesmerizing-cheese-cutter.html
+
+**Jesus 'very close' to Arsenal comeback but Arteta cautious over return date**\
+`The 28-year-old has been out for 11 months after suffering an anterior cruciate ligament injury in January.`\
+https://nytimes.com/athletic/6844951/2025/11/28/gabriel-jesus-fitness-return-arteta-arsenal/
+
+**Red Light: Is the NHL overdoing overtime? Plus: If the playoffs started today**\
+`The NHL loves its parity party, and it’s been apparent in the standings all year.`\
+https://nytimes.com/athletic/6844931/2025/11/28/nhl-red-light-overtime/
+
+**Slippers We’ve Loved for Over a Decade**\
+`Wirecutter has recommended Glerups wool slippers for years, and they still impress us in testing. Take that, swampy, sweaty, nasty feet.`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010553259/slippers-weve-loved-for-over-a-decade.html
+
+**Vanderbilt gives Clark Lea 6-year extension amid historic Commodores season: Source**\
+`After going 9-27 in his first three years at Vanderbilt, Clark Lea is 16-8 since the start of the 2024 season. `\
+https://nytimes.com/athletic/6844796/2025/11/28/clark-lea-vanderbilt-coach-contract-extension/
+
 **Book Club: Let’s Discuss ‘Hamnet’**\
 `Maggie O’Farrell’s historical novel, one of the Book Review’s 10 Best Books of 2020, has just been adapted for film, making now a perfect time to revisit this story of family, grief and Shakespeare.`\
 https://nytimes.com/2025/11/28/books/review/hamnet-book-club-podcast.html
