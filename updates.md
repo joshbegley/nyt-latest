@@ -1,3 +1,7 @@
+**On Thanksgiving, an Unexpected Kind of Grace**\
+`SNAP benefits helped Leanna Nieves of Haverhill, Mass., buy Thanksgiving dinner for her family, but she used the day to set aside what have been chronic worries about the federal program.`\
+https://nytimes.com/2025/11/27/us/politics/snap-benefits-trump-thanksgiving.html
+
 **OKC's Jalen Williams off injury report, reportedly to make season debut Friday**\
 `The Thunder guard has yet to play this season while recovering from offseason surgery on his wrist.`\
 https://nytimes.com/athletic/6843698/2025/11/27/okc-all-star-jalen-williams-return/
