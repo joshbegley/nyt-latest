@@ -1,3 +1,7 @@
+**Trump Uses National Guard Shooting to Cast Suspicion on Refugees**\
+`President Trump claimed there were “a lot of problems with Afghans,” without providing evidence, as his administration announced that it was implementing new immigration guidelines.`\
+https://nytimes.com/2025/11/27/us/politics/trump-national-guard-shooting.html
+
 **National Guard Member Dies After Shooting Near White House**\
 `Army Specialist Sarah Beckstrom, a 20-year-old member of the West Virginia Army National Guard, died on Thursday from wounds suffered in an ambush. President Trump said she was “outstanding in every way.”`\
 https://nytimes.com/video/us/100000010552720/national-guard-shooting-dc-beckstrom.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6843859/2025/11/27/packers-matt-lafleur-referees-co
 **Post Malone honors Cowboys' Marshawn Kneeland in Thanksgiving halftime show**\
 `Kneeland, who played defensive end for the Cowboys, died on Nov. 6 at age 24 from an apparent self-inflicted gunshot wound.`\
 https://nytimes.com/athletic/6843722/2025/11/27/post-malone-kneeland-94-halftime-cowboys-chiefs/
-
-**On Thanksgiving, an Unexpected Kind of Grace**\
-`SNAP benefits helped Leanna Nieves of Haverhill, Mass., buy Thanksgiving dinner for her family, but she used the day to set aside what have been chronic worries about the federal program.`\
-https://nytimes.com/2025/11/27/us/politics/snap-benefits-trump-thanksgiving.html
 
