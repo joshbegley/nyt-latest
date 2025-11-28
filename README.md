@@ -1,3 +1,7 @@
+**Slippers We’ve Loved for Over a Decade**\
+`Wirecutter has recommended Glerups wool slippers for years, and they still impress us in testing. Take that, swampy, sweaty, nasty feet.`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010553259/slippers-weve-loved-for-over-a-decade.html
+
 **Book Club: Let’s Discuss ‘Hamnet’**\
 `Maggie O’Farrell’s historical novel, one of the Book Review’s 10 Best Books of 2020, has just been adapted for film, making now a perfect time to revisit this story of family, grief and Shakespeare.`\
 https://nytimes.com/2025/11/28/books/review/hamnet-book-club-podcast.html
@@ -10,7 +14,7 @@ https://nytimes.com/athletic/6839290/2025/11/28/idrissa-gueye-everton-red-card-a
 `United head coach Ruben Amorim said Cunha would be back for the home game against West Ham next week.`\
 https://nytimes.com/athletic/6844942/2025/11/28/matehus-cunha-man-utd-injury-sesko/
 
-**Vanderbilt gives Clark Lea raise, extension amid historic Commodores season: Source**\
+**Vanderbilt gives Clark Lea 6-year extension amid historic Commodores season: Source**\
 `After going 9-27 in his first three years at Vanderbilt, Clark Lea is 16-8 since the start of the 2024 season. `\
 https://nytimes.com/athletic/6844796/2025/11/28/clark-lea-vanderbilt-coach-contract-extension/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/28/opinion/abortion-access.html
 **Cyclone Ditwah Triggers Deadly Rains in Sri Lanka**\
 `Several dozen people in Sri Lanka have been killed in storms that intensified with the approach of Cyclone Ditwah, the country’s deadliest natural disaster since 2017.`\
 https://nytimes.com/video/world/asia/100000010553205/sri-lanka-cyclone-ditwah-deaths.html
-
-**Von Miller picked the Commanders because he wanted to win. Now what?**\
-`As the Broncos come to Washington, Miller's former team is flying high, while the Commanders are just trying to salvage a lost season.`\
-https://nytimes.com/athletic/6844695/2025/11/28/von-miller-broncos-commanders/
 

@@ -1,3 +1,27 @@
+**Book Club: Let’s Discuss ‘Hamnet’**\
+`Maggie O’Farrell’s historical novel, one of the Book Review’s 10 Best Books of 2020, has just been adapted for film, making now a perfect time to revisit this story of family, grief and Shakespeare.`\
+https://nytimes.com/2025/11/28/books/review/hamnet-book-club-podcast.html
+
+**Everton's appeal against Gueye red card at Man Utd turned down, Moyes says**\
+`The 37-year-old became the first Premier League player in 17 years to be sent off for striking his own team-mate on Monday.`\
+https://nytimes.com/athletic/6839290/2025/11/28/idrissa-gueye-everton-red-card-appeal-david-moyes/
+
+**Cunha, Sesko, Maguire to miss Man Utd's trip to Palace**\
+`United head coach Ruben Amorim said Cunha would be back for the home game against West Ham next week.`\
+https://nytimes.com/athletic/6844942/2025/11/28/matehus-cunha-man-utd-injury-sesko/
+
+**Vanderbilt gives Clark Lea raise, extension amid historic Commodores season: Source**\
+`After going 9-27 in his first three years at Vanderbilt, Clark Lea is 16-8 since the start of the 2024 season. `\
+https://nytimes.com/athletic/6844796/2025/11/28/clark-lea-vanderbilt-coach-contract-extension/
+
+**College football conference championship scenarios: Who can clinch and how**\
+`Here are all of the possible conference title game matchups — and what needs to happen Friday and Saturday to get there.`\
+https://nytimes.com/athletic/6844322/2025/11/28/college-football-conference-championship-game-scenarios/
+
+**From Iowa to New Orleans: The Athletic's top 10 college bars**\
+`Hitting the road for an away game? Here are The Athletic's 10 best bars of 2025. `\
+https://nytimes.com/athletic/6607957/2025/11/28/athletic-college-bars-top-10-ranked/
+
 **Canucks mailbag: Submit your questions for Thomas Drance**\
 `Got a question about the Canucks as the franchise signals its intent to trade veteran players?`\
 https://nytimes.com/athletic/6840353/2025/11/28/vancouver-canucks-mailbag-november-2025/
@@ -13,28 +37,4 @@ https://nytimes.com/video/world/asia/100000010553205/sri-lanka-cyclone-ditwah-de
 **Von Miller picked the Commanders because he wanted to win. Now what?**\
 `As the Broncos come to Washington, Miller's former team is flying high, while the Commanders are just trying to salvage a lost season.`\
 https://nytimes.com/athletic/6844695/2025/11/28/von-miller-broncos-commanders/
-
-**Until Saturday: College football's biggest Friday ever?**\
-`Until Saturday is The Athletic's free college football newsletter.`\
-https://nytimes.com/athletic/6844770/2025/11/28/college-football-black-friday-lane-kiffin-until-saturday/
-
-**Police chief seeks assurances of 'credibility' of intelligence over Maccabi Tel Aviv fan ban**\
-`Ten people were arrested on the night of the match against Aston Villa after heated protests at the Israeli club's lack of fan allocation.`\
-https://nytimes.com/athletic/6844215/2025/11/28/west-midlands-police-maccabi-tel-aviv/
-
-**Trump Promises to Pause Migration From ‘Third World Countries’ After D.C. Shooting**\
-`In social media posts, President Trump also seemed to target migrants who were already in the country.`\
-https://nytimes.com/2025/11/28/us/trump-immigration-pause-third-world-countries.html
-
-**How to watch Canadiens vs. Golden Knights: Time, TV, streaming**\
-`Find out how to watch the Montreal Canadiens play the Vegas Golden Knights, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6844788/2025/11/28/canadiens-vs-golden-knights-stream-how-to-watch-nov-28/
-
-**How to watch Devils vs. Sabres: Time, TV, streaming**\
-`Find out how to watch the New Jersey Devils play the Buffalo Sabres, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6844787/2025/11/28/devils-vs-sabres-stream-how-to-watch-nov-28/
-
-**How to watch Kings vs. Ducks: Time, TV, streaming**\
-`Find out how to watch the Los Angeles Kings play the Anaheim Ducks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6844783/2025/11/28/kings-vs-ducks-stream-how-to-watch-nov-28/
 
