@@ -1,3 +1,19 @@
+**Joe Burrow shines in return as Cincinnati defense stifles Ravens: Takeaways**\
+`Quarterback throws two touchdown passes in his first start since Week 2 as Bengals rout struggling Ravens.`\
+https://nytimes.com/athletic/6844111/2025/11/28/bengals-ravens-thanksgiving-score-result-takeaways/
+
+**Vladimir Coufal interview: 'West Ham decided to go in a different direction. I'm still not over it'**\
+`The defender spent five years at the club and was shocked when he was told he was being released. The pain is still raw`\
+https://nytimes.com/athletic/6839785/2025/11/28/vladimir-coufal-interview-west-ham/
+
+**If Liverpool sack Slot, they just become like every other club**\
+`A title-winning manager has never been dismissed at Anfield - ripping up that record cannot be done lightly`\
+https://nytimes.com/athletic/6825725/2025/11/28/arne-liverpool-manager-sack/
+
+**What's next for Vinicius Junior and Real Madrid?**\
+`The 25-year-old Brazilian's future has been a talking point at Real Madrid for months, but this week it has really heated up`\
+https://nytimes.com/athletic/6842102/2025/11/28/vinicius-jr-real-madrid-contract-renewal-next/
+
 **'Until I started coaching, I was paralysed' - David Flitcroft on football and grief**\
 `The loss of his father in 2008 has been the spur for Flitcroft to get involved coaching kids at grassroots level`\
 https://nytimes.com/athletic/6835979/2025/11/28/until-i-started-coaching-i-was-paralysed-david-flitcroft-on-football-and-grief/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/11/28/world/middleeast/pope-leo-turkey-church.html
 **Quote of the Day: Climate ‘Shock’ is Eating Away at Home Values**\
 `Quotation of the Day for Friday, November 28, 2025.`\
 https://nytimes.com/2025/11/28/pageoneplus/quote-of-the-day-climate-shock-is-eating-away-at-home-values.html
-
-**Connections: Sports Edition Coach: Hints for Nov. 28, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6844121/2025/11/28/connections-sports-edition-hints-for-nov-28-2025/
-
-**These Scam Centers Were Blown Up. Was It All for Show?**\
-`Myanmar’s junta made a grand display of demolishing buildings that hosted the centers, even broadcasting the explosions. But the scammers have found new homes.`\
-https://nytimes.com/2025/11/28/world/asia/myanmar-scam-centers-junta.html
-
-**Their Obsession With Travel Points Led to an Unexpected Spark**\
-`Heather Peggs and George Igoe connected over frequent flier miles, but their chemistry sealed the deal. After their first date, she deleted her dating apps, and a month in, he knew she was “the one.”`\
-https://nytimes.com/2025/11/28/style/heather-peggs-george-igoe-wedding.html
-
-**The Three Times I Married My Wife**\
-`Saying wedding vows is one thing. Living up to them is quite another.`\
-https://nytimes.com/2025/11/28/style/modern-love-the-three-times-i-married-my-wife.html
 
