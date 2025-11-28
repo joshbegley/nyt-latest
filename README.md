@@ -1,3 +1,7 @@
+**Video Shows Israeli Forces Killing Militants Who Appeared to Surrender**\
+`Israeli security forces on Thursday killed two militants in the West Bank after they appeared to surrender, according to footage of the episode. The Israeli authorities said they were investigating.`\
+https://nytimes.com/video/world/middleeast/100000010553137/video-shows-israeli-forces-killing-militants-who-appeared-to-surrender.html
+
 **Late Rally Pushes Stocks Back Near Record High**\
 `A midmonth stumble, driven by worries about the frenzy around artificial intelligence, was reversed as investors inched back into stocks this week.`\
 https://nytimes.com/2025/11/28/business/stock-markets-november-sp500.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/28/realestate/sao-paulo-brazil-homes-sale.html
 **Hope for Survivors Fades as Hong Kong Fire Rescue Efforts Cease**\
 `The rescue operation in the Hong Kong fire disaster ceased on Friday, two days after the blaze started. At least 128 were killed and 200 others remained unaccounted for, local officials said.`\
 https://nytimes.com/video/world/asia/100000010552971/hong-kong-rescue-ends-fire.html
-
-**Instant grades for college football's 2025-26 head-coaching hires**\
-`In college football, you never really know whether a coaching hire is going to work. But it's never too early to talk about fit.`\
-https://nytimes.com/athletic/6827060/2025/11/28/college-football-coaching-carousel-grades/
 
