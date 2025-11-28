@@ -1,3 +1,7 @@
+**Anthony Davis planning to return from calf injury vs. Lakers: Source**\
+`Anthony Davis will face his former team for the first time since the February trade that sent him to Dallas for Luka Dončić.`\
+https://nytimes.com/athletic/6845491/2025/11/28/mavericks-anthony-davis-return-lakers/
+
 **Snow Squalls and Heavy Winds Pummel Parts of Southern Ontario**\
 `More localized bands of squalls were expected to form, with up to two feet of snow possible in some areas, according to Canada’s forecast agency.`\
 https://nytimes.com/2025/11/28/weather/snow-ontario-quebec-forecast.html
