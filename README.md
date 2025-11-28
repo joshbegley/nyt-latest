@@ -1,3 +1,7 @@
+**Lane Kiffin: MSU supporters broke into Ole Miss locker room, stole QB's jersey**\
+`Ole Miss reportedly traveled with backup jerseys, so it shouldn't be an issue for the Egg Bowl.`\
+https://nytimes.com/athletic/6845261/2025/11/28/lane-kiffin-egg-bowl-locker-room-break-in/
+
 **How to watch Maple Leafs vs. Capitals: Time, TV, streaming**\
 `Find out how to watch the Toronto Maple Leafs play the Washington Capitals, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6845273/2025/11/28/maple-leafs-vs-capitals-stream-how-to-watch-nov-28/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6845248/2025/11/28/eastern-illinois-vs-louisville-s
 **How to watch Morgan State vs. Kentucky women's basketball: Time, TV, streaming**\
 `Find out how to watch the Morgan State Lady Bears play the Kentucky Wildcats, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6845246/2025/11/28/morgan-state-vs-kentucky-stream-how-to-watch-nov-28/
-
-**How to watch Pepperdine vs. USC women's basketball: Time, TV, streaming**\
-`Find out how to watch the Pepperdine Waves play the USC Trojans, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6845244/2025/11/28/pepperdine-vs-usc-stream-how-to-watch-nov-28/
 
