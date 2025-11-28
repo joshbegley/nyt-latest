@@ -1,3 +1,15 @@
+**$2 Million Homes in São Paulo, Brazil**\
+`A modernist house in Alto de Pinheiros, an eight-acre estate in Campos do Jordão, and a 15th-floor apartment with city views.`\
+https://nytimes.com/2025/11/28/realestate/sao-paulo-brazil-homes-sale.html
+
+**Hope for Survivors Fades as Hong Kong Fire Rescue Efforts Cease**\
+`The rescue operation in the Hong Kong fire disaster ceased on Friday, two days after the blaze started. At least 128 were killed and 200 others remained unaccounted for, local officials said.`\
+https://nytimes.com/video/world/asia/100000010552971/hong-kong-rescue-ends-fire.html
+
+**Instant grades for college football's 2025-26 head-coaching hires**\
+`In college football, you never really know whether a coaching hire is going to work. But it's never too early to talk about fit.`\
+https://nytimes.com/athletic/6827060/2025/11/28/college-football-coaching-carousel-grades/
+
 **Canadiens, Mike Matheson agree to 5-year contract extension**\
 `Matheson has 14 points in 22 games with a team-best plus-13 rating and is known as the Canadiens' best-conditioned player.`\
 https://nytimes.com/athletic/6845190/2025/11/28/canadiens-mike-matheson-contract-extension/
