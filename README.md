@@ -1,3 +1,7 @@
+**National Guard Member Dies After Shooting Near White House**\
+`Army Specialist Sarah Beckstrom, a 20-year-old member of the West Virginia Army National Guard, died on Thursday from wounds suffered in an ambush. President Trump said she was “outstanding in every way.”`\
+https://nytimes.com/video/us/100000010552720/national-guard-shooting-dc-beckstrom.html
+
 **For Shooting Suspect, a Long Path of Conflict From Afghanistan to America**\
 `Rahmanullah Lakanwal was among the Afghans who came to the United States after the Taliban takeover of Afghanistan. Earlier, he served in a paramilitary unit that worked with U.S. forces.`\
 https://nytimes.com/2025/11/27/us/guard-shooting-suspect-profile.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6843722/2025/11/27/post-malone-kneeland-94-halftime
 **On Thanksgiving, an Unexpected Kind of Grace**\
 `SNAP benefits helped Leanna Nieves of Haverhill, Mass., buy Thanksgiving dinner for her family, but she used the day to set aside what have been chronic worries about the federal program.`\
 https://nytimes.com/2025/11/27/us/politics/snap-benefits-trump-thanksgiving.html
-
-**OKC's Jalen Williams off injury report, reportedly to make season debut Friday**\
-`The Thunder guard has yet to play this season while recovering from offseason surgery on his wrist.`\
-https://nytimes.com/athletic/6843698/2025/11/27/okc-all-star-jalen-williams-return/
 
