@@ -1,3 +1,15 @@
+**How to watch BYU vs. Dayton men's basketball: Time, TV, streaming**\
+`Find out how to watch the BYU Cougars play the Dayton Flyers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6845686/2025/11/28/byu-vs-dayton-stream-how-to-watch-nov-28/
+
+**How to watch UCSD vs. Washington women's basketball: Time, TV, streaming**\
+`Find out how to watch the UCSD Tritons play the Washington Huskies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6845684/2025/11/28/ucsd-vs-washington-stream-how-to-watch-nov-28/
+
+**How to watch Marist vs. LSU women's basketball: Time, TV, streaming**\
+`Find out how to watch the Marist Red Foxes play the LSU Tigers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6845682/2025/11/28/marist-vs-lsu-stream-how-to-watch-nov-28/
+
 **Lakers won't use NBA Cup floor vs. Mavericks due to safety concerns**\
 `Following the Lakers' win Tuesday, Luka Dončić said the NBA Cup floor was too slippery and technicians from the league deemed it unplayable.`\
 https://nytimes.com/athletic/6845580/2025/11/28/lakers-nba-cup-floor-luka-doncic/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/11/28/weather/snow-ontario-quebec-forecast.html
 **Women's World Cup 2031: 50 stadiums submitted for U.S., Mexico, Costa Rica, Jamaica bid**\
 `U.S. Soccer has submitted a bid book of potential host cities: 28 in the U.S., six in Mexico, and one each in Costa Rica amd Jamaica.`\
 https://nytimes.com/athletic/6845439/2025/11/28/womens-world-cup-2031-bid-stadiums-cities/
-
-**What to Know About Andriy Yermak**\
-`The chief of staff to President Volodymyr Zelensky of Ukraine was seen as the second-most powerful person in Ukraine. He was dismissed on Friday.`\
-https://nytimes.com/2025/11/28/world/europe/yermak-zelensky-ukraine-what-to-know.html
-
-**A Different Type of Dementia is Changing What’s Known About Cognitive Decline**\
-`On its own, LATE dementia is less severe than Alzheimer’s, but in combination, it makes Alzheimer’s symptoms worse, scientists say.`\
-https://nytimes.com/2025/11/28/health/late-dementia-alzheimers.html
-
-**3 Rebel Nuns Can Stay in Abbey, if They Give Up Social Media**\
-`After the octogenarian nuns refused to return to their senior center, the abbot has finally folded. But he has some conditions.`\
-https://nytimes.com/2025/11/28/world/europe/austria-nuns-abbot-escape-senior-home.html
 
