@@ -1,3 +1,11 @@
+**USA begins FIBA World Cup qualifying, with Brandon Knight chasing NBA return**\
+`USA's qualifying journey officially begins in Nicaragua with a short-term team, a long-term goal and at least one veteran hoping to impress.`\
+https://nytimes.com/athletic/6845055/2025/11/28/usa-world-cup-qualifying-nicaragua-brandon-knight/
+
+**Rockets mailbag: Reed Sheppard’s effect on approach in trade market; defensive potential with KD?**\
+`Will Guillory answers your questions about Houston's upcoming trade deadline, Kevin Durant's defense and more. `\
+https://nytimes.com/athletic/6844435/2025/11/28/rockets-reed-sheppard-kevin-durant-mailbag/
+
 **Lowetide: If Oilers make a coaching change, is there a perfect fit candidate?**\
 `Knoblauch just signed an extension in October, and there's plenty of time for him to turn the Oilers around.`\
 https://nytimes.com/athletic/6841499/2025/11/28/edmonton-oilers-kris-knoblauch-coaching-candidates/
