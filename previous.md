@@ -1,3 +1,7 @@
+**Israeli Forces Kill Two Palestinians After They Appear to Surrender, Video Shows**\
+`The Israeli authorities said they were reviewing the shooting, which came amid days of extensive military operations in the West Bank.`\
+https://nytimes.com/2025/11/28/world/middleeast/israel-west-bank-shooting-palestinians-video.html
+
 **TAFC: Radar guide to 2026 transfers, violence at Villa, Infantino's Super Bowl calculations**\
 `Today in TAFC: Our guide to transfers in 2026, Malen hit on head by object from crowd during Villa game, does World Cup = 104 Super Bowls?`\
 https://nytimes.com/athletic/6844407/2025/11/28/transfer-news-2026-villa-violence-super-bowl/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6844128/2025/11/28/michigan-basketball-players-era-
 **Can Irish remain focused with CFP bid looming? Notre Dame vs. Stanford predictions**\
 `Notre Dame must stay focused as it faces a program with a lame-duck coach in his final game.`\
 https://nytimes.com/athletic/6840902/2025/11/28/notre-dame-stanford-football-preview/
-
-**The Prospects: Josh Sonni-Lambie, Liverpool**\
-`The striker was spotted by Liverpool playing grassroots football in his native London`\
-https://nytimes.com/athletic/6842503/2025/11/28/the-prospects-josh-sonni-lambie-liverpool/
 

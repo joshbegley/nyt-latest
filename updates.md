@@ -1,3 +1,7 @@
+**Israeli Forces Kill Two Palestinians After They Appear to Surrender, Video Shows**\
+`The Israeli authorities said they were reviewing the shooting, which came amid days of extensive military operations in the West Bank.`\
+https://nytimes.com/2025/11/28/world/middleeast/israel-west-bank-shooting-palestinians-video.html
+
 **TAFC: Radar guide to 2026 transfers, violence at Villa, Infantino's Super Bowl calculations**\
 `Today in TAFC: Our guide to transfers in 2026, Malen hit on head by object from crowd during Villa game, does World Cup = 104 Super Bowls?`\
 https://nytimes.com/athletic/6844407/2025/11/28/transfer-news-2026-villa-violence-super-bowl/
