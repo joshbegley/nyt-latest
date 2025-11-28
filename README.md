@@ -1,3 +1,7 @@
+**Lane Kiffin calls reporter's podcast comment 'bush league' after win**\
+`The Ole Miss coach and Ben Garrett of On3 crossed paths after the Egg Bowl, where the two spoke briefly.`\
+https://nytimes.com/athletic/6845891/2025/11/28/lane-kiffin-egg-bowl-reporter-ben-garrett/
+
 **Airbus Orders Software Update for A320 Jets**\
 `The European airplane maker said a recent incident had shown that “intense solar radiation may corrupt data critical to the functioning of flight controls.”`\
 https://nytimes.com/2025/11/28/business/airbus-software-a320-jets.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/11/28/upshot/flashback.html
 **Cowboys' Pickens says sun cost him a catch at AT&T Stadium: Why it's an issue**\
 `The unique configuration of Cowboys' stadium continues to cause problems for players, but Jerry Jones is resistant to change.`\
 https://nytimes.com/athletic/6845530/2025/11/28/cowboys-att-stadium-sunlight-issues/
-
-**Clayton Keller to play with Mammoth day after father's death**\
-`"Clayton wants to play and be with the team," Mammoth head coach André Tourigny said.`\
-https://nytimes.com/athletic/6845622/2025/11/28/mammoth-clayton-keller-father/
 
