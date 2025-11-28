@@ -1,3 +1,7 @@
+**Airbus Orders Software Update for A320 Jets**\
+`The European airplane maker said a recent incident had shown that “intense solar radiation may corrupt data critical to the functioning of flight controls.”`\
+https://nytimes.com/2025/11/28/business/airbus-software-a320-jets.html
+
 **Bruins’ David Pastrnak, Charlie McAvoy and a ludicrous injury aftermath**\
 `Looking at the nine ways in which absences impacted Boston's lineup in a 6-2 loss to the Rangers.`\
 https://nytimes.com/athletic/6845880/2025/11/28/bruins-david-pastrnak-charlie-mcavoy-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6845530/2025/11/28/cowboys-att-stadium-sunlight-iss
 **Clayton Keller to play with Mammoth day after father's death**\
 `"Clayton wants to play and be with the team," Mammoth head coach André Tourigny said.`\
 https://nytimes.com/athletic/6845622/2025/11/28/mammoth-clayton-keller-father/
-
-**How to watch Mavericks vs. Lakers: Time, TV, streaming**\
-`Find out how to watch the Dallas Mavericks play the Los Angeles Lakers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6845738/2025/11/28/mavericks-vs-lakers-stream-how-to-watch-nov-28/
 
