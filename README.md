@@ -1,3 +1,15 @@
+**A Giftable, Mesmerizing Cheese Cutter**\
+`We’re starting a petition to have this cheesy contraption at every holiday party from here on out. You in? Writer Maki Yazawa reviewed the medieval-looking cheese cutter that “provides boundless entertainment for my inquisitive guests.”`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010553268/a-giftable-mesmerizing-cheese-cutter.html
+
+**Jesus 'very close' to Arsenal comeback but Arteta cautious over return date**\
+`The 28-year-old has been out for 11 months after suffering an anterior cruciate ligament injury in January.`\
+https://nytimes.com/athletic/6844951/2025/11/28/gabriel-jesus-fitness-return-arteta-arsenal/
+
+**Red Light: Is the NHL overdoing overtime? Plus: If the playoffs started today**\
+`The NHL loves its parity party, and it’s been apparent in the standings all year.`\
+https://nytimes.com/athletic/6844931/2025/11/28/nhl-red-light-overtime/
+
 **Slippers We’ve Loved for Over a Decade**\
 `Wirecutter has recommended Glerups wool slippers for years, and they still impress us in testing. Take that, swampy, sweaty, nasty feet.`\
 https://nytimes.com/video/smarter-living/wirecutter/100000010553259/slippers-weve-loved-for-over-a-decade.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6844322/2025/11/28/college-football-conference-cham
 **From Iowa to New Orleans: The Athletic's top 10 college bars**\
 `Hitting the road for an away game? Here are The Athletic's 10 best bars of 2025. `\
 https://nytimes.com/athletic/6607957/2025/11/28/athletic-college-bars-top-10-ranked/
-
-**Canucks mailbag: Submit your questions for Thomas Drance**\
-`Got a question about the Canucks as the franchise signals its intent to trade veteran players?`\
-https://nytimes.com/athletic/6840353/2025/11/28/vancouver-canucks-mailbag-november-2025/
-
-**A ‘Floor’ on Abortion Is Still a Limit**\
-`Readers respond to an editorial about access to abortion. Also: A citizenship test for our leaders.`\
-https://nytimes.com/2025/11/28/opinion/abortion-access.html
-
-**Cyclone Ditwah Triggers Deadly Rains in Sri Lanka**\
-`Several dozen people in Sri Lanka have been killed in storms that intensified with the approach of Cyclone Ditwah, the country’s deadliest natural disaster since 2017.`\
-https://nytimes.com/video/world/asia/100000010553205/sri-lanka-cyclone-ditwah-deaths.html
 
