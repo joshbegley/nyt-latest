@@ -1,3 +1,7 @@
+**OKC's Jalen Williams off injury report, reportedly to make season debut Friday**\
+`The Thunder guard has yet to play this season while recovering from offseason surgery on his wrist.`\
+https://nytimes.com/athletic/6843698/2025/11/27/okc-all-star-jalen-williams-return/
+
 **UFC Hall of Famer Amanda Nunes to return at UFC 324 against Kayla Harrison**\
 `UFC 324 will be headlined by a matchup up of fan favorites Justin Gaethje and Paddy "The Baddy" Pimblett.`\
 https://nytimes.com/athletic/6841650/2025/11/27/amanda-nunes-ufc-return-paramount-kayla-harrison-justin-gaethje-paddy-pimblett/
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/100000010552479/national-guard-shooting-suspect-afg
 **Eminem joins Jack White for Thanksgiving halftime show in Detroit**\
 `Eminem surprised fans by joining Jack White on stage for the Detroit Lions’ 2025 Thanksgiving halftime show.`\
 https://nytimes.com/athletic/6843547/2025/11/27/eminem-jack-white-detroit-lions-thanksgiving-halftime/
-
-**A.I. and the Trillion-Dollar Question**\
-`Even the companies building the technology don’t seem exactly sure where it’s headed.`\
-https://nytimes.com/2025/11/27/world/ai-valuations-markets-technology-hongkong-fire.html
 
