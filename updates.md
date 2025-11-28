@@ -1,3 +1,7 @@
+**Sri Lanka on High Alert as Cyclone Death Toll Reaches 56**\
+`Heavy rainfall was forecast for nearly all of the island nation as Cyclone Ditwah churned northwest toward India.`\
+https://nytimes.com/2025/11/28/world/asia/sri-lanka-cyclone-ditwah-toll.html
+
 **The New York Times in Print for Friday, Nov. 28, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/11/28/todays-new-york-times
