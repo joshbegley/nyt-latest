@@ -1,3 +1,7 @@
+**Property Tied to Ukraine’s Lead Negotiator Is Searched in Corruption Case**\
+`The scrutiny of Andriy Yermak, President Volodymyr Zelensky’s chief of staff, could disrupt U.S.-led peace talks and further rattle Ukrainian politics.`\
+https://nytimes.com/2025/11/28/world/europe/ukraine-yermak-corruption-peace-talks.html
+
 **N.Y. Lawmakers Put Pressure on Hochul to Sign Prison Reform Bills**\
 `The bills, which have already passed the State Legislature, would help prevent brutality in prisons, supporters say. But the governor has yet to enact them.`\
 https://nytimes.com/2025/11/28/nyregion/ny-prisons-abuse-lawmakers-reform.html
