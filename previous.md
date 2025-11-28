@@ -1,3 +1,7 @@
+**Death Toll Rises to 128 in Hong Kong High-Rise Fire**\
+`Hope of finding survivors has dwindled, with many residents of the densely packed Wang Fuk Court apartment towers still unaccounted for.`\
+https://nytimes.com/2025/11/28/world/asia/hong-kong-fire.html
+
 **Sheffield Wednesday targeted by six bidders, administrators want at least £30m**\
 `Championship club's administrator reveals takeover latest and how a £1m loan from a fan has helped ease immediate concerns`\
 https://nytimes.com/athletic/6843179/2025/11/28/sheffield-wednesday-administration-bidders/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6839455/2025/11/28/ashes-england-batting-collapse-p
 **Jadon Sancho is still a work in progress at Aston Villa - he must prove himself quickly**\
 `The Manchester United loanee's career remains in a state of drift, but Thursday evening offered some signs of promise`\
 https://nytimes.com/athletic/6843597/2025/11/28/jadon-sancho-aston-villa-young-boys/
-
-**Why Gueye's Everton explosion was so shocking: 'He's very calm'**\
-`The Senegalese's outburst took everyone by surprise on Monday, not least his own team-mates`\
-https://nytimes.com/athletic/6842380/2025/11/28/idrissa-gueye-everton-profile/
 

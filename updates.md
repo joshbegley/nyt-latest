@@ -1,3 +1,7 @@
+**Death Toll Rises to 128 in Hong Kong High-Rise Fire**\
+`Hope of finding survivors has dwindled, with many residents of the densely packed Wang Fuk Court apartment towers still unaccounted for.`\
+https://nytimes.com/2025/11/28/world/asia/hong-kong-fire.html
+
 **Sheffield Wednesday targeted by six bidders, administrators want at least £30m**\
 `Championship club's administrator reveals takeover latest and how a £1m loan from a fan has helped ease immediate concerns`\
 https://nytimes.com/athletic/6843179/2025/11/28/sheffield-wednesday-administration-bidders/
