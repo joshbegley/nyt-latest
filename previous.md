@@ -1,3 +1,7 @@
+**Bears-Eagles takeaways: Chicago bullies Philly with ground game in win**\
+`D'Andre Swift, Kyle Monangai both rush for more than 100 yards as Bears win battle of division leaders.`\
+https://nytimes.com/athletic/6845867/2025/11/28/bears-eagles-black-friday-score-result-takeaways/
+
 **Trump Announces Pardon for Honduran Ex-President Convicted in Drug Case**\
 `President Trump said he would pardon Juan Orlando Hernández, who prosecutors said partnered with cocaine traffickers as Honduras’s president and is serving a 45-year sentence.`\
 https://nytimes.com/2025/11/28/world/americas/trump-pardon-honduras-hernandez.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6845880/2025/11/28/bruins-david-pastrnak-charlie-mc
 **Ellen Bryant Voigt, Poet With a Musical Ear, Dies at 82**\
 `Her nine volumes included “Kyrie,” a suite of sonnets about the 1918 influenza epidemic. She was also Pulitzer Prize finalist and a poet laureate of Vermont.`\
 https://nytimes.com/2025/11/28/books/ellen-bryant-voigt-dead.html
-
-**Jets' Kris Boyd returns to hospital with 'health issues' after shooting**\
-`Boyd has been rehospitalized with issues from the Manhattan shooting on Nov. 16, as police continue investigating.`\
-https://nytimes.com/athletic/6845631/2025/11/28/jets-kris-boyd-hospital-health-issues-shooting/
 

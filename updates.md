@@ -1,3 +1,7 @@
+**Bears-Eagles takeaways: Chicago bullies Philly with ground game in win**\
+`D'Andre Swift, Kyle Monangai both rush for more than 100 yards as Bears win battle of division leaders.`\
+https://nytimes.com/athletic/6845867/2025/11/28/bears-eagles-black-friday-score-result-takeaways/
+
 **Trump Announces Pardon for Honduran Ex-President Convicted in Drug Case**\
 `President Trump said he would pardon Juan Orlando Hernández, who prosecutors said partnered with cocaine traffickers as Honduras’s president and is serving a 45-year sentence.`\
 https://nytimes.com/2025/11/28/world/americas/trump-pardon-honduras-hernandez.html
