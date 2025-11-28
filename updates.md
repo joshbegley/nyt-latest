@@ -1,3 +1,7 @@
+**Hustle**\
+`Jacob McDermott opens our solving weekend.`\
+https://nytimes.com/2025/11/27/crosswords/daily-puzzle-2025-11-28.html
+
 **Matt LaFleur and Packers make statement in season sweep of Lions**\
 `The Packers will sit atop the NFC North entering Week 14 if the Eagles beat the Bears on Friday afternoon.`\
 https://nytimes.com/athletic/6843866/2025/11/27/matt-lafleur-packers-lions-thanksgiving/
