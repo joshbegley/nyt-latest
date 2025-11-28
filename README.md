@@ -1,4 +1,4 @@
-**Ole Miss competes 11-1 season to likely seal Playoff bid, but Lane Kiffin decision looms**\
+**Ole Miss completes 11-1 season to likely seal Playoff bid, but Lane Kiffin decision looms**\
 `Kiffin, a candidate at LSU, said he hasn't made a decision yet. "I've got a lot of praying to do to figure that out tomorrow," he said.`\
 https://nytimes.com/athletic/6845696/2025/11/28/ole-miss-mississippi-state-score-result-lane-kiffin/
 
