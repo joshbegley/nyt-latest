@@ -1,3 +1,7 @@
+**Lakers won't use NBA Cup floor vs. Mavericks due to safety concerns**\
+`Following the Lakers' win Tuesday, Luka Dončić said the NBA Cup floor was too slippery and technicians from the league deemed it unplayable.`\
+https://nytimes.com/athletic/6845580/2025/11/28/lakers-nba-cup-floor-luka-doncic/
+
 **Trump Spoke by Phone Last Week With Maduro, Venezuela’s Leader**\
 `They discussed a possible meeting between the two of them, but nothing has been scheduled, and the administration continues to increase the military pressure on Venezuela.`\
 https://nytimes.com/2025/11/28/us/politics/trump-spoke-by-phone-last-week-with-maduro-venezuelas-leader.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/28/health/late-dementia-alzheimers.html
 **3 Rebel Nuns Can Stay in Abbey, if They Give Up Social Media**\
 `After the octogenarian nuns refused to return to their senior center, the abbot has finally folded. But he has some conditions.`\
 https://nytimes.com/2025/11/28/world/europe/austria-nuns-abbot-escape-senior-home.html
-
-**Trump’s Response to Shooting Shows Intensified Anti-Migrant Stance**\
-`The president is furiously demanding limits on migration and attacking ethnic groups as he steps up his efforts to equate immigration with crime and economic distress.`\
-https://nytimes.com/2025/11/28/us/politics/trumps-response-to-shooting-shows-intensified-anti-migrant-stance.html
 
