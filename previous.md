@@ -1,3 +1,15 @@
+**N.Y. Lawmakers Put Pressure on Hochul to Sign Prison Reform Bills**\
+`The bills, which have already passed the State Legislature, would help prevent brutality in prisons, supporters say. But the governor has yet to enact them.`\
+https://nytimes.com/2025/11/28/nyregion/ny-prisons-abuse-lawmakers-reform.html
+
+**Why Nadine Menendez Still Hasn’t Visited Her Husband in Prison**\
+`Robert Menendez, a former Democratic senator, has been in prison since June. He hasn’t seen his wife, who is set to begin serving her sentence next summer.`\
+https://nytimes.com/2025/11/28/nyregion/nadine-robert-menenedez-prison.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/11/28/crosswords/spelling-bee-forum.html
+
 **The Transfer Radar 2026: The Athletic's ultimate guide to the players clubs will be keeping an eye on**\
 `Welcome to The 2026 Transfer Radar, our scouting guide for next year's windows`\
 https://nytimes.com/athletic/6838191/2025/11/28/transfer-radar-latest-january-summer-window/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6843098/2025/11/28/real-madrid-roma-napoli-dortmund
 **Dyche is getting Forest's Europa League balancing act right**\
 `Nottingham Forest rotated heavily against Malmo but managed to win the game 3-0`\
 https://nytimes.com/athletic/6843714/2025/11/28/nottingham-forest-malmo-analysis/
-
-**Remembering 'Barmy Charlie', English football's most famous flag man**\
-`Charlie Barlow was not a household name but if you have watched sport in England in the past 30 years, you will have seen his handiwork`\
-https://nytimes.com/athletic/6842271/2025/11/28/barmy-charlie-flag-manchester-united/
-
-**Sri Lanka on High Alert as Cyclone Death Toll Reaches 56**\
-`Heavy rainfall was forecast for nearly all of the island nation as Cyclone Ditwah churned northwest toward India.`\
-https://nytimes.com/2025/11/28/world/asia/sri-lanka-cyclone-ditwah-toll.html
-
-**The New York Times in Print for Friday, Nov. 28, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/11/28/todays-new-york-times
 

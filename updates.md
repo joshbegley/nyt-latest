@@ -1,3 +1,15 @@
+**N.Y. Lawmakers Put Pressure on Hochul to Sign Prison Reform Bills**\
+`The bills, which have already passed the State Legislature, would help prevent brutality in prisons, supporters say. But the governor has yet to enact them.`\
+https://nytimes.com/2025/11/28/nyregion/ny-prisons-abuse-lawmakers-reform.html
+
+**Why Nadine Menendez Still Hasn’t Visited Her Husband in Prison**\
+`Robert Menendez, a former Democratic senator, has been in prison since June. He hasn’t seen his wife, who is set to begin serving her sentence next summer.`\
+https://nytimes.com/2025/11/28/nyregion/nadine-robert-menenedez-prison.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/11/28/crosswords/spelling-bee-forum.html
+
 **The Transfer Radar 2026: The Athletic's ultimate guide to the players clubs will be keeping an eye on**\
 `Welcome to The 2026 Transfer Radar, our scouting guide for next year's windows`\
 https://nytimes.com/athletic/6838191/2025/11/28/transfer-radar-latest-january-summer-window/
