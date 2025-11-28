@@ -1,3 +1,7 @@
+**Sheffield Wednesday targeted by six bidders, administrators want at least £30m**\
+`Championship club's administrator reveals takeover latest and how a £1m loan from a fan has helped ease immediate concerns`\
+https://nytimes.com/athletic/6843179/2025/11/28/sheffield-wednesday-administration-bidders/
+
 **Palace's three huge missed chances and why Glasner has stopped seeing the positives**\
 `Palace should have beaten Strasbourg but ended up losing Thursday night's game 2-1`\
 https://nytimes.com/athletic/6839463/2025/11/28/crystal-palace-strasbourg-missed-chances/
