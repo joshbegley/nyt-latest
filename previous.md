@@ -1,3 +1,35 @@
+**How to watch Vanderbilt vs. Saint Mary's (CA) men's basketball: Time, TV, streaming**\
+`Find out how to watch the Vanderbilt Commodores play the Saint Mary's Gaels, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6844477/2025/11/28/vanderbilt-vs-saint-mary-s-ca-stream-how-to-watch-nov-28/
+
+**How to watch Charlotte vs. Oklahoma State women's basketball: Time, TV, streaming**\
+`Find out how to watch the Charlotte 49ers play the Oklahoma State Cowgirls, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6844475/2025/11/28/charlotte-vs-oklahoma-state-stream-how-to-watch-nov-28/
+
+**How to watch Eastern Illinois vs. Purdue men's basketball: Time, TV, streaming**\
+`Find out how to watch the Eastern Illinois Panthers play the Purdue Boilermakers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6844473/2025/11/28/eastern-illinois-vs-purdue-stream-how-to-watch-nov-28/
+
+**How to watch Kansas State vs. North Carolina women's basketball: Time, TV, streaming**\
+`Find out how to watch the Kansas State Wildcats play the North Carolina Tar Heels, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6844471/2025/11/28/kansas-state-vs-north-carolina-stream-how-to-watch-nov-28/
+
+**How to watch Marquette vs. Iowa State women's basketball: Time, TV, streaming**\
+`Find out how to watch the Marquette Golden Eagles play the Iowa State Cyclones, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6844469/2025/11/28/marquette-vs-iowa-state-stream-how-to-watch-nov-28/
+
+**How to watch Illinois vs. UConn men's basketball: Time, TV, streaming**\
+`Find out how to watch the Illinois Fighting Illini play the UConn Huskies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6844467/2025/11/28/illinois-vs-uconn-stream-how-to-watch-nov-28/
+
+**Worker Cleared of Stealing Snacks from Office Fridge After 2 Years in Court**\
+`A South Korean man accused of stealing a Choco Pie and a mini custard cake was acquitted after a prosecution that drew widespread criticism.`\
+https://nytimes.com/2025/11/28/world/asia/choco-pie-custard-theft-court.html
+
+**Cup Geekery: All of Friday's NBA Cup scenarios**\
+`The Magic play the Pistons and the Thunder play the Suns in the night's biggest games, but more is at stake on final night of group play.`\
+https://nytimes.com/athletic/6842813/2025/11/28/nba-cup-scenarios-final-night-group-play/
+
 **Aftershocks of an Epic Art Crime Reverberate in Japan**\
 `At least four works by a famous convicted forger have been discovered in Japan. Transparency about the mistakes, however, has sparked as much curiosity as scandal.`\
 https://nytimes.com/2025/11/28/world/asia/japan-art-forgeries.html
@@ -5,36 +37,4 @@ https://nytimes.com/2025/11/28/world/asia/japan-art-forgeries.html
 **Can You Compel Your Children to Sing for Their Snacks?**\
 `A ruling on an unusual postconcert tradition.`\
 https://nytimes.com/interactive/2025/11/28/magazine/exciting-snacks-hodgman-quiz.html
-
-**‘Hey, Lemonade!’: A Backstage Fixture at the Grand Ole Opry**\
-`Legions of backstage workers have helped the Grand Ole Opry thrive for a century in Nashville. Diana McBride is known for her lemonade — and much more.`\
-https://nytimes.com/2025/11/28/us/politics/hey-lemonade-a-backstage-fixture-at-the-grand-ole-opry.html
-
-**An Understated Approach to Holiday Décor in the Country**\
-`The designer Shawn Henderson leans into simple greens and vintage lights for his home in Hillsdale, N.Y.`\
-https://nytimes.com/2025/11/28/realestate/holiday-decorations-garlands-wreaths.html
-
-**How to Live to 100, According to Dick Van Dyke**\
-`The star of “Mary Poppins” and “Chitty Chitty Bang Bang” still hits the gym and touches his toes.`\
-https://nytimes.com/2025/11/28/well/dick-van-dyke-health-habits.html
-
-**7 New Movies Our Critics Are Talking About This Week**\
-`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
-https://nytimes.com/2025/11/28/movies/new-movies-this-week-critics.html
-
-**Three Great Documentaries to Stream**\
-`In this month’s picks, a portrait of a vanguard filmmaker, a look back at a televised clash between writers, and a reflection on a Hollywood star and pinup.`\
-https://nytimes.com/2025/11/28/movies/three-great-documentaries-to-stream.html
-
-**What Do You Know About Black Friday?**\
-`What used to be a single day of holiday havoc is now a weekslong stretch of sales and promotions. Let’s take a walk down memory lane… at the mall.`\
-https://nytimes.com/interactive/2025/11/28/business/black-friday-shopping-quiz.html
-
-**Every Generation Gets the Shakespeare It Deserves**\
-`Our love of his plays have led to a centuries-long fascination with the writer. So why does each new fictional iteration get his life so wrong?`\
-https://nytimes.com/2025/11/28/opinion/hamnet-shakespeare-adaptation-fiction.html
-
-**Goodbye, Price Tags. Hello, Dynamic Pricing.**\
-`Shopping has always been a game. And now it’s being rigged against you.`\
-https://nytimes.com/2025/11/28/opinion/dynamic-pricing-algorithms.html
 
