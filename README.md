@@ -1,3 +1,11 @@
+**Snow Squalls and Heavy Winds Pummel Parts of Southern Ontario**\
+`More localized bands of squalls were expected to form, with up to two feet of snow possible in some areas, according to Canada’s forecast agency.`\
+https://nytimes.com/2025/11/28/weather/snow-ontario-quebec-forecast.html
+
+**Women's World Cup 2031: 50 stadiums submitted for U.S., Mexico, Costa Rica, Jamaica bid**\
+`U.S. Soccer has submitted a bid book of potential host cities: 28 in the U.S., six in Mexico, and one each in Costa Rica amd Jamaica.`\
+https://nytimes.com/athletic/6845439/2025/11/28/womens-world-cup-2031-bid-stadiums-cities/
+
 **What to Know About Andriy Yermak**\
 `The chief of staff to President Volodymyr Zelensky of Ukraine was seen as the second-most powerful person in Ukraine. He was dismissed on Friday.`\
 https://nytimes.com/2025/11/28/world/europe/yermak-zelensky-ukraine-what-to-know.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6845402/2025/11/28/cowboys-jones-jets-trade-parsons
 **‘My Baby Girl Has Passed to Glory,’ Says Father of Guard Soldier Killed in D.C. Shooting**\
 `Specialist Sara Beckstrom, who died on Thursday, was not initially excited to go to Washington, but had grown to enjoy the city. Staff Sgt. Andrew Wolfe remained in critical condition on Friday.`\
 https://nytimes.com/2025/11/28/us/politics/dc-shooting-victims-beckstrom-wolfe.html
-
-**Edvardsen apologises after mocking appearance of Stuttgart's Stiller**\
-`Edvardsen, standing in the face of Stiller, mockingly gestured at his own nose, sparking a clash between the two teams.`\
-https://nytimes.com/athletic/6845381/2025/11/28/victor-edvardsen-angelo-stiller-apology/
-
-**We need to talk about McLaren conspiracies. Plus, Piastri leads early in Qatar**\
-`More conspiracy theories engulfed the McLaren F1 team this week. Here's why they're wide of the mark`\
-https://nytimes.com/athletic/6845187/2025/11/28/mclaren-f1-conspiracy-theories/
 
