@@ -1,3 +1,19 @@
+**'Until I started coaching, I was paralysed' - David Flitcroft on football and grief**\
+`The loss of his father in 2008 has been the spur for Flitcroft to get involved coaching kids at grassroots level`\
+https://nytimes.com/athletic/6835979/2025/11/28/until-i-started-coaching-i-was-paralysed-david-flitcroft-on-football-and-grief/
+
+**How a Paris basketball team nurtured two current NBA coaches**\
+`When the Portland Trail Blazers and Memphis Grizzlies meet on December 7, a team in Paris will be watching with intent`\
+https://nytimes.com/athletic/6797772/2025/11/28/paris-basketball-tuomas-iisalo-thiago-splitter-nba/
+
+**Is the World Cup really the equivalent of 104 Super Bowls?**\
+`FIFA president Gianni Infantino claimed that next summer's World Cup will be the equivalent of three Super Bowls a day. Is he right?`\
+https://nytimes.com/athletic/6823244/2025/11/28/is-the-world-cup-really-the-equivalent-of-104-super-bowls/
+
+**Premier League Predictions: Chelsea vs Arsenal, West Ham vs Liverpool and the rest of Matchday 13**\
+`Who's leading after MD12? And what does our writer, the algorithm, a child and this week's subscriber expect to see on Matchday 13?`\
+https://nytimes.com/athletic/6839270/2025/11/28/premier-league-predictions-chelsea-arsenal-matchday-13/
+
 **In Turkey, Pope Seeks to Soothe an Ancient Christian Divide**\
 `In Istanbul, Pope Leo XIV will meet the patriarch of the Eastern Orthodox Church to show amity between two of the world’s largest Christian groups.`\
 https://nytimes.com/2025/11/28/world/middleeast/pope-leo-turkey-church.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/11/28/style/heather-peggs-george-igoe-wedding.html
 **The Three Times I Married My Wife**\
 `Saying wedding vows is one thing. Living up to them is quite another.`\
 https://nytimes.com/2025/11/28/style/modern-love-the-three-times-i-married-my-wife.html
-
-**The Federal Shutdown Almost Delayed Their Marriage**\
-`Jared Brown and Daniel Roberts, who bonded over their work with the Obamas, had a meticulous engagement “rollout plan,” but securing a marriage license was the real test.`\
-https://nytimes.com/2025/11/28/style/jared-brown-daniel-roberts-wedding.html
-
-**At 90 and 83, They Leaped Into Love Again**\
-`Marvin Hersel, a Navy veteran, and Maria Chavez, a retired medical translator from Mexico, fell in love at their senior living residence after swapping vivid childhood stories.`\
-https://nytimes.com/2025/11/28/style/maria-chavez-marvin-hersel-wedding.html
-
-**A New Orleans Processional at a Grand Old Irish Estate**\
-`Morgan Evans and Colm Browne arrived at their wedding welcome party in Ireland in a second line led by a Dublin band.`\
-https://nytimes.com/2025/11/28/style/morgan-evans-colm-browne-wedding.html
-
-**Trump Uses National Guard Shooting to Cast Suspicion on Refugees**\
-`President Trump claimed there were “a lot of problems with Afghans,” without providing evidence, as his administration announced that it was implementing new immigration guidelines.`\
-https://nytimes.com/2025/11/27/us/politics/trump-national-guard-shooting.html
 
