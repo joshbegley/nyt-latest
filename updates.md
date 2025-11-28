@@ -1,3 +1,11 @@
+**Rangers respond well to momentum swings in Boston, plus other thoughts**\
+`It wasn’t a full 60-minute effort from New York, but it was enough for the team to beat Boston 6-2 and win its third in a row.`\
+https://nytimes.com/athletic/6845913/2025/11/28/rangers-bruins-vincent-trocheck-mika-zibanejad/
+
+**Stanford names Washington Commanders assistant Tavita Pritchard as next head coach**\
+`Tavita Pritchard returns to Stanford after playing and working as an assistant for the Cardinal  before joining the Commanders.`\
+https://nytimes.com/athletic/6845960/2025/11/28/stanford-head-coach-tavita-pritchard-washington-commanders-comman/
+
 **Lane Kiffin calls reporter's podcast comment 'bush league' after win**\
 `The Ole Miss coach and Ben Garrett of On3 crossed paths after the Egg Bowl, where the two spoke briefly.`\
 https://nytimes.com/athletic/6845891/2025/11/28/lane-kiffin-egg-bowl-reporter-ben-garrett/

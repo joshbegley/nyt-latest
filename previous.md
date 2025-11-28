@@ -1,3 +1,11 @@
+**Rangers respond well to momentum swings in Boston, plus other thoughts**\
+`It wasn’t a full 60-minute effort from New York, but it was enough for the team to beat Boston 6-2 and win its third in a row.`\
+https://nytimes.com/athletic/6845913/2025/11/28/rangers-bruins-vincent-trocheck-mika-zibanejad/
+
+**Stanford names Washington Commanders assistant Tavita Pritchard as next head coach**\
+`Tavita Pritchard returns to Stanford after playing and working as an assistant for the Cardinal  before joining the Commanders.`\
+https://nytimes.com/athletic/6845960/2025/11/28/stanford-head-coach-tavita-pritchard-washington-commanders-comman/
+
 **Lane Kiffin calls reporter's podcast comment 'bush league' after win**\
 `The Ole Miss coach and Ben Garrett of On3 crossed paths after the Egg Bowl, where the two spoke briefly.`\
 https://nytimes.com/athletic/6845891/2025/11/28/lane-kiffin-egg-bowl-reporter-ben-garrett/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6845651/2025/11/28/iowa-nebraska-score-result-footb
 **Ole Miss completes 11-1 season to likely seal Playoff bid, but Lane Kiffin decision looms**\
 `Kiffin, a candidate at LSU, said he hasn't made a decision yet. "I've got a lot of praying to do to figure that out tomorrow," he said.`\
 https://nytimes.com/athletic/6845696/2025/11/28/ole-miss-mississippi-state-score-result-lane-kiffin/
-
-**Flashback: Your Weekly History Quiz, Nov. 29, 2025**\
-`Can you sort 8 historical events?`\
-https://nytimes.com/interactive/2025/11/28/upshot/flashback.html
-
-**Cowboys' Pickens says sun cost him a catch at AT&T Stadium: Why it's an issue**\
-`The unique configuration of Cowboys' stadium continues to cause problems for players, but Jerry Jones is resistant to change.`\
-https://nytimes.com/athletic/6845530/2025/11/28/cowboys-att-stadium-sunlight-issues/
 
