@@ -1,3 +1,7 @@
+**At Last, a Name for the Murderous Face in a Holocaust Photo**\
+`With the help of A.I., a historian has identified the killer in a 1941 image that defined the savagery of the Nazi regime.`\
+https://nytimes.com/2025/11/28/science/holocaust-nazi-photography.html
+
 **Australia captain Pat Cummins set to miss second Test, hosts name unchanged squad**\
 `The fast bowler will continue to build up his workload in Brisbane with a view to returning in the third Test in Adelaide next month`\
 https://nytimes.com/athletic/6844332/2025/11/28/australia-cummins-ashes-brisbane/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/28/world/asia/hong-kong-fire.html
 **Sheffield Wednesday targeted by six bidders, administrators want at least £30m**\
 `Championship club's administrator reveals takeover latest and how a £1m loan from a fan has helped ease immediate concerns`\
 https://nytimes.com/athletic/6843179/2025/11/28/sheffield-wednesday-administration-bidders/
-
-**Palace's three huge missed chances and why Glasner has stopped seeing the positives**\
-`Palace should have beaten Strasbourg but ended up losing Thursday night's game 2-1`\
-https://nytimes.com/athletic/6839463/2025/11/28/crystal-palace-strasbourg-missed-chances/
 

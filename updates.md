@@ -1,3 +1,7 @@
+**At Last, a Name for the Murderous Face in a Holocaust Photo**\
+`With the help of A.I., a historian has identified the killer in a 1941 image that defined the savagery of the Nazi regime.`\
+https://nytimes.com/2025/11/28/science/holocaust-nazi-photography.html
+
 **Australia captain Pat Cummins set to miss second Test, hosts name unchanged squad**\
 `The fast bowler will continue to build up his workload in Brisbane with a view to returning in the third Test in Adelaide next month`\
 https://nytimes.com/athletic/6844332/2025/11/28/australia-cummins-ashes-brisbane/
