@@ -1,5 +1,9 @@
+**Jets' Kris Boyd returns to hospital with 'health issues' after shooting**\
+`Boyd has been rehospitalized with issues from the Manhattan shooting on Nov. 16, as police continue investigating.`\
+https://nytimes.com/athletic/6845631/2025/11/28/jets-kris-boyd-hospital-health-issues-shooting/
+
 **Iowa vs. Nebraska: Hawkeyes offense rolls Huskers during rivalry-week rout**\
-`One year after putting together a six-win season, the Huskers failed to make substantial improvement despite making roster improvements.`\
+`One year after putting together a seven-win season, the Huskers failed to make substantial improvement despite making roster improvements.`\
 https://nytimes.com/athletic/6845651/2025/11/28/iowa-nebraska-score-result-football/
 
 **Ole Miss completes 11-1 season to likely seal Playoff bid, but Lane Kiffin decision looms**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6845736/2025/11/28/bucks-vs-knicks-stream-how-to-wa
 **How to watch 76ers vs. Nets: Time, TV, streaming**\
 `Find out how to watch the Philadelphia 76ers play the Brooklyn Nets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6845732/2025/11/28/76ers-vs-nets-stream-how-to-watch-nov-28/
-
-**How to watch Spurs vs. Nuggets: Time, TV, streaming**\
-`Find out how to watch the San Antonio Spurs play the Denver Nuggets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6845728/2025/11/28/spurs-vs-nuggets-stream-how-to-watch-nov-28/
 
