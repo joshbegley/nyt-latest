@@ -1,3 +1,7 @@
+**Australia captain Pat Cummins set to miss second Test, hosts name unchanged squad**\
+`The fast bowler will continue to build up his workload in Brisbane with a view to returning in the third Test in Adelaide next month`\
+https://nytimes.com/athletic/6844332/2025/11/28/australia-cummins-ashes-brisbane/
+
 **Property Tied to Ukraine’s Lead Negotiator Is Searched in Corruption Case**\
 `The scrutiny of Andriy Yermak, President Volodymyr Zelensky’s chief of staff, could disrupt U.S.-led peace talks and further rattle Ukrainian politics.`\
 https://nytimes.com/2025/11/28/world/europe/ukraine-yermak-corruption-peace-talks.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6843179/2025/11/28/sheffield-wednesday-administrati
 **Palace's three huge missed chances and why Glasner has stopped seeing the positives**\
 `Palace should have beaten Strasbourg but ended up losing Thursday night's game 2-1`\
 https://nytimes.com/athletic/6839463/2025/11/28/crystal-palace-strasbourg-missed-chances/
-
-**Roma face Napoli test, Leverkusen host Dortmund after shocking Manchester City**\
-`With derbies in Italy, Spain and France this weekend, here are the games outside of the Premier League to put on your radar `\
-https://nytimes.com/athletic/6843098/2025/11/28/real-madrid-roma-napoli-dortmund-leverkusen/
 
