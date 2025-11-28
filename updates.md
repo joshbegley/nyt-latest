@@ -1,3 +1,7 @@
+**Zelensky’s Top Aide Resigns Amid Widening Corruption Scandal**\
+`Andriy Yermak, Volodymyr Zelensky’s chief of staff — and chief enforcer — became the highest-ranking casualty of an investigation that threatens the Ukrainian president’s ability to govern.`\
+https://nytimes.com/2025/11/28/world/europe/zelensky-yermak-resigns-corruption-scandal.html
+
 **Cardinals tight end Trey McBride's journey to stardom began with a hometown mentor**\
 `"He was the guy from my hometown who made it. Everything he did, I wanted to do, and I think that's a huge reason why I'm here."`\
 https://nytimes.com/athletic/6844164/2025/11/28/arizona-cardinals-trey-mcbride-tight-end-joel-dreessen/
