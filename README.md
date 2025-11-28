@@ -1,3 +1,7 @@
+**No Corrections: Nov. 28, 2025**\
+`No corrections appeared in print on Friday, Nov. 28, 2025.`\
+https://nytimes.com/2025/11/28/pageoneplus/no-corrections-nov-28-2025.html
+
 **Palmer is 'available' for Chelsea after 13 games out, Maresca says**\
 `The England international sustained a groin injury in September before fracturing a toe last week. `\
 https://nytimes.com/athletic/6844907/2025/11/28/cole-palmer-injury-news-chelsea-maresca/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/28/books/review/hamnet-book-club-podcast.html
 **Everton's appeal against Gueye red card at Man Utd turned down, Moyes says**\
 `The 37-year-old became the first Premier League player in 17 years to be sent off for striking his own team-mate on Monday.`\
 https://nytimes.com/athletic/6839290/2025/11/28/idrissa-gueye-everton-red-card-appeal-david-moyes/
-
-**Cunha, Sesko, Maguire to miss Man Utd's trip to Palace**\
-`United head coach Ruben Amorim said Cunha would be back for the home game against West Ham next week.`\
-https://nytimes.com/athletic/6844942/2025/11/28/matehus-cunha-man-utd-injury-sesko/
 

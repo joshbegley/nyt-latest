@@ -1,3 +1,15 @@
+**Palmer is 'available' for Chelsea after 13 games out, Maresca says**\
+`The England international sustained a groin injury in September before fracturing a toe last week. `\
+https://nytimes.com/athletic/6844907/2025/11/28/cole-palmer-injury-news-chelsea-maresca/
+
+**Under center? The pistol? Falcons still searching for the right offensive identity**\
+`Offensive coordinator Zac Robinson talked about the (lack of) difference between offensive alignments for QB Kirk Cousins this week.`\
+https://nytimes.com/athletic/6844807/2025/11/28/falcons-kirk-cousins-offense-under-center-pistol/
+
+**The Pulse: Super Bowl contenders go splat**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6839028/2025/11/28/thanksgiving-nfl-results-the-pulse/
+
 **A Giftable, Mesmerizing Cheese Cutter**\
 `We’re starting a petition to have this cheesy contraption at every holiday party from here on out. You in? Writer Maki Yazawa reviewed the medieval-looking cheese cutter that “provides boundless entertainment for my inquisitive guests.”`\
 https://nytimes.com/video/smarter-living/wirecutter/100000010553268/a-giftable-mesmerizing-cheese-cutter.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6839290/2025/11/28/idrissa-gueye-everton-red-card-a
 **Cunha, Sesko, Maguire to miss Man Utd's trip to Palace**\
 `United head coach Ruben Amorim said Cunha would be back for the home game against West Ham next week.`\
 https://nytimes.com/athletic/6844942/2025/11/28/matehus-cunha-man-utd-injury-sesko/
-
-**Vanderbilt gives Clark Lea 6-year extension amid historic Commodores season: Source**\
-`After going 9-27 in his first three years at Vanderbilt, Clark Lea is 16-8 since the start of the 2024 season. `\
-https://nytimes.com/athletic/6844796/2025/11/28/clark-lea-vanderbilt-coach-contract-extension/
-
-**College football conference championship scenarios: Who can clinch and how**\
-`Here are all of the possible conference title game matchups — and what needs to happen Friday and Saturday to get there.`\
-https://nytimes.com/athletic/6844322/2025/11/28/college-football-conference-championship-game-scenarios/
-
-**From Iowa to New Orleans: The Athletic's top 10 college bars**\
-`Hitting the road for an away game? Here are The Athletic's 10 best bars of 2025. `\
-https://nytimes.com/athletic/6607957/2025/11/28/athletic-college-bars-top-10-ranked/
 

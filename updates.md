@@ -1,3 +1,15 @@
+**Palmer is 'available' for Chelsea after 13 games out, Maresca says**\
+`The England international sustained a groin injury in September before fracturing a toe last week. `\
+https://nytimes.com/athletic/6844907/2025/11/28/cole-palmer-injury-news-chelsea-maresca/
+
+**Under center? The pistol? Falcons still searching for the right offensive identity**\
+`Offensive coordinator Zac Robinson talked about the (lack of) difference between offensive alignments for QB Kirk Cousins this week.`\
+https://nytimes.com/athletic/6844807/2025/11/28/falcons-kirk-cousins-offense-under-center-pistol/
+
+**The Pulse: Super Bowl contenders go splat**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6839028/2025/11/28/thanksgiving-nfl-results-the-pulse/
+
 **A Giftable, Mesmerizing Cheese Cutter**\
 `We’re starting a petition to have this cheesy contraption at every holiday party from here on out. You in? Writer Maki Yazawa reviewed the medieval-looking cheese cutter that “provides boundless entertainment for my inquisitive guests.”`\
 https://nytimes.com/video/smarter-living/wirecutter/100000010553268/a-giftable-mesmerizing-cheese-cutter.html
