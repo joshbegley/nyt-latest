@@ -1,3 +1,7 @@
+**Trapped for Two Hours in a Burning Tower: One Resident’s Account**\
+`In his own words, William Li, a resident of the Hong Kong apartment complex that became an inferno, recounted how he and two neighbors survived until help arrived.`\
+https://nytimes.com/2025/11/28/world/asia/hong-kong-fire-survivor-escape-story.html
+
 **Heavy Snow in Parts of the U.S. Complicates Post-Thanksgiving Travel**\
 `Forecasters say a winter storm will bring heavy snow, sleet, freezing rain and blizzard conditions to the Northern Plains, Upper Midwest and Great Lakes from Friday through the weekend.`\
 https://nytimes.com/video/weather/100000010553410/winter-weather-snow-ohio.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6845271/2025/11/28/jets-vs-hurricanes-stream-how-to
 **How to watch Penguins vs. Blue Jackets: Time, TV, streaming**\
 `Find out how to watch the Pittsburgh Penguins play the Columbus Blue Jackets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6845269/2025/11/28/penguins-vs-blue-jackets-stream-how-to-watch-nov-28/
-
-**Palace apologise after travelling fans clash ahead of tie in Strasbourg**\
-`There was fighting in a square in the city on Thursday afternoon, believed to be between two groups of travelling Palace supporters.`\
-https://nytimes.com/athletic/6845189/2025/11/28/crystal-palace-strasbourg-fans-apology/
 

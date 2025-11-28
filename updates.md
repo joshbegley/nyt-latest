@@ -1,3 +1,7 @@
+**Trapped for Two Hours in a Burning Tower: One Resident’s Account**\
+`In his own words, William Li, a resident of the Hong Kong apartment complex that became an inferno, recounted how he and two neighbors survived until help arrived.`\
+https://nytimes.com/2025/11/28/world/asia/hong-kong-fire-survivor-escape-story.html
+
 **Heavy Snow in Parts of the U.S. Complicates Post-Thanksgiving Travel**\
 `Forecasters say a winter storm will bring heavy snow, sleet, freezing rain and blizzard conditions to the Northern Plains, Upper Midwest and Great Lakes from Friday through the weekend.`\
 https://nytimes.com/video/weather/100000010553410/winter-weather-snow-ohio.html
