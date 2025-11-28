@@ -1,40 +1,40 @@
-**Goodbye, Price Tags. Hello, Dynamic Pricing.**\
-`Shopping has always been a game. And now it’s being rigged against you.`\
-https://nytimes.com/video/opinion/100000010545604/goodbye-price-tags-hello-dynamic-pricing.html
+**Two Young Boys fans arrested after crowd trouble at Villa**\
+`West Midlands Police said in a statement that two away fans had been arrested "on suspicion of affray and assaulting a police officer."`\
+https://nytimes.com/athletic/6844611/2025/11/28/young-boys-fans-arrest-trouble-aston-villa-police/
 
-**Walsh says majority of WSL players have been abused online, calls for 'more action'**\
-`3,000 social media posts containing “hostile or concerning content” were directed at the England team during Euro 2025, per a report.`\
-https://nytimes.com/athletic/6844594/2025/11/28/england-keira-walsh-online-abuse/
+**How Gen Z Is Shopping**\
+`We look at their habits on Black Friday.`\
+https://nytimes.com/2025/11/28/briefing/how-gen-z-is-shopping.html
 
-**Gone in 13 seconds? Lithuania stuns Great Britain with 9 late points, buzzer-beater**\
-`Victory was in sight for the home team, 87-80 up with seconds to go. But Lithuania's Ignas Sargiunas had other ideas.`\
-https://nytimes.com/athletic/6844488/2025/11/28/lithuania-buzzer-beater-ignas-sargiunas/
+**How Lando Norris can win the F1 drivers’ championship in Qatar**\
+`Max Verstappen and Oscar Piastri still have a chance, but the numbers are in Norris' favor`\
+https://nytimes.com/athletic/6843617/2025/11/28/f1-norris-drivers-championship-qatar/
 
-**LeBron James' fitting in, Magic's smash-mouth offense and more NBA trends I'm watching**\
-`An offense is emerging. An all-time great is fitting in, not out. And a defensive menace is refusing to flop.`\
-https://nytimes.com/athletic/6842643/2025/11/28/nba-trends-lebron-return-magic-offense/
+**For Gunner Stockton and Haynes King, a last-ditch chance to make a Heisman case**\
+`The two quarterbacks in Friday's Georgia-Georgia Tech game could be the Spiderman meme, mirror images pointing at each other.`\
+https://nytimes.com/athletic/6840023/2025/11/28/gunner-stockton-haynes-king-heisman-georgia-georgia-tech/
 
-**Lamar Jackson at a loss over Ravens' recent offensive struggles: 'I can’t call it'**\
-`In front of a prime-time Thanksgiving audience, Cincinnati became the latest team to make Baltimore's offense look mistake-prone and inept.`\
-https://nytimes.com/athletic/6844253/2025/11/28/ravens-offensive-struggles-lamar-jackson-loss-bengals/
+**The Athletic’s Friday football quiz question #83**\
+`Can you answer the weekly poser plucked from deep inside The Athletic's trivia vaults?`\
+https://nytimes.com/athletic/6843402/2025/11/28/the-athletics-friday-football-quiz-question-83/
 
-**Why Thanksgiving night touched Joe Burrow's emotions and his teammates' belief**\
-`After a long road Burrow officially announced to the NFL world he was back Thursday night — and the Bengals just might be, too`\
-https://nytimes.com/athletic/6844340/2025/11/28/joe-burrow-bengals-ravens-thanksgiving/
+**Behind the scenes with Michigan in Las Vegas: Late nights, a $1 million prize and raised expectations**\
+`LAS VEGAS — Dusty May breaks from watching film on Sunday afternoon when a visitor stops by Michigan’s temporary headquarters inside a ballroom at the Park MGM Hotel.`\
+https://nytimes.com/athletic/6844128/2025/11/28/michigan-basketball-players-era-championship/
 
-**Tetairoa McMillan's impact is undeniable: Grading Panthers offensive rookies**\
-`McMillan might be tough on himself when it comes to grading his season, but he's been an excellent addition to the offense.`\
-https://nytimes.com/athletic/6841354/2025/11/28/panthers-tetairoa-mcmillan-offense-rookie-grades/
+**Can Irish remain focused with CFP bid looming? Notre Dame vs. Stanford predictions**\
+`Notre Dame must stay focused as it faces a program with a lame-duck coach in his final game.`\
+https://nytimes.com/athletic/6840902/2025/11/28/notre-dame-stanford-football-preview/
 
-**The Cowboys' offense is great, but their defense is why playoff talk is intensifying**\
-`The Cowboys have won three consecutive games, and while their playoff chances remain slim, their confidence is building.`\
-https://nytimes.com/athletic/6844134/2025/11/28/cowboys-beat-chiefs-playoff-chase-thanksgiving/
+**The Prospects: Josh Sonni-Lambie, Liverpool**\
+`The striker was spotted by Liverpool playing grassroots football in his native London`\
+https://nytimes.com/athletic/6842503/2025/11/28/the-prospects-josh-sonni-lambie-liverpool/
 
-**What to know about the NFL Black Friday game between the Bears and Eagles**\
-`Both teams hit Black Friday with 8-3 records and first-place division standings. This game is available without a Prime subscription.`\
-https://nytimes.com/athletic/6838214/2025/11/28/bears-eagles-nfl-black-friday-game-prime-watch/
+**Hard Fork’s 50 Most Iconic Technologies of 2025**\
+`“You can’t tell the story of 2025 without these icons.”`\
+https://nytimes.com/2025/11/28/podcasts/hardfork-iconic-technologies-2025.html
 
-**Michigan-Ohio State breakdown: Coaches under pressure, players to watch, predictions**\
-`The Athletic’s Cameron Teague Robinson and Austin Meek discuss key questions ahead of this year's showdown.`\
-https://nytimes.com/athletic/6839625/2025/11/28/ohio-state-michigan-preview-predictions-2/
+**Why do the Warriors only have one Curry right now? Blame the NBA hard cap**\
+`It's possible that Seth Curry, who was in Warriors training camp, could join them soon, but there's a reason he's not on the team now. `\
+https://nytimes.com/athletic/6829528/2025/11/28/seth-curry-warriors-nba-salary-cap/
 
