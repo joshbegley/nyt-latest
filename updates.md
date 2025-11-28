@@ -1,3 +1,7 @@
+**National Guard Soldier Dies After Being Shot in Washington**\
+`Another Guard member was in critical condition. The suspect is an Afghan man who once served in a paramilitary unit that worked with U.S. forces, officials said.`\
+https://nytimes.com/2025/11/28/us/national-guard-shooting-washington.html
+
 **Death Toll Rises to 128 in Hong Kong High-Rise Fire**\
 `Hope of finding survivors has dwindled, with many residents of the densely packed Wang Fuk Court apartment towers still unaccounted for.`\
 https://nytimes.com/2025/11/28/world/asia/hong-kong-fire.html

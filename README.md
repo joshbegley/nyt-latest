@@ -1,3 +1,7 @@
+**The Transfer Radar 2026: The Athletic's ultimate guide to the players clubs will be keeping an eye on**\
+`Welcome to The 2026 Transfer Radar, our scouting guide for next year's windows`\
+https://nytimes.com/athletic/6838191/2025/11/28/transfer-radar-latest-january-summer-window/
+
 **National Guard Soldier Dies After Being Shot in Washington**\
 `Another Guard member was in critical condition. The suspect is an Afghan man who once served in a paramilitary unit that worked with U.S. forces, officials said.`\
 https://nytimes.com/2025/11/28/us/national-guard-shooting-washington.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/28/world/asia/sri-lanka-cyclone-ditwah-toll.html
 **The New York Times in Print for Friday, Nov. 28, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/11/28/todays-new-york-times
-
-**England's grim fascination with the batting collapse: 'You feel like you’ve had no time to breathe'**\
-`The tourists' capitulation after lunch on day two of the first Test at Perth was another example of their batting line-up falling apart`\
-https://nytimes.com/athletic/6839455/2025/11/28/ashes-england-batting-collapse-perth-adelaide-vaughan-jones/
 

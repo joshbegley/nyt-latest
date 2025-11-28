@@ -1,3 +1,7 @@
+**National Guard Soldier Dies After Being Shot in Washington**\
+`Another Guard member was in critical condition. The suspect is an Afghan man who once served in a paramilitary unit that worked with U.S. forces, officials said.`\
+https://nytimes.com/2025/11/28/us/national-guard-shooting-washington.html
+
 **Death Toll Rises to 128 in Hong Kong High-Rise Fire**\
 `Hope of finding survivors has dwindled, with many residents of the densely packed Wang Fuk Court apartment towers still unaccounted for.`\
 https://nytimes.com/2025/11/28/world/asia/hong-kong-fire.html
@@ -33,8 +37,4 @@ https://nytimes.com/issue/todayspaper/2025/11/28/todays-new-york-times
 **England's grim fascination with the batting collapse: 'You feel like you’ve had no time to breathe'**\
 `The tourists' capitulation after lunch on day two of the first Test at Perth was another example of their batting line-up falling apart`\
 https://nytimes.com/athletic/6839455/2025/11/28/ashes-england-batting-collapse-perth-adelaide-vaughan-jones/
-
-**Jadon Sancho is still a work in progress at Aston Villa - he must prove himself quickly**\
-`The Manchester United loanee's career remains in a state of drift, but Thursday evening offered some signs of promise`\
-https://nytimes.com/athletic/6843597/2025/11/28/jadon-sancho-aston-villa-young-boys/
 
