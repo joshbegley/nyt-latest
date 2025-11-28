@@ -1,3 +1,19 @@
+**49ers Kyle Juszczyk thankful to be a surprising 201 games in and a fan favorite**\
+`The game slows down for the fullback just like it does for elite quarterbacks.`\
+https://nytimes.com/athletic/6843717/2025/11/28/49ers-kyle-juszczyk-fan-favorite-juice/
+
+**Why counter-attacks are the next stage of Mikel Arteta's Arsenal masterplan**\
+`To stay at the top of the football tree, Arsenal have empowered their attack with direct balls into the channels, catching opponents out`\
+https://nytimes.com/athletic/6833000/2025/11/28/arsenal-transitions-eze-gyokeres-arteta/
+
+**Through injuries and tragedy, Teddy Prochazka persevered to find purpose at Nebraska**\
+`“This place has given so much to me,” Prochazka said, “and I feel like I still have a lot more to give to this place.”`\
+https://nytimes.com/athletic/6844087/2025/11/28/nebraska-senior-day-teddy-prochazka/
+
+**The University of California knows its stereotypes. How does college football fit in?**\
+`At Berkeley, college football is an afterthought — but brings the most differentiating viewpoints together. `\
+https://nytimes.com/athletic/6840475/2025/11/28/california-bears-football-berkeley-politics/
+
 **FPL live Q&A: Gameweek 13 advice from Ben Dinnery**\
 `Ben Dinnery of premierinjuries.com is on hand to offer his expert advice to give you the best chance of FPL success`\
 https://nytimes.com/athletic/6844386/2025/11/28/fantasy-premier-league-live-qa-gameweek-13-advice-from-ben-dinnery/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6844611/2025/11/28/young-boys-fans-arrest-trouble-a
 **How Gen Z Is Shopping**\
 `We look at their habits on Black Friday.`\
 https://nytimes.com/2025/11/28/briefing/how-gen-z-is-shopping.html
-
-**How Lando Norris can win the F1 drivers’ championship in Qatar**\
-`Max Verstappen and Oscar Piastri still have a chance, but the numbers are in Norris' favor`\
-https://nytimes.com/athletic/6843617/2025/11/28/f1-norris-drivers-championship-qatar/
-
-**For Gunner Stockton and Haynes King, a last-ditch chance to make a Heisman case**\
-`The two quarterbacks in Friday's Georgia-Georgia Tech game could be the Spiderman meme, mirror images pointing at each other.`\
-https://nytimes.com/athletic/6840023/2025/11/28/gunner-stockton-haynes-king-heisman-georgia-georgia-tech/
-
-**The Athletic’s Friday football quiz question #83**\
-`Can you answer the weekly poser plucked from deep inside The Athletic's trivia vaults?`\
-https://nytimes.com/athletic/6843402/2025/11/28/the-athletics-friday-football-quiz-question-83/
-
-**Behind the scenes with Michigan in Las Vegas: Late nights, a $1 million prize and raised expectations**\
-`The Athletic went all-access with the Wolverines as they pummeled Gonzaga by 40 points to win the Players Era Festival.`\
-https://nytimes.com/athletic/6844128/2025/11/28/michigan-basketball-players-era-championship/
 
