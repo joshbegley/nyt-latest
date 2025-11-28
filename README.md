@@ -1,3 +1,7 @@
+**Sheffield Wednesday targeted by six bidders, administrators want at least £30m**\
+`Championship club's administrator reveals takeover latest and how a £1m loan from a fan has helped ease immediate concerns`\
+https://nytimes.com/athletic/6843179/2025/11/28/sheffield-wednesday-administration-bidders/
+
 **Palace's three huge missed chances and why Glasner has stopped seeing the positives**\
 `Palace should have beaten Strasbourg but ended up losing Thursday night's game 2-1`\
 https://nytimes.com/athletic/6839463/2025/11/28/crystal-palace-strasbourg-missed-chances/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6843597/2025/11/28/jadon-sancho-aston-villa-young-b
 **Why Gueye's Everton explosion was so shocking: 'He's very calm'**\
 `The Senegalese's outburst took everyone by surprise on Monday, not least his own team-mates`\
 https://nytimes.com/athletic/6842380/2025/11/28/idrissa-gueye-everton-profile/
-
-**Verbruggen interview: Forest redemption, switching off from football, his World Cup dream**\
-`Verbruggen explains why he's very happy with the 'personality' and goalkeeping group at Brighton - and his 'boyhood dream' to come next year`\
-https://nytimes.com/athletic/6833794/2025/11/28/verbruggen-brighton-forest-world-cup-netherlands/
 
