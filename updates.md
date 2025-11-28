@@ -1,3 +1,7 @@
+**Trump Pauses Domestic Applications for Asylum**\
+`It was the latest restrictive change to the immigration system after this week’s shooting of two National Guard members.`\
+https://nytimes.com/2025/11/28/us/politics/trump-affirmative-asylum.html
+
 **Bears-Eagles takeaways: Chicago bullies Philly with ground game in win**\
 `D'Andre Swift, Kyle Monangai both rush for more than 100 yards as Bears win battle of division leaders.`\
 https://nytimes.com/athletic/6845867/2025/11/28/bears-eagles-black-friday-score-result-takeaways/
