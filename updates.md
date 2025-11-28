@@ -1,3 +1,7 @@
+**Post Malone honors Cowboys' Marshawn Kneeland in Thanksgiving halftime show**\
+`Kneeland, who played defensive end for the Cowboys, died on Nov. 6 at age 24 from an apparent self-inflicted gunshot wound.`\
+https://nytimes.com/athletic/6843722/2025/11/27/post-malone-kneeland-94-halftime-cowboys-chiefs/
+
 **The Uniquely American Heartbreak of Yet Another Tragedy**\
 `The National Guard members shot in Washington are the latest victims of a political violence permeating our society.`\
 https://nytimes.com/2025/11/27/opinion/national-guard-shot-dc.html

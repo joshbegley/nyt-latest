@@ -1,3 +1,7 @@
+**Post Malone honors Cowboys' Marshawn Kneeland in Thanksgiving halftime show**\
+`Kneeland, who played defensive end for the Cowboys, died on Nov. 6 at age 24 from an apparent self-inflicted gunshot wound.`\
+https://nytimes.com/athletic/6843722/2025/11/27/post-malone-kneeland-94-halftime-cowboys-chiefs/
+
 **On Thanksgiving, an Unexpected Kind of Grace**\
 `SNAP benefits helped Leanna Nieves of Haverhill, Mass., buy Thanksgiving dinner for her family, but she used the day to set aside what have been chronic worries about the federal program.`\
 https://nytimes.com/2025/11/27/us/politics/snap-benefits-trump-thanksgiving.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6843459/2025/11/27/maple-leafs-lineup-craig-berube-
 **Louvre to Raise Ticket Prices for Americans and Some Other Foreigners**\
 `From Jan. 14, visitors to the museum from outside the European Economic Area will pay 45 percent more for entry to help finance its ambitious renovation plan.`\
 https://nytimes.com/2025/11/27/world/europe/louvre-higher-ticket-prices.html
-
-**Officials Identify National Guard Shooting Suspect**\
-`Officials said the gunman immigrated from Afghanistan in 2021 after working with C.I.A.-backed military units. The suspect drove across the country to carry out the attack. The two wounded members of the National Guard remain in critical condition.`\
-https://nytimes.com/video/us/100000010552479/national-guard-shooting-suspect-afghanistan-washington.html
 
