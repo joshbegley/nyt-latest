@@ -1,3 +1,7 @@
+**England's grim fascination with the batting collapse: 'You feel like you’ve had no time to breathe'**\
+`The tourists' capitulation after lunch on day two of the first Test at Perth was another example of their batting line-up falling apart`\
+https://nytimes.com/athletic/6839455/2025/11/28/ashes-england-batting-collapse-perth-adelaide-vaughan-jones/
+
 **Jadon Sancho is still a work in progress at Aston Villa - he must prove himself quickly**\
 `The Manchester United loanee's career remains in a state of drift, but Thursday evening offered some signs of promise`\
 https://nytimes.com/athletic/6843597/2025/11/28/jadon-sancho-aston-villa-young-boys/
