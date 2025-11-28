@@ -1,3 +1,7 @@
+**Florida shifting focus from Kiffin; Tulane's Sumrall, USF's Golesh among options: Sources**\
+`The Athletic previously reported Wednesday that Florida was going through several options outside of Kiffin.`\
+https://nytimes.com/athletic/6845235/2025/11/28/florida-lane-kiffin-jon-sumrall-alex-golesh-coaching-search/
+
 **Trump Spoke by Phone Last Week With Maduro, Venezuela’s Leader**\
 `They discussed a possible meeting between the two of them, but nothing has been scheduled, and the administration continues to increase the military pressure on Venezuela.`\
 https://nytimes.com/2025/11/28/us/politics/trump-spoke-by-phone-last-week-with-maduro-venezuelas-leader.html

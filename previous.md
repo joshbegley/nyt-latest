@@ -6,7 +6,7 @@ https://nytimes.com/2025/11/28/us/politics/trump-spoke-by-phone-last-week-with-m
 `Maloney was named team president in April 2023. Conroy became the GM the following month.`\
 https://nytimes.com/athletic/6841250/2025/11/28/calgary-flames-gm-craig-conroy-contract-extension/
 
-**Florida shifting focus from Kiffin, Tulane's Sumrall, USF's Golesh among options: Sources**\
+**Florida shifting focus from Kiffin; Tulane's Sumrall, USF's Golesh among options: Sources**\
 `The Athletic previously reported Wednesday that Florida was going through several options outside of Kiffin.`\
 https://nytimes.com/athletic/6845235/2025/11/28/florida-lane-kiffin-jon-sumrall-alex-golesh-coaching-search/
 
