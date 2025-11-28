@@ -1,3 +1,7 @@
+**Jones says he previously offered Jets first-round pick, Parsons for Williams**\
+`Williams is indirectly part of the return on the Cowboys’ trade of Parsons, which means there will be comparisons made for a long time.`\
+https://nytimes.com/athletic/6845402/2025/11/28/cowboys-jerry-jones-says-he-offered-jets-first-round-pick-micah-parsons-for-quinnen-williams/
+
 **‘My Baby Girl Has Passed to Glory,’ Says Father of Guard Soldier Killed in D.C. Shooting**\
 `Specialist Sara Beckstrom, who died on Thursday, was not initially excited to go to Washington, but had grown to enjoy the city. Staff Sgt. Andrew Wolfe remained in critical condition on Friday.`\
 https://nytimes.com/2025/11/28/us/politics/dc-shooting-victims-beckstrom-wolfe.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6827060/2025/11/28/college-football-coaching-carous
 **Mike Matheson, Canadiens agree to 5-year contract extension**\
 `Matheson has 14 points in 22 games with a team-best plus-13 rating and is known as the Canadiens' best-conditioned player.`\
 https://nytimes.com/athletic/6845190/2025/11/28/canadiens-mike-matheson-contract-extension/
-
-**Lane Kiffin: MSU supporters broke into Ole Miss locker room, stole QB's jersey**\
-`Ole Miss reportedly traveled with backup jerseys, so it shouldn't be an issue for the Egg Bowl.`\
-https://nytimes.com/athletic/6845261/2025/11/28/lane-kiffin-egg-bowl-locker-room-break-in/
 

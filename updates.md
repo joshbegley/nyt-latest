@@ -1,3 +1,7 @@
+**Jones says he previously offered Jets first-round pick, Parsons for Williams**\
+`Williams is indirectly part of the return on the Cowboys’ trade of Parsons, which means there will be comparisons made for a long time.`\
+https://nytimes.com/athletic/6845402/2025/11/28/cowboys-jerry-jones-says-he-offered-jets-first-round-pick-micah-parsons-for-quinnen-williams/
+
 **‘My Baby Girl Has Passed to Glory,’ Says Father of Guard Soldier Killed in D.C. Shooting**\
 `Specialist Sara Beckstrom, who died on Thursday, was not initially excited to go to Washington, but had grown to enjoy the city. Staff Sgt. Andrew Wolfe remained in critical condition on Friday.`\
 https://nytimes.com/2025/11/28/us/politics/dc-shooting-victims-beckstrom-wolfe.html
