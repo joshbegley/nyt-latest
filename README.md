@@ -1,3 +1,7 @@
+**Ellen Bryant Voigt, Poet With a Musical Ear, Dies at 82**\
+`Her nine volumes included “Kyrie,” a suite of sonnets about the 1918 influenza epidemic. She was also Pulitzer Prize finalist and a poet laureate of Vermont.`\
+https://nytimes.com/2025/11/28/books/ellen-bryant-voigt-dead.html
+
 **Jets' Kris Boyd returns to hospital with 'health issues' after shooting**\
 `Boyd has been rehospitalized with issues from the Manhattan shooting on Nov. 16, as police continue investigating.`\
 https://nytimes.com/athletic/6845631/2025/11/28/jets-kris-boyd-hospital-health-issues-shooting/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6845738/2025/11/28/mavericks-vs-lakers-stream-how-t
 **How to watch Suns vs. Thunder: Time, TV, streaming**\
 `Find out how to watch the Phoenix Suns play the Oklahoma City Thunder, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6845735/2025/11/28/suns-vs-thunder-stream-how-to-watch-nov-28/
-
-**How to watch Bucks vs. Knicks: Time, TV, streaming**\
-`Find out how to watch the Milwaukee Bucks play the New York Knicks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6845736/2025/11/28/bucks-vs-knicks-stream-how-to-watch-nov-28/
 
