@@ -2,6 +2,10 @@
 `Boyd has been rehospitalized with issues from the Manhattan shooting on Nov. 16, as police continue investigating.`\
 https://nytimes.com/athletic/6845631/2025/11/28/jets-kris-boyd-hospital-health-issues-shooting/
 
+**College Football Playoff 2025 projections: The most likely bracket as Rivalry Week begins**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/11/28/college-football-playoff-bracket-projections-odds/
+
 **Iowa vs. Nebraska: Hawkeyes offense rolls Huskers during rivalry-week rout**\
 `One year after putting together a seven-win season, the Huskers failed to make substantial improvement despite making roster improvements.`\
 https://nytimes.com/athletic/6845651/2025/11/28/iowa-nebraska-score-result-football/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6845735/2025/11/28/suns-vs-thunder-stream-how-to-wa
 **How to watch Bucks vs. Knicks: Time, TV, streaming**\
 `Find out how to watch the Milwaukee Bucks play the New York Knicks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6845736/2025/11/28/bucks-vs-knicks-stream-how-to-watch-nov-28/
-
-**How to watch 76ers vs. Nets: Time, TV, streaming**\
-`Find out how to watch the Philadelphia 76ers play the Brooklyn Nets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6845732/2025/11/28/76ers-vs-nets-stream-how-to-watch-nov-28/
 

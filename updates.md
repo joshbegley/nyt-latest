@@ -1,3 +1,7 @@
+**College Football Playoff 2025 projections: The most likely bracket as Rivalry Week begins**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/11/28/college-football-playoff-bracket-projections-odds/
+
 **Jets' Kris Boyd returns to hospital with 'health issues' after shooting**\
 `Boyd has been rehospitalized with issues from the Manhattan shooting on Nov. 16, as police continue investigating.`\
 https://nytimes.com/athletic/6845631/2025/11/28/jets-kris-boyd-hospital-health-issues-shooting/
