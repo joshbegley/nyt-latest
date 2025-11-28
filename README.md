@@ -1,3 +1,7 @@
+**Packers coach Matt LaFleur backs referees on controversial timeout decision**\
+`Asked at what point the official heard LaFleur ask for a timeout, referee Ron Torbert only said, “before the false start.”`\
+https://nytimes.com/athletic/6843859/2025/11/27/packers-matt-lafleur-referees-controversial-timeout/
+
 **Post Malone honors Cowboys' Marshawn Kneeland in Thanksgiving halftime show**\
 `Kneeland, who played defensive end for the Cowboys, died on Nov. 6 at age 24 from an apparent self-inflicted gunshot wound.`\
 https://nytimes.com/athletic/6843722/2025/11/27/post-malone-kneeland-94-halftime-cowboys-chiefs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6843558/2025/11/27/blue-jays-dylan-cease-pitching-h
 **Is Craig Berube ready to make more changes to the Leafs lineup?**\
 `Berube might look to continue scratching Maple Leafs players who have been regulars in the lineup to "put a little more fire in them."`\
 https://nytimes.com/athletic/6843459/2025/11/27/maple-leafs-lineup-craig-berube-max-domi/
-
-**Louvre to Raise Ticket Prices for Americans and Some Other Foreigners**\
-`From Jan. 14, visitors to the museum from outside the European Economic Area will pay 45 percent more for entry to help finance its ambitious renovation plan.`\
-https://nytimes.com/2025/11/27/world/europe/louvre-higher-ticket-prices.html
 
