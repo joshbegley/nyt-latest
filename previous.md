@@ -1,3 +1,7 @@
+**What to Know About Andriy Yermak**\
+`The chief of staff to President Volodymyr Zelensky of Ukraine was seen as the second-most powerful person in Ukraine. He was dismissed on Friday.`\
+https://nytimes.com/2025/11/28/world/europe/yermak-zelensky-ukraine-what-to-know.html
+
 **A Different Type of Dementia is Changing What’s Known About Cognitive Decline**\
 `On its own, LATE dementia is less severe than Alzheimer’s, but in combination, it makes Alzheimer’s symptoms worse, scientists say.`\
 https://nytimes.com/2025/11/28/health/late-dementia-alzheimers.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6845381/2025/11/28/victor-edvardsen-angelo-stiller-
 **We need to talk about McLaren conspiracies. Plus, Piastri leads early in Qatar**\
 `More conspiracy theories engulfed the McLaren F1 team this week. Here's why they're wide of the mark`\
 https://nytimes.com/athletic/6845187/2025/11/28/mclaren-f1-conspiracy-theories/
-
-**Trapped for Two Hours in a Burning Tower: One Resident’s Account**\
-`In his own words, William Li, a resident of the Hong Kong apartment complex that became an inferno, recounted how he and two neighbors survived until help arrived.`\
-https://nytimes.com/2025/11/28/world/asia/hong-kong-fire-survivor-escape-story.html
 

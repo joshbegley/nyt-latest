@@ -1,3 +1,7 @@
+**What to Know About Andriy Yermak**\
+`The chief of staff to President Volodymyr Zelensky of Ukraine was seen as the second-most powerful person in Ukraine. He was dismissed on Friday.`\
+https://nytimes.com/2025/11/28/world/europe/yermak-zelensky-ukraine-what-to-know.html
+
 **A Different Type of Dementia is Changing What’s Known About Cognitive Decline**\
 `On its own, LATE dementia is less severe than Alzheimer’s, but in combination, it makes Alzheimer’s symptoms worse, scientists say.`\
 https://nytimes.com/2025/11/28/health/late-dementia-alzheimers.html
