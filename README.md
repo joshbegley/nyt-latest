@@ -1,3 +1,11 @@
+**Canucks mailbag: Submit your questions for Thomas Drance**\
+`Got a question about the Canucks as the franchise signals its intent to trade veteran players?`\
+https://nytimes.com/athletic/6840353/2025/11/28/vancouver-canucks-mailbag-november-2025/
+
+**A ‘Floor’ on Abortion Is Still a Limit**\
+`Readers respond to an editorial about access to abortion. Also: A citizenship test for our leaders.`\
+https://nytimes.com/2025/11/28/opinion/abortion-access.html
+
 **Cyclone Ditwah Triggers Deadly Rains in Sri Lanka**\
 `Several dozen people in Sri Lanka have been killed in storms that intensified with the approach of Cyclone Ditwah, the country’s deadliest natural disaster since 2017.`\
 https://nytimes.com/video/world/asia/100000010553205/sri-lanka-cyclone-ditwah-deaths.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6844787/2025/11/28/devils-vs-sabres-stream-how-to-w
 **How to watch Kings vs. Ducks: Time, TV, streaming**\
 `Find out how to watch the Los Angeles Kings play the Anaheim Ducks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6844783/2025/11/28/kings-vs-ducks-stream-how-to-watch-nov-28/
-
-**How to watch Senators vs. Blues: Time, TV, streaming**\
-`Find out how to watch the Ottawa Senators play the St. Louis Blues, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6844780/2025/11/28/senators-vs-blues-stream-how-to-watch-nov-28/
-
-**How to watch Flyers vs. Islanders: Time, TV, streaming**\
-`Find out how to watch the Philadelphia Flyers play the New York Islanders, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6844776/2025/11/28/flyers-vs-islanders-stream-how-to-watch-nov-28/
 
