@@ -1,3 +1,7 @@
+**Trump Uses National Guard Shooting to Cast Suspicion on Refugees**\
+`President Trump claimed there were “a lot of problems with Afghans,” without providing evidence, as his administration announced that it was implementing new immigration guidelines.`\
+https://nytimes.com/2025/11/27/us/politics/trump-national-guard-shooting.html
+
 **National Guard Member Dies After Shooting Near White House**\
 `Army Specialist Sarah Beckstrom, a 20-year-old member of the West Virginia Army National Guard, died on Thursday from wounds suffered in an ambush. President Trump said she was “outstanding in every way.”`\
 https://nytimes.com/video/us/100000010552720/national-guard-shooting-dc-beckstrom.html
