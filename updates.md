@@ -1,3 +1,11 @@
+**How to watch Oklahoma State vs. Miami (FL) women's basketball: Time, TV, streaming**\
+`Find out how to watch the Oklahoma State Cowgirls play the Miami Hurricanes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6846854/2025/11/29/oklahoma-state-vs-miami-fl-stream-how-to-watch-nov-29/
+
+**Ben Stokes rejects 'arrogant' tag and defends England's preparation for pink-ball Brisbane Test**\
+`The tourists have come in for fierce criticism after their two-day defeat in Perth and the decision not to seek more game-time between Tests`\
+https://nytimes.com/athletic/6846729/2025/11/29/ben-stokes-england-ashes-brisbane-preparations/
+
 **N.Y. Law Could Set Stage for A.I. Regulation’s Next ‘Big Battleground’**\
 `The new law seeks to prevent retailers from ripping off consumers by using artificial intelligence and their personal data to charge them higher prices.`\
 https://nytimes.com/2025/11/29/nyregion/personalized-surveillance-pricing-ai-new-york.html
