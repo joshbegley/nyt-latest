@@ -1,3 +1,7 @@
+**NBA Cup quarterfinals preview: Lakers to face Spurs as knockout rounds take shape**\
+`The 2025 NBA Cup quarterfinals are set. What should fans expect? Let's preview each matchup to find out.`\
+https://nytimes.com/athletic/6846620/2025/11/29/2025-nba-cup-quarterfinals-matchups-lakers-knicks-heat/
+
 **The New York Times in Print for Saturday, Nov. 29, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/11/29/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6844781/2025/11/29/marc-cucurella-chelse-analysis/
 **Lured by Jobs, They Ended Up ‘Going to War’ for Russia**\
 `The South African government is investigating how more than a dozen men unwittingly ended up on the front line in Russia’s war on Ukraine.`\
 https://nytimes.com/2025/11/29/world/africa/south-africa-russia-ukraine-fighters-zuma.html
-
-**Where Hundreds of Undocumented Migrants Have Died in Custody**\
-`Malaysia launched a “year of enforcement” in response to a surge in undocumented migrants, many of them from Myanmar. Some faced nightmarish fates.`\
-https://nytimes.com/2025/11/29/world/asia/where-hundreds-of-undocumented-migrants-have-died-in-custody.html
 
