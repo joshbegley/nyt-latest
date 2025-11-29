@@ -1,3 +1,15 @@
+**Breaking down USMNT midfielder Tyler Adams' 47.4-yard wonder goal for Bournemouth**\
+`Before today, across 338 games for club and country, Adams had managed just eight goals. He might never score another like the ninth`\
+https://nytimes.com/athletic/6847614/2025/11/29/tyler-adams-halfway-line-goal-usmnt-premier-league/
+
+**The Briefing: Everton 1 Newcastle 4 - How big is first away win? Has Miley played himself into Howe's XI?**\
+`Eddie Howe's side had not won away in the Premier League for nine games, a record dating back to April, before this convincing victory`\
+https://nytimes.com/athletic/6842205/2025/11/29/briefing-everton-1-newcastle-4/
+
+**Oscar Piastri beats Lando Norris for Qatar GP pole with F1 championship at stake**\
+`Norris needs to win the grand prix to clinch his first F1 championship, but qualifying has left him a tough task`\
+https://nytimes.com/athletic/6847699/2025/11/29/qatar-gp-qualifying-results/
+
 **The Grand Ole Opry Toasts a Century and Considers What’s Next**\
 `A hundred years after it first went live, Nashville’s famed country music show celebrated its history with a series of performances.`\
 https://nytimes.com/2025/11/29/us/grand-ole-opry-100th-anniversary.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/11/29/theater/tom-stoppard-dead.html
 **Arizona's defeat of rival Arizona State highlights remarkable reversal under Brent Brennan**\
 `The red-hot Wildcats forced five turnovers, robbing Arizona State of a spot in the Big 12 title game.`\
 https://nytimes.com/athletic/6846812/2025/11/29/arizona-arizona-state-score-territorial-cup-brent-brennan/
-
-**Mourners Line Up to Honor Victims of Hong Kong’s Deadliest Fire in Decades**\
-`The police said they expected the death toll of 128 to rise as the authorities began combing through the charred apartment towers.`\
-https://nytimes.com/2025/11/29/world/asia/mourners-hong-kong-fire.html
-
-**Kim Mulkey, LSU set NCAA record with 7-straight 100-point games**\
-`Friday's win over Marist broke a record set by Mulkey's 1982 Lousiana Tech team. `\
-https://nytimes.com/athletic/6847424/2025/11/29/kim-mulkey-lsu-set-ncaa-record-with-7-straight-100-point-games/
-
-**How to watch Sabres vs. Wild: Time, TV, streaming**\
-`Find out how to watch the Buffalo Sabres play the Minnesota Wild, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6847639/2025/11/29/sabres-vs-wild-stream-how-to-watch-nov-29/
 
