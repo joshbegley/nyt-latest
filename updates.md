@@ -1,3 +1,7 @@
+**In Firing His No. 2, Zelensky Loses Both a Negotiator and an Enforcer**\
+`Andriy Yermak had ensured internal discipline in Ukraine’s wartime politics. He also led the country’s peace negotiations, which now must go on without him.`\
+https://nytimes.com/2025/11/29/world/europe/zelensky-yermak-ukraine.html
+
 **Simon Cowell Is Sorry, Softer and Grieving Liam Payne**\
 `Summary TK; should be hidden on the body of the article itself.`\
 https://nytimes.com/2025/11/29/magazine/simon-cowell-interview.html
