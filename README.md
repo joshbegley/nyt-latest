@@ -1,3 +1,7 @@
+**Kim Mulkey, LSU set NCAA record with 7-straight 100-point games**\
+`Friday's win over Marist broke a record set by Mulkey's 1982 Lousiana Tech team. `\
+https://nytimes.com/athletic/6847424/2025/11/29/kim-mulkey-lsu-set-ncaa-record-with-7-straight-100-point-games/
+
 **How to watch Sabres vs. Wild: Time, TV, streaming**\
 `Find out how to watch the Buffalo Sabres play the Minnesota Wild, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6847639/2025/11/29/sabres-vs-wild-stream-how-to-watch-nov-29/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6847625/2025/11/29/maple-leafs-vs-penguins-stream-h
 **How to watch Nets vs. Bucks: Time, TV, streaming**\
 `Find out how to watch the Brooklyn Nets play the Milwaukee Bucks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6847623/2025/11/29/nets-vs-bucks-stream-how-to-watch-nov-29/
-
-**How to watch Raptors vs. Hornets: Time, TV, streaming**\
-`Find out how to watch the Toronto Raptors play the Charlotte Hornets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6847621/2025/11/29/raptors-vs-hornets-stream-how-to-watch-nov-29/
 
