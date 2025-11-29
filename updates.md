@@ -1,3 +1,7 @@
+**Lauren Macuga, rising U.S. Alpine skier, will miss Olympic year after training injury**\
+`Macuga was set to be a medal contender at the 2026 Olympics in Cortina d'Ampezzo, Italy.`\
+https://nytimes.com/athletic/6846058/2025/11/28/lauren-macuga-injury-olympics-alpine-skiing/
+
 **At the 25-game mark, how fixable are the Red Wings' issues this season?**\
 `The Red Wings hit the 25-game mark Friday with their third straight loss. Can they fix their defensive problems?`\
 https://nytimes.com/athletic/6845695/2025/11/28/red-wings-lightning-defense-issues/
