@@ -1,3 +1,7 @@
+**Tage Thompson fight not enough in Sabres loss as 'Fire Adams' chants continue: 5 thoughts**\
+`The crowd in Buffalo's 5-0 loss to New Jersey grew hostile toward GM Kevyn Adams and even tried to start a chat about selling the team.`\
+https://nytimes.com/athletic/6846259/2025/11/28/sabres-devils-tage-thompson-fight-kevyn-adams/
+
 **Take It Back!**\
 `Adrian Johnson’s latest themeless puzzle is gritty and graceful.`\
 https://nytimes.com/2025/11/28/crosswords/daily-puzzle-2025-11-29.html
