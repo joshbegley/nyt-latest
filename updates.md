@@ -1,3 +1,7 @@
+**Take It Back!**\
+`Adrian Johnson’s latest themeless puzzle is gritty and graceful.`\
+https://nytimes.com/2025/11/28/crosswords/daily-puzzle-2025-11-29.html
+
 **Georgia is far from perfect — but the ceiling is still a national title**\
 `Even with their flaws, Georgia still has the pieces to make a legitimate run at the national championship.`\
 https://nytimes.com/athletic/6846367/2025/11/28/georgia-takeaways-score-result/
