@@ -1,3 +1,7 @@
+**Northwestern Agrees to Deal With Trump Administration**\
+`The university will pay $75 million to regain its research funding and end investigations, the second highest payment by a school facing pressure from the administration.`\
+https://nytimes.com/2025/11/28/us/politics/northwestern-deal-trump-administration.html
+
 **Eagles' uninspired play in second straight loss threatens another lost season**\
 `The Eagles believe they can fix their mistakes to save the season.`\
 https://nytimes.com/athletic/6845637/2025/11/28/philadelphia-eagles-loss-week-13-threatens-season/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6845695/2025/11/28/red-wings-lightning-defense-issu
 **College Football Playoff 2025 projections: Most likely bracket with Rivalry Week underway**\
 `Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
 https://nytimes.com/athletic/6560541/2025/11/28/college-football-playoff-bracket-projections-odds/
-
-**On historic, Playoff-clinching day for Ole Miss, Egg Bowl triumph meets Lane Kiffin unease**\
-`Never in Ole Miss football history have things been this sweet — but could it be fleeting?`\
-https://nytimes.com/athletic/6846039/2025/11/28/ole-miss-lane-kiffin-decision-egg-bowl/
 

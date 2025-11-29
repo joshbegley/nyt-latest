@@ -1,3 +1,7 @@
+**Northwestern Agrees to Deal With Trump Administration**\
+`The university will pay $75 million to regain its research funding and end investigations, the second highest payment by a school facing pressure from the administration.`\
+https://nytimes.com/2025/11/28/us/politics/northwestern-deal-trump-administration.html
+
 **USWNT's early scoring and brace from Catarina Macario lift team over Italy**\
 `The U.S. scored in the first two minutes of its fifth game this year. Rose Lavelle and Naomi Girma also played key roles in the win.`\
 https://nytimes.com/athletic/6846030/2025/11/28/uswnt-italy-catarina-macario-friendly-score-result/
