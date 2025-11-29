@@ -1,3 +1,11 @@
+**F.D.A. Attributes 10 Children’s Deaths to Covid Vaccines**\
+`The agency’s top vaccine regulator said that a review had found that the children were likely to have died “because of” the shots. But public health experts want to examine the data.`\
+https://nytimes.com/2025/11/28/health/fda-children-deaths-covid-vaccines.html
+
+**Ben Johnson loves smashmouth football. The Bears delivered to stun the Eagles**\
+`The Bears got a signature win, and did so in large part because of the way the offensive line blocked and running backs ran over the Eagles.`\
+https://nytimes.com/athletic/6846378/2025/11/28/bears-running-game-offensive-line-eagles/
+
 **Tage Thompson fight not enough in Sabres loss as 'Fire Adams' chants continue: 5 thoughts**\
 `The crowd in Buffalo's 5-0 loss to New Jersey grew hostile toward GM Kevyn Adams and tried to start a chant about selling the team.`\
 https://nytimes.com/athletic/6846259/2025/11/28/sabres-devils-tage-thompson-fight-kevyn-adams/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6846030/2025/11/28/uswnt-italy-catarina-macario-fri
 **How Wild passed the test in 'measuring-stick' showdown with Avalanche: Takeaways**\
 `The matchup between two of the league’s hottest teams lived up to the hype as Minnesota beat Colorado 3-2 in a shootout.`\
 https://nytimes.com/athletic/6846212/2025/11/28/wild-avalanche-kirill-kaprizov-nathan-mackinnon/
-
-**Two West Virginia Communities Bound Together by Grief**\
-`Red ribbons adorned one city, while blue ribbons hung in another town — all to honor the National Guard members who were attacked in Washington this week.`\
-https://nytimes.com/2025/11/28/us/national-guard-shooting-west-virginia.html
-
-**Islanders' Kyle Palmieri gets injured, makes trick play to set up goal while limping off ice**\
-`On his way to the bench with an injury, Palmieri stole the puck from an unsuspecting defenseman and started an improbable scoring play.`\
-https://nytimes.com/athletic/6846261/2025/11/28/islanders-kyle-palmieri-injury-flyers-assist-goal/
 
