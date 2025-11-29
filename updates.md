@@ -1,3 +1,7 @@
+**NBA Cup quarterfinals preview: Lakers to face Spurs as knockout rounds take shape**\
+`The 2025 NBA Cup quarterfinals are set. What should fans expect? Let's preview each matchup to find out.`\
+https://nytimes.com/athletic/6846620/2025/11/29/2025-nba-cup-quarterfinals-matchups-lakers-knicks-heat/
+
 **The New York Times in Print for Saturday, Nov. 29, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/11/29/todays-new-york-times
