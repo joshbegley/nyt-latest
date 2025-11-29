@@ -1,3 +1,23 @@
+**Lured by Jobs, They Ended Up ‘Going to War’ for Russia**\
+`The South African government is investigating how more than a dozen men unwittingly ended up on the front line in Russia’s war on Ukraine.`\
+https://nytimes.com/2025/11/29/world/africa/south-africa-russia-ukraine-fighters-zuma.html
+
+**Where Hundreds of Undocumented Migrants Have Died in Custody**\
+`Malaysia launched a “year of enforcement” in response to a surge in undocumented migrants, many of them from Myanmar. Some faced nightmarish fates.`\
+https://nytimes.com/2025/11/29/world/asia/where-hundreds-of-undocumented-migrants-have-died-in-custody.html
+
+**Connections: Sports Edition Coach: Hints for Nov. 29, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6846016/2025/11/29/connections-sports-edition-hints-for-nov-29-2025/
+
+**Corrections: Nov. 29, 2025**\
+`Corrections that appeared in print on Saturday, Nov. 29, 2025.`\
+https://nytimes.com/2025/11/29/pageoneplus/corrections-nov-29-2025.html
+
+**Quote of the Day: Middle-Age Ills Can Be Linked To Pregnancies**\
+`Quotation of the Day for Saturday, November 29, 2025.`\
+https://nytimes.com/2025/11/28/pageoneplus/quote-of-the-day-middle-age-ills-can-be-linked-to-pregnancies.html
+
 **The Ducks and Kings are very different teams that share the same goal of winning**\
 `In a Freeway Faceoff clash, one team was onto the start of something and the other was trying to keep their something from reaching its end.`\
 https://nytimes.com/athletic/6846440/2025/11/28/ducks-kings-freeway-faceoff-nhl-california/

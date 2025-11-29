@@ -1,3 +1,23 @@
+**Lured by Jobs, They Ended Up ‘Going to War’ for Russia**\
+`The South African government is investigating how more than a dozen men unwittingly ended up on the front line in Russia’s war on Ukraine.`\
+https://nytimes.com/2025/11/29/world/africa/south-africa-russia-ukraine-fighters-zuma.html
+
+**Where Hundreds of Undocumented Migrants Have Died in Custody**\
+`Malaysia launched a “year of enforcement” in response to a surge in undocumented migrants, many of them from Myanmar. Some faced nightmarish fates.`\
+https://nytimes.com/2025/11/29/world/asia/where-hundreds-of-undocumented-migrants-have-died-in-custody.html
+
+**Connections: Sports Edition Coach: Hints for Nov. 29, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6846016/2025/11/29/connections-sports-edition-hints-for-nov-29-2025/
+
+**Corrections: Nov. 29, 2025**\
+`Corrections that appeared in print on Saturday, Nov. 29, 2025.`\
+https://nytimes.com/2025/11/29/pageoneplus/corrections-nov-29-2025.html
+
+**Quote of the Day: Middle-Age Ills Can Be Linked To Pregnancies**\
+`Quotation of the Day for Saturday, November 29, 2025.`\
+https://nytimes.com/2025/11/28/pageoneplus/quote-of-the-day-middle-age-ills-can-be-linked-to-pregnancies.html
+
 **The Ducks and Kings are very different teams that share the same goal of winning**\
 `In a Freeway Faceoff clash, one team was onto the start of something and the other was trying to keep their something from reaching its end.`\
 https://nytimes.com/athletic/6846440/2025/11/28/ducks-kings-freeway-faceoff-nhl-california/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6846560/2025/11/28/indiana-purdue-score-result-take
 **Blues show 'most desperation of the year' in comeback win over Senators**\
 `The Blues won 4-3 with a three-goal third period, including Pavel Buchnevich's first five-on-five goal of the season.`\
 https://nytimes.com/athletic/6845848/2025/11/28/blues-senators-win-pavel-buchnevich/
-
-**Nick Sirianni backs Kevin Patullo after 'Fire Kevin' chants, boos pepper lackluster offense**\
-`The Eagles' offense is still searching for answers after yet another quiet game.`\
-https://nytimes.com/athletic/6846485/2025/11/28/nick-sirianni-backs-kevin-patullo-eagles-fans-boos/
-
-**Mike Matheson showed in 2 games why the Canadiens want him for 5 more years**\
-`Matheson's adaptability and team-first attitude make him valuable to the Canadiens, and he demonstrated both in two games this week.`\
-https://nytimes.com/athletic/6846432/2025/11/28/mike-matheson-montreal-canadiens-contract-extension/
-
-**The Maple Leafs need to change. What can they do?**\
-`The Leafs' loss to the Capitals was yet another example of how far they have fallen, and how far they look from being a playoff team.`\
-https://nytimes.com/athletic/6846374/2025/11/28/maple-leafs-capitals-craig-berube/
-
-**Giannis Antetokounmpo returned to the Bucks' lineup, but their struggles continue**\
-`For the first time since Nov. 17, Giannis Antetokounmpo suited up for the Bucks, but that wasn't enough to avoid a seventh straight loss`\
-https://nytimes.com/athletic/6846472/2025/11/28/giannis-antetokounpo-injury-update-return-nba-cup/
-
-**NBA Cup group play wraps up on Friday. Stay updated with the results.**\
-`Twelve teams battled for six spots in the NBA Cup's knockout rounds. Check out the results of the most vital matchup.`\
-https://nytimes.com/athletic/6846086/2025/11/28/nba-cup-group-stage-results-magic-knicks-bucks-2025/
 
