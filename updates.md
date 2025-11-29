@@ -1,3 +1,15 @@
+**Texas, and the CFP debate the SEC dreamed of, is alive**\
+`A lot of uncomfortable conversations the CFP committee has been avoiding are about to take center stage.`\
+https://nytimes.com/athletic/6846960/2025/11/29/texas-college-football-playoff-resume-sec/
+
+**England bowler Mark Wood out of second Ashes Test with knee issue**\
+`Wood sat out of training on Saturday and is not expected to be named in the England XI for the day-night Test at the Gabba.`\
+https://nytimes.com/athletic/6846934/2025/11/29/mark-wood-ashes-injury-test/
+
+**'Learn the hard way.' How Oscar Piastri has dealt with blowing his 2025 points lead**\
+`For much of the season Oscar Piastri was the favorite to win F1 2025. Then his points lead vanished`\
+https://nytimes.com/athletic/6846924/2025/11/29/oscar-piastri-f1-points-lead-loss/
+
 **How to watch Lightning vs. Rangers: Time, TV, streaming**\
 `Find out how to watch the Tampa Bay Lightning play the New York Rangers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6846966/2025/11/29/lightning-vs-rangers-stream-how-to-watch-nov-29/
