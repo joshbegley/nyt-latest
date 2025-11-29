@@ -1,3 +1,7 @@
+**In return to Mavs lineup, Anthony Davis watches former teammate Austin Reaves put on a show**\
+`Davis had 12 points and five rebounds in his return from injury against Dončić and the Lakers.`\
+https://nytimes.com/athletic/6846859/2025/11/29/anthony-davis-dallas-mavericks-lakers/
+
 **How to watch Canadiens vs. Avalanche: Time, TV, streaming**\
 `Find out how to watch the Montreal Canadiens play the Colorado Avalanche, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6847236/2025/11/29/canadiens-vs-avalanche-stream-how-to-watch-nov-29/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6847209/2025/11/29/east-tennessee-state-vs-louisvil
 **How to watch Norfolk State vs. Arizona men's basketball: Time, TV, streaming**\
 `Find out how to watch the Norfolk State Spartans play the Arizona Wildcats, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6847207/2025/11/29/norfolk-state-vs-arizona-stream-how-to-watch-nov-29/
-
-**The Pulse: Football storylines dot Black Friday**\
-`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
-https://nytimes.com/athletic/6846637/2025/11/29/lane-watch-texas-and-a-surprising-bears-win-dot-a-wild-black-friday/
 
