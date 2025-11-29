@@ -1,3 +1,7 @@
+**‘I’ve Never Eaten, Let Alone Made, a Better Sugar Cookie’**\
+`Readers love Samantha Seneviratne’s soft and chewy sugar cookies, and so do I.`\
+https://nytimes.com/2025/11/29/dining/ive-never-eaten-let-alone-made-a-better-sugar-cookie.html
+
 **Meet the unorthodox mind behind San Jose State's innovative 'spread and shred' offense**\
 `Spartans' Craig Stutzmann has taken elements of run-and-shoot, veer-and-shoot and RPO to create a defense's worst nightmare.`\
 https://nytimes.com/athletic/6841619/2025/11/29/san-jose-state-football-spread-and-shred-offense/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6847217/2025/11/29/qatar-gp-sprint-race-results/
 **Trump Declares Venezuelan Airspace Closed**\
 `President Trump said days earlier that the United States could “very soon” expand its campaign of killing people at sea suspected of drug trafficking to attacking Venezuelan territory.`\
 https://nytimes.com/2025/11/29/us/politics/trump-venezuela-maduro-airspace.html
-
-**SailGP season finale: Spain falters, Kiwi driver back racing after severing finger**\
-`Two fleet races will be held on Sunday before the championship-deciding Grand Final`\
-https://nytimes.com/athletic/6847139/2025/11/29/abu-dhabi-sail-grand-prix-day-one-results/
 
