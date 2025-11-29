@@ -1,3 +1,15 @@
+**F.D.A. Attributes 10 Children’s Deaths to Covid Vaccines**\
+`The agency’s top vaccine regulator said that a review had found that the children were likely to have died “because of” the shots. But public health experts want to examine the data.`\
+https://nytimes.com/2025/11/28/health/fda-children-deaths-covid-vaccines.html
+
+**Ben Johnson loves smashmouth football. The Bears delivered to stun the Eagles**\
+`The Bears got a signature win, and did so in large part because of the way the offensive line blocked and running backs ran over the Eagles.`\
+https://nytimes.com/athletic/6846378/2025/11/28/bears-running-game-offensive-line-eagles/
+
+**Tage Thompson fight not enough in Sabres loss as 'Fire Adams' chants continue: 5 thoughts**\
+`The crowd in Buffalo's 5-0 loss to New Jersey grew hostile toward GM Kevyn Adams and tried to start a chant about selling the team.`\
+https://nytimes.com/athletic/6846259/2025/11/28/sabres-devils-tage-thompson-fight-kevyn-adams/
+
 **Tage Thompson fight not enough in Sabres loss as 'Fire Adams' chants continue: 5 thoughts**\
 `The crowd in Buffalo's 5-0 loss to New Jersey grew hostile toward GM Kevyn Adams and even tried to start a chat about selling the team.`\
 https://nytimes.com/athletic/6846259/2025/11/28/sabres-devils-tage-thompson-fight-kevyn-adams/

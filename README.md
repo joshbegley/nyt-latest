@@ -1,3 +1,7 @@
+**NBA Cup group play wraps up on Friday. Stay updated with the results.**\
+`Twelve teams battled for six spots in the NBA Cup's knockout rounds. Check out the results of the most vital matchup.`\
+https://nytimes.com/athletic/6846086/2025/11/28/nba-cup-group-stage-results-magic-knicks-bucks-2025/
+
 **F.D.A. Attributes 10 Children’s Deaths to Covid Vaccines**\
 `The agency’s top vaccine regulator said that a review had found that the children were likely to have died “because of” the shots. But public health experts want to examine the data.`\
 https://nytimes.com/2025/11/28/health/fda-children-deaths-covid-vaccines.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6845637/2025/11/28/philadelphia-eagles-loss-week-13
 **USWNT's early scoring and brace from Catarina Macario lift team over Italy**\
 `The U.S. scored in the first two minutes of its fifth game this year. Rose Lavelle and Naomi Girma also played key roles in the win.`\
 https://nytimes.com/athletic/6846030/2025/11/28/uswnt-italy-catarina-macario-friendly-score-result/
-
-**How Wild passed the test in 'measuring-stick' showdown with Avalanche: Takeaways**\
-`The matchup between two of the league’s hottest teams lived up to the hype as Minnesota beat Colorado 3-2 in a shootout.`\
-https://nytimes.com/athletic/6846212/2025/11/28/wild-avalanche-kirill-kaprizov-nathan-mackinnon/
 
