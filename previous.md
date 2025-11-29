@@ -1,3 +1,7 @@
+**Shirtless Ben Johnson gets Chicago fans free hot dogs following Bears' win vs. Eagles**\
+`A popular hot dog joint in Chicago promised free hot dogs if the Bears won and Ben Johnson took of his shirt. Both delivered.`\
+https://nytimes.com/athletic/6846119/2025/11/28/ben-johnson-shirt-off-bears-chicago-hot-dog/
+
 **Lauren Macuga, rising U.S. Alpine skier, will miss Olympic year after training injury**\
 `Macuga was set to be a medal contender at the 2026 Olympics in Cortina d'Ampezzo, Italy.`\
 https://nytimes.com/athletic/6846058/2025/11/28/lauren-macuga-injury-olympics-alpine-skiing/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6846000/2025/11/28/seattle-torrent-womens-hockey-at
 **The Warriors are glad to know Steph Curry's quad injury could've been worse**\
 `The Warriors announced Thursday that Curry would be re-evaluated in a week.`\
 https://nytimes.com/athletic/6845964/2025/11/28/warriors-kerr-update-curry-kuminga-melton-nba/
-
-**Rangers respond well to momentum swings in Boston, plus other thoughts**\
-`It wasn’t a full 60-minute effort from New York, but it was enough for the team to beat Boston 6-2 and win its third in a row.`\
-https://nytimes.com/athletic/6845913/2025/11/28/rangers-bruins-vincent-trocheck-mika-zibanejad/
 

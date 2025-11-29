@@ -1,3 +1,7 @@
+**Shirtless Ben Johnson gets Chicago fans free hot dogs following Bears' win vs. Eagles**\
+`A popular hot dog joint in Chicago promised free hot dogs if the Bears won and Ben Johnson took of his shirt. Both delivered.`\
+https://nytimes.com/athletic/6846119/2025/11/28/ben-johnson-shirt-off-bears-chicago-hot-dog/
+
 **Lauren Macuga, rising U.S. Alpine skier, will miss Olympic year after training injury**\
 `Macuga was set to be a medal contender at the 2026 Olympics in Cortina d'Ampezzo, Italy.`\
 https://nytimes.com/athletic/6846058/2025/11/28/lauren-macuga-injury-olympics-alpine-skiing/
