@@ -1,3 +1,7 @@
+**Marc Cucurella is crucial for Chelsea - and enjoying the best spell of his career**\
+`Marc Cucurella has been important to Chelsea both on and off the pitch`\
+https://nytimes.com/athletic/6844781/2025/11/29/marc-cucurella-chelse-analysis/
+
 **Lured by Jobs, They Ended Up ‘Going to War’ for Russia**\
 `The South African government is investigating how more than a dozen men unwittingly ended up on the front line in Russia’s war on Ukraine.`\
 https://nytimes.com/2025/11/29/world/africa/south-africa-russia-ukraine-fighters-zuma.html
@@ -19,7 +23,7 @@ https://nytimes.com/2025/11/29/pageoneplus/corrections-nov-29-2025.html
 https://nytimes.com/2025/11/28/pageoneplus/quote-of-the-day-middle-age-ills-can-be-linked-to-pregnancies.html
 
 **The Ducks and Kings are very different teams that share the same goal of winning**\
-`In a Freeway Faceoff clash, one team was onto the start of something and the other was trying to keep their something from reaching its end.`\
+`In a Freeway Faceoff clash, one team was on to the start of something and the other was trying to keep its something from reaching an end`\
 https://nytimes.com/athletic/6846440/2025/11/28/ducks-kings-freeway-faceoff-nhl-california/
 
 **Texas spoiled Texas A&M's undefeated season, SEC title hopes. Will win also get Horns into Playoff?**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6560541/2025/11/28/college-football-playoff-bracket
 **Indiana completes first undefeated season since 1945 with rout of Purdue**\
 `The Hoosiers also secure a spot in the Big Ten title game for the first time in program history.`\
 https://nytimes.com/athletic/6846560/2025/11/28/indiana-purdue-score-result-takeaways/
-
-**Blues show 'most desperation of the year' in comeback win over Senators**\
-`The Blues won 4-3 with a three-goal third period, including Pavel Buchnevich's first five-on-five goal of the season.`\
-https://nytimes.com/athletic/6845848/2025/11/28/blues-senators-win-pavel-buchnevich/
 

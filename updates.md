@@ -1,3 +1,11 @@
+**Marc Cucurella is crucial for Chelsea - and enjoying the best spell of his career**\
+`Marc Cucurella has been important to Chelsea both on and off the pitch`\
+https://nytimes.com/athletic/6844781/2025/11/29/marc-cucurella-chelse-analysis/
+
+**The Ducks and Kings are very different teams that share the same goal of winning**\
+`In a Freeway Faceoff clash, one team was on to the start of something and the other was trying to keep its something from reaching an end`\
+https://nytimes.com/athletic/6846440/2025/11/28/ducks-kings-freeway-faceoff-nhl-california/
+
 **Lured by Jobs, They Ended Up ‘Going to War’ for Russia**\
 `The South African government is investigating how more than a dozen men unwittingly ended up on the front line in Russia’s war on Ukraine.`\
 https://nytimes.com/2025/11/29/world/africa/south-africa-russia-ukraine-fighters-zuma.html
