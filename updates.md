@@ -1,3 +1,7 @@
+**The Grand Ole Opry Toasts a Century and Considers What’s Next**\
+`A hundred years after it first went live, Nashville’s famed country music show celebrated its history with a series of performances.`\
+https://nytimes.com/2025/11/29/us/grand-ole-opry-100th-anniversary.html
+
 **Ranking college football's 10 open coaching jobs: LSU No. 1; Auburn or Arkansas?**\
 `This could be the most active coaching carousel college football has seen in many years.`\
 https://nytimes.com/athletic/6662286/2025/11/29/college-football-open-coaching-jobs-rankings/
