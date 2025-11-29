@@ -1,3 +1,7 @@
+**Leeds' Farke wants authorities to prevent players from feigning injuries**\
+`Farke did not feel City gaining a tactical advantage after goalkeeper Donnarumma feigned an injury was in the right spirit of fair play.`\
+https://nytimes.com/athletic/6847799/2025/11/29/leeds-man-city-news-premier-league-donnarumma/
+
 **Targeting Venezuela and Pardoning Honduran Ex-President, Trump Contradicts Himself**\
 `President Trump’s statements on social media less than 24 hours apart showed the dissonance in his campaign against drug trafficking.`\
 https://nytimes.com/2025/11/29/us/politics/trump-honduras-venezuela.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6662286/2025/11/29/college-football-open-coaching-j
 **Kevon Looney returns to the Bay, where the former Warriors pillar won't be forgotten**\
 `Looney's style made him a key part of three Warriors titles. On Saturday, he comes back to the Bay, this time as a member of the Pelicans.`\
 https://nytimes.com/athletic/6846730/2025/11/29/kevon-looney-golden-state-warriors-bay-area-pelicans/
-
-**Gazans Say Israeli Forces Killed Two Children, Amid Persistent Violence**\
-`The Israeli military said it had fired on two “suspects” on Saturday who had crossed cease-fire lines in southern Gaza and did not comment on reports that they were young children.`\
-https://nytimes.com/2025/11/29/world/middleeast/israeli-forces-gaza-children-attack.html
 
