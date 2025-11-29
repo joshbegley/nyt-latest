@@ -1,3 +1,7 @@
+**Trump Announces Pardon for Honduran Ex-President Convicted in Drug Case**\
+`President Trump said he would pardon Juan Orlando Hernández, who prosecutors said had received millions in bribes and had partnered with cocaine traffickers as Honduras’s president. He is serving 45 years in prison.`\
+https://nytimes.com/2025/11/28/world/americas/trump-pardon-honduras-hernandez.html
+
 **Islanders' Kyle Palmieri gets injured, makes trick play to set up goal while limping off ice**\
 `On his way to the bench with an injury, Palmieri stole the puck from an unsuspecting defenseman and started an improbable scoring play.`\
 https://nytimes.com/athletic/6846261/2025/11/28/islanders-kyle-palmieri-injury-flyers-assist-goal/

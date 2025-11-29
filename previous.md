@@ -31,7 +31,7 @@ https://nytimes.com/2025/11/28/us/politics/trump-affirmative-asylum.html
 https://nytimes.com/athletic/6845867/2025/11/28/bears-eagles-black-friday-score-result-takeaways/
 
 **Trump Announces Pardon for Honduran Ex-President Convicted in Drug Case**\
-`President Trump said he would pardon Juan Orlando Hernández, who prosecutors said partnered with cocaine traffickers as Honduras’s president and is serving a 45-year sentence.`\
+`President Trump said he would pardon Juan Orlando Hernández, who prosecutors said had received millions in bribes and had partnered with cocaine traffickers as Honduras’s president. He is serving 45 years in prison.`\
 https://nytimes.com/2025/11/28/world/americas/trump-pardon-honduras-hernandez.html
 
 **PWHL's Torrent break U.S. attendance record for pro women’s hockey game**\
