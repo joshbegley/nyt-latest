@@ -1,3 +1,7 @@
+**Simon Cowell Is Sorry, Softer and Grieving Liam Payne**\
+`Summary TK; should be hidden on the body of the article itself.`\
+https://nytimes.com/2025/11/29/magazine/simon-cowell-interview.html
+
 **Meet the Millionaire Masters of Early Decision at Colleges**\
 `The enrollment chiefs at Tulane and the University of Chicago attracted many early applicants. Now both of them earn a lot of money.`\
 https://nytimes.com/2025/11/29/business/tulane-university-chicago-early-decision.html
