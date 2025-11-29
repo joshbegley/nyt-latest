@@ -1,3 +1,7 @@
+**Reliever Ryan Helsley signs 2-year, $28 million deal with Orioles: Source**\
+`Helsley's deal with Baltimore includes a player opt-out after the first season.`\
+https://nytimes.com/athletic/6840108/2025/11/29/ryan-helsley-orioles-free-agent-contract/
+
 **Ohio State ends Michigan angst, cruises to Big Ten title game: Key takeaways**\
 `No. 1 Ohio State pulled away from No. 15 Michigan 27-9, its first rivalry win since 2019 to knock the Wolverines out of the CFP chase.`\
 https://nytimes.com/athletic/6847775/2025/11/29/ohio-state-michigan-football-score-result/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6847799/2025/11/29/leeds-man-city-news-premier-leag
 **Targeting Venezuela and Pardoning Honduran Ex-President, Trump Contradicts Himself**\
 `President Trump’s statements on social media less than 24 hours apart showed the dissonance in his campaign against drug trafficking.`\
 https://nytimes.com/2025/11/29/us/politics/trump-honduras-venezuela.html
-
-**L.A. Man Is Charged With Stopping Freeway Traffic to Film Music Video**\
-`The closure happened in 2023, prosecutors said. As part of the video, drivers conducted doughnuts around a performer, who was charged with conspiracy to commit exhibition of speed.`\
-https://nytimes.com/2025/11/29/us/los-angeles-man-110-freeway-music-video.html
 
