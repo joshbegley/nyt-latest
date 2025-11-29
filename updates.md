@@ -1,3 +1,7 @@
+**Russia Bombards Ukraine for Nearly 10 Hours in a Deadly Assault**\
+`The attack came as U.S. officials were expected to hold peace talks with Ukrainian and Russian officials in the coming days.`\
+https://nytimes.com/2025/11/29/world/europe/ukraine-kyiv-missiles.html
+
 **As Cyclone Deaths Pass 120, Sri Lanka Is Overwhelmed by Rescue Demand**\
 `Rescue efforts across the nation of 23 million have been hampered by disruptions in transport and telecommunications.`\
 https://nytimes.com/2025/11/29/world/asia/sri-lanka-cyclone-ditwah-floods.html
