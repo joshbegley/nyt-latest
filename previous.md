@@ -1,3 +1,7 @@
+**Kevon Looney returns to the Bay, where the former Warriors pillar won't be forgotten**\
+`Looney's style made him a key part of three Warriors titles. On Saturday, he comes back to the Bay, this time as a member of the Pelicans.`\
+https://nytimes.com/athletic/6846730/2025/11/29/kevon-looney-golden-state-warriors-bay-area-pelicans/
+
 **Gazans Say Israeli Forces Killed Two Children, Amid Persistent Violence**\
 `The Israeli military said it had fired on two “suspects” on Saturday who had crossed cease-fire lines in southern Gaza and did not comment on reports that they were young children.`\
 https://nytimes.com/2025/11/29/world/middleeast/israeli-forces-gaza-children-attack.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6847637/2025/11/29/jets-vs-predators-stream-how-to-
 **How to watch Red Wings vs. Bruins: Time, TV, streaming**\
 `Find out how to watch the Detroit Red Wings play the Boston Bruins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6847634/2025/11/29/red-wings-vs-bruins-stream-how-to-watch-nov-29/
-
-**How to watch Flyers vs. Devils: Time, TV, streaming**\
-`Find out how to watch the Philadelphia Flyers play the New Jersey Devils, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6847635/2025/11/29/flyers-vs-devils-stream-how-to-watch-nov-29/
 
