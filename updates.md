@@ -1,3 +1,7 @@
+**Frank criticises 'unacceptable' Vicario booing: 'They can't be true fans'**\
+`The booing came after Viacrio was at fault for Fulham's second goal, leading to Spurs' third defeat in seven days.`\
+https://nytimes.com/athletic/6848041/2025/11/29/tottenham-vicario-frank-booing-fans-fulham/
+
 **The Language of Tom Stoppard, Ablaze With Energy and Urgency**\
 `In works like “Travesties” and “Arcadia,” the playwright embraced the really big questions and wrestled words into coherent, exhilarating shape.`\
 https://nytimes.com/2025/11/29/theater/the-language-of-tom-stoppard-ablaze-with-energy-and-urgency.html
