@@ -1,3 +1,7 @@
+**In Announcing Pardon of Drug Trafficker While Threatening Venezuela, Trump Displays Contradictions**\
+`President Trump’s statements on social media less than 24 hours apart showed the dissonance in his campaign against drug trafficking.`\
+https://nytimes.com/2025/11/29/us/politics/trump-honduras-venezuela.html
+
 **Reliever Ryan Helsley signs 2-year, $28 million deal with Orioles: Source**\
 `Helsley's deal with Baltimore includes a player opt-out after the first season.`\
 https://nytimes.com/athletic/6840108/2025/11/29/ryan-helsley-orioles-free-agent-contract/
