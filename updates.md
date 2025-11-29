@@ -1,3 +1,19 @@
+**Georgia heading to SEC championship game with Texas A&M's loss**\
+`The Bulldogs' opponent depends on whether Alabama beats Auburn on Saturday night.`\
+https://nytimes.com/athletic/6846634/2025/11/29/georgia-sec-championship-game-opponents/
+
+**State Department Boosts Resources to Process Business Visas for South Koreans**\
+`The Trump administration has been trying to repair the damage from the detention of hundreds of South Koreans in an immigration raid in Georgia.`\
+https://nytimes.com/2025/11/29/us/politics/state-dept-south-korea-visas.html
+
+**What Liverpool's goals conceded tell us about their defensive problems**\
+`Andy Jones watches back all of the goals Liverpool have conceded this season to find causes of their defensive issues`\
+https://nytimes.com/athletic/6844675/2025/11/29/liverpool-goals-conceded-defensive-problems/
+
+**How should Tottenham Hotspur line up for tonight's match vs Fulham?**\
+`The visit of Fulham to Tottenham Hotspur Stadium on Saturday evening will put the emphasis on Spurs to attack`\
+https://nytimes.com/athletic/6845567/2025/11/29/spurs-line-up-fulham/
+
 **Declan Rice, Moises Caicedo and Enzo Fernandez are proof that £100m transfers can work**\
 `History suggests the best way to spend big money is on an emerging all-round midfielder – young enough to be shaped into what a club needs`\
 https://nytimes.com/athletic/6842793/2025/11/29/rice-caicedo-fernandez-value-arsenal-chelsea/
