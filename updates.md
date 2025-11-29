@@ -1,3 +1,7 @@
+**Kim Mulkey, LSU set NCAA record with 7-straight 100-point games**\
+`Friday's win over Marist broke a record set by Mulkey's 1982 Lousiana Tech team. `\
+https://nytimes.com/athletic/6847424/2025/11/29/kim-mulkey-lsu-set-ncaa-record-with-7-straight-100-point-games/
+
 **How to watch Sabres vs. Wild: Time, TV, streaming**\
 `Find out how to watch the Buffalo Sabres play the Minnesota Wild, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6847639/2025/11/29/sabres-vs-wild-stream-how-to-watch-nov-29/
