@@ -1,3 +1,7 @@
+**Indiana finishes first undefeated season in program history with rout of Purdue**\
+`The Hoosiers also secure a spot in the Big Ten title game for the first time in program history.`\
+https://nytimes.com/athletic/6846560/2025/11/28/indiana-purdue-score-result-takeaways/
+
 **Blues show 'most desperation of the year' in comeback win over Senators**\
 `The Blues won 4-3 with a three-goal third period, including Pavel Buchnevich's first five-on-five goal of the season.`\
 https://nytimes.com/athletic/6845848/2025/11/28/blues-senators-win-pavel-buchnevich/
