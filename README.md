@@ -1,3 +1,7 @@
+**Ranking college football's 10 open coaching jobs: LSU No. 1; Auburn or Arkansas?**\
+`This could be the most active coaching carousel college football has seen in many years.`\
+https://nytimes.com/athletic/6662286/2025/11/29/college-football-open-coaching-jobs-rankings/
+
 **Kevon Looney returns to the Bay, where the former Warriors pillar won't be forgotten**\
 `Looney's style made him a key part of three Warriors titles. On Saturday, he comes back to the Bay, this time as a member of the Pelicans.`\
 https://nytimes.com/athletic/6846730/2025/11/29/kevon-looney-golden-state-warriors-bay-area-pelicans/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6847639/2025/11/29/sabres-vs-wild-stream-how-to-wat
 **How to watch Jets vs. Predators: Time, TV, streaming**\
 `Find out how to watch the Winnipeg Jets play the Nashville Predators, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6847637/2025/11/29/jets-vs-predators-stream-how-to-watch-nov-29/
-
-**How to watch Red Wings vs. Bruins: Time, TV, streaming**\
-`Find out how to watch the Detroit Red Wings play the Boston Bruins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6847634/2025/11/29/red-wings-vs-bruins-stream-how-to-watch-nov-29/
 
