@@ -1,3 +1,35 @@
+**Inside the ‘Morgue’ at The New York Times**\
+`Take a tour of the newspaper’s vast archive.`\
+https://nytimes.com/2025/11/29/podcasts/the-daily/inside-the-morgue-at-the-new-york-times.html
+
+**I’m a Concert Pianist. This Is Why I Seek Imperfection.**\
+`It is not only classical musicians who are being stunted by the search for perfection. It is harming many aspects of our lives and sectors of our society.`\
+https://nytimes.com/2025/11/29/opinion/pianist-music-performance-perfection.html
+
+**Project NICU Helps Parents Manage a Rough Start to Parenthood**\
+`The organization provides critical support to families of sick newborns, making a lonely and devastating experience a little less so.`\
+https://nytimes.com/2025/11/29/opinion/charity-holiday-gift-nicu-parents.html
+
+**Nature Will Bounce Back if We Just Give It a Chance**\
+`Although nature is sometimes very fragile, decades of conservation rhetoric have perhaps overstated that fragility.`\
+https://nytimes.com/2025/11/29/opinion/salmon-california-oregon-nature-resilience.html
+
+**I Was Once a Broken Reader. I Found My Way Back to Books.**\
+`I needed to stop thinking that I knew more than the author and give in to whatever ride they had spent years planning.`\
+https://nytimes.com/2025/11/29/opinion/reading-difficulty-novels-books.html
+
+**Grading every NHL team at the quarter mark of the season**\
+`From F to A+ to everything in between, The Athletic's NHL staff hands out grades to every team based on its season so far.`\
+https://nytimes.com/athletic/6844093/2025/11/29/nhl-quarter-season-grades-report-cards/
+
+**Why I Love Reading Other People’s Old Diaries**\
+`In a world taken over by the digital, hard-copy, handwritten diaries are a way to fight back.`\
+https://nytimes.com/2025/11/29/opinion/diaries-writing-ai.html
+
+**The Education Department’s Forgotten Antiracist Origins**\
+`The U.S. first had a federal education department in 1867 — not 1979. Its history is critical in understanding the federal role in schools.`\
+https://nytimes.com/2025/11/29/opinion/education-department-trump-antiracist.html
+
 **Texas, and the CFP debate the SEC dreamed of, is alive**\
 `A lot of uncomfortable conversations the CFP committee has been avoiding are about to take center stage.`\
 https://nytimes.com/athletic/6846960/2025/11/29/texas-college-football-playoff-resume-sec/
@@ -5,36 +37,4 @@ https://nytimes.com/athletic/6846960/2025/11/29/texas-college-football-playoff-r
 **England's Mark Wood out of second Ashes Test after suffering pain in knee**\
 `Wood sat out of training on Saturday and is not expected to be named in the England XI for the day-night Test at the Gabba.`\
 https://nytimes.com/athletic/6846934/2025/11/29/mark-wood-ashes-injury-test/
-
-**'Learn the hard way.' How Oscar Piastri has dealt with blowing his 2025 points lead**\
-`For much of the season Oscar Piastri was the favorite to win F1 2025. Then his points lead vanished`\
-https://nytimes.com/athletic/6846924/2025/11/29/oscar-piastri-f1-points-lead-loss/
-
-**How to watch Lightning vs. Rangers: Time, TV, streaming**\
-`Find out how to watch the Tampa Bay Lightning play the New York Rangers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6846966/2025/11/29/lightning-vs-rangers-stream-how-to-watch-nov-29/
-
-**How to watch BYU vs. Vanderbilt women's basketball: Time, TV, streaming**\
-`Find out how to watch the BYU Cougars play the Vanderbilt Commodores, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6846964/2025/11/29/byu-vs-vanderbilt-stream-how-to-watch-nov-29/
-
-**How to watch North Carolina vs. Columbia women's basketball: Time, TV, streaming**\
-`Find out how to watch the North Carolina Tar Heels play the Columbia Lions, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6846962/2025/11/29/north-carolina-vs-columbia-stream-how-to-watch-nov-29/
-
-**Highlight Reel**\
-`As the year comes to a close, we want to know your highly specific, idiosyncratic bests of 2025.`\
-https://nytimes.com/2025/11/29/briefing/highlight-reel.html
-
-**Sidney Crosby, Bryan Rust power Penguins to comeback victory: 10 observations**\
-`Crosby scored twice to extend the game to overtime, and Kris Letang won it for the Penguins in Columbus.`\
-https://nytimes.com/athletic/6846451/2025/11/29/penguins-blue-jackets-sidney-crosby-bryan-rust/
-
-**After poor showing against Preds, we're about to learn something about Blackhawks**\
-`How will Chicago handle its first real adversity since an impressive first quarter of the season raised expectations?`\
-https://nytimes.com/athletic/6846622/2025/11/29/chicago-blackhawks-predators-winless-streak/
-
-**Brady Tkachuk shows no rust in return, and his placement gives Sens an option**\
-`Tkachuk registered a team-leading eight shots in 17:12 of ice time in a 4-3 loss against the Blues on Friday.`\
-https://nytimes.com/athletic/6845837/2025/11/29/ottawa-senators-brady-tkachuk-returns-blues/
 
