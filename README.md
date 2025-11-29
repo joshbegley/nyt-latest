@@ -1,3 +1,11 @@
+**Ohio State ends Michigan angst, cruises to Big Ten title game: Key takeaways**\
+`No. 1 Ohio State pulled away from No. 15 Michigan 27-9, its first rivalry win since 2019 to knock the Wolverines out of the CFP chase.`\
+https://nytimes.com/athletic/6847775/2025/11/29/ohio-state-michigan-football-score-result/
+
+**Several Arrested as Protesters Block Federal Agents in Manhattan Garage**\
+`The confrontation appeared to foil a possible ICE raid nearby, underscoring the numerous challenges the federal government faces in trying to stage raids in a dense city like New York.`\
+https://nytimes.com/2025/11/29/nyregion/ice-raids-protests-nyc.html
+
 **How to watch Pelicans vs. Warriors: Time, TV, streaming**\
 `Find out how to watch the New Orleans Pelicans play the Golden State Warriors, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6847859/2025/11/29/pelicans-vs-warriors-stream-how-to-watch-nov-29/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/29/us/politics/trump-honduras-venezuela.html
 **L.A. Man Is Charged With Stopping Freeway Traffic to Film Music Video**\
 `The closure happened in 2023, prosecutors said. As part of the video, drivers conducted doughnuts around a performer, who was charged with conspiracy to commit exhibition of speed.`\
 https://nytimes.com/2025/11/29/us/los-angeles-man-110-freeway-music-video.html
-
-**Colleen Jones, Curling Champion and Broadcaster, Dies at 65**\
-`She won two world titles and six Canadian national championships, and was also a television anchor, reporter and commentator.`\
-https://nytimes.com/2025/11/29/sports/colleen-jones-dead.html
-
-**Breaking down USMNT midfielder Tyler Adams' 47.4-yard wonder goal for Bournemouth**\
-`Before today, across 338 games for club and country, Adams had managed just eight goals. He might never score another like the ninth`\
-https://nytimes.com/athletic/6847614/2025/11/29/tyler-adams-halfway-line-goal-usmnt-premier-league/
 
