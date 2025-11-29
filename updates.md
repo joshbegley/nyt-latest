@@ -1,3 +1,15 @@
+**Mike Matheson showed in 2 games why the Canadiens want him around the next 5 years**\
+`Matheson's adaptability and team-first attitude make him valuable to the Canadiens, and he demonstrated both in two games this week.`\
+https://nytimes.com/athletic/6846432/2025/11/28/mike-matheson-montreal-canadiens-contract-extension/
+
+**The Maple Leafs need to change. What can they do?**\
+`The Leafs' loss to the Capitals was yet another example of how far they have fallen, and how far they look from being a playoff team.`\
+https://nytimes.com/athletic/6846374/2025/11/28/maple-leafs-capitals-craig-berube/
+
+**Giannis Antetokounmpo returned to the Bucks' lineup, but their struggles continue**\
+`For the first time since Nov. 17, Giannis Antetokounmpo suited up for the Bucks, but that wasn't enough to avoid a seventh straight loss`\
+https://nytimes.com/athletic/6846472/2025/11/28/giannis-antetokounpo-injury-update-return-nba-cup/
+
 **NBA Cup group play wraps up on Friday. Stay updated with the results.**\
 `Twelve teams battled for six spots in the NBA Cup's knockout rounds. Check out the results of the most vital matchup.`\
 https://nytimes.com/athletic/6846086/2025/11/28/nba-cup-group-stage-results-magic-knicks-bucks-2025/
