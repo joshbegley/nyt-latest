@@ -1,3 +1,11 @@
+**Major Winter Storm Dumps Snow Across Midwest and Upends Travel**\
+`More than 1,100 flights were canceled at Chicago airports as the storm disrupted travel for those headed home after Thanksgiving.`\
+https://nytimes.com/2025/11/29/weather/snowstorm-midwest-flights-canceled.html
+
+**Utah Hiker Rescued With His Children Faces Abuse and Torture Charges**\
+`The man was initially hailed for his efforts to protect his daughter, 8, and two sons, 4 and 2, but the authorities concluded that he put them at risk by taking them on perilous terrain.`\
+https://nytimes.com/2025/11/29/us/utah-dad-child-abuse-hike.html
+
 **College Football Playoff 2025 projections: Most likely bracket with Rivalry Week underway**\
 `Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
 https://nytimes.com/athletic/6560541/2025/11/29/college-football-playoff-bracket-projections-odds/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6847857/2025/11/29/nuggets-vs-suns-stream-how-to-wa
 **How to watch Mavericks vs. Clippers: Time, TV, streaming**\
 `Find out how to watch the Dallas Mavericks play the Los Angeles Clippers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6847855/2025/11/29/mavericks-vs-clippers-stream-how-to-watch-nov-29/
-
-**How to watch Sharks vs. Golden Knights: Time, TV, streaming**\
-`Find out how to watch the San Jose Sharks play the Vegas Golden Knights, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6847853/2025/11/29/sharks-vs-golden-knights-stream-how-to-watch-nov-29/
-
-**How to watch Canucks vs. Kings: Time, TV, streaming**\
-`Find out how to watch the Vancouver Canucks play the Los Angeles Kings, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6847851/2025/11/29/canucks-vs-kings-stream-how-to-watch-nov-29/
 
