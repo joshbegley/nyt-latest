@@ -1,3 +1,7 @@
+**Lauren Macuga, rising U.S. Alpine skier, will miss Olympic year after training injury**\
+`Macuga was set to be a medal contender at the 2026 Olympics in Cortina d'Ampezzo, Italy.`\
+https://nytimes.com/athletic/6846058/2025/11/28/lauren-macuga-injury-olympics-alpine-skiing/
+
 **At the 25-game mark, how fixable are the Red Wings' issues this season?**\
 `The Red Wings hit the 25-game mark Friday with their third straight loss. Can they fix their defensive problems?`\
 https://nytimes.com/athletic/6845695/2025/11/28/red-wings-lightning-defense-issues/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6845964/2025/11/28/warriors-kerr-update-curry-kumin
 **Rangers respond well to momentum swings in Boston, plus other thoughts**\
 `It wasn’t a full 60-minute effort from New York, but it was enough for the team to beat Boston 6-2 and win its third in a row.`\
 https://nytimes.com/athletic/6845913/2025/11/28/rangers-bruins-vincent-trocheck-mika-zibanejad/
-
-**Stanford names Washington Commanders assistant Tavita Pritchard as next head coach**\
-`Tavita Pritchard returns to Stanford after playing and working as an assistant for the Cardinal  before joining the Commanders.`\
-https://nytimes.com/athletic/6845960/2025/11/28/stanford-head-coach-tavita-pritchard-washington-commanders-comman/
 
