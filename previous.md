@@ -1,3 +1,7 @@
+**Scoop City: Fantasy tips to win Week 13**\
+`Scoop City Newsletter 🏈 | This is The Athletic’s free NFL newsletter.`\
+https://nytimes.com/athletic/6847322/2025/11/29/everything-fantasy-football-managers-need-to-know-for-week-13/
+
 **Ji'Ayir Brown the latest 49er to bounce into key role in 8-4 start**\
 `The next-man-up mentality is a cliche in the NFL because it’s true, and the 49ers have lived by it this season.`\
 https://nytimes.com/athletic/6846146/2025/11/29/jiayir-brown-49ers-key-role/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6847139/2025/11/29/abu-dhabi-sail-grand-prix-day-on
 **In return to Mavs lineup, Anthony Davis watches former teammate Austin Reaves put on a show**\
 `Davis had 12 points and five rebounds in his return from injury against Dončić and the Lakers.`\
 https://nytimes.com/athletic/6846859/2025/11/29/anthony-davis-dallas-mavericks-lakers/
-
-**How to watch Canadiens vs. Avalanche: Time, TV, streaming**\
-`Find out how to watch the Montreal Canadiens play the Colorado Avalanche, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6847236/2025/11/29/canadiens-vs-avalanche-stream-how-to-watch-nov-29/
 

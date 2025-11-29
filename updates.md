@@ -1,3 +1,7 @@
+**Scoop City: Fantasy tips to win Week 13**\
+`Scoop City Newsletter 🏈 | This is The Athletic’s free NFL newsletter.`\
+https://nytimes.com/athletic/6847322/2025/11/29/everything-fantasy-football-managers-need-to-know-for-week-13/
+
 **Ji'Ayir Brown the latest 49er to bounce into key role in 8-4 start**\
 `The next-man-up mentality is a cliche in the NFL because it’s true, and the 49ers have lived by it this season.`\
 https://nytimes.com/athletic/6846146/2025/11/29/jiayir-brown-49ers-key-role/
