@@ -1,3 +1,15 @@
+**The Pulse: Football storylines dot Black Friday**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6846637/2025/11/29/lane-watch-texas-and-a-surprising-bears-win-dot-a-wild-black-friday/
+
+**The Bears are for real after a signature win in Philly**\
+`The Bears felt every last ounce of satisfaction from Friday's convincing upset of the defending champion Eagles. Now what? `\
+https://nytimes.com/athletic/6846409/2025/11/29/chicago-bears-win-philadelphia/
+
+**Is Broncos' O-line better than unit that helped win Super Bowl 50? Von Miller thinks so**\
+`Sean Payton took over an offensive line in shambles in 2023. Now, with a freshly extended center, it may be one of the NFL's best.`\
+https://nytimes.com/athletic/6842406/2025/11/29/denver-broncos-offensive-line-bolles-meinerz-mcglinchey/
+
 **Austin Reaves, Luka Dončić fuel Lakers' win against Dallas in NBA Cup play**\
 `The Lakers have the NBA's third-best winning percentage — a standard of play having been set early in the year and met routinely.`\
 https://nytimes.com/athletic/6846861/2025/11/29/lakers-lebron-luka-doncic-austin-reaves-mavericks/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/11/29/podcasts/the-daily/inside-the-morgue-at-the-new-y
 **I’m a Concert Pianist. This Is Why I Seek Imperfection.**\
 `It is not only classical musicians who are being stunted by the search for perfection. It is harming many aspects of our lives and sectors of our society.`\
 https://nytimes.com/2025/11/29/opinion/pianist-music-performance-perfection.html
-
-**Project NICU Helps Parents Manage a Rough Start to Parenthood**\
-`The organization provides critical support to families of sick newborns, making a lonely and devastating experience a little less so.`\
-https://nytimes.com/2025/11/29/opinion/charity-holiday-gift-nicu-parents.html
-
-**Nature Will Bounce Back if We Just Give It a Chance**\
-`Although nature is sometimes very fragile, decades of conservation rhetoric have perhaps overstated that fragility.`\
-https://nytimes.com/2025/11/29/opinion/salmon-california-oregon-nature-resilience.html
-
-**I Was Once a Broken Reader. I Found My Way Back to Books.**\
-`I needed to stop thinking that I knew more than the author and give in to whatever ride they had spent years planning.`\
-https://nytimes.com/2025/11/29/opinion/reading-difficulty-novels-books.html
 
