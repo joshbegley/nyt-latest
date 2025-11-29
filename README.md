@@ -1,3 +1,7 @@
+**Eagles' uninspired play in second straight loss threatens another lost season**\
+`The Eagles believe they can fix their mistakes to save the season.`\
+https://nytimes.com/athletic/6845637/2025/11/28/philadelphia-eagles-loss-week-13-threatens-season/
+
 **USWNT's early scoring and brace from Catarina Macario lift team over Italy**\
 `The U.S. scored in the first two minutes of its fifth game this year.`\
 https://nytimes.com/athletic/6846030/2025/11/28/uswnt-italy-catarina-macario-friendly-score-result/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6560541/2025/11/28/college-football-playoff-bracket
 **On historic, Playoff-clinching day for Ole Miss, Egg Bowl triumph meets Lane Kiffin unease**\
 `Never in Ole Miss football history have things been this sweet — but could it be fleeting?`\
 https://nytimes.com/athletic/6846039/2025/11/28/ole-miss-lane-kiffin-decision-egg-bowl/
-
-**Trump Pauses Domestic Applications for Asylum**\
-`It was the latest restrictive change to the immigration system after this week’s shooting of two National Guard members.`\
-https://nytimes.com/2025/11/28/us/politics/trump-affirmative-asylum.html
 

@@ -1,3 +1,7 @@
+**USWNT's early scoring and brace from Catarina Macario lift team over Italy**\
+`The U.S. scored in the first two minutes of its fifth game this year.`\
+https://nytimes.com/athletic/6846030/2025/11/28/uswnt-italy-catarina-macario-friendly-score-result/
+
 **How Wild passed the test in 'measuring-stick' showdown with Avalanche: Takeaways**\
 `The matchup between two of the league’s hottest teams lived up to the hype as Minnesota beat Colorado 3-2 in a shootout.`\
 https://nytimes.com/athletic/6846212/2025/11/28/wild-avalanche-kirill-kaprizov-nathan-mackinnon/

@@ -1,3 +1,7 @@
+**USWNT's early scoring and brace from Catarina Macario lift team over Italy**\
+`The U.S. scored in the first two minutes of its fifth game this year.`\
+https://nytimes.com/athletic/6846030/2025/11/28/uswnt-italy-catarina-macario-friendly-score-result/
+
 **How Wild passed the test in 'measuring-stick' showdown with Avalanche: Takeaways**\
 `The matchup between two of the league’s hottest teams lived up to the hype as Minnesota beat Colorado 3-2 in a shootout.`\
 https://nytimes.com/athletic/6846212/2025/11/28/wild-avalanche-kirill-kaprizov-nathan-mackinnon/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6846039/2025/11/28/ole-miss-lane-kiffin-decision-eg
 **Trump Pauses Domestic Applications for Asylum**\
 `It was the latest restrictive change to the immigration system after this week’s shooting of two National Guard members.`\
 https://nytimes.com/2025/11/28/us/politics/trump-affirmative-asylum.html
-
-**Bears-Eagles takeaways: Chicago bullies Philly with ground game in win**\
-`D'Andre Swift and Kyle Monangai rushed for more than 100 yards each as the Bears won the battle of division leaders.`\
-https://nytimes.com/athletic/6845867/2025/11/28/bears-eagles-black-friday-score-result-takeaways/
 
