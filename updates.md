@@ -1,3 +1,15 @@
+**Trump Declares Venezuelan Airspace Closed**\
+`President Trump said days earlier that the United States could “very soon” expand its campaign of killing people at sea suspected of drug trafficking to attacking Venezuelan territory.`\
+https://nytimes.com/2025/11/29/us/politics/trump-venezuela-maduro-airspace.html
+
+**SailGP season finale: Spain falters, Kiwi driver back racing after severing finger**\
+`Two fleet races will be held on Sunday before the championship-deciding Grand Final`\
+https://nytimes.com/athletic/6847139/2025/11/29/abu-dhabi-sail-grand-prix-day-one-results/
+
+**In return to Mavs lineup, Anthony Davis watches former teammate Austin Reaves put on a show**\
+`Davis had 12 points and five rebounds in his return from injury against Dončić and the Lakers.`\
+https://nytimes.com/athletic/6846859/2025/11/29/anthony-davis-dallas-mavericks-lakers/
+
 **How to watch Canadiens vs. Avalanche: Time, TV, streaming**\
 `Find out how to watch the Montreal Canadiens play the Colorado Avalanche, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6847236/2025/11/29/canadiens-vs-avalanche-stream-how-to-watch-nov-29/
