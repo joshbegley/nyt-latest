@@ -1,3 +1,7 @@
+**Deion Sanders intends to fix Colorado 'if it's the last thing I do'**\
+`When asked how he will get Colorado out of its rut, Sanders said: “It’s no rut. You’re just not good.” He said changes are on the way.`\
+https://nytimes.com/athletic/6847939/2025/11/29/deion-sanders-colorado-losing-season/
+
 **Top Trump Aides to Meet With Ukrainians in Florida on Sunday**\
 `Secretary of State Marco Rubio, Steve Witkoff and Jared Kushner plan to discuss peace terms again after an uproar over a 28-point proposal drafted with Russian input.`\
 https://nytimes.com/2025/11/29/us/politics/trump-aides-ukraine-florida-meeting.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6847775/2025/11/29/ohio-state-michigan-football-sco
 **Several Arrested as Protesters Block Federal Agents in Manhattan Garage**\
 `The confrontation appeared to foil a possible ICE raid nearby, underscoring the numerous challenges the federal government faces in trying to stage raids in a dense city like New York.`\
 https://nytimes.com/2025/11/29/nyregion/ice-raids-protests-nyc.html
-
-**How to watch Pelicans vs. Warriors: Time, TV, streaming**\
-`Find out how to watch the New Orleans Pelicans play the Golden State Warriors, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6847859/2025/11/29/pelicans-vs-warriors-stream-how-to-watch-nov-29/
 
