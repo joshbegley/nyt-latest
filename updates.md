@@ -1,4 +1,8 @@
 **The Briefing: Man City 3 Leeds 2 - How impressive was Foden? Does Farke deserve credit for changes?**\
+`Manchester City managed to overcome Leeds United late on in a five-goal thriller at the Etihad Stadium`\
+https://nytimes.com/athletic/6842204/2025/11/29/manchester-city-leeds-result-report-analysis/
+
+**The Briefing: Man City 3 Leeds 2 - How impressive was Foden? Does Farke deserve credit for changes?**\
 `Manchester City managed to overcome Leeds United to win 3-2 at the Etihad Stadium`\
 https://nytimes.com/athletic/6842204/2025/11/29/manchester-city-leeds-result-report-analysis/
 
