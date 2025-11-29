@@ -1,3 +1,7 @@
+**‘I’ve Never Eaten, Let Alone Made, a Better Sugar Cookie’**\
+`Readers love Samantha Seneviratne’s soft and chewy sugar cookies, and so do I.`\
+https://nytimes.com/2025/11/29/dining/ive-never-eaten-let-alone-made-a-better-sugar-cookie.html
+
 **Stroll told Aston Martin F1 staff team won’t sign Horner: Sources**\
 `Horner who was sacked by Red Bull in July following the British GP, has been working toward a return to the grid.`\
 https://nytimes.com/athletic/6847254/2025/11/29/f1-news-horner-aston-martin-stroll-qatar-grand-prix/
