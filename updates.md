@@ -1,3 +1,7 @@
+**Amorim feels Dorgu's 'anxiety' at Man Utd but 'he has time to improve'**\
+`In Amorim’s eyes, the £25.2million signing from Lecce last January is still finding the confidence to play under the scrutiny at United.`\
+https://nytimes.com/athletic/6845163/2025/11/29/patrick-dorgu-manchester-united-ruben-amorim/
+
 **Tottenham 1 Fulham 2: Spurs fans boo their goalkeeper, Frank left to fix familiar issues**\
 `In suffering yet another home defeat, Spurs are in 10th place in the Premier League and four games without a win `\
 https://nytimes.com/athletic/6842206/2025/11/29/tottenham-fulham-result-report-analysis/
