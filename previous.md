@@ -1,5 +1,5 @@
 **At the 25-game mark, how fixable are the Red Wings' issues this season?**\
-`The Red Wings hit the 25-game mark Friday with their third straight loss. Can they fix the defensive problems plaguing them?`\
+`The Red Wings hit the 25-game mark Friday with their third straight loss. Can they fix their defensive problems?`\
 https://nytimes.com/athletic/6845695/2025/11/28/red-wings-lightning-defense-issues/
 
 **College Football Playoff 2025 projections: Most likely bracket with Rivalry Week underway**\
