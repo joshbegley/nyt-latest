@@ -1,3 +1,7 @@
+**On historic, Playoff-clinching day for Ole Miss, Egg Bowl triumph meets Lane Kiffin unease**\
+`Never in Ole Miss football history have things been this sweet — but could it be fleeting?`\
+https://nytimes.com/athletic/6846039/2025/11/28/ole-miss-lane-kiffin-decision-egg-bowl/
+
 **Trump Pauses Domestic Applications for Asylum**\
 `It was the latest restrictive change to the immigration system after this week’s shooting of two National Guard members.`\
 https://nytimes.com/2025/11/28/us/politics/trump-affirmative-asylum.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6845891/2025/11/28/lane-kiffin-egg-bowl-reporter-be
 **Airbus Orders Software Update for A320 Jets**\
 `The European airplane maker said a recent incident had shown that “intense solar radiation may corrupt data critical to the functioning of flight controls.”`\
 https://nytimes.com/2025/11/28/business/airbus-software-a320-jets.html
-
-**Bruins’ David Pastrnak, Charlie McAvoy and a ludicrous injury aftermath**\
-`Looking at the nine ways in which absences impacted Boston's lineup in a 6-2 loss to the Rangers.`\
-https://nytimes.com/athletic/6845880/2025/11/28/bruins-david-pastrnak-charlie-mcavoy-injury/
 
