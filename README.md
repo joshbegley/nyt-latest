@@ -1,3 +1,11 @@
+**Trump Declares Venezuelan Airspace Closed**\
+`President Trump said days earlier that the United States could “very soon” expand its campaign of killing people at sea suspected of drug trafficking to attacking Venezuelan territory.`\
+https://nytimes.com/2025/11/29/us/politics/trump-venezuela-maduro-airspace.html
+
+**SailGP season finale: Spain falters, Kiwi driver back racing after severing finger**\
+`Two fleet races will be held on Sunday before the championship-deciding Grand Final`\
+https://nytimes.com/athletic/6847139/2025/11/29/abu-dhabi-sail-grand-prix-day-one-results/
+
 **In return to Mavs lineup, Anthony Davis watches former teammate Austin Reaves put on a show**\
 `Davis had 12 points and five rebounds in his return from injury against Dončić and the Lakers.`\
 https://nytimes.com/athletic/6846859/2025/11/29/anthony-davis-dallas-mavericks-lakers/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/29/us/walter-dowdle-dead.html
 **How to watch Ole Miss vs. George Mason women's basketball: Time, TV, streaming**\
 `Find out how to watch the Ole Miss Rebels play the George Mason Patriots, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6847211/2025/11/29/ole-miss-vs-george-mason-stream-how-to-watch-nov-29/
-
-**How to watch East Tennessee State vs. Louisville women's basketball: Time, TV, streaming**\
-`Find out how to watch the East Tennessee State Buccaneers play the Louisville Cardinals, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6847209/2025/11/29/east-tennessee-state-vs-louisville-stream-how-to-watch-nov-29/
-
-**How to watch Norfolk State vs. Arizona men's basketball: Time, TV, streaming**\
-`Find out how to watch the Norfolk State Spartans play the Arizona Wildcats, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6847207/2025/11/29/norfolk-state-vs-arizona-stream-how-to-watch-nov-29/
 
