@@ -1,3 +1,7 @@
+**Nick Sirianni backs Kevin Patullo after 'Fire Kevin' chants, boos pepper lackluster offense**\
+`The Eagles offense is still searching for answers after yet another quiet game.`\
+https://nytimes.com/athletic/6846485/2025/11/28/nick-sirianni-backs-kevin-patullo-eagles-fans-boos/
+
 **Mike Matheson showed in 2 games why the Canadiens want him around the next 5 years**\
 `Matheson's adaptability and team-first attitude make him valuable to the Canadiens, and he demonstrated both in two games this week.`\
 https://nytimes.com/athletic/6846432/2025/11/28/mike-matheson-montreal-canadiens-contract-extension/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/28/crosswords/daily-puzzle-2025-11-29.html
 **Georgia is far from perfect — but the ceiling is still a national title**\
 `Even with their flaws, Georgia still has the pieces to make a legitimate run at the national championship.`\
 https://nytimes.com/athletic/6846367/2025/11/28/georgia-takeaways-score-result/
-
-**Did Bears solve the tush push? Jalen Hurts on fumble: 'It's becoming tougher'**\
-`Philadelphia's quarterback blamed himself for not holding onto the ball, but acknowledged that teams are improving at defending the play.`\
-https://nytimes.com/athletic/6846287/2025/11/28/jalen-hurts-tush-push-fumble/
 

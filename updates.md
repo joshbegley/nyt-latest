@@ -1,3 +1,7 @@
+**Nick Sirianni backs Kevin Patullo after 'Fire Kevin' chants, boos pepper lackluster offense**\
+`The Eagles offense is still searching for answers after yet another quiet game.`\
+https://nytimes.com/athletic/6846485/2025/11/28/nick-sirianni-backs-kevin-patullo-eagles-fans-boos/
+
 **Mike Matheson showed in 2 games why the Canadiens want him around the next 5 years**\
 `Matheson's adaptability and team-first attitude make him valuable to the Canadiens, and he demonstrated both in two games this week.`\
 https://nytimes.com/athletic/6846432/2025/11/28/mike-matheson-montreal-canadiens-contract-extension/
