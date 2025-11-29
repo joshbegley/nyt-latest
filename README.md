@@ -1,3 +1,15 @@
+**How to watch Ole Miss vs. George Mason women's basketball: Time, TV, streaming**\
+`Find out how to watch the Ole Miss Rebels play the George Mason Patriots, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6847211/2025/11/29/ole-miss-vs-george-mason-stream-how-to-watch-nov-29/
+
+**How to watch East Tennessee State vs. Louisville women's basketball: Time, TV, streaming**\
+`Find out how to watch the East Tennessee State Buccaneers play the Louisville Cardinals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6847209/2025/11/29/east-tennessee-state-vs-louisville-stream-how-to-watch-nov-29/
+
+**How to watch Norfolk State vs. Arizona men's basketball: Time, TV, streaming**\
+`Find out how to watch the Norfolk State Spartans play the Arizona Wildcats, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6847207/2025/11/29/norfolk-state-vs-arizona-stream-how-to-watch-nov-29/
+
 **The Pulse: Football storylines dot Black Friday**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6846637/2025/11/29/lane-watch-texas-and-a-surprising-bears-win-dot-a-wild-black-friday/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6847052/2025/11/29/texas-am-texas-loss-college-foot
 **Texas Tech, BYU clinch Big 12 championship berths thanks to Arizona State loss**\
 `BYU and Texas Tech will go for round 2 in the Big 12 Championship Game. `\
 https://nytimes.com/athletic/6847039/2025/11/29/big-12-championship-texas-tech-byu-arizona-state-loss/
-
-**Arch Manning's performance vs. Texas A&M a microcosm of what we've seen this season**\
-`Manning fired off Smokey the Cannon in celebration with the Texas Cowboys after the Longhorns victory.  `\
-https://nytimes.com/athletic/6847022/2025/11/29/arch-manning-texas-texas-am-analysis/
-
-**Inside the ‘Morgue’ at The New York Times**\
-`Take a tour of the newspaper’s vast archive.`\
-https://nytimes.com/2025/11/29/podcasts/the-daily/inside-the-morgue-at-the-new-york-times.html
-
-**I’m a Concert Pianist. This Is Why I Seek Imperfection.**\
-`It is not only classical musicians who are being stunted by the search for perfection. It is harming many aspects of our lives and sectors of our society.`\
-https://nytimes.com/2025/11/29/opinion/pianist-music-performance-perfection.html
 
