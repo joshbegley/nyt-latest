@@ -1,3 +1,7 @@
+**The Ducks and Kings are very different teams that share the same goal of winning**\
+`In a Freeway Faceoff clash, one team was onto the start of something and the other was trying to keep their something from reaching its end.`\
+https://nytimes.com/athletic/6846440/2025/11/28/ducks-kings-freeway-faceoff-nhl-california/
+
 **Texas spoiled Texas A&M's undefeated season, SEC title hopes. Will win also get Horns into Playoff?**\
 `Texas A&M entered its rival's stadium as an undefeated, favored team with a chance to go to the SEC Championship Game for the first time.`\
 https://nytimes.com/athletic/6846475/2025/11/28/texas-am-texas-score-result-takeaways/

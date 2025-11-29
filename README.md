@@ -1,3 +1,7 @@
+**Quote of the Day: Middle-Age Ills Can Be Linked To Pregnancies**\
+`Quotation of the Day for Saturday, November 29, 2025.`\
+https://nytimes.com/2025/11/28/pageoneplus/quote-of-the-day-middle-age-ills-can-be-linked-to-pregnancies.html
+
 **The Ducks and Kings are very different teams that share the same goal of winning**\
 `In a Freeway Faceoff clash, one team was onto the start of something and the other was trying to keep their something from reaching its end.`\
 https://nytimes.com/athletic/6846440/2025/11/28/ducks-kings-freeway-faceoff-nhl-california/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6846374/2025/11/28/maple-leafs-capitals-craig-berub
 **Giannis Antetokounmpo returned to the Bucks' lineup, but their struggles continue**\
 `For the first time since Nov. 17, Giannis Antetokounmpo suited up for the Bucks, but that wasn't enough to avoid a seventh straight loss`\
 https://nytimes.com/athletic/6846472/2025/11/28/giannis-antetokounpo-injury-update-return-nba-cup/
-
-**NBA Cup group play wraps up on Friday. Stay updated with the results.**\
-`Twelve teams battled for six spots in the NBA Cup's knockout rounds. Check out the results of the most vital matchup.`\
-https://nytimes.com/athletic/6846086/2025/11/28/nba-cup-group-stage-results-magic-knicks-bucks-2025/
 
