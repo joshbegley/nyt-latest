@@ -1,3 +1,7 @@
+**In Firing His No. 2, Zelensky Loses Both a Negotiator and an Enforcer**\
+`Andriy Yermak had ensured internal discipline in Ukraine’s wartime politics. He also led the country’s peace negotiations, which now must go on without him.`\
+https://nytimes.com/2025/11/29/world/europe/zelensky-yermak-ukraine.html
+
 **Simon Cowell Is Sorry, Softer and Grieving Liam Payne**\
 `Summary TK; should be hidden on the body of the article itself.`\
 https://nytimes.com/2025/11/29/magazine/simon-cowell-interview.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/29/us/politics/texas-gerrymander.html
 **Latin American Leaders Face Both Trump and Voters Deported by the U.S.**\
 `The upcoming election in Honduras shows how politicians must balance cooperation with the Trump administration with their obligation to undocumented citizens in the United States who may be deported.`\
 https://nytimes.com/2025/11/29/world/americas/honduras-deportees-elections.html
-
-**Time Is Running Out in the Fight Over Congressional Maps**\
-`As partisan battles rage and courts wrangle proposals, the relentless pace of the calendar will force states to act — or land in murky legal ground.`\
-https://nytimes.com/2025/11/29/us/politics/congressional-maps-voting-calendar.html
 
