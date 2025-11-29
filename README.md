@@ -1,3 +1,7 @@
+**Russia Bombards Ukraine for Nearly 10 Hours in a Deadly Assault**\
+`The attack came as U.S. officials were expected to hold peace talks with Ukrainian and Russian officials in the coming days.`\
+https://nytimes.com/2025/11/29/world/europe/ukraine-kyiv-missiles.html
+
 **As Cyclone Deaths Pass 120, Sri Lanka Is Overwhelmed by Rescue Demand**\
 `Rescue efforts across the nation of 23 million have been hampered by disruptions in transport and telecommunications.`\
 https://nytimes.com/2025/11/29/world/asia/sri-lanka-cyclone-ditwah-floods.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/29/world/asia/hong-kong-fire-beijing-john-lee.html
 **NBA Cup quarterfinals preview: Lakers to face Spurs as knockout rounds take shape**\
 `The 2025 NBA Cup quarterfinals are set. What should fans expect? Let's preview each matchup to find out.`\
 https://nytimes.com/athletic/6846620/2025/11/29/2025-nba-cup-quarterfinals-matchups-lakers-knicks-heat/
-
-**The New York Times in Print for Saturday, Nov. 29, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/11/29/todays-new-york-times
 
