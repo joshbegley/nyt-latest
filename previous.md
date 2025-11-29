@@ -1,4 +1,4 @@
-**Indiana finishes first undefeated season in program history with rout of Purdue**\
+**Indiana completes first undefeated season since 1945 with rout of Purdue**\
 `The Hoosiers also secure a spot in the Big Ten title game for the first time in program history.`\
 https://nytimes.com/athletic/6846560/2025/11/28/indiana-purdue-score-result-takeaways/
 
@@ -7,10 +7,10 @@ https://nytimes.com/athletic/6846560/2025/11/28/indiana-purdue-score-result-take
 https://nytimes.com/athletic/6845848/2025/11/28/blues-senators-win-pavel-buchnevich/
 
 **Nick Sirianni backs Kevin Patullo after 'Fire Kevin' chants, boos pepper lackluster offense**\
-`The Eagles offense is still searching for answers after yet another quiet game.`\
+`The Eagles' offense is still searching for answers after yet another quiet game.`\
 https://nytimes.com/athletic/6846485/2025/11/28/nick-sirianni-backs-kevin-patullo-eagles-fans-boos/
 
-**Mike Matheson showed in 2 games why the Canadiens want him around the next 5 years**\
+**Mike Matheson showed in 2 games why the Canadiens want him for 5 more years**\
 `Matheson's adaptability and team-first attitude make him valuable to the Canadiens, and he demonstrated both in two games this week.`\
 https://nytimes.com/athletic/6846432/2025/11/28/mike-matheson-montreal-canadiens-contract-extension/
 
