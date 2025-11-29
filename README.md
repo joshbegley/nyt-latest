@@ -1,4 +1,4 @@
-**Deadly Hong Kong Fire is a Test of Beijing’s Rule in the City**\
+**Deadly Hong Kong Fire Is a Test of Beijing’s Rule in the City**\
 `After Beijing reshaped the political order in Hong Kong in its image, the fire has become a test of how well that new system can govern in a crisis.`\
 https://nytimes.com/2025/11/29/world/asia/hong-kong-fire-beijing-john-lee.html
 
