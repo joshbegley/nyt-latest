@@ -1,3 +1,7 @@
+**Gazans Say Israeli Forces Killed Two Children, Amid Persistent Violence**\
+`The Israeli military said it had fired on two “suspects” on Saturday who had crossed cease-fire lines in southern Gaza and did not comment on reports that they were young children.`\
+https://nytimes.com/2025/11/29/world/middleeast/israeli-forces-gaza-children-attack.html
+
 **Shoppers, Drawn by Steep Discounts, Power Through Black Friday**\
 `Data on spending this week shows that consumers are shopping big for the holidays despite inflation and economic worries.`\
 https://nytimes.com/2025/11/29/business/economy/black-friday-spending.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6847634/2025/11/29/red-wings-vs-bruins-stream-how-t
 **How to watch Flyers vs. Devils: Time, TV, streaming**\
 `Find out how to watch the Philadelphia Flyers play the New Jersey Devils, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6847635/2025/11/29/flyers-vs-devils-stream-how-to-watch-nov-29/
-
-**How to watch Mammoth vs. Blues: Time, TV, streaming**\
-`Find out how to watch the Utah Mammoth play the St. Louis Blues, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6847630/2025/11/29/mammoth-vs-blues-stream-how-to-watch-nov-29/
 
