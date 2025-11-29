@@ -1,3 +1,7 @@
+**College Football Playoff 2025 projections: Most likely bracket with Rivalry Week underway**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/11/29/college-football-playoff-bracket-projections-odds/
+
 **Russia Attacks Ukraine in a 10-Hour Deadly Assault**\
 `A Russian air assault across Ukraine on Saturday killed at least two people and injured dozens more, according to the Ukrainian authorities.`\
 https://nytimes.com/video/world/europe/100000010554742/ukraine-russia-war-drone-attacks.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6847853/2025/11/29/sharks-vs-golden-knights-stream-
 **How to watch Canucks vs. Kings: Time, TV, streaming**\
 `Find out how to watch the Vancouver Canucks play the Los Angeles Kings, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6847851/2025/11/29/canucks-vs-kings-stream-how-to-watch-nov-29/
-
-**Leeds' Farke wants authorities to prevent players from feigning injuries**\
-`Farke did not feel City gaining a tactical advantage after goalkeeper Donnarumma feigned an injury was in the right spirit of fair play.`\
-https://nytimes.com/athletic/6847799/2025/11/29/leeds-man-city-news-premier-league-donnarumma/
 

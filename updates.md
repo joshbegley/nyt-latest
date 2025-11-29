@@ -1,3 +1,7 @@
+**College Football Playoff 2025 projections: Most likely bracket with Rivalry Week underway**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/11/29/college-football-playoff-bracket-projections-odds/
+
 **Russia Attacks Ukraine in a 10-Hour Deadly Assault**\
 `A Russian air assault across Ukraine on Saturday killed at least two people and injured dozens more, according to the Ukrainian authorities.`\
 https://nytimes.com/video/world/europe/100000010554742/ukraine-russia-war-drone-attacks.html
