@@ -1,3 +1,7 @@
+**Afghans Who Assisted U.S. During the War Underwent Rigorous Vetting**\
+`Former officials said the C.I.A. diligently assessed those who partnered with its forces, like the man accused of shooting two National Guard members in Washington.`\
+https://nytimes.com/2025/11/29/us/politics/afghans-cia-vetting.html
+
 **Major Winter Storm Dumps Snow Across Midwest and Upends Travel**\
 `More than 1,100 flights were canceled at Chicago airports as the storm disrupted travel for those headed home after Thanksgiving.`\
 https://nytimes.com/2025/11/29/weather/snowstorm-midwest-flights-canceled.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6847859/2025/11/29/pelicans-vs-warriors-stream-how-
 **How to watch Nuggets vs. Suns: Time, TV, streaming**\
 `Find out how to watch the Denver Nuggets play the Phoenix Suns, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6847857/2025/11/29/nuggets-vs-suns-stream-how-to-watch-nov-29/
-
-**How to watch Mavericks vs. Clippers: Time, TV, streaming**\
-`Find out how to watch the Dallas Mavericks play the Los Angeles Clippers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6847855/2025/11/29/mavericks-vs-clippers-stream-how-to-watch-nov-29/
 
