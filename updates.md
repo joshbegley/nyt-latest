@@ -1,3 +1,15 @@
+**How to watch BYU vs. Vanderbilt women's basketball: Time, TV, streaming**\
+`Find out how to watch the BYU Cougars play the Vanderbilt Commodores, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6846964/2025/11/29/byu-vs-vanderbilt-stream-how-to-watch-nov-29/
+
+**How to watch North Carolina vs. Columbia women's basketball: Time, TV, streaming**\
+`Find out how to watch the North Carolina Tar Heels play the Columbia Lions, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6846962/2025/11/29/north-carolina-vs-columbia-stream-how-to-watch-nov-29/
+
+**Highlight Reel**\
+`As the year comes to a close, we want to know your highly specific, idiosyncratic bests of 2025.`\
+https://nytimes.com/2025/11/29/briefing/highlight-reel.html
+
 **Sidney Crosby, Bryan Rust power Penguins to comeback victory: 10 observations**\
 `Crosby scored twice to extend the game to overtime, and Kris Letang won it for the Penguins in Columbus.`\
 https://nytimes.com/athletic/6846451/2025/11/29/penguins-blue-jackets-sidney-crosby-bryan-rust/
