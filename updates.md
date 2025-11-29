@@ -1,3 +1,11 @@
+**Georgia is far from perfect — but the ceiling is still a national title**\
+`Even with their flaws, Georgia still has the pieces to make a legitimate run at the national championship.`\
+https://nytimes.com/athletic/6846367/2025/11/28/georgia-takeaways-score-result/
+
+**Did Bears solve the tush push? Jalen Hurts on fumble: 'It's becoming tougher'**\
+`Philadelphia's quarterback blamed himself for not holding onto the ball, but acknowledged that teams are improving at defending the play.`\
+https://nytimes.com/athletic/6846287/2025/11/28/jalen-hurts-tush-push-fumble/
+
 **Northwestern Agrees to Deal With Trump Administration**\
 `The university will pay $75 million to regain its research funding and end investigations, the second highest payment by a school facing pressure from the administration.`\
 https://nytimes.com/2025/11/28/us/politics/northwestern-deal-trump-administration.html
