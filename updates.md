@@ -1,3 +1,7 @@
+**The New York Times in Print for Saturday, Nov. 29, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/11/29/todays-new-york-times
+
 **Georgia heading to SEC championship game with Texas A&M's loss**\
 `The Bulldogs' opponent depends on whether Alabama beats Auburn on Saturday night.`\
 https://nytimes.com/athletic/6846634/2025/11/29/georgia-sec-championship-game-opponents/

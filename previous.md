@@ -1,3 +1,7 @@
+**The New York Times in Print for Saturday, Nov. 29, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/11/29/todays-new-york-times
+
 **Georgia heading to SEC championship game with Texas A&M's loss**\
 `The Bulldogs' opponent depends on whether Alabama beats Auburn on Saturday night.`\
 https://nytimes.com/athletic/6846634/2025/11/29/georgia-sec-championship-game-opponents/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/29/world/africa/south-africa-russia-ukraine-fighters
 **Where Hundreds of Undocumented Migrants Have Died in Custody**\
 `Malaysia launched a “year of enforcement” in response to a surge in undocumented migrants, many of them from Myanmar. Some faced nightmarish fates.`\
 https://nytimes.com/2025/11/29/world/asia/where-hundreds-of-undocumented-migrants-have-died-in-custody.html
-
-**Connections: Sports Edition Coach: Hints for Nov. 29, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6846016/2025/11/29/connections-sports-edition-hints-for-nov-29-2025/
 
