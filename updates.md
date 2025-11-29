@@ -1,3 +1,7 @@
+**Deadly Hong Kong Fire is a Test of Beijing’s Rule in the City**\
+`After Beijing reshaped the political order in Hong Kong in its image, the fire has become a test of how well that new system can govern in a crisis.`\
+https://nytimes.com/2025/11/29/world/asia/hong-kong-fire-beijing-john-lee.html
+
 **NBA Cup quarterfinals preview: Lakers to face Spurs as knockout rounds take shape**\
 `The 2025 NBA Cup quarterfinals are set. What should fans expect? Let's preview each matchup to find out.`\
 https://nytimes.com/athletic/6846620/2025/11/29/2025-nba-cup-quarterfinals-matchups-lakers-knicks-heat/
