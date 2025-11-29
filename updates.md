@@ -1,3 +1,11 @@
+**The Language of Tom Stoppard, Ablaze With Energy and Urgency**\
+`In works like “Travesties” and “Arcadia,” the playwright embraced the really big questions and wrestled words into coherent, exhilarating shape.`\
+https://nytimes.com/2025/11/29/theater/the-language-of-tom-stoppard-ablaze-with-energy-and-urgency.html
+
+**Yale beats Youngstown State in FCS playoff debut after 29 unanswered points**\
+`Josh Pitsenberger's 56-yard touchdown run in the closing minutes lifted the Bulldogs to a miracle victory in their FCS debut.`\
+https://nytimes.com/athletic/6847943/2025/11/29/yale-youngtown-comeback-fcs-playoffs/
+
 **Hog Wild**\
 `Natan Last’s puzzle is a gem.`\
 https://nytimes.com/2025/11/29/crosswords/daily-puzzle-2025-11-30.html
