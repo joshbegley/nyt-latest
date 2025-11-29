@@ -1,3 +1,15 @@
+**How to watch BYU vs. Vanderbilt women's basketball: Time, TV, streaming**\
+`Find out how to watch the BYU Cougars play the Vanderbilt Commodores, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6846964/2025/11/29/byu-vs-vanderbilt-stream-how-to-watch-nov-29/
+
+**How to watch North Carolina vs. Columbia women's basketball: Time, TV, streaming**\
+`Find out how to watch the North Carolina Tar Heels play the Columbia Lions, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6846962/2025/11/29/north-carolina-vs-columbia-stream-how-to-watch-nov-29/
+
+**Highlight Reel**\
+`As the year comes to a close, we want to know your highly specific, idiosyncratic bests of 2025.`\
+https://nytimes.com/2025/11/29/briefing/highlight-reel.html
+
 **Sidney Crosby, Bryan Rust power Penguins to comeback victory: 10 observations**\
 `Crosby scored twice to extend the game to overtime, and Kris Letang won it for the Penguins in Columbus.`\
 https://nytimes.com/athletic/6846451/2025/11/29/penguins-blue-jackets-sidney-crosby-bryan-rust/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/11/29/crosswords/connections-companion-903.html
 **Strands Sidekick No. 637**\
 `Scroll down for hints and conversation about the puzzle for Sunday, Nov. 30, 2025`\
 https://nytimes.com/2025/11/29/crosswords/strands-sidekick-637.html
-
-**Wordle Review No. 1,625**\
-`Scroll down for hints and conversation about the puzzle for Sunday, Nov. 30, 2025.`\
-https://nytimes.com/2025/11/29/crosswords/wordle-review-1625.html
-
-**In Firing His No. 2, Zelensky Loses Both a Negotiator and an Enforcer**\
-`Andriy Yermak had ensured internal discipline in Ukraine’s wartime politics. He also led the country’s peace negotiations, which now must go on without him.`\
-https://nytimes.com/2025/11/29/world/europe/zelensky-yermak-ukraine.html
-
-**Simon Cowell Is Sorry, Softer and Grieving Liam Payne**\
-`Summary TK; should be hidden on the body of the article itself.`\
-https://nytimes.com/2025/11/29/magazine/simon-cowell-interview.html
 
