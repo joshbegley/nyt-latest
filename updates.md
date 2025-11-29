@@ -1,3 +1,11 @@
+**Major Winter Storm Dumps Snow Across Midwest and Upends Travel**\
+`More than 1,100 flights were canceled at Chicago airports as the storm disrupted travel for those headed home after Thanksgiving.`\
+https://nytimes.com/2025/11/29/weather/snowstorm-midwest-flights-canceled.html
+
+**Utah Hiker Rescued With His Children Faces Abuse and Torture Charges**\
+`The man was initially hailed for his efforts to protect his daughter, 8, and two sons, 4 and 2, but the authorities concluded that he put them at risk by taking them on perilous terrain.`\
+https://nytimes.com/2025/11/29/us/utah-dad-child-abuse-hike.html
+
 **Reliever Ryan Helsley agrees to 2-year, $28 million deal with Orioles: Source**\
 `Helsley's deal with Baltimore includes a player opt-out after the first season.`\
 https://nytimes.com/athletic/6840108/2025/11/29/ryan-helsley-orioles-free-agent-contract/
