@@ -1,3 +1,11 @@
+**Lions center Frank Ragnow fails physical, won't rejoin team this season**\
+`The Lions had announced Ragnow would come out of retirement Wednesday.`\
+https://nytimes.com/athletic/6847495/2025/11/29/frank-ragnow-lions-failed-physical-retirement-comeback/
+
+**Norris responds to Verstappen’s F1 title claim: ‘Just talking nonsense’**\
+`LUSAIL, Qatar — Lando Norris has brushed off Max Verstappen’s claim the championship would have been over “a long time ago” if he was driving a McLaren, saying it fits Red Bull’s approach of “just talking nonsense.`\
+https://nytimes.com/athletic/6847499/2025/11/29/lando-norris-max-verstappen-f1-title/
+
 **‘I’ve Never Eaten, Let Alone Made, a Better Sugar Cookie’**\
 `Readers love Samantha Seneviratne’s soft and chewy sugar cookies, and so do I.`\
 https://nytimes.com/2025/11/29/dining/ive-never-eaten-let-alone-made-a-better-sugar-cookie.html

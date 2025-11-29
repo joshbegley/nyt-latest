@@ -1,3 +1,11 @@
+**Lions center Frank Ragnow fails physical, won't rejoin team this season**\
+`The Lions had announced Ragnow would come out of retirement Wednesday.`\
+https://nytimes.com/athletic/6847495/2025/11/29/frank-ragnow-lions-failed-physical-retirement-comeback/
+
+**Norris responds to Verstappen’s F1 title claim: ‘Just talking nonsense’**\
+`LUSAIL, Qatar — Lando Norris has brushed off Max Verstappen’s claim the championship would have been over “a long time ago” if he was driving a McLaren, saying it fits Red Bull’s approach of “just talking nonsense.`\
+https://nytimes.com/athletic/6847499/2025/11/29/lando-norris-max-verstappen-f1-title/
+
 **‘I’ve Never Eaten, Let Alone Made, a Better Sugar Cookie’**\
 `Readers love Samantha Seneviratne’s soft and chewy sugar cookies, and so do I.`\
 https://nytimes.com/2025/11/29/dining/ive-never-eaten-let-alone-made-a-better-sugar-cookie.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6847324/2025/11/29/lane-kiffin-lsu-ole-miss-coachin
 **Stroll told Aston Martin F1 staff team won’t sign Horner: Sources**\
 `Horner who was sacked by Red Bull in July following the British GP, has been working toward a return to the grid.`\
 https://nytimes.com/athletic/6847254/2025/11/29/f1-news-horner-aston-martin-stroll-qatar-grand-prix/
-
-**Oscar Piastri wins Qatar sprint race, Lando Norris sees off Max Verstappen**\
-`Lando Norris' championship lead narrowed to 22 points ahead of the Qatar Grand Prix`\
-https://nytimes.com/athletic/6847217/2025/11/29/qatar-gp-sprint-race-results/
-
-**Trump Declares Venezuelan Airspace Closed**\
-`President Trump said days earlier that the United States could “very soon” expand its campaign of killing people at sea suspected of drug trafficking to attacking Venezuelan territory.`\
-https://nytimes.com/2025/11/29/us/politics/trump-venezuela-maduro-airspace.html
 
