@@ -1,3 +1,7 @@
+**USWNT's early scoring and brace from Catarina Macario lift team over Italy**\
+`The U.S. scored in the first two minutes of its fifth game this year. Rose Lavelle and Naomi Girma also played key roles in the win.`\
+https://nytimes.com/athletic/6846030/2025/11/28/uswnt-italy-catarina-macario-friendly-score-result/
+
 **Eagles' uninspired play in second straight loss threatens another lost season**\
 `The Eagles believe they can fix their mistakes to save the season.`\
 https://nytimes.com/athletic/6845637/2025/11/28/philadelphia-eagles-loss-week-13-threatens-season/
