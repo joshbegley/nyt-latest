@@ -1,3 +1,7 @@
+**Blues show 'most desperation of the year' in comeback win over Senators**\
+`The Blues won 4-3 with a three-goal third period, including Pavel Buchnevich's first five-on-five goal of the season.`\
+https://nytimes.com/athletic/6845848/2025/11/28/blues-senators-win-pavel-buchnevich/
+
 **Nick Sirianni backs Kevin Patullo after 'Fire Kevin' chants, boos pepper lackluster offense**\
 `The Eagles offense is still searching for answers after yet another quiet game.`\
 https://nytimes.com/athletic/6846485/2025/11/28/nick-sirianni-backs-kevin-patullo-eagles-fans-boos/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6846259/2025/11/28/sabres-devils-tage-thompson-figh
 **Take It Back!**\
 `Adrian Johnson’s latest themeless puzzle is gritty and graceful.`\
 https://nytimes.com/2025/11/28/crosswords/daily-puzzle-2025-11-29.html
-
-**Georgia is far from perfect — but the ceiling is still a national title**\
-`Even with their flaws, Georgia still has the pieces to make a legitimate run at the national championship.`\
-https://nytimes.com/athletic/6846367/2025/11/28/georgia-takeaways-score-result/
 
