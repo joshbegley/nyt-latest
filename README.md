@@ -1,3 +1,7 @@
+**Arch Manning's performance vs. Texas A&M a microcosm of what we've seen this season**\
+`Manning fired off Smokey the Cannon in celebration with the Texas Cowboys after the Longhorns victory.  `\
+https://nytimes.com/athletic/6847022/2025/11/29/arch-manning-texas-texas-am-analysis/
+
 **Inside the ‘Morgue’ at The New York Times**\
 `Take a tour of the newspaper’s vast archive.`\
 https://nytimes.com/2025/11/29/podcasts/the-daily/inside-the-morgue-at-the-new-york-times.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/29/opinion/education-department-trump-antiracist.htm
 **Texas, and the CFP debate the SEC dreamed of, is alive**\
 `A lot of uncomfortable conversations the CFP committee has been avoiding are about to take center stage.`\
 https://nytimes.com/athletic/6846960/2025/11/29/texas-college-football-playoff-resume-sec/
-
-**England's Mark Wood out of second Ashes Test after suffering pain in knee**\
-`Wood sat out of training on Saturday and is not expected to be named in the England XI for the day-night Test at the Gabba.`\
-https://nytimes.com/athletic/6846934/2025/11/29/mark-wood-ashes-injury-test/
 
