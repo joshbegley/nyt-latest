@@ -1,3 +1,23 @@
+**How to watch Canadiens vs. Avalanche: Time, TV, streaming**\
+`Find out how to watch the Montreal Canadiens play the Colorado Avalanche, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6847236/2025/11/29/canadiens-vs-avalanche-stream-how-to-watch-nov-29/
+
+**How to watch Celtics vs. Timberwolves: Time, TV, streaming**\
+`Find out how to watch the Boston Celtics play the Minnesota Timberwolves, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6847234/2025/11/29/celtics-vs-timberwolves-stream-how-to-watch-nov-29/
+
+**How to watch Oilers vs. Kraken: Time, TV, streaming**\
+`Find out how to watch the Edmonton Oilers play the Seattle Kraken, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6847232/2025/11/29/oilers-vs-kraken-stream-how-to-watch-nov-29/
+
+**Did Pope Leo Pray in Istanbul’s Blue Mosque? Not Visibly, at Least.**\
+`Leo XIV is being closely watched on an inaugural trip to Turkey and Lebanon to spread a message of peace and outreach.`\
+https://nytimes.com/2025/11/29/world/asia/pope-leo-istanbul-blue-mosque-prayer.html
+
+**College football conference championship scenarios: Who can clinch and how**\
+`Here are all of the possible conference title game matchups — and what needs to happen Saturday to get there.`\
+https://nytimes.com/athletic/6844322/2025/11/29/college-football-conference-championship-game-scenarios/
+
 **Walter Dowdle, Public Health Leader in Times of Crises, Dies at 94**\
 `Dr. Dowdle, a microbiologist who became the No. 2 official at the Centers for Disease Control and Prevention, helped lead the nation’s response to AIDS.`\
 https://nytimes.com/2025/11/29/us/walter-dowdle-dead.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6847207/2025/11/29/norfolk-state-vs-arizona-stream-
 **The Pulse: Football storylines dot Black Friday**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6846637/2025/11/29/lane-watch-texas-and-a-surprising-bears-win-dot-a-wild-black-friday/
-
-**The Bears are for real after a signature win in Philly**\
-`The Bears felt every last ounce of satisfaction from Friday's convincing upset of the defending champion Eagles. Now what? `\
-https://nytimes.com/athletic/6846409/2025/11/29/chicago-bears-win-philadelphia/
-
-**Is Broncos' O-line better than unit that helped win Super Bowl 50? Von Miller thinks so**\
-`Sean Payton took over an offensive line in shambles in 2023. Now, with a freshly extended center, it may be one of the NFL's best.`\
-https://nytimes.com/athletic/6842406/2025/11/29/denver-broncos-offensive-line-bolles-meinerz-mcglinchey/
-
-**Austin Reaves, Luka Dončić fuel Lakers' win against Dallas in NBA Cup play**\
-`The Lakers have the NBA's third-best winning percentage — a standard of play having been set early in the year and met routinely.`\
-https://nytimes.com/athletic/6846861/2025/11/29/lakers-lebron-luka-doncic-austin-reaves-mavericks/
-
-**Ben Johnson is the difference for thankful Chicago Bears**\
-`It's clear the Bears are worth getting excited about, and it's indisputable that Johnson is worth every comma in his contract.`\
-https://nytimes.com/athletic/6846431/2025/11/29/ben-johnson-coach-bears/
-
-**Mandel: Is there some unknown force that prevents Texas A&M from having nice things?**\
-`There is a silver lining for Texas A&M despite getting embarrassed by its rival and missing the conference title game.`\
-https://nytimes.com/athletic/6847052/2025/11/29/texas-am-texas-loss-college-football-playoff-rivalry/
 
