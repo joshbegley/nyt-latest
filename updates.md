@@ -1,3 +1,7 @@
+**Ranking college football's 10 open coaching jobs: LSU No. 1; Auburn or Arkansas?**\
+`This could be the most active coaching carousel college football has seen in many years.`\
+https://nytimes.com/athletic/6662286/2025/11/29/college-football-open-coaching-jobs-rankings/
+
 **Kevon Looney returns to the Bay, where the former Warriors pillar won't be forgotten**\
 `Looney's style made him a key part of three Warriors titles. On Saturday, he comes back to the Bay, this time as a member of the Pelicans.`\
 https://nytimes.com/athletic/6846730/2025/11/29/kevon-looney-golden-state-warriors-bay-area-pelicans/
