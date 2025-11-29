@@ -34,7 +34,7 @@ https://nytimes.com/athletic/6847851/2025/11/29/canucks-vs-kings-stream-how-to-w
 `Farke did not feel City gaining a tactical advantage after goalkeeper Donnarumma feigned an injury was in the right spirit of fair play.`\
 https://nytimes.com/athletic/6847799/2025/11/29/leeds-man-city-news-premier-league-donnarumma/
 
-**Targeting Venezuela and Pardoning Honduran Ex-President, Trump Contradicts Himself**\
+**In Announcing Pardon of Drug Trafficker While Threatening Venezuela, Trump Displays Contradictions**\
 `President Trump’s statements on social media less than 24 hours apart showed the dissonance in his campaign against drug trafficking.`\
 https://nytimes.com/2025/11/29/us/politics/trump-honduras-venezuela.html
 

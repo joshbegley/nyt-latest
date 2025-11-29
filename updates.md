@@ -1,3 +1,15 @@
+**Reliever Ryan Helsley signs 2-year, $28 million deal with Orioles: Source**\
+`Helsley's deal with Baltimore includes a player opt-out after the first season.`\
+https://nytimes.com/athletic/6840108/2025/11/29/ryan-helsley-orioles-free-agent-contract/
+
+**Ohio State ends Michigan angst, cruises to Big Ten title game: Key takeaways**\
+`No. 1 Ohio State pulled away from No. 15 Michigan 27-9, its first rivalry win since 2019 to knock the Wolverines out of the CFP chase.`\
+https://nytimes.com/athletic/6847775/2025/11/29/ohio-state-michigan-football-score-result/
+
+**Several Arrested as Protesters Block Federal Agents in Manhattan Garage**\
+`The confrontation appeared to foil a possible ICE raid nearby, underscoring the numerous challenges the federal government faces in trying to stage raids in a dense city like New York.`\
+https://nytimes.com/2025/11/29/nyregion/ice-raids-protests-nyc.html
+
 **How to watch Pelicans vs. Warriors: Time, TV, streaming**\
 `Find out how to watch the New Orleans Pelicans play the Golden State Warriors, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6847859/2025/11/29/pelicans-vs-warriors-stream-how-to-watch-nov-29/
