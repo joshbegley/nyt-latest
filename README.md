@@ -1,3 +1,19 @@
+**Georgia heading to SEC championship game with Texas A&M's loss**\
+`The Bulldogs' opponent depends on whether Alabama beats Auburn on Saturday night.`\
+https://nytimes.com/athletic/6846634/2025/11/29/georgia-sec-championship-game-opponents/
+
+**State Department Boosts Resources to Process Business Visas for South Koreans**\
+`The Trump administration has been trying to repair the damage from the detention of hundreds of South Koreans in an immigration raid in Georgia.`\
+https://nytimes.com/2025/11/29/us/politics/state-dept-south-korea-visas.html
+
+**What Liverpool's goals conceded tell us about their defensive problems**\
+`Andy Jones watches back all of the goals Liverpool have conceded this season to find causes of their defensive issues`\
+https://nytimes.com/athletic/6844675/2025/11/29/liverpool-goals-conceded-defensive-problems/
+
+**How should Tottenham Hotspur line up for tonight's match vs Fulham?**\
+`The visit of Fulham to Tottenham Hotspur Stadium on Saturday evening will put the emphasis on Spurs to attack`\
+https://nytimes.com/athletic/6845567/2025/11/29/spurs-line-up-fulham/
+
 **Declan Rice, Moises Caicedo and Enzo Fernandez are proof that £100m transfers can work**\
 `History suggests the best way to spend big money is on an emerging all-round midfielder – young enough to be shaped into what a club needs`\
 https://nytimes.com/athletic/6842793/2025/11/29/rice-caicedo-fernandez-value-arsenal-chelsea/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/11/29/world/asia/where-hundreds-of-undocumented-migrant
 **Connections: Sports Edition Coach: Hints for Nov. 29, 2025**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/6846016/2025/11/29/connections-sports-edition-hints-for-nov-29-2025/
-
-**Corrections: Nov. 29, 2025**\
-`Corrections that appeared in print on Saturday, Nov. 29, 2025.`\
-https://nytimes.com/2025/11/29/pageoneplus/corrections-nov-29-2025.html
-
-**Quote of the Day: Middle-Age Ills Can Be Linked To Pregnancies**\
-`Quotation of the Day for Saturday, November 29, 2025.`\
-https://nytimes.com/2025/11/28/pageoneplus/quote-of-the-day-middle-age-ills-can-be-linked-to-pregnancies.html
-
-**The Ducks and Kings are very different teams that share the same goal of winning**\
-`In a Freeway Faceoff clash, one team was on to the start of something and the other was trying to keep its something from reaching an end`\
-https://nytimes.com/athletic/6846440/2025/11/28/ducks-kings-freeway-faceoff-nhl-california/
-
-**Texas spoiled Texas A&M's undefeated season, SEC title hopes. Will win also get Horns into Playoff?**\
-`Texas A&M entered its rival's stadium as an undefeated, favored team with a chance to go to the SEC Championship Game for the first time.`\
-https://nytimes.com/athletic/6846475/2025/11/28/texas-am-texas-score-result-takeaways/
 

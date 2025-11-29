@@ -1,3 +1,11 @@
+**Declan Rice, Moises Caicedo and Enzo Fernandez are proof that £100m transfers can work**\
+`History suggests the best way to spend big money is on an emerging all-round midfielder – young enough to be shaped into what a club needs`\
+https://nytimes.com/athletic/6842793/2025/11/29/rice-caicedo-fernandez-value-arsenal-chelsea/
+
+**Paul Pogba's comeback means French football's 'stolen prince' is home at last**\
+`French football fans have had to build a relationship with Pogba from a distance – now at last they get to see him on home soil`\
+https://nytimes.com/athletic/6844768/2025/11/29/paul-pogba-comeback-monaco/
+
 **Marc Cucurella is crucial for Chelsea - and enjoying the best spell of his career**\
 `Marc Cucurella has been important to Chelsea both on and off the pitch`\
 https://nytimes.com/athletic/6844781/2025/11/29/marc-cucurella-chelse-analysis/
