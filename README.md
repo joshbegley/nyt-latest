@@ -1,3 +1,15 @@
+**Texas, and the CFP debate the SEC dreamed of, is alive**\
+`A lot of uncomfortable conversations the CFP committee has been avoiding are about to take center stage.`\
+https://nytimes.com/athletic/6846960/2025/11/29/texas-college-football-playoff-resume-sec/
+
+**England bowler Mark Wood out of second Ashes Test with knee issue**\
+`Wood sat out of training on Saturday and is not expected to be named in the England XI for the day-night Test at the Gabba.`\
+https://nytimes.com/athletic/6846934/2025/11/29/mark-wood-ashes-injury-test/
+
+**'Learn the hard way.' How Oscar Piastri has dealt with blowing his 2025 points lead**\
+`For much of the season Oscar Piastri was the favorite to win F1 2025. Then his points lead vanished`\
+https://nytimes.com/athletic/6846924/2025/11/29/oscar-piastri-f1-points-lead-loss/
+
 **How to watch Lightning vs. Rangers: Time, TV, streaming**\
 `Find out how to watch the Tampa Bay Lightning play the New York Rangers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6846966/2025/11/29/lightning-vs-rangers-stream-how-to-watch-nov-29/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6846622/2025/11/29/chicago-blackhawks-predators-win
 **Brady Tkachuk shows no rust in return, and his placement gives Sens an option**\
 `Tkachuk registered a team-leading eight shots in 17:12 of ice time in a 4-3 loss against the Blues on Friday.`\
 https://nytimes.com/athletic/6845837/2025/11/29/ottawa-senators-brady-tkachuk-returns-blues/
-
-**Blue Jackets cough up two-goal lead late, lose to Penguins in OT**\
-`With Friday's loss to the Penguins, the Blue Jackets settled into last place in the Metropolitan.`\
-https://nytimes.com/athletic/6846482/2025/11/29/blue-jackets-lose-lead-penguins-overtime/
-
-**Fresh Reporting on Asylum Seekers at the U.S.-Canadian Border**\
-`Canada has made its border with the United States tougher to cross. Here’s what we learned through monthlong reporting on a single case.`\
-https://nytimes.com/2025/11/29/world/canada/asylum-seekers-us-canada-border.html
-
-**Connections Companion No. 903**\
-`Scroll down for hints and conversation about the puzzle for Sunday, Nov. 30, 2025.`\
-https://nytimes.com/2025/11/29/crosswords/connections-companion-903.html
 
