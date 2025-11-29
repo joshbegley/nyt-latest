@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6847614/2025/11/29/tyler-adams-halfway-line-goal-usmnt-premier-league/
 
 **The Briefing: Everton 1 Newcastle 4 - How big is first away win? Has Miley played himself into Howe's XI?**\
-`Eddie Howe's side had not won away in the Premier League for nine games, a record dating back to April, before this convincing victory`\
+`Eddie Howe's side had not won away in the Premier League for nine games — a record dating back to April — before this convincing victory`\
 https://nytimes.com/athletic/6842205/2025/11/29/briefing-everton-1-newcastle-4/
 
 **Oscar Piastri beats Lando Norris for Qatar GP pole with F1 championship at stake**\

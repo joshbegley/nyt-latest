@@ -1,3 +1,15 @@
+**Breaking down USMNT midfielder Tyler Adams' 47.4-yard wonder goal for Bournemouth**\
+`Before today, across 338 games for club and country, Adams had managed just eight goals. He might never score another like the ninth`\
+https://nytimes.com/athletic/6847614/2025/11/29/tyler-adams-halfway-line-goal-usmnt-premier-league/
+
+**The Briefing: Everton 1 Newcastle 4 - How big is first away win? Has Miley played himself into Howe's XI?**\
+`Eddie Howe's side had not won away in the Premier League for nine games, a record dating back to April, before this convincing victory`\
+https://nytimes.com/athletic/6842205/2025/11/29/briefing-everton-1-newcastle-4/
+
+**Oscar Piastri beats Lando Norris for Qatar GP pole with F1 championship at stake**\
+`Norris needs to win the grand prix to clinch his first F1 championship, but qualifying has left him a tough task`\
+https://nytimes.com/athletic/6847699/2025/11/29/qatar-gp-qualifying-results/
+
 **The Grand Ole Opry Toasts a Century and Considers What’s Next**\
 `A hundred years after it first went live, Nashville’s famed country music show celebrated its history with a series of performances.`\
 https://nytimes.com/2025/11/29/us/grand-ole-opry-100th-anniversary.html
