@@ -1,3 +1,11 @@
+**How Wild passed the test in 'measuring-stick' showdown with Avalanche: Takeaways**\
+`The matchup between two of the league’s hottest teams lived up to the hype as Minnesota beat Colorado 3-2 in a shootout.`\
+https://nytimes.com/athletic/6846212/2025/11/28/wild-avalanche-kirill-kaprizov-nathan-mackinnon/
+
+**Two West Virginia Communities Bound Together by Grief**\
+`Red ribbons adorned one city, while blue ribbons hung in another town — all to honor the National Guard members who were attacked in Washington this week.`\
+https://nytimes.com/2025/11/28/us/national-guard-shooting-west-virginia.html
+
 **Trump Announces Pardon for Honduran Ex-President Convicted in Drug Case**\
 `President Trump said he would pardon Juan Orlando Hernández, who prosecutors said had received millions in bribes and had partnered with cocaine traffickers as Honduras’s president. He is serving 45 years in prison.`\
 https://nytimes.com/2025/11/28/world/americas/trump-pardon-honduras-hernandez.html

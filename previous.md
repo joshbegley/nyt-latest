@@ -1,3 +1,11 @@
+**How Wild passed the test in 'measuring-stick' showdown with Avalanche: Takeaways**\
+`The matchup between two of the league’s hottest teams lived up to the hype as Minnesota beat Colorado 3-2 in a shootout.`\
+https://nytimes.com/athletic/6846212/2025/11/28/wild-avalanche-kirill-kaprizov-nathan-mackinnon/
+
+**Two West Virginia Communities Bound Together by Grief**\
+`Red ribbons adorned one city, while blue ribbons hung in another town — all to honor the National Guard members who were attacked in Washington this week.`\
+https://nytimes.com/2025/11/28/us/national-guard-shooting-west-virginia.html
+
 **Islanders' Kyle Palmieri gets injured, makes trick play to set up goal while limping off ice**\
 `On his way to the bench with an injury, Palmieri stole the puck from an unsuspecting defenseman and started an improbable scoring play.`\
 https://nytimes.com/athletic/6846261/2025/11/28/islanders-kyle-palmieri-injury-flyers-assist-goal/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/28/us/politics/trump-affirmative-asylum.html
 **Bears-Eagles takeaways: Chicago bullies Philly with ground game in win**\
 `D'Andre Swift and Kyle Monangai rushed for more than 100 yards each as the Bears won the battle of division leaders.`\
 https://nytimes.com/athletic/6845867/2025/11/28/bears-eagles-black-friday-score-result-takeaways/
-
-**Trump Announces Pardon for Honduran Ex-President Convicted in Drug Case**\
-`President Trump said he would pardon Juan Orlando Hernández, who prosecutors said had received millions in bribes and had partnered with cocaine traffickers as Honduras’s president. He is serving 45 years in prison.`\
-https://nytimes.com/2025/11/28/world/americas/trump-pardon-honduras-hernandez.html
-
-**PWHL's Torrent break U.S. attendance record for pro women’s hockey game**\
-`The Seattle Torrent's home opener against the Minnesota Frost on Friday at Climate Pledge Arena drew 16,014 fans.`\
-https://nytimes.com/athletic/6846000/2025/11/28/seattle-torrent-womens-hockey-attendance-record-pwhl/
 
