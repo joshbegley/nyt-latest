@@ -1,3 +1,7 @@
+**On historic, Playoff-clinching day for Ole Miss, Egg Bowl triumph meets Lane Kiffin unease**\
+`Never in Ole Miss football history have things been this sweet — but could it be fleeting?`\
+https://nytimes.com/athletic/6846039/2025/11/28/ole-miss-lane-kiffin-decision-egg-bowl/
+
 **Bears-Eagles takeaways: Chicago bullies Philly with ground game in win**\
 `D'Andre Swift and Kyle Monangai rushed for more than 100 yards each as the Bears won the battle of division leaders.`\
 https://nytimes.com/athletic/6845867/2025/11/28/bears-eagles-black-friday-score-result-takeaways/
