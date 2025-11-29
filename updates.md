@@ -1,3 +1,7 @@
+**Walter Dowdle, Public Health Leader in Times of Crises, Dies at 94**\
+`Dr. Dowdle, a microbiologist who became the No. 2 official at the Centers for Disease Control and Prevention, helped lead the nation’s response to AIDS.`\
+https://nytimes.com/2025/11/29/us/walter-dowdle-dead.html
+
 **How to watch Ole Miss vs. George Mason women's basketball: Time, TV, streaming**\
 `Find out how to watch the Ole Miss Rebels play the George Mason Patriots, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6847211/2025/11/29/ole-miss-vs-george-mason-stream-how-to-watch-nov-29/
