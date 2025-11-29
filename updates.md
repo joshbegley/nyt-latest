@@ -1,3 +1,11 @@
+**Texas spoiled Texas A&M's undefeated season, SEC title hopes. Will win also get Horns into Playoff?**\
+`Texas A&M entered its rival's stadium as an undefeated, favored team with a chance to go to the SEC Championship Game for the first time.`\
+https://nytimes.com/athletic/6846475/2025/11/28/texas-am-texas-score-result-takeaways/
+
+**College Football Playoff 2025 projections: Most likely bracket with Rivalry Week underway**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/11/28/college-football-playoff-bracket-projections-odds/
+
 **Indiana completes first undefeated season since 1945 with rout of Purdue**\
 `The Hoosiers also secure a spot in the Big Ten title game for the first time in program history.`\
 https://nytimes.com/athletic/6846560/2025/11/28/indiana-purdue-score-result-takeaways/
