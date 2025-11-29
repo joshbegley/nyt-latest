@@ -22,7 +22,7 @@ https://nytimes.com/2025/11/29/dining/twas-two-nights-before-cookie-week.html
 `LSU sources believe Lane Kiffin will accept their job offer. `\
 https://nytimes.com/athletic/6847324/2025/11/29/lane-kiffin-lsu-ole-miss-coaching-decision/
 
-**Stroll told Aston Martin F1 staff team won’t sign Horner**\
+**Stroll told Aston Martin F1 staff team won’t sign Horner: Sources**\
 `Horner who was sacked by Red Bull in July following the British GP, has been working toward a return to the grid.`\
 https://nytimes.com/athletic/6847254/2025/11/29/f1-news-horner-aston-martin-stroll-qatar-grand-prix/
 

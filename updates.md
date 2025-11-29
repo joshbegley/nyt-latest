@@ -1,3 +1,7 @@
+**Stroll told Aston Martin F1 staff team won’t sign Horner: Sources**\
+`Horner who was sacked by Red Bull in July following the British GP, has been working toward a return to the grid.`\
+https://nytimes.com/athletic/6847254/2025/11/29/f1-news-horner-aston-martin-stroll-qatar-grand-prix/
+
 **Meet the unorthodox mind behind San Jose State's innovative 'spread and shred' offense**\
 `Spartans' Craig Stutzmann has taken elements of run-and-shoot, veer-and-shoot and RPO to create a defense's worst nightmare.`\
 https://nytimes.com/athletic/6841619/2025/11/29/san-jose-state-football-spread-and-shred-offense/
