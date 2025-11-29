@@ -1,3 +1,11 @@
+**Colleen Jones, Curling Champion and Broadcaster, Dies at 65**\
+`She won two world titles and six Canadian national championships, and was also a television anchor, reporter and commentator.`\
+https://nytimes.com/2025/11/29/sports/colleen-jones-dead.html
+
+**The Briefing: Everton 1 Newcastle 4 - How big is first away win? Has Miley played himself into Howe's XI?**\
+`Eddie Howe's side had not won away in the Premier League for nine games — a record dating back to April — before this convincing victory`\
+https://nytimes.com/athletic/6842205/2025/11/29/briefing-everton-1-newcastle-4/
+
 **Breaking down USMNT midfielder Tyler Adams' 47.4-yard wonder goal for Bournemouth**\
 `Before today, across 338 games for club and country, Adams had managed just eight goals. He might never score another like the ninth`\
 https://nytimes.com/athletic/6847614/2025/11/29/tyler-adams-halfway-line-goal-usmnt-premier-league/
