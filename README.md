@@ -1,3 +1,7 @@
+**Meet the unorthodox mind behind San Jose State's innovative 'spread and shred' offense**\
+`Spartans' Craig Stutzmann has taken elements of run-and-shoot, veer-and-shoot and RPO to create a defense's worst nightmare.`\
+https://nytimes.com/athletic/6841619/2025/11/29/san-jose-state-football-spread-and-shred-offense/
+
 **Scoop City: Fantasy tips to win Week 13**\
 `Scoop City Newsletter 🏈 | This is The Athletic’s free NFL newsletter.`\
 https://nytimes.com/athletic/6847322/2025/11/29/everything-fantasy-football-managers-need-to-know-for-week-13/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/29/us/politics/trump-venezuela-maduro-airspace.html
 **SailGP season finale: Spain falters, Kiwi driver back racing after severing finger**\
 `Two fleet races will be held on Sunday before the championship-deciding Grand Final`\
 https://nytimes.com/athletic/6847139/2025/11/29/abu-dhabi-sail-grand-prix-day-one-results/
-
-**In return to Mavs lineup, Anthony Davis watches former teammate Austin Reaves put on a show**\
-`Davis had 12 points and five rebounds in his return from injury against Dončić and the Lakers.`\
-https://nytimes.com/athletic/6846859/2025/11/29/anthony-davis-dallas-mavericks-lakers/
 
