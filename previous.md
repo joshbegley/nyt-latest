@@ -1,3 +1,11 @@
+**At the 25-game mark, how fixable are the Red Wings' issues this season?**\
+`The Red Wings hit the 25-game mark Friday with their third straight loss. Can they fix the defensive problems plaguing them?`\
+https://nytimes.com/athletic/6845695/2025/11/28/red-wings-lightning-defense-issues/
+
+**College Football Playoff 2025 projections: Most likely bracket with Rivalry Week underway**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/11/28/college-football-playoff-bracket-projections-odds/
+
 **On historic, Playoff-clinching day for Ole Miss, Egg Bowl triumph meets Lane Kiffin unease**\
 `Never in Ole Miss football history have things been this sweet — but could it be fleeting?`\
 https://nytimes.com/athletic/6846039/2025/11/28/ole-miss-lane-kiffin-decision-egg-bowl/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6845913/2025/11/28/rangers-bruins-vincent-trocheck-
 **Stanford names Washington Commanders assistant Tavita Pritchard as next head coach**\
 `Tavita Pritchard returns to Stanford after playing and working as an assistant for the Cardinal  before joining the Commanders.`\
 https://nytimes.com/athletic/6845960/2025/11/28/stanford-head-coach-tavita-pritchard-washington-commanders-comman/
-
-**Lane Kiffin calls reporter's podcast comment 'bush league' after win**\
-`The Ole Miss coach and Ben Garrett of On3 crossed paths after the Egg Bowl, where the two spoke briefly.`\
-https://nytimes.com/athletic/6845891/2025/11/28/lane-kiffin-egg-bowl-reporter-ben-garrett/
-
-**Airbus Orders Software Update for A320 Jets**\
-`The European airplane maker said a recent incident had shown that “intense solar radiation may corrupt data critical to the functioning of flight controls.”`\
-https://nytimes.com/2025/11/28/business/airbus-software-a320-jets.html
 
