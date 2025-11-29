@@ -1,3 +1,7 @@
+**As Cyclone Deaths Pass 120, Sri Lanka Is Overwhelmed by Rescue Demand**\
+`Rescue efforts across the nation of 23 million have been hampered by disruptions in transport and telecommunications.`\
+https://nytimes.com/2025/11/29/world/asia/sri-lanka-cyclone-ditwah-floods.html
+
 **How to watch Oklahoma State vs. Miami (FL) women's basketball: Time, TV, streaming**\
 `Find out how to watch the Oklahoma State Cowgirls play the Miami Hurricanes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6846854/2025/11/29/oklahoma-state-vs-miami-fl-stream-how-to-watch-nov-29/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6846620/2025/11/29/2025-nba-cup-quarterfinals-match
 **The New York Times in Print for Saturday, Nov. 29, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/11/29/todays-new-york-times
-
-**Georgia heading to SEC championship game with Texas A&M's loss**\
-`The Bulldogs' opponent depends on whether Alabama beats Auburn on Saturday night.`\
-https://nytimes.com/athletic/6846634/2025/11/29/georgia-sec-championship-game-opponents/
 
