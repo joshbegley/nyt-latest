@@ -1,3 +1,7 @@
+**Blues show 'most desperation of the year' in comeback win over Senators**\
+`The Blues won 4-3 with a three-goal third period, including Pavel Buchnevich's first five-on-five goal of the season.`\
+https://nytimes.com/athletic/6845848/2025/11/28/blues-senators-win-pavel-buchnevich/
+
 **Nick Sirianni backs Kevin Patullo after 'Fire Kevin' chants, boos pepper lackluster offense**\
 `The Eagles offense is still searching for answers after yet another quiet game.`\
 https://nytimes.com/athletic/6846485/2025/11/28/nick-sirianni-backs-kevin-patullo-eagles-fans-boos/

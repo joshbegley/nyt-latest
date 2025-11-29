@@ -1,3 +1,7 @@
+**Indiana finishes first undefeated season in program history with rout of Purdue**\
+`The Hoosiers also secure a spot in the Big Ten title game for the first time in program history.`\
+https://nytimes.com/athletic/6846560/2025/11/28/indiana-purdue-score-result-takeaways/
+
 **Blues show 'most desperation of the year' in comeback win over Senators**\
 `The Blues won 4-3 with a three-goal third period, including Pavel Buchnevich's first five-on-five goal of the season.`\
 https://nytimes.com/athletic/6845848/2025/11/28/blues-senators-win-pavel-buchnevich/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6846378/2025/11/28/bears-running-game-offensive-lin
 **Tage Thompson fight not enough in Sabres loss as 'Fire Adams' chants continue: 5 thoughts**\
 `The crowd in Buffalo's 5-0 loss to New Jersey grew hostile toward GM Kevyn Adams and tried to start a chant about selling the team.`\
 https://nytimes.com/athletic/6846259/2025/11/28/sabres-devils-tage-thompson-fight-kevyn-adams/
-
-**Take It Back!**\
-`Adrian Johnson’s latest themeless puzzle is gritty and graceful.`\
-https://nytimes.com/2025/11/28/crosswords/daily-puzzle-2025-11-29.html
 
