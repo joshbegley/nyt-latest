@@ -1,3 +1,7 @@
+**The Briefing: Tottenham 1 Fulham 2 - Why did Spurs fans boo their goalkeeper?**\
+`Tottenham Hotspur suffered a 2-1 defeat against Fulham on Saturday night`\
+https://nytimes.com/athletic/6842206/2025/11/29/tottenham-fulham-result-report-analysis/
+
 **Deion Sanders intends to fix Colorado 'if it's the last thing I do'**\
 `When asked how he will get Colorado out of its rut, Sanders said: “It’s no rut. You’re just not good.” He said changes are on the way.`\
 https://nytimes.com/athletic/6847939/2025/11/29/deion-sanders-colorado-losing-season/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6840108/2025/11/29/ryan-helsley-orioles-free-agent-
 **Ohio State ends Michigan angst, cruises to Big Ten title game: Key takeaways**\
 `No. 1 Ohio State pulled away from No. 15 Michigan 27-9, its first rivalry win since 2019 to knock the Wolverines out of the CFP chase.`\
 https://nytimes.com/athletic/6847775/2025/11/29/ohio-state-michigan-football-score-result/
-
-**Several Arrested as Protesters Block Federal Agents in Manhattan Garage**\
-`The confrontation appeared to foil a possible ICE raid nearby, underscoring the numerous challenges the federal government faces in trying to stage raids in a dense city like New York.`\
-https://nytimes.com/2025/11/29/nyregion/ice-raids-protests-nyc.html
 
