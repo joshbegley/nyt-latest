@@ -1,3 +1,11 @@
+**Shoppers, Drawn by Steep Discounts, Power Through Black Friday**\
+`Data on spending this week shows that consumers are shopping big for the holidays despite inflation and economic worries.`\
+https://nytimes.com/2025/11/29/business/economy/black-friday-spending.html
+
+**Tom Stoppard, Award-Winning Playwright of Witty Drama, Dies at 88**\
+`Drawing comparisons to the greatest of dramatists, he entwined erudition with imagination in stage works that won accolades on both sides of the Atlantic.`\
+https://nytimes.com/2025/11/29/theater/tom-stoppard-dead.html
+
 **Arizona's defeat of rival Arizona State highlights remarkable reversal under Brent Brennan**\
 `The red-hot Wildcats forced five turnovers, robbing Arizona State of a spot in the Big 12 title game.`\
 https://nytimes.com/athletic/6846812/2025/11/29/arizona-arizona-state-score-territorial-cup-brent-brennan/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6847635/2025/11/29/flyers-vs-devils-stream-how-to-w
 **How to watch Mammoth vs. Blues: Time, TV, streaming**\
 `Find out how to watch the Utah Mammoth play the St. Louis Blues, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6847630/2025/11/29/mammoth-vs-blues-stream-how-to-watch-nov-29/
-
-**How to watch Pistons vs. Heat: Time, TV, streaming**\
-`Find out how to watch the Detroit Pistons play the Miami Heat, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6847631/2025/11/29/pistons-vs-heat-stream-how-to-watch-nov-29/
-
-**How to watch Bulls vs. Pacers: Time, TV, streaming**\
-`Find out how to watch the Chicago Bulls play the Indiana Pacers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6847629/2025/11/29/bulls-vs-pacers-stream-how-to-watch-nov-29/
 

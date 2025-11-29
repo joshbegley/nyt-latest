@@ -1,3 +1,11 @@
+**Shoppers, Drawn by Steep Discounts, Power Through Black Friday**\
+`Data on spending this week shows that consumers are shopping big for the holidays despite inflation and economic worries.`\
+https://nytimes.com/2025/11/29/business/economy/black-friday-spending.html
+
+**Tom Stoppard, Award-Winning Playwright of Witty Drama, Dies at 88**\
+`Drawing comparisons to the greatest of dramatists, he entwined erudition with imagination in stage works that won accolades on both sides of the Atlantic.`\
+https://nytimes.com/2025/11/29/theater/tom-stoppard-dead.html
+
 **Arizona's defeat of rival Arizona State highlights remarkable reversal under Brent Brennan**\
 `The red-hot Wildcats forced five turnovers, robbing Arizona State of a spot in the Big 12 title game.`\
 https://nytimes.com/athletic/6846812/2025/11/29/arizona-arizona-state-score-territorial-cup-brent-brennan/
