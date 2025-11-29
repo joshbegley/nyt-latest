@@ -1,3 +1,23 @@
+**How to watch Pelicans vs. Warriors: Time, TV, streaming**\
+`Find out how to watch the New Orleans Pelicans play the Golden State Warriors, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6847859/2025/11/29/pelicans-vs-warriors-stream-how-to-watch-nov-29/
+
+**How to watch Nuggets vs. Suns: Time, TV, streaming**\
+`Find out how to watch the Denver Nuggets play the Phoenix Suns, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6847857/2025/11/29/nuggets-vs-suns-stream-how-to-watch-nov-29/
+
+**How to watch Mavericks vs. Clippers: Time, TV, streaming**\
+`Find out how to watch the Dallas Mavericks play the Los Angeles Clippers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6847855/2025/11/29/mavericks-vs-clippers-stream-how-to-watch-nov-29/
+
+**How to watch Sharks vs. Golden Knights: Time, TV, streaming**\
+`Find out how to watch the San Jose Sharks play the Vegas Golden Knights, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6847853/2025/11/29/sharks-vs-golden-knights-stream-how-to-watch-nov-29/
+
+**How to watch Canucks vs. Kings: Time, TV, streaming**\
+`Find out how to watch the Vancouver Canucks play the Los Angeles Kings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6847851/2025/11/29/canucks-vs-kings-stream-how-to-watch-nov-29/
+
 **Leeds' Farke wants authorities to prevent players from feigning injuries**\
 `Farke did not feel City gaining a tactical advantage after goalkeeper Donnarumma feigned an injury was in the right spirit of fair play.`\
 https://nytimes.com/athletic/6847799/2025/11/29/leeds-man-city-news-premier-league-donnarumma/
@@ -17,24 +37,4 @@ https://nytimes.com/2025/11/29/sports/colleen-jones-dead.html
 **Breaking down USMNT midfielder Tyler Adams' 47.4-yard wonder goal for Bournemouth**\
 `Before today, across 338 games for club and country, Adams had managed just eight goals. He might never score another like the ninth`\
 https://nytimes.com/athletic/6847614/2025/11/29/tyler-adams-halfway-line-goal-usmnt-premier-league/
-
-**The Briefing: Everton 1 Newcastle 4 - How big is first away win? Has Miley played himself into Howe's XI?**\
-`Eddie Howe's side had not won away in the Premier League for nine games — a record dating back to April — before this convincing victory`\
-https://nytimes.com/athletic/6842205/2025/11/29/newcastle-everton-premier-league-analysis/
-
-**Oscar Piastri beats Lando Norris for Qatar GP pole with F1 championship at stake**\
-`Norris needs to win the grand prix to clinch his first F1 championship, but qualifying has left him a tough task`\
-https://nytimes.com/athletic/6847699/2025/11/29/qatar-gp-qualifying-results/
-
-**The Grand Ole Opry Toasts a Century and Considers What’s Next**\
-`A hundred years after it first went live, Nashville’s famed country music show celebrated its history with a series of performances.`\
-https://nytimes.com/2025/11/29/us/grand-ole-opry-100th-anniversary.html
-
-**Ranking college football's 10 open coaching jobs: LSU No. 1; Auburn or Arkansas?**\
-`This could be the most active coaching carousel college football has seen in many years.`\
-https://nytimes.com/athletic/6662286/2025/11/29/college-football-open-coaching-jobs-rankings/
-
-**Kevon Looney returns to the Bay, where the former Warriors pillar won't be forgotten**\
-`Looney's style made him a key part of three Warriors titles. On Saturday, he comes back to the Bay, this time as a member of the Pelicans.`\
-https://nytimes.com/athletic/6846730/2025/11/29/kevon-looney-golden-state-warriors-bay-area-pelicans/
 
