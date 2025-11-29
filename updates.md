@@ -1,3 +1,11 @@
+**Arizona's defeat of rival Arizona State highlights remarkable reversal under Brent Brennan**\
+`The red-hot Wildcats forced five turnovers, robbing Arizona State of a spot in the Big 12 title game.`\
+https://nytimes.com/athletic/6846812/2025/11/29/arizona-arizona-state-score-territorial-cup-brent-brennan/
+
+**Mourners Line Up to Honor Victims of Hong Kong’s Deadliest Fire in Decades**\
+`The police said they expected the death toll of 128 to rise as the authorities began combing through the charred apartment towers.`\
+https://nytimes.com/2025/11/29/world/asia/mourners-hong-kong-fire.html
+
 **Kim Mulkey, LSU set NCAA record with 7-straight 100-point games**\
 `Friday's win over Marist broke a record set by Mulkey's 1982 Lousiana Tech team. `\
 https://nytimes.com/athletic/6847424/2025/11/29/kim-mulkey-lsu-set-ncaa-record-with-7-straight-100-point-games/

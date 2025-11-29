@@ -1,3 +1,11 @@
+**Arizona's defeat of rival Arizona State highlights remarkable reversal under Brent Brennan**\
+`The red-hot Wildcats forced five turnovers, robbing Arizona State of a spot in the Big 12 title game.`\
+https://nytimes.com/athletic/6846812/2025/11/29/arizona-arizona-state-score-territorial-cup-brent-brennan/
+
+**Mourners Line Up to Honor Victims of Hong Kong’s Deadliest Fire in Decades**\
+`The police said they expected the death toll of 128 to rise as the authorities began combing through the charred apartment towers.`\
+https://nytimes.com/2025/11/29/world/asia/mourners-hong-kong-fire.html
+
 **Kim Mulkey, LSU set NCAA record with 7-straight 100-point games**\
 `Friday's win over Marist broke a record set by Mulkey's 1982 Lousiana Tech team. `\
 https://nytimes.com/athletic/6847424/2025/11/29/kim-mulkey-lsu-set-ncaa-record-with-7-straight-100-point-games/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6847631/2025/11/29/pistons-vs-heat-stream-how-to-wa
 **How to watch Bulls vs. Pacers: Time, TV, streaming**\
 `Find out how to watch the Chicago Bulls play the Indiana Pacers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6847629/2025/11/29/bulls-vs-pacers-stream-how-to-watch-nov-29/
-
-**How to watch Maple Leafs vs. Penguins: Time, TV, streaming**\
-`Find out how to watch the Toronto Maple Leafs play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6847625/2025/11/29/maple-leafs-vs-penguins-stream-how-to-watch-nov-29/
-
-**How to watch Nets vs. Bucks: Time, TV, streaming**\
-`Find out how to watch the Brooklyn Nets play the Milwaukee Bucks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6847623/2025/11/29/nets-vs-bucks-stream-how-to-watch-nov-29/
 
