@@ -1,3 +1,11 @@
+**Ben Johnson is the difference for thankful Chicago Bears**\
+`It's clear the Bears are worth getting excited about, and it's indisputable that Johnson is worth every comma in his contract.`\
+https://nytimes.com/athletic/6846431/2025/11/29/ben-johnson-coach-bears/
+
+**Mandel: Is there some unknown force that prevents Texas A&M from having nice things?**\
+`There is a silver lining for Texas A&M despite getting embarrassed by its rival and missing the conference title game.`\
+https://nytimes.com/athletic/6847052/2025/11/29/texas-am-texas-loss-college-football-playoff-rivalry/
+
 **Texas Tech, BYU clinch Big 12 championship berths thanks to Arizona State loss**\
 `BYU and Texas Tech will go for round 2 in the Big 12 Championship Game. `\
 https://nytimes.com/athletic/6847039/2025/11/29/big-12-championship-texas-tech-byu-arizona-state-loss/
