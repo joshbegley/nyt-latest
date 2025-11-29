@@ -1,3 +1,7 @@
+**How to watch Lightning vs. Rangers: Time, TV, streaming**\
+`Find out how to watch the Tampa Bay Lightning play the New York Rangers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6846966/2025/11/29/lightning-vs-rangers-stream-how-to-watch-nov-29/
+
 **How to watch BYU vs. Vanderbilt women's basketball: Time, TV, streaming**\
 `Find out how to watch the BYU Cougars play the Vanderbilt Commodores, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6846964/2025/11/29/byu-vs-vanderbilt-stream-how-to-watch-nov-29/

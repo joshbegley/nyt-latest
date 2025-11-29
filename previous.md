@@ -1,3 +1,7 @@
+**How to watch Lightning vs. Rangers: Time, TV, streaming**\
+`Find out how to watch the Tampa Bay Lightning play the New York Rangers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6846966/2025/11/29/lightning-vs-rangers-stream-how-to-watch-nov-29/
+
 **How to watch BYU vs. Vanderbilt women's basketball: Time, TV, streaming**\
 `Find out how to watch the BYU Cougars play the Vanderbilt Commodores, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6846964/2025/11/29/byu-vs-vanderbilt-stream-how-to-watch-nov-29/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/29/world/canada/asylum-seekers-us-canada-border.html
 **Connections Companion No. 903**\
 `Scroll down for hints and conversation about the puzzle for Sunday, Nov. 30, 2025.`\
 https://nytimes.com/2025/11/29/crosswords/connections-companion-903.html
-
-**Strands Sidekick No. 637**\
-`Scroll down for hints and conversation about the puzzle for Sunday, Nov. 30, 2025`\
-https://nytimes.com/2025/11/29/crosswords/strands-sidekick-637.html
 
