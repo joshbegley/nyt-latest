@@ -1,3 +1,11 @@
+**Hog Wild**\
+`Natan Last’s puzzle is a gem.`\
+https://nytimes.com/2025/11/29/crosswords/daily-puzzle-2025-11-30.html
+
+**Yale scores 29 unanswered points to beat Youngstown State 43-42 in FCS playoffs**\
+`Josh Pitsenberger's 56-yard touchdown run in the closing minutes lifted the Bulldogs to a miracle victory in their FCS debut.`\
+https://nytimes.com/athletic/6847943/2025/11/29/yale-youngtown-comeback-fcs-playoffs/
+
 **Amorim feels Dorgu's 'anxiety' at Man Utd but 'he has time to improve'**\
 `In Amorim’s eyes, the £25.2million signing from Lecce last January is still finding the confidence to play under the scrutiny at United.`\
 https://nytimes.com/athletic/6845163/2025/11/29/patrick-dorgu-manchester-united-ruben-amorim/
