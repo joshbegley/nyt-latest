@@ -1,3 +1,11 @@
+**Stroll told Aston Martin F1 staff team won’t sign Horner**\
+`Horner who was sacked by Red Bull in July following the British GP, has been working toward a return to the grid.`\
+https://nytimes.com/athletic/6847254/2025/11/29/f1-news-horner-aston-martin-stroll-qatar-grand-prix/
+
+**Oscar Piastri wins Qatar sprint race, Lando Norris sees off Max Verstappen**\
+`Oscar Piastri won the final sprint race of the 2025 Formula One season, staying ahead of George Russell and Lando Norris, who rounded out the top three on Saturday evening in Qatar.`\
+https://nytimes.com/athletic/6847217/2025/11/29/qatar-gp-sprint-race-results/
+
 **Trump Declares Venezuelan Airspace Closed**\
 `President Trump said days earlier that the United States could “very soon” expand its campaign of killing people at sea suspected of drug trafficking to attacking Venezuelan territory.`\
 https://nytimes.com/2025/11/29/us/politics/trump-venezuela-maduro-airspace.html

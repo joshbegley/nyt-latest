@@ -1,3 +1,11 @@
+**Stroll told Aston Martin F1 staff team won’t sign Horner**\
+`Horner who was sacked by Red Bull in July following the British GP, has been working toward a return to the grid.`\
+https://nytimes.com/athletic/6847254/2025/11/29/f1-news-horner-aston-martin-stroll-qatar-grand-prix/
+
+**Oscar Piastri wins Qatar sprint race, Lando Norris sees off Max Verstappen**\
+`Oscar Piastri won the final sprint race of the 2025 Formula One season, staying ahead of George Russell and Lando Norris, who rounded out the top three on Saturday evening in Qatar.`\
+https://nytimes.com/athletic/6847217/2025/11/29/qatar-gp-sprint-race-results/
+
 **Trump Declares Venezuelan Airspace Closed**\
 `President Trump said days earlier that the United States could “very soon” expand its campaign of killing people at sea suspected of drug trafficking to attacking Venezuelan territory.`\
 https://nytimes.com/2025/11/29/us/politics/trump-venezuela-maduro-airspace.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/29/world/asia/pope-leo-istanbul-blue-mosque-prayer.h
 **College football conference championship scenarios: Who can clinch and how**\
 `Here are all of the possible conference title game matchups — and what needs to happen Saturday to get there.`\
 https://nytimes.com/athletic/6844322/2025/11/29/college-football-conference-championship-game-scenarios/
-
-**Walter Dowdle, Public Health Leader in Times of Crises, Dies at 94**\
-`Dr. Dowdle, a microbiologist who became the No. 2 official at the Centers for Disease Control and Prevention, helped lead the nation’s response to AIDS.`\
-https://nytimes.com/2025/11/29/us/walter-dowdle-dead.html
-
-**How to watch Ole Miss vs. George Mason women's basketball: Time, TV, streaming**\
-`Find out how to watch the Ole Miss Rebels play the George Mason Patriots, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6847211/2025/11/29/ole-miss-vs-george-mason-stream-how-to-watch-nov-29/
 
