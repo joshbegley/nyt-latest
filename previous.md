@@ -1,3 +1,7 @@
+**Texas Tech, BYU clinch Big 12 championship berths thanks to Arizona State loss**\
+`BYU and Texas Tech will go for round 2 in the Big 12 Championship Game. `\
+https://nytimes.com/athletic/6847039/2025/11/29/big-12-championship-texas-tech-byu-arizona-state-loss/
+
 **Arch Manning's performance vs. Texas A&M a microcosm of what we've seen this season**\
 `Manning fired off Smokey the Cannon in celebration with the Texas Cowboys after the Longhorns victory.  `\
 https://nytimes.com/athletic/6847022/2025/11/29/arch-manning-texas-texas-am-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/29/opinion/diaries-writing-ai.html
 **The Education Department’s Forgotten Antiracist Origins**\
 `The U.S. first had a federal education department in 1867 — not 1979. Its history is critical in understanding the federal role in schools.`\
 https://nytimes.com/2025/11/29/opinion/education-department-trump-antiracist.html
-
-**Texas, and the CFP debate the SEC dreamed of, is alive**\
-`A lot of uncomfortable conversations the CFP committee has been avoiding are about to take center stage.`\
-https://nytimes.com/athletic/6846960/2025/11/29/texas-college-football-playoff-resume-sec/
 
