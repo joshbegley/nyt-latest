@@ -1,40 +1,40 @@
-**How to watch Washington State vs. LSU women's basketball: Time, TV, streaming**\
-`Find out how to watch the Washington State Cougars play the LSU Tigers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6847598/2025/11/29/washington-state-vs-lsu-stream-how-to-watch-nov-29/
+**How to watch Sabres vs. Wild: Time, TV, streaming**\
+`Find out how to watch the Buffalo Sabres play the Minnesota Wild, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6847639/2025/11/29/sabres-vs-wild-stream-how-to-watch-nov-29/
 
-**The Briefing: Man City 3 Leeds 2 - How impressive was Foden? Does Farke deserve credit for changes?**\
-`Manchester City managed to overcome Leeds United late on in a five-goal thriller at the Etihad Stadium`\
-https://nytimes.com/athletic/6842204/2025/11/29/manchester-city-leeds-result-report-analysis/
+**How to watch Jets vs. Predators: Time, TV, streaming**\
+`Find out how to watch the Winnipeg Jets play the Nashville Predators, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6847637/2025/11/29/jets-vs-predators-stream-how-to-watch-nov-29/
 
-**Lions center Frank Ragnow fails physical, won't rejoin team this season**\
-`The Lions had announced Ragnow would come out of retirement Wednesday.`\
-https://nytimes.com/athletic/6847495/2025/11/29/frank-ragnow-lions-failed-physical-retirement-comeback/
+**How to watch Red Wings vs. Bruins: Time, TV, streaming**\
+`Find out how to watch the Detroit Red Wings play the Boston Bruins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6847634/2025/11/29/red-wings-vs-bruins-stream-how-to-watch-nov-29/
 
-**Norris responds to Verstappen’s F1 title claim: ‘Just talking nonsense’**\
-`“Max generally has a good clue about a lot of things, but also a lot of things he doesn’t have much of a clue about,” Norris said.`\
-https://nytimes.com/athletic/6847499/2025/11/29/lando-norris-max-verstappen-f1-title/
+**How to watch Flyers vs. Devils: Time, TV, streaming**\
+`Find out how to watch the Philadelphia Flyers play the New Jersey Devils, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6847635/2025/11/29/flyers-vs-devils-stream-how-to-watch-nov-29/
 
-**‘I’ve Never Eaten, Let Alone Made, a Better Sugar Cookie’**\
-`Readers love Samantha Seneviratne’s soft and chewy sugar cookies, and so do I.`\
-https://nytimes.com/2025/11/29/dining/ive-never-eaten-let-alone-made-a-better-sugar-cookie.html
+**How to watch Mammoth vs. Blues: Time, TV, streaming**\
+`Find out how to watch the Utah Mammoth play the St. Louis Blues, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6847630/2025/11/29/mammoth-vs-blues-stream-how-to-watch-nov-29/
 
-**Meet the unorthodox mind behind San Jose State's innovative 'spread and shred' offense**\
-`Spartans' Craig Stutzmann has taken elements of run-and-shoot, veer-and-shoot and RPO to create a defense's worst nightmare.`\
-https://nytimes.com/athletic/6841619/2025/11/29/san-jose-state-football-spread-and-shred-offense/
+**How to watch Pistons vs. Heat: Time, TV, streaming**\
+`Find out how to watch the Detroit Pistons play the Miami Heat, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6847631/2025/11/29/pistons-vs-heat-stream-how-to-watch-nov-29/
 
-**Scoop City: Fantasy tips to win Week 13**\
-`Scoop City Newsletter 🏈 | This is The Athletic’s free NFL newsletter.`\
-https://nytimes.com/athletic/6847322/2025/11/29/everything-fantasy-football-managers-need-to-know-for-week-13/
+**How to watch Bulls vs. Pacers: Time, TV, streaming**\
+`Find out how to watch the Chicago Bulls play the Indiana Pacers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6847629/2025/11/29/bulls-vs-pacers-stream-how-to-watch-nov-29/
 
-**Ji'Ayir Brown the latest 49er to bounce into key role in 8-4 start**\
-`The next-man-up mentality is a cliche in the NFL because it’s true, and the 49ers have lived by it this season.`\
-https://nytimes.com/athletic/6846146/2025/11/29/jiayir-brown-49ers-key-role/
+**How to watch Maple Leafs vs. Penguins: Time, TV, streaming**\
+`Find out how to watch the Toronto Maple Leafs play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6847625/2025/11/29/maple-leafs-vs-penguins-stream-how-to-watch-nov-29/
 
-**Vikings-Seahawks predictions: Can Max Brosmer beat a serious NFC contender?**\
-`The undrafted rookie quarterback is set to make his first NFL start on the road against a tough foe: Sam Darnold and the 8-3 Seahawks.`\
-https://nytimes.com/athletic/6841103/2025/11/29/vikings-seahawks-predictions-preview-max-brosmer/
+**How to watch Nets vs. Bucks: Time, TV, streaming**\
+`Find out how to watch the Brooklyn Nets play the Milwaukee Bucks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6847623/2025/11/29/nets-vs-bucks-stream-how-to-watch-nov-29/
 
-**’Twas Two Nights Before Cookie Week**\
-`And all through the house, not a baker was stirring — yet.`\
-https://nytimes.com/2025/11/29/dining/twas-two-nights-before-cookie-week.html
+**How to watch Raptors vs. Hornets: Time, TV, streaming**\
+`Find out how to watch the Toronto Raptors play the Charlotte Hornets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6847621/2025/11/29/raptors-vs-hornets-stream-how-to-watch-nov-29/
 

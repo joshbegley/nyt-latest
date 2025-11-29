@@ -1,3 +1,7 @@
+**How to watch Washington State vs. LSU women's basketball: Time, TV, streaming**\
+`Find out how to watch the Washington State Cougars play the LSU Tigers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6847598/2025/11/29/washington-state-vs-lsu-stream-how-to-watch-nov-29/
+
 **The Briefing: Man City 3 Leeds 2 - How impressive was Foden? Does Farke deserve credit for changes?**\
 `Manchester City managed to overcome Leeds United late on in a five-goal thriller at the Etihad Stadium`\
 https://nytimes.com/athletic/6842204/2025/11/29/manchester-city-leeds-result-report-analysis/
