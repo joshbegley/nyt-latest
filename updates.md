@@ -1,3 +1,7 @@
+**NBA Cup group play wraps up on Friday. Stay updated with the results.**\
+`Twelve teams battled for six spots in the NBA Cup's knockout rounds. Check out the results of the most vital matchup.`\
+https://nytimes.com/athletic/6846086/2025/11/28/nba-cup-group-stage-results-magic-knicks-bucks-2025/
+
 **F.D.A. Attributes 10 Children’s Deaths to Covid Vaccines**\
 `The agency’s top vaccine regulator said that a review had found that the children were likely to have died “because of” the shots. But public health experts want to examine the data.`\
 https://nytimes.com/2025/11/28/health/fda-children-deaths-covid-vaccines.html
