@@ -1,3 +1,7 @@
+**The Briefing: Tottenham 1 Fulham 2 - Why did Spurs fans boo their goalkeeper?**\
+`Tottenham Hotspur suffered a 2-1 defeat against Fulham on Saturday night`\
+https://nytimes.com/athletic/6842206/2025/11/29/tottenham-fulham-result-report-analysis/
+
 **Deion Sanders intends to fix Colorado 'if it's the last thing I do'**\
 `When asked how he will get Colorado out of its rut, Sanders said: “It’s no rut. You’re just not good.” He said changes are on the way.`\
 https://nytimes.com/athletic/6847939/2025/11/29/deion-sanders-colorado-losing-season/
