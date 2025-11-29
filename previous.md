@@ -1,3 +1,11 @@
+**Targeting Venezuela and Pardoning Honduran Ex-President, Trump Contradicts Himself**\
+`President Trump’s statements on social media less than 24 hours apart showed the dissonance in his campaign against drug trafficking.`\
+https://nytimes.com/2025/11/29/us/politics/trump-honduras-venezuela.html
+
+**L.A. Man Is Charged With Stopping Freeway Traffic to Film Music Video**\
+`The closure happened in 2023, prosecutors said. As part of the video, drivers conducted doughnuts around a performer, who was charged with conspiracy to commit exhibition of speed.`\
+https://nytimes.com/2025/11/29/us/los-angeles-man-110-freeway-music-video.html
+
 **Colleen Jones, Curling Champion and Broadcaster, Dies at 65**\
 `She won two world titles and six Canadian national championships, and was also a television anchor, reporter and commentator.`\
 https://nytimes.com/2025/11/29/sports/colleen-jones-dead.html
@@ -8,7 +16,7 @@ https://nytimes.com/athletic/6847614/2025/11/29/tyler-adams-halfway-line-goal-us
 
 **The Briefing: Everton 1 Newcastle 4 - How big is first away win? Has Miley played himself into Howe's XI?**\
 `Eddie Howe's side had not won away in the Premier League for nine games — a record dating back to April — before this convincing victory`\
-https://nytimes.com/athletic/6842205/2025/11/29/briefing-everton-1-newcastle-4/
+https://nytimes.com/athletic/6842205/2025/11/29/newcastle-everton-premier-league-analysis/
 
 **Oscar Piastri beats Lando Norris for Qatar GP pole with F1 championship at stake**\
 `Norris needs to win the grand prix to clinch his first F1 championship, but qualifying has left him a tough task`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6846730/2025/11/29/kevon-looney-golden-state-warrio
 **Gazans Say Israeli Forces Killed Two Children, Amid Persistent Violence**\
 `The Israeli military said it had fired on two “suspects” on Saturday who had crossed cease-fire lines in southern Gaza and did not comment on reports that they were young children.`\
 https://nytimes.com/2025/11/29/world/middleeast/israeli-forces-gaza-children-attack.html
-
-**Shoppers, Drawn by Steep Discounts, Power Through Black Friday**\
-`Data on spending this week shows that consumers are shopping big for the holidays despite inflation and economic worries.`\
-https://nytimes.com/2025/11/29/business/economy/black-friday-spending.html
-
-**Tom Stoppard, Award-Winning Playwright of Witty Drama, Dies at 88**\
-`Drawing comparisons to the greatest of dramatists, he entwined erudition with imagination in stage works that won accolades on both sides of the Atlantic.`\
-https://nytimes.com/2025/11/29/theater/tom-stoppard-dead.html
 
