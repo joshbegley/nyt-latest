@@ -1,3 +1,7 @@
+**Walter Dowdle, Public Health Leader in Times of Crises, Dies at 94**\
+`Dr. Dowdle, a microbiologist who became the No. 2 official at the Centers for Disease Control and Prevention, helped lead the nation’s response to AIDS.`\
+https://nytimes.com/2025/11/29/us/walter-dowdle-dead.html
+
 **How to watch Ole Miss vs. George Mason women's basketball: Time, TV, streaming**\
 `Find out how to watch the Ole Miss Rebels play the George Mason Patriots, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6847211/2025/11/29/ole-miss-vs-george-mason-stream-how-to-watch-nov-29/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6846431/2025/11/29/ben-johnson-coach-bears/
 **Mandel: Is there some unknown force that prevents Texas A&M from having nice things?**\
 `There is a silver lining for Texas A&M despite getting embarrassed by its rival and missing the conference title game.`\
 https://nytimes.com/athletic/6847052/2025/11/29/texas-am-texas-loss-college-football-playoff-rivalry/
-
-**Texas Tech, BYU clinch Big 12 championship berths thanks to Arizona State loss**\
-`BYU and Texas Tech will go for round 2 in the Big 12 Championship Game. `\
-https://nytimes.com/athletic/6847039/2025/11/29/big-12-championship-texas-tech-byu-arizona-state-loss/
 
