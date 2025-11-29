@@ -1,9 +1,13 @@
+**The Briefing: Man City 3 Leeds 2 - How impressive was Foden? Does Farke deserve credit for changes?**\
+`Manchester City managed to overcome Leeds United to win 3-2 at the Etihad Stadium`\
+https://nytimes.com/athletic/6842204/2025/11/29/manchester-city-leeds-result-report-analysis/
+
 **Lions center Frank Ragnow fails physical, won't rejoin team this season**\
 `The Lions had announced Ragnow would come out of retirement Wednesday.`\
 https://nytimes.com/athletic/6847495/2025/11/29/frank-ragnow-lions-failed-physical-retirement-comeback/
 
 **Norris responds to Verstappen’s F1 title claim: ‘Just talking nonsense’**\
-`LUSAIL, Qatar — Lando Norris has brushed off Max Verstappen’s claim the championship would have been over “a long time ago” if he was driving a McLaren, saying it fits Red Bull’s approach of “just talking nonsense.`\
+`“Max generally has a good clue about a lot of things, but also a lot of things he doesn’t have much of a clue about,” Norris said.`\
 https://nytimes.com/athletic/6847499/2025/11/29/lando-norris-max-verstappen-f1-title/
 
 **‘I’ve Never Eaten, Let Alone Made, a Better Sugar Cookie’**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/29/dining/twas-two-nights-before-cookie-week.html
 **LSU 'very confident' that Lane Kiffin will be coaching the Tigers: Sources**\
 `LSU sources believe Lane Kiffin will accept their job offer. `\
 https://nytimes.com/athletic/6847324/2025/11/29/lane-kiffin-lsu-ole-miss-coaching-decision/
-
-**Stroll told Aston Martin F1 staff team won’t sign Horner: Sources**\
-`Horner who was sacked by Red Bull in July following the British GP, has been working toward a return to the grid.`\
-https://nytimes.com/athletic/6847254/2025/11/29/f1-news-horner-aston-martin-stroll-qatar-grand-prix/
 
