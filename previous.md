@@ -3,7 +3,7 @@
 https://nytimes.com/2025/11/28/us/politics/trump-affirmative-asylum.html
 
 **Bears-Eagles takeaways: Chicago bullies Philly with ground game in win**\
-`D'Andre Swift, Kyle Monangai both rush for more than 100 yards as Bears win battle of division leaders.`\
+`D'Andre Swift and Kyle Monangai rushed for more than 100 yards each as the Bears won the battle of division leaders.`\
 https://nytimes.com/athletic/6845867/2025/11/28/bears-eagles-black-friday-score-result-takeaways/
 
 **Trump Announces Pardon for Honduran Ex-President Convicted in Drug Case**\
