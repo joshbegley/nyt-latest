@@ -1,3 +1,7 @@
+**Tottenham 1 Fulham 2: Spurs fans boo their goalkeeper, Frank left to fix familiar issues**\
+`In suffering yet another home defeat, Spurs are in 10th place in the Premier League and four games without a win `\
+https://nytimes.com/athletic/6842206/2025/11/29/tottenham-fulham-result-report-analysis/
+
 **The Briefing: Tottenham 1 Fulham 2 - Why did Spurs fans boo their goalkeeper?**\
 `Tottenham Hotspur suffered a 2-1 defeat against Fulham on Saturday night`\
 https://nytimes.com/athletic/6842206/2025/11/29/tottenham-fulham-result-report-analysis/
