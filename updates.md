@@ -1,3 +1,7 @@
+**Austin Reaves, Luka Dončić fuel Lakers' win against Dallas in NBA Cup play**\
+`The Lakers have the NBA's third-best winning percentage — a standard of play having been set early in the year and met routinely.`\
+https://nytimes.com/athletic/6846861/2025/11/29/lakers-lebron-luka-doncic-austin-reaves-mavericks/
+
 **Ben Johnson is the difference for thankful Chicago Bears**\
 `It's clear the Bears are worth getting excited about, and it's indisputable that Johnson is worth every comma in his contract.`\
 https://nytimes.com/athletic/6846431/2025/11/29/ben-johnson-coach-bears/

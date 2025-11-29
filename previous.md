@@ -1,3 +1,7 @@
+**Austin Reaves, Luka Dončić fuel Lakers' win against Dallas in NBA Cup play**\
+`The Lakers have the NBA's third-best winning percentage — a standard of play having been set early in the year and met routinely.`\
+https://nytimes.com/athletic/6846861/2025/11/29/lakers-lebron-luka-doncic-austin-reaves-mavericks/
+
 **Ben Johnson is the difference for thankful Chicago Bears**\
 `It's clear the Bears are worth getting excited about, and it's indisputable that Johnson is worth every comma in his contract.`\
 https://nytimes.com/athletic/6846431/2025/11/29/ben-johnson-coach-bears/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/29/opinion/salmon-california-oregon-nature-resilienc
 **I Was Once a Broken Reader. I Found My Way Back to Books.**\
 `I needed to stop thinking that I knew more than the author and give in to whatever ride they had spent years planning.`\
 https://nytimes.com/2025/11/29/opinion/reading-difficulty-novels-books.html
-
-**Grading every NHL team at the quarter mark of the season**\
-`From F to A+ to everything in between, The Athletic's NHL staff hands out grades to every team based on its season so far.`\
-https://nytimes.com/athletic/6844093/2025/11/29/nhl-quarter-season-grades-report-cards/
 
