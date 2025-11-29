@@ -1,3 +1,11 @@
+**The Briefing: Man City 3 Leeds 2 - How impressive was Foden? Does Farke deserve credit for changes?**\
+`Manchester City managed to overcome Leeds United to win 3-2 at the Etihad Stadium`\
+https://nytimes.com/athletic/6842204/2025/11/29/manchester-city-leeds-result-report-analysis/
+
+**Norris responds to Verstappen’s F1 title claim: ‘Just talking nonsense’**\
+`“Max generally has a good clue about a lot of things, but also a lot of things he doesn’t have much of a clue about,” Norris said.`\
+https://nytimes.com/athletic/6847499/2025/11/29/lando-norris-max-verstappen-f1-title/
+
 **Lions center Frank Ragnow fails physical, won't rejoin team this season**\
 `The Lions had announced Ragnow would come out of retirement Wednesday.`\
 https://nytimes.com/athletic/6847495/2025/11/29/frank-ragnow-lions-failed-physical-retirement-comeback/
