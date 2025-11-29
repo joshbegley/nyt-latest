@@ -2,7 +2,7 @@
 `A lot of uncomfortable conversations the CFP committee has been avoiding are about to take center stage.`\
 https://nytimes.com/athletic/6846960/2025/11/29/texas-college-football-playoff-resume-sec/
 
-**England bowler Mark Wood out of second Ashes Test with knee issue**\
+**England's Mark Wood out of second Ashes Test after suffering pain in knee**\
 `Wood sat out of training on Saturday and is not expected to be named in the England XI for the day-night Test at the Gabba.`\
 https://nytimes.com/athletic/6846934/2025/11/29/mark-wood-ashes-injury-test/
 
