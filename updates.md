@@ -1,3 +1,7 @@
+**Top Trump Aides to Meet With Ukrainians in Florida on Sunday**\
+`Secretary of State Marco Rubio, Steve Witkoff and Jared Kushner plan to discuss peace terms again after an uproar over a 28-point proposal drafted with Russian input.`\
+https://nytimes.com/2025/11/29/us/politics/trump-aides-ukraine-florida-meeting.html
+
 **Afghans Who Assisted U.S. During the War Underwent Rigorous Vetting**\
 `Former officials said the C.I.A. diligently assessed those who partnered with its forces, like the man accused of shooting two National Guard members in Washington.`\
 https://nytimes.com/2025/11/29/us/politics/afghans-cia-vetting.html
