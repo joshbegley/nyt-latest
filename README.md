@@ -1,3 +1,19 @@
+**Take It Back!**\
+`Adrian Johnson’s latest themeless puzzle is gritty and graceful.`\
+https://nytimes.com/2025/11/28/crosswords/daily-puzzle-2025-11-29.html
+
+**Georgia is far from perfect — but the ceiling is still a national title**\
+`Even with their flaws, Georgia still has the pieces to make a legitimate run at the national championship.`\
+https://nytimes.com/athletic/6846367/2025/11/28/georgia-takeaways-score-result/
+
+**Did Bears solve the tush push? Jalen Hurts on fumble: 'It's becoming tougher'**\
+`Philadelphia's quarterback blamed himself for not holding onto the ball, but acknowledged that teams are improving at defending the play.`\
+https://nytimes.com/athletic/6846287/2025/11/28/jalen-hurts-tush-push-fumble/
+
+**Northwestern Agrees to Deal With Trump Administration**\
+`The university will pay $75 million to regain its research funding and end investigations, the second highest payment by a school facing pressure from the administration.`\
+https://nytimes.com/2025/11/28/us/politics/northwestern-deal-trump-administration.html
+
 **Eagles' uninspired play in second straight loss threatens another lost season**\
 `The Eagles believe they can fix their mistakes to save the season.`\
 https://nytimes.com/athletic/6845637/2025/11/28/philadelphia-eagles-loss-week-13-threatens-season/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6846261/2025/11/28/islanders-kyle-palmieri-injury-f
 **Shirtless Ben Johnson gets Chicago fans free hot dogs following Bears' win vs. Eagles**\
 `A popular hot dog joint in Chicago promised free hot dogs if the Bears won and Ben Johnson took of his shirt. Both delivered.`\
 https://nytimes.com/athletic/6846119/2025/11/28/ben-johnson-shirt-off-bears-chicago-hot-dog/
-
-**Lauren Macuga, rising U.S. Alpine skier, will miss Olympic year after training injury**\
-`Macuga was set to be a medal contender at the 2026 Olympics in Cortina d'Ampezzo, Italy.`\
-https://nytimes.com/athletic/6846058/2025/11/28/lauren-macuga-injury-olympics-alpine-skiing/
-
-**At the 25-game mark, how fixable are the Red Wings' issues this season?**\
-`The Red Wings hit the 25-game mark Friday with their third straight loss. Can they fix their defensive problems?`\
-https://nytimes.com/athletic/6845695/2025/11/28/red-wings-lightning-defense-issues/
-
-**College Football Playoff 2025 projections: Most likely bracket with Rivalry Week underway**\
-`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
-https://nytimes.com/athletic/6560541/2025/11/28/college-football-playoff-bracket-projections-odds/
-
-**On historic, Playoff-clinching day for Ole Miss, Egg Bowl triumph meets Lane Kiffin unease**\
-`Never in Ole Miss football history have things been this sweet — but could it be fleeting?`\
-https://nytimes.com/athletic/6846039/2025/11/28/ole-miss-lane-kiffin-decision-egg-bowl/
 
