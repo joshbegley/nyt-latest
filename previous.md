@@ -1,3 +1,7 @@
+**Islanders' Kyle Palmieri gets injured, makes trick play to set up goal while limping off ice**\
+`On his way to the bench with an injury, Palmieri stole the puck from an unsuspecting defenseman and started an improbable scoring play.`\
+https://nytimes.com/athletic/6846261/2025/11/28/islanders-kyle-palmieri-injury-flyers-assist-goal/
+
 **Shirtless Ben Johnson gets Chicago fans free hot dogs following Bears' win vs. Eagles**\
 `A popular hot dog joint in Chicago promised free hot dogs if the Bears won and Ben Johnson took of his shirt. Both delivered.`\
 https://nytimes.com/athletic/6846119/2025/11/28/ben-johnson-shirt-off-bears-chicago-hot-dog/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/28/world/americas/trump-pardon-honduras-hernandez.ht
 **PWHL's Torrent break U.S. attendance record for pro women’s hockey game**\
 `The Seattle Torrent's home opener against the Minnesota Frost on Friday at Climate Pledge Arena drew 16,014 fans.`\
 https://nytimes.com/athletic/6846000/2025/11/28/seattle-torrent-womens-hockey-attendance-record-pwhl/
-
-**The Warriors are glad to know Steph Curry's quad injury could've been worse**\
-`The Warriors announced Thursday that Curry would be re-evaluated in a week.`\
-https://nytimes.com/athletic/6845964/2025/11/28/warriors-kerr-update-curry-kuminga-melton-nba/
 
