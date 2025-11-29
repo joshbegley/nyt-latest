@@ -1,3 +1,7 @@
+**Deadly Hong Kong Fire is a Test of Beijing’s Rule in the City**\
+`After Beijing reshaped the political order in Hong Kong in its image, the fire has become a test of how well that new system can govern in a crisis.`\
+https://nytimes.com/2025/11/29/world/asia/hong-kong-fire-beijing-john-lee.html
+
 **NBA Cup quarterfinals preview: Lakers to face Spurs as knockout rounds take shape**\
 `The 2025 NBA Cup quarterfinals are set. What should fans expect? Let's preview each matchup to find out.`\
 https://nytimes.com/athletic/6846620/2025/11/29/2025-nba-cup-quarterfinals-matchups-lakers-knicks-heat/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6844768/2025/11/29/paul-pogba-comeback-monaco/
 **Marc Cucurella is crucial for Chelsea - and enjoying the best spell of his career**\
 `Marc Cucurella has been important to Chelsea both on and off the pitch`\
 https://nytimes.com/athletic/6844781/2025/11/29/marc-cucurella-chelse-analysis/
-
-**Lured by Jobs, They Ended Up ‘Going to War’ for Russia**\
-`The South African government is investigating how more than a dozen men unwittingly ended up on the front line in Russia’s war on Ukraine.`\
-https://nytimes.com/2025/11/29/world/africa/south-africa-russia-ukraine-fighters-zuma.html
 
