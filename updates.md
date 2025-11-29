@@ -1,3 +1,7 @@
+**Reliever Ryan Helsley agrees to 2-year, $28 million deal with Orioles: Source**\
+`Helsley's deal with Baltimore includes a player opt-out after the first season.`\
+https://nytimes.com/athletic/6840108/2025/11/29/ryan-helsley-orioles-free-agent-contract/
+
 **College Football Playoff 2025 projections: Most likely bracket with Rivalry Week underway**\
 `Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
 https://nytimes.com/athletic/6560541/2025/11/29/college-football-playoff-bracket-projections-odds/

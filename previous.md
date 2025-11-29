@@ -6,7 +6,7 @@ https://nytimes.com/athletic/6560541/2025/11/29/college-football-playoff-bracket
 `A Russian air assault across Ukraine on Saturday killed at least two people and injured dozens more, according to the Ukrainian authorities.`\
 https://nytimes.com/video/world/europe/100000010554742/ukraine-russia-war-drone-attacks.html
 
-**Reliever Ryan Helsley signs 2-year, $28 million deal with Orioles: Source**\
+**Reliever Ryan Helsley agrees to 2-year, $28 million deal with Orioles: Source**\
 `Helsley's deal with Baltimore includes a player opt-out after the first season.`\
 https://nytimes.com/athletic/6840108/2025/11/29/ryan-helsley-orioles-free-agent-contract/
 
