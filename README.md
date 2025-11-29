@@ -1,3 +1,7 @@
+**The Language of Tom Stoppard, Ablaze With Energy and Urgency**\
+`In works like “Travesties” and “Arcadia,” the playwright embraced the really big questions and wrestled words into coherent, exhilarating shape.`\
+https://nytimes.com/2025/11/29/theater/the-language-of-tom-stoppard-ablaze-with-energy-and-urgency.html
+
 **Hog Wild**\
 `Natan Last’s puzzle is a gem.`\
 https://nytimes.com/2025/11/29/crosswords/daily-puzzle-2025-11-30.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/29/us/politics/afghans-cia-vetting.html
 **Major Winter Storm Dumps Snow Across Midwest and Upends Travel**\
 `More than 1,100 flights were canceled at Chicago airports as the storm disrupted travel for those headed home after Thanksgiving.`\
 https://nytimes.com/2025/11/29/weather/snowstorm-midwest-flights-canceled.html
-
-**Utah Hiker Rescued With His Children Faces Abuse and Torture Charges**\
-`The man was initially hailed for his efforts to protect his daughter, 8, and two sons, 4 and 2, but the authorities concluded that he put them at risk by taking them on perilous terrain.`\
-https://nytimes.com/2025/11/29/us/utah-dad-child-abuse-hike.html
 
