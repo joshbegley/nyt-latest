@@ -1,3 +1,7 @@
+**Yale scores 29 unanswered points to beat Youngstown State 43-42 in FCS playoffs**\
+`Josh Pitsenberger's 56-yard touchdown run in the closing minutes lifted the Bulldogs to a miracle victory in their FCS debut.`\
+https://nytimes.com/athletic/6847943/2025/11/29/yale-youngtown-comeback-fcs-playoffs/
+
 **Amorim feels Dorgu's 'anxiety' at Man Utd but 'he has time to improve'**\
 `In Amorim’s eyes, the £25.2million signing from Lecce last January is still finding the confidence to play under the scrutiny at United.`\
 https://nytimes.com/athletic/6845163/2025/11/29/patrick-dorgu-manchester-united-ruben-amorim/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6560541/2025/11/29/college-football-playoff-bracket
 **Russia Attacks Ukraine in a 10-Hour Deadly Assault**\
 `A Russian air assault across Ukraine on Saturday killed at least two people and injured dozens more, according to the Ukrainian authorities.`\
 https://nytimes.com/video/world/europe/100000010554742/ukraine-russia-war-drone-attacks.html
-
-**Reliever Ryan Helsley agrees to 2-year, $28 million deal with Orioles: Source**\
-`Helsley's deal with Baltimore includes a player opt-out after the first season.`\
-https://nytimes.com/athletic/6840108/2025/11/29/ryan-helsley-orioles-free-agent-contract/
 
