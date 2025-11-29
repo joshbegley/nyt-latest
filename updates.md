@@ -1,3 +1,7 @@
+**Afghans Who Assisted U.S. During the War Underwent Rigorous Vetting**\
+`Former officials said the C.I.A. diligently assessed those who partnered with its forces, like the man accused of shooting two National Guard members in Washington.`\
+https://nytimes.com/2025/11/29/us/politics/afghans-cia-vetting.html
+
 **Major Winter Storm Dumps Snow Across Midwest and Upends Travel**\
 `More than 1,100 flights were canceled at Chicago airports as the storm disrupted travel for those headed home after Thanksgiving.`\
 https://nytimes.com/2025/11/29/weather/snowstorm-midwest-flights-canceled.html
