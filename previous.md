@@ -1,3 +1,7 @@
+**Russia Attacks Ukraine in a 10-Hour Deadly Assault**\
+`A Russian air assault across Ukraine on Saturday killed at least two people and injured dozens more, according to the Ukrainian authorities.`\
+https://nytimes.com/video/world/europe/100000010554742/ukraine-russia-war-drone-attacks.html
+
 **Reliever Ryan Helsley signs 2-year, $28 million deal with Orioles: Source**\
 `Helsley's deal with Baltimore includes a player opt-out after the first season.`\
 https://nytimes.com/athletic/6840108/2025/11/29/ryan-helsley-orioles-free-agent-contract/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6847851/2025/11/29/canucks-vs-kings-stream-how-to-w
 **Leeds' Farke wants authorities to prevent players from feigning injuries**\
 `Farke did not feel City gaining a tactical advantage after goalkeeper Donnarumma feigned an injury was in the right spirit of fair play.`\
 https://nytimes.com/athletic/6847799/2025/11/29/leeds-man-city-news-premier-league-donnarumma/
-
-**In Announcing Pardon of Drug Trafficker While Threatening Venezuela, Trump Displays Contradictions**\
-`President Trump’s statements on social media less than 24 hours apart showed the dissonance in his campaign against drug trafficking.`\
-https://nytimes.com/2025/11/29/us/politics/trump-honduras-venezuela.html
 

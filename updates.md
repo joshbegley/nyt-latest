@@ -1,3 +1,7 @@
+**Russia Attacks Ukraine in a 10-Hour Deadly Assault**\
+`A Russian air assault across Ukraine on Saturday killed at least two people and injured dozens more, according to the Ukrainian authorities.`\
+https://nytimes.com/video/world/europe/100000010554742/ukraine-russia-war-drone-attacks.html
+
 **In Announcing Pardon of Drug Trafficker While Threatening Venezuela, Trump Displays Contradictions**\
 `President Trump’s statements on social media less than 24 hours apart showed the dissonance in his campaign against drug trafficking.`\
 https://nytimes.com/2025/11/29/us/politics/trump-honduras-venezuela.html
