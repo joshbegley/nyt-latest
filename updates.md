@@ -1,3 +1,7 @@
+**Gazans Say Israeli Forces Killed Two Children, Amid Persistent Violence**\
+`The Israeli military said it had fired on two “suspects” on Saturday who had crossed cease-fire lines in southern Gaza and did not comment on reports that they were young children.`\
+https://nytimes.com/2025/11/29/world/middleeast/israeli-forces-gaza-children-attack.html
+
 **Shoppers, Drawn by Steep Discounts, Power Through Black Friday**\
 `Data on spending this week shows that consumers are shopping big for the holidays despite inflation and economic worries.`\
 https://nytimes.com/2025/11/29/business/economy/black-friday-spending.html
