@@ -1,3 +1,31 @@
+**Tedesco interview: 'Everywhere you go, you have Fenerbahce fans. You feel this electricity'**\
+`The Athletic spoke to Fenerbahce's head coach before the Intercontinental Derby against Galatasaray on Monday`\
+https://nytimes.com/athletic/6842097/2025/11/30/domenico-tedesco-interview-fenerbahce/
+
+**Fed Up With the Taliban, Pakistan Expels Masses of Afghans**\
+`Labeling Afghans a national security threat, Pakistan has forced out about a million this year, depriving them of a haven from Afghanistan’s turmoil.`\
+https://nytimes.com/2025/11/30/world/asia/pakistan-afghans-mass-expulsions.html
+
+**Quote of the Day: ‘Group’ Is a Gift Still Treasured After 44 Years**\
+`Quotation of the Day for November 30, 2025.`\
+https://nytimes.com/2025/11/30/pageoneplus/quote-of-the-day-group-is-a-gift-still-treasured-after-44-years.html
+
+**Why Premier League games are kicking off at 2.05pm today - it's not as rare as you might think**\
+`Eagle-eyed viewers will have spotted a change to the regular Premier League fixture scheduling this weekend`\
+https://nytimes.com/athletic/6844697/2025/11/30/premier-league-205-kick-off-time/
+
+**Connections: Sports Edition Coach: Hints for Nov. 30, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6848269/2025/11/30/connections-sports-edition-hints-for-nov-30-2025/
+
+**No Corrections: Nov. 30, 2025**\
+`No corrections appeared in print on Sunday, Nov. 30, 2025.`\
+https://nytimes.com/2025/11/30/pageoneplus/no-corrections-nov-30-2025.html
+
+**Virginia, Duke to play for ACC title, potential College Football Playoff spot**\
+`After Cal's upset of SMU puts Duke into ACC title game, the conference faces a potential scenario that could leave it out of the CFP.`\
+https://nytimes.com/athletic/6848412/2025/11/29/acc-championship-game-virginia-duke/
+
 **It's Alabama-Georgia (Round 2) for the SEC championship after Crimson Tide hold on vs. Auburn**\
 `Alabama's win means Ole Miss, which waits for its coach, Lane Kiffin, to make a decision, won't play in the SEC title game.`\
 https://nytimes.com/athletic/6848399/2025/11/29/alabama-auburn-score-result/
@@ -9,32 +37,4 @@ https://nytimes.com/2025/11/29/us/shooting-stockton-california.html
 **Mirtle: 7 signs the Maple Leafs are back — maybe**\
 `Accentuating the positives after a rare decent game mixed into an ocean of bad ones this year for Toronto.`\
 https://nytimes.com/athletic/6848357/2025/11/29/toronto-maple-leafs-pittsburgh-penguins/
-
-**MLS Cup 2025: Your guide to Inter Miami vs. Vancouver Whitecaps**\
-`Two first-time MLS Cup participants led by two serial winners makes for a sensational matchup to decide the league champion`\
-https://nytimes.com/athletic/6848280/2025/11/29/mls-cup-2025-inter-miami-vancouver-whitecaps-messi-muller/
-
-**Mammoth's Logan Cooley hurt, Blues' Alexey Toropchenko ejected after hit**\
-`Toropchenko was given a five-minute major for kneeing and a game misconduct, while Cooley did not return to the game.`\
-https://nytimes.com/athletic/6848397/2025/11/29/mammoth-logan-cooley-injury-blues-alexey-toropchenko/
-
-**Diego Pavia, Vanderbilt have Heisman, Playoff cases — one stronger than the other**\
-`Pavia had 1,862 total yards and 16 touchdowns against legitimate defenses Tennessee, Kentucky, Auburn and Texas in November.`\
-https://nytimes.com/athletic/6848385/2025/11/29/diego-pavia-heisman-trophy-vanderbilt/
-
-**Wolves are showing progress with struggles in close games, against good teams**\
-`Saturday's win against Boston snapped a three-game losing streak, gave Wolves their first win over a team with a winning record.`\
-https://nytimes.com/athletic/6847994/2025/11/29/timberwolves-celtics-score-results-takeaways-anthony-edwards/
-
-**Bucks snap longest losing streak in a decade with blowout win**\
-`On top of getting the Bucks back in the win column, Giannis Antetokounmpo also made history on Saturday night.`\
-https://nytimes.com/athletic/6848289/2025/11/29/bucks-losing-streak-snapped-nets-giannis-antetokounmpo/
-
-**Trump Frees Fraudster Just Days Into Seven-Year Prison Sentence**\
-`David Gentile had been found guilty for his role in what prosecutors described as a $1.6 billion scheme that defrauded thousands of investors.`\
-https://nytimes.com/2025/11/29/us/politics/trump-david-gentile-commutation.html
-
-**A Small West Virginia Town Brought Even Closer Through Grief**\
-`In Webster Springs, everyone knows one another. When National Guard Specialist Sarah Beckstrom was killed, that connection was even further strengthened.`\
-https://nytimes.com/2025/11/29/us/national-guard-shooting-beckstrom-webster-springs.html
 
