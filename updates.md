@@ -1,3 +1,15 @@
+**Wrexham have found their Championship feet. Next step play-offs?**\
+`Taking 22 points from a possible 39 since mid-September speaks volumes for how well Wrexham have adapted to life in the second tier`\
+https://nytimes.com/athletic/6836486/2025/11/30/wrexham-championship-blackburn-analysis/
+
+**Are Chelsea genuine Premier League title contenders?**\
+`Ahead of this weekend's game against league leaders Arsenal, we assess how seriously to take Enzo Maresca's side in the title race `\
+https://nytimes.com/athletic/6844809/2025/11/30/are-chelsea-genuine-title-contenders/
+
+**College Football Playoff 2025 projections: How many teams still have a chance?**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/11/30/college-football-playoff-bracket-projections-odds/
+
 **Kostas Tsimikas: 'It's important to be capable of accepting all this sadness in football'**\
 `Kostas Tsimikas looks back on his time at Liverpool, reflects on his friend Diogo Jota, and compares Klopp, Slot and Gasperini`\
 https://nytimes.com/athletic/6813913/2025/11/30/kostas-tsimikas-on-leaving-liverpool-life-at-roma-and-accepting-sadness-in-football/
