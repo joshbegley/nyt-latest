@@ -1,3 +1,7 @@
+**Mammoth's Logan Cooley hurt, Blues' Alexey Toropchenko ejected after hit**\
+`Toropchenko was given a five-minute major for kneeing and a game misconduct, while Cooley did not return to the game.`\
+https://nytimes.com/athletic/6848397/2025/11/29/mammoth-logan-cooley-injury-blues-alexey-toropchenko/
+
 **Mammoth's Logan Cooley helped off ice, Blues' Alexey Toropchenko ejected after collision**\
 `Toropchenko was given a five-minute major for kneeing and a game misconduct, while Cooley did not return to the game.`\
 https://nytimes.com/athletic/6848397/2025/11/29/mammoth-logan-cooley-injury-blues-alexey-toropchenko/
