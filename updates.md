@@ -1,3 +1,11 @@
+**Sam Darnold reunion, Shedeur Sanders' next test among NFL Week 13 top storylines**\
+`With five of last year’s eight divisional leaders still trailing rivals as November winds down, things remain wide open in Week 13.`\
+https://nytimes.com/athletic/6840171/2025/11/30/nfl-week-13-storylines-sam-darnold-shedeur-sanders/
+
+**The New York Times International Edition in Print for Monday, Dec. 1, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/11/30/todays-new-york-times-international-edition
+
 **How to watch Capitals vs. Islanders: Time, TV, streaming**\
 `Find out how to watch the Washington Capitals play the New York Islanders, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6848801/2025/11/30/capitals-vs-islanders-stream-how-to-watch-nov-30/

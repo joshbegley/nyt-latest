@@ -1,3 +1,11 @@
+**Sam Darnold reunion, Shedeur Sanders' next test among NFL Week 13 top storylines**\
+`With five of last year’s eight divisional leaders still trailing rivals as November winds down, things remain wide open in Week 13.`\
+https://nytimes.com/athletic/6840171/2025/11/30/nfl-week-13-storylines-sam-darnold-shedeur-sanders/
+
+**The New York Times International Edition in Print for Monday, Dec. 1, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/11/30/todays-new-york-times-international-edition
+
 **How to watch Capitals vs. Islanders: Time, TV, streaming**\
 `Find out how to watch the Washington Capitals play the New York Islanders, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6848801/2025/11/30/capitals-vs-islanders-stream-how-to-watch-nov-30/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/30/world/asia/india-delhi-pollution.html
 **Lebanon’s Christians Look to Pope Leo’s Visit for a Message of Hope and Peace**\
 `The pontiff is set to meet political leaders and say Mass at a Beirut port destroyed by an explosion five years ago. It is the first papal visit to Lebanon since 2012.`\
 https://nytimes.com/2025/11/30/world/middleeast/pope-leo-lebanon-christians.html
-
-**What to Know About Honduras’s Elections**\
-`President Trump has put a spotlight on Honduras as voters head to the polls. Their choices include the left-wing party in power and a candidate endorsed by Mr. Trump.`\
-https://nytimes.com/2025/11/30/world/americas/honduras-election.html
-
-**‘The New Price of Eggs.’ The Political Shocks of Data Centers and Electric Bills**\
-`Democrats zeroed in on utilities and affordability to win Republican support in upset elections in Georgia and Virginia. Can the same playbook work in 2026?`\
-https://nytimes.com/2025/11/30/us/politics/the-new-price-of-eggs-the-political-shocks-of-data-centers-and-electric-bills.html
 
