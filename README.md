@@ -1,3 +1,7 @@
+**Colts CB Sauce Gardner exits game vs. Texans with calf injury**\
+`Gardner got hurt on the Colts' second defensive snap of the day. `\
+https://nytimes.com/athletic/6849641/2025/11/30/colts-sauce-gardner-calf-injury-texans/
+
 **Lawmakers Suggest Follow-Up Boat Strike Could Be a War Crime**\
 `Top Republicans have joined Democrats in demanding answers about the escalating military campaign the Trump administration says is aimed at targeting drug traffickers.`\
 https://nytimes.com/2025/11/30/us/politics/trump-boat-strikes-war-crime.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6849413/2025/11/30/raptors-vs-knicks-stream-how-to-
 **How to watch Hawks vs. 76ers: Time, TV, streaming**\
 `Find out how to watch the Atlanta Hawks play the Philadelphia 76ers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6849411/2025/11/30/hawks-vs-76ers-stream-how-to-watch-nov-30/
-
-**How to watch Celtics vs. Cavaliers: Time, TV, streaming**\
-`Find out how to watch the Boston Celtics play the Cleveland Cavaliers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6849409/2025/11/30/celtics-vs-cavaliers-stream-how-to-watch-nov-30/
 
