@@ -1,3 +1,7 @@
+**LSU plucks Kiffin from Ole Miss; Rebels elevate DC Pete Golding**\
+`Kiffin’s future has been a lingering, high-profile drama throughout the season.`\
+https://nytimes.com/athletic/6825155/2025/11/30/lane-kiffin-lsu-ole-miss-pete-golding/
+
 **Seth Curry to sign with Warriors, team with brother Stephen: Source**\
 `The younger Curry spent training camp with the Warriors but was waived before the season because of the cap restrictions.`\
 https://nytimes.com/athletic/6849913/2025/11/30/seth-curry-steph-warriors-nba-brothers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6849749/2025/11/30/ap-top-25-rankings-osu-indiana-b
 **Review: It’s Hard to Breathe in This ‘Walküre’**\
 `The singers did marvelous work at the Opéra Bastille in Paris, where the director Calixto Bieito’s new staging takes place in a hellish dystopia.`\
 https://nytimes.com/2025/11/30/arts/music/review-die-walkure-paris.html
-
-**Love Clothes? We Want to Hear About Your Favorite Stores.**\
-`Tell us about the places big and small, new and old, where you have the most fun shopping in person.`\
-https://nytimes.com/2025/11/30/style/favorite-clothes-stores-us-share.html
 
