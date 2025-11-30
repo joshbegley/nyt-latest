@@ -1,3 +1,7 @@
+**Inter Miami reaches MLS Cup final, routs NYCFC behind Allende hat trick**\
+`Lionel Messi and Inter Miami will host MLS Cup after thrashing NYCFC and booking a place in the final.`\
+https://nytimes.com/athletic/6848170/2025/11/29/inter-miami-nycfc-mls-cup-allende-hat-trick-messi/
+
 **Messi, Miami advance to MLS Cup that they'll host; Full playoff bracket**\
 `Lionel Messi and Inter Miami are one win away from lifting their first MLS Cup trophy`\
 https://nytimes.com/athletic/6740291/2025/11/29/mls-cup-2025-playoff-bracket-full-postseason-schedule-updated-results/
