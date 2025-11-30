@@ -1,3 +1,15 @@
+**Diego Pavia, Vanderbilt state Heisman and CFP cases with historic win at Tennessee**\
+`Pavia threw for 268 yards and a touchdown to deliver the first 10-win season in Vanderbilt history.`\
+https://nytimes.com/athletic/6848125/2025/11/29/vanderbilt-tennessee-diego-pavia-score-result/
+
+**The Ex-President Whom Trump Plans to Pardon Flooded America With Cocaine**\
+`Juan Orlando Hernández, whom Mr. Trump called a victim of persecution, helped orchestrate a decades-long trafficking conspiracy. It ravaged his Central American country.`\
+https://nytimes.com/2025/11/29/nyregion/honduras-hernandez-drug-trafficking.html
+
+**Oklahoma punches likely CFP ticket with late escape vs. LSU**\
+`No. 8 Oklahoma needed a late 58-yard John Mateer touchdown pass to beat LSU 17-13 to all but lock up a College Football Playoff bid.`\
+https://nytimes.com/athletic/6848124/2025/11/29/oklahoma-lsu-score-lane-kiffin-playoff/
+
 **Frank criticises 'unacceptable' Vicario booing: 'They can't be true fans'**\
 `The booing came after Viacrio was at fault for Fulham's second goal, leading to Spurs' third defeat in seven days.`\
 https://nytimes.com/athletic/6848041/2025/11/29/tottenham-vicario-frank-booing-fans-fulham/

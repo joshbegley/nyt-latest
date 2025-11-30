@@ -1,5 +1,5 @@
-**Diego Pavia, Vanderbilt state Heisman and CFP cases with historic win at Tennessee**\
-`Pavia threw for 268 yards and a touchdown to deliver the first 10-win season in Vanderbilt history.`\
+**Diego Pavia, Vandy make Heisman and CFP cases with historic win over Vols**\
+`Pavia threw for 268 yards and ran for 165 more to deliver the first 10-win season in Vanderbilt history.`\
 https://nytimes.com/athletic/6848125/2025/11/29/vanderbilt-tennessee-diego-pavia-score-result/
 
 **The Ex-President Whom Trump Plans to Pardon Flooded America With Cocaine**\

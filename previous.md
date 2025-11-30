@@ -1,3 +1,15 @@
+**Diego Pavia, Vanderbilt state Heisman and CFP cases with historic win at Tennessee**\
+`Pavia threw for 268 yards and a touchdown to deliver the first 10-win season in Vanderbilt history.`\
+https://nytimes.com/athletic/6848125/2025/11/29/vanderbilt-tennessee-diego-pavia-score-result/
+
+**The Ex-President Whom Trump Plans to Pardon Flooded America With Cocaine**\
+`Juan Orlando Hernández, whom Mr. Trump called a victim of persecution, helped orchestrate a decades-long trafficking conspiracy. It ravaged his Central American country.`\
+https://nytimes.com/2025/11/29/nyregion/honduras-hernandez-drug-trafficking.html
+
+**Oklahoma punches likely CFP ticket with late escape vs. LSU**\
+`No. 8 Oklahoma needed a late 58-yard John Mateer touchdown pass to beat LSU 17-13 to all but lock up a College Football Playoff bid.`\
+https://nytimes.com/athletic/6848124/2025/11/29/oklahoma-lsu-score-lane-kiffin-playoff/
+
 **Frank criticises 'unacceptable' Vicario booing: 'They can't be true fans'**\
 `The booing came after Viacrio was at fault for Fulham's second goal, leading to Spurs' third defeat in seven days.`\
 https://nytimes.com/athletic/6848041/2025/11/29/tottenham-vicario-frank-booing-fans-fulham/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6845163/2025/11/29/patrick-dorgu-manchester-united-
 **Tottenham 1 Fulham 2: Spurs fans boo their goalkeeper, Frank left to fix familiar issues**\
 `In suffering yet another home defeat, Spurs are in 10th place in the Premier League and four games without a win `\
 https://nytimes.com/athletic/6842206/2025/11/29/tottenham-fulham-result-report-analysis/
-
-**Deion Sanders intends to fix Colorado 'if it's the last thing I do'**\
-`When asked how he will get Colorado out of its rut, Sanders said: “It’s no rut. You’re just not good.” He said changes are on the way.`\
-https://nytimes.com/athletic/6847939/2025/11/29/deion-sanders-colorado-losing-season/
-
-**Top Trump Aides to Meet With Ukrainians in Florida on Sunday**\
-`Secretary of State Marco Rubio, Steve Witkoff and Jared Kushner plan to discuss peace terms again after an uproar over a 28-point proposal drafted with Russian input.`\
-https://nytimes.com/2025/11/29/us/politics/trump-aides-ukraine-florida-meeting.html
-
-**Afghans Who Assisted U.S. During the War Underwent Rigorous Vetting**\
-`Former officials said the C.I.A. diligently assessed those who partnered with its forces, like the man accused of shooting two National Guard members in Washington.`\
-https://nytimes.com/2025/11/29/us/politics/afghans-cia-vetting.html
 
