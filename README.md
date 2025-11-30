@@ -1,3 +1,7 @@
+**Bucks snap longest losing streak in a decade with blowout win**\
+`On top of getting the Bucks back in the win column, Giannis Antetokounmpo also made history on Saturday night.`\
+https://nytimes.com/athletic/6848289/2025/11/29/bucks-losing-streak-snapped-nets-giannis-antetokounmpo/
+
 **Trump Frees Fraudster Just Days Into Seven-Year Prison Sentence**\
 `David Gentile had been found guilty for his role in what prosecutors described as a $1.6 billion scheme that defrauded thousands of investors.`\
 https://nytimes.com/2025/11/29/us/politics/trump-david-gentile-commutation.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6848099/2025/11/29/miami-pitt-score-analysis-playof
 **College football rivalry week produces wealth of trolls. Here are the best**\
 `Rivalry week was rife with mascot jokes, social media trolling and witty video montages.`\
 https://nytimes.com/athletic/6848074/2025/11/29/college-football-rivalry-week-14-jokes-roundup/
-
-**Rangers reach new low after embarrassing effort as Adam Fox injury concern looms**\
-`New York was outshot 35-13 in a 4-1 loss to Tampa Bay and has a 2-8-1 record at home this season.`\
-https://nytimes.com/athletic/6847906/2025/11/29/new-york-rangers-lightning-adam-fox-injury/
 
