@@ -1,3 +1,11 @@
+**Hong Kong’s Migrant Domestic Workers Mourn Their Losses in Deadly Fire**\
+`At least eight workers died, and many of those who survived, after saving children and others in their care, are worried about losing their jobs and being forced to leave.`\
+https://nytimes.com/2025/11/30/world/asia/hongkong-fire-domestic-workers.html
+
+**West Ham's longest-serving player Billy Bonds MBE dies at 79**\
+`A "period of appreciation" will take place before Sunday's game against Liverpool, the London club said. `\
+https://nytimes.com/athletic/6848852/2025/11/30/west-ham-billy-bonds-death/
+
 **This Week in the NBA: Thunder roll, Tyrese Maxey coaches dogs, players beef**\
 `Week 6 of the 2025-26 NBA season came with its fair share of memorable moments. `\
 https://nytimes.com/athletic/6795929/2025/11/30/nba-weekly-recap-thunder-raptors-maxey-dog/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6848447/2025/11/30/inter-miami-mls-cup-messi-masche
 **Israel’s Netanyahu Requests Pardon in Corruption Cases**\
 `The move comes two weeks after President Trump wrote to Israel’s president urging a pardon for Prime Minister Benjamin Netanyahu.`\
 https://nytimes.com/2025/11/30/world/middleeast/netanyahu-pardon-request-israel.html
-
-**It's time for the Penguins to make some lineup changes: 10 observations**\
-`Everything that could have gone wrong did go wrong for the Penguins in a 7-2 loss to the Maple Leafs on Sunday. `\
-https://nytimes.com/athletic/6848292/2025/11/30/penguins-maple-leafs-lineup-sidney-crosby/
-
-**Surging Flyers showing signs that early-season success is no fluke**\
-`The way the Flyers persevered in their last three road games offers hope that their success may be sustainable for the long haul.`\
-https://nytimes.com/athletic/6848500/2025/11/30/flyers-road-trip-success-devils/
 

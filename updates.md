@@ -1,3 +1,7 @@
+**Hawaii's Kansei Matsuzawa ties FBS record by making first 25 FGs before miss**\
+`Kansei Matsuzawa taught himself to kick on YouTube in Japan, then tied an FBS record at Hawaii before his first miss of the season Saturday.`\
+https://nytimes.com/athletic/6848693/2025/11/30/hawaii-kicker-kansei-matsuzawa-ties-ncaa-record/
+
 **This Week in the NBA: Thunder roll, Tyrese Maxey coaches dogs, players beef**\
 `Week 6 of the 2025-26 NBA season came with its fair share of memorable moments. `\
 https://nytimes.com/athletic/6795929/2025/11/30/nba-weekly-recap-thunder-raptors-maxey-dog/
