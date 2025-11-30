@@ -1,3 +1,7 @@
+**Seth Curry to sign with Warriors, team with brother Stephen: Source**\
+`The younger Curry spent training camp with the Warriors but was waived before the season because of the cap restrictions.`\
+https://nytimes.com/athletic/6849913/2025/11/30/seth-curry-steph-warriors-nba-brothers/
+
 **Fuzzy Zoeller, Who Won Two Majors on the PGA Tour, Dies at 74**\
 `He was a witty and popular figure, but his racially insensitive remarks about Tiger Woods at the 1997 Masters led to death threats and many apologies.`\
 https://nytimes.com/2025/11/30/obituaries/fuzzy-zoeller-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/30/arts/music/review-die-walkure-paris.html
 **Love Clothes? We Want to Hear About Your Favorite Stores.**\
 `Tell us about the places big and small, new and old, where you have the most fun shopping in person.`\
 https://nytimes.com/2025/11/30/style/favorite-clothes-stores-us-share.html
-
-**Sources: New York Rangers placing Adam Fox on LTIR with left-shoulder injury**\
-`Fox, who has been the Rangers' best player this season, is expected to miss multiple weeks with the injury.`\
-https://nytimes.com/athletic/6849698/2025/11/30/new-york-rangers-adam-fox-injury/
 
