@@ -1,3 +1,11 @@
+**One of David Sacks’s Waivers**\
+`Read the document`\
+https://nytimes.com/interactive/2025/08/21/us/20240331-david-sacks-ethics-filing-and-conflicts-waiver.html
+
+**The Pulse: The Kiffin drama endures**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6848603/2025/11/30/a-coaching-decision-is-managing-to-loom-over-college-football/
+
 **Britain wins $2m SailGP championship for first time**\
 `The most consistent team of the season won the championships' Grand Final`\
 https://nytimes.com/athletic/6849060/2025/11/30/britain-season-5-sailgp-championship-winners/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/30/opinion/marriage-divorce-happy.html
 **College Football Playoff 2025 projections: How many teams still have a chance?**\
 `Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
 https://nytimes.com/athletic/6560541/2025/11/30/college-football-playoff-bracket-projections-odds/
-
-**Ukraine’s top negotiator resigns, but peace talks carry on.**\
-`By Cassandra Vinograd`\
-https://nytimes.com/live/2025/11/30/us/trump-news/ukraines-top-negotiator-resigns-but-peace-talks-carry-on
-
-**How to watch Rockets vs. Jazz: Time, TV, streaming**\
-`Find out how to watch the Houston Rockets play the Utah Jazz, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6848994/2025/11/30/rockets-vs-jazz-stream-how-to-watch-nov-30/
 
