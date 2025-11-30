@@ -1,3 +1,11 @@
+**Chargers' Justin Herbert leaves with hand injury vs. Raiders**\
+`Herbert appeared to injure his hand while leading the Chargers to a touchdown on their opening drive.`\
+https://nytimes.com/athletic/6850228/2025/11/30/justin-herbert-chargers-hand-injury-update/
+
+**Panthers shock Rams as Matthew Stafford's fumble dooms L.A.: Takeaways**\
+`The Super Bowl favorites had their six-game winning streak snapped by a team that was 6-6 coming into Week 13.`\
+https://nytimes.com/athletic/6849510/2025/11/30/rams-panthers-score-result-takeaways-nfl-week-13/
+
 **Buccaneers-Cardinals takeaways: Tampa Bay holds on to beat Arizona**\
 `The NFC South is still up for grabs as the Panthers are 7-6.`\
 https://nytimes.com/athletic/6849982/2025/11/30/cardinals-buccaneers-score-result-takeaways-nfl-week-13/
