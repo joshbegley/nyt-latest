@@ -1,3 +1,7 @@
+**Sources: Jonathan Smith out at Michigan State after 2 seasons**\
+`Jonathan Smith's brief tenure continues Michigan State's decade of downturn since the height of the Mark Dantonio era. `\
+https://nytimes.com/athletic/6716183/2025/11/30/michigan-state-jonathan-smith-fired/
+
 **Popular trade target Kodai Senga told Mets he wants to remain with club: Sources**\
 `Though Senga can block trades to 10 franchises with a limited no-trade clause, the Mets may still deal him this offseason.`\
 https://nytimes.com/athletic/6849186/2025/11/30/kodai-senga-mets-trade-talks/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6849070/2025/11/30/chelsea-arsenal-caicedo-merino/
 **Instant grades for college football's 2025-26 head-coaching hires**\
 `In college football, you never really know whether a coaching hire is going to work. But it's never too early to talk about fit.`\
 https://nytimes.com/athletic/6827060/2025/11/30/college-football-coaching-carousel-grades/
-
-**Colts CB Sauce Gardner ruled out vs. Texans with calf injury**\
-`Indianapolis star, who was acquired from the Jets in October, was injured on his team's second defensive snap of the day. `\
-https://nytimes.com/athletic/6849641/2025/11/30/colts-sauce-gardner-calf-injury-texans/
 

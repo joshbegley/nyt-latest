@@ -1,9 +1,17 @@
+**Fuzzy Zoeller, Who Won Two Majors on the PGA Tour, Dies at 74**\
+`He was a witty and popular figure, but his racially insensitive remarks about Tiger Woods at the 1997 Masters led to death threats and many apologies.`\
+https://nytimes.com/2025/11/30/obituaries/fuzzy-zoeller-dead.html
+
+**Movies Written by Tom Stoppard to Stream**\
+`Spinning off Shakespeare, waltzing through Imperial Russia, bantering about literature or diving deeply into history, Stoppard shared his gifts on the screen.`\
+https://nytimes.com/2025/11/30/theater/tom-stoppard-streaming-movies.html
+
 **Sources: Jonathan Smith out at Michigan State after 2 seasons**\
 `Jonathan Smith's brief tenure continues Michigan State's decade of downturn since the height of the Mark Dantonio era. `\
 https://nytimes.com/athletic/6716183/2025/11/30/michigan-state-jonathan-smith-fired/
 
 **Popular trade target Kodai Senga told Mets he wants to remain with club: Sources**\
-`Though Senga can block trades to 10 franchises with a limited no-trade clause, the Mets may still deal him this offseason.`\
+`Though Senga has a limited no-trade clause that allows him to block deals to 10 franchises, the Mets may still trade him this offseason.`\
 https://nytimes.com/athletic/6849186/2025/11/30/kodai-senga-mets-trade-talks/
 
 **How to watch Grizzlies vs. Kings: Time, TV, streaming**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/30/style/favorite-clothes-stores-us-share.html
 **Sources: New York Rangers placing Adam Fox on LTIR with left-shoulder injury**\
 `Fox, who has been the Rangers' best player this season, is expected to miss multiple weeks with the injury.`\
 https://nytimes.com/athletic/6849698/2025/11/30/new-york-rangers-adam-fox-injury/
-
-**The Briefing: Chelsea 1 Arsenal 1: What does this mean for title race? Was Caicedo red inevitable? Maresca positives?**\
-`Our writers break down the talking points from a fiery top-of-the-table clash at Stamford Bridge`\
-https://nytimes.com/athletic/6849070/2025/11/30/chelsea-arsenal-caicedo-merino/
-
-**Instant grades for college football's 2025-26 head-coaching hires**\
-`In college football, you never really know whether a coaching hire is going to work. But it's never too early to talk about fit.`\
-https://nytimes.com/athletic/6827060/2025/11/30/college-football-coaching-carousel-grades/
 

@@ -1,3 +1,7 @@
+**Sources: Jonathan Smith out at Michigan State after 2 seasons**\
+`Jonathan Smith's brief tenure continues Michigan State's decade of downturn since the height of the Mark Dantonio era. `\
+https://nytimes.com/athletic/6716183/2025/11/30/michigan-state-jonathan-smith-fired/
+
 **Popular trade target Kodai Senga told Mets he wants to remain with club: Sources**\
 `Though Senga can block trades to 10 franchises with a limited no-trade clause, the Mets may still deal him this offseason.`\
 https://nytimes.com/athletic/6849186/2025/11/30/kodai-senga-mets-trade-talks/
