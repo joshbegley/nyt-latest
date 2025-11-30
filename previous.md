@@ -1,6 +1,6 @@
 **Lawmakers Suggest Follow-Up Boat Strike Could Be a War Crime**\
 `Top Republicans have joined Democrats in demanding answers about the escalating military campaign the Trump administration says is aimed at targeting drug traffickers.`\
-https://nytimes.com/2025/11/30/us/politics/lawmakers-boat-strikes-war-crime.html
+https://nytimes.com/2025/11/30/us/politics/trump-boat-strikes-war-crime.html
 
 **Protesters Arrested After Trying to Block a Possible ICE Raid**\
 `Nearly 200 protesters tried to block federal agents from leaving a parking garage in Lower Manhattan on Saturday. The confrontation appeared to prevent a possible ICE raid nearby, and led to violent clashes between the police and protesters.`\

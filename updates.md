@@ -1,5 +1,9 @@
 **Lawmakers Suggest Follow-Up Boat Strike Could Be a War Crime**\
 `Top Republicans have joined Democrats in demanding answers about the escalating military campaign the Trump administration says is aimed at targeting drug traffickers.`\
+https://nytimes.com/2025/11/30/us/politics/trump-boat-strikes-war-crime.html
+
+**Lawmakers Suggest Follow-Up Boat Strike Could Be a War Crime**\
+`Top Republicans have joined Democrats in demanding answers about the escalating military campaign the Trump administration says is aimed at targeting drug traffickers.`\
 https://nytimes.com/2025/11/30/us/politics/lawmakers-boat-strikes-war-crime.html
 
 **Protesters Arrested After Trying to Block a Possible ICE Raid**\
