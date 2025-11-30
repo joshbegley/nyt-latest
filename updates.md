@@ -1,3 +1,7 @@
+**‘Zootopia 2’ Goes Wild at the Worldwide Box Office**\
+`The Disney sequel took in $156 million in North America over its first five days. Strong turnout in China pushed the film’s global opening total to $556 million.`\
+https://nytimes.com/2025/11/30/business/zootopia-2-box-office.html
+
 **How to watch Raptors vs. Knicks: Time, TV, streaming**\
 `Find out how to watch the Toronto Raptors play the New York Knicks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6849413/2025/11/30/raptors-vs-knicks-stream-how-to-watch-nov-30/
