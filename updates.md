@@ -1,3 +1,15 @@
+**Pope Leo Calls for a Two-State Solution in Israel**\
+`The pope, en route to Lebanon after visiting Turkey, said he had discussed with the Turkish president how the Vatican might help mediate in the conflict.`\
+https://nytimes.com/2025/11/30/world/middleeast/pope-leo-two-state-solution-israel.html
+
+**One of David Sacks’s Waivers**\
+`Read the document`\
+https://nytimes.com/interactive/2025/08/21/us/20240331-david-sacks-ethics-filing-and-conflicts-waiver.html
+
+**The Pulse: The Kiffin drama endures**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6848603/2025/11/30/a-coaching-decision-is-managing-to-loom-over-college-football/
+
 **Britain wins $2m SailGP championship for first time**\
 `The most consistent team of the season won the championships' Grand Final`\
 https://nytimes.com/athletic/6849060/2025/11/30/britain-season-5-sailgp-championship-winners/
