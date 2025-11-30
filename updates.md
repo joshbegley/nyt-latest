@@ -1,3 +1,11 @@
+**MLS Cup 2025: Your guide to Inter Miami vs. Vancouver Whitecaps**\
+`Two first-time MLS Cup participants led by two serial winners makes for a sensational matchup to decide the league champion`\
+https://nytimes.com/athletic/6848280/2025/11/29/mls-cup-2025-inter-miami-vancouver-whitecaps-messi-muller/
+
+**Messi, Miami to host Müller, Vancouver in MLS Cup; Full playoff bracket**\
+`The MLS Cup final will be a rematch of the 2025 Concacaf Champions Cup semifinals in South Florida`\
+https://nytimes.com/athletic/6740291/2025/11/29/mls-cup-2025-playoff-bracket-full-postseason-schedule-updated-results/
+
 **Mammoth's Logan Cooley hurt, Blues' Alexey Toropchenko ejected after hit**\
 `Toropchenko was given a five-minute major for kneeing and a game misconduct, while Cooley did not return to the game.`\
 https://nytimes.com/athletic/6848397/2025/11/29/mammoth-logan-cooley-injury-blues-alexey-toropchenko/
