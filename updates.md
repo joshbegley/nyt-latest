@@ -1,3 +1,7 @@
+**Ohio State made it clear: There's nothing to doubt about Ryan Day now**\
+`First Ohio State won a national championship. Now it's lifted an arguably bigger weight off Ryan Day's shoulders by beating Michigan.`\
+https://nytimes.com/athletic/6848054/2025/11/29/ryan-day-ohio-state-michigan-2025/
+
 **Inter Miami reaches MLS Cup final, routs NYCFC behind Allende hat trick**\
 `Lionel Messi and Inter Miami will host MLS Cup after thrashing NYCFC and booking a place in the final.`\
 https://nytimes.com/athletic/6848170/2025/11/29/inter-miami-nycfc-mls-cup-allende-hat-trick-messi/

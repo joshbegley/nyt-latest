@@ -1,3 +1,7 @@
+**Ohio State made it clear: There's nothing to doubt about Ryan Day now**\
+`First Ohio State won a national championship. Now it's lifted an arguably bigger weight off Ryan Day's shoulders by beating Michigan.`\
+https://nytimes.com/athletic/6848054/2025/11/29/ryan-day-ohio-state-michigan-2025/
+
 **Inter Miami reaches MLS Cup final, routs NYCFC behind Allende hat trick**\
 `Lionel Messi and Inter Miami will host MLS Cup after thrashing NYCFC and booking a place in the final.`\
 https://nytimes.com/athletic/6848170/2025/11/29/inter-miami-nycfc-mls-cup-allende-hat-trick-messi/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6848158/2025/11/29/michigan-ohio-state-sherrone-moo
 **Diego Pavia, Vandy make Heisman and CFP cases with historic win over Vols**\
 `Pavia threw for 268 yards and ran for 165 more to deliver the first 10-win season in Vanderbilt history.`\
 https://nytimes.com/athletic/6848125/2025/11/29/vanderbilt-tennessee-diego-pavia-score-result/
-
-**The Ex-President Whom Trump Plans to Pardon Flooded America With Cocaine**\
-`Juan Orlando Hernández, whom Mr. Trump called a victim of persecution, helped orchestrate a decades-long trafficking conspiracy. It ravaged his Central American country.`\
-https://nytimes.com/2025/11/29/nyregion/honduras-hernandez-drug-trafficking.html
 
