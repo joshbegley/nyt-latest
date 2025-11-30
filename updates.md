@@ -1,3 +1,35 @@
+**How to watch Raptors vs. Knicks: Time, TV, streaming**\
+`Find out how to watch the Toronto Raptors play the New York Knicks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6849413/2025/11/30/raptors-vs-knicks-stream-how-to-watch-nov-30/
+
+**How to watch Hawks vs. 76ers: Time, TV, streaming**\
+`Find out how to watch the Atlanta Hawks play the Philadelphia 76ers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6849411/2025/11/30/hawks-vs-76ers-stream-how-to-watch-nov-30/
+
+**How to watch Celtics vs. Cavaliers: Time, TV, streaming**\
+`Find out how to watch the Boston Celtics play the Cleveland Cavaliers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6849409/2025/11/30/celtics-vs-cavaliers-stream-how-to-watch-nov-30/
+
+**How to watch Spurs vs. Timberwolves: Time, TV, streaming**\
+`Find out how to watch the San Antonio Spurs play the Minnesota Timberwolves, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6849407/2025/11/30/spurs-vs-timberwolves-stream-how-to-watch-nov-30/
+
+**How to watch Thunder vs. Trail Blazers: Time, TV, streaming**\
+`Find out how to watch the Oklahoma City Thunder play the Portland Trail Blazers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6849405/2025/11/30/thunder-vs-trail-blazers-stream-how-to-watch-nov-30/
+
+**How to watch Flames vs. Hurricanes: Time, TV, streaming**\
+`Find out how to watch the Calgary Flames play the Carolina Hurricanes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6849403/2025/11/30/flames-vs-hurricanes-stream-how-to-watch-nov-30/
+
+**How to watch Senators vs. Stars: Time, TV, streaming**\
+`Find out how to watch the Ottawa Senators play the Dallas Stars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6849401/2025/11/30/senators-vs-stars-stream-how-to-watch-nov-30/
+
+**Florida to hire Tulane's Jon Sumrall as next head coach: Source**\
+`Sumrall is expected to coach Tulane through the College Football Playoff, if it makes it.`\
+https://nytimes.com/athletic/6847982/2025/11/30/florida-hiring-jon-sumrall-tulane/
+
 **Palace must 'correct' summer transfer window in January - Glasner**\
 `Glasner said his side "would have wished for a little more backing" in the summer.`\
 https://nytimes.com/athletic/6849190/2025/11/30/crystal-palace-transfer-window-glasner/
