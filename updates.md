@@ -1,3 +1,11 @@
+**Lawmakers Suggest Follow-Up Boat Strike Could Be a War Crime**\
+`Top Republicans have joined Democrats in demanding answers about the escalating military campaign the Trump administration says is aimed at targeting drug traffickers.`\
+https://nytimes.com/2025/11/30/us/politics/lawmakers-boat-strikes-war-crime.html
+
+**Protesters Arrested After Trying to Block a Possible ICE Raid**\
+`Nearly 200 protesters tried to block federal agents from leaving a parking garage in Lower Manhattan on Saturday. The confrontation appeared to prevent a possible ICE raid nearby, and led to violent clashes between the police and protesters.`\
+https://nytimes.com/video/nyregion/100000010555061/protesters-arrested-after-trying-to-block-a-possible-ice-raid.html
+
 **UNLV, Boise State win 4-way tiebreaker, will play for Mountain West title**\
 `After four teams tied for first place, the conference used four different metrics to determine which two would play for the championship.`\
 https://nytimes.com/athletic/6849267/2025/11/30/unlv-boise-state-mountain-west-tiebreaker/
