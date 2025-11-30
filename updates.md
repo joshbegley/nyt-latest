@@ -1,3 +1,15 @@
+**Tracking Tropical Storm Koto**\
+`See the likely path and wind arrival times for Koto`\
+https://nytimes.com/interactive/2025/11/30/weather/koto-map-path-tracker.html
+
+**How to watch Fairfield vs. Iowa women's basketball: Time, TV, streaming**\
+`Find out how to watch the Fairfield Stags play the Iowa Hawkeyes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6848799/2025/11/30/fairfield-vs-iowa-stream-how-to-watch-nov-30/
+
+**Deadly Floods in Indonesia Leave Hundreds Missing**\
+`Hundreds of people have been killed and millions displaced as extreme weather has ravaged Southeast Asia this month. Indonesia’s heavy rain was linked to two tropical cyclones.`\
+https://nytimes.com/2025/11/30/world/asia/flooding-indonesia-thailand-southeast-asia.html
+
 **When Tom Stoppard Confronted His Background in His Final Play**\
 `The playwright, who learned about his Jewish heritage late in life, addressed it in the Tony Award-winning drama “Leopoldstadt.”`\
 https://nytimes.com/2025/11/30/theater/tom-stoppard-leopoldstadt-jewish-heritage.html
