@@ -1,3 +1,7 @@
+**‘Zootopia 2’ Goes Wild at the Worldwide Box Office**\
+`The Disney sequel took in $156 million in North America over its first five days. Strong turnout in China pushed the film’s global opening total to $556 million.`\
+https://nytimes.com/2025/11/30/business/zootopia-2-box-office.html
+
 **How to watch Raptors vs. Knicks: Time, TV, streaming**\
 `Find out how to watch the Toronto Raptors play the New York Knicks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6849413/2025/11/30/raptors-vs-knicks-stream-how-to-watch-nov-30/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6847982/2025/11/30/florida-hiring-jon-sumrall-tulan
 **Palace must 'correct' summer transfer window in January - Glasner**\
 `Glasner said his side "would have wished for a little more backing" in the summer.`\
 https://nytimes.com/athletic/6849190/2025/11/30/crystal-palace-transfer-window-glasner/
-
-**How to watch Oklahoma vs. Florida State women's basketball: Time, TV, streaming**\
-`Find out how to watch the Oklahoma Sooners play the Florida State Seminoles, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6849368/2025/11/30/oklahoma-vs-florida-state-stream-how-to-watch-nov-30/
 
