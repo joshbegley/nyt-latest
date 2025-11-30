@@ -1,3 +1,11 @@
+**Sources: New York Rangers placing Adam Fox on LTIR with left-shoulder injury**\
+`Fox, who has been the Rangers' best player this season, is expected to miss multiple weeks with the injury.`\
+https://nytimes.com/athletic/6849698/2025/11/30/new-york-rangers-adam-fox-injury/
+
+**Colts CB Sauce Gardner ruled out vs. Texans with calf injury**\
+`Gardner was injured on the Colts' second defensive snap of the day. `\
+https://nytimes.com/athletic/6849641/2025/11/30/colts-sauce-gardner-calf-injury-texans/
+
 **The Briefing: Chelsea 1 Arsenal 1: What does this mean for title race? Was Caicedo red inevitable? Maresca positives?**\
 `Our writers break down the talking points from a fiery top-of-the-table clash at Stamford Bridge`\
 https://nytimes.com/athletic/6849070/2025/11/30/chelsea-arsenal-caicedo-merino/

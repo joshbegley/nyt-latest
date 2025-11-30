@@ -1,3 +1,7 @@
+**Love Clothes? We Want to Hear About Your Favorite Stores.**\
+`Tell us about the places big and small, new and old, where you have the most fun shopping in person.`\
+https://nytimes.com/2025/11/30/style/favorite-clothes-stores-us-share.html
+
 **Sources: New York Rangers placing Adam Fox on LTIR with left-shoulder injury**\
 `Fox, who has been the Rangers' best player this season, is expected to miss multiple weeks with the injury.`\
 https://nytimes.com/athletic/6849698/2025/11/30/new-york-rangers-adam-fox-injury/
@@ -11,7 +15,7 @@ https://nytimes.com/athletic/6849070/2025/11/30/chelsea-arsenal-caicedo-merino/
 https://nytimes.com/athletic/6827060/2025/11/30/college-football-coaching-carousel-grades/
 
 **Colts CB Sauce Gardner ruled out vs. Texans with calf injury**\
-`Gardner was injured on the Colts' second defensive snap of the day. `\
+`Indianapolis star, who was acquired from the Jets in October, was injured on his team's second defensive snap of the day. `\
 https://nytimes.com/athletic/6849641/2025/11/30/colts-sauce-gardner-calf-injury-texans/
 
 **Lawmakers Suggest Follow-Up Boat Strike Could Be a War Crime**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6849422/2025/11/30/qatar-grand-prix-briefing-max-ve
 **Slot admits 'relief' after Liverpool end losing run**\
 `Liverpool had lost three matches in a row in all competitions, each by a three-goal margin, before Sunday's 2-0 win over West Ham. `\
 https://nytimes.com/athletic/6849503/2025/11/30/arne-slot-liverpool-west-ham/
-
-**Qatar GP: Submit your questions for our F1 mailbag**\
-`What questions do you have for our F1 experts after the Qatar GP?`\
-https://nytimes.com/athletic/6849497/2025/11/30/qatar-gp-f1-mailbag/
 
