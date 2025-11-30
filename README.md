@@ -1,3 +1,7 @@
+**Simon Harmer and South Africa's historic win in India: 'If the grim reaper of cricket said it’s over, I'd be content'**\
+`The 36-year-old is the best off-spinner on the planet and yet has only played 14 Tests for South Africa - now he is making up for lost time `\
+https://nytimes.com/athletic/6842385/2025/11/30/simon-harmer-south-africa-india-interview/
+
 **Wrexham have found their Championship feet. Next step play-offs?**\
 `Taking 22 points from a possible 39 since mid-September speaks volumes for how well Wrexham have adapted to life in the second tier`\
 https://nytimes.com/athletic/6836486/2025/11/30/wrexham-championship-blackburn-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/30/pageoneplus/quote-of-the-day-group-is-a-gift-stil
 **Why Premier League games are kicking off at 2.05pm today - it's not as rare as you might think**\
 `Eagle-eyed viewers will have spotted a change to the regular Premier League fixture scheduling this weekend`\
 https://nytimes.com/athletic/6844697/2025/11/30/premier-league-205-kick-off-time/
-
-**Connections: Sports Edition Coach: Hints for Nov. 30, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6848269/2025/11/30/connections-sports-edition-hints-for-nov-30-2025/
 
