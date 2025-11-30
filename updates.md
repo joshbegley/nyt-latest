@@ -1,3 +1,7 @@
+**Slot admits 'relief' after Liverpool end losing run**\
+`Liverpool had lost three in a row in all competitions, all by three or more goals, before Sunday's 2-0 win at over West Ham. `\
+https://nytimes.com/athletic/6849503/2025/11/30/arne-slot-liverpool-west-ham/
+
 **Qatar GP: Submit your questions for our F1 mailbag**\
 `What questions do you have for our F1 experts after the Qatar GP?`\
 https://nytimes.com/athletic/6849497/2025/11/30/qatar-gp-f1-mailbag/

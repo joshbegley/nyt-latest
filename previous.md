@@ -1,3 +1,7 @@
+**Slot admits 'relief' after Liverpool end losing run**\
+`Liverpool had lost three in a row in all competitions, all by three or more goals, before Sunday's 2-0 win at over West Ham. `\
+https://nytimes.com/athletic/6849503/2025/11/30/arne-slot-liverpool-west-ham/
+
 **Qatar GP: Submit your questions for our F1 mailbag**\
 `What questions do you have for our F1 experts after the Qatar GP?`\
 https://nytimes.com/athletic/6849497/2025/11/30/qatar-gp-f1-mailbag/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6849403/2025/11/30/flames-vs-hurricanes-stream-how-
 **How to watch Senators vs. Stars: Time, TV, streaming**\
 `Find out how to watch the Ottawa Senators play the Dallas Stars, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6849401/2025/11/30/senators-vs-stars-stream-how-to-watch-nov-30/
-
-**Florida to hire Tulane's Jon Sumrall as next head coach: Source**\
-`Sumrall is expected to coach Tulane through the College Football Playoff, if it makes it.`\
-https://nytimes.com/athletic/6847982/2025/11/30/florida-hiring-jon-sumrall-tulane/
 

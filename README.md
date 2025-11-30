@@ -1,5 +1,9 @@
+**Max Verstappen wins, McLaren gamble backfires, title goes to the wire: Qatar Grand Prix briefing**\
+`Max Verstappen wins in Qatar to move to second in the drivers' championship`\
+https://nytimes.com/athletic/6849422/2025/11/30/qatar-grand-prix-briefing-max-verstappen-wins-mclaren-gamble-backfires-title-goes-to-the-wire/
+
 **Slot admits 'relief' after Liverpool end losing run**\
-`Liverpool had lost three in a row in all competitions, all by three or more goals, before Sunday's 2-0 win at over West Ham. `\
+`Liverpool had lost three matches in a row in all competitions, each by a three-goal margin, before Sunday's 2-0 win over West Ham. `\
 https://nytimes.com/athletic/6849503/2025/11/30/arne-slot-liverpool-west-ham/
 
 **Qatar GP: Submit your questions for our F1 mailbag**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6849405/2025/11/30/thunder-vs-trail-blazers-stream-
 **How to watch Flames vs. Hurricanes: Time, TV, streaming**\
 `Find out how to watch the Calgary Flames play the Carolina Hurricanes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6849403/2025/11/30/flames-vs-hurricanes-stream-how-to-watch-nov-30/
-
-**How to watch Senators vs. Stars: Time, TV, streaming**\
-`Find out how to watch the Ottawa Senators play the Dallas Stars, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6849401/2025/11/30/senators-vs-stars-stream-how-to-watch-nov-30/
 
