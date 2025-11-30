@@ -1,3 +1,7 @@
+**Wrexham have found their Championship feet. Next step play-offs?**\
+`Taking 22 points from a possible 39 since mid-September speaks volumes for how well Wrexham have adapted to life in the second tier`\
+https://nytimes.com/athletic/6836486/2025/11/30/wrexham-championship-blackburn-analysis/
+
 **Are Chelsea genuine Premier League title contenders?**\
 `Ahead of this weekend's game against league leaders Arsenal, we assess how seriously to take Enzo Maresca's side in the title race `\
 https://nytimes.com/athletic/6844809/2025/11/30/are-chelsea-genuine-title-contenders/
@@ -6,7 +10,7 @@ https://nytimes.com/athletic/6844809/2025/11/30/are-chelsea-genuine-title-conten
 `Kostas Tsimikas looks back on his time at Liverpool, reflects on his friend Diogo Jota, and compares Klopp, Slot and Gasperini`\
 https://nytimes.com/athletic/6813913/2025/11/30/kostas-tsimikas-on-leaving-liverpool-life-at-roma-and-accepting-sadness-in-football/
 
-**College Football Playoff 2025 projections: Most likely bracket with Rivalry Week underway**\
+**College Football Playoff 2025 projections: How many teams still have a chance?**\
 `Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
 https://nytimes.com/athletic/6560541/2025/11/30/college-football-playoff-bracket-projections-odds/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6844697/2025/11/30/premier-league-205-kick-off-time
 **Connections: Sports Edition Coach: Hints for Nov. 30, 2025**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/6848269/2025/11/30/connections-sports-edition-hints-for-nov-30-2025/
-
-**No Corrections: Nov. 30, 2025**\
-`No corrections appeared in print on Sunday, Nov. 30, 2025.`\
-https://nytimes.com/2025/11/30/pageoneplus/no-corrections-nov-30-2025.html
 
