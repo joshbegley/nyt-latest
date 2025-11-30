@@ -1,3 +1,7 @@
+**College Football Playoff 2025 projections: How many teams still have a chance?**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/11/30/college-football-playoff-bracket-projections-odds/
+
 **Ukraine’s top negotiator resigns, but peace talks carry on.**\
 `By Cassandra Vinograd`\
 https://nytimes.com/live/2025/11/30/us/trump-news/ukraines-top-negotiator-resigns-but-peace-talks-carry-on

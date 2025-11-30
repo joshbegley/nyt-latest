@@ -1,3 +1,7 @@
+**College Football Playoff 2025 projections: How many teams still have a chance?**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/11/30/college-football-playoff-bracket-projections-odds/
+
 **Ukraine’s top negotiator resigns, but peace talks carry on.**\
 `By Cassandra Vinograd`\
 https://nytimes.com/live/2025/11/30/us/trump-news/ukraines-top-negotiator-resigns-but-peace-talks-carry-on
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6848970/2025/11/30/wyoming-vs-texas-tech-stream-how
 **How to watch Indiana vs. Iowa State women's basketball: Time, TV, streaming**\
 `Find out how to watch the Indiana Hoosiers play the Iowa State Cyclones, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6848968/2025/11/30/indiana-vs-iowa-state-stream-how-to-watch-nov-30/
-
-**Trump Administration Live Updates: U.S. Negotiators to Discuss Peace Plan With Ukrainian Officials**\
-``\
-https://nytimes.com/live/2025/11/30/us/trump-news
 
