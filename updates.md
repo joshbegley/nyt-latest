@@ -1,3 +1,7 @@
+**Instant grades for college football's 2025-26 head-coaching hires**\
+`In college football, you never really know whether a coaching hire is going to work. But it's never too early to talk about fit.`\
+https://nytimes.com/athletic/6827060/2025/11/30/college-football-coaching-carousel-grades/
+
 **The Briefing: Chelsea 1 Arsenal 1: What does this mean for title race? Was Caicedo red inevitable? Maresca positives?**\
 `Our writers break down the talking points from a fiery top-of-the-table clash at Stamford Bridge.`\
 https://nytimes.com/athletic/6849070/2025/11/30/chelsea-arsenal-caicedo-merino/

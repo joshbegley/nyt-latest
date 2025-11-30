@@ -2,6 +2,10 @@
 `Our writers break down the talking points from a fiery top-of-the-table clash at Stamford Bridge.`\
 https://nytimes.com/athletic/6849070/2025/11/30/chelsea-arsenal-caicedo-merino/
 
+**Instant grades for college football's 2025-26 head-coaching hires**\
+`In college football, you never really know whether a coaching hire is going to work. But it's never too early to talk about fit.`\
+https://nytimes.com/athletic/6827060/2025/11/30/college-football-coaching-carousel-grades/
+
 **Colts CB Sauce Gardner exits game vs. Texans with calf injury**\
 `Gardner got hurt on the Colts' second defensive snap of the day. `\
 https://nytimes.com/athletic/6849641/2025/11/30/colts-sauce-gardner-calf-injury-texans/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6849497/2025/11/30/qatar-gp-f1-mailbag/
 **‘Zootopia 2’ Goes Wild at the Worldwide Box Office**\
 `The Disney sequel took in $156 million in North America over its first five days. Strong turnout in China pushed the film’s global opening total to $556 million.`\
 https://nytimes.com/2025/11/30/business/zootopia-2-box-office.html
-
-**How to watch Raptors vs. Knicks: Time, TV, streaming**\
-`Find out how to watch the Toronto Raptors play the New York Knicks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6849413/2025/11/30/raptors-vs-knicks-stream-how-to-watch-nov-30/
 
