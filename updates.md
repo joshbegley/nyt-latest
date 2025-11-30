@@ -1,3 +1,15 @@
+**How to watch Grizzlies vs. Kings: Time, TV, streaming**\
+`Find out how to watch the Memphis Grizzlies play the Sacramento Kings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6849868/2025/11/30/grizzlies-vs-kings-stream-how-to-watch-nov-30/
+
+**How to watch Pelicans vs. Lakers: Time, TV, streaming**\
+`Find out how to watch the New Orleans Pelicans play the Los Angeles Lakers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6849865/2025/11/30/pelicans-vs-lakers-stream-how-to-watch-nov-30/
+
+**AP Top 25: Ohio State, Indiana set for 1 vs. 2 Big Ten title game**\
+`No. 1 Ohio State, No. 2 Indiana, No. 3 Georgia, No. 4 Oregon and No. 5 Texas Tech top the AP Top 25 heading into conference championships.`\
+https://nytimes.com/athletic/6849749/2025/11/30/ap-top-25-rankings-osu-indiana-big-ten/
+
 **Review: It’s Hard to Breathe in This ‘Walküre’**\
 `The singers did marvelous work at the Opéra Bastille in Paris, where the director Calixto Bieito’s new staging takes place in a hellish dystopia.`\
 https://nytimes.com/2025/11/30/arts/music/review-die-walkure-paris.html

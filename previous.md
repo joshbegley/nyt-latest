@@ -1,3 +1,15 @@
+**How to watch Grizzlies vs. Kings: Time, TV, streaming**\
+`Find out how to watch the Memphis Grizzlies play the Sacramento Kings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6849868/2025/11/30/grizzlies-vs-kings-stream-how-to-watch-nov-30/
+
+**How to watch Pelicans vs. Lakers: Time, TV, streaming**\
+`Find out how to watch the New Orleans Pelicans play the Los Angeles Lakers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6849865/2025/11/30/pelicans-vs-lakers-stream-how-to-watch-nov-30/
+
+**AP Top 25: Ohio State, Indiana set for 1 vs. 2 Big Ten title game**\
+`No. 1 Ohio State, No. 2 Indiana, No. 3 Georgia, No. 4 Oregon and No. 5 Texas Tech top the AP Top 25 heading into conference championships.`\
+https://nytimes.com/athletic/6849749/2025/11/30/ap-top-25-rankings-osu-indiana-big-ten/
+
 **Review: It’s Hard to Breathe in This ‘Walküre’**\
 `The singers did marvelous work at the Opéra Bastille in Paris, where the director Calixto Bieito’s new staging takes place in a hellish dystopia.`\
 https://nytimes.com/2025/11/30/arts/music/review-die-walkure-paris.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6849641/2025/11/30/colts-sauce-gardner-calf-injury-
 **Lawmakers Suggest Follow-Up Boat Strike Could Be a War Crime**\
 `Top Republicans have joined Democrats in demanding answers about the escalating military campaign the Trump administration says is aimed at targeting drug traffickers.`\
 https://nytimes.com/2025/11/30/us/politics/trump-boat-strikes-war-crime.html
-
-**Protesters Arrested After Trying to Block a Possible ICE Raid**\
-`Nearly 200 protesters tried to block federal agents from leaving a parking garage in Lower Manhattan on Saturday. The confrontation appeared to prevent a possible ICE raid nearby, and led to violent clashes between the police and protesters.`\
-https://nytimes.com/video/nyregion/100000010555061/protesters-arrested-after-trying-to-block-a-possible-ice-raid.html
-
-**UNLV, Boise State win 4-way tiebreaker, will play for Mountain West title**\
-`After four teams tied for first place, the conference used four different metrics to determine which two would play for the championship.`\
-https://nytimes.com/athletic/6849267/2025/11/30/unlv-boise-state-mountain-west-tiebreaker/
-
-**Verstappen wins, McLaren gamble backfires, title goes to wire: Qatar Grand Prix briefing**\
-`Max Verstappen wins in Qatar to move to second in the 2025 F1 drivers' championship, as McLaren's strategy errors hampers Piastri and Norris`\
-https://nytimes.com/athletic/6849422/2025/11/30/qatar-grand-prix-briefing-max-verstappen-wins-mclaren-gamble-backfires-title-goes-to-the-wire/
 

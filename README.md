@@ -1,3 +1,7 @@
+**Popular trade target Kodai Senga told Mets he wants to remain with club: Sources**\
+`Though Senga can block trades to 10 franchises with a limited no-trade clause, the Mets may still deal him this offseason.`\
+https://nytimes.com/athletic/6849186/2025/11/30/kodai-senga-mets-trade-talks/
+
 **How to watch Grizzlies vs. Kings: Time, TV, streaming**\
 `Find out how to watch the Memphis Grizzlies play the Sacramento Kings, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6849868/2025/11/30/grizzlies-vs-kings-stream-how-to-watch-nov-30/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6827060/2025/11/30/college-football-coaching-carous
 **Colts CB Sauce Gardner ruled out vs. Texans with calf injury**\
 `Indianapolis star, who was acquired from the Jets in October, was injured on his team's second defensive snap of the day. `\
 https://nytimes.com/athletic/6849641/2025/11/30/colts-sauce-gardner-calf-injury-texans/
-
-**Lawmakers Suggest Follow-Up Boat Strike Could Be a War Crime**\
-`Top Republicans have joined Democrats in demanding answers about the escalating military campaign the Trump administration says is aimed at targeting drug traffickers.`\
-https://nytimes.com/2025/11/30/us/politics/trump-boat-strikes-war-crime.html
 
