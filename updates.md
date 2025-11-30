@@ -1,3 +1,15 @@
+**UNLV, Boise State win 4-way tiebreaker, will play for Mountain West title**\
+`After four teams tied for first place, the conference used four different metrics to determine which two would play for the championship.`\
+https://nytimes.com/athletic/6849267/2025/11/30/unlv-boise-state-mountain-west-tiebreaker/
+
+**Verstappen wins, McLaren gamble backfires, title goes to wire: Qatar Grand Prix briefing**\
+`Max Verstappen wins in Qatar to move to second in the drivers' championship`\
+https://nytimes.com/athletic/6849422/2025/11/30/qatar-grand-prix-briefing-max-verstappen-wins-mclaren-gamble-backfires-title-goes-to-the-wire/
+
+**Slot admits 'relief' after Liverpool end losing run**\
+`Liverpool had lost three matches in a row in all competitions, each by a three-goal margin, before Sunday's 2-0 win over West Ham. `\
+https://nytimes.com/athletic/6849503/2025/11/30/arne-slot-liverpool-west-ham/
+
 **Slot admits 'relief' after Liverpool end losing run**\
 `Liverpool had lost three in a row in all competitions, all by three or more goals, before Sunday's 2-0 win at over West Ham. `\
 https://nytimes.com/athletic/6849503/2025/11/30/arne-slot-liverpool-west-ham/

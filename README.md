@@ -1,3 +1,11 @@
+**Lawmakers Suggest Follow-Up Boat Strike Could Be a War Crime**\
+`Top Republicans have joined Democrats in demanding answers about the escalating military campaign the Trump administration says is aimed at targeting drug traffickers.`\
+https://nytimes.com/2025/11/30/us/politics/lawmakers-boat-strikes-war-crime.html
+
+**Protesters Arrested After Trying to Block a Possible ICE Raid**\
+`Nearly 200 protesters tried to block federal agents from leaving a parking garage in Lower Manhattan on Saturday. The confrontation appeared to prevent a possible ICE raid nearby, and led to violent clashes between the police and protesters.`\
+https://nytimes.com/video/nyregion/100000010555061/protesters-arrested-after-trying-to-block-a-possible-ice-raid.html
+
 **UNLV, Boise State win 4-way tiebreaker, will play for Mountain West title**\
 `After four teams tied for first place, the conference used four different metrics to determine which two would play for the championship.`\
 https://nytimes.com/athletic/6849267/2025/11/30/unlv-boise-state-mountain-west-tiebreaker/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6849411/2025/11/30/hawks-vs-76ers-stream-how-to-wat
 **How to watch Celtics vs. Cavaliers: Time, TV, streaming**\
 `Find out how to watch the Boston Celtics play the Cleveland Cavaliers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6849409/2025/11/30/celtics-vs-cavaliers-stream-how-to-watch-nov-30/
-
-**How to watch Spurs vs. Timberwolves: Time, TV, streaming**\
-`Find out how to watch the San Antonio Spurs play the Minnesota Timberwolves, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6849407/2025/11/30/spurs-vs-timberwolves-stream-how-to-watch-nov-30/
-
-**How to watch Thunder vs. Trail Blazers: Time, TV, streaming**\
-`Find out how to watch the Oklahoma City Thunder play the Portland Trail Blazers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6849405/2025/11/30/thunder-vs-trail-blazers-stream-how-to-watch-nov-30/
 
