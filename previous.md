@@ -1,3 +1,11 @@
+**Glenn Close, Ethan Hawke and Others Mourn Tom Stoppard**\
+`Nobody advanced or cherished the English language more than Stoppard, Tim Curry noted. Colleagues and fans agreed.`\
+https://nytimes.com/2025/11/30/theater/tom-stoppard-tributes-reactions.html
+
+**Until Saturday: Kiffin drama consumes rivalry weekend**\
+`Until Saturday is The Athletic's free college football newsletter.`\
+https://nytimes.com/athletic/6849055/2025/11/30/college-football-results-lane-kiffin-until-saturday/
+
 **Crystal Palace 1 Manchester United 2: Smart set-pieces? Why was Mateta penalty retaken?**\
 `Manchester United beat Crystal Palace 2-1 on Sunday afternoon at Selhurst Park`\
 https://nytimes.com/athletic/6848843/2025/11/30/crystal-palace-man-utd-score-result-report-analysis/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6848994/2025/11/30/rockets-vs-jazz-stream-how-to-wa
 **How to watch Ducks vs. Blackhawks: Time, TV, streaming**\
 `Find out how to watch the Anaheim Ducks play the Chicago Blackhawks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6848992/2025/11/30/ducks-vs-blackhawks-stream-how-to-watch-nov-30/
-
-**How to watch Bellarmine vs. Louisville women's basketball: Time, TV, streaming**\
-`Find out how to watch the Bellarmine Knights play the Louisville Cardinals, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6848978/2025/11/30/bellarmine-vs-louisville-stream-how-to-watch-nov-30/
-
-**How to watch Grambling vs. Baylor women's basketball: Time, TV, streaming**\
-`Find out how to watch the Grambling Tigers play the Baylor Bears, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6848976/2025/11/30/grambling-vs-baylor-stream-how-to-watch-nov-30/
 

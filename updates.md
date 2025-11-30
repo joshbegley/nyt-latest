@@ -1,3 +1,11 @@
+**Glenn Close, Ethan Hawke and Others Mourn Tom Stoppard**\
+`Nobody advanced or cherished the English language more than Stoppard, Tim Curry noted. Colleagues and fans agreed.`\
+https://nytimes.com/2025/11/30/theater/tom-stoppard-tributes-reactions.html
+
+**Until Saturday: Kiffin drama consumes rivalry weekend**\
+`Until Saturday is The Athletic's free college football newsletter.`\
+https://nytimes.com/athletic/6849055/2025/11/30/college-football-results-lane-kiffin-until-saturday/
+
 **Crystal Palace 1 Manchester United 2: Smart set-pieces? Why was Mateta penalty retaken?**\
 `Manchester United beat Crystal Palace 2-1 on Sunday afternoon at Selhurst Park`\
 https://nytimes.com/athletic/6848843/2025/11/30/crystal-palace-man-utd-score-result-report-analysis/
