@@ -1,3 +1,15 @@
+**The Oxford 2025 Word of the Year Is ‘Rage Bait’**\
+`And if you’re angry about it, that just proves the point.`\
+https://nytimes.com/2025/11/30/arts/oxford-word-of-the-year-rage-bait.html
+
+**'Downright scandalous': Ajax match abandoned in sixth minute as fans set off fireworks**\
+`Ajax described the incident as "downright scandalous" and "unacceptable", and promised to identify and sanction the perpetrators.`\
+https://nytimes.com/athletic/6850116/2025/11/30/ajax-groningen-fireworks-abandoned/
+
+**Chargers' Justin Herbert injures hands vs. Raiders, returns in second quarter**\
+`Herbert missed nine offensive plays before returning wearing a padded glove and with his left ring and middle finger taped together. `\
+https://nytimes.com/athletic/6850228/2025/11/30/justin-herbert-chargers-hand-injury-update/
+
 **Chargers' Justin Herbert leaves with hand injury vs. Raiders**\
 `Herbert appeared to injure his hand while leading the Chargers to a touchdown on their opening drive.`\
 https://nytimes.com/athletic/6850228/2025/11/30/justin-herbert-chargers-hand-injury-update/
