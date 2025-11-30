@@ -1,3 +1,19 @@
+**Cory Booker Weds Alexis Lewis in a Private Ceremony**\
+`The couple legally married at a courthouse in Newark days before hosting an intimate wedding in Washington, D.C. on Saturday. They shared their wedding details exclusively with The New York Times.`\
+https://nytimes.com/2025/11/30/style/cory-booker-wedding-alexis-lewis.html
+
+**The New York Times in Print for Sunday, Nov. 30, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/11/30/todays-new-york-times
+
+**America Has Sidelined Education. You Can Help.**\
+`The New York Times Communities Fund has partnered with charities that invest in education at critical junctures across people’s life spans.`\
+https://nytimes.com/2025/11/30/opinion/communities-fund-charitable-giving.html
+
+**Apocalypse Now**\
+`Apocalyptic predictions may actually serve as comforting fantasies, at which point our future freakouts become an excuse for inaction.`\
+https://nytimes.com/2025/11/30/opinion/apocalypse-thinking-antichrist.html
+
 **After emotional win over Avs, Wild suffer letdown vs. Sabres: Takeaways**\
 `Minnesota was hot in November, but coach John Hynes points to shootout loss as sign Wild has room "to grow as a team."`\
 https://nytimes.com/athletic/6848153/2025/11/30/minnesota-wild-buffalo-sabres-takeaways/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6813913/2025/11/30/kostas-tsimikas-on-leaving-liver
 **College Football Playoff 2025 projections: How many teams still have a chance?**\
 `Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
 https://nytimes.com/athletic/6560541/2025/11/30/college-football-playoff-bracket-projections-odds/
-
-**England managed a superb, celebratory homecoming. But is the succession plan clear?**\
-`England have an elite, core team. What comes next feels like a big question for manager Sarina Wiegman`\
-https://nytimes.com/athletic/6847945/2025/11/30/england-china-report-analysis/
-
-**Tedesco interview: 'Everywhere you go, you have Fenerbahce fans. You feel this electricity'**\
-`The Athletic spoke to Fenerbahce's head coach before the Intercontinental Derby against Galatasaray on Monday`\
-https://nytimes.com/athletic/6842097/2025/11/30/domenico-tedesco-interview-fenerbahce/
-
-**Fed Up With the Taliban, Pakistan Expels Masses of Afghans**\
-`Labeling Afghans a national security threat, Pakistan has forced out about a million this year, depriving them of a haven from Afghanistan’s turmoil.`\
-https://nytimes.com/2025/11/30/world/asia/pakistan-afghans-mass-expulsions.html
-
-**Quote of the Day: ‘Group’ Is a Gift Still Treasured After 44 Years**\
-`Quotation of the Day for November 30, 2025.`\
-https://nytimes.com/2025/11/30/pageoneplus/quote-of-the-day-group-is-a-gift-still-treasured-after-44-years.html
 
