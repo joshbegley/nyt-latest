@@ -1,3 +1,15 @@
+**Trump Administration Live Updates: U.S. Negotiators to Discuss Peace Plan With Ukrainian Officials**\
+``\
+https://nytimes.com/live/2025/11/30/us/trump-news
+
+**Mandel's Final Thoughts: The CFP field is overcrowded — and a squeeze is coming**\
+`There could be a record amount of outrage in college football come Tuesday for bubble teams with strong cases but not enough CFP spots.`\
+https://nytimes.com/athletic/6848628/2025/11/30/college-football-scores-results-week-14/
+
+**The Dangers of E-bikes**\
+`Injuries and deaths are rising — but the law hasn’t kept up.`\
+https://nytimes.com/2025/11/30/briefing/the-dangers-of-e-bikes.html
+
 **Notre Dame, 2025's ultimate eye test team, offers one final CFP statement**\
 `The Irish have played two-and-a-half months of elimination games to get to this point, only to have to wait to see what the committee says.`\
 https://nytimes.com/athletic/6848863/2025/11/30/notre-dame-cfp-stanford-results-highlights/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6845072/2025/11/30/tennis-2025-season-atp-wta/
 **Behind the one trend that defines the Jets' season so far**\
 `Winnipeg's breakout problems are costing it shots, scoring chances and real goals this season.`\
 https://nytimes.com/athletic/6843214/2025/11/30/winnipeg-jets-season-stats-predators-nhl/
-
-**'Incredible' Jimmy Butler lifts Curry-less Warriors past Pelicans**\
-`Golden State needs Jimmy Butler to be at his peak, most dominant level without Stephen Curry. He reached it Saturday night vs. New Orleans.`\
-https://nytimes.com/athletic/6848733/2025/11/30/incredible-jimmy-butler-warriors-pelicans/
-
-**Hawaii's Kansei Matsuzawa ties FBS record by making first 25 FGs before miss**\
-`Kansei Matsuzawa taught himself to kick on YouTube in Japan, then tied an FBS record at Hawaii before his first miss of the season Saturday.`\
-https://nytimes.com/athletic/6848693/2025/11/30/hawaii-kicker-kansei-matsuzawa-ties-ncaa-record/
-
-**Inter Miami, hardened by past failure and a happy accident, hits peak for MLS Cup**\
-`Inter Miami discovered the cruel nature of playoffs last season, but the pain of that experience has informed its journey to MLS Cup.`\
-https://nytimes.com/athletic/6848447/2025/11/30/inter-miami-mls-cup-messi-mascherano-playoffs/
 
