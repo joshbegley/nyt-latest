@@ -1,3 +1,7 @@
+**Rangers reach new low after embarrassing effort as Adam Fox injury concern looms**\
+`New York was outshot 35-13 in a 4-1 loss to Tampa Bay and has a 2-8-1 record at home this season.`\
+https://nytimes.com/athletic/6847906/2025/11/29/new-york-rangers-lightning-adam-fox-injury/
+
 **Jaylen Brown had another big scoring night on Saturday, but it wasn't enough**\
 `Jaylen Brown tied his season high with 41 points Saturday, but missed a potential game-tying basket with under a minute left.`\
 https://nytimes.com/athletic/6848095/2025/11/29/jaylen-brown-celtics-41-points-john-havlicek/
