@@ -1,3 +1,7 @@
+**Notre Dame, 2025's ultimate eye test team, offers one final CFP statement**\
+`The Irish have played two-and-a-half months of elimination games to get to this point, only to have to wait to see what the committee says.`\
+https://nytimes.com/athletic/6848863/2025/11/30/notre-dame-cfp-stanford-results-highlights/
+
 **Netanyahu Asks Israel’s President to Pardon Him in Corruption Cases**\
 `Prime Minister Benjamin Netanyahu made the appeal weeks after President Trump made the same request to the Israeli president.`\
 https://nytimes.com/2025/11/30/world/middleeast/netanyahu-pardon-request-israel.html

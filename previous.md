@@ -1,3 +1,7 @@
+**Notre Dame, 2025's ultimate eye test team, offers one final CFP statement**\
+`The Irish have played two-and-a-half months of elimination games to get to this point, only to have to wait to see what the committee says.`\
+https://nytimes.com/athletic/6848863/2025/11/30/notre-dame-cfp-stanford-results-highlights/
+
 **Hong Kong’s Migrant Domestic Workers Mourn Their Losses in Deadly Fire**\
 `At least eight workers died, and many of those who survived, after saving children and others in their care, are worried about losing their jobs and being forced to leave.`\
 https://nytimes.com/2025/11/30/world/asia/hongkong-fire-domestic-workers.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6848693/2025/11/30/hawaii-kicker-kansei-matsuzawa-t
 **Inter Miami, hardened by past failure and a happy accident, hits peak for MLS Cup**\
 `Inter Miami discovered the cruel nature of playoffs last season, but the pain of that experience has informed its journey to MLS Cup.`\
 https://nytimes.com/athletic/6848447/2025/11/30/inter-miami-mls-cup-messi-mascherano-playoffs/
-
-**Netanyahu Asks Israel’s President to Pardon Him in Corruption Cases**\
-`Prime Minister Benjamin Netanyahu made the appeal weeks after President Trump made the same request to the Israeli president.`\
-https://nytimes.com/2025/11/30/world/middleeast/netanyahu-pardon-request-israel.html
 
