@@ -1,3 +1,7 @@
+**After emotional win over Avs, Wild suffer letdown vs. Sabres: Takeaways**\
+`Minnesota was hot in November, but coach John Hynes points to shootout loss as sign Wild has room "to grow as a team."`\
+https://nytimes.com/athletic/6848153/2025/11/30/minnesota-wild-buffalo-sabres-takeaways/
+
 **Simon Harmer and South Africa's historic win in India: 'If the grim reaper of cricket said it’s over, I'd be content'**\
 `The 36-year-old is the best off-spinner on the planet and yet has only played 14 Tests for South Africa - now he is making up for lost time `\
 https://nytimes.com/athletic/6842385/2025/11/30/simon-harmer-south-africa-india-interview/
