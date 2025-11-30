@@ -11,7 +11,7 @@ https://nytimes.com/athletic/6848099/2025/11/29/miami-pitt-score-analysis-playof
 https://nytimes.com/athletic/6848074/2025/11/29/college-football-rivalry-week-14-jokes-roundup/
 
 **Rangers reach new low after embarrassing effort as Adam Fox injury concern looms**\
-`New York was outshot 35-13 in a 4-1 loss to Tampa Bay and now has a 2-8-1 record at home this season.`\
+`New York was outshot 35-13 in a 4-1 loss to Tampa Bay and has a 2-8-1 record at home this season.`\
 https://nytimes.com/athletic/6847906/2025/11/29/new-york-rangers-lightning-adam-fox-injury/
 
 **Michigan's spell over Ohio State is over. Now it's time for some soul-searching**\

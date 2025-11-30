@@ -1,3 +1,11 @@
+**Jaylen Brown had another big scoring night on Saturday, but it wasn't enough**\
+`Jaylen Brown tied his season high with 41 points Saturday, but missed a potential game-tying basket with under a minute left.`\
+https://nytimes.com/athletic/6848095/2025/11/29/jaylen-brown-celtics-41-points-john-havlicek/
+
+**Miami is Playoff-worthy, but assured nothing. Will it come down to Canes and Notre Dame?**\
+`Miami, which crushed Pitt on Saturday, is not without fault. Clearly the best team in the ACC, it still let two winnable games get away.`\
+https://nytimes.com/athletic/6848099/2025/11/29/miami-pitt-score-analysis-playoff/
+
 **The best trolls of college football's rivalry week**\
 `Rivalry week was ripe with mascot jokes, social media trolling and witty video montages.`\
 https://nytimes.com/athletic/6848074/2025/11/29/college-football-rivalry-week-14-jokes-roundup/
