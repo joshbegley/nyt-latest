@@ -1,5 +1,5 @@
 **Messi, Miami advance to MLS Cup that they'll host; Full playoff bracket**\
-`Lionel Messi and Inter Miami are one win away from winning their first MLS Cup title`\
+`Lionel Messi and Inter Miami are one win away from lifting their first MLS Cup trophy`\
 https://nytimes.com/athletic/6740291/2025/11/29/mls-cup-2025-playoff-bracket-full-postseason-schedule-updated-results/
 
 **College Football Playoff 2025 projections: Most likely bracket with Rivalry Week underway**\
