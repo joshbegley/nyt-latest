@@ -15,7 +15,7 @@ https://nytimes.com/video/nyregion/100000010555061/protesters-arrested-after-try
 https://nytimes.com/athletic/6849267/2025/11/30/unlv-boise-state-mountain-west-tiebreaker/
 
 **Verstappen wins, McLaren gamble backfires, title goes to wire: Qatar Grand Prix briefing**\
-`Max Verstappen wins in Qatar to move to second in the drivers' championship`\
+`Max Verstappen wins in Qatar to move to second in the 2025 F1 drivers' championship, as McLaren's strategy errors hampers Piastri and Norris`\
 https://nytimes.com/athletic/6849422/2025/11/30/qatar-grand-prix-briefing-max-verstappen-wins-mclaren-gamble-backfires-title-goes-to-the-wire/
 
 **Slot admits 'relief' after Liverpool end losing run**\

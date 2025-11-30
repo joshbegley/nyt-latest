@@ -1,3 +1,7 @@
+**Colts CB Sauce Gardner exits game vs. Texans with calf injury**\
+`Gardner got hurt on the Colts' second defensive snap of the day. `\
+https://nytimes.com/athletic/6849641/2025/11/30/colts-sauce-gardner-calf-injury-texans/
+
 **Lawmakers Suggest Follow-Up Boat Strike Could Be a War Crime**\
 `Top Republicans have joined Democrats in demanding answers about the escalating military campaign the Trump administration says is aimed at targeting drug traffickers.`\
 https://nytimes.com/2025/11/30/us/politics/trump-boat-strikes-war-crime.html
