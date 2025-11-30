@@ -1,3 +1,11 @@
+**Love Clothes? We Want to Hear About Your Favorite Stores.**\
+`Tell us about the places big and small, new and old, where you have the most fun shopping in person.`\
+https://nytimes.com/2025/11/30/style/favorite-clothes-stores-us-share.html
+
+**Colts CB Sauce Gardner ruled out vs. Texans with calf injury**\
+`Indianapolis star, who was acquired from the Jets in October, was injured on his team's second defensive snap of the day. `\
+https://nytimes.com/athletic/6849641/2025/11/30/colts-sauce-gardner-calf-injury-texans/
+
 **Sources: New York Rangers placing Adam Fox on LTIR with left-shoulder injury**\
 `Fox, who has been the Rangers' best player this season, is expected to miss multiple weeks with the injury.`\
 https://nytimes.com/athletic/6849698/2025/11/30/new-york-rangers-adam-fox-injury/
