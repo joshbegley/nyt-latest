@@ -1,3 +1,7 @@
+**A Small West Virginia Town Brought Even Closer Through Grief**\
+`In Webster Springs, everyone knows one another. When National Guard Specialist Sarah Beckstrom was killed, that connection was even further strengthened.`\
+https://nytimes.com/2025/11/29/us/national-guard-shooting-beckstrom-webster-springs.html
+
 **Ohio State made it clear: There's nothing to doubt about Ryan Day now**\
 `First Ohio State won a national championship. Now it's lifted an arguably bigger weight off Ryan Day's shoulders by beating Michigan.`\
 https://nytimes.com/athletic/6848054/2025/11/29/ryan-day-ohio-state-michigan-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6847906/2025/11/29/new-york-rangers-lightning-adam-
 **Michigan's spell over Ohio State is over. Now it's time for some soul-searching**\
 `What’s the point in spending millions on a QB and having him attempt five passes in the first half of the biggest game of the season?`\
 https://nytimes.com/athletic/6848158/2025/11/29/michigan-ohio-state-sherrone-moore-coach/
-
-**Diego Pavia, Vandy make Heisman and CFP cases with historic win over Vols**\
-`Pavia threw for 268 yards and ran for 165 more to deliver the first 10-win season in Vanderbilt history.`\
-https://nytimes.com/athletic/6848125/2025/11/29/vanderbilt-tennessee-diego-pavia-score-result/
 

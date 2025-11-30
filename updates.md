@@ -1,3 +1,7 @@
+**A Small West Virginia Town Brought Even Closer Through Grief**\
+`In Webster Springs, everyone knows one another. When National Guard Specialist Sarah Beckstrom was killed, that connection was even further strengthened.`\
+https://nytimes.com/2025/11/29/us/national-guard-shooting-beckstrom-webster-springs.html
+
 **Ohio State made it clear: There's nothing to doubt about Ryan Day now**\
 `First Ohio State won a national championship. Now it's lifted an arguably bigger weight off Ryan Day's shoulders by beating Michigan.`\
 https://nytimes.com/athletic/6848054/2025/11/29/ryan-day-ohio-state-michigan-2025/
