@@ -1,3 +1,7 @@
+**LSU plucks Kiffin from Ole Miss; Rebels elevate DC Pete Golding**\
+`Kiffin’s future has been a lingering, high-profile drama throughout the season.`\
+https://nytimes.com/athletic/6825155/2025/11/30/lane-kiffin-lsu-ole-miss-pete-golding/
+
 **Seth Curry to sign with Warriors, team with brother Stephen: Source**\
 `The younger Curry spent training camp with the Warriors but was waived before the season because of the cap restrictions.`\
 https://nytimes.com/athletic/6849913/2025/11/30/seth-curry-steph-warriors-nba-brothers/
