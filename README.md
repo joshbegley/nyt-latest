@@ -1,3 +1,7 @@
+**Florida to hire Tulane's Jon Sumrall as next head coach: Source**\
+`Sumrall is expected to coach Tulane through the College Football Playoff, if it makes it.`\
+https://nytimes.com/athletic/6847982/2025/11/30/florida-hiring-jon-sumrall-tulane/
+
 **Palace must 'correct' summer transfer window in January - Glasner**\
 `Glasner said his side "would have wished for a little more backing" in the summer.`\
 https://nytimes.com/athletic/6849190/2025/11/30/crystal-palace-transfer-window-glasner/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/30/dining/fried-rice-is-your-friend.html
 **Arkansas hiring Memphis' Ryan Silverfield as next head coach**\
 `Silverfield went 29-9 over his final three seasons at Memphis.`\
 https://nytimes.com/athletic/6833473/2025/11/30/arkansas-football-coaching-search-ryan-silverfield/
-
-**Storm Threatens to Bring ‘Widespread and Impactful’ Snow and Ice to Northeast**\
-`A potential nor’easter could leave as much as a foot of snow in the Poconos in Pennsylvania, the Catskills in New York, and parts of Maine, Massachusetts, New Hampshire and Vermont, a forecaster said.`\
-https://nytimes.com/2025/11/30/weather/snowstorm-northeast-new-england.html
 
