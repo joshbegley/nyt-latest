@@ -1,5 +1,9 @@
-**Pope Leo Calls for a Two-State Solution in Israel**\
-`The pope, en route to Lebanon after visiting Turkey, said he had discussed with the Turkish president how the Vatican might help mediate in the conflict.`\
+**Storm Threatens to Bring ‘Widespread and Impactful’ Snow and Ice to Northeast**\
+`A potential nor’easter could leave as much as a foot of snow in the Poconos in Pennsylvania, the Catskills in New York, and parts of Maine Massachusetts, New Hampshire and Vermont, a forecaster said.`\
+https://nytimes.com/2025/11/30/weather/snowstorm-northeast-new-england.html
+
+**Pope Leo Calls for a Two-State Solution in Mideast Conflict**\
+`The pope, en route to Lebanon after visiting Turkey, said he had discussed with the Turkish president how the Vatican might help Israel and the Palestinian territories find peace.`\
 https://nytimes.com/2025/11/30/world/middleeast/pope-leo-two-state-solution-israel.html
 
 **One of David Sacks’s Waivers**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6848650/2025/11/30/college-football-playoff-bracket
 **The Uneasy Mix of God and Country**\
 `Readers respond to a column by David Brooks about Christian nationalism. Also: A hope for a different kind of president; a view of Meta as not a monopoly.`\
 https://nytimes.com/2025/11/30/opinion/christian-nationalism.html
-
-**We Had a Long, Mostly Good Marriage. It’s OK That It Ended.**\
-`Four years ago, my husband and I made an increasingly common choice: We hugged, apologized for our shortcomings and freed each other.`\
-https://nytimes.com/2025/11/30/opinion/marriage-divorce-happy.html
 
