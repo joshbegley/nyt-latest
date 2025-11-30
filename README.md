@@ -1,3 +1,11 @@
+**It's Alabama-Georgia (Round 2) for the SEC championship after Crimson Tide hold on vs. Auburn**\
+`Alabama's win means Ole Miss, which waits for its coach, Lane Kiffin, to make a decision, won't play in the SEC title game.`\
+https://nytimes.com/athletic/6848399/2025/11/29/alabama-auburn-score-result/
+
+**4 Dead After Shooting in California**\
+`The shooting in Stockton, south of Sacramento and east of San Francisco, also left several people wounded. Few details were immediately available.`\
+https://nytimes.com/2025/11/29/us/shooting-stockton-california.html
+
 **Mirtle: 7 signs the Maple Leafs are back — maybe**\
 `Accentuating the positives after a rare decent game mixed into an ocean of bad ones this year for Toronto.`\
 https://nytimes.com/athletic/6848357/2025/11/29/toronto-maple-leafs-pittsburgh-penguins/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/29/us/politics/trump-david-gentile-commutation.html
 **A Small West Virginia Town Brought Even Closer Through Grief**\
 `In Webster Springs, everyone knows one another. When National Guard Specialist Sarah Beckstrom was killed, that connection was even further strengthened.`\
 https://nytimes.com/2025/11/29/us/national-guard-shooting-beckstrom-webster-springs.html
-
-**Ohio State made it clear: There's nothing to doubt about Ryan Day now**\
-`First Ohio State won a national championship. Now it's lifted an arguably bigger weight off Ryan Day's shoulders by beating Michigan.`\
-https://nytimes.com/athletic/6848054/2025/11/29/ryan-day-ohio-state-michigan-2025/
-
-**Inter Miami reaches MLS Cup final, routs NYCFC behind Allende hat trick**\
-`Lionel Messi and Inter Miami will host MLS Cup after thrashing NYCFC and booking a place in the final.`\
-https://nytimes.com/athletic/6848170/2025/11/29/inter-miami-nycfc-mls-cup-allende-hat-trick-messi/
 

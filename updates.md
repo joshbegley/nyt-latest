@@ -1,3 +1,7 @@
+**Mirtle: 7 signs the Maple Leafs are back — maybe**\
+`Accentuating the positives after a rare decent game mixed into an ocean of bad ones this year for Toronto.`\
+https://nytimes.com/athletic/6848357/2025/11/29/toronto-maple-leafs-pittsburgh-penguins/
+
 **MLS Cup 2025: Your guide to Inter Miami vs. Vancouver Whitecaps**\
 `Two first-time MLS Cup participants led by two serial winners makes for a sensational matchup to decide the league champion`\
 https://nytimes.com/athletic/6848280/2025/11/29/mls-cup-2025-inter-miami-vancouver-whitecaps-messi-muller/
