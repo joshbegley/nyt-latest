@@ -1,3 +1,7 @@
+**Which NFL Week 13 games have biggest impact on playoff races, No. 1 pick chances?**\
+`The Texans, Chargers, Jaguars, Steelers, Bills and Colts all face potentials shift of more than 20 percent in their playoff odds Sunday.`\
+https://nytimes.com/athletic/6840894/2025/11/30/nfl-playoff-chances-standings-draft-odds-week-13/
+
 **Sam Darnold reunion, Shedeur Sanders' next test among NFL Week 13 top storylines**\
 `With five of last year’s eight divisional leaders still trailing rivals as November winds down, things remain wide open in Week 13.`\
 https://nytimes.com/athletic/6840171/2025/11/30/nfl-week-13-storylines-sam-darnold-shedeur-sanders/

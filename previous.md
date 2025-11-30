@@ -1,3 +1,7 @@
+**Which NFL Week 13 games have biggest impact on playoff races, No. 1 pick chances?**\
+`The Texans, Chargers, Jaguars, Steelers, Bills and Colts all face potentials shift of more than 20 percent in their playoff odds Sunday.`\
+https://nytimes.com/athletic/6840894/2025/11/30/nfl-playoff-chances-standings-draft-odds-week-13/
+
 **Sam Darnold reunion, Shedeur Sanders' next test among NFL Week 13 top storylines**\
 `With five of last year’s eight divisional leaders still trailing rivals as November winds down, things remain wide open in Week 13.`\
 https://nytimes.com/athletic/6840171/2025/11/30/nfl-week-13-storylines-sam-darnold-shedeur-sanders/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/30/briefing/how-to-create-rituals.html
 **India Is a Rising Power, but Its Capital Is a Lethal Gas Chamber**\
 `With little being done to clean the skies over New Delhi, the huge city struggles with its toxic air.`\
 https://nytimes.com/2025/11/30/world/asia/india-delhi-pollution.html
-
-**Lebanon’s Christians Look to Pope Leo’s Visit for a Message of Hope and Peace**\
-`The pontiff is set to meet political leaders and say Mass at a Beirut port destroyed by an explosion five years ago. It is the first papal visit to Lebanon since 2012.`\
-https://nytimes.com/2025/11/30/world/middleeast/pope-leo-lebanon-christians.html
 

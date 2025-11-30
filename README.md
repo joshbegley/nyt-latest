@@ -1,3 +1,7 @@
+**What we learned about the CFP: Time for committee to decide Notre Dame-Miami debate**\
+`All the teams that needed to win to secure — if not truly clinch — spots in the College Football Playoff did so this weekend.`\
+https://nytimes.com/athletic/6848718/2025/11/30/college-football-playoff-race-updates-week-14/
+
 **Which NFL Week 13 games have biggest impact on playoff races, No. 1 pick chances?**\
 `The Texans, Chargers, Jaguars, Steelers, Bills and Colts all face potentials shift of more than 20 percent in their playoff odds Sunday.`\
 https://nytimes.com/athletic/6840894/2025/11/30/nfl-playoff-chances-standings-draft-odds-week-13/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/30/theater/tom-stoppard-leopoldstadt-jewish-heritage
 **How to Create Rituals**\
 `A guide for the secular and the sacred alike.`\
 https://nytimes.com/2025/11/30/briefing/how-to-create-rituals.html
-
-**India Is a Rising Power, but Its Capital Is a Lethal Gas Chamber**\
-`With little being done to clean the skies over New Delhi, the huge city struggles with its toxic air.`\
-https://nytimes.com/2025/11/30/world/asia/india-delhi-pollution.html
 
