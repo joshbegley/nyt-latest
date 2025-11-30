@@ -1,3 +1,7 @@
+**Mammoth's Logan Cooley helped off ice, Blues' Alexey Toropchenko ejected after collision**\
+`Toropchenko was given a five-minute major for kneeing and a game misconduct, while Cooley did not return to the game.`\
+https://nytimes.com/athletic/6848397/2025/11/29/mammoth-logan-cooley-injury-blues-alexey-toropchenko/
+
 **Diego Pavia, Vanderbilt have Heisman, Playoff cases — one stronger than the other**\
 `Pavia had 1,862 total yards and 16 touchdowns against legitimate defenses Tennessee, Kentucky, Auburn and Texas in November.`\
 https://nytimes.com/athletic/6848385/2025/11/29/diego-pavia-heisman-trophy-vanderbilt/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6740291/2025/11/29/mls-cup-2025-playoff-bracket-ful
 **College Football Playoff 2025 projections: Most likely bracket with Rivalry Week underway**\
 `Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
 https://nytimes.com/athletic/6560541/2025/11/29/college-football-playoff-bracket-projections-odds/
-
-**Jaylen Brown's latest big scoring night not enough to rescue Celtics vs. Wolves**\
-`Celtics star tied his season high with 41 points, but missed a potential game-tying basket with less than a minute left.`\
-https://nytimes.com/athletic/6848095/2025/11/29/jaylen-brown-celtics-41-points-john-havlicek/
 
