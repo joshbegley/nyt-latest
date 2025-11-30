@@ -1,3 +1,7 @@
+**Jaylen Brown's latest big scoring night not enough to rescue Celtics vs. Wolves**\
+`Celtics star tied his season high with 41 points, but missed a potential game-tying basket with less than a minute left.`\
+https://nytimes.com/athletic/6848095/2025/11/29/jaylen-brown-celtics-41-points-john-havlicek/
+
 **A Small West Virginia Town Brought Even Closer Through Grief**\
 `In Webster Springs, everyone knows one another. When National Guard Specialist Sarah Beckstrom was killed, that connection was even further strengthened.`\
 https://nytimes.com/2025/11/29/us/national-guard-shooting-beckstrom-webster-springs.html

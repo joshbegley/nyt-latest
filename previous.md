@@ -18,8 +18,8 @@ https://nytimes.com/athletic/6740291/2025/11/29/mls-cup-2025-playoff-bracket-ful
 `Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
 https://nytimes.com/athletic/6560541/2025/11/29/college-football-playoff-bracket-projections-odds/
 
-**Jaylen Brown had another big scoring night on Saturday, but it wasn't enough**\
-`Jaylen Brown tied his season high with 41 points Saturday, but missed a potential game-tying basket with under a minute left.`\
+**Jaylen Brown's latest big scoring night not enough to rescue Celtics vs. Wolves**\
+`Celtics star tied his season high with 41 points, but missed a potential game-tying basket with less than a minute left.`\
 https://nytimes.com/athletic/6848095/2025/11/29/jaylen-brown-celtics-41-points-john-havlicek/
 
 **Miami is Playoff-worthy, but assured nothing. Will it come down to Canes and Notre Dame?**\
