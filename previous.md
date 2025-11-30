@@ -1,3 +1,31 @@
+**This Week in the NBA: Thunder roll, Tyrese Maxey coaches dogs, players beef**\
+`Week 6 of the 2025-26 NBA season came with its fair share of memorable moments. `\
+https://nytimes.com/athletic/6795929/2025/11/30/nba-weekly-recap-thunder-raptors-maxey-dog/
+
+**Diego Pavia talked boldly — and showed Tennessee he meant it**\
+`Going back to the offseason, Diego Pavia has talked boldly about Tennessee, and he delivered a performance to match it.`\
+https://nytimes.com/athletic/6848446/2025/11/30/diego-pavia-vanderbilt-heisman-playoff/
+
+**2025 tennis season mailbag: Ask our writers about the storylines you want to remember this year**\
+`The players, matches, and stories you want to know more about come the end of the season`\
+https://nytimes.com/athletic/6845072/2025/11/30/tennis-2025-season-atp-wta/
+
+**Behind the one trend that defines the Jets' season so far**\
+`Winnipeg's breakout problems are costing it shots, scoring chances and real goals this season.`\
+https://nytimes.com/athletic/6843214/2025/11/30/winnipeg-jets-season-stats-predators-nhl/
+
+**'Incredible' Jimmy Butler lifts Curry-less Warriors past Pelicans**\
+`Golden State needs Jimmy Butler to be at his peak, most dominant level without Stephen Curry. He reached it Saturday night vs. New Orleans.`\
+https://nytimes.com/athletic/6848733/2025/11/30/incredible-jimmy-butler-warriors-pelicans/
+
+**Hawaii's Kansei Matsuzawa ties FBS record by making first 25 field goals of 2025 season**\
+`Matsuzawa opened the season by burying a 38-yard game-winner against Stanford on Aug. 23 and proceeded to make his next 24 field goals. `\
+https://nytimes.com/athletic/6848693/2025/11/30/hawaii-kicker-kansei-matsuzawa-ties-ncaa-record/
+
+**Inter Miami, hardened by past failure and a happy accident, hits peak for MLS Cup**\
+`Inter Miami discovered the cruel nature of playoffs last season, but the pain of that experience has informed its journey to MLS Cup.`\
+https://nytimes.com/athletic/6848447/2025/11/30/inter-miami-mls-cup-messi-mascherano-playoffs/
+
 **Israel’s Netanyahu Requests Pardon in Corruption Cases**\
 `The move comes two weeks after President Trump wrote to Israel’s president urging a pardon for Prime Minister Benjamin Netanyahu.`\
 https://nytimes.com/2025/11/30/world/middleeast/netanyahu-pardon-request-israel.html
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/6848292/2025/11/30/penguins-maple-leafs-lineup-sidn
 **Surging Flyers showing signs that early-season success is no fluke**\
 `The way the Flyers persevered in their last three road games offers hope that their success may be sustainable for the long haul.`\
 https://nytimes.com/athletic/6848500/2025/11/30/flyers-road-trip-success-devils/
-
-**Jeremy Swayman as starter? How the Bruins goalie is playing his way into the Olympic net**\
-`The Boston netminder has a .934 save percentage in November and stopped 24 of 26 shots in regulation and overtime Saturday.`\
-https://nytimes.com/athletic/6848468/2025/11/30/how-bruins-jeremy-swayman-is-playing-his-way-into-the-olympic-net/
-
-**What's next as WNBA and players union near extension deadline without CBA resolution?**\
-`Another delay could impact the winter calendar, including dates for the expansion draft and free agency.`\
-https://nytimes.com/athletic/6848457/2025/11/30/wnba-players-union-cba-extension-deadline/
-
-**‘I’ve Been Doing This Work for 25 Years and I’ve Never Seen Such Fear’**\
-`When ICE arrived in Chicago, this group had an answer.`\
-https://nytimes.com/2025/11/30/opinion/chicago-ice-new-life-centers.html
-
-**Sunday Special: Gifting Books for the Holidays**\
-`Books are your answer to the difficult question of what to give.`\
-https://nytimes.com/2025/11/30/podcasts/the-daily/sunday-special-gifting-books-for-the-holidays.html
-
-**Connections Companion No. 904**\
-`Scroll down for hints and conversation about the puzzle for Monday, Dec. 1, 2025.`\
-https://nytimes.com/2025/11/30/crosswords/connections-companion-904.html
-
-**Cooper Flagg makes NBA scoring history in Mavericks' win over Clippers**\
-`The 18-year-old rookie relentlessly attacked his way to rarified NBA air in Dallas' win over the Clippers Saturday night.`\
-https://nytimes.com/athletic/6848703/2025/11/30/mavericks-cooper-flagg-youngest-nba-35-points/
-
-**Wordle Review No. 1,626**\
-`Scroll down for hints and conversation about the puzzle for Monday, Dec. 1, 2025.`\
-https://nytimes.com/2025/11/30/crosswords/wordle-review-1626.html
 
