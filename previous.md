@@ -1,3 +1,7 @@
+**Sharks, Senators ditch helmets for warmups in Vegas. Did they break an NHL rule?**\
+`Both the Sharks and Senators collectively left their buckets behind as they took the ice for pregame warmups this week at T-Mobile Arena.`\
+https://nytimes.com/athletic/6848489/2025/11/30/sharks-senators-golden-knights-warmups-helmets-nhl/
+
 **Cory Booker Weds Alexis Lewis in a Private Ceremony**\
 `The couple legally married at a courthouse in Newark days before hosting an intimate wedding in Washington, D.C. on Saturday. They shared their wedding details exclusively with The New York Times.`\
 https://nytimes.com/2025/11/30/style/cory-booker-wedding-alexis-lewis.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6844809/2025/11/30/are-chelsea-genuine-title-conten
 **Kostas Tsimikas: 'It's important to be capable of accepting all this sadness in football'**\
 `Kostas Tsimikas looks back on his time at Liverpool, reflects on his friend Diogo Jota, and compares Klopp, Slot and Gasperini`\
 https://nytimes.com/athletic/6813913/2025/11/30/kostas-tsimikas-on-leaving-liverpool-life-at-roma-and-accepting-sadness-in-football/
-
-**College Football Playoff 2025 projections: How many teams still have a chance?**\
-`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
-https://nytimes.com/athletic/6560541/2025/11/30/college-football-playoff-bracket-projections-odds/
 
