@@ -1,3 +1,7 @@
+**Review: It’s Hard to Breathe in This ‘Walküre’**\
+`The singers did marvelous work at the Opéra Bastille in Paris, where the director Calixto Bieito’s new staging takes place in a hellish dystopia.`\
+https://nytimes.com/2025/11/30/arts/music/review-die-walkure-paris.html
+
 **Love Clothes? We Want to Hear About Your Favorite Stores.**\
 `Tell us about the places big and small, new and old, where you have the most fun shopping in person.`\
 https://nytimes.com/2025/11/30/style/favorite-clothes-stores-us-share.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6849267/2025/11/30/unlv-boise-state-mountain-west-t
 **Verstappen wins, McLaren gamble backfires, title goes to wire: Qatar Grand Prix briefing**\
 `Max Verstappen wins in Qatar to move to second in the 2025 F1 drivers' championship, as McLaren's strategy errors hampers Piastri and Norris`\
 https://nytimes.com/athletic/6849422/2025/11/30/qatar-grand-prix-briefing-max-verstappen-wins-mclaren-gamble-backfires-title-goes-to-the-wire/
-
-**Slot admits 'relief' after Liverpool end losing run**\
-`Liverpool had lost three matches in a row in all competitions, each by a three-goal margin, before Sunday's 2-0 win over West Ham. `\
-https://nytimes.com/athletic/6849503/2025/11/30/arne-slot-liverpool-west-ham/
 

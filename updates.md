@@ -1,3 +1,7 @@
+**Review: It’s Hard to Breathe in This ‘Walküre’**\
+`The singers did marvelous work at the Opéra Bastille in Paris, where the director Calixto Bieito’s new staging takes place in a hellish dystopia.`\
+https://nytimes.com/2025/11/30/arts/music/review-die-walkure-paris.html
+
 **Love Clothes? We Want to Hear About Your Favorite Stores.**\
 `Tell us about the places big and small, new and old, where you have the most fun shopping in person.`\
 https://nytimes.com/2025/11/30/style/favorite-clothes-stores-us-share.html
