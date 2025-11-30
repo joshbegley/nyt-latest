@@ -1,3 +1,23 @@
+**Zillow Removes Climate Risk Scores From Home Listings**\
+`The scores aimed to predict a property’s risk from a fires, floods and storms, but some in the real estate industry as well as homeowners have called them inaccurate.`\
+https://nytimes.com/2025/11/30/climate/zillow-climate-risk-scores-homes.html
+
+**Many Fighting Climate Change Worry They Are Losing the Information War**\
+`Shifting politics, intensive lobbying and surging disinformation online have undermined international efforts to respond to the threat.`\
+https://nytimes.com/2025/11/30/climate/climate-change-disinformation.html
+
+**Mamdani, a Sharp Critic of Police Surveillance, Will Soon Oversee It**\
+`Zohran Mamdani, New York’s mayor-elect, has criticized the N.Y.P.D.’s surveillance tactics. He reappointed the police commissioner who helped create a ubiquitous web of monitoring.`\
+https://nytimes.com/2025/11/30/nyregion/mamdani-tisch-nypd-surveillance.html
+
+**‘It Was the Start of a Frosty Relationship’**\
+`Discovering a restaurant host’s daring back story, a Brooklyn feud and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2025/11/30/nyregion/metropolitan-diary.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/11/30/crosswords/spelling-bee-forum.html
+
 **Tottenham have been awful at home for a long time - now it is putting Frank in trouble**\
 `Tottenham Hotspur lost 2-1 to Fulham to continue a run of awful home form`\
 https://nytimes.com/athletic/6836570/2025/11/30/tottenham-fulham-home-form-analysis/
