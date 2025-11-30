@@ -1,3 +1,19 @@
+**The Briefing: West Ham 0 Liverpool 2 — Lift-off for Isak? Are Liverpool better without Salah?**\
+`Liverpool managed a first win in four matches with a 2-0 victory over West Ham United on Sunday`\
+https://nytimes.com/athletic/6849054/2025/11/30/west-ham-liverpool-score-result-report-analysis/
+
+**Lowetide: Oilers prospect Ike Howard lighting up AHL on a powerhouse line**\
+`Since Howard was demoted to the AHL, his performance for the Bakersfield Condors has been outrageous.`\
+https://nytimes.com/athletic/6847703/2025/11/30/edmonton-oilers-prospect-ike-howard-ahl-stats/
+
+**Fried Rice Is Your Friend**\
+`When you need to use up those last bits of dark meat, two carrots and a half-bag of green beans, turkey fried rice is there for you.`\
+https://nytimes.com/2025/11/30/dining/fried-rice-is-your-friend.html
+
+**Arkansas hiring Memphis' Ryan Silverfield as next head coach**\
+`Silverfield went 29-9 over his final three seasons at Memphis.`\
+https://nytimes.com/athletic/6833473/2025/11/30/arkansas-football-coaching-search-ryan-silverfield/
+
 **Storm Threatens to Bring ‘Widespread and Impactful’ Snow and Ice to Northeast**\
 `A potential nor’easter could leave as much as a foot of snow in the Poconos in Pennsylvania, the Catskills in New York, and parts of Maine, Massachusetts, New Hampshire and Vermont, a forecaster said.`\
 https://nytimes.com/2025/11/30/weather/snowstorm-northeast-new-england.html

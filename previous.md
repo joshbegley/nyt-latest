@@ -1,3 +1,19 @@
+**The Briefing: West Ham 0 Liverpool 2 — Lift-off for Isak? Are Liverpool better without Salah?**\
+`Liverpool managed a first win in four matches with a 2-0 victory over West Ham United on Sunday`\
+https://nytimes.com/athletic/6849054/2025/11/30/west-ham-liverpool-score-result-report-analysis/
+
+**Lowetide: Oilers prospect Ike Howard lighting up AHL on a powerhouse line**\
+`Since Howard was demoted to the AHL, his performance for the Bakersfield Condors has been outrageous.`\
+https://nytimes.com/athletic/6847703/2025/11/30/edmonton-oilers-prospect-ike-howard-ahl-stats/
+
+**Fried Rice Is Your Friend**\
+`When you need to use up those last bits of dark meat, two carrots and a half-bag of green beans, turkey fried rice is there for you.`\
+https://nytimes.com/2025/11/30/dining/fried-rice-is-your-friend.html
+
+**Arkansas hiring Memphis' Ryan Silverfield as next head coach**\
+`Silverfield went 29-9 over his final three seasons at Memphis.`\
+https://nytimes.com/athletic/6833473/2025/11/30/arkansas-football-coaching-search-ryan-silverfield/
+
 **Storm Threatens to Bring ‘Widespread and Impactful’ Snow and Ice to Northeast**\
 `A potential nor’easter could leave as much as a foot of snow in the Poconos in Pennsylvania, the Catskills in New York, and parts of Maine, Massachusetts, New Hampshire and Vermont, a forecaster said.`\
 https://nytimes.com/2025/11/30/weather/snowstorm-northeast-new-england.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6849060/2025/11/30/britain-season-5-sailgp-champion
 **Glenn Close, Ethan Hawke and Others Mourn Tom Stoppard**\
 `Nobody advanced or cherished the English language more than Stoppard, Tim Curry noted. Colleagues and fans agreed.`\
 https://nytimes.com/2025/11/30/theater/tom-stoppard-tributes-reactions.html
-
-**Until Saturday: Kiffin drama consumes rivalry weekend**\
-`Until Saturday is The Athletic's free college football newsletter.`\
-https://nytimes.com/athletic/6849055/2025/11/30/college-football-results-lane-kiffin-until-saturday/
-
-**Crystal Palace 1 Manchester United 2: Smart set pieces? Why was Mateta penalty retaken?**\
-`Bruno Fernandes' inventive free kicks were crucial to a comeback victory at Selhurst Park`\
-https://nytimes.com/athletic/6848843/2025/11/30/crystal-palace-man-utd-score-result-report-analysis/
-
-**Predicting the College Football Playoff bracket: Will the ACC get a team in the field?**\
-`A Duke win over Virginia in the ACC title game would open the door to a nightmare outcome: a league champion left out of the CFP.`\
-https://nytimes.com/athletic/6848650/2025/11/30/college-football-playoff-bracket-prediction-acc/
-
-**The Uneasy Mix of God and Country**\
-`Readers respond to a column by David Brooks about Christian nationalism. Also: A hope for a different kind of president; a view of Meta as not a monopoly.`\
-https://nytimes.com/2025/11/30/opinion/christian-nationalism.html
 
