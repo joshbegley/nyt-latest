@@ -1,5 +1,9 @@
-**Diego Pavia, Vanderbilt state Heisman and CFP cases with historic win at Tennessee**\
-`Pavia threw for 268 yards and a touchdown to deliver the first 10-win season in Vanderbilt history.`\
+**Michigan's spell over Ohio State is over. Now it's time for some soul-searching**\
+`What’s the point in spending millions on a QB and having him attempt five passes in the first half of the biggest game of the season?`\
+https://nytimes.com/athletic/6848158/2025/11/29/michigan-ohio-state-sherrone-moore-coach/
+
+**Diego Pavia, Vandy make Heisman and CFP cases with historic win over Vols**\
+`Pavia threw for 268 yards and ran for 165 more to deliver the first 10-win season in Vanderbilt history.`\
 https://nytimes.com/athletic/6848125/2025/11/29/vanderbilt-tennessee-diego-pavia-score-result/
 
 **The Ex-President Whom Trump Plans to Pardon Flooded America With Cocaine**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6847943/2025/11/29/yale-youngtown-comeback-fcs-play
 **Amorim feels Dorgu's 'anxiety' at Man Utd but 'he has time to improve'**\
 `In Amorim’s eyes, the £25.2million signing from Lecce last January is still finding the confidence to play under the scrutiny at United.`\
 https://nytimes.com/athletic/6845163/2025/11/29/patrick-dorgu-manchester-united-ruben-amorim/
-
-**Tottenham 1 Fulham 2: Spurs fans boo their goalkeeper, Frank left to fix familiar issues**\
-`In suffering yet another home defeat, Spurs are in 10th place in the Premier League and four games without a win `\
-https://nytimes.com/athletic/6842206/2025/11/29/tottenham-fulham-result-report-analysis/
 
