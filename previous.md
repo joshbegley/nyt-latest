@@ -1,3 +1,7 @@
+**Diego Pavia, Vanderbilt have Heisman, Playoff cases — one stronger than the other**\
+`Pavia’s November, against legitimate defenses fielded by Tennessee, Kentucky, Auburn and Texas, yielded 1,862 total yards and 16 touchdowns.`\
+https://nytimes.com/athletic/6848385/2025/11/29/diego-pavia-heisman-trophy-vanderbilt/
+
 **The Wolves have struggled in close games and against good teams but are progressing**\
 `Saturday's win snapped Minnesota's three-game losing streak and gave the Wolves their first win over a team with a winning record.`\
 https://nytimes.com/athletic/6847994/2025/11/29/timberwolves-celtics-score-results-takeaways-anthony-edwards/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6560541/2025/11/29/college-football-playoff-bracket
 **Jaylen Brown's latest big scoring night not enough to rescue Celtics vs. Wolves**\
 `Celtics star tied his season high with 41 points, but missed a potential game-tying basket with less than a minute left.`\
 https://nytimes.com/athletic/6848095/2025/11/29/jaylen-brown-celtics-41-points-john-havlicek/
-
-**Miami is Playoff-worthy, but assured nothing. Will it come down to Canes and Notre Dame?**\
-`Miami, which crushed Pitt on Saturday, is not without fault. Clearly the best team in the ACC, it still let two winnable games get away.`\
-https://nytimes.com/athletic/6848099/2025/11/29/miami-pitt-score-analysis-playoff/
 

@@ -1,9 +1,9 @@
 **Diego Pavia, Vanderbilt have Heisman, Playoff cases — one stronger than the other**\
-`Pavia’s November, against legitimate defenses fielded by Tennessee, Kentucky, Auburn and Texas, yielded 1,862 total yards and 16 touchdowns.`\
+`Pavia had 1,862 total yards and 16 touchdowns against legitimate defenses Tennessee, Kentucky, Auburn and Texas in November.`\
 https://nytimes.com/athletic/6848385/2025/11/29/diego-pavia-heisman-trophy-vanderbilt/
 
-**The Wolves have struggled in close games and against good teams but are progressing**\
-`Saturday's win snapped Minnesota's three-game losing streak and gave the Wolves their first win over a team with a winning record.`\
+**Wolves are showing progress with struggles in close games, against good teams**\
+`Saturday's win against Boston snapped a three-game losing streak, gave Wolves their first win over a team with a winning record.`\
 https://nytimes.com/athletic/6847994/2025/11/29/timberwolves-celtics-score-results-takeaways-anthony-edwards/
 
 **Bucks snap longest losing streak in a decade with blowout win**\
