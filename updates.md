@@ -1,3 +1,7 @@
+**Bucks snap longest losing streak in a decade with blowout win**\
+`On top of getting the Bucks back in the win column, Giannis Antetokounmpo also made history on Saturday night.`\
+https://nytimes.com/athletic/6848289/2025/11/29/bucks-losing-streak-snapped-nets-giannis-antetokounmpo/
+
 **Trump Frees Fraudster Just Days Into Seven-Year Prison Sentence**\
 `David Gentile had been found guilty for his role in what prosecutors described as a $1.6 billion scheme that defrauded thousands of investors.`\
 https://nytimes.com/2025/11/29/us/politics/trump-david-gentile-commutation.html
