@@ -10,7 +10,3 @@ https://nytimes.com/2025/11/30/theater/stoppard-script-doctor-indiana-jones.html
 `Bundle up for Hannah Binney’s Monday crossword puzzle.`\
 https://nytimes.com/2025/11/30/crosswords/daily-puzzle-2025-12-01.html
 
-**Ole Miss is latest team with new coach ahead of bowl season. How have previous ones fared?**\
-`Pete Golding joins list of coaches to take over before major bowl games. Can Ole Miss buck bleak history?`\
-https://nytimes.com/athletic/6849965/2025/11/30/cfp-new-interim-coaches-bowl-season-pete-golding/
-
