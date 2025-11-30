@@ -18,8 +18,8 @@ https://nytimes.com/athletic/6843214/2025/11/30/winnipeg-jets-season-stats-preda
 `Golden State needs Jimmy Butler to be at his peak, most dominant level without Stephen Curry. He reached it Saturday night vs. New Orleans.`\
 https://nytimes.com/athletic/6848733/2025/11/30/incredible-jimmy-butler-warriors-pelicans/
 
-**Hawaii's Kansei Matsuzawa ties FBS record by making first 25 field goals of 2025 season**\
-`Matsuzawa opened the season by burying a 38-yard game-winner against Stanford on Aug. 23 and proceeded to make his next 24 field goals. `\
+**Hawaii's Kansei Matsuzawa ties FBS record by making first 25 FGs before miss**\
+`Kansei Matsuzawa taught himself to kick on YouTube in Japan, then tied an FBS record at Hawaii before his first miss of the season Saturday.`\
 https://nytimes.com/athletic/6848693/2025/11/30/hawaii-kicker-kansei-matsuzawa-ties-ncaa-record/
 
 **Inter Miami, hardened by past failure and a happy accident, hits peak for MLS Cup**\
