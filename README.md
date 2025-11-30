@@ -1,3 +1,7 @@
+**Jaylen Brown had another big scoring night on Saturday, but it wasn't enough**\
+`Jaylen Brown tied his season high with 41 points Saturday, but missed a potential game-tying basket with under a minute left.`\
+https://nytimes.com/athletic/6848095/2025/11/29/jaylen-brown-celtics-41-points-john-havlicek/
+
 **Miami is Playoff-worthy, but assured nothing. Will it come down to Canes and Notre Dame?**\
 `Miami, which crushed Pitt on Saturday, is not without fault. Clearly the best team in the ACC, it still let two winnable games get away.`\
 https://nytimes.com/athletic/6848099/2025/11/29/miami-pitt-score-analysis-playoff/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6848041/2025/11/29/tottenham-vicario-frank-booing-f
 **The Language of Tom Stoppard, Ablaze With Energy and Urgency**\
 `In works like “Travesties” and “Arcadia,” the playwright embraced the really big questions and wrestled words into coherent, exhilarating shape.`\
 https://nytimes.com/2025/11/29/theater/the-language-of-tom-stoppard-ablaze-with-energy-and-urgency.html
-
-**Hog Wild**\
-`Natan Last’s puzzle is a gem.`\
-https://nytimes.com/2025/11/29/crosswords/daily-puzzle-2025-11-30.html
 
