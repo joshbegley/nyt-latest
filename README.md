@@ -1,3 +1,15 @@
+**Stunned sports world reacts to Lane Kiffin's shocking move to LSU**\
+`Ole Miss, a team that is contending for a national title, is losing its coach to LSU.`\
+https://nytimes.com/athletic/6849074/2025/11/30/lane-kiffin-lsu-social-media-reacts/
+
+**Ottawa Charge coach Carla MacLeod announces breast cancer diagnosis**\
+`The PWHL coach said she plans to continue coaching the Charge while undergoing treatment.`\
+https://nytimes.com/athletic/6849934/2025/11/30/carla-macleod-ottawa-charge-coach-breast-cancer/
+
+**Maresca: Hincapie should have been sent off for Chalobah challenge**\
+`Chalobah was left with swelling around his eye having been caught by the trailing elbow of Hincapie as the pair contested an aerial ball.`\
+https://nytimes.com/athletic/6849922/2025/11/30/piero-hincapie-trevoh-chalobah-decision/
+
 **The 50 Best Clothing Stores in America**\
 `Transporting, surprising and specialized, these stores keep alive the thrill of in-person shopping and are worth the trip — even if nothing is bought.`\
 https://nytimes.com/interactive/2025/11/30/style/best-clothes-stores-us.html
@@ -10,7 +22,7 @@ https://nytimes.com/athletic/6845906/2025/11/30/lane-kiffin-ole-miss-leave-playo
 `Our live coverage this week includes the draw for the 2026 FIFA World Cup, the finale of the F1 season and plenty more`\
 https://nytimes.com/athletic/6848379/2025/11/30/live-coverage-schedule-world-cup-draw/
 
-**Kiffin leaves for LSU before Ole Miss CFP run; Rebels elevate DC Pete Golding**\
+**Lane Kiffin finally commits to LSU, leaves Ole Miss scrambling for CFP**\
 `Kiffin’s future has been a lingering, high-profile drama throughout the season.`\
 https://nytimes.com/athletic/6825155/2025/11/30/lane-kiffin-lsu-ole-miss-pete-golding/
 
@@ -21,20 +33,4 @@ https://nytimes.com/athletic/6849913/2025/11/30/seth-curry-steph-warriors-nba-br
 **Fuzzy Zoeller, Who Won Two Majors on the PGA Tour, Dies at 74**\
 `He was a witty and popular figure, but his racially insensitive remarks about Tiger Woods at the 1997 Masters led to death threats and many apologies.`\
 https://nytimes.com/2025/11/30/obituaries/fuzzy-zoeller-dead.html
-
-**Movies Written by Tom Stoppard to Stream**\
-`Spinning off Shakespeare, waltzing through Imperial Russia, bantering about literature or diving deeply into history, Stoppard shared his gifts on the screen.`\
-https://nytimes.com/2025/11/30/theater/tom-stoppard-streaming-movies.html
-
-**Sources: Jonathan Smith out at Michigan State after 2 seasons**\
-`Jonathan Smith's brief tenure continues Michigan State's decade of downturn since the height of the Mark Dantonio era. `\
-https://nytimes.com/athletic/6716183/2025/11/30/michigan-state-jonathan-smith-fired/
-
-**Popular trade target Kodai Senga told Mets he wants to remain with club: Sources**\
-`Though Senga has a limited no-trade clause that allows him to block deals to 10 franchises, the Mets may still trade him this offseason.`\
-https://nytimes.com/athletic/6849186/2025/11/30/kodai-senga-mets-trade-talks/
-
-**How to watch Grizzlies vs. Kings: Time, TV, streaming**\
-`Find out how to watch the Memphis Grizzlies play the Sacramento Kings, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6849868/2025/11/30/grizzlies-vs-kings-stream-how-to-watch-nov-30/
 
