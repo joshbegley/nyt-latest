@@ -1,3 +1,7 @@
+**Are Chelsea genuine Premier League title contenders?**\
+`Ahead of this weekend's game against league leaders Arsenal, we assess how seriously to take Enzo Maresca's side in the title race `\
+https://nytimes.com/athletic/6844809/2025/11/30/are-chelsea-genuine-title-contenders/
+
 **Kostas Tsimikas: 'It's important to be capable of accepting all this sadness in football'**\
 `Kostas Tsimikas looks back on his time at Liverpool, reflects on his friend Diogo Jota, and compares Klopp, Slot and Gasperini`\
 https://nytimes.com/athletic/6813913/2025/11/30/kostas-tsimikas-on-leaving-liverpool-life-at-roma-and-accepting-sadness-in-football/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6848269/2025/11/30/connections-sports-edition-hints
 **No Corrections: Nov. 30, 2025**\
 `No corrections appeared in print on Sunday, Nov. 30, 2025.`\
 https://nytimes.com/2025/11/30/pageoneplus/no-corrections-nov-30-2025.html
-
-**Virginia, Duke to play for ACC title, potential College Football Playoff spot**\
-`After Cal's upset of SMU puts Duke into ACC title game, the conference faces a potential scenario that could leave it out of the CFP.`\
-https://nytimes.com/athletic/6848412/2025/11/29/acc-championship-game-virginia-duke/
 

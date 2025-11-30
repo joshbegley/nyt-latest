@@ -1,3 +1,15 @@
+**Kostas Tsimikas: 'It's important to be capable of accepting all this sadness in football'**\
+`Kostas Tsimikas looks back on his time at Liverpool, reflects on his friend Diogo Jota, and compares Klopp, Slot and Gasperini`\
+https://nytimes.com/athletic/6813913/2025/11/30/kostas-tsimikas-on-leaving-liverpool-life-at-roma-and-accepting-sadness-in-football/
+
+**College Football Playoff 2025 projections: Most likely bracket with Rivalry Week underway**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/11/30/college-football-playoff-bracket-projections-odds/
+
+**England managed a superb, celebratory homecoming. But is the succession plan clear?**\
+`England have an elite, core team. What comes next feels like a big question for manager Sarina Wiegman`\
+https://nytimes.com/athletic/6847945/2025/11/30/england-china-report-analysis/
+
 **Tedesco interview: 'Everywhere you go, you have Fenerbahce fans. You feel this electricity'**\
 `The Athletic spoke to Fenerbahce's head coach before the Intercontinental Derby against Galatasaray on Monday`\
 https://nytimes.com/athletic/6842097/2025/11/30/domenico-tedesco-interview-fenerbahce/
