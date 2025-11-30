@@ -1,3 +1,7 @@
+**The Wolves have struggled in close games and against good teams but are progressing**\
+`Saturday's win snapped Minnesota's three-game losing streak and gave the Wolves their first win over a team with a winning record.`\
+https://nytimes.com/athletic/6847994/2025/11/29/timberwolves-celtics-score-results-takeaways-anthony-edwards/
+
 **Bucks snap longest losing streak in a decade with blowout win**\
 `On top of getting the Bucks back in the win column, Giannis Antetokounmpo also made history on Saturday night.`\
 https://nytimes.com/athletic/6848289/2025/11/29/bucks-losing-streak-snapped-nets-giannis-antetokounmpo/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6848095/2025/11/29/jaylen-brown-celtics-41-points-j
 **Miami is Playoff-worthy, but assured nothing. Will it come down to Canes and Notre Dame?**\
 `Miami, which crushed Pitt on Saturday, is not without fault. Clearly the best team in the ACC, it still let two winnable games get away.`\
 https://nytimes.com/athletic/6848099/2025/11/29/miami-pitt-score-analysis-playoff/
-
-**College football rivalry week produces wealth of trolls. Here are the best**\
-`Rivalry week was rife with mascot jokes, social media trolling and witty video montages.`\
-https://nytimes.com/athletic/6848074/2025/11/29/college-football-rivalry-week-14-jokes-roundup/
 

@@ -1,3 +1,7 @@
+**The Wolves have struggled in close games and against good teams but are progressing**\
+`Saturday's win snapped Minnesota's three-game losing streak and gave the Wolves their first win over a team with a winning record.`\
+https://nytimes.com/athletic/6847994/2025/11/29/timberwolves-celtics-score-results-takeaways-anthony-edwards/
+
 **Bucks snap longest losing streak in a decade with blowout win**\
 `On top of getting the Bucks back in the win column, Giannis Antetokounmpo also made history on Saturday night.`\
 https://nytimes.com/athletic/6848289/2025/11/29/bucks-losing-streak-snapped-nets-giannis-antetokounmpo/
