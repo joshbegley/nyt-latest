@@ -1,3 +1,7 @@
+**Netanyahu Asks Israel’s President to Pardon Him in Corruption Cases**\
+`Prime Minister Benjamin Netanyahu made the appeal weeks after President Trump made the same request to the Israeli president.`\
+https://nytimes.com/2025/11/30/world/middleeast/netanyahu-pardon-request-israel.html
+
 **Hong Kong’s Migrant Domestic Workers Mourn Their Losses in Deadly Fire**\
 `At least eight workers died, and many of those who survived, after saving children and others in their care, are worried about losing their jobs and being forced to leave.`\
 https://nytimes.com/2025/11/30/world/asia/hongkong-fire-domestic-workers.html
