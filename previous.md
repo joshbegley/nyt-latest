@@ -1,3 +1,7 @@
+**At least Farke tried something different (twice) and Leeds gave a performance to believe in**\
+`Leeds lost 3-2 to Manchester City on Saturday, but it was not the defeat everyone was expecting`\
+https://nytimes.com/athletic/6848246/2025/11/30/leeds-manchester-city-daniel-farke/
+
 **Sharks, Senators ditch helmets for warmups in Vegas. Did they break an NHL rule?**\
 `Both the Sharks and Senators collectively left their buckets behind as they took the ice for pregame warmups this week at T-Mobile Arena.`\
 https://nytimes.com/athletic/6848489/2025/11/30/sharks-senators-golden-knights-warmups-helmets-nhl/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6836486/2025/11/30/wrexham-championship-blackburn-a
 **Are Chelsea genuine Premier League title contenders?**\
 `Ahead of this weekend's game against league leaders Arsenal, we assess how seriously to take Enzo Maresca's side in the title race `\
 https://nytimes.com/athletic/6844809/2025/11/30/are-chelsea-genuine-title-contenders/
-
-**Kostas Tsimikas: 'It's important to be capable of accepting all this sadness in football'**\
-`Kostas Tsimikas looks back on his time at Liverpool, reflects on his friend Diogo Jota, and compares Klopp, Slot and Gasperini`\
-https://nytimes.com/athletic/6813913/2025/11/30/kostas-tsimikas-on-leaving-liverpool-life-at-roma-and-accepting-sadness-in-football/
 

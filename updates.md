@@ -1,3 +1,7 @@
+**At least Farke tried something different (twice) and Leeds gave a performance to believe in**\
+`Leeds lost 3-2 to Manchester City on Saturday, but it was not the defeat everyone was expecting`\
+https://nytimes.com/athletic/6848246/2025/11/30/leeds-manchester-city-daniel-farke/
+
 **How We Became ‘Half in Love With Easeful Death’**\
 `Apocalyptic predictions may actually serve as comforting fantasies, at which point our future freakouts become an excuse for inaction.`\
 https://nytimes.com/2025/11/30/opinion/apocalypse-thinking-antichrist.html
