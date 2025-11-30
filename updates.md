@@ -1,3 +1,7 @@
+**How to watch Capitals vs. Islanders: Time, TV, streaming**\
+`Find out how to watch the Washington Capitals play the New York Islanders, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6848801/2025/11/30/capitals-vs-islanders-stream-how-to-watch-nov-30/
+
 **Tracking Tropical Storm Koto**\
 `See the likely path and wind arrival times for Koto`\
 https://nytimes.com/interactive/2025/11/30/weather/koto-map-path-tracker.html
