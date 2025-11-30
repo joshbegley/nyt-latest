@@ -1,3 +1,7 @@
+**Crystal Palace 1 Manchester United 2: Smart set pieces? Why was Mateta penalty retaken?**\
+`Bruno Fernandes' inventive free kicks were crucial to a comeback victory at Selhurst Park`\
+https://nytimes.com/athletic/6848843/2025/11/30/crystal-palace-man-utd-score-result-report-analysis/
+
 **Glenn Close, Ethan Hawke and Others Mourn Tom Stoppard**\
 `Nobody advanced or cherished the English language more than Stoppard, Tim Curry noted. Colleagues and fans agreed.`\
 https://nytimes.com/2025/11/30/theater/tom-stoppard-tributes-reactions.html
