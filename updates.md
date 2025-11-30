@@ -1,3 +1,15 @@
+**The best trolls of college football's rivalry week**\
+`Rivalry week was ripe with mascot jokes, social media trolling and witty video montages.`\
+https://nytimes.com/athletic/6848074/2025/11/29/college-football-rivalry-week-14-jokes-roundup/
+
+**Rangers reach new low after embarrassing effort as Adam Fox injury concern looms**\
+`New York was outshot 35-13 in a 4-1 loss to Tampa Bay and now has a 2-8-1 record at home this season.`\
+https://nytimes.com/athletic/6847906/2025/11/29/new-york-rangers-lightning-adam-fox-injury/
+
+**Oklahoma punches likely CFP ticket with late escape as LSU awaits Kiffin decision**\
+`No. 8 Oklahoma needed a late 58-yard John Mateer touchdown pass to beat LSU 17-13 to all but lock up a College Football Playoff bid.`\
+https://nytimes.com/athletic/6848124/2025/11/29/oklahoma-lsu-score-lane-kiffin-playoff/
+
 **Michigan's spell over Ohio State is over. Now it's time for some soul-searching**\
 `What’s the point in spending millions on a QB and having him attempt five passes in the first half of the biggest game of the season?`\
 https://nytimes.com/athletic/6848158/2025/11/29/michigan-ohio-state-sherrone-moore-coach/

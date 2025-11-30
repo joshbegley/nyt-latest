@@ -1,3 +1,7 @@
+**Miami is Playoff-worthy, but assured nothing. Will it come down to Canes and Notre Dame?**\
+`Miami, which crushed Pitt on Saturday, is not without fault. Clearly the best team in the ACC, it still let two winnable games get away.`\
+https://nytimes.com/athletic/6848099/2025/11/29/miami-pitt-score-analysis-playoff/
+
 **The best trolls of college football's rivalry week**\
 `Rivalry week was ripe with mascot jokes, social media trolling and witty video montages.`\
 https://nytimes.com/athletic/6848074/2025/11/29/college-football-rivalry-week-14-jokes-roundup/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/29/theater/the-language-of-tom-stoppard-ablaze-with-
 **Hog Wild**\
 `Natan Last’s puzzle is a gem.`\
 https://nytimes.com/2025/11/29/crosswords/daily-puzzle-2025-11-30.html
-
-**College Football Playoff 2025 projections: Most likely bracket with Rivalry Week underway**\
-`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
-https://nytimes.com/athletic/6560541/2025/11/29/college-football-playoff-bracket-projections-odds/
 
