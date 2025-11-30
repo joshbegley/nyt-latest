@@ -1,40 +1,40 @@
-**What we learned about the CFP: Time for committee to decide Notre Dame-Miami debate**\
-`All the teams that needed to win to secure — if not truly clinch — spots in the College Football Playoff did so this weekend.`\
-https://nytimes.com/athletic/6848718/2025/11/30/college-football-playoff-race-updates-week-14/
+**Israel’s Netanyahu Requests Pardon in Corruption Cases**\
+`The move comes two weeks after President Trump wrote to Israel’s president urging a pardon for Prime Minister Benjamin Netanyahu.`\
+https://nytimes.com/2025/11/30/world/middleeast/netanyahu-pardon-request-israel.html
 
-**Which NFL Week 13 games have biggest impact on playoff races, No. 1 pick chances?**\
-`The Texans, Chargers, Jaguars, Steelers, Bills and Colts all face potentials shift of more than 20 percent in their playoff odds Sunday.`\
-https://nytimes.com/athletic/6840894/2025/11/30/nfl-playoff-chances-standings-draft-odds-week-13/
+**It's time for the Penguins to make some lineup changes: 10 observations**\
+`Everything that could have gone wrong did go wrong for the Penguins in a 7-2 loss to the Maple Leafs on Sunday. `\
+https://nytimes.com/athletic/6848292/2025/11/30/penguins-maple-leafs-lineup-sidney-crosby/
 
-**Sam Darnold reunion, Shedeur Sanders' next test among NFL Week 13 top storylines**\
-`With five of last year’s eight divisional leaders still trailing rivals as November winds down, things remain wide open in Week 13.`\
-https://nytimes.com/athletic/6840171/2025/11/30/nfl-week-13-storylines-sam-darnold-shedeur-sanders/
+**Surging Flyers showing signs that early-season success is no fluke**\
+`The way the Flyers persevered in their last three road games offers hope that their success may be sustainable for the long haul.`\
+https://nytimes.com/athletic/6848500/2025/11/30/flyers-road-trip-success-devils/
 
-**The New York Times International Edition in Print for Monday, Dec. 1, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/11/30/todays-new-york-times-international-edition
+**Jeremy Swayman as starter? How the Bruins goalie is playing his way into the Olympic net**\
+`The Boston netminder has a .934 save percentage in November and stopped 24 of 26 shots in regulation and overtime Saturday.`\
+https://nytimes.com/athletic/6848468/2025/11/30/how-bruins-jeremy-swayman-is-playing-his-way-into-the-olympic-net/
 
-**How to watch Capitals vs. Islanders: Time, TV, streaming**\
-`Find out how to watch the Washington Capitals play the New York Islanders, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6848801/2025/11/30/capitals-vs-islanders-stream-how-to-watch-nov-30/
+**What's next as WNBA and players union near extension deadline without CBA resolution?**\
+`Another delay could impact the winter calendar, including dates for the expansion draft and free agency.`\
+https://nytimes.com/athletic/6848457/2025/11/30/wnba-players-union-cba-extension-deadline/
 
-**Tracking Tropical Storm Koto**\
-`See the likely path and wind arrival times for Koto`\
-https://nytimes.com/interactive/2025/11/30/weather/koto-map-path-tracker.html
+**‘I’ve Been Doing This Work for 25 Years and I’ve Never Seen Such Fear’**\
+`When ICE arrived in Chicago, this group had an answer.`\
+https://nytimes.com/2025/11/30/opinion/chicago-ice-new-life-centers.html
 
-**How to watch Fairfield vs. Iowa women's basketball: Time, TV, streaming**\
-`Find out how to watch the Fairfield Stags play the Iowa Hawkeyes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6848799/2025/11/30/fairfield-vs-iowa-stream-how-to-watch-nov-30/
+**Sunday Special: Gifting Books for the Holidays**\
+`Books are your answer to the difficult question of what to give.`\
+https://nytimes.com/2025/11/30/podcasts/the-daily/sunday-special-gifting-books-for-the-holidays.html
 
-**Deadly Floods in Indonesia Leave Hundreds Missing**\
-`Hundreds of people have been killed and millions displaced as extreme weather has ravaged Southeast Asia this month. Indonesia’s heavy rain was linked to two tropical cyclones.`\
-https://nytimes.com/2025/11/30/world/asia/flooding-indonesia-thailand-southeast-asia.html
+**Connections Companion No. 904**\
+`Scroll down for hints and conversation about the puzzle for Monday, Dec. 1, 2025.`\
+https://nytimes.com/2025/11/30/crosswords/connections-companion-904.html
 
-**When Tom Stoppard Confronted His Background in His Final Play**\
-`The playwright, who learned about his Jewish heritage late in life, addressed it in the Tony Award-winning drama “Leopoldstadt.”`\
-https://nytimes.com/2025/11/30/theater/tom-stoppard-leopoldstadt-jewish-heritage.html
+**Cooper Flagg makes NBA scoring history in Mavericks' win over Clippers**\
+`The 18-year-old rookie relentlessly attacked his way to rarified NBA air in Dallas' win over the Clippers Saturday night.`\
+https://nytimes.com/athletic/6848703/2025/11/30/mavericks-cooper-flagg-youngest-nba-35-points/
 
-**How to Create Rituals**\
-`A guide for the secular and the sacred alike.`\
-https://nytimes.com/2025/11/30/briefing/how-to-create-rituals.html
+**Wordle Review No. 1,626**\
+`Scroll down for hints and conversation about the puzzle for Monday, Dec. 1, 2025.`\
+https://nytimes.com/2025/11/30/crosswords/wordle-review-1626.html
 
