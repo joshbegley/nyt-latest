@@ -1,3 +1,7 @@
+**Trump Frees Fraudster Just Days Into Seven-Year Prison Sentence**\
+`David Gentile had been found guilty for his role in what prosecutors described as a $1.6 billion scheme that defrauded thousands of investors.`\
+https://nytimes.com/2025/11/29/us/politics/trump-david-gentile-commutation.html
+
 **Jaylen Brown's latest big scoring night not enough to rescue Celtics vs. Wolves**\
 `Celtics star tied his season high with 41 points, but missed a potential game-tying basket with less than a minute left.`\
 https://nytimes.com/athletic/6848095/2025/11/29/jaylen-brown-celtics-41-points-john-havlicek/

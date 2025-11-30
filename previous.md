@@ -1,3 +1,7 @@
+**Trump Frees Fraudster Just Days Into Seven-Year Prison Sentence**\
+`David Gentile had been found guilty for his role in what prosecutors described as a $1.6 billion scheme that defrauded thousands of investors.`\
+https://nytimes.com/2025/11/29/us/politics/trump-david-gentile-commutation.html
+
 **A Small West Virginia Town Brought Even Closer Through Grief**\
 `In Webster Springs, everyone knows one another. When National Guard Specialist Sarah Beckstrom was killed, that connection was even further strengthened.`\
 https://nytimes.com/2025/11/29/us/national-guard-shooting-beckstrom-webster-springs.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6848074/2025/11/29/college-football-rivalry-week-14
 **Rangers reach new low after embarrassing effort as Adam Fox injury concern looms**\
 `New York was outshot 35-13 in a 4-1 loss to Tampa Bay and has a 2-8-1 record at home this season.`\
 https://nytimes.com/athletic/6847906/2025/11/29/new-york-rangers-lightning-adam-fox-injury/
-
-**Michigan's spell over Ohio State is over. Now it's time for some soul-searching**\
-`What’s the point in spending millions on a QB and having him attempt five passes in the first half of the biggest game of the season?`\
-https://nytimes.com/athletic/6848158/2025/11/29/michigan-ohio-state-sherrone-moore-coach/
 
