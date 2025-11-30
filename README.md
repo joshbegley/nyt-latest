@@ -1,3 +1,7 @@
+**How to watch Capitals vs. Islanders: Time, TV, streaming**\
+`Find out how to watch the Washington Capitals play the New York Islanders, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6848801/2025/11/30/capitals-vs-islanders-stream-how-to-watch-nov-30/
+
 **Tracking Tropical Storm Koto**\
 `See the likely path and wind arrival times for Koto`\
 https://nytimes.com/interactive/2025/11/30/weather/koto-map-path-tracker.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/30/world/americas/honduras-election.html
 **‘The New Price of Eggs.’ The Political Shocks of Data Centers and Electric Bills**\
 `Democrats zeroed in on utilities and affordability to win Republican support in upset elections in Georgia and Virginia. Can the same playbook work in 2026?`\
 https://nytimes.com/2025/11/30/us/politics/the-new-price-of-eggs-the-political-shocks-of-data-centers-and-electric-bills.html
-
-**Beyond Art Basel Miami Beach, a Lesson in Cuban American History Awaits**\
-`Visitors to the fair will find a city overflowing with history and art, including contemporary graffiti and posthumous museum retrospectives.`\
-https://nytimes.com/2025/11/30/arts/design/art-basel-miami-history-exhibition.html
 
