@@ -1,3 +1,7 @@
+**Sources: New York Rangers placing Adam Fox on LTIR with left-shoulder injury**\
+`Fox, who has been the Rangers' best player this season, is expected to miss multiple weeks with the injury.`\
+https://nytimes.com/athletic/6849698/2025/11/30/new-york-rangers-adam-fox-injury/
+
 **The Briefing: Chelsea 1 Arsenal 1: What does this mean for title race? Was Caicedo red inevitable? Maresca positives?**\
 `Our writers break down the talking points from a fiery top-of-the-table clash at Stamford Bridge`\
 https://nytimes.com/athletic/6849070/2025/11/30/chelsea-arsenal-caicedo-merino/
@@ -6,8 +10,8 @@ https://nytimes.com/athletic/6849070/2025/11/30/chelsea-arsenal-caicedo-merino/
 `In college football, you never really know whether a coaching hire is going to work. But it's never too early to talk about fit.`\
 https://nytimes.com/athletic/6827060/2025/11/30/college-football-coaching-carousel-grades/
 
-**Colts CB Sauce Gardner exits game vs. Texans with calf injury**\
-`Gardner got hurt on the Colts' second defensive snap of the day. `\
+**Colts CB Sauce Gardner ruled out vs. Texans with calf injury**\
+`Gardner was injured on the Colts' second defensive snap of the day. `\
 https://nytimes.com/athletic/6849641/2025/11/30/colts-sauce-gardner-calf-injury-texans/
 
 **Lawmakers Suggest Follow-Up Boat Strike Could Be a War Crime**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6849503/2025/11/30/arne-slot-liverpool-west-ham/
 **Qatar GP: Submit your questions for our F1 mailbag**\
 `What questions do you have for our F1 experts after the Qatar GP?`\
 https://nytimes.com/athletic/6849497/2025/11/30/qatar-gp-f1-mailbag/
-
-**‘Zootopia 2’ Goes Wild at the Worldwide Box Office**\
-`The Disney sequel took in $156 million in North America over its first five days. Strong turnout in China pushed the film’s global opening total to $556 million.`\
-https://nytimes.com/2025/11/30/business/zootopia-2-box-office.html
 
