@@ -1,3 +1,11 @@
+**The Rams were due for a letdown and the AFC South is a mess: Our experts' Week 13 takeaways**\
+`Also: Can the 49ers still be dangerous in the playoffs? And are the Lions, Cowboys or Panthers more likely to make the postseason field?`\
+https://nytimes.com/athletic/6849844/2025/11/30/nfl-takeaways-week-13-scores-results/
+
+**Jets edge Falcons behind Nick Folk's FG, Adonai Mitchell's breakout: Takeaways**\
+`Special teams prove crucial as New York swipes a last-second victory over Atlanta.`\
+https://nytimes.com/athletic/6849639/2025/11/30/falcons-jets-score-result-takeaways-nfl-week-13/
+
 **Jaguars roll past Titans to move into first place in AFC South**\
 `The Jaguars' third straight win, combined with the Colts' loss to the Texans, has created a logjam at the top of the AFC South.`\
 https://nytimes.com/athletic/6850126/2025/11/30/jaguars-titans-score-result-takeaways-nfl-week-13/
