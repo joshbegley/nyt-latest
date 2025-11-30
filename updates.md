@@ -1,3 +1,15 @@
+**Trump Administration Live Updates: U.S. Negotiators to Discuss Peace Plan With Ukrainian Officials**\
+``\
+https://nytimes.com/live/2025/11/30/us/trump-news
+
+**Mandel's Final Thoughts: The CFP field is overcrowded — and a squeeze is coming**\
+`There could be a record amount of outrage in college football come Tuesday for bubble teams with strong cases but not enough CFP spots.`\
+https://nytimes.com/athletic/6848628/2025/11/30/college-football-scores-results-week-14/
+
+**The Dangers of E-bikes**\
+`Injuries and deaths are rising — but the law hasn’t kept up.`\
+https://nytimes.com/2025/11/30/briefing/the-dangers-of-e-bikes.html
+
 **Notre Dame, 2025's ultimate eye test team, offers one final CFP statement**\
 `The Irish have played two-and-a-half months of elimination games to get to this point, only to have to wait to see what the committee says.`\
 https://nytimes.com/athletic/6848863/2025/11/30/notre-dame-cfp-stanford-results-highlights/
