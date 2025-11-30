@@ -1,3 +1,7 @@
+**Ukraine’s top negotiator resigns, but peace talks carry on.**\
+`By Cassandra Vinograd`\
+https://nytimes.com/live/2025/11/30/us/trump-news/ukraines-top-negotiator-resigns-but-peace-talks-carry-on
+
 **How to watch Rockets vs. Jazz: Time, TV, streaming**\
 `Find out how to watch the Houston Rockets play the Utah Jazz, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6848994/2025/11/30/rockets-vs-jazz-stream-how-to-watch-nov-30/

@@ -1,3 +1,7 @@
+**Ukraine’s top negotiator resigns, but peace talks carry on.**\
+`By Cassandra Vinograd`\
+https://nytimes.com/live/2025/11/30/us/trump-news/ukraines-top-negotiator-resigns-but-peace-talks-carry-on
+
 **How to watch Rockets vs. Jazz: Time, TV, streaming**\
 `Find out how to watch the Houston Rockets play the Utah Jazz, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6848994/2025/11/30/rockets-vs-jazz-stream-how-to-watch-nov-30/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6848968/2025/11/30/indiana-vs-iowa-state-stream-how
 **Trump Administration Live Updates: U.S. Negotiators to Discuss Peace Plan With Ukrainian Officials**\
 ``\
 https://nytimes.com/live/2025/11/30/us/trump-news
-
-**Mandel's Final Thoughts: The CFP field is overcrowded — and a squeeze is coming**\
-`There could be a record amount of outrage in college football come Tuesday for bubble teams with strong cases but not enough CFP spots.`\
-https://nytimes.com/athletic/6848628/2025/11/30/college-football-scores-results-week-14/
 
