@@ -1,3 +1,15 @@
+**Mammoth's Logan Cooley helped off ice, Blues' Alexey Toropchenko ejected after collision**\
+`Toropchenko was given a five-minute major for kneeing and a game misconduct, while Cooley did not return to the game.`\
+https://nytimes.com/athletic/6848397/2025/11/29/mammoth-logan-cooley-injury-blues-alexey-toropchenko/
+
+**Diego Pavia, Vanderbilt have Heisman, Playoff cases — one stronger than the other**\
+`Pavia had 1,862 total yards and 16 touchdowns against legitimate defenses Tennessee, Kentucky, Auburn and Texas in November.`\
+https://nytimes.com/athletic/6848385/2025/11/29/diego-pavia-heisman-trophy-vanderbilt/
+
+**Wolves are showing progress with struggles in close games, against good teams**\
+`Saturday's win against Boston snapped a three-game losing streak, gave Wolves their first win over a team with a winning record.`\
+https://nytimes.com/athletic/6847994/2025/11/29/timberwolves-celtics-score-results-takeaways-anthony-edwards/
+
 **Diego Pavia, Vanderbilt have Heisman, Playoff cases — one stronger than the other**\
 `Pavia’s November, against legitimate defenses fielded by Tennessee, Kentucky, Auburn and Texas, yielded 1,862 total yards and 16 touchdowns.`\
 https://nytimes.com/athletic/6848385/2025/11/29/diego-pavia-heisman-trophy-vanderbilt/

@@ -1,9 +1,13 @@
+**Mammoth's Logan Cooley helped off ice, Blues' Alexey Toropchenko ejected after collision**\
+`Toropchenko was given a five-minute major for kneeing and a game misconduct, while Cooley did not return to the game.`\
+https://nytimes.com/athletic/6848397/2025/11/29/mammoth-logan-cooley-injury-blues-alexey-toropchenko/
+
 **Diego Pavia, Vanderbilt have Heisman, Playoff cases — one stronger than the other**\
-`Pavia’s November, against legitimate defenses fielded by Tennessee, Kentucky, Auburn and Texas, yielded 1,862 total yards and 16 touchdowns.`\
+`Pavia had 1,862 total yards and 16 touchdowns against legitimate defenses Tennessee, Kentucky, Auburn and Texas in November.`\
 https://nytimes.com/athletic/6848385/2025/11/29/diego-pavia-heisman-trophy-vanderbilt/
 
-**The Wolves have struggled in close games and against good teams but are progressing**\
-`Saturday's win snapped Minnesota's three-game losing streak and gave the Wolves their first win over a team with a winning record.`\
+**Wolves are showing progress with struggles in close games, against good teams**\
+`Saturday's win against Boston snapped a three-game losing streak, gave Wolves their first win over a team with a winning record.`\
 https://nytimes.com/athletic/6847994/2025/11/29/timberwolves-celtics-score-results-takeaways-anthony-edwards/
 
 **Bucks snap longest losing streak in a decade with blowout win**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6740291/2025/11/29/mls-cup-2025-playoff-bracket-ful
 **College Football Playoff 2025 projections: Most likely bracket with Rivalry Week underway**\
 `Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
 https://nytimes.com/athletic/6560541/2025/11/29/college-football-playoff-bracket-projections-odds/
-
-**Jaylen Brown's latest big scoring night not enough to rescue Celtics vs. Wolves**\
-`Celtics star tied his season high with 41 points, but missed a potential game-tying basket with less than a minute left.`\
-https://nytimes.com/athletic/6848095/2025/11/29/jaylen-brown-celtics-41-points-john-havlicek/
 
