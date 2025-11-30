@@ -1,4 +1,8 @@
-**Max Verstappen wins, McLaren gamble backfires, title goes to the wire: Qatar Grand Prix briefing**\
+**UNLV, Boise State win 4-way tiebreaker, will play for Mountain West title**\
+`After four teams tied for first place, the conference used four different metrics to determine which two would play for the championship.`\
+https://nytimes.com/athletic/6849267/2025/11/30/unlv-boise-state-mountain-west-tiebreaker/
+
+**Verstappen wins, McLaren gamble backfires, title goes to wire: Qatar Grand Prix briefing**\
 `Max Verstappen wins in Qatar to move to second in the drivers' championship`\
 https://nytimes.com/athletic/6849422/2025/11/30/qatar-grand-prix-briefing-max-verstappen-wins-mclaren-gamble-backfires-title-goes-to-the-wire/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6849407/2025/11/30/spurs-vs-timberwolves-stream-how
 **How to watch Thunder vs. Trail Blazers: Time, TV, streaming**\
 `Find out how to watch the Oklahoma City Thunder play the Portland Trail Blazers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6849405/2025/11/30/thunder-vs-trail-blazers-stream-how-to-watch-nov-30/
-
-**How to watch Flames vs. Hurricanes: Time, TV, streaming**\
-`Find out how to watch the Calgary Flames play the Carolina Hurricanes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6849403/2025/11/30/flames-vs-hurricanes-stream-how-to-watch-nov-30/
 
