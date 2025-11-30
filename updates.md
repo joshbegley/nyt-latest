@@ -1,3 +1,7 @@
+**Popular trade target Kodai Senga told Mets he wants to remain with club: Sources**\
+`Though Senga can block trades to 10 franchises with a limited no-trade clause, the Mets may still deal him this offseason.`\
+https://nytimes.com/athletic/6849186/2025/11/30/kodai-senga-mets-trade-talks/
+
 **How to watch Grizzlies vs. Kings: Time, TV, streaming**\
 `Find out how to watch the Memphis Grizzlies play the Sacramento Kings, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6849868/2025/11/30/grizzlies-vs-kings-stream-how-to-watch-nov-30/
