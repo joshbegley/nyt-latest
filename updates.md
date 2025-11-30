@@ -1,3 +1,11 @@
+**How to watch Rockets vs. Jazz: Time, TV, streaming**\
+`Find out how to watch the Houston Rockets play the Utah Jazz, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6848994/2025/11/30/rockets-vs-jazz-stream-how-to-watch-nov-30/
+
+**How to watch Ducks vs. Blackhawks: Time, TV, streaming**\
+`Find out how to watch the Anaheim Ducks play the Chicago Blackhawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6848992/2025/11/30/ducks-vs-blackhawks-stream-how-to-watch-nov-30/
+
 **How to watch Bellarmine vs. Louisville women's basketball: Time, TV, streaming**\
 `Find out how to watch the Bellarmine Knights play the Louisville Cardinals, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6848978/2025/11/30/bellarmine-vs-louisville-stream-how-to-watch-nov-30/
