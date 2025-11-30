@@ -1,3 +1,19 @@
+**Cory Booker Weds Alexis Lewis in a Private Ceremony**\
+`The couple legally married at a courthouse in Newark days before hosting an intimate wedding in Washington, D.C. on Saturday. They shared their wedding details exclusively with The New York Times.`\
+https://nytimes.com/2025/11/30/style/cory-booker-wedding-alexis-lewis.html
+
+**The New York Times in Print for Sunday, Nov. 30, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/11/30/todays-new-york-times
+
+**America Has Sidelined Education. You Can Help.**\
+`The New York Times Communities Fund has partnered with charities that invest in education at critical junctures across people’s life spans.`\
+https://nytimes.com/2025/11/30/opinion/communities-fund-charitable-giving.html
+
+**Apocalypse Now**\
+`Apocalyptic predictions may actually serve as comforting fantasies, at which point our future freakouts become an excuse for inaction.`\
+https://nytimes.com/2025/11/30/opinion/apocalypse-thinking-antichrist.html
+
 **After emotional win over Avs, Wild suffer letdown vs. Sabres: Takeaways**\
 `Minnesota was hot in November, but coach John Hynes points to shootout loss as sign Wild has room "to grow as a team."`\
 https://nytimes.com/athletic/6848153/2025/11/30/minnesota-wild-buffalo-sabres-takeaways/
