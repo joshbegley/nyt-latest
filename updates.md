@@ -1,3 +1,7 @@
+**Lane Kiffin chooses himself over his team, of course, and earns permanent villain status**\
+`Kiffin could have made history at a place that lifted him up as much as the other way around. Instead, he became a coaching cliche.`\
+https://nytimes.com/athletic/6847229/2025/11/30/lane-kiffin-leaves-ole-miss-lsu/
+
 **Texans best Colts to win fourth-straight in Stroud’s return: Takeaways**\
 `Texans quarterback CJ Stroud passed for 276 yards and one interception.`\
 https://nytimes.com/athletic/6849489/2025/11/30/texans-colts-score-result-takeaways-nfl-week-13/
