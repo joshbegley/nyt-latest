@@ -1,3 +1,7 @@
+**Tottenham have been awful at home for a long time - now it is putting Frank in trouble**\
+`Tottenham Hotspur lost 2-1 to Fulham to continue a run of awful home form`\
+https://nytimes.com/athletic/6836570/2025/11/30/tottenham-fulham-home-form-analysis/
+
 **At least Farke tried something different (twice) and Leeds gave a performance to believe in**\
 `Leeds lost 3-2 to Manchester City on Saturday, but it was not the defeat everyone was expecting`\
 https://nytimes.com/athletic/6848246/2025/11/30/leeds-manchester-city-daniel-farke/

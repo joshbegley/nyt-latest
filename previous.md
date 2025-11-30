@@ -1,3 +1,7 @@
+**Tottenham have been awful at home for a long time - now it is putting Frank in trouble**\
+`Tottenham Hotspur lost 2-1 to Fulham to continue a run of awful home form`\
+https://nytimes.com/athletic/6836570/2025/11/30/tottenham-fulham-home-form-analysis/
+
 **At least Farke tried something different (twice) and Leeds gave a performance to believe in**\
 `Leeds lost 3-2 to Manchester City on Saturday, but it was not the defeat everyone was expecting`\
 https://nytimes.com/athletic/6848246/2025/11/30/leeds-manchester-city-daniel-farke/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6842385/2025/11/30/simon-harmer-south-africa-india-
 **Wrexham have found their Championship feet. Next step play-offs?**\
 `Taking 22 points from a possible 39 since mid-September speaks volumes for how well Wrexham have adapted to life in the second tier`\
 https://nytimes.com/athletic/6836486/2025/11/30/wrexham-championship-blackburn-analysis/
-
-**Are Chelsea genuine Premier League title contenders?**\
-`Ahead of this weekend's game against league leaders Arsenal, we assess how seriously to take Enzo Maresca's side in the title race `\
-https://nytimes.com/athletic/6844809/2025/11/30/are-chelsea-genuine-title-contenders/
 
