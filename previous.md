@@ -1,3 +1,7 @@
+**The Briefing: Chelsea 1 Arsenal 1: What does this mean for title race? Was Caicedo red inevitable? Maresca positives?**\
+`Our writers break down the talking points from a fiery top-of-the-table clash at Stamford Bridge.`\
+https://nytimes.com/athletic/6849070/2025/11/30/chelsea-arsenal-caicedo-merino/
+
 **Colts CB Sauce Gardner exits game vs. Texans with calf injury**\
 `Gardner got hurt on the Colts' second defensive snap of the day. `\
 https://nytimes.com/athletic/6849641/2025/11/30/colts-sauce-gardner-calf-injury-texans/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/30/business/zootopia-2-box-office.html
 **How to watch Raptors vs. Knicks: Time, TV, streaming**\
 `Find out how to watch the Toronto Raptors play the New York Knicks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6849413/2025/11/30/raptors-vs-knicks-stream-how-to-watch-nov-30/
-
-**How to watch Hawks vs. 76ers: Time, TV, streaming**\
-`Find out how to watch the Atlanta Hawks play the Philadelphia 76ers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6849411/2025/11/30/hawks-vs-76ers-stream-how-to-watch-nov-30/
 
