@@ -1,3 +1,11 @@
+**Storm Threatens to Bring ‘Widespread and Impactful’ Snow and Ice to Northeast**\
+`A potential nor’easter could leave as much as a foot of snow in the Poconos in Pennsylvania, the Catskills in New York, and parts of Maine Massachusetts, New Hampshire and Vermont, a forecaster said.`\
+https://nytimes.com/2025/11/30/weather/snowstorm-northeast-new-england.html
+
+**Pope Leo Calls for a Two-State Solution in Mideast Conflict**\
+`The pope, en route to Lebanon after visiting Turkey, said he had discussed with the Turkish president how the Vatican might help Israel and the Palestinian territories find peace.`\
+https://nytimes.com/2025/11/30/world/middleeast/pope-leo-two-state-solution-israel.html
+
 **Pope Leo Calls for a Two-State Solution in Israel**\
 `The pope, en route to Lebanon after visiting Turkey, said he had discussed with the Turkish president how the Vatican might help mediate in the conflict.`\
 https://nytimes.com/2025/11/30/world/middleeast/pope-leo-two-state-solution-israel.html
