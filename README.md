@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6850127/2025/11/30/saints-dolphins-score-result-takeaways-nfl-week-13/
 
 **Buccaneers-Cardinals takeaways: Tampa Bay holds on to beat Arizona**\
-`The NFC South is still for grabs as the Panthers are 7-6.`\
+`The NFC South is still up for grabs as the Panthers are 7-6.`\
 https://nytimes.com/athletic/6849982/2025/11/30/cardinals-buccaneers-score-result-takeaways-nfl-week-13/
 
 **Panthers shock Rams as Matthew Stafford's fumble dooms L.A.**\
