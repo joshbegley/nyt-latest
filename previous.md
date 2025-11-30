@@ -1,5 +1,5 @@
 **The Briefing: Chelsea 1 Arsenal 1: What does this mean for title race? Was Caicedo red inevitable? Maresca positives?**\
-`Our writers break down the talking points from a fiery top-of-the-table clash at Stamford Bridge.`\
+`Our writers break down the talking points from a fiery top-of-the-table clash at Stamford Bridge`\
 https://nytimes.com/athletic/6849070/2025/11/30/chelsea-arsenal-caicedo-merino/
 
 **Instant grades for college football's 2025-26 head-coaching hires**\
