@@ -1,3 +1,7 @@
+**Verstappen wins, McLaren gamble backfires, title goes to wire: Qatar Grand Prix briefing**\
+`Max Verstappen wins in Qatar to move to second in the 2025 F1 drivers' championship, as McLaren's strategy errors hampers Piastri and Norris`\
+https://nytimes.com/athletic/6849422/2025/11/30/qatar-grand-prix-briefing-max-verstappen-wins-mclaren-gamble-backfires-title-goes-to-the-wire/
+
 **Colts CB Sauce Gardner exits game vs. Texans with calf injury**\
 `Gardner got hurt on the Colts' second defensive snap of the day. `\
 https://nytimes.com/athletic/6849641/2025/11/30/colts-sauce-gardner-calf-injury-texans/
