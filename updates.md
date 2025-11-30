@@ -1,3 +1,7 @@
+**How We Became ‘Half in Love With Easeful Death’**\
+`Apocalyptic predictions may actually serve as comforting fantasies, at which point our future freakouts become an excuse for inaction.`\
+https://nytimes.com/2025/11/30/opinion/apocalypse-thinking-antichrist.html
+
 **Sharks, Senators ditch helmets for warmups in Vegas. Did they break an NHL rule?**\
 `Both the Sharks and Senators collectively left their buckets behind as they took the ice for pregame warmups this week at T-Mobile Arena.`\
 https://nytimes.com/athletic/6848489/2025/11/30/sharks-senators-golden-knights-warmups-helmets-nhl/

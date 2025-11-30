@@ -14,7 +14,7 @@ https://nytimes.com/issue/todayspaper/2025/11/30/todays-new-york-times
 `The New York Times Communities Fund has partnered with charities that invest in education at critical junctures across people’s life spans.`\
 https://nytimes.com/2025/11/30/opinion/communities-fund-charitable-giving.html
 
-**Apocalypse Now**\
+**How We Became ‘Half in Love With Easeful Death’**\
 `Apocalyptic predictions may actually serve as comforting fantasies, at which point our future freakouts become an excuse for inaction.`\
 https://nytimes.com/2025/11/30/opinion/apocalypse-thinking-antichrist.html
 
