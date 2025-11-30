@@ -1,3 +1,7 @@
+**Qatar GP: Submit your questions for our F1 mailbag**\
+`What questions do you have for our F1 experts after the Qatar GP?`\
+https://nytimes.com/athletic/6849497/2025/11/30/qatar-gp-f1-mailbag/
+
 **‘Zootopia 2’ Goes Wild at the Worldwide Box Office**\
 `The Disney sequel took in $156 million in North America over its first five days. Strong turnout in China pushed the film’s global opening total to $556 million.`\
 https://nytimes.com/2025/11/30/business/zootopia-2-box-office.html

@@ -1,3 +1,7 @@
+**Qatar GP: Submit your questions for our F1 mailbag**\
+`What questions do you have for our F1 experts after the Qatar GP?`\
+https://nytimes.com/athletic/6849497/2025/11/30/qatar-gp-f1-mailbag/
+
 **‘Zootopia 2’ Goes Wild at the Worldwide Box Office**\
 `The Disney sequel took in $156 million in North America over its first five days. Strong turnout in China pushed the film’s global opening total to $556 million.`\
 https://nytimes.com/2025/11/30/business/zootopia-2-box-office.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6849401/2025/11/30/senators-vs-stars-stream-how-to-
 **Florida to hire Tulane's Jon Sumrall as next head coach: Source**\
 `Sumrall is expected to coach Tulane through the College Football Playoff, if it makes it.`\
 https://nytimes.com/athletic/6847982/2025/11/30/florida-hiring-jon-sumrall-tulane/
-
-**Palace must 'correct' summer transfer window in January - Glasner**\
-`Glasner said his side "would have wished for a little more backing" in the summer.`\
-https://nytimes.com/athletic/6849190/2025/11/30/crystal-palace-transfer-window-glasner/
 
