@@ -1,3 +1,7 @@
+**Pope Leo Calls for a Two-State Solution in Israel**\
+`The pope, en route to Lebanon after visiting Turkey, said he had discussed with the Turkish president how the Vatican might help mediate in the conflict.`\
+https://nytimes.com/2025/11/30/world/middleeast/pope-leo-two-state-solution-israel.html
+
 **One of David Sacks’s Waivers**\
 `Read the document`\
 https://nytimes.com/interactive/2025/08/21/us/20240331-david-sacks-ethics-filing-and-conflicts-waiver.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/30/opinion/christian-nationalism.html
 **We Had a Long, Mostly Good Marriage. It’s OK That It Ended.**\
 `Four years ago, my husband and I made an increasingly common choice: We hugged, apologized for our shortcomings and freed each other.`\
 https://nytimes.com/2025/11/30/opinion/marriage-divorce-happy.html
-
-**College Football Playoff 2025 projections: How many teams still have a chance?**\
-`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
-https://nytimes.com/athletic/6560541/2025/11/30/college-football-playoff-bracket-projections-odds/
 
