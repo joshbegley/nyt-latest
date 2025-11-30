@@ -1,3 +1,19 @@
+**Stunned sports world reacts to Lane Kiffin's shocking move to LSU**\
+`Ole Miss, a team that is contending for a national title, is losing its coach to LSU.`\
+https://nytimes.com/athletic/6849074/2025/11/30/lane-kiffin-lsu-social-media-reacts/
+
+**Ottawa Charge coach Carla MacLeod announces breast cancer diagnosis**\
+`The PWHL coach said she plans to continue coaching the Charge while undergoing treatment.`\
+https://nytimes.com/athletic/6849934/2025/11/30/carla-macleod-ottawa-charge-coach-breast-cancer/
+
+**Maresca: Hincapie should have been sent off for Chalobah challenge**\
+`Chalobah was left with swelling around his eye having been caught by the trailing elbow of Hincapie as the pair contested an aerial ball.`\
+https://nytimes.com/athletic/6849922/2025/11/30/piero-hincapie-trevoh-chalobah-decision/
+
+**Lane Kiffin finally commits to LSU, leaves Ole Miss scrambling for CFP**\
+`Kiffin’s future has been a lingering, high-profile drama throughout the season.`\
+https://nytimes.com/athletic/6825155/2025/11/30/lane-kiffin-lsu-ole-miss-pete-golding/
+
 **The 50 Best Clothing Stores in America**\
 `Transporting, surprising and specialized, these stores keep alive the thrill of in-person shopping and are worth the trip — even if nothing is bought.`\
 https://nytimes.com/interactive/2025/11/30/style/best-clothes-stores-us.html

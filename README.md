@@ -1,3 +1,7 @@
+**Wait, Lane Kiffin is leaving Ole Miss for LSU before the Playoff? We have questions**\
+`What you need to know about Ole Miss' Playoff status, Kiffin's messy exits, a lack of leadership in college football and more.`\
+https://nytimes.com/athletic/6847030/2025/11/30/lane-kiffin-leaves-ole-miss-lsu-questions/
+
 **Stunned sports world reacts to Lane Kiffin's shocking move to LSU**\
 `Ole Miss, a team that is contending for a national title, is losing its coach to LSU.`\
 https://nytimes.com/athletic/6849074/2025/11/30/lane-kiffin-lsu-social-media-reacts/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6825155/2025/11/30/lane-kiffin-lsu-ole-miss-pete-go
 **Seth Curry to sign with Warriors, team with brother Stephen: Source**\
 `The younger Curry spent training camp with the Warriors but was waived before the season because of the cap restrictions.`\
 https://nytimes.com/athletic/6849913/2025/11/30/seth-curry-steph-warriors-nba-brothers/
-
-**Fuzzy Zoeller, Who Won Two Majors on the PGA Tour, Dies at 74**\
-`He was a witty and popular figure, but his racially insensitive remarks about Tiger Woods at the 1997 Masters led to death threats and many apologies.`\
-https://nytimes.com/2025/11/30/obituaries/fuzzy-zoeller-dead.html
 
