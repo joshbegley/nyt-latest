@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6850126/2025/11/30/jaguars-titans-score-result-takeaways-nfl-week-13/
 
 **Jets edge Falcons behind Nick Folk's FG, Adonai Mitchell's breakout: Takeaways**\
-`Special teams prove crucial as New York swipes as last-second victory over Atlanta.`\
+`Special teams prove crucial as New York swipes a last-second victory over Atlanta.`\
 https://nytimes.com/athletic/6849639/2025/11/30/falcons-jets-score-result-takeaways-nfl-week-13/
 
 **Lane Kiffin chooses himself over his team, of course, and earns permanent villain status**\
