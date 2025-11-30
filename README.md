@@ -1,3 +1,7 @@
+**MLS Cup 2025: Your guide to Inter Miami vs. Vancouver Whitecaps**\
+`Two first-time MLS Cup participants led by two serial winners makes for a sensational matchup to decide the league champion`\
+https://nytimes.com/athletic/6848280/2025/11/29/mls-cup-2025-inter-miami-vancouver-whitecaps-messi-muller/
+
 **Mammoth's Logan Cooley hurt, Blues' Alexey Toropchenko ejected after hit**\
 `Toropchenko was given a five-minute major for kneeing and a game misconduct, while Cooley did not return to the game.`\
 https://nytimes.com/athletic/6848397/2025/11/29/mammoth-logan-cooley-injury-blues-alexey-toropchenko/
@@ -30,11 +34,7 @@ https://nytimes.com/athletic/6848054/2025/11/29/ryan-day-ohio-state-michigan-202
 `Lionel Messi and Inter Miami will host MLS Cup after thrashing NYCFC and booking a place in the final.`\
 https://nytimes.com/athletic/6848170/2025/11/29/inter-miami-nycfc-mls-cup-allende-hat-trick-messi/
 
-**Messi, Miami advance to MLS Cup that they'll host; Full playoff bracket**\
-`Lionel Messi and Inter Miami are one win away from lifting their first MLS Cup trophy`\
+**Messi, Miami to host Müller, Vancouver in MLS Cup; Full playoff bracket**\
+`The MLS Cup final will be a rematch of the 2025 Concacaf Champions Cup semifinals in South Florida`\
 https://nytimes.com/athletic/6740291/2025/11/29/mls-cup-2025-playoff-bracket-full-postseason-schedule-updated-results/
-
-**College Football Playoff 2025 projections: Most likely bracket with Rivalry Week underway**\
-`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
-https://nytimes.com/athletic/6560541/2025/11/29/college-football-playoff-bracket-projections-odds/
 
