@@ -1,3 +1,7 @@
+**A preview of The Athletic’s live coverage this week**\
+`Our live coverage this week includes the draw for the 2026 FIFA World Cup, the finale of the F1 season and plenty more`\
+https://nytimes.com/athletic/6848379/2025/11/30/live-coverage-schedule-world-cup-draw/
+
 **LSU plucks Kiffin from Ole Miss; Rebels elevate DC Pete Golding**\
 `Kiffin’s future has been a lingering, high-profile drama throughout the season.`\
 https://nytimes.com/athletic/6825155/2025/11/30/lane-kiffin-lsu-ole-miss-pete-golding/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6849865/2025/11/30/pelicans-vs-lakers-stream-how-to
 **AP Top 25: Ohio State, Indiana set for 1 vs. 2 Big Ten title game**\
 `No. 1 Ohio State, No. 2 Indiana, No. 3 Georgia, No. 4 Oregon and No. 5 Texas Tech top the AP Top 25 heading into conference championships.`\
 https://nytimes.com/athletic/6849749/2025/11/30/ap-top-25-rankings-osu-indiana-big-ten/
-
-**Review: It’s Hard to Breathe in This ‘Walküre’**\
-`The singers did marvelous work at the Opéra Bastille in Paris, where the director Calixto Bieito’s new staging takes place in a hellish dystopia.`\
-https://nytimes.com/2025/11/30/arts/music/review-die-walkure-paris.html
 
