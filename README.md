@@ -1,16 +1,16 @@
-**Rams' Puka Nacua delivers one-handed catch of the year candidate vs. Panthers**\
-`Nacua's grab helped the Rams take a 28-24 lead in the fourth quarter, but the Panthers answered in a 31-28 upset win.`\
-https://nytimes.com/athletic/6849981/2025/11/30/puka-nacua-one-handed-catch-rams-panthers/
+**College Student Is Deported During Trip Home for Thanksgiving**\
+`Any Lucia López Belloza, 19, was detained by immigration agents at the Boston airport before a flight to surprise her family in Texas for Thanksgiving. She is now in Honduras.`\
+https://nytimes.com/2025/11/30/us/politics/college-student-deported-thanksgiving-texas.html
 
-**Ballon d'Or winner Bonmati fractures leg in training accident**\
-`The Spanish FA said Bonmati had suffered a fracture to her left fibula after landing awkwardly during a "chance incident" in training.`\
-https://nytimes.com/athletic/6850018/2025/11/30/aitana-bonmati-spain-barcelona-injury-news/
+**‘Imperial Israel’ in the New Middle East**\
+`A series of attacks show how Israel has expanded its reach in the region.`\
+https://nytimes.com/2025/11/30/world/imperial-israel-new-middle-east-venezuela-afrobeats.html
 
-**The Lane Kiffin coaching drama timeline: Exit to LSU adds to long list of bizarre moments**\
-`For nearly two decades, Kiffin has made headlines with coaching carousel drama. His move from Ole Miss to LSU is no different.`\
-https://nytimes.com/athletic/6823469/2025/11/30/lane-kiffin-coach-timeline-ole-miss-florida-lsu/
+**Mikaela Shiffrin, unmatched again, wins third straight World Cup slalom to open season**\
+`Shiffrin won her 104th career World Cup race as her slalom dominance continued at Copper Mountain near her Colorado home.`\
+https://nytimes.com/athletic/6849501/2025/11/30/mikaela-shiffrin-slalom-world-cup-olympics-copper-mountain/
 
-**Tastemakers on Where They Love to Shop**\
-`As The Times compiled its list of the 50 best clothing stores in America, we asked 16 tastemakers about the stores they like.`\
-https://nytimes.com/interactive/2025/11/30/style/favorite-stores-clothes-shopping-us.html
+**Who is Pete Golding? Ole Miss' new coach is a Louisiana native from the Nick Saban tree**\
+`Golding was Alabama’s defensive coordinator from 2018 through 2022, winning one national title and two SEC championships.`\
+https://nytimes.com/athletic/6850053/2025/11/30/pete-golding-ole-miss-new-coach/
 

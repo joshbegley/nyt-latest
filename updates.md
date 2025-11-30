@@ -1,3 +1,7 @@
+**Rams' Puka Nacua delivers one-handed catch of the year candidate vs. Panthers**\
+`Nacua's grab helped the Rams take a 28-24 lead in the fourth quarter, but the Panthers answered in a 31-28 upset win.`\
+https://nytimes.com/athletic/6849981/2025/11/30/puka-nacua-one-handed-catch-rams-panthers/
+
 **Ballon d'Or winner Bonmati fractures leg in training accident**\
 `The Spanish FA said Bonmati had suffered a fracture to her left fibula after landing awkwardly during a "chance incident" in training.`\
 https://nytimes.com/athletic/6850018/2025/11/30/aitana-bonmati-spain-barcelona-injury-news/
