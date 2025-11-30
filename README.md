@@ -1,3 +1,11 @@
+**The 50 Best Clothing Stores in America**\
+`Transporting, surprising and specialized, these stores keep alive the thrill of in-person shopping and are worth the trip — even if nothing is bought.`\
+https://nytimes.com/interactive/2025/11/30/style/best-clothes-stores-us.html
+
+**Mandel: Kiffin and LSU make a mockery of a sport that's all too easy to mock lately**\
+`Imagine if a player tried to leave one SEC school for another in the middle of the season for a ton of money. `\
+https://nytimes.com/athletic/6845906/2025/11/30/lane-kiffin-ole-miss-leave-playoff/
+
 **A preview of The Athletic’s live coverage this week**\
 `Our live coverage this week includes the draw for the 2026 FIFA World Cup, the finale of the F1 season and plenty more`\
 https://nytimes.com/athletic/6848379/2025/11/30/live-coverage-schedule-world-cup-draw/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6849186/2025/11/30/kodai-senga-mets-trade-talks/
 **How to watch Grizzlies vs. Kings: Time, TV, streaming**\
 `Find out how to watch the Memphis Grizzlies play the Sacramento Kings, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6849868/2025/11/30/grizzlies-vs-kings-stream-how-to-watch-nov-30/
-
-**How to watch Pelicans vs. Lakers: Time, TV, streaming**\
-`Find out how to watch the New Orleans Pelicans play the Los Angeles Lakers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6849865/2025/11/30/pelicans-vs-lakers-stream-how-to-watch-nov-30/
-
-**AP Top 25: Ohio State, Indiana set for 1 vs. 2 Big Ten title game**\
-`No. 1 Ohio State, No. 2 Indiana, No. 3 Georgia, No. 4 Oregon and No. 5 Texas Tech top the AP Top 25 heading into conference championships.`\
-https://nytimes.com/athletic/6849749/2025/11/30/ap-top-25-rankings-osu-indiana-big-ten/
 
