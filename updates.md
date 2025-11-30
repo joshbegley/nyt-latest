@@ -1,3 +1,7 @@
+**Britain wins $2m SailGP championship for first time**\
+`The most consistent team of the season won the championships' Grand Final`\
+https://nytimes.com/athletic/6849060/2025/11/30/britain-season-5-sailgp-championship-winners/
+
 **Crystal Palace 1 Manchester United 2: Smart set pieces? Why was Mateta penalty retaken?**\
 `Bruno Fernandes' inventive free kicks were crucial to a comeback victory at Selhurst Park`\
 https://nytimes.com/athletic/6848843/2025/11/30/crystal-palace-man-utd-score-result-report-analysis/

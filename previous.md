@@ -1,3 +1,7 @@
+**Britain wins $2m SailGP championship for first time**\
+`The most consistent team of the season won the championships' Grand Final`\
+https://nytimes.com/athletic/6849060/2025/11/30/britain-season-5-sailgp-championship-winners/
+
 **Glenn Close, Ethan Hawke and Others Mourn Tom Stoppard**\
 `Nobody advanced or cherished the English language more than Stoppard, Tim Curry noted. Colleagues and fans agreed.`\
 https://nytimes.com/2025/11/30/theater/tom-stoppard-tributes-reactions.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/11/30/us/trump-news/ukraines-top-negotiator-resign
 **How to watch Rockets vs. Jazz: Time, TV, streaming**\
 `Find out how to watch the Houston Rockets play the Utah Jazz, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6848994/2025/11/30/rockets-vs-jazz-stream-how-to-watch-nov-30/
-
-**How to watch Ducks vs. Blackhawks: Time, TV, streaming**\
-`Find out how to watch the Anaheim Ducks play the Chicago Blackhawks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6848992/2025/11/30/ducks-vs-blackhawks-stream-how-to-watch-nov-30/
 
