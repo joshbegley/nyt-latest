@@ -1,4 +1,8 @@
 **Storm Threatens to Bring ‘Widespread and Impactful’ Snow and Ice to Northeast**\
+`A potential nor’easter could leave as much as a foot of snow in the Poconos in Pennsylvania, the Catskills in New York, and parts of Maine, Massachusetts, New Hampshire and Vermont, a forecaster said.`\
+https://nytimes.com/2025/11/30/weather/snowstorm-northeast-new-england.html
+
+**Storm Threatens to Bring ‘Widespread and Impactful’ Snow and Ice to Northeast**\
 `A potential nor’easter could leave as much as a foot of snow in the Poconos in Pennsylvania, the Catskills in New York, and parts of Maine Massachusetts, New Hampshire and Vermont, a forecaster said.`\
 https://nytimes.com/2025/11/30/weather/snowstorm-northeast-new-england.html
 
