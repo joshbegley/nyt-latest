@@ -10,7 +10,7 @@ https://nytimes.com/athletic/6845906/2025/11/30/lane-kiffin-ole-miss-leave-playo
 `Our live coverage this week includes the draw for the 2026 FIFA World Cup, the finale of the F1 season and plenty more`\
 https://nytimes.com/athletic/6848379/2025/11/30/live-coverage-schedule-world-cup-draw/
 
-**LSU plucks Kiffin from Ole Miss; Rebels elevate DC Pete Golding**\
+**Kiffin leaves for LSU before Ole Miss CFP run; Rebels elevate DC Pete Golding**\
 `Kiffin’s future has been a lingering, high-profile drama throughout the season.`\
 https://nytimes.com/athletic/6825155/2025/11/30/lane-kiffin-lsu-ole-miss-pete-golding/
 
