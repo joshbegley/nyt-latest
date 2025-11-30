@@ -34,7 +34,7 @@ https://nytimes.com/athletic/6848693/2025/11/30/hawaii-kicker-kansei-matsuzawa-t
 `Inter Miami discovered the cruel nature of playoffs last season, but the pain of that experience has informed its journey to MLS Cup.`\
 https://nytimes.com/athletic/6848447/2025/11/30/inter-miami-mls-cup-messi-mascherano-playoffs/
 
-**Israel’s Netanyahu Requests Pardon in Corruption Cases**\
-`The move comes two weeks after President Trump wrote to Israel’s president urging a pardon for Prime Minister Benjamin Netanyahu.`\
+**Netanyahu Asks Israel’s President to Pardon Him in Corruption Cases**\
+`Prime Minister Benjamin Netanyahu made the appeal weeks after President Trump made the same request to the Israeli president.`\
 https://nytimes.com/2025/11/30/world/middleeast/netanyahu-pardon-request-israel.html
 
