@@ -1,4 +1,4 @@
-**lot admits 'relief' after Liverpool end losing run**\
+**Slot admits 'relief' after Liverpool end losing run**\
 `Liverpool had lost three in a row in all competitions, all by three or more goals, before Sunday's 2-0 win at over West Ham. `\
 https://nytimes.com/athletic/6849503/2025/11/30/arne-slot-liverpool-west-ham/
 
