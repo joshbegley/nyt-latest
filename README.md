@@ -1,3 +1,11 @@
+**Two Galleries Form New Art Prize**\
+`The FLAG Art Foundation in New York and Serpentine in London have established a 1 million British pound award for five artists.`\
+https://nytimes.com/2025/12/01/arts/design/flag-art-foundation-serpentine-prize.html
+
+**Do You Know These Authors Who Appeared in the Filmed Versions of Their Books?**\
+`Some writers have followed their words onto the screen. Try this short quiz to see if you recall five of those cameo scenes.`\
+https://nytimes.com/interactive/2025/12/01/books/review/book-author-cameos.html
+
 **Move Over, Computer Science. Students Are Flocking to New A.I. Majors.**\
 `At M.I.T., a new program called “artificial intelligence and decision-making” is now the second-most-popular undergraduate major.`\
 https://nytimes.com/2025/12/01/technology/college-computer-science-ai-boom.html
@@ -29,12 +37,4 @@ https://nytimes.com/spotlight/food-destinations
 **Blues' Snuggerud out long term, Toropchenko to miss weeks; Kaskimaki recalled: What it means**\
 `This is a significant blow for the Blues, who have won two straight games for just the second time this season.`\
 https://nytimes.com/athletic/6852032/2025/12/01/blues-snuggerud-toropchenko-injuries/
-
-**Appeals Court Says Alina Habba Is Unlawful U.S. Attorney**\
-`The judges wrote that the Trump Administration appeared to have become frustrated by legal and political barriers that have prevented its preferred U.S. attorneys from leading federal prosecutors’ offices.`\
-https://nytimes.com/2025/12/01/nyregion/alina-habba-unlawful.html
-
-**Fantasy trends and hidden gems: Dawson Mercer, Tyler Seguin on the rise**\
-`As the dust settles on a chaotic holiday week schedule, Shayna Goldman looks at the top players to target on the fantasy hockey waiver wire.`\
-https://nytimes.com/athletic/6850439/2025/12/01/fantasy-hockey-sleepers-trends-hidden-gems-week9/
 

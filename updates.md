@@ -1,3 +1,7 @@
+**Move Over, Computer Science. Students Are Flocking to New A.I. Majors.**\
+`At M.I.T., a new program called “artificial intelligence and decision-making” is now the second-most-popular undergraduate major.`\
+https://nytimes.com/2025/12/01/technology/college-computer-science-ai-boom.html
+
 **gws-art-sculpture-parks**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/art-sculpture-parks
