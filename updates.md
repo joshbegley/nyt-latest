@@ -1,3 +1,11 @@
+**Golden Knights goalie Carter Hart eligible to debut Tuesday vs. Blackhawks**\
+`Hart's suspension ended on Monday and soon he will play his first NHL game in almost two years.`\
+https://nytimes.com/athletic/6853395/2025/12/01/carter-hart-nhl-return-golden-knights/
+
+**Hundreds Killed From Devastating Floods in Indonesia**\
+`Heavy rainfall from two rare tropical cyclones brought deadly flooding and landslides to Indonesia, killing over 600 people, with more than 400 missing and displacing hundreds of thousands of others.`\
+https://nytimes.com/video/world/asia/100000010556693/indonesia-flooding.html
+
 **Onana among several surprise omissions from Cameroon AFCON squad, manager also sacked**\
 `Goalkeeper Andre Onana, who is on loan at Trabzonspor from Manchester United, has been left out of Cameroon’s Africa Cup of Nations (AFCON) squad.`\
 https://nytimes.com/athletic/6853317/2025/12/01/onana-cameroon-squad-news-etoo-brys-aboubakar-chupo-moting-anguissa/
