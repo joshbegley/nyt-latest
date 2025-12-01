@@ -1,3 +1,7 @@
+**Feisty Bedard propels Blackhawks to comeback win over Ducks**\
+`Connor Bedard had four points and plenty of fire on the ice against the Ducks in a matchup that could become a Western rivalry.`\
+https://nytimes.com/athletic/6850032/2025/11/30/blackhawks-bedard-trash-talk-ducks/
+
 **How to watch Cowboys vs. Lions: Time, TV, streaming**\
 `Find out how to watch the Dallas Cowboys play the Detroit Lions, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6850746/2025/11/30/cowboys-vs-lions-stream-how-to-watch-dec-4/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6850400/2025/11/30/vikings-seahawks-score-result-ta
 **Ex-NU coach Pat Fitzgerald returns to CFB as Michigan State head coach**\
 `NU settled a wrongful termination lawsuit with Fitzgerald in August, after firing him in 2023 over hazing allegations in the program.`\
 https://nytimes.com/athletic/6850235/2025/11/30/michigan-state-head-coach-hiring-pat-fitzgerald-northwestern/
-
-**Feldman's candidates to replace Jon Sumrall at Tulane: Keep an eye on top coordinators**\
-`Several big-time Power 4 coordinators could be in contention for the Tulane job, one of the better Group of 5 openings. `\
-https://nytimes.com/athletic/6850582/2025/11/30/tulane-coach-candidates-blake-baker-charles-huff/
 
