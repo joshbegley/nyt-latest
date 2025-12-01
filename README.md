@@ -1,3 +1,7 @@
+**The Pulse: Lane Kiffin’s place in history**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6851004/2025/12/01/lane-kiffin-lsu-ole-miss-coaching-carousel-the-pulse/
+
 **Nicola Pietrangeli, giant of Italian tennis, dies aged 92**\
 `Pietrangeli, who won two French Open titles, was an avatar for Italian tennis throughout his career.`\
 https://nytimes.com/athletic/6851681/2025/12/01/nicola-pietrangeli-tennis-obituary/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6850571/2025/12/01/timberwolves-get-best-win-of-sea
 **Joel Embiid returns, but Sixers need more in heartbreaking double-OT loss to Hawks**\
 `Despite a loss that ticked off the Sixers' players, almost to a man, Embiid's presence constituted a good thing.`\
 https://nytimes.com/athletic/6851100/2025/12/01/joel-embiid-returns-76ers-double-ot-loss-hawks/
-
-**The Senators' goaltending is turning a corner. So, how much should they be playing? Notebook**\
-`Also, a check-in with Senators goaltending prospect Jackson Parsons who grew up a fan of the team thanks to Andrew Hammond.`\
-https://nytimes.com/athletic/6842616/2025/12/01/senators-goaltending-ullmark-merilainen-peters/
 
