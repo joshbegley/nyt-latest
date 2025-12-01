@@ -1,3 +1,7 @@
+**NASCAR trial begins with Michael Jordan fan jurors dismissed, Denny Hamlin testimony**\
+`CHARLOTTE, N.`\
+https://nytimes.com/athletic/6851916/2025/12/01/nascar-trial-michael-jordan-lawsuit-denny-hamlin/
+
 **Kerby Joseph backs off social media, practices, but future is uncertain**\
 `The Lions' secondary remains beat up with Kerby Joseph's injury and Terrion Arnold being placed on injured reserve.`\
 https://nytimes.com/athletic/6853336/2025/12/01/lions-kerby-joseph-knee-terrion-arnold/
@@ -33,8 +37,4 @@ https://nytimes.com/video/opinion/100000010536319/cory-booker-wants-you-to-have-
 **For Trump, Hegseth’s Take-No-Prisoners Approach Is a Growing Liability**\
 `Investigations are mounting into the legality of strikes that have killed scores of people in the waters off Venezuela.`\
 https://nytimes.com/2025/12/01/us/politics/trump-hegseth-drug-boat-strike-venezuela.html
-
-**Weekly Student News Quiz: High-Rise Fire, Word of the Year, 'Stranger Things'**\
-`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
-https://nytimes.com/interactive/2025/12/01/learning/01StudentNewsQuiz.html
 

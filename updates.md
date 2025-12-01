@@ -1,3 +1,7 @@
+**NASCAR trial begins with Michael Jordan fan jurors dismissed, Denny Hamlin testimony**\
+`CHARLOTTE, N.`\
+https://nytimes.com/athletic/6851916/2025/12/01/nascar-trial-michael-jordan-lawsuit-denny-hamlin/
+
 **Kerby Joseph backs off social media, practices, but future is uncertain**\
 `The Lions' secondary remains beat up with Kerby Joseph's injury and Terrion Arnold being placed on injured reserve.`\
 https://nytimes.com/athletic/6853336/2025/12/01/lions-kerby-joseph-knee-terrion-arnold/
