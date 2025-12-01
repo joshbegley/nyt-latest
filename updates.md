@@ -1,3 +1,11 @@
+**Bills defense finally has start-to-finish dominant game: "We want to be a nasty defense"**\
+`The unit has been steadily getting better for a few weeks.`\
+https://nytimes.com/athletic/6851056/2025/11/30/bills-defense-keon-coleman-return/
+
+**Shedeur Sanders, after Jerry Jeudy sideline exchange: On-field chemistry will 'take time'**\
+`The Browns' rookie quarterback and his wide receiver teammate had a heated exchange during Sunday's loss to the 49ers.`\
+https://nytimes.com/athletic/6850815/2025/11/30/shedeur-sanders-jerry-jeudy-browns-sideline/
+
 **Shedeur Sanders, after exchange with Jerry Jeudy: On-field chemistry will 'take time'**\
 `The Browns' rookie quarterback and his wide receiver teammate had a heated exchange during Sunday's loss to the 49ers.`\
 https://nytimes.com/athletic/6850815/2025/11/30/shedeur-sanders-jerry-jeudy-browns-sideline/

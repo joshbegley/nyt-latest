@@ -1,3 +1,7 @@
+**Bills defense finally has start-to-finish dominant game: "We want to be a nasty defense"**\
+`The unit has been steadily getting better for a few weeks.`\
+https://nytimes.com/athletic/6851056/2025/11/30/bills-defense-keon-coleman-return/
+
 **Seahawks' dominant defense hits new milestone vs. Vikings, as path to NFC's top seed widens**\
 `As good as Mike Macdonald's defense has been, it hadn't notched a shutout before Sunday against Minnesota.`\
 https://nytimes.com/athletic/6850918/2025/11/30/seahawks-vikings-defense-shutout-ernest-jones/
@@ -14,7 +18,7 @@ https://nytimes.com/athletic/6850800/2025/11/30/mark-stoops-firing-kentucky-foot
 `Ingrid’s connection to the evil entity known as It is revealed, among other dangerous secrets.`\
 https://nytimes.com/2025/11/30/arts/television/it-welcome-to-derry-recap-season-1-episode-6.html
 
-**Shedeur Sanders, after exchange with Jerry Jeudy: On-field chemistry will 'take time'**\
+**Shedeur Sanders, after Jerry Jeudy sideline exchange: On-field chemistry will 'take time'**\
 `The Browns' rookie quarterback and his wide receiver teammate had a heated exchange during Sunday's loss to the 49ers.`\
 https://nytimes.com/athletic/6850815/2025/11/30/shedeur-sanders-jerry-jeudy-browns-sideline/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6850380/2025/11/30/rams-matthew-stafford-loss-panth
 **Big games by Payton Pritchard and Jaylen Brown lead Celtics past Cavaliers**\
 `Payton Pritchard scored a season-high 42 points and Jaylen Brown recorded a triple-double Sunday as the Celtics held off the Cavaliers.`\
 https://nytimes.com/athletic/6850792/2025/11/30/celtics-brown-triple-double-pritchard-40-points/
-
-**How 2 old Jets and 1 breakout performance got Aaron Glenn a third win**\
-`The Jets showed more signs of growth in Sunday's victory over the Atlanta Falcons.`\
-https://nytimes.com/athletic/6850764/2025/11/30/new-york-jets-win-atlanta-falcons/
 
