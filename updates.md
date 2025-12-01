@@ -1,3 +1,7 @@
+**'Colors don't define genders': Brazilian soccer coach apologises after homophobic remark**\
+`The 73-year-old head coach said: "I don’t want my f---ing team wearing a pink kit. It looks like a f----t team."`\
+https://nytimes.com/athletic/6851679/2025/12/01/brazil-abel-braga-homophobic/
+
 **I Made an Offensive Joke. But So Did Everyone Else! Why Did I Get Fired?**\
 `Plus, should you endure a stultifying work life to enable a happy personal life?`\
 https://nytimes.com/2025/12/01/business/racist-joke-at-work.html
