@@ -1,3 +1,7 @@
+**How to embrace the TE position and win your fantasy playoffs**\
+`Is your fantasy tight end struggling? Check out KC's rest-of-season tight end rankings and look for an upgrade.`\
+https://nytimes.com/athletic/6851754/2025/12/01/fantasy-football-tight-ends-playoffs-strength-of-schedule/
+
 **For ‘No Tax on Tips,’ the I.R.S. Gets Intimate**\
 `The Trump administration wants to exclude earnings from “pornographic activity” from a new tax break for tips. Will the I.R.S. know it when it sees it?`\
 https://nytimes.com/2025/12/01/us/politics/for-no-tax-on-tips-the-irs-gets-intimate.html
