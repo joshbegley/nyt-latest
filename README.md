@@ -10,7 +10,7 @@ https://nytimes.com/athletic/6850439/2025/12/01/fantasy-hockey-sleepers-trends-h
 `The Clippers are 5-15 entering the month of December and coming off arguably one of their worst months of their franchise's history.`\
 https://nytimes.com/athletic/6848751/2025/12/01/clippers-standings-record/
 
-**How Maxi Kleber's airballed layup saved the Lakers: 'I have great empathy for him'**\
+**Turns out, an airball can be a catalyst for a Lakers win**\
 `Maxi Kleber's unusual miss provided a good laugh for the Lakers — and was just what they needed Sunday.`\
 https://nytimes.com/athletic/6851513/2025/12/01/lakers-win-maxi-kleber-layup/
 
