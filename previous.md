@@ -1,3 +1,7 @@
+**Andy Murray interview: Life after tennis, coaching Novak Djokovic and facing the Big Three**\
+`Murray spoke to the Tennis Podcast about regrets, his experience working with the 24-time Grand Slam champion and Monopoly with his kids.`\
+https://nytimes.com/athletic/6844610/2025/12/01/andy-murray-tennis-career-retirement/
+
 **The Most Interesting Wine Books of 2025**\
 `A fascinating history of California wine, a beginner’s handbook, “A Cynic’s Guide” and visits to natural producers in France and England, with recipes`\
 https://nytimes.com/2025/12/01/dining/drinks/wine-books.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/01/us/hurricane-jamaica-tourism.html
 **On the Eve of Art Basel Miami Beach, a Case of the Jitters**\
 `Fourteen galleries pulled out of the fair this year, while others chose to stay and embrace the art fray. “It’s a good opportunity to be bold,” says one dealer.`\
 https://nytimes.com/2025/12/01/arts/design/art-basel-miami-beach-fair-galleries.html
-
-**People Are Ordering Smaller Pizzas and Fewer Toppings. What Does That Tell Us?**\
-`Sales are softening at big chains and independent shops aren’t selling as many extras. Competition, diet trends and consumer anxiety may all be playing a part.`\
-https://nytimes.com/2025/12/01/business/consumers-pizza-sales.html
 

@@ -1,3 +1,7 @@
+**Andy Murray interview: Life after tennis, coaching Novak Djokovic and facing the Big Three**\
+`Murray spoke to the Tennis Podcast about regrets, his experience working with the 24-time Grand Slam champion and Monopoly with his kids.`\
+https://nytimes.com/athletic/6844610/2025/12/01/andy-murray-tennis-career-retirement/
+
 **The Most Interesting Wine Books of 2025**\
 `A fascinating history of California wine, a beginner’s handbook, “A Cynic’s Guide” and visits to natural producers in France and England, with recipes`\
 https://nytimes.com/2025/12/01/dining/drinks/wine-books.html
