@@ -1,5 +1,13 @@
+**T.S.A. Announces $45 Fee for Non-Real ID Travelers**\
+`Starting in February, the Transportation Security Administration will start charging fliers who travel without a Real ID-compliant form of identification a $45 fee in order to fly from U.S. airports.`\
+https://nytimes.com/video/travel/100000010558023/tsa-real-id-fine.html
+
+**The NFL is seeing a pattern of officials botching the overtime coin toss**\
+`There have been at least four recent examples of officiating mistakes during overtime coin tosses, including Sunday night in Washington.`\
+https://nytimes.com/athletic/6853155/2025/12/01/nfl-overtime-coin-toss-referee-mistakes/
+
 **Firing of Nebraska DC signals Matt Rhule’s plan isn’t progressing as fast as intended**\
-`Butler’s departure is a symptom of something bigger that’s not clicking in Lincoln.`\
+`The defensive coordinator's departure is a symptom of something bigger that’s not clicking in Lincoln.`\
 https://nytimes.com/athletic/6853485/2025/12/01/nebraska-john-butler-fired-matt-rhule/
 
 **Three Art World Heavyweights Join Forces to Form New Gallery**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6852195/2025/12/01/thomas-frank-tottenham-future/
 **Golden Knights goalie Carter Hart eligible to debut Tuesday vs. Blackhawks**\
 `Hart's suspension ended on Monday and soon he will play his first NHL game in almost two years.`\
 https://nytimes.com/athletic/6853395/2025/12/01/carter-hart-nhl-return-golden-knights/
-
-**Hundreds Killed From Devastating Floods in Indonesia**\
-`Heavy rainfall from two rare tropical cyclones brought deadly flooding and landslides to Indonesia, killing over 600 people, with more than 400 missing and displacing hundreds of thousands of others.`\
-https://nytimes.com/video/world/asia/100000010556693/indonesia-flooding.html
-
-**Onana among several surprise omissions from Cameroon AFCON squad, manager also sacked**\
-`Goalkeeper Andre Onana, who is on loan at Trabzonspor from Manchester United, has been left out of Cameroon’s Africa Cup of Nations (AFCON) squad.`\
-https://nytimes.com/athletic/6853317/2025/12/01/onana-cameroon-squad-news-etoo-brys-aboubakar-chupo-moting-anguissa/
 
