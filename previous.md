@@ -1,3 +1,7 @@
+**TAFC: MLS Cup final – Muller vs Messi... and Suarez? Plus: Ceferin may miss World Cup draw**\
+`Today in TAFC: Will Suarez play in MLS Cup final? Plus: Arsenal miss chance to extend lead in EPL, Ceferin might not attend World Cup draw`\
+https://nytimes.com/athletic/6851602/2025/12/01/mls-cup-messi-muller-ceferin-world-cup-draw/
+
 **The Knicks have entered the chat at the top of the East**\
 `New York is figuring things while still winning. After a bumpy start to season, the Knicks are where we thought they would be.`\
 https://nytimes.com/athletic/6851005/2025/12/01/knicks-standings-record/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6850431/2025/12/01/tatis-yankees/
 **The Pulse: Lane Kiffin’s place in history**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6851004/2025/12/01/lane-kiffin-lsu-ole-miss-coaching-carousel-the-pulse/
-
-**Nicola Pietrangeli, giant of Italian tennis, dies aged 92**\
-`Pietrangeli, who won two French Open titles, was an avatar for Italian tennis throughout his career.`\
-https://nytimes.com/athletic/6851681/2025/12/01/nicola-pietrangeli-tennis-obituary/
 

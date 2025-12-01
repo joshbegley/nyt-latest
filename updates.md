@@ -1,3 +1,7 @@
+**TAFC: MLS Cup final – Muller vs Messi... and Suarez? Plus: Ceferin may miss World Cup draw**\
+`Today in TAFC: Will Suarez play in MLS Cup final? Plus: Arsenal miss chance to extend lead in EPL, Ceferin might not attend World Cup draw`\
+https://nytimes.com/athletic/6851602/2025/12/01/mls-cup-messi-muller-ceferin-world-cup-draw/
+
 **MMLR: Hope for Auston Matthews, concern for Morgan Rielly**\
 `Auston Matthews showed a flash of his old self against Pittsburgh. The concern is that it was just that — a flash.`\
 https://nytimes.com/athletic/6849470/2025/12/01/auston-matthews-maple-leafs-3/
