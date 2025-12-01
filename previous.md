@@ -1,3 +1,11 @@
+**The 2025 Word of the Year**\
+`Is “rage bait” a good choice for this year, in your opinion? Why or why not?`\
+https://nytimes.com/2025/12/01/learning/the-2025-word-of-the-year.html
+
+**Starbucks to Pay $39 Million in Landmark N.Y.C. Labor Law Settlement**\
+`The settlement with Starbucks stems from more than half a million violations, including failing to give workers stable schedules.`\
+https://nytimes.com/2025/12/01/nyregion/starbucks-workers-strike-settlement.html
+
 **Police admit error of fictional game in Maccabi Tel Aviv report, stand by fan ban**\
 `Maccabi Tel Aviv fans were not allowed to attend the Europa League fixture against Aston Villa in Birmingham after a local police request.`\
 https://nytimes.com/athletic/6852315/2025/12/01/aston-villa-maccabi-tel-aviv-ban-police/
@@ -29,12 +37,4 @@ https://nytimes.com/video/podcasts/100000010556683/trump-coin-the-no-2-most-icon
 **Johnson and Trump Try to Avoid an Upset House Loss in Tennessee**\
 `Speaker Mike Johnson put the president on speakerphone during a Monday stop in the state, underscoring the unusual amount of national attention on a House special election.`\
 https://nytimes.com/2025/12/01/us/politics/trump-tennessee-election.html
-
-**Fantasy football Week 13 recap, early waivers speed run**\
-`Is the Ravens' star QB actually benchable?`\
-https://nytimes.com/athletic/6852426/2025/12/01/fantasy-football-week-13-recap-early-waivers-speed-run-lamar-jackson/
-
-**NFL overreactions: Take the under in Dallas-Detroit**\
-`The Cowboys and Lions score lots of points, but that might not be the case on Thursday night.`\
-https://nytimes.com/athletic/6852318/2025/12/01/nfl-overreaction-monday-week-14-dallas-detroit/
 

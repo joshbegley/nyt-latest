@@ -1,3 +1,11 @@
+**The 2025 Word of the Year**\
+`Is “rage bait” a good choice for this year, in your opinion? Why or why not?`\
+https://nytimes.com/2025/12/01/learning/the-2025-word-of-the-year.html
+
+**Starbucks to Pay $39 Million in Landmark N.Y.C. Labor Law Settlement**\
+`The settlement with Starbucks stems from more than half a million violations, including failing to give workers stable schedules.`\
+https://nytimes.com/2025/12/01/nyregion/starbucks-workers-strike-settlement.html
+
 **Police admit error of fictional game in Maccabi Tel Aviv report, stand by fan ban**\
 `Maccabi Tel Aviv fans were not allowed to attend the Europa League fixture against Aston Villa in Birmingham after a local police request.`\
 https://nytimes.com/athletic/6852315/2025/12/01/aston-villa-maccabi-tel-aviv-ban-police/
