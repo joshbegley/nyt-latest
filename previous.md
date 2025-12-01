@@ -1,3 +1,19 @@
+**Johnson and Trump Try to Avoid an Upset House Loss in Tennessee**\
+`Speaker Mike Johnson put the president on speakerphone during a Monday stop in the state, underscoring the unusual amount of national attention on a House special election.`\
+https://nytimes.com/2025/12/01/us/politics/trump-tennessee-election.html
+
+**Fantasy football Week 13 recap, early waivers speed run**\
+`Is the Ravens' star QB actually benchable?`\
+https://nytimes.com/athletic/6852426/2025/12/01/fantasy-football-week-13-recap-early-waivers-speed-run-lamar-jackson/
+
+**NFL overreactions: Take the under in Dallas-Detroit**\
+`The Cowboys and Lions score lots of points, but that might not be the case on Thursday night.`\
+https://nytimes.com/athletic/6852318/2025/12/01/nfl-overreaction-monday-week-14-dallas-detroit/
+
+**gws-typewriter-repair-seattle-bremerton**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/typewriter-repair-seattle-bremerton
+
 **Giants not inclined to spend what it takes to sign Tatsuya Imai: Sources**\
 `A detailed look at why the Giants aren't looking to sign the 27-year-old Japanese righty or any of the other top starters on the market.`\
 https://nytimes.com/athletic/6852286/2025/12/01/sf-giants-tatsuya-imai-payroll/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/12/01/theater/death-of-a-salesman-broadway-lane-metcalf
 **13 Plays (and 2 Festivals) to Invigorate Your December**\
 `Michelle Williams leads an O’Neill drama, Matthew Broderick stars in Molière, and plenty of stages brim with non-holiday fare, Off Broadway and beyond.`\
 https://nytimes.com/2025/12/01/theater/plays-off-broadway-michelle-williams-matthew-broderick.html
-
-**Submit a question for Week 14 NFL survivor pool help**\
-`Put your NFL survivor pool questions here and our experts will answer them in this week's column.`\
-https://nytimes.com/athletic/6852467/2025/12/01/nfl-survivor-pool-mailbag-week-14/
-
-**Hong Kong Towers Sheathed in Unsafe Netting, Officials Say**\
-`The netting that was used to shroud the Hong Kong housing estate that burned down last week had been replaced with cheaper material that did not meet fire safety standards months before the tragedy, officials said.`\
-https://nytimes.com/video/world/asia/100000010556512/hong-kong-towers-sheathed-in-unsafe-netting-officials-say.html
-
-**Treylon Burks Makes Jaw-Dropping Catch in Washington’s Overtime Loss to Denver**\
-`Washington Commanders receiver Treylon Burks’ one-handed grab on Sunday night might be the contender for catch of the year.`\
-https://nytimes.com/video/the-athletic/100000010556849/treylon-burks-makes-jaw-dropping-catch-in-washingtons-overtime-loss-to-denver.html
-
-**Tulane AD: 'Trust' and 'transparency' convinced him to let Sumrall finish season**\
-`Tulane athletic director David Harris said he based his decision "squarely on what's in the best interests" of the Green Wave players.`\
-https://nytimes.com/athletic/6852002/2025/12/01/jon-sumrall-tulane-athletic-director-trust/
 

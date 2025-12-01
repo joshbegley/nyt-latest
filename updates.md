@@ -1,3 +1,19 @@
+**Johnson and Trump Try to Avoid an Upset House Loss in Tennessee**\
+`Speaker Mike Johnson put the president on speakerphone during a Monday stop in the state, underscoring the unusual amount of national attention on a House special election.`\
+https://nytimes.com/2025/12/01/us/politics/trump-tennessee-election.html
+
+**Fantasy football Week 13 recap, early waivers speed run**\
+`Is the Ravens' star QB actually benchable?`\
+https://nytimes.com/athletic/6852426/2025/12/01/fantasy-football-week-13-recap-early-waivers-speed-run-lamar-jackson/
+
+**NFL overreactions: Take the under in Dallas-Detroit**\
+`The Cowboys and Lions score lots of points, but that might not be the case on Thursday night.`\
+https://nytimes.com/athletic/6852318/2025/12/01/nfl-overreaction-monday-week-14-dallas-detroit/
+
+**gws-typewriter-repair-seattle-bremerton**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/typewriter-repair-seattle-bremerton
+
 **Giants not inclined to spend what it takes to sign Tatsuya Imai: Sources**\
 `A detailed look at why the Giants aren't looking to sign the 27-year-old Japanese righty or any of the other top starters on the market.`\
 https://nytimes.com/athletic/6852286/2025/12/01/sf-giants-tatsuya-imai-payroll/
