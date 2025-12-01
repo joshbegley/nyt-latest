@@ -1,3 +1,15 @@
+**How to watch San Jose State vs. Washington women's basketball: Time, TV, streaming**\
+`Find out how to watch the San Jose State Spartans play the Washington Huskies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6853113/2025/12/01/san-jose-state-vs-washington-stream-how-to-watch-dec-1/
+
+**Traveling Without a Real ID? That’ll Cost You $45.**\
+`As of February, passengers without the government-approved identity card will be required to pay for alternative screening at U.S. airports.`\
+https://nytimes.com/2025/12/01/travel/real-id-fee-tsa.html
+
+**The Stew I Seek Out Every Time I Go Back Home to Lagos**\
+`Ọbẹ̀ onírù, also known as ofàdà stew or designer stew, is open to adaptation, but always tastes of comfort.`\
+https://nytimes.com/2025/12/01/dining/obe-oniru-ofada-stew-nigeria.html
+
 **Scoop City: Risers and fallers after Week 13**\
 `The Bears, Panthers and Florida teams are trending up, while the Steelers, Eagles and Chiefs fall`\
 https://nytimes.com/athletic/6853018/2025/12/01/week-13-nfl-trending-risers-fallers-scoop-city-bears/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6852554/2025/12/01/colts-sauce-gardner-calf-injury/
 **Klay Thompson names boat after girlfriend Megan Thee Stallion**\
 `Thompson has become famous for his boating adventures, and now he has a nautical partner in crime.`\
 https://nytimes.com/athletic/6852811/2025/12/01/klay-thompson-boat-megan-thee-stallion/
-
-**San Antonio**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/things-to-do-san-antonio
-
-**I’m Building an Algorithm That Doesn’t Rot Your Brain**\
-`Jack Conte, the chief executive of Patreon, a platform for creators to monetize their art and content, outlines his vision for an internet that puts people, not ad revenues, first.`\
-https://nytimes.com/video/opinion/100000010499778/im-building-an-algorithm-that-doesnt-rot-your-brain.html
-
-**Lane Kiffin's LSU contract: $13 million per year, bonus for Ole Miss CFP success**\
-`Louisiana Gov. Jeff Landry railed against Brian Kelly’s exorbitant contract. Now LSU is giving Lane Kiffin a more lucrative one.`\
-https://nytimes.com/athletic/6852863/2025/12/01/lane-kiffin-lsu-contract-details/
 
