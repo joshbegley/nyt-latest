@@ -26,7 +26,7 @@ https://nytimes.com/athletic/6850032/2025/11/30/blackhawks-bedard-trash-talk-duc
 `Find out how to watch the Dallas Cowboys play the Detroit Lions, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6850746/2025/11/30/cowboys-vs-lions-stream-how-to-watch-dec-4/
 
-**Bills-Steelers takeaways: Allen, Cook dominate on ground in big win**\
+**Bills' Josh Allen, James Cook dominate on ground in big win over Steelers**\
 `The Bills' defense also gave Pittsburgh quarterback Aaron Rodgers a tough game in a critical AFC showdown Sunday,`\
 https://nytimes.com/athletic/6850146/2025/11/30/bills-steelers-score-result-takeaways-nfl-week-13/
 
