@@ -1,3 +1,7 @@
+**Nebraska fires DC John Butler after sluggish finish to season**\
+`The coaching change comes on the heels of two blowout defeats to finish the regular season.`\
+https://nytimes.com/athletic/6852857/2025/12/01/nebraska-fires-john-butler/
+
 **The Aftermath of the D.C. Shooting**\
 `Readers discuss the shooting of two National Guard members in Washington. Also: Being Latino in the U.S.; wonderful mentors.`\
 https://nytimes.com/2025/12/01/opinion/national-guard-dc-shooting.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/01/obituaries/kai-erikson-dead.html
 **College football conference title game odds: Ohio State is a clear favorite against Indiana**\
 `Seven of the nine conference championship games feature spreads of less than a touchdown.`\
 https://nytimes.com/athletic/6852404/2025/12/01/college-football-conference-title-game-odds-ohio-state-indiana/
-
-**Russian Launch Site Mishap Shows Perilous State of Storied Space Program**\
-`The ability of Russia to launch astronauts to the International Space Station remains in limbo after an incident last week at the Baikonur base in Kazakhstan.`\
-https://nytimes.com/2025/12/01/science/russia-base-damage-iss-launch-collapse.html
 
