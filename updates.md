@@ -1,3 +1,11 @@
+**Feldman's candidates to replace Jon Sumrall at Tulane: Keep an eye on top coordinators**\
+`Several big-time Power 4 coordinators could be in contention for the Tulane job, one of the better Group of 5 openings. `\
+https://nytimes.com/athletic/6850582/2025/11/30/tulane-coach-candidates-blake-baker-charles-huff/
+
+**Blissfully ignorant 49ers brimming with confidence as bye week finally arrives**\
+`The injury-depleted 49ers are 9-4 entering their bye after a win in windy Cleveland. "It's everything we could ask for," Kyle Shanahan said.`\
+https://nytimes.com/athletic/6850488/2025/11/30/49ers-browns-win-bye-week/
+
 **Myles Garrett calls out 49ers' Jauan Jennings for 'demeaning' comments**\
 `Garrett and Browns defensive lineman Shelby Harris said Jennings made demeaning comments after Maliek Collins suffered a injury`\
 https://nytimes.com/athletic/6850364/2025/11/30/juan-jennings-trash-talk-reaction-collins-harris-garrett/

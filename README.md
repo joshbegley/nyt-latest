@@ -8,7 +8,7 @@ https://nytimes.com/athletic/6850488/2025/11/30/49ers-browns-win-bye-week/
 
 **Myles Garrett calls out 49ers' Jauan Jennings for 'demeaning' comments**\
 `Garrett and Browns defensive lineman Shelby Harris said Jennings made demeaning comments after Maliek Collins suffered a injury`\
-https://nytimes.com/athletic/6850364/2025/11/30/juan-jennings-trash-talk-reaction-collins-harris-garrett/
+https://nytimes.com/athletic/6850364/2025/11/30/jauan-jennings-trash-talk-reaction-collins-harris-garrett/
 
 **Nebraska, Kentucky, Texas and Pitt earn top seeds in NCAA volleyball tournament**\
 `Nebraska lost just one set in 20 Big Ten matches and just seven sets in a regular season that included 12 wins against ranked teams.`\
