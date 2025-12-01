@@ -6,7 +6,7 @@ https://nytimes.com/athletic/6850380/2025/11/30/rams-matthew-stafford-loss-panth
 `Payton Pritchard scored a season-high 42 points and Jaylen Brown recorded a triple-double Sunday as the Celtics held off the Cavaliers.`\
 https://nytimes.com/athletic/6850792/2025/11/30/celtics-brown-triple-double-pritchard-40-points/
 
-**How two old Jets and one breakout performance got Aaron Glenn a third win**\
+**How 2 old Jets and 1 breakout performance got Aaron Glenn a third win**\
 `The Jets showed more signs of growth in Sunday's victory over the Atlanta Falcons.`\
 https://nytimes.com/athletic/6850764/2025/11/30/new-york-jets-win-atlanta-falcons/
 
