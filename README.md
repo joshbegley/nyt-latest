@@ -1,3 +1,7 @@
+**Titans player says Jaguars punter Logan Cooke said he 'would kill' him**\
+`The AFC South rivals combined for 23 accepted penalties totaling 184 yards in Sunday's chippy affair.`\
+https://nytimes.com/athletic/6852071/2025/12/01/titans-jaguars-punter-threaten-to-kill-logan-cooke/
+
 **Feldman's candidates to replace Mark Stoops at Kentucky, from Brent Key to Will Stein**\
 `Several sitting head coaches could be tempted by the opening in Lexington.`\
 https://nytimes.com/athletic/6853199/2025/12/01/kentucky-football-coaching-search-candidates/
@@ -33,8 +37,4 @@ https://nytimes.com/newsgraphics/card-story/best-nyc-cocktails
 **How to watch BYU vs. Texas Tech: Big 12 Championship Time, TV, streaming**\
 `Find out how to watch the BYU Cougars play the Texas Tech Red Raiders, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6853188/2025/12/01/byu-vs-texas-tech-stream-how-to-watch-dec-6/
-
-**Trump Becomes the Wild Card in Razor-Thin Honduras Election**\
-`President Trump warned that if his favored candidate didn’t win, the United States would “not be throwing good money after bad” at the country.`\
-https://nytimes.com/2025/12/01/world/americas/honduras-election-trump.html
 
