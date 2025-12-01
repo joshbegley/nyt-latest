@@ -1,3 +1,7 @@
+**How Maxi Kleber's airballed layup saved the Lakers: 'I have great empathy for him'**\
+`Maxi Kleber's unusual miss provided a good laugh for the Lakers — and was just what they needed Sunday.`\
+https://nytimes.com/athletic/6851513/2025/12/01/lakers-win-maxi-kleber-layup/
+
 **Floods Have Killed at Least 1,200 in Southern Asia. Here’s What to Know.**\
 `Hundreds more were still missing and millions have been displaced in the rain-drenched region, with Sri Lanka and Indonesia hit particularly hard.`\
 https://nytimes.com/2025/12/01/world/asia/flooding-sri-lanka-indonesia-thailand-vietnam-cyclone-rain.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6847938/2025/12/01/nba-rewind-thunder-nba-cup-coope
 **How imperfect Manchester United turned their fortunes around at Selhurst Park**\
 `Ruben Amorim's side initially failed but then succeeded at manipulating Crystal Palace's defence in Sunday's game`\
 https://nytimes.com/athletic/6851604/2025/12/01/manchester-united-tactics-crystal-palace/
-
-**Taking Steps Towards a Future Free from HIV**\
-`Taking PrEP (pre-exposure prophylaxis) before exposure can help prevent HIV.`\
-https://nytimes.com/paidpost/gilead/prevention-matters/prevention-matters.html
 

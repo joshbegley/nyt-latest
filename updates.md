@@ -1,3 +1,11 @@
+**Floods Have Killed at Least 1,200 in Southern Asia. Here’s What to Know.**\
+`Hundreds more were still missing and millions have been displaced in the rain-drenched region, with Sri Lanka and Indonesia hit particularly hard.`\
+https://nytimes.com/2025/12/01/world/asia/flooding-sri-lanka-indonesia-thailand-vietnam-cyclone-rain.html
+
+**USMNT Player Tracker: Pulisic caution, Adams' wondergoal, Balogun's Monaco beat PSG**\
+`Some unusual occurrences this week with USMNT and Milan seemingly on the same page about Pulisic. Plus, a rare (stunning) goal for Adams...`\
+https://nytimes.com/athletic/6851787/2025/12/01/usmnt-world-cup-pulisic-adams-goal/
+
 **Ukraine Is Not a War of Attrition. It Is a War of Will.**\
 `Victory will belong not to the side with more resources, but to the side with the stronger, more adaptive and unyielding will to win.`\
 https://nytimes.com/2025/12/01/opinion/ukraine-war-peace-negotiations.html
