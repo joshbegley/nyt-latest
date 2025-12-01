@@ -1,3 +1,7 @@
+**This Year, a Smaller Red-and-Green Christmas at the White House**\
+`The White House is decorated in a classic red-and-green Christmas theme. But with the East Wing reduced to rubble, there are fewer decorations this year.`\
+https://nytimes.com/2025/12/01/us/politics/christmas-trump-white-house.html
+
 **Atlanta CEO Lagerwey will not return to club following leave of absence**\
 `In October, Lagerwey and Atlanta United announced would take an indefinite leave of absence following a cancer diagnosis in July.`\
 https://nytimes.com/athletic/6852965/2025/12/01/atlanta-united-lagerwey-news-return-update/
