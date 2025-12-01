@@ -1,3 +1,11 @@
+**Food Destinations**\
+``\
+https://nytimes.com/spotlight/food-destinations
+
+**Blues' Snuggerud out long term, Toropchenko to miss weeks; Kaskimaki recalled: What it means**\
+`This is a significant blow for the Blues, who have won two straight games for just the second time this season.`\
+https://nytimes.com/athletic/6852032/2025/12/01/blues-snuggerud-toropchenko-injuries/
+
 **Appeals Court Says Alina Habba Is Unlawful U.S. Attorney**\
 `The judges wrote that the Trump Administration appeared to have become frustrated by legal and political barriers that have prevented its preferred U.S. attorneys from leading federal prosecutors’ offices.`\
 https://nytimes.com/2025/12/01/nyregion/alina-habba-unlawful.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/01/opinion/ukraine-war-peace-negotiations.html
 **Sean Combs Had a Camera Follow Him. 50 Cent Has the Footage.**\
 `The mogul’s spokesman said he was “deeply concerned” that video shot days before Mr. Combs’s 2024 arrest appears in a new documentary series produced by his rival.`\
 https://nytimes.com/2025/12/01/arts/music/sean-combs-diddy-50-cent-documentary.html
-
-**Mercedes to write to FIA over online abuse directed at Kimi Antonelli after Qatar GP**\
-`Antonelli received online abuse after a mistake allowed Lando Norris to overtake him on the final lap of the race.`\
-https://nytimes.com/athletic/6851809/2025/12/01/kimi-antonelli-mercedes-abuse-qatar-gp-f1/
-
-**'Colors don't define genders': Brazilian soccer coach apologises after homophobic remark**\
-`The 73-year-old head coach said: "I don’t want my f---ing team wearing a pink kit. It looks like a f----t team."`\
-https://nytimes.com/athletic/6851679/2025/12/01/brazil-abel-braga-homophobic/
 

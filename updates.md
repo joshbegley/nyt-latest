@@ -1,3 +1,11 @@
+**Appeals Court Says Alina Habba Is Unlawful U.S. Attorney**\
+`The judges wrote that the Trump Administration appeared to have become frustrated by legal and political barriers that have prevented its preferred U.S. attorneys from leading federal prosecutors’ offices.`\
+https://nytimes.com/2025/12/01/nyregion/alina-habba-unlawful.html
+
+**Turns out, an airball can be a catalyst for a Lakers win**\
+`Maxi Kleber's unusual miss provided a good laugh for the Lakers — and was just what they needed Sunday.`\
+https://nytimes.com/athletic/6851513/2025/12/01/lakers-win-maxi-kleber-layup/
+
 **Fantasy trends and hidden gems: Dawson Mercer, Tyler Seguin on the rise**\
 `As the dust settles on a chaotic holiday week schedule, Shayna Goldman looks at the top players to target on the fantasy hockey waiver wire.`\
 https://nytimes.com/athletic/6850439/2025/12/01/fantasy-hockey-sleepers-trends-hidden-gems-week9/
