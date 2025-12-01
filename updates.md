@@ -1,3 +1,7 @@
+**Titans player says Jaguars punter Logan Cooke said he 'would kill' him**\
+`The AFC South rivals combined for 23 accepted penalties totaling 184 yards in Sunday's chippy affair.`\
+https://nytimes.com/athletic/6852071/2025/12/01/titans-jaguars-punter-threaten-to-kill-logan-cooke/
+
 **College Football Playoff 2025 projections: How many teams still have a chance?**\
 `Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
 https://nytimes.com/athletic/6560541/2025/12/01/college-football-playoff-bracket-projections-odds/

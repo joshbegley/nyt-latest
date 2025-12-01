@@ -1,3 +1,11 @@
+**Building a Culinary Empire From Scratch**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/nara-smith-tiktok-tradwife
+
+**Holiday gift guide 2025: Books, apparel, sports card recommendations and more**\
+`From books and apparel to sports cards and art, we have something here for all ages.`\
+https://nytimes.com/athletic/6834129/2025/12/01/sports-fan-holiday-gift-guide-books-apparel-kids/
+
 **Titans player says Jaguars punter Logan Cooke said he 'would kill' him**\
 `The AFC South rivals combined for 23 accepted penalties totaling 184 yards in Sunday's chippy affair.`\
 https://nytimes.com/athletic/6852071/2025/12/01/titans-jaguars-punter-threaten-to-kill-logan-cooke/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6560541/2025/12/01/college-football-playoff-bracket
 **Kalani Sitake sidesteps Penn State questions as BYU states Playoff case**\
 `"I'm all about the Big 12 championship and keeping our team focused on that. So I'm going to avoid all the distractions," Sitake said.`\
 https://nytimes.com/athletic/6852958/2025/12/01/kalani-sitake-penn-state-byu-football-playoff/
-
-**gws-best-nyc-cocktails**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/best-nyc-cocktails
-
-**How to watch BYU vs. Texas Tech: Big 12 Championship Time, TV, streaming**\
-`Find out how to watch the BYU Cougars play the Texas Tech Red Raiders, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6853188/2025/12/01/byu-vs-texas-tech-stream-how-to-watch-dec-6/
 
