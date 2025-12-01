@@ -1,3 +1,11 @@
+**Christian Benteke announces he's leaving D.C. United**\
+`Benteke, who won the 2024 MLS Golden Boot, is set to depart D.C. United after three seasons with the club`\
+https://nytimes.com/athletic/6853020/2025/12/01/christian-benteke-leaving-dc-united-mls/
+
+**Welcome to Cookie Week!**\
+`New York Times Cooking’s annual tradition — in which we share our finest holiday cookie recipes and videos — is here, and I’m thrilled to share mine!`\
+https://nytimes.com/2025/12/01/dining/welcome-to-cookie-week.html
+
 **This Year, a Smaller Red-and-Green Christmas at the White House**\
 `The White House is decorated in a classic red-and-green Christmas theme. But with the East Wing reduced to rubble, there are fewer decorations this year.`\
 https://nytimes.com/2025/12/01/us/politics/christmas-trump-white-house.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6852863/2025/12/01/lane-kiffin-lsu-contract-details
 **Newcastle's Wissa left out of DR Congo AFCON squad**\
 `Wissa, who joined Newcastle from Brentford in the summer, is yet to make his debut for his new side due to a knee injury.`\
 https://nytimes.com/athletic/6852856/2025/12/01/newcastle-news-dr-congo-wissa-afcon/
-
-**Nebraska fires DC John Butler after sluggish finish to season**\
-`The coaching change comes on the heels of two blowout defeats to finish the regular season.`\
-https://nytimes.com/athletic/6852857/2025/12/01/nebraska-fires-john-butler/
-
-**The Aftermath of the D.C. Shooting**\
-`Readers discuss the shooting of two National Guard members in Washington. Also: Being Latino in the U.S.; wonderful mentors.`\
-https://nytimes.com/2025/12/01/opinion/national-guard-dc-shooting.html
 
