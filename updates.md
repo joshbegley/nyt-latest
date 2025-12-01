@@ -1,3 +1,11 @@
+**Vikings' offensive disaster hits new low in shutout vs. Seahawks: 'It’s just bad ball'**\
+`Rookie QB Max Brosmer threw four interceptions in his starting debut, and the Vikings offense struggled to move the ball all day.`\
+https://nytimes.com/athletic/6851035/2025/11/30/vikings-seahawks-offense-max-brosmer-justin-jefferson/
+
+**The Chargers earned a necessary win over the Raiders. Now the real test awaits.**\
+`Beating a bad Raiders team was important, but the Chargers face a daunting schedule down the stretch.`\
+https://nytimes.com/athletic/6851148/2025/11/30/chargers-win-raiders-playoffs-odds/
+
 **Bills defense finally has start-to-finish dominant game: "We want to be a nasty defense"**\
 `The unit has been steadily getting better for a few weeks.`\
 https://nytimes.com/athletic/6851056/2025/11/30/bills-defense-keon-coleman-return/
