@@ -1,3 +1,7 @@
+**Vikings-Seahawks takeaways: Seattle defense suffocates Minnesota in shutout**\
+`The Seahawks exploited Vikings undrafted rookie QB Max Brosmer and dominated Minnesota for their first shutout victory since 2015.`\
+https://nytimes.com/athletic/6850400/2025/11/30/vikings-seahawks-score-result-takeaways-nfl-week-13/
+
 **Ex-NU coach Pat Fitzgerald returns to CFB as Michigan State head coach**\
 `NU settled a wrongful termination lawsuit with Fitzgerald in August, after firing him in 2023 over hazing allegations in the program.`\
 https://nytimes.com/athletic/6850235/2025/11/30/michigan-state-head-coach-hiring-pat-fitzgerald-northwestern/

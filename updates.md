@@ -1,3 +1,11 @@
+**Ex-NU coach Pat Fitzgerald returns to CFB as Michigan State head coach**\
+`NU settled a wrongful termination lawsuit with Fitzgerald in August, after firing him in 2023 over hazing allegations in the program.`\
+https://nytimes.com/athletic/6850235/2025/11/30/michigan-state-head-coach-hiring-pat-fitzgerald-northwestern/
+
+**Myles Garrett calls out 49ers' Jauan Jennings for 'demeaning' comments**\
+`Garrett and Browns defensive lineman Shelby Harris said Jennings made demeaning comments after Maliek Collins suffered an injury.`\
+https://nytimes.com/athletic/6850364/2025/11/30/jauan-jennings-trash-talk-reaction-collins-harris-garrett/
+
 **Feldman's candidates to replace Jon Sumrall at Tulane: Keep an eye on top coordinators**\
 `Several big-time Power 4 coordinators could be in contention for the Tulane job, one of the better Group of 5 openings. `\
 https://nytimes.com/athletic/6850582/2025/11/30/tulane-coach-candidates-blake-baker-charles-huff/
