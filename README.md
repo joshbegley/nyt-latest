@@ -1,40 +1,40 @@
-**Arsenal had an intense week – and they played like it**\
-`Fatigue was as much Arsenal’s enemy as Chelsea at Stamford Bridge on Sunday. They need to recharge, but the games keep on coming.`\
-https://nytimes.com/athletic/6850163/2025/12/01/arsenal-fatigue-chelsea-premier-league/
+**Manchester City must break the bad habit of losing leads if they are to stay in title hunt**\
+`Pep Guardiola's side used to be ruthless after taking the lead in games but this season has seen them too frequently pegged back`\
+https://nytimes.com/athletic/6847564/2025/12/01/manchester-city-must-break-the-bad-habit-of-losing-leads-to-stay-in-title-hunt/
 
-**Watching Florian Wirtz and thinking of Robert Pires**\
-`Wirtz will need to be effective in sterner tests than the one provided by West Ham. Like Pires, Wirtz will need time and space and faith`\
-https://nytimes.com/athletic/6849876/2025/12/01/florian-wirtz-liverpool-pires/
+**Everton will miss Idrissa Gueye - his absence will be no laughing matter**\
+`Everton clearly missed the midfielder as they fell to a 4-1 loss to Newcastle United on Saturday`\
+https://nytimes.com/athletic/6848006/2025/12/01/everton-idrissa-gueye-red-card-afcon/
 
-**Manchester United’s unlikely second-half revival was what Ruben Amorim has been missing**\
-`Ruben Amorim's side had a dismal second-half record coming into this game, so perhaps this victory over Palace points to better things`\
-https://nytimes.com/athletic/6849728/2025/12/01/man-united-ruben-amorim-comeback/
+**How Newcastle's Malick Thiaw became one of the best centre-backs in the Premier League**\
+`The Germany defender, who was signed this summer from Milan, has quickly established himself as a leader in Eddie Howe's team`\
+https://nytimes.com/athletic/6848803/2025/12/01/newcastle-malick-thiaw-premier-league/
 
-**Fantasy football Week 13 takeaways: Carolina committee concerns; Jets' AD Mitchell flashes**\
-`Michael Salfino shares his observations for Week 13, including the return of a committee approach in the Carolina backfield.`\
-https://nytimes.com/athletic/6850742/2025/12/01/fantasy-football-week-13-takeaways-carolina-committee-concerns-jets-ad-mitchell-flashes/
+**How Sunderland turned the Stadium of Light into a fortress**\
+`Nearly four months into their Premier League return, Sunderland are unbeaten at home and making opponents feel foolish`\
+https://nytimes.com/athletic/6848061/2025/12/01/sunderland-bournemouth-home-form/
 
-**Unfashionable? Lacking glamour? Why Brentford vs Burnley matters to millions**\
-`Brentford versus Burnley means something to a substantial global audience`\
-https://nytimes.com/athletic/6848884/2025/12/01/brentford-burnley-premier-league-glamour/
+**Palace, squad depth, and a window into their immediate future without Sarr**\
+`Palace have no direct replacement for Sarr. Neither do they have anyone to call upon who Glasner trusts enough to offer something different`\
+https://nytimes.com/athletic/6843944/2025/12/01/crystal-palace-manchester-united-premier-league-ismaila-sarr/
 
-**Can Wolves avoid officially becoming the worst team in Premier League history?**\
-`Two points after 13 games is four fewer than Derby had in 2007-08 when they finished the season with just 11 on the board`\
-https://nytimes.com/athletic/6849589/2025/12/01/wolves-premier-league-worst-team/
+**The three factors that have helped Brighton shake off the away-day blues**\
+`Fabian Hurzeler's side have struggled on the road this season but victory over Nottingham Forest is a blueprint for future success`\
+https://nytimes.com/athletic/6844349/2025/12/01/brighton-hurzeler-away-form/
 
-**An interview with Konstantinos Karetsas, the winger adored by Europe's largest clubs**\
-`Karetsas spoke to The Athletic for the first in-depth interview of his career`\
-https://nytimes.com/athletic/6833406/2025/12/01/konstantinos-karetsas-interview-transfer/
+**Brilliant Emery deserves enormous credit for turning Aston Villa's season around**\
+`The Spaniard's faith in his own methods and, in turn, his players' faith in him, kickstarted the club's campaign following such a poor start`\
+https://nytimes.com/athletic/6839437/2025/12/01/aston-villa-premier-league-unai-emery/
 
-**No Corrections: Dec. 1, 2025**\
-`No corrections appeared in print on Monday, Dec. 1, 2025.`\
-https://nytimes.com/2025/12/01/pageoneplus/no-corrections-dec-1-2025.html
+**Paqueta's temper and ill-discipline are the last things West Ham need in a relegation battle**\
+`The Brazilian's brainless red card against Liverpool and subsequent rant on social media will only dampen the mood at the club`\
+https://nytimes.com/athletic/6848981/2025/12/01/paqueta-west-ham-yellow-red-premier-league-relegation/
 
-**For These Businesses, U.S. Tariffs Are a Price Worth Paying**\
-`Some British business owners are determined to keep their access to American consumers, but they are facing trade-offs.`\
-https://nytimes.com/2025/12/01/business/uk-small-business-tariffs-trump.html
+**The Briefing: Who were winners from Chelsea-Arsenal? Was Slot brave on Salah? Frank gone too far?**\
+`Discussing the major talking points from the Premier League weekend - from the title race to managers making bold calls`\
+https://nytimes.com/athletic/6849984/2025/12/01/arsenal-chelsea-slot-tottenham/
 
-**Quote of the Day: Ukrainian Civilians Captured by Russia Face Special Terrors**\
-`Quotation of the Day for Monday, December 1, 2025.`\
-https://nytimes.com/2025/12/01/pageoneplus/quote-of-the-day-ukrainian-civilians-captured-by-russia-face-special-terrors.html
+**This was the most 'Chelsea' Chelsea have been under Enzo Maresca**\
+`This was the day when Maresca finally felt like a proper Chelsea manager.`\
+https://nytimes.com/athletic/6850345/2025/12/01/chelsea-enzo-maresca-arsenal/
 
