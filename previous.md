@@ -1,3 +1,7 @@
+**Giants not inclined to spend what it takes to sign Tatsuya Imai: Sources**\
+`A detailed look at why the Giants aren't looking to sign the 27-year-old Japanese righty or any of the other top starters on the market.`\
+https://nytimes.com/athletic/6852286/2025/12/01/sf-giants-tatsuya-imai-payroll/
+
 **Read the ruling**\
 `A federal appeals court ruled that Alina Habba has been serving unlawfully as U.S. attorney in New Jersey.`\
 https://nytimes.com/interactive/2025/12/01/us/habba-appeal.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/the-athletic/100000010556849/treylon-burks-makes-jaw-d
 **Tulane AD: 'Trust' and 'transparency' convinced him to let Sumrall finish season**\
 `Tulane athletic director David Harris said he based his decision "squarely on what's in the best interests" of the Green Wave players.`\
 https://nytimes.com/athletic/6852002/2025/12/01/jon-sumrall-tulane-athletic-director-trust/
-
-**Heisman Trophy odds are nearly dead even ahead of showdown in Indy**\
-`Fernando Mendoza and Julian Sayin are the clear favorites to win the Heisman Trophy ahead of a showdown in the Big Ten Championship Game.`\
-https://nytimes.com/athletic/6850014/2025/12/01/2025-heisman-trophy-odds-mendoza-sayin/
 

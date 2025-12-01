@@ -1,3 +1,7 @@
+**gws-typewriter-repair-seattle-bremerton**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/typewriter-repair-seattle-bremerton
+
 **Giants not inclined to spend what it takes to sign Tatsuya Imai: Sources**\
 `A detailed look at why the Giants aren't looking to sign the 27-year-old Japanese righty or any of the other top starters on the market.`\
 https://nytimes.com/athletic/6852286/2025/12/01/sf-giants-tatsuya-imai-payroll/
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/asia/100000010556512/hong-kong-towers-sheathed-i
 **Treylon Burks Makes Jaw-Dropping Catch in Washington’s Overtime Loss to Denver**\
 `Washington Commanders receiver Treylon Burks’ one-handed grab on Sunday night might be the contender for catch of the year.`\
 https://nytimes.com/video/the-athletic/100000010556849/treylon-burks-makes-jaw-dropping-catch-in-washingtons-overtime-loss-to-denver.html
-
-**Tulane AD: 'Trust' and 'transparency' convinced him to let Sumrall finish season**\
-`Tulane athletic director David Harris said he based his decision "squarely on what's in the best interests" of the Green Wave players.`\
-https://nytimes.com/athletic/6852002/2025/12/01/jon-sumrall-tulane-athletic-director-trust/
 
