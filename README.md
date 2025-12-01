@@ -1,3 +1,7 @@
+**Chickpea, Spinach and Feta Pie**\
+`Bringing together inspiration from two great Greek pies, spanakopita (spinach and feta) and prasopita (leek), this one-skillet dish also incorporates chickpeas for extra heartiness.`\
+https://nytimes.com/video/dining/100000010522937/chickpea-spinach-and-feta-pie.html
+
 **Lane Kiffin's latest leap shows why the college player revolution was needed**\
 `Coaches have always done whatever they wanted for the sake of career enhancement. Don’t resent players for being free to do the same.`\
 https://nytimes.com/athletic/6849917/2025/12/01/lane-kiffin-lsu-ole-miss-sec-college-player/
@@ -33,10 +37,4 @@ https://nytimes.com/2025/12/01/learning/word-of-the-day-halcyon.html
 **Sri Lanka Declares ‘Largest’ Disaster as Cyclone Kills 355**\
 `The president called the nationwide flooding the largest and most challenging natural disaster in the island’s history, as emergency rescue efforts continue.`\
 https://nytimes.com/2025/12/01/world/asia/sri-lanka-floods-cyclone.html
-
-**Submit a question for Stewart Mandel's College Football Mailbag**\
-`<p>A season-long CFP race and nearly season-long coaching carousel converged all at once this week. My guess is you have a lot of questions.</p>
-<p>Leave &#8217;em here. Please include your city.</p>
-`\
-https://nytimes.com/athletic/6851432/2025/12/01/submit-a-question-for-stewart-mandels-college-football-mailbag-325/
 
