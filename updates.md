@@ -1,3 +1,7 @@
+**MMLR: Hope for Auston Matthews, concern for Morgan Rielly**\
+`Auston Matthews showed a flash of his old self against Pittsburgh. The concern is that it was just that — a flash.`\
+https://nytimes.com/athletic/6849470/2025/12/01/auston-matthews-maple-leafs-3/
+
 **The Knicks have entered the chat at the top of the East**\
 `New York is figuring things while still winning. After a bumpy start to season, the Knicks are where we thought they would be.`\
 https://nytimes.com/athletic/6851005/2025/12/01/knicks-standings-record/
