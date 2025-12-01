@@ -1,3 +1,7 @@
+**Millions Under Winter Storm Watch as Potential Nor’easter Approaches**\
+`Forecasters expected the storm to track up the Eastern Seaboard Monday night into Tuesday, leaving as much as a foot of snow in parts of the Northeast.`\
+https://nytimes.com/2025/12/01/us/snowstorm-noreaster-northeast-new-england.html
+
 **Honduras Votes in Presidential Election**\
 `Hondurans cast their ballots in Sunday’s presidential elections. The race was tense even before President Trump got involved, endorsing one of the right-wing candidates.`\
 https://nytimes.com/video/world/americas/100000010556062/honduras-election.html
