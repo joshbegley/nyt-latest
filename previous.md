@@ -1,40 +1,40 @@
-**TAFC: MLS Cup final – Muller vs Messi... and Suarez? Plus: Ceferin may miss World Cup draw**\
-`Today in TAFC: Will Suarez play in MLS Cup final? Plus: Arsenal miss chance to extend lead in EPL, Ceferin might not attend World Cup draw`\
-https://nytimes.com/athletic/6851602/2025/12/01/mls-cup-messi-muller-ceferin-world-cup-draw/
+**Hong Kong Contractors Used Unsafe Netting at Fire Site, Officials Say**\
+`Investigators say contractors wrapped the buildings in substandard scaffolding netting and then sought to hide it from inspectors. The toll from the fire rose to 151.`\
+https://nytimes.com/2025/12/01/world/asia/hong-kong-fire.html
 
-**The Knicks have entered the chat at the top of the East**\
-`New York is figuring things while still winning. After a bumpy start to season, the Knicks are where we thought they would be.`\
-https://nytimes.com/athletic/6851005/2025/12/01/knicks-standings-record/
+**Your Drone Questions**\
+`We asked readers of The Morning for their questions about drones. Today, Times journalists answer.`\
+https://nytimes.com/2025/12/01/briefing/your-drone-questions.html
 
-**Scouting 2026 NBA Draft’s top prospects in Las Vegas and other big holiday tournaments**\
-`It's good time to catch up on the state of the draft and take a look at which players stood out in Sin City this past week.`\
-https://nytimes.com/athletic/6845427/2025/12/01/nba-draft-2026-scouting-report-cam-boozer/
+**When Luca Guadagnino Brought Brazilian Modernism to Milan**\
+`High above the cloistered, elegant city, the director turned a friend’s apartment into a moody and tropical oasis.`\
+https://nytimes.com/2025/12/01/t-magazine/luca-guadagnino-milan-interior-design.html
 
-**MMLR: Hope for Auston Matthews, concern for Morgan Rielly**\
-`Auston Matthews showed a flash of his old self against Pittsburgh. The concern is that it was just that — a flash.`\
-https://nytimes.com/athletic/6849470/2025/12/01/auston-matthews-maple-leafs-3/
+**The Prettiest Holiday Shoes Come With Bows on Top**\
+`Fancy ribbons add charm to these party accessories.`\
+https://nytimes.com/2025/12/01/t-magazine/bow-shoes.html
 
-**How Brian Schottenheimer has led Cowboys on 3-game winning streak**\
-`A lot has happened in the three months since the season started and the Cowboys are playing their best football now.`\
-https://nytimes.com/athletic/6850704/2025/12/01/brian-schottenheimer-dallas-cowboys/
+**Aaron Rodgers reminds everyone that his toughness equaled his greatness**\
+`There was no greatness to be found in Pittsburgh's loss to Buffalo. All a diminished Rodgers could do was play through the pain.`\
+https://nytimes.com/athletic/6851072/2025/12/01/steelers-bills-aaron-rodgers-toughness/
 
-**Women's college basketball power rankings: Texas rises behind Rori Harmon**\
-`Sabreena Merchant breaks down the hoops landscape: Iowa's defense stands out. Maryland's depth is legit. `\
-https://nytimes.com/athletic/6851223/2025/12/01/womens-college-basketball-power-rankings-texas-rori-harmon/
+**Bo Nix keeps finding late magic and it's fueling Broncos' Super Bowl belief**\
+`The second-year quarterback led his sixth game-winning drive in the fourth quarter or overtime Sunday, the most in the NFL.`\
+https://nytimes.com/athletic/6851472/2025/12/01/bo-nix-broncos-defeat-commanders-overtime/
 
-**What we're hearing about the MLB offseason: The next possible free-agent closer to sign and more**\
-`Plus details on the potential trade markets for the Astros' Jake Meyers and Rays' Brandon Lowe.`\
-https://nytimes.com/athletic/6850835/2025/12/01/mlb-offseason-free-agency-updates/
+**Message Board Monday: Auburn, Arkansas, Florida fans greet (or lament) their new coaches**\
+`How are fans feeling about their new coach? Let's take a peek at the boards. `\
+https://nytimes.com/athletic/6850523/2025/12/01/auburn-alex-golesh-florida-jon-sumrall-arkansas-ryan-silverfield/
 
-**Lane Kiffin to LSU, explained: Why is a coach leaving a College Football Playoff team?**\
-`You're not alone if you think it doesn't make sense. But this is the world of college football, and we can explain.`\
-https://nytimes.com/athletic/6850821/2025/12/01/lane-kiffin-lsu-ole-miss-faq/
+**How Cotton Candy Won Over the Adults**\
+`Long associated with childhood and county fairs, the food has found its place among a new generation of experimental chefs.`\
+https://nytimes.com/2025/12/01/t-magazine/cotton-candy-floss-chefs.html
 
-**Yankees mailbag: Is Fernando Tatis Jr. a trade possibility? Anthony Volpe's future**\
-`With the Winter Meetings approaching, the Yankees' offseason plan could become more clear soon. `\
-https://nytimes.com/athletic/6850431/2025/12/01/tatis-yankees/
+**2025 tennis season mailbag: Ask our writers about the storylines you want to remember this year**\
+`The players, matches, and stories you want to know more about come the end of the season`\
+https://nytimes.com/athletic/6845072/2025/12/01/tennis-2025-season-atp-wta/
 
-**The Pulse: Lane Kiffin’s place in history**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6851004/2025/12/01/lane-kiffin-lsu-ole-miss-coaching-carousel-the-pulse/
+**Blue Jackets Monday Gathering: Three veteran NHL coaches on how to stop losing leads**\
+`Hopefully December will bring new fortune for the Blue Jackets late in games, but until then, three coaches offer their advice.`\
+https://nytimes.com/athletic/6847449/2025/12/01/columbus-blue-jackets-losing-leads/
 
