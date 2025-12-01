@@ -1,3 +1,7 @@
+**Why Packers DC Jeff Hafley is teaching Micah Parsons about Mariano Rivera**\
+`Green Bay's sack master has something in common with baseball's all-time saves leader.`\
+https://nytimes.com/athletic/6848435/2025/12/01/micah-parsons-green-bay-packers/
+
 **Inside Barcelona: La Liga leaders again — so why was Hansi Flick so upset?**\
 `Hansi Flick's side are top of La Liga again — but concerns over performances are not going away`\
 https://nytimes.com/athletic/6851707/2025/12/01/barcelona-flick-news-la-liga-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/01/t-magazine/bow-shoes.html
 **Aaron Rodgers reminds everyone that his toughness equaled his greatness**\
 `There was no greatness to be found in Pittsburgh's loss to Buffalo. All a diminished Rodgers could do was play through the pain.`\
 https://nytimes.com/athletic/6851072/2025/12/01/steelers-bills-aaron-rodgers-toughness/
-
-**Bo Nix keeps finding late magic and it's fueling Broncos' Super Bowl belief**\
-`The second-year quarterback led his sixth game-winning drive in the fourth quarter or overtime Sunday, the most in the NFL.`\
-https://nytimes.com/athletic/6851472/2025/12/01/bo-nix-broncos-defeat-commanders-overtime/
 

@@ -1,3 +1,7 @@
+**Why Packers DC Jeff Hafley is teaching Micah Parsons about Mariano Rivera**\
+`Green Bay's sack master has something in common with baseball's all-time saves leader.`\
+https://nytimes.com/athletic/6848435/2025/12/01/micah-parsons-green-bay-packers/
+
 **Inside Barcelona: La Liga leaders again — so why was Hansi Flick so upset?**\
 `Hansi Flick's side are top of La Liga again — but concerns over performances are not going away`\
 https://nytimes.com/athletic/6851707/2025/12/01/barcelona-flick-news-la-liga-analysis/
