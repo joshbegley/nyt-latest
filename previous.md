@@ -1,3 +1,11 @@
+**Ukraine Is Not a War of Attrition. It Is a War of Will.**\
+`Victory will belong not to the side with more resources, but to the side with the stronger, more adaptive and unyielding will to win.`\
+https://nytimes.com/2025/12/01/opinion/ukraine-war-peace-negotiations.html
+
+**Sean Combs Had a Camera Follow Him. 50 Cent Has the Footage.**\
+`The mogul’s spokesman said he was “deeply concerned” that video shot days before Mr. Combs’s 2024 arrest appears in a new documentary series produced by his rival.`\
+https://nytimes.com/2025/12/01/arts/music/sean-combs-diddy-50-cent-documentary.html
+
 **Mercedes to write to FIA over online abuse directed at Kimi Antonelli after Qatar GP**\
 `Antonelli received online abuse after a mistake allowed Lando Norris to overtake him on the final lap of the race.`\
 https://nytimes.com/athletic/6851809/2025/12/01/kimi-antonelli-mercedes-abuse-qatar-gp-f1/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6850185/2025/12/01/college-football-2026-brazil-nc-
 **Trump Administration Live Updates: Zelensky Turns to Europe as U.S. Pushes to End Ukraine War**\
 ``\
 https://nytimes.com/live/2025/12/01/us/trump-news
-
-**Max Verstappen nears an improbable F1 comeback: 'I don't think about losing'**\
-`Max Verstappen hasn't missed a beat in two months, and now he's on the verge of something very special`\
-https://nytimes.com/athletic/6850596/2025/12/01/max-verstappen-f1-championship-qatar/
-
-**Markets Defy the White House**\
-`Volatility has returned to stocks and crypto trading, despite assurances from a top administration official, as investors brace for more data on consumers.`\
-https://nytimes.com/2025/12/01/business/dealbook/stocks-crypto-consumer-data.html
 

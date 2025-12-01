@@ -1,3 +1,11 @@
+**Ukraine Is Not a War of Attrition. It Is a War of Will.**\
+`Victory will belong not to the side with more resources, but to the side with the stronger, more adaptive and unyielding will to win.`\
+https://nytimes.com/2025/12/01/opinion/ukraine-war-peace-negotiations.html
+
+**Sean Combs Had a Camera Follow Him. 50 Cent Has the Footage.**\
+`The mogul’s spokesman said he was “deeply concerned” that video shot days before Mr. Combs’s 2024 arrest appears in a new documentary series produced by his rival.`\
+https://nytimes.com/2025/12/01/arts/music/sean-combs-diddy-50-cent-documentary.html
+
 **Mercedes to write to FIA over online abuse directed at Kimi Antonelli after Qatar GP**\
 `Antonelli received online abuse after a mistake allowed Lando Norris to overtake him on the final lap of the race.`\
 https://nytimes.com/athletic/6851809/2025/12/01/kimi-antonelli-mercedes-abuse-qatar-gp-f1/
