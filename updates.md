@@ -1,3 +1,7 @@
+**Shai Gilgeous-Alexander continues etching his name alongside NBA royalty**\
+`On a point-by-point basis, Shai Gilgeous-Alexander places himself alongside NBA greats, including the late, great Wilt Chamberlain.`\
+https://nytimes.com/athletic/6850989/2025/11/30/shai-gilgeous-alexander-stats-season-okc/
+
 **Vikings' offensive disaster hits new low in shutout vs. Seahawks: 'It’s just bad ball'**\
 `Rookie QB Max Brosmer threw four interceptions in his starting debut, and the Vikings offense struggled to move the ball all day.`\
 https://nytimes.com/athletic/6851035/2025/11/30/vikings-seahawks-offense-max-brosmer-justin-jefferson/
