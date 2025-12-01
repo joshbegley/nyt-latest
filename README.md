@@ -1,3 +1,7 @@
+**Kalani Sitake sidesteps Penn State questions as BYU states Playoff case**\
+`"I'm all about the Big 12 championship and keeping our team focused on that. So I'm going to avoid all the distractions," Sitake said.`\
+https://nytimes.com/athletic/6852958/2025/12/01/kalani-sitake-penn-state-byu-football-playoff/
+
 **gws-best-nyc-cocktails**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/best-nyc-cocktails
@@ -6,8 +10,8 @@ https://nytimes.com/newsgraphics/card-story/best-nyc-cocktails
 `Find out how to watch the BYU Cougars play the Texas Tech Red Raiders, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6853188/2025/12/01/byu-vs-texas-tech-stream-how-to-watch-dec-6/
 
-**In Razor-Thin Honduras Election, Trump Becomes the Wild Card**\
-`Just 500 votes separate two candidates to be Honduras’s next president. President Trump endorsed one of them just days before the vote.`\
+**Trump Becomes the Wild Card in Razor-Thin Honduras Election**\
+`President Trump warned that if his favored candidate didn’t win, the United States would “not be throwing good money after bad” to the country.`\
 https://nytimes.com/2025/12/01/world/americas/honduras-election-trump.html
 
 **The Secret Life of a Ski Resort**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6853131/2025/12/01/suns-vs-lakers-stream-how-to-wat
 **How to watch Mavericks vs. Nuggets: Time, TV, streaming**\
 `Find out how to watch the Dallas Mavericks play the Denver Nuggets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6853128/2025/12/01/mavericks-vs-nuggets-stream-how-to-watch-dec-1/
-
-**How to watch Ducks vs. Blues: Time, TV, streaming**\
-`Find out how to watch the Anaheim Ducks play the St. Louis Blues, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6853126/2025/12/01/ducks-vs-blues-stream-how-to-watch-dec-1/
 

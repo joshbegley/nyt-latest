@@ -1,3 +1,19 @@
+**gws-best-nyc-cocktails**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/best-nyc-cocktails
+
+**How to watch BYU vs. Texas Tech: Big 12 Championship Time, TV, streaming**\
+`Find out how to watch the BYU Cougars play the Texas Tech Red Raiders, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6853188/2025/12/01/byu-vs-texas-tech-stream-how-to-watch-dec-6/
+
+**In Razor-Thin Honduras Election, Trump Becomes the Wild Card**\
+`Just 500 votes separate two candidates to be Honduras’s next president. President Trump endorsed one of them just days before the vote.`\
+https://nytimes.com/2025/12/01/world/americas/honduras-election-trump.html
+
+**The Secret Life of a Ski Resort**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/snowbird-ski-resort-utah-mountain-preparations
+
 **How to watch Bulls vs. Magic: Time, TV, streaming**\
 `Find out how to watch the Chicago Bulls play the Orlando Magic, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6853139/2025/12/01/bulls-vs-magic-stream-how-to-watch-dec-1/
