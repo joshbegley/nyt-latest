@@ -1,3 +1,11 @@
+**Weekly Student News Quiz: High-Rise Fire, Word of the Year, 'Stranger Things'**\
+`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
+https://nytimes.com/interactive/2025/12/01/learning/01StudentNewsQuiz.html
+
+**Frank 'very confident' Spurs will give him time to improve performances**\
+`Spurs are 12th in the Premier League table but Frank believes he has the support of the club’s majority owners, the Lewis family.`\
+https://nytimes.com/athletic/6852195/2025/12/01/thomas-frank-tottenham-future/
+
 **Golden Knights goalie Carter Hart eligible to debut Tuesday vs. Blackhawks**\
 `Hart's suspension ended on Monday and soon he will play his first NHL game in almost two years.`\
 https://nytimes.com/athletic/6853395/2025/12/01/carter-hart-nhl-return-golden-knights/
