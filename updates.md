@@ -1,3 +1,15 @@
+**AP men's basketball Top 25: Purdue No. 1, Michigan vaults to No. 3, USC jumps into poll**\
+`Purdue retained its spot at No. 1, receiving 40 of 61 first-place votes.`\
+https://nytimes.com/athletic/6852709/2025/12/01/ap-mens-basketball-top-25-michigan-usc-purdue/
+
+**The Best Movies and TV Shows Coming to Disney+, Amazon, HBO Max, Peacock and More in December**\
+`“F1: The Movie,” “It’s Never Over, Jeff Buckley” and “The Life of Chuck” arrive, and “Fallout” and “Percy Jackson” return.`\
+https://nytimes.com/2025/12/01/arts/television/movies-tv-shows-december-2025-streaming.html
+
+**2026 Giro d’Italia route analysis – Women tackle Finestre for first time, men head from Bulgaria to Rome**\
+`Analysis of the 2026 routes which will once again feature some of professional cycling's most storied roads`\
+https://nytimes.com/athletic/6852468/2025/12/01/2026-giro-ditalia-route-analysis/
+
 **2026 Giro d’Italia route analysis – Women tackle Finestre for first time, men head from Bulgaria to Rome**\
 `Analysis of the 2026 routes which will once again feature some of professional cycling's most storied roads`\
 https://nytimes.com/athletic/6852468/2025/12/01/2026-giro-ditalia-route-analysis-women-tackle-finestre-for-first-time-men-head-from-bulgaria-to-rome/
