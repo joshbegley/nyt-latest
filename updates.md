@@ -1,3 +1,7 @@
+**Scoop City: Risers and fallers after Week 13**\
+`The Bears, Panthers and Florida teams are trending up, while the Steelers, Eagles and Chiefs fall`\
+https://nytimes.com/athletic/6853018/2025/12/01/week-13-nfl-trending-risers-fallers-scoop-city-bears/
+
 **Christian Benteke announces he's leaving D.C. United**\
 `Benteke, who won the 2024 MLS Golden Boot, is set to depart D.C. United after three seasons with the club`\
 https://nytimes.com/athletic/6853020/2025/12/01/christian-benteke-leaving-dc-united-mls/
