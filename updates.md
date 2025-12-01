@@ -1,3 +1,11 @@
+**Food Destinations**\
+``\
+https://nytimes.com/spotlight/food-destinations
+
+**Blues' Snuggerud out long term, Toropchenko to miss weeks; Kaskimaki recalled: What it means**\
+`This is a significant blow for the Blues, who have won two straight games for just the second time this season.`\
+https://nytimes.com/athletic/6852032/2025/12/01/blues-snuggerud-toropchenko-injuries/
+
 **Appeals Court Says Alina Habba Is Unlawful U.S. Attorney**\
 `The judges wrote that the Trump Administration appeared to have become frustrated by legal and political barriers that have prevented its preferred U.S. attorneys from leading federal prosecutors’ offices.`\
 https://nytimes.com/2025/12/01/nyregion/alina-habba-unlawful.html
