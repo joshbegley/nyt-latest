@@ -1,3 +1,19 @@
+**NFL Week 14 odds, spreads: Can these preseason favorites right the ship?**\
+`Preseason favorites are on the ropes. Who has the best shot in Week 14 of extended their postseason hopes?`\
+https://nytimes.com/athletic/6852085/2025/12/01/nfl-week-14-odds-spreads-chiefs-ravens-lions/
+
+**Simon Cowell Is Sorry, Softer and Grieving Liam Payne**\
+`The music mogul has mellowed as he thinks about his legacy. He spoke with Lulu Garcia-Navarro.`\
+https://nytimes.com/video/podcasts/100000010556664/simon-cowell-is-sorry-softer-and-grieving-liam-payne.html
+
+**U.S. Pushes U.K. to Spend More on Medicines in Deal to Avoid Tariffs**\
+`President Trump has complained that wealthy countries like Britain pay too little for drugs, leading America to bear much of the burden of the costs of medicines.`\
+https://nytimes.com/2025/12/01/business/us-uk-pharma-tariffs-prices.html
+
+**President Trump Says He Will Release His M.R.I. Results**\
+`President Trump said he would release the results of a recent magnetic resonance imaging scan, which he called “perfect.” When asked what part of the body was scanned, Mr. Trump replied that he didn’t know.`\
+https://nytimes.com/video/us/politics/100000010556754/trump-mri-test-results.html
+
 **How to watch Villanova vs. West Virginia women's basketball: Time, TV, streaming**\
 `Find out how to watch the Villanova Wildcats play the West Virginia Mountaineers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6852368/2025/12/01/villanova-vs-west-virginia-stream-how-to-watch-dec-1/
