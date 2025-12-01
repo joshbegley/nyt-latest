@@ -1,3 +1,7 @@
+**Onana among several surprise omissions from Cameroon AFCON squad, manager also sacked**\
+`Goalkeeper Andre Onana, who is on loan at Trabzonspor from Manchester United, has been left out of Cameroon’s Africa Cup of Nations (AFCON) squad.`\
+https://nytimes.com/athletic/6853317/2025/12/01/onana-cameroon-squad-news-etoo-brys-aboubakar-chupo-moting-anguissa/
+
 **Building a Culinary Empire From Scratch**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/nara-smith-tiktok-tradwife
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/01/world/pope-leo-lebanon-sri-lanka-iran.html
 **College Football Playoff 2025 projections: How many teams still have a chance?**\
 `Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
 https://nytimes.com/athletic/6560541/2025/12/01/college-football-playoff-bracket-projections-odds/
-
-**Kalani Sitake sidesteps Penn State questions as BYU states Playoff case**\
-`"I'm all about the Big 12 championship and keeping our team focused on that. So I'm going to avoid all the distractions," Sitake said.`\
-https://nytimes.com/athletic/6852958/2025/12/01/kalani-sitake-penn-state-byu-football-playoff/
 

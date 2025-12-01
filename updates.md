@@ -1,3 +1,11 @@
+**Building a Culinary Empire From Scratch**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/nara-smith-tiktok-tradwife
+
+**Holiday gift guide 2025: Books, apparel, sports card recommendations and more**\
+`From books and apparel to sports cards and art, we have something here for all ages.`\
+https://nytimes.com/athletic/6834129/2025/12/01/sports-fan-holiday-gift-guide-books-apparel-kids/
+
 **Titans player says Jaguars punter Logan Cooke said he 'would kill' him**\
 `The AFC South rivals combined for 23 accepted penalties totaling 184 yards in Sunday's chippy affair.`\
 https://nytimes.com/athletic/6852071/2025/12/01/titans-jaguars-punter-threaten-to-kill-logan-cooke/
