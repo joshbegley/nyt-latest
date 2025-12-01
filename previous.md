@@ -1,3 +1,35 @@
+**Nice players physically assaulted in confrontation with hundreds of fans**\
+`There was a sense of shock among Nice’s players who felt let down by what they believed was a lack of protection and security.`\
+https://nytimes.com/athletic/6852320/2025/12/01/nice-players-assaulted-fans-training-ground/
+
+**How to watch Penguins vs. Flyers: Time, TV, streaming**\
+`Find out how to watch the Pittsburgh Penguins play the Philadelphia Flyers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6852414/2025/12/01/penguins-vs-flyers-stream-how-to-watch-dec-1/
+
+**How to watch Cavaliers vs. Pacers: Time, TV, streaming**\
+`Find out how to watch the Cleveland Cavaliers play the Indiana Pacers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6852412/2025/12/01/cavaliers-vs-pacers-stream-how-to-watch-dec-1/
+
+**How to watch Blue Jackets vs. Devils: Time, TV, streaming**\
+`Find out how to watch the Columbus Blue Jackets play the New Jersey Devils, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6852410/2025/12/01/blue-jackets-vs-devils-stream-how-to-watch-dec-1/
+
+**How to watch Hawks vs. Pistons: Time, TV, streaming**\
+`Find out how to watch the Atlanta Hawks play the Detroit Pistons, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6852407/2025/12/01/hawks-vs-pistons-stream-how-to-watch-dec-1/
+
+**How to watch Bucks vs. Wizards: Time, TV, streaming**\
+`Find out how to watch the Milwaukee Bucks play the Washington Wizards, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6852403/2025/12/01/bucks-vs-wizards-stream-how-to-watch-dec-1/
+
+**NBA Power Rankings: Let's check in with new faces in new places**\
+`The calendar has turned to December, and we have a decent sample size of on-court first impressions.`\
+https://nytimes.com/athletic/6852117/2025/12/01/nba-power-rankings-thunder-rockets-lakers/
+
+**Will the Canucks ever rebuild? What's Quinn Hughes' trade value? Mailbag**\
+`It seems that fans are far more concerned with the big-picture questions that surround the Canucks than their on-ice form.`\
+https://nytimes.com/athletic/6851349/2025/12/01/canucks-quinn-hughes-trade-rebuild-mailbag/
+
 **NFL Week 14 odds, spreads: Can these preseason favorites right the ship?**\
 `Preseason favorites are on the ropes. Who has the best shot in Week 14 of extended their postseason hopes?`\
 https://nytimes.com/athletic/6852085/2025/12/01/nfl-week-14-odds-spreads-chiefs-ravens-lions/
@@ -5,36 +37,4 @@ https://nytimes.com/athletic/6852085/2025/12/01/nfl-week-14-odds-spreads-chiefs-
 **Simon Cowell Is Sorry, Softer and Grieving Liam Payne**\
 `The music mogul has mellowed as he thinks about his legacy. He spoke with Lulu Garcia-Navarro.`\
 https://nytimes.com/video/podcasts/100000010556664/simon-cowell-is-sorry-softer-and-grieving-liam-payne.html
-
-**U.S. Pushes U.K. to Spend More on Medicines in Deal to Avoid Tariffs**\
-`President Trump has complained that wealthy countries like Britain pay too little for drugs, leading America to bear much of the burden of the costs of medicines.`\
-https://nytimes.com/2025/12/01/business/us-uk-pharma-tariffs-prices.html
-
-**How to watch Villanova vs. West Virginia women's basketball: Time, TV, streaming**\
-`Find out how to watch the Villanova Wildcats play the West Virginia Mountaineers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6852368/2025/12/01/villanova-vs-west-virginia-stream-how-to-watch-dec-1/
-
-**President Trump Says He Will Release His M.R.I. Results**\
-`President Trump said he would release the results of a recent magnetic resonance imaging scan, which he called “perfect.” When asked what part of the body was scanned, Mr. Trump replied that he didn’t know.`\
-https://nytimes.com/video/us/politics/100000010556754/trump-mri-test-results.html
-
-**Steelers' Cameron Heyward accuses Josh Allen of intentionally kneeing him**\
-`The play Heyward referenced seemed to occur with under six minutes remaining in the first half as he attempted to get up after a tackle.`\
-https://nytimes.com/athletic/6852119/2025/12/01/steelers-bills-cameron-heyward-josh-allen-kneeing/
-
-**Hundreds Killed After Cyclone in Sri Lanka, Officials Say**\
-`Sri Lanka’s president said the country was dealing with the “largest and most challenging natural disaster” in its history after Cyclone Ditwah unleashed a deadly wave of flooding and submerged entire towns.`\
-https://nytimes.com/video/world/asia/100000010556434/cyclone-sri-lanka-disaster.html
-
-**'For us it’s not about the title race' - Liverpool's Mac Allister on title defence**\
-`Liverpool are in eighth place and nine points off leaders Arsenal with Mac Allister conceding it’s a “tough situation” to turnaround.`\
-https://nytimes.com/athletic/6851690/2025/12/01/liverpool-title-race-premier-league/
-
-**Time to Rest, Reset and Eat Noodles**\
-`Specifically these fast and friendly hoisin garlic noodles, which welcome whatever toppings you’d like.`\
-https://nytimes.com/2025/12/01/dining/time-to-rest-reset-and-eat-noodles.html
-
-**Sheffield Wednesday deducted further six points by EFL, ex-owner Chansiri given three-year ban**\
-`The latest deduction means Wednesday will be 27 points from safety after 18 rounds of the Championship.`\
-https://nytimes.com/athletic/6851829/2025/12/01/sheffield-wednesday-points-deduction-efl/
 
