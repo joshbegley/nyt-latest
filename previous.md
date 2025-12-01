@@ -1,3 +1,19 @@
+**Inside Barcelona: La Liga leaders again — so why was Hansi Flick so upset?**\
+`Hansi Flick's side are top of La Liga again — but concerns over performances are not going away`\
+https://nytimes.com/athletic/6851707/2025/12/01/barcelona-flick-news-la-liga-analysis/
+
+**In Egypt, Museums Built of Sand and Salt**\
+`Plus: an unusual late-autumn fruit, an all-local produce store in Hawai‘i and more recommendations from T Magazine.`\
+https://nytimes.com/2025/12/01/t-magazine/in-egypt-museums-built-of-sand-and-salt.html
+
+**In the Commanders' overtime loss, an unlikely star makes an unbelievable play**\
+`Treylon Burks' one-handed touchdown catch in a loss to the Broncos garnered comparisons to Odell Beckham Jr.’s famous catch with the Giants.`\
+https://nytimes.com/athletic/6851321/2025/12/01/treylon-burks-catch-commanders-broncos/
+
+**Bo Jackson is a game-changer: 8 final Ohio State thoughts after Michigan**\
+`What I learned about No. 1 Ohio State from rewatching its win over Michigan — and what it means for the Big Ten title game vs. Indiana.`\
+https://nytimes.com/athletic/6850409/2025/12/01/ohio-state-michigan-bo-jackson-indiana/
+
 **Hong Kong Contractors Used Unsafe Netting at Fire Site, Officials Say**\
 `Investigators say contractors wrapped the buildings in substandard scaffolding netting and then sought to hide it from inspectors. The toll from the fire rose to 151.`\
 https://nytimes.com/2025/12/01/world/asia/hong-kong-fire.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6851072/2025/12/01/steelers-bills-aaron-rodgers-tou
 **Bo Nix keeps finding late magic and it's fueling Broncos' Super Bowl belief**\
 `The second-year quarterback led his sixth game-winning drive in the fourth quarter or overtime Sunday, the most in the NFL.`\
 https://nytimes.com/athletic/6851472/2025/12/01/bo-nix-broncos-defeat-commanders-overtime/
-
-**Message Board Monday: Auburn, Arkansas, Florida fans greet (or lament) their new coaches**\
-`How are fans feeling about their new coach? Let's take a peek at the boards. `\
-https://nytimes.com/athletic/6850523/2025/12/01/auburn-alex-golesh-florida-jon-sumrall-arkansas-ryan-silverfield/
-
-**How Cotton Candy Won Over the Adults**\
-`Long associated with childhood and county fairs, the food has found its place among a new generation of experimental chefs.`\
-https://nytimes.com/2025/12/01/t-magazine/cotton-candy-floss-chefs.html
-
-**2025 tennis season mailbag: Ask our writers about the storylines you want to remember this year**\
-`The players, matches, and stories you want to know more about come the end of the season`\
-https://nytimes.com/athletic/6845072/2025/12/01/tennis-2025-season-atp-wta/
-
-**Blue Jackets Monday Gathering: Three veteran NHL coaches on how to stop losing leads**\
-`Hopefully December will bring new fortune for the Blue Jackets late in games, but until then, three coaches offer their advice.`\
-https://nytimes.com/athletic/6847449/2025/12/01/columbus-blue-jackets-losing-leads/
 
