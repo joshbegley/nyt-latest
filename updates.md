@@ -1,3 +1,15 @@
+**The New York Times in Print for Monday, Dec. 1, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/12/01/todays-new-york-times
+
+**‘Heated Rivalry,’ Plus 8 Things to Watch on TV This Week**\
+`A new show based on a Canadian sports romance novel airs. And a reunion of ‘The Secret Lives of Mormon Wives’ recaps the third season.`\
+https://nytimes.com/2025/12/01/arts/television/heated-rivalry-tv-this-week.html
+
+**America’s Backyard Isn’t as Quiet as It Looks**\
+`Latin Americans have proved surprisingly acquiescent to U.S. aggression — but that won’t last forever.`\
+https://nytimes.com/2025/12/01/opinion/trump-latin-america.html
+
 **Commanders-Broncos takeaways: Bo Nix and Denver defense survive overtime thriller**\
 `Nix won a duel against fellow ex-Oregon quarterback Marcus Mariota and the Broncos' defense stopped a 2-point PAT in OT to win it.`\
 https://nytimes.com/athletic/6850436/2025/12/01/broncos-commanders-score-result-takeaways-nfl-snf/

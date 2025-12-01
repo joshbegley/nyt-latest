@@ -1,3 +1,15 @@
+**The New York Times in Print for Monday, Dec. 1, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/12/01/todays-new-york-times
+
+**‘Heated Rivalry,’ Plus 8 Things to Watch on TV This Week**\
+`A new show based on a Canadian sports romance novel airs. And a reunion of ‘The Secret Lives of Mormon Wives’ recaps the third season.`\
+https://nytimes.com/2025/12/01/arts/television/heated-rivalry-tv-this-week.html
+
+**America’s Backyard Isn’t as Quiet as It Looks**\
+`Latin Americans have proved surprisingly acquiescent to U.S. aggression — but that won’t last forever.`\
+https://nytimes.com/2025/12/01/opinion/trump-latin-america.html
+
 **Commanders-Broncos takeaways: Bo Nix and Denver defense survive overtime thriller**\
 `Nix won a duel against fellow ex-Oregon quarterback Marcus Mariota and the Broncos' defense stopped a 2-point PAT in OT to win it.`\
 https://nytimes.com/athletic/6850436/2025/12/01/broncos-commanders-score-result-takeaways-nfl-snf/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6850749/2025/12/01/nfl-draft-2026-top-pick-titans-r
 **Nottingham Forest's defeat raises plenty of questions. Omari Hutchinson is one answer**\
 `Sean Dyche suffered a first defeat at the City Ground since taking charge of Nottingham Forest`\
 https://nytimes.com/athletic/6849681/2025/12/01/nottingham-forest-brighton-defeat-analysis/
-
-**Manchester City must break the bad habit of losing leads if they are to stay in title hunt**\
-`Pep Guardiola's side used to be ruthless after taking the lead in games but this season has seen them too frequently pegged back`\
-https://nytimes.com/athletic/6847564/2025/12/01/manchester-city-must-break-the-bad-habit-of-losing-leads-to-stay-in-title-hunt/
-
-**Everton will miss Idrissa Gueye - his absence will be no laughing matter**\
-`Everton clearly missed the midfielder as they fell to a 4-1 loss to Newcastle United on Saturday`\
-https://nytimes.com/athletic/6848006/2025/12/01/everton-idrissa-gueye-red-card-afcon/
-
-**How Newcastle's Malick Thiaw became one of the best centre-backs in the Premier League**\
-`The Germany defender, who was signed this summer from Milan, has quickly established himself as a leader in Eddie Howe's team`\
-https://nytimes.com/athletic/6848803/2025/12/01/newcastle-malick-thiaw-premier-league/
 
