@@ -1,3 +1,7 @@
+**NC State, Virginia opening 2026 season in Rio de Janeiro**\
+`College football has been embracing more international events in recent years.`\
+https://nytimes.com/athletic/6850185/2025/12/01/college-football-2026-brazil-nc-state-virginia/
+
 **Trump Administration Live Updates: Zelensky Turns to Europe as U.S. Pushes to End Ukraine War**\
 ``\
 https://nytimes.com/live/2025/12/01/us/trump-news
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6809703/2025/12/01/winter-olympics-jessie-diggins-j
 **Why Packers DC Jeff Hafley is teaching Micah Parsons about Mariano Rivera**\
 `Green Bay's sack master has something in common with baseball's all-time saves leader.`\
 https://nytimes.com/athletic/6848435/2025/12/01/micah-parsons-green-bay-packers/
-
-**Inside Barcelona: La Liga leaders again — so why was Hansi Flick so upset?**\
-`Hansi Flick's side are top of La Liga again — but concerns over performances are not going away`\
-https://nytimes.com/athletic/6851707/2025/12/01/barcelona-flick-news-la-liga-analysis/
 

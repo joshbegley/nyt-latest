@@ -1,3 +1,7 @@
+**NC State, Virginia opening 2026 season in Rio de Janeiro**\
+`College football has been embracing more international events in recent years.`\
+https://nytimes.com/athletic/6850185/2025/12/01/college-football-2026-brazil-nc-state-virginia/
+
 **Trump Administration Live Updates: Zelensky Turns to Europe as U.S. Pushes to End Ukraine War**\
 ``\
 https://nytimes.com/live/2025/12/01/us/trump-news
