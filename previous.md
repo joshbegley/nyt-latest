@@ -1,3 +1,7 @@
+**Seahawks' dominant defense hits new milestone vs. Vikings, as path to NFC's top seed widens**\
+`As good as Mike Macdonald's defense has been, it hadn't notched a shutout before Sunday against Minnesota.`\
+https://nytimes.com/athletic/6850918/2025/11/30/seahawks-vikings-defense-shutout-ernest-jones/
+
 **Colts were on wrong end of a bad call, but don't pretend it's the only reason they lost**\
 `For as bad as the pass interference call was, the Colts had plenty of chances to negate its effect, and failed to do so. `\
 https://nytimes.com/athletic/6850794/2025/11/30/colts-officials-pass-interference-texans-loss/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6850792/2025/11/30/celtics-brown-triple-double-prit
 **How 2 old Jets and 1 breakout performance got Aaron Glenn a third win**\
 `The Jets showed more signs of growth in Sunday's victory over the Atlanta Falcons.`\
 https://nytimes.com/athletic/6850764/2025/11/30/new-york-jets-win-atlanta-falcons/
-
-**How to watch North Texas vs. Tulane: AAC Championship Time, TV, streaming**\
-`Find out how to watch the North Texas Mean Green play the Tulane Green Wave, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6850825/2025/11/30/north-texas-vs-tulane-stream-how-to-watch-dec-5/
 

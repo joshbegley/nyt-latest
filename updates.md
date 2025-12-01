@@ -1,3 +1,7 @@
+**Seahawks' dominant defense hits new milestone vs. Vikings, as path to NFC's top seed widens**\
+`As good as Mike Macdonald's defense has been, it hadn't notched a shutout before Sunday against Minnesota.`\
+https://nytimes.com/athletic/6850918/2025/11/30/seahawks-vikings-defense-shutout-ernest-jones/
+
 **Colts were on wrong end of a bad call, but don't pretend it's the only reason they lost**\
 `For as bad as the pass interference call was, the Colts had plenty of chances to negate its effect, and failed to do so. `\
 https://nytimes.com/athletic/6850794/2025/11/30/colts-officials-pass-interference-texans-loss/
