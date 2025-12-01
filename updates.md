@@ -1,3 +1,7 @@
+**Onana among several surprise omissions from Cameroon AFCON squad, manager also sacked**\
+`Goalkeeper Andre Onana, who is on loan at Trabzonspor from Manchester United, has been left out of Cameroon’s Africa Cup of Nations (AFCON) squad.`\
+https://nytimes.com/athletic/6853317/2025/12/01/onana-cameroon-squad-news-etoo-brys-aboubakar-chupo-moting-anguissa/
+
 **Building a Culinary Empire From Scratch**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/nara-smith-tiktok-tradwife

@@ -1,3 +1,7 @@
+**Hundreds Killed From Devastating Floods in Indonesia**\
+`Heavy rainfall from two rare tropical cyclones brought deadly flooding and landslides to Indonesia, killing over 600 people, with more than 400 missing and displacing hundreds of thousands of others.`\
+https://nytimes.com/video/world/asia/100000010556693/indonesia-flooding.html
+
 **Onana among several surprise omissions from Cameroon AFCON squad, manager also sacked**\
 `Goalkeeper Andre Onana, who is on loan at Trabzonspor from Manchester United, has been left out of Cameroon’s Africa Cup of Nations (AFCON) squad.`\
 https://nytimes.com/athletic/6853317/2025/12/01/onana-cameroon-squad-news-etoo-brys-aboubakar-chupo-moting-anguissa/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6852844/2025/12/01/chiefs-playoff-hopes-andy-reid/
 **An Anti-Polarization Pope**\
 `What Pope Leo’s first international trip tells us about the leader of the Catholic Church.`\
 https://nytimes.com/2025/12/01/world/pope-leo-lebanon-sri-lanka-iran.html
-
-**College Football Playoff 2025 projections: How many teams still have a chance?**\
-`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
-https://nytimes.com/athletic/6560541/2025/12/01/college-football-playoff-bracket-projections-odds/
 
