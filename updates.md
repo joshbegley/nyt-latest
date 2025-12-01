@@ -1,3 +1,11 @@
+**Christian Benteke announces he's leaving D.C. United**\
+`Benteke, who won the 2024 MLS Golden Boot, is set to depart D.C. United after three seasons with the club`\
+https://nytimes.com/athletic/6853020/2025/12/01/christian-benteke-leaving-dc-united-mls/
+
+**Welcome to Cookie Week!**\
+`New York Times Cooking’s annual tradition — in which we share our finest holiday cookie recipes and videos — is here, and I’m thrilled to share mine!`\
+https://nytimes.com/2025/12/01/dining/welcome-to-cookie-week.html
+
 **This Year, a Smaller Red-and-Green Christmas at the White House**\
 `The White House is decorated in a classic red-and-green Christmas theme. But with the East Wing reduced to rubble, there are fewer decorations this year.`\
 https://nytimes.com/2025/12/01/us/politics/christmas-trump-white-house.html
