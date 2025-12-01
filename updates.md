@@ -1,3 +1,11 @@
+**Kalani Sitake sidesteps Penn State questions as BYU states Playoff case**\
+`"I'm all about the Big 12 championship and keeping our team focused on that. So I'm going to avoid all the distractions," Sitake said.`\
+https://nytimes.com/athletic/6852958/2025/12/01/kalani-sitake-penn-state-byu-football-playoff/
+
+**Trump Becomes the Wild Card in Razor-Thin Honduras Election**\
+`President Trump warned that if his favored candidate didn’t win, the United States would “not be throwing good money after bad” to the country.`\
+https://nytimes.com/2025/12/01/world/americas/honduras-election-trump.html
+
 **gws-best-nyc-cocktails**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/best-nyc-cocktails
