@@ -1,3 +1,23 @@
+**Lane Kiffin's latest leap shows why the college player revolution was needed**\
+`Coaches have always done whatever they wanted for the sake of career enhancement. Don’t resent players for being free to do the same.`\
+https://nytimes.com/athletic/6849917/2025/12/01/lane-kiffin-lsu-ole-miss-sec-college-player/
+
+**Battle for New York City Casino Licenses Reaches Final Phase**\
+`A state board is scheduled to recommend licenses for as many as three full-fledged casinos to the state’s gaming commission, which is expected to follow the recommendations.`\
+https://nytimes.com/2025/12/01/nyregion/nyc-casino-license.html
+
+**What to Know About Luigi Mangione’s Court Hearing This Week**\
+`Lawyers for Mr. Mangione, accused of killing a health insurance executive in Manhattan, will ask a judge to throw out evidence gathered when he was arrested in Pennsylvania.`\
+https://nytimes.com/2025/12/01/nyregion/mangione-hearing-what-to-know.html
+
+**The Transgender Cancer Patient and What She Heard on Tape**\
+`Jennifer Capasso had endured multiple tumors. She wondered what might be said during her next cancer surgery. So, she hit record on her phone.`\
+https://nytimes.com/2025/12/01/nyregion/transgender-patient-records-during-cancer-surgery.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/12/01/crosswords/spelling-bee-forum.html
+
 **Millions Under Winter Storm Watch as Potential Nor’easter Approaches**\
 `Forecasters expected the storm to track up the Eastern Seaboard Monday night into Tuesday, leaving as much as a foot of snow in parts of the Northeast.`\
 https://nytimes.com/2025/12/01/us/snowstorm-noreaster-northeast-new-england.html
@@ -19,24 +39,4 @@ https://nytimes.com/2025/12/01/world/asia/sri-lanka-floods-cyclone.html
 <p>Leave &#8217;em here. Please include your city.</p>
 `\
 https://nytimes.com/athletic/6851432/2025/12/01/submit-a-question-for-stewart-mandels-college-football-mailbag-325/
-
-**The New York Times in Print for Monday, Dec. 1, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/12/01/todays-new-york-times
-
-**‘Heated Rivalry,’ Plus 8 Things to Watch on TV This Week**\
-`A new show based on a Canadian sports romance novel airs. And a reunion of ‘The Secret Lives of Mormon Wives’ recaps the third season.`\
-https://nytimes.com/2025/12/01/arts/television/heated-rivalry-tv-this-week.html
-
-**Trump’s New American Empire Won’t Last Forever**\
-`Latin Americans have proved surprisingly acquiescent to U.S. aggression — but that won’t last forever.`\
-https://nytimes.com/2025/12/01/opinion/trump-latin-america.html
-
-**Commanders-Broncos takeaways: Bo Nix and Denver defense survive overtime thriller**\
-`Nix won a duel against fellow ex-Oregon quarterback Marcus Mariota and the Broncos' defense stopped a 2-point PAT in OT to win it.`\
-https://nytimes.com/athletic/6850436/2025/12/01/broncos-commanders-score-result-takeaways-nfl-snf/
-
-**In Pittsburgh, the 'Fire Tomlin' chants grow louder as the playoffs slip further away**\
-`It was a bloodied Aaron Rodgers and a beat-down defense in a blowout loss to the Buffalo Bills.`\
-https://nytimes.com/athletic/6851155/2025/12/01/pittsburgh-steelers-fire-tomlin-chants-bills-loss/
 

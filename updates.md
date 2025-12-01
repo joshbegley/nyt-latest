@@ -1,3 +1,23 @@
+**Lane Kiffin's latest leap shows why the college player revolution was needed**\
+`Coaches have always done whatever they wanted for the sake of career enhancement. Don’t resent players for being free to do the same.`\
+https://nytimes.com/athletic/6849917/2025/12/01/lane-kiffin-lsu-ole-miss-sec-college-player/
+
+**Battle for New York City Casino Licenses Reaches Final Phase**\
+`A state board is scheduled to recommend licenses for as many as three full-fledged casinos to the state’s gaming commission, which is expected to follow the recommendations.`\
+https://nytimes.com/2025/12/01/nyregion/nyc-casino-license.html
+
+**What to Know About Luigi Mangione’s Court Hearing This Week**\
+`Lawyers for Mr. Mangione, accused of killing a health insurance executive in Manhattan, will ask a judge to throw out evidence gathered when he was arrested in Pennsylvania.`\
+https://nytimes.com/2025/12/01/nyregion/mangione-hearing-what-to-know.html
+
+**The Transgender Cancer Patient and What She Heard on Tape**\
+`Jennifer Capasso had endured multiple tumors. She wondered what might be said during her next cancer surgery. So, she hit record on her phone.`\
+https://nytimes.com/2025/12/01/nyregion/transgender-patient-records-during-cancer-surgery.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/12/01/crosswords/spelling-bee-forum.html
+
 **Millions Under Winter Storm Watch as Potential Nor’easter Approaches**\
 `Forecasters expected the storm to track up the Eastern Seaboard Monday night into Tuesday, leaving as much as a foot of snow in parts of the Northeast.`\
 https://nytimes.com/2025/12/01/us/snowstorm-noreaster-northeast-new-england.html
