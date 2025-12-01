@@ -1,3 +1,11 @@
+**The Bounce: Cooper Flagg is figuring it out, and SGA is breaking records**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/6852109/2025/12/01/the-bounce-cooper-flagg-shai-gilgeous-alexander/
+
+**Lowetide: Have the Oilers finally found a winning formula?**\
+`If the Oilers continue to play with structure and responsibility, the last hurdle will be in goal.`\
+https://nytimes.com/athletic/6849486/2025/12/01/edmonton-oilers-stats-standings-scores-2025/
+
 **Human Rights Watch questions FIFA over ‘Peace Prize’, receives no response**\
 `On November 5, FIFA announced that the organisation would introduce a new award entitled “FIFA Peace Prize — Football Unites the World”.`\
 https://nytimes.com/athletic/6852219/2025/12/01/fifa-human-rights-watch-peace-prize/
