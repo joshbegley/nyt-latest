@@ -1,3 +1,7 @@
+**Colts coach: CB Sauce Gardner will miss 'some time' with calf injury**\
+`The Colts expect Gardner to play again this season. `\
+https://nytimes.com/athletic/6852554/2025/12/01/colts-sauce-gardner-calf-injury/
+
 **Klay Thompson names boat after girlfriend Megan Thee Stallion**\
 `Thompson has become famous for his boating adventures, and now he has a nautical partner in crime.`\
 https://nytimes.com/athletic/6852811/2025/12/01/klay-thompson-boat-megan-thee-stallion/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/01/movies/the-merchants-of-joy-review-christmas-tree
 **AP men's basketball Top 25: Purdue No. 1, Michigan vaults to No. 3, USC jumps into poll**\
 `Purdue retained its spot at No. 1, receiving 40 of 61 first-place votes.`\
 https://nytimes.com/athletic/6852709/2025/12/01/ap-mens-basketball-top-25-michigan-usc-purdue/
-
-**The Best Movies and TV Shows Coming to Disney+, Amazon, HBO Max, Peacock and More in December**\
-`“F1: The Movie,” “It’s Never Over, Jeff Buckley” and “The Life of Chuck” arrive, and “Fallout” and “Percy Jackson” return.`\
-https://nytimes.com/2025/12/01/arts/television/movies-tv-shows-december-2025-streaming.html
 

@@ -1,3 +1,7 @@
+**Colts coach: CB Sauce Gardner will miss 'some time' with calf injury**\
+`The Colts expect Gardner to play again this season. `\
+https://nytimes.com/athletic/6852554/2025/12/01/colts-sauce-gardner-calf-injury/
+
 **Klay Thompson names boat after girlfriend Megan Thee Stallion**\
 `Thompson has become famous for his boating adventures, and now he has a nautical partner in crime.`\
 https://nytimes.com/athletic/6852811/2025/12/01/klay-thompson-boat-megan-thee-stallion/
