@@ -1,3 +1,7 @@
+**A Crucial Week in Ukraine Peace Negotiations**\
+`Plus, a court voids another Trump appointee. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2025/12/01/briefing/a-crucial-week-in-ukraine-peace-negotiations.html
+
 **Cory Booker Wants You to Have Hope**\
 `“If America hasn’t broken your heart, you don’t love her enough,” Cory Booker tells David Leonhardt in this episode of “The Opinions.”`\
 https://nytimes.com/video/opinion/100000010536319/cory-booker-wants-you-to-have-hope.html
@@ -33,8 +37,4 @@ https://nytimes.com/newsgraphics/card-story/nara-smith-tiktok-tradwife
 **Holiday gift guide 2025: Something for every sports fan on your list**\
 `From books and apparel to sports cards and art, we have something here for all ages.`\
 https://nytimes.com/athletic/6834129/2025/12/01/sports-fan-holiday-gift-guide-books-apparel-kids/
-
-**Titans player says Jaguars punter Logan Cooke said he 'would kill' him**\
-`The AFC South rivals combined for 23 accepted penalties totaling 184 yards in Sunday's chippy affair.`\
-https://nytimes.com/athletic/6852071/2025/12/01/titans-jaguars-punter-threaten-to-kill-logan-cooke/
 
