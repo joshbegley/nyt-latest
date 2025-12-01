@@ -1,3 +1,15 @@
+**UEFA held meetings with pro-Palestinian campaign over possible Israel ban after ceasefire**\
+`UEFA has been under pressure to call a vote on Israel’s ongoing participation in European football.`\
+https://nytimes.com/athletic/6833173/2025/12/01/uefa-israel-football-ban-ceasefire/
+
+**Netanyahu, Seeking a Pardon, Borrows From a Familiar Playbook**\
+`In many ways, Prime Minister Benjamin Netanyahu’s request mimics how President Trump has assailed his perceived enemies and attacked legal proceedings against him.`\
+https://nytimes.com/2025/12/01/world/middleeast/netanyahu-pardon-corruption-israel-trump.html
+
+**Zelensky Turns to Europe After Talks With U.S. Officials**\
+`Ukraine’s president met with President Emmanuel Macron of France on Monday as Steve Witkoff, President Trump’s special envoy, travels to Russia.`\
+https://nytimes.com/2025/12/01/world/europe/zelensky-ukraine-paris-putin-witkoff.html
+
 **What Bills' historic, emotional win with two backup linemen, zero sacks says about them**\
 `Facing an urgent situation without some key players, the Bills showed up in a big way.`\
 https://nytimes.com/athletic/6851202/2025/12/01/bills-steelers-offensive-line-history/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6850897/2025/12/01/nfl-week-13-takeaways-panthers-s
 **Can anyone unseat Anthony Rendon for baseball's worst contract? Ranking MLB's ugliest deals**\
 `Some of the biggest names in baseball also have some of its most onerous contracts. `\
 https://nytimes.com/athletic/6833708/2025/12/01/mlb-worst-contracts-2025-rendon-bryant/
-
-**Inside the Bird-Flu Vaccine Trial for Monk Seals**\
-`After the virus returned to Hawaii this fall, testing the shots in the endangered seal species became urgent.`\
-https://nytimes.com/2025/12/01/science/hawaii-bird-flu-h5n1-monk-seals.html
-
-**The New York Times International Edition in Print for Tuesday, Dec. 2, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/12/01/todays-new-york-times-international-edition
-
-**Andy Murray interview: Life after tennis, coaching Novak Djokovic and facing the Big Three**\
-`Murray spoke to the Tennis Podcast about regrets, his experience working with the 24-time Grand Slam champion and Monopoly with his kids.`\
-https://nytimes.com/athletic/6844610/2025/12/01/andy-murray-tennis-career-retirement/
 

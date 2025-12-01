@@ -1,3 +1,11 @@
+**What Bills' historic, emotional win with two backup linemen, zero sacks says about them**\
+`Facing an urgent situation without some key players, the Bills showed up in a big way.`\
+https://nytimes.com/athletic/6851202/2025/12/01/bills-steelers-offensive-line-history/
+
+**Inside Real Madrid: Differences in the dressing room, difficulties facing Xabi Alonso**\
+`Real Madrid are without a win in their past three La Liga matches, and Barcelona now lead the table`\
+https://nytimes.com/athletic/6851632/2025/12/01/real-madrid-xabi-alonso-la-liga-girona-news/
+
 **Ben Johnson’s Bears sit atop the NFC. How good are they? How high can they climb? — Pick Six**\
 `Chicago is the current No. 1 seed in the NFC and at 9-3 has surpassed their preseason Vegas win total with five games to play.`\
 https://nytimes.com/athletic/6832680/2025/12/01/bears-ben-johnson-caleb-williams-nfc/

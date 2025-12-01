@@ -1,3 +1,11 @@
+**What Bills' historic, emotional win with two backup linemen, zero sacks says about them**\
+`Facing an urgent situation without some key players, the Bills showed up in a big way.`\
+https://nytimes.com/athletic/6851202/2025/12/01/bills-steelers-offensive-line-history/
+
+**Inside Real Madrid: Differences in the dressing room, difficulties facing Xabi Alonso**\
+`Real Madrid are without a win in their past three La Liga matches, and Barcelona now lead the table`\
+https://nytimes.com/athletic/6851632/2025/12/01/real-madrid-xabi-alonso-la-liga-girona-news/
+
 **Ben Johnson’s Bears sit atop the NFC. How good are they? How high can they climb? — Pick Six**\
 `Chicago is the current No. 1 seed in the NFC and at 9-3 has surpassed their preseason Vegas win total with five games to play.`\
 https://nytimes.com/athletic/6832680/2025/12/01/bears-ben-johnson-caleb-williams-nfc/
@@ -29,12 +37,4 @@ https://nytimes.com/issue/todaysinyt/2025/12/01/todays-new-york-times-internatio
 **Andy Murray interview: Life after tennis, coaching Novak Djokovic and facing the Big Three**\
 `Murray spoke to the Tennis Podcast about regrets, his experience working with the 24-time Grand Slam champion and Monopoly with his kids.`\
 https://nytimes.com/athletic/6844610/2025/12/01/andy-murray-tennis-career-retirement/
-
-**The Most Interesting Wine Books of 2025**\
-`A fascinating history of California wine, a beginner’s handbook, “A Cynic’s Guide” and visits to natural producers in France and England, with recipes`\
-https://nytimes.com/2025/12/01/dining/drinks/wine-books.html
-
-**Supreme Court to Hear Copyright Battle Over Online Music Piracy**\
-`At issue is whether internet providers can be held liable for repeated copyright infringements of users, with potentially billions of dollars on the line.`\
-https://nytimes.com/2025/12/01/us/politics/supreme-court-copyright-music-piracy.html
 
