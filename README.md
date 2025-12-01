@@ -1,3 +1,9 @@
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>A season-long CFP race and nearly season-long coaching carousel converged all at once this week. My guess is you have a lot of questions.</p>
+<p>Leave &#8217;em here. Please include your city.</p>
+`\
+https://nytimes.com/athletic/6851432/2025/12/01/submit-a-question-for-stewart-mandels-college-football-mailbag-325/
+
 **The New York Times in Print for Monday, Dec. 1, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/12/01/todays-new-york-times
@@ -33,8 +39,4 @@ https://nytimes.com/athletic/6851244/2025/12/01/wnba-players-union-cba-negotiati
 **NFL's race to the No. 1 pick: Titans hold commanding lead while Raiders, Saints lurk**\
 `The Titans remain the league's only one-win team. while the Jets got their third win and saw their odds dip significantly. `\
 https://nytimes.com/athletic/6850749/2025/12/01/nfl-draft-2026-top-pick-titans-raiders/
-
-**Nottingham Forest's defeat raises plenty of questions. Omari Hutchinson is one answer**\
-`Sean Dyche suffered a first defeat at the City Ground since taking charge of Nottingham Forest`\
-https://nytimes.com/athletic/6849681/2025/12/01/nottingham-forest-brighton-defeat-analysis/
 
