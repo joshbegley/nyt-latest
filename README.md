@@ -1,3 +1,7 @@
+**Shai Gilgeous-Alexander continues etching his name alongside NBA royalty**\
+`On a point-by-point basis, Shai Gilgeous-Alexander places himself alongside NBA greats, including the late, great Wilt Chamberlain.`\
+https://nytimes.com/athletic/6850989/2025/11/30/shai-gilgeous-alexander-stats-season-okc/
+
 **Vikings' offensive disaster hits new low in shutout vs. Seahawks: 'It’s just bad ball'**\
 `Rookie QB Max Brosmer threw four interceptions in his starting debut, and the Vikings offense struggled to move the ball all day.`\
 https://nytimes.com/athletic/6851035/2025/11/30/vikings-seahawks-offense-max-brosmer-justin-jefferson/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6850815/2025/11/30/shedeur-sanders-jerry-jeudy-brow
 **Panthers Upset Rams to Shake Up N.F.C. Playoff Picture**\
 `Carolina Panthers quarterback Bryce Young threw three touchdown passes. The Panthers also forced three turnovers from Los Angeles Rams quarterback Matthew Stafford, earning a 31-28 victory.`\
 https://nytimes.com/video/the-athletic/100000010556030/panthers-upset-rams-to-shake-up-nfc-playoff-picture.html
-
-**Audi Crooks breaks own Iowa State record with 47 points in win over Indiana**\
-`Audi Crooks is averaging nearly 25 points while playing only 24 minutes a game. `\
-https://nytimes.com/athletic/6850831/2025/11/30/iowa-state-audi-crooks-record-points/
 
