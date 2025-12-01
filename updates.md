@@ -1,3 +1,15 @@
+**Nebraska fires DC John Butler after sluggish finish to season**\
+`The coaching change comes on the heels of two blowout defeats to finish the regular season.`\
+https://nytimes.com/athletic/6852857/2025/12/01/nebraska-fires-john-butler/
+
+**The Aftermath of the D.C. Shooting**\
+`Readers discuss the shooting of two National Guard members in Washington. Also: Being Latino in the U.S.; wonderful mentors.`\
+https://nytimes.com/2025/12/01/opinion/national-guard-dc-shooting.html
+
+**‘The Merchants of Joy’ Review: Cutthroat Christmas Tree Sales**\
+`A new documentary contains zesty character studies of competing New York City tree vendors as they prepare for the holiday season.`\
+https://nytimes.com/2025/12/01/movies/the-merchants-of-joy-review-christmas-trees.html
+
 **AP men's basketball Top 25: Purdue No. 1, Michigan vaults to No. 3, USC jumps into poll**\
 `Purdue retained its spot at No. 1, receiving 40 of 61 first-place votes.`\
 https://nytimes.com/athletic/6852709/2025/12/01/ap-mens-basketball-top-25-michigan-usc-purdue/
