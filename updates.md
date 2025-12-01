@@ -1,3 +1,7 @@
+**Zelensky Meets With European Leaders Amid Peace Deal Talks**\
+`President Volodymyr Zelensky of Ukraine met with President Emmanuel Macron of France on Monday in Paris to discuss the terms of the Trump administration’s peace deal with Russia. Mr. Zelensky said that Ukraine’s priorities are security guarantees and maintaining its sovereignty.`\
+https://nytimes.com/video/world/europe/100000010557301/zelensky-ukraine-peace-negotiations-macron.html
+
 **Newcastle 'not ready' to decide upon future of stadium says club's chief executive**\
 `A subject being discussed by Newcastle fans is whether they extend and rennovate St James' Park or build a new stadium nearby.`\
 https://nytimes.com/athletic/6853241/2025/12/01/newcastle-news-st-jamess-park-future/

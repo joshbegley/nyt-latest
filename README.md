@@ -1,3 +1,7 @@
+**Feldman's candidates to replace Mark Stoops at Kentucky, from Brent Key to Will Stein**\
+`Several sitting head coaches could be tempted by the opening in Lexington.`\
+https://nytimes.com/athletic/6853199/2025/12/01/kentucky-football-coaching-search-candidates/
+
 **Zelensky Meets With European Leaders Amid Peace Deal Talks**\
 `President Volodymyr Zelensky of Ukraine met with President Emmanuel Macron of France on Monday in Paris to discuss the terms of the Trump administration’s peace deal with Russia. Mr. Zelensky said that Ukraine’s priorities are security guarantees and maintaining its sovereignty.`\
 https://nytimes.com/video/world/europe/100000010557301/zelensky-ukraine-peace-negotiations-macron.html
@@ -27,14 +31,10 @@ https://nytimes.com/newsgraphics/card-story/best-nyc-cocktails
 https://nytimes.com/athletic/6853188/2025/12/01/byu-vs-texas-tech-stream-how-to-watch-dec-6/
 
 **Trump Becomes the Wild Card in Razor-Thin Honduras Election**\
-`President Trump warned that if his favored candidate didn’t win, the United States would “not be throwing good money after bad” to the country.`\
+`President Trump warned that if his favored candidate didn’t win, the United States would “not be throwing good money after bad” at the country.`\
 https://nytimes.com/2025/12/01/world/americas/honduras-election-trump.html
 
 **The Secret Life of a Ski Resort**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/snowbird-ski-resort-utah-mountain-preparations
-
-**How to watch Bulls vs. Magic: Time, TV, streaming**\
-`Find out how to watch the Chicago Bulls play the Orlando Magic, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6853139/2025/12/01/bulls-vs-magic-stream-how-to-watch-dec-1/
 

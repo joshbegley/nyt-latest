@@ -1,3 +1,7 @@
+**Zelensky Meets With European Leaders Amid Peace Deal Talks**\
+`President Volodymyr Zelensky of Ukraine met with President Emmanuel Macron of France on Monday in Paris to discuss the terms of the Trump administration’s peace deal with Russia. Mr. Zelensky said that Ukraine’s priorities are security guarantees and maintaining its sovereignty.`\
+https://nytimes.com/video/world/europe/100000010557301/zelensky-ukraine-peace-negotiations-macron.html
+
 **Newcastle 'not ready' to decide upon future of stadium says club's chief executive**\
 `A subject being discussed by Newcastle fans is whether they extend and rennovate St James' Park or build a new stadium nearby.`\
 https://nytimes.com/athletic/6853241/2025/12/01/newcastle-news-st-jamess-park-future/
@@ -33,8 +37,4 @@ https://nytimes.com/newsgraphics/card-story/snowbird-ski-resort-utah-mountain-pr
 **How to watch Bulls vs. Magic: Time, TV, streaming**\
 `Find out how to watch the Chicago Bulls play the Orlando Magic, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6853139/2025/12/01/bulls-vs-magic-stream-how-to-watch-dec-1/
-
-**How to watch Hornets vs. Nets: Time, TV, streaming**\
-`Find out how to watch the Charlotte Hornets play the Brooklyn Nets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6853135/2025/12/01/hornets-vs-nets-stream-how-to-watch-dec-1/
 
