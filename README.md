@@ -1,3 +1,11 @@
+**Hong Kong Contractors Used Unsafe Netting at Fire Site, Officials Say**\
+`Investigators say contractors wrapped the buildings in substandard scaffolding netting and then sought to hide it from inspectors. The toll from the fire rose to 151.`\
+https://nytimes.com/2025/12/01/world/asia/hong-kong-fire.html
+
+**Your Drone Questions**\
+`We asked readers of The Morning for their questions about drones. Today, Times journalists answer.`\
+https://nytimes.com/2025/12/01/briefing/your-drone-questions.html
+
 **When Luca Guadagnino Brought Brazilian Modernism to Milan**\
 `High above the cloistered, elegant city, the director turned a friend’s apartment into a moody and tropical oasis.`\
 https://nytimes.com/2025/12/01/t-magazine/luca-guadagnino-milan-interior-design.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6845072/2025/12/01/tennis-2025-season-atp-wta/
 **Blue Jackets Monday Gathering: Three veteran NHL coaches on how to stop losing leads**\
 `Hopefully December will bring new fortune for the Blue Jackets late in games, but until then, three coaches offer their advice.`\
 https://nytimes.com/athletic/6847449/2025/12/01/columbus-blue-jackets-losing-leads/
-
-**The Bruins' turnaround, way ahead of schedule, starts at the top**\
-`No one expected the Bruins to be this good. Shrewd moves from Boston's higher-ups have the team second in the Atlantic.`\
-https://nytimes.com/athletic/6849720/2025/12/01/bruins-turnaround-kastelic-sturm-geekie/
-
-**Premier League Predictions: Newcastle vs Spurs, Leeds vs Chelsea and the rest of Matchday 14**\
-`Who's leading after MD13? And what does our writer, the algorithm, a child and this week's subscriber expect to see this midweek?`\
-https://nytimes.com/athletic/6849947/2025/12/01/premier-league-predictions-md14/
 
