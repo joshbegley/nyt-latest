@@ -1,3 +1,19 @@
+**A Crucial Week in Ukraine Peace Negotiations**\
+`Plus, a court voids another Trump appointee. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2025/12/01/briefing/a-crucial-week-in-ukraine-peace-negotiations.html
+
+**Cory Booker Wants You to Have Hope**\
+`“If America hasn’t broken your heart, you don’t love her enough,” Cory Booker tells David Leonhardt in this episode of “The Opinions.”`\
+https://nytimes.com/video/opinion/100000010536319/cory-booker-wants-you-to-have-hope.html
+
+**For Trump, Hegseth’s Take-No-Prisoners Approach Is a Growing Liability**\
+`Investigations are mounting into the legality of strikes that have killed scores of people in the waters off Venezuela.`\
+https://nytimes.com/2025/12/01/us/politics/trump-hegseth-drug-boat-strike-venezuela.html
+
+**Holiday gift guide 2025: Something for every sports fan on your list**\
+`From books and apparel to sports cards and art, we have something here for all ages.`\
+https://nytimes.com/athletic/6834129/2025/12/01/sports-fan-holiday-gift-guide-books-apparel-kids/
+
 **Weekly Student News Quiz: High-Rise Fire, Word of the Year, 'Stranger Things'**\
 `Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
 https://nytimes.com/interactive/2025/12/01/learning/01StudentNewsQuiz.html
