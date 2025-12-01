@@ -1,3 +1,7 @@
+**Three Art World Heavyweights Join Forces to Form New Gallery**\
+`Pace, Di Donna and David Schrader of Sotheby’s are collaborating on an Upper East Side space that will focus on secondary market sales.`\
+https://nytimes.com/2025/12/01/arts/design/pace-di-donna-david-schrader-merge-new-gallery.html
+
 **A Crucial Week in Ukraine Peace Negotiations**\
 `Plus, a court voids another Trump appointee. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2025/12/01/briefing/a-crucial-week-in-ukraine-peace-negotiations.html

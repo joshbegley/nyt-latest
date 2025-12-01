@@ -1,3 +1,7 @@
+**Three Art World Heavyweights Join Forces to Form New Gallery**\
+`Pace, Di Donna and David Schrader of Sotheby’s are collaborating on an Upper East Side space that will focus on secondary market sales.`\
+https://nytimes.com/2025/12/01/arts/design/pace-di-donna-david-schrader-merge-new-gallery.html
+
 **A Crucial Week in Ukraine Peace Negotiations**\
 `Plus, a court voids another Trump appointee. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2025/12/01/briefing/a-crucial-week-in-ukraine-peace-negotiations.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6853317/2025/12/01/onana-cameroon-squad-news-etoo-b
 **Building a Culinary Empire From Scratch**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/nara-smith-tiktok-tradwife
-
-**Holiday gift guide 2025: Something for every sports fan on your list**\
-`From books and apparel to sports cards and art, we have something here for all ages.`\
-https://nytimes.com/athletic/6834129/2025/12/01/sports-fan-holiday-gift-guide-books-apparel-kids/
 
