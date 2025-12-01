@@ -1,3 +1,7 @@
+**I Made an Offensive Joke. But So Did Everyone Else! Why Did I Get Fired?**\
+`Plus, should you endure a stultifying work life to enable a happy personal life?`\
+https://nytimes.com/2025/12/01/business/racist-joke-at-work.html
+
 **NBA Rewind: The Thunder will lose again sometime, right?**\
 `Plus: Who's hot (Lakers) and not (Bucks) as NBA Cup elimination games are set. `\
 https://nytimes.com/athletic/6847938/2025/12/01/nba-rewind-thunder-nba-cup-cooper-flagg/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6850736/2025/12/01/robert-sanchez-chelsea-analysis/
 **OpenAI Takes Stake in Thrive Holdings, a Buyer of Services Firms**\
 `The move by the parent company of ChatGPT is meant to help imbue Thrive Holdings’ accounting and I.T. services companies with artificial intelligence tools.`\
 https://nytimes.com/2025/12/01/business/dealbook/openai-thrive-holdings-ai.html
-
-**Forest edge closer to redeveloped City Ground after announcing fan consultation**\
-`Forest are expected to deliver all the planning documents to the local authority, Rushcliffe Borough Council, on December 15.`\
-https://nytimes.com/athletic/6851815/2025/12/01/nottingham-forest-city-ground-redeveloped-plans/
 

@@ -1,3 +1,7 @@
+**I Made an Offensive Joke. But So Did Everyone Else! Why Did I Get Fired?**\
+`Plus, should you endure a stultifying work life to enable a happy personal life?`\
+https://nytimes.com/2025/12/01/business/racist-joke-at-work.html
+
 **NBA Rewind: The Thunder will lose again sometime, right?**\
 `Plus: Who's hot (Lakers) and not (Bucks) as NBA Cup elimination games are set. `\
 https://nytimes.com/athletic/6847938/2025/12/01/nba-rewind-thunder-nba-cup-cooper-flagg/
