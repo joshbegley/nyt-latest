@@ -1,3 +1,7 @@
+**How Maxi Kleber's airballed layup saved the Lakers: 'I have great empathy for him'**\
+`Maxi Kleber's unusual miss provided a good laugh for the Lakers — and was just what they needed Sunday.`\
+https://nytimes.com/athletic/6851513/2025/12/01/lakers-win-maxi-kleber-layup/
+
 **Floods Have Killed at Least 1,200 in Southern Asia. Here’s What to Know.**\
 `Hundreds more were still missing and millions have been displaced in the rain-drenched region, with Sri Lanka and Indonesia hit particularly hard.`\
 https://nytimes.com/2025/12/01/world/asia/flooding-sri-lanka-indonesia-thailand-vietnam-cyclone-rain.html
