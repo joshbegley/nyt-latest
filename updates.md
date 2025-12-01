@@ -1,3 +1,9 @@
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>A season-long CFP race and nearly season-long coaching carousel converged all at once this week. My guess is you have a lot of questions.</p>
+<p>Leave &#8217;em here. Please include your city.</p>
+`\
+https://nytimes.com/athletic/6851432/2025/12/01/submit-a-question-for-stewart-mandels-college-football-mailbag-325/
+
 **The New York Times in Print for Monday, Dec. 1, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/12/01/todays-new-york-times
