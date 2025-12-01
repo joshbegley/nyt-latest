@@ -1,3 +1,23 @@
+**gws-art-sculpture-parks**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/art-sculpture-parks
+
+**It’s Your Duty to Pay the Duty: Buyers Hit With Extra Charges on Packages**\
+`The end of a tariff exemption on goods worth $800 or less has left some U.S. shoppers with an extra shipping bill that must be paid before delivery.`\
+https://nytimes.com/2025/12/01/business/tariffs-customs-retail-shopping.html
+
+**The Bounce: Cooper Flagg is figuring it out, and SGA is breaking records**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/6852109/2025/12/01/the-bounce-cooper-flagg-shai-gilgeous-alexander/
+
+**Lowetide: Have the Oilers finally found a winning formula?**\
+`If the Oilers continue to play with structure and responsibility, the last hurdle will be in goal.`\
+https://nytimes.com/athletic/6849486/2025/12/01/edmonton-oilers-stats-standings-scores-2025/
+
+**gws-navajo-tourism-monument-valley**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/navajo-tourism-monument-valley
+
 **Food Destinations**\
 ``\
 https://nytimes.com/spotlight/food-destinations
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6850439/2025/12/01/fantasy-hockey-sleepers-trends-h
 **A 5-15 Clippers start and one of the worst months in franchise history: 20 thoughts**\
 `The Clippers are 5-15 entering the month of December and coming off arguably one of their worst months of their franchise's history.`\
 https://nytimes.com/athletic/6848751/2025/12/01/clippers-standings-record/
-
-**Turns out, an airball can be a catalyst for a Lakers win**\
-`Maxi Kleber's unusual miss provided a good laugh for the Lakers — and was just what they needed Sunday.`\
-https://nytimes.com/athletic/6851513/2025/12/01/lakers-win-maxi-kleber-layup/
-
-**Floods Have Killed at Least 1,200 in Southern Asia. Here’s What to Know.**\
-`Hundreds more were still missing and millions have been displaced in the rain-drenched region, with Sri Lanka and Indonesia hit particularly hard.`\
-https://nytimes.com/2025/12/01/world/asia/flooding-sri-lanka-indonesia-thailand-vietnam-cyclone-rain.html
-
-**USMNT Player Tracker: Pulisic caution, Adams' wondergoal, Balogun's Monaco beat PSG**\
-`Some unusual occurrences this week with USMNT and Milan seemingly on the same page about Pulisic. Plus, a rare (stunning) goal for Adams...`\
-https://nytimes.com/athletic/6851787/2025/12/01/usmnt-world-cup-pulisic-adams-goal/
-
-**Ukraine Is Not a War of Attrition. It Is a War of Will.**\
-`Victory will belong not to the side with more resources, but to the side with the stronger, more adaptive and unyielding will to win.`\
-https://nytimes.com/2025/12/01/opinion/ukraine-war-peace-negotiations.html
-
-**Sean Combs Had a Camera Follow Him. 50 Cent Has the Footage.**\
-`The mogul’s spokesman said he was “deeply concerned” that video shot days before Mr. Combs’s 2024 arrest appears in a new documentary series produced by his rival.`\
-https://nytimes.com/2025/12/01/arts/music/sean-combs-diddy-50-cent-documentary.html
 

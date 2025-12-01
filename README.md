@@ -1,3 +1,7 @@
+**Move Over, Computer Science. Students Are Flocking to New A.I. Majors.**\
+`At M.I.T., a new program called “artificial intelligence and decision-making” is now the second-most-popular undergraduate major.`\
+https://nytimes.com/2025/12/01/technology/college-computer-science-ai-boom.html
+
 **gws-art-sculpture-parks**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/art-sculpture-parks
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/01/nyregion/alina-habba-unlawful.html
 **Fantasy trends and hidden gems: Dawson Mercer, Tyler Seguin on the rise**\
 `As the dust settles on a chaotic holiday week schedule, Shayna Goldman looks at the top players to target on the fantasy hockey waiver wire.`\
 https://nytimes.com/athletic/6850439/2025/12/01/fantasy-hockey-sleepers-trends-hidden-gems-week9/
-
-**A 5-15 Clippers start and one of the worst months in franchise history: 20 thoughts**\
-`The Clippers are 5-15 entering the month of December and coming off arguably one of their worst months of their franchise's history.`\
-https://nytimes.com/athletic/6848751/2025/12/01/clippers-standings-record/
 

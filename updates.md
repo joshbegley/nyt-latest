@@ -1,3 +1,23 @@
+**gws-art-sculpture-parks**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/art-sculpture-parks
+
+**It’s Your Duty to Pay the Duty: Buyers Hit With Extra Charges on Packages**\
+`The end of a tariff exemption on goods worth $800 or less has left some U.S. shoppers with an extra shipping bill that must be paid before delivery.`\
+https://nytimes.com/2025/12/01/business/tariffs-customs-retail-shopping.html
+
+**The Bounce: Cooper Flagg is figuring it out, and SGA is breaking records**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/6852109/2025/12/01/the-bounce-cooper-flagg-shai-gilgeous-alexander/
+
+**Lowetide: Have the Oilers finally found a winning formula?**\
+`If the Oilers continue to play with structure and responsibility, the last hurdle will be in goal.`\
+https://nytimes.com/athletic/6849486/2025/12/01/edmonton-oilers-stats-standings-scores-2025/
+
+**gws-navajo-tourism-monument-valley**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/navajo-tourism-monument-valley
+
 **Food Destinations**\
 ``\
 https://nytimes.com/spotlight/food-destinations
