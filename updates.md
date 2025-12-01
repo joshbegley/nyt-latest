@@ -1,3 +1,11 @@
+**NBA Rewind: The Thunder will lose again sometime, right?**\
+`Plus: Who's hot (Lakers) and not (Bucks) as NBA Cup elimination games are set. `\
+https://nytimes.com/athletic/6847938/2025/12/01/nba-rewind-thunder-nba-cup-cooper-flagg/
+
+**Taking Steps Towards a Future Free from HIV**\
+`Taking PrEP (pre-exposure prophylaxis) before exposure can help prevent HIV.`\
+https://nytimes.com/paidpost/gilead/prevention-matters/prevention-matters.html
+
 **How imperfect Manchester United turned their fortunes around at Selhurst Park**\
 `Ruben Amorim's side initially failed but then succeeded at manipulating Crystal Palace's defence in Sunday's game`\
 https://nytimes.com/athletic/6851604/2025/12/01/manchester-united-tactics-crystal-palace/

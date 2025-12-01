@@ -1,10 +1,14 @@
+**NBA Rewind: The Thunder will lose again sometime, right?**\
+`Plus: Who's hot (Lakers) and not (Bucks) as NBA Cup elimination games are set. `\
+https://nytimes.com/athletic/6847938/2025/12/01/nba-rewind-thunder-nba-cup-cooper-flagg/
+
 **How imperfect Manchester United turned their fortunes around at Selhurst Park**\
 `Ruben Amorim's side initially failed but then succeeded at manipulating Crystal Palace's defence in Sunday's game`\
 https://nytimes.com/athletic/6851604/2025/12/01/manchester-united-tactics-crystal-palace/
 
 **Taking Steps Towards a Future Free from HIV**\
 `Taking PrEP (pre-exposure prophylaxis) before exposure can help prevent HIV.`\
-https://nytimes.com/paidpost/gilead/prevention-matters/taking-steps-towards-a-future-free-from-hiv.html
+https://nytimes.com/paidpost/gilead/prevention-matters/prevention-matters.html
 
 **NC State, Virginia opening 2026 season in Rio de Janeiro**\
 `College football has been embracing more international events in recent years.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/01/business/dealbook/openai-thrive-holdings-ai.html
 **Forest edge closer to redeveloped City Ground after announcing fan consultation**\
 `Forest are expected to deliver all the planning documents to the local authority, Rushcliffe Borough Council, on December 15.`\
 https://nytimes.com/athletic/6851815/2025/12/01/nottingham-forest-city-ground-redeveloped-plans/
-
-**The Athletic 136: A final word on Miami, Notre Dame and everyone else**\
-`Miami and Notre Dame are even across many metrics — except for one that matters the most. `\
-https://nytimes.com/athletic/6851450/2025/12/01/college-football-team-rankings-notre-dame-miami/
 
