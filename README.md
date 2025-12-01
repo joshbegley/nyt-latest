@@ -1,3 +1,31 @@
+**Ben Johnson’s Bears sit atop the NFC. How good are they? How high can they climb? — Pick Six**\
+`Chicago is the current No. 1 seed in the NFC and at 9-3 has surpassed their preseason Vegas win total with five games to play.`\
+https://nytimes.com/athletic/6832680/2025/12/01/bears-ben-johnson-caleb-williams-nfc/
+
+**The Panthers are winning, and David Tepper has become invisible. Coincidence?**\
+`Carolina could have its first winning season since Tepper became owner in 2018, and the owner is less visible than ever.`\
+https://nytimes.com/athletic/6851536/2025/12/01/panthers-owner-david-tepper-rams-win/
+
+**Could Pete Carroll be one-and-done with the Raiders? Let's read between the lines**\
+`(Editor’s note: This is excerpted from Mike Sando’s Pick Six of Dec.`\
+https://nytimes.com/athletic/6851551/2025/12/01/pete-carroll-raiders-chip-kelly-job-security/
+
+**What we learned in NFL Week 13: Panthers stun, Steelers look out of answers**\
+`The Bears can't stop winning, the Bills rebounded in a big way and the Colts' schedule is only getting harder from here.`\
+https://nytimes.com/athletic/6850897/2025/12/01/nfl-week-13-takeaways-panthers-steelers-bears/
+
+**Can anyone unseat Anthony Rendon for baseball's worst contract? Ranking MLB's ugliest deals**\
+`Some of the biggest names in baseball also have some of its most onerous contracts. `\
+https://nytimes.com/athletic/6833708/2025/12/01/mlb-worst-contracts-2025-rendon-bryant/
+
+**Inside the Bird-Flu Vaccine Trial for Monk Seals**\
+`After the virus returned to Hawaii this fall, testing the shots in the endangered seal species became urgent.`\
+https://nytimes.com/2025/12/01/science/hawaii-bird-flu-h5n1-monk-seals.html
+
+**The New York Times International Edition in Print for Tuesday, Dec. 2, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/12/01/todays-new-york-times-international-edition
+
 **Andy Murray interview: Life after tennis, coaching Novak Djokovic and facing the Big Three**\
 `Murray spoke to the Tennis Podcast about regrets, his experience working with the 24-time Grand Slam champion and Monopoly with his kids.`\
 https://nytimes.com/athletic/6844610/2025/12/01/andy-murray-tennis-career-retirement/
@@ -9,32 +37,4 @@ https://nytimes.com/2025/12/01/dining/drinks/wine-books.html
 **Supreme Court to Hear Copyright Battle Over Online Music Piracy**\
 `At issue is whether internet providers can be held liable for repeated copyright infringements of users, with potentially billions of dollars on the line.`\
 https://nytimes.com/2025/12/01/us/politics/supreme-court-copyright-music-piracy.html
-
-**Can I Wear Shearling if I Don’t Want to Wear Fur?**\
-`Celebrities, magazines and retail stores say yes. But are we all fooling ourselves?`\
-https://nytimes.com/2025/12/01/fashion/fur-shearling.html
-
-**Farewell to the Beloved Friend in My Window**\
-`Winter won’t hold forever, and when it comes, a spider will disappear from the corner where she has made her home.`\
-https://nytimes.com/2025/12/01/opinion/spiders-seasons-winter.html
-
-**Best Clothing Stores in the Country**\
-`We selected the 50 best clothing stores in the United States. Five reporters from The New York Times Style section describe how we chose them.`\
-https://nytimes.com/video/style/100000010549714/best-clothing-stores-in-the-country.html
-
-**This Holiday Season, Give the Gift That Keeps on Sniffing**\
-`A North Carolina organization delivers salvation on four legs.`\
-https://nytimes.com/2025/12/01/opinion/charity-holiday-gift-eyes-ears-nose-paws.html
-
-**Does Listening to an Audiobook Count as Reading?**\
-`Is it a valid way to consume literature or is it a kind of cheating?`\
-https://nytimes.com/2025/12/01/learning/does-listening-to-an-audiobook-count-as-reading.html
-
-**What Jamaica Wants After Deadly Hurricane? ‘Visit Us,’ Island Says.**\
-`Tourism accounts for nearly a third of Jamaica’s economy, so officials are rushing to reopen dozens of hotels in time to salvage the vital winter travel season.`\
-https://nytimes.com/2025/12/01/us/hurricane-jamaica-tourism.html
-
-**On the Eve of Art Basel Miami Beach, a Case of the Jitters**\
-`Fourteen galleries pulled out of the fair this year, while others chose to stay and embrace the art fray. “It’s a good opportunity to be bold,” says one dealer.`\
-https://nytimes.com/2025/12/01/arts/design/art-basel-miami-beach-fair-galleries.html
 
