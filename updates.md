@@ -1,3 +1,7 @@
+**Shedeur Sanders explains exchange with Jerry Jeudy: 'We're going to have sparks'**\
+`The Browns' rookie quarterback and his wide receiver teammate had a heated exchange during Sunday's loss to the 49ers.`\
+https://nytimes.com/athletic/6850815/2025/11/30/shedeur-sanders-jerry-jeudy-browns-sideline/
+
 **Panthers Upset Rams to Shake Up N.F.C. Playoff Picture**\
 `Carolina Panthers quarterback Bryce Young threw three touchdown passes. The Panthers also forced three turnovers from Los Angeles Rams quarterback Matthew Stafford, earning a 31-28 victory.`\
 https://nytimes.com/video/the-athletic/100000010556030/panthers-upset-rams-to-shake-up-nfc-playoff-picture.html

@@ -1,3 +1,7 @@
+**‘It: Welcome to Derry’ Season 1, Episode 6 Recap: Daddy’s Little Girl**\
+`Ingrid’s connection to the evil entity known as It is revealed, among other dangerous secrets.`\
+https://nytimes.com/2025/11/30/arts/television/it-welcome-to-derry-recap-season-1-episode-6.html
+
 **Shedeur Sanders explains exchange with Jerry Jeudy: 'We're going to have sparks'**\
 `The Browns' rookie quarterback and his wide receiver teammate had a heated exchange during Sunday's loss to the 49ers.`\
 https://nytimes.com/athletic/6850815/2025/11/30/shedeur-sanders-jerry-jeudy-browns-sideline/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6850823/2025/11/30/troy-vs-james-madison-stream-how
 **Feisty Bedard propels Blackhawks to comeback win over Ducks**\
 `Connor Bedard had four points and plenty of fire on the ice against the Ducks in a matchup that could become a Western rivalry.`\
 https://nytimes.com/athletic/6850032/2025/11/30/blackhawks-bedard-trash-talk-ducks/
-
-**How to watch Cowboys vs. Lions: Time, TV, streaming**\
-`Find out how to watch the Dallas Cowboys play the Detroit Lions, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6850746/2025/11/30/cowboys-vs-lions-stream-how-to-watch-dec-4/
 
