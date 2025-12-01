@@ -1,3 +1,7 @@
+**Honduras Votes in Presidential Election**\
+`Hondurans cast their ballots in Sunday’s presidential elections. The race was tense even before President Trump got involved, endorsing one of the right-wing candidates.`\
+https://nytimes.com/video/world/americas/100000010556062/honduras-election.html
+
 **Word of the Day: halcyon**\
 `This word has appeared in 53 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/12/01/learning/word-of-the-day-halcyon.html
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/6851155/2025/12/01/pittsburgh-steelers-fire-tomlin-
 **Welcome to the Twilight Zone: What makes pink-ball, day-night cricket so different — and difficult?**\
 `The Brisbane Test poses particular challenges, from the significance of the toss to the glare of the floodlights and suspicions of the ball`\
 https://nytimes.com/athletic/6831244/2025/12/01/ashes-pink-ball-brisbane-australia-england/
-
-**NFL playoff picture, Week 13: Bears surge to top of NFC; Colts plummet in AFC**\
-`The race for the No. 1 seed in the NFC is tight, with four teams tied at nine wins. In the AFC, the Broncos and Patriots are pulling away.`\
-https://nytimes.com/athletic/6840554/2025/12/01/nfl-playoff-picture-week-13-bears-colts/
 
