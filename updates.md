@@ -1,3 +1,7 @@
+**Shedeur Sanders, after exchange with Jerry Jeudy: ‘We’re going to have sparks’**\
+`The Browns' rookie quarterback and his wide receiver teammate had a heated exchange during Sunday's loss to the 49ers.`\
+https://nytimes.com/athletic/6850815/2025/11/30/shedeur-sanders-jerry-jeudy-browns-sideline/
+
 **Seahawks' dominant defense hits new milestone vs. Vikings, as path to NFC's top seed widens**\
 `As good as Mike Macdonald's defense has been, it hadn't notched a shutout before Sunday against Minnesota.`\
 https://nytimes.com/athletic/6850918/2025/11/30/seahawks-vikings-defense-shutout-ernest-jones/
