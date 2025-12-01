@@ -1,40 +1,40 @@
-**UEFA held meetings with pro-Palestinian campaign over possible Israel ban after ceasefire**\
-`UEFA has been under pressure to call a vote on Israel’s ongoing participation in European football.`\
-https://nytimes.com/athletic/6833173/2025/12/01/uefa-israel-football-ban-ceasefire/
+**Giants at Patriots on MNF: Storylines, odds and Drake Maye's MVP campaign**\
+`Here's our "Monday Night Football" broadcast preview, with Giants-Patriots matchup info and frivolities.`\
+https://nytimes.com/athletic/6840661/2025/12/01/giants-patriots-drake-maye-mnf-how-to-watch/
 
-**Netanyahu, Seeking a Pardon, Borrows From a Familiar Playbook**\
-`In many ways, Prime Minister Benjamin Netanyahu’s request mimics how President Trump has assailed his perceived enemies and attacked legal proceedings against him.`\
-https://nytimes.com/2025/12/01/world/middleeast/netanyahu-pardon-corruption-israel-trump.html
+**The Commanders went for the win and lost, but it reminded them of who they were, and could be again**\
+`If the Commanders are ever going to get their swagger back, it will come from an attitude like their coach displayed in OT.`\
+https://nytimes.com/athletic/6850985/2025/12/01/commanders-lose-go-for-two-broncos-snf/
 
-**Zelensky Turns to Europe After Talks With U.S. Officials**\
-`Ukraine’s president met with President Emmanuel Macron of France on Monday as Steve Witkoff, President Trump’s special envoy, travels to Russia.`\
-https://nytimes.com/2025/12/01/world/europe/zelensky-ukraine-paris-putin-witkoff.html
+**Answering your questions about the soccer World Cup**\
+`Not sure about what to expect from a soccer World Cup in North America? Here's everything we think you need to know`\
+https://nytimes.com/athletic/6822692/2025/12/01/world-cup-draw-2026-explainer/
 
-**What Bills' historic, emotional win with two backup linemen, zero sacks says about them**\
-`Facing an urgent situation without some key players, the Bills showed up in a big way.`\
-https://nytimes.com/athletic/6851202/2025/12/01/bills-steelers-offensive-line-history/
+**NHL weekend rankings: Early offseason lessons, plus three teams with surprise arcs**\
+`Somehow it's December, which means it's not too early anymore but maybe still a bit early to check in on some offseason moves.`\
+https://nytimes.com/athletic/6850779/2025/12/01/nhl-weekend-rankings-offseason-lessons-wild-sharks-oilers/
 
-**Inside Real Madrid: Differences in the dressing room, difficulties facing Xabi Alonso**\
-`Real Madrid are without a win in their past three La Liga matches, and Barcelona now lead the table`\
-https://nytimes.com/athletic/6851632/2025/12/01/real-madrid-xabi-alonso-la-liga-girona-news/
+**Canadiens weekly notebook: Zack Bolduc’s new role, Sam Montembeault’s big moment**\
+`Also in this week's notebook, as the Canadiens continue the busiest part of their schedule, can Martin St. Louis afford to look short-term?`\
+https://nytimes.com/athletic/6851382/2025/12/01/canadiens-weekly-notebook-zack-bolducs-new-role-sam-montembeaults-big-moment/
 
-**Ben Johnson’s Bears sit atop the NFC. How good are they? How high can they climb? — Pick Six**\
-`Chicago is the current No. 1 seed in the NFC and at 9-3 has surpassed their preseason Vegas win total with five games to play.`\
-https://nytimes.com/athletic/6832680/2025/12/01/bears-ben-johnson-caleb-williams-nfc/
+**The 1994 World Cup draw: FIFA’s Vegas show that ‘will never be matched’**\
+`The indelible scenes and stories from those who planned and participated in a norm-shattering few days in Las Vegas`\
+https://nytimes.com/athletic/6836665/2025/12/01/1994-world-cup-draw-fifa-las-vegas-sepp-blatter/
 
-**The Panthers are winning, and David Tepper has become invisible. Coincidence?**\
-`Carolina could have its first winning season since Tepper became owner in 2018, and the owner is less visible than ever.`\
-https://nytimes.com/athletic/6851536/2025/12/01/panthers-owner-david-tepper-rams-win/
+**Chris Finch's lineup gamble pays off in Timberwolves' best win of season**\
+`A lineup that had played together only 15 minutes before Sunday sparked an impressive victory over the Spurs. `\
+https://nytimes.com/athletic/6850571/2025/12/01/timberwolves-get-best-win-of-season-as-chris-finchs-lineup-gamble-pays-off/
 
-**Could Pete Carroll be one-and-done with the Raiders? Let's read between the lines**\
-`(Editor’s note: This is excerpted from Mike Sando’s Pick Six of Dec.`\
-https://nytimes.com/athletic/6851551/2025/12/01/pete-carroll-raiders-chip-kelly-job-security/
+**Joel Embiid returns, but Sixers need more in heartbreaking double-OT loss to Hawks**\
+`Despite a loss that ticked off the Sixers' players, almost to a man, Embiid's presence constituted a good thing.`\
+https://nytimes.com/athletic/6851100/2025/12/01/joel-embiid-returns-76ers-double-ot-loss-hawks/
 
-**What we learned in NFL Week 13: Panthers stun, Steelers look out of answers**\
-`The Bears can't stop winning, the Bills rebounded in a big way and the Colts' schedule is only getting harder from here.`\
-https://nytimes.com/athletic/6850897/2025/12/01/nfl-week-13-takeaways-panthers-steelers-bears/
+**The Senators' goaltending is turning a corner. So, how much should they be playing? Notebook**\
+`Also, a check-in with Senators goaltending prospect Jackson Parsons who grew up a fan of the team thanks to Andrew Hammond.`\
+https://nytimes.com/athletic/6842616/2025/12/01/senators-goaltending-ullmark-merilainen-peters/
 
-**Can anyone unseat Anthony Rendon for baseball's worst contract? Ranking MLB's ugliest deals**\
-`Some of the biggest names in baseball also have some of its most onerous contracts. `\
-https://nytimes.com/athletic/6833708/2025/12/01/mlb-worst-contracts-2025-rendon-bryant/
+**An upset of Patriots is Giants' interim Mike Kafka's last, best hope of earning full-time job**\
+`Kafka needs a meaningful win to convince ownership that he's the right coach to lead New York into the future.`\
+https://nytimes.com/athletic/6848093/2025/12/01/ny-giants-mike-kafka-interim-patriots/
 
