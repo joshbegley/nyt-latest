@@ -1,3 +1,7 @@
+**For ‘No Tax on Tips,’ the I.R.S. Gets Intimate**\
+`The Trump administration wants to exclude earnings from “pornographic activity” from a new tax break for tips. Will the I.R.S. know it when it sees it?`\
+https://nytimes.com/2025/12/01/us/politics/for-no-tax-on-tips-the-irs-gets-intimate.html
+
 **Two Galleries Form New Art Prize**\
 `The FLAG Art Foundation in New York and Serpentine in London have established a 1 million British pound award for five artists.`\
 https://nytimes.com/2025/12/01/arts/design/flag-art-foundation-serpentine-prize.html
@@ -33,8 +37,4 @@ https://nytimes.com/newsgraphics/card-story/navajo-tourism-monument-valley
 **Food Destinations**\
 ``\
 https://nytimes.com/spotlight/food-destinations
-
-**Blues' Snuggerud out long term, Toropchenko to miss weeks; Kaskimaki recalled: What it means**\
-`This is a significant blow for the Blues, who have won two straight games for just the second time this season.`\
-https://nytimes.com/athletic/6852032/2025/12/01/blues-snuggerud-toropchenko-injuries/
 
