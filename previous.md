@@ -1,3 +1,7 @@
+**Mercedes to write to FIA over online abuse directed at Kimi Antonelli after Qatar GP**\
+`Antonelli received online abuse after a mistake allowed Lando Norris to overtake him on the final lap of the race.`\
+https://nytimes.com/athletic/6851809/2025/12/01/kimi-antonelli-mercedes-abuse-qatar-gp-f1/
+
 **'Colors don't define genders': Brazilian soccer coach apologises after homophobic remark**\
 `The 73-year-old head coach said: "I don’t want my f---ing team wearing a pink kit. It looks like a f----t team."`\
 https://nytimes.com/athletic/6851679/2025/12/01/brazil-abel-braga-homophobic/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6850596/2025/12/01/max-verstappen-f1-championship-q
 **Markets Defy the White House**\
 `Volatility has returned to stocks and crypto trading, despite assurances from a top administration official, as investors brace for more data on consumers.`\
 https://nytimes.com/2025/12/01/business/dealbook/stocks-crypto-consumer-data.html
-
-**Sanchez is looking like a reliable No 1 for Chelsea – he's cut out the sloppy mistakes**\
-`It is hard to see how other options would be doing better than the Spanish goalkeeper`\
-https://nytimes.com/athletic/6850736/2025/12/01/robert-sanchez-chelsea-analysis/
 
