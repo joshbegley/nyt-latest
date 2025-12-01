@@ -1,3 +1,11 @@
+**The Pulse: Lane Kiffin’s place in history**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6851004/2025/12/01/lane-kiffin-lsu-ole-miss-coaching-carousel-the-pulse/
+
+**Nicola Pietrangeli, giant of Italian tennis, dies aged 92**\
+`Pietrangeli, who won two French Open titles, was an avatar for Italian tennis throughout his career.`\
+https://nytimes.com/athletic/6851681/2025/12/01/nicola-pietrangeli-tennis-obituary/
+
 **Giants at Patriots on MNF: Storylines, odds and Drake Maye's MVP campaign**\
 `Here's our "Monday Night Football" broadcast preview, with Giants-Patriots matchup info and frivolities.`\
 https://nytimes.com/athletic/6840661/2025/12/01/giants-patriots-drake-maye-mnf-how-to-watch/
