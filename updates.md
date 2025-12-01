@@ -1,3 +1,15 @@
+**How two old Jets and one breakout performance got Aaron Glenn a third win**\
+`The Jets showed more signs of growth in Sunday's victory over the Atlanta Falcons.`\
+https://nytimes.com/athletic/6850764/2025/11/30/new-york-jets-win-atlanta-falcons/
+
+**How to watch North Texas vs. Tulane: AAC Championship Time, TV, streaming**\
+`Find out how to watch the North Texas Mean Green play the Tulane Green Wave, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6850825/2025/11/30/north-texas-vs-tulane-stream-how-to-watch-dec-5/
+
+**How to watch Troy vs. James Madison: Sun Belt Championship Time, TV, streaming**\
+`Find out how to watch the Troy Trojans play the James Madison Dukes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6850823/2025/11/30/troy-vs-james-madison-stream-how-to-watch-dec-5/
+
 **Feisty Bedard propels Blackhawks to comeback win over Ducks**\
 `Connor Bedard had four points and plenty of fire on the ice against the Ducks in a matchup that could become a Western rivalry.`\
 https://nytimes.com/athletic/6850032/2025/11/30/blackhawks-bedard-trash-talk-ducks/

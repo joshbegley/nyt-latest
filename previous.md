@@ -1,3 +1,15 @@
+**How two old Jets and one breakout performance got Aaron Glenn a third win**\
+`The Jets showed more signs of growth in Sunday's victory over the Atlanta Falcons.`\
+https://nytimes.com/athletic/6850764/2025/11/30/new-york-jets-win-atlanta-falcons/
+
+**How to watch North Texas vs. Tulane: AAC Championship Time, TV, streaming**\
+`Find out how to watch the North Texas Mean Green play the Tulane Green Wave, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6850825/2025/11/30/north-texas-vs-tulane-stream-how-to-watch-dec-5/
+
+**How to watch Troy vs. James Madison: Sun Belt Championship Time, TV, streaming**\
+`Find out how to watch the Troy Trojans play the James Madison Dukes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6850823/2025/11/30/troy-vs-james-madison-stream-how-to-watch-dec-5/
+
 **Feisty Bedard propels Blackhawks to comeback win over Ducks**\
 `Connor Bedard had four points and plenty of fire on the ice against the Ducks in a matchup that could become a Western rivalry.`\
 https://nytimes.com/athletic/6850032/2025/11/30/blackhawks-bedard-trash-talk-ducks/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6850555/2025/11/30/panthers-beat-rams-derrick-brown
 **Shedeur Sanders deserves more time. The rest of the Browns' operation does not**\
 `While Sanders had some moments, the loss to the 49ers was a crash back to reality after the Browns feasted on the Raiders in Week 12. `\
 https://nytimes.com/athletic/6850509/2025/11/30/shedeur-sanders-starter-browns-team-failures/
-
-**Raiders-Chargers takeaways: L.A. rolls, but Herbert needs procedure on hand**\
-`Chargers bounce back after blowout loss to Jaguars, rushing for 192 yards vs. Raiders.`\
-https://nytimes.com/athletic/6850239/2025/11/30/raiders-chargers-score-result-takeaways-nfl-week-13/
-
-**Vikings-Seahawks takeaways: Seattle defense suffocates Minnesota in shutout**\
-`The Seahawks exploited Vikings undrafted rookie QB Max Brosmer and dominated Minnesota for their first shutout victory since 2015.`\
-https://nytimes.com/athletic/6850400/2025/11/30/vikings-seahawks-score-result-takeaways-nfl-week-13/
-
-**Ex-NU coach Pat Fitzgerald returns to CFB as Michigan State head coach**\
-`NU settled a wrongful termination lawsuit with Fitzgerald in August, after firing him in 2023 over hazing allegations in the program.`\
-https://nytimes.com/athletic/6850235/2025/11/30/michigan-state-head-coach-hiring-pat-fitzgerald-northwestern/
 
