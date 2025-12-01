@@ -1,3 +1,7 @@
+**Vikings waive veteran WR Adam Thielen after he requested release**\
+`The Vikings agreed to waive the veteran wideout, who is in search of more playing time elsewhere as he nears the end of his final season.`\
+https://nytimes.com/athletic/6852607/2025/12/01/adam-thielen-vikings-waived-release/
+
 **Michael Bradley frontrunner to become Red Bulls coach; more MLS notes**\
 `After guiding Red Bulls II to the MLS Next Pro title, Bradley is in line for an instant promotion, sources tell The Athletic`\
 https://nytimes.com/athletic/6852191/2025/12/01/michael-bradley-new-york-red-bulls-coach-mls-news/
@@ -33,8 +37,4 @@ https://nytimes.com/newsgraphics/card-story/typewriter-repair-seattle-bremerton
 **Giants not inclined to spend what it takes to sign Tatsuya Imai: Sources**\
 `A detailed look at why the Giants aren't looking to sign the 27-year-old Japanese righty or any of the other top starters on the market.`\
 https://nytimes.com/athletic/6852286/2025/12/01/sf-giants-tatsuya-imai-payroll/
-
-**Read the ruling**\
-`A federal appeals court ruled that Alina Habba has been serving unlawfully as U.S. attorney in New Jersey.`\
-https://nytimes.com/interactive/2025/12/01/us/habba-appeal.html
 
