@@ -1,3 +1,11 @@
+**Panthers' D was missing 3 starters, but still had Derrick Brown — and he saved the game**\
+`Thanks to the biggest play of Derrick Brown's NFL career, the Panthers enter their bye week in the middle of the playoff hunt.`\
+https://nytimes.com/athletic/6850555/2025/11/30/panthers-beat-rams-derrick-brown-playoffs/
+
+**Shedeur Sanders deserves more time. The rest of the Browns' operation does not**\
+`While Sanders had some moments, the loss to the 49ers was a crash back to reality after the Browns feasted on the Raiders in Week 12. `\
+https://nytimes.com/athletic/6850509/2025/11/30/shedeur-sanders-starter-browns-team-failures/
+
 **Raiders-Chargers takeaways: Kimani Vidal, ground attack lead L.A. rout**\
 `Chargers bounce back after blowout loss to Jaguars, rushing for 192 yards vs. Raiders.`\
 https://nytimes.com/athletic/6850239/2025/11/30/raiders-chargers-score-result-takeaways-nfl-week-13/
