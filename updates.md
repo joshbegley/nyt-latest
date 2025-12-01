@@ -1,3 +1,7 @@
+**Honduras Votes in Presidential Election**\
+`Hondurans cast their ballots in Sunday’s presidential elections. The race was tense even before President Trump got involved, endorsing one of the right-wing candidates.`\
+https://nytimes.com/video/world/americas/100000010556062/honduras-election.html
+
 **Word of the Day: halcyon**\
 `This word has appeared in 53 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/12/01/learning/word-of-the-day-halcyon.html
