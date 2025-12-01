@@ -1,3 +1,7 @@
+**Sri Lanka Declares ‘Largest’ Disaster as Cyclone Kills 355**\
+`The president called the nationwide flooding the largest and most challenging natural disaster in the island’s history, as emergency rescue efforts continue.`\
+https://nytimes.com/2025/12/01/world/asia/sri-lanka-floods-cyclone.html
+
 **Submit a question for Stewart Mandel's College Football Mailbag**\
 `<p>A season-long CFP race and nearly season-long coaching carousel converged all at once this week. My guess is you have a lot of questions.</p>
 <p>Leave &#8217;em here. Please include your city.</p>
