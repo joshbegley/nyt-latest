@@ -1,3 +1,19 @@
+**FPL GW13 review and GW14 preview: Selling Salah and Sarr, another Haaland blank**\
+`As we edge deeper into festive congestion, FPL managers are being forced to navigate surprise benchings and re-evaluate captaincy options`\
+https://nytimes.com/athletic/6850085/2025/12/01/fantasy-premier-league-fpl-tips-gameweek-14-salah/
+
+**Terry Rozier clears $8.2M tax lien, will be arraigned on gambling charges next Monday**\
+`Terry Rozier will make his first court appearance next Monday after he was charged as part of a federal investigation into illegal gambling.`\
+https://nytimes.com/athletic/6852288/2025/12/01/nba-gambling-terry-rozier-taxes-court/
+
+**Nathan Lane and Laurie Metcalf to Star in Broadway ‘Salesman’**\
+`Joe Mantello will direct the next revival of Arthur Miller’s “Death of a Salesman,” opening in April at the Winter Garden Theater.`\
+https://nytimes.com/2025/12/01/theater/death-of-a-salesman-broadway-lane-metcalf.html
+
+**13 Plays (and 2 Festivals) to Invigorate Your December**\
+`Michelle Williams leads an O’Neill drama, Matthew Broderick stars in Molière, and plenty of stages brim with non-holiday fare, Off Broadway and beyond.`\
+https://nytimes.com/2025/12/01/theater/plays-off-broadway-michelle-williams-matthew-broderick.html
+
 **Submit a question for Week 14 NFL survivor pool help**\
 `Put your NFL survivor pool questions here and our experts will answer them in this week's column.`\
 https://nytimes.com/athletic/6852467/2025/12/01/nfl-survivor-pool-mailbag-week-14/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6850014/2025/12/01/2025-heisman-trophy-odds-mendoza
 **At This Event, Brides Traded Gowns Instead of Buying New Ones**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/brooklyn-bride-swap-wedding-dresses
-
-**Araujo granted Barcelona leave of absence after talks with club**\
-`The 26-year-old was not part of the Barca matchday squad for Saturday's 3-1 league home win over Alaves on Saturday.`\
-https://nytimes.com/athletic/6852334/2025/12/01/ronald-araujo-barcelona-absence/
-
-**Nice players physically assaulted in confrontation with hundreds of fans**\
-`After Sunday's 3-1 loss around 400 Nice supporters gathered at the club’s training ground.`\
-https://nytimes.com/athletic/6852320/2025/12/01/nice-players-assaulted-fans-training-ground/
-
-**How to watch Penguins vs. Flyers: Time, TV, streaming**\
-`Find out how to watch the Pittsburgh Penguins play the Philadelphia Flyers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6852414/2025/12/01/penguins-vs-flyers-stream-how-to-watch-dec-1/
-
-**How to watch Cavaliers vs. Pacers: Time, TV, streaming**\
-`Find out how to watch the Cleveland Cavaliers play the Indiana Pacers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6852412/2025/12/01/cavaliers-vs-pacers-stream-how-to-watch-dec-1/
 
