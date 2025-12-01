@@ -1,3 +1,11 @@
+**Colts were on wrong end of a bad call, but don't pretend it's the only reason they lost**\
+`For as bad as the pass interference call was, the Colts had plenty of chances to negate its effect, and failed to do so. `\
+https://nytimes.com/athletic/6850794/2025/11/30/colts-officials-pass-interference-texans-loss/
+
+**Kentucky firing Mark Stoops, winningest football coach in school history: Source**\
+`The Wildcats had a great run under a portion of Stoops' tenure but have looked dreadful recently. `\
+https://nytimes.com/athletic/6850800/2025/11/30/mark-stoops-firing-kentucky-football/
+
 **Kentucky firing Mark Stoops, winningest coach in school history: Source**\
 `The Wildcats had a great run under a portion of Stoops' tenure but have looked dreadful recently. `\
 https://nytimes.com/athletic/6850800/2025/11/30/mark-stoops-firing-kentucky-football/
