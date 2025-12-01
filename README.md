@@ -35,6 +35,6 @@ https://nytimes.com/athletic/6850831/2025/11/30/iowa-state-audi-crooks-record-po
 https://nytimes.com/athletic/6850380/2025/11/30/rams-matthew-stafford-loss-panthers/
 
 **Big games by Payton Pritchard and Jaylen Brown lead Celtics past Cavaliers**\
-`Payton Pritchard scored a season-high 42 points and Jaylen Brown recorded a triple-double Sunday as the Celtics held off the Cavaliers.`\
+`Pritchard scored a season-high 42 points and Brown recorded a triple-double Sunday as the Celtics held off the Cavaliers.`\
 https://nytimes.com/athletic/6850792/2025/11/30/celtics-brown-triple-double-pritchard-40-points/
 
