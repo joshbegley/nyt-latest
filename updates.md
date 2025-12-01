@@ -1,3 +1,11 @@
+**Lane Kiffin's LSU contract: $13 million per year, bonus for Ole Miss CFP success**\
+`Louisiana Gov. Jeff Landry railed against Brian Kelly’s exorbitant contract. Now LSU is giving Lane Kiffin a more lucrative one.`\
+https://nytimes.com/athletic/6852863/2025/12/01/lane-kiffin-lsu-contract-details/
+
+**Newcastle's Wissa left out of DR Congo AFCON squad**\
+`Wissa, who joined Newcastle from Brentford in the summer, is yet to make his debut for his new side due to a knee injury.`\
+https://nytimes.com/athletic/6852856/2025/12/01/newcastle-news-dr-congo-wissa-afcon/
+
 **Nebraska fires DC John Butler after sluggish finish to season**\
 `The coaching change comes on the heels of two blowout defeats to finish the regular season.`\
 https://nytimes.com/athletic/6852857/2025/12/01/nebraska-fires-john-butler/
