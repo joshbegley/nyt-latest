@@ -1,3 +1,7 @@
+**Sri Lanka Declares ‘Largest’ Disaster as Cyclone Kills 355**\
+`The president called the nationwide flooding the largest and most challenging natural disaster in the island’s history, as emergency rescue efforts continue.`\
+https://nytimes.com/2025/12/01/world/asia/sri-lanka-floods-cyclone.html
+
 **Submit a question for Stewart Mandel's College Football Mailbag**\
 `<p>A season-long CFP race and nearly season-long coaching carousel converged all at once this week. My guess is you have a lot of questions.</p>
 <p>Leave &#8217;em here. Please include your city.</p>
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/6840554/2025/12/01/nfl-playoff-picture-week-13-bear
 **WNBA, players union agree to 6-week extension as CBA negotiations continue**\
 `Nov. 30 marked the previous expiration deadline for the 30-day extension.`\
 https://nytimes.com/athletic/6851244/2025/12/01/wnba-players-union-cba-negotiations-extension/
-
-**NFL's race to the No. 1 pick: Titans hold commanding lead while Raiders, Saints lurk**\
-`The Titans remain the league's only one-win team. while the Jets got their third win and saw their odds dip significantly. `\
-https://nytimes.com/athletic/6850749/2025/12/01/nfl-draft-2026-top-pick-titans-raiders/
 
