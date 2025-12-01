@@ -1,3 +1,7 @@
+**Atlanta CEO Lagerwey will not return to club following leave of absence**\
+`In October, Lagerwey and Atlanta United announced would take an indefinite leave of absence following a cancer diagnosis in July.`\
+https://nytimes.com/athletic/6852965/2025/12/01/atlanta-united-lagerwey-news-return-update/
+
 **Colts coach: CB Sauce Gardner will miss 'some time' with calf injury**\
 `The Colts expect Gardner to play again this season. `\
 https://nytimes.com/athletic/6852554/2025/12/01/colts-sauce-gardner-calf-injury/

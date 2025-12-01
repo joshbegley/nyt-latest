@@ -1,3 +1,7 @@
+**This Year, a Smaller Red-and-Green Christmas at the White House**\
+`The White House is decorated in a classic red-and-green Christmas theme. But with the East Wing reduced to rubble, there are fewer decorations this year.`\
+https://nytimes.com/2025/12/01/us/politics/christmas-trump-white-house.html
+
 **Atlanta CEO Lagerwey will not return to club following leave of absence**\
 `In October, Lagerwey and Atlanta United announced would take an indefinite leave of absence following a cancer diagnosis in July.`\
 https://nytimes.com/athletic/6852965/2025/12/01/atlanta-united-lagerwey-news-return-update/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6852857/2025/12/01/nebraska-fires-john-butler/
 **The Aftermath of the D.C. Shooting**\
 `Readers discuss the shooting of two National Guard members in Washington. Also: Being Latino in the U.S.; wonderful mentors.`\
 https://nytimes.com/2025/12/01/opinion/national-guard-dc-shooting.html
-
-**‘The Merchants of Joy’ Review: Cutthroat Christmas Tree Sales**\
-`A new documentary contains zesty character studies of competing New York City tree vendors as they prepare for the holiday season.`\
-https://nytimes.com/2025/12/01/movies/the-merchants-of-joy-review-christmas-trees.html
 
