@@ -1,3 +1,15 @@
+**For ‘No Tax on Tips,’ the I.R.S. Gets Intimate**\
+`The Trump administration wants to exclude earnings from “pornographic activity” from a new tax break for tips. Will the I.R.S. know it when it sees it?`\
+https://nytimes.com/2025/12/01/us/politics/for-no-tax-on-tips-the-irs-gets-intimate.html
+
+**Two Galleries Form New Art Prize**\
+`The FLAG Art Foundation in New York and Serpentine in London have established a 1 million British pound award for five artists.`\
+https://nytimes.com/2025/12/01/arts/design/flag-art-foundation-serpentine-prize.html
+
+**Do You Know These Authors Who Appeared in the Filmed Versions of Their Books?**\
+`Some writers have followed their words onto the screen. Try this short quiz to see if you recall five of those cameo scenes.`\
+https://nytimes.com/interactive/2025/12/01/books/review/book-author-cameos.html
+
 **Move Over, Computer Science. Students Are Flocking to New A.I. Majors.**\
 `At M.I.T., a new program called “artificial intelligence and decision-making” is now the second-most-popular undergraduate major.`\
 https://nytimes.com/2025/12/01/technology/college-computer-science-ai-boom.html
