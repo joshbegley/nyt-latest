@@ -1,3 +1,7 @@
+**Chickpea, Spinach and Feta Pie**\
+`Bringing together inspiration from two great Greek pies, spanakopita (spinach and feta) and prasopita (leek), this one-skillet dish also incorporates chickpeas for extra heartiness.`\
+https://nytimes.com/video/dining/100000010522937/chickpea-spinach-and-feta-pie.html
+
 **Lane Kiffin's latest leap shows why the college player revolution was needed**\
 `Coaches have always done whatever they wanted for the sake of career enhancement. Don’t resent players for being free to do the same.`\
 https://nytimes.com/athletic/6849917/2025/12/01/lane-kiffin-lsu-ole-miss-sec-college-player/

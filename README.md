@@ -1,40 +1,40 @@
-**Chickpea, Spinach and Feta Pie**\
-`Bringing together inspiration from two great Greek pies, spanakopita (spinach and feta) and prasopita (leek), this one-skillet dish also incorporates chickpeas for extra heartiness.`\
-https://nytimes.com/video/dining/100000010522937/chickpea-spinach-and-feta-pie.html
+**The Most Interesting Wine Books of 2025**\
+`A fascinating history of California wine, a beginner’s handbook, “A Cynic’s Guide” and visits to natural producers in France and England, with recipes`\
+https://nytimes.com/2025/12/01/dining/drinks/wine-books.html
 
-**Lane Kiffin's latest leap shows why the college player revolution was needed**\
-`Coaches have always done whatever they wanted for the sake of career enhancement. Don’t resent players for being free to do the same.`\
-https://nytimes.com/athletic/6849917/2025/12/01/lane-kiffin-lsu-ole-miss-sec-college-player/
+**Supreme Court to Hear Copyright Battle Over Online Music Piracy**\
+`At issue is whether internet providers can be held liable for repeated copyright infringements of users, with potentially billions of dollars on the line.`\
+https://nytimes.com/2025/12/01/us/politics/supreme-court-copyright-music-piracy.html
 
-**Battle for New York City Casino Licenses Reaches Final Phase**\
-`A state board is scheduled to recommend licenses for as many as three full-fledged casinos to the state’s gaming commission, which is expected to follow the recommendations.`\
-https://nytimes.com/2025/12/01/nyregion/nyc-casino-license.html
+**Can I Wear Shearling if I Don’t Want to Wear Fur?**\
+`Celebrities, magazines and retail stores say yes. But are we all fooling ourselves?`\
+https://nytimes.com/2025/12/01/fashion/fur-shearling.html
 
-**What to Know About Luigi Mangione’s Court Hearing This Week**\
-`Lawyers for Mr. Mangione, accused of killing a health insurance executive in Manhattan, will ask a judge to throw out evidence gathered when he was arrested in Pennsylvania.`\
-https://nytimes.com/2025/12/01/nyregion/mangione-hearing-what-to-know.html
+**Farewell to the Beloved Friend in My Window**\
+`Winter won’t hold forever, and when it comes, a spider will disappear from the corner where she has made her home.`\
+https://nytimes.com/2025/12/01/opinion/spiders-seasons-winter.html
 
-**The Transgender Cancer Patient and What She Heard on Tape**\
-`Jennifer Capasso had endured multiple tumors. She wondered what might be said during her next cancer surgery. So, she hit record on her phone.`\
-https://nytimes.com/2025/12/01/nyregion/transgender-patient-records-during-cancer-surgery.html
+**Best Clothing Stores in the Country**\
+`We selected the 50 best clothing stores in the United States. Five reporters from The New York Times Style section describe how we chose them.`\
+https://nytimes.com/video/style/100000010549714/best-clothing-stores-in-the-country.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/12/01/crosswords/spelling-bee-forum.html
+**This Holiday Season, Give the Gift That Keeps on Sniffing**\
+`A North Carolina organization delivers salvation on four legs.`\
+https://nytimes.com/2025/12/01/opinion/charity-holiday-gift-eyes-ears-nose-paws.html
 
-**Millions Under Winter Storm Watch as Potential Nor’easter Approaches**\
-`Forecasters expected the storm to track up the Eastern Seaboard Monday night into Tuesday, leaving as much as a foot of snow in parts of the Northeast.`\
-https://nytimes.com/2025/12/01/us/snowstorm-noreaster-northeast-new-england.html
+**Does Listening to an Audiobook Count as Reading?**\
+`Is it a valid way to consume literature or is it a kind of cheating?`\
+https://nytimes.com/2025/12/01/learning/does-listening-to-an-audiobook-count-as-reading.html
 
-**Honduras Votes in Presidential Election**\
-`Hondurans cast their ballots in Sunday’s presidential elections. The race was tense even before President Trump got involved, endorsing one of the right-wing candidates.`\
-https://nytimes.com/video/world/americas/100000010556062/honduras-election.html
+**What Jamaica Wants After Deadly Hurricane? ‘Visit Us,’ Island Says.**\
+`Tourism accounts for nearly a third of Jamaica’s economy, so officials are rushing to reopen dozens of hotels in time to salvage the vital winter travel season.`\
+https://nytimes.com/2025/12/01/us/hurricane-jamaica-tourism.html
 
-**Word of the Day: halcyon**\
-`This word has appeared in 53 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/12/01/learning/word-of-the-day-halcyon.html
+**On the Eve of Art Basel Miami Beach, a Case of the Jitters**\
+`Fourteen galleries pulled out of the fair this year, while others chose to stay and embrace the art fray. “It’s a good opportunity to be bold,” says one dealer.`\
+https://nytimes.com/2025/12/01/arts/design/art-basel-miami-beach-fair-galleries.html
 
-**Sri Lanka Declares ‘Largest’ Disaster as Cyclone Kills 355**\
-`The president called the nationwide flooding the largest and most challenging natural disaster in the island’s history, as emergency rescue efforts continue.`\
-https://nytimes.com/2025/12/01/world/asia/sri-lanka-floods-cyclone.html
+**People Are Ordering Smaller Pizzas and Fewer Toppings. What Does That Tell Us?**\
+`Sales are softening at big chains and independent shops aren’t selling as many extras. Competition, diet trends and consumer anxiety may all be playing a part.`\
+https://nytimes.com/2025/12/01/business/consumers-pizza-sales.html
 
