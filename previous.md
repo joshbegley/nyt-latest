@@ -1,3 +1,15 @@
+**Forest edge closer to redeveloped City Ground after announcing fan consultation**\
+`Forest are expected to deliver all the planning documents to the local authority, Rushcliffe Borough Council, on December 15.`\
+https://nytimes.com/athletic/6851815/2025/12/01/nottingham-forest-city-ground-redeveloped-plans/
+
+**The Athletic 136: A final word on Miami, Notre Dame and everyone else**\
+`Miami and Notre Dame are even across many metrics — except for one that matters the most. `\
+https://nytimes.com/athletic/6851450/2025/12/01/college-football-team-rankings-notre-dame-miami/
+
+**Path to the Winter Olympics: Jessie Diggins starts final season with a podium finish**\
+`Jessie Diggins and Johannes Høsflot Klæbo shined in the cross-country opener, a notable return in Alpine skiing, and more.`\
+https://nytimes.com/athletic/6809703/2025/12/01/winter-olympics-jessie-diggins-johannes-klaebo-mikaela-shiffrin/
+
 **Why Packers DC Jeff Hafley is teaching Micah Parsons about Mariano Rivera**\
 `Green Bay's sack master has something in common with baseball's all-time saves leader.`\
 https://nytimes.com/athletic/6848435/2025/12/01/micah-parsons-green-bay-packers/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/12/01/world/asia/hong-kong-fire.html
 **Your Drone Questions**\
 `We asked readers of The Morning for their questions about drones. Today, Times journalists answer.`\
 https://nytimes.com/2025/12/01/briefing/your-drone-questions.html
-
-**When Luca Guadagnino Brought Brazilian Modernism to Milan**\
-`High above the cloistered, elegant city, the director turned a friend’s apartment into a moody and tropical oasis.`\
-https://nytimes.com/2025/12/01/t-magazine/luca-guadagnino-milan-interior-design.html
-
-**The Prettiest Holiday Shoes Come With Bows on Top**\
-`Fancy ribbons add charm to these party accessories.`\
-https://nytimes.com/2025/12/01/t-magazine/bow-shoes.html
-
-**Aaron Rodgers reminds everyone that his toughness equaled his greatness**\
-`There was no greatness to be found in Pittsburgh's loss to Buffalo. All a diminished Rodgers could do was play through the pain.`\
-https://nytimes.com/athletic/6851072/2025/12/01/steelers-bills-aaron-rodgers-toughness/
 
