@@ -1,3 +1,11 @@
+**Feisty Bedard propels Blackhawks to comeback win over Ducks**\
+`Connor Bedard had four points and plenty of fire on the ice against the Ducks in a matchup that could become a Western rivalry.`\
+https://nytimes.com/athletic/6850032/2025/11/30/blackhawks-bedard-trash-talk-ducks/
+
+**Raiders-Chargers takeaways: L.A. rolls, but Herbert needs procedure on hand**\
+`Chargers bounce back after blowout loss to Jaguars, rushing for 192 yards vs. Raiders.`\
+https://nytimes.com/athletic/6850239/2025/11/30/raiders-chargers-score-result-takeaways-nfl-week-13/
+
 **How to watch Cowboys vs. Lions: Time, TV, streaming**\
 `Find out how to watch the Dallas Cowboys play the Detroit Lions, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6850746/2025/11/30/cowboys-vs-lions-stream-how-to-watch-dec-4/
