@@ -1,3 +1,7 @@
+**Firing of Nebraska DC signals Matt Rhule’s plan isn’t progressing as fast as intended**\
+`Butler’s departure is a symptom of something bigger that’s not clicking in Lincoln.`\
+https://nytimes.com/athletic/6853485/2025/12/01/nebraska-john-butler-fired-matt-rhule/
+
 **Three Art World Heavyweights Join Forces to Form New Gallery**\
 `Pace, Di Donna and David Schrader of Sotheby’s are collaborating on an Upper East Side space that will focus on secondary market sales.`\
 https://nytimes.com/2025/12/01/arts/design/pace-di-donna-david-schrader-merge-new-gallery.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/asia/100000010556693/indonesia-flooding.html
 **Onana among several surprise omissions from Cameroon AFCON squad, manager also sacked**\
 `Goalkeeper Andre Onana, who is on loan at Trabzonspor from Manchester United, has been left out of Cameroon’s Africa Cup of Nations (AFCON) squad.`\
 https://nytimes.com/athletic/6853317/2025/12/01/onana-cameroon-squad-news-etoo-brys-aboubakar-chupo-moting-anguissa/
-
-**Building a Culinary Empire From Scratch**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/nara-smith-tiktok-tradwife
 

@@ -1,3 +1,7 @@
+**Firing of Nebraska DC signals Matt Rhule’s plan isn’t progressing as fast as intended**\
+`Butler’s departure is a symptom of something bigger that’s not clicking in Lincoln.`\
+https://nytimes.com/athletic/6853485/2025/12/01/nebraska-john-butler-fired-matt-rhule/
+
 **Three Art World Heavyweights Join Forces to Form New Gallery**\
 `Pace, Di Donna and David Schrader of Sotheby’s are collaborating on an Upper East Side space that will focus on secondary market sales.`\
 https://nytimes.com/2025/12/01/arts/design/pace-di-donna-david-schrader-merge-new-gallery.html
