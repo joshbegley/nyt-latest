@@ -1,3 +1,7 @@
+**‘It: Welcome to Derry’ Season 1, Episode 6 Recap: Daddy’s Little Girl**\
+`Ingrid’s connection to the evil entity known as It is revealed, among other dangerous secrets.`\
+https://nytimes.com/2025/11/30/arts/television/it-welcome-to-derry-recap-season-1-episode-6.html
+
 **Shedeur Sanders explains exchange with Jerry Jeudy: 'We're going to have sparks'**\
 `The Browns' rookie quarterback and his wide receiver teammate had a heated exchange during Sunday's loss to the 49ers.`\
 https://nytimes.com/athletic/6850815/2025/11/30/shedeur-sanders-jerry-jeudy-browns-sideline/
