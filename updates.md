@@ -1,3 +1,19 @@
+**Lane Kiffin on move from Ole Miss to LSU: 'No way to possibly do it better'**\
+`New Tigers coach blames system for awkward timing of his job change, says he made choice because, "This place is different."`\
+https://nytimes.com/athletic/6852892/2025/12/01/lane-kiffin-lsu-introduction-ole-miss/
+
+**Four Big Political Stories to Watch at Year’s End**\
+`The economy. Venezuela. Division in the Republican Party. And, more decisions coming from Supreme Court. Here’s what to know.`\
+https://nytimes.com/2025/12/01/us/politics/economy-venezuela-republicans-supreme-court.html
+
+**Son of El Chapo Pleads Guilty to Kidnapping Father’s Former Cartel Partner**\
+`Joaquín Guzmán López admitted to having the once-untouchable drug kingpin Ismael Zambada García abducted and flown to the United States, among a sweeping set of other crimes.`\
+https://nytimes.com/2025/12/01/us/politics/el-chapo-son-joaquin-guzman-lopez-guilty.html
+
+**NASCAR trial begins with Michael Jordan fan jurors dismissed, Denny Hamlin testimony**\
+`Hamlin capped the trial's first day with an emotional testimony, saying teams and drivers are essentially just "fundraisers" for NASCAR.`\
+https://nytimes.com/athletic/6851916/2025/12/01/nascar-trial-michael-jordan-lawsuit-denny-hamlin/
+
 **NASCAR trial begins with Michael Jordan fan jurors dismissed, Denny Hamlin testimony**\
 `CHARLOTTE, N.`\
 https://nytimes.com/athletic/6851916/2025/12/01/nascar-trial-michael-jordan-lawsuit-denny-hamlin/

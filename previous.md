@@ -1,5 +1,17 @@
+**Lane Kiffin on move from Ole Miss to LSU: 'No way to possibly do it better'**\
+`New Tigers coach blames system for awkward timing of his job change, says he made choice because, "This place is different."`\
+https://nytimes.com/athletic/6852892/2025/12/01/lane-kiffin-lsu-introduction-ole-miss/
+
+**Four Big Political Stories to Watch at Year’s End**\
+`The economy. Venezuela. Division in the Republican Party. And, more decisions coming from Supreme Court. Here’s what to know.`\
+https://nytimes.com/2025/12/01/us/politics/economy-venezuela-republicans-supreme-court.html
+
+**Son of El Chapo Pleads Guilty to Kidnapping Father’s Former Cartel Partner**\
+`Joaquín Guzmán López admitted to having the once-untouchable drug kingpin Ismael Zambada García abducted and flown to the United States, among a sweeping set of other crimes.`\
+https://nytimes.com/2025/12/01/us/politics/el-chapo-son-joaquin-guzman-lopez-guilty.html
+
 **NASCAR trial begins with Michael Jordan fan jurors dismissed, Denny Hamlin testimony**\
-`CHARLOTTE, N.`\
+`Hamlin capped the trial's first day with an emotional testimony, saying teams and drivers are essentially just "fundraisers" for NASCAR.`\
 https://nytimes.com/athletic/6851916/2025/12/01/nascar-trial-michael-jordan-lawsuit-denny-hamlin/
 
 **Kerby Joseph backs off social media, practices, but future is uncertain**\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6853485/2025/12/01/nebraska-john-butler-fired-matt-
 **Three Art World Heavyweights Join Forces to Form New Gallery**\
 `Pace, Di Donna and David Schrader of Sotheby’s are collaborating on an Upper East Side space that will focus on secondary market sales.`\
 https://nytimes.com/2025/12/01/arts/design/pace-di-donna-david-schrader-merge-new-gallery.html
-
-**A Crucial Week in Ukraine Peace Negotiations**\
-`Plus, a court voids another Trump appointee. Here’s the latest at the end of Monday.`\
-https://nytimes.com/2025/12/01/briefing/a-crucial-week-in-ukraine-peace-negotiations.html
-
-**Cory Booker Wants You to Have Hope**\
-`“If America hasn’t broken your heart, you don’t love her enough,” Cory Booker tells David Leonhardt in this episode of “The Opinions.”`\
-https://nytimes.com/video/opinion/100000010536319/cory-booker-wants-you-to-have-hope.html
-
-**For Trump, Hegseth’s Take-No-Prisoners Approach Is a Growing Liability**\
-`Investigations are mounting into the legality of strikes that have killed scores of people in the waters off Venezuela.`\
-https://nytimes.com/2025/12/01/us/politics/trump-hegseth-drug-boat-strike-venezuela.html
 

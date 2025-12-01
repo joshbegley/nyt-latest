@@ -14,6 +14,10 @@ https://nytimes.com/2025/12/01/us/politics/el-chapo-son-joaquin-guzman-lopez-gui
 `Hamlin capped the trial's first day with an emotional testimony, saying teams and drivers are essentially just "fundraisers" for NASCAR.`\
 https://nytimes.com/athletic/6851916/2025/12/01/nascar-trial-michael-jordan-lawsuit-denny-hamlin/
 
+**Instant grades for college football's 2025-26 head-coaching hires**\
+`In college football, you never really know whether a coaching hire is going to work. But it's never too early to talk about fit.`\
+https://nytimes.com/athletic/6827060/2025/12/01/college-football-coaching-carousel-grades/
+
 **Kerby Joseph backs off social media, practices, but future is uncertain**\
 `The Lions' secondary remains beat up with Kerby Joseph's injury and Terrion Arnold being placed on injured reserve.`\
 https://nytimes.com/athletic/6853336/2025/12/01/lions-kerby-joseph-knee-terrion-arnold/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6853155/2025/12/01/nfl-overtime-coin-toss-referee-m
 **Firing of Nebraska DC signals Matt Rhule’s plan isn’t progressing as fast as intended**\
 `The defensive coordinator's departure is a symptom of something bigger that’s not clicking in Lincoln.`\
 https://nytimes.com/athletic/6853485/2025/12/01/nebraska-john-butler-fired-matt-rhule/
-
-**Three Art World Heavyweights Join Forces to Form New Gallery**\
-`Pace, Di Donna and David Schrader of Sotheby’s are collaborating on an Upper East Side space that will focus on secondary market sales.`\
-https://nytimes.com/2025/12/01/arts/design/pace-di-donna-david-schrader-merge-new-gallery.html
 
