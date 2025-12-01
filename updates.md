@@ -1,3 +1,7 @@
+**Shedeur Sanders, after exchange with Jerry Jeudy: On-field chemistry will 'take time'**\
+`The Browns' rookie quarterback and his wide receiver teammate had a heated exchange during Sunday's loss to the 49ers.`\
+https://nytimes.com/athletic/6850815/2025/11/30/shedeur-sanders-jerry-jeudy-browns-sideline/
+
 **Shedeur Sanders, after exchange with Jerry Jeudy: ‘We’re going to have sparks’**\
 `The Browns' rookie quarterback and his wide receiver teammate had a heated exchange during Sunday's loss to the 49ers.`\
 https://nytimes.com/athletic/6850815/2025/11/30/shedeur-sanders-jerry-jeudy-browns-sideline/

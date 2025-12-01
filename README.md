@@ -14,7 +14,7 @@ https://nytimes.com/athletic/6850800/2025/11/30/mark-stoops-firing-kentucky-foot
 `Ingrid’s connection to the evil entity known as It is revealed, among other dangerous secrets.`\
 https://nytimes.com/2025/11/30/arts/television/it-welcome-to-derry-recap-season-1-episode-6.html
 
-**Shedeur Sanders, after exchange with Jerry Jeudy: On-field chemistry will 'take time'**\
+**Shedeur Sanders, after Jerry Jeudy sideline exchange: On-field chemistry will 'take time'**\
 `The Browns' rookie quarterback and his wide receiver teammate had a heated exchange during Sunday's loss to the 49ers.`\
 https://nytimes.com/athletic/6850815/2025/11/30/shedeur-sanders-jerry-jeudy-browns-sideline/
 
