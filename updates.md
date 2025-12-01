@@ -1,3 +1,15 @@
+**Police admit error of fictional game in Maccabi Tel Aviv report, stand by fan ban**\
+`Maccabi Tel Aviv fans were not allowed to attend the Europa League fixture against Aston Villa in Birmingham after a local police request.`\
+https://nytimes.com/athletic/6852315/2025/12/01/aston-villa-maccabi-tel-aviv-ban-police/
+
+**Dick Vitale and Charles Barkley to call 2 games together this year**\
+`The 86-year-old Vitale has long wanted to work an NCAA Tournament game during his Hall of Fame broadcasting career.`\
+https://nytimes.com/athletic/6852326/2025/12/01/basketball-broadcast-dicky-v-charles-barkley-college/
+
+**Vikings waive veteran WR Adam Thielen after he requests release**\
+`The Vikings agreed to waive the veteran wideout, who is in search of more playing time elsewhere as he nears the end of his final season.`\
+https://nytimes.com/athletic/6852607/2025/12/01/adam-thielen-vikings-waived-release/
+
 **Michael Bradley frontrunner to become Red Bulls coach; more MLS notes**\
 `After guiding Red Bulls II to the MLS Next Pro title, Bradley is in line for an instant promotion, sources tell The Athletic`\
 https://nytimes.com/athletic/6852191/2025/12/01/michael-bradley-new-york-red-bulls-coach-mls-news/
