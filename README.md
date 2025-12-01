@@ -6,6 +6,10 @@ https://nytimes.com/athletic/6851005/2025/12/01/knicks-standings-record/
 `It's good time to catch up on the state of the draft and take a look at which players stood out in Sin City this past week.`\
 https://nytimes.com/athletic/6845427/2025/12/01/nba-draft-2026-scouting-report-cam-boozer/
 
+**MMLR: Hope for Auston Matthews, concern for Morgan Rielly**\
+`Auston Matthews showed a flash of his old self against Pittsburgh. The concern is that it was just that — a flash.`\
+https://nytimes.com/athletic/6849470/2025/12/01/auston-matthews-maple-leafs-3/
+
 **How Brian Schottenheimer has led Cowboys on 3-game winning streak**\
 `A lot has happened in the three months since the season started and the Cowboys are playing their best football now.`\
 https://nytimes.com/athletic/6850704/2025/12/01/brian-schottenheimer-dallas-cowboys/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6851004/2025/12/01/lane-kiffin-lsu-ole-miss-coachin
 **Nicola Pietrangeli, giant of Italian tennis, dies aged 92**\
 `Pietrangeli, who won two French Open titles, was an avatar for Italian tennis throughout his career.`\
 https://nytimes.com/athletic/6851681/2025/12/01/nicola-pietrangeli-tennis-obituary/
-
-**Giants at Patriots on MNF: Storylines, odds and Drake Maye's MVP campaign**\
-`Here's our "Monday Night Football" broadcast preview, with Giants-Patriots matchup info and frivolities.`\
-https://nytimes.com/athletic/6840661/2025/12/01/giants-patriots-drake-maye-mnf-how-to-watch/
 

@@ -1,3 +1,31 @@
+**The Knicks have entered the chat at the top of the East**\
+`New York is figuring things while still winning. After a bumpy start to season, the Knicks are where we thought they would be.`\
+https://nytimes.com/athletic/6851005/2025/12/01/knicks-standings-record/
+
+**Scouting 2026 NBA Draft’s top prospects in Las Vegas and other big holiday tournaments**\
+`It's good time to catch up on the state of the draft and take a look at which players stood out in Sin City this past week.`\
+https://nytimes.com/athletic/6845427/2025/12/01/nba-draft-2026-scouting-report-cam-boozer/
+
+**How Brian Schottenheimer has led Cowboys on 3-game winning streak**\
+`A lot has happened in the three months since the season started and the Cowboys are playing their best football now.`\
+https://nytimes.com/athletic/6850704/2025/12/01/brian-schottenheimer-dallas-cowboys/
+
+**Women's college basketball power rankings: Texas rises behind Rori Harmon**\
+`Sabreena Merchant breaks down the hoops landscape: Iowa's defense stands out. Maryland's depth is legit. `\
+https://nytimes.com/athletic/6851223/2025/12/01/womens-college-basketball-power-rankings-texas-rori-harmon/
+
+**What we're hearing about the MLB offseason: The next possible free-agent closer to sign and more**\
+`Plus details on the potential trade markets for the Astros' Jake Meyers and Rays' Brandon Lowe.`\
+https://nytimes.com/athletic/6850835/2025/12/01/mlb-offseason-free-agency-updates/
+
+**Lane Kiffin to LSU, explained: Why is a coach leaving a College Football Playoff team?**\
+`You're not alone if you think it doesn't make sense. But this is the world of college football, and we can explain.`\
+https://nytimes.com/athletic/6850821/2025/12/01/lane-kiffin-lsu-ole-miss-faq/
+
+**Yankees mailbag: Is Fernando Tatis Jr. a trade possibility? Anthony Volpe's future**\
+`With the Winter Meetings approaching, the Yankees' offseason plan could become more clear soon. `\
+https://nytimes.com/athletic/6850431/2025/12/01/tatis-yankees/
+
 **The Pulse: Lane Kiffin’s place in history**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6851004/2025/12/01/lane-kiffin-lsu-ole-miss-coaching-carousel-the-pulse/
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/6851681/2025/12/01/nicola-pietrangeli-tennis-obitua
 **Giants at Patriots on MNF: Storylines, odds and Drake Maye's MVP campaign**\
 `Here's our "Monday Night Football" broadcast preview, with Giants-Patriots matchup info and frivolities.`\
 https://nytimes.com/athletic/6840661/2025/12/01/giants-patriots-drake-maye-mnf-how-to-watch/
-
-**The Commanders went for the win and lost, but it reminded them of who they were, and could be again**\
-`If the Commanders are ever going to get their swagger back, it will come from an attitude like their coach displayed in OT.`\
-https://nytimes.com/athletic/6850985/2025/12/01/commanders-lose-go-for-two-broncos-snf/
-
-**Answering your questions about the soccer World Cup**\
-`Not sure about what to expect from a soccer World Cup in North America? Here's everything we think you need to know`\
-https://nytimes.com/athletic/6822692/2025/12/01/world-cup-draw-2026-explainer/
-
-**NHL weekend rankings: Early offseason lessons, plus three teams with surprise arcs**\
-`Somehow it's December, which means it's not too early anymore but maybe still a bit early to check in on some offseason moves.`\
-https://nytimes.com/athletic/6850779/2025/12/01/nhl-weekend-rankings-offseason-lessons-wild-sharks-oilers/
-
-**Canadiens weekly notebook: Zack Bolduc’s new role, Sam Montembeault’s big moment**\
-`Also in this week's notebook, as the Canadiens continue the busiest part of their schedule, can Martin St. Louis afford to look short-term?`\
-https://nytimes.com/athletic/6851382/2025/12/01/canadiens-weekly-notebook-zack-bolducs-new-role-sam-montembeaults-big-moment/
-
-**The 1994 World Cup draw: FIFA’s Vegas show that ‘will never be matched’**\
-`The indelible scenes and stories from those who planned and participated in a norm-shattering few days in Las Vegas`\
-https://nytimes.com/athletic/6836665/2025/12/01/1994-world-cup-draw-fifa-las-vegas-sepp-blatter/
-
-**Chris Finch's lineup gamble pays off in Timberwolves' best win of season**\
-`A lineup that had played together only 15 minutes before Sunday sparked an impressive victory over the Spurs. `\
-https://nytimes.com/athletic/6850571/2025/12/01/timberwolves-get-best-win-of-season-as-chris-finchs-lineup-gamble-pays-off/
-
-**Joel Embiid returns, but Sixers need more in heartbreaking double-OT loss to Hawks**\
-`Despite a loss that ticked off the Sixers' players, almost to a man, Embiid's presence constituted a good thing.`\
-https://nytimes.com/athletic/6851100/2025/12/01/joel-embiid-returns-76ers-double-ot-loss-hawks/
 
