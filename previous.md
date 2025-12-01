@@ -1,3 +1,7 @@
+**Kentucky firing Mark Stoops, winningest coach in school history: Source**\
+`The Wildcats had a great run under a portion of Stoops' tenure but have looked dreadful recently. `\
+https://nytimes.com/athletic/6850800/2025/11/30/mark-stoops-firing-kentucky-football/
+
 **‘It: Welcome to Derry’ Season 1, Episode 6 Recap: Daddy’s Little Girl**\
 `Ingrid’s connection to the evil entity known as It is revealed, among other dangerous secrets.`\
 https://nytimes.com/2025/11/30/arts/television/it-welcome-to-derry-recap-season-1-episode-6.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6850825/2025/11/30/north-texas-vs-tulane-stream-how
 **How to watch Troy vs. James Madison: Sun Belt Championship Time, TV, streaming**\
 `Find out how to watch the Troy Trojans play the James Madison Dukes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6850823/2025/11/30/troy-vs-james-madison-stream-how-to-watch-dec-5/
-
-**Feisty Bedard propels Blackhawks to comeback win over Ducks**\
-`Connor Bedard had four points and plenty of fire on the ice against the Ducks in a matchup that could become a Western rivalry.`\
-https://nytimes.com/athletic/6850032/2025/11/30/blackhawks-bedard-trash-talk-ducks/
 

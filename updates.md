@@ -1,3 +1,7 @@
+**Kentucky firing Mark Stoops, winningest coach in school history: Source**\
+`The Wildcats had a great run under a portion of Stoops' tenure but have looked dreadful recently. `\
+https://nytimes.com/athletic/6850800/2025/11/30/mark-stoops-firing-kentucky-football/
+
 **‘It: Welcome to Derry’ Season 1, Episode 6 Recap: Daddy’s Little Girl**\
 `Ingrid’s connection to the evil entity known as It is revealed, among other dangerous secrets.`\
 https://nytimes.com/2025/11/30/arts/television/it-welcome-to-derry-recap-season-1-episode-6.html

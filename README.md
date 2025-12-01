@@ -1,4 +1,8 @@
-**Kentucky firing Mark Stoops, winningest coach in school history: Source**\
+**Colts were on wrong end of a bad call, but don't pretend it's the only reason they lost**\
+`For as bad as the pass interference call was, the Colts had plenty of chances to negate its effect, and failed to do so. `\
+https://nytimes.com/athletic/6850794/2025/11/30/colts-officials-pass-interference-texans-loss/
+
+**Kentucky firing Mark Stoops, winningest football coach in school history: Source**\
 `The Wildcats had a great run under a portion of Stoops' tenure but have looked dreadful recently. `\
 https://nytimes.com/athletic/6850800/2025/11/30/mark-stoops-firing-kentucky-football/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6850764/2025/11/30/new-york-jets-win-atlanta-falcon
 **How to watch North Texas vs. Tulane: AAC Championship Time, TV, streaming**\
 `Find out how to watch the North Texas Mean Green play the Tulane Green Wave, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6850825/2025/11/30/north-texas-vs-tulane-stream-how-to-watch-dec-5/
-
-**How to watch Troy vs. James Madison: Sun Belt Championship Time, TV, streaming**\
-`Find out how to watch the Troy Trojans play the James Madison Dukes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6850823/2025/11/30/troy-vs-james-madison-stream-how-to-watch-dec-5/
 
