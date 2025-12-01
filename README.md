@@ -1,3 +1,7 @@
+**Inside Barcelona: La Liga leaders again — so why was Hansi Flick so upset?**\
+`Hansi Flick's side are top of La Liga again — but concerns over performances are not going away`\
+https://nytimes.com/athletic/6851707/2025/12/01/barcelona-flick-news-la-liga-analysis/
+
 **In Egypt, Museums Built of Sand and Salt**\
 `Plus: an unusual late-autumn fruit, an all-local produce store in Hawai‘i and more recommendations from T Magazine.`\
 https://nytimes.com/2025/12/01/t-magazine/in-egypt-museums-built-of-sand-and-salt.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6851072/2025/12/01/steelers-bills-aaron-rodgers-tou
 **Bo Nix keeps finding late magic and it's fueling Broncos' Super Bowl belief**\
 `The second-year quarterback led his sixth game-winning drive in the fourth quarter or overtime Sunday, the most in the NFL.`\
 https://nytimes.com/athletic/6851472/2025/12/01/bo-nix-broncos-defeat-commanders-overtime/
-
-**Message Board Monday: Auburn, Arkansas, Florida fans greet (or lament) their new coaches**\
-`How are fans feeling about their new coach? Let's take a peek at the boards. `\
-https://nytimes.com/athletic/6850523/2025/12/01/auburn-alex-golesh-florida-jon-sumrall-arkansas-ryan-silverfield/
 
