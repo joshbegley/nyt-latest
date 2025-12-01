@@ -1,3 +1,11 @@
+**Vikings' offensive disaster hits new low in shutout vs. Seahawks: 'It’s just bad ball'**\
+`Rookie QB Max Brosmer threw four interceptions in his starting debut, and the Vikings offense struggled to move the ball all day.`\
+https://nytimes.com/athletic/6851035/2025/11/30/vikings-seahawks-offense-max-brosmer-justin-jefferson/
+
+**The Chargers earned a necessary win over the Raiders. Now the real test awaits.**\
+`Beating a bad Raiders team was important, but the Chargers face a daunting schedule down the stretch.`\
+https://nytimes.com/athletic/6851148/2025/11/30/chargers-win-raiders-playoffs-odds/
+
 **Bills defense finally has start-to-finish dominant game: "We want to be a nasty defense"**\
 `The unit has been steadily getting better for a few weeks.`\
 https://nytimes.com/athletic/6851056/2025/11/30/bills-defense-keon-coleman-return/
@@ -29,12 +37,4 @@ https://nytimes.com/video/the-athletic/100000010556030/panthers-upset-rams-to-sh
 **Audi Crooks breaks own Iowa State record with 47 points in win over Indiana**\
 `Audi Crooks is averaging nearly 25 points while playing only 24 minutes a game. `\
 https://nytimes.com/athletic/6850831/2025/11/30/iowa-state-audi-crooks-record-points/
-
-**Rams need another surge after humbling loss to Panthers: 'This is a wake-up call'**\
-`In what felt like the ultimate "trap game," Los Angeles was far from the team we've seen throughout its recent win streak.  `\
-https://nytimes.com/athletic/6850380/2025/11/30/rams-matthew-stafford-loss-panthers/
-
-**Big games by Payton Pritchard and Jaylen Brown lead Celtics past Cavaliers**\
-`Pritchard scored a season-high 42 points and Brown recorded a triple-double Sunday as the Celtics held off the Cavaliers.`\
-https://nytimes.com/athletic/6850792/2025/11/30/celtics-brown-triple-double-pritchard-40-points/
 
