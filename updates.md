@@ -1,3 +1,23 @@
+**Kerby Joseph backs off social media, practices, but future is uncertain**\
+`The Lions' secondary remains beat up with Kerby Joseph's injury and Terrion Arnold being placed on injured reserve.`\
+https://nytimes.com/athletic/6853336/2025/12/01/lions-kerby-joseph-knee-terrion-arnold/
+
+**Tennessee's Janiah Barker, UCLA coach Cori Close downplay awkward handshake**\
+`Close and Barker said after the game that they wished the best for each other.`\
+https://nytimes.com/athletic/6853328/2025/12/01/tennessee-ucla-janiah-barker-cori-close-handshake/
+
+**T.S.A. Announces $45 Fee for Non-Real ID Travelers**\
+`Starting in February, the Transportation Security Administration will start charging fliers who travel without a Real ID-compliant form of identification a $45 fee in order to fly from U.S. airports.`\
+https://nytimes.com/video/travel/100000010558023/tsa-real-id-fine.html
+
+**The NFL is seeing a pattern of officials botching the overtime coin toss**\
+`There have been at least four recent examples of officiating mistakes during overtime coin tosses, including Sunday night in Washington.`\
+https://nytimes.com/athletic/6853155/2025/12/01/nfl-overtime-coin-toss-referee-mistakes/
+
+**Firing of Nebraska DC signals Matt Rhule’s plan isn’t progressing as fast as intended**\
+`The defensive coordinator's departure is a symptom of something bigger that’s not clicking in Lincoln.`\
+https://nytimes.com/athletic/6853485/2025/12/01/nebraska-john-butler-fired-matt-rhule/
+
 **Firing of Nebraska DC signals Matt Rhule’s plan isn’t progressing as fast as intended**\
 `Butler’s departure is a symptom of something bigger that’s not clicking in Lincoln.`\
 https://nytimes.com/athletic/6853485/2025/12/01/nebraska-john-butler-fired-matt-rhule/
