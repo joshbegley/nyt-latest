@@ -1,3 +1,7 @@
+**Raiders-Chargers takeaways: Kimani Vidal, ground attack lead L.A. rout**\
+`Chargers bounce back after blowout loss to Jaguars, rushing for 192 yards vs. Raiders.`\
+https://nytimes.com/athletic/6850239/2025/11/30/raiders-chargers-score-result-takeaways-nfl-week-13/
+
 **Vikings-Seahawks takeaways: Seattle defense suffocates Minnesota in shutout**\
 `The Seahawks exploited Vikings undrafted rookie QB Max Brosmer and dominated Minnesota for their first shutout victory since 2015.`\
 https://nytimes.com/athletic/6850400/2025/11/30/vikings-seahawks-score-result-takeaways-nfl-week-13/
