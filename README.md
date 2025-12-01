@@ -1,3 +1,7 @@
+**Read the ruling**\
+`A federal appeals court ruled that Alina Habba has been serving unlawfully as U.S. attorney in New Jersey.`\
+https://nytimes.com/interactive/2025/12/01/us/habba-appeal.html
+
 **FPL GW13 review and GW14 preview: Selling Salah and Sarr, another Haaland blank**\
 `As we edge deeper into festive congestion, FPL managers are being forced to navigate surprise benchings and re-evaluate captaincy options`\
 https://nytimes.com/athletic/6850085/2025/12/01/fantasy-premier-league-fpl-tips-gameweek-14-salah/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6852002/2025/12/01/jon-sumrall-tulane-athletic-dire
 **Heisman Trophy odds are nearly dead even ahead of showdown in Indy**\
 `Fernando Mendoza and Julian Sayin are the clear favorites to win the Heisman Trophy ahead of a showdown in the Big Ten Championship Game.`\
 https://nytimes.com/athletic/6850014/2025/12/01/2025-heisman-trophy-odds-mendoza-sayin/
-
-**At This Event, Brides Traded Gowns Instead of Buying New Ones**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/brooklyn-bride-swap-wedding-dresses
 
