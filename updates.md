@@ -1,3 +1,11 @@
+**Feldman's candidates to replace Mark Stoops at Kentucky, from Brent Key to Will Stein**\
+`Several sitting head coaches could be tempted by the opening in Lexington.`\
+https://nytimes.com/athletic/6853199/2025/12/01/kentucky-football-coaching-search-candidates/
+
+**Trump Becomes the Wild Card in Razor-Thin Honduras Election**\
+`President Trump warned that if his favored candidate didn’t win, the United States would “not be throwing good money after bad” at the country.`\
+https://nytimes.com/2025/12/01/world/americas/honduras-election-trump.html
+
 **Zelensky Meets With European Leaders Amid Peace Deal Talks**\
 `President Volodymyr Zelensky of Ukraine met with President Emmanuel Macron of France on Monday in Paris to discuss the terms of the Trump administration’s peace deal with Russia. Mr. Zelensky said that Ukraine’s priorities are security guarantees and maintaining its sovereignty.`\
 https://nytimes.com/video/world/europe/100000010557301/zelensky-ukraine-peace-negotiations-macron.html

@@ -18,6 +18,10 @@ https://nytimes.com/athletic/6852844/2025/12/01/chiefs-playoff-hopes-andy-reid/
 `What Pope Leo’s first international trip tells us about the leader of the Catholic Church.`\
 https://nytimes.com/2025/12/01/world/pope-leo-lebanon-sri-lanka-iran.html
 
+**College Football Playoff 2025 projections: How many teams still have a chance?**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/12/01/college-football-playoff-bracket-projections-odds/
+
 **Kalani Sitake sidesteps Penn State questions as BYU states Playoff case**\
 `"I'm all about the Big 12 championship and keeping our team focused on that. So I'm going to avoid all the distractions," Sitake said.`\
 https://nytimes.com/athletic/6852958/2025/12/01/kalani-sitake-penn-state-byu-football-playoff/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6853188/2025/12/01/byu-vs-texas-tech-stream-how-to-
 **Trump Becomes the Wild Card in Razor-Thin Honduras Election**\
 `President Trump warned that if his favored candidate didn’t win, the United States would “not be throwing good money after bad” at the country.`\
 https://nytimes.com/2025/12/01/world/americas/honduras-election-trump.html
-
-**The Secret Life of a Ski Resort**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/snowbird-ski-resort-utah-mountain-preparations
 
