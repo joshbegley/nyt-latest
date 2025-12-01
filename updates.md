@@ -1,3 +1,7 @@
+**College Football Playoff 2025 projections: How many teams still have a chance?**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/12/01/college-football-playoff-bracket-projections-odds/
+
 **Feldman's candidates to replace Mark Stoops at Kentucky, from Brent Key to Will Stein**\
 `Several sitting head coaches could be tempted by the opening in Lexington.`\
 https://nytimes.com/athletic/6853199/2025/12/01/kentucky-football-coaching-search-candidates/
