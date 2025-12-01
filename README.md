@@ -1,3 +1,7 @@
+**Welcome to the Twilight Zone: What makes pink-ball, day-night cricket so different — and difficult?**\
+`The Brisbane Test poses particular challenges, from the significance of the toss to the glare of the floodlights and suspicions of the ball`\
+https://nytimes.com/athletic/6831244/2025/12/01/ashes-pink-ball-brisbane-australia-england/
+
 **NFL playoff picture, Week 13: Bears surge to top of NFC; Colts plummet in AFC**\
 `The race for the No. 1 seed in the NFC is tight, with four teams tied at nine wins. In the AFC, the Broncos and Patriots are pulling away.`\
 https://nytimes.com/athletic/6840554/2025/12/01/nfl-playoff-picture-week-13-bears-colts/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6848061/2025/12/01/sunderland-bournemouth-home-form
 **Palace, squad depth, and a window into their immediate future without Sarr**\
 `Palace have no direct replacement for Sarr. Neither do they have anyone to call upon who Glasner trusts enough to offer something different`\
 https://nytimes.com/athletic/6843944/2025/12/01/crystal-palace-manchester-united-premier-league-ismaila-sarr/
-
-**The three factors that have helped Brighton shake off the away-day blues**\
-`Fabian Hurzeler's side have struggled on the road this season but victory over Nottingham Forest is a blueprint for future success`\
-https://nytimes.com/athletic/6844349/2025/12/01/brighton-hurzeler-away-form/
 
