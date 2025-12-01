@@ -1,3 +1,7 @@
+**Audi Crooks breaks own Iowa State record with 47 points in win over Indiana**\
+`Audi Crooks is averaging nearly 25 points while playing only 24 minutes a game. `\
+https://nytimes.com/athletic/6850831/2025/11/30/iowa-state-audi-crooks-record-points/
+
 **Rams need another surge after humbling loss to Panthers: 'This is a wake-up call'**\
 `In what felt like the ultimate "trap game," Los Angeles was far from the team we've seen throughout its recent win streak.  `\
 https://nytimes.com/athletic/6850380/2025/11/30/rams-matthew-stafford-loss-panthers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6850146/2025/11/30/bills-steelers-score-result-take
 **Falcons' flop vs. Jets in New York raises more questions in another lost season**\
 `The Falcons fell to 4-8 with Sunday's loss, and questions about the offense and special teams continue to fester as the season ticks on.`\
 https://nytimes.com/athletic/6850583/2025/11/30/falcons-jets-week-13-special-teams-offense/
-
-**Ranking CFB's 10 open coaching jobs: With SEC making hires, Penn State's No. 1**\
-`This could be the most active coaching carousel college football has seen in many years.`\
-https://nytimes.com/athletic/6662286/2025/11/30/college-football-open-coaching-jobs-rankings/
 
