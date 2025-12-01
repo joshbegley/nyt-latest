@@ -1,3 +1,23 @@
+**Tulane AD: 'Trust' and 'transparency' convinced him to let Sumrall finish season**\
+`Tulane athletic director David Harris said he based his decision "squarely on what's in the best interests" of the Green Wave players.`\
+https://nytimes.com/athletic/6852002/2025/12/01/jon-sumrall-tulane-athletic-director-trust/
+
+**Heisman Trophy odds are nearly dead even ahead of showdown in Indy**\
+`Fernando Mendoza and Julian Sayin are the clear favorites to win the Heisman Trophy ahead of a showdown in the Big Ten Championship Game.`\
+https://nytimes.com/athletic/6850014/2025/12/01/2025-heisman-trophy-odds-mendoza-sayin/
+
+**At This Event, Brides Traded Gowns Instead of Buying New Ones**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/brooklyn-bride-swap-wedding-dresses
+
+**Araujo granted Barcelona leave of absence after talks with club**\
+`The 26-year-old was not part of the Barca matchday squad for Saturday's 3-1 league home win over Alaves on Saturday.`\
+https://nytimes.com/athletic/6852334/2025/12/01/ronald-araujo-barcelona-absence/
+
+**Nice players physically assaulted in confrontation with hundreds of fans**\
+`After Sunday's 3-1 loss around 400 Nice supporters gathered at the club’s training ground.`\
+https://nytimes.com/athletic/6852320/2025/12/01/nice-players-assaulted-fans-training-ground/
+
 **Nice players physically assaulted in confrontation with hundreds of fans**\
 `There was a sense of shock among Nice’s players who felt let down by what they believed was a lack of protection and security.`\
 https://nytimes.com/athletic/6852320/2025/12/01/nice-players-assaulted-fans-training-ground/
