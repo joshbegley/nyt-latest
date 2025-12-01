@@ -1,3 +1,7 @@
+**Nicola Pietrangeli, giant of Italian tennis, dies aged 92**\
+`Pietrangeli, who won two French Open titles, was an avatar for Italian tennis throughout his career.`\
+https://nytimes.com/athletic/6851681/2025/12/01/nicola-pietrangeli-tennis-obituary/
+
 **Giants at Patriots on MNF: Storylines, odds and Drake Maye's MVP campaign**\
 `Here's our "Monday Night Football" broadcast preview, with Giants-Patriots matchup info and frivolities.`\
 https://nytimes.com/athletic/6840661/2025/12/01/giants-patriots-drake-maye-mnf-how-to-watch/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6851100/2025/12/01/joel-embiid-returns-76ers-double
 **The Senators' goaltending is turning a corner. So, how much should they be playing? Notebook**\
 `Also, a check-in with Senators goaltending prospect Jackson Parsons who grew up a fan of the team thanks to Andrew Hammond.`\
 https://nytimes.com/athletic/6842616/2025/12/01/senators-goaltending-ullmark-merilainen-peters/
-
-**An upset of Patriots is Giants' interim Mike Kafka's last, best hope of earning full-time job**\
-`Kafka needs a meaningful win to convince ownership that he's the right coach to lead New York into the future.`\
-https://nytimes.com/athletic/6848093/2025/12/01/ny-giants-mike-kafka-interim-patriots/
 
