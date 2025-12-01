@@ -1,10 +1,22 @@
+**Human Rights Watch questions FIFA over ‘Peace Prize’, receives no response**\
+`On November 5, FIFA announced that the organisation would introduce a new award entitled “FIFA Peace Prize — Football Unites the World”.`\
+https://nytimes.com/athletic/6852219/2025/12/01/fifa-human-rights-watch-peace-prize/
+
+**gws-holiday-table-styling**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/holiday-table-styling
+
+**Forest expect Gibbs-White and Murillo to be available for Wolves visit**\
+`Dilane Bakwa and Oleksandr Zinchenko have also both returned to training as they continue their recovery from injury.`\
+https://nytimes.com/athletic/6852255/2025/12/01/nottingham-forest-gibbs-white-murillo-latest/
+
 **How to embrace the TE position and win your fantasy playoffs**\
 `Is your fantasy tight end struggling? Check out KC's rest-of-season tight end rankings and look for an upgrade.`\
 https://nytimes.com/athletic/6851754/2025/12/01/fantasy-football-tight-ends-playoffs-strength-of-schedule/
 
 **For ‘No Tax on Tips,’ the I.R.S. Gets Intimate**\
 `The Trump administration wants to exclude earnings from “pornographic activity” from a new tax break for tips. Will the I.R.S. know it when it sees it?`\
-https://nytimes.com/2025/12/01/us/politics/for-no-tax-on-tips-the-irs-gets-intimate.html
+https://nytimes.com/2025/12/01/us/politics/no-tax-on-tips-irs-exclusions.html
 
 **Two Galleries Form New Art Prize**\
 `The FLAG Art Foundation in New York and Serpentine in London have established a 1 million British pound award for five artists.`\
@@ -25,16 +37,4 @@ https://nytimes.com/newsgraphics/card-story/art-sculpture-parks
 **It’s Your Duty to Pay the Duty: Buyers Hit With Extra Charges on Packages**\
 `The end of a tariff exemption on goods worth $800 or less has left some U.S. shoppers with an extra shipping bill that must be paid before delivery.`\
 https://nytimes.com/2025/12/01/business/tariffs-customs-retail-shopping.html
-
-**The Bounce: Cooper Flagg is figuring it out, and SGA is breaking records**\
-`Zach Harper catches you up on the latest NBA news in our newsletter.`\
-https://nytimes.com/athletic/6852109/2025/12/01/the-bounce-cooper-flagg-shai-gilgeous-alexander/
-
-**Lowetide: Have the Oilers finally found a winning formula?**\
-`If the Oilers continue to play with structure and responsibility, the last hurdle will be in goal.`\
-https://nytimes.com/athletic/6849486/2025/12/01/edmonton-oilers-stats-standings-scores-2025/
-
-**gws-navajo-tourism-monument-valley**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/navajo-tourism-monument-valley
 
