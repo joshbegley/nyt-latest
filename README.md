@@ -1,6 +1,10 @@
+**Commanders-Broncos takeaways: Bo Nix and Denver defense survive overtime thriller**\
+`Nix won a duel against fellow ex-Oregon quarterback Marcus Mariota and the Broncos' defense stopped a 2-point PAT in OT to win it.`\
+https://nytimes.com/athletic/6850436/2025/12/01/broncos-commanders-score-result-takeaways-nfl-snf/
+
 **In Pittsburgh, the 'Fire Tomlin' chants grow louder as the playoffs slip further away**\
 `It was a bloodied Aaron Rodgers and a beat-down defense in a blowout loss to the Buffalo Bills.`\
-https://nytimes.com/athletic/6851155/2025/12/01/fire-mike-tomlin-steelers/
+https://nytimes.com/athletic/6851155/2025/12/01/pittsburgh-steelers-fire-tomlin-chants-bills-loss/
 
 **Welcome to the Twilight Zone: What makes pink-ball, day-night cricket so different — and difficult?**\
 `The Brisbane Test poses particular challenges, from the significance of the toss to the glare of the floodlights and suspicions of the ball`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6848006/2025/12/01/everton-idrissa-gueye-red-card-a
 **How Newcastle's Malick Thiaw became one of the best centre-backs in the Premier League**\
 `The Germany defender, who was signed this summer from Milan, has quickly established himself as a leader in Eddie Howe's team`\
 https://nytimes.com/athletic/6848803/2025/12/01/newcastle-malick-thiaw-premier-league/
-
-**How Sunderland turned the Stadium of Light into a fortress**\
-`Nearly four months into their Premier League return, Sunderland are unbeaten at home and making opponents feel foolish`\
-https://nytimes.com/athletic/6848061/2025/12/01/sunderland-bournemouth-home-form/
 

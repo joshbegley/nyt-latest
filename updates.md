@@ -1,3 +1,7 @@
+**In Pittsburgh, the 'Fire Tomlin' chants grow louder as the playoffs slip further away**\
+`It was a bloodied Aaron Rodgers and a beat-down defense in a blowout loss to the Buffalo Bills.`\
+https://nytimes.com/athletic/6851155/2025/12/01/fire-mike-tomlin-steelers/
+
 **Welcome to the Twilight Zone: What makes pink-ball, day-night cricket so different — and difficult?**\
 `The Brisbane Test poses particular challenges, from the significance of the toss to the glare of the floodlights and suspicions of the ball`\
 https://nytimes.com/athletic/6831244/2025/12/01/ashes-pink-ball-brisbane-australia-england/
