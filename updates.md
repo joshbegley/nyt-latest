@@ -1,3 +1,11 @@
+**Commanders-Broncos takeaways: Bo Nix and Denver defense survive overtime thriller**\
+`Nix won a duel against fellow ex-Oregon quarterback Marcus Mariota and the Broncos' defense stopped a 2-point PAT in OT to win it.`\
+https://nytimes.com/athletic/6850436/2025/12/01/broncos-commanders-score-result-takeaways-nfl-snf/
+
+**In Pittsburgh, the 'Fire Tomlin' chants grow louder as the playoffs slip further away**\
+`It was a bloodied Aaron Rodgers and a beat-down defense in a blowout loss to the Buffalo Bills.`\
+https://nytimes.com/athletic/6851155/2025/12/01/pittsburgh-steelers-fire-tomlin-chants-bills-loss/
+
 **In Pittsburgh, the 'Fire Tomlin' chants grow louder as the playoffs slip further away**\
 `It was a bloodied Aaron Rodgers and a beat-down defense in a blowout loss to the Buffalo Bills.`\
 https://nytimes.com/athletic/6851155/2025/12/01/fire-mike-tomlin-steelers/
