@@ -1,3 +1,11 @@
+**Audi Crooks breaks own Iowa State record with 47 points in win over Indiana**\
+`Audi Crooks is averaging nearly 25 points while playing only 24 minutes a game. `\
+https://nytimes.com/athletic/6850831/2025/11/30/iowa-state-audi-crooks-record-points/
+
+**Bills' Josh Allen, James Cook dominate on ground in big win over Steelers**\
+`The Bills' defense also gave Pittsburgh quarterback Aaron Rodgers a tough game in a critical AFC showdown Sunday,`\
+https://nytimes.com/athletic/6850146/2025/11/30/bills-steelers-score-result-takeaways-nfl-week-13/
+
 **Rams need another surge after humbling loss to Panthers: 'This is a wake-up call'**\
 `In what felt like the ultimate "trap game," Los Angeles was far from the team we've seen throughout its recent win streak.  `\
 https://nytimes.com/athletic/6850380/2025/11/30/rams-matthew-stafford-loss-panthers/
