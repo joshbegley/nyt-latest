@@ -1,3 +1,11 @@
+**The Aftermath of the D.C. Shooting**\
+`Readers discuss the shooting of two National Guard members in Washington. Also: Being Latino in the U.S.; wonderful mentors.`\
+https://nytimes.com/2025/12/01/opinion/national-guard-dc-shooting.html
+
+**‘The Merchants of Joy’ Review: Cutthroat Christmas Tree Sales**\
+`A new documentary contains zesty character studies of competing New York City tree vendors as they prepare for the holiday season.`\
+https://nytimes.com/2025/12/01/movies/the-merchants-of-joy-review-christmas-trees.html
+
 **AP men's basketball Top 25: Purdue No. 1, Michigan vaults to No. 3, USC jumps into poll**\
 `Purdue retained its spot at No. 1, receiving 40 of 61 first-place votes.`\
 https://nytimes.com/athletic/6852709/2025/12/01/ap-mens-basketball-top-25-michigan-usc-purdue/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6852404/2025/12/01/college-football-conference-titl
 **Russian Launch Site Mishap Shows Perilous State of Storied Space Program**\
 `The ability of Russia to launch astronauts to the International Space Station remains in limbo after an incident last week at the Baikonur base in Kazakhstan.`\
 https://nytimes.com/2025/12/01/science/russia-base-damage-iss-launch-collapse.html
-
-**The 2025 Word of the Year**\
-`Is “rage bait” a good choice for this year, in your opinion? Why or why not?`\
-https://nytimes.com/2025/12/01/learning/the-2025-word-of-the-year.html
-
-**Starbucks to Pay $39 Million in Landmark N.Y.C. Labor Law Settlement**\
-`The settlement with Starbucks stems from more than half a million violations, including failing to give workers stable schedules.`\
-https://nytimes.com/2025/12/01/nyregion/starbucks-workers-strike-settlement.html
 
