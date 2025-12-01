@@ -1,3 +1,11 @@
+**How imperfect Manchester United turned their fortunes around at Selhurst Park**\
+`Ruben Amorim's side initially failed but then succeeded at manipulating Crystal Palace's defence in Sunday's game`\
+https://nytimes.com/athletic/6851604/2025/12/01/manchester-united-tactics-crystal-palace/
+
+**Taking Steps Towards a Future Free from HIV**\
+`Taking PrEP (pre-exposure prophylaxis) before exposure can help prevent HIV.`\
+https://nytimes.com/paidpost/gilead/prevention-matters/taking-steps-towards-a-future-free-from-hiv.html
+
 **NC State, Virginia opening 2026 season in Rio de Janeiro**\
 `College football has been embracing more international events in recent years.`\
 https://nytimes.com/athletic/6850185/2025/12/01/college-football-2026-brazil-nc-state-virginia/

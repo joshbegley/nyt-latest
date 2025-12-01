@@ -1,3 +1,11 @@
+**How imperfect Manchester United turned their fortunes around at Selhurst Park**\
+`Ruben Amorim's side initially failed but then succeeded at manipulating Crystal Palace's defence in Sunday's game`\
+https://nytimes.com/athletic/6851604/2025/12/01/manchester-united-tactics-crystal-palace/
+
+**Taking Steps Towards a Future Free from HIV**\
+`Taking PrEP (pre-exposure prophylaxis) before exposure can help prevent HIV.`\
+https://nytimes.com/paidpost/gilead/prevention-matters/taking-steps-towards-a-future-free-from-hiv.html
+
 **NC State, Virginia opening 2026 season in Rio de Janeiro**\
 `College football has been embracing more international events in recent years.`\
 https://nytimes.com/athletic/6850185/2025/12/01/college-football-2026-brazil-nc-state-virginia/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6851815/2025/12/01/nottingham-forest-city-ground-re
 **The Athletic 136: A final word on Miami, Notre Dame and everyone else**\
 `Miami and Notre Dame are even across many metrics — except for one that matters the most. `\
 https://nytimes.com/athletic/6851450/2025/12/01/college-football-team-rankings-notre-dame-miami/
-
-**Path to the Winter Olympics: Jessie Diggins starts final season with a podium finish**\
-`Jessie Diggins and Johannes Høsflot Klæbo shined in the cross-country opener, a notable return in Alpine skiing, and more.`\
-https://nytimes.com/athletic/6809703/2025/12/01/winter-olympics-jessie-diggins-johannes-klaebo-mikaela-shiffrin/
-
-**Why Packers DC Jeff Hafley is teaching Micah Parsons about Mariano Rivera**\
-`Green Bay's sack master has something in common with baseball's all-time saves leader.`\
-https://nytimes.com/athletic/6848435/2025/12/01/micah-parsons-green-bay-packers/
 
