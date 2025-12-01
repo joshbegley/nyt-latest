@@ -1,3 +1,11 @@
+**Rams need another surge after humbling loss to Panthers: 'This is a wake-up call'**\
+`In what felt like the ultimate "trap game," Los Angeles was far from the team we've seen throughout its recent win streak.  `\
+https://nytimes.com/athletic/6850380/2025/11/30/rams-matthew-stafford-loss-panthers/
+
+**Big games by Payton Pritchard and Jaylen Brown lead Celtics past Cavaliers**\
+`Payton Pritchard scored a season-high 42 points and Jaylen Brown recorded a triple-double Sunday as the Celtics held off the Cavaliers.`\
+https://nytimes.com/athletic/6850792/2025/11/30/celtics-brown-triple-double-pritchard-40-points/
+
 **How two old Jets and one breakout performance got Aaron Glenn a third win**\
 `The Jets showed more signs of growth in Sunday's victory over the Atlanta Falcons.`\
 https://nytimes.com/athletic/6850764/2025/11/30/new-york-jets-win-atlanta-falcons/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6850583/2025/11/30/falcons-jets-week-13-special-tea
 **Ranking CFB's 10 open coaching jobs: With SEC making hires, Penn State's No. 1**\
 `This could be the most active coaching carousel college football has seen in many years.`\
 https://nytimes.com/athletic/6662286/2025/11/30/college-football-open-coaching-jobs-rankings/
-
-**Panthers' D was missing 3 starters, but still had Derrick Brown — and he saved the game**\
-`Thanks to the biggest play of Derrick Brown's NFL career, the Panthers enter their bye week in the middle of the playoff hunt.`\
-https://nytimes.com/athletic/6850555/2025/11/30/panthers-beat-rams-derrick-brown-playoffs/
-
-**Shedeur Sanders deserves more time. The rest of the Browns' operation does not**\
-`While Sanders had some moments, the loss to the 49ers was a crash back to reality after the Browns feasted on the Raiders in Week 12. `\
-https://nytimes.com/athletic/6850509/2025/11/30/shedeur-sanders-starter-browns-team-failures/
 
