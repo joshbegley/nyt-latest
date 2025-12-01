@@ -1,3 +1,19 @@
+**Michael Bradley frontrunner to become Red Bulls coach; more MLS notes**\
+`After guiding Red Bulls II to the MLS Next Pro title, Bradley is in line for an instant promotion, sources tell The Athletic`\
+https://nytimes.com/athletic/6852191/2025/12/01/michael-bradley-new-york-red-bulls-coach-mls-news/
+
+**UCLA hiring fast-rising James Madison head coach Bob Chesney**\
+`Chesney replaces DeShaun Foster, who was fired on Sept. 14 after an 0-3 start.`\
+https://nytimes.com/athletic/6852560/2025/12/01/ucla-bob-chesney-head-coach-jmu/
+
+**Feldman's candidates to replace Ryan Silverfield at Memphis, from Charles Huff to Tyson Helton**\
+`Memphis just finished its 12th consecutive season of .500 or better. Can the next coach keep up the consistency?`\
+https://nytimes.com/athletic/6852517/2025/12/01/memphis-football-coaching-search-candidates/
+
+**Trump Coin: The No. 2 Most Iconic Technology of 2025**\
+`Casey Newton and Kevin Roose, hosts of “Hard Fork,” rank the 50 most iconic technologies of 2025, and reveal why Trump coin is No. 2.`\
+https://nytimes.com/video/podcasts/100000010556683/trump-coin-the-no-2-most-iconic-technology-of-2025.html
+
 **Johnson and Trump Try to Avoid an Upset House Loss in Tennessee**\
 `Speaker Mike Johnson put the president on speakerphone during a Monday stop in the state, underscoring the unusual amount of national attention on a House special election.`\
 https://nytimes.com/2025/12/01/us/politics/trump-tennessee-election.html

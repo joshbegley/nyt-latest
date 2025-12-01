@@ -1,3 +1,19 @@
+**Michael Bradley frontrunner to become Red Bulls coach; more MLS notes**\
+`After guiding Red Bulls II to the MLS Next Pro title, Bradley is in line for an instant promotion, sources tell The Athletic`\
+https://nytimes.com/athletic/6852191/2025/12/01/michael-bradley-new-york-red-bulls-coach-mls-news/
+
+**UCLA hiring fast-rising James Madison head coach Bob Chesney**\
+`Chesney replaces DeShaun Foster, who was fired on Sept. 14 after an 0-3 start.`\
+https://nytimes.com/athletic/6852560/2025/12/01/ucla-bob-chesney-head-coach-jmu/
+
+**Feldman's candidates to replace Ryan Silverfield at Memphis, from Charles Huff to Tyson Helton**\
+`Memphis just finished its 12th consecutive season of .500 or better. Can the next coach keep up the consistency?`\
+https://nytimes.com/athletic/6852517/2025/12/01/memphis-football-coaching-search-candidates/
+
+**Trump Coin: The No. 2 Most Iconic Technology of 2025**\
+`Casey Newton and Kevin Roose, hosts of “Hard Fork,” rank the 50 most iconic technologies of 2025, and reveal why Trump coin is No. 2.`\
+https://nytimes.com/video/podcasts/100000010556683/trump-coin-the-no-2-most-iconic-technology-of-2025.html
+
 **Johnson and Trump Try to Avoid an Upset House Loss in Tennessee**\
 `Speaker Mike Johnson put the president on speakerphone during a Monday stop in the state, underscoring the unusual amount of national attention on a House special election.`\
 https://nytimes.com/2025/12/01/us/politics/trump-tennessee-election.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6852286/2025/12/01/sf-giants-tatsuya-imai-payroll/
 **Read the ruling**\
 `A federal appeals court ruled that Alina Habba has been serving unlawfully as U.S. attorney in New Jersey.`\
 https://nytimes.com/interactive/2025/12/01/us/habba-appeal.html
-
-**FPL GW13 review and GW14 preview: Selling Salah and Sarr, another Haaland blank**\
-`As we edge deeper into festive congestion, FPL managers are being forced to navigate surprise benchings and re-evaluate captaincy options`\
-https://nytimes.com/athletic/6850085/2025/12/01/fantasy-premier-league-fpl-tips-gameweek-14-salah/
-
-**Terry Rozier clears $8.2M tax lien, will be arraigned on gambling charges next Monday**\
-`Terry Rozier will make his first court appearance next Monday after he was charged as part of a federal investigation into illegal gambling.`\
-https://nytimes.com/athletic/6852288/2025/12/01/nba-gambling-terry-rozier-taxes-court/
-
-**Nathan Lane and Laurie Metcalf to Star in Broadway ‘Salesman’**\
-`Joe Mantello will direct the next revival of Arthur Miller’s “Death of a Salesman,” opening in April at the Winter Garden Theater.`\
-https://nytimes.com/2025/12/01/theater/death-of-a-salesman-broadway-lane-metcalf.html
-
-**13 Plays (and 2 Festivals) to Invigorate Your December**\
-`Michelle Williams leads an O’Neill drama, Matthew Broderick stars in Molière, and plenty of stages brim with non-holiday fare, Off Broadway and beyond.`\
-https://nytimes.com/2025/12/01/theater/plays-off-broadway-michelle-williams-matthew-broderick.html
 
