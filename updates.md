@@ -1,3 +1,11 @@
+**Word of the Day: halcyon**\
+`This word has appeared in 53 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/12/01/learning/word-of-the-day-halcyon.html
+
+**Trump’s New American Empire Won’t Last Forever**\
+`Latin Americans have proved surprisingly acquiescent to U.S. aggression — but that won’t last forever.`\
+https://nytimes.com/2025/12/01/opinion/trump-latin-america.html
+
 **Sri Lanka Declares ‘Largest’ Disaster as Cyclone Kills 355**\
 `The president called the nationwide flooding the largest and most challenging natural disaster in the island’s history, as emergency rescue efforts continue.`\
 https://nytimes.com/2025/12/01/world/asia/sri-lanka-floods-cyclone.html

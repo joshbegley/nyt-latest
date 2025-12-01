@@ -1,3 +1,7 @@
+**Word of the Day: halcyon**\
+`This word has appeared in 53 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/12/01/learning/word-of-the-day-halcyon.html
+
 **Sri Lanka Declares ‘Largest’ Disaster as Cyclone Kills 355**\
 `The president called the nationwide flooding the largest and most challenging natural disaster in the island’s history, as emergency rescue efforts continue.`\
 https://nytimes.com/2025/12/01/world/asia/sri-lanka-floods-cyclone.html
@@ -16,7 +20,7 @@ https://nytimes.com/issue/todayspaper/2025/12/01/todays-new-york-times
 `A new show based on a Canadian sports romance novel airs. And a reunion of ‘The Secret Lives of Mormon Wives’ recaps the third season.`\
 https://nytimes.com/2025/12/01/arts/television/heated-rivalry-tv-this-week.html
 
-**America’s Backyard Isn’t as Quiet as It Looks**\
+**Trump’s New American Empire Won’t Last Forever**\
 `Latin Americans have proved surprisingly acquiescent to U.S. aggression — but that won’t last forever.`\
 https://nytimes.com/2025/12/01/opinion/trump-latin-america.html
 
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/6831244/2025/12/01/ashes-pink-ball-brisbane-austral
 **NFL playoff picture, Week 13: Bears surge to top of NFC; Colts plummet in AFC**\
 `The race for the No. 1 seed in the NFC is tight, with four teams tied at nine wins. In the AFC, the Broncos and Patriots are pulling away.`\
 https://nytimes.com/athletic/6840554/2025/12/01/nfl-playoff-picture-week-13-bears-colts/
-
-**WNBA, players union agree to 6-week extension as CBA negotiations continue**\
-`Nov. 30 marked the previous expiration deadline for the 30-day extension.`\
-https://nytimes.com/athletic/6851244/2025/12/01/wnba-players-union-cba-negotiations-extension/
 
