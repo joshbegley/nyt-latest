@@ -1,5 +1,5 @@
-**Klay Thompson renames boat after girlfriend Megan the Stallion**\
-`Thompson has grown famous for his boating adventures, and now he has a nautical partner in crime.`\
+**Klay Thompson names boat after girlfriend Megan Thee Stallion**\
+`Thompson has become famous for his boating adventures, and now he has a nautical partner in crime.`\
 https://nytimes.com/athletic/6852811/2025/12/01/klay-thompson-boat-megan-thee-stallion/
 
 **San Antonio**\

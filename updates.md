@@ -1,3 +1,15 @@
+**Klay Thompson renames boat after girlfriend Megan the Stallion**\
+`Thompson has grown famous for his boating adventures, and now he has a nautical partner in crime.`\
+https://nytimes.com/athletic/6852811/2025/12/01/klay-thompson-boat-megan-thee-stallion/
+
+**San Antonio**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/things-to-do-san-antonio
+
+**I’m Building an Algorithm That Doesn’t Rot Your Brain**\
+`Jack Conte, the chief executive of Patreon, a platform for creators to monetize their art and content, outlines his vision for an internet that puts people, not ad revenues, first.`\
+https://nytimes.com/video/opinion/100000010499778/im-building-an-algorithm-that-doesnt-rot-your-brain.html
+
 **Lane Kiffin's LSU contract: $13 million per year, bonus for Ole Miss CFP success**\
 `Louisiana Gov. Jeff Landry railed against Brian Kelly’s exorbitant contract. Now LSU is giving Lane Kiffin a more lucrative one.`\
 https://nytimes.com/athletic/6852863/2025/12/01/lane-kiffin-lsu-contract-details/
