@@ -1,3 +1,7 @@
+**Millions Under Winter Storm Watch as Potential Nor’easter Approaches**\
+`Forecasters expected the storm to track up the Eastern Seaboard Monday night into Tuesday, leaving as much as a foot of snow in parts of the Northeast.`\
+https://nytimes.com/2025/12/01/us/snowstorm-noreaster-northeast-new-england.html
+
 **Honduras Votes in Presidential Election**\
 `Hondurans cast their ballots in Sunday’s presidential elections. The race was tense even before President Trump got involved, endorsing one of the right-wing candidates.`\
 https://nytimes.com/video/world/americas/100000010556062/honduras-election.html
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/6850436/2025/12/01/broncos-commanders-score-result-
 **In Pittsburgh, the 'Fire Tomlin' chants grow louder as the playoffs slip further away**\
 `It was a bloodied Aaron Rodgers and a beat-down defense in a blowout loss to the Buffalo Bills.`\
 https://nytimes.com/athletic/6851155/2025/12/01/pittsburgh-steelers-fire-tomlin-chants-bills-loss/
-
-**Welcome to the Twilight Zone: What makes pink-ball, day-night cricket so different — and difficult?**\
-`The Brisbane Test poses particular challenges, from the significance of the toss to the glare of the floodlights and suspicions of the ball`\
-https://nytimes.com/athletic/6831244/2025/12/01/ashes-pink-ball-brisbane-australia-england/
 
