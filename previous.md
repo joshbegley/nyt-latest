@@ -1,3 +1,11 @@
+**Fantasy trends and hidden gems: Dawson Mercer, Tyler Seguin on the rise**\
+`As the dust settles on a chaotic holiday week schedule, Shayna Goldman looks at the top players to target on the fantasy hockey waiver wire.`\
+https://nytimes.com/athletic/6850439/2025/12/01/fantasy-hockey-sleepers-trends-hidden-gems-week9/
+
+**A 5-15 Clippers start and one of the worst months in franchise history: 20 thoughts**\
+`The Clippers are 5-15 entering the month of December and coming off arguably one of their worst months of their franchise's history.`\
+https://nytimes.com/athletic/6848751/2025/12/01/clippers-standings-record/
+
 **How Maxi Kleber's airballed layup saved the Lakers: 'I have great empathy for him'**\
 `Maxi Kleber's unusual miss provided a good laugh for the Lakers — and was just what they needed Sunday.`\
 https://nytimes.com/athletic/6851513/2025/12/01/lakers-win-maxi-kleber-layup/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6851679/2025/12/01/brazil-abel-braga-homophobic/
 **I Made an Offensive Joke. But So Did Everyone Else! Why Did I Get Fired?**\
 `Plus, should you endure a stultifying work life to enable a happy personal life?`\
 https://nytimes.com/2025/12/01/business/racist-joke-at-work.html
-
-**NBA Rewind: The Thunder will lose again sometime, right?**\
-`Plus: Who's hot (Lakers) and not (Bucks) as NBA Cup elimination games are set. `\
-https://nytimes.com/athletic/6847938/2025/12/01/nba-rewind-thunder-nba-cup-cooper-flagg/
-
-**How imperfect Manchester United turned their fortunes around at Selhurst Park**\
-`Ruben Amorim's side initially failed but then succeeded at manipulating Crystal Palace's defence in Sunday's game`\
-https://nytimes.com/athletic/6851604/2025/12/01/manchester-united-tactics-crystal-palace/
 
