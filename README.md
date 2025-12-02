@@ -1,3 +1,23 @@
+**Agriculture Dept. Threatens to Withhold Food Stamps From Democratic States**\
+`The latest threat to SNAP funding came after weeks of confusion over the status of benefits during the government shutdown.`\
+https://nytimes.com/2025/12/02/us/politics/food-stamps-democratic-states.html
+
+**David Pryce-Jones, Wide-Ranging Conservative Writer, Dies at 89**\
+`The author of novels, histories, biographies and influential political essays, he approached them all with a droll British wit and a firm commitment to Western values.`\
+https://nytimes.com/2025/12/02/books/david-pryce-jones-dead.html
+
+**Charlie Weis Jr. to coach Ole Miss in CFP after following Lane Kiffin to LSU**\
+`Weis Jr. was one of four Ole Miss staffers who joined Kiffin in leaving for LSU on Sunday.`\
+https://nytimes.com/athletic/6856442/2025/12/02/charlie-weis-jr-ole-miss-lane-kiffin-cfp/
+
+**Zion Williamson to miss at least 3 weeks with hip adductor strain: Source**\
+`The Pelicans star already missed eight games earlier this season while recovering from a left hamstring strain. `\
+https://nytimes.com/athletic/6856404/2025/12/02/zion-williamson-adductor-injury-pelicans/
+
+**The Briefing - Newcastle 2 Tottenham 2: Leader Romero, Newcastle still rely on Guimaraes starting**\
+`Newcastle United and Tottenham Hotspur played out a dramatic 2-2 draw at St. James' Park on Tuesday night.`\
+https://nytimes.com/athletic/6851573/2025/12/02/newcastle-tottenham-score-result-report-analysis/
+
 **Can a Celebrity Be Conservative?**\
 `Ross Douthat, the host of The New York Times podcast “Interesting Times With Ross Douthat,” spoke with Jon Caramanica and Joe Coscarelli, who host “Popcast” at The Times, about how celebrities are reacting to a second Trump administration and if pop culture is moving to the right.`\
 https://nytimes.com/video/podcasts/100000010560687/can-a-celebrity-be-conservative.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6856447/2025/12/02/sonny-gray-red-sox-world-series-
 **Suspect in National Guard Shooting Enters Not Guilty Plea**\
 `Rahmanullah Lakanwal, who is accused of killing a National Guard member and gravely wounding another, appeared in court remotely from a hospital bed.`\
 https://nytimes.com/2025/12/02/us/national-guard-shooting-suspect-plea.html
-
-**Immigration Officials Target Afghans for Deportation in Wake of D.C. Shooting**\
-`The stepped-up enforcement comes as the Trump administration has also moved to reassess the vetting of Afghans who came to the country under the Biden administration.`\
-https://nytimes.com/2025/12/02/us/politics/afghans-deportation-shooting.html
-
-**Hegseth Says He Did Not See Survivors of Boat Attack Clinging to Wreckage**\
-`The defense secretary supported the admiral he said called for the second strike on Sept. 2 against a boat the administration says was smuggling drugs.`\
-https://nytimes.com/2025/12/02/us/politics/hegseth-boat-strikes.html
-
-**Marco Rubio campaigns for Miami to make CFP over Notre Dame**\
-`Rubio joked that President Trump will have to take over the College Football Playoff if Miami doesn't get in.`\
-https://nytimes.com/athletic/6856109/2025/12/02/marco-rubio-miami-notre-dame-college-football-playoff/
-
-**Costco Sues Trump Administration Over Tariffs**\
-`Costco sued the Trump administration for a refund of the tariffs it has paid on imported goods this year, should the Supreme Court rule that the tariffs were implemented illegally.`\
-https://nytimes.com/video/us/politics/100000010560175/trump-tariffs-costco-lawsuit.html
-
-**Kalani Sitake will stay at BYU despite strong interest from Penn State: Source**\
-`It puts to rest the start of an angsty week as the No. 11 Cougars are set to face No. 5 Texas Tech Saturday for the Big 12 title.`\
-https://nytimes.com/athletic/6855506/2025/12/02/kalani-sitake-byu-coach-penn-state-carousel/
 

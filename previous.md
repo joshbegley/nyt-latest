@@ -1,3 +1,7 @@
+**Can a Celebrity Be Conservative?**\
+`Ross Douthat, the host of The New York Times podcast “Interesting Times With Ross Douthat,” spoke with Jon Caramanica and Joe Coscarelli, who host “Popcast” at The Times, about how celebrities are reacting to a second Trump administration and if pop culture is moving to the right.`\
+https://nytimes.com/video/podcasts/100000010560687/can-a-celebrity-be-conservative.html
+
 **Ukraine Is Still Worth Fighting For**\
 `Don’t let Trump sell out its freedom for business deals with Putin.`\
 https://nytimes.com/2025/12/02/opinion/ukraine-russia-peace-plan-business-deal.html
