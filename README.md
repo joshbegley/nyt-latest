@@ -1,3 +1,7 @@
+**Trump Intervenes Again in Honduras Vote, Alleging Fraud Without Evidence**\
+`Honduras was on edge after tallies showed two candidates separated by about 500 votes. Then President Trump claimed that officials were rigging results.`\
+https://nytimes.com/2025/12/02/world/americas/honduras-presidential-vote-trump.html
+
 **Word of the Day: ineffable**\
 `This word has appeared in 44 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/12/02/learning/word-of-the-day-ineffable.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6851475/2025/12/02/ashes-brisbane-australia-england
 **Why Bukayo Saka's assists record doesn't tell the full story**\
 `At Chelsea, Saka recorded his first Premier League assist for a year — but that doesn't mean he has not been a creative force in the interim`\
 https://nytimes.com/athletic/6851683/2025/12/02/bukayo-saka-assist-stats-premier-league-arsenal/
-
-**Leeds United Transfer DealSheet: What to expect in 2026**\
-`Leeds are struggling in the Premier League and will be eyeing January as an opportunity to improve their situation`\
-https://nytimes.com/athletic/6837440/2025/12/02/leeds-transfer-latest-january-summer-2026/
 
