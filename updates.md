@@ -1,3 +1,7 @@
+**What a Blockbuster Donation Means for the Future of Giving**\
+`Michael Dell and his wife, Susan Dell, plan to give away billions of dollars to fund investment accounts for children in the United States.`\
+https://nytimes.com/2025/12/02/business/dealbook/dell-donation-trump-accounts.html
+
 **Kalshi, a Prediction Market, Raises $1 Billion in New Round**\
 `The fund-raising effort, the company’s third this year, values it at $11 billion, and comes amid stiff competition in the increasingly popular industry.`\
 https://nytimes.com/2025/12/02/business/dealbook/kalshi-prediction-market-billion.html
