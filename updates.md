@@ -1,3 +1,15 @@
+**Fantasy football strength of schedule: Week 14 and playoff matchup rankings**\
+`Jake Ciely's Week 14 matchup rankings can help with difficult start/sit decisions this week. Playoff rankings aid future plans. `\
+https://nytimes.com/athletic/6856547/2025/12/02/fantasy-football-strength-of-schedule-week-14-playoffs/
+
+**Angels sign Alek Manoah, former All-Star looking for a rebound, to 1-year deal: Source**\
+`Manoah finished third in the AL Cy Young balloting in 2022 but struggled in 2023 and had Tommy John surgery in 2024.`\
+https://nytimes.com/athletic/6856532/2025/12/02/alek-manoah-angels-contract-blue-jays/
+
+**We Tested Kirkland Signature’s Menswear**\
+`Kirkland Signature, Costco’s house brand, is known for delivering premium products at reasonable prices, but the brand itself remains something of an enigma. Wirecutter writer Alex Aciman tested all of its men’s clothes to try and make sense of it all.`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010560810/we-tested-kirkland-signatures-menswear.html
+
 **How Congress Should Respond, Right Now, to Trump’s Boat Strikes**\
 `Federal lawmakers have ample powers to uncover and end administration abuse.`\
 https://nytimes.com/2025/12/02/opinion/trump-venezuela-boat-strikes-congress-committee.html
