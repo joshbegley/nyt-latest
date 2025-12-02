@@ -1,3 +1,7 @@
+**11 Musical Love Letters From Artists to Their Heroes**\
+`Hear the Replacements (on Big Star), Sonic Youth (on Karen Carpenter), Stevie Wonder (on Duke Ellington) and more.`\
+https://nytimes.com/2025/12/02/arts/music/amplifier-newsletter-musical-love-letters.html
+
 **Elon Musk’s Foundation Grows to $14 Billion, but Gives Little to Outsiders**\
 `The philanthropy has become one of America’s biggest, but most of its giving went to charities closely tied to the world’s richest man.`\
 https://nytimes.com/2025/12/02/us/politics/elon-musk-foundation.html
