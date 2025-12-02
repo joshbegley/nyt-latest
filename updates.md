@@ -1,3 +1,7 @@
+**Pope Leo XIV Delivers Message of Peace in Lebanon**\
+`The pope ended his first international tour presiding over a waterfront mass to thousands at the site of a 2020 Beirut port explosion, which killed hundreds.`\
+https://nytimes.com/video/world/middleeast/100000010559122/pope-leo-delivers-lebanon-mass.html
+
 **Which NHL division is the best? Making the case for and against each**\
 `Let's lay out each division's strengths and flaws — and then you can cast your vote.`\
 https://nytimes.com/athletic/6855217/2025/12/02/nhl-division-standings-mcindoe-red-light-newsletter/
