@@ -1,40 +1,40 @@
-**Denny Hamlin gives fiery testimony on Day 2 of Michael Jordan vs. NASCAR trial**\
-`Hamlin's testimony continued on Day 2, when he was questioned in cross-examination on his own comments about the state of NASCAR.`\
-https://nytimes.com/athletic/6854862/2025/12/02/nascar-michael-jordan-trial-denny-hamlin-testimony/
+**Trump Calls Somalis ‘Garbage’ He Doesn’t Want in the Country**\
+`The president delivered xenophobic comments during a publicly broadcast cabinet meeting.`\
+https://nytimes.com/2025/12/02/us/politics/trump-somalia.html
 
-**Fantasy football market share report: Adonai Mitchell, Christian Watson and more**\
-`Michael Salfino analyzes the touches and targets distribution for Week 13, noting strong showings from Adonai Mitchell and Christian Watson.`\
-https://nytimes.com/athletic/6855867/2025/12/02/fantasy-football-market-share-report-christian-watson/
+**How to watch USC vs. Oregon men's basketball: Time, TV, streaming**\
+`Find out how to watch the USC Trojans play the Oregon Ducks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6856150/2025/12/02/usc-vs-oregon-stream-how-to-watch-dec-2/
 
-**Ayanna Pressley Won’t Challenge Markey for Senate in Massachusetts**\
-`Ms. Pressley, a prominent progressive, will instead run for re-election to the House. Her move is expected to help Senator Ed Markey, though he still faces one well-known Democratic primary challenger.`\
-https://nytimes.com/2025/12/02/us/politics/ayanna-pressley-markey-massachusetts-senate.html
+**How to watch Bengals vs. Bills: Time, TV, streaming**\
+`Find out how to watch the Cincinnati Bengals play the Buffalo Bills, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6856143/2025/12/02/bengals-vs-bills-stream-how-to-watch-dec-7/
 
-**Dijon, a Studio Maestro, Is Stepping Into the Spotlight**\
-`Onstage in Brooklyn, the buzzy producer and musician blasted his songs apart and stitched them back together again.`\
-https://nytimes.com/2025/12/02/arts/music/dijon-live-review.html
+**How to watch Dolphins vs. Jets: Time, TV, streaming**\
+`Find out how to watch the Miami Dolphins play the New York Jets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6856141/2025/12/02/dolphins-vs-jets-stream-how-to-watch-dec-7/
 
-**Eugene Hasenfus, Gunrunner Who Exposed Iran-Contra Plot, Dies at 84**\
-`He emerged out of obscurity when his cargo plane was shot down while illegally ferrying arms to Nicaraguan rebels, setting off a scandal that tarnished the Reagan and Bush White Houses.`\
-https://nytimes.com/2025/12/02/us/eugene-hasenfus-dead.html
+**How to watch Saints vs. Buccaneers: Time, TV, streaming**\
+`Find out how to watch the New Orleans Saints play the Tampa Bay Buccaneers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6856139/2025/12/02/saints-vs-buccaneers-stream-how-to-watch-dec-7/
 
-**The 85-Year-Old Activist Trying to Block the Trump Presidential Library Plan**\
-`After Marvin Dunn sued, the trustees of Miami Dade College voted for a second time to hand over a prime property for President Trump’s future library. He says he’ll keep fighting.`\
-https://nytimes.com/2025/12/02/us/trump-library.html
+**How to watch Saint Mary's (CA) vs. USC women's basketball: Time, TV, streaming**\
+`Find out how to watch the Saint Mary's Gaels play the USC Trojans, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6856137/2025/12/02/saint-mary-s-ca-vs-usc-stream-how-to-watch-dec-2/
 
-**Super Bowl odds: Week 13 carnage reshuffles top teams**\
-`Losses by major contenders last week blew up the Super Bowl market. Which contenders are trending up?`\
-https://nytimes.com/athletic/6855710/2025/12/02/super-bowl-odds-week-14/
+**How to watch UConn vs. Kansas men's basketball: Time, TV, streaming**\
+`Find out how to watch the UConn Huskies play the Kansas Jayhawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6856134/2025/12/02/uconn-vs-kansas-stream-how-to-watch-dec-2/
 
-**Scoop City: What happened on Younghoe Koo's kick?**\
-`Explaining the Giants kicker's perspective, plus the Texans passing defense, Cowboys attack and other elite units.`\
-https://nytimes.com/athletic/6855969/2025/12/02/what-happened-younghoe-koo-kick-nfl-scoop-city/
+**How to watch Florida vs. Duke men's basketball: Time, TV, streaming**\
+`Find out how to watch the Florida Gators play the Duke Blue Devils, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6856135/2025/12/02/florida-vs-duke-stream-how-to-watch-dec-2/
 
-**Why the Penguins' unlikely quest to reach the playoffs is gaining steam**\
-`Here's what's driving the growing optimism that the Penguins might be good enough to reach the Stanley Cup playoffs.`\
-https://nytimes.com/athletic/6855432/2025/12/02/penguins-nhl-playoffs-standings-wild-card-race/
+**How to watch North Carolina vs. Kentucky men's basketball: Time, TV, streaming**\
+`Find out how to watch the North Carolina Tar Heels play the Kentucky Wildcats, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6856131/2025/12/02/north-carolina-vs-kentucky-stream-how-to-watch-dec-2/
 
-**College Radio Keeps Its Cool**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/college-radio-keeps-its-cool
+**How to watch Purdue vs. Rutgers men's basketball: Time, TV, streaming**\
+`Find out how to watch the Purdue Boilermakers play the Rutgers Scarlet Knights, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6856128/2025/12/02/purdue-vs-rutgers-stream-how-to-watch-dec-2/
 
