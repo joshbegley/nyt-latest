@@ -1,3 +1,7 @@
+**Jets owner donates $1 million to launch women's college flag-football league**\
+`The 15-team league, whose inaugural season will take place in 2026, is an example of the growing popularity of women's flag football.`\
+https://nytimes.com/athletic/6855560/2025/12/02/jets-woody-johnson-donation-womens-college-flag-football/
+
 **Hegseth Under Scrutiny in Lethal Boat Strikes**\
 `Readers discuss the aftermath of a U.S. attack on a boat in the Caribbean. Also: Fixing Penn Station; Trumpism after Trump.`\
 https://nytimes.com/2025/12/02/opinion/hegseth-lethal-boat-strikes.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6797972/2025/12/02/blues-sports-betting-explainer/
 **Ranking CFB's 10 open coaching jobs: With SEC making hires, Penn State's No. 1**\
 `This could be the most active coaching carousel college football has seen in many years.`\
 https://nytimes.com/athletic/6662286/2025/12/02/college-football-open-coaching-jobs-rankings/
-
-**Patriots mailbag: Submit your bye week questions for reporter Chad Graff**\
-`As everything continues to come up Patriots, let’s reset by answering some of your questions. Leave your mailbag questions below.`\
-https://nytimes.com/athletic/6854399/2025/12/02/new-england-patriots-mailbag-bye-week/
 
