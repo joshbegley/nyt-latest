@@ -1,3 +1,7 @@
+**U.N. Security Council to Make First Official Visit to Syria and Lebanon**\
+`The trip comes ahead of the anniversary of the fall of Bashar al-Assad, and as Lebanon is navigating the cease-fire between Hezbollah and Israel.`\
+https://nytimes.com/2025/12/02/world/middleeast/lebanon-un-security-council.html
+
 **Trump Frees Former President of Honduras**\
 `Plus, C.D.C. advisers are set to change the vaccine schedule. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2025/12/02/briefing/honduras-somalis-cdc.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6856547/2025/12/02/fantasy-football-strength-of-sch
 **Angels sign Alek Manoah, former All-Star looking for a rebound, to 1-year deal: Source**\
 `Manoah finished third in the AL Cy Young balloting in 2022 but struggled in 2023 and had Tommy John surgery in 2024.`\
 https://nytimes.com/athletic/6856532/2025/12/02/alek-manoah-angels-contract-blue-jays/
-
-**We Tested Kirkland Signature’s Menswear**\
-`Kirkland Signature, Costco’s house brand, is known for delivering premium products at reasonable prices, but the brand itself remains something of an enigma. Wirecutter writer Alex Aciman tested all of its men’s clothes to try and make sense of it all.`\
-https://nytimes.com/video/smarter-living/wirecutter/100000010560810/we-tested-kirkland-signatures-menswear.html
 
