@@ -1,3 +1,27 @@
+**Team USA cruises in World Cup qualifying as MarJon Beauchamp makes case for NBA call**\
+`Monday night's Team USA blowout over Nicaragua was a Beauchamp showcase. Will NBA teams be interested in him?`\
+https://nytimes.com/athletic/6854279/2025/12/02/marjon-beauchamp-team-usa-world-cup/
+
+**Don't let Lane Kiffin get you down. Everyone else still wants to make the Playoff!**\
+`If anything, Lane Kiffin put a price on giving up the College Football Playoff: $91 million.`\
+https://nytimes.com/athletic/6852970/2025/12/02/lane-kiffin-playoff-ole-miss-lsu/
+
+**The Lions need more from their pass rush: Can they improve it for playoff push?**\
+`Detroit's pass rush is taking too long to pressure the QB and DC Kelvin Sheppard says they need to win more one-on-one battles.`\
+https://nytimes.com/athletic/6854246/2025/12/02/lions-pass-rush-aidan-hutchinson/
+
+**Bears' Ben Johnson alters NFC North as Caleb Williams grows: Week 13 film review**\
+`Also, how the Texans defense has made them look like a playoff team and assessing whether Raiders rookie RB Ashton Jeanty is a bust.`\
+https://nytimes.com/athletic/6852990/2025/12/02/bears-ben-johnson-caleb-williams-week-13-film-review/
+
+**The Pulse: The new best team in the NFL?**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6853727/2025/12/02/patriots-giants-nfl-power-rankings-the-pulse/
+
+**Former England batter Robin Smith, 'an incredible player', dies at 62**\
+`The South Africa-born batter thrived against fast bowling and scored over 4,000 runs for England across an eight-year Test career`\
+https://nytimes.com/athletic/6854648/2025/12/02/robin-smith-dies-england-cricket-obituary/
+
 **TAFC: Man Utd's midfield focus for 2026 deals, meet the World Cup draw teams**\
 `Today in TAFC: The midfielders that might help Manchester United move to the next level. Plus: Meet the World Cup draw teams.`\
 https://nytimes.com/athletic/6854608/2025/12/02/manchester-united-midfielder-transfers-2026-world-cup-draw/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6853142/2025/12/02/william-nylander-on-craig-berube
 **Browns' aging offensive line looking at potential makeover next season**\
 `Taking a look at where Cleveland's O-linemen stand heading into the final five games of the 2025 season. `\
 https://nytimes.com/athletic/6853301/2025/12/02/browns-offensive-line-future/
-
-**Fernandez says he received 'unwavering support' from Chelsea after racist chant**\
-`Fernandez, 24, said he cancelled his holiday to apologise in person to the Chelsea squad at their pre-season tour.`\
-https://nytimes.com/athletic/6854688/2025/12/02/enzo-fernandez-chelsea-france-argentina-chant/
-
-**Maple Leafs prospect watch: Should William Villeneuve get the NHL call?**\
-`A right-shot defenceman with puck-moving skills and offensive upside, Villeneuve is making his case for an NHL call-up. `\
-https://nytimes.com/athletic/6852686/2025/12/02/maple-leafs-prospect-william-villeneuve-nhl/
-
-**ACC/SEC Men's Basketball Challenge schedule: Florida-Duke leads 2-day conference clash**\
-`Florida plays at Duke. UNC visits Kentucky. A third ranked matchup pits Louisville against Arkansas. It's the ACC/SEC Men's Challenge.`\
-https://nytimes.com/athletic/6853551/2025/12/02/acc-sec-mens-college-basketball-schedule-tv-2025/
-
-**Arsenal's Saliba in contention to face Brentford after 'bizarre' injury - Arteta**\
-`The Arsenal manager would not specify the nature of Saliba’s problem but says he should be fit "in a matter of days".`\
-https://nytimes.com/athletic/6854748/2025/12/02/arsenal-injuries-william-saliba-brentford-fitness/
-
-**Lamar Jackson, Ravens are running out of time to fix their underachieving offense**\
-`Baltimore has had dispiriting performances this season, but the loss to Cincinnati had to be rock bottom for the offense.`\
-https://nytimes.com/athletic/6853330/2025/12/02/ravens-lamar-jackson-struggling-offense/
-
-**Caleb Williams and the Bears are winning 'in spite of their passing game.' Now what?**\
-`Williams went 17-for-36 for 154 yards with a rough interception Friday. Ben Johnson is motivated to clean up the passing game in a hurry.`\
-https://nytimes.com/athletic/6853483/2025/12/02/bears-caleb-williams-passing-game/
 

@@ -14,6 +14,10 @@ https://nytimes.com/athletic/6854246/2025/12/02/lions-pass-rush-aidan-hutchinson
 `Also, how the Texans defense has made them look like a playoff team and assessing whether Raiders rookie RB Ashton Jeanty is a bust.`\
 https://nytimes.com/athletic/6852990/2025/12/02/bears-ben-johnson-caleb-williams-week-13-film-review/
 
+**Could Red Wings find a spark via trade?**\
+`The slumping Red Wings could use a spark. Is a trade the solution?`\
+https://nytimes.com/athletic/6853311/2025/12/02/detroit-red-wings-trade-candidates-defense-forwards/
+
 **The Pulse: The new best team in the NFL?**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6853727/2025/12/02/patriots-giants-nfl-power-rankings-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/02/world/asia/floods-indonesia-sri-lanka-thailand-ph
 **One-on-one: Nylander on Berube, Marner and thriving in the Leafs spotlight**\
 `What’s become clear over the years is that Nylander is perfectly suited, in his approach and disposition, to play in Toronto for the Leafs.`\
 https://nytimes.com/athletic/6853142/2025/12/02/william-nylander-on-craig-berube-mitch-marner-and-thriving-in-the-maple-leafs-spotlight/
-
-**Browns' aging offensive line looking at potential makeover next season**\
-`Taking a look at where Cleveland's O-linemen stand heading into the final five games of the 2025 season. `\
-https://nytimes.com/athletic/6853301/2025/12/02/browns-offensive-line-future/
 
