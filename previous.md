@@ -1,4 +1,20 @@
-**Chargers' Justin Herbert day-to-day ahead of MNF vs. Eagles after hand surgery**\
+**Sources: NYCFC tabs Sacramento's Dunivant as new chief soccer officer**\
+`Dunivant had a standout career in MLS as a player, and he's back in the league after guiding USL Championship's Sacramento Republic`\
+https://nytimes.com/athletic/6853878/2025/12/01/todd-dunivant-nycfc-chief-soccer-officer-mls/
+
+**Dolphins' pivotal play in Sunday's win was called by LB Tyrel Dodson after headset malfunction**\
+`Dodson made his own call and lined up his teammates ahead of the New Orleans Saints' two-point conversion attempt.`\
+https://nytimes.com/athletic/6853867/2025/12/01/dolphins-tyrel-dodson-headset-malfunction/
+
+**Devin Williams, New York Mets in agreement on three-year deal: Source**\
+`Even though Williams had the 12th-worst ERA among all relievers, there's reason to believe he can return to being a dominant closer.`\
+https://nytimes.com/athletic/6807796/2025/12/01/devin-williams-new-york-mets-deal-source/
+
+**Giants, Patriots scuffle on sidelines after hard hit on QB Jaxson Dart**\
+`New York players take exception to legal hit on rookie QB, who has been examined for a concussion four times this year.`\
+https://nytimes.com/athletic/6854006/2025/12/01/giants-patriots-scuffle-jaxson-dart/
+
+**Chargers' Justin Herbert day-to-day ahead of 'MNF' vs. Eagles after hand surgery**\
 `Herbert said Sunday he expects to play next week against the Eagles, but his official status will be determined later this week.`\
 https://nytimes.com/athletic/6853911/2025/12/01/justin-herbert-surgery-update-chargers-eagles-mnf/
 
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6853909/2025/12/01/indiana-vs-ohio-state-stream-how
 **How to watch Duke vs. Virginia: ACC Championship Time, TV, streaming**\
 `Find out how to watch the Duke Blue Devils play the Virginia Cavaliers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6853907/2025/12/01/duke-vs-virginia-stream-how-to-watch-dec-6/
-
-**Trump Administration Fires 8 Immigration Judges in New York**\
-`The firings, part of a nationwide effort, felt “like a Monday afternoon massacre,” said one judge who lost her job last month.`\
-https://nytimes.com/2025/12/01/nyregion/immigration-judges-fired-trump.html
-
-**As Trump Deepens Immigration Crackdown, Even Long-Held Exceptions Disappear**\
-`President Trump’s latest changes to the immigration system affect communities that traditionally have been considered special cases.`\
-https://nytimes.com/2025/12/01/us/politics/trump-immigration-afghan-daca.html
-
-**Rapper Toosii commits to play football at Syracuse**\
-`The multi-platinum artist is returning to his hometown to play college football.`\
-https://nytimes.com/athletic/6853729/2025/12/01/toosii-rapper-football-commits-syracuse/
-
-**Trump Administration Revokes Licenses of Thousands of Training Centers for Truckers**\
-`The move, and threats of thousands more revocations, comes as the administration has increased its criticism of the trucking industry over noncitizen drivers’ obtaining commercial licenses.`\
-https://nytimes.com/2025/12/01/us/politics/trump-trucking-license-accreditation.html
 
