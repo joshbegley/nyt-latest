@@ -1,3 +1,15 @@
+**Tennessee Seventh District Special Election Results**\
+`Get live results and maps from the 2025 Tennessee congressional special election.`\
+https://nytimes.com/interactive/2025/12/02/us/elections/results-tennessee-us-house-7-special.html
+
+**Jersey City Mayoral Runoff Election Results**\
+`Get live results and maps from the 2025 Jersey City mayoral runoff election in New Jersey. `\
+https://nytimes.com/interactive/2025/12/02/us/elections/results-jersey-city-mayor-runoff.html
+
+**Amid losing streak, Commanders get strong showings from less heralded players**\
+`In a disappointing season, Washington has discovered some valuable, if unheralded, performers. Here are a few.`\
+https://nytimes.com/athletic/6855608/2025/12/02/commanders-jeremy-mcnichols-chris-rodriguez-offensive-line/
+
 **Trial date set for players Emmanuel Clase, Luis Ortiz involved in betting scheme**\
 `The trial for the two players, accused of altering pitches as part of an illegal sports gambling ring, has been set for May. `\
 https://nytimes.com/athletic/6855743/2025/12/02/emmanuel-clase-luis-ortiz-mlb-betting-scheme-trial/

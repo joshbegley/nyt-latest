@@ -1,3 +1,7 @@
+**Prosecutors Drop Charges in Savage 1993 Murder of Mother Near Buffalo**\
+`James Pugh, one of two men originally convicted in the killing, had already spent 25 years in prison. He said all along that he was innocent.`\
+https://nytimes.com/2025/12/02/nyregion/tonawanda-murder-charges-dropped-james-pugh.html
+
 **Tennessee Seventh District Special Election Results**\
 `Get live results and maps from the 2025 Tennessee congressional special election.`\
 https://nytimes.com/interactive/2025/12/02/us/elections/results-tennessee-us-house-7-special.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6852464/2025/12/02/critical-fantasy-football-insigh
 **NHL to remind teams about mandatory helmets during warmups**\
 `Three NHL teams have taken to the ice helmetless over the last week.`\
 https://nytimes.com/athletic/6855479/2025/12/02/nhl-helmets-warmup-senators-sharks-devils/
-
-**Sonny Gray, new Red Sox starter, on pitching for Yankees: 'I never wanted to go there'**\
-`Gray added that the experience in New York shaped him over the ensuing seven seasons.`\
-https://nytimes.com/athletic/6855549/2025/12/02/sonny-gray-did-not-want-to-pitch-for-yankees/
 
