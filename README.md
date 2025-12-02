@@ -1,3 +1,11 @@
+**The Transfer DealSheet: 2026 plans for your club in the January and summer windows**\
+`The January window is less than a month away and clubs will be formulating their plans for the summer as well`\
+https://nytimes.com/athletic/6844622/2025/12/02/transfer-latest-2026-january-summer-man-utd-arsenal-liverpool-real-madrid/
+
+**Aston Villa Transfer DealSheet: What to expect in 2026**\
+`Who will make key decisions over the two windows? What positions will they be looking at in 2026? Who will they be looking to sell?`\
+https://nytimes.com/athletic/6822840/2025/12/02/aston-villa-transfer-dealsheet-what-to-expect-in-2026/
+
 **Real Madrid Transfer DealSheet: Rodrygo for sale, centre-back and midfield targets**\
 `The Spanish side tend not to do much business in the winter window, but key targets have already been established`\
 https://nytimes.com/athletic/6852080/2025/12/02/real-madrid-transfers-news-january-targets/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6842807/2025/12/02/nottingham-forest-transfer-plans
 **Manchester City Transfer DealSheet: What to expect in 2026**\
 `Pep Guardiola's squad is strong after spending heavily in the last two windows, but there are still positions that need upgrading`\
 https://nytimes.com/athletic/6839885/2025/12/02/man-city-transfer-dealsheet-2026/
-
-**Liverpool Transfer DealSheet: What to expect in 2026**\
-`Liverpool made a significant outlay on players in the summer and the priority for next year will be their defence`\
-https://nytimes.com/athletic/6852050/2025/12/02/liverpool-transfer-latest-january-summer-2026/
-
-**Barcelona Transfer DealSheet: Julian Alvarez interest, Lewandowski future, Rashford loan**\
-`What plans do La Liga's leaders have in the transfer market? Our correspondent, Pol Ballus, explains`\
-https://nytimes.com/athletic/6844663/2025/12/02/barcelona-transfers-alvarez-lewandowski-rashford/
 
