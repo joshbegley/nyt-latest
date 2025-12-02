@@ -1,3 +1,7 @@
+**Predicting the CFP Top 25: What will the committee do with JMU, Ole Miss and more?**\
+`What our projections model think Tuesday night's penultimate College Football Playoff Top 25 rankings will be.`\
+https://nytimes.com/athletic/6853237/2025/12/02/college-football-playoff-rankings-predictions-december-2/
+
 **'Of course he wasn't happy' - Salah's Liverpool omission explained by Slot**\
 `Sunday was the first time the Egyptian attacker had not started a Premier League game since April 2024 and followed a poor run of form.`\
 https://nytimes.com/athletic/6854612/2025/12/02/mohamed-salah-liverpool-team-news/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/02/insider/stargazing-right-to-night.html
 **This Is How Mamdani Can Pay for Free Buses**\
 `Free buses would be transformative not only for riders, but for the ecosystem of the city as a whole.`\
 https://nytimes.com/2025/12/02/opinion/mamdani-free-buses-parking.html
-
-**The Aesthetic That Explains American Identity Now**\
-`Why country and cowboys have a hold on our culture and our political imagination.`\
-https://nytimes.com/2025/12/02/opinion/rural-aesthetics-american-politics.html
 
