@@ -1,6 +1,14 @@
-**Drake Maye, Patriots beat Giants for 10th straight win: takeaways**\
+**Yohe's 10 observations: Death, taxes and Sidney Crosby lighting up Philadelphia**\
+`Crosby scored twice to power the Penguins to a 5-1 win in Philadelphia. `\
+https://nytimes.com/athletic/6853972/2025/12/01/10-observations-sidney-crosby-philadelphia-flyers/
+
+**Drake Maye, Patriots beat Giants for 10th straight win: Takeaways**\
 `The quarterback threw two touchdown passes as New England improved to a league-best 11-2 record.`\
 https://nytimes.com/athletic/6853513/2025/12/01/giants-patriots-score-result-takeaways-monday-night-football/
+
+**NFL playoff picture after Week 13: Bears surge to top of NFC; Patriots in control of AFC**\
+`The race for the No. 1 seed in the NFC is tight, with four teams tied at nine wins. In the AFC, the Patriots and Broncos are pulling away.`\
+https://nytimes.com/athletic/6840554/2025/12/01/nfl-playoff-picture-week-13-bears-colts-update/
 
 **Angels begin defense in Skaggs trial; jury hears testimony from ex-player**\
 `Former Angel C.J. Cron said pitcher alerted him to team employee who could provide OxyContin.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/01/movies/gotham-awards-jafar-panahi-it-was-just-an-
 **Catarina Macario scores again as USWNT shuts out Italy twice to end the year**\
 `U.S. head coach Emma Hayes ends year of experimenting on a high note`\
 https://nytimes.com/athletic/6853977/2025/12/01/catarina-macario-scores-uswnt-italy-win/
-
-**Michael Jordan vs. NASCAR trial Day 1 takeaways: This is really happening**\
-`Our thoughts and impressions from inside the courtroom on the first day of the trial in the NASCAR antitrust lawsuit case.`\
-https://nytimes.com/athletic/6853864/2025/12/01/michael-jordan-nascar-trial-day-1/
-
-**Sources: NYCFC tabs Sacramento's Dunivant as new chief soccer officer**\
-`Dunivant had a standout career in MLS as a player, and he's back in the league after guiding USL Championship's Sacramento Republic`\
-https://nytimes.com/athletic/6853878/2025/12/01/todd-dunivant-nycfc-chief-soccer-officer-mls/
 
