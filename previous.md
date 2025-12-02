@@ -1,3 +1,11 @@
+**16 Prompts for Writing and Talking about the Holiday Season**\
+`Share your traditions, weigh in on a seasonal debate, write a story, reflect on the year behind you, or prepare for the one ahead.`\
+https://nytimes.com/2025/12/02/learning/16-prompts-for-writing-and-talking-about-the-holiday-season.html
+
+**'I'm talking myself into it': 'The Athletic Football Show' suggests keeping Mike McDaniel**\
+`Given the landscape of coaching candidates, replacing McDaniel might be the harder task at this point.`\
+https://nytimes.com/athletic/6855718/2025/12/02/the-athletic-football-show-keeping-mike-mcdaniel/
+
 **NBA veteran Danilo Gallinari announces retirement**\
 `Gallinari was the sixth overall pick in the 2008 NBA Draft.`\
 https://nytimes.com/athletic/6855963/2025/12/02/nba-veteran-danilo-gallinari-retires/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6856196/2025/12/02/grizzlies-vs-spurs-stream-how-to
 **How to watch Maple Leafs vs. Panthers: Time, TV, streaming**\
 `Find out how to watch the Toronto Maple Leafs play the Florida Panthers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6856194/2025/12/02/maple-leafs-vs-panthers-stream-how-to-watch-dec-2/
-
-**How to watch Knicks vs. Celtics: Time, TV, streaming**\
-`Find out how to watch the New York Knicks play the Boston Celtics, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6856192/2025/12/02/knicks-vs-celtics-stream-how-to-watch-dec-2/
-
-**How to watch Timberwolves vs. Pelicans: Time, TV, streaming**\
-`Find out how to watch the Minnesota Timberwolves play the New Orleans Pelicans, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6856190/2025/12/02/timberwolves-vs-pelicans-stream-how-to-watch-dec-2/
 

@@ -1,8 +1,12 @@
+**Blues' Jordan Binnington responds to being pulled against Ducks: 'It was quick'**\
+`Binnington gave up two goals on five shots and was not happy about being pulled from a game which the Blues trailed 2-1.`\
+https://nytimes.com/athletic/6855852/2025/12/02/blues-jordan-binnington-pulled-response/
+
 **16 Prompts for Writing and Talking about the Holiday Season**\
 `Share your traditions, weigh in on a seasonal debate, write a story, reflect on the year behind you, or prepare for the one ahead.`\
 https://nytimes.com/2025/12/02/learning/16-prompts-for-writing-and-talking-about-the-holiday-season.html
 
-**'I'm talking myself into it': 'The Athletic Football Show' suggests keeping Mike McDaniel**\
+**'I'm talking myself into it': 'The Athletic Football Show' suggests Dolphins keep McDaniel**\
 `Given the landscape of coaching candidates, replacing McDaniel might be the harder task at this point.`\
 https://nytimes.com/athletic/6855718/2025/12/02/the-athletic-football-show-keeping-mike-mcdaniel/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6856199/2025/12/02/blackhawks-vs-golden-knights-str
 **How to watch Grizzlies vs. Spurs: Time, TV, streaming**\
 `Find out how to watch the Memphis Grizzlies play the San Antonio Spurs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6856196/2025/12/02/grizzlies-vs-spurs-stream-how-to-watch-dec-2/
-
-**How to watch Maple Leafs vs. Panthers: Time, TV, streaming**\
-`Find out how to watch the Toronto Maple Leafs play the Florida Panthers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6856194/2025/12/02/maple-leafs-vs-panthers-stream-how-to-watch-dec-2/
 

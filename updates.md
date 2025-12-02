@@ -1,3 +1,11 @@
+**16 Prompts for Writing and Talking about the Holiday Season**\
+`Share your traditions, weigh in on a seasonal debate, write a story, reflect on the year behind you, or prepare for the one ahead.`\
+https://nytimes.com/2025/12/02/learning/16-prompts-for-writing-and-talking-about-the-holiday-season.html
+
+**'I'm talking myself into it': 'The Athletic Football Show' suggests keeping Mike McDaniel**\
+`Given the landscape of coaching candidates, replacing McDaniel might be the harder task at this point.`\
+https://nytimes.com/athletic/6855718/2025/12/02/the-athletic-football-show-keeping-mike-mcdaniel/
+
 **NBA veteran Danilo Gallinari announces retirement**\
 `Gallinari was the sixth overall pick in the 2008 NBA Draft.`\
 https://nytimes.com/athletic/6855963/2025/12/02/nba-veteran-danilo-gallinari-retires/
