@@ -1,3 +1,7 @@
+**Drake Maye, Patriots beat Giants for 10th straight win: takeaways**\
+`The quarterback threw two touchdown passes as New England improved to a league-best 11-2 record.`\
+https://nytimes.com/athletic/6853513/2025/12/01/giants-patriots-score-result-takeaways-monday-night-football/
+
 **Angels begin defense in Skaggs trial; jury hears testimony from ex-player**\
 `Former Angel C.J. Cron said pitcher alerted him to team employee who could provide OxyContin.`\
 https://nytimes.com/athletic/6854119/2025/12/01/angels-defense-skaggs-trial/

@@ -1,3 +1,7 @@
+**Drake Maye, Patriots beat Giants for 10th straight win: takeaways**\
+`The quarterback threw two touchdown passes as New England improved to a league-best 11-2 record.`\
+https://nytimes.com/athletic/6853513/2025/12/01/giants-patriots-score-result-takeaways-monday-night-football/
+
 **Angels begin defense in Skaggs trial; jury hears testimony from ex-player**\
 `Former Angel C.J. Cron said pitcher alerted him to team employee who could provide OxyContin.`\
 https://nytimes.com/athletic/6854119/2025/12/01/angels-defense-skaggs-trial/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6853864/2025/12/01/michael-jordan-nascar-trial-day-
 **Sources: NYCFC tabs Sacramento's Dunivant as new chief soccer officer**\
 `Dunivant had a standout career in MLS as a player, and he's back in the league after guiding USL Championship's Sacramento Republic`\
 https://nytimes.com/athletic/6853878/2025/12/01/todd-dunivant-nycfc-chief-soccer-officer-mls/
-
-**Dolphins' pivotal play in Sunday's win was called by LB Tyrel Dodson after headset malfunction**\
-`Dodson made his own call and lined up his teammates ahead of the New Orleans Saints' two-point conversion attempt.`\
-https://nytimes.com/athletic/6853867/2025/12/01/dolphins-tyrel-dodson-headset-malfunction/
 
