@@ -1,3 +1,7 @@
+**How to watch Georgia vs. Alabama: SEC Championship Time, TV, streaming**\
+`Find out how to watch the Georgia Bulldogs play the Alabama Crimson Tide, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6853774/2025/12/01/georgia-vs-alabama-stream-how-to-watch-dec-6/
+
 **Trump’s Crackdown in Wake of Shooting Blocks Legal Pathways for Migrants**\
 `The new measures represent some of the most significant changes to immigration policy since President Trump returned to the White House.`\
 https://nytimes.com/2025/12/01/us/politics/trump-dc-shooting-immigration.html

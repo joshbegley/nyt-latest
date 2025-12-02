@@ -27,7 +27,7 @@ https://nytimes.com/2025/12/01/us/politics/reginald-t-jackson-dead.html
 https://nytimes.com/2025/12/01/world/europe/uk-jury-trial-courts.html
 
 **What we're hearing about Penn State's search: Kalani Sitake's candidacy and more updates**\
-`Penn State has been searching for a head coach for 50 days and accounting. Who's actually a candidate? Here's what we know.`\
+`Penn State has been searching for a head coach for 50 days and counting. Who's actually a candidate? Here's what we know.`\
 https://nytimes.com/athletic/6853630/2025/12/01/penn-state-coaching-search-kalani-sitake/
 
 **Lane Kiffin on move from Ole Miss to LSU: 'No way to possibly do it better'**\
