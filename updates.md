@@ -1,3 +1,7 @@
+**The 14 Best Cookbooks of 2025**\
+`Exceptional new cookbooks, with fresh takes on easy baking, Thai cooking in America and seasonal pasta, as tested by New York Times Cooking and the Food desk.`\
+https://nytimes.com/2025/12/02/dining/best-cookbooks.html
+
 **What to Watch For in the Last Big Election of 2025**\
 `A special election for a House seat in Tennessee was supposed to be an easy Republican victory. But national spending and Democratic enthusiasm have made it an unusually high-profile race.`\
 https://nytimes.com/2025/12/02/us/politics/tennessee-house-behn-van-epps.html

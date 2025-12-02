@@ -1,3 +1,7 @@
+**Talking About Our 10 Best Books of 2025**\
+`We made a list! Now we explain why we love the books we chose.`\
+https://nytimes.com/2025/12/02/books/review/podcast-10-best-books.html
+
 **What to Watch For in the Last Big Election of 2025**\
 `A special election for a House seat in Tennessee was supposed to be an easy Republican victory. But national spending and Democratic enthusiasm have made it an unusually high-profile race.`\
 https://nytimes.com/2025/12/02/us/politics/tennessee-house-behn-van-epps.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/02/dining/best-cookbooks.html
 **The Dark Secrets of the Writer Behind ‘Train Dreams’**\
 `An adaptation of Denis Johnson’s novella arrives at the same time as a new biography, unlocking one of his best-loved and least-understood books.`\
 https://nytimes.com/2025/12/02/magazine/train-dreams-netflix-denis-johnson-biography.html
-
-**The Philippines Spent Big on Flood Control, but the Water Keeps Rising**\
-`Many Filipinos say floods are worse than ever — and now, the government has admitted that vast sums were embezzled from a program meant to fight the problem.`\
-https://nytimes.com/2025/12/02/world/asia/phillipines-flood-control-corruption.html
 

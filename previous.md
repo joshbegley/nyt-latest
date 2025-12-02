@@ -28,7 +28,7 @@ https://nytimes.com/interactive/2025/12/02/upshot/trump-science-funding-cuts.htm
 
 **The 14 Best Cookbooks of 2025**\
 `Exceptional new cookbooks, with fresh takes on easy baking, Thai cooking in America and seasonal pasta, as tested by New York Times Cooking and the Food desk.`\
-https://nytimes.com/2025/12/02/dining/the-14-best-cookbooks-of-2025.html
+https://nytimes.com/2025/12/02/dining/best-cookbooks.html
 
 **The Dark Secrets of the Writer Behind ‘Train Dreams’**\
 `An adaptation of Denis Johnson’s novella arrives at the same time as a new biography, unlocking one of his best-loved and least-understood books.`\
