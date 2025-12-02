@@ -1,3 +1,15 @@
+**NBA veteran Danilo Gallinari announces retirement**\
+`Gallinari was the sixth overall pick in the 2008 NBA Draft.`\
+https://nytimes.com/athletic/6855963/2025/12/02/nba-veteran-danilo-gallinari-retires/
+
+**Trump’s Envoy Meets With Putin on War in Ukraine**\
+`Steve Witkoff, President Trump’s special envoy, was expected to discuss with President Vladimir V. Putin of Russia a U.S.-backed peace proposal that was revised by American officials after recent negotiations with Ukrainian diplomats.`\
+https://nytimes.com/video/world/europe/100000010560129/putin-russia-ukraine-zelensky.html
+
+**NFL MVP odds: Dak Prescott breaks through, Drake Maye takes the lead**\
+`Can Prescott or Jordan Love — or anyone — challenge the two at the top?`\
+https://nytimes.com/athletic/6855460/2025/12/02/nfl-mvp-odds-dak-prescott-drake-maye-matthew-stafford/
+
 **How to watch Trail Blazers vs. Raptors: Time, TV, streaming**\
 `Find out how to watch the Portland Trail Blazers play the Toronto Raptors, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6856204/2025/12/02/trail-blazers-vs-raptors-stream-how-to-watch-dec-2/
