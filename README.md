@@ -3,10 +3,10 @@
 https://nytimes.com/2025/12/02/us/politics/food-stamps-democratic-states.html
 
 **David Pryce-Jones, Wide-Ranging Conservative Writer, Dies at 89**\
-`The author of novels, histories, biographies and influential political essays, he approached them all with a droll British wit and a firm commitment to Western values.`\
+`The author of novels, histories, biographies and influential political essays, he approached them all with a droll British wit and a steadfast commitment to Western values.`\
 https://nytimes.com/2025/12/02/books/david-pryce-jones-dead.html
 
-**Charlie Weis Jr. to coach Ole Miss in CFP after following Lane Kiffin to LSU**\
+**Ole Miss OC Charlie Weis Jr. to coach in CFP after following Kiffin to LSU**\
 `Weis Jr. was one of four Ole Miss staffers who joined Kiffin in leaving for LSU on Sunday.`\
 https://nytimes.com/athletic/6856442/2025/12/02/charlie-weis-jr-ole-miss-lane-kiffin-cfp/
 
