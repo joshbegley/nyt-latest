@@ -1,3 +1,7 @@
+**Snow Falls in New York State as Major Storm Approaches**\
+`Snow affected inland regions of New York and Pennsylvania as tens of millions of people across the Northeast braced for a major winter storm.`\
+https://nytimes.com/2025/12/02/us/snow-winter-storm-northeast-ny-nj.html
+
 **China, Evoking World War II, Urges Europe to Take Its Side Against Japan**\
 `A diplomatic row with Japan over Taiwan has China turning to Britain and France for support, appealing to their shared history as wartime allies.`\
 https://nytimes.com/2025/12/02/world/asia/china-japan-taiwan-europe.html
