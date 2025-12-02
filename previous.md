@@ -1,3 +1,7 @@
+**Trump Administration Live Updates: U.S. Envoy to Meet With Putin in Moscow**\
+``\
+https://nytimes.com/live/2025/12/02/us/trump-ukraine-putin-news
+
 **Questions and Answers About the ‘Trump Accounts’ for Children the Dells Are Supporting**\
 `Next year, Michael and Susan Dell plan to move $250 into the new Trump accounts of millions of children under 10. You’ll need to live in the right ZIP code.`\
 https://nytimes.com/2025/12/02/business/trump-accounts-children-dell.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6852656/2025/12/02/nba-tv-schedule-knicks-celtics-l
 **The USWNT's year of change and integration: 'We're still cooking'**\
 `Competition for the 2027 World Cup roster will be tough after a year in which Emma Hayes has successfully introduced young talent`\
 https://nytimes.com/athletic/6854620/2025/12/02/uswnt-emma-hayes-2025-recap/
-
-**Brighton boss Hurzeler relaxed about Georginio Rutter's frustration against Forest**\
-`Rutter was visibly unhappy that he was taken off early in the second half of Sunday's 2-0 win over Nottingham Forest.`\
-https://nytimes.com/athletic/6854797/2025/12/02/fabian-hurzeler-brighton-georginio-rutter-substituted/
 
