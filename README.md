@@ -1,8 +1,20 @@
+**Losing possession is plaguing the Bucks and costing them games**\
+`Milwaukee desperately needs to find a way to fix its possession problem if it wants to discover a winning formula this season.`\
+https://nytimes.com/athletic/6853459/2025/12/02/milwaukee-bucks-possession-offensive-rebounds-changebucks-continue-to-lose-the-possession-battle-and-because-of-it-games/
+
+**Aaron Gleeman's Twins mailbag: Submit your pre-Winter Meetings questions**\
+`It’s been a predictably slow first month of the offseason for the Twins, but that could change soon.`\
+https://nytimes.com/athletic/6855156/2025/12/02/submit-twins-winter-meetings-mailbag-questions/
+
+**Read Former Honduran President’s Letter to Trump**\
+`The New York Times has obtained the four-page letter that former President Juan Orlando Hernández of Honduras sent President Trump.`\
+https://nytimes.com/interactive/2025/12/02/us/politics/hernandez-letter.html
+
 **Glasner says that Sarr could miss AFCON with ankle injury, set for futher tests**\
 `Sarr sustained the issue after landing awkwardly following a challenge by Manchester United's Diogo Dalot on Sunday.`\
 https://nytimes.com/athletic/6849395/2025/12/02/ismaila-sarr-crystal-palace-injury-latest/
 
-**James out for at least eight weeks, surgery a possibility**\
+**Leeds' James out for at least eight weeks, may have surgery**\
 `James injured his hamstring tendon during Saturday’s 3-2 loss at Manchester City.`\
 https://nytimes.com/athletic/6855067/2025/12/02/dan-james-leeds-hamstring-injury/
 
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6854384/2025/12/02/fantasy-football-week-14-drops-a
 **Barkley may miss 'up to 12 weeks' with knee injury - Emery**\
 `The 31-year-old midfielder only lasted 13 minutes in Sunday's win over Wolves after coming on as a second-half substitute.`\
 https://nytimes.com/athletic/6855080/2025/12/02/ross-barkley-injury-aston-villa/
-
-**Former President of Honduras Is Freed From Prison After Trump Pardon**\
-`Juan Orlando Hernández was accused of flooding the United States with cocaine and had been sentenced to 45 years in prison.`\
-https://nytimes.com/2025/12/02/us/politics/hernandez-honduras-trump.html
-
-**Costco Sues Trump Administration for Refund of Tariffs**\
-`The retail giant is seeking to recover money it has paid this year, should the Supreme Court rule that President Trump’s implementation of tariffs was unlawful.`\
-https://nytimes.com/2025/12/02/us/politics/costco-trump-tariffs-lawsuit.html
-
-**Russia and Belarus skiers successfully appeal against Winter Olympics qualifying ban**\
-`The appeals argued the ban was a breach of statutes and contravened the principles of political neutrality and non-discrimination.`\
-https://nytimes.com/athletic/6854909/2025/12/02/russia-winter-olympics-ban-skiing/
 
