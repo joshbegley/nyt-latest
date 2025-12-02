@@ -1,3 +1,7 @@
+**Giants, Patriots scuffle on sidelines after hard hit on QB Jaxson Dart**\
+`New York players take exception to legal hit on rookie QB, who has been examined for a concussion four times this year.`\
+https://nytimes.com/athletic/6854006/2025/12/01/giants-patriots-scuffle-jaxson-dart/
+
 **Chargers' Justin Herbert day-to-day ahead of MNF vs. Eagles after hand surgery**\
 `Herbert said Sunday he expects to play next week against the Eagles, but his official status will be determined later this week.`\
 https://nytimes.com/athletic/6853911/2025/12/01/justin-herbert-surgery-update-chargers-eagles-mnf/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/01/us/politics/trump-immigration-afghan-daca.html
 **Rapper Toosii commits to play football at Syracuse**\
 `The multi-platinum artist is returning to his hometown to play college football.`\
 https://nytimes.com/athletic/6853729/2025/12/01/toosii-rapper-football-commits-syracuse/
-
-**Trump Administration Revokes Licenses of Thousands of Training Centers for Truckers**\
-`The move, and threats of thousands more revocations, comes as the administration has increased its criticism of the trucking industry over noncitizen drivers’ obtaining commercial licenses.`\
-https://nytimes.com/2025/12/01/us/politics/trump-trucking-license-accreditation.html
 

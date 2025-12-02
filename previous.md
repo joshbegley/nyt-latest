@@ -1,3 +1,15 @@
+**Chargers' Justin Herbert day-to-day ahead of MNF vs. Eagles after hand surgery**\
+`Herbert said Sunday he expects to play next week against the Eagles, but his official status will be determined later this week.`\
+https://nytimes.com/athletic/6853911/2025/12/01/justin-herbert-surgery-update-chargers-eagles-mnf/
+
+**Apple’s A.I. Chief, Who Failed to Deliver a Smarter Siri, Is Retiring**\
+`John Giannandrea, hired from Google, is leaving after the release of a new Siri was postponed. Apple has fallen behind rivals in efforts to develop A.I. products.`\
+https://nytimes.com/2025/12/01/business/apple-ai-john-giannandrea-siri.html
+
+**Maya Brady, niece of Tom Brady, chosen No. 1 in AUSL Expansion Draft**\
+`The two-time Pac-12 Player of the Year will play for the Oklahoma City Spark in the league's second season in 2026.`\
+https://nytimes.com/athletic/6853808/2025/12/01/tom-brady-niece-maya-brady-ausl-expansion-draft/
+
 **Giants' Abdul Carter benched for first quarter vs. Patriots**\
 `This is not the first time Carter has been benched this season.`\
 https://nytimes.com/athletic/6853903/2025/12/01/ny-giants-abdul-carter-benched-patriots/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6853729/2025/12/01/toosii-rapper-football-commits-s
 **Trump Administration Revokes Licenses of Thousands of Training Centers for Truckers**\
 `The move, and threats of thousands more revocations, comes as the administration has increased its criticism of the trucking industry over noncitizen drivers’ obtaining commercial licenses.`\
 https://nytimes.com/2025/12/01/us/politics/trump-trucking-license-accreditation.html
-
-**Full Time: What we learned from the first USWNT-Italy friendly**\
-`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
-https://nytimes.com/athletic/6853783/2025/12/01/uswnt-italy-friendlies-full-time/
-
-**How to watch Georgia vs. Alabama: SEC Championship Time, TV, streaming**\
-`Find out how to watch the Georgia Bulldogs play the Alabama Crimson Tide, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6853774/2025/12/01/how-to-watch-no-3-georgia-vs-no-10-alabama-sec-championship-tv-channel-and-streaming-options-for-december-6/
-
-**Trump’s Crackdown in Wake of Shooting Blocks Legal Pathways for Migrants**\
-`The new measures represent some of the most significant changes to immigration policy since President Trump returned to the White House.`\
-https://nytimes.com/2025/12/01/us/politics/trump-dc-shooting-immigration.html
 

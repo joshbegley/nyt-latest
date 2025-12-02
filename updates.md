@@ -1,3 +1,15 @@
+**Chargers' Justin Herbert day-to-day ahead of MNF vs. Eagles after hand surgery**\
+`Herbert said Sunday he expects to play next week against the Eagles, but his official status will be determined later this week.`\
+https://nytimes.com/athletic/6853911/2025/12/01/justin-herbert-surgery-update-chargers-eagles-mnf/
+
+**Apple’s A.I. Chief, Who Failed to Deliver a Smarter Siri, Is Retiring**\
+`John Giannandrea, hired from Google, is leaving after the release of a new Siri was postponed. Apple has fallen behind rivals in efforts to develop A.I. products.`\
+https://nytimes.com/2025/12/01/business/apple-ai-john-giannandrea-siri.html
+
+**Maya Brady, niece of Tom Brady, chosen No. 1 in AUSL Expansion Draft**\
+`The two-time Pac-12 Player of the Year will play for the Oklahoma City Spark in the league's second season in 2026.`\
+https://nytimes.com/athletic/6853808/2025/12/01/tom-brady-niece-maya-brady-ausl-expansion-draft/
+
 **Giants' Abdul Carter benched for first quarter vs. Patriots**\
 `This is not the first time Carter has been benched this season.`\
 https://nytimes.com/athletic/6853903/2025/12/01/ny-giants-abdul-carter-benched-patriots/
