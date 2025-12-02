@@ -1,3 +1,15 @@
+**Trump Calls Somalis ‘Garbage’ in Xenophobic Rant**\
+`President Trump lashed out against Somali immigrants, including Representative Ilhan Omar, Democrat of Minnesota, who came to the United States from Somalia as a refugee and became a citizen 25 years ago.`\
+https://nytimes.com/video/us/politics/100000010560845/trump-somalia-xenophobic-remarks.html
+
+**U.S. Pauses Immigration Applications From Nations on Travel Ban List**\
+`The pause, which will halt green card and U.S. citizenship processing for broad swaths of people, deepens a remarkable crackdown on legal immigration pathways in recent days.`\
+https://nytimes.com/2025/12/02/us/politics/trump-travel-ban-citizenship-green-cards-dc-shooting.html
+
+**Miley Cyrus and Maxx Morando Are Engaged**\
+`The Grammy Award-winning singer debuted a 14-karat gold, cushion-set natural diamond ring while posing with her longtime boyfriend, Mr. Morando, at the Los Angeles premiere of “Avatar: Fire and Ash.”`\
+https://nytimes.com/2025/12/02/style/miley-cyrus-engagement-maxx-morando.html
+
 **Lawsuit Challenging Border Patrol’s Use of Force in Chicago Area Is Dropped**\
 `The plaintiffs accused federal agents of “a pattern of extreme brutality.” Many agents have left the region, so lawyers said the suit was no longer needed.`\
 https://nytimes.com/2025/12/02/us/border-patrol-chicago.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/12/02/climate/trump-fuel-economy-rules.html
 **The Liberal Order Can’t Heal Itself**\
 `Our problems run deeper than debates about affordability.`\
 https://nytimes.com/2025/12/02/opinion/liberalism-postliberalism-affordability.html
-
-**Cal in talks with Oregon DC Tosh Lupoi to become next coach: Sources**\
-`Lupoi, a Bay Area native who played at Cal from 2000 to '05 and later spent three seasons as the defensive line coach, may be going home.`\
-https://nytimes.com/athletic/6855918/2025/12/02/tosh-lupoi-cal-coaching-search-oregon/
-
-**Astros sign free agent Ryan Weiss, a right-hander who starred in Korea**\
-`Weiss hasn't pitched in the major leagues yet, but he had a 2.87 ERA in 178 2/3 innings in Korea last season.`\
-https://nytimes.com/athletic/6856503/2025/12/02/astros-ryan-weiss-signing-rotation-depth/
-
-**Fantasy football strength of schedule: Week 14 and playoff matchup rankings**\
-`Jake Ciely's Week 14 matchup rankings can help with difficult start/sit decisions this week. Playoff rankings aid future plans. `\
-https://nytimes.com/athletic/6856547/2025/12/02/fantasy-football-strength-of-schedule-week-14-playoffs/
 
