@@ -1,3 +1,11 @@
+**Trump’s Envoy to Meet With Putin About Plan to End War in Ukraine**\
+`Steve Witkoff, a U.S. special envoy, traveled to Moscow to discuss a peace plan with President Vladimir Putin of Russia. Meanwhile, President Volodymyr Zelensky of Ukraine traveled across Europe to shore up support.`\
+https://nytimes.com/video/world/europe/100000010558396/putin-witkoff-russia-ukraine-meeting.html
+
+**Australia opener Khawaja out of second Ashes Test with back injury**\
+`The 38-year-old had been due to open the batting alongside Test debutant Jake Weatherald in the opening Test in Perth.`\
+https://nytimes.com/athletic/6854550/2025/12/02/ashes-team-news-australia-khawaja-injury/
+
 **Trump Intervenes Again in Honduras Vote, Alleging Fraud Without Evidence**\
 `Honduras was on edge after tallies showed two candidates separated by about 500 votes. Then President Trump claimed that officials were rigging results.`\
 https://nytimes.com/2025/12/02/world/americas/honduras-presidential-vote-trump.html
