@@ -1,3 +1,7 @@
+**College Football Playoff odds: Notre Dame-Miami debate in focus**\
+`Rivalry week didn't feature many upsets, so the CFP picture is mostly what it was a week ago. What are the chances it stays that way?`\
+https://nytimes.com/athletic/6852871/2025/12/02/college-football-playoff-odds-notre-dame-miami/
+
 **Red Bull replaces Tsunoda with Hadjar for 2026 F1 season, Lindblad to drive for Racing Bulls**\
 `The lineup changes leave Tsunoda, who has been on the grid since 2021, without a seat next season.`\
 https://nytimes.com/athletic/6854236/2025/12/02/red-bull-driver-lineup-2026-hadjar-tsunoda/
@@ -33,8 +37,4 @@ https://nytimes.com/paidpost/flor-de-caa-35-year/flor-de-caa-35-year/from-volcan
 **Ballon d'Or winner Bonmati set for five-month injury layoff after leg surgery**\
 `Barcelona confirmed on Tuesday the midfielder had undergone successful surgery on the fracture to her left fibula.`\
 https://nytimes.com/athletic/6855106/2025/12/02/aitana-bonmati-spain-barcelona-injury-update/
-
-**India Orders a Tracking App to Be Installed in All Smartphones**\
-`The government said the rules were needed to prevent theft and other crime. Its opponents and privacy activists regard the app as a tool of mass surveillance.`\
-https://nytimes.com/2025/12/02/business/india-tracking-app-sanchar-saathi.html
 

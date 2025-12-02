@@ -1,3 +1,7 @@
+**College Football Playoff odds: Notre Dame-Miami debate in focus**\
+`Rivalry week didn't feature many upsets, so the CFP picture is mostly what it was a week ago. What are the chances it stays that way?`\
+https://nytimes.com/athletic/6852871/2025/12/02/college-football-playoff-odds-notre-dame-miami/
+
 **Red Bull replaces Tsunoda with Hadjar for 2026 F1 season, Lindblad to drive for Racing Bulls**\
 `The lineup changes leave Tsunoda, who has been on the grid since 2021, without a seat next season.`\
 https://nytimes.com/athletic/6854236/2025/12/02/red-bull-driver-lineup-2026-hadjar-tsunoda/
