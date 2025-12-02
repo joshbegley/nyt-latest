@@ -1,3 +1,7 @@
+**Trump Pardons Honduran Ex-President Convicted in Drug Case**\
+`President Trump has pardoned the former president of Honduras, Juan Orlando Hernández, who was sentenced to 45 years in prison for partnering with cocaine traffickers to import the drug into the United States.`\
+https://nytimes.com/video/us/100000010559962/trump-pardon-honduras-hernandez.html
+
 **Haaland hits 100, Fulham's almost magnificent comeback: The Briefing**\
 `Manchester City move to within two points of Premier League leaders Arsenal on a night Erling Haaland broke an Alan Shearer record`\
 https://nytimes.com/athletic/6851572/2025/12/02/fulham-4-manchester-city-5-haaland-100-goals/
@@ -29,12 +33,4 @@ https://nytimes.com/2025/12/02/movies/best-movies-2025.html
 **Blues' Jordan Binnington responds to being pulled against Ducks: 'It was a quick one'**\
 `Binnington gave up two goals on five shots and was not happy about being pulled from a game which the Blues trailed 2-1.`\
 https://nytimes.com/athletic/6855852/2025/12/02/blues-jordan-binnington-pulled-response/
-
-**16 Prompts for Writing and Talking about the Holiday Season**\
-`Share your traditions, weigh in on a seasonal debate, write a story, reflect on the year behind you, or prepare for the one ahead.`\
-https://nytimes.com/2025/12/02/learning/16-prompts-for-writing-and-talking-about-the-holiday-season.html
-
-**'I'm talking myself into it': 'The Athletic Football Show' suggests Dolphins keep McDaniel**\
-`Given the landscape of coaching candidates, replacing McDaniel might be the harder task at this point.`\
-https://nytimes.com/athletic/6855718/2025/12/02/the-athletic-football-show-keeping-mike-mcdaniel/
 

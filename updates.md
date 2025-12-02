@@ -1,3 +1,7 @@
+**Haaland hits 100, Fulham's almost magnificent comeback: The Briefing**\
+`Manchester City move to within two points of Premier League leaders Arsenal on a night Erling Haaland broke an Alan Shearer record`\
+https://nytimes.com/athletic/6851572/2025/12/02/fulham-4-manchester-city-5-haaland-100-goals/
+
 **New Pentagon Press Corps Test-Drives the Briefing Room**\
 `A new group of media figures was given credentials to cover the Pentagon after many traditional news outlets refused to sign its new reporting rules.`\
 https://nytimes.com/2025/12/02/business/media/new-pentagon-press-corps-test-drives-the-briefing-room.html
