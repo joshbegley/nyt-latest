@@ -1,3 +1,11 @@
+**Who Gets a Presidential Pardon?**\
+`We examine President Trump’s approach to using his pardon power.`\
+https://nytimes.com/2025/12/02/briefing/who-gets-a-presidential-pardon.html
+
+**NBA weekly watch guide: Brunson and Dončić visit Boston, OKC chases league history**\
+`The Thunder open this week at 20-1, with a pair of national TV games coming up. The 1995-96 Bulls and 2015-16 Warriors are on notice.`\
+https://nytimes.com/athletic/6852656/2025/12/02/nba-tv-schedule-knicks-celtics-lakers-thunder/
+
 **The USWNT's year of change and integration: 'We're still cooking'**\
 `Competition for the 2027 World Cup roster will be tough after a year in which Emma Hayes has successfully introduced young talent`\
 https://nytimes.com/athletic/6854620/2025/12/02/uswnt-emma-hayes-2025-recap/

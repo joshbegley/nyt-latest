@@ -1,3 +1,7 @@
+**Five things Michigan must do after losing to Ohio State, missing the Playoff**\
+`Saturday’s 27-9 loss to No. 1 Ohio State underscored many of the items on Michigan’s offseason fix-it list.`\
+https://nytimes.com/athletic/6853062/2025/12/02/how-to-fix-michigan-football-ohio-state/
+
 **Who Gets a Presidential Pardon?**\
 `We examine President Trump’s approach to using his pardon power.`\
 https://nytimes.com/2025/12/02/briefing/who-gets-a-presidential-pardon.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6853818/2025/12/02/bears-packers-ben-johnson-nfc-fi
 **Why the SEC would be the last to give up its championship game**\
 `The SEC was the first conference to have a championship game. It has no immediate plans to give it up.`\
 https://nytimes.com/athletic/6853091/2025/12/02/sec-championship-game-future/
-
-**Wild's Jared Spurgeon turning back clock, plus Jesper Wallstedt to start vs. Oilers**\
-`Other Wild notes heading into Tuesday's Oilers game: Marco Rossi not on the trip, and Danila Yurov hurt.`\
-https://nytimes.com/athletic/6853521/2025/12/02/jared-spurgeon-jesper-wallstedt-wild/
 
