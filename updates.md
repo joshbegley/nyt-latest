@@ -1,3 +1,11 @@
+**Lawsuit Challenging Border Patrol’s Use of Force in Chicago Area Is Dropped**\
+`The plaintiffs accused federal agents of “a pattern of extreme brutality.” Many agents have left the region, so lawyers said the suit was no longer needed.`\
+https://nytimes.com/2025/12/02/us/border-patrol-chicago.html
+
+**U.N. Security Council to Make First Official Visit to Syria and Lebanon**\
+`The trip comes days before the anniversary of the fall of Bashar al-Assad, and as Lebanon is navigating the cease-fire between Hezbollah and Israel.`\
+https://nytimes.com/2025/12/02/world/middleeast/lebanon-un-security-council.html
+
 **U.N. Security Council to Make First Official Visit to Syria and Lebanon**\
 `The trip comes ahead of the anniversary of the fall of Bashar al-Assad, and as Lebanon is navigating the cease-fire between Hezbollah and Israel.`\
 https://nytimes.com/2025/12/02/world/middleeast/lebanon-un-security-council.html

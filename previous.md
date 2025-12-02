@@ -1,5 +1,9 @@
+**Lawsuit Challenging Border Patrol’s Use of Force in Chicago Area Is Dropped**\
+`The plaintiffs accused federal agents of “a pattern of extreme brutality.” Many agents have left the region, so lawyers said the suit was no longer needed.`\
+https://nytimes.com/2025/12/02/us/border-patrol-chicago.html
+
 **U.N. Security Council to Make First Official Visit to Syria and Lebanon**\
-`The trip comes ahead of the anniversary of the fall of Bashar al-Assad, and as Lebanon is navigating the cease-fire between Hezbollah and Israel.`\
+`The trip comes days before the anniversary of the fall of Bashar al-Assad, and as Lebanon is navigating the cease-fire between Hezbollah and Israel.`\
 https://nytimes.com/2025/12/02/world/middleeast/lebanon-un-security-council.html
 
 **Trump Frees Former President of Honduras**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6856503/2025/12/02/astros-ryan-weiss-signing-rotati
 **Fantasy football strength of schedule: Week 14 and playoff matchup rankings**\
 `Jake Ciely's Week 14 matchup rankings can help with difficult start/sit decisions this week. Playoff rankings aid future plans. `\
 https://nytimes.com/athletic/6856547/2025/12/02/fantasy-football-strength-of-schedule-week-14-playoffs/
-
-**Angels sign Alek Manoah, former All-Star looking for a rebound, to 1-year deal: Source**\
-`Manoah finished third in the AL Cy Young balloting in 2022 but struggled in 2023 and had Tommy John surgery in 2024.`\
-https://nytimes.com/athletic/6856532/2025/12/02/alek-manoah-angels-contract-blue-jays/
 
