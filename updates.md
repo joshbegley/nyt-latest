@@ -1,3 +1,19 @@
+**How to watch Indiana vs. Ohio State: Big Ten Championship Time, TV, streaming**\
+`Find out how to watch the Indiana Hoosiers play the Ohio State Buckeyes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6853909/2025/12/01/indiana-vs-ohio-state-stream-how-to-watch-dec-6/
+
+**How to watch Duke vs. Virginia: ACC Championship Time, TV, streaming**\
+`Find out how to watch the Duke Blue Devils play the Virginia Cavaliers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6853907/2025/12/01/duke-vs-virginia-stream-how-to-watch-dec-6/
+
+**Trump Administration Fires 8 Immigration Judges in New York**\
+`The firings, part of a nationwide effort, felt “like a Monday afternoon massacre,” said one judge who lost her job last month.`\
+https://nytimes.com/2025/12/01/nyregion/immigration-judges-fired-trump.html
+
+**How to watch Georgia vs. Alabama: SEC Championship Time, TV, streaming**\
+`Find out how to watch the Georgia Bulldogs play the Alabama Crimson Tide, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6853774/2025/12/01/how-to-watch-no-3-georgia-vs-no-10-alabama-sec-championship-tv-channel-and-streaming-options-for-december-6/
+
 **As Trump Deepens Immigration Crackdown, Even Long-Held Exceptions Disappear**\
 `President Trump’s latest changes to the immigration system affect communities that traditionally have been considered special cases.`\
 https://nytimes.com/2025/12/01/us/politics/trump-immigration-afghan-daca.html
