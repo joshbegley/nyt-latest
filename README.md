@@ -1,3 +1,7 @@
+**Who Gets a Presidential Pardon?**\
+`We examine President Trump’s approach to using his pardon power.`\
+https://nytimes.com/2025/12/02/briefing/who-gets-a-presidential-pardon.html
+
 **NBA weekly watch guide: Brunson and Dončić visit Boston, OKC chases league history**\
 `The Thunder open this week at 20-1, with a pair of national TV games coming up. The 1995-96 Bulls and 2015-16 Warriors are on notice.`\
 https://nytimes.com/athletic/6852656/2025/12/02/nba-tv-schedule-knicks-celtics-lakers-thunder/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6853091/2025/12/02/sec-championship-game-future/
 **Wild's Jared Spurgeon turning back clock, plus Jesper Wallstedt to start vs. Oilers**\
 `Other Wild notes heading into Tuesday's Oilers game: Marco Rossi not on the trip, and Danila Yurov hurt.`\
 https://nytimes.com/athletic/6853521/2025/12/02/jared-spurgeon-jesper-wallstedt-wild/
-
-**Giants aren't shopping for high-end free agents — here are potential targets**\
-`The Giants aren't intending to spend big money this offseason. Starters who are durable, though not exciting, are likely to be targets.`\
-https://nytimes.com/athletic/6853389/2025/12/02/sf-giants-free-agent-targets-patrick-corbin-justin-verlander/
 
