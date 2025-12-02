@@ -1,40 +1,40 @@
+**Olivia Nuzzi’s Memoir Is Self-Serious and Altogether Disappointing**\
+`“American Canto,” published amid a scandal over the journalist’s alleged romantic entanglements with politicians she covered, offers many scenes but little sense.`\
+https://nytimes.com/2025/12/02/books/review/american-canto-olivia-nuzzi.html
+
+**It’s No Dodo, But This Newly Discovered Bird Could Share the Same Fate**\
+`The slaty-masked tinamou, found in Brazil, is utterly unafraid of people. That could be its undoing, ornithologists worry.`\
+https://nytimes.com/2025/12/02/science/birds-dodo-slaty-masked-tinamou.html
+
+**Putin to Meet With Trump’s Envoy as U.S. Pushes for Ukraine Deal**\
+`In Moscow, Steve Witkoff, President Trump’s special envoy, is expected to present President Vladimir V. Putin with a revised proposal to end the war in Ukraine.`\
+https://nytimes.com/2025/12/02/world/europe/putin-witkoff-trump-ukraine-meeting.html
+
+**Bundesliga Briefing: Fabio Vieira has his Hamburg moment and Said El Mala shines**\
+`The Arsenal loanee has had a tricky start to life in the Bundesliga but scored on Sunday for Hamburg`\
+https://nytimes.com/athletic/6851659/2025/12/02/bundesliga-fabio-vieira-arsenal-hamburg/
+
+**Connections: Sports Edition Coach: Hints for Dec. 2, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6854036/2025/12/02/connections-sports-edition-hints-for-dec-2-2025/
+
+**Blue Jackets overcome early deficit, lock down late lead in physical win over Devils**\
+`The game was marred by four second-period fights.`\
+https://nytimes.com/athletic/6853838/2025/12/02/blue-jackets-devils-physical-nhl/
+
+**Fantasy football waiver wire Week 14: Adonai Mitchell, Chris Rodriguez, streamers**\
+`Jake Ciely runs through the best of this week's fantasy football waiver wire, prominently featuring recent Jets acquisition Adonai Mitchell.`\
+https://nytimes.com/athletic/6852670/2025/12/02/fantasy-football-waiver-wire-week-14-adonai-mitchell-devaughn-vele-streamers/
+
+**Corrections: Dec. 2, 2025**\
+`Corrections that appeared in print on Tuesday, Dec. 2, 2025.`\
+https://nytimes.com/2025/12/02/pageoneplus/corrections-dec-2-2025.html
+
+**Quote of the Day: Shoppers Hit With Surprise On Overseas Deals: Tariffs**\
+`Quotation of the Day for Tuesday, December 2, 2025.`\
+https://nytimes.com/2025/12/01/pageoneplus/quote-of-the-day-shoppers-hit-with-surprise-on-overseas-deals-tariffs.html
+
 **Yohe's 10 observations: Death, taxes and Sidney Crosby lighting up Philadelphia**\
 `Crosby scored twice to power the Penguins to a 5-1 win in Philadelphia. `\
 https://nytimes.com/athletic/6853972/2025/12/01/10-observations-sidney-crosby-philadelphia-flyers/
-
-**Drake Maye, Patriots beat Giants for 10th straight win: Takeaways**\
-`The quarterback threw two touchdown passes as New England improved to a league-best 11-2 record.`\
-https://nytimes.com/athletic/6853513/2025/12/01/giants-patriots-score-result-takeaways-monday-night-football/
-
-**NFL playoff picture after Week 13: Bears surge to top of NFC; Patriots in control of AFC**\
-`The race for the No. 1 seed in the NFC is tight, with four teams tied at nine wins. In the AFC, the Patriots and Broncos are pulling away.`\
-https://nytimes.com/athletic/6840554/2025/12/01/nfl-playoff-picture-week-13-bears-colts-update/
-
-**Angels begin defense in Skaggs trial; jury hears testimony from ex-player**\
-`Former Angel C.J. Cron said pitcher alerted him to team employee who could provide OxyContin.`\
-https://nytimes.com/athletic/6854119/2025/12/01/angels-defense-skaggs-trial/
-
-**Memo From Trump’s Doctor Cites ‘Excellent’ Scan but Offers Little Clarity**\
-`While the president said he had a M.R.I. exam, a physician’s memo released by the White House was less specific.`\
-https://nytimes.com/2025/12/01/health/trump-mri-results.html
-
-**D.H.S. Secretary Recommends New Travel Ban in Wake of Shooting**\
-`Kristi Noem, the secretary of homeland security, equated immigrants to “foreign invaders” as she called for an expanded travel ban. President Trump reposted her statement.`\
-https://nytimes.com/2025/12/01/us/politics/trump-travel-ban-dhs-noem.html
-
-**The Bucks have had made a habit of losing games, but Monday's defeat was avoidable**\
-`The Bucks have had worse losses in their team history, but it's hard imagine one as futile and avoidable as Monday's to the Wizards`\
-https://nytimes.com/athletic/6854060/2025/12/01/bucks-wizards-score-result-takeaways-giannis-mccollum/
-
-**Wing It Onstage**\
-`Jonathan Baude makes his New York Times Crossword debut.`\
-https://nytimes.com/2025/12/01/crosswords/daily-puzzle-2025-12-02.html
-
-**Jafar Panahi, Who Filmed in Secret in Iran, Wins Big at the Gotham Awards**\
-`He won best director, original screenplay and international feature for “It Was Just an Accident.” Best feature went to “One Battle After Another.”`\
-https://nytimes.com/2025/12/01/movies/gotham-awards-jafar-panahi-it-was-just-an-accident-one-battle-after-another.html
-
-**Catarina Macario scores again as USWNT shuts out Italy twice to end the year**\
-`U.S. head coach Emma Hayes ends year of experimenting on a high note`\
-https://nytimes.com/athletic/6853977/2025/12/01/catarina-macario-scores-uswnt-italy-win/
 
