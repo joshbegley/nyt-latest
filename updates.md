@@ -1,3 +1,15 @@
+**D.H.S. Secretary Recommends New Travel Ban in Wake of Shooting**\
+`Kristi Noem, the secretary of homeland security, equated immigrants to “foreign invaders” as she called for an expanded travel ban. President Trump reposted her statement.`\
+https://nytimes.com/2025/12/01/us/politics/trump-travel-ban-dhs-noem.html
+
+**The Bucks have had made a habit of losing games, but Monday's defeat was avoidable**\
+`The Bucks have had worse losses in their team history, but it's hard imagine one as futile and avoidable as Monday's to the Wizards`\
+https://nytimes.com/athletic/6854060/2025/12/01/bucks-wizards-score-result-takeaways-giannis-mccollum/
+
+**Wing It Onstage**\
+`Jonathan Baude makes his New York Times Crossword debut.`\
+https://nytimes.com/2025/12/01/crosswords/daily-puzzle-2025-12-02.html
+
 **Jafar Panahi, Who Filmed in Secret in Iran, Wins Big at the Gotham Awards**\
 `He won best director, original screenplay and international feature for “It Was Just an Accident.” Best feature went to “One Battle After Another.”`\
 https://nytimes.com/2025/12/01/movies/gotham-awards-jafar-panahi-it-was-just-an-accident-one-battle-after-another.html

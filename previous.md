@@ -1,3 +1,15 @@
+**D.H.S. Secretary Recommends New Travel Ban in Wake of Shooting**\
+`Kristi Noem, the secretary of homeland security, equated immigrants to “foreign invaders” as she called for an expanded travel ban. President Trump reposted her statement.`\
+https://nytimes.com/2025/12/01/us/politics/trump-travel-ban-dhs-noem.html
+
+**The Bucks have had made a habit of losing games, but Monday's defeat was avoidable**\
+`The Bucks have had worse losses in their team history, but it's hard imagine one as futile and avoidable as Monday's to the Wizards`\
+https://nytimes.com/athletic/6854060/2025/12/01/bucks-wizards-score-result-takeaways-giannis-mccollum/
+
+**Wing It Onstage**\
+`Jonathan Baude makes his New York Times Crossword debut.`\
+https://nytimes.com/2025/12/01/crosswords/daily-puzzle-2025-12-02.html
+
 **Jafar Panahi, Who Filmed in Secret in Iran, Wins Big at the Gotham Awards**\
 `He won best director, original screenplay and international feature for “It Was Just an Accident.” Best feature went to “One Battle After Another.”`\
 https://nytimes.com/2025/12/01/movies/gotham-awards-jafar-panahi-it-was-just-an-accident-one-battle-after-another.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6807796/2025/12/01/devin-williams-new-york-mets-dea
 **Giants, Patriots scuffle on sideline after hard hit on QB Jaxson Dart**\
 `New York players take exception to legal hit on rookie QB, who has been examined for a concussion four times this year.`\
 https://nytimes.com/athletic/6854006/2025/12/01/giants-patriots-scuffle-jaxson-dart/
-
-**Chargers' Justin Herbert day-to-day ahead of 'MNF' vs. Eagles after hand surgery**\
-`Herbert said Sunday he expects to play next week against the Eagles, but his official status will be determined later this week.`\
-https://nytimes.com/athletic/6853911/2025/12/01/justin-herbert-surgery-update-chargers-eagles-mnf/
-
-**Apple’s A.I. Chief, Who Failed to Deliver a Smarter Siri, Is Retiring**\
-`John Giannandrea, hired from Google, is leaving after the release of a new Siri was postponed. Apple has fallen behind rivals in efforts to develop A.I. products.`\
-https://nytimes.com/2025/12/01/business/apple-ai-john-giannandrea-siri.html
-
-**Maya Brady, niece of Tom Brady, chosen No. 1 in AUSL Expansion Draft**\
-`The two-time Pac-12 Player of the Year will play for the Oklahoma City Spark in the league's second season in 2026.`\
-https://nytimes.com/athletic/6853808/2025/12/01/tom-brady-niece-maya-brady-ausl-expansion-draft/
 
