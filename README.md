@@ -22,7 +22,7 @@ https://nytimes.com/athletic/6853396/2025/12/02/college-football-playoff-ranking
 `We've been wondering, now that the Curry brothers are reunited in Golden State, how NBA siblings would fare if they faced off directly.`\
 https://nytimes.com/athletic/6764850/2025/12/02/nba-best-brother-duo/
 
-**Trump Administration Live Updates: U.S. Envoy to Meet With Putin in Moscow**\
+**Trump Administration Live Updates: Honduran Ex-President Is Freed After Pardon, Lawyer Says**\
 ``\
 https://nytimes.com/live/2025/12/02/us/trump-ukraine-putin-news
 
