@@ -1,3 +1,11 @@
+**Super Bowl odds: Week 13 carnage reshuffles top teams**\
+`Losses by major contenders last week blew up the Super Bowl market. Which contenders are trending up?`\
+https://nytimes.com/athletic/6855710/2025/12/02/super-bowl-odds-week-14/
+
+**Scoop City: What happened on Younghoe Koo's kick?**\
+`Explaining the Giants kicker's perspective, plus the Texans passing defense, Cowboys attack and other elite units.`\
+https://nytimes.com/athletic/6855969/2025/12/02/what-happened-younghoe-koo-kick-nfl-scoop-city/
+
 **Why the Penguins' unlikely quest to reach the playoffs is gaining steam**\
 `Here's what's driving the growing optimism that the Penguins might be good enough to reach the Stanley Cup playoffs.`\
 https://nytimes.com/athletic/6855432/2025/12/02/penguins-nhl-playoffs-standings-wild-card-race/

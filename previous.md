@@ -1,3 +1,11 @@
+**Super Bowl odds: Week 13 carnage reshuffles top teams**\
+`Losses by major contenders last week blew up the Super Bowl market. Which contenders are trending up?`\
+https://nytimes.com/athletic/6855710/2025/12/02/super-bowl-odds-week-14/
+
+**Scoop City: What happened on Younghoe Koo's kick?**\
+`Explaining the Giants kicker's perspective, plus the Texans passing defense, Cowboys attack and other elite units.`\
+https://nytimes.com/athletic/6855969/2025/12/02/what-happened-younghoe-koo-kick-nfl-scoop-city/
+
 **Why the Penguins' unlikely quest to reach the playoffs is gaining steam**\
 `Here's what's driving the growing optimism that the Penguins might be good enough to reach the Stanley Cup playoffs.`\
 https://nytimes.com/athletic/6855432/2025/12/02/penguins-nhl-playoffs-standings-wild-card-race/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/02/us/politics/elon-musk-foundation.html
 **NFL Coach of the Year odds: Vrabel favored against the field**\
 `A number of NFL coaches have separated themselves in the race to be named NFL Coach of the Year.`\
 https://nytimes.com/athletic/6855384/2025/12/02/nfl-coach-of-the-year-odds-mike-vrabel-ben-johnson/
-
-**Ohio State lost helmet communication against Michigan, but Ryan Day had a plan**\
-`“It’s funny how your mind works,” Day said with a smile and a wink to the media.`\
-https://nytimes.com/athletic/6855735/2025/12/02/ohio-state-michigan-helmet-communication-ryan-day/
-
-**Jets owner donates $1 million to launch women's college flag-football league**\
-`The 15-team league, whose inaugural season will take place in 2026, is an example of the growing popularity of women's flag football.`\
-https://nytimes.com/athletic/6855560/2025/12/02/jets-woody-johnson-donation-womens-college-flag-football/
 

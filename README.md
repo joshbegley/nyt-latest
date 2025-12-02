@@ -1,3 +1,11 @@
+**Eugene Hasenfus, Gunrunner Who Exposed Iran-Contra Plot, Dies at 84**\
+`He emerged out of obscurity when his cargo plane was shot down while illegally ferrying supplies to Nicaraguan rebels, setting off a scandal that tarnished the Reagan and Bush White Houses.`\
+https://nytimes.com/2025/12/02/us/eugene-hasenfus-dead.html
+
+**Miami Activist Vows to Keep Fighting After New Vote on Trump Library**\
+`After Marvin Dunn sued, the trustees of Miami Dade College voted for a second time to hand over a prime property for President Trump’s future library.`\
+https://nytimes.com/2025/12/02/us/trump-library.html
+
 **Super Bowl odds: Week 13 carnage reshuffles top teams**\
 `Losses by major contenders last week blew up the Super Bowl market. Which contenders are trending up?`\
 https://nytimes.com/athletic/6855710/2025/12/02/super-bowl-odds-week-14/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6855850/2025/12/02/paul-finebaum-espn-alabama-senat
 **11 Musical Love Letters From Artists to Their Heroes**\
 `Hear the Replacements (on Big Star), Sonic Youth (on Karen Carpenter), Stevie Wonder (on Duke Ellington) and more.`\
 https://nytimes.com/2025/12/02/arts/music/amplifier-newsletter-musical-love-letters.html
-
-**Elon Musk’s Foundation Grows to $14 Billion, but Gives Little to Outsiders**\
-`The philanthropy has become one of America’s biggest, but most of its giving went to charities closely tied to the world’s richest man.`\
-https://nytimes.com/2025/12/02/us/politics/elon-musk-foundation.html
-
-**NFL Coach of the Year odds: Vrabel favored against the field**\
-`A number of NFL coaches have separated themselves in the race to be named NFL Coach of the Year.`\
-https://nytimes.com/athletic/6855384/2025/12/02/nfl-coach-of-the-year-odds-mike-vrabel-ben-johnson/
 
