@@ -1,3 +1,7 @@
+**James out for at least eight weeks, surgery a possibility**\
+`James injured his hamstring tendon during Saturday’s 3-2 loss at Manchester City.`\
+https://nytimes.com/athletic/6855067/2025/12/02/dan-james-leeds-hamstring-injury/
+
 **From Volcano to Decanter**\
 `In the world of luxury spirits, few names carry the weight of history, authenticity, and artistry that Flor de Caña does. `\
 https://nytimes.com/paidpost/flor-de-caa-35-year/flor-de-caa-35-year/from-volcano-to-decanter.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6854909/2025/12/02/russia-winter-olympics-ban-skiin
 **Rotating Beds and Cellphones, Maduro Plans to Outlast Trump**\
 `President Trump’s threat of military action has confronted President Nicolás Maduro of Venezuela with the gravest challenge of his crisis-ridden reign.`\
 https://nytimes.com/2025/12/02/world/americas/venezuela-nicolas-maduro-trump.html
-
-**San Francisco Will Sue Ultraprocessed Food Companies**\
-`The city attorney accuses large manufacturers of causing diseases that have burdened governments with public health costs.`\
-https://nytimes.com/2025/12/02/us/san-francisco-ultraprocessed-food-lawsuit.html
 
