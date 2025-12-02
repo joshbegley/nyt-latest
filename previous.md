@@ -1,40 +1,40 @@
-**Trump’s Envoy to Meet With Putin About Plan to End War in Ukraine**\
-`Steve Witkoff, a U.S. special envoy, traveled to Moscow to discuss a peace plan with President Vladimir Putin of Russia. Meanwhile, President Volodymyr Zelensky of Ukraine traveled across Europe to shore up support.`\
-https://nytimes.com/video/world/europe/100000010558396/putin-witkoff-russia-ukraine-meeting.html
+**The Transfer DealSheet: 2026 plans for your club in the January and summer windows**\
+`The January window is less than a month away and clubs will be formulating their plans for the summer as well`\
+https://nytimes.com/athletic/6844622/2025/12/02/transfer-latest-2026-january-summer-man-utd-arsenal-liverpool-real-madrid/
 
-**Australia opener Khawaja out of second Ashes Test with back injury**\
-`The 38-year-old had been due to open the batting alongside Test debutant Jake Weatherald in the opening Test in Perth.`\
-https://nytimes.com/athletic/6854550/2025/12/02/ashes-team-news-australia-khawaja-injury/
+**Aston Villa Transfer DealSheet: What to expect in 2026**\
+`Who will make key decisions over the two windows? What positions will they be looking at in 2026? Who will they be looking to sell?`\
+https://nytimes.com/athletic/6822840/2025/12/02/aston-villa-transfer-dealsheet-what-to-expect-in-2026/
 
-**Trump Intervenes Again in Honduras Vote, Alleging Fraud Without Evidence**\
-`Honduras was on edge after tallies showed two candidates separated by about 500 votes. Then President Trump claimed that officials were rigging results.`\
-https://nytimes.com/2025/12/02/world/americas/honduras-presidential-vote-trump.html
+**Real Madrid Transfer DealSheet: Rodrygo for sale, centre-back and midfield targets**\
+`The Spanish side tend not to do much business in the winter window, but key targets have already been established`\
+https://nytimes.com/athletic/6852080/2025/12/02/real-madrid-transfers-news-january-targets/
 
-**Word of the Day: ineffable**\
-`This word has appeared in 44 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/12/02/learning/word-of-the-day-ineffable.html
+**Manchester United Transfer DealSheet: What to expect in 2026**\
+`Manchester United still need key additions after a significant outlay in the summer window`\
+https://nytimes.com/athletic/6852550/2025/12/02/manchester-united-transfer-latest-january-summer-2026/
 
-**England opt for Will Jacks as only change for second Test at the Gabba**\
-`Surrey all-rounder replaces Mark Wood for the day-night game in Brisbane and provides a spinning option as visitors seek to level series`\
-https://nytimes.com/athletic/6854488/2025/12/02/will-jacks-england-brisbane-australia/
+**Arsenal Transfer DealSheet: What to expect in 2026**\
+`Arsenal top the Premier League and are going into the January window from a position of strength`\
+https://nytimes.com/athletic/6852386/2025/12/02/arsenal-transfer-latest-january-summer-2026/
 
-**The New York Times in Print for Tuesday, Dec. 2, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/12/02/todays-new-york-times
+**Everton Transfer DealSheet: What to expect in 2026**\
+`Who will Everton be looking to sign in the new year? And who could be on their way out?`\
+https://nytimes.com/athletic/6839581/2025/12/02/everton-2026-transfer-dealsheet/
 
-**Japan Has Changed How the World Must Think About Taiwan**\
-`The Japanese leader’s candor over Taiwan brought the shared regional stakes out into the open, and the U.S. must stand behind its ally.`\
-https://nytimes.com/2025/12/02/opinion/china-us-japan-security-taiwan.html
+**Newcastle United Transfer DealSheet: What to expect in 2026**\
+`Newcastle have clarity going into the 2026 transfer windows — they have a CEO, a sporting director and are not hamstrung by PSR`\
+https://nytimes.com/athletic/6819330/2025/12/02/newcastle-transfer-latest-2026-january-summer/
 
-**A Serious Journalism Scandal Hiding Inside a Frivolous Sexual One**\
-`Olivia Nuzzi doesn’t seem to recognize that her collaboration with Robert Kennedy was a grave professional betrayal.`\
-https://nytimes.com/2025/12/02/opinion/olivia-nuzzi-rfk.html
+**Wolves Transfer DealSheet: What to expect in 2026**\
+`No team has ever stayed in the Premier League from such a dire position – how will that affect the future of Rob Edwards and his squad?`\
+https://nytimes.com/athletic/6845010/2025/12/02/wolves-transfer-latest-january-summer-2026/
 
-**A right groin injury caused Devin Booker to exit the Suns-Lakers game early**\
-`After scoring 11 points in 10 minutes, Booker watched the rest of the game in street clothes. The severity of the injury is unknown.`\
-https://nytimes.com/athletic/6854311/2025/12/02/devin-booker-out-groin-injury-suns-lakers/
+**Nottingham Forest Transfer DealSheet: What to expect in 2026**\
+`Who will make key decisions over the two windows? What positions will they be looking at in 2026? Who will they be looking to sell?`\
+https://nytimes.com/athletic/6842807/2025/12/02/nottingham-forest-transfer-plans-2026/
 
-**Flyers' Tyson Foerster suffers injury in lopsided loss to Penguins**\
-`It was even a rough night for the Flyers’ steadiest player this season.`\
-https://nytimes.com/athletic/6854231/2025/12/02/flyers-penguins-tyson-foerster-injury/
+**Manchester City Transfer DealSheet: What to expect in 2026**\
+`Pep Guardiola's squad is strong after spending heavily in the last two windows, but there are still positions that need upgrading`\
+https://nytimes.com/athletic/6839885/2025/12/02/man-city-transfer-dealsheet-2026/
 
