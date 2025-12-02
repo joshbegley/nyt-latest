@@ -1,3 +1,7 @@
+**Patriots mailbag: Submit your bye week questions for reporter Chad Graff**\
+`As everything continues to come up Patriots, let’s reset by answering some of your questions. Leave your mailbag questions below.`\
+https://nytimes.com/athletic/6854399/2025/12/02/new-england-patriots-mailbag-bye-week/
+
 **Finding the Magic, Just in Time (Encore)**\
 `Clare Cory was 59 years old and had been single almost her whole life. She thought her love story was over. Then everything changed.`\
 https://nytimes.com/2025/12/02/podcasts/finding-the-magic-just-in-time-encore.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6833213/2025/12/02/jared-curtis-recruiting-vanderbi
 **How Ruben Amorim is 'stealing' set-piece ideas from opponents and implementing them at Man Utd**\
 `The manager is carefully evaluating how other teams approach dead-ball situations before taking and adapting the best bits for his own side`\
 https://nytimes.com/athletic/6854607/2025/12/02/manchester-united-amorim-set-pieces-premier-league/
-
-**New ICE Operation Is Said to Target Somali Migrants in Twin Cities**\
-`The move comes as President Trump has attacked Somalis with increasingly inflammatory rhetoric in recent days.`\
-https://nytimes.com/2025/12/02/us/politics/ice-somali-migrants-minneapolis-st-paul.html
 

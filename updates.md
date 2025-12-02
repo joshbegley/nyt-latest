@@ -1,3 +1,11 @@
+**Finding the Magic, Just in Time (Encore)**\
+`Clare Cory was 59 years old and had been single almost her whole life. She thought her love story was over. Then everything changed.`\
+https://nytimes.com/2025/12/02/podcasts/finding-the-magic-just-in-time-encore.html
+
+**Critical fantasy football insights for Week 14: The Jordan Love to Christian Watson era**\
+`Brandon Funston and Jess Bryant look at usage metrics to give actionable Week 14 fantasy football advice. `\
+https://nytimes.com/athletic/6852464/2025/12/02/critical-fantasy-football-insights-usage-week-14/
+
 **NHL to remind teams about mandatory helmets during warmups**\
 `Three NHL teams have taken to the ice helmetless over the last week.`\
 https://nytimes.com/athletic/6855479/2025/12/02/nhl-helmets-warmup-senators-sharks-devils/
