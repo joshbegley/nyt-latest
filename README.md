@@ -1,3 +1,7 @@
+**Trump Administration Fires 8 Immigration Judges in New York**\
+`The firings, part of a nationwide effort, felt “like a Monday afternoon massacre,” said one judge who lost her job last month.`\
+https://nytimes.com/2025/12/01/nyregion/immigration-judges-fired-trump.html
+
 **As Trump Deepens Immigration Crackdown, Even Long-Held Exceptions Disappear**\
 `President Trump’s latest changes to the immigration system affect communities that traditionally have been considered special cases.`\
 https://nytimes.com/2025/12/01/us/politics/trump-immigration-afghan-daca.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6853507/2025/12/01/eagles-kevin-patullo-home-egged/
 **Hegseth Ordered a Lethal Attack but Not the Killing of Survivors, Officials Say**\
 `Amid talk of war crimes, the details and precise sequence of a Sept. 2 attack on a boat in the Caribbean are facing intensifying scrutiny.`\
 https://nytimes.com/2025/12/01/us/hegseth-drug-boat-strike-order-venezuela.html
-
-**Reginald T. Jackson, A.M.E. Bishop With Political Power, Dies at 71**\
-`Influential up and down the Eastern Seaboard, he was part of a long tradition among Black clergy of fighting bias and getting out the vote. “No vote, no clout,” he’d say.`\
-https://nytimes.com/2025/12/01/us/politics/reginald-t-jackson-dead.html
 

@@ -1,3 +1,11 @@
+**As Trump Deepens Immigration Crackdown, Even Long-Held Exceptions Disappear**\
+`President Trump’s latest changes to the immigration system affect communities that traditionally have been considered special cases.`\
+https://nytimes.com/2025/12/01/us/politics/trump-immigration-afghan-daca.html
+
+**Rapper Toosii commits to play football at Syracuse**\
+`The multi-platinum artist is returning to his hometown to play college football.`\
+https://nytimes.com/athletic/6853729/2025/12/01/toosii-rapper-football-commits-syracuse/
+
 **Trump Administration Revokes Licenses of Thousands of Training Centers for Truckers**\
 `The move, and threats of thousands more revocations, comes as the administration has increased its criticism of the trucking industry over noncitizen drivers’ obtaining commercial licenses.`\
 https://nytimes.com/2025/12/01/us/politics/trump-trucking-license-accreditation.html

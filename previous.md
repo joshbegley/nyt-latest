@@ -1,3 +1,11 @@
+**As Trump Deepens Immigration Crackdown, Even Long-Held Exceptions Disappear**\
+`President Trump’s latest changes to the immigration system affect communities that traditionally have been considered special cases.`\
+https://nytimes.com/2025/12/01/us/politics/trump-immigration-afghan-daca.html
+
+**Rapper Toosii commits to play football at Syracuse**\
+`The multi-platinum artist is returning to his hometown to play college football.`\
+https://nytimes.com/athletic/6853729/2025/12/01/toosii-rapper-football-commits-syracuse/
+
 **Trump Administration Revokes Licenses of Thousands of Training Centers for Truckers**\
 `The move, and threats of thousands more revocations, comes as the administration has increased its criticism of the trucking industry over noncitizen drivers’ obtaining commercial licenses.`\
 https://nytimes.com/2025/12/01/us/politics/trump-trucking-license-accreditation.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/01/us/hegseth-drug-boat-strike-order-venezuela.html
 **Reginald T. Jackson, A.M.E. Bishop With Political Power, Dies at 71**\
 `Influential up and down the Eastern Seaboard, he was part of a long tradition among Black clergy of fighting bias and getting out the vote. “No vote, no clout,” he’d say.`\
 https://nytimes.com/2025/12/01/us/politics/reginald-t-jackson-dead.html
-
-**U.K. Plans to Restrict Right to Jury Trial in Some Cases in England and Wales**\
-`The British justice secretary, David Lammy, is set to announce the contentious move as part of a broader overhaul of the criminal justice system, amid a yearslong backlog.`\
-https://nytimes.com/2025/12/01/world/europe/uk-jury-trial-courts.html
-
-**What we're hearing about Penn State's search: Kalani Sitake's candidacy and more updates**\
-`Penn State has been searching for a head coach for 50 days and counting. Who's actually a candidate? Here's what we know.`\
-https://nytimes.com/athletic/6853630/2025/12/01/penn-state-coaching-search-kalani-sitake/
 
