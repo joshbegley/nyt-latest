@@ -1,3 +1,7 @@
+**Korean Baseball MVP Cody Ponce to sign three-year deal with Blue Jays: Sources**\
+`After a historic 2025 season, Ponce was awarded the KBO's equivalent to the Cy Young Award and its league MVP. `\
+https://nytimes.com/athletic/6853998/2025/12/02/mlb-cody-ponce-free-agency-signing-blue-jays/
+
 **Trump Calls Somalis ‘Garbage’ in Xenophobic Rant**\
 `President Trump lashed out against Somali immigrants, including Representative Ilhan Omar, Democrat of Minnesota, who came to the United States from Somalia as a refugee and became a citizen 25 years ago.`\
 https://nytimes.com/video/us/politics/100000010560845/trump-somalia-xenophobic-remarks.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6856478/2025/12/02/olympic-ice-surface-nhl/
 **Trump Expected to Significantly Weaken Fuel Economy Rules**\
 `Executives from top automakers were invited to attend the announcement at the White House on Wednesday.`\
 https://nytimes.com/2025/12/02/climate/trump-fuel-economy-rules.html
-
-**The Liberal Order Can’t Heal Itself**\
-`Our problems run deeper than debates about affordability.`\
-https://nytimes.com/2025/12/02/opinion/liberalism-postliberalism-affordability.html
 
