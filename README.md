@@ -14,7 +14,7 @@ https://nytimes.com/2025/12/02/arts/television/late-night-trump-tim-walz.html
 `A prayer at the site of the 2020 Beirut explosion and a waterfront Mass capped his three-day visit to the Middle Eastern nation with the highest proportion of Christians.`\
 https://nytimes.com/2025/12/02/world/middleeast/pope-leo-beirut-lebanon.html
 
-**Democrats in New Jersey Ram Though Bill to Defang a Corruption Watchdog**\
+**Democrats in New Jersey Ram Through Bill to Defang a Corruption Watchdog**\
 `A State Senate committee moved to weaken an office that investigates police misconduct and government waste. Senator Andy Kim spoke in opposition but was cut off after three minutes.`\
 https://nytimes.com/2025/12/02/nyregion/new-jersey-corruption-comptroller-legislation.html
 
