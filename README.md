@@ -1,3 +1,7 @@
+**What a Blockbuster Donation Means for the Future of Giving**\
+`Michael Dell and his wife, Susan Dell, plan to give away billions of dollars to fund investment accounts for children in the United States.`\
+https://nytimes.com/2025/12/02/business/dealbook/dell-donation-trump-accounts.html
+
 **Kalshi, a Prediction Market, Raises $1 Billion in New Round**\
 `The fund-raising effort, the company’s third this year, values it at $11 billion, and comes amid stiff competition in the increasingly popular industry.`\
 https://nytimes.com/2025/12/02/business/dealbook/kalshi-prediction-market-billion.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/02/business/dell-children-trump-accounts.html
 **The Bulls' losing script against Magic feels all too familiar**\
 `Short-handed and outmuscled, Chicago lost for the fourth straight time and has seen its promising early start evaporate.`\
 https://nytimes.com/athletic/6854653/2025/12/02/bulls-magic-losing-streak-billy-donovan/
-
-**Beta Will Sell Motors to Another Electric Aircraft Company**\
-`The deal with a company owned by Embraer gives Beta Technologies an additional source of revenue as it develops its own electric aircraft.`\
-https://nytimes.com/2025/12/02/business/beta-eve-embraer-electric-planes.html
 

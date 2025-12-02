@@ -1,3 +1,7 @@
+**Kalshi, a Prediction Market, Raises $1 Billion in New Round**\
+`The fund-raising effort, the company’s third this year, values it at $11 billion, and comes amid stiff competition in the increasingly popular industry.`\
+https://nytimes.com/2025/12/02/business/dealbook/kalshi-prediction-market-billion.html
+
 **How the Broncos are bucking history with uncanny comeback success**\
 `The Broncos are 10-2 despite trailing at some point in each of their 12 games, a mark no other team has achieved since at least 2000.`\
 https://nytimes.com/athletic/6853326/2025/12/02/denver-broncos-comebacks-bo-nix/
