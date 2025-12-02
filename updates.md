@@ -1,3 +1,7 @@
+**U.N. Security Council to Make First Official Visit to Syria and Lebanon**\
+`The trip comes ahead of the anniversary of the fall of Bashar al-Assad, and as Lebanon is navigating the cease-fire between Hezbollah and Israel.`\
+https://nytimes.com/2025/12/02/world/middleeast/lebanon-un-security-council.html
+
 **Trump Frees Former President of Honduras**\
 `Plus, C.D.C. advisers are set to change the vaccine schedule. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2025/12/02/briefing/honduras-somalis-cdc.html
