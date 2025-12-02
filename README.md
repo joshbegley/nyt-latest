@@ -1,3 +1,7 @@
+**Kentucky finalizing head coaching deal for Oregon OC: Source**\
+`The Oregon offensive coordinator will replace the winningest coach in Wildcats history. `\
+https://nytimes.com/athletic/6853698/2025/12/01/kentucky-football-will-stein-oregon-head-coach/
+
 **Eagles OC Kevin Patullo’s home vandalized with eggs over the weekend**\
 `A viral video circulated on social media Monday showing individuals hurling objects at Pattulo’s well-lit home.`\
 https://nytimes.com/athletic/6853507/2025/12/01/eagles-kevin-patullo-home-egged/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/01/us/politics/el-chapo-son-joaquin-guzman-lopez-gui
 **NASCAR trial begins with Michael Jordan fan jurors dismissed, Denny Hamlin testimony**\
 `Hamlin capped the trial's first day with an emotional testimony, saying teams and drivers are essentially just "fundraisers" for NASCAR.`\
 https://nytimes.com/athletic/6851916/2025/12/01/nascar-trial-michael-jordan-lawsuit-denny-hamlin/
-
-**Instant grades for college football's 2025-26 head-coaching hires**\
-`In college football, you never really know whether a coaching hire is going to work. But it's never too early to talk about fit.`\
-https://nytimes.com/athletic/6827060/2025/12/01/college-football-coaching-carousel-grades/
 
