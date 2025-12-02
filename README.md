@@ -1,3 +1,7 @@
+**NBA weekly watch guide: Brunson and Dončić visit Boston, OKC chases league history**\
+`The Thunder open this week at 20-1, with a pair of national TV games coming up. The 1995-96 Bulls and 2015-16 Warriors are on notice.`\
+https://nytimes.com/athletic/6852656/2025/12/02/nba-tv-schedule-knicks-celtics-lakers-thunder/
+
 **The USWNT's year of change and integration: 'We're still cooking'**\
 `Competition for the 2027 World Cup roster will be tough after a year in which Emma Hayes has successfully introduced young talent`\
 https://nytimes.com/athletic/6854620/2025/12/02/uswnt-emma-hayes-2025-recap/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6853521/2025/12/02/jared-spurgeon-jesper-wallstedt-
 **Giants aren't shopping for high-end free agents — here are potential targets**\
 `The Giants aren't intending to spend big money this offseason. Starters who are durable, though not exciting, are likely to be targets.`\
 https://nytimes.com/athletic/6853389/2025/12/02/sf-giants-free-agent-targets-patrick-corbin-justin-verlander/
-
-**Who should be on the Guardians Hot Stove shopping list? Bullpen depth, outfielders and more**\
-`The Guardians have a lot to check off their list in the coming months. A little holiday shopping can help. 'Tis the season and whatnot.`\
-https://nytimes.com/athletic/6849048/2025/12/02/cleveland-guardians-mlb-hot-stove/
 
