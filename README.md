@@ -1,3 +1,7 @@
+**Trump’s Envoy to Meet With Putin About Plan to End War in Ukraine**\
+`Steve Witkoff, a U.S. special envoy, traveled to Moscow to discuss a peace plan with President Vladimir Putin of Russia. Meanwhile, President Volodymyr Zelensky of Ukraine traveled across Europe to shore up support.`\
+https://nytimes.com/video/world/europe/100000010558396/putin-witkoff-russia-ukraine-meeting.html
+
 **Australia opener Khawaja out of second Ashes Test with back injury**\
 `The 38-year-old had been due to open the batting alongside Test debutant Jake Weatherald in the opening Test in Perth.`\
 https://nytimes.com/athletic/6854550/2025/12/02/ashes-team-news-australia-khawaja-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6854311/2025/12/02/devin-booker-out-groin-injury-su
 **Flyers' Tyson Foerster suffers injury in lopsided loss to Penguins**\
 `It was even a rough night for the Flyers’ steadiest player this season.`\
 https://nytimes.com/athletic/6854231/2025/12/02/flyers-penguins-tyson-foerster-injury/
-
-**Brisbane by numbers: Australia look to Starc and Lyon, and why England should be inspired by the West Indies**\
-`Day-night Test cricket brings its challenges and Australia are seasoned in the Gabba's quirks - but touring teams have prevailed before`\
-https://nytimes.com/athletic/6851475/2025/12/02/ashes-brisbane-australia-england-starc-lyon/
 
