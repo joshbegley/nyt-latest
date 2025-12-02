@@ -1,3 +1,7 @@
+**Flyers' Tyson Foerster suffers injury in lopsided loss to Penguins**\
+`It was even a rough night for the Flyers’ steadiest player this season.`\
+https://nytimes.com/athletic/6854231/2025/12/02/flyers-penguins-tyson-foerster-injury/
+
 **Brisbane by numbers: Australia look to Starc and Lyon, and why England should be inspired by the West Indies**\
 `Day-night Test cricket brings its challenges and Australia are seasoned in the Gabba's quirks - but touring teams have prevailed before`\
 https://nytimes.com/athletic/6851475/2025/12/02/ashes-brisbane-australia-england-starc-lyon/
