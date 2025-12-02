@@ -22,6 +22,10 @@ https://nytimes.com/athletic/6855743/2025/12/02/emmanuel-clase-luis-ortiz-mlb-be
 `With sports betting legalized in Missouri on Monday, the Blues give their perspective on what it will mean for fans and the organization.`\
 https://nytimes.com/athletic/6797972/2025/12/02/blues-sports-betting-explainer/
 
+**Ranking CFB's 10 open coaching jobs: With SEC making hires, Penn State's No. 1**\
+`This could be the most active coaching carousel college football has seen in many years.`\
+https://nytimes.com/athletic/6662286/2025/12/02/college-football-open-coaching-jobs-rankings/
+
 **Patriots mailbag: Submit your bye week questions for reporter Chad Graff**\
 `As everything continues to come up Patriots, let’s reset by answering some of your questions. Leave your mailbag questions below.`\
 https://nytimes.com/athletic/6854399/2025/12/02/new-england-patriots-mailbag-bye-week/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/02/podcasts/finding-the-magic-just-in-time-encore.ht
 **Critical fantasy football insights for Week 14: The Jordan Love to Christian Watson era**\
 `Brandon Funston and Jess Bryant look at usage metrics to give actionable Week 14 fantasy football advice. `\
 https://nytimes.com/athletic/6852464/2025/12/02/critical-fantasy-football-insights-usage-week-14/
-
-**NHL to remind teams about mandatory helmets during warmups**\
-`Three NHL teams have taken to the ice helmetless over the last week.`\
-https://nytimes.com/athletic/6855479/2025/12/02/nhl-helmets-warmup-senators-sharks-devils/
 
