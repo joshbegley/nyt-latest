@@ -1,3 +1,11 @@
+**The Bulls' losing script against Magic feels all too familiar**\
+`Short-handed and outmuscled, Chicago lost for the fourth straight time and has seen its promising early start evaporate.`\
+https://nytimes.com/athletic/6854653/2025/12/02/bulls-magic-losing-streak-billy-donovan/
+
+**Beta Will Sell Motors to Another Electric Aircraft Company**\
+`The deal with a company owned by Embraer gives Beta Technologies an additional source of revenue as it develops its own electric aircraft.`\
+https://nytimes.com/2025/12/02/business/beta-eve-embraer-electric-planes.html
+
 **Five things Michigan must do after losing to Ohio State, missing the Playoff**\
 `Saturday’s 27-9 loss to No. 1 Ohio State underscored many of the items on Michigan’s offseason fix-it list.`\
 https://nytimes.com/athletic/6853062/2025/12/02/how-to-fix-michigan-football-ohio-state/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6852076/2025/12/02/high-school-recruiting-nil-quart
 **Top assignment for next Giants coach: Keep Jaxson Dart available**\
 `New York's quarterback isn't planning on changing his playing style anytime soon, meaning a new coach must be able to save him from himself.`\
 https://nytimes.com/athletic/6854403/2025/12/02/jaxson-dart-ny-giants-next-coach/
-
-**It's all sunshine, rainbows and hot dogs for Bears ... but Green Bay awaits**\
-`Everything is brilliant and sunny when the Bears are good. Even facing the favored Packers on the Frozen Tundra is a warm thought.`\
-https://nytimes.com/athletic/6853818/2025/12/02/bears-packers-ben-johnson-nfc-first-place/
-
-**Why the SEC would be the last to give up its championship game**\
-`The SEC was the first conference to have a championship game. It has no immediate plans to give it up.`\
-https://nytimes.com/athletic/6853091/2025/12/02/sec-championship-game-future/
 
