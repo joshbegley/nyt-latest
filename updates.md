@@ -1,3 +1,15 @@
+**Send us your questions for Joe Person's Carolina Panthers mailbag**\
+`The Athletic's Joe Person will answer some of your questions in a Panthers mailbag later this week.`\
+https://nytimes.com/athletic/6855927/2025/12/02/send-us-your-questions-for-joe-persons-carolina-panthers-mailbag/
+
+**Paul Finebaum won't leave ESPN to run for U.S. Senate seat in Alabama**\
+`Finebaum said he was mulling a run as a Republican in one of Alabama’s two U.S. Senator seats but plans to stay at ESPN.`\
+https://nytimes.com/athletic/6855850/2025/12/02/paul-finebaum-espn-alabama-senator-seat/
+
+**Prosecutors Drop Charges Against Man Who Served 25 Years for 1993 Murder**\
+`James Pugh, one of two men originally convicted in the savage killing of Deborah Meindl near Buffalo, said all along that he was innocent.`\
+https://nytimes.com/2025/12/02/nyregion/tonawanda-murder-charges-dropped-james-pugh.html
+
 **11 Musical Love Letters From Artists to Their Heroes**\
 `Hear the Replacements (on Big Star), Sonic Youth (on Karen Carpenter), Stevie Wonder (on Duke Ellington) and more.`\
 https://nytimes.com/2025/12/02/arts/music/amplifier-newsletter-musical-love-letters.html
