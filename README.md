@@ -1,40 +1,40 @@
-**And the Award for Most Cynical Look Goes to … the Naked Suit**\
-`In the celebrity-style ecosystem, there are no gold stars for good taste.`\
-https://nytimes.com/2025/12/02/style/naked-suit-elias-medini-lyas-fashion-awards.html
+**Trump Calls Somalis ‘Garbage’ He Doesn’t Want in the Country**\
+`The president delivered xenophobic comments during a publicly broadcast cabinet meeting.`\
+https://nytimes.com/2025/12/02/us/politics/trump-somalia.html
 
-**The Tiger Lily Kitchen Team Goes Gluten-Free at KIMMI**\
-`Godunk offers up a spread of Thai dishes, Golden Ratio leans into fruits and vegetables for its cocktails and more restaurant news.`\
-https://nytimes.com/2025/12/02/dining/nyc-restaurant-news.html
+**How to watch USC vs. Oregon men's basketball: Time, TV, streaming**\
+`Find out how to watch the USC Trojans play the Oregon Ducks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6856150/2025/12/02/usc-vs-oregon-stream-how-to-watch-dec-2/
 
-**Neither Franklin the Turtle Nor Sabrina Carpenter Wants to Appear in Trump Posts**\
-`The publisher of the children’s book series and the pop singer both denounced the use of their works in recent Trump administration communications.`\
-https://nytimes.com/2025/12/02/us/sabrina-carpenter-franklin-turtle-trump-hegseth.html
+**How to watch Bengals vs. Bills: Time, TV, streaming**\
+`Find out how to watch the Cincinnati Bengals play the Buffalo Bills, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6856143/2025/12/02/bengals-vs-bills-stream-how-to-watch-dec-7/
 
-**Submit your Red Wings questions for Max Bultman's mailbag**\
-`No matter what you make of the Detroit's season, you must have questions.`\
-https://nytimes.com/athletic/6856069/2025/12/02/detroit-red-wings-mailbag-prompt-bultman/
+**How to watch Dolphins vs. Jets: Time, TV, streaming**\
+`Find out how to watch the Miami Dolphins play the New York Jets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6856141/2025/12/02/dolphins-vs-jets-stream-how-to-watch-dec-7/
 
-**Reckoning With a New Era of Deadly Floods**\
-`The floods and landslides that have killed more than 1,350 people in recent weeks are a grim reminder of the risks of a warming planet.`\
-https://nytimes.com/2025/12/02/climate/climate-change-floods.html
+**How to watch Saints vs. Buccaneers: Time, TV, streaming**\
+`Find out how to watch the New Orleans Saints play the Tampa Bay Buccaneers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6856139/2025/12/02/saints-vs-buccaneers-stream-how-to-watch-dec-7/
 
-**Yes, This Is a Cookie**\
-`It’s not mortadella. It’s Claire Saffitz’s strawberry-almond cookie, speckled with pistachios and macadamia nuts.`\
-https://nytimes.com/2025/12/02/dining/these-cookies-look-like-mortadella-slices.html
+**How to watch Saint Mary's (CA) vs. USC women's basketball: Time, TV, streaming**\
+`Find out how to watch the Saint Mary's Gaels play the USC Trojans, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6856137/2025/12/02/saint-mary-s-ca-vs-usc-stream-how-to-watch-dec-2/
 
-**Denny Hamlin gives fiery testimony on Day 2 of Michael Jordan vs. NASCAR trial**\
-`Hamlin's testimony continued on Day 2, when he was questioned in cross-examination on his own comments about the state of NASCAR.`\
-https://nytimes.com/athletic/6854862/2025/12/02/nascar-michael-jordan-trial-denny-hamlin-testimony/
+**How to watch UConn vs. Kansas men's basketball: Time, TV, streaming**\
+`Find out how to watch the UConn Huskies play the Kansas Jayhawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6856134/2025/12/02/uconn-vs-kansas-stream-how-to-watch-dec-2/
 
-**Fantasy football market share report: Adonai Mitchell, Christian Watson and more**\
-`Michael Salfino analyzes the touches and targets distribution for Week 13, noting strong showings from Adonai Mitchell and Christian Watson.`\
-https://nytimes.com/athletic/6855867/2025/12/02/fantasy-football-market-share-report-christian-watson/
+**How to watch Florida vs. Duke men's basketball: Time, TV, streaming**\
+`Find out how to watch the Florida Gators play the Duke Blue Devils, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6856135/2025/12/02/florida-vs-duke-stream-how-to-watch-dec-2/
 
-**Ayanna Pressley Won’t Challenge Markey for Senate in Massachusetts**\
-`Ms. Pressley, a prominent progressive, will instead run for re-election to the House. Her move is expected to help Senator Ed Markey, though he still faces one well-known Democratic primary challenger.`\
-https://nytimes.com/2025/12/02/us/politics/ayanna-pressley-markey-massachusetts-senate.html
+**How to watch North Carolina vs. Kentucky men's basketball: Time, TV, streaming**\
+`Find out how to watch the North Carolina Tar Heels play the Kentucky Wildcats, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6856131/2025/12/02/north-carolina-vs-kentucky-stream-how-to-watch-dec-2/
 
-**Dijon, a Studio Maestro, Is Stepping Into the Spotlight**\
-`Onstage in Brooklyn, the buzzy producer and musician blasted his songs apart and stitched them back together again.`\
-https://nytimes.com/2025/12/02/arts/music/dijon-live-review.html
+**How to watch Purdue vs. Rutgers men's basketball: Time, TV, streaming**\
+`Find out how to watch the Purdue Boilermakers play the Rutgers Scarlet Knights, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6856128/2025/12/02/purdue-vs-rutgers-stream-how-to-watch-dec-2/
 
