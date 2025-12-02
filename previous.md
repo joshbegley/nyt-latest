@@ -1,3 +1,23 @@
+**Hegseth Says He Did Not See Survivors of Boat Attack Clinging to Wreckage**\
+`The defense secretary supported the admiral he said called for the second strike on Sept. 2 against a boat the administration says was smuggling drugs.`\
+https://nytimes.com/2025/12/02/us/politics/hegseth-boat-strikes.html
+
+**Marco Rubio campaigns for Miami to make CFP over Notre Dame**\
+`Rubio joked that President Trump will have to take over the College Football Playoff if Miami doesn't get in.`\
+https://nytimes.com/athletic/6856109/2025/12/02/marco-rubio-miami-notre-dame-college-football-playoff/
+
+**Costco Sues Trump Administration for Tariff Refund**\
+`Costco sued the Trump administration for a refund of the tariffs it has paid on imported goods this year, should the Supreme Court rule the tariffs illegal. The retail giant has become one of the largest companies to challenge President Trump’s tariffs in court.`\
+https://nytimes.com/video/us/politics/100000010560175/trump-tariffs-costco-lawsuit.html
+
+**Kalani Sitake will stay at BYU despite strong interest from Penn State: Source**\
+`It puts to rest the start of an angsty week as the No. 11 Cougars are set to face No. 5 Texas Tech Saturday for the Big 12 title.`\
+https://nytimes.com/athletic/6855506/2025/12/02/kalani-sitake-byu-coach-penn-state-carousel/
+
+**Trump Pardons Honduran Ex-President Convicted in Drug Case**\
+`President Trump has pardoned the former president of Honduras, Juan Orlando Hernández, who was sentenced to 45 years in prison for partnering with cocaine traffickers to import the drug into the United States.`\
+https://nytimes.com/video/us/100000010559962/trump-pardon-honduras-hernandez.html
+
 **Haaland hits 100, Fulham's almost magnificent comeback: The Briefing**\
 `Manchester City move to within two points of Premier League leaders Arsenal on a night Erling Haaland broke an Alan Shearer record`\
 https://nytimes.com/athletic/6851572/2025/12/02/fulham-4-manchester-city-5-haaland-100-goals/
@@ -13,28 +33,4 @@ https://nytimes.com/athletic/6855783/2025/12/02/yankees-fans-devin-williams-sign
 **Tavita Pritchard begins new chapter at Stanford, reuniting with Andrew Luck**\
 `At a packed news conference at Stanford Stadium, Luck and Pritchard traded humorous barbs about a relationship that began in 2008.`\
 https://nytimes.com/athletic/6856166/2025/12/02/stanford-tavita-pritchard-coach-andrew-luck/
-
-**Our Top Editor Answers Questions**\
-`Joe Kahn, The New York Times’s executive editor, was asked about how we cover the news and make judgment calls in our reporting and editing.`\
-https://nytimes.com/2025/12/02/world/executive-editor-reader-questions-ukraine-putin-best-books.html
-
-**Abdul Carter benched again after missing meeting: 'I let my team down'**\
-`This is not the first time the rookie pass rusher has been benched this season.`\
-https://nytimes.com/athletic/6853903/2025/12/02/ny-giants-abdul-carter-benched-patriots/
-
-**Best Movies of 2025**\
-`Our film critics rank their 10 favorites of the year.`\
-https://nytimes.com/2025/12/02/movies/best-movies-2025.html
-
-**Blues' Jordan Binnington responds to being pulled against Ducks: 'It was a quick one'**\
-`Binnington gave up two goals on five shots and was not happy about being pulled from a game which the Blues trailed 2-1.`\
-https://nytimes.com/athletic/6855852/2025/12/02/blues-jordan-binnington-pulled-response/
-
-**16 Prompts for Writing and Talking about the Holiday Season**\
-`Share your traditions, weigh in on a seasonal debate, write a story, reflect on the year behind you, or prepare for the one ahead.`\
-https://nytimes.com/2025/12/02/learning/16-prompts-for-writing-and-talking-about-the-holiday-season.html
-
-**'I'm talking myself into it': 'The Athletic Football Show' suggests Dolphins keep McDaniel**\
-`Given the landscape of coaching candidates, replacing McDaniel might be the harder task at this point.`\
-https://nytimes.com/athletic/6855718/2025/12/02/the-athletic-football-show-keeping-mike-mcdaniel/
 
