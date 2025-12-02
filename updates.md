@@ -1,3 +1,11 @@
+**Jets owner donates $1 million to launch women's college flag-football league**\
+`The 15-team league, whose inaugural season will take place in 2026, is an example of the growing popularity of women's flag football.`\
+https://nytimes.com/athletic/6855560/2025/12/02/jets-woody-johnson-donation-womens-college-flag-football/
+
+**Hegseth Under Scrutiny in Lethal Boat Strikes**\
+`Readers discuss the aftermath of a U.S. attack on a boat in the Caribbean. Also: Fixing Penn Station; Trumpism after Trump.`\
+https://nytimes.com/2025/12/02/opinion/hegseth-lethal-boat-strikes.html
+
 **2025 NFL Simulator: Updated playoff picture and projected draft order after Week 13 results**\
 `How could your favorite team's season end? Find out all the possible paths here.`\
 https://nytimes.com/athletic/6513952/2025/12/02/2025-nfl-playoff-simulator-path-postseason/
