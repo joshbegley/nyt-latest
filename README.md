@@ -1,3 +1,11 @@
+**How to watch Indiana vs. Ohio State: Big Ten Championship Time, TV, streaming**\
+`Find out how to watch the Indiana Hoosiers play the Ohio State Buckeyes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6853909/2025/12/01/indiana-vs-ohio-state-stream-how-to-watch-dec-6/
+
+**How to watch Duke vs. Virginia: ACC Championship Time, TV, streaming**\
+`Find out how to watch the Duke Blue Devils play the Virginia Cavaliers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6853907/2025/12/01/duke-vs-virginia-stream-how-to-watch-dec-6/
+
 **Trump Administration Fires 8 Immigration Judges in New York**\
 `The firings, part of a nationwide effort, felt “like a Monday afternoon massacre,” said one judge who lost her job last month.`\
 https://nytimes.com/2025/12/01/nyregion/immigration-judges-fired-trump.html
@@ -20,7 +28,7 @@ https://nytimes.com/athletic/6853783/2025/12/01/uswnt-italy-friendlies-full-time
 
 **How to watch Georgia vs. Alabama: SEC Championship Time, TV, streaming**\
 `Find out how to watch the Georgia Bulldogs play the Alabama Crimson Tide, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6853774/2025/12/01/georgia-vs-alabama-stream-how-to-watch-dec-6/
+https://nytimes.com/athletic/6853774/2025/12/01/how-to-watch-no-3-georgia-vs-no-10-alabama-sec-championship-tv-channel-and-streaming-options-for-december-6/
 
 **Trump’s Crackdown in Wake of Shooting Blocks Legal Pathways for Migrants**\
 `The new measures represent some of the most significant changes to immigration policy since President Trump returned to the White House.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/01/us/politics/trump-dc-shooting-immigration.html
 **Kentucky finalizing head coaching deal for Oregon OC: Source**\
 `The Oregon offensive coordinator will replace the winningest coach in Wildcats history. `\
 https://nytimes.com/athletic/6853698/2025/12/01/kentucky-football-will-stein-oregon-head-coach/
-
-**Eagles OC Kevin Patullo’s home vandalized with eggs over the weekend**\
-`A viral video circulated on social media Monday showing individuals hurling objects at Pattulo’s well-lit home.`\
-https://nytimes.com/athletic/6853507/2025/12/01/eagles-kevin-patullo-home-egged/
-
-**Hegseth Ordered a Lethal Attack but Not the Killing of Survivors, Officials Say**\
-`Amid talk of war crimes, the details and precise sequence of a Sept. 2 attack on a boat in the Caribbean are facing intensifying scrutiny.`\
-https://nytimes.com/2025/12/01/us/hegseth-drug-boat-strike-order-venezuela.html
 
