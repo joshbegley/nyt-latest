@@ -1,3 +1,7 @@
+**Rihanna, Jacob Elordi and Julia Roberts Kick Off Red Carpet Season in New York**\
+`It was all roast beef, chocolate cake and air kisses at the Gotham Awards in Lower Manhattan.`\
+https://nytimes.com/2025/12/02/style/gotham-awards-celebrities-winners.html
+
 **Vanderbilt flips QB Jared Curtis, No. 1 player in Class of 2026, from Georgia: Reports**\
 `Should he sign with the Commodores, Curtis would be the Commodores' first five-star prospect of the modern recruiting era. `\
 https://nytimes.com/athletic/6833213/2025/12/02/jared-curtis-recruiting-vanderbilt-flip-georgia/

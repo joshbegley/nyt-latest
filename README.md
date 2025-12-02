@@ -1,3 +1,15 @@
+**Sonny Gray, new Red Sox starter, on pitching for Yankees: 'I never wanted to go there'**\
+`Gray added that the experience in New York shaped him over the ensuing seven seasons.`\
+https://nytimes.com/athletic/6855549/2025/12/02/sonny-gray-did-not-want-to-pitch-for-yankees/
+
+**Submit questions for Nate Atkins' Rams mailbag**\
+`Atkins will consider your questions for his upcoming mailbag with the Rams sitting at 9-3 following a disappointing loss to the Panthers. `\
+https://nytimes.com/athletic/6855678/2025/12/02/rams-mailbag-week-14-cardinals/
+
+**Until Saturday: Hirings, firings and cross-country cookie $**\
+`Until Saturday is The Athletic's free college football newsletter.`\
+https://nytimes.com/athletic/6855679/2025/12/02/college-football-coaching-carousel-until-saturday-2/
+
 **Rihanna, Jacob Elordi and Julia Roberts Kick Off Red Carpet Season in New York**\
 `It was all roast beef, chocolate cake and air kisses at the Gotham Awards in Lower Manhattan.`\
 https://nytimes.com/2025/12/02/style/gotham-awards-celebrities-winners.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6853606/2025/12/02/red-bull-moves-f1-championship-p
 **This Hall of Fame Contemporary Era election, I won’t just be an observer. I’ll be a voter**\
 `This time around, I’ll be serving on the 16-member committee, along with The Athletic's Tyler Kepner. Here's what you should know. `\
 https://nytimes.com/athletic/6853332/2025/12/02/baseball-hall-of-fame-contemporary-era-election/
-
-**Whoops, the New Skating Rink Is Encroaching on Luciano Pavarotti**\
-`“Nessun Dorma?” More like “Ice, Ice Baby,” as a statue in Italy is overshadowed.`\
-https://nytimes.com/2025/12/02/world/europe/pavarotti-statue-ice-rink-pesaro-italy.html
-
-**Edwards says Wolves will target players with PL experience in January**\
-`Wolves signed six new players in the summer, none of whom had experience in the Premier League.`\
-https://nytimes.com/athletic/6855421/2025/12/02/rob-edwards-wolves-transfer-plans/
-
-**The No. 1 Most Iconic Technology of 2025**\
-`Casey Newton and Kevin Roose, hosts of “Hard Fork,” rank the 50 most iconic technologies of 2025 — and reveal their choice for No. 1.`\
-https://nytimes.com/video/podcasts/100000010556792/the-no-1-most-iconic-technology-of-2025.html
 
