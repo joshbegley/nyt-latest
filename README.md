@@ -1,3 +1,23 @@
+**How to watch Stars vs. Rangers: Time, TV, streaming**\
+`Find out how to watch the Dallas Stars play the New York Rangers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6855493/2025/12/02/stars-vs-rangers-stream-how-to-watch-dec-2/
+
+**How to watch Senators vs. Canadiens: Time, TV, streaming**\
+`Find out how to watch the Ottawa Senators play the Montreal Canadiens, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6855489/2025/12/02/senators-vs-canadiens-stream-how-to-watch-dec-2/
+
+**How to watch Lightning vs. Islanders: Time, TV, streaming**\
+`Find out how to watch the Tampa Bay Lightning play the New York Islanders, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6855487/2025/12/02/lightning-vs-islanders-stream-how-to-watch-dec-2/
+
+**How to watch Wizards vs. 76ers: Time, TV, streaming**\
+`Find out how to watch the Washington Wizards play the Philadelphia 76ers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6855485/2025/12/02/wizards-vs-76ers-stream-how-to-watch-dec-2/
+
+**How to watch Bruins vs. Red Wings: Time, TV, streaming**\
+`Find out how to watch the Boston Bruins play the Detroit Red Wings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6855483/2025/12/02/bruins-vs-red-wings-stream-how-to-watch-dec-2/
+
 **Tiger Woods' return to golf remains uncertain 6 weeks after back surgery**\
 `Woods has been cleared by doctors to chip and putt, but said that he will be missing the first half of the TGL season, which starts Dec. 28.`\
 https://nytimes.com/athletic/6855346/2025/12/02/tiger-woods-golf-return-world-hero-challenge/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6855462/2025/12/02/uconn-vs-south-florida-stream-ho
 **Winnipeg Jets report cards: 25 player grades after 25 games**\
 `There aren't a lot of A's to go around after 25 games, given Winnipeg set the Stanley Cup as its goal in September.`\
 https://nytimes.com/athletic/6852518/2025/12/02/winnipeg-jets-report-cards/
-
-**A Cozy Soup for a Quiet Week**\
-`With quick-cooking red lentils and creamy coconut milk, Zaynab Issa’s recipe is perfect for a weeknight meal.`\
-https://nytimes.com/2025/12/02/dining/a-cozy-soup-for-a-quiet-week.html
-
-**Former England footballer arrested on suspicion of attempted rape**\
-`The footballer, who played in the Premier League, was detained at London Stansted Airport on Sunday evening.`\
-https://nytimes.com/athletic/6854956/2025/12/02/england-footballer-arrest-rape/
-
-**Simon Cowell on His ‘Spirit Tunnel’ Walk**\
-`Simon Cowell’s awkward walk through the “spirit tunnel” on “The Jennifer Hudson Show” took off online. “I could never watch it,” the music mogul and TV judge told Lulu Garcia-Navarro on “The Interview.” “I’d be mortified, but it made me laugh.”`\
-https://nytimes.com/video/podcasts/100000010556597/simon-cowell-on-his-spirit-tunnel-walk.html
-
-**How Simon Cowell Found Out About Liam Payne’s Death**\
-`Simon Cowell, the music mogul and famously caustic television judge, discovered the singer Liam Payne and cast him in One Direction. On “The Interview,” he recalled the moment he learned about Payne’s death.`\
-https://nytimes.com/video/podcasts/100000010556592/how-simon-cowell-found-out-about-liam-paynes-death.html
-
-**Serena Williams reenters tennis anti-doping test pool, a requirement for return to competition**\
-`Players in the pool have to be available for daily testing for six months before being allowed to play a competitive event.`\
-https://nytimes.com/athletic/6855313/2025/12/02/serena-williams-tennis-testing-pool-reentry-competition-return/
 
