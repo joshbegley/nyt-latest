@@ -1,3 +1,11 @@
+**The Pulse: The new best team in the NFL?**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6853727/2025/12/02/patriots-giants-nfl-power-rankings-the-pulse/
+
+**Former England batter Robin Smith, 'an incredible player', dies at 62**\
+`The South Africa-born batter thrived against fast bowling and scored over 4,000 runs for England across an eight-year Test career`\
+https://nytimes.com/athletic/6854648/2025/12/02/robin-smith-dies-england-cricket-obituary/
+
 **TAFC: Man Utd's midfield focus for 2026 deals, meet the World Cup draw teams**\
 `Today in TAFC: The midfielders that might help Manchester United move to the next level. Plus: Meet the World Cup draw teams.`\
 https://nytimes.com/athletic/6854608/2025/12/02/manchester-united-midfielder-transfers-2026-world-cup-draw/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6853551/2025/12/02/acc-sec-mens-college-basketball-
 **Arsenal's Saliba in contention to face Brentford after 'bizarre' injury - Arteta**\
 `The Arsenal manager would not specify the nature of Saliba’s problem but says he should be fit "in a matter of days".`\
 https://nytimes.com/athletic/6854748/2025/12/02/arsenal-injuries-william-saliba-brentford-fitness/
-
-**Lamar Jackson, Ravens are running out of time to fix their underachieving offense**\
-`Baltimore has had dispiriting performances this season, but the loss to Cincinnati had to be rock bottom for the offense.`\
-https://nytimes.com/athletic/6853330/2025/12/02/ravens-lamar-jackson-struggling-offense/
-
-**Caleb Williams and the Bears are winning 'in spite of their passing game.' Now what?**\
-`Williams went 17-for-36 for 154 yards with a rough interception Friday. Ben Johnson is motivated to clean up the passing game in a hurry.`\
-https://nytimes.com/athletic/6853483/2025/12/02/bears-caleb-williams-passing-game/
 
