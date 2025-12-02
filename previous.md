@@ -2,7 +2,7 @@
 ``\
 https://nytimes.com/issue/todayspaper/2025/12/02/todays-new-york-times
 
-**Japan Just Made Taiwan Everyone’s Business**\
+**Japan Has Changed How the World Must Think About Taiwan**\
 `The Japanese leader’s candor over Taiwan brought the shared regional stakes out into the open, and the U.S. must stand behind its ally.`\
 https://nytimes.com/2025/12/02/opinion/china-us-japan-security-taiwan.html
 
