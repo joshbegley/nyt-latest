@@ -1,3 +1,11 @@
+**The First Night**\
+`An ultra-Orthodox Jewish filmmaker asks members of her community about the silent anxieties surrounding intimacy on their wedding nights.`\
+https://nytimes.com/video/opinion/100000010494928/the-first-night.html
+
+**Patriots Defeat Giants, Winning Their 10th Consecutive Game**\
+`The New England Patriots became the first team in the N.F.L. to reach 11 wins in 2025, improving to 11-2 in a victory over the New York Giants that included two touchdown passes from the Patriots quarterback Drake Maye.`\
+https://nytimes.com/video/podcasts/100000010558643/patriots-defeat-giants-winning-their-10th-consecutive-game.html
+
 **Democrats in New Jersey Ram Through Bill to Defang a Corruption Watchdog**\
 `A State Senate committee moved to weaken an office that investigates police misconduct and government waste. Senator Andy Kim spoke in opposition but was cut off after three minutes.`\
 https://nytimes.com/2025/12/02/nyregion/new-jersey-corruption-comptroller-legislation.html
