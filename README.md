@@ -14,7 +14,7 @@ https://nytimes.com/athletic/6853903/2025/12/02/ny-giants-abdul-carter-benched-p
 `Our film critics rank their 10 favorites of the year.`\
 https://nytimes.com/2025/12/02/movies/best-movies-2025.html
 
-**Blues' Jordan Binnington responds to being pulled against Ducks: 'It was quick'**\
+**Blues' Jordan Binnington responds to being pulled against Ducks: 'It was a quick one'**\
 `Binnington gave up two goals on five shots and was not happy about being pulled from a game which the Blues trailed 2-1.`\
 https://nytimes.com/athletic/6855852/2025/12/02/blues-jordan-binnington-pulled-response/
 
