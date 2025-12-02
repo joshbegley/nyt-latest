@@ -1,3 +1,11 @@
+**From Volcano to Decanter**\
+`In the world of luxury spirits, few names carry the weight of history, authenticity, and artistry that Flor de Caña does. `\
+https://nytimes.com/paidpost/flor-de-caa-35-year/flor-de-caa-35-year/from-volcano-to-decanter.html
+
+**Ballon d'Or winner Bonmati set for five-month injury layoff after leg surgery**\
+`Barcelona confirmed on Tuesday the midfielder had undergone successful surgery on the fracture to her left fibula.`\
+https://nytimes.com/athletic/6855106/2025/12/02/aitana-bonmati-spain-barcelona-injury-update/
+
 **India Orders a Tracking App to Be Installed in All Smartphones**\
 `The government said the rules were needed to prevent theft and other crime. Its opponents and privacy activists regard the app as a tool of mass surveillance.`\
 https://nytimes.com/2025/12/02/business/india-tracking-app-sanchar-saathi.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/02/world/americas/venezuela-nicolas-maduro-trump.htm
 **San Francisco Will Sue Ultraprocessed Food Companies**\
 `The city attorney accuses large manufacturers of causing diseases that have burdened governments with public health costs.`\
 https://nytimes.com/2025/12/02/us/san-francisco-ultraprocessed-food-lawsuit.html
-
-**Overalls Inspired by ‘E.T.’**\
-`The owner of a bar in Tokyo said that the 1980s sci-fi film had long influenced her personal style.`\
-https://nytimes.com/2025/12/02/style/street-style-look-et-overalls.html
-
-**Will Jacks, England's Ashes wildcard, by those who know him best: 'This could be only the start'**\
-`The Surrey batting all-rounder will make his third Test appearance at the Gabba on Thursday and offers more than mere part-time off spin`\
-https://nytimes.com/athletic/6853371/2025/12/02/will-jacks-ashes-england-brisbane/
 
