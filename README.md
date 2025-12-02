@@ -1,4 +1,4 @@
-**Russia and Belarus skiers successfully appeal against ban from Winter Olympics qualifying**\
+**Russia and Belarus skiers successfully appeal against Winter Olympics qualifying ban**\
 `The appeals argued the ban was a breach of statutes and contravened the principles of political neutrality and non-discrimination.`\
 https://nytimes.com/athletic/6854909/2025/12/02/russia-winter-olympics-ban-skiing/
 
