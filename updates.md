@@ -1,3 +1,7 @@
+**Jafar Panahi, Who Filmed in Secret in Iran, Wins Big at the Gotham Awards**\
+`He won best director, original screenplay and international feature for “It Was Just an Accident.” Best feature went to “One Battle After Another.”`\
+https://nytimes.com/2025/12/01/movies/gotham-awards-jafar-panahi-it-was-just-an-accident-one-battle-after-another.html
+
 **Catarina Macario scores again as USWNT shuts out Italy twice to end the year**\
 `U.S. head coach Emma Hayes ends year of experimenting on a high note`\
 https://nytimes.com/athletic/6853977/2025/12/01/catarina-macario-scores-uswnt-italy-win/

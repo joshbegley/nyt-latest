@@ -1,3 +1,7 @@
+**Jafar Panahi, Who Filmed in Secret in Iran, Wins Big at the Gotham Awards**\
+`He won best director, original screenplay and international feature for “It Was Just an Accident.” Best feature went to “One Battle After Another.”`\
+https://nytimes.com/2025/12/01/movies/gotham-awards-jafar-panahi-it-was-just-an-accident-one-battle-after-another.html
+
 **Catarina Macario scores again as USWNT shuts out Italy twice to end the year**\
 `U.S. head coach Emma Hayes ends year of experimenting on a high note`\
 https://nytimes.com/athletic/6853977/2025/12/01/catarina-macario-scores-uswnt-italy-win/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/01/business/apple-ai-john-giannandrea-siri.html
 **Maya Brady, niece of Tom Brady, chosen No. 1 in AUSL Expansion Draft**\
 `The two-time Pac-12 Player of the Year will play for the Oklahoma City Spark in the league's second season in 2026.`\
 https://nytimes.com/athletic/6853808/2025/12/01/tom-brady-niece-maya-brady-ausl-expansion-draft/
-
-**Giants' Abdul Carter benched for first quarter vs. Patriots**\
-`This is not the first time Carter has been benched this season.`\
-https://nytimes.com/athletic/6853903/2025/12/01/ny-giants-abdul-carter-benched-patriots/
 
