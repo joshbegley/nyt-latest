@@ -1,3 +1,7 @@
+**House seeking $50m per year for major sporting events**\
+`The bill will be introduced by Rep. Rick Larsen, a Democrat, who said the investment is "somewhat peanuts" compared to its potential return.`\
+https://nytimes.com/athletic/6855176/2025/12/02/united-states-house-bill-world-cup-olympics-infrastructure/
+
 **College Football Playoff odds: Notre Dame-Miami debate in focus**\
 `Rivalry week didn't feature many upsets, so the CFP picture is mostly what it was a week ago. What are the chances it stays that way?`\
 https://nytimes.com/athletic/6852871/2025/12/02/college-football-playoff-odds-notre-dame-miami/
@@ -22,7 +26,7 @@ https://nytimes.com/athletic/6855156/2025/12/02/submit-twins-winter-meetings-mai
 `The New York Times has obtained the four-page letter that former President Juan Orlando Hernández of Honduras sent President Trump.`\
 https://nytimes.com/interactive/2025/12/02/us/politics/hernandez-letter.html
 
-**Glasner says that Sarr could miss AFCON with ankle injury, set for futher tests**\
+**Senegal's Sarr could miss AFCON with ankle injury, set for futher tests**\
 `Sarr sustained the issue after landing awkwardly following a challenge by Manchester United's Diogo Dalot on Sunday.`\
 https://nytimes.com/athletic/6849395/2025/12/02/ismaila-sarr-crystal-palace-injury-latest/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6855067/2025/12/02/dan-james-leeds-hamstring-injury
 **From Volcano to Decanter**\
 `In the world of luxury spirits, few names carry the weight of history, authenticity, and artistry that Flor de Caña does. `\
 https://nytimes.com/paidpost/flor-de-caa-35-year/flor-de-caa-35-year/from-volcano-to-decanter.html
-
-**Ballon d'Or winner Bonmati set for five-month injury layoff after leg surgery**\
-`Barcelona confirmed on Tuesday the midfielder had undergone successful surgery on the fracture to her left fibula.`\
-https://nytimes.com/athletic/6855106/2025/12/02/aitana-bonmati-spain-barcelona-injury-update/
 

@@ -1,3 +1,15 @@
+**Craig Carton finalizing deal to take over afternoon drive time slot on WFAN**\
+`This will mark Carton’s third stint with the station and second as the leader of the afternoon program.`\
+https://nytimes.com/athletic/6855337/2025/12/02/wfan-new-york-craig-carton-radio/
+
+**Toronto Tempo president wants WNBA expansion team to bring joy to Canada like Blue Jays**\
+`Teresa Resch discusses the expansion draft, mascot and coach Sandy Brondello.`\
+https://nytimes.com/athletic/6848227/2025/12/02/toronto-tempo-wnba-expansion-teresa-resch/
+
+**The Bounce: Wait ... the Suns are actually good?**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/6854973/2025/12/02/the-bounce-phoenix-suns-kingston-flemings-2026-draft/
+
 **House seeking $50m per year for major sporting events**\
 `The bill will be introduced by Rep. Rick Larsen, a Democrat, who said the investment is "somewhat peanuts" compared to its potential return.`\
 https://nytimes.com/athletic/6855176/2025/12/02/united-states-house-bill-world-cup-olympics-infrastructure/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6855156/2025/12/02/submit-twins-winter-meetings-mai
 **Read Former Honduran President’s Letter to Trump**\
 `The New York Times has obtained the four-page letter that former President Juan Orlando Hernández of Honduras sent President Trump.`\
 https://nytimes.com/interactive/2025/12/02/us/politics/hernandez-letter.html
-
-**Senegal's Sarr could miss AFCON with ankle injury, set for futher tests**\
-`Sarr sustained the issue after landing awkwardly following a challenge by Manchester United's Diogo Dalot on Sunday.`\
-https://nytimes.com/athletic/6849395/2025/12/02/ismaila-sarr-crystal-palace-injury-latest/
-
-**Leeds' James out for at least eight weeks, may have surgery**\
-`James injured his hamstring tendon during Saturday’s 3-2 loss at Manchester City.`\
-https://nytimes.com/athletic/6855067/2025/12/02/dan-james-leeds-hamstring-injury/
-
-**From Volcano to Decanter**\
-`In the world of luxury spirits, few names carry the weight of history, authenticity, and artistry that Flor de Caña does. `\
-https://nytimes.com/paidpost/flor-de-caa-35-year/flor-de-caa-35-year/from-volcano-to-decanter.html
 

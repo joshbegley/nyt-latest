@@ -1,3 +1,11 @@
+**House seeking $50m per year for major sporting events**\
+`The bill will be introduced by Rep. Rick Larsen, a Democrat, who said the investment is "somewhat peanuts" compared to its potential return.`\
+https://nytimes.com/athletic/6855176/2025/12/02/united-states-house-bill-world-cup-olympics-infrastructure/
+
+**Senegal's Sarr could miss AFCON with ankle injury, set for futher tests**\
+`Sarr sustained the issue after landing awkwardly following a challenge by Manchester United's Diogo Dalot on Sunday.`\
+https://nytimes.com/athletic/6849395/2025/12/02/ismaila-sarr-crystal-palace-injury-latest/
+
 **College Football Playoff odds: Notre Dame-Miami debate in focus**\
 `Rivalry week didn't feature many upsets, so the CFP picture is mostly what it was a week ago. What are the chances it stays that way?`\
 https://nytimes.com/athletic/6852871/2025/12/02/college-football-playoff-odds-notre-dame-miami/
