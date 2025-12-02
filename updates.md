@@ -1,3 +1,7 @@
+**Read Former Honduran President’s Letter to Trump**\
+`The New York Times has obtained the four-page letter that former President Juan Orlando Hernández of Honduras sent President Trump.`\
+https://nytimes.com/interactive/2025/12/02/us/politics/hernandez-letter.html
+
 **Glasner says that Sarr could miss AFCON with ankle injury, set for futher tests**\
 `Sarr sustained the issue after landing awkwardly following a challenge by Manchester United's Diogo Dalot on Sunday.`\
 https://nytimes.com/athletic/6849395/2025/12/02/ismaila-sarr-crystal-palace-injury-latest/
