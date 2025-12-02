@@ -1,3 +1,15 @@
+**Lamar Jackson, Ravens are running out of time to fix their underachieving offense**\
+`Baltimore has had dispiriting performances this season, but the loss to Cincinnati had to be rock bottom for the offense.`\
+https://nytimes.com/athletic/6853330/2025/12/02/ravens-lamar-jackson-struggling-offense/
+
+**Caleb Williams and the Bears are winning 'in spite of their passing game.' Now what?**\
+`Williams went 17-for-36 for 154 yards with a rough interception Friday. Ben Johnson is motivated to clean up the passing game in a hurry.`\
+https://nytimes.com/athletic/6853483/2025/12/02/bears-caleb-williams-passing-game/
+
+**Ten things I think I think about the Toronto Raptors at the quarter mark**\
+`Without more contributions from their bench, the Raptors might need to look outside the organization for depth. `\
+https://nytimes.com/athletic/6852527/2025/12/02/scottie-barnes-brandon-ingram-raptors/
+
 **Panthers taking it 1 game at a time, but beating Bucs essential to playoff run**\
 `Carolina's most straightforward road to the playoffs is by winning the NFC South and their two games vs. Tampa Bay loom large.`\
 https://nytimes.com/athletic/6853209/2025/12/02/carolina-panthers-playoff-chances-nfc-south/

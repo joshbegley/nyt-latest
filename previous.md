@@ -1,3 +1,15 @@
+**Lamar Jackson, Ravens are running out of time to fix their underachieving offense**\
+`Baltimore has had dispiriting performances this season, but the loss to Cincinnati had to be rock bottom for the offense.`\
+https://nytimes.com/athletic/6853330/2025/12/02/ravens-lamar-jackson-struggling-offense/
+
+**Caleb Williams and the Bears are winning 'in spite of their passing game.' Now what?**\
+`Williams went 17-for-36 for 154 yards with a rough interception Friday. Ben Johnson is motivated to clean up the passing game in a hurry.`\
+https://nytimes.com/athletic/6853483/2025/12/02/bears-caleb-williams-passing-game/
+
+**Ten things I think I think about the Toronto Raptors at the quarter mark**\
+`Without more contributions from their bench, the Raptors might need to look outside the organization for depth. `\
+https://nytimes.com/athletic/6852527/2025/12/02/scottie-barnes-brandon-ingram-raptors/
+
 **Panthers taking it 1 game at a time, but beating Bucs essential to playoff run**\
 `Carolina's most straightforward road to the playoffs is by winning the NFC South and their two games vs. Tampa Bay loom large.`\
 https://nytimes.com/athletic/6853209/2025/12/02/carolina-panthers-playoff-chances-nfc-south/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6829740/2025/12/02/nba-threshold-awards-injury/
 **How Josh Norris helped lift Sabres to 5-1 win over Jets in his return**\
 `Monday's game was the fifth Norris has played with the Sabres, and he showed what he can by providing two goals and an assist`\
 https://nytimes.com/athletic/6854323/2025/12/02/josh-norris-return-sabres-jets/
-
-**How the biggest World Cup will be different**\
-`The 2026 World Cup will be bigger, bolder and the organisers hope the best yet. It will also be very different...`\
-https://nytimes.com/athletic/6798308/2025/12/02/world-cup-2026-biggest-different/
-
-**Inside Matthew Schaefer's 'big brother' bond with the Folignos: Love, loss and life after tragedy**\
-`Marcus and Nick Foligno, whose mother died of breast cancer, reached out to Schaefer after his mother also died of the disease in 2024.`\
-https://nytimes.com/athletic/6850055/2025/12/02/matthew-schaefer-marcus-nick-foligno-nhl/
-
-**What I'm hearing about Cardinals' trade plans as Winter Meetings approach**\
-`Trading Nolan Arenado, and quite possibly Willson Contreras, are foremost on the minds of the St. Louis front office.`\
-https://nytimes.com/athletic/6852885/2025/12/02/cardinals-trade-plans-winter-meetings/
 
