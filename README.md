@@ -1,3 +1,7 @@
+**We Tested Kirkland Signature’s Menswear**\
+`Kirkland Signature, Costco’s house brand, is known for delivering premium products at reasonable prices, but the brand itself remains something of an enigma. Wirecutter writer Alex Aciman tested all of its men’s clothes to try and make sense of it all.`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010560810/we-tested-kirkland-signatures-menswear.html
+
 **How Congress Should Respond, Right Now, to Trump’s Boat Strikes**\
 `Federal lawmakers have ample powers to uncover and end administration abuse.`\
 https://nytimes.com/2025/12/02/opinion/trump-venezuela-boat-strikes-congress-committee.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/02/books/david-pryce-jones-dead.html
 **Ole Miss OC Charlie Weis Jr. to coach in CFP after following Kiffin to LSU**\
 `Weis Jr. was one of four Ole Miss staffers who joined Kiffin in leaving for LSU on Sunday.`\
 https://nytimes.com/athletic/6856442/2025/12/02/charlie-weis-jr-ole-miss-lane-kiffin-cfp/
-
-**Zion Williamson to miss at least 3 weeks with hip adductor strain: Source**\
-`The Pelicans star already missed eight games earlier this season while recovering from a left hamstring strain. `\
-https://nytimes.com/athletic/6856404/2025/12/02/zion-williamson-adductor-injury-pelicans/
 
