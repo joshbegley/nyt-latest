@@ -1,3 +1,19 @@
+**How the Broncos are bucking history with uncanny comeback success**\
+`The Broncos are 10-2 despite trailing at some point in each of their 12 games, a mark no other team has achieved since at least 2000.`\
+https://nytimes.com/athletic/6853326/2025/12/02/denver-broncos-comebacks-bo-nix/
+
+**How to watch CFP rankings show: Standings reveal before championship weekend**\
+`Tuesday's College Football Playoff rankings set the stage for a loaded championship weekend that could create a chaotic playoff field. `\
+https://nytimes.com/athletic/6853396/2025/12/02/college-football-playoff-rankings-championship-weekend-how-to-watch/
+
+**We paired NBA's best brother duos for a hypothetical 2-on-2 tourney. Did we get it right?**\
+`We've been wondering, now that the Curry brothers are reunited in Golden State, how NBA siblings would fare if they faced off directly.`\
+https://nytimes.com/athletic/6764850/2025/12/02/nba-best-brother-duo/
+
+**120,000 Home Cameras Were Hacked for Sexual Videos, South Korean Police Say**\
+`The authorities arrested four people this week in the latest turn in the country’s effort to stop exploitative recordings`\
+https://nytimes.com/2025/12/02/world/asia/south-korea-cameras-hacked.html
+
 **Trump Administration Live Updates: U.S. Envoy to Meet With Putin in Moscow**\
 ``\
 https://nytimes.com/live/2025/12/02/us/trump-ukraine-putin-news
