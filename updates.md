@@ -1,3 +1,19 @@
+**Trump Expected to Significantly Weaken Fuel Economy Rules**\
+`Executives from top automakers were invited to attend the announcement at the White House on Wednesday.`\
+https://nytimes.com/2025/12/02/climate/trump-fuel-economy-rules.html
+
+**The Liberal Order Can’t Heal Itself**\
+`Our problems run deeper than debates about affordability.`\
+https://nytimes.com/2025/12/02/opinion/liberalism-postliberalism-affordability.html
+
+**Cal in talks with Oregon DC Tosh Lupoi to become next coach: Sources**\
+`Lupoi, a Bay Area native who played at Cal from 2000 to '05 and later spent three seasons as the defensive line coach, may be going home.`\
+https://nytimes.com/athletic/6855918/2025/12/02/tosh-lupoi-cal-coaching-search-oregon/
+
+**Astros sign free agent Ryan Weiss, a right-hander who starred in Korea**\
+`Weiss hasn't pitched in the major leagues yet, but he had a 2.87 ERA in 178 2/3 innings in Korea last season.`\
+https://nytimes.com/athletic/6856503/2025/12/02/astros-ryan-weiss-signing-rotation-depth/
+
 **Fantasy football strength of schedule: Week 14 and playoff matchup rankings**\
 `Jake Ciely's Week 14 matchup rankings can help with difficult start/sit decisions this week. Playoff rankings aid future plans. `\
 https://nytimes.com/athletic/6856547/2025/12/02/fantasy-football-strength-of-schedule-week-14-playoffs/

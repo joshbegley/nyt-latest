@@ -1,3 +1,19 @@
+**Trump Expected to Significantly Weaken Fuel Economy Rules**\
+`Executives from top automakers were invited to attend the announcement at the White House on Wednesday.`\
+https://nytimes.com/2025/12/02/climate/trump-fuel-economy-rules.html
+
+**The Liberal Order Can’t Heal Itself**\
+`Our problems run deeper than debates about affordability.`\
+https://nytimes.com/2025/12/02/opinion/liberalism-postliberalism-affordability.html
+
+**Cal in talks with Oregon DC Tosh Lupoi to become next coach: Sources**\
+`Lupoi, a Bay Area native who played at Cal from 2000 to '05 and later spent three seasons as the defensive line coach, may be going home.`\
+https://nytimes.com/athletic/6855918/2025/12/02/tosh-lupoi-cal-coaching-search-oregon/
+
+**Astros sign free agent Ryan Weiss, a right-hander who starred in Korea**\
+`Weiss hasn't pitched in the major leagues yet, but he had a 2.87 ERA in 178 2/3 innings in Korea last season.`\
+https://nytimes.com/athletic/6856503/2025/12/02/astros-ryan-weiss-signing-rotation-depth/
+
 **Fantasy football strength of schedule: Week 14 and playoff matchup rankings**\
 `Jake Ciely's Week 14 matchup rankings can help with difficult start/sit decisions this week. Playoff rankings aid future plans. `\
 https://nytimes.com/athletic/6856547/2025/12/02/fantasy-football-strength-of-schedule-week-14-playoffs/
@@ -21,20 +37,4 @@ https://nytimes.com/video/smarter-living/wirecutter/100000010560784/what-to-know
 **Why GM Joe Schoen believes Giants' vacant head coach job is 'attractive'**\
 `Schoen believes there are "pieces in place" for the Giants to be successful. `\
 https://nytimes.com/athletic/6856294/2025/12/02/ny-giants-joe-schoen-head-coach-opening-attactive/
-
-**Steelers claim former Vikings WR Adam Thielen off waivers: Source**\
-`Thielen’s representation asked the Vikings for his release after his was inactive in Week 13.`\
-https://nytimes.com/athletic/6856477/2025/12/02/adam-thielen-steelers-nfl-waivers-claim/
-
-**Chelsea's Essugo suffers setback, out of next three league games**\
-`Essugo has already missed two months with a thigh injury sustained while away with Portugal Under-21s.`\
-https://nytimes.com/athletic/6856038/2025/12/02/dario-essugo-chelsea-injury-return/
-
-**Watkins managing knee pain since start of last season, Emery says**\
-`Emery said Watkins had been managing the issue for over a year but will not require surgery.`\
-https://nytimes.com/athletic/6855220/2025/12/02/ollie-watkins-knee-aston-villa/
-
-**Agriculture Dept. Threatens to Withhold Food Stamps From Democratic States**\
-`The latest threat to SNAP funding came after weeks of confusion over the status of benefits during the government shutdown.`\
-https://nytimes.com/2025/12/02/us/politics/food-stamps-democratic-states.html
 

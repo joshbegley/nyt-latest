@@ -1,3 +1,7 @@
+**Olympic ice surface being built to specs smaller than NHL rinks, per source, sparking new concerns**\
+`The Olympic rink will have a shorter length but not substantially greater width, per a source, leaving players with less room to maneuver.`\
+https://nytimes.com/athletic/6856478/2025/12/02/olympic-ice-surface-nhl/
+
 **Trump Expected to Significantly Weaken Fuel Economy Rules**\
 `Executives from top automakers were invited to attend the announcement at the White House on Wednesday.`\
 https://nytimes.com/2025/12/02/climate/trump-fuel-economy-rules.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/02/opinion/trump-venezuela-boat-strikes-congress-com
 **What to Know About Sézane Sweaters**\
 `French brand Sézane is famous for its knitwear. Frances Solá-Santiago put five of its sweaters to the test, examining the construction and hand-washing and drying each one. And as it turns out, the most popular styles were her least favorite.`\
 https://nytimes.com/video/smarter-living/wirecutter/100000010560784/what-to-know-about-sezane-sweaters.html
-
-**Why GM Joe Schoen believes Giants' vacant head coach job is 'attractive'**\
-`Schoen believes there are "pieces in place" for the Giants to be successful. `\
-https://nytimes.com/athletic/6856294/2025/12/02/ny-giants-joe-schoen-head-coach-opening-attactive/
 
