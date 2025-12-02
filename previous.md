@@ -1,3 +1,7 @@
+**Angels begin defense in Skaggs trial; jury hears testimony from ex-player**\
+`Former Angel C.J. Cron said pitcher alerted him to team employee who could provide OxyContin.`\
+https://nytimes.com/athletic/6854119/2025/12/01/angels-defense-skaggs-trial/
+
 **Memo From Trump’s Doctor Cites ‘Excellent’ Scan but Offers Little Clarity**\
 `While the president said he had a M.R.I. exam, a physician’s memo released by the White House was less specific.`\
 https://nytimes.com/2025/12/01/health/trump-mri-results.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6853878/2025/12/01/todd-dunivant-nycfc-chief-soccer
 **Dolphins' pivotal play in Sunday's win was called by LB Tyrel Dodson after headset malfunction**\
 `Dodson made his own call and lined up his teammates ahead of the New Orleans Saints' two-point conversion attempt.`\
 https://nytimes.com/athletic/6853867/2025/12/01/dolphins-tyrel-dodson-headset-malfunction/
-
-**Devin Williams, Mets in agreement on 3-year, $51M deal: Source**\
-`Even though Williams had the 12th-worst ERA among all relievers, there's reason to believe he can return to being a dominant closer.`\
-https://nytimes.com/athletic/6807796/2025/12/01/devin-williams-new-york-mets-deal-source/
 

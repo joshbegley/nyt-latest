@@ -1,3 +1,7 @@
+**Angels begin defense in Skaggs trial; jury hears testimony from ex-player**\
+`Former Angel C.J. Cron said pitcher alerted him to team employee who could provide OxyContin.`\
+https://nytimes.com/athletic/6854119/2025/12/01/angels-defense-skaggs-trial/
+
 **Memo From Trump’s Doctor Cites ‘Excellent’ Scan but Offers Little Clarity**\
 `While the president said he had a M.R.I. exam, a physician’s memo released by the White House was less specific.`\
 https://nytimes.com/2025/12/01/health/trump-mri-results.html
