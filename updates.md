@@ -1,3 +1,7 @@
+**Talking About Our 10 Best Books of 2025**\
+`We made a list! Now we explain why we love the books we chose.`\
+https://nytimes.com/2025/12/02/books/review/podcast-10-best-books.html
+
 **The 14 Best Cookbooks of 2025**\
 `Exceptional new cookbooks, with fresh takes on easy baking, Thai cooking in America and seasonal pasta, as tested by New York Times Cooking and the Food desk.`\
 https://nytimes.com/2025/12/02/dining/best-cookbooks.html
