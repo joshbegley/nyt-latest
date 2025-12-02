@@ -1,3 +1,7 @@
+**Trump’s Crackdown in Wake of Shooting Blocks Legal Pathways for Migrants**\
+`The new measures represent some of the most significant changes to immigration policy since President Trump returned to the White House.`\
+https://nytimes.com/2025/12/01/us/politics/trump-dc-shooting-immigration.html
+
 **Kentucky finalizing head coaching deal for Oregon OC: Source**\
 `The Oregon offensive coordinator will replace the winningest coach in Wildcats history. `\
 https://nytimes.com/athletic/6853698/2025/12/01/kentucky-football-will-stein-oregon-head-coach/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/01/us/politics/economy-venezuela-republicans-supreme
 **Son of El Chapo Pleads Guilty to Kidnapping Father’s Former Cartel Partner**\
 `Joaquín Guzmán López admitted to having the once-untouchable drug kingpin Ismael Zambada García abducted and flown to the United States, among a sweeping set of other crimes.`\
 https://nytimes.com/2025/12/01/us/politics/el-chapo-son-joaquin-guzman-lopez-guilty.html
-
-**NASCAR trial begins with Michael Jordan fan jurors dismissed, Denny Hamlin testimony**\
-`Hamlin capped the trial's first day with an emotional testimony, saying teams and drivers are essentially just "fundraisers" for NASCAR.`\
-https://nytimes.com/athletic/6851916/2025/12/01/nascar-trial-michael-jordan-lawsuit-denny-hamlin/
 

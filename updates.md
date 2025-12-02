@@ -1,3 +1,7 @@
+**Kentucky finalizing head coaching deal for Oregon OC: Source**\
+`The Oregon offensive coordinator will replace the winningest coach in Wildcats history. `\
+https://nytimes.com/athletic/6853698/2025/12/01/kentucky-football-will-stein-oregon-head-coach/
+
 **Eagles OC Kevin Patullo’s home vandalized with eggs over the weekend**\
 `A viral video circulated on social media Monday showing individuals hurling objects at Pattulo’s well-lit home.`\
 https://nytimes.com/athletic/6853507/2025/12/01/eagles-kevin-patullo-home-egged/
