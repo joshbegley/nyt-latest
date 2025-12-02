@@ -1,3 +1,7 @@
+**Seasonal Giving**\
+`What can you do for others this holiday season?`\
+https://nytimes.com/2025/12/02/learning/seasonal-giving.html
+
 **Prime Tire: Grading big Red Bull moves and breaking down championship stakes**\
 `Welcome to Prime Tire, The Athletic's F1 newsletter.`\
 https://nytimes.com/athletic/6853606/2025/12/02/red-bull-moves-f1-championship-prime-tire/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/02/arts/dance/tere-oconnor-construct-a-guy-nyla.html
 **Venezuela Accepts Migrant Repatriation Flight From U.S. Amid Airspace Tensions**\
 `The flight’s approval illustrates how the United States and Venezuela are still communicating, after a declaration from President Trump that Venezuelan airspace was “closed in its entirety.”`\
 https://nytimes.com/2025/12/02/us/politics/venezuela-migrant-deportations-trump.html
-
-**Pumpkin Bread With Brown Butter and Bourbon**\
-`This hearty pumpkin bread is a sophisticated twist on the traditional version with the addition of bourbon (teetotalers can substitute apple cider), browned butter and cardamom.`\
-https://nytimes.com/video/dining/100000010559107/pumpkin-bread-with-brown-butter-and-bourbon.html
 
