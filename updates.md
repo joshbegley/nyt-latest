@@ -1,3 +1,7 @@
+**Trump’s Crackdown in Wake of Shooting Blocks Legal Pathways for Migrants**\
+`The new measures represent some of the most significant changes to immigration policy since President Trump returned to the White House.`\
+https://nytimes.com/2025/12/01/us/politics/trump-dc-shooting-immigration.html
+
 **Kentucky finalizing head coaching deal for Oregon OC: Source**\
 `The Oregon offensive coordinator will replace the winningest coach in Wildcats history. `\
 https://nytimes.com/athletic/6853698/2025/12/01/kentucky-football-will-stein-oregon-head-coach/
