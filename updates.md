@@ -1,3 +1,11 @@
+**Eugene Hasenfus, Gunrunner Who Exposed Iran-Contra Plot, Dies at 84**\
+`He emerged out of obscurity when his cargo plane was shot down while illegally ferrying supplies to Nicaraguan rebels, setting off a scandal that tarnished the Reagan and Bush White Houses.`\
+https://nytimes.com/2025/12/02/us/eugene-hasenfus-dead.html
+
+**Miami Activist Vows to Keep Fighting After New Vote on Trump Library**\
+`After Marvin Dunn sued, the trustees of Miami Dade College voted for a second time to hand over a prime property for President Trump’s future library.`\
+https://nytimes.com/2025/12/02/us/trump-library.html
+
 **Super Bowl odds: Week 13 carnage reshuffles top teams**\
 `Losses by major contenders last week blew up the Super Bowl market. Which contenders are trending up?`\
 https://nytimes.com/athletic/6855710/2025/12/02/super-bowl-odds-week-14/
