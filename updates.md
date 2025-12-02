@@ -1,3 +1,15 @@
+**Yohe's 10 observations: Death, taxes and Sidney Crosby lighting up Philadelphia**\
+`Crosby scored twice to power the Penguins to a 5-1 win in Philadelphia. `\
+https://nytimes.com/athletic/6853972/2025/12/01/10-observations-sidney-crosby-philadelphia-flyers/
+
+**Drake Maye, Patriots beat Giants for 10th straight win: Takeaways**\
+`The quarterback threw two touchdown passes as New England improved to a league-best 11-2 record.`\
+https://nytimes.com/athletic/6853513/2025/12/01/giants-patriots-score-result-takeaways-monday-night-football/
+
+**NFL playoff picture after Week 13: Bears surge to top of NFC; Patriots in control of AFC**\
+`The race for the No. 1 seed in the NFC is tight, with four teams tied at nine wins. In the AFC, the Patriots and Broncos are pulling away.`\
+https://nytimes.com/athletic/6840554/2025/12/01/nfl-playoff-picture-week-13-bears-colts-update/
+
 **Drake Maye, Patriots beat Giants for 10th straight win: takeaways**\
 `The quarterback threw two touchdown passes as New England improved to a league-best 11-2 record.`\
 https://nytimes.com/athletic/6853513/2025/12/01/giants-patriots-score-result-takeaways-monday-night-football/
