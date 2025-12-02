@@ -1,3 +1,7 @@
+**Haaland breaks 100 Premier League goals record – now can he beat Shearer's overall total?**\
+`The Manchester City striker has reached a century of league goals in just 111 games, and more records are set to tumble`\
+https://nytimes.com/athletic/6828916/2025/12/02/haaland-100-premier-league-goals-record-fastest/
+
 **Trump Calls Somalis ‘Garbage’ He Doesn’t Want in the Country**\
 `The president delivered xenophobic comments during a publicly broadcast cabinet meeting.`\
 https://nytimes.com/2025/12/02/us/politics/trump-somalia.html

@@ -1,3 +1,7 @@
+**College Instructor Put on Leave Over Zero Grade for Essay Citing Bible**\
+`The essay, written for a psychology class by a University of Oklahoma student, called the idea of multiple genders “demonic.” The instructor said it did not answer the assignment.`\
+https://nytimes.com/2025/12/02/us/oklahoma-bible-essay-gender-teasing-zero.html
+
 **Haaland breaks 100 Premier League goals record – now can he beat Shearer's overall total?**\
 `The Manchester City striker has reached a century of league goals in just 111 games, and more records are set to tumble`\
 https://nytimes.com/athletic/6828916/2025/12/02/haaland-100-premier-league-goals-record-fastest/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6856134/2025/12/02/uconn-vs-kansas-stream-how-to-wa
 **How to watch Florida vs. Duke men's basketball: Time, TV, streaming**\
 `Find out how to watch the Florida Gators play the Duke Blue Devils, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6856135/2025/12/02/florida-vs-duke-stream-how-to-watch-dec-2/
-
-**How to watch North Carolina vs. Kentucky men's basketball: Time, TV, streaming**\
-`Find out how to watch the North Carolina Tar Heels play the Kentucky Wildcats, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6856131/2025/12/02/north-carolina-vs-kentucky-stream-how-to-watch-dec-2/
 
