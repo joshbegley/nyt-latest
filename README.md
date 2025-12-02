@@ -1,3 +1,11 @@
+**Winnipeg Jets report cards: 25 player grades after 25 games**\
+`There aren't a lot of A's to go around after 25 games, given Winnipeg set the Stanley Cup as its goal in September.`\
+https://nytimes.com/athletic/6852518/2025/12/02/winnipeg-jets-report-cards/
+
+**A Cozy Soup for a Quiet Week**\
+`With quick-cooking red lentils and creamy coconut milk, Zaynab Issa’s recipe is perfect for a weeknight meal.`\
+https://nytimes.com/2025/12/02/dining/a-cozy-soup-for-a-quiet-week.html
+
 **Former England footballer arrested on suspicion of attempted rape**\
 `The footballer, who played in the Premier League, was detained at London Stansted Airport on Sunday evening.`\
 https://nytimes.com/athletic/6854956/2025/12/02/england-footballer-arrest-rape/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6855123/2025/12/02/hillsborough-police-gross-miscon
 **Sharks and Rays Gain Sweeping Protections From Wildlife Trade**\
 `A global treaty has extended trade protections to more than 70 shark and ray species whose numbers are in sharp decline.`\
 https://nytimes.com/2025/12/02/science/wildlife-trade-cites-sharks-rays.html
-
-**Craig Carton finalizing deal to take over afternoon drive time slot on WFAN**\
-`This will mark Carton’s third stint with the station and second as the leader of the afternoon program.`\
-https://nytimes.com/athletic/6855337/2025/12/02/wfan-new-york-craig-carton-radio/
-
-**Toronto Tempo president wants WNBA expansion team to bring joy to Canada like Blue Jays**\
-`Teresa Resch discusses the expansion draft, mascot and coach Sandy Brondello.`\
-https://nytimes.com/athletic/6848227/2025/12/02/toronto-tempo-wnba-expansion-teresa-resch/
 
