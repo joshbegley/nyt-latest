@@ -1,40 +1,40 @@
-**The First Night**\
-`An ultra-Orthodox Jewish filmmaker asks members of her community about the silent anxieties surrounding intimacy on their wedding nights.`\
-https://nytimes.com/video/opinion/100000010494928/the-first-night.html
+**What to Watch For in the Last Big Election of 2025**\
+`A special election for a House seat in Tennessee was supposed to be an easy Republican victory. But national spending and Democratic enthusiasm have made it an unusually high-profile race.`\
+https://nytimes.com/2025/12/02/us/politics/tennessee-house-behn-van-epps.html
 
-**Patriots Defeat Giants, Winning Their 10th Consecutive Game**\
-`The New England Patriots became the first team in the N.F.L. to reach 11 wins in 2025, improving to 11-2 in a victory over the New York Giants that included two touchdown passes from the Patriots quarterback Drake Maye.`\
-https://nytimes.com/video/podcasts/100000010558643/patriots-defeat-giants-winning-their-10th-consecutive-game.html
+**A Dark Sky Paints the Stars in a New Light**\
+`A space reporter traveled to Upper Michigan, where she rediscovered a sense of cosmic wonder.`\
+https://nytimes.com/2025/12/02/insider/stargazing-right-to-night.html
 
-**Snow Falls in New York State as Major Storm Approaches**\
-`Snow affected inland regions of New York and Pennsylvania as tens of millions of people across the Northeast braced for a major winter storm.`\
-https://nytimes.com/2025/12/02/us/snow-winter-storm-northeast-ny-nj.html
+**This Is How Mamdani Can Pay for Free Buses**\
+`Free buses would be transformative not only for riders, but for the ecosystem of the city as a whole.`\
+https://nytimes.com/2025/12/02/opinion/mamdani-free-buses-parking.html
 
-**China, Evoking World War II, Urges Europe to Take Its Side Against Japan**\
-`A diplomatic row with Japan over Taiwan has China turning to Britain and France for support, appealing to their shared history as wartime allies.`\
-https://nytimes.com/2025/12/02/world/asia/china-japan-taiwan-europe.html
+**The Aesthetic That Explains American Identity Now**\
+`Why country and cowboys have a hold on our culture and our political imagination.`\
+https://nytimes.com/2025/12/02/opinion/rural-aesthetics-american-politics.html
 
-**Late Night Lashes Out at Trump’s Tim Walz Taunt**\
-`“On Thanksgiving? Are you confusing that with Festivus?” Jon Stewart said of President Trump’s Truth Social post insulting the Minnesota governor’s intelligence.`\
-https://nytimes.com/2025/12/02/arts/television/late-night-trump-tim-walz.html
+**Republicans Are Misreading What Suburban Voters Want**\
+`Suburban professionals want amenities, not austerity.`\
+https://nytimes.com/2025/12/02/opinion/property-tax-suburbs-gop.html
 
-**Thousands Greet Pope Leo in Lebanon, as He Prays at Beirut Blast Site**\
-`A prayer at the site of the 2020 Beirut explosion and a waterfront Mass capped his three-day visit to the Middle Eastern nation with the highest proportion of Christians.`\
-https://nytimes.com/2025/12/02/world/middleeast/pope-leo-beirut-lebanon.html
+**Why Are There So Many Films Right Now Based on the Bible?**\
+`Films that take their stories from the Old or New Testament are filling screens big and small. To understand why, it helps to know Hollywood history.`\
+https://nytimes.com/2025/12/02/movies/bible-movies-the-carpenters-son-ruth-and-boaz.html
 
-**Democrats in New Jersey Ram Through Bill to Defang a Corruption Watchdog**\
-`A State Senate committee moved to weaken an office that investigates police misconduct and government waste. Senator Andy Kim spoke in opposition but was cut off after three minutes.`\
-https://nytimes.com/2025/12/02/nyregion/new-jersey-corruption-comptroller-legislation.html
+**The U.S. Is Funding Fewer Grants in Every Area of Science and Medicine**\
+`A quiet policy change means the government is making fewer bets on long-term science.`\
+https://nytimes.com/interactive/2025/12/02/upshot/trump-science-funding-cuts.html
 
-**Solving the Home Care Quandary**\
-`Paid home care is buckling under the surging demands of an aging population. But there are alternatives that could upgrade jobs and improve patient care.`\
-https://nytimes.com/2025/12/02/health/seniors-aging-home-care.html
+**The 14 Best Cookbooks of 2025**\
+`Exceptional new cookbooks, with fresh takes on easy baking, Thai cooking in America and seasonal pasta, as tested by New York Times Cooking and the Food desk.`\
+https://nytimes.com/2025/12/02/dining/the-14-best-cookbooks-of-2025.html
 
-**The Strange Case of the 11-Person Jury**\
-`New York’s highest court let a verdict by 11 jurors stand in a criminal case that involved an escort, machetes and a mysterious visitor. The ruling broke 342 years of precedent.`\
-https://nytimes.com/2025/12/02/nyregion/new-york-eleven-member-jury.html
+**The Dark Secrets of the Writer Behind ‘Train Dreams’**\
+`An adaptation of Denis Johnson’s novella arrives at the same time as a new biography, unlocking one of his best-loved and least-understood books.`\
+https://nytimes.com/2025/12/02/magazine/train-dreams-netflix-denis-johnson-biography.html
 
-**School Integration Has Lost Steam. Will Mamdani Revive It in New York?**\
-`Mayor-elect Zohran Mamdani has spoken about integrating America’s largest education system in striking terms rarely heard from big city leaders.`\
-https://nytimes.com/2025/12/02/nyregion/mamdani-nyc-school-integration.html
+**The Philippines Spent Big on Flood Control, but the Water Keeps Rising**\
+`Many Filipinos say floods are worse than ever — and now, the government has admitted that vast sums were embezzled from a program meant to fight the problem.`\
+https://nytimes.com/2025/12/02/world/asia/phillipines-flood-control-corruption.html
 
