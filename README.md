@@ -1,3 +1,7 @@
+**How to watch Georgia vs. Alabama: SEC Championship Time, TV, streaming**\
+`Find out how to watch the Georgia Bulldogs play the Alabama Crimson Tide, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6853774/2025/12/01/georgia-vs-alabama-stream-how-to-watch-dec-6/
+
 **Trump’s Crackdown in Wake of Shooting Blocks Legal Pathways for Migrants**\
 `The new measures represent some of the most significant changes to immigration policy since President Trump returned to the White House.`\
 https://nytimes.com/2025/12/01/us/politics/trump-dc-shooting-immigration.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6852892/2025/12/01/lane-kiffin-lsu-introduction-ole
 **Four Big Political Stories to Watch at Year’s End**\
 `The economy. Venezuela. Division in the Republican Party. And, more decisions coming from Supreme Court. Here’s what to know.`\
 https://nytimes.com/2025/12/01/us/politics/economy-venezuela-republicans-supreme-court.html
-
-**Son of El Chapo Pleads Guilty to Kidnapping Father’s Former Cartel Partner**\
-`Joaquín Guzmán López admitted to having the once-untouchable drug kingpin Ismael Zambada García abducted and flown to the United States, among a sweeping set of other crimes.`\
-https://nytimes.com/2025/12/01/us/politics/el-chapo-son-joaquin-guzman-lopez-guilty.html
 
