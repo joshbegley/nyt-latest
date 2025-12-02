@@ -1,3 +1,7 @@
+**Eagles OC Kevin Patullo’s home vandalized with eggs over the weekend**\
+`A viral video circulated on social media Monday showing individuals hurling objects at Pattulo’s well-lit home.`\
+https://nytimes.com/athletic/6853507/2025/12/01/eagles-kevin-patullo-home-egged/
+
 **Hegseth Ordered a Lethal Attack but Not the Killing of Survivors, Officials Say**\
 `Amid talk of war crimes, the details and precise sequence of a Sept. 2 attack on a boat in the Caribbean are facing intensifying scrutiny.`\
 https://nytimes.com/2025/12/01/us/hegseth-drug-boat-strike-order-venezuela.html

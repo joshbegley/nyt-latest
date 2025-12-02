@@ -1,3 +1,7 @@
+**Eagles OC Kevin Patullo’s home vandalized with eggs over the weekend**\
+`A viral video circulated on social media Monday showing individuals hurling objects at Pattulo’s well-lit home.`\
+https://nytimes.com/athletic/6853507/2025/12/01/eagles-kevin-patullo-home-egged/
+
 **Hegseth Ordered a Lethal Attack but Not the Killing of Survivors, Officials Say**\
 `Amid talk of war crimes, the details and precise sequence of a Sept. 2 attack on a boat in the Caribbean are facing intensifying scrutiny.`\
 https://nytimes.com/2025/12/01/us/hegseth-drug-boat-strike-order-venezuela.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6851916/2025/12/01/nascar-trial-michael-jordan-laws
 **Instant grades for college football's 2025-26 head-coaching hires**\
 `In college football, you never really know whether a coaching hire is going to work. But it's never too early to talk about fit.`\
 https://nytimes.com/athletic/6827060/2025/12/01/college-football-coaching-carousel-grades/
-
-**Kerby Joseph backs off social media, practices, but future is uncertain**\
-`The Lions' secondary remains beat up with Kerby Joseph's injury and Terrion Arnold being placed on injured reserve.`\
-https://nytimes.com/athletic/6853336/2025/12/01/lions-kerby-joseph-knee-terrion-arnold/
 
