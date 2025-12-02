@@ -1,3 +1,7 @@
+**Best Movies of 2025**\
+`Our film critics rank their 10 favorites of the year.`\
+https://nytimes.com/2025/12/02/movies/best-movies-2025.html
+
 **Blues' Jordan Binnington responds to being pulled against Ducks: 'It was quick'**\
 `Binnington gave up two goals on five shots and was not happy about being pulled from a game which the Blues trailed 2-1.`\
 https://nytimes.com/athletic/6855852/2025/12/02/blues-jordan-binnington-pulled-response/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6856200/2025/12/02/capitals-vs-kings-stream-how-to-
 **How to watch Blackhawks vs. Golden Knights: Time, TV, streaming**\
 `Find out how to watch the Chicago Blackhawks play the Vegas Golden Knights, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6856199/2025/12/02/blackhawks-vs-golden-knights-stream-how-to-watch-dec-2/
-
-**How to watch Grizzlies vs. Spurs: Time, TV, streaming**\
-`Find out how to watch the Memphis Grizzlies play the San Antonio Spurs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6856196/2025/12/02/grizzlies-vs-spurs-stream-how-to-watch-dec-2/
 
