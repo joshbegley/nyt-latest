@@ -1,3 +1,11 @@
+**Trump Administration Live Updates: Honduran Ex-President Is Freed After Pardon, Lawyer Says**\
+``\
+https://nytimes.com/live/2025/12/02/us/trump-ukraine-putin-news
+
+**120,000 Home Cameras Were Hacked for Sexual Videos, South Korean Police Say**\
+`The authorities arrested four people this week in the latest turn in the country’s effort to stop exploitative recordings.`\
+https://nytimes.com/2025/12/02/world/asia/south-korea-cameras-hacked.html
+
 **Instant grades for college football's 2025-26 head-coaching hires**\
 `In college football, you never really know whether a coaching hire is going to work. But it's never too early to talk about fit.`\
 https://nytimes.com/athletic/6827060/2025/12/02/college-football-coaching-carousel-grades/

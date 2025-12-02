@@ -22,7 +22,7 @@ https://nytimes.com/athletic/6853396/2025/12/02/college-football-playoff-ranking
 `We've been wondering, now that the Curry brothers are reunited in Golden State, how NBA siblings would fare if they faced off directly.`\
 https://nytimes.com/athletic/6764850/2025/12/02/nba-best-brother-duo/
 
-**Trump Administration Live Updates: U.S. Envoy to Meet With Putin in Moscow**\
+**Trump Administration Live Updates: Honduran Ex-President Is Freed After Pardon, Lawyer Says**\
 ``\
 https://nytimes.com/live/2025/12/02/us/trump-ukraine-putin-news
 
@@ -31,7 +31,7 @@ https://nytimes.com/live/2025/12/02/us/trump-ukraine-putin-news
 https://nytimes.com/2025/12/02/business/trump-accounts-children-dell.html
 
 **120,000 Home Cameras Were Hacked for Sexual Videos, South Korean Police Say**\
-`The authorities arrested four people this week in the latest turn in the country’s effort to stop exploitative recordings`\
+`The authorities arrested four people this week in the latest turn in the country’s effort to stop exploitative recordings.`\
 https://nytimes.com/2025/12/02/world/asia/south-korea-cameras-hacked.html
 
 **Michael and Susan Dell to Put $250 in 25 Million Children’s Accounts**\
