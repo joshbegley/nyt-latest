@@ -1,3 +1,7 @@
+**Bowl projections: How the SEC title game could reshape the bowl picture**\
+`The outcome of Alabama's SEC title game against Georgia on Saturday could reorder the CFP at-large spots and SEC bowl slots.`\
+https://nytimes.com/athletic/6853423/2025/12/02/college-football-projections-bowl-playoffs-matchups/
+
 **Predicting the CFP Top 25: What will the committee do with JMU, Ole Miss and more?**\
 `What our projections model think Tuesday night's penultimate College Football Playoff Top 25 rankings will be.`\
 https://nytimes.com/athletic/6853237/2025/12/02/college-football-playoff-rankings-predictions-december-2/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/02/us/politics/tennessee-house-behn-van-epps.html
 **A Dark Sky Paints the Stars in a New Light**\
 `A space reporter traveled to Upper Michigan, where she rediscovered a sense of cosmic wonder.`\
 https://nytimes.com/2025/12/02/insider/stargazing-right-to-night.html
-
-**This Is How Mamdani Can Pay for Free Buses**\
-`Free buses would be transformative not only for riders, but for the ecosystem of the city as a whole.`\
-https://nytimes.com/2025/12/02/opinion/mamdani-free-buses-parking.html
 
