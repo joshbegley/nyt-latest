@@ -1,3 +1,15 @@
+**Vanderbilt flips QB Jared Curtis, No. 1 player in Class of 2026, from Georgia: Reports**\
+`Should he sign with the Commodores, Curtis would be the Commodores' first five-star prospect of the modern recruiting era. `\
+https://nytimes.com/athletic/6833213/2025/12/02/jared-curtis-recruiting-vanderbilt-flip-georgia/
+
+**How Ruben Amorim is 'stealing' set-piece ideas from opponents and implementing them at Man Utd**\
+`The manager is carefully evaluating how other teams approach dead-ball situations before taking and adapting the best bits for his own side`\
+https://nytimes.com/athletic/6854607/2025/12/02/manchester-united-amorim-set-pieces-premier-league/
+
+**New ICE Operation Is Said to Target Somali Migrants in Twin Cities**\
+`The move comes as President Trump has attacked Somalis with increasingly inflammatory rhetoric in recent days.`\
+https://nytimes.com/2025/12/02/us/politics/ice-somali-migrants-minneapolis-st-paul.html
+
 **Seasonal Giving**\
 `What can you do for others this holiday season?`\
 https://nytimes.com/2025/12/02/learning/seasonal-giving.html
@@ -25,12 +37,4 @@ https://nytimes.com/video/podcasts/100000010556792/the-no-1-most-iconic-technolo
 **More athletes, including Shedeur Sanders and WNBA 'Studbudz,' streamed on Twitch in 2025**\
 `Athletes like LeBron James and Ja'Marr Chase have taken to Twitch in 2025 to share aspects of their lives with fans.`\
 https://nytimes.com/athletic/6855130/2025/12/02/why-athletes-twitch-livestream-studbuz/
-
-**Perplexed by Avant-Garde Dance? Let This Choreographer Explain.**\
-`After 40 years of making dances as complicated as human consciousness, Tere O’Connor revives his first work at New York Live Arts. Bonus: He will talk about it.`\
-https://nytimes.com/2025/12/02/arts/dance/tere-oconnor-construct-a-guy-nyla.html
-
-**Venezuela Accepts Migrant Repatriation Flight From U.S. Amid Airspace Tensions**\
-`The flight’s approval illustrates how the United States and Venezuela are still communicating, after a declaration from President Trump that Venezuelan airspace was “closed in its entirety.”`\
-https://nytimes.com/2025/12/02/us/politics/venezuela-migrant-deportations-trump.html
 

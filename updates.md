@@ -1,3 +1,15 @@
+**Vanderbilt flips QB Jared Curtis, No. 1 player in Class of 2026, from Georgia: Reports**\
+`Should he sign with the Commodores, Curtis would be the Commodores' first five-star prospect of the modern recruiting era. `\
+https://nytimes.com/athletic/6833213/2025/12/02/jared-curtis-recruiting-vanderbilt-flip-georgia/
+
+**How Ruben Amorim is 'stealing' set-piece ideas from opponents and implementing them at Man Utd**\
+`The manager is carefully evaluating how other teams approach dead-ball situations before taking and adapting the best bits for his own side`\
+https://nytimes.com/athletic/6854607/2025/12/02/manchester-united-amorim-set-pieces-premier-league/
+
+**New ICE Operation Is Said to Target Somali Migrants in Twin Cities**\
+`The move comes as President Trump has attacked Somalis with increasingly inflammatory rhetoric in recent days.`\
+https://nytimes.com/2025/12/02/us/politics/ice-somali-migrants-minneapolis-st-paul.html
+
 **Seasonal Giving**\
 `What can you do for others this holiday season?`\
 https://nytimes.com/2025/12/02/learning/seasonal-giving.html
