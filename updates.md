@@ -1,3 +1,11 @@
+**Prosecutors Drop Charges in Savage 1993 Murder of Mother Near Buffalo**\
+`James Pugh, one of two men originally convicted in the killing, had already spent 25 years in prison. He said all along that he was innocent.`\
+https://nytimes.com/2025/12/02/nyregion/tonawanda-murder-charges-dropped-james-pugh.html
+
+**Ranking CFB's 10 open coaching jobs: With SEC making hires, Penn State's No. 1**\
+`This could be the most active coaching carousel college football has seen in many years.`\
+https://nytimes.com/athletic/6662286/2025/12/02/college-football-open-coaching-jobs-rankings/
+
 **Tennessee Seventh District Special Election Results**\
 `Get live results and maps from the 2025 Tennessee congressional special election.`\
 https://nytimes.com/interactive/2025/12/02/us/elections/results-tennessee-us-house-7-special.html
