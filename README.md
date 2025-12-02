@@ -1,3 +1,7 @@
+**Full Time: What we learned from the first USWNT-Italy friendly**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/6853783/2025/12/01/uswnt-italy-friendlies-full-time/
+
 **How to watch Georgia vs. Alabama: SEC Championship Time, TV, streaming**\
 `Find out how to watch the Georgia Bulldogs play the Alabama Crimson Tide, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6853774/2025/12/01/georgia-vs-alabama-stream-how-to-watch-dec-6/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6853630/2025/12/01/penn-state-coaching-search-kalan
 **Lane Kiffin on move from Ole Miss to LSU: 'No way to possibly do it better'**\
 `New Tigers coach blames system for awkward timing of his job change, says he made choice because, "This place is different."`\
 https://nytimes.com/athletic/6852892/2025/12/01/lane-kiffin-lsu-introduction-ole-miss/
-
-**Four Big Political Stories to Watch at Year’s End**\
-`The economy. Venezuela. Division in the Republican Party. And, more decisions coming from Supreme Court. Here’s what to know.`\
-https://nytimes.com/2025/12/01/us/politics/economy-venezuela-republicans-supreme-court.html
 

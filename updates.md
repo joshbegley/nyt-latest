@@ -1,3 +1,7 @@
+**What we're hearing about Penn State's search: Kalani Sitake's candidacy and more updates**\
+`Penn State has been searching for a head coach for 50 days and counting. Who's actually a candidate? Here's what we know.`\
+https://nytimes.com/athletic/6853630/2025/12/01/penn-state-coaching-search-kalani-sitake/
+
 **How to watch Georgia vs. Alabama: SEC Championship Time, TV, streaming**\
 `Find out how to watch the Georgia Bulldogs play the Alabama Crimson Tide, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6853774/2025/12/01/georgia-vs-alabama-stream-how-to-watch-dec-6/
