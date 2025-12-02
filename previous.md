@@ -1,3 +1,19 @@
+**Denny Hamlin gives fiery testimony on Day 2 of Michael Jordan vs. NASCAR trial**\
+`Hamlin's testimony continued on Day 2, when he was questioned in cross-examination on his own comments about the state of NASCAR.`\
+https://nytimes.com/athletic/6854862/2025/12/02/nascar-michael-jordan-trial-denny-hamlin-testimony/
+
+**Fantasy football market share report: Adonai Mitchell, Christian Watson and more**\
+`Michael Salfino analyzes the touches and targets distribution for Week 13, noting strong showings from Adonai Mitchell and Christian Watson.`\
+https://nytimes.com/athletic/6855867/2025/12/02/fantasy-football-market-share-report-christian-watson/
+
+**Ayanna Pressley Won’t Challenge Markey for Senate in Massachusetts**\
+`Ms. Pressley, a prominent progressive, will instead run for re-election to the House. Her move is expected to help Senator Ed Markey, though he still faces one well-known Democratic primary challenger.`\
+https://nytimes.com/2025/12/02/us/politics/ayanna-pressley-markey-massachusetts-senate.html
+
+**Dijon, a Studio Maestro, Is Stepping Into the Spotlight**\
+`Onstage in Brooklyn, the buzzy producer and musician blasted his songs apart and stitched them back together again.`\
+https://nytimes.com/2025/12/02/arts/music/dijon-live-review.html
+
 **Eugene Hasenfus, Gunrunner Who Exposed Iran-Contra Plot, Dies at 84**\
 `He emerged out of obscurity when his cargo plane was shot down while illegally ferrying supplies to Nicaraguan rebels, setting off a scandal that tarnished the Reagan and Bush White Houses.`\
 https://nytimes.com/2025/12/02/us/eugene-hasenfus-dead.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6855432/2025/12/02/penguins-nhl-playoffs-standings-
 **College Radio Keeps Its Cool**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/college-radio-keeps-its-cool
-
-**Spain win Women's Nations League with victory over Germany**\
-`Claudia Pina and Vicky Lopez were the goalscorers as Spain won 3-0 in the second leg of the final, following last week's goalless draw.`\
-https://nytimes.com/athletic/6855796/2025/12/02/spain-germany-womens-nations-league/
-
-**Send us your questions for Joe Person's Carolina Panthers mailbag**\
-`The Athletic's Joe Person will answer some of your questions in a Panthers mailbag later this week.`\
-https://nytimes.com/athletic/6855927/2025/12/02/send-us-your-questions-for-joe-persons-carolina-panthers-mailbag/
-
-**Paul Finebaum won't leave ESPN to run for U.S. Senate seat in Alabama**\
-`Finebaum said he was mulling a run as a Republican in one of Alabama’s two U.S. Senator seats but plans to stay at ESPN.`\
-https://nytimes.com/athletic/6855850/2025/12/02/paul-finebaum-espn-alabama-senator-seat/
-
-**11 Musical Love Letters From Artists to Their Heroes**\
-`Hear the Replacements (on Big Star), Sonic Youth (on Karen Carpenter), Stevie Wonder (on Duke Ellington) and more.`\
-https://nytimes.com/2025/12/02/arts/music/amplifier-newsletter-musical-love-letters.html
 
