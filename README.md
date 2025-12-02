@@ -1,3 +1,7 @@
+**Pope Leo XIV Delivers Message of Peace in Lebanon**\
+`The pope ended his first international tour presiding over a waterfront mass to thousands at the site of a 2020 Beirut port explosion, which killed hundreds.`\
+https://nytimes.com/video/world/middleeast/100000010559122/pope-leo-delivers-lebanon-mass.html
+
 **Which NHL division is the best? Making the case for and against each**\
 `Let's lay out each division's strengths and flaws — and then you can cast your vote.`\
 https://nytimes.com/athletic/6855217/2025/12/02/nhl-division-standings-mcindoe-red-light-newsletter/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6852871/2025/12/02/college-football-playoff-odds-no
 **Red Bull replaces Tsunoda with Hadjar for 2026 F1 season, Lindblad to drive for Racing Bulls**\
 `The lineup changes leave Tsunoda, who has been on the grid since 2021, without a seat next season.`\
 https://nytimes.com/athletic/6854236/2025/12/02/red-bull-driver-lineup-2026-hadjar-tsunoda/
-
-**Paqueta 'suffering and sad' after red card - Nuno**\
-`The 28-year-old was shown two quick yellow cards, followed by a red, for dissent in Sunday's defeat to Liverpool.`\
-https://nytimes.com/athletic/6855066/2025/12/02/lucas-paqueta-red-card-west-ham/
 

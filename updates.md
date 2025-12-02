@@ -1,3 +1,15 @@
+**Which NHL division is the best? Making the case for and against each**\
+`Let's lay out each division's strengths and flaws — and then you can cast your vote.`\
+https://nytimes.com/athletic/6855217/2025/12/02/nhl-division-standings-mcindoe-red-light-newsletter/
+
+**Hillsborough report: 12 officers would have faced gross misconduct proceedings**\
+`Investigators found a total of 327 statements from officers were altered in the wake of the 1989 incident, almost one in four. `\
+https://nytimes.com/athletic/6855123/2025/12/02/hillsborough-police-gross-misconduct/
+
+**Sharks and Rays Gain Sweeping Protections From Wildlife Trade**\
+`A global treaty has extended trade protections to more than 70 shark and ray species whose numbers are in sharp decline.`\
+https://nytimes.com/2025/12/02/science/wildlife-trade-cites-sharks-rays.html
+
 **Craig Carton finalizing deal to take over afternoon drive time slot on WFAN**\
 `This will mark Carton’s third stint with the station and second as the leader of the afternoon program.`\
 https://nytimes.com/athletic/6855337/2025/12/02/wfan-new-york-craig-carton-radio/
