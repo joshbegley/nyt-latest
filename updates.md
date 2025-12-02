@@ -1,3 +1,7 @@
+**Blues' Jordan Binnington responds to being pulled against Ducks: 'It was a quick one'**\
+`Binnington gave up two goals on five shots and was not happy about being pulled from a game which the Blues trailed 2-1.`\
+https://nytimes.com/athletic/6855852/2025/12/02/blues-jordan-binnington-pulled-response/
+
 **Tavita Pritchard begins new chapter at Stanford, reuniting with Andrew Luck**\
 `At a packed news conference at Stanford Stadium, Luck and Pritchard traded humorous barbs about a relationship that began in 2008.`\
 https://nytimes.com/athletic/6856166/2025/12/02/stanford-tavita-pritchard-coach-andrew-luck/

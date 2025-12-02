@@ -1,3 +1,11 @@
+**New Pentagon Press Corps Test-Drives the Briefing Room**\
+`A new group of media figures was given credentials to cover the Pentagon after many traditional news outlets refused to sign its new reporting rules.`\
+https://nytimes.com/2025/12/02/business/media/new-pentagon-press-corps-test-drives-the-briefing-room.html
+
+**Why Yankees fans shouldn't automatically dismiss Mets' signing of Devin Williams**\
+`Fans who are happy Williams will be in Queens next season should understand: This may not be the greatest outcome for the Bronx Bombers. `\
+https://nytimes.com/athletic/6855783/2025/12/02/yankees-fans-devin-williams-signs-mets/
+
 **Tavita Pritchard begins new chapter at Stanford, reuniting with Andrew Luck**\
 `At a packed news conference at Stanford Stadium, Luck and Pritchard traded humorous barbs about a relationship that began in 2008.`\
 https://nytimes.com/athletic/6856166/2025/12/02/stanford-tavita-pritchard-coach-andrew-luck/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6855718/2025/12/02/the-athletic-football-show-keepi
 **NBA veteran Danilo Gallinari announces retirement**\
 `Gallinari was the sixth overall pick in the 2008 NBA Draft.`\
 https://nytimes.com/athletic/6855963/2025/12/02/nba-veteran-danilo-gallinari-retires/
-
-**Trump’s Envoy Meets With Putin on War in Ukraine**\
-`Steve Witkoff, President Trump’s special envoy, was expected to discuss with President Vladimir V. Putin of Russia a U.S.-backed peace proposal that was revised by American officials after recent negotiations with Ukrainian diplomats.`\
-https://nytimes.com/video/world/europe/100000010560129/putin-russia-ukraine-zelensky.html
-
-**NFL MVP odds: Dak Prescott breaks through, Drake Maye takes the lead**\
-`Can Prescott or Jordan Love — or anyone — challenge the two at the top?`\
-https://nytimes.com/athletic/6855460/2025/12/02/nfl-mvp-odds-dak-prescott-drake-maye-matthew-stafford/
 
