@@ -1,3 +1,11 @@
+**Michael Jordan vs. NASCAR trial Day 1 takeaways: This is really happening**\
+`Our thoughts and impressions from inside the courtroom on the first day of the trial in the NASCAR antitrust lawsuit case.`\
+https://nytimes.com/athletic/6853864/2025/12/01/michael-jordan-nascar-trial-day-1/
+
+**Devin Williams, New York Mets in agreement on 3-year deal: Source**\
+`Even though Williams had the 12th-worst ERA among all relievers, there's reason to believe he can return to being a dominant closer.`\
+https://nytimes.com/athletic/6807796/2025/12/01/devin-williams-new-york-mets-deal-source/
+
 **Giants, Patriots scuffle on sideline after hard hit on QB Jaxson Dart**\
 `New York players take exception to legal hit on rookie QB, who has been examined for a concussion four times this year.`\
 https://nytimes.com/athletic/6854006/2025/12/01/giants-patriots-scuffle-jaxson-dart/

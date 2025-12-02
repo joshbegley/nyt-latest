@@ -1,3 +1,7 @@
+**Michael Jordan vs. NASCAR trial Day 1 takeaways: This is really happening**\
+`Our thoughts and impressions from inside the courtroom on the first day of the trial in the NASCAR antitrust lawsuit case.`\
+https://nytimes.com/athletic/6853864/2025/12/01/michael-jordan-nascar-trial-day-1/
+
 **Sources: NYCFC tabs Sacramento's Dunivant as new chief soccer officer**\
 `Dunivant had a standout career in MLS as a player, and he's back in the league after guiding USL Championship's Sacramento Republic`\
 https://nytimes.com/athletic/6853878/2025/12/01/todd-dunivant-nycfc-chief-soccer-officer-mls/
@@ -6,7 +10,7 @@ https://nytimes.com/athletic/6853878/2025/12/01/todd-dunivant-nycfc-chief-soccer
 `Dodson made his own call and lined up his teammates ahead of the New Orleans Saints' two-point conversion attempt.`\
 https://nytimes.com/athletic/6853867/2025/12/01/dolphins-tyrel-dodson-headset-malfunction/
 
-**Devin Williams, New York Mets in agreement on three-year deal: Source**\
+**Devin Williams, New York Mets in agreement on 3-year deal: Source**\
 `Even though Williams had the 12th-worst ERA among all relievers, there's reason to believe he can return to being a dominant closer.`\
 https://nytimes.com/athletic/6807796/2025/12/01/devin-williams-new-york-mets-deal-source/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6853903/2025/12/01/ny-giants-abdul-carter-benched-p
 **How to watch Indiana vs. Ohio State: Big Ten Championship Time, TV, streaming**\
 `Find out how to watch the Indiana Hoosiers play the Ohio State Buckeyes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6853909/2025/12/01/indiana-vs-ohio-state-stream-how-to-watch-dec-6/
-
-**How to watch Duke vs. Virginia: ACC Championship Time, TV, streaming**\
-`Find out how to watch the Duke Blue Devils play the Virginia Cavaliers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6853907/2025/12/01/duke-vs-virginia-stream-how-to-watch-dec-6/
 
