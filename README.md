@@ -1,3 +1,11 @@
+**Red Bull replaces Tsunoda with Hadjar for 2026 F1 season, Lindblad to drive for Racing Bulls**\
+`The lineup changes leave Tsunoda, who has been on the grid since 2021, without a seat next season.`\
+https://nytimes.com/athletic/6854236/2025/12/02/red-bull-driver-lineup-2026-hadjar-tsunoda/
+
+**Paqueta 'suffering and sad' after red card - Nuno**\
+`The 28-year-old was shown two quick yellow cards, followed by a red, for dissent in Sunday's defeat to Liverpool.`\
+https://nytimes.com/athletic/6855066/2025/12/02/lucas-paqueta-red-card-west-ham/
+
 **Losing possession is plaguing the Bucks and costing them games**\
 `Milwaukee desperately needs to find a way to fix its possession problem if it wants to discover a winning formula this season.`\
 https://nytimes.com/athletic/6853459/2025/12/02/bucks-lose-possession-battle-costing-games/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6855106/2025/12/02/aitana-bonmati-spain-barcelona-i
 **India Orders a Tracking App to Be Installed in All Smartphones**\
 `The government said the rules were needed to prevent theft and other crime. Its opponents and privacy activists regard the app as a tool of mass surveillance.`\
 https://nytimes.com/2025/12/02/business/india-tracking-app-sanchar-saathi.html
-
-**Fantasy football Week 14 drops: Bidding adieu to Aaron Jones, Ricky Pearsall and others**\
-`With the season hanging in the balance for many fantasy managers, Gary Davenport shares the names that can be safely purged from rosters. `\
-https://nytimes.com/athletic/6854384/2025/12/02/fantasy-football-week-14-drops-aaron-jones-ricky-pearsall/
-
-**Barkley may miss 'up to 12 weeks' with knee injury - Emery**\
-`The 31-year-old midfielder only lasted 13 minutes in Sunday's win over Wolves after coming on as a second-half substitute.`\
-https://nytimes.com/athletic/6855080/2025/12/02/ross-barkley-injury-aston-villa/
 
