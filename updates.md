@@ -1,3 +1,11 @@
+**Memo From Trump’s Doctor Cites ‘Excellent’ Scan but Offers Little Clarity**\
+`While the president said he had a M.R.I. exam, a physician’s memo released by the White House was less specific.`\
+https://nytimes.com/2025/12/01/health/trump-mri-results.html
+
+**Devin Williams, Mets in agreement on 3-year, $51M deal: Source**\
+`Even though Williams had the 12th-worst ERA among all relievers, there's reason to believe he can return to being a dominant closer.`\
+https://nytimes.com/athletic/6807796/2025/12/01/devin-williams-new-york-mets-deal-source/
+
 **D.H.S. Secretary Recommends New Travel Ban in Wake of Shooting**\
 `Kristi Noem, the secretary of homeland security, equated immigrants to “foreign invaders” as she called for an expanded travel ban. President Trump reposted her statement.`\
 https://nytimes.com/2025/12/01/us/politics/trump-travel-ban-dhs-noem.html

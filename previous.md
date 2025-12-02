@@ -1,3 +1,7 @@
+**Memo From Trump’s Doctor Cites ‘Excellent’ Scan but Offers Little Clarity**\
+`While the president said he had a M.R.I. exam, a physician’s memo released by the White House was less specific.`\
+https://nytimes.com/2025/12/01/health/trump-mri-results.html
+
 **D.H.S. Secretary Recommends New Travel Ban in Wake of Shooting**\
 `Kristi Noem, the secretary of homeland security, equated immigrants to “foreign invaders” as she called for an expanded travel ban. President Trump reposted her statement.`\
 https://nytimes.com/2025/12/01/us/politics/trump-travel-ban-dhs-noem.html
@@ -30,11 +34,7 @@ https://nytimes.com/athletic/6853878/2025/12/01/todd-dunivant-nycfc-chief-soccer
 `Dodson made his own call and lined up his teammates ahead of the New Orleans Saints' two-point conversion attempt.`\
 https://nytimes.com/athletic/6853867/2025/12/01/dolphins-tyrel-dodson-headset-malfunction/
 
-**Devin Williams, Mets in agreement on 3-year, $45 million deal: Source**\
+**Devin Williams, Mets in agreement on 3-year, $51M deal: Source**\
 `Even though Williams had the 12th-worst ERA among all relievers, there's reason to believe he can return to being a dominant closer.`\
 https://nytimes.com/athletic/6807796/2025/12/01/devin-williams-new-york-mets-deal-source/
-
-**Giants, Patriots scuffle on sideline after hard hit on QB Jaxson Dart**\
-`New York players take exception to legal hit on rookie QB, who has been examined for a concussion four times this year.`\
-https://nytimes.com/athletic/6854006/2025/12/01/giants-patriots-scuffle-jaxson-dart/
 
