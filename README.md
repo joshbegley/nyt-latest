@@ -1,3 +1,7 @@
+**For Sonny Gray, trade to Red Sox represents chance to win World Series**\
+`“I am who I am, but I definitely think there's room for improvement,” said Gray, who thinks this big-market experience will be different`\
+https://nytimes.com/athletic/6856447/2025/12/02/sonny-gray-red-sox-world-series-trade/
+
 **Suspect in National Guard Shooting Enters Not Guilty Plea**\
 `Rahmanullah Lakanwal, who is accused of killing a National Guard member and gravely wounding another, appeared in court remotely from a hospital bed.`\
 https://nytimes.com/2025/12/02/us/national-guard-shooting-suspect-plea.html
@@ -29,8 +33,4 @@ https://nytimes.com/video/us/100000010559962/trump-pardon-honduras-hernandez.htm
 **Haaland hits 100, Fulham's almost magnificent comeback: The Briefing**\
 `Manchester City move to within two points of Premier League leaders Arsenal on a night Erling Haaland broke an Alan Shearer record`\
 https://nytimes.com/athletic/6851572/2025/12/02/fulham-4-manchester-city-5-haaland-100-goals/
-
-**New Pentagon Press Corps Test-Drives the Briefing Room**\
-`A new group of media figures was given credentials to cover the Pentagon after many traditional news outlets refused to sign its new reporting rules.`\
-https://nytimes.com/2025/12/02/business/media/pentagon-press-corps-briefing-gaetz-loomer.html
 
