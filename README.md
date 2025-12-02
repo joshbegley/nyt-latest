@@ -1,3 +1,7 @@
+**NHL to remind teams about mandatory helmets during warmups**\
+`Three NHL teams have taken to the ice helmetless over the last week.`\
+https://nytimes.com/athletic/6855479/2025/12/02/nhl-helmets-warmup-senators-sharks-devils/
+
 **Sonny Gray, new Red Sox starter, on pitching for Yankees: 'I never wanted to go there'**\
 `Gray added that the experience in New York shaped him over the ensuing seven seasons.`\
 https://nytimes.com/athletic/6855549/2025/12/02/sonny-gray-did-not-want-to-pitch-for-yankees/
@@ -14,8 +18,8 @@ https://nytimes.com/athletic/6855679/2025/12/02/college-football-coaching-carous
 `It was all roast beef, chocolate cake and air kisses at the Gotham Awards in Lower Manhattan.`\
 https://nytimes.com/2025/12/02/style/gotham-awards-celebrities-winners.html
 
-**Vanderbilt flips QB Jared Curtis, No. 1 player in Class of 2026, from Georgia: Reports**\
-`Should he sign with the Commodores, Curtis would be the Commodores' first five-star prospect of the modern recruiting era. `\
+**Jared Curtis, No. 1 recruit in 2026, pushes back on reports he's flipped to Vandy**\
+`If he chooses the Commodores, Curtis would be the Vanderbilt's first five-star prospect of the modern recruiting era. `\
 https://nytimes.com/athletic/6833213/2025/12/02/jared-curtis-recruiting-vanderbilt-flip-georgia/
 
 **How Ruben Amorim is 'stealing' set-piece ideas from opponents and implementing them at Man Utd**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/02/learning/seasonal-giving.html
 **Prime Tire: Grading big Red Bull moves and breaking down championship stakes**\
 `Welcome to Prime Tire, The Athletic's F1 newsletter.`\
 https://nytimes.com/athletic/6853606/2025/12/02/red-bull-moves-f1-championship-prime-tire/
-
-**This Hall of Fame Contemporary Era election, I won’t just be an observer. I’ll be a voter**\
-`This time around, I’ll be serving on the 16-member committee, along with The Athletic's Tyler Kepner. Here's what you should know. `\
-https://nytimes.com/athletic/6853332/2025/12/02/baseball-hall-of-fame-contemporary-era-election/
 
