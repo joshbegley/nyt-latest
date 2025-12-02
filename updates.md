@@ -1,3 +1,19 @@
+**Losing possession is plaguing the Bucks and costing them games**\
+`Milwaukee desperately needs to find a way to fix its possession problem if it wants to discover a winning formula this season.`\
+https://nytimes.com/athletic/6853459/2025/12/02/bucks-lose-possession-battle-costing-games/
+
+**Aaron Gleeman's Twins mailbag: Submit your pre-Winter Meetings questions**\
+`It’s been a predictably slow first month of the offseason for the Twins, but that could change soon.`\
+https://nytimes.com/athletic/6855156/2025/12/02/submit-twins-winter-meetings-mailbag-questions/
+
+**Read Former Honduran President’s Letter to Trump**\
+`The New York Times has obtained the four-page letter that former President Juan Orlando Hernández of Honduras sent President Trump.`\
+https://nytimes.com/interactive/2025/12/02/us/politics/hernandez-letter.html
+
+**Leeds' James out for at least eight weeks, may have surgery**\
+`James injured his hamstring tendon during Saturday’s 3-2 loss at Manchester City.`\
+https://nytimes.com/athletic/6855067/2025/12/02/dan-james-leeds-hamstring-injury/
+
 **Russia and Belarus skiers successfully appeal against Winter Olympics qualifying ban**\
 `The appeals argued the ban was a breach of statutes and contravened the principles of political neutrality and non-discrimination.`\
 https://nytimes.com/athletic/6854909/2025/12/02/russia-winter-olympics-ban-skiing/
