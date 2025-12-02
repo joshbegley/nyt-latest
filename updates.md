@@ -1,3 +1,11 @@
+**More athletes, including Shedeur Sanders and WNBA 'Studbudz,' streamed on Twitch in 2025**\
+`Athletes like LeBron James and Ja'Marr Chase have taken to Twitch in 2025 to share aspects of their lives with fans.`\
+https://nytimes.com/athletic/6855130/2025/12/02/why-athletes-twitch-livestream-studbuz/
+
+**Perplexed by Avant-Garde Dance? Let This Choreographer Explain.**\
+`After 40 years of making dances as complicated as human consciousness, Tere O’Connor revives his first work at New York Live Arts. Bonus: He will talk about it.`\
+https://nytimes.com/2025/12/02/arts/dance/tere-oconnor-construct-a-guy-nyla.html
+
 **Venezuela Accepts Migrant Repatriation Flight From U.S. Amid Airspace Tensions**\
 `The flight’s approval illustrates how the United States and Venezuela are still communicating, after a declaration from President Trump that Venezuelan airspace was “closed in its entirety.”`\
 https://nytimes.com/2025/12/02/us/politics/venezuela-migrant-deportations-trump.html

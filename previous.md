@@ -1,3 +1,11 @@
+**More athletes, including Shedeur Sanders and WNBA 'Studbudz,' streamed on Twitch in 2025**\
+`Athletes like LeBron James and Ja'Marr Chase have taken to Twitch in 2025 to share aspects of their lives with fans.`\
+https://nytimes.com/athletic/6855130/2025/12/02/why-athletes-twitch-livestream-studbuz/
+
+**Perplexed by Avant-Garde Dance? Let This Choreographer Explain.**\
+`After 40 years of making dances as complicated as human consciousness, Tere O’Connor revives his first work at New York Live Arts. Bonus: He will talk about it.`\
+https://nytimes.com/2025/12/02/arts/dance/tere-oconnor-construct-a-guy-nyla.html
+
 **Venezuela Accepts Migrant Repatriation Flight From U.S. Amid Airspace Tensions**\
 `The flight’s approval illustrates how the United States and Venezuela are still communicating, after a declaration from President Trump that Venezuelan airspace was “closed in its entirety.”`\
 https://nytimes.com/2025/12/02/us/politics/venezuela-migrant-deportations-trump.html
@@ -25,16 +33,4 @@ https://nytimes.com/athletic/6851565/2025/12/02/canucks-jim-rutherford-president
 **How to watch Stars vs. Rangers: Time, TV, streaming**\
 `Find out how to watch the Dallas Stars play the New York Rangers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6855493/2025/12/02/stars-vs-rangers-stream-how-to-watch-dec-2/
-
-**How to watch Senators vs. Canadiens: Time, TV, streaming**\
-`Find out how to watch the Ottawa Senators play the Montreal Canadiens, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6855489/2025/12/02/senators-vs-canadiens-stream-how-to-watch-dec-2/
-
-**How to watch Lightning vs. Islanders: Time, TV, streaming**\
-`Find out how to watch the Tampa Bay Lightning play the New York Islanders, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6855487/2025/12/02/lightning-vs-islanders-stream-how-to-watch-dec-2/
-
-**How to watch Wizards vs. 76ers: Time, TV, streaming**\
-`Find out how to watch the Washington Wizards play the Philadelphia 76ers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6855485/2025/12/02/wizards-vs-76ers-stream-how-to-watch-dec-2/
 
