@@ -1,3 +1,7 @@
+**Flyers' Tyson Foerster suffers injury in lopsided loss to Penguins**\
+`It was even a rough night for the Flyers’ steadiest player this season.`\
+https://nytimes.com/athletic/6854231/2025/12/02/flyers-penguins-tyson-foerster-injury/
+
 **Brisbane by numbers: Australia look to Starc and Lyon, and why England should be inspired by the West Indies**\
 `Day-night Test cricket brings its challenges and Australia are seasoned in the Gabba's quirks - but touring teams have prevailed before`\
 https://nytimes.com/athletic/6851475/2025/12/02/ashes-brisbane-australia-england-starc-lyon/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6839351/2025/12/02/world-cup-draw-team-guides/
 **Tactical timeouts are the best way to end the scourge of goalkeeper 'injuries'**\
 `The Gianluigi Donnarumma controversy on Saturday showed why laws must be changed to stop strategic stoppages`\
 https://nytimes.com/athletic/6851662/2025/12/02/football-tactical-timeout/
-
-**James Horncastle’s Serie A briefing: The year of Yildiz, Nico Paz the magician, and another tight title race**\
-`It was another good weekend for Serie A's cohort of talented No 10s, while champions Napoli leapfrogged Roma with a win in the capital `\
-https://nytimes.com/athletic/6851642/2025/12/02/james-horncastle-serie-a-briefing-yildiz-paz-napoli-milan-roma/
 
