@@ -1,3 +1,15 @@
+**The New York Times in Print for Tuesday, Dec. 2, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/12/02/todays-new-york-times
+
+**Japan Just Made Taiwan Everyone’s Business**\
+`The Japanese leader’s candor over Taiwan brought the shared regional stakes out into the open, and the U.S. must stand behind its ally.`\
+https://nytimes.com/2025/12/02/opinion/china-us-japan-security-taiwan.html
+
+**A Serious Journalism Scandal Hiding Inside a Frivolous Sexual One**\
+`Olivia Nuzzi doesn’t seem to recognize that her collaboration with Robert Kennedy was a grave professional betrayal.`\
+https://nytimes.com/2025/12/02/opinion/olivia-nuzzi-rfk.html
+
 **A right groin injury caused Devin Booker to exit the Suns-Lakers game early**\
 `After scoring 11 points in 10 minutes, Booker watched the rest of the game in street clothes. The severity of the injury is unknown.`\
 https://nytimes.com/athletic/6854311/2025/12/02/devin-booker-out-groin-injury-suns-lakers/

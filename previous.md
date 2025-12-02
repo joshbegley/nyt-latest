@@ -1,3 +1,15 @@
+**The New York Times in Print for Tuesday, Dec. 2, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/12/02/todays-new-york-times
+
+**Japan Just Made Taiwan Everyone’s Business**\
+`The Japanese leader’s candor over Taiwan brought the shared regional stakes out into the open, and the U.S. must stand behind its ally.`\
+https://nytimes.com/2025/12/02/opinion/china-us-japan-security-taiwan.html
+
+**A Serious Journalism Scandal Hiding Inside a Frivolous Sexual One**\
+`Olivia Nuzzi doesn’t seem to recognize that her collaboration with Robert Kennedy was a grave professional betrayal.`\
+https://nytimes.com/2025/12/02/opinion/olivia-nuzzi-rfk.html
+
 **A right groin injury caused Devin Booker to exit the Suns-Lakers game early**\
 `After scoring 11 points in 10 minutes, Booker watched the rest of the game in street clothes. The severity of the injury is unknown.`\
 https://nytimes.com/athletic/6854311/2025/12/02/devin-booker-out-groin-injury-suns-lakers/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6836016/2025/12/02/west-ham-transfer-dealsheet-2026
 **After a big win over the Clippers, Norman Powell is no longer worried about them**\
 `The LA Clippers are not Powell's problem, but he was a problem for his old team this season.`\
 https://nytimes.com/athletic/6854269/2025/12/02/norman-powell-clippers-record-heat-trade/
-
-**Ranking the happiness levels of every Premier League club**\
-`Welcome to our unscientific Happiness Table, analysing which clubs are satisfied with the state of their season - and which ones aren't`\
-https://nytimes.com/athletic/6852401/2025/12/02/premier-league-clubs-happy-table/
-
-**Kyril Louis-Dreyfus and Sunderland's five-year rise. What next?**\
-`The Athletic speaks with three key decision-makers at the club, including chairman Kyril Louis-Dreyfus, to chart their journey on Wearside`\
-https://nytimes.com/athletic/6852004/2025/12/02/sunderland-dreyfus-ghisolfi-speakman-exclusive/
-
-**A guide to every team in the World Cup draw**\
-`How do they play? Who is their star player? What can we expect from them when the tournament starts?`\
-https://nytimes.com/athletic/6839351/2025/12/02/world-cup-draw-team-guides/
 
