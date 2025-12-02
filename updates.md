@@ -1,3 +1,11 @@
+**2025 NFL Simulator: Updated playoff picture and projected draft order after Week 13 results**\
+`How could your favorite team's season end? Find out all the possible paths here.`\
+https://nytimes.com/athletic/6513952/2025/12/02/2025-nfl-playoff-simulator-path-postseason/
+
+**Trial date set for pitchers Emmanuel Clase and Luis Ortiz, charged in betting scheme**\
+`The trial for the two players, accused of altering pitches as part of an illegal sports gambling ring, has been set for May. `\
+https://nytimes.com/athletic/6855743/2025/12/02/emmanuel-clase-luis-ortiz-mlb-betting-scheme-trial/
+
 **Prosecutors Drop Charges in Savage 1993 Murder of Mother Near Buffalo**\
 `James Pugh, one of two men originally convicted in the killing, had already spent 25 years in prison. He said all along that he was innocent.`\
 https://nytimes.com/2025/12/02/nyregion/tonawanda-murder-charges-dropped-james-pugh.html

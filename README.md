@@ -1,3 +1,7 @@
+**Hegseth Under Scrutiny in Lethal Boat Strikes**\
+`Readers discuss the aftermath of a U.S. attack on a boat in the Caribbean. Also: Fixing Penn Station; Trumpism after Trump.`\
+https://nytimes.com/2025/12/02/opinion/hegseth-lethal-boat-strikes.html
+
 **Jersey City Mayoral Runoff Election Results**\
 `Get live results and maps from the 2025 Jersey City mayoral runoff election in New Jersey. `\
 https://nytimes.com/interactive/2025/12/02/us/elections/results-jersey-city-mayor-runoff.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6662286/2025/12/02/college-football-open-coaching-j
 **Patriots mailbag: Submit your bye week questions for reporter Chad Graff**\
 `As everything continues to come up Patriots, let’s reset by answering some of your questions. Leave your mailbag questions below.`\
 https://nytimes.com/athletic/6854399/2025/12/02/new-england-patriots-mailbag-bye-week/
-
-**Finding the Magic, Just in Time (Encore)**\
-`Clare Cory was 59 years old and had been single almost her whole life. She thought her love story was over. Then everything changed.`\
-https://nytimes.com/2025/12/02/podcasts/finding-the-magic-just-in-time-encore.html
 
