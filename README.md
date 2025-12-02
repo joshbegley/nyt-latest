@@ -1,3 +1,15 @@
+**China, Evoking World War II, Urges Europe to Take Its Side Against Japan**\
+`A diplomatic row with Japan over Taiwan has China turning to Britain and France for support, appealing to their shared history as wartime allies.`\
+https://nytimes.com/2025/12/02/world/asia/china-japan-taiwan-europe.html
+
+**Late Night Lashes Out at Trump’s Tim Walz Taunt**\
+`“On Thanksgiving? Are you confusing that with Festivus?” Jon Stewart said of President Trump’s Truth Social post insulting the Minnesota governor’s intelligence.`\
+https://nytimes.com/2025/12/02/arts/television/late-night-trump-tim-walz.html
+
+**Thousands Greet Pope Leo in Lebanon, as He Prays at Beirut Blast Site**\
+`A prayer at the site of the 2020 Beirut explosion and a waterfront Mass capped his three-day visit to the Middle Eastern nation with the highest proportion of Christians.`\
+https://nytimes.com/2025/12/02/world/middleeast/pope-leo-beirut-lebanon.html
+
 **Democrats in New Jersey Ram Though Bill to Defang a Corruption Watchdog**\
 `A State Senate committee moved to weaken an office that investigates police misconduct and government waste. Senator Andy Kim spoke in opposition but was cut off after three minutes.`\
 https://nytimes.com/2025/12/02/nyregion/new-jersey-corruption-comptroller-legislation.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6844622/2025/12/02/transfer-latest-2026-january-sum
 **Aston Villa Transfer DealSheet: What to expect in 2026**\
 `Who will make key decisions over the two windows? What positions will they be looking at in 2026? Who will they be looking to sell?`\
 https://nytimes.com/athletic/6822840/2025/12/02/aston-villa-transfer-dealsheet-what-to-expect-in-2026/
-
-**Real Madrid Transfer DealSheet: Rodrygo for sale, centre-back and midfield targets**\
-`The Spanish side tend not to do much business in the winter window, but key targets have already been established`\
-https://nytimes.com/athletic/6852080/2025/12/02/real-madrid-transfers-news-january-targets/
-
-**Manchester United Transfer DealSheet: What to expect in 2026**\
-`Manchester United still need key additions after a significant outlay in the summer window`\
-https://nytimes.com/athletic/6852550/2025/12/02/manchester-united-transfer-latest-january-summer-2026/
-
-**Arsenal Transfer DealSheet: What to expect in 2026**\
-`Arsenal top the Premier League and are going into the January window from a position of strength`\
-https://nytimes.com/athletic/6852386/2025/12/02/arsenal-transfer-latest-january-summer-2026/
 
