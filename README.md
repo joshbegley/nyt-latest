@@ -1,3 +1,7 @@
+**The First Night**\
+`An ultra-Orthodox Jewish filmmaker asks members of her community about the silent anxieties surrounding intimacy on their wedding nights.`\
+https://nytimes.com/video/opinion/100000010494928/the-first-night.html
+
 **Patriots Defeat Giants, Winning Their 10th Consecutive Game**\
 `The New England Patriots became the first team in the N.F.L. to reach 11 wins in 2025, improving to 11-2 in a victory over the New York Giants that included two touchdown passes from the Patriots quarterback Drake Maye.`\
 https://nytimes.com/video/podcasts/100000010558643/patriots-defeat-giants-winning-their-10th-consecutive-game.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/02/nyregion/new-york-eleven-member-jury.html
 **School Integration Has Lost Steam. Will Mamdani Revive It in New York?**\
 `Mayor-elect Zohran Mamdani has spoken about integrating America’s largest education system in striking terms rarely heard from big city leaders.`\
 https://nytimes.com/2025/12/02/nyregion/mamdani-nyc-school-integration.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/12/02/crosswords/spelling-bee-forum.html
 
