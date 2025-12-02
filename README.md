@@ -34,7 +34,3 @@ https://nytimes.com/athletic/6855489/2025/12/02/senators-vs-canadiens-stream-how
 `Find out how to watch the Tampa Bay Lightning play the New York Islanders, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6855487/2025/12/02/lightning-vs-islanders-stream-how-to-watch-dec-2/
 
-**How to watch Wizards vs. 76ers: Time, TV, streaming**\
-`Find out how to watch the Washington Wizards play the Philadelphia 76ers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6855485/2025/12/02/wizards-vs-76ers-stream-how-to-watch-dec-2/
-
