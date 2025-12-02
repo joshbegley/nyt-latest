@@ -1,3 +1,7 @@
+**Glasner says that Sarr could miss AFCON with ankle injury, set for futher tests**\
+`Sarr sustained the issue after landing awkwardly following a challenge by Manchester United's Diogo Dalot on Sunday.`\
+https://nytimes.com/athletic/6849395/2025/12/02/ismaila-sarr-crystal-palace-injury-latest/
+
 **James out for at least eight weeks, surgery a possibility**\
 `James injured his hamstring tendon during Saturday’s 3-2 loss at Manchester City.`\
 https://nytimes.com/athletic/6855067/2025/12/02/dan-james-leeds-hamstring-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/02/us/politics/costco-trump-tariffs-lawsuit.html
 **Russia and Belarus skiers successfully appeal against Winter Olympics qualifying ban**\
 `The appeals argued the ban was a breach of statutes and contravened the principles of political neutrality and non-discrimination.`\
 https://nytimes.com/athletic/6854909/2025/12/02/russia-winter-olympics-ban-skiing/
-
-**Rotating Beds and Cellphones, Maduro Plans to Outlast Trump**\
-`President Trump’s threat of military action has confronted President Nicolás Maduro of Venezuela with the gravest challenge of his crisis-ridden reign.`\
-https://nytimes.com/2025/12/02/world/americas/venezuela-nicolas-maduro-trump.html
 
