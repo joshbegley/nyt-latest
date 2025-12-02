@@ -1,3 +1,7 @@
+**11 Musical Love Letters From Artists to Their Heroes**\
+`Hear the Replacements (on Big Star), Sonic Youth (on Karen Carpenter), Stevie Wonder (on Duke Ellington) and more.`\
+https://nytimes.com/2025/12/02/arts/music/amplifier-newsletter-musical-love-letters.html
+
 **Elon Musk’s Foundation Grows to $14 Billion, but Gives Little to Outsiders**\
 `The philanthropy has become one of America’s biggest, but most of its giving went to charities closely tied to the world’s richest man.`\
 https://nytimes.com/2025/12/02/us/politics/elon-musk-foundation.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6513952/2025/12/02/2025-nfl-playoff-simulator-path-
 **Tennessee Seventh District Special Election Results**\
 `Get live results and maps from the 2025 Tennessee congressional special election.`\
 https://nytimes.com/interactive/2025/12/02/us/elections/results-tennessee-us-house-7-special.html
-
-**Amid losing streak, Commanders get strong showings from less heralded players**\
-`In a disappointing season, Washington has discovered some valuable, if unheralded, performers. Here are a few.`\
-https://nytimes.com/athletic/6855608/2025/12/02/commanders-jeremy-mcnichols-chris-rodriguez-offensive-line/
 
