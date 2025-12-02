@@ -1,3 +1,7 @@
+**Finding the Magic, Just in Time (Encore)**\
+`Clare Cory was 59 years old and had been single almost her whole life. She thought her love story was over. Then everything changed.`\
+https://nytimes.com/2025/12/02/podcasts/finding-the-magic-just-in-time-encore.html
+
 **Critical fantasy football insights for Week 14: The Jordan Love to Christian Watson era**\
 `Brandon Funston and Jess Bryant look at usage metrics to give actionable Week 14 fantasy football advice. `\
 https://nytimes.com/athletic/6852464/2025/12/02/critical-fantasy-football-insights-usage-week-14/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6854607/2025/12/02/manchester-united-amorim-set-pie
 **New ICE Operation Is Said to Target Somali Migrants in Twin Cities**\
 `The move comes as President Trump has attacked Somalis with increasingly inflammatory rhetoric in recent days.`\
 https://nytimes.com/2025/12/02/us/politics/ice-somali-migrants-minneapolis-st-paul.html
-
-**Seasonal Giving**\
-`What can you do for others this holiday season?`\
-https://nytimes.com/2025/12/02/learning/seasonal-giving.html
 
