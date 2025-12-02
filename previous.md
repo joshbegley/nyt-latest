@@ -1,3 +1,15 @@
+**Why the Penguins' unlikely quest to reach the playoffs is gaining steam**\
+`Here's what's driving the growing optimism that the Penguins might be good enough to reach the Stanley Cup playoffs.`\
+https://nytimes.com/athletic/6855432/2025/12/02/penguins-nhl-playoffs-standings-wild-card-race/
+
+**College Radio Keeps Its Cool**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/college-radio-keeps-its-cool
+
+**Spain win Women's Nations League with victory over Germany**\
+`Claudia Pina and Vicky Lopez were the goalscorers as Spain won 3-0 in the second leg of the final, following last week's goalless draw.`\
+https://nytimes.com/athletic/6855796/2025/12/02/spain-germany-womens-nations-league/
+
 **Send us your questions for Joe Person's Carolina Panthers mailbag**\
 `The Athletic's Joe Person will answer some of your questions in a Panthers mailbag later this week.`\
 https://nytimes.com/athletic/6855927/2025/12/02/send-us-your-questions-for-joe-persons-carolina-panthers-mailbag/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6855735/2025/12/02/ohio-state-michigan-helmet-commu
 **Jets owner donates $1 million to launch women's college flag-football league**\
 `The 15-team league, whose inaugural season will take place in 2026, is an example of the growing popularity of women's flag football.`\
 https://nytimes.com/athletic/6855560/2025/12/02/jets-woody-johnson-donation-womens-college-flag-football/
-
-**Hegseth Under Scrutiny in Lethal Boat Strikes**\
-`Readers discuss the aftermath of a U.S. attack on a boat in the Caribbean. Also: Fixing Penn Station; Trumpism after Trump.`\
-https://nytimes.com/2025/12/02/opinion/hegseth-lethal-boat-strikes.html
-
-**Jersey City Mayoral Runoff Election Results**\
-`Get live results and maps from the 2025 Jersey City mayoral runoff election in New Jersey. `\
-https://nytimes.com/interactive/2025/12/02/us/elections/results-jersey-city-mayor-runoff.html
-
-**Prosecutors Drop Charges Against Man Who Served 25 Years for 1993 Murder**\
-`James Pugh, one of two men originally convicted in the savage killing of Deborah Meindl near Buffalo, said all along that he was innocent.`\
-https://nytimes.com/2025/12/02/nyregion/tonawanda-murder-charges-dropped-james-pugh.html
 

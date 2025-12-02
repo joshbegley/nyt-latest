@@ -1,3 +1,15 @@
+**Why the Penguins' unlikely quest to reach the playoffs is gaining steam**\
+`Here's what's driving the growing optimism that the Penguins might be good enough to reach the Stanley Cup playoffs.`\
+https://nytimes.com/athletic/6855432/2025/12/02/penguins-nhl-playoffs-standings-wild-card-race/
+
+**College Radio Keeps Its Cool**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/college-radio-keeps-its-cool
+
+**Spain win Women's Nations League with victory over Germany**\
+`Claudia Pina and Vicky Lopez were the goalscorers as Spain won 3-0 in the second leg of the final, following last week's goalless draw.`\
+https://nytimes.com/athletic/6855796/2025/12/02/spain-germany-womens-nations-league/
+
 **Send us your questions for Joe Person's Carolina Panthers mailbag**\
 `The Athletic's Joe Person will answer some of your questions in a Panthers mailbag later this week.`\
 https://nytimes.com/athletic/6855927/2025/12/02/send-us-your-questions-for-joe-persons-carolina-panthers-mailbag/
