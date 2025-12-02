@@ -1,4 +1,12 @@
-**Why GM Joe Schoen believes Giants' vacant head coach job is highly 'attractive'**\
+**How Congress Should Respond, Right Now, to Trump’s Boat Strikes**\
+`Federal lawmakers have ample powers to uncover and end administration abuse.`\
+https://nytimes.com/2025/12/02/opinion/trump-venezuela-boat-strikes-congress-committee.html
+
+**What to Know About Sézane Sweaters**\
+`French brand Sézane is famous for its knitwear. Frances Solá-Santiago put five of its sweaters to the test, examining the construction and hand-washing and drying each one. And as it turns out, the most popular styles were her least favorite.`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010560784/what-to-know-about-sezane-sweaters.html
+
+**Why GM Joe Schoen believes Giants' vacant head coach job is 'attractive'**\
 `Schoen believes there are "pieces in place" for the Giants to be successful. `\
 https://nytimes.com/athletic/6856294/2025/12/02/ny-giants-joe-schoen-head-coach-opening-attactive/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6856442/2025/12/02/charlie-weis-jr-ole-miss-lane-ki
 **Zion Williamson to miss at least 3 weeks with hip adductor strain: Source**\
 `The Pelicans star already missed eight games earlier this season while recovering from a left hamstring strain. `\
 https://nytimes.com/athletic/6856404/2025/12/02/zion-williamson-adductor-injury-pelicans/
-
-**The Briefing - Newcastle 2 Tottenham 2: Leader Romero, Newcastle still rely on Guimaraes starting**\
-`Newcastle United and Tottenham Hotspur played out a dramatic 2-2 draw at St. James' Park on Tuesday night.`\
-https://nytimes.com/athletic/6851573/2025/12/02/newcastle-tottenham-score-result-report-analysis/
-
-**Can a Celebrity Be Conservative?**\
-`Ross Douthat, the host of The New York Times podcast “Interesting Times With Ross Douthat,” spoke with Jon Caramanica and Joe Coscarelli, who host “Popcast” at The Times, about how celebrities are reacting to a second Trump administration and if pop culture is moving to the right.`\
-https://nytimes.com/video/podcasts/100000010560687/can-a-celebrity-be-conservative.html
 
