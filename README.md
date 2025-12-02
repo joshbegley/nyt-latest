@@ -1,3 +1,7 @@
+**Haaland hits 100, Fulham's almost magnificent comeback: The Briefing**\
+`Manchester City move to within two points of Premier League leaders Arsenal on a night Erling Haaland broke an Alan Shearer record`\
+https://nytimes.com/athletic/6851572/2025/12/02/fulham-4-manchester-city-5-haaland-100-goals/
+
 **New Pentagon Press Corps Test-Drives the Briefing Room**\
 `A new group of media figures was given credentials to cover the Pentagon after many traditional news outlets refused to sign its new reporting rules.`\
 https://nytimes.com/2025/12/02/business/media/new-pentagon-press-corps-test-drives-the-briefing-room.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/02/learning/16-prompts-for-writing-and-talking-about
 **'I'm talking myself into it': 'The Athletic Football Show' suggests Dolphins keep McDaniel**\
 `Given the landscape of coaching candidates, replacing McDaniel might be the harder task at this point.`\
 https://nytimes.com/athletic/6855718/2025/12/02/the-athletic-football-show-keeping-mike-mcdaniel/
-
-**NBA veteran Danilo Gallinari announces retirement**\
-`Gallinari was the sixth overall pick in the 2008 NBA Draft.`\
-https://nytimes.com/athletic/6855963/2025/12/02/nba-veteran-danilo-gallinari-retires/
 

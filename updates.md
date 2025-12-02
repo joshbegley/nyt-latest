@@ -1,3 +1,11 @@
+**New Pentagon Press Corps Test-Drives the Briefing Room**\
+`A new group of media figures was given credentials to cover the Pentagon after many traditional news outlets refused to sign its new reporting rules.`\
+https://nytimes.com/2025/12/02/business/media/new-pentagon-press-corps-test-drives-the-briefing-room.html
+
+**Why Yankees fans shouldn't automatically dismiss Mets' signing of Devin Williams**\
+`Fans who are happy Williams will be in Queens next season should understand: This may not be the greatest outcome for the Bronx Bombers. `\
+https://nytimes.com/athletic/6855783/2025/12/02/yankees-fans-devin-williams-signs-mets/
+
 **Blues' Jordan Binnington responds to being pulled against Ducks: 'It was a quick one'**\
 `Binnington gave up two goals on five shots and was not happy about being pulled from a game which the Blues trailed 2-1.`\
 https://nytimes.com/athletic/6855852/2025/12/02/blues-jordan-binnington-pulled-response/
