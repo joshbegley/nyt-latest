@@ -1,3 +1,7 @@
+**Brisbane by numbers: Australia look to Starc and Lyon, and why England should be inspired by the West Indies**\
+`Day-night Test cricket brings its challenges and Australia are seasoned in the Gabba's quirks - but touring teams have prevailed before`\
+https://nytimes.com/athletic/6851475/2025/12/02/ashes-brisbane-australia-england-starc-lyon/
+
 **Why Bukayo Saka's assists record doesn't tell the full story**\
 `At Chelsea, Saka recorded his first Premier League assist for a year — but that doesn't mean he has not been a creative force in the interim`\
 https://nytimes.com/athletic/6851683/2025/12/02/bukayo-saka-assist-stats-premier-league-arsenal/

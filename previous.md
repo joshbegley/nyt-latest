@@ -1,3 +1,7 @@
+**Brisbane by numbers: Australia look to Starc and Lyon, and why England should be inspired by the West Indies**\
+`Day-night Test cricket brings its challenges and Australia are seasoned in the Gabba's quirks - but touring teams have prevailed before`\
+https://nytimes.com/athletic/6851475/2025/12/02/ashes-brisbane-australia-england-starc-lyon/
+
 **Why Bukayo Saka's assists record doesn't tell the full story**\
 `At Chelsea, Saka recorded his first Premier League assist for a year — but that doesn't mean he has not been a creative force in the interim`\
 https://nytimes.com/athletic/6851683/2025/12/02/bukayo-saka-assist-stats-premier-league-arsenal/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6851662/2025/12/02/football-tactical-timeout/
 **James Horncastle’s Serie A briefing: The year of Yildiz, Nico Paz the magician, and another tight title race**\
 `It was another good weekend for Serie A's cohort of talented No 10s, while champions Napoli leapfrogged Roma with a win in the capital `\
 https://nytimes.com/athletic/6851642/2025/12/02/james-horncastle-serie-a-briefing-yildiz-paz-napoli-milan-roma/
-
-**Martine Grael makes history, Ryan Reynolds comes on board: SailGP season five highlights**\
-`From collapses, crashes and cancellations to Martine Grael's historic race win, these are our highlights of the SailGP season`\
-https://nytimes.com/athletic/6852272/2025/12/02/sailgp-championship-racing-season-recap/
 
