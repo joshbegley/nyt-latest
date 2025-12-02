@@ -1,40 +1,40 @@
-**Team USA cruises in World Cup qualifying as MarJon Beauchamp makes case for NBA call**\
-`Monday night's Team USA blowout over Nicaragua was a Beauchamp showcase. Will NBA teams be interested in him?`\
-https://nytimes.com/athletic/6854279/2025/12/02/marjon-beauchamp-team-usa-world-cup/
+**The USWNT's year of change and integration: 'We're still cooking'**\
+`Competition for the 2027 World Cup roster will be tough after a year in which Emma Hayes has successfully introduced young talent`\
+https://nytimes.com/athletic/6854620/2025/12/02/uswnt-emma-hayes-2025-recap/
 
-**Don't let Lane Kiffin get you down. Everyone else still wants to make the Playoff!**\
-`If anything, Lane Kiffin put a price on giving up the College Football Playoff: $91 million.`\
-https://nytimes.com/athletic/6852970/2025/12/02/lane-kiffin-playoff-ole-miss-lsu/
+**Brighton boss Hurzeler relaxed about Georginio Rutter's frustration against Forest**\
+`Rutter was visibly unhappy that he was taken off early in the second half of Sunday's 2-0 win over Nottingham Forest.`\
+https://nytimes.com/athletic/6854797/2025/12/02/fabian-hurzeler-brighton-georginio-rutter-substituted/
 
-**The Lions need more from their pass rush: Can they improve it for playoff push?**\
-`Detroit's pass rush is taking too long to pressure the QB and DC Kelvin Sheppard says they need to win more one-on-one battles.`\
-https://nytimes.com/athletic/6854246/2025/12/02/lions-pass-rush-aidan-hutchinson/
+**How to fix LSU: Lane Kiffin's to-do list to get the Tigers back to championship form**\
+`Figuring out the quarterback situation for the 2026 season will be among Kiffin's most important tasks at LSU. `\
+https://nytimes.com/athletic/6850939/2025/12/02/lsu-lane-kiffin-roster-transfer-recruiting/
 
-**Bears' Ben Johnson alters NFC North as Caleb Williams grows: Week 13 film review**\
-`Also, how the Texans defense has made them look like a playoff team and assessing whether Raiders rookie RB Ashton Jeanty is a bust.`\
-https://nytimes.com/athletic/6852990/2025/12/02/bears-ben-johnson-caleb-williams-week-13-film-review/
+**How much does a high school football recruit earn in the NIL and revenue-sharing era?**\
+`Similar to their college and pro counterparts, Power 4 quarterback recruits are often the highest-paid among their peers.`\
+https://nytimes.com/athletic/6852076/2025/12/02/high-school-recruiting-nil-quarterback/
 
-**Could Red Wings find a spark via trade?**\
-`The slumping Red Wings could use a spark. Is a trade the solution?`\
-https://nytimes.com/athletic/6853311/2025/12/02/detroit-red-wings-trade-candidates-defense-forwards/
+**Top assignment for next Giants coach: Keep Jaxson Dart available**\
+`New York's quarterback isn't planning on changing his playing style anytime soon, meaning a new coach must be able to save him from himself.`\
+https://nytimes.com/athletic/6854403/2025/12/02/jaxson-dart-ny-giants-next-coach/
 
-**The Pulse: The new best team in the NFL?**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6853727/2025/12/02/patriots-giants-nfl-power-rankings-the-pulse/
+**It's all sunshine, rainbows and hot dogs for Bears ... but Green Bay awaits**\
+`Everything is brilliant and sunny when the Bears are good. Even facing the favored Packers on the Frozen Tundra is a warm thought.`\
+https://nytimes.com/athletic/6853818/2025/12/02/bears-packers-ben-johnson-nfc-first-place/
 
-**Former England batter Robin Smith, 'an incredible player', dies at 62**\
-`The South Africa-born batter thrived against fast bowling and scored over 4,000 runs for England across an eight-year Test career`\
-https://nytimes.com/athletic/6854648/2025/12/02/robin-smith-dies-england-cricket-obituary/
+**Why the SEC would be the last to give up its championship game**\
+`The SEC was the first conference to have a championship game. It has no immediate plans to give it up.`\
+https://nytimes.com/athletic/6853091/2025/12/02/sec-championship-game-future/
 
-**TAFC: Man Utd's midfield focus for 2026 deals, meet the World Cup draw teams**\
-`Today in TAFC: The midfielders that might help Manchester United move to the next level. Plus: Meet the World Cup draw teams.`\
-https://nytimes.com/athletic/6854608/2025/12/02/manchester-united-midfielder-transfers-2026-world-cup-draw/
+**Wild's Jared Spurgeon turning back clock, plus Jesper Wallstedt to start vs. Oilers**\
+`Other Wild notes heading into Tuesday's Oilers game: Marco Rossi not on the trip, and Danila Yurov hurt.`\
+https://nytimes.com/athletic/6853521/2025/12/02/jared-spurgeon-jesper-wallstedt-wild/
 
-**Devastating Floods Swamp South Asia**\
-`Images of the destruction caused by storms that have torn through South and Southeast Asia.`\
-https://nytimes.com/2025/12/02/world/asia/floods-indonesia-sri-lanka-thailand-photos.html
+**Giants aren't shopping for high-end free agents — here are potential targets**\
+`The Giants aren't intending to spend big money this offseason. Starters who are durable, though not exciting, are likely to be targets.`\
+https://nytimes.com/athletic/6853389/2025/12/02/sf-giants-free-agent-targets-patrick-corbin-justin-verlander/
 
-**One-on-one: Nylander on Berube, Marner and thriving in the Leafs spotlight**\
-`What’s become clear over the years is that Nylander is perfectly suited, in his approach and disposition, to play in Toronto for the Leafs.`\
-https://nytimes.com/athletic/6853142/2025/12/02/william-nylander-on-craig-berube-mitch-marner-and-thriving-in-the-maple-leafs-spotlight/
+**Who should be on the Guardians Hot Stove shopping list? Bullpen depth, outfielders and more**\
+`The Guardians have a lot to check off their list in the coming months. A little holiday shopping can help. 'Tis the season and whatnot.`\
+https://nytimes.com/athletic/6849048/2025/12/02/cleveland-guardians-mlb-hot-stove/
 
