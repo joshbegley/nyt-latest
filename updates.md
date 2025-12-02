@@ -1,3 +1,11 @@
+**Former President of Honduras Is Freed From Prison After Trump Pardon**\
+`Juan Orlando Hernández was accused of flooding the United States with cocaine and had been sentenced to 45 years in prison.`\
+https://nytimes.com/2025/12/02/us/politics/hernandez-honduras-trump.html
+
+**Costco Sues Trump Administration for Refund of Tariffs**\
+`The retail giant is seeking to recover money it has paid this year, should the Supreme Court rule that President Trump’s implementation of tariffs was unlawful.`\
+https://nytimes.com/2025/12/02/us/politics/costco-trump-tariffs-lawsuit.html
+
 **Russia and Belarus skiers successfully appeal against Winter Olympics qualifying ban**\
 `The appeals argued the ban was a breach of statutes and contravened the principles of political neutrality and non-discrimination.`\
 https://nytimes.com/athletic/6854909/2025/12/02/russia-winter-olympics-ban-skiing/
