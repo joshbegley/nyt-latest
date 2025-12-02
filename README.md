@@ -1,3 +1,19 @@
+**Tiger Woods' return to golf remains uncertain 6 weeks after back surgery**\
+`Woods has been cleared by doctors to chip and putt, but said that he will be missing the first half of the TGL season, which starts Dec. 28.`\
+https://nytimes.com/athletic/6855346/2025/12/02/tiger-woods-golf-return-world-hero-challenge/
+
+**How to watch Tennessee vs. Syracuse men's basketball: Time, TV, streaming**\
+`Find out how to watch the Tennessee Volunteers play the Syracuse Orange, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6855466/2025/12/02/tennessee-vs-syracuse-stream-how-to-watch-dec-2/
+
+**How to watch Iowa vs. Michigan State men's basketball: Time, TV, streaming**\
+`Find out how to watch the Iowa Hawkeyes play the Michigan State Spartans, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6855465/2025/12/02/iowa-vs-michigan-state-stream-how-to-watch-dec-2/
+
+**How to watch UConn vs. South Florida women's basketball: Time, TV, streaming**\
+`Find out how to watch the UConn Huskies play the South Florida Bulls, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6855462/2025/12/02/uconn-vs-south-florida-stream-how-to-watch-dec-2/
+
 **Winnipeg Jets report cards: 25 player grades after 25 games**\
 `There aren't a lot of A's to go around after 25 games, given Winnipeg set the Stanley Cup as its goal in September.`\
 https://nytimes.com/athletic/6852518/2025/12/02/winnipeg-jets-report-cards/
@@ -21,20 +37,4 @@ https://nytimes.com/video/podcasts/100000010556592/how-simon-cowell-found-out-ab
 **Serena Williams reenters tennis anti-doping test pool, a requirement for return to competition**\
 `Players in the pool have to be available for daily testing for six months before being allowed to play a competitive event.`\
 https://nytimes.com/athletic/6855313/2025/12/02/serena-williams-tennis-testing-pool-reentry-competition-return/
-
-**Pope Leo XIV Delivers Message of Peace in Lebanon**\
-`The pope ended his first international tour presiding over a waterfront mass to thousands at the site of a 2020 Beirut port explosion, which killed hundreds.`\
-https://nytimes.com/video/world/middleeast/100000010559122/pope-leo-delivers-lebanon-mass.html
-
-**Which NHL division is the best? Making the case for and against each**\
-`Let's lay out each division's strengths and flaws — and then you can cast your vote.`\
-https://nytimes.com/athletic/6855217/2025/12/02/nhl-division-standings-mcindoe-red-light-newsletter/
-
-**Hillsborough report: 12 officers would have faced gross misconduct proceedings**\
-`Investigators found a total of 327 statements from officers were altered in the wake of the 1989 incident, almost one in four. `\
-https://nytimes.com/athletic/6855123/2025/12/02/hillsborough-police-gross-misconduct/
-
-**Sharks and Rays Gain Sweeping Protections From Wildlife Trade**\
-`A global treaty has extended trade protections to more than 70 shark and ray species whose numbers are in sharp decline.`\
-https://nytimes.com/2025/12/02/science/wildlife-trade-cites-sharks-rays.html
 
