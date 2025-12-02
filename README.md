@@ -1,3 +1,7 @@
+**Has Jim Rutherford succeeded as Canucks president? The positives and negatives**\
+`Rutherford is approaching his fourth anniversary at the helm of the Canucks' hockey operations department.`\
+https://nytimes.com/athletic/6851565/2025/12/02/canucks-jim-rutherford-president-tenure/
+
 **How to watch Stars vs. Rangers: Time, TV, streaming**\
 `Find out how to watch the Dallas Stars play the New York Rangers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6855493/2025/12/02/stars-vs-rangers-stream-how-to-watch-dec-2/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6855465/2025/12/02/iowa-vs-michigan-state-stream-ho
 **How to watch UConn vs. South Florida women's basketball: Time, TV, streaming**\
 `Find out how to watch the UConn Huskies play the South Florida Bulls, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6855462/2025/12/02/uconn-vs-south-florida-stream-how-to-watch-dec-2/
-
-**Winnipeg Jets report cards: 25 player grades after 25 games**\
-`There aren't a lot of A's to go around after 25 games, given Winnipeg set the Stanley Cup as its goal in September.`\
-https://nytimes.com/athletic/6852518/2025/12/02/winnipeg-jets-report-cards/
 
