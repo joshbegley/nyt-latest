@@ -1,3 +1,11 @@
+**For Sonny Gray, trade to Red Sox represents chance to win World Series**\
+`“I am who I am, but I definitely think there's room for improvement,” said Gray, who thinks this big-market experience will be different`\
+https://nytimes.com/athletic/6856447/2025/12/02/sonny-gray-red-sox-world-series-trade/
+
+**Suspect in National Guard Shooting Enters Not Guilty Plea**\
+`Rahmanullah Lakanwal, who is accused of killing a National Guard member and gravely wounding another, appeared in court remotely from a hospital bed.`\
+https://nytimes.com/2025/12/02/us/national-guard-shooting-suspect-plea.html
+
 **Immigration Officials Target Afghans for Deportation in Wake of D.C. Shooting**\
 `The stepped-up enforcement comes as the Trump administration has also moved to reassess the vetting of Afghans who came to the country under the Biden administration.`\
 https://nytimes.com/2025/12/02/us/politics/afghans-deportation-shooting.html
