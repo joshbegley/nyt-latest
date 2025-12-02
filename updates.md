@@ -1,3 +1,7 @@
+**Democrats in New Jersey Ram Through Bill to Defang a Corruption Watchdog**\
+`A State Senate committee moved to weaken an office that investigates police misconduct and government waste. Senator Andy Kim spoke in opposition but was cut off after three minutes.`\
+https://nytimes.com/2025/12/02/nyregion/new-jersey-corruption-comptroller-legislation.html
+
 **Snow Falls in New York State as Major Storm Approaches**\
 `Snow affected inland regions of New York and Pennsylvania as tens of millions of people across the Northeast braced for a major winter storm.`\
 https://nytimes.com/2025/12/02/us/snow-winter-storm-northeast-ny-nj.html

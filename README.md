@@ -1,3 +1,7 @@
+**Patriots Defeat Giants, Winning Their 10th Consecutive Game**\
+`The New England Patriots became the first team in the N.F.L. to reach 11 wins in 2025, improving to 11-2 in a victory over the New York Giants that included two touchdown passes from the Patriots quarterback Drake Maye.`\
+https://nytimes.com/video/podcasts/100000010558643/patriots-defeat-giants-winning-their-10th-consecutive-game.html
+
 **Snow Falls in New York State as Major Storm Approaches**\
 `Snow affected inland regions of New York and Pennsylvania as tens of millions of people across the Northeast braced for a major winter storm.`\
 https://nytimes.com/2025/12/02/us/snow-winter-storm-northeast-ny-nj.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/02/nyregion/mamdani-nyc-school-integration.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/12/02/crosswords/spelling-bee-forum.html
-
-**The Transfer DealSheet: 2026 plans for your club in the January and summer windows**\
-`The January window is less than a month away and clubs will be formulating their plans for the summer as well`\
-https://nytimes.com/athletic/6844622/2025/12/02/transfer-latest-2026-january-summer-man-utd-arsenal-liverpool-real-madrid/
 
