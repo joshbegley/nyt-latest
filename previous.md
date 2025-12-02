@@ -1,40 +1,40 @@
-**Haaland breaks 100 Premier League goals record – now can he beat Shearer's overall total?**\
-`The Manchester City striker has reached a century of league goals in just 111 games, and more records are set to tumble`\
-https://nytimes.com/athletic/6828916/2025/12/02/haaland-100-premier-league-goals-record-fastest/
+**How to watch Trail Blazers vs. Raptors: Time, TV, streaming**\
+`Find out how to watch the Portland Trail Blazers play the Toronto Raptors, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6856204/2025/12/02/trail-blazers-vs-raptors-stream-how-to-watch-dec-2/
 
-**Trump Calls Somalis ‘Garbage’ He Doesn’t Want in the Country**\
-`The president delivered xenophobic comments during a publicly broadcast cabinet meeting.`\
-https://nytimes.com/2025/12/02/us/politics/trump-somalia.html
+**How to watch Capitals vs. Kings: Time, TV, streaming**\
+`Find out how to watch the Washington Capitals play the Los Angeles Kings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6856200/2025/12/02/capitals-vs-kings-stream-how-to-watch-dec-2/
 
-**How to watch USC vs. Oregon men's basketball: Time, TV, streaming**\
-`Find out how to watch the USC Trojans play the Oregon Ducks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6856150/2025/12/02/usc-vs-oregon-stream-how-to-watch-dec-2/
+**How to watch Blackhawks vs. Golden Knights: Time, TV, streaming**\
+`Find out how to watch the Chicago Blackhawks play the Vegas Golden Knights, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6856199/2025/12/02/blackhawks-vs-golden-knights-stream-how-to-watch-dec-2/
 
-**How to watch Bengals vs. Bills: Time, TV, streaming**\
-`Find out how to watch the Cincinnati Bengals play the Buffalo Bills, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6856143/2025/12/02/bengals-vs-bills-stream-how-to-watch-dec-7/
+**How to watch Grizzlies vs. Spurs: Time, TV, streaming**\
+`Find out how to watch the Memphis Grizzlies play the San Antonio Spurs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6856196/2025/12/02/grizzlies-vs-spurs-stream-how-to-watch-dec-2/
 
-**How to watch Dolphins vs. Jets: Time, TV, streaming**\
-`Find out how to watch the Miami Dolphins play the New York Jets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6856141/2025/12/02/dolphins-vs-jets-stream-how-to-watch-dec-7/
+**How to watch Maple Leafs vs. Panthers: Time, TV, streaming**\
+`Find out how to watch the Toronto Maple Leafs play the Florida Panthers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6856194/2025/12/02/maple-leafs-vs-panthers-stream-how-to-watch-dec-2/
 
-**How to watch Saints vs. Buccaneers: Time, TV, streaming**\
-`Find out how to watch the New Orleans Saints play the Tampa Bay Buccaneers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6856139/2025/12/02/saints-vs-buccaneers-stream-how-to-watch-dec-7/
+**How to watch Knicks vs. Celtics: Time, TV, streaming**\
+`Find out how to watch the New York Knicks play the Boston Celtics, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6856192/2025/12/02/knicks-vs-celtics-stream-how-to-watch-dec-2/
 
-**How to watch Saint Mary's (CA) vs. USC women's basketball: Time, TV, streaming**\
-`Find out how to watch the Saint Mary's Gaels play the USC Trojans, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6856137/2025/12/02/saint-mary-s-ca-vs-usc-stream-how-to-watch-dec-2/
+**How to watch Timberwolves vs. Pelicans: Time, TV, streaming**\
+`Find out how to watch the Minnesota Timberwolves play the New Orleans Pelicans, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6856190/2025/12/02/timberwolves-vs-pelicans-stream-how-to-watch-dec-2/
 
-**How to watch UConn vs. Kansas men's basketball: Time, TV, streaming**\
-`Find out how to watch the UConn Huskies play the Kansas Jayhawks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6856134/2025/12/02/uconn-vs-kansas-stream-how-to-watch-dec-2/
+**How to watch Flames vs. Predators: Time, TV, streaming**\
+`Find out how to watch the Calgary Flames play the Nashville Predators, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6856188/2025/12/02/flames-vs-predators-stream-how-to-watch-dec-2/
 
-**How to watch Florida vs. Duke men's basketball: Time, TV, streaming**\
-`Find out how to watch the Florida Gators play the Duke Blue Devils, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6856135/2025/12/02/florida-vs-duke-stream-how-to-watch-dec-2/
+**How to watch Thunder vs. Warriors: Time, TV, streaming**\
+`Find out how to watch the Oklahoma City Thunder play the Golden State Warriors, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6856185/2025/12/02/thunder-vs-warriors-stream-how-to-watch-dec-2/
 
-**How to watch North Carolina vs. Kentucky men's basketball: Time, TV, streaming**\
-`Find out how to watch the North Carolina Tar Heels play the Kentucky Wildcats, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6856131/2025/12/02/north-carolina-vs-kentucky-stream-how-to-watch-dec-2/
+**How to watch Wild vs. Oilers: Time, TV, streaming**\
+`Find out how to watch the Minnesota Wild play the Edmonton Oilers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6856182/2025/12/02/wild-vs-oilers-stream-how-to-watch-dec-2/
 
