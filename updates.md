@@ -1,3 +1,7 @@
+**Giants, Patriots scuffle on sideline after hard hit on QB Jaxson Dart**\
+`New York players take exception to legal hit on rookie QB, who has been examined for a concussion four times this year.`\
+https://nytimes.com/athletic/6854006/2025/12/01/giants-patriots-scuffle-jaxson-dart/
+
 **Sources: NYCFC tabs Sacramento's Dunivant as new chief soccer officer**\
 `Dunivant had a standout career in MLS as a player, and he's back in the league after guiding USL Championship's Sacramento Republic`\
 https://nytimes.com/athletic/6853878/2025/12/01/todd-dunivant-nycfc-chief-soccer-officer-mls/
