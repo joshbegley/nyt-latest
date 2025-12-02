@@ -1,3 +1,7 @@
+**Giants' Abdul Carter benched for first quarter vs. Patriots**\
+`This is not the first time Carter has been benched this season.`\
+https://nytimes.com/athletic/6853903/2025/12/01/ny-giants-abdul-carter-benched-patriots/
+
 **How to watch Indiana vs. Ohio State: Big Ten Championship Time, TV, streaming**\
 `Find out how to watch the Indiana Hoosiers play the Ohio State Buckeyes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6853909/2025/12/01/indiana-vs-ohio-state-stream-how-to-watch-dec-6/
