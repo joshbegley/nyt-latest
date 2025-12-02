@@ -6,6 +6,10 @@ https://nytimes.com/interactive/2025/12/02/us/elections/results-jersey-city-mayo
 `James Pugh, one of two men originally convicted in the killing, had already spent 25 years in prison. He said all along that he was innocent.`\
 https://nytimes.com/2025/12/02/nyregion/tonawanda-murder-charges-dropped-james-pugh.html
 
+**2025 NFL Simulator: Updated playoff picture and projected draft order after Week 13 results**\
+`How could your favorite team's season end? Find out all the possible paths here.`\
+https://nytimes.com/athletic/6513952/2025/12/02/2025-nfl-playoff-simulator-path-postseason/
+
 **Tennessee Seventh District Special Election Results**\
 `Get live results and maps from the 2025 Tennessee congressional special election.`\
 https://nytimes.com/interactive/2025/12/02/us/elections/results-tennessee-us-house-7-special.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6854399/2025/12/02/new-england-patriots-mailbag-bye
 **Finding the Magic, Just in Time (Encore)**\
 `Clare Cory was 59 years old and had been single almost her whole life. She thought her love story was over. Then everything changed.`\
 https://nytimes.com/2025/12/02/podcasts/finding-the-magic-just-in-time-encore.html
-
-**Critical fantasy football insights for Week 14: The Jordan Love to Christian Watson era**\
-`Brandon Funston and Jess Bryant look at usage metrics to give actionable Week 14 fantasy football advice. `\
-https://nytimes.com/athletic/6852464/2025/12/02/critical-fantasy-football-insights-usage-week-14/
 
