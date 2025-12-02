@@ -1,3 +1,7 @@
+**Could Red Wings find a spark via trade?**\
+`The slumping Red Wings could use a spark. Is a trade the solution?`\
+https://nytimes.com/athletic/6853311/2025/12/02/detroit-red-wings-trade-candidates-defense-forwards/
+
 **Team USA cruises in World Cup qualifying as MarJon Beauchamp makes case for NBA call**\
 `Monday night's Team USA blowout over Nicaragua was a Beauchamp showcase. Will NBA teams be interested in him?`\
 https://nytimes.com/athletic/6854279/2025/12/02/marjon-beauchamp-team-usa-world-cup/
