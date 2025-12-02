@@ -1,3 +1,15 @@
+**China, Evoking World War II, Urges Europe to Take Its Side Against Japan**\
+`A diplomatic row with Japan over Taiwan has China turning to Britain and France for support, appealing to their shared history as wartime allies.`\
+https://nytimes.com/2025/12/02/world/asia/china-japan-taiwan-europe.html
+
+**Late Night Lashes Out at Trump’s Tim Walz Taunt**\
+`“On Thanksgiving? Are you confusing that with Festivus?” Jon Stewart said of President Trump’s Truth Social post insulting the Minnesota governor’s intelligence.`\
+https://nytimes.com/2025/12/02/arts/television/late-night-trump-tim-walz.html
+
+**Thousands Greet Pope Leo in Lebanon, as He Prays at Beirut Blast Site**\
+`A prayer at the site of the 2020 Beirut explosion and a waterfront Mass capped his three-day visit to the Middle Eastern nation with the highest proportion of Christians.`\
+https://nytimes.com/2025/12/02/world/middleeast/pope-leo-beirut-lebanon.html
+
 **Democrats in New Jersey Ram Though Bill to Defang a Corruption Watchdog**\
 `A State Senate committee moved to weaken an office that investigates police misconduct and government waste. Senator Andy Kim spoke in opposition but was cut off after three minutes.`\
 https://nytimes.com/2025/12/02/nyregion/new-jersey-corruption-comptroller-legislation.html
