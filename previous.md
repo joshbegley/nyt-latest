@@ -1,3 +1,11 @@
+**Ukraine Is Still Worth Fighting For**\
+`Don’t let Trump sell out its freedom for business deals with Putin.`\
+https://nytimes.com/2025/12/02/opinion/ukraine-russia-peace-plan-business-deal.html
+
+**Trump Calls Affordability a ‘Con Job’ as His Edge on the Economy Slips**\
+`President Trump is growing frustrated as Americans struggle with higher prices and pessimism over the state of the economy.`\
+https://nytimes.com/2025/12/02/us/politics/trump-affordability-economy-messaging.html
+
 **For Sonny Gray, trade to Red Sox represents chance to win World Series**\
 `“I am who I am, but I definitely think there's room for improvement,” said Gray, who thinks this big-market experience will be different`\
 https://nytimes.com/athletic/6856447/2025/12/02/sonny-gray-red-sox-world-series-trade/
@@ -25,12 +33,4 @@ https://nytimes.com/video/us/politics/100000010560175/trump-tariffs-costco-lawsu
 **Kalani Sitake will stay at BYU despite strong interest from Penn State: Source**\
 `It puts to rest the start of an angsty week as the No. 11 Cougars are set to face No. 5 Texas Tech Saturday for the Big 12 title.`\
 https://nytimes.com/athletic/6855506/2025/12/02/kalani-sitake-byu-coach-penn-state-carousel/
-
-**Trump Pardons Honduran Ex-President Convicted in Drug Case**\
-`President Trump has pardoned the former president of Honduras, Juan Orlando Hernández, who was sentenced to 45 years in prison for partnering with cocaine traffickers to import the drug into the United States.`\
-https://nytimes.com/video/us/100000010559962/trump-pardon-honduras-hernandez.html
-
-**Haaland hits 100, Fulham's almost magnificent comeback: The Briefing**\
-`Manchester City move to within two points of Premier League leaders Arsenal on a night Erling Haaland broke an Alan Shearer record`\
-https://nytimes.com/athletic/6851572/2025/12/02/fulham-4-manchester-city-5-haaland-100-goals/
 

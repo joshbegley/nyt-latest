@@ -1,3 +1,11 @@
+**Ukraine Is Still Worth Fighting For**\
+`Don’t let Trump sell out its freedom for business deals with Putin.`\
+https://nytimes.com/2025/12/02/opinion/ukraine-russia-peace-plan-business-deal.html
+
+**Trump Calls Affordability a ‘Con Job’ as His Edge on the Economy Slips**\
+`President Trump is growing frustrated as Americans struggle with higher prices and pessimism over the state of the economy.`\
+https://nytimes.com/2025/12/02/us/politics/trump-affordability-economy-messaging.html
+
 **For Sonny Gray, trade to Red Sox represents chance to win World Series**\
 `“I am who I am, but I definitely think there's room for improvement,” said Gray, who thinks this big-market experience will be different`\
 https://nytimes.com/athletic/6856447/2025/12/02/sonny-gray-red-sox-world-series-trade/
