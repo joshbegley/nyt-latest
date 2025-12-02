@@ -1,3 +1,7 @@
+**Critical fantasy football insights for Week 14: The Jordan Love to Christian Watson era**\
+`Brandon Funston and Jess Bryant look at usage metrics to give actionable Week 14 fantasy football advice. `\
+https://nytimes.com/athletic/6852464/2025/12/02/critical-fantasy-football-insights-usage-week-14/
+
 **NHL to remind teams about mandatory helmets during warmups**\
 `Three NHL teams have taken to the ice helmetless over the last week.`\
 https://nytimes.com/athletic/6855479/2025/12/02/nhl-helmets-warmup-senators-sharks-devils/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/02/us/politics/ice-somali-migrants-minneapolis-st-pa
 **Seasonal Giving**\
 `What can you do for others this holiday season?`\
 https://nytimes.com/2025/12/02/learning/seasonal-giving.html
-
-**Prime Tire: Grading big Red Bull moves and breaking down championship stakes**\
-`Welcome to Prime Tire, The Athletic's F1 newsletter.`\
-https://nytimes.com/athletic/6853606/2025/12/02/red-bull-moves-f1-championship-prime-tire/
 

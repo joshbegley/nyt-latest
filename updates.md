@@ -1,3 +1,23 @@
+**NHL to remind teams about mandatory helmets during warmups**\
+`Three NHL teams have taken to the ice helmetless over the last week.`\
+https://nytimes.com/athletic/6855479/2025/12/02/nhl-helmets-warmup-senators-sharks-devils/
+
+**Sonny Gray, new Red Sox starter, on pitching for Yankees: 'I never wanted to go there'**\
+`Gray added that the experience in New York shaped him over the ensuing seven seasons.`\
+https://nytimes.com/athletic/6855549/2025/12/02/sonny-gray-did-not-want-to-pitch-for-yankees/
+
+**Submit questions for Nate Atkins' Rams mailbag**\
+`Atkins will consider your questions for his upcoming mailbag with the Rams sitting at 9-3 following a disappointing loss to the Panthers. `\
+https://nytimes.com/athletic/6855678/2025/12/02/rams-mailbag-week-14-cardinals/
+
+**Until Saturday: Hirings, firings and cross-country cookie $**\
+`Until Saturday is The Athletic's free college football newsletter.`\
+https://nytimes.com/athletic/6855679/2025/12/02/college-football-coaching-carousel-until-saturday-2/
+
+**Jared Curtis, No. 1 recruit in 2026, pushes back on reports he's flipped to Vandy**\
+`If he chooses the Commodores, Curtis would be the Vanderbilt's first five-star prospect of the modern recruiting era. `\
+https://nytimes.com/athletic/6833213/2025/12/02/jared-curtis-recruiting-vanderbilt-flip-georgia/
+
 **Rihanna, Jacob Elordi and Julia Roberts Kick Off Red Carpet Season in New York**\
 `It was all roast beef, chocolate cake and air kisses at the Gotham Awards in Lower Manhattan.`\
 https://nytimes.com/2025/12/02/style/gotham-awards-celebrities-winners.html
