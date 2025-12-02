@@ -1,40 +1,40 @@
-**Predicting the CFP Top 25: What will the committee do with JMU, Ole Miss and more?**\
-`What our projections model think Tuesday night's penultimate College Football Playoff Top 25 rankings will be.`\
-https://nytimes.com/athletic/6853237/2025/12/02/college-football-playoff-rankings-predictions-december-2/
+**Panthers taking it 1 game at a time, but beating Bucs essential to playoff run**\
+`Carolina's most straightforward road to the playoffs is by winning the NFC South and their two games vs. Tampa Bay loom large.`\
+https://nytimes.com/athletic/6853209/2025/12/02/carolina-panthers-playoff-chances-nfc-south/
 
-**'Of course he wasn't happy' - Salah's Liverpool omission explained by Slot**\
-`Sunday was the first time the Egyptian attacker had not started a Premier League game since April 2024 and followed a poor run of form.`\
-https://nytimes.com/athletic/6854612/2025/12/02/mohamed-salah-liverpool-team-news/
+**Vikings seem likely to return to all-too-familiar QB market this offseason**\
+`The way things have gone this season, the Vikings are going to need insurance at QB — someone to compete with J.J. McCarthy, at minimum.`\
+https://nytimes.com/athletic/6853337/2025/12/02/vikings-jj-mccarthy-quarterback-market-free-agency/
 
-**NFL Week 14 power rankings: Patriots and Bears rise as Chiefs, Rams and Eagles fall**\
-`Week 13 brought drama as the Rams, Eagles and Chiefs all lost. So as we crown a new No. 1, we examine the best-case scenario for each team.`\
-https://nytimes.com/athletic/6852509/2025/12/02/nfl-power-rankings-week-14-patriots-bears-chiefs-rams-eagles/
+**If Kyle Tucker is out of the picture, Cubs could turn to pair of rookie replacements**\
+`The runway for young hitters Owen Caissie and Moisés Ballesteros to develop and improve at the major-league level has been set.`\
+https://nytimes.com/athletic/6854072/2025/12/02/chicago-cubs-kyle-tucker-replacement-options/
 
-**When MLB created a fan council, it wasn't long before league made its pitch on labor issues**\
-`“One of the biggest things that came into my mind was like, ‘Why us?’” said one of the fan council members after MLB's presentation. `\
-https://nytimes.com/athletic/6853090/2025/12/02/mlb-fan-council-labor-competitive-balance/
+**Messi in MLS Cup could mark the league's Caitlin Clark must-see-TV moment**\
+`MLS is still chasing mass viewership that should accompany a transcendent star. With Messi on an MLS Cup stage on network TV, now's the time`\
+https://nytimes.com/athletic/6854360/2025/12/02/messi-in-mls-cup-could-mark-the-leagues-caitlin-clark-must-see-tv-moment/
 
-**NFL QB stock report, Week 14: Can dialed-in Dak Prescott lead Cowboys to the playoffs?**\
-`Prescott jumps into the top five of this week's QB stock report, while Ravens QB Lamar Jackson tumbles down the rankings. `\
-https://nytimes.com/athletic/6852710/2025/12/02/nfl-qb-stock-report-rankings-dak-prescott-cowboys/
+**Norris, Verstappen or Piastri? A championship rooting guide for other F1 fan bases**\
+`Many F1 fans don't have a dog in the fight this weekend. We're here to help.`\
+https://nytimes.com/athletic/6852996/2025/12/02/f1-2025-championship-rooting-guide/
 
-**The New York Times International Edition in Print for Wednesday, Dec. 3, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/12/02/todays-new-york-times-international-edition
+**Why NBA stars are missing more games than ever, and what it means for awards**\
+`How the NBA's 65-game threshold could dramatically impact the league's end-of-season awards.`\
+https://nytimes.com/athletic/6829740/2025/12/02/nba-threshold-awards-injury/
 
-**Talking About Our 10 Best Books of 2025**\
-`We made a list! Now we explain why we love the books we chose.`\
-https://nytimes.com/2025/12/02/books/review/podcast-10-best-books.html
+**How Josh Norris helped lift Sabres to 5-1 win over Jets in his return**\
+`Monday's game was the fifth Norris has played with the Sabres, and he showed what he can by providing two goals and an assist`\
+https://nytimes.com/athletic/6854323/2025/12/02/josh-norris-return-sabres-jets/
 
-**What to Watch For in the Last Big Election of 2025**\
-`A special election for a House seat in Tennessee was supposed to be an easy Republican victory. But national spending and Democratic enthusiasm have made it an unusually high-profile race.`\
-https://nytimes.com/2025/12/02/us/politics/tennessee-house-behn-van-epps.html
+**How the biggest World Cup will be different**\
+`The 2026 World Cup will be bigger, bolder and the organisers hope the best yet. It will also be very different...`\
+https://nytimes.com/athletic/6798308/2025/12/02/world-cup-2026-biggest-different/
 
-**A Dark Sky Paints the Stars in a New Light**\
-`A space reporter traveled to Upper Michigan, where she rediscovered a sense of cosmic wonder.`\
-https://nytimes.com/2025/12/02/insider/stargazing-right-to-night.html
+**Inside Matthew Schaefer's 'big brother' bond with the Folignos: Love, loss and life after tragedy**\
+`Marcus and Nick Foligno, whose mother died of breast cancer, reached out to Schaefer after his mother also died of the disease in 2024.`\
+https://nytimes.com/athletic/6850055/2025/12/02/matthew-schaefer-marcus-nick-foligno-nhl/
 
-**This Is How Mamdani Can Pay for Free Buses**\
-`Free buses would be transformative not only for riders, but for the ecosystem of the city as a whole.`\
-https://nytimes.com/2025/12/02/opinion/mamdani-free-buses-parking.html
+**What I'm hearing about Cardinals' trade plans as Winter Meetings approach**\
+`Trading Nolan Arenado, and quite possibly Willson Contreras, are foremost on the minds of the St. Louis front office.`\
+https://nytimes.com/athletic/6852885/2025/12/02/cardinals-trade-plans-winter-meetings/
 
