@@ -1,3 +1,11 @@
+**Word of the Day: ineffable**\
+`This word has appeared in 44 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/12/02/learning/word-of-the-day-ineffable.html
+
+**England opt for Will Jacks as only change for second Test at the Gabba**\
+`Surrey all-rounder replaces Mark Wood for the day-night game in Brisbane and provides a spinning option as visitors seek to level series`\
+https://nytimes.com/athletic/6854488/2025/12/02/will-jacks-england-brisbane-australia/
+
 **Japan Has Changed How the World Must Think About Taiwan**\
 `The Japanese leader’s candor over Taiwan brought the shared regional stakes out into the open, and the U.S. must stand behind its ally.`\
 https://nytimes.com/2025/12/02/opinion/china-us-japan-security-taiwan.html
