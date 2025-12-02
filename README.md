@@ -1,3 +1,11 @@
+**Trial date set for players Emmanuel Clase, Luis Ortiz involved in betting scheme**\
+`The trial for the two players, accused of altering pitches as part of an illegal sports gambling ring, has been set for May. `\
+https://nytimes.com/athletic/6855743/2025/12/02/emmanuel-clase-luis-ortiz-mlb-betting-scheme-trial/
+
+**Blues sports betting explainer: What does it mean for fans? What's the impact on the club?**\
+`With sports betting legalized in Missouri on Monday, the Blues give their perspective on what it will mean for fans and the organization.`\
+https://nytimes.com/athletic/6797972/2025/12/02/blues-sports-betting-explainer/
+
 **Patriots mailbag: Submit your bye week questions for reporter Chad Graff**\
 `As everything continues to come up Patriots, let’s reset by answering some of your questions. Leave your mailbag questions below.`\
 https://nytimes.com/athletic/6854399/2025/12/02/new-england-patriots-mailbag-bye-week/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6855679/2025/12/02/college-football-coaching-carous
 **Rihanna, Jacob Elordi and Julia Roberts Kick Off Red Carpet Season in New York**\
 `It was all roast beef, chocolate cake and air kisses at the Gotham Awards in Lower Manhattan.`\
 https://nytimes.com/2025/12/02/style/gotham-awards-celebrities-winners.html
-
-**Jared Curtis, No. 1 recruit in 2026, pushes back on reports he's flipped to Vandy**\
-`If he chooses the Commodores, Curtis would be the Vanderbilt's first five-star prospect of the modern recruiting era. `\
-https://nytimes.com/athletic/6833213/2025/12/02/jared-curtis-recruiting-vanderbilt-flip-georgia/
-
-**How Ruben Amorim is 'stealing' set-piece ideas from opponents and implementing them at Man Utd**\
-`The manager is carefully evaluating how other teams approach dead-ball situations before taking and adapting the best bits for his own side`\
-https://nytimes.com/athletic/6854607/2025/12/02/manchester-united-amorim-set-pieces-premier-league/
 

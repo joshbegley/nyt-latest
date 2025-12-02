@@ -1,3 +1,7 @@
+**Patriots mailbag: Submit your bye week questions for reporter Chad Graff**\
+`As everything continues to come up Patriots, let’s reset by answering some of your questions. Leave your mailbag questions below.`\
+https://nytimes.com/athletic/6854399/2025/12/02/new-england-patriots-mailbag-bye-week/
+
 **Finding the Magic, Just in Time (Encore)**\
 `Clare Cory was 59 years old and had been single almost her whole life. She thought her love story was over. Then everything changed.`\
 https://nytimes.com/2025/12/02/podcasts/finding-the-magic-just-in-time-encore.html
