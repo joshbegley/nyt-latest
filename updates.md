@@ -1,3 +1,15 @@
+**Questions and Answers About the ‘Trump Accounts’ for Children the Dells Are Supporting**\
+`Next year, Michael and Susan Dell plan to move $250 into the new Trump accounts of millions of children under 10. You’ll need to live in the right ZIP code.`\
+https://nytimes.com/2025/12/02/business/trump-accounts-children-dell.html
+
+**120,000 Home Cameras Were Hacked for Sexual Videos, South Korean Police Say**\
+`The authorities arrested four people this week in the latest turn in the country’s battle against the infiltration of private security devices.`\
+https://nytimes.com/2025/12/02/world/asia/south-korea-cameras-hacked.html
+
+**Michael and Susan Dell to Put $250 in 25 Million Children’s Accounts**\
+`The tech billionaire and his wife hope other philanthropists follow their $6 billion lead in expanding the reach of soon-to-be-created “Trump accounts.”`\
+https://nytimes.com/2025/12/02/business/dell-children-trump-accounts.html
+
 **The Bulls' losing script against Magic feels all too familiar**\
 `Short-handed and outmuscled, Chicago lost for the fourth straight time and has seen its promising early start evaporate.`\
 https://nytimes.com/athletic/6854653/2025/12/02/bulls-magic-losing-streak-billy-donovan/

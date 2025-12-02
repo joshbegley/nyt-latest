@@ -1,3 +1,15 @@
+**Questions and Answers About the ‘Trump Accounts’ for Children the Dells Are Supporting**\
+`Next year, Michael and Susan Dell plan to move $250 into the new Trump accounts of millions of children under 10. You’ll need to live in the right ZIP code.`\
+https://nytimes.com/2025/12/02/business/trump-accounts-children-dell.html
+
+**120,000 Home Cameras Were Hacked for Sexual Videos, South Korean Police Say**\
+`The authorities arrested four people this week in the latest turn in the country’s battle against the infiltration of private security devices.`\
+https://nytimes.com/2025/12/02/world/asia/south-korea-cameras-hacked.html
+
+**Michael and Susan Dell to Put $250 in 25 Million Children’s Accounts**\
+`The tech billionaire and his wife hope other philanthropists follow their $6 billion lead in expanding the reach of soon-to-be-created “Trump accounts.”`\
+https://nytimes.com/2025/12/02/business/dell-children-trump-accounts.html
+
 **The Bulls' losing script against Magic feels all too familiar**\
 `Short-handed and outmuscled, Chicago lost for the fourth straight time and has seen its promising early start evaporate.`\
 https://nytimes.com/athletic/6854653/2025/12/02/bulls-magic-losing-streak-billy-donovan/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6854620/2025/12/02/uswnt-emma-hayes-2025-recap/
 **Brighton boss Hurzeler relaxed about Georginio Rutter's frustration against Forest**\
 `Rutter was visibly unhappy that he was taken off early in the second half of Sunday's 2-0 win over Nottingham Forest.`\
 https://nytimes.com/athletic/6854797/2025/12/02/fabian-hurzeler-brighton-georginio-rutter-substituted/
-
-**How to fix LSU: Lane Kiffin's to-do list to get the Tigers back to championship form**\
-`Figuring out the quarterback situation for the 2026 season will be among Kiffin's most important tasks at LSU. `\
-https://nytimes.com/athletic/6850939/2025/12/02/lsu-lane-kiffin-roster-transfer-recruiting/
-
-**How much does a high school football recruit earn in the NIL and revenue-sharing era?**\
-`Similar to their college and pro counterparts, Power 4 quarterback recruits are often the highest-paid among their peers.`\
-https://nytimes.com/athletic/6852076/2025/12/02/high-school-recruiting-nil-quarterback/
-
-**Top assignment for next Giants coach: Keep Jaxson Dart available**\
-`New York's quarterback isn't planning on changing his playing style anytime soon, meaning a new coach must be able to save him from himself.`\
-https://nytimes.com/athletic/6854403/2025/12/02/jaxson-dart-ny-giants-next-coach/
 
