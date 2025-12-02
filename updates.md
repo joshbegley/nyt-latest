@@ -1,3 +1,11 @@
+**Catarina Macario scores again as USWNT shuts out Italy twice to end the year**\
+`U.S. head coach Emma Hayes ends year of experimenting on a high note`\
+https://nytimes.com/athletic/6853977/2025/12/01/catarina-macario-scores-uswnt-italy-win/
+
+**Devin Williams, Mets in agreement on 3-year, $45 million deal: Source**\
+`Even though Williams had the 12th-worst ERA among all relievers, there's reason to believe he can return to being a dominant closer.`\
+https://nytimes.com/athletic/6807796/2025/12/01/devin-williams-new-york-mets-deal-source/
+
 **Michael Jordan vs. NASCAR trial Day 1 takeaways: This is really happening**\
 `Our thoughts and impressions from inside the courtroom on the first day of the trial in the NASCAR antitrust lawsuit case.`\
 https://nytimes.com/athletic/6853864/2025/12/01/michael-jordan-nascar-trial-day-1/
