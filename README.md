@@ -1,3 +1,11 @@
+**Tennessee Seventh District Special Election Results**\
+`Get live results and maps from the 2025 Tennessee congressional special election.`\
+https://nytimes.com/interactive/2025/12/02/us/elections/results-tennessee-us-house-7-special.html
+
+**Jersey City Mayoral Runoff Election Results**\
+`Get live results and maps from the 2025 Jersey City mayoral runoff election in New Jersey. `\
+https://nytimes.com/interactive/2025/12/02/us/elections/results-jersey-city-mayor-runoff.html
+
 **Amid losing streak, Commanders get strong showings from less heralded players**\
 `In a disappointing season, Washington has discovered some valuable, if unheralded, performers. Here are a few.`\
 https://nytimes.com/athletic/6855608/2025/12/02/commanders-jeremy-mcnichols-chris-rodriguez-offensive-line/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6855479/2025/12/02/nhl-helmets-warmup-senators-shar
 **Sonny Gray, new Red Sox starter, on pitching for Yankees: 'I never wanted to go there'**\
 `Gray added that the experience in New York shaped him over the ensuing seven seasons.`\
 https://nytimes.com/athletic/6855549/2025/12/02/sonny-gray-did-not-want-to-pitch-for-yankees/
-
-**Submit questions for Nate Atkins' Rams mailbag**\
-`Atkins will consider your questions for his upcoming mailbag with the Rams sitting at 9-3 following a disappointing loss to the Panthers. `\
-https://nytimes.com/athletic/6855678/2025/12/02/rams-mailbag-week-14-cardinals/
-
-**Until Saturday: Hirings, firings and cross-country cookie $**\
-`Until Saturday is The Athletic's free college football newsletter.`\
-https://nytimes.com/athletic/6855679/2025/12/02/college-football-coaching-carousel-until-saturday-2/
 
