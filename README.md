@@ -1,3 +1,7 @@
+**Snow Falls in New York State as Major Storm Approaches**\
+`Snow affected inland regions of New York and Pennsylvania as tens of millions of people across the Northeast braced for a major winter storm.`\
+https://nytimes.com/2025/12/02/us/snow-winter-storm-northeast-ny-nj.html
+
 **China, Evoking World War II, Urges Europe to Take Its Side Against Japan**\
 `A diplomatic row with Japan over Taiwan has China turning to Britain and France for support, appealing to their shared history as wartime allies.`\
 https://nytimes.com/2025/12/02/world/asia/china-japan-taiwan-europe.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/02/crosswords/spelling-bee-forum.html
 **The Transfer DealSheet: 2026 plans for your club in the January and summer windows**\
 `The January window is less than a month away and clubs will be formulating their plans for the summer as well`\
 https://nytimes.com/athletic/6844622/2025/12/02/transfer-latest-2026-january-summer-man-utd-arsenal-liverpool-real-madrid/
-
-**Aston Villa Transfer DealSheet: What to expect in 2026**\
-`Who will make key decisions over the two windows? What positions will they be looking at in 2026? Who will they be looking to sell?`\
-https://nytimes.com/athletic/6822840/2025/12/02/aston-villa-transfer-dealsheet-what-to-expect-in-2026/
 
