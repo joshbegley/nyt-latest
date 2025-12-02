@@ -1,3 +1,11 @@
+**Word of the Day: ineffable**\
+`This word has appeared in 44 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/12/02/learning/word-of-the-day-ineffable.html
+
+**England opt for Will Jacks as only change for second Test at the Gabba**\
+`Surrey all-rounder replaces Mark Wood for the day-night game in Brisbane and provides a spinning option as visitors seek to level series`\
+https://nytimes.com/athletic/6854488/2025/12/02/will-jacks-england-brisbane-australia/
+
 **The New York Times in Print for Tuesday, Dec. 2, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/12/02/todays-new-york-times
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6851683/2025/12/02/bukayo-saka-assist-stats-premier
 **Leeds United Transfer DealSheet: What to expect in 2026**\
 `Leeds are struggling in the Premier League and will be eyeing January as an opportunity to improve their situation`\
 https://nytimes.com/athletic/6837440/2025/12/02/leeds-transfer-latest-january-summer-2026/
-
-**West Ham Transfer DealSheet: What to expect in 2026**\
-`What business are West Ham likely to do in January and beyond? We look at the potential ins and outs`\
-https://nytimes.com/athletic/6836016/2025/12/02/west-ham-transfer-dealsheet-2026/
-
-**After a big win over the Clippers, Norman Powell is no longer worried about them**\
-`The LA Clippers are not Powell's problem, but he was a problem for his old team this season.`\
-https://nytimes.com/athletic/6854269/2025/12/02/norman-powell-clippers-record-heat-trade/
 
