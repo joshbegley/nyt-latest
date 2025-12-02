@@ -1,3 +1,19 @@
+**Tavita Pritchard begins new chapter at Stanford, reuniting with Andrew Luck**\
+`At a packed news conference at Stanford Stadium, Luck and Pritchard traded humorous barbs about a relationship that began in 2008.`\
+https://nytimes.com/athletic/6856166/2025/12/02/stanford-tavita-pritchard-coach-andrew-luck/
+
+**Our Top Editor Answers Questions**\
+`Joe Kahn, The New York Times’s executive editor, was asked about how we cover the news and make judgment calls in our reporting and editing.`\
+https://nytimes.com/2025/12/02/world/executive-editor-reader-questions-ukraine-putin-best-books.html
+
+**Abdul Carter benched again after missing meeting: 'I let my team down'**\
+`This is not the first time the rookie pass rusher has been benched this season.`\
+https://nytimes.com/athletic/6853903/2025/12/02/ny-giants-abdul-carter-benched-patriots/
+
+**Best Movies of 2025**\
+`Our film critics rank their 10 favorites of the year.`\
+https://nytimes.com/2025/12/02/movies/best-movies-2025.html
+
 **Blues' Jordan Binnington responds to being pulled against Ducks: 'It was quick'**\
 `Binnington gave up two goals on five shots and was not happy about being pulled from a game which the Blues trailed 2-1.`\
 https://nytimes.com/athletic/6855852/2025/12/02/blues-jordan-binnington-pulled-response/
@@ -21,20 +37,4 @@ https://nytimes.com/video/world/europe/100000010560129/putin-russia-ukraine-zele
 **NFL MVP odds: Dak Prescott breaks through, Drake Maye takes the lead**\
 `Can Prescott or Jordan Love — or anyone — challenge the two at the top?`\
 https://nytimes.com/athletic/6855460/2025/12/02/nfl-mvp-odds-dak-prescott-drake-maye-matthew-stafford/
-
-**How to watch Trail Blazers vs. Raptors: Time, TV, streaming**\
-`Find out how to watch the Portland Trail Blazers play the Toronto Raptors, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6856204/2025/12/02/trail-blazers-vs-raptors-stream-how-to-watch-dec-2/
-
-**How to watch Capitals vs. Kings: Time, TV, streaming**\
-`Find out how to watch the Washington Capitals play the Los Angeles Kings, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6856200/2025/12/02/capitals-vs-kings-stream-how-to-watch-dec-2/
-
-**How to watch Blackhawks vs. Golden Knights: Time, TV, streaming**\
-`Find out how to watch the Chicago Blackhawks play the Vegas Golden Knights, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6856199/2025/12/02/blackhawks-vs-golden-knights-stream-how-to-watch-dec-2/
-
-**How to watch Grizzlies vs. Spurs: Time, TV, streaming**\
-`Find out how to watch the Memphis Grizzlies play the San Antonio Spurs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6856196/2025/12/02/grizzlies-vs-spurs-stream-how-to-watch-dec-2/
 
