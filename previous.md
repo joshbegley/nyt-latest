@@ -1,3 +1,23 @@
+**'Of course he wasn't happy' - Salah's Liverpool omission explained by Slot**\
+`Sunday was the first time the Egyptian attacker had not started a Premier League game since April 2024 and followed a poor run of form.`\
+https://nytimes.com/athletic/6854612/2025/12/02/mohamed-salah-liverpool-team-news/
+
+**NFL Week 14 power rankings: Patriots and Bears rise as Chiefs, Rams and Eagles fall**\
+`Week 13 brought drama as the Rams, Eagles and Chiefs all lost. So as we crown a new No. 1, we examine the best-case scenario for each team.`\
+https://nytimes.com/athletic/6852509/2025/12/02/nfl-power-rankings-week-14-patriots-bears-chiefs-rams-eagles/
+
+**When MLB created a fan council, it wasn't long before league made its pitch on labor issues**\
+`“One of the biggest things that came into my mind was like, ‘Why us?’” said one of the fan council members after MLB's presentation. `\
+https://nytimes.com/athletic/6853090/2025/12/02/mlb-fan-council-labor-competitive-balance/
+
+**NFL QB stock report, Week 14: Can dialed-in Dak Prescott lead Cowboys to the playoffs?**\
+`Prescott jumps into the top five of this week's QB stock report, while Ravens QB Lamar Jackson tumbles down the rankings. `\
+https://nytimes.com/athletic/6852710/2025/12/02/nfl-qb-stock-report-rankings-dak-prescott-cowboys/
+
+**The New York Times International Edition in Print for Wednesday, Dec. 3, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/12/02/todays-new-york-times-international-edition
+
 **Talking About Our 10 Best Books of 2025**\
 `We made a list! Now we explain why we love the books we chose.`\
 https://nytimes.com/2025/12/02/books/review/podcast-10-best-books.html
@@ -17,24 +37,4 @@ https://nytimes.com/2025/12/02/opinion/mamdani-free-buses-parking.html
 **The Aesthetic That Explains American Identity Now**\
 `Why country and cowboys have a hold on our culture and our political imagination.`\
 https://nytimes.com/2025/12/02/opinion/rural-aesthetics-american-politics.html
-
-**Republicans Are Misreading What Suburban Voters Want**\
-`Suburban professionals want amenities, not austerity.`\
-https://nytimes.com/2025/12/02/opinion/property-tax-suburbs-gop.html
-
-**Why Are There So Many Films Right Now Based on the Bible?**\
-`Films that take their stories from the Old or New Testament are filling screens big and small. To understand why, it helps to know Hollywood history.`\
-https://nytimes.com/2025/12/02/movies/bible-movies-the-carpenters-son-ruth-and-boaz.html
-
-**The U.S. Is Funding Fewer Grants in Every Area of Science and Medicine**\
-`A quiet policy change means the government is making fewer bets on long-term science.`\
-https://nytimes.com/interactive/2025/12/02/upshot/trump-science-funding-cuts.html
-
-**The 14 Best Cookbooks of 2025**\
-`Exceptional new cookbooks, with fresh takes on easy baking, Thai cooking in America and seasonal pasta, as tested by New York Times Cooking and the Food desk.`\
-https://nytimes.com/2025/12/02/dining/best-cookbooks.html
-
-**The Dark Secrets of the Writer Behind ‘Train Dreams’**\
-`An adaptation of Denis Johnson’s novella arrives at the same time as a new biography, unlocking one of his best-loved and least-understood books.`\
-https://nytimes.com/2025/12/02/magazine/train-dreams-netflix-denis-johnson-biography.html
 
