@@ -1,6 +1,6 @@
 **Losing possession is plaguing the Bucks and costing them games**\
 `Milwaukee desperately needs to find a way to fix its possession problem if it wants to discover a winning formula this season.`\
-https://nytimes.com/athletic/6853459/2025/12/02/milwaukee-bucks-possession-offensive-rebounds-changebucks-continue-to-lose-the-possession-battle-and-because-of-it-games/
+https://nytimes.com/athletic/6853459/2025/12/02/bucks-lose-possession-battle-costing-games/
 
 **Aaron Gleeman's Twins mailbag: Submit your pre-Winter Meetings questions**\
 `It’s been a predictably slow first month of the offseason for the Twins, but that could change soon.`\
