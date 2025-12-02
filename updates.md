@@ -1,3 +1,7 @@
+**Trump Intervenes Again in Honduras Vote, Alleging Fraud Without Evidence**\
+`Honduras was on edge after tallies showed two candidates separated by about 500 votes. Then President Trump claimed that officials were rigging results.`\
+https://nytimes.com/2025/12/02/world/americas/honduras-presidential-vote-trump.html
+
 **Word of the Day: ineffable**\
 `This word has appeared in 44 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/12/02/learning/word-of-the-day-ineffable.html

@@ -1,3 +1,7 @@
+**Australia opener Khawaja out of second Ashes Test with back injury**\
+`The 38-year-old had been due to open the batting alongside Test debutant Jake Weatherald in the opening Test in Perth.`\
+https://nytimes.com/athletic/6854550/2025/12/02/ashes-team-news-australia-khawaja-injury/
+
 **Trump Intervenes Again in Honduras Vote, Alleging Fraud Without Evidence**\
 `Honduras was on edge after tallies showed two candidates separated by about 500 votes. Then President Trump claimed that officials were rigging results.`\
 https://nytimes.com/2025/12/02/world/americas/honduras-presidential-vote-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6854231/2025/12/02/flyers-penguins-tyson-foerster-i
 **Brisbane by numbers: Australia look to Starc and Lyon, and why England should be inspired by the West Indies**\
 `Day-night Test cricket brings its challenges and Australia are seasoned in the Gabba's quirks - but touring teams have prevailed before`\
 https://nytimes.com/athletic/6851475/2025/12/02/ashes-brisbane-australia-england-starc-lyon/
-
-**Why Bukayo Saka's assists record doesn't tell the full story**\
-`At Chelsea, Saka recorded his first Premier League assist for a year — but that doesn't mean he has not been a creative force in the interim`\
-https://nytimes.com/athletic/6851683/2025/12/02/bukayo-saka-assist-stats-premier-league-arsenal/
 
