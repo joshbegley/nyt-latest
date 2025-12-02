@@ -1,3 +1,7 @@
+**D.H.S. Secretary Recommends New Travel Ban in Wake of Shooting**\
+`Kristi Noem, the secretary of homeland security, equated immigrants to “foreign invaders” as she called for an expanded travel ban. President Trump reposted her statement.`\
+https://nytimes.com/2025/12/01/us/politics/trump-travel-ban-dhs-noem.html
+
 **The Bucks have had made a habit of losing games, but Monday's defeat was avoidable**\
 `The Bucks have had worse losses in their team history, but it's hard imagine one as futile and avoidable as Monday's to the Wizards`\
 https://nytimes.com/athletic/6854060/2025/12/01/bucks-wizards-score-result-takeaways-giannis-mccollum/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6807796/2025/12/01/devin-williams-new-york-mets-dea
 **Giants, Patriots scuffle on sideline after hard hit on QB Jaxson Dart**\
 `New York players take exception to legal hit on rookie QB, who has been examined for a concussion four times this year.`\
 https://nytimes.com/athletic/6854006/2025/12/01/giants-patriots-scuffle-jaxson-dart/
-
-**Chargers' Justin Herbert day-to-day ahead of 'MNF' vs. Eagles after hand surgery**\
-`Herbert said Sunday he expects to play next week against the Eagles, but his official status will be determined later this week.`\
-https://nytimes.com/athletic/6853911/2025/12/01/justin-herbert-surgery-update-chargers-eagles-mnf/
 
