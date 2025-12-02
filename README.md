@@ -1,3 +1,27 @@
+**And the Award for Most Cynical Look Goes to … the Naked Suit**\
+`In the celebrity-style ecosystem, there are no gold stars for good taste.`\
+https://nytimes.com/2025/12/02/style/naked-suit-elias-medini-lyas-fashion-awards.html
+
+**The Tiger Lily Kitchen Team Goes Gluten-Free at KIMMI**\
+`Godunk offers up a spread of Thai dishes, Golden Ratio leans into fruits and vegetables for its cocktails and more restaurant news.`\
+https://nytimes.com/2025/12/02/dining/nyc-restaurant-news.html
+
+**Neither Franklin the Turtle Nor Sabrina Carpenter Wants to Appear in Trump Posts**\
+`The publisher of the children’s book series and the pop singer both denounced the use of their works in recent Trump administration communications.`\
+https://nytimes.com/2025/12/02/us/sabrina-carpenter-franklin-turtle-trump-hegseth.html
+
+**Submit your Red Wings questions for Max Bultman's mailbag**\
+`No matter what you make of the Detroit's season, you must have questions.`\
+https://nytimes.com/athletic/6856069/2025/12/02/detroit-red-wings-mailbag-prompt-bultman/
+
+**Reckoning With a New Era of Deadly Floods**\
+`The floods and landslides that have killed more than 1,350 people in recent weeks are a grim reminder of the risks of a warming planet.`\
+https://nytimes.com/2025/12/02/climate/climate-change-floods.html
+
+**Yes, This Is a Cookie**\
+`It’s not mortadella. It’s Claire Saffitz’s strawberry-almond cookie, speckled with pistachios and macadamia nuts.`\
+https://nytimes.com/2025/12/02/dining/these-cookies-look-like-mortadella-slices.html
+
 **Denny Hamlin gives fiery testimony on Day 2 of Michael Jordan vs. NASCAR trial**\
 `Hamlin's testimony continued on Day 2, when he was questioned in cross-examination on his own comments about the state of NASCAR.`\
 https://nytimes.com/athletic/6854862/2025/12/02/nascar-michael-jordan-trial-denny-hamlin-testimony/
@@ -13,28 +37,4 @@ https://nytimes.com/2025/12/02/us/politics/ayanna-pressley-markey-massachusetts-
 **Dijon, a Studio Maestro, Is Stepping Into the Spotlight**\
 `Onstage in Brooklyn, the buzzy producer and musician blasted his songs apart and stitched them back together again.`\
 https://nytimes.com/2025/12/02/arts/music/dijon-live-review.html
-
-**Eugene Hasenfus, Gunrunner Who Exposed Iran-Contra Plot, Dies at 84**\
-`He emerged out of obscurity when his cargo plane was shot down while illegally ferrying arms to Nicaraguan rebels, setting off a scandal that tarnished the Reagan and Bush White Houses.`\
-https://nytimes.com/2025/12/02/us/eugene-hasenfus-dead.html
-
-**The 85-Year-Old Activist Trying to Block the Trump Presidential Library Plan**\
-`After Marvin Dunn sued, the trustees of Miami Dade College voted for a second time to hand over a prime property for President Trump’s future library. He says he’ll keep fighting.`\
-https://nytimes.com/2025/12/02/us/trump-library.html
-
-**Super Bowl odds: Week 13 carnage reshuffles top teams**\
-`Losses by major contenders last week blew up the Super Bowl market. Which contenders are trending up?`\
-https://nytimes.com/athletic/6855710/2025/12/02/super-bowl-odds-week-14/
-
-**Scoop City: What happened on Younghoe Koo's kick?**\
-`Explaining the Giants kicker's perspective, plus the Texans passing defense, Cowboys attack and other elite units.`\
-https://nytimes.com/athletic/6855969/2025/12/02/what-happened-younghoe-koo-kick-nfl-scoop-city/
-
-**Why the Penguins' unlikely quest to reach the playoffs is gaining steam**\
-`Here's what's driving the growing optimism that the Penguins might be good enough to reach the Stanley Cup playoffs.`\
-https://nytimes.com/athletic/6855432/2025/12/02/penguins-nhl-playoffs-standings-wild-card-race/
-
-**College Radio Keeps Its Cool**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/college-radio-keeps-its-cool
 

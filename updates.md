@@ -1,3 +1,11 @@
+**Eugene Hasenfus, Gunrunner Who Exposed Iran-Contra Plot, Dies at 84**\
+`He emerged out of obscurity when his cargo plane was shot down while illegally ferrying arms to Nicaraguan rebels, setting off a scandal that tarnished the Reagan and Bush White Houses.`\
+https://nytimes.com/2025/12/02/us/eugene-hasenfus-dead.html
+
+**The 85-Year-Old Activist Trying to Block the Trump Presidential Library Plan**\
+`After Marvin Dunn sued, the trustees of Miami Dade College voted for a second time to hand over a prime property for President Trump’s future library. He says he’ll keep fighting.`\
+https://nytimes.com/2025/12/02/us/trump-library.html
+
 **Denny Hamlin gives fiery testimony on Day 2 of Michael Jordan vs. NASCAR trial**\
 `Hamlin's testimony continued on Day 2, when he was questioned in cross-examination on his own comments about the state of NASCAR.`\
 https://nytimes.com/athletic/6854862/2025/12/02/nascar-michael-jordan-trial-denny-hamlin-testimony/
