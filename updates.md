@@ -1,3 +1,23 @@
+**Russia and Belarus skiers successfully appeal against Winter Olympics qualifying ban**\
+`The appeals argued the ban was a breach of statutes and contravened the principles of political neutrality and non-discrimination.`\
+https://nytimes.com/athletic/6854909/2025/12/02/russia-winter-olympics-ban-skiing/
+
+**Rotating Beds and Cellphones, Maduro Plans to Outlast Trump**\
+`President Trump’s threat of military action has confronted President Nicolás Maduro of Venezuela with the gravest challenge of his crisis-ridden reign.`\
+https://nytimes.com/2025/12/02/world/americas/venezuela-nicolas-maduro-trump.html
+
+**San Francisco Will Sue Ultraprocessed Food Companies**\
+`The city attorney accuses large manufacturers of causing diseases that have burdened governments with public health costs.`\
+https://nytimes.com/2025/12/02/us/san-francisco-ultraprocessed-food-lawsuit.html
+
+**Overalls Inspired by ‘E.T.’**\
+`The owner of a bar in Tokyo said that the 1980s sci-fi film had long influenced her personal style.`\
+https://nytimes.com/2025/12/02/style/street-style-look-et-overalls.html
+
+**Will Jacks, England's Ashes wildcard, by those who know him best: 'This could be only the start'**\
+`The Surrey batting all-rounder will make his third Test appearance at the Gabba on Thursday and offers more than mere part-time off spin`\
+https://nytimes.com/athletic/6853371/2025/12/02/will-jacks-ashes-england-brisbane/
+
 **Trump Administration Live Updates: Honduran Ex-President Is Freed After Pardon, Lawyer Says**\
 ``\
 https://nytimes.com/live/2025/12/02/us/trump-ukraine-putin-news

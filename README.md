@@ -1,3 +1,11 @@
+**Former President of Honduras Is Freed From Prison After Trump Pardon**\
+`Juan Orlando Hernández was accused of flooding the United States with cocaine and had been sentenced to 45 years in prison.`\
+https://nytimes.com/2025/12/02/us/politics/hernandez-honduras-trump.html
+
+**Costco Sues Trump Administration for Refund of Tariffs**\
+`The retail giant is seeking to recover money it has paid this year, should the Supreme Court rule that President Trump’s implementation of tariffs was unlawful.`\
+https://nytimes.com/2025/12/02/us/politics/costco-trump-tariffs-lawsuit.html
+
 **Russia and Belarus skiers successfully appeal against Winter Olympics qualifying ban**\
 `The appeals argued the ban was a breach of statutes and contravened the principles of political neutrality and non-discrimination.`\
 https://nytimes.com/athletic/6854909/2025/12/02/russia-winter-olympics-ban-skiing/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/02/business/dealbook/dell-donation-trump-accounts.ht
 **Kalshi, a Prediction Market, Raises $1 Billion in New Round**\
 `The fund-raising effort, the company’s third this year, values it at $11 billion, and comes amid stiff competition in the increasingly popular industry.`\
 https://nytimes.com/2025/12/02/business/dealbook/kalshi-prediction-market-billion.html
-
-**How the Broncos are bucking history with uncanny comeback success**\
-`The Broncos are 10-2 despite trailing at some point in each of their 12 games, a mark no other team has achieved since at least 2000.`\
-https://nytimes.com/athletic/6853326/2025/12/02/denver-broncos-comebacks-bo-nix/
-
-**How to watch CFP rankings show: Standings reveal before championship weekend**\
-`Tuesday's College Football Playoff rankings set the stage for a loaded championship weekend that could create a chaotic playoff field. `\
-https://nytimes.com/athletic/6853396/2025/12/02/college-football-playoff-rankings-championship-weekend-how-to-watch/
 
