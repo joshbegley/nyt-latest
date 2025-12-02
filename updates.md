@@ -1,3 +1,11 @@
+**Immigration Officials Target Afghans for Deportation in Wake of D.C. Shooting**\
+`The stepped-up enforcement comes as the Trump administration has also moved to reassess the vetting of Afghans who came to the country under the Biden administration.`\
+https://nytimes.com/2025/12/02/us/politics/afghans-deportation-shooting.html
+
+**Costco Sues Trump Administration Over Tariffs**\
+`Costco sued the Trump administration for a refund of the tariffs it has paid on imported goods this year, should the Supreme Court rule that the tariffs were implemented illegally.`\
+https://nytimes.com/video/us/politics/100000010560175/trump-tariffs-costco-lawsuit.html
+
 **Hegseth Says He Did Not See Survivors of Boat Attack Clinging to Wreckage**\
 `The defense secretary supported the admiral he said called for the second strike on Sept. 2 against a boat the administration says was smuggling drugs.`\
 https://nytimes.com/2025/12/02/us/politics/hegseth-boat-strikes.html

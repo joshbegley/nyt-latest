@@ -1,3 +1,7 @@
+**Immigration Officials Target Afghans for Deportation in Wake of D.C. Shooting**\
+`The stepped-up enforcement comes as the Trump administration has also moved to reassess the vetting of Afghans who came to the country under the Biden administration.`\
+https://nytimes.com/2025/12/02/us/politics/afghans-deportation-shooting.html
+
 **Hegseth Says He Did Not See Survivors of Boat Attack Clinging to Wreckage**\
 `The defense secretary supported the admiral he said called for the second strike on Sept. 2 against a boat the administration says was smuggling drugs.`\
 https://nytimes.com/2025/12/02/us/politics/hegseth-boat-strikes.html
@@ -6,8 +10,8 @@ https://nytimes.com/2025/12/02/us/politics/hegseth-boat-strikes.html
 `Rubio joked that President Trump will have to take over the College Football Playoff if Miami doesn't get in.`\
 https://nytimes.com/athletic/6856109/2025/12/02/marco-rubio-miami-notre-dame-college-football-playoff/
 
-**Costco Sues Trump Administration for Tariff Refund**\
-`Costco sued the Trump administration for a refund of the tariffs it has paid on imported goods this year, should the Supreme Court rule the tariffs illegal. The retail giant has become one of the largest companies to challenge President Trump’s tariffs in court.`\
+**Costco Sues Trump Administration Over Tariffs**\
+`Costco sued the Trump administration for a refund of the tariffs it has paid on imported goods this year, should the Supreme Court rule that the tariffs were implemented illegally.`\
 https://nytimes.com/video/us/politics/100000010560175/trump-tariffs-costco-lawsuit.html
 
 **Kalani Sitake will stay at BYU despite strong interest from Penn State: Source**\
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/02/business/media/new-pentagon-press-corps-test-driv
 **Why Yankees fans shouldn't automatically dismiss Mets' signing of Devin Williams**\
 `Fans who are happy Williams will be in Queens next season should understand: This may not be the greatest outcome for the Bronx Bombers. `\
 https://nytimes.com/athletic/6855783/2025/12/02/yankees-fans-devin-williams-signs-mets/
-
-**Tavita Pritchard begins new chapter at Stanford, reuniting with Andrew Luck**\
-`At a packed news conference at Stanford Stadium, Luck and Pritchard traded humorous barbs about a relationship that began in 2008.`\
-https://nytimes.com/athletic/6856166/2025/12/02/stanford-tavita-pritchard-coach-andrew-luck/
 
