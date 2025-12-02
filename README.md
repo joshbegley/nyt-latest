@@ -1,3 +1,7 @@
+**Amid losing streak, Commanders get strong showings from less heralded players**\
+`In a disappointing season, Washington has discovered some valuable, if unheralded, performers. Here are a few.`\
+https://nytimes.com/athletic/6855608/2025/12/02/commanders-jeremy-mcnichols-chris-rodriguez-offensive-line/
+
 **Trial date set for players Emmanuel Clase, Luis Ortiz involved in betting scheme**\
 `The trial for the two players, accused of altering pitches as part of an illegal sports gambling ring, has been set for May. `\
 https://nytimes.com/athletic/6855743/2025/12/02/emmanuel-clase-luis-ortiz-mlb-betting-scheme-trial/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6855678/2025/12/02/rams-mailbag-week-14-cardinals/
 **Until Saturday: Hirings, firings and cross-country cookie $**\
 `Until Saturday is The Athletic's free college football newsletter.`\
 https://nytimes.com/athletic/6855679/2025/12/02/college-football-coaching-carousel-until-saturday-2/
-
-**Rihanna, Jacob Elordi and Julia Roberts Kick Off Red Carpet Season in New York**\
-`It was all roast beef, chocolate cake and air kisses at the Gotham Awards in Lower Manhattan.`\
-https://nytimes.com/2025/12/02/style/gotham-awards-celebrities-winners.html
 
