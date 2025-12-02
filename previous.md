@@ -1,3 +1,27 @@
+**Winnipeg Jets report cards: 25 player grades after 25 games**\
+`There aren't a lot of A's to go around after 25 games, given Winnipeg set the Stanley Cup as its goal in September.`\
+https://nytimes.com/athletic/6852518/2025/12/02/winnipeg-jets-report-cards/
+
+**A Cozy Soup for a Quiet Week**\
+`With quick-cooking red lentils and creamy coconut milk, Zaynab Issa’s recipe is perfect for a weeknight meal.`\
+https://nytimes.com/2025/12/02/dining/a-cozy-soup-for-a-quiet-week.html
+
+**Former England footballer arrested on suspicion of attempted rape**\
+`The footballer, who played in the Premier League, was detained at London Stansted Airport on Sunday evening.`\
+https://nytimes.com/athletic/6854956/2025/12/02/england-footballer-arrest-rape/
+
+**Simon Cowell on His ‘Spirit Tunnel’ Walk**\
+`Simon Cowell’s awkward walk through the “spirit tunnel” on “The Jennifer Hudson Show” took off online. “I could never watch it,” the music mogul and TV judge told Lulu Garcia-Navarro on “The Interview.” “I’d be mortified, but it made me laugh.”`\
+https://nytimes.com/video/podcasts/100000010556597/simon-cowell-on-his-spirit-tunnel-walk.html
+
+**How Simon Cowell Found Out About Liam Payne’s Death**\
+`Simon Cowell, the music mogul and famously caustic television judge, discovered the singer Liam Payne and cast him in One Direction. On “The Interview,” he recalled the moment he learned about Payne’s death.`\
+https://nytimes.com/video/podcasts/100000010556592/how-simon-cowell-found-out-about-liam-paynes-death.html
+
+**Serena Williams reenters tennis anti-doping test pool, a requirement for return to competition**\
+`Players in the pool have to be available for daily testing for six months before being allowed to play a competitive event.`\
+https://nytimes.com/athletic/6855313/2025/12/02/serena-williams-tennis-testing-pool-reentry-competition-return/
+
 **Pope Leo XIV Delivers Message of Peace in Lebanon**\
 `The pope ended his first international tour presiding over a waterfront mass to thousands at the site of a 2020 Beirut port explosion, which killed hundreds.`\
 https://nytimes.com/video/world/middleeast/100000010559122/pope-leo-delivers-lebanon-mass.html
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6855123/2025/12/02/hillsborough-police-gross-miscon
 **Sharks and Rays Gain Sweeping Protections From Wildlife Trade**\
 `A global treaty has extended trade protections to more than 70 shark and ray species whose numbers are in sharp decline.`\
 https://nytimes.com/2025/12/02/science/wildlife-trade-cites-sharks-rays.html
-
-**Craig Carton finalizing deal to take over afternoon drive time slot on WFAN**\
-`This will mark Carton’s third stint with the station and second as the leader of the afternoon program.`\
-https://nytimes.com/athletic/6855337/2025/12/02/wfan-new-york-craig-carton-radio/
-
-**Toronto Tempo president wants WNBA expansion team to bring joy to Canada like Blue Jays**\
-`Teresa Resch discusses the expansion draft, mascot and coach Sandy Brondello.`\
-https://nytimes.com/athletic/6848227/2025/12/02/toronto-tempo-wnba-expansion-teresa-resch/
-
-**The Bounce: Wait ... the Suns are actually good?**\
-`Zach Harper catches you up on the latest NBA news in our newsletter.`\
-https://nytimes.com/athletic/6854973/2025/12/02/the-bounce-phoenix-suns-kingston-flemings-2026-draft/
-
-**House seeking $50m per year for major sporting events**\
-`The bill will be introduced by Rep. Rick Larsen, a Democrat, who said the investment is "somewhat peanuts" compared to its potential return.`\
-https://nytimes.com/athletic/6855176/2025/12/02/united-states-house-bill-world-cup-olympics-infrastructure/
-
-**College Football Playoff odds: Notre Dame-Miami debate in focus**\
-`Rivalry week didn't feature many upsets, so the CFP picture is mostly what it was a week ago. What are the chances it stays that way?`\
-https://nytimes.com/athletic/6852871/2025/12/02/college-football-playoff-odds-notre-dame-miami/
-
-**Red Bull replaces Tsunoda with Hadjar for 2026 F1 season, Lindblad to drive for Racing Bulls**\
-`The lineup changes leave Tsunoda, who has been on the grid since 2021, without a seat next season.`\
-https://nytimes.com/athletic/6854236/2025/12/02/red-bull-driver-lineup-2026-hadjar-tsunoda/
 
