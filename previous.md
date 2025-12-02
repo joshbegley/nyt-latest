@@ -1,3 +1,7 @@
+**A right groin injury caused Devin Booker to exit the Suns-Lakers game early**\
+`After scoring 11 points in 10 minutes, Booker watched the rest of the game in street clothes. The severity of the injury is unknown.`\
+https://nytimes.com/athletic/6854311/2025/12/02/devin-booker-out-groin-injury-suns-lakers/
+
 **Flyers' Tyson Foerster suffers injury in lopsided loss to Penguins**\
 `It was even a rough night for the Flyers’ steadiest player this season.`\
 https://nytimes.com/athletic/6854231/2025/12/02/flyers-penguins-tyson-foerster-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6852004/2025/12/02/sunderland-dreyfus-ghisolfi-spea
 **A guide to every team in the World Cup draw**\
 `How do they play? Who is their star player? What can we expect from them when the tournament starts?`\
 https://nytimes.com/athletic/6839351/2025/12/02/world-cup-draw-team-guides/
-
-**Tactical timeouts are the best way to end the scourge of goalkeeper 'injuries'**\
-`The Gianluigi Donnarumma controversy on Saturday showed why laws must be changed to stop strategic stoppages`\
-https://nytimes.com/athletic/6851662/2025/12/02/football-tactical-timeout/
 

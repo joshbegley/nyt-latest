@@ -1,3 +1,7 @@
+**A right groin injury caused Devin Booker to exit the Suns-Lakers game early**\
+`After scoring 11 points in 10 minutes, Booker watched the rest of the game in street clothes. The severity of the injury is unknown.`\
+https://nytimes.com/athletic/6854311/2025/12/02/devin-booker-out-groin-injury-suns-lakers/
+
 **Flyers' Tyson Foerster suffers injury in lopsided loss to Penguins**\
 `It was even a rough night for the Flyers’ steadiest player this season.`\
 https://nytimes.com/athletic/6854231/2025/12/02/flyers-penguins-tyson-foerster-injury/
