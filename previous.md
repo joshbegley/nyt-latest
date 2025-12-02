@@ -1,3 +1,7 @@
+**Trump Administration Revokes Licenses of Thousands of Training Centers for Truckers**\
+`The move, and threats of thousands more revocations, comes as the administration has increased its criticism of the trucking industry over noncitizen drivers’ obtaining commercial licenses.`\
+https://nytimes.com/2025/12/01/us/politics/trump-trucking-license-accreditation.html
+
 **Full Time: What we learned from the first USWNT-Italy friendly**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/6853783/2025/12/01/uswnt-italy-friendlies-full-time/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/01/world/europe/uk-jury-trial-courts.html
 **What we're hearing about Penn State's search: Kalani Sitake's candidacy and more updates**\
 `Penn State has been searching for a head coach for 50 days and counting. Who's actually a candidate? Here's what we know.`\
 https://nytimes.com/athletic/6853630/2025/12/01/penn-state-coaching-search-kalani-sitake/
-
-**Lane Kiffin on move from Ole Miss to LSU: 'No way to possibly do it better'**\
-`New Tigers coach blames system for awkward timing of his job change, says he made choice because, "This place is different."`\
-https://nytimes.com/athletic/6852892/2025/12/01/lane-kiffin-lsu-introduction-ole-miss/
 

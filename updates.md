@@ -1,3 +1,7 @@
+**Trump Administration Revokes Licenses of Thousands of Training Centers for Truckers**\
+`The move, and threats of thousands more revocations, comes as the administration has increased its criticism of the trucking industry over noncitizen drivers’ obtaining commercial licenses.`\
+https://nytimes.com/2025/12/01/us/politics/trump-trucking-license-accreditation.html
+
 **Full Time: What we learned from the first USWNT-Italy friendly**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/6853783/2025/12/01/uswnt-italy-friendlies-full-time/
