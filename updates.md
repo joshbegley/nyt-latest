@@ -1,3 +1,7 @@
+**Full Time: What we learned from the first USWNT-Italy friendly**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/6853783/2025/12/01/uswnt-italy-friendlies-full-time/
+
 **What we're hearing about Penn State's search: Kalani Sitake's candidacy and more updates**\
 `Penn State has been searching for a head coach for 50 days and counting. Who's actually a candidate? Here's what we know.`\
 https://nytimes.com/athletic/6853630/2025/12/01/penn-state-coaching-search-kalani-sitake/
