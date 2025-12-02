@@ -1,3 +1,11 @@
+**Why Bukayo Saka's assists record doesn't tell the full story**\
+`At Chelsea, Saka recorded his first Premier League assist for a year — but that doesn't mean he has not been a creative force in the interim`\
+https://nytimes.com/athletic/6851683/2025/12/02/bukayo-saka-assist-stats-premier-league-arsenal/
+
+**Leeds United Transfer DealSheet: What to expect in 2026**\
+`Leeds are struggling in the Premier League and will be eyeing January as an opportunity to improve their situation`\
+https://nytimes.com/athletic/6837440/2025/12/02/leeds-transfer-latest-january-summer-2026/
+
 **West Ham Transfer DealSheet: What to expect in 2026**\
 `What business are West Ham likely to do in January and beyond? We look at the potential ins and outs`\
 https://nytimes.com/athletic/6836016/2025/12/02/west-ham-transfer-dealsheet-2026/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6851642/2025/12/02/james-horncastle-serie-a-briefin
 **Martine Grael makes history, Ryan Reynolds comes on board: SailGP season five highlights**\
 `From collapses, crashes and cancellations to Martine Grael's historic race win, these are our highlights of the SailGP season`\
 https://nytimes.com/athletic/6852272/2025/12/02/sailgp-championship-racing-season-recap/
-
-**Did you know? A quirky fact about all 64 teams in the World Cup draw**\
-`Impress your friends with some weird and wonderful knowledge about the countries involved in Friday's World Cup draw`\
-https://nytimes.com/athletic/6833248/2025/12/02/did-you-know-a-quirky-fact-about-all-64-teams-in-the-world-cup-draw/
-
-**Row Z: FIFA's next rulebook revisions? Plus home truths for Tottenham and poor Paqueta**\
-`Tim Spiers shines a light on the bonkers side of the game`\
-https://nytimes.com/athletic/6851717/2025/12/02/row-z-ronaldo-tottenham-paqueta/
 
