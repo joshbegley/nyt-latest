@@ -1,3 +1,11 @@
+**What we're hearing about Penn State's search: Kalani Sitake's candidacy and more updates**\
+`Penn State has been searching for a head coach for 50 days and accounting. Who's actually a candidate? Here's what we know.`\
+https://nytimes.com/athletic/6853630/2025/12/01/penn-state-coaching-search-kalani-sitake/
+
+**Instant grades for college football's 2025-26 head-coaching hires**\
+`In college football, you never really know whether a coaching hire is going to work. But it's never too early to talk about fit.`\
+https://nytimes.com/athletic/6827060/2025/12/01/college-football-coaching-carousel-grades/
+
 **Lane Kiffin on move from Ole Miss to LSU: 'No way to possibly do it better'**\
 `New Tigers coach blames system for awkward timing of his job change, says he made choice because, "This place is different."`\
 https://nytimes.com/athletic/6852892/2025/12/01/lane-kiffin-lsu-introduction-ole-miss/
