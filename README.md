@@ -1,3 +1,7 @@
+**Rihanna, Jacob Elordi and Julia Roberts Kick Off Red Carpet Season in New York**\
+`It was all roast beef, chocolate cake and air kisses at the Gotham Awards in Lower Manhattan.`\
+https://nytimes.com/2025/12/02/style/gotham-awards-celebrities-winners.html
+
 **Vanderbilt flips QB Jared Curtis, No. 1 player in Class of 2026, from Georgia: Reports**\
 `Should he sign with the Commodores, Curtis would be the Commodores' first five-star prospect of the modern recruiting era. `\
 https://nytimes.com/athletic/6833213/2025/12/02/jared-curtis-recruiting-vanderbilt-flip-georgia/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6855421/2025/12/02/rob-edwards-wolves-transfer-plan
 **The No. 1 Most Iconic Technology of 2025**\
 `Casey Newton and Kevin Roose, hosts of “Hard Fork,” rank the 50 most iconic technologies of 2025 — and reveal their choice for No. 1.`\
 https://nytimes.com/video/podcasts/100000010556792/the-no-1-most-iconic-technology-of-2025.html
-
-**More athletes, including Shedeur Sanders and WNBA 'Studbudz,' streamed on Twitch in 2025**\
-`Athletes like LeBron James and Ja'Marr Chase have taken to Twitch in 2025 to share aspects of their lives with fans.`\
-https://nytimes.com/athletic/6855130/2025/12/02/why-athletes-twitch-livestream-studbuz/
 
