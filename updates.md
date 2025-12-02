@@ -1,3 +1,15 @@
+**Did you know? A quirky fact about all 64 teams in the World Cup draw**\
+`Impress your friends with some weird and wonderful knowledge about the countries involved in Friday's World Cup draw`\
+https://nytimes.com/athletic/6833248/2025/12/02/did-you-know-a-quirky-fact-about-all-64-teams-in-the-world-cup-draw/
+
+**Row Z: FIFA's next rulebook revisions? Plus home truths for Tottenham and poor Paqueta**\
+`Tim Spiers shines a light on the bonkers side of the game`\
+https://nytimes.com/athletic/6851717/2025/12/02/row-z-ronaldo-tottenham-paqueta/
+
+**Food for thought for Tuchel: James, Mount and Foden back in form after injury woe**\
+`The talented trio all performed well for their clubs in the Premier League this weekend, which will be music to Tuchel's ears`\
+https://nytimes.com/athletic/6852171/2025/12/02/england-options-reece-james-mason-mount-phil-foden/
+
 **Olivia Nuzzi’s Memoir Is Self-Serious and Altogether Disappointing**\
 `“American Canto,” published amid a scandal over the journalist’s alleged romantic entanglements with politicians she covered, offers many scenes but little sense.`\
 https://nytimes.com/2025/12/02/books/review/american-canto-olivia-nuzzi.html
