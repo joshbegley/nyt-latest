@@ -1,3 +1,7 @@
+**Giants' Abdul Carter benched for first quarter vs. Patriots**\
+`This is not the first time Carter has been benched this season.`\
+https://nytimes.com/athletic/6853903/2025/12/01/ny-giants-abdul-carter-benched-patriots/
+
 **How to watch Indiana vs. Ohio State: Big Ten Championship Time, TV, streaming**\
 `Find out how to watch the Indiana Hoosiers play the Ohio State Buckeyes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6853909/2025/12/01/indiana-vs-ohio-state-stream-how-to-watch-dec-6/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6853774/2025/12/01/how-to-watch-no-3-georgia-vs-no-
 **Trump’s Crackdown in Wake of Shooting Blocks Legal Pathways for Migrants**\
 `The new measures represent some of the most significant changes to immigration policy since President Trump returned to the White House.`\
 https://nytimes.com/2025/12/01/us/politics/trump-dc-shooting-immigration.html
-
-**Kentucky finalizing head coaching deal for Oregon OC: Source**\
-`The Oregon offensive coordinator will replace the winningest coach in Wildcats history. `\
-https://nytimes.com/athletic/6853698/2025/12/01/kentucky-football-will-stein-oregon-head-coach/
 
