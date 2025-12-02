@@ -1,3 +1,7 @@
+**The No. 1 Most Iconic Technology of 2025**\
+`Casey Newton and Kevin Roose, hosts of “Hard Fork,” rank the 50 most iconic technologies of 2025 — and reveal their choice for No. 1.`\
+https://nytimes.com/video/podcasts/100000010556792/the-no-1-most-iconic-technology-of-2025.html
+
 **More athletes, including Shedeur Sanders and WNBA 'Studbudz,' streamed on Twitch in 2025**\
 `Athletes like LeBron James and Ja'Marr Chase have taken to Twitch in 2025 to share aspects of their lives with fans.`\
 https://nytimes.com/athletic/6855130/2025/12/02/why-athletes-twitch-livestream-studbuz/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6853483/2025/12/02/bears-caleb-williams-passing-gam
 **Has Jim Rutherford succeeded as Canucks president? The positives and negatives**\
 `Rutherford is approaching his fourth anniversary at the helm of the Canucks' hockey operations department.`\
 https://nytimes.com/athletic/6851565/2025/12/02/canucks-jim-rutherford-president-tenure/
-
-**How to watch Stars vs. Rangers: Time, TV, streaming**\
-`Find out how to watch the Dallas Stars play the New York Rangers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6855493/2025/12/02/stars-vs-rangers-stream-how-to-watch-dec-2/
 
