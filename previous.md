@@ -10,8 +10,8 @@ https://nytimes.com/athletic/6856899/2025/12/02/miami-hurricanes-college-footbal
 `The case centers on false vote-rigging claims broadcast by Fox News during the 2020 U.S. presidential election.`\
 https://nytimes.com/2025/12/02/business/media/smartmatic-fox-news-defamation-case.html
 
-**Key Bears-Packers matchup in Week 16 set for 8:20 p.m. ET kickoff**\
-`The times for the Dec. 20 matchups had not previously been announced.`\
+**Key Packers-Bears matchup in Week 16 set for Dec. 20 at 8:20 p.m. ET**\
+`The Bears will host the Packers on Dec. 20 at 8:20 p.m. ET, while the Eagles will host the Commanders on the same day at 2 p.m.`\
 https://nytimes.com/athletic/6856892/2025/12/02/bears-packers-week-16-kickoff/
 
 **Washington soccer rallied around memory of Mia Hamant: 'We just played our hearts out'**\
@@ -36,5 +36,5 @@ https://nytimes.com/athletic/6856029/2025/12/02/college-football-playoff-ranking
 
 **How to watch Broncos vs. Raiders: Time, TV, streaming**\
 `Find out how to watch the Denver Broncos play the Las Vegas Raiders, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6856864/2025/12/02/broncos-vs-raiders-stream-how-to-watch-dec-7/
+https://nytimes.com/athletic/6856864/2025/12/02/how-to-watch-broncos-vs-raiders-tv-channel-and-streaming-options-for-december-7/
 

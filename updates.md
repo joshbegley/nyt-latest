@@ -1,3 +1,11 @@
+**Key Packers-Bears matchup in Week 16 set for Dec. 20 at 8:20 p.m. ET**\
+`The Bears will host the Packers on Dec. 20 at 8:20 p.m. ET, while the Eagles will host the Commanders on the same day at 2 p.m.`\
+https://nytimes.com/athletic/6856892/2025/12/02/bears-packers-week-16-kickoff/
+
+**How to watch Broncos vs. Raiders: Time, TV, streaming**\
+`Find out how to watch the Denver Broncos play the Las Vegas Raiders, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6856864/2025/12/02/how-to-watch-broncos-vs-raiders-tv-channel-and-streaming-options-for-december-7/
+
 **Man Charged With Throwing Molotov Cocktails at Federal Building in L.A.**\
 `Federal officials said the suspect, who has ranted against the Trump administration on social media, told them he had set his apartment on fire earlier in the day.`\
 https://nytimes.com/2025/12/02/us/man-arrested-firebomb-los-angeles.html
