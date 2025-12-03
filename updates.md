@@ -1,3 +1,19 @@
+**TAFC – Haaland: 0-100 in record time, ranking best players going to the World Cup**\
+`Today in TAFC: Will Haaland reach EPL goals record? We rank the top 100 players going to the World Cup, and how draw venue became political`\
+https://nytimes.com/athletic/6857729/2025/12/03/erling-haaland-100-premier-league-goals/
+
+**Ranking the top 10 college football stadiums in the Group of 6 conferences**\
+`College football has plenty of hidden-gem stadiums outside the Power 4 conferences. Here are our favorites in the Group of 6.`\
+https://nytimes.com/athletic/6850880/2025/12/03/college-football-stadium-rankings-best-group-of-6/
+
+**WNBA mock expansion draft: Who will Toronto Tempo and Portland Fire select?**\
+`Our experts make the picks for the WNBA's two newest teams. A four-time WNBA All-Star is among the players on the move. `\
+https://nytimes.com/athletic/6838510/2025/12/03/wnba-expansion-draft-portland-toronto-expert-picks/
+
+**How Cade Horton's emergence eases the Cubs' starting pitching concerns**\
+`The presence of Horton is a luxury Chicago lacked when it was shopping for starting pitching nearly a decade ago.`\
+https://nytimes.com/athletic/6856918/2025/12/03/chicago-cubs-cade-horton-pitching-emergence/
+
 **Son to return to Tottenham for fan farewell against Slavia Prague**\
 `Son, 33, left Spurs to join Los Angeles FC over the summer.`\
 https://nytimes.com/athletic/6855573/2025/12/03/heung-min-son-return-tottenham-mls/
