@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6857665/2025/12/03/texans-vs-chiefs-stream-how-to-watch-dec-7/
 
 **Manchester City are serious title contenders displaying unserious credentials**\
-`These collapses against Leeds and Fulham could have been catastrophic. That they escaped with maximum points has to be seen as a learn curve`\
+`Collapses against Leeds and Fulham could have been catastrophic. That they escaped with maximum points has to be seen as a learning curve`\
 https://nytimes.com/athletic/6856433/2025/12/03/man-city-conceding-guardiola-concerns/
 
 **Newcastle, late goals and bad habits that are costing precious points**\

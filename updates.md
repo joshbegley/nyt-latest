@@ -1,3 +1,7 @@
+**Manchester City are serious title contenders displaying unserious credentials**\
+`Collapses against Leeds and Fulham could have been catastrophic. That they escaped with maximum points has to be seen as a learning curve`\
+https://nytimes.com/athletic/6856433/2025/12/03/man-city-conceding-guardiola-concerns/
+
 **They Were Supposed to Save Europe. Instead, They’re Condemning It to Horrors.**\
 `Centrist governments are failing badly in Europe’s leading economies, setting the stage for a far-right sweep.`\
 https://nytimes.com/2025/12/03/opinion/europe-britain-france-germany-centrist.html
