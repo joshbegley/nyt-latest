@@ -1,3 +1,15 @@
+**How to watch Broncos vs. Raiders: Time, TV, streaming**\
+`Find out how to watch the Denver Broncos play the Las Vegas Raiders, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6856864/2025/12/02/broncos-vs-raiders-stream-how-to-watch-dec-7/
+
+**How to watch Rams vs. Cardinals: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Rams play the Arizona Cardinals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6856862/2025/12/02/rams-vs-cardinals-stream-how-to-watch-dec-7/
+
+**How to watch Bears vs. Packers: Time, TV, streaming**\
+`Find out how to watch the Chicago Bears play the Green Bay Packers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6856858/2025/12/02/bears-vs-packers-stream-how-to-watch-dec-7/
+
 **Korean Baseball MVP Cody Ponce to sign three-year deal with Blue Jays: Sources**\
 `After a historic 2025 season, Ponce was awarded the KBO's equivalent to the Cy Young Award and its league MVP. `\
 https://nytimes.com/athletic/6853998/2025/12/02/mlb-cody-ponce-free-agency-signing-blue-jays/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/12/02/world/middleeast/lebanon-un-security-council.html
 **Trump Frees Former President of Honduras**\
 `Plus, C.D.C. advisers are set to change the vaccine schedule. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2025/12/02/briefing/honduras-somalis-cdc.html
-
-**‘I Knew It Was Him’: Officer Recalls Confronting Mangione at McDonald’s**\
-`A Pennsylvania patrolman said a superior had offered him a hoagie if he responded to a call at a local McDonald’s. The officer recognized the suspect and then played for time.`\
-https://nytimes.com/2025/12/02/nyregion/police-mangione-arrest-testimony.html
-
-**Olympic ice surface being built to specs smaller than NHL rinks, per source, sparking new concerns**\
-`The Olympic rink will have a shorter length but not substantially greater width, per a source, leaving players with less room to maneuver.`\
-https://nytimes.com/athletic/6856478/2025/12/02/olympic-ice-surface-nhl/
-
-**Trump Expected to Significantly Weaken Fuel Economy Rules**\
-`Executives from top automakers were invited to attend the announcement at the White House on Wednesday.`\
-https://nytimes.com/2025/12/02/climate/trump-fuel-economy-rules.html
 
