@@ -1,3 +1,7 @@
+**Man Charged With Throwing Molotov Cocktails at Federal Building in L.A.**\
+`Federal officials said the suspect, who has ranted against the Trump administration on social media, told them he had set his apartment on fire earlier in the day.`\
+https://nytimes.com/2025/12/02/us/man-arrested-firebomb-los-angeles.html
+
 **Political lobbying and 13 re-airs of Miami-Notre Dame can't help Canes in Playoff rankings**\
 `The campaigning is hard to get Miami into the Playoff field. The Canes are still on the bubble. `\
 https://nytimes.com/athletic/6856899/2025/12/02/miami-hurricanes-college-football-playoff-rankings-reaction/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6856029/2025/12/02/college-football-playoff-ranking
 **How to watch Broncos vs. Raiders: Time, TV, streaming**\
 `Find out how to watch the Denver Broncos play the Las Vegas Raiders, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6856864/2025/12/02/broncos-vs-raiders-stream-how-to-watch-dec-7/
-
-**How to watch Rams vs. Cardinals: Time, TV, streaming**\
-`Find out how to watch the Los Angeles Rams play the Arizona Cardinals, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6856862/2025/12/02/rams-vs-cardinals-stream-how-to-watch-dec-7/
 

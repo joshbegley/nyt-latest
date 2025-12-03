@@ -1,3 +1,7 @@
+**Man Charged With Throwing Molotov Cocktails at Federal Building in L.A.**\
+`Federal officials said the suspect, who has ranted against the Trump administration on social media, told them he had set his apartment on fire earlier in the day.`\
+https://nytimes.com/2025/12/02/us/man-arrested-firebomb-los-angeles.html
+
 **Political lobbying and 13 re-airs of Miami-Notre Dame can't help Canes in Playoff rankings**\
 `The campaigning is hard to get Miami into the Playoff field. The Canes are still on the bubble. `\
 https://nytimes.com/athletic/6856899/2025/12/02/miami-hurricanes-college-football-playoff-rankings-reaction/

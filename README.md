@@ -36,5 +36,5 @@ https://nytimes.com/athletic/6856029/2025/12/02/college-football-playoff-ranking
 
 **How to watch Broncos vs. Raiders: Time, TV, streaming**\
 `Find out how to watch the Denver Broncos play the Las Vegas Raiders, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6856864/2025/12/02/broncos-vs-raiders-stream-how-to-watch-dec-7/
+https://nytimes.com/athletic/6856864/2025/12/02/how-to-watch-broncos-vs-raiders-tv-channel-and-streaming-options-for-december-7/
 
