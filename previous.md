@@ -1,3 +1,11 @@
+**NFL Week 14 confidence picks: Why you should pick the Jags to beat the Colts**\
+`KC Joyner gives his straight-up and against-the-spread picks for every Week 14 NFL game.`\
+https://nytimes.com/athletic/6857986/2025/12/03/nfl-week-14-confidence-picks-jaguars-colts/
+
+**Submit your questions for Kevin Fishbain's Bears mailbag**\
+`The Bears and Packers are playing a meaningful game in December with first place on the line. Let's see your questions.`\
+https://nytimes.com/athletic/6859054/2025/12/03/bears-mailbag-questions-51/
+
 **Two U.K. Women’s Groups Ban Transgender Girls and Women**\
 `The Girlguiding organization and the Women’s Institute both said a court ruling from earlier this year had forced their hands.`\
 https://nytimes.com/2025/12/03/world/europe/uk-trans-ban-womens-institute-girl-guides.html
@@ -29,8 +37,4 @@ https://nytimes.com/2025/12/03/business/dealbook/general-motors-ceo-fuel-efficie
 **Treasury Secretary Scott Bessent Says He’s ‘Evolved’ on Tariffs**\
 `Speaking at The New York Times DealBook summit, U.S. Treasury Secretary Scott Bessent said American trading partners are opening their markets to the United States because of President Trump’s tariffs.`\
 https://nytimes.com/video/us/politics/100000010561883/nyt-dealbook-bessent-treasury.html
-
-**After ‘Evolving’ on Tariffs, Bessent Defends Their Merits**\
-`The Treasury secretary said that import levies were not fueling inflation.`\
-https://nytimes.com/2025/12/03/business/dealbook/scott-bessent-tariffs-trump.html
 
