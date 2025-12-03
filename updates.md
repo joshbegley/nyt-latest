@@ -1,3 +1,7 @@
+**Ipswich valued at Championship record £350m after ownership restructure**\
+`The Arizona state pension fund that bought Ipswich in 2021 has sold a large chunk of its shares in the Suffolk-based club.`\
+https://nytimes.com/athletic/6858985/2025/12/03/ipswich-valuation-championship-ownership-restructure/
+
 **Can Chris Paul help any team? Here are 5 potential landing spots**\
 `The 40-year-old has said this season is his last. Where that campaign ends remains to be seen.`\
 https://nytimes.com/athletic/6858496/2025/12/03/nba-chris-paul-cp3-potential-teams/
