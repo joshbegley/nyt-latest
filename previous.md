@@ -1,3 +1,7 @@
+**U. of Alabama Suspends Black and Female Student Magazines, Citing D.E.I. Guidance**\
+`Officials told staff members at two student-run publications, called Nineteen Fifty-Six and Alice, that they were not compliant with Attorney General Pam Bondi’s memo on diversity programs.`\
+https://nytimes.com/2025/12/02/us/u-of-alabama-student-magazines-dei.html
+
 **North Texas hires former West Virginia coach Neal Brown**\
 `Brown has a decade of head-coaching experience, including a 35-16 record at Troy and a 37-35 record at West Virginia.`\
 https://nytimes.com/athletic/6856992/2025/12/02/north-texas-neal-brown-hire-coach/
@@ -11,7 +15,7 @@ https://nytimes.com/video/us/politics/100000010557371/trumps-shift-on-afghan-imm
 https://nytimes.com/video/us/politics/100000010560959/trump-sleep-cabinet-meeting.html
 
 **James Solomon Beats Jim McGreevey, a Former Governor, in Jersey City**\
-`Mr. Solomon was elected mayor over Mr. McGreevey, who was hoping for a comeback after resigning in 2004 as New Jersey’s governor in the midst of a sex scandal.`\
+`Mr. Solomon was elected mayor over Mr. McGreevey, who was hoping for a comeback after resigning in 2004 as New Jersey’s governor amid a sex scandal.`\
 https://nytimes.com/2025/12/02/nyregion/james-solomon-jim-mcgreevey-jersey-city.html
 
 **Lawsuits allege USA Gymnastics, SafeSport failed to prevent sexual abuse by coach**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/02/us/politics/state-department-morale-survey.html
 **NFL RedZone drastically raises commercial time in Week 13**\
 `In total, combining double-box ads, banner ads and sponsored segments, NFL RedZone showed over four minutes of sponsored elements Sunday.`\
 https://nytimes.com/athletic/6856988/2025/12/02/nfl-redzone-increases-commercials/
-
-**Man Charged With Throwing Molotov Cocktails at Federal Building in L.A.**\
-`Federal officials said the suspect, who has ranted against the Trump administration on social media, told them he had set his apartment on fire earlier in the day.`\
-https://nytimes.com/2025/12/02/us/man-arrested-firebomb-los-angeles.html
 

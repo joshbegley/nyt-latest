@@ -1,3 +1,11 @@
+**U. of Alabama Suspends Black and Female Student Magazines, Citing D.E.I. Guidance**\
+`Officials told staff members at two student-run publications, called Nineteen Fifty-Six and Alice, that they were not compliant with Attorney General Pam Bondi’s memo on diversity programs.`\
+https://nytimes.com/2025/12/02/us/u-of-alabama-student-magazines-dei.html
+
+**James Solomon Beats Jim McGreevey, a Former Governor, in Jersey City**\
+`Mr. Solomon was elected mayor over Mr. McGreevey, who was hoping for a comeback after resigning in 2004 as New Jersey’s governor amid a sex scandal.`\
+https://nytimes.com/2025/12/02/nyregion/james-solomon-jim-mcgreevey-jersey-city.html
+
 **North Texas hires former West Virginia coach Neal Brown**\
 `Brown has a decade of head-coaching experience, including a 35-16 record at Troy and a 37-35 record at West Virginia.`\
 https://nytimes.com/athletic/6856992/2025/12/02/north-texas-neal-brown-hire-coach/
