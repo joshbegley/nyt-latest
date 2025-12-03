@@ -1,3 +1,19 @@
+**Textor seeks to clarify comment he 'adjusted' transfer fees with Evangelos Marinakis**\
+`Textor said an "awkward translation" was to blame after suggesting transfer fees were "adjusted" when conducted with Marinakis.`\
+https://nytimes.com/athletic/6855143/2025/12/03/textor-marinakis-transfers-nottingham-forest-crystal-palace/
+
+**South Korea Says the U.S. Agreed to Help It Secure Fuel for Its Reactors**\
+`President Lee Jae Myung reaffirmed wanting to build nuclear-powered submarines at home, despite President Trump’s suggestion that they be built in the United States.`\
+https://nytimes.com/2025/12/03/world/asia/south-korea-nuclear-reactor-fuel.html
+
+**Word of the Day: stipend**\
+`This word has appeared in 64 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/12/03/learning/word-of-the-day-stipend.html
+
+**Spurs needed a reason to believe. Main character Cristian Romero gave them one**\
+`The real challenge now is to turn this from one good moment from Romero into something Spurs can build on`\
+https://nytimes.com/athletic/6851839/2025/12/03/cristian-romero-goals-tottenham/
+
 **Grealish is inspiring Everton to little moments of history**\
 `The on-loan midfielder is helping the club break new ground this season, including a first Premier League win at Bournemouth`\
 https://nytimes.com/athletic/6856886/2025/12/03/everton-bournemouth-jack-grealish/
