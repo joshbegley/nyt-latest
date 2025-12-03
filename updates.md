@@ -1,3 +1,11 @@
+**Can Chris Paul help any team? Here are 5 potential landing spots**\
+`The 40-year-old has said this season is his last. Where that campaign ends remains to be seen.`\
+https://nytimes.com/athletic/6858496/2025/12/03/nba-chris-paul-cp3-potential-teams/
+
+**G.M. Will Still Make Efficient Motors Despite Weaker Rules, C.E.O. Says**\
+`But the chief executive, Mary Barra, added that the jury was still out on whether electric vehicles would become a major seller in the United States.`\
+https://nytimes.com/2025/12/03/business/dealbook/general-motors-ceo-fuel-efficiency.html
+
 **Treasury Secretary Scott Bessent Says He’s ‘Evolved’ on Tariffs**\
 `Speaking at The New York Times DealBook summit, U.S. Treasury Secretary Scott Bessent said American trading partners are opening their markets to the United States because of President Trump’s tariffs.`\
 https://nytimes.com/video/us/politics/100000010561883/nyt-dealbook-bessent-treasury.html
