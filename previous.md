@@ -1,40 +1,40 @@
-**The gapper is dead: Who killed the double and triple — and what can MLB do about it?**\
-`Armed with analytics, teams are playing outfielders deeper than ever, and doubles and triples are vanishing. Can a rule change fix this?`\
-https://nytimes.com/athletic/6856840/2025/12/03/mlb-vanishing-doubles-triples-rule-change/
+**What to Expect at Today’s DealBook Summit**\
+`Scott Bessent, Erika Kirk, Gavin Newsom, Dario Amodei, Mary Barra, Alex Karp, MrBeast, Lai Ching-te, and Larry Fink are among the big names speaking.`\
+https://nytimes.com/2025/12/03/business/dealbook/lineup-dealbook-summit.html
 
-**Indiana football was irrelevant. Then a ‘cocky nerd’ arrived**\
-`Indiana’s head football coach has had a long, successful – and unconventional – career. What’s the secret to his magical run?`\
-https://nytimes.com/athletic/6852835/2025/12/03/indiana-football-coach-curt-cignetti-big-ten-championship/
+**Packers, playoffs on Jaylon Johnson's mind after Bears star's speedy recovery**\
+`Even Johnson didn't expect to play again this season after surgery in September. Now his sights are set on his first playoff appearance.`\
+https://nytimes.com/athletic/6856758/2025/12/03/bears-jaylon-johnson-packers-playoffs/
 
-**The Steelers had a 'Baltimore problem.' Is there any reason to believe they fixed it?**\
-`The Ravens steamrolled the Steelers late last season. The teams meet again on Sunday, with control of the AFC North on the line.`\
-https://nytimes.com/athletic/6857116/2025/12/03/pittsburgh-steelers-run-defense-baltimore-ravens/
+**Here are the Chiefs' chances to make the playoffs if they finish 5-0 ... and 4-1, too**\
+`The Chiefs have two things playing in their favor as they try to put themselves firmer in the AFC playoff race.`\
+https://nytimes.com/athletic/6856050/2025/12/03/chiefs-nfl-playoff-chances-texans/
 
-**The New York Times International Edition in Print for Thursday, Dec. 4, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/12/03/todays-new-york-times-international-edition
+**Can the Cowboys do it? Confidence is high, but little room for error in playoff push**\
+`CeeDee Lamb called Dallas' matchup Thursday night in Detroit essentially a playoff game as the Cowboys try to ride their 3-game momentum.`\
+https://nytimes.com/athletic/6856711/2025/12/03/cowboys-playoff-chances-lions-thursday-night/
 
-**A Prized Fabergé Egg Is Sold at Auction for More Than $30 Million**\
-`Fabergé is believed to have produced 50 of the ornate eggs for Russia’s czars. The Winter Egg, sold on Tuesday, is considered one of the jewelry house’s greatest creations.`\
-https://nytimes.com/2025/12/03/world/europe/faberge-winter-egg-auction.html
+**Senators' offence comes alive against the Canadiens — and so did their defence**\
+`Brady Tkachuk and Fabian Zetterlund had multipoint games, and Ottawa's defence combined for 6 points in the victory. `\
+https://nytimes.com/athletic/6855753/2025/12/03/senators-canadiens-offence-defence/
 
-**Inside the Ultra-Orthodox Fight Against Israel’s Draft**\
-`For the first time in decades, ultra-Orthodox Jews in Israel are being called to serve in the country’s military. The community is furious, with protesters and military-age men openly defying the draft.`\
-https://nytimes.com/video/world/middleeast/100000010510485/israel-draft-idf-ultra-orthodox-jews.html
+**To help J.J. McCarthy, the Vikings needed to get their run game going. They have not**\
+`The Vikings are averaging 99.4 rushing yards per game, 25th in the NFL. That has not helped the development of their young quarterback.`\
+https://nytimes.com/athletic/6856225/2025/12/03/vikings-running-game-jj-mccarthy-kevin-oconnell/
 
-**On First Trip Abroad, Pope Leo Echoed Francis’s Message, Not His Style**\
-`Traveling through the Mideast, Leo XIV channeled many of his predecessor’s messages. Leo’s deliberate manner differed from Francis.`\
-https://nytimes.com/2025/12/03/world/europe/pope-leo-first-trip-francis-turkey-lebanon.html
+**With Red Wings back on track, can they carry momentum into long road trip?**\
+`The Red Wings' 5-4 win snapped a four-game losing streak, and featured strong showings in important places.`\
+https://nytimes.com/athletic/6857307/2025/12/03/red-wings-bruins-seider-edvinsson-van-riemsdyk/
 
-**Europe Wants to Get the Word Out: Russia Is to Blame for Sabotage**\
-`Officials are accusing Russia of smaller-scale assaults. President Vladimir V. Putin sought to turn the tables, saying that if Europe were to start a war, Russia is ready.`\
-https://nytimes.com/2025/12/03/world/europe/europe-russia-hybrid-attacks.html
+**How Mascherano silenced critics to bring Inter Miami to brink of MLS title**\
+`Lionel Messi's friend was initially derided as having secured the Miami job due to his close relationship with the Argentina superstar`\
+https://nytimes.com/athletic/6854127/2025/12/03/javier-mascherano-inter-miami-mls-cup-suarez/
 
-**Fantasy football best and worst Week 14 matchups: Is Justin Jefferson startable?**\
-`KC Joyner provides matchup ratings and reviews key players that could assist or hurt you in Week 14. `\
-https://nytimes.com/athletic/6854643/2025/12/03/fantasy-football-best-worst-week-14-matchups-justin-jefferson/
+**Are the Avalanche having the best start in recent NHL history?**\
+`At 19-1-6 through 26 games, Colorado already is in rare company and on pace to set an NHL record for points in a season.`\
+https://nytimes.com/athletic/6856816/2025/12/03/colorado-avalanche-nhl-record-points-wins/
 
-**A Small and Impossibly Brave Voice for Truth**\
-`Jewish Currents is fighting the good fight.`\
-https://nytimes.com/2025/12/03/opinion/charity-holiday-gift-jewish-currents.html
+**In Finland, Lauri Markkanen and Keyonte George found the bond the Jazz needed**\
+`Keyonte George didn't know what to expect when he made his way to Finland. He only wanted to learn how to understand Lauri Markkanen.`\
+https://nytimes.com/athletic/6798591/2025/12/03/utah-jazz-lauri-markkanen-keyonte-george-finland-trip/
 
