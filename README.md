@@ -11,7 +11,7 @@ https://nytimes.com/video/us/politics/100000010557371/trumps-shift-on-afghan-imm
 https://nytimes.com/video/us/politics/100000010560959/trump-sleep-cabinet-meeting.html
 
 **James Solomon Beats Jim McGreevey, a Former Governor, in Jersey City**\
-`Mr. Solomon was elected mayor over Mr. McGreevey, who was hoping for a comeback after resigning in 2004 as New Jersey’s governor in the midst of a sex scandal.`\
+`Mr. Solomon was elected mayor over Mr. McGreevey, who was hoping for a comeback after resigning in 2004 as New Jersey’s governor amid a sex scandal.`\
 https://nytimes.com/2025/12/02/nyregion/james-solomon-jim-mcgreevey-jersey-city.html
 
 **Lawsuits allege USA Gymnastics, SafeSport failed to prevent sexual abuse by coach**\
