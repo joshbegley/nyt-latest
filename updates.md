@@ -1,3 +1,7 @@
+**Germany named 2029 women's European Championship hosts**\
+`The hosts were appointed by the UEFA Executive Committee at its meeting in Nyon, Switzerland on Wednesday.`\
+https://nytimes.com/athletic/6857907/2025/12/03/womens-euros-hosts-2029/
+
 **NFL Week 14 survivor pool picks, strategy: Bucs, Dolphins are the top picks**\
 `Adam Gretz and Renee Miller answer reader questions and give their survivor pool picks for Week 14.`\
 https://nytimes.com/athletic/6858170/2025/12/03/nfl-week-14-survivor-pool-picks-strategy-buccaneers-dolphins/
