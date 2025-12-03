@@ -1,40 +1,36 @@
-**How to watch NC State vs. Auburn men's basketball: Time, TV, streaming**\
-`Find out how to watch the NC State Wolfpack play the Auburn Tigers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6859445/2025/12/03/nc-state-vs-auburn-stream-how-to-watch-dec-3/
+**NBA fines 76ers $100K for another violation of injury report rules**\
+`Joel Embiid was listed as "out" on the initial Nov. 30 injury report; however, he played a season-high 30 minutes.`\
+https://nytimes.com/athletic/6859308/2025/12/03/nba-fines-76ers-injury-reporting-rules-joel-embiid/
 
-**How to watch SE Louisiana vs. Baylor women's basketball: Time, TV, streaming**\
-`Find out how to watch the SE Louisiana Lions play the Baylor Bears, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6859444/2025/12/03/se-louisiana-vs-baylor-stream-how-to-watch-dec-3/
+**Anthropic C.E.O. Says A.I. Tech Is Solid, But Massive Spending Poses Risk**\
+`The Anthropic chief executive Dario Amodei told Andrew Ross Sorkin, Dealbook Editor at Large, that the A.I. industry was taking on considerable risk as it spends hundreds of billions of dollars on the data centers that power its technology.`\
+https://nytimes.com/video/technology/100000010563284/dealbook-artificial-intelligence-anthropic.html
 
-**How to watch Incarnate Word vs. TCU women's basketball: Time, TV, streaming**\
-`Find out how to watch the Incarnate Word Cardinals play the TCU Horned Frogs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6859438/2025/12/03/incarnate-word-vs-tcu-stream-how-to-watch-dec-3/
+**A Black Bear Chooses a California Man’s House as His Den**\
+`Ken Johnson has tried noisy tactics to encourage the 550-pound houseguest in his crawl space to leave. He is not sure it’s working.`\
+https://nytimes.com/2025/12/03/us/california-bear-crawl-space.html
 
-**How to watch Louisville vs. Arkansas men's basketball: Time, TV, streaming**\
-`Find out how to watch the Louisville Cardinals play the Arkansas Razorbacks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6859434/2025/12/03/louisville-vs-arkansas-stream-how-to-watch-dec-3/
+**Trump’s Threat of Military Action Is a Major Challenge to Maduro. Here’s What to Know.**\
+`The president has warned that the United States could soon expand its attacks from boats near the coast to targets inside Venezuela, but he has also spoken by phone to its leader.`\
+https://nytimes.com/2025/12/03/world/americas/venezuela-strikes-maduro.html
 
-**How to watch Alcorn State vs. Iowa State men's basketball: Time, TV, streaming**\
-`Find out how to watch the Alcorn State Braves play the Iowa State Cyclones, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6859431/2025/12/03/alcorn-state-vs-iowa-state-stream-how-to-watch-dec-3/
+**How to watch Pistons vs. Bucks: Time, TV, streaming**\
+`Find out how to watch the Detroit Pistons play the Milwaukee Bucks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6859467/2025/12/03/pistons-vs-bucks-stream-how-to-watch-dec-3/
 
-**How to watch SMU vs. Vanderbilt men's basketball: Time, TV, streaming**\
-`Find out how to watch the SMU Mustangs play the Vanderbilt Commodores, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6859425/2025/12/03/smu-vs-vanderbilt-stream-how-to-watch-dec-3/
+**How to watch Clippers vs. Hawks: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Clippers play the Atlanta Hawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6859463/2025/12/03/clippers-vs-hawks-stream-how-to-watch-dec-3/
 
-**How to watch Tennessee vs. Stanford women's basketball: Time, TV, streaming**\
-`Find out how to watch the Tennessee Lady Volunteers play the Stanford Cardinal, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6859401/2025/12/03/tennessee-vs-stanford-stream-how-to-watch-dec-3/
+**How to watch Hornets vs. Knicks: Time, TV, streaming**\
+`Find out how to watch the Charlotte Hornets play the New York Knicks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6859462/2025/12/03/hornets-vs-knicks-stream-how-to-watch-dec-3/
 
-**How to watch Clemson vs. Alabama men's basketball: Time, TV, streaming**\
-`Find out how to watch the Clemson Tigers play the Alabama Crimson Tide, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6859399/2025/12/03/clemson-vs-alabama-stream-how-to-watch-dec-3/
+**How to watch Heat vs. Mavericks: Time, TV, streaming**\
+`Find out how to watch the Miami Heat play the Dallas Mavericks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6859459/2025/12/03/heat-vs-mavericks-stream-how-to-watch-dec-3/
 
-**How to watch Cal Baptist vs. BYU men's basketball: Time, TV, streaming**\
-`Find out how to watch the Cal Baptist Lancers play the BYU Cougars, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6859397/2025/12/03/cal-baptist-vs-byu-stream-how-to-watch-dec-3/
-
-**How to watch NC State vs. Oklahoma women's basketball: Time, TV, streaming**\
-`Find out how to watch the NC State Lady Wolfpack play the Oklahoma Sooners, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6859395/2025/12/03/nc-state-vs-oklahoma-stream-how-to-watch-dec-3/
+**How to watch Capitals vs. Sharks: Time, TV, streaming**\
+`Find out how to watch the Washington Capitals play the San Jose Sharks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6859457/2025/12/03/capitals-vs-sharks-stream-how-to-watch-dec-3/
 
