@@ -1,3 +1,7 @@
+**What Tennessee Revealed About the G.O.P.’s Trump Trap in the Midterms**\
+`Republican candidates face the problem that President Trump alone gets out the vote that they need. And he alone gets out the vote that Democrats need, too.`\
+https://nytimes.com/2025/12/03/us/politics/tennessee-special-election-trump-midterms.html
+
 **Trump’s Xenophobic ‘Garbage’ Rant**\
 `Readers criticize President Trump’s tirade against Somali immigrants. Also: A cruel deportee deal; beyond tech bans.`\
 https://nytimes.com/2025/12/03/opinion/trump-somali-immigrants.html
@@ -9,6 +13,10 @@ https://nytimes.com/2025/12/03/dining/chateau-royale-los-burritos-juarez-bar-kab
 **Anthony Kay signs 2-year deal with White Sox as lefty makes return from Japan**\
 `Kay returns to MLB after two seasons in Japan, where he added a new pitch and excelled in the rotation.`\
 https://nytimes.com/athletic/6859037/2025/12/03/anthony-kay-white-sox-free-agent/
+
+**Instant grades for college football's 2025-26 head-coaching hires**\
+`In college football, you never really know whether a coaching hire is going to work. But it's never too early to talk about fit.`\
+https://nytimes.com/athletic/6827060/2025/12/03/college-football-coaching-carousel-grades/
 
 **Taiwan’s President Warns of Growing Chinese Military Aggression**\
 `In a pre-taped interview for The New York Times’s Dealbook summit, Taiwan’s president, Lai Ching-te, spoke about China’s continuing threat to Taiwan’s sovereignty and the country’s relationship to the U.S.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6859054/2025/12/03/bears-mailbag-questions-51/
 **Two U.K. Women’s Groups Ban Transgender Girls and Women**\
 `The Girlguiding organization and the Women’s Institute both said a court ruling from earlier this year had forced their hands.`\
 https://nytimes.com/2025/12/03/world/europe/uk-trans-ban-womens-institute-girl-guides.html
-
-**Why the World Cup draw is the focal point of the sports year: MoneyCall**\
-`More in this week's sports business newsletter: Ode to the '85 Bears' signature cultural moment, Lane Kiffin, Michele Kang and Curt Cignetti`\
-https://nytimes.com/athletic/6858988/2025/12/03/world-cup-draw-infantino-trump-moneycall/
-
-**In remarkable run with Wild, Jesper Wallstedt showing Oilers what they're missing**\
-`In the 2021 NHL Draft, Edmonton traded away the pick that Minnesota went on to use on their standout rookie goalie.`\
-https://nytimes.com/athletic/6857549/2025/12/03/wild-jesper-wallstedt-shutouts/
 
