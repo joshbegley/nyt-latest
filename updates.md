@@ -1,3 +1,7 @@
+**Remain Unresolved**\
+`Victor Barocas is a force to be reckoned with.`\
+https://nytimes.com/2025/12/02/crosswords/daily-puzzle-2025-12-03.html
+
 **Read the Ruling on Warrantless Arrests in Washington, D.C.**\
 `A federal district judge ruled on Tuesday in a case against the Department of Homeland Security over warrantless civil immigration arrests.`\
 https://nytimes.com/interactive/2025/12/02/us/dc-ruling-warrantless-arrests.html
