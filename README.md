@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6856886/2025/12/03/everton-bournemouth-jack-grealis
 https://nytimes.com/2025/12/03/arts/television/late-night-trump-truth-social.html
 
 **Spurs needed a reason to believe. Main character Cristian Romero gave them one**\
-`The real challenge now is to turn this from one good moment from Romero into something Spurs can build on.`\
+`The real challenge now is to turn this from one good moment from Romero into something Spurs can build on`\
 https://nytimes.com/athletic/6851839/2025/12/03/cristian-romero-goals-tottenham/
 
 **They Have a Historic Mission, and They’re Blowing It**\
