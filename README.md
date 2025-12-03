@@ -1,4 +1,12 @@
-**From Welcome to Worry: Afghans in the U.S. Face Uncertainty, Backlash**\
+**Lionel Messi's legacy doesn't need an Inter Miami MLS Cup title. Or does it?**\
+`Messi has won - and lost - bigger games than Saturday's MLS Cup final. But at his level of greatness, every opportunity counts `\
+https://nytimes.com/athletic/6854125/2025/12/03/messi-mls-cup-final-legacy-inter-miami/
+
+**Your Immigration Questions, Answered**\
+`As Trump steps up his crackdown, our reporters explain what’s happening.`\
+https://nytimes.com/2025/12/03/us/politics/trump-immigration-crackdown-deportations-economy.html
+
+**From Welcome to Worry: Afghans in the U.S. Face Uncertainty and Backlash**\
 `Afghan immigrants in the United States believed they were safe. A deadly shooting that authorities say was carried out by an Afghan has thrown their futures into doubt.`\
 https://nytimes.com/2025/12/03/us/afghan-refugees-immigration-dc-shooting.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6859373/2025/12/03/giannis-antetokounmpo-bucks-futu
 **Restaurant Review: Yamada**\
 `This week Ligaya Mishan, one of The New York Times’s chief restaurant critics, reviewed Yamada. This unshowy restaurant in Manhattan’s Chinatown exemplifies the subtle art of the most rarefied form of Japanese cooking.`\
 https://nytimes.com/video/dining/100000010562104/restaurant-review-yamada.html
-
-**Bills claim Darius Slay off waivers from Steelers, release Ja'Marcus Ingram**\
-`Slay, a six-time Pro Bowl selection, is an insurance policy at cornerback for Buffalo. He played 10 games with Pittsburgh this season.`\
-https://nytimes.com/athletic/6859897/2025/12/03/darius-slay-bills-claim-waivers-steelers/
-
-**Arteta frustrated at Arsenal's PL schedule after Mosquera and Rice injuries**\
-`Cristhian Mosquera and Declan Rice were both forced off with injuries as Arsenal beat Brentford 2-0.`\
-https://nytimes.com/athletic/6859971/2025/12/03/mikel-arteta-rice-mosquera-arsenal-injuries/
 
