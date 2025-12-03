@@ -1,3 +1,7 @@
+**U.S. Military’s Boat Strikes Planning Takes on New Significance**\
+`The details could raise questions about who was responsible for a follow-up strike on Sept. 2 — the commander who ordered it or the defense secretary.`\
+https://nytimes.com/2025/12/03/us/politics/trump-boat-strikes-survivors.html
+
 **Gavin Newsom: Democrats Need to Be ‘More Culturally Normal’**\
 `During an interview at the DealBook Summit with Andrew Ross Sorkin, editor at large, Gov. Gavin Newsom of California said that Democrats needed to design a compelling economic vision for the future.`\
 https://nytimes.com/video/business/dealbook/100000010563650/governor-gavin-newsom-democrats-dealbook.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/12/03/business/dealbook-summit-news/prediction-mar
 **Curt Cignetti becomes Bobblehead Hall of Fame's top seller for 2025**\
 `The Indiana football coach is donating his bobblehead proceeds to charity. `\
 https://nytimes.com/athletic/6859549/2025/12/03/curt-cignetti-bobbleheads-pope-leo/
-
-**A Winter Dinner Menu That Brings the Sunshine**\
-`This hearty meal, featuring lamb meatballs and a pear and radicchio salad, is punctuated with a spectacularly sunny, yet festive, lemon roulade.`\
-https://nytimes.com/2025/12/03/dining/winter-dinner-menu.html
 
