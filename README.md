@@ -1,3 +1,7 @@
+**Steve Cropper, Guitarist, Songwriter and a Shaper of Memphis Soul Music**\
+`As a member of Booker T. & the MG’s and as a producer, he played a pivotal role in the rise of Stax Records, a storied force in R&B in the 1960s and ’70s.`\
+https://nytimes.com/2025/12/03/arts/music/steve-cropper-dead.html
+
 **How Dan Mullen built UNLV by raiding talent from the nation's best programs**\
 `UNLV (10-2), led by Dan Mullen, hopes to knock off Boise State in Friday's Mountain West Championship.`\
 https://nytimes.com/athletic/6859081/2025/12/03/unlv-dan-mullen-roster-mountain-west-championship-game/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6859769/2025/12/03/penn-state-tulane-jmu-coaching-s
 **Repatriation Flights With Hundreds of Migrants Arrive in Venezuela**\
 `The flights with Venezuelans who had been living in the United States arrived at a time of airspace safety concerns as the U.S. military pressures Venezuela’s leader.`\
 https://nytimes.com/2025/12/03/us/politics/venezuela-repatriation-flights-trump.html
-
-**Hoping for rebound, Rays sign Cedric Mullins to one-year deal: Source**\
-`Mullins ranked 39th on The Athletic’s Big Board, third among center fielders.`\
-https://nytimes.com/athletic/6837810/2025/12/03/mlb-cedric-mullins-free-agency-signing-rays/
 
