@@ -1,3 +1,11 @@
+**Political lobbying and 13 re-airs of Miami-Notre Dame can't help Canes in Playoff rankings**\
+`The campaigning is hard to get Miami into the Playoff field. The Canes are still on the bubble. `\
+https://nytimes.com/athletic/6856899/2025/12/02/miami-hurricanes-college-football-playoff-rankings-reaction/
+
+**Smartmatic and Fox Urge Judge to Decide Defamation Case**\
+`The case centers on false vote-rigging claims broadcast by Fox News during the 2020 U.S. presidential election.`\
+https://nytimes.com/2025/12/02/business/media/smartmatic-fox-news-defamation-case.html
+
 **Key Bears-Packers matchup in Week 16 set for 8:20 p.m. ET kickoff**\
 `The times for the Dec. 20 matchups had not previously been announced.`\
 https://nytimes.com/athletic/6856892/2025/12/02/bears-packers-week-16-kickoff/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6856864/2025/12/02/broncos-vs-raiders-stream-how-to
 **How to watch Rams vs. Cardinals: Time, TV, streaming**\
 `Find out how to watch the Los Angeles Rams play the Arizona Cardinals, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6856862/2025/12/02/rams-vs-cardinals-stream-how-to-watch-dec-7/
-
-**How to watch Bears vs. Packers: Time, TV, streaming**\
-`Find out how to watch the Chicago Bears play the Green Bay Packers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6856858/2025/12/02/bears-vs-packers-stream-how-to-watch-dec-7/
-
-**KBO MVP Cody Ponce to sign three-year, $30M deal with Blue Jays: Sources**\
-`After a historic 2025 season, Ponce was awarded the KBO's equivalent to the Cy Young Award and its league MVP. `\
-https://nytimes.com/athletic/6853998/2025/12/02/mlb-cody-ponce-free-agency-signing-blue-jays/
 

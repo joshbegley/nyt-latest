@@ -1,3 +1,15 @@
+**Key Bears-Packers matchup in Week 16 set for 8:20 p.m. ET kickoff**\
+`The times for the Dec. 20 matchups had not previously been announced.`\
+https://nytimes.com/athletic/6856892/2025/12/02/bears-packers-week-16-kickoff/
+
+**Washington soccer rallied around memory of Mia Hamant: 'We just played our hearts out'**\
+`Following the tragic death of their goalie, the Huskies went on an emotional postseason run to the Elite Eight.`\
+https://nytimes.com/athletic/6856353/2025/12/02/mia-hamant-washington-womens-soccer/
+
+**College Football Playoff 2025 projections: What our model says after the latest Top 25**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/12/02/college-football-playoff-bracket-projections-odds/
+
 **After Decades in Combat, a SEAL Suddenly Comes Under Scrutiny**\
 `Adm. Frank M. Bradley will soon face questions from lawmakers, as Republicans and Democrats express concerns about a Sept. 2 attack on a boat in the Caribbean.`\
 https://nytimes.com/2025/12/02/us/politics/admiral-bradley-boat-strikes.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6856858/2025/12/02/bears-vs-packers-stream-how-to-w
 **KBO MVP Cody Ponce to sign three-year, $30M deal with Blue Jays: Sources**\
 `After a historic 2025 season, Ponce was awarded the KBO's equivalent to the Cy Young Award and its league MVP. `\
 https://nytimes.com/athletic/6853998/2025/12/02/mlb-cody-ponce-free-agency-signing-blue-jays/
-
-**Trump Calls Somalis ‘Garbage’ in Xenophobic Rant**\
-`President Trump lashed out against Somali immigrants, including Representative Ilhan Omar, Democrat of Minnesota, who came to the United States from Somalia as a refugee and became a citizen 25 years ago.`\
-https://nytimes.com/video/us/politics/100000010560845/trump-somalia-xenophobic-remarks.html
-
-**U.S. Pauses Immigration Applications From Nations on Travel Ban List**\
-`The pause, which will halt green card and U.S. citizenship processing for broad swaths of people, deepens a remarkable crackdown on legal immigration pathways in recent days.`\
-https://nytimes.com/2025/12/02/us/politics/trump-travel-ban-citizenship-green-cards-dc-shooting.html
-
-**Miley Cyrus and Maxx Morando Are Engaged**\
-`The Grammy Award-winning singer debuted a 14-karat gold, cushion-set natural diamond ring while posing with her longtime boyfriend, Mr. Morando, at the Los Angeles premiere of “Avatar: Fire and Ash.”`\
-https://nytimes.com/2025/12/02/style/miley-cyrus-engagement-maxx-morando.html
 

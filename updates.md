@@ -1,3 +1,15 @@
+**Key Bears-Packers matchup in Week 16 set for 8:20 p.m. ET kickoff**\
+`The times for the Dec. 20 matchups had not previously been announced.`\
+https://nytimes.com/athletic/6856892/2025/12/02/bears-packers-week-16-kickoff/
+
+**Washington soccer rallied around memory of Mia Hamant: 'We just played our hearts out'**\
+`Following the tragic death of their goalie, the Huskies went on an emotional postseason run to the Elite Eight.`\
+https://nytimes.com/athletic/6856353/2025/12/02/mia-hamant-washington-womens-soccer/
+
+**College Football Playoff 2025 projections: What our model says after the latest Top 25**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/12/02/college-football-playoff-bracket-projections-odds/
+
 **After Decades in Combat, a SEAL Suddenly Comes Under Scrutiny**\
 `Adm. Frank M. Bradley will soon face questions from lawmakers, as Republicans and Democrats express concerns about a Sept. 2 attack on a boat in the Caribbean.`\
 https://nytimes.com/2025/12/02/us/politics/admiral-bradley-boat-strikes.html
