@@ -1,3 +1,7 @@
+**They Were Supposed to Save Europe. Instead, They’re Condemning It to Horrors.**\
+`Centrist governments are failing badly in Europe’s leading economies, setting the stage for a far-right sweep.`\
+https://nytimes.com/2025/12/03/opinion/europe-britain-france-germany-centrist.html
+
 **How to watch Texans vs. Chiefs: Time, TV, streaming**\
 `Find out how to watch the Houston Texans play the Kansas City Chiefs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6857665/2025/12/03/texans-vs-chiefs-stream-how-to-watch-dec-7/
