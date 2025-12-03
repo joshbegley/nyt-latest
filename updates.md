@@ -1,3 +1,7 @@
+**Trump’s NASA Pick Poised to Win Senate Vote After Do-Over**\
+`The president withdrew Jared Isaacman’s nomination to lead the space agency in June, but senators of both parties appeared willing to give him a second shot at confirmation.`\
+https://nytimes.com/2025/12/03/science/trump-nasa-jared-isaacman-senate-hearing.html
+
 **Yegor Ligachev, Gorbachev’s No. 2 Who Turned Foe, Is Dead at 100**\
 `As the Kremlin’s hard-line Communist ideologist, he initially embraced his boss’s modernizing reforms before turning against them as threats to the Soviet order.`\
 https://nytimes.com/2025/12/03/world/europe/yegor-ligachev-dead.html

@@ -1,3 +1,7 @@
+**Trump’s NASA Pick Poised to Win Senate Vote After Do-Over**\
+`The president withdrew Jared Isaacman’s nomination to lead the space agency in June, but senators of both parties appeared willing to give him a second shot at confirmation.`\
+https://nytimes.com/2025/12/03/science/trump-nasa-jared-isaacman-senate-hearing.html
+
 **Yegor Ligachev, Gorbachev’s No. 2 Who Turned Foe, Is Dead at 100**\
 `As the Kremlin’s hard-line Communist ideologist, he initially embraced his boss’s modernizing reforms before turning against them as threats to the Soviet order.`\
 https://nytimes.com/2025/12/03/world/europe/yegor-ligachev-dead.html
@@ -29,12 +33,4 @@ https://nytimes.com/2025/12/03/dining/cake-cutting.html
 **Scoop City: Differing seasons for Abdul Carter and Drake Maye**\
 `The No. 3 rookie's situation, how divided football fans are on the tush push and Mike Sando weighs in on the surprise MVP frontrunner`\
 https://nytimes.com/athletic/6859180/2025/12/03/abdul-carter-giants-drake-maye-patriots-tush-push/
-
-**Chris Paul isn't 'scapegoat' for Clippers' awful start, Lawrence Frank says**\
-`Paul and Frank met for three hours in Atlanta and shortly after the meeting ended, Paul announced the Clippers were sending him home. `\
-https://nytimes.com/athletic/6859109/2025/12/03/clippers-chris-paul-lawrence-frank-part-ways/
-
-**Palantir’s Chief Defends His Company’s Work With ICE**\
-`Alex Karp also said he thought President Trump had “performed” on issues he cared about.`\
-https://nytimes.com/2025/12/03/business/dealbook/palantir-alex-karp-ice-trump.html
 
