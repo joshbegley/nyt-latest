@@ -1,3 +1,7 @@
+**Israel Says a Gaza Border Will Reopen, but Only for Palestinians to Leave**\
+`Israel had agreed to open the Rafah crossing as part of the October cease-fire deal with Hamas but kept it closed. Egypt denied that the border would reopen soon.`\
+https://nytimes.com/2025/12/03/world/middleeast/israel-rafah-crossing-gaza-ceasefire.html
+
 **Last year’s DealBook Summit featured Bill Clinton, Sam Altman and Jeff Bezos.**\
 `Artificial intelligence, inflation and the incoming Trump administration were big topics of conversation.`\
 https://nytimes.com/live/2025/12/03/business/dealbook-summit-news/last-years-dealbook-summit-featured-bill-clinton-sam-altman-and-jeff-bezos
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6857207/2025/12/03/anthony-edwards-timberwolves-pel
 **Trump Administration Live Updates: Federal Immigration Operation Starts in New Orleans**\
 ``\
 https://nytimes.com/live/2025/12/03/us/trump-news
-
-**What Could Make Russia Want Peace?**\
-`Economic and military pressures could force Russia’s hand. But its economy, though strained, is not strained enough to do that, analysts say. And President Vladimir V. Putin says Russia is winning the war.`\
-https://nytimes.com/2025/12/03/world/europe/russia-putin-ukraine-peace-deal.html
 
