@@ -1,3 +1,7 @@
+**Newcastle, late goals and bad habits that are costing precious points**\
+`No team has lost more points from winning positions than Eddie Howe's side. It's a problem that needs fixing`\
+https://nytimes.com/athletic/6857100/2025/12/03/newcastle-united-late-goals/
+
 **Textor seeks to clarify comment he 'adjusted' transfer fees with Evangelos Marinakis**\
 `Textor said an "awkward translation" was to blame after suggesting transfer fees were "adjusted" when conducted with Marinakis.`\
 https://nytimes.com/athletic/6855143/2025/12/03/textor-marinakis-transfers-nottingham-forest-crystal-palace/
