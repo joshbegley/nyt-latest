@@ -1,3 +1,11 @@
+**Rebecca Lowe joining Fox's World Cup coverage as host: Sources**\
+`Lowe’s role with NBC on the Premier League, the Olympics and Kentucky Derby will remain unchanged.`\
+https://nytimes.com/athletic/6858107/2025/12/03/world-cup-fox-coverage-rebecca-lowe-nbc-sports/
+
+**Federal Immigration Operation Starts in New Orleans**\
+`It is unclear how long the effort will last in Louisiana, where the Republican governor has welcomed the agents with open arms even as immigrant communities fear what might come.`\
+https://nytimes.com/2025/12/03/us/border-patrol-new-orleans-immigration.html
+
 **Can the Thunder break Golden State's 73-win record? The Warriors say yes**\
 `After beating Golden State to improve to 21-1, OKC is chasing the 2015-16 Warriors. "I do think they're capable," Draymond Green said.`\
 https://nytimes.com/athletic/6857956/2025/12/03/okc-thunder-wins-record-golden-state-warriors-nba/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6857959/2025/12/03/spain-nations-league-final-germa
 **Chelsea-bound Emegha handed one-game ban by Strasbourg**\
 `Since the announcement of the transfer, the striker and club captain has been the target of frustration and protests from Strasbourg fans.`\
 https://nytimes.com/athletic/6858004/2025/12/03/chelsea-emegha-strasbourg-ban/
-
-**College football conference championship guide: SEC's usual suspects, Big Ten's unbeatens**\
-`It's college football's conference championship weekend, with nine FBS title games going down Friday and Saturday. Here's how to watch them.`\
-https://nytimes.com/athletic/6855930/2025/12/03/college-football-championship-games-alabama-georgia-ohio-state-indiana/
-
-**What Is Pope Leo XIV Like Up Close?**\
-`Pope Leo XIV showed the world a glimpse of who he is and what he stands for during his papacy’s first international overseas trip. Motoko Rich, our Rome bureau chief, witnessed how a shy and cautious person took on the global stage.`\
-https://nytimes.com/video/world/100000010545998/who-is-pope-leo.html
 

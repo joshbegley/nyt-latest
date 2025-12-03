@@ -1,3 +1,19 @@
+**Can the Thunder break Golden State's 73-win record? The Warriors say yes**\
+`After beating Golden State to improve to 21-1, OKC is chasing the 2015-16 Warriors. "I do think they're capable," Draymond Green said.`\
+https://nytimes.com/athletic/6857956/2025/12/03/okc-thunder-wins-record-golden-state-warriors-nba/
+
+**How Phillies fans feel about Schwarber, Realmuto, the offseason and more**\
+`It's a time of uncertainty, and that sentiment is seemingly reflected in how fans feel about the club's direction. See our survey results.`\
+https://nytimes.com/athletic/6853406/2025/12/03/phillies-fan-survey-results-schwarber-realmuto/
+
+**Hegseth Invoked the ‘Fog of War’ in a Boat Strike. What Does That Mean?**\
+`Defense Secretary Pete Hegseth used the term, which alludes to uncertainty in battle, in reference to a deadly U.S. military attack in the Caribbean.`\
+https://nytimes.com/2025/12/03/us/fog-of-war-hegseth-boat-strike.html
+
+**Mandel's Mailbag: Schedule big, get burned? Notre Dame-Miami, Oklahoma's CFP case and more**\
+`Plus, did Ole Miss do the right thing by not letting Lane Kiffin coach? Can coach hiring windows be created? What's up with ACC tiebreakers?`\
+https://nytimes.com/athletic/6857294/2025/12/03/college-football-playoff-rankings-notre-dame-miami-oklahoma/
+
 **Barca's Olmo dislocates shoulder scoring goal, expected to miss a month**\
 `Olmo injured his left shoulder during the 3-1 victory over Atletico Madrid in La Liga on Tuesday.`\
 https://nytimes.com/athletic/6858055/2025/12/03/barcelona-dani-olmo-injury-dislocated-shoulder/
