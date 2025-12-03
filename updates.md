@@ -1,3 +1,11 @@
+**After Deadly Fire, Hong Kong Ominously Warns Grieving Citizens to Stay in Line**\
+`In a sign of China’s role in the city, officials have tried to stamp out calls for accountability over a catastrophe that killed at least 159 people.`\
+https://nytimes.com/2025/12/03/business/hong-kong-fire-china.html
+
+**“I Want to Find My Wife”: Indonesians Despair After Flooding**\
+`Indonesians reeled from devastating floods caused by heavy rains that killed least 700 people. Similar extreme weather tearing through South and Southeast Asia also ravaged parts of Sri Lanka, Malaysia, Thailand, Vietnam and the Philippines.`\
+https://nytimes.com/video/world/asia/100000010561595/indonesians-despair-missing-killed-flooding.html
+
 **Elden Campbell, 15-year NBA veteran and Clemson great, dies at 57**\
 `Campbell also played for the Hornets, Pistons, Nets and SuperSonics, and was a member of Detroit's 2004 NBA championship team.`\
 https://nytimes.com/athletic/6858129/2025/12/03/elden-campbell-dies-nba-lakers-clemson/

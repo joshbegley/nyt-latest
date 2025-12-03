@@ -1,3 +1,11 @@
+**After Deadly Fire, Hong Kong Ominously Warns Grieving Citizens to Stay in Line**\
+`In a sign of China’s role in the city, officials have tried to stamp out calls for accountability over a catastrophe that killed at least 159 people.`\
+https://nytimes.com/2025/12/03/business/hong-kong-fire-china.html
+
+**“I Want to Find My Wife”: Indonesians Despair After Flooding**\
+`Indonesians reeled from devastating floods caused by heavy rains that killed least 700 people. Similar extreme weather tearing through South and Southeast Asia also ravaged parts of Sri Lanka, Malaysia, Thailand, Vietnam and the Philippines.`\
+https://nytimes.com/video/world/asia/100000010561595/indonesians-despair-missing-killed-flooding.html
+
 **WNBA CBA proposal includes mandatory draft combine, new revenue-sharing model: Sources**\
 `The league proposed a draft combine requirement that ties participation to rookie salary.`\
 https://nytimes.com/athletic/6857443/2025/12/03/wnba-cba-proposal-draft-combine-salary/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6858750/2025/12/03/spurs-vs-magic-stream-how-to-wat
 **How to watch Trail Blazers vs. Cavaliers: Time, TV, streaming**\
 `Find out how to watch the Portland Trail Blazers play the Cleveland Cavaliers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6858747/2025/12/03/trail-blazers-vs-cavaliers-stream-how-to-watch-dec-3/
-
-**How to watch Stars vs. Devils: Time, TV, streaming**\
-`Find out how to watch the Dallas Stars play the New Jersey Devils, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6858748/2025/12/03/stars-vs-devils-stream-how-to-watch-dec-3/
-
-**Democrats Release Images of Epstein’s Private Home**\
-`In publicizing the photos and videos, Democrats in Congress appeared to be intensifying pressure on the Justice Department to release its files on the Epstein case.`\
-https://nytimes.com/2025/12/03/us/politics/epstein-island-home.html
 
