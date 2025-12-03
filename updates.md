@@ -1,3 +1,7 @@
+**Hansi Flick has a new solution for Barcelona's defence. But will he need more?**\
+`La Liga's defending champions still look short of options at the back, despite a clever move from their German coach`\
+https://nytimes.com/athletic/6857767/2025/12/03/barcelona-la-liga-atletico-hansi-flick-martin/
+
 **In a stunning, late-night move, Clippers send Chris Paul packing**\
 `The Clippers announced the surprise move in the middle of the night while in Atlanta amid a road trip.`\
 https://nytimes.com/athletic/6857787/2025/12/03/clippers-chris-paul-sent-home/
