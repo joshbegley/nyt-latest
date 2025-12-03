@@ -1,3 +1,11 @@
+**Treasury Secretary Scott Bessent Says He’s ‘Evolved’ on Tariffs**\
+`Speaking at The New York Times DealBook summit, U.S. Treasury Secretary Scott Bessent said American trading partners are opening their markets to the United States because of President Trump’s tariffs.`\
+https://nytimes.com/video/us/politics/100000010561883/nyt-dealbook-bessent-treasury.html
+
+**After ‘Evolving’ on Tariffs, Bessent Defends Their Merits**\
+`The Treasury secretary said that import levies were not fueling inflation.`\
+https://nytimes.com/2025/12/03/business/dealbook/scott-bessent-tariffs-trump.html
+
 **The Heartbreak Blues We’re Loving**\
 `Critic Jon Caramanica on country star Ella Langley’s new single.`\
 https://nytimes.com/video/podcasts/100000010560346/the-heartbreak-blues-were-loving.html
@@ -25,16 +33,4 @@ https://nytimes.com/athletic/6856712/2025/12/03/st-louis-cardinals-farewell-colu
 **My Father Had an Affair While My Mother Was Dying. Should I Tell My Siblings?**\
 `I get that peeking at his emails was an invasion of privacy, but it is not something I can unsee.`\
 https://nytimes.com/2025/12/03/magazine/father-affair-ethics.html
-
-**Trump Plans to Pardon Texas Congressman and Wife Awaiting Bribery Trial**\
-`The president used the latest pardon announcement to attack his predecessor, Joseph R. Biden Jr.`\
-https://nytimes.com/2025/12/03/us/politics/trump-pardons-henry-cuellar-texas-democrat.html
-
-**After Deadly Fire, Hong Kong Ominously Warns Grieving Citizens to Stay in Line**\
-`In a sign of China’s role in the city, officials have tried to stamp out calls for accountability over a catastrophe that killed at least 159 people.`\
-https://nytimes.com/2025/12/03/business/hong-kong-fire-china.html
-
-**“I Want to Find My Wife”: Indonesians Despair After Flooding**\
-`Indonesians reeled from devastating floods caused by heavy rains that killed least 700 people. Similar extreme weather tearing through South and Southeast Asia also ravaged parts of Sri Lanka, Malaysia, Thailand, Vietnam and the Philippines.`\
-https://nytimes.com/video/world/asia/100000010561595/indonesians-despair-missing-killed-flooding.html
 

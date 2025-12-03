@@ -1,3 +1,11 @@
+**Treasury Secretary Scott Bessent Says He’s ‘Evolved’ on Tariffs**\
+`Speaking at The New York Times DealBook summit, U.S. Treasury Secretary Scott Bessent said American trading partners are opening their markets to the United States because of President Trump’s tariffs.`\
+https://nytimes.com/video/us/politics/100000010561883/nyt-dealbook-bessent-treasury.html
+
+**After ‘Evolving’ on Tariffs, Bessent Defends Their Merits**\
+`The Treasury secretary said that import levies were not fueling inflation.`\
+https://nytimes.com/2025/12/03/business/dealbook/scott-bessent-tariffs-trump.html
+
 **The Heartbreak Blues We’re Loving**\
 `Critic Jon Caramanica on country star Ella Langley’s new single.`\
 https://nytimes.com/video/podcasts/100000010560346/the-heartbreak-blues-were-loving.html
