@@ -1,3 +1,15 @@
+**Alexander-Arnold injured in Real Madrid's 3-0 win over Athletic Club**\
+`Midfielder Eduardo Camavinga was also substituted after sustaining what appeared to be ankle injury.`\
+https://nytimes.com/athletic/6859252/2025/12/03/real-madrid-athletic-club-trent-camavinga-injury/
+
+**Anthropic’s Chief Executive Acknowledges Risks of Huge Spending on A.I.**\
+`As he and his company pour tens of billions into new data centers, Dario Amodei said they face a “cone of uncertainty.”`\
+https://nytimes.com/2025/12/03/business/dealbook/anthropic-dario-amodei-ai-risks.html
+
+**Black Bear, Uninvited, Moves Into California Man’s Crawl Space**\
+`Ken Johnson has tried noisy tactics to encourage the 550-pound houseguest in his crawl space to leave. He is not sure it’s working.`\
+https://nytimes.com/2025/12/03/us/california-bear-crawl-space.html
+
 **NBA fines 76ers $100K for another violation of injury report rules**\
 `Joel Embiid was listed as "out" on the initial Nov. 30 injury report; however, he played a season-high 30 minutes.`\
 https://nytimes.com/athletic/6859308/2025/12/03/nba-fines-76ers-injury-reporting-rules-joel-embiid/
