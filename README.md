@@ -1,3 +1,11 @@
+**Can Chris Paul help any team? Here are 5 potential landing spots**\
+`The 40-year-old has said this season is his last. Where that campaign ends remains to be seen.`\
+https://nytimes.com/athletic/6858496/2025/12/03/nba-chris-paul-cp3-potential-teams/
+
+**G.M. Will Still Make Efficient Motors Despite Weaker Rules, C.E.O. Says**\
+`But the chief executive, Mary Barra, added that the jury was still out on whether electric vehicles would become a major seller in the United States.`\
+https://nytimes.com/2025/12/03/business/dealbook/general-motors-ceo-fuel-efficiency.html
+
 **Treasury Secretary Scott Bessent Says He’s ‘Evolved’ on Tariffs**\
 `Speaking at The New York Times DealBook summit, U.S. Treasury Secretary Scott Bessent said American trading partners are opening their markets to the United States because of President Trump’s tariffs.`\
 https://nytimes.com/video/us/politics/100000010561883/nyt-dealbook-bessent-treasury.html
@@ -25,12 +33,4 @@ https://nytimes.com/2025/12/03/world/africa/tunisia-arrest-hammami-crackdown.htm
 **The Chiefs of BlackRock and Coinbase Dismiss Fears of a Coming Crypto Winter**\
 `Larry Fink and Brian Armstrong haven’t always agreed on crypto, but the business leaders’ embrace of the asset has helped bring it into the mainstream.`\
 https://nytimes.com/2025/12/03/business/dealbook/blackrock-coinbase-crypto-dealbook-summit.html
-
-**Woo: After five seasons on the Cardinals beat, it's time for something new**\
-`Through it all, this job never stopped being what I always imagined it would be: a dream. That is thanks to you.`\
-https://nytimes.com/athletic/6856712/2025/12/03/st-louis-cardinals-farewell-column-katie-woo/
-
-**My Father Had an Affair While My Mother Was Dying. Should I Tell My Siblings?**\
-`I get that peeking at his emails was an invasion of privacy, but it is not something I can unsee.`\
-https://nytimes.com/2025/12/03/magazine/father-affair-ethics.html
 
