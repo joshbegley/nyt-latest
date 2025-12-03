@@ -22,7 +22,7 @@ https://nytimes.com/athletic/6856862/2025/12/02/rams-vs-cardinals-stream-how-to-
 `Find out how to watch the Chicago Bears play the Green Bay Packers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6856858/2025/12/02/bears-vs-packers-stream-how-to-watch-dec-7/
 
-**Korean Baseball MVP Cody Ponce to sign three-year deal with Blue Jays: Sources**\
+**KBO MVP Cody Ponce to sign three-year, $30M deal with Blue Jays: Sources**\
 `After a historic 2025 season, Ponce was awarded the KBO's equivalent to the Cy Young Award and its league MVP. `\
 https://nytimes.com/athletic/6853998/2025/12/02/mlb-cody-ponce-free-agency-signing-blue-jays/
 
