@@ -1,3 +1,15 @@
+**Ranking the top 10 college football stadiums in the Group of 6 conferences**\
+`College football has plenty of hidden-gem stadiums outside the Power 4 conferences. Here are our favorites in the Group of 6.`\
+https://nytimes.com/athletic/6850880/2025/12/03/college-football-stadium-rankings-best-group-of-6/
+
+**WNBA mock expansion draft: Who will Toronto Tempo and Portland Fire select?**\
+`Our experts make the picks for the WNBA's two newest teams. A four-time WNBA All-Star is among the players on the move. `\
+https://nytimes.com/athletic/6838510/2025/12/03/wnba-expansion-draft-portland-toronto-expert-picks/
+
+**How Cade Horton's emergence eases the Cubs' starting pitching concerns**\
+`The presence of Horton is a luxury Chicago lacked when it was shopping for starting pitching nearly a decade ago.`\
+https://nytimes.com/athletic/6856918/2025/12/03/chicago-cubs-cade-horton-pitching-emergence/
+
 **Son to return to Tottenham for fan farewell against Slavia Prague**\
 `Son, 33, left Spurs to join Los Angeles FC over the summer.`\
 https://nytimes.com/athletic/6855573/2025/12/03/heung-min-son-return-tottenham-mls/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6856711/2025/12/03/cowboys-playoff-chances-lions-th
 **Senators' offence comes alive against the Canadiens — and so did their defence**\
 `Brady Tkachuk and Fabian Zetterlund had multipoint games, and Ottawa's defence combined for 6 points in the victory. `\
 https://nytimes.com/athletic/6855753/2025/12/03/senators-canadiens-offence-defence/
-
-**To help J.J. McCarthy, the Vikings needed to get their run game going. They have not**\
-`The Vikings are averaging 99.4 rushing yards per game, 25th in the NFL. That has not helped the development of their young quarterback.`\
-https://nytimes.com/athletic/6856225/2025/12/03/vikings-running-game-jj-mccarthy-kevin-oconnell/
-
-**With Red Wings back on track, can they carry momentum into long road trip?**\
-`The Red Wings' 5-4 win snapped a four-game losing streak, and featured strong showings in important places.`\
-https://nytimes.com/athletic/6857307/2025/12/03/red-wings-bruins-seider-edvinsson-van-riemsdyk/
-
-**How Mascherano silenced critics to bring Inter Miami to brink of MLS title**\
-`Lionel Messi's friend was initially derided as having secured the Miami job due to his close relationship with the Argentina superstar`\
-https://nytimes.com/athletic/6854127/2025/12/03/javier-mascherano-inter-miami-mls-cup-suarez/
 

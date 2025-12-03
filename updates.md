@@ -1,3 +1,7 @@
+**Son to return to Tottenham for fan farewell against Slavia Prague**\
+`Son, 33, left Spurs to join Los Angeles FC over the summer.`\
+https://nytimes.com/athletic/6855573/2025/12/03/heung-min-son-return-tottenham-mls/
+
 **ACC/SEC Women's Challenge schedule: South Carolina-Louisville headlines conference battle**\
 `South Carolina-Louisville, LSU-Duke and North Carolina-Texas stand out as must-see matchups in the third annual ACC/SEC Women's Challenge. `\
 https://nytimes.com/athletic/6856507/2025/12/03/acc-sec-womens-college-basketball-challenge-schedule-2025/

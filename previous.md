@@ -1,3 +1,7 @@
+**Son to return to Tottenham for fan farewell against Slavia Prague**\
+`Son, 33, left Spurs to join Los Angeles FC over the summer.`\
+https://nytimes.com/athletic/6855573/2025/12/03/heung-min-son-return-tottenham-mls/
+
 **ACC/SEC Women's Challenge schedule: South Carolina-Louisville headlines conference battle**\
 `South Carolina-Louisville, LSU-Duke and North Carolina-Texas stand out as must-see matchups in the third annual ACC/SEC Women's Challenge. `\
 https://nytimes.com/athletic/6856507/2025/12/03/acc-sec-womens-college-basketball-challenge-schedule-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6857307/2025/12/03/red-wings-bruins-seider-edvinsso
 **How Mascherano silenced critics to bring Inter Miami to brink of MLS title**\
 `Lionel Messi's friend was initially derided as having secured the Miami job due to his close relationship with the Argentina superstar`\
 https://nytimes.com/athletic/6854127/2025/12/03/javier-mascherano-inter-miami-mls-cup-suarez/
-
-**Are the Avalanche having the best start in recent NHL history?**\
-`At 19-1-6 through 26 games, Colorado already is in rare company and on pace to set an NHL record for points in a season.`\
-https://nytimes.com/athletic/6856816/2025/12/03/colorado-avalanche-nhl-record-points-wins/
 
