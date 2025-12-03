@@ -1,3 +1,11 @@
+**Europe Wants to Get the Word Out: Russia Is to Blame for Sabotage**\
+`Officials are accusing Russia of smaller-scale assaults. President Vladimir V. Putin sought to turn the tables, saying that if Europe were to start a war, Russia is ready.`\
+https://nytimes.com/2025/12/03/world/europe/europe-russia-hybrid-attacks.html
+
+**Fantasy football best and worst Week 14 matchups: Is Justin Jefferson startable?**\
+`KC Joyner provides matchup ratings and reviews key players that could assist or hurt you in Week 14. `\
+https://nytimes.com/athletic/6854643/2025/12/03/fantasy-football-best-worst-week-14-matchups-justin-jefferson/
+
 **A Small and Impossibly Brave Voice for Truth**\
 `Jewish Currents is fighting the good fight.`\
 https://nytimes.com/2025/12/03/opinion/charity-holiday-gift-jewish-currents.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/03/technology/cryptocurrencies-tumble-trump-rally.ht
 **Ahead of Tariff Ruling, Businesses Race to Secure Refunds**\
 `The Supreme Court has not yet ruled on the legality of President Trump’s sweeping tariffs, but some companies aren’t waiting to try to secure a speedy and substantial payout.`\
 https://nytimes.com/2025/12/03/business/supreme-court-tariff-ruling-refunds.html
-
-**Guess Which Presidential Power Trump Likes the Most**\
-`In the rights hands, the pardon power is too strong. In the wrong hands, it is disastrous.`\
-https://nytimes.com/2025/12/03/opinion/trump-pardon-power.html
-
-**Holiday Theater: 15 Shows to Spice Up Your Festive Season**\
-`Enticements abound in New York City, including Jinkx Monsoon crooning, Dickens reciting Dickens and, for the whole family, the Big Apple Circus.`\
-https://nytimes.com/2025/12/03/theater/holiday-theater-plays-musicals.html
 
