@@ -1,3 +1,7 @@
+**Macy’s Raises Sales Forecast Again as Shoppers Prove Resilient**\
+`A turnaround at the largest department store chain in the United States is progressing, with consumers turning out despite the effects of tariffs and economic uncertainty.`\
+https://nytimes.com/2025/12/03/world/europe/macys-retail-spending-economy.html
+
 **Spain's Women's Nations League victory marks an end to the team's darkest era**\
 `After years of struggle and hardship, Spain's latest success is a sign of the huge change they have made happen`\
 https://nytimes.com/athletic/6857959/2025/12/03/spain-nations-league-final-germany-victory/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6856697/2025/12/03/49ers-fred-warner-injury-return-
 **Lakers first-quarter evaluation: What is their identity?**\
 `The Los Angeles Lakers are 15-5. Where are they headed as the season progresses and their identity evolves?`\
 https://nytimes.com/athletic/6856352/2025/12/03/lakers-first-quarter-season-evaluation-team-identity/
-
-**Haywoode Workman's next act after the NBA? Creating an HBCU basketball tournament**\
-`After playing then officiating in the NBA for more than 20 seasons, Workman kept his mind on hoops but turned his focus to helping HBCUs.`\
-https://nytimes.com/athletic/6849631/2025/12/03/hbcu-basketball-tournament-haywoode-workman-nba-player-referee/
 
