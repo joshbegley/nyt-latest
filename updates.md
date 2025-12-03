@@ -1,3 +1,15 @@
+**USF expected to hire Ohio State OC Brian Hartline as head coach: Sources**\
+`Hartline would replace Alex Golesh, who was hired by Auburn on Sunday.`\
+https://nytimes.com/athletic/6858432/2025/12/03/usf-brian-hartline-head-coaching-hire/
+
+**CHANEL COMES TO NEW YORK**\
+`Chanel finds love in the Big Apple`\
+https://nytimes.com/paidpost/chanel/chanel-comes-to-new-york.html
+
+**Kansas State's Chris Klieman to retire: Source**\
+`Klieman, 58, was 54-34 at Kansas State with six bowl appearances and a Big 12 championship in 2022.`\
+https://nytimes.com/athletic/6858414/2025/12/03/kansas-state-chris-klieman-collin-klein/
+
 **Watch Jenny Slate and Indeed tackle the modern workplace**\
 `From skills and resumes to technology and wellbeing.`\
 https://nytimes.com/paidpost/2025-11-19/.html

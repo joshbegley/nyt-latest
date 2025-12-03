@@ -1,3 +1,15 @@
+**USF expected to hire Ohio State OC Brian Hartline as head coach: Sources**\
+`Hartline would replace Alex Golesh, who was hired by Auburn on Sunday.`\
+https://nytimes.com/athletic/6858432/2025/12/03/usf-brian-hartline-head-coaching-hire/
+
+**CHANEL COMES TO NEW YORK**\
+`Chanel finds love in the Big Apple`\
+https://nytimes.com/paidpost/chanel/chanel-comes-to-new-york.html
+
+**Kansas State's Chris Klieman to retire: Source**\
+`Klieman, 58, was 54-34 at Kansas State with six bowl appearances and a Big 12 championship in 2022.`\
+https://nytimes.com/athletic/6858414/2025/12/03/kansas-state-chris-klieman-collin-klein/
+
 **Watch Jenny Slate and Indeed tackle the modern workplace**\
 `From skills and resumes to technology and wellbeing.`\
 https://nytimes.com/paidpost/2025-11-19/.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2025/12/03/business/dealbook-summit-news/the-dealbook-s
 **Why the Free Birth Movement’s Popularity Threatens Public Health**\
 `Having a baby without any medical help is the logical outcome of a centuries-long medical freedom movement.`\
 https://nytimes.com/2025/12/03/opinion/free-birth-danger.html
-
-**My Fiancé and I Don’t Drink. How Should We Deal With Booze at Our Wedding?**\
-`A reader is unsure how to guard against the possibility of drunken wedding guests while still letting social drinkers have a good time.`\
-https://nytimes.com/2025/12/03/style/drunk-wedding-guests-alcohol-open-bar.html
-
-**Israel Says a Gaza Border Will Reopen, but Only for Palestinians to Leave**\
-`Israel had agreed to open the Rafah crossing as part of the October cease-fire deal with Hamas but kept it closed. Egypt denied that the border would reopen soon.`\
-https://nytimes.com/2025/12/03/world/middleeast/israel-rafah-crossing-gaza-ceasefire.html
-
-**Instant grades for college football's 2025-26 head-coaching hires**\
-`In college football, you never really know whether a coaching hire is going to work. But it's never too early to talk about fit.`\
-https://nytimes.com/athletic/6827060/2025/12/03/college-football-coaching-carousel-grades/
 
