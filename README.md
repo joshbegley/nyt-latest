@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6857348/2025/12/02/tyler-skaggs-widow-testifies-angels-trial/
 
 **The G.O.P. Continues to Slouch Toward the Midterms**\
-`In recent elections, the pendulum has kept swinging, with Republicans now in its path.`\
+`In recent elections, the political pendulum has kept swinging, with Republicans now in its path.`\
 https://nytimes.com/2025/12/02/upshot/election-tennessee-republicans-democrats.html
 
 **Village People to perform Trump anthem 'Y.M.C.A.' at World Cup draw**\
