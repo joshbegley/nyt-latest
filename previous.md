@@ -1,3 +1,15 @@
+**Brighton & Hove Albion Transfer DealSheet: What to expect in 2026**\
+`The Premier League’s ‘model club’ have gained a reputation as shrewd operators in the transfer market. So what next?`\
+https://nytimes.com/athletic/6776857/2025/12/03/brighton-transfer-dealsheet-2026/
+
+**What did England learn from their one-sided international friendlies?**\
+`England won their international friendlies against China and Ghana by an aggregate of 10-0`\
+https://nytimes.com/athletic/6856495/2025/12/03/england-women-ghana-analysis/
+
+**Federal Judge Bars Some Warrantless Immigration Arrests in D.C.**\
+`The judge found that immigration agents were likely acting illegally when making arrests without a warrant.`\
+https://nytimes.com/2025/12/03/us/politics/warrantless-immigration-arrests-dc.html
+
 **Ranking the 100 best players at World Cup 2026**\
 `Our writers attempt the impossible - ordering the best players who are in with a chance of being at the tournament in North America`\
 https://nytimes.com/athletic/6845174/2025/12/03/top-100-world-cup-players-ranked/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6855602/2025/12/03/real-madrid-mbappe-bellingham-vi
 **Declan Rice, the evolution of Arsenal's Mr Everything**\
 `Rice adds more to his game year on year. That has been critical to pushing them to new levels`\
 https://nytimes.com/athletic/6855119/2025/12/03/declan-rice-arsenal-arteta-evolved/
-
-**Oliver Glasner: 'If you have soup every day it’s nice, but as soon as you have beef you want more beef'**\
-`The Crystal Palace manager answers The Athletic's questions and talks about why he has been vocal in pushing for the club to progress`\
-https://nytimes.com/athletic/6851752/2025/12/03/oliver-glasner-crystal-palace-interview/
-
-**Christian Fuchs: From the Premier League summit to the bottom of League Two**\
-`In an exclusive interview, Leicester title-winner Fuchs explains why he has swapped North Carolina for south Wales to become Newport manager`\
-https://nytimes.com/athletic/6855086/2025/12/03/christian-fuchs-leicester-city-premier-league-newport-county-league-two/
-
-**South Korea Has a Coffee Shop Problem**\
-`Opening a coffee shop is no path to riches, South Koreans are learning, but lured by the hype, they keep trying anyway.`\
-https://nytimes.com/interactive/2025/12/03/world/asia/south-korea-coffee-shops.html
 

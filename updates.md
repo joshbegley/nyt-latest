@@ -1,3 +1,15 @@
+**Brighton & Hove Albion Transfer DealSheet: What to expect in 2026**\
+`The Premier League’s ‘model club’ have gained a reputation as shrewd operators in the transfer market. So what next?`\
+https://nytimes.com/athletic/6776857/2025/12/03/brighton-transfer-dealsheet-2026/
+
+**What did England learn from their one-sided international friendlies?**\
+`England won their international friendlies against China and Ghana by an aggregate of 10-0`\
+https://nytimes.com/athletic/6856495/2025/12/03/england-women-ghana-analysis/
+
+**Federal Judge Bars Some Warrantless Immigration Arrests in D.C.**\
+`The judge found that immigration agents were likely acting illegally when making arrests without a warrant.`\
+https://nytimes.com/2025/12/03/us/politics/warrantless-immigration-arrests-dc.html
+
 **Ranking the 100 best players at World Cup 2026**\
 `Our writers attempt the impossible - ordering the best players who are in with a chance of being at the tournament in North America`\
 https://nytimes.com/athletic/6845174/2025/12/03/top-100-world-cup-players-ranked/
