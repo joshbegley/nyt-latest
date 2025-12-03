@@ -1,3 +1,15 @@
+**Trump to Close Voice of America’s Overseas Offices and Radio Stations**\
+`The push to close the news group’s overseas offices appears to contradict a federal judge’s order from April, which required Trump officials to resume operations at V.O.A.`\
+https://nytimes.com/2025/12/02/us/politics/trump-voice-of-america-overseas-offices.html
+
+**How Shai Gilgeous-Alexander and the Thunder can become more dominant**\
+`The Thunder have reason to be optimistic about the future in a way most champions haven’t. `\
+https://nytimes.com/athletic/6856501/2025/12/02/thunder-draft-lottery-picks-clippers-nba/
+
+**The only 76ers with hotter starts than Tyrese Maxey? Allen Iverson and Wilt Chamberlain**\
+`Right now, Maxey is a star guard who is playing at almost historic levels.`\
+https://nytimes.com/athletic/6857189/2025/12/02/tyrese-maxey-hot-start-allen-iverson-wilt-chamberlain/
+
 **Remain Unresolved**\
 `Victor Barocas is a force to be reckoned with.`\
 https://nytimes.com/2025/12/02/crosswords/daily-puzzle-2025-12-03.html

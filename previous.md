@@ -1,3 +1,15 @@
+**Trump to Close Voice of America’s Overseas Offices and Radio Stations**\
+`The push to close the news group’s overseas offices appears to contradict a federal judge’s order from April, which required Trump officials to resume operations at V.O.A.`\
+https://nytimes.com/2025/12/02/us/politics/trump-voice-of-america-overseas-offices.html
+
+**How Shai Gilgeous-Alexander and the Thunder can become more dominant**\
+`The Thunder have reason to be optimistic about the future in a way most champions haven’t. `\
+https://nytimes.com/athletic/6856501/2025/12/02/thunder-draft-lottery-picks-clippers-nba/
+
+**The only 76ers with hotter starts than Tyrese Maxey? Allen Iverson and Wilt Chamberlain**\
+`Right now, Maxey is a star guard who is playing at almost historic levels.`\
+https://nytimes.com/athletic/6857189/2025/12/02/tyrese-maxey-hot-start-allen-iverson-wilt-chamberlain/
+
 **Remain Unresolved**\
 `Victor Barocas is a force to be reckoned with.`\
 https://nytimes.com/2025/12/02/crosswords/daily-puzzle-2025-12-03.html
@@ -21,16 +33,4 @@ https://nytimes.com/2025/12/02/us/u-of-alabama-student-magazines-dei.html
 **North Texas hires Neal Brown as football coach. He will take over after the season**\
 `Brown has a decade of head-coaching experience, including a 35-16 record at Troy and a 37-35 mark at West Virginia.`\
 https://nytimes.com/athletic/6856992/2025/12/02/north-texas-neal-brown-hire-coach/
-
-**Trump’s Shift on Afghan Immigrants**\
-`Zolan Kanno-Youngs, a White House correspondent, describes how President Trump’s latest immigration restrictions, after the shooting of two National Guard members by a man whom the authorities described as an Afghan national, affect a community that traditionally has been considered an exceptional case.`\
-https://nytimes.com/video/us/politics/100000010557371/trumps-shift-on-afghan-immigrants.html
-
-**Trump Appears to Doze Off During Cabinet Meeting**\
-`President Trump seemed to be fighting sleep during a cabinet meeting on Tuesday. The meeting began with the 79-year-old president criticizing questions about his physical stamina.`\
-https://nytimes.com/video/us/politics/100000010560959/trump-sleep-cabinet-meeting.html
-
-**James Solomon Beats Jim McGreevey, a Former Governor, in Jersey City**\
-`Mr. Solomon was elected mayor over Mr. McGreevey, who was hoping for a comeback after resigning in 2004 as New Jersey’s governor amid a sex scandal.`\
-https://nytimes.com/2025/12/02/nyregion/james-solomon-jim-mcgreevey-jersey-city.html
 
