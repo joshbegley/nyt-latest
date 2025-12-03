@@ -1,3 +1,23 @@
+**The Bounce: A flood of first-time All-Stars? And should the Pelicans say bye to Zion?**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/6858533/2025/12/03/all-stars-first-time-zion-williamson-the-bounce/
+
+**What Physics Knows About Ghostly Neutrinos Muddled by New Experiments**\
+`Two papers challenged the existence of theorized particles called sterile neutrinos that might account for mysteries like the cosmos’s dark matter.`\
+https://nytimes.com/2025/12/03/science/sterile-neutrinos-particle-physics.html
+
+**Your Fish Wants Miso-Butter Bread Crumbs**\
+`Kay Chun’s recipe calls for cod, but you could smear this garlicky, gingery topping on any other fish fillets you like.`\
+https://nytimes.com/2025/12/03/dining/your-fish-wants-miso-butter-bread-crumbs.html
+
+**The kings of collapse? Can the Colts avoid another late-season meltdown?**\
+`Are these the same old Colts, good enough to get your hopes up before letting you down?`\
+https://nytimes.com/athletic/6858456/2025/12/03/colts-collapse-daniel-jones-jaguars-nfl-playoffs/
+
+**How Is America Changing Under President Trump? We Want to Hear From You.**\
+`A New York Times reporter wants to hear from you about changes you are seeing in your community since Mr. Trump took office.`\
+https://nytimes.com/2025/12/03/us/trump-policy-changes.html
+
 **Germany named 2029 women's European Championship hosts**\
 `The hosts were appointed by the UEFA Executive Committee at its meeting in Nyon, Switzerland on Wednesday.`\
 https://nytimes.com/athletic/6857907/2025/12/03/womens-euros-hosts-2029/
@@ -17,24 +37,4 @@ https://nytimes.com/2025/12/03/world/middleeast/israel-lebanon-talks-ceasefire.h
 **Chanel Holds a Starry Fashion Show in the New York City Subway**\
 `ASAP Rocky, Jon Bon Jovi and Teyana Taylor hop aboard the C train as Matthieu Blazy brings a great Métiers d’Art show to New York.`\
 https://nytimes.com/2025/12/03/style/chanel-metiers-dart-new-york-subway.html
-
-**Bill Belichick, Robert Kraft named finalists for Pro Football Hall of Fame**\
-`Kraft and Belichick are joined by senior finalists Ken Anderson, Roger Craig, and L.C. Greenwood.`\
-https://nytimes.com/athletic/6856981/2025/12/03/nfl-hall-of-fame-finalist-belichick-kraft/
-
-**Lowetide: Why Ryan Nugent-Hopkins remains so important to the Oilers**\
-`Nugent-Hopkins rejoined the Oilers over the weekend after a three-week absence due to injury.`\
-https://nytimes.com/athletic/6853869/2025/12/03/ryan-nugent-hopkins-edmonton-oilers-stats/
-
-**USF targeting Ohio State OC Brian Hartline to be head coach: Sources**\
-`Hartline would replace Alex Golesh, who was hired by Auburn on Sunday.`\
-https://nytimes.com/athletic/6858432/2025/12/03/usf-brian-hartline-head-coaching-hire/
-
-**CHANEL COMES TO NEW YORK**\
-`Chanel finds love in the Big Apple`\
-https://nytimes.com/paidpost/chanel/chanel-comes-to-new-york.html
-
-**Kansas State's Chris Klieman to retire: Source**\
-`Klieman, 58, was 54-34 at Kansas State with six bowl appearances and a Big 12 championship in 2022.`\
-https://nytimes.com/athletic/6858414/2025/12/03/kansas-state-chris-klieman-collin-klein/
 
