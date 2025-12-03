@@ -1,3 +1,15 @@
+**Ravens sign Mark Andrews to 3-year extension**\
+`Andrews, a 2018 third-round pick, is the Ravens' franchise leader in receptions, receiving yards and touchdown catches. `\
+https://nytimes.com/athletic/6859819/2025/12/03/ravens-mark-andrews-contract-extension/
+
+**Separatist Forces Backed by U.A.E. Sweep Into Oil-Rich Yemen Region**\
+`The separatists were battling to secure the region’s oil fields, residents and the group’s officials said. Their swift advance could be a turning point in Yemen’s decade-long civil war.`\
+https://nytimes.com/2025/12/03/world/middleeast/yemen-militias-attack-oil-uae.html
+
+**Edwards questions whether Wolves were 'scared' during Forest defeat**\
+`Edwards has now failed to collect a point in his first three games in charge after taking over from Vitor Pereira.`\
+https://nytimes.com/athletic/6859870/2025/12/03/rob-edwards-wolves-nottingham-forest-reaction/
+
 **U.S. Military’s Boat Strikes Planning Takes on New Significance**\
 `The details could raise questions about who was responsible for a follow-up strike on Sept. 2 — the commander who ordered it or the defense secretary.`\
 https://nytimes.com/2025/12/03/us/politics/trump-boat-strikes-survivors.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6851575/2025/12/03/leeds-3-chelsea-1-farke-calvert-
 **Tiny Love Stories: ‘He Was 75. I Was 42.’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2025/12/03/style/tiny-modern-love-stories-he-was-75-i-was-42.html
-
-**The Briefing: Liverpool 1 Sunderland 1: Was this Wirtz's big moment? Did Liverpool get lucky?**\
-`Analysing Liverpool's insipid draw at home to Sunderland`\
-https://nytimes.com/athletic/6851576/2025/12/03/liverpool-1-sunderland-1-was-this-wirtzs-big-moment-has-anfield-lost-its-fear-factor/
-
-**Prediction markets were part of the conversation at the DealBook Summit.**\
-`The platforms allow people to bet on political races and the Oscars. Could they also be good for policy`\
-https://nytimes.com/live/2025/12/03/business/dealbook-summit-news/prediction-markets-were-part-of-the-conversation-at-the-dealbook-summit
-
-**Curt Cignetti becomes Bobblehead Hall of Fame's top seller for 2025**\
-`The Indiana football coach is donating his bobblehead proceeds to charity. `\
-https://nytimes.com/athletic/6859549/2025/12/03/curt-cignetti-bobbleheads-pope-leo/
 
