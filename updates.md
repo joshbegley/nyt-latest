@@ -1,3 +1,7 @@
+**Fabergé Egg Fetches More Than $30 Million at Auction**\
+`The Winter Egg, one of 50 Easter eggs created by Fabergé for the Russian imperial family, sold in London on Tuesday for more than $30 million, breaking the auction record for a creation by the jeweler.`\
+https://nytimes.com/video/world/europe/100000010561415/faberge-winter-egg-auction.html
+
 **DealBook Summit Live Updates: Treasury Secretary Opens Day of Interviews With Executives and Political Figures**\
 `Secretary Scott Bessent is first up. Andrew Ross Sorkin will speak to more than a dozen prominent figures from the worlds of business and politics. Follow along and watch live here.`\
 https://nytimes.com/live/2025/12/03/business/dealbook-summit-news
