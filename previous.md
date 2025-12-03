@@ -1,3 +1,7 @@
+**Giants GM Joe Schoen struggles to do the impossible: defend the team he's built**\
+`“Have I screwed up, and have I made mistakes? Absolutely,” Schoen said Tuesday.`\
+https://nytimes.com/athletic/6857106/2025/12/03/ny-giants-joe-schoen-mistakes-roster/
+
 **TAFC – Haaland: 0-100 in record time, ranking best players going to the World Cup**\
 `Today in TAFC: Will Haaland reach EPL goals record? We rank the top 100 players going to the World Cup, and how draw venue became political`\
 https://nytimes.com/athletic/6857729/2025/12/03/erling-haaland-100-premier-league-goals/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6856758/2025/12/03/bears-jaylon-johnson-packers-pla
 **Here are the Chiefs' chances to make the playoffs if they finish 5-0 ... and 4-1, too**\
 `The Chiefs have two things playing in their favor as they try to put themselves firmer in the AFC playoff race.`\
 https://nytimes.com/athletic/6856050/2025/12/03/chiefs-nfl-playoff-chances-texans/
-
-**Can the Cowboys do it? Confidence is high, but little room for error in playoff push**\
-`CeeDee Lamb called Dallas' matchup Thursday night in Detroit essentially a playoff game as the Cowboys try to ride their 3-game momentum.`\
-https://nytimes.com/athletic/6856711/2025/12/03/cowboys-playoff-chances-lions-thursday-night/
 

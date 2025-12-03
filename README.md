@@ -1,3 +1,11 @@
+**Where Floodwaters Turned Piles of Timber Into Floating Battering Rams**\
+`Many logs became forces of destruction in Indonesia last week, in a sign that deforestation compounded the devastation wrought by a cyclone.`\
+https://nytimes.com/2025/12/03/world/asia/indonesia-sumatra-floods-timber-logs.html
+
+**Inside Venezuela**\
+`We explain how President Nicolás Maduro is trying to avoid the long arm of the United States.`\
+https://nytimes.com/2025/12/03/briefing/inside-venezuela.html
+
 **Giants GM Joe Schoen struggles to do the impossible: defend the team he's built**\
 `“Have I screwed up, and have I made mistakes? Absolutely,” Schoen said Tuesday.`\
 https://nytimes.com/athletic/6857106/2025/12/03/ny-giants-joe-schoen-mistakes-roster/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6856507/2025/12/03/acc-sec-womens-college-basketbal
 **What to Expect at Today’s DealBook Summit**\
 `Scott Bessent, Erika Kirk, Gavin Newsom, Dario Amodei, Mary Barra, Alex Karp, MrBeast, Lai Ching-te, and Larry Fink are among the big names speaking.`\
 https://nytimes.com/2025/12/03/business/dealbook/lineup-dealbook-summit.html
-
-**Packers, playoffs on Jaylon Johnson's mind after Bears star's speedy recovery**\
-`Even Johnson didn't expect to play again this season after surgery in September. Now his sights are set on his first playoff appearance.`\
-https://nytimes.com/athletic/6856758/2025/12/03/bears-jaylon-johnson-packers-playoffs/
-
-**Here are the Chiefs' chances to make the playoffs if they finish 5-0 ... and 4-1, too**\
-`The Chiefs have two things playing in their favor as they try to put themselves firmer in the AFC playoff race.`\
-https://nytimes.com/athletic/6856050/2025/12/03/chiefs-nfl-playoff-chances-texans/
 
