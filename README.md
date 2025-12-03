@@ -1,3 +1,31 @@
+**Taiwan’s President Warns That China’s Military Aggression Is Growing**\
+`President Lai Ching-te is aiming to invest an additional $40 billion in military spending to deter China.`\
+https://nytimes.com/2025/12/03/business/dealbook/taiwan-lai-ching-te-china.html
+
+**How to watch Nuggets vs. Pacers: Time, TV, streaming**\
+`Find out how to watch the Denver Nuggets play the Indiana Pacers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6858752/2025/12/03/nuggets-vs-pacers-stream-how-to-watch-dec-3/
+
+**How to watch Spurs vs. Magic: Time, TV, streaming**\
+`Find out how to watch the San Antonio Spurs play the Orlando Magic, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6858750/2025/12/03/spurs-vs-magic-stream-how-to-watch-dec-3/
+
+**How to watch Trail Blazers vs. Cavaliers: Time, TV, streaming**\
+`Find out how to watch the Portland Trail Blazers play the Cleveland Cavaliers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6858747/2025/12/03/trail-blazers-vs-cavaliers-stream-how-to-watch-dec-3/
+
+**How to watch Stars vs. Devils: Time, TV, streaming**\
+`Find out how to watch the Dallas Stars play the New Jersey Devils, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6858748/2025/12/03/stars-vs-devils-stream-how-to-watch-dec-3/
+
+**Democrats Release Images of Epstein’s Private Home**\
+`In publicizing the photos and videos, Democrats in Congress appeared to be intensifying pressure on the Justice Department to release its files on the Epstein case.`\
+https://nytimes.com/2025/12/03/us/politics/epstein-island-home.html
+
+**Chiefs-Cowboys draws 57.2 million viewers, most-watched NFL regular season game ever**\
+`CBS broadcaster Jim Nantz called last Thursday&#8217;s late-afternoon NFL game perfect confluence of three of the biggest brands in American culture — the Dallas Cowboys, the Kansas City Chiefs and Thanksgiving.`\
+https://nytimes.com/athletic/6857347/2025/12/03/chiefs-cowboys-nfl-cbs-thanksgiving-ratings/
+
 **How to watch Kentucky vs. Miami (FL) women's basketball: Time, TV, streaming**\
 `Find out how to watch the Kentucky Wildcats play the Miami Hurricanes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6858725/2025/12/03/kentucky-vs-miami-fl-stream-how-to-watch-dec-3/
@@ -9,32 +37,4 @@ https://nytimes.com/2025/12/03/world/africa/trump-somalia-garbage-reaction-immig
 **How to watch Mount St. Mary's vs. Maryland women's basketball: Time, TV, streaming**\
 `Find out how to watch the Mount St. Mary's Mountaineers play the Maryland Terrapins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6858720/2025/12/03/mount-st-mary-s-vs-maryland-stream-how-to-watch-dec-3/
-
-**How to watch Virginia vs. Vanderbilt women's basketball: Time, TV, streaming**\
-`Find out how to watch the Virginia Cavaliers play the Vanderbilt Commodores, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6858717/2025/12/03/virginia-vs-vanderbilt-stream-how-to-watch-dec-3/
-
-**Browns designate QB Deshaun Watson for return to practice**\
-`Watson has spent the entire season on the physically unable to perform list. `\
-https://nytimes.com/athletic/6858623/2025/12/03/browns-deshaun-watson-returns-practice/
-
-**Can the Canucks realistically tank for Gavin McKenna? Here’s what it would take**\
-`The Canucks are in 30th place in the NHL standings with a dismal 10-14-3 record.`\
-https://nytimes.com/athletic/6840484/2025/12/03/canucks-standings-stats-gavin-mckenna-draft-tank/
-
-**How to watch Central Michigan vs. Michigan women's basketball: Time, TV, streaming**\
-`Find out how to watch the Central Michigan Chippewas play the Michigan Wolverines, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6858707/2025/12/03/central-michigan-vs-michigan-stream-how-to-watch-dec-3/
-
-**How to watch Indiana vs. Minnesota men's basketball: Time, TV, streaming**\
-`Find out how to watch the Indiana Hoosiers play the Minnesota Golden Gophers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6858705/2025/12/03/indiana-vs-minnesota-stream-how-to-watch-dec-3/
-
-**Rockies hire Josh Byrnes, longtime Dodgers exec, as their new GM: Sources**\
-`Byrnes was last a general manager in 2014, when he was with the San Diego Padres. `\
-https://nytimes.com/athletic/6858554/2025/12/03/rockies-to-add-longtime-dodgers-exec-josh-byrnes-as-new-gm-sources/
-
-**How to watch Oklahoma State vs. North Texas women's basketball: Time, TV, streaming**\
-`Find out how to watch the Oklahoma State Cowgirls play the North Texas Mean Green, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6858679/2025/12/03/oklahoma-state-vs-north-texas-stream-how-to-watch-dec-3/
 
