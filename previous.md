@@ -1,3 +1,11 @@
+**The Briefing - Leeds 3 Chelsea 1: A potentially season-saving system change, and a defensive shambles**\
+`Leeds United romped to a crucial win over Chelsea on a raucous night at Elland Road`\
+https://nytimes.com/athletic/6851575/2025/12/03/leeds-3-chelsea-1-farke-calvert-lewin/
+
+**Tiny Love Stories: ‘He Was 75. I Was 42.’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2025/12/03/style/tiny-modern-love-stories-he-was-75-i-was-42.html
+
 **The Briefing: Liverpool 1 Sunderland 1: Was this Wirtz's big moment? Did Liverpool get lucky?**\
 `Liverpool were lucky to come away with a draw after another insipid performance.`\
 https://nytimes.com/athletic/6851576/2025/12/03/liverpool-1-sunderland-1-was-this-wirtzs-big-moment-has-anfield-lost-its-fear-factor/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6859572/2025/12/03/eagles-oc-kevin-patullo-egg-vand
 **MrBeast Says YouTube’s Content Has Less ‘Brain Rot’ Than TikTok**\
 `Jimmy Donaldson, who is known as MrBeast online, discussed the differences in content quality between YouTube and TikTok at The New York Times’s DealBook summit.`\
 https://nytimes.com/video/business/dealbook/100000010563504/mrbeast-tiktok-more-brain-rot-than-youtube.html
-
-**Netanyahu Would Visit N.Y.C. Despite Mamdani’s Arrest Threat**\
-`Zohran Mamdani, the mayor-elect of New York City, has pledged to honor the International Criminal Court’s arrest warrant for Prime Minister Benjamin Netanyahu of Israel.`\
-https://nytimes.com/video/us/100000010563468/benjamin-netanyahu-mamdani.html
-
-**The Briefing - Arsenal 2 Brentford 0: Mikel Merino a natural striker? More injury concerns**\
-`Arsenal re-opened a five-point lead at the top of the Premier League thanks to a win over their London rivals Brentford.`\
-https://nytimes.com/athletic/6851574/2025/12/03/arsenal-2-brentford-0-merino/
 

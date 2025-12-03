@@ -1,3 +1,7 @@
+**Republican Anger Erupts at Johnson as Party Frets About Future**\
+`A small group of G.O.P. women have been among the most vocal in raising what their colleagues say is a broader frustration with the speaker.`\
+https://nytimes.com/2025/12/03/us/politics/republican-women-speaker-johnson.html
+
 **The Briefing - Leeds 3 Chelsea 1: A potentially season-saving system change, and a defensive shambles**\
 `Leeds United romped to a crucial win over Chelsea on a raucous night at Elland Road`\
 https://nytimes.com/athletic/6851575/2025/12/03/leeds-3-chelsea-1-farke-calvert-lewin/
@@ -7,7 +11,7 @@ https://nytimes.com/athletic/6851575/2025/12/03/leeds-3-chelsea-1-farke-calvert-
 https://nytimes.com/2025/12/03/style/tiny-modern-love-stories-he-was-75-i-was-42.html
 
 **The Briefing: Liverpool 1 Sunderland 1: Was this Wirtz's big moment? Did Liverpool get lucky?**\
-`Liverpool were lucky to come away with a draw after another insipid performance.`\
+`Analysing Liverpool's insipid draw at home to Sunderland`\
 https://nytimes.com/athletic/6851576/2025/12/03/liverpool-1-sunderland-1-was-this-wirtzs-big-moment-has-anfield-lost-its-fear-factor/
 
 **Prediction markets were part of the conversation at the DealBook Summit.**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/03/us/politics/hegseth-signal-leak-report.html
 **'Line was crossed': Eagles OC Kevin Patullo addresses home vandalism**\
 `Patullo and the Eagles offense have faced scrutiny this season.`\
 https://nytimes.com/athletic/6859572/2025/12/03/eagles-oc-kevin-patullo-egg-vandalism/
-
-**MrBeast Says YouTube’s Content Has Less ‘Brain Rot’ Than TikTok**\
-`Jimmy Donaldson, who is known as MrBeast online, discussed the differences in content quality between YouTube and TikTok at The New York Times’s DealBook summit.`\
-https://nytimes.com/video/business/dealbook/100000010563504/mrbeast-tiktok-more-brain-rot-than-youtube.html
 

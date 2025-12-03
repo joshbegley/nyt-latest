@@ -1,3 +1,11 @@
+**The Briefing - Leeds 3 Chelsea 1: A potentially season-saving system change, and a defensive shambles**\
+`Leeds United romped to a crucial win over Chelsea on a raucous night at Elland Road`\
+https://nytimes.com/athletic/6851575/2025/12/03/leeds-3-chelsea-1-farke-calvert-lewin/
+
+**Tiny Love Stories: ‘He Was 75. I Was 42.’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2025/12/03/style/tiny-modern-love-stories-he-was-75-i-was-42.html
+
 **The Briefing: Liverpool 1 Sunderland 1: Was this Wirtz's big moment? Did Liverpool get lucky?**\
 `Liverpool were lucky to come away with a draw after another insipid performance.`\
 https://nytimes.com/athletic/6851576/2025/12/03/liverpool-1-sunderland-1-was-this-wirtzs-big-moment-has-anfield-lost-its-fear-factor/
