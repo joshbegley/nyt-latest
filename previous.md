@@ -1,5 +1,13 @@
+**Yegor Ligachev, Gorbachev’s No. 2 Who Turned Foe, Is Dead at 100**\
+`As the Kremlin’s hard-line Communist ideologist, he initially embraced his boss’s modernizing reforms before turning against them as threats to the Soviet order.`\
+https://nytimes.com/2025/12/03/world/europe/yegor-ligachev-dead.html
+
+**Celtic appoint Nancy as manager from Columbus Crew**\
+`Celtic have been without a permanent head coach since Brendan Rodgers resigned on October 27.`\
+https://nytimes.com/athletic/6859226/2025/12/03/celtic-wilfried-nancy-manager/
+
 **Palantir C.E.O.: Any Suggestion That Trump Is a Fascist Is ‘Stupid’**\
-`Alex Karp, the chief executive of Palantir Technologies, said he grew up partially in Germany and spent time with “actual fascists.”`\
+`Alex Karp, the chief executive of Palantir Technologies, said he grew up partly in Germany and spent time with “actual fascists.”`\
 https://nytimes.com/video/business/dealbook/100000010562895/dealbook-summit-alex-karp-palantir.html
 
 **Executives say they are optimistic about the economy despite high costs.**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6859109/2025/12/03/clippers-chris-paul-lawrence-fra
 **Palantir’s Chief Defends His Company’s Work With ICE**\
 `Alex Karp also said he thought President Trump had “performed” on issues he cared about.`\
 https://nytimes.com/2025/12/03/business/dealbook/palantir-alex-karp-ice-trump.html
-
-**NASCAR executive's role in charter deals under scrutiny on Day 3 of trial**\
-`NASCAR VP Scott Prime, an architect of the sport's charter system, was under scrutiny for his communications around the 2024 negotiations.`\
-https://nytimes.com/athletic/6858844/2025/12/03/nascar-michael-jordan-trial-lawsuit-scott-prime-bob-jenkins/
-
-**The Class of 2026's quarterback carousel is slowing down: Where did all the flips end up?**\
-`Since the beginning of September, 23 quarterbacks have decommitted from FBS programs, including 11 pledged to P4 schools.`\
-https://nytimes.com/athletic/6858183/2025/12/03/college-football-quarterback-recruiting-flips/
 

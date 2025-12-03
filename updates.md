@@ -1,3 +1,15 @@
+**Yegor Ligachev, Gorbachev’s No. 2 Who Turned Foe, Is Dead at 100**\
+`As the Kremlin’s hard-line Communist ideologist, he initially embraced his boss’s modernizing reforms before turning against them as threats to the Soviet order.`\
+https://nytimes.com/2025/12/03/world/europe/yegor-ligachev-dead.html
+
+**Celtic appoint Nancy as manager from Columbus Crew**\
+`Celtic have been without a permanent head coach since Brendan Rodgers resigned on October 27.`\
+https://nytimes.com/athletic/6859226/2025/12/03/celtic-wilfried-nancy-manager/
+
+**Palantir C.E.O.: Any Suggestion That Trump Is a Fascist Is ‘Stupid’**\
+`Alex Karp, the chief executive of Palantir Technologies, said he grew up partly in Germany and spent time with “actual fascists.”`\
+https://nytimes.com/video/business/dealbook/100000010562895/dealbook-summit-alex-karp-palantir.html
+
 **Palantir C.E.O.: Any Suggestion That Trump Is a Fascist Is ‘Stupid’**\
 `Alex Karp, the chief executive of Palantir Technologies, said he grew up partially in Germany and spent time with “actual fascists.”`\
 https://nytimes.com/video/business/dealbook/100000010562895/dealbook-summit-alex-karp-palantir.html
