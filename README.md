@@ -1,3 +1,11 @@
+**WNBA CBA proposal includes mandatory draft combine, new revenue-sharing model: Sources**\
+`The league proposed a draft combine requirement that ties participation to rookie salary.`\
+https://nytimes.com/athletic/6857443/2025/12/03/wnba-cba-proposal-draft-combine-salary/
+
+**Elden Campbell, 15-year NBA veteran and Clemson great, dies at 57**\
+`Campbell also played for the Hornets, Pistons, Nets and Supersonics, and was a member of Detroit's 2004 NBA championship team.`\
+https://nytimes.com/athletic/6858129/2025/12/03/elden-campbell-dies-nba-lakers-clemson/
+
 **What now for Penn State? Our emergency search committee proposes six names**\
 `We’ve convened a committee of Penn State/coach matchmakers to help solve a coaching search flirting with crisis.`\
 https://nytimes.com/athletic/6858417/2025/12/03/penn-state-coaching-search-candidates-options/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6858748/2025/12/03/stars-vs-devils-stream-how-to-wa
 **Democrats Release Images of Epstein’s Private Home**\
 `In publicizing the photos and videos, Democrats in Congress appeared to be intensifying pressure on the Justice Department to release its files on the Epstein case.`\
 https://nytimes.com/2025/12/03/us/politics/epstein-island-home.html
-
-**Chiefs-Cowboys draws 57.2 million viewers, most-watched NFL regular season game ever**\
-`The NFL made a decision this year to pit its two most-watched teams against each other on its most-watched day of regular-season football.`\
-https://nytimes.com/athletic/6857347/2025/12/03/chiefs-cowboys-nfl-cbs-thanksgiving-ratings/
-
-**How to watch Kentucky vs. Miami (FL) women's basketball: Time, TV, streaming**\
-`Find out how to watch the Kentucky Wildcats play the Miami Hurricanes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6858725/2025/12/03/kentucky-vs-miami-fl-stream-how-to-watch-dec-3/
 
