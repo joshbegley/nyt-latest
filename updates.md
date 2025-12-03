@@ -1,3 +1,15 @@
+**NFL Week 14 survivor pool picks, strategy: Bucs, Dolphins are the top picks**\
+`Adam Gretz and Renee Miller answer reader questions and give their survivor pool picks for Week 14.`\
+https://nytimes.com/athletic/6858170/2025/12/03/nfl-week-14-survivor-pool-picks-strategy-buccaneers-dolphins/
+
+**College Football Playoff bubble watch: James Madison, Duke and the auto-bid race**\
+`A Blue Devils win could mean James Madison goes to the Playoff — and the ACC does not.`\
+https://nytimes.com/athletic/6858269/2025/12/03/college-football-playoff-bubble-watch-james-madison-duke/
+
+**USF targeting Ohio State OC Brian Hartline to be head coach: Sources**\
+`Hartline would replace Alex Golesh, who was hired by Auburn on Sunday.`\
+https://nytimes.com/athletic/6858432/2025/12/03/usf-brian-hartline-head-coaching-hire/
+
 **With Tensions Rising, Israel and Lebanon Expand Cease-Fire Talks**\
 `Diplomats from both countries joined a military-led committee overseeing a year-old truce as fears mounted of a renewed Israeli offensive against Hezbollah.`\
 https://nytimes.com/2025/12/03/world/middleeast/israel-lebanon-talks-ceasefire.html
