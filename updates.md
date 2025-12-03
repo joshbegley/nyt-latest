@@ -1,3 +1,7 @@
+**Ludwig Minelli, Founder of Swiss Assisted- Suicide Group, Dies at 92**\
+`Dignitas has helped more than 3,000 people take their own lives, an act that Mr. Minelli maintained was a fundamental exercise of free will.`\
+https://nytimes.com/2025/12/03/world/europe/ludwig-minelli-dead.html
+
 **Honey, We Shrunk the Coconut Cake**\
 `Samantha Seneviratne’s coconut cake snowballs condense the essence of the original into charming three-bite treats.`\
 https://nytimes.com/2025/12/03/dining/honey-we-shrunk-the-coconut-cake.html

@@ -1,3 +1,7 @@
+**Ludwig Minelli, Founder of Swiss Assisted- Suicide Group, Dies at 92**\
+`Dignitas has helped more than 3,000 people take their own lives, an act that Mr. Minelli maintained was a fundamental exercise of free will.`\
+https://nytimes.com/2025/12/03/world/europe/ludwig-minelli-dead.html
+
 **Honey, We Shrunk the Coconut Cake**\
 `Samantha Seneviratne’s coconut cake snowballs condense the essence of the original into charming three-bite treats.`\
 https://nytimes.com/2025/12/03/dining/honey-we-shrunk-the-coconut-cake.html
@@ -25,12 +29,4 @@ https://nytimes.com/live/2025/12/03/business/dealbook-summit-news/executives-say
 **A Drunk Raccoon Passed Out in the Bathroom of a Virginia Liquor Store**\
 `Don’t worry, it’s OK.`\
 https://nytimes.com/2025/12/03/us/drunk-raccoon-virginia-liquor-store.html
-
-**Tariffs Need a More Level Playing Field, G.M. C.E.O. Says**\
-`At the DealBook Summit, General Motors‘ chief executive, Mary Barra, said that there needs to be a more level playing field in regards to tariffs for automakers in the global market.`\
-https://nytimes.com/video/us/100000010561955/general-motors-mary-barra.html
-
-**Is There a Better Way to Cut a Cake?**\
-`Rings, zigzags, slabs and elaborate geometric designs are giving savvy party hosts new methods for a more equitable slice.`\
-https://nytimes.com/2025/12/03/dining/cake-cutting.html
 
