@@ -1,3 +1,11 @@
+**How to watch Texans vs. Chiefs: Time, TV, streaming**\
+`Find out how to watch the Houston Texans play the Kansas City Chiefs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6857665/2025/12/03/texans-vs-chiefs-stream-how-to-watch-dec-7/
+
+**Manchester City are serious title contenders displaying unserious credentials**\
+`These collapses against Leeds and Fulham could have been catastrophic. That they escaped with maximum points has to be seen as a learn curve`\
+https://nytimes.com/athletic/6856433/2025/12/03/man-city-conceding-guardiola-concerns/
+
 **Newcastle, late goals and bad habits that are costing precious points**\
 `No team has lost more points from winning positions than Eddie Howe's side. It's a problem that needs fixing`\
 https://nytimes.com/athletic/6857100/2025/12/03/newcastle-united-late-goals/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6851839/2025/12/03/cristian-romero-goals-tottenham/
 **They Have a Historic Mission, and They’re Blowing It**\
 `Centrist governments are failing badly in Europe’s leading economies, setting the stage for a far-right sweep.`\
 https://nytimes.com/2025/12/03/opinion/europe-britain-france-germany-centrist.html
-
-**The New York Times in Print for Wednesday, Dec. 3, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/12/03/todays-new-york-times
-
-**A Question Circling Sydney’s Beaches: Do We Still Need Shark Nets?**\
-`Critics say the nets harm marine life and aren’t the best way to keep swimmers safe. Recent shark attacks have complicated a plan to remove some of them.`\
-https://nytimes.com/2025/12/03/world/australia/sydney-shark-nets-australia.html
 
