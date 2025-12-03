@@ -1,3 +1,7 @@
+**Watch Jenny Slate and Indeed tackle the modern workplace**\
+`From skills and resumes to technology and wellbeing.`\
+https://nytimes.com/paidpost/2025-11-19/.html
+
 **Private Employers Cut Jobs in November, the Latest Sign of a Slowdown**\
 `Data from ADP, a payroll processor, is getting added attention because of delays in official statistics caused by the government shutdown.`\
 https://nytimes.com/2025/12/03/business/jobs-adp-economy.html
