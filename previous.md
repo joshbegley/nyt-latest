@@ -1,3 +1,15 @@
+**Woo: After five seasons on the Cardinals beat, it's time for something new**\
+`Through it all, this job never stopped being what I always imagined it would be: a dream. That is thanks to you.`\
+https://nytimes.com/athletic/6856712/2025/12/03/st-louis-cardinals-farewell-column-katie-woo/
+
+**My Father Had an Affair While My Mother Was Dying. Should I Tell My Siblings?**\
+`I get that peeking at his emails was an invasion of privacy, but it is not something I can unsee.`\
+https://nytimes.com/2025/12/03/magazine/father-affair-ethics.html
+
+**Trump Plans to Pardon Texas Congressman and Wife Awaiting Bribery Trial**\
+`The president used the latest pardon announcement to attack his predecessor, Joseph R. Biden Jr.`\
+https://nytimes.com/2025/12/03/us/politics/trump-pardons-henry-cuellar-texas-democrat.html
+
 **After Deadly Fire, Hong Kong Ominously Warns Grieving Citizens to Stay in Line**\
 `In a sign of China’s role in the city, officials have tried to stamp out calls for accountability over a catastrophe that killed at least 159 people.`\
 https://nytimes.com/2025/12/03/business/hong-kong-fire-china.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/12/03/business/holiday-shop-deals.html
 **Taiwan’s President Warns That China’s Military Aggression Is Growing**\
 `President Lai Ching-te is aiming to invest an additional $40 billion in military spending to deter China.`\
 https://nytimes.com/2025/12/03/business/dealbook/taiwan-lai-ching-te-china.html
-
-**How to watch Nuggets vs. Pacers: Time, TV, streaming**\
-`Find out how to watch the Denver Nuggets play the Indiana Pacers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6858752/2025/12/03/nuggets-vs-pacers-stream-how-to-watch-dec-3/
-
-**How to watch Spurs vs. Magic: Time, TV, streaming**\
-`Find out how to watch the San Antonio Spurs play the Orlando Magic, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6858750/2025/12/03/spurs-vs-magic-stream-how-to-watch-dec-3/
-
-**How to watch Trail Blazers vs. Cavaliers: Time, TV, streaming**\
-`Find out how to watch the Portland Trail Blazers play the Cleveland Cavaliers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6858747/2025/12/03/trail-blazers-vs-cavaliers-stream-how-to-watch-dec-3/
 

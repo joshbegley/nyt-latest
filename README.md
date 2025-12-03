@@ -1,3 +1,7 @@
+**The Chiefs of BlackRock and Coinbase Dismiss Fears of a Coming Crypto Winter**\
+`Larry Fink and Brian Armstrong haven’t always agreed on crypto, but the business leaders’ embrace of the asset has helped bring it into the mainstream.`\
+https://nytimes.com/2025/12/03/business/dealbook/blackrock-coinbase-crypto-dealbook-summit.html
+
 **Woo: After five seasons on the Cardinals beat, it's time for something new**\
 `Through it all, this job never stopped being what I always imagined it would be: a dream. That is thanks to you.`\
 https://nytimes.com/athletic/6856712/2025/12/03/st-louis-cardinals-farewell-column-katie-woo/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6858417/2025/12/03/penn-state-coaching-search-candi
 **Shoppers Turn to Discounts and Debt, but Not Just for Holidays**\
 `Consumers are focusing on value and financing purchases to complete their shopping lists.`\
 https://nytimes.com/2025/12/03/business/holiday-shop-deals.html
-
-**Taiwan’s President Warns That China’s Military Aggression Is Growing**\
-`President Lai Ching-te is aiming to invest an additional $40 billion in military spending to deter China.`\
-https://nytimes.com/2025/12/03/business/dealbook/taiwan-lai-ching-te-china.html
 
