@@ -1,3 +1,11 @@
+**The G.O.P. Continues to Slouch Toward the Midterms**\
+`In recent elections, the pendulum has kept swinging, with Republicans now in its path.`\
+https://nytimes.com/2025/12/02/upshot/election-tennessee-republicans-democrats.html
+
+**Village People to perform Trump anthem 'Y.M.C.A.' at World Cup draw**\
+`There will also be live music performances from Andrea Bocelli, Robbie Williams and Nicole Scherzinger.`\
+https://nytimes.com/athletic/6857228/2025/12/02/village-people-ymca-trump-anthem-world-cup-draw-fifa/
+
 **‘The President Has the Final Word’ on Pardons, U.S. Attorney Says**\
 `Jay Clayton, Manhattan’s top federal prosecutor, had called his office’s drug prosecution of an ex-president of Honduras a success. President Trump decided to free him this week.`\
 https://nytimes.com/2025/12/02/nyregion/sdny-clayton-honduras-pardon.html

@@ -1,3 +1,7 @@
+**Tyler Skaggs’ widow testifies again as Angels attempt to establish drug use timeline**\
+`Carli Skaggs was testifying for a second time in trial, this time as part of the defense, which officially began Monday.`\
+https://nytimes.com/athletic/6857348/2025/12/02/tyler-skaggs-widow-testifies-angels-trial/
+
 **The G.O.P. Continues to Slouch Toward the Midterms**\
 `In recent elections, the pendulum has kept swinging, with Republicans now in its path.`\
 https://nytimes.com/2025/12/02/upshot/election-tennessee-republicans-democrats.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/02/crosswords/daily-puzzle-2025-12-03.html
 **Read the Ruling on Warrantless Arrests in Washington, D.C.**\
 `A federal district judge ruled on Tuesday in a case against the Department of Homeland Security over warrantless civil immigration arrests.`\
 https://nytimes.com/interactive/2025/12/02/us/dc-ruling-warrantless-arrests.html
-
-**Republican Wins Tennessee House Race After a Trump-Led Rescue Mission**\
-`Matt Van Epps fended off a Democrat to protect Republicans’ slim House majority, but the relatively close margin in a red district sent the party a warning shot before the 2026 midterms.`\
-https://nytimes.com/2025/12/02/us/politics/tennessee-special-election-winner-matt-van-epps.html
 

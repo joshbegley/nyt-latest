@@ -1,3 +1,11 @@
+**The G.O.P. Continues to Slouch Toward the Midterms**\
+`In recent elections, the pendulum has kept swinging, with Republicans now in its path.`\
+https://nytimes.com/2025/12/02/upshot/election-tennessee-republicans-democrats.html
+
+**Village People to perform Trump anthem 'Y.M.C.A.' at World Cup draw**\
+`There will also be live music performances from Andrea Bocelli, Robbie Williams and Nicole Scherzinger.`\
+https://nytimes.com/athletic/6857228/2025/12/02/village-people-ymca-trump-anthem-world-cup-draw-fifa/
+
 **‘The President Has the Final Word’ on Pardons, U.S. Attorney Says**\
 `Jay Clayton, Manhattan’s top federal prosecutor, had called his office’s drug prosecution of an ex-president of Honduras a success. President Trump decided to free him this week.`\
 https://nytimes.com/2025/12/02/nyregion/sdny-clayton-honduras-pardon.html
@@ -25,12 +33,4 @@ https://nytimes.com/interactive/2025/12/02/us/dc-ruling-warrantless-arrests.html
 **Republican Wins Tennessee House Race After a Trump-Led Rescue Mission**\
 `Matt Van Epps fended off a Democrat to protect Republicans’ slim House majority, but the relatively close margin in a red district sent the party a warning shot before the 2026 midterms.`\
 https://nytimes.com/2025/12/02/us/politics/tennessee-special-election-winner-matt-van-epps.html
-
-**A Sidewalk Encounter Between 2 Longtime Neighbors Ends in a Death**\
-`Dean Whetzel, 82, had known Dana Escoffier, 79, for decades. When Mr. Whetzel bumped into him near their Village apartments, Mr. Escoffier shoved him, the police said, and he fell to the ground.`\
-https://nytimes.com/2025/12/02/nyregion/homicide-west-village-seniors-neighbors.html
-
-**U. of Alabama Suspends Black and Female Student Magazines, Citing D.E.I. Guidance**\
-`Officials told staff members at two student-run publications, called Nineteen Fifty-Six and Alice, that they were not compliant with Attorney General Pam Bondi’s memo on diversity programs.`\
-https://nytimes.com/2025/12/02/us/u-of-alabama-student-magazines-dei.html
 
