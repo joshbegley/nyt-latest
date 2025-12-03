@@ -1,3 +1,19 @@
+**Trump Appears to Fight Sleep During Cabinet Meeting**\
+`President Trump began the meeting by criticizing media coverage about him showing signs of fatigue. Last month, he appeared to doze off during a meeting in the Oval Office.`\
+https://nytimes.com/2025/12/02/us/politics/trump-sleep-cabinet-meeting.html
+
+**Penultimate College Football Rankings are for the birds — here are some better ones**\
+`If you haven’t watched a lot of Vandy and have your doubts, its offense is No. 1 in the FBS in yards per play and No. 2 in points per drive.`\
+https://nytimes.com/athletic/6856956/2025/12/02/college-football-playoff-rankings-notre-dame-miami-vanderbilt-alabama/
+
+**U.S. Diplomats Report Broken Morale and Abandoned Careers**\
+`A new survey found that 98 percent of Foreign Service officers felt lower morale. Only 1 percent reported an increased ability to carry out U.S. foreign policy.`\
+https://nytimes.com/2025/12/02/us/politics/state-department-morale-survey.html
+
+**NFL RedZone drastically raises commercial time in Week 13**\
+`In total, combining double-box ads, banner ads and sponsored segments, NFL RedZone showed over four minutes of sponsored elements Sunday.`\
+https://nytimes.com/athletic/6856988/2025/12/02/nfl-redzone-increases-commercials/
+
 **Man Charged With Throwing Molotov Cocktails at Federal Building in L.A.**\
 `Federal officials said the suspect, who has ranted against the Trump administration on social media, told them he had set his apartment on fire earlier in the day.`\
 https://nytimes.com/2025/12/02/us/man-arrested-firebomb-los-angeles.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6856353/2025/12/02/mia-hamant-washington-womens-soc
 **College Football Playoff 2025 projections: What our model says after the latest Top 25**\
 `Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
 https://nytimes.com/athletic/6560541/2025/12/02/college-football-playoff-bracket-projections-odds/
-
-**After Decades in Combat, a SEAL Suddenly Comes Under Scrutiny**\
-`Adm. Frank M. Bradley will soon face questions from lawmakers, as Republicans and Democrats express concerns about a Sept. 2 attack on a boat in the Caribbean.`\
-https://nytimes.com/2025/12/02/us/politics/admiral-bradley-boat-strikes.html
-
-**Court Puts Hold on Decision Requiring Religious Exemptions to Vaccine Mandate**\
-`The West Virginia Supreme Court said that the vaccine mandate for children would remain while it considered the case.`\
-https://nytimes.com/2025/12/02/us/court-puts-hold-on-decision-requiring-religious-exemptions-to-vaccine-mandate.html
-
-**Alabama passes Notre Dame in penultimate College Football Playoff rankings**\
-`Heading into conference championship weekend, Ohio State and Indiana remain Nos. 1 and 2, respectively.`\
-https://nytimes.com/athletic/6856029/2025/12/02/college-football-playoff-rankings-miami-texas-alabama-notre-dame/
-
-**How to watch Broncos vs. Raiders: Time, TV, streaming**\
-`Find out how to watch the Denver Broncos play the Las Vegas Raiders, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6856864/2025/12/02/how-to-watch-broncos-vs-raiders-tv-channel-and-streaming-options-for-december-7/
 
