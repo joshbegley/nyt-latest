@@ -1,3 +1,19 @@
+**Halle Berry Advocates Quality Women’s Midlife Health Care**\
+`Halle Berry, an actress and founder of Respin Health, has advocated more funding for research for menopause care and women’s health.`\
+https://nytimes.com/video/us/100000010563563/berry-advocates-quality-womens-midlife-health-care.html
+
+**Pentagon Investigator Faults Hegseth for Improper Use of Signal**\
+`An inspector general report to be released on Thursday examined the defense secretary’s use of a private messaging app to discuss airstrikes in Yemen.`\
+https://nytimes.com/2025/12/03/us/politics/hegseth-signal-leak-report.html
+
+**'Line was crossed': Eagles OC Kevin Patullo addresses home vandalism**\
+`Patullo and the Eagles offense have faced scrutiny this season.`\
+https://nytimes.com/athletic/6859572/2025/12/03/eagles-oc-kevin-patullo-egg-vandalism/
+
+**The Briefing - Arsenal 2 Brentford 0: Mikel Merino a natural striker? More injury concerns**\
+`Arsenal re-opened a five-point lead at the top of the Premier League thanks to a win over their London rivals Brentford.`\
+https://nytimes.com/athletic/6851574/2025/12/03/arsenal-2-brentford-0-merino/
+
 **MrBeast Says YouTube’s Content Has Less ‘Brain Rot’ Than TikTok**\
 `Jimmy Donaldson, who is known as MrBeast online, discussed the differences in content quality between YouTube and TikTok at The New York Times’s DealBook summit.`\
 https://nytimes.com/video/business/dealbook/100000010563504/mrbeast-tiktok-more-brain-rot-than-youtube.html
