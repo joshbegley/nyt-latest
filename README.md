@@ -1,3 +1,7 @@
+**Trump Plans to Pardon Texas Congressman and Wife Awaiting Bribery Trial**\
+`The president used the latest pardon announcement to attack his predecessor, Joseph R. Biden Jr.`\
+https://nytimes.com/2025/12/03/us/politics/trump-pardons-henry-cuellar-texas-democrat.html
+
 **After Deadly Fire, Hong Kong Ominously Warns Grieving Citizens to Stay in Line**\
 `In a sign of China’s role in the city, officials have tried to stamp out calls for accountability over a catastrophe that killed at least 159 people.`\
 https://nytimes.com/2025/12/03/business/hong-kong-fire-china.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6858752/2025/12/03/nuggets-vs-pacers-stream-how-to-
 **How to watch Spurs vs. Magic: Time, TV, streaming**\
 `Find out how to watch the San Antonio Spurs play the Orlando Magic, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6858750/2025/12/03/spurs-vs-magic-stream-how-to-watch-dec-3/
-
-**How to watch Trail Blazers vs. Cavaliers: Time, TV, streaming**\
-`Find out how to watch the Portland Trail Blazers play the Cleveland Cavaliers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6858747/2025/12/03/trail-blazers-vs-cavaliers-stream-how-to-watch-dec-3/
 
