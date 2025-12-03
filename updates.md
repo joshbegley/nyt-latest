@@ -1,3 +1,7 @@
+**Must-See Moments From the N.B.A.**\
+`On Tuesday, the San Antonio Spurs came back to beat the Memphis Grizzlies, Anthony Edwards scored 44 points in the Minnesota Timberwolves’ overtime win, and the Philadelphia 76ers cruised past the Washington Wizards.`\
+https://nytimes.com/video/sports/100000010561405/must-see-moments-from-the-nba.html
+
 **Hansi Flick has a new solution for Barcelona's defence. But will he need more?**\
 `La Liga's defending champions still look short of options at the back, despite a clever move from their German coach`\
 https://nytimes.com/athletic/6857767/2025/12/03/barcelona-la-liga-atletico-hansi-flick-martin/
