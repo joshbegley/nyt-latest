@@ -1,4 +1,4 @@
-**AFCON to be shown for free in U.K for first time as Channel 4 secures TV rights**\
+**AFCON to be shown for free in UK for first time as Channel 4 secures TV rights**\
 `In the U.S, beIN Sports USA will be the primary broadcaster of the tournament that begins on December 21 in Morocco.`\
 https://nytimes.com/athletic/6858202/2025/12/03/afcon-news-where-to-watch-uk-channel-4/
 
@@ -31,7 +31,7 @@ https://nytimes.com/live/2025/12/03/business/dealbook-summit-news/last-years-dea
 https://nytimes.com/athletic/6856895/2025/12/03/college-basketball-kansas-arizona-kentucky/
 
 **DealBook Summit Live Updates: Treasury Secretary Opens Day of Interviews With Executives and Political Figures**\
-`Andrew Ross Sorkin will interview more than a dozen prominent figures from the worlds of business and politics, including Gavin Newsom and Erika Kirk. Follow along and watch live here.`\
+`Secretary Scott Bessent will be the first interview of the 2025 DealBook Summit. Andrew Ross Sorkin will interview more than a dozen prominent figures from the worlds of business and politics, including Gavin Newsom and Erika Kirk. Follow along and watch live here.`\
 https://nytimes.com/live/2025/12/03/business/dealbook-summit-news
 
 **Dario Amodei, Scott Bessent, Erika Kirk Among Speakers at DealBook Summit**\

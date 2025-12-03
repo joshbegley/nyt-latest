@@ -1,6 +1,26 @@
+**AFCON to be shown for free in U.K for first time as Channel 4 secures TV rights**\
+`In the U.S, beIN Sports USA will be the primary broadcaster of the tournament that begins on December 21 in Morocco.`\
+https://nytimes.com/athletic/6858202/2025/12/03/afcon-news-where-to-watch-uk-channel-4/
+
+**The DealBook Summit has interviewed top leaders since 2012.**\
+`By Michael J. de la Merced and Sarah Kessler`\
+https://nytimes.com/live/2025/12/03/business/dealbook-summit-news/the-dealbook-summit-has-interviewed-top-leaders-since-2012
+
+**Why the Free Birth Movement’s Popularity Threatens Public Health**\
+`Having a baby without any medical help is the logical outcome of a centuries-long medical freedom movement.`\
+https://nytimes.com/2025/12/03/opinion/free-birth-danger.html
+
+**My Fiancé and I Don’t Drink. How Should We Deal With Booze at Our Wedding?**\
+`A reader is unsure how to guard against the possibility of drunken wedding guests while still letting social drinkers have a good time.`\
+https://nytimes.com/2025/12/03/style/drunk-wedding-guests-alcohol-open-bar.html
+
 **Israel Says a Gaza Border Will Reopen, but Only for Palestinians to Leave**\
 `Israel had agreed to open the Rafah crossing as part of the October cease-fire deal with Hamas but kept it closed. Egypt denied that the border would reopen soon.`\
 https://nytimes.com/2025/12/03/world/middleeast/israel-rafah-crossing-gaza-ceasefire.html
+
+**Instant grades for college football's 2025-26 head-coaching hires**\
+`In college football, you never really know whether a coaching hire is going to work. But it's never too early to talk about fit.`\
+https://nytimes.com/athletic/6827060/2025/12/03/college-football-coaching-carousel-grades/
 
 **Last year’s DealBook Summit featured Bill Clinton, Sam Altman and Jeff Bezos.**\
 `Artificial intelligence, inflation and the incoming Trump administration were big topics of conversation.`\
@@ -10,31 +30,11 @@ https://nytimes.com/live/2025/12/03/business/dealbook-summit-news/last-years-dea
 `Here's who surged and slipped through the first month of the season and what it means moving forward. `\
 https://nytimes.com/athletic/6856895/2025/12/03/college-basketball-kansas-arizona-kentucky/
 
-**DealBook Summit Live Updates: Executives and Political Figures Set for a Day of Interviews**\
-`Andrew Ross Sorkin will interview more than a dozen prominent figures from the worlds of business and politics, including Scott Bessent, Gavin Newsom and Erika Kirk. Follow along and watch live here.`\
+**DealBook Summit Live Updates: Treasury Secretary Opens Day of Interviews With Executives and Political Figures**\
+`Andrew Ross Sorkin will interview more than a dozen prominent figures from the worlds of business and politics, including Gavin Newsom and Erika Kirk. Follow along and watch live here.`\
 https://nytimes.com/live/2025/12/03/business/dealbook-summit-news
 
-**Dario Amodei, Scott Bessent, Erika Kirk, Alex Karp and Mary Barra will be at the DealBook Summit.**\
-`By Sarah Kessler`\
-https://nytimes.com/live/2025/12/03/business/dealbook-summit-news/dealbook-summit-speakers-bessent-kirk-newsom
-
-**Here’s the latest on the 2025 DealBook Summit.**\
-`By Sarah Kessler`\
-https://nytimes.com/live/2025/12/03/business/dealbook-summit-news/heres-the-latest-on-the-2025-dealbook-summit
-
-**Haley Carter on joining Washington Spirit, Michele Kang's vision and Trinity Rodman's future**\
-`The former Orlando Pride executive has proven she knows how to build championship-winning teams. `\
-https://nytimes.com/athletic/6857182/2025/12/03/spirit-hires-former-pride-haley-carter-nwsl-soccer/
-
-**Hegseth Says He Did Not See Survivors in September Boat Strike**\
-`Defense Secretary Pete Hegseth said he had not seen survivors of a U.S. military strike on a boat in the Caribbean in September and that he “didn’t stick around” to watch a second strike that killed two people clinging to wreckage.`\
-https://nytimes.com/video/us/politics/100000010561612/hegseth-boat-strikes-venezuela.html
-
-**Anthony Edwards saves Wolves from themselves, then laments his and team's focus**\
-`Why did Minnesota need overtime to stave off the 3-18 Pelicans? "It seems like we don't want to play these games," Edwards said.`\
-https://nytimes.com/athletic/6857207/2025/12/03/anthony-edwards-timberwolves-pelicans/
-
-**Trump Administration Live Updates: Federal Immigration Operation Starts in New Orleans**\
-``\
-https://nytimes.com/live/2025/12/03/us/trump-news
+**Dario Amodei, Scott Bessent, Erika Kirk Among Speakers at DealBook Summit**\
+`Andrew Ross Sorkin will interview some of the most powerful people from Wall Street, Silicon Valley and Washington.`\
+https://nytimes.com/2025/12/03/business/dealbook/dealbook-summit-speakers.html
 
