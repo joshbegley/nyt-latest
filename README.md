@@ -1,3 +1,23 @@
+**Who's surprised and who's disappointed so far this college basketball season?**\
+`Here's who surged and slipped through the first month of the season and what it means moving forward. `\
+https://nytimes.com/athletic/6856895/2025/12/03/college-basketball-kansas-arizona-kentucky/
+
+**DealBook Summit Live Updates: Executives and Political Figures Set for a Day of Interviews**\
+`Andrew Ross Sorkin will interview more than a dozen prominent figures from the worlds of business and politics, including Scott Bessent, Gavin Newsom and Erika Kirk. Follow along and watch live here.`\
+https://nytimes.com/live/2025/12/03/business/dealbook-summit-news
+
+**Dario Amodei, Scott Bessent, Erika Kirk, Alex Karp and Mary Barra will be at the DealBook Summit.**\
+`By Sarah Kessler`\
+https://nytimes.com/live/2025/12/03/business/dealbook-summit-news/dealbook-summit-speakers-bessent-kirk-newsom
+
+**Here’s the latest on the 2025 DealBook Summit.**\
+`By Sarah Kessler`\
+https://nytimes.com/live/2025/12/03/business/dealbook-summit-news/heres-the-latest-on-the-2025-dealbook-summit
+
+**Haley Carter on joining Washington Spirit, Michele Kang's vision and Trinity Rodman's future**\
+`The former Orlando Pride executive has proven she knows how to build championship-winning teams. `\
+https://nytimes.com/athletic/6857182/2025/12/03/spirit-hires-former-pride-haley-carter-nwsl-soccer/
+
 **Hegseth Says He Did Not See Survivors in September Boat Strike**\
 `Defense Secretary Pete Hegseth said he had not seen survivors of a U.S. military strike on a boat in the Caribbean in September and that he “didn’t stick around” to watch a second strike that killed two people clinging to wreckage.`\
 https://nytimes.com/video/us/politics/100000010561612/hegseth-boat-strikes-venezuela.html
@@ -17,24 +37,4 @@ https://nytimes.com/2025/12/03/world/europe/russia-putin-ukraine-peace-deal.html
 **The teenagers out to prove that 'Europeans can play' America's game**\
 `Ahead of early signing day, The Athletic spoke to the international talents who will be playing college football next year. `\
 https://nytimes.com/athletic/6842970/2025/12/03/early-signing-day-nfl-academy-prospects/
-
-**A look at Broncos' path to No. 1 seed and why Raiders game has significant weight**\
-`Why beating Las Vegas for a 10th straight victory would give Denver an important edge in its AFC race against New England.`\
-https://nytimes.com/athletic/6856213/2025/12/03/broncos-playoffs-afc-top-seed-raiders/
-
-**Why Is Everything ‘Wrapped’? You Can Blame Spotify.**\
-`The music streaming service is no longer the only company quantifying our social lives.`\
-https://nytimes.com/2025/12/03/style/spotify-wrapped-2025-year-in-review.html
-
-**A Progressive Democrat Makes a Long-Shot Senate Bid in Red Kentucky**\
-`Charles Booker is running again for the chamber as Democrats take chances even in heavily Republican states like Kentucky, where Senator Mitch McConnell is retiring.`\
-https://nytimes.com/2025/12/03/us/politics/charles-booker-senate-kentucky.html
-
-**Commanders mailbag: Submit your questions for beat reporter Nicki Jhabvala**\
-`Last year's dream season won't be replicated, and the Washington Commanders face plenty of important questions.`\
-https://nytimes.com/athletic/6857229/2025/12/03/washington-commanders-mailbag-roster/
-
-**FIFA moves deadline for teams to release players for AFCON**\
-`The new deadline, which was originally set for December 8, allows players to play an additional week of fixtures for their clubs.`\
-https://nytimes.com/athletic/6854690/2025/12/03/afcon-player-release-deadline-moved/
 
