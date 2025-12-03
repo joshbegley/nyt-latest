@@ -1,3 +1,7 @@
+**Late Night on Trump’s ‘Social Media Blitzkrieg’**\
+`The president posted 160 times on Truth Social in one night, according to news reports. One host says his “thumbs were as swollen as his ankles.”`\
+https://nytimes.com/2025/12/03/arts/television/late-night-trump-truth-social.html
+
 **Spurs needed a reason to believe. Main character Cristian Romero gave them one**\
 `The real challenge now is to turn this from one good moment from Romero into something Spurs can build on.`\
 https://nytimes.com/athletic/6851839/2025/12/03/cristian-romero-goals-tottenham/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6845174/2025/12/03/top-100-world-cup-players-ranked
 **Ole Miss players accuse Lane Kiffin of lying in his farewell statement**\
 `Several Rebels players said Kiffin's statement that his players asked him to coach them in the College Football Playoff was false.`\
 https://nytimes.com/athletic/6857311/2025/12/03/ole-miss-players-accuse-lane-kiffin-lying/
-
-**Why are footballers using energy gels during games?**\
-`Long-established in endurance sports like cycling, football is turning to fast-acting energy sources as it becomes increasingly physical`\
-https://nytimes.com/athletic/6823439/2025/12/03/footballers-energy-gels-nutrition-premier-league/
 
