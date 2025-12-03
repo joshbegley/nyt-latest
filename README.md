@@ -1,9 +1,13 @@
+**A Sidewalk Encounter Between 2 Longtime Neighbors Ends in a Death**\
+`Dean Whetzel, 82, had known Dana Escoffier, 79, for decades. When Mr. Whetzel bumped into him near their Village apartments, Mr. Escoffier shoved him, the police said, and he fell to the ground.`\
+https://nytimes.com/2025/12/02/nyregion/homicide-west-village-seniors-neighbors.html
+
 **U. of Alabama Suspends Black and Female Student Magazines, Citing D.E.I. Guidance**\
 `Officials told staff members at two student-run publications, called Nineteen Fifty-Six and Alice, that they were not compliant with Attorney General Pam Bondi’s memo on diversity programs.`\
 https://nytimes.com/2025/12/02/us/u-of-alabama-student-magazines-dei.html
 
-**North Texas hires former West Virginia coach Neal Brown**\
-`Brown has a decade of head-coaching experience, including a 35-16 record at Troy and a 37-35 record at West Virginia.`\
+**North Texas hires Neal Brown as football coach. He will take over after the season**\
+`Brown has a decade of head-coaching experience, including a 35-16 record at Troy and a 37-35 mark at West Virginia.`\
 https://nytimes.com/athletic/6856992/2025/12/02/north-texas-neal-brown-hire-coach/
 
 **Trump’s Shift on Afghan Immigrants**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6856956/2025/12/02/college-football-playoff-ranking
 **U.S. Diplomats Report Broken Morale and Abandoned Careers**\
 `A new survey found that 98 percent of Foreign Service officers felt lower morale. Only 1 percent reported an increased ability to carry out U.S. foreign policy.`\
 https://nytimes.com/2025/12/02/us/politics/state-department-morale-survey.html
-
-**NFL RedZone drastically raises commercial time in Week 13**\
-`In total, combining double-box ads, banner ads and sponsored segments, NFL RedZone showed over four minutes of sponsored elements Sunday.`\
-https://nytimes.com/athletic/6856988/2025/12/02/nfl-redzone-increases-commercials/
 
