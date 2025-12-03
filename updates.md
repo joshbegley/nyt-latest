@@ -1,3 +1,23 @@
+**The Bounce: A flood of first-time All-Stars? And should the Pelicans say bye to Zion?**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/6858533/2025/12/03/all-stars-first-time-zion-williamson-the-bounce/
+
+**What Physics Knows About Ghostly Neutrinos Muddled by New Experiments**\
+`Two papers challenged the existence of theorized particles called sterile neutrinos that might account for mysteries like the cosmos’s dark matter.`\
+https://nytimes.com/2025/12/03/science/sterile-neutrinos-particle-physics.html
+
+**Your Fish Wants Miso-Butter Bread Crumbs**\
+`Kay Chun’s recipe calls for cod, but you could smear this garlicky, gingery topping on any other fish fillets you like.`\
+https://nytimes.com/2025/12/03/dining/your-fish-wants-miso-butter-bread-crumbs.html
+
+**The kings of collapse? Can the Colts avoid another late-season meltdown?**\
+`Are these the same old Colts, good enough to get your hopes up before letting you down?`\
+https://nytimes.com/athletic/6858456/2025/12/03/colts-collapse-daniel-jones-jaguars-nfl-playoffs/
+
+**How Is America Changing Under President Trump? We Want to Hear From You.**\
+`A New York Times reporter wants to hear from you about changes you are seeing in your community since Mr. Trump took office.`\
+https://nytimes.com/2025/12/03/us/trump-policy-changes.html
+
 **Germany named 2029 women's European Championship hosts**\
 `The hosts were appointed by the UEFA Executive Committee at its meeting in Nyon, Switzerland on Wednesday.`\
 https://nytimes.com/athletic/6857907/2025/12/03/womens-euros-hosts-2029/
