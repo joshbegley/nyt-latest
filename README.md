@@ -1,3 +1,7 @@
+**TAFC – Haaland: 0-100 in record time, ranking best players going to the World Cup**\
+`Today in TAFC: Will Haaland reach EPL goals record? We rank the top 100 players going to the World Cup, and how draw venue became political`\
+https://nytimes.com/athletic/6857729/2025/12/03/erling-haaland-100-premier-league-goals/
+
 **Ranking the top 10 college football stadiums in the Group of 6 conferences**\
 `College football has plenty of hidden-gem stadiums outside the Power 4 conferences. Here are our favorites in the Group of 6.`\
 https://nytimes.com/athletic/6850880/2025/12/03/college-football-stadium-rankings-best-group-of-6/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6856050/2025/12/03/chiefs-nfl-playoff-chances-texan
 **Can the Cowboys do it? Confidence is high, but little room for error in playoff push**\
 `CeeDee Lamb called Dallas' matchup Thursday night in Detroit essentially a playoff game as the Cowboys try to ride their 3-game momentum.`\
 https://nytimes.com/athletic/6856711/2025/12/03/cowboys-playoff-chances-lions-thursday-night/
-
-**Senators' offence comes alive against the Canadiens — and so did their defence**\
-`Brady Tkachuk and Fabian Zetterlund had multipoint games, and Ottawa's defence combined for 6 points in the victory. `\
-https://nytimes.com/athletic/6855753/2025/12/03/senators-canadiens-offence-defence/
 
