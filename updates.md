@@ -1,3 +1,7 @@
+**Australia captain Pat Cummins could make surprise return for Brisbane Test**\
+`Fast bowler has not featured since July after suffering from a stress fracture in his lower back but has stepped up his training in the nets`\
+https://nytimes.com/athletic/6857763/2025/12/03/pat-cummins-australia-ashes-brisbane/
+
 **The Hong Kong Fire: A Crisis in the National Security Era**\
 `The authorities quickly arrested critics demanding accountability, signaling an expansive use of the security law to silence dissent over nonpolitical tragedies.`\
 https://nytimes.com/2025/12/03/world/asia/hong-kong-fire-national-security-arrests.html

@@ -1,3 +1,7 @@
+**Australia captain Pat Cummins could make surprise return for Brisbane Test**\
+`Fast bowler has not featured since July after suffering from a stress fracture in his lower back but has stepped up his training in the nets`\
+https://nytimes.com/athletic/6857763/2025/12/03/pat-cummins-australia-ashes-brisbane/
+
 **The Hong Kong Fire: A Crisis in the National Security Era**\
 `The authorities quickly arrested critics demanding accountability, signaling an expansive use of the security law to silence dissent over nonpolitical tragedies.`\
 https://nytimes.com/2025/12/03/world/asia/hong-kong-fire-national-security-arrests.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6857100/2025/12/03/newcastle-united-late-goals/
 **Textor seeks to clarify comment he 'adjusted' transfer fees with Evangelos Marinakis**\
 `Textor said an "awkward translation" was to blame after suggesting transfer fees were "adjusted" when conducted with Marinakis.`\
 https://nytimes.com/athletic/6855143/2025/12/03/textor-marinakis-transfers-nottingham-forest-crystal-palace/
-
-**South Korea Says the U.S. Agreed to Help It Secure Fuel for Its Reactors**\
-`President Lee Jae Myung reaffirmed wanting to build nuclear-powered submarines at home, despite President Trump’s suggestion that they be built in the United States.`\
-https://nytimes.com/2025/12/03/world/asia/south-korea-nuclear-reactor-fuel.html
 
