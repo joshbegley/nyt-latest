@@ -35,6 +35,6 @@ https://nytimes.com/live/2025/12/03/business/dealbook-summit-news/last-years-dea
 https://nytimes.com/athletic/6856895/2025/12/03/college-basketball-kansas-arizona-kentucky/
 
 **DealBook Summit Live Updates: Treasury Secretary Opens Day of Interviews With Executives and Political Figures**\
-`Secretary Scott Bessent will be the first interview of the 2025 DealBook Summit. Andrew Ross Sorkin will interview more than a dozen prominent figures from the worlds of business and politics, including Gavin Newsom and Erika Kirk. Follow along and watch live here.`\
+`Secretary Scott Bessent is first up. Andrew Ross Sorkin will speak to more than a dozen prominent figures from the worlds of business and politics. Follow along and watch live here.`\
 https://nytimes.com/live/2025/12/03/business/dealbook-summit-news
 

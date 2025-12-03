@@ -1,3 +1,7 @@
+**DealBook Summit Live Updates: Treasury Secretary Opens Day of Interviews With Executives and Political Figures**\
+`Secretary Scott Bessent is first up. Andrew Ross Sorkin will speak to more than a dozen prominent figures from the worlds of business and politics. Follow along and watch live here.`\
+https://nytimes.com/live/2025/12/03/business/dealbook-summit-news
+
 **Cunha 'back' for Man Utd vs West Ham, Amorim says**\
 `The head coach also revealed there were "two doubts" for Thursday's game, but did not reveal who they were. `\
 https://nytimes.com/athletic/6858173/2025/12/03/matheus-cunha-manchester-united-west-ham-injury-amorim/
