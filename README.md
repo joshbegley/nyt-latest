@@ -1,3 +1,7 @@
+**College Football Playoff 2025 projections: What our model says after the latest Top 25**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/12/02/college-football-playoff-bracket-projections-odds/
+
 **After Decades in Combat, a SEAL Suddenly Comes Under Scrutiny**\
 `Adm. Frank M. Bradley will soon face questions from lawmakers, as Republicans and Democrats express concerns about a Sept. 2 attack on a boat in the Caribbean.`\
 https://nytimes.com/2025/12/02/us/politics/admiral-bradley-boat-strikes.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000010560845/trump-somalia-xenophobic-r
 **U.S. Pauses Immigration Applications From Nations on Travel Ban List**\
 `The pause, which will halt green card and U.S. citizenship processing for broad swaths of people, deepens a remarkable crackdown on legal immigration pathways in recent days.`\
 https://nytimes.com/2025/12/02/us/politics/trump-travel-ban-citizenship-green-cards-dc-shooting.html
-
-**Miley Cyrus and Maxx Morando Are Engaged**\
-`The Grammy Award-winning singer debuted a 14-karat gold, cushion-set natural diamond ring while posing with her longtime boyfriend, Mr. Morando, at the Los Angeles premiere of “Avatar: Fire and Ash.”`\
-https://nytimes.com/2025/12/02/style/miley-cyrus-engagement-maxx-morando.html
 

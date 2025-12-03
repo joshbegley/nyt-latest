@@ -1,3 +1,11 @@
+**After Decades in Combat, a SEAL Suddenly Comes Under Scrutiny**\
+`Adm. Frank M. Bradley will soon face questions from lawmakers, as Republicans and Democrats express concerns about a Sept. 2 attack on a boat in the Caribbean.`\
+https://nytimes.com/2025/12/02/us/politics/admiral-bradley-boat-strikes.html
+
+**KBO MVP Cody Ponce to sign three-year, $30M deal with Blue Jays: Sources**\
+`After a historic 2025 season, Ponce was awarded the KBO's equivalent to the Cy Young Award and its league MVP. `\
+https://nytimes.com/athletic/6853998/2025/12/02/mlb-cody-ponce-free-agency-signing-blue-jays/
+
 **Court Puts Hold on Decision Requiring Religious Exemptions to Vaccine Mandate**\
 `The West Virginia Supreme Court said that the vaccine mandate for children would remain while it considered the case.`\
 https://nytimes.com/2025/12/02/us/court-puts-hold-on-decision-requiring-religious-exemptions-to-vaccine-mandate.html
