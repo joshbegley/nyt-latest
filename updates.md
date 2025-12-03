@@ -1,3 +1,15 @@
+**Trump Appears to Doze Off During Cabinet Meeting**\
+`President Trump seemed to be fighting sleep during a cabinet meeting on Tuesday. The meeting began with the 79-year-old president criticizing questions about his physical stamina.`\
+https://nytimes.com/video/us/politics/100000010560959/trump-falls-asleep-cabinet-meeting-nap.html
+
+**James Solomon Beats Jim McGreevey, a Former Governor, in Jersey City**\
+`Mr. Solomon was elected mayor over Mr. McGreevey, who was hoping for a comeback after resigning in 2004 as New Jersey’s governor in the midst of a sex scandal.`\
+https://nytimes.com/2025/12/02/nyregion/james-solomon-jim-mcgreevey-jersey-city.html
+
+**Lawsuits allege USA Gymnastics, SafeSport failed to prevent sexual abuse by coach**\
+`The former coach at the center of the cases was arrested in August on federal child pornography charges.`\
+https://nytimes.com/athletic/6855691/2025/12/02/usa-gymnastics-safesport-coach-abuse/
+
 **Trump Appears to Fight Sleep During Cabinet Meeting**\
 `President Trump began the meeting by criticizing media coverage about him showing signs of fatigue. Last month, he appeared to doze off during a meeting in the Oval Office.`\
 https://nytimes.com/2025/12/02/us/politics/trump-sleep-cabinet-meeting.html
