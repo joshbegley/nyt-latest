@@ -1,3 +1,15 @@
+**A Prized Fabergé Egg Is Sold at Auction for More Than $30 Million**\
+`Fabergé is believed to have produced 50 of the ornate eggs for Russia’s czars. The Winter Egg, sold on Tuesday, is considered one of the jewelry house’s greatest creations.`\
+https://nytimes.com/2025/12/03/world/europe/faberge-winter-egg-auction.html
+
+**Inside the Ultra-Orthodox Fight Against Israel’s Draft**\
+`For the first time in decades, ultra-Orthodox Jews in Israel are being called to serve in the country’s military. The community is furious, with protesters and military-age men openly defying the draft.`\
+https://nytimes.com/video/world/middleeast/100000010510485/israel-draft-idf-ultra-orthodox-jews.html
+
+**On First Trip Abroad, Pope Leo Echoed Francis’s Message, Not His Style**\
+`Traveling through the Mideast, Leo XIV channeled many of his predecessor’s messages. Leo’s deliberate manner differed from Francis.`\
+https://nytimes.com/2025/12/03/world/europe/pope-leo-first-trip-francis-turkey-lebanon.html
+
 **Europe Wants to Get the Word Out: Russia Is to Blame for Sabotage**\
 `Officials are accusing Russia of smaller-scale assaults. President Vladimir V. Putin sought to turn the tables, saying that if Europe were to start a war, Russia is ready.`\
 https://nytimes.com/2025/12/03/world/europe/europe-russia-hybrid-attacks.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/12/03/us/politics/demand-justice-attacks-senate-democra
 **Should We All Want Lily Allen’s Midlife Crisis?**\
 `A singer’s almost totally relatable look at the woes of aging.`\
 https://nytimes.com/2025/12/03/opinion/lily-allen-david-harbour-west-end-girl.html
-
-**Fed Pick Puts Pressure on Bessent to Deliver for Trump**\
-`Treasury Secretary Scott Bessent, who is leading the search for the next Federal Reserve chair, could face President Trump’s wrath if the person chosen does not quickly lower interest rates.`\
-https://nytimes.com/2025/12/03/us/politics/fed-chair-bessent-hassett.html
-
-**Those Sky-High Bitcoin Prices That Everyone Said Were Here to Stay? They Left.**\
-`Bitcoin has plunged more than 30 percent and Ether is down around 40 percent in recent months, as gains from President Trump’s pro-crypto policies evaporated.`\
-https://nytimes.com/2025/12/03/technology/cryptocurrencies-tumble-trump-rally.html
-
-**Ahead of Tariff Ruling, Businesses Race to Secure Refunds**\
-`The Supreme Court has not yet ruled on the legality of President Trump’s sweeping tariffs, but some companies aren’t waiting to try to secure a speedy and substantial payout.`\
-https://nytimes.com/2025/12/03/business/supreme-court-tariff-ruling-refunds.html
 
