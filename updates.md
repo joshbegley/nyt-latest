@@ -1,3 +1,11 @@
+**Declan Rice, the evolution of Arsenal's Mr Everything**\
+`Rice adds more to his game year on year. That has been critical to pushing them to new levels`\
+https://nytimes.com/athletic/6855119/2025/12/03/declan-rice-arsenal-arteta-evolved/
+
+**Christian Fuchs: From the Premier League summit to the bottom of League Two**\
+`In an exclusive interview, Leicester title-winner Fuchs explains why he has swapped North Carolina for south Wales to become Newport manager`\
+https://nytimes.com/athletic/6855086/2025/12/03/christian-fuchs-leicester-city-premier-league-newport-county-league-two/
+
 **South Korea Has a Coffee Shop Problem**\
 `Opening a coffee shop is no path to riches, South Koreans are learning, but lured by the hype, they keep trying anyway.`\
 https://nytimes.com/interactive/2025/12/03/world/asia/south-korea-coffee-shops.html

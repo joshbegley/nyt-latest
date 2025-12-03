@@ -1,3 +1,11 @@
+**Declan Rice, the evolution of Arsenal's Mr Everything**\
+`Rice adds more to his game year on year. That has been critical to pushing them to new levels`\
+https://nytimes.com/athletic/6855119/2025/12/03/declan-rice-arsenal-arteta-evolved/
+
+**Christian Fuchs: From the Premier League summit to the bottom of League Two**\
+`In an exclusive interview, Leicester title-winner Fuchs explains why he has swapped North Carolina for south Wales to become Newport manager`\
+https://nytimes.com/athletic/6855086/2025/12/03/christian-fuchs-leicester-city-premier-league-newport-county-league-two/
+
 **South Korea Has a Coffee Shop Problem**\
 `Opening a coffee shop is no path to riches, South Koreans are learning, but lured by the hype, they keep trying anyway.`\
 https://nytimes.com/interactive/2025/12/03/world/asia/south-korea-coffee-shops.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/02/pageoneplus/quote-of-the-day-maduro-fearing-attac
 **Tyler Skaggs’ widow testifies again as Angels attempt to establish drug use timeline**\
 `Carli Skaggs was testifying for a second time in trial, this time as part of the defense, which officially began Monday.`\
 https://nytimes.com/athletic/6857348/2025/12/02/tyler-skaggs-widow-testifies-angels-trial/
-
-**Heading Toward Midterms, the G.O.P. Continues to Slip**\
-`Almost every election night this year has gone poorly for the Republicans — a familiar position for the party that occupies the White House.`\
-https://nytimes.com/2025/12/02/upshot/election-tennessee-republicans-democrats.html
-
-**Village People to perform Trump anthem 'Y.M.C.A.' at World Cup draw**\
-`There will also be live music performances from Andrea Bocelli, Robbie Williams and Nicole Scherzinger.`\
-https://nytimes.com/athletic/6857228/2025/12/02/village-people-ymca-trump-anthem-world-cup-draw-fifa/
 
