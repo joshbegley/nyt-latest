@@ -1,3 +1,7 @@
+**Mel Leipzig, Painter Called the ‘Chekhov of Trenton,’ Dies at 90**\
+`He put fellow New Jerseyans at the center of his work, and a critic praised the “mysterious emotional tensions” in his pictures of ordinary people.`\
+https://nytimes.com/2025/12/03/arts/design/mel-leipzig-dead.html
+
 **USC's top-ranked class, Vanderbilt's flip, Virginia Tech's surge highlight signing day**\
 `Once again, the SEC is dominating, with five of the top 10 classes (Alabama, Georgia, Texas, Tennessee and Texas A&M). `\
 https://nytimes.com/athletic/6859239/2025/12/03/college-football-early-signing-day-usc-virginia-tech/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6859308/2025/12/03/nba-fines-76ers-injury-reporting
 **Anthropic C.E.O. Says A.I. Tech Is Solid, But Massive Spending Poses Risk**\
 `The Anthropic chief executive Dario Amodei told Andrew Ross Sorkin, Dealbook Editor at Large, that the A.I. industry was taking on considerable risk as it spends hundreds of billions of dollars on the data centers that power its technology.`\
 https://nytimes.com/video/technology/100000010563284/dealbook-artificial-intelligence-anthropic.html
-
-**Black Bear, Uninvited, Moves Into California Man’s Crawl Space**\
-`Ken Johnson has tried noisy tactics to encourage the 550-pound houseguest in his crawl space to leave. He is not sure it’s working.`\
-https://nytimes.com/2025/12/03/us/california-bear-crawl-space.html
 

@@ -1,3 +1,7 @@
+**Mel Leipzig, Painter Called the ‘Chekhov of Trenton,’ Dies at 90**\
+`He put fellow New Jerseyans at the center of his work, and a critic praised the “mysterious emotional tensions” in his pictures of ordinary people.`\
+https://nytimes.com/2025/12/03/arts/design/mel-leipzig-dead.html
+
 **USC's top-ranked class, Vanderbilt's flip, Virginia Tech's surge highlight signing day**\
 `Once again, the SEC is dominating, with five of the top 10 classes (Alabama, Georgia, Texas, Tennessee and Texas A&M). `\
 https://nytimes.com/athletic/6859239/2025/12/03/college-football-early-signing-day-usc-virginia-tech/
