@@ -1,3 +1,7 @@
+**Spurs needed a reason to believe. Main character Cristian Romero gave them one**\
+`The real challenge now is to turn this from one good moment from Romero into something Spurs can build on.`\
+https://nytimes.com/athletic/6851839/2025/12/03/cristian-romero-goals-tottenham/
+
 **They Have a Historic Mission, and They’re Blowing It**\
 `Centrist governments are failing badly in Europe’s leading economies, setting the stage for a far-right sweep.`\
 https://nytimes.com/2025/12/03/opinion/europe-britain-france-germany-centrist.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6857311/2025/12/03/ole-miss-players-accuse-lane-kif
 **Why are footballers using energy gels during games?**\
 `Long-established in endurance sports like cycling, football is turning to fast-acting energy sources as it becomes increasingly physical`\
 https://nytimes.com/athletic/6823439/2025/12/03/footballers-energy-gels-nutrition-premier-league/
-
-**Mohamed Salah and Liverpool: What now?**\
-`If the Egyptian is to be a less regular starter this season, Arne Slot faces a significant test of his man-management skills`\
-https://nytimes.com/athletic/6854977/2025/12/03/mohamed-salah-liverpool-future-team/
 
