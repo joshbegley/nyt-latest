@@ -1,3 +1,11 @@
+**They Have a Historic Mission, and They’re Blowing It**\
+`Centrist governments are failing badly in Europe’s leading economies, setting the stage for a far-right sweep.`\
+https://nytimes.com/2025/12/03/opinion/europe-britain-france-germany-centrist.html
+
+**The New York Times in Print for Wednesday, Dec. 3, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/12/03/todays-new-york-times
+
 **A Question Circling Sydney’s Beaches: Do We Still Need Shark Nets?**\
 `Critics say the nets harm marine life and aren’t the best way to keep swimmers safe. Recent shark attacks have complicated a plan to remove some of them.`\
 https://nytimes.com/2025/12/03/world/australia/sydney-shark-nets-australia.html
