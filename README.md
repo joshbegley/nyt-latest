@@ -1,3 +1,7 @@
+**Ipswich valued at Championship record £350m after ownership restructure**\
+`The Arizona state pension fund that bought Ipswich in 2021 has sold a large chunk of its shares in the Suffolk-based club.`\
+https://nytimes.com/athletic/6858985/2025/12/03/ipswich-valuation-championship-ownership-restructure/
+
 **Can Chris Paul help any team? Here are 5 potential landing spots**\
 `The 40-year-old has said this season is his last. Where that campaign ends remains to be seen.`\
 https://nytimes.com/athletic/6858496/2025/12/03/nba-chris-paul-cp3-potential-teams/
@@ -29,8 +33,4 @@ https://nytimes.com/video/business/dealbook/100000010562120/blackrock-ceo-calls-
 **Tunisia Arrests Opposition Figure in Widening Crackdown**\
 `The sentencing of Ayachi Hammami, a prominent human rights lawyer, was the latest sign of Tunisia’s backsliding into authoritarianism, say rights groups.`\
 https://nytimes.com/2025/12/03/world/africa/tunisia-arrest-hammami-crackdown.html
-
-**The Chiefs of BlackRock and Coinbase Dismiss Fears of a Coming Crypto Winter**\
-`Larry Fink and Brian Armstrong haven’t always agreed on crypto, but the business leaders’ embrace of the asset has helped bring it into the mainstream.`\
-https://nytimes.com/2025/12/03/business/dealbook/blackrock-coinbase-crypto-dealbook-summit.html
 
