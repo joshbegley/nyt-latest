@@ -1,3 +1,7 @@
+**All Hotels at Grand Canyon to Shut Down for Pipeline Repairs**\
+`The National Park Service said seven hotels would temporarily close starting on Saturday after “significant breaks” in a crucial 12.5-mile water line.`\
+https://nytimes.com/2025/12/03/travel/grand-canyon-hotels-closed-south-rim.html
+
 **Alexander-Arnold injured in Real Madrid's 3-0 win over Athletic Club**\
 `Midfielder Eduardo Camavinga was also substituted after sustaining what appeared to be ankle injury.`\
 https://nytimes.com/athletic/6859252/2025/12/03/real-madrid-athletic-club-trent-camavinga-injury/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6859467/2025/12/03/pistons-vs-bucks-stream-how-to-w
 **How to watch Clippers vs. Hawks: Time, TV, streaming**\
 `Find out how to watch the Los Angeles Clippers play the Atlanta Hawks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6859463/2025/12/03/clippers-vs-hawks-stream-how-to-watch-dec-3/
-
-**How to watch Hornets vs. Knicks: Time, TV, streaming**\
-`Find out how to watch the Charlotte Hornets play the New York Knicks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6859462/2025/12/03/hornets-vs-knicks-stream-how-to-watch-dec-3/
 

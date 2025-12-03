@@ -1,3 +1,7 @@
+**All Hotels at Grand Canyon to Shut Down for Pipeline Repairs**\
+`The National Park Service said seven hotels would temporarily close starting on Saturday after “significant breaks” in a crucial 12.5-mile water line.`\
+https://nytimes.com/2025/12/03/travel/grand-canyon-hotels-closed-south-rim.html
+
 **Alexander-Arnold injured in Real Madrid's 3-0 win over Athletic Club**\
 `Midfielder Eduardo Camavinga was also substituted after sustaining what appeared to be ankle injury.`\
 https://nytimes.com/athletic/6859252/2025/12/03/real-madrid-athletic-club-trent-camavinga-injury/
