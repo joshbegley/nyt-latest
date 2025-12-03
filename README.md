@@ -1,32 +1,40 @@
-**Ludwig Minelli, Founder of Swiss Assisted- Suicide Group, Dies at 92**\
-`Dignitas has helped more than 3,000 people take their own lives, an act that Mr. Minelli maintained was a fundamental exercise of free will.`\
-https://nytimes.com/2025/12/03/world/europe/ludwig-minelli-dead.html
+**How to watch NC State vs. Auburn men's basketball: Time, TV, streaming**\
+`Find out how to watch the NC State Wolfpack play the Auburn Tigers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6859445/2025/12/03/nc-state-vs-auburn-stream-how-to-watch-dec-3/
 
-**Honey, We Shrunk the Coconut Cake**\
-`Samantha Seneviratne’s coconut cake snowballs condense the essence of the original into charming three-bite treats.`\
-https://nytimes.com/2025/12/03/dining/honey-we-shrunk-the-coconut-cake.html
+**How to watch SE Louisiana vs. Baylor women's basketball: Time, TV, streaming**\
+`Find out how to watch the SE Louisiana Lions play the Baylor Bears, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6859444/2025/12/03/se-louisiana-vs-baylor-stream-how-to-watch-dec-3/
 
-**Trump’s NASA Pick Poised to Win Senate Vote After Do-Over**\
-`The president withdrew Jared Isaacman’s nomination to lead the space agency in June, but senators of both parties appeared willing to give him a second shot at confirmation.`\
-https://nytimes.com/2025/12/03/science/trump-nasa-jared-isaacman-senate-hearing.html
+**How to watch Incarnate Word vs. TCU women's basketball: Time, TV, streaming**\
+`Find out how to watch the Incarnate Word Cardinals play the TCU Horned Frogs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6859438/2025/12/03/incarnate-word-vs-tcu-stream-how-to-watch-dec-3/
 
-**Yegor Ligachev, Gorbachev’s No. 2 Who Turned Foe, Is Dead at 100**\
-`As the Kremlin’s hard-line Communist ideologist, he initially embraced his boss’s modernizing reforms before turning against them as threats to the Soviet order.`\
-https://nytimes.com/2025/12/03/world/europe/yegor-ligachev-dead.html
+**How to watch Louisville vs. Arkansas men's basketball: Time, TV, streaming**\
+`Find out how to watch the Louisville Cardinals play the Arkansas Razorbacks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6859434/2025/12/03/louisville-vs-arkansas-stream-how-to-watch-dec-3/
 
-**Celtic appoint Nancy as manager from Columbus Crew**\
-`Celtic have been without a permanent head coach since Brendan Rodgers resigned on October 27.`\
-https://nytimes.com/athletic/6859226/2025/12/03/celtic-wilfried-nancy-manager/
+**How to watch Alcorn State vs. Iowa State men's basketball: Time, TV, streaming**\
+`Find out how to watch the Alcorn State Braves play the Iowa State Cyclones, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6859431/2025/12/03/alcorn-state-vs-iowa-state-stream-how-to-watch-dec-3/
 
-**Palantir C.E.O.: Any Suggestion That Trump Is a Fascist Is ‘Stupid’**\
-`Alex Karp, the chief executive of Palantir Technologies, said he grew up partly in Germany and spent time with “actual fascists.”`\
-https://nytimes.com/video/business/dealbook/100000010562895/dealbook-summit-alex-karp-palantir.html
+**How to watch SMU vs. Vanderbilt men's basketball: Time, TV, streaming**\
+`Find out how to watch the SMU Mustangs play the Vanderbilt Commodores, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6859425/2025/12/03/smu-vs-vanderbilt-stream-how-to-watch-dec-3/
 
-**Executives say they are optimistic about the economy despite high costs.**\
-`A cooling labor market and economic softness in the United States haven’t prevented business leaders and policymakers from feeling positive about America’s prospects.`\
-https://nytimes.com/live/2025/12/03/business/dealbook-summit-news/executives-say-they-are-optimistic-about-the-economy-despite-high-costs
+**How to watch Tennessee vs. Stanford women's basketball: Time, TV, streaming**\
+`Find out how to watch the Tennessee Lady Volunteers play the Stanford Cardinal, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6859401/2025/12/03/tennessee-vs-stanford-stream-how-to-watch-dec-3/
 
-**A Drunk Raccoon Passed Out in the Bathroom of a Virginia Liquor Store**\
-`Don’t worry, it’s OK.`\
-https://nytimes.com/2025/12/03/us/drunk-raccoon-virginia-liquor-store.html
+**How to watch Clemson vs. Alabama men's basketball: Time, TV, streaming**\
+`Find out how to watch the Clemson Tigers play the Alabama Crimson Tide, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6859399/2025/12/03/clemson-vs-alabama-stream-how-to-watch-dec-3/
+
+**How to watch Cal Baptist vs. BYU men's basketball: Time, TV, streaming**\
+`Find out how to watch the Cal Baptist Lancers play the BYU Cougars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6859397/2025/12/03/cal-baptist-vs-byu-stream-how-to-watch-dec-3/
+
+**How to watch NC State vs. Oklahoma women's basketball: Time, TV, streaming**\
+`Find out how to watch the NC State Lady Wolfpack play the Oklahoma Sooners, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6859395/2025/12/03/nc-state-vs-oklahoma-stream-how-to-watch-dec-3/
 
