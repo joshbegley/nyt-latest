@@ -1,3 +1,7 @@
+**'Line was crossed': Eagles OC Kevin Patullo addresses home vandalism**\
+`Patullo and the Eagles offense have faced scrutiny this season.`\
+https://nytimes.com/athletic/6859572/2025/12/03/eagles-oc-kevin-patullo-egg-vandalism/
+
 **MrBeast Says YouTube’s Content Has Less ‘Brain Rot’ Than TikTok**\
 `Jimmy Donaldson, who is known as MrBeast online, discussed the differences in content quality between YouTube and TikTok at The New York Times’s DealBook summit.`\
 https://nytimes.com/video/business/dealbook/100000010563504/mrbeast-tiktok-more-brain-rot-than-youtube.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/100000010563451/bear-crawl-space-california.html
 **NFL Week 14 staff picks: The first Bears-Packers game with stakes in years**\
 `Who will move into pole position in December, and whose dreams will be shattered? Week 14 has all the stakes.`\
 https://nytimes.com/athletic/6858882/2025/12/03/nfl-week-14-picks-bears-packers/
-
-**‘Targeted and Unsafe’: Minnesota Somalis Reel After Trump’s Tirade**\
-`Most Somalis in the Twin Cities are U.S. citizens or legal permanent residents. The Trump administration has started a crackdown on Somalis who are subject to deportation.`\
-https://nytimes.com/2025/12/03/us/minnesota-somalis-trump-immigration.html
 
