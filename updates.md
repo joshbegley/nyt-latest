@@ -1,3 +1,11 @@
+**Cap implications and Stars' deadline approach in wake of Seguin's injury**\
+`The Stars are eligible for some salary cap relief under the league’s rules covering long-term injuries.`\
+https://nytimes.com/athletic/6859215/2025/12/03/tyler-seguin-injury-salary-cap-trade-deadline/
+
+**Trump Returns to Gasoline as Fuel of Choice for Cars, Gutting Biden’s Climate Policy**\
+`The president said he would weaken Biden-era mileage standards, which were designed to increase electric-vehicle sales, calling them a “scam.”`\
+https://nytimes.com/2025/12/03/climate/trump-fuel-economy-car-rules.html
+
 **China, Japan and a New Narrative About World War II**\
 `Arguments about history are proliferating as the postwar order led by the United States crumbles.`\
 https://nytimes.com/2025/12/03/world/china-japan-ww2-russia-gaza-pope.html
