@@ -1,3 +1,15 @@
+**What to Expect at Today’s DealBook Summit**\
+`Scott Bessent, Erika Kirk, Gavin Newsom, Dario Amodei, Mary Barra, Alex Karp, MrBeast, Lai Ching-te, and Larry Fink are among the big names speaking.`\
+https://nytimes.com/2025/12/03/business/dealbook/lineup-dealbook-summit.html
+
+**Packers, playoffs on Jaylon Johnson's mind after Bears star's speedy recovery**\
+`Even Johnson didn't expect to play again this season after surgery in September. Now his sights are set on his first playoff appearance.`\
+https://nytimes.com/athletic/6856758/2025/12/03/bears-jaylon-johnson-packers-playoffs/
+
+**Here are the Chiefs' chances to make the playoffs if they finish 5-0 ... and 4-1, too**\
+`The Chiefs have two things playing in their favor as they try to put themselves firmer in the AFC playoff race.`\
+https://nytimes.com/athletic/6856050/2025/12/03/chiefs-nfl-playoff-chances-texans/
+
 **Can the Cowboys do it? Confidence is high, but little room for error in playoff push**\
 `CeeDee Lamb called Dallas' matchup Thursday night in Detroit essentially a playoff game as the Cowboys try to ride their 3-game momentum.`\
 https://nytimes.com/athletic/6856711/2025/12/03/cowboys-playoff-chances-lions-thursday-night/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6856816/2025/12/03/colorado-avalanche-nhl-record-po
 **In Finland, Lauri Markkanen and Keyonte George found the bond the Jazz needed**\
 `Keyonte George didn't know what to expect when he made his way to Finland. He only wanted to learn how to understand Lauri Markkanen.`\
 https://nytimes.com/athletic/6798591/2025/12/03/utah-jazz-lauri-markkanen-keyonte-george-finland-trip/
-
-**Ryan Jeffers excited to be Twins' starting catcher: 'What I've been waiting for my whole career'**\
-`The Twins appear ready to increase Jeffers' playing time and make him more of a traditional catcher.`\
-https://nytimes.com/athletic/6856590/2025/12/03/ryan-jeffers-twins-starting-catcher/
-
-**Making 'the leap': How Celebrini, Bedard and Carlsson have become superstars**\
-`The NHL’s next wave of superstar talent is here. Bedard, Carlsson and Celebrini are proving they belong with the league's best.`\
-https://nytimes.com/athletic/6855892/2025/12/03/nhl-superstars-celebrini-bedard-carlsson-leap/
-
-**Young Canadiens must rely on their few veterans. They can’t right now**\
-`Jake Evans and Brendan Gallagher were not solely to blame for the Canadiens loss to the Senators, but they have not been helping.`\
-https://nytimes.com/athletic/6857543/2025/12/03/canadiens-young-players-veterans/
 
