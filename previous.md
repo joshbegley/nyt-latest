@@ -1,3 +1,7 @@
+**In a stunning, late-night move, Clippers send Chris Paul packing**\
+`The Clippers announced the surprise move in the middle of the night while in Atlanta amid a road trip.`\
+https://nytimes.com/athletic/6857787/2025/12/03/clippers-chris-paul-sent-home/
+
 **Australia captain Pat Cummins could make surprise return for Brisbane Test**\
 `Fast bowler has not featured since July after suffering from a stress fracture in his lower back but has stepped up his training in the nets`\
 https://nytimes.com/athletic/6857763/2025/12/03/pat-cummins-australia-ashes-brisbane/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6856433/2025/12/03/man-city-conceding-guardiola-con
 **Newcastle, late goals and bad habits that are costing precious points**\
 `No team has lost more points from winning positions than Eddie Howe's side. It's a problem that needs fixing`\
 https://nytimes.com/athletic/6857100/2025/12/03/newcastle-united-late-goals/
-
-**Textor seeks to clarify comment he 'adjusted' transfer fees with Evangelos Marinakis**\
-`Textor said an "awkward translation" was to blame after suggesting transfer fees were "adjusted" when conducted with Marinakis.`\
-https://nytimes.com/athletic/6855143/2025/12/03/textor-marinakis-transfers-nottingham-forest-crystal-palace/
 

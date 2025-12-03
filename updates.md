@@ -1,3 +1,7 @@
+**In a stunning, late-night move, Clippers send Chris Paul packing**\
+`The Clippers announced the surprise move in the middle of the night while in Atlanta amid a road trip.`\
+https://nytimes.com/athletic/6857787/2025/12/03/clippers-chris-paul-sent-home/
+
 **Australia captain Pat Cummins could make surprise return for Brisbane Test**\
 `Fast bowler has not featured since July after suffering from a stress fracture in his lower back but has stepped up his training in the nets`\
 https://nytimes.com/athletic/6857763/2025/12/03/pat-cummins-australia-ashes-brisbane/
