@@ -1,3 +1,7 @@
+**Private Employers Cut Jobs in November, the Latest Sign of a Slowdown**\
+`Data from ADP, a payroll processor, is getting added attention because of delays in official statistics caused by the government shutdown.`\
+https://nytimes.com/2025/12/03/business/jobs-adp-economy.html
+
 **Fabergé Egg Fetches More Than $30 Million at Auction**\
 `The Winter Egg, one of 50 Easter eggs created by Fabergé for the Russian imperial family, sold in London on Tuesday for more than $30 million, breaking the auction record for a creation by the jeweler.`\
 https://nytimes.com/video/world/europe/100000010561415/faberge-winter-egg-auction.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6827060/2025/12/03/college-football-coaching-carous
 **Last year’s DealBook Summit featured Bill Clinton, Sam Altman and Jeff Bezos.**\
 `Artificial intelligence, inflation and the incoming Trump administration were big topics of conversation.`\
 https://nytimes.com/live/2025/12/03/business/dealbook-summit-news/last-years-dealbook-summit-featured-bill-clinton-sam-altman-and-jeff-bezos
-
-**Who's surprised and who's disappointed so far this college basketball season?**\
-`Here's who surged and slipped through the first month of the season and what it means moving forward. `\
-https://nytimes.com/athletic/6856895/2025/12/03/college-basketball-kansas-arizona-kentucky/
 

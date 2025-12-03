@@ -1,3 +1,7 @@
+**Private Employers Cut Jobs in November, the Latest Sign of a Slowdown**\
+`Data from ADP, a payroll processor, is getting added attention because of delays in official statistics caused by the government shutdown.`\
+https://nytimes.com/2025/12/03/business/jobs-adp-economy.html
+
 **Fabergé Egg Fetches More Than $30 Million at Auction**\
 `The Winter Egg, one of 50 Easter eggs created by Fabergé for the Russian imperial family, sold in London on Tuesday for more than $30 million, breaking the auction record for a creation by the jeweler.`\
 https://nytimes.com/video/world/europe/100000010561415/faberge-winter-egg-auction.html
