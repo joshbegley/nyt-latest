@@ -1,3 +1,11 @@
+**Palantir C.E.O.: Any Suggestion That Trump Is a Fascist Is ‘Stupid’**\
+`Alex Karp, the chief executive of Palantir Technologies, said he grew up partially in Germany and spent time with “actual fascists.”`\
+https://nytimes.com/video/business/dealbook/100000010562895/dealbook-summit-alex-karp-palantir.html
+
+**Executives say they are optimistic about the economy despite high costs.**\
+`A cooling labor market and economic softness in the United States haven’t prevented business leaders and policymakers from feeling positive about America’s prospects.`\
+https://nytimes.com/live/2025/12/03/business/dealbook-summit-news/executives-say-they-are-optimistic-about-the-economy-despite-high-costs
+
 **A Drunk Raccoon Passed Out in the Bathroom of a Virginia Liquor Store**\
 `Don’t worry, it’s OK.`\
 https://nytimes.com/2025/12/03/us/drunk-raccoon-virginia-liquor-store.html
@@ -14,7 +22,7 @@ https://nytimes.com/2025/12/03/dining/cake-cutting.html
 `The No. 3 rookie's situation, how divided football fans are on the tush push and Mike Sando weighs in on the surprise MVP frontrunner`\
 https://nytimes.com/athletic/6859180/2025/12/03/abdul-carter-giants-drake-maye-patriots-tush-push/
 
-**Clippers' Lawrence Frank: Chris Paul isn't the 'scapegoat' for awful start**\
+**Chris Paul isn't 'scapegoat' for Clippers' awful start, Lawrence Frank says**\
 `Paul and Frank met for three hours in Atlanta and shortly after the meeting ended, Paul announced the Clippers were sending him home. `\
 https://nytimes.com/athletic/6859109/2025/12/03/clippers-chris-paul-lawrence-frank-part-ways/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6858844/2025/12/03/nascar-michael-jordan-trial-laws
 **The Class of 2026's quarterback carousel is slowing down: Where did all the flips end up?**\
 `Since the beginning of September, 23 quarterbacks have decommitted from FBS programs, including 11 pledged to P4 schools.`\
 https://nytimes.com/athletic/6858183/2025/12/03/college-football-quarterback-recruiting-flips/
-
-**Shedeur Sanders on sideline spat with Jerry Jeudy: 'We resolved that'**\
-`Jeudy has yet to get on the same page with Sanders in the quarterback's two starts for Cleveland. `\
-https://nytimes.com/athletic/6859029/2025/12/03/browns-shedeur-sanders-jerry-jeudy-sideline-exchange/
-
-**Some of the Coldest Weather of the Season Is Sweeping Through the U.S.**\
-`There’s no denying it. It’s really December.`\
-https://nytimes.com/2025/12/03/weather/cold-temperatures-polar-vortex.html
 

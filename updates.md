@@ -1,3 +1,15 @@
+**Palantir C.E.O.: Any Suggestion That Trump Is a Fascist Is ‘Stupid’**\
+`Alex Karp, the chief executive of Palantir Technologies, said he grew up partially in Germany and spent time with “actual fascists.”`\
+https://nytimes.com/video/business/dealbook/100000010562895/dealbook-summit-alex-karp-palantir.html
+
+**Executives say they are optimistic about the economy despite high costs.**\
+`A cooling labor market and economic softness in the United States haven’t prevented business leaders and policymakers from feeling positive about America’s prospects.`\
+https://nytimes.com/live/2025/12/03/business/dealbook-summit-news/executives-say-they-are-optimistic-about-the-economy-despite-high-costs
+
+**Chris Paul isn't 'scapegoat' for Clippers' awful start, Lawrence Frank says**\
+`Paul and Frank met for three hours in Atlanta and shortly after the meeting ended, Paul announced the Clippers were sending him home. `\
+https://nytimes.com/athletic/6859109/2025/12/03/clippers-chris-paul-lawrence-frank-part-ways/
+
 **A Drunk Raccoon Passed Out in the Bathroom of a Virginia Liquor Store**\
 `Don’t worry, it’s OK.`\
 https://nytimes.com/2025/12/03/us/drunk-raccoon-virginia-liquor-store.html
