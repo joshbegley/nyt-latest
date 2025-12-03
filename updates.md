@@ -1,3 +1,7 @@
+**How to watch Oklahoma State vs. North Texas women's basketball: Time, TV, streaming**\
+`Find out how to watch the Oklahoma State Cowgirls play the North Texas Mean Green, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6858679/2025/12/03/oklahoma-state-vs-north-texas-stream-how-to-watch-dec-3/
+
 **The Bounce: A flood of first-time All-Stars? And should the Pelicans say bye to Zion?**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/6858533/2025/12/03/all-stars-first-time-zion-williamson-the-bounce/

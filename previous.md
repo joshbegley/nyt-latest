@@ -1,14 +1,18 @@
+**How to watch Oklahoma State vs. North Texas women's basketball: Time, TV, streaming**\
+`Find out how to watch the Oklahoma State Cowgirls play the North Texas Mean Green, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6858679/2025/12/03/oklahoma-state-vs-north-texas-stream-how-to-watch-dec-3/
+
 **The Bounce: A flood of first-time All-Stars? And should the Pelicans say bye to Zion?**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/6858533/2025/12/03/all-stars-first-time-zion-williamson-the-bounce/
 
-**What Physics Knows About Ghostly Neutrinos Muddled by New Experiments**\
-`Two papers challenged the existence of theorized particles called sterile neutrinos that might account for mysteries like the cosmos’s dark matter.`\
-https://nytimes.com/2025/12/03/science/sterile-neutrinos-particle-physics.html
-
 **Your Fish Wants Miso-Butter Bread Crumbs**\
 `Kay Chun’s recipe calls for cod, but you could smear this garlicky, gingery topping on any other fish fillets you like.`\
 https://nytimes.com/2025/12/03/dining/your-fish-wants-miso-butter-bread-crumbs.html
+
+**What Physics Knows About Ghostly Neutrinos Muddled by New Experiments**\
+`Two papers challenged the existence of theorized particles called sterile neutrinos that might account for mysteries like the cosmos’s dark matter.`\
+https://nytimes.com/2025/12/03/science/sterile-neutrinos-particle-physics.html
 
 **The kings of collapse? Can the Colts avoid another late-season meltdown?**\
 `Are these the same old Colts, good enough to get your hopes up before letting you down?`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6858269/2025/12/03/college-football-playoff-bubble-
 **With Tensions Rising, Israel and Lebanon Expand Cease-Fire Talks**\
 `Diplomats from both countries joined a military-led committee overseeing a year-old truce as fears mounted of a renewed Israeli offensive against Hezbollah.`\
 https://nytimes.com/2025/12/03/world/middleeast/israel-lebanon-talks-ceasefire.html
-
-**Chanel Holds a Starry Fashion Show in the New York City Subway**\
-`ASAP Rocky, Jon Bon Jovi and Teyana Taylor hop aboard the C train as Matthieu Blazy brings a great Métiers d’Art show to New York.`\
-https://nytimes.com/2025/12/03/style/chanel-metiers-dart-new-york-subway.html
 
