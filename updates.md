@@ -1,3 +1,7 @@
+**Macy’s Raises Sales Forecast Again as Shoppers Prove Resilient**\
+`A turnaround at the largest department store chain in the United States is progressing, with consumers turning out despite the effects of tariffs and economic uncertainty.`\
+https://nytimes.com/2025/12/03/world/europe/macys-retail-spending-economy.html
+
 **Spain's Women's Nations League victory marks an end to the team's darkest era**\
 `After years of struggle and hardship, Spain's latest success is a sign of the huge change they have made happen`\
 https://nytimes.com/athletic/6857959/2025/12/03/spain-nations-league-final-germany-victory/
