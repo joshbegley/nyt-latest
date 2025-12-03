@@ -1,3 +1,7 @@
+**Honey, We Shrunk the Coconut Cake**\
+`Samantha Seneviratne’s coconut cake snowballs condense the essence of the original into charming three-bite treats.`\
+https://nytimes.com/2025/12/03/dining/honey-we-shrunk-the-coconut-cake.html
+
 **Trump’s NASA Pick Poised to Win Senate Vote After Do-Over**\
 `The president withdrew Jared Isaacman’s nomination to lead the space agency in June, but senators of both parties appeared willing to give him a second shot at confirmation.`\
 https://nytimes.com/2025/12/03/science/trump-nasa-jared-isaacman-senate-hearing.html
