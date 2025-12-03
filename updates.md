@@ -1,3 +1,19 @@
+**With Tensions Rising, Israel and Lebanon Expand Cease-Fire Talks**\
+`Diplomats from both countries joined a military-led committee overseeing a year-old truce as fears mounted of a renewed Israeli offensive against Hezbollah.`\
+https://nytimes.com/2025/12/03/world/middleeast/israel-lebanon-talks-ceasefire.html
+
+**Chanel Holds a Starry Fashion Show in the New York City Subway**\
+`ASAP Rocky, Jon Bon Jovi and Teyana Taylor hop aboard the C train as Matthieu Blazy brings a great Métiers d’Art show to New York.`\
+https://nytimes.com/2025/12/03/style/chanel-metiers-dart-new-york-subway.html
+
+**Bill Belichick, Robert Kraft named finalists for Pro Football Hall of Fame**\
+`Kraft and Belichick are joined by senior finalists Ken Anderson, Roger Craig, and L.C. Greenwood.`\
+https://nytimes.com/athletic/6856981/2025/12/03/nfl-hall-of-fame-finalist-belichick-kraft/
+
+**Lowetide: Why Ryan Nugent-Hopkins remains so important to the Oilers**\
+`Nugent-Hopkins rejoined the Oilers over the weekend after a three-week absence due to injury.`\
+https://nytimes.com/athletic/6853869/2025/12/03/ryan-nugent-hopkins-edmonton-oilers-stats/
+
 **USF expected to hire Ohio State OC Brian Hartline as head coach: Sources**\
 `Hartline would replace Alex Golesh, who was hired by Auburn on Sunday.`\
 https://nytimes.com/athletic/6858432/2025/12/03/usf-brian-hartline-head-coaching-hire/

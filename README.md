@@ -1,3 +1,11 @@
+**NFL Week 14 survivor pool picks, strategy: Bucs, Dolphins are the top picks**\
+`Adam Gretz and Renee Miller answer reader questions and give their survivor pool picks for Week 14.`\
+https://nytimes.com/athletic/6858170/2025/12/03/nfl-week-14-survivor-pool-picks-strategy-buccaneers-dolphins/
+
+**College Football Playoff bubble watch: James Madison, Duke and the auto-bid race**\
+`A Blue Devils win could mean James Madison goes to the Playoff — and the ACC does not.`\
+https://nytimes.com/athletic/6858269/2025/12/03/college-football-playoff-bubble-watch-james-madison-duke/
+
 **With Tensions Rising, Israel and Lebanon Expand Cease-Fire Talks**\
 `Diplomats from both countries joined a military-led committee overseeing a year-old truce as fears mounted of a renewed Israeli offensive against Hezbollah.`\
 https://nytimes.com/2025/12/03/world/middleeast/israel-lebanon-talks-ceasefire.html
@@ -14,7 +22,7 @@ https://nytimes.com/athletic/6856981/2025/12/03/nfl-hall-of-fame-finalist-belich
 `Nugent-Hopkins rejoined the Oilers over the weekend after a three-week absence due to injury.`\
 https://nytimes.com/athletic/6853869/2025/12/03/ryan-nugent-hopkins-edmonton-oilers-stats/
 
-**USF expected to hire Ohio State OC Brian Hartline as head coach: Sources**\
+**USF targeting Ohio State OC Brian Hartline to be head coach: Sources**\
 `Hartline would replace Alex Golesh, who was hired by Auburn on Sunday.`\
 https://nytimes.com/athletic/6858432/2025/12/03/usf-brian-hartline-head-coaching-hire/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6858414/2025/12/03/kansas-state-chris-klieman-colli
 **Watch Jenny Slate and Indeed tackle the modern workplace**\
 `From skills and resumes to technology and wellbeing.`\
 https://nytimes.com/paidpost/2025-11-19/.html
-
-**Private Employers Cut Jobs in November, the Latest Sign of a Slowdown**\
-`Data from ADP, a payroll processor, is getting added attention because of delays in official statistics caused by the government shutdown.`\
-https://nytimes.com/2025/12/03/business/jobs-adp-economy.html
-
-**Fabergé Egg Fetches More Than $30 Million at Auction**\
-`The Winter Egg, one of 50 Easter eggs created by Fabergé for the Russian imperial family, sold in London on Tuesday for more than $30 million, breaking the auction record for a creation by the jeweler.`\
-https://nytimes.com/video/world/europe/100000010561415/faberge-winter-egg-auction.html
 

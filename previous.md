@@ -1,3 +1,19 @@
+**With Tensions Rising, Israel and Lebanon Expand Cease-Fire Talks**\
+`Diplomats from both countries joined a military-led committee overseeing a year-old truce as fears mounted of a renewed Israeli offensive against Hezbollah.`\
+https://nytimes.com/2025/12/03/world/middleeast/israel-lebanon-talks-ceasefire.html
+
+**Chanel Holds a Starry Fashion Show in the New York City Subway**\
+`ASAP Rocky, Jon Bon Jovi and Teyana Taylor hop aboard the C train as Matthieu Blazy brings a great Métiers d’Art show to New York.`\
+https://nytimes.com/2025/12/03/style/chanel-metiers-dart-new-york-subway.html
+
+**Bill Belichick, Robert Kraft named finalists for Pro Football Hall of Fame**\
+`Kraft and Belichick are joined by senior finalists Ken Anderson, Roger Craig, and L.C. Greenwood.`\
+https://nytimes.com/athletic/6856981/2025/12/03/nfl-hall-of-fame-finalist-belichick-kraft/
+
+**Lowetide: Why Ryan Nugent-Hopkins remains so important to the Oilers**\
+`Nugent-Hopkins rejoined the Oilers over the weekend after a three-week absence due to injury.`\
+https://nytimes.com/athletic/6853869/2025/12/03/ryan-nugent-hopkins-edmonton-oilers-stats/
+
 **USF expected to hire Ohio State OC Brian Hartline as head coach: Sources**\
 `Hartline would replace Alex Golesh, who was hired by Auburn on Sunday.`\
 https://nytimes.com/athletic/6858432/2025/12/03/usf-brian-hartline-head-coaching-hire/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/12/03/business/jobs-adp-economy.html
 **Fabergé Egg Fetches More Than $30 Million at Auction**\
 `The Winter Egg, one of 50 Easter eggs created by Fabergé for the Russian imperial family, sold in London on Tuesday for more than $30 million, breaking the auction record for a creation by the jeweler.`\
 https://nytimes.com/video/world/europe/100000010561415/faberge-winter-egg-auction.html
-
-**Cunha 'back' for Man Utd vs West Ham, Amorim says**\
-`The head coach also revealed there were "two doubts" for Thursday's game, but did not reveal who they were. `\
-https://nytimes.com/athletic/6858173/2025/12/03/matheus-cunha-manchester-united-west-ham-injury-amorim/
-
-**AFCON to be shown for free in UK for first time as Channel 4 secures TV rights**\
-`In the U.S, beIN Sports USA will be the primary broadcaster of the tournament that begins on December 21 in Morocco.`\
-https://nytimes.com/athletic/6858202/2025/12/03/afcon-news-where-to-watch-uk-channel-4/
-
-**The DealBook Summit has interviewed top leaders since 2012.**\
-`By Michael J. de la Merced and Sarah Kessler`\
-https://nytimes.com/live/2025/12/03/business/dealbook-summit-news/the-dealbook-summit-has-interviewed-top-leaders-since-2012
-
-**Why the Free Birth Movement’s Popularity Threatens Public Health**\
-`Having a baby without any medical help is the logical outcome of a centuries-long medical freedom movement.`\
-https://nytimes.com/2025/12/03/opinion/free-birth-danger.html
 
