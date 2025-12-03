@@ -1,3 +1,7 @@
+**Elden Campbell, 15-year NBA veteran and Clemson great, dies at 57**\
+`Campbell also played for the Hornets, Pistons, Nets and SuperSonics, and was a member of Detroit's 2004 NBA championship team.`\
+https://nytimes.com/athletic/6858129/2025/12/03/elden-campbell-dies-nba-lakers-clemson/
+
 **WNBA CBA proposal includes mandatory draft combine, new revenue-sharing model: Sources**\
 `The league proposed a draft combine requirement that ties participation to rookie salary.`\
 https://nytimes.com/athletic/6857443/2025/12/03/wnba-cba-proposal-draft-combine-salary/

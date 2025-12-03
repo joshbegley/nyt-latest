@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6857443/2025/12/03/wnba-cba-proposal-draft-combine-salary/
 
 **Elden Campbell, 15-year NBA veteran and Clemson great, dies at 57**\
-`Campbell also played for the Hornets, Pistons, Nets and Supersonics, and was a member of Detroit's 2004 NBA championship team.`\
+`Campbell also played for the Hornets, Pistons, Nets and SuperSonics, and was a member of Detroit's 2004 NBA championship team.`\
 https://nytimes.com/athletic/6858129/2025/12/03/elden-campbell-dies-nba-lakers-clemson/
 
 **What now for Penn State? Our emergency search committee proposes six names**\
