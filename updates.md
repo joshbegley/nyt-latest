@@ -1,3 +1,19 @@
+**MrBeast Says YouTube’s Content Has Less ‘Brain Rot’ Than TikTok**\
+`Jimmy Donaldson, who is known as MrBeast online, discussed the differences in content quality between YouTube and TikTok at The New York Times’s DealBook summit.`\
+https://nytimes.com/video/business/dealbook/100000010563504/mrbeast-tiktok-more-brain-rot-than-youtube.html
+
+**Netanyahu Would Visit N.Y.C. Despite Mamdani’s Arrest Threat**\
+`Zohran Mamdani, the mayor-elect of New York City, has pledged to honor the International Criminal Court’s arrest warrant for Prime Minister Benjamin Netanyahu of Israel.`\
+https://nytimes.com/video/us/100000010563468/benjamin-netanyahu-mamdani.html
+
+**The Briefing - Arsenal 2 Brentford 0: Mikel Merino a natural striker? More injury concerns**\
+`Arsenal re-opened a five point lead at the top of the Premier League thanks to a win over their London rivals Brentford.`\
+https://nytimes.com/athletic/6851574/2025/12/03/arsenal-2-brentford-0-merino/
+
+**Cap implications and Stars' deadline approach in wake of Tyler Seguin's injury**\
+`The Stars are eligible for some salary-cap relief under the league's rules covering long-term injuries.`\
+https://nytimes.com/athletic/6859215/2025/12/03/tyler-seguin-injury-salary-cap-trade-deadline/
+
 **Cap implications and Stars' deadline approach in wake of Seguin's injury**\
 `The Stars are eligible for some salary cap relief under the league’s rules covering long-term injuries.`\
 https://nytimes.com/athletic/6859215/2025/12/03/tyler-seguin-injury-salary-cap-trade-deadline/

@@ -1,5 +1,17 @@
-**Cap implications and Stars' deadline approach in wake of Seguin's injury**\
-`The Stars are eligible for some salary cap relief under the league’s rules covering long-term injuries.`\
+**MrBeast Says YouTube’s Content Has Less ‘Brain Rot’ Than TikTok**\
+`Jimmy Donaldson, who is known as MrBeast online, discussed the differences in content quality between YouTube and TikTok at The New York Times’s DealBook summit.`\
+https://nytimes.com/video/business/dealbook/100000010563504/mrbeast-tiktok-more-brain-rot-than-youtube.html
+
+**Netanyahu Would Visit N.Y.C. Despite Mamdani’s Arrest Threat**\
+`Zohran Mamdani, the mayor-elect of New York City, has pledged to honor the International Criminal Court’s arrest warrant for Prime Minister Benjamin Netanyahu of Israel.`\
+https://nytimes.com/video/us/100000010563468/benjamin-netanyahu-mamdani.html
+
+**The Briefing - Arsenal 2 Brentford 0: Mikel Merino a natural striker? More injury concerns**\
+`Arsenal re-opened a five point lead at the top of the Premier League thanks to a win over their London rivals Brentford.`\
+https://nytimes.com/athletic/6851574/2025/12/03/arsenal-2-brentford-0-merino/
+
+**Cap implications and Stars' deadline approach in wake of Tyler Seguin's injury**\
+`The Stars are eligible for some salary-cap relief under the league's rules covering long-term injuries.`\
 https://nytimes.com/athletic/6859215/2025/12/03/tyler-seguin-injury-salary-cap-trade-deadline/
 
 **Trump Returns to Gasoline as Fuel of Choice for Cars, Gutting Biden’s Climate Policy**\
@@ -25,12 +37,4 @@ https://nytimes.com/athletic/6858882/2025/12/03/nfl-week-14-picks-bears-packers/
 **‘Targeted and Unsafe’: Minnesota Somalis Reel After Trump’s Tirade**\
 `Most Somalis in the Twin Cities are U.S. citizens or legal permanent residents. The Trump administration has started a crackdown on Somalis who are subject to deportation.`\
 https://nytimes.com/2025/12/03/us/minnesota-somalis-trump-immigration.html
-
-**Did Spotify Just Call Me Old?**\
-`The wrinkle in this year’s Spotify Wrapped release was an estimate of the user’s “listening age.” Some wore it like a badge of honor. Others made excuses.`\
-https://nytimes.com/2025/12/03/style/spotify-wrapped-listening-age.html
-
-**Police Search for Assailant After Fatal Shooting at Maryland Casino**\
-`A man in his 20s was killed at the MGM National Harbor Hotel and Casino near Washington, D.C., the authorities said. The shooter is believed to have fled in a car.`\
-https://nytimes.com/2025/12/03/us/mgm-casino-shooting-suspect-maryland.html
 
