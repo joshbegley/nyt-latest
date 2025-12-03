@@ -1,3 +1,19 @@
+**The gapper is dead: Who killed the double and triple — and what can MLB do about it?**\
+`Armed with analytics, teams are playing outfielders deeper than ever, and doubles and triples are vanishing. Can a rule change fix this?`\
+https://nytimes.com/athletic/6856840/2025/12/03/mlb-vanishing-doubles-triples-rule-change/
+
+**Indiana football was irrelevant. Then a ‘cocky nerd’ arrived**\
+`Indiana’s head football coach has had a long, successful – and unconventional – career. What’s the secret to his magical run?`\
+https://nytimes.com/athletic/6852835/2025/12/03/indiana-football-coach-curt-cignetti-big-ten-championship/
+
+**The Steelers had a 'Baltimore problem.' Is there any reason to believe they fixed it?**\
+`The Ravens steamrolled the Steelers late last season. The teams meet again on Sunday, with control of the AFC North on the line.`\
+https://nytimes.com/athletic/6857116/2025/12/03/pittsburgh-steelers-run-defense-baltimore-ravens/
+
+**The New York Times International Edition in Print for Thursday, Dec. 4, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/12/03/todays-new-york-times-international-edition
+
 **A Prized Fabergé Egg Is Sold at Auction for More Than $30 Million**\
 `Fabergé is believed to have produced 50 of the ornate eggs for Russia’s czars. The Winter Egg, sold on Tuesday, is considered one of the jewelry house’s greatest creations.`\
 https://nytimes.com/2025/12/03/world/europe/faberge-winter-egg-auction.html
