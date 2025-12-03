@@ -1,3 +1,11 @@
+**The Hong Kong Fire: A Crisis in the National Security Era**\
+`The authorities quickly arrested critics demanding accountability, signaling an expansive use of the security law to silence dissent over nonpolitical tragedies.`\
+https://nytimes.com/2025/12/03/world/asia/hong-kong-fire-national-security-arrests.html
+
+**Republican Matt Van Epps Wins Tennessee House Race**\
+`Matt Van Epps claimed victory in a relatively tight special election for Tennessee’s Seventh Congressional District on Tuesday after an endorsement from President Trump.`\
+https://nytimes.com/video/us/elections/100000010561267/tennessee-special-election-winner-matt-van-epps.html
+
 **Pardon Undoes a Climactic Win in Drug Prosecutions Led by a Trump Ally**\
 `Emil Bove III’s work as a prosecutor, before he was a Trump lawyer and official, helped lead to the conviction of the Honduran ex-leader whom President Trump freed this week.`\
 https://nytimes.com/2025/12/03/nyregion/bove-trump-honduras-pardon.html
