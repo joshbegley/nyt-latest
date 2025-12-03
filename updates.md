@@ -1,3 +1,7 @@
+**Republican Wins Tennessee House Race After a Trump-Led Rescue Mission**\
+`Matt Van Epps fended off a Democrat to protect Republicans’ slim House majority, but the close margin in a red district sent the party a warning shot before the 2026 midterms.`\
+https://nytimes.com/2025/12/02/us/politics/tennessee-special-election-winner-matt-van-epps.html
+
 **A Sidewalk Encounter Between 2 Longtime Neighbors Ends in a Death**\
 `Dean Whetzel, 82, had known Dana Escoffier, 79, for decades. When Mr. Whetzel bumped into him near their Village apartments, Mr. Escoffier shoved him, the police said, and he fell to the ground.`\
 https://nytimes.com/2025/12/02/nyregion/homicide-west-village-seniors-neighbors.html
