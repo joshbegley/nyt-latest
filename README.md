@@ -1,3 +1,11 @@
+**Luka Dončić (personal reasons) won't play against the Raptors Thursday**\
+`Dončić is averaging 35.3 points, 8.9 rebounds and 8.9 assists in 16 games this season.`\
+https://nytimes.com/athletic/6859822/2025/12/03/luka-doncic-out-lakers-raptors/
+
+**For MrBeast, YouTube Still Rules, but It’s Not Everything**\
+`The social media star has created a vast and varied business empire with big expansion plans.`\
+https://nytimes.com/2025/12/03/business/dealbook/for-mrbeast-youtube-still-rules-but-its-not-everything.html
+
 **Ravens sign Mark Andrews to 3-year extension**\
 `Andrews, a 2018 third-round pick, is the Ravens' franchise leader in receptions, receiving yards and touchdown catches. `\
 https://nytimes.com/athletic/6859819/2025/12/03/ravens-mark-andrews-contract-extension/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/03/business/dealbook/netanyahu-says-he-is-undaunted-
 **Republican Anger Erupts at Johnson as Party Frets About Future**\
 `A small group of G.O.P. women have been among the most vocal in raising what their colleagues say is a broader frustration with the speaker.`\
 https://nytimes.com/2025/12/03/us/politics/republican-women-speaker-johnson.html
-
-**The Briefing - Leeds 3 Chelsea 1: A potentially season-saving system change, and a defensive shambles**\
-`Leeds United romped to a crucial win over Chelsea on a raucous night at Elland Road`\
-https://nytimes.com/athletic/6851575/2025/12/03/leeds-3-chelsea-1-farke-calvert-lewin/
-
-**Tiny Love Stories: ‘He Was 75. I Was 42.’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://nytimes.com/2025/12/03/style/tiny-modern-love-stories-he-was-75-i-was-42.html
 

@@ -1,3 +1,15 @@
+**Ravens sign Mark Andrews to 3-year extension**\
+`Andrews, a 2018 third-round pick, is the Ravens' franchise leader in receptions, receiving yards and touchdown catches. `\
+https://nytimes.com/athletic/6859819/2025/12/03/ravens-mark-andrews-contract-extension/
+
+**Separatist Forces Backed by U.A.E. Sweep Into Oil-Rich Yemen Region**\
+`The separatists were battling to secure the region’s oil fields, residents and the group’s officials said. Their swift advance could be a turning point in Yemen’s decade-long civil war.`\
+https://nytimes.com/2025/12/03/world/middleeast/yemen-militias-attack-oil-uae.html
+
+**Edwards questions whether Wolves were 'scared' during Forest defeat**\
+`Edwards has now failed to collect a point in his first three games in charge after taking over from Vitor Pereira.`\
+https://nytimes.com/athletic/6859870/2025/12/03/rob-edwards-wolves-nottingham-forest-reaction/
+
 **U.S. Military’s Boat Strikes Planning Takes on New Significance**\
 `The details could raise questions about who was responsible for a follow-up strike on Sept. 2 — the commander who ordered it or the defense secretary.`\
 https://nytimes.com/2025/12/03/us/politics/trump-boat-strikes-survivors.html
