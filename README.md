@@ -1,3 +1,7 @@
+**Newcastle, late goals and bad habits that are costing precious points**\
+`No team has lost more points from winning positions than Eddie Howe's side. It's a problem that needs fixing`\
+https://nytimes.com/athletic/6857100/2025/12/03/newcastle-united-late-goals/
+
 **Textor seeks to clarify comment he 'adjusted' transfer fees with Evangelos Marinakis**\
 `Textor said an "awkward translation" was to blame after suggesting transfer fees were "adjusted" when conducted with Marinakis.`\
 https://nytimes.com/athletic/6855143/2025/12/03/textor-marinakis-transfers-nottingham-forest-crystal-palace/
@@ -33,8 +37,4 @@ https://nytimes.com/issue/todayspaper/2025/12/03/todays-new-york-times
 **A Question Circling Sydney’s Beaches: Do We Still Need Shark Nets?**\
 `Critics say the nets harm marine life and aren’t the best way to keep swimmers safe. Recent shark attacks have complicated a plan to remove some of them.`\
 https://nytimes.com/2025/12/03/world/australia/sydney-shark-nets-australia.html
-
-**Brighton & Hove Albion Transfer DealSheet: What to expect in 2026**\
-`The Premier League’s ‘model club’ have gained a reputation as shrewd operators in the transfer market. So what next?`\
-https://nytimes.com/athletic/6776857/2025/12/03/brighton-transfer-dealsheet-2026/
 
