@@ -1,3 +1,7 @@
+**Remain Unresolved**\
+`Victor Barocas is a force to be reckoned with.`\
+https://nytimes.com/2025/12/02/crosswords/daily-puzzle-2025-12-03.html
+
 **Read the Ruling on Warrantless Arrests in Washington, D.C.**\
 `A federal district judge ruled on Tuesday in a case against the Department of Homeland Security over warrantless civil immigration arrests.`\
 https://nytimes.com/interactive/2025/12/02/us/dc-ruling-warrantless-arrests.html
@@ -29,12 +33,4 @@ https://nytimes.com/video/us/politics/100000010560959/trump-sleep-cabinet-meetin
 **James Solomon Beats Jim McGreevey, a Former Governor, in Jersey City**\
 `Mr. Solomon was elected mayor over Mr. McGreevey, who was hoping for a comeback after resigning in 2004 as New Jersey’s governor amid a sex scandal.`\
 https://nytimes.com/2025/12/02/nyregion/james-solomon-jim-mcgreevey-jersey-city.html
-
-**Lawsuits allege USA Gymnastics, SafeSport failed to prevent sexual abuse by coach**\
-`The former coach at the center of the cases was arrested in August on federal child pornography charges.`\
-https://nytimes.com/athletic/6855691/2025/12/02/usa-gymnastics-safesport-coach-abuse/
-
-**Trump Appears to Fight Sleep During Cabinet Meeting**\
-`President Trump began the meeting by criticizing media coverage about him showing signs of fatigue. Last month, he appeared to doze off during a meeting in the Oval Office.`\
-https://nytimes.com/2025/12/02/us/politics/trump-sleep-cabinet-meeting.html
 
