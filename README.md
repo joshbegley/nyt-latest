@@ -1,3 +1,11 @@
+**Air Force Pilot Ejects as Thunderbirds F-16 Crashes in California**\
+`The pilot was in stable condition after losing control of the fighter jet near Trona, Calif., about 180 miles northeast of Los Angeles.`\
+https://nytimes.com/2025/12/03/us/air-force-thunderbirds-crash.html
+
+**Giannis' future is in the spotlight again: Here's what we're hearing**\
+`This much is clear: If the Bucks don’t get better soon, the two-time MVP might very well push his way out of town.`\
+https://nytimes.com/athletic/6859373/2025/12/03/giannis-antetokounmpo-bucks-future/
+
 **Restaurant Review: Yamada**\
 `This week Ligaya Mishan, one of The New York Times’s chief restaurant critics, reviewed Yamada. This unshowy restaurant in Manhattan’s Chinatown exemplifies the subtle art of the most rarefied form of Japanese cooking.`\
 https://nytimes.com/video/dining/100000010562104/restaurant-review-yamada.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6859822/2025/12/03/luka-doncic-out-lakers-raptors/
 **For MrBeast, YouTube Still Rules, but It’s Not Everything**\
 `The social media star has created a vast and varied business empire with big expansion plans.`\
 https://nytimes.com/2025/12/03/business/dealbook/for-mrbeast-youtube-still-rules-but-its-not-everything.html
-
-**Ravens sign Mark Andrews to 3-year extension**\
-`Andrews, a 2018 third-round pick, is the Ravens' franchise leader in receptions, receiving yards and touchdown catches. `\
-https://nytimes.com/athletic/6859819/2025/12/03/ravens-mark-andrews-contract-extension/
-
-**Separatist Forces Backed by U.A.E. Sweep Into Oil-Rich Yemen Region**\
-`The separatists were battling to secure the region’s oil fields, residents and the group’s officials said. Their swift advance could be a turning point in Yemen’s decade-long civil war.`\
-https://nytimes.com/2025/12/03/world/middleeast/yemen-militias-attack-oil-uae.html
 
