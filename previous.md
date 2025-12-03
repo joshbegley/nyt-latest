@@ -1,3 +1,7 @@
+**Ghislaine Maxwell Says She Will Ask a Court to Free Her From Prison**\
+`In a court filing, a lawyer for the onetime companion of the disgraced financier Jeffrey Epstein said she would seek to be released from her minimum-security federal lockup.`\
+https://nytimes.com/2025/12/03/nyregion/ghislaine-maxwell-prison-petition.html
+
 **Ipswich valued at Championship record £350m after ownership restructure**\
 `The Arizona state pension fund that bought Ipswich in 2021 has sold a large chunk of its shares in the Suffolk-based club.`\
 https://nytimes.com/athletic/6858985/2025/12/03/ipswich-valuation-championship-ownership-restructure/
@@ -29,8 +33,4 @@ https://nytimes.com/live/2025/12/03/business/dealbook-summit-news/market-bubbles
 **BlackRock C.E.O. Calls Bitcoin an ‘Asset of Fear’**\
 `Larry Fink, the chief executive of BlackRock, dismissed concerns about the long-term value of cryptocurrency.`\
 https://nytimes.com/video/business/dealbook/100000010562120/blackrock-ceo-calls-bitcoin-an-asset-of-fear.html
-
-**Tunisia Arrests Opposition Figure in Widening Crackdown**\
-`The sentencing of Ayachi Hammami, a prominent human rights lawyer, was the latest sign of Tunisia’s backsliding into authoritarianism, say rights groups.`\
-https://nytimes.com/2025/12/03/world/africa/tunisia-arrest-hammami-crackdown.html
 

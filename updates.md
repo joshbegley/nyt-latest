@@ -1,3 +1,7 @@
+**Ghislaine Maxwell Says She Will Ask a Court to Free Her From Prison**\
+`In a court filing, a lawyer for the onetime companion of the disgraced financier Jeffrey Epstein said she would seek to be released from her minimum-security federal lockup.`\
+https://nytimes.com/2025/12/03/nyregion/ghislaine-maxwell-prison-petition.html
+
 **Ipswich valued at Championship record £350m after ownership restructure**\
 `The Arizona state pension fund that bought Ipswich in 2021 has sold a large chunk of its shares in the Suffolk-based club.`\
 https://nytimes.com/athletic/6858985/2025/12/03/ipswich-valuation-championship-ownership-restructure/
