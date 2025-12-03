@@ -1,3 +1,5 @@
+
+
 **Rebecca Lowe joining Fox's World Cup coverage as host: Sources**\
 `Lowe’s role with NBC on the Premier League, the Olympics and Kentucky Derby will remain unchanged.`\
 https://nytimes.com/athletic/6858107/2025/12/03/world-cup-fox-coverage-rebecca-lowe-nbc-sports/
