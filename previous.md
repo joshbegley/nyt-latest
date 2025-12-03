@@ -22,8 +22,8 @@ https://nytimes.com/athletic/6859373/2025/12/03/giannis-antetokounmpo-bucks-futu
 `This week Ligaya Mishan, one of The New York Times’s chief restaurant critics, reviewed Yamada. This unshowy restaurant in Manhattan’s Chinatown exemplifies the subtle art of the most rarefied form of Japanese cooking.`\
 https://nytimes.com/video/dining/100000010562104/restaurant-review-yamada.html
 
-**Bills claiming cornerback Darius Slay off waivers from Steelers**\
-`Slay is an insurance policy at cornerback for Buffalo.`\
+**Bills claim Darius Slay off waivers from Steelers, release Ja'Marcus Ingram**\
+`Slay, a six-time Pro Bowl selection, is an insurance policy at cornerback for Buffalo. He played 10 games with Pittsburgh this season.`\
 https://nytimes.com/athletic/6859897/2025/12/03/darius-slay-bills-claim-waivers-steelers/
 
 **Arteta frustrated at Arsenal's PL schedule after Mosquera and Rice injuries**\

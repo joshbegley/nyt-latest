@@ -1,3 +1,7 @@
+**Bills claim Darius Slay off waivers from Steelers, release Ja'Marcus Ingram**\
+`Slay, a six-time Pro Bowl selection, is an insurance policy at cornerback for Buffalo. He played 10 games with Pittsburgh this season.`\
+https://nytimes.com/athletic/6859897/2025/12/03/darius-slay-bills-claim-waivers-steelers/
+
 **Steve Cropper, Guitarist, Songwriter and a Shaper of Memphis Soul Music**\
 `As a member of Booker T. & the MG’s and as a producer, he played a pivotal role in the rise of Stax Records, a storied force in R&B in the 1960s and ’70s.`\
 https://nytimes.com/2025/12/03/arts/music/steve-cropper-dead.html
