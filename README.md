@@ -1,3 +1,7 @@
+**Last year’s DealBook Summit featured Bill Clinton, Sam Altman and Jeff Bezos.**\
+`Artificial intelligence, inflation and the incoming Trump administration were big topics of conversation.`\
+https://nytimes.com/live/2025/12/03/business/dealbook-summit-news/last-years-dealbook-summit-featured-bill-clinton-sam-altman-and-jeff-bezos
+
 **Who's surprised and who's disappointed so far this college basketball season?**\
 `Here's who surged and slipped through the first month of the season and what it means moving forward. `\
 https://nytimes.com/athletic/6856895/2025/12/03/college-basketball-kansas-arizona-kentucky/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/12/03/us/trump-news
 **What Could Make Russia Want Peace?**\
 `Economic and military pressures could force Russia’s hand. But its economy, though strained, is not strained enough to do that, analysts say. And President Vladimir V. Putin says Russia is winning the war.`\
 https://nytimes.com/2025/12/03/world/europe/russia-putin-ukraine-peace-deal.html
-
-**The teenagers out to prove that 'Europeans can play' America's game**\
-`Ahead of early signing day, The Athletic spoke to the international talents who will be playing college football next year. `\
-https://nytimes.com/athletic/6842970/2025/12/03/early-signing-day-nfl-academy-prospects/
 
