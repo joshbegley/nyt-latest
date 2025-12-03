@@ -1,3 +1,7 @@
+**Grealish is inspiring Everton to little moments of history**\
+`The on-loan midfielder is helping the club break new ground this season, including a first Premier League win at Bournemouth`\
+https://nytimes.com/athletic/6856886/2025/12/03/everton-bournemouth-jack-grealish/
+
 **Late Night on Trump’s ‘Social Media Blitzkrieg’**\
 `The president posted 160 times on Truth Social in one night, according to news reports. One host says his “thumbs were as swollen as his ankles.”`\
 https://nytimes.com/2025/12/03/arts/television/late-night-trump-truth-social.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/03/us/politics/warrantless-immigration-arrests-dc.ht
 **Ranking the 100 best players at World Cup 2026**\
 `Our writers attempt the impossible - ordering the best players who are in with a chance of being at the tournament in North America`\
 https://nytimes.com/athletic/6845174/2025/12/03/top-100-world-cup-players-ranked/
-
-**Ole Miss players accuse Lane Kiffin of lying in his farewell statement**\
-`Several Rebels players said Kiffin's statement that his players asked him to coach them in the College Football Playoff was false.`\
-https://nytimes.com/athletic/6857311/2025/12/03/ole-miss-players-accuse-lane-kiffin-lying/
 

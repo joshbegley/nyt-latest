@@ -1,3 +1,7 @@
+**Late Night on Trump’s ‘Social Media Blitzkrieg’**\
+`The president posted 160 times on Truth Social in one night, according to news reports. One host says his “thumbs were as swollen as his ankles.”`\
+https://nytimes.com/2025/12/03/arts/television/late-night-trump-truth-social.html
+
 **Spurs needed a reason to believe. Main character Cristian Romero gave them one**\
 `The real challenge now is to turn this from one good moment from Romero into something Spurs can build on.`\
 https://nytimes.com/athletic/6851839/2025/12/03/cristian-romero-goals-tottenham/
