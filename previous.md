@@ -1,3 +1,7 @@
+**ACC/SEC Women's Challenge schedule: South Carolina-Louisville headlines conference battle**\
+`South Carolina-Louisville, LSU-Duke and North Carolina-Texas stand out as must-see matchups in the third annual ACC/SEC Women's Challenge. `\
+https://nytimes.com/athletic/6856507/2025/12/03/acc-sec-womens-college-basketball-challenge-schedule-2025/
+
 **What to Expect at Today’s DealBook Summit**\
 `Scott Bessent, Erika Kirk, Gavin Newsom, Dario Amodei, Mary Barra, Alex Karp, MrBeast, Lai Ching-te, and Larry Fink are among the big names speaking.`\
 https://nytimes.com/2025/12/03/business/dealbook/lineup-dealbook-summit.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6854127/2025/12/03/javier-mascherano-inter-miami-ml
 **Are the Avalanche having the best start in recent NHL history?**\
 `At 19-1-6 through 26 games, Colorado already is in rare company and on pace to set an NHL record for points in a season.`\
 https://nytimes.com/athletic/6856816/2025/12/03/colorado-avalanche-nhl-record-points-wins/
-
-**In Finland, Lauri Markkanen and Keyonte George found the bond the Jazz needed**\
-`Keyonte George didn't know what to expect when he made his way to Finland. He only wanted to learn how to understand Lauri Markkanen.`\
-https://nytimes.com/athletic/6798591/2025/12/03/utah-jazz-lauri-markkanen-keyonte-george-finland-trip/
 
