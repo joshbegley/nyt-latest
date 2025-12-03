@@ -1,4 +1,4 @@
-**Heading Toward Midterms, the G.O.P. Continues to Slip**\
+**The G.O.P. Continues to Slouch Toward the Midterms**\
 `In recent elections, the pendulum has kept swinging, with Republicans now in its path.`\
 https://nytimes.com/2025/12/02/upshot/election-tennessee-republicans-democrats.html
 
