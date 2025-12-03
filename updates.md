@@ -1,3 +1,11 @@
+**Political lobbying and 13 re-airs of Miami-Notre Dame can't help Canes in Playoff rankings**\
+`The campaigning is hard to get Miami into the Playoff field. The Canes are still on the bubble. `\
+https://nytimes.com/athletic/6856899/2025/12/02/miami-hurricanes-college-football-playoff-rankings-reaction/
+
+**Smartmatic and Fox Urge Judge to Decide Defamation Case**\
+`The case centers on false vote-rigging claims broadcast by Fox News during the 2020 U.S. presidential election.`\
+https://nytimes.com/2025/12/02/business/media/smartmatic-fox-news-defamation-case.html
+
 **Key Bears-Packers matchup in Week 16 set for 8:20 p.m. ET kickoff**\
 `The times for the Dec. 20 matchups had not previously been announced.`\
 https://nytimes.com/athletic/6856892/2025/12/02/bears-packers-week-16-kickoff/
