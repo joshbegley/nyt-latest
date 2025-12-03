@@ -1,3 +1,11 @@
+**They Have a Historic Mission, and They’re Blowing It**\
+`Centrist governments are failing badly in Europe’s leading economies, setting the stage for a far-right sweep.`\
+https://nytimes.com/2025/12/03/opinion/europe-britain-france-germany-centrist.html
+
+**The New York Times in Print for Wednesday, Dec. 3, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/12/03/todays-new-york-times
+
 **A Question Circling Sydney’s Beaches: Do We Still Need Shark Nets?**\
 `Critics say the nets harm marine life and aren’t the best way to keep swimmers safe. Recent shark attacks have complicated a plan to remove some of them.`\
 https://nytimes.com/2025/12/03/world/australia/sydney-shark-nets-australia.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6823439/2025/12/03/footballers-energy-gels-nutritio
 **Mohamed Salah and Liverpool: What now?**\
 `If the Egyptian is to be a less regular starter this season, Arne Slot faces a significant test of his man-management skills`\
 https://nytimes.com/athletic/6854977/2025/12/03/mohamed-salah-liverpool-future-team/
-
-**The rebuilding of Luke Shaw – and why he is still so important to Man Utd**\
-`The defender is avoiding fitness issues – for now at least – and has been one of the club's most consistent performers`\
-https://nytimes.com/athletic/6854751/2025/12/03/luke-shaw-manchester-united-injury-record/
-
-**Player power at Real Madrid is bigger than ever. It's an extra challenge for Xabi Alonso**\
-`The Spanish club have always been known for their Galacticos, but the latest generation reveals new trends and pressures`\
-https://nytimes.com/athletic/6855602/2025/12/03/real-madrid-mbappe-bellingham-vinicius-alonso-player-power/
 
