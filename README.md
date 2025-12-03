@@ -1,3 +1,7 @@
+**Read the Ruling on Warrantless Arrests in Washington, D.C.**\
+`A federal district judge ruled on Tuesday in a case against the Department of Homeland Security over warrantless civil immigration arrests.`\
+https://nytimes.com/interactive/2025/12/02/us/dc-ruling-warrantless-arrests.html
+
 **Republican Wins Tennessee House Race After a Trump-Led Rescue Mission**\
 `Matt Van Epps fended off a Democrat to protect Republicans’ slim House majority, but the relatively close margin in a red district sent the party a warning shot before the 2026 midterms.`\
 https://nytimes.com/2025/12/02/us/politics/tennessee-special-election-winner-matt-van-epps.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6855691/2025/12/02/usa-gymnastics-safesport-coach-a
 **Trump Appears to Fight Sleep During Cabinet Meeting**\
 `President Trump began the meeting by criticizing media coverage about him showing signs of fatigue. Last month, he appeared to doze off during a meeting in the Oval Office.`\
 https://nytimes.com/2025/12/02/us/politics/trump-sleep-cabinet-meeting.html
-
-**Penultimate College Football Rankings are for the birds — here are some better ones**\
-`If you haven’t watched a lot of Vandy and have your doubts, its offense is No. 1 in the FBS in yards per play and No. 2 in points per drive.`\
-https://nytimes.com/athletic/6856956/2025/12/02/college-football-playoff-rankings-notre-dame-miami-vanderbilt-alabama/
 

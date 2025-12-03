@@ -1,4 +1,8 @@
 **Republican Wins Tennessee House Race After a Trump-Led Rescue Mission**\
+`Matt Van Epps fended off a Democrat to protect Republicans’ slim House majority, but the relatively close margin in a red district sent the party a warning shot before the 2026 midterms.`\
+https://nytimes.com/2025/12/02/us/politics/tennessee-special-election-winner-matt-van-epps.html
+
+**Republican Wins Tennessee House Race After a Trump-Led Rescue Mission**\
 `Matt Van Epps fended off a Democrat to protect Republicans’ slim House majority, but the close margin in a red district sent the party a warning shot before the 2026 midterms.`\
 https://nytimes.com/2025/12/02/us/politics/tennessee-special-election-winner-matt-van-epps.html
 
