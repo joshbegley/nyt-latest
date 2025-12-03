@@ -1,3 +1,7 @@
+**Is There a Better Way to Cut a Cake?**\
+`Rings, zigzags, slabs and elaborate geometric designs are giving savvy party hosts new methods for a more equitable slice.`\
+https://nytimes.com/2025/12/03/dining/cake-cutting.html
+
 **Scoop City: Differing seasons for Abdul Carter and Drake Maye**\
 `The No. 3 rookie's situation, how divided football fans are on the tush push and Mike Sando weighs in on the surprise MVP frontrunner`\
 https://nytimes.com/athletic/6859180/2025/12/03/abdul-carter-giants-drake-maye-patriots-tush-push/

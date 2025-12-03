@@ -1,3 +1,7 @@
+**Is There a Better Way to Cut a Cake?**\
+`Rings, zigzags, slabs and elaborate geometric designs are giving savvy party hosts new methods for a more equitable slice.`\
+https://nytimes.com/2025/12/03/dining/cake-cutting.html
+
 **Scoop City: Differing seasons for Abdul Carter and Drake Maye**\
 `The No. 3 rookie's situation, how divided football fans are on the tush push and Mike Sando weighs in on the surprise MVP frontrunner`\
 https://nytimes.com/athletic/6859180/2025/12/03/abdul-carter-giants-drake-maye-patriots-tush-push/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/03/us/politics/tennessee-special-election-trump-midt
 **Trump’s Xenophobic ‘Garbage’ Rant**\
 `Readers criticize President Trump’s tirade against Somali immigrants. Also: A cruel deportee deal; beyond tech bans.`\
 https://nytimes.com/2025/12/03/opinion/trump-somali-immigrants.html
-
-**Chateau Royale, Los Burritos Juárez, Bar Kabawa and Bartolo**\
-`Our first batch of brief starred restaurant reviews, from our contributing critics Mahira Rivers and Ryan Sutton.`\
-https://nytimes.com/2025/12/03/dining/chateau-royale-los-burritos-juarez-bar-kabawa-and-bartolo.html
 
