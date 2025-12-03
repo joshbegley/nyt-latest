@@ -2,6 +2,10 @@
 `Israel had agreed to open the Rafah crossing as part of the October cease-fire deal with Hamas but kept it closed. Egypt denied that the border would reopen soon.`\
 https://nytimes.com/2025/12/03/world/middleeast/israel-rafah-crossing-gaza-ceasefire.html
 
+**Instant grades for college football's 2025-26 head-coaching hires**\
+`In college football, you never really know whether a coaching hire is going to work. But it's never too early to talk about fit.`\
+https://nytimes.com/athletic/6827060/2025/12/03/college-football-coaching-carousel-grades/
+
 **Last year’s DealBook Summit featured Bill Clinton, Sam Altman and Jeff Bezos.**\
 `Artificial intelligence, inflation and the incoming Trump administration were big topics of conversation.`\
 https://nytimes.com/live/2025/12/03/business/dealbook-summit-news/last-years-dealbook-summit-featured-bill-clinton-sam-altman-and-jeff-bezos
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000010561612/hegseth-boat-strikes-venez
 **Anthony Edwards saves Wolves from themselves, then laments his and team's focus**\
 `Why did Minnesota need overtime to stave off the 3-18 Pelicans? "It seems like we don't want to play these games," Edwards said.`\
 https://nytimes.com/athletic/6857207/2025/12/03/anthony-edwards-timberwolves-pelicans/
-
-**Trump Administration Live Updates: Federal Immigration Operation Starts in New Orleans**\
-``\
-https://nytimes.com/live/2025/12/03/us/trump-news
 

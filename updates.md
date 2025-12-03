@@ -1,3 +1,11 @@
+**Israel Says a Gaza Border Will Reopen, but Only for Palestinians to Leave**\
+`Israel had agreed to open the Rafah crossing as part of the October cease-fire deal with Hamas but kept it closed. Egypt denied that the border would reopen soon.`\
+https://nytimes.com/2025/12/03/world/middleeast/israel-rafah-crossing-gaza-ceasefire.html
+
+**Last year’s DealBook Summit featured Bill Clinton, Sam Altman and Jeff Bezos.**\
+`Artificial intelligence, inflation and the incoming Trump administration were big topics of conversation.`\
+https://nytimes.com/live/2025/12/03/business/dealbook-summit-news/last-years-dealbook-summit-featured-bill-clinton-sam-altman-and-jeff-bezos
+
 **Who's surprised and who's disappointed so far this college basketball season?**\
 `Here's who surged and slipped through the first month of the season and what it means moving forward. `\
 https://nytimes.com/athletic/6856895/2025/12/03/college-basketball-kansas-arizona-kentucky/
