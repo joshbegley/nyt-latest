@@ -1,3 +1,15 @@
+**Scoop City: Differing seasons for Abdul Carter and Drake Maye**\
+`The No. 3 rookie's situation, how divided football fans are on the tush push and Mike Sando weighs in on the surprise MVP frontrunner`\
+https://nytimes.com/athletic/6859180/2025/12/03/abdul-carter-giants-drake-maye-patriots-tush-push/
+
+**Clippers' Lawrence Frank: Chris Paul isn't the 'scapegoat' for awful start**\
+`Paul and Frank met for three hours in Atlanta and shortly after the meeting ended, Paul announced the Clippers were sending him home. `\
+https://nytimes.com/athletic/6859109/2025/12/03/clippers-chris-paul-lawrence-frank-part-ways/
+
+**Palantir’s Chief Defends His Company’s Work With ICE**\
+`Alex Karp also said he thought President Trump had “performed” on issues he cared about.`\
+https://nytimes.com/2025/12/03/business/dealbook/palantir-alex-karp-ice-trump.html
+
 **NASCAR executive's role in charter deals under scrutiny on Day 3 of trial**\
 `NASCAR VP Scott Prime, an architect of the sport's charter system, was under scrutiny for his communications around the 2024 negotiations.`\
 https://nytimes.com/athletic/6858844/2025/12/03/nascar-michael-jordan-trial-lawsuit-scott-prime-bob-jenkins/
