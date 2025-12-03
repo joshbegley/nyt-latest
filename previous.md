@@ -1,3 +1,7 @@
+**Michele Kang launches institute with U.S. Soccer to advance women's sports research**\
+`Kang previously announced two separate investments in U.S. Soccer totaling $55 million. `\
+https://nytimes.com/athletic/6856400/2025/12/03/kang-womens-institute-us-soccer/
+
 **Ubben: Why Ole Miss is still positioned to win post-Lane Kiffin**\
 `Lane Kiffin didn't leave us for lack of resources,” the head of Ole Miss' collective said.`\
 https://nytimes.com/athletic/6857392/2025/12/03/ole-miss-future-lane-kiffin-pete-golding/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6857419/2025/12/03/troy-stecher-maple-leafs-last-ch
 **Welcome to the Gabbatoir**\
 `Too many touring sides have wilted at the hostile Gabba as the heat, humidity and a notoriously hostile home crowd took their toll`\
 https://nytimes.com/athletic/6831233/2025/12/03/ashes-gabbatoir-australia-england/
-
-**Where would the Blue Jackets be without Charlie Coyle and Miles Wood? It's a scary thought**\
-`Veteran forwards Coyle and Wood have been very important players for the Blue Jackets this season.`\
-https://nytimes.com/athletic/6855039/2025/12/03/blue-jackets-charlie-coyle-miles-wood/
 

@@ -1,3 +1,7 @@
+**Michele Kang launches institute with U.S. Soccer to advance women's sports research**\
+`Kang previously announced two separate investments in U.S. Soccer totaling $55 million. `\
+https://nytimes.com/athletic/6856400/2025/12/03/kang-womens-institute-us-soccer/
+
 **Ubben: Why Ole Miss is still positioned to win post-Lane Kiffin**\
 `Lane Kiffin didn't leave us for lack of resources,” the head of Ole Miss' collective said.`\
 https://nytimes.com/athletic/6857392/2025/12/03/ole-miss-future-lane-kiffin-pete-golding/
