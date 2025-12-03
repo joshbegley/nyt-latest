@@ -1,3 +1,7 @@
+**‘The President Has the Final Word’ on Pardons, U.S. Attorney Says**\
+`Jay Clayton, Manhattan’s top federal prosecutor, had called his office’s drug prosecution of an ex-president of Honduras a success. President Trump decided to free him this week.`\
+https://nytimes.com/2025/12/02/nyregion/sdny-clayton-honduras-pardon.html
+
 **Trump to Close Voice of America’s Overseas Offices and Radio Stations**\
 `The push to close the offices appears to contradict a federal judge’s order from April, which required Trump officials to resume operations at V.O.A.`\
 https://nytimes.com/2025/12/02/us/politics/trump-voice-of-america-overseas-offices.html
