@@ -1,3 +1,15 @@
+**Two U.K. Women’s Groups Ban Transgender Girls and Women**\
+`The Girlguiding organization and the Women’s Institute both said a court ruling from earlier this year had forced their hands.`\
+https://nytimes.com/2025/12/03/world/europe/uk-trans-ban-womens-institute-girl-guides.html
+
+**Why the World Cup draw is the focal point of the sports year: MoneyCall**\
+`More in this week's sports business newsletter: Ode to the '85 Bears' signature cultural moment, Lane Kiffin, Michele Kang and Curt Cignetti`\
+https://nytimes.com/athletic/6858988/2025/12/03/world-cup-draw-infantino-trump-moneycall/
+
+**In remarkable run with Wild, Jesper Wallstedt showing Oilers what they're missing**\
+`In the 2021 NHL Draft, Edmonton traded away the pick that Minnesota went on to use on their standout rookie goalie.`\
+https://nytimes.com/athletic/6857549/2025/12/03/wild-jesper-wallstedt-shutouts/
+
 **Ghislaine Maxwell Says She Will Ask a Court to Free Her From Prison**\
 `In a court filing, a lawyer for the onetime companion of the disgraced financier Jeffrey Epstein said she would seek to be released from her minimum-security federal lockup.`\
 https://nytimes.com/2025/12/03/nyregion/ghislaine-maxwell-prison-petition.html
@@ -21,16 +33,4 @@ https://nytimes.com/video/us/politics/100000010561883/nyt-dealbook-bessent-treas
 **After ‘Evolving’ on Tariffs, Bessent Defends Their Merits**\
 `The Treasury secretary said that import levies were not fueling inflation.`\
 https://nytimes.com/2025/12/03/business/dealbook/scott-bessent-tariffs-trump.html
-
-**The Heartbreak Blues We’re Loving**\
-`Critic Jon Caramanica on country star Ella Langley’s new single.`\
-https://nytimes.com/video/podcasts/100000010560346/the-heartbreak-blues-were-loving.html
-
-**Bubbles are front of mind for speakers at the DealBook Summit.**\
-`Many market analysts have expressed concern about private credit loans, including fears of a future crisis should the market crumble.`\
-https://nytimes.com/live/2025/12/03/business/dealbook-summit-news/market-bubbles-artificial-intelligence
-
-**BlackRock C.E.O. Calls Bitcoin an ‘Asset of Fear’**\
-`Larry Fink, the chief executive of BlackRock, dismissed concerns about the long-term value of cryptocurrency.`\
-https://nytimes.com/video/business/dealbook/100000010562120/blackrock-ceo-calls-bitcoin-an-asset-of-fear.html
 

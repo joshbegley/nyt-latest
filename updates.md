@@ -1,3 +1,15 @@
+**Two U.K. Women’s Groups Ban Transgender Girls and Women**\
+`The Girlguiding organization and the Women’s Institute both said a court ruling from earlier this year had forced their hands.`\
+https://nytimes.com/2025/12/03/world/europe/uk-trans-ban-womens-institute-girl-guides.html
+
+**Why the World Cup draw is the focal point of the sports year: MoneyCall**\
+`More in this week's sports business newsletter: Ode to the '85 Bears' signature cultural moment, Lane Kiffin, Michele Kang and Curt Cignetti`\
+https://nytimes.com/athletic/6858988/2025/12/03/world-cup-draw-infantino-trump-moneycall/
+
+**In remarkable run with Wild, Jesper Wallstedt showing Oilers what they're missing**\
+`In the 2021 NHL Draft, Edmonton traded away the pick that Minnesota went on to use on their standout rookie goalie.`\
+https://nytimes.com/athletic/6857549/2025/12/03/wild-jesper-wallstedt-shutouts/
+
 **Ghislaine Maxwell Says She Will Ask a Court to Free Her From Prison**\
 `In a court filing, a lawyer for the onetime companion of the disgraced financier Jeffrey Epstein said she would seek to be released from her minimum-security federal lockup.`\
 https://nytimes.com/2025/12/03/nyregion/ghislaine-maxwell-prison-petition.html
