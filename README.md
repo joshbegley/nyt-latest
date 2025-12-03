@@ -1,3 +1,7 @@
+**Hansi Flick has a new solution for Barcelona's defence. But will he need more?**\
+`La Liga's defending champions still look short of options at the back, despite a clever move from their German coach`\
+https://nytimes.com/athletic/6857767/2025/12/03/barcelona-la-liga-atletico-hansi-flick-martin/
+
 **In a stunning, late-night move, Clippers send Chris Paul packing**\
 `The Clippers announced the surprise move in the middle of the night while in Atlanta amid a road trip.`\
 https://nytimes.com/athletic/6857787/2025/12/03/clippers-chris-paul-sent-home/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6857665/2025/12/03/texans-vs-chiefs-stream-how-to-w
 **Manchester City are serious title contenders displaying unserious credentials**\
 `Collapses against Leeds and Fulham could have been catastrophic. That they escaped with maximum points has to be seen as a learning curve`\
 https://nytimes.com/athletic/6856433/2025/12/03/man-city-conceding-guardiola-concerns/
-
-**Newcastle, late goals and bad habits that are costing precious points**\
-`No team has lost more points from winning positions than Eddie Howe's side. It's a problem that needs fixing`\
-https://nytimes.com/athletic/6857100/2025/12/03/newcastle-united-late-goals/
 
