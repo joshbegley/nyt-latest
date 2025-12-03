@@ -1,3 +1,11 @@
+**Luka Dončić (personal reasons) won't play against the Raptors Thursday**\
+`Dončić is averaging 35.3 points, 8.9 rebounds and 8.9 assists in 16 games this season.`\
+https://nytimes.com/athletic/6859822/2025/12/03/luka-doncic-out-lakers-raptors/
+
+**For MrBeast, YouTube Still Rules, but It’s Not Everything**\
+`The social media star has created a vast and varied business empire with big expansion plans.`\
+https://nytimes.com/2025/12/03/business/dealbook/for-mrbeast-youtube-still-rules-but-its-not-everything.html
+
 **Ravens sign Mark Andrews to 3-year extension**\
 `Andrews, a 2018 third-round pick, is the Ravens' franchise leader in receptions, receiving yards and touchdown catches. `\
 https://nytimes.com/athletic/6859819/2025/12/03/ravens-mark-andrews-contract-extension/

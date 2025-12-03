@@ -1,4 +1,8 @@
-**Luka Dončić (personal reasons) won't play against the Raptors Thursday**\
+**Hoping for rebound, Rays sign Cedric Mullins to one-year deal: Source**\
+`The Tampa Bay Rays secured their likely starting center fielder on Wednesday when they signed Cedric Mullins to a one-year deal, The Athletic&#8217;s Ken Rosenthal confirmed.`\
+https://nytimes.com/athletic/6837810/2025/12/03/mlb-cedric-mullins-free-agency-signing-rays/
+
+**Luka Dončić won't play against the Raptors Thursday due to personal reasons**\
 `Dončić is averaging 35.3 points, 8.9 rebounds and 8.9 assists in 16 games this season.`\
 https://nytimes.com/athletic/6859822/2025/12/03/luka-doncic-out-lakers-raptors/
 
@@ -18,7 +22,7 @@ https://nytimes.com/2025/12/03/world/middleeast/yemen-militias-attack-oil-uae.ht
 `Edwards has now failed to collect a point in his first three games in charge after taking over from Vitor Pereira.`\
 https://nytimes.com/athletic/6859870/2025/12/03/rob-edwards-wolves-nottingham-forest-reaction/
 
-**U.S. Military’s Boat Strikes Planning Takes on New Significance**\
+**U.S. Military’s Boat Strikes Planning Takes On New Significance**\
 `The details could raise questions about who was responsible for a follow-up strike on Sept. 2 — the commander who ordered it or the defense secretary.`\
 https://nytimes.com/2025/12/03/us/politics/trump-boat-strikes-survivors.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6859354/2025/12/03/robert-kraft-bill-belichick-hall
 **Netanyahu Says He Is Undaunted by Legal Woes at Home and Threats of Arrest by New York’s Mayor-Elect**\
 `Netanyahu says he is undaunted by Mamdani arrest threats or domestic legal woes`\
 https://nytimes.com/2025/12/03/business/dealbook/netanyahu-says-he-is-undaunted-by-legal-woes-at-home-and-threats-of-arrest-by-new-yorks-mayor-elect.html
-
-**Republican Anger Erupts at Johnson as Party Frets About Future**\
-`A small group of G.O.P. women have been among the most vocal in raising what their colleagues say is a broader frustration with the speaker.`\
-https://nytimes.com/2025/12/03/us/politics/republican-women-speaker-johnson.html
 
