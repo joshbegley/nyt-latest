@@ -1,3 +1,7 @@
+**After Decades in Combat, a SEAL Suddenly Comes Under Scrutiny**\
+`Adm. Frank M. Bradley will soon face questions from lawmakers, as Republicans and Democrats express concerns about a Sept. 2 attack on a boat in the Caribbean.`\
+https://nytimes.com/2025/12/02/us/politics/admiral-bradley-boat-strikes.html
+
 **Court Puts Hold on Decision Requiring Religious Exemptions to Vaccine Mandate**\
 `The West Virginia Supreme Court said that the vaccine mandate for children would remain while it considered the case.`\
 https://nytimes.com/2025/12/02/us/court-puts-hold-on-decision-requiring-religious-exemptions-to-vaccine-mandate.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/02/us/politics/trump-travel-ban-citizenship-green-ca
 **Miley Cyrus and Maxx Morando Are Engaged**\
 `The Grammy Award-winning singer debuted a 14-karat gold, cushion-set natural diamond ring while posing with her longtime boyfriend, Mr. Morando, at the Los Angeles premiere of “Avatar: Fire and Ash.”`\
 https://nytimes.com/2025/12/02/style/miley-cyrus-engagement-maxx-morando.html
-
-**Lawsuit Challenging Border Patrol’s Use of Force in Chicago Area Is Dropped**\
-`The plaintiffs accused federal agents of “a pattern of extreme brutality.” Many agents have left the region, so lawyers said the suit was no longer needed.`\
-https://nytimes.com/2025/12/02/us/border-patrol-chicago.html
 
