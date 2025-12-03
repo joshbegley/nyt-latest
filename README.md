@@ -1,3 +1,11 @@
+**NASCAR executive's role in charter deals under scrutiny on Day 3 of trial**\
+`NASCAR VP Scott Prime, an architect of the sport's charter system, was under scrutiny for his communications around the 2024 negotiations.`\
+https://nytimes.com/athletic/6858844/2025/12/03/nascar-michael-jordan-trial-lawsuit-scott-prime-bob-jenkins/
+
+**The Class of 2026's quarterback carousel is slowing down: Where did all the flips end up?**\
+`Since the beginning of September, 23 quarterbacks have decommitted from FBS programs, including 11 pledged to P4 schools.`\
+https://nytimes.com/athletic/6858183/2025/12/03/college-football-quarterback-recruiting-flips/
+
 **Shedeur Sanders on sideline spat with Jerry Jeudy: 'We resolved that'**\
 `Jeudy has yet to get on the same page with Sanders in the quarterback's two starts for Cleveland. `\
 https://nytimes.com/athletic/6859029/2025/12/03/browns-shedeur-sanders-jerry-jeudy-sideline-exchange/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6827060/2025/12/03/college-football-coaching-carous
 **Taiwan’s President Warns of Growing Chinese Military Aggression**\
 `In a pre-taped interview for The New York Times’s Dealbook summit, Taiwan’s president, Lai Ching-te, spoke about China’s continuing threat to Taiwan’s sovereignty and the country’s relationship to the U.S.`\
 https://nytimes.com/video/business/dealbook/100000010562581/taiwan-president-lai-ching-te-dealbook.html
-
-**Stakes High, Europe Races to Save Its Financing Plan for Ukraine**\
-`The European Union has a proposal for how to turn Russian frozen assets into a giant loan for Ukraine. If it fails, it could further weaken Europe’s global image.`\
-https://nytimes.com/2025/12/03/world/europe/ukraine-russia-european-union-frozen-assets.html
-
-**NFL Week 14 confidence picks: Why you should pick the Jags to beat the Colts**\
-`KC Joyner gives his straight-up and against-the-spread picks for every Week 14 NFL game.`\
-https://nytimes.com/athletic/6857986/2025/12/03/nfl-week-14-confidence-picks-jaguars-colts/
 
