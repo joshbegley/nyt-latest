@@ -2,7 +2,7 @@
 `Carli Skaggs was testifying for a second time in trial, this time as part of the defense, which officially began Monday.`\
 https://nytimes.com/athletic/6857348/2025/12/02/tyler-skaggs-widow-testifies-angels-trial/
 
-**The G.O.P. Continues to Slouch Toward the Midterms**\
+**Heading Toward Midterms, the G.O.P. Continues to Slip**\
 `In recent elections, the political pendulum has kept swinging, with Republicans now in its path.`\
 https://nytimes.com/2025/12/02/upshot/election-tennessee-republicans-democrats.html
 
