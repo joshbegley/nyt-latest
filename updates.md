@@ -1,3 +1,7 @@
+**Barca's Olmo dislocates shoulder scoring goal, expected to miss a month**\
+`Olmo injured his left shoulder during the 3-1 victory over Atletico Madrid in La Liga on Tuesday.`\
+https://nytimes.com/athletic/6858055/2025/12/03/barcelona-dani-olmo-injury-dislocated-shoulder/
+
 **Macy’s Raises Sales Forecast Again as Shoppers Prove Resilient**\
 `A turnaround at the largest department store chain in the United States is progressing, with consumers turning out despite the effects of tariffs and economic uncertainty.`\
 https://nytimes.com/2025/12/03/world/europe/macys-retail-spending-economy.html
