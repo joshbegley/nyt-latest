@@ -1,3 +1,7 @@
+**Barca's Olmo dislocates shoulder scoring goal, expected to miss a month**\
+`Olmo injured his left shoulder during the 3-1 victory over Atletico Madrid in La Liga on Tuesday.`\
+https://nytimes.com/athletic/6858055/2025/12/03/barcelona-dani-olmo-injury-dislocated-shoulder/
+
 **Macy’s Raises Sales Forecast Again as Shoppers Prove Resilient**\
 `A turnaround at the largest department store chain in the United States is progressing, with consumers turning out despite the effects of tariffs and economic uncertainty.`\
 https://nytimes.com/2025/12/03/world/europe/macys-retail-spending-economy.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6857515/2025/12/03/wild-win-oilers-jesper-wallstedt
 **49ers mailbag: Looking ahead to Fred Warner’s possible return, free agency and the draft**\
 `Also among this week's questions: When will Jacob Cowing practice, and will free agents be scared off by the 49ers' injury issues?`\
 https://nytimes.com/athletic/6856697/2025/12/03/49ers-fred-warner-injury-return-mailbag/
-
-**Lakers first-quarter evaluation: What is their identity?**\
-`The Los Angeles Lakers are 15-5. Where are they headed as the season progresses and their identity evolves?`\
-https://nytimes.com/athletic/6856352/2025/12/03/lakers-first-quarter-season-evaluation-team-identity/
 
