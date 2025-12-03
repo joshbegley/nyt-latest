@@ -1,40 +1,40 @@
-**Where Floodwaters Turned Piles of Timber Into Floating Battering Rams**\
-`Many logs became forces of destruction in Indonesia last week, in a sign that deforestation compounded the devastation wrought by a cyclone.`\
-https://nytimes.com/2025/12/03/world/asia/indonesia-sumatra-floods-timber-logs.html
+**Ubben: Why Ole Miss is still positioned to win post-Lane Kiffin**\
+`Lane Kiffin didn't leave us for lack of resources,” the head of Ole Miss' collective said.`\
+https://nytimes.com/athletic/6857392/2025/12/03/ole-miss-future-lane-kiffin-pete-golding/
 
-**Inside Venezuela**\
-`We explain how President Nicolás Maduro is responding to threats from the Trump administration.`\
-https://nytimes.com/2025/12/03/briefing/inside-venezuela.html
+**Another Jesper Wallstedt shutout, big game by Jonas Brodin: Wild takeaways**\
+`Minnesota's roll continued with a 1-0 victory over Edmonton at Rogers Place.`\
+https://nytimes.com/athletic/6857515/2025/12/03/wild-win-oilers-jesper-wallstedt-jonas-brodin/
 
-**Giants GM Joe Schoen struggles to do the impossible: defend the team he's built**\
-`“Have I screwed up, and have I made mistakes? Absolutely,” Schoen said Tuesday.`\
-https://nytimes.com/athletic/6857106/2025/12/03/ny-giants-joe-schoen-mistakes-roster/
+**49ers mailbag: Looking ahead to Fred Warner’s possible return, free agency and the draft**\
+`Also among this week's questions: When will Jacob Cowing practice, and will free agents be scared off by the 49ers' injury issues?`\
+https://nytimes.com/athletic/6856697/2025/12/03/49ers-fred-warner-injury-return-mailbag/
 
-**TAFC – Haaland: 0-100 in record time, ranking best players going to the World Cup**\
-`Today in TAFC: Will Haaland reach EPL goals record? We rank the top 100 players going to the World Cup, and how draw venue became political`\
-https://nytimes.com/athletic/6857729/2025/12/03/erling-haaland-100-premier-league-goals/
+**Lakers first-quarter evaluation: What is their identity?**\
+`The Los Angeles Lakers are 15-5. Where are they headed as the season progresses and their identity evolves?`\
+https://nytimes.com/athletic/6856352/2025/12/03/lakers-first-quarter-season-evaluation-team-identity/
 
-**Ranking the top 10 college football stadiums in the Group of 6 conferences**\
-`College football has plenty of hidden-gem stadiums outside the Power 4 conferences. Here are our favorites in the Group of 6.`\
-https://nytimes.com/athletic/6850880/2025/12/03/college-football-stadium-rankings-best-group-of-6/
+**Haywoode Workman's next act after the NBA? Creating an HBCU basketball tournament**\
+`After playing then officiating in the NBA for more than 20 seasons, Workman kept his mind on hoops but turned his focus to helping HBCUs.`\
+https://nytimes.com/athletic/6849631/2025/12/03/hbcu-basketball-tournament-haywoode-workman-nba-player-referee/
 
-**WNBA mock expansion draft: Who will Toronto Tempo and Portland Fire select?**\
-`Our experts make the picks for the WNBA's two newest teams. A four-time WNBA All-Star is among the players on the move. `\
-https://nytimes.com/athletic/6838510/2025/12/03/wnba-expansion-draft-portland-toronto-expert-picks/
+**Brighton, Kaoru Mitoma, and an international controversy caused by a playing card**\
+`Brighton have learned the hard way that there are challenges for clubs with a cosmopolitan squad attempting to grow a global audience`\
+https://nytimes.com/athletic/6855737/2025/12/03/brighton-mitoma-japan-china/
 
-**How Cade Horton's emergence eases the Cubs' starting pitching concerns**\
-`The presence of Horton is a luxury Chicago lacked when it was shopping for starting pitching nearly a decade ago.`\
-https://nytimes.com/athletic/6856918/2025/12/03/chicago-cubs-cade-horton-pitching-emergence/
+**FIFA World Cup 2026: Which big-name players are at risk of missing out?**\
+`The 2026 World Cup will be the first to feature 48 national teams, but that doesn't mean some big name players won't be missing out...`\
+https://nytimes.com/athletic/6855294/2025/12/03/world-cup-players-missing/
 
-**Son to return to Tottenham for fan farewell against Slavia Prague**\
-`Son, 33, left Spurs to join Los Angeles FC over the summer.`\
-https://nytimes.com/athletic/6855573/2025/12/03/heung-min-son-return-tottenham-mls/
+**Troy Stecher thought the Leafs could be his last chance: ‘What do you have to lose?’**\
+`Stecher has been a revelation for the Leafs, an out-of-nowhere waiver-claim surprise who has sparked a team that needed it.`\
+https://nytimes.com/athletic/6857419/2025/12/03/troy-stecher-maple-leafs-last-chance/
 
-**ACC/SEC Women's Challenge schedule: South Carolina-Louisville headlines conference battle**\
-`South Carolina-Louisville, LSU-Duke and North Carolina-Texas stand out as must-see matchups in the third annual ACC/SEC Women's Challenge. `\
-https://nytimes.com/athletic/6856507/2025/12/03/acc-sec-womens-college-basketball-challenge-schedule-2025/
+**Welcome to the Gabbatoir**\
+`Too many touring sides have wilted at the hostile Gabba as the heat, humidity and a notoriously hostile home crowd took their toll`\
+https://nytimes.com/athletic/6831233/2025/12/03/ashes-gabbatoir-australia-england/
 
-**What to Expect at Today’s DealBook Summit**\
-`Scott Bessent, Erika Kirk, Gavin Newsom, Dario Amodei, Mary Barra, Alex Karp, MrBeast, Lai Ching-te, and Larry Fink are among the big names speaking.`\
-https://nytimes.com/2025/12/03/business/dealbook/lineup-dealbook-summit.html
+**Where would the Blue Jackets be without Charlie Coyle and Miles Wood? It's a scary thought**\
+`Veteran forwards Coyle and Wood have been very important players for the Blue Jackets this season.`\
+https://nytimes.com/athletic/6855039/2025/12/03/blue-jackets-charlie-coyle-miles-wood/
 

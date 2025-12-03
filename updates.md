@@ -1,3 +1,11 @@
+**Where Floodwaters Turned Piles of Timber Into Floating Battering Rams**\
+`Many logs became forces of destruction in Indonesia last week, in a sign that deforestation compounded the devastation wrought by a cyclone.`\
+https://nytimes.com/2025/12/03/world/asia/indonesia-sumatra-floods-timber-logs.html
+
+**Inside Venezuela**\
+`We explain how President Nicolás Maduro is responding to threats from the Trump administration.`\
+https://nytimes.com/2025/12/03/briefing/inside-venezuela.html
+
 **Giants GM Joe Schoen struggles to do the impossible: defend the team he's built**\
 `“Have I screwed up, and have I made mistakes? Absolutely,” Schoen said Tuesday.`\
 https://nytimes.com/athletic/6857106/2025/12/03/ny-giants-joe-schoen-mistakes-roster/
