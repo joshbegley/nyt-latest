@@ -1,3 +1,11 @@
+**A Drunk Raccoon Passed Out in the Bathroom of a Virginia Liquor Store**\
+`Don’t worry, it’s OK.`\
+https://nytimes.com/2025/12/03/us/drunk-raccoon-virginia-liquor-store.html
+
+**Tariffs Need a More Level Playing Field, G.M. C.E.O. Says**\
+`At the DealBook Summit, General Motors‘ chief executive, Mary Barra, said that there needs to be a more level playing field in regards to tariffs for automakers in the global market.`\
+https://nytimes.com/video/us/100000010561955/general-motors-mary-barra.html
+
 **Is There a Better Way to Cut a Cake?**\
 `Rings, zigzags, slabs and elaborate geometric designs are giving savvy party hosts new methods for a more equitable slice.`\
 https://nytimes.com/2025/12/03/dining/cake-cutting.html

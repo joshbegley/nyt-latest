@@ -1,3 +1,11 @@
+**A Drunk Raccoon Passed Out in the Bathroom of a Virginia Liquor Store**\
+`Don’t worry, it’s OK.`\
+https://nytimes.com/2025/12/03/us/drunk-raccoon-virginia-liquor-store.html
+
+**Tariffs Need a More Level Playing Field, G.M. C.E.O. Says**\
+`At the DealBook Summit, General Motors‘ chief executive, Mary Barra, said that there needs to be a more level playing field in regards to tariffs for automakers in the global market.`\
+https://nytimes.com/video/us/100000010561955/general-motors-mary-barra.html
+
 **Is There a Better Way to Cut a Cake?**\
 `Rings, zigzags, slabs and elaborate geometric designs are giving savvy party hosts new methods for a more equitable slice.`\
 https://nytimes.com/2025/12/03/dining/cake-cutting.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6859029/2025/12/03/browns-shedeur-sanders-jerry-jeu
 **Some of the Coldest Weather of the Season Is Sweeping Through the U.S.**\
 `There’s no denying it. It’s really December.`\
 https://nytimes.com/2025/12/03/weather/cold-temperatures-polar-vortex.html
-
-**What Tennessee Revealed About the G.O.P.’s Trump Trap in the Midterms**\
-`Republican candidates face the problem that President Trump alone gets out the vote that they need. And he alone gets out the vote that Democrats need, too.`\
-https://nytimes.com/2025/12/03/us/politics/tennessee-special-election-trump-midterms.html
-
-**Trump’s Xenophobic ‘Garbage’ Rant**\
-`Readers criticize President Trump’s tirade against Somali immigrants. Also: A cruel deportee deal; beyond tech bans.`\
-https://nytimes.com/2025/12/03/opinion/trump-somali-immigrants.html
 
