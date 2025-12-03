@@ -1,4 +1,12 @@
 **Trump to Close Voice of America’s Overseas Offices and Radio Stations**\
+`The push to close the offices appears to contradict a federal judge’s order from April, which required Trump officials to resume operations at V.O.A.`\
+https://nytimes.com/2025/12/02/us/politics/trump-voice-of-america-overseas-offices.html
+
+**How Shai Gilgeous-Alexander, Thunder can become more dominant**\
+`The Thunder have reason to be optimistic about the future in a way most champions haven’t. `\
+https://nytimes.com/athletic/6856501/2025/12/02/thunder-draft-lottery-picks-clippers-nba/
+
+**Trump to Close Voice of America’s Overseas Offices and Radio Stations**\
 `The push to close the news group’s overseas offices appears to contradict a federal judge’s order from April, which required Trump officials to resume operations at V.O.A.`\
 https://nytimes.com/2025/12/02/us/politics/trump-voice-of-america-overseas-offices.html
 
