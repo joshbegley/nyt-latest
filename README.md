@@ -1,3 +1,7 @@
+**Republican Wins Tennessee House Race After a Trump-Led Rescue Mission**\
+`Matt Van Epps fended off a Democrat to protect Republicans’ slim House majority, but the close margin in a red district sent the party a warning shot before the 2026 midterms.`\
+https://nytimes.com/2025/12/02/us/politics/tennessee-special-election-winner-matt-van-epps.html
+
 **A Sidewalk Encounter Between 2 Longtime Neighbors Ends in a Death**\
 `Dean Whetzel, 82, had known Dana Escoffier, 79, for decades. When Mr. Whetzel bumped into him near their Village apartments, Mr. Escoffier shoved him, the police said, and he fell to the ground.`\
 https://nytimes.com/2025/12/02/nyregion/homicide-west-village-seniors-neighbors.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/02/us/politics/trump-sleep-cabinet-meeting.html
 **Penultimate College Football Rankings are for the birds — here are some better ones**\
 `If you haven’t watched a lot of Vandy and have your doubts, its offense is No. 1 in the FBS in yards per play and No. 2 in points per drive.`\
 https://nytimes.com/athletic/6856956/2025/12/02/college-football-playoff-rankings-notre-dame-miami-vanderbilt-alabama/
-
-**U.S. Diplomats Report Broken Morale and Abandoned Careers**\
-`A new survey found that 98 percent of Foreign Service officers felt lower morale. Only 1 percent reported an increased ability to carry out U.S. foreign policy.`\
-https://nytimes.com/2025/12/02/us/politics/state-department-morale-survey.html
 
