@@ -1,3 +1,7 @@
+**Trump’s Xenophobic ‘Garbage’ Rant**\
+`Readers criticize President Trump’s tirade against Somali immigrants. Also: A cruel deportee deal; beyond tech bans.`\
+https://nytimes.com/2025/12/03/opinion/trump-somali-immigrants.html
+
 **Chateau Royale, Los Burritos Juárez, Bar Kabawa and Bartolo**\
 `Our first batch of brief starred restaurant reviews, from our contributing critics Mahira Rivers and Ryan Sutton.`\
 https://nytimes.com/2025/12/03/dining/chateau-royale-los-burritos-juarez-bar-kabawa-and-bartolo.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6858988/2025/12/03/world-cup-draw-infantino-trump-m
 **In remarkable run with Wild, Jesper Wallstedt showing Oilers what they're missing**\
 `In the 2021 NHL Draft, Edmonton traded away the pick that Minnesota went on to use on their standout rookie goalie.`\
 https://nytimes.com/athletic/6857549/2025/12/03/wild-jesper-wallstedt-shutouts/
-
-**Ghislaine Maxwell Says She Will Ask a Court to Free Her From Prison**\
-`In a court filing, a lawyer for the onetime companion of the disgraced financier Jeffrey Epstein said she would seek to be released from her minimum-security federal lockup.`\
-https://nytimes.com/2025/12/03/nyregion/ghislaine-maxwell-prison-petition.html
 
