@@ -1,3 +1,7 @@
+**Chateau Royale, Los Burritos Juárez, Bar Kabawa and Bartolo**\
+`Our first batch of brief starred restaurant reviews, from our contributing critics Mahira Rivers and Ryan Sutton.`\
+https://nytimes.com/2025/12/03/dining/chateau-royale-los-burritos-juarez-bar-kabawa-and-bartolo.html
+
 **Anthony Kay signs 2-year deal with White Sox as lefty makes return from Japan**\
 `Kay returns to MLB after two seasons in Japan, where he added a new pitch and excelled in the rotation.`\
 https://nytimes.com/athletic/6859037/2025/12/03/anthony-kay-white-sox-free-agent/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6857549/2025/12/03/wild-jesper-wallstedt-shutouts/
 **Ghislaine Maxwell Says She Will Ask a Court to Free Her From Prison**\
 `In a court filing, a lawyer for the onetime companion of the disgraced financier Jeffrey Epstein said she would seek to be released from her minimum-security federal lockup.`\
 https://nytimes.com/2025/12/03/nyregion/ghislaine-maxwell-prison-petition.html
-
-**Ipswich valued at Championship record £350m after ownership restructure**\
-`The Arizona state pension fund that bought Ipswich in 2021 has sold a large chunk of its shares in the Suffolk-based club.`\
-https://nytimes.com/athletic/6858985/2025/12/03/ipswich-valuation-championship-ownership-restructure/
 

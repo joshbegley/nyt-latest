@@ -1,3 +1,15 @@
+**Anthony Kay signs 2-year deal with White Sox as lefty makes return from Japan**\
+`Kay returns to MLB after two seasons in Japan, where he added a new pitch and excelled in the rotation.`\
+https://nytimes.com/athletic/6859037/2025/12/03/anthony-kay-white-sox-free-agent/
+
+**Taiwan’s President Warns of Growing Chinese Military Aggression**\
+`In a pre-taped interview for The New York Times’s Dealbook summit, Taiwan’s president, Lai Ching-te, spoke about China’s continuing threat to Taiwan’s sovereignty and the country’s relationship to the U.S.`\
+https://nytimes.com/video/business/dealbook/100000010562581/taiwan-president-lai-ching-te-dealbook.html
+
+**Stakes High, Europe Races to Save Its Financing Plan for Ukraine**\
+`The European Union has a proposal for how to turn Russian frozen assets into a giant loan for Ukraine. If it fails, it could further weaken Europe’s global image.`\
+https://nytimes.com/2025/12/03/world/europe/ukraine-russia-european-union-frozen-assets.html
+
 **NFL Week 14 confidence picks: Why you should pick the Jags to beat the Colts**\
 `KC Joyner gives his straight-up and against-the-spread picks for every Week 14 NFL game.`\
 https://nytimes.com/athletic/6857986/2025/12/03/nfl-week-14-confidence-picks-jaguars-colts/

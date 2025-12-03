@@ -1,3 +1,15 @@
+**Anthony Kay signs 2-year deal with White Sox as lefty makes return from Japan**\
+`Kay returns to MLB after two seasons in Japan, where he added a new pitch and excelled in the rotation.`\
+https://nytimes.com/athletic/6859037/2025/12/03/anthony-kay-white-sox-free-agent/
+
+**Taiwan’s President Warns of Growing Chinese Military Aggression**\
+`In a pre-taped interview for The New York Times’s Dealbook summit, Taiwan’s president, Lai Ching-te, spoke about China’s continuing threat to Taiwan’s sovereignty and the country’s relationship to the U.S.`\
+https://nytimes.com/video/business/dealbook/100000010562581/taiwan-president-lai-ching-te-dealbook.html
+
+**Stakes High, Europe Races to Save Its Financing Plan for Ukraine**\
+`The European Union has a proposal for how to turn Russian frozen assets into a giant loan for Ukraine. If it fails, it could further weaken Europe’s global image.`\
+https://nytimes.com/2025/12/03/world/europe/ukraine-russia-european-union-frozen-assets.html
+
 **NFL Week 14 confidence picks: Why you should pick the Jags to beat the Colts**\
 `KC Joyner gives his straight-up and against-the-spread picks for every Week 14 NFL game.`\
 https://nytimes.com/athletic/6857986/2025/12/03/nfl-week-14-confidence-picks-jaguars-colts/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/12/03/nyregion/ghislaine-maxwell-prison-petition.html
 **Ipswich valued at Championship record £350m after ownership restructure**\
 `The Arizona state pension fund that bought Ipswich in 2021 has sold a large chunk of its shares in the Suffolk-based club.`\
 https://nytimes.com/athletic/6858985/2025/12/03/ipswich-valuation-championship-ownership-restructure/
-
-**Can Chris Paul help any team? Here are 5 potential landing spots**\
-`The 40-year-old has said this season is his last. Where that campaign ends remains to be seen.`\
-https://nytimes.com/athletic/6858496/2025/12/03/nba-chris-paul-cp3-potential-teams/
-
-**G.M. Will Still Make Efficient Motors Despite Weaker Rules, C.E.O. Says**\
-`But the chief executive, Mary Barra, added that the jury was still out on whether electric vehicles would become a major seller in the United States.`\
-https://nytimes.com/2025/12/03/business/dealbook/general-motors-ceo-fuel-efficiency.html
-
-**Treasury Secretary Scott Bessent Says He’s ‘Evolved’ on Tariffs**\
-`Speaking at The New York Times DealBook summit, U.S. Treasury Secretary Scott Bessent said American trading partners are opening their markets to the United States because of President Trump’s tariffs.`\
-https://nytimes.com/video/us/politics/100000010561883/nyt-dealbook-bessent-treasury.html
 
