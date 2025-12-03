@@ -1,3 +1,19 @@
+**Prediction markets were part of the conversation at the DealBook Summit.**\
+`The platforms allow people to bet on political races and the Oscars. Could they also be good for policy`\
+https://nytimes.com/live/2025/12/03/business/dealbook-summit-news/prediction-markets-were-part-of-the-conversation-at-the-dealbook-summit
+
+**Curt Cignetti becomes Bobblehead Hall of Fame's top seller for 2025**\
+`The Indiana football coach is donating his bobblehead proceeds to charity. `\
+https://nytimes.com/athletic/6859549/2025/12/03/curt-cignetti-bobbleheads-pope-leo/
+
+**A Winter Dinner Menu That Brings the Sunshine**\
+`This hearty meal, featuring lamb meatballs and a pear and radicchio salad, is punctuated with a spectacularly sunny, yet festive, lemon roulade.`\
+https://nytimes.com/2025/12/03/dining/winter-dinner-menu.html
+
+**Halle Berry Advocates Quality Women’s Midlife Health Care**\
+`Halle Berry, an actress and founder of Respin Health, spoke at The New York Times’s DealBook Summit to discuss her advocacy for more funding for research for menopause care and women’s health.`\
+https://nytimes.com/video/us/100000010563563/berry-advocates-quality-womens-midlife-health-care.html
+
 **Halle Berry Advocates Quality Women’s Midlife Health Care**\
 `Halle Berry, an actress and founder of Respin Health, has advocated more funding for research for menopause care and women’s health.`\
 https://nytimes.com/video/us/100000010563563/berry-advocates-quality-womens-midlife-health-care.html

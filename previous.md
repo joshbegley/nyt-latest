@@ -1,5 +1,17 @@
+**Prediction markets were part of the conversation at the DealBook Summit.**\
+`The platforms allow people to bet on political races and the Oscars. Could they also be good for policy`\
+https://nytimes.com/live/2025/12/03/business/dealbook-summit-news/prediction-markets-were-part-of-the-conversation-at-the-dealbook-summit
+
+**Curt Cignetti becomes Bobblehead Hall of Fame's top seller for 2025**\
+`The Indiana football coach is donating his bobblehead proceeds to charity. `\
+https://nytimes.com/athletic/6859549/2025/12/03/curt-cignetti-bobbleheads-pope-leo/
+
+**A Winter Dinner Menu That Brings the Sunshine**\
+`This hearty meal, featuring lamb meatballs and a pear and radicchio salad, is punctuated with a spectacularly sunny, yet festive, lemon roulade.`\
+https://nytimes.com/2025/12/03/dining/winter-dinner-menu.html
+
 **Halle Berry Advocates Quality Women’s Midlife Health Care**\
-`Halle Berry, an actress and founder of Respin Health, has advocated more funding for research for menopause care and women’s health.`\
+`Halle Berry, an actress and founder of Respin Health, spoke at The New York Times’s DealBook Summit to discuss her advocacy for more funding for research for menopause care and women’s health.`\
 https://nytimes.com/video/us/100000010563563/berry-advocates-quality-womens-midlife-health-care.html
 
 **Pentagon Investigator Faults Hegseth for Improper Use of Signal**\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6851574/2025/12/03/arsenal-2-brentford-0-merino/
 **Cap implications and Stars' deadline approach in wake of Tyler Seguin's injury**\
 `The Stars are eligible for some salary-cap relief under the league's rules covering long-term injuries.`\
 https://nytimes.com/athletic/6859215/2025/12/03/tyler-seguin-injury-salary-cap-trade-deadline/
-
-**Trump Returns to Gasoline as Fuel of Choice for Cars, Gutting Biden’s Climate Policy**\
-`The president said he would weaken Biden-era mileage standards, which were designed to increase electric-vehicle sales, calling them a “scam.”`\
-https://nytimes.com/2025/12/03/climate/trump-fuel-economy-car-rules.html
-
-**China, Japan and a New Narrative About World War II**\
-`Arguments about history are proliferating as the postwar order led by the United States crumbles.`\
-https://nytimes.com/2025/12/03/world/china-japan-ww2-russia-gaza-pope.html
-
-**NY Red Bulls in advanced talks to sign American winger Cade Cowell**\
-`The deal for the 22-year-old is expected to be an initial loan.`\
-https://nytimes.com/athletic/6859598/2025/12/03/new-york-red-bulls-cade-cowell-chivas/
 
