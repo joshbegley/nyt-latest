@@ -1,9 +1,13 @@
+**Blue Jackets push back against Devils coach Keefe's fight criticism: 'Things were provoked'**\
+`Columbus' victory on Monday included four fights, the nature of which drew Keefe's ire.`\
+https://nytimes.com/athletic/6859271/2025/12/03/devils-blue-jackets-fights-keefe/
+
 **All Hotels at Grand Canyon to Shut Down for Pipeline Repairs**\
 `The National Park Service said seven hotels would temporarily close starting on Saturday after “significant breaks” in a crucial 12.5-mile water line.`\
 https://nytimes.com/2025/12/03/travel/grand-canyon-hotels-closed-south-rim.html
 
 **Alexander-Arnold injured in Real Madrid's 3-0 win over Athletic Club**\
-`Midfielder Eduardo Camavinga was also substituted after sustaining what appeared to be ankle injury.`\
+`Midfielder Eduardo Camavinga was also substituted after sustaining what appeared to be an ankle injury.`\
 https://nytimes.com/athletic/6859252/2025/12/03/real-madrid-athletic-club-trent-camavinga-injury/
 
 **Anthropic’s Chief Executive Acknowledges Risks of Huge Spending on A.I.**\
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/03/world/americas/venezuela-strikes-maduro.html
 **How to watch Pistons vs. Bucks: Time, TV, streaming**\
 `Find out how to watch the Detroit Pistons play the Milwaukee Bucks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6859467/2025/12/03/pistons-vs-bucks-stream-how-to-watch-dec-3/
-
-**How to watch Clippers vs. Hawks: Time, TV, streaming**\
-`Find out how to watch the Los Angeles Clippers play the Atlanta Hawks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6859463/2025/12/03/clippers-vs-hawks-stream-how-to-watch-dec-3/
 

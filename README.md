@@ -1,3 +1,15 @@
+**USC's top-ranked class, Vanderbilt's flip, Virginia Tech's surge highlight signing day**\
+`Once again, the SEC is dominating, with five of the top 10 classes (Alabama, Georgia, Texas, Tennessee and Texas A&M). `\
+https://nytimes.com/athletic/6859239/2025/12/03/college-football-early-signing-day-usc-virginia-tech/
+
+**House Republicans Subpoena Jack Smith Over Prosecutions of Trump**\
+`Lawmakers requested a closed-door interview with Mr. Smith, who had asked to testify publicly to give Americans a chance to hear from him directly.`\
+https://nytimes.com/2025/12/03/us/politics/house-republicans-subpoena-jack-smith-over-prosecutions-of-trump.html
+
+**Who is Andrew Farkas, Who Owned a Marina With Jeffrey Epstein?**\
+`The billionaire real estate developer’s relationship with Mr. Epstein is in the spotlight, with the release of emails and images of Mr. Epstein’s private home in the Caribbean.`\
+https://nytimes.com/2025/12/03/nyregion/andrew-farkas-jeffrey-epstein-marina.html
+
 **Blue Jackets push back against Devils coach Keefe's fight criticism: 'Things were provoked'**\
 `Columbus' victory on Monday included four fights, the nature of which drew Keefe's ire.`\
 https://nytimes.com/athletic/6859271/2025/12/03/devils-blue-jackets-fights-keefe/
@@ -25,12 +37,4 @@ https://nytimes.com/video/technology/100000010563284/dealbook-artificial-intelli
 **Black Bear, Uninvited, Moves Into California Man’s Crawl Space**\
 `Ken Johnson has tried noisy tactics to encourage the 550-pound houseguest in his crawl space to leave. He is not sure it’s working.`\
 https://nytimes.com/2025/12/03/us/california-bear-crawl-space.html
-
-**Trump’s Threat of Military Action Is a Major Challenge to Maduro. Here’s What to Know.**\
-`The president has warned that the United States could soon expand its attacks from boats near the coast to targets inside Venezuela, but he has also spoken by phone to its leader.`\
-https://nytimes.com/2025/12/03/world/americas/venezuela-strikes-maduro.html
-
-**How to watch Pistons vs. Bucks: Time, TV, streaming**\
-`Find out how to watch the Detroit Pistons play the Milwaukee Bucks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6859467/2025/12/03/pistons-vs-bucks-stream-how-to-watch-dec-3/
 

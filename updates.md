@@ -1,3 +1,11 @@
+**Blue Jackets push back against Devils coach Keefe's fight criticism: 'Things were provoked'**\
+`Columbus' victory on Monday included four fights, the nature of which drew Keefe's ire.`\
+https://nytimes.com/athletic/6859271/2025/12/03/devils-blue-jackets-fights-keefe/
+
+**Alexander-Arnold injured in Real Madrid's 3-0 win over Athletic Club**\
+`Midfielder Eduardo Camavinga was also substituted after sustaining what appeared to be an ankle injury.`\
+https://nytimes.com/athletic/6859252/2025/12/03/real-madrid-athletic-club-trent-camavinga-injury/
+
 **All Hotels at Grand Canyon to Shut Down for Pipeline Repairs**\
 `The National Park Service said seven hotels would temporarily close starting on Saturday after “significant breaks” in a crucial 12.5-mile water line.`\
 https://nytimes.com/2025/12/03/travel/grand-canyon-hotels-closed-south-rim.html
