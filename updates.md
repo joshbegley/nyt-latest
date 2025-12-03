@@ -1,3 +1,23 @@
+**Court Puts Hold on Decision Requiring Religious Exemptions to Vaccine Mandate**\
+`The West Virginia Supreme Court said that the vaccine mandate for children would remain while it considered the case.`\
+https://nytimes.com/2025/12/02/us/court-puts-hold-on-decision-requiring-religious-exemptions-to-vaccine-mandate.html
+
+**Alabama passes Notre Dame in penultimate College Football Playoff rankings**\
+`Heading into conference championship weekend, Ohio State and Indiana remain Nos. 1 and 2, respectively.`\
+https://nytimes.com/athletic/6856029/2025/12/02/college-football-playoff-rankings-miami-texas-alabama-notre-dame/
+
+**How to watch Broncos vs. Raiders: Time, TV, streaming**\
+`Find out how to watch the Denver Broncos play the Las Vegas Raiders, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6856864/2025/12/02/broncos-vs-raiders-stream-how-to-watch-dec-7/
+
+**How to watch Rams vs. Cardinals: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Rams play the Arizona Cardinals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6856862/2025/12/02/rams-vs-cardinals-stream-how-to-watch-dec-7/
+
+**How to watch Bears vs. Packers: Time, TV, streaming**\
+`Find out how to watch the Chicago Bears play the Green Bay Packers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6856858/2025/12/02/bears-vs-packers-stream-how-to-watch-dec-7/
+
 **Korean Baseball MVP Cody Ponce to sign three-year deal with Blue Jays: Sources**\
 `After a historic 2025 season, Ponce was awarded the KBO's equivalent to the Cy Young Award and its league MVP. `\
 https://nytimes.com/athletic/6853998/2025/12/02/mlb-cody-ponce-free-agency-signing-blue-jays/
