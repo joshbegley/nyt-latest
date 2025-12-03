@@ -1,40 +1,40 @@
-**How to watch Oklahoma State vs. North Texas women's basketball: Time, TV, streaming**\
-`Find out how to watch the Oklahoma State Cowgirls play the North Texas Mean Green, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6858679/2025/12/03/oklahoma-state-vs-north-texas-stream-how-to-watch-dec-3/
+**Taiwan’s President Warns That China’s Military Aggression Is Growing**\
+`President Lai Ching-te is aiming to invest an additional $40 billion in military spending to deter China.`\
+https://nytimes.com/2025/12/03/business/dealbook/taiwan-lai-ching-te-china.html
 
-**The Bounce: A flood of first-time All-Stars? And should the Pelicans say bye to Zion?**\
-`Zach Harper catches you up on the latest NBA news in our newsletter.`\
-https://nytimes.com/athletic/6858533/2025/12/03/all-stars-first-time-zion-williamson-the-bounce/
+**How to watch Nuggets vs. Pacers: Time, TV, streaming**\
+`Find out how to watch the Denver Nuggets play the Indiana Pacers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6858752/2025/12/03/nuggets-vs-pacers-stream-how-to-watch-dec-3/
 
-**Your Fish Wants Miso-Butter Bread Crumbs**\
-`Kay Chun’s recipe calls for cod, but you could smear this garlicky, gingery topping on any other fish fillets you like.`\
-https://nytimes.com/2025/12/03/dining/your-fish-wants-miso-butter-bread-crumbs.html
+**How to watch Spurs vs. Magic: Time, TV, streaming**\
+`Find out how to watch the San Antonio Spurs play the Orlando Magic, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6858750/2025/12/03/spurs-vs-magic-stream-how-to-watch-dec-3/
 
-**What Physics Knows About Ghostly Neutrinos Muddled by New Experiments**\
-`Two papers challenged the existence of theorized particles called sterile neutrinos that might account for mysteries like the cosmos’s dark matter.`\
-https://nytimes.com/2025/12/03/science/sterile-neutrinos-particle-physics.html
+**How to watch Trail Blazers vs. Cavaliers: Time, TV, streaming**\
+`Find out how to watch the Portland Trail Blazers play the Cleveland Cavaliers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6858747/2025/12/03/trail-blazers-vs-cavaliers-stream-how-to-watch-dec-3/
 
-**The kings of collapse? Can the Colts avoid another late-season meltdown?**\
-`Are these the same old Colts, good enough to get your hopes up before letting you down?`\
-https://nytimes.com/athletic/6858456/2025/12/03/colts-collapse-daniel-jones-jaguars-nfl-playoffs/
+**How to watch Stars vs. Devils: Time, TV, streaming**\
+`Find out how to watch the Dallas Stars play the New Jersey Devils, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6858748/2025/12/03/stars-vs-devils-stream-how-to-watch-dec-3/
 
-**How Is America Changing Under President Trump? We Want to Hear From You.**\
-`A New York Times reporter wants to hear from you about changes you are seeing in your community since Mr. Trump took office.`\
-https://nytimes.com/2025/12/03/us/trump-policy-changes.html
+**Democrats Release Images of Epstein’s Private Home**\
+`In publicizing the photos and videos, Democrats in Congress appeared to be intensifying pressure on the Justice Department to release its files on the Epstein case.`\
+https://nytimes.com/2025/12/03/us/politics/epstein-island-home.html
 
-**Germany named 2029 women's European Championship hosts**\
-`The hosts were appointed by the UEFA Executive Committee at its meeting in Nyon, Switzerland on Wednesday.`\
-https://nytimes.com/athletic/6857907/2025/12/03/womens-euros-hosts-2029/
+**Chiefs-Cowboys draws 57.2 million viewers, most-watched NFL regular season game ever**\
+`CBS broadcaster Jim Nantz called last Thursday&#8217;s late-afternoon NFL game perfect confluence of three of the biggest brands in American culture — the Dallas Cowboys, the Kansas City Chiefs and Thanksgiving.`\
+https://nytimes.com/athletic/6857347/2025/12/03/chiefs-cowboys-nfl-cbs-thanksgiving-ratings/
 
-**NFL Week 14 survivor pool picks, strategy: Bucs, Dolphins are the top picks**\
-`Adam Gretz and Renee Miller answer reader questions and give their survivor pool picks for Week 14.`\
-https://nytimes.com/athletic/6858170/2025/12/03/nfl-week-14-survivor-pool-picks-strategy-buccaneers-dolphins/
+**How to watch Kentucky vs. Miami (FL) women's basketball: Time, TV, streaming**\
+`Find out how to watch the Kentucky Wildcats play the Miami Hurricanes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6858725/2025/12/03/kentucky-vs-miami-fl-stream-how-to-watch-dec-3/
 
-**College Football Playoff bubble watch: James Madison, Duke and the auto-bid race**\
-`A Blue Devils win could mean James Madison goes to the Playoff — and the ACC does not.`\
-https://nytimes.com/athletic/6858269/2025/12/03/college-football-playoff-bubble-watch-james-madison-duke/
+**On Trump’s Insults, Somalia’s Prime Minister Says ‘It’s Better Not to Respond’**\
+`President Trump referred to Somali immigrants as “garbage” during a White House meeting on Tuesday.`\
+https://nytimes.com/2025/12/03/world/africa/trump-somalia-garbage-reaction-immigrant.html
 
-**With Tensions Rising, Israel and Lebanon Expand Cease-Fire Talks**\
-`Diplomats from both countries joined a military-led committee overseeing a year-old truce as fears mounted of a renewed Israeli offensive against Hezbollah.`\
-https://nytimes.com/2025/12/03/world/middleeast/israel-lebanon-talks-ceasefire.html
+**How to watch Mount St. Mary's vs. Maryland women's basketball: Time, TV, streaming**\
+`Find out how to watch the Mount St. Mary's Mountaineers play the Maryland Terrapins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6858720/2025/12/03/mount-st-mary-s-vs-maryland-stream-how-to-watch-dec-3/
 
