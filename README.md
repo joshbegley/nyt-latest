@@ -1,3 +1,7 @@
+**Must-See Moments From the N.B.A.**\
+`On Tuesday, the San Antonio Spurs came back to beat the Memphis Grizzlies, Anthony Edwards scored 44 points in the Minnesota Timberwolves’ overtime win, and the Philadelphia 76ers cruised past the Washington Wizards.`\
+https://nytimes.com/video/sports/100000010561405/must-see-moments-from-the-nba.html
+
 **Hansi Flick has a new solution for Barcelona's defence. But will he need more?**\
 `La Liga's defending champions still look short of options at the back, despite a clever move from their German coach`\
 https://nytimes.com/athletic/6857767/2025/12/03/barcelona-la-liga-atletico-hansi-flick-martin/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/03/crosswords/spelling-bee-forum.html
 **How to watch Texans vs. Chiefs: Time, TV, streaming**\
 `Find out how to watch the Houston Texans play the Kansas City Chiefs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6857665/2025/12/03/texans-vs-chiefs-stream-how-to-watch-dec-7/
-
-**Manchester City are serious title contenders displaying unserious credentials**\
-`Collapses against Leeds and Fulham could have been catastrophic. That they escaped with maximum points has to be seen as a learning curve`\
-https://nytimes.com/athletic/6856433/2025/12/03/man-city-conceding-guardiola-concerns/
 
