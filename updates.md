@@ -1,3 +1,7 @@
+**Hegseth Says He Did Not See Survivors in September Boat Strike**\
+`Defense Secretary Pete Hegseth said he had not seen survivors of a U.S. military strike on a boat in the Caribbean in September and that he “didn’t stick around” to watch a second strike that killed two people clinging to wreckage.`\
+https://nytimes.com/video/us/politics/100000010561612/hegseth-boat-strikes-venezuela.html
+
 **Anthony Edwards saves Wolves from themselves, then laments his and team's focus**\
 `Why did Minnesota need overtime to stave off the 3-18 Pelicans? "It seems like we don't want to play these games," Edwards said.`\
 https://nytimes.com/athletic/6857207/2025/12/03/anthony-edwards-timberwolves-pelicans/

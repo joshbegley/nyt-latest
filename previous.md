@@ -1,3 +1,7 @@
+**Hegseth Says He Did Not See Survivors in September Boat Strike**\
+`Defense Secretary Pete Hegseth said he had not seen survivors of a U.S. military strike on a boat in the Caribbean in September and that he “didn’t stick around” to watch a second strike that killed two people clinging to wreckage.`\
+https://nytimes.com/video/us/politics/100000010561612/hegseth-boat-strikes-venezuela.html
+
 **Anthony Edwards saves Wolves from themselves, then laments his and team's focus**\
 `Why did Minnesota need overtime to stave off the 3-18 Pelicans? "It seems like we don't want to play these games," Edwards said.`\
 https://nytimes.com/athletic/6857207/2025/12/03/anthony-edwards-timberwolves-pelicans/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6857229/2025/12/03/washington-commanders-mailbag-ro
 **FIFA moves deadline for teams to release players for AFCON**\
 `The new deadline, which was originally set for December 8, allows players to play an additional week of fixtures for their clubs.`\
 https://nytimes.com/athletic/6854690/2025/12/03/afcon-player-release-deadline-moved/
-
-**Rebecca Lowe joining Fox's World Cup coverage as host: Sources**\
-`Lowe’s role with NBC on the Premier League, the Olympics and Kentucky Derby will remain unchanged.`\
-https://nytimes.com/athletic/6858107/2025/12/03/world-cup-fox-coverage-rebecca-lowe-nbc-sports/
 
