@@ -1,3 +1,7 @@
+**A Question Circling Sydney’s Beaches: Do We Still Need Shark Nets?**\
+`Critics say the nets harm marine life and aren’t the best way to keep swimmers safe. Recent shark attacks have complicated a plan to remove some of them.`\
+https://nytimes.com/2025/12/03/world/australia/sydney-shark-nets-australia.html
+
 **Brighton & Hove Albion Transfer DealSheet: What to expect in 2026**\
 `The Premier League’s ‘model club’ have gained a reputation as shrewd operators in the transfer market. So what next?`\
 https://nytimes.com/athletic/6776857/2025/12/03/brighton-transfer-dealsheet-2026/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6854751/2025/12/03/luke-shaw-manchester-united-inju
 **Player power at Real Madrid is bigger than ever. It's an extra challenge for Xabi Alonso**\
 `The Spanish club have always been known for their Galacticos, but the latest generation reveals new trends and pressures`\
 https://nytimes.com/athletic/6855602/2025/12/03/real-madrid-mbappe-bellingham-vinicius-alonso-player-power/
-
-**Declan Rice, the evolution of Arsenal's Mr Everything**\
-`Rice adds more to his game year on year. That has been critical to pushing them to new levels`\
-https://nytimes.com/athletic/6855119/2025/12/03/declan-rice-arsenal-arteta-evolved/
 
