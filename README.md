@@ -1,3 +1,15 @@
+**Pardon Undoes a Climactic Win in Drug Prosecutions Led by a Trump Ally**\
+`Emil Bove III’s work as a prosecutor, before he was a Trump lawyer and official, helped lead to the conviction of the Honduran ex-leader whom President Trump freed this week.`\
+https://nytimes.com/2025/12/03/nyregion/bove-trump-honduras-pardon.html
+
+**Spikes, Fins, Guards: How New York Is Trying to Stop Subway Fare Evasion**\
+`Subway and bus fare evasion cost New York’s transit system nearly $1 billion last year. Will an arsenal of new tricks turn the tide?`\
+https://nytimes.com/2025/12/03/nyregion/nyc-subway-fare-evasion-mta.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/12/03/crosswords/spelling-bee-forum.html
+
 **How to watch Texans vs. Chiefs: Time, TV, streaming**\
 `Find out how to watch the Houston Texans play the Kansas City Chiefs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6857665/2025/12/03/texans-vs-chiefs-stream-how-to-watch-dec-7/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/12/03/learning/word-of-the-day-stipend.html
 **Grealish is inspiring Everton to little moments of history**\
 `The on-loan midfielder is helping the club break new ground this season, including a first Premier League win at Bournemouth`\
 https://nytimes.com/athletic/6856886/2025/12/03/everton-bournemouth-jack-grealish/
-
-**Late Night on Trump’s ‘Social Media Blitzkrieg’**\
-`The president posted 160 times on Truth Social in one night, according to news reports. One host says his “thumbs were as swollen as his ankles.”`\
-https://nytimes.com/2025/12/03/arts/television/late-night-trump-truth-social.html
-
-**Spurs needed a reason to believe. Main character Cristian Romero gave them one**\
-`The real challenge now is to turn this from one good moment from Romero into something Spurs can build on`\
-https://nytimes.com/athletic/6851839/2025/12/03/cristian-romero-goals-tottenham/
-
-**They Were Supposed to Save Europe. Instead, They’re Condemning It to Horrors.**\
-`Centrist governments are failing badly in Europe’s leading economies, setting the stage for a far-right sweep.`\
-https://nytimes.com/2025/12/03/opinion/europe-britain-france-germany-centrist.html
 
