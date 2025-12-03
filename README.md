@@ -1,3 +1,7 @@
+**NFL Week 14 confidence picks: Why you should pick the Jags to beat the Colts**\
+`KC Joyner gives his straight-up and against-the-spread picks for every Week 14 NFL game.`\
+https://nytimes.com/athletic/6857986/2025/12/03/nfl-week-14-confidence-picks-jaguars-colts/
+
 **Submit your questions for Kevin Fishbain's Bears mailbag**\
 `The Bears and Packers are playing a meaningful game in December with first place on the line. Let's see your questions.`\
 https://nytimes.com/athletic/6859054/2025/12/03/bears-mailbag-questions-51/
