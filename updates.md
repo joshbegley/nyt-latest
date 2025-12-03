@@ -1,3 +1,15 @@
+**Steve Cropper, Guitarist, Songwriter and a Shaper of Memphis Soul Music**\
+`As a member of Booker T. & the MG’s and as a producer, he played a pivotal role in the rise of Stax Records, a storied force in R&B in the 1960s and ’70s.`\
+https://nytimes.com/2025/12/03/arts/music/steve-cropper-dead.html
+
+**How Dan Mullen built UNLV by raiding talent from the nation's best programs**\
+`UNLV (10-2), led by Dan Mullen, hopes to knock off Boise State in Friday's Mountain West Championship.`\
+https://nytimes.com/athletic/6859081/2025/12/03/unlv-dan-mullen-roster-mountain-west-championship-game/
+
+**Trump Plans to Lower Fuel Efficiency Requirements**\
+`Also, Dick Van Dyke shares his secrets to aging well. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2025/12/03/briefing/trump-fuel-efficiency-requirements.html
+
 **Air Force Pilot Ejects as Thunderbirds F-16 Crashes in California**\
 `The pilot was in stable condition after losing control of the fighter jet near Trona, Calif., about 180 miles northeast of Los Angeles.`\
 https://nytimes.com/2025/12/03/us/air-force-thunderbirds-crash.html
