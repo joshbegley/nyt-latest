@@ -1,3 +1,15 @@
+**What Tennessee Revealed About the G.O.P.’s Trump Trap in the Midterms**\
+`Republican candidates face the problem that President Trump alone gets out the vote that they need. And he alone gets out the vote that Democrats need, too.`\
+https://nytimes.com/2025/12/03/us/politics/tennessee-special-election-trump-midterms.html
+
+**Trump’s Xenophobic ‘Garbage’ Rant**\
+`Readers criticize President Trump’s tirade against Somali immigrants. Also: A cruel deportee deal; beyond tech bans.`\
+https://nytimes.com/2025/12/03/opinion/trump-somali-immigrants.html
+
+**Instant grades for college football's 2025-26 head-coaching hires**\
+`In college football, you never really know whether a coaching hire is going to work. But it's never too early to talk about fit.`\
+https://nytimes.com/athletic/6827060/2025/12/03/college-football-coaching-carousel-grades/
+
 **Chateau Royale, Los Burritos Juárez, Bar Kabawa and Bartolo**\
 `Our first batch of brief starred restaurant reviews, from our contributing critics Mahira Rivers and Ryan Sutton.`\
 https://nytimes.com/2025/12/03/dining/chateau-royale-los-burritos-juarez-bar-kabawa-and-bartolo.html
