@@ -1,3 +1,15 @@
+**Trump Appears to Doze Off During Cabinet Meeting**\
+`President Trump seemed to be fighting sleep during a cabinet meeting on Tuesday. The meeting began with the 79-year-old president criticizing questions about his physical stamina.`\
+https://nytimes.com/video/us/politics/100000010560959/trump-falls-asleep-cabinet-meeting-nap.html
+
+**James Solomon Beats Jim McGreevey, a Former Governor, in Jersey City**\
+`Mr. Solomon was elected mayor over Mr. McGreevey, who was hoping for a comeback after resigning in 2004 as New Jersey’s governor in the midst of a sex scandal.`\
+https://nytimes.com/2025/12/02/nyregion/james-solomon-jim-mcgreevey-jersey-city.html
+
+**Lawsuits allege USA Gymnastics, SafeSport failed to prevent sexual abuse by coach**\
+`The former coach at the center of the cases was arrested in August on federal child pornography charges.`\
+https://nytimes.com/athletic/6855691/2025/12/02/usa-gymnastics-safesport-coach-abuse/
+
 **Trump Appears to Fight Sleep During Cabinet Meeting**\
 `President Trump began the meeting by criticizing media coverage about him showing signs of fatigue. Last month, he appeared to doze off during a meeting in the Oval Office.`\
 https://nytimes.com/2025/12/02/us/politics/trump-sleep-cabinet-meeting.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6856899/2025/12/02/miami-hurricanes-college-footbal
 **Smartmatic and Fox Urge Judge to Decide Defamation Case**\
 `The case centers on false vote-rigging claims broadcast by Fox News during the 2020 U.S. presidential election.`\
 https://nytimes.com/2025/12/02/business/media/smartmatic-fox-news-defamation-case.html
-
-**Key Packers-Bears matchup in Week 16 set for Dec. 20 at 8:20 p.m. ET**\
-`The Bears will host the Packers on Dec. 20 at 8:20 p.m. ET, while the Eagles will host the Commanders on the same day at 2 p.m.`\
-https://nytimes.com/athletic/6856892/2025/12/02/bears-packers-week-16-kickoff/
-
-**Washington soccer rallied around memory of Mia Hamant: 'We just played our hearts out'**\
-`Following the tragic death of their goalie, the Huskies went on an emotional postseason run to the Elite Eight.`\
-https://nytimes.com/athletic/6856353/2025/12/02/mia-hamant-washington-womens-soccer/
-
-**College Football Playoff 2025 projections: What our model says after the latest Top 25**\
-`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
-https://nytimes.com/athletic/6560541/2025/12/02/college-football-playoff-bracket-projections-odds/
 

@@ -1,3 +1,19 @@
+**Trump Appears to Fight Sleep During Cabinet Meeting**\
+`President Trump began the meeting by criticizing media coverage about him showing signs of fatigue. Last month, he appeared to doze off during a meeting in the Oval Office.`\
+https://nytimes.com/2025/12/02/us/politics/trump-sleep-cabinet-meeting.html
+
+**Penultimate College Football Rankings are for the birds — here are some better ones**\
+`If you haven’t watched a lot of Vandy and have your doubts, its offense is No. 1 in the FBS in yards per play and No. 2 in points per drive.`\
+https://nytimes.com/athletic/6856956/2025/12/02/college-football-playoff-rankings-notre-dame-miami-vanderbilt-alabama/
+
+**U.S. Diplomats Report Broken Morale and Abandoned Careers**\
+`A new survey found that 98 percent of Foreign Service officers felt lower morale. Only 1 percent reported an increased ability to carry out U.S. foreign policy.`\
+https://nytimes.com/2025/12/02/us/politics/state-department-morale-survey.html
+
+**NFL RedZone drastically raises commercial time in Week 13**\
+`In total, combining double-box ads, banner ads and sponsored segments, NFL RedZone showed over four minutes of sponsored elements Sunday.`\
+https://nytimes.com/athletic/6856988/2025/12/02/nfl-redzone-increases-commercials/
+
 **Key Packers-Bears matchup in Week 16 set for Dec. 20 at 8:20 p.m. ET**\
 `The Bears will host the Packers on Dec. 20 at 8:20 p.m. ET, while the Eagles will host the Commanders on the same day at 2 p.m.`\
 https://nytimes.com/athletic/6856892/2025/12/02/bears-packers-week-16-kickoff/
