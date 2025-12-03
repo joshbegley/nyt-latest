@@ -1,3 +1,11 @@
+**U.S. Military’s Boat Strikes Planning Takes on New Significance**\
+`The details could raise questions about who was responsible for a follow-up strike on Sept. 2 — the commander who ordered it or the defense secretary.`\
+https://nytimes.com/2025/12/03/us/politics/trump-boat-strikes-survivors.html
+
+**Gavin Newsom: Democrats Need to Be ‘More Culturally Normal’**\
+`During an interview at the DealBook Summit with Andrew Ross Sorkin, editor at large, Gov. Gavin Newsom of California said that Democrats needed to design a compelling economic vision for the future.`\
+https://nytimes.com/video/business/dealbook/100000010563650/governor-gavin-newsom-democrats-dealbook.html
+
 **Messy divorce aside, Bill Belichick, Robert Kraft belong together forever in Canton**\
 `The Pro Football Hall of Fame needs to act on this Kraft-Belichick business. It’s mainly about doing the right thing.`\
 https://nytimes.com/athletic/6859354/2025/12/03/robert-kraft-bill-belichick-hall-of-fame-finalists/
