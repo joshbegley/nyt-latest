@@ -1,3 +1,19 @@
+**WNBA CBA proposal includes mandatory draft combine, new revenue-sharing model: Sources**\
+`The league proposed a draft combine requirement that ties participation to rookie salary.`\
+https://nytimes.com/athletic/6857443/2025/12/03/wnba-cba-proposal-draft-combine-salary/
+
+**Elden Campbell, 15-year NBA veteran and Clemson great, dies at 57**\
+`Campbell also played for the Hornets, Pistons, Nets and Supersonics, and was a member of Detroit's 2004 NBA championship team.`\
+https://nytimes.com/athletic/6858129/2025/12/03/elden-campbell-dies-nba-lakers-clemson/
+
+**What now for Penn State? Our emergency search committee proposes six names**\
+`We’ve convened a committee of Penn State/coach matchmakers to help solve a coaching search flirting with crisis.`\
+https://nytimes.com/athletic/6858417/2025/12/03/penn-state-coaching-search-candidates-options/
+
+**Shoppers Turn to Discounts and Debt, but Not Just for Holidays**\
+`Consumers are focusing on value and financing purchases to complete their shopping lists.`\
+https://nytimes.com/2025/12/03/business/holiday-shop-deals.html
+
 **Taiwan’s President Warns That China’s Military Aggression Is Growing**\
 `President Lai Ching-te is aiming to invest an additional $40 billion in military spending to deter China.`\
 https://nytimes.com/2025/12/03/business/dealbook/taiwan-lai-ching-te-china.html
