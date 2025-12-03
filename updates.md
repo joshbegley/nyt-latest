@@ -1,3 +1,7 @@
+**The Briefing: Liverpool 1 Sunderland 1: Was this Wirtz's big moment? Did Liverpool get lucky?**\
+`Liverpool were lucky to come away with a draw after another insipid performance.`\
+https://nytimes.com/athletic/6851576/2025/12/03/liverpool-1-sunderland-1-was-this-wirtzs-big-moment-has-anfield-lost-its-fear-factor/
+
 **Prediction markets were part of the conversation at the DealBook Summit.**\
 `The platforms allow people to bet on political races and the Oscars. Could they also be good for policy`\
 https://nytimes.com/live/2025/12/03/business/dealbook-summit-news/prediction-markets-were-part-of-the-conversation-at-the-dealbook-summit

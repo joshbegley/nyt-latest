@@ -1,3 +1,7 @@
+**The Briefing: Liverpool 1 Sunderland 1: Was this Wirtz's big moment? Did Liverpool get lucky?**\
+`Liverpool were lucky to come away with a draw after another insipid performance.`\
+https://nytimes.com/athletic/6851576/2025/12/03/liverpool-1-sunderland-1-was-this-wirtzs-big-moment-has-anfield-lost-its-fear-factor/
+
 **Prediction markets were part of the conversation at the DealBook Summit.**\
 `The platforms allow people to bet on political races and the Oscars. Could they also be good for policy`\
 https://nytimes.com/live/2025/12/03/business/dealbook-summit-news/prediction-markets-were-part-of-the-conversation-at-the-dealbook-summit
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/100000010563468/benjamin-netanyahu-mamdani.html
 **The Briefing - Arsenal 2 Brentford 0: Mikel Merino a natural striker? More injury concerns**\
 `Arsenal re-opened a five-point lead at the top of the Premier League thanks to a win over their London rivals Brentford.`\
 https://nytimes.com/athletic/6851574/2025/12/03/arsenal-2-brentford-0-merino/
-
-**Cap implications and Stars' deadline approach in wake of Tyler Seguin's injury**\
-`The Stars are eligible for some salary-cap relief under the league's rules covering long-term injuries.`\
-https://nytimes.com/athletic/6859215/2025/12/03/tyler-seguin-injury-salary-cap-trade-deadline/
 
