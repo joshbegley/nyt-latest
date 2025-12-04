@@ -1,3 +1,19 @@
+**Betting for (by) dummies: Picking Ohio State and a Cowboys over (of course)**\
+`Jon Greenberg and Zac Jackson agree on a pair of NFL picks and both have a pick in the Ohio State-Indiana showdown.`\
+https://nytimes.com/athletic/6862482/2025/12/04/betting-for-by-dummies-ohio-state-cowboys/
+
+**At Gucci, Demna Brings Back the Tom Ford Era**\
+`The label’s latest collection provides another, potentially trendsetting, clue about where the luxury brand is headed.`\
+https://nytimes.com/2025/12/04/style/gucci-demna-tom-ford-era.html
+
+**What Are the Lessons in the Epstein Files?**\
+`Readers discuss an essay by Anand Giridharadas about Jeffrey Epstein’s circle. Also: The White House ballroom; Medicare for All; immigrant fears.`\
+https://nytimes.com/2025/12/04/opinion/jeffrey-epstein-files.html
+
+**Israeli Strike Kills Several People at a Gaza Encampment**\
+`An Israeli attack on an encampment in Khan Younis killed several people and injured many more, a Palestinian health official said. The Israeli military said it killed a militant in retaliation for a Hamas attack that injured several of its soldiers.`\
+https://nytimes.com/video/world/middleeast/100000010565432/gaza-khan-younis-strike-israel.html
+
 **Steve Cropper: 9 Essential Songs**\
 `An architect of Memphis soul, Cropper made his guitar sing and sting. And as a songwriter, he collaborated on more than a few indelible anthems.`\
 https://nytimes.com/2025/12/04/arts/music/steve-cropper-songs.html
