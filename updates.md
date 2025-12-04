@@ -1,3 +1,15 @@
+**2025: A Year of Firsts**\
+`A series of milestones that happened for the first time during the past 12 months.`\
+https://nytimes.com/2025/12/04/special-series/first-time-ever-2025.html
+
+**What to Do With All Those Root Vegetables**\
+`You have carrots, parsnips, sweet potatoes; I have recipes.`\
+https://nytimes.com/2025/12/04/dining/what-to-do-with-all-those-root-vegetables.html
+
+**Faulty Glucose Monitor Sensors May Be Tied to 7 Deaths, F.D.A. Says**\
+`Abbott Diabetes Care said it had received reports of more than 700 injuries that may be associated with malfunctioning sensors.`\
+https://nytimes.com/2025/12/04/health/blood-glucose-monitor-recall-abbott.html
+
 **NASCAR's Steve O'Donnell, key figure in charter deals, takes stand on Day 4 of trial**\
 `NASCAR's president was questioned about how early signs that CEO Jim France was flexible on the sport's model didn't quite materialize.`\
 https://nytimes.com/athletic/6862423/2025/12/04/nascar-trial-steve-odonnell-michael-jordan-bob-jenkins/
