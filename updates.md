@@ -1,3 +1,11 @@
+**Beans and Greens and Vodka**\
+`That is, beans and greens alla vodka, a five-star Ali Slagle reader favorite.`\
+https://nytimes.com/2025/12/04/dining/beans-and-greens-and-vodka.html
+
+**2026 Midterm Primary Election Calendar**\
+`See the state-by-state schedule for every primary leading up to the midterm election.`\
+https://nytimes.com/interactive/2026/us/elections/2026-election-calendar.html
+
 **NFL is evaluating options for broadcast schedule on Thanksgiving weekend**\
 `The Sports Broadcasting Act of 1961 prevents the NFL from scheduling evening games on Black Friday. `\
 https://nytimes.com/athletic/6861951/2025/12/04/second-nfl-black-friday-game-goodell/

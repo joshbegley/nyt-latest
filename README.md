@@ -1,3 +1,19 @@
+**How to watch South Carolina vs. Louisville women's basketball: Time, TV, streaming**\
+`Find out how to watch the South Carolina Gamecocks play the Louisville Cardinals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6862223/2025/12/04/south-carolina-vs-louisville-stream-how-to-watch-dec-4/
+
+**How to watch North Carolina vs. Texas women's basketball: Time, TV, streaming**\
+`Find out how to watch the North Carolina Tar Heels play the Texas Longhorns, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6862219/2025/12/04/north-carolina-vs-texas-stream-how-to-watch-dec-4/
+
+**As Trump Threatens to Leave North American Deal, Groups Urge Him to ‘Do No Harm’**\
+`Hearings that began Wednesday in Washington reflected anxiety over the future of the U.S.-Mexico-Canada trade pact and whether the president could end up scrapping it.`\
+https://nytimes.com/2025/12/04/business/economy/trump-north-american-trade-deal.html
+
+**Until Saturday: Unprecedented recruiting 'disaster'**\
+`Until Saturday is The Athletic's free college football newsletter.`\
+https://nytimes.com/athletic/6862134/2025/12/04/signing-day-penn-state-coaching-search-until-saturday/
+
 **Beans and Greens and Vodka**\
 `That is, beans and greens alla vodka, a five-star Ali Slagle reader favorite.`\
 https://nytimes.com/2025/12/04/dining/beans-and-greens-and-vodka.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6862011/2025/12/04/mauricio-pochettino-usmnt-world-
 **California Bear Makes Crawl Space His Home**\
 `A California man discovered a 550-pound black bear moved into the crawl space of his house by installing a security camera in June after finding the underside of his house in disarray.`\
 https://nytimes.com/video/us/100000010564765/california-bear-crawl-space.html
-
-**Arsenal agree deal to sign 16-year-old Ecuador international twins**\
-`Edwin is predominantly a right-sided wide forward and Holger is an attacking midfielder who is also capable of playing on the left.`\
-https://nytimes.com/athletic/6851983/2025/12/04/arsenal-transfers-edwin-quintero-holger/
-
-**Jennifer Packer: Art at the Cosmic Edges of Longing**\
-`Where does a painter’s grief go? Onto the canvas, in spectral realms.`\
-https://nytimes.com/2025/12/04/arts/design/jennifer-packer-grief-painting-sikkema.html
-
-**The Bounce: 4 questions on the CP3 drama. Plus, what's up with Giannis and the Bucks?**\
-`Zach Harper catches you up on the latest NBA news in our newsletter.`\
-https://nytimes.com/athletic/6861886/2025/12/04/chris-paul-giannis-antetokounmpo-nba-the-bounce/
-
-**Fantasy football injuries, inactives, cheat sheet Week 14**\
-`Fantasy football relevant injuries and their impact, weather reports and game previews. Plus, Ciely's Week 14 player rankings and more.`\
-https://nytimes.com/athletic/6856484/2025/12/04/fantasy-football-injuries-inactives-cheat-sheet-week-14/
 
