@@ -1,3 +1,7 @@
+**Eagles' Carter undergoes procedure on both shoulders, out vs. Chargers**\
+`Eagles DC Vic Fangio said Carter was playing through his shoulder ailments but that it was affecting his play, especially against the run.`\
+https://nytimes.com/athletic/6862540/2025/12/04/eagles-jalen-carter-procedure-shoulder-injury/
+
 **Ciara Takes Center Stage At a Night of Dancing**\
 `Alvin Ailey’s annual gala began with suits and bare chests on the red carpet and ended with dancing to Madonna’s “Like a Prayer.”`\
 https://nytimes.com/2025/12/04/style/ciara-alvin-ailey-gala.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6862423/2025/12/04/nascar-trial-steve-odonnell-mich
 **‘Five Nights at Freddy’s 2’ Review: The Robots Are Malfunctioning (Again)**\
 `The bigger-budget follow-up to last year’s abysmal cult horror hit about haunted animatronic puppets is, at best, marginally scarier.`\
 https://nytimes.com/2025/12/04/movies/five-nights-at-freddys-2-review.html
-
-**Bipartisan House Group Proposes Long-Shot Health Care Plan**\
-`Republicans and Democrats released a two-year plan to scale back and extend expiring Affordable Care Act subsidies, but it faces long odds in the G.O.P.-led House.`\
-https://nytimes.com/2025/12/04/us/politics/obamacare-aca-subsidies-house-congress.html
 

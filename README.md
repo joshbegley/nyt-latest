@@ -1,3 +1,7 @@
+**Steve Cropper: 9 Essential Songs**\
+`An architect of Memphis soul, Cropper made his guitar sing and sting. And as a songwriter, he collaborated on more than a few indelible anthems.`\
+https://nytimes.com/2025/12/04/arts/music/steve-cropper-songs.html
+
 **Eagles' Carter undergoes procedure on both shoulders, out vs. Chargers**\
 `Eagles DC Vic Fangio said Carter was playing through his shoulder ailments but that it was affecting his play, especially against the run.`\
 https://nytimes.com/athletic/6862540/2025/12/04/eagles-jalen-carter-procedure-shoulder-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/04/health/blood-glucose-monitor-recall-abbott.html
 **NASCAR's Steve O'Donnell, key figure in charter deals, takes stand on Day 4 of trial**\
 `NASCAR's president was questioned about how early signs that CEO Jim France was flexible on the sport's model didn't quite materialize.`\
 https://nytimes.com/athletic/6862423/2025/12/04/nascar-trial-steve-odonnell-michael-jordan-bob-jenkins/
-
-**‘Five Nights at Freddy’s 2’ Review: The Robots Are Malfunctioning (Again)**\
-`The bigger-budget follow-up to last year’s abysmal cult horror hit about haunted animatronic puppets is, at best, marginally scarier.`\
-https://nytimes.com/2025/12/04/movies/five-nights-at-freddys-2-review.html
 

@@ -1,3 +1,7 @@
+**Eagles' Carter undergoes procedure on both shoulders, out vs. Chargers**\
+`Eagles DC Vic Fangio said Carter was playing through his shoulder ailments but that it was affecting his play, especially against the run.`\
+https://nytimes.com/athletic/6862540/2025/12/04/eagles-jalen-carter-procedure-shoulder-injury/
+
 **Ciara Takes Center Stage At a Night of Dancing**\
 `Alvin Ailey’s annual gala began with suits and bare chests on the red carpet and ended with dancing to Madonna’s “Like a Prayer.”`\
 https://nytimes.com/2025/12/04/style/ciara-alvin-ailey-gala.html
