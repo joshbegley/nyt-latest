@@ -1,3 +1,11 @@
+**NHL panic meter: How close are these 5 Western teams to missing the playoffs?**\
+`Some teams that seemed playoff-bound to start the season now look troubled. Which ones can turn it around?`\
+https://nytimes.com/athletic/6860057/2025/12/04/nhl-playoffs-panic-meter-western-conference/
+
+**The Pulse: Inside Chris Paul’s shocking exit**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6859244/2025/12/04/chris-paul-clippers-the-pulse/
+
 **Why hope for a Chiefs turnaround comes from Andy Reid's past — and the Bills**\
 `The Chiefs have plenty of playoff ground to make up after a 6-6 start. Two teams, though, offer hope.`\
 https://nytimes.com/athletic/6858884/2025/12/04/chiefs-turnaround-chances-andy-reid/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6859678/2025/12/04/panthers-bryce-young-rico-dowdle
 **Kyle Schwarber vs. Pete Alonso: Which free agent slugger fits the Red Sox better?**\
 `Not signing one of the two hitters could be a major missed opportunity for a team with aspirations of contending for a championship.`\
 https://nytimes.com/athletic/6860529/2025/12/04/boston-red-sox-kyle-schwarber-pete-alonso/
-
-**Newcastle's new leadership have a five-year plan to become No 1. Is it credible?**\
-`David Hopkinson, the CEO, and Ross Wilson, the sporting director, outline their ambitions for making the club competitive with the elite`\
-https://nytimes.com/athletic/6855714/2025/12/04/newcastle-leadership-plan/
-
-**Rosenthal: As Baseball Hall of Fame standards change, voters must recalibrate with them**\
-`Will more players with shorter career peaks find their way into Cooperstown over the next few years?`\
-https://nytimes.com/athletic/6860580/2025/12/04/baseball-hall-of-fame-evolution-mattingly-murphy/
 
