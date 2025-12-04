@@ -1,3 +1,7 @@
+**Suspect Arrested in Inquiry Into Pipe Bombs in D.C. Ahead of Jan. 6 Riot**\
+`The suspect’s identity remained unclear for the moment, but the arrest could ultimately provide an answer to one of the most tantalizing mysteries arising from the Jan. 6. riot.`\
+https://nytimes.com/2025/12/04/us/politics/washington-dc-pipe-bombs-arrest-jan-6-fbi.html
+
 **Larry Fink and Brian Armstrong Are Not Worried About Another Crypto Winter**\
 `The chief executives of BlackRock and Coinbase discuss why they believe the future of crypto is bright.`\
 https://nytimes.com/2025/12/04/podcasts/larry-fink-and-brian-armstrong-are-not-worried-about-another-crypto-winter.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6860910/2025/12/04/ravens-steelers-rivalry-afc-nort
 **Deadly Attacks in Gaza Test Cease-Fire as Body of Another Captive Is Returned**\
 `Israel launched a military strike after it said Hamas militants attacked its soldiers, the latest clashes in the two months since a truce was signed.`\
 https://nytimes.com/2025/12/04/world/middleeast/gaza-strikes-ceasefire.html
-
-**Cambodia Shuts Down Group That Laundered Billions in Scam Profits**\
-`A New York Times investigation in March found that Huione’s group of companies were at the heart of a global money laundering network for fraudsters, scammers and hackers.`\
-https://nytimes.com/2025/12/04/world/asia/cambodia-huione-shuts-money-laundering.html
 

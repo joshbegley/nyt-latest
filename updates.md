@@ -1,3 +1,7 @@
+**Suspect Arrested in Inquiry Into Pipe Bombs in D.C. Ahead of Jan. 6 Riot**\
+`The suspect’s identity remained unclear for the moment, but the arrest could ultimately provide an answer to one of the most tantalizing mysteries arising from the Jan. 6. riot.`\
+https://nytimes.com/2025/12/04/us/politics/washington-dc-pipe-bombs-arrest-jan-6-fbi.html
+
 **Larry Fink and Brian Armstrong Are Not Worried About Another Crypto Winter**\
 `The chief executives of BlackRock and Coinbase discuss why they believe the future of crypto is bright.`\
 https://nytimes.com/2025/12/04/podcasts/larry-fink-and-brian-armstrong-are-not-worried-about-another-crypto-winter.html
