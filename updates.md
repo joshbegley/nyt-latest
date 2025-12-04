@@ -1,3 +1,7 @@
+**Arsenal needed Ben White to step up against Brentford - he did exactly that**\
+`One of Mikel Arteta's most-reliable players of the past few seasons has waited patiently for a chance to perform in the Premier League`\
+https://nytimes.com/athletic/6860253/2025/12/04/arsenal-brentford-ben-white-return-assist/
+
 **The New York Times in Print for Thursday, Dec. 4, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/12/04/todays-new-york-times
