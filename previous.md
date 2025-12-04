@@ -6,7 +6,7 @@ https://nytimes.com/athletic/6860367/2025/12/03/siena-lacrosse-liam-gleason-deat
 `Agent Ryan Hamill testified that after Skaggs kicked a Percocet addiction in 2013, he believed the pitcher was clean. `\
 https://nytimes.com/athletic/6860711/2025/12/03/tyler-skaggs-agent-surgeon-testimony-drug-use/
 
-**NWSL commissioner rejects Spirit's offer to keep Trinity Rodman in the league**\
+**NWSL rejects Spirit's offer to keep Trinity Rodman in the league: Sources**\
 `According to sources, the NWSL Players Association has filed a grievance with the league on Rodman’s behalf . `\
 https://nytimes.com/athletic/6860740/2025/12/03/nwsl-spirit-trinity-rodman-offer-rejected/
 

@@ -1,3 +1,7 @@
+**NWSL rejects Spirit's offer to keep Trinity Rodman in the league: Sources**\
+`According to sources, the NWSL Players Association has filed a grievance with the league on Rodman’s behalf . `\
+https://nytimes.com/athletic/6860740/2025/12/03/nwsl-spirit-trinity-rodman-offer-rejected/
+
 **Siena men's lacrosse team mourns tragic death of head coach Liam Gleason**\
 `The MAAC champion coach died three days after suffering a traumatic brain injury at his home.`\
 https://nytimes.com/athletic/6860367/2025/12/03/siena-lacrosse-liam-gleason-death/
