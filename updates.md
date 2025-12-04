@@ -1,3 +1,7 @@
+**Arsenal needed Ben White to step up against Brentford – he did exactly that**\
+`One of Mikel Arteta's most-reliable players of the past few seasons has waited patiently for a chance to perform in the Premier League`\
+https://nytimes.com/athletic/6860253/2025/12/04/arsenal-brentford-ben-white-return-assist/
+
 **Chelsea's display at Leeds shows why they are not Premier League title contenders yet**\
 `Enzo Maresca rested some key players after Chelsea's impressive performances against Barcelona and Arsenal – it did not work out `\
 https://nytimes.com/athletic/6860844/2025/12/04/chelsea-premier-league-bid-leeds-defeat/
