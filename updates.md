@@ -1,3 +1,7 @@
+**Review: When Club Dance Bumps Into Latin Jazz**\
+`Ephrat Asherie’s “Shadow Cities” pairs her group’s adept dancers with live music by the great Arturo O’Farrill.`\
+https://nytimes.com/2025/12/04/arts/dance/review-ephrat-asherie-arturo-ofarrill-shadow-cities.html
+
 **Messi hopes to be at 2026 World Cup: 'At worst, I'll be there watching'**\
 `Messi, 38, had said during the 2022 World Cup that the tournament in Qatar, which Argentina went on to win, would be his last.`\
 https://nytimes.com/athletic/6862042/2025/12/04/lionel-messi-world-cup-argentina-2026/
