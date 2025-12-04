@@ -1,3 +1,11 @@
+**Team USA’s red, white and blue uniforms revealed for 2026 Winter Olympics**\
+`The Milan Cortina Winter Olympics will be held from Feb. 6 to 22.`\
+https://nytimes.com/athletic/6862584/2025/12/04/team-usa-uniforms-2026-winter-olympics/
+
+**Meta Weighs Cuts to Its Metaverse Unit**\
+`Meta plans to direct its investments to focus on wearables like its augmented reality glasses but does not plan to abandon building the metaverse.`\
+https://nytimes.com/2025/12/04/technology/meta-cuts-metaverse-unit.html
+
 **How to watch Jazz vs. Nets: Time, TV, streaming**\
 `Find out how to watch the Utah Jazz play the Brooklyn Nets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6862869/2025/12/04/jazz-vs-nets-stream-how-to-watch-dec-4/
