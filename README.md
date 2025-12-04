@@ -1,3 +1,7 @@
+**Players union says NWSL engaged in 'flagrant' violation of Trinity Rodman’s free agent rights**\
+`The NWSLPA says the league violated at least five different sections of the current collective bargaining agreement.`\
+https://nytimes.com/athletic/6861921/2025/12/04/trinity-rodman-nwsl-free-agent-players-union/
+
 **Dyche unconcerned by Everton reception: 'They know the work we did'**\
 `Dyche faces his former side Everton on Saturday with Nottingham Forest.`\
 https://nytimes.com/athletic/6861905/2025/12/04/sean-dyche-everton-fan-return/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6861561/2025/12/04/root-ashes-england-australia-cen
 **Michael Phelps criticism. Home Olympics looming. USA Swimming's new boss has a big task**\
 `The 2028 L.A. Olympics are something "we can't f— up," U.S. swimmer Regan Smith says. Kevin Ring is the new CEO in charge of assuring that.`\
 https://nytimes.com/athletic/6859254/2025/12/04/michael-phelps-usa-swimming-kevin-ring-olympics/
-
-**Devin Williams has social media message for Yankees fans**\
-`Devin Williams' difficult run in pinstripes is over. The reliever had some words for Yankees fans.`\
-https://nytimes.com/athletic/6861792/2025/12/04/devin-williams-yankees-mets-social/
 
