@@ -1,3 +1,19 @@
+**How to watch South Carolina vs. Louisville women's basketball: Time, TV, streaming**\
+`Find out how to watch the South Carolina Gamecocks play the Louisville Cardinals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6862223/2025/12/04/south-carolina-vs-louisville-stream-how-to-watch-dec-4/
+
+**How to watch North Carolina vs. Texas women's basketball: Time, TV, streaming**\
+`Find out how to watch the North Carolina Tar Heels play the Texas Longhorns, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6862219/2025/12/04/north-carolina-vs-texas-stream-how-to-watch-dec-4/
+
+**As Trump Threatens to Leave North American Deal, Groups Urge Him to ‘Do No Harm’**\
+`Hearings that began Wednesday in Washington reflected anxiety over the future of the U.S.-Mexico-Canada trade pact and whether the president could end up scrapping it.`\
+https://nytimes.com/2025/12/04/business/economy/trump-north-american-trade-deal.html
+
+**Until Saturday: Unprecedented recruiting 'disaster'**\
+`Until Saturday is The Athletic's free college football newsletter.`\
+https://nytimes.com/athletic/6862134/2025/12/04/signing-day-penn-state-coaching-search-until-saturday/
+
 **Beans and Greens and Vodka**\
 `That is, beans and greens alla vodka, a five-star Ali Slagle reader favorite.`\
 https://nytimes.com/2025/12/04/dining/beans-and-greens-and-vodka.html
