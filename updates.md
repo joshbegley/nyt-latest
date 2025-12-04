@@ -1,3 +1,19 @@
+**Taxi**\
+`What is this vehicle and why has it been in the news? What is your opinion of it?`\
+https://nytimes.com/2025/12/04/learning/taxi.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/12/04/crosswords/spelling-bee-forum.html
+
+**She Was 8 When She Fled the Nazis. After 86 Years, It Inspired Her Art.**\
+`Cornelia Foss, better known as a confidante to other artists than as an artist herself, has put aside landscape painting for something far more visceral.`\
+https://nytimes.com/2025/12/04/nyregion/cornelia-foss-artist-little-red.html
+
+**As Hochul Considers an A.I. Bill, Its Sponsor Throws Her a Fund-Raiser**\
+`Gov. Kathy Hochul received nearly $250,000 for her re-election campaign from donors eager to have her sign a bill that would regulate the A.I. field in New York.`\
+https://nytimes.com/2025/12/04/nyregion/hochul-ai-bill-bores.html
+
 **Daniel Farke has bought himself priceless time by using a system that works**\
 `Leeds United have found a formula that they need to keep using - an out-of-sorts Liverpool are next`\
 https://nytimes.com/athletic/6860526/2025/12/04/leeds-chelsea-daniel-farke-analysis/

@@ -1,3 +1,19 @@
+**Taxi**\
+`What is this vehicle and why has it been in the news? What is your opinion of it?`\
+https://nytimes.com/2025/12/04/learning/taxi.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/12/04/crosswords/spelling-bee-forum.html
+
+**She Was 8 When She Fled the Nazis. After 86 Years, It Inspired Her Art.**\
+`Cornelia Foss, better known as a confidante to other artists than as an artist herself, has put aside landscape painting for something far more visceral.`\
+https://nytimes.com/2025/12/04/nyregion/cornelia-foss-artist-little-red.html
+
+**As Hochul Considers an A.I. Bill, Its Sponsor Throws Her a Fund-Raiser**\
+`Gov. Kathy Hochul received nearly $250,000 for her re-election campaign from donors eager to have her sign a bill that would regulate the A.I. field in New York.`\
+https://nytimes.com/2025/12/04/nyregion/hochul-ai-bill-bores.html
+
 **Chelsea's display at Leeds shows why they are not Premier League title contenders yet**\
 `Enzo Maresca rested some key players after Chelsea's impressive performances against Barcelona and Arsenal – it did not work out `\
 https://nytimes.com/athletic/6860844/2025/12/04/chelsea-premier-league-bid-leeds-defeat/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/12/04/arts/television/late-night-trump-pardon-honduras.
 **Word of the Day: prosperity**\
 `This word has appeared in 600 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/12/04/learning/word-of-the-day-prosperity.html
-
-**Daniel Farke has bought himself priceless time by using a system that works**\
-`Leeds United have found a formula that they need to keep using - an out-of-sorts Liverpool are next`\
-https://nytimes.com/athletic/6860526/2025/12/04/leeds-chelsea-daniel-farke-analysis/
-
-**How Amen Thompson has become Rockets' floor raiser with his energy and athleticism**\
-`Thompson's willingness to make plays that often go unnoticed is part of what makes him such an important player.`\
-https://nytimes.com/athletic/6860934/2025/12/04/amen-thompson-rockets-energy-athleticism/
-
-**Arsenal needed Ben White to step up against Brentford – he did exactly that**\
-`One of Mikel Arteta's most-reliable players of the past few seasons has waited patiently for a chance to perform in the Premier League`\
-https://nytimes.com/athletic/6860253/2025/12/04/arsenal-brentford-ben-white-return-assist/
-
-**The New York Times in Print for Thursday, Dec. 4, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/12/04/todays-new-york-times
 
