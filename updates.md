@@ -1,3 +1,11 @@
+**Haas F1 adds Toyota Gazoo Racing as its title sponsor for 2026 season**\
+`The news comes as Haas shows signs of competitive revival, and a year after the two sides' initial partnership began`\
+https://nytimes.com/athletic/6862301/2025/12/04/haas-f1-toyota-gazoo-racing-title-sponsor/
+
+**American Cancer Society Endorses Pap Smear Alternative**\
+`The recommendation comes after the first at-home test, a self-swab, received federal approval earlier this year.`\
+https://nytimes.com/2025/12/04/well/self-swab-tests-cervical-cancer.html
+
 **College football picks ATS for all 9 conference title games**\
 `Conference championship week is here, with a couple of monster matchups on Saturday. See which teams our staff are confident about.`\
 https://nytimes.com/athletic/6856663/2025/12/04/college-football-picks-against-the-spread-conference-title-games/

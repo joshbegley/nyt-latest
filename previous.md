@@ -1,3 +1,11 @@
+**Haas F1 adds Toyota Gazoo Racing as its title sponsor for 2026 season**\
+`The news comes as Haas shows signs of competitive revival, and a year after the two sides' initial partnership began`\
+https://nytimes.com/athletic/6862301/2025/12/04/haas-f1-toyota-gazoo-racing-title-sponsor/
+
+**American Cancer Society Endorses Pap Smear Alternative**\
+`The recommendation comes after the first at-home test, a self-swab, received federal approval earlier this year.`\
+https://nytimes.com/2025/12/04/well/self-swab-tests-cervical-cancer.html
+
 **College football picks ATS for all 9 conference title games**\
 `Conference championship week is here, with a couple of monster matchups on Saturday. See which teams our staff are confident about.`\
 https://nytimes.com/athletic/6856663/2025/12/04/college-football-picks-against-the-spread-conference-title-games/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6862374/2025/12/04/giannis-antetokounmpo-bucks-calf
 **Why it's a big deal that the Big Ten title game is a No. 1 vs. No. 2 blockbuster**\
 `If the showdown between No. 1 Ohio State and No. 2 Indiana follows the trend of its predecessors, it could have a long-lasting legacy.`\
 https://nytimes.com/athletic/6861426/2025/12/04/big-ten-game-ohio-state-indiana-history/
-
-**There’s Never Been a Better Time to Quit Caffeine**\
-`Cafes across the United States are embracing the low- and no-caffeine lifestyle, with options that are a far cry from dusty tea bags and rewarmed decaf.`\
-https://nytimes.com/2025/12/04/dining/caffeine-alternative-drinks-coffee.html
-
-**Women's Bundesliga clubs announce breakaway in split from German FA**\
-`The DFB had initially agreed to invest €100m to the new organisation but the clubs say they have decided to move forward without it. `\
-https://nytimes.com/athletic/6862170/2025/12/04/bundesliga-women-germany-fa-split/
 
