@@ -1,3 +1,7 @@
+**Brighton undermined by unfamiliar fragility to ruin Lewis Dunk's landmark night**\
+`A team who had been stingy defensively of late caved in four times in 49 minutes, with their set-piece resilience put under the microscope`\
+https://nytimes.com/athletic/6857999/2025/12/04/brighton-dunk-hurzeler-euvrard-villa/
+
 **Nathan Trott on his time at West Ham, the support of Mark Noble, and the myth about his move**\
 `It is almost 10 years since goalkeeper Nathan Trott left his native Bermuda to embark on a new adventure at West Ham United`\
 https://nytimes.com/athletic/6854964/2025/12/04/nathan-trott-west-ham-interview/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6858208/2025/12/04/lens-ligue-1-table/
 **Anne Flower, the doctor who breaks ultramarathon records between ER shifts**\
 `ER doctor Anne Flower has won four ultramarathon races this year but won't give up the day job`\
 https://nytimes.com/athletic/6839510/2025/12/04/anne-flower-ultrarunner-interview/
-
-**How heat, rain and altitude will affect players and fans at each World Cup city**\
-`This is the biggest World Cup yet, staged in three countries and across 16 cities, so what can players and fans epect?`\
-https://nytimes.com/athletic/6844657/2025/12/04/world-cup-2026-climate-heat-rain-altitude/
 

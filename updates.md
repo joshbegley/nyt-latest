@@ -1,3 +1,7 @@
+**Brighton undermined by unfamiliar fragility to ruin Lewis Dunk's landmark night**\
+`A team who had been stingy defensively of late caved in four times in 49 minutes, with their set-piece resilience put under the microscope`\
+https://nytimes.com/athletic/6857999/2025/12/04/brighton-dunk-hurzeler-euvrard-villa/
+
 **Nathan Trott on his time at West Ham, the support of Mark Noble, and the myth about his move**\
 `It is almost 10 years since goalkeeper Nathan Trott left his native Bermuda to embark on a new adventure at West Ham United`\
 https://nytimes.com/athletic/6854964/2025/12/04/nathan-trott-west-ham-interview/
