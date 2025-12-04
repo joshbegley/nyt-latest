@@ -1,3 +1,7 @@
+**Michael Phelps criticism. Home Olympics looming. USA Swimming's new boss has a big task**\
+`The 2028 L.A. Olympics are something "we can't f--- up," U.S. swimmer Regan Smith says. Kevin Ring is the new CEO in charge of assuring that`\
+https://nytimes.com/athletic/6859254/2025/12/04/michael-phelps-usa-swimming-kevin-ring-olympics/
+
 **Players union says NWSL engaged in 'flagrant' violation of Trinity Rodman’s free agent rights**\
 `The NWSLPA says the league violated at least five different sections of the current collective bargaining agreement.`\
 https://nytimes.com/athletic/6861921/2025/12/04/trinity-rodman-nwsl-free-agent-players-union/

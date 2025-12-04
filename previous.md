@@ -35,6 +35,6 @@ https://nytimes.com/column/turning-points-2026
 https://nytimes.com/athletic/6861561/2025/12/04/root-ashes-england-australia-century-gabba/
 
 **Michael Phelps criticism. Home Olympics looming. USA Swimming's new boss has a big task**\
-`The 2028 L.A. Olympics are something "we can't f— up," U.S. swimmer Regan Smith says. Kevin Ring is the new CEO in charge of assuring that.`\
+`The 2028 L.A. Olympics are something "we can't f--- up," U.S. swimmer Regan Smith says. Kevin Ring is the new CEO in charge of assuring that`\
 https://nytimes.com/athletic/6859254/2025/12/04/michael-phelps-usa-swimming-kevin-ring-olympics/
 
