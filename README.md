@@ -1,3 +1,7 @@
+**Ruined Rice Fields and Broken Rail Lines: Sri Lanka Counts Cost of Cyclone**\
+`Officials estimate the damage runs into billions of dollars, a headache for the island nation just recovering from an economic crash.`\
+https://nytimes.com/2025/12/04/world/asia/sri-lanka-cyclone-flood-damage.html
+
 **Bears vs. Packers and five more Week 14 games that have biggest playoff races impact**\
 `A loaded Week 14 slate features a handful of games in which the outcomes will have massive implications on the playoff picture.`\
 https://nytimes.com/athletic/6855590/2025/12/04/nfl-week-14-playoffs-races-bears-packers-cowboys-lions/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/04/world/middleeast/israel-west-bank-settlements-pal
 **Call him Guga: Gustavo Kuerten's rise to the top of tennis, 25 years later**\
 `Kuerten remains the last South American player to reach the sport's summit. He believes another may climb up soon.`\
 https://nytimes.com/athletic/6858968/2025/12/04/gustavo-kuerten-tennis/
-
-**Spain Sees Itself as a Beacon for Immigrants. So Do Many Latin Americans.**\
-`The government presents its migrant policy as a welcoming alternative to U.S. crackdowns. But activists say those arriving on boats from Africa are excluded from that embrace.`\
-https://nytimes.com/2025/12/04/world/europe/spain-migration-latin-america.html
 
