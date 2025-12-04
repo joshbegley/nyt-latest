@@ -6,7 +6,7 @@ https://nytimes.com/athletic/6862011/2025/12/04/mauricio-pochettino-usmnt-world-
 `A California man discovered a 550-pound black bear moved into the crawl space of his house by installing a security camera in June after finding the underside of his house in disarray.`\
 https://nytimes.com/video/us/100000010564765/california-bear-crawl-space.html
 
-**Arsenal to sign Ecuador youth international twins Edwin and Holger Quintero**\
+**Arsenal agree deal to sign 16-year-old Ecuador international twins**\
 `Edwin is predominantly a right-sided wide forward and Holger is an attacking midfielder who is also capable of playing on the left.`\
 https://nytimes.com/athletic/6851983/2025/12/04/arsenal-transfers-edwin-quintero-holger/
 

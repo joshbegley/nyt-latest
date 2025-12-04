@@ -1,3 +1,7 @@
+**USA coach Pochettino has 'zero stress' entering 2026 World Cup draw**\
+`The unknown about the USA's World Cup path will be sorted soon enough, but the manager isn't worried about what the draw produces`\
+https://nytimes.com/athletic/6862011/2025/12/04/mauricio-pochettino-usmnt-world-cup-draw-preview/
+
 **California Bear Makes Crawl Space His Home**\
 `A California man discovered a 550-pound black bear moved into the crawl space of his house by installing a security camera in June after finding the underside of his house in disarray.`\
 https://nytimes.com/video/us/100000010564765/california-bear-crawl-space.html
