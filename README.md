@@ -1,3 +1,7 @@
+**Former F.D.A. Commissioners Sound Alarm on Plan to Change Vaccine Policy**\
+`Twelve former commissioners, in a New England Journal of Medicine article, said they were “deeply concerned” by a leaked memo from the Trump administration’s chief scientific officer.`\
+https://nytimes.com/2025/12/03/health/da-commissioners-vaccine-policy-concerns.html
+
 **5 Takeaways From the 2025 DealBook Summit**\
 `President Trump’s economic policies and artificial intelligence were among the central topics at the gathering of business and political leaders.`\
 https://nytimes.com/2025/12/03/business/dealbook-summit-kirk-netanyahu-mrbeast.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6859950/2025/12/03/chris-paul-clippers-sent-home-bl
 **Veteran reliever Emilio Pagán returns to Reds on two-year, $20M deal: Source**\
 `Pagán took over the Reds' closer role early in the 2025 season and had the second-most saves in the National League.`\
 https://nytimes.com/athletic/6837169/2025/12/03/mlb-free-agency-emilio-pagan-reds/
-
-**Lionel Messi's legacy doesn't need an Inter Miami MLS Cup title. Or does it?**\
-`Messi has won — and lost — bigger games than Saturday's MLS Cup final. But at his level of greatness, every opportunity counts.`\
-https://nytimes.com/athletic/6854125/2025/12/03/messi-mls-cup-final-legacy-inter-miami/
 
