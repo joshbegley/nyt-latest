@@ -1,3 +1,7 @@
+**New York Giants fan survey: Should Joe Schoen return as GM in 2026?**\
+`We want to know what you think about the current state of the Giants and what they should do to improve in the future. `\
+https://nytimes.com/athletic/6858964/2025/12/04/new-york-giants-survey-joe-schoen/
+
 **Team USA’s red, white and blue uniforms revealed for 2026 Winter Olympics**\
 `The Milan Cortina Winter Olympics will be held from Feb. 6 to 22.`\
 https://nytimes.com/athletic/6862584/2025/12/04/team-usa-uniforms-2026-winter-olympics/
