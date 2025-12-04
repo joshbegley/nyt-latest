@@ -1,3 +1,11 @@
+**Chargers' Justin Herbert still plans to play vs. Eagles after undergoing hand surgery**\
+`“Obviously I’m doing everything I can to be out there,” Herbert said. “I’d fight through anything for those guys."`\
+https://nytimes.com/athletic/6860170/2025/12/03/chargers-justin-herbert-injury-surgery-eagles/
+
+**How Chris Paul's short-lived reunion with the Clippers fell apart**\
+`Chris Paul returned to a Clippers team many believed could compete for a title. Instead, LA is 5-16 and Paul is no longer with the team.`\
+https://nytimes.com/athletic/6860282/2025/12/03/chris-paul-clippers-return-fall-explained/
+
 **Former F.D.A. Commissioners Sound Alarm on Plan to Change Vaccine Policy**\
 `Twelve former commissioners, in a New England Journal of Medicine article, said they were “deeply concerned” by a leaked memo from the Trump administration’s chief scientific officer.`\
 https://nytimes.com/2025/12/03/health/da-commissioners-vaccine-policy-concerns.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/03/us/politics/trump-russia-ukraine-deadline.html
 **Gunman Killed and 3 Officers Hurt in Shooting at Omaha Gas Station**\
 `Police say the man, whose identity has yet to be released, shot another man at a grocery store across town in what appeared to be a random attack.`\
 https://nytimes.com/2025/12/03/us/quiktrip-shooting-omaha-nebraska.html
-
-**As Clippers' drama persists, Chris Paul shares laugh with former Lob City teammates**\
-`How is Paul, a future Hall of Famer, handling his sudden fallout with the Clippers? Sharing a laugh with his former Lob City teammates.`\
-https://nytimes.com/athletic/6859950/2025/12/03/chris-paul-clippers-sent-home-blake-griffin-deandre-jordan/
-
-**Veteran reliever Emilio Pagán returns to Reds on two-year, $20M deal: Source**\
-`Pagán took over the Reds' closer role early in the 2025 season and had the second-most saves in the National League.`\
-https://nytimes.com/athletic/6837169/2025/12/03/mlb-free-agency-emilio-pagan-reds/
 

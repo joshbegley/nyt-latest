@@ -1,3 +1,11 @@
+**Chargers' Justin Herbert still plans to play vs. Eagles after undergoing hand surgery**\
+`“Obviously I’m doing everything I can to be out there,” Herbert said. “I’d fight through anything for those guys."`\
+https://nytimes.com/athletic/6860170/2025/12/03/chargers-justin-herbert-injury-surgery-eagles/
+
+**How Chris Paul's short-lived reunion with the Clippers fell apart**\
+`Chris Paul returned to a Clippers team many believed could compete for a title. Instead, LA is 5-16 and Paul is no longer with the team.`\
+https://nytimes.com/athletic/6860282/2025/12/03/chris-paul-clippers-return-fall-explained/
+
 **Former F.D.A. Commissioners Sound Alarm on Plan to Change Vaccine Policy**\
 `Twelve former commissioners, in a New England Journal of Medicine article, said they were “deeply concerned” by a leaked memo from the Trump administration’s chief scientific officer.`\
 https://nytimes.com/2025/12/03/health/da-commissioners-vaccine-policy-concerns.html
