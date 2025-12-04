@@ -1,3 +1,7 @@
+**Landslides swept away whole villages in Sri Lanka**\
+`Text by Atul Loke and Pamodi Waravita`\
+https://nytimes.com/card/2025/12/04/world/asia/sri-lanka-cyclone-landslide
+
 **Ruined Rice Fields and Broken Rail Lines: Sri Lanka Counts Cost of Cyclone**\
 `Officials estimate the damage runs into billions of dollars, a headache for the island nation just recovering from an economic crash.`\
 https://nytimes.com/2025/12/04/world/asia/sri-lanka-cyclone-flood-damage.html
@@ -33,8 +37,4 @@ https://nytimes.com/issue/todaysinyt/2025/12/04/todays-new-york-times-internatio
 **How Israel’s Settlement Surge in the West Bank Is Displacing Palestinians**\
 `The Israeli government authorized 22 settlements in May, the largest expansion in decades, and Palestinian families are now being forced from their homes.`\
 https://nytimes.com/2025/12/04/world/middleeast/israel-west-bank-settlements-palestinians.html
-
-**Call him Guga: Gustavo Kuerten's rise to the top of tennis, 25 years later**\
-`Kuerten remains the last South American player to reach the sport's summit. He believes another may climb up soon.`\
-https://nytimes.com/athletic/6858968/2025/12/04/gustavo-kuerten-tennis/
 

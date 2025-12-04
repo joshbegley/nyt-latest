@@ -1,3 +1,7 @@
+**Ruined Rice Fields and Broken Rail Lines: Sri Lanka Counts Cost of Cyclone**\
+`Officials estimate the damage runs into billions of dollars, a headache for the island nation just recovering from an economic crash.`\
+https://nytimes.com/2025/12/04/world/asia/sri-lanka-cyclone-flood-damage.html
+
 **Bears vs. Packers and five more Week 14 games that have biggest playoff races impact**\
 `A loaded Week 14 slate features a handful of games in which the outcomes will have massive implications on the playoff picture.`\
 https://nytimes.com/athletic/6855590/2025/12/04/nfl-week-14-playoffs-races-bears-packers-cowboys-lions/
