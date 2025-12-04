@@ -1,3 +1,7 @@
+**Giannis Antetokounmpo leaves Bucks-Pistons game after falling to the ground**\
+`Antetokounmpo collapsed to the floor in an apparent noncontact injury in the Bucks' matchup against the Pistons.`\
+https://nytimes.com/athletic/6860315/2025/12/03/giannis-antetokounmpo-exits-game-bucks/
+
 **Trump Renames Institute of Peace for Himself**\
 `Workers installed Mr. Trump’s name to a Washington building on Wednesday, thrusting the institute back into the spotlight as it is set to host the signing of a peace deal between Rwanda and the Democratic Republic of Congo.`\
 https://nytimes.com/2025/12/03/us/politics/trump-us-institute-peace-name.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/03/business/dealbook-summit-kirk-netanyahu-mrbeast.h
 **Newsom Warns That Trump Is ‘Trying to Wreck This Country’**\
 `The California governor weighed in on the 2028 presidential election, and called out executives for “bending the knee” to President Trump.`\
 https://nytimes.com/2025/12/03/business/dealbook/gavin-newsom-trump-2028-election.html
-
-**Are U.S. Boat Strikes Near Venezuela Legal?**\
-`Lawmakers from both parties have been raising questions about the legality of U.S. military strikes on boats near Venezuela. David Sanger, White House and national security correspondent, explains.`\
-https://nytimes.com/video/us/politics/100000010560634/are-us-boat-strikes-near-venezuela-legal.html
 
