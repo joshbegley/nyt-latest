@@ -1,3 +1,11 @@
+**Lawmakers Split on the Military’s Defense of Boat Strikes**\
+`Also, a man was arrested on charges of planting pipe bombs before Jan. 6. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2025/12/04/briefing/boat-strikes-congress-reading-gifts.html
+
+**New Dietary Guidelines Delayed Until Early 2026**\
+`The updated Dietary Guidelines for Americans will not come until the new year, a government official said.`\
+https://nytimes.com/2025/12/04/us/politics/dietary-guidelines-americans.html
+
 **James Madison tabs former Florida coach Billy Napier as next head coach**\
 `Billy Napier wasn't out of work long. The former Florida coach will be back in the Sun Belt in 2026. `\
 https://nytimes.com/athletic/6863272/2025/12/04/james-madison-billy-napier-florida-coach/

@@ -1,3 +1,7 @@
+**Grand Jury Said to Decline to Re-Indict Letitia James**\
+`After a judge dismissed the Trump administration’s first attempt to indict the attorney general of New York State, a new grand jury effort failed, according to people familiar with the matter.`\
+https://nytimes.com/2025/12/04/us/politics/letitia-james-indict-trump.html
+
 **Lawmakers Split on the Military’s Defense of Boat Strikes**\
 `Also, a man was arrested on charges of planting pipe bombs before Jan. 6. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2025/12/04/briefing/boat-strikes-congress-reading-gifts.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6863152/2025/12/04/deion-sanders-colorado-brennan-m
 **N.Y.P.D. Officers Won’t Be Charged in Fatal Shooting of Queens Man**\
 `Win Rozario, who had called 911 in distress, was holding scissors when two police officers shot him. The New York attorney general said it was unlikely the officers would be convicted.`\
 https://nytimes.com/2025/12/04/nyregion/queens-officers-shooting-no-charges.html
-
-**Why The Athletic's Playoff Simulator likes Patriots to win AFC East even more than sportsbooks**\
-`The Athletic's NFL playoff simulator finds betting value in three teams' futures odds. Read to see where the value lies.`\
-https://nytimes.com/athletic/6862331/2025/12/04/nfl-playoffs-odds-patriots-afc-east/
 

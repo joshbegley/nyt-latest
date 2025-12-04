@@ -1,3 +1,11 @@
+**Lawmakers Split on the Military’s Defense of Boat Strikes**\
+`Also, a man was arrested on charges of planting pipe bombs before Jan. 6. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2025/12/04/briefing/boat-strikes-congress-reading-gifts.html
+
+**New Dietary Guidelines Delayed Until Early 2026**\
+`The updated Dietary Guidelines for Americans will not come until the new year, a government official said.`\
+https://nytimes.com/2025/12/04/us/politics/dietary-guidelines-americans.html
+
 **Steelers' season on the brink, Aaron Rodgers and his receivers still searching for chemistry**\
 `The passing game has struggled as Pittsburgh has lost three of four games.`\
 https://nytimes.com/athletic/6863151/2025/12/04/aaron-rodgers-pittsburgh-steelers-chemistry/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/04/nyregion/queens-officers-shooting-no-charges.html
 **Why The Athletic's Playoff Simulator likes Patriots to win AFC East even more than sportsbooks**\
 `The Athletic's NFL playoff simulator finds betting value in three teams' futures odds. Read to see where the value lies.`\
 https://nytimes.com/athletic/6862331/2025/12/04/nfl-playoffs-odds-patriots-afc-east/
-
-**Taiwan’s Leader Warns China Is Getting More Aggressive**\
-`President Lai Ching-te is calling for more military spending.`\
-https://nytimes.com/2025/12/04/podcasts/lai-ching-te-dealbook-summit-2025.html
-
-**MrBeast Isn’t Looking for Controversy**\
-`YouTube’s most popular entertainer reflects on the creator economy.`\
-https://nytimes.com/2025/12/04/podcasts/mrbeast-dealbook-summit-2025.html
 
