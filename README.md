@@ -1,3 +1,27 @@
+**More Than a Million Bags of Cheese Were Recalled. Here’s What That Means.**\
+`A warning over shredded cheese is the latest of hundreds in the U.S. food system. Understanding recalls can help shoppers determine what’s truly dangerous.`\
+https://nytimes.com/2025/12/04/us/cheese-recall.html
+
+**TAFC: EPL's U.S owners and manager plot twist? Plus: Mbappe cooking, Rodman contract rejection**\
+`Today in TAFC: The U.S. owners given pause for thought over coaches. Plus: Mbappe is cooking, will he beat World Cup record?`\
+https://nytimes.com/athletic/6861213/2025/12/04/epls-u-s-owners-and-manager-plot-twist-plus-mbappe-cooking-rodman-contract-rejection/
+
+**2026 NBA mock draft: How deep is this class behind the big 3?**\
+`Caleb Wilson, Kingston Flemings and Cameron Carr are among the big risers a month into the college basketball season.`\
+https://nytimes.com/athletic/6851394/2025/12/04/nba-mock-draft-cameron-boozer-aj-dybantsa-caleb-wilson/
+
+**Hall of Fame committee to have an important say – but not the final one – on Bonds, Clemens**\
+`The pair headlines an eight-player ballot that the Contemporary Era Committee (1980 to the present) will consider this weekend.`\
+https://nytimes.com/athletic/6859693/2025/12/04/hall-of-fame-committee-bonds-clemens/
+
+**What we're hearing about the Dodgers before next week's Winter Meetings**\
+`How the Dodgers are threading the needle in their relief pitcher pursuits, plus how the club plans to address the outfield.`\
+https://nytimes.com/athletic/6860523/2025/12/04/los-angeles-dodgers-winter-meetings-primer/
+
+**By keeping Joe Schoen, Giants have only added to their migraines**\
+`There's no margin for error, and Schoen’s presence is an unnecessary complication — and one a prominent coach with options may not want.`\
+https://nytimes.com/athletic/6860386/2025/12/04/giants-joe-schoen-embattled-gm/
+
 **NHL panic meter: How close are these 5 Western teams to missing the playoffs?**\
 `Some teams that seemed playoff-bound to start the season now look troubled. Which ones can turn it around?`\
 https://nytimes.com/athletic/6860057/2025/12/04/nhl-playoffs-panic-meter-western-conference/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6858884/2025/12/04/chiefs-turnaround-chances-andy-r
 **How Ben Johnson and the first-place Bears are keeping the main thing the main thing**\
 `Presence has become a gift for the NFC North-leading Bears. The key? “Be where your feet are,” safety Jaquan Brisker says. `\
 https://nytimes.com/athletic/6859521/2025/12/04/bears-ben-johnson-team-focus/
-
-**Browns-Titans may lack sizzle, but Shedeur Sanders vs. Cam Ward adds intrigue**\
-`The rookie QBs who were once pegged to go 1-2 in the 2025 NFL Draft will face off for the first time in their young careers. `\
-https://nytimes.com/athletic/6859982/2025/12/04/shedeur-sanders-cam-ward-browns-titans/
-
-**Cowboys at Lions on TNF: Updated playoff odd, weird history and broadcast info**\
-`Dallas' late resurgence and Detroit's sudden urgency come together for a banger of a TNF matchup. Points could be plentiful.`\
-https://nytimes.com/athletic/6857302/2025/12/04/cowboys-lions-tnf-nfl-playoff-odds-tv/
-
-**Putting ugly loss behind them, Flyers continue to show signs of a maturing team**\
-`After a rough outing against the rival Penguins, the Flyers looked calm and collected in a dismantling of the Sabres.`\
-https://nytimes.com/athletic/6860841/2025/12/04/philadelphia-flyers-maturing-team-sabres/
-
-**Failed challenge, sloppy play cost Sabres in loss to Flyers: 5 thoughts**\
-`One minute of calamitous play created a deficit the Sabres couldn't overcome.`\
-https://nytimes.com/athletic/6860874/2025/12/04/sabres-failed-challenge-defense-flyers/
-
-**As Bryce Young ascends, decision on fifth-year option is clear: Panthers mailbag**\
-`This week's Panthers mailbag looks at what they might do with Bryce Young and Rico Dowdle and also dives into their pass-rush issues.`\
-https://nytimes.com/athletic/6859678/2025/12/04/panthers-bryce-young-rico-dowdle-future-mailbag/
-
-**Kyle Schwarber vs. Pete Alonso: Which free agent slugger fits the Red Sox better?**\
-`Not signing one of the two hitters could be a major missed opportunity for a team with aspirations of contending for a championship.`\
-https://nytimes.com/athletic/6860529/2025/12/04/boston-red-sox-kyle-schwarber-pete-alonso/
 

@@ -1,3 +1,11 @@
+**NHL panic meter: How close are these 5 Western teams to missing the playoffs?**\
+`Some teams that seemed playoff-bound to start the season now look troubled. Which ones can turn it around?`\
+https://nytimes.com/athletic/6860057/2025/12/04/nhl-playoffs-panic-meter-western-conference/
+
+**The Pulse: Inside Chris Paul’s shocking exit**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6859244/2025/12/04/chris-paul-clippers-the-pulse/
+
 **Why hope for a Chiefs turnaround comes from Andy Reid's past — and the Bills**\
 `The Chiefs have plenty of playoff ground to make up after a 6-6 start. Two teams, though, offer hope.`\
 https://nytimes.com/athletic/6858884/2025/12/04/chiefs-turnaround-chances-andy-reid/
