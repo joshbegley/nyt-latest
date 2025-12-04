@@ -23,7 +23,7 @@ https://nytimes.com/2025/12/04/arts/television/late-night-trump-pardon-honduras.
 https://nytimes.com/2025/12/04/learning/word-of-the-day-prosperity.html
 
 **Daniel Farke has bought himself priceless time by using a system that works**\
-`The takeaway from Wednesday is that Leeds United need to use the same formation against an out-of-sorts Liverpool`\
+`Leeds United have found a formula that they need to keep using - an out-of-sorts Liverpool are next`\
 https://nytimes.com/athletic/6860526/2025/12/04/leeds-chelsea-daniel-farke-analysis/
 
 **How Amen Thompson has become Rockets' floor raiser with his energy and athleticism**\
