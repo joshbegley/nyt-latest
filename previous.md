@@ -1,3 +1,7 @@
+**Madrid's Alexander-Arnold expected to be out for two months**\
+`The Englishman suffered the injury during the 3-0 win over Athletic Club on Wednesday.`\
+https://nytimes.com/athletic/6859795/2025/12/04/alexander-arnold-injury-real-madrid/
+
 **The five must-watch events in a blockbuster sporting weekend**\
 `From the World Cup to the Premier League to the MLS Cup final, with added Ashes and a grandstand F1 final, it is bumper weekend of action  `\
 https://nytimes.com/athletic/6859106/2025/12/04/f1-cricket-football-mls-premier-league-world-cup-draw/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6855264/2025/12/04/heisman-trophy-diego-pavia-ferna
 **The Ashes Briefing: Root scores his first century in Australia, but Starc torments England again**\
 `Another blistering day of Test cricket saw Root, defiant amid the frenzy, finally reach his landmark as Australia claimed nine wickets`\
 https://nytimes.com/athletic/6858031/2025/12/04/ashes-australia-england-root-starc-gabba/
-
-**F1's final race will decide the championship. Here's what the odds say about Abu Dhabi**\
-`The F1 title fight is settled in Abu Dhabi. Can McLaren stop getting in its own way? Or will Verstappen pull off an improbable comeback?`\
-https://nytimes.com/athletic/6858625/2025/12/04/f1-abu-dhabi-preview-title-odds-tv/
 

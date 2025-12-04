@@ -1,3 +1,7 @@
+**Madrid's Alexander-Arnold expected to be out for two months**\
+`The Englishman suffered the injury during the 3-0 win over Athletic Club on Wednesday.`\
+https://nytimes.com/athletic/6859795/2025/12/04/alexander-arnold-injury-real-madrid/
+
 **The five must-watch events in a blockbuster sporting weekend**\
 `From the World Cup to the Premier League to the MLS Cup final, with added Ashes and a grandstand F1 final, it is bumper weekend of action  `\
 https://nytimes.com/athletic/6859106/2025/12/04/f1-cricket-football-mls-premier-league-world-cup-draw/
