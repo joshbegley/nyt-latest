@@ -1,3 +1,15 @@
+**Biden to Attend First Event for Presidential Library**\
+`His plans for the library have been slow to take shape, but he has invited potential donors to a holiday reception in Washington this month.`\
+https://nytimes.com/2025/12/04/us/politics/biden-presidential-library.html
+
+**Appeals Court Pauses, for Now, Order Blocking National Guard in Washington**\
+`A week after the president surged more members of the National Guard to Washington, an appeals court halted an order that would have required the Guard to pull out after Dec. 11.`\
+https://nytimes.com/2025/12/04/us/politics/national-guard-washington-ruling.html
+
+**What we’re hearing about the Cubs: Revisiting the pursuit of Alex Bregman**\
+`After a failed bid to sign Bregman during spring training, the Cubs have shown renewed interest in the All-Star third baseman.`\
+https://nytimes.com/athletic/6862841/2025/12/04/cubs-alex-bregman-free-agent-interest/
+
 **Scoop City: Four matchups key for Cowboys-Lions**\
 `The implications of a crucial Cowboys-Lions game, Dianna dishes on head-coaching candidates and an update on two recovering star QBs`\
 https://nytimes.com/athletic/6862960/2025/12/04/nfl-cowboys-lions-preview-matchups-burrow-herbert-injury/

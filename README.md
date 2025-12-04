@@ -1,3 +1,7 @@
+**Should Eagles' tush push be banned? Like NFL owners, our readers are divided**\
+`The Eagles have faced stronger defensive challenges with the tush push this season.`\
+https://nytimes.com/athletic/6862534/2025/12/04/eagles-tush-push-ban/
+
 **Biden to Attend First Event for Presidential Library**\
 `His plans for the library have been slow to take shape, but he has invited potential donors to a holiday reception in Washington this month.`\
 https://nytimes.com/2025/12/04/us/politics/biden-presidential-library.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6862756/2025/12/04/fantasy-basketball-hot-topics-gi
 **The State of the Burger Address**\
 `A lot of new burgers hit the scene this year. These three are worth the hype.`\
 https://nytimes.com/2025/12/04/dining/the-state-of-the-burger-address.html
-
-**SEC commissioner partially blames cramped calendar for Lane Kiffin saga**\
-`"Can changes be made? Absolutely. Is it just the recruiting calendar? Likely not," Sankey said.`\
-https://nytimes.com/athletic/6862843/2025/12/04/sec-greg-sankey-lane-kiffin-calendar/
 
