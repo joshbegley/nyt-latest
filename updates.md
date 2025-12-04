@@ -1,3 +1,11 @@
+**College football picks ATS for all 9 conference title games**\
+`Conference championship week is here, with a couple of monster matchups on Saturday. See which teams our staff are confident about.`\
+https://nytimes.com/athletic/6856663/2025/12/04/college-football-picks-against-the-spread-conference-title-games/
+
+**Source: Giannis Antetokounmpo to miss 2 to 4 weeks with calf strain**\
+`Antetokounmpo was injured during Milwaukee's 113-109 win against the Detroit Pistons.`\
+https://nytimes.com/athletic/6862374/2025/12/04/giannis-antetokounmpo-bucks-calf-strain-injury/
+
 **A Utopian Story That Became a Queer Cult Classic Debuts in New York**\
 `“The Faggots and Their Friends Between Revolutions” is a music theater piece based on Larry Mitchell and Ned Asta’s 1970s book.`\
 https://nytimes.com/2025/12/04/theater/faggots-and-their-friends-between-revolutions-show-new-york.html

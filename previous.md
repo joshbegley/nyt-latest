@@ -1,3 +1,7 @@
+**College football picks ATS for all 9 conference title games**\
+`Conference championship week is here, with a couple of monster matchups on Saturday. See which teams our staff are confident about.`\
+https://nytimes.com/athletic/6856663/2025/12/04/college-football-picks-against-the-spread-conference-title-games/
+
 **A Utopian Story That Became a Queer Cult Classic Debuts in New York**\
 `“The Faggots and Their Friends Between Revolutions” is a music theater piece based on Larry Mitchell and Ned Asta’s 1970s book.`\
 https://nytimes.com/2025/12/04/theater/faggots-and-their-friends-between-revolutions-show-new-york.html
@@ -18,7 +22,7 @@ https://nytimes.com/2025/12/04/world/europe/aid-workers-greece-migration-trial-s
 `The United States Geological Survey quickly deleted the alert, saying it had been sent in error.`\
 https://nytimes.com/2025/12/04/us/nevada-earthquake-usgs-false.html
 
-**Source: Giannis Antetokounmpo to miss two to four weeks with calf strain**\
+**Source: Giannis Antetokounmpo to miss 2 to 4 weeks with calf strain**\
 `Antetokounmpo was injured during Milwaukee's 113-109 win against the Detroit Pistons.`\
 https://nytimes.com/athletic/6862374/2025/12/04/giannis-antetokounmpo-bucks-calf-strain-injury/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/04/dining/caffeine-alternative-drinks-coffee.html
 **Women's Bundesliga clubs announce breakaway in split from German FA**\
 `The DFB had initially agreed to invest €100m to the new organisation but the clubs say they have decided to move forward without it. `\
 https://nytimes.com/athletic/6862170/2025/12/04/bundesliga-women-germany-fa-split/
-
-**Real Madrid's NFL game meant they played six away matches in a row. Did it affect them?**\
-`The Spanish club asked for their fixture list to accommodate the Miami Dolphins v Washington Commanders match on November 16`\
-https://nytimes.com/athletic/6862030/2025/12/04/real-madrid-nfl-la-liga-alonso-athletic-celta/
 
