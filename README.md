@@ -1,3 +1,7 @@
+**Arsenal needed Ben White to step up against Brentford - he did exactly that**\
+`One of Mikel Arteta's most-reliable players of the past few seasons has waited patiently for a chance to perform in the Premier League`\
+https://nytimes.com/athletic/6860253/2025/12/04/arsenal-brentford-ben-white-return-assist/
+
 **The New York Times in Print for Thursday, Dec. 4, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/12/04/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6833349/2025/12/04/world-cup-draw-teams-ranked/
 **Inside Martinez's 301 days of torment - and what happens now he's back**\
 `Runs with Ruben Amorim were an important act of solidarity for the Argentinian as he rehabbed from a serious knee injury`\
 https://nytimes.com/athletic/6858772/2025/12/04/lisandro-martinez-injury-return-manchester-united/
-
-**How Lens are defying the odds – and PSG – to lead Ligue 1**\
-`Tactical nous, shrewd signings and a coveted young coach have turned the northern French club into unlikely challengers`\
-https://nytimes.com/athletic/6858208/2025/12/04/lens-ligue-1-table/
 
