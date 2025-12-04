@@ -1,3 +1,7 @@
+**Siena men's lacrosse team mourns tragic death of head coach Liam Gleason**\
+`The MAAC champion coach died three days after suffering a traumatic brain injury at his home.`\
+https://nytimes.com/athletic/6860367/2025/12/03/siena-lacrosse-liam-gleason-death/
+
 **Tyler Skaggs' agent, surgeon testify that they were in the dark about pitcher's drug use**\
 `Agent Ryan Hamill testified that after Skaggs kicked a Percocet addiction in 2013, he believed the pitcher was clean. `\
 https://nytimes.com/athletic/6860711/2025/12/03/tyler-skaggs-agent-surgeon-testimony-drug-use/

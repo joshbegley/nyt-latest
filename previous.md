@@ -1,3 +1,7 @@
+**Siena men's lacrosse team mourns tragic death of head coach Liam Gleason**\
+`The MAAC champion coach died three days after suffering a traumatic brain injury at his home.`\
+https://nytimes.com/athletic/6860367/2025/12/03/siena-lacrosse-liam-gleason-death/
+
 **Tyler Skaggs' agent, surgeon testify that they were in the dark about pitcher's drug use**\
 `Agent Ryan Hamill testified that after Skaggs kicked a Percocet addiction in 2013, he believed the pitcher was clean. `\
 https://nytimes.com/athletic/6860711/2025/12/03/tyler-skaggs-agent-surgeon-testimony-drug-use/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/03/world/asia/india-russia-putin-visit-arms.html
 **Free-agent All-Star OF Kyle Tucker visited Blue Jays' Florida complex: Source**\
 `Ultimately, though, landing a free agent of Tucker’s calibre will come down to money, not fresh facilities and new hitting labs.`\
 https://nytimes.com/athletic/6860544/2025/12/03/toronto-blue-jays-kyle-tucker-visit/
-
-**What we learned about Michigan recruiting while 5-star RB Savion Hiter delayed his signing**\
-`Michigan signed a stellar 2026 recruiting class and made a coaching change Wednesday, but some blue-chip uncertainty remains.`\
-https://nytimes.com/athletic/6859898/2025/12/03/michigan-football-recruiting-2026-class-savion-hiter/
 
