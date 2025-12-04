@@ -1,3 +1,7 @@
+**Redistricting Gets Off to a Slow Start in Florida**\
+`Some of the state’s Republican leaders appear in no rush to draw a new map as they grapple with political and legal questions amid internal power struggles.`\
+https://nytimes.com/2025/12/04/us/florida-redistricting-republicans.html
+
 **Supreme Court Clears the Way for Republican-Friendly Texas Voting Maps**\
 `Texas officials had asked the court to allow the state to use the new maps in the midterm elections, part of a push by President Trump to gain a partisan advantage.`\
 https://nytimes.com/2025/12/04/us/politics/supreme-court-texas-congressional-maps.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6863272/2025/12/04/james-madison-billy-napier-flori
 **Case against Ryan Kesler, ex-NHL center charged with criminal sexual conduct, headed to trial**\
 `The criminal case against Kesler, charged with two misdemeanor counts of criminal sexual conduct in the fourth degree, is headed to trial.`\
 https://nytimes.com/athletic/6862414/2025/12/04/ryan-kesler-nhl-criminal-sexual-conduct-case-trial/
-
-**Deion Sanders tabs Sacramento State head coach Brennan Marion as Colorado's new OC**\
-`At Colorado, Marion will try to help Sanders revitalize a program that dropped off significantly in 2025.`\
-https://nytimes.com/athletic/6863152/2025/12/04/deion-sanders-colorado-brennan-marion-offensive-coordinator/
 

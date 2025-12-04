@@ -1,3 +1,7 @@
+**Redistricting Gets Off to a Slow Start in Florida**\
+`Some of the state’s Republican leaders appear in no rush to draw a new map as they grapple with political and legal questions amid internal power struggles.`\
+https://nytimes.com/2025/12/04/us/florida-redistricting-republicans.html
+
 **Supreme Court Clears the Way for Republican-Friendly Texas Voting Maps**\
 `Texas officials had asked the court to allow the state to use the new maps in the midterm elections, part of a push by President Trump to gain a partisan advantage.`\
 https://nytimes.com/2025/12/04/us/politics/supreme-court-texas-congressional-maps.html

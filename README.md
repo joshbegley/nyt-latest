@@ -1,3 +1,7 @@
+**Trump Officials Cut Length of Work Permits for Asylum Seekers and Refugees**\
+`The move was the latest in an intensifying crackdown on legal immigration after an Afghan national was charged with shooting two National Guard members.`\
+https://nytimes.com/2025/12/04/us/politics/work-permits-asylum-refugees-trump.html
+
 **Redistricting Gets Off to a Slow Start in Florida**\
 `Some of the state’s Republican leaders appear in no rush to draw a new map as they grapple with political and legal questions amid internal power struggles.`\
 https://nytimes.com/2025/12/04/us/florida-redistricting-republicans.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6863245/2025/12/04/nfl-quality-control-playing-surf
 **James Madison tabs former Florida coach Billy Napier as next head coach**\
 `Billy Napier wasn't out of work long. The former Florida coach will be back in the Sun Belt in 2026. `\
 https://nytimes.com/athletic/6863272/2025/12/04/james-madison-billy-napier-florida-coach/
-
-**Case against Ryan Kesler, ex-NHL center charged with criminal sexual conduct, headed to trial**\
-`The criminal case against Kesler, charged with two misdemeanor counts of criminal sexual conduct in the fourth degree, is headed to trial.`\
-https://nytimes.com/athletic/6862414/2025/12/04/ryan-kesler-nhl-criminal-sexual-conduct-case-trial/
 
