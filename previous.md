@@ -1,3 +1,19 @@
+**Ciara Takes Center Stage At a Night of Dancing**\
+`Alvin Ailey’s annual gala began with suits and bare chests on the red carpet and ended with dancing to Madonna’s “Like a Prayer.”`\
+https://nytimes.com/2025/12/04/style/ciara-alvin-ailey-gala.html
+
+**Conor McGregor sexual assault lawsuit dismissed in Florida**\
+`Conor McGregor is no longer facing a sexual assault lawsuit, as the case against him in Florida was dismissed with prejudice.`\
+https://nytimes.com/athletic/6862186/2025/12/04/conor-mcgregor-sexual-assault-lawsuit-dismissed/
+
+**Spain, Ireland and Others Boycott Eurovision Over Israel’s Participation**\
+`The Netherlands and Slovenia also said they would not take part in next year’s contest, meant to be its celebratory 70th edition.`\
+https://nytimes.com/2025/12/04/arts/music/eurovision-israel-boycott.html
+
+**How an uncertain future and potential relocation could await an MLS finalist**\
+`Vancouver may be the best story in MLS this season, and it's all happening with the club for sale and its future wholly unclear`\
+https://nytimes.com/athletic/6862394/2025/12/04/vancouver-whitecaps-mls-cup-bc-place-lease-relocation/
+
 **2025: A Year of Firsts**\
 `A series of milestones that happened for the first time during the past 12 months.`\
 https://nytimes.com/2025/12/04/special-series/first-time-ever-2025.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/12/04/movies/five-nights-at-freddys-2-review.html
 **Bipartisan House Group Proposes Long-Shot Health Care Plan**\
 `Republicans and Democrats released a two-year plan to scale back and extend expiring Affordable Care Act subsidies, but it faces long odds in the G.O.P.-led House.`\
 https://nytimes.com/2025/12/04/us/politics/obamacare-aca-subsidies-house-congress.html
-
-**Haas F1 adds Toyota Gazoo Racing as its title sponsor for 2026 season**\
-`The news comes as Haas shows signs of competitive revival, and a year after the two sides' initial partnership began`\
-https://nytimes.com/athletic/6862301/2025/12/04/haas-f1-toyota-gazoo-racing-title-sponsor/
-
-**American Cancer Society Endorses Pap Smear Alternative**\
-`The recommendation comes after the first at-home test, a self-swab, received federal approval earlier this year.`\
-https://nytimes.com/2025/12/04/well/self-swab-tests-cervical-cancer.html
-
-**College football picks ATS for all 9 conference title games**\
-`Conference championship week is here, with a couple of monster matchups on Saturday. See which teams our staff are confident about.`\
-https://nytimes.com/athletic/6856663/2025/12/04/college-football-picks-against-the-spread-conference-title-games/
-
-**A Utopian Story That Became a Queer Cult Classic Debuts in New York**\
-`“The Faggots and Their Friends Between Revolutions” is a music theater piece based on Larry Mitchell and Ned Asta’s 1970s book.`\
-https://nytimes.com/2025/12/04/theater/faggots-and-their-friends-between-revolutions-show-new-york.html
 

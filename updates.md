@@ -1,3 +1,19 @@
+**Ciara Takes Center Stage At a Night of Dancing**\
+`Alvin Ailey’s annual gala began with suits and bare chests on the red carpet and ended with dancing to Madonna’s “Like a Prayer.”`\
+https://nytimes.com/2025/12/04/style/ciara-alvin-ailey-gala.html
+
+**Conor McGregor sexual assault lawsuit dismissed in Florida**\
+`Conor McGregor is no longer facing a sexual assault lawsuit, as the case against him in Florida was dismissed with prejudice.`\
+https://nytimes.com/athletic/6862186/2025/12/04/conor-mcgregor-sexual-assault-lawsuit-dismissed/
+
+**Spain, Ireland and Others Boycott Eurovision Over Israel’s Participation**\
+`The Netherlands and Slovenia also said they would not take part in next year’s contest, meant to be its celebratory 70th edition.`\
+https://nytimes.com/2025/12/04/arts/music/eurovision-israel-boycott.html
+
+**How an uncertain future and potential relocation could await an MLS finalist**\
+`Vancouver may be the best story in MLS this season, and it's all happening with the club for sale and its future wholly unclear`\
+https://nytimes.com/athletic/6862394/2025/12/04/vancouver-whitecaps-mls-cup-bc-place-lease-relocation/
+
 **2025: A Year of Firsts**\
 `A series of milestones that happened for the first time during the past 12 months.`\
 https://nytimes.com/2025/12/04/special-series/first-time-ever-2025.html
