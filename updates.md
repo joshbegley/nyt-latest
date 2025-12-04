@@ -1,3 +1,7 @@
+**Daniel Farke has bought himself priceless time by using a system that works**\
+`Leeds United have found a formula that they need to keep using - an out-of-sorts Liverpool are next`\
+https://nytimes.com/athletic/6860526/2025/12/04/leeds-chelsea-daniel-farke-analysis/
+
 **Arsenal needed Ben White to step up against Brentford – he did exactly that**\
 `One of Mikel Arteta's most-reliable players of the past few seasons has waited patiently for a chance to perform in the Premier League`\
 https://nytimes.com/athletic/6860253/2025/12/04/arsenal-brentford-ben-white-return-assist/
