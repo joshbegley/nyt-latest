@@ -1,3 +1,7 @@
+**Steve Cropper: 9 Essential Songs**\
+`An architect of Memphis soul, Cropper made his guitar sing and sting. And as a songwriter, he collaborated on more than a few indelible anthems.`\
+https://nytimes.com/2025/12/04/arts/music/steve-cropper-songs.html
+
 **Eagles' Carter undergoes procedure on both shoulders, out vs. Chargers**\
 `Eagles DC Vic Fangio said Carter was playing through his shoulder ailments but that it was affecting his play, especially against the run.`\
 https://nytimes.com/athletic/6862540/2025/12/04/eagles-jalen-carter-procedure-shoulder-injury/
