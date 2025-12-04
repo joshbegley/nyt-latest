@@ -1,3 +1,23 @@
+**Kawhi Leonard, James Harden learned of Chris Paul decision via social media**\
+`James Harden said the Clippers’ issues are "Not just Chris (Paul)."`\
+https://nytimes.com/athletic/6860819/2025/12/04/kawhi-leonard-james-harden-clippers-chris-paul/
+
+**When a Murder Hornet Becomes a Tasty Meal**\
+`A researcher found that a Japanese pond frog is impervious to the stings of the northern giant hornet, even when it goes down the hatch.`\
+https://nytimes.com/2025/12/04/science/frog-eating-murder-hornet.html
+
+**Connections: Sports Edition Coach: Hints for Dec. 4, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6860568/2025/12/04/connections-sports-edition-hints-for-dec-4-2025/
+
+**Taiwan’s Opposition Leader, Once for Independence, Turns Toward China**\
+`She says Taiwan must embrace its Chinese heritage to avoid war. Her critics say she wants to steer the island into Beijing’s orbit.`\
+https://nytimes.com/2025/12/04/world/asia/taiwan-opposition-cheng-china.html
+
+**Corrections: Dec. 4, 2025**\
+`Corrections that appeared in print on Thursday, Dec. 4, 2025.`\
+https://nytimes.com/2025/12/04/pageoneplus/corrections-dec-4-2025.html
+
 **NWSL rejects Spirit's offer to keep Trinity Rodman in the league: Sources**\
 `According to sources, the NWSL Players Association has filed a grievance with the league on Rodman’s behalf . `\
 https://nytimes.com/athletic/6860740/2025/12/03/nwsl-spirit-trinity-rodman-offer-rejected/

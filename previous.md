@@ -1,3 +1,23 @@
+**Kawhi Leonard, James Harden learned of Chris Paul decision via social media**\
+`James Harden said the Clippers’ issues are "Not just Chris (Paul)."`\
+https://nytimes.com/athletic/6860819/2025/12/04/kawhi-leonard-james-harden-clippers-chris-paul/
+
+**When a Murder Hornet Becomes a Tasty Meal**\
+`A researcher found that a Japanese pond frog is impervious to the stings of the northern giant hornet, even when it goes down the hatch.`\
+https://nytimes.com/2025/12/04/science/frog-eating-murder-hornet.html
+
+**Connections: Sports Edition Coach: Hints for Dec. 4, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6860568/2025/12/04/connections-sports-edition-hints-for-dec-4-2025/
+
+**Taiwan’s Opposition Leader, Once for Independence, Turns Toward China**\
+`She says Taiwan must embrace its Chinese heritage to avoid war. Her critics say she wants to steer the island into Beijing’s orbit.`\
+https://nytimes.com/2025/12/04/world/asia/taiwan-opposition-cheng-china.html
+
+**Corrections: Dec. 4, 2025**\
+`Corrections that appeared in print on Thursday, Dec. 4, 2025.`\
+https://nytimes.com/2025/12/04/pageoneplus/corrections-dec-4-2025.html
+
 **Siena men's lacrosse team mourns tragic death of head coach Liam Gleason**\
 `The MAAC champion coach died three days after suffering a traumatic brain injury at his home.`\
 https://nytimes.com/athletic/6860367/2025/12/03/siena-lacrosse-liam-gleason-death/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6860633/2025/12/03/jamal-murray-52-points-nuggets-p
 **Erika Kirk Takes on the Mantle of Leading Turning Point USA**\
 `The widow of Charlie Kirk promoted conciliation and portrayed her late husband as a seeker of dialogue.`\
 https://nytimes.com/2025/12/03/business/dealbook/erika-kirk-turning-point-usa-trump-republicans.html
-
-**It’ll Find a Way**\
-`Stephan Prock makes his New York Times Crossword debut abetted, sorry, assisted by Jeff Chen.`\
-https://nytimes.com/2025/12/03/crosswords/daily-puzzle-2025-12-04.html
-
-**Trump Pardons Developer Prosecuted by His Administration**\
-`This summer, Trump administration officials had lauded the indictment of Timothy J. Leiweke as an effort to root out corruption and unfair business practices.`\
-https://nytimes.com/2025/12/03/us/politics/trump-pardon-leiweke.html
-
-**Armed Volunteer Charged in Fatal Shooting at Utah ‘No Kings’ Protest**\
-`The volunteer is facing one count of manslaughter after he tried to confront a man who was carrying an AR-15 style rifle at the Salt Lake City event in June.`\
-https://nytimes.com/2025/12/03/us/no-kings-protest-shooting-salt-lake-city-charges.html
-
-**What to Know About Vladimir Putin’s Trip to India**\
-`The Trump administration, which crippled Russia’s oil sales to India with sanctions, will be watching Mr. Putin’s talks with Prime Minister Narendra Modi.`\
-https://nytimes.com/2025/12/03/world/asia/india-russia-putin-visit-arms.html
-
-**Free-agent All-Star OF Kyle Tucker visited Blue Jays' Florida complex: Source**\
-`Ultimately, though, landing a free agent of Tucker’s calibre will come down to money, not fresh facilities and new hitting labs.`\
-https://nytimes.com/athletic/6860544/2025/12/03/toronto-blue-jays-kyle-tucker-visit/
 
