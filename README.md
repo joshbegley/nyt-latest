@@ -1,3 +1,7 @@
+**The New York Times in Print for Thursday, Dec. 4, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/12/04/todays-new-york-times
+
 **Brighton undermined by unfamiliar fragility to ruin Lewis Dunk's landmark night**\
 `A team who had been stingy defensively of late caved in four times in 49 minutes, with their set-piece resilience put under the microscope`\
 https://nytimes.com/athletic/6857999/2025/12/04/brighton-dunk-hurzeler-euvrard-villa/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6858772/2025/12/04/lisandro-martinez-injury-return-
 **How Lens are defying the odds – and PSG – to lead Ligue 1**\
 `Tactical nous, shrewd signings and a coveted young coach have turned the northern French club into unlikely challengers`\
 https://nytimes.com/athletic/6858208/2025/12/04/lens-ligue-1-table/
-
-**Anne Flower, the doctor who breaks ultramarathon records between ER shifts**\
-`ER doctor Anne Flower has won four ultramarathon races this year but won't give up the day job`\
-https://nytimes.com/athletic/6839510/2025/12/04/anne-flower-ultrarunner-interview/
 
