@@ -1,10 +1,14 @@
+**Without Victor Wembanyama, De'Aaron Fox is bringing the Spurs' offense to life**\
+`Spurs coach Mitch Johnson received a coach of the month nomination, even with Victor Wembanyama missing time. He can thank De'Aaron Fox.`\
+https://nytimes.com/athletic/6860369/2025/12/04/deaaron-fox-spurs-victor-wembanyama-offense/
+
 **More Than a Million Bags of Cheese Were Recalled. Here’s What That Means.**\
 `A warning over shredded cheese is the latest of hundreds in the U.S. food system. Understanding recalls can help shoppers determine what’s truly dangerous.`\
 https://nytimes.com/2025/12/04/us/cheese-recall.html
 
 **TAFC: EPL's U.S owners and manager plot twist? Plus: Mbappe cooking, Rodman contract rejection**\
 `Today in TAFC: The U.S. owners given pause for thought over coaches. Plus: Mbappe is cooking, will he beat World Cup record?`\
-https://nytimes.com/athletic/6861213/2025/12/04/epls-u-s-owners-and-manager-plot-twist-plus-mbappe-cooking-rodman-contract-rejection/
+https://nytimes.com/athletic/6861213/2025/12/04/premier-league-american-owners-mbappe-rodman/
 
 **2026 NBA mock draft: How deep is this class behind the big 3?**\
 `Caleb Wilson, Kingston Flemings and Cameron Carr are among the big risers a month into the college basketball season.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6859244/2025/12/04/chris-paul-clippers-the-pulse/
 **Why hope for a Chiefs turnaround comes from Andy Reid's past — and the Bills**\
 `The Chiefs have plenty of playoff ground to make up after a 6-6 start. Two teams, though, offer hope.`\
 https://nytimes.com/athletic/6858884/2025/12/04/chiefs-turnaround-chances-andy-reid/
-
-**How Ben Johnson and the first-place Bears are keeping the main thing the main thing**\
-`Presence has become a gift for the NFC North-leading Bears. The key? “Be where your feet are,” safety Jaquan Brisker says. `\
-https://nytimes.com/athletic/6859521/2025/12/04/bears-ben-johnson-team-focus/
 
