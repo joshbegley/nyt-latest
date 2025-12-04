@@ -1,3 +1,11 @@
+**Trump Pardons Developer Prosecuted by His Administration**\
+`This summer, Trump administration officials had lauded the indictment of Timothy J. Leiweke as an effort to root out corruption and unfair business practices.`\
+https://nytimes.com/2025/12/03/us/politics/trump-pardon-leiweke.html
+
+**Armed Volunteer Charged in Fatal Shooting at Utah ‘No Kings’ Protest**\
+`The volunteer is facing one count of manslaughter after he tried to confront a man who was carrying an AR-15 style rifle at the Salt Lake City event in June.`\
+https://nytimes.com/2025/12/03/us/no-kings-protest-shooting-salt-lake-city-charges.html
+
 **Free-agent All-Star OF Kyle Tucker visited Blue Jays' Florida complex: Source**\
 `Ultimately, though, landing a free agent of Tucker’s calibre will come down to money, not fresh facilities and new hitting labs.`\
 https://nytimes.com/athletic/6860544/2025/12/03/toronto-blue-jays-kyle-tucker-visit/
