@@ -1,3 +1,7 @@
+**Review: When Club Dance Bumps Into Latin Jazz**\
+`Ephrat Asherie’s “Shadow Cities” pairs her group’s adept dancers with live music by the great Arturo O’Farrill.`\
+https://nytimes.com/2025/12/04/arts/dance/review-ephrat-asherie-arturo-ofarrill-shadow-cities.html
+
 **Messi hopes to be at 2026 World Cup: 'At worst, I'll be there watching'**\
 `Messi, 38, had said during the 2022 World Cup that the tournament in Qatar, which Argentina went on to win, would be his last.`\
 https://nytimes.com/athletic/6862042/2025/12/04/lionel-messi-world-cup-argentina-2026/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6862267/2025/12/04/celtics-vs-wizards-stream-how-to
 **How to watch Maple Leafs vs. Hurricanes: Time, TV, streaming**\
 `Find out how to watch the Toronto Maple Leafs play the Carolina Hurricanes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6862265/2025/12/04/maple-leafs-vs-hurricanes-stream-how-to-watch-dec-4/
-
-**How to watch Avalanche vs. Islanders: Time, TV, streaming**\
-`Find out how to watch the Colorado Avalanche play the New York Islanders, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6862263/2025/12/04/avalanche-vs-islanders-stream-how-to-watch-dec-4/
 
