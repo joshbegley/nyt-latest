@@ -1,3 +1,7 @@
+**Supreme Court Clears the Way for Republican-Friendly Texas Voting Maps**\
+`Texas officials had asked the court to allow the state to use the new maps in the midterm elections, part of a push by President Trump to gain a partisan advantage.`\
+https://nytimes.com/2025/12/04/us/politics/supreme-court-texas-congressional-maps.html
+
 **Grand Jury Said to Decline to Re-Indict Letitia James**\
 `After a judge dismissed the Trump administration’s first attempt to indict the attorney general of New York State, a new grand jury effort failed, according to people familiar with the matter.`\
 https://nytimes.com/2025/12/04/us/politics/letitia-james-indict-trump.html
@@ -10,7 +14,7 @@ https://nytimes.com/2025/12/04/briefing/boat-strikes-congress-reading-gifts.html
 `The updated Dietary Guidelines for Americans will not come until the new year, a government official said.`\
 https://nytimes.com/2025/12/04/us/politics/dietary-guidelines-americans.html
 
-**Steelers' season on the brink, Aaron Rodgers and his receivers still searching for chemistry**\
+**Steelers' season on the brink, Aaron Rodgers and receivers still seeking chemistry**\
 `The passing game has struggled as Pittsburgh has lost three of four games.`\
 https://nytimes.com/athletic/6863151/2025/12/04/aaron-rodgers-pittsburgh-steelers-chemistry/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6862414/2025/12/04/ryan-kesler-nhl-criminal-sexual-
 **Deion Sanders tabs Sacramento State head coach Brennan Marion as Colorado's new OC**\
 `At Colorado, Marion will try to help Sanders revitalize a program that dropped off significantly in 2025.`\
 https://nytimes.com/athletic/6863152/2025/12/04/deion-sanders-colorado-brennan-marion-offensive-coordinator/
-
-**N.Y.P.D. Officers Won’t Be Charged in Fatal Shooting of Queens Man**\
-`Win Rozario, who had called 911 in distress, was holding scissors when two police officers shot him. The New York attorney general said it was unlikely the officers would be convicted.`\
-https://nytimes.com/2025/12/04/nyregion/queens-officers-shooting-no-charges.html
 

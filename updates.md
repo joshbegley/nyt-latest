@@ -1,3 +1,11 @@
+**Supreme Court Clears the Way for Republican-Friendly Texas Voting Maps**\
+`Texas officials had asked the court to allow the state to use the new maps in the midterm elections, part of a push by President Trump to gain a partisan advantage.`\
+https://nytimes.com/2025/12/04/us/politics/supreme-court-texas-congressional-maps.html
+
+**Steelers' season on the brink, Aaron Rodgers and receivers still seeking chemistry**\
+`The passing game has struggled as Pittsburgh has lost three of four games.`\
+https://nytimes.com/athletic/6863151/2025/12/04/aaron-rodgers-pittsburgh-steelers-chemistry/
+
 **Grand Jury Said to Decline to Re-Indict Letitia James**\
 `After a judge dismissed the Trump administration’s first attempt to indict the attorney general of New York State, a new grand jury effort failed, according to people familiar with the matter.`\
 https://nytimes.com/2025/12/04/us/politics/letitia-james-indict-trump.html
