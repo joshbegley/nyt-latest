@@ -1,3 +1,15 @@
+**Messi hopes to be at 2026 World Cup: 'At worst, I'll be there watching'**\
+`Messi, 38, had said during the 2022 World Cup that the tournament in Qatar, which Argentina went on to win, would be his last.`\
+https://nytimes.com/athletic/6862042/2025/12/04/lionel-messi-world-cup-argentina-2026/
+
+**What F1's championship drivers said in Abu Dhabi (and what they actually meant)**\
+`As F1's showdown finale ramps up, the three contenders are in three different headspaces`\
+https://nytimes.com/athletic/6861953/2025/12/04/f1-championship-lando-norris-max-verstappen-oscar-piastri-abu-dhabi/
+
+**Read the Pentagon Watchdog’s Report on Signal Use**\
+`The Defense Department’s Inspector General released a long-awaited report about Secretary Pete Hegseth’s disclosure of plans for airstrikes in Yemen on a Signal chat group.`\
+https://nytimes.com/interactive/2025/12/04/us/signal-report-hegseth.html
+
 **Read the Pentagon Watchdog’s Report on Signal Use**\
 `The Defense Department’s Inspector General released a long-awaited report about Secretary Pete Hegseth’s disclosure of plans for airstrikes in Yemen on a Signal chat group.`\
 https://nytimes.com/interactive/2025/12/04/us/dodig2026021.html
