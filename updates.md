@@ -1,3 +1,15 @@
+**James Madison tabs former Florida coach Billy Napier as next head coach**\
+`Billy Napier wasn't out of work long. The former Florida coach will back in the Sun Belt in 2026. `\
+https://nytimes.com/athletic/6863272/2025/12/04/james-madison-tabs-former-florida-coach-billy-napier-as-next-head-coach/
+
+**Case against Ryan Kesler, ex-NHL center charged with criminal sexual conduct, headed to trial**\
+`The criminal case against Kesler, charged with two misdemeanor counts of criminal sexual conduct in the fourth degree, is headed to trial.`\
+https://nytimes.com/athletic/6862414/2025/12/04/ryan-kesler-nhl-criminal-sexual-conduct-case-trial/
+
+**Deion Sanders tabs Sacramento State head coach Brennan Marion as Colorado's new OC**\
+`At Colorado, Marion will try to help Sanders revitalize a program that dropped off significantly in 2025.`\
+https://nytimes.com/athletic/6863152/2025/12/04/deion-sanders-colorado-brennan-marion-offensive-coordinator/
+
 **Deion Sanders tabs Sacramento State head coach Brennan Marion as Colorado's new OC**\
 `At Colorado, Marion will try to help Deion Sanders revitalize a program that dropped off significantly in 2025.`\
 https://nytimes.com/athletic/6863152/2025/12/04/deion-sanders-colorado-brennan-marion-offensive-coordinator/

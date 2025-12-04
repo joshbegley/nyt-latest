@@ -1,6 +1,6 @@
 **James Madison tabs former Florida coach Billy Napier as next head coach**\
 `Billy Napier wasn't out of work long. The former Florida coach will back in the Sun Belt in 2026. `\
-https://nytimes.com/athletic/6863272/2025/12/04/james-madison-tabs-former-florida-coach-billy-napier-as-next-head-coach/
+https://nytimes.com/athletic/6863272/2025/12/04/james-madison-billy-napier-florida-coach/
 
 **Case against Ryan Kesler, ex-NHL center charged with criminal sexual conduct, headed to trial**\
 `The criminal case against Kesler, charged with two misdemeanor counts of criminal sexual conduct in the fourth degree, is headed to trial.`\
