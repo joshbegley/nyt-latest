@@ -1,3 +1,7 @@
+**How Israel’s Settlement Surge in the West Bank Is Displacing Palestinians**\
+`The Israeli government authorized 22 settlements in May, the largest expansion in decades, and Palestinian families are now being forced from their homes.`\
+https://nytimes.com/2025/12/04/world/middleeast/israel-west-bank-settlements-palestinians.html
+
 **Call him Guga: Gustavo Kuerten's rise to the top of tennis, 25 years later**\
 `Kuerten remains the last South American player to reach the sport's summit. He believes another may climb up soon.`\
 https://nytimes.com/athletic/6858968/2025/12/04/gustavo-kuerten-tennis/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/04/opinion/putin-russia-ukraine-trump.html
 **D’Angelo and the Power of Last Albums**\
 `What does finality sound like?`\
 https://nytimes.com/2025/12/04/podcasts/dangelo-and-the-power-of-last-albums.html
-
-**Shifting Climate Alters Pattern of Atlantic’s Giant Seaweed Blobs**\
-`Blooms of yellowish-brown seaweed along the Equator are breaking records and defiling beaches, while a centuries-old patch farther north is disappearing.`\
-https://nytimes.com/2025/12/04/climate/atlantic-seaweed-sargassum-climate.html
 
