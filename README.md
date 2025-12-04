@@ -2,7 +2,7 @@
 `Lawmakers from both parties have been raising questions about the legality of U.S. military strikes on boats near Venezuela. David Sanger, White House and national security correspondent, explains.`\
 https://nytimes.com/video/us/politics/100000010560634/are-us-boat-strikes-near-venezuela-legal.html
 
-**Dodgers, World Series hero Miguel Rojas in agreement on one-year deal: Source**\
+**Dodgers, World Series hero Miguel Rojas in agreement on 1-year deal: Source**\
 `After helping propel the Dodgers to back-to-back World Series titles, Rojas will play his final season in 2026.`\
 https://nytimes.com/athletic/6860121/2025/12/03/los-angeles-dodgers-miguel-rojas-deal-source/
 
