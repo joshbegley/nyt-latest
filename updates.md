@@ -1,3 +1,7 @@
+**NFL best bets Week 14: Why the Packers will romp**\
+`Austin Mock's model continues to put out winning weeks and looks for value in Week 14, with two surprising bets to start off.`\
+https://nytimes.com/athletic/6862771/2025/12/04/nfl-best-bets-week-14-cowboys-lions-packers-bears/
+
 **Manny Diaz says five-loss Duke would deserve to make CFP with ACC title**\
 `'There’s no way you can have a resume in a non-P4 league that would match what it means to win seven games in our conference,' Diaz said.`\
 https://nytimes.com/athletic/6862887/2025/12/04/manny-diaz-duke-college-football-playoff/
