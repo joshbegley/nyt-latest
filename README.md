@@ -1,3 +1,7 @@
+**Jamal Murray recorded his third career 50-point game on Wednesday**\
+`Murray made a career-high ten 3-pointers in Denver's 135-120 rout of Indiana.`\
+https://nytimes.com/athletic/6860633/2025/12/03/jamal-murray-52-points-nuggets-pacers-nba/
+
 **Erika Kirk Takes on the Mantle of Leading Turning Point USA**\
 `The widow of Charlie Kirk promoted conciliation and portrayed her late husband as a seeker of dialogue.`\
 https://nytimes.com/2025/12/03/business/dealbook/erika-kirk-turning-point-usa-trump-republicans.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6860315/2025/12/03/giannis-antetokounmpo-exits-game
 **Trump Renames Institute of Peace for Himself**\
 `Workers installed Mr. Trump’s name to a Washington building on Wednesday, thrusting the institute back into the spotlight as it is set to host the signing of a peace deal between Rwanda and the Democratic Republic of Congo.`\
 https://nytimes.com/2025/12/03/us/politics/trump-us-institute-peace-name.html
-
-**Trump’s Former Campaign Manager Assisted Honduran Presidential Candidate**\
-`Brad Parscale advised the campaign of Nasry Asfura, a right-wing candidate who was endorsed by the U.S. president.`\
-https://nytimes.com/2025/12/03/us/politics/brad-parscale-trump-honduras-asfura-pardon.html
 
