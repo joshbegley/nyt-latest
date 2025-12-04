@@ -1,3 +1,11 @@
+**Trump Pardons Developer Prosecuted by His Administration**\
+`This summer, Trump administration officials had lauded the indictment of Timothy J. Leiweke as an effort to root out corruption and unfair business practices.`\
+https://nytimes.com/2025/12/03/us/politics/trump-pardon-leiweke.html
+
+**Armed Volunteer Charged in Fatal Shooting at Utah ‘No Kings’ Protest**\
+`The volunteer is facing one count of manslaughter after he tried to confront a man who was carrying an AR-15 style rifle at the Salt Lake City event in June.`\
+https://nytimes.com/2025/12/03/us/no-kings-protest-shooting-salt-lake-city-charges.html
+
 **What to Know About Vladimir Putin’s Trip to India**\
 `The Trump administration, which crippled Russia’s oil sales to India with sanctions, will be watching Mr. Putin’s talks with Prime Minister Narendra Modi.`\
 https://nytimes.com/2025/12/03/world/asia/india-russia-putin-visit-arms.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6860494/2025/12/03/los-angeles-dodgers-dave-roberts
 **A right oblique strain will sideline Bilal Coulibaly for multiple weeks**\
 `Coulibaly's injury is another tough blow to the Wizards' defense. `\
 https://nytimes.com/athletic/6860280/2025/12/03/bilal-coulibaly-out-oblique-strain-wizards/
-
-**Chargers' Justin Herbert still plans to play vs. Eagles after undergoing hand surgery**\
-`“Obviously I’m doing everything I can to be out there,” Herbert said. “I’d fight through anything for those guys."`\
-https://nytimes.com/athletic/6860170/2025/12/03/chargers-justin-herbert-injury-surgery-eagles/
-
-**How Chris Paul's short-lived reunion with the Clippers fell apart**\
-`Chris Paul returned to a Clippers team many believed could compete for a title. Instead, LA is 5-16 and Paul is no longer with the team.`\
-https://nytimes.com/athletic/6860282/2025/12/03/chris-paul-clippers-return-fall-explained/
 
