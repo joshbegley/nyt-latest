@@ -1,3 +1,7 @@
+**Ilhan Omar: Trump Knows He’s Failing. Cue the Bigotry.**\
+`Attacks on Somali Americans are a cruel distraction.`\
+https://nytimes.com/2025/12/04/opinion/ilhan-omar-somalia-trump.html
+
 **Former West Ham goalkeeper Hislop reveals 'aggressive' prostate cancer**\
 `The ESPN commentator encouraged men, especially those from Caribbean descent, to insist on getting tested. `\
 https://nytimes.com/athletic/6862556/2025/12/04/shaka-hislop-west-ham-newcastle-cancer-testing/
