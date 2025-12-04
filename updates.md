@@ -1,3 +1,11 @@
+**U.N. Warns of ‘Another Wave of Atrocities’ in Sudan’s Civil War**\
+`Paramilitary groups have intensified an offensive on a crucial region bordering Darfur, prompting fears of another massacre.`\
+https://nytimes.com/2025/12/04/world/africa/sudan-civil-war-kordofan.html
+
+**Darius Slay tells Bills he will not report to Buffalo: Source**\
+`Slay's time in Pittsburgh did not go well. He recorded 28 tackles and zero interceptions over 10 games and was also a healthy scratch.`\
+https://nytimes.com/athletic/6862438/2025/12/04/darius-slay-bills-not-report-nfl/
+
 **Ilhan Omar: Trump Knows He’s Failing. Cue the Bigotry.**\
 `Attacks on Somali Americans are a cruel distraction.`\
 https://nytimes.com/2025/12/04/opinion/ilhan-omar-somalia-trump.html
