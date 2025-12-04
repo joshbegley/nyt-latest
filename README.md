@@ -1,3 +1,11 @@
+**Steelers' season on the brink, Aaron Rodgers and his receivers still searching for chemistry**\
+`The passing game has struggled as Pittsburgh has lost three of four games.`\
+https://nytimes.com/athletic/6863151/2025/12/04/aaron-rodgers-pittsburgh-steelers-chemistry/
+
+**Suspect Is Arrested in D.C. Pipe Bomb Investigation**\
+`Federal agents arrested a 30-year-old man from Prince William County, Va., on Thursday. The suspect is accused of planting two pipe bombs near the Capitol before the Jan. 6 riot.`\
+https://nytimes.com/video/us/100000010566426/dc-pipe-bomb-arrest-jan-6-riot.html
+
 **NFL to implement quality-control program to ensure stadiums utilize best playing surfaces**\
 `The NFL hopes that by 2026, teams will be able to pick from a library of approved and accredited field surfaces to replace existing ones.`\
 https://nytimes.com/athletic/6863245/2025/12/04/nfl-quality-control-playing-surfaces-field/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/04/podcasts/lai-ching-te-dealbook-summit-2025.html
 **MrBeast Isn’t Looking for Controversy**\
 `YouTube’s most popular entertainer reflects on the creator economy.`\
 https://nytimes.com/2025/12/04/podcasts/mrbeast-dealbook-summit-2025.html
-
-**Halle Berry’s Journey to Being a Women’s Health Advocate**\
-`The actor shares how a misdiagnosis sparked her to take on the cause of raising awareness about menopause.`\
-https://nytimes.com/2025/12/04/podcasts/halle-berry-dealbook-summit-2025.html
-
-**Anthropic Chief Executive Has A.I. Bubble ‘Concerns’**\
-`Dario Amodei discusses the risk of investing too much in data centers vs. not enough.`\
-https://nytimes.com/2025/12/04/podcasts/dario-amodei-dealbooksummit-2025.html
 

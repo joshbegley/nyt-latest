@@ -1,3 +1,11 @@
+**NFL to implement quality-control program to ensure stadiums utilize best playing surfaces**\
+`The NFL hopes that by 2026, teams will be able to pick from a library of approved and accredited field surfaces to replace existing ones.`\
+https://nytimes.com/athletic/6863245/2025/12/04/nfl-quality-control-playing-surfaces-field/
+
+**James Madison tabs former Florida coach Billy Napier as next head coach**\
+`Billy Napier wasn't out of work long. The former Florida coach will back in the Sun Belt in 2026. `\
+https://nytimes.com/athletic/6863272/2025/12/04/james-madison-billy-napier-florida-coach/
+
 **James Madison tabs former Florida coach Billy Napier as next head coach**\
 `Billy Napier wasn't out of work long. The former Florida coach will back in the Sun Belt in 2026. `\
 https://nytimes.com/athletic/6863272/2025/12/04/james-madison-tabs-former-florida-coach-billy-napier-as-next-head-coach/
