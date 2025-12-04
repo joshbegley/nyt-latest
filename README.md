@@ -1,3 +1,15 @@
+**2025: A Year of Firsts**\
+`A series of milestones that happened for the first time during the past 12 months.`\
+https://nytimes.com/2025/12/04/special-series/first-time-ever-2025.html
+
+**What to Do With All Those Root Vegetables**\
+`You have carrots, parsnips, sweet potatoes; I have recipes.`\
+https://nytimes.com/2025/12/04/dining/what-to-do-with-all-those-root-vegetables.html
+
+**Faulty Glucose Monitor Sensors May Be Tied to 7 Deaths, F.D.A. Says**\
+`Abbott Diabetes Care said it had received reports of more than 700 injuries that may be associated with malfunctioning sensors.`\
+https://nytimes.com/2025/12/04/health/blood-glucose-monitor-recall-abbott.html
+
 **NASCAR's Steve O'Donnell, key figure in charter deals, takes stand on Day 4 of trial**\
 `NASCAR's president was questioned about how early signs that CEO Jim France was flexible on the sport's model didn't quite materialize.`\
 https://nytimes.com/athletic/6862423/2025/12/04/nascar-trial-steve-odonnell-michael-jordan-bob-jenkins/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6856663/2025/12/04/college-football-picks-against-t
 **A Utopian Story That Became a Queer Cult Classic Debuts in New York**\
 `“The Faggots and Their Friends Between Revolutions” is a music theater piece based on Larry Mitchell and Ned Asta’s 1970s book.`\
 https://nytimes.com/2025/12/04/theater/faggots-and-their-friends-between-revolutions-show-new-york.html
-
-**What Teenagers Are Saying About ‘6-7’ and the Era of ‘Brain Rot’**\
-`Students explain what today’s slang reveals about their generation.`\
-https://nytimes.com/2025/12/04/learning/what-teenagers-are-saying-about-6-7-and-the-era-of-brain-rot.html
-
-**Top Military Officers Show Lawmakers Video of Sept. 2 Boat Attack**\
-`Gen. Dan Caine, chairman of the Joint Chiefs of Staff, and Adm. Frank M. Bradley, commander of the operation, met with members of Congress behind closed doors.`\
-https://nytimes.com/2025/12/04/us/politics/drug-boat-strikes-sept-2-video-congress.html
-
-**Aid Workers Stand Trial for Helping to Smuggle People Into Greece**\
-`The activists provided support to people who sought sanctuary in Greece during Europe’s migration crisis.`\
-https://nytimes.com/2025/12/04/world/europe/aid-workers-greece-migration-trial-smuggling.html
 
