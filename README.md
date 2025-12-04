@@ -1,3 +1,7 @@
+**Yasser Abu Shabab, Militant Leader Backed by Israel, Killed in Gaza, Official Says**\
+`Mr. Abu Shabab, a Bedouin man in his 30s, was at the center of an Israeli project in Gaza to build up anti-Hamas militias.`\
+https://nytimes.com/2025/12/04/world/middleeast/yasser-abu-shabab-killed-gaza.html
+
 **Chris Paul's legacy may be in the eye of the beholder, but he turned every head**\
 `Praise Chris Paul for being one of the best ever. Or criticize him for never winning. Either way, you can't overlook him.`\
 https://nytimes.com/athletic/6861478/2025/12/04/chris-paul-nba-legacy-career-cp3-clippers/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/04/science/lost-science-nist-atomic-measurements.htm
 **The Wizards have the league's second worst record. But they're following their plan.**\
 `After 20 games, this season's Wizards are exactly where they need to be in order to have a successful 2026 draft. `\
 https://nytimes.com/athletic/6860883/2025/12/04/washington-wizards-season-analysis-20-games/
-
-**Key fantasy football questions for Week 14: Has Rome fallen? Is BTJ the biggest bust?**\
-`Dalton Del Don breaks down the key fantasy football topics for Week 14, including the struggles of receivers Rome Odunze and Brian Thomas.`\
-https://nytimes.com/athletic/6860109/2025/12/04/fantasy-football-key-questions-week-14-rome-odunze/
 

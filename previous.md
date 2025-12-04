@@ -1,3 +1,7 @@
+**Chris Paul's legacy may be in the eye of the beholder, but he turned every head**\
+`Praise Chris Paul for being one of the best ever. Or criticize him for never winning. Either way, you can't overlook him.`\
+https://nytimes.com/athletic/6861478/2025/12/04/chris-paul-nba-legacy-career-cp3-clippers/
+
 **Her Roof Was About to Be Fixed. Then Immigration Agents Showed Up.**\
 `Border Patrol agents have begun fanning out across immigrant enclaves in New Orleans. Their arrival in one suburb brought headaches for one resident.`\
 https://nytimes.com/2025/12/04/us/new-orleans-border-patrol-immigration-home-repair.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6860883/2025/12/04/washington-wizards-season-analys
 **Key fantasy football questions for Week 14: Has Rome fallen? Is BTJ the biggest bust?**\
 `Dalton Del Don breaks down the key fantasy football topics for Week 14, including the struggles of receivers Rome Odunze and Brian Thomas.`\
 https://nytimes.com/athletic/6860109/2025/12/04/fantasy-football-key-questions-week-14-rome-odunze/
-
-**Crafting the Future**\
-`At these two Swiss institutions, the pursuit of excellence is both cutting-edge and deeply human.`\
-https://nytimes.com/paidpost/ubs/crafting-the-future.html
 
