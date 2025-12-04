@@ -1,3 +1,7 @@
+**Ranking all 64 teams in the World Cup draw**\
+`Our guide to the most likely winners and biggest outsiders for next summer's tournament in North America`\
+https://nytimes.com/athletic/6833349/2025/12/04/world-cup-draw-teams-ranked/
+
 **Inside Martinez's 301 days of torment - and what happens now he's back**\
 `Runs with Ruben Amorim were an important act of solidarity for the Argentinian as he rehabbed from a serious knee injury`\
 https://nytimes.com/athletic/6858772/2025/12/04/lisandro-martinez-injury-return-manchester-united/
