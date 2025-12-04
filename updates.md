@@ -1,3 +1,19 @@
+**Players union says NWSL engaged in 'flagrant' violation of Trinity Rodman’s free agent rights**\
+`The NWSLPA says the league violated at least five different sections of the current collective bargaining agreement.`\
+https://nytimes.com/athletic/6861921/2025/12/04/trinity-rodman-nwsl-free-agent-players-union/
+
+**Dyche unconcerned by Everton reception: 'They know the work we did'**\
+`Dyche faces his former side Everton on Saturday with Nottingham Forest.`\
+https://nytimes.com/athletic/6861905/2025/12/04/sean-dyche-everton-fan-return/
+
+**Diego Luna: Our Reality Has Become Reality TV**\
+`As the line between real life and fiction blurs, cinema and television can help us understand a changing world.`\
+https://nytimes.com/2025/12/04/special-series/diego-luna-andor-fiction-media.html
+
+**The LA Clippers were supposed to be triumphant this season. They've been a disaster**\
+`With a talented roster and All-Star weekend in their home arena, the LA Clippers were poised to have a great 2025-26 season. What happened?`\
+https://nytimes.com/athletic/6860939/2025/12/04/la-clippers-losing-season-injuries-scandal/
+
 **Yasser Abu Shabab, Militant Leader Backed by Israel, Killed in Gaza, Official Says**\
 `Mr. Abu Shabab, a Bedouin man in his 30s, was at the center of an Israeli project in Gaza to build up anti-Hamas militias.`\
 https://nytimes.com/2025/12/04/world/middleeast/yasser-abu-shabab-killed-gaza.html

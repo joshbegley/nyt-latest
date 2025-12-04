@@ -1,3 +1,19 @@
+**Players union says NWSL engaged in 'flagrant' violation of Trinity Rodman’s free agent rights**\
+`The NWSLPA says the league violated at least five different sections of the current collective bargaining agreement.`\
+https://nytimes.com/athletic/6861921/2025/12/04/trinity-rodman-nwsl-free-agent-players-union/
+
+**Dyche unconcerned by Everton reception: 'They know the work we did'**\
+`Dyche faces his former side Everton on Saturday with Nottingham Forest.`\
+https://nytimes.com/athletic/6861905/2025/12/04/sean-dyche-everton-fan-return/
+
+**Diego Luna: Our Reality Has Become Reality TV**\
+`As the line between real life and fiction blurs, cinema and television can help us understand a changing world.`\
+https://nytimes.com/2025/12/04/special-series/diego-luna-andor-fiction-media.html
+
+**The LA Clippers were supposed to be triumphant this season. They've been a disaster**\
+`With a talented roster and All-Star weekend in their home arena, the LA Clippers were poised to have a great 2025-26 season. What happened?`\
+https://nytimes.com/athletic/6860939/2025/12/04/la-clippers-losing-season-injuries-scandal/
+
 **Yasser Abu Shabab, Militant Leader Backed by Israel, Killed in Gaza, Official Says**\
 `Mr. Abu Shabab, a Bedouin man in his 30s, was at the center of an Israeli project in Gaza to build up anti-Hamas militias.`\
 https://nytimes.com/2025/12/04/world/middleeast/yasser-abu-shabab-killed-gaza.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6861561/2025/12/04/root-ashes-england-australia-cen
 **Michael Phelps criticism. Home Olympics looming. USA Swimming's new boss has a big task**\
 `The 2028 L.A. Olympics are something "we can't f— up," U.S. swimmer Regan Smith says. Kevin Ring is the new CEO in charge of assuring that.`\
 https://nytimes.com/athletic/6859254/2025/12/04/michael-phelps-usa-swimming-kevin-ring-olympics/
-
-**Devin Williams has social media message for Yankees fans**\
-`Devin Williams' difficult run in pinstripes is over. The reliever had some words for Yankees fans.`\
-https://nytimes.com/athletic/6861792/2025/12/04/devin-williams-yankees-mets-social/
-
-**With draw pots set, what are USA's best, worst and most interesting World Cup groups?**\
-`The World Cup draw is nearly here. So what could the USMNT's group look like on home soil? The possibilities are intriguing`\
-https://nytimes.com/athletic/6837167/2025/12/04/usmnt-2026-world-cup-draw-group-scenarios/
-
-**His Group Made World-Class Measurements of Atomic Elements**\
-`Yuri Ralchenko led one of the oldest teams at the National Institute for Standards and Technology. The fate of some experiments hangs in the air.`\
-https://nytimes.com/2025/12/04/science/lost-science-nist-atomic-measurements.html
-
-**The Wizards have the league's second worst record. But they're following their plan.**\
-`After 20 games, this season's Wizards are exactly where they need to be in order to have a successful 2026 draft. `\
-https://nytimes.com/athletic/6860883/2025/12/04/washington-wizards-season-analysis-20-games/
 
