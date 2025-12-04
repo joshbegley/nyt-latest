@@ -1,3 +1,7 @@
+**His Deadline for a Peace Deal Blown, Trump Faces Choices on Russia-Ukraine Talks**\
+`The president wanted Moscow and Kyiv to come to terms by Thanksgiving. Negotiations are now stalled, leaving the White House to decide if an agreement is possible anytime soon.`\
+https://nytimes.com/2025/12/03/us/politics/trump-russia-ukraine-deadline.html
+
 **Gunman Killed and 3 Officers Hurt in Shooting at Omaha Gas Station**\
 `Police say the man, whose identity has yet to be released, shot another man at a grocery store across town in what appeared to be a random attack.`\
 https://nytimes.com/2025/12/03/us/quiktrip-shooting-omaha-nebraska.html
@@ -11,7 +15,7 @@ https://nytimes.com/athletic/6859950/2025/12/03/chris-paul-clippers-sent-home-bl
 https://nytimes.com/athletic/6837169/2025/12/03/mlb-free-agency-emilio-pagan-reds/
 
 **Lionel Messi's legacy doesn't need an Inter Miami MLS Cup title. Or does it?**\
-`Messi has won - and lost - bigger games than Saturday's MLS Cup final. But at his level of greatness, every opportunity counts `\
+`Messi has won — and lost — bigger games than Saturday's MLS Cup final. But at his level of greatness, every opportunity counts.`\
 https://nytimes.com/athletic/6854125/2025/12/03/messi-mls-cup-final-legacy-inter-miami/
 
 **Your Immigration Questions, Answered**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/03/arts/music/steve-cropper-dead.html
 **How Dan Mullen built UNLV by raiding talent from the nation's best programs**\
 `UNLV (10-2), led by Dan Mullen, hopes to knock off Boise State in Friday's Mountain West Championship.`\
 https://nytimes.com/athletic/6859081/2025/12/03/unlv-dan-mullen-roster-mountain-west-championship-game/
-
-**Trump Plans to Lower Fuel Efficiency Requirements**\
-`Also, Dick Van Dyke shares his secrets to aging well. Here’s the latest at the end of Wednesday.`\
-https://nytimes.com/2025/12/03/briefing/trump-fuel-efficiency-requirements.html
 
