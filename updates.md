@@ -1,3 +1,19 @@
+**A Utopian Story That Became a Queer Cult Classic Debuts in New York**\
+`“The Faggots and Their Friends Between Revolutions” is a music theater piece based on Larry Mitchell and Ned Asta’s 1970s book.`\
+https://nytimes.com/2025/12/04/theater/faggots-and-their-friends-between-revolutions-show-new-york.html
+
+**What Teenagers Are Saying About ‘6-7’ and the Era of ‘Brain Rot’**\
+`Students explain what today’s slang reveals about their generation.`\
+https://nytimes.com/2025/12/04/learning/what-teenagers-are-saying-about-6-7-and-the-era-of-brain-rot.html
+
+**Top Military Officers Show Lawmakers Video of Sept. 2 Boat Attack**\
+`Gen. Dan Caine, chairman of the Joint Chiefs of Staff, and Adm. Frank M. Bradley, commander of the operation, met with members of Congress behind closed doors.`\
+https://nytimes.com/2025/12/04/us/politics/drug-boat-strikes-sept-2-video-congress.html
+
+**Aid Workers Stand Trial for Helping to Smuggle People Into Greece**\
+`The activists provided support to people who sought sanctuary in Greece during Europe’s migration crisis.`\
+https://nytimes.com/2025/12/04/world/europe/aid-workers-greece-migration-trial-smuggling.html
+
 **False Report of 5.9 Earthquake Sends Phones Buzzing in Nevada**\
 `The United States Geological Survey quickly deleted the alert, saying it had been sent in error.`\
 https://nytimes.com/2025/12/04/us/nevada-earthquake-usgs-false.html
