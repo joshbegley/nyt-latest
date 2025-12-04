@@ -1,3 +1,23 @@
+**Higher Prices, Less Coverage: Your Stories of the Home Insurance Crunch**\
+`Readers told us how insurers are raising premiums and, in some cases, cutting back coverage, as climate change shakes up the real estate market.`\
+https://nytimes.com/2025/12/04/climate/home-insurance-prices-climate-change-readers.html
+
+**Most Immigrants Arrested in City Crackdowns Have No Criminal Record**\
+`In high-profile operations, more than half of those arrested had no criminal record, an analysis shows.`\
+https://nytimes.com/interactive/2025/12/04/us/ice-arrests-criminal-records-data.html
+
+**Rebecca Heineman, Transgender Video Game Pioneer, Dies at 62**\
+`Fleeing an abusive home life, she went on to win a national Space Invaders tournament, taught herself to program and left a trail of popular games in her wake.`\
+https://nytimes.com/2025/12/04/technology/rebecca-heineman-dead.html
+
+**How to watch Notre Dame vs. Ole Miss women's basketball: Time, TV, streaming**\
+`Find out how to watch the Notre Dame Fighting Irish play the Ole Miss Rebels, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6862826/2025/12/04/notre-dame-vs-ole-miss-stream-how-to-watch-dec-4/
+
+**How to watch LSU vs. Duke women's basketball: Time, TV, streaming**\
+`Find out how to watch the LSU Tigers play the Duke Blue Devils, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6862824/2025/12/04/lsu-vs-duke-stream-how-to-watch-dec-4/
+
 **ICE Separates Boy, 6, From Father During Effort to Deport Them to China**\
 `The child and his father fled China earlier this year and the boy had just been enrolled in school. Federal officials have tried and failed to send them back.`\
 https://nytimes.com/2025/12/04/nyregion/chinese-father-son-migrants-separated.html
@@ -13,24 +33,4 @@ https://nytimes.com/athletic/6862562/2025/12/04/shai-gilgeous-alexander-highligh
 **I Scream for These Mint Chip Cookies**\
 `Eric Kim’s 2025 Cookie Week entry captures the tingly, creamy, chocolaty flavors of the classic ice cream.`\
 https://nytimes.com/2025/12/04/dining/i-scream-for-these-mint-chip-cookies.html
-
-**4 New Books We Love This Week**\
-`Reading recommendations from critics and editors at The New York Times.`\
-https://nytimes.com/2025/12/04/books/review/new-recommended-books.html
-
-**Bending a Dark Arc Toward Justice**\
-`For years, ordinary Filipinos fought for justice. Former President Rodrigo Duterte’s arrest proves that resistance matters.`\
-https://nytimes.com/2025/12/04/special-series/rodrigo-duterte-arrest-philippines.html
-
-**What’s Going On in This Graph? | Dec. 10, 2025**\
-`Will you have a white Christmas this year? What do you notice about the map below? What questions does it raise for you?`\
-https://nytimes.com/2025/12/04/learning/whats-going-on-in-this-graph-dec-10-2025.html
-
-**What’s Going On in This Picture? | Dec. 8, 2025**\
-`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
-https://nytimes.com/2025/12/04/learning/whats-going-on-in-this-picture-dec-8-2025.html
-
-**Dominik Duka, Czech Cardinal Jailed Under Communism, Dies at 82**\
-`While in prison in 1981, he befriended the dissident and future Czech president Vaclav Havel. Later, he became a conservative voice in Rome.`\
-https://nytimes.com/2025/12/04/world/europe/dominik-duka-dead.html
 
