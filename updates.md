@@ -1,3 +1,7 @@
+**Yasser Abu Shabab, Militant Leader Backed by Israel, Killed in Gaza, Official Says**\
+`Mr. Abu Shabab, a Bedouin man in his 30s, was at the center of an Israeli project in Gaza to build up anti-Hamas militias.`\
+https://nytimes.com/2025/12/04/world/middleeast/yasser-abu-shabab-killed-gaza.html
+
 **Chris Paul's legacy may be in the eye of the beholder, but he turned every head**\
 `Praise Chris Paul for being one of the best ever. Or criticize him for never winning. Either way, you can't overlook him.`\
 https://nytimes.com/athletic/6861478/2025/12/04/chris-paul-nba-legacy-career-cp3-clippers/
