@@ -1,40 +1,36 @@
-**Hamas Returns Body of Last Thai Hostage in Gaza**\
-`The militant group took more than 250 hostages from Israel on Oct. 7, 2023, including 31 from Thailand. The remains of all but one other hostage, an Israeli, have been recovered.`\
-https://nytimes.com/2025/12/04/world/middleeast/thai-hostage-gaza-hamas-israel.html
+**Why Republicans Are Starting to Inch Away From Trump**\
+`Rare pushback from his party and troubling poll numbers reflect the newly precarious situation in which Trump finds himself.`\
+https://nytimes.com/2025/12/04/opinion/trump-maga-hegseth-mamdani.html
 
-**San Francisco Mayor Names Derrick Lew as New Police Chief**\
-`Mr. Lew is a veteran police officer whose experience includes major operations against drug dealing.`\
-https://nytimes.com/2025/12/04/us/derrick-lew-san-francisco-police-chief.html
+**The Furor Over Trump’s Boat Attacks and a Particular Follow-Up Strike, Explained**\
+`Bipartisan congressional oversight is underway, but for now is focusing on narrow details about one missile instead of broader legal issues.`\
+https://nytimes.com/2025/12/04/us/politics/boat-strikes-explained.html
 
-**Taxi**\
-`What is this vehicle and why has it been in the news? What is your opinion of it?`\
-https://nytimes.com/2025/12/04/learning/taxi.html
+**A Volunteer’s Dire Warnings About the National Guard Shooting Suspect**\
+`More than a year before the Trump administration granted asylum to the Afghan immigrant, the volunteer’s emails raised concerns that he was unraveling.`\
+https://nytimes.com/2025/12/04/us/rahmanullah-lakanwal-national-guard-shooting-dc.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/12/04/crosswords/spelling-bee-forum.html
+**Will All Newborns Still Receive Hepatitis B Shots? A Committee’s Vote Will Tell.**\
+`The federal vaccine panel appointed by Health Secretary Robert F. Kennedy Jr. is likely to decide on Thursday that the shots should be delayed for infants whose mothers test negative for the virus.`\
+https://nytimes.com/2025/12/04/health/cdc-vaccine-committee-newborns-hepatitis-b.html
 
-**She Was 8 When She Fled the Nazis. After 86 Years, It Inspired Her Art.**\
-`Cornelia Foss, better known as a confidante to other artists than as an artist herself, has put aside landscape painting for something far more visceral.`\
-https://nytimes.com/2025/12/04/nyregion/cornelia-foss-artist-little-red.html
+**The Conversation: Your Questions Answered**\
+`Bret Stephens, Frank Bruni and Aaron Retica on the gap between Trump’s interests and what matters to Americans.`\
+https://nytimes.com/2025/12/04/opinion/the-conversation-trumpism-future.html
 
-**As Hochul Considers an A.I. Bill, Its Sponsor Throws Her a Fund-Raiser**\
-`Gov. Kathy Hochul received nearly $250,000 for her re-election campaign from donors eager to have her sign a bill that would regulate the A.I. field in New York.`\
-https://nytimes.com/2025/12/04/nyregion/hochul-ai-bill-bores.html
+**174 Million Stolen Rides: The Cost of Fare Evasion**\
+`The M.T.A. is deploying a variety of tools to combat fare beating, and the authority says that they are working.`\
+https://nytimes.com/2025/12/04/nyregion/174-million-stolen-rides-the-cost-of-fare-evasion.html
 
-**Chelsea's display at Leeds shows why they are not Premier League title contenders yet**\
-`Enzo Maresca rested key players after Chelsea's impressive performances against Barcelona and Arsenal – it did not work out `\
-https://nytimes.com/athletic/6860844/2025/12/04/chelsea-premier-league-bid-leeds-defeat/
+**Kenya Kept a Diplomat in His Job Despite Years of Sex Abuse Accusations**\
+`President William Ruto faces pressure after a Times investigation showed that his government downplayed or ignored the mistreatment of women working in Saudi Arabia.`\
+https://nytimes.com/2025/12/04/world/africa/kenya-kept-a-diplomat-in-his-job-despite-years-of-sex-abuse-accusations.html
 
-**How to watch Eagles vs. Chargers: Time, TV, streaming**\
-`Find out how to watch the Philadelphia Eagles play the Los Angeles Chargers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6861071/2025/12/04/eagles-vs-chargers-stream-how-to-watch-dec-8/
+**Where Does the Transgender Rights Movement Go From Here?**\
+`The lawyer and activist Chase Strangio on cultural divisions and common ground.`\
+https://nytimes.com/2025/12/04/opinion/transgender-rights-strangio-douthat.html
 
-**Wolves do not look like scoring, never mind winning. These are grim times**\
-`Rob Edwards knew he had a big job on when arriving at Molineux - even goals are increasingly hard to come by`\
-https://nytimes.com/athletic/6860148/2025/12/04/wolves-rob-edwards-relegation-goals/
-
-**New Footage Shows Epstein’s Private Island Home**\
-`Democrats in the House Oversight Committee released a set of photos and videos that show Jeffrey Epstein’s private home in the U.S. Virgin Islands, where his accusers say he trafficked underage girls for sex.`\
-https://nytimes.com/video/us/100000010564514/epstein-island-home.html
+**Homes for Sale in New York and Connecticut**\
+`This week’s properties include a three-bedroom homes in Mamaroneck and West Norwalk.`\
+https://nytimes.com/2025/12/04/realestate/housing-market-near-nyc.html
 
