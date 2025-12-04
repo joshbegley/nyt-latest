@@ -1,3 +1,15 @@
+**NFL is evaluating options for broadcast schedule on Thanksgiving weekend**\
+`The Sports Broadcasting Act of 1961 prevents the NFL from scheduling evening games on Black Friday. `\
+https://nytimes.com/athletic/6861951/2025/12/04/second-nfl-black-friday-game-goodell/
+
+**Raccoon Breaks Into a Liquor Store, Gets Drunk Then Passes Out**\
+`A raccoon entered a liquor store in Ashland, Va., on Saturday morning, rampaged through the aisles and became intoxicated. The animal was later returned safely to the wild.`\
+https://nytimes.com/video/us/100000010564953/raccoon-liquor-drunk-virginia.html
+
+**2026 Midterm Primary Election Calendar**\
+`See the state-by-state schedule for every primary leading up to the midterm election.`\
+https://nytimes.com/interactive/2025/12/04/us/elections/2026-election-calendar.html
+
 **Arsenal agree deal to sign 16-year-old Ecuador international twins**\
 `Edwin is predominantly a right-sided wide forward and Holger is an attacking midfielder who is also capable of playing on the left.`\
 https://nytimes.com/athletic/6851983/2025/12/04/arsenal-transfers-edwin-quintero-holger/

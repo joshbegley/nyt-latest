@@ -1,3 +1,7 @@
+**Beans and Greens and Vodka**\
+`That is, beans and greens alla vodka, a five-star Ali Slagle reader favorite.`\
+https://nytimes.com/2025/12/04/dining/beans-and-greens-and-vodka.html
+
 **NFL is evaluating options for broadcast schedule on Thanksgiving weekend**\
 `The Sports Broadcasting Act of 1961 prevents the NFL from scheduling evening games on Black Friday. `\
 https://nytimes.com/athletic/6861951/2025/12/04/second-nfl-black-friday-game-goodell/
@@ -8,7 +12,7 @@ https://nytimes.com/video/us/100000010564953/raccoon-liquor-drunk-virginia.html
 
 **2026 Midterm Primary Election Calendar**\
 `See the state-by-state schedule for every primary leading up to the midterm election.`\
-https://nytimes.com/interactive/2025/12/04/us/elections/2026-election-calendar.html
+https://nytimes.com/interactive/2026/us/elections/2026-election-calendar.html
 
 **USA coach Pochettino has 'zero stress' entering 2026 World Cup draw**\
 `The unknown about the USA's World Cup path will be sorted soon enough, but the manager isn't worried about what the draw produces`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6861886/2025/12/04/chris-paul-giannis-antetokounmpo
 **Fantasy football injuries, inactives, cheat sheet Week 14**\
 `Fantasy football relevant injuries and their impact, weather reports and game previews. Plus, Ciely's Week 14 player rankings and more.`\
 https://nytimes.com/athletic/6856484/2025/12/04/fantasy-football-injuries-inactives-cheat-sheet-week-14/
-
-**Players union says NWSL engaged in 'flagrant' violation of Trinity Rodman’s free agent rights**\
-`The NWSLPA says the league violated at least five different sections of the current collective bargaining agreement.`\
-https://nytimes.com/athletic/6861921/2025/12/04/trinity-rodman-nwsl-free-agent-players-union/
 

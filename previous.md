@@ -1,3 +1,15 @@
+**NFL is evaluating options for broadcast schedule on Thanksgiving weekend**\
+`The Sports Broadcasting Act of 1961 prevents the NFL from scheduling evening games on Black Friday. `\
+https://nytimes.com/athletic/6861951/2025/12/04/second-nfl-black-friday-game-goodell/
+
+**Raccoon Breaks Into a Liquor Store, Gets Drunk Then Passes Out**\
+`A raccoon entered a liquor store in Ashland, Va., on Saturday morning, rampaged through the aisles and became intoxicated. The animal was later returned safely to the wild.`\
+https://nytimes.com/video/us/100000010564953/raccoon-liquor-drunk-virginia.html
+
+**2026 Midterm Primary Election Calendar**\
+`See the state-by-state schedule for every primary leading up to the midterm election.`\
+https://nytimes.com/interactive/2025/12/04/us/elections/2026-election-calendar.html
+
 **USA coach Pochettino has 'zero stress' entering 2026 World Cup draw**\
 `The unknown about the USA's World Cup path will be sorted soon enough, but the manager isn't worried about what the draw produces`\
 https://nytimes.com/athletic/6862011/2025/12/04/mauricio-pochettino-usmnt-world-cup-draw-preview/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6856484/2025/12/04/fantasy-football-injuries-inacti
 **Players union says NWSL engaged in 'flagrant' violation of Trinity Rodman’s free agent rights**\
 `The NWSLPA says the league violated at least five different sections of the current collective bargaining agreement.`\
 https://nytimes.com/athletic/6861921/2025/12/04/trinity-rodman-nwsl-free-agent-players-union/
-
-**Dyche unconcerned by Everton reception: 'They know the work we did'**\
-`Dyche faces his former side Everton on Saturday with Nottingham Forest.`\
-https://nytimes.com/athletic/6861905/2025/12/04/sean-dyche-everton-fan-return/
-
-**Diego Luna: Our Reality Has Become Reality TV**\
-`As the line between real life and fiction blurs, cinema and television can help us understand a changing world.`\
-https://nytimes.com/2025/12/04/special-series/diego-luna-andor-fiction-media.html
-
-**The LA Clippers were supposed to be triumphant this season. They've been a disaster**\
-`With a talented roster and All-Star weekend in their home arena, the LA Clippers were poised to have a great 2025-26 season. What happened?`\
-https://nytimes.com/athletic/6860939/2025/12/04/la-clippers-losing-season-injuries-scandal/
 
