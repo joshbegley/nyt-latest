@@ -1,3 +1,15 @@
+**Why The Athletic's Playoff Simulator likes Patriots to win AFC East even more than sportsbooks**\
+`The Athletic's NFL playoff simulator finds betting value in three teams' futures odds. Read to see where the value lies.`\
+https://nytimes.com/athletic/6862331/2025/12/04/nfl-playoffs-odds-patriots-afc-east/
+
+**Taiwan’s Leader Warns China Is Getting More Aggressive**\
+`President Lai Ching-te is calling for more military spending.`\
+https://nytimes.com/2025/12/04/podcasts/lai-ching-te-dealbook-summit-2025.html
+
+**MrBeast Isn’t Looking for Controversy**\
+`YouTube’s most popular entertainer reflects on the creator economy.`\
+https://nytimes.com/2025/12/04/podcasts/mrbeast-dealbook-summit-2025.html
+
 **Halle Berry’s Journey to Being a Women’s Health Advocate**\
 `The actor shares how a misdiagnosis sparked her to take on the cause of raising awareness about menopause.`\
 https://nytimes.com/2025/12/04/podcasts/halle-berry-dealbook-summit-2025.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6863094/2025/12/04/nfl-week-14-projected-scores-mod
 **Should Eagles' tush push be banned? Like NFL owners, our readers are divided**\
 `The Eagles have faced stronger defensive challenges with the tush push this season.`\
 https://nytimes.com/athletic/6862534/2025/12/04/eagles-tush-push-ban/
-
-**Biden to Attend First Event for Presidential Library**\
-`His plans for the library have been slow to take shape, but he has invited potential donors to a holiday reception in Washington this month.`\
-https://nytimes.com/2025/12/04/us/politics/biden-presidential-library.html
-
-**Appeals Court Pauses, for Now, Order Blocking National Guard in Washington**\
-`A week after the president surged more members of the National Guard to Washington, an appeals court halted an order that would have required the Guard to pull out after Dec. 11.`\
-https://nytimes.com/2025/12/04/us/politics/national-guard-washington-ruling.html
-
-**What we’re hearing about the Cubs: Revisiting the pursuit of Alex Bregman**\
-`After a failed bid to sign Bregman during spring training, the Cubs have shown renewed interest in the All-Star third baseman.`\
-https://nytimes.com/athletic/6862841/2025/12/04/cubs-alex-bregman-free-agent-interest/
 
