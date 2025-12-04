@@ -1,3 +1,7 @@
+**5 Takeaways From the 2025 DealBook Summit**\
+`President Trump’s economic policies and artificial intelligence were among the central topics at the gathering of business and political leaders.`\
+https://nytimes.com/2025/12/03/business/dealbook-summit-kirk-netanyahu-mrbeast.html
+
 **Newsom Warns That Trump Is ‘Trying to Wreck This Country’**\
 `The California governor weighed in on the 2028 presidential election, and called out executives for “bending the knee” to President Trump.`\
 https://nytimes.com/2025/12/03/business/dealbook/gavin-newsom-trump-2028-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6837169/2025/12/03/mlb-free-agency-emilio-pagan-red
 **Lionel Messi's legacy doesn't need an Inter Miami MLS Cup title. Or does it?**\
 `Messi has won — and lost — bigger games than Saturday's MLS Cup final. But at his level of greatness, every opportunity counts.`\
 https://nytimes.com/athletic/6854125/2025/12/03/messi-mls-cup-final-legacy-inter-miami/
-
-**Your Immigration Questions, Answered**\
-`As Trump steps up his crackdown, our reporters explain what’s happening.`\
-https://nytimes.com/2025/12/03/us/politics/trump-immigration-crackdown-deportations-economy.html
 

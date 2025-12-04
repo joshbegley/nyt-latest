@@ -1,3 +1,7 @@
+**5 Takeaways From the 2025 DealBook Summit**\
+`President Trump’s economic policies and artificial intelligence were among the central topics at the gathering of business and political leaders.`\
+https://nytimes.com/2025/12/03/business/dealbook-summit-kirk-netanyahu-mrbeast.html
+
 **Newsom Warns That Trump Is ‘Trying to Wreck This Country’**\
 `The California governor weighed in on the 2028 presidential election, and called out executives for “bending the knee” to President Trump.`\
 https://nytimes.com/2025/12/03/business/dealbook/gavin-newsom-trump-2028-election.html
