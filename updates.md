@@ -1,3 +1,11 @@
+**Tyler Skaggs' agent, surgeon testify that they were in the dark about pitcher's drug use**\
+`Agent Ryan Hamill testified that after Skaggs kicked a Percocet addiction in 2013, he believed the pitcher was clean. `\
+https://nytimes.com/athletic/6860711/2025/12/03/tyler-skaggs-agent-surgeon-testimony-drug-use/
+
+**NWSL commissioner rejects Spirit's offer to keep Trinity Rodman in the league**\
+`According to sources, the NWSL Players Association has filed a grievance with the league on Rodman’s behalf . `\
+https://nytimes.com/athletic/6860740/2025/12/03/nwsl-spirit-trinity-rodman-offer-rejected/
+
 **Jamal Murray recorded his third career 50-point game on Wednesday**\
 `Murray made a career-high ten 3-pointers in Denver's 135-120 rout of Indiana.`\
 https://nytimes.com/athletic/6860633/2025/12/03/jamal-murray-52-points-nuggets-pacers-nba/
