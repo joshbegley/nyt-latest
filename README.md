@@ -1,40 +1,40 @@
-**Cooper Flagg is becoming a closer for the Mavericks**\
-`Dallas' main man added to his impressive total of "clutch" points in Wednesday night's win over Miami.`\
-https://nytimes.com/athletic/6860954/2025/12/04/cooper-flagg-mavericks-closer/
+**What makes this Heisman Trophy race different? The legacies of the two QBs leading it**\
+`Pavia and Mendoza are two of the best players in college football this season. That influence goes far beyond the field.`\
+https://nytimes.com/athletic/6855264/2025/12/04/heisman-trophy-diego-pavia-fernando-mendoza-vanderbilt-indiana/
 
-**Without Victor Wembanyama, De'Aaron Fox is bringing the Spurs' offense to life**\
-`Spurs coach Mitch Johnson received a coach of the month nomination, even with Victor Wembanyama missing time. He can thank De'Aaron Fox.`\
-https://nytimes.com/athletic/6860369/2025/12/04/deaaron-fox-spurs-victor-wembanyama-offense/
+**The Ashes Briefing: Root scores his first century in Australia, but Starc torments England again**\
+`Another blistering day of Test cricket saw Root, defiant amid the frenzy, finally reach his landmark as Australia claimed nine wickets`\
+https://nytimes.com/athletic/6858031/2025/12/04/ashes-australia-england-root-starc-gabba/
 
-**More Than a Million Bags of Cheese Were Recalled. Here’s What That Means.**\
-`A warning over shredded cheese is the latest of hundreds in the U.S. food system. Understanding recalls can help shoppers determine what’s truly dangerous.`\
-https://nytimes.com/2025/12/04/us/cheese-recall.html
+**F1's final race will decide the championship. Here's what the odds say about Abu Dhabi**\
+`The F1 title fight is settled in Abu Dhabi. Can McLaren stop getting in its own way? Or will Verstappen pull off an improbable comeback?`\
+https://nytimes.com/athletic/6858625/2025/12/04/f1-abu-dhabi-preview-title-odds-tv/
 
-**TAFC: EPL's U.S owners and manager plot twist? Plus: Mbappe cooking, Rodman contract rejection**\
-`Today in TAFC: The U.S. owners given pause for thought over coaches. Plus: Mbappe is cooking, will he beat World Cup record?`\
-https://nytimes.com/athletic/6861213/2025/12/04/premier-league-american-owners-mbappe-rodman/
+**Indiana, Ohio State and Notre Dame highlight final college football offensive line rankings**\
+`The Hoosiers have the 2026 NFL Draft's potential top pick at quarterback, but their line has been the driving force behind their success.`\
+https://nytimes.com/athletic/6852687/2025/12/04/college-football-best-offensive-lines-indiana-ohio-state/
 
-**2026 NBA mock draft: How deep is this class behind the big 3?**\
-`Caleb Wilson, Kingston Flemings and Cameron Carr are among the big risers a month into the college basketball season.`\
-https://nytimes.com/athletic/6851394/2025/12/04/nba-mock-draft-cameron-boozer-aj-dybantsa-caleb-wilson/
+**College football championship week oddly specific predictions: Georgia ends Alabama hex**\
+`Indiana makes Ohio State sweat … but not enough to knock off the mighty Buckeyes. North Texas tops Tulane to secure CFP bid.`\
+https://nytimes.com/athletic/6859402/2025/12/04/championship-week-college-football-predictions-2/
 
-**Hall of Fame committee to have an important say – but not the final one – on Bonds, Clemens**\
-`The pair headlines an eight-player ballot that the Contemporary Era Committee (1980 to the present) will consider this weekend.`\
-https://nytimes.com/athletic/6859693/2025/12/04/hall-of-fame-committee-bonds-clemens/
+**How Jayden Reed's return will boost the Packers offense: 'It would be huge'**\
+`Reed led the Packers in catches and receiving yards in each of his first two seasons in 2023 and 2024.`\
+https://nytimes.com/athletic/6859655/2025/12/04/jayden-reed-packers-injury-return-bears/
 
-**What we're hearing about the Dodgers before next week's Winter Meetings**\
-`How the Dodgers are threading the needle in their relief pitcher pursuits, plus how the club plans to address the outfield.`\
-https://nytimes.com/athletic/6860523/2025/12/04/los-angeles-dodgers-winter-meetings-primer/
+**How the Pro Football Hall of Fame will vote on Bill Belichick, Robert Kraft and others**\
+`Recent changes in the name of exclusivity have made it harder to be elected from the seniors, coaches and contributors categories.`\
+https://nytimes.com/athletic/6859003/2025/12/04/hall-of-fame-selection-nfl-belichick-kraft/
 
-**By keeping Joe Schoen, Giants have only added to their migraines**\
-`There's no margin for error, and Schoen’s presence is an unnecessary complication — and one a prominent coach with options may not want.`\
-https://nytimes.com/athletic/6860386/2025/12/04/giants-joe-schoen-embattled-gm/
+**The SEC is dominating the Big Ten in ratings — despite on-field parity**\
+`The Big Ten has the last two champs and the CFP’s top two teams — so why is the SEC still winning the TV ratings race?`\
+https://nytimes.com/athletic/6859564/2025/12/04/sec-big-ten-tv-ratings/
 
-**NHL panic meter: How close are these 5 Western teams to missing the playoffs?**\
-`Some teams that seemed playoff-bound to start the season now look troubled. Which ones can turn it around?`\
-https://nytimes.com/athletic/6860057/2025/12/04/nhl-playoffs-panic-meter-western-conference/
+**LSU women have 8 straight 100-point games. Are they among best offenses ever?**\
+`From a 1987 Long Beach State Final Four team to Caitlin Clark's Iowa, here are some of the top offenses in women's college hoops history.`\
+https://nytimes.com/athletic/6853734/2025/12/04/does-lsus-high-scoring-womens-basketball-team-stack-up-vs-all-time-great-offenses/
 
-**The Pulse: Inside Chris Paul’s shocking exit**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6859244/2025/12/04/chris-paul-clippers-the-pulse/
+**What players, coaches and execs think of the 2025 MLS Cup matchup**\
+`Many are excited by Saturday's Miami vs. Vancouver showdown, even if feelings are more polarized around Messi & Co.`\
+https://nytimes.com/athletic/6860382/2025/12/04/mls-cup-inter-miami-vancouver-whitecaps-player-coach-opinion/
 
