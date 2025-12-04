@@ -1,3 +1,7 @@
+**The spiraling Bulls are unraveling at the seams**\
+`Ravaged by injuries and unable to beat the Eastern Conference's most lowly teams, Chicago is right back in the hopeless place of years past.`\
+https://nytimes.com/athletic/6861288/2025/12/04/bulls-losing-streak-nets-nba/
+
 **Young Boys given away fan ban after Aston Villa crowd trouble**\
 `The Swiss side will be without away fans for their match against Stuttgart in the Europa League league phase on January 29.`\
 https://nytimes.com/athletic/6861410/2025/12/04/young-boys-aston-villa-fan-ban/

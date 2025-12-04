@@ -1,3 +1,7 @@
+**The spiraling Bulls are unraveling at the seams**\
+`Ravaged by injuries and unable to beat the Eastern Conference's most lowly teams, Chicago is right back in the hopeless place of years past.`\
+https://nytimes.com/athletic/6861288/2025/12/04/bulls-losing-streak-nets-nba/
+
 **Young Boys given away fan ban after Aston Villa crowd trouble**\
 `The Swiss side will be without away fans for their match against Stuttgart in the Europa League league phase on January 29.`\
 https://nytimes.com/athletic/6861410/2025/12/04/young-boys-aston-villa-fan-ban/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6858625/2025/12/04/f1-abu-dhabi-preview-title-odds-
 **Indiana, Ohio State and Notre Dame highlight final college football offensive line rankings**\
 `The Hoosiers have the 2026 NFL Draft's potential top pick at quarterback, but their line has been the driving force behind their success.`\
 https://nytimes.com/athletic/6852687/2025/12/04/college-football-best-offensive-lines-indiana-ohio-state/
-
-**College football championship week oddly specific predictions: Georgia ends Alabama hex**\
-`Indiana makes Ohio State sweat … but not enough to knock off the mighty Buckeyes. North Texas tops Tulane to secure CFP bid.`\
-https://nytimes.com/athletic/6859402/2025/12/04/championship-week-college-football-predictions-2/
 

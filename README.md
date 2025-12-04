@@ -1,3 +1,7 @@
+**The five must-watch events in a blockbuster sporting weekend**\
+`From the World Cup to the Premier League to the MLS Cup final, with added Ashes and a grandstand F1 final, it is bumper weekend of action  `\
+https://nytimes.com/athletic/6859106/2025/12/04/f1-cricket-football-mls-premier-league-world-cup-draw/
+
 **The spiraling Bulls are unraveling at the seams**\
 `Ravaged by injuries and unable to beat the Eastern Conference's most lowly teams, Chicago is right back in the hopeless place of years past.`\
 https://nytimes.com/athletic/6861288/2025/12/04/bulls-losing-streak-nets-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6858031/2025/12/04/ashes-australia-england-root-sta
 **F1's final race will decide the championship. Here's what the odds say about Abu Dhabi**\
 `The F1 title fight is settled in Abu Dhabi. Can McLaren stop getting in its own way? Or will Verstappen pull off an improbable comeback?`\
 https://nytimes.com/athletic/6858625/2025/12/04/f1-abu-dhabi-preview-title-odds-tv/
-
-**Indiana, Ohio State and Notre Dame highlight final college football offensive line rankings**\
-`The Hoosiers have the 2026 NFL Draft's potential top pick at quarterback, but their line has been the driving force behind their success.`\
-https://nytimes.com/athletic/6852687/2025/12/04/college-football-best-offensive-lines-indiana-ohio-state/
 
