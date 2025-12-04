@@ -1,3 +1,7 @@
+**Daniel Farke has bought himself priceless time by using a system that works**\
+`The takeaway from Wednesday is that Leeds United need to use the same formation against an out-of-sorts Liverpool`\
+https://nytimes.com/athletic/6860526/2025/12/04/leeds-chelsea-daniel-farke-analysis/
+
 **How Amen Thompson has become Rockets' floor raiser with his energy and athleticism**\
 `Thompson's willingness to make plays that often go unnoticed is part of what makes him such an important player.`\
 https://nytimes.com/athletic/6860934/2025/12/04/amen-thompson-rockets-energy-athleticism/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6851918/2025/12/04/wrexham-women-the-rock/
 **Crystal Palace and Oliver Glasner have to compromise as schedule takes its toll**\
 `The Londoners are fifth but, with their squad stretched by a demanding fixture list, they may have to be pragmatic for the foreseeable`\
 https://nytimes.com/athletic/6855601/2025/12/04/crystal-palace-glasner-burnley/
-
-**Ranking all 64 teams in the World Cup draw**\
-`Our guide to the most likely winners and biggest outsiders for next summer's tournament in North America`\
-https://nytimes.com/athletic/6833349/2025/12/04/world-cup-draw-teams-ranked/
 
