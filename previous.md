@@ -1,3 +1,15 @@
+**Manny Diaz says five-loss Duke would deserve to make CFP with ACC title**\
+`'There’s no way you can have a resume in a non-P4 league that would match what it means to win seven games in our conference,' Diaz said.`\
+https://nytimes.com/athletic/6862887/2025/12/04/manny-diaz-duke-college-football-playoff/
+
+**Fantasy basketball hot topics of the week: Giannis-less Bucks, Maxime Raynaud and more**\
+`Stan Son reviews the biggest NBA storylines, including Giannis' recent injury and trade rumors, through a fantasy basketball lens. `\
+https://nytimes.com/athletic/6862756/2025/12/04/fantasy-basketball-hot-topics-giannis-jjj/
+
+**The State of the Burger Address**\
+`A lot of new burgers hit the scene this year. These three are worth the hype.`\
+https://nytimes.com/2025/12/04/dining/the-state-of-the-burger-address.html
+
 **SEC commissioner partially blames cramped calendar for Lane Kiffin saga**\
 `"Can changes be made? Absolutely. Is it just the recruiting calendar? Likely not," Sankey said.`\
 https://nytimes.com/athletic/6862843/2025/12/04/sec-greg-sankey-lane-kiffin-calendar/
@@ -26,16 +38,4 @@ https://nytimes.com/athletic/6862584/2025/12/04/team-usa-uniforms-2026-winter-ol
 **How to watch Jazz vs. Nets: Time, TV, streaming**\
 `Find out how to watch the Utah Jazz play the Brooklyn Nets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6862869/2025/12/04/jazz-vs-nets-stream-how-to-watch-dec-4/
-
-**How to watch Timberwolves vs. Pelicans: Time, TV, streaming**\
-`Find out how to watch the Minnesota Timberwolves play the New Orleans Pelicans, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6862866/2025/12/04/timberwolves-vs-pelicans-stream-how-to-watch-dec-4/
-
-**Meta Weighs Cuts to Its Metaverse Unit**\
-`Meta plans to direct its investments to focus on wearables like its augmented reality glasses but does not plan to abandon building the metaverse.`\
-https://nytimes.com/2025/12/04/technology/meta-cuts-metaverse-unit.html
-
-**How to watch Lakers vs. Raptors: Time, TV, streaming**\
-`Find out how to watch the Los Angeles Lakers play the Toronto Raptors, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6862862/2025/12/04/lakers-vs-raptors-stream-how-to-watch-dec-4/
 

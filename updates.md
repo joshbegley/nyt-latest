@@ -1,3 +1,15 @@
+**Manny Diaz says five-loss Duke would deserve to make CFP with ACC title**\
+`'There’s no way you can have a resume in a non-P4 league that would match what it means to win seven games in our conference,' Diaz said.`\
+https://nytimes.com/athletic/6862887/2025/12/04/manny-diaz-duke-college-football-playoff/
+
+**Fantasy basketball hot topics of the week: Giannis-less Bucks, Maxime Raynaud and more**\
+`Stan Son reviews the biggest NBA storylines, including Giannis' recent injury and trade rumors, through a fantasy basketball lens. `\
+https://nytimes.com/athletic/6862756/2025/12/04/fantasy-basketball-hot-topics-giannis-jjj/
+
+**The State of the Burger Address**\
+`A lot of new burgers hit the scene this year. These three are worth the hype.`\
+https://nytimes.com/2025/12/04/dining/the-state-of-the-burger-address.html
+
 **SEC commissioner partially blames cramped calendar for Lane Kiffin saga**\
 `"Can changes be made? Absolutely. Is it just the recruiting calendar? Likely not," Sankey said.`\
 https://nytimes.com/athletic/6862843/2025/12/04/sec-greg-sankey-lane-kiffin-calendar/

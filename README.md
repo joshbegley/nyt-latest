@@ -1,3 +1,7 @@
+**NFL best bets Week 14: Why the Packers will romp**\
+`Austin Mock's model continues to put out winning weeks and looks for value in Week 14, with two surprising bets to start off.`\
+https://nytimes.com/athletic/6862771/2025/12/04/nfl-best-bets-week-14-cowboys-lions-packers-bears/
+
 **Manny Diaz says five-loss Duke would deserve to make CFP with ACC title**\
 `'There’s no way you can have a resume in a non-P4 league that would match what it means to win seven games in our conference,' Diaz said.`\
 https://nytimes.com/athletic/6862887/2025/12/04/manny-diaz-duke-college-football-playoff/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6858964/2025/12/04/new-york-giants-survey-joe-schoe
 **Team USA’s red, white and blue uniforms revealed for 2026 Winter Olympics**\
 `The Milan Cortina Winter Olympics will be held from Feb. 6 to 22.`\
 https://nytimes.com/athletic/6862584/2025/12/04/team-usa-uniforms-2026-winter-olympics/
-
-**How to watch Jazz vs. Nets: Time, TV, streaming**\
-`Find out how to watch the Utah Jazz play the Brooklyn Nets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6862869/2025/12/04/jazz-vs-nets-stream-how-to-watch-dec-4/
 
