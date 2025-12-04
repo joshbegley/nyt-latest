@@ -1,3 +1,11 @@
+**The Conversation: Your Questions Answered**\
+`Bret Stephens, Frank Bruni and Aaron Retica on the gap between Trump’s interests and what matters to Americans.`\
+https://nytimes.com/video/opinion/100000010559496/the-conversation-your-questions-answered.html
+
+**D’Angelo and the Power of Last Albums**\
+`Wesley Morris invites his friend Alex Pappademas, a senior culture editor at GQ Magazine, to the show to talk about the final albums of some memorable artists.`\
+https://nytimes.com/video/podcasts/100000010559398/dangelo-and-the-power-of-last-albums.html
+
 **Hamas Returns Body of Last Thai Hostage in Gaza**\
 `The militant group took more than 250 hostages from Israel on Oct. 7, 2023, including 31 from Thailand. The remains of all but one other hostage, an Israeli, have been recovered.`\
 https://nytimes.com/2025/12/04/world/middleeast/thai-hostage-gaza-hamas-israel.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6860844/2025/12/04/chelsea-premier-league-bid-leeds
 **How to watch Eagles vs. Chargers: Time, TV, streaming**\
 `Find out how to watch the Philadelphia Eagles play the Los Angeles Chargers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6861071/2025/12/04/eagles-vs-chargers-stream-how-to-watch-dec-8/
-
-**Wolves do not look like scoring, never mind winning. These are grim times**\
-`Rob Edwards knew he had a big job on when arriving at Molineux - even goals are increasingly hard to come by`\
-https://nytimes.com/athletic/6860148/2025/12/04/wolves-rob-edwards-relegation-goals/
-
-**New Footage Shows Epstein’s Private Island Home**\
-`Democrats in the House Oversight Committee released a set of photos and videos that show Jeffrey Epstein’s private home in the U.S. Virgin Islands, where his accusers say he trafficked underage girls for sex.`\
-https://nytimes.com/video/us/100000010564514/epstein-island-home.html
 
