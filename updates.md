@@ -1,3 +1,7 @@
+**Grand Jury Said to Decline to Re-Indict Letitia James**\
+`After a judge dismissed the Trump administration’s first attempt to indict the attorney general of New York State, a new grand jury effort failed, according to people familiar with the matter.`\
+https://nytimes.com/2025/12/04/us/politics/letitia-james-indict-trump.html
+
 **Lawmakers Split on the Military’s Defense of Boat Strikes**\
 `Also, a man was arrested on charges of planting pipe bombs before Jan. 6. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2025/12/04/briefing/boat-strikes-congress-reading-gifts.html
