@@ -2,7 +2,7 @@
 `Sunday’s result could be a defining one for Baltimore and Pittsburgh, two 6-6 teams that don’t currently resemble Super Bowl contenders. `\
 https://nytimes.com/athletic/6860910/2025/12/04/ravens-steelers-rivalry-afc-north/
 
-**Deadly Attacks in Gaza Test Cease-Fire on Eve of New Phase**\
+**Deadly Attacks in Gaza Test Cease-Fire as Body of Another Captive Is Returned**\
 `Israel launched a military strike after it said Hamas militants attacked its soldiers, the latest clashes in the two months since a truce was signed.`\
 https://nytimes.com/2025/12/04/world/middleeast/gaza-strikes-ceasefire.html
 
