@@ -2,7 +2,7 @@
 `The Trump administration, which crippled Russia’s oil sales to India with sanctions, will be watching Mr. Putin’s talks with Prime Minister Narendra Modi.`\
 https://nytimes.com/2025/12/03/world/asia/india-russia-putin-visit-arms.html
 
-**Free agent All-Star OF Kyle Tucker visited Blue Jays' Florida complex: Source**\
+**Free-agent All-Star OF Kyle Tucker visited Blue Jays' Florida complex: Source**\
 `Ultimately, though, landing a free agent of Tucker’s calibre will come down to money, not fresh facilities and new hitting labs.`\
 https://nytimes.com/athletic/6860544/2025/12/03/toronto-blue-jays-kyle-tucker-visit/
 
