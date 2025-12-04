@@ -1,3 +1,7 @@
+**James Madison tabs former Florida coach Billy Napier as next head coach**\
+`Billy Napier wasn't out of work long. The former Florida coach will be back in the Sun Belt in 2026. `\
+https://nytimes.com/athletic/6863272/2025/12/04/james-madison-billy-napier-florida-coach/
+
 **Steelers' season on the brink, Aaron Rodgers and his receivers still searching for chemistry**\
 `The passing game has struggled as Pittsburgh has lost three of four games.`\
 https://nytimes.com/athletic/6863151/2025/12/04/aaron-rodgers-pittsburgh-steelers-chemistry/
