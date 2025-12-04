@@ -1,3 +1,7 @@
+**ICE Separates Boy, 6, From Father During Effort to Deport Them to China**\
+`The child and his father fled China earlier this year and the boy had just been enrolled in school. Federal officials have tried and failed to send them back.`\
+https://nytimes.com/2025/12/04/nyregion/chinese-father-son-migrants-separated.html
+
 **2 Cocaine Cases. 2 Honduran Politicians. Only One Faces Years in Prison.**\
 `Just three days after President Trump pardoned the former Honduran president, Midence Oqueli Martinez Turcios, a former congressman and drug trafficker, got nearly 22 years.`\
 https://nytimes.com/2025/12/04/nyregion/honduras-congressman-drug-sentence.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/04/learning/whats-going-on-in-this-picture-dec-8-202
 **Dominik Duka, Czech Cardinal Jailed Under Communism, Dies at 82**\
 `While in prison in 1981, he befriended the dissident and future Czech president Vaclav Havel. Later, he became a conservative voice in Rome.`\
 https://nytimes.com/2025/12/04/world/europe/dominik-duka-dead.html
-
-**Overlooked No More: Dorothy Wise, the ‘Grandmother of Pool’ Who Defied the Odds**\
-`She elbowed her way into what had long been a man’s game and won the first women’s national championship in 1967 — and then repeated the feat four more years in a row.`\
-https://nytimes.com/2025/12/04/obituaries/dorothy-wise-overlooked.html
 
