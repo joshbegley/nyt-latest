@@ -1,3 +1,11 @@
+**The Bounce: 4 questions on the CP3 drama. Plus, what's up with Giannis and the Bucks?**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/6861886/2025/12/04/chris-paul-giannis-antetokounmpo-nba-the-bounce/
+
+**Fantasy football injuries, inactives, cheat sheet Week 14**\
+`Fantasy football relevant injuries and their impact, weather reports and game previews. Plus, Ciely's Week 14 player rankings and more.`\
+https://nytimes.com/athletic/6856484/2025/12/04/fantasy-football-injuries-inactives-cheat-sheet-week-14/
+
 **Michael Phelps criticism. Home Olympics looming. USA Swimming's new boss has a big task**\
 `The 2028 L.A. Olympics are something "we can't f--- up," U.S. swimmer Regan Smith says. Kevin Ring is the new CEO in charge of assuring that`\
 https://nytimes.com/athletic/6859254/2025/12/04/michael-phelps-usa-swimming-kevin-ring-olympics/
