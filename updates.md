@@ -1,3 +1,7 @@
+**F1's final race will decide the championship. Here's what the odds say about Abu Dhabi**\
+`The F1 title fight is settled in Abu Dhabi. Can McLaren stop getting in its own way? Or will Verstappen pull off an improbable comeback?`\
+https://nytimes.com/athletic/6858625/2025/12/04/f1-abu-dhabi-preview-title-odds-tv/
+
 **Madrid's Alexander-Arnold expected to be out for two months**\
 `The Englishman suffered the injury during the 3-0 win over Athletic Club on Wednesday.`\
 https://nytimes.com/athletic/6859795/2025/12/04/alexander-arnold-injury-real-madrid/
