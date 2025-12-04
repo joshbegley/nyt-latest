@@ -1,3 +1,7 @@
+**Overlooked No More: Dorothy Wise, the ‘Grandmother of Pool’ Who Defied the Odds**\
+`She elbowed her way into what had long been a man’s game and won the first women’s national championship in 1967 — and then repeated the feat four more years in a row.`\
+https://nytimes.com/2025/12/04/obituaries/dorothy-wise-overlooked.html
+
 **U.N. Warns of ‘Another Wave of Atrocities’ in Sudan’s Civil War**\
 `Paramilitary groups have intensified an offensive on a crucial region bordering Darfur, prompting fears of another massacre.`\
 https://nytimes.com/2025/12/04/world/africa/sudan-civil-war-kordofan.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6862482/2025/12/04/betting-for-by-dummies-ohio-stat
 **At Gucci, Demna Brings Back the Tom Ford Era**\
 `The label’s latest collection provides another, potentially trendsetting, clue about where the luxury brand is headed.`\
 https://nytimes.com/2025/12/04/style/gucci-demna-tom-ford-era.html
-
-**What Are the Lessons in the Epstein Files?**\
-`Readers discuss an essay by Anand Giridharadas about Jeffrey Epstein’s circle. Also: The White House ballroom; Medicare for All; immigrant fears.`\
-https://nytimes.com/2025/12/04/opinion/jeffrey-epstein-files.html
 
