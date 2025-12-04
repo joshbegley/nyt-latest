@@ -1,3 +1,11 @@
+**Deion Sanders tabs Sacramento State head coach Brennan Marion as Colorado's new OC**\
+`At Colorado, Marion will try to help Deion Sanders revitalize a program that dropped off significantly in 2025.`\
+https://nytimes.com/athletic/6863152/2025/12/04/deion-sanders-colorado-brennan-marion-offensive-coordinator/
+
+**N.Y.P.D. Officers Won’t Be Charged in Fatal Shooting of Queens Man**\
+`Win Rozario, who had called 911 in distress, was holding scissors when two police officers shot him. The New York attorney general said it was unlikely the officers would be convicted.`\
+https://nytimes.com/2025/12/04/nyregion/queens-officers-shooting-no-charges.html
+
 **Why The Athletic's Playoff Simulator likes Patriots to win AFC East even more than sportsbooks**\
 `The Athletic's NFL playoff simulator finds betting value in three teams' futures odds. Read to see where the value lies.`\
 https://nytimes.com/athletic/6862331/2025/12/04/nfl-playoffs-odds-patriots-afc-east/
