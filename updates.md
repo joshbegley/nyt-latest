@@ -1,3 +1,7 @@
+**Should Eagles' tush push be banned? Like NFL owners, our readers are divided**\
+`The Eagles have faced stronger defensive challenges with the tush push this season.`\
+https://nytimes.com/athletic/6862534/2025/12/04/eagles-tush-push-ban/
+
 **Biden to Attend First Event for Presidential Library**\
 `His plans for the library have been slow to take shape, but he has invited potential donors to a holiday reception in Washington this month.`\
 https://nytimes.com/2025/12/04/us/politics/biden-presidential-library.html
