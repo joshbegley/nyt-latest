@@ -1,3 +1,7 @@
+**Arsenal agree deal to sign 16-year-old Ecuador international twins**\
+`Edwin is predominantly a right-sided wide forward and Holger is an attacking midfielder who is also capable of playing on the left.`\
+https://nytimes.com/athletic/6851983/2025/12/04/arsenal-transfers-edwin-quintero-holger/
+
 **USA coach Pochettino has 'zero stress' entering 2026 World Cup draw**\
 `The unknown about the USA's World Cup path will be sorted soon enough, but the manager isn't worried about what the draw produces`\
 https://nytimes.com/athletic/6862011/2025/12/04/mauricio-pochettino-usmnt-world-cup-draw-preview/
