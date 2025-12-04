@@ -1,3 +1,15 @@
+**Gunman Killed and 3 Officers Hurt in Shooting at Omaha Gas Station**\
+`Police say the man, whose identity has yet to be released, shot another man at a grocery store across town in what appeared to be a random attack.`\
+https://nytimes.com/2025/12/03/us/quiktrip-shooting-omaha-nebraska.html
+
+**As Clippers' drama persists, Chris Paul shares laugh with former Lob City teammates**\
+`How is Chris Paul handling his sudden fallout with the Clippers? Sharing a laugh with his former Lob City teammates.`\
+https://nytimes.com/athletic/6859950/2025/12/03/chris-paul-clippers-sent-home-blake-griffin-deandre-jordan/
+
+**Veteran reliever Emilio Pagán returns to Reds on two-year, $20M deal: Source**\
+`Pagán took over the Reds' closer role early in the 2025 season and had the second-most saves in the National League.`\
+https://nytimes.com/athletic/6837169/2025/12/03/mlb-free-agency-emilio-pagan-reds/
+
 **Lionel Messi's legacy doesn't need an Inter Miami MLS Cup title. Or does it?**\
 `Messi has won - and lost - bigger games than Saturday's MLS Cup final. But at his level of greatness, every opportunity counts `\
 https://nytimes.com/athletic/6854125/2025/12/03/messi-mls-cup-final-legacy-inter-miami/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6859081/2025/12/03/unlv-dan-mullen-roster-mountain-
 **Trump Plans to Lower Fuel Efficiency Requirements**\
 `Also, Dick Van Dyke shares his secrets to aging well. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2025/12/03/briefing/trump-fuel-efficiency-requirements.html
-
-**Air Force Pilot Ejects as Thunderbirds F-16 Crashes in California**\
-`The pilot was in stable condition after losing control of the fighter jet near Trona, Calif., about 180 miles northeast of Los Angeles.`\
-https://nytimes.com/2025/12/03/us/air-force-thunderbirds-crash.html
-
-**Giannis' future is in the spotlight again: Here's what we're hearing**\
-`This much is clear: If the Bucks don’t get better soon, the two-time MVP might very well push his way out of town.`\
-https://nytimes.com/athletic/6859373/2025/12/03/giannis-antetokounmpo-bucks-future/
-
-**Restaurant Review: Yamada**\
-`This week Ligaya Mishan, one of The New York Times’s chief restaurant critics, reviewed Yamada. This unshowy restaurant in Manhattan’s Chinatown exemplifies the subtle art of the most rarefied form of Japanese cooking.`\
-https://nytimes.com/video/dining/100000010562104/restaurant-review-yamada.html
 
