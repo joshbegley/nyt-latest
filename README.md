@@ -1,3 +1,7 @@
+**Hamas Returns Body of Last Thai Hostage in Gaza**\
+`The militant group took more than 250 hostages from Israel on Oct. 7, 2023, including 31 from Thailand. The remains of all but one other hostage, an Israeli, have been recovered.`\
+https://nytimes.com/2025/12/04/world/middleeast/thai-hostage-gaza-hamas-israel.html
+
 **San Francisco Mayor Names Derrick Lew as New Police Chief**\
 `Mr. Lew is a veteran police officer whose experience includes major operations against drug dealing.`\
 https://nytimes.com/2025/12/04/us/derrick-lew-san-francisco-police-chief.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6860148/2025/12/04/wolves-rob-edwards-relegation-go
 **New Footage Shows Epstein’s Private Island Home**\
 `Democrats in the House Oversight Committee released a set of photos and videos that show Jeffrey Epstein’s private home in the U.S. Virgin Islands, where his accusers say he trafficked underage girls for sex.`\
 https://nytimes.com/video/us/100000010564514/epstein-island-home.html
-
-**Late Night Thinks the War on Drugs Has Gone a Bit Off the Rails**\
-`The president who says he’s killing traffickers “pardoned a man who smuggled in enough cocaine to give every American resting Kash Patel face,” Josh Johnson said.`\
-https://nytimes.com/2025/12/04/arts/television/late-night-trump-pardon-honduras.html
 
