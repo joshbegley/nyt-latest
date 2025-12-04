@@ -1,3 +1,11 @@
+**Devin Williams has social media message for Yankees fans**\
+`Devin Williams' difficult run in pinstripes is over. The reliever had some words for Yankees fans.`\
+https://nytimes.com/athletic/6861792/2025/12/04/devin-williams-yankees-mets-social/
+
+**His Group Made World-Class Measurements of Atomic Elements**\
+`Yuri Ralchenko led one of the oldest teams at the National Institute for Standards and Technology. The fate of some experiments hangs in the air.`\
+https://nytimes.com/2025/12/04/science/lost-science-nist-atomic-measurements.html
+
 **The Wizards have the league's second worst record. But they're following their plan.**\
 `After 20 games, this season's Wizards are exactly where they need to be in order to have a successful 2026 draft. `\
 https://nytimes.com/athletic/6860883/2025/12/04/washington-wizards-season-analysis-20-games/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/04/world/europe/putin-novichok-salisbury-skripal-poi
 **Netanyahu Is Defiant In Face Of Legal Challenges**\
 `Israel’s prime minister says he’s not yet done with his mission, and discusses how strength leads to peace.`\
 https://nytimes.com/2025/12/04/podcasts/benjamin-netanyahu-dealbook-summit-2025.html
-
-**Erika Kirk on Why She Forgave Her Husband’s Killer**\
-`Ms. Kirk talks about how faith guides her journey and her plans for Turning Point USA.`\
-https://nytimes.com/2025/12/04/podcasts/erika-kirk-dealbook-summit-2025.html
-
-**Newsom Says Trump’s Attacks Are “Not Normal Behavior”**\
-`The California governor also criticizes executives he says are engaging in “crony capitalism.”`\
-https://nytimes.com/2025/12/04/podcasts/gavin-newsom-dealbook-summit-2025.html
 
