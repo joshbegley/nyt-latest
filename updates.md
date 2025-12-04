@@ -1,3 +1,7 @@
+**Former F.D.A. Commissioners Sound Alarm on Plan to Change Vaccine Policy**\
+`Twelve former commissioners, in a New England Journal of Medicine article, said they were “deeply concerned” by a leaked memo from the Trump administration’s chief scientific officer.`\
+https://nytimes.com/2025/12/03/health/da-commissioners-vaccine-policy-concerns.html
+
 **5 Takeaways From the 2025 DealBook Summit**\
 `President Trump’s economic policies and artificial intelligence were among the central topics at the gathering of business and political leaders.`\
 https://nytimes.com/2025/12/03/business/dealbook-summit-kirk-netanyahu-mrbeast.html
