@@ -1,3 +1,19 @@
+**Why hope for a Chiefs turnaround comes from Andy Reid's past — and the Bills**\
+`The Chiefs have plenty of playoff ground to make up after a 6-6 start. Two teams, though, offer hope.`\
+https://nytimes.com/athletic/6858884/2025/12/04/chiefs-turnaround-chances-andy-reid/
+
+**How Ben Johnson and the first-place Bears are keeping the main thing the main thing**\
+`Presence has become a gift for the NFC North-leading Bears. The key? “Be where your feet are,” safety Jaquan Brisker says. `\
+https://nytimes.com/athletic/6859521/2025/12/04/bears-ben-johnson-team-focus/
+
+**Browns-Titans may lack sizzle, but Shedeur Sanders vs. Cam Ward adds intrigue**\
+`The rookie QBs who were once pegged to go 1-2 in the 2025 NFL Draft will face off for the first time in their young careers. `\
+https://nytimes.com/athletic/6859982/2025/12/04/shedeur-sanders-cam-ward-browns-titans/
+
+**Kyle Schwarber vs. Pete Alonso: Which free agent slugger fits the Red Sox better?**\
+`Not signing one of the two hitters could be a major missed opportunity for a team with aspirations of contending for a championship.`\
+https://nytimes.com/athletic/6860529/2025/12/04/boston-red-sox-kyle-schwarber-pete-alonso/
+
 **Cowboys at Lions on TNF: Updated playoff odd, weird history and broadcast info**\
 `Dallas' late resurgence and Detroit's sudden urgency come together for a banger of a TNF matchup. Points could be plentiful.`\
 https://nytimes.com/athletic/6857302/2025/12/04/cowboys-lions-tnf-nfl-playoff-odds-tv/
