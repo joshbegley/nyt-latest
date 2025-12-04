@@ -1,3 +1,7 @@
+**How Amen Thompson has become Rockets' floor raiser with his energy and athleticism**\
+`Thompson's willingness to make plays that often go unnoticed is part of what makes him such an important player.`\
+https://nytimes.com/athletic/6860934/2025/12/04/amen-thompson-rockets-energy-athleticism/
+
 **Arsenal needed Ben White to step up against Brentford - he did exactly that**\
 `One of Mikel Arteta's most-reliable players of the past few seasons has waited patiently for a chance to perform in the Premier League`\
 https://nytimes.com/athletic/6860253/2025/12/04/arsenal-brentford-ben-white-return-assist/
