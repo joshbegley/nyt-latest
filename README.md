@@ -1,3 +1,7 @@
+**Erika Kirk Takes on the Mantle of Leading Turning Point USA**\
+`The widow of Charlie Kirk promoted conciliation and portrayed her late husband as a seeker of dialogue.`\
+https://nytimes.com/2025/12/03/business/dealbook/erika-kirk-turning-point-usa-trump-republicans.html
+
 **It’ll Find a Way**\
 `Stephan Prock makes his New York Times Crossword debut abetted, sorry, assisted by Jeff Chen.`\
 https://nytimes.com/2025/12/03/crosswords/daily-puzzle-2025-12-04.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/03/us/politics/trump-us-institute-peace-name.html
 **Trump’s Former Campaign Manager Assisted Honduran Presidential Candidate**\
 `Brad Parscale advised the campaign of Nasry Asfura, a right-wing candidate who was endorsed by the U.S. president.`\
 https://nytimes.com/2025/12/03/us/politics/brad-parscale-trump-honduras-asfura-pardon.html
-
-**Dodgers' Dave Roberts says he supports MLB salary cap, floor in TV appearance**\
-`Dave Roberts oversaw a roster this past season that was the most expensive in baseball history.`\
-https://nytimes.com/athletic/6860494/2025/12/03/los-angeles-dodgers-dave-roberts-salary-cap-comments/
 

@@ -1,3 +1,7 @@
+**It’ll Find a Way**\
+`Stephan Prock makes his New York Times Crossword debut abetted, sorry, assisted by Jeff Chen.`\
+https://nytimes.com/2025/12/03/crosswords/daily-puzzle-2025-12-04.html
+
 **Trump Pardons Developer Prosecuted by His Administration**\
 `This summer, Trump administration officials had lauded the indictment of Timothy J. Leiweke as an effort to root out corruption and unfair business practices.`\
 https://nytimes.com/2025/12/03/us/politics/trump-pardon-leiweke.html
