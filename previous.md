@@ -2,6 +2,10 @@
 `The theater that drew acclaim last year for “Les Misérables” is hoping Paris can accept a new “Americano-French musical.”`\
 https://nytimes.com/2025/12/04/arts/la-cage-aux-folles-paris-theatre-du-chatelet.html
 
+**Court Vision: Is the much-maligned ACC in for a comeback season? And 5 other thoughts**\
+`A year after the SEC went 14-2 against the ACC, the narrative has started to improve for the ACC.`\
+https://nytimes.com/athletic/6859872/2025/12/04/acc-sec-challenge-college-basketball-duke-uconn/
+
 **Immigrants’ Fears**\
 `We explain how Afghan refugees in America are experiencing the fallout from a D.C. shooting.`\
 https://nytimes.com/2025/12/04/briefing/immigrants-fears.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6859655/2025/12/04/jayden-reed-packers-injury-retur
 **How the Pro Football Hall of Fame will vote on Bill Belichick, Robert Kraft and others**\
 `Recent changes in the name of exclusivity have made it harder to be elected from the seniors, coaches and contributors categories.`\
 https://nytimes.com/athletic/6859003/2025/12/04/hall-of-fame-selection-nfl-belichick-kraft/
-
-**The SEC is dominating the Big Ten in ratings — despite on-field parity**\
-`The Big Ten has the last two champs and the CFP’s top two teams — so why is the SEC still winning the TV ratings race?`\
-https://nytimes.com/athletic/6859564/2025/12/04/sec-big-ten-tv-ratings/
 

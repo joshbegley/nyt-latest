@@ -1,3 +1,7 @@
+**Court Vision: Is the much-maligned ACC in for a comeback season? And 5 other thoughts**\
+`A year after the SEC went 14-2 against the ACC, the narrative has started to improve for the ACC.`\
+https://nytimes.com/athletic/6859872/2025/12/04/acc-sec-challenge-college-basketball-duke-uconn/
+
 **Drag Antics and ‘a Political Bomb’: Bringing ‘La Cage aux Folles’ Home**\
 `The theater that drew acclaim last year for “Les Misérables” is hoping Paris can accept a new “Americano-French musical.”`\
 https://nytimes.com/2025/12/04/arts/la-cage-aux-folles-paris-theatre-du-chatelet.html
