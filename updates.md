@@ -1,3 +1,11 @@
+**Scoop City: Four matchups key for Cowboys-Lions**\
+`The implications of a crucial Cowboys-Lions game, Dianna dishes on head-coaching candidates and an update on two recovering star QBs`\
+https://nytimes.com/athletic/6862960/2025/12/04/nfl-cowboys-lions-preview-matchups-burrow-herbert-injury/
+
+**When Kids Adopt New Technologies, Hype Can Turn to Backlash**\
+`The arc of mobile phones and social media may foretell the future of artificial intelligence in schools.`\
+https://nytimes.com/2025/12/04/world/kids-and-tech-phone-bans-schools-eurovision.html
+
 **NFL best bets Week 14: Why the Packers will romp**\
 `Austin Mock's model continues to put out winning weeks and looks for value in Week 14, with two surprising bets to start off.`\
 https://nytimes.com/athletic/6862771/2025/12/04/nfl-best-bets-week-14-cowboys-lions-packers-bears/
