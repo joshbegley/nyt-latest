@@ -1,3 +1,23 @@
+**Putin Must Have Authorized Nerve Agent Attack in England, U.K. Inquiry Finds**\
+`The death of a British woman from Novichok poisoning was the result of a botched assassination attempt authorized at the highest level, an official report said on Thursday.`\
+https://nytimes.com/2025/12/04/world/europe/putin-novichok-salisbury-skripal-poisoning.html
+
+**Netanyahu Is Defiant In Face Of Legal Challenges**\
+`Israel’s prime minister says he’s not yet done with his mission, and discusses how strength leads to peace.`\
+https://nytimes.com/2025/12/04/podcasts/benjamin-netanyahu-dealbook-summit-2025.html
+
+**Erika Kirk on Why She Forgave Her Husband’s Killer**\
+`Ms. Kirk talks about how faith guides her journey and her plans for Turning Point USA.`\
+https://nytimes.com/2025/12/04/podcasts/erika-kirk-dealbook-summit-2025.html
+
+**Newsom Says Trump’s Attacks Are “Not Normal Behavior”**\
+`The California governor also criticizes executives he says are engaging in “crony capitalism.”`\
+https://nytimes.com/2025/12/04/podcasts/gavin-newsom-dealbook-summit-2025.html
+
+**Scott Bessent’s Tariff Evolution**\
+`The Treasury Secretary says he’s changed his mind on tariffs since 2024, when he was a skeptic.`\
+https://nytimes.com/2025/12/04/podcasts/scott-bessents-tariff-evolution.html
+
 **Deadly Attacks in Gaza Test Cease-Fire as Body of Another Captive Is Returned**\
 `Israel launched a military strike after it said Hamas militants attacked its soldiers, the latest clashes in the two months since a truce was signed.`\
 https://nytimes.com/2025/12/04/world/middleeast/gaza-strikes-ceasefire.html

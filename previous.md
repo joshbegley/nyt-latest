@@ -1,3 +1,23 @@
+**Putin Must Have Authorized Nerve Agent Attack in England, U.K. Inquiry Finds**\
+`The death of a British woman from Novichok poisoning was the result of a botched assassination attempt authorized at the highest level, an official report said on Thursday.`\
+https://nytimes.com/2025/12/04/world/europe/putin-novichok-salisbury-skripal-poisoning.html
+
+**Netanyahu Is Defiant In Face Of Legal Challenges**\
+`Israel’s prime minister says he’s not yet done with his mission, and discusses how strength leads to peace.`\
+https://nytimes.com/2025/12/04/podcasts/benjamin-netanyahu-dealbook-summit-2025.html
+
+**Erika Kirk on Why She Forgave Her Husband’s Killer**\
+`Ms. Kirk talks about how faith guides her journey and her plans for Turning Point USA.`\
+https://nytimes.com/2025/12/04/podcasts/erika-kirk-dealbook-summit-2025.html
+
+**Newsom Says Trump’s Attacks Are “Not Normal Behavior”**\
+`The California governor also criticizes executives he says are engaging in “crony capitalism.”`\
+https://nytimes.com/2025/12/04/podcasts/gavin-newsom-dealbook-summit-2025.html
+
+**Scott Bessent’s Tariff Evolution**\
+`The Treasury Secretary says he’s changed his mind on tariffs since 2024, when he was a skeptic.`\
+https://nytimes.com/2025/12/04/podcasts/scott-bessents-tariff-evolution.html
+
 **Ravens-Steelers meet again amid high stakes. But this time, things feel different**\
 `Sunday’s result could be a defining one for Baltimore and Pittsburgh, two 6-6 teams that don’t currently resemble Super Bowl contenders. `\
 https://nytimes.com/athletic/6860910/2025/12/04/ravens-steelers-rivalry-afc-north/
@@ -17,24 +37,4 @@ https://nytimes.com/2025/12/04/business/dealbook/newsom-kirk-bessent-dealbook-su
 **The Pistons need to solve their fourth-quarter, turnover problems**\
 `Detroit still leads the East but is just 3-2 in its last five games thanks to some unforced errors.`\
 https://nytimes.com/athletic/6860930/2025/12/04/pistons-loss-turnovers-offense/
-
-**Poll Suggests G.O.P. Will Face More Blame if Obamacare Subsidies Go Away**\
-`About half of people covered under the Affordable Care Act say that if their health costs spike, it will have a “major impact” on how they vote in the 2026 midterm elections, a survey found.`\
-https://nytimes.com/2025/12/04/us/politics/poll-republicans-health-insurance-subsidies-affordable-care-act.html
-
-**Harvey, a Maker of A.I. Legal Software, Raises New Funds**\
-`The start-up is now valued at about $8 billion as it pushes to add new customers, including those outside law firms.`\
-https://nytimes.com/2025/12/04/business/dealbook/harvey-legal-ai.html
-
-**One trophy, many ways to lose it: Lessons from F1's past winner-take-all finales**\
-`F1's three-way title fight comes down to one race. What could possibly go wrong?`\
-https://nytimes.com/athletic/6859573/2025/12/04/f1-championship-how-to-win-mclaren-ferrari/
-
-**The Commanders defense has improved. Is it the play calling?**\
-`Washington has made notable strides on defense since Dan Quinn took over the play calling from coordinator Joe Whitt Jr.`\
-https://nytimes.com/athletic/6861421/2025/12/04/commanders-defense-play-calling-dan-quinn/
-
-**Making sense of Nebraska's defense, Dylan Raiola and the Huskers' 2026 recruiting class**\
-`A look at pressing matters for Nebraska football after Matt Rhule welcomed a recruiting class ranked in the bottom third of the country.`\
-https://nytimes.com/athletic/6860195/2025/12/04/nebraska-football-dylan-raiola-2026-recruiting/
 
