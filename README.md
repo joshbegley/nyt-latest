@@ -1,3 +1,7 @@
+**Deadly Attacks in Gaza Test Cease-Fire on Eve of New Phase**\
+`Israel launched a military strike after it said Hamas militants attacked its soldiers, the latest clashes in the two months since a truce was signed.`\
+https://nytimes.com/2025/12/04/world/middleeast/gaza-strikes-ceasefire.html
+
 **Cambodia Shuts Down Group That Laundered Billions in Scam Profits**\
 `A New York Times investigation in March found that Huione’s group of companies were at the heart of a global money laundering network for fraudsters, scammers and hackers.`\
 https://nytimes.com/2025/12/04/world/asia/cambodia-huione-shuts-money-laundering.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6860195/2025/12/04/nebraska-football-dylan-raiola-2
 **Feldman: The CFP rankings reveal is a reality TV show not based in reality**\
 `The committee's weekly release is a reality TV show that isn’t actually based in reality. `\
 https://nytimes.com/athletic/6856671/2025/12/04/feldman-college-football-playoff-rankings-show/
-
-**Pantone’s 2026 Color of the Year Is ‘Cloud Dancer’**\
-`A shade of white will be the defining color of the next year. Get those stain-removing pens ready.`\
-https://nytimes.com/2025/12/04/style/pantones-2026-color-of-the-year-cloud-dancer.html
 

@@ -1,3 +1,15 @@
+**Cambodia Shuts Down Group That Laundered Billions in Scam Profits**\
+`A New York Times investigation in March found that Huione’s group of companies were at the heart of a global money laundering network for fraudsters, scammers and hackers.`\
+https://nytimes.com/2025/12/04/world/asia/cambodia-huione-shuts-money-laundering.html
+
+**Newsom, Kirk, Bessent, A.I. and Other DealBook Summit Highlights**\
+`The economy, inflation, tariffs, bubble fears, crypto and other big topics that made headlines this year.`\
+https://nytimes.com/2025/12/04/business/dealbook/newsom-kirk-bessent-dealbook-summit.html
+
+**The Pistons need to solve their fourth-quarter, turnover problems**\
+`Detroit still leads the East but is just 3-2 in its last five games thanks to some unforced errors.`\
+https://nytimes.com/athletic/6860930/2025/12/04/pistons-loss-turnovers-offense/
+
 **Poll Suggests G.O.P. Will Face More Blame if Obamacare Subsidies Go Away**\
 `About half of people covered under the Affordable Care Act say that if their health costs spike, it will have a “major impact” on how they vote in the 2026 midterm elections, a survey found.`\
 https://nytimes.com/2025/12/04/us/politics/poll-republicans-health-insurance-subsidies-affordable-care-act.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6856671/2025/12/04/feldman-college-football-playoff
 **Pantone’s 2026 Color of the Year Is ‘Cloud Dancer’**\
 `A shade of white will be the defining color of the next year. Get those stain-removing pens ready.`\
 https://nytimes.com/2025/12/04/style/pantones-2026-color-of-the-year-cloud-dancer.html
-
-**What we learned about Michigan on signing day: Savion Hiter worth the wait, more takeaways**\
-`Five-star RB Savion Hiter signed with Michigan on Thursday as the Wolverines' 2026 class nears finalizing, with some lingering WR questions.`\
-https://nytimes.com/athletic/6859898/2025/12/04/michigan-football-recruiting-2026-class-savion-hiter/
-
-**Broncos' Jahdae Barron isn't a full-time player yet, but rookie's role has become critical**\
-`The Broncos have lined up the first-round pick in nearly every alignment in the defense. "That flexibility is important," Sean Payton said.`\
-https://nytimes.com/athletic/6860031/2025/12/04/broncos-jahdae-barron-raiders/
-
-**Trump Administration Live Updates: Military Leaders to Face Questions Over Boat Strikes**\
-``\
-https://nytimes.com/live/2025/12/04/us/trump-news
 

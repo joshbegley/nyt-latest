@@ -1,3 +1,15 @@
+**Cambodia Shuts Down Group That Laundered Billions in Scam Profits**\
+`A New York Times investigation in March found that Huione’s group of companies were at the heart of a global money laundering network for fraudsters, scammers and hackers.`\
+https://nytimes.com/2025/12/04/world/asia/cambodia-huione-shuts-money-laundering.html
+
+**Newsom, Kirk, Bessent, A.I. and Other DealBook Summit Highlights**\
+`The economy, inflation, tariffs, bubble fears, crypto and other big topics that made headlines this year.`\
+https://nytimes.com/2025/12/04/business/dealbook/newsom-kirk-bessent-dealbook-summit.html
+
+**The Pistons need to solve their fourth-quarter, turnover problems**\
+`Detroit still leads the East but is just 3-2 in its last five games thanks to some unforced errors.`\
+https://nytimes.com/athletic/6860930/2025/12/04/pistons-loss-turnovers-offense/
+
 **Poll Suggests G.O.P. Will Face More Blame if Obamacare Subsidies Go Away**\
 `About half of people covered under the Affordable Care Act say that if their health costs spike, it will have a “major impact” on how they vote in the 2026 midterm elections, a survey found.`\
 https://nytimes.com/2025/12/04/us/politics/poll-republicans-health-insurance-subsidies-affordable-care-act.html
