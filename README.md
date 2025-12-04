@@ -1,3 +1,11 @@
+**Dodgers, World Series hero Miguel Rojas in agreement on one-year deal: Source**\
+`After helping propel the Dodgers to back-to-back World Series titles, Rojas will play his final season in 2026.`\
+https://nytimes.com/athletic/6860121/2025/12/03/los-angeles-dodgers-miguel-rojas-deal-source/
+
+**Shoulder surgery will cut Noa Essengue's first NBA season short**\
+`Bulls rookie Noa Essengue will undergo season-ending shoulder surgery, coach Billy Donovan said pregame Wednesday.`\
+https://nytimes.com/athletic/6860174/2025/12/03/noa-essengue-bulls-nba-shoulder-surgery/
+
 **His Deadline for a Peace Deal Blown, Trump Faces Choices on Russia-Ukraine Talks**\
 `The president wanted Moscow and Kyiv to come to terms by Thanksgiving. Negotiations are now stalled, leaving the White House to decide if an agreement is possible anytime soon.`\
 https://nytimes.com/2025/12/03/us/politics/trump-russia-ukraine-deadline.html
@@ -7,7 +15,7 @@ https://nytimes.com/2025/12/03/us/politics/trump-russia-ukraine-deadline.html
 https://nytimes.com/2025/12/03/us/quiktrip-shooting-omaha-nebraska.html
 
 **As Clippers' drama persists, Chris Paul shares laugh with former Lob City teammates**\
-`How is Chris Paul handling his sudden fallout with the Clippers? Sharing a laugh with his former Lob City teammates.`\
+`How is Paul, a future Hall of Famer, handling his sudden fallout with the Clippers? Sharing a laugh with his former Lob City teammates.`\
 https://nytimes.com/athletic/6859950/2025/12/03/chris-paul-clippers-sent-home-blake-griffin-deandre-jordan/
 
 **Veteran reliever Emilio Pagán returns to Reds on two-year, $20M deal: Source**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/03/us/afghan-refugees-immigration-dc-shooting.html
 **Lawsuit Challenges a Nonprofit’s Scholarships for Hispanic Students**\
 `The plaintiffs, white and Asian students, said they would qualify for scholarships given out by the Hispanic Scholarship Fund, but for their race.`\
 https://nytimes.com/2025/12/03/us/hispanic-scholarship-fund-lawsuit-discrimination.html
-
-**Steve Cropper, Guitarist, Songwriter and a Shaper of Memphis Soul Music**\
-`As a member of Booker T. & the MG’s and as a producer, he played a pivotal role in the rise of Stax Records, a storied force in R&B in the 1960s and ’70s.`\
-https://nytimes.com/2025/12/03/arts/music/steve-cropper-dead.html
-
-**How Dan Mullen built UNLV by raiding talent from the nation's best programs**\
-`UNLV (10-2), led by Dan Mullen, hopes to knock off Boise State in Friday's Mountain West Championship.`\
-https://nytimes.com/athletic/6859081/2025/12/03/unlv-dan-mullen-roster-mountain-west-championship-game/
 
