@@ -1,3 +1,11 @@
+**What to Know About Vladimir Putin’s Trip to India**\
+`The Trump administration, which crippled Russia’s oil sales to India with sanctions, will be watching Mr. Putin’s talks with Prime Minister Narendra Modi.`\
+https://nytimes.com/2025/12/03/world/asia/india-russia-putin-visit-arms.html
+
+**Free agent All-Star OF Kyle Tucker visited Blue Jays' Florida complex: Source**\
+`Ultimately, though, landing a free agent of Tucker’s calibre will come down to money, not fresh facilities and new hitting labs.`\
+https://nytimes.com/athletic/6860544/2025/12/03/toronto-blue-jays-kyle-tucker-visit/
+
 **What we learned about Michigan recruiting while 5-star RB Savion Hiter delayed his signing**\
 `Michigan signed a stellar 2026 recruiting class and made a coaching change Wednesday, but some blue-chip uncertainty remains.`\
 https://nytimes.com/athletic/6859898/2025/12/03/michigan-football-recruiting-2026-class-savion-hiter/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6860170/2025/12/03/chargers-justin-herbert-injury-s
 **How Chris Paul's short-lived reunion with the Clippers fell apart**\
 `Chris Paul returned to a Clippers team many believed could compete for a title. Instead, LA is 5-16 and Paul is no longer with the team.`\
 https://nytimes.com/athletic/6860282/2025/12/03/chris-paul-clippers-return-fall-explained/
-
-**Former F.D.A. Commissioners Sound Alarm on Plan to Change Vaccine Policy**\
-`Twelve former commissioners, in a New England Journal of Medicine article, said they were “deeply concerned” by a leaked memo from the Trump administration’s chief scientific officer.`\
-https://nytimes.com/2025/12/03/health/da-commissioners-vaccine-policy-concerns.html
-
-**5 Takeaways From the 2025 DealBook Summit**\
-`President Trump’s economic policies and artificial intelligence were among the central topics at the gathering of business and political leaders.`\
-https://nytimes.com/2025/12/03/business/dealbook-summit-kirk-netanyahu-mrbeast.html
 

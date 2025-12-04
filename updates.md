@@ -1,3 +1,11 @@
+**What to Know About Vladimir Putin’s Trip to India**\
+`The Trump administration, which crippled Russia’s oil sales to India with sanctions, will be watching Mr. Putin’s talks with Prime Minister Narendra Modi.`\
+https://nytimes.com/2025/12/03/world/asia/india-russia-putin-visit-arms.html
+
+**Free agent All-Star OF Kyle Tucker visited Blue Jays' Florida complex: Source**\
+`Ultimately, though, landing a free agent of Tucker’s calibre will come down to money, not fresh facilities and new hitting labs.`\
+https://nytimes.com/athletic/6860544/2025/12/03/toronto-blue-jays-kyle-tucker-visit/
+
 **What we learned about Michigan recruiting while 5-star RB Savion Hiter delayed his signing**\
 `Michigan signed a stellar 2026 recruiting class and made a coaching change Wednesday, but some blue-chip uncertainty remains.`\
 https://nytimes.com/athletic/6859898/2025/12/03/michigan-football-recruiting-2026-class-savion-hiter/
