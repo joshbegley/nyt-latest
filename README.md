@@ -1,3 +1,19 @@
+**A Utopian Story That Became a Queer Cult Classic Debuts in New York**\
+`“The Faggots and Their Friends Between Revolutions” is a music theater piece based on Larry Mitchell and Ned Asta’s 1970s book.`\
+https://nytimes.com/2025/12/04/theater/faggots-and-their-friends-between-revolutions-show-new-york.html
+
+**What Teenagers Are Saying About ‘6-7’ and the Era of ‘Brain Rot’**\
+`Students explain what today’s slang reveals about their generation.`\
+https://nytimes.com/2025/12/04/learning/what-teenagers-are-saying-about-6-7-and-the-era-of-brain-rot.html
+
+**Top Military Officers Show Lawmakers Video of Sept. 2 Boat Attack**\
+`Gen. Dan Caine, chairman of the Joint Chiefs of Staff, and Adm. Frank M. Bradley, commander of the operation, met with members of Congress behind closed doors.`\
+https://nytimes.com/2025/12/04/us/politics/drug-boat-strikes-sept-2-video-congress.html
+
+**Aid Workers Stand Trial for Helping to Smuggle People Into Greece**\
+`The activists provided support to people who sought sanctuary in Greece during Europe’s migration crisis.`\
+https://nytimes.com/2025/12/04/world/europe/aid-workers-greece-migration-trial-smuggling.html
+
 **False Report of 5.9 Earthquake Sends Phones Buzzing in Nevada**\
 `The United States Geological Survey quickly deleted the alert, saying it had been sent in error.`\
 https://nytimes.com/2025/12/04/us/nevada-earthquake-usgs-false.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6862170/2025/12/04/bundesliga-women-germany-fa-spli
 **Real Madrid's NFL game meant they played six away matches in a row. Did it affect them?**\
 `The Spanish club asked for their fixture list to accommodate the Miami Dolphins v Washington Commanders match on November 16`\
 https://nytimes.com/athletic/6862030/2025/12/04/real-madrid-nfl-la-liga-alonso-athletic-celta/
-
-**UK government sanctions figure from Morecambe takeover over supporting terrorist group**\
-`Gurpreet Singh Rehal is referred to as the director of marketing and communications of Morecambe’s owner, Panjab Warriors.`\
-https://nytimes.com/athletic/6862069/2025/12/04/morecambe-gurpreet-singh-sanctions-panjab-warriors/
-
-**Nmecha and Calvert-Lewin fitness doubts for Leeds ahead of Liverpool visit**\
-`Daniel Farke has not ruled out the pair, who starred in Wednesday's 3-1 win at home to Chelsea, but muscle injuries will force a late call.`\
-https://nytimes.com/athletic/6862352/2025/12/04/leeds-injuries-nmecha-calvert-lewin/
-
-**NWSL's Bay FC names former England U-23 manager Emma Coates as coach**\
-`Coates joins the Northern California-based NWSL club with her assistant from the English national team, Gemma Davies.`\
-https://nytimes.com/athletic/6861906/2025/12/04/bay-fc-emma-coates-nwsl/
-
-**The soccer, the drugs ban and the many memes: who is World Cup draw host Rio Ferdinand?**\
-`Amid lots of big-name U.S. sports stars, an Englishman who retired 10 years ago will take centre stage in Washington D.C. on Friday`\
-https://nytimes.com/athletic/6861446/2025/12/04/rio-ferdinand-world-cup-draw-host/
 
