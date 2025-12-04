@@ -1,3 +1,7 @@
+**Betting for (by) dummies: Picking Ohio State and a Cowboys over (of course)**\
+`Jon Greenberg and Zac Jackson agree on a pair of NFL picks and both have a pick in the Ohio State-Indiana showdown.`\
+https://nytimes.com/athletic/6862482/2025/12/04/betting-for-by-dummies-ohio-state-cowboys/
+
 **At Gucci, Demna Brings Back the Tom Ford Era**\
 `The label’s latest collection provides another, potentially trendsetting, clue about where the luxury brand is headed.`\
 https://nytimes.com/2025/12/04/style/gucci-demna-tom-ford-era.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/04/arts/music/eurovision-israel-boycott.html
 **How an uncertain future and potential relocation could await an MLS finalist**\
 `Vancouver may be the best story in MLS this season, and it's all happening with the club for sale and its future wholly unclear`\
 https://nytimes.com/athletic/6862394/2025/12/04/vancouver-whitecaps-mls-cup-bc-place-lease-relocation/
-
-**2025: A Year of Firsts**\
-`A series of milestones that happened for the first time during the past 12 months.`\
-https://nytimes.com/2025/12/04/special-series/first-time-ever-2025.html
 
