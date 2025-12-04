@@ -1,3 +1,7 @@
+**Wolves do not look like scoring, never mind winning. These are grim times**\
+`Rob Edwards knew he had a big job on when arriving at Molineux - even goals are increasingly hard to come by`\
+https://nytimes.com/athletic/6860148/2025/12/04/wolves-rob-edwards-relegation-goals/
+
 **New Footage Shows Epstein’s Private Island Home**\
 `Democrats in the House Oversight Committee released a set of photos and videos that show Jeffrey Epstein’s private home in the U.S. Virgin Islands, where his accusers say he trafficked underage girls for sex.`\
 https://nytimes.com/video/us/100000010564514/epstein-island-home.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6857999/2025/12/04/brighton-dunk-hurzeler-euvrard-v
 **Nathan Trott on his time at West Ham, the support of Mark Noble, and the myth about his move**\
 `It is almost 10 years since goalkeeper Nathan Trott left his native Bermuda to embark on a new adventure at West Ham United`\
 https://nytimes.com/athletic/6854964/2025/12/04/nathan-trott-west-ham-interview/
-
-**Should Semenyo to Foden be your next FPL transfer?**\
-`The mid-week Premier League action has brought about some significant trending transfers in FPL — including a very popular midfield switch`\
-https://nytimes.com/athletic/6858024/2025/12/04/fantasy-premier-league-semenyo-foden-fpl-tips/
 
