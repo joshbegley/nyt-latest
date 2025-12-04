@@ -1,3 +1,7 @@
+**Landslides swept away whole villages in Sri Lanka**\
+`Text by Atul Loke and Pamodi Waravita`\
+https://nytimes.com/card/2025/12/04/world/asia/sri-lanka-cyclone-landslide
+
 **Ruined Rice Fields and Broken Rail Lines: Sri Lanka Counts Cost of Cyclone**\
 `Officials estimate the damage runs into billions of dollars, a headache for the island nation just recovering from an economic crash.`\
 https://nytimes.com/2025/12/04/world/asia/sri-lanka-cyclone-flood-damage.html
