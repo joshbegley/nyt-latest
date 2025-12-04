@@ -1,3 +1,7 @@
+**Call him Guga: Gustavo Kuerten's rise to the top of tennis, 25 years later**\
+`Kuerten remains the last South American player to reach the sport's summit. He believes another may climb up soon.`\
+https://nytimes.com/athletic/6858968/2025/12/04/gustavo-kuerten-tennis/
+
 **Spain Sees Itself as a Beacon for Immigrants. So Do Many Latin Americans.**\
 `The government presents its migrant policy as a welcoming alternative to U.S. crackdowns. But activists say those arriving on boats from Africa are excluded from that embrace.`\
 https://nytimes.com/2025/12/04/world/europe/spain-migration-latin-america.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/04/podcasts/dangelo-and-the-power-of-last-albums.htm
 **Shifting Climate Alters Pattern of Atlantic’s Giant Seaweed Blobs**\
 `Blooms of yellowish-brown seaweed along the Equator are breaking records and defiling beaches, while a centuries-old patch farther north is disappearing.`\
 https://nytimes.com/2025/12/04/climate/atlantic-seaweed-sargassum-climate.html
-
-**‘This Is Illegal,’ He Said, Spreading His Arms. ‘This Is Illegal.’**\
-`In Gaza and the West Bank, human rights work is starting to mean something new.`\
-https://nytimes.com/2025/12/04/opinion/gaza-west-bank-human-rights-work.html
 

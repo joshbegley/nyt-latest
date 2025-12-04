@@ -1,36 +1,40 @@
-**Why Republicans Are Starting to Inch Away From Trump**\
-`Rare pushback from his party and troubling poll numbers reflect the newly precarious situation in which Trump finds himself.`\
-https://nytimes.com/2025/12/04/opinion/trump-maga-hegseth-mamdani.html
+**Spain Sees Itself as a Beacon for Immigrants. So Do Many Latin Americans.**\
+`The government presents its migrant policy as a welcoming alternative to U.S. crackdowns. But activists say those arriving on boats from Africa are excluded from that embrace.`\
+https://nytimes.com/2025/12/04/world/europe/spain-migration-latin-america.html
 
-**The Furor Over Trump’s Boat Attacks and a Particular Follow-Up Strike, Explained**\
-`Bipartisan congressional oversight is underway, but for now is focusing on narrow details about one missile instead of broader legal issues.`\
-https://nytimes.com/2025/12/04/us/politics/boat-strikes-explained.html
+**The Laws of War Are Not Woke**\
+`Trump and Hegseth are attacking the very character and identity of the American military.`\
+https://nytimes.com/2025/12/04/opinion/hegseth-trump-venezuela-laws-war.html
 
-**A Volunteer’s Dire Warnings About the National Guard Shooting Suspect**\
-`More than a year before the Trump administration granted asylum to the Afghan immigrant, the volunteer’s emails raised concerns that he was unraveling.`\
-https://nytimes.com/2025/12/04/us/rahmanullah-lakanwal-national-guard-shooting-dc.html
+**Trump to Host Congo and Rwanda Leaders for Peace Talks in Persistent Conflict**\
+`The president will meet with the leaders of Rwanda and the Democratic Republic of Congo to advance a deal meant to end a long war in eastern Congo.`\
+https://nytimes.com/2025/12/04/us/politics/trump-congo-rwanda-leaders-peace-talks.html
 
-**Will All Newborns Still Receive Hepatitis B Shots? A Committee’s Vote Will Tell.**\
-`The federal vaccine panel appointed by Health Secretary Robert F. Kennedy Jr. is likely to decide on Thursday that the shots should be delayed for infants whose mothers test negative for the virus.`\
-https://nytimes.com/2025/12/04/health/cdc-vaccine-committee-newborns-hepatitis-b.html
+**A Hotel in Houston With ‘Acid Trip Meets Arts and Crafts’ Interiors**\
+`Plus: shoes for holiday parties, new independent bookstores around the world and more recommendations from T Magazine.`\
+https://nytimes.com/2025/12/04/t-magazine/houston-hotels-daphne-bunkhouse.html
 
-**The Conversation: Your Questions Answered**\
-`Bret Stephens, Frank Bruni and Aaron Retica on the gap between Trump’s interests and what matters to Americans.`\
-https://nytimes.com/2025/12/04/opinion/the-conversation-trumpism-future.html
+**I’m an Immigration Lawyer. Trump Is Shattering My Clients’ Lives.**\
+`The administration is pausing asylum and upending families.`\
+https://nytimes.com/2025/12/04/opinion/immigration-lawyer-trump-asylum.html
 
-**174 Million Stolen Rides: The Cost of Fare Evasion**\
-`The M.T.A. is deploying a variety of tools to combat fare beating, and the authority says that they are working.`\
-https://nytimes.com/2025/12/04/nyregion/174-million-stolen-rides-the-cost-of-fare-evasion.html
+**They Left Texas for a New Home in the Desert Outside Palm Springs**\
+`Seeking a ‘self-contained, low-maintenance house,’ a couple headed west for a new chapter in the California sun. Here’s what they found.`\
+https://nytimes.com/interactive/2025/12/04/realestate/palm-springs-rancho-mirage-california-homes.html
 
-**Kenya Kept a Diplomat in His Job Despite Years of Sex Abuse Accusations**\
-`President William Ruto faces pressure after a Times investigation showed that his government downplayed or ignored the mistreatment of women working in Saudi Arabia.`\
-https://nytimes.com/2025/12/04/world/africa/kenya-kept-a-diplomat-in-his-job-despite-years-of-sex-abuse-accusations.html
+**The ‘Useful Idiots’ From America Whom Putin Is Playing Like a Flute**\
+`Having “real estate deal guys” as America’s negotiators on the war in Ukraine is a liability, not an advantage. You want a statesman.`\
+https://nytimes.com/2025/12/04/opinion/putin-russia-ukraine-trump.html
 
-**Where Does the Transgender Rights Movement Go From Here?**\
-`The lawyer and activist Chase Strangio on cultural divisions and common ground.`\
-https://nytimes.com/2025/12/04/opinion/transgender-rights-strangio-douthat.html
+**D’Angelo and the Power of Last Albums**\
+`What does finality sound like?`\
+https://nytimes.com/2025/12/04/podcasts/dangelo-and-the-power-of-last-albums.html
 
-**Homes for Sale in New York and Connecticut**\
-`This week’s properties include a three-bedroom homes in Mamaroneck and West Norwalk.`\
-https://nytimes.com/2025/12/04/realestate/housing-market-near-nyc.html
+**Shifting Climate Alters Pattern of Atlantic’s Giant Seaweed Blobs**\
+`Blooms of yellowish-brown seaweed along the Equator are breaking records and defiling beaches, while a centuries-old patch farther north is disappearing.`\
+https://nytimes.com/2025/12/04/climate/atlantic-seaweed-sargassum-climate.html
+
+**‘This Is Illegal,’ He Said, Spreading His Arms. ‘This Is Illegal.’**\
+`In Gaza and the West Bank, human rights work is starting to mean something new.`\
+https://nytimes.com/2025/12/04/opinion/gaza-west-bank-human-rights-work.html
 
