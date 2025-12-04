@@ -1,40 +1,36 @@
-**Overlooked No More: Dorothy Wise, the ‘Grandmother of Pool’ Who Defied the Odds**\
-`She elbowed her way into what had long been a man’s game and won the first women’s national championship in 1967 — and then repeated the feat four more years in a row.`\
-https://nytimes.com/2025/12/04/obituaries/dorothy-wise-overlooked.html
+**ICE Separates Boy, 6, From Father During Effort to Deport Them to China**\
+`The child and his father fled China earlier this year and the boy had just been enrolled in school. Federal officials have tried and failed to send them back.`\
+https://nytimes.com/2025/12/04/nyregion/chinese-father-son-migrants-separated.html
 
-**U.N. Warns of ‘Another Wave of Atrocities’ in Sudan’s Civil War**\
-`Paramilitary groups have intensified an offensive on a crucial region bordering Darfur, prompting fears of another massacre.`\
-https://nytimes.com/2025/12/04/world/africa/sudan-civil-war-kordofan.html
+**2 Cocaine Cases. 2 Honduran Politicians. Only One Faces Years in Prison.**\
+`Just three days after President Trump pardoned the former Honduran president, Midence Oqueli Martinez Turcios, a former congressman and drug trafficker, got nearly 22 years.`\
+https://nytimes.com/2025/12/04/nyregion/honduras-congressman-drug-sentence.html
 
-**Darius Slay tells Bills he will not report to Buffalo: Source**\
-`Slay's time in Pittsburgh did not go well. He recorded 28 tackles and zero interceptions over 10 games and was also a healthy scratch.`\
-https://nytimes.com/athletic/6862438/2025/12/04/darius-slay-bills-not-report-nfl/
+**Did you notice the reigning NBA MVP is somehow even better this season?**\
+`Last season, Gilgeous-Alexander became the first player in a decade to win NBA MVP and finals MVP. So how did he get even better? `\
+https://nytimes.com/athletic/6862562/2025/12/04/shai-gilgeous-alexander-highlights-thunder-nba-mvp-video/
 
-**Ilhan Omar: Trump Knows He’s Failing. Cue the Bigotry.**\
-`Attacks on Somali Americans are a cruel distraction.`\
-https://nytimes.com/2025/12/04/opinion/ilhan-omar-somalia-trump.html
+**I Scream for These Mint Chip Cookies**\
+`Eric Kim’s 2025 Cookie Week entry captures the tingly, creamy, chocolaty flavors of the classic ice cream.`\
+https://nytimes.com/2025/12/04/dining/i-scream-for-these-mint-chip-cookies.html
 
-**Former West Ham goalkeeper Hislop reveals 'aggressive' prostate cancer**\
-`The ESPN commentator encouraged men, especially those from Caribbean descent, to insist on getting tested. `\
-https://nytimes.com/athletic/6862556/2025/12/04/shaka-hislop-west-ham-newcastle-cancer-testing/
+**4 New Books We Love This Week**\
+`Reading recommendations from critics and editors at The New York Times.`\
+https://nytimes.com/2025/12/04/books/review/new-recommended-books.html
 
-**Charles Norman Shay, Tribal Elder and World War II Hero, Dies at 101**\
-`As a 19-year-old medic, he won a Silver Star for his service during D-Day. Later, in the Korean War, he earned a Bronze Star.`\
-https://nytimes.com/2025/12/04/us/politics/charles-norman-shay-dead.html
+**Bending a Dark Arc Toward Justice**\
+`For years, ordinary Filipinos fought for justice. Former President Rodrigo Duterte’s arrest proves that resistance matters.`\
+https://nytimes.com/2025/12/04/special-series/rodrigo-duterte-arrest-philippines.html
 
-**As Health Care Subsidies Teeter, Congress Is Again at an Impasse**\
-`Democrats won an agreement for a floor showdown after the shutdown, but consensus still eludes the Senate. Will Republicans pay a political price?`\
-https://nytimes.com/2025/12/04/us/politics/congress-obamacare-subsidies-vote.html
+**What’s Going On in This Graph? | Dec. 10, 2025**\
+`Will you have a white Christmas this year? What do you notice about the map below? What questions does it raise for you?`\
+https://nytimes.com/2025/12/04/learning/whats-going-on-in-this-graph-dec-10-2025.html
 
-**After Years of Debate, Vatican Says No to Women Deacons, at Least for Now**\
-`But a papal commission examining the question said further study was required, and advised that women should be given other leadership roles in the Catholic Church.`\
-https://nytimes.com/2025/12/04/world/europe/vatican-pope-women-priests-deacons.html
+**What’s Going On in This Picture? | Dec. 8, 2025**\
+`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
+https://nytimes.com/2025/12/04/learning/whats-going-on-in-this-picture-dec-8-2025.html
 
-**Betting for (by) dummies: Picking Ohio State and a Cowboys over (of course)**\
-`Jon Greenberg and Zac Jackson agree on a pair of NFL picks and both have a pick in the Ohio State-Indiana showdown.`\
-https://nytimes.com/athletic/6862482/2025/12/04/betting-for-by-dummies-ohio-state-cowboys/
-
-**At Gucci, Demna Brings Back the Tom Ford Era**\
-`The label’s latest collection provides another, potentially trendsetting, clue about where the luxury brand is headed.`\
-https://nytimes.com/2025/12/04/style/gucci-demna-tom-ford-era.html
+**Dominik Duka, Czech Cardinal Jailed Under Communism, Dies at 82**\
+`While in prison in 1981, he befriended the dissident and future Czech president Vaclav Havel. Later, he became a conservative voice in Rome.`\
+https://nytimes.com/2025/12/04/world/europe/dominik-duka-dead.html
 
