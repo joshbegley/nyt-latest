@@ -1,3 +1,11 @@
+**Jamal Murray recorded his third career 50-point game on Wednesday**\
+`Murray made a career-high ten 3-pointers in Denver's 135-120 rout of Indiana.`\
+https://nytimes.com/athletic/6860633/2025/12/03/jamal-murray-52-points-nuggets-pacers-nba/
+
+**Erika Kirk Takes on the Mantle of Leading Turning Point USA**\
+`The widow of Charlie Kirk promoted conciliation and portrayed her late husband as a seeker of dialogue.`\
+https://nytimes.com/2025/12/03/business/dealbook/erika-kirk-turning-point-usa-trump-republicans.html
+
 **It’ll Find a Way**\
 `Stephan Prock makes his New York Times Crossword debut abetted, sorry, assisted by Jeff Chen.`\
 https://nytimes.com/2025/12/03/crosswords/daily-puzzle-2025-12-04.html
