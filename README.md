@@ -1,3 +1,7 @@
+**How Amen Thompson has become Rockets' floor raiser with his energy and athleticism**\
+`Thompson's willingness to make plays that often go unnoticed is part of what makes him such an important player.`\
+https://nytimes.com/athletic/6860934/2025/12/04/amen-thompson-rockets-energy-athleticism/
+
 **Arsenal needed Ben White to step up against Brentford - he did exactly that**\
 `One of Mikel Arteta's most-reliable players of the past few seasons has waited patiently for a chance to perform in the Premier League`\
 https://nytimes.com/athletic/6860253/2025/12/04/arsenal-brentford-ben-white-return-assist/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6855601/2025/12/04/crystal-palace-glasner-burnley/
 **Ranking all 64 teams in the World Cup draw**\
 `Our guide to the most likely winners and biggest outsiders for next summer's tournament in North America`\
 https://nytimes.com/athletic/6833349/2025/12/04/world-cup-draw-teams-ranked/
-
-**Inside Martinez's 301 days of torment - and what happens now he's back**\
-`Runs with Ruben Amorim were an important act of solidarity for the Argentinian as he rehabbed from a serious knee injury`\
-https://nytimes.com/athletic/6858772/2025/12/04/lisandro-martinez-injury-return-manchester-united/
 
