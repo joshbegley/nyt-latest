@@ -1,3 +1,15 @@
+**Chelsea's display at Leeds shows why they are not Premier League title contenders yet**\
+`Enzo Maresca rested some key players after Chelsea's impressive performances against Barcelona and Arsenal – it did not work out `\
+https://nytimes.com/athletic/6860844/2025/12/04/chelsea-premier-league-bid-leeds-defeat/
+
+**How to watch Eagles vs. Chargers: Time, TV, streaming**\
+`Find out how to watch the Philadelphia Eagles play the Los Angeles Chargers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6861071/2025/12/04/eagles-vs-chargers-stream-how-to-watch-dec-8/
+
+**Wolves do not look like scoring, never mind winning. These are grim times**\
+`Rob Edwards knew he had a big job on when arriving at Molineux - even goals are increasingly hard to come by`\
+https://nytimes.com/athletic/6860148/2025/12/04/wolves-rob-edwards-relegation-goals/
+
 **New Footage Shows Epstein’s Private Island Home**\
 `Democrats in the House Oversight Committee released a set of photos and videos that show Jeffrey Epstein’s private home in the U.S. Virgin Islands, where his accusers say he trafficked underage girls for sex.`\
 https://nytimes.com/video/us/100000010564514/epstein-island-home.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6860253/2025/12/04/arsenal-brentford-ben-white-retu
 **The New York Times in Print for Thursday, Dec. 4, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/12/04/todays-new-york-times
-
-**Brighton undermined by unfamiliar fragility to ruin Lewis Dunk's landmark night**\
-`A team who had been stingy defensively of late caved in four times in 49 minutes, with their set-piece resilience put under the microscope`\
-https://nytimes.com/athletic/6857999/2025/12/04/brighton-dunk-hurzeler-euvrard-villa/
-
-**Nathan Trott on his time at West Ham, the support of Mark Noble, and the myth about his move**\
-`It is almost 10 years since goalkeeper Nathan Trott left his native Bermuda to embark on a new adventure at West Ham United`\
-https://nytimes.com/athletic/6854964/2025/12/04/nathan-trott-west-ham-interview/
-
-**Should Semenyo to Foden be your next FPL transfer?**\
-`The mid-week Premier League action has brought about some significant trending transfers in FPL — including a very popular midfield switch`\
-https://nytimes.com/athletic/6858024/2025/12/04/fantasy-premier-league-semenyo-foden-fpl-tips/
 
