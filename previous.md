@@ -15,7 +15,7 @@ https://nytimes.com/2025/12/04/nyregion/cornelia-foss-artist-little-red.html
 https://nytimes.com/2025/12/04/nyregion/hochul-ai-bill-bores.html
 
 **Chelsea's display at Leeds shows why they are not Premier League title contenders yet**\
-`Enzo Maresca rested some key players after Chelsea's impressive performances against Barcelona and Arsenal – it did not work out `\
+`Enzo Maresca rested key players after Chelsea's impressive performances against Barcelona and Arsenal – it did not work out `\
 https://nytimes.com/athletic/6860844/2025/12/04/chelsea-premier-league-bid-leeds-defeat/
 
 **How to watch Eagles vs. Chargers: Time, TV, streaming**\

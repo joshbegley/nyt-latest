@@ -1,3 +1,7 @@
+**Chelsea's display at Leeds shows why they are not Premier League title contenders yet**\
+`Enzo Maresca rested key players after Chelsea's impressive performances against Barcelona and Arsenal – it did not work out `\
+https://nytimes.com/athletic/6860844/2025/12/04/chelsea-premier-league-bid-leeds-defeat/
+
 **Taxi**\
 `What is this vehicle and why has it been in the news? What is your opinion of it?`\
 https://nytimes.com/2025/12/04/learning/taxi.html
