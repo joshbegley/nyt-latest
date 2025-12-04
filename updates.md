@@ -1,3 +1,7 @@
+**Cooper Flagg is becoming a closer for the Mavericks**\
+`Dallas' main man added to his impressive total of "clutch" points in Wednesday night's win over Miami.`\
+https://nytimes.com/athletic/6860954/2025/12/04/cooper-flagg-mavericks-closer/
+
 **Without Victor Wembanyama, De'Aaron Fox is bringing the Spurs' offense to life**\
 `Spurs coach Mitch Johnson received a coach of the month nomination, even with Victor Wembanyama missing time. He can thank De'Aaron Fox.`\
 https://nytimes.com/athletic/6860369/2025/12/04/deaaron-fox-spurs-victor-wembanyama-offense/
