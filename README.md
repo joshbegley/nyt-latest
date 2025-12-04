@@ -1,3 +1,7 @@
+**It’ll Find a Way**\
+`Stephan Prock makes his New York Times Crossword debut abetted, sorry, assisted by Jeff Chen.`\
+https://nytimes.com/2025/12/03/crosswords/daily-puzzle-2025-12-04.html
+
 **Trump Pardons Developer Prosecuted by His Administration**\
 `This summer, Trump administration officials had lauded the indictment of Timothy J. Leiweke as an effort to root out corruption and unfair business practices.`\
 https://nytimes.com/2025/12/03/us/politics/trump-pardon-leiweke.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/03/us/politics/brad-parscale-trump-honduras-asfura-p
 **Dodgers' Dave Roberts says he supports MLB salary cap, floor in TV appearance**\
 `Dave Roberts oversaw a roster this past season that was the most expensive in baseball history.`\
 https://nytimes.com/athletic/6860494/2025/12/03/los-angeles-dodgers-dave-roberts-salary-cap-comments/
-
-**A right oblique strain will sideline Bilal Coulibaly for multiple weeks**\
-`Coulibaly's injury is another tough blow to the Wizards' defense. `\
-https://nytimes.com/athletic/6860280/2025/12/03/bilal-coulibaly-out-oblique-strain-wizards/
 
