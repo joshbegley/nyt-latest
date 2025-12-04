@@ -1,3 +1,7 @@
+**Overlooked No More: Dorothy Wise, the ‘Grandmother of Pool’ Who Defied the Odds**\
+`She elbowed her way into what had long been a man’s game and won the first women’s national championship in 1967 — and then repeated the feat four more years in a row.`\
+https://nytimes.com/2025/12/04/obituaries/dorothy-wise-overlooked.html
+
 **U.N. Warns of ‘Another Wave of Atrocities’ in Sudan’s Civil War**\
 `Paramilitary groups have intensified an offensive on a crucial region bordering Darfur, prompting fears of another massacre.`\
 https://nytimes.com/2025/12/04/world/africa/sudan-civil-war-kordofan.html
