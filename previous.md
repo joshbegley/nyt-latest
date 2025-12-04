@@ -1,3 +1,19 @@
+**Former West Ham goalkeeper Hislop reveals 'aggressive' prostate cancer**\
+`The ESPN commentator encouraged men, especially those from Caribbean descent, to insist on getting tested. `\
+https://nytimes.com/athletic/6862556/2025/12/04/shaka-hislop-west-ham-newcastle-cancer-testing/
+
+**Charles Norman Shay, Tribal Elder and World War II Hero, Dies at 101**\
+`As a 19-year-old medic, he won a Silver Star for his service during D-Day. Later, in the Korean War, he earned a Bronze Star.`\
+https://nytimes.com/2025/12/04/us/politics/charles-norman-shay-dead.html
+
+**As Health Care Subsidies Teeter, Congress Is Again at an Impasse**\
+`Democrats won an agreement for a floor showdown after the shutdown, but consensus still eludes the Senate. Will Republicans pay a political price?`\
+https://nytimes.com/2025/12/04/us/politics/congress-obamacare-subsidies-vote.html
+
+**After Years of Debate, Vatican Says No to Women Deacons, at Least for Now**\
+`But a papal commission examining the question said further study was required, and advised that women should be given other leadership roles in the Catholic Church.`\
+https://nytimes.com/2025/12/04/world/europe/vatican-pope-women-priests-deacons.html
+
 **Betting for (by) dummies: Picking Ohio State and a Cowboys over (of course)**\
 `Jon Greenberg and Zac Jackson agree on a pair of NFL picks and both have a pick in the Ohio State-Indiana showdown.`\
 https://nytimes.com/athletic/6862482/2025/12/04/betting-for-by-dummies-ohio-state-cowboys/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/12/04/arts/music/steve-cropper-songs.html
 **Eagles' Carter undergoes procedure on both shoulders, out vs. Chargers**\
 `Eagles DC Vic Fangio said Carter was playing through his shoulder ailments but that it was affecting his play, especially against the run.`\
 https://nytimes.com/athletic/6862540/2025/12/04/eagles-jalen-carter-procedure-shoulder-injury/
-
-**Ciara Takes Center Stage At a Night of Dancing**\
-`Alvin Ailey’s annual gala began with suits and bare chests on the red carpet and ended with dancing to Madonna’s “Like a Prayer.”`\
-https://nytimes.com/2025/12/04/style/ciara-alvin-ailey-gala.html
-
-**Conor McGregor sexual assault lawsuit dismissed in Florida**\
-`Conor McGregor is no longer facing a sexual assault lawsuit, as the case against him in Florida was dismissed with prejudice.`\
-https://nytimes.com/athletic/6862186/2025/12/04/conor-mcgregor-sexual-assault-lawsuit-dismissed/
-
-**Spain, Ireland and Others Boycott Eurovision Over Israel’s Participation**\
-`The Netherlands and Slovenia also said they would not take part in next year’s contest, meant to be its celebratory 70th edition.`\
-https://nytimes.com/2025/12/04/arts/music/eurovision-israel-boycott.html
-
-**How an uncertain future and potential relocation could await an MLS finalist**\
-`Vancouver may be the best story in MLS this season, and it's all happening with the club for sale and its future wholly unclear`\
-https://nytimes.com/athletic/6862394/2025/12/04/vancouver-whitecaps-mls-cup-bc-place-lease-relocation/
 
