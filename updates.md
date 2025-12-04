@@ -1,3 +1,11 @@
+**Forest unveil plans for 52,000-capacity stadium expansion**\
+`The Midlands club expressed a desire on Thursday to start the redevelopment next summer.`\
+https://nytimes.com/athletic/6862964/2025/12/04/nottingham-forest-stadium-expansion/
+
+**Bowl projections: The Xbox Bowl joins the party, and Miami gains on Notre Dame**\
+`The outcome of Alabama's SEC title game against Georgia on Saturday could reorder the CFP at-large spots and SEC bowl slots.`\
+https://nytimes.com/athletic/6853423/2025/12/04/college-football-projections-bowl-playoffs-matchups/
+
 **Trump Officials Cut Length of Work Permits for Asylum Seekers and Refugees**\
 `The move was the latest in an intensifying crackdown on legal immigration after an Afghan national was charged with shooting two National Guard members.`\
 https://nytimes.com/2025/12/04/us/politics/work-permits-asylum-refugees-trump.html

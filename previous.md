@@ -1,6 +1,14 @@
+**Forest unveil plans for 52,000-capacity stadium expansion**\
+`The Midlands club expressed a desire on Thursday to start the redevelopment next summer.`\
+https://nytimes.com/athletic/6862964/2025/12/04/nottingham-forest-stadium-expansion/
+
 **Trump Officials Cut Length of Work Permits for Asylum Seekers and Refugees**\
 `The move was the latest in an intensifying crackdown on legal immigration after an Afghan national was charged with shooting two National Guard members.`\
 https://nytimes.com/2025/12/04/us/politics/work-permits-asylum-refugees-trump.html
+
+**Bowl projections: The Xbox Bowl joins the party, and Miami gains on Notre Dame**\
+`The outcome of Alabama's SEC title game against Georgia on Saturday could reorder the CFP at-large spots and SEC bowl slots.`\
+https://nytimes.com/athletic/6853423/2025/12/04/college-football-projections-bowl-playoffs-matchups/
 
 **Redistricting Gets Off to a Slow Start in Florida**\
 `Some of the state’s Republican leaders appear in no rush to draw a new map as they grapple with political and legal questions amid internal power struggles.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6863151/2025/12/04/aaron-rodgers-pittsburgh-steeler
 **Suspect Is Arrested in D.C. Pipe Bomb Investigation**\
 `Federal agents arrested a 30-year-old man from Prince William County, Va., on Thursday. The suspect is accused of planting two pipe bombs near the Capitol before the Jan. 6 riot.`\
 https://nytimes.com/video/us/100000010566426/dc-pipe-bomb-arrest-jan-6-riot.html
-
-**NFL to implement quality-control program to ensure stadiums utilize best playing surfaces**\
-`The NFL hopes that by 2026, teams will be able to pick from a library of approved and accredited field surfaces to replace existing ones.`\
-https://nytimes.com/athletic/6863245/2025/12/04/nfl-quality-control-playing-surfaces-field/
-
-**James Madison tabs former Florida coach Billy Napier as next head coach**\
-`Billy Napier wasn't out of work long. The former Florida coach will be back in the Sun Belt in 2026. `\
-https://nytimes.com/athletic/6863272/2025/12/04/james-madison-billy-napier-florida-coach/
 

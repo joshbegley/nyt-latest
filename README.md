@@ -1,3 +1,19 @@
+**Art Gallery Shows to See in December**\
+`This week in Newly Reviewed, Martha Schwendener covers Meredith James’s anti-architecture monument, Franz Gertsch’s take on Patti Smith, Ragnar Kjartansson’s postcard ode, Analivia Cordeiro’s merging bodies and Guanyu Xu’s hovering photos.`\
+https://nytimes.com/2025/12/04/arts/art-gallery-shows-to-see-in-december.html
+
+**Rio Ferdinand in extensive talks to join Fox as World Cup pundit**\
+`The former England and Manchester United defender will co-present Friday's World Cup draw at the Kennedy Center.`\
+https://nytimes.com/athletic/6862873/2025/12/04/rio-ferdinand-fox-world-cup/
+
+**5 New and Renewed Hotels in the Caribbean**\
+`From Antigua to Grenada, many of the region’s most inviting recent openings are in less expected areas.`\
+https://nytimes.com/2025/12/04/t-magazine/hotels-resorts-caribbean.html
+
+**Tim Walz Calls Trump’s Tirade Against Somalis in Minnesota ‘Vile’**\
+`Minnesota’s governor said the president’s xenophobic remarks were dangerous as the state continued to face fiscal questions about a fraud scandal.`\
+https://nytimes.com/2025/12/04/us/tim-walz-trump-somalia-minnesota.html
+
 **Forest unveil plans for 52,000-capacity stadium expansion**\
 `The Midlands club expressed a desire on Thursday to start the redevelopment next summer.`\
 https://nytimes.com/athletic/6862964/2025/12/04/nottingham-forest-stadium-expansion/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/12/04/us/politics/supreme-court-texas-congressional-map
 **Grand Jury Said to Decline to Re-Indict Letitia James**\
 `After a judge dismissed the Trump administration’s first attempt to indict the attorney general of New York State, a new grand jury effort failed, according to people familiar with the matter.`\
 https://nytimes.com/2025/12/04/us/politics/letitia-james-indict-trump.html
-
-**Lawmakers Split on the Military’s Defense of Boat Strikes**\
-`Also, a man was arrested on charges of planting pipe bombs before Jan. 6. Here’s the latest at the end of Thursday.`\
-https://nytimes.com/2025/12/04/briefing/boat-strikes-congress-reading-gifts.html
-
-**New Dietary Guidelines Delayed Until Early 2026**\
-`The updated Dietary Guidelines for Americans will not come until the new year, a government official said.`\
-https://nytimes.com/2025/12/04/us/politics/dietary-guidelines-americans.html
-
-**Steelers' season on the brink, Aaron Rodgers and receivers still seeking chemistry**\
-`The passing game has struggled as Pittsburgh has lost three of four games.`\
-https://nytimes.com/athletic/6863151/2025/12/04/aaron-rodgers-pittsburgh-steelers-chemistry/
-
-**Suspect Is Arrested in D.C. Pipe Bomb Investigation**\
-`Federal agents arrested a 30-year-old man from Prince William County, Va., on Thursday. The suspect is accused of planting two pipe bombs near the Capitol before the Jan. 6 riot.`\
-https://nytimes.com/video/us/100000010566426/dc-pipe-bomb-arrest-jan-6-riot.html
 
