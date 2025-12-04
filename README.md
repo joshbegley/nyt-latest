@@ -1,3 +1,7 @@
+**Ciara Takes Center Stage At a Night of Dancing**\
+`Alvin Ailey’s annual gala began with suits and bare chests on the red carpet and ended with dancing to Madonna’s “Like a Prayer.”`\
+https://nytimes.com/2025/12/04/style/ciara-alvin-ailey-gala.html
+
 **Conor McGregor sexual assault lawsuit dismissed in Florida**\
 `Conor McGregor is no longer facing a sexual assault lawsuit, as the case against him in Florida was dismissed with prejudice.`\
 https://nytimes.com/athletic/6862186/2025/12/04/conor-mcgregor-sexual-assault-lawsuit-dismissed/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/04/movies/five-nights-at-freddys-2-review.html
 **Bipartisan House Group Proposes Long-Shot Health Care Plan**\
 `Republicans and Democrats released a two-year plan to scale back and extend expiring Affordable Care Act subsidies, but it faces long odds in the G.O.P.-led House.`\
 https://nytimes.com/2025/12/04/us/politics/obamacare-aca-subsidies-house-congress.html
-
-**Haas F1 adds Toyota Gazoo Racing as its title sponsor for 2026 season**\
-`The news comes as Haas shows signs of competitive revival, and a year after the two sides' initial partnership began`\
-https://nytimes.com/athletic/6862301/2025/12/04/haas-f1-toyota-gazoo-racing-title-sponsor/
 
