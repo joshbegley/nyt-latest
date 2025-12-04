@@ -1,3 +1,19 @@
+**There’s Never Been a Better Time to Quit Caffeine**\
+`Cafes across the United States are embracing the low- and no-caffeine lifestyle, with options that are a far cry from dusty tea bags and rewarmed decaf.`\
+https://nytimes.com/2025/12/04/dining/caffeine-alternative-drinks-coffee.html
+
+**Women's Bundesliga clubs announce breakaway in split from German FA**\
+`The DFB had initially agreed to invest €100m to the new organisation but the clubs say they have decided to move forward without it. `\
+https://nytimes.com/athletic/6862170/2025/12/04/bundesliga-women-germany-fa-split/
+
+**Real Madrid's NFL game meant they played six away matches in a row. Did it affect them?**\
+`The Spanish club asked for their fixture list to accommodate the Miami Dolphins v Washington Commanders match on November 16`\
+https://nytimes.com/athletic/6862030/2025/12/04/real-madrid-nfl-la-liga-alonso-athletic-celta/
+
+**UK government sanctions figure from Morecambe takeover over supporting terrorist group**\
+`Gurpreet Singh Rehal is referred to as the director of marketing and communications of Morecambe’s owner, Panjab Warriors.`\
+https://nytimes.com/athletic/6862069/2025/12/04/morecambe-gurpreet-singh-sanctions-panjab-warriors/
+
 **Nmecha and Calvert-Lewin fitness doubts for Leeds ahead of Liverpool visit**\
 `Daniel Farke has not ruled out the pair, who starred in Wednesday's 3-1 win at home to Chelsea, but muscle injuries will force a late call.`\
 https://nytimes.com/athletic/6862352/2025/12/04/leeds-injuries-nmecha-calvert-lewin/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6859107/2025/12/04/william-troost-ekong-nigeria-ret
 **Review: When Club Dance Bumps Into Latin Jazz**\
 `Ephrat Asherie’s “Shadow Cities” pairs her group’s adept dancers with live music by the great Arturo O’Farrill.`\
 https://nytimes.com/2025/12/04/arts/dance/review-ephrat-asherie-arturo-ofarrill-shadow-cities.html
-
-**Messi hopes to be at 2026 World Cup: 'At worst, I'll be there watching'**\
-`Messi, 38, had said during the 2022 World Cup that the tournament in Qatar, which Argentina went on to win, would be his last.`\
-https://nytimes.com/athletic/6862042/2025/12/04/lionel-messi-world-cup-argentina-2026/
-
-**What F1's championship drivers said in Abu Dhabi (and what they actually meant)**\
-`As F1's showdown finale ramps up, the three contenders are in three different headspaces`\
-https://nytimes.com/athletic/6861953/2025/12/04/f1-championship-lando-norris-max-verstappen-oscar-piastri-abu-dhabi/
-
-**Read the Pentagon Watchdog’s Report on Signal Use**\
-`The Defense Department’s Inspector General released a long-awaited report about Secretary Pete Hegseth’s disclosure of plans for airstrikes in Yemen on a Signal chat group.`\
-https://nytimes.com/interactive/2025/12/04/us/signal-report-hegseth.html
-
-**Football is just better 'under the lights' - or is it?**\
-`For some match-going fans, The Athletic included, nothing beats a night game`\
-https://nytimes.com/athletic/6861481/2025/12/04/premier-league-midweek-night-games/
 
