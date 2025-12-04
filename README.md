@@ -1,3 +1,7 @@
+**Are U.S. Boat Strikes Near Venezuela Legal?**\
+`Lawmakers from both parties have been raising questions about the legality of U.S. military strikes on boats near Venezuela. David Sanger, White House and national security correspondent, explains.`\
+https://nytimes.com/video/us/politics/100000010560634/are-us-boat-strikes-near-venezuela-legal.html
+
 **Dodgers, World Series hero Miguel Rojas in agreement on one-year deal: Source**\
 `After helping propel the Dodgers to back-to-back World Series titles, Rojas will play his final season in 2026.`\
 https://nytimes.com/athletic/6860121/2025/12/03/los-angeles-dodgers-miguel-rojas-deal-source/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/03/us/politics/trump-immigration-crackdown-deportati
 **From Welcome to Worry: Afghans in the U.S. Face Uncertainty and Backlash**\
 `Afghan immigrants in the United States believed they were safe. A deadly shooting that authorities say was carried out by an Afghan has thrown their futures into doubt.`\
 https://nytimes.com/2025/12/03/us/afghan-refugees-immigration-dc-shooting.html
-
-**Lawsuit Challenges a Nonprofit’s Scholarships for Hispanic Students**\
-`The plaintiffs, white and Asian students, said they would qualify for scholarships given out by the Hispanic Scholarship Fund, but for their race.`\
-https://nytimes.com/2025/12/03/us/hispanic-scholarship-fund-lawsuit-discrimination.html
 
