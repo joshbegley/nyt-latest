@@ -1,3 +1,15 @@
+**The Wizards have the league's second worst record. But they're following their plan.**\
+`After 20 games, this season's Wizards are exactly where they need to be in order to have a successful 2026 draft. `\
+https://nytimes.com/athletic/6860883/2025/12/04/washington-wizards-season-analysis-20-games/
+
+**Key fantasy football questions for Week 14: Has Rome fallen? Is BTJ the biggest bust?**\
+`Dalton Del Don breaks down the key fantasy football topics for Week 14, including the struggles of receivers Rome Odunze and Brian Thomas.`\
+https://nytimes.com/athletic/6860109/2025/12/04/fantasy-football-key-questions-week-14-rome-odunze/
+
+**Crafting the Future**\
+`At these two Swiss institutions, the pursuit of excellence is both cutting-edge and deeply human.`\
+https://nytimes.com/paidpost/ubs/crafting-the-future.html
+
 **Suspect Arrested in Inquiry Into Pipe Bombs in D.C. Ahead of Jan. 6 Riot**\
 `The suspect’s identity remained unclear for the moment, but the arrest could ultimately provide an answer to one of the most tantalizing mysteries arising from the Jan. 6. riot.`\
 https://nytimes.com/2025/12/04/us/politics/washington-dc-pipe-bombs-arrest-jan-6-fbi.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/12/04/podcasts/erika-kirk-dealbook-summit-2025.html
 **Newsom Says Trump’s Attacks Are “Not Normal Behavior”**\
 `The California governor also criticizes executives he says are engaging in “crony capitalism.”`\
 https://nytimes.com/2025/12/04/podcasts/gavin-newsom-dealbook-summit-2025.html
-
-**Scott Bessent’s Tariff Evolution**\
-`The Treasury Secretary says he’s changed his mind on tariffs since 2024, when he was a skeptic.`\
-https://nytimes.com/2025/12/04/podcasts/scott-bessents-tariff-evolution.html
-
-**Ravens-Steelers meet again amid high stakes. But this time, things feel different**\
-`Sunday’s result could be a defining one for Baltimore and Pittsburgh, two 6-6 teams that don’t currently resemble Super Bowl contenders. `\
-https://nytimes.com/athletic/6860910/2025/12/04/ravens-steelers-rivalry-afc-north/
-
-**Deadly Attacks in Gaza Test Cease-Fire as Body of Another Captive Is Returned**\
-`Israel launched a military strike after it said Hamas militants attacked its soldiers, the latest clashes in the two months since a truce was signed.`\
-https://nytimes.com/2025/12/04/world/middleeast/gaza-strikes-ceasefire.html
 
