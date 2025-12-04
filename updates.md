@@ -1,3 +1,7 @@
+**The five must-watch events in a blockbuster sporting weekend**\
+`From the World Cup to the Premier League to the MLS Cup final, with added Ashes and a grandstand F1 final, it is bumper weekend of action  `\
+https://nytimes.com/athletic/6859106/2025/12/04/f1-cricket-football-mls-premier-league-world-cup-draw/
+
 **The spiraling Bulls are unraveling at the seams**\
 `Ravaged by injuries and unable to beat the Eastern Conference's most lowly teams, Chicago is right back in the hopeless place of years past.`\
 https://nytimes.com/athletic/6861288/2025/12/04/bulls-losing-streak-nets-nba/
