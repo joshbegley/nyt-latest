@@ -1,3 +1,15 @@
+**Several Countries Boycott Eurovision 2026 Over Israel’s Participation**\
+`Spain, Ireland, the Netherlands and Slovenia said that they were boycotting next year’s Eurovision Song Contest because Israel would continue to be allowed in the competition.`\
+https://nytimes.com/video/world/europe/100000010566032/eurovision-competition-israel-boycott.html
+
+**The Briefing - Man United 1 West Ham 1: What led to lead slipping? How was Cunha's return? Did Heaven do well at back?**\
+`Carl Anka breaks down the talking points from United's draw against West Ham at Old Trafford.`\
+https://nytimes.com/athletic/6851577/2025/12/04/manchester-united-draw-west-ham-cunha/
+
+**NFL Week 14 model-projected scores and point totals for every game**\
+`Austin Mock's NFL Projection Model gives its predictions for the points differentials and totals for every Week 14 game.`\
+https://nytimes.com/athletic/6863094/2025/12/04/nfl-week-14-projected-scores-model-predicts-point-spreads-and-totals-for-every-game/
+
 **Should Eagles' tush push be banned? Like NFL owners, our readers are divided**\
 `The Eagles have faced stronger defensive challenges with the tush push this season.`\
 https://nytimes.com/athletic/6862534/2025/12/04/eagles-tush-push-ban/
