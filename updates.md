@@ -1,3 +1,7 @@
+**San Francisco Mayor Names Derrick Lew as New Police Chief**\
+`Mr. Lew is a veteran police officer whose experience includes major operations against drug dealing.`\
+https://nytimes.com/2025/12/04/us/derrick-lew-san-francisco-police-chief.html
+
 **Chelsea's display at Leeds shows why they are not Premier League title contenders yet**\
 `Enzo Maresca rested key players after Chelsea's impressive performances against Barcelona and Arsenal – it did not work out `\
 https://nytimes.com/athletic/6860844/2025/12/04/chelsea-premier-league-bid-leeds-defeat/

@@ -1,3 +1,7 @@
+**San Francisco Mayor Names Derrick Lew as New Police Chief**\
+`Mr. Lew is a veteran police officer whose experience includes major operations against drug dealing.`\
+https://nytimes.com/2025/12/04/us/derrick-lew-san-francisco-police-chief.html
+
 **Taxi**\
 `What is this vehicle and why has it been in the news? What is your opinion of it?`\
 https://nytimes.com/2025/12/04/learning/taxi.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/100000010564514/epstein-island-home.html
 **Late Night Thinks the War on Drugs Has Gone a Bit Off the Rails**\
 `The president who says he’s killing traffickers “pardoned a man who smuggled in enough cocaine to give every American resting Kash Patel face,” Josh Johnson said.`\
 https://nytimes.com/2025/12/04/arts/television/late-night-trump-pardon-honduras.html
-
-**Word of the Day: prosperity**\
-`This word has appeared in 600 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/12/04/learning/word-of-the-day-prosperity.html
 
