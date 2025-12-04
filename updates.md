@@ -1,3 +1,11 @@
+**Steelers' season on the brink, Aaron Rodgers and his receivers still searching for chemistry**\
+`The passing game has struggled as Pittsburgh has lost three of four games.`\
+https://nytimes.com/athletic/6863151/2025/12/04/aaron-rodgers-pittsburgh-steelers-chemistry/
+
+**Suspect Is Arrested in D.C. Pipe Bomb Investigation**\
+`Federal agents arrested a 30-year-old man from Prince William County, Va., on Thursday. The suspect is accused of planting two pipe bombs near the Capitol before the Jan. 6 riot.`\
+https://nytimes.com/video/us/100000010566426/dc-pipe-bomb-arrest-jan-6-riot.html
+
 **NFL to implement quality-control program to ensure stadiums utilize best playing surfaces**\
 `The NFL hopes that by 2026, teams will be able to pick from a library of approved and accredited field surfaces to replace existing ones.`\
 https://nytimes.com/athletic/6863245/2025/12/04/nfl-quality-control-playing-surfaces-field/

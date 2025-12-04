@@ -11,7 +11,7 @@ https://nytimes.com/video/us/100000010566426/dc-pipe-bomb-arrest-jan-6-riot.html
 https://nytimes.com/athletic/6863245/2025/12/04/nfl-quality-control-playing-surfaces-field/
 
 **James Madison tabs former Florida coach Billy Napier as next head coach**\
-`Billy Napier wasn't out of work long. The former Florida coach will back in the Sun Belt in 2026. `\
+`Billy Napier wasn't out of work long. The former Florida coach will be back in the Sun Belt in 2026. `\
 https://nytimes.com/athletic/6863272/2025/12/04/james-madison-billy-napier-florida-coach/
 
 **Case against Ryan Kesler, ex-NHL center charged with criminal sexual conduct, headed to trial**\
