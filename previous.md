@@ -1,3 +1,7 @@
+**A right oblique strain will sideline Bilal Coulibaly for multiple weeks**\
+`Coulibaly's injury is another tough blow to the Wizards' defense. `\
+https://nytimes.com/athletic/6860280/2025/12/03/bilal-coulibaly-out-oblique-strain-wizards/
+
 **Chargers' Justin Herbert still plans to play vs. Eagles after undergoing hand surgery**\
 `“Obviously I’m doing everything I can to be out there,” Herbert said. “I’d fight through anything for those guys."`\
 https://nytimes.com/athletic/6860170/2025/12/03/chargers-justin-herbert-injury-surgery-eagles/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6860174/2025/12/03/noa-essengue-bulls-nba-shoulder-
 **His Deadline for a Peace Deal Blown, Trump Faces Choices on Russia-Ukraine Talks**\
 `The president wanted Moscow and Kyiv to come to terms by Thanksgiving. Negotiations are now stalled, leaving the White House to decide if an agreement is possible anytime soon.`\
 https://nytimes.com/2025/12/03/us/politics/trump-russia-ukraine-deadline.html
-
-**Gunman Killed and 3 Officers Hurt in Shooting at Omaha Gas Station**\
-`Police say the man, whose identity has yet to be released, shot another man at a grocery store across town in what appeared to be a random attack.`\
-https://nytimes.com/2025/12/03/us/quiktrip-shooting-omaha-nebraska.html
 
