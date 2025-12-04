@@ -1,3 +1,15 @@
+**At Gucci, Demna Brings Back the Tom Ford Era**\
+`The label’s latest collection provides another, potentially trendsetting, clue about where the luxury brand is headed.`\
+https://nytimes.com/2025/12/04/style/gucci-demna-tom-ford-era.html
+
+**What Are the Lessons in the Epstein Files?**\
+`Readers discuss an essay by Anand Giridharadas about Jeffrey Epstein’s circle. Also: The White House ballroom; Medicare for All; immigrant fears.`\
+https://nytimes.com/2025/12/04/opinion/jeffrey-epstein-files.html
+
+**Israeli Strike Kills Several People at a Gaza Encampment**\
+`An Israeli attack on an encampment in Khan Younis killed several people and injured many more, a Palestinian health official said. The Israeli military said it killed a militant in retaliation for a Hamas attack that injured several of its soldiers.`\
+https://nytimes.com/video/world/middleeast/100000010565432/gaza-khan-younis-strike-israel.html
+
 **Steve Cropper: 9 Essential Songs**\
 `An architect of Memphis soul, Cropper made his guitar sing and sting. And as a songwriter, he collaborated on more than a few indelible anthems.`\
 https://nytimes.com/2025/12/04/arts/music/steve-cropper-songs.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6862394/2025/12/04/vancouver-whitecaps-mls-cup-bc-p
 **2025: A Year of Firsts**\
 `A series of milestones that happened for the first time during the past 12 months.`\
 https://nytimes.com/2025/12/04/special-series/first-time-ever-2025.html
-
-**What to Do With All Those Root Vegetables**\
-`You have carrots, parsnips, sweet potatoes; I have recipes.`\
-https://nytimes.com/2025/12/04/dining/what-to-do-with-all-those-root-vegetables.html
-
-**Faulty Glucose Monitor Sensors May Be Tied to 7 Deaths, F.D.A. Says**\
-`Abbott Diabetes Care said it had received reports of more than 700 injuries that may be associated with malfunctioning sensors.`\
-https://nytimes.com/2025/12/04/health/blood-glucose-monitor-recall-abbott.html
-
-**NASCAR's Steve O'Donnell, key figure in charter deals, takes stand on Day 4 of trial**\
-`NASCAR's president was questioned about how early signs that CEO Jim France was flexible on the sport's model didn't quite materialize.`\
-https://nytimes.com/athletic/6862423/2025/12/04/nascar-trial-steve-odonnell-michael-jordan-bob-jenkins/
 
