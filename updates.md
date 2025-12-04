@@ -1,3 +1,7 @@
+**Deadly Attacks in Gaza Test Cease-Fire on Eve of New Phase**\
+`Israel launched a military strike after it said Hamas militants attacked its soldiers, the latest clashes in the two months since a truce was signed.`\
+https://nytimes.com/2025/12/04/world/middleeast/gaza-strikes-ceasefire.html
+
 **Cambodia Shuts Down Group That Laundered Billions in Scam Profits**\
 `A New York Times investigation in March found that Huione’s group of companies were at the heart of a global money laundering network for fraudsters, scammers and hackers.`\
 https://nytimes.com/2025/12/04/world/asia/cambodia-huione-shuts-money-laundering.html
