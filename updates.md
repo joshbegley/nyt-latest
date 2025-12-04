@@ -1,3 +1,7 @@
+**Call him Guga: Gustavo Kuerten's rise to the top of tennis, 25 years later**\
+`Kuerten remains the last South American player to reach the sport's summit. He believes another may climb up soon.`\
+https://nytimes.com/athletic/6858968/2025/12/04/gustavo-kuerten-tennis/
+
 **Spain Sees Itself as a Beacon for Immigrants. So Do Many Latin Americans.**\
 `The government presents its migrant policy as a welcoming alternative to U.S. crackdowns. But activists say those arriving on boats from Africa are excluded from that embrace.`\
 https://nytimes.com/2025/12/04/world/europe/spain-migration-latin-america.html
