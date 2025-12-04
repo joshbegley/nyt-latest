@@ -1,3 +1,11 @@
+**Young Boys given away fan ban after Aston Villa crowd trouble**\
+`The Swiss side will be without away fans for their match against Stuttgart in the Europa League league phase on January 29.`\
+https://nytimes.com/athletic/6861410/2025/12/04/young-boys-aston-villa-fan-ban/
+
+**Four five-stars, no decommitments: 10 takeaways from Notre Dame's signing class**\
+`It’s probably healthy for the Irish that Notre Dame’s best recruiting class since peak Lou Holtz wasn’t viewed as some game-changing moment.`\
+https://nytimes.com/athletic/6861371/2025/12/04/notre-dame-recruiting-signing-class-takeaways/
+
 **Drag Antics and ‘a Political Bomb’: Bringing ‘La Cage aux Folles’ Home**\
 `The theater that drew acclaim last year for “Les Misérables” is hoping Paris can accept a new “Americano-French musical.”`\
 https://nytimes.com/2025/12/04/arts/la-cage-aux-folles-paris-theatre-du-chatelet.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6852687/2025/12/04/college-football-best-offensive-
 **College football championship week oddly specific predictions: Georgia ends Alabama hex**\
 `Indiana makes Ohio State sweat … but not enough to knock off the mighty Buckeyes. North Texas tops Tulane to secure CFP bid.`\
 https://nytimes.com/athletic/6859402/2025/12/04/championship-week-college-football-predictions-2/
-
-**How Jayden Reed's return will boost the Packers offense: 'It would be huge'**\
-`Reed led the Packers in catches and receiving yards in each of his first two seasons in 2023 and 2024.`\
-https://nytimes.com/athletic/6859655/2025/12/04/jayden-reed-packers-injury-return-bears/
-
-**How the Pro Football Hall of Fame will vote on Bill Belichick, Robert Kraft and others**\
-`Recent changes in the name of exclusivity have made it harder to be elected from the seniors, coaches and contributors categories.`\
-https://nytimes.com/athletic/6859003/2025/12/04/hall-of-fame-selection-nfl-belichick-kraft/
 

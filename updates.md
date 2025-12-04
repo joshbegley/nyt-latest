@@ -1,3 +1,11 @@
+**Young Boys given away fan ban after Aston Villa crowd trouble**\
+`The Swiss side will be without away fans for their match against Stuttgart in the Europa League league phase on January 29.`\
+https://nytimes.com/athletic/6861410/2025/12/04/young-boys-aston-villa-fan-ban/
+
+**Four five-stars, no decommitments: 10 takeaways from Notre Dame's signing class**\
+`It’s probably healthy for the Irish that Notre Dame’s best recruiting class since peak Lou Holtz wasn’t viewed as some game-changing moment.`\
+https://nytimes.com/athletic/6861371/2025/12/04/notre-dame-recruiting-signing-class-takeaways/
+
 **Court Vision: Is the much-maligned ACC in for a comeback season? And 5 other thoughts**\
 `A year after the SEC went 14-2 against the ACC, the narrative has started to improve for the ACC.`\
 https://nytimes.com/athletic/6859872/2025/12/04/acc-sec-challenge-college-basketball-duke-uconn/
