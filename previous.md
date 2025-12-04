@@ -1,3 +1,19 @@
+**New Footage Shows Epstein’s Private Island Home**\
+`Democrats in the House Oversight Committee released a set of photos and videos that show Jeffrey Epstein’s private home in the U.S. Virgin Islands, where his accusers say he trafficked underage girls for sex.`\
+https://nytimes.com/video/us/100000010564514/epstein-island-home.html
+
+**Late Night Thinks the War on Drugs Has Gone a Bit Off the Rails**\
+`The president who says he’s killing traffickers “pardoned a man who smuggled in enough cocaine to give every American resting Kash Patel face,” Josh Johnson said.`\
+https://nytimes.com/2025/12/04/arts/television/late-night-trump-pardon-honduras.html
+
+**Word of the Day: prosperity**\
+`This word has appeared in 600 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/12/04/learning/word-of-the-day-prosperity.html
+
+**Daniel Farke has bought himself priceless time by using a system that works**\
+`The takeaway from Wednesday is that Leeds United need to use the same formation against an out-of-sorts Liverpool`\
+https://nytimes.com/athletic/6860526/2025/12/04/leeds-chelsea-daniel-farke-analysis/
+
 **How Amen Thompson has become Rockets' floor raiser with his energy and athleticism**\
 `Thompson's willingness to make plays that often go unnoticed is part of what makes him such an important player.`\
 https://nytimes.com/athletic/6860934/2025/12/04/amen-thompson-rockets-energy-athleticism/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6854964/2025/12/04/nathan-trott-west-ham-interview/
 **Should Semenyo to Foden be your next FPL transfer?**\
 `The mid-week Premier League action has brought about some significant trending transfers in FPL — including a very popular midfield switch`\
 https://nytimes.com/athletic/6858024/2025/12/04/fantasy-premier-league-semenyo-foden-fpl-tips/
-
-**Unai Emery said 'the goals are coming' for Ollie Watkins - and then they did**\
-`The Aston Villa striker scored twice against Brighton - as many goals as in 24 appearances before that`\
-https://nytimes.com/athletic/6648526/2025/12/04/ollie-watkins-aston-villa-goals/
-
-**Wrexham Women have Champions League ambitions. Owning their own stadium is the first step**\
-`Wrexham Women played their first match at their new home on Sunday. A first step in an ambitious project  `\
-https://nytimes.com/athletic/6851918/2025/12/04/wrexham-women-the-rock/
-
-**Crystal Palace and Oliver Glasner have to compromise as schedule takes its toll**\
-`The Londoners are fifth but, with their squad stretched by a demanding fixture list, they may have to be pragmatic for the foreseeable`\
-https://nytimes.com/athletic/6855601/2025/12/04/crystal-palace-glasner-burnley/
-
-**Ranking all 64 teams in the World Cup draw**\
-`Our guide to the most likely winners and biggest outsiders for next summer's tournament in North America`\
-https://nytimes.com/athletic/6833349/2025/12/04/world-cup-draw-teams-ranked/
 

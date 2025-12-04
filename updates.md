@@ -1,3 +1,19 @@
+**New Footage Shows Epstein’s Private Island Home**\
+`Democrats in the House Oversight Committee released a set of photos and videos that show Jeffrey Epstein’s private home in the U.S. Virgin Islands, where his accusers say he trafficked underage girls for sex.`\
+https://nytimes.com/video/us/100000010564514/epstein-island-home.html
+
+**Late Night Thinks the War on Drugs Has Gone a Bit Off the Rails**\
+`The president who says he’s killing traffickers “pardoned a man who smuggled in enough cocaine to give every American resting Kash Patel face,” Josh Johnson said.`\
+https://nytimes.com/2025/12/04/arts/television/late-night-trump-pardon-honduras.html
+
+**Word of the Day: prosperity**\
+`This word has appeared in 600 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/12/04/learning/word-of-the-day-prosperity.html
+
+**Daniel Farke has bought himself priceless time by using a system that works**\
+`The takeaway from Wednesday is that Leeds United need to use the same formation against an out-of-sorts Liverpool`\
+https://nytimes.com/athletic/6860526/2025/12/04/leeds-chelsea-daniel-farke-analysis/
+
 **How Amen Thompson has become Rockets' floor raiser with his energy and athleticism**\
 `Thompson's willingness to make plays that often go unnoticed is part of what makes him such an important player.`\
 https://nytimes.com/athletic/6860934/2025/12/04/amen-thompson-rockets-energy-athleticism/
