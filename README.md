@@ -1,3 +1,11 @@
+**Drag Antics and ‘a Political Bomb’: Bringing ‘La Cage aux Folles’ Home**\
+`The theater that drew acclaim last year for “Les Misérables” is hoping Paris can accept a new “Americano-French musical.”`\
+https://nytimes.com/2025/12/04/arts/la-cage-aux-folles-paris-theatre-du-chatelet.html
+
+**Immigrants’ Fears**\
+`We explain how Afghan refugees in America are experiencing the fallout from a D.C. shooting.`\
+https://nytimes.com/2025/12/04/briefing/immigrants-fears.html
+
 **What makes this Heisman Trophy race different? The legacies of the two QBs leading it**\
 `Pavia and Mendoza are two of the best players in college football this season. That influence goes far beyond the field.`\
 https://nytimes.com/athletic/6855264/2025/12/04/heisman-trophy-diego-pavia-fernando-mendoza-vanderbilt-indiana/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6859003/2025/12/04/hall-of-fame-selection-nfl-belic
 **The SEC is dominating the Big Ten in ratings — despite on-field parity**\
 `The Big Ten has the last two champs and the CFP’s top two teams — so why is the SEC still winning the TV ratings race?`\
 https://nytimes.com/athletic/6859564/2025/12/04/sec-big-ten-tv-ratings/
-
-**LSU women have 8 straight 100-point games. Are they among best offenses ever?**\
-`From a 1987 Long Beach State Final Four team to Caitlin Clark's Iowa, here are some of the top offenses in women's college hoops history.`\
-https://nytimes.com/athletic/6853734/2025/12/04/does-lsus-high-scoring-womens-basketball-team-stack-up-vs-all-time-great-offenses/
-
-**What players, coaches and execs think of the 2025 MLS Cup matchup**\
-`Many are excited by Saturday's Miami vs. Vancouver showdown, even if feelings are more polarized around Messi & Co.`\
-https://nytimes.com/athletic/6860382/2025/12/04/mls-cup-inter-miami-vancouver-whitecaps-player-coach-opinion/
 
