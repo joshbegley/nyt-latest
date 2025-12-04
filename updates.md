@@ -1,3 +1,23 @@
+**Nathan Trott on his time at West Ham, the support of Mark Noble, and the myth about his move**\
+`It is almost 10 years since goalkeeper Nathan Trott left his native Bermuda to embark on a new adventure at West Ham United`\
+https://nytimes.com/athletic/6854964/2025/12/04/nathan-trott-west-ham-interview/
+
+**Should Semenyo to Foden be your next FPL transfer?**\
+`The mid-week Premier League action has brought about some significant trending transfers in FPL — including a very popular midfield switch`\
+https://nytimes.com/athletic/6858024/2025/12/04/fantasy-premier-league-semenyo-foden-fpl-tips/
+
+**Unai Emery said 'the goals are coming' for Ollie Watkins - and then they did**\
+`The Aston Villa striker scored twice against Brighton - as many goals as in 24 appearances before that`\
+https://nytimes.com/athletic/6648526/2025/12/04/ollie-watkins-aston-villa-goals/
+
+**Wrexham Women have Champions League ambitions. Owning their own stadium is the first step**\
+`Wrexham Women played their first match at their new home on Sunday. A first step in an ambitious project  `\
+https://nytimes.com/athletic/6851918/2025/12/04/wrexham-women-the-rock/
+
+**Crystal Palace and Oliver Glasner have to compromise as schedule takes its toll**\
+`The Londoners are fifth but, with their squad stretched by a demanding fixture list, they may have to be pragmatic for the foreseeable`\
+https://nytimes.com/athletic/6855601/2025/12/04/crystal-palace-glasner-burnley/
+
 **Ranking all 64 teams in the World Cup draw**\
 `Our guide to the most likely winners and biggest outsiders for next summer's tournament in North America`\
 https://nytimes.com/athletic/6833349/2025/12/04/world-cup-draw-teams-ranked/

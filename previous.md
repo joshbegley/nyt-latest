@@ -1,3 +1,23 @@
+**Nathan Trott on his time at West Ham, the support of Mark Noble, and the myth about his move**\
+`It is almost 10 years since goalkeeper Nathan Trott left his native Bermuda to embark on a new adventure at West Ham United`\
+https://nytimes.com/athletic/6854964/2025/12/04/nathan-trott-west-ham-interview/
+
+**Should Semenyo to Foden be your next FPL transfer?**\
+`The mid-week Premier League action has brought about some significant trending transfers in FPL — including a very popular midfield switch`\
+https://nytimes.com/athletic/6858024/2025/12/04/fantasy-premier-league-semenyo-foden-fpl-tips/
+
+**Unai Emery said 'the goals are coming' for Ollie Watkins - and then they did**\
+`The Aston Villa striker scored twice against Brighton - as many goals as in 24 appearances before that`\
+https://nytimes.com/athletic/6648526/2025/12/04/ollie-watkins-aston-villa-goals/
+
+**Wrexham Women have Champions League ambitions. Owning their own stadium is the first step**\
+`Wrexham Women played their first match at their new home on Sunday. A first step in an ambitious project  `\
+https://nytimes.com/athletic/6851918/2025/12/04/wrexham-women-the-rock/
+
+**Crystal Palace and Oliver Glasner have to compromise as schedule takes its toll**\
+`The Londoners are fifth but, with their squad stretched by a demanding fixture list, they may have to be pragmatic for the foreseeable`\
+https://nytimes.com/athletic/6855601/2025/12/04/crystal-palace-glasner-burnley/
+
 **Ranking all 64 teams in the World Cup draw**\
 `Our guide to the most likely winners and biggest outsiders for next summer's tournament in North America`\
 https://nytimes.com/athletic/6833349/2025/12/04/world-cup-draw-teams-ranked/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6839510/2025/12/04/anne-flower-ultrarunner-intervie
 **How heat, rain and altitude will affect players and fans at each World Cup city**\
 `This is the biggest World Cup yet, staged in three countries and across 16 cities, so what can players and fans epect?`\
 https://nytimes.com/athletic/6844657/2025/12/04/world-cup-2026-climate-heat-rain-altitude/
-
-**Eight players who could move during the World Cup**\
-`The World Cup should bring us many things — drama, quality football, captivating storylines, a festival atmosphere and… transfer rumours.`\
-https://nytimes.com/athletic/6858119/2025/12/04/world-cup-players-transfers/
-
-**Kawhi Leonard, James Harden learned of Chris Paul decision via social media**\
-`James Harden said the Clippers’ issues are "Not just Chris (Paul)."`\
-https://nytimes.com/athletic/6860819/2025/12/04/kawhi-leonard-james-harden-clippers-chris-paul/
-
-**When a Murder Hornet Becomes a Tasty Meal**\
-`A researcher found that a Japanese pond frog is impervious to the stings of the northern giant hornet, even when it goes down the hatch.`\
-https://nytimes.com/2025/12/04/science/frog-eating-murder-hornet.html
-
-**Connections: Sports Edition Coach: Hints for Dec. 4, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6860568/2025/12/04/connections-sports-edition-hints-for-dec-4-2025/
-
-**Taiwan’s Opposition Leader, Once for Independence, Turns Toward China**\
-`She says Taiwan must embrace its Chinese heritage to avoid war. Her critics say she wants to steer the island into Beijing’s orbit.`\
-https://nytimes.com/2025/12/04/world/asia/taiwan-opposition-cheng-china.html
 
