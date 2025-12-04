@@ -1,3 +1,11 @@
+**Canada Declares Stellantis in Default for Moving Jeep Production to U.S.**\
+`The automaker switched production from Ontario in a bid to please President Trump. But the company defaulted on contracts covering hundreds of millions of dollars in assistance, Canada said.`\
+https://nytimes.com/2025/12/04/world/canada/lawsuit-stellantis-us-jeep-production.html
+
+**Trump Switches Architects for White House Ballroom Project**\
+`The president had clashed with the original designer and insisted on increasing the size and scope of the ballroom on a short timeline.`\
+https://nytimes.com/2025/12/04/us/politics/trump-ballroom-white-house-construction.html
+
 **Art Gallery Shows to See in December**\
 `This week in Newly Reviewed, Martha Schwendener covers Meredith James’s anti-architecture monument, Franz Gertsch’s take on Patti Smith, Ragnar Kjartansson’s postcard ode, Analivia Cordeiro’s merging bodies and Guanyu Xu’s hovering photos.`\
 https://nytimes.com/2025/12/04/arts/art-gallery-shows-to-see-in-december.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6853423/2025/12/04/college-football-projections-bow
 **Redistricting Gets Off to a Slow Start in Florida**\
 `Some of the state’s Republican leaders appear in no rush to draw a new map as they grapple with political and legal questions amid internal power struggles.`\
 https://nytimes.com/2025/12/04/us/florida-redistricting-republicans.html
-
-**Supreme Court Clears the Way for Republican-Friendly Texas Voting Maps**\
-`Texas officials had asked the court to allow the state to use the new maps in the midterm elections, part of a push by President Trump to gain a partisan advantage.`\
-https://nytimes.com/2025/12/04/us/politics/supreme-court-texas-congressional-maps.html
-
-**Grand Jury Said to Decline to Re-Indict Letitia James**\
-`After a judge dismissed the Trump administration’s first attempt to indict the attorney general of New York State, a new grand jury effort failed, according to people familiar with the matter.`\
-https://nytimes.com/2025/12/04/us/politics/letitia-james-indict-trump.html
 

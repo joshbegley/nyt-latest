@@ -1,3 +1,19 @@
+**Art Gallery Shows to See in December**\
+`This week in Newly Reviewed, Martha Schwendener covers Meredith James’s anti-architecture monument, Franz Gertsch’s take on Patti Smith, Ragnar Kjartansson’s postcard ode, Analivia Cordeiro’s merging bodies and Guanyu Xu’s hovering photos.`\
+https://nytimes.com/2025/12/04/arts/art-gallery-shows-to-see-in-december.html
+
+**Rio Ferdinand in extensive talks to join Fox as World Cup pundit**\
+`The former England and Manchester United defender will co-present Friday's World Cup draw at the Kennedy Center.`\
+https://nytimes.com/athletic/6862873/2025/12/04/rio-ferdinand-fox-world-cup/
+
+**5 New and Renewed Hotels in the Caribbean**\
+`From Antigua to Grenada, many of the region’s most inviting recent openings are in less expected areas.`\
+https://nytimes.com/2025/12/04/t-magazine/hotels-resorts-caribbean.html
+
+**Tim Walz Calls Trump’s Tirade Against Somalis in Minnesota ‘Vile’**\
+`Minnesota’s governor said the president’s xenophobic remarks were dangerous as the state continued to face fiscal questions about a fraud scandal.`\
+https://nytimes.com/2025/12/04/us/tim-walz-trump-somalia-minnesota.html
+
 **Forest unveil plans for 52,000-capacity stadium expansion**\
 `The Midlands club expressed a desire on Thursday to start the redevelopment next summer.`\
 https://nytimes.com/athletic/6862964/2025/12/04/nottingham-forest-stadium-expansion/
