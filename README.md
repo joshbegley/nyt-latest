@@ -1,3 +1,7 @@
+**NFL Week 14 model-projected scores and point totals for every game**\
+`Austin Mock's NFL Projection Model gives its predictions for the points differentials and totals for every Week 14 game.`\
+https://nytimes.com/athletic/6863094/2025/12/04/nfl-week-14-projected-scores-model-predicts-point-spreads-and-totals-for-every-game/
+
 **Should Eagles' tush push be banned? Like NFL owners, our readers are divided**\
 `The Eagles have faced stronger defensive challenges with the tush push this season.`\
 https://nytimes.com/athletic/6862534/2025/12/04/eagles-tush-push-ban/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6862887/2025/12/04/manny-diaz-duke-college-football
 **Fantasy basketball hot topics of the week: Giannis-less Bucks, Maxime Raynaud and more**\
 `Stan Son reviews the biggest NBA storylines, including Giannis' recent injury and trade rumors, through a fantasy basketball lens. `\
 https://nytimes.com/athletic/6862756/2025/12/04/fantasy-basketball-hot-topics-giannis-jjj/
-
-**The State of the Burger Address**\
-`A lot of new burgers hit the scene this year. These three are worth the hype.`\
-https://nytimes.com/2025/12/04/dining/the-state-of-the-burger-address.html
 
