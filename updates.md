@@ -1,3 +1,7 @@
+**The New York Times in Print for Thursday, Dec. 4, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/12/04/todays-new-york-times
+
 **Brighton undermined by unfamiliar fragility to ruin Lewis Dunk's landmark night**\
 `A team who had been stingy defensively of late caved in four times in 49 minutes, with their set-piece resilience put under the microscope`\
 https://nytimes.com/athletic/6857999/2025/12/04/brighton-dunk-hurzeler-euvrard-villa/
