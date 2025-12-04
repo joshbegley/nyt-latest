@@ -1,3 +1,7 @@
+**Hamas Returns Body of Last Thai Hostage in Gaza**\
+`The militant group took more than 250 hostages from Israel on Oct. 7, 2023, including 31 from Thailand. The remains of all but one other hostage, an Israeli, have been recovered.`\
+https://nytimes.com/2025/12/04/world/middleeast/thai-hostage-gaza-hamas-israel.html
+
 **San Francisco Mayor Names Derrick Lew as New Police Chief**\
 `Mr. Lew is a veteran police officer whose experience includes major operations against drug dealing.`\
 https://nytimes.com/2025/12/04/us/derrick-lew-san-francisco-police-chief.html
