@@ -1,3 +1,7 @@
+**Trump Officials Cut Length of Work Permits for Asylum Seekers and Refugees**\
+`The move was the latest in an intensifying crackdown on legal immigration after an Afghan national was charged with shooting two National Guard members.`\
+https://nytimes.com/2025/12/04/us/politics/work-permits-asylum-refugees-trump.html
+
 **Redistricting Gets Off to a Slow Start in Florida**\
 `Some of the state’s Republican leaders appear in no rush to draw a new map as they grapple with political and legal questions amid internal power struggles.`\
 https://nytimes.com/2025/12/04/us/florida-redistricting-republicans.html
