@@ -1,3 +1,11 @@
+**Devin Williams has social media message for Yankees fans**\
+`Devin Williams' difficult run in pinstripes is over. The reliever had some words for Yankees fans.`\
+https://nytimes.com/athletic/6861792/2025/12/04/devin-williams-yankees-mets-social/
+
+**His Group Made World-Class Measurements of Atomic Elements**\
+`Yuri Ralchenko led one of the oldest teams at the National Institute for Standards and Technology. The fate of some experiments hangs in the air.`\
+https://nytimes.com/2025/12/04/science/lost-science-nist-atomic-measurements.html
+
 **The Wizards have the league's second worst record. But they're following their plan.**\
 `After 20 games, this season's Wizards are exactly where they need to be in order to have a successful 2026 draft. `\
 https://nytimes.com/athletic/6860883/2025/12/04/washington-wizards-season-analysis-20-games/
