@@ -1,3 +1,11 @@
+**Larry Fink and Brian Armstrong Are Not Worried About Another Crypto Winter**\
+`The chief executives of BlackRock and Coinbase discuss why they believe the future of crypto is bright.`\
+https://nytimes.com/2025/12/04/podcasts/larry-fink-and-brian-armstrong-are-not-worried-about-another-crypto-winter.html
+
+**Alex Karp Defends Palantir’s Work With ICE**\
+`Palantir’s chief executive rejects claims that President Trump is a fascist as “stupid.”`\
+https://nytimes.com/2025/12/04/podcasts/alex-karp-defends-palantirs-work-with-ice.html
+
 **Putin Must Have Authorized Nerve Agent Attack in England, U.K. Inquiry Finds**\
 `The death of a British woman from Novichok poisoning was the result of a botched assassination attempt authorized at the highest level, an official report said on Thursday.`\
 https://nytimes.com/2025/12/04/world/europe/putin-novichok-salisbury-skripal-poisoning.html

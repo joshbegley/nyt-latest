@@ -1,3 +1,11 @@
+**Larry Fink and Brian Armstrong Are Not Worried About Another Crypto Winter**\
+`The chief executives of BlackRock and Coinbase discuss why they believe the future of crypto is bright.`\
+https://nytimes.com/2025/12/04/podcasts/larry-fink-and-brian-armstrong-are-not-worried-about-another-crypto-winter.html
+
+**Alex Karp Defends Palantir’s Work With ICE**\
+`Palantir’s chief executive rejects claims that President Trump is a fascist as “stupid.”`\
+https://nytimes.com/2025/12/04/podcasts/alex-karp-defends-palantirs-work-with-ice.html
+
 **Putin Must Have Authorized Nerve Agent Attack in England, U.K. Inquiry Finds**\
 `The death of a British woman from Novichok poisoning was the result of a botched assassination attempt authorized at the highest level, an official report said on Thursday.`\
 https://nytimes.com/2025/12/04/world/europe/putin-novichok-salisbury-skripal-poisoning.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/04/world/middleeast/gaza-strikes-ceasefire.html
 **Cambodia Shuts Down Group That Laundered Billions in Scam Profits**\
 `A New York Times investigation in March found that Huione’s group of companies were at the heart of a global money laundering network for fraudsters, scammers and hackers.`\
 https://nytimes.com/2025/12/04/world/asia/cambodia-huione-shuts-money-laundering.html
-
-**Newsom, Kirk, Bessent, A.I. and Other DealBook Summit Highlights**\
-`The economy, inflation, tariffs, bubble fears, crypto and other big topics that made headlines this year.`\
-https://nytimes.com/2025/12/04/business/dealbook/newsom-kirk-bessent-dealbook-summit.html
-
-**The Pistons need to solve their fourth-quarter, turnover problems**\
-`Detroit still leads the East but is just 3-2 in its last five games thanks to some unforced errors.`\
-https://nytimes.com/athletic/6860930/2025/12/04/pistons-loss-turnovers-offense/
 
