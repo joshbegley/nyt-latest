@@ -1,3 +1,7 @@
+**What we learned about Michigan recruiting while 5-star RB Savion Hiter delayed his signing**\
+`Michigan signed a stellar 2026 recruiting class and made a coaching change Wednesday, but some blue-chip uncertainty remains.`\
+https://nytimes.com/athletic/6859898/2025/12/03/michigan-football-recruiting-2026-class-savion-hiter/
+
 **Giannis Antetokounmpo leaves Bucks-Pistons game after falling to the ground**\
 `Antetokounmpo collapsed to the floor in an apparent noncontact injury in the Bucks' matchup against the Pistons.`\
 https://nytimes.com/athletic/6860315/2025/12/03/giannis-antetokounmpo-exits-game-bucks/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/03/health/da-commissioners-vaccine-policy-concerns.h
 **5 Takeaways From the 2025 DealBook Summit**\
 `President Trump’s economic policies and artificial intelligence were among the central topics at the gathering of business and political leaders.`\
 https://nytimes.com/2025/12/03/business/dealbook-summit-kirk-netanyahu-mrbeast.html
-
-**Newsom Warns That Trump Is ‘Trying to Wreck This Country’**\
-`The California governor weighed in on the 2028 presidential election, and called out executives for “bending the knee” to President Trump.`\
-https://nytimes.com/2025/12/03/business/dealbook/gavin-newsom-trump-2028-election.html
 

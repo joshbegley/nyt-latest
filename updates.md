@@ -1,3 +1,7 @@
+**What we learned about Michigan recruiting while 5-star RB Savion Hiter delayed his signing**\
+`Michigan signed a stellar 2026 recruiting class and made a coaching change Wednesday, but some blue-chip uncertainty remains.`\
+https://nytimes.com/athletic/6859898/2025/12/03/michigan-football-recruiting-2026-class-savion-hiter/
+
 **Giannis Antetokounmpo leaves Bucks-Pistons game after falling to the ground**\
 `Antetokounmpo collapsed to the floor in an apparent noncontact injury in the Bucks' matchup against the Pistons.`\
 https://nytimes.com/athletic/6860315/2025/12/03/giannis-antetokounmpo-exits-game-bucks/
