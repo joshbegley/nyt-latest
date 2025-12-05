@@ -1,3 +1,11 @@
+**College football conference title game model-projected scores**\
+`Austin Mock's model has projected scores for all nine college football conference championship games.`\
+https://nytimes.com/athletic/6865849/2025/12/05/college-football-conference-title-game-projected-scores-model/
+
+**Mamdani Woos Wealthy Donors Alongside Grassroots Givers for Transition**\
+`Mayor-elect Zohran Mamdani has turned to crypto kings, movie stars and an oil heir, among others, to help reach his $4 million goal to fund his transition and Jan. 1 inauguration.`\
+https://nytimes.com/2025/12/05/nyregion/mamdani-transition-fund-raisers.html
+
 **Frank O. Gehry, Titan of Architecture, Is Dead at 96**\
 `He burst onto the scene with an attention-getting renovation of his Southern California home before going on to design some of the world’s most recognizable buildings.`\
 https://nytimes.com/2025/12/05/arts/design/frank-gehry-dead.html
@@ -18,23 +26,15 @@ https://nytimes.com/athletic/6865691/2025/12/05/bruins-charlie-mcavoy-jaw-fractu
 `Col. Johnathan H. Vaughn, who joined the corps before 9/11, was selected as judges return to Guantánamo Bay.`\
 https://nytimes.com/2025/12/05/us/politics/guantanamo-defense-teams.html
 
-**England drawn to play Croatia, Panama at 2026 World Cup**\
+**England drawn to play Croatia, Panama, Ghana at 2026 World Cup**\
 `England won all eight of their qualifying matches without conceding a goal.`\
 https://nytimes.com/athletic/6854701/2025/12/05/world-cup-draw-england-group-schedule-fixtures/
 
-**Argentina drawn to play Austria and Algeria at 2026 World Cup**\
+**Argentina drawn to play Austria, Algeria and Jordan at 2026 World Cup**\
 `The South American nation has progressed through the group stage in each of the last five tournaments, dating back to the 2002 tournament.`\
 https://nytimes.com/athletic/6854719/2025/12/05/world-cup-draw-argentina-group-schedule-fixtures/
 
 **Spain drawn to play Uruguay, Saudi Arabia and Cape Verde at 2026 World Cup**\
 `Luis de la Fuente's side learned its opponents at Friday's World Cup draw at the Kennedy Center in Washington, D.C.`\
 https://nytimes.com/athletic/6854828/2025/12/05/world-cup-draw-spain-group-schedule-fixtures/
-
-**USA drawn to play Australia, Paraguay at 2026 World Cup**\
-`The U.S. is seeded in Pot 1 as a co-host of the tournament.`\
-https://nytimes.com/athletic/6854622/2025/12/05/world-cup-draw-usmnt-group-schedule-fixtures/
-
-**Canada drawn to play Switzerland, Qatar in 2026 World Cup, could face Italy**\
-`Jesse Marsch's side is 27th in the FIFA world rankings and reached the semi-final stage of the 2024 Copa America.`\
-https://nytimes.com/athletic/6854662/2025/12/05/world-cup-draw-canada-group-schedule-fixtures/
 
