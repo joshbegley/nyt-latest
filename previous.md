@@ -1,4 +1,8 @@
-**Tigers sign Drew Anderson from KBO on one-year deal**\
+**Biden Says Republicans Aim to Turn L.G.B.T.Q. Identity Into ‘Something Scary’**\
+`The former president defended his support for transgender rights, a stance that has provoked second-guessing among some Democrats.`\
+https://nytimes.com/2025/12/05/us/biden-lgbtq-award.html
+
+**Tigers sign pitcher Drew Anderson from KBO on one-year deal: Sources**\
 `Anderson, who spent time in Detroit's organization in 2024 before heading to Korea, is expected to start for the Tigers.`\
 https://nytimes.com/athletic/6866583/2025/12/05/mlb-tigers-drew-anderson-contract/
 
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/05/nyregion/tekashi-6ix9ine-prison-sentence.html
 **Justices to Review Trump’s Order Restricting Birthright Citizenship**\
 `Also, the celebrated architect Frank Gehry dies at 96. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2025/12/05/briefing/supreme-court-birthright-citizenship.html
-
-**Gen Z Councilman Ends Primary Challenge to House Democratic Leader**\
-`Chi Ossé had hoped to ride the momentum of Zohran Mamdani to challenge Representative Hakeem Jeffries, but he failed to secure the backing of the Democratic Socialists of America.`\
-https://nytimes.com/2025/12/05/nyregion/chi-osse-hakeem-jeffries-primary.html
 
