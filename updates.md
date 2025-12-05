@@ -1,3 +1,11 @@
+**Doug Gottlieb’s Green Bay heartbreak: Chair toss, last-second loss and lessons**\
+`Another Horizon League coach, Oakland's Greg Kampe, blasted his school's student section for not attending games.`\
+https://nytimes.com/athletic/6865493/2025/12/05/doug-gottlieb-green-bay-chair-toss-robert-morris/
+
+**‘A Christmas Carol’ Review: A Gentle Interpretation of a Classic**\
+`This production, which retains many of the charms of its 2019 Broadway staging, has lost some of its necessary darkness.`\
+https://nytimes.com/2025/12/05/theater/christmas-carol-review.html
+
 **NASCAR exec tells of 'difficult' dealings with Michael Jordan's partner on Day 5 of trial**\
 `NASCAR president Steve O'Donnell and Joe Gibbs Racing co-owner Heather Gibbs took the stand to begin Day 5 of the trial.`\
 https://nytimes.com/athletic/6865704/2025/12/05/nascar-trial-michael-jordan-steve-odonnell-heather-gibbs/

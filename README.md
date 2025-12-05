@@ -1,3 +1,7 @@
+**My Somali Role Models in Minnesota**\
+`Readers react to President Trump’s disparaging comments about Somalis in the U.S. Also: Academic censorship; a prejudice against psychiatric medication.`\
+https://nytimes.com/2025/12/05/opinion/somalis-minnesota-trump.html
+
 **Doug Gottlieb’s Green Bay heartbreak: Chair toss, last-second loss and lessons**\
 `Another Horizon League coach, Oakland's Greg Kampe, blasted his school's student section for not attending games.`\
 https://nytimes.com/athletic/6865493/2025/12/05/doug-gottlieb-green-bay-chair-toss-robert-morris/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6865363/2025/12/05/lebron-james-point-streak-record
 **Penn State finalizing deal for open job for Iowa State's Matt Campbell: Sources**\
 `Iowa State's Campbell has been involved in many coaching searches over the years.`\
 https://nytimes.com/athletic/6862689/2025/12/05/penn-state-matt-campbell-head-coach-job-iowa-state/
-
-**Halligan Continues as U.S. Attorney, Prompting Criticism From Judges**\
-`The Justice Department has seized on a lack of explicit instruction from a federal judge to keep Lindsey Halligan in place for now.`\
-https://nytimes.com/2025/12/05/us/politics/halligan-us-attorney-judiciary.html
 

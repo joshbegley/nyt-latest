@@ -1,3 +1,11 @@
+**Doug Gottlieb’s Green Bay heartbreak: Chair toss, last-second loss and lessons**\
+`Another Horizon League coach, Oakland's Greg Kampe, blasted his school's student section for not attending games.`\
+https://nytimes.com/athletic/6865493/2025/12/05/doug-gottlieb-green-bay-chair-toss-robert-morris/
+
+**‘A Christmas Carol’ Review: A Gentle Interpretation of a Classic**\
+`This production, which retains many of the charms of its 2019 Broadway staging, has lost some of its necessary darkness.`\
+https://nytimes.com/2025/12/05/theater/christmas-carol-review.html
+
 **NASCAR exec tells of 'difficult' dealings with Michael Jordan's partner on Day 5 of trial**\
 `NASCAR president Steve O'Donnell and Joe Gibbs Racing co-owner Heather Gibbs took the stand to begin Day 5 of the trial.`\
 https://nytimes.com/athletic/6865704/2025/12/05/nascar-trial-michael-jordan-steve-odonnell-heather-gibbs/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6862689/2025/12/05/penn-state-matt-campbell-head-co
 **Halligan Continues as U.S. Attorney, Prompting Criticism From Judges**\
 `The Justice Department has seized on a lack of explicit instruction from a federal judge to keep Lindsey Halligan in place for now.`\
 https://nytimes.com/2025/12/05/us/politics/halligan-us-attorney-judiciary.html
-
-**Commanders' Jayden Daniels cleared to play, will start Sunday vs. Vikings**\
-`Receiver Noah Brown will also return to the Commanders' lineup for the first time since getting injured in Week 2.`\
-https://nytimes.com/athletic/6864279/2025/12/05/jayden-daniels-cleared-commanders-vikings/
-
-**Donald Trump awarded inaugural FIFA Peace Prize**\
-`FIFA never announced nominees for the new award and has not said how or by whom the winner was chosen.`\
-https://nytimes.com/athletic/6854845/2025/12/05/fifa-peace-prize-trump-infantino/
 
