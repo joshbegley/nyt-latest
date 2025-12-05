@@ -1,3 +1,23 @@
+**Pat Spencer is the hot hand the Warriors need with Stephen Curry out**\
+`The two-way player has given gimpy Golden State a spark, and has earned Steve Kerr's confidence and more minutes.`\
+https://nytimes.com/athletic/6864306/2025/12/05/pat-spencer-is-the-hot-hand-the-warriors-need-with-stephen-curry-out/
+
+**LeBron James' scoring streak ends. He says his assist was 'the perfect way' to go**\
+`James wrote his own ending, wrapping up a streak that began 15 days after Dallas Mavericks rookie Cooper Flagg was born.`\
+https://nytimes.com/athletic/6864270/2025/12/05/lebron-james-scoring-streak-ends/
+
+**Warner Bros. Discovery Said to Be in Exclusive Talks With Netflix**\
+`Netflix would acquire Warner television and film studios as well as HBO Max in a deal that would bulk up the world’s biggest paid streaming service.`\
+https://nytimes.com/2025/12/05/business/warner-brothers-discovery-netflix.html
+
+**The New York Times in Print for Friday, Dec. 5, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/12/05/todays-new-york-times
+
+**The Hidden Cost of Your Avocado**\
+`Cartel extortion is pushing up prices in Mexico — and becoming a political problem President Claudia Sheinbaum can’t ignore.`\
+https://nytimes.com/2025/12/05/opinion/mexico-sheinbaum-cartels-extortion-trump.html
+
 **"We hope Liverpool give him time" - watching Arne Slot's struggles from Rotterdam**\
 `The Liverpool head coach is revered in Rotterdam after success at Feyenoord - and surprise at his problems this season at Anfield  `\
 https://nytimes.com/athletic/6861183/2025/12/05/arne-slot-liverpool-feyenoord-rotterdam/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6861817/2025/12/05/tottenham-defensive-issues-thoma
 **World Cup 2026: 48 places, 64 teams. Why we will not know the full draw**\
 `The 2026 World Cup will be the biggest in history with 48 countries competing - but 64 teams will be in Friday's draw`\
 https://nytimes.com/athletic/6855214/2025/12/05/world-cup-draw-teams-qualified-playoffs-watch/
-
-**Crystal Palace Transfer DealSheet: What to expect in 2026**\
-`Crystal Palace have key windows ahead of them as Oliver Glasner wants them to improve the squad`\
-https://nytimes.com/athletic/6849245/2025/12/05/crystal-palace-transfer-latest-january-summer-2026/
-
-**Everton are down to the bare bones but that has delivered an unexpected benefit**\
-`A series of enforced changes from manager David Moyes resulted in a team that played with more balance and creativity`\
-https://nytimes.com/athletic/6861465/2025/12/05/everton-moyes-injury-crisis/
-
-**Madueke and the importance of Arsenal's 'Bible Brothers': 'We believe we have God fighting for us'**\
-`Arsenal are pushing for the Premier League title and at the heart of their squad area group of players who are open and proud of their faith`\
-https://nytimes.com/athletic/6862688/2025/12/05/noni-madueke-arsenal-christian-players/
-
-**World Cup 2026 host city guides: What to do, eat and see, from Atlanta to Vancouver**\
-`Our team of writers from across the United States, Canada and Mexico delve deep into what the 16 host cities have to offer for visiting fans`\
-https://nytimes.com/athletic/6835792/2025/12/05/world-cup-2026-city-guides/
-
-**World Cup draw preview, predictions and potential match-ups**\
-`As the football world awaits the World Cup draw, we make our predictions and tell you what you need to know about the Washington, D.C. event`\
-https://nytimes.com/athletic/6855000/2025/12/05/world-cup-draw-2026-preview-predictions-analysis-reaction/
 
