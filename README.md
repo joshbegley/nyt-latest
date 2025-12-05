@@ -1,3 +1,7 @@
+**The Clippers are in a bad spot with few options. And they're not alone**\
+`Several teams mortgaged their future draft assets for a shot at winning now. The bill is coming due.`\
+https://nytimes.com/athletic/6863872/2025/12/05/clippers-bucks-nba-future-draft-picks-trade/
+
 **GM Spotlight: How to build a modern college football program in the FCS**\
 `Tennessee Tech has one of the most robust personnel departments in the FCS ranks.`\
 https://nytimes.com/athletic/6858584/2025/12/05/college-football-general-manager-tennessee-tech/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6862038/2025/12/05/ashes-australia-england-smith-la
 **The Phillies revamped their scouting in Japan. Now, can they break through?**\
 `The club has bolstered its scouting operation in Japan, but challenges remain as it seeks to tap into the country's talent-rich pipeline.`\
 https://nytimes.com/athletic/6857101/2025/12/05/phillies-japan-scouting-free-agents/
-
-**How Dan Vladar's offseason prepared him to step up with the Flyers**\
-`Vladar, who signed as a free agent with Philadelphia in the summer, has reached another level in goal this season.`\
-https://nytimes.com/athletic/6863251/2025/12/05/philadelphia-flyers-goalie-dan-vladar-nhl/
 
