@@ -1,3 +1,11 @@
+**Bucks have different buttons to push with Giannis out this time around**\
+`Milwaukee "can't catch a break on health," but here's how it could stem the tide with its best player sidelined again.`\
+https://nytimes.com/athletic/6863817/2025/12/05/giannis-antetokounmpo-bucks-kevin-porter-ryan-rollins/
+
+**Olympic-sized anxiety over the ice in Milan. Plus: NHL's most-improved players**\
+`We know the playing surface will be smaller when the Olympics begin in February, but will the arena even be ready?`\
+https://nytimes.com/athletic/6865369/2025/12/05/olympics-ice-hockey-arena-nhl-players/
+
 **Burnley's Mejbri given four-match ban, fined for spitting at fans**\
 `The 22-year-old had been charged with misconduct by the FA after spitting at Leeds United supporters in October.`\
 https://nytimes.com/athletic/6865413/2025/12/05/hannibal-mejbri-spitting-ban-leeds-burnley/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6842237/2025/12/05/world-cup-2026-tickets-guadalaja
 **Consumer Prices Rose Slightly in September**\
 `The most recent Personal Consumption Expenditures index was delayed because of the government shutdown.`\
 https://nytimes.com/2025/12/05/business/inflation-consumer-prices-september.html
-
-**Lions fear safety Brian Branch suffered Achilles injury against Cowboys**\
-`Losing Branch would be a big hit to an already thin secondary. He was spotted with crutches and a walking boot after the game.`\
-https://nytimes.com/athletic/6865325/2025/12/05/lions-branch-branch-achilles-injury-update/
-
-**The Bounce: LeBron's historic scoring streak ends, and may never be matched**\
-`Zach Harper catches you up on the latest NBA news in our newsletter.`\
-https://nytimes.com/athletic/6861938/2025/12/05/lebron-james-streak-ends-giannis-the-bounce/
 
