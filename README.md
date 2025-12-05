@@ -6,8 +6,8 @@ https://nytimes.com/2025/12/05/arts/television/jimmy-kimmel-trump-2025-google.ht
 `The actor, born in Japan, starred in dozens of film and television shows, including Amazon’s “The Man in the High Castle.” His career spanned more than three decades.`\
 https://nytimes.com/2025/12/05/movies/cary-hiroyuki-tagawa-dead.html
 
-**Wild get 'outplayed' as 12-game point streak ends with a dud in Calgary: takeaways**\
-`The lowly Flames (ranked 31st in the NHL) were the better team in all areas — from 5-on-5 to special teams to goaltending.`\
+**Wild get 'outplayed' as 12-game point streak ends with a dud in Calgary: Takeaways**\
+`The lowly Flames (ranked 31st in the NHL) were the better team in all areas, from five-on-five to special teams and goaltending.`\
 https://nytimes.com/athletic/6864308/2025/12/05/wild-get-outplayed-as-12-game-point-streak-ends-with-a-dud-in-calgary-takeaways/
 
 **Late V.J. Edgecombe putback, Tyrese Maxey block seal dramatic 76ers win over Warriors**\
