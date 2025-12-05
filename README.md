@@ -1,3 +1,19 @@
+**Do You Know What Hepatitis Is?**\
+`The disease has become a key issue in Washington. We asked doctors to explain the ABCs.`\
+https://nytimes.com/2025/12/05/well/hepatitis-symptoms-treatment.html
+
+**How to get tickets to World Cup 2026 matches in Mexico City**\
+`Estadio Azteca will host five games at next summer's men's soccer World Cup.`\
+https://nytimes.com/athletic/6842187/2025/12/05/world-cup-2026-tickets-mexico-city-draw-matches/
+
+**How to get tickets to World Cup 2026 matches in Vancouver**\
+`BC Place will host seven games at next summer's men's soccer World Cup.`\
+https://nytimes.com/athletic/6842057/2025/12/05/world-cup-2026-tickets-vancouver-draw-matches/
+
+**Consumer Prices Rose Slightly in September**\
+`The most recent Personal Consumption Expenditures index was delayed because of the government shutdown.`\
+https://nytimes.com/2025/12/05/business/inflation-consumer-prices-september.html
+
 **Lions fear safety Brian Branch suffered Achilles injury against Cowboys**\
 `Losing Branch would be a big hit to an already thin secondary. He was spotted with crutches and a walking boot after the game.`\
 https://nytimes.com/athletic/6865325/2025/12/05/lions-branch-branch-achilles-injury-update/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/12/05/sports/autoracing/f1-laurent-mekies-red-bull.html
 **How to get tickets to World Cup 2026 matches in Seattle**\
 `Lumen Field will host six games at next summer's men's soccer World Cup.`\
 https://nytimes.com/athletic/6841997/2025/12/05/world-cup-2026-tickets-seattle-draw-matches/
-
-**How to get tickets to World Cup 2026 matches in San Francisco**\
-`Levi's Stadium will host six games at next summer's men's soccer World Cup.`\
-https://nytimes.com/athletic/6841899/2025/12/05/world-cup-2026-tickets-san-francisco-draw-matches/
-
-**Building a Response to Moments of Reckoning**\
-`Architects are uniquely positioned to help people displaced by natural disasters.`\
-https://nytimes.com/2025/12/05/special-series/shigeru-ban-disaster-relief-architecture.html
-
-**How to get tickets to World Cup 2026 matches in Toronto**\
-`BMO Field will host six games at next summer's men's soccer World Cup.`\
-https://nytimes.com/athletic/6842017/2025/12/05/world-cup-2026-tickets-toronto-draw-matches/
-
-**Putin Receives Warm Welcome in India**\
-`Prime Minister Narendra Modi of India praised his relationship with President Vladimir V. Putin of Russia after the two leaders held bilateral talks in New Delhi on Friday.`\
-https://nytimes.com/video/world/asia/100000010567051/putin-modi-india-russia.html
 
