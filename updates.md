@@ -1,3 +1,19 @@
+**Twins not planning to trade stars like Byron Buxton, Joe Ryan this winter: Sources**\
+`The Twins traded away several top players in 2025 but plan to build around their current core and compete for the AL Central title in 2026.`\
+https://nytimes.com/athletic/6866003/2025/12/05/minnesota-twins-offseason-plans-byron-buxton-joe-ryan/
+
+**Frank Gehry: 12 Essential, Stunning Projects**\
+`A singular genius, Gehry redefined architecture with joyful buildings like the Walt Disney Concert Hall in Los Angeles and the Guggenheim Museum Bilbao.`\
+https://nytimes.com/2025/12/05/arts/design/frank-gehry-buildings-photos.html
+
+**‘Whale Time’ With Melissa McCarthy, Colin Jost and the Cast of ‘S.N.L.’**\
+`It was all gratitude for the prehistoric beasts that once roamed the earth at the American Museum of Natural History gala in New York.`\
+https://nytimes.com/2025/12/05/style/natural-history-museum-gala-melissa-mccarthy-snl-cast.html
+
+**It all comes down to Abu Dhabi. Plus: Comparing the contenders' chances for the F1 title**\
+`The 2025 F1 winner will be crowned in Abu Dhabi. Welcome to The Athletic's F1 newsletter.`\
+https://nytimes.com/athletic/6865980/2025/12/05/abu-dhabi-gp-f1-title-prime-tire/
+
 **Judge Approves Release of Epstein Grand Jury Documents in Florida Case**\
 `A federal judge in Florida ordered the release of previously sealed testimony, after legislation passed last month authorizing the disclosure.`\
 https://nytimes.com/2025/12/05/us/politics/florida-epstein-grand-jury-documents.html
