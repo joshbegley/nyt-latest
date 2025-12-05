@@ -1,3 +1,7 @@
+**Word of the Day: exonerate**\
+`This word has appeared in 29 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/12/05/learning/word-of-the-day-exonerate.html
+
 **Jimmy Kimmel Thanks Trump for Google Superstardom in 2025**\
 `The host said he wouldn’t have been the third-most-trending person in Google searches this year “without the support of loyal viewers” like the president.`\
 https://nytimes.com/2025/12/05/arts/television/jimmy-kimmel-trump-2025-google.html
@@ -33,8 +37,4 @@ https://nytimes.com/issue/todayspaper/2025/12/05/todays-new-york-times
 **The Hidden Cost of Your Avocado**\
 `Cartel extortion is pushing up prices in Mexico — and becoming a political problem President Claudia Sheinbaum can’t ignore.`\
 https://nytimes.com/2025/12/05/opinion/mexico-sheinbaum-cartels-extortion-trump.html
-
-**"We hope Liverpool give him time" - watching Arne Slot's struggles from Rotterdam**\
-`The Liverpool head coach is revered in Rotterdam after success at Feyenoord - and surprise at his problems this season at Anfield  `\
-https://nytimes.com/athletic/6861183/2025/12/05/arne-slot-liverpool-feyenoord-rotterdam/
 
