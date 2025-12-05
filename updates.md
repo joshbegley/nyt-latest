@@ -1,3 +1,15 @@
+**With LeBron’s point streak broken, what are the best active milestones in sports?**\
+`LeBron James double-digit points streak is over. But there are many displays of consistency happening elsewhere in sports.`\
+https://nytimes.com/athletic/6865363/2025/12/05/lebron-james-point-streak-record/
+
+**Penn State finalizing deal for open job for Iowa State's Matt Campbell: Sources**\
+`Iowa State's Campbell has been involved in many coaching searches over the years.`\
+https://nytimes.com/athletic/6862689/2025/12/05/penn-state-matt-campbell-head-coach-job-iowa-state/
+
+**Donald Trump awarded inaugural FIFA Peace Prize**\
+`FIFA never announced nominees for the new award and has not said how or by whom the winner was chosen.`\
+https://nytimes.com/athletic/6854845/2025/12/05/fifa-peace-prize-trump-infantino/
+
 **Halligan Continues as U.S. Attorney, Prompting Criticism From Judges**\
 `The Justice Department has seized on a lack of explicit instruction from a federal judge to keep Lindsey Halligan in place for now.`\
 https://nytimes.com/2025/12/05/us/politics/halligan-us-attorney-judiciary.html

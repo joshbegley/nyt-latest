@@ -1,3 +1,11 @@
+**With LeBron’s point streak broken, what are the best active milestones in sports?**\
+`LeBron James double-digit points streak is over. But there are many displays of consistency happening elsewhere in sports.`\
+https://nytimes.com/athletic/6865363/2025/12/05/lebron-james-point-streak-record/
+
+**Penn State finalizing deal for open job for Iowa State's Matt Campbell: Sources**\
+`Iowa State's Campbell has been involved in many coaching searches over the years.`\
+https://nytimes.com/athletic/6862689/2025/12/05/penn-state-matt-campbell-head-coach-job-iowa-state/
+
 **Halligan Continues as U.S. Attorney, Prompting Criticism From Judges**\
 `The Justice Department has seized on a lack of explicit instruction from a federal judge to keep Lindsey Halligan in place for now.`\
 https://nytimes.com/2025/12/05/us/politics/halligan-us-attorney-judiciary.html
@@ -7,7 +15,7 @@ https://nytimes.com/2025/12/05/us/politics/halligan-us-attorney-judiciary.html
 https://nytimes.com/athletic/6864279/2025/12/05/jayden-daniels-cleared-commanders-vikings/
 
 **Donald Trump awarded inaugural FIFA Peace Prize**\
-`FIFA never announced nominees for the new award and have not said how or by whom the winner was chosen.`\
+`FIFA never announced nominees for the new award and has not said how or by whom the winner was chosen.`\
 https://nytimes.com/athletic/6854845/2025/12/05/fifa-peace-prize-trump-infantino/
 
 **Ohio State signing 5-star WR Chris Henry Jr. after late Oregon push**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/05/style/versace-dario-vitale-prada.html
 **Did a 'love bomb' from the 'cookie man' keep Kalani Sitake at BYU?**\
 `"We were all willing to be substantial in our help for BYU,” said McGowan, who deflected credit for being the sole reason Sitake stayed.`\
 https://nytimes.com/athletic/6863974/2025/12/05/byu-crumbl-jason-mcgowan-kalani-sitake/
-
-**ICE Arrests Harvard Professor Charged for Shooting a Pellet Gun**\
-`Carlos Portugal Gouvea, a visiting law professor from Brazil, said he would leave the country rather than be deported, according to federal officials. He was arrested after firing a pellet gun near a synagogue.`\
-https://nytimes.com/2025/12/05/us/ice-harvard-carlos-portugal-pellet-gun.html
-
-**Dancing Babies and Toddlers Are Teaching the Pros a Thing or Two**\
-`Everyone loves tiny dancers. Now some artists are considering why they bring us such joy — and what lessons they might have for grown-ups.`\
-https://nytimes.com/2025/12/05/arts/dance/baby-toddler-raves-professional-dancers.html
 

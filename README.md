@@ -1,3 +1,11 @@
+**The 12.7.25 Issue**\
+``\
+https://nytimes.com/issue/magazine/2025/12/05/the-12725-issue
+
+**CNN, Unwanted by Netflix, Is Excluded From a Sale, for Now**\
+`The prospect of Paramount buying Warner Bros. Discovery had led CNN journalists to wonder if the channel might be combined with CBS News. Instead, CNN will remain in a separate corporate entity.`\
+https://nytimes.com/2025/12/05/business/media/cnn-netflix-warner-bros-discovery-deal.html
+
 **With LeBron’s point streak broken, what are the best active milestones in sports?**\
 `LeBron James double-digit points streak is over. But there are many displays of consistency happening elsewhere in sports.`\
 https://nytimes.com/athletic/6865363/2025/12/05/lebron-james-point-streak-record/
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/europe/100000010567479/germany-draft-law-militar
 **Paolo Banchero set to return to surging Magic after 10-game absence**\
 `Banchero averaged 21.7 points, 8.7 rebounds and 4.1 assists per game this season before his injury.`\
 https://nytimes.com/athletic/6865643/2025/12/05/paolo-banchero-injury-return-magic/
-
-**Versace’s Shocking Announcement**\
-`After one hit collection, the designer Dario Vitale will be leaving the brand. What’s going on?`\
-https://nytimes.com/2025/12/05/style/versace-dario-vitale-prada.html
-
-**Did a 'love bomb' from the 'cookie man' keep Kalani Sitake at BYU?**\
-`"We were all willing to be substantial in our help for BYU,” said McGowan, who deflected credit for being the sole reason Sitake stayed.`\
-https://nytimes.com/athletic/6863974/2025/12/05/byu-crumbl-jason-mcgowan-kalani-sitake/
 
