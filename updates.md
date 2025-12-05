@@ -1,3 +1,7 @@
+**Cheesy Baked Cauliflower**\
+`A person could, in theory, just pour cream over cauliflower, drape it with cheese, bake it and be happy with the results.`\
+https://nytimes.com/video/dining/100000010559102/cheesy-baked-cauliflower.html
+
 **England's Tuchel say he may keep substitutes indoors during World Cup to avoid heat**\
 `A recent report found that 10 of the 16 venues at the tournament are at "very high risk of experiencing extreme heat stress conditions." `\
 https://nytimes.com/athletic/6864620/2025/12/05/thomas-tuchel-england-heat-world-cup/
