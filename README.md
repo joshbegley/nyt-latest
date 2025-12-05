@@ -1,3 +1,11 @@
+**Erik Bulatov, Russian Painter Who Undermined Soviet Propaganda, Dies at 92**\
+`For years he lived a double life, secretly making anti-Communist paintings. He found fame in the late 1980s, once his work was shown outside the Soviet Union.`\
+https://nytimes.com/2025/12/05/arts/erik-bulatov-dead.html
+
+**Explained: Who can still qualify for the World Cup via the playoffs?**\
+`Breaking down which teams are still hoping to secure a place in the USA, Canada and Mexico`\
+https://nytimes.com/athletic/6866032/2025/12/05/european-fifa-playoff-2026-world-cup-qualifying/
+
 **What Scientists Found When a Deep Sea Mining Company Invited Them In**\
 `An ocean-mining company has funded some of the most comprehensive scientific studies to date, and peer-reviewed results have begun to emerge.`\
 https://nytimes.com/2025/12/05/climate/deep-sea-mining-ecosystem.html
@@ -25,16 +33,4 @@ https://nytimes.com/athletic/6866125/2025/12/05/mavericks-vs-thunder-stream-how-
 **How to watch Spurs vs. Cavaliers: Time, TV, streaming**\
 `Find out how to watch the San Antonio Spurs play the Cleveland Cavaliers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6866126/2025/12/05/spurs-vs-cavaliers-stream-how-to-watch-dec-5/
-
-**How to watch Hornets vs. Raptors: Time, TV, streaming**\
-`Find out how to watch the Charlotte Hornets play the Toronto Raptors, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6866122/2025/12/05/hornets-vs-raptors-stream-how-to-watch-dec-5/
-
-**How to watch Sharks vs. Stars: Time, TV, streaming**\
-`Find out how to watch the San Jose Sharks play the Dallas Stars, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6866120/2025/12/05/sharks-vs-stars-stream-how-to-watch-dec-5/
-
-**How to watch Trail Blazers vs. Pistons: Time, TV, streaming**\
-`Find out how to watch the Portland Trail Blazers play the Detroit Pistons, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6866118/2025/12/05/trail-blazers-vs-pistons-stream-how-to-watch-dec-5/
 
