@@ -1,3 +1,7 @@
+**Tigers sign Drew Anderson from KBO on one-year deal**\
+`Anderson, who spent time in Detroit's organization in 2024 before heading to Korea, is expected to start for the Tigers.`\
+https://nytimes.com/athletic/6866583/2025/12/05/mlb-tigers-drew-anderson-contract/
+
 **Trumpism After Trump? Here Are Three Realities.**\
 `“Trumpism without Trump is going to move in different directions because Trumpism was always a somewhat amorphous set of half-baked ideas,” Bret Stephens says.`\
 https://nytimes.com/video/opinion/100000010559506/trumpism-after-trump-here-are-three-realities.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/05/briefing/supreme-court-birthright-citizenship.htm
 **Gen Z Councilman Ends Primary Challenge to House Democratic Leader**\
 `Chi Ossé had hoped to ride the momentum of Zohran Mamdani to challenge Representative Hakeem Jeffries, but he failed to secure the backing of the Democratic Socialists of America.`\
 https://nytimes.com/2025/12/05/nyregion/chi-osse-hakeem-jeffries-primary.html
-
-**Adding Vintage Touches to an 1800s Victorian**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/frances-merrill-victorian-kitchen
 

@@ -1,3 +1,11 @@
+**Trumpism After Trump? Here Are Three Realities.**\
+`“Trumpism without Trump is going to move in different directions because Trumpism was always a somewhat amorphous set of half-baked ideas,” Bret Stephens says.`\
+https://nytimes.com/video/opinion/100000010559506/trumpism-after-trump-here-are-three-realities.html
+
+**How Charismatic Can a Moderate Politician Be?**\
+`“I think Americans — those who are not spending all their lives on social media — are so tired of the temperature of our political discourse,” Frank Bruni says on “The Opinions.” The solution? A “poetic and charismatic” centrist.`\
+https://nytimes.com/video/opinion/100000010559508/how-charismatic-can-a-moderate-politician-be.html
+
 **How Has Congestion Pricing Changed Your Year?**\
 `The tolling program, decades in the making, has shown signs of being effective after a rocky rollout.`\
 https://nytimes.com/2025/12/05/nyregion/nyc-congestion-pricing-anniversary.html
