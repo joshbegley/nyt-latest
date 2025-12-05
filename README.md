@@ -1,5 +1,5 @@
 **Penn State search shifting focus to Iowa State's Matt Campbell: Sources**\
-`Penn State's lengthy coaching search to replace James Franklin has shifted its focus to Iowa State's Matt Campbell.`\
+`Penn State's lengthy coaching search to replace James Franklin could be closing in on Matt Campbell, with some other names in the mix.`\
 https://nytimes.com/athletic/6863734/2025/12/04/matt-campbell-penn-state-coaching-search/
 
 **Judge Dismisses Harvard Antisemitism Lawsuit by a Former Student**\
