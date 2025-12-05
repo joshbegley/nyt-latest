@@ -1,3 +1,7 @@
+**An End to Hepatitis B Shots for All Newborns**\
+`A federal panel voted on Friday to recommend halting the at-birth shots for all infants, in a step toward Health Secretary Robert F. Kennedy Jr.’s goal of upending the nation’s vaccine policy.`\
+https://nytimes.com/2025/12/05/health/kennedy-vaccine-committee-vote-hepatitisb.html
+
 **Do You Know What Hepatitis Is?**\
 `The disease has become a key issue in Washington. We asked doctors to explain the ABCs.`\
 https://nytimes.com/2025/12/05/well/hepatitis-symptoms-treatment.html
@@ -9,6 +13,14 @@ https://nytimes.com/athletic/6842187/2025/12/05/world-cup-2026-tickets-mexico-ci
 **How to get tickets to World Cup 2026 matches in Vancouver**\
 `BC Place will host seven games at next summer's men's soccer World Cup.`\
 https://nytimes.com/athletic/6842057/2025/12/05/world-cup-2026-tickets-vancouver-draw-matches/
+
+**How to get tickets to World Cup 2026 matches in Monterrey**\
+`Estadio BBVA will host four games at next summer's men's soccer World Cup.`\
+https://nytimes.com/athletic/6842280/2025/12/05/world-cup-2026-tickets-monterrey-draw-matches/
+
+**How to get tickets to World Cup 2026 matches in Guadalajara**\
+`Estadio Akron will host four games at next summer's men's soccer World Cup.`\
+https://nytimes.com/athletic/6842237/2025/12/05/world-cup-2026-tickets-guadalajara-draw-matches/
 
 **Consumer Prices Rose Slightly in September**\
 `The most recent Personal Consumption Expenditures index was delayed because of the government shutdown.`\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6861938/2025/12/05/lebron-james-streak-ends-giannis
 **Do the Rams need the NFC's No. 1 seed to reach the Super Bowl? Mailbag**\
 `What's the confidence level in the Rams after losing to the Panthers? And how important is having a home-field advantage in the playoffs?`\
 https://nytimes.com/athletic/6860028/2025/12/05/rams-mailbag-no-1-seed-nfc-super-bowl/
-
-**How to get tickets to World Cup 2026 matches in Los Angeles**\
-`SoFi Stadium will host eight games at next summer's men's soccer World Cup.`\
-https://nytimes.com/athletic/6841836/2025/12/05/world-cup-2026-tickets-los-angeles-draw-matches/
-
-**Laurent Mekies Stepped In, Red Bull Stepped Up**\
-`He’s been in charge of the team for only about five months, and his technical background has strengthen his leadership.`\
-https://nytimes.com/2025/12/05/sports/autoracing/f1-laurent-mekies-red-bull.html
-
-**How to get tickets to World Cup 2026 matches in Seattle**\
-`Lumen Field will host six games at next summer's men's soccer World Cup.`\
-https://nytimes.com/athletic/6841997/2025/12/05/world-cup-2026-tickets-seattle-draw-matches/
 
