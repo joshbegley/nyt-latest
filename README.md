@@ -1,3 +1,7 @@
+**Post-Trump, What Happens to His War Chest? Utah Offers One Clue.**\
+`A Trump-aligned political group is quietly spending millions to help state Republicans have a friendlier House map in 2028 — not in 2026, as with all of his other redistricting efforts.`\
+https://nytimes.com/2025/12/05/us/politics/trump-utah-map-2028-house-seat.html
+
 **The Philippines, a nation without winters, might make the Olympics in curling**\
 `The Swiss-Filipino team aiming to lead the Southeast Asian nation to an Olympic curling appearance call their journey "curl runnings."`\
 https://nytimes.com/athletic/6865228/2025/12/05/philippine-mens-curling-winter-olympics-qualifiers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6865555/2025/12/05/heat-vs-magic-stream-how-to-watc
 **How to watch Sabres vs. Jets: Time, TV, streaming**\
 `Find out how to watch the Buffalo Sabres play the Winnipeg Jets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6865551/2025/12/05/sabres-vs-jets-stream-how-to-watch-dec-5/
-
-**Video of Boat Strike Shows Survivors Waving Before Fatal Follow-Up Attack**\
-`The new detail further complicates the military’s explanations for its actions during the Sept. 2 strike in the Caribbean Sea.`\
-https://nytimes.com/2025/12/05/us/politics/boat-strike-shows-survivors.html
 
