@@ -1,3 +1,7 @@
+**NFL Week 14 schedule rankings: Top 5 Sunday games with this season's surprising teams**\
+`The AFC South is competitive (good). The AFC North is competitive (bad). Here are Week 14's "hey, look at us, who would've thought?!" games.`\
+https://nytimes.com/athletic/6857546/2025/12/05/nfl-week-14-schedule-bears-packers-colts-jaguars/
+
 **How to watch the Women’s College Cup: 4 schools vying for soccer national title**\
 `TCU plays Florida State in one semifinal. Blue bloods Stanford and Duke face off in the other. The winners meet for the national title.`\
 https://nytimes.com/athletic/6859145/2025/12/05/womens-college-cup-soccer-championship-tv-schedule/
