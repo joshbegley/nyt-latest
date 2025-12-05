@@ -1,3 +1,11 @@
+**Palace's Littlejohn given five-match suspension by the FA after violent tackle**\
+`The midfielder was shown a red card for violent conduct, but the usual three-match suspension was deemed "clearly insufficient".`\
+https://nytimes.com/athletic/6839226/2025/12/05/ruesha-littlejohn-crystal-palace-ban-violent-conduct/
+
+**Trump Wants Venezuela’s Leader to Go. Here’s Who Could Replace Him.**\
+`Several senior Venezuelan officials and opposition politicians would have a claim to power in a transition, but all would face difficulties.`\
+https://nytimes.com/2025/12/05/world/americas/trump-maduro-venezuela-president.html
+
 **Four fantasy 'busts' that could go nuclear in the playoffs**\
 `Plus, Andy Behrens provides a confidence boost for fantasy managers of Lamar Jackson.`\
 https://nytimes.com/athletic/6865148/2025/12/05/fantasy-football-four-busts-best-playoff-starters/
