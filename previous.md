@@ -1,3 +1,7 @@
+**After 1945, Germany Constrained Its Army. He’s Trying to Revive It.**\
+`Boris Pistorius, Germany’s defense minister, is pushing to expand its military in case tensions with Russia escalate. That’s tricky in a country where the Nazi era casts a long shadow.`\
+https://nytimes.com/2025/12/05/world/europe/germany-military-boris-pistorius-defense-minister.html
+
 **Parenting in the paint: How one NBA power couple juggles parenthood and busy seasons**\
 `Nine years ago, Tori Miller was sending unsolicited scouting reports to NBA GMs. Now, she is the Atlanta Hawks' top scout.`\
 https://nytimes.com/athletic/6856394/2025/12/05/nba-atlanta-hawks-tori-miller-career-family/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6864654/2025/12/05/kings-goals-struggles-blackhawks
 **How Donald Trump became FIFA's 'soccer president' long before World Cup draw**\
 `The relationship between FIFA and the White House has grown remarkably close ahead of Friday's draw at the Kennedy Center`\
 https://nytimes.com/athletic/6861806/2025/12/05/trump-fifa-soccer-president-world-cup-draw-infantino/
-
-**Does Indiana pose a bigger threat to Ohio State than last year?**\
-`Here are four keys and a prediction for the Big Ten title game after a week of watching Indiana film and a season of covering Ohio State.`\
-https://nytimes.com/athletic/6863332/2025/12/05/ohio-state-indiana-football-big-ten-prediction/
 

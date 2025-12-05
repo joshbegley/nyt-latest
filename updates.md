@@ -1,3 +1,7 @@
+**After 1945, Germany Constrained Its Army. He’s Trying to Revive It.**\
+`Boris Pistorius, Germany’s defense minister, is pushing to expand its military in case tensions with Russia escalate. That’s tricky in a country where the Nazi era casts a long shadow.`\
+https://nytimes.com/2025/12/05/world/europe/germany-military-boris-pistorius-defense-minister.html
+
 **How Donald Trump became FIFA's 'soccer president' long before World Cup draw**\
 `The relationship between FIFA and the White House has grown remarkably close ahead of Friday's draw at the Kennedy Center`\
 https://nytimes.com/athletic/6861806/2025/12/05/trump-fifa-soccer-president-world-cup-draw-infantino/
