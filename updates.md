@@ -1,3 +1,7 @@
+**The 6 most absurd things about an absurd ACC title game between Virginia and Duke**\
+`No. 17 Virginia vs. Duke for the ACC title is a strange championship bout. And it gets even stranger the more you look at it.`\
+https://nytimes.com/athletic/6863546/2025/12/05/virginia-duke-acc-championship-game/
+
 **The Kings are struggling to score goals and they're feeling it**\
 `After being limited to one goal again in Thursday’s 2-1 loss to the Chicago Blackhawks, the Kings dropped to 29th in scoring.`\
 https://nytimes.com/athletic/6864654/2025/12/05/kings-goals-struggles-blackhawks-lose/
