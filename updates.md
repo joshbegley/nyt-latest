@@ -1,3 +1,7 @@
+**Air Traffic Control Issue Briefly Grounds Flights at Edinburgh Airport**\
+`The airport, Scotland’s busiest, said it had experienced a technical problem with its air traffic control provider. Many flights into Edinburgh were delayed or diverted.`\
+https://nytimes.com/2025/12/05/world/europe/edinburgh-airport-flights-grounded-uk.html
+
 **Barcelona's Garcia agrees new contract through to 2031**\
 `Garcia's previous deal with the Spanish champions had been due to expire in 2026.`\
 https://nytimes.com/athletic/6526851/2025/12/05/eric-garcia-barcelona-contract/

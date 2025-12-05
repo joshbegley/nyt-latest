@@ -1,40 +1,40 @@
-**Barcelona's Garcia agrees new contract through to 2031**\
-`Garcia's previous deal with the Spanish champions had been due to expire in 2026.`\
-https://nytimes.com/athletic/6526851/2025/12/05/eric-garcia-barcelona-contract/
+**Cowboys' playoff hopes takes big hit in loss to Lions. Can they win out to stay in race?**\
+`A lot contributed to the loss — turnovers, kickoff coverage and Dallas' defense allowed scores on six of the Lions' final seven possessions.`\
+https://nytimes.com/athletic/6864568/2025/12/05/cowboys-playoff-chances-lions-loss-tnf/
 
-**Air Traffic Control Issue Briefly Grounds Flights at Edinburgh Airport**\
-`The airport, Scotland’s busiest, said it had experienced a technical problem with its air traffic control provider. Many flights into Edinburgh were delayed or diverted.`\
-https://nytimes.com/2025/12/05/world/europe/edinburgh-airport-flights-grounded-uk.html
+**Marchenko returns, Johnson awakens in Blue Jackets' shootout win vs. Red Wings**\
+`The two young stars combined for regulation and shootout goals in a roller coaster against the Red Wings.`\
+https://nytimes.com/athletic/6864060/2025/12/05/blue-jackets-marchenko-johnson-shootout-red-wings/
 
-**A Roman holiday bonded Cade Cunningham and Jalen Duren — and it’s paying off for Pistons**\
-`The pair spent time together in Colorado and Dallas, too, but their Rome excursion was on another level.`\
-https://nytimes.com/athletic/6858595/2025/12/05/cade-cunningham-jalen-duren-pistons-travel-rome/
+**Fears Spread Over New ICE Crackdowns, and F.B.I. Makes Arrest in Jan. 6 Bomb Plot**\
+`Plus your Friday news quiz.`\
+https://nytimes.com/2025/12/05/podcasts/the-headlines/ice-crackdowns-jan-6-bomb-plot.html
 
-**Arsenal's Mosquera set for scan on 'complicated' medical injury - Arteta**\
-`Mosquera sustained the injury after landing awkwardly during his side's 2-0 victory over Brentford on Wednesday.`\
-https://nytimes.com/athletic/6859578/2025/12/05/arsenal-news-injury-mosquera-scan-ankle/
+**The USA is cohosting the World Cup, but can the Americans actually win it?**\
+`Logic suggests that ultimate glory is beyond the grasp of the USMNT. That's not stopping the team from dreaming big`\
+https://nytimes.com/athletic/6858922/2025/12/05/can-usa-win-2026-world-cup/
 
-**AFC North Whiparound: Could the Bengals, Ravens or Steelers be a dangerous playoff team?**\
-`A healthy Burrow, that collection of weapons and an improving offensive line makes the Bengals the division's most dangerous team.`\
-https://nytimes.com/athletic/6862623/2025/12/05/afc-north-champion-bengals-ravens-playoff-run/
+**‘I will be back’: How Alex Steeves turned an AHL assignment into an NHL job**\
+`Steeves, who started the year in Providence, has scored five goals in his last five games with the Bruins.`\
+https://nytimes.com/athletic/6864107/2025/12/05/bruins-alex-steeves-nhl-player-ahl/
 
-**Who hired the best American Conference coach? Sumrall vs. Silverfield vs. Golesh vs. Morris**\
-`How Florida's Jon Sumrall, Arkansas' Ryan Silverfield, Auburn's Alex Golesh and Oklahoma State's Eric Morris stack up as coaching hires.`\
-https://nytimes.com/athletic/6863077/2025/12/05/american-conference-championship-coach-hires/
+**The Clippers' Chris Paul saga isn't as strange as you may think**\
+`How will the Clippers handle the fallout of Paul's departure? "I think you own it," Clippers president Lawrence Frank said. `\
+https://nytimes.com/athletic/6861118/2025/12/05/chris-paul-clippers-lawrence-frank-tyronn-lue/
 
-**The Jets are on a historic interception-less streak. Why?**\
-`They’ve already set an NFL record for most games without an interception to start a season.`\
-https://nytimes.com/athletic/6863385/2025/12/05/new-york-jets-no-interception-streak/
+**Limited offense, losing to backup goalies — more effort from Blues may be asking a lot**\
+`The Blues have scored two goals or fewer in nine of their last 10 games, including a 5-2 loss to the Boston Bruins Thursday.`\
+https://nytimes.com/athletic/6859211/2025/12/05/blues-lose-bruins-offense-effort/
 
-**It turns out, the Steelers have more tight ends than they know what to do with**\
-`Pat Freiermuth and Jonnu Smith haven't been on the field much considering their high-end salaries.`\
-https://nytimes.com/athletic/6863952/2025/12/05/pittsburgh-steelers-tight-ends-pat-freiermuth-jonnu-smith/
+**Connor Bedard stays red hot as maturing Blackhawks close out the Kings: Game observations**\
+`Any goal’s a good goal — and the Blackhawks’ 20-year-old superstar can’t stop scoring them.`\
+https://nytimes.com/athletic/6864405/2025/12/05/blackhawks-beat-kings-connor-bedard/
 
-**Winter Meetings wish list: Kyle Tucker to the Yankees, Tarik Skubal to the Dodgers and more**\
-`Cody Bellinger to Pittsburgh, Kyle Schwarber to Cincinnati and Hunter Greene to Boston are just some of the wishes for this year's meetings.`\
-https://nytimes.com/athletic/6859043/2025/12/05/mlb-winter-meetings-wish-list-kyle-tucker-tarik-skubal-trades-signings-awards/
+**Brandon Ingram, Raptors teammates have miles to go in their offensive partnership**\
+`After Ingram started the year on a heater from the midrange, he has tailed off over the last little while.`\
+https://nytimes.com/athletic/6864183/2025/12/05/raptors-loss-lakers-brandon-ingram-offense/
 
-**Derek Bender, prospect accused of giving away team's pitches, reinstated after discipline**\
-`Bender, a catcher, was accused of telling opposing hitters what pitches were coming so that his team's long season could end early. `\
-https://nytimes.com/athletic/6863480/2025/12/05/derek-bender-catcher-pitch-tipping-discipline-reinstatement/
+**Double play: UCLA softball All-American Megan Grant taking her shot with Bruins basketball**\
+`Grant's path to becoming a two-sport college athlete started with a lighthearted comment. Then it became reality.`\
+https://nytimes.com/athletic/6834151/2025/12/05/megan-grant-ucla-softball-womens-basketball/
 
