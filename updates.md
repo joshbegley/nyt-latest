@@ -1,3 +1,23 @@
+**How to get tickets to World Cup 2026 matches in Dallas**\
+`AT&T Stadium will host nine games at next summer's men's soccer World Cup.`\
+https://nytimes.com/athletic/6841794/2025/12/05/world-cup-2026-tickets-dallas-draw-matches/
+
+**How to get tickets to World Cup 2026 matches in Houston**\
+`NRG Stadium will host seven games at next summer's men's soccer World Cup.`\
+https://nytimes.com/athletic/6841767/2025/12/05/world-cup-2026-tickets-houston-draw-matches/
+
+**How to get tickets to World Cup 2026 matches in Kansas City**\
+`Arrowhead Stadium will host six games at next summer's men's soccer World Cup.`\
+https://nytimes.com/athletic/6841746/2025/12/05/world-cup-2026-tickets-kansas-city-draw-matches/
+
+**How to get tickets to World Cup 2026 matches in Miami**\
+`Hard Rock Stadium will host seven games at next summer's men's soccer World Cup.`\
+https://nytimes.com/athletic/6841672/2025/12/05/world-cup-2026-tickets-miami-draw-matches/
+
+**Netflix secures deal to acquire Warner Bros. Discovery studios, HBO Max**\
+`Paramount's ambitions for a sports-TV superpower to rival Disney's ESPN are tabled — at least for now.`\
+https://nytimes.com/athletic/6865229/2025/12/05/netflix-wbd-warner-bros-discovery-hbo-max/
+
 **Palace's Littlejohn given five-match suspension by the FA after violent tackle**\
 `The midfielder was shown a red card for violent conduct, but the usual three-match suspension was deemed "clearly insufficient".`\
 https://nytimes.com/athletic/6839226/2025/12/05/ruesha-littlejohn-crystal-palace-ban-violent-conduct/
