@@ -1,40 +1,40 @@
-**The Year in Lists**\
-`The end of year recaps can be dizzying. But they’re also full of gold.`\
-https://nytimes.com/2025/12/05/briefing/the-year-in-lists.html
+**The Ashes Briefing: Advantage Australia as England let chances slip through their fingers**\
+`The home side moved into the lead on another madcap day of cricket in Brisbane as England's bowling attack strained to make in-roads`\
+https://nytimes.com/athletic/6862038/2025/12/05/ashes-australia-england-smith-labuschagne-carse/
 
-**Elon Musk’s X Hit With $140 Million Fine in Europe**\
-`The case over online transparency has become a flashpoint between the European Union and the Trump administration.`\
-https://nytimes.com/2025/12/05/technology/eu-elon-musk-x-140-million-fine.html
+**How Dan Vladar's offseason prepared him to step up with the Flyers**\
+`Vladar, who signed as a free agent with Philadelphia in the summer, has reached another level in goal this season.`\
+https://nytimes.com/athletic/6863251/2025/12/05/philadelphia-flyers-goalie-dan-vladar-nhl/
 
-**Myles Garrett, Jonathan Taylor, Jaxson Dart among NFL awards predictions: Nguyen**\
-`What 13 weeks of film and a deep dive into stats show as players and coaches enter the stretch run to earn honors.`\
-https://nytimes.com/athletic/6860037/2025/12/05/nfl-awards-predictions-2025-drake-maye-myles-garrett/
+**Kirby Smart, Kalen DeBoer and the history of rematches in college football**\
+`Saturday, Georgia gets another shot in the SEC championship. Smart is 3-0 as a head coach when he's had a rematch game. But so is DeBoer.`\
+https://nytimes.com/athletic/6862673/2025/12/05/kirby-smart-kalen-deboer-history-cfb-rematches/
 
-**Kyle Schwarber is still unsigned. Could the Reds lure the Ohio-born slugger?**\
-`If the Reds did land Schwarber, it would likely be the biggest addition to the team since trading for Ken Griffey Jr. before 2000.`\
-https://nytimes.com/athletic/6863724/2025/12/05/cincinnati-reds-kyle-schwarber-emilio-pagan-pursuit/
+**The Athletic’s Friday football quiz question #84**\
+`Can you answer the weekly poser plucked from deep inside The Athletic's trivia vaults?`\
+https://nytimes.com/athletic/6862663/2025/12/05/the-athletics-friday-football-quiz-question-84/
 
-**Bills' offensive tackles take positive turn for Bengals; new Joey Bosa, Dalton Kincaid concerns**\
-`The matchup against the Bengals has the potential to be a high-scoring game.`\
-https://nytimes.com/athletic/6863199/2025/12/05/buffalo-bills-bengals-injuries-joey-bosa-dalton-kincaid/
+**Canada Olympic roster debate: Bedard's role, depth on defense and who starts in goal?**\
+`Here's who made the cut for Team Canada at the 2026 Olympics on Friday's episode of "The Athletic Hockey Show."`\
+https://nytimes.com/athletic/6862503/2025/12/05/canada-olympics-roster-debate-connor-bedard-podcast/
 
-**Maresca regrets not starting Acheampong vs. Leeds, loss 'not about experience'**\
-`Maresca is adamant Chelsea's lack of experience was not a factor in the way they struggled to compete`\
-https://nytimes.com/athletic/6864936/2025/12/05/josh-acheampong-maresca-chelsea-leeds/
+**The coaching carousel is slowing down: How will the new hires fare on the recruiting trail?**\
+`There are different ways to construct a roster in today's landscape, but recruiting top high school talent will always be vital. `\
+https://nytimes.com/athletic/6862682/2025/12/05/new-college-football-coaches-recruiting/
 
-**Putin Basks in Praise From Modi on India Visit**\
-`Prime Minister Narendra Modi lauded President Vladimir V. Putin of Russia, underlining the close personal relationship between the leaders and their countries’ longtime friendship.`\
-https://nytimes.com/2025/12/05/world/asia/putin-india-modi-trade-praise.html
+**Newcastle 'can spend' in January, says Ross Wilson**\
+`Full-backs and midfielders are the immediate priority, with AZ's Kees Smit greatly admired, and a young forward is also being sought.`\
+https://nytimes.com/athletic/6861692/2025/12/05/newcastle-transfer-news-january/
 
-**Who's better, Notre Dame or Miami? We asked the coaches who played both**\
-`The Hurricanes and Fighting Irish will find out their College Football Playoff fates during the bracket selection this Sunday.`\
-https://nytimes.com/athletic/6863703/2025/12/05/notre-dame-miami-who-is-better-analysis/
+**Records, draft picks, playoffs: What’s at stake for 49ers with four games to go**\
+`Christian McCaffrey has a chance for the record books and the 49ers have a shot, albeit a narrow one, of landing the top playoff seed.`\
+https://nytimes.com/athletic/6862976/2025/12/05/49ers-records-draft-picks-playoffs/
 
-**How private Sarina Wiegman handled the very public Mary Earps fallout**\
-`If Sarina Wiegman and England were affected by the Mary Earps fallout they did not show it during their homecoming friendlies`\
-https://nytimes.com/athletic/6858959/2025/12/05/sarina-wiegman-mary-earps-hannah-hampton-analysis/
+**Does high school recruiting still matter? Data — and coaches — say it does**\
+`In the revenue-sharing era, high school recruiting is a more cost-effective way to build a college football roster.`\
+https://nytimes.com/athletic/6863114/2025/12/05/college-football-recruiting-high-school-coaches-data/
 
-**Men's college basketball watch guide: Duke-MSU, Auburn-Arizona highlight weekend lineup**\
-`What a run for college basketball's nonconference schedule. Iowa State-Purdue and Duke-Michigan State are two top-10 matchups this weekend.`\
-https://nytimes.com/athletic/6862485/2025/12/05/college-basketball-duke-michigan-state-auburn-arizona-tv/
+**Giants trade primer: Find the right deals on a tighter budget**\
+`The Giants have said they aren't spending at the top of the free agent market so trades are their most likely avenue for improving.`\
+https://nytimes.com/athletic/6862942/2025/12/05/sf-giants-offseason-trade-primer-joe-ryan-mackenzie-gore/
 

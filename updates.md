@@ -1,3 +1,11 @@
+**The Year in Lists**\
+`The end of year recaps can be dizzying. But they’re also full of gold.`\
+https://nytimes.com/2025/12/05/briefing/the-year-in-lists.html
+
+**Elon Musk’s X Hit With $140 Million Fine in Europe**\
+`The case over online transparency has become a flashpoint between the European Union and the Trump administration.`\
+https://nytimes.com/2025/12/05/technology/eu-elon-musk-x-140-million-fine.html
+
 **Myles Garrett, Jonathan Taylor, Jaxson Dart among NFL awards predictions: Nguyen**\
 `What 13 weeks of film and a deep dive into stats show as players and coaches enter the stretch run to earn honors.`\
 https://nytimes.com/athletic/6860037/2025/12/05/nfl-awards-predictions-2025-drake-maye-myles-garrett/
