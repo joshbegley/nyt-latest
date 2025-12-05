@@ -1,40 +1,40 @@
-**Twins not planning to trade stars like Byron Buxton, Joe Ryan this winter: Sources**\
-`The Twins traded away several top players in 2025 but plan to build around their current core and compete for the AL Central title in 2026.`\
-https://nytimes.com/athletic/6866003/2025/12/05/minnesota-twins-offseason-plans-byron-buxton-joe-ryan/
+**Michael Jordan testifies in NASCAR antitrust trial: 'I wasn't afraid' to challenge them**\
+`The NBA legend and 23XI Racing co-owner laid out his reasons for taking NASCAR to court in an hour-long testimony Friday.`\
+https://nytimes.com/athletic/6865970/2025/12/05/michael-jordan-nascar-trial-testimony/
 
-**Frank Gehry: 12 Essential, Stunning Projects**\
-`A singular genius, Gehry redefined architecture with joyful buildings like the Walt Disney Concert Hall in Los Angeles and the Guggenheim Museum Bilbao.`\
-https://nytimes.com/2025/12/05/arts/design/frank-gehry-buildings-photos.html
+**Guide to Group L at World Cup 2026**\
+`Everything you need to know about Group L at next summer's tournament`\
+https://nytimes.com/athletic/6842265/2025/12/05/group-l-guide-world-cup-2026/
 
-**‘Whale Time’ With Melissa McCarthy, Colin Jost and the Cast of ‘S.N.L.’**\
-`It was all gratitude for the prehistoric beasts that once roamed the earth at the American Museum of Natural History gala in New York.`\
-https://nytimes.com/2025/12/05/style/natural-history-museum-gala-melissa-mccarthy-snl-cast.html
+**Guide to Group J at World Cup 2026**\
+`Everything you need to know about Group J at next summer's tournament`\
+https://nytimes.com/athletic/6842266/2025/12/05/group-j-guide-world-cup-2026/
 
-**It all comes down to Abu Dhabi. Plus: Comparing the contenders' chances for the F1 title**\
-`The 2025 F1 winner will be crowned in Abu Dhabi. Welcome to The Athletic's F1 newsletter.`\
-https://nytimes.com/athletic/6865980/2025/12/05/abu-dhabi-gp-f1-title-prime-tire/
+**Guide to Group I at World Cup 2026**\
+`Everything you need to know about Group I at next summer's tournament`\
+https://nytimes.com/athletic/6842267/2025/12/05/group-i-guide-world-cup-2026/
 
-**Judge Approves Release of Epstein Grand Jury Documents in Florida Case**\
-`A federal judge in Florida ordered the release of previously sealed testimony, after legislation passed last month authorizing the disclosure.`\
-https://nytimes.com/2025/12/05/us/politics/florida-epstein-grand-jury-documents.html
+**Guide to Group F at World Cup 2026**\
+`Everything you need to know about Group F at next summer's tournament`\
+https://nytimes.com/athletic/6842262/2025/12/05/group-f-guide-world-cup-2026/
 
-**All of the Most Beautiful Wrapping Paper the Internet Has to Offer**\
-`Text by Mari Uyehara`\
-https://nytimes.com/card/2025/12/05/smarter-living/wirecutter/
+**Guide to Group H at World Cup 2026**\
+`Everything you need to know about Group H at next summer's tournament`\
+https://nytimes.com/athletic/6842264/2025/12/05/group-h-guide-world-cup-2026/
 
-**Library Agency Reinstates Grants Canceled by Trump Administration**\
-`The Institute of Museum and Library Services restored the funding after a federal court ruled that moves to dismantle the agency were unlawful.`\
-https://nytimes.com/2025/12/05/arts/imls-library-grants-trump.html
+**Guide to Group A at World Cup 2026**\
+`Everything you need to know about Group A at next summer's tournament`\
+https://nytimes.com/athletic/6842216/2025/12/05/group-a-guide-world-cup-2026/
 
-**European powers are the favorites in 2026 World Cup odds after draw**\
-`The World Cup draw took place on Friday and Spain is still the favorite to lift the trophy after its Euro 2024 triumph.`\
-https://nytimes.com/athletic/6865622/2025/12/05/2026-world-cup-odds-spain-england-france/
+**Guide to Group G at World Cup 2026**\
+`Everything you need to know about Group G at next summer's tournament`\
+https://nytimes.com/athletic/6842261/2025/12/05/group-g-guide-world-cup-2026/
 
-**Flashback: Your Weekly History Quiz, Dec. 6, 2025**\
-`Can you sort 8 historical events?`\
-https://nytimes.com/interactive/2025/12/05/upshot/flashback.html
+**Guide to Group E at World Cup 2026**\
+`Everything you need to know about Group E at next summer's tournament`\
+https://nytimes.com/athletic/6842263/2025/12/05/group-e-guide-world-cup-2026/
 
-**A group-by-group guide to the teams at the World Cup**\
-`How do the teams play? Who is their star player? What can we expect from them when the tournament starts?`\
-https://nytimes.com/athletic/6839351/2025/12/05/world-cup-draw-team-guides/
+**Guide to Group D at World Cup 2026**\
+`Everything you need to know about Group D at next summer's tournament`\
+https://nytimes.com/athletic/6842260/2025/12/05/group-d-guide-world-cup-2026/
 
