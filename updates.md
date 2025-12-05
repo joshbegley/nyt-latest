@@ -1,3 +1,19 @@
+**How to buy 2026 World Cup tickets after the draw sets the field**\
+`Getting your hands on 2026 World Cup tickets can get a little complex, but we're here to answer any and all questions about the process`\
+https://nytimes.com/athletic/6860884/2025/12/05/2026-world-cup-tickets-how-to-buy-prices/
+
+**Mainoo ready to leave Manchester United on loan in January**\
+`United are expected to wait until after the AFCON finishes in the middle of the winter window to make a decision on Mainoo's future.`\
+https://nytimes.com/athletic/6864742/2025/12/05/kobbie-mainoo-manchester-united-transfer-loan-january/
+
+**Destiny Udogie: 'It was not something I would wish on anyone. It was a shock.'**\
+`The Spurs fullback on allegedly being threatened with a firearm, May's Europa League final win, and his different role this season`\
+https://nytimes.com/athletic/6864730/2025/12/05/destiny-udogie-interview/
+
+**Does Indiana pose a bigger threat to Ohio State than last year?**\
+`Here are four keys and a prediction for the Big Ten title game after a week of watching Indiana film and a season of covering Ohio State.`\
+https://nytimes.com/athletic/6863332/2025/12/05/ohio-state-indiana-football-big-ten-prediction/
+
 **Trump Administration Says Europe Faces ‘Civilizational Erasure’**\
 `America’s goal should be “to help Europe correct its current trajectory,” the administration said in its new National Security Strategy.`\
 https://nytimes.com/2025/12/05/world/europe/trump-europe.html
