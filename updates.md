@@ -1,3 +1,7 @@
+**Four fantasy 'busts' that could go nuclear in the playoffs**\
+`Plus, Andy Behrens provides a confidence boost for fantasy managers of Lamar Jackson.`\
+https://nytimes.com/athletic/6865148/2025/12/05/fantasy-football-four-busts-best-playoff-starters/
+
 **The Pittsburgh Symphony Plays How an Orchestra Should Sound**\
 `Under its music director, Manfred Honeck, the ensemble returned to Carnegie Hall for the first time in over a decade, flying in on a high.`\
 https://nytimes.com/2025/12/05/arts/music/pittsburgh-symphony-manfred-honeck.html

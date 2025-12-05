@@ -1,3 +1,7 @@
+**Trump Wants Venezuela’s Leader to Go. Here’s Who Could Replace Him.**\
+`Several senior Venezuelan officials and opposition politicians would have a claim to power in a transition, but all would face difficulties.`\
+https://nytimes.com/2025/12/05/world/americas/trump-maduro-venezuela-president.html
+
 **Four fantasy 'busts' that could go nuclear in the playoffs**\
 `Plus, Andy Behrens provides a confidence boost for fantasy managers of Lamar Jackson.`\
 https://nytimes.com/athletic/6865148/2025/12/05/fantasy-football-four-busts-best-playoff-starters/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6863799/2025/12/05/ducks-ville-husso-goaltending-qu
 **Savings Accounts for Disabled People Are Expanding. Do You Qualify?**\
 `Starting next year, people who became disabled by age 46 will be eligible to open ABLE accounts. The accounts have been slow to catch on, partly because the current age limit is 26.`\
 https://nytimes.com/2025/12/05/your-money/able-disability-savings-accounts.html
-
-**The Markets Are Temperamental. Understand Your Risks.**\
-`Shifting expectations of a Fed rate cut reflect underlying uncertainty about politics and the economy. Here are some essentials for managing risk in investing.`\
-https://nytimes.com/2025/12/05/business/markets-investing-stocks-bonds-risk.html
 
