@@ -10,6 +10,10 @@ https://nytimes.com/athletic/6865297/2025/12/05/nhl-power-rankings-capitals-leap
 `The Athletic reported disjointed performances this season had highlighted wider cultural and structural issues with the Arsenal women set-up`\
 https://nytimes.com/athletic/6865110/2025/12/05/renee-slegers-arsenal-women-squad-unrest/
 
+**Bowl projections: The Xbox Bowl joins the party, and Miami gains on Notre Dame**\
+`The outcome of Alabama's SEC title game against Georgia on Saturday could reorder the CFP at-large spots and SEC bowl slots.`\
+https://nytimes.com/athletic/6853423/2025/12/05/college-football-projections-bowl-playoffs-matchups/
+
 **Here’s Our Most Popular Recipe of 2025**\
 `Zaynab Issa’s smashed beef kebab with cucumber yogurt is, naturally, a smash with our readers: “Looking for an excuse to make this again A.S.A.P.”`\
 https://nytimes.com/2025/12/05/dining/heres-our-most-popular-recipe-of-2025.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/05/business/media/elon-musk-mario-nawfal-x.html
 **This time, the Bucks have different buttons to push with Giannis out**\
 `Milwaukee "can't catch a break on health," but here's how it could stem the tide with its best player sidelined again.`\
 https://nytimes.com/athletic/6863817/2025/12/05/giannis-antetokounmpo-bucks-kevin-porter-ryan-rollins/
-
-**Olympic-sized anxiety over the ice in Milan. Plus: NHL's most-improved players**\
-`We know the playing surface will be smaller when the Olympics begin in February, but will the arena even be ready?`\
-https://nytimes.com/athletic/6865369/2025/12/05/olympics-ice-hockey-arena-nhl-players/
 
