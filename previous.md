@@ -1,3 +1,15 @@
+**Twelve things we learnt from the World Cup draw ft. deadpan Shaq, revenge and a GOAT derby?**\
+`While it was an often surreal World Cup draw, there are some things we learnt from the Kennedy Center. Tim Spiers breaks them down...`\
+https://nytimes.com/athletic/6865989/2025/12/05/world-cup-draw-what-we-learnt/
+
+**Jewelry That Transports You to the Natural World**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/emerald-jewelry
+
+**Frank Gehry, the Disrupter, Opened Their Imaginations**\
+`Architects, artists, clients and partners assess his life and impact over eight decades.`\
+https://nytimes.com/2025/12/05/arts/design/frank-gehry-appraisal-disney-hall-bilbao-los-angeles.html
+
 **The Supreme Court, Once Wary of Partisan Gerrymandering, Goes All In**\
 `The court’s conservative majority said that Texas’ asserted political motives justified letting the state use voting maps meant to disadvantage Democrats in the midterms.`\
 https://nytimes.com/2025/12/05/us/politics/supreme-court-partisan-gerrymandering.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6866233/2025/12/05/world-cup-draw-trump-village-peo
 **Bournemouth's Semenyo ready for 'next step' in club career - Ghana coach Addo**\
 `The Athletic reported last month that the 25-year-old has a £65million release clause, which is only active until a specific date in the Jan`\
 https://nytimes.com/athletic/6866322/2025/12/05/antoine-semenyo-transfer-bournemouth-january/
-
-**Linda McMahon’s School Visit, Sponsored by Conservatives, Draws Protest**\
-`The secretary of education is barnstorming the country, talking to schoolchildren about civics and promoting patriotism. Critics claim the lessons have been crafted by partisan and religious groups.`\
-https://nytimes.com/2025/12/05/nyregion/linda-mcmahon-history-rocks-school-tour.html
-
-**gws-the-nutcracker-new-york-city-ballet-fritz-brat**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/the-nutcracker-new-york-city-ballet-fritz-brat
-
-**As Bongino Celebrates Arrest in Pipe Bomb Case, Others on the Right Remain Skeptical**\
-`Some activists have lashed out, in a reprise of the backlash over the unsuccessful effort by Trump appointees to shut down the Epstein investigation.`\
-https://nytimes.com/2025/12/05/us/politics/dan-bongino-pipe-bomb-arrest.html
 

@@ -1,3 +1,15 @@
+**Twelve things we learnt from the World Cup draw ft. deadpan Shaq, revenge and a GOAT derby?**\
+`While it was an often surreal World Cup draw, there are some things we learnt from the Kennedy Center. Tim Spiers breaks them down...`\
+https://nytimes.com/athletic/6865989/2025/12/05/world-cup-draw-what-we-learnt/
+
+**Jewelry That Transports You to the Natural World**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/emerald-jewelry
+
+**Frank Gehry, the Disrupter, Opened Their Imaginations**\
+`Architects, artists, clients and partners assess his life and impact over eight decades.`\
+https://nytimes.com/2025/12/05/arts/design/frank-gehry-appraisal-disney-hall-bilbao-los-angeles.html
+
 **The Supreme Court, Once Wary of Partisan Gerrymandering, Goes All In**\
 `The court’s conservative majority said that Texas’ asserted political motives justified letting the state use voting maps meant to disadvantage Democrats in the midterms.`\
 https://nytimes.com/2025/12/05/us/politics/supreme-court-partisan-gerrymandering.html

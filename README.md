@@ -1,3 +1,7 @@
+**Tottenham's Frank urges patience with summer signing Simons**\
+`The head coach said the north London club are trying to become a "well-oiled engine that's impossible to stop".`\
+https://nytimes.com/athletic/6864837/2025/12/05/xavi-simons-tottenham-hotspur-frank-belief/
+
 **Twelve things we learnt from the World Cup draw ft. deadpan Shaq, revenge and a GOAT derby?**\
 `While it was an often surreal World Cup draw, there are some things we learnt from the Kennedy Center. Tim Spiers breaks them down...`\
 https://nytimes.com/athletic/6865989/2025/12/05/world-cup-draw-what-we-learnt/
@@ -30,11 +34,7 @@ https://nytimes.com/2025/12/05/world/faberge-pendant-swallowed-recovered.html
 `The A's aren't shopping for high-priced solutions to their second base void and Luis Arraez may be a tough fit for the Rangers.`\
 https://nytimes.com/athletic/6866340/2025/12/05/mlb-hot-stove-rumors-sandy-alcantara-bo-bichette-edward-cabrera-ryan-weathers/
 
-**Trump, the Village People and some football: Welcome to FIFA’s carnival of cringe**\
+**Trump, the Village People, and some football: Welcome to FIFA’s carnival of cringe**\
 `A bizarre World Cup fever dream played out in Washington DC, memorable for all the wrong reasons`\
 https://nytimes.com/athletic/6866233/2025/12/05/world-cup-draw-trump-village-people/
-
-**Bournemouth's Semenyo ready for 'next step' in club career - Ghana coach Addo**\
-`The Athletic reported last month that the 25-year-old has a £65million release clause, which is only active until a specific date in the Jan`\
-https://nytimes.com/athletic/6866322/2025/12/05/antoine-semenyo-transfer-bournemouth-january/
 
