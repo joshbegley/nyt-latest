@@ -1,3 +1,11 @@
+**Judge Approves Release of Epstein Grand Jury Documents in Florida Case**\
+`A federal judge in Florida ordered the release of previously sealed testimony, after legislation passed last month authorizing the disclosure.`\
+https://nytimes.com/2025/12/05/us/politics/florida-epstein-grand-jury-documents.html
+
+**All of the Most Beautiful Wrapping Paper the Internet Has to Offer**\
+`Text by Mari Uyehara`\
+https://nytimes.com/card/2025/12/05/smarter-living/wirecutter/
+
 **Library Agency Reinstates Grants Canceled by Trump Administration**\
 `The Institute of Museum and Library Services restored the funding after a federal court ruled that moves to dismantle the agency were unlawful.`\
 https://nytimes.com/2025/12/05/arts/imls-library-grants-trump.html

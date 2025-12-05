@@ -1,3 +1,15 @@
+**Frank Gehry: 12 Essential, Stunning Projects**\
+`A singular genius, Gehry redefined architecture with joyful buildings like the Walt Disney Concert Hall in Los Angeles and the Guggenheim Museum Bilbao.`\
+https://nytimes.com/2025/12/05/arts/design/frank-gehry-buildings-photos.html
+
+**‘Whale Time’ With Melissa McCarthy, Colin Jost and the Cast of ‘S.N.L.’**\
+`It was all gratitude for the prehistoric beasts that once roamed the earth at the American Museum of Natural History gala in New York.`\
+https://nytimes.com/2025/12/05/style/natural-history-museum-gala-melissa-mccarthy-snl-cast.html
+
+**It all comes down to Abu Dhabi. Plus: Comparing the contenders' chances for the F1 title**\
+`The 2025 F1 winner will be crowned in Abu Dhabi. Welcome to The Athletic's F1 newsletter.`\
+https://nytimes.com/athletic/6865980/2025/12/05/abu-dhabi-gp-f1-title-prime-tire/
+
 **Judge Approves Release of Epstein Grand Jury Documents in Florida Case**\
 `A federal judge in Florida ordered the release of previously sealed testimony, after legislation passed last month authorizing the disclosure.`\
 https://nytimes.com/2025/12/05/us/politics/florida-epstein-grand-jury-documents.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6839351/2025/12/05/world-cup-draw-team-guides/
 **College football conference title game model-projected scores**\
 `Austin Mock's model has projected scores for all nine college football conference championship games.`\
 https://nytimes.com/athletic/6865849/2025/12/05/college-football-conference-title-game-projected-scores-model/
-
-**Mamdani Woos Wealthy Donors Alongside Grassroots Givers for Transition**\
-`Mayor-elect Zohran Mamdani has turned to crypto kings, movie stars and an oil heir, among others, to help reach his $4 million goal to fund his transition and Jan. 1 inauguration.`\
-https://nytimes.com/2025/12/05/nyregion/mamdani-transition-fund-raisers.html
-
-**Frank O. Gehry, Titan of Architecture, Is Dead at 96**\
-`He burst onto the scene with an attention-getting renovation of his Southern California home before going on to design some of the world’s most recognizable buildings.`\
-https://nytimes.com/2025/12/05/arts/design/frank-gehry-dead.html
-
-**Supreme Court Agrees to Review Trump Order Restricting Birthright Citizenship**\
-`The administration asked the justices to uphold an executive order ending birthright citizenship after lower courts ruled it violated the Constitution.`\
-https://nytimes.com/2025/12/05/us/politics/supreme-court-trump-birthright-citizenship.html
 
