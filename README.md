@@ -1,3 +1,11 @@
+**Library Agency Reinstates Grants Canceled by Trump Administration**\
+`The Institute of Museum and Library Services restored the funding after a federal court ruled that moves to dismantle the agency were unlawful.`\
+https://nytimes.com/2025/12/05/arts/imls-library-grants-trump.html
+
+**European powers are the favorites in 2026 World Cup odds after draw**\
+`The World Cup draw took place on Friday and Spain is still the favorite to lift the trophy after its Euro 2024 triumph.`\
+https://nytimes.com/athletic/6865622/2025/12/05/2026-world-cup-odds-spain-england-france/
+
 **Flashback: Your Weekly History Quiz, Dec. 6, 2025**\
 `Can you sort 8 historical events?`\
 https://nytimes.com/interactive/2025/12/05/upshot/flashback.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6865807/2025/12/05/roy-kramer-sec-commissioner-dies
 **Smoothies, milkshakes and soup: McAvoy loses almost 20 pounds after fracturing his jaw**\
 `McAvoy is cleared to train and practice, but it's a challenge to regain strength and weight while not eating solid food.`\
 https://nytimes.com/athletic/6865691/2025/12/05/bruins-charlie-mcavoy-jaw-fracture-weight-loss/
-
-**Marine Veteran of Iraq War Is Chosen to Lead Guantánamo Defense Teams**\
-`Col. Johnathan H. Vaughn, who joined the corps before 9/11, was selected as judges return to Guantánamo Bay.`\
-https://nytimes.com/2025/12/05/us/politics/guantanamo-defense-teams.html
-
-**England drawn to play Croatia, Panama, Ghana at 2026 World Cup**\
-`England won all eight of their qualifying matches without conceding a goal.`\
-https://nytimes.com/athletic/6854701/2025/12/05/world-cup-draw-england-group-schedule-fixtures/
 
