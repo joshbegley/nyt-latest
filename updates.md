@@ -1,3 +1,7 @@
+**LSU secures Lamar Brown, top recruit who had said he would wait to sign**\
+`Securing the commitment of the No. 2 recruit in the country is a big win for Lane Kiffin just days into his LSU tenure.`\
+https://nytimes.com/athletic/6866292/2025/12/05/lsu-lamar-brown-recruit-lane-kiffin/
+
 **FIFA President Awards Trump With Soccer Body’s First Peace Prize**\
 `Not long after President Trump missed out on the Nobel Peace Prize, his friend and FIFA president, Gianni Infantino, had his organization establish its own.`\
 https://nytimes.com/video/us/politics/100000010568678/fifa-trump-peace-prize.html
