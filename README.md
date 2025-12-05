@@ -1,3 +1,7 @@
+**Man United keep giving away leads - are Amorim's substitutions part of the problem?**\
+`Is Manchester United's coach being too conservative in which players he sends on when his team is ahead?`\
+https://nytimes.com/athletic/6864032/2025/12/05/manchester-united-subs-ruben-amorim/
+
 **Soungoutou Magassa emerges from the margins to take centre stage at West Ham**\
 `The French midfield struggled to get in the team until Nuno Espirito Santo took over. Now he has become integral`\
 https://nytimes.com/athletic/6862659/2025/12/05/soungoutou-magassa-emerges-from-the-margins-to-take-centre-stage-at-west-ham/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6864270/2025/12/05/lebron-james-scoring-streak-ends
 **Warner Bros. Discovery Said to Be in Exclusive Talks With Netflix**\
 `Netflix would acquire Warner television and film studios as well as HBO Max in a deal that would bulk up the world’s biggest paid streaming service.`\
 https://nytimes.com/2025/12/05/business/warner-brothers-discovery-netflix.html
-
-**The New York Times in Print for Friday, Dec. 5, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/12/05/todays-new-york-times
 
