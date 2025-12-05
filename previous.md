@@ -30,11 +30,11 @@ https://nytimes.com/athletic/6865069/2025/12/05/how-to-watch-the-2026-world-cup-
 `After being limited to one goal again in Thursday’s 2-1 loss to the Chicago Blackhawks, the Kings dropped to 29th in scoring.`\
 https://nytimes.com/athletic/6864654/2025/12/05/kings-goals-struggles-blackhawks-lose/
 
+**How Donald Trump became FIFA's 'soccer president' long before World Cup draw**\
+`The relationship between FIFA and the White House has grown remarkably close ahead of Friday's draw at the Kennedy Center`\
+https://nytimes.com/athletic/6861806/2025/12/05/trump-fifa-soccer-president-world-cup-draw-infantino/
+
 **Does Indiana pose a bigger threat to Ohio State than last year?**\
 `Here are four keys and a prediction for the Big Ten title game after a week of watching Indiana film and a season of covering Ohio State.`\
 https://nytimes.com/athletic/6863332/2025/12/05/ohio-state-indiana-football-big-ten-prediction/
-
-**The fog and bass of Club Dub: How the Broncos have partied through 9 straight wins**\
-`Zach Allen was added to the injury report Thursday with a calf injury. The Broncos have also been without NT D.J. Jones (ankle) this week.`\
-https://nytimes.com/athletic/6863307/2025/12/05/denver-broncos-club-dub-winning-streak/
 

@@ -1,3 +1,7 @@
+**How Donald Trump became FIFA's 'soccer president' long before World Cup draw**\
+`The relationship between FIFA and the White House has grown remarkably close ahead of Friday's draw at the Kennedy Center`\
+https://nytimes.com/athletic/6861806/2025/12/05/trump-fifa-soccer-president-world-cup-draw-infantino/
+
 **Parenting in the paint: How one NBA power couple juggles parenthood and busy seasons**\
 `Nine years ago, Tori Miller was sending unsolicited scouting reports to NBA GMs. Now, she is the Atlanta Hawks' top scout.`\
 https://nytimes.com/athletic/6856394/2025/12/05/nba-atlanta-hawks-tori-miller-career-family/
