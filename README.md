@@ -1,3 +1,11 @@
+**England's Tuchel say he may keep substitutes indoors during World Cup to avoid heat**\
+`A recent report found that 10 of the 16 venues at the tournament are at "very high risk of experiencing extreme heat stress conditions." `\
+https://nytimes.com/athletic/6864620/2025/12/05/thomas-tuchel-england-heat-world-cup/
+
+**Detroit Lions Beat Dallas Cowboys in Key Late-Season Matchup**\
+`The Detroit Lions’ 44-30 home win against the Dallas Cowboys was critical for a spot in the playoffs.`\
+https://nytimes.com/video/sports/football/100000010567096/detroit-lions-beat-dallas-cowboys-in-key-late-season-matchup.html
+
 **Jeremy O. Harris Is Arrested in Japan on Suspicion of Smuggling Drugs**\
 `The Tony-nominated American playwright and actor has been in custody since airport customs officers found Ecstasy in his bag last month.`\
 https://nytimes.com/2025/12/05/theater/jeremy-harris-japan-arrest-drugs.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6862659/2025/12/05/soungoutou-magassa-emerges-from-
 **Word of the Day: exonerate**\
 `This word has appeared in 29 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/12/05/learning/word-of-the-day-exonerate.html
-
-**Jimmy Kimmel Thanks Trump for Google Superstardom in 2025**\
-`The host said he wouldn’t have been the third-most-trending person in Google searches this year “without the support of loyal viewers” like the president.`\
-https://nytimes.com/2025/12/05/arts/television/jimmy-kimmel-trump-2025-google.html
-
-**Cary-Hiroyuki Tagawa, ‘The Last Emperor’ and ‘Mortal Kombat’ Actor, Dies at 75**\
-`The actor, born in Japan, starred in dozens of film and television shows, including Amazon’s “The Man in the High Castle.” His career spanned more than three decades.`\
-https://nytimes.com/2025/12/05/movies/cary-hiroyuki-tagawa-dead.html
 
