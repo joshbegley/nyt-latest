@@ -1,3 +1,19 @@
+**England's World Cup draw broken down: How easy is the group and who could await in knockouts?**\
+`A look at Thomas Tuchel's side's group-stage opponents and how the latter stages of the tournament might unfold`\
+https://nytimes.com/athletic/6865366/2025/12/05/england-world-cup-draw-analysed/
+
+**How D’Angelo Understood His Own Mortality**\
+`Wesley Morris invited his friend Alex Pappademas, a senior culture editor at GQ magazine, to his show to talk about mortality and D’Angelo’s final album, “Black Messiah.”`\
+https://nytimes.com/video/podcasts/100000010567531/how-dangelo-understood-his-own-mortality.html
+
+**D’Angelo and the Brilliant Prescience of ‘Black Messiah’**\
+`Wesley Morris invited his friend Alex Pappademas, a senior culture editor at GQ magazine, to his show to talk about D’Angelo’s final album, “Black Messiah,” and why it’s so memorable.`\
+https://nytimes.com/video/podcasts/100000010567528/dangelo-and-the-brilliant-prescience-of-black-messiah.html
+
+**gws-gellert-closed-budapest-baths**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/gellert-closed-budapest-baths
+
 **Determining hardest, easiest groups, best games and Golden Boot winner at the 2026 World Cup**\
 `The Athletic's writers look ahead to the 2026 World Cup, after the 12 groups were drawn in Washington DC on Friday`\
 https://nytimes.com/athletic/6865312/2025/12/05/world-cup-2026-hardest-easiest-groups-golden-boot/
@@ -21,16 +37,4 @@ https://nytimes.com/newsgraphics/card-story/things-to-do-dresden
 **Trump wants to rename the NFL as the question of 'soccer' or 'football' comes up**\
 `The President said "it really doesn't make sense" to call American football by that name. `\
 https://nytimes.com/athletic/6866033/2025/12/05/trump-rename-football-nfl-soccer/
-
-**LSU secures Lamar Brown, top recruit who had said he would wait to sign**\
-`Securing the commitment of the No. 2 recruit in the country is a big win for Lane Kiffin just days into his LSU tenure.`\
-https://nytimes.com/athletic/6866292/2025/12/05/lsu-lamar-brown-recruit-lane-kiffin/
-
-**FIFA President Awards Trump With Soccer Body’s First Peace Prize**\
-`Not long after President Trump missed out on the Nobel Peace Prize, his friend and FIFA president, Gianni Infantino, had his organization establish its own.`\
-https://nytimes.com/video/us/politics/100000010568678/fifa-trump-peace-prize.html
-
-**Erik Bulatov, Russian Painter Who Undermined Soviet Propaganda, Dies at 92**\
-`For years he lived a double life, secretly making anti-Communist paintings. He found fame in the late 1980s, once his work was shown outside the Soviet Union.`\
-https://nytimes.com/2025/12/05/arts/erik-bulatov-dead.html
 
