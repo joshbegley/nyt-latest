@@ -1,3 +1,19 @@
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/12/05/crosswords/spelling-bee-forum.html
+
+**Big Pants**\
+`Tell us a story, real or made up, that is inspired by this image.`\
+https://nytimes.com/2025/12/05/learning/big-pants.html
+
+**Dashing Through a Season of Holiday Movies**\
+`For one writer, putting together her annual roundup of streaming holiday movies requires open-mindedness — and a high tolerance for candy-coated clichés.`\
+https://nytimes.com/2025/12/05/insider/new-holiday-movies-streaming.html
+
+**Rich New Yorkers Are Again Threatening to Leave. Here’s Why They Don’t.**\
+`Tax accountants and lawyers detail the arduous process wealthy New Yorkers would have to face to avoid paying New York State and city taxes.`\
+https://nytimes.com/2025/12/05/nyregion/nyc-income-tax-rich.html
+
 **Man United keep giving away leads - are Amorim's substitutions part of the problem?**\
 `Is Manchester United's coach being too conservative in which players he sends on when his team is ahead?`\
 https://nytimes.com/athletic/6864032/2025/12/05/manchester-united-subs-ruben-amorim/

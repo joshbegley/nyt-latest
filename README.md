@@ -1,3 +1,7 @@
+**Jeremy O. Harris Is Arrested in Japan on Suspicion of Smuggling Drugs**\
+`The Tony-nominated American playwright and actor has been in custody since airport customs officers found Ecstasy in his bag last month.`\
+https://nytimes.com/2025/12/05/theater/jeremy-harris-japan-arrest-drugs.html
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/12/05/crosswords/spelling-bee-forum.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/05/arts/television/jimmy-kimmel-trump-2025-google.ht
 **Cary-Hiroyuki Tagawa, ‘The Last Emperor’ and ‘Mortal Kombat’ Actor, Dies at 75**\
 `The actor, born in Japan, starred in dozens of film and television shows, including Amazon’s “The Man in the High Castle.” His career spanned more than three decades.`\
 https://nytimes.com/2025/12/05/movies/cary-hiroyuki-tagawa-dead.html
-
-**Wild get 'outplayed' as 12-game point streak ends with a dud in Calgary: Takeaways**\
-`The lowly Flames (ranked 31st in the NHL) were the better team in all areas, from five-on-five to special teams and goaltending.`\
-https://nytimes.com/athletic/6864308/2025/12/05/wild-get-outplayed-as-12-game-point-streak-ends-with-a-dud-in-calgary-takeaways/
 
