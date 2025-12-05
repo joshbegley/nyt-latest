@@ -1,5 +1,5 @@
 **Pirates crack the code in acquiring Boston's Jhostynxon Garcia in trade for Johan Oviedo**\
-`Oviedo's ceiling is probably as a No. 5 starter but Adonys Guzman is a good get for Boston and García is the big prize for Pittsburgh.`\
+`Oviedo's ceiling is probably as a No. 5 starter, but Adonys Guzman is a good get for Boston, and Garcia is the big prize for Pittsburgh.`\
 https://nytimes.com/athletic/6864111/2025/12/04/pirates-red-sox-trade-analysis-jhostynxon-garcia-johan-oviedo/
 
 **Pressure starting to mount for Europe's title favourites**\
