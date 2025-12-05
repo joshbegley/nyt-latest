@@ -10,7 +10,7 @@ https://nytimes.com/athletic/6863307/2025/12/05/denver-broncos-club-dub-winning-
 `Injuries have forced the Chargers to use 19 offensive line combinations, but Jamaree Salyer at left tackle has made a difference.`\
 https://nytimes.com/athletic/6863915/2025/12/05/chargers-offensive-line-jamaree-salyer/
 
-**The 6 most absurd things about an absurd ACC title game between Virginia-Duke**\
+**The 6 most absurd things about an absurd ACC title game between Virginia and Duke**\
 `No. 17 Virginia vs. Duke for the ACC title is a strange championship bout. And it gets even stranger the more you look at it.`\
 https://nytimes.com/athletic/6863546/2025/12/05/virginia-duke-acc-championship-game/
 
