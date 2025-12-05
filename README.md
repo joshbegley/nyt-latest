@@ -1,3 +1,7 @@
+**Burnley's Mejbri given four-match ban, fined for spitting at fans**\
+`The 22-year-old had been charged with misconduct by the FA after spitting at Leeds United supporters in October.`\
+https://nytimes.com/athletic/6865413/2025/12/05/hannibal-mejbri-spitting-ban-leeds-burnley/
+
 **An End to Hepatitis B Shots for All Newborns**\
 `A federal panel voted on Friday to recommend halting the at-birth shots for all infants, in a step toward Health Secretary Robert F. Kennedy Jr.’s goal of upending the nation’s vaccine policy.`\
 https://nytimes.com/2025/12/05/health/kennedy-vaccine-committee-vote-hepatitisb.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6865325/2025/12/05/lions-branch-branch-achilles-inj
 **The Bounce: LeBron's historic scoring streak ends, and may never be matched**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/6861938/2025/12/05/lebron-james-streak-ends-giannis-the-bounce/
-
-**Do the Rams need the NFC's No. 1 seed to reach the Super Bowl? Mailbag**\
-`What's the confidence level in the Rams after losing to the Panthers? And how important is having a home-field advantage in the playoffs?`\
-https://nytimes.com/athletic/6860028/2025/12/05/rams-mailbag-no-1-seed-nfc-super-bowl/
 
