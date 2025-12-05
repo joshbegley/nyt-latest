@@ -1,3 +1,16 @@
+**Cowboys' CeeDee Lamb exits with concussion vs. Lions**\
+`Lamb suffered the injury on an incomplete pass early in the third quarter.`\
+https://nytimes.com/athletic/6864038/2025/12/04/ceedee-lamb-concussion-cowboys-lions/
+
+**What's next for the Pirates after their first major transaction of the offseason?**\
+`The Bucs now have "The Password," but are still looking for other answers.
+`\
+https://nytimes.com/athletic/6864039/2025/12/04/pittsburgh-pirates-offseason-trade-jhostynxon-garcia/
+
+**Second Strike Scrutiny Obscures Larger Question About Trump’s Boat Attacks**\
+`Congress is focusing on two deaths in one strike. But nine other people died in that same attack, and the United States has killed 87 in all. Were any of those killings legal?`\
+https://nytimes.com/2025/12/04/us/politics/trump-boat-attacks-killings.html
+
 **After 1,297 games, LeBron James' 10-point scoring streak ends with a game-winning pass**\
 `Instead of trying to score to keep a 1,297-game streak alive, LeBron James passed to an open Lakers teammate for a game-winning 3.`\
 https://nytimes.com/athletic/6854376/2025/12/04/lebron-james-10-point-game-streak-lakers/
