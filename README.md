@@ -1,3 +1,7 @@
+**College football conference title game model-projected scores**\
+`Austin Mock's model has projected scores for all nine college football conference championship games.`\
+https://nytimes.com/athletic/6865849/2025/12/05/college-football-conference-title-game-projected-scores-model/
+
 **Mamdani Woos Wealthy Donors Alongside Grassroots Givers for Transition**\
 `Mayor-elect Zohran Mamdani has turned to crypto kings, movie stars and an oil heir, among others, to help reach his $4 million goal to fund his transition and Jan. 1 inauguration.`\
 https://nytimes.com/2025/12/05/nyregion/mamdani-transition-fund-raisers.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6854719/2025/12/05/world-cup-draw-argentina-group-s
 **Spain drawn to play Uruguay, Saudi Arabia and Cape Verde at 2026 World Cup**\
 `Luis de la Fuente's side learned its opponents at Friday's World Cup draw at the Kennedy Center in Washington, D.C.`\
 https://nytimes.com/athletic/6854828/2025/12/05/world-cup-draw-spain-group-schedule-fixtures/
-
-**USA drawn to play Australia, Paraguay at 2026 World Cup**\
-`The U.S. is seeded in Pot 1 as a co-host of the tournament.`\
-https://nytimes.com/athletic/6854622/2025/12/05/world-cup-draw-usmnt-group-schedule-fixtures/
 
