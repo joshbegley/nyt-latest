@@ -1,3 +1,7 @@
+**Pressure starting to mount for Europe's title favourites**\
+`The pressure is on for some of Europe's title favourites as the season heads into December fixtures.`\
+https://nytimes.com/athletic/6863822/2025/12/04/european-title-favourites-are-facing-mounting-pressure/
+
 **Chivas finalizing $5 million deal for Fire's Brian Gutiérrez: Sources**\
 `Gutiérrez, 22, has already accrued 164 first-team appearances for the Fire.`\
 https://nytimes.com/athletic/6864064/2025/12/04/chivas-brian-gutierrez-fire/
@@ -34,8 +38,4 @@ https://nytimes.com/2025/12/04/us/politics/trump-boat-attacks-killings.html
 **Penn State search shifting focus to Iowa State's Matt Campbell: Sources**\
 `Penn State's lengthy coaching search to replace James Franklin could be closing in on Matt Campbell, with some other names in the mix.`\
 https://nytimes.com/athletic/6863734/2025/12/04/matt-campbell-penn-state-coaching-search/
-
-**Judge Dismisses Harvard Antisemitism Lawsuit by a Former Student**\
-`Yoav Segev said he was harassed “for being Jewish and Israeli” during a campus protest in October 2023, an episode that had drawn the attention of Republicans in Washington.`\
-https://nytimes.com/2025/12/04/us/harvard-antisemitism-lawsuit.html
 

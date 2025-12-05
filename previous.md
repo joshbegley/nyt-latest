@@ -1,3 +1,7 @@
+**Chivas finalizing $5 million deal for Fire's Brian Gutiérrez: Sources**\
+`Gutiérrez, 22, has already accrued 164 first-team appearances for the Fire.`\
+https://nytimes.com/athletic/6864064/2025/12/04/chivas-brian-gutierrez-fire/
+
 **Cowboys' CeeDee Lamb exits with concussion vs. Lions**\
 `Lamb suffered the injury on an incomplete pass early in the third quarter.`\
 https://nytimes.com/athletic/6864038/2025/12/04/ceedee-lamb-concussion-cowboys-lions/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6863734/2025/12/04/matt-campbell-penn-state-coachin
 **Judge Dismisses Harvard Antisemitism Lawsuit by a Former Student**\
 `Yoav Segev said he was harassed “for being Jewish and Israeli” during a campus protest in October 2023, an episode that had drawn the attention of Republicans in Washington.`\
 https://nytimes.com/2025/12/04/us/harvard-antisemitism-lawsuit.html
-
-**War and Peace: A Day of Cognitive Dissonance in Trump’s Washington**\
-`President Trump presided over a Congo-Rwanda peace deal on the same day his administration was being questioned about potential war crimes.`\
-https://nytimes.com/2025/12/04/us/politics/trump-congo-rwanda-boat-strikes.html
 
