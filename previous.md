@@ -1,3 +1,11 @@
+**Trump Administration Says Europe Faces ‘Civilizational Erasure’**\
+`America’s goal should be “to help Europe correct its current trajectory,” the administration said in its new National Security Strategy.`\
+https://nytimes.com/2025/12/05/world/europe/trump-europe.html
+
+**New York Times Sues A.I. Start-Up Perplexity Over Use of Copyrighted Work**\
+`Filed in federal court on Friday, the suit joins more than 40 other court disputes between copyright holders and A.I. companies.`\
+https://nytimes.com/2025/12/05/technology/new-york-times-perplexity-ai-lawsuit.html
+
 **How to watch the 2026 World Cup draw: Start time, streaming and viewing guide for U.S., Canada and UK**\
 `Excitement for the 2026 World Cup in the U.S., Canada and Mexico will ramp up a notch today, as the draw for the group stages takes place`\
 https://nytimes.com/athletic/6865069/2025/12/05/how-to-watch-the-2026-world-cup-draw-us-canada-uk/
@@ -14,6 +22,10 @@ https://nytimes.com/athletic/6863307/2025/12/05/denver-broncos-club-dub-winning-
 `Injuries have forced the Chargers to use 19 offensive line combinations, but Jamaree Salyer at left tackle has made a difference.`\
 https://nytimes.com/athletic/6863915/2025/12/05/chargers-offensive-line-jamaree-salyer/
 
+**Instant grades for college football's 2025-26 head-coaching hires**\
+`In college football, you never really know whether a coaching hire is going to work. But it's never too early to talk about fit.`\
+https://nytimes.com/athletic/6827060/2025/12/05/college-football-coaching-carousel-grades/
+
 **The 6 most absurd things about an absurd ACC title game between Virginia and Duke**\
 `No. 17 Virginia vs. Duke for the ACC title is a strange championship bout. And it gets even stranger the more you look at it.`\
 https://nytimes.com/athletic/6863546/2025/12/05/virginia-duke-acc-championship-game/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6861954/2025/12/05/messi-muller-mls-cup-inter-miami
 **Lowetide: Ranking Oilers' call-up options on suddenly thin defence depth chart**\
 `Edmonton's AHL team, the Bakersfield Condors, doesn't have much in the way of NHL-ready talent for recall.`\
 https://nytimes.com/athletic/6861775/2025/12/05/edmonton-oilers-defence-depth-chart-jake-walman-injury/
-
-**Austria Forms Panel to Study Its Rights to Famed Florentine Diamond**\
-`The Hapsburg family claims the gem, which it secretly kept hidden for decades.`\
-https://nytimes.com/2025/12/05/arts/design/austria-forms-panel-to-study-its-rights-to-famed-florentine-diamond.html
-
-**Twins mailbag: Trade rumors, 2026 goals, racing prospects and optimism injections**\
-`Plus the over/under on Derek Shelton ejections, Winter Meetings action ahead, questions that get non-answers and early roster moves.`\
-https://nytimes.com/athletic/6855856/2025/12/05/twins-mailbag-2026-goals-trade-rumors/
-
-**Trump Administration Live Updates: Polls Show President’s Approval Rating Has Dipped**\
-``\
-https://nytimes.com/live/2025/12/05/us/trump-news
 

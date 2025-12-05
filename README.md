@@ -14,6 +14,10 @@ https://nytimes.com/athletic/6865069/2025/12/05/how-to-watch-the-2026-world-cup-
 `After being limited to one goal again in Thursday’s 2-1 loss to the Chicago Blackhawks, the Kings dropped to 29th in scoring.`\
 https://nytimes.com/athletic/6864654/2025/12/05/kings-goals-struggles-blackhawks-lose/
 
+**Does Indiana pose a bigger threat to Ohio State than last year?**\
+`Here are four keys and a prediction for the Big Ten title game after a week of watching Indiana film and a season of covering Ohio State.`\
+https://nytimes.com/athletic/6863332/2025/12/05/ohio-state-indiana-football-big-ten-prediction/
+
 **The fog and bass of Club Dub: How the Broncos have partied through 9 straight wins**\
 `Zach Allen was added to the injury report Thursday with a calf injury. The Broncos have also been without NT D.J. Jones (ankle) this week.`\
 https://nytimes.com/athletic/6863307/2025/12/05/denver-broncos-club-dub-winning-streak/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6863546/2025/12/05/virginia-duke-acc-championship-g
 **Müller has often been Messi's nemesis and now seeks to deny him MLS Cup**\
 `Historically, Thomas Muller's teams have an enviable record against Lionel Messi's heading into Saturday's MLS Cup final`\
 https://nytimes.com/athletic/6861954/2025/12/05/messi-muller-mls-cup-inter-miami-vancouver/
-
-**Lowetide: Ranking Oilers' call-up options on suddenly thin defence depth chart**\
-`Edmonton's AHL team, the Bakersfield Condors, doesn't have much in the way of NHL-ready talent for recall.`\
-https://nytimes.com/athletic/6861775/2025/12/05/edmonton-oilers-defence-depth-chart-jake-walman-injury/
 

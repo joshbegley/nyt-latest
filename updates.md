@@ -1,3 +1,15 @@
+**Trump Administration Says Europe Faces ‘Civilizational Erasure’**\
+`America’s goal should be “to help Europe correct its current trajectory,” the administration said in its new National Security Strategy.`\
+https://nytimes.com/2025/12/05/world/europe/trump-europe.html
+
+**New York Times Sues A.I. Start-Up Perplexity Over Use of Copyrighted Work**\
+`Filed in federal court on Friday, the suit joins more than 40 other court disputes between copyright holders and A.I. companies.`\
+https://nytimes.com/2025/12/05/technology/new-york-times-perplexity-ai-lawsuit.html
+
+**Instant grades for college football's 2025-26 head-coaching hires**\
+`In college football, you never really know whether a coaching hire is going to work. But it's never too early to talk about fit.`\
+https://nytimes.com/athletic/6827060/2025/12/05/college-football-coaching-carousel-grades/
+
 **How to watch the 2026 World Cup draw: Start time, streaming and viewing guide for U.S., Canada and UK**\
 `Excitement for the 2026 World Cup in the U.S., Canada and Mexico will ramp up a notch today, as the draw for the group stages takes place`\
 https://nytimes.com/athletic/6865069/2025/12/05/how-to-watch-the-2026-world-cup-draw-us-canada-uk/
