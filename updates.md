@@ -1,3 +1,7 @@
+**Donald Trump awarded inaugural FIFA Peace Prize**\
+`FIFA never announced nominees for the new award and have not said how or by whom the winner was chosen.`\
+https://nytimes.com/athletic/6854845/2025/12/05/fifa-peace-prize-trump-infantino/
+
 **Ohio State signing 5-star WR Chris Henry Jr. after late Oregon push**\
 `Five-star wide receiver recruit Chris Henry Jr. is sticking with his commitment to Ohio State after Brian Hartline's departure for USF.`\
 https://nytimes.com/athletic/6865567/2025/12/05/chris-henry-jr-ohio-state-signed-recruiting/

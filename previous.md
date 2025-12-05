@@ -1,3 +1,7 @@
+**Donald Trump awarded inaugural FIFA Peace Prize**\
+`FIFA never announced nominees for the new award and have not said how or by whom the winner was chosen.`\
+https://nytimes.com/athletic/6854845/2025/12/05/fifa-peace-prize-trump-infantino/
+
 **Ohio State signing 5-star WR Chris Henry Jr. after late Oregon push**\
 `Five-star wide receiver recruit Chris Henry Jr. is sticking with his commitment to Ohio State after Brian Hartline's departure for USF.`\
 https://nytimes.com/athletic/6865567/2025/12/05/chris-henry-jr-ohio-state-signed-recruiting/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/05/us/politics/trump-utah-map-2028-house-seat.html
 **The Philippines, a nation without winters, might make the Olympics in curling**\
 `The Swiss-Filipino team aiming to lead the Southeast Asian nation to an Olympic curling appearance call their journey "curl runnings."`\
 https://nytimes.com/athletic/6865228/2025/12/05/philippine-mens-curling-winter-olympics-qualifiers/
-
-**UAB removes interim tag from coach Alex Mortensen, son of longtime ESPN reporter**\
-`Mortensen went 2-4 as interim coach following the Blazers' midseason firing of Trent Dilfer.`\
-https://nytimes.com/athletic/6861849/2025/12/05/uab-football-alex-mortensen-head-coach/
 

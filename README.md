@@ -1,3 +1,11 @@
+**Halligan Continues as U.S. Attorney, Prompting Criticism From Judges**\
+`The Justice Department has seized on a lack of explicit instruction from a federal judge to keep Lindsey Halligan in place for now.`\
+https://nytimes.com/2025/12/05/us/politics/halligan-us-attorney-judiciary.html
+
+**Commanders' Jayden Daniels cleared to play, will start Sunday vs. Vikings**\
+`Receiver Noah Brown will also return to the Commanders' lineup for the first time since getting injured in Week 2.`\
+https://nytimes.com/athletic/6864279/2025/12/05/jayden-daniels-cleared-commanders-vikings/
+
 **Donald Trump awarded inaugural FIFA Peace Prize**\
 `FIFA never announced nominees for the new award and have not said how or by whom the winner was chosen.`\
 https://nytimes.com/athletic/6854845/2025/12/05/fifa-peace-prize-trump-infantino/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/05/us/ice-harvard-carlos-portugal-pellet-gun.html
 **Dancing Babies and Toddlers Are Teaching the Pros a Thing or Two**\
 `Everyone loves tiny dancers. Now some artists are considering why they bring us such joy — and what lessons they might have for grown-ups.`\
 https://nytimes.com/2025/12/05/arts/dance/baby-toddler-raves-professional-dancers.html
-
-**Post-Trump, What Happens to His War Chest? Utah Offers One Clue.**\
-`A Trump-aligned political group is quietly spending millions to help state Republicans have a friendlier House map in 2028 — not in 2026, as with all of his other redistricting efforts.`\
-https://nytimes.com/2025/12/05/us/politics/trump-utah-map-2028-house-seat.html
-
-**The Philippines, a nation without winters, might make the Olympics in curling**\
-`The Swiss-Filipino team aiming to lead the Southeast Asian nation to an Olympic curling appearance call their journey "curl runnings."`\
-https://nytimes.com/athletic/6865228/2025/12/05/philippine-mens-curling-winter-olympics-qualifiers/
 
