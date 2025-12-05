@@ -1,3 +1,11 @@
+**How private Sarina Wiegman handled the very public Mary Earps fallout**\
+`If Sarina Wiegman and England were affected by the Mary Earps fallout they did not show it during their homecoming friendlies`\
+https://nytimes.com/athletic/6858959/2025/12/05/sarina-wiegman-mary-earps-hannah-hampton-analysis/
+
+**Men's college basketball watch guide: Duke-MSU, Auburn-Arizona highlight weekend lineup**\
+`What a run for college basketball's nonconference schedule. Iowa State-Purdue and Duke-Michigan State are two top-10 matchups this weekend.`\
+https://nytimes.com/athletic/6862485/2025/12/05/college-basketball-duke-michigan-state-auburn-arizona-tv/
+
 **Iranian officials reverse plan to boycott World Cup draw, FIFA claims**\
 `FIFA's statement said the travelling party included head coach Ardeshir Ghalenoei.`\
 https://nytimes.com/athletic/6864602/2025/12/05/iran-boycott-world-cup-draw-fifa/

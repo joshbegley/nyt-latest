@@ -1,3 +1,11 @@
+**How private Sarina Wiegman handled the very public Mary Earps fallout**\
+`If Sarina Wiegman and England were affected by the Mary Earps fallout they did not show it during their homecoming friendlies`\
+https://nytimes.com/athletic/6858959/2025/12/05/sarina-wiegman-mary-earps-hannah-hampton-analysis/
+
+**Men's college basketball watch guide: Duke-MSU, Auburn-Arizona highlight weekend lineup**\
+`What a run for college basketball's nonconference schedule. Iowa State-Purdue and Duke-Michigan State are two top-10 matchups this weekend.`\
+https://nytimes.com/athletic/6862485/2025/12/05/college-basketball-duke-michigan-state-auburn-arizona-tv/
+
 **Iranian officials reverse plan to boycott World Cup draw, FIFA claims**\
 `FIFA's statement said the travelling party included head coach Ardeshir Ghalenoei.`\
 https://nytimes.com/athletic/6864602/2025/12/05/iran-boycott-world-cup-draw-fifa/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6864060/2025/12/05/blue-jackets-marchenko-johnson-s
 **Fears Spread Over New ICE Crackdowns, and F.B.I. Makes Arrest in Jan. 6 Bomb Plot**\
 `Plus your Friday news quiz.`\
 https://nytimes.com/2025/12/05/podcasts/the-headlines/ice-crackdowns-jan-6-bomb-plot.html
-
-**The USA is cohosting the World Cup, but can the Americans actually win it?**\
-`Logic suggests that ultimate glory is beyond the grasp of the USMNT. That's not stopping the team from dreaming big`\
-https://nytimes.com/athletic/6858922/2025/12/05/can-usa-win-2026-world-cup/
-
-**‘I will be back’: How Alex Steeves turned an AHL assignment into an NHL job**\
-`Steeves, who started the year in Providence, has scored five goals in his last five games with the Bruins.`\
-https://nytimes.com/athletic/6864107/2025/12/05/bruins-alex-steeves-nhl-player-ahl/
 

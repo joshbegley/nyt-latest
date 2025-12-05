@@ -1,3 +1,7 @@
+**Who's better, Notre Dame or Miami? We asked the coaches who played both**\
+`The Hurricanes and Fighting Irish will find out their College Football Playoff fates during the bracket selection this Sunday.`\
+https://nytimes.com/athletic/6863703/2025/12/05/notre-dame-miami-who-is-better-analysis/
+
 **How private Sarina Wiegman handled the very public Mary Earps fallout**\
 `If Sarina Wiegman and England were affected by the Mary Earps fallout they did not show it during their homecoming friendlies`\
 https://nytimes.com/athletic/6858959/2025/12/05/sarina-wiegman-mary-earps-hannah-hampton-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6864568/2025/12/05/cowboys-playoff-chances-lions-lo
 **Marchenko returns, Johnson awakens in Blue Jackets' shootout win vs. Red Wings**\
 `The two young stars combined for regulation and shootout goals in a roller coaster against the Red Wings.`\
 https://nytimes.com/athletic/6864060/2025/12/05/blue-jackets-marchenko-johnson-shootout-red-wings/
-
-**Fears Spread Over New ICE Crackdowns, and F.B.I. Makes Arrest in Jan. 6 Bomb Plot**\
-`Plus your Friday news quiz.`\
-https://nytimes.com/2025/12/05/podcasts/the-headlines/ice-crackdowns-jan-6-bomb-plot.html
 
