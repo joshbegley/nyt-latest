@@ -1,3 +1,11 @@
+**Halligan Continues as U.S. Attorney, Prompting Criticism From Judges**\
+`The Justice Department has seized on a lack of explicit instruction from a federal judge to keep Lindsey Halligan in place for now.`\
+https://nytimes.com/2025/12/05/us/politics/halligan-us-attorney-judiciary.html
+
+**Commanders' Jayden Daniels cleared to play, will start Sunday vs. Vikings**\
+`Receiver Noah Brown will also return to the Commanders' lineup for the first time since getting injured in Week 2.`\
+https://nytimes.com/athletic/6864279/2025/12/05/jayden-daniels-cleared-commanders-vikings/
+
 **Donald Trump awarded inaugural FIFA Peace Prize**\
 `FIFA never announced nominees for the new award and have not said how or by whom the winner was chosen.`\
 https://nytimes.com/athletic/6854845/2025/12/05/fifa-peace-prize-trump-infantino/
