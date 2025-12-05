@@ -1,3 +1,7 @@
+**Word of the Day: exonerate**\
+`This word has appeared in 29 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/12/05/learning/word-of-the-day-exonerate.html
+
 **Wild get 'outplayed' as 12-game point streak ends with a dud in Calgary: Takeaways**\
 `The lowly Flames (ranked 31st in the NHL) were the better team in all areas, from five-on-five to special teams and goaltending.`\
 https://nytimes.com/athletic/6864308/2025/12/05/wild-get-outplayed-as-12-game-point-streak-ends-with-a-dud-in-calgary-takeaways/
