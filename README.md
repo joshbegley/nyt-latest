@@ -1,3 +1,11 @@
+**The Year in Lists**\
+`The end of year recaps can be dizzying. But they’re also full of gold.`\
+https://nytimes.com/2025/12/05/briefing/the-year-in-lists.html
+
+**Elon Musk’s X Hit With $140 Million Fine in Europe**\
+`The case over online transparency has become a flashpoint between the European Union and the Trump administration.`\
+https://nytimes.com/2025/12/05/technology/eu-elon-musk-x-140-million-fine.html
+
 **Myles Garrett, Jonathan Taylor, Jaxson Dart among NFL awards predictions: Nguyen**\
 `What 13 weeks of film and a deep dive into stats show as players and coaches enter the stretch run to earn honors.`\
 https://nytimes.com/athletic/6860037/2025/12/05/nfl-awards-predictions-2025-drake-maye-myles-garrett/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6858959/2025/12/05/sarina-wiegman-mary-earps-hannah
 **Men's college basketball watch guide: Duke-MSU, Auburn-Arizona highlight weekend lineup**\
 `What a run for college basketball's nonconference schedule. Iowa State-Purdue and Duke-Michigan State are two top-10 matchups this weekend.`\
 https://nytimes.com/athletic/6862485/2025/12/05/college-basketball-duke-michigan-state-auburn-arizona-tv/
-
-**Iranian officials reverse plan to boycott World Cup draw, FIFA claims**\
-`FIFA's statement said the travelling party included head coach Ardeshir Ghalenoei.`\
-https://nytimes.com/athletic/6864602/2025/12/05/iran-boycott-world-cup-draw-fifa/
-
-**Chiefs' Steve Spagnuolo was ticked after loss. A practice this week changed his mood**\
-`Spagnuolo said Wednesday's practice provided some evidence that the Chiefs might not be done in 2025.`\
-https://nytimes.com/athletic/6862831/2025/12/05/chiefs-defensive-problems-steve-spagnuolo/
 
