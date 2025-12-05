@@ -1,3 +1,11 @@
+**Erik Bulatov, Russian Painter Who Undermined Soviet Propaganda, Dies at 92**\
+`For years he lived a double life, secretly making anti-Communist paintings. He found fame in the late 1980s, once his work was shown outside the Soviet Union.`\
+https://nytimes.com/2025/12/05/arts/erik-bulatov-dead.html
+
+**Explained: Who can still qualify for the World Cup via the playoffs?**\
+`Breaking down which teams are still hoping to secure a place in the USA, Canada and Mexico`\
+https://nytimes.com/athletic/6866032/2025/12/05/european-fifa-playoff-2026-world-cup-qualifying/
+
 **What Scientists Found When a Deep Sea Mining Company Invited Them In**\
 `An ocean-mining company has funded some of the most comprehensive scientific studies to date, and peer-reviewed results have begun to emerge.`\
 https://nytimes.com/2025/12/05/climate/deep-sea-mining-ecosystem.html
