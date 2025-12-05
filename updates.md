@@ -1,3 +1,15 @@
+**How to watch Gonzaga vs. Kentucky men's basketball: Time, TV, streaming**\
+`Find out how to watch the Gonzaga Bulldogs play the Kentucky Wildcats, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6865522/2025/12/05/gonzaga-vs-kentucky-stream-how-to-watch-dec-5/
+
+**Bowl projections: The Xbox Bowl joins the party, and Miami gains on Notre Dame**\
+`The outcome of Alabama's SEC title game against Georgia on Saturday could reorder the CFP at-large spots and SEC bowl slots.`\
+https://nytimes.com/athletic/6853423/2025/12/05/college-football-projections-bowl-playoffs-matchups/
+
+**Should People Still Trust the Media in 2025?**\
+`Media leaders debate how trust eroded, what audiences want now, and whether traditional journalism can still compete with personality-driven voices.`\
+https://nytimes.com/2025/12/05/podcasts/dealbook-summit-2025-journalism-media.html
+
 **NHL Power Rankings: A surge in the Metro, plus your team's 'leap' candidate**\
 `It’s time to take a look around the league to see which players are taking "the leap."`\
 https://nytimes.com/athletic/6865297/2025/12/05/nhl-power-rankings-capitals-leap/
