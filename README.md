@@ -1,3 +1,7 @@
+**NFL Week 14 schedule rankings: Top 5 Sunday games with this season's surprising teams**\
+`The AFC South is competitive (good). The AFC North is competitive (bad). Here are Week 14's "hey, look at us, who would've thought?!" games.`\
+https://nytimes.com/athletic/6857546/2025/12/05/nfl-week-14-schedule-bears-packers-colts-jaguars/
+
 **How to watch the Women’s College Cup: 4 schools vying for soccer national title**\
 `TCU plays Florida State in one semifinal. Blue bloods Stanford and Duke face off in the other. The winners meet for the national title.`\
 https://nytimes.com/athletic/6859145/2025/12/05/womens-college-cup-soccer-championship-tv-schedule/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6862682/2025/12/05/new-college-football-coaches-rec
 **Newcastle 'can spend' in January, says Ross Wilson**\
 `Full-backs and midfielders are the immediate priority, with AZ's Kees Smit greatly admired, and a young forward is also being sought.`\
 https://nytimes.com/athletic/6861692/2025/12/05/newcastle-transfer-news-january/
-
-**Records, draft picks, playoffs: What’s at stake for 49ers with four games to go**\
-`Christian McCaffrey has a chance for the record books and the 49ers have a shot, albeit a narrow one, of landing the top playoff seed.`\
-https://nytimes.com/athletic/6862976/2025/12/05/49ers-records-draft-picks-playoffs/
 
