@@ -1,3 +1,15 @@
+**Bucks have different buttons to push with Giannis out this time around**\
+`Milwaukee "can't catch a break on health," but here's how it could stem the tide with its best player sidelined again.`\
+https://nytimes.com/athletic/6863817/2025/12/05/giannis-antetokounmpo-bucks-kevin-porter-ryan-rollins/
+
+**Olympic-sized anxiety over the ice in Milan. Plus: NHL's most-improved players**\
+`We know the playing surface will be smaller when the Olympics begin in February, but will the arena even be ready?`\
+https://nytimes.com/athletic/6865369/2025/12/05/olympics-ice-hockey-arena-nhl-players/
+
+**Burnley's Mejbri given four-match ban, fined for spitting at fans**\
+`The 22-year-old had been charged with misconduct by the FA after spitting at Leeds United supporters in October.`\
+https://nytimes.com/athletic/6865413/2025/12/05/hannibal-mejbri-spitting-ban-leeds-burnley/
+
 **An End to Hepatitis B Shots for All Newborns**\
 `A federal panel voted on Friday to recommend halting the at-birth shots for all infants, in a step toward Health Secretary Robert F. Kennedy Jr.’s goal of upending the nation’s vaccine policy.`\
 https://nytimes.com/2025/12/05/health/kennedy-vaccine-committee-vote-hepatitisb.html

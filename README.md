@@ -1,4 +1,4 @@
-**Bucks have different buttons to push with Giannis out this time around**\
+**This time, the Bucks have different buttons to push with Giannis out**\
 `Milwaukee "can't catch a break on health," but here's how it could stem the tide with its best player sidelined again.`\
 https://nytimes.com/athletic/6863817/2025/12/05/giannis-antetokounmpo-bucks-kevin-porter-ryan-rollins/
 
