@@ -1,3 +1,15 @@
+**What I'm Hearing: Timo Werner, coaching changes, transfers as MLS Cup approaches**\
+`From coaching news to the trade market and potential January transfers, here’s the latest in the world of MLS.`\
+https://nytimes.com/athletic/6862883/2025/12/04/wicky-werner-inter-miami-valenzuela/
+
+**Trump to speak at World Cup draw upon receiving FIFA Peace Prize**\
+`The inaugural presentation of the prize is set to occur during the World Cup draw in Washington D.C. on Friday, December 5.`\
+https://nytimes.com/athletic/6863637/2025/12/04/trump-world-cup-draw-fifa-peace-prize/
+
+**The Windup: Explaining a curious $17M signing**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6863643/2025/12/04/devin-williams-mets-signing-the-windup/
+
 **Where Is Jacob? His Mother Won’t Say, and the Police Cannot Find Him.**\
 `Jacob Pritchett, 11, has been missing for months. A judge has said his mother must remain at Rikers Island until she reveals his whereabouts.`\
 https://nytimes.com/2025/12/04/nyregion/brownsville-missing-child-nyc.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6863459/2025/12/04/jimmy-butler-injury-update-knee-
 **Trump Returns Coast Guard Helicopter to Oregon Fishing Town After Uproar**\
 `Some residents in Newport, Ore., believed that the Trump administration had removed its Coast Guard rescue helicopter to make way for an immigration detention site.`\
 https://nytimes.com/2025/12/04/us/trump-coast-guard-helicopter-oregon.html
-
-**Only the Lonely**\
-`A decade after the end of the one-child policy, China has over 30 million so-called surplus men. Can this dating boot camp help them find love?`\
-https://nytimes.com/video/opinion/100000010529984/only-the-lonely.html
-
-**Canada Declares Stellantis in Default for Moving Jeep Production to U.S.**\
-`The automaker switched production from Ontario in a bid to please President Trump. But the company defaulted on contracts covering hundreds of millions of dollars in assistance, Canada said.`\
-https://nytimes.com/2025/12/04/world/canada/lawsuit-stellantis-us-jeep-production.html
-
-**Trump Switches Architects for White House Ballroom Project**\
-`The president had clashed with the original designer and insisted on increasing the size and scope of the ballroom on a short timeline.`\
-https://nytimes.com/2025/12/04/us/politics/trump-ballroom-white-house-construction.html
 

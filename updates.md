@@ -1,3 +1,11 @@
+**Where Is Jacob? His Mother Won’t Say, and the Police Cannot Find Him.**\
+`Jacob Pritchett, 11, has been missing for months. A judge has said his mother must remain at Rikers Island until she reveals his whereabouts.`\
+https://nytimes.com/2025/12/04/nyregion/brownsville-missing-child-nyc.html
+
+**Post announcing Jets vs. Canadiens in 2026 NHL Heritage Classic taken down**\
+`The date, location and teams involved went live on Thursday, but were quickly taken down.`\
+https://nytimes.com/athletic/6863358/2025/12/04/nhl-heritage-classic-jets-canadiens-2026/
+
 **Cavaliers fined $250,000 for second violation of NBA's rest policy**\
 `The Cavs were fined earlier this season for resting stars, after which coach Kenny Atkinson said he must "look at the Cavs' best interest."`\
 https://nytimes.com/athletic/6863481/2025/12/04/cavaliers-fine-darius-garland-injury/
