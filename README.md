@@ -11,7 +11,7 @@ https://nytimes.com/athletic/6865228/2025/12/05/philippine-mens-curling-winter-o
 https://nytimes.com/athletic/6861849/2025/12/05/uab-football-alex-mortensen-head-coach/
 
 **Shai Gilgeous-Alexander's unstoppable move and more NBA trends I'm watching**\
-`Shai Gilgeous-Alexander was dangerous before, but now he's added a lethal stepback 3 to his bag of tricks. `\
+`Gilgeous-Alexander was dangerous before, but now he's added a lethal stepback 3 to his bag of tricks. `\
 https://nytimes.com/athletic/6865225/2025/12/05/nba-trends-sga-thunder-hawks-raptors/
 
 **Ex-D.E.A. Agent Charged With Agreeing to Launder Millions for Cartel**\

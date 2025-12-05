@@ -1,3 +1,19 @@
+**Post-Trump, What Happens to His War Chest? Utah Offers One Clue.**\
+`A Trump-aligned political group is quietly spending millions to help state Republicans have a friendlier House map in 2028 — not in 2026, as with all of his other redistricting efforts.`\
+https://nytimes.com/2025/12/05/us/politics/trump-utah-map-2028-house-seat.html
+
+**The Philippines, a nation without winters, might make the Olympics in curling**\
+`The Swiss-Filipino team aiming to lead the Southeast Asian nation to an Olympic curling appearance call their journey "curl runnings."`\
+https://nytimes.com/athletic/6865228/2025/12/05/philippine-mens-curling-winter-olympics-qualifiers/
+
+**UAB removes interim tag from coach Alex Mortensen, son of longtime ESPN reporter**\
+`Mortensen went 2-4 as interim coach following the Blazers' midseason firing of Trent Dilfer.`\
+https://nytimes.com/athletic/6861849/2025/12/05/uab-football-alex-mortensen-head-coach/
+
+**Shai Gilgeous-Alexander's unstoppable move and more NBA trends I'm watching**\
+`Shai Gilgeous-Alexander was dangerous before, but now he's added a lethal stepback 3 to his bag of tricks. `\
+https://nytimes.com/athletic/6865225/2025/12/05/nba-trends-sga-thunder-hawks-raptors/
+
 **Ex-D.E.A. Agent Charged With Agreeing to Launder Millions for Cartel**\
 `The former agent, Paul Campo, laundered money for the Jalisco New Generation Cartel in Mexico, according to an indictment unsealed on Friday.`\
 https://nytimes.com/2025/12/05/nyregion/dea-agent-money-laundering-mexican-cartel.html
