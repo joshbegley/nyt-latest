@@ -1,3 +1,11 @@
+**Flashback: Your Weekly History Quiz, Dec. 6, 2025**\
+`Can you sort 8 historical events?`\
+https://nytimes.com/interactive/2025/12/05/upshot/flashback.html
+
+**A group-by-group guide to the teams at the World Cup**\
+`How do the teams play? Who is their star player? What can we expect from them when the tournament starts?`\
+https://nytimes.com/athletic/6839351/2025/12/05/world-cup-draw-team-guides/
+
 **College football conference title game model-projected scores**\
 `Austin Mock's model has projected scores for all nine college football conference championship games.`\
 https://nytimes.com/athletic/6865849/2025/12/05/college-football-conference-title-game-projected-scores-model/
