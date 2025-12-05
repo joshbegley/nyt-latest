@@ -1,6 +1,14 @@
+**How to watch the Women’s College Cup: 4 schools vying for soccer national title**\
+`TCU plays Florida State in one semifinal. Blue bloods Stanford and Duke face off in the other. The winners meet for the national title.`\
+https://nytimes.com/athletic/6859145/2025/12/05/womens-college-cup-soccer-championship-tv-schedule/
+
 **The Ashes Briefing: Advantage Australia as England let chances slip through their fingers**\
 `The home side moved into the lead on another madcap day of cricket in Brisbane as England's bowling attack strained to make in-roads`\
 https://nytimes.com/athletic/6862038/2025/12/05/ashes-australia-england-smith-labuschagne-carse/
+
+**The Phillies revamped their scouting in Japan. Now, can they break through?**\
+`The club has bolstered its scouting operation in Japan, but challenges remain as it seeks to tap into the country's talent-rich pipeline.`\
+https://nytimes.com/athletic/6857101/2025/12/05/phillies-japan-scouting-free-agents/
 
 **How Dan Vladar's offseason prepared him to step up with the Flyers**\
 `Vladar, who signed as a free agent with Philadelphia in the summer, has reached another level in goal this season.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6861692/2025/12/05/newcastle-transfer-news-january/
 **Records, draft picks, playoffs: What’s at stake for 49ers with four games to go**\
 `Christian McCaffrey has a chance for the record books and the 49ers have a shot, albeit a narrow one, of landing the top playoff seed.`\
 https://nytimes.com/athletic/6862976/2025/12/05/49ers-records-draft-picks-playoffs/
-
-**Does high school recruiting still matter? Data — and coaches — say it does**\
-`In the revenue-sharing era, high school recruiting is a more cost-effective way to build a college football roster.`\
-https://nytimes.com/athletic/6863114/2025/12/05/college-football-recruiting-high-school-coaches-data/
-
-**Giants trade primer: Find the right deals on a tighter budget**\
-`The Giants have said they aren't spending at the top of the free agent market so trades are their most likely avenue for improving.`\
-https://nytimes.com/athletic/6862942/2025/12/05/sf-giants-offseason-trade-primer-joe-ryan-mackenzie-gore/
 
