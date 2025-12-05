@@ -1,3 +1,7 @@
+**LSU signs Lamar Brown, top recruit who had said he would wait to commit**\
+`Securing the commitment of the No. 2 recruit in the country is a big win for Lane Kiffin just days into his LSU tenure.`\
+https://nytimes.com/athletic/6866292/2025/12/05/lsu-lamar-brown-recruit-lane-kiffin/
+
 **FIFA President Awards Trump With Soccer Body’s First Peace Prize**\
 `Not long after President Trump missed out on the Nobel Peace Prize, his friend and FIFA president, Gianni Infantino, had his organization establish its own.`\
 https://nytimes.com/video/us/politics/100000010568678/fifa-trump-peace-prize.html
@@ -25,8 +29,4 @@ https://nytimes.com/athletic/6866133/2025/12/05/pacers-vs-bulls-stream-how-to-wa
 **How to watch 76ers vs. Bucks: Time, TV, streaming**\
 `Find out how to watch the Philadelphia 76ers play the Milwaukee Bucks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6866131/2025/12/05/76ers-vs-bucks-stream-how-to-watch-dec-5/
-
-**How to watch Nuggets vs. Hawks: Time, TV, streaming**\
-`Find out how to watch the Denver Nuggets play the Atlanta Hawks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6866128/2025/12/05/nuggets-vs-hawks-stream-how-to-watch-dec-5/
 
