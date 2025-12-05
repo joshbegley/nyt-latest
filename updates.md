@@ -1,3 +1,15 @@
+**What we're hearing: Marlins have pitching to deal; Bichette to Boston?**\
+`The A's aren't shopping for high-priced solutions to their second base void and Luis Arraez may be a tough fit for the Rangers.`\
+https://nytimes.com/athletic/6866340/2025/12/05/mlb-hot-stove-rumors-sandy-alcantara-bo-bichette-edward-cabrera-ryan-weathers/
+
+**Trump, the Village People and some football: Welcome to FIFA’s carnival of cringe**\
+`A bizarre World Cup fever dream played out in Washington DC, memorable for all the wrong reasons`\
+https://nytimes.com/athletic/6866233/2025/12/05/world-cup-draw-trump-village-people/
+
+**Bournemouth's Semenyo ready for 'next step' in club career - Ghana coach Addo**\
+`The Athletic reported last month that the 25-year-old has a £65million release clause, which is only active until a specific date in the Jan`\
+https://nytimes.com/athletic/6866322/2025/12/05/antoine-semenyo-transfer-bournemouth-january/
+
 **Linda McMahon’s School Visit, Sponsored by Conservatives, Draws Protest**\
 `The secretary of education is barnstorming the country, talking to schoolchildren about civics and promoting patriotism. Critics claim the lessons have been crafted by partisan and religious groups.`\
 https://nytimes.com/2025/12/05/nyregion/linda-mcmahon-history-rocks-school-tour.html
