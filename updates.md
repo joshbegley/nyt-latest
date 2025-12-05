@@ -1,3 +1,11 @@
+**How to watch Capitals vs. Ducks: Time, TV, streaming**\
+`Find out how to watch the Washington Capitals play the Anaheim Ducks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6866110/2025/12/05/capitals-vs-ducks-stream-how-to-watch-dec-5/
+
+**How to watch Mammoth vs. Canucks: Time, TV, streaming**\
+`Find out how to watch the Utah Mammoth play the Vancouver Canucks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6866108/2025/12/05/mammoth-vs-canucks-stream-how-to-watch-dec-5/
+
 **How to watch East Texas A&M vs. UConn men's basketball: Time, TV, streaming**\
 `Find out how to watch the East Texas A&M Lions play the UConn Huskies, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6866089/2025/12/05/east-texas-a-m-vs-uconn-stream-how-to-watch-dec-5/
