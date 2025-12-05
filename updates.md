@@ -1,3 +1,7 @@
+**Shai Gilgeous-Alexander's unstoppable move and more NBA trends I'm watching**\
+`Gilgeous-Alexander was dangerous before, but now he's added a lethal stepback 3 to his bag of tricks. `\
+https://nytimes.com/athletic/6865225/2025/12/05/nba-trends-sga-thunder-hawks-raptors/
+
 **Post-Trump, What Happens to His War Chest? Utah Offers One Clue.**\
 `A Trump-aligned political group is quietly spending millions to help state Republicans have a friendlier House map in 2028 — not in 2026, as with all of his other redistricting efforts.`\
 https://nytimes.com/2025/12/05/us/politics/trump-utah-map-2028-house-seat.html
