@@ -1,3 +1,7 @@
+**How the Fire in Hong Kong Became So Deadly**\
+`Hazardous construction materials, the buildings’ design and a series of safety failures likely enabled the blaze to spread with devastating speed.`\
+https://nytimes.com/interactive/2025/12/05/world/asia/hong-kong-fire-photos-videos.html
+
 **Cheesy Baked Cauliflower**\
 `A person could, in theory, just pour cream over cauliflower, drape it with cheese, bake it and be happy with the results.`\
 https://nytimes.com/video/dining/100000010559102/cheesy-baked-cauliflower.html
