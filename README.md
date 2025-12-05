@@ -1,3 +1,11 @@
+**Netflix Does an About-Face, in a Big Way**\
+`The streaming giant has changed its strategy many times over the years. But the decision to get deeply into theatrical releases may be the most startling yet.`\
+https://nytimes.com/2025/12/05/business/media/netflix-movie-theaters-warner-bros.html
+
+**Stampeding Turtles Might Have Made Fossil Tracks in Italian Cliffs**\
+`Researchers suggest that an earthquake spooked a mob of sea turtles gathered together in a prehistoric sea.`\
+https://nytimes.com/2025/12/05/science/turtle-stampede-earthquake-italy.html
+
 **My Somali Role Models in Minnesota**\
 `Readers react to President Trump’s disparaging comments about Somalis in the U.S. Also: Academic censorship; a prejudice against psychiatric medication.`\
 https://nytimes.com/2025/12/05/opinion/somalis-minnesota-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/issue/magazine/2025/12/05/the-12725-issue
 **CNN, Unwanted by Netflix, Is Excluded From a Sale, for Now**\
 `The prospect of Paramount buying Warner Bros. Discovery had led CNN journalists to wonder if the channel might be combined with CBS News. Instead, CNN will remain in a separate corporate entity.`\
 https://nytimes.com/2025/12/05/business/media/cnn-netflix-warner-bros-discovery-deal.html
-
-**With LeBron’s point streak broken, what are the best active milestones in sports?**\
-`LeBron James double-digit points streak is over. But there are many displays of consistency happening elsewhere in sports.`\
-https://nytimes.com/athletic/6865363/2025/12/05/lebron-james-point-streak-record/
-
-**Penn State finalizing deal for open job for Iowa State's Matt Campbell: Sources**\
-`Iowa State's Campbell has been involved in many coaching searches over the years.`\
-https://nytimes.com/athletic/6862689/2025/12/05/penn-state-matt-campbell-head-coach-job-iowa-state/
 
