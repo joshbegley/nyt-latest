@@ -1,3 +1,7 @@
+**Week 14 fantasy football intel, predictions using player prop lines**\
+`Brad Evans scours sportsbooks to find intel that applies to fantasy football. This week he likes C.J. Stroud, Brenton Strange and others.`\
+https://nytimes.com/athletic/6862273/2025/12/05/fantasy-football-week-14-props-intel/
+
 **The New York Times News Quiz, Dec. 5, 2025**\
 `Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
 https://nytimes.com/interactive/2025/12/05/briefing/quiz-trump-floods-honduras.html
