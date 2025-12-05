@@ -1,3 +1,11 @@
+**Former Man Utd, West Ham midfielder Lingard to leave FC Seoul**\
+`After 21 months in the K League, the former England international has left the club and is keen to "take on a new challenge."`\
+https://nytimes.com/athletic/6865028/2025/12/05/jesse-lingard-seoul-next-club/
+
+**India’s Biggest Airline Falls Into Chaos, Canceling About 1,000 Flights**\
+`IndiGo, which controls nearly two-thirds of the domestic market, blamed the disruption on weather, tech systems and rules about rest for crew members. Pilots said the company was cutting corners.`\
+https://nytimes.com/2025/12/05/business/india-indigo-airline-cancelations.html
+
 **NFL Week 14 schedule rankings: Top 5 Sunday games with this season's surprising teams**\
 `The AFC South is competitive (good). The AFC North is competitive (bad). Here are Week 14's "hey, look at us, who would've thought?!" games.`\
 https://nytimes.com/athletic/6857546/2025/12/05/nfl-week-14-schedule-bears-packers-colts-jaguars/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6862663/2025/12/05/the-athletics-friday-football-qu
 **Canada Olympic roster debate: Bedard's role, depth on defense and who starts in goal?**\
 `Here's who made the cut for Team Canada at the 2026 Olympics on Friday's episode of "The Athletic Hockey Show."`\
 https://nytimes.com/athletic/6862503/2025/12/05/canada-olympics-roster-debate-connor-bedard-podcast/
-
-**The coaching carousel is slowing down: How will the new hires fare on the recruiting trail?**\
-`There are different ways to construct a roster in today's landscape, but recruiting top high school talent will always be vital. `\
-https://nytimes.com/athletic/6862682/2025/12/05/new-college-football-coaches-recruiting/
-
-**Newcastle 'can spend' in January, says Ross Wilson**\
-`Full-backs and midfielders are the immediate priority, with AZ's Kees Smit greatly admired, and a young forward is also being sought.`\
-https://nytimes.com/athletic/6861692/2025/12/05/newcastle-transfer-news-january/
 
