@@ -1,3 +1,7 @@
+**Jeremy O. Harris Is Arrested in Japan on Suspicion of Smuggling Drugs**\
+`The Tony-nominated American playwright and actor has been in custody since airport customs officers found Ecstasy in his bag last month.`\
+https://nytimes.com/2025/12/05/theater/jeremy-harris-japan-arrest-drugs.html
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/12/05/crosswords/spelling-bee-forum.html
