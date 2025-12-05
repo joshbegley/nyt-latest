@@ -1,3 +1,8 @@
+**What's next for the Pirates after their first major transaction of the offseason?**\
+`The Bucs now have "The Password," but are still looking for other answers.
+`\
+https://nytimes.com/athletic/6864039/2025/12/04/pittsburgh-pirates-offseason-trade-jhostynxon-garcia/
+
 **Chivas finalizing $5 million deal for Fire's Brian Gutiérrez: Sources**\
 `Gutiérrez, 22, has already accrued 164 first-team appearances for the Fire.`\
 https://nytimes.com/athletic/6864064/2025/12/04/chivas-brian-gutierrez-fire/
