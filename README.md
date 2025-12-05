@@ -1,3 +1,7 @@
+**The Supreme Court, Once Wary of Partisan Gerrymandering, Goes All In**\
+`The court’s conservative majority said that Texas’ asserted political motives justified letting the state use voting maps meant to disadvantage Democrats in the midterms.`\
+https://nytimes.com/2025/12/05/us/politics/supreme-court-partisan-gerrymandering.html
+
 **Georgia seeking $390,000 in damages from DE Damon Wilson II over transfer**\
 `Georgia claims Wilson's transfer to Missouri terminated his name, image and likeness agreement with the Bulldogs’ collective.`\
 https://nytimes.com/athletic/6866399/2025/12/05/georgia-damon-wilson-transfer-damages/
@@ -33,8 +37,4 @@ https://nytimes.com/newsgraphics/card-story/the-nutcracker-new-york-city-ballet-
 **As Bongino Celebrates Arrest in Pipe Bomb Case, Others on the Right Remain Skeptical**\
 `Some activists have lashed out, in a reprise of the backlash over the unsuccessful effort by Trump appointees to shut down the Epstein investigation.`\
 https://nytimes.com/2025/12/05/us/politics/dan-bongino-pipe-bomb-arrest.html
-
-**Re-ranking all 64 teams now we know the World Cup draw**\
-`Our guide to the most likely winners and biggest outsiders for next summer's tournament in North America`\
-https://nytimes.com/athletic/6833349/2025/12/05/world-cup-draw-teams-ranked/
 
