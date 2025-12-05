@@ -1,3 +1,7 @@
+**Soungoutou Magassa emerges from the margins to take centre stage at West Ham**\
+`The French midfield struggled to get in the team until Nuno Espirito Santo took over. Now he has become integral`\
+https://nytimes.com/athletic/6862659/2025/12/05/soungoutou-magassa-emerges-from-the-margins-to-take-centre-stage-at-west-ham/
+
 **Word of the Day: exonerate**\
 `This word has appeared in 29 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/12/05/learning/word-of-the-day-exonerate.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/05/business/warner-brothers-discovery-netflix.html
 **The New York Times in Print for Friday, Dec. 5, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/12/05/todays-new-york-times
-
-**The Hidden Cost of Your Avocado**\
-`Cartel extortion is pushing up prices in Mexico — and becoming a political problem President Claudia Sheinbaum can’t ignore.`\
-https://nytimes.com/2025/12/05/opinion/mexico-sheinbaum-cartels-extortion-trump.html
 
