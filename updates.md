@@ -1,3 +1,7 @@
+**Second Strike Scrutiny Obscures Larger Question About Trump’s Boat Attacks**\
+`Congress is focusing on two deaths in one strike. But nine other people died in that same attack, and the United States has killed 83 in all. Were any of those killings legal?`\
+https://nytimes.com/2025/12/04/us/politics/trump-boat-attacks-killings.html
+
 **Penn State search shifting focus to Iowa State's Matt Campbell: Sources**\
 `Penn State's lengthy coaching search to replace James Franklin could be closing in on Matt Campbell, with some other names in the mix.`\
 https://nytimes.com/athletic/6863734/2025/12/04/matt-campbell-penn-state-coaching-search/
