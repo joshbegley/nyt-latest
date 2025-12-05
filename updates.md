@@ -1,3 +1,15 @@
+**Trump Administration Live Updates: Polls Show President’s Approval Rating Has Dipped**\
+``\
+https://nytimes.com/live/2025/12/05/us/trump-news
+
+**Brown: McLaren would be 'crazy' to not use team orders to win F1 championship**\
+`"We will race accordingly to do whatever we can to get whatever that driver is in front to try and win the race,” Brown explained Friday.`\
+https://nytimes.com/athletic/6865085/2025/12/05/mclaren-team-orders-norris-piastri/
+
+**Why the Battle for Warner Bros. Discovery May Not Be Over Yet**\
+`Netflix struck a deal to buy one of Hollywood’s most storied studios. But a scorned rival, and the Trump administration, may put up a fight.`\
+https://nytimes.com/2025/12/05/business/dealbook/netflix-warner-bros-discovery.html
+
 **The Clippers are in a bad spot with few options. And they're not alone**\
 `Several teams mortgaged their future draft assets for a shot at winning now. The bill is coming due.`\
 https://nytimes.com/athletic/6863872/2025/12/05/clippers-bucks-nba-future-draft-picks-trade/
