@@ -1,3 +1,7 @@
+**Tigers sign Drew Anderson from KBO on one-year deal**\
+`Anderson, who spent time in Detroit's organization in 2024 before heading to Korea, is expected to start for the Tigers.`\
+https://nytimes.com/athletic/6866583/2025/12/05/mlb-tigers-drew-anderson-contract/
+
 **Trumpism After Trump? Here Are Three Realities.**\
 `“Trumpism without Trump is going to move in different directions because Trumpism was always a somewhat amorphous set of half-baked ideas,” Bret Stephens says.`\
 https://nytimes.com/video/opinion/100000010559506/trumpism-after-trump-here-are-three-realities.html
