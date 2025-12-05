@@ -1,3 +1,7 @@
+**Ohio State signing 5-star WR Chris Henry Jr. after late Oregon push**\
+`Five-star wide receiver recruit Chris Henry Jr. is sticking with his commitment to Ohio State after Brian Hartline's departure for USF.`\
+https://nytimes.com/athletic/6865567/2025/12/05/chris-henry-jr-ohio-state-signed-recruiting/
+
 **Germany Passes Controversial Law to Boost Soldier Numbers**\
 `Amid rising tensions with Russia, German lawmakers approved a military draft law aimed at increasing the number of soldiers. Those opposing the law worry it’s a step toward compulsory conscription.`\
 https://nytimes.com/video/world/europe/100000010567479/germany-draft-law-military-conscription-.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6865228/2025/12/05/philippine-mens-curling-winter-o
 **UAB removes interim tag from coach Alex Mortensen, son of longtime ESPN reporter**\
 `Mortensen went 2-4 as interim coach following the Blazers' midseason firing of Trent Dilfer.`\
 https://nytimes.com/athletic/6861849/2025/12/05/uab-football-alex-mortensen-head-coach/
-
-**Shai Gilgeous-Alexander's unstoppable move and more NBA trends I'm watching**\
-`Gilgeous-Alexander was dangerous before, but now he's added a lethal stepback 3 to his bag of tricks. `\
-https://nytimes.com/athletic/6865225/2025/12/05/nba-trends-sga-thunder-hawks-raptors/
 
