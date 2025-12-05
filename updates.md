@@ -1,3 +1,5 @@
+
+
 **How to get tickets to World Cup 2026 matches in Los Angeles**\
 `SoFi Stadium will host eight games at next summer's men's soccer World Cup.`\
 https://nytimes.com/athletic/6841836/2025/12/05/world-cup-2026-tickets-los-angeles-draw-matches/
