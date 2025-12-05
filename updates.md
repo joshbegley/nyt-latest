@@ -1,3 +1,7 @@
+**Cavaliers fined $250,000 for second violation of NBA's rest policy**\
+`The Cavs were fined earlier this season for resting stars, after which coach Kenny Atkinson said he must "look at the Cavs' best interest."`\
+https://nytimes.com/athletic/6863481/2025/12/04/cavaliers-fine-darius-garland-injury/
+
 **Florida hires Georgia Tech offensive coordinator Buster Faulkner: Source**\
 `Faulkner was named earlier this week as one of 15 finalists for the Broyles Award, which goes to the nation’s top assistant.`\
 https://nytimes.com/athletic/6863399/2025/12/04/buster-faulkner-florida-georgia-tech-hire/
