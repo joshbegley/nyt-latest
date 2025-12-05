@@ -1,3 +1,7 @@
+**Versace’s Shocking Announcement**\
+`After one hit collection, the designer Dario Vitale will be leaving the brand. What’s going on?`\
+https://nytimes.com/2025/12/05/style/versace-dario-vitale-prada.html
+
 **Did a 'love bomb' from the 'cookie man' keep Kalani Sitake at BYU?**\
 `"We were all willing to be substantial in our help for BYU,” said McGowan, who deflected credit for being the sole reason Sitake stayed.`\
 https://nytimes.com/athletic/6863974/2025/12/05/byu-crumbl-jason-mcgowan-kalani-sitake/

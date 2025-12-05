@@ -1,3 +1,11 @@
+**Germany Passes Controversial Law to Boost Soldier Numbers**\
+`Amid rising tensions with Russia, German lawmakers approved a military draft law aimed at increasing the number of soldiers. Those opposing the law worry it’s a step toward compulsory conscription.`\
+https://nytimes.com/video/world/europe/100000010567479/germany-draft-law-military-conscription-.html
+
+**Paolo Banchero set to return to surging Magic after 10-game absence**\
+`Banchero averaged 21.7 points, 8.7 rebounds and 4.1 assists per game this season before his injury.`\
+https://nytimes.com/athletic/6865643/2025/12/05/paolo-banchero-injury-return-magic/
+
 **Versace’s Shocking Announcement**\
 `After one hit collection, the designer Dario Vitale will be leaving the brand. What’s going on?`\
 https://nytimes.com/2025/12/05/style/versace-dario-vitale-prada.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6861849/2025/12/05/uab-football-alex-mortensen-head
 **Shai Gilgeous-Alexander's unstoppable move and more NBA trends I'm watching**\
 `Gilgeous-Alexander was dangerous before, but now he's added a lethal stepback 3 to his bag of tricks. `\
 https://nytimes.com/athletic/6865225/2025/12/05/nba-trends-sga-thunder-hawks-raptors/
-
-**Ex-D.E.A. Agent Charged With Agreeing to Launder Millions for Cartel**\
-`The former agent, Paul Campo, laundered money for the Jalisco New Generation Cartel in Mexico, according to an indictment unsealed on Friday.`\
-https://nytimes.com/2025/12/05/nyregion/dea-agent-money-laundering-mexican-cartel.html
-
-**I Can’t Stop Thinking About a Primate’s Bathrobe. How Can I Find It?**\
-`We’re on the hunt for an outfit worn in the 1971 science-fiction movie “Escape from the Planet of the Apes.”`\
-https://nytimes.com/2025/12/05/t-magazine/planet-of-the-apes-bathrobe.html
 

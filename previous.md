@@ -1,3 +1,7 @@
+**Versace’s Shocking Announcement**\
+`After one hit collection, the designer Dario Vitale will be leaving the brand. What’s going on?`\
+https://nytimes.com/2025/12/05/style/versace-dario-vitale-prada.html
+
 **Did a 'love bomb' from the 'cookie man' keep Kalani Sitake at BYU?**\
 `"We were all willing to be substantial in our help for BYU,” said McGowan, who deflected credit for being the sole reason Sitake stayed.`\
 https://nytimes.com/athletic/6863974/2025/12/05/byu-crumbl-jason-mcgowan-kalani-sitake/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/05/nyregion/dea-agent-money-laundering-mexican-carte
 **I Can’t Stop Thinking About a Primate’s Bathrobe. How Can I Find It?**\
 `We’re on the hunt for an outfit worn in the 1971 science-fiction movie “Escape from the Planet of the Apes.”`\
 https://nytimes.com/2025/12/05/t-magazine/planet-of-the-apes-bathrobe.html
-
-**How Cocaine Became a Big Problem For Ecuador**\
-`As Washington made combating fentanyl a priority, cocaine trafficking surged — especially in Ecuador, where criminal groups have run rampant.`\
-https://nytimes.com/video/world/americas/100000010557913/how-cocaine-became-a-big-problem-for-ecuador.html
 
