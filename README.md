@@ -1,3 +1,7 @@
+**Bayern Munich's Davies could return against Mainz, Kompany says**\
+`The Canada international tore the anterior cruciate ligament in his right knee in March but he returned to full training two weeks ago. `\
+https://nytimes.com/athletic/6864689/2025/12/05/alphonso-davies-bayern-munich-injury-news/
+
 **Liverpool must get Isak more involved in games, Slot admits**\
 `The Sweden international only had 14 touches in 86 minutes in Wednesday night's draw with Sunderland.`\
 https://nytimes.com/athletic/6864721/2025/12/05/liverpool-alexander-isak-arne-slot/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/05/world/americas/ecuador-cocaine-trafficking.html
 **Trump’s Boat Strikes Corrode America’s Soul**\
 `We need to question the strikes’ legality. But we also need to see how they fit into the Trump administration’s larger effort to change America.`\
 https://nytimes.com/2025/12/05/opinion/trump-boat-strikes.html
-
-**What Zillow Won’t Tell You**\
-`When buyers can’t see the climate risks of prospective homes up front, they may take on more exposure than they can afford.`\
-https://nytimes.com/2025/12/05/opinion/zillow-redfin-flood-wildfire-risk.html
 
