@@ -1,12 +1,12 @@
-**England drawn to play Croatia at 2026 World Cup**\
+**England drawn to play Croatia, Panama at 2026 World Cup**\
 `England won all eight of their qualifying matches without conceding a goal.`\
 https://nytimes.com/athletic/6854701/2025/12/05/world-cup-draw-england-group-schedule-fixtures/
 
-**Argentina drawn to play Austria at 2026 World Cup**\
+**Argentina drawn to play Austria and Algeria at 2026 World Cup**\
 `The South American nation has progressed through the group stage in each of the last five tournaments, dating back to the 2002 tournament.`\
 https://nytimes.com/athletic/6854719/2025/12/05/world-cup-draw-argentina-group-schedule-fixtures/
 
-**Spain drawn to play Uruguay at 2026 World Cup**\
+**Spain drawn to play Uruguay and Saudi Arabia at 2026 World Cup**\
 `Luis de la Fuente's side learned its opponents at Friday's World Cup draw at the Kennedy Center in Washington, D.C.`\
 https://nytimes.com/athletic/6854828/2025/12/05/world-cup-draw-spain-group-schedule-fixtures/
 
