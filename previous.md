@@ -1,40 +1,40 @@
-**Bayern Munich's Davies could return against Mainz, Kompany says**\
-`The Canada international tore the anterior cruciate ligament in his right knee in March but he returned to full training two weeks ago. `\
-https://nytimes.com/athletic/6864689/2025/12/05/alphonso-davies-bayern-munich-injury-news/
+**Air Traffic Control Issue Grounds All Flights at Edinburgh Airport**\
+`The airport, Scotland’s busiest, said it was experiencing a technical problem with its air traffic control provider.`\
+https://nytimes.com/2025/12/05/world/europe/edinburgh-airport-flights-grounded-uk.html
 
-**Liverpool must get Isak more involved in games, Slot admits**\
-`The Sweden international only had 14 touches in 86 minutes in Wednesday night's draw with Sunderland.`\
-https://nytimes.com/athletic/6864721/2025/12/05/liverpool-alexander-isak-arne-slot/
+**A Roman holiday bonded Cade Cunningham and Jalen Duren — and it’s paying off for Pistons**\
+`The pair spent time together in Colorado and Dallas, too, but their Rome excursion was on another level.`\
+https://nytimes.com/athletic/6858595/2025/12/05/cade-cunningham-jalen-duren-pistons-travel-rome/
 
-**Wissa could make first Newcastle squad vs. Burnley, Tonali to be assessed**\
-`Wissa hasn't played for Newcastle since joining on deadline day while Tonali sustained an injury during the 2-2 draw with Spurs on Tuesday.`\
-https://nytimes.com/athletic/6864687/2025/12/05/newcastle-team-news-wissa-tonali-burnley/
+**Arsenal's Mosquera set for scan on 'complicated' medical injury - Arteta**\
+`Mosquera sustained the injury after landing awkwardly during his side's 2-0 victory over Brentford on Wednesday.`\
+https://nytimes.com/athletic/6859578/2025/12/05/arsenal-news-injury-mosquera-scan-ankle/
 
-**What We Know About the Arrest in the D.C. Pipe Bomb Case**\
-`The arrest came after years of false leads and speculation over who planted the bombs near the Capitol before the Jan. 6 riot.`\
-https://nytimes.com/2025/12/05/us/politics/dc-pipe-bomb-arrest-suspect.html
+**AFC North Whiparound: Could the Bengals, Ravens or Steelers be a dangerous playoff team?**\
+`A healthy Burrow, that collection of weapons and an improving offensive line makes the Bengals the division's most dangerous team.`\
+https://nytimes.com/athletic/6862623/2025/12/05/afc-north-champion-bengals-ravens-playoff-run/
 
-**Week 14 fantasy football intel, predictions using player prop lines**\
-`Brad Evans scours sportsbooks to find intel that applies to fantasy football. This week he likes C.J. Stroud, Brenton Strange and others.`\
-https://nytimes.com/athletic/6862273/2025/12/05/fantasy-football-week-14-props-intel/
+**Who hired the best American Conference coach? Sumrall vs. Silverfield vs. Golesh vs. Morris**\
+`How Florida's Jon Sumrall, Arkansas' Ryan Silverfield, Auburn's Alex Golesh and Oklahoma State's Eric Morris stack up as coaching hires.`\
+https://nytimes.com/athletic/6863077/2025/12/05/american-conference-championship-coach-hires/
 
-**The New York Times News Quiz, Dec. 5, 2025**\
-`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
-https://nytimes.com/interactive/2025/12/05/briefing/quiz-trump-floods-honduras.html
+**The Jets are on a historic interception-less streak. Why?**\
+`They’ve already set an NFL record for most games without an interception to start a season.`\
+https://nytimes.com/athletic/6863385/2025/12/05/new-york-jets-no-interception-streak/
 
-**Fans Are Obsessed With This Celebrity Couple. They Star in ‘Zootopia.’**\
-`WildeHopps, a.k.a. the fox and bunny at the heart of the franchise, has inspired a YouTube movie, TikToks, fancams and more. The obsession goes deep (and sometimes weird).`\
-https://nytimes.com/2025/12/05/movies/zootopia-fans-nick-wilde-judy-hopps.html
+**It turns out, the Steelers have more tight ends than they know what to do with**\
+`Pat Freiermuth and Jonnu Smith haven't been on the field much considering their high-end salaries.`\
+https://nytimes.com/athletic/6863952/2025/12/05/pittsburgh-steelers-tight-ends-pat-freiermuth-jonnu-smith/
 
-**Can You Grab Seats Before Ordering Your Food?**\
-`A ruling on a counter-service dispute.`\
-https://nytimes.com/interactive/2025/12/05/magazine/table-squatting-hodgman-quiz.html
+**Winter Meetings wish list: Kyle Tucker to the Yankees, Tarik Skubal to the Dodgers and more**\
+`Cody Bellinger to Pittsburgh, Kyle Schwarber to Cincinnati and Hunter Greene to Boston are just some of the wishes for this year's meetings.`\
+https://nytimes.com/athletic/6859043/2025/12/05/mlb-winter-meetings-wish-list-kyle-tucker-tarik-skubal-trades-signings-awards/
 
-**How the U.S. Focus on Fentanyl Helped Fuel the Cocaine Trade’s Resurgence**\
-`Across Latin America, there has been a surge in cocaine trafficking as Washington prioritized combating fentanyl. Times reporters traveled to Ecuador to see how criminal groups are wreaking havoc.`\
-https://nytimes.com/2025/12/05/world/americas/ecuador-cocaine-trafficking.html
+**Derek Bender, prospect accused of giving away team's pitches, reinstated after discipline**\
+`Bender, a catcher, was accused of telling opposing hitters what pitches were coming so that his team's long season could end early. `\
+https://nytimes.com/athletic/6863480/2025/12/05/derek-bender-catcher-pitch-tipping-discipline-reinstatement/
 
-**Trump’s Boat Strikes Corrode America’s Soul**\
-`We need to question the strikes’ legality. But we also need to see how they fit into the Trump administration’s larger effort to change America.`\
-https://nytimes.com/2025/12/05/opinion/trump-boat-strikes.html
+**The offensive line coach so extraordinary, his adoring players can hardly put him into words**\
+`Kromer's current and former players say he's made or revived their careers.`\
+https://nytimes.com/athletic/6860689/2025/12/05/buffalo-bills-offensive-line-coach-aaron-kromer/
 
