@@ -1,3 +1,11 @@
+**Tottenham's Frank urges patience with summer signing Simons**\
+`The head coach said the north London club are trying to become a "well-oiled engine that's impossible to stop".`\
+https://nytimes.com/athletic/6864837/2025/12/05/xavi-simons-tottenham-hotspur-frank-belief/
+
+**Trump, the Village People, and some football: Welcome to FIFA’s carnival of cringe**\
+`A bizarre World Cup fever dream played out in Washington DC, memorable for all the wrong reasons`\
+https://nytimes.com/athletic/6866233/2025/12/05/world-cup-draw-trump-village-people/
+
 **Twelve things we learnt from the World Cup draw ft. deadpan Shaq, revenge and a GOAT derby?**\
 `While it was an often surreal World Cup draw, there are some things we learnt from the Kennedy Center. Tim Spiers breaks them down...`\
 https://nytimes.com/athletic/6865989/2025/12/05/world-cup-draw-what-we-learnt/
