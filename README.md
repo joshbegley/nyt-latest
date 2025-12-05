@@ -1,3 +1,19 @@
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/12/05/crosswords/spelling-bee-forum.html
+
+**Big Pants**\
+`Tell us a story, real or made up, that is inspired by this image.`\
+https://nytimes.com/2025/12/05/learning/big-pants.html
+
+**Dashing Through a Season of Holiday Movies**\
+`For one writer, putting together her annual roundup of streaming holiday movies requires open-mindedness — and a high tolerance for candy-coated clichés.`\
+https://nytimes.com/2025/12/05/insider/new-holiday-movies-streaming.html
+
+**Rich New Yorkers Are Again Threatening to Leave. Here’s Why They Don’t.**\
+`Tax accountants and lawyers detail the arduous process wealthy New Yorkers would have to face to avoid paying New York State and city taxes.`\
+https://nytimes.com/2025/12/05/nyregion/nyc-income-tax-rich.html
+
 **Man United keep giving away leads - are Amorim's substitutions part of the problem?**\
 `Is Manchester United's coach being too conservative in which players he sends on when his team is ahead?`\
 https://nytimes.com/athletic/6864032/2025/12/05/manchester-united-subs-ruben-amorim/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/12/05/movies/cary-hiroyuki-tagawa-dead.html
 **Wild get 'outplayed' as 12-game point streak ends with a dud in Calgary: Takeaways**\
 `The lowly Flames (ranked 31st in the NHL) were the better team in all areas, from five-on-five to special teams and goaltending.`\
 https://nytimes.com/athletic/6864308/2025/12/05/wild-get-outplayed-as-12-game-point-streak-ends-with-a-dud-in-calgary-takeaways/
-
-**Late VJ Edgecombe putback, Tyrese Maxey block seal dramatic 76ers win over Warriors**\
-`Philadelphia played one of its best halves of basketball of the season, lost its 24-point lead and then won 99-98.`\
-https://nytimes.com/athletic/6864106/2025/12/05/76ers-tyrese-maxey-vj-edgecombe-warriors/
-
-**Pat Spencer is the hot hand the Warriors need with Stephen Curry out**\
-`The two-way player has given gimpy Golden State a spark, and has earned Steve Kerr's confidence and more minutes.`\
-https://nytimes.com/athletic/6864306/2025/12/05/pat-spencer-is-the-hot-hand-the-warriors-need-with-stephen-curry-out/
-
-**LeBron's scoring streak ends. He says his assist was 'the perfect way' to go out**\
-`James wrote his own ending, wrapping up a streak that began 15 days after Dallas Mavericks rookie Cooper Flagg was born.`\
-https://nytimes.com/athletic/6864270/2025/12/05/lebron-james-scoring-streak-ends/
-
-**Warner Bros. Discovery Said to Be in Exclusive Talks With Netflix**\
-`Netflix would acquire Warner television and film studios as well as HBO Max in a deal that would bulk up the world’s biggest paid streaming service.`\
-https://nytimes.com/2025/12/05/business/warner-brothers-discovery-netflix.html
 

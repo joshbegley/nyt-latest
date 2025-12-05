@@ -1,3 +1,7 @@
+**Man United keep giving away leads - are Amorim's substitutions part of the problem?**\
+`Is Manchester United's coach being too conservative in which players he sends on when his team is ahead?`\
+https://nytimes.com/athletic/6864032/2025/12/05/manchester-united-subs-ruben-amorim/
+
 **Late VJ Edgecombe putback, Tyrese Maxey block seal dramatic 76ers win over Warriors**\
 `Philadelphia played one of its best halves of basketball of the season, lost its 24-point lead and then won 99-98.`\
 https://nytimes.com/athletic/6864106/2025/12/05/76ers-tyrese-maxey-vj-edgecombe-warriors/
