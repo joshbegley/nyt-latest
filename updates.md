@@ -1,3 +1,19 @@
+**Bayern Munich's Davies could return against Mainz, Kompany says**\
+`The Canada international tore the anterior cruciate ligament in his right knee in March but he returned to full training two weeks ago. `\
+https://nytimes.com/athletic/6864689/2025/12/05/alphonso-davies-bayern-munich-injury-news/
+
+**Liverpool must get Isak more involved in games, Slot admits**\
+`The Sweden international only had 14 touches in 86 minutes in Wednesday night's draw with Sunderland.`\
+https://nytimes.com/athletic/6864721/2025/12/05/liverpool-alexander-isak-arne-slot/
+
+**Wissa could make first Newcastle squad vs. Burnley, Tonali to be assessed**\
+`Wissa hasn't played for Newcastle since joining on deadline day while Tonali sustained an injury during the 2-2 draw with Spurs on Tuesday.`\
+https://nytimes.com/athletic/6864687/2025/12/05/newcastle-team-news-wissa-tonali-burnley/
+
+**What We Know About the Arrest in the D.C. Pipe Bomb Case**\
+`The arrest came after years of false leads and speculation over who planted the bombs near the Capitol before the Jan. 6 riot.`\
+https://nytimes.com/2025/12/05/us/politics/dc-pipe-bomb-arrest-suspect.html
+
 **Week 14 fantasy football intel, predictions using player prop lines**\
 `Brad Evans scours sportsbooks to find intel that applies to fantasy football. This week he likes C.J. Stroud, Brenton Strange and others.`\
 https://nytimes.com/athletic/6862273/2025/12/05/fantasy-football-week-14-props-intel/
