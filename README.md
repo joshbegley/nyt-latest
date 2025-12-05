@@ -1,3 +1,7 @@
+**Jimmy Kimmel Thanks Trump for Google Superstardom in 2025**\
+`The host said he wouldn’t have been the third-most-trending person in Google searches this year “without the support of loyal viewers” like the president.`\
+https://nytimes.com/2025/12/05/arts/television/jimmy-kimmel-trump-2025-google.html
+
 **Cary-Hiroyuki Tagawa, ‘The Last Emperor’ and ‘Mortal Kombat’ Actor, Dies at 75**\
 `The actor, born in Japan, starred in dozens of film and television shows, including Amazon’s “The Man in the High Castle.” His career spanned more than three decades.`\
 https://nytimes.com/2025/12/05/movies/cary-hiroyuki-tagawa-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/05/opinion/mexico-sheinbaum-cartels-extortion-trump.
 **"We hope Liverpool give him time" - watching Arne Slot's struggles from Rotterdam**\
 `The Liverpool head coach is revered in Rotterdam after success at Feyenoord - and surprise at his problems this season at Anfield  `\
 https://nytimes.com/athletic/6861183/2025/12/05/arne-slot-liverpool-feyenoord-rotterdam/
-
-**Chelsea and their costly bad habits**\
-`Enzo Maresca’s side pressed the self-destruct button against Leeds — and not for the first time this season`\
-https://nytimes.com/athletic/6861900/2025/12/05/chelsea-enzo-maresca-errors/
 
