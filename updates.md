@@ -1,3 +1,7 @@
+**Florida hires Georgia Tech offensive coordinator Buster Faulkner: Source**\
+`Faulkner was named earlier this week as one of 15 finalists for the Broyles Award, which goes to the nation’s top assistant.`\
+https://nytimes.com/athletic/6863399/2025/12/04/buster-faulkner-florida-georgia-tech-hire/
+
 **How to Find a Date in a Country With Over 30 Million Extra Men**\
 `A decade after the end of the one-child policy, China has over 30 million so-called surplus men. Can this dating boot camp help them find love?`\
 https://nytimes.com/2025/12/04/opinion/china-dating-men-one-child-policy.html

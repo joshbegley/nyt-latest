@@ -1,3 +1,7 @@
+**Florida hires Georgia Tech offensive coordinator Buster Faulkner: Source**\
+`Faulkner was named earlier this week as one of 15 finalists for the Broyles Award, which goes to the nation’s top assistant.`\
+https://nytimes.com/athletic/6863399/2025/12/04/buster-faulkner-florida-georgia-tech-hire/
+
 **How to Find a Date in a Country With Over 30 Million Extra Men**\
 `A decade after the end of the one-child policy, China has over 30 million so-called surplus men. Can this dating boot camp help them find love?`\
 https://nytimes.com/2025/12/04/opinion/china-dating-men-one-child-policy.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6862873/2025/12/04/rio-ferdinand-fox-world-cup/
 **5 New and Renewed Hotels in the Caribbean**\
 `From Antigua to Grenada, many of the region’s most inviting recent openings are in less expected areas.`\
 https://nytimes.com/2025/12/04/t-magazine/hotels-resorts-caribbean.html
-
-**Tim Walz Calls Trump’s Tirade Against Somalis in Minnesota ‘Vile’**\
-`Minnesota’s governor said the president’s xenophobic remarks were dangerous as the state continued to face fiscal questions about a fraud scandal.`\
-https://nytimes.com/2025/12/04/us/tim-walz-trump-somalia-minnesota.html
 
