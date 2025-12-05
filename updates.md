@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6864039/2025/12/04/pittsburgh-pirates-offseason-trade-jhostynxon-garcia/
 
+**What's next for the Pirates after their first major transaction of the offseason?**\
+`The Bucs now have "The Password," but are still looking for other answers.
+`\
+https://nytimes.com/athletic/6864039/2025/12/04/pittsburgh-pirates-offseason-trade-jhostynxon-garcia/
+
 **Pirates crack the code in acquiring Boston's Jhostynxon Garcia in trade for Johan Oviedo**\
 `Oviedo's ceiling is probably as a No. 5 starter but Adonys Guzman is a good get for Boston and García is the big prize for Pittsburgh.`\
 https://nytimes.com/athletic/6864111/2025/12/04/pirates-red-sox-trade-analysis-jhostynxon-garcia-johan-oviedo/
