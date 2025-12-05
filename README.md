@@ -1,3 +1,7 @@
+**Putin Receives Warm Welcome in India**\
+`Prime Minister Narendra Modi of India praised his relationship with President Vladimir V. Putin of Russia after the two leaders held bilateral talks in New Delhi on Friday.`\
+https://nytimes.com/video/world/asia/100000010567051/putin-modi-india-russia.html
+
 **England have handed Australia the initiative. The Ashes are drifting away**\
 `Three years of planning appear to have been undermined by only four days of cricket as England, already 1-0 down, play catch-up at the Gabba`\
 https://nytimes.com/athletic/6865064/2025/12/05/england-australia-stokes-carse-smith-ashes/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/05/world/americas/trump-maduro-venezuela-president.h
 **Four fantasy 'busts' that could go nuclear in the playoffs**\
 `Plus, Andy Behrens provides a confidence boost for fantasy managers of Lamar Jackson.`\
 https://nytimes.com/athletic/6865148/2025/12/05/fantasy-football-four-busts-best-playoff-starters/
-
-**The Pittsburgh Symphony Plays How an Orchestra Should Sound**\
-`Under its music director, Manfred Honeck, the ensemble returned to Carnegie Hall for the first time in over a decade, flying in on a high.`\
-https://nytimes.com/2025/12/05/arts/music/pittsburgh-symphony-manfred-honeck.html
 
