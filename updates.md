@@ -1,3 +1,11 @@
+**World Cup 2026 host city guides: What to do, eat and see, from Atlanta to Vancouver**\
+`Our team of writers from across the United States, Canada and Mexico delve deep into what the 16 host cities have to offer for visiting fans`\
+https://nytimes.com/athletic/6835792/2025/12/05/world-cup-2026-city-guides/
+
+**Jahmyr Gibbs scores 3 touchdowns as Lions beat Cowboys: Takeaways**\
+`Jahmyr Gibbs scored three touchdowns as the Lions defeated the Cowboys 44-30 in a crucial NFC showdown Thursday night.`\
+https://nytimes.com/athletic/6863559/2025/12/05/cowboys-lions-score-result-takeaways-thursday-night-football/
+
 **World Cup draw preview, predictions and potential match-ups**\
 `As the football world awaits the World Cup draw, we make our predictions and tell you what you need to know about the Washington, D.C. event`\
 https://nytimes.com/athletic/6855000/2025/12/05/world-cup-draw-2026-preview-predictions-analysis-reaction/

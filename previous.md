@@ -1,3 +1,7 @@
+**World Cup 2026 host city guides: What to do, eat and see, from Atlanta to Vancouver**\
+`Our team of writers from across the United States, Canada and Mexico delve deep into what the 16 host cities have to offer for visiting fans`\
+https://nytimes.com/athletic/6835792/2025/12/05/world-cup-2026-city-guides/
+
 **World Cup draw preview, predictions and potential match-ups**\
 `As the football world awaits the World Cup draw, we make our predictions and tell you what you need to know about the Washington, D.C. event`\
 https://nytimes.com/athletic/6855000/2025/12/05/world-cup-draw-2026-preview-predictions-analysis-reaction/
@@ -18,8 +22,8 @@ https://nytimes.com/athletic/6861212/2025/12/05/tyler-adams-kenny-mclean-richarl
 `The Leafs' crease took another hit this season when Woll left Thursday's game in Carolina with an injury. Can the team effectively adjust?`\
 https://nytimes.com/athletic/6864168/2025/12/05/maple-leafs-joseph-woll-injury-hurricanes/
 
-**Jahmry Gibbs scores 3 touchdowns as Lions beat Cowboys: takeaways**\
-`Jahmyr Gibbs scored three touchdowns as the Detroit Lions defeated the Dallas Cowboys 44-30 in a crucial NFC showdown Thursday night.`\
+**Jahmyr Gibbs scores 3 touchdowns as Lions beat Cowboys: Takeaways**\
+`Jahmyr Gibbs scored three touchdowns as the Lions defeated the Cowboys 44-30 in a crucial NFC showdown Thursday night.`\
 https://nytimes.com/athletic/6863559/2025/12/05/cowboys-lions-score-result-takeaways-thursday-night-football/
 
 **Los Angeles World Cup 2026 guide: What to do, eat and see**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6787746/2025/12/05/boston-world-cup-2026-guide/
 **Mexico City World Cup 2026 guide: What to do, eat and see**\
 `Everything you need to know as the city prepares to host World Cup games, from its sporting history to the best places to eat and drink`\
 https://nytimes.com/athletic/6787785/2025/12/05/mexico-city-world-cup-2026-guide/
-
-**Miami World Cup 2026 guide: What to do, eat and see**\
-`Everything you need to know as the city prepares to host World Cup games, from its sporting history to the best places to eat and drink`\
-https://nytimes.com/athletic/6787789/2025/12/05/miami-world-cup-2026-guide/
 

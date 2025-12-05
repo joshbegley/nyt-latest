@@ -1,3 +1,27 @@
+**FPL GW15 preview: Newcastle’s swing, Bournemouth go south, and Pep roulette**\
+`With AFCON around the corner and FPL managers receiving five free transfers after the deadline, this is a crucial week to take advantage`\
+https://nytimes.com/athletic/6859745/2025/12/05/fantasy-premier-league-gameweek-15-fpl-tips/
+
+**Breaking down what's going wrong with Tottenham's defending under Thomas Frank**\
+`Poor pressing, shots not being blocked, and midfielders being dragged wide are just three of the issues impacting Tottenham this season`\
+https://nytimes.com/athletic/6861817/2025/12/05/tottenham-defensive-issues-thomas-frank/
+
+**World Cup 2026: 48 places, 64 teams. Why we will not know the full draw**\
+`The 2026 World Cup will be the biggest in history with 48 countries competing - but 64 teams will be in Friday's draw`\
+https://nytimes.com/athletic/6855214/2025/12/05/world-cup-draw-teams-qualified-playoffs-watch/
+
+**Crystal Palace Transfer DealSheet: What to expect in 2026**\
+`Crystal Palace have key windows ahead of them as Oliver Glasner wants them to improve the squad`\
+https://nytimes.com/athletic/6849245/2025/12/05/crystal-palace-transfer-latest-january-summer-2026/
+
+**Everton are down to the bare bones but that has delivered an unexpected benefit**\
+`A series of enforced changes from manager David Moyes resulted in a team that played with more balance and creativity`\
+https://nytimes.com/athletic/6861465/2025/12/05/everton-moyes-injury-crisis/
+
+**Madueke and the importance of Arsenal's 'Bible Brothers': 'We believe we have God fighting for us'**\
+`Arsenal are pushing for the Premier League title and at the heart of their squad area group of players who are open and proud of their faith`\
+https://nytimes.com/athletic/6862688/2025/12/05/noni-madueke-arsenal-christian-players/
+
 **World Cup 2026 host city guides: What to do, eat and see, from Atlanta to Vancouver**\
 `Our team of writers from across the United States, Canada and Mexico delve deep into what the 16 host cities have to offer for visiting fans`\
 https://nytimes.com/athletic/6835792/2025/12/05/world-cup-2026-city-guides/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6861181/2025/12/05/premier-league-predictions-md15/
 **The Alternative Premier League Table: No 15 — The impact of substitutes**\
 `Who are the masters of the in-game switch and who are the managers who are not getting the most from their bench?`\
 https://nytimes.com/athletic/6861536/2025/12/05/the-alternative-premier-league-table-substitutes/
-
-**Tyler Adams, Kenny McLean, Richarlison and more: Why so many halfway line goals?**\
-`Has there really been an increase in goals from extreme long-range? And if so, what is causing it? The Athletic investigates`\
-https://nytimes.com/athletic/6861212/2025/12/05/tyler-adams-kenny-mclean-richarlison-halfway-line-goals/
-
-**Joseph Woll injury is latest mystery — and nightmare — for Leafs' crease**\
-`The Leafs' crease took another hit this season when Woll left Thursday's game in Carolina with an injury. Can the team effectively adjust?`\
-https://nytimes.com/athletic/6864168/2025/12/05/maple-leafs-joseph-woll-injury-hurricanes/
-
-**Jahmyr Gibbs scores 3 touchdowns as Lions beat Cowboys: Takeaways**\
-`Jahmyr Gibbs scored three touchdowns as the Lions defeated the Cowboys 44-30 in a crucial NFC showdown Thursday night.`\
-https://nytimes.com/athletic/6863559/2025/12/05/cowboys-lions-score-result-takeaways-thursday-night-football/
-
-**Los Angeles World Cup 2026 guide: What to do, eat and see**\
-`Everything you need to know as the city prepares to host World Cup games, from its sporting history to the best places to eat and drink`\
-https://nytimes.com/athletic/6787778/2025/12/05/los-angeles-world-cup-2026-guide/
-
-**Boston World Cup 2026 guide: What to do, eat and see**\
-`Everything you need to know as the city prepares to host World Cup games, from its sporting history to the best places to eat and drink`\
-https://nytimes.com/athletic/6787746/2025/12/05/boston-world-cup-2026-guide/
-
-**Mexico City World Cup 2026 guide: What to do, eat and see**\
-`Everything you need to know as the city prepares to host World Cup games, from its sporting history to the best places to eat and drink`\
-https://nytimes.com/athletic/6787785/2025/12/05/mexico-city-world-cup-2026-guide/
 
