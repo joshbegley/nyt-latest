@@ -1,3 +1,11 @@
+**ICE Arrests Harvard Professor Charged for Shooting a Pellet Gun**\
+`Carlos Portugal Gouvea, a visiting law professor from Brazil, said he would leave the country rather than be deported, according to federal officials. He was arrested after firing a pellet gun near a synagogue.`\
+https://nytimes.com/2025/12/05/us/ice-harvard-carlots-portugal-pellet-gun.html
+
+**Dancing Babies and Toddlers Are Teaching the Pros a Thing or Two**\
+`Everyone loves tiny dancers. Now some artists are considering why they bring us such joy — and what lessons they might have for grown-ups.`\
+https://nytimes.com/2025/12/05/arts/dance/baby-toddler-raves-professional-dancers.html
+
 **Post-Trump, What Happens to His War Chest? Utah Offers One Clue.**\
 `A Trump-aligned political group is quietly spending millions to help state Republicans have a friendlier House map in 2028 — not in 2026, as with all of his other redistricting efforts.`\
 https://nytimes.com/2025/12/05/us/politics/trump-utah-map-2028-house-seat.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/americas/100000010557913/how-cocaine-became-a-bi
 **How to watch Lakers vs. Celtics: Time, TV, streaming**\
 `Find out how to watch the Los Angeles Lakers play the Boston Celtics, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6865559/2025/12/05/lakers-vs-celtics-stream-how-to-watch-dec-5/
-
-**How to watch Heat vs. Magic: Time, TV, streaming**\
-`Find out how to watch the Miami Heat play the Orlando Magic, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6865555/2025/12/05/heat-vs-magic-stream-how-to-watch-dec-5/
-
-**How to watch Sabres vs. Jets: Time, TV, streaming**\
-`Find out how to watch the Buffalo Sabres play the Winnipeg Jets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6865551/2025/12/05/sabres-vs-jets-stream-how-to-watch-dec-5/
 
