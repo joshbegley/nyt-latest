@@ -30,7 +30,3 @@ https://nytimes.com/athletic/6866128/2025/12/05/nuggets-vs-hawks-stream-how-to-w
 `Find out how to watch the Dallas Mavericks play the Oklahoma City Thunder, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6866125/2025/12/05/mavericks-vs-thunder-stream-how-to-watch-dec-5/
 
-**How to watch Spurs vs. Cavaliers: Time, TV, streaming**\
-`Find out how to watch the San Antonio Spurs play the Cleveland Cavaliers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6866126/2025/12/05/spurs-vs-cavaliers-stream-how-to-watch-dec-5/
-
