@@ -1,3 +1,7 @@
+**Cheesy Baked Cauliflower**\
+`A person could, in theory, just pour cream over cauliflower, drape it with cheese, bake it and be happy with the results.`\
+https://nytimes.com/video/dining/100000010559102/cheesy-baked-cauliflower.html
+
 **England's Tuchel say he may keep substitutes indoors during World Cup to avoid heat**\
 `A recent report found that 10 of the 16 venues at the tournament are at "very high risk of experiencing extreme heat stress conditions." `\
 https://nytimes.com/athletic/6864620/2025/12/05/thomas-tuchel-england-heat-world-cup/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6864032/2025/12/05/manchester-united-subs-ruben-amo
 **Soungoutou Magassa emerges from the margins to take centre stage at West Ham**\
 `The French midfield struggled to get in the team until Nuno Espirito Santo took over. Now he has become integral`\
 https://nytimes.com/athletic/6862659/2025/12/05/soungoutou-magassa-emerges-from-the-margins-to-take-centre-stage-at-west-ham/
-
-**Word of the Day: exonerate**\
-`This word has appeared in 29 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/12/05/learning/word-of-the-day-exonerate.html
 

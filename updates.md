@@ -1,3 +1,11 @@
+**England's Tuchel say he may keep substitutes indoors during World Cup to avoid heat**\
+`A recent report found that 10 of the 16 venues at the tournament are at "very high risk of experiencing extreme heat stress conditions." `\
+https://nytimes.com/athletic/6864620/2025/12/05/thomas-tuchel-england-heat-world-cup/
+
+**Detroit Lions Beat Dallas Cowboys in Key Late-Season Matchup**\
+`The Detroit Lions’ 44-30 home win against the Dallas Cowboys was critical for a spot in the playoffs.`\
+https://nytimes.com/video/sports/football/100000010567096/detroit-lions-beat-dallas-cowboys-in-key-late-season-matchup.html
+
 **Jeremy O. Harris Is Arrested in Japan on Suspicion of Smuggling Drugs**\
 `The Tony-nominated American playwright and actor has been in custody since airport customs officers found Ecstasy in his bag last month.`\
 https://nytimes.com/2025/12/05/theater/jeremy-harris-japan-arrest-drugs.html
