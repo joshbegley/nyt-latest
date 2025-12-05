@@ -1,3 +1,7 @@
+**Collin Klein hired as Kansas State coach after Chris Klieman's retirement**\
+`Klieman announced his retirement Wednesday after seven seasons leading the Wildcats.`\
+https://nytimes.com/athletic/6863945/2025/12/04/collin-klein-kansas-state-texas-am-chris-klieman/
+
 **Investigators Find Human Remains Buried at a San Diego Home**\
 `Prosecutors are looking at potential connections to a former resident, who faces a murder charge in another case.`\
 https://nytimes.com/2025/12/04/us/human-remains-investigation-san-diego-home.html
