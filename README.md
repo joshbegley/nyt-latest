@@ -1,3 +1,7 @@
+**Second Strike Scrutiny Obscures Larger Question About Trump’s Boat Attacks**\
+`Congress is focusing on two deaths in one strike. But nine other people died in that same attack, and the United States has killed 83 in all. Were any of those killings legal?`\
+https://nytimes.com/2025/12/04/us/politics/trump-boat-attacks-killings.html
+
 **Penn State search shifting focus to Iowa State's Matt Campbell: Sources**\
 `Penn State's lengthy coaching search to replace James Franklin could be closing in on Matt Campbell, with some other names in the mix.`\
 https://nytimes.com/athletic/6863734/2025/12/04/matt-campbell-penn-state-coaching-search/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/04/nyregion/brownsville-missing-child-nyc.html
 **Post announcing Jets vs. Canadiens in 2026 NHL Heritage Classic taken down**\
 `The date, location and teams involved went live on Thursday, but were quickly taken down.`\
 https://nytimes.com/athletic/6863358/2025/12/04/nhl-heritage-classic-jets-canadiens-2026/
-
-**Cavaliers fined $250,000 for second violation of NBA's rest policy**\
-`The Cavs were fined earlier this season for resting stars, after which coach Kenny Atkinson said he must "look at the Cavs' best interest."`\
-https://nytimes.com/athletic/6863481/2025/12/04/cavaliers-fine-darius-garland-injury/
 
