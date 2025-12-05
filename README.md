@@ -1,3 +1,15 @@
+**gws-michael-ovitz-home-art-collection**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/michael-ovitz-home-art-collection
+
+**USA's 2026 World Cup group draw a best-case scenario full of possibility**\
+`The U.S. drew familiar opponents and ones it just beat as part of World Cup prep. The expectations for next summer are now on the rise`\
+https://nytimes.com/athletic/6866244/2025/12/05/usmnt-world-cup-group-draw-outlook-paraguay-australia/
+
+**Ty Simpson's brother, Graham, throws 7 touchdowns in state championship victory**\
+`Graham Simpson’s standout title game reminded fans of Alabama QB Ty Simpson.`\
+https://nytimes.com/athletic/6866047/2025/12/05/ty-simpson-brother-graham-westview-tennessee-state-championship/
+
 **Dresden, Germany **\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/things-to-do-dresden
@@ -17,16 +29,4 @@ https://nytimes.com/video/us/politics/100000010568678/fifa-trump-peace-prize.htm
 **Erik Bulatov, Russian Painter Who Undermined Soviet Propaganda, Dies at 92**\
 `For years he lived a double life, secretly making anti-Communist paintings. He found fame in the late 1980s, once his work was shown outside the Soviet Union.`\
 https://nytimes.com/2025/12/05/arts/erik-bulatov-dead.html
-
-**Explained: Who can still qualify for the World Cup via the playoffs?**\
-`Breaking down which teams are still hoping to secure a place in the USA, Canada and Mexico`\
-https://nytimes.com/athletic/6866032/2025/12/05/european-fifa-playoff-2026-world-cup-qualifying/
-
-**What Scientists Found When a Deep Sea Mining Company Invited Them In**\
-`An ocean-mining company has funded some of the most comprehensive scientific studies to date, and peer-reviewed results have begun to emerge.`\
-https://nytimes.com/2025/12/05/climate/deep-sea-mining-ecosystem.html
-
-**Olivia Nuzzi and Vanity Fair Will Part Ways**\
-`Condé Nast, the magazine’s parent company, said her contract would expire at the end of the year.`\
-https://nytimes.com/2025/12/05/business/media/vanity-fair-olivia-nuzzi.html
 
