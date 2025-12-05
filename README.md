@@ -1,3 +1,11 @@
+**War and Peace: A Day of Cognitive Dissonance in Trump’s Washington**\
+`President Trump presided over a Congo-Rwanda peace deal on the same day his administration was being questioned about potential war crimes.`\
+https://nytimes.com/2025/12/04/us/politics/trump-congo-rwanda-boat-strikes.html
+
+**Red Sox add to rotation, land Johan Oviedo in trade with Pirates: Sources**\
+`In exchange, the Red Sox will send outfielder Jhostynxon Garcia and pitcher Jesus Travieso back to Pittsburgh.`\
+https://nytimes.com/athletic/6863650/2025/12/04/red-sox-pirates-trade-johan-oviedo/
+
 **What I'm Hearing: Timo Werner, coaching changes, transfers as MLS Cup approaches**\
 `From coaching news to the trade market and potential January transfers, here's the latest in the world of MLS.`\
 https://nytimes.com/athletic/6862883/2025/12/04/wicky-werner-inter-miami-valenzuela/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6863399/2025/12/04/buster-faulkner-florida-georgia-
 **How to Find a Date in a Country With Over 30 Million Extra Men**\
 `A decade after the end of the one-child policy, China has over 30 million so-called surplus men. Can this dating boot camp help them find love?`\
 https://nytimes.com/2025/12/04/opinion/china-dating-men-one-child-policy.html
-
-**Jimmy Butler to miss at least 1 game with knee injury**\
-`Butler's MRI did not show any structural damage but he could miss multiple games. Meanwhile, the Warriors welcome De'Anthony Melton back.`\
-https://nytimes.com/athletic/6863459/2025/12/04/jimmy-butler-injury-update-knee-mri-warriors/
-
-**Trump Returns Coast Guard Helicopter to Oregon Fishing Town After Uproar**\
-`Some residents in Newport, Ore., believed that the Trump administration had removed its Coast Guard rescue helicopter to make way for an immigration detention site.`\
-https://nytimes.com/2025/12/04/us/trump-coast-guard-helicopter-oregon.html
 
