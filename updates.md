@@ -1,3 +1,11 @@
+**Did a 'love bomb' from the 'cookie man' keep Kalani Sitake at BYU?**\
+`"We were all willing to be substantial in our help for BYU,” said McGowan, who deflected credit for being the sole reason Sitake stayed.`\
+https://nytimes.com/athletic/6863974/2025/12/05/byu-crumbl-jason-mcgowan-kalani-sitake/
+
+**ICE Arrests Harvard Professor Charged for Shooting a Pellet Gun**\
+`Carlos Portugal Gouvea, a visiting law professor from Brazil, said he would leave the country rather than be deported, according to federal officials. He was arrested after firing a pellet gun near a synagogue.`\
+https://nytimes.com/2025/12/05/us/ice-harvard-carlos-portugal-pellet-gun.html
+
 **ICE Arrests Harvard Professor Charged for Shooting a Pellet Gun**\
 `Carlos Portugal Gouvea, a visiting law professor from Brazil, said he would leave the country rather than be deported, according to federal officials. He was arrested after firing a pellet gun near a synagogue.`\
 https://nytimes.com/2025/12/05/us/ice-harvard-carlots-portugal-pellet-gun.html
