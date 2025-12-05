@@ -1,3 +1,11 @@
+**Library Agency Reinstates Grants Canceled by Trump Administration**\
+`The Institute of Museum and Library Services restored the funding after a federal court ruled that moves to dismantle the agency were unlawful.`\
+https://nytimes.com/2025/12/05/arts/imls-library-grants-trump.html
+
+**European powers are the favorites in 2026 World Cup odds after draw**\
+`The World Cup draw took place on Friday and Spain is still the favorite to lift the trophy after its Euro 2024 triumph.`\
+https://nytimes.com/athletic/6865622/2025/12/05/2026-world-cup-odds-spain-england-france/
+
 **Flashback: Your Weekly History Quiz, Dec. 6, 2025**\
 `Can you sort 8 historical events?`\
 https://nytimes.com/interactive/2025/12/05/upshot/flashback.html
