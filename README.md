@@ -1,3 +1,7 @@
+**Extreme Cold Will Persist in the Midwest and Northern Plains Into the Weekend**\
+`Saranac Lake, N.Y., in the Adirondacks was the coldest place in the United States on Friday, recording a low of minus 22 degrees.`\
+https://nytimes.com/2025/12/05/weather/cold-snap-snow-weather.html
+
 **Trump’s Security Strategy Focuses on Profit, Not Spreading Democracy**\
 `President Trump’s new National Security Strategy describes a country that is focused on doing business and reducing migration while avoiding passing judgment on authoritarians.`\
 https://nytimes.com/2025/12/05/us/politics/trump-national-security-strategy.html
@@ -33,8 +37,4 @@ https://nytimes.com/newsgraphics/card-story/emerald-jewelry
 **Frank Gehry, the Disrupter, Opened Their Imaginations**\
 `Architects, artists, clients and partners assess his life and impact over eight decades.`\
 https://nytimes.com/2025/12/05/arts/design/frank-gehry-appraisal-disney-hall-bilbao-los-angeles.html
-
-**The Supreme Court, Once Wary of Partisan Gerrymandering, Goes All In**\
-`The court’s conservative majority said that Texas’ asserted political motives justified letting the state use voting maps meant to disadvantage Democrats in the midterms.`\
-https://nytimes.com/2025/12/05/us/politics/supreme-court-partisan-gerrymandering.html
 
