@@ -1,3 +1,15 @@
+**Netflix Does an About-Face, in a Big Way**\
+`The streaming giant has changed its strategy many times over the years. But the decision to get deeply into theatrical releases may be the most startling yet.`\
+https://nytimes.com/2025/12/05/business/media/netflix-movie-theaters-warner-bros.html
+
+**Stampeding Turtles Might Have Made Fossil Tracks in Italian Cliffs**\
+`Researchers suggest that an earthquake spooked a mob of sea turtles gathered together in a prehistoric sea.`\
+https://nytimes.com/2025/12/05/science/turtle-stampede-earthquake-italy.html
+
+**My Somali Role Models in Minnesota**\
+`Readers react to President Trump’s disparaging comments about Somalis in the U.S. Also: Academic censorship; a prejudice against psychiatric medication.`\
+https://nytimes.com/2025/12/05/opinion/somalis-minnesota-trump.html
+
 **Doug Gottlieb’s Green Bay heartbreak: Chair toss, last-second loss and lessons**\
 `Another Horizon League coach, Oakland's Greg Kampe, blasted his school's student section for not attending games.`\
 https://nytimes.com/athletic/6865493/2025/12/05/doug-gottlieb-green-bay-chair-toss-robert-morris/
