@@ -1,3 +1,7 @@
+**Pirates crack the code in acquiring Boston's Jhostynxon Garcia in trade for Johan Oviedo**\
+`Oviedo's ceiling is probably as a No. 5 starter but Adonys Guzman is a good get for Boston and García is the big prize for Pittsburgh.`\
+https://nytimes.com/athletic/6864111/2025/12/04/pirates-red-sox-trade-analysis-jhostynxon-garcia-johan-oviedo/
+
 **Pressure starting to mount for Europe's title favourites**\
 `The pressure is on for some of Europe's title favourites as the season heads into December fixtures.`\
 https://nytimes.com/athletic/6863822/2025/12/04/european-title-favourites-are-facing-mounting-pressure/
@@ -34,8 +38,4 @@ https://nytimes.com/2025/12/04/us/human-remains-investigation-san-diego-home.htm
 **Second Strike Scrutiny Obscures Larger Question About Trump’s Boat Attacks**\
 `Congress is focusing on two deaths in one strike. But nine other people died in that same attack, and the United States has killed 87 in all. Were any of those killings legal?`\
 https://nytimes.com/2025/12/04/us/politics/trump-boat-attacks-killings.html
-
-**Penn State search shifting focus to Iowa State's Matt Campbell: Sources**\
-`Penn State's lengthy coaching search to replace James Franklin could be closing in on Matt Campbell, with some other names in the mix.`\
-https://nytimes.com/athletic/6863734/2025/12/04/matt-campbell-penn-state-coaching-search/
 
