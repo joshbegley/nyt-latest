@@ -1,3 +1,7 @@
+**Determining hardest, easiest groups, best games and Golden Boot winner at the 2026 World Cup**\
+`The Athletic's writers look ahead to the 2026 World Cup, after the 12 groups were drawn in Washington DC on Friday`\
+https://nytimes.com/athletic/6865312/2025/12/05/world-cup-2026-hardest-easiest-groups-golden-boot/
+
 **gws-michael-ovitz-home-art-collection**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/michael-ovitz-home-art-collection
