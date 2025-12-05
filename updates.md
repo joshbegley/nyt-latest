@@ -1,3 +1,7 @@
+**The Clippers are in a bad spot with few options. And they're not alone**\
+`Several teams mortgaged their future draft assets for a shot at winning now. The bill is coming due.`\
+https://nytimes.com/athletic/6863872/2025/12/05/clippers-bucks-nba-future-draft-picks-trade/
+
 **GM Spotlight: How to build a modern college football program in the FCS**\
 `Tennessee Tech has one of the most robust personnel departments in the FCS ranks.`\
 https://nytimes.com/athletic/6858584/2025/12/05/college-football-general-manager-tennessee-tech/
