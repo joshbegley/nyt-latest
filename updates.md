@@ -1,3 +1,7 @@
+**Parenting in the paint: How one NBA power couple juggles parenthood and busy seasons**\
+`Nine years ago, Tori Miller was sending unsolicited scouting reports to NBA GMs. Now, she is the Atlanta Hawks' top scout.`\
+https://nytimes.com/athletic/6856394/2025/12/05/nba-atlanta-hawks-tori-miller-career-family/
+
 **How to buy 2026 World Cup tickets after the draw sets the field**\
 `Getting your hands on 2026 World Cup tickets can get a little complex, but we're here to answer any and all questions about the process`\
 https://nytimes.com/athletic/6860884/2025/12/05/2026-world-cup-tickets-how-to-buy-prices/
