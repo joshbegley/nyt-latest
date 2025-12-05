@@ -1,3 +1,8 @@
+**What's next for the Pirates after their first major transaction of the offseason?**\
+`The Bucs now have "The Password," but are still looking for other answers.
+`\
+https://nytimes.com/athletic/6864039/2025/12/04/pittsburgh-pirates-offseason-trade-jhostynxon-garcia/
+
 **After 1,297 games, LeBron James' 10-point scoring streak ends with a game-winning pass**\
 `Instead of trying to score to keep a 1,297-game streak alive, LeBron James passed to an open Lakers teammate for a game-winning 3.`\
 https://nytimes.com/athletic/6854376/2025/12/04/lebron-james-10-point-game-streak-lakers/
@@ -33,8 +38,4 @@ https://nytimes.com/2025/12/04/us/politics/trump-congo-rwanda-boat-strikes.html
 **Red Sox add to rotation, land right-hander Johan Oviedo in trade with Pirates**\
 `In exchange, the Red Sox will send outfielder Jhostynxon Garcia and pitcher Jesus Travieso back to Pittsburgh.`\
 https://nytimes.com/athletic/6863650/2025/12/04/red-sox-pirates-trade-johan-oviedo/
-
-**What I'm Hearing: Timo Werner, coaching changes, transfers as MLS Cup approaches**\
-`From coaching news to the trade market and potential January transfers, here's the latest in the world of MLS.`\
-https://nytimes.com/athletic/6862883/2025/12/04/wicky-werner-inter-miami-valenzuela/
 
