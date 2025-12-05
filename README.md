@@ -1,3 +1,15 @@
+**Liverpool must get Isak more involved in games, Slot admits**\
+`The Sweden international only had 14 touches in 86 minutes in Wednesday night's draw with Sunderland.`\
+https://nytimes.com/athletic/6864721/2025/12/05/liverpool-alexander-isak-arne-slot/
+
+**Wissa could make first Newcastle squad vs. Burnley, Tonali to be assessed**\
+`Wissa hasn't played for Newcastle since joining on deadline day while Tonali sustained an injury during the 2-2 draw with Spurs on Tuesday.`\
+https://nytimes.com/athletic/6864687/2025/12/05/newcastle-team-news-wissa-tonali-burnley/
+
+**What We Know About the Arrest in the D.C. Pipe Bomb Case**\
+`The arrest came after years of false leads and speculation over who planted the bombs near the Capitol before the Jan. 6 riot.`\
+https://nytimes.com/2025/12/05/us/politics/dc-pipe-bomb-arrest-suspect.html
+
 **Week 14 fantasy football intel, predictions using player prop lines**\
 `Brad Evans scours sportsbooks to find intel that applies to fantasy football. This week he likes C.J. Stroud, Brenton Strange and others.`\
 https://nytimes.com/athletic/6862273/2025/12/05/fantasy-football-week-14-props-intel/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/12/05/opinion/trump-boat-strikes.html
 **What Zillow Won’t Tell You**\
 `When buyers can’t see the climate risks of prospective homes up front, they may take on more exposure than they can afford.`\
 https://nytimes.com/2025/12/05/opinion/zillow-redfin-flood-wildfire-risk.html
-
-**This Is the Kind of Bigotry We Rejected Decades Ago**\
-`Once nativism escalates, it’s hard to stop.`\
-https://nytimes.com/2025/12/05/opinion/immigration-restrictions-dc-shooting.html
-
-**At the National Archives, a Deep Dive Into the American Story**\
-`A new $40-million exhibit, opening nine months after President Trump fired the chief archivist, uses technology to explore the 13 billion-plus items in its vaults.`\
-https://nytimes.com/2025/12/05/arts/national-archives-ai-america.html
-
-**Here’s How Trump Has Made it Harder for Migrants Seeking Asylum and Citizenship**\
-`In the wake of the National Guard shooting, the Trump administration has temporarily frozen major pathways for many migrants to obtain legal status in the United States.`\
-https://nytimes.com/2025/12/05/us/politics/trump-immigration-changes.html
 
