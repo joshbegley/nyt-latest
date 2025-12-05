@@ -1,3 +1,11 @@
+**Trumpism After Trump? Here Are Three Realities.**\
+`“Trumpism without Trump is going to move in different directions because Trumpism was always a somewhat amorphous set of half-baked ideas,” Bret Stephens says.`\
+https://nytimes.com/video/opinion/100000010559506/trumpism-after-trump-here-are-three-realities.html
+
+**How Charismatic Can a Moderate Politician Be?**\
+`“I think Americans — those who are not spending all their lives on social media — are so tired of the temperature of our political discourse,” Frank Bruni says on “The Opinions.” The solution? A “poetic and charismatic” centrist.`\
+https://nytimes.com/video/opinion/100000010559508/how-charismatic-can-a-moderate-politician-be.html
+
 **How Has Congestion Pricing Changed Your Year?**\
 `The tolling program, decades in the making, has shown signs of being effective after a rocky rollout.`\
 https://nytimes.com/2025/12/05/nyregion/nyc-congestion-pricing-anniversary.html
@@ -25,12 +33,4 @@ https://nytimes.com/2025/12/05/nyregion/chi-osse-hakeem-jeffries-primary.html
 **Adding Vintage Touches to an 1800s Victorian**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/frances-merrill-victorian-kitchen
-
-**The routes the favourites must take to reach the 2026 World Cup final… and could Messi play Ronaldo?**\
-`Who could the 10 most fancied sides at the 2026 World Cup meet beyond the group stage?`\
-https://nytimes.com/athletic/6866334/2025/12/05/world-cup-2026-knockout-paths-usa-england-argentina/
-
-**Robert B. Fiske Jr., First to Lead Whitewater Investigation, Dies at 94**\
-`He had overseen high-profile cases as a private lawyer and a U.S. attorney in New York when he was named to examine the role of Bill and Hillary Clinton in a failed development venture.`\
-https://nytimes.com/2025/12/05/us/robert-b-fiske-jr-dead.html
 
