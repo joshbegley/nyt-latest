@@ -1,3 +1,8 @@
+**What's next for the Pirates after their first major transaction of the offseason?**\
+`The Bucs now have "The Password," but are still looking for other answers.
+`\
+https://nytimes.com/athletic/6864039/2025/12/04/pittsburgh-pirates-offseason-trade-jhostynxon-garcia/
+
 **Penguins somehow win a wacky one in Tampa with nail-biter finish: Yohe's 10 observations**\
 `The Penguins were dominated most of the night but somehow emerged with two points in regulation.`\
 https://nytimes.com/athletic/6863751/2025/12/04/penguins-penalties-kucherov-jarry-lightning/

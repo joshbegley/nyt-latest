@@ -1,41 +1,40 @@
-**Penguins somehow win a wacky one in Tampa with nail-biter finish: Yohe's 10 observations**\
-`The Penguins were dominated most of the night but somehow emerged with two points in regulation.`\
-https://nytimes.com/athletic/6863751/2025/12/04/penguins-penalties-kucherov-jarry-lightning/
+**Los Angeles World Cup 2026 guide: What to do, eat and see**\
+`Everything you need to know as the city prepares to host World Cup games, from its sporting history to the best places to eat and drink`\
+https://nytimes.com/athletic/6787778/2025/12/05/los-angeles-world-cup-2026-guide/
 
-**Pirates crack the code in acquiring Boston's Jhostynxon Garcia in trade for Johan Oviedo**\
-`Oviedo's ceiling is probably as a No. 5 starter, but Adonys Guzman is a good get for Boston, and Garcia is the big prize for Pittsburgh.`\
-https://nytimes.com/athletic/6864111/2025/12/04/pirates-red-sox-trade-analysis-jhostynxon-garcia-johan-oviedo/
+**Boston World Cup 2026 guide: What to do, eat and see**\
+`Everything you need to know as the city prepares to host World Cup games, from its sporting history to the best places to eat and drink`\
+https://nytimes.com/athletic/6787746/2025/12/05/boston-world-cup-2026-guide/
 
-**Pressure starting to mount for Europe's title favourites**\
-`The pressure is on for some of Europe's title favourites as the season heads into December fixtures.`\
-https://nytimes.com/athletic/6863822/2025/12/04/european-title-favourites-are-facing-mounting-pressure/
+**Mexico City World Cup 2026 guide: What to do, eat and see**\
+`Everything you need to know as the city prepares to host World Cup games, from its sporting history to the best places to eat and drink`\
+https://nytimes.com/athletic/6787785/2025/12/05/mexico-city-world-cup-2026-guide/
 
-**Chivas finalizing $5 million deal for Fire's Brian Gutiérrez: Sources**\
-`Gutiérrez, 22, has already accrued 164 first-team appearances for the Fire.`\
-https://nytimes.com/athletic/6864064/2025/12/04/chivas-brian-gutierrez-fire/
+**Miami World Cup 2026 guide: What to do, eat and see**\
+`Everything you need to know as the city prepares to host World Cup games, from its sporting history to the best places to eat and drink`\
+https://nytimes.com/athletic/6787789/2025/12/05/miami-world-cup-2026-guide/
 
-**Cowboys' CeeDee Lamb exits with concussion vs. Lions**\
-`Lamb suffered the injury on an incomplete pass early in the third quarter.`\
-https://nytimes.com/athletic/6864038/2025/12/04/ceedee-lamb-concussion-cowboys-lions/
+**Monterrey World Cup 2026 guide: What to do, eat and see**\
+`Everything you need to know as the city prepares to host World Cup games, from its sporting history to the best places to eat and drink`\
+https://nytimes.com/athletic/6787793/2025/12/05/monterrey-world-cup-2026-guide/
 
-**What's next for the Pirates after their first major transaction of the offseason?**\
-`The Bucs now have "The Password," but are still looking for other answers.
-`\
-https://nytimes.com/athletic/6864039/2025/12/04/pittsburgh-pirates-offseason-trade-jhostynxon-garcia/
+**New York New Jersey World Cup 2026 guide: What to do, eat and see**\
+`Everything you need to know as the city prepares to host World Cup games, from its sporting history to the best places to eat and drink`\
+https://nytimes.com/athletic/6787796/2025/12/05/new-york-new-jersey-world-cup-2026-guide/
 
-**After 1,297 games, LeBron James' 10-point scoring streak ends with a game-winning pass**\
-`Instead of trying to score to keep a 1,297-game streak alive, LeBron James passed to an open Lakers teammate for a game-winning 3.`\
-https://nytimes.com/athletic/6854376/2025/12/04/lebron-james-10-point-game-streak-lakers/
+**Philadelphia World Cup 2026 guide: What to do, eat and see**\
+`Everything you need to know as the city prepares to host World Cup games, from its sporting history to the best places to eat and drink`\
+https://nytimes.com/athletic/6787801/2025/12/05/philadelphia-world-cup-2026-guide/
 
-**Take a Little Off the Top**\
-`James McCarron’s second puzzle in The New York Times is packed with lively entries.`\
-https://nytimes.com/2025/12/04/crosswords/daily-puzzle-2025-12-05.html
+**San Francisco Bay Area World Cup 2026 guide: What to do, eat and see**\
+`Everything you need to know as the city prepares to host World Cup games, from its sporting history to the best places to eat and drink`\
+https://nytimes.com/athletic/6787805/2025/12/05/san-francisco-bay-area-world-cup-2026-guide/
 
-**Collin Klein hired as Kansas State coach after Chris Klieman's retirement**\
-`Klieman announced his retirement Wednesday after seven seasons leading the Wildcats.`\
-https://nytimes.com/athletic/6863945/2025/12/04/collin-klein-kansas-state-texas-am-chris-klieman/
+**Seattle World Cup 2026 guide: What to do, eat and see**\
+`Everything you need to know as the city prepares to host World Cup games, from its sporting history to the best places to eat and drink`\
+https://nytimes.com/athletic/6787816/2025/12/05/seattle-world-cup-2026-guide/
 
-**Investigators Find Human Remains Buried at a San Diego Home**\
-`Prosecutors are looking at potential connections to a former resident, who faces a murder charge in another case.`\
-https://nytimes.com/2025/12/04/us/human-remains-investigation-san-diego-home.html
+**Toronto World Cup 2026 guide: What to do, eat and see**\
+`Everything you need to know as the city prepares to host World Cup games, from its sporting history to the best places to eat and drink`\
+https://nytimes.com/athletic/6756936/2025/12/05/toronto-world-cup-2026-guide/
 
