@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6864039/2025/12/04/pittsburgh-pirates-offseason-trade-jhostynxon-garcia/
 
+**What's next for the Pirates after their first major transaction of the offseason?**\
+`The Bucs now have "The Password," but are still looking for other answers.
+`\
+https://nytimes.com/athletic/6864039/2025/12/04/pittsburgh-pirates-offseason-trade-jhostynxon-garcia/
+
 **Cowboys' CeeDee Lamb exits with concussion vs. Lions**\
 `Lamb suffered the injury on an incomplete pass early in the third quarter.`\
 https://nytimes.com/athletic/6864038/2025/12/04/ceedee-lamb-concussion-cowboys-lions/
