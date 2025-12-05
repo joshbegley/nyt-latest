@@ -1,3 +1,11 @@
+**After 1,297 games, LeBron James' 10-point scoring streak ends with Lakers buzzer-beater**\
+`James scored just eight points in a 123-120 win over the Toronto Raptors, ending a regular-season run that began in January of 2007. `\
+https://nytimes.com/athletic/6854376/2025/12/04/lebron-james-10-point-game-streak-lakers/
+
+**Take a Little Off the Top**\
+`James McCarron’s second puzzle in The New York Times is packed with lively entries.`\
+https://nytimes.com/2025/12/04/crosswords/daily-puzzle-2025-12-05.html
+
 **Collin Klein hired as Kansas State coach after Chris Klieman's retirement**\
 `Klieman announced his retirement Wednesday after seven seasons leading the Wildcats.`\
 https://nytimes.com/athletic/6863945/2025/12/04/collin-klein-kansas-state-texas-am-chris-klieman/
