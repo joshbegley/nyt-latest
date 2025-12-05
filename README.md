@@ -1,3 +1,7 @@
+**Palace's Littlejohn given five-match suspension by the FA after violent tackle**\
+`The midfielder was shown a red card for violent conduct, but the usual three-match suspension was deemed "clearly insufficient".`\
+https://nytimes.com/athletic/6839226/2025/12/05/ruesha-littlejohn-crystal-palace-ban-violent-conduct/
+
 **Trump Wants Venezuela’s Leader to Go. Here’s Who Could Replace Him.**\
 `Several senior Venezuelan officials and opposition politicians would have a claim to power in a transition, but all would face difficulties.`\
 https://nytimes.com/2025/12/05/world/americas/trump-maduro-venezuela-president.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6841261/2025/12/05/world-cup-2026-tickets-boston-dr
 **As Ducks, Ville Husso work together to reach new level, can they maintain it?**\
 `The Ducks are facing the reality-check portion of the season. Ville Husso is focused on getting them through it.`\
 https://nytimes.com/athletic/6863799/2025/12/05/ducks-ville-husso-goaltending-quenneville/
-
-**Savings Accounts for Disabled People Are Expanding. Do You Qualify?**\
-`Starting next year, people who became disabled by age 46 will be eligible to open ABLE accounts. The accounts have been slow to catch on, partly because the current age limit is 26.`\
-https://nytimes.com/2025/12/05/your-money/able-disability-savings-accounts.html
 
