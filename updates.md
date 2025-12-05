@@ -1,3 +1,7 @@
+**England have handed Australia the initiative. The Ashes are drifting away**\
+`Three years of planning appear to have been undermined by only four days of cricket as England, already 1-0 down, play catch-up at the Gabba`\
+https://nytimes.com/athletic/6865064/2025/12/05/england-australia-stokes-carse-smith-ashes/
+
 **How to get tickets to World Cup 2026 matches in Dallas**\
 `AT&T Stadium will host nine games at next summer's men's soccer World Cup.`\
 https://nytimes.com/athletic/6841794/2025/12/05/world-cup-2026-tickets-dallas-draw-matches/
