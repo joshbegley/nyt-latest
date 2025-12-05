@@ -1,3 +1,23 @@
+**Iranian officials reverse plan to boycott World Cup draw, FIFA claims**\
+`FIFA's statement said the travelling party included head coach Ardeshir Ghalenoei.`\
+https://nytimes.com/athletic/6864602/2025/12/05/iran-boycott-world-cup-draw-fifa/
+
+**Chiefs' Steve Spagnuolo was ticked after loss. A practice this week changed his mood**\
+`Spagnuolo said Wednesday's practice provided some evidence that the Chiefs might not be done in 2025.`\
+https://nytimes.com/athletic/6862831/2025/12/05/chiefs-defensive-problems-steve-spagnuolo/
+
+**How has Caleb Williams progressed? Bears mailbag, Week 14 picks**\
+`Williams' passer rating hasn't changed much from last year, but where has he grown? This week's mailbag, plus picks for Lambeau Field.`\
+https://nytimes.com/athletic/6863254/2025/12/05/bears-mailbag-caleb-williams-packers/
+
+**Knicks coach Mike Brown doesn't care to be the smartest guy in the room**\
+`The Knicks were looking for collaboration when they hired Mike Brown. Here's how he has provided it.`\
+https://nytimes.com/athletic/6861679/2025/12/05/knicks-coach-mike-brown-smart/
+
+**Backed into a corner, the Lions showed what they're capable of and took care of business**\
+`“I’ve said it all along, we can’t worry about the outside noise," Lions coach Dan Campbell said after their Thursday night win over Dallas.`\
+https://nytimes.com/athletic/6864492/2025/12/05/lions-playoff-chances-beat-cowboys-tnf/
+
 **Cowboys' playoff hopes takes big hit in loss to Lions. Can they win out to stay in race?**\
 `A lot contributed to the loss — turnovers, kickoff coverage and Dallas' defense allowed scores on six of the Lions' final seven possessions.`\
 https://nytimes.com/athletic/6864568/2025/12/05/cowboys-playoff-chances-lions-loss-tnf/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6858922/2025/12/05/can-usa-win-2026-world-cup/
 **‘I will be back’: How Alex Steeves turned an AHL assignment into an NHL job**\
 `Steeves, who started the year in Providence, has scored five goals in his last five games with the Bruins.`\
 https://nytimes.com/athletic/6864107/2025/12/05/bruins-alex-steeves-nhl-player-ahl/
-
-**The Clippers' Chris Paul saga isn't as strange as you may think**\
-`How will the Clippers handle the fallout of Paul's departure? "I think you own it," Clippers president Lawrence Frank said. `\
-https://nytimes.com/athletic/6861118/2025/12/05/chris-paul-clippers-lawrence-frank-tyronn-lue/
-
-**Limited offense, losing to backup goalies — more effort from Blues may be asking a lot**\
-`The Blues have scored two goals or fewer in nine of their last 10 games, including a 5-2 loss to the Boston Bruins Thursday.`\
-https://nytimes.com/athletic/6859211/2025/12/05/blues-lose-bruins-offense-effort/
-
-**Connor Bedard stays red hot as maturing Blackhawks close out the Kings: Game observations**\
-`Any goal’s a good goal — and the Blackhawks’ 20-year-old superstar can’t stop scoring them.`\
-https://nytimes.com/athletic/6864405/2025/12/05/blackhawks-beat-kings-connor-bedard/
-
-**Brandon Ingram, Raptors teammates have miles to go in their offensive partnership**\
-`After Ingram started the year on a heater from the midrange, he has tailed off over the last little while.`\
-https://nytimes.com/athletic/6864183/2025/12/05/raptors-loss-lakers-brandon-ingram-offense/
-
-**Double play: UCLA softball All-American Megan Grant taking her shot with Bruins basketball**\
-`Grant's path to becoming a two-sport college athlete started with a lighthearted comment. Then it became reality.`\
-https://nytimes.com/athletic/6834151/2025/12/05/megan-grant-ucla-softball-womens-basketball/
 
