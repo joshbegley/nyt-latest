@@ -1,3 +1,7 @@
+**Barcelona's Garcia agrees new contract through to 2031**\
+`Garcia's previous deal with the Spanish champions had been due to expire in 2026.`\
+https://nytimes.com/athletic/6526851/2025/12/05/eric-garcia-barcelona-contract/
+
 **Air Traffic Control Issue Grounds All Flights at Edinburgh Airport**\
 `The airport, Scotland’s busiest, said it was experiencing a technical problem with its air traffic control provider.`\
 https://nytimes.com/2025/12/05/world/europe/edinburgh-airport-flights-grounded-uk.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6859043/2025/12/05/mlb-winter-meetings-wish-list-ky
 **Derek Bender, prospect accused of giving away team's pitches, reinstated after discipline**\
 `Bender, a catcher, was accused of telling opposing hitters what pitches were coming so that his team's long season could end early. `\
 https://nytimes.com/athletic/6863480/2025/12/05/derek-bender-catcher-pitch-tipping-discipline-reinstatement/
-
-**The offensive line coach so extraordinary, his adoring players can hardly put him into words**\
-`Kromer's current and former players say he's made or revived their careers.`\
-https://nytimes.com/athletic/6860689/2025/12/05/buffalo-bills-offensive-line-coach-aaron-kromer/
 
