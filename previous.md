@@ -1,3 +1,7 @@
+**Penguins somehow win a wacky one in Tampa with nail-biter finish: Yohe's 10 observations**\
+`The Penguins were dominated most of the night but somehow emerged with two points in regulation.`\
+https://nytimes.com/athletic/6863751/2025/12/04/penguins-penalties-kucherov-jarry-lightning/
+
 **Pirates crack the code in acquiring Boston's Jhostynxon Garcia in trade for Johan Oviedo**\
 `Oviedo's ceiling is probably as a No. 5 starter, but Adonys Guzman is a good get for Boston, and Garcia is the big prize for Pittsburgh.`\
 https://nytimes.com/athletic/6864111/2025/12/04/pirates-red-sox-trade-analysis-jhostynxon-garcia-johan-oviedo/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6863945/2025/12/04/collin-klein-kansas-state-texas-
 **Investigators Find Human Remains Buried at a San Diego Home**\
 `Prosecutors are looking at potential connections to a former resident, who faces a murder charge in another case.`\
 https://nytimes.com/2025/12/04/us/human-remains-investigation-san-diego-home.html
-
-**Second Strike Scrutiny Obscures Larger Question About Trump’s Boat Attacks**\
-`Congress is focusing on two deaths in one strike. But nine other people died in that same attack, and the United States has killed 87 in all. Were any of those killings legal?`\
-https://nytimes.com/2025/12/04/us/politics/trump-boat-attacks-killings.html
 
