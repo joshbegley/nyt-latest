@@ -1,3 +1,7 @@
+**Late VJ Edgecombe putback, Tyrese Maxey block seal dramatic 76ers win over Warriors**\
+`Philadelphia played one of its best halves of basketball of the season, lost its 24-point lead and then won 99-98.`\
+https://nytimes.com/athletic/6864106/2025/12/05/76ers-tyrese-maxey-vj-edgecombe-warriors/
+
 **Soungoutou Magassa emerges from the margins to take centre stage at West Ham**\
 `The French midfield struggled to get in the team until Nuno Espirito Santo took over. Now he has become integral`\
 https://nytimes.com/athletic/6862659/2025/12/05/soungoutou-magassa-emerges-from-the-margins-to-take-centre-stage-at-west-ham/

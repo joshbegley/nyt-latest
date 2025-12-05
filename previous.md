@@ -18,7 +18,7 @@ https://nytimes.com/2025/12/05/movies/cary-hiroyuki-tagawa-dead.html
 `The lowly Flames (ranked 31st in the NHL) were the better team in all areas, from five-on-five to special teams and goaltending.`\
 https://nytimes.com/athletic/6864308/2025/12/05/wild-get-outplayed-as-12-game-point-streak-ends-with-a-dud-in-calgary-takeaways/
 
-**Late V.J. Edgecombe putback, Tyrese Maxey block seal dramatic 76ers win over Warriors**\
+**Late VJ Edgecombe putback, Tyrese Maxey block seal dramatic 76ers win over Warriors**\
 `Philadelphia played one of its best halves of basketball of the season, lost its 24-point lead and then won 99-98.`\
 https://nytimes.com/athletic/6864106/2025/12/05/76ers-tyrese-maxey-vj-edgecombe-warriors/
 
