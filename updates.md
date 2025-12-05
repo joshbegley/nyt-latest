@@ -1,3 +1,11 @@
+**"We hope Liverpool give him time" - watching Arne Slot's struggles from Rotterdam**\
+`The Liverpool head coach is revered in Rotterdam after success at Feyenoord - and surprise at his problems this season at Anfield  `\
+https://nytimes.com/athletic/6861183/2025/12/05/arne-slot-liverpool-feyenoord-rotterdam/
+
+**Chelsea and their costly bad habits**\
+`Enzo Maresca’s side pressed the self-destruct button against Leeds — and not for the first time this season`\
+https://nytimes.com/athletic/6861900/2025/12/05/chelsea-enzo-maresca-errors/
+
 **FPL GW15 preview: Newcastle’s swing, Bournemouth go south, and Pep roulette**\
 `With AFCON around the corner and FPL managers receiving five free transfers after the deadline, this is a crucial week to take advantage`\
 https://nytimes.com/athletic/6859745/2025/12/05/fantasy-premier-league-gameweek-15-fpl-tips/
