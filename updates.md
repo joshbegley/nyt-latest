@@ -8,6 +8,11 @@ https://nytimes.com/athletic/6864039/2025/12/04/pittsburgh-pirates-offseason-tra
 `\
 https://nytimes.com/athletic/6864039/2025/12/04/pittsburgh-pirates-offseason-trade-jhostynxon-garcia/
 
+**What's next for the Pirates after their first major transaction of the offseason?**\
+`The Bucs now have "The Password," but are still looking for other answers.
+`\
+https://nytimes.com/athletic/6864039/2025/12/04/pittsburgh-pirates-offseason-trade-jhostynxon-garcia/
+
 **Pressure starting to mount for Europe's title favourites**\
 `The pressure is on for some of Europe's title favourites as the season heads into December fixtures.`\
 https://nytimes.com/athletic/6863822/2025/12/04/european-title-favourites-are-facing-mounting-pressure/
