@@ -1,3 +1,27 @@
+**How to get tickets to World Cup 2026 matches in Los Angeles**\
+`SoFi Stadium will host eight games at next summer's men's soccer World Cup.`\
+https://nytimes.com/athletic/6841836/2025/12/05/world-cup-2026-tickets-los-angeles-draw-matches/
+
+**Laurent Mekies Stepped In, Red Bull Stepped Up**\
+`He’s been in charge of the team for only about five months, and his technical background has strengthen his leadership.`\
+https://nytimes.com/2025/12/05/sports/autoracing/f1-laurent-mekies-red-bull.html
+
+**How to get tickets to World Cup 2026 matches in Seattle**\
+`Lumen Field will host six games at next summer's men's soccer World Cup.`\
+https://nytimes.com/athletic/6841997/2025/12/05/world-cup-2026-tickets-seattle-draw-matches/
+
+**How to get tickets to World Cup 2026 matches in San Francisco**\
+`Levi's Stadium will host six games at next summer's men's soccer World Cup.`\
+https://nytimes.com/athletic/6841899/2025/12/05/world-cup-2026-tickets-san-francisco-draw-matches/
+
+**Building a Response to Moments of Reckoning**\
+`Architects are uniquely positioned to help people displaced by natural disasters.`\
+https://nytimes.com/2025/12/05/special-series/shigeru-ban-disaster-relief-architecture.html
+
+**How to get tickets to World Cup 2026 matches in Toronto**\
+`BMO Field will host six games at next summer's men's soccer World Cup.`\
+https://nytimes.com/athletic/6842017/2025/12/05/world-cup-2026-tickets-toronto-draw-matches/
+
 **Putin Receives Warm Welcome in India**\
 `Prime Minister Narendra Modi of India praised his relationship with President Vladimir V. Putin of Russia after the two leaders held bilateral talks in New Delhi on Friday.`\
 https://nytimes.com/video/world/asia/100000010567051/putin-modi-india-russia.html
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6841794/2025/12/05/world-cup-2026-tickets-dallas-dr
 **How to get tickets to World Cup 2026 matches in Houston**\
 `NRG Stadium will host seven games at next summer's men's soccer World Cup.`\
 https://nytimes.com/athletic/6841767/2025/12/05/world-cup-2026-tickets-houston-draw-matches/
-
-**How to get tickets to World Cup 2026 matches in Kansas City**\
-`Arrowhead Stadium will host six games at next summer's men's soccer World Cup.`\
-https://nytimes.com/athletic/6841746/2025/12/05/world-cup-2026-tickets-kansas-city-draw-matches/
-
-**How to get tickets to World Cup 2026 matches in Miami**\
-`Hard Rock Stadium will host seven games at next summer's men's soccer World Cup.`\
-https://nytimes.com/athletic/6841672/2025/12/05/world-cup-2026-tickets-miami-draw-matches/
-
-**Netflix secures deal to acquire Warner Bros. Discovery studios, HBO Max**\
-`Paramount's ambitions for a sports-TV superpower to rival Disney's ESPN are tabled — at least for now.`\
-https://nytimes.com/athletic/6865229/2025/12/05/netflix-wbd-warner-bros-discovery-hbo-max/
-
-**Palace's Littlejohn given five-match suspension by the FA after violent tackle**\
-`The midfielder was shown a red card for violent conduct, but the usual three-match suspension was deemed "clearly insufficient".`\
-https://nytimes.com/athletic/6839226/2025/12/05/ruesha-littlejohn-crystal-palace-ban-violent-conduct/
-
-**Trump Wants Venezuela’s Leader to Go. Here’s Who Could Replace Him.**\
-`Several senior Venezuelan officials and opposition politicians would have a claim to power in a transition, but all would face difficulties.`\
-https://nytimes.com/2025/12/05/world/americas/trump-maduro-venezuela-president.html
-
-**Four fantasy 'busts' that could go nuclear in the playoffs**\
-`Plus, Andy Behrens provides a confidence boost for fantasy managers of Lamar Jackson.`\
-https://nytimes.com/athletic/6865148/2025/12/05/fantasy-football-four-busts-best-playoff-starters/
 
