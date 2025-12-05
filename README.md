@@ -1,19 +1,3 @@
-**Gen Z Councilman Ends Primary Challenge to House Democratic Leader**\
-`Chi Ossé had hoped to ride the momentum of Zohran Mamdani to challenge Representative Hakeem Jeffries, but he failed to secure the backing of the Democratic Socialists of America.`\
-https://nytimes.com/2025/12/05/nyregion/chi-osse-hakeem-jeffries-primary.html
-
-**Adding Vintage Touches to an 1800s Victorian**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/frances-merrill-victorian-kitchen
-
-**Mapping out the knockout-stage paths of 2026 World Cup favourites… and could Messi play Ronaldo?**\
-`Who could the 10 most fancied sides at the 2026 World Cup meet beyond the group stage?`\
-https://nytimes.com/athletic/6866334/2025/12/05/world-cup-2026-knockout-paths-usa-england-argentina/
-
-**Robert B. Fiske Jr., First to Lead Whitewater Investigation, Dies at 94**\
-`He had overseen high-profile cases as a private lawyer and a U.S. attorney in New York when he was named to examine the role of Bill and Hillary Clinton in a failed development venture.`\
-https://nytimes.com/2025/12/05/us/robert-b-fiske-jr-dead.html
-
 **Extreme Cold Will Persist in the Midwest and Northern Plains Into the Weekend**\
 `Saranac Lake, N.Y., in the Adirondacks was the coldest place in the United States on Friday, recording a low of minus 22 degrees.`\
 https://nytimes.com/2025/12/05/weather/cold-snap-snow-weather.html
@@ -33,4 +17,24 @@ https://nytimes.com/athletic/6866418/2025/12/05/world-cup-news-haiti-travel-ban-
 **Chuck Kesey, Probiotic Yogurt Pioneer, Dies at 87**\
 `The younger brother of Ken Kesey, the novelist and counterculture luminary, he turned a defunct creamery into what is now Nancy’s Probiotic Foods.`\
 https://nytimes.com/2025/12/05/dining/chuck-kesey-dead.html
+
+**Hamilton O. Smith, Who Made a Biotech Breakthrough, Is Dead at 94**\
+`A Nobel laureate, he identified an enzyme that cuts DNA, laying the groundwork for milestones in scientific research and medicine, like insulin.`\
+https://nytimes.com/2025/12/05/science/hamilton-smith-dead.html
+
+**Tottenham's Frank urges patience with summer signing Simons**\
+`The head coach said the north London club are trying to become a "well-oiled engine that's impossible to stop".`\
+https://nytimes.com/athletic/6864837/2025/12/05/xavi-simons-tottenham-hotspur-frank-belief/
+
+**Twelve things we learnt from the World Cup draw ft. deadpan Shaq, revenge and a GOAT derby?**\
+`While it was an often surreal World Cup draw, there are some things we learnt from the Kennedy Center. Tim Spiers breaks them down...`\
+https://nytimes.com/athletic/6865989/2025/12/05/world-cup-draw-what-we-learnt/
+
+**Jewelry That Transports You to the Natural World**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/emerald-jewelry
+
+**Frank Gehry, the Disrupter, Opened Their Imaginations**\
+`Architects, artists, clients and partners assess his life and impact over eight decades.`\
+https://nytimes.com/2025/12/05/arts/design/frank-gehry-appraisal-disney-hall-bilbao-los-angeles.html
 
