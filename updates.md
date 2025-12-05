@@ -1,3 +1,7 @@
+**Wild get 'outplayed' as 12-game point streak ends with a dud in Calgary: Takeaways**\
+`The lowly Flames (ranked 31st in the NHL) were the better team in all areas, from five-on-five to special teams and goaltending.`\
+https://nytimes.com/athletic/6864308/2025/12/05/wild-get-outplayed-as-12-game-point-streak-ends-with-a-dud-in-calgary-takeaways/
+
 **Jimmy Kimmel Thanks Trump for Google Superstardom in 2025**\
 `The host said he wouldn’t have been the third-most-trending person in Google searches this year “without the support of loyal viewers” like the president.`\
 https://nytimes.com/2025/12/05/arts/television/jimmy-kimmel-trump-2025-google.html
