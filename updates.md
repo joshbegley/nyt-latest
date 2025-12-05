@@ -1,3 +1,15 @@
+**War and Peace: A Day of Cognitive Dissonance in Trump’s Washington**\
+`President Trump presided over a Congo-Rwanda peace deal on the same day his administration was being questioned about potential war crimes.`\
+https://nytimes.com/2025/12/04/us/politics/trump-congo-rwanda-boat-strikes.html
+
+**Red Sox add to rotation, land Johan Oviedo in trade with Pirates: Sources**\
+`In exchange, the Red Sox will send outfielder Jhostynxon Garcia and pitcher Jesus Travieso back to Pittsburgh.`\
+https://nytimes.com/athletic/6863650/2025/12/04/red-sox-pirates-trade-johan-oviedo/
+
+**What I'm Hearing: Timo Werner, coaching changes, transfers as MLS Cup approaches**\
+`From coaching news to the trade market and potential January transfers, here's the latest in the world of MLS.`\
+https://nytimes.com/athletic/6862883/2025/12/04/wicky-werner-inter-miami-valenzuela/
+
 **What I'm Hearing: Timo Werner, coaching changes, transfers as MLS Cup approaches**\
 `From coaching news to the trade market and potential January transfers, here’s the latest in the world of MLS.`\
 https://nytimes.com/athletic/6862883/2025/12/04/wicky-werner-inter-miami-valenzuela/
