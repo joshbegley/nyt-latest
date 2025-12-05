@@ -1,3 +1,19 @@
+**The Supreme Court, Once Wary of Partisan Gerrymandering, Goes All In**\
+`The court’s conservative majority said that Texas’ asserted political motives justified letting the state use voting maps meant to disadvantage Democrats in the midterms.`\
+https://nytimes.com/2025/12/05/us/politics/supreme-court-partisan-gerrymandering.html
+
+**Georgia seeking $390,000 in damages from DE Damon Wilson II over transfer**\
+`Georgia claims Wilson's transfer to Missouri terminated his name, image and likeness agreement with the Bulldogs’ collective.`\
+https://nytimes.com/athletic/6866399/2025/12/05/georgia-damon-wilson-transfer-damages/
+
+**Everyone Is Invited to Jane Austen’s Birthday Party**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/jane-austen-birthday
+
+**Man Who Swallowed Stolen Fabergé Egg Passes It Naturally, Police Say**\
+`The man ingested the egg locket at a jewelry store in New Zealand last week, according to the authorities.`\
+https://nytimes.com/2025/12/05/world/faberge-pendant-swallowed-recovered.html
+
 **What we're hearing: Marlins have pitching to deal; Bichette to Boston?**\
 `The A's aren't shopping for high-priced solutions to their second base void and Luis Arraez may be a tough fit for the Rangers.`\
 https://nytimes.com/athletic/6866340/2025/12/05/mlb-hot-stove-rumors-sandy-alcantara-bo-bichette-edward-cabrera-ryan-weathers/
@@ -21,20 +37,4 @@ https://nytimes.com/newsgraphics/card-story/the-nutcracker-new-york-city-ballet-
 **As Bongino Celebrates Arrest in Pipe Bomb Case, Others on the Right Remain Skeptical**\
 `Some activists have lashed out, in a reprise of the backlash over the unsuccessful effort by Trump appointees to shut down the Epstein investigation.`\
 https://nytimes.com/2025/12/05/us/politics/dan-bongino-pipe-bomb-arrest.html
-
-**Re-ranking all 64 teams now we know the World Cup draw**\
-`Our guide to the most likely winners and biggest outsiders for next summer's tournament in North America`\
-https://nytimes.com/athletic/6833349/2025/12/05/world-cup-draw-teams-ranked/
-
-**England's World Cup draw broken down: How easy is the group and who could await in knockouts?**\
-`A look at Thomas Tuchel's side's group-stage opponents and how the latter stages of the tournament might unfold`\
-https://nytimes.com/athletic/6865366/2025/12/05/england-world-cup-draw-analysed/
-
-**How D’Angelo Understood His Own Mortality**\
-`Wesley Morris invited his friend Alex Pappademas, a senior culture editor at GQ magazine, to his show to talk about mortality and D’Angelo’s final album, “Black Messiah.”`\
-https://nytimes.com/video/podcasts/100000010567531/how-dangelo-understood-his-own-mortality.html
-
-**D’Angelo and the Brilliant Prescience of ‘Black Messiah’**\
-`Wesley Morris invited his friend Alex Pappademas, a senior culture editor at GQ magazine, to his show to talk about D’Angelo’s final album, “Black Messiah,” and why it’s so memorable.`\
-https://nytimes.com/video/podcasts/100000010567528/dangelo-and-the-brilliant-prescience-of-black-messiah.html
 
