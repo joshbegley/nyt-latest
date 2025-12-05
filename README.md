@@ -1,3 +1,7 @@
+**Week 14 fantasy football intel, predictions using player prop lines**\
+`Brad Evans scours sportsbooks to find intel that applies to fantasy football. This week he likes C.J. Stroud, Brenton Strange and others.`\
+https://nytimes.com/athletic/6862273/2025/12/05/fantasy-football-week-14-props-intel/
+
 **The New York Times News Quiz, Dec. 5, 2025**\
 `Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
 https://nytimes.com/interactive/2025/12/05/briefing/quiz-trump-floods-honduras.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/05/arts/national-archives-ai-america.html
 **Here’s How Trump Has Made it Harder for Migrants Seeking Asylum and Citizenship**\
 `In the wake of the National Guard shooting, the Trump administration has temporarily frozen major pathways for many migrants to obtain legal status in the United States.`\
 https://nytimes.com/2025/12/05/us/politics/trump-immigration-changes.html
-
-**Medicare Scammers Are Calling Seniors 50 Times a Day, Trying to Trap Them**\
-`Complaints about the calls have risen, and some older Americans have discovered that their Medicare accounts were already compromised.`\
-https://nytimes.com/2025/12/05/business/medicare-scam-calls.html
 
