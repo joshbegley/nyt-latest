@@ -1,5 +1,5 @@
-**After 1,297 games, LeBron James' 10-point scoring streak ends with Lakers buzzer-beater**\
-`James scored just eight points in a 123-120 win over the Toronto Raptors, ending a regular-season run that began in January of 2007. `\
+**After 1,297 games, LeBron James' 10-point scoring streak ends with a game-winning pass**\
+`Instead of trying to score to keep a 1,297-game streak alive, LeBron James passed to an open Lakers teammate for a game-winning 3.`\
 https://nytimes.com/athletic/6854376/2025/12/04/lebron-james-10-point-game-streak-lakers/
 
 **Take a Little Off the Top**\
