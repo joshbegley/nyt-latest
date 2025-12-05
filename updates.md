@@ -1,3 +1,7 @@
+**FIFA President Awards Trump With Soccer Body’s First Peace Prize**\
+`Not long after President Trump missed out on the Nobel Peace Prize, his friend and FIFA president, Gianni Infantino, had his organization establish its own.`\
+https://nytimes.com/video/us/politics/100000010568678/fifa-trump-peace-prize.html
+
 **Erik Bulatov, Russian Painter Who Undermined Soviet Propaganda, Dies at 92**\
 `For years he lived a double life, secretly making anti-Communist paintings. He found fame in the late 1980s, once his work was shown outside the Soviet Union.`\
 https://nytimes.com/2025/12/05/arts/erik-bulatov-dead.html

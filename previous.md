@@ -1,3 +1,7 @@
+**FIFA President Awards Trump With Soccer Body’s First Peace Prize**\
+`Not long after President Trump missed out on the Nobel Peace Prize, his friend and FIFA president, Gianni Infantino, had his organization establish its own.`\
+https://nytimes.com/video/us/politics/100000010568678/fifa-trump-peace-prize.html
+
 **Erik Bulatov, Russian Painter Who Undermined Soviet Propaganda, Dies at 92**\
 `For years he lived a double life, secretly making anti-Communist paintings. He found fame in the late 1980s, once his work was shown outside the Soviet Union.`\
 https://nytimes.com/2025/12/05/arts/erik-bulatov-dead.html
@@ -25,12 +29,4 @@ https://nytimes.com/athletic/6866131/2025/12/05/76ers-vs-bucks-stream-how-to-wat
 **How to watch Nuggets vs. Hawks: Time, TV, streaming**\
 `Find out how to watch the Denver Nuggets play the Atlanta Hawks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6866128/2025/12/05/nuggets-vs-hawks-stream-how-to-watch-dec-5/
-
-**How to watch Mavericks vs. Thunder: Time, TV, streaming**\
-`Find out how to watch the Dallas Mavericks play the Oklahoma City Thunder, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6866125/2025/12/05/mavericks-vs-thunder-stream-how-to-watch-dec-5/
-
-**How to watch Spurs vs. Cavaliers: Time, TV, streaming**\
-`Find out how to watch the San Antonio Spurs play the Cleveland Cavaliers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6866126/2025/12/05/spurs-vs-cavaliers-stream-how-to-watch-dec-5/
 
