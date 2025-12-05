@@ -1,8 +1,20 @@
+**Cary-Hiroyuki Tagawa, ‘The Last Emperor’ and ‘Mortal Kombat’ Actor, Dies at 75**\
+`The actor, born in Japan, starred in dozens of film and television shows, including Amazon’s “The Man in the High Castle.” His career spanned more than three decades.`\
+https://nytimes.com/2025/12/05/movies/cary-hiroyuki-tagawa-dead.html
+
+**Wild get 'outplayed' as 12-game point streak ends with a dud in Calgary: takeaways**\
+`The lowly Flames (ranked 31st in the NHL) were the better team in all areas — from 5-on-5 to special teams to goaltending.`\
+https://nytimes.com/athletic/6864308/2025/12/05/wild-get-outplayed-as-12-game-point-streak-ends-with-a-dud-in-calgary-takeaways/
+
+**Late V.J. Edgecombe putback, Tyrese Maxey block seal dramatic 76ers win over Warriors**\
+`Philadelphia played one of its best halves of basketball of the season, lost its 24-point lead and then won 99-98.`\
+https://nytimes.com/athletic/6864106/2025/12/05/76ers-tyrese-maxey-vj-edgecombe-warriors/
+
 **Pat Spencer is the hot hand the Warriors need with Stephen Curry out**\
 `The two-way player has given gimpy Golden State a spark, and has earned Steve Kerr's confidence and more minutes.`\
 https://nytimes.com/athletic/6864306/2025/12/05/pat-spencer-is-the-hot-hand-the-warriors-need-with-stephen-curry-out/
 
-**LeBron James' scoring streak ends. He says his assist was 'the perfect way' to go**\
+**LeBron's scoring streak ends. He says his assist was 'the perfect way' to go out**\
 `James wrote his own ending, wrapping up a streak that began 15 days after Dallas Mavericks rookie Cooper Flagg was born.`\
 https://nytimes.com/athletic/6864270/2025/12/05/lebron-james-scoring-streak-ends/
 
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6861183/2025/12/05/arne-slot-liverpool-feyenoord-ro
 **Chelsea and their costly bad habits**\
 `Enzo Maresca’s side pressed the self-destruct button against Leeds — and not for the first time this season`\
 https://nytimes.com/athletic/6861900/2025/12/05/chelsea-enzo-maresca-errors/
-
-**FPL GW15 preview: Newcastle’s swing, Bournemouth go south, and Pep roulette**\
-`With AFCON around the corner and FPL managers receiving five free transfers after the deadline, this is a crucial week to take advantage`\
-https://nytimes.com/athletic/6859745/2025/12/05/fantasy-premier-league-gameweek-15-fpl-tips/
-
-**Breaking down what's going wrong with Tottenham's defending under Thomas Frank**\
-`Poor pressing, shots not being blocked, and midfielders being dragged wide are just three of the issues impacting Tottenham this season`\
-https://nytimes.com/athletic/6861817/2025/12/05/tottenham-defensive-issues-thomas-frank/
-
-**World Cup 2026: 48 places, 64 teams. Why we will not know the full draw**\
-`The 2026 World Cup will be the biggest in history with 48 countries competing - but 64 teams will be in Friday's draw`\
-https://nytimes.com/athletic/6855214/2025/12/05/world-cup-draw-teams-qualified-playoffs-watch/
 

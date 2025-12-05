@@ -1,3 +1,19 @@
+**Cary-Hiroyuki Tagawa, ‘The Last Emperor’ and ‘Mortal Kombat’ Actor, Dies at 75**\
+`The actor, born in Japan, starred in dozens of film and television shows, including Amazon’s “The Man in the High Castle.” His career spanned more than three decades.`\
+https://nytimes.com/2025/12/05/movies/cary-hiroyuki-tagawa-dead.html
+
+**Wild get 'outplayed' as 12-game point streak ends with a dud in Calgary: takeaways**\
+`The lowly Flames (ranked 31st in the NHL) were the better team in all areas — from 5-on-5 to special teams to goaltending.`\
+https://nytimes.com/athletic/6864308/2025/12/05/wild-get-outplayed-as-12-game-point-streak-ends-with-a-dud-in-calgary-takeaways/
+
+**Late V.J. Edgecombe putback, Tyrese Maxey block seal dramatic 76ers win over Warriors**\
+`Philadelphia played one of its best halves of basketball of the season, lost its 24-point lead and then won 99-98.`\
+https://nytimes.com/athletic/6864106/2025/12/05/76ers-tyrese-maxey-vj-edgecombe-warriors/
+
+**LeBron's scoring streak ends. He says his assist was 'the perfect way' to go out**\
+`James wrote his own ending, wrapping up a streak that began 15 days after Dallas Mavericks rookie Cooper Flagg was born.`\
+https://nytimes.com/athletic/6864270/2025/12/05/lebron-james-scoring-streak-ends/
+
 **Pat Spencer is the hot hand the Warriors need with Stephen Curry out**\
 `The two-way player has given gimpy Golden State a spark, and has earned Steve Kerr's confidence and more minutes.`\
 https://nytimes.com/athletic/6864306/2025/12/05/pat-spencer-is-the-hot-hand-the-warriors-need-with-stephen-curry-out/
