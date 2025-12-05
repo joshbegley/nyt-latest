@@ -1,3 +1,7 @@
+**Collin Klein hired as Kansas State coach after Chris Klieman's retirement**\
+`Klieman announced his retirement Wednesday after seven seasons leading the Wildcats.`\
+https://nytimes.com/athletic/6863945/2025/12/04/collin-klein-kansas-state-texas-am-chris-klieman/
+
 **Investigators Find Human Remains Buried at a San Diego Home**\
 `Prosecutors are looking at potential connections to a former resident, who faces a murder charge in another case.`\
 https://nytimes.com/2025/12/04/us/human-remains-investigation-san-diego-home.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6863637/2025/12/04/trump-world-cup-draw-fifa-peace-
 **The Windup: Explaining a curious $17M signing**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6863643/2025/12/04/devin-williams-mets-signing-the-windup/
-
-**Where Is Jacob? His Mother Won’t Say, and the Police Cannot Find Him.**\
-`Jacob Pritchett, 11, has been missing for months. A judge has said his mother must remain at Rikers Island until she reveals his whereabouts.`\
-https://nytimes.com/2025/12/04/nyregion/brownsville-missing-child-nyc.html
 
