@@ -1,3 +1,7 @@
+**How to watch the 2026 World Cup draw: Start time, streaming and viewing guide for U.S., Canada and UK**\
+`Excitement for the 2026 World Cup in the U.S., Canada and Mexico will ramp up a notch today, as the draw for the group stages takes place`\
+https://nytimes.com/athletic/6865069/2025/12/05/how-to-watch-the-2026-world-cup-draw-us-canada-uk/
+
 **The 6 most absurd things about an absurd ACC title game between Virginia and Duke**\
 `No. 17 Virginia vs. Duke for the ACC title is a strange championship bout. And it gets even stranger the more you look at it.`\
 https://nytimes.com/athletic/6863546/2025/12/05/virginia-duke-acc-championship-game/

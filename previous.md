@@ -1,3 +1,7 @@
+**How to watch the 2026 World Cup draw: Start time, streaming and viewing guide for U.S., Canada and UK**\
+`Excitement for the 2026 World Cup in the U.S., Canada and Mexico will ramp up a notch today, as the draw for the group stages takes place`\
+https://nytimes.com/athletic/6865069/2025/12/05/how-to-watch-the-2026-world-cup-draw-us-canada-uk/
+
 **The Kings are struggling to score goals and they're feeling it**\
 `After being limited to one goal again in Thursday’s 2-1 loss to the Chicago Blackhawks, the Kings dropped to 29th in scoring.`\
 https://nytimes.com/athletic/6864654/2025/12/05/kings-goals-struggles-blackhawks-lose/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6855856/2025/12/05/twins-mailbag-2026-goals-trade-r
 **Trump Administration Live Updates: Polls Show President’s Approval Rating Has Dipped**\
 ``\
 https://nytimes.com/live/2025/12/05/us/trump-news
-
-**Brown: McLaren would be 'crazy' to not use team orders to win F1 championship**\
-`"We will race accordingly to do whatever we can to get whatever that driver is in front to try and win the race,” Brown explained Friday.`\
-https://nytimes.com/athletic/6865085/2025/12/05/mclaren-team-orders-norris-piastri/
 
