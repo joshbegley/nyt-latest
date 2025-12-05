@@ -1,3 +1,11 @@
+**Judge Approves Release of Epstein Grand Jury Documents in Florida Case**\
+`A federal judge in Florida ordered the release of previously sealed testimony, after legislation passed last month authorizing the disclosure.`\
+https://nytimes.com/2025/12/05/us/politics/florida-epstein-grand-jury-documents.html
+
+**All of the Most Beautiful Wrapping Paper the Internet Has to Offer**\
+`Text by Mari Uyehara`\
+https://nytimes.com/card/2025/12/05/smarter-living/wirecutter/
+
 **Library Agency Reinstates Grants Canceled by Trump Administration**\
 `The Institute of Museum and Library Services restored the funding after a federal court ruled that moves to dismantle the agency were unlawful.`\
 https://nytimes.com/2025/12/05/arts/imls-library-grants-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/05/arts/design/frank-gehry-dead.html
 **Supreme Court Agrees to Review Trump Order Restricting Birthright Citizenship**\
 `The administration asked the justices to uphold an executive order ending birthright citizenship after lower courts ruled it violated the Constitution.`\
 https://nytimes.com/2025/12/05/us/politics/supreme-court-trump-birthright-citizenship.html
-
-**Roy Kramer, former commissioner behind first SEC title game, dies at 96**\
-`Kramer became SEC commissioner in 1990, after 12 years as Vanderbilt's athletic director, and ran the league until his retirement in 2002.`\
-https://nytimes.com/athletic/6865807/2025/12/05/roy-kramer-sec-commissioner-dies/
-
-**Smoothies, milkshakes and soup: McAvoy loses almost 20 pounds after fracturing his jaw**\
-`McAvoy is cleared to train and practice, but it's a challenge to regain strength and weight while not eating solid food.`\
-https://nytimes.com/athletic/6865691/2025/12/05/bruins-charlie-mcavoy-jaw-fracture-weight-loss/
 
