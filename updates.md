@@ -1,3 +1,7 @@
+**Who's better, Notre Dame or Miami? We asked the coaches who played both**\
+`The Hurricanes and Fighting Irish will find out their College Football Playoff fates during the bracket selection this Sunday.`\
+https://nytimes.com/athletic/6863703/2025/12/05/notre-dame-miami-who-is-better-analysis/
+
 **How private Sarina Wiegman handled the very public Mary Earps fallout**\
 `If Sarina Wiegman and England were affected by the Mary Earps fallout they did not show it during their homecoming friendlies`\
 https://nytimes.com/athletic/6858959/2025/12/05/sarina-wiegman-mary-earps-hannah-hampton-analysis/
