@@ -1,3 +1,7 @@
+**Chatbots Can Meaningfully Shift Political Opinions, Studies Find**\
+`A brief conversation with a trained chatbot proved roughly four times as persuasive as a traditional political ad on television, one of the studies found.`\
+https://nytimes.com/2025/12/05/well/ai-chatbots-political-opinions-study.html
+
 **Netflix Does an About-Face, in a Big Way**\
 `The streaming giant has changed its strategy many times over the years. But the decision to get deeply into theatrical releases may be the most startling yet.`\
 https://nytimes.com/2025/12/05/business/media/netflix-movie-theaters-warner-bros.html
