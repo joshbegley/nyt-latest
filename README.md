@@ -1,3 +1,11 @@
+**Dresden, Germany **\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/things-to-do-dresden
+
+**Trump wants to rename the NFL as the question of 'soccer' or 'football' comes up**\
+`The President said "it really doesn't make sense" to call American football by that name. `\
+https://nytimes.com/athletic/6866033/2025/12/05/trump-rename-football-nfl-soccer/
+
 **LSU secures Lamar Brown, top recruit who had said he would wait to sign**\
 `Securing the commitment of the No. 2 recruit in the country is a big win for Lane Kiffin just days into his LSU tenure.`\
 https://nytimes.com/athletic/6866292/2025/12/05/lsu-lamar-brown-recruit-lane-kiffin/
@@ -21,12 +29,4 @@ https://nytimes.com/2025/12/05/climate/deep-sea-mining-ecosystem.html
 **Olivia Nuzzi and Vanity Fair Will Part Ways**\
 `Condé Nast, the magazine’s parent company, said her contract would expire at the end of the year.`\
 https://nytimes.com/2025/12/05/business/media/vanity-fair-olivia-nuzzi.html
-
-**How to watch Pacers vs. Bulls: Time, TV, streaming**\
-`Find out how to watch the Indiana Pacers play the Chicago Bulls, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6866133/2025/12/05/pacers-vs-bulls-stream-how-to-watch-dec-5/
-
-**How to watch 76ers vs. Bucks: Time, TV, streaming**\
-`Find out how to watch the Philadelphia 76ers play the Milwaukee Bucks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6866131/2025/12/05/76ers-vs-bucks-stream-how-to-watch-dec-5/
 
