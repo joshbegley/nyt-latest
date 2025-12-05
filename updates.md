@@ -1,3 +1,11 @@
+**Investigators Find Human Remains Buried at a San Diego Home**\
+`Prosecutors are looking at potential connections to a former resident, who faces a murder charge in another case.`\
+https://nytimes.com/2025/12/04/us/human-remains-investigation-san-diego-home.html
+
+**Red Sox add to rotation, land right-hander Johan Oviedo in trade with Pirates**\
+`In exchange, the Red Sox will send outfielder Jhostynxon Garcia and pitcher Jesus Travieso back to Pittsburgh.`\
+https://nytimes.com/athletic/6863650/2025/12/04/red-sox-pirates-trade-johan-oviedo/
+
 **Second Strike Scrutiny Obscures Larger Question About Trump’s Boat Attacks**\
 `Congress is focusing on two deaths in one strike. But nine other people died in that same attack, and the United States has killed 83 in all. Were any of those killings legal?`\
 https://nytimes.com/2025/12/04/us/politics/trump-boat-attacks-killings.html

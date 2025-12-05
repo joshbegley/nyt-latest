@@ -1,3 +1,7 @@
+**Investigators Find Human Remains Buried at a San Diego Home**\
+`Prosecutors are looking at potential connections to a former resident, who faces a murder charge in another case.`\
+https://nytimes.com/2025/12/04/us/human-remains-investigation-san-diego-home.html
+
 **Second Strike Scrutiny Obscures Larger Question About Trump’s Boat Attacks**\
 `Congress is focusing on two deaths in one strike. But nine other people died in that same attack, and the United States has killed 83 in all. Were any of those killings legal?`\
 https://nytimes.com/2025/12/04/us/politics/trump-boat-attacks-killings.html
@@ -14,7 +18,7 @@ https://nytimes.com/2025/12/04/us/harvard-antisemitism-lawsuit.html
 `President Trump presided over a Congo-Rwanda peace deal on the same day his administration was being questioned about potential war crimes.`\
 https://nytimes.com/2025/12/04/us/politics/trump-congo-rwanda-boat-strikes.html
 
-**Red Sox add to rotation, land Johan Oviedo in trade with Pirates: Sources**\
+**Red Sox add to rotation, land right-hander Johan Oviedo in trade with Pirates**\
 `In exchange, the Red Sox will send outfielder Jhostynxon Garcia and pitcher Jesus Travieso back to Pittsburgh.`\
 https://nytimes.com/athletic/6863650/2025/12/04/red-sox-pirates-trade-johan-oviedo/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6863643/2025/12/04/devin-williams-mets-signing-the-
 **Where Is Jacob? His Mother Won’t Say, and the Police Cannot Find Him.**\
 `Jacob Pritchett, 11, has been missing for months. A judge has said his mother must remain at Rikers Island until she reveals his whereabouts.`\
 https://nytimes.com/2025/12/04/nyregion/brownsville-missing-child-nyc.html
-
-**Post announcing Jets vs. Canadiens in 2026 NHL Heritage Classic taken down**\
-`The date, location and teams involved went live on Thursday, but were quickly taken down.`\
-https://nytimes.com/athletic/6863358/2025/12/04/nhl-heritage-classic-jets-canadiens-2026/
 
