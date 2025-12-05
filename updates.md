@@ -1,3 +1,15 @@
+**What I'm Hearing: Timo Werner, coaching changes, transfers as MLS Cup approaches**\
+`From coaching news to the trade market and potential January transfers, here’s the latest in the world of MLS.`\
+https://nytimes.com/athletic/6862883/2025/12/04/wicky-werner-inter-miami-valenzuela/
+
+**Trump to speak at World Cup draw upon receiving FIFA Peace Prize**\
+`The inaugural presentation of the prize is set to occur during the World Cup draw in Washington D.C. on Friday, December 5.`\
+https://nytimes.com/athletic/6863637/2025/12/04/trump-world-cup-draw-fifa-peace-prize/
+
+**The Windup: Explaining a curious $17M signing**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6863643/2025/12/04/devin-williams-mets-signing-the-windup/
+
 **Where Is Jacob? His Mother Won’t Say, and the Police Cannot Find Him.**\
 `Jacob Pritchett, 11, has been missing for months. A judge has said his mother must remain at Rikers Island until she reveals his whereabouts.`\
 https://nytimes.com/2025/12/04/nyregion/brownsville-missing-child-nyc.html

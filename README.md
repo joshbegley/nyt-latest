@@ -1,5 +1,5 @@
 **What I'm Hearing: Timo Werner, coaching changes, transfers as MLS Cup approaches**\
-`From coaching news to the trade market and potential January transfers, here’s the latest in the world of MLS.`\
+`From coaching news to the trade market and potential January transfers, here's the latest in the world of MLS.`\
 https://nytimes.com/athletic/6862883/2025/12/04/wicky-werner-inter-miami-valenzuela/
 
 **Trump to speak at World Cup draw upon receiving FIFA Peace Prize**\
