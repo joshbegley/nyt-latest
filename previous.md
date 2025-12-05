@@ -1,15 +1,3 @@
-**Jimmy Butler to miss at least 1 game with knee injury**\
-`Butler's MRI did not show any structural damage but he could miss multiple games. Meanwhile, the Warriors welcome De'Anthony Melton back.`\
-https://nytimes.com/athletic/6863459/2025/12/04/jimmy-butler-injury-update-knee-mri-warriors/
-
-**Trump Returns Coast Guard Helicopter to Oregon Fishing Town After Uproar**\
-`Some residents in Newport, Ore., believed that the Trump administration had removed its Coast Guard rescue helicopter to make way for an immigration detention site.`\
-https://nytimes.com/2025/12/04/us/trump-coast-guard-helicopter-oregon.html
-
-**Only the Lonely**\
-`A decade after the end of the one-child policy, China has over 30 million so-called surplus men. Can this dating boot camp help them find love?`\
-https://nytimes.com/video/opinion/100000010529984/only-the-lonely.html
-
 **Canada Declares Stellantis in Default for Moving Jeep Production to U.S.**\
 `The automaker switched production from Ontario in a bid to please President Trump. But the company defaulted on contracts covering hundreds of millions of dollars in assistance, Canada said.`\
 https://nytimes.com/2025/12/04/world/canada/lawsuit-stellantis-us-jeep-production.html
@@ -37,4 +25,16 @@ https://nytimes.com/2025/12/04/us/tim-walz-trump-somalia-minnesota.html
 **Forest unveil plans for 52,000-capacity stadium expansion**\
 `The Midlands club expressed a desire on Thursday to start the redevelopment next summer.`\
 https://nytimes.com/athletic/6862964/2025/12/04/nottingham-forest-stadium-expansion/
+
+**Trump Officials Cut Length of Work Permits for Asylum Seekers and Refugees**\
+`The move was the latest in an intensifying crackdown on legal immigration after an Afghan national was charged with shooting two National Guard members.`\
+https://nytimes.com/2025/12/04/us/politics/work-permits-asylum-refugees-trump.html
+
+**Bowl projections: The Xbox Bowl joins the party, and Miami gains on Notre Dame**\
+`The outcome of Alabama's SEC title game against Georgia on Saturday could reorder the CFP at-large spots and SEC bowl slots.`\
+https://nytimes.com/athletic/6853423/2025/12/04/college-football-projections-bowl-playoffs-matchups/
+
+**Redistricting Gets Off to a Slow Start in Florida**\
+`Some of the state’s Republican leaders appear in no rush to draw a new map as they grapple with political and legal questions amid internal power struggles.`\
+https://nytimes.com/2025/12/04/us/florida-redistricting-republicans.html
 
