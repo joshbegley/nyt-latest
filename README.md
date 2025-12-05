@@ -1,3 +1,11 @@
+**How to watch Capitals vs. Ducks: Time, TV, streaming**\
+`Find out how to watch the Washington Capitals play the Anaheim Ducks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6866110/2025/12/05/capitals-vs-ducks-stream-how-to-watch-dec-5/
+
+**How to watch Mammoth vs. Canucks: Time, TV, streaming**\
+`Find out how to watch the Utah Mammoth play the Vancouver Canucks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6866108/2025/12/05/mammoth-vs-canucks-stream-how-to-watch-dec-5/
+
 **How to watch East Texas A&M vs. UConn men's basketball: Time, TV, streaming**\
 `Find out how to watch the East Texas A&M Lions play the UConn Huskies, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6866089/2025/12/05/east-texas-a-m-vs-uconn-stream-how-to-watch-dec-5/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6842262/2025/12/05/group-f-guide-world-cup-2026/
 **Guide to Group H at World Cup 2026**\
 `Everything you need to know about Group H at next summer's tournament`\
 https://nytimes.com/athletic/6842264/2025/12/05/group-h-guide-world-cup-2026/
-
-**Guide to Group A at World Cup 2026**\
-`Everything you need to know about Group A at next summer's tournament`\
-https://nytimes.com/athletic/6842216/2025/12/05/group-a-guide-world-cup-2026/
-
-**Guide to Group G at World Cup 2026**\
-`Everything you need to know about Group G at next summer's tournament`\
-https://nytimes.com/athletic/6842261/2025/12/05/group-g-guide-world-cup-2026/
 

@@ -1,3 +1,11 @@
+**How to watch East Texas A&M vs. UConn men's basketball: Time, TV, streaming**\
+`Find out how to watch the East Texas A&M Lions play the UConn Huskies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6866089/2025/12/05/east-texas-a-m-vs-uconn-stream-how-to-watch-dec-5/
+
+**MAHA Activists Urge Trump to Fire His E.P.A. Administrator**\
+`As head of the Environmental Protection Agency, Lee Zeldin has weakened protections against toxic chemicals, say members of the MAHA movement.`\
+https://nytimes.com/2025/12/05/climate/maha-lee-zeldin-pesticides.html
+
 **Michael Jordan testifies in NASCAR antitrust trial: 'I wasn't afraid' to challenge them**\
 `The NBA legend and 23XI Racing co-owner laid out his reasons for taking NASCAR to court in an hour-long testimony Friday.`\
 https://nytimes.com/athletic/6865970/2025/12/05/michael-jordan-nascar-trial-testimony/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6842216/2025/12/05/group-a-guide-world-cup-2026/
 **Guide to Group G at World Cup 2026**\
 `Everything you need to know about Group G at next summer's tournament`\
 https://nytimes.com/athletic/6842261/2025/12/05/group-g-guide-world-cup-2026/
-
-**Guide to Group E at World Cup 2026**\
-`Everything you need to know about Group E at next summer's tournament`\
-https://nytimes.com/athletic/6842263/2025/12/05/group-e-guide-world-cup-2026/
-
-**Guide to Group D at World Cup 2026**\
-`Everything you need to know about Group D at next summer's tournament`\
-https://nytimes.com/athletic/6842260/2025/12/05/group-d-guide-world-cup-2026/
 
