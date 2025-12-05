@@ -1,3 +1,11 @@
+**ICE Arrests Harvard Professor Charged for Shooting a Pellet Gun**\
+`Carlos Portugal Gouvea, a visiting law professor from Brazil, said he would leave the country rather than be deported, according to federal officials. He was arrested after firing a pellet gun near a synagogue.`\
+https://nytimes.com/2025/12/05/us/ice-harvard-carlots-portugal-pellet-gun.html
+
+**Dancing Babies and Toddlers Are Teaching the Pros a Thing or Two**\
+`Everyone loves tiny dancers. Now some artists are considering why they bring us such joy — and what lessons they might have for grown-ups.`\
+https://nytimes.com/2025/12/05/arts/dance/baby-toddler-raves-professional-dancers.html
+
 **Shai Gilgeous-Alexander's unstoppable move and more NBA trends I'm watching**\
 `Gilgeous-Alexander was dangerous before, but now he's added a lethal stepback 3 to his bag of tricks. `\
 https://nytimes.com/athletic/6865225/2025/12/05/nba-trends-sga-thunder-hawks-raptors/

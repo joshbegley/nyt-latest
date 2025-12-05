@@ -1,6 +1,10 @@
+**Did a 'love bomb' from the 'cookie man' keep Kalani Sitake at BYU?**\
+`"We were all willing to be substantial in our help for BYU,” said McGowan, who deflected credit for being the sole reason Sitake stayed.`\
+https://nytimes.com/athletic/6863974/2025/12/05/byu-crumbl-jason-mcgowan-kalani-sitake/
+
 **ICE Arrests Harvard Professor Charged for Shooting a Pellet Gun**\
 `Carlos Portugal Gouvea, a visiting law professor from Brazil, said he would leave the country rather than be deported, according to federal officials. He was arrested after firing a pellet gun near a synagogue.`\
-https://nytimes.com/2025/12/05/us/ice-harvard-carlots-portugal-pellet-gun.html
+https://nytimes.com/2025/12/05/us/ice-harvard-carlos-portugal-pellet-gun.html
 
 **Dancing Babies and Toddlers Are Teaching the Pros a Thing or Two**\
 `Everyone loves tiny dancers. Now some artists are considering why they bring us such joy — and what lessons they might have for grown-ups.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/05/t-magazine/planet-of-the-apes-bathrobe.html
 **How Cocaine Became a Big Problem For Ecuador**\
 `As Washington made combating fentanyl a priority, cocaine trafficking surged — especially in Ecuador, where criminal groups have run rampant.`\
 https://nytimes.com/video/world/americas/100000010557913/how-cocaine-became-a-big-problem-for-ecuador.html
-
-**How to watch Lakers vs. Celtics: Time, TV, streaming**\
-`Find out how to watch the Los Angeles Lakers play the Boston Celtics, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6865559/2025/12/05/lakers-vs-celtics-stream-how-to-watch-dec-5/
 
