@@ -1,3 +1,35 @@
+**Ex-D.E.A. Agent Charged With Agreeing to Launder Millions for Cartel**\
+`The former agent, Paul Campo, laundered money for the Jalisco New Generation Cartel in Mexico, according to an indictment unsealed on Friday.`\
+https://nytimes.com/2025/12/05/nyregion/dea-agent-money-laundering-mexican-cartel.html
+
+**I Can’t Stop Thinking About a Primate’s Bathrobe. How Can I Find It?**\
+`We’re on the hunt for an outfit worn in the 1971 science-fiction movie “Escape from the Planet of the Apes.”`\
+https://nytimes.com/2025/12/05/t-magazine/planet-of-the-apes-bathrobe.html
+
+**How Cocaine Became a Big Problem For Ecuador**\
+`As Washington made combating fentanyl a priority, cocaine trafficking surged — especially in Ecuador, where criminal groups have run rampant.`\
+https://nytimes.com/video/world/americas/100000010557913/how-cocaine-became-a-big-problem-for-ecuador.html
+
+**How to watch Lakers vs. Celtics: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Lakers play the Boston Celtics, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6865559/2025/12/05/lakers-vs-celtics-stream-how-to-watch-dec-5/
+
+**How to watch Heat vs. Magic: Time, TV, streaming**\
+`Find out how to watch the Miami Heat play the Orlando Magic, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6865555/2025/12/05/heat-vs-magic-stream-how-to-watch-dec-5/
+
+**How to watch Sabres vs. Jets: Time, TV, streaming**\
+`Find out how to watch the Buffalo Sabres play the Winnipeg Jets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6865551/2025/12/05/sabres-vs-jets-stream-how-to-watch-dec-5/
+
+**Video of Boat Strike Shows Survivors Waving Before Fatal Follow-Up Attack**\
+`The new detail further complicates the military’s explanations for its actions during the Sept. 2 strike in the Caribbean Sea.`\
+https://nytimes.com/2025/12/05/us/politics/boat-strike-shows-survivors.html
+
+**How to watch Golden Knights vs. Devils: Time, TV, streaming**\
+`Find out how to watch the Vegas Golden Knights play the New Jersey Devils, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6865549/2025/12/05/golden-knights-vs-devils-stream-how-to-watch-dec-5/
+
 **How to watch Gonzaga vs. Kentucky men's basketball: Time, TV, streaming**\
 `Find out how to watch the Gonzaga Bulldogs play the Kentucky Wildcats, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6865522/2025/12/05/gonzaga-vs-kentucky-stream-how-to-watch-dec-5/
@@ -5,36 +37,4 @@ https://nytimes.com/athletic/6865522/2025/12/05/gonzaga-vs-kentucky-stream-how-t
 **NHL Power Rankings: A surge in the Metro, plus your team's 'leap' candidate**\
 `It’s time to take a look around the league to see which players are taking "the leap."`\
 https://nytimes.com/athletic/6865297/2025/12/05/nhl-power-rankings-capitals-leap/
-
-**Slegers: Arsenal 'a high-performance environment' after questions over squad unrest**\
-`The Athletic reported disjointed performances this season had highlighted wider cultural and structural issues with the Arsenal women set-up`\
-https://nytimes.com/athletic/6865110/2025/12/05/renee-slegers-arsenal-women-squad-unrest/
-
-**Bowl projections: The Xbox Bowl joins the party, and Miami gains on Notre Dame**\
-`The outcome of Alabama's SEC title game against Georgia on Saturday could reorder the CFP at-large spots and SEC bowl slots.`\
-https://nytimes.com/athletic/6853423/2025/12/05/college-football-projections-bowl-playoffs-matchups/
-
-**Here’s Our Most Popular Recipe of 2025**\
-`Zaynab Issa’s smashed beef kebab with cucumber yogurt is, naturally, a smash with our readers: “Looking for an excuse to make this again A.S.A.P.”`\
-https://nytimes.com/2025/12/05/dining/heres-our-most-popular-recipe-of-2025.html
-
-**Should People Still Trust the Media in 2025?**\
-`Media leaders debate how trust eroded, what audiences want now, and whether traditional journalism can still compete with personality-driven voices.`\
-https://nytimes.com/2025/12/05/podcasts/dealbook-summit-2025-journalism-media.html
-
-**20 Great Holiday Romance Movies**\
-`From timeless classics to frothy distractions, we’ve picked the best holiday romances currently available to stream.`\
-https://nytimes.com/2025/12/05/movies/holiday-christmas-romance-movies.html
-
-**Five Horror Movies to Stream Now**\
-`This month’s movies include cosmopolitan assassins, flesh-slicing swashbucklers and seasoned supernatural detectives.`\
-https://nytimes.com/2025/12/05/movies/horror-movies-streaming.html
-
-**Elon Musk Loves What This Guy Has to Say**\
-`Mario Nawfal has a knack for getting Mr. Musk’s attention online, and for turning that into big business.`\
-https://nytimes.com/2025/12/05/business/media/elon-musk-mario-nawfal-x.html
-
-**This time, the Bucks have different buttons to push with Giannis out**\
-`Milwaukee "can't catch a break on health," but here's how it could stem the tide with its best player sidelined again.`\
-https://nytimes.com/athletic/6863817/2025/12/05/giannis-antetokounmpo-bucks-kevin-porter-ryan-rollins/
 
