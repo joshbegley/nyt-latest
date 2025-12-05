@@ -2,7 +2,7 @@
 `The former president defended his support for transgender rights, a stance that has provoked second-guessing among some Democrats.`\
 https://nytimes.com/2025/12/05/us/biden-lgbtq-award.html
 
-**Tigers sign Drew Anderson from KBO on one-year deal**\
+**Tigers sign pitcher Drew Anderson from KBO on one-year deal: Sources**\
 `Anderson, who spent time in Detroit's organization in 2024 before heading to Korea, is expected to start for the Tigers.`\
 https://nytimes.com/athletic/6866583/2025/12/05/mlb-tigers-drew-anderson-contract/
 
