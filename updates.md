@@ -1,3 +1,11 @@
+**Battlefield Picture Worsening for Ukraine as Trump Pushes Peace Plan**\
+`Russian forces have advanced on several fronts recently. President Vladimir V. Putin signaled after talks with U.S. officials that he was not budging from demands.`\
+https://nytimes.com/2025/12/06/world/europe/ukraine-pokrovsk-battlefield-russia.html
+
+**Dochterman: Iowa State fans don't deserve the heartbreak, but can savor Campbell's success**\
+`Iowa State fans bid farewell to the program's best figure, but will rebuild it again. `\
+https://nytimes.com/athletic/6866749/2025/12/06/iowa-state-matt-campbell-fans-history/
+
 **Kristen Stewart Wants to Blow Up the Myth of the Brilliant Male Actor**\
 `The actress and director says the world of filmmaking needs a “full system break.”`\
 https://nytimes.com/2025/12/06/magazine/kristen-stewart-interview.html
