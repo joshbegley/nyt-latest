@@ -1,3 +1,11 @@
+**Nebraska fires OL coach Donovan Raiola, uncle of QB Dylan Raiola**\
+`Raiola’s departure is certain to fuel further speculation about the future of his nephew, Nebraska's starting quarterback.`\
+https://nytimes.com/athletic/6868376/2025/12/06/nebraska-fires-donovan-raiola-dylan/
+
+**College Football Playoff 2025 projections: Tulane locks up bid with championships underway**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/12/06/college-football-playoff-bracket-projections-odds/
+
 **Salah says he has been ‘thrown under bus’ by Liverpool, no relationship with Slot**\
 `Salah believes he's been made a scapegoat for Liverpool's struggles this season, insisting "someone does not want me in the club".`\
 https://nytimes.com/athletic/6868345/2025/12/06/salah-liverpool-interview-news-leaving-slot/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6868297/2025/12/06/jets-vs-oilers-stream-how-to-wat
 **How to watch Wild vs. Canucks: Time, TV, streaming**\
 `Find out how to watch the Minnesota Wild play the Vancouver Canucks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6868299/2025/12/06/wild-vs-canucks-stream-how-to-watch-dec-6/
-
-**How to watch Blackhawks vs. Kings: Time, TV, streaming**\
-`Find out how to watch the Chicago Blackhawks play the Los Angeles Kings, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6868295/2025/12/06/blackhawks-vs-kings-stream-how-to-watch-dec-6/
-
-**How to watch Red Wings vs. Kraken: Time, TV, streaming**\
-`Find out how to watch the Detroit Red Wings play the Seattle Kraken, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6868293/2025/12/06/red-wings-vs-kraken-stream-how-to-watch-dec-6/
 
