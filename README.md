@@ -1,3 +1,15 @@
+**How to watch UTEP vs. TCU women's basketball: Time, TV, streaming**\
+`Find out how to watch the UTEP Miners play the TCU Horned Frogs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6867260/2025/12/06/utep-vs-tcu-stream-how-to-watch-dec-6/
+
+**How to watch Duke vs. Michigan State men's basketball: Time, TV, streaming**\
+`Find out how to watch the Duke Blue Devils play the Michigan State Spartans, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6867258/2025/12/06/duke-vs-michigan-state-stream-how-to-watch-dec-6/
+
+**How to watch Iowa State vs. Purdue men's basketball: Time, TV, streaming**\
+`Find out how to watch the Iowa State Cyclones play the Purdue Boilermakers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6867256/2025/12/06/iowa-state-vs-purdue-stream-how-to-watch-dec-6/
+
 **Sweet Season**\
 `Rejoice: NYT Cooking’s holiday cookie extravaganza has returned.`\
 https://nytimes.com/2025/12/06/briefing/sweet-season.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6866331/2025/12/06/toronto-maple-leafs-season-nhl-w
 **World Cup draw was interminable TV, but dieu merci for Thierry Henry**\
 `The World Cup draw needed less empty lead-up and more substantive insights, Richard Deitsch says in his review of the TV experience.`\
 https://nytimes.com/athletic/6866376/2025/12/06/world-cup-draw-fox-tv-thierry-henry/
-
-**NFL Week 14 roundtable: Bears-Packers revival, Eagles OC under fire, AFC South drama**\
-`December football means there are playoff implications across the league in Week 14. Our writers discuss Colts-Jags, Bears-Packers and more.`\
-https://nytimes.com/athletic/6865635/2025/12/06/nfl-week-14-bears-packers-eagles-offense/
-
-**How to watch the MLS Cup final: Lionel Messi and Miami vs. Thomas Müller and Vancouver**\
-`Inter Miami is the big-name machine with the league's highest payroll, while the Whitecaps are trying to cap a truly surprising season.`\
-https://nytimes.com/athletic/6863386/2025/12/06/messi-miami-muller-vancouver-whitecaps-mls-cup-final/
-
-**What Should I Do About the Bully in My Social Circle?**\
-`I know from experience that any vulnerability I expose will be used by this person.`\
-https://nytimes.com/2025/12/06/magazine/bully-friend-ethics.html
 
