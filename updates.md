@@ -1,3 +1,19 @@
+**What I’m hearing on Tom Brady’s Raiders rut and the startup that could save the Colts**\
+`Also, the coaching candidates you can expect to hear about as the season winds down, and a messy situation in Buffalo.`\
+https://nytimes.com/athletic/6866949/2025/12/06/nfl-rumors-news-tom-brady-raiders-daniel-jones-roommate/
+
+**Did You Follow the News Below the Fold? Take Our Year-End Quiz**\
+`These stories may not have made the front page — but they certainly left an impression.`\
+https://nytimes.com/interactive/2025/12/06/special-series/06tp-quiz.html
+
+**Memphis focused on Charles Huff for next head coach: Source**\
+`Charles Huff rose to the top of Memphis' search after going 7-5 in his first season at Southern Miss.`\
+https://nytimes.com/athletic/6867471/2025/12/06/memphis-head-coach-search-charles-huff/
+
+**12 People Killed in Mass Shooting at Illegal Tavern in South Africa**\
+`The police said they were searching for three assailants who opened fire, shooting 25 people. A 3-year-old boy was among the dead, while 13 survivors were being treated in the hospital.`\
+https://nytimes.com/2025/12/06/world/africa/south-africa-shooting.html
+
 **Make Your Smart TV Stop Spying On You**\
 `Smart TVs are tracking everything you watch, taking as many as 20-30 screenshots per minute. If you find all this surveillance a little spooky, we understand. Luckily there’s a way to turn off this spying feature — and there are zero downsides to doing so.`\
 https://nytimes.com/video/smarter-living/wirecutter/100000010553276/make-your-smart-tv-stop-spying-on-you.html

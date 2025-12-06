@@ -1,9 +1,21 @@
+**What I’m hearing on Tom Brady’s Raiders rut and the startup that could save the Colts**\
+`Also, the coaching candidates you can expect to hear about as the season winds down, and a messy situation in Buffalo.`\
+https://nytimes.com/athletic/6866949/2025/12/06/nfl-rumors-news-tom-brady-raiders-daniel-jones-roommate/
+
+**Did You Follow the News Below the Fold? Take Our Year-End Quiz**\
+`These stories may not have made the front page — but they certainly left an impression.`\
+https://nytimes.com/interactive/2025/12/06/special-series/06tp-quiz.html
+
+**Memphis focused on Charles Huff for next head coach: Source**\
+`Charles Huff rose to the top of Memphis' search after going 7-5 in his first season at Southern Miss.`\
+https://nytimes.com/athletic/6867471/2025/12/06/memphis-head-coach-search-charles-huff/
+
 **Make Your Smart TV Stop Spying On You**\
 `Smart TVs are tracking everything you watch, taking as many as 20-30 screenshots per minute. If you find all this surveillance a little spooky, we understand. Luckily there’s a way to turn off this spying feature — and there are zero downsides to doing so.`\
 https://nytimes.com/video/smarter-living/wirecutter/100000010553276/make-your-smart-tv-stop-spying-on-you.html
 
 **12 People Killed in Mass Shooting at Illegal Tavern in South Africa**\
-`The police said they were searching for three assailants who opened fire, shooting 25 people. A 3-year-old boy was among the dead, while 14 survivors were being treated in the hospital.`\
+`The police said they were searching for three assailants who opened fire, shooting 25 people. A 3-year-old boy was among the dead, while 13 survivors were being treated in the hospital.`\
 https://nytimes.com/2025/12/06/world/africa/south-africa-shooting.html
 
 **Charlton vs. Portsmouth abandoned due to medical emergency in crowd**\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6867159/2025/12/06/aston-villa-2-arsenal-1-trossard
 **This is Mitchell Starc's world. England are just living in it**\
 `The veteran has bowled and batted Australia into a position of real strength and continues to expose the fragility of England's top order`\
 https://nytimes.com/athletic/6867188/2025/12/06/mitchell-starc-australia-england-ashes/
-
-**How to watch Blue Jackets vs. Panthers: Time, TV, streaming**\
-`Find out how to watch the Columbus Blue Jackets play the Florida Panthers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6867493/2025/12/06/blue-jackets-vs-panthers-stream-how-to-watch-dec-6/
-
-**How to watch Pelicans vs. Nets: Time, TV, streaming**\
-`Find out how to watch the New Orleans Pelicans play the Brooklyn Nets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6867491/2025/12/06/pelicans-vs-nets-stream-how-to-watch-dec-6/
-
-**How to watch Rutgers vs. Michigan men's basketball: Time, TV, streaming**\
-`Find out how to watch the Rutgers Scarlet Knights play the Michigan Wolverines, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6867466/2025/12/06/rutgers-vs-michigan-stream-how-to-watch-dec-6/
 
