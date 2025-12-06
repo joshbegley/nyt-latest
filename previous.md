@@ -1,3 +1,7 @@
+**Crayola Magnetic Blocks Are Recalled Over Choking Hazard Concerns**\
+`Magnets in the toy, pip-Cubes, can fall out of the blocks and be swallowed by children, causing injury or death, federal regulators warned.`\
+https://nytimes.com/2025/12/06/business/crayola-magnetic-cubes-recall-safety-hazard.html
+
 **Venezuela’s Nobel Winner Will Go to Norway for Peace Prize, Official Says**\
 `Venezuelan officials say María Corina Machado will be considered a fugitive if she goes to Oslo, laying bare the risks for the opposition leader.`\
 https://nytimes.com/2025/12/06/world/americas/venezuela-peace-prize-norway.html
@@ -15,7 +19,7 @@ https://nytimes.com/2025/12/06/special-series/annalena-baerbock-united-nations-a
 https://nytimes.com/athletic/6867667/2025/12/06/buendia-goalmouth-scramble-villa-arsenal/
 
 **To win the F1 title, Max Verstappen might need to do the unthinkable: slow down**\
-`Max Verstappen vows an 'all out' attack in F1's title showdown with Lando Norris. What that actually looks like might be surprising
+`Max Verstappen vows an 'all out' attack in F1's title showdown with Lando Norris. What that actually looks like might be unusual
 `\
 https://nytimes.com/athletic/6867763/2025/12/06/f1-championship-max-verstappen-lando-norris-abu-dhabi/
 
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6867954/2025/12/06/clippers-vs-timberwolves-stream-
 **How to watch Predators vs. Hurricanes: Time, TV, streaming**\
 `Find out how to watch the Nashville Predators play the Carolina Hurricanes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6867952/2025/12/06/predators-vs-hurricanes-stream-how-to-watch-dec-6/
-
-**How to watch Blues vs. Senators: Time, TV, streaming**\
-`Find out how to watch the St. Louis Blues play the Ottawa Senators, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6867949/2025/12/06/blues-vs-senators-stream-how-to-watch-dec-6/
 

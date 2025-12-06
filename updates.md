@@ -1,3 +1,12 @@
+**Crayola Magnetic Blocks Are Recalled Over Choking Hazard Concerns**\
+`Magnets in the toy, pip-Cubes, can fall out of the blocks and be swallowed by children, causing injury or death, federal regulators warned.`\
+https://nytimes.com/2025/12/06/business/crayola-magnetic-cubes-recall-safety-hazard.html
+
+**To win the F1 title, Max Verstappen might need to do the unthinkable: slow down**\
+`Max Verstappen vows an 'all out' attack in F1's title showdown with Lando Norris. What that actually looks like might be unusual
+`\
+https://nytimes.com/athletic/6867763/2025/12/06/f1-championship-max-verstappen-lando-norris-abu-dhabi/
+
 **To win the F1 title, Max Verstappen might need to do the unthinkable: slow down**\
 `Max Verstappen vows an 'all out' attack in F1's title showdown with Lando Norris. What that actually looks like might be surprising
 `\
