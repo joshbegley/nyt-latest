@@ -1,36 +1,40 @@
-**Mark Pope’s second Kentucky season hits crisis point in Gonzaga blowout**\
-`The most expensive team in college basketball is 5-4, with no discernible plan on offense and way too little connect on defense. `\
-https://nytimes.com/athletic/6866829/2025/12/05/kentucky-coach-mark-pope-gonzaga/
+**Analyzing team strength at the 2026 World Cup: Is England in a 'Group of Death'?**\
+`An expanded tournament of 48 teams doesn't mean the leading nations have an easy path to the knockout stage`\
+https://nytimes.com/athletic/6866368/2025/12/06/world-cup-2026-group-analysis-team-strength/
 
-**Brazil Has a Cachaça Cocktail for Every Season**\
-`If summer is for bottomless caipirinhas, winter is all about warming quentão. Here are recipes for both.`\
-https://nytimes.com/2025/12/05/dining/caipirinhas-quentao-recipe.html
+**'Lamine Yamal...he's not bad!' - watching the World Cup draw with the underdogs**\
+`The Athletic spoke to players whose teams were in Pot 4 of Friday's World Cup draw, and will have the odds stacked against them next summer`\
+https://nytimes.com/athletic/6866436/2025/12/06/watching-the-world-cup-draw-with-the-underdogs-lamine-yamal-hes-not-bad/
 
-**Winter Quaffs**\
-`Marshal Herrmann’s quick-witted Saturday debut puzzle is quite quizzical.`\
-https://nytimes.com/2025/12/05/crosswords/daily-puzzle-2025-12-06.html
+**How clubs cope when their managers are lured away**\
+`Thomas Frank faces former club Brentford knowing Keith Andrews has carried on his fine work since he left for Tottenham. How has he done it?`\
+https://nytimes.com/athletic/6865025/2025/12/06/managers-leave-thomas-frank-keith-andrews-tottenham-brentford/
 
-**Man Accused of Setting Subway Rider on Fire Is Charged With Arson**\
-`The victim was sleeping on a train at Penn Station in Manhattan around 3 a.m. Monday when an 18-year-old man set him on fire, the police said.`\
-https://nytimes.com/2025/12/05/nyregion/subway-man-on-fire.html
+**What would Mainoo's exit say about the modern Manchester United?**\
+`The United manager appears unconvinced by Mainoo's capabilities and the midfielder is now seeking a move in January. It's a sad situation`\
+https://nytimes.com/athletic/6580021/2025/12/06/manchester-united-kobbie-mainoo-transfer-amorim/
 
-**Under Kennedy, U.S. Vaccine Policy Arrives at a ‘Defining Moment’**\
-`Robert F. Kennedy Jr. may be only beginning to put his stamp on American immunization policy.`\
-https://nytimes.com/2025/12/05/us/politics/vaccines-hepatitis-b-rfk-jr.html
+**Why Alex Scott has earned his place in England's World Cup conversation**\
+`Can a talented young player from Guernsey help Thomas Tuchel's side lift the World Cup in New Jersey next summer?`\
+https://nytimes.com/athletic/6844810/2025/12/06/alex-scott-england-world-cup/
 
-**Iowa State names Jimmy Rogers coach after Matt Campbell chooses Penn State**\
-`Rogers heads to the Cyclones after serving as head coach at Washington State and South Dakota State.`\
-https://nytimes.com/athletic/6866866/2025/12/05/iowa-state-jimmy-rogers-coach-hiring-matt-campbell/
+**‘No Going Back,’ Survivors of Deadly Hong Kong Fire Are in Limbo**\
+`Hong Kong, with some of the world’s highest housing costs and inequality, must now figure out how to help thousands of residents who lost friends, family and homes.`\
+https://nytimes.com/2025/12/06/world/asia/hong-kong-fire-survivors-housing.html
 
-**Hawks' Jalen Johnson becomes sixth player in NBA history to log first-half triple-double**\
-`The young Hawks forward made history in the first half before Denver's Nikola Jokić led a second-half rally to earn a 1-point Nuggets win.`\
-https://nytimes.com/athletic/6866847/2025/12/05/jalen-johnson-triple-double-hawks-first-half/
+**Quote of the Day: Dancing With the Babies Can Give Grown-Ups a Lesson**\
+`Quotation of the Day for Saturday, December 6, 2025.`\
+https://nytimes.com/2025/12/06/pageoneplus/quote-of-the-day-dancing-with-the-babies-can-give-grown-ups-a-lesson.html
 
-**Blake Griffin slams Clippers, Steve Ballmer for Chris Paul's sudden exit**\
-`"At the end of the day, an organization is built on a foundation of respect and how you treat people," Griffin said.`\
-https://nytimes.com/athletic/6866628/2025/12/05/blake-griffin-chris-paul-amazon/
+**China’s Mad at Japan, and Pop Stars Are Paying for It**\
+`Beijing is curbing Japanese movies, music and art as it seeks to punish Tokyo for its support of Taiwan.`\
+https://nytimes.com/2025/12/06/world/asia/china-japan-anime-taiwan-dispute.html
 
-**Judge Rules Trump Exceeded Authority by Holding Deportees at Guantánamo**\
-`Judge Sparkle L. Sooknanan stopped short of ordering the shuttering of the detention operation. But a lawyer for the challengers said they would soon seek a closure order.`\
-https://nytimes.com/2025/12/05/us/politics/guantanamo-migrants-deportation-ruling.html
+**Connections: Sports Edition Coach: Hints for Dec. 6, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6863171/2025/12/06/connections-sports-edition-hints-for-dec-6-2025/
+
+**Corrections: Dec. 6, 2025**\
+`Corrections that appeared in print on Saturday, Dec. 6, 2025.`\
+https://nytimes.com/2025/12/06/pageoneplus/corrections-dec-6-2025.html
 

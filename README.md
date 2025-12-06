@@ -1,3 +1,11 @@
+**Explained: How Nottingham Forest plan to transform the City Ground**\
+`Plans to redevelop the City Ground have taken a big step forward, with the club today launching a public consultation period`\
+https://nytimes.com/athletic/6865182/2025/12/06/explained-nottingham-forest-plans-city-ground/
+
+**The World Cup draw was big and brash - and a taste of what's to come next summer**\
+`The draw for the 2026 men's World Cup was, in the words of one coach, 'very American' - just like the tournament itself is set to be`\
+https://nytimes.com/athletic/6866496/2025/12/06/world-cup-draw-trump-usa-taste/
+
 **Analyzing team strength at the 2026 World Cup: Is England in a 'Group of Death'?**\
 `An expanded tournament of 48 teams doesn't mean the leading nations have an easy path to the knockout stage`\
 https://nytimes.com/athletic/6866368/2025/12/06/world-cup-2026-group-analysis-team-strength/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/06/pageoneplus/quote-of-the-day-dancing-with-the-bab
 **China’s Mad at Japan, and Pop Stars Are Paying for It**\
 `Beijing is curbing Japanese movies, music and art as it seeks to punish Tokyo for its support of Taiwan.`\
 https://nytimes.com/2025/12/06/world/asia/china-japan-anime-taiwan-dispute.html
-
-**Connections: Sports Edition Coach: Hints for Dec. 6, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6863171/2025/12/06/connections-sports-edition-hints-for-dec-6-2025/
-
-**Corrections: Dec. 6, 2025**\
-`Corrections that appeared in print on Saturday, Dec. 6, 2025.`\
-https://nytimes.com/2025/12/06/pageoneplus/corrections-dec-6-2025.html
 
