@@ -1,3 +1,7 @@
+**Kristen Stewart Wants to Blow Up the Myth of the Brilliant Male Actor**\
+`The actress and director says the world of filmmaking needs a “full system break.”`\
+https://nytimes.com/2025/12/06/magazine/kristen-stewart-interview.html
+
 **What to Know About Netflix’s $83 Billion Deal for Warner Bros. Discovery**\
 `The cash-and-stock deal would give the world’s largest paid streaming service expansive power over theater owners and entertainment-industry unions.`\
 https://nytimes.com/2025/12/06/business/netflix-warner-bros-what-to-know.html

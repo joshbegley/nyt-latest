@@ -1,3 +1,7 @@
+**Kristen Stewart Wants to Blow Up the Myth of the Brilliant Male Actor**\
+`The actress and director says the world of filmmaking needs a “full system break.”`\
+https://nytimes.com/2025/12/06/magazine/kristen-stewart-interview.html
+
 **What to Know About Netflix’s $83 Billion Deal for Warner Bros. Discovery**\
 `The cash-and-stock deal would give the world’s largest paid streaming service expansive power over theater owners and entertainment-industry unions.`\
 https://nytimes.com/2025/12/06/business/netflix-warner-bros-what-to-know.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/06/world/africa/south-africa-afrikaners-trump.html
 **Josh Hutcherson Is Back. He Never Wanted to Leave.**\
 `The “Five Nights at Freddy’s” and “I Love L.A.” star found instant success as a child actor. After his “Hunger Games” fame, it felt like it almost all went away.`\
 https://nytimes.com/2025/12/06/movies/josh-hutcherson-interview-five-nights-at-freddys-2.html
-
-**It’s Not Just You. Users Struggle With the Instagram Repost Button.**\
-`The new repost option, sandwiched between comment and share, has led to consternation and accidental reposts by some users.`\
-https://nytimes.com/2025/12/06/technology/instagram-repost-button-accidental.html
 
