@@ -1,3 +1,7 @@
+**Locro de Gallina (Chicken Soup With Squash, Green Plantains and Yuca)**\
+`Derived from a Quechua term for a hearty soup-stew hybrid, locro originated in the Andes mountain range but today encompasses a glut of South American soups that vary from country to country, and household to household.`\
+https://nytimes.com/video/dining/100000010366914/locro-de-gallina-chicken-soup-with-squash-green-plantains-and-yuca.html
+
 **Biden Says Republicans Aim to Turn L.G.B.T.Q. Identity Into ‘Something Scary’**\
 `The former president defended his support for transgender rights, a stance that has provoked second-guessing among some Democrats.`\
 https://nytimes.com/2025/12/05/us/biden-lgbtq-award.html
