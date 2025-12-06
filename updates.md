@@ -1,3 +1,7 @@
+**Who are the leading candidates for World Cup Golden Boot?**\
+`Mbappe is favorite to be the top scorer at the World Cup, but there are plenty of big names in contention.`\
+https://nytimes.com/athletic/6867430/2025/12/06/kylian-mbappe-harry-kane-erling-haaland-lead-world-cup-golden-boot-rankings/
+
 **The abridged Michael Jordan vs. NASCAR trial: Daily highlights from the case**\
 `Miss anything from the Michael Jordan vs. NASCAR trial? Here's our condensed, day-by-day look at the highlights from testimony.`\
 https://nytimes.com/athletic/6856325/2025/12/06/michael-jordan-nascar-trial-highlights-testimony/
