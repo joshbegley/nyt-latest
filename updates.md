@@ -1,3 +1,7 @@
+**College Football Playoff 2025 projections: What our model says after the latest Top 25**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/12/06/college-football-playoff-bracket-projections-odds/
+
 **Thunder hold Anthony Davis to 2 points and demolish Mavericks for 14th consecutive win**\
 `The Mavericks’ three-game winning streak came to an end against their I-35 competition, while the Thunder improved to 22-1.`\
 https://nytimes.com/athletic/6867040/2025/12/06/anthony-davis-thunder-mavericks/

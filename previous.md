@@ -1,3 +1,7 @@
+**College Football Playoff 2025 projections: What our model says after the latest Top 25**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/12/06/college-football-playoff-bracket-projections-odds/
+
 **Thunder hold Anthony Davis to 2 points and demolish Mavericks for 14th consecutive win**\
 `The Mavericks’ three-game winning streak came to an end against their I-35 competition, while the Thunder improved to 22-1.`\
 https://nytimes.com/athletic/6867040/2025/12/06/anthony-davis-thunder-mavericks/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6865611/2025/12/06/penn-state-recruiting-class-rost
 **Gabriel Vilardi opens up about mental health struggles: 'You just see the negatives'**\
 `This story is not about Gabriel Vilardi. He is sharing the details from his life in case he can help somebody else.`\
 https://nytimes.com/athletic/6863826/2025/12/06/winnipeg-jets-gabriel-vilardi-mental-health/
-
-**Wild goalie Jesper Wallstedt's hot streak drawing praise from former coaches, players**\
-`Wallstedt has been one of the best goalies in the NHL this year and is doing things that a rookie goaltender hasn't done in about 90 years.`\
-https://nytimes.com/athletic/6866099/2025/12/06/wild-goalie-jesper-wallstedt-nhl/
 
