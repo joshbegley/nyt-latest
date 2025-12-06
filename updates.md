@@ -1,3 +1,7 @@
+**What are the Commanders' biggest needs? What is Kliff Kingsbury's future? Mailbag**\
+`Also: What's the team's take on Ben Sinnott? And will Dan Quinn keep calling the defensive plays next season?`\
+https://nytimes.com/athletic/6867267/2025/12/06/washington-commanders-mailbag-roster-needs/
+
 **Blackhawks GM Kyle Davidson isn't ready to say 'I told you so' — not yet, at least**\
 `From tanking to a potential surprise playoff team, Davidson's drastic — and effective — rebuild plan is paying off sooner than anticipated.`\
 https://nytimes.com/athletic/6866468/2025/12/06/blackhawks-gm-kyle-davidson-rebuild/

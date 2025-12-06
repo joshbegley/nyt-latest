@@ -1,3 +1,7 @@
+**What are the Commanders' biggest needs? What is Kliff Kingsbury's future? Mailbag**\
+`Also: What's the team's take on Ben Sinnott? And will Dan Quinn keep calling the defensive plays next season?`\
+https://nytimes.com/athletic/6867267/2025/12/06/washington-commanders-mailbag-roster-needs/
+
 **Blackhawks GM Kyle Davidson isn't ready to say 'I told you so' — not yet, at least**\
 `From tanking to a potential surprise playoff team, Davidson's drastic — and effective — rebuild plan is paying off sooner than anticipated.`\
 https://nytimes.com/athletic/6866468/2025/12/06/blackhawks-gm-kyle-davidson-rebuild/
@@ -33,8 +37,4 @@ https://nytimes.com/video/opinion/100000010567489/pete-hegseth-is-ordering-execu
 **NHL predictions 2.0: Revised picks for Stanley Cup, playoff field, awards and more**\
 `Which teams will emerge from the East’s mushy middle? Who will make a case for the Selke Trophy, which looks the most open it has in years?`\
 https://nytimes.com/athletic/6865933/2025/12/06/nhl-predictions-picks-stanley-cup-playoffs-awards/
-
-**Republicans Are Quietly Pushing Back Against Trump**\
-`Will the president soon wish he hadn’t run for a second term?`\
-https://nytimes.com/2025/12/06/opinion/trump-declining-popularity-congress.html
 
