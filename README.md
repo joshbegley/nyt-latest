@@ -1,3 +1,7 @@
+**Inter Miami wins MLS Cup, warding off Vancouver on Messi-created moments**\
+`The Whitecaps made it extremely uncomfortable for the hosts, but Lionel Messi & Co. are MLS champions at last after surviving the final`\
+https://nytimes.com/athletic/6868332/2025/12/06/mls-cup-inter-miami-vancouver-whitecaps-messi-muller-de-paul/
+
 **Map: 7.0-Magnitude Earthquake Shakes Alaska**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/12/06/us/quake-tracker-alaska.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6868092/2025/12/06/college-football-playoff-bracket
 **How to watch Rockets vs. Mavericks: Time, TV, streaming**\
 `Find out how to watch the Houston Rockets play the Dallas Mavericks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6868301/2025/12/06/rockets-vs-mavericks-stream-how-to-watch-dec-6/
-
-**How to watch Jets vs. Oilers: Time, TV, streaming**\
-`Find out how to watch the Winnipeg Jets play the Edmonton Oilers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6868297/2025/12/06/jets-vs-oilers-stream-how-to-watch-dec-6/
 
