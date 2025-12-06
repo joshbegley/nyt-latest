@@ -1,3 +1,7 @@
+**Iowa State names Jimmy Rogers coach after Matt Campbell chooses Penn State**\
+`Rogers heads to the Cyclones after serving as head coach at Washington State and South Dakota State.`\
+https://nytimes.com/athletic/6866866/2025/12/05/iowa-state-jimmy-rogers-coach-hiring-matt-campbell/
+
 **Hawks' Jalen Johnson becomes sixth player in NBA history to log first-half triple-double**\
 `The 23-year-old Hawks forward achieved the honor in one half, joining a short list of NBA stars to have pulled off the feat. `\
 https://nytimes.com/athletic/6866847/2025/12/05/jalen-johnson-triple-double-hawks-first-half/

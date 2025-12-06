@@ -1,3 +1,7 @@
+**Iowa State names Jimmy Rogers coach after Matt Campbell chooses Penn State**\
+`Rogers heads to the Cyclones after serving as head coach at Washington State and South Dakota State.`\
+https://nytimes.com/athletic/6866866/2025/12/05/iowa-state-jimmy-rogers-coach-hiring-matt-campbell/
+
 **Hawks' Jalen Johnson becomes sixth player in NBA history to log first-half triple-double**\
 `The 23-year-old Hawks forward achieved the honor in one half, joining a short list of NBA stars to have pulled off the feat. `\
 https://nytimes.com/athletic/6866847/2025/12/05/jalen-johnson-triple-double-hawks-first-half/
@@ -33,8 +37,4 @@ https://nytimes.com/video/t-magazine/100000010568005/did-gen-x-invent-indie-film
 **It’s time for America to dream the impossible World Cup dream**\
 `As a country, we are wired to believe that with hard work, discipline and confidence, we can win at most everything. Except the World Cup. `\
 https://nytimes.com/athletic/6866528/2025/12/05/world-cup-draw-usa-impossible-dream/
-
-**Tyler Adams says USA can make history with 'furthest ever' World Cup run**\
-`The team has a quarterfinal and a semifinal run in its World Cup history, but midfielder and 2022 captain Adams wants more.`\
-https://nytimes.com/athletic/6866644/2025/12/05/tyler-adams-world-cup-usmnt-history/
 
