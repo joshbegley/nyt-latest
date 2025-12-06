@@ -1,5 +1,9 @@
+**Trump Has Long Disdained Europe’s Elites. Now, It’s Official.**\
+`A new White House policy document formalizes President Trump’s long-held contempt for Europe’s leaders. It made clear that the continent now stands at a strategic crossroads.`\
+https://nytimes.com/2025/12/06/world/europe/trump-europe-strategy-document.html
+
 **UConn targeting Toledo's Jason Candle to replace Jim Mora: Sources**\
-`Jason Candle has gone 81-44 in 10 years at Toledo and will head to UConn after Jim Mora took the Colorado State job.`\
+`Jason Candle has gone 81-44 in 10 years at Toledo and would head to UConn after Jim Mora took the Colorado State job.`\
 https://nytimes.com/athletic/6866861/2025/12/06/uconn-head-coach-jason-candle-toledo/
 
 **College Football Playoff 2025 projections: What our model says after the latest Top 25**\
@@ -27,14 +31,10 @@ https://nytimes.com/athletic/6866031/2025/12/06/video-analysis-eagles-offense-sa
 https://nytimes.com/2025/12/06/business/dealbook/scott-bessent-dealbook.html
 
 **What are the Commanders' biggest needs? What is Kliff Kingsbury's future? Mailbag**\
-`Also: What's the team's take on Ben Sinnott? And will Dan Quinn keep calling the defensive plays next season?`\
+`Also, what's the team's take on Ben Sinnott? And will Dan Quinn keep calling the defensive plays next season?`\
 https://nytimes.com/athletic/6867267/2025/12/06/washington-commanders-mailbag-roster-needs/
 
 **Blackhawks GM Kyle Davidson isn't ready to say 'I told you so' — not yet, at least**\
 `From tanking to a potential surprise playoff team, Davidson's drastic — and effective — rebuild plan is paying off sooner than anticipated.`\
 https://nytimes.com/athletic/6866468/2025/12/06/blackhawks-gm-kyle-davidson-rebuild/
-
-**Penn State signed only 2 recruits this week. How detrimental will this be to new staff?**\
-`Matt Campbell and his personnel department will be forced to hit the transfer portal in January to fill some holes on the roster. `\
-https://nytimes.com/athletic/6865611/2025/12/06/penn-state-recruiting-class-roster-transfers/
 
