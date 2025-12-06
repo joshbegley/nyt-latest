@@ -1,3 +1,7 @@
+**The Chelsea loanee lighting up League One after dad's tough love**\
+`The Chelsea youngster is starring for Huddersfield Town — and he's from a family very much used to fame`\
+https://nytimes.com/athletic/6864355/2025/12/06/leo-castledine-chelsea-huddersfield-family/
+
 **Explained: How Nottingham Forest plan to transform the City Ground**\
 `Plans to redevelop the City Ground have taken a big step forward, with the club today launching a public consultation period`\
 https://nytimes.com/athletic/6865182/2025/12/06/explained-nottingham-forest-plans-city-ground/
