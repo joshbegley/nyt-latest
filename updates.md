@@ -1,3 +1,15 @@
+**This is Mitchell Starc's world. England are just living in it**\
+`The veteran has bowled and batted Australia into a position of real strength and continues to expose the fragility of England's top order`\
+https://nytimes.com/athletic/6867188/2025/12/06/mitchell-starc-australia-england-ashes/
+
+**How to watch Blue Jackets vs. Panthers: Time, TV, streaming**\
+`Find out how to watch the Columbus Blue Jackets play the Florida Panthers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6867493/2025/12/06/blue-jackets-vs-panthers-stream-how-to-watch-dec-6/
+
+**How to watch Pelicans vs. Nets: Time, TV, streaming**\
+`Find out how to watch the New Orleans Pelicans play the Brooklyn Nets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6867491/2025/12/06/pelicans-vs-nets-stream-how-to-watch-dec-6/
+
 **How to watch Rutgers vs. Michigan men's basketball: Time, TV, streaming**\
 `Find out how to watch the Rutgers Scarlet Knights play the Michigan Wolverines, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6867466/2025/12/06/rutgers-vs-michigan-stream-how-to-watch-dec-6/
