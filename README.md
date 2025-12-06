@@ -1,3 +1,7 @@
+**Who are the leading candidates for World Cup Golden Boot?**\
+`Mbappe is favorite to be the top scorer at the World Cup, but there are plenty of big names in contention.`\
+https://nytimes.com/athletic/6867430/2025/12/06/kylian-mbappe-harry-kane-erling-haaland-lead-world-cup-golden-boot-rankings/
+
 **The abridged Michael Jordan vs. NASCAR trial: Daily highlights from the case**\
 `Miss anything from the Michael Jordan vs. NASCAR trial? Here's our condensed, day-by-day look at the highlights from testimony.`\
 https://nytimes.com/athletic/6856325/2025/12/06/michael-jordan-nascar-trial-highlights-testimony/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6867497/2025/12/06/everything-fantasy-football-mana
 **What I’m hearing on Tom Brady’s Raiders rut and the startup that could save the Colts**\
 `Also, the coaching candidates you can expect to hear about as the season winds down, and a messy situation in Buffalo.`\
 https://nytimes.com/athletic/6866949/2025/12/06/nfl-rumors-news-tom-brady-raiders-daniel-jones-roommate/
-
-**Did You Follow the News Below the Fold? Take Our Year-End Quiz**\
-`These stories may not have made the front page — but they certainly left an impression.`\
-https://nytimes.com/interactive/2025/12/06/special-series/06tp-quiz.html
 
