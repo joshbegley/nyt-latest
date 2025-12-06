@@ -1,3 +1,23 @@
+**Under Kennedy, U.S. Vaccine Policy Arrives at a ‘Defining Moment’**\
+`Robert F. Kennedy Jr. may be only beginning to put his stamp on American immunization policy.`\
+https://nytimes.com/2025/12/05/us/politics/vaccines-hepatitis-b-rfk-jr.html
+
+**Iowa State names Jimmy Rogers coach after Matt Campbell chooses Penn State**\
+`Rogers heads to the Cyclones after serving as head coach at Washington State and South Dakota State.`\
+https://nytimes.com/athletic/6866866/2025/12/05/iowa-state-jimmy-rogers-coach-hiring-matt-campbell/
+
+**Hawks' Jalen Johnson becomes sixth player in NBA history to log first-half triple-double**\
+`The young Hawks forward made history in the first half before Denver's Nikola Jokić led a second-half rally to earn a 1-point Nuggets win.`\
+https://nytimes.com/athletic/6866847/2025/12/05/jalen-johnson-triple-double-hawks-first-half/
+
+**Blake Griffin slams Clippers, Steve Ballmer for Chris Paul's sudden exit**\
+`"At the end of the day, an organization is built on a foundation of respect and how you treat people," Griffin said.`\
+https://nytimes.com/athletic/6866628/2025/12/05/blake-griffin-chris-paul-amazon/
+
+**Judge Rules Trump Exceeded Authority by Holding Deportees at Guantánamo**\
+`Judge Sparkle L. Sooknanan stopped short of ordering the shuttering of the detention operation. But a lawyer for the challengers said they would soon seek a closure order.`\
+https://nytimes.com/2025/12/05/us/politics/guantanamo-migrants-deportation-ruling.html
+
 **‘No Going Back,’ Survivors of Deadly Hong Kong Fire Are in Limbo**\
 `Hong Kong, with some of the world’s highest housing costs and inequality, must now figure out how to help thousands of residents who lost friends, family and homes.`\
 https://nytimes.com/2025/12/06/world/asia/hong-kong-fire-survivors-housing.html
