@@ -1,3 +1,11 @@
+**Cubs targeting free agent Zac Gallen in their search for more pitching: Sources**\
+`The right-handed starter struggled for much of this past season, but he has a track record of durability and high-level upside. `\
+https://nytimes.com/athletic/6868108/2025/12/06/cubs-zac-gallen-free-agency/
+
+**Pam Hogg, Iconoclastic Scottish Designer, Dies at 74**\
+`She was a star of London’s post-punk D.I.Y. fashion, art and performance scene, and dressed a generation of rock stars in her otherworldly handmade clothes.`\
+https://nytimes.com/2025/12/06/style/pam-hogg-dead.html
+
 **Crayola Magnetic Blocks Are Recalled Over Choking Hazard Concerns**\
 `Magnets in the toy, pip-Cubes, can fall out of the blocks and be swallowed by children, causing injury or death, federal regulators warned.`\
 https://nytimes.com/2025/12/06/business/crayola-magnetic-cubes-recall-safety-hazard.html
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6867960/2025/12/06/canadiens-vs-maple-leafs-stream-
 **How to watch Mammoth vs. Flames: Time, TV, streaming**\
 `Find out how to watch the Utah Mammoth play the Calgary Flames, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6867957/2025/12/06/mammoth-vs-flames-stream-how-to-watch-dec-6/
-
-**How to watch Clippers vs. Timberwolves: Time, TV, streaming**\
-`Find out how to watch the Los Angeles Clippers play the Minnesota Timberwolves, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6867954/2025/12/06/clippers-vs-timberwolves-stream-how-to-watch-dec-6/
-
-**How to watch Predators vs. Hurricanes: Time, TV, streaming**\
-`Find out how to watch the Nashville Predators play the Carolina Hurricanes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6867952/2025/12/06/predators-vs-hurricanes-stream-how-to-watch-dec-6/
 

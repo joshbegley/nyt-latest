@@ -1,3 +1,7 @@
+**Could President Trump Bring Japan’s Tiny Cars to America? Not So Fast.**\
+`Mr. Trump is pushing to approve their production in the United States.`\
+https://nytimes.com/2025/12/06/climate/could-president-trump-bring-japans-tiny-cars-to-america-not-so-fast.html
+
 **Cubs targeting free agent Zac Gallen in their search for more pitching: Sources**\
 `The right-handed starter struggled for much of this past season, but he has a track record of durability and high-level upside. `\
 https://nytimes.com/athletic/6868108/2025/12/06/cubs-zac-gallen-free-agency/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6867763/2025/12/06/f1-championship-max-verstappen-l
 **How to watch Canadiens vs. Maple Leafs: Time, TV, streaming**\
 `Find out how to watch the Montreal Canadiens play the Toronto Maple Leafs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6867960/2025/12/06/canadiens-vs-maple-leafs-stream-how-to-watch-dec-6/
-
-**How to watch Mammoth vs. Flames: Time, TV, streaming**\
-`Find out how to watch the Utah Mammoth play the Calgary Flames, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6867957/2025/12/06/mammoth-vs-flames-stream-how-to-watch-dec-6/
 
