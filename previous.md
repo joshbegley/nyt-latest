@@ -1,3 +1,7 @@
+**Blake Griffin slams Clippers, Steve Ballmer for Chris Paul's sudden exit**\
+`"At the end of the day, an organization is built on a foundation of respect and how you treat people," Griffin said.`\
+https://nytimes.com/athletic/6866628/2025/12/05/blake-griffin-chris-paul-amazon/
+
 **Judge Rules Trump Exceeded Authority by Holding Deportees at Guantánamo**\
 `Judge Sparkle L. Sooknanan stopped short of ordering the shuttering of the detention operation. But a lawyer for the challengers said they would soon seek a closure order.`\
 https://nytimes.com/2025/12/05/us/politics/guantanamo-migrants-deportation-ruling.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6866644/2025/12/05/tyler-adams-world-cup-usmnt-hist
 **San Diego Agrees to Pay $30 Million to Family of Teen Killed by Police**\
 `Konoa Wilson was 16 when he was fatally shot. The settlement, one of the largest in a police killing, surpasses the $27 million paid to the family of George Floyd.`\
 https://nytimes.com/2025/12/05/us/konoa-wilson-police-shooting-san-diego.html
-
-**Locro de Gallina (Chicken Soup With Squash, Green Plantains and Yuca)**\
-`Derived from a Quechua term for a hearty soup-stew hybrid, locro originated in the Andes mountain range but today encompasses a glut of South American soups that vary from country to country, and household to household.`\
-https://nytimes.com/video/dining/100000010366914/locro-de-gallina-chicken-soup-with-squash-green-plantains-and-yuca.html
 

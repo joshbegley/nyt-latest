@@ -1,3 +1,7 @@
+**Blake Griffin slams Clippers, Steve Ballmer for Chris Paul's sudden exit**\
+`"At the end of the day, an organization is built on a foundation of respect and how you treat people," Griffin said.`\
+https://nytimes.com/athletic/6866628/2025/12/05/blake-griffin-chris-paul-amazon/
+
 **Judge Rules Trump Exceeded Authority by Holding Deportees at Guantánamo**\
 `Judge Sparkle L. Sooknanan stopped short of ordering the shuttering of the detention operation. But a lawyer for the challengers said they would soon seek a closure order.`\
 https://nytimes.com/2025/12/05/us/politics/guantanamo-migrants-deportation-ruling.html
