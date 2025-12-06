@@ -1,3 +1,7 @@
+**The New York Times in Print for Saturday, Dec. 6, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/12/06/todays-new-york-times
+
 **The Chelsea loanee lighting up League One after dad's tough love**\
 `The Chelsea youngster is starring for Huddersfield Town — and he's from a family very much used to fame`\
 https://nytimes.com/athletic/6864355/2025/12/06/leo-castledine-chelsea-huddersfield-family/
