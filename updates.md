@@ -1,3 +1,15 @@
+**How Clint Ramos, a Tony Winner, Spends a Day Designing Costumes**\
+`Mr. Ramos, Lincoln Center’s artist in residence, makes breakfast for his daughter before heading to the Metropolitan Opera House and a photo shoot — and his own birthday celebration.`\
+https://nytimes.com/2025/12/06/nyregion/clint-ramos-lincoln-center.html
+
+**Inside the Yearslong Push to Bring the World Cup Final to New Jersey**\
+`Winning the right to host the world’s most popular sporting event took years of planning, countless Zoom calls and a bit of luck with a broken-down bus.`\
+https://nytimes.com/2025/12/06/nyregion/world-cup-meadowlands.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/12/06/crosswords/spelling-bee-forum.html
+
 **Tulane likely secures CFP spot, while James Madison keeps Playoff chances alive**\
 `In the American Conference title game, No. 20 Tulane beat No. 24 North Texas with a CFP spot on the line for the winner.`\
 https://nytimes.com/athletic/6866998/2025/12/06/tulane-james-madison-college-football-playoff/
