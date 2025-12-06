@@ -1,3 +1,15 @@
+**Trump Has Long Disdained Europe’s Elites. Now, It’s Official.**\
+`A new White House policy document formalizes President Trump’s long-held contempt for Europe’s leaders. It made clear that the continent now stands at a strategic crossroads.`\
+https://nytimes.com/2025/12/06/world/europe/trump-europe-strategy-document.html
+
+**UConn targeting Toledo's Jason Candle to replace Jim Mora: Sources**\
+`Jason Candle has gone 81-44 in 10 years at Toledo and would head to UConn after Jim Mora took the Colorado State job.`\
+https://nytimes.com/athletic/6866861/2025/12/06/uconn-head-coach-jason-candle-toledo/
+
+**What are the Commanders' biggest needs? What is Kliff Kingsbury's future? Mailbag**\
+`Also, what's the team's take on Ben Sinnott? And will Dan Quinn keep calling the defensive plays next season?`\
+https://nytimes.com/athletic/6867267/2025/12/06/washington-commanders-mailbag-roster-needs/
+
 **College Football Playoff 2025 projections: What our model says after the latest Top 25**\
 `Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
 https://nytimes.com/athletic/6560541/2025/12/06/college-football-playoff-bracket-projections-odds/
