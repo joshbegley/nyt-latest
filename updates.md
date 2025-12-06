@@ -1,3 +1,11 @@
+**2026 World Cup final set for 3pm ET kick-off: Full tournament schedule**\
+`The dates, locations and times for all 72 group-stage fixtures at next summer's World Cup.`\
+https://nytimes.com/athletic/6868026/2025/12/06/world-cup-2026-schedule-fixtures-final-times/
+
+**Guy Cogeval, Boundary-Pushing Museum Director, Dies at 70**\
+`His innovative approach drew crowds to the Musée d’Orsay, one of France’s flagship cultural institutions, which he led from 2008 to 2017.`\
+https://nytimes.com/2025/12/06/arts/design/guy-cogeval-dead.html
+
 **To win the F1 title, Max Verstappen might need to do the unthinkable: slow down**\
 `Max Verstappen vows an 'all out' attack in F1's title showdown with Lando Norris. What that actually looks like might be unusual
 `\
