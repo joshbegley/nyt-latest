@@ -1,3 +1,7 @@
+**Think Globally, Give Locally**\
+`Make yourself an active member of your community.`\
+https://nytimes.com/2025/12/06/opinion/charity-holiday-gift-community-local.html
+
 **A Deeply Comforting Bowl of Corny Goodness**\
 `Frozen kernels, masa harina and hominy form the base of Rick Martínez’s warming atole de grano (savory corn porridge with chicken).`\
 https://nytimes.com/2025/12/06/dining/a-deeply-comforting-bowl-of-corny-goodness.html

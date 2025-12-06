@@ -1,3 +1,7 @@
+**Think Globally, Give Locally**\
+`Make yourself an active member of your community.`\
+https://nytimes.com/2025/12/06/opinion/charity-holiday-gift-community-local.html
+
 **A Deeply Comforting Bowl of Corny Goodness**\
 `Frozen kernels, masa harina and hominy form the base of Rick Martínez’s warming atole de grano (savory corn porridge with chicken).`\
 https://nytimes.com/2025/12/06/dining/a-deeply-comforting-bowl-of-corny-goodness.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/12/06/special-series/06tp-quiz.html
 **Memphis focused on Charles Huff for next head coach: Source**\
 `Charles Huff rose to the top of Memphis' search after going 7-5 in his first season at Southern Miss.`\
 https://nytimes.com/athletic/6867471/2025/12/06/memphis-head-coach-search-charles-huff/
-
-**Make Your Smart TV Stop Spying On You**\
-`Smart TVs are tracking everything you watch, taking as many as 20-30 screenshots per minute. If you find all this surveillance a little spooky, we understand. Luckily there’s a way to turn off this spying feature — and there are zero downsides to doing so.`\
-https://nytimes.com/video/smarter-living/wirecutter/100000010553276/make-your-smart-tv-stop-spying-on-you.html
 
