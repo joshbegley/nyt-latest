@@ -1,3 +1,8 @@
+**To win 2025 F1 title, Max Verstappen might need to drive as slow as possible**\
+`Max Verstappen vows an 'all out' attack in F1's title showdown with Lando Norris. What that actually looks like might be surprising
+`\
+https://nytimes.com/athletic/6867763/2025/12/06/f1-championship-max-verstappen-lando-norris-abu-dhabi/
+
 **Vietnamese Coffee Swirl Brownies**\
 `Have four words ever gone together so nicely? Leave it to Melissa Clark to give us the brownie we need, nay, deserve.`\
 https://nytimes.com/2025/12/06/dining/vietnamese-coffee-swirl-brownies.html
