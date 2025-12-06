@@ -1,4 +1,8 @@
 **The strange story of Rory McIlroy and a banana skin**\
+`The Masters champion had to play out from a banana peel during the Australian Open — and paid the price.`\
+https://nytimes.com/athletic/6867595/2025/12/06/rory-mcilroy-banana-skin-australian-open/
+
+**The strange story of Rory McIlroy and a banana skin**\
 `The Masters champion had to play out from a banana peel during the Australian Open - and paid the price`\
 https://nytimes.com/athletic/6867595/2025/12/06/rory-mcilroy-banana-skin-australian-open/
 
