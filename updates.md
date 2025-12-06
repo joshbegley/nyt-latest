@@ -1,3 +1,15 @@
+**It’s time for America to dream the impossible World Cup dream**\
+`As a country, we are wired to believe that with hard work, discipline and confidence, we can win at most everything. Except the World Cup. `\
+https://nytimes.com/athletic/6866528/2025/12/05/world-cup-draw-usa-impossible-dream/
+
+**Tyler Adams says USA can make history with 'furthest ever' World Cup run**\
+`The team has a quarterfinal and a semifinal run in its World Cup history but midfielder and 2022 captain Adams wants more`\
+https://nytimes.com/athletic/6866644/2025/12/05/tyler-adams-world-cup-usmnt-history/
+
+**San Diego Agrees to Pay $30 Million to Family of Teen Killed by Police**\
+`Konoa Wilson was 16 when he was fatally shot. The settlement, one of the largest in a police killing, surpasses the $27 million paid to the family of George Floyd.`\
+https://nytimes.com/2025/12/05/us/konoa-wilson-police-shooting-san-diego.html
+
 **San Diego to Pay $30 Million to Family of Teen Killed by Police**\
 `Konoa Wilson was 16 when he was fatally shot. The settlement, one of the largest in a police killing, surpasses the $27 million paid to the family of George Floyd.`\
 https://nytimes.com/2025/12/05/us/konoa-wilson-police-shooting-san-diego.html

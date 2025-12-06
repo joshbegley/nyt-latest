@@ -1,4 +1,12 @@
-**San Diego to Pay $30 Million to Family of Teen Killed by Police**\
+**It’s time for America to dream the impossible World Cup dream**\
+`As a country, we are wired to believe that with hard work, discipline and confidence, we can win at most everything. Except the World Cup. `\
+https://nytimes.com/athletic/6866528/2025/12/05/world-cup-draw-usa-impossible-dream/
+
+**Tyler Adams says USA can make history with 'furthest ever' World Cup run**\
+`The team has a quarterfinal and a semifinal run in its World Cup history but midfielder and 2022 captain Adams wants more`\
+https://nytimes.com/athletic/6866644/2025/12/05/tyler-adams-world-cup-usmnt-history/
+
+**San Diego Agrees to Pay $30 Million to Family of Teen Killed by Police**\
 `Konoa Wilson was 16 when he was fatally shot. The settlement, one of the largest in a police killing, surpasses the $27 million paid to the family of George Floyd.`\
 https://nytimes.com/2025/12/05/us/konoa-wilson-police-shooting-san-diego.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/05/nyregion/nyc-congestion-pricing-anniversary.html
 **Frank O. Gehry, Formidable Architect, Dies at 96**\
 `The innovative architect was known for his sculptural designs, including the Guggenheim Museum Bilbao and the Walt Disney Concert Hall in Los Angeles. He passed away at his home in Santa Monica, Calif., on Friday.`\
 https://nytimes.com/video/obituaries/100000010569063/frank-gehry-obituary.html
-
-**Running Out of Time, Republicans in Congress Still Lack a Health Plan**\
-`Top Republicans have said they want to produce a proposal in short order to counter Democrats pressing for an extension of health care subsidies. They have not gotten far.`\
-https://nytimes.com/2025/12/05/us/politics/republicans-congress-health-care.html
-
-**For Tekashi69, Drugs and Fight Add Up to Three More Months in Prison**\
-`The rapper, who was sentenced to two years in prison after testifying for the government at a gang trial, was ordered incarcerated for probation violations.`\
-https://nytimes.com/2025/12/05/nyregion/tekashi-6ix9ine-prison-sentence.html
 
