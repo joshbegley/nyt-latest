@@ -36,5 +36,5 @@ https://nytimes.com/athletic/6866368/2025/12/06/world-cup-2026-group-analysis-te
 
 **'Lamine Yamal...he's not bad!' - watching the World Cup draw with the underdogs**\
 `The Athletic spoke to players whose teams were in Pot 4 of Friday's World Cup draw, and will have the odds stacked against them next summer`\
-https://nytimes.com/athletic/6866436/2025/12/06/watching-the-world-cup-draw-with-the-underdogs-lamine-yamal-hes-not-bad/
+https://nytimes.com/athletic/6866436/2025/12/06/world-cup-draw-new-zealand-underdogs/
 
