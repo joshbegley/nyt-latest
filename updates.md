@@ -1,3 +1,7 @@
+**China’s National Security Office in Hong Kong Summons Foreign Journalists**\
+`The authorities accused “some foreign media” of smearing the government’s response to a fire at a high-rise complex, saying: “Do not say you have not been warned.”`\
+https://nytimes.com/2025/12/06/world/asia/hong-kong-fire-media-national-security.html
+
 **How to watch Avalanche vs. Rangers: Time, TV, streaming**\
 `Find out how to watch the Colorado Avalanche play the New York Rangers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6867269/2025/12/06/avalanche-vs-rangers-stream-how-to-watch-dec-6/
