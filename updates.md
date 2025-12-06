@@ -1,3 +1,8 @@
+**To win the F1 title, Max Verstappen might need to do the unthinkable: slow down**\
+`Max Verstappen vows an 'all out' attack in F1's title showdown with Lando Norris. What that actually looks like might be unusual
+`\
+https://nytimes.com/athletic/6867763/2025/12/06/f1-championship-max-verstappen-lando-norris-abu-dhabi/
+
 **Watch: Why Kyle Monangai has been so impactful for first-place Chicago Bears**\
 `Monangai has paired with veteran D’Andre Swift to form one of the league’s most productive backfields this season.`\
 https://nytimes.com/athletic/6867653/2025/12/06/video-kyle-monangai-rookie-chicago-bears/

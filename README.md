@@ -1,4 +1,8 @@
-**Guy Cogeval, Iconoclastic Museum Director, Dies at 70**\
+**2026 World Cup final set for 3pm ET kick-off: Full tournament schedule**\
+`The dates, locations and times for all 72 group-stage fixtures at next summer's World Cup.`\
+https://nytimes.com/athletic/6868026/2025/12/06/world-cup-2026-schedule-fixtures-final-times/
+
+**Guy Cogeval, Boundary-Pushing Museum Director, Dies at 70**\
 `His innovative approach drew crowds to the Musée d’Orsay, one of France’s flagship cultural institutions, which he led from 2008 to 2017.`\
 https://nytimes.com/2025/12/06/arts/design/guy-cogeval-dead.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/06/dining/vietnamese-coffee-swirl-brownies.html
 **Writing the Next Chapter of the U.N.**\
 `In 2025, the United Nations turned 80. We asked the president of this year’s General Assembly to reflect on the organization’s work and the challenges it faces as it enters its ninth decade.`\
 https://nytimes.com/2025/12/06/special-series/annalena-baerbock-united-nations-anniversary.html
-
-**Ten seconds of chaos: Buendia and the beauty of a goalmouth scramble**\
-`Shots, blocks, sliding tackles and pure desperation - Aston Villa's winner against Arsenal was low on quality but high on drama`\
-https://nytimes.com/athletic/6867667/2025/12/06/buendia-goalmouth-scramble-villa-arsenal/
 
