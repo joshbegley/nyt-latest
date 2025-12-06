@@ -1,3 +1,7 @@
+**Winter Quaffs**\
+`Marshal Herrmann’s quick-witted Saturday debut puzzle is quite quizzical.`\
+https://nytimes.com/2025/12/05/crosswords/daily-puzzle-2025-12-06.html
+
 **Man Accused of Setting Subway Rider on Fire Is Charged With Arson**\
 `The victim was sleeping on a train at Penn Station in Manhattan around 3 a.m. Monday when an 18-year-old man set him on fire, the police said.`\
 https://nytimes.com/2025/12/05/nyregion/subway-man-on-fire.html

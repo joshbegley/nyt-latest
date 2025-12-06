@@ -1,3 +1,7 @@
+**Brazil Has a Cachaça Cocktail for Every Season**\
+`If summer is for bottomless caipirinhas, winter is all about warming quentão. Here are recipes for both.`\
+https://nytimes.com/2025/12/05/dining/caipirinhas-quentao-recipe.html
+
 **Winter Quaffs**\
 `Marshal Herrmann’s quick-witted Saturday debut puzzle is quite quizzical.`\
 https://nytimes.com/2025/12/05/crosswords/daily-puzzle-2025-12-06.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6866687/2025/12/05/marco-luciano-sf-giants-pittsbur
 **Angels toxicology expert poses alternative explanation for Tyler Skaggs’ cause of death**\
 `Angels PR head Eric Kay gave Skaggs the fentanyl pill, but pitcher Matt Harvey provided an oxycodone pill that Skaggs also ingested.`\
 https://nytimes.com/athletic/6866627/2025/12/05/tyler-skaggs-angels-toxicology-oxycodone-alcohol-fentanyl/
-
-**Live Reactions From World Cup Draw Watch Parties**\
-`Reporters for The Athletic capture live reactions from soccer fans at World Cup draw watch parties across North America.`\
-https://nytimes.com/video/the-athletic/100000010569459/live-reactions-from-world-cup-draw-watch-parties.html
 
