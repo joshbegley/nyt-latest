@@ -1,3 +1,7 @@
+**Newcastle 2 Burnley 1: Guimaraes' Olimpico and, at last, Wissa makes his debut**\
+`It was flat, then comfortable and finally, nerve-shredding, but Eddie Howe's side took all three points`\
+https://nytimes.com/athletic/6867154/2025/12/06/newcastle-2-burnley-1-analysis/
+
 **How to watch Iowa vs. Rutgers women's basketball: Time, TV, streaming**\
 `Find out how to watch the Iowa Hawkeyes play the Rutgers Scarlet Knights, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6867903/2025/12/06/iowa-vs-rutgers-stream-how-to-watch-dec-6/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6867153/2025/12/06/manchester-city-3-sunderland-0-d
 **The Briefing: Bournemouth 0 Chelsea 0 - Palmer's return, Delap's injury and a third game without a win**\
 `Cerys Jones analyses the main talking points from Chelsea's Premier League draw at Bournemouth`\
 https://nytimes.com/athletic/6867152/2025/12/06/bournemouth-chelsea-analysis/
-
-**MLS Cup ticket prices surge for highly anticipated final featuring Messi, Müller**\
-`Fans are spending big to attend the final between Inter Miami and the Vancouver Whitecaps at Chase Stadium`\
-https://nytimes.com/athletic/6867751/2025/12/06/mls-cup-ticket-prices-inter-miami-vancouver-whitecaps-messi/
 
