@@ -34,7 +34,7 @@ https://nytimes.com/athletic/6866496/2025/12/06/world-cup-draw-trump-usa-taste/
 `An expanded tournament of 48 teams doesn't mean the leading nations have an easy path to the knockout stage`\
 https://nytimes.com/athletic/6866368/2025/12/06/world-cup-2026-group-analysis-team-strength/
 
-**'Lamine Yamal...he's not bad!' - watching the World Cup draw with the underdogs**\
+**'Lamine Yamal… he's not bad!' – watching the World Cup draw with the underdogs**\
 `The Athletic spoke to players whose teams were in Pot 4 of Friday's World Cup draw, and will have the odds stacked against them next summer`\
 https://nytimes.com/athletic/6866436/2025/12/06/world-cup-draw-new-zealand-underdogs/
 
