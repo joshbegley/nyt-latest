@@ -1,3 +1,7 @@
+**The strange story of Rory McIlroy and a banana skin**\
+`The Masters champion had to play out from a banana peel during the Australian Open - and paid the price`\
+https://nytimes.com/athletic/6867595/2025/12/06/rory-mcilroy-banana-skin-australian-open/
+
 **Trump’s New Crackdown on Asylum Seekers**\
 `Hamed Aleaziz, our immigration reporter, describes the sweeping changes the Trump administration has made that affect asylum seekers — people fleeing harm in their home countries — since the shooting of two National Guard members in Washington.`\
 https://nytimes.com/video/us/politics/100000010566235/trumps-new-crackdown-on-asylum-seekers.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/smarter-living/wirecutter/100000010553276/make-your-sm
 **12 People Killed in Mass Shooting at Illegal Tavern in South Africa**\
 `The police said they were searching for three assailants who opened fire, shooting 25 people. A 3-year-old boy was among the dead, while 13 survivors were being treated in the hospital.`\
 https://nytimes.com/2025/12/06/world/africa/south-africa-shooting.html
-
-**Charlton fan dies at Portsmouth match as Championship game abandoned**\
-`The match, which kicked off at 12:30pm GMT, was paused after approximately 12 minutes at 0-0 as treatment was administered to the spectator.`\
-https://nytimes.com/athletic/6867413/2025/12/06/charlton-portsmouth-abandoned-emergency/
 
