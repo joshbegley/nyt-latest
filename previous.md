@@ -1,3 +1,7 @@
+**Kevin Durant nears 3 all-time greats on NBA's career scoring list**\
+`Kevin Durant, Lebron James, and Giannis Antetokounmpo all made NBA history in the past seven days. Who could make history next?`\
+https://nytimes.com/athletic/6867908/2025/12/06/kevin-durant-nba-careeer-scoring/
+
 **Leeds 3 Liverpool 3: How did the champions let that slip? Can spirit keep Farke's side up?**\
 `Analysing the major talking points from a breathless game at Elland Road`\
 https://nytimes.com/athletic/6867156/2025/12/06/leeds-liverpool-result-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6868108/2025/12/06/cubs-zac-gallen-free-agency/
 **Pam Hogg, Iconoclastic Scottish Designer, Dies at 74**\
 `She was a star of London’s post-punk D.I.Y. fashion, art and performance scene, and dressed a generation of rock stars in her otherworldly handmade clothes.`\
 https://nytimes.com/2025/12/06/style/pam-hogg-dead.html
-
-**Crayola Magnetic Blocks Are Recalled Over Choking Hazard Concerns**\
-`Magnets in the toy, pip-Cubes, can fall out of the blocks and be swallowed by children, causing injury or death, federal regulators warned.`\
-https://nytimes.com/2025/12/06/business/crayola-magnetic-cubes-recall-safety-hazard.html
 
