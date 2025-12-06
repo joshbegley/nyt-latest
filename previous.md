@@ -1,3 +1,11 @@
+**A Right-Wing Playbook to Weaken Colleges from Within**\
+`When students are treated like customers, they can demand educators grade accordingly.`\
+https://nytimes.com/2025/12/06/opinion/college-student-complaints.html
+
+**USA coach Pochettino wants to return to and win the Premier League**\
+`Pochettino previously took charge of Southampton, Tottenham and Chelsea in the English top flight.`\
+https://nytimes.com/athletic/6867209/2025/12/06/mauricio-pochettino-usmnt-premier-league/
+
 **Battlefield Picture Worsening for Ukraine as Trump Pushes Peace Plan**\
 `Russian forces have advanced on several fronts recently. President Vladimir V. Putin signaled after talks with U.S. officials that he was not budging from demands.`\
 https://nytimes.com/2025/12/06/world/europe/ukraine-pokrovsk-battlefield-russia.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/06/business/media/hollywood-reaction-netflix-warner-
 **Frank Gehry’s Buildings Sound as Marvelous as They Look**\
 `Gehry, who died on Friday at 96, made an invaluable contribution to classical music by designing spaces with stunning acoustics.`\
 https://nytimes.com/2025/12/06/arts/music/frank-gehry-concert-halls-classical-music.html
-
-**The Mayor-Elect of New Orleans Is Already Awash in Challenges**\
-`A month before taking office, Helena Moreno is steering the city through a budget crisis and a Border Patrol enforcement operation that has immigrants in hiding.`\
-https://nytimes.com/2025/12/06/us/new-orleans-mayor-helena-moreno.html
-
-**One Step From Citizenship, Some Find It Eludes Their Grasp**\
-`Sweeping immigration changes by the Trump administration have resulted in the cancellation of naturalization ceremonies, the last step in the process of becoming a citizen.`\
-https://nytimes.com/2025/12/06/us/immigration-citizenship-naturalization-trump.html
 

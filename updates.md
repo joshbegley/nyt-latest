@@ -1,3 +1,11 @@
+**A Right-Wing Playbook to Weaken Colleges from Within**\
+`When students are treated like customers, they can demand educators grade accordingly.`\
+https://nytimes.com/2025/12/06/opinion/college-student-complaints.html
+
+**USA coach Pochettino wants to return to and win the Premier League**\
+`Pochettino previously took charge of Southampton, Tottenham and Chelsea in the English top flight.`\
+https://nytimes.com/athletic/6867209/2025/12/06/mauricio-pochettino-usmnt-premier-league/
+
 **Battlefield Picture Worsening for Ukraine as Trump Pushes Peace Plan**\
 `Russian forces have advanced on several fronts recently. President Vladimir V. Putin signaled after talks with U.S. officials that he was not budging from demands.`\
 https://nytimes.com/2025/12/06/world/europe/ukraine-pokrovsk-battlefield-russia.html
