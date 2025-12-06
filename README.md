@@ -1,3 +1,11 @@
+**No. 10 Iowa State crushes No. 1 Purdue: Where do Cyclones fit among CBB's top teams?**\
+`Iowa State held a Purdue team averaging 88.6 points per game to a season-low 58.`\
+https://nytimes.com/athletic/6868094/2025/12/06/iowa-state-is-on-a-tear-and-made-its-biggest-statement-yet-by-crushing-no-1-purdue/
+
+**'Their behaviour is different' - how Wrexham have changed, as seen by a rival manager who should know**\
+`Paul Heckingbottom was not overly impressed by the Welsh club a few years ago but now he has a new-found respect for them`\
+https://nytimes.com/athletic/6861354/2025/12/06/wreham-preston-evolution-parkinson-heckingbottom/
+
 **2026 World Cup final set for 3pm ET kick-off: Full tournament schedule**\
 `The dates, locations and times for all 72 group-stage fixtures at next summer's World Cup.`\
 https://nytimes.com/athletic/6868026/2025/12/06/world-cup-2026-schedule-fixtures-final-times/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/06/business/crayola-magnetic-cubes-recall-safety-haz
 **Venezuela’s Nobel Winner Will Go to Norway for Peace Prize, Official Says**\
 `Venezuelan officials say María Corina Machado will be considered a fugitive if she goes to Oslo, laying bare the risks for the opposition leader.`\
 https://nytimes.com/2025/12/06/world/americas/venezuela-peace-prize-norway.html
-
-**Vietnamese Coffee Swirl Brownies**\
-`Have four words ever gone together so nicely? Leave it to Melissa Clark to give us the brownie we need, nay, deserve.`\
-https://nytimes.com/2025/12/06/dining/vietnamese-coffee-swirl-brownies.html
-
-**Writing the Next Chapter of the U.N.**\
-`In 2025, the United Nations turned 80. We asked the president of this year’s General Assembly to reflect on the organization’s work and the challenges it faces as it enters its ninth decade.`\
-https://nytimes.com/2025/12/06/special-series/annalena-baerbock-united-nations-anniversary.html
 
