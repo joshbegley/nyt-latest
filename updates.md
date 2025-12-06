@@ -1,3 +1,7 @@
+**The strange story of Rory McIlroy and a banana skin**\
+`The Masters champion had to play out from a banana peel during the Australian Open - and paid the price`\
+https://nytimes.com/athletic/6867595/2025/12/06/rory-mcilroy-banana-skin-australian-open/
+
 **Trump’s New Crackdown on Asylum Seekers**\
 `Hamed Aleaziz, our immigration reporter, describes the sweeping changes the Trump administration has made that affect asylum seekers — people fleeing harm in their home countries — since the shooting of two National Guard members in Washington.`\
 https://nytimes.com/video/us/politics/100000010566235/trumps-new-crackdown-on-asylum-seekers.html
