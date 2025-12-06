@@ -1,3 +1,7 @@
+**College Football Playoff takeaways: How Texas Tech's win over BYU impacts the bracket**\
+`What we're learning about the College Football Playoff as conference championship games provide the final data points.`\
+https://nytimes.com/athletic/6868092/2025/12/06/college-football-playoff-bracket-conference-championship-results/
+
 **How to watch Rockets vs. Mavericks: Time, TV, streaming**\
 `Find out how to watch the Houston Rockets play the Dallas Mavericks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6868301/2025/12/06/rockets-vs-mavericks-stream-how-to-watch-dec-6/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6868275/2025/12/06/auburn-vs-arizona-stream-how-to-
 **The World Order Is Shifting. Will Democracy Catch Up?**\
 `I was ousted from Thai politics. Here’s what that taught me about the state of democracy today.`\
 https://nytimes.com/2025/12/06/special-series/pita-limjaroenrat-thailand-democracy.html
-
-**Kevin Durant nears 3 all-time greats on NBA's career scoring list**\
-`Kevin Durant, LeBron James and Giannis Antetokounmpo all made NBA history in the past seven days. Who could make history next?`\
-https://nytimes.com/athletic/6867908/2025/12/06/kevin-durant-nba-careeer-scoring/
 
