@@ -1,3 +1,7 @@
+**How to watch Avalanche vs. Rangers: Time, TV, streaming**\
+`Find out how to watch the Colorado Avalanche play the New York Rangers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6867269/2025/12/06/avalanche-vs-rangers-stream-how-to-watch-dec-6/
+
 **How to watch UTEP vs. TCU women's basketball: Time, TV, streaming**\
 `Find out how to watch the UTEP Miners play the TCU Horned Frogs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6867260/2025/12/06/utep-vs-tcu-stream-how-to-watch-dec-6/
