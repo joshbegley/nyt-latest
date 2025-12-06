@@ -1,3 +1,15 @@
+**This is Mitchell Starc's world. England are just living in it**\
+`The veteran has bowled and batted Australia into a position of real strength and continues to expose the fragility of England's top order`\
+https://nytimes.com/athletic/6867188/2025/12/06/mitchell-starc-australia-england-ashes/
+
+**How to watch Blue Jackets vs. Panthers: Time, TV, streaming**\
+`Find out how to watch the Columbus Blue Jackets play the Florida Panthers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6867493/2025/12/06/blue-jackets-vs-panthers-stream-how-to-watch-dec-6/
+
+**How to watch Pelicans vs. Nets: Time, TV, streaming**\
+`Find out how to watch the New Orleans Pelicans play the Brooklyn Nets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6867491/2025/12/06/pelicans-vs-nets-stream-how-to-watch-dec-6/
+
 **How to watch Rutgers vs. Michigan men's basketball: Time, TV, streaming**\
 `Find out how to watch the Rutgers Scarlet Knights play the Michigan Wolverines, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6867466/2025/12/06/rutgers-vs-michigan-stream-how-to-watch-dec-6/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/12/06/world/europe/trump-europe-strategy-document.html
 **UConn targeting Toledo's Jason Candle to replace Jim Mora: Sources**\
 `Jason Candle has gone 81-44 in 10 years at Toledo and would head to UConn after Jim Mora took the Colorado State job.`\
 https://nytimes.com/athletic/6866861/2025/12/06/uconn-head-coach-jason-candle-toledo/
-
-**College Football Playoff 2025 projections: What our model says after the latest Top 25**\
-`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
-https://nytimes.com/athletic/6560541/2025/12/06/college-football-playoff-bracket-projections-odds/
-
-**Thunder hold Anthony Davis to 2 points and demolish Mavericks for 14th consecutive win**\
-`The Mavericks’ three-game winning streak came to an end against their I-35 competition, while the Thunder improved to 22-1.`\
-https://nytimes.com/athletic/6867040/2025/12/06/anthony-davis-thunder-mavericks/
-
-**Ilia Malinin, in 'brain-bamboozling' free skate, sets world record to win Grand Prix Final**\
-`In the last major international event before February's Olympics, the American Malinin kept his two-year unbeaten streak going.`\
-https://nytimes.com/athletic/6867301/2025/12/06/ilia-malinin-world-record-grand-prix-final-olympics/
 
