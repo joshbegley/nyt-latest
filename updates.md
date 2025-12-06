@@ -1,3 +1,7 @@
+**Man Accused of Setting Subway Rider on Fire Is Charged With Arson**\
+`The victim was sleeping on a train at Penn Station in Manhattan around 3 a.m. Monday when an 18-year-old man set him on fire, the police said.`\
+https://nytimes.com/2025/12/05/nyregion/subway-man-on-fire.html
+
 **Under Kennedy, U.S. Vaccine Policy Arrives at a ‘Defining Moment’**\
 `Robert F. Kennedy Jr. may be only beginning to put his stamp on American immunization policy.`\
 https://nytimes.com/2025/12/05/us/politics/vaccines-hepatitis-b-rfk-jr.html
