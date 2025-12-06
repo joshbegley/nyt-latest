@@ -1,3 +1,7 @@
+**Winter Quaffs**\
+`Marshal Herrmann’s quick-witted Saturday debut puzzle is quite quizzical.`\
+https://nytimes.com/2025/12/05/crosswords/daily-puzzle-2025-12-06.html
+
 **Man Accused of Setting Subway Rider on Fire Is Charged With Arson**\
 `The victim was sleeping on a train at Penn Station in Manhattan around 3 a.m. Monday when an 18-year-old man set him on fire, the police said.`\
 https://nytimes.com/2025/12/05/nyregion/subway-man-on-fire.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6866627/2025/12/05/tyler-skaggs-angels-toxicology-o
 **Live Reactions From World Cup Draw Watch Parties**\
 `Reporters for The Athletic capture live reactions from soccer fans at World Cup draw watch parties across North America.`\
 https://nytimes.com/video/the-athletic/100000010569459/live-reactions-from-world-cup-draw-watch-parties.html
-
-**How to Buy a World Cup Ticket**\
-`Want to acquire a FIFA World Cup ticket? There are some steps you should follow. Henry Bushnell, a senior soccer writer for The Athletic, details how.`\
-https://nytimes.com/video/the-athletic/100000010569202/how-to-buy-a-world-cup-ticket.html
 
