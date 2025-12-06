@@ -1,3 +1,11 @@
+**How to Buy a World Cup Ticket**\
+`Want to acquire a FIFA World Cup ticket? There are some steps you should follow. Henry Bushnell, a senior soccer writer for The Athletic, details how.`\
+https://nytimes.com/video/the-athletic/100000010569202/how-to-buy-a-world-cup-ticket.html
+
+**Did Gen X Invent Indie Film?**\
+`The actors Claire Danes, Luis Guzmán and Omar Epps discuss the indie film era in this excerpt from a T Magazine documentary about how Generation X, the cohort once synonymous with slacking, came to leave such an indelible impression on the culture.`\
+https://nytimes.com/video/t-magazine/100000010568005/did-gen-x-invent-indie-film.html
+
 **It’s time for America to dream the impossible World Cup dream**\
 `As a country, we are wired to believe that with hard work, discipline and confidence, we can win at most everything. Except the World Cup. `\
 https://nytimes.com/athletic/6866528/2025/12/05/world-cup-draw-usa-impossible-dream/

@@ -1,3 +1,7 @@
+**Live Reactions From World Cup Draw Watch Parties**\
+`Reporters for The Athletic capture live reactions from soccer fans at World Cup draw watch parties across North America.`\
+https://nytimes.com/video/the-athletic/100000010569459/live-reactions-from-world-cup-draw-watch-parties.html
+
 **How to Buy a World Cup Ticket**\
 `Want to acquire a FIFA World Cup ticket? There are some steps you should follow. Henry Bushnell, a senior soccer writer for The Athletic, details how.`\
 https://nytimes.com/video/the-athletic/100000010569202/how-to-buy-a-world-cup-ticket.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6866583/2025/12/05/mlb-tigers-drew-anderson-contrac
 **Trumpism After Trump? Here Are Three Realities.**\
 `“Trumpism without Trump is going to move in different directions because Trumpism was always a somewhat amorphous set of half-baked ideas,” Bret Stephens says.`\
 https://nytimes.com/video/opinion/100000010559506/trumpism-after-trump-here-are-three-realities.html
-
-**How Charismatic Can a Moderate Politician Be?**\
-`“I think Americans — those who are not spending all their lives on social media — are so tired of the temperature of our political discourse,” Frank Bruni says on “The Opinions.” The solution? A “poetic and charismatic” centrist.`\
-https://nytimes.com/video/opinion/100000010559508/how-charismatic-can-a-moderate-politician-be.html
 

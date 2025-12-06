@@ -1,3 +1,11 @@
+**How to Buy a World Cup Ticket**\
+`Want to acquire a FIFA World Cup ticket? There are some steps you should follow. Henry Bushnell, a senior soccer writer for The Athletic, details how.`\
+https://nytimes.com/video/the-athletic/100000010569202/how-to-buy-a-world-cup-ticket.html
+
+**Did Gen X Invent Indie Film?**\
+`The actors Claire Danes, Luis Guzmán and Omar Epps discuss the indie film era in this excerpt from a T Magazine documentary about how Generation X, the cohort once synonymous with slacking, came to leave such an indelible impression on the culture.`\
+https://nytimes.com/video/t-magazine/100000010568005/did-gen-x-invent-indie-film.html
+
 **It’s time for America to dream the impossible World Cup dream**\
 `As a country, we are wired to believe that with hard work, discipline and confidence, we can win at most everything. Except the World Cup. `\
 https://nytimes.com/athletic/6866528/2025/12/05/world-cup-draw-usa-impossible-dream/
@@ -29,12 +37,4 @@ https://nytimes.com/video/opinion/100000010559506/trumpism-after-trump-here-are-
 **How Charismatic Can a Moderate Politician Be?**\
 `“I think Americans — those who are not spending all their lives on social media — are so tired of the temperature of our political discourse,” Frank Bruni says on “The Opinions.” The solution? A “poetic and charismatic” centrist.`\
 https://nytimes.com/video/opinion/100000010559508/how-charismatic-can-a-moderate-politician-be.html
-
-**How Has Congestion Pricing Changed Your Year?**\
-`The tolling program, decades in the making, has shown signs of being effective after a rocky rollout.`\
-https://nytimes.com/2025/12/05/nyregion/nyc-congestion-pricing-anniversary.html
-
-**Frank O. Gehry, Formidable Architect, Dies at 96**\
-`The innovative architect was known for his sculptural designs, including the Guggenheim Museum Bilbao and the Walt Disney Concert Hall in Los Angeles. He passed away at his home in Santa Monica, Calif., on Friday.`\
-https://nytimes.com/video/obituaries/100000010569063/frank-gehry-obituary.html
 
