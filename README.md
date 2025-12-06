@@ -1,3 +1,7 @@
+**Illinois State throws 5 interceptions but still stuns No. 1 NDSU in FCS playoffs**\
+`Tommy Rittenhouse came through when he needed, throwing two touchdown passes in the final 3 minutes to beat the defending champions 29-28.`\
+https://nytimes.com/athletic/6868431/2025/12/06/illinois-state-upsets-ndsu-fcs-playoffs/
+
 **Original Thinkers**\
 `Kate Jensen’s debut Times puzzle comes with a cavalcade of luminaries.`\
 https://nytimes.com/2025/12/06/crosswords/daily-puzzle-2025-12-07.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6868345/2025/12/06/salah-liverpool-interview-news-l
 **After announcing birth of second daughter, Dončić expected to return to Lakers Sunday**\
 `The NBA's leading scorer flew home to Slovenia for the child's delivery, and the Lakers went 1-1 in his absence.`\
 https://nytimes.com/athletic/6868142/2025/12/06/luka-doncic-absence-daughter-birth/
-
-**Blue Jays outright Yaríel Rodríguez to minors, could still trade reliever**\
-`Toronto designated Rodríguez for assignment and he cleared waivers after his velocity dropped during the season's final months.`\
-https://nytimes.com/athletic/6868222/2025/12/06/blue-jays-yariel-rodriguez-outrighted/
 
