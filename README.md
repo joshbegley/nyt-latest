@@ -1,40 +1,40 @@
+**Blackhawks GM Kyle Davidson isn't ready to say 'I told you so' — not yet, at least**\
+`From tanking to a potential surprise playoff team, Davidson's drastic — and effective — rebuild plan is paying off sooner than anticipated.`\
+https://nytimes.com/athletic/6866468/2025/12/06/blackhawks-gm-kyle-davidson-rebuild/
+
+**Penn State signed only 2 recruits this week. How detrimental will this be to new staff?**\
+`Matt Campbell and his personnel department will be forced to hit the transfer portal in January to fill some holes on the roster. `\
+https://nytimes.com/athletic/6865611/2025/12/06/penn-state-recruiting-class-roster-transfers/
+
+**Gabriel Vilardi opens up about mental health struggles: 'You just see the negatives'**\
+`This story is not about Gabriel Vilardi. He is sharing the details from his life in case he can help somebody else.`\
+https://nytimes.com/athletic/6863826/2025/12/06/winnipeg-jets-gabriel-vilardi-mental-health/
+
+**Wild goalie Jesper Wallstedt's hot streak drawing praise from former coaches, players**\
+`Wallstedt has been one of the best goalies in the NHL this year and is doing things that a rookie goaltender hasn't done in about 90 years.`\
+https://nytimes.com/athletic/6866099/2025/12/06/wild-goalie-jesper-wallstedt-nhl/
+
+**The Trump Administration Needs More Christianity in Its Nationalism**\
+`Not too much religious moralism in the administration, but too little.`\
+https://nytimes.com/2025/12/06/opinion/trump-hegseth-christian-nationalism.html
+
+**If Netflix Eats Warner Bros., It Will Be the End of Hollywood**\
+`The demise of Hollywood has been predicted many times. If Netflix is allowed to acquire Warner Bros., it might actually happen.`\
+https://nytimes.com/2025/12/06/opinion/netflix-warner-bros-hollywood.html
+
+**The Supreme Court Is Failing at Its Most Important Job**\
+`Until the court imposes limits, the administration will keep acting as if there are none.`\
+https://nytimes.com/2025/12/06/opinion/supreme-court-limits-failing-constitution.html
+
+**Pete Hegseth Is Ordering Executions at Sea**\
+`Did Pete Hegseth break the law after authorizing Venezuelan boat strikes? The Times Opinion editor, Kathleen Kingsbury, argues that there are multiple reasons the strikes were legally dubious.`\
+https://nytimes.com/video/opinion/100000010567489/pete-hegseth-is-ordering-executions-at-sea.html
+
+**NHL predictions 2.0: Revised picks for Stanley Cup, playoff field, awards and more**\
+`Which teams will emerge from the East’s mushy middle? Who will make a case for the Selke Trophy, which looks the most open it has in years?`\
+https://nytimes.com/athletic/6865933/2025/12/06/nhl-predictions-picks-stanley-cup-playoffs-awards/
+
 **Republicans Are Quietly Pushing Back Against Trump**\
 `Will the president soon wish he hadn’t run for a second term?`\
-https://nytimes.com/video/opinion/100000010566399/republicans-are-quietly-pushing-back-against-trump.html
-
-**The Ashes Briefing: Mitchell Starc torments England as Australia close in on victory**\
-`The end feels nigh as Australia exploited the conditions expertly on day three at the Gabba to leave England in a near hopeless position`\
-https://nytimes.com/athletic/6865647/2025/12/06/ashes-starc-australia-england-briefing/
-
-**China’s National Security Office in Hong Kong Summons Foreign Journalists**\
-`The authorities accused “some foreign media” of smearing the government’s response to a fire at a high-rise complex, saying: “Do not say you have not been warned.”`\
-https://nytimes.com/2025/12/06/world/asia/hong-kong-fire-media-national-security.html
-
-**How to watch Avalanche vs. Rangers: Time, TV, streaming**\
-`Find out how to watch the Colorado Avalanche play the New York Rangers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6867269/2025/12/06/avalanche-vs-rangers-stream-how-to-watch-dec-6/
-
-**How to watch UTEP vs. TCU women's basketball: Time, TV, streaming**\
-`Find out how to watch the UTEP Miners play the TCU Horned Frogs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6867260/2025/12/06/utep-vs-tcu-stream-how-to-watch-dec-6/
-
-**How to watch Duke vs. Michigan State men's basketball: Time, TV, streaming**\
-`Find out how to watch the Duke Blue Devils play the Michigan State Spartans, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6867258/2025/12/06/duke-vs-michigan-state-stream-how-to-watch-dec-6/
-
-**How to watch Iowa State vs. Purdue men's basketball: Time, TV, streaming**\
-`Find out how to watch the Iowa State Cyclones play the Purdue Boilermakers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6867256/2025/12/06/iowa-state-vs-purdue-stream-how-to-watch-dec-6/
-
-**Sweet Season**\
-`Rejoice: NYT Cooking’s holiday cookie extravaganza has returned.`\
-https://nytimes.com/2025/12/06/briefing/sweet-season.html
-
-**Inside Brooklyn's first women's sports bar: 'We just wanted the Liberty game on'**\
-`A fortuitous Hinge match of like-minded New York Liberty fans turned into New York City's newest women's sports bar.`\
-https://nytimes.com/athletic/6865711/2025/12/06/blazers-womens-sports-bar-brooklyn-new-york/
-
-**Trinity Rodman negotiations explained: Why did NWSL reject the Spirit's offer and what's next?**\
-`The Spirit and Trinity Rodman agreed to an offer. A league source says that deal had a buyout clause that circumvents the NWSL salary cap.`\
-https://nytimes.com/athletic/6866574/2025/12/06/trinity-rodman-nwsl-spirit-neogtiations-explained/
+https://nytimes.com/2025/12/06/opinion/trump-declining-popularity-congress.html
 
