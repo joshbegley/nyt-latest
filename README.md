@@ -1,3 +1,7 @@
+**The Pulse: Winners of the World Cup draw**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6866973/2025/12/06/did-the-usmnt-win-the-world-cup-draw-theyre-in-the-mix/
+
 **Inter Miami wins MLS Cup, warding off Vancouver on Messi-created moments**\
 `The Whitecaps made it extremely uncomfortable for the hosts, but Lionel Messi & Co. are MLS champions at last after surviving the final`\
 https://nytimes.com/athletic/6868332/2025/12/06/mls-cup-inter-miami-vancouver-whitecaps-messi-muller-de-paul/
@@ -7,7 +11,7 @@ https://nytimes.com/athletic/6868332/2025/12/06/mls-cup-inter-miami-vancouver-wh
 https://nytimes.com/interactive/2025/12/06/us/quake-tracker-alaska.html
 
 **Nebraska fires OL coach Donovan Raiola, uncle of QB Dylan Raiola**\
-`Raiola’s departure is certain to fuel further speculation about the future of his nephew, Nebraska's starting quarterback.`\
+`Rhule is hiring Georgia Tech offensive line coach Geep Wade as his replacement, a source familiar with the move said.`\
 https://nytimes.com/athletic/6868376/2025/12/06/nebraska-fires-donovan-raiola-dylan/
 
 **College Football Playoff 2025 projections: Texas Tech, Tulane lock up bids**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/06/nyregion/gilgo-beach-murder-charges-peaches-andre
 **College Football Playoff takeaways: How Texas Tech's win over BYU impacts the bracket**\
 `What we're learning about the College Football Playoff as conference championship games provide the final data points.`\
 https://nytimes.com/athletic/6868092/2025/12/06/college-football-playoff-bracket-conference-championship-results/
-
-**How to watch Rockets vs. Mavericks: Time, TV, streaming**\
-`Find out how to watch the Houston Rockets play the Dallas Mavericks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6868301/2025/12/06/rockets-vs-mavericks-stream-how-to-watch-dec-6/
 
