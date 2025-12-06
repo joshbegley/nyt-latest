@@ -1,3 +1,15 @@
+**How to watch the College Football Playoff selection show: Full bracket revealed Sunday**\
+`The College Football Playoff bracket will be unveiled during a three-hour show Sunday, with debate sure to follow.`\
+https://nytimes.com/athletic/6865564/2025/12/06/college-football-playoff-selection-show-watch-2025/
+
+**WATCH: Why the Eagles offense isn't playing up to the same level it was last season**\
+`Saquon Barkley's rushing numbers are way off from a year ago and Philadelphia's offense doesn't seem to be working.`\
+https://nytimes.com/athletic/6866031/2025/12/06/video-analysis-eagles-offense-saquon-barkley/
+
+**Scott Bessent on Tariffs, the Fed and the Economy**\
+`The U.S. treasury secretary spoke with Andrew Ross Sorkin at the DealBook Summit on Wednesday.`\
+https://nytimes.com/2025/12/06/business/dealbook/scott-bessent-dealbook.html
+
 **What are the Commanders' biggest needs? What is Kliff Kingsbury's future? Mailbag**\
 `Also: What's the team's take on Ben Sinnott? And will Dan Quinn keep calling the defensive plays next season?`\
 https://nytimes.com/athletic/6867267/2025/12/06/washington-commanders-mailbag-roster-needs/

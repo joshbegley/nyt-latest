@@ -1,3 +1,7 @@
+**Ilia Malinin, in 'brain-bamboozling' free skate, sets world record to win Grand Prix Final**\
+`In the last major international event before February's Olympics, the American Malinin kept his two-year unbeaten streak going.`\
+https://nytimes.com/athletic/6867301/2025/12/06/ilia-malinin-world-record-grand-prix-final-olympics/
+
 **How to watch the College Football Playoff selection show: Full bracket revealed Sunday**\
 `The College Football Playoff bracket will be unveiled during a three-hour show Sunday, with debate sure to follow.`\
 https://nytimes.com/athletic/6865564/2025/12/06/college-football-playoff-selection-show-watch-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6866099/2025/12/06/wild-goalie-jesper-wallstedt-nhl
 **The Trump Administration Needs More Christianity in Its Nationalism**\
 `Not too much religious moralism in the administration, but too little.`\
 https://nytimes.com/2025/12/06/opinion/trump-hegseth-christian-nationalism.html
-
-**If Netflix Eats Warner Bros., It Will Be the End of Hollywood**\
-`The demise of Hollywood has been predicted many times. If Netflix is allowed to acquire Warner Bros., it might actually happen.`\
-https://nytimes.com/2025/12/06/opinion/netflix-warner-bros-hollywood.html
 
