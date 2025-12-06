@@ -1,3 +1,7 @@
+**Under Kennedy, U.S. Vaccine Policy Arrives at a ‘Defining Moment’**\
+`Robert F. Kennedy Jr. may be only beginning to put his stamp on American immunization policy.`\
+https://nytimes.com/2025/12/05/us/politics/vaccines-hepatitis-b-rfk-jr.html
+
 **Iowa State names Jimmy Rogers coach after Matt Campbell chooses Penn State**\
 `Rogers heads to the Cyclones after serving as head coach at Washington State and South Dakota State.`\
 https://nytimes.com/athletic/6866866/2025/12/05/iowa-state-jimmy-rogers-coach-hiring-matt-campbell/
@@ -33,8 +37,4 @@ https://nytimes.com/video/the-athletic/100000010569202/how-to-buy-a-world-cup-ti
 **Did Gen X Invent Indie Film?**\
 `The actors Claire Danes, Luis Guzmán and Omar Epps discuss the indie film era in this excerpt from a T Magazine documentary about how Generation X, the cohort once synonymous with slacking, came to leave such an indelible impression on the culture.`\
 https://nytimes.com/video/t-magazine/100000010568005/did-gen-x-invent-indie-film.html
-
-**It’s time for America to dream the impossible World Cup dream**\
-`As a country, we are wired to believe that with hard work, discipline and confidence, we can win at most everything. Except the World Cup. `\
-https://nytimes.com/athletic/6866528/2025/12/05/world-cup-draw-usa-impossible-dream/
 

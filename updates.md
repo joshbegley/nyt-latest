@@ -1,3 +1,7 @@
+**Under Kennedy, U.S. Vaccine Policy Arrives at a ‘Defining Moment’**\
+`Robert F. Kennedy Jr. may be only beginning to put his stamp on American immunization policy.`\
+https://nytimes.com/2025/12/05/us/politics/vaccines-hepatitis-b-rfk-jr.html
+
 **Iowa State names Jimmy Rogers coach after Matt Campbell chooses Penn State**\
 `Rogers heads to the Cyclones after serving as head coach at Washington State and South Dakota State.`\
 https://nytimes.com/athletic/6866866/2025/12/05/iowa-state-jimmy-rogers-coach-hiring-matt-campbell/
