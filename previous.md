@@ -23,7 +23,7 @@ https://nytimes.com/video/t-magazine/100000010568005/did-gen-x-invent-indie-film
 https://nytimes.com/athletic/6866528/2025/12/05/world-cup-draw-usa-impossible-dream/
 
 **Tyler Adams says USA can make history with 'furthest ever' World Cup run**\
-`The team has a quarterfinal and a semifinal run in its World Cup history but midfielder and 2022 captain Adams wants more`\
+`The team has a quarterfinal and a semifinal run in its World Cup history, but midfielder and 2022 captain Adams wants more.`\
 https://nytimes.com/athletic/6866644/2025/12/05/tyler-adams-world-cup-usmnt-history/
 
 **San Diego Agrees to Pay $30 Million to Family of Teen Killed by Police**\

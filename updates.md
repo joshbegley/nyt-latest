@@ -1,3 +1,7 @@
+**Tyler Adams says USA can make history with 'furthest ever' World Cup run**\
+`The team has a quarterfinal and a semifinal run in its World Cup history, but midfielder and 2022 captain Adams wants more.`\
+https://nytimes.com/athletic/6866644/2025/12/05/tyler-adams-world-cup-usmnt-history/
+
 **Marco Luciano was once the Giants' future. With nothing in return, he's now a Pirate**\
 `Luciano was not likely to make the Giants' Opening Day roster, but to get nothing at all for him after all that hype is a major let-down.`\
 https://nytimes.com/athletic/6866687/2025/12/05/marco-luciano-sf-giants-pittsburgh-pirates-waivers/
