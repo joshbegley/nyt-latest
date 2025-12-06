@@ -13,6 +13,11 @@ https://nytimes.com/athletic/6867763/2025/12/06/f1-championship-max-verstappen-l
 `\
 https://nytimes.com/athletic/6867763/2025/12/06/f1-championship-max-verstappen-lando-norris-abu-dhabi/
 
+**To win 2025 F1 title, Max Verstappen might need to drive as slow as possible**\
+`Max Verstappen vows an 'all out' attack in F1's title showdown with Lando Norris. What that actually looks like might be surprising
+`\
+https://nytimes.com/athletic/6867763/2025/12/06/f1-championship-max-verstappen-lando-norris-abu-dhabi/
+
 **How to watch Canadiens vs. Maple Leafs: Time, TV, streaming**\
 `Find out how to watch the Montreal Canadiens play the Toronto Maple Leafs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6867960/2025/12/06/canadiens-vs-maple-leafs-stream-how-to-watch-dec-6/
