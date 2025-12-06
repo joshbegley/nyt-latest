@@ -1,3 +1,15 @@
+**How to watch UTEP vs. TCU women's basketball: Time, TV, streaming**\
+`Find out how to watch the UTEP Miners play the TCU Horned Frogs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6867260/2025/12/06/utep-vs-tcu-stream-how-to-watch-dec-6/
+
+**How to watch Duke vs. Michigan State men's basketball: Time, TV, streaming**\
+`Find out how to watch the Duke Blue Devils play the Michigan State Spartans, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6867258/2025/12/06/duke-vs-michigan-state-stream-how-to-watch-dec-6/
+
+**How to watch Iowa State vs. Purdue men's basketball: Time, TV, streaming**\
+`Find out how to watch the Iowa State Cyclones play the Purdue Boilermakers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6867256/2025/12/06/iowa-state-vs-purdue-stream-how-to-watch-dec-6/
+
 **Sweet Season**\
 `Rejoice: NYT Cooking’s holiday cookie extravaganza has returned.`\
 https://nytimes.com/2025/12/06/briefing/sweet-season.html
