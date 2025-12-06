@@ -1,3 +1,7 @@
+**Judge Rules Trump Exceeded Authority by Holding Deportees at Guantánamo**\
+`Judge Sparkle L. Sooknanan stopped short of ordering the shuttering of the detention operation. But a lawyer for the challengers said they would soon seek a closure order.`\
+https://nytimes.com/2025/12/05/us/politics/guantanamo-migrants-deportation-ruling.html
+
 **Tyler Adams says USA can make history with 'furthest ever' World Cup run**\
 `The team has a quarterfinal and a semifinal run in its World Cup history, but midfielder and 2022 captain Adams wants more.`\
 https://nytimes.com/athletic/6866644/2025/12/05/tyler-adams-world-cup-usmnt-history/
