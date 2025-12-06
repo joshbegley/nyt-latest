@@ -2,7 +2,7 @@
 `Smart TVs are tracking everything you watch, taking as many as 20-30 screenshots per minute. If you find all this surveillance a little spooky, we understand. Luckily there’s a way to turn off this spying feature — and there are zero downsides to doing so.`\
 https://nytimes.com/video/smarter-living/wirecutter/100000010553276/make-your-smart-tv-stop-spying-on-you.html
 
-**11 People Killed in Mass Shooting at Illegal Tavern in South Africa**\
+**12 People Killed in Mass Shooting at Illegal Tavern in South Africa**\
 `The police said they were searching for three assailants who opened fire, shooting 25 people. A 3-year-old boy was among the dead, while 14 survivors were being treated in the hospital.`\
 https://nytimes.com/2025/12/06/world/africa/south-africa-shooting.html
 
