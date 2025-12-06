@@ -1,3 +1,7 @@
+**At Least 17 Migrants Die in Greece’s Worst Shipwreck in Two Years**\
+`Two people were rescued from a half-sunken boat off the island of Crete on Saturday evening, but 17 others died in the wreck.`\
+https://nytimes.com/2025/12/06/world/europe/greece-shipwreck-migrants.html
+
 **The Pulse: Winners of the World Cup draw**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6866973/2025/12/06/did-the-usmnt-win-the-world-cup-draw-theyre-in-the-mix/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6868222/2025/12/06/blue-jays-yariel-rodriguez-outri
 **Florida Man Charged in Murder of Woman Found Near Gilgo Beach**\
 `The woman’s body was found near her 2-year-old’s, and the man who was charged was the child’s father, the authorities said. The case did not appear to be linked to the Long Island serial killings.`\
 https://nytimes.com/2025/12/06/nyregion/gilgo-beach-murder-charges-peaches-andrew-dykes.html
-
-**College Football Playoff takeaways: How Texas Tech's win over BYU impacts the bracket**\
-`What we're learning about the College Football Playoff as conference championship games provide the final data points.`\
-https://nytimes.com/athletic/6868092/2025/12/06/college-football-playoff-bracket-conference-championship-results/
 

@@ -1,3 +1,7 @@
+**At Least 17 Migrants Die in Greece’s Worst Shipwreck in Two Years**\
+`Two people were rescued from a half-sunken boat off the island of Crete on Saturday evening, but 17 others died in the wreck.`\
+https://nytimes.com/2025/12/06/world/europe/greece-shipwreck-migrants.html
+
 **The Pulse: Winners of the World Cup draw**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6866973/2025/12/06/did-the-usmnt-win-the-world-cup-draw-theyre-in-the-mix/
