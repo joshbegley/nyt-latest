@@ -1,3 +1,7 @@
+**Ten seconds of chaos: Buendia and the beauty of a goalmouth scramble**\
+`Shots, blocks, sliding tackles and pure desperation - Aston Villa's winner against Arsenal was low on quality but high on drama`\
+https://nytimes.com/athletic/6867667/2025/12/06/buendia-goalmouth-scramble-villa-arsenal/
+
 **To win 2025 F1 title, Max Verstappen might need to drive as slow as possible**\
 `Max Verstappen vows an 'all out' attack in F1's title showdown with Lando Norris. What that actually looks like might be surprising
 `\
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6867945/2025/12/06/islanders-vs-lightning-stream-ho
 **How to watch Devils vs. Bruins: Time, TV, streaming**\
 `Find out how to watch the New Jersey Devils play the Boston Bruins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6867943/2025/12/06/devils-vs-bruins-stream-how-to-watch-dec-6/
-
-**How to watch Warriors vs. Cavaliers: Time, TV, streaming**\
-`Find out how to watch the Golden State Warriors play the Cleveland Cavaliers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6867941/2025/12/06/warriors-vs-cavaliers-stream-how-to-watch-dec-6/
 
