@@ -1,3 +1,7 @@
+**Man Accused of Setting Subway Rider on Fire Is Charged With Arson**\
+`The victim was sleeping on a train at Penn Station in Manhattan around 3 a.m. Monday when an 18-year-old man set him on fire, the police said.`\
+https://nytimes.com/2025/12/05/nyregion/subway-man-on-fire.html
+
 **Under Kennedy, U.S. Vaccine Policy Arrives at a ‘Defining Moment’**\
 `Robert F. Kennedy Jr. may be only beginning to put his stamp on American immunization policy.`\
 https://nytimes.com/2025/12/05/us/politics/vaccines-hepatitis-b-rfk-jr.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/the-athletic/100000010569459/live-reactions-from-world
 **How to Buy a World Cup Ticket**\
 `Want to acquire a FIFA World Cup ticket? There are some steps you should follow. Henry Bushnell, a senior soccer writer for The Athletic, details how.`\
 https://nytimes.com/video/the-athletic/100000010569202/how-to-buy-a-world-cup-ticket.html
-
-**Did Gen X Invent Indie Film?**\
-`The actors Claire Danes, Luis Guzmán and Omar Epps discuss the indie film era in this excerpt from a T Magazine documentary about how Generation X, the cohort once synonymous with slacking, came to leave such an indelible impression on the culture.`\
-https://nytimes.com/video/t-magazine/100000010568005/did-gen-x-invent-indie-film.html
 
