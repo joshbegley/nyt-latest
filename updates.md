@@ -1,3 +1,7 @@
+**Inter Miami wins MLS Cup, warding off Vancouver on Messi-created moments**\
+`The Whitecaps made it extremely uncomfortable for the hosts, but Lionel Messi & Co. are MLS champions at last after surviving the final`\
+https://nytimes.com/athletic/6868332/2025/12/06/mls-cup-inter-miami-vancouver-whitecaps-messi-muller-de-paul/
+
 **Map: 7.0-Magnitude Earthquake Shakes Alaska**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/12/06/us/quake-tracker-alaska.html

@@ -14,7 +14,7 @@ https://nytimes.com/athletic/6868376/2025/12/06/nebraska-fires-donovan-raiola-dy
 `Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
 https://nytimes.com/athletic/6560541/2025/12/06/college-football-playoff-bracket-projections-odds/
 
-**Salah says he has been ‘thrown under bus’ by Liverpool, no relationship with Slot**\
+**Salah says Liverpool future is in doubt as relations with Slot have broken down**\
 `Salah believes he's been made a scapegoat for Liverpool's struggles this season, insisting "someone does not want me in the club".`\
 https://nytimes.com/athletic/6868345/2025/12/06/salah-liverpool-interview-news-leaving-slot/
 
