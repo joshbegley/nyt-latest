@@ -1,3 +1,7 @@
+**The New York Times in Print for Saturday, Dec. 6, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/12/06/todays-new-york-times
+
 **The Chelsea loanee lighting up League One after dad's tough love**\
 `The Chelsea youngster is starring for Huddersfield Town — and he's from a family very much used to fame`\
 https://nytimes.com/athletic/6864355/2025/12/06/leo-castledine-chelsea-huddersfield-family/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6844810/2025/12/06/alex-scott-england-world-cup/
 **‘No Going Back,’ Survivors of Deadly Hong Kong Fire Are in Limbo**\
 `Hong Kong, with some of the world’s highest housing costs and inequality, must now figure out how to help thousands of residents who lost friends, family and homes.`\
 https://nytimes.com/2025/12/06/world/asia/hong-kong-fire-survivors-housing.html
-
-**Quote of the Day: Dancing With the Babies Can Give Grown-Ups a Lesson**\
-`Quotation of the Day for Saturday, December 6, 2025.`\
-https://nytimes.com/2025/12/06/pageoneplus/quote-of-the-day-dancing-with-the-babies-can-give-grown-ups-a-lesson.html
 
