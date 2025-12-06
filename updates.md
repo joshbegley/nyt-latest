@@ -1,3 +1,11 @@
+**Nebraska fires OL coach Donovan Raiola, uncle of QB Dylan Raiola**\
+`Raiola’s departure is certain to fuel further speculation about the future of his nephew, Nebraska's starting quarterback.`\
+https://nytimes.com/athletic/6868376/2025/12/06/nebraska-fires-donovan-raiola-dylan/
+
+**College Football Playoff 2025 projections: Tulane locks up bid with championships underway**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/12/06/college-football-playoff-bracket-projections-odds/
+
 **Salah says he has been ‘thrown under bus’ by Liverpool, no relationship with Slot**\
 `Salah believes he's been made a scapegoat for Liverpool's struggles this season, insisting "someone does not want me in the club".`\
 https://nytimes.com/athletic/6868345/2025/12/06/salah-liverpool-interview-news-leaving-slot/
