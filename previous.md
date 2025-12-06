@@ -1,3 +1,7 @@
+**The abridged Michael Jordan vs. NASCAR trial: Daily highlights from the case**\
+`Miss anything from the Michael Jordan vs. NASCAR trial? Here's our condensed, day-by-day look at the highlights from testimony.`\
+https://nytimes.com/athletic/6856325/2025/12/06/michael-jordan-nascar-trial-highlights-testimony/
+
 **Think Globally, Give Locally**\
 `Make yourself an active member of your community.`\
 https://nytimes.com/2025/12/06/opinion/charity-holiday-gift-community-local.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6866949/2025/12/06/nfl-rumors-news-tom-brady-raider
 **Did You Follow the News Below the Fold? Take Our Year-End Quiz**\
 `These stories may not have made the front page — but they certainly left an impression.`\
 https://nytimes.com/interactive/2025/12/06/special-series/06tp-quiz.html
-
-**Memphis focused on Charles Huff for next head coach: Source**\
-`Charles Huff rose to the top of Memphis' search after going 7-5 in his first season at Southern Miss.`\
-https://nytimes.com/athletic/6867471/2025/12/06/memphis-head-coach-search-charles-huff/
 

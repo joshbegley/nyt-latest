@@ -1,3 +1,7 @@
+**The abridged Michael Jordan vs. NASCAR trial: Daily highlights from the case**\
+`Miss anything from the Michael Jordan vs. NASCAR trial? Here's our condensed, day-by-day look at the highlights from testimony.`\
+https://nytimes.com/athletic/6856325/2025/12/06/michael-jordan-nascar-trial-highlights-testimony/
+
 **Think Globally, Give Locally**\
 `Make yourself an active member of your community.`\
 https://nytimes.com/2025/12/06/opinion/charity-holiday-gift-community-local.html
