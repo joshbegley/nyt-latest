@@ -1,3 +1,7 @@
+**Hawks' Jalen Johnson becomes sixth player in NBA history to log first-half triple-double**\
+`The 23-year-old Hawks forward achieved the honor in one half, joining a short list of NBA stars to have pulled off the feat. `\
+https://nytimes.com/athletic/6866847/2025/12/05/jalen-johnson-triple-double-hawks-first-half/
+
 **Blake Griffin slams Clippers, Steve Ballmer for Chris Paul's sudden exit**\
 `"At the end of the day, an organization is built on a foundation of respect and how you treat people," Griffin said.`\
 https://nytimes.com/athletic/6866628/2025/12/05/blake-griffin-chris-paul-amazon/
