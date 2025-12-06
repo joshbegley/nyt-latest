@@ -1,4 +1,8 @@
 **Kevin Durant nears 3 all-time greats on NBA's career scoring list**\
+`Kevin Durant, LeBron James and Giannis Antetokounmpo all made NBA history in the past seven days. Who could make history next?`\
+https://nytimes.com/athletic/6867908/2025/12/06/kevin-durant-nba-careeer-scoring/
+
+**Kevin Durant nears 3 all-time greats on NBA's career scoring list**\
 `Kevin Durant, Lebron James, and Giannis Antetokounmpo all made NBA history in the past seven days. Who could make history next?`\
 https://nytimes.com/athletic/6867908/2025/12/06/kevin-durant-nba-careeer-scoring/
 
