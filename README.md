@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6560541/2025/12/06/college-football-playoff-bracket-projections-odds/
 
 **The strange story of Rory McIlroy and a banana skin**\
-`The Masters champion had to play out from a banana peel during the Australian Open - and paid the price`\
+`The Masters champion had to play out from a banana peel during the Australian Open — and paid the price.`\
 https://nytimes.com/athletic/6867595/2025/12/06/rory-mcilroy-banana-skin-australian-open/
 
 **Trump’s New Crackdown on Asylum Seekers**\

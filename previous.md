@@ -1,3 +1,7 @@
+**College Football Playoff 2025 projections: Tulane locks up bid with championships underway**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/12/06/college-football-playoff-bracket-projections-odds/
+
 **The strange story of Rory McIlroy and a banana skin**\
 `The Masters champion had to play out from a banana peel during the Australian Open - and paid the price`\
 https://nytimes.com/athletic/6867595/2025/12/06/rory-mcilroy-banana-skin-australian-open/
@@ -9,10 +13,6 @@ https://nytimes.com/video/us/politics/100000010566235/trumps-new-crackdown-on-as
 **Max Verstappen beats Lando Norris in Abu Dhabi qualifying as F1 title fight goes down to the wire**\
 `Max Verstappen beat points lead Lando Norris to pole position ahead of the 2025 Abu Dhabi GP`\
 https://nytimes.com/athletic/6867411/2025/12/06/abu-dhabi-qualifying-results/
-
-**College Football Playoff 2025 projections: Tulane locks up bid with championships underway**\
-`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
-https://nytimes.com/athletic/6560541/2025/12/06/college-football-playoff-bracket-projections-odds/
 
 **Scoop City: Fantasy tips to win Week 14**\
 `What to do with Justin Jefferson, Jayden Daniels and more.`\
