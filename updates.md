@@ -1,3 +1,15 @@
+**Marco Luciano was once the Giants' future. With nothing in return, he's now a Pirate**\
+`Luciano was not likely to make the Giants' Opening Day roster, but to get nothing at all for him after all that hype is a major let-down.`\
+https://nytimes.com/athletic/6866687/2025/12/05/marco-luciano-sf-giants-pittsburgh-pirates-waivers/
+
+**Angels toxicology expert poses alternative explanation for Tyler Skaggs’ cause of death**\
+`Angels PR head Eric Kay gave Skaggs the fentanyl pill, but pitcher Matt Harvey provided an oxycodone pill that Skaggs also ingested.`\
+https://nytimes.com/athletic/6866627/2025/12/05/tyler-skaggs-angels-toxicology-oxycodone-alcohol-fentanyl/
+
+**Live Reactions From World Cup Draw Watch Parties**\
+`Reporters for The Athletic capture live reactions from soccer fans at World Cup draw watch parties across North America.`\
+https://nytimes.com/video/the-athletic/100000010569459/live-reactions-from-world-cup-draw-watch-parties.html
+
 **How to Buy a World Cup Ticket**\
 `Want to acquire a FIFA World Cup ticket? There are some steps you should follow. Henry Bushnell, a senior soccer writer for The Athletic, details how.`\
 https://nytimes.com/video/the-athletic/100000010569202/how-to-buy-a-world-cup-ticket.html

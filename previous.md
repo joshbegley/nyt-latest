@@ -1,3 +1,15 @@
+**Marco Luciano was once the Giants' future. With nothing in return, he's now a Pirate**\
+`Luciano was not likely to make the Giants' Opening Day roster, but to get nothing at all for him after all that hype is a major let-down.`\
+https://nytimes.com/athletic/6866687/2025/12/05/marco-luciano-sf-giants-pittsburgh-pirates-waivers/
+
+**Angels toxicology expert poses alternative explanation for Tyler Skaggs’ cause of death**\
+`Angels PR head Eric Kay gave Skaggs the fentanyl pill, but pitcher Matt Harvey provided an oxycodone pill that Skaggs also ingested.`\
+https://nytimes.com/athletic/6866627/2025/12/05/tyler-skaggs-angels-toxicology-oxycodone-alcohol-fentanyl/
+
+**Live Reactions From World Cup Draw Watch Parties**\
+`Reporters for The Athletic capture live reactions from soccer fans at World Cup draw watch parties across North America.`\
+https://nytimes.com/video/the-athletic/100000010569459/live-reactions-from-world-cup-draw-watch-parties.html
+
 **How to Buy a World Cup Ticket**\
 `Want to acquire a FIFA World Cup ticket? There are some steps you should follow. Henry Bushnell, a senior soccer writer for The Athletic, details how.`\
 https://nytimes.com/video/the-athletic/100000010569202/how-to-buy-a-world-cup-ticket.html
@@ -25,16 +37,4 @@ https://nytimes.com/video/dining/100000010366914/locro-de-gallina-chicken-soup-w
 **Biden Says Republicans Aim to Turn L.G.B.T.Q. Identity Into ‘Something Scary’**\
 `The former president defended his support for transgender rights, a stance that has provoked second-guessing among some Democrats.`\
 https://nytimes.com/2025/12/05/us/biden-lgbtq-award.html
-
-**Tigers sign pitcher Drew Anderson from KBO on one-year deal: Sources**\
-`Anderson, who spent time in Detroit's organization in 2024 before heading to Korea, is expected to start for the Tigers.`\
-https://nytimes.com/athletic/6866583/2025/12/05/mlb-tigers-drew-anderson-contract/
-
-**Trumpism After Trump? Here Are Three Realities.**\
-`“Trumpism without Trump is going to move in different directions because Trumpism was always a somewhat amorphous set of half-baked ideas,” Bret Stephens says.`\
-https://nytimes.com/video/opinion/100000010559506/trumpism-after-trump-here-are-three-realities.html
-
-**How Charismatic Can a Moderate Politician Be?**\
-`“I think Americans — those who are not spending all their lives on social media — are so tired of the temperature of our political discourse,” Frank Bruni says on “The Opinions.” The solution? A “poetic and charismatic” centrist.`\
-https://nytimes.com/video/opinion/100000010559508/how-charismatic-can-a-moderate-politician-be.html
 
