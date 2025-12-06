@@ -1,3 +1,7 @@
+**A Deeply Comforting Bowl of Corny Goodness**\
+`Frozen kernels, masa harina and hominy form the base of Rick Martínez’s warming atole de grano (savory corn porridge with chicken).`\
+https://nytimes.com/2025/12/06/dining/a-deeply-comforting-bowl-of-corny-goodness.html
+
 **The strange story of Rory McIlroy and a banana skin**\
 `The Masters champion had to play out from a banana peel during the Australian Open — and paid the price.`\
 https://nytimes.com/athletic/6867595/2025/12/06/rory-mcilroy-banana-skin-australian-open/

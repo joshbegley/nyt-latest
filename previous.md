@@ -1,3 +1,7 @@
+**A Deeply Comforting Bowl of Corny Goodness**\
+`Frozen kernels, masa harina and hominy form the base of Rick Martínez’s warming atole de grano (savory corn porridge with chicken).`\
+https://nytimes.com/2025/12/06/dining/a-deeply-comforting-bowl-of-corny-goodness.html
+
 **College Football Playoff 2025 projections: Tulane locks up bid with championships underway**\
 `Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
 https://nytimes.com/athletic/6560541/2025/12/06/college-football-playoff-bracket-projections-odds/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6867471/2025/12/06/memphis-head-coach-search-charle
 **Make Your Smart TV Stop Spying On You**\
 `Smart TVs are tracking everything you watch, taking as many as 20-30 screenshots per minute. If you find all this surveillance a little spooky, we understand. Luckily there’s a way to turn off this spying feature — and there are zero downsides to doing so.`\
 https://nytimes.com/video/smarter-living/wirecutter/100000010553276/make-your-smart-tv-stop-spying-on-you.html
-
-**12 People Killed in Mass Shooting at Illegal Tavern in South Africa**\
-`The police said they were searching for three assailants who opened fire, shooting 25 people. A 3-year-old boy was among the dead, while 13 survivors were being treated in the hospital.`\
-https://nytimes.com/2025/12/06/world/africa/south-africa-shooting.html
 
