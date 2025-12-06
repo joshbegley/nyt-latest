@@ -1,3 +1,11 @@
+**Mark Pope’s second Kentucky season hits crisis point in Gonzaga blowout**\
+`The most expensive team in college basketball is 5-4, with no discernible plan on offense and way too little connect on defense. `\
+https://nytimes.com/athletic/6866829/2025/12/05/kentucky-coach-mark-pope-gonzaga/
+
+**Hawks' Jalen Johnson becomes sixth player in NBA history to log first-half triple-double**\
+`The young Hawks forward made history in the first half before Denver's Nikola Jokić led a second-half rally to earn a 1-point Nuggets win.`\
+https://nytimes.com/athletic/6866847/2025/12/05/jalen-johnson-triple-double-hawks-first-half/
+
 **Hawks' Jalen Johnson becomes sixth player in NBA history to log first-half triple-double**\
 `The young Hawks forward made history in the first half before Denver's Nikola Jokić led a second-half rally to earn a one-point Nuggets win.`\
 https://nytimes.com/athletic/6866847/2025/12/05/jalen-johnson-triple-double-hawks-first-half/
