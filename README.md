@@ -1,3 +1,11 @@
+**Sweet Season**\
+`Rejoice: NYT Cooking’s holiday cookie extravaganza has returned.`\
+https://nytimes.com/2025/12/06/briefing/sweet-season.html
+
+**Inside Brooklyn's first women's sports bar: 'We just wanted the Liberty game on'**\
+`A fortuitous Hinge match of like-minded New York Liberty fans turned into New York City's newest women's sports bar.`\
+https://nytimes.com/athletic/6865711/2025/12/06/blazers-womens-sports-bar-brooklyn-new-york/
+
 **Trinity Rodman negotiations explained: Why did NWSL reject the Spirit's offer and what's next?**\
 `The Spirit and Trinity Rodman agreed to an offer. A league source says that deal had a buyout clause that circumvents the NWSL salary cap.`\
 https://nytimes.com/athletic/6866574/2025/12/06/trinity-rodman-nwsl-spirit-neogtiations-explained/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6863386/2025/12/06/messi-miami-muller-vancouver-whi
 **What Should I Do About the Bully in My Social Circle?**\
 `I know from experience that any vulnerability I expose will be used by this person.`\
 https://nytimes.com/2025/12/06/magazine/bully-friend-ethics.html
-
-**Like Trump, Benjamin Franklin Sought to Annex Canada**\
-`A book revives the largely forgotten story of how one of America’s most famous founding fathers tried to make Canada a part of his new nation.`\
-https://nytimes.com/2025/12/06/world/canada/like-trump-benjamin-franklin-sought-to-annex-canada.html
-
-**Connections Companion No. 910**\
-`Scroll down for hints and conversation about the puzzle for Saturday, Dec. 7, 2025.`\
-https://nytimes.com/2025/12/06/crosswords/connections-companion-910.html
 

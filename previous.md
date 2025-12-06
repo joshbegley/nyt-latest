@@ -1,40 +1,40 @@
-**A Right-Wing Playbook to Weaken Colleges from Within**\
-`When students are treated like customers, they can demand educators grade accordingly.`\
-https://nytimes.com/2025/12/06/opinion/college-student-complaints.html
+**Trinity Rodman negotiations explained: Why did NWSL reject the Spirit's offer and what's next?**\
+`The Spirit and Trinity Rodman agreed to an offer. A league source says that deal had a buyout clause that circumvents the NWSL salary cap.`\
+https://nytimes.com/athletic/6866574/2025/12/06/trinity-rodman-nwsl-spirit-neogtiations-explained/
 
-**USA coach Pochettino wants to return to and win the Premier League**\
-`Pochettino previously took charge of Southampton, Tottenham and Chelsea in the English top flight.`\
-https://nytimes.com/athletic/6867209/2025/12/06/mauricio-pochettino-usmnt-premier-league/
+**Overheard at the Abu Dhabi GP: Why F1 drivers think Lando Norris has the toughest job**\
+`The paddock is abuzz as the season finale approaches – and Lewis Hamilton thinks it's "way easier to be the hunter" in a showdown`\
+https://nytimes.com/athletic/6865953/2025/12/06/abu-dhabi-gp-f1-lando-norris/
 
-**Battlefield Picture Worsening for Ukraine as Trump Pushes Peace Plan**\
-`Russian forces have advanced on several fronts recently. President Vladimir V. Putin signaled after talks with U.S. officials that he was not budging from demands.`\
-https://nytimes.com/2025/12/06/world/europe/ukraine-pokrovsk-battlefield-russia.html
+**The Sabres are exactly where they deserve to be in the standings this season**\
+`The Sabres have an identical record to last season. The reality is, until they prove otherwise, this is just who they are.`\
+https://nytimes.com/athletic/6866980/2025/12/06/buffalo-sabres-jets-nhl-standings-season/
 
-**Dochterman: Iowa State fans don't deserve the heartbreak, but can savor Campbell's success**\
-`Iowa State fans bid farewell to the program's best figure, but will rebuild it again. `\
-https://nytimes.com/athletic/6866749/2025/12/06/iowa-state-matt-campbell-fans-history/
+**Mirtle: Why the Maple Leafs are finally starting to win more games**\
+`In a season that has been very short on positives, the Maple Leafs'  latest run has offered a lot of them.`\
+https://nytimes.com/athletic/6866331/2025/12/06/toronto-maple-leafs-season-nhl-wins/
 
-**Kristen Stewart Wants to Blow Up the Myth of the Brilliant Male Actor**\
-`The actress and director says the world of filmmaking needs a “full system break.”`\
-https://nytimes.com/2025/12/06/magazine/kristen-stewart-interview.html
+**World Cup draw was interminable TV, but dieu merci for Thierry Henry**\
+`The World Cup draw needed less empty lead-up and more substantive insights, Richard Deitsch says in his review of the TV experience.`\
+https://nytimes.com/athletic/6866376/2025/12/06/world-cup-draw-fox-tv-thierry-henry/
 
-**What to Know About Netflix’s $83 Billion Deal for Warner Bros. Discovery**\
-`The cash-and-stock deal would give the world’s largest paid streaming service expansive power over theater owners and entertainment-industry unions.`\
-https://nytimes.com/2025/12/06/business/netflix-warner-bros-what-to-know.html
+**NFL Week 14 roundtable: Bears-Packers revival, Eagles OC under fire, AFC South drama**\
+`December football means there are playoff implications across the league in Week 14. Our writers discuss Colts-Jags, Bears-Packers and more.`\
+https://nytimes.com/athletic/6865635/2025/12/06/nfl-week-14-bears-packers-eagles-offense/
 
-**See the East Wing Design, Before Trump Changed Architects**\
-`A new architect will oversee President Trump’s vision for the East Wing ballroom. See what we know about the original design so far.`\
-https://nytimes.com/interactive/2025/12/06/us/trump-white-house-ballroom-architect.html
+**How to watch the MLS Cup final: Lionel Messi and Miami vs. Thomas Müller and Vancouver**\
+`Inter Miami is the big-name machine with the league's highest payroll, while the Whitecaps are trying to cap a truly surprising season.`\
+https://nytimes.com/athletic/6863386/2025/12/06/messi-miami-muller-vancouver-whitecaps-mls-cup-final/
 
-**6 Republican Voters on U.S. Strikes on Boats Suspected of Smuggling Drugs**\
-`Most supported the Trump administration’s tactics, but a few had deep reservations.`\
-https://nytimes.com/2025/12/06/us/6-republican-voters-on-us-strikes-on-boats-suspected-of-smuggling-drugs.html
+**What Should I Do About the Bully in My Social Circle?**\
+`I know from experience that any vulnerability I expose will be used by this person.`\
+https://nytimes.com/2025/12/06/magazine/bully-friend-ethics.html
 
-**Angst Turns to Anger in Hollywood as Netflix Hooks Warner Bros.**\
-`Much of the entertainment capital fears that Netflix’s deal will lead to more job losses and theater closings and fewer boundary-pushing movies.`\
-https://nytimes.com/2025/12/06/business/media/hollywood-reaction-netflix-warner-bros.html
+**Like Trump, Benjamin Franklin Sought to Annex Canada**\
+`A book revives the largely forgotten story of how one of America’s most famous founding fathers tried to make Canada a part of his new nation.`\
+https://nytimes.com/2025/12/06/world/canada/like-trump-benjamin-franklin-sought-to-annex-canada.html
 
-**Frank Gehry’s Buildings Sound as Marvelous as They Look**\
-`Gehry, who died on Friday at 96, made an invaluable contribution to classical music by designing spaces with stunning acoustics.`\
-https://nytimes.com/2025/12/06/arts/music/frank-gehry-concert-halls-classical-music.html
+**Connections Companion No. 910**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Dec. 7, 2025.`\
+https://nytimes.com/2025/12/06/crosswords/connections-companion-910.html
 
