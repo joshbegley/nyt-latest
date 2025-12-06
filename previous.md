@@ -1,3 +1,7 @@
+**Thunder hold Anthony Davis to 2 points and demolish Mavericks for 14th consecutive win**\
+`The Mavericks’ three-game winning streak came to an end against their I-35 competition, while the Thunder improved to 22-1.`\
+https://nytimes.com/athletic/6867040/2025/12/06/anthony-davis-thunder-mavericks/
+
 **Ilia Malinin, in 'brain-bamboozling' free skate, sets world record to win Grand Prix Final**\
 `In the last major international event before February's Olympics, the American Malinin kept his two-year unbeaten streak going.`\
 https://nytimes.com/athletic/6867301/2025/12/06/ilia-malinin-world-record-grand-prix-final-olympics/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6863826/2025/12/06/winnipeg-jets-gabriel-vilardi-me
 **Wild goalie Jesper Wallstedt's hot streak drawing praise from former coaches, players**\
 `Wallstedt has been one of the best goalies in the NHL this year and is doing things that a rookie goaltender hasn't done in about 90 years.`\
 https://nytimes.com/athletic/6866099/2025/12/06/wild-goalie-jesper-wallstedt-nhl/
-
-**The Trump Administration Needs More Christianity in Its Nationalism**\
-`Not too much religious moralism in the administration, but too little.`\
-https://nytimes.com/2025/12/06/opinion/trump-hegseth-christian-nationalism.html
 
