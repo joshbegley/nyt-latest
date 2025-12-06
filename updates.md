@@ -1,3 +1,7 @@
+**Hawks' Jalen Johnson becomes sixth player in NBA history to log first-half triple-double**\
+`The young Hawks forward made history in the first half before Denver's Nikola Jokić led a second-half rally to earn a one-point Nuggets win.`\
+https://nytimes.com/athletic/6866847/2025/12/05/jalen-johnson-triple-double-hawks-first-half/
+
 **Brazil Has a Cachaça Cocktail for Every Season**\
 `If summer is for bottomless caipirinhas, winter is all about warming quentão. Here are recipes for both.`\
 https://nytimes.com/2025/12/05/dining/caipirinhas-quentao-recipe.html

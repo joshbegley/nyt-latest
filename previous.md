@@ -19,7 +19,7 @@ https://nytimes.com/2025/12/05/us/politics/vaccines-hepatitis-b-rfk-jr.html
 https://nytimes.com/athletic/6866866/2025/12/05/iowa-state-jimmy-rogers-coach-hiring-matt-campbell/
 
 **Hawks' Jalen Johnson becomes sixth player in NBA history to log first-half triple-double**\
-`The 23-year-old Hawks forward achieved the honor in one half, joining a short list of NBA stars to have pulled off the feat. `\
+`The young Hawks forward made history in the first half before Denver's Nikola Jokić led a second-half rally to earn a one-point Nuggets win.`\
 https://nytimes.com/athletic/6866847/2025/12/05/jalen-johnson-triple-double-hawks-first-half/
 
 **Blake Griffin slams Clippers, Steve Ballmer for Chris Paul's sudden exit**\
@@ -33,8 +33,4 @@ https://nytimes.com/2025/12/05/us/politics/guantanamo-migrants-deportation-rulin
 **Marco Luciano was once the Giants' future. With nothing in return, he's now a Pirate**\
 `Luciano was not likely to make the Giants' Opening Day roster, but to get nothing at all for him after all that hype is a major let-down.`\
 https://nytimes.com/athletic/6866687/2025/12/05/marco-luciano-sf-giants-pittsburgh-pirates-waivers/
-
-**Angels toxicology expert poses alternative explanation for Tyler Skaggs’ cause of death**\
-`Angels PR head Eric Kay gave Skaggs the fentanyl pill, but pitcher Matt Harvey provided an oxycodone pill that Skaggs also ingested.`\
-https://nytimes.com/athletic/6866627/2025/12/05/tyler-skaggs-angels-toxicology-oxycodone-alcohol-fentanyl/
 
