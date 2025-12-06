@@ -1,40 +1,40 @@
-**How Clint Ramos, a Tony Winner, Spends a Day Designing Costumes**\
-`Mr. Ramos, Lincoln Center’s artist in residence, makes breakfast for his daughter before heading to the Metropolitan Opera House and a photo shoot — and his own birthday celebration.`\
-https://nytimes.com/2025/12/06/nyregion/clint-ramos-lincoln-center.html
+**What to Know About Netflix’s $83 Billion Deal for Warner Bros. Discovery**\
+`The cash-and-stock deal would give the world’s largest paid streaming service expansive power over theater owners and entertainment-industry unions.`\
+https://nytimes.com/2025/12/06/business/netflix-warner-bros-what-to-know.html
 
-**Inside the Yearslong Push to Bring the World Cup Final to New Jersey**\
-`Winning the right to host the world’s most popular sporting event took years of planning, countless Zoom calls and a bit of luck with a broken-down bus.`\
-https://nytimes.com/2025/12/06/nyregion/world-cup-meadowlands.html
+**See the East Wing Design, Before Trump Changed Architects**\
+`A new architect will oversee President Trump’s vision for the East Wing ballroom. See what we know about the original design so far.`\
+https://nytimes.com/interactive/2025/12/06/us/trump-white-house-ballroom-architect.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/12/06/crosswords/spelling-bee-forum.html
+**6 Republican Voters on U.S. Strikes on Boats Suspected of Smuggling Drugs**\
+`Most supported the Trump administration’s tactics, but a few had deep reservations.`\
+https://nytimes.com/2025/12/06/us/6-republican-voters-on-us-strikes-on-boats-suspected-of-smuggling-drugs.html
 
-**Tulane likely secures CFP spot, while James Madison keeps Playoff chances alive**\
-`In the American Conference title game, No. 20 Tulane beat No. 24 North Texas with a CFP spot on the line for the winner.`\
-https://nytimes.com/athletic/6866998/2025/12/06/tulane-james-madison-college-football-playoff/
+**Angst Turns to Anger in Hollywood as Netflix Hooks Warner Bros.**\
+`Much of the entertainment capital fears that Netflix’s deal will lead to more job losses and theater closings and fewer boundary-pushing movies.`\
+https://nytimes.com/2025/12/06/business/media/hollywood-reaction-netflix-warner-bros.html
 
-**The New York Times in Print for Saturday, Dec. 6, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/12/06/todays-new-york-times
+**Frank Gehry’s Buildings Sound as Marvelous as They Look**\
+`Gehry, who died on Friday at 96, made an invaluable contribution to classical music by designing spaces with stunning acoustics.`\
+https://nytimes.com/2025/12/06/arts/music/frank-gehry-concert-halls-classical-music.html
 
-**The Chelsea loanee lighting up League One after dad's tough love**\
-`The Chelsea youngster is starring for Huddersfield Town — and he's from a family very much used to fame`\
-https://nytimes.com/athletic/6864355/2025/12/06/leo-castledine-chelsea-huddersfield-family/
+**The Mayor-Elect of New Orleans Is Already Awash in Challenges**\
+`A month before taking office, Helena Moreno is steering the city through a budget crisis and a Border Patrol enforcement operation that has immigrants in hiding.`\
+https://nytimes.com/2025/12/06/us/new-orleans-mayor-helena-moreno.html
 
-**Explained: How Nottingham Forest plan to transform the City Ground**\
-`Plans to redevelop the City Ground have taken a big step forward, with the club today launching a public consultation period`\
-https://nytimes.com/athletic/6865182/2025/12/06/explained-nottingham-forest-plans-city-ground/
+**One Step From Citizenship, Some Find It Eludes Their Grasp**\
+`Sweeping immigration changes by the Trump administration have resulted in the cancellation of naturalization ceremonies, the last step in the process of becoming a citizen.`\
+https://nytimes.com/2025/12/06/us/immigration-citizenship-naturalization-trump.html
 
-**The World Cup draw was big and brash - and a taste of what's to come next summer**\
-`The draw for the 2026 men's World Cup was, in the words of one coach, 'very American' - just like the tournament itself is set to be`\
-https://nytimes.com/athletic/6866496/2025/12/06/world-cup-draw-trump-usa-taste/
+**The Newest V.I.P.s at the U.S. Embassy in South Africa? Afrikaners.**\
+`The white descendants of Europeans who colonized the country are getting greater access to American officials this year, both in Washington and in Pretoria.`\
+https://nytimes.com/2025/12/06/world/africa/south-africa-afrikaners-trump.html
 
-**Analyzing team strength at the 2026 World Cup: Is England in a 'Group of Death'?**\
-`An expanded tournament of 48 teams doesn't mean the leading nations have an easy path to the knockout stage`\
-https://nytimes.com/athletic/6866368/2025/12/06/world-cup-2026-group-analysis-team-strength/
+**Josh Hutcherson Is Back. He Never Wanted to Leave.**\
+`The “Five Nights at Freddy’s” and “I Love L.A.” star found instant success as a child actor. After his “Hunger Games” fame, it felt like it almost all went away.`\
+https://nytimes.com/2025/12/06/movies/josh-hutcherson-interview-five-nights-at-freddys-2.html
 
-**'Lamine Yamal… he's not bad!' – watching the World Cup draw with the underdogs**\
-`The Athletic spoke to players whose teams were in Pot 4 of Friday's World Cup draw, and will have the odds stacked against them next summer`\
-https://nytimes.com/athletic/6866436/2025/12/06/world-cup-draw-new-zealand-underdogs/
+**It’s Not Just You. Users Struggle With the Instagram Repost Button.**\
+`The new repost option, sandwiched between comment and share, has led to consternation and accidental reposts by some users.`\
+https://nytimes.com/2025/12/06/technology/instagram-repost-button-accidental.html
 
