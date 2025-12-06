@@ -1,3 +1,7 @@
+**The Chelsea loanee lighting up League One after dad's tough love**\
+`The Chelsea youngster is starring for Huddersfield Town — and he's from a family very much used to fame`\
+https://nytimes.com/athletic/6864355/2025/12/06/leo-castledine-chelsea-huddersfield-family/
+
 **Explained: How Nottingham Forest plan to transform the City Ground**\
 `Plans to redevelop the City Ground have taken a big step forward, with the club today launching a public consultation period`\
 https://nytimes.com/athletic/6865182/2025/12/06/explained-nottingham-forest-plans-city-ground/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/06/world/asia/hong-kong-fire-survivors-housing.html
 **Quote of the Day: Dancing With the Babies Can Give Grown-Ups a Lesson**\
 `Quotation of the Day for Saturday, December 6, 2025.`\
 https://nytimes.com/2025/12/06/pageoneplus/quote-of-the-day-dancing-with-the-babies-can-give-grown-ups-a-lesson.html
-
-**China’s Mad at Japan, and Pop Stars Are Paying for It**\
-`Beijing is curbing Japanese movies, music and art as it seeks to punish Tokyo for its support of Taiwan.`\
-https://nytimes.com/2025/12/06/world/asia/china-japan-anime-taiwan-dispute.html
 
