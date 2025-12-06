@@ -1,6 +1,10 @@
+**Leeds 3 Liverpool 3: How did the champions let that slip? Can spirit keep Farke's side up?**\
+`Analysing the major talking points from a breathless game at Elland Road`\
+https://nytimes.com/athletic/6867156/2025/12/06/leeds-liverpool-result-analysis/
+
 **No. 10 Iowa State crushes No. 1 Purdue: Where do Cyclones fit among CBB's top teams?**\
 `Iowa State held a Purdue team averaging 88.6 points per game to a season-low 58.`\
-https://nytimes.com/athletic/6868094/2025/12/06/iowa-state-is-on-a-tear-and-made-its-biggest-statement-yet-by-crushing-no-1-purdue/
+https://nytimes.com/athletic/6868094/2025/12/06/iowa-state-purdue-score-result/
 
 **'Their behaviour is different' - how Wrexham have changed, as seen by a rival manager who should know**\
 `Paul Heckingbottom was not overly impressed by the Welsh club a few years ago but now he has a new-found respect for them`\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/06/style/pam-hogg-dead.html
 **Crayola Magnetic Blocks Are Recalled Over Choking Hazard Concerns**\
 `Magnets in the toy, pip-Cubes, can fall out of the blocks and be swallowed by children, causing injury or death, federal regulators warned.`\
 https://nytimes.com/2025/12/06/business/crayola-magnetic-cubes-recall-safety-hazard.html
-
-**Venezuela’s Nobel Winner Will Go to Norway for Peace Prize, Official Says**\
-`Venezuelan officials say María Corina Machado will be considered a fugitive if she goes to Oslo, laying bare the risks for the opposition leader.`\
-https://nytimes.com/2025/12/06/world/americas/venezuela-peace-prize-norway.html
 
