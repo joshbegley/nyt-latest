@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6868543/2025/12/06/texas-tech-byu-analysis-college-
 https://nytimes.com/2025/12/06/weather/pacific-northwest-rain-storm-flooding.html
 
 **Illinois State throws 5 interceptions but still stuns No. 1 NDSU in FCS playoffs**\
-`Tommy Rittenhouse came through when he needed, throwing two touchdown passes in the final 3 minutes to beat the defending champions 29-28.`\
+`Tommy Rittenhouse came through when needed, throwing two touchdown passes in the final 3 minutes to beat the defending champions 29-28.`\
 https://nytimes.com/athletic/6868431/2025/12/06/illinois-state-upsets-ndsu-fcs-playoffs/
 
 **Original Thinkers**\

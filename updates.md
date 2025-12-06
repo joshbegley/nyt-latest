@@ -1,3 +1,7 @@
+**Texas Tech shook up offseason. Now Red Raiders ready to shake up Playoff**\
+`There's a New Money group in college football making their own traditions. Look no further than Texas Tech. `\
+https://nytimes.com/athletic/6868543/2025/12/06/texas-tech-byu-analysis-college-football-playoff/
+
 **Potent Storm Is Expected to Drench the Pacific Northwest**\
 `Fueling the storm will be a “very impressive” source of moisture from an atmospheric river, forecasters said. Flooding is forecast on more than a dozen rivers in Washington and Oregon.`\
 https://nytimes.com/2025/12/06/weather/pacific-northwest-rain-storm-flooding.html
