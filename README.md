@@ -18,8 +18,8 @@ https://nytimes.com/athletic/6560541/2025/12/06/college-football-playoff-bracket
 `Salah believes he's been made a scapegoat for Liverpool's struggles this season, insisting "someone does not want me in the club".`\
 https://nytimes.com/athletic/6868345/2025/12/06/salah-liverpool-interview-news-leaving-slot/
 
-**After announcing birth of second daughter, Dončić expected to return to Lakers soon**\
-`The NBA's leading scorer flew home to Slovenia for the child's delivery, and the Lakers have gone 1-1 in his absence.`\
+**After announcing birth of second daughter, Dončić expected to return to Lakers Sunday**\
+`The NBA's leading scorer flew home to Slovenia for the child's delivery, and the Lakers went 1-1 in his absence.`\
 https://nytimes.com/athletic/6868142/2025/12/06/luka-doncic-absence-daughter-birth/
 
 **Blue Jays outright Yaríel Rodríguez to minors, could still trade reliever**\
