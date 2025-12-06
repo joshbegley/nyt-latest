@@ -1,3 +1,15 @@
+**How to watch the College Football Playoff selection show: Full bracket revealed Sunday**\
+`The College Football Playoff bracket will be unveiled during a three-hour show Sunday, with debate sure to follow.`\
+https://nytimes.com/athletic/6865564/2025/12/06/college-football-playoff-selection-show-watch-2025/
+
+**WATCH: Why the Eagles offense isn't playing up to the same level it was last season**\
+`Saquon Barkley's rushing numbers are way off from a year ago and Philadelphia's offense doesn't seem to be working.`\
+https://nytimes.com/athletic/6866031/2025/12/06/video-analysis-eagles-offense-saquon-barkley/
+
+**Scott Bessent on Tariffs, the Fed and the Economy**\
+`The U.S. treasury secretary spoke with Andrew Ross Sorkin at the DealBook Summit on Wednesday.`\
+https://nytimes.com/2025/12/06/business/dealbook/scott-bessent-dealbook.html
+
 **What are the Commanders' biggest needs? What is Kliff Kingsbury's future? Mailbag**\
 `Also: What's the team's take on Ben Sinnott? And will Dan Quinn keep calling the defensive plays next season?`\
 https://nytimes.com/athletic/6867267/2025/12/06/washington-commanders-mailbag-roster-needs/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/12/06/opinion/trump-hegseth-christian-nationalism.html
 **If Netflix Eats Warner Bros., It Will Be the End of Hollywood**\
 `The demise of Hollywood has been predicted many times. If Netflix is allowed to acquire Warner Bros., it might actually happen.`\
 https://nytimes.com/2025/12/06/opinion/netflix-warner-bros-hollywood.html
-
-**The Supreme Court Is Failing at Its Most Important Job**\
-`Until the court imposes limits, the administration will keep acting as if there are none.`\
-https://nytimes.com/2025/12/06/opinion/supreme-court-limits-failing-constitution.html
-
-**Pete Hegseth Is Ordering Executions at Sea**\
-`Did Pete Hegseth break the law after authorizing Venezuelan boat strikes? The Times Opinion editor, Kathleen Kingsbury, argues that there are multiple reasons the strikes were legally dubious.`\
-https://nytimes.com/video/opinion/100000010567489/pete-hegseth-is-ordering-executions-at-sea.html
-
-**NHL predictions 2.0: Revised picks for Stanley Cup, playoff field, awards and more**\
-`Which teams will emerge from the East’s mushy middle? Who will make a case for the Selke Trophy, which looks the most open it has in years?`\
-https://nytimes.com/athletic/6865933/2025/12/06/nhl-predictions-picks-stanley-cup-playoffs-awards/
 
