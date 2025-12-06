@@ -1,4 +1,8 @@
-**Blue Jays outright Yariel Rodríguez to minors, could still trade reliever**\
+**After announcing birth of second daughter, Dončić expected to return to Lakers soon**\
+`The NBA's leading scorer flew home to Slovenia for the child's delivery, and the Lakers have gone 1-1 in his absence.`\
+https://nytimes.com/athletic/6868142/2025/12/06/luka-doncic-absence-daughter-birth/
+
+**Blue Jays outright Yaríel Rodríguez to minors, could still trade reliever**\
 `Toronto designated Rodríguez for assignment and he cleared waivers after his velocity dropped during the season's final months.`\
 https://nytimes.com/athletic/6868222/2025/12/06/blue-jays-yariel-rodriguez-outrighted/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6868293/2025/12/06/red-wings-vs-kraken-stream-how-t
 **BYU crumbles vs. Texas Tech, whose unprecedented investment has paid off**\
 `BYU fell apart in the second half of the Big 12 Championship Game, spoiling any Playoff hopes.`\
 https://nytimes.com/athletic/6868156/2025/12/06/byu-texas-tech-big-12-championship-score-analysis/
-
-**Michigan State scores historic $401 million donation in athletics push**\
-`The gift, from megadonor couple Greg and Dawn Williams, is the largest in school history.`\
-https://nytimes.com/athletic/6867734/2025/12/06/mighigan-state-401-million-donation/
 
