@@ -1,4 +1,4 @@
-**San Diego to Pay $30 Million to Family of Teen Killed by Police**\
+**San Diego Agrees to Pay $30 Million to Family of Teen Killed by Police**\
 `Konoa Wilson was 16 when he was fatally shot. The settlement, one of the largest in a police killing, surpasses the $27 million paid to the family of George Floyd.`\
 https://nytimes.com/2025/12/05/us/konoa-wilson-police-shooting-san-diego.html
 
