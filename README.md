@@ -1,3 +1,7 @@
+**Judge Rules Trump Exceeded Authority by Holding Deportees at Guantánamo**\
+`Judge Sparkle L. Sooknanan stopped short of ordering the shuttering of the detention operation. But a lawyer for the challengers said they would soon seek a closure order.`\
+https://nytimes.com/2025/12/05/us/politics/guantanamo-migrants-deportation-ruling.html
+
 **Marco Luciano was once the Giants' future. With nothing in return, he's now a Pirate**\
 `Luciano was not likely to make the Giants' Opening Day roster, but to get nothing at all for him after all that hype is a major let-down.`\
 https://nytimes.com/athletic/6866687/2025/12/05/marco-luciano-sf-giants-pittsburgh-pirates-waivers/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/05/us/konoa-wilson-police-shooting-san-diego.html
 **Locro de Gallina (Chicken Soup With Squash, Green Plantains and Yuca)**\
 `Derived from a Quechua term for a hearty soup-stew hybrid, locro originated in the Andes mountain range but today encompasses a glut of South American soups that vary from country to country, and household to household.`\
 https://nytimes.com/video/dining/100000010366914/locro-de-gallina-chicken-soup-with-squash-green-plantains-and-yuca.html
-
-**Biden Says Republicans Aim to Turn L.G.B.T.Q. Identity Into ‘Something Scary’**\
-`The former president defended his support for transgender rights, a stance that has provoked second-guessing among some Democrats.`\
-https://nytimes.com/2025/12/05/us/biden-lgbtq-award.html
 
