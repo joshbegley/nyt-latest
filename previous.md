@@ -1,3 +1,31 @@
+**How to watch Jets vs. Oilers: Time, TV, streaming**\
+`Find out how to watch the Winnipeg Jets play the Edmonton Oilers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6868297/2025/12/06/jets-vs-oilers-stream-how-to-watch-dec-6/
+
+**How to watch Wild vs. Canucks: Time, TV, streaming**\
+`Find out how to watch the Minnesota Wild play the Vancouver Canucks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6868299/2025/12/06/wild-vs-canucks-stream-how-to-watch-dec-6/
+
+**How to watch Blackhawks vs. Kings: Time, TV, streaming**\
+`Find out how to watch the Chicago Blackhawks play the Los Angeles Kings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6868295/2025/12/06/blackhawks-vs-kings-stream-how-to-watch-dec-6/
+
+**How to watch Red Wings vs. Kraken: Time, TV, streaming**\
+`Find out how to watch the Detroit Red Wings play the Seattle Kraken, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6868293/2025/12/06/red-wings-vs-kraken-stream-how-to-watch-dec-6/
+
+**BYU crumbles vs. Texas Tech, whose unprecedented investment has paid off**\
+`BYU fell apart in the second half of the Big 12 Championship Game, spoiling any Playoff hopes.`\
+https://nytimes.com/athletic/6868156/2025/12/06/byu-texas-tech-big-12-championship-score-analysis/
+
+**Michigan State scores historic $401 million donation in athletics push**\
+`The gift, from megadonor couple Greg and Dawn Williams, is the largest in school history.`\
+https://nytimes.com/athletic/6867734/2025/12/06/mighigan-state-401-million-donation/
+
+**How to watch Auburn vs. Arizona men's basketball: Time, TV, streaming**\
+`Find out how to watch the Auburn Tigers play the Arizona Wildcats, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6868275/2025/12/06/auburn-vs-arizona-stream-how-to-watch-dec-6/
+
 **The World Order Is Shifting. Will Democracy Catch Up?**\
 `I was ousted from Thai politics. Here’s what that taught me about the state of democracy today.`\
 https://nytimes.com/2025/12/06/special-series/pita-limjaroenrat-thailand-democracy.html
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/6867908/2025/12/06/kevin-durant-nba-careeer-scoring
 **Leeds 3 Liverpool 3: How did the champions let that slip? Can spirit keep Farke's side up?**\
 `Analysing the major talking points from a breathless game at Elland Road`\
 https://nytimes.com/athletic/6867156/2025/12/06/leeds-liverpool-result-analysis/
-
-**No. 10 Iowa State crushes No. 1 Purdue: Where do Cyclones fit among CBB's top teams?**\
-`Iowa State held a Purdue team averaging 88.6 points per game to a season-low 58.`\
-https://nytimes.com/athletic/6868094/2025/12/06/iowa-state-purdue-score-result/
-
-**'Their behaviour is different' - how Wrexham have changed, as seen by a rival manager who should know**\
-`Paul Heckingbottom was not overly impressed by the Welsh club a few years ago but now he has a new-found respect for them`\
-https://nytimes.com/athletic/6861354/2025/12/06/wreham-preston-evolution-parkinson-heckingbottom/
-
-**2026 World Cup final set for 3pm ET kick-off: Full tournament schedule**\
-`The dates, locations and times for all 72 group-stage fixtures at next summer's World Cup.`\
-https://nytimes.com/athletic/6868026/2025/12/06/world-cup-2026-schedule-fixtures-final-times/
-
-**Guy Cogeval, Boundary-Pushing Museum Director, Dies at 70**\
-`His innovative approach drew crowds to the Musée d’Orsay, one of France’s flagship cultural institutions, which he led from 2008 to 2017.`\
-https://nytimes.com/2025/12/06/arts/design/guy-cogeval-dead.html
-
-**Watch: Why Kyle Monangai has been so impactful for first-place Chicago Bears**\
-`Monangai has paired with veteran D’Andre Swift to form one of the league’s most productive backfields this season.`\
-https://nytimes.com/athletic/6867653/2025/12/06/video-kyle-monangai-rookie-chicago-bears/
-
-**Could President Trump Bring Japan’s Tiny Cars to America? Not So Fast.**\
-`Mr. Trump is pushing to approve their production in the United States.`\
-https://nytimes.com/2025/12/06/climate/could-president-trump-bring-japans-tiny-cars-to-america-not-so-fast.html
-
-**Cubs targeting free agent Zac Gallen in their search for more pitching: Sources**\
-`The right-handed starter struggled for much of this past season, but he has a track record of durability and high-level upside. `\
-https://nytimes.com/athletic/6868108/2025/12/06/cubs-zac-gallen-free-agency/
 
