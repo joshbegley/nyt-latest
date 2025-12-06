@@ -1,3 +1,7 @@
+**Florida Man Charged in Murder of Woman and Child Found Near Gilgo Beach**\
+`The man who was charged was the father of the 2-year-old, whose body was found near her mother’s, the authorities said. The case did not appear to be linked to the Long Island serial killings.`\
+https://nytimes.com/2025/12/06/nyregion/gilgo-beach-murder-charges-peaches-andrew-dykes.html
+
 **College Football Playoff takeaways: How Texas Tech's win over BYU impacts the bracket**\
 `What we're learning about the College Football Playoff as conference championship games provide the final data points.`\
 https://nytimes.com/athletic/6868092/2025/12/06/college-football-playoff-bracket-conference-championship-results/
