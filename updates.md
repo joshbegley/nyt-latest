@@ -1,3 +1,15 @@
+**The Pulse: Winners of the World Cup draw**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6866973/2025/12/06/did-the-usmnt-win-the-world-cup-draw-theyre-in-the-mix/
+
+**Nebraska fires OL coach Donovan Raiola, uncle of QB Dylan Raiola**\
+`Rhule is hiring Georgia Tech offensive line coach Geep Wade as his replacement, a source familiar with the move said.`\
+https://nytimes.com/athletic/6868376/2025/12/06/nebraska-fires-donovan-raiola-dylan/
+
+**After announcing birth of second daughter, Dončić expected to return to Lakers Sunday**\
+`The NBA's leading scorer flew home to Slovenia for the child's delivery, and the Lakers went 1-1 in his absence.`\
+https://nytimes.com/athletic/6868142/2025/12/06/luka-doncic-absence-daughter-birth/
+
 **Salah says Liverpool future is in doubt as relations with Slot have broken down**\
 `Salah believes he's been made a scapegoat for Liverpool's struggles this season, insisting "someone does not want me in the club".`\
 https://nytimes.com/athletic/6868345/2025/12/06/salah-liverpool-interview-news-leaving-slot/
