@@ -1,3 +1,7 @@
+**Brazil Has a Cachaça Cocktail for Every Season**\
+`If summer is for bottomless caipirinhas, winter is all about warming quentão. Here are recipes for both.`\
+https://nytimes.com/2025/12/05/dining/caipirinhas-quentao-recipe.html
+
 **Winter Quaffs**\
 `Marshal Herrmann’s quick-witted Saturday debut puzzle is quite quizzical.`\
 https://nytimes.com/2025/12/05/crosswords/daily-puzzle-2025-12-06.html
