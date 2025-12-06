@@ -1,3 +1,7 @@
+**Tulane likely secures CFP spot, while James Madison keeps Playoff chances alive**\
+`In the American Conference title game, No. 20 Tulane beat No. 24 North Texas with a CFP spot on the line for the winner.`\
+https://nytimes.com/athletic/6866998/2025/12/06/tulane-james-madison-college-football-playoff/
+
 **The New York Times in Print for Saturday, Dec. 6, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/12/06/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6580021/2025/12/06/manchester-united-kobbie-mainoo-
 **Why Alex Scott has earned his place in England's World Cup conversation**\
 `Can a talented young player from Guernsey help Thomas Tuchel's side lift the World Cup in New Jersey next summer?`\
 https://nytimes.com/athletic/6844810/2025/12/06/alex-scott-england-world-cup/
-
-**‘No Going Back,’ Survivors of Deadly Hong Kong Fire Are in Limbo**\
-`Hong Kong, with some of the world’s highest housing costs and inequality, must now figure out how to help thousands of residents who lost friends, family and homes.`\
-https://nytimes.com/2025/12/06/world/asia/hong-kong-fire-survivors-housing.html
 
