@@ -1,3 +1,7 @@
+**Illinois State throws 5 interceptions but still stuns No. 1 NDSU in FCS playoffs**\
+`Tommy Rittenhouse came through when he needed, throwing two touchdown passes in the final 3 minutes to beat the defending champions 29-28.`\
+https://nytimes.com/athletic/6868431/2025/12/06/illinois-state-upsets-ndsu-fcs-playoffs/
+
 **Original Thinkers**\
 `Kate Jensen’s debut Times puzzle comes with a cavalcade of luminaries.`\
 https://nytimes.com/2025/12/06/crosswords/daily-puzzle-2025-12-07.html
