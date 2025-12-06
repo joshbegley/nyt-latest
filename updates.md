@@ -1,3 +1,7 @@
+**Potent Storm Is Expected to Drench the Pacific Northwest**\
+`Fueling the storm will be a “very impressive” source of moisture from an atmospheric river, forecasters said. Flooding is forecast on more than a dozen rivers in Washington and Oregon.`\
+https://nytimes.com/2025/12/06/weather/pacific-northwest-rain-storm-flooding.html
+
 **Illinois State throws 5 interceptions but still stuns No. 1 NDSU in FCS playoffs**\
 `Tommy Rittenhouse came through when he needed, throwing two touchdown passes in the final 3 minutes to beat the defending champions 29-28.`\
 https://nytimes.com/athletic/6868431/2025/12/06/illinois-state-upsets-ndsu-fcs-playoffs/
