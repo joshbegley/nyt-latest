@@ -1,3 +1,7 @@
+**Blue Jays outright Yariel Rodríguez to minors, could still trade reliever**\
+`Toronto designated Rodríguez for assignment and he cleared waivers after his velocity dropped during the season's final months.`\
+https://nytimes.com/athletic/6868222/2025/12/06/blue-jays-yariel-rodriguez-outrighted/
+
 **Florida Man Charged in Murder of Woman and Child Found Near Gilgo Beach**\
 `The man who was charged was the father of the 2-year-old, whose body was found near her mother’s, the authorities said. The case did not appear to be linked to the Long Island serial killings.`\
 https://nytimes.com/2025/12/06/nyregion/gilgo-beach-murder-charges-peaches-andrew-dykes.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6868156/2025/12/06/byu-texas-tech-big-12-championsh
 **Michigan State scores historic $401 million donation in athletics push**\
 `The gift, from megadonor couple Greg and Dawn Williams, is the largest in school history.`\
 https://nytimes.com/athletic/6867734/2025/12/06/mighigan-state-401-million-donation/
-
-**How to watch Auburn vs. Arizona men's basketball: Time, TV, streaming**\
-`Find out how to watch the Auburn Tigers play the Arizona Wildcats, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6868275/2025/12/06/auburn-vs-arizona-stream-how-to-watch-dec-6/
 
