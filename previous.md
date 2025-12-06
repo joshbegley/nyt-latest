@@ -1,3 +1,7 @@
+**The Ashes Briefing: Mitchell Starc torments England as Australia close in on victory**\
+`The end feels nigh as Australia exploited the conditions expertly on day three at the Gabba to leave England in a near hopeless position`\
+https://nytimes.com/athletic/6865647/2025/12/06/ashes-starc-australia-england-briefing/
+
 **China’s National Security Office in Hong Kong Summons Foreign Journalists**\
 `The authorities accused “some foreign media” of smearing the government’s response to a fire at a high-rise complex, saying: “Do not say you have not been warned.”`\
 https://nytimes.com/2025/12/06/world/asia/hong-kong-fire-media-national-security.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6866574/2025/12/06/trinity-rodman-nwsl-spirit-neogt
 **Overheard at the Abu Dhabi GP: Why F1 drivers think Lando Norris has the toughest job**\
 `The paddock is abuzz as the season finale approaches – and Lewis Hamilton thinks it's "way easier to be the hunter" in a showdown`\
 https://nytimes.com/athletic/6865953/2025/12/06/abu-dhabi-gp-f1-lando-norris/
-
-**The Sabres are exactly where they deserve to be in the standings this season**\
-`The Sabres have an identical record to last season. The reality is, until they prove otherwise, this is just who they are.`\
-https://nytimes.com/athletic/6866980/2025/12/06/buffalo-sabres-jets-nhl-standings-season/
 

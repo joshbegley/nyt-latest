@@ -1,3 +1,7 @@
+**Republicans Are Quietly Pushing Back Against Trump**\
+`Will the president soon wish he hadn’t run for a second term?`\
+https://nytimes.com/video/opinion/100000010566399/republicans-are-quietly-pushing-back-against-trump.html
+
 **The Ashes Briefing: Mitchell Starc torments England as Australia close in on victory**\
 `The end feels nigh as Australia exploited the conditions expertly on day three at the Gabba to leave England in a near hopeless position`\
 https://nytimes.com/athletic/6865647/2025/12/06/ashes-starc-australia-england-briefing/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6865711/2025/12/06/blazers-womens-sports-bar-brookl
 **Trinity Rodman negotiations explained: Why did NWSL reject the Spirit's offer and what's next?**\
 `The Spirit and Trinity Rodman agreed to an offer. A league source says that deal had a buyout clause that circumvents the NWSL salary cap.`\
 https://nytimes.com/athletic/6866574/2025/12/06/trinity-rodman-nwsl-spirit-neogtiations-explained/
-
-**Overheard at the Abu Dhabi GP: Why F1 drivers think Lando Norris has the toughest job**\
-`The paddock is abuzz as the season finale approaches – and Lewis Hamilton thinks it's "way easier to be the hunter" in a showdown`\
-https://nytimes.com/athletic/6865953/2025/12/06/abu-dhabi-gp-f1-lando-norris/
 

@@ -1,3 +1,7 @@
+**The Ashes Briefing: Mitchell Starc torments England as Australia close in on victory**\
+`The end feels nigh as Australia exploited the conditions expertly on day three at the Gabba to leave England in a near hopeless position`\
+https://nytimes.com/athletic/6865647/2025/12/06/ashes-starc-australia-england-briefing/
+
 **China’s National Security Office in Hong Kong Summons Foreign Journalists**\
 `The authorities accused “some foreign media” of smearing the government’s response to a fire at a high-rise complex, saying: “Do not say you have not been warned.”`\
 https://nytimes.com/2025/12/06/world/asia/hong-kong-fire-media-national-security.html
