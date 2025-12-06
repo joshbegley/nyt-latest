@@ -1,3 +1,11 @@
+**11 People Killed in Mass Shooting at Illegal Tavern in South Africa**\
+`The police said they were searching for three assailants who opened fire, shooting 25 people. A 3-year-old boy was among the dead, while 14 survivors were being treated in the hospital.`\
+https://nytimes.com/2025/12/06/world/africa/south-africa-shooting.html
+
+**Charlton vs. Portsmouth abandoned due to medical emergency in crowd**\
+`The match, which kicked off at 12:30pm GMT, was paused after approximately 12 minutes at 0-0 as treatment was administered to the spectator.`\
+https://nytimes.com/athletic/6867413/2025/12/06/charlton-portsmouth-abandoned-emergency/
+
 **Kidney Recipient Dies After Transplant From Organ Donor Who Had Rabies**\
 `Only four donors have transmitted rabies to organ transplant recipients since 1978, according to federal officials.`\
 https://nytimes.com/2025/12/06/health/rabies-death-skunk-kidney-transplant.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6867466/2025/12/06/rutgers-vs-michigan-stream-how-t
 **How to watch Louisville vs. Indiana men's basketball: Time, TV, streaming**\
 `Find out how to watch the Louisville Cardinals play the Indiana Hoosiers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6867464/2025/12/06/louisville-vs-indiana-stream-how-to-watch-dec-6/
-
-**How to watch Mississippi Valley State vs. Oklahoma State women's basketball: Time, TV, streaming**\
-`Find out how to watch the Mississippi Valley State Devilettes play the Oklahoma State Cowgirls, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6867460/2025/12/06/mississippi-valley-state-vs-oklahoma-state-stream-how-to-watch-dec-6/
-
-**Explained: Tony Bloom, his £600m syndicate and how it is allowed to bet on the Premier League**\
-`Why is Brighton & Hove Albion's owner embroiled in a legal battle with a former associate and what could the implications be?`\
-https://nytimes.com/athletic/6865054/2025/12/06/tony-bloom-brighton-betting-starlizard-court-case/
 
