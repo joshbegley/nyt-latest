@@ -1,3 +1,7 @@
+**Scoop City: Fantasy tips to win Week 14**\
+`What to do with Justin Jefferson, Jayden Daniels and more.`\
+https://nytimes.com/athletic/6867497/2025/12/06/everything-fantasy-football-managers-need-to-know-for-week-14/
+
 **What I’m hearing on Tom Brady’s Raiders rut and the startup that could save the Colts**\
 `Also, the coaching candidates you can expect to hear about as the season winds down, and a messy situation in Buffalo.`\
 https://nytimes.com/athletic/6866949/2025/12/06/nfl-rumors-news-tom-brady-raiders-daniel-jones-roommate/
