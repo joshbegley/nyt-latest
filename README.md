@@ -1,3 +1,7 @@
+**UConn targeting Toledo's Jason Candle to replace Jim Mora: Sources**\
+`Jason Candle has gone 81-44 in 10 years at Toledo and will head to UConn after Jim Mora took the Colorado State job.`\
+https://nytimes.com/athletic/6866861/2025/12/06/uconn-head-coach-jason-candle-toledo/
+
 **College Football Playoff 2025 projections: What our model says after the latest Top 25**\
 `Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
 https://nytimes.com/athletic/6560541/2025/12/06/college-football-playoff-bracket-projections-odds/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6866468/2025/12/06/blackhawks-gm-kyle-davidson-rebu
 **Penn State signed only 2 recruits this week. How detrimental will this be to new staff?**\
 `Matt Campbell and his personnel department will be forced to hit the transfer portal in January to fill some holes on the roster. `\
 https://nytimes.com/athletic/6865611/2025/12/06/penn-state-recruiting-class-roster-transfers/
-
-**Gabriel Vilardi opens up about mental health struggles: 'You just see the negatives'**\
-`This story is not about Gabriel Vilardi. He is sharing the details from his life in case he can help somebody else.`\
-https://nytimes.com/athletic/6863826/2025/12/06/winnipeg-jets-gabriel-vilardi-mental-health/
 
