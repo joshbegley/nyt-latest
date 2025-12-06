@@ -1,3 +1,7 @@
+**College Football Playoff takeaways: How Texas Tech's win over BYU impacts the bracket**\
+`What we're learning about the College Football Playoff as conference championship games provide the final data points.`\
+https://nytimes.com/athletic/6868092/2025/12/06/college-football-playoff-bracket-conference-championship-results/
+
 **How to watch Rockets vs. Mavericks: Time, TV, streaming**\
 `Find out how to watch the Houston Rockets play the Dallas Mavericks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6868301/2025/12/06/rockets-vs-mavericks-stream-how-to-watch-dec-6/

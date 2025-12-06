@@ -1,3 +1,7 @@
+**Florida Man Charged in Murder of Woman and Child Found Near Gilgo Beach**\
+`The man who was charged was the father of the 2-year-old, whose body was found near her mother’s, the authorities said. The case did not appear to be linked to the Long Island serial killings.`\
+https://nytimes.com/2025/12/06/nyregion/gilgo-beach-murder-charges-peaches-andrew-dykes.html
+
 **College Football Playoff takeaways: How Texas Tech's win over BYU impacts the bracket**\
 `What we're learning about the College Football Playoff as conference championship games provide the final data points.`\
 https://nytimes.com/athletic/6868092/2025/12/06/college-football-playoff-bracket-conference-championship-results/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6867734/2025/12/06/mighigan-state-401-million-donat
 **How to watch Auburn vs. Arizona men's basketball: Time, TV, streaming**\
 `Find out how to watch the Auburn Tigers play the Arizona Wildcats, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6868275/2025/12/06/auburn-vs-arizona-stream-how-to-watch-dec-6/
-
-**The World Order Is Shifting. Will Democracy Catch Up?**\
-`I was ousted from Thai politics. Here’s what that taught me about the state of democracy today.`\
-https://nytimes.com/2025/12/06/special-series/pita-limjaroenrat-thailand-democracy.html
 
