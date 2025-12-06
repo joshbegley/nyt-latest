@@ -1,3 +1,7 @@
+**Hawks' Jalen Johnson becomes sixth player in NBA history to log first-half triple-double**\
+`The 23-year-old Hawks forward achieved the honor in one half, joining a short list of NBA stars to have pulled off the feat. `\
+https://nytimes.com/athletic/6866847/2025/12/05/jalen-johnson-triple-double-hawks-first-half/
+
 **Blake Griffin slams Clippers, Steve Ballmer for Chris Paul's sudden exit**\
 `"At the end of the day, an organization is built on a foundation of respect and how you treat people," Griffin said.`\
 https://nytimes.com/athletic/6866628/2025/12/05/blake-griffin-chris-paul-amazon/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6866528/2025/12/05/world-cup-draw-usa-impossible-dr
 **Tyler Adams says USA can make history with 'furthest ever' World Cup run**\
 `The team has a quarterfinal and a semifinal run in its World Cup history, but midfielder and 2022 captain Adams wants more.`\
 https://nytimes.com/athletic/6866644/2025/12/05/tyler-adams-world-cup-usmnt-history/
-
-**San Diego Agrees to Pay $30 Million to Family of Teen Killed by Police**\
-`Konoa Wilson was 16 when he was fatally shot. The settlement, one of the largest in a police killing, surpasses the $27 million paid to the family of George Floyd.`\
-https://nytimes.com/2025/12/05/us/konoa-wilson-police-shooting-san-diego.html
 
