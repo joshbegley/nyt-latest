@@ -1,3 +1,15 @@
+**Leeds 3 Liverpool 3: How did the champions let that slip? Can spirit keep Farke's side up?**\
+`Analysing the major talking points from a breathless game at Elland Road`\
+https://nytimes.com/athletic/6867156/2025/12/06/leeds-liverpool-result-analysis/
+
+**No. 10 Iowa State crushes No. 1 Purdue: Where do Cyclones fit among CBB's top teams?**\
+`Iowa State held a Purdue team averaging 88.6 points per game to a season-low 58.`\
+https://nytimes.com/athletic/6868094/2025/12/06/iowa-state-purdue-score-result/
+
+**'Their behaviour is different' - how Wrexham have changed, as seen by a rival manager who should know**\
+`Paul Heckingbottom was not overly impressed by the Welsh club a few years ago but now he has a new-found respect for them`\
+https://nytimes.com/athletic/6861354/2025/12/06/wreham-preston-evolution-parkinson-heckingbottom/
+
 **2026 World Cup final set for 3pm ET kick-off: Full tournament schedule**\
 `The dates, locations and times for all 72 group-stage fixtures at next summer's World Cup.`\
 https://nytimes.com/athletic/6868026/2025/12/06/world-cup-2026-schedule-fixtures-final-times/
