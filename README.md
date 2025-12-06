@@ -1,3 +1,27 @@
+**How to watch Iowa vs. Rutgers women's basketball: Time, TV, streaming**\
+`Find out how to watch the Iowa Hawkeyes play the Rutgers Scarlet Knights, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6867903/2025/12/06/iowa-vs-rutgers-stream-how-to-watch-dec-6/
+
+**How to watch Washington vs. USC men's basketball: Time, TV, streaming**\
+`Find out how to watch the Washington Huskies play the USC Trojans, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6867901/2025/12/06/washington-vs-usc-stream-how-to-watch-dec-6/
+
+**How to watch Ole Miss vs. St. John's men's basketball: Time, TV, streaming**\
+`Find out how to watch the Ole Miss Rebels play the St. John's Red Storm, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6867899/2025/12/06/ole-miss-vs-st-john-s-stream-how-to-watch-dec-6/
+
+**How to watch Illinois vs. Tennessee men's basketball: Time, TV, streaming**\
+`Find out how to watch the Illinois Fighting Illini play the Tennessee Volunteers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6867897/2025/12/06/illinois-vs-tennessee-stream-how-to-watch-dec-6/
+
+**How to watch Florida State vs. Houston men's basketball: Time, TV, streaming**\
+`Find out how to watch the Florida State Seminoles play the Houston Cougars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6867895/2025/12/06/florida-state-vs-houston-stream-how-to-watch-dec-6/
+
+**Jaron-Keawe Sagapolutele announces return to Cal for 2026**\
+`Sagapolutele had a strong true freshman season, throwing for 3,117 yards, third-most in the ACC, and 17 touchdowns.`\
+https://nytimes.com/athletic/6867806/2025/12/06/jaron-keawe-sagapolutele-cal-return/
+
 **The Briefing - Tottenham 2 Brentford 0: Is Frank safe again after crucial win?**\
 `Dissecting the big talking points as the Spurs manager claimed a precious three points against his old club`\
 https://nytimes.com/athletic/6867155/2025/12/06/tottenham-brentford-premier-league-result-analysis/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6867152/2025/12/06/bournemouth-chelsea-analysis/
 **MLS Cup ticket prices surge for highly anticipated final featuring Messi, Müller**\
 `Fans are spending big to attend the final between Inter Miami and the Vancouver Whitecaps at Chase Stadium`\
 https://nytimes.com/athletic/6867751/2025/12/06/mls-cup-ticket-prices-inter-miami-vancouver-whitecaps-messi/
-
-**Who are the leading candidates for World Cup Golden Boot?**\
-`Mbappe is favorite to be the top scorer at the World Cup, but there are plenty of big names in contention.`\
-https://nytimes.com/athletic/6867430/2025/12/06/kylian-mbappe-harry-kane-erling-haaland-world-cup-golden-boot-rankings/
-
-**The abridged Michael Jordan vs. NASCAR trial: Daily highlights from the case**\
-`Miss anything from the Michael Jordan vs. NASCAR trial? Here's our condensed, day-by-day look at the highlights from testimony.`\
-https://nytimes.com/athletic/6856325/2025/12/06/michael-jordan-nascar-trial-highlights-testimony/
-
-**Think Globally, Give Locally**\
-`Make yourself an active member of your community.`\
-https://nytimes.com/2025/12/06/opinion/charity-holiday-gift-community-local.html
-
-**A Deeply Comforting Bowl of Corny Goodness**\
-`Frozen kernels, masa harina and hominy form the base of Rick Martínez’s warming atole de grano (savory corn porridge with chicken).`\
-https://nytimes.com/2025/12/06/dining/a-deeply-comforting-bowl-of-corny-goodness.html
-
-**College Football Playoff 2025 projections: Tulane locks up bid with championships underway**\
-`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
-https://nytimes.com/athletic/6560541/2025/12/06/college-football-playoff-bracket-projections-odds/
-
-**The strange story of Rory McIlroy and a banana skin**\
-`The Masters champion had to play out from a banana peel during the Australian Open — and paid the price.`\
-https://nytimes.com/athletic/6867595/2025/12/06/rory-mcilroy-banana-skin-australian-open/
 
