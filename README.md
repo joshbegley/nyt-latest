@@ -1,3 +1,23 @@
+**How to watch Rutgers vs. Michigan men's basketball: Time, TV, streaming**\
+`Find out how to watch the Rutgers Scarlet Knights play the Michigan Wolverines, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6867466/2025/12/06/rutgers-vs-michigan-stream-how-to-watch-dec-6/
+
+**How to watch Louisville vs. Indiana men's basketball: Time, TV, streaming**\
+`Find out how to watch the Louisville Cardinals play the Indiana Hoosiers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6867464/2025/12/06/louisville-vs-indiana-stream-how-to-watch-dec-6/
+
+**How to watch Mississippi Valley State vs. Oklahoma State women's basketball: Time, TV, streaming**\
+`Find out how to watch the Mississippi Valley State Devilettes play the Oklahoma State Cowgirls, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6867460/2025/12/06/mississippi-valley-state-vs-oklahoma-state-stream-how-to-watch-dec-6/
+
+**Explained: Tony Bloom, his £600m syndicate and how it is allowed to bet on the Premier League**\
+`Why is Brighton & Hove Albion's owner embroiled in a legal battle with a former associate and what could the implications be?`\
+https://nytimes.com/athletic/6865054/2025/12/06/tony-bloom-brighton-betting-starlizard-court-case/
+
+**Alysa Liu, with Olympics on deck, backs up world title with Grand Prix Final win**\
+`Alysa Liu's remarkable return to figure skating continued Saturday with a win in the Grand Prix Final.`\
+https://nytimes.com/athletic/6867344/2025/12/06/alysa-liu-grand-prix-final-gold-olympics/
+
 **Trump Has Long Disdained Europe’s Elites. Now, It’s Official.**\
 `A new White House policy document formalizes President Trump’s long-held contempt for Europe’s leaders. It made clear that the continent now stands at a strategic crossroads.`\
 https://nytimes.com/2025/12/06/world/europe/trump-europe-strategy-document.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6867040/2025/12/06/anthony-davis-thunder-mavericks/
 **Ilia Malinin, in 'brain-bamboozling' free skate, sets world record to win Grand Prix Final**\
 `In the last major international event before February's Olympics, the American Malinin kept his two-year unbeaten streak going.`\
 https://nytimes.com/athletic/6867301/2025/12/06/ilia-malinin-world-record-grand-prix-final-olympics/
-
-**How to watch the College Football Playoff selection show: Full bracket revealed Sunday**\
-`The College Football Playoff bracket will be unveiled during a three-hour show Sunday, with debate sure to follow.`\
-https://nytimes.com/athletic/6865564/2025/12/06/college-football-playoff-selection-show-watch-2025/
-
-**WATCH: Why the Eagles offense isn't playing up to the same level it was last season**\
-`Saquon Barkley's rushing numbers are way off from a year ago and Philadelphia's offense doesn't seem to be working.`\
-https://nytimes.com/athletic/6866031/2025/12/06/video-analysis-eagles-offense-saquon-barkley/
-
-**Scott Bessent on Tariffs, the Fed and the Economy**\
-`The U.S. treasury secretary spoke with Andrew Ross Sorkin at the DealBook Summit on Wednesday.`\
-https://nytimes.com/2025/12/06/business/dealbook/scott-bessent-dealbook.html
-
-**What are the Commanders' biggest needs? What is Kliff Kingsbury's future? Mailbag**\
-`Also, what's the team's take on Ben Sinnott? And will Dan Quinn keep calling the defensive plays next season?`\
-https://nytimes.com/athletic/6867267/2025/12/06/washington-commanders-mailbag-roster-needs/
-
-**Blackhawks GM Kyle Davidson isn't ready to say 'I told you so' — not yet, at least**\
-`From tanking to a potential surprise playoff team, Davidson's drastic — and effective — rebuild plan is paying off sooner than anticipated.`\
-https://nytimes.com/athletic/6866468/2025/12/06/blackhawks-gm-kyle-davidson-rebuild/
 
