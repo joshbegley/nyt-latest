@@ -1,3 +1,7 @@
+**Scoop City: Fantasy tips to win Week 14**\
+`What to do with Justin Jefferson, Jayden Daniels and more.`\
+https://nytimes.com/athletic/6867497/2025/12/06/everything-fantasy-football-managers-need-to-know-for-week-14/
+
 **What I’m hearing on Tom Brady’s Raiders rut and the startup that could save the Colts**\
 `Also, the coaching candidates you can expect to hear about as the season winds down, and a messy situation in Buffalo.`\
 https://nytimes.com/athletic/6866949/2025/12/06/nfl-rumors-news-tom-brady-raiders-daniel-jones-roommate/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/06/world/middleeast/yasser-abu-shabab-israel-backed-
 **The Briefing - Villa 2 Arsenal 1: How worrying is the away form? What was Eze doing?**\
 `Arsenal's title hopes suffered a blow with a last-gasp defeat to Aston Villa - The Athletic analyses the talking points`\
 https://nytimes.com/athletic/6867159/2025/12/06/aston-villa-2-arsenal-1-trossard-eze-away-form/
-
-**This is Mitchell Starc's world. England are just living in it**\
-`The veteran has bowled and batted Australia into a position of real strength and continues to expose the fragility of England's top order`\
-https://nytimes.com/athletic/6867188/2025/12/06/mitchell-starc-australia-england-ashes/
 
