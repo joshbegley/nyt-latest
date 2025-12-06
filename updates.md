@@ -1,3 +1,7 @@
+**Tulane likely secures CFP spot, while James Madison keeps Playoff chances alive**\
+`In the American Conference title game, No. 20 Tulane beat No. 24 North Texas with a CFP spot on the line for the winner.`\
+https://nytimes.com/athletic/6866998/2025/12/06/tulane-james-madison-college-football-playoff/
+
 **The New York Times in Print for Saturday, Dec. 6, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/12/06/todays-new-york-times
