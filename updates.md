@@ -1,3 +1,15 @@
+**Kidney Recipient Dies After Transplant From Organ Donor Who Had Rabies**\
+`Only four donors have transmitted rabies to organ transplant recipients since 1978, according to federal officials.`\
+https://nytimes.com/2025/12/06/health/rabies-death-skunk-kidney-transplant.html
+
+**Israel’s Plan to Back Gaza Militias Proves a Risky Gamble**\
+`Officials said Israel helped arm and back Yasser Abu Shabab’s Popular Forces, part of a strategy against Hamas, before a local clan killed him this week.`\
+https://nytimes.com/2025/12/06/world/middleeast/yasser-abu-shabab-israel-backed-gaza-militias.html
+
+**The Briefing - Villa 2 Arsenal 1: How worrying is the away form? What was Eze doing?**\
+`Arsenal's title hopes suffered a blow with a last-gasp defeat to Aston Villa - The Athletic analyses the talking points`\
+https://nytimes.com/athletic/6867159/2025/12/06/aston-villa-2-arsenal-1-trossard-eze-away-form/
+
 **This is Mitchell Starc's world. England are just living in it**\
 `The veteran has bowled and batted Australia into a position of real strength and continues to expose the fragility of England's top order`\
 https://nytimes.com/athletic/6867188/2025/12/06/mitchell-starc-australia-england-ashes/
