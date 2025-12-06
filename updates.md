@@ -1,3 +1,11 @@
+**Sweet Season**\
+`Rejoice: NYT Cooking’s holiday cookie extravaganza has returned.`\
+https://nytimes.com/2025/12/06/briefing/sweet-season.html
+
+**Inside Brooklyn's first women's sports bar: 'We just wanted the Liberty game on'**\
+`A fortuitous Hinge match of like-minded New York Liberty fans turned into New York City's newest women's sports bar.`\
+https://nytimes.com/athletic/6865711/2025/12/06/blazers-womens-sports-bar-brooklyn-new-york/
+
 **Trinity Rodman negotiations explained: Why did NWSL reject the Spirit's offer and what's next?**\
 `The Spirit and Trinity Rodman agreed to an offer. A league source says that deal had a buyout clause that circumvents the NWSL salary cap.`\
 https://nytimes.com/athletic/6866574/2025/12/06/trinity-rodman-nwsl-spirit-neogtiations-explained/
