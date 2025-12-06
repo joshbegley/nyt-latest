@@ -1,3 +1,7 @@
+**Mariners send top-100 prospect Harry Ford to Nationals for reliever José A. Ferrer**\
+`There wasn't much room for Harry Ford with Cal Raleigh entrenched as Seattle's catcher. In return, they got reliever José A. Ferrer.`\
+https://nytimes.com/athletic/6868520/2025/12/06/mariners-nationals-trade-harry-ford-jose-ferrer/
+
 **Texas Tech shook up offseason. Now Red Raiders ready to shake up Playoff**\
 `There's a New Money group in college football making their own traditions. Look no further than Texas Tech. `\
 https://nytimes.com/athletic/6868543/2025/12/06/texas-tech-byu-analysis-college-football-playoff/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/12/06/us/quake-tracker-alaska.html
 **Nebraska fires OL coach Donovan Raiola, uncle of QB Dylan Raiola**\
 `Rhule is hiring Georgia Tech offensive line coach Geep Wade as his replacement, a source familiar with the move said.`\
 https://nytimes.com/athletic/6868376/2025/12/06/nebraska-fires-donovan-raiola-dylan/
-
-**College Football Playoff 2025 projections: Texas Tech, Tulane lock up bids**\
-`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
-https://nytimes.com/athletic/6560541/2025/12/06/college-football-playoff-bracket-projections-odds/
 
