@@ -1,3 +1,12 @@
+**Ten seconds of chaos: Buendia and the beauty of a goalmouth scramble**\
+`Shots, blocks, sliding tackles and pure desperation - Aston Villa's winner against Arsenal was low on quality but high on drama`\
+https://nytimes.com/athletic/6867667/2025/12/06/buendia-goalmouth-scramble-villa-arsenal/
+
+**To win 2025 F1 title, Max Verstappen might need to drive as slow as possible**\
+`Max Verstappen vows an 'all out' attack in F1's title showdown with Lando Norris. What that actually looks like might be surprising
+`\
+https://nytimes.com/athletic/6867763/2025/12/06/f1-championship-max-verstappen-lando-norris-abu-dhabi/
+
 **To win 2025 F1 title, Max Verstappen might need to drive as slow as possible**\
 `Max Verstappen vows an 'all out' attack in F1's title showdown with Lando Norris. What that actually looks like might be surprising
 `\

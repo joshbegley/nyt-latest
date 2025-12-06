@@ -1,3 +1,11 @@
+**Vietnamese Coffee Swirl Brownies**\
+`Have four words ever gone together so nicely? Leave it to Melissa Clark to give us the brownie we need, nay, deserve.`\
+https://nytimes.com/2025/12/06/dining/vietnamese-coffee-swirl-brownies.html
+
+**Writing the Next Chapter of the U.N.**\
+`In 2025, the United Nations turned 80. We asked the president of this year’s General Assembly to reflect on the organization’s work and the challenges it faces as it enters its ninth decade.`\
+https://nytimes.com/2025/12/06/special-series/annalena-baerbock-united-nations-anniversary.html
+
 **Ten seconds of chaos: Buendia and the beauty of a goalmouth scramble**\
 `Shots, blocks, sliding tackles and pure desperation - Aston Villa's winner against Arsenal was low on quality but high on drama`\
 https://nytimes.com/athletic/6867667/2025/12/06/buendia-goalmouth-scramble-villa-arsenal/
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6867949/2025/12/06/blues-vs-senators-stream-how-to-
 **How to watch Bucks vs. Pistons: Time, TV, streaming**\
 `Find out how to watch the Milwaukee Bucks play the Detroit Pistons, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6867947/2025/12/06/bucks-vs-pistons-stream-how-to-watch-dec-6/
-
-**How to watch Islanders vs. Lightning: Time, TV, streaming**\
-`Find out how to watch the New York Islanders play the Tampa Bay Lightning, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6867945/2025/12/06/islanders-vs-lightning-stream-how-to-watch-dec-6/
-
-**How to watch Devils vs. Bruins: Time, TV, streaming**\
-`Find out how to watch the New Jersey Devils play the Boston Bruins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6867943/2025/12/06/devils-vs-bruins-stream-how-to-watch-dec-6/
 
