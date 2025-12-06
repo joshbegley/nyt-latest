@@ -1,3 +1,11 @@
+**Map: 7.0-Magnitude Earthquake Shakes Alaska**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/12/06/us/quake-tracker-alaska.html
+
+**College Football Playoff 2025 projections: Texas Tech, Tulane lock up bids**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/12/06/college-football-playoff-bracket-projections-odds/
+
 **Nebraska fires OL coach Donovan Raiola, uncle of QB Dylan Raiola**\
 `Raiola’s departure is certain to fuel further speculation about the future of his nephew, Nebraska's starting quarterback.`\
 https://nytimes.com/athletic/6868376/2025/12/06/nebraska-fires-donovan-raiola-dylan/

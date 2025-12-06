@@ -1,8 +1,12 @@
+**Map: 7.0-Magnitude Earthquake Shakes Alaska**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/12/06/us/quake-tracker-alaska.html
+
 **Nebraska fires OL coach Donovan Raiola, uncle of QB Dylan Raiola**\
 `Raiola’s departure is certain to fuel further speculation about the future of his nephew, Nebraska's starting quarterback.`\
 https://nytimes.com/athletic/6868376/2025/12/06/nebraska-fires-donovan-raiola-dylan/
 
-**College Football Playoff 2025 projections: Tulane locks up bid with championships underway**\
+**College Football Playoff 2025 projections: Texas Tech, Tulane lock up bids**\
 `Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
 https://nytimes.com/athletic/6560541/2025/12/06/college-football-playoff-bracket-projections-odds/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6868301/2025/12/06/rockets-vs-mavericks-stream-how-
 **How to watch Jets vs. Oilers: Time, TV, streaming**\
 `Find out how to watch the Winnipeg Jets play the Edmonton Oilers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6868297/2025/12/06/jets-vs-oilers-stream-how-to-watch-dec-6/
-
-**How to watch Wild vs. Canucks: Time, TV, streaming**\
-`Find out how to watch the Minnesota Wild play the Vancouver Canucks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6868299/2025/12/06/wild-vs-canucks-stream-how-to-watch-dec-6/
 
