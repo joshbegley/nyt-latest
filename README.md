@@ -1,3 +1,7 @@
+**Original Thinkers**\
+`Kate Jensen’s debut Times puzzle comes with a cavalcade of luminaries.`\
+https://nytimes.com/2025/12/06/crosswords/daily-puzzle-2025-12-07.html
+
 **At Least 17 Migrants Die in Greece’s Worst Shipwreck in Two Years**\
 `Two people were rescued from a half-sunken boat off the island of Crete on Saturday evening, but 17 others died in the wreck.`\
 https://nytimes.com/2025/12/06/world/europe/greece-shipwreck-migrants.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6868142/2025/12/06/luka-doncic-absence-daughter-bir
 **Blue Jays outright Yaríel Rodríguez to minors, could still trade reliever**\
 `Toronto designated Rodríguez for assignment and he cleared waivers after his velocity dropped during the season's final months.`\
 https://nytimes.com/athletic/6868222/2025/12/06/blue-jays-yariel-rodriguez-outrighted/
-
-**Florida Man Charged in Murder of Woman Found Near Gilgo Beach**\
-`The woman’s body was found near her 2-year-old’s, and the man who was charged was the child’s father, the authorities said. The case did not appear to be linked to the Long Island serial killings.`\
-https://nytimes.com/2025/12/06/nyregion/gilgo-beach-murder-charges-peaches-andrew-dykes.html
 
