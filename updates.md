@@ -1,3 +1,19 @@
+**Trump’s New Crackdown on Asylum Seekers**\
+`Hamed Aleaziz, our immigration reporter, describes the sweeping changes the Trump administration has made that affect asylum seekers — people fleeing harm in their home countries — since the shooting of two National Guard members in Washington.`\
+https://nytimes.com/video/us/politics/100000010566235/trumps-new-crackdown-on-asylum-seekers.html
+
+**Max Verstappen beats Lando Norris in Abu Dhabi qualifying as F1 title fight goes down to the wire**\
+`Max Verstappen beat points lead Lando Norris to pole position ahead of the 2025 Abu Dhabi GP`\
+https://nytimes.com/athletic/6867411/2025/12/06/abu-dhabi-qualifying-results/
+
+**College Football Playoff 2025 projections: Tulane locks up bid with championships underway**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/12/06/college-football-playoff-bracket-projections-odds/
+
+**Charlton fan dies at Portsmouth match as Championship game abandoned**\
+`The match, which kicked off at 12:30pm GMT, was paused after approximately 12 minutes at 0-0 as treatment was administered to the spectator.`\
+https://nytimes.com/athletic/6867413/2025/12/06/charlton-portsmouth-abandoned-emergency/
+
 **Scoop City: Fantasy tips to win Week 14**\
 `What to do with Justin Jefferson, Jayden Daniels and more.`\
 https://nytimes.com/athletic/6867497/2025/12/06/everything-fantasy-football-managers-need-to-know-for-week-14/
