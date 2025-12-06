@@ -1,3 +1,7 @@
+**How to watch Rockets vs. Mavericks: Time, TV, streaming**\
+`Find out how to watch the Houston Rockets play the Dallas Mavericks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6868301/2025/12/06/rockets-vs-mavericks-stream-how-to-watch-dec-6/
+
 **How to watch Jets vs. Oilers: Time, TV, streaming**\
 `Find out how to watch the Winnipeg Jets play the Edmonton Oilers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6868297/2025/12/06/jets-vs-oilers-stream-how-to-watch-dec-6/

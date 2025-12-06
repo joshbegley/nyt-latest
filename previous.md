@@ -1,3 +1,7 @@
+**How to watch Rockets vs. Mavericks: Time, TV, streaming**\
+`Find out how to watch the Houston Rockets play the Dallas Mavericks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6868301/2025/12/06/rockets-vs-mavericks-stream-how-to-watch-dec-6/
+
 **How to watch Jets vs. Oilers: Time, TV, streaming**\
 `Find out how to watch the Winnipeg Jets play the Edmonton Oilers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6868297/2025/12/06/jets-vs-oilers-stream-how-to-watch-dec-6/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/06/special-series/pita-limjaroenrat-thailand-democra
 **Kevin Durant nears 3 all-time greats on NBA's career scoring list**\
 `Kevin Durant, LeBron James and Giannis Antetokounmpo all made NBA history in the past seven days. Who could make history next?`\
 https://nytimes.com/athletic/6867908/2025/12/06/kevin-durant-nba-careeer-scoring/
-
-**Leeds 3 Liverpool 3: How did the champions let that slip? Can spirit keep Farke's side up?**\
-`Analysing the major talking points from a breathless game at Elland Road`\
-https://nytimes.com/athletic/6867156/2025/12/06/leeds-liverpool-result-analysis/
 
