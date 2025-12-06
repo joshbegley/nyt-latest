@@ -1,3 +1,8 @@
+**To win the F1 title, Max Verstappen might need to do the unthinkable: slow down**\
+`Max Verstappen vows an 'all out' attack in F1's title showdown with Lando Norris. What that actually looks like might be surprising
+`\
+https://nytimes.com/athletic/6867763/2025/12/06/f1-championship-max-verstappen-lando-norris-abu-dhabi/
+
 **Venezuela’s Nobel Winner Will Go to Norway for Peace Prize, Official Says**\
 `Venezuelan officials say María Corina Machado will be considered a fugitive if she goes to Oslo, laying bare the risks for the opposition leader.`\
 https://nytimes.com/2025/12/06/world/americas/venezuela-peace-prize-norway.html
