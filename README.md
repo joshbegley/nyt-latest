@@ -1,3 +1,7 @@
+**Jalen Johnson's NBA All-Star bid is growing one triple-double at a time**\
+`The Atlanta Hawks forward continued to build his case for his first All-Star nod.`\
+https://nytimes.com/athletic/6868725/2025/12/06/jalen-johnson-triple-double-hawks-all-star/
+
 **Rangers overmatched but not overwhelmed by MacKinnon and Avalanche, plus 10 more thoughts**\
 `New York was overmatched in terms of star power, but never looked overwhelmed in a 3-2 overtime loss to the NHL-leading Avalanche.`\
 https://nytimes.com/athletic/6868436/2025/12/06/new-york-rangers-avalanche-nathan-mackinnon/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6560541/2025/12/06/college-football-playoff-bracket
 `Moments after the shenanigans, Marchand set up Sam Bennett for the game-winning goal as Florida beat Columbus 7-6.
 `\
 https://nytimes.com/athletic/6868605/2025/12/06/brad-marchand-panthers-blue-jackets-overtime-bench/
-
-**Trump Administration Waives $11 Million Southwest Airlines Fine**\
-`The penalty was part of a fine imposed by the Biden administration after it determined the airline had failed to provide prompt customer service and refunds to passengers in 2022.`\
-https://nytimes.com/2025/12/06/us/politics/trump-southwest-airlines-fine.html
 
