@@ -1,3 +1,15 @@
+**College Football Playoff committee did a bad job, but pink slip is no option — here’s the fix**\
+`The field should always be selected by humans. The fix is more access. More explanation. More transparency. More accountability.`\
+https://nytimes.com/athletic/6870090/2025/12/07/college-football-playoff-miami-notre-dame-alabama/
+
+**NFL says referees' intentional grounding penalty in Broncos-Commanders was wrong**\
+`The penalty disrupted Washington's final drive in regulation in the Commanders' Week 13 overtime loss to the Denver Broncos.`\
+https://nytimes.com/athletic/6869980/2025/12/07/nfl-broncos-commanders-incorrect-intentional-grounding-call/
+
+**CFP bracket revealed: Indiana on top, Miami and JMU in, Notre Dame out**\
+`The committee did not drop Alabama from its No. 9 ranking despite a blowout loss in the SEC championship on Saturday.`\
+https://nytimes.com/athletic/6869960/2025/12/07/college-football-playoff-bracket-rankings-revealed/
+
 **Bessent Divested From Soybean Farms After Ethics Office Warning**\
 `The Treasury Secretary said on Sunday he recently shed his holdings to comply with his federal ethics agreement.`\
 https://nytimes.com/2025/12/07/business/bessent-divest-soybean-farms-ethics.html
