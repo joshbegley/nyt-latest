@@ -1,3 +1,13 @@
+**Submit your questions for Grace Raynor’s recruiting mailbag**\
+`<p>The early signing period is over. There was plenty of other drama. USC signed the No. 1 class. Vanderbilt signed the No. 1 player.</p>
+<p>Submit your questions for Grace below. We will post her answers later this week.</p>
+`\
+https://nytimes.com/athletic/6870074/2025/12/07/submit-your-questions-for-grace-raynors-recruiting-mailbag-22/
+
+**Quinn Hughes' trade value, the Devils' assets and why the Canucks have options**\
+`The Canucks still hold significant leverage if Hughes expresses a desire to leave Vancouver at some point this season.`\
+https://nytimes.com/athletic/6869269/2025/12/07/quinn-hughes-trade-canucks-devils-contract-value/
+
 **How to watch Nuggets vs. Hornets: Time, TV, streaming**\
 `Find out how to watch the Denver Nuggets play the Charlotte Hornets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6870066/2025/12/07/nuggets-vs-hornets-stream-how-to-watch-dec-7/
