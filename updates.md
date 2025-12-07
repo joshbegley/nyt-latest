@@ -1,3 +1,11 @@
+**College Football Playoff takeaways: Alabama, ACC on the bubble as Indiana claims No. 1**\
+`What we learned about the College Football Playoff as conference championship games provided the final data points.`\
+https://nytimes.com/athletic/6868092/2025/12/07/college-football-playoff-bracket-conference-championship-results/
+
+**Mohamed Salah's outburst was selfish and disrespectful. He has let Liverpool down**\
+`The forward is an icon at Liverpool, but airing his complaints heaps more negativity on the club and betrays a glaring lack of self awarenes`\
+https://nytimes.com/athletic/6867847/2025/12/07/mohamed-salah-liverpool-slot-selfish-disrespectful/
+
 **Toxic Tottenham? Frank has turned fans away from the boos, for now at least**\
 `Jack Lang went to north London expecting anger and anguish but he got nothing of the sort`\
 https://nytimes.com/athletic/6868054/2025/12/07/tottenham-thomas-frank-brentford-atmosphere/
