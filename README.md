@@ -1,5 +1,13 @@
+**The Pulse: Will Bama get the boot?**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6868946/2025/12/07/alabama-should-be-out-of-the-playoff-but-thats-no-certainty/
+
+**Benin Rejects Claims of a Coup by Opposition Soldiers**\
+`The country’s interior minister said the situation was under control after a “small group of soldiers launched a mutiny,” but the president had yet to make a public statement.`\
+https://nytimes.com/2025/12/07/world/africa/benin-coup-shots-military-africa.html
+
 **Analysing every word of Salah's explosive interview - and were his criticisms justified?**\
-`Breaking down all 1,116 words of the Egyptian's remarkable interview where he case serious doubt over his Liverpool future`\
+`Breaking down all 1,116 words of the Egyptian's remarkable interview where he cast serious doubt over his Liverpool future`\
 https://nytimes.com/athletic/6869394/2025/12/07/mohamed-salah-liverpool-interview-analysis/
 
 **MLS Cup ends one era for Messi in Miami – and ushers in a more ambitious future**\
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6868600/2025/12/07/this-week-in-the-nba-chris-paul-
 `The Blackhawks fell apart over the second and third periods in a ghastly 6-0 loss to a normally anemic Kings team Saturday night.
 `\
 https://nytimes.com/athletic/6869140/2025/12/07/blackhawks-loss-kings-progress/
-
-**College Football Playoff 2025 projections: Is JMU a lock? Will Notre Dame, Bama top Miami?**\
-`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
-https://nytimes.com/athletic/6560541/2025/12/07/college-football-playoff-bracket-projections-odds/
-
-**Tom Hicks, former Liverpool, Dallas Stars and Texas Rangers owner, dies at 79**\
-`In 2007. the Texas businessman acquired a 50 per cent stake in Liverpool, whom he co-owned alongside George Gillett.`\
-https://nytimes.com/athletic/6869545/2025/12/07/tom-hicks-liverpool-owner-death/
 
