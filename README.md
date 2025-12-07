@@ -1,3 +1,7 @@
+**Mohamed Salah's outburst was selfish and disrespectful. He has let Liverpool down**\
+`The forward is an icon at Liverpool, but airing his complaints heaps more negativity on the club and betrays a glaring lack of self awarenes`\
+https://nytimes.com/athletic/6867847/2025/12/07/mohamed-salah-liverpool-slot-selfish-disrespectful/
+
 **Toxic Tottenham? Frank has turned fans away from the boos, for now at least**\
 `Jack Lang went to north London expecting anger and anguish but he got nothing of the sort`\
 https://nytimes.com/athletic/6868054/2025/12/07/tottenham-thomas-frank-brentford-atmosphere/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6865063/2025/12/07/west-germany-1990-world-cup/
 **A Grand Social Media Experiment Begins in Australia**\
 `The country is trying to wean children under 16 off the likes of TikTok, Snapchat, YouTube and Instagram with a new law. The teenagers are skeptical.`\
 https://nytimes.com/2025/12/07/world/asia/australia-social-media-ban-under-16.html
-
-**Quote of the Day: Reche Canyon’s Plentiful, Calamitous, and Beloved, Burros**\
-`Quotation of the Day for Sunday, December 7, 2025.`\
-https://nytimes.com/2025/12/07/pageoneplus/quote-of-the-day-reche-canyons-plentiful-calamitous-and-beloved-burros.html
 

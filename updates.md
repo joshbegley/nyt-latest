@@ -1,3 +1,15 @@
+**Toxic Tottenham? Frank has turned fans away from the boos, for now at least**\
+`Jack Lang went to north London expecting anger and anguish but he got nothing of the sort`\
+https://nytimes.com/athletic/6868054/2025/12/07/tottenham-thomas-frank-brentford-atmosphere/
+
+**College Football Playoff 2025 projections: Who has locked up a bid? Who's on the bubble?**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/12/07/college-football-playoff-bracket-projections-odds/
+
+**Chaos reigns as Duke tops Virginia in ACC title game — Blue Devils now await CFP fate**\
+`The Blue Devils won their first conference title since 1989, Steve Spurrier's third and final season as their coach.`\
+https://nytimes.com/athletic/6868913/2025/12/07/duke-virginia-score-result/
+
 **Are Aston Villa title contenders?**\
 `After beating Premier League leaders Arsenal, Villa are three points off the top. They couldn't, could they?`\
 https://nytimes.com/athletic/6867223/2025/12/07/aston-villa-title-contenders-arsenal/
