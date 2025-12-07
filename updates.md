@@ -1,3 +1,7 @@
+**Notre Dame opts out of bowl season after missing CFP by one spot**\
+`The Irish would have fallen into the ACC’s non-CFP bowl tier that included the Pop-Tarts Bowl, Holiday Bowl and Gator Bowl.`\
+https://nytimes.com/athletic/6870724/2025/12/07/notre-dame-bowl-opt-out-cfp/
+
 **Immigration Agents Target Family of Deported College Student**\
 `The family of Any Lucía Belloza López said agents appeared at their home in Austin, Texas, on Sunday. Their daughter, 19, was deported to Honduras during a surprise trip home for Thanksgiving.`\
 https://nytimes.com/2025/12/07/us/immigration-agents-family-deported-student.html
