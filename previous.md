@@ -34,7 +34,7 @@ https://nytimes.com/athletic/6780128/2025/12/07/college-football-playoff-changes
 `The arrest was part of a crackdown on speech that the authorities say is inciting hatred of the government. Critics say officials are silencing calls for accountability.`\
 https://nytimes.com/2025/12/07/world/asia/hong-kong-fire-arrest-after-online-speech.html
 
-**Short-handed Warriors celebrate surprising win in style after knocking off Cavs**\
-`Pat Spencer led a young, unheralded group in his first NBA start, helping Golden State to a 99-94 win in Cleveland.`\
-https://nytimes.com/athletic/6868979/2025/12/07/warriors-cavaliers-result-score/
+**Bowl projections: Ripple effects of Tulane and JMU CFP berths?**\
+`After some unexpected outcomes on championship weekend, the bowl schedule has been thrown into flux.`\
+https://nytimes.com/athletic/6853423/2025/12/07/college-football-projections-bowl-playoffs-matchups/
 

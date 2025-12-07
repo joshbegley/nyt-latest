@@ -1,3 +1,7 @@
+**Bowl projections: Ripple effects of Tulane and JMU CFP berths?**\
+`After some unexpected outcomes on championship weekend, the bowl schedule has been thrown into flux.`\
+https://nytimes.com/athletic/6853423/2025/12/07/college-football-projections-bowl-playoffs-matchups/
+
 **Ohio State was nearly perfect. Then little problems became big ones in Indy**\
 `Offense, kicking game need to do their part if the Buckeyes are to win another national championship.`\
 https://nytimes.com/athletic/6869214/2025/12/07/ohio-state-indiana-ryan-day/
