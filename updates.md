@@ -1,3 +1,19 @@
+**Illinois State throws 5 interceptions but still stuns No. 1 NDSU in FCS playoffs**\
+`Tommy Rittenhouse came through when he needed, throwing two touchdown passes in the final 3 minutes to beat the defending champions 29-28.`\
+https://nytimes.com/athletic/6868431/2025/12/06/illinois-state-upsets-ndsu-fcs-playoffs/
+
+**Nebraska fires OL coach Donovan Raiola, uncle of QB Dylan Raiola**\
+`Rhule is hiring Georgia Tech offensive line coach Geep Wade as his replacement, a source familiar with the move said.`\
+https://nytimes.com/athletic/6868376/2025/12/06/nebraska-fires-donovan-raiola-dylan/
+
+**College Football Playoff 2025 projections: Texas Tech, Tulane lock up bids**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/12/06/college-football-playoff-bracket-projections-odds/
+
+**Salah says Liverpool future is in doubt as relations with Slot have broken down**\
+`Salah believes he's been made a scapegoat for Liverpool's struggles this season, insisting "someone does not want me in the club".`\
+https://nytimes.com/athletic/6868345/2025/12/06/salah-liverpool-interview-news-leaving-slot/
+
 **How colleges are putting financial muscle behind their football coaches**\
 `Several schools have dedicated significant financial backing to their new coaching hires.`\
 https://nytimes.com/athletic/6866480/2025/12/06/college-football-coaches-nil-money/
