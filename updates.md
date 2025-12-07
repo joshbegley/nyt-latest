@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6868605/2025/12/06/brad-marchand-panthers-blue-jackets-overtime-bench/
 
+**Brad Marchand sneakily intrudes on Blue Jackets bench during OT timeout**\
+`Moments after the shenanigans, Marchand set up Sam Bennett for the game-winning goal as Florida beat Columbus 7-6.
+`\
+https://nytimes.com/athletic/6868605/2025/12/06/brad-marchand-panthers-blue-jackets-overtime-bench/
+
 **Antonio Brown seeks dismissal of attempted murder case, citing 'stand your ground' law**\
 `Brown faces a second-degree attempted murder charge following an altercation at a boxing match in May.`\
 https://nytimes.com/athletic/6868526/2025/12/06/antonio-brown-case-dismissal-attempted-murder-charge/

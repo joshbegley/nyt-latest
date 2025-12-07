@@ -6,6 +6,10 @@ https://nytimes.com/athletic/6868658/2025/12/06/david-beckham-mls-cup-win-player
 `What we're learning about the College Football Playoff as conference championship games provide the final data points.`\
 https://nytimes.com/athletic/6868092/2025/12/06/college-football-playoff-bracket-conference-championship-results/
 
+**College Football Playoff 2025 projections: Texas Tech, Tulane lock up bids**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/12/06/college-football-playoff-bracket-projections-odds/
+
 **Brad Marchand sneakily intrudes on Blue Jackets bench during OT timeout**\
 `Moments after the shenanigans, Marchand set up Sam Bennett for the game-winning goal as Florida beat Columbus 7-6.
 `\
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6866480/2025/12/06/college-football-coaches-nil-mon
 **Mariners send top-100 prospect Harry Ford to Nationals for reliever Jose A. Ferrer**\
 `There wasn't much room for Harry Ford with Cal Raleigh entrenched as Seattle's catcher. In return, they got someone with closing experience.`\
 https://nytimes.com/athletic/6868520/2025/12/06/mariners-nationals-trade-harry-ford-jose-ferrer/
-
-**Texas Tech shook up offseason. Now Red Raiders ready to shake up Playoff**\
-`There's a New Money group in college football making their own traditions. Look no further than Texas Tech. `\
-https://nytimes.com/athletic/6868543/2025/12/06/texas-tech-byu-analysis-college-football-playoff/
 
