@@ -1,3 +1,11 @@
+**The New York Times in Print for Sunday, Dec. 7, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/12/07/todays-new-york-times
+
+**Buy Better, Buy Less, Feel Smug About It**\
+`Being a smart consumer has never been easier. Influencers and the fashion industry are all taking advantage of that.`\
+https://nytimes.com/2025/12/07/opinion/fashion-quality-ethical-consumption.html
+
 **College Football Playoff takeaways: Alabama, ACC on the bubble as Indiana claims No. 1**\
 `What we learned about the College Football Playoff as conference championship games provided the final data points.`\
 https://nytimes.com/athletic/6868092/2025/12/07/college-football-playoff-bracket-conference-championship-results/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6867660/2025/12/07/arsenal-mikel-arteta-response-de
 **A lesson from history: The warmer the climate, the better the World Cup**\
 `Despite fears of soaring temperatures, the 1970 and 1982 editions are regarded as classics`\
 https://nytimes.com/athletic/6866147/2025/12/07/world-cup-history-temperature-quality/
-
-**Chaos reigns as Duke tops Virginia in ACC title game — Blue Devils now await CFP fate**\
-`The Blue Devils won their first conference title since 1989, Steve Spurrier's third and final season as their coach.`\
-https://nytimes.com/athletic/6868913/2025/12/07/duke-virginia-score-result/
-
-**How West Germany won the 1990 World Cup: Brilliant Brehme, magnificent Matthaus and an Argentina meltdown**\
-`Michael Cox's history of World Cup winners reaches Italia 90 and a third title for West Germany  `\
-https://nytimes.com/athletic/6865063/2025/12/07/west-germany-1990-world-cup/
 
