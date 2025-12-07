@@ -1,3 +1,7 @@
+**How colleges are putting financial muscle behind their football coaches**\
+`Several schools have dedicated significant financial backing to their new coaching hires.`\
+https://nytimes.com/athletic/6866480/2025/12/06/college-football-coaches-nil-money/
+
 **Mariners send top-100 prospect Harry Ford to Nationals for reliever Jose A. Ferrer**\
 `There wasn't much room for Harry Ford with Cal Raleigh entrenched as Seattle's catcher. In return, they got someone with closing experience.`\
 https://nytimes.com/athletic/6868520/2025/12/06/mariners-nationals-trade-harry-ford-jose-ferrer/

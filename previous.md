@@ -1,3 +1,7 @@
+**How colleges are putting financial muscle behind their football coaches**\
+`Several schools have dedicated significant financial backing to their new coaching hires.`\
+https://nytimes.com/athletic/6866480/2025/12/06/college-football-coaches-nil-money/
+
 **Mariners send top-100 prospect Harry Ford to Nationals for reliever Jose A. Ferrer**\
 `There wasn't much room for Harry Ford with Cal Raleigh entrenched as Seattle's catcher. In return, they got someone with closing experience.`\
 https://nytimes.com/athletic/6868520/2025/12/06/mariners-nationals-trade-harry-ford-jose-ferrer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6868332/2025/12/06/mls-cup-inter-miami-vancouver-wh
 **Map: 7.0-Magnitude Earthquake Shakes Alaska**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/12/06/us/quake-tracker-alaska.html
-
-**Nebraska fires OL coach Donovan Raiola, uncle of QB Dylan Raiola**\
-`Rhule is hiring Georgia Tech offensive line coach Geep Wade as his replacement, a source familiar with the move said.`\
-https://nytimes.com/athletic/6868376/2025/12/06/nebraska-fires-donovan-raiola-dylan/
 
