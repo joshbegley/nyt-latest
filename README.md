@@ -1,3 +1,11 @@
+**Beckham relishes becoming first MLS Cup winner as both player and owner**\
+`Beckham's efforts to build a winner in Miami – with Lionel Messi as its centerpiece – have paid off with a bit of MLS history`\
+https://nytimes.com/athletic/6868658/2025/12/06/david-beckham-mls-cup-win-player-owner-inter-miami/
+
+**College Football Playoff takeaways: Could Georgia's dominant win knock Alabama out?**\
+`What we're learning about the College Football Playoff as conference championship games provide the final data points.`\
+https://nytimes.com/athletic/6868092/2025/12/06/college-football-playoff-bracket-conference-championship-results/
+
 **Brad Marchand sneakily intrudes on Blue Jackets bench during OT timeout**\
 `Moments after the shenanigans, Marchand set up Sam Bennett for the game-winning goal as Florida beat Columbus 7-6.
 `\
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6868520/2025/12/06/mariners-nationals-trade-harry-f
 **Texas Tech shook up offseason. Now Red Raiders ready to shake up Playoff**\
 `There's a New Money group in college football making their own traditions. Look no further than Texas Tech. `\
 https://nytimes.com/athletic/6868543/2025/12/06/texas-tech-byu-analysis-college-football-playoff/
-
-**Potent Storm Is Expected to Drench the Pacific Northwest**\
-`Fueling the storm will be a “very impressive” source of moisture from an atmospheric river, forecasters said. Flooding is forecast on more than a dozen rivers in Washington and Oregon.`\
-https://nytimes.com/2025/12/06/weather/pacific-northwest-rain-storm-flooding.html
-
-**Illinois State throws 5 interceptions but still stuns No. 1 NDSU in FCS playoffs**\
-`Tommy Rittenhouse came through when needed, throwing two touchdown passes in the final 3 minutes to beat the defending champions 29-28.`\
-https://nytimes.com/athletic/6868431/2025/12/06/illinois-state-upsets-ndsu-fcs-playoffs/
 

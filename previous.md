@@ -11,7 +11,7 @@ https://nytimes.com/2025/12/06/us/politics/trump-southwest-airlines-fine.html
 `Georgia and Kirby Smart exorcised years of demons with a dominant win over Alabama to win another SEC championship.`\
 https://nytimes.com/athletic/6868619/2025/12/06/georgia-alabama-score-result/
 
-**Antonio Brown seeks attempted murder case dismissal, citing 'stand your ground' law**\
+**Antonio Brown seeks dismissal of attempted murder case, citing 'stand your ground' law**\
 `Brown faces a second-degree attempted murder charge following an altercation at a boxing match in May.`\
 https://nytimes.com/athletic/6868526/2025/12/06/antonio-brown-case-dismissal-attempted-murder-charge/
 
