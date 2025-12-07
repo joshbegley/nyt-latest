@@ -1,3 +1,7 @@
+**Dolphins-Jets takeaways: Miami wins fourth straight, loses De'Von Achane**\
+`The Jets lost Tyrod Taylor in the first quarter to a groin injury, and struggled mightily on offense.`\
+https://nytimes.com/athletic/6870124/2025/12/07/dolphins-jets-score-result-takeaways-nfl/
+
 **Trump Blasts Lawmaker for Remaining Democrat After Receiving Pardon**\
 `Days after pardoning him, President Trump accused Representative Henry Cuellar of Texas of disloyalty for not switching to the Republican Party.`\
 https://nytimes.com/2025/12/07/us/politics/trump-henry-cuellar-democrat-run-criticism.html

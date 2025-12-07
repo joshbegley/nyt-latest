@@ -18,7 +18,7 @@ https://nytimes.com/athletic/6870336/2025/12/07/saints-buccaneers-score-result-t
 `It’s a long road to get back to Hard Rock Stadium to play for a national title. But this is what Mario Cristobal was brought home to do.`\
 https://nytimes.com/athletic/6870361/2025/12/07/miami-college-football-playoff-notre-dame/
 
-**Dolphins-Jets takeaways: Miami wins fourth straight, loses De'von Achane**\
+**Dolphins-Jets takeaways: Miami wins fourth straight, loses De'Von Achane**\
 `The Jets lost Tyrod Taylor in the first quarter to a groin injury, and struggled mightily on offense.`\
 https://nytimes.com/athletic/6870124/2025/12/07/dolphins-jets-score-result-takeaways-nfl/
 
