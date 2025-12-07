@@ -1,3 +1,7 @@
+**'Flippin' champs': Fernando Mendoza gives emotional interview after Indiana's win**\
+`The Hoosiers quarterback earned MVP in the Hoosiers Big Ten championship game win over Ohio State.`\
+https://nytimes.com/athletic/6869149/2025/12/07/francisco-mendoza-interview-indiana/
+
 **The New York Times in Print for Sunday, Dec. 7, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/12/07/todays-new-york-times
