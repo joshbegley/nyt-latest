@@ -1,40 +1,40 @@
-**How Max Verstappen's horror-movie quality makes him dangerous in F1 title deciders**\
-`Verstappen says he has "nothing to lose" in Sunday's winner-take-all finale. That gives him a psychological edge over his rivals.`\
-https://nytimes.com/athletic/6868609/2025/12/07/max-verstappen-f1-title-abu-dhabi-horror-movie/
+**Superpower Competition: The Missing Chapter in Trump’s Security Strategy**\
+`President Trump is shifting from discussion of the long-lasting competition among the world’s biggest economies and nuclear powers.`\
+https://nytimes.com/2025/12/07/us/politics/trump-security-strategy-superpowers.html
 
-**Cold Case Inquiries Hampered After Genealogy Site Revisits Terms of Use**\
-`Ancestry’s clarification of a policy has barred those working on unsolved crimes from access to the company’s vast trove of records.`\
-https://nytimes.com/2025/12/07/nyregion/ancestry-dna-police.html
+**Netflix Always Wanted Some HBO Shows. Now It Gets All of HBO Instead.**\
+`Netflix’s blockbuster deal to buy Warner Bros., including HBO, is the latest twist in a rivalry that has reshaped the entertainment industry.`\
+https://nytimes.com/2025/12/07/business/media/netflix-hbo-warner-bros.html
 
-**Brazil’s Answer to Hollywood: A Sleepy Town of Dreams and Droughts**\
-`A dusty town in the parched northeast has become the nation’s show business destination. But climate change and technology are posing new challenges there.`\
-https://nytimes.com/2025/12/07/world/americas/brazil-cabaceiras-film-tv-hollywood.html
+**Confusion, Anxiety for Parents as Vaccine Guidelines are Upended**\
+`Conflicting recommendations leaves parents with more questions than answers when it comes to vaccines for their newborn children.`\
+https://nytimes.com/2025/12/07/us/vaccines-chlldren-hepatitis-guidelines.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/12/07/crosswords/spelling-bee-forum.html
+**Conservative Project at Supreme Court Meets Trump’s Push to Oust Officials**\
+`President Trump has repeatedly ousted leaders of independent agencies despite federal laws meant to shield those regulators from politics.`\
+https://nytimes.com/2025/12/07/us/politics/supreme-court-trump-independent-agencies.html
 
-**‘I Came Right Out of the Rubber Boots I Was Wearing’**\
-`Rescued from the Jamaica Bay mud, what a camera sees overnight and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2025/12/07/nyregion/metropolitan-diary.html
+**The Impact of Trump’s Slipping Approval Rating**\
+`After months of holding steady, President Trump‘s approval rating has dipped over the past several weeks, according to a New York Times analysis of public polling.`\
+https://nytimes.com/video/us/politics/100000010563180/the-impact-of-trumps-slipping-approval-rating.html
 
-**Japan Says China Aimed Military Radar at Its Fighter Jets**\
-`Beijing disputed the accusation, the latest flare-up in a festering dispute between the two countries.`\
-https://nytimes.com/2025/12/07/world/asia/japan-china-fighter-jets.html
+**For Landmark Test of Executive Power, Echoes of a 1930s Supreme Court Battle**\
+`Franklin D. Roosevelt’s efforts to oust a Federal Trade Commission leader offer parallels to the current fight over President Trump’s actions.`\
+https://nytimes.com/2025/12/07/us/politics/supreme-court-humphrey-roosevelt.html
 
-**Ohio State was nearly perfect. Then little problems became big ones in Indy**\
-`Offense, kicking game need to do their part if the Buckeyes are to win another national championship.`\
-https://nytimes.com/athletic/6869214/2025/12/07/ohio-state-indiana-ryan-day/
+**From Improv Class to Mayor-Elect: How New York’s Culture Shaped Mamdani**\
+`In an interview, he revealed the Indian ragas, indie movies, comedy shows and museums in the city that stayed with him.`\
+https://nytimes.com/2025/12/07/arts/mamdani-nyc-mayor-comedy-movies-art.html
 
-**College Football Playoff 2025-26: What to know about the selection process and the format's future**\
-`Everything you need to know about this year's College Football Playoff. `\
-https://nytimes.com/athletic/6780128/2025/12/07/college-football-playoff-changes-format-metrics/
+**Is This Former Bravo Star Democrats’ Toughest Critic?**\
+`The reality TV celebrity turned left-wing podcaster Jennifer Welch is fed up with President Trump. She also expects better from the Democrats.`\
+https://nytimes.com/2025/12/07/style/jennifer-welch-ive-had-it-podcast.html
 
-**Hong Kong Man Arrested After Posting Online About Deadly Fire**\
-`The arrest was part of a crackdown on speech that the authorities say is inciting hatred of the government. Critics say officials are silencing calls for accountability.`\
-https://nytimes.com/2025/12/07/world/asia/hong-kong-fire-arrest-after-online-speech.html
+**Best Songs of 2025**\
+`Listen to 48 tracks that broke new artists, blew apart genres and revived beloved sounds.`\
+https://nytimes.com/2025/12/07/arts/music/best-songs-2025.html
 
-**Bowl projections: Ripple effects of Tulane and JMU CFP berths?**\
-`After some unexpected outcomes on championship weekend, the bowl schedule has been thrown into flux.`\
-https://nytimes.com/athletic/6853423/2025/12/07/college-football-projections-bowl-playoffs-matchups/
+**Is There Life in Hollywood? A Smart New Novel Talks It Over.**\
+`Lauren Rothery’s “Television” finds an action star and two writers dazed by the changing rules of the entertainment industry.`\
+https://nytimes.com/2025/12/07/books/review/television-lauren-rothery.html
 
