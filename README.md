@@ -1,3 +1,11 @@
+**We Had to Have This Chicken Pad See Ew Recipe**\
+`It’s from one of our favorite new cookbooks of 2025, and it’s so versatile and delicious.`\
+https://nytimes.com/2025/12/07/dining/we-had-to-have-this-chicken-pad-see-ew-recipe.html
+
+**A Letter of Thanks for Fighting Corruption**\
+`Writing to a lawyer, the founding editor of The New York Times conveyed his vast respect for President Abraham Lincoln.`\
+https://nytimes.com/2025/12/07/insider/henry-jarvis-raymond.html
+
 **Inside Lando Norris’ wild F1 title win: A three-way battle that swung to the very end**\
 `After momentum swung back and forth all season, Norris outlasted Verstappen and Piastri – by just two points`\
 https://nytimes.com/athletic/6868109/2025/12/07/lando-norris-f1-title-2025-abu-dabi/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6845576/2025/12/07/lando-norris-f1-world-champion/
 **Lando Norris becomes world champion for the first time: Abu Dhabi Grand Prix briefing**\
 `The three-way title fight went to the the last race of the season and ended with Lando Norris winning the world title by two points `\
 https://nytimes.com/athletic/6869760/2025/12/07/lando-norris-world-champion-abu-dhabi-grand-prix/
-
-**Is Hollywood Getting God?**\
-`Movies and pop stars wrestled with faith in 2025. That may be changing culture.`\
-https://nytimes.com/2025/12/07/briefing/is-hollywood-getting-god.html
-
-**Michael Jordan vs. NASCAR trial, Week 2 primer: Where we're at, and what to expect**\
-`Co-defendant Jim France is expected to take the witness stand, among many other notable names, as the trial rolls on this week.`\
-https://nytimes.com/athletic/6869725/2025/12/07/michael-jordan-nascar-trial-week-2-primer-jim-france/
 
