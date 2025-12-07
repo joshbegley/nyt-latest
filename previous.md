@@ -1,3 +1,7 @@
+**Raiders QB Geno Smith exits game with shoulder injury**\
+`Backup quarterback and 2022 first-round pick Kenny Pickett replaced Smith.`\
+https://nytimes.com/athletic/6871041/2025/12/07/geno-smith-raiders-injury/
+
 **Mandel: CFP will lose all credibility if it keeps changing every year to fix latest drama**\
 `This is all too familiar to those of who lived through 16 years of the BCS.`\
 https://nytimes.com/athletic/6870734/2025/12/07/college-football-playoff-controversy-notre-dame/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6870295/2025/12/07/nfl-takeaways-week-14-scores-res
 **Submit your questions for Pete Sampson's Notre Dame football mailbag**\
 `There's a lot to talk about after the Fighting Irish were unceremoniously bumped from the CFP field on selection day.`\
 https://nytimes.com/athletic/6870991/2025/12/07/submit-your-questions-for-pete-sampsons-notre-dame-football-mailbag-2/
-
-**They Witness Deaths on the Tracks and Then Struggle to Get Help**\
-`After train operators are involved in fatal strikes, the agency that runs New York City’s subway often leaves them to fend for themselves.`\
-https://nytimes.com/interactive/2025/12/07/nyregion/subway-deaths-train-operators-ptsd.html
 
