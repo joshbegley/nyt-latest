@@ -34,7 +34,7 @@ https://nytimes.com/athletic/6870150/2025/12/07/college-football-national-title-
 `Yuki Tsunoda's defending tactics almost forced Norris into a title-losing error in Abu Dhabi`\
 https://nytimes.com/athletic/6870095/2025/12/07/lando-norris-yuki-tsunoda-abu-dhabi-f1/
 
-**First look at College Football Playoff first round: What you need to know about each game**\
+**College Football Playoff's first round: What you need to know about each game**\
 `Early breakdowns of Alabama at Oklahoma, James Madison at Oregon, Miami at Texas A&M and Tulane at Ole Miss in the College Football Playoff.`\
 https://nytimes.com/athletic/6869778/2025/12/07/college-football-playoff-first-round-games-schedule/
 

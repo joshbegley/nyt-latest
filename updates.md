@@ -1,3 +1,7 @@
+**College Football Playoff's first round: What you need to know about each game**\
+`Early breakdowns of Alabama at Oklahoma, James Madison at Oregon, Miami at Texas A&M and Tulane at Ole Miss in the College Football Playoff.`\
+https://nytimes.com/athletic/6869778/2025/12/07/college-football-playoff-first-round-games-schedule/
+
 **How to watch Blackhawks vs. Ducks: Time, TV, streaming**\
 `Find out how to watch the Chicago Blackhawks play the Anaheim Ducks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6870488/2025/12/07/blackhawks-vs-ducks-stream-how-to-watch-dec-7/
