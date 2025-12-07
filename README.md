@@ -1,3 +1,7 @@
+**Until Saturday: Bama, Miami or Notre Dame? Pick two**\
+`Until Saturday is The Athletic's free college football newsletter.`\
+https://nytimes.com/athletic/6869826/2025/12/07/miami-alabama-playoff-rankings-until-saturday/
+
 **Lando Norris: The small, shy Somerset kid who became F1 world champion**\
 `Lando Norris has just won the 2025 F1 world title. This is his story, from talented beginnings to motorsport's top prize`\
 https://nytimes.com/athletic/6845576/2025/12/07/lando-norris-f1-world-champion/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6869399/2025/12/07/pelicans-zion-nba-trade-trey-mur
 **Ben Stokes must prove his England is no country for 'weak men'**\
 `The beaten captain made clear his frustration and questioned the mentality of some in his team as he contemplated defeat at the Gabba`\
 https://nytimes.com/athletic/6869420/2025/12/07/ben-stokes-england-ashes-australia-weak-men/
-
-**Not All Targeted Killings Are the Same. Hegseth’s Boat Strikes Are Illegal.**\
-`A former secretary of homeland security on the illegality of Trump’s boat strikes.`\
-https://nytimes.com/2025/12/07/opinion/hegseth-boat-strikes-killings.html
 
