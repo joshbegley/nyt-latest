@@ -1,40 +1,40 @@
-**Trump Administration Live Updates: Hegseth Skirts Questions on Releasing Strike Footage**\
-``\
-https://nytimes.com/live/2025/12/07/us/trump-news
+**Pat Spencer, stepping up for Warriors, is showing that he is that ... you know what**\
+`With the Warriors shorthanded, Spencer has stepped into a big role and proven he's much more than a lacrosse player in the NBA.`\
+https://nytimes.com/athletic/6869550/2025/12/07/pat-spencer-golden-state-warriors-cavaliers/
 
-**Lowetide: Oilers top 20 prospects ranking, winter 2025**\
-`The Oilers have turned over much of the team's top-20 prospects list in less than one year.`\
-https://nytimes.com/athletic/6860320/2025/12/07/edmonton-oilers-top-20-prospects-ranking-winter-2025/
+**How to watch Prairie View A&M vs. Texas women's basketball: Time, TV, streaming**\
+`Find out how to watch the Prairie View A&M Lady Panthers play the Texas Longhorns, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6869711/2025/12/07/prairie-view-a-m-vs-texas-stream-how-to-watch-dec-7/
 
-**Dario Amodei on the Risk of an A.I. Bubble, Regulation and A.G.I.**\
-`The Anthropic chief executive spoke with Andrew Ross Sorkin at the DealBook Summit.`\
-https://nytimes.com/2025/12/07/business/dealbook/dario-amodei-dealbook.html
+**How to watch Northern Illinois vs. Iowa State women's basketball: Time, TV, streaming**\
+`Find out how to watch the Northern Illinois Huskies play the Iowa State Cyclones, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6869709/2025/12/07/northern-illinois-vs-iowa-state-stream-how-to-watch-dec-7/
 
-**Indian boy, aged 3, becomes youngest rated chess player in history**\
-`Born in 2022, Sarwangya has been ranked by FIDE, the international governing body of chess after multiple wins over ranked adults.`\
-https://nytimes.com/athletic/6869534/2025/12/07/youngest-chess-player-age-india/
+**How to watch Ole Miss vs. Kansas State women's basketball: Time, TV, streaming**\
+`Find out how to watch the Ole Miss Rebels play the Kansas State Wildcats, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6869707/2025/12/07/ole-miss-vs-kansas-state-stream-how-to-watch-dec-7/
 
-**Your Gift Dilemmas, Solved**\
-`An expert from Wirecutter helps Morning readers with their trickiest holiday gift searches.`\
-https://nytimes.com/2025/12/07/briefing/your-gift-dilemmas-solved.html
+**How to watch Maryland-Eastern Shore vs. Oklahoma women's basketball: Time, TV, streaming**\
+`Find out how to watch the Maryland-Eastern Shore Hawks play the Oklahoma Sooners, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6869705/2025/12/07/maryland-eastern-shore-vs-oklahoma-stream-how-to-watch-dec-7/
 
-**The Pulse: Will Bama get the boot?**\
-`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
-https://nytimes.com/athletic/6868946/2025/12/07/alabama-should-be-out-of-the-playoff-but-thats-no-certainty/
+**How to watch Maryland vs. Minnesota women's basketball: Time, TV, streaming**\
+`Find out how to watch the Maryland Terrapins play the Minnesota Golden Gophers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6869704/2025/12/07/maryland-vs-minnesota-stream-how-to-watch-dec-7/
 
-**Benin Rejects Claims of a Coup by Opposition Soldiers**\
-`The country’s interior minister said the situation was under control after a “small group of soldiers launched a mutiny,” but the president had yet to make a public statement.`\
-https://nytimes.com/2025/12/07/world/africa/benin-coup-shots-military-africa.html
+**How to watch Oregon vs. UCLA women's basketball: Time, TV, streaming**\
+`Find out how to watch the Oregon Ducks play the UCLA Bruins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6869701/2025/12/07/oregon-vs-ucla-stream-how-to-watch-dec-7/
 
-**Analysing every word of Salah's explosive interview - and were his criticisms justified?**\
-`Breaking down all 1,116 words of the Egyptian's remarkable interview where he cast serious doubt over his Liverpool future`\
-https://nytimes.com/athletic/6869394/2025/12/07/mohamed-salah-liverpool-interview-analysis/
+**How to watch LSU vs. Texas Tech men's basketball: Time, TV, streaming**\
+`Find out how to watch the LSU Tigers play the Texas Tech Red Raiders, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6869699/2025/12/07/lsu-vs-texas-tech-stream-how-to-watch-dec-7/
 
-**MLS Cup ends one era for Messi in Miami – and ushers in a more ambitious future**\
-`An MLS Cup title shuts the door on the first iteration of Messi in Miami. With a new stadium and running mates beckoning, what comes next?`\
-https://nytimes.com/athletic/6869066/2025/12/07/inter-miami-lionel-messi-mls-cup-future/
+**How to watch Ohio State vs. Northwestern women's basketball: Time, TV, streaming**\
+`Find out how to watch the Ohio State Buckeyes play the Northwestern Wildcats, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6869697/2025/12/07/ohio-state-vs-northwestern-stream-how-to-watch-dec-7/
 
-**Ben Kindel, Rutger McGroarty and Ville Koivunen all-rookie line might be a keeper for Penguins**\
-`The trio of Kindel, McGroarty and Koivunen is starting to grow up together — both on and off the ice — with the Penguins.`\
-https://nytimes.com/athletic/6868289/2025/12/07/penguins-ben-kindel-rutger-mcgroarty-ville-koivunen/
+**How to watch LSU vs. New Orleans women's basketball: Time, TV, streaming**\
+`Find out how to watch the LSU Tigers play the New Orleans Privateers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6869695/2025/12/07/lsu-vs-new-orleans-stream-how-to-watch-dec-7/
 
