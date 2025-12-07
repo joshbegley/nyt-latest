@@ -1,3 +1,7 @@
+**Deshaun Watson expected to be on Browns' roster next season: Source**\
+`Cleveland has to keep Watson, because if it were to cut him before June 1, it would have a dead salary cap charge of about $135 million.`\
+https://nytimes.com/athletic/6868826/2025/12/07/deshaun-watson-2026-roster-status-cleveland-browns-nfl/
+
 **A Not-So-Sweet Slumber**\
 `Artwork can challenge us to imagine what happens when society abandons reason and ignores truth.`\
 https://nytimes.com/2025/12/07/special-series/marcel-dzama-francisco-goya.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/07/arts/television/colin-jost-plays-pete-hegseth-on-
 **Canucks earn a fun win, but real story is what's happening off the ice**\
 `Saturday's win over the Wild in Vancouver was overshadowed by an ominous report about Quinn Hughes' future and a key injury.`\
 https://nytimes.com/athletic/6868940/2025/12/07/canucks-fun-win-quinn-hughes/
-
-**How to Love Your Country, for Better or Worse**\
-`Readers respond to a column by David Brooks about his unconditional love for America.`\
-https://nytimes.com/2025/12/07/opinion/love-for-america.html
 
