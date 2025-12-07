@@ -1,3 +1,7 @@
+**College Football Playoff takeaways: Alabama, ACC on the bubble as Indiana claims No. 1**\
+`What we learned about the College Football Playoff as conference championship games provided the final data points.`\
+https://nytimes.com/athletic/6868092/2025/12/07/college-football-playoff-bracket-conference-championship-results/
+
 **Mohamed Salah's outburst was selfish and disrespectful. He has let Liverpool down**\
 `The forward is an icon at Liverpool, but airing his complaints heaps more negativity on the club and betrays a glaring lack of self awarenes`\
 https://nytimes.com/athletic/6867847/2025/12/07/mohamed-salah-liverpool-slot-selfish-disrespectful/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6868913/2025/12/07/duke-virginia-score-result/
 **How West Germany won the 1990 World Cup: Brilliant Brehme, magnificent Matthaus and an Argentina meltdown**\
 `Michael Cox's history of World Cup winners reaches Italia 90 and a third title for West Germany  `\
 https://nytimes.com/athletic/6865063/2025/12/07/west-germany-1990-world-cup/
-
-**A Grand Social Media Experiment Begins in Australia**\
-`The country is trying to wean children under 16 off the likes of TikTok, Snapchat, YouTube and Instagram with a new law. The teenagers are skeptical.`\
-https://nytimes.com/2025/12/07/world/asia/australia-social-media-ban-under-16.html
 
