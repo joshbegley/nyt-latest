@@ -1,3 +1,7 @@
+**Short-handed Warriors celebrate surprising win in style after knocking off Cavs**\
+`Pat Spencer had a career-high 19 points and seven assists in his first NBA start, helping Golden State to a 99-94 win in Cleveland.`\
+https://nytimes.com/athletic/6868979/2025/12/07/warriors-cavaliers-result-score/
+
 **'Flippin' champs': Fernando Mendoza gives emotional interview after Indiana's win**\
 `The Hoosiers quarterback earned MVP honors in Indiana's Big Ten championship game win over Ohio State.`\
 https://nytimes.com/athletic/6869149/2025/12/07/francisco-mendoza-interview-indiana/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6867223/2025/12/07/aston-villa-title-contenders-ars
 **Cherki's rabona assist and a moment to make you gasp**\
 `The Frenchman's moment of exquisite skill left all who saw it dumbfounded. But what does it mean for his City career?`\
 https://nytimes.com/athletic/6867542/2025/12/07/rayan-cherki-rabona-assist-manchester-city/
-
-**Mikel Arteta is ready to respond. Will his Arsenal players?**\
-`Arsenal's 18-game unbeaten run came to an end against Villa - the manager has no doubt his players can bounce back`\
-https://nytimes.com/athletic/6867660/2025/12/07/arsenal-mikel-arteta-response-defeat-title/
 
