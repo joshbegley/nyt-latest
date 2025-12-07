@@ -1,3 +1,7 @@
+**Martin Parr, Who Photographed Britain’s Unvarnished Quirks, Dies at 73**\
+`Mr. Parr trademarked a hyperrealism in his photography that illuminated the “craziness of the English,” making small details loom larger than life.`\
+https://nytimes.com/2025/12/07/obituaries/martin-parr-dead.html
+
 **Deshaun Watson expected to be on Browns' roster next season: Source**\
 `Cleveland has to keep Watson, because if it were to cut him before June 1, it would have a dead salary cap charge of about $135 million.`\
 https://nytimes.com/athletic/6868826/2025/12/07/deshaun-watson-2026-roster-status-cleveland-browns-nfl/

@@ -1,3 +1,7 @@
+**Martin Parr, Who Photographed Britain’s Unvarnished Quirks, Dies at 73**\
+`Mr. Parr trademarked a hyperrealism in his photography that illuminated the “craziness of the English,” making small details loom larger than life.`\
+https://nytimes.com/2025/12/07/obituaries/martin-parr-dead.html
+
 **Deshaun Watson expected to be on Browns' roster next season: Source**\
 `Cleveland has to keep Watson, because if it were to cut him before June 1, it would have a dead salary cap charge of about $135 million.`\
 https://nytimes.com/athletic/6868826/2025/12/07/deshaun-watson-2026-roster-status-cleveland-browns-nfl/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6869725/2025/12/07/michael-jordan-nascar-trial-week
 **Colin Jost Plays Pete Hegseth on ‘S.N.L.’ to Explain ‘Operation Kill Everybody’**\
 `Jost appeared as the defense secretary in a rare role away from the Weekend Update desk while Melissa McCarthy hosted for the first time since 2017.`\
 https://nytimes.com/2025/12/07/arts/television/colin-jost-plays-pete-hegseth-on-snl.html
-
-**Canucks earn a fun win, but real story is what's happening off the ice**\
-`Saturday's win over the Wild in Vancouver was overshadowed by an ominous report about Quinn Hughes' future and a key injury.`\
-https://nytimes.com/athletic/6868940/2025/12/07/canucks-fun-win-quinn-hughes/
 
