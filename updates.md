@@ -1,3 +1,11 @@
+**Mandel: CFP will lose all credibility if it keeps changing every year to fix latest drama**\
+`This is all too familiar to those of who lived through 16 years of the BCS.`\
+https://nytimes.com/athletic/6870734/2025/12/07/college-football-playoff-controversy-notre-dame/
+
+**How should Ohio State feel about its repeat chances now? Takeaways from the CFP reveal**\
+`Five initial thoughts on Ohio State's No. 2 seed, starting in the Cotton Bowl, Brian Hartline's status and more ahead of the Playoff.`\
+https://nytimes.com/athletic/6870957/2025/12/07/ohio-state-playoff-bracket-cotton-bowl-hartline/
+
 **Hundreds Rally for Boy, 6, Who Was Separated From His Father by ICE**\
 `“Taking children from their families is not normal,” a speaker told the crowd in Queens, where Yuanxin Zheng attended school until being detained.`\
 https://nytimes.com/2025/12/07/nyregion/queens-migrant-boy-detained-rally.html
