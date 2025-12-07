@@ -1,3 +1,7 @@
+**Hong Kong Man Arrested After Posting Online About Deadly Fire**\
+`The arrest was part of a crackdown on speech that the authorities say is inciting hatred of the government. Critics say officials are silencing calls for accountability.`\
+https://nytimes.com/2025/12/07/world/asia/hong-kong-fire-arrest-after-online-speech.html
+
 **Short-handed Warriors celebrate surprising win in style after knocking off Cavs**\
 `Pat Spencer had a career-high 19 points and seven assists in his first NBA start, helping Golden State to a 99-94 win in Cleveland.`\
 https://nytimes.com/athletic/6868979/2025/12/07/warriors-cavaliers-result-score/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6560541/2025/12/07/college-football-playoff-bracket
 **Are Aston Villa title contenders?**\
 `After beating Premier League leaders Arsenal, Villa are three points off the top. They couldn't, could they?`\
 https://nytimes.com/athletic/6867223/2025/12/07/aston-villa-title-contenders-arsenal/
-
-**Cherki's rabona assist and a moment to make you gasp**\
-`The Frenchman's moment of exquisite skill left all who saw it dumbfounded. But what does it mean for his City career?`\
-https://nytimes.com/athletic/6867542/2025/12/07/rayan-cherki-rabona-assist-manchester-city/
 
