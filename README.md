@@ -1,4 +1,4 @@
-**The Briefing: Fulham 1 Palace 2 - Fulham 1 Palace 2 - How good was that team goal? Was Munoz missed? How do they keep finding a way?**\
+**The Briefing: Fulham 1 Palace 2 - How good was that team goal? Was Munoz missed? How do they keep finding a way?**\
 `Matt Woosnam breaks down the talking points from the victory at Craven Cottage.`\
 https://nytimes.com/athletic/6870088/2025/12/07/palace-munoz-wharton-fulham/
 

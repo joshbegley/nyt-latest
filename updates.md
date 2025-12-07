@@ -1,3 +1,7 @@
+**The Briefing: Fulham 1 Palace 2 - Fulham 1 Palace 2 - How good was that team goal? Was Munoz missed? How do they keep finding a way?**\
+`Matt Woosnam breaks down the talking points from the victory at Craven Cottage.`\
+https://nytimes.com/athletic/6870088/2025/12/07/palace-munoz-wharton-fulham/
+
 **College Football Playoff's first round: What you need to know about each game**\
 `Early breakdowns of Alabama at Oklahoma, James Madison at Oregon, Miami at Texas A&M and Tulane at Ole Miss in the College Football Playoff.`\
 https://nytimes.com/athletic/6869778/2025/12/07/college-football-playoff-first-round-games-schedule/

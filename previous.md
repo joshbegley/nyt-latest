@@ -1,3 +1,7 @@
+**The Briefing: Fulham 1 Palace 2 - Fulham 1 Palace 2 - How good was that team goal? Was Munoz missed? How do they keep finding a way?**\
+`Matt Woosnam breaks down the talking points from the victory at Craven Cottage.`\
+https://nytimes.com/athletic/6870088/2025/12/07/palace-munoz-wharton-fulham/
+
 **How to watch Blackhawks vs. Ducks: Time, TV, streaming**\
 `Find out how to watch the Chicago Blackhawks play the Anaheim Ducks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6870488/2025/12/07/blackhawks-vs-ducks-stream-how-to-watch-dec-7/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6870150/2025/12/07/college-football-national-title-
 **Why Lando Norris escaped penalty for a pass that nearly cost him the title**\
 `Yuki Tsunoda's defending tactics almost forced Norris into a title-losing error in Abu Dhabi`\
 https://nytimes.com/athletic/6870095/2025/12/07/lando-norris-yuki-tsunoda-abu-dhabi-f1/
-
-**College Football Playoff's first round: What you need to know about each game**\
-`Early breakdowns of Alabama at Oklahoma, James Madison at Oregon, Miami at Texas A&M and Tulane at Ole Miss in the College Football Playoff.`\
-https://nytimes.com/athletic/6869778/2025/12/07/college-football-playoff-first-round-games-schedule/
 
