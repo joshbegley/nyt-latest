@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6868605/2025/12/06/brad-marchand-panthers-blue-jackets-overtime-bench/
 
+**Brad Marchand sneakily intrudes on Blue Jackets bench during OT timeout**\
+`Moments after the shenanigans, Marchand set up Sam Bennett for the game-winning goal as Florida beat Columbus 7-6.
+`\
+https://nytimes.com/athletic/6868605/2025/12/06/brad-marchand-panthers-blue-jackets-overtime-bench/
+
 **Trump Administration Waives $11 Million Southwest Airlines Fine**\
 `The penalty was part of a fine imposed by the Biden administration after it determined the airline had failed to provide prompt customer service and refunds to passengers in 2022.`\
 https://nytimes.com/2025/12/06/us/politics/trump-southwest-airlines-fine.html
