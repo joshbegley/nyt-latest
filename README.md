@@ -23,7 +23,7 @@ https://nytimes.com/athletic/6868741/2025/12/06/kerry-coombs-michigan-hiring-ohi
 https://nytimes.com/athletic/6868725/2025/12/06/jalen-johnson-triple-double-hawks-all-star/
 
 **Rangers overmatched but not overwhelmed by MacKinnon and Avalanche, plus 10 more thoughts**\
-`New York was overmatched in terms of star power, but never looked overwhelmed in a 3-2 overtime loss to the NHL-leading Avalanche.`\
+`Beat writer Vince Z. Mercogliano breaks down how the Rangers fared against one of the NHL's best in the Colorado Avalanche.`\
 https://nytimes.com/athletic/6868436/2025/12/06/new-york-rangers-avalanche-nathan-mackinnon/
 
 **Cowboys' George Pickens rips Richard Sherman: 'Don't speak on me unless you know the game'**\
