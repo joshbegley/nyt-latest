@@ -1,3 +1,15 @@
+**Out With the Beige and the Boring**\
+`Quiet luxury is in the past, and being loud is now.`\
+https://nytimes.com/2025/12/07/special-series/harris-reed-maximalism-fashion.html
+
+**You Put the Rum in the Cookie and You Eat It All Up**\
+`By Vaughn Vreeland`\
+https://nytimes.com/2025/12/07/dining/you-put-the-rum-in-the-cookie-and-you-eat-it-all-up.html
+
+**College Football Playoff 2025 projections: Who's favored to advance in the bracket?**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/12/07/college-football-playoff-bracket-projections-odds/
+
 **College Football Playoff committee did a bad job, but pink slip is no option — here’s the fix**\
 `The field should always be selected by humans. The fix is more access. More explanation. More transparency. More accountability.`\
 https://nytimes.com/athletic/6870090/2025/12/07/college-football-playoff-miami-notre-dame-alabama/
