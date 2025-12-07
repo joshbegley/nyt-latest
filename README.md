@@ -23,7 +23,7 @@ https://nytimes.com/2025/12/07/obituaries/fern-michaels-dead.html
 https://nytimes.com/athletic/6869769/2025/12/07/college-football-playoff-predictions-brackets/
 
 **Jayden Daniels leaves Commanders-Vikings game after reinjuring left elbow**\
-`After missing three games with a dislocated left elbow, Daniels was hurt again with the Commanders trailing in Minnesota.`\
+`After Daniels was injured, Washington tight end Zach Ertz was ruled out with a knee injury and left the field in tears.`\
 https://nytimes.com/athletic/6870517/2025/12/07/jayden-daniels-elbow-injured-commanders/
 
 **The Briefing: Fulham 1 Palace 2 - How good was that team goal? Was Munoz missed? How do they keep finding a way?**\
