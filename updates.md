@@ -1,3 +1,11 @@
+**How will altitude affect the World Cup? 'Running back and taking a breath is what costs you'**\
+`Games in Mexico will be particularly affected and the conditions can significantly change players' ability to operate at their normal levels`\
+https://nytimes.com/athletic/6864645/2025/12/07/the-impact-of-altitude-on-world-cup-2026-running-back-and-taking-a-breath-is-what-costs-you/
+
+**Heathrow Airport Is Briefly Locked Down After Spray Is Used in Altercation**\
+`One man was arrested after a substance that appeared to be pepper spray was used during a fight in one of the airport’s parking garages, the police said.`\
+https://nytimes.com/2025/12/07/world/europe/heathrow-airport-lockdown.html
+
 **Mariners, Nationals both do well in Jose Ferrer-for-Harry Ford swap**\
 `Ford was a top-100 prospect but there were questions about his defense and in-game power. Ferrer's 2025 ERA doesn't represent his upside.`\
 https://nytimes.com/athletic/6868900/2025/12/07/harry-ford-jose-ferrer-nationals-mariners-trade/
