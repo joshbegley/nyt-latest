@@ -1,3 +1,7 @@
+**They Witness Deaths on the Tracks and Then Struggle to Get Help**\
+`After train operators are involved in fatal strikes, the agency that runs New York City’s subway often leaves them to fend for themselves.`\
+https://nytimes.com/interactive/2025/12/07/nyregion/subway-deaths-train-operators-ptsd.html
+
 **Trump Blasts Lawmaker for Remaining Democrat After Receiving Pardon**\
 `Days after pardoning him, President Trump accused Representative Henry Cuellar of Texas of disloyalty for not switching to the Republican Party.`\
 https://nytimes.com/2025/12/07/us/politics/trump-henry-cuellar-democrat-run-criticism.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6870170/2025/12/07/bengals-bills-score-result-takea
 **Jags take AFC South lead; reeling Colts lose QB Daniel Jones: Takeaways**\
 `The Jaguars beat the Colts for their fourth straight win, while Indianapolis' playoff hopes are in jeopardy after a third straight loss.`\
 https://nytimes.com/athletic/6870140/2025/12/07/colts-jaguars-score-result-takeaways-nfl/
-
-**Commanders, Jets, Falcons and Browns eliminated from playoff contention**\
-`The Commanders, Jets and Falcons all entered the season with different expectations, but each will watch the postseason from home this year.`\
-https://nytimes.com/athletic/6870565/2025/12/07/commanders-jets-falcons-playoff-elimination/
 

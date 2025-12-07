@@ -1,3 +1,7 @@
+**They Witness Deaths on the Tracks and Then Struggle to Get Help**\
+`After train operators are involved in fatal strikes, the agency that runs New York City’s subway often leaves them to fend for themselves.`\
+https://nytimes.com/interactive/2025/12/07/nyregion/subway-deaths-train-operators-ptsd.html
+
 **Dolphins-Jets takeaways: Miami wins fourth straight, loses De'Von Achane**\
 `The Jets lost Tyrod Taylor in the first quarter to a groin injury, and struggled mightily on offense.`\
 https://nytimes.com/athletic/6870124/2025/12/07/dolphins-jets-score-result-takeaways-nfl/
