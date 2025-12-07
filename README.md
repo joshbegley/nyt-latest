@@ -1,3 +1,15 @@
+**Are Aston Villa title contenders?**\
+`After beating Premier League leaders Arsenal, Villa are three points off the top. They couldn't, could they?`\
+https://nytimes.com/athletic/6867223/2025/12/07/aston-villa-title-contenders-arsenal/
+
+**Cherki's rabona assist and a moment to make you gasp**\
+`The Frenchman's moment of exquisite skill left all who saw it dumbfounded. But what does it mean for his City career?`\
+https://nytimes.com/athletic/6867542/2025/12/07/rayan-cherki-rabona-assist-manchester-city/
+
+**Mikel Arteta is ready to respond. Will his Arsenal players?**\
+`Arsenal's 18-game unbeaten run came to an end against Villa - the manager has no doubt his players can bounce back`\
+https://nytimes.com/athletic/6867660/2025/12/07/arsenal-mikel-arteta-response-defeat-title/
+
 **A lesson from history: The warmer the climate, the better the World Cup**\
 `Despite fears of soaring temperatures, the 1970 and 1982 editions are regarded as classics`\
 https://nytimes.com/athletic/6866147/2025/12/07/world-cup-history-temperature-quality/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/12/07/world/asia/hong-kong-fire-election-campaign.html
 **What to Know About Australia’s Social Media Ban**\
 `The country is barring children under 16 from social media, with a sweeping federal law that is one of the first attempts at a nationwide regulation.`\
 https://nytimes.com/2025/12/07/world/asia/australia-social-media-ban-how-what.html
-
-**Cynthia Erivo Loves to Read While Getting Tattooed**\
-`“I have to be still for a certain amount of time,” says the “Wicked” star and author of “Simply More: A Book for Anyone Who Has Been Told They’re Too Much.”`\
-https://nytimes.com/2025/12/07/books/review/cynthia-erivo-wicked-simply-more.html
-
-**Connections: Sports Edition Coach: Hints for Dec. 7, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6868998/2025/12/07/connections-sports-edition-hints-for-dec-7-2025/
-
-**Corrections: Dec. 7, 2025**\
-`Corrections that appeared in print on Sunday, Dec. 7, 2025.`\
-https://nytimes.com/2025/12/07/pageoneplus/corrections-dec-7-2025.html
 
