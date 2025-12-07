@@ -1,6 +1,14 @@
+**Japan Says China Aimed Military Radar at Its Fighter Jets**\
+`Beijing disputed the accusation, the latest flare-up in a festering dispute between the two countries.`\
+https://nytimes.com/2025/12/07/world/asia/japan-china-fighter-jets.html
+
 **Ohio State was nearly perfect. Then little problems became big ones in Indy**\
 `The Buckeyes still have an elite defense, and it can carry them deep into the Playoff. But the offense also has to do its part.`\
 https://nytimes.com/athletic/6869214/2025/12/07/ohio-state-indiana-ryan-day/
+
+**College Football Playoff 2025-26: What to know about the selection process and the format's future**\
+`Everything you need to know about this year's College Football Playoff. `\
+https://nytimes.com/athletic/6780128/2025/12/07/college-football-playoff-changes-format-metrics/
 
 **Hong Kong Man Arrested After Posting Online About Deadly Fire**\
 `The arrest was part of a crackdown on speech that the authorities say is inciting hatred of the government. Critics say officials are silencing calls for accountability.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6868092/2025/12/07/college-football-playoff-bracket
 **Mohamed Salah's outburst was selfish and disrespectful. He has let Liverpool down**\
 `The forward is an icon at Liverpool, but airing his complaints heaps more negativity on the club and betrays a glaring lack of self awarenes`\
 https://nytimes.com/athletic/6867847/2025/12/07/mohamed-salah-liverpool-slot-selfish-disrespectful/
-
-**Toxic Tottenham? Frank has turned fans away from the boos, for now at least**\
-`Jack Lang went to north London expecting anger and anguish but he got nothing of the sort`\
-https://nytimes.com/athletic/6868054/2025/12/07/tottenham-thomas-frank-brentford-atmosphere/
-
-**College Football Playoff 2025 projections: Who has locked up a bid? Who's on the bubble?**\
-`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
-https://nytimes.com/athletic/6560541/2025/12/07/college-football-playoff-bracket-projections-odds/
 
