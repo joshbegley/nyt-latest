@@ -1,3 +1,7 @@
+**The Ashes Briefing: Australia stroll to Gabba win, so what now for England?**\
+`The hosts' grip on the Ashes has been tightened after they went 2-0 up despite a session of resistance from Ben Stokes and Will Jacks`\
+https://nytimes.com/athletic/6868956/2025/12/07/ashes-australia-england-stokes-jacks-neser/
+
 **Superpower Competition: The Missing Chapter in Trump’s Security Strategy**\
 `President Trump is shifting from discussion of the long-lasting competition among the world’s biggest economies and nuclear powers.`\
 https://nytimes.com/2025/12/07/us/politics/trump-security-strategy-superpowers.html
