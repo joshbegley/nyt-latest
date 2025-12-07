@@ -1,3 +1,15 @@
+**Not All Targeted Killings Are the Same. Hegseth’s Boat Strikes Are Illegal.**\
+`A former secretary of homeland security on the illegality of Trump’s boat strikes.`\
+https://nytimes.com/2025/12/07/opinion/hegseth-boat-strikes-killings.html
+
+**Not All Targeted Killings Are the Same. Hegseth’s Boat Strikes Are Illegal.**\
+`A former secretary of homeland security on the illegality of Trump’s boat strikes.`\
+https://nytimes.com/2025/12/07/opinion/hegseth-boat-strikes-killings.html
+
+**Pat Spencer, stepping up for Warriors, is showing that he is that ... you know what**\
+`With Golden State shorthanded, Spencer has stepped into a big role and proven he's much more than a lacrosse player in the NBA.`\
+https://nytimes.com/athletic/6869550/2025/12/07/pat-spencer-golden-state-warriors-cavaliers/
+
 **How to watch Celtics vs. Raptors: Time, TV, streaming**\
 `Find out how to watch the Boston Celtics play the Toronto Raptors, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6869748/2025/12/07/celtics-vs-raptors-stream-how-to-watch-dec-7/
