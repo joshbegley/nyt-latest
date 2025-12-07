@@ -1,3 +1,7 @@
+**'Flippin' champs': Fernando Mendoza gives emotional interview after Indiana's win**\
+`The Hoosiers quarterback earned MVP in the Hoosiers Big Ten championship game win over Ohio State.`\
+https://nytimes.com/athletic/6869149/2025/12/07/francisco-mendoza-interview-indiana/
+
 **The New York Times in Print for Sunday, Dec. 7, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/12/07/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6867542/2025/12/07/rayan-cherki-rabona-assist-manch
 **Mikel Arteta is ready to respond. Will his Arsenal players?**\
 `Arsenal's 18-game unbeaten run came to an end against Villa - the manager has no doubt his players can bounce back`\
 https://nytimes.com/athletic/6867660/2025/12/07/arsenal-mikel-arteta-response-defeat-title/
-
-**A lesson from history: The warmer the climate, the better the World Cup**\
-`Despite fears of soaring temperatures, the 1970 and 1982 editions are regarded as classics`\
-https://nytimes.com/athletic/6866147/2025/12/07/world-cup-history-temperature-quality/
 
