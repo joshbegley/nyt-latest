@@ -1,3 +1,7 @@
+**Ben Stokes must prove his England is no country for 'weak men'**\
+`The beaten captain made clear his frustration and questioned the mentality of some in his team as he contemplated defeat at the Gabba`\
+https://nytimes.com/athletic/6869420/2025/12/07/ben-stokes-england-ashes-australia-weak-men/
+
 **Not All Targeted Killings Are the Same. Hegseth’s Boat Strikes Are Illegal.**\
 `A former secretary of homeland security on the illegality of Trump’s boat strikes.`\
 https://nytimes.com/2025/12/07/opinion/hegseth-boat-strikes-killings.html

@@ -1,3 +1,7 @@
+**Ben Stokes must prove his England is no country for 'weak men'**\
+`The beaten captain made clear his frustration and questioned the mentality of some in his team as he contemplated defeat at the Gabba`\
+https://nytimes.com/athletic/6869420/2025/12/07/ben-stokes-england-ashes-australia-weak-men/
+
 **Not All Targeted Killings Are the Same. Hegseth’s Boat Strikes Are Illegal.**\
 `A former secretary of homeland security on the illegality of Trump’s boat strikes.`\
 https://nytimes.com/2025/12/07/opinion/hegseth-boat-strikes-killings.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6869705/2025/12/07/maryland-eastern-shore-vs-oklaho
 **How to watch Maryland vs. Minnesota women's basketball: Time, TV, streaming**\
 `Find out how to watch the Maryland Terrapins play the Minnesota Golden Gophers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6869704/2025/12/07/maryland-vs-minnesota-stream-how-to-watch-dec-7/
-
-**How to watch Oregon vs. UCLA women's basketball: Time, TV, streaming**\
-`Find out how to watch the Oregon Ducks play the UCLA Bruins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6869701/2025/12/07/oregon-vs-ucla-stream-how-to-watch-dec-7/
 
