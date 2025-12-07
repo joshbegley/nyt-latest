@@ -1,3 +1,15 @@
+**Magic's Franz Wagner injures lower left leg in loss to Knicks**\
+`Wagner, who is putting up some of the best numbers of his career in Orlando, landed awkwardly on a lob attempt in the first quarter Sunday.`\
+https://nytimes.com/athletic/6870554/2025/12/07/franz-wagner-orlando-magic-leg-injury/
+
+**Trump Takes a Starring Role at the Kennedy Center Honors**\
+`Past presidents have attended the marquee event, but on Sunday Mr. Trump will be the first to host it, putting his cultural takeover of Washington in sharp relief.`\
+https://nytimes.com/2025/12/07/us/politics/trump-kennedy-center-honors.html
+
+**Democrats Call for Releasing Classified Video of Deadly Boat Attacks**\
+`Top Democratic lawmakers who have seen the footage said Sunday that making the video public would provide transparency around the strikes that killed two survivors on Sept. 2.`\
+https://nytimes.com/2025/12/07/us/politics/democrats-boat-strike-video-release.html
+
 **How the SEC’s 5 Playoff bids, including Alabama, were a year in the making**\
 `The SEC reeled in four of the seven at-large bids in this year's Playoff, a major victory for the conference.`\
 https://nytimes.com/athletic/6870483/2025/12/07/sec-college-football-playoff-greg-sankey/
@@ -22,19 +34,7 @@ https://nytimes.com/2025/12/07/obituaries/fern-michaels-dead.html
 `Our experts have different champions, but all agree that Alabama should not be in the field.`\
 https://nytimes.com/athletic/6869769/2025/12/07/college-football-playoff-predictions-brackets/
 
-**Jayden Daniels leaves Commanders-Vikings game after reinjuring left elbow**\
+**Jayden Daniels leaves Commanders' loss to Vikings after reinjuring left elbow**\
 `After Daniels was injured, Washington tight end Zach Ertz was ruled out with a knee injury and left the field in tears.`\
 https://nytimes.com/athletic/6870517/2025/12/07/jayden-daniels-elbow-injured-commanders/
-
-**The Briefing: Fulham 1 Palace 2 - How good was that team goal? Was Munoz missed? How do they keep finding a way?**\
-`Matt Woosnam breaks down the talking points from the victory at Craven Cottage`\
-https://nytimes.com/athletic/6870088/2025/12/07/palace-munoz-wharton-fulham/
-
-**How to watch Blackhawks vs. Ducks: Time, TV, streaming**\
-`Find out how to watch the Chicago Blackhawks play the Anaheim Ducks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6870488/2025/12/07/blackhawks-vs-ducks-stream-how-to-watch-dec-7/
-
-**How to watch Lakers vs. 76ers: Time, TV, streaming**\
-`Find out how to watch the Los Angeles Lakers play the Philadelphia 76ers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6870485/2025/12/07/lakers-vs-76ers-stream-how-to-watch-dec-7/
 
