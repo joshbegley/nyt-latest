@@ -1,3 +1,7 @@
+**Hundreds Rally for Boy, 6, Who Was Separated From His Father by ICE**\
+`“Taking children from their families is not normal,” a speaker told the crowd in Queens, where Yuanxin Zheng attended school until being detained.`\
+https://nytimes.com/2025/12/07/nyregion/queens-migrant-boy-detained-rally.html
+
 **How did Tulane and James Madison end up in the College Football Playoff?**\
 `Thanks to an ACC tiebreaker, James Madison earned a bid to the College Football Playoff.`\
 https://nytimes.com/athletic/6870381/2025/12/07/tulane-james-madison-college-football-playoff-group-of-five/
