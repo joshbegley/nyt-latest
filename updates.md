@@ -1,3 +1,11 @@
+**The New York Times in Print for Sunday, Dec. 7, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/12/07/todays-new-york-times
+
+**Buy Better, Buy Less, Feel Smug About It**\
+`Being a smart consumer has never been easier. Influencers and the fashion industry are all taking advantage of that.`\
+https://nytimes.com/2025/12/07/opinion/fashion-quality-ethical-consumption.html
+
 **College Football Playoff takeaways: Alabama, ACC on the bubble as Indiana claims No. 1**\
 `What we learned about the College Football Playoff as conference championship games provided the final data points.`\
 https://nytimes.com/athletic/6868092/2025/12/07/college-football-playoff-bracket-conference-championship-results/
