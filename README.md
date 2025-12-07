@@ -1,3 +1,7 @@
+**How Lando Norris claimed F1 world championship to cap McLaren's dominant season**\
+`Norris nailed the Abu Dhabi Grand Prix when it mattered and now he's celebrating his first world championship.`\
+https://nytimes.com/athletic/6869839/2025/12/07/lando-norris-f1-world-championship-mclaren/
+
 **Until Saturday: Bama, Miami or Notre Dame? Pick two**\
 `Until Saturday is The Athletic's free college football newsletter.`\
 https://nytimes.com/athletic/6869826/2025/12/07/miami-alabama-playoff-rankings-until-saturday/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/07/opinion/love-for-america.html
 **How should Pelicans approach trade market for Zion Williamson, Trey Murphy?**\
 `The Pelicans are 3-21 with two months remaining before the NBA trade deadline. How should the team approach the constant trade rumors?`\
 https://nytimes.com/athletic/6869399/2025/12/07/pelicans-zion-nba-trade-trey-murphy-herb-jones/
-
-**Ben Stokes must prove his England is no country for 'weak men'**\
-`The beaten captain made clear his frustration and questioned the mentality of some in his team as he contemplated defeat at the Gabba`\
-https://nytimes.com/athletic/6869420/2025/12/07/ben-stokes-england-ashes-australia-weak-men/
 
