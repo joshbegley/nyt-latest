@@ -1,3 +1,16 @@
+**In Honduras, Some Voters Were Swayed by Trump, Others Angered**\
+`President Trump backed Nasry Asfura days before the Nov. 30 election and denounced his opponents. In a close race, that has potentially tipped the scales.`\
+https://nytimes.com/2025/12/06/world/americas/honduras-voters-trump-election.html
+
+**Colorful 'Silent Night' court-storming returns to Indiana university**\
+`Taylor University celebrates "Silent Night" tradition in a colorful way.`\
+https://nytimes.com/athletic/6868444/2025/12/06/silent-night-court-storming-taylor-university/
+
+**Brad Marchand sneakily intrudes on Blue Jackets bench during OT timeout**\
+`Moments after the shenanigans, Marchand set up Sam Bennett for the game-winning goal as Florida beat Columbus 7-6.
+`\
+https://nytimes.com/athletic/6868605/2025/12/06/brad-marchand-panthers-blue-jackets-overtime-bench/
+
 **Brad Marchand sneakily intrudes on Blue Jackets bench during OT timeout**\
 `Moments after the shenanigans, Marchand set up Sam Bennett for the game-winning goal as Florida beat Columbus 7-6.
 `\
