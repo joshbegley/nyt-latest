@@ -1,3 +1,7 @@
+**Judge Halts Justice Dept. Effort to Seek New Comey Indictment**\
+`The judge’s decision prevented the government until at least next Friday from having access to much of the evidence it used to secure its original indictment against Mr. Comey.`\
+https://nytimes.com/2025/12/06/us/politics/judge-comey-indictment-richman.html
+
 **Montana State coach, player have intense exchange after game**\
 `Julius Davis and coach Brent Vigen had a brief, tense confrontation after the Bobcats' win.`\
 https://nytimes.com/athletic/6868732/2025/12/06/julius-davis-montana-state-altercation-coach/

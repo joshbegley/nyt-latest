@@ -1,3 +1,7 @@
+**Judge Halts Justice Dept. Effort to Seek New Comey Indictment**\
+`The judge’s decision prevented the government until at least next Friday from having access to much of the evidence it used to secure its original indictment against Mr. Comey.`\
+https://nytimes.com/2025/12/06/us/politics/judge-comey-indictment-richman.html
+
 **Montana State coach, player have intense exchange after game**\
 `Julius Davis and coach Brent Vigen had a brief, tense confrontation after the Bobcats' win.`\
 https://nytimes.com/athletic/6868732/2025/12/06/julius-davis-montana-state-altercation-coach/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6868741/2025/12/06/kerry-coombs-michigan-hiring-ohi
 **Jalen Johnson's NBA All-Star bid is growing one triple-double at a time**\
 `The Atlanta Hawks forward continued to build his case for his first All-Star nod.`\
 https://nytimes.com/athletic/6868725/2025/12/06/jalen-johnson-triple-double-hawks-all-star/
-
-**Rangers overmatched but not overwhelmed by MacKinnon and Avalanche, plus 10 more thoughts**\
-`Beat writer Vince Z. Mercogliano breaks down how the Rangers fared against one of the NHL's best in the Colorado Avalanche.`\
-https://nytimes.com/athletic/6868436/2025/12/06/new-york-rangers-avalanche-nathan-mackinnon/
 
