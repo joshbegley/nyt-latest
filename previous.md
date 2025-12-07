@@ -1,40 +1,40 @@
+**A Grand Social Media Experiment Begins in Australia**\
+`The country is trying to wean children under 16 off the likes of TikTok, Snapchat, YouTube and Instagram with a new law. The teenagers are skeptical.`\
+https://nytimes.com/2025/12/07/world/asia/australia-social-media-ban-under-16.html
+
+**Quote of the Day: Reche Canyon’s Plentiful, Calamitous, and Beloved, Burros**\
+`Quotation of the Day for Sunday, December 7, 2025.`\
+https://nytimes.com/2025/12/07/pageoneplus/quote-of-the-day-reche-canyons-plentiful-calamitous-and-beloved-burros.html
+
+**Hong Kong Holds Vote as Officials Move Against ‘Anti-China’ Elements**\
+`The government is pushing hard to raise turnout in an election overshadowed by a deadly fire and public anger over safety lapses and official accountability.`\
+https://nytimes.com/2025/12/07/world/asia/hong-kong-fire-election-campaign.html
+
+**What to Know About Australia’s Social Media Ban**\
+`The country is barring children under 16 from social media, with a sweeping federal law that is one of the first attempts at a nationwide regulation.`\
+https://nytimes.com/2025/12/07/world/asia/australia-social-media-ban-how-what.html
+
+**Cynthia Erivo Loves to Read While Getting Tattooed**\
+`“I have to be still for a certain amount of time,” says the “Wicked” star and author of “Simply More: A Book for Anyone Who Has Been Told They’re Too Much.”`\
+https://nytimes.com/2025/12/07/books/review/cynthia-erivo-wicked-simply-more.html
+
+**Connections: Sports Edition Coach: Hints for Dec. 7, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6868998/2025/12/07/connections-sports-edition-hints-for-dec-7-2025/
+
+**Corrections: Dec. 7, 2025**\
+`Corrections that appeared in print on Sunday, Dec. 7, 2025.`\
+https://nytimes.com/2025/12/07/pageoneplus/corrections-dec-7-2025.html
+
+**Landon Donovan joins The Athletic Show to debate whether USMNT will fly or flop at World Cup**\
+`Episode 6 of "The Athletic Show" is available now. `\
+https://nytimes.com/athletic/6863516/2025/12/06/the-athletic-show-landon-donovan-world-cup/
+
+**College Football Playoff 2025 projections: Who has locked up a bid? Who's on the bubble?**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/12/06/college-football-playoff-bracket-projections-odds/
+
 **Fire in Goa, India, Kills at Least 25**\
 `Officials told the Indian news media that the fire tore through a nightclub in the southwestern state of Goa, a popular tourist destination.`\
 https://nytimes.com/2025/12/06/world/asia/goa-india-nightclub-fire.html
-
-**Popular basketball YouTuber Tristan Jass having brain surgery**\
-`Jass told his more than 5 million YouTube subscribers that he's been mentally preparing for surgery for weeks.`\
-https://nytimes.com/athletic/6868935/2025/12/06/tristan-jass-brain-surgery/
-
-**Indiana outlasts Ohio State for Big Ten title, CFP No. 1 seed**\
-`Indiana won its first outright Big Ten title since 1945 by knocking off the previously perfect Buckeyes.`\
-https://nytimes.com/athletic/6868835/2025/12/06/ohio-state-indiana-big-ten-championship/
-
-**Judge Halts Justice Dept. Effort to Seek New Comey Indictment**\
-`The judge’s decision prevented the government until at least next Friday from having access to much of the evidence it used to secure its original indictment against Mr. Comey.`\
-https://nytimes.com/2025/12/06/us/politics/judge-comey-indictment-richman.html
-
-**Montana State coach, player have intense exchange after game**\
-`Julius Davis and coach Brent Vigen had a brief, tense confrontation after the Bobcats' win.`\
-https://nytimes.com/athletic/6868732/2025/12/06/julius-davis-montana-state-altercation-coach/
-
-**A big reason for East-leading Pistons' success? Thriving in back-to-backs**\
-`The Pistons' depth has been one of their strong suits all season.`\
-https://nytimes.com/athletic/6868734/2025/12/06/pistons-win-back-to-back-bucks/
-
-**As MLS Cup shows, even the GOAT and a deserving champ can benefit from a little luck**\
-`Inter Miami makes for a worthy MLS champion, but one sequence in particular demonstrates how close Vancouver came to spoiling the party`\
-https://nytimes.com/athletic/6868838/2025/12/06/mls-cup-inter-miami-vancouver-whitecaps-sabbi-post-messi-mascherano/
-
-**James Harden passes Carmelo Anthony on NBA all-time scoring list: 'I'm blessed. I'm grateful'**\
-`Now a top-10 scorer in NBA history, James Harden has made a career of buckets since being drafted third overall in 2009.`\
-https://nytimes.com/athletic/6868678/2025/12/06/james-harden-passes-carmelo-anthony-scoring-list/
-
-**Don't blame the SEC championship if Alabama misses the Playoff. Blame the Crimson Tide**\
-`Alabama looks like a team that peaked two months ago, and that's why its Playoff status remains a question heading into Sunday.`\
-https://nytimes.com/athletic/6868817/2025/12/06/alabama-georgia-sec-championship-college-football-playoff/
-
-**Hegseth Skirts Questions About Releasing Video of Sept. 2 Boat Attack**\
-`At an appearance in California, Defense Secretary Pete Hegseth was noncommittal about releasing the full video of a U.S. military attack on a boat in the Caribbean.`\
-https://nytimes.com/2025/12/06/us/politics/pete-hegseth-boat-attack-video.html
 
