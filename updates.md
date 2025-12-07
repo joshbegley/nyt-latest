@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6869140/2025/12/07/blackhawks-loss-kings-progress/
 
+**Blackhawks' Hollywood flop vs. Kings shows progress isn't always linear**\
+`The Blackhawks fell apart over the second and third periods in a ghastly 6-0 loss to a normally anemic Kings team Saturday night.
+`\
+https://nytimes.com/athletic/6869140/2025/12/07/blackhawks-loss-kings-progress/
+
 **MLS Cup ends one era for Messi in Miami – and ushers in a more ambitious future**\
 `An MLS Cup title shuts the door on the first iteration of Messi in Miami. With a new stadium and running mates beckoning, what comes next?`\
 https://nytimes.com/athletic/6869066/2025/12/07/inter-miami-lionel-messi-mls-cup-future/
