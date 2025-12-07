@@ -1,3 +1,11 @@
+**How did Tulane and James Madison end up in the College Football Playoff?**\
+`Thanks to an ACC tiebreaker, James Madison earned a bid to the College Football Playoff.`\
+https://nytimes.com/athletic/6870381/2025/12/07/tulane-james-madison-college-football-playoff-group-of-five/
+
+**Madrid suffer shock home loss to Celta Vigo as Militao goes off injured**\
+`The centre-back was forced off around the 24th minute of Madrid's first league loss at the Bernabeu this season.`\
+https://nytimes.com/athletic/6870697/2025/12/07/real-madrid-celta-vigo-militao-injury-alonso/
+
 **Hardest to Find**\
 `Get into Dan Kammann and Zhouqin Burnikel’s crossword.`\
 https://nytimes.com/2025/12/07/crosswords/daily-puzzle-2025-12-08.html

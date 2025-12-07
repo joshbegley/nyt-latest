@@ -1,3 +1,7 @@
+**Hundreds Rally for Boy, 6, Who Was Separated From His Father by ICE**\
+`“Taking children from their families is not normal,” a speaker told the crowd in Queens, where Yuanxin Zheng attended school until being detained.`\
+https://nytimes.com/2025/12/07/nyregion/queens-migrant-boy-detained-rally.html
+
 **How did Tulane and James Madison end up in the College Football Playoff?**\
 `Thanks to an ACC tiebreaker, James Madison earned a bid to the College Football Playoff.`\
 https://nytimes.com/athletic/6870381/2025/12/07/tulane-james-madison-college-football-playoff-group-of-five/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/07/us/politics/trump-henry-cuellar-democrat-run-crit
 **Steelers-Ravens takeaways: Pittsburgh offense reignites, climbs atop AFC North**\
 `The AFC North rivals both entered the day with a 6-6 record coming off a loss, but it was the Steelers who came out firing.`\
 https://nytimes.com/athletic/6870417/2025/12/07/steelers-ravens-score-result-takeaways-nfl/
-
-**Titans-Browns Takeaways: Tennessee spoils Shedeur Sanders career day**\
-`The Browns drop to 3-10 and are officially eliminated from playoff contention.`\
-https://nytimes.com/athletic/6869846/2025/12/07/titans-browns-scores-results-takeaways-nfl/
 
