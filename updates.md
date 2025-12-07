@@ -1,3 +1,11 @@
+**Virginia Tech coach Pry, fired in September, returning as DC for his replacement**\
+`Franklin fought back tears during his introductory news conference in November while acknowledging Pry, his friend and former assistant.`\
+https://nytimes.com/athletic/6869181/2025/12/07/brent-pry-virginia-tech-james-franklin/
+
+**Footballer arrested in London on suspicion of assault and affray**\
+`The victim's injuries are not believed to be life-changing or life-threatening, the Metropolitan Police confirmed on Sunday. `\
+https://nytimes.com/athletic/6869905/2025/12/07/footballer-arrest-london/
+
 **Everton end Chelsea's 34-match WSL unbeaten run with 1-0 win**\
 `The Merseyside club went into the match having not won a league game since their season opener in September.`\
 https://nytimes.com/athletic/6870073/2025/12/07/chelsea-wsl-everton-unbeaten-run-broken/
