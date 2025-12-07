@@ -1,3 +1,11 @@
+**Cowboys' George Pickens rips Richard Sherman: 'Don't speak on me unless you know the game'**\
+`Dallas coach Brian Schottenheimer says he would speak to Pickens about the since-deleted Instagram post regarding Sherman, a former All-Pro.`\
+https://nytimes.com/athletic/6868625/2025/12/06/george-pickens-richard-sherman-beef/
+
+**Francis Ford Coppola’s Watch Sold for $11 Million. It’s Not for Everyone.**\
+`Frenzied bidding pushed the polarizing F.P. Journe timepiece into near-record territory despite one dealer calling the design “goofy.”`\
+https://nytimes.com/2025/12/06/style/francis-ford-coppola-watch-auction-fp-journe.html
+
 **In Honduras, Some Voters Were Swayed by Trump, Others Angered**\
 `President Trump backed Nasry Asfura days before the Nov. 30 election and denounced his opponents. In a close race, that has potentially tipped the scales.`\
 https://nytimes.com/2025/12/06/world/americas/honduras-voters-trump-election.html
@@ -30,12 +38,4 @@ https://nytimes.com/2025/12/06/us/politics/trump-southwest-airlines-fine.html
 **Georgia surges into Playoff as team to be feared, leaving Alabama to sweat out selection Sunday**\
 `Georgia and Kirby Smart exorcised years of demons with a dominant win over Alabama to win another SEC championship.`\
 https://nytimes.com/athletic/6868619/2025/12/06/georgia-alabama-score-result/
-
-**Antonio Brown seeks dismissal of attempted murder case, citing 'stand your ground' law**\
-`Brown faces a second-degree attempted murder charge following an altercation at a boxing match in May.`\
-https://nytimes.com/athletic/6868526/2025/12/06/antonio-brown-case-dismissal-attempted-murder-charge/
-
-**California Discourages Wild Mushroom Foraging After Fatal Outbreak**\
-`Officials said one person was killed and 20 others were poisoned after eating death cap mushrooms, which look and taste like safe mushrooms but can cause liver failure.`\
-https://nytimes.com/2025/12/06/us/california-wild-mushrooms-poison.html
 
