@@ -1,8 +1,16 @@
+**I Hit the Art Basel Superfecta**\
+`But what was the payout? A critic survives the four-season journey to the premium art fair in Hong Kong, Basel, Paris and now Miami Beach. Here are his takeaways.`\
+https://nytimes.com/2025/12/07/arts/design/art-basel-superfecta-all-four-fairs.html
+
+**Bengals-Bills takeaways: Josh Allen rallies Buffalo in fourth-quarter comeback**\
+`Buffalo capitalized on grave mistakes by Joe Burrow in the second half of Week 14.`\
+https://nytimes.com/athletic/6870170/2025/12/07/bengals-bills-score-result-takeaways-nfl/
+
 **Jags take AFC South lead; reeling Colts lose QB Daniel Jones: Takeaways**\
 `The Jaguars beat the Colts for their fourth straight win, while Indianapolis' playoff hopes are in jeopardy after a third straight loss.`\
 https://nytimes.com/athletic/6870140/2025/12/07/colts-jaguars-score-result-takeaways-nfl/
 
-**Commanders, Jets and Falcons eliminated from playoffs: Where do they go from here?**\
+**Commanders, Jets, Falcons and Browns eliminated from playoff contention**\
 `The Commanders, Jets and Falcons all entered the season with different expectations, but each will watch the postseason from home this year.`\
 https://nytimes.com/athletic/6870565/2025/12/07/commanders-jets-falcons-playoff-elimination/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/07/world/syria-anniversary-assad-benin-trump.html
 **Magic's Franz Wagner injures lower left leg in loss to Knicks**\
 `Wagner, who is putting up some of the best numbers of his career in Orlando, landed awkwardly on a lob attempt in the first quarter Sunday.`\
 https://nytimes.com/athletic/6870554/2025/12/07/franz-wagner-orlando-magic-leg-injury/
-
-**Trump Takes a Starring Role at the Kennedy Center Honors**\
-`Past presidents have attended the marquee event, but on Sunday Mr. Trump will be the first to host it, putting his cultural takeover of Washington in sharp relief.`\
-https://nytimes.com/2025/12/07/us/politics/trump-kennedy-center-honors.html
-
-**Democrats Call for Releasing Classified Video of Deadly Boat Attacks**\
-`Top Democratic lawmakers who have seen the footage said Sunday that making the video public would provide transparency around the strikes that killed two survivors on Sept. 2.`\
-https://nytimes.com/2025/12/07/us/politics/democrats-boat-strike-video-release.html
 

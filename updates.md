@@ -1,3 +1,15 @@
+**I Hit the Art Basel Superfecta**\
+`But what was the payout? A critic survives the four-season journey to the premium art fair in Hong Kong, Basel, Paris and now Miami Beach. Here are his takeaways.`\
+https://nytimes.com/2025/12/07/arts/design/art-basel-superfecta-all-four-fairs.html
+
+**Bengals-Bills takeaways: Josh Allen rallies Buffalo in fourth-quarter comeback**\
+`Buffalo capitalized on grave mistakes by Joe Burrow in the second half of Week 14.`\
+https://nytimes.com/athletic/6870170/2025/12/07/bengals-bills-score-result-takeaways-nfl/
+
+**Commanders, Jets, Falcons and Browns eliminated from playoff contention**\
+`The Commanders, Jets and Falcons all entered the season with different expectations, but each will watch the postseason from home this year.`\
+https://nytimes.com/athletic/6870565/2025/12/07/commanders-jets-falcons-playoff-elimination/
+
 **Jags take AFC South lead; reeling Colts lose QB Daniel Jones: Takeaways**\
 `The Jaguars beat the Colts for their fourth straight win, while Indianapolis' playoff hopes are in jeopardy after a third straight loss.`\
 https://nytimes.com/athletic/6870140/2025/12/07/colts-jaguars-score-result-takeaways-nfl/
