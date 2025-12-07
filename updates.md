@@ -1,3 +1,11 @@
+**Bessent Divested From Soybean Farms After Ethics Office Warning**\
+`The Treasury Secretary said on Sunday he recently shed his holdings to comply with his federal ethics agreement.`\
+https://nytimes.com/2025/12/07/business/bessent-divest-soybean-farms-ethics.html
+
+**Iowa State, Kansas State vote to skip bowl games. Who could take their spots?**\
+`With the Cyclones and Wildcats declining bowl games, the spots fall to teams with 5-7 records and the highest APR scores.`\
+https://nytimes.com/athletic/6863423/2025/12/07/iowa-state-kansas-state-bowl-games-opt-out/
+
 **Russian Drone Strike on Chernobyl Hasn’t Led to Rise in Radiation Levels**\
 `Despite the finding, the authorities have been unable to fix the damage from a drone that punctured Reactor No. 4’s outermost protective shield in February.`\
 https://nytimes.com/2025/12/07/world/europe/chernobyl-ukraine-russian-drone-strike-radiation.html
