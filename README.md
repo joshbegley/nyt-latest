@@ -1,3 +1,11 @@
+**The Global Re-Order**\
+`As U.S. policies upend old alliances and norms, global power is shifting and the stakes are growing.`\
+https://nytimes.com/2025/12/07/podcasts/dealbook-summit-international-policy-ehud-barak-fareed-zakaria.html
+
+**The Education of Higher Education**\
+`As political pressure mounts and campuses face new cultural and financial strains, higher education confronts a test of purpose and survival.`\
+https://nytimes.com/2025/12/07/podcasts/dealbook-summit-stanford-nyu-dei-title-ix.html
+
 **We Had to Have This Chicken Pad See Ew Recipe**\
 `It’s from one of our favorite new cookbooks of 2025, and it’s so versatile and delicious.`\
 https://nytimes.com/2025/12/07/dining/we-had-to-have-this-chicken-pad-see-ew-recipe.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6869839/2025/12/07/lando-norris-f1-world-championsh
 **Until Saturday: Bama, Miami or Notre Dame? Pick two**\
 `Until Saturday is The Athletic's free college football newsletter.`\
 https://nytimes.com/athletic/6869826/2025/12/07/miami-alabama-playoff-rankings-until-saturday/
-
-**Lando Norris: The small, shy Somerset kid who became F1 world champion**\
-`Lando Norris has just won the 2025 F1 world title. This is his story, from talented beginnings to motorsport's top prize`\
-https://nytimes.com/athletic/6845576/2025/12/07/lando-norris-f1-world-champion/
-
-**Lando Norris becomes world champion for the first time: Abu Dhabi Grand Prix briefing**\
-`The three-way title fight went to the the last race of the season and ended with Lando Norris winning the world title by two points `\
-https://nytimes.com/athletic/6869760/2025/12/07/lando-norris-world-champion-abu-dhabi-grand-prix/
 
