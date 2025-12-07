@@ -1,3 +1,15 @@
+**Commanders, Jets and Falcons eliminated from playoffs: Where do they go from here?**\
+`The Commanders, Jets and Falcons all entered the season with different expectations, but each will watch the postseason from home this year.`\
+https://nytimes.com/athletic/6870565/2025/12/07/commanders-jets-falcons-playoff-elimination/
+
+**Commanders-Vikings takeaways: McCarthy sparks Minnesota offense in big win over Washington**\
+`McCarthy delivered a career-defining performance, throwing 3 touchdowns and guiding Minnesota to a commanding 31-0 victory over Washington.`\
+https://nytimes.com/athletic/6870525/2025/12/07/commanders-vikings-score-result-takeaways-nfl/
+
+**Seahawks dominate on defense and eliminate Falcons from playoff contention**\
+`The Seahawks are now 10-3 in the battle for the top of the NFC West.`\
+https://nytimes.com/athletic/6870315/2025/12/07/seahawks-falcons-score-results-takeaways-nfl/
+
 **Notre Dame opts out of bowl season after missing CFP by one spot**\
 `The Irish would have fallen into the ACC’s non-CFP bowl tier that included the Pop-Tarts Bowl, Holiday Bowl and Gator Bowl.`\
 https://nytimes.com/athletic/6870724/2025/12/07/notre-dame-bowl-opt-out-cfp/
