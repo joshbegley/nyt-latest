@@ -1,3 +1,15 @@
+**Fern Michaels, Prolific Author of Romance Novels, Dies at 92**\
+`In her 40s, the self-described New Jersey housewife started building a women’s fiction empire, churning out dozens of popular books.`\
+https://nytimes.com/2025/12/07/obituaries/fern-michaels-dead.html
+
+**Expert College Football Playoff brackets: Feldman, Mandel and Russo make their picks**\
+`Our experts have different champions, but all agree that Alabama should not be in the field.`\
+https://nytimes.com/athletic/6869769/2025/12/07/college-football-playoff-predictions-brackets/
+
+**Jayden Daniels leaves Commanders-Vikings game after reinjuring left elbow**\
+`After missing three games with a dislocated left elbow, Daniels was hurt again with the Commanders trailing in Minnesota.`\
+https://nytimes.com/athletic/6870517/2025/12/07/jayden-daniels-elbow-injured-commanders/
+
 **The Briefing: Fulham 1 Palace 2 - How good was that team goal? Was Munoz missed? How do they keep finding a way?**\
 `Matt Woosnam breaks down the talking points from the victory at Craven Cottage.`\
 https://nytimes.com/athletic/6870088/2025/12/07/palace-munoz-wharton-fulham/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6870296/2025/12/07/nick-saban-notre-dame-cfp-bracke
 **How to watch North Florida vs. Gonzaga men's basketball: Time, TV, streaming**\
 `Find out how to watch the North Florida Ospreys play the Gonzaga Bulldogs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6870458/2025/12/07/north-florida-vs-gonzaga-stream-how-to-watch-dec-7/
-
-**How to watch Washington vs. USC women's basketball: Time, TV, streaming**\
-`Find out how to watch the Washington Huskies play the USC Trojans, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6870455/2025/12/07/washington-vs-usc-stream-how-to-watch-dec-7/
-
-**College football national title odds: OSU remains favorite ahead of IU, Georgia**\
-`Ohio State lost to Indiana in the Big Ten title game, but remains the favorite to win the national title.`\
-https://nytimes.com/athletic/6870150/2025/12/07/college-football-national-title-odds-ohio-state-indiana-georgia/
-
-**Why Lando Norris escaped penalty for a pass that nearly cost him the title**\
-`Yuki Tsunoda's defending tactics almost forced Norris into a title-losing error in Abu Dhabi`\
-https://nytimes.com/athletic/6870095/2025/12/07/lando-norris-yuki-tsunoda-abu-dhabi-f1/
 
