@@ -1,3 +1,7 @@
+**Tom Hicks, former Liverpool, Dallas Stars and Texas Rangers owner, dies at 79**\
+`In 2007. the Texas businessman acquired a 50 per cent stake in Liverpool, whom he co-owned alongside George Gillett.`\
+https://nytimes.com/athletic/6869545/2025/12/07/tom-hicks-liverpool-owner-death/
+
 **Three Yankees storylines to watch ahead of the Winter Meetings**\
 `The Yankees need to make more moves to be a World Series contender in 2026. Here are three things we're watching at the Winter Meetings.`\
 https://nytimes.com/athletic/6867793/2025/12/07/yankees-mlb-winter-meetings-storylines/
