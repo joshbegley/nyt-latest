@@ -1,3 +1,7 @@
+**Tom Hicks, former Liverpool, Dallas Stars and Texas Rangers owner, dies at 79**\
+`In 2007. the Texas businessman acquired a 50 per cent stake in Liverpool, whom he co-owned alongside George Gillett.`\
+https://nytimes.com/athletic/6869545/2025/12/07/tom-hicks-liverpool-owner-death/
+
 **Three Yankees storylines to watch ahead of the Winter Meetings**\
 `The Yankees need to make more moves to be a World Series contender in 2026. Here are three things we're watching at the Winter Meetings.`\
 https://nytimes.com/athletic/6867793/2025/12/07/yankees-mlb-winter-meetings-storylines/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6868898/2025/12/07/ottawa-senators-blues-nhl-power-
 **Sunday Special: ’Tis the Season for Cookies**\
 `Our experts answer your holiday baking questions and more.`\
 https://nytimes.com/2025/12/07/podcasts/the-daily/sunday-special-tis-the-season-for-cookies.html
-
-**Can We Stop Our Digital Selves From Becoming Who We Are?**\
-`Pay attention to how you pay attention.`\
-https://nytimes.com/2025/12/07/opinion/meta-facebook-ruling-algorithms.html
 
