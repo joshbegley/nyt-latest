@@ -1,3 +1,7 @@
+**Is Hollywood Getting God?**\
+`Movies and pop stars wrestled with faith in 2025. That may be changing culture.`\
+https://nytimes.com/2025/12/07/briefing/is-hollywood-getting-god.html
+
 **Michael Jordan vs. NASCAR trial, Week 2 primer: Where we're at, and what to expect**\
 `Co-defendant Jim France is expected to take the witness stand, among many other notable names, as the trial rolls on this week.`\
 https://nytimes.com/athletic/6869725/2025/12/07/michael-jordan-nascar-trial-week-2-primer-jim-france/
