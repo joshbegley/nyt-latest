@@ -1,3 +1,7 @@
+**Until Saturday: Bama, Miami or Notre Dame? Pick two**\
+`Until Saturday is The Athletic's free college football newsletter.`\
+https://nytimes.com/athletic/6869826/2025/12/07/miami-alabama-playoff-rankings-until-saturday/
+
 **Lando Norris: The small, shy Somerset kid who became F1 world champion**\
 `Lando Norris has just won the 2025 F1 world title. This is his story, from talented beginnings to motorsport's top prize`\
 https://nytimes.com/athletic/6845576/2025/12/07/lando-norris-f1-world-champion/
