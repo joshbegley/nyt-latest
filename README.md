@@ -1,3 +1,13 @@
+**Submit your questions for Grace Raynor’s recruiting mailbag**\
+`<p>The early signing period is over. There was plenty of other drama. USC signed the No. 1 class. Vanderbilt signed the No. 1 player.</p>
+<p>Submit your questions for Grace below. We will post her answers later this week.</p>
+`\
+https://nytimes.com/athletic/6870074/2025/12/07/submit-your-questions-for-grace-raynors-recruiting-mailbag-22/
+
+**Quinn Hughes' trade value, the Devils' assets and why the Canucks have options**\
+`The Canucks still hold significant leverage if Hughes expresses a desire to leave Vancouver at some point this season.`\
+https://nytimes.com/athletic/6869269/2025/12/07/quinn-hughes-trade-canucks-devils-contract-value/
+
 **How to watch Nuggets vs. Hornets: Time, TV, streaming**\
 `Find out how to watch the Denver Nuggets play the Charlotte Hornets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6870066/2025/12/07/nuggets-vs-hornets-stream-how-to-watch-dec-7/
@@ -29,12 +39,4 @@ https://nytimes.com/athletic/6870055/2025/12/07/islanders-vs-panthers-stream-how
 **How to watch Penguins vs. Stars: Time, TV, streaming**\
 `Find out how to watch the Pittsburgh Penguins play the Dallas Stars, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6870053/2025/12/07/penguins-vs-stars-stream-how-to-watch-dec-7/
-
-**How to watch Sharks vs. Hurricanes: Time, TV, streaming**\
-`Find out how to watch the San Jose Sharks play the Carolina Hurricanes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6870050/2025/12/07/sharks-vs-hurricanes-stream-how-to-watch-dec-7/
-
-**How to watch Georgetown vs. North Carolina men's basketball: Time, TV, streaming**\
-`Find out how to watch the Georgetown Hoyas play the North Carolina Tar Heels, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6870034/2025/12/07/georgetown-vs-north-carolina-stream-how-to-watch-dec-7/
 
