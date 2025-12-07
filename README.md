@@ -1,3 +1,11 @@
+**Corrections: Dec. 7, 2025**\
+`Corrections that appeared in print on Sunday, Dec. 7, 2025.`\
+https://nytimes.com/2025/12/07/pageoneplus/corrections-dec-7-2025.html
+
+**College Football Playoff 2025 projections: Who has locked up a bid? Who's on the bubble?**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/12/06/college-football-playoff-bracket-projections-odds/
+
 **Fire in Goa, India, Kills at Least 25**\
 `Officials told the Indian news media that the fire tore through a nightclub in the southwestern state of Goa, a popular tourist destination.`\
 https://nytimes.com/2025/12/06/world/asia/goa-india-nightclub-fire.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6868838/2025/12/06/mls-cup-inter-miami-vancouver-wh
 **James Harden passes Carmelo Anthony on NBA all-time scoring list: 'I'm blessed. I'm grateful'**\
 `Now a top-10 scorer in NBA history, James Harden has made a career of buckets since being drafted third overall in 2009.`\
 https://nytimes.com/athletic/6868678/2025/12/06/james-harden-passes-carmelo-anthony-scoring-list/
-
-**Don't blame the SEC championship if Alabama misses the Playoff. Blame the Crimson Tide**\
-`Alabama looks like a team that peaked two months ago, and that's why its Playoff status remains a question heading into Sunday.`\
-https://nytimes.com/athletic/6868817/2025/12/06/alabama-georgia-sec-championship-college-football-playoff/
-
-**Hegseth Skirts Questions About Releasing Video of Sept. 2 Boat Attack**\
-`At an appearance in California, Defense Secretary Pete Hegseth was noncommittal about releasing the full video of a U.S. military attack on a boat in the Caribbean.`\
-https://nytimes.com/2025/12/06/us/politics/pete-hegseth-boat-attack-video.html
 

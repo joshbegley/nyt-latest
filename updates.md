@@ -1,3 +1,7 @@
+**Fire in Goa, India, Kills at Least 25**\
+`Officials told the Indian news media that the fire tore through a nightclub in the southwestern state of Goa, a popular tourist destination.`\
+https://nytimes.com/2025/12/06/world/asia/goa-india-nightclub-fire.html
+
 **Popular basketball YouTuber Tristan Jass having brain surgery**\
 `Jass told his more than 5 million YouTube subscribers that he's been mentally preparing for surgery for weeks.`\
 https://nytimes.com/athletic/6868935/2025/12/06/tristan-jass-brain-surgery/

@@ -1,3 +1,7 @@
+**Fire in Goa, India, Kills at Least 25**\
+`Officials told the Indian news media that the fire tore through a nightclub in the southwestern state of Goa, a popular tourist destination.`\
+https://nytimes.com/2025/12/06/world/asia/goa-india-nightclub-fire.html
+
 **Popular basketball YouTuber Tristan Jass having brain surgery**\
 `Jass told his more than 5 million YouTube subscribers that he's been mentally preparing for surgery for weeks.`\
 https://nytimes.com/athletic/6868935/2025/12/06/tristan-jass-brain-surgery/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6868817/2025/12/06/alabama-georgia-sec-championship
 **Hegseth Skirts Questions About Releasing Video of Sept. 2 Boat Attack**\
 `At an appearance in California, Defense Secretary Pete Hegseth was noncommittal about releasing the full video of a U.S. military attack on a boat in the Caribbean.`\
 https://nytimes.com/2025/12/06/us/politics/pete-hegseth-boat-attack-video.html
-
-**'The entire game was a joke': Blue Jackets blow 3 leads in wild loss to Panthers**\
-`From blown leads to controversial calls to odd shenanigans and much more, Columbus' 7-6 loss to Florida was a bizarre one.`\
-https://nytimes.com/athletic/6868533/2025/12/06/blue-jackets-panthers-goal-review-call/
 
