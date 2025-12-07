@@ -1,3 +1,8 @@
+**Brad Marchand sneakily intrudes on Blue Jackets bench during OT timeout**\
+`Moments after the shenanigans, Marchand set up Sam Bennett for the game-winning goal as Florida beat Columbus 7-6.
+`\
+https://nytimes.com/athletic/6868605/2025/12/06/brad-marchand-panthers-blue-jackets-overtime-bench/
+
 **Rangers overmatched but not overwhelmed by MacKinnon and Avalanche, plus 10 more thoughts**\
 `New York was overmatched in terms of star power, but never looked overwhelmed in a 3-2 overtime loss to the NHL-leading Avalanche.`\
 https://nytimes.com/athletic/6868436/2025/12/06/new-york-rangers-avalanche-nathan-mackinnon/
