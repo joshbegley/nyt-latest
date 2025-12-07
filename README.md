@@ -1,3 +1,11 @@
+**In Honduras, Some Voters Were Swayed by Trump, Others Angered**\
+`President Trump backed Nasry Asfura days before the Nov. 30 election and denounced his opponents. In a close race, that has potentially tipped the scales.`\
+https://nytimes.com/2025/12/06/world/americas/honduras-voters-trump-election.html
+
+**Colorful 'Silent Night' court-storming returns to Indiana university**\
+`Taylor University celebrates "Silent Night" tradition in a colorful way.`\
+https://nytimes.com/athletic/6868444/2025/12/06/silent-night-court-storming-taylor-university/
+
 **Beckham relishes becoming first MLS Cup winner as both player and owner**\
 `Beckham's efforts to build a winner in Miami – with Lionel Messi as its centerpiece – have paid off with a bit of MLS history`\
 https://nytimes.com/athletic/6868658/2025/12/06/david-beckham-mls-cup-win-player-owner-inter-miami/
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6868526/2025/12/06/antonio-brown-case-dismissal-att
 **California Discourages Wild Mushroom Foraging After Fatal Outbreak**\
 `Officials said one person was killed and 20 others were poisoned after eating death cap mushrooms, which look and taste like safe mushrooms but can cause liver failure.`\
 https://nytimes.com/2025/12/06/us/california-wild-mushrooms-poison.html
-
-**How colleges are putting financial muscle behind their football coaches**\
-`Several schools have dedicated significant financial backing to their new coaching hires.`\
-https://nytimes.com/athletic/6866480/2025/12/06/college-football-coaches-nil-money/
-
-**Mariners send top-100 prospect Harry Ford to Nationals for reliever Jose A. Ferrer**\
-`There wasn't much room for Harry Ford with Cal Raleigh entrenched as Seattle's catcher. In return, they got someone with closing experience.`\
-https://nytimes.com/athletic/6868520/2025/12/06/mariners-nationals-trade-harry-ford-jose-ferrer/
 
