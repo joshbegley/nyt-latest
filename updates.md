@@ -1,3 +1,11 @@
+**Jags take AFC South lead; reeling Colts lose QB Daniel Jones: Takeaways**\
+`The Jaguars beat the Colts for their fourth straight win, while Indianapolis' playoff hopes are in jeopardy after a third straight loss.`\
+https://nytimes.com/athletic/6870140/2025/12/07/colts-jaguars-score-result-takeaways-nfl/
+
+**Commanders-Vikings takeaways: J.J. McCarthy sparks Minnesota offense in big win over Washington**\
+`McCarthy delivered a career-defining performance, throwing 3 touchdowns and guiding Minnesota to a commanding 31-0 victory over Washington.`\
+https://nytimes.com/athletic/6870525/2025/12/07/commanders-vikings-score-result-takeaways-nfl/
+
 **Commanders, Jets and Falcons eliminated from playoffs: Where do they go from here?**\
 `The Commanders, Jets and Falcons all entered the season with different expectations, but each will watch the postseason from home this year.`\
 https://nytimes.com/athletic/6870565/2025/12/07/commanders-jets-falcons-playoff-elimination/
