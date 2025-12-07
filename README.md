@@ -1,3 +1,7 @@
+**How the SEC’s 5 Playoff bids, including Alabama, were a year in the making**\
+`The SEC reeled in four of the seven at-large bids in this year's Playoff, a major victory for the conference.`\
+https://nytimes.com/athletic/6870483/2025/12/07/sec-college-football-playoff-greg-sankey/
+
 **Winter Meetings preview: Cubs seem to understand it’s time to make a splash again**\
 `“It will be an active offseason,” Jed Hoyer said. “We’ll be really active in the pitching market.”`\
 https://nytimes.com/athletic/6870545/2025/12/07/cubs-winter-meetings-tatsuya-imai-michael-king/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6870488/2025/12/07/blackhawks-vs-ducks-stream-how-t
 **How to watch Lakers vs. 76ers: Time, TV, streaming**\
 `Find out how to watch the Los Angeles Lakers play the Philadelphia 76ers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6870485/2025/12/07/lakers-vs-76ers-stream-how-to-watch-dec-7/
-
-**How to watch Thunder vs. Jazz: Time, TV, streaming**\
-`Find out how to watch the Oklahoma City Thunder play the Utah Jazz, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6870482/2025/12/07/thunder-vs-jazz-stream-how-to-watch-dec-7/
 

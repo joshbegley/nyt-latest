@@ -1,3 +1,7 @@
+**Winter Meetings preview: Cubs seem to understand it’s time to make a splash again**\
+`“It will be an active offseason,” Jed Hoyer said. “We’ll be really active in the pitching market.”`\
+https://nytimes.com/athletic/6870545/2025/12/07/cubs-winter-meetings-tatsuya-imai-michael-king/
+
 **What to know about Riley Leonard, the Colts QB who replaced Daniel Jones**\
 `What does the rookie QB bring to the table as the Colts' starting quarterback?`\
 https://nytimes.com/athletic/6870382/2025/12/07/riley-leonard-colts-who-is-facts/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6870485/2025/12/07/lakers-vs-76ers-stream-how-to-wa
 **How to watch Thunder vs. Jazz: Time, TV, streaming**\
 `Find out how to watch the Oklahoma City Thunder play the Utah Jazz, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6870482/2025/12/07/thunder-vs-jazz-stream-how-to-watch-dec-7/
-
-**Leak Highlights Poor State of Louvre Infrastructure**\
-`Up to 400 documents have been damaged by the leak, according to Francis Steinbock, the deputy administrator of the museum. But no works of art were affected.`\
-https://nytimes.com/2025/12/07/world/europe/louvre-museum-leak.html
 
