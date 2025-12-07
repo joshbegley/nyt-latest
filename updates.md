@@ -1,3 +1,7 @@
+**Hardest to Find**\
+`Get into Dan Kammann and Zhouqin Burnikel’s crossword.`\
+https://nytimes.com/2025/12/07/crosswords/daily-puzzle-2025-12-08.html
+
 **Winners and losers of College Football Playoff selection Sunday**\
 `It was a victory lap for the SEC and the Group of 5, but one may be more short-lived than the other.`\
 https://nytimes.com/athletic/6870860/2025/12/07/college-football-playoff-bracket-selections-winners-losers/

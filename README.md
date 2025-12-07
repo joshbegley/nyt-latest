@@ -1,3 +1,11 @@
+**How did Tulane and James Madison end up in the College Football Playoff?**\
+`Thanks to an ACC tiebreaker, James Madison earned a bid to the College Football Playoff.`\
+https://nytimes.com/athletic/6870381/2025/12/07/tulane-james-madison-college-football-playoff-group-of-five/
+
+**Madrid suffer shock home loss to Celta Vigo as Militao goes off injured**\
+`The centre-back was forced off around the 24th minute of Madrid's first league loss at the Bernabeu this season.`\
+https://nytimes.com/athletic/6870697/2025/12/07/real-madrid-celta-vigo-militao-injury-alonso/
+
 **Hardest to Find**\
 `Get into Dan Kammann and Zhouqin Burnikel’s crossword.`\
 https://nytimes.com/2025/12/07/crosswords/daily-puzzle-2025-12-08.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6870417/2025/12/07/steelers-ravens-score-result-tak
 **Titans-Browns Takeaways: Tennessee spoils Shedeur Sanders career day**\
 `The Browns drop to 3-10 and are officially eliminated from playoff contention.`\
 https://nytimes.com/athletic/6869846/2025/12/07/titans-browns-scores-results-takeaways-nfl/
-
-**Buccaneers' upset loss to Saints creates a tie for first place in NFC South**\
-`The Buccaneers and Panthers are both 7-6 and tied atop the NFC South. They play in other twice in the season's final three weeks.`\
-https://nytimes.com/athletic/6870336/2025/12/07/saints-buccaneers-score-result-takeaways-nfl/
-
-**Miami crashes College Football Playoff party — and the Canes have a team that can advance**\
-`It’s a long road to get back to Hard Rock Stadium to play for a national title. But this is what Mario Cristobal was brought home to do.`\
-https://nytimes.com/athletic/6870361/2025/12/07/miami-college-football-playoff-notre-dame/
 
