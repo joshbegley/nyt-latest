@@ -1,4 +1,8 @@
 **'Flippin' champs': Fernando Mendoza gives emotional interview after Indiana's win**\
+`The Hoosiers quarterback earned MVP honors in Indiana's Big Ten championship game win over Ohio State.`\
+https://nytimes.com/athletic/6869149/2025/12/07/francisco-mendoza-interview-indiana/
+
+**'Flippin' champs': Fernando Mendoza gives emotional interview after Indiana's win**\
 `The Hoosiers quarterback earned MVP in the Hoosiers Big Ten championship game win over Ohio State.`\
 https://nytimes.com/athletic/6869149/2025/12/07/francisco-mendoza-interview-indiana/
 
