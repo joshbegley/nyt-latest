@@ -1,3 +1,7 @@
+**Winners and losers of College Football Playoff selection Sunday**\
+`It was a victory lap for the SEC and the Group of 5, but one may be more short-lived than the other.`\
+https://nytimes.com/athletic/6870860/2025/12/07/college-football-playoff-bracket-selections-winners-losers/
+
 **Chaos in the AFC North and disaster for the Colts: Our experts' Week 14 takeaways**\
 `Also: Who has it worse, the Bengals or Commanders? And will the Bucs or Panthers come out on top in the AFC South?`\
 https://nytimes.com/athletic/6870295/2025/12/07/nfl-takeaways-week-14-scores-results/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6870361/2025/12/07/miami-college-football-playoff-n
 **Dolphins-Jets takeaways: Miami wins fourth straight, loses De'Von Achane**\
 `The Jets lost Tyrod Taylor in the first quarter to a groin injury, and struggled mightily on offense.`\
 https://nytimes.com/athletic/6870124/2025/12/07/dolphins-jets-score-result-takeaways-nfl/
-
-**I Hit the Art Basel Superfecta**\
-`But what was the payout? A critic survives the four-season journey to the premium art fair in Hong Kong, Basel, Paris and now Miami Beach. Here are his takeaways.`\
-https://nytimes.com/2025/12/07/arts/design/art-basel-superfecta-all-four-fairs.html
 

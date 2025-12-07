@@ -1,3 +1,7 @@
+**Hardest to Find**\
+`Get into Dan Kammann and Zhouqin Burnikel’s crossword.`\
+https://nytimes.com/2025/12/07/crosswords/daily-puzzle-2025-12-08.html
+
 **Winners and losers of College Football Playoff selection Sunday**\
 `It was a victory lap for the SEC and the Group of 5, but one may be more short-lived than the other.`\
 https://nytimes.com/athletic/6870860/2025/12/07/college-football-playoff-bracket-selections-winners-losers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6870336/2025/12/07/saints-buccaneers-score-result-t
 **Miami crashes College Football Playoff party — and the Canes have a team that can advance**\
 `It’s a long road to get back to Hard Rock Stadium to play for a national title. But this is what Mario Cristobal was brought home to do.`\
 https://nytimes.com/athletic/6870361/2025/12/07/miami-college-football-playoff-notre-dame/
-
-**Dolphins-Jets takeaways: Miami wins fourth straight, loses De'Von Achane**\
-`The Jets lost Tyrod Taylor in the first quarter to a groin injury, and struggled mightily on offense.`\
-https://nytimes.com/athletic/6870124/2025/12/07/dolphins-jets-score-result-takeaways-nfl/
 

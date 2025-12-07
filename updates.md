@@ -1,3 +1,7 @@
+**Winners and losers of College Football Playoff selection Sunday**\
+`It was a victory lap for the SEC and the Group of 5, but one may be more short-lived than the other.`\
+https://nytimes.com/athletic/6870860/2025/12/07/college-football-playoff-bracket-selections-winners-losers/
+
 **Chaos in the AFC North and disaster for the Colts: Our experts' Week 14 takeaways**\
 `Also: Who has it worse, the Bengals or Commanders? And will the Bucs or Panthers come out on top in the AFC South?`\
 https://nytimes.com/athletic/6870295/2025/12/07/nfl-takeaways-week-14-scores-results/
