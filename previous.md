@@ -1,3 +1,7 @@
+**Lando Norris becomes world champion for the first time: Abu Dhabi Grand Prix briefing**\
+`The three-way title fight went to the the last race of the season and ended with Lando Norris winning the world title by two points `\
+https://nytimes.com/athletic/6869760/2025/12/07/lando-norris-world-champion-abu-dhabi-grand-prix/
+
 **Is Hollywood Getting God?**\
 `Movies and pop stars wrestled with faith in 2025. That may be changing culture.`\
 https://nytimes.com/2025/12/07/briefing/is-hollywood-getting-god.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/07/opinion/hegseth-boat-strikes-killings.html
 **How to watch Celtics vs. Raptors: Time, TV, streaming**\
 `Find out how to watch the Boston Celtics play the Toronto Raptors, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6869748/2025/12/07/celtics-vs-raptors-stream-how-to-watch-dec-7/
-
-**Not All Targeted Killings Are the Same. Hegseth’s Boat Strikes Are Illegal.**\
-`A former secretary of homeland security on the illegality of Trump’s boat strikes.`\
-https://nytimes.com/2025/12/07/opinion/hegseth-boat-strikes-killings.html
 

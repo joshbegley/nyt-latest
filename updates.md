@@ -1,3 +1,7 @@
+**Lando Norris becomes world champion for the first time: Abu Dhabi Grand Prix briefing**\
+`The three-way title fight went to the the last race of the season and ended with Lando Norris winning the world title by two points `\
+https://nytimes.com/athletic/6869760/2025/12/07/lando-norris-world-champion-abu-dhabi-grand-prix/
+
 **Is Hollywood Getting God?**\
 `Movies and pop stars wrestled with faith in 2025. That may be changing culture.`\
 https://nytimes.com/2025/12/07/briefing/is-hollywood-getting-god.html
