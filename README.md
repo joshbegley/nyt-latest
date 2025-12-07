@@ -1,3 +1,7 @@
+**Popular basketball YouTuber Tristan Jass having brain surgery**\
+`Jass told his more than 5 million YouTube subscribers that he's been mentally preparing for surgery for weeks.`\
+https://nytimes.com/athletic/6868935/2025/12/06/tristan-jass-brain-surgery/
+
 **Indiana outlasts Ohio State for Big Ten title, CFP No. 1 seed**\
 `Indiana won its first outright Big Ten title since 1945 by knocking off the previously perfect Buckeyes.`\
 https://nytimes.com/athletic/6868835/2025/12/06/ohio-state-indiana-big-ten-championship/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/06/us/politics/pete-hegseth-boat-attack-video.html
 **'The entire game was a joke': Blue Jackets blow 3 leads in wild loss to Panthers**\
 `From blown leads to controversial calls to odd shenanigans and much more, Columbus' 7-6 loss to Florida was a bizarre one.`\
 https://nytimes.com/athletic/6868533/2025/12/06/blue-jackets-panthers-goal-review-call/
-
-**Michigan hires Kerry Coombs, former Ohio State assistant, as special teams coordinator**\
-`Coombs has had two stints at Ohio State, most recently as defensive coordinator in 2020 and 2021. He replaces J.B. Brown, who was fired.`\
-https://nytimes.com/athletic/6868741/2025/12/06/kerry-coombs-michigan-hiring-ohio-state/
 
