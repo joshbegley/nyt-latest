@@ -1,3 +1,15 @@
+**Illinois State throws 5 interceptions but still stuns No. 1 NDSU in FCS playoffs**\
+`Tommy Rittenhouse came through when he needed, throwing two touchdown passes in the final 3 minutes to beat the defending champions 29-28.`\
+https://nytimes.com/athletic/6868431/2025/12/06/illinois-state-upsets-ndsu-fcs-playoffs/
+
+**College Football Playoff 2025 projections: Texas Tech, Tulane lock up bids**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/12/06/college-football-playoff-bracket-projections-odds/
+
+**Salah says Liverpool future is in doubt as relations with Slot have broken down**\
+`Salah believes he's been made a scapegoat for Liverpool's struggles this season, insisting "someone does not want me in the club".`\
+https://nytimes.com/athletic/6868345/2025/12/06/salah-liverpool-interview-news-leaving-slot/
+
 **Mariners send top-100 prospect Harry Ford to Nationals for reliever José A. Ferrer**\
 `There wasn't much room for Harry Ford with Cal Raleigh entrenched as Seattle's catcher. In return, they got reliever José A. Ferrer.`\
 https://nytimes.com/athletic/6868520/2025/12/06/mariners-nationals-trade-harry-ford-jose-ferrer/
