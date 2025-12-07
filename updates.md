@@ -1,3 +1,7 @@
+**'The entire game was a joke': Blue Jackets blow 3 leads in wild loss to Panthers**\
+`From blown leads to controversial calls to odd shenanigans and much more, Columbus' 7-6 loss to Florida was a bizarre one.`\
+https://nytimes.com/athletic/6868533/2025/12/06/blue-jackets-panthers-goal-review-call/
+
 **Rangers overmatched but not overwhelmed by MacKinnon and Avalanche, plus 10 more thoughts**\
 `Beat writer Vince Z. Mercogliano breaks down how the Rangers fared against one of the NHL's best in the Colorado Avalanche.`\
 https://nytimes.com/athletic/6868436/2025/12/06/new-york-rangers-avalanche-nathan-mackinnon/
