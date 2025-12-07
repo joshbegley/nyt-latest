@@ -1,3 +1,7 @@
+**Notre Dame opts out of bowl season after missing CFP by one spot**\
+`The Irish would have fallen into the ACC’s non-CFP bowl tier that included the Pop-Tarts Bowl, Holiday Bowl and Gator Bowl.`\
+https://nytimes.com/athletic/6870724/2025/12/07/notre-dame-bowl-opt-out-cfp/
+
 **Immigration Agents Target Family of Deported College Student**\
 `The family of Any Lucía Belloza López said agents appeared at their home in Austin, Texas, on Sunday. Their daughter, 19, was deported to Honduras during a surprise trip home for Thanksgiving.`\
 https://nytimes.com/2025/12/07/us/immigration-agents-family-deported-student.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6870382/2025/12/07/riley-leonard-colts-who-is-facts
 **What's at stake in Michigan-Texas? Arch vs. Underwood and more Citrus Bowl thoughts**\
 `A two-game home-and-home series between Michigan and Texas is now a best-of-three thanks to the Citrus Bowl.`\
 https://nytimes.com/athletic/6870558/2025/12/07/michigan-texas-citrus-bowl-matchup/
-
-**Fern Michaels, Prolific Author of Romance Novels, Dies at 92**\
-`In her 40s, the self-described New Jersey housewife started building a women’s fiction empire, churning out dozens of popular books.`\
-https://nytimes.com/2025/12/07/obituaries/fern-michaels-dead.html
 

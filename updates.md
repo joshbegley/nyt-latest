@@ -1,3 +1,7 @@
+**Immigration Agents Target Family of Deported College Student**\
+`The family of Any Lucía Belloza López said agents appeared at their home in Austin, Texas, on Sunday. Their daughter, 19, was deported to Honduras during a surprise trip home for Thanksgiving.`\
+https://nytimes.com/2025/12/07/us/immigration-agents-family-deported-student.html
+
 **The New Syria**\
 `The country certainly still faces many challenges. But some things are now going right there — and those are worth our attention, too.`\
 https://nytimes.com/2025/12/07/world/syria-anniversary-assad-benin-trump.html
