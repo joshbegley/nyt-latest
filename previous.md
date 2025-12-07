@@ -1,3 +1,15 @@
+**Katy Perry Posts Photos With Justin Trudeau Amid Romance Rumors**\
+`Ms. Perry and Mr. Trudeau, the former prime minister of Canada, posed together in photos and videos on Instagram, making them “Instagram official.”`\
+https://nytimes.com/2025/12/07/world/canada/katy-perry-justin-trudeau-relationship-japan.html
+
+**Is Salah worth a place in Liverpool's team? This is what the data says**\
+`The Egyptian feels he has nothing to prove to have a starting place at Anfield. But do the numbers back him up?`\
+https://nytimes.com/athletic/6869869/2025/12/07/mohamed-salah-liverpool-team-data/
+
+**At Alvin Ailey, a Caribbean Folk Tale Inspires a Dance About Love**\
+`The first week of the company’s annual season at City Center featured “Jazz Island,” an earnest premiere by Maija García, and a treasure by Alonzo King.`\
+https://nytimes.com/2025/12/07/arts/dance/alvin-ailey-jazz-island-maija-garcia.html
+
 **College Football Playoff snub rankings: Which left-out team has the biggest grievance?**\
 `No team should be as aggrieved as Florida State in 2023, but a few fan bases can be angry their teams were left out Sunday.`\
 https://nytimes.com/athletic/6869906/2025/12/07/college-football-playoff-snubs-byu-notre-dame/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6869980/2025/12/07/nfl-broncos-commanders-incorrect
 **CFP bracket revealed: Indiana on top, Miami and JMU in, Notre Dame out**\
 `The committee did not drop Alabama from its No. 9 ranking despite a blowout loss in the SEC championship on Saturday.`\
 https://nytimes.com/athletic/6869960/2025/12/07/college-football-playoff-bracket-rankings-revealed/
-
-**Bessent Divested From Soybean Farms After Ethics Office Warning**\
-`The Treasury Secretary said on Sunday he recently shed his holdings to comply with his federal ethics agreement.`\
-https://nytimes.com/2025/12/07/business/bessent-divest-soybean-farms-ethics.html
-
-**Iowa State, Kansas State vote to skip bowl games. Who could take their spots?**\
-`With the Cyclones and Wildcats declining bowl games, the spots fall to teams with 5-7 records and the highest APR scores.`\
-https://nytimes.com/athletic/6863423/2025/12/07/iowa-state-kansas-state-bowl-games-opt-out/
-
-**Russian Drone Strike on Chernobyl Hasn’t Led to Rise in Radiation Levels**\
-`Despite the finding, the authorities have been unable to fix the damage from a drone that punctured Reactor No. 4’s outermost protective shield in February.`\
-https://nytimes.com/2025/12/07/world/europe/chernobyl-ukraine-russian-drone-strike-radiation.html
 

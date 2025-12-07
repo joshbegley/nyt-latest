@@ -1,3 +1,15 @@
+**Katy Perry Posts Photos With Justin Trudeau Amid Romance Rumors**\
+`Ms. Perry and Mr. Trudeau, the former prime minister of Canada, posed together in photos and videos on Instagram, making them “Instagram official.”`\
+https://nytimes.com/2025/12/07/world/canada/katy-perry-justin-trudeau-relationship-japan.html
+
+**Is Salah worth a place in Liverpool's team? This is what the data says**\
+`The Egyptian feels he has nothing to prove to have a starting place at Anfield. But do the numbers back him up?`\
+https://nytimes.com/athletic/6869869/2025/12/07/mohamed-salah-liverpool-team-data/
+
+**At Alvin Ailey, a Caribbean Folk Tale Inspires a Dance About Love**\
+`The first week of the company’s annual season at City Center featured “Jazz Island,” an earnest premiere by Maija García, and a treasure by Alonzo King.`\
+https://nytimes.com/2025/12/07/arts/dance/alvin-ailey-jazz-island-maija-garcia.html
+
 **College Football Playoff snub rankings: Which left-out team has the biggest grievance?**\
 `No team should be as aggrieved as Florida State in 2023, but a few fan bases can be angry their teams were left out Sunday.`\
 https://nytimes.com/athletic/6869906/2025/12/07/college-football-playoff-snubs-byu-notre-dame/
