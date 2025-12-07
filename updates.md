@@ -1,3 +1,7 @@
+**Popular basketball YouTuber Tristan Jass having brain surgery**\
+`Jass told his more than 5 million YouTube subscribers that he's been mentally preparing for surgery for weeks.`\
+https://nytimes.com/athletic/6868935/2025/12/06/tristan-jass-brain-surgery/
+
 **Indiana outlasts Ohio State for Big Ten title, CFP No. 1 seed**\
 `Indiana won its first outright Big Ten title since 1945 by knocking off the previously perfect Buckeyes.`\
 https://nytimes.com/athletic/6868835/2025/12/06/ohio-state-indiana-big-ten-championship/
