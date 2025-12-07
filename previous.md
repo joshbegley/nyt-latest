@@ -1,3 +1,23 @@
+**Leak Highlights Poor State of Louvre Infrastructure**\
+`Up to 400 documents have been damaged by the leak, according to Francis Steinbock, the deputy administrator of the museum. But no works of art were affected.`\
+https://nytimes.com/2025/12/07/world/europe/louvre-museum-leak.html
+
+**Nick Saban airs frustration over Notre Dame being left out of CFP bracket**\
+`"There was one team left out," the former Alabama coach and ESPN analyst said on Sunday.`\
+https://nytimes.com/athletic/6870296/2025/12/07/nick-saban-notre-dame-cfp-bracket-reveal/
+
+**How to watch North Florida vs. Gonzaga men's basketball: Time, TV, streaming**\
+`Find out how to watch the North Florida Ospreys play the Gonzaga Bulldogs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6870458/2025/12/07/north-florida-vs-gonzaga-stream-how-to-watch-dec-7/
+
+**How to watch Washington vs. USC women's basketball: Time, TV, streaming**\
+`Find out how to watch the Washington Huskies play the USC Trojans, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6870455/2025/12/07/washington-vs-usc-stream-how-to-watch-dec-7/
+
+**College football national title odds: OSU remains favorite ahead of IU, Georgia**\
+`Ohio State lost to Indiana in the Big Ten title game, but remains the favorite to win the national title.`\
+https://nytimes.com/athletic/6870150/2025/12/07/college-football-national-title-odds-ohio-state-indiana-georgia/
+
 **Why Lando Norris escaped penalty for a pass that nearly cost him the title**\
 `Yuki Tsunoda's defending tactics almost forced Norris into a title-losing error in Abu Dhabi`\
 https://nytimes.com/athletic/6870095/2025/12/07/lando-norris-yuki-tsunoda-abu-dhabi-f1/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6869919/2025/12/07/lamine-yamal-no-10-barcelona/
 **CFP first-round odds: Oregon opens as huge favorite, while Alabama-Oklahoma is close**\
 `Alabama and Miami both made the CFP field and will head on the road as underdogs in the first round.`\
 https://nytimes.com/athletic/6870072/2025/12/07/college-football-playoff-first-round-odds-alabama-miami/
-
-**Colts QB Daniel Jones exits game vs. Jaguars with Achilles injury**\
-`Sixth-round rookie Riley Leonard replaces Jones at quarterback for the Colts. `\
-https://nytimes.com/athletic/6870359/2025/12/07/colts-daniel-jones-leg-injury-jaguars/
-
-**Katy Perry Posts Photos With Justin Trudeau Amid Romance Rumors**\
-`Ms. Perry and Mr. Trudeau, the former prime minister of Canada, posed together in photos and videos on Instagram, making them “Instagram official.”`\
-https://nytimes.com/2025/12/07/world/canada/katy-perry-justin-trudeau-relationship-japan.html
-
-**Is Salah worth a place in Liverpool's team? This is what the data says**\
-`The Egyptian feels he has nothing to prove to have a starting place at Anfield. But do the numbers back him up?`\
-https://nytimes.com/athletic/6869869/2025/12/07/mohamed-salah-liverpool-team-data/
-
-**At Alvin Ailey, a Caribbean Folk Tale Inspires a Dance About Love**\
-`The first week of the company’s annual season at City Center featured “Jazz Island,” an earnest premiere by Maija García, and a treasure by Alonzo King.`\
-https://nytimes.com/2025/12/07/arts/dance/alvin-ailey-jazz-island-maija-garcia.html
-
-**College Football Playoff snub rankings: Which left-out team has the biggest grievance?**\
-`No team should be as aggrieved as Florida State in 2023, but a few fan bases can be angry their teams were left out Sunday.`\
-https://nytimes.com/athletic/6869906/2025/12/07/college-football-playoff-snubs-byu-notre-dame/
 
