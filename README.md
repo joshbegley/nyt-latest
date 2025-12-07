@@ -1,3 +1,7 @@
+**Russian Drone Strike on Chernobyl Hasn’t Led to Rise in Radiation Levels**\
+`Despite the finding, the authorities have been unable to fix the damage from a drone that punctured Reactor No. 4’s outermost protective shield in February.`\
+https://nytimes.com/2025/12/07/world/europe/chernobyl-ukraine-russian-drone-strike-radiation.html
+
 **Virginia Tech coach Pry, fired in September, returning as DC for his replacement**\
 `Franklin fought back tears during his introductory news conference in November while acknowledging Pry, his friend and former assistant.`\
 https://nytimes.com/athletic/6869181/2025/12/07/brent-pry-virginia-tech-james-franklin/
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/6870062/2025/12/07/golden-knights-vs-rangers-stream
 **How to watch Warriors vs. Bulls: Time, TV, streaming**\
 `Find out how to watch the Golden State Warriors play the Chicago Bulls, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6870060/2025/12/07/warriors-vs-bulls-stream-how-to-watch-dec-7/
-
-**How to watch Trail Blazers vs. Grizzlies: Time, TV, streaming**\
-`Find out how to watch the Portland Trail Blazers play the Memphis Grizzlies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6870058/2025/12/07/trail-blazers-vs-grizzlies-stream-how-to-watch-dec-7/
 
