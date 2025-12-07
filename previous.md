@@ -1,3 +1,7 @@
+**College Football Playoff snub rankings: Which left-out team has the biggest grievance?**\
+`No team should be as aggrieved as Florida State in 2023, but a few fan bases can be angry their teams were left out Sunday.`\
+https://nytimes.com/athletic/6869906/2025/12/07/college-football-playoff-snubs-byu-notre-dame/
+
 **Out With the Beige and the Boring**\
 `Quiet luxury is in the past, and being loud is now.`\
 https://nytimes.com/2025/12/07/special-series/harris-reed-maximalism-fashion.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6863423/2025/12/07/iowa-state-kansas-state-bowl-gam
 **Russian Drone Strike on Chernobyl Hasn’t Led to Rise in Radiation Levels**\
 `Despite the finding, the authorities have been unable to fix the damage from a drone that punctured Reactor No. 4’s outermost protective shield in February.`\
 https://nytimes.com/2025/12/07/world/europe/chernobyl-ukraine-russian-drone-strike-radiation.html
-
-**Virginia Tech coach Pry, fired in September, returning as DC for his replacement**\
-`Franklin fought back tears during his introductory news conference in November while acknowledging Pry, his friend and former assistant.`\
-https://nytimes.com/athletic/6869181/2025/12/07/brent-pry-virginia-tech-james-franklin/
 

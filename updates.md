@@ -1,3 +1,7 @@
+**College Football Playoff snub rankings: Which left-out team has the biggest grievance?**\
+`No team should be as aggrieved as Florida State in 2023, but a few fan bases can be angry their teams were left out Sunday.`\
+https://nytimes.com/athletic/6869906/2025/12/07/college-football-playoff-snubs-byu-notre-dame/
+
 **College Football Playoff committee did a bad job. Here's how we would fix it**\
 `The field should always be selected by humans. The fix is more access. More explanation. More transparency. More accountability.`\
 https://nytimes.com/athletic/6870090/2025/12/07/college-football-playoff-miami-notre-dame-alabama/
