@@ -1,3 +1,11 @@
+**Why Lando Norris escaped penalty for a pass that nearly cost him the title**\
+`Yuki Tsunoda's defending tactics almost forced Norris into a title-losing error in Abu Dhabi`\
+https://nytimes.com/athletic/6870095/2025/12/07/lando-norris-yuki-tsunoda-abu-dhabi-f1/
+
+**First look at College Football Playoff first round: What you need to know about each game**\
+`Early breakdowns of Alabama at Oklahoma, James Madison at Oregon, Miami at Texas A&M and Tulane at Ole Miss in the College Football Playoff.`\
+https://nytimes.com/athletic/6869778/2025/12/07/college-football-playoff-first-round-games-schedule/
+
 **Reds Winter Meetings primer: Free-agent targets, trade candidates and payroll considerations**\
 `Plus roster additions and subtractions, and how Cincinnati could be affected by the draft lottery and Rule 5 draft.`\
 https://nytimes.com/athletic/6870277/2025/12/07/reds-mlb-winter-meetings-free-agents-trade-candidates/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/07/arts/dance/alvin-ailey-jazz-island-maija-garcia.h
 **College Football Playoff snub rankings: Which left-out team has the biggest grievance?**\
 `No team should be as aggrieved as Florida State in 2023, but a few fan bases can be angry their teams were left out Sunday.`\
 https://nytimes.com/athletic/6869906/2025/12/07/college-football-playoff-snubs-byu-notre-dame/
-
-**Out With the Beige and the Boring**\
-`Quiet luxury is in the past, and being loud is now.`\
-https://nytimes.com/2025/12/07/special-series/harris-reed-maximalism-fashion.html
-
-**You Put the Rum in the Cookie and You Eat It All Up**\
-`By Vaughn Vreeland`\
-https://nytimes.com/2025/12/07/dining/you-put-the-rum-in-the-cookie-and-you-eat-it-all-up.html
 
