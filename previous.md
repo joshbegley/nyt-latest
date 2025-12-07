@@ -1,8 +1,28 @@
+**Steelers-Ravens takeaways: Pittsburgh offense reignites, climbs atop AFC North**\
+`The AFC North rivals both entered the day with a 6-6 record coming off a loss, but it was the Steelers who came out firing.`\
+https://nytimes.com/athletic/6870417/2025/12/07/steelers-ravens-score-result-takeaways-nfl/
+
+**Titans-Browns Takeaways: Tennessee spoils Shedeur Sanders career day**\
+`The Browns drop to 3-10 and are officially eliminated from playoff contention.`\
+https://nytimes.com/athletic/6869846/2025/12/07/titans-browns-scores-results-takeaways-nfl/
+
+**Buccaneers' upset loss to Saints creates a tie for first place in NFC South**\
+`The Buccaneers and Panthers are both 7-6 and tied atop the NFC South. They play in other twice in the season's final three weeks.`\
+https://nytimes.com/athletic/6870336/2025/12/07/saints-buccaneers-score-result-takeaways-nfl/
+
+**Miami crashes College Football Playoff party — and the Canes have a team that can advance**\
+`It’s a long road to get back to Hard Rock Stadium to play for a national title. But this is what Mario Cristobal was brought home to do.`\
+https://nytimes.com/athletic/6870361/2025/12/07/miami-college-football-playoff-notre-dame/
+
+**Dolphins-Jets takeaways: Miami wins fourth straight, loses De'von Achane**\
+`The Jets lost Tyrod Taylor in the first quarter to a groin injury, and struggled mightily on offense.`\
+https://nytimes.com/athletic/6870124/2025/12/07/dolphins-jets-score-result-takeaways-nfl/
+
 **I Hit the Art Basel Superfecta**\
 `But what was the payout? A critic survives the four-season journey to the premium art fair in Hong Kong, Basel, Paris and now Miami Beach. Here are his takeaways.`\
 https://nytimes.com/2025/12/07/arts/design/art-basel-superfecta-all-four-fairs.html
 
-**Bengals-Bills takeaways: Josh Allen rallies Buffalo in fourth-quarter comeback**\
+**Bengals-Bills takeaways: Josh Allen rallies Buffalo in snowy, fourth-quarter comeback**\
 `Buffalo capitalized on grave mistakes by Joe Burrow in the second half of Week 14.`\
 https://nytimes.com/athletic/6870170/2025/12/07/bengals-bills-score-result-takeaways-nfl/
 
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6870565/2025/12/07/commanders-jets-falcons-playoff-
 **Commanders-Vikings takeaways: J.J. McCarthy sparks Minnesota offense in big win over Washington**\
 `McCarthy delivered a career-defining performance, throwing 3 touchdowns and guiding Minnesota to a commanding 31-0 victory over Washington.`\
 https://nytimes.com/athletic/6870525/2025/12/07/commanders-vikings-score-result-takeaways-nfl/
-
-**Seahawks dominate on defense and eliminate Falcons from playoff contention**\
-`The Seahawks are now 10-3 in the battle for the top of the NFC West.`\
-https://nytimes.com/athletic/6870315/2025/12/07/seahawks-falcons-score-results-takeaways-nfl/
-
-**Notre Dame opts out of bowl season after missing CFP by one spot**\
-`The Irish would have fallen into the ACC’s non-CFP bowl tier that included the Pop-Tarts Bowl, Holiday Bowl and Gator Bowl.`\
-https://nytimes.com/athletic/6870724/2025/12/07/notre-dame-bowl-opt-out-cfp/
-
-**Immigration Agents Target Family of Deported College Student**\
-`The family of Any Lucía Belloza López said agents appeared at their home in Austin, Texas, on Sunday. Their daughter, 19, was deported to Honduras during a surprise trip home for Thanksgiving.`\
-https://nytimes.com/2025/12/07/us/immigration-agents-family-deported-student.html
-
-**The New Syria**\
-`The country certainly still faces many challenges. But some things are now going right there — and those are worth our attention, too.`\
-https://nytimes.com/2025/12/07/world/syria-anniversary-assad-benin-trump.html
-
-**Magic's Franz Wagner injures lower left leg in loss to Knicks**\
-`Wagner, who is putting up some of the best numbers of his career in Orlando, landed awkwardly on a lob attempt in the first quarter Sunday.`\
-https://nytimes.com/athletic/6870554/2025/12/07/franz-wagner-orlando-magic-leg-injury/
 
