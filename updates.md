@@ -1,3 +1,7 @@
+**Indiana outlasts Ohio State for Big Ten title, CFP No. 1 seed**\
+`Indiana won its first outright Big Ten title since 1945 by knocking off the previously perfect Buckeyes.`\
+https://nytimes.com/athletic/6868835/2025/12/06/ohio-state-indiana-big-ten-championship/
+
 **Judge Halts Justice Dept. Effort to Seek New Comey Indictment**\
 `The judge’s decision prevented the government until at least next Friday from having access to much of the evidence it used to secure its original indictment against Mr. Comey.`\
 https://nytimes.com/2025/12/06/us/politics/judge-comey-indictment-richman.html

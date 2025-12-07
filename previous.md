@@ -1,3 +1,7 @@
+**Indiana outlasts Ohio State for Big Ten title, CFP No. 1 seed**\
+`Indiana won its first outright Big Ten title since 1945 by knocking off the previously perfect Buckeyes.`\
+https://nytimes.com/athletic/6868835/2025/12/06/ohio-state-indiana-big-ten-championship/
+
 **Judge Halts Justice Dept. Effort to Seek New Comey Indictment**\
 `The judge’s decision prevented the government until at least next Friday from having access to much of the evidence it used to secure its original indictment against Mr. Comey.`\
 https://nytimes.com/2025/12/06/us/politics/judge-comey-indictment-richman.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6868533/2025/12/06/blue-jackets-panthers-goal-revie
 **Michigan hires Kerry Coombs, former Ohio State assistant, as special teams coordinator**\
 `Coombs has had two stints at Ohio State, most recently as defensive coordinator in 2020 and 2021. He replaces J.B. Brown, who was fired.`\
 https://nytimes.com/athletic/6868741/2025/12/06/kerry-coombs-michigan-hiring-ohio-state/
-
-**Jalen Johnson's NBA All-Star bid is growing one triple-double at a time**\
-`The Atlanta Hawks forward continued to build his case for his first All-Star nod.`\
-https://nytimes.com/athletic/6868725/2025/12/06/jalen-johnson-triple-double-hawks-all-star/
 
