@@ -1,3 +1,7 @@
+**Montana State coach, player have intense exchange after game**\
+`Julius Davis and coach Brent Vigen had a brief, tense confrontation after the Bobcats' win.`\
+https://nytimes.com/athletic/6868732/2025/12/06/julius-davis-montana-state-altercation-coach/
+
 **A big reason for East-leading Pistons' success? Thriving in back-to-backs**\
 `The Pistons' depth has been one of their strong suits all season.`\
 https://nytimes.com/athletic/6868734/2025/12/06/pistons-win-back-to-back-bucks/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6868725/2025/12/06/jalen-johnson-triple-double-hawk
 **Rangers overmatched but not overwhelmed by MacKinnon and Avalanche, plus 10 more thoughts**\
 `Beat writer Vince Z. Mercogliano breaks down how the Rangers fared against one of the NHL's best in the Colorado Avalanche.`\
 https://nytimes.com/athletic/6868436/2025/12/06/new-york-rangers-avalanche-nathan-mackinnon/
-
-**Cowboys' George Pickens rips Richard Sherman: 'Don't speak on me unless you know the game'**\
-`Dallas coach Brian Schottenheimer says he would speak to Pickens about the since-deleted Instagram post regarding Sherman, a former All-Pro.`\
-https://nytimes.com/athletic/6868625/2025/12/06/george-pickens-richard-sherman-beef/
 
