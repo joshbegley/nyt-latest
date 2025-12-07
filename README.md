@@ -1,3 +1,11 @@
+**NFL says referees' intentional grounding penalty in Broncos-Commanders was wrong**\
+`The penalty disrupted Washington's final drive in regulation in the Commanders' Week 13 overtime loss to the Denver Broncos.`\
+https://nytimes.com/athletic/6869980/2025/12/07/nfl-broncos-commanders-incorrect-intentional-grounding-call/
+
+**CFP bracket revealed: Indiana on top, Miami and JMU in, Notre Dame out**\
+`The committee did not drop Alabama from its No. 9 ranking despite a blowout loss in the SEC championship on Saturday.`\
+https://nytimes.com/athletic/6869960/2025/12/07/college-football-playoff-bracket-rankings-revealed/
+
 **Bessent Divested From Soybean Farms After Ethics Office Warning**\
 `The Treasury Secretary said on Sunday he recently shed his holdings to comply with his federal ethics agreement.`\
 https://nytimes.com/2025/12/07/business/bessent-divest-soybean-farms-ethics.html
@@ -31,12 +39,4 @@ https://nytimes.com/athletic/6870074/2025/12/07/submit-your-questions-for-grace-
 **Quinn Hughes' trade value, the Devils' assets and why the Canucks have options**\
 `The Canucks still hold significant leverage if Hughes expresses a desire to leave Vancouver at some point this season.`\
 https://nytimes.com/athletic/6869269/2025/12/07/quinn-hughes-trade-canucks-devils-contract-value/
-
-**How to watch Nuggets vs. Hornets: Time, TV, streaming**\
-`Find out how to watch the Denver Nuggets play the Charlotte Hornets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6870066/2025/12/07/nuggets-vs-hornets-stream-how-to-watch-dec-7/
-
-**How to watch Blues vs. Canadiens: Time, TV, streaming**\
-`Find out how to watch the St. Louis Blues play the Montreal Canadiens, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6870064/2025/12/07/blues-vs-canadiens-stream-how-to-watch-dec-7/
 
