@@ -10,7 +10,7 @@ https://nytimes.com/2025/12/07/dining/you-put-the-rum-in-the-cookie-and-you-eat-
 `Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
 https://nytimes.com/athletic/6560541/2025/12/07/college-football-playoff-bracket-projections-odds/
 
-**College Football Playoff committee did a bad job, but pink slip is no option — here’s the fix**\
+**College Football Playoff committee did a bad job. Here's how we would fix it**\
 `The field should always be selected by humans. The fix is more access. More explanation. More transparency. More accountability.`\
 https://nytimes.com/athletic/6870090/2025/12/07/college-football-playoff-miami-notre-dame-alabama/
 

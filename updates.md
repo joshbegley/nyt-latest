@@ -1,3 +1,7 @@
+**College Football Playoff committee did a bad job. Here's how we would fix it**\
+`The field should always be selected by humans. The fix is more access. More explanation. More transparency. More accountability.`\
+https://nytimes.com/athletic/6870090/2025/12/07/college-football-playoff-miami-notre-dame-alabama/
+
 **Out With the Beige and the Boring**\
 `Quiet luxury is in the past, and being loud is now.`\
 https://nytimes.com/2025/12/07/special-series/harris-reed-maximalism-fashion.html
