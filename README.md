@@ -1,3 +1,7 @@
+**Is Hollywood Getting God?**\
+`Movies and pop stars wrestled with faith in 2025. That may be changing culture.`\
+https://nytimes.com/2025/12/07/briefing/is-hollywood-getting-god.html
+
 **Michael Jordan vs. NASCAR trial, Week 2 primer: Where we're at, and what to expect**\
 `Co-defendant Jim France is expected to take the witness stand, among many other notable names, as the trial rolls on this week.`\
 https://nytimes.com/athletic/6869725/2025/12/07/michael-jordan-nascar-trial-week-2-primer-jim-france/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6869748/2025/12/07/celtics-vs-raptors-stream-how-to
 **Not All Targeted Killings Are the Same. Hegseth’s Boat Strikes Are Illegal.**\
 `A former secretary of homeland security on the illegality of Trump’s boat strikes.`\
 https://nytimes.com/2025/12/07/opinion/hegseth-boat-strikes-killings.html
-
-**Pat Spencer, stepping up for Warriors, is showing that he is that ... you know what**\
-`With Golden State shorthanded, Spencer has stepped into a big role and proven he's much more than a lacrosse player in the NBA.`\
-https://nytimes.com/athletic/6869550/2025/12/07/pat-spencer-golden-state-warriors-cavaliers/
 
