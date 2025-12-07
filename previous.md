@@ -1,3 +1,15 @@
+**Reds Winter Meetings primer: Free-agent targets, trade candidates and payroll considerations**\
+`Plus roster additions and subtractions, and how Cincinnati could be affected by the draft lottery and Rule 5 draft.`\
+https://nytimes.com/athletic/6870277/2025/12/07/reds-mlb-winter-meetings-free-agents-trade-candidates/
+
+**Barcelona used Lamine Yamal centrally. He caused havoc**\
+`Hansi Flick gave his star teenager a new role in Barca's win over Betis - he looked like he had played as a No 10 for decades`\
+https://nytimes.com/athletic/6869919/2025/12/07/lamine-yamal-no-10-barcelona/
+
+**CFP first-round odds: Oregon opens as huge favorite, while Alabama-Oklahoma is close**\
+`Alabama and Miami both made the CFP field and will head on the road as underdogs in the first round.`\
+https://nytimes.com/athletic/6870072/2025/12/07/college-football-playoff-first-round-odds-alabama-miami/
+
 **Colts QB Daniel Jones exits game vs. Jaguars with Achilles injury**\
 `Sixth-round rookie Riley Leonard replaces Jones at quarterback for the Colts. `\
 https://nytimes.com/athletic/6870359/2025/12/07/colts-daniel-jones-leg-injury-jaguars/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/12/07/special-series/harris-reed-maximalism-fashion.htm
 **You Put the Rum in the Cookie and You Eat It All Up**\
 `By Vaughn Vreeland`\
 https://nytimes.com/2025/12/07/dining/you-put-the-rum-in-the-cookie-and-you-eat-it-all-up.html
-
-**College Football Playoff 2025 projections: Who's favored to advance in the bracket?**\
-`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
-https://nytimes.com/athletic/6560541/2025/12/07/college-football-playoff-bracket-projections-odds/
-
-**College Football Playoff committee did a bad job. Here's how we would fix it**\
-`The field should always be selected by humans. The fix is more access. More explanation. More transparency. More accountability.`\
-https://nytimes.com/athletic/6870090/2025/12/07/college-football-playoff-miami-notre-dame-alabama/
-
-**NFL says referees' intentional grounding penalty in Broncos-Commanders was wrong**\
-`The penalty disrupted Washington's final drive in regulation in the Commanders' Week 13 overtime loss to the Denver Broncos.`\
-https://nytimes.com/athletic/6869980/2025/12/07/nfl-broncos-commanders-incorrect-intentional-grounding-call/
 

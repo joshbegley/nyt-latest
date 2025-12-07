@@ -1,3 +1,15 @@
+**Reds Winter Meetings primer: Free-agent targets, trade candidates and payroll considerations**\
+`Plus roster additions and subtractions, and how Cincinnati could be affected by the draft lottery and Rule 5 draft.`\
+https://nytimes.com/athletic/6870277/2025/12/07/reds-mlb-winter-meetings-free-agents-trade-candidates/
+
+**Barcelona used Lamine Yamal centrally. He caused havoc**\
+`Hansi Flick gave his star teenager a new role in Barca's win over Betis - he looked like he had played as a No 10 for decades`\
+https://nytimes.com/athletic/6869919/2025/12/07/lamine-yamal-no-10-barcelona/
+
+**CFP first-round odds: Oregon opens as huge favorite, while Alabama-Oklahoma is close**\
+`Alabama and Miami both made the CFP field and will head on the road as underdogs in the first round.`\
+https://nytimes.com/athletic/6870072/2025/12/07/college-football-playoff-first-round-odds-alabama-miami/
+
 **Colts QB Daniel Jones exits game vs. Jaguars with Achilles injury**\
 `Sixth-round rookie Riley Leonard replaces Jones at quarterback for the Colts. `\
 https://nytimes.com/athletic/6870359/2025/12/07/colts-daniel-jones-leg-injury-jaguars/
