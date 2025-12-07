@@ -1,3 +1,7 @@
+**Michigan hires Kerry Coombs, former Ohio State assistant, as special teams coordinator**\
+`Coombs has had two stints at Ohio State, most recently as defensive coordinator in 2020 and 2021. He replaces J.B. Brown, who was fired.`\
+https://nytimes.com/athletic/6868741/2025/12/06/kerry-coombs-michigan-hiring-ohio-state/
+
 **Brad Marchand sneakily intrudes on Blue Jackets bench during OT timeout**\
 `Moments after the shenanigans, Marchand set up Sam Bennett for the game-winning goal as Florida beat Columbus 7-6.
 `\
