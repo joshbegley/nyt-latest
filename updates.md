@@ -1,3 +1,20 @@
+**Rangers overmatched but not overwhelmed by MacKinnon and Avalanche, plus 10 more thoughts**\
+`New York was overmatched in terms of star power, but never looked overwhelmed in a 3-2 overtime loss to the NHL-leading Avalanche.`\
+https://nytimes.com/athletic/6868436/2025/12/06/new-york-rangers-avalanche-nathan-mackinnon/
+
+**Cowboys' George Pickens rips Richard Sherman: 'Don't speak on me unless you know the game'**\
+`Dallas coach Brian Schottenheimer says he would speak to Pickens about the since-deleted Instagram post regarding Sherman, a former All-Pro.`\
+https://nytimes.com/athletic/6868625/2025/12/06/george-pickens-richard-sherman-beef/
+
+**Francis Ford Coppola’s Watch Sold for $11 Million. It’s Not for Everyone.**\
+`Frenzied bidding pushed the polarizing F.P. Journe timepiece into near-record territory despite one dealer calling the design “goofy.”`\
+https://nytimes.com/2025/12/06/style/francis-ford-coppola-watch-auction-fp-journe.html
+
+**Brad Marchand sneakily intrudes on Blue Jackets bench during OT timeout**\
+`Moments after the shenanigans, Marchand set up Sam Bennett for the game-winning goal as Florida beat Columbus 7-6.
+`\
+https://nytimes.com/athletic/6868605/2025/12/06/brad-marchand-panthers-blue-jackets-overtime-bench/
+
 **Brad Marchand sneakily intrudes on Blue Jackets bench during OT timeout**\
 `Moments after the shenanigans, Marchand set up Sam Bennett for the game-winning goal as Florida beat Columbus 7-6.
 `\
