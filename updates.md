@@ -1,3 +1,15 @@
+**Montana State coach, player have intense exchange after game**\
+`Julius Davis and coach Brent Vigen had a brief, tense confrontation after the Bobcats' win.`\
+https://nytimes.com/athletic/6868732/2025/12/06/julius-davis-montana-state-altercation-coach/
+
+**A big reason for East-leading Pistons' success? Thriving in back-to-backs**\
+`The Pistons' depth has been one of their strong suits all season.`\
+https://nytimes.com/athletic/6868734/2025/12/06/pistons-win-back-to-back-bucks/
+
+**As MLS Cup shows, even the GOAT and a deserving champ can benefit from a little luck**\
+`Inter Miami makes for a worthy MLS champion, but one sequence in particular demonstrates how close Vancouver came to spoiling the party`\
+https://nytimes.com/athletic/6868838/2025/12/06/mls-cup-inter-miami-vancouver-whitecaps-sabbi-post-messi-mascherano/
+
 **'The entire game was a joke': Blue Jackets blow 3 leads in wild loss to Panthers**\
 `From blown leads to controversial calls to odd shenanigans and much more, Columbus' 7-6 loss to Florida was a bizarre one.`\
 https://nytimes.com/athletic/6868533/2025/12/06/blue-jackets-panthers-goal-review-call/
