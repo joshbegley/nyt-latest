@@ -1,3 +1,7 @@
+**Short-handed Warriors celebrate surprising win in style after knocking off Cavs**\
+`Pat Spencer led a young, unheralded group in his first NBA start, helping Golden State to a 99-94 win in Cleveland.`\
+https://nytimes.com/athletic/6868979/2025/12/07/warriors-cavaliers-result-score/
+
 **Hong Kong Man Arrested After Posting Online About Deadly Fire**\
 `The arrest was part of a crackdown on speech that the authorities say is inciting hatred of the government. Critics say officials are silencing calls for accountability.`\
 https://nytimes.com/2025/12/07/world/asia/hong-kong-fire-arrest-after-online-speech.html

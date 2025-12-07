@@ -3,7 +3,7 @@
 https://nytimes.com/2025/12/07/world/asia/hong-kong-fire-arrest-after-online-speech.html
 
 **Short-handed Warriors celebrate surprising win in style after knocking off Cavs**\
-`Pat Spencer had a career-high 19 points and seven assists in his first NBA start, helping Golden State to a 99-94 win in Cleveland.`\
+`Pat Spencer led a young, unheralded group in his first NBA start, helping Golden State to a 99-94 win in Cleveland.`\
 https://nytimes.com/athletic/6868979/2025/12/07/warriors-cavaliers-result-score/
 
 **'Flippin' champs': Fernando Mendoza gives emotional interview after Indiana's win**\
