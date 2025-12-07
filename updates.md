@@ -1,3 +1,7 @@
+**Colts QB Daniel Jones exits game vs. Jaguars with Achilles injury**\
+`Sixth-round rookie Riley Leonard replaces Jones at quarterback for the Colts. `\
+https://nytimes.com/athletic/6870359/2025/12/07/colts-daniel-jones-leg-injury-jaguars/
+
 **Katy Perry Posts Photos With Justin Trudeau Amid Romance Rumors**\
 `Ms. Perry and Mr. Trudeau, the former prime minister of Canada, posed together in photos and videos on Instagram, making them “Instagram official.”`\
 https://nytimes.com/2025/12/07/world/canada/katy-perry-justin-trudeau-relationship-japan.html
