@@ -1,3 +1,11 @@
+**What to know about Riley Leonard, the Colts QB who replaced Daniel Jones**\
+`What does the rookie QB bring to the table as the Colts' starting quarterback?`\
+https://nytimes.com/athletic/6870382/2025/12/07/riley-leonard-colts-who-is-facts/
+
+**What's at stake in Michigan-Texas? Arch vs. Underwood and more Citrus Bowl thoughts**\
+`A two-game home-and-home series between Michigan and Texas is now a best-of-three thanks to the Citrus Bowl.`\
+https://nytimes.com/athletic/6870558/2025/12/07/michigan-texas-citrus-bowl-matchup/
+
 **Fern Michaels, Prolific Author of Romance Novels, Dies at 92**\
 `In her 40s, the self-described New Jersey housewife started building a women’s fiction empire, churning out dozens of popular books.`\
 https://nytimes.com/2025/12/07/obituaries/fern-michaels-dead.html
@@ -11,7 +19,7 @@ https://nytimes.com/athletic/6869769/2025/12/07/college-football-playoff-predict
 https://nytimes.com/athletic/6870517/2025/12/07/jayden-daniels-elbow-injured-commanders/
 
 **The Briefing: Fulham 1 Palace 2 - How good was that team goal? Was Munoz missed? How do they keep finding a way?**\
-`Matt Woosnam breaks down the talking points from the victory at Craven Cottage.`\
+`Matt Woosnam breaks down the talking points from the victory at Craven Cottage`\
 https://nytimes.com/athletic/6870088/2025/12/07/palace-munoz-wharton-fulham/
 
 **How to watch Blackhawks vs. Ducks: Time, TV, streaming**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6870482/2025/12/07/thunder-vs-jazz-stream-how-to-wa
 **Leak Highlights Poor State of Louvre Infrastructure**\
 `Up to 400 documents have been damaged by the leak, according to Francis Steinbock, the deputy administrator of the museum. But no works of art were affected.`\
 https://nytimes.com/2025/12/07/world/europe/louvre-museum-leak.html
-
-**Nick Saban airs frustration over Notre Dame being left out of CFP bracket**\
-`"There was one team left out," the former Alabama coach and ESPN analyst said on Sunday.`\
-https://nytimes.com/athletic/6870296/2025/12/07/nick-saban-notre-dame-cfp-bracket-reveal/
-
-**How to watch North Florida vs. Gonzaga men's basketball: Time, TV, streaming**\
-`Find out how to watch the North Florida Ospreys play the Gonzaga Bulldogs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6870458/2025/12/07/north-florida-vs-gonzaga-stream-how-to-watch-dec-7/
 

@@ -1,3 +1,15 @@
+**What to know about Riley Leonard, the Colts QB who replaced Daniel Jones**\
+`What does the rookie QB bring to the table as the Colts' starting quarterback?`\
+https://nytimes.com/athletic/6870382/2025/12/07/riley-leonard-colts-who-is-facts/
+
+**What's at stake in Michigan-Texas? Arch vs. Underwood and more Citrus Bowl thoughts**\
+`A two-game home-and-home series between Michigan and Texas is now a best-of-three thanks to the Citrus Bowl.`\
+https://nytimes.com/athletic/6870558/2025/12/07/michigan-texas-citrus-bowl-matchup/
+
+**The Briefing: Fulham 1 Palace 2 - How good was that team goal? Was Munoz missed? How do they keep finding a way?**\
+`Matt Woosnam breaks down the talking points from the victory at Craven Cottage`\
+https://nytimes.com/athletic/6870088/2025/12/07/palace-munoz-wharton-fulham/
+
 **Fern Michaels, Prolific Author of Romance Novels, Dies at 92**\
 `In her 40s, the self-described New Jersey housewife started building a women’s fiction empire, churning out dozens of popular books.`\
 https://nytimes.com/2025/12/07/obituaries/fern-michaels-dead.html
