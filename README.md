@@ -1,3 +1,11 @@
+**A big reason for East-leading Pistons' success? Thriving in back-to-backs**\
+`The Pistons' depth has been one of their strong suits all season.`\
+https://nytimes.com/athletic/6868734/2025/12/06/pistons-win-back-to-back-bucks/
+
+**As MLS Cup shows, even the GOAT and a deserving champ can benefit from a little luck**\
+`Inter Miami makes for a worthy MLS champion, but one sequence in particular demonstrates how close Vancouver came to spoiling the party`\
+https://nytimes.com/athletic/6868838/2025/12/06/mls-cup-inter-miami-vancouver-whitecaps-sabbi-post-messi-mascherano/
+
 **James Harden passes Carmelo Anthony on NBA all-time scoring list: 'I'm blessed. I'm grateful'**\
 `Now a top-10 scorer in NBA history, James Harden has made a career of buckets since being drafted third overall in 2009.`\
 https://nytimes.com/athletic/6868678/2025/12/06/james-harden-passes-carmelo-anthony-scoring-list/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6868436/2025/12/06/new-york-rangers-avalanche-natha
 **Cowboys' George Pickens rips Richard Sherman: 'Don't speak on me unless you know the game'**\
 `Dallas coach Brian Schottenheimer says he would speak to Pickens about the since-deleted Instagram post regarding Sherman, a former All-Pro.`\
 https://nytimes.com/athletic/6868625/2025/12/06/george-pickens-richard-sherman-beef/
-
-**Francis Ford Coppola’s Watch Sold for $11 Million. It’s Not for Everyone.**\
-`Frenzied bidding pushed the polarizing F.P. Journe timepiece into near-record territory despite one dealer calling the design “goofy.”`\
-https://nytimes.com/2025/12/06/style/francis-ford-coppola-watch-auction-fp-journe.html
-
-**In Honduras, Some Voters Were Swayed by Trump, Others Angered**\
-`President Trump backed Nasry Asfura days before the Nov. 30 election and denounced his opponents. In a close race, that has potentially tipped the scales.`\
-https://nytimes.com/2025/12/06/world/americas/honduras-voters-trump-election.html
 
