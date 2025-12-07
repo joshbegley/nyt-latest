@@ -1,3 +1,7 @@
+**A Not-So-Sweet Slumber**\
+`Artwork can challenge us to imagine what happens when society abandons reason and ignores truth.`\
+https://nytimes.com/2025/12/07/special-series/marcel-dzama-francisco-goya.html
+
 **How Lando Norris claimed F1 world championship to cap McLaren's dominant season**\
 `Norris nailed the Abu Dhabi Grand Prix when it mattered and now he's celebrating his first world championship.`\
 https://nytimes.com/athletic/6869839/2025/12/07/lando-norris-f1-world-championship-mclaren/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6868940/2025/12/07/canucks-fun-win-quinn-hughes/
 **How to Love Your Country, for Better or Worse**\
 `Readers respond to a column by David Brooks about his unconditional love for America.`\
 https://nytimes.com/2025/12/07/opinion/love-for-america.html
-
-**How should Pelicans approach trade market for Zion Williamson, Trey Murphy?**\
-`The Pelicans are 3-21 with two months remaining before the NBA trade deadline. How should the team approach the constant trade rumors?`\
-https://nytimes.com/athletic/6869399/2025/12/07/pelicans-zion-nba-trade-trey-murphy-herb-jones/
 
