@@ -1,3 +1,11 @@
+**How the SEC’s 5 Playoff bids, including Alabama, were a year in the making**\
+`The SEC reeled in four of the seven at-large bids in this year's Playoff, a major victory for the conference.`\
+https://nytimes.com/athletic/6870483/2025/12/07/sec-college-football-playoff-greg-sankey/
+
+**Jayden Daniels leaves Commanders-Vikings game after reinjuring left elbow**\
+`After Daniels was injured, Washington tight end Zach Ertz was ruled out with a knee injury and left the field in tears.`\
+https://nytimes.com/athletic/6870517/2025/12/07/jayden-daniels-elbow-injured-commanders/
+
 **Winter Meetings preview: Cubs seem to understand it’s time to make a splash again**\
 `“It will be an active offseason,” Jed Hoyer said. “We’ll be really active in the pitching market.”`\
 https://nytimes.com/athletic/6870545/2025/12/07/cubs-winter-meetings-tatsuya-imai-michael-king/

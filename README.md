@@ -1,3 +1,7 @@
+**Democrats Call for Releasing Classified Video of Deadly Boat Attacks**\
+`Top Democratic lawmakers who have seen the footage said Sunday that making the video public would provide transparency around the strikes that killed two survivors on Sept. 2.`\
+https://nytimes.com/2025/12/07/us/politics/democrats-boat-strike-video-release.html
+
 **How the SEC’s 5 Playoff bids, including Alabama, were a year in the making**\
 `The SEC reeled in four of the seven at-large bids in this year's Playoff, a major victory for the conference.`\
 https://nytimes.com/athletic/6870483/2025/12/07/sec-college-football-playoff-greg-sankey/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6870088/2025/12/07/palace-munoz-wharton-fulham/
 **How to watch Blackhawks vs. Ducks: Time, TV, streaming**\
 `Find out how to watch the Chicago Blackhawks play the Anaheim Ducks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6870488/2025/12/07/blackhawks-vs-ducks-stream-how-to-watch-dec-7/
-
-**How to watch Lakers vs. 76ers: Time, TV, streaming**\
-`Find out how to watch the Los Angeles Lakers play the Philadelphia 76ers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6870485/2025/12/07/lakers-vs-76ers-stream-how-to-watch-dec-7/
 
