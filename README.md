@@ -1,3 +1,7 @@
+**Immigration Agents Target Family of Deported College Student**\
+`The family of Any Lucía Belloza López said agents appeared at their home in Austin, Texas, on Sunday. Their daughter, 19, was deported to Honduras during a surprise trip home for Thanksgiving.`\
+https://nytimes.com/2025/12/07/us/immigration-agents-family-deported-student.html
+
 **The New Syria**\
 `The country certainly still faces many challenges. But some things are now going right there — and those are worth our attention, too.`\
 https://nytimes.com/2025/12/07/world/syria-anniversary-assad-benin-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6870558/2025/12/07/michigan-texas-citrus-bowl-match
 **Fern Michaels, Prolific Author of Romance Novels, Dies at 92**\
 `In her 40s, the self-described New Jersey housewife started building a women’s fiction empire, churning out dozens of popular books.`\
 https://nytimes.com/2025/12/07/obituaries/fern-michaels-dead.html
-
-**Expert College Football Playoff brackets: Feldman, Mandel and Russo make their picks**\
-`Our experts have different champions, but all agree that Alabama should not be in the field.`\
-https://nytimes.com/athletic/6869769/2025/12/07/college-football-playoff-predictions-brackets/
 
