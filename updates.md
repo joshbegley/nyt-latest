@@ -1,3 +1,7 @@
+**Ohio State was nearly perfect. Then little problems became big ones in Indy**\
+`Offense, kicking game need to do their part if the Buckeyes are to win another national championship.`\
+https://nytimes.com/athletic/6869214/2025/12/07/ohio-state-indiana-ryan-day/
+
 **How Max Verstappen's horror-movie quality makes him dangerous in F1 title deciders**\
 `Verstappen says he has "nothing to lose" in Sunday's winner-take-all finale. That gives him a psychological edge over his rivals.`\
 https://nytimes.com/athletic/6868609/2025/12/07/max-verstappen-f1-title-abu-dhabi-horror-movie/
