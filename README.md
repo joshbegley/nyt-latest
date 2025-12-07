@@ -1,3 +1,7 @@
+**Hegseth Skirts Questions About Releasing Video of Sept. 2 Boat Attack**\
+`At an appearance in California, Defense Secretary Pete Hegseth was noncommittal about releasing the full video of a U.S. military attack on a boat in the Caribbean.`\
+https://nytimes.com/2025/12/06/us/politics/pete-hegseth-boat-attack-video.html
+
 **'The entire game was a joke': Blue Jackets blow 3 leads, lose wild affair to Panthers**\
 `From blown leads to controversial calls to odd shenanigans and much more, Columbus' 7-6 loss to Florida was a bizarre one.`\
 https://nytimes.com/athletic/6868533/2025/12/06/blue-jackets-panthers-goal-review-call/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6868444/2025/12/06/silent-night-court-storming-tayl
 **Beckham relishes becoming first MLS Cup winner as both player and owner**\
 `Beckham's efforts to build a winner in Miami – with Lionel Messi as its centerpiece – have paid off with a bit of MLS history`\
 https://nytimes.com/athletic/6868658/2025/12/06/david-beckham-mls-cup-win-player-owner-inter-miami/
-
-**College Football Playoff takeaways: Could Georgia's dominant win knock Alabama out?**\
-`What we're learning about the College Football Playoff as conference championship games provide the final data points.`\
-https://nytimes.com/athletic/6868092/2025/12/06/college-football-playoff-bracket-conference-championship-results/
 
