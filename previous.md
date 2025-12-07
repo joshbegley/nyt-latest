@@ -1,3 +1,31 @@
+**How to watch Central Michigan vs. Kentucky women's basketball: Time, TV, streaming**\
+`Find out how to watch the Central Michigan Chippewas play the Kentucky Wildcats, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6869450/2025/12/07/central-michigan-vs-kentucky-stream-how-to-watch-dec-7/
+
+**How to watch North Carolina Central vs. South Carolina women's basketball: Time, TV, streaming**\
+`Find out how to watch the North Carolina Central Eagles play the South Carolina Gamecocks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6869451/2025/12/07/north-carolina-central-vs-south-carolina-stream-how-to-watch-dec-7/
+
+**How to watch Purdue vs. Michigan women's basketball: Time, TV, streaming**\
+`Find out how to watch the Purdue Boilermakers play the Michigan Wolverines, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6869447/2025/12/07/purdue-vs-michigan-stream-how-to-watch-dec-7/
+
+**How to watch Boston University vs. North Carolina women's basketball: Time, TV, streaming**\
+`Find out how to watch the Boston University Terriers play the North Carolina Tar Heels, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6869444/2025/12/07/boston-university-vs-north-carolina-stream-how-to-watch-dec-7/
+
+**How to watch Missouri vs. Kansas men's basketball: Time, TV, streaming**\
+`Find out how to watch the Missouri Tigers play the Kansas Jayhawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6869442/2025/12/07/missouri-vs-kansas-stream-how-to-watch-dec-7/
+
+**How to watch New Hampshire vs. Louisville women's basketball: Time, TV, streaming**\
+`Find out how to watch the New Hampshire Wildcats play the Louisville Cardinals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6869440/2025/12/07/new-hampshire-vs-louisville-stream-how-to-watch-dec-7/
+
+**How to watch DePaul vs. UConn women's basketball: Time, TV, streaming**\
+`Find out how to watch the DePaul Blue Demons play the UConn Huskies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6869438/2025/12/07/depaul-vs-uconn-stream-how-to-watch-dec-7/
+
 **The Ashes Briefing: Australia stroll to Gabba win, so what now for England?**\
 `The hosts' grip on the Ashes has been tightened after they went 2-0 up despite a session of resistance from Ben Stokes and Will Jacks`\
 https://nytimes.com/athletic/6868956/2025/12/07/ashes-australia-england-stokes-jacks-neser/
@@ -9,32 +37,4 @@ https://nytimes.com/2025/12/07/us/politics/trump-security-strategy-superpowers.h
 **Netflix Always Wanted Some HBO Shows. Now It Gets All of HBO Instead.**\
 `Netflix’s blockbuster deal to buy Warner Bros., including HBO, is the latest twist in a rivalry that has reshaped the entertainment industry.`\
 https://nytimes.com/2025/12/07/business/media/netflix-hbo-warner-bros.html
-
-**Confusion, Anxiety for Parents as Vaccine Guidelines are Upended**\
-`Conflicting recommendations leaves parents with more questions than answers when it comes to vaccines for their newborn children.`\
-https://nytimes.com/2025/12/07/us/vaccines-chlldren-hepatitis-guidelines.html
-
-**Conservative Project at Supreme Court Meets Trump’s Push to Oust Officials**\
-`President Trump has repeatedly ousted leaders of independent agencies despite federal laws meant to shield those regulators from politics.`\
-https://nytimes.com/2025/12/07/us/politics/supreme-court-trump-independent-agencies.html
-
-**The Impact of Trump’s Slipping Approval Rating**\
-`After months of holding steady, President Trump‘s approval rating has dipped over the past several weeks, according to a New York Times analysis of public polling.`\
-https://nytimes.com/video/us/politics/100000010563180/the-impact-of-trumps-slipping-approval-rating.html
-
-**For Landmark Test of Executive Power, Echoes of a 1930s Supreme Court Battle**\
-`Franklin D. Roosevelt’s efforts to oust a Federal Trade Commission leader offer parallels to the current fight over President Trump’s actions.`\
-https://nytimes.com/2025/12/07/us/politics/supreme-court-humphrey-roosevelt.html
-
-**From Improv Class to Mayor-Elect: How New York’s Culture Shaped Mamdani**\
-`In an interview, he revealed the Indian ragas, indie movies, comedy shows and museums in the city that stayed with him.`\
-https://nytimes.com/2025/12/07/arts/mamdani-nyc-mayor-comedy-movies-art.html
-
-**Is This Former Bravo Star Democrats’ Toughest Critic?**\
-`The reality TV celebrity turned left-wing podcaster Jennifer Welch is fed up with President Trump. She also expects better from the Democrats.`\
-https://nytimes.com/2025/12/07/style/jennifer-welch-ive-had-it-podcast.html
-
-**Best Songs of 2025**\
-`Listen to 48 tracks that broke new artists, blew apart genres and revived beloved sounds.`\
-https://nytimes.com/2025/12/07/arts/music/best-songs-2025.html
 
