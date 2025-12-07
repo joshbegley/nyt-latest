@@ -1,3 +1,11 @@
+**Lando Norris: The small, shy Somerset kid who became F1 world champion**\
+`Lando Norris has just won the 2025 F1 world title. This is his story, from talented beginnings to motorsport's top prize`\
+https://nytimes.com/athletic/6845576/2025/12/07/lando-norris-f1-world-champion/
+
+**Colin Jost Plays Pete Hegseth on ‘S.N.L.’ to Explain ‘Operation Kill Everybody’**\
+`Jost appeared as the defense secretary in a rare role away from the Weekend Update desk while Melissa McCarthy hosted for the first time since 2017.`\
+https://nytimes.com/2025/12/07/arts/television/colin-jost-plays-pete-hegseth-on-snl.html
+
 **Lando Norris becomes world champion for the first time: Abu Dhabi Grand Prix briefing**\
 `The three-way title fight went to the the last race of the season and ended with Lando Norris winning the world title by two points `\
 https://nytimes.com/athletic/6869760/2025/12/07/lando-norris-world-champion-abu-dhabi-grand-prix/

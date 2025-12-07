@@ -1,3 +1,7 @@
+**Lando Norris: The small, shy Somerset kid who became F1 world champion**\
+`Lando Norris has just won the 2025 F1 world title. This is his story, from talented beginnings to motorsport's top prize`\
+https://nytimes.com/athletic/6845576/2025/12/07/lando-norris-f1-world-champion/
+
 **Lando Norris becomes world champion for the first time: Abu Dhabi Grand Prix briefing**\
 `The three-way title fight went to the the last race of the season and ended with Lando Norris winning the world title by two points `\
 https://nytimes.com/athletic/6869760/2025/12/07/lando-norris-world-champion-abu-dhabi-grand-prix/
@@ -11,7 +15,7 @@ https://nytimes.com/2025/12/07/briefing/is-hollywood-getting-god.html
 https://nytimes.com/athletic/6869725/2025/12/07/michael-jordan-nascar-trial-week-2-primer-jim-france/
 
 **Colin Jost Plays Pete Hegseth on ‘S.N.L.’ to Explain ‘Operation Kill Everybody’**\
-`Jost appeared as the Defense Secretary in a rare role away from the Weekend Update desk while Melissa McCarthy hosted for the first time since 2017.`\
+`Jost appeared as the defense secretary in a rare role away from the Weekend Update desk while Melissa McCarthy hosted for the first time since 2017.`\
 https://nytimes.com/2025/12/07/arts/television/colin-jost-plays-pete-hegseth-on-snl.html
 
 **Canucks earn a fun win, but real story is what's happening off the ice**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6869420/2025/12/07/ben-stokes-england-ashes-austral
 **Not All Targeted Killings Are the Same. Hegseth’s Boat Strikes Are Illegal.**\
 `A former secretary of homeland security on the illegality of Trump’s boat strikes.`\
 https://nytimes.com/2025/12/07/opinion/hegseth-boat-strikes-killings.html
-
-**How to watch Celtics vs. Raptors: Time, TV, streaming**\
-`Find out how to watch the Boston Celtics play the Toronto Raptors, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6869748/2025/12/07/celtics-vs-raptors-stream-how-to-watch-dec-7/
 
