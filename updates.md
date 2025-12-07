@@ -1,3 +1,15 @@
+**How to watch Georgetown vs. North Carolina men's basketball: Time, TV, streaming**\
+`Find out how to watch the Georgetown Hoyas play the North Carolina Tar Heels, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6870034/2025/12/07/georgetown-vs-north-carolina-stream-how-to-watch-dec-7/
+
+**How to watch Michigan State vs. Wisconsin women's basketball: Time, TV, streaming**\
+`Find out how to watch the Michigan State Spartans play the Wisconsin Badgers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6870032/2025/12/07/michigan-state-vs-wisconsin-stream-how-to-watch-dec-7/
+
+**AP Top 25: Indiana No. 1 for first time; Bama behind Notre Dame, Miami**\
+`Indiana stands atop the final AP poll before the Playoff, with Georgia, Ohio State, Texas Tech and Oregon next.`\
+https://nytimes.com/athletic/6869584/2025/12/07/ap-top-25-indiana-football-number-one/
+
 **The Global Re-Order**\
 `As U.S. policies upend old alliances and norms, global power is shifting and the stakes are growing.`\
 https://nytimes.com/2025/12/07/podcasts/dealbook-summit-international-policy-ehud-barak-fareed-zakaria.html
