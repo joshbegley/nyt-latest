@@ -1,3 +1,16 @@
+**Brad Marchand sneakily intrudes on Blue Jackets bench during OT timeout**\
+`Moments after the shenanigans, Marchand set up Sam Bennett for the game-winning goal as Florida beat Columbus 7-6.
+`\
+https://nytimes.com/athletic/6868605/2025/12/06/brad-marchand-panthers-blue-jackets-overtime-bench/
+
+**Trump Administration Waives $11 Million Southwest Airlines Fine**\
+`The penalty was part of a fine imposed by the Biden administration after it determined the airline had failed to provide prompt customer service and refunds to passengers in 2022.`\
+https://nytimes.com/2025/12/06/us/politics/trump-southwest-airlines-fine.html
+
+**Georgia surges into Playoff as team to be feared, leaving Alabama to sweat out selection Sunday**\
+`Georgia and Kirby Smart exorcised years of demons with a dominant win over Alabama to win another SEC championship.`\
+https://nytimes.com/athletic/6868619/2025/12/06/georgia-alabama-score-result/
+
 **Antonio Brown seeks attempted murder case dismissal, citing 'stand your ground' law**\
 `Brown faces a second-degree attempted murder charge following an altercation at a boxing match in May.`\
 https://nytimes.com/athletic/6868526/2025/12/06/antonio-brown-case-dismissal-attempted-murder-charge/
@@ -25,16 +38,4 @@ https://nytimes.com/2025/12/06/weather/pacific-northwest-rain-storm-flooding.htm
 **Illinois State throws 5 interceptions but still stuns No. 1 NDSU in FCS playoffs**\
 `Tommy Rittenhouse came through when needed, throwing two touchdown passes in the final 3 minutes to beat the defending champions 29-28.`\
 https://nytimes.com/athletic/6868431/2025/12/06/illinois-state-upsets-ndsu-fcs-playoffs/
-
-**Original Thinkers**\
-`Kate Jensen’s debut Times puzzle comes with a cavalcade of luminaries.`\
-https://nytimes.com/2025/12/06/crosswords/daily-puzzle-2025-12-07.html
-
-**At Least 17 Migrants Die in Greece’s Worst Shipwreck in Two Years**\
-`Two people were rescued from a half-sunken boat off the island of Crete on Saturday evening, but 17 others died in the wreck.`\
-https://nytimes.com/2025/12/06/world/europe/greece-shipwreck-migrants.html
-
-**The Pulse: Winners of the World Cup draw**\
-`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
-https://nytimes.com/athletic/6866973/2025/12/06/did-the-usmnt-win-the-world-cup-draw-theyre-in-the-mix/
 
