@@ -1,3 +1,15 @@
+**Out With the Beige and the Boring**\
+`Quiet luxury is in the past, and being loud is now.`\
+https://nytimes.com/2025/12/07/special-series/harris-reed-maximalism-fashion.html
+
+**You Put the Rum in the Cookie and You Eat It All Up**\
+`By Vaughn Vreeland`\
+https://nytimes.com/2025/12/07/dining/you-put-the-rum-in-the-cookie-and-you-eat-it-all-up.html
+
+**College Football Playoff 2025 projections: Who's favored to advance in the bracket?**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/12/07/college-football-playoff-bracket-projections-odds/
+
 **College Football Playoff committee did a bad job, but pink slip is no option — here’s the fix**\
 `The field should always be selected by humans. The fix is more access. More explanation. More transparency. More accountability.`\
 https://nytimes.com/athletic/6870090/2025/12/07/college-football-playoff-miami-notre-dame-alabama/
@@ -25,18 +37,4 @@ https://nytimes.com/2025/12/07/world/europe/chernobyl-ukraine-russian-drone-stri
 **Virginia Tech coach Pry, fired in September, returning as DC for his replacement**\
 `Franklin fought back tears during his introductory news conference in November while acknowledging Pry, his friend and former assistant.`\
 https://nytimes.com/athletic/6869181/2025/12/07/brent-pry-virginia-tech-james-franklin/
-
-**Footballer arrested in London on suspicion of assault and affray**\
-`The victim's injuries are not believed to be life-changing or life-threatening, the Metropolitan Police confirmed on Sunday. `\
-https://nytimes.com/athletic/6869905/2025/12/07/footballer-arrest-london/
-
-**Everton end Chelsea's 34-match WSL unbeaten run with 1-0 win**\
-`The Merseyside club went into the match having not won a league game since their season opener in September.`\
-https://nytimes.com/athletic/6870073/2025/12/07/chelsea-wsl-everton-unbeaten-run-broken/
-
-**Submit your questions for Grace Raynor’s recruiting mailbag**\
-`<p>The early signing period is over. There was plenty of other drama. USC signed the No. 1 class. Vanderbilt signed the No. 1 player.</p>
-<p>Submit your questions for Grace below. We will post her answers later this week.</p>
-`\
-https://nytimes.com/athletic/6870074/2025/12/07/submit-your-questions-for-grace-raynors-recruiting-mailbag-22/
 
