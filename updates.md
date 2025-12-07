@@ -1,3 +1,5 @@
+
+
 **Virginia Tech coach Pry, fired in September, returning as DC for his replacement**\
 `Franklin fought back tears during his introductory news conference in November while acknowledging Pry, his friend and former assistant.`\
 https://nytimes.com/athletic/6869181/2025/12/07/brent-pry-virginia-tech-james-franklin/
