@@ -1,3 +1,7 @@
+**'The entire game was a joke': Blue Jackets blow 3 leads, lose wild affair to Panthers**\
+`From blown leads to controversial calls to odd shenanigans and much more, Columbus' 7-6 loss to Florida was a bizarre one.`\
+https://nytimes.com/athletic/6868533/2025/12/06/blue-jackets-panthers-goal-review-call/
+
 **Michigan hires Kerry Coombs, former Ohio State assistant, as special teams coordinator**\
 `Coombs has had two stints at Ohio State, most recently as defensive coordinator in 2020 and 2021. He replaces J.B. Brown, who was fired.`\
 https://nytimes.com/athletic/6868741/2025/12/06/kerry-coombs-michigan-hiring-ohio-state/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6868658/2025/12/06/david-beckham-mls-cup-win-player
 **College Football Playoff takeaways: Could Georgia's dominant win knock Alabama out?**\
 `What we're learning about the College Football Playoff as conference championship games provide the final data points.`\
 https://nytimes.com/athletic/6868092/2025/12/06/college-football-playoff-bracket-conference-championship-results/
-
-**College Football Playoff 2025 projections: Who has locked up a bid? Who's on the bubble?**\
-`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
-https://nytimes.com/athletic/6560541/2025/12/06/college-football-playoff-bracket-projections-odds/
 
