@@ -1,3 +1,15 @@
+**Mariners send top-100 prospect Harry Ford to Nationals for reliever Jose A. Ferrer**\
+`There wasn't much room for Harry Ford with Cal Raleigh entrenched as Seattle's catcher. In return, they got someone with closing experience.`\
+https://nytimes.com/athletic/6868520/2025/12/06/mariners-nationals-trade-harry-ford-jose-ferrer/
+
+**Texas Tech shook up offseason. Now Red Raiders ready to shake up Playoff**\
+`There's a New Money group in college football making their own traditions. Look no further than Texas Tech. `\
+https://nytimes.com/athletic/6868543/2025/12/06/texas-tech-byu-analysis-college-football-playoff/
+
+**Illinois State throws 5 interceptions but still stuns No. 1 NDSU in FCS playoffs**\
+`Tommy Rittenhouse came through when needed, throwing two touchdown passes in the final 3 minutes to beat the defending champions 29-28.`\
+https://nytimes.com/athletic/6868431/2025/12/06/illinois-state-upsets-ndsu-fcs-playoffs/
+
 **Illinois State throws 5 interceptions but still stuns No. 1 NDSU in FCS playoffs**\
 `Tommy Rittenhouse came through when he needed, throwing two touchdown passes in the final 3 minutes to beat the defending champions 29-28.`\
 https://nytimes.com/athletic/6868431/2025/12/06/illinois-state-upsets-ndsu-fcs-playoffs/
