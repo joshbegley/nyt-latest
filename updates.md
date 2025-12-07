@@ -1,3 +1,7 @@
+**Trump Blasts Lawmaker for Remaining Democrat After Receiving Pardon**\
+`Days after pardoning him, President Trump accused Representative Henry Cuellar of Texas of disloyalty for not switching to the Republican Party.`\
+https://nytimes.com/2025/12/07/us/politics/trump-henry-cuellar-democrat-run-criticism.html
+
 **Steelers-Ravens takeaways: Pittsburgh offense reignites, climbs atop AFC North**\
 `The AFC North rivals both entered the day with a 6-6 record coming off a loss, but it was the Steelers who came out firing.`\
 https://nytimes.com/athletic/6870417/2025/12/07/steelers-ravens-score-result-takeaways-nfl/
