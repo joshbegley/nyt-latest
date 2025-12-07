@@ -18,6 +18,11 @@ https://nytimes.com/athletic/6869140/2025/12/07/blackhawks-loss-kings-progress/
 `\
 https://nytimes.com/athletic/6869140/2025/12/07/blackhawks-loss-kings-progress/
 
+**Blackhawks' Hollywood flop vs. Kings shows progress isn't always linear**\
+`The Blackhawks fell apart over the second and third periods in a ghastly 6-0 loss to a normally anemic Kings team Saturday night.
+`\
+https://nytimes.com/athletic/6869140/2025/12/07/blackhawks-loss-kings-progress/
+
 **The Pulse: Will Bama get the boot?**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6868946/2025/12/07/alabama-should-be-out-of-the-playoff-but-thats-no-certainty/
