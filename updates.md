@@ -1,3 +1,5 @@
+
+
 **Magic's Franz Wagner injures lower left leg in loss to Knicks**\
 `Wagner, who is putting up some of the best numbers of his career in Orlando, landed awkwardly on a lob attempt in the first quarter Sunday.`\
 https://nytimes.com/athletic/6870554/2025/12/07/franz-wagner-orlando-magic-leg-injury/
