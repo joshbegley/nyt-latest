@@ -1,3 +1,7 @@
+**Rangers overmatched but not overwhelmed by MacKinnon and Avalanche, plus 10 more thoughts**\
+`New York was overmatched in terms of star power, but never looked overwhelmed in a 3-2 overtime loss to the NHL-leading Avalanche.`\
+https://nytimes.com/athletic/6868436/2025/12/06/new-york-rangers-avalanche-nathan-mackinnon/
+
 **Cowboys' George Pickens rips Richard Sherman: 'Don't speak on me unless you know the game'**\
 `Dallas coach Brian Schottenheimer says he would speak to Pickens about the since-deleted Instagram post regarding Sherman, a former All-Pro.`\
 https://nytimes.com/athletic/6868625/2025/12/06/george-pickens-richard-sherman-beef/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6868605/2025/12/06/brad-marchand-panthers-blue-jack
 **Trump Administration Waives $11 Million Southwest Airlines Fine**\
 `The penalty was part of a fine imposed by the Biden administration after it determined the airline had failed to provide prompt customer service and refunds to passengers in 2022.`\
 https://nytimes.com/2025/12/06/us/politics/trump-southwest-airlines-fine.html
-
-**Georgia surges into Playoff as team to be feared, leaving Alabama to sweat out selection Sunday**\
-`Georgia and Kirby Smart exorcised years of demons with a dominant win over Alabama to win another SEC championship.`\
-https://nytimes.com/athletic/6868619/2025/12/06/georgia-alabama-score-result/
 
