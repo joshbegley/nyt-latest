@@ -1,3 +1,27 @@
+**Antonio Brown seeks attempted murder case dismissal, citing 'stand your ground' law**\
+`Brown faces a second-degree attempted murder charge following an altercation at a boxing match in May.`\
+https://nytimes.com/athletic/6868526/2025/12/06/antonio-brown-case-dismissal-attempted-murder-charge/
+
+**California Discourages Wild Mushroom Foraging After Fatal Outbreak**\
+`Officials said one person was killed and 20 others were poisoned after eating death cap mushrooms, which look and taste like safe mushrooms but can cause liver failure.`\
+https://nytimes.com/2025/12/06/us/california-wild-mushrooms-poison.html
+
+**How colleges are putting financial muscle behind their football coaches**\
+`Several schools have dedicated significant financial backing to their new coaching hires.`\
+https://nytimes.com/athletic/6866480/2025/12/06/college-football-coaches-nil-money/
+
+**Mariners send top-100 prospect Harry Ford to Nationals for reliever Jose A. Ferrer**\
+`There wasn't much room for Harry Ford with Cal Raleigh entrenched as Seattle's catcher. In return, they got someone with closing experience.`\
+https://nytimes.com/athletic/6868520/2025/12/06/mariners-nationals-trade-harry-ford-jose-ferrer/
+
+**Texas Tech shook up offseason. Now Red Raiders ready to shake up Playoff**\
+`There's a New Money group in college football making their own traditions. Look no further than Texas Tech. `\
+https://nytimes.com/athletic/6868543/2025/12/06/texas-tech-byu-analysis-college-football-playoff/
+
+**Illinois State throws 5 interceptions but still stuns No. 1 NDSU in FCS playoffs**\
+`Tommy Rittenhouse came through when needed, throwing two touchdown passes in the final 3 minutes to beat the defending champions 29-28.`\
+https://nytimes.com/athletic/6868431/2025/12/06/illinois-state-upsets-ndsu-fcs-playoffs/
+
 **Illinois State throws 5 interceptions but still stuns No. 1 NDSU in FCS playoffs**\
 `Tommy Rittenhouse came through when he needed, throwing two touchdown passes in the final 3 minutes to beat the defending champions 29-28.`\
 https://nytimes.com/athletic/6868431/2025/12/06/illinois-state-upsets-ndsu-fcs-playoffs/
