@@ -1,40 +1,40 @@
-**How will altitude affect the World Cup? 'Running back and taking a breath is what costs you'**\
-`Games in Mexico will be particularly affected and the conditions can significantly change players' ability to operate at their normal levels`\
-https://nytimes.com/athletic/6864645/2025/12/07/the-impact-of-altitude-on-world-cup-2026-running-back-and-taking-a-breath-is-what-costs-you/
+**Three Yankees storylines to watch ahead of the Winter Meetings**\
+`The Yankees need to make more moves to be a World Series contender in 2026. Here are three things we're watching at the Winter Meetings.`\
+https://nytimes.com/athletic/6867793/2025/12/07/yankees-mlb-winter-meetings-storylines/
 
-**Heathrow Airport Is Briefly Locked Down After Spray Is Used in Altercation**\
-`One man was arrested after a substance that appeared to be pepper spray was used during a fight in one of the airport’s parking garages, the police said.`\
-https://nytimes.com/2025/12/07/world/europe/heathrow-airport-lockdown.html
+**The making of the 2026 World Cup schedule: simulations, an all-nighter and a giant ‘puzzle’**\
+`There was a myriad of issues for the World Cup schedulers to cope with - The Athletic was given an insight into how fixtures were confirmed`\
+https://nytimes.com/athletic/6869227/2025/12/07/2026-world-cup-schedule-washington/
 
-**Mariners, Nationals both do well in Jose Ferrer-for-Harry Ford swap**\
-`Ford was a top-100 prospect but there were questions about his defense and in-game power. Ferrer's 2025 ERA doesn't represent his upside.`\
-https://nytimes.com/athletic/6868900/2025/12/07/harry-ford-jose-ferrer-nationals-mariners-trade/
+**‘We’re maturing’: Canadiens' Nick Suzuki continues to win important matchups**\
+`Suzuki and his line drove the bus yet again for the Canadiens against the Maple Leafs, and it should not be taken for granted.`\
+https://nytimes.com/athletic/6869174/2025/12/07/canadiens-nick-suzuki-maturing-maple-leafe/
 
-**Divisional showdowns, playoff-like atmosphere in Kansas City lead NFL Week 14 storylines**\
-`The road gets tough for the loser of Sunday night's Texans-Chiefs showdown, particularly if host Kansas City drops to 6-7.`\
-https://nytimes.com/athletic/6862909/2025/12/07/nfl-week-14-storylines-playoffs-chiefs-texans/
+**Maple Leafs observations: Hildebeast, a Laughton bomb and a PP that needs change**\
+`There were plenty of ups and downs for Toronto in Saturday night's shootout loss to the Canadiens at Scotiabank Arena.`\
+https://nytimes.com/athletic/6868992/2025/12/07/maple-leafs-observations-canadiens-loss/
 
-**The New York Times International Edition in Print for Monday, Dec. 8, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/12/07/todays-new-york-times-international-edition
+**Everybody in Hollywood Secretly Hates Netflix. So Now What?**\
+`The Warner Bros. deal has the town on edge.`\
+https://nytimes.com/2025/12/07/opinion/netflix-warner-bros-hollywood.html
 
-**How to watch Avalanche vs. Flyers: Time, TV, streaming**\
-`Find out how to watch the Colorado Avalanche play the Philadelphia Flyers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6869463/2025/12/07/avalanche-vs-flyers-stream-how-to-watch-dec-7/
+**Jaden McDaniels puts lessons learned from Kawhi Leonard to good use in win**\
+`McDaniels is breaking out this season, the latest example coming against Leonard and the Clippers in a win Saturday night.`\
+https://nytimes.com/athletic/6868711/2025/12/07/jaden-mcdaniels-lessons-kawhi-leonard-win-clippers/
 
-**How to watch Magic vs. Knicks: Time, TV, streaming**\
-`Find out how to watch the Orlando Magic play the New York Knicks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6869461/2025/12/07/magic-vs-knicks-stream-how-to-watch-dec-7/
+**What Do Republicans Have to Fear? Ask Tennessee.**\
+`What a special House election just told us.`\
+https://nytimes.com/2025/12/07/opinion/tennessee-trump-special-election.html
 
-**How to watch Central Michigan vs. Kentucky women's basketball: Time, TV, streaming**\
-`Find out how to watch the Central Michigan Chippewas play the Kentucky Wildcats, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6869450/2025/12/07/central-michigan-vs-kentucky-stream-how-to-watch-dec-7/
+**'Just not getting the job done': Senators' power play is cause for concern**\
+`Including Saturday night's totals, the Senators have scored seven power-play goals on 45 opportunities since Nov. 1. `\
+https://nytimes.com/athletic/6868898/2025/12/07/ottawa-senators-blues-nhl-power-play/
 
-**How to watch North Carolina Central vs. South Carolina women's basketball: Time, TV, streaming**\
-`Find out how to watch the North Carolina Central Eagles play the South Carolina Gamecocks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6869451/2025/12/07/north-carolina-central-vs-south-carolina-stream-how-to-watch-dec-7/
+**Sunday Special: ’Tis the Season for Cookies**\
+`Our experts answer your holiday baking questions and more.`\
+https://nytimes.com/2025/12/07/podcasts/the-daily/sunday-special-tis-the-season-for-cookies.html
 
-**How to watch Purdue vs. Michigan women's basketball: Time, TV, streaming**\
-`Find out how to watch the Purdue Boilermakers play the Michigan Wolverines, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6869447/2025/12/07/purdue-vs-michigan-stream-how-to-watch-dec-7/
+**Can We Stop Our Digital Selves From Becoming Who We Are?**\
+`Pay attention to how you pay attention.`\
+https://nytimes.com/2025/12/07/opinion/meta-facebook-ruling-algorithms.html
 
