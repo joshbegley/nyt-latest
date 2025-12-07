@@ -1,3 +1,7 @@
+**Ohio State was nearly perfect. Then little problems became big ones in Indy**\
+`The Buckeyes still have an elite defense, and it can carry them deep into the Playoff. But the offense also has to do its part.`\
+https://nytimes.com/athletic/6869214/2025/12/07/ohio-state-indiana-ryan-day/
+
 **Short-handed Warriors celebrate surprising win in style after knocking off Cavs**\
 `Pat Spencer led a young, unheralded group in his first NBA start, helping Golden State to a 99-94 win in Cleveland.`\
 https://nytimes.com/athletic/6868979/2025/12/07/warriors-cavaliers-result-score/

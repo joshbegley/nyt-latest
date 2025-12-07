@@ -1,3 +1,7 @@
+**Ohio State was nearly perfect. Then little problems became big ones in Indy**\
+`The Buckeyes still have an elite defense, and it can carry them deep into the Playoff. But the offense also has to do its part.`\
+https://nytimes.com/athletic/6869214/2025/12/07/ohio-state-indiana-ryan-day/
+
 **Hong Kong Man Arrested After Posting Online About Deadly Fire**\
 `The arrest was part of a crackdown on speech that the authorities say is inciting hatred of the government. Critics say officials are silencing calls for accountability.`\
 https://nytimes.com/2025/12/07/world/asia/hong-kong-fire-arrest-after-online-speech.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6868054/2025/12/07/tottenham-thomas-frank-brentford
 **College Football Playoff 2025 projections: Who has locked up a bid? Who's on the bubble?**\
 `Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
 https://nytimes.com/athletic/6560541/2025/12/07/college-football-playoff-bracket-projections-odds/
-
-**Are Aston Villa title contenders?**\
-`After beating Premier League leaders Arsenal, Villa are three points off the top. They couldn't, could they?`\
-https://nytimes.com/athletic/6867223/2025/12/07/aston-villa-title-contenders-arsenal/
 
