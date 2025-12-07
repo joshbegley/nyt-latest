@@ -1,3 +1,7 @@
+**Hegseth Skirts Questions About Releasing Video of Sept. 2 Boat Attack**\
+`At an appearance in California, Defense Secretary Pete Hegseth was noncommittal about releasing the full video of a U.S. military attack on a boat in the Caribbean.`\
+https://nytimes.com/2025/12/06/us/politics/pete-hegseth-boat-attack-video.html
+
 **'The entire game was a joke': Blue Jackets blow 3 leads, lose wild affair to Panthers**\
 `From blown leads to controversial calls to odd shenanigans and much more, Columbus' 7-6 loss to Florida was a bizarre one.`\
 https://nytimes.com/athletic/6868533/2025/12/06/blue-jackets-panthers-goal-review-call/

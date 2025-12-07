@@ -1,3 +1,11 @@
+**James Harden passes Carmelo Anthony on NBA all-time scoring list: 'I'm blessed. I'm grateful'**\
+`Now a top-10 scorer in NBA history, James Harden has made a career of buckets since being drafted third overall in 2009.`\
+https://nytimes.com/athletic/6868678/2025/12/06/james-harden-passes-carmelo-anthony-scoring-list/
+
+**Don't blame the SEC championship if Alabama misses the Playoff. Blame the Crimson Tide**\
+`Alabama looks like a team that peaked two months ago, and that's why its Playoff status remains a question heading into Sunday.`\
+https://nytimes.com/athletic/6868817/2025/12/06/alabama-georgia-sec-championship-college-football-playoff/
+
 **Hegseth Skirts Questions About Releasing Video of Sept. 2 Boat Attack**\
 `At an appearance in California, Defense Secretary Pete Hegseth was noncommittal about releasing the full video of a U.S. military attack on a boat in the Caribbean.`\
 https://nytimes.com/2025/12/06/us/politics/pete-hegseth-boat-attack-video.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/06/style/francis-ford-coppola-watch-auction-fp-journ
 **In Honduras, Some Voters Were Swayed by Trump, Others Angered**\
 `President Trump backed Nasry Asfura days before the Nov. 30 election and denounced his opponents. In a close race, that has potentially tipped the scales.`\
 https://nytimes.com/2025/12/06/world/americas/honduras-voters-trump-election.html
-
-**Colorful 'Silent Night' court-storming returns to Indiana university**\
-`Taylor University celebrates "Silent Night" tradition in a colorful way.`\
-https://nytimes.com/athletic/6868444/2025/12/06/silent-night-court-storming-taylor-university/
-
-**Beckham relishes becoming first MLS Cup winner as both player and owner**\
-`Beckham's efforts to build a winner in Miami – with Lionel Messi as its centerpiece – have paid off with a bit of MLS history`\
-https://nytimes.com/athletic/6868658/2025/12/06/david-beckham-mls-cup-win-player-owner-inter-miami/
 
