@@ -1,3 +1,7 @@
+**Footballer arrested in London on suspicion of assault and affray**\
+`The victim's injuries are not believed to be life-changing or life-threatening, the Metropolitan Police confirmed on Sunday. `\
+https://nytimes.com/athletic/6869905/2025/12/07/footballer-arrest-london/
+
 **Everton end Chelsea's 34-match WSL unbeaten run with 1-0 win**\
 `The Merseyside club went into the match having not won a league game since their season opener in September.`\
 https://nytimes.com/athletic/6870073/2025/12/07/chelsea-wsl-everton-unbeaten-run-broken/
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/6870058/2025/12/07/trail-blazers-vs-grizzlies-strea
 **How to watch Blue Jackets vs. Capitals: Time, TV, streaming**\
 `Find out how to watch the Columbus Blue Jackets play the Washington Capitals, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6870056/2025/12/07/blue-jackets-vs-capitals-stream-how-to-watch-dec-7/
-
-**How to watch Islanders vs. Panthers: Time, TV, streaming**\
-`Find out how to watch the New York Islanders play the Florida Panthers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6870055/2025/12/07/islanders-vs-panthers-stream-how-to-watch-dec-7/
 

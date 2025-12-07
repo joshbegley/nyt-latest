@@ -1,3 +1,7 @@
+**Everton end Chelsea's 34-match WSL unbeaten run with 1-0 win**\
+`The Merseyside club went into the match having not won a league game since their season opener in September.`\
+https://nytimes.com/athletic/6870073/2025/12/07/chelsea-wsl-everton-unbeaten-run-broken/
+
 **Submit your questions for Grace Raynor’s recruiting mailbag**\
 `<p>The early signing period is over. There was plenty of other drama. USC signed the No. 1 class. Vanderbilt signed the No. 1 player.</p>
 <p>Submit your questions for Grace below. We will post her answers later this week.</p>
