@@ -1,3 +1,11 @@
+**Chaos in the AFC North and disaster for the Colts: Our experts' Week 14 takeaways**\
+`Also: Who has it worse, the Bengals or Commanders? And will the Bucs or Panthers come out on top in the AFC South?`\
+https://nytimes.com/athletic/6870295/2025/12/07/nfl-takeaways-week-14-scores-results/
+
+**Submit your questions for Pete Sampson's Notre Dame football mailbag**\
+`There's a lot to talk about after the Fighting Irish were unceremoniously bumped from the CFP field on selection day.`\
+https://nytimes.com/athletic/6870991/2025/12/07/submit-your-questions-for-pete-sampsons-notre-dame-football-mailbag-2/
+
 **They Witness Deaths on the Tracks and Then Struggle to Get Help**\
 `After train operators are involved in fatal strikes, the agency that runs New York City’s subway often leaves them to fend for themselves.`\
 https://nytimes.com/interactive/2025/12/07/nyregion/subway-deaths-train-operators-ptsd.html

@@ -1,3 +1,11 @@
+**Chaos in the AFC North and disaster for the Colts: Our experts' Week 14 takeaways**\
+`Also: Who has it worse, the Bengals or Commanders? And will the Bucs or Panthers come out on top in the AFC South?`\
+https://nytimes.com/athletic/6870295/2025/12/07/nfl-takeaways-week-14-scores-results/
+
+**Submit your questions for Pete Sampson's Notre Dame football mailbag**\
+`There's a lot to talk about after the Fighting Irish were unceremoniously bumped from the CFP field on selection day.`\
+https://nytimes.com/athletic/6870991/2025/12/07/submit-your-questions-for-pete-sampsons-notre-dame-football-mailbag-2/
+
 **They Witness Deaths on the Tracks and Then Struggle to Get Help**\
 `After train operators are involved in fatal strikes, the agency that runs New York City’s subway often leaves them to fend for themselves.`\
 https://nytimes.com/interactive/2025/12/07/nyregion/subway-deaths-train-operators-ptsd.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6870124/2025/12/07/dolphins-jets-score-result-takea
 **I Hit the Art Basel Superfecta**\
 `But what was the payout? A critic survives the four-season journey to the premium art fair in Hong Kong, Basel, Paris and now Miami Beach. Here are his takeaways.`\
 https://nytimes.com/2025/12/07/arts/design/art-basel-superfecta-all-four-fairs.html
-
-**Bengals-Bills takeaways: Josh Allen rallies Buffalo in snowy, fourth-quarter comeback**\
-`Buffalo capitalized on grave mistakes by Joe Burrow in the second half of Week 14.`\
-https://nytimes.com/athletic/6870170/2025/12/07/bengals-bills-score-result-takeaways-nfl/
-
-**Jags take AFC South lead; reeling Colts lose QB Daniel Jones: Takeaways**\
-`The Jaguars beat the Colts for their fourth straight win, while Indianapolis' playoff hopes are in jeopardy after a third straight loss.`\
-https://nytimes.com/athletic/6870140/2025/12/07/colts-jaguars-score-result-takeaways-nfl/
 
