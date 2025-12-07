@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6868605/2025/12/06/brad-marchand-panthers-blue-jackets-overtime-bench/
 
+**Brad Marchand sneakily intrudes on Blue Jackets bench during OT timeout**\
+`Moments after the shenanigans, Marchand set up Sam Bennett for the game-winning goal as Florida beat Columbus 7-6.
+`\
+https://nytimes.com/athletic/6868605/2025/12/06/brad-marchand-panthers-blue-jackets-overtime-bench/
+
 **Beckham relishes becoming first MLS Cup winner as both player and owner**\
 `Beckham's efforts to build a winner in Miami – with Lionel Messi as its centerpiece – have paid off with a bit of MLS history`\
 https://nytimes.com/athletic/6868658/2025/12/06/david-beckham-mls-cup-win-player-owner-inter-miami/
