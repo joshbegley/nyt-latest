@@ -1,3 +1,7 @@
+**College Football Playoff committee did a bad job, but pink slip is no option — here’s the fix**\
+`The field should always be selected by humans. The fix is more access. More explanation. More transparency. More accountability.`\
+https://nytimes.com/athletic/6870090/2025/12/07/college-football-playoff-miami-notre-dame-alabama/
+
 **NFL says referees' intentional grounding penalty in Broncos-Commanders was wrong**\
 `The penalty disrupted Washington's final drive in regulation in the Commanders' Week 13 overtime loss to the Denver Broncos.`\
 https://nytimes.com/athletic/6869980/2025/12/07/nfl-broncos-commanders-incorrect-intentional-grounding-call/
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/6870073/2025/12/07/chelsea-wsl-everton-unbeaten-run
 <p>Submit your questions for Grace below. We will post her answers later this week.</p>
 `\
 https://nytimes.com/athletic/6870074/2025/12/07/submit-your-questions-for-grace-raynors-recruiting-mailbag-22/
-
-**Quinn Hughes' trade value, the Devils' assets and why the Canucks have options**\
-`The Canucks still hold significant leverage if Hughes expresses a desire to leave Vancouver at some point this season.`\
-https://nytimes.com/athletic/6869269/2025/12/07/quinn-hughes-trade-canucks-devils-contract-value/
 
