@@ -1,3 +1,7 @@
+**'The entire game was a joke': Blue Jackets blow 3 leads, lose wild affair to Panthers**\
+`From blown leads to controversial calls to odd shenanigans and much more, Columbus' 7-6 loss to Florida was a bizarre one.`\
+https://nytimes.com/athletic/6868533/2025/12/06/blue-jackets-panthers-goal-review-call/
+
 **Michigan hires Kerry Coombs, former Ohio State assistant, as special teams coordinator**\
 `Coombs has had two stints at Ohio State, most recently as defensive coordinator in 2020 and 2021. He replaces J.B. Brown, who was fired.`\
 https://nytimes.com/athletic/6868741/2025/12/06/kerry-coombs-michigan-hiring-ohio-state/
