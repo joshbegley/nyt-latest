@@ -23,7 +23,7 @@ https://nytimes.com/2025/12/07/nyregion/metropolitan-diary.html
 https://nytimes.com/2025/12/07/world/asia/japan-china-fighter-jets.html
 
 **Ohio State was nearly perfect. Then little problems became big ones in Indy**\
-`The Buckeyes still have an elite defense, and it can carry them deep into the Playoff. But the offense also has to do its part.`\
+`Offense, kicking game need to do their part if the Buckeyes are to win another national championship.`\
 https://nytimes.com/athletic/6869214/2025/12/07/ohio-state-indiana-ryan-day/
 
 **College Football Playoff 2025-26: What to know about the selection process and the format's future**\
