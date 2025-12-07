@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6868605/2025/12/06/brad-marchand-panthers-blue-jackets-overtime-bench/
 
+**Brad Marchand sneakily intrudes on Blue Jackets bench during OT timeout**\
+`Moments after the shenanigans, Marchand set up Sam Bennett for the game-winning goal as Florida beat Columbus 7-6.
+`\
+https://nytimes.com/athletic/6868605/2025/12/06/brad-marchand-panthers-blue-jackets-overtime-bench/
+
 **Jalen Johnson's NBA All-Star bid is growing one triple-double at a time**\
 `The Atlanta Hawks forward continued to build his case for his first All-Star nod.`\
 https://nytimes.com/athletic/6868725/2025/12/06/jalen-johnson-triple-double-hawks-all-star/

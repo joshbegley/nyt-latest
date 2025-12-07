@@ -1,3 +1,7 @@
+**Michigan hires Kerry Coombs, former Ohio State assistant, as special teams coordinator**\
+`Coombs has had two stints at Ohio State, most recently as defensive coordinator in 2020 and 2021. He replaces J.B. Brown, who was fired.`\
+https://nytimes.com/athletic/6868741/2025/12/06/kerry-coombs-michigan-hiring-ohio-state/
+
 **Jalen Johnson's NBA All-Star bid is growing one triple-double at a time**\
 `The Atlanta Hawks forward continued to build his case for his first All-Star nod.`\
 https://nytimes.com/athletic/6868725/2025/12/06/jalen-johnson-triple-double-hawks-all-star/
@@ -33,9 +37,4 @@ https://nytimes.com/athletic/6868092/2025/12/06/college-football-playoff-bracket
 **College Football Playoff 2025 projections: Who has locked up a bid? Who's on the bubble?**\
 `Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
 https://nytimes.com/athletic/6560541/2025/12/06/college-football-playoff-bracket-projections-odds/
-
-**Brad Marchand sneakily intrudes on Blue Jackets bench during OT timeout**\
-`Moments after the shenanigans, Marchand set up Sam Bennett for the game-winning goal as Florida beat Columbus 7-6.
-`\
-https://nytimes.com/athletic/6868605/2025/12/06/brad-marchand-panthers-blue-jackets-overtime-bench/
 
