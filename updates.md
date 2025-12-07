@@ -1,3 +1,7 @@
+**Rangers overmatched but not overwhelmed by MacKinnon and Avalanche, plus 10 more thoughts**\
+`Beat writer Vince Z. Mercogliano breaks down how the Rangers fared against one of the NHL's best in the Colorado Avalanche.`\
+https://nytimes.com/athletic/6868436/2025/12/06/new-york-rangers-avalanche-nathan-mackinnon/
+
 **James Harden passes Carmelo Anthony on NBA all-time scoring list: 'I'm blessed. I'm grateful'**\
 `Now a top-10 scorer in NBA history, James Harden has made a career of buckets since being drafted third overall in 2009.`\
 https://nytimes.com/athletic/6868678/2025/12/06/james-harden-passes-carmelo-anthony-scoring-list/
