@@ -1,3 +1,11 @@
+**How to Clean Earbuds**\
+`Please clean your earbuds! Nobody wants to see your earwax!`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010573499/how-to-clean-earbuds.html
+
+**Fantasy football Week 14 recap, early waivers speed run: The Jayden Daniels saga**\
+`Christian Watson and Jayden Reed can both have value for the Packers. Isaiah Bond could be a sneaky deep-league add. `\
+https://nytimes.com/athletic/6872821/2025/12/08/fantasy-football-week-14-recap-early-waivers-speed-run-jayden-daniels/
+
 **Syrians Celebrate First Anniversary of Assad’s Fall**\
 `Syrians on Monday observed the first anniversary of the fall of the longtime dictator Bashar al-Assad with a military parade and celebrations in the streets.`\
 https://nytimes.com/video/world/middleeast/100000010572792/syrians-celebrate-anniversary-assad-regime.html

@@ -1,3 +1,11 @@
+**How to Clean Earbuds**\
+`Please clean your earbuds! Nobody wants to see your earwax!`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010573499/how-to-clean-earbuds.html
+
+**Fantasy football Week 14 recap, early waivers speed run: The Jayden Daniels saga**\
+`Christian Watson and Jayden Reed can both have value for the Packers. Isaiah Bond could be a sneaky deep-league add. `\
+https://nytimes.com/athletic/6872821/2025/12/08/fantasy-football-week-14-recap-early-waivers-speed-run-jayden-daniels/
+
 **Syrians Celebrate First Anniversary of Assad’s Fall**\
 `Syrians on Monday observed the first anniversary of the fall of the longtime dictator Bashar al-Assad with a military parade and celebrations in the streets.`\
 https://nytimes.com/video/world/middleeast/100000010572792/syrians-celebrate-anniversary-assad-regime.html
@@ -25,12 +33,4 @@ https://nytimes.com/2025/12/08/nyregion/zohran-mamdani-gracie-mansion-rama-duwaj
 **David Burtka’s Quest for a Good Mocktail**\
 `Actors David Burtka and Neil Patrick Harris — self-described as a “mixed sobriety couple” — want to include everyone at the party. Burtka told Wirecutter the couple’s tips to make both drinkers and non-drinkers feel celebrated`\
 https://nytimes.com/video/smarter-living/wirecutter/100000010573242/david-burtkas-quest-for-a-good-mocktail.html
-
-**Heavy Rain and Strong Winds Could Disrupt Travel Across Ireland and Britain**\
-`Forecasters warned of wind gusts up to 90 miles per hour and more than half a month’s rainfall in less than a day`\
-https://nytimes.com/2025/12/08/weather/storm-bram-ireland-uk.html
-
-**Nationals open to trading MacKenzie Gore, CJ Abrams under new head of baseball ops: Sources**\
-`The Nationals may only just be getting started under new president of baseball operations Paul Toboni.`\
-https://nytimes.com/athletic/6873050/2025/12/08/mlb-cj-abrams-mackenzie-gore-trade-interest-nationals/
 
