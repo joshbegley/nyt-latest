@@ -1,3 +1,9 @@
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>Well, my guess is you have plenty to ask about. So will just leave this here.</p>
+<p>As always, please include your city.</p>
+`\
+https://nytimes.com/athletic/6873453/2025/12/08/submit-a-question-for-stewart-mandels-college-football-mailbag-326/
+
 **Trump Is Unpopular. Does He Know It?**\
 `“I’m not going to make any predictions, but I will say it feels as if right now is the most popular he’s going to be over the next year,” the columnist Jamelle Bouie predicts of Trump.`\
 https://nytimes.com/video/opinion/100000010566429/trump-is-unpopular-does-he-know-it.html

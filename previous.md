@@ -1,3 +1,9 @@
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>Well, my guess is you have plenty to ask about. So will just leave this here.</p>
+<p>As always, please include your city.</p>
+`\
+https://nytimes.com/athletic/6873453/2025/12/08/submit-a-question-for-stewart-mandels-college-football-mailbag-326/
+
 **Trump Is Unpopular. Does He Know It?**\
 `“I’m not going to make any predictions, but I will say it feels as if right now is the most popular he’s going to be over the next year,” the columnist Jamelle Bouie predicts of Trump.`\
 https://nytimes.com/video/opinion/100000010566429/trump-is-unpopular-does-he-know-it.html
@@ -29,8 +35,4 @@ https://nytimes.com/athletic/6872807/2025/12/08/fa-cup-draw-third-round/
 **Why are collectors paying more for sports cards with PSA's newest labels?**\
 `Same card, same grade, different grading label? It's become enough to alter the overall value on the secondary market.`\
 https://nytimes.com/athletic/6873159/2025/12/08/psa-grading-labels-sports-cards-value/
-
-**Colts QB Daniel Jones out for season with torn Achilles**\
-`The Colts will turn to rookie Riley Leonard with Jones out. `\
-https://nytimes.com/athletic/6870744/2025/12/08/colts-daniel-jones-torn-achilles-season-ending/
 
