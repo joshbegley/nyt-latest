@@ -1,3 +1,7 @@
+**Golden Globes 2026: The Full List of Nominees**\
+`The movies and TV series competing for the 83rd Golden Globes. The ceremony will air on Jan. 11.`\
+https://nytimes.com/2025/12/08/movies/golden-globes-nominees-2026-list.html
+
 **Man pleads guilty to stalking Liverpool's Marie Hobinger**\
 `Mangal Dalal will be sentenced on January 20 at Westminster Magistrates' Court.`\
 https://nytimes.com/athletic/6872392/2025/12/08/marie-hobinger-liverpool-stalker/
