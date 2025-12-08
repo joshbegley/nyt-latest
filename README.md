@@ -1,3 +1,11 @@
+**Love Letters From a Chinese Jail**\
+`The torn pieces of paper by Gao Zhen, a renowned artist jailed in China, show family portraits, memories of New York and expressions of faith. To his wife, they are love letters.`\
+https://nytimes.com/video/world/asia/100000010535060/gao-zhen-china-artist-detained.html
+
+**The inside story of Salah's incendiary interview – and what happens next**\
+`Revealing what sparked the Egyptian's outburst, the reaction from within Anfield, and who could offer him a way out in January`\
+https://nytimes.com/athletic/6870344/2025/12/08/mohamed-salah-transfer-liverpool-interview/
+
 **World Cup ticket resale prices rise nearly 300 per cent**\
 `Resale prices for Colombia vs. Portugal in Miami Gardens, Fla. jumped up 514 per cent since Thursday.`\
 https://nytimes.com/athletic/6870859/2025/12/08/world-cup-2026-tickets-resale-price/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/08/world/asia/thailand-cambodia-f16-jets.html
 **‘The End of an Era,’ and 7 Other Things to Watch on TV This Week**\
 `The first two episodes of Taylor Swift’s documentary series air, and “South Park” wraps up its 28th season.`\
 https://nytimes.com/2025/12/08/arts/television/the-end-of-an-era-and-7-other-things-to-watch-on-tv-this-week.html
-
-**The New York Times in Print for Monday, Dec. 8, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/12/08/todays-new-york-times
-
-**Firefighter Is Killed as Multiple Wildfires Burn in Australia**\
-`The firefighter died after being struck by a tree. Dozens of homes in two states have been lost as hot, windy conditions point to a challenging fire season.`\
-https://nytimes.com/2025/12/08/world/australia/firefighter-dies-bushfires.html
 
