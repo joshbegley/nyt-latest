@@ -1,3 +1,15 @@
+**The Pulse: The biggest snub of the Playoff bracket**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6871285/2025/12/08/college-football-playoff-bracket-the-pulse-2/
+
+**Notre Dame's blame game begins entering its longest, angriest offseason ever**\
+`Notre Dame’s CFP selection Sunday gut-punch pulled the plug on a season with legitimate national title aspirations.`\
+https://nytimes.com/athletic/6871877/2025/12/08/notre-dame-cfp-acc-bowls/
+
+**TAFC: Inside Salah's incendiary interview, World Cup schedule, Messi and Miami clinch MLS Cup**\
+`Today in TAFC: Inside the Salah fallout at Liverpool, Inter Miami reach their Holy Grail and the World Cup schedule is announced.`\
+https://nytimes.com/athletic/6872335/2025/12/08/salah-interview-world-cup-schedule/
+
 **How Travis Kelce and the Chiefs reacted after Sunday's back-breaking loss**\
 `The tone of the Chiefs locker room changed after the team's latest close loss, with the team's playoff odds dwindling.`\
 https://nytimes.com/athletic/6872114/2025/12/08/chiefs-travis-kelce-patrick-mahomes-texans/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6871429/2025/12/08/phillies-offseason-kyle-schwarbe
 **Edwards: OG Anunoby, Mikal Bridges making strong cases to be first-time NBA All-Stars**\
 `The Knicks' duo might be the best players in the NBA to never make an All-Star game. That could change this year.`\
 https://nytimes.com/athletic/6870804/2025/12/08/og-anunoby-mikal-bridges-nba-all-star-bids/
-
-**A minute of immaturity should not overshadow the Canadiens' maturation over two games**\
-`A Canadiens loss to the St. Louis Blues did not deminish the fact the team is farther ahead than it was when the weekend began.`\
-https://nytimes.com/athletic/6872102/2025/12/08/a-minute-of-immaturity-should-not-overshadow-the-canadiens-maturation-over-two-games/
-
-**Red Sox in enviable position as they look to fill more needs at Winter Meetings**\
-`They've got depth at pitching, young position players they can trade and money to spend.`\
-https://nytimes.com/athletic/6870927/2025/12/08/red-sox-in-enviable-position-as-they-look-to-fill-more-needs-at-winter-meetings/
-
-**The Heat and their turnaround: Utilizing CLA and moving in transition**\
-`The Heat, which finished under .500 last season, now sits at 14-10.The team is running fewer pick-and-rolls and fewer dribble handoffs.`\
-https://nytimes.com/athletic/6865797/2025/12/08/heat-cla-nba-erik-spoelstra/
 
