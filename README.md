@@ -1,3 +1,15 @@
+**The F.T.C. Chairman Who Tilted the Agency to Trump**\
+`Andrew Ferguson has used the Federal Trade Commission’s consumer protection mandate to investigate issues important to President Trump and his base.`\
+https://nytimes.com/2025/12/08/technology/ftc-andrew-ferguson-regulator.html
+
+**What I'm hearing: Jarry trade rumors, Kindel, Brunicke and more**\
+`Jarry has regained his trade value, and the Oilers are calling. What will the Penguins do?`\
+https://nytimes.com/athletic/6872928/2025/12/08/penguins-tristan-jarry-trade-rumors-nhl/
+
+**Map: 3.7-Magnitude Earthquake Shakes the San Francisco Bay Area**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/12/08/us/san-francisco-bay-area-earthquake-tracker.html
+
 **Collector Surrenders ‘Nude Emperor’ Statue Identified as Looted**\
 `The statue and a marble head of a Greek orator seized from the Met Museum were among dozens of items found to have been looted that were handed over to Turkey at a ceremony in Manhattan.`\
 https://nytimes.com/2025/12/08/arts/design/nude-emperor-statue-met-marble-head-turkey.html
@@ -21,16 +33,4 @@ https://nytimes.com/video/smarter-living/wirecutter/100000010573499/how-to-clean
 **Fantasy football Week 14 recap, early waivers speed run: The Jayden Daniels saga**\
 `Christian Watson and Jayden Reed can both have value for the Packers. Isaiah Bond could be a sneaky deep-league add. `\
 https://nytimes.com/athletic/6872821/2025/12/08/fantasy-football-week-14-recap-early-waivers-speed-run-jayden-daniels/
-
-**Syrians Celebrate First Anniversary of Assad’s Fall**\
-`Syrians on Monday observed the first anniversary of the fall of the longtime dictator Bashar al-Assad with a military parade and celebrations in the streets.`\
-https://nytimes.com/video/world/middleeast/100000010572792/syrians-celebrate-anniversary-assad-regime.html
-
-**Inside a Gathering of Top Democrats Filled With Hope, Nerves and ’28 Buzz**\
-`At an annual event for Democratic governors, optimism about next year overshadowed the search for a long-term vision. As Gretchen Whitmer put it, adding an expletive: “Let’s go!”`\
-https://nytimes.com/2025/12/08/us/politics/democratic-governors-midterms-2028-election.html
-
-**Five games, four cities, 16 days – plotting a dream World Cup group-stage itinerary**\
-`If you plan to catch a few games this summer, here is a World Cup-themed travel itinerary, built around five standout matches, to consider`\
-https://nytimes.com/athletic/6872632/2025/12/08/world-cup-2026-dream-itinerary/
 
