@@ -1,3 +1,11 @@
+**What I'm hearing on the eve of MLB's winter meetings: Pirates make offer to Kyle Schwarber**\
+`The Royals mull upgrades to their outfield while the Angels continue looking for rotation help. `\
+https://nytimes.com/athletic/6871295/2025/12/07/pirates-kyle-schwarber-free-agency-mlb/
+
+**J.J. McCarthy delivers career-best outing vs. Commanders at pivotal moment**\
+`McCarthy was 16-for-23 for 163 yards and three touchdowns in Sunday's 31-0 win. But his performance set the stage for something more.`\
+https://nytimes.com/athletic/6871143/2025/12/07/vikings-jj-mccarthy-career-best-commanders/
+
 **Rams-Cardinals takeaways: Stafford, Los Angeles' offense roll in Arizona**\
 `Los Angeles rushed for nearly 250 yards in a dominant win against the Cardinals`\
 https://nytimes.com/athletic/6871116/2025/12/07/rams-cardinals-score-result-takeaways-nfl/
