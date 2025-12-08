@@ -1,3 +1,15 @@
+**Michael Jordan vs. NASCAR trial resumes with economist testifying on league's tactics**\
+`NASCAR has exclusivity deals for its tracks, barring them from hosting a potential competitor. That practice was part of Monday's focus.`\
+https://nytimes.com/athletic/6873317/2025/12/08/michael-jordan-nascar-trial-monopoly-economist-accountant-steve-phelps/
+
+**AP men's basketball Top 25: Arizona new No. 1 after Purdue loss, Kentucky falls out of poll**\
+`Iowa State rose to No. 4 and Purdue dropped to No. 6 after the Cyclones' win over the Boilermakers.`\
+https://nytimes.com/athletic/6873158/2025/12/08/ap-mens-basketball-top-25-arizona-iowa-state-kentucky/
+
+**Submit your Ohio State football mailbag questions here**\
+`What's on your mind about Ohio State as it heads to the Playoff coming off a loss to Indiana?`\
+https://nytimes.com/athletic/6873335/2025/12/08/ohio-state-football-mailbag-questions-playoff/
+
 **Alina Habba, a Trump Loyalist, Resigns as New Jersey’s Top Prosecutor**\
 `Ms. Habba resigned on Monday, after a federal appeals court last week found she had been serving as U.S. attorney unlawfully.`\
 https://nytimes.com/2025/12/08/nyregion/alina-habba-nj-us-attorney-resigns.html
@@ -21,16 +33,4 @@ https://nytimes.com/2025/12/08/arts/martin-parr-photographer-appraisal.html
 **NFL overreactions: Take the Seahawks over the Colts in Week 15**\
 `Toby Mergler gives his initial thoughts on the Week 15 NFL betting market.`\
 https://nytimes.com/athletic/6872891/2025/12/08/nfl-overreactions-week-15-seahawks-colts/
-
-**Looking at 2026 Through the Eyes of 1926**\
-`Canada’s annexation, news presented on screens and personal airplanes were among the many predictions reported in The Times a century ago.`\
-https://nytimes.com/2025/12/08/special-series/century-history-reflection-2026.html
-
-**Evans steps down as Man Utd head of loans and pathways**\
-`The former player was only appointed in June but wants to spend more time with family. `\
-https://nytimes.com/athletic/6873225/2025/12/08/jonny-evans-manchester-united-departure/
-
-**Jared Kushner, the President’s Son-in-Law, Is Part of Paramount’s Bid for Warner Bros. Discovery**\
-`Mr. Kushner’s private equity fund is one of the many groups helping Paramount mount a hostile bid to buy the group, whose holdings include CNN.`\
-https://nytimes.com/2025/12/08/business/media/jared-kushner-paramount-bid-warner-bros-discovery.html
 
