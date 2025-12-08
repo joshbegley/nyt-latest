@@ -2,7 +2,7 @@
 `Jet Greaves returned to the Columbus net and the Blue Jackets looked much more structured, but couldn't get the puck in the net.`\
 https://nytimes.com/athletic/6871700/2025/12/07/blue-jackets-thompson-greaves-capitals/
 
-**China’s Weak Currency Is Powering Its Exports, Drawing Criticism**\
+**China’s Weak Currency Is Powering Its Exports and Drawing Criticism**\
 `China’s renminbi is lagging the currencies of key trading partners, making Chinese goods and services cheap and helping to drive exports.`\
 https://nytimes.com/2025/12/07/business/china-rmb-currency.html
 
