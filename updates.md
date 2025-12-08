@@ -1,3 +1,7 @@
+**Changes sure to be coming for Falcons after embarrassing loss, but who, what and when?**\
+`The Falcons fell to 4-9 with Sunday's ugly 37-9 loss. What changes could we see over the final four games? Or this offseason?`\
+https://nytimes.com/athletic/6871060/2025/12/07/seahawks-falcons-embarrassing-loss-raheem-morris/
+
 **Nebraska hiring San Diego State's Rob Aurich as defensive coordinator: Source**\
 `San Diego State ranked seventh nationally in total defense in Aurich's first season as defensive coordinator.`\
 https://nytimes.com/athletic/6871136/2025/12/07/nebraska-hires-rob-aurich-defensive-coordinator/
