@@ -1,3 +1,15 @@
+**Man pleads guilty to stalking Liverpool's Marie Hobinger**\
+`Mangal Dalal will be sentenced on January 20 at Westminster Magistrates' Court.`\
+https://nytimes.com/athletic/6872392/2025/12/08/marie-hobinger-liverpool-stalker/
+
+**Golden Globes Nominees 2026: An Updating List**\
+`The film and television nominees for the ceremony are now being announced.`\
+https://nytimes.com/2025/12/08/movies/golden-globes-nominees-2026-list.html
+
+**Our guide to every College Football Playoff team — and how far they can go**\
+`This year's College Football Playoff field defied expectations in several ways. Here's what you need to know about the 12 teams.`\
+https://nytimes.com/athletic/6871163/2025/12/08/college-football-playoff-teams-guides-odds/
+
 **Trump Looms Over Netflix’s Deal for Warner Bros. Discovery**\
 `President Trump said the acquisition “could be a problem,” suggesting he will insert himself into the regulatory review of the transaction.`\
 https://nytimes.com/2025/12/08/business/dealbook/trump-effect-netflix-warner-bros.html

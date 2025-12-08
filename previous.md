@@ -1,3 +1,7 @@
+**Man pleads guilty to stalking Liverpool's Marie Hobinger**\
+`Mangal Dalal will be sentenced on January 20 at Westminster Magistrates' Court.`\
+https://nytimes.com/athletic/6872392/2025/12/08/marie-hobinger-liverpool-stalker/
+
 **Trump Looms Over Netflix’s Deal for Warner Bros. Discovery**\
 `President Trump said the acquisition “could be a problem,” suggesting he will insert himself into the regulatory review of the transaction.`\
 https://nytimes.com/2025/12/08/business/dealbook/trump-effect-netflix-warner-bros.html
@@ -11,7 +15,7 @@ https://nytimes.com/athletic/6872480/2025/12/08/joey-barton-sentence-aluko-vine-
 https://nytimes.com/athletic/6872288/2025/12/08/nasser-hussain-stokes-england-ashes/
 
 **Golden Globes Nominees 2026: An Updating List**\
-`The film and television nominees will be announced on Monday.`\
+`The film and television nominees for the ceremony are now being announced.`\
 https://nytimes.com/2025/12/08/movies/golden-globes-nominees-2026-list.html
 
 **Madrid fear Militao four-month layoff with hamstring injury**\
@@ -22,7 +26,7 @@ https://nytimes.com/athletic/6872416/2025/12/08/militao-injury-real-madrid-news/
 `The Bulls haven't won since Nov. 21. Coach Billy Donovan decries his team's poor attention to detail and lack of selflessness. `\
 https://nytimes.com/athletic/6872327/2025/12/08/bulls-losing-streak-billy-donovan-warriors/
 
-**How every College Football Playoff team got into the bracket — and what to expect**\
+**Our guide to every College Football Playoff team — and how far they can go**\
 `This year's College Football Playoff field defied expectations in several ways. Here's what you need to know about the 12 teams.`\
 https://nytimes.com/athletic/6871163/2025/12/08/college-football-playoff-teams-guides-odds/
 
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/12/08/us/trump-news
 **Verstappen lost his F1 title streak but seems at peace. That should worry his rivals**\
 `Verstappen's epic comeback fell just short, but Red Bull's turnaround has the team brimming with confidence for 2026`\
 https://nytimes.com/athletic/6871867/2025/12/08/max-verstappen-f1-championship-streak/
-
-**USA coach Pochettino says patriotic ‘emotion of the people’ can inspire World Cup run**\
-`Home advantage can be a key factor for the Americans, as it has been for previous World Cup hosts.`\
-https://nytimes.com/athletic/6871924/2025/12/08/usa-pochettino-world-cup-emotion/
 
