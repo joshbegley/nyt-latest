@@ -1,3 +1,11 @@
+**Another devastating day in Duval County: If Daniel Jones is done, Colts probably are, too**\
+`It's not just the Colts' 2025 season that's in peril. Their franchise's future is, too. `\
+https://nytimes.com/athletic/6871209/2025/12/07/colts-daniel-jones-achilles-duval-county/
+
+**The growth Shedeur Sanders showed was a small victory for Browns, even in defeat**\
+`Despite falling to Tennessee, Sanders displayed poise and guts in his third career start. Maybe Cleveland has something in the rookie QB. `\
+https://nytimes.com/athletic/6871423/2025/12/07/browns-shedeur-sanders-growth-loss-titans/
+
 **Behind 'Mr. Detail-Oriented' Christian Benford and surging defense, Bills' ceiling shoots sky-high**\
 `This game could be one Bills fans remember as a turning point.`\
 https://nytimes.com/athletic/6871450/2025/12/07/christian-benford-bills-cornerback-defense-nfl/
