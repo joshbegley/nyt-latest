@@ -1,3 +1,19 @@
+**Behind 'Mr. Detail-Oriented' Christian Benford and surging defense, Bills' ceiling shoots sky-high**\
+`This game could be one Bills fans remember as a turning point.`\
+https://nytimes.com/athletic/6871450/2025/12/07/christian-benford-bills-cornerback-defense-nfl/
+
+**The growth Shedeur Sanders showed was a small victory for Browns, even in a losing effort**\
+`Despite falling to Tennessee, Sanders displayed poise and guts in his third career start. Maybe Cleveland has something in the rookie QB. `\
+https://nytimes.com/athletic/6871423/2025/12/07/browns-shedeur-sanders-growth-loss-titans/
+
+**Even in shootout loss, something special is happening with these Penguins: Yohe's 10 observations**\
+`The Penguins played one of their better games of the season against a formidable Western Conference contender.`\
+https://nytimes.com/athletic/6871274/2025/12/07/penguins-shootout-jarry-kindel-stars/
+
+**Raiders kick field goal to cover the spread against Broncos**\
+`The Broncos won the game. The Raiders covered the point spread in the final seconds.`\
+https://nytimes.com/athletic/6871610/2025/12/07/nfl-bad-beat-raiders-broncos-spread-betting/
+
 **Celtics' Jordan Walsh building defensive reputation but says he hasn't done anything yet**\
 `The Lakers acknowledged game planning around Walsh, and the third-year forward hopes he forces more teams to do the same.`\
 https://nytimes.com/athletic/6871477/2025/12/07/celtics-jordan-walsh-defensive-reputation-improving/
@@ -21,20 +37,4 @@ https://nytimes.com/video/the-athletic/100000010572378/packers-intercept-caleb-w
 **U.S. Deports Second Planeload of Iranians, Officials Say**\
 `The plane, carrying about 50 Iranians and other deportees, took off from Arizona on Sunday, under a deal the Trump administration reached with Iran two months ago.`\
 https://nytimes.com/2025/12/07/world/middleeast/us-deports-second-planeload-iranians.html
-
-**Joe Burrow, Bengals tantalize vs. Bills, but still prove an irrelevant footnote**\
-`Cincinnati held the lead for most of the game, but in the end, Sunday saw another late collapse to cripple any playoff hopes.`\
-https://nytimes.com/athletic/6871409/2025/12/07/joe-burrow-bengals-tantalizing-loss-bills/
-
-**NFL's race to the No. 1 pick: Raiders take the lead after Titans beat Browns**\
-`The Raiders haven't owned the No. 1 pick since 2007 but are in position after the results of Week 14.`\
-https://nytimes.com/athletic/6871308/2025/12/07/nfl-draft-2026-top-pick-raiders-titans-jets-browns/
-
-**Ravens aren't good enough, and controversial calls shouldn't distract from that reality**\
-`After losing to Pittsburgh in a battle for first place in the AFC North, Baltimore's hopes of making the playoffs are on life support. `\
-https://nytimes.com/athletic/6871280/2025/12/07/ravens-loss-steelers-controversial-calls/
-
-**On a day of Jets QBs past and present, thoughts of Fernando Mendoza as the future**\
-`New York might eventually try to figure out how to draft the Indiana Hoosiers quarterback in the 2026 NFL draft.`\
-https://nytimes.com/athletic/6871358/2025/12/07/new-york-jets-miami-dolphins-loss-fernando-mendoza-draft/
 

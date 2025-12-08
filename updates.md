@@ -1,3 +1,19 @@
+**Behind 'Mr. Detail-Oriented' Christian Benford and surging defense, Bills' ceiling shoots sky-high**\
+`This game could be one Bills fans remember as a turning point.`\
+https://nytimes.com/athletic/6871450/2025/12/07/christian-benford-bills-cornerback-defense-nfl/
+
+**The growth Shedeur Sanders showed was a small victory for Browns, even in a losing effort**\
+`Despite falling to Tennessee, Sanders displayed poise and guts in his third career start. Maybe Cleveland has something in the rookie QB. `\
+https://nytimes.com/athletic/6871423/2025/12/07/browns-shedeur-sanders-growth-loss-titans/
+
+**Even in shootout loss, something special is happening with these Penguins: Yohe's 10 observations**\
+`The Penguins played one of their better games of the season against a formidable Western Conference contender.`\
+https://nytimes.com/athletic/6871274/2025/12/07/penguins-shootout-jarry-kindel-stars/
+
+**Raiders kick field goal to cover the spread against Broncos**\
+`The Broncos won the game. The Raiders covered the point spread in the final seconds.`\
+https://nytimes.com/athletic/6871610/2025/12/07/nfl-bad-beat-raiders-broncos-spread-betting/
+
 **Celtics' Jordan Walsh building defensive reputation but says he hasn't done anything yet**\
 `The Lakers acknowledged game planning around Walsh, and the third-year forward hopes he forces more teams to do the same.`\
 https://nytimes.com/athletic/6871477/2025/12/07/celtics-jordan-walsh-defensive-reputation-improving/
