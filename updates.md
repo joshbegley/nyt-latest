@@ -1,3 +1,23 @@
+**Cora Weiss, Lifelong Champion of Social Justice, Dies at 91**\
+`With a group called Women Strike for Peace, she helped organize demonstrations against the Vietnam War and nuclear weapons. “We managed to get things done,” she said.`\
+https://nytimes.com/2025/12/08/us/politics/cora-weiss-dead.html
+
+**In Hiring, Are Skills the New Degrees?**\
+`The talent you're looking for might be where you least expect them.`\
+https://nytimes.com/paidpost/2025-11-24/.html
+
+**Jerusalem Authorities Raid UNRWA Compound and Raise Israeli Flag**\
+`Municipal officials say the action was about unpaid taxes. The U.N. relief agency for Palestinians says it is exempt from taxes and should be immune from such a raid, calling it illegal.`\
+https://nytimes.com/2025/12/08/world/middleeast/israel-jerusalem-unrwa-police-raid.html
+
+**FA Cup third-round draw: Macclesfield vs. Crystal Palace, Liverpool vs. Barnsley**\
+`Premier League leaders Arsenal will travel to Championship Portsmouth, and Chelsea will visit Charlton Athletic.`\
+https://nytimes.com/athletic/6872807/2025/12/08/fa-cup-draw-third-round/
+
+**Why are collectors paying more for sports cards with PSA's newest labels?**\
+`Same card, same grade, different grading label? It's become enough to alter the overall value on the secondary market.`\
+https://nytimes.com/athletic/6873159/2025/12/08/psa-grading-labels-sports-cards-value/
+
 **Jerusalem Authorities Raid UNRWA Compound and Raise Israeli Flag**\
 `Municipal officials say the action was about unpaid taxes. The U.N. relief agency for Palestinians says it is exempt from taxes and should be immune from such a raid, calling it illegal.`\
 https://nytimes.com/2025/12/08/world/middleeast/israel-jerusalem-unraw-police-raid.html
