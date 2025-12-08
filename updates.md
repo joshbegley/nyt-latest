@@ -1,3 +1,7 @@
+**Who are the lawyers arguing the F.T.C. case?**\
+`By Abbie VanSickle`\
+https://nytimes.com/live/2025/12/08/us/trump-supreme-court-presidential-power/lawyers-ftc-supreme-court
+
 **At the Kennedy Center Honors, Little Glitz and One Striking Accessory**\
 `Melania Trump went minimal, Gloria Gaynor dressed to shine, but the star of the night was the president.`\
 https://nytimes.com/2025/12/08/style/melania-trump-kennedy-center-honors-style.html
