@@ -1,3 +1,11 @@
+**Auriemma calls Sue Bird 'the greatest point guard' in history, men's or women's**\
+`“You've never said that before, in front of me,” Bird, who won two of those titles with Auriemma, later joked.`\
+https://nytimes.com/athletic/6873074/2025/12/08/sue-bird-jersey-retirement-geno-auriemma/
+
+**A Dozen F.B.I. Agents Sue Patel After Being Fired Over Kneeling at Protest**\
+`A five-year-old photo of agents kneeling at a D.C. protest after George Floyd’s killing led to the firing of about 16 agents.`\
+https://nytimes.com/2025/12/08/us/politics/kash-patel-fbi-lawsuit-george-floyd-protest.html
+
 **The F.T.C. Chairman Who Tilted the Agency to Trump**\
 `Andrew Ferguson has used the Federal Trade Commission’s consumer protection mandate to investigate issues important to President Trump and his base.`\
 https://nytimes.com/2025/12/08/technology/ftc-andrew-ferguson-regulator.html
