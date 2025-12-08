@@ -1,3 +1,7 @@
+**Odds and spreads for all 36 college football bowl games**\
+`It's bowl season! We have the odds for all 36 bowl games set to take place over the next few weeks.`\
+https://nytimes.com/athletic/6873236/2025/12/08/college-football-bowl-game-odds-for-all-36-games/
+
 **How to watch Kings vs. Mammoth: Time, TV, streaming**\
 `Find out how to watch the Los Angeles Kings play the Utah Mammoth, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6873609/2025/12/08/kings-vs-mammoth-stream-how-to-watch-dec-8/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6873597/2025/12/08/sabres-vs-flames-stream-how-to-w
 **Lando Norris to use No. 1 in 2026: Why the new F1 champ is taking Verstappen's number**\
 `The reigning world champion of F1 reserves the right to use No. 1, and Norris is taking the opportunity`\
 https://nytimes.com/athletic/6873399/2025/12/08/lando-norris-no-1-f1-champ-verstappens-number/
-
-**Heat's Terry Rozier pleads not guilty to gambling charges, released on $3M bond**\
-`Rozier and co-defendant Deniro Laster will return to court later Monday for a hearing on their case.`\
-https://nytimes.com/athletic/6873516/2025/12/08/heat-terry-rozier-pleads-not-guilty-gambling-charges/
 

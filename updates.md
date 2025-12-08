@@ -1,3 +1,7 @@
+**Odds and spreads for all 36 college football bowl games**\
+`It's bowl season! We have the odds for all 36 bowl games set to take place over the next few weeks.`\
+https://nytimes.com/athletic/6873236/2025/12/08/college-football-bowl-game-odds-for-all-36-games/
+
 **How to watch Kings vs. Mammoth: Time, TV, streaming**\
 `Find out how to watch the Los Angeles Kings play the Utah Mammoth, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6873609/2025/12/08/kings-vs-mammoth-stream-how-to-watch-dec-8/
