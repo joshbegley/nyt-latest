@@ -1,3 +1,11 @@
+**Syrians Celebrate First Anniversary of Assad’s Fall**\
+`Syrians on Monday observed the first anniversary of the fall of the longtime dictator Bashar al-Assad with a military parade and celebrations in the streets.`\
+https://nytimes.com/video/world/middleeast/100000010572792/syrians-celebrate-anniversary-assad-regime.html
+
+**Inside a Gathering of Top Democrats Filled With Hope, Nerves and ’28 Buzz**\
+`At an annual event for Democratic governors, optimism about next year overshadowed the search for a long-term vision. As Gretchen Whitmer put it, adding an expletive: “Let’s go!”`\
+https://nytimes.com/2025/12/08/us/politics/democratic-governors-midterms-2028-election.html
+
 **Five games, four cities, 16 days – plotting a dream World Cup group-stage itinerary**\
 `If you plan to catch a few games this summer, here is a World Cup-themed travel itinerary, built around five standout matches, to consider`\
 https://nytimes.com/athletic/6872632/2025/12/08/world-cup-2026-dream-itinerary/
@@ -25,12 +33,4 @@ https://nytimes.com/2025/12/08/weather/storm-bram-ireland-uk.html
 **Nationals open to trading MacKenzie Gore, CJ Abrams under new head of baseball ops: Sources**\
 `The Nationals may only just be getting started under new president of baseball operations Paul Toboni.`\
 https://nytimes.com/athletic/6873050/2025/12/08/mlb-cj-abrams-mackenzie-gore-trade-interest-nationals/
-
-**USMNT Tracker: Aaronson and McKennie get creative and Banks gets bragging rights over Tillman**\
-`The latest check-in on the leading American players operating across Europe`\
-https://nytimes.com/athletic/6872622/2025/12/08/usmnt-world-cup-aaronson-mckennie-banks-tillman/
-
-**best-of-panel**\
-``\
-https://nytimes.com/panel/live/best-of-panel
 
