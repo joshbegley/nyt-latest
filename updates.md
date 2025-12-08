@@ -1,3 +1,15 @@
+**Neymar says he will undergo knee surgery before deciding on Santos future**\
+`The Brazil international said his mental state was "at zero" but his focus is now on the 2026 World Cup. `\
+https://nytimes.com/athletic/6872472/2025/12/08/neymar-news-transfer-brazil-santos-surgery/
+
+**FPL Gameweek 15 review: Arsenal’s wobble, moving on Mateta, Brentford bargains**\
+`Injuries, form swings, fixture turns, and an AFCON exodus mean FPL managers need to stay sharp. Here’s a breakdown of what we learned`\
+https://nytimes.com/athletic/6870557/2025/12/08/fantasy-premier-league-fpl-tips-arsenal-afcon/
+
+**2026 World Cup to feature three-minute hydration breaks in every half throughout tournament**\
+`Every game will pause for three minutes in the middle of each half, which will essentially split the match into quarters.`\
+https://nytimes.com/athletic/6871622/2025/12/08/world-cup-2026-hydration-breaks/
+
 **The Sixers need to figure out their third-quarter problems**\
 `"This is happening time and time again," Andre Drummond said of Philly's third-quarter woes. `\
 https://nytimes.com/athletic/6871969/2025/12/08/philadelphia-76ers-third-quarters-lakers-loss/

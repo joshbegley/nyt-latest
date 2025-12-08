@@ -1,3 +1,15 @@
+**Neymar says he will undergo knee surgery before deciding on Santos future**\
+`The Brazil international said his mental state was "at zero" but his focus is now on the 2026 World Cup. `\
+https://nytimes.com/athletic/6872472/2025/12/08/neymar-news-transfer-brazil-santos-surgery/
+
+**FPL Gameweek 15 review: Arsenal’s wobble, moving on Mateta, Brentford bargains**\
+`Injuries, form swings, fixture turns, and an AFCON exodus mean FPL managers need to stay sharp. Here’s a breakdown of what we learned`\
+https://nytimes.com/athletic/6870557/2025/12/08/fantasy-premier-league-fpl-tips-arsenal-afcon/
+
+**2026 World Cup to feature three-minute hydration breaks in every half throughout tournament**\
+`Every game will pause for three minutes in the middle of each half, which will essentially split the match into quarters.`\
+https://nytimes.com/athletic/6871622/2025/12/08/world-cup-2026-hydration-breaks/
+
 **The Sixers need to figure out their third-quarter problems**\
 `"This is happening time and time again," Andre Drummond said of Philly's third-quarter woes. `\
 https://nytimes.com/athletic/6871969/2025/12/08/philadelphia-76ers-third-quarters-lakers-loss/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6871762/2025/12/08/yankees-weakness-cody-bellinger-
 **Excluding Group of 5 schools from the CFP is a predictable next step. It shouldn’t be**\
 `The 12-team CFP was created for a college football world that no longer exists. Don't penalize the little guys for this. `\
 https://nytimes.com/athletic/6870917/2025/12/08/college-football-playoff-group-of-5-tulane-james-madison/
-
-**Wild insider: Minnesota could have up to 11 Olympians, plus Sherwood interest**\
-`Between GM duties for both the Wild and Team USA, Bill Guerin is a busy man this month.`\
-https://nytimes.com/athletic/6870288/2025/12/08/wild-olympics-kiefer-sherwood-depth-scoring/
-
-**Women's college basketball power rankings: Duke, NC State losses raise ACC questions**\
-`Did Maryland's double-overtime victory make a statement? Sabreena Merchant examines.`\
-https://nytimes.com/athletic/6872046/2025/12/08/womens-college-basketball-power-rankings-duke-nc-state-acc/
-
-**Would Canada leave its best goal scorer home for the Olympics?**\
-`Morgan Geekie has scored 47 goals in 2025, more than any other NHL player over the calendar year.`\
-https://nytimes.com/athletic/6870270/2025/12/08/bruins-morgan-geekie-olympics-scoring/
 
