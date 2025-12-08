@@ -1,3 +1,19 @@
+**NFL Week 15 odds: Colts fans, avert your eyes at this week's spread**\
+`Postseason stakes and marquee matchups define the NFL Week 15 slate. Here are the early odds. `\
+https://nytimes.com/athletic/6872865/2025/12/08/nfl-week-15-odds-spreads-bills-patriots-lions-rams/
+
+**The Bounce: Let's grade the Eastern Conference teams**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/6872973/2025/12/08/grades-eastern-conference-nba-the-bounce/
+
+**Trump Promises Executive Order to Block State A.I. Regulations**\
+`In a Truth Social post, the president said he would sign an order that would eliminate a patchwork of state laws that have emerged in recent years.`\
+https://nytimes.com/2025/12/08/us/politics/trump-executive-order-ai-laws.html
+
+**How to watch Kings vs. Pacers: Time, TV, streaming**\
+`Find out how to watch the Sacramento Kings play the Indiana Pacers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6873039/2025/12/08/kings-vs-pacers-stream-how-to-watch-dec-8/
+
 **Planes, Trade and Nuclear Energy: Supreme Court Weighs Fate of Independent Regulators**\
 `The court heard arguments Monday on a case that could determine the independence of agencies like the National Transportation Safety Board and the Nuclear Regulatory Commission.`\
 https://nytimes.com/2025/12/08/business/supreme-court-independent-regulators.html
@@ -17,24 +33,4 @@ https://nytimes.com/2025/12/08/business/boeing-spirit-aerosystems.html
 **The Windup: A bad day to be Barry Bonds?**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6872848/2025/12/08/barry-bonds-jeff-kent-hof-the-windup/
-
-**The New Rules for Leadership**\
-`As artificial intelligence, politics and market volatility reshape business, top C.E.O.s share how they balance purpose, performance and the pressures of modern leadership.`\
-https://nytimes.com/2025/12/08/podcasts/dealbook-summit-ai-southwest-paypal-ceos.html
-
-**Leveraging Innovation to Revive the American Dream**\
-`As technology accelerates and pressures mount, top executives grapple with purpose, innovation and resilience and what leadership means now.`\
-https://nytimes.com/2025/12/08/podcasts/dealbook-summit-innovation-warby-parker-under-armour.html
-
-**‘I See a Yewande Komolafe Recipe, I Immediately Add It to the Week’s Dinner Menu’**\
-`Readers are already in love with her new one-pan spicy chicken thighs and mushrooms.`\
-https://nytimes.com/2025/12/08/dining/i-see-a-yewande-komolafe-recipe-i-immediately-add-it-to-the-weeks-dinner-menu.html
-
-**Do You Know Where in the World These Winter Scenes Are Set?**\
-`Many books have memorable moments or major plot points set in locations with chilly winter weather. Try this short quiz to see how many you remember from recent novels.`\
-https://nytimes.com/interactive/2025/12/08/books/review/winter-novels-quiz.html
-
-**NBA Power Rankings: It's time to hand out first-quarter grades**\
-`Every team has played at least 20 games ... some far better than others.`\
-https://nytimes.com/athletic/6872773/2025/12/08/nba-power-rankings-lakers-thunder-celtics-grades/
 
