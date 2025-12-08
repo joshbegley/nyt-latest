@@ -1,3 +1,7 @@
+**These Independent Agencies Could Be Affected by a Supreme Court Case**\
+`Court filings identify more than two-dozen quasi-independent boards and commissions that could be affected by a Supreme Court ruling in President Trump’s favor.`\
+https://nytimes.com/2025/12/08/us/politics/agencies-independent-boards.html
+
 **Paramount Makes Hostile Bid for Warner Bros. Discovery**\
 `The offer to shareholders comes days after Warner Bros. agreed to sell its streaming and studio business to Netflix.`\
 https://nytimes.com/2025/12/08/business/paramount-warner-bros-discovery-netflx.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6872367/2025/12/08/inside-real-madrid-xabi-alonso-c
 **Man pleads guilty to stalking Liverpool's Marie Hobinger**\
 `Mangal Dalal will be sentenced on January 20 at Westminster Magistrates' Court.`\
 https://nytimes.com/athletic/6872392/2025/12/08/marie-hobinger-liverpool-stalker/
-
-**Trump Looms Over Netflix’s Deal for Warner Bros. Discovery**\
-`President Trump said the acquisition “could be a problem,” suggesting he will insert himself into the regulatory review of the transaction.`\
-https://nytimes.com/2025/12/08/business/dealbook/trump-effect-netflix-warner-bros.html
 
