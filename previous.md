@@ -1,3 +1,7 @@
+**Yes, J.J. McCarthy was better Sunday, but let's slow down with the narratives**\
+`Minnesota was running out of QB narratives and should not promote a new one now, even after a much-needed win on Sunday.`\
+https://nytimes.com/athletic/6872355/2025/12/08/jj-mccarthy-vikings-commanders-kevin-oconnell/
+
 **How to watch Falcons vs. Buccaneers: Time, TV, streaming**\
 `Find out how to watch the Atlanta Falcons play the Tampa Bay Buccaneers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6872360/2025/12/08/falcons-vs-buccaneers-stream-how-to-watch-dec-11/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/08/business/economy/jerome-powell-federal-reserve.ht
 **New Biometric Tech May Let You Keep Your Passport in Your Pocket**\
 `You may be surprised to zoom right onto a future international flight thanks to facial-recognition tools being tested at Orlando International Airport.`\
 https://nytimes.com/2025/12/08/travel/facial-recoginition-flights-airports-orlando.html
-
-**Miami Hasn’t Had a Democratic Mayor in Almost 30 Years. Is That About to Change?**\
-`Democrats see their voters energized in a county that President Trump won. Republicans fear the runoff could add to recent losses.`\
-https://nytimes.com/2025/12/08/us/miami-hasnt-had-a-democratic-mayor-in-almost-30-years-is-that-about-to-change.html
 

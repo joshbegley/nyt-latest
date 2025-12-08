@@ -1,3 +1,7 @@
+**Yes, J.J. McCarthy was better Sunday, but let's slow down with the narratives**\
+`Minnesota was running out of QB narratives and should not promote a new one now, even after a much-needed win on Sunday.`\
+https://nytimes.com/athletic/6872355/2025/12/08/jj-mccarthy-vikings-commanders-kevin-oconnell/
+
 **How to watch Falcons vs. Buccaneers: Time, TV, streaming**\
 `Find out how to watch the Atlanta Falcons play the Tampa Bay Buccaneers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6872360/2025/12/08/falcons-vs-buccaneers-stream-how-to-watch-dec-11/
