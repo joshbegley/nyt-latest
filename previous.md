@@ -1,3 +1,7 @@
+**Firefighter Is Killed as Multiple Wildfires Burn in Australia**\
+`The firefighter died after being struck by a tree. Dozens of homes in two states have been lost as hot, windy conditions point to a challenging fire season.`\
+https://nytimes.com/2025/12/08/world/australia/firefighter-dies-bushfires.html
+
 **8 Matisse Works Stolen From Library in Brazil**\
 `Two armed men stole over a dozen pieces of art from a São Paulo exhibition featuring works by the French painter and other artists.`\
 https://nytimes.com/2025/12/08/world/americas/matisse-robbery-sao-paulo.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6869164/2025/12/08/leeds-daniel-farke-week-city-che
 **Thierno Barry. Premier League goalscorer. Finally**\
 `The French striker has endured near misses aplenty since arriving from Villarreal in the summer, but his moment finally came against Forest`\
 https://nytimes.com/athletic/6868408/2025/12/08/thierno-barry-everton-goalscorer/
-
-**Wissa is finally a Newcastle player. He will make them better**\
-`The £55m signing from Brentford finally made his Newcastle debut and showed flashes of why he will be worth the wait`\
-https://nytimes.com/athletic/6868488/2025/12/08/yoane-wissa-newcastle-debut/
 

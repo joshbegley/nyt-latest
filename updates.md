@@ -1,3 +1,7 @@
+**Firefighter Is Killed as Multiple Wildfires Burn in Australia**\
+`The firefighter died after being struck by a tree. Dozens of homes in two states have been lost as hot, windy conditions point to a challenging fire season.`\
+https://nytimes.com/2025/12/08/world/australia/firefighter-dies-bushfires.html
+
 **8 Matisse Works Stolen From Library in Brazil**\
 `Two armed men stole over a dozen pieces of art from a São Paulo exhibition featuring works by the French painter and other artists.`\
 https://nytimes.com/2025/12/08/world/americas/matisse-robbery-sao-paulo.html
