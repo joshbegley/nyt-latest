@@ -1,3 +1,7 @@
+****\
+`(No description)`\
+https://nytimes.com/video/100000010573909/16austen-25-objects-meme-flex-hand.html
+
 **A.I. Videos Have Flooded Social Media. No One Was Ready.**\
 `Apps like OpenAI’s Sora are fooling millions of users into thinking A.I. videos are real, even when they include warning labels.`\
 https://nytimes.com/2025/12/08/business/ai-slop-sora-social-media.html

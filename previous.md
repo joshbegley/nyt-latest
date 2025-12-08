@@ -1,3 +1,7 @@
+****\
+`(No description)`\
+https://nytimes.com/video/100000010573909/16austen-25-objects-meme-flex-hand.html
+
 **A.I. Videos Have Flooded Social Media. No One Was Ready.**\
 `Apps like OpenAI’s Sora are fooling millions of users into thinking A.I. videos are real, even when they include warning labels.`\
 https://nytimes.com/2025/12/08/business/ai-slop-sora-social-media.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6873151/2025/12/08/los-angeles-angels-anthony-rendo
 **Shedeur Sanders to remain Browns' starter for rest of season**\
 `Sanders is 1-2 in his three starts and has thrown for a total of 722 yards, five touchdowns and two interceptions. `\
 https://nytimes.com/athletic/6873270/2025/12/08/shedeur-sanders-browns-starting-quarterback/
-
-**For Martin Parr, ‘Showing Things as They Are’ Was Art**\
-`Some saw cynicism in the photographer’s pictures of everyday life in Britain during his nearly six-decade career. But he said he wanted to honor the ordinary.`\
-https://nytimes.com/2025/12/08/arts/martin-parr-photographer-appraisal.html
 
