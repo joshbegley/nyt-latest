@@ -1,3 +1,11 @@
+**Behind 'Mr. Detail-Oriented' Christian Benford and surging defense, Bills' ceiling shoots sky-high**\
+`This game could be one Bills fans remember as a turning point.`\
+https://nytimes.com/athletic/6871450/2025/12/07/christian-benford-bills-cornerback-defense-nfl/
+
+**The growth Shedeur Sanders showed was a small victory for Browns, even in a losing effort**\
+`Despite falling to Tennessee, Sanders displayed poise and guts in his third career start. Maybe Cleveland has something in the rookie QB. `\
+https://nytimes.com/athletic/6871423/2025/12/07/browns-shedeur-sanders-growth-loss-titans/
+
 **Even in shootout loss, something special is happening with these Penguins: Yohe's 10 observations**\
 `The Penguins played one of their better games of the season against a formidable Western Conference contender.`\
 https://nytimes.com/athletic/6871274/2025/12/07/penguins-shootout-jarry-kindel-stars/
@@ -29,12 +37,4 @@ https://nytimes.com/video/the-athletic/100000010572378/packers-intercept-caleb-w
 **U.S. Deports Second Planeload of Iranians, Officials Say**\
 `The plane, carrying about 50 Iranians and other deportees, took off from Arizona on Sunday, under a deal the Trump administration reached with Iran two months ago.`\
 https://nytimes.com/2025/12/07/world/middleeast/us-deports-second-planeload-iranians.html
-
-**Joe Burrow, Bengals tantalize vs. Bills, but still prove an irrelevant footnote**\
-`Cincinnati held the lead for most of the game, but in the end, Sunday saw another late collapse to cripple any playoff hopes.`\
-https://nytimes.com/athletic/6871409/2025/12/07/joe-burrow-bengals-tantalizing-loss-bills/
-
-**NFL's race to the No. 1 pick: Raiders take the lead after Titans beat Browns**\
-`The Raiders haven't owned the No. 1 pick since 2007 but are in position after the results of Week 14.`\
-https://nytimes.com/athletic/6871308/2025/12/07/nfl-draft-2026-top-pick-raiders-titans-jets-browns/
 
