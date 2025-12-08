@@ -1,4 +1,4 @@
-**Joe Burrow, Bengals tantalize vs. Bills, but still prove just an irrelevant footnote**\
+**Joe Burrow, Bengals tantalize vs. Bills, but still prove an irrelevant footnote**\
 `Cincinnati held the lead for most of the game, but in the end, Sunday saw another late collapse to cripple any playoff hopes.`\
 https://nytimes.com/athletic/6871409/2025/12/07/joe-burrow-bengals-tantalizing-loss-bills/
 
