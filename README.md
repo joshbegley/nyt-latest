@@ -1,3 +1,7 @@
+**A Chinese Artist’s Love Letters From Jail**\
+`As Gao Zhen awaits trial in China, his wife and child live in limbo, unable to return to America, sustained by the portraits he fashions from scraps of paper.`\
+https://nytimes.com/interactive/2025/12/08/world/asia/gao-zhen-china-artist-detained.html
+
 **With Fireworks and Parades, Syrians Celebrate Anniversary of al-Assad’s Fall**\
 `A year ago, rebels overthrew President Bashar al-Assad, ending decades of dictatorship and civil war. But challenges remain for the new leadership.`\
 https://nytimes.com/2025/12/08/world/middleeast/syria-anniversary-assad-fall.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6870859/2025/12/08/world-cup-2026-tickets-resale-pr
 **Trump Hosts Kennedy Center Honors**\
 `President Trump hosted the Kennedy Center Honors on Sunday, recognizing artists for lifetime achievements. Trump, who appointed himself chairman of the center, became the first president to host the ceremony.`\
 https://nytimes.com/video/us/100000010572558/trump-kennedy-center-honors.html
-
-**Steve Parish exclusive: Glasner's future, Palace's ambition, and why new spending rules are dangerous**\
-`Crystal Palace's long-serving chairman opens up on spending concerns, Palace's future – and his own`\
-https://nytimes.com/athletic/6861957/2025/12/08/steve-parish-oliver-glasner-future-interview/
 
