@@ -1,3 +1,15 @@
+**NFL's race to the No. 1 pick: Raiders take the lead after Titans beat Browns**\
+`The Raiders haven't owned the No. 1 pick since 2007 but are in position after the results of Week 14.`\
+https://nytimes.com/athletic/6871308/2025/12/07/nfl-draft-2026-top-pick-raiders-titans-jets-browns/
+
+**Ravens aren't good enough, and controversial calls shouldn't distract from that reality**\
+`After losing to Pittsburgh in a battle for first place in the AFC North, Baltimore's hopes of making the playoffs are on life support. `\
+https://nytimes.com/athletic/6871280/2025/12/07/ravens-loss-steelers-controversial-calls/
+
+**Matthew Stafford, Rams' offense roll against Cardinals: Takeaways**\
+`Los Angeles rushed for nearly 250 yards in a dominant win against the Cardinals.`\
+https://nytimes.com/athletic/6871116/2025/12/07/rams-cardinals-score-result-takeaways-nfl/
+
 **On a day of Jets QBs past and present, thoughts of Fernando Mendoza as QB of the future**\
 `An injury to Tyrod Taylor forced undrafted rookie Brady Cook into the lineup for a blowout loss to the Dolphins.`\
 https://nytimes.com/athletic/6871358/2025/12/07/new-york-jets-miami-dolphins-loss-fernando-mendoza-draft/
