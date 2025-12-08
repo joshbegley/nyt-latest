@@ -1,3 +1,7 @@
+**Regardless of buyout, Angels don't expect Anthony Rendon to play in 2026**\
+`In the time since singing his mega-deal ahead of the 2020 season, Rendon has played in just 257 games, including missing all of last season.`\
+https://nytimes.com/athletic/6873151/2025/12/08/los-angeles-angels-anthony-rendon-future-talks/
+
 **Shedeur Sanders to remain Browns' starter for rest of season**\
 `Sanders is 1-2 in his three starts and has thrown for a total of 722 yards, five touchdowns and two interceptions. `\
 https://nytimes.com/athletic/6873270/2025/12/08/shedeur-sanders-browns-starting-quarterback/

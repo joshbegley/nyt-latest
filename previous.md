@@ -1,3 +1,7 @@
+**Regardless of buyout, Angels don't expect Anthony Rendon to play in 2026**\
+`In the time since singing his mega-deal ahead of the 2020 season, Rendon has played in just 257 games, including missing all of last season.`\
+https://nytimes.com/athletic/6873151/2025/12/08/los-angeles-angels-anthony-rendon-future-talks/
+
 **Shedeur Sanders to remain Browns' starter for rest of season**\
 `Sanders is 1-2 in his three starts and has thrown for a total of 722 yards, five touchdowns and two interceptions. `\
 https://nytimes.com/athletic/6873270/2025/12/08/shedeur-sanders-browns-starting-quarterback/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6873074/2025/12/08/sue-bird-jersey-retirement-geno-
 **A Dozen F.B.I. Agents Sue Patel After Being Fired Over Kneeling at Protest**\
 `A five-year-old photo of agents kneeling at a D.C. protest after George Floyd’s killing led to the firing of about 16 agents.`\
 https://nytimes.com/2025/12/08/us/politics/kash-patel-fbi-lawsuit-george-floyd-protest.html
-
-**The F.T.C. Chairman Who Tilted the Agency to Trump**\
-`Andrew Ferguson has used the Federal Trade Commission’s consumer protection mandate to investigate issues important to President Trump and his base.`\
-https://nytimes.com/2025/12/08/technology/ftc-andrew-ferguson-regulator.html
 
