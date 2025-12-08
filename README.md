@@ -1,8 +1,12 @@
+**Another devastating day in Duval County: If Daniel Jones is done, Colts probably are, too**\
+`It's not just the Colts' 2025 season that's in peril. Their franchise's future is, too. `\
+https://nytimes.com/athletic/6871209/2025/12/07/colts-daniel-jones-achilles-duval-county/
+
 **Behind 'Mr. Detail-Oriented' Christian Benford and surging defense, Bills' ceiling shoots sky-high**\
 `This game could be one Bills fans remember as a turning point.`\
 https://nytimes.com/athletic/6871450/2025/12/07/christian-benford-bills-cornerback-defense-nfl/
 
-**The growth Shedeur Sanders showed was a small victory for Browns, even in a losing effort**\
+**The growth Shedeur Sanders showed was a small victory for Browns, even in defeat**\
 `Despite falling to Tennessee, Sanders displayed poise and guts in his third career start. Maybe Cleveland has something in the rookie QB. `\
 https://nytimes.com/athletic/6871423/2025/12/07/browns-shedeur-sanders-growth-loss-titans/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6871441/2025/12/07/mike-tomlin-job-security-pittsbu
 **Packers Intercept Caleb Williams to Seal Rivalry Win Over Bears**\
 `The Green Bay Packers hung on to beat the Chicago Bears, 28-21, and moved into first place in the N.F.C. North.`\
 https://nytimes.com/video/the-athletic/100000010572378/packers-intercept-caleb-williams-to-seal-rivalry-win-over-bears.html
-
-**U.S. Deports Second Planeload of Iranians, Officials Say**\
-`The plane, carrying about 50 Iranians and other deportees, took off from Arizona on Sunday, under a deal the Trump administration reached with Iran two months ago.`\
-https://nytimes.com/2025/12/07/world/middleeast/us-deports-second-planeload-iranians.html
 
