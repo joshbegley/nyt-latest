@@ -1,3 +1,7 @@
+**How Keisean Nixon saved the day to send Packers over Bears into first place**\
+`Nixon's first interception of the season came when it mattered most, but the guy he ended up guarding wasn't even his man to start the play.`\
+https://nytimes.com/athletic/6871933/2025/12/07/keisean-nixon-interception-packers-bears/
+
 **Blue Jackets can't solve Washington's Logan Thompson, suffer first shutout loss**\
 `Jet Greaves returned to the Columbus net and the Blue Jackets looked much more structured, but couldn't get the puck in the net.`\
 https://nytimes.com/athletic/6871700/2025/12/07/blue-jackets-thompson-greaves-capitals/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6871209/2025/12/07/colts-daniel-jones-achilles-duva
 **Behind 'Mr. Detail-Oriented' Christian Benford and surging defense, Bills' ceiling shoots sky-high**\
 `This game could be one Bills fans remember as a turning point.`\
 https://nytimes.com/athletic/6871450/2025/12/07/christian-benford-bills-cornerback-defense-nfl/
-
-**The growth Shedeur Sanders showed was a small victory for Browns, even in defeat**\
-`Despite falling to Tennessee, Sanders displayed poise and guts in his third career start. Maybe Cleveland has something in the rookie QB. `\
-https://nytimes.com/athletic/6871423/2025/12/07/browns-shedeur-sanders-growth-loss-titans/
 
