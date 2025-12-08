@@ -1,3 +1,11 @@
+**Matt Campbell introduced at Penn State, says it's a place he could 'finish my career'**\
+`Campbell said he hoped to follow Penn State wrestling coach Cael Sanderson's example of leaving Ames for Happy Valley success.`\
+https://nytimes.com/athletic/6873691/2025/12/08/matt-campbell-penn-state-introduction/
+
+**Pups in Kimonos Receive Blessings During Japanese Holiday**\
+`Pet owners dressed their dogs in kimonos and custom belts to receive blessings at a Shinto shrine last month. This was part of a children’s festival, Shichi-Go-San, or 7-5-3, which has recently been revamped to include pets as well.`\
+https://nytimes.com/video/world/asia/100000010573775/pups-in-kimonos-receive-blessings-during-japanese-holiday.html
+
 **Magic's Franz Wagner avoids major injury, has high-ankle sprain**\
 `Orlando star, who is averaging 22.7 points and plays active defense, suffered frightening-looking injury in New York.`\
 https://nytimes.com/athletic/6871189/2025/12/08/franz-wagner-orlando-magic-injury-update/
@@ -21,16 +29,4 @@ https://nytimes.com/athletic/6873674/2025/12/08/army-vs-navy-stream-how-to-watch
 **Oklahoma University Removes a Teacher It Says Urged Students to Protest**\
 `The protest was over the removal of another instructor, who gave a failing grade on a paper about gender that relied on the Bible as its main source.`\
 https://nytimes.com/2025/12/08/us/oklahoma-university-removes-instructor-protest-bible-gender.html
-
-**Commanders TE Zach Ertz out for season after tearing ACL**\
-`Ertz, 35, was injured on a pass play in the third quarter of Washington's loss to the Minnesota Vikings.`\
-https://nytimes.com/athletic/6872294/2025/12/08/zach-ertz-acl-tear-washington-commanders/
-
-**49ers' Jauan Jennings responds to Browns: '(Trash talk) wasn't that bad'**\
-`"I thought it was just a lot of talk, honestly," Jennings said Monday. "I think they wanted some attention. That’s about it."`\
-https://nytimes.com/athletic/6873426/2025/12/08/jauan-jennings-49ers-browns-trash-talk/
-
-**Odds and spreads for all 36 college football bowl games**\
-`It's bowl season! We have the odds for all 36 bowl games set to take place over the next few weeks.`\
-https://nytimes.com/athletic/6873236/2025/12/08/college-football-bowl-game-odds-for-all-36-games/
 
