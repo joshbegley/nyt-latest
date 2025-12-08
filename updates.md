@@ -1,3 +1,19 @@
+**America Must Prepare for the Future of War**\
+`The nature of war has drastically changed. The editorial board argues that the U.S. must reform its military.`\
+https://nytimes.com/video/opinion/100000010573151/america-must-prepare-for-the-future-of-war.html
+
+**G.O.P. Senators Push Health Care Options as Vote Looms**\
+`The Senate is set to vote later this week on a three-year extension of Affordable Care Act subsidies that Republicans oppose. The G.O.P. has yet to coalesce around an alternative.`\
+https://nytimes.com/2025/12/08/us/politics/obamacare-subsidy-vote-aca.html
+
+**Minnesota WBB was 99.9% likely to win with 47 seconds left. It lost.**\
+`Maryland kept its undefeated season alive in the most dramatic of ways.`\
+https://nytimes.com/athletic/6873530/2025/12/08/minnesota-maryland-womens-basketball-loss/
+
+**USA star Pulisic scores twice off bench in Milan's comeback vs. Torino**\
+`Pulisic warded off an illness to score twice off the bench for AC Milan and tie for the league lead in goals`\
+https://nytimes.com/athletic/6873813/2025/12/08/christian-pulisic-goal-video-ac-milan-torino-usmnt/
+
 **Trump Backtracks on Releasing Video of Boat Strike**\
 `The president said he would defer to his defense secretary, Pete Hegseth, on whether to release a video showing a follow-up attack that killed survivors of a Sept. 2 strike on an alleged drug smuggling boat.`\
 https://nytimes.com/2025/12/08/us/politics/trump-boat-strike-video-hegseth.html
