@@ -1,3 +1,7 @@
+**Zelensky to Meet With European Leaders as Peace Talks Drag On**\
+`Ukraine’s president was expected in London to discuss with the leaders of Britain, France and Germany ways of ending the conflict against Russia. Negotiations thus far have made little progress.`\
+https://nytimes.com/2025/12/08/world/europe/zelensky-ukraine-war-peace-talks-europe-london.html
+
 **Chelsea, Spurs announce Sydney pre-season trip, Chelsea Women to face A-League XI**\
 `The men's teams of Chelsea and Tottenham will play each other outside England for the first time on August 1.`\
 https://nytimes.com/athletic/6872279/2025/12/08/chelsea-tottenham-sydney-pre-season/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6861957/2025/12/08/steve-parish-oliver-glasner-futu
 **Word of the Day: scurry**\
 `This word has appeared in 37 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/12/08/learning/word-of-the-day-scurry.html
-
-**Jonathan Kuminga explains how he feels after getting pulled out of the starting rotation**\
-`The decision to take him out of the rotation came as a surprise, given how much Kuminga has played to start the year.`\
-https://nytimes.com/athletic/6872098/2025/12/08/jonathan-kuminga-pulled-out-of-rotation-kerr/
 
