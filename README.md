@@ -1,3 +1,11 @@
+**‘I See a Yewande Komolafe Recipe, I Immediately Add It to the Week’s Dinner Menu’**\
+`Readers are already in love with her new one-pan spicy chicken thighs and mushrooms.`\
+https://nytimes.com/2025/12/08/dining/i-see-a-yewande-komolafe-recipe-i-immediately-add-it-to-the-weeks-dinner-menu.html
+
+**Do You Know Where in the World These Winter Scenes Are Set?**\
+`Many books have memorable moments or major plot points set in locations with chilly winter weather. Try this short quiz to see how many you remember from recent novels.`\
+https://nytimes.com/interactive/2025/12/08/books/review/winter-novels-quiz.html
+
 **NBA Power Rankings: It's time to hand out first-quarter grades**\
 `Every team has played at least 20 games ... some far better than others.`\
 https://nytimes.com/athletic/6872773/2025/12/08/nba-power-rankings-lakers-thunder-celtics-grades/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/12/08/us/trump-supreme-court-presidential-power/su
 **Cancer Is Surging, Bringing a Debate About Whether to Look for It**\
 `Statistics show a clear spike in eight cancers, but some experts say that many cases never needed to be found.`\
 https://nytimes.com/2025/12/08/health/cancer-young-people-deaths.html
-
-**Brighton head of medical Pfab to leave club effective immediately**\
-`The decision to part with the German doctor has been made by sporting director Jason Ayto and technical director Mike Cave.`\
-https://nytimes.com/athletic/6872890/2025/12/08/brighton-florian-pfab-head-of-medical-departure/
-
-**Todd Combs, a Warren Buffett Protégé at Berkshire, Jumps to JPMorgan**\
-`The departure of the senior stock picker was one of several leadership changes ahead of Mr. Buffett’s planned departure as chief executive of Berkshire Hathaway.`\
-https://nytimes.com/2025/12/08/business/dealbook/berkshire-todd-combs-jpmorgan.html
 

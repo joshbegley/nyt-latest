@@ -1,3 +1,23 @@
+**NBA Power Rankings: It's time to hand out first-quarter grades**\
+`Every team has played at least 20 games ... some far better than others.`\
+https://nytimes.com/athletic/6872773/2025/12/08/nba-power-rankings-lakers-thunder-celtics-grades/
+
+**New Clashes Erupt on the Thailand-Cambodia Border. Here’s What to Know.**\
+`The latest violence comes months after President Trump helped mediate a cease-fire between the two nations.`\
+https://nytimes.com/2025/12/08/world/asia/thailand-cambodia-border-fighting-strikes.html
+
+**The French Farm Preserving a 4,000-Year-Old Skill**\
+`We visit Grasse in the South of France, a UNESCO-protected site for perfume-making.`\
+https://nytimes.com/paidpost/loreal-groupe/the-french-farm-preserving-a-4000-year-old-skill.html
+
+**Ryan Reynolds, Rob Mac sell minority Wrexham stake to Apollo Sports Capital**\
+`The U.S.-based sports investment firm follows the Allyn family in buying a minority stake in the Welsh club.`\
+https://nytimes.com/athletic/6872869/2025/12/08/wrexham-ownership-apollo-sports-capital/
+
+**Finding Friendship and Community in a Barbershop**\
+`How does beauty show up in our friendships and communities? We visit a barbershop in Buffalo, New York to understand how men’s hair care has become a place for community.`\
+https://nytimes.com/paidpost/loreal-groupe/finding-friendship-and-community-in-a-barbershop.html
+
 **Cam Whitmore is talented, but the Wizards benched him. Why?**\
 `Wizards coach Brian Keefe spoke of "standards." What was he talking about? `\
 https://nytimes.com/athletic/6871961/2025/12/08/cam-whitmore-court-standards-washington-wizards/

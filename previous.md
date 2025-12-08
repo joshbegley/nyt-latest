@@ -1,3 +1,23 @@
+**NBA Power Rankings: It's time to hand out first-quarter grades**\
+`Every team has played at least 20 games ... some far better than others.`\
+https://nytimes.com/athletic/6872773/2025/12/08/nba-power-rankings-lakers-thunder-celtics-grades/
+
+**New Clashes Erupt on the Thailand-Cambodia Border. Here’s What to Know.**\
+`The latest violence comes months after President Trump helped mediate a cease-fire between the two nations.`\
+https://nytimes.com/2025/12/08/world/asia/thailand-cambodia-border-fighting-strikes.html
+
+**The French Farm Preserving a 4,000-Year-Old Skill**\
+`We visit Grasse in the South of France, a UNESCO-protected site for perfume-making.`\
+https://nytimes.com/paidpost/loreal-groupe/the-french-farm-preserving-a-4000-year-old-skill.html
+
+**Ryan Reynolds, Rob Mac sell minority Wrexham stake to Apollo Sports Capital**\
+`The U.S.-based sports investment firm follows the Allyn family in buying a minority stake in the Welsh club.`\
+https://nytimes.com/athletic/6872869/2025/12/08/wrexham-ownership-apollo-sports-capital/
+
+**Finding Friendship and Community in a Barbershop**\
+`How does beauty show up in our friendships and communities? We visit a barbershop in Buffalo, New York to understand how men’s hair care has become a place for community.`\
+https://nytimes.com/paidpost/loreal-groupe/finding-friendship-and-community-in-a-barbershop.html
+
 **Cam Whitmore is talented, but the Wizards benched him. Why?**\
 `Wizards coach Brian Keefe spoke of "standards." What was he talking about? `\
 https://nytimes.com/athletic/6871961/2025/12/08/cam-whitmore-court-standards-washington-wizards/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6872890/2025/12/08/brighton-florian-pfab-head-of-me
 **Todd Combs, a Warren Buffett Protégé at Berkshire, Jumps to JPMorgan**\
 `The departure of the senior stock picker was one of several leadership changes ahead of Mr. Buffett’s planned departure as chief executive of Berkshire Hathaway.`\
 https://nytimes.com/2025/12/08/business/dealbook/berkshire-todd-combs-jpmorgan.html
-
-**Baylor names Doug McNamee to replace Mack Rhoades as athletic director**\
-`The hiring of McNamee fills the void left by former Baylor athletic director Mack Rhoades, who parted ways with the school last month.`\
-https://nytimes.com/athletic/6872854/2025/12/08/baylor-doug-mcnamee-mack-rhoades-athletic-director/
-
-**Lowetide: 5 reasons to believe in the Oilers' turnaround**\
-`After two months of malaise, the Oilers are firing on all cylinders as Christmas approaches.`\
-https://nytimes.com/athletic/6870151/2025/12/08/edmonton-oilers-stats-scores-standings-2025/
-
-**Mandel: Notre Dame's bowl opt-out is a gut punch to the fragile bowl system**\
-`Notre Dame's opt-out  of its bowl game is a gut punch to an increasingly brittle bowl system. `\
-https://nytimes.com/athletic/6872817/2025/12/08/notre-dame-bowl-game-opt-out-future/
-
-**A Scholar’s ‘Bombshell’ Questioned Trump’s Power to Fire Officials**\
-`Caleb E. Nelson, a leading originalist law professor, challenged the conventional wisdom of the “unitary executive theory” in an article that was debated in the parties’ briefs ahead of Monday’s arguments.`\
-https://nytimes.com/2025/12/08/us/politics/supreme-court-constitution-originalist-trump.html
-
-**The early Federal Trade Commission fielded complaints over cigars, soap and even nose shapers.**\
-`Along with weighty antitrust cases, the early years of the Federal Trade Commission featured disputes about everyday products.`\
-https://nytimes.com/live/2025/12/08/us/trump-supreme-court-presidential-power/the-early-federal-trade-commission-fielded-complaints-over-cigars-soap-and-even-nose-shapers
 
