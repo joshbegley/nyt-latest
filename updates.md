@@ -1,3 +1,15 @@
+**Five games, four cities, 16 days – plotting a dream World Cup group-stage itinerary**\
+`If you plan to catch a few games this summer, here is a World Cup-themed travel itinerary, built around five standout matches, to consider`\
+https://nytimes.com/athletic/6872632/2025/12/08/world-cup-2026-dream-itinerary/
+
+**Attacks on Kindergarten and Hospital Kill 114 in Sudan, W.H.O. Says**\
+`The drone strikes were blamed on the paramilitary Rapid Support Forces, extending a pattern of atrocities in Sudan’s 2½-year civil war.`\
+https://nytimes.com/2025/12/08/world/africa/sudan-un-attack-rsf.html
+
+**Becoming Caregivers for Aging Parents**\
+`Readers respond to Michelle Cottle’s essay about her experience with her parents and the growing caregiver crisis.`\
+https://nytimes.com/2025/12/08/opinion/aging-parents.html
+
 **Mamdani Confirms He Will Leave Queens One-Bedroom for Gracie Mansion**\
 `Mayor-elect Zohran Mamdani and his wife, Rama Duwaji, will move into the official residence in Manhattan sometime after his inauguration.`\
 https://nytimes.com/2025/12/08/nyregion/zohran-mamdani-gracie-mansion-rama-duwaji.html
