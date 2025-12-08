@@ -1,3 +1,7 @@
+**With Fireworks and Parades, Syrians Celebrate Anniversary of al-Assad’s Fall**\
+`A year ago, rebels overthrew President Bashar al-Assad, ending decades of dictatorship and civil war. But challenges remain for the new leadership.`\
+https://nytimes.com/2025/12/08/world/middleeast/syria-anniversary-assad-fall.html
+
 **Zelensky to Meet With European Leaders as Peace Talks Drag On**\
 `Ukraine’s president was expected in London to discuss with the leaders of Britain, France and Germany ways of ending the conflict against Russia. Negotiations thus far have made little progress.`\
 https://nytimes.com/2025/12/08/world/europe/zelensky-ukraine-war-peace-talks-europe-london.html
