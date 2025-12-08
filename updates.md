@@ -1,3 +1,19 @@
+**John Noble Wilford, Times Reporter Who Covered the Moon Landing, Dies at 92**\
+`He gave readers a comprehensive and lyrical account of the historic mission in 1969. His science coverage as a Pulitzer-winning journalist and an author took him around the world.`\
+https://nytimes.com/2025/12/08/science/john-noble-wilford-dead.html
+
+**Bruce Blakeman Moves to Launch New York Governor Campaign**\
+`Mr. Blakeman, the Nassau County executive, would face a bitter Republican primary showdown with Representative Elise Stefanik.`\
+https://nytimes.com/2025/12/08/nyregion/bruce-blakeman-new-york-governor.html
+
+**One Hundred Schoolchildren Released After Abduction in Nigeria**\
+`One hundred children who had been kidnapped from a Catholic school in northwestern Nigeria last month were released on Sunday. This is part of a larger trend of kidnappings in Nigeria, where victims are released in exchange for ransom.`\
+https://nytimes.com/video/world/africa/100000010574032/nigeria-abducted-children-released.html
+
+**Patriots-Ravens flexed into Week 16 'Sunday Night Football,' bumping Bengals-Dolphins**\
+`The flex gives the Patriots their fourth prime-time game of the season, while the Ravens will make their fifth prime-time appearance.`\
+https://nytimes.com/athletic/6873995/2025/12/08/patriots-ravens-sunday-night-football-flexed/
+
 **Why Democratic Governors Argue They Are the Party’s Best Shot for 2028**\
 `A long list of people could test that theory, though governors have struggled to make the leap to presidential nominations in recent years.`\
 https://nytimes.com/2025/12/08/us/politics/democratic-governors-dga-2028.html

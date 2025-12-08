@@ -1,3 +1,19 @@
+**John Noble Wilford, Times Reporter Who Covered the Moon Landing, Dies at 92**\
+`He gave readers a comprehensive and lyrical account of the historic mission in 1969. His science coverage as a Pulitzer-winning journalist and an author took him around the world.`\
+https://nytimes.com/2025/12/08/science/john-noble-wilford-dead.html
+
+**Bruce Blakeman Moves to Launch New York Governor Campaign**\
+`Mr. Blakeman, the Nassau County executive, would face a bitter Republican primary showdown with Representative Elise Stefanik.`\
+https://nytimes.com/2025/12/08/nyregion/bruce-blakeman-new-york-governor.html
+
+**One Hundred Schoolchildren Released After Abduction in Nigeria**\
+`One hundred children who had been kidnapped from a Catholic school in northwestern Nigeria last month were released on Sunday. This is part of a larger trend of kidnappings in Nigeria, where victims are released in exchange for ransom.`\
+https://nytimes.com/video/world/africa/100000010574032/nigeria-abducted-children-released.html
+
+**Patriots-Ravens flexed into Week 16 'Sunday Night Football,' bumping Bengals-Dolphins**\
+`The flex gives the Patriots their fourth prime-time game of the season, while the Ravens will make their fifth prime-time appearance.`\
+https://nytimes.com/athletic/6873995/2025/12/08/patriots-ravens-sunday-night-football-flexed/
+
 **Why Democratic Governors Argue They Are the Party’s Best Shot for 2028**\
 `A long list of people could test that theory, though governors have struggled to make the leap to presidential nominations in recent years.`\
 https://nytimes.com/2025/12/08/us/politics/democratic-governors-dga-2028.html
@@ -17,20 +33,4 @@ https://nytimes.com/athletic/6873507/2025/12/08/fan-guide-messi-argentina-world-
 **Trump Clears Sale of More Powerful Nvidia A.I. Chips to China**\
 `Approval for the H200 chip followed months of haggling between tech industry backers and defense hawks.`\
 https://nytimes.com/2025/12/08/business/trump-nvidia-chips-china.html
-
-**Spicy Peanut and Pumpkin Soup**\
-`This recipe is a promise of warmth on those cool autumn nights. Habanero chiles and peanuts both feature heavily in Nigerian cuisine, and this soup is an adaptation of a long-simmered stew common to much of West Africa.`\
-https://nytimes.com/video/dining/100000010367010/spicy-peanut-and-pumpkin-soup.html
-
-**Jimmy Kimmel’s Show Is Extended for Another Year**\
-`“Jimmy Kimmel Live!” became a flashpoint about free speech in the country after it was temporarily suspended this year.`\
-https://nytimes.com/2025/12/08/business/media/jimmy-kimmel-extension-abc.html
-
-**IIHF confirms that Olympic hockey rinks will be shorter than typical NHL sheet**\
-`The IIHF confirmed an Athletic report that the ice surfaces will be more than three feet shorter than the NHL ones agreed upon last summer.`\
-https://nytimes.com/athletic/6873802/2025/12/08/iihf-olympic-hockey-rink-size/
-
-**N.Y. Archdiocese Will Negotiate Sex-Abuse Settlement for 1,300 Accusers**\
-`The archdiocese and its accusers have agreed on a mediator. The archdiocese will raise $300 million to fund the settlement.`\
-https://nytimes.com/2025/12/08/nyregion/ny-archdiocese-sex-abuse-settlement.html
 
