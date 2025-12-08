@@ -1,3 +1,7 @@
+**Salah expected to be left out of Liverpool squad for Inter match**\
+`Salah said on Saturday he felt “thrown under the bus” by Liverpool and revealed his relationship with head coach Arne Slot has broken down.`\
+https://nytimes.com/athletic/6872322/2025/12/08/salah-liverpool-future/
+
 **Inside Barcelona: Alvarez/Etta Eyong links, Ter Stegen's future, and Roony repays Flick's faith**\
 `What transfer business are Barca looking to do? And what's next for Ter Stegen as he nears a return to action?`\
 https://nytimes.com/athletic/6872396/2025/12/08/inside-barcelona-alvarez-etta-eyong-ter-stegen-roony/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6870270/2025/12/08/bruins-morgan-geekie-olympics-sc
 **Monday Morning Leafs Report: The season rests on Hildeby's shoulders**\
 `With Joseph Woll out for an uncertain amount of time and a playoff spot still out of reach, Hildeby will need to hold his nerve.`\
 https://nytimes.com/athletic/6870082/2025/12/08/maple-leafs-dennis-hildeby-goaltending-starter/
-
-**LIV optimistic about world ranking points, CEO says in wide-ranging interview**\
-`In a one-on-one interview with The Athletic, O’Neil also spoke about LIV's standing with the PIF and future signings.`\
-https://nytimes.com/athletic/6865674/2025/12/08/liv-golf-world-ranking-points/
 

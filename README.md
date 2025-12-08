@@ -1,3 +1,7 @@
+**The Sixers need to figure out their third-quarter problems**\
+`"This is happening time and time again," Andre Drummond said of Philly's third-quarter woes. `\
+https://nytimes.com/athletic/6871969/2025/12/08/philadelphia-76ers-third-quarters-lakers-loss/
+
 **Salah expected to be left out of Liverpool squad for Inter match**\
 `Salah said on Saturday he felt “thrown under the bus” by Liverpool and revealed his relationship with head coach Arne Slot has broken down.`\
 https://nytimes.com/athletic/6872322/2025/12/08/salah-liverpool-future/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6872046/2025/12/08/womens-college-basketball-power-
 **Would Canada leave its best goal scorer home for the Olympics?**\
 `Morgan Geekie has scored 47 goals in 2025, more than any other NHL player over the calendar year.`\
 https://nytimes.com/athletic/6870270/2025/12/08/bruins-morgan-geekie-olympics-scoring/
-
-**Monday Morning Leafs Report: The season rests on Hildeby's shoulders**\
-`With Joseph Woll out for an uncertain amount of time and a playoff spot still out of reach, Hildeby will need to hold his nerve.`\
-https://nytimes.com/athletic/6870082/2025/12/08/maple-leafs-dennis-hildeby-goaltending-starter/
 

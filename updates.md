@@ -1,3 +1,7 @@
+**Salah expected to be left out of Liverpool squad for Inter match**\
+`Salah said on Saturday he felt “thrown under the bus” by Liverpool and revealed his relationship with head coach Arne Slot has broken down.`\
+https://nytimes.com/athletic/6872322/2025/12/08/salah-liverpool-future/
+
 **Inside Barcelona: Alvarez/Etta Eyong links, Ter Stegen's future, and Roony repays Flick's faith**\
 `What transfer business are Barca looking to do? And what's next for Ter Stegen as he nears a return to action?`\
 https://nytimes.com/athletic/6872396/2025/12/08/inside-barcelona-alvarez-etta-eyong-ter-stegen-roony/
