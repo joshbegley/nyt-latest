@@ -1,3 +1,11 @@
+**IIHF confirms that Olympic hockey rinks will be shorter than typical NHL sheet**\
+`The IIHF confirmed an Athletic report that the ice surfaces will be more than three feet shorter than the NHL ones agreed upon last summer.`\
+https://nytimes.com/athletic/6873802/2025/12/08/iihf-olympic-hockey-rink-size/
+
+**N.Y. Archdiocese Will Negotiate Sex-Abuse Settlement for 1,300 Accusers**\
+`The archdiocese and its accusers have agreed on a mediator. The archdiocese will raise $300 million to fund the settlement.`\
+https://nytimes.com/2025/12/08/nyregion/ny-archdiocese-sex-abuse-settlement.html
+
 **4 Russian Soldiers Sentenced to Prison for Killing Texan Who Fought for Moscow**\
 `Russell Bonner Bentley III, 64, who was living in the occupied Donbas region of Ukraine, was beaten and tortured to death after he was suspected of being an American saboteur, investigators said.`\
 https://nytimes.com/2025/12/08/world/europe/russia-soldiers-sentence-murder-texas.html
@@ -18,19 +26,11 @@ https://nytimes.com/athletic/6873762/2025/12/08/trey-hendrickson-core-muscle-sur
 `An ex-Marine and a 40-year company veteran, he turned a nearly bankrupt money loser into the world’s most profitable automaker.`\
 https://nytimes.com/2025/12/08/obituaries/donald-e-petersen-dead.html
 
-**Defense Bill Demands Pentagon Show Congress Boat Strike Orders**\
+**A Frustrated Congress Pushes the Pentagon to Produce Its Boat Strike Orders**\
 `In a sign of bipartisan frustration with the Defense Department, the final defense policy bill aims to compel the Pentagon to share execute orders and video documentation.`\
 https://nytimes.com/2025/12/08/us/politics/defense-bill-congress-boat-strikes.html
 
 **Terry Rozier of Miami Heat Pleads Not Guilty in Gambling Case**\
 `The N.B.A. player has been charged in federal court with money laundering conspiracy and wire fraud conspiracy.`\
 https://nytimes.com/2025/12/08/nyregion/terry-rozier-miami-heat-nba-gambling.html
-
-**America Must Prepare for the Future of War**\
-`The nature of war has drastically changed. The editorial board argues that the U.S. must reform its military.`\
-https://nytimes.com/video/opinion/100000010573151/america-must-prepare-for-the-future-of-war.html
-
-**G.O.P. Senators Push Health Care Options as Vote Looms**\
-`The Senate is set to vote later this week on a three-year extension of Affordable Care Act subsidies that Republicans oppose. The G.O.P. has yet to coalesce around an alternative.`\
-https://nytimes.com/2025/12/08/us/politics/obamacare-subsidy-vote-aca.html
 
