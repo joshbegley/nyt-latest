@@ -1,5 +1,13 @@
+**Mike Tomlin is in control of his future, and his Steelers just took control of the AFC North**\
+`With growing calls for the head coach's job, the Steelers went to Baltimore and delivered one of their biggest wins in years.`\
+https://nytimes.com/athletic/6871441/2025/12/07/mike-tomlin-job-security-pittsburgh-steelers-ravens-win/
+
+**Packers Intercept Caleb Williams to Seal Rivalry Win Over Bears**\
+`The Green Bay Packers hung on to beat the Chicago Bears, 28-21, and moved into first place in the N.F.C. North.`\
+https://nytimes.com/video/the-athletic/100000010572378/packers-intercept-caleb-williams-to-seal-rivalry-win-over-bears.html
+
 **U.S. Deports Second Planeload of Iranians, Officials Say**\
-`In the past, the United States deported Iranians individually on commercial planes. But two months ago, the Trump administration reached a deal with Tehran to coordinate the return of Iranian citizens.`\
+`The plane, carrying about 50 Iranians and other deportees, took off from Arizona on Sunday, under a deal the Trump administration reached with Iran two months ago.`\
 https://nytimes.com/2025/12/07/world/middleeast/us-deports-second-planeload-iranians.html
 
 **Joe Burrow, Bengals tantalize vs. Bills, but still prove an irrelevant footnote**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6871105/2025/12/07/josh-allen-bills-win-breakdown/
 **Darryn Peterson returns, offers Kansas hope there's much more still to come**\
 `Peterson's injury had raised eyebrows, but coach Bill Self says the freshman was dedicated in his recovery.`\
 https://nytimes.com/athletic/6871098/2025/12/07/kansas-darryn-peterson-returns-from-hamstring-issue-to-help-down-missouri/
-
-**What I'm hearing on the eve of MLB's winter meetings: Pirates make offer to Kyle Schwarber**\
-`The Royals mull upgrades to their outfield while the Angels continue looking for rotation help. `\
-https://nytimes.com/athletic/6871295/2025/12/07/pirates-kyle-schwarber-free-agency-mlb/
-
-**J.J. McCarthy delivers career-best outing vs. Commanders at pivotal moment**\
-`McCarthy was 16-for-23 for 163 yards and three touchdowns in Sunday's 31-0 win. But his performance set the stage for something more.`\
-https://nytimes.com/athletic/6871143/2025/12/07/vikings-jj-mccarthy-career-best-commanders/
 

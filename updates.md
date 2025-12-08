@@ -1,3 +1,7 @@
+**U.S. Deports Second Planeload of Iranians, Officials Say**\
+`In the past, the United States deported Iranians individually on commercial planes. But two months ago, the Trump administration reached a deal with Tehran to coordinate the return of Iranian citizens.`\
+https://nytimes.com/2025/12/07/world/middleeast/us-deports-second-planeload-iranians.html
+
 **Josh Allen wrests Bills' win from Bengals, showing anything's possible when he's that guy**\
 `Allen played his brand of football that shows his ability to dominate in important moments.`\
 https://nytimes.com/athletic/6871105/2025/12/07/josh-allen-bills-win-breakdown/
