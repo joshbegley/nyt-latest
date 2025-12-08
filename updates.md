@@ -1,3 +1,15 @@
+**Tulane expected to promote Will Hall to head coach: Source**\
+`Jon Sumrall will remain Tulane's head coach through the Playoff before heading to Florida, where he was hired last week.`\
+https://nytimes.com/athletic/6872686/2025/12/08/tulane-will-hall-head-coach-jon-sumrall/
+
+**Thai Jets Bomb Cambodia Amid Deadly Border Dispute**\
+`Residents near the Thai-Cambodian border fled as new hostilities left several people dead. The two countries accused each other of firing first, challenging a cease-fire agreement that has been in place since July.`\
+https://nytimes.com/video/world/asia/100000010572865/thai-jets-bomb-cambodia-amid-deadly-border-dispute.html
+
+**Paramount Makes Hostile Bid for Warner Bros. Discovery**\
+`The offer to shareholders comes days after Warner Bros. agreed to sell its streaming and studio business to Netflix.`\
+https://nytimes.com/2025/12/08/business/paramount-warner-bros-discovery-netflix.html
+
 **These Independent Agencies Could Be Affected by a Supreme Court Case**\
 `Court filings identify more than two-dozen quasi-independent boards and commissions that could be affected by a Supreme Court ruling in President Trump’s favor.`\
 https://nytimes.com/2025/12/08/us/politics/agencies-independent-boards.html
