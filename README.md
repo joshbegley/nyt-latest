@@ -1,9 +1,13 @@
+**Supreme Court Appears Poised to Let Trump Fire Independent Officials**\
+`The Supreme Court signaled that it would expand the president’s powers by making it easier for President Trump to fire independent government officials.`\
+https://nytimes.com/video/us/politics/100000010573141/trump-uncontrolled-power-fire-officials.html
+
 **Clemson cornerback Avieon Terrell declares for NFL Draft**\
 `Terrell is the younger brother of Falcons cornerback A.J. Terrell, who also attended Clemson and was a first-round NFL Draft pick in 2020.`\
 https://nytimes.com/athletic/6873716/2025/12/08/clemson-avieon-terrell-declares-nfl-draft/
 
 **National Parks Drop Free Entrance on M.L.K. Day and Juneteenth**\
-`Visitor will instead get free entry on President Trump’s birthday, which coincides with Flag Day.`\
+`Visitors will instead get free entry on President Trump’s birthday, which coincides with Flag Day.`\
 https://nytimes.com/2025/12/08/travel/trump-birthday-mlk-juneteenth-free-national-park.html
 
 **Why Chiefs' fourth-and-1 play didn't work — and what Andy Reid thinks about it now**\
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6873682/2025/12/08/mohamed-salah-arne-slot-liverpoo
 **Clerk in Murdaugh Trial Is Sentenced to Probation for Perjury and Other Charges**\
 `Becky Hill helped manage the 2023 trial in which Alex Murdaugh was convicted of murdering his wife and younger son.`\
 https://nytimes.com/2025/12/08/us/becky-hill-guilty-alex-murdaugh-clerk.html
-
-**Youth Mental Health Improved When Schools Reopened, Study Finds**\
-`With the end of school shutdowns, children’s mental health appointments fell sharply, though other factors may have contributed.`\
-https://nytimes.com/2025/12/08/health/school-closures-mental-health.html
 
