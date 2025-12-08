@@ -1,3 +1,15 @@
+**Five games, four cities, 16 days – plotting a dream World Cup group-stage itinerary**\
+`If you plan to catch a few games this summer, here is a World Cup-themed travel itinerary, built around five standout matches, to consider`\
+https://nytimes.com/athletic/6872632/2025/12/08/world-cup-2026-dream-itinerary/
+
+**Attacks on Kindergarten and Hospital Kill 114 in Sudan, W.H.O. Says**\
+`The drone strikes were blamed on the paramilitary Rapid Support Forces, extending a pattern of atrocities in Sudan’s 2½-year civil war.`\
+https://nytimes.com/2025/12/08/world/africa/sudan-un-attack-rsf.html
+
+**Becoming Caregivers for Aging Parents**\
+`Readers respond to Michelle Cottle’s essay about her experience with her parents and the growing caregiver crisis.`\
+https://nytimes.com/2025/12/08/opinion/aging-parents.html
+
 **Mamdani Confirms He Will Leave Queens One-Bedroom for Gracie Mansion**\
 `Mayor-elect Zohran Mamdani and his wife, Rama Duwaji, will move into the official residence in Manhattan sometime after his inauguration.`\
 https://nytimes.com/2025/12/08/nyregion/zohran-mamdani-gracie-mansion-rama-duwaji.html
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/6872622/2025/12/08/usmnt-world-cup-aaronson-mckenni
 **best-of-panel**\
 ``\
 https://nytimes.com/panel/live/best-of-panel
-
-**Canada’s World Junior training camp roster: Biggest decisions, notable omissions**\
-`Hockey Canada announced its 27-player training camp roster for the 2026 World Juniors on Monday.`\
-https://nytimes.com/athletic/6870371/2025/12/08/canada-world-juniors-2026-roster-training-camp/
-
-**How Japan Built a Rare-Earth Supply Chain Without China**\
-`The 15-year effort by Japan is a model for countries now scrambling to reduce their dependence on Beijing’s critical metals.`\
-https://nytimes.com/2025/12/08/business/japan-rare-earths-lynas.html
-
-**One Hundred Schoolchildren Released After Kidnapping in Nigeria**\
-`The abduction of over 260 children from a Catholic school last month was the latest in a recent spate of kidnappings in the country.`\
-https://nytimes.com/2025/12/08/world/africa/one-hundred-schoolchildren-released-after-kidnapping-in-nigeria.html
 
