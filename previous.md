@@ -1,3 +1,7 @@
+**Madrid fear Militao four-month layoff with hamstring injury**\
+`The centre-back was substituted in the first half of what was Madrid's first home league loss of the season on Sunday.`\
+https://nytimes.com/athletic/6872416/2025/12/08/militao-injury-real-madrid-news/
+
 **Where did the love — and the wins — go for the crumbling Chicago Bulls?**\
 `The Bulls haven't won since Nov. 21. Coach Billy Donovan decries his team's poor attention to detail and lack of selflessness. `\
 https://nytimes.com/athletic/6872327/2025/12/08/bulls-losing-streak-billy-donovan-warriors/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6872472/2025/12/08/neymar-news-transfer-brazil-sant
 **FPL Gameweek 15 review: Arsenal’s wobble, moving on Mateta, Brentford bargains**\
 `Injuries, form swings, fixture turns, and an AFCON exodus mean FPL managers need to stay sharp. Here’s a breakdown of what we learned`\
 https://nytimes.com/athletic/6870557/2025/12/08/fantasy-premier-league-fpl-tips-arsenal-afcon/
-
-**2025 NFL Simulator: Updated playoff picture and projected draft order after Week 14 results**\
-`How could your favorite team's season end? Find out all the possible paths here.`\
-https://nytimes.com/athletic/6513952/2025/12/08/2025-nfl-playoff-simulator-path-postseason/
 

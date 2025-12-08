@@ -1,3 +1,7 @@
+**Golden Globes Nominees 2026: An Updating List**\
+`The film and television nominees will be announced on Monday.`\
+https://nytimes.com/2025/12/08/movies/golden-globes-nominees-2026-list.html
+
 **Madrid fear Militao four-month layoff with hamstring injury**\
 `The centre-back was substituted in the first half of what was Madrid's first home league loss of the season on Sunday.`\
 https://nytimes.com/athletic/6872416/2025/12/08/militao-injury-real-madrid-news/
@@ -33,8 +37,4 @@ https://nytimes.com/video/business/media/100000010572829/trump-says-that-netflix
 **Neymar says he will undergo knee surgery before deciding on Santos future**\
 `The Brazil international said his mental state was "at zero" but his focus is now on the 2026 World Cup. `\
 https://nytimes.com/athletic/6872472/2025/12/08/neymar-news-transfer-brazil-santos-surgery/
-
-**FPL Gameweek 15 review: Arsenal’s wobble, moving on Mateta, Brentford bargains**\
-`Injuries, form swings, fixture turns, and an AFCON exodus mean FPL managers need to stay sharp. Here’s a breakdown of what we learned`\
-https://nytimes.com/athletic/6870557/2025/12/08/fantasy-premier-league-fpl-tips-arsenal-afcon/
 

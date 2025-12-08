@@ -1,3 +1,7 @@
+**Madrid fear Militao four-month layoff with hamstring injury**\
+`The centre-back was substituted in the first half of what was Madrid's first home league loss of the season on Sunday.`\
+https://nytimes.com/athletic/6872416/2025/12/08/militao-injury-real-madrid-news/
+
 **Where did the love — and the wins — go for the crumbling Chicago Bulls?**\
 `The Bulls haven't won since Nov. 21. Coach Billy Donovan decries his team's poor attention to detail and lack of selflessness. `\
 https://nytimes.com/athletic/6872327/2025/12/08/bulls-losing-streak-billy-donovan-warriors/
