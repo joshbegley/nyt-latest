@@ -1,3 +1,7 @@
+**With Fireworks and Parades, Syrians Celebrate Anniversary of al-Assad’s Fall**\
+`A year ago, rebels overthrew President Bashar al-Assad, ending decades of dictatorship and civil war. But challenges remain for the new leadership.`\
+https://nytimes.com/2025/12/08/world/middleeast/syria-anniversary-assad-fall.html
+
 **Zelensky to Meet With European Leaders as Peace Talks Drag On**\
 `Ukraine’s president was expected in London to discuss with the leaders of Britain, France and Germany ways of ending the conflict against Russia. Negotiations thus far have made little progress.`\
 https://nytimes.com/2025/12/08/world/europe/zelensky-ukraine-war-peace-talks-europe-london.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/100000010572558/trump-kennedy-center-honors.html
 **Steve Parish exclusive: Glasner's future, Palace's ambition, and why new spending rules are dangerous**\
 `Crystal Palace's long-serving chairman opens up on spending concerns, Palace's future – and his own`\
 https://nytimes.com/athletic/6861957/2025/12/08/steve-parish-oliver-glasner-future-interview/
-
-**Word of the Day: scurry**\
-`This word has appeared in 37 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/12/08/learning/word-of-the-day-scurry.html
 
