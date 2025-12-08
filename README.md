@@ -1,3 +1,7 @@
+**After 162-game sprint in 2025, Reds will prioritize rest for Elly De La Cruz**\
+`De La Cruz not only played in 162 games last season, he started in 161 of them.`\
+https://nytimes.com/athletic/6873807/2025/12/08/cincinnati-reds-elly-de-la-cruz-2026-rest/
+
 **Bengals' Trey Hendrickson opts for surgery, likely to end season**\
 `Hendrickson should be fully healthy by the time he reaches free agency in March.`\
 https://nytimes.com/athletic/6873762/2025/12/08/trey-hendrickson-core-muscle-surgery-bengals/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6873530/2025/12/08/minnesota-maryland-womens-basket
 **USA star Pulisic scores twice off bench in Milan's comeback vs. Torino**\
 `Pulisic warded off an illness to score twice off the bench for AC Milan and tie for the league lead in goals`\
 https://nytimes.com/athletic/6873813/2025/12/08/christian-pulisic-goal-video-ac-milan-torino-usmnt/
-
-**Trump Backtracks on Releasing Video of Boat Strike**\
-`The president said he would defer to his defense secretary, Pete Hegseth, on whether to release a video showing a follow-up attack that killed survivors of a Sept. 2 strike on an alleged drug smuggling boat.`\
-https://nytimes.com/2025/12/08/us/politics/trump-boat-strike-video-hegseth.html
 

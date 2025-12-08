@@ -1,3 +1,19 @@
+**Bengals' Trey Hendrickson opts for surgery, likely to end season**\
+`Hendrickson should be fully healthy by the time he reaches free agency in March.`\
+https://nytimes.com/athletic/6873762/2025/12/08/trey-hendrickson-core-muscle-surgery-bengals/
+
+**Donald E. Petersen, Who Rescued Ford Motor Co., Dies at 97**\
+`An ex-Marine and a 40-year company veteran, he turned a nearly bankrupt money loser into the world’s most profitable automaker.`\
+https://nytimes.com/2025/12/08/obituaries/donald-e-petersen-dead.html
+
+**Defense Bill Demands Pentagon Show Congress Boat Strike Orders**\
+`In a sign of bipartisan frustration with the Defense Department, the final defense policy bill aims to compel the Pentagon to share execute orders and video documentation.`\
+https://nytimes.com/2025/12/08/us/politics/defense-bill-congress-boat-strikes.html
+
+**Terry Rozier of Miami Heat Pleads Not Guilty in Gambling Case**\
+`The N.B.A. player has been charged in federal court with money laundering conspiracy and wire fraud conspiracy.`\
+https://nytimes.com/2025/12/08/nyregion/terry-rozier-miami-heat-nba-gambling.html
+
 **America Must Prepare for the Future of War**\
 `The nature of war has drastically changed. The editorial board argues that the U.S. must reform its military.`\
 https://nytimes.com/video/opinion/100000010573151/america-must-prepare-for-the-future-of-war.html
