@@ -1,3 +1,11 @@
+**4 Russian Soldiers Sentenced to Prison for Killing Texan Who Fought for Moscow**\
+`Russell Bonner Bentley III, 64, who was living in the occupied Donbas region of Ukraine, was beaten and tortured to death after he was suspected of being an American saboteur, investigators said.`\
+https://nytimes.com/2025/12/08/world/europe/russia-soldiers-sentence-murder-texas.html
+
+**The Briefing: Wolves 1 Manchester United 4 - Fernandes' double and AFCON-bound players impress**\
+`Carl Anka analyses the main talking points from Manchester United's victory at Molineux`\
+https://nytimes.com/athletic/6867158/2025/12/08/wolves-manchester-united-analysis-premier-league/
+
 **After 162-game sprint in 2025, Reds will prioritize rest for Elly De La Cruz**\
 `De La Cruz not only played in 162 games last season, he started in 161 of them.`\
 https://nytimes.com/athletic/6873807/2025/12/08/cincinnati-reds-elly-de-la-cruz-2026-rest/
