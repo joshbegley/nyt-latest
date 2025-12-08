@@ -1,3 +1,15 @@
+**Celtics' Jordan Walsh building defensive reputation but says he hasn't done anything yet**\
+`The Lakers acknowledged game planning around Walsh, and the third-year forward hopes he forces more teams to do the same.`\
+https://nytimes.com/athletic/6871477/2025/12/07/celtics-jordan-walsh-defensive-reputation-improving/
+
+**RJ Harvey plows over Raiders, gives Broncos another reason for stretch-run optimism**\
+`"It got to a point in the game today where I thought he had about 600 yards," teammate John Franklin-Myers said of Harvey's career day.`\
+https://nytimes.com/athletic/6871580/2025/12/07/rj-harvey-broncos-rookie-raiders/
+
+**‘It: Welcome to Derry’ Season 1, Episode 7 Recap: Inferno**\
+`The town experiences a tragedy of new proportions. The lead perpetrator this time isn’t Pennywise.`\
+https://nytimes.com/2025/12/07/arts/television/it-welcome-to-derry-recap-season-1-episode-7.html
+
 **Mike Tomlin is in control of his future, and his Steelers just took control of the AFC North**\
 `With growing calls for the head coach's job, the Steelers went to Baltimore and delivered one of their biggest wins in years.`\
 https://nytimes.com/athletic/6871441/2025/12/07/mike-tomlin-job-security-pittsburgh-steelers-ravens-win/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6871280/2025/12/07/ravens-loss-steelers-controversi
 **On a day of Jets QBs past and present, thoughts of Fernando Mendoza as the future**\
 `New York might eventually try to figure out how to draft the Indiana Hoosiers quarterback in the 2026 NFL draft.`\
 https://nytimes.com/athletic/6871358/2025/12/07/new-york-jets-miami-dolphins-loss-fernando-mendoza-draft/
-
-**Packers move into first place in NFC North with key win over Bears: Takeaways**\
-`After beating the Bears on Sunday, the Packers now leapfrog Chicago to sit atop the NFC North entering Week 15.`\
-https://nytimes.com/athletic/6871016/2025/12/07/bears-packers-score-result-takeaways-nfl/
-
-**Josh Allen wrests Bills' win from Bengals, showing anything's possible when he's that guy**\
-`Allen played his brand of football that shows his ability to dominate in important moments.`\
-https://nytimes.com/athletic/6871105/2025/12/07/josh-allen-bills-win-breakdown/
-
-**Darryn Peterson returns, offers Kansas hope there's much more still to come**\
-`Peterson's injury had raised eyebrows, but coach Bill Self says the freshman was dedicated in his recovery.`\
-https://nytimes.com/athletic/6871098/2025/12/07/kansas-darryn-peterson-returns-from-hamstring-issue-to-help-down-missouri/
 
