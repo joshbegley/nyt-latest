@@ -1,3 +1,11 @@
+**How did the Commanders describe their latest low? Baffling. Enraging. Unacceptable**\
+`The Commanders were eliminated from playoff contention on Sunday, but that was far from the worst part of their day.`\
+https://nytimes.com/athletic/6871186/2025/12/07/commanders-blowout-loss-vikings/
+
+**The Seahawks know what’s coming. Here’s how they proved it in a romp over the Falcons**\
+`Mike Macdonald called Rashid Shaheed's TD, while Nick Emmanwori and Devon Witherspoon seemed to know exactly where the ball was going.`\
+https://nytimes.com/athletic/6871120/2025/12/07/seahawks-falcons-nick-emmanwori-devon-witherspoon/
+
 **For a program built on tradition, Notre Dame’s bowl opt-out rings hollow**\
 `Notre Dame is a program that prides itself in tradition, but it crossed a new line by opting out of a bowl game.`\
 https://nytimes.com/athletic/6871180/2025/12/07/notre-dame-bowl-college-football/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6870952/2025/12/07/world-sevens-football-san-diego-
 **Raiders QB Geno Smith exits game with shoulder injury**\
 `Backup quarterback and 2022 first-round pick Kenny Pickett replaced Smith.`\
 https://nytimes.com/athletic/6871041/2025/12/07/geno-smith-raiders-injury/
-
-**Mandel: CFP will lose all credibility if it keeps changing every year to fix latest drama**\
-`This is all too familiar to those of who lived through 16 years of the BCS.`\
-https://nytimes.com/athletic/6870734/2025/12/07/college-football-playoff-controversy-notre-dame/
-
-**How should Ohio State feel about its repeat chances now? Takeaways from the CFP reveal**\
-`Five initial thoughts on Ohio State's No. 2 seed, starting in the Cotton Bowl, Brian Hartline's status and more ahead of the Playoff.`\
-https://nytimes.com/athletic/6870957/2025/12/07/ohio-state-playoff-bracket-cotton-bowl-hartline/
 

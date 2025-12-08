@@ -1,3 +1,11 @@
+**For a program built on tradition, Notre Dame’s bowl opt-out rings hollow**\
+`Notre Dame is a program that prides itself in tradition, but it crossed a new line by opting out of a bowl game.`\
+https://nytimes.com/athletic/6871180/2025/12/07/notre-dame-bowl-college-football/
+
+**Jeff Kent elected to the Hall of Fame by the Contemporary Baseball Era Committee**\
+`Kent was one of the best-hitting second basemen in MLB history. He is the only person elected off the Contemporary Baseball Era ballot.`\
+https://nytimes.com/athletic/6871232/2025/12/07/jeff-kent-hall-of-fame-contemporary-baseball-era-committee/
+
 **Liam Coen's Jaguars are playing with an edge and are in control in the AFC South**\
 `The Jaguars may have been overlooked most of this season, but Coen is just OK with that as his team moved into first place.`\
 https://nytimes.com/athletic/6871123/2025/12/07/jaguars-liam-coeh-afc-south-playoffs-colts/
