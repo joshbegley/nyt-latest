@@ -1,3 +1,7 @@
+**College Football Playoff conspiracy theories: Connecting dots to arrive at (unlikely) motives**\
+`Let the theories fly on the 2025 College Football Playoff Field.`\
+https://nytimes.com/athletic/6870934/2025/12/08/college-football-playoff-committee-ranking-theories/
+
 **Kristen Stewart Wants to Blow Up the Myth of the Brilliant Male Actor**\
 `The actress and director tells David Marchese the world of filmmaking needs a “full system break.”`\
 https://nytimes.com/video/podcasts/100000010572768/kristen-stewart-wants-to-blow-up-the-myth-of-the-brilliant-male-actor.html
@@ -33,8 +37,4 @@ https://nytimes.com/issue/todaysinyt/2025/12/08/todays-new-york-times-internatio
 **How to watch Falcons vs. Buccaneers: Time, TV, streaming**\
 `Find out how to watch the Atlanta Falcons play the Tampa Bay Buccaneers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6872360/2025/12/08/falcons-vs-buccaneers-stream-how-to-watch-dec-11/
-
-**A Weakened Hamas Still Dominates Gaza, Building Day by Day**\
-`A cease-fire after two years of war with Israel has allowed Hamas to tighten its grip on power again. “It’s still standing,” one Israeli official said.`\
-https://nytimes.com/2025/12/08/world/middleeast/hamas-gaza.html
 

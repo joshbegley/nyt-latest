@@ -1,3 +1,7 @@
+**College Football Playoff conspiracy theories: Connecting dots to arrive at (unlikely) motives**\
+`Let the theories fly on the 2025 College Football Playoff Field.`\
+https://nytimes.com/athletic/6870934/2025/12/08/college-football-playoff-committee-ranking-theories/
+
 **Kristen Stewart Wants to Blow Up the Myth of the Brilliant Male Actor**\
 `The actress and director tells David Marchese the world of filmmaking needs a “full system break.”`\
 https://nytimes.com/video/podcasts/100000010572768/kristen-stewart-wants-to-blow-up-the-myth-of-the-brilliant-male-actor.html
