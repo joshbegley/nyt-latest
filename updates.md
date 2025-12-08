@@ -1,3 +1,15 @@
+**Inside Barcelona: Alvarez/Etta Eyong links, Ter Stegen's future, and Roony repays Flick's faith**\
+`What transfer business are Barca looking to do? And what's next for Ter Stegen as he nears a return to action?`\
+https://nytimes.com/athletic/6872396/2025/12/08/inside-barcelona-alvarez-etta-eyong-ter-stegen-roony/
+
+**A Corruption Scandal in Ukraine**\
+`We examine an investigation that is testing Volodymyr Zelensky’s government.`\
+https://nytimes.com/2025/12/08/briefing/a-corruption-scandal-in-ukraine.html
+
+**Marooned off the English Coast: Lots of Bananas**\
+`Containers of bananas, avocados and plantains fell off a cargo ship off the Isle of Wight. A soggy fruit harvest ensued.`\
+https://nytimes.com/2025/12/08/world/europe/uk-cargo-ship-container-bananas-sussex-beach.html
+
 **Brian Cashman identifies major Yankees weakness amid Cody Bellinger pursuit**\
 `If Bellinger returns, six of the Yankees' nine projected Opening Day starters would be lefty hitters, an imbalance the GM acknowledges. `\
 https://nytimes.com/athletic/6871762/2025/12/08/yankees-weakness-cody-bellinger-free-agency/
