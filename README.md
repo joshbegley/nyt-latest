@@ -1,3 +1,7 @@
+**A.I. Videos Have Flooded Social Media. No One Was Ready.**\
+`Apps like OpenAI’s Sora are fooling millions of users into thinking A.I. videos are real, even when they include warning labels.`\
+https://nytimes.com/2025/12/08/business/ai-slop-sora-social-media.html
+
 **Michael Jordan vs. NASCAR trial resumes with economist testifying on league's tactics**\
 `NASCAR has exclusivity deals for its tracks, barring them from hosting a potential competitor. That practice was part of Monday's focus.`\
 https://nytimes.com/athletic/6873317/2025/12/08/michael-jordan-nascar-trial-monopoly-economist-accountant-steve-phelps/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6873270/2025/12/08/shedeur-sanders-browns-starting-
 **For Martin Parr, ‘Showing Things as They Are’ Was Art**\
 `Some saw cynicism in the photographer’s pictures of everyday life in Britain during his nearly six-decade career. But he said he wanted to honor the ordinary.`\
 https://nytimes.com/2025/12/08/arts/martin-parr-photographer-appraisal.html
-
-**NFL overreactions: Take the Seahawks over the Colts in Week 15**\
-`Toby Mergler gives his initial thoughts on the Week 15 NFL betting market.`\
-https://nytimes.com/athletic/6872891/2025/12/08/nfl-overreactions-week-15-seahawks-colts/
 
