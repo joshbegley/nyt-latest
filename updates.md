@@ -1,3 +1,7 @@
+**Chelsea, Spurs announce Sydney pre-season trip, Chelsea Women to face A-League XI**\
+`The men's teams of Chelsea and Tottenham will play each other outside England for the first time on August 1.`\
+https://nytimes.com/athletic/6872279/2025/12/08/chelsea-tottenham-sydney-pre-season/
+
 **4 Takeaways From The Times’s Examination of N.Y.C. Subway Collisions**\
 `New York City train operators witness more people being struck by trains than drivers in any other American system. Afterward, many struggle to get the help they need.`\
 https://nytimes.com/2025/12/08/nyregion/nyc-subway-strikes-takeaways.html
