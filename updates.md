@@ -1,3 +1,15 @@
+**Trump Is Unpopular. Does He Know It?**\
+`“I’m not going to make any predictions, but I will say it feels as if right now is the most popular he’s going to be over the next year,” the columnist Jamelle Bouie predicts of Trump.`\
+https://nytimes.com/video/opinion/100000010566429/trump-is-unpopular-does-he-know-it.html
+
+**Are Trump’s Boat Attacks a War Crime?**\
+`On “The Opinions,” the columnist Jamelle Bouie argues that the president is randomly blowing up boats in the Caribbean — what Bouie calls “criminal murder.”`\
+https://nytimes.com/video/opinion/100000010566422/are-trumps-boat-attacks-a-war-crime.html
+
+**Review: Two New Bach Pieces? The Real Thrill Was in the Chase.**\
+`Two workmanlike pieces by the teenage Bach had their New York premiere at the Chamber Music Society of Lincoln Center.`\
+https://nytimes.com/2025/12/08/arts/music/review-two-short-bach-pieces-premiere.html
+
 **Cora Weiss, Lifelong Champion of Social Justice, Dies at 91**\
 `With a group called Women Strike for Peace, she helped organize demonstrations against the Vietnam War and nuclear weapons. “We managed to get things done,” she said.`\
 https://nytimes.com/2025/12/08/us/politics/cora-weiss-dead.html
