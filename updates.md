@@ -1,3 +1,19 @@
+**Maddison: ACL injury on eve of new season 'destroyed me on the inside'**\
+`Maddison, 29, underwent surgery in August after suffering the injury in a pre-season fixture against Newcastle.`\
+https://nytimes.com/athletic/6873448/2025/12/08/james-maddison-tottenham-acl-injury/
+
+**NWSL said it would fight for Trinity Rodman. It's only fighting with itself**\
+`One way or the other, the league will set a precedent with Rodman. The NWSL has the power to choose what that looks like.`\
+https://nytimes.com/athletic/6873302/2025/12/08/nwsl-trinity-rodman-spirit-future/
+
+**Nancy Mace: What’s the Point of Congress?**\
+`The system in the House promotes control by party leaders over accountability and achievement.`\
+https://nytimes.com/2025/12/08/opinion/nancy-mace-congress-republicans.html
+
+**Garnacho insists no regrets over manner of Man Utd exit**\
+`"“Sometimes in life, you have to change things to take a step forward or to improve as a player," Garnacho said.`\
+https://nytimes.com/athletic/6873491/2025/12/08/alejandro-garnacho-manchester-united-chelsea-transfer/
+
 **Scoop City: Risers and fallers after Week 14**\
 `The Packers, Rams and Broncos trend up, while the Chiefs, Bengals and Falcons lead our Week 14 fallers`\
 https://nytimes.com/athletic/6873466/2025/12/08/nfl-risers-fallers-week-14-packers-broncos-colts/
