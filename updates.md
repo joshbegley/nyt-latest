@@ -1,3 +1,7 @@
+**In thrashing of Cardinals, Rams offense was reminiscent of the 'Greatest Show on Turf'**\
+`The Rams scored three rushing and three passing TDs for the first time since 2001, when Kurt Warner and company ran roughshod over defenses.`\
+https://nytimes.com/athletic/6871451/2025/12/08/rams-offense-greatest-show-on-turf-win-cardinals/
+
 **Flyers' Michkov, Couturier have been scoring more of late. It must continue**\
 `Couturier and Michkov have been the two biggest wild cards on the Flyers' roster at forward since opening night.`\
 https://nytimes.com/athletic/6870788/2025/12/08/flyers-michkov-couturier-goals/

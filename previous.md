@@ -1,3 +1,7 @@
+**In thrashing of Cardinals, Rams offense was reminiscent of the 'Greatest Show on Turf'**\
+`The Rams scored three rushing and three passing TDs for the first time since 2001, when Kurt Warner and company ran roughshod over defenses.`\
+https://nytimes.com/athletic/6871451/2025/12/08/rams-offense-greatest-show-on-turf-win-cardinals/
+
 **Flyers' Michkov, Couturier have been scoring more of late. It must continue**\
 `Couturier and Michkov have been the two biggest wild cards on the Flyers' roster at forward since opening night.`\
 https://nytimes.com/athletic/6870788/2025/12/08/flyers-michkov-couturier-goals/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6867805/2025/12/08/cowboys-biggest-concerns-pass-ru
 **Eagles at Chargers on MNF: Storylines, Herbert's injury, 'Monsters, Inc.' telecast**\
 `Now for a tale of the Birds and the Bolts. The 8-4 Eagles and Chargers link up on "Monday Night Football" and "Monsters Funday Football."`\
 https://nytimes.com/athletic/6865746/2025/12/08/eagles-chargers-mnf-justin-herbert-injury-monsters-inc/
-
-**One year later: Panthers' Jonathon Brooks revisits second ACL injury, looks to 2026**\
-`Brooks first injured his knee at Texas then last season as a rookie with Carolina. He said he just wants the opportunity to prove himself.`\
-https://nytimes.com/athletic/6866746/2025/12/08/panthers-jonathon-brooks-acl-injury-update/
 
