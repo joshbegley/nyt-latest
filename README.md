@@ -1,3 +1,11 @@
+**Flyers' Michkov, Couturier have been scoring more of late. It must continue**\
+`Couturier and Michkov have been the two biggest wild cards on the Flyers' roster at forward since opening night.`\
+https://nytimes.com/athletic/6870788/2025/12/08/flyers-michkov-couturier-goals/
+
+**Hurricanes' Bussi making the most of long-awaited chance: 'Things happen at random times'**\
+`The undrafted goalie, claimed off waivers by Carolina, has thrived in his first chance in the NHL.`\
+https://nytimes.com/athletic/6871038/2025/12/08/hurricanes-goalie-brandon-bussi/
+
 **The Pulse: The biggest snub of the Playoff bracket**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6871285/2025/12/08/college-football-playoff-bracket-the-pulse-2/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6865746/2025/12/08/eagles-chargers-mnf-justin-herbe
 **One year later: Panthers' Jonathon Brooks revisits second ACL injury, looks to 2026**\
 `Brooks first injured his knee at Texas then last season as a rookie with Carolina. He said he just wants the opportunity to prove himself.`\
 https://nytimes.com/athletic/6866746/2025/12/08/panthers-jonathon-brooks-acl-injury-update/
-
-**Where Phillies' offseason stands: Kyle Schwarber and J.T. Realmuto — and the great unknown**\
-`No one with the club has hinted the Phillies would be restricted from additional long-term deals beyond Schwarber and Realmuto. `\
-https://nytimes.com/athletic/6871429/2025/12/08/phillies-offseason-kyle-schwarber-jt-realmuto/
-
-**Edwards: OG Anunoby, Mikal Bridges making strong cases to be first-time NBA All-Stars**\
-`The Knicks' duo might be the best players in the NBA to never make an All-Star game. That could change this year.`\
-https://nytimes.com/athletic/6870804/2025/12/08/og-anunoby-mikal-bridges-nba-all-star-bids/
 
