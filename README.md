@@ -1,3 +1,15 @@
+**Inside Barcelona: Alvarez/Etta Eyong links, Ter Stegen's future, and Roony repays Flick's faith**\
+`What transfer business are Barca looking to do? And what's next for Ter Stegen as he nears a return to action?`\
+https://nytimes.com/athletic/6872396/2025/12/08/inside-barcelona-alvarez-etta-eyong-ter-stegen-roony/
+
+**A Corruption Scandal in Ukraine**\
+`We examine an investigation that is testing Volodymyr Zelensky’s government.`\
+https://nytimes.com/2025/12/08/briefing/a-corruption-scandal-in-ukraine.html
+
+**Marooned off the English Coast: Lots of Bananas**\
+`Containers of bananas, avocados and plantains fell off a cargo ship off the Isle of Wight. A soggy fruit harvest ensued.`\
+https://nytimes.com/2025/12/08/world/europe/uk-cargo-ship-container-bananas-sussex-beach.html
+
 **Brian Cashman identifies major Yankees weakness amid Cody Bellinger pursuit**\
 `If Bellinger returns, six of the Yankees' nine projected Opening Day starters would be lefty hitters, an imbalance the GM acknowledges. `\
 https://nytimes.com/athletic/6871762/2025/12/08/yankees-weakness-cody-bellinger-free-agency/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6870082/2025/12/08/maple-leafs-dennis-hildeby-goalt
 **LIV optimistic about world ranking points, CEO says in wide-ranging interview**\
 `In a one-on-one interview with The Athletic, O’Neil also spoke about LIV's standing with the PIF and future signings.`\
 https://nytimes.com/athletic/6865674/2025/12/08/liv-golf-world-ranking-points/
-
-**Ostlund's demotion, Power's slump and lineup shuffles: Sabres notebook**\
-`Shaking up the lines will ideally help the Sabres maximize their forecheck as the western Canada road trip continues.`\
-https://nytimes.com/athletic/6871478/2025/12/08/sabres-ostlund-power-lineup-ruff/
-
-**With Brock Purdy healthy, the 49ers' offense has a key ingredient back: QB mobility**\
-`Even if Purdy's toe isn't 100 percent healed, he brings an element to the offense that Mac Jones did not.`\
-https://nytimes.com/athletic/6870154/2025/12/08/brock-purdy-49ers-mobility-scrambling-running/
-
-**CFP first thoughts: Who has the best and worst Playoff draw? Will the Big Ten dominate?**\
-`Breaking down the most intriguing games and players, the best and worst draws and early College Football Playoff championships picks.`\
-https://nytimes.com/athletic/6870637/2025/12/08/college-football-playoff-bracket-reaction-predictions/
 
