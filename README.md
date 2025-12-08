@@ -1,3 +1,7 @@
+**Packers move into first place in NFC North with key win over Bears: Takeaways**\
+`After beating the Bears on Sunday, the Packers now leapfrog Chicago to sit atop the NFC North entering Week 15.`\
+https://nytimes.com/athletic/6871016/2025/12/07/bears-packers-score-result-takeaways-nfl/
+
 **Josh Allen wrestles Bills' win from Bengals, showing anything's possible when he's that guy**\
 `Allen played his brand of football that shows his ability to dominate in important moments.`\
 https://nytimes.com/athletic/6871105/2025/12/07/josh-allen-bills-win-breakdown/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6871120/2025/12/07/seahawks-falcons-nick-emmanwori-
 **Vannini: Notre Dame's bowl opt-out crosses a new line in college football**\
 `Notre Dame may be upset, but the point of playing football is to play football.`\
 https://nytimes.com/athletic/6871180/2025/12/07/notre-dame-bowl-college-football/
-
-**Jeff Kent elected to the Hall of Fame; Bonds, Clemens fall way short**\
-`Kent was one of the best-hitting second basemen in MLB history. He is the only person elected off the Contemporary Baseball Era ballot.`\
-https://nytimes.com/athletic/6871232/2025/12/07/jeff-kent-hall-of-fame-contemporary-baseball-era-committee/
 

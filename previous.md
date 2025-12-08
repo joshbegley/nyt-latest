@@ -2,7 +2,7 @@
 `Allen played his brand of football that shows his ability to dominate in important moments.`\
 https://nytimes.com/athletic/6871105/2025/12/07/josh-allen-bills-win-breakdown/
 
-**Darryn Peterson returns, offers Kansas hope there's much more still to come.**\
+**Darryn Peterson returns, offers Kansas hope there's much more still to come**\
 `Peterson's injury had raised eyebrows, but coach Bill Self says the freshman was dedicated in his recovery.`\
 https://nytimes.com/athletic/6871098/2025/12/07/kansas-darryn-peterson-returns-from-hamstring-issue-to-help-down-missouri/
 
