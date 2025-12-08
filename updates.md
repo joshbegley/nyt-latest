@@ -1,3 +1,7 @@
+**Why Barcelona's Uber sponsorship deal has sparked protests at the Camp Nou**\
+`A strike called by Barcelona's Elite Taxi union could cause disruption before Tuesday night's home game with Eintracht Frankfurt`\
+https://nytimes.com/athletic/6872696/2025/12/08/barcelona-champions-league-uber-protest-sponsorship/
+
 **Tulane expected to promote Will Hall to head coach: Source**\
 `Jon Sumrall will remain Tulane's head coach through the Playoff before heading to Florida, where he was hired last week.`\
 https://nytimes.com/athletic/6872686/2025/12/08/tulane-will-hall-head-coach-jon-sumrall/

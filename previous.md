@@ -1,3 +1,7 @@
+**Why Barcelona's Uber sponsorship deal has sparked protests at the Camp Nou**\
+`A strike called by Barcelona's Elite Taxi union could cause disruption before Tuesday night's home game with Eintracht Frankfurt`\
+https://nytimes.com/athletic/6872696/2025/12/08/barcelona-champions-league-uber-protest-sponsorship/
+
 **Tulane expected to promote Will Hall to head coach: Source**\
 `Jon Sumrall will remain Tulane's head coach through the Playoff before heading to Florida, where he was hired last week.`\
 https://nytimes.com/athletic/6872686/2025/12/08/tulane-will-hall-head-coach-jon-sumrall/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/08/us/politics/rebecca-slaughter.html
 **Here’s the latest.**\
 `By Ann E. Marimow`\
 https://nytimes.com/live/2025/12/08/us/trump-supreme-court-presidential-power/heres-the-latest
-
-**Live Updates: Supreme Court to Consider Trump’s Power to Fire Independent Officials**\
-`A Trump victory could expand presidential power and affect over two dozen agencies beyond the Federal Trade Commission.`\
-https://nytimes.com/live/2025/12/08/us/trump-supreme-court-presidential-power
 
