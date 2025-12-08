@@ -1,3 +1,15 @@
+**Trump Clears Sale of More Powerful Nvidia A.I. Chips to China**\
+`Approval for the H200 chip followed months of haggling between tech industry backers and defense hawks.`\
+https://nytimes.com/2025/12/08/business/trump-nvidia-chips-china.html
+
+**Spicy Peanut and Pumpkin Soup**\
+`This recipe is a promise of warmth on those cool autumn nights. Habanero chiles and peanuts both feature heavily in Nigerian cuisine, and this soup is an adaptation of a long-simmered stew common to much of West Africa.`\
+https://nytimes.com/video/dining/100000010367010/spicy-peanut-and-pumpkin-soup.html
+
+**Jimmy Kimmel’s Show Is Extended for Another Year**\
+`The show became a flashpoint about free speech in the country after it was temporarily suspended this year.`\
+https://nytimes.com/2025/12/08/business/media/jimmy-kimmel-extension-abc.html
+
 **IIHF confirms that Olympic hockey rinks will be shorter than typical NHL sheet**\
 `The IIHF confirmed an Athletic report that the ice surfaces will be more than three feet shorter than the NHL ones agreed upon last summer.`\
 https://nytimes.com/athletic/6873802/2025/12/08/iihf-olympic-hockey-rink-size/
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/6873807/2025/12/08/cincinnati-reds-elly-de-la-cruz-
 **Bengals' Trey Hendrickson opts for surgery, likely to end season**\
 `Hendrickson should be fully healthy by the time he reaches free agency in March.`\
 https://nytimes.com/athletic/6873762/2025/12/08/trey-hendrickson-core-muscle-surgery-bengals/
-
-**Donald E. Petersen, Who Rescued Ford Motor Co., Dies at 97**\
-`An ex-Marine and a 40-year company veteran, he turned a nearly bankrupt money loser into the world’s most profitable automaker.`\
-https://nytimes.com/2025/12/08/obituaries/donald-e-petersen-dead.html
-
-**A Frustrated Congress Pushes the Pentagon to Produce Its Boat Strike Orders**\
-`In a sign of bipartisan frustration with the Defense Department, the final defense policy bill aims to compel the Pentagon to share execute orders and video documentation.`\
-https://nytimes.com/2025/12/08/us/politics/defense-bill-congress-boat-strikes.html
-
-**Terry Rozier of Miami Heat Pleads Not Guilty in Gambling Case**\
-`The N.B.A. player has been charged in federal court with money laundering conspiracy and wire fraud conspiracy.`\
-https://nytimes.com/2025/12/08/nyregion/terry-rozier-miami-heat-nba-gambling.html
 
