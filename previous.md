@@ -1,3 +1,19 @@
+**2028 Open Championship rescheduled for August to avoid Olympic conflict**\
+`The 2028 Open will be played from Aug. 3 to 6, and the R&A has not yet announced a venue.`\
+https://nytimes.com/athletic/6872996/2025/12/08/open-championship-august-summer-olympics-los-angeles/
+
+**Supreme Court’s Conservatives Have Already Narrowed the 1935 Precedent**\
+`Several conservative justices have indicated their willingness to strengthen the president’s power to fire independent agency leaders.`\
+https://nytimes.com/2025/12/08/us/politics/supreme-courts-conservatives-have-already-narrowed-the-1935-precedent.html
+
+**Why Russian Spies Are Using Mexico to Target the U.S.**\
+`American officials pleaded with Mexico to expel two dozen Russian spies posing as diplomats operating in Mexico. Their concerns were dismissed.`\
+https://nytimes.com/2025/12/08/world/americas/russian-spies-mexico.html
+
+**The U.S. Gave Mexico a List of Russian Spies. Mexico Let Them Stay.**\
+`Moscow has ramped up covert operations in Mexico, with spies meeting handlers in its bustling capital and seaside resorts, U.S. officials say.`\
+https://nytimes.com/2025/12/08/world/americas/mexico-russia-spies.html
+
 **NFL Week 15 odds: Colts fans, avert your eyes at this week's spread**\
 `Postseason stakes and marquee matchups define the NFL Week 15 slate. Here are the early odds. `\
 https://nytimes.com/athletic/6872865/2025/12/08/nfl-week-15-odds-spreads-bills-patriots-lions-rams/
@@ -17,20 +33,4 @@ https://nytimes.com/athletic/6873039/2025/12/08/kings-vs-pacers-stream-how-to-wa
 **Planes, Trade and Nuclear Energy: Supreme Court Weighs Fate of Independent Regulators**\
 `The court heard arguments Monday on a case that could determine the independence of agencies like the National Transportation Safety Board and the Nuclear Regulatory Commission.`\
 https://nytimes.com/2025/12/08/business/supreme-court-independent-regulators.html
-
-**6 Memorable Moments From the ‘Trump Kennedy Center’ Honors**\
-`President Trump expressed his love of “Phantom of the Opera,” got in more digs at Jimmy Kimmel and joked — perhaps — about adding his name to the arts center he has taken over.`\
-https://nytimes.com/2025/12/08/arts/trump-kennedy-center-honors-moments.html
-
-**Cargo Spill Sends Bunches of Bananas to England’s Coast**\
-`Sixteen shipping containers, some full of produce, fell off a ship near England’s southern coast, the British Coast Guard said. Some washed up near the town of Selsey, spilling bananas by the bunches on the beach.`\
-https://nytimes.com/video/world/europe/100000010573007/cargo-spill-sends-bunches-of-bananas-to-englands-coast.html
-
-**Boeing Completes Acquisition of Spirit AeroSystems, a Major Supplier**\
-`The aerospace company is buying Spirit AeroSystems, which makes the bodies of the 737 Max jet, two years after a part of that plane blew away during a flight.`\
-https://nytimes.com/2025/12/08/business/boeing-spirit-aerosystems.html
-
-**The Windup: A bad day to be Barry Bonds?**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/6872848/2025/12/08/barry-bonds-jeff-kent-hof-the-windup/
 

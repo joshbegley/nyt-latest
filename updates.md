@@ -1,3 +1,19 @@
+**2028 Open Championship rescheduled for August to avoid Olympic conflict**\
+`The 2028 Open will be played from Aug. 3 to 6, and the R&A has not yet announced a venue.`\
+https://nytimes.com/athletic/6872996/2025/12/08/open-championship-august-summer-olympics-los-angeles/
+
+**Supreme Court’s Conservatives Have Already Narrowed the 1935 Precedent**\
+`Several conservative justices have indicated their willingness to strengthen the president’s power to fire independent agency leaders.`\
+https://nytimes.com/2025/12/08/us/politics/supreme-courts-conservatives-have-already-narrowed-the-1935-precedent.html
+
+**Why Russian Spies Are Using Mexico to Target the U.S.**\
+`American officials pleaded with Mexico to expel two dozen Russian spies posing as diplomats operating in Mexico. Their concerns were dismissed.`\
+https://nytimes.com/2025/12/08/world/americas/russian-spies-mexico.html
+
+**The U.S. Gave Mexico a List of Russian Spies. Mexico Let Them Stay.**\
+`Moscow has ramped up covert operations in Mexico, with spies meeting handlers in its bustling capital and seaside resorts, U.S. officials say.`\
+https://nytimes.com/2025/12/08/world/americas/mexico-russia-spies.html
+
 **NFL Week 15 odds: Colts fans, avert your eyes at this week's spread**\
 `Postseason stakes and marquee matchups define the NFL Week 15 slate. Here are the early odds. `\
 https://nytimes.com/athletic/6872865/2025/12/08/nfl-week-15-odds-spreads-bills-patriots-lions-rams/
