@@ -1,3 +1,11 @@
+**Clemson cornerback Avieon Terrell declares for NFL Draft**\
+`Terrell is the younger brother of Falcons cornerback A.J. Terrell, who also attended Clemson and was a first-round NFL Draft pick in 2020.`\
+https://nytimes.com/athletic/6873716/2025/12/08/clemson-avieon-terrell-declares-nfl-draft/
+
+**National Parks Drop Free Entrance on M.L.K. Day and Juneteenth**\
+`Visitor will instead get free entry on President Trump’s birthday, which coincides with Flag Day.`\
+https://nytimes.com/2025/12/08/travel/trump-birthday-mlk-juneteenth-free-national-park.html
+
 **Why Chiefs' fourth-and-1 play didn't work — and what Andy Reid thinks about it now**\
 `The Chiefs had everything they could've wanted on a late fourth-and-1 play call. Here's why it still went wrong.`\
 https://nytimes.com/athletic/6873362/2025/12/08/chiefs-fourth-down-decision-andy-reid/
@@ -25,12 +33,4 @@ https://nytimes.com/2025/12/08/us/becky-hill-guilty-alex-murdaugh-clerk.html
 **Youth Mental Health Improved When Schools Reopened, Study Finds**\
 `With the end of school shutdowns, children’s mental health appointments fell sharply, though other factors may have contributed.`\
 https://nytimes.com/2025/12/08/health/school-closures-mental-health.html
-
-**Matt Campbell introduced at Penn State, says it's a place he could 'finish my career'**\
-`Campbell said he hoped to follow Penn State wrestling coach Cael Sanderson's example of leaving Ames for Happy Valley success.`\
-https://nytimes.com/athletic/6873691/2025/12/08/matt-campbell-penn-state-introduction/
-
-**Pups in Kimonos Receive Blessings During Japanese Holiday**\
-`Pet owners dressed their dogs in kimonos and custom belts to receive blessings at a Shinto shrine last month. This was part of a children’s festival, Shichi-Go-San, or 7-5-3, which has recently been revamped to include pets as well.`\
-https://nytimes.com/video/world/asia/100000010573775/pups-in-kimonos-receive-blessings-during-japanese-holiday.html
 
