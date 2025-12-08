@@ -1,3 +1,7 @@
+**World Cup ticket resale prices rise nearly 300 per cent**\
+`Resale prices for Colombia vs. Portugal in Miami Gardens, Fla. jumped up 514 per cent since Thursday.`\
+https://nytimes.com/athletic/6870859/2025/12/08/world-cup-2026-tickets-resale-price/
+
 **Trump Hosts Kennedy Center Honors**\
 `President Trump hosted the Kennedy Center Honors on Sunday, recognizing artists for lifetime achievements. Trump, who appointed himself chairman of the center, became the first president to host the ceremony.`\
 https://nytimes.com/video/us/100000010572558/trump-kennedy-center-honors.html
@@ -33,8 +37,4 @@ https://nytimes.com/issue/todayspaper/2025/12/08/todays-new-york-times
 **Firefighter Is Killed as Multiple Wildfires Burn in Australia**\
 `The firefighter died after being struck by a tree. Dozens of homes in two states have been lost as hot, windy conditions point to a challenging fire season.`\
 https://nytimes.com/2025/12/08/world/australia/firefighter-dies-bushfires.html
-
-**8 Matisse Works Stolen From Library in Brazil**\
-`Two armed men stole over a dozen pieces of art from a São Paulo exhibition featuring works by the French painter and other artists.`\
-https://nytimes.com/2025/12/08/world/americas/matisse-robbery-sao-paulo.html
 
