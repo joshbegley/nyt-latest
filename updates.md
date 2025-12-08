@@ -1,3 +1,11 @@
+**Congress Gears Up to Pass $900 Billion Defense Policy Bill**\
+`Lawmakers aim to send the bill, which authorizes $8 billion more than the White House requested, to the president’s desk by the end of the year.`\
+https://nytimes.com/2025/12/07/us/politics/military-bill-congress-trump.html
+
+**Yes, the Bears lost (again) to the Packers, but this wasn't the same old story**\
+`It was a familiar ending but not a dispiriting one. The Bears know they can play with the Packers. The next step is actually beating them.`\
+https://nytimes.com/athletic/6871668/2025/12/07/bears-packers-nfl-playoff-race-nfc-north/
+
 **How a final-play misfire left Caleb Williams and the Bears frustrated**\
 `The Bears were inches away from another remarkable comeback win Sunday. Instead, after a late turnover, they left Green Bay frustrated.`\
 https://nytimes.com/athletic/6871757/2025/12/07/chicago-bears-caleb-williams-final-play-misfire/

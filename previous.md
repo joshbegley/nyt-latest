@@ -1,3 +1,11 @@
+**Congress Gears Up to Pass $900 Billion Defense Policy Bill**\
+`Lawmakers aim to send the bill, which authorizes $8 billion more than the White House requested, to the president’s desk by the end of the year.`\
+https://nytimes.com/2025/12/07/us/politics/military-bill-congress-trump.html
+
+**Yes, the Bears lost (again) to the Packers, but this wasn't the same old story**\
+`It was a familiar ending but not a dispiriting one. The Bears know they can play with the Packers. The next step is actually beating them.`\
+https://nytimes.com/athletic/6871668/2025/12/07/bears-packers-nfl-playoff-race-nfc-north/
+
 **How a final-play misfire left Caleb Williams and the Bears frustrated**\
 `The Bears were inches away from another remarkable comeback win Sunday. Instead, after a late turnover, they left Green Bay frustrated.`\
 https://nytimes.com/athletic/6871757/2025/12/07/chicago-bears-caleb-williams-final-play-misfire/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6871610/2025/12/07/nfl-bad-beat-raiders-broncos-spr
 **Celtics' Jordan Walsh building defensive reputation but says he hasn't done anything yet**\
 `The Lakers acknowledged game planning around Walsh, and the third-year forward hopes he forces more teams to do the same.`\
 https://nytimes.com/athletic/6871477/2025/12/07/celtics-jordan-walsh-defensive-reputation-improving/
-
-**RJ Harvey plows over Raiders, gives Broncos another reason for stretch-run optimism**\
-`"It got to a point in the game today where I thought he had about 600 yards," teammate John Franklin-Myers said of Harvey's career day.`\
-https://nytimes.com/athletic/6871580/2025/12/07/rj-harvey-broncos-rookie-raiders/
-
-**‘It: Welcome to Derry’ Season 1, Episode 7 Recap: Inferno**\
-`The town experiences a tragedy of new proportions. The lead perpetrator this time isn’t Pennywise.`\
-https://nytimes.com/2025/12/07/arts/television/it-welcome-to-derry-recap-season-1-episode-7.html
 
