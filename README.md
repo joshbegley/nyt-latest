@@ -1,3 +1,7 @@
+**Jeff Kent elected to the Hall of Fame by the Contemporary Baseball Era Committee**\
+`Kent was one of the best-hitting second basemen in MLB history. He is the only person elected off the Contemporary Baseball Era ballot.`\
+https://nytimes.com/athletic/6871232/2025/12/07/jeff-kent-hall-of-fame-contemporary-baseball-era-committee/
+
 **Liam Coen's Jaguars are playing with an edge and are in control in the AFC South**\
 `The Jaguars may have been overlooked most of this season, but Coen is just OK with that as his team moved into first place.`\
 https://nytimes.com/athletic/6871123/2025/12/07/jaguars-liam-coeh-afc-south-playoffs-colts/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6870957/2025/12/07/ohio-state-playoff-bracket-cotto
 **Hundreds Rally for Boy, 6, Who Was Separated From His Father by ICE**\
 `“Taking children from their families is not normal,” a speaker told the crowd in Queens, where Yuanxin Zheng attended school until being detained.`\
 https://nytimes.com/2025/12/07/nyregion/queens-migrant-boy-detained-rally.html
-
-**How did Tulane and James Madison end up in the College Football Playoff?**\
-`Thanks to an ACC tiebreaker, James Madison earned a bid to the College Football Playoff.`\
-https://nytimes.com/athletic/6870381/2025/12/07/tulane-james-madison-college-football-playoff-group-of-five/
 
