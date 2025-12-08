@@ -1,3 +1,15 @@
+**Vanderbilt to savor bowl game after missing CFP: 'We love playing football'**\
+`Vanderbilt coach Clark Lea explained why the Commodores will play in the ReliaQuest Bowl against Iowa after missing out on the CFP.`\
+https://nytimes.com/athletic/6873483/2025/12/08/vanderbilt-notre-dame-bowl-cfp/
+
+**The Second ‘China Shock’**\
+`Chinese exports are flooding the developing world, and the social consequences are bound to be profound.`\
+https://nytimes.com/2025/12/08/world/china-trade-asia-gaza-thailand-cambodia.html
+
+**John Harbaugh critiques 'clear as mud' catch rules after two reversed calls in loss to Steelers**\
+`"They are very hard to understand how they got overturned, but they did and that's where it stands," Harbaugh said of the two key reversals.`\
+https://nytimes.com/athletic/6873531/2025/12/08/harbaugh-comments-ravens-steelers-officiating-nfl/
+
 **Slot has 'no clue' if Salah will play for Liverpool again**\
 `"Usually I’m calm and I’m polite but that doesn’t mean I am weak," Slot said on his handling of the situation.`\
 https://nytimes.com/athletic/6873682/2025/12/08/mohamed-salah-arne-slot-liverpool-future/
@@ -17,16 +29,4 @@ https://nytimes.com/athletic/6873691/2025/12/08/matt-campbell-penn-state-introdu
 **Pups in Kimonos Receive Blessings During Japanese Holiday**\
 `Pet owners dressed their dogs in kimonos and custom belts to receive blessings at a Shinto shrine last month. This was part of a children’s festival, Shichi-Go-San, or 7-5-3, which has recently been revamped to include pets as well.`\
 https://nytimes.com/video/world/asia/100000010573775/pups-in-kimonos-receive-blessings-during-japanese-holiday.html
-
-**Magic's Franz Wagner avoids major injury, has high-ankle sprain**\
-`Orlando star, who is averaging 22.7 points and plays active defense, suffered frightening-looking injury in New York.`\
-https://nytimes.com/athletic/6871189/2025/12/08/franz-wagner-orlando-magic-injury-update/
-
-**Person of interest in November shooting of Jets CB Kris Boyd in custody**\
-`The NYPD did not provide any other information about the person or where they were found.`\
-https://nytimes.com/athletic/6873458/2025/12/08/kris-boyd-jets-shooting-person-of-interest-custody-nypd/
-
-**Bengals waive receiver Jermaine Burton, a 2024 third-round pick**\
-`Burton was suspended for Sunday's game in Buffalo and hasn't played in a game this season.`\
-https://nytimes.com/athletic/6873632/2025/12/08/bengals-release-jermaine-burton/
 
