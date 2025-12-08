@@ -1,3 +1,5 @@
+
+
 **Raiders QB Geno Smith exits game with shoulder injury**\
 `Backup quarterback and 2022 first-round pick Kenny Pickett replaced Smith.`\
 https://nytimes.com/athletic/6871041/2025/12/07/geno-smith-raiders-injury/
