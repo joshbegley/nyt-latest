@@ -1,3 +1,7 @@
+**Who are the lawyers arguing the F.T.C. case?**\
+`By Abbie VanSickle`\
+https://nytimes.com/live/2025/12/08/us/trump-supreme-court-presidential-power/lawyers-ftc-supreme-court
+
 **At the Kennedy Center Honors, Little Glitz and One Striking Accessory**\
 `Melania Trump went minimal, Gloria Gaynor dressed to shine, but the star of the night was the president.`\
 https://nytimes.com/2025/12/08/style/melania-trump-kennedy-center-honors-style.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/12/08/us/trump-supreme-court-presidential-power/th
 **Instagram and Facebook Users in Europe Get Option of Sharing Less Data**\
 `The European Commission said Meta, which owns both platforms, is giving users the option of sharing less data in exchange for less personalized ads.`\
 https://nytimes.com/2025/12/08/business/instagram-facebook-eu-data.html
-
-**Map: 7.6-Magnitude Earthquake Near Japan Prompts Tsunami Alert**\
-`View the location of the quake’s epicenter and shake area.`\
-https://nytimes.com/interactive/2025/12/08/world/earthquake-japan-tsunami.html
 
