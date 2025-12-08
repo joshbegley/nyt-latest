@@ -1,10 +1,14 @@
+**Thai Jets Bomb Cambodia Amid Deadly Border Dispute**\
+`Residents near the Thai-Cambodian border fled as new hostilities left several people dead. The two countries accused each other of firing first, challenging a cease-fire agreement that has been in place since July.`\
+https://nytimes.com/video/world/asia/100000010572865/thai-jets-bomb-cambodia-amid-deadly-border-dispute.html
+
 **These Independent Agencies Could Be Affected by a Supreme Court Case**\
 `Court filings identify more than two-dozen quasi-independent boards and commissions that could be affected by a Supreme Court ruling in President Trump’s favor.`\
 https://nytimes.com/2025/12/08/us/politics/agencies-independent-boards.html
 
 **Paramount Makes Hostile Bid for Warner Bros. Discovery**\
 `The offer to shareholders comes days after Warner Bros. agreed to sell its streaming and studio business to Netflix.`\
-https://nytimes.com/2025/12/08/business/paramount-warner-bros-discovery-netflx.html
+https://nytimes.com/2025/12/08/business/paramount-warner-bros-discovery-netflix.html
 
 **Colin Allred Drops Out of Democratic Primary for U.S. Senate in Texas**\
 `His departure came as Representative Jasmine Crockett, a combative rising star in the party, appeared likely to announce her own Senate run soon.`\
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/12/08/us/trump-supreme-court-presidential-power
 **Inside Real Madrid: A dramatic defeat puts Xabi Alonso's position in serious danger**\
 `Sunday night's 2-0 home defeat by Celta Vigo seriously increased the pressure on the 44-year-old manager`\
 https://nytimes.com/athletic/6872367/2025/12/08/inside-real-madrid-xabi-alonso-celta-la-liga-defeat/
-
-**Man pleads guilty to stalking Liverpool's Marie Hobinger**\
-`Mangal Dalal will be sentenced on January 20 at Westminster Magistrates' Court.`\
-https://nytimes.com/athletic/6872392/2025/12/08/marie-hobinger-liverpool-stalker/
 
