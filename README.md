@@ -1,40 +1,40 @@
+**The stats players care about – and the dangers of data misinterpretation**\
+`Data is playing an even bigger role in how players improve and negotiate their contracts - so which numbers matter to them?`\
+https://nytimes.com/athletic/6826353/2025/12/08/footballers-data-goals-assists-most-important/
+
+**Carlsson’s Ducks win this round vs. Bedard’s Blackhawks in burgeoning rivalry**\
+`Chicago won the first two matchups of the season, but Anaheim hit back with a blistering rout to end the Blackhawks' road trip with a bang.`\
+https://nytimes.com/athletic/6871950/2025/12/08/blackhawks-ducks-bedard-carlsson-celebrini-blashill/
+
+**NFL playoff picture, Week 14: Packers boot Bears from atop NFC; Broncos keep pace with Pats**\
+`The AFC picture is clearing up, as the Steelers and Jaguars scored big division wins, while the Texans grabbed hold of a wild-card spot.`\
+https://nytimes.com/athletic/6855420/2025/12/08/nfl-playoff-picture-week-14-packers-bears-broncos-patriots/
+
+**No Corrections: Dec. 8, 2025**\
+`No corrections  appeared in print on Monday, Dec. 8, 2025.`\
+https://nytimes.com/2025/12/08/pageoneplus/no-corrections-dec-8-2025.html
+
+**United Nations Cuts Its 2026 Emergency Aid Budget in Half**\
+`Huge reductions in foreign aid by the United States and Europe have led the U.N.’s emergency relief coordinator to slash its fund-raising targets for next year.`\
+https://nytimes.com/2025/12/08/world/united-nations-humanitarian-aid-cuts.html
+
+**Quote of the Day: Teenagers Question Australia’s Social Media Ban**\
+`Quotation of the Day for Monday, December 8, 2025.`\
+https://nytimes.com/2025/12/08/pageoneplus/quote-of-the-day-teenagers-question-australias-social-media-ban.html
+
+**Dogs in Kimonos: Japan Reinvents a Children’s Holiday for Pets**\
+`A traditional Japanese festival is being adapted for poodles and Pomeranians, amid a booming pet industry and a dearth of children.`\
+https://nytimes.com/2025/12/08/world/asia/dogs-in-kimonos-japan-reinvents-a-childrens-holiday-for-pets.html
+
+**He Was a Russian Activist in Exile. His Own Wife Accused Him of Spying.**\
+`Poland has charged a little-known Russian opposition figure with espionage and participating in a bomb plot. His friends are perplexed.`\
+https://nytimes.com/2025/12/08/world/europe/russia-spy-poland.html
+
+**Connections: Sports Edition Coach: Hints for Dec. 8, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6871690/2025/12/08/connections-sports-edition-hints-for-dec-8-2025/
+
 **Rangers frustrated by officiating in overtime loss: 'It stings now'**\
 `Mika Zibanejad, J.T. Miller and coach Mike Sullivan were frustrated with late calls: "Zero power plays and you don't call that?"`\
 https://nytimes.com/athletic/6871929/2025/12/07/rangers-officiating-power-play-golden-knights/
-
-**How Keisean Nixon saved the day to send Packers over Bears into first place**\
-`Nixon's first interception of the season came when it mattered most, but the guy he ended up guarding wasn't even his man to start the play.`\
-https://nytimes.com/athletic/6871933/2025/12/07/keisean-nixon-interception-packers-bears/
-
-**Blue Jackets can't solve Washington's Logan Thompson, suffer first shutout loss**\
-`Jet Greaves returned to the Columbus net and the Blue Jackets looked much more structured, but couldn't get the puck in the net.`\
-https://nytimes.com/athletic/6871700/2025/12/07/blue-jackets-thompson-greaves-capitals/
-
-**China’s Weak Currency Is Powering Its Exports and Drawing Criticism**\
-`China’s renminbi is lagging the currencies of key trading partners, making Chinese goods and services cheap and helping to drive exports.`\
-https://nytimes.com/2025/12/07/business/china-rmb-currency.html
-
-**China’s Trade Surplus Climbs Past $1 Trillion for First Time**\
-`President Trump’s tariffs weren’t enough to hold back the global export flood by China, which pushed past last year’s record in just 11 months.`\
-https://nytimes.com/2025/12/07/business/china-trade-surplus.html
-
-**Congress Gears Up to Pass $900 Billion Defense Policy Bill**\
-`Lawmakers aim to send the bill, which authorizes $8 billion more than the White House requested, to the president’s desk by the end of the year.`\
-https://nytimes.com/2025/12/07/us/politics/military-bill-congress-trump.html
-
-**Yes, the Bears lost (again) to the Packers, but this wasn't the same old story**\
-`It was a familiar ending but not a dispiriting one. The Bears know they can play with the Packers. The next step is actually beating them.`\
-https://nytimes.com/athletic/6871668/2025/12/07/bears-packers-nfl-playoff-race-nfc-north/
-
-**How a final-play misfire left Caleb Williams and the Bears frustrated**\
-`The Bears were inches away from another remarkable comeback win Sunday. Instead, after a late turnover, they left Green Bay frustrated.`\
-https://nytimes.com/athletic/6871757/2025/12/07/chicago-bears-caleb-williams-final-play-misfire/
-
-**Another Cardinals loss, an obvious question: What's it like being a fan?**\
-`The Cardinals this season appeared positioned for a postseason run. Instead, they have bottomed out, testing the loyalty of fans.`\
-https://nytimes.com/athletic/6871397/2025/12/07/arizona-cardinals-loss-los-angeles-rams-fans/
-
-**Another devastating day in Duval County: If Daniel Jones is done, Colts probably are, too**\
-`It's not just the Colts' 2025 season that's in peril. Their franchise's future is, too. `\
-https://nytimes.com/athletic/6871209/2025/12/07/colts-daniel-jones-achilles-duval-county/
 
