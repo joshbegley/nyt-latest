@@ -1,3 +1,11 @@
+**Magic's Desmond Bane hit with $35K fine after pelting OG Anunoby with ball**\
+`Bane corralled a loose ball and fired it at Anunoby, who had fallen out of bounds. The NBA called the play unsportsmanlike.`\
+https://nytimes.com/athletic/6873811/2025/12/08/desmond-bane-og-anunoby-fined-nba/
+
+**A fan's guide to following Lionel Messi, Argentina at the 2026 World Cup**\
+`From tickets to travel and accommodations, here’s everything you need to know to follow Messi and Argentina at the 2026 World Cup.`\
+https://nytimes.com/athletic/6873507/2025/12/08/fan-guide-messi-argentina-world-cup/
+
 **Trump Clears Sale of More Powerful Nvidia A.I. Chips to China**\
 `Approval for the H200 chip followed months of haggling between tech industry backers and defense hawks.`\
 https://nytimes.com/2025/12/08/business/trump-nvidia-chips-china.html
@@ -7,7 +15,7 @@ https://nytimes.com/2025/12/08/business/trump-nvidia-chips-china.html
 https://nytimes.com/video/dining/100000010367010/spicy-peanut-and-pumpkin-soup.html
 
 **Jimmy Kimmel’s Show Is Extended for Another Year**\
-`The show became a flashpoint about free speech in the country after it was temporarily suspended this year.`\
+`“Jimmy Kimmel Live!” became a flashpoint about free speech in the country after it was temporarily suspended this year.`\
 https://nytimes.com/2025/12/08/business/media/jimmy-kimmel-extension-abc.html
 
 **IIHF confirms that Olympic hockey rinks will be shorter than typical NHL sheet**\
@@ -25,12 +33,4 @@ https://nytimes.com/2025/12/08/world/europe/russia-soldiers-sentence-murder-texa
 **The Briefing: Wolves 1 Manchester United 4 - Fernandes' double and AFCON-bound players impress**\
 `Carl Anka analyses the main talking points from Manchester United's victory at Molineux`\
 https://nytimes.com/athletic/6867158/2025/12/08/wolves-manchester-united-analysis-premier-league/
-
-**After 162-game sprint in 2025, Reds will prioritize rest for Elly De La Cruz**\
-`De La Cruz not only played in 162 games last season, he started in 161 of them.`\
-https://nytimes.com/athletic/6873807/2025/12/08/cincinnati-reds-elly-de-la-cruz-2026-rest/
-
-**Bengals' Trey Hendrickson opts for surgery, likely to end season**\
-`Hendrickson should be fully healthy by the time he reaches free agency in March.`\
-https://nytimes.com/athletic/6873762/2025/12/08/trey-hendrickson-core-muscle-surgery-bengals/
 

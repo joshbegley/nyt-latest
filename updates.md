@@ -1,3 +1,15 @@
+**Magic's Desmond Bane hit with $35K fine after pelting OG Anunoby with ball**\
+`Bane corralled a loose ball and fired it at Anunoby, who had fallen out of bounds. The NBA called the play unsportsmanlike.`\
+https://nytimes.com/athletic/6873811/2025/12/08/desmond-bane-og-anunoby-fined-nba/
+
+**A fan's guide to following Lionel Messi, Argentina at the 2026 World Cup**\
+`From tickets to travel and accommodations, here’s everything you need to know to follow Messi and Argentina at the 2026 World Cup.`\
+https://nytimes.com/athletic/6873507/2025/12/08/fan-guide-messi-argentina-world-cup/
+
+**Jimmy Kimmel’s Show Is Extended for Another Year**\
+`“Jimmy Kimmel Live!” became a flashpoint about free speech in the country after it was temporarily suspended this year.`\
+https://nytimes.com/2025/12/08/business/media/jimmy-kimmel-extension-abc.html
+
 **Trump Clears Sale of More Powerful Nvidia A.I. Chips to China**\
 `Approval for the H200 chip followed months of haggling between tech industry backers and defense hawks.`\
 https://nytimes.com/2025/12/08/business/trump-nvidia-chips-china.html
