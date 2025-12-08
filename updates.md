@@ -1,3 +1,7 @@
+**Notre Dame AD says ACC did 'permanent damage' to relationship with school**\
+`“We didn’t appreciate the fact that we were singled out repeatedly and compared to Miami,” Bevacqua said.`\
+https://nytimes.com/athletic/6873919/2025/12/08/notre-dame-pete-bevacqua-acc-relationship/
+
 **Magic's Desmond Bane hit with $35K fine after pelting OG Anunoby with ball**\
 `Bane corralled a loose ball and fired it at Anunoby, who had fallen out of bounds. The NBA called the play unsportsmanlike.`\
 https://nytimes.com/athletic/6873811/2025/12/08/desmond-bane-og-anunoby-fined-nba/
