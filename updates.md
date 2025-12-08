@@ -1,3 +1,7 @@
+**Trump Stands in the Middle as Netflix and Paramount Vie for a Megadeal**\
+`The president has shattered norms by pledging to “be involved” in the regulatory fate of a transaction that could reshape the news and entertainment industries.`\
+https://nytimes.com/2025/12/08/business/media/trump-netflix-paramount-deal.html
+
 **Regardless of buyout, Angels don't expect Anthony Rendon to play in 2026**\
 `In the time since singing his mega-deal ahead of the 2020 season, Rendon has played in just 257 games, including missing all of last season.`\
 https://nytimes.com/athletic/6873151/2025/12/08/los-angeles-angels-anthony-rendon-future-talks/
