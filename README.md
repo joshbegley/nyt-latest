@@ -1,3 +1,7 @@
+**Trump Backtracks on Releasing Video of Boat Strike**\
+`The president said he would defer to his defense secretary, Pete Hegseth, on whether to release a video showing a follow-up attack that killed survivors of a Sept. 2 strike on an alleged drug smuggling boat.`\
+https://nytimes.com/2025/12/08/us/politics/trump-boat-strike-video-hegseth.html
+
 **Supreme Court Appears Poised to Let Trump Fire Independent Officials**\
 `The Supreme Court signaled that it would expand the president’s powers by making it easier for President Trump to fire independent government officials.`\
 https://nytimes.com/video/us/politics/100000010573141/trump-uncontrolled-power-fire-officials.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6873531/2025/12/08/harbaugh-comments-ravens-steeler
 **Slot has 'no clue' if Salah will play for Liverpool again**\
 `"Usually I’m calm and I’m polite but that doesn’t mean I am weak," Slot said on his handling of the situation.`\
 https://nytimes.com/athletic/6873682/2025/12/08/mohamed-salah-arne-slot-liverpool-future/
-
-**Clerk in Murdaugh Trial Is Sentenced to Probation for Perjury and Other Charges**\
-`Becky Hill helped manage the 2023 trial in which Alex Murdaugh was convicted of murdering his wife and younger son.`\
-https://nytimes.com/2025/12/08/us/becky-hill-guilty-alex-murdaugh-clerk.html
 
