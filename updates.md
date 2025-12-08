@@ -1,3 +1,19 @@
+**A.I. Videos Have Flooded Social Media. No One Was Ready.**\
+`Apps like OpenAI’s Sora are fooling millions of users into thinking A.I. videos are real, even when they include warning labels.`\
+https://nytimes.com/2025/12/08/business/ai-slop-sora-social-media.html
+
+**Michael Jordan vs. NASCAR trial resumes with economist testifying on league's tactics**\
+`NASCAR has exclusivity deals for its tracks, barring them from hosting a potential competitor. That practice was part of Monday's focus.`\
+https://nytimes.com/athletic/6873317/2025/12/08/michael-jordan-nascar-trial-monopoly-economist-accountant-steve-phelps/
+
+**AP men's basketball Top 25: Arizona new No. 1 after Purdue loss, Kentucky falls out of poll**\
+`Iowa State rose to No. 4 and Purdue dropped to No. 6 after the Cyclones' win over the Boilermakers.`\
+https://nytimes.com/athletic/6873158/2025/12/08/ap-mens-basketball-top-25-arizona-iowa-state-kentucky/
+
+**Submit your Ohio State football mailbag questions here**\
+`What's on your mind about Ohio State as it heads to the Playoff coming off a loss to Indiana?`\
+https://nytimes.com/athletic/6873335/2025/12/08/ohio-state-football-mailbag-questions-playoff/
+
 **Alina Habba, a Trump Loyalist, Resigns as New Jersey’s Top Prosecutor**\
 `Ms. Habba resigned on Monday, after a federal appeals court last week found she had been serving as U.S. attorney unlawfully.`\
 https://nytimes.com/2025/12/08/nyregion/alina-habba-nj-us-attorney-resigns.html
