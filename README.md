@@ -6,8 +6,8 @@ https://nytimes.com/athletic/6871186/2025/12/07/commanders-blowout-loss-vikings/
 `Mike Macdonald called Rashid Shaheed's TD, while Nick Emmanwori and Devon Witherspoon seemed to know exactly where the ball was going.`\
 https://nytimes.com/athletic/6871120/2025/12/07/seahawks-falcons-nick-emmanwori-devon-witherspoon/
 
-**For a program built on tradition, Notre Dame’s bowl opt-out rings hollow**\
-`Notre Dame is a program that prides itself in tradition, but it crossed a new line by opting out of a bowl game.`\
+**Vannini: Notre Dame's bowl opt-out crosses a new line in college football**\
+`Notre Dame may be upset, but the point of playing football is to play football.`\
 https://nytimes.com/athletic/6871180/2025/12/07/notre-dame-bowl-college-football/
 
 **Jeff Kent elected to the Hall of Fame by the Contemporary Baseball Era Committee**\
