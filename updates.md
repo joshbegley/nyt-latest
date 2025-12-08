@@ -1,3 +1,7 @@
+**The Sixers need to figure out their third-quarter problems**\
+`"This is happening time and time again," Andre Drummond said of Philly's third-quarter woes. `\
+https://nytimes.com/athletic/6871969/2025/12/08/philadelphia-76ers-third-quarters-lakers-loss/
+
 **Salah expected to be left out of Liverpool squad for Inter match**\
 `Salah said on Saturday he felt “thrown under the bus” by Liverpool and revealed his relationship with head coach Arne Slot has broken down.`\
 https://nytimes.com/athletic/6872322/2025/12/08/salah-liverpool-future/
