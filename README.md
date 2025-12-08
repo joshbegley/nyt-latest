@@ -1,3 +1,7 @@
+**How to watch Kings vs. Pacers: Time, TV, streaming**\
+`Find out how to watch the Sacramento Kings play the Indiana Pacers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6873039/2025/12/08/kings-vs-pacers-stream-how-to-watch-dec-8/
+
 **Planes, Trade and Nuclear Energy: Supreme Court Weighs Fate of Independent Regulators**\
 `The court heard arguments Monday on a case that could determine the independence of agencies like the National Transportation Safety Board and the Nuclear Regulatory Commission.`\
 https://nytimes.com/2025/12/08/business/supreme-court-independent-regulators.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/08/dining/i-see-a-yewande-komolafe-recipe-i-immediat
 **Do You Know Where in the World These Winter Scenes Are Set?**\
 `Many books have memorable moments or major plot points set in locations with chilly winter weather. Try this short quiz to see how many you remember from recent novels.`\
 https://nytimes.com/interactive/2025/12/08/books/review/winter-novels-quiz.html
-
-**NBA Power Rankings: It's time to hand out first-quarter grades**\
-`Every team has played at least 20 games ... some far better than others.`\
-https://nytimes.com/athletic/6872773/2025/12/08/nba-power-rankings-lakers-thunder-celtics-grades/
 
