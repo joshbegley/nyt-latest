@@ -1,3 +1,15 @@
+**Vanderbilt to savor bowl game after missing CFP: 'We love playing football'**\
+`Vanderbilt coach Clark Lea explained why the Commodores will play in the ReliaQuest Bowl against Iowa after missing out on the CFP.`\
+https://nytimes.com/athletic/6873483/2025/12/08/vanderbilt-notre-dame-bowl-cfp/
+
+**The Second ‘China Shock’**\
+`Chinese exports are flooding the developing world, and the social consequences are bound to be profound.`\
+https://nytimes.com/2025/12/08/world/china-trade-asia-gaza-thailand-cambodia.html
+
+**John Harbaugh critiques 'clear as mud' catch rules after two reversed calls in loss to Steelers**\
+`"They are very hard to understand how they got overturned, but they did and that's where it stands," Harbaugh said of the two key reversals.`\
+https://nytimes.com/athletic/6873531/2025/12/08/harbaugh-comments-ravens-steelers-officiating-nfl/
+
 **Slot has 'no clue' if Salah will play for Liverpool again**\
 `"Usually I’m calm and I’m polite but that doesn’t mean I am weak," Slot said on his handling of the situation.`\
 https://nytimes.com/athletic/6873682/2025/12/08/mohamed-salah-arne-slot-liverpool-future/

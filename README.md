@@ -1,3 +1,7 @@
+**Why Chiefs' fourth-and-1 play didn't work — and what Andy Reid thinks about it now**\
+`The Chiefs had everything they could've wanted on a late fourth-and-1 play call. Here's why it still went wrong.`\
+https://nytimes.com/athletic/6873362/2025/12/08/chiefs-fourth-down-decision-andy-reid/
+
 **Vanderbilt to savor bowl game after missing CFP: 'We love playing football'**\
 `Vanderbilt coach Clark Lea explained why the Commodores will play in the ReliaQuest Bowl against Iowa after missing out on the CFP.`\
 https://nytimes.com/athletic/6873483/2025/12/08/vanderbilt-notre-dame-bowl-cfp/
