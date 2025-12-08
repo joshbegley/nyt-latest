@@ -1,3 +1,15 @@
+**Celtics' Jordan Walsh building defensive reputation but says he hasn't done anything yet**\
+`The Lakers acknowledged game planning around Walsh, and the third-year forward hopes he forces more teams to do the same.`\
+https://nytimes.com/athletic/6871477/2025/12/07/celtics-jordan-walsh-defensive-reputation-improving/
+
+**RJ Harvey plows over Raiders, gives Broncos another reason for stretch-run optimism**\
+`"It got to a point in the game today where I thought he had about 600 yards," teammate John Franklin-Myers said of Harvey's career day.`\
+https://nytimes.com/athletic/6871580/2025/12/07/rj-harvey-broncos-rookie-raiders/
+
+**‘It: Welcome to Derry’ Season 1, Episode 7 Recap: Inferno**\
+`The town experiences a tragedy of new proportions. The lead perpetrator this time isn’t Pennywise.`\
+https://nytimes.com/2025/12/07/arts/television/it-welcome-to-derry-recap-season-1-episode-7.html
+
 **Mike Tomlin is in control of his future, and his Steelers just took control of the AFC North**\
 `With growing calls for the head coach's job, the Steelers went to Baltimore and delivered one of their biggest wins in years.`\
 https://nytimes.com/athletic/6871441/2025/12/07/mike-tomlin-job-security-pittsburgh-steelers-ravens-win/
