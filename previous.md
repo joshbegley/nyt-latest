@@ -1,3 +1,19 @@
+**Who Is Rebecca Slaughter?**\
+`Ms. Slaughter, a Democratic member of the Federal Trade Commission, sued President Trump after he fired her because she did not align with his agenda.`\
+https://nytimes.com/2025/12/08/us/politics/rebecca-slaughter.html
+
+**Here’s the latest.**\
+`By Ann E. Marimow`\
+https://nytimes.com/live/2025/12/08/us/trump-supreme-court-presidential-power/heres-the-latest
+
+**Live Updates: Supreme Court to Consider Trump’s Power to Fire Independent Officials**\
+`A Trump victory could expand presidential power and affect over two dozen agencies beyond the Federal Trade Commission.`\
+https://nytimes.com/live/2025/12/08/us/trump-supreme-court-presidential-power
+
+**Inside Real Madrid: A dramatic defeat puts Xabi Alonso's position in serious danger**\
+`Sunday night's 2-0 home defeat by Celta Vigo seriously increased the pressure on the 44-year-old manager`\
+https://nytimes.com/athletic/6872367/2025/12/08/inside-real-madrid-xabi-alonso-celta-la-liga-defeat/
+
 **Man pleads guilty to stalking Liverpool's Marie Hobinger**\
 `Mangal Dalal will be sentenced on January 20 at Westminster Magistrates' Court.`\
 https://nytimes.com/athletic/6872392/2025/12/08/marie-hobinger-liverpool-stalker/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/12/08/movies/golden-globes-nominees-2026-list.html
 **Madrid fear Militao four-month layoff with hamstring injury**\
 `The centre-back was substituted in the first half of what was Madrid's first home league loss of the season on Sunday.`\
 https://nytimes.com/athletic/6872416/2025/12/08/militao-injury-real-madrid-news/
-
-**Where did the love — and the wins — go for the crumbling Chicago Bulls?**\
-`The Bulls haven't won since Nov. 21. Coach Billy Donovan decries his team's poor attention to detail and lack of selflessness. `\
-https://nytimes.com/athletic/6872327/2025/12/08/bulls-losing-streak-billy-donovan-warriors/
-
-**Our guide to every College Football Playoff team — and how far they can go**\
-`This year's College Football Playoff field defied expectations in several ways. Here's what you need to know about the 12 teams.`\
-https://nytimes.com/athletic/6871163/2025/12/08/college-football-playoff-teams-guides-odds/
-
-**Trump Administration Live Updates: Zelensky Meets European Leaders to Discuss U.S.-Backed Peace Talks**\
-``\
-https://nytimes.com/live/2025/12/08/us/trump-news
-
-**Verstappen lost his F1 title streak but seems at peace. That should worry his rivals**\
-`Verstappen's epic comeback fell just short, but Red Bull's turnaround has the team brimming with confidence for 2026`\
-https://nytimes.com/athletic/6871867/2025/12/08/max-verstappen-f1-championship-streak/
 
