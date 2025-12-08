@@ -1,3 +1,15 @@
+**Trump Hosts Kennedy Center Honors**\
+`President Trump hosted the Kennedy Center Honors on Sunday, recognizing artists for lifetime achievements. Trump, who appointed himself chairman of the center, became the first president to host the ceremony.`\
+https://nytimes.com/video/us/100000010572558/trump-kennedy-center-honors.html
+
+**Steve Parish exclusive: Glasner's future, Palace's ambition, and why new spending rules are dangerous**\
+`Crystal Palace's long-serving chairman opens up on spending concerns, Palace's future – and his own`\
+https://nytimes.com/athletic/6861957/2025/12/08/steve-parish-oliver-glasner-future-interview/
+
+**Word of the Day: scurry**\
+`This word has appeared in 37 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/12/08/learning/word-of-the-day-scurry.html
+
 **Jonathan Kuminga explains how he feels after getting pulled out of the starting rotation**\
 `The decision to take him out of the rotation came as a surprise, given how much Kuminga has played to start the year.`\
 https://nytimes.com/athletic/6872098/2025/12/08/jonathan-kuminga-pulled-out-of-rotation-kerr/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/12/08/world/australia/firefighter-dies-bushfires.html
 **8 Matisse Works Stolen From Library in Brazil**\
 `Two armed men stole over a dozen pieces of art from a São Paulo exhibition featuring works by the French painter and other artists.`\
 https://nytimes.com/2025/12/08/world/americas/matisse-robbery-sao-paulo.html
-
-**Macaulay's unlikely journey to Man Utd - and how he fits into reshaped recruitment team**\
-`The club's new head of senior scouting has family links to United and will be expected to bolster their recruitment operation`\
-https://nytimes.com/athletic/6869318/2025/12/08/kyle-macaulay-manchester-united-recruitment/
-
-**Xavi Simons' stunning goal was his first big moment at Tottenham. Now he must kick on**\
-`Thomas Frank has never doubted Xavi Simons' quality - he expects his Spurs career to take off after his solo goal in the win over Brentford`\
-https://nytimes.com/athletic/6868511/2025/12/08/xavi-simons-tottenham-first-goal-frank/
-
-**Chelsea failed to score for the first time since the opening weekend. Why?**\
-`Chelsea had scored in 13 successive games until they went to Bournemouth and lost Liam Delap to injury`\
-https://nytimes.com/athletic/6868331/2025/12/08/chelsea-maresca-palmer-delap-failed-to-score/
 

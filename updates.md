@@ -1,3 +1,15 @@
+**Trump Hosts Kennedy Center Honors**\
+`President Trump hosted the Kennedy Center Honors on Sunday, recognizing artists for lifetime achievements. Trump, who appointed himself chairman of the center, became the first president to host the ceremony.`\
+https://nytimes.com/video/us/100000010572558/trump-kennedy-center-honors.html
+
+**Steve Parish exclusive: Glasner's future, Palace's ambition, and why new spending rules are dangerous**\
+`Crystal Palace's long-serving chairman opens up on spending concerns, Palace's future – and his own`\
+https://nytimes.com/athletic/6861957/2025/12/08/steve-parish-oliver-glasner-future-interview/
+
+**Word of the Day: scurry**\
+`This word has appeared in 37 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/12/08/learning/word-of-the-day-scurry.html
+
 **Jonathan Kuminga explains how he feels after getting pulled out of the starting rotation**\
 `The decision to take him out of the rotation came as a surprise, given how much Kuminga has played to start the year.`\
 https://nytimes.com/athletic/6872098/2025/12/08/jonathan-kuminga-pulled-out-of-rotation-kerr/
