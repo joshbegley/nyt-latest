@@ -1,3 +1,11 @@
+**Fantasy football Week 14 takeaways: Colts dealt major blow; Shedeur Sanders shines**\
+`Michael Salfino shares his thoughts on Week 14, including a downgrade for all of Indy's skill-position players with Daniel Jones likely out.`\
+https://nytimes.com/athletic/6871241/2025/12/08/fantasy-football-week-14-takeaways-colts-dealt-major-blow-shedeur-sanders-shines/
+
+**Thailand Launches Airstrikes on Cambodia in New Wave of Violence**\
+`Each side accused the other of firing first. The fighting came weeks after President Trump had cast himself as a peacemaker in the decades-old border dispute.`\
+https://nytimes.com/2025/12/08/world/asia/thailand-cambodia-f16-jets.html
+
 **‘The End of an Era,’ and 7 Other Things to Watch on TV This Week**\
 `The first two episodes of Taylor Swift’s documentary series air, and “South Park” wraps up its 28th season.`\
 https://nytimes.com/2025/12/08/arts/television/the-end-of-an-era-and-7-other-things-to-watch-on-tv-this-week.html
