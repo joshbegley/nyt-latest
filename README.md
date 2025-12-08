@@ -1,3 +1,7 @@
+**The Briefing: Wolves 1 Manchester United 4 - Fernandes' double and AFCON-bound players impress**\
+`Carl Anka analyses the main talking points from Manchester United's victory at Molineux`\
+https://nytimes.com/athletic/6867158/2025/12/08/wolves-manchester-united-analysis-premier-league/
+
 **After 162-game sprint in 2025, Reds will prioritize rest for Elly De La Cruz**\
 `De La Cruz not only played in 162 games last season, he started in 161 of them.`\
 https://nytimes.com/athletic/6873807/2025/12/08/cincinnati-reds-elly-de-la-cruz-2026-rest/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/08/us/politics/obamacare-subsidy-vote-aca.html
 **Minnesota WBB was 99.9% likely to win with 47 seconds left. It lost.**\
 `Maryland kept its undefeated season alive in the most dramatic of ways.`\
 https://nytimes.com/athletic/6873530/2025/12/08/minnesota-maryland-womens-basketball-loss/
-
-**USA star Pulisic scores twice off bench in Milan's comeback vs. Torino**\
-`Pulisic warded off an illness to score twice off the bench for AC Milan and tie for the league lead in goals`\
-https://nytimes.com/athletic/6873813/2025/12/08/christian-pulisic-goal-video-ac-milan-torino-usmnt/
 

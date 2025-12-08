@@ -1,3 +1,7 @@
+**After 162-game sprint in 2025, Reds will prioritize rest for Elly De La Cruz**\
+`De La Cruz not only played in 162 games last season, he started in 161 of them.`\
+https://nytimes.com/athletic/6873807/2025/12/08/cincinnati-reds-elly-de-la-cruz-2026-rest/
+
 **Bengals' Trey Hendrickson opts for surgery, likely to end season**\
 `Hendrickson should be fully healthy by the time he reaches free agency in March.`\
 https://nytimes.com/athletic/6873762/2025/12/08/trey-hendrickson-core-muscle-surgery-bengals/
