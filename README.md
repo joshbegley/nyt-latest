@@ -1,3 +1,11 @@
+**Jerusalem Authorities Raid UNRWA Compound and Raise Israeli Flag**\
+`Municipal officials say the action was about unpaid taxes. The U.N. relief agency for Palestinians says it is exempt from taxes and should be immune from such a raid, calling it illegal.`\
+https://nytimes.com/2025/12/08/world/middleeast/israel-jerusalem-unraw-police-raid.html
+
+**FA Cup third-round draw: Macclesfield vs. Crystal Palace, Liverpool vs. Barnsley, Wrexham vs. Nottingham Forest**\
+`Premier League leaders Arsenal will travel to Championship Portsmouth, and Chelsea will visit Charlton Athletic.`\
+https://nytimes.com/athletic/6872807/2025/12/08/fa-cup-draw-third-round/
+
 **Why are collectors paying more for sports cards with PSA's newest labels?**\
 `Same card, same grade, different grading label? It's become enough to alter the overall value on the secondary market`\
 https://nytimes.com/athletic/6873159/2025/12/08/psa-grading-labels-sports-cards-value/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6873158/2025/12/08/ap-mens-basketball-top-25-arizon
 **Submit your Ohio State football mailbag questions here**\
 `What's on your mind about Ohio State as it heads to the Playoff coming off a loss to Indiana?`\
 https://nytimes.com/athletic/6873335/2025/12/08/ohio-state-football-mailbag-questions-playoff/
-
-**Alina Habba, a Trump Loyalist, Resigns as New Jersey’s Top Prosecutor**\
-`Ms. Habba resigned on Monday, after a federal appeals court last week found she had been serving as U.S. attorney unlawfully.`\
-https://nytimes.com/2025/12/08/nyregion/alina-habba-nj-us-attorney-resigns.html
-
-**Trump Stands in the Middle as Netflix and Paramount Vie for a Megadeal**\
-`The president has shattered norms by pledging to “be involved” in the regulatory fate of a transaction that could reshape the news and entertainment industries.`\
-https://nytimes.com/2025/12/08/business/media/trump-netflix-paramount-deal.html
 
