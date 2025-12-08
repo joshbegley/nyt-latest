@@ -1,3 +1,11 @@
+**Magic's Franz Wagner avoids major injury, has high-ankle sprain**\
+`Orlando star, who is averaging 22.7 points and plays active defense, suffered frightening-looking injury in New York.`\
+https://nytimes.com/athletic/6871189/2025/12/08/franz-wagner-orlando-magic-injury-update/
+
+**Person of interest in November shooting of Jets CB Kris Boyd in custody**\
+`The NYPD did not provide any other information about the person or where they were found.`\
+https://nytimes.com/athletic/6873458/2025/12/08/kris-boyd-jets-shooting-person-of-interest-custody-nypd/
+
 **Bengals releasing receiver Jermaine Burton, a 2024 third-round pick**\
 `Burton was suspended for Sunday's game in Buffalo and hasn't played in a game this season.`\
 https://nytimes.com/athletic/6873632/2025/12/08/bengals-release-jermaine-burton/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6873426/2025/12/08/jauan-jennings-49ers-browns-tras
 **Odds and spreads for all 36 college football bowl games**\
 `It's bowl season! We have the odds for all 36 bowl games set to take place over the next few weeks.`\
 https://nytimes.com/athletic/6873236/2025/12/08/college-football-bowl-game-odds-for-all-36-games/
-
-**How to watch Kings vs. Mammoth: Time, TV, streaming**\
-`Find out how to watch the Los Angeles Kings play the Utah Mammoth, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6873609/2025/12/08/kings-vs-mammoth-stream-how-to-watch-dec-8/
-
-**How to watch Wild vs. Kraken: Time, TV, streaming**\
-`Find out how to watch the Minnesota Wild play the Seattle Kraken, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6873608/2025/12/08/wild-vs-kraken-stream-how-to-watch-dec-8/
 
