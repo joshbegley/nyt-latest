@@ -1,3 +1,11 @@
+**Mamdani Confirms He Will Leave Queens One-Bedroom for Gracie Mansion**\
+`Mayor-elect Zohran Mamdani and his wife, Rama Duwaji, will move into the official residence in Manhattan sometime after his inauguration.`\
+https://nytimes.com/2025/12/08/nyregion/zohran-mamdani-gracie-mansion-rama-duwaji.html
+
+**David Burtka’s Quest for a Good Mocktail**\
+`Actors David Burtka and Neil Patrick Harris — self-described as a “mixed sobriety couple” — want to include everyone at the party. Burtka told Wirecutter the couple’s tips to make both drinkers and non-drinkers feel celebrated`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010573242/david-burtkas-quest-for-a-good-mocktail.html
+
 **Heavy Rain and Strong Winds Could Disrupt Travel Across Ireland and Britain**\
 `Forecasters warned of wind gusts up to 90 miles per hour and more than half a month’s rainfall in less than a day`\
 https://nytimes.com/2025/12/08/weather/storm-bram-ireland-uk.html
@@ -25,12 +33,4 @@ https://nytimes.com/2025/12/08/business/japan-rare-earths-lynas.html
 **One Hundred Schoolchildren Released After Kidnapping in Nigeria**\
 `The abduction of over 260 children from a Catholic school last month was the latest in a recent spate of kidnappings in the country.`\
 https://nytimes.com/2025/12/08/world/africa/one-hundred-schoolchildren-released-after-kidnapping-in-nigeria.html
-
-**A Vegan Chopped Liver for Everyone at the Hanukkah Table**\
-`This version, especially delicious in its own way, follows in a long history of the dish, swapping in fresh green beans and walnuts for the liver.`\
-https://nytimes.com/2025/12/08/dining/vegan-chopped-liver-hanukkah.html
-
-**2028 Open Championship rescheduled for August to avoid Olympic conflict**\
-`The 2028 Open will be played from Aug. 3 to 6, and the R&A has not yet announced a venue.`\
-https://nytimes.com/athletic/6872996/2025/12/08/open-championship-august-summer-olympics-los-angeles/
 
