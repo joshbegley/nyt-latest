@@ -1,3 +1,7 @@
+**Rangers frustrated by officiating in overtime loss: 'It stings now'**\
+`Mika Zibanejad, J.T. Miller and coach Mike Sullivan were frustrated with late calls: "Zero power plays and you don't call that?"`\
+https://nytimes.com/athletic/6871929/2025/12/07/rangers-officiating-power-play-golden-knights/
+
 **How Keisean Nixon saved the day to send Packers over Bears into first place**\
 `Nixon's first interception of the season came when it mattered most, but the guy he ended up guarding wasn't even his man to start the play.`\
 https://nytimes.com/athletic/6871933/2025/12/07/keisean-nixon-interception-packers-bears/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6871397/2025/12/07/arizona-cardinals-loss-los-angel
 **Another devastating day in Duval County: If Daniel Jones is done, Colts probably are, too**\
 `It's not just the Colts' 2025 season that's in peril. Their franchise's future is, too. `\
 https://nytimes.com/athletic/6871209/2025/12/07/colts-daniel-jones-achilles-duval-county/
-
-**Behind 'Mr. Detail-Oriented' Christian Benford and surging defense, Bills' ceiling shoots sky-high**\
-`This game could be one Bills fans remember as a turning point.`\
-https://nytimes.com/athletic/6871450/2025/12/07/christian-benford-bills-cornerback-defense-nfl/
 

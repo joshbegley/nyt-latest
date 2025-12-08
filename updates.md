@@ -1,3 +1,7 @@
+**How Keisean Nixon saved the day to send Packers over Bears into first place**\
+`Nixon's first interception of the season came when it mattered most, but the guy he ended up guarding wasn't even his man to start the play.`\
+https://nytimes.com/athletic/6871933/2025/12/07/keisean-nixon-interception-packers-bears/
+
 **China’s Weak Currency Is Powering Its Exports and Drawing Criticism**\
 `China’s renminbi is lagging the currencies of key trading partners, making Chinese goods and services cheap and helping to drive exports.`\
 https://nytimes.com/2025/12/07/business/china-rmb-currency.html
