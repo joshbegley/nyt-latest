@@ -10,8 +10,8 @@ https://nytimes.com/athletic/6871308/2025/12/07/nfl-draft-2026-top-pick-raiders-
 `After losing to Pittsburgh in a battle for first place in the AFC North, Baltimore's hopes of making the playoffs are on life support. `\
 https://nytimes.com/athletic/6871280/2025/12/07/ravens-loss-steelers-controversial-calls/
 
-**On a day of Jets QBs past and present, thoughts of Fernando Mendoza as QB of the future**\
-`An injury to Tyrod Taylor forced undrafted rookie Brady Cook into the lineup for a blowout loss to the Dolphins.`\
+**On a day of Jets QBs past and present, thoughts of Fernando Mendoza as the future**\
+`New York might eventually try to figure out how to draft the Indiana Hoosiers quarterback in the 2026 NFL draft.`\
 https://nytimes.com/athletic/6871358/2025/12/07/new-york-jets-miami-dolphins-loss-fernando-mendoza-draft/
 
 **Packers move into first place in NFC North with key win over Bears: Takeaways**\
