@@ -1,3 +1,7 @@
+**Zelensky to Meet With European Leaders as Peace Talks Drag On**\
+`Ukraine’s president was expected in London to discuss with the leaders of Britain, France and Germany ways of ending the conflict against Russia. Negotiations thus far have made little progress.`\
+https://nytimes.com/2025/12/08/world/europe/zelensky-ukraine-war-peace-talks-europe-london.html
+
 **Chelsea, Spurs announce Sydney pre-season trip, Chelsea Women to face A-League XI**\
 `The men's teams of Chelsea and Tottenham will play each other outside England for the first time on August 1.`\
 https://nytimes.com/athletic/6872279/2025/12/08/chelsea-tottenham-sydney-pre-season/
