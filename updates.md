@@ -1,3 +1,11 @@
+**How to watch Falcons vs. Buccaneers: Time, TV, streaming**\
+`Find out how to watch the Atlanta Falcons play the Tampa Bay Buccaneers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6872360/2025/12/08/falcons-vs-buccaneers-stream-how-to-watch-dec-11/
+
+**A Weakened Hamas Still Dominates Gaza, Building Day by Day**\
+`A cease-fire after two years of war with Israel has allowed Hamas to tighten its grip on power again. “It’s still standing,” one Israeli official said.`\
+https://nytimes.com/2025/12/08/world/middleeast/hamas-gaza.html
+
 **Is Sleepy Donald the New ‘Sleepy Joe’?**\
 `Trump’s travails look more and more like Biden’s.`\
 https://nytimes.com/2025/12/08/opinion/trump-biden-age-affordability.html
