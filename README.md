@@ -1,3 +1,11 @@
+**How a final-play misfire left Caleb Williams and the Bears frustrated**\
+`The Bears were inches away from another remarkable comeback win Sunday. Instead, after a late turnover, they left Green Bay frustrated.`\
+https://nytimes.com/athletic/6871757/2025/12/07/chicago-bears-caleb-williams-final-play-misfire/
+
+**Another Cardinals loss, an obvious question: What's it like being a fan?**\
+`The Cardinals this season appeared positioned for a postseason run. Instead, they have bottomed out, testing the loyalty of fans.`\
+https://nytimes.com/athletic/6871397/2025/12/07/arizona-cardinals-loss-los-angeles-rams-fans/
+
 **Another devastating day in Duval County: If Daniel Jones is done, Colts probably are, too**\
 `It's not just the Colts' 2025 season that's in peril. Their franchise's future is, too. `\
 https://nytimes.com/athletic/6871209/2025/12/07/colts-daniel-jones-achilles-duval-county/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6871580/2025/12/07/rj-harvey-broncos-rookie-raiders
 **‘It: Welcome to Derry’ Season 1, Episode 7 Recap: Inferno**\
 `The town experiences a tragedy of new proportions. The lead perpetrator this time isn’t Pennywise.`\
 https://nytimes.com/2025/12/07/arts/television/it-welcome-to-derry-recap-season-1-episode-7.html
-
-**Mike Tomlin is in control of his future, and his Steelers just took control of the AFC North**\
-`With growing calls for the head coach's job, the Steelers went to Baltimore and delivered one of their biggest wins in years.`\
-https://nytimes.com/athletic/6871441/2025/12/07/mike-tomlin-job-security-pittsburgh-steelers-ravens-win/
-
-**Packers Intercept Caleb Williams to Seal Rivalry Win Over Bears**\
-`The Green Bay Packers hung on to beat the Chicago Bears, 28-21, and moved into first place in the N.F.C. North.`\
-https://nytimes.com/video/the-athletic/100000010572378/packers-intercept-caleb-williams-to-seal-rivalry-win-over-bears.html
 
