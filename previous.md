@@ -1,3 +1,7 @@
+**Joe Burrow, Bengals tantalize vs. Bills, but still prove just an irrelevant footnote**\
+`Cincinnati held the lead for most of the game, but in the end, Sunday saw another late collapse to cripple any playoff hopes.`\
+https://nytimes.com/athletic/6871409/2025/12/07/joe-burrow-bengals-tantalizing-loss-bills/
+
 **NFL's race to the No. 1 pick: Raiders take the lead after Titans beat Browns**\
 `The Raiders haven't owned the No. 1 pick since 2007 but are in position after the results of Week 14.`\
 https://nytimes.com/athletic/6871308/2025/12/07/nfl-draft-2026-top-pick-raiders-titans-jets-browns/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6871143/2025/12/07/vikings-jj-mccarthy-career-best-
 **Matthew Stafford, Rams' offense roll against Cardinals: Takeaways**\
 `Los Angeles rushed for nearly 250 yards in a dominant win against the Cardinals.`\
 https://nytimes.com/athletic/6871116/2025/12/07/rams-cardinals-score-result-takeaways-nfl/
-
-**Broncos-Raiders takeaways: Marvin Mims Jr. TD return sparks Broncos win**\
-`The Broncos moved to 11-2, maintaining their standing atop the AFC alongside the New England Patriots.`\
-https://nytimes.com/athletic/6871088/2025/12/07/broncos-raiders-score-result-takeaways-nfl/
 
