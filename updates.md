@@ -1,3 +1,15 @@
+**Mike Tomlin is in control of his future, and his Steelers just took control of the AFC North**\
+`With growing calls for the head coach's job, the Steelers went to Baltimore and delivered one of their biggest wins in years.`\
+https://nytimes.com/athletic/6871441/2025/12/07/mike-tomlin-job-security-pittsburgh-steelers-ravens-win/
+
+**Packers Intercept Caleb Williams to Seal Rivalry Win Over Bears**\
+`The Green Bay Packers hung on to beat the Chicago Bears, 28-21, and moved into first place in the N.F.C. North.`\
+https://nytimes.com/video/the-athletic/100000010572378/packers-intercept-caleb-williams-to-seal-rivalry-win-over-bears.html
+
+**U.S. Deports Second Planeload of Iranians, Officials Say**\
+`The plane, carrying about 50 Iranians and other deportees, took off from Arizona on Sunday, under a deal the Trump administration reached with Iran two months ago.`\
+https://nytimes.com/2025/12/07/world/middleeast/us-deports-second-planeload-iranians.html
+
 **U.S. Deports Second Planeload of Iranians, Officials Say**\
 `In the past, the United States deported Iranians individually on commercial planes. But two months ago, the Trump administration reached a deal with Tehran to coordinate the return of Iranian citizens.`\
 https://nytimes.com/2025/12/07/world/middleeast/us-deports-second-planeload-iranians.html
