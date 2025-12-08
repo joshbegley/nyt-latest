@@ -1,3 +1,11 @@
+**How a final-play misfire left Caleb Williams and the Bears frustrated**\
+`The Bears were inches away from another remarkable comeback win Sunday. Instead, after a late turnover, they left Green Bay frustrated.`\
+https://nytimes.com/athletic/6871757/2025/12/07/chicago-bears-caleb-williams-final-play-misfire/
+
+**Another Cardinals loss, an obvious question: What's it like being a fan?**\
+`The Cardinals this season appeared positioned for a postseason run. Instead, they have bottomed out, testing the loyalty of fans.`\
+https://nytimes.com/athletic/6871397/2025/12/07/arizona-cardinals-loss-los-angeles-rams-fans/
+
 **Another devastating day in Duval County: If Daniel Jones is done, Colts probably are, too**\
 `It's not just the Colts' 2025 season that's in peril. Their franchise's future is, too. `\
 https://nytimes.com/athletic/6871209/2025/12/07/colts-daniel-jones-achilles-duval-county/
