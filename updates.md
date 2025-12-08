@@ -1,3 +1,7 @@
+**Packers move into first place in NFC North with key win over Bears: Takeaways**\
+`After beating the Bears on Sunday, the Packers now leapfrog Chicago to sit atop the NFC North entering Week 15.`\
+https://nytimes.com/athletic/6871016/2025/12/07/bears-packers-score-result-takeaways-nfl/
+
 **Darryn Peterson returns, offers Kansas hope there's much more still to come**\
 `Peterson's injury had raised eyebrows, but coach Bill Self says the freshman was dedicated in his recovery.`\
 https://nytimes.com/athletic/6871098/2025/12/07/kansas-darryn-peterson-returns-from-hamstring-issue-to-help-down-missouri/
