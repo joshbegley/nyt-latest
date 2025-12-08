@@ -1,3 +1,15 @@
+**Josh Allen wrestles Bills' win from Bengals, showing anything's possible when he's that guy**\
+`Allen played his brand of football that shows his ability to dominate in important moments.`\
+https://nytimes.com/athletic/6871105/2025/12/07/josh-allen-bills-win-breakdown/
+
+**Darryn Peterson returns, offers Kansas hope there's much more still to come.**\
+`Peterson's injury had raised eyebrows, but coach Bill Self says the freshman was dedicated in his recovery.`\
+https://nytimes.com/athletic/6871098/2025/12/07/kansas-darryn-peterson-returns-from-hamstring-issue-to-help-down-missouri/
+
+**Rams-Cardinals takeaways: Matthew Stafford, Los Angeles roll in Arizona**\
+`Los Angeles rushed for nearly 250 yards in a dominant win against the Cardinals`\
+https://nytimes.com/athletic/6871116/2025/12/07/rams-cardinals-score-result-takeaways-nfl/
+
 **What I'm hearing on the eve of MLB's winter meetings: Pirates make offer to Kyle Schwarber**\
 `The Royals mull upgrades to their outfield while the Angels continue looking for rotation help. `\
 https://nytimes.com/athletic/6871295/2025/12/07/pirates-kyle-schwarber-free-agency-mlb/
