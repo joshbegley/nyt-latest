@@ -1,3 +1,11 @@
+**America Must Prepare for the Future of War**\
+`The nature of war has drastically changed. The editorial board argues that the U.S. must reform its military.`\
+https://nytimes.com/video/opinion/100000010573151/america-must-prepare-for-the-future-of-war.html
+
+**G.O.P. Senators Push Health Care Options as Vote Looms**\
+`The Senate is set to vote later this week on a three-year extension of Affordable Care Act subsidies that Republicans oppose. The G.O.P. has yet to coalesce around an alternative.`\
+https://nytimes.com/2025/12/08/us/politics/obamacare-subsidy-vote-aca.html
+
 **Minnesota WBB was 99.9% likely to win with 47 seconds left. It lost.**\
 `Maryland kept its undefeated season alive in the most dramatic of ways.`\
 https://nytimes.com/athletic/6873530/2025/12/08/minnesota-maryland-womens-basketball-loss/
@@ -25,12 +33,4 @@ https://nytimes.com/2025/12/08/travel/trump-birthday-mlk-juneteenth-free-nationa
 **Why Chiefs' fourth-and-1 play didn't work — and what Andy Reid thinks about it now**\
 `The Chiefs had everything they could've wanted on a late fourth-and-1 play call. Here's why it still went wrong.`\
 https://nytimes.com/athletic/6873362/2025/12/08/chiefs-fourth-down-decision-andy-reid/
-
-**Vanderbilt to savor bowl game after missing CFP: 'We love playing football'**\
-`Vanderbilt coach Clark Lea explained why the Commodores will play in the ReliaQuest Bowl against Iowa after missing out on the CFP.`\
-https://nytimes.com/athletic/6873483/2025/12/08/vanderbilt-notre-dame-bowl-cfp/
-
-**The Second ‘China Shock’**\
-`Chinese exports are flooding the developing world, and the social consequences are bound to be profound.`\
-https://nytimes.com/2025/12/08/world/china-trade-asia-gaza-thailand-cambodia.html
 
