@@ -1,3 +1,27 @@
+**This was supposed to be Farke's worst week at Leeds. It could be the making of him**\
+`Leeds have eased the pressure on their manager - three fixtures that looked daunting have instead brought performances and points`\
+https://nytimes.com/athletic/6869164/2025/12/08/leeds-daniel-farke-week-city-chelsea-liverpool/
+
+**Thierno Barry. Premier League goalscorer. Finally**\
+`The French striker has endured near misses aplenty since arriving from Villarreal in the summer, but his moment finally came against Forest`\
+https://nytimes.com/athletic/6868408/2025/12/08/thierno-barry-everton-goalscorer/
+
+**Wissa is finally a Newcastle player. He will make them better**\
+`The £55m signing from Brentford finally made his Newcastle debut and showed flashes of why he will be worth the wait`\
+https://nytimes.com/athletic/6868488/2025/12/08/yoane-wissa-newcastle-debut/
+
+**Texans defense dims Chiefs' and Patrick Mahomes' playoff hopes: Takeaways**\
+`Patrick Mahomes and the Chiefs have been pulling off miracles for years. The Texans defense wasn't having any of that Sunday night.`\
+https://nytimes.com/athletic/6871040/2025/12/08/texans-chiefs-score-result-takeaways-snf/
+
+**Were West Ham unlucky with Brighton equaliser? Was it right call? What are the rules?**\
+`The West Ham head coach was not impressed Brighton's goal was allowed to stand as it denied his side victory`\
+https://nytimes.com/athletic/6869744/2025/12/08/west-ham-brighton-handball-controversy-var/
+
+**The Briefing: Shades of Ronaldo in Salah's outburst? Is Premier League a three-horse race?**\
+`Discussing the major talking points from the Premier League weekend, where Salah's future and Arsenal's defeat dominated`\
+https://nytimes.com/athletic/6869916/2025/12/08/salah-liverpool-slot-arsenal-title/
+
 **The British businessmen and their Caribbean talent factory with Lionel Messi in their sights**\
 `Mount Pleasant Football Academy is barely a decade old but have become Caribbean champions for the first time. They are just getting started`\
 https://nytimes.com/athletic/6730601/2025/12/08/mount-pleasant-jamaica-concacaf/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6826353/2025/12/08/footballers-data-goals-assists-m
 **Carlsson’s Ducks win this round vs. Bedard’s Blackhawks in burgeoning rivalry**\
 `Chicago won the first two matchups of the season, but Anaheim hit back with a blistering rout to end the Blackhawks' road trip with a bang.`\
 https://nytimes.com/athletic/6871950/2025/12/08/blackhawks-ducks-bedard-carlsson-celebrini-blashill/
-
-**NFL playoff picture, Week 14: Packers boot Bears from atop NFC; Broncos keep pace with Pats**\
-`The AFC picture is clearing up, as the Steelers and Jaguars scored big division wins, while the Texans grabbed hold of a wild-card spot.`\
-https://nytimes.com/athletic/6855420/2025/12/08/nfl-playoff-picture-week-14-packers-bears-broncos-patriots/
-
-**No Corrections: Dec. 8, 2025**\
-`No corrections  appeared in print on Monday, Dec. 8, 2025.`\
-https://nytimes.com/2025/12/08/pageoneplus/no-corrections-dec-8-2025.html
-
-**United Nations Cuts Its 2026 Emergency Aid Budget in Half**\
-`Huge reductions in foreign aid by the United States and Europe have led the U.N.’s emergency relief coordinator to slash its fund-raising targets for next year.`\
-https://nytimes.com/2025/12/08/world/united-nations-humanitarian-aid-cuts.html
-
-**Quote of the Day: Teenagers Question Australia’s Social Media Ban**\
-`Quotation of the Day for Monday, December 8, 2025.`\
-https://nytimes.com/2025/12/08/pageoneplus/quote-of-the-day-teenagers-question-australias-social-media-ban.html
-
-**Dogs in Kimonos: Japan Reinvents a Children’s Holiday for Pets**\
-`A traditional Japanese festival is being adapted for poodles and Pomeranians, amid a booming pet industry and a dearth of children.`\
-https://nytimes.com/2025/12/08/world/asia/dogs-in-kimonos-japan-reinvents-a-childrens-holiday-for-pets.html
-
-**He Was a Russian Activist in Exile. His Own Wife Accused Him of Spying.**\
-`Poland has charged a little-known Russian opposition figure with espionage and participating in a bomb plot. His friends are perplexed.`\
-https://nytimes.com/2025/12/08/world/europe/russia-spy-poland.html
 

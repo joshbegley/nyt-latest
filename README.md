@@ -1,3 +1,23 @@
+**Xavi Simons' stunning goal was his first big moment at Tottenham. Now he must kick on**\
+`Thomas Frank has never doubted Xavi Simons' quality - he expects his Spurs career to take off after his solo goal in the win over Brentford`\
+https://nytimes.com/athletic/6868511/2025/12/08/xavi-simons-tottenham-first-goal-frank/
+
+**Chelsea failed to score for the first time since the opening weekend. Why?**\
+`Chelsea had scored in 13 successive games until they went to Bournemouth and lost Liam Delap to injury`\
+https://nytimes.com/athletic/6868331/2025/12/08/chelsea-maresca-palmer-delap-failed-to-score/
+
+**Sean Dyche and Nottingham Forest's stark reminder**\
+`After spirits had been raised at Forest, a dismal display against Everton showed how much there is ahead for Dyche and his squad `\
+https://nytimes.com/athletic/6869380/2025/12/08/nottingham-forest-everton-sean-dyche/
+
+**Feringa: The WSL title race has some juice in it**\
+`There can be catharsis in defeat for Chelsea, a chance to abandon a high-pressure veneer of perfection`\
+https://nytimes.com/athletic/6870299/2025/12/08/chelsea-women-defeat-everton-wsl-column/
+
+**Brighton are starting to miss Mitoma and Hurzeler is running out of answers**\
+`The absence of the Japan winger is starting to show while others, such as Baleba, are looking below par`\
+https://nytimes.com/athletic/6857942/2025/12/08/kaoru-mitoma-brighton-injury/
+
 **This was supposed to be Farke's worst week at Leeds. It could be the making of him**\
 `Leeds have eased the pressure on their manager - three fixtures that looked daunting have instead brought performances and points`\
 https://nytimes.com/athletic/6869164/2025/12/08/leeds-daniel-farke-week-city-chelsea-liverpool/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6871040/2025/12/08/texans-chiefs-score-result-takea
 **Were West Ham unlucky with Brighton equaliser? Was it right call? What are the rules?**\
 `The West Ham head coach was not impressed Brighton's goal was allowed to stand as it denied his side victory`\
 https://nytimes.com/athletic/6869744/2025/12/08/west-ham-brighton-handball-controversy-var/
-
-**The Briefing: Shades of Ronaldo in Salah's outburst? Is Premier League a three-horse race?**\
-`Discussing the major talking points from the Premier League weekend, where Salah's future and Arsenal's defeat dominated`\
-https://nytimes.com/athletic/6869916/2025/12/08/salah-liverpool-slot-arsenal-title/
-
-**The British businessmen and their Caribbean talent factory with Lionel Messi in their sights**\
-`Mount Pleasant Football Academy is barely a decade old but have become Caribbean champions for the first time. They are just getting started`\
-https://nytimes.com/athletic/6730601/2025/12/08/mount-pleasant-jamaica-concacaf/
-
-**Sonny Gray lied about wanting to play for Yankees before 2017 trade, Brian Cashman says**\
-`Responding to the pitcher's comments, Cashman says Gray lied behind-the-scenes about wanting to play for the team before it traded for him.`\
-https://nytimes.com/athletic/6871932/2025/12/08/sonny-gray-lied-yankees-brian-cashman/
-
-**The stats players care about – and the dangers of data misinterpretation**\
-`Data is playing an even bigger role in how players improve and negotiate their contracts - so which numbers matter to them?`\
-https://nytimes.com/athletic/6826353/2025/12/08/footballers-data-goals-assists-most-important/
-
-**Carlsson’s Ducks win this round vs. Bedard’s Blackhawks in burgeoning rivalry**\
-`Chicago won the first two matchups of the season, but Anaheim hit back with a blistering rout to end the Blackhawks' road trip with a bang.`\
-https://nytimes.com/athletic/6871950/2025/12/08/blackhawks-ducks-bedard-carlsson-celebrini-blashill/
 
