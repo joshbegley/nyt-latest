@@ -1,3 +1,7 @@
+**Supreme Court Questions N.Y. Ban on Religious Exemptions for Vaccines**\
+`The U.S. Supreme Court directed a lower court to review the ban, which applies to strict vaccine requirements in New York schools.`\
+https://nytimes.com/2025/12/08/nyregion/ny-school-vaccinations.html
+
 **Federal Judge Finds Trump’s Halt on Offshore Wind Is Illegal**\
 `The president ordered a stop to permits for all wind farms in federal waters. A judge called that “capricious.”`\
 https://nytimes.com/2025/12/08/climate/trump-offshore-wind-federal-judge.html
@@ -29,8 +33,4 @@ https://nytimes.com/video/world/africa/100000010574032/nigeria-abducted-children
 **Patriots-Ravens flexed into Week 16 'Sunday Night Football,' bumping Bengals-Dolphins**\
 `The flex gives the Patriots their fourth prime-time game of the season, while the Ravens will make their fifth prime-time appearance.`\
 https://nytimes.com/athletic/6873995/2025/12/08/patriots-ravens-sunday-night-football-flexed/
-
-**Why Democratic Governors Argue They Are the Party’s Best Shot for 2028**\
-`A long list of people could test that theory, though governors have struggled to make the leap to presidential nominations in recent years.`\
-https://nytimes.com/2025/12/08/us/politics/democratic-governors-dga-2028.html
 
