@@ -1,3 +1,11 @@
+**Love Letters From a Chinese Jail**\
+`The torn pieces of paper by Gao Zhen, a renowned artist jailed in China, show family portraits, memories of New York and expressions of faith. To his wife, they are love letters.`\
+https://nytimes.com/video/world/asia/100000010535060/gao-zhen-china-artist-detained.html
+
+**The inside story of Salah's incendiary interview – and what happens next**\
+`Revealing what sparked the Egyptian's outburst, the reaction from within Anfield, and who could offer him a way out in January`\
+https://nytimes.com/athletic/6870344/2025/12/08/mohamed-salah-transfer-liverpool-interview/
+
 **World Cup ticket resale prices rise nearly 300 per cent**\
 `Resale prices for Colombia vs. Portugal in Miami Gardens, Fla. jumped up 514 per cent since Thursday.`\
 https://nytimes.com/athletic/6870859/2025/12/08/world-cup-2026-tickets-resale-price/
