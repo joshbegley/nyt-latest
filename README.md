@@ -1,3 +1,7 @@
+**Cam Whitmore is talented, but the Wizards benched him. Why?**\
+`Wizards coach Brian Keefe spoke of "standards." What was he talking about? `\
+https://nytimes.com/athletic/6871961/2025/12/08/cam-whitmore-court-standards-washington-wizards/
+
 **What will the Court’s ruling mean for the Federal Reserve Board?**\
 `The justices have indicated that they will try to find a way to protect the independence of the Fed, even as they let presidents remove leaders of other agencies.`\
 https://nytimes.com/live/2025/12/08/us/trump-supreme-court-presidential-power/supreme-court-ruling-federal-reserve-board
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/08/us/politics/supreme-court-constitution-originalis
 **The early Federal Trade Commission fielded complaints over cigars, soap and even nose shapers.**\
 `Along with weighty antitrust cases, the early years of the Federal Trade Commission featured disputes about everyday products.`\
 https://nytimes.com/live/2025/12/08/us/trump-supreme-court-presidential-power/the-early-federal-trade-commission-fielded-complaints-over-cigars-soap-and-even-nose-shapers
-
-**Japan Issues Tsunami Warning After 7.6-Magnitude Earthquake**\
-`The earthquake struck off the coast of Aomori Prefecture, on Japan’s main island, Honshu.`\
-https://nytimes.com/2025/12/08/world/asia/japan-earthquake-tsunami.html
 
