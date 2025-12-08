@@ -1,3 +1,7 @@
+**World Cup ticket resale prices rise nearly 300 per cent**\
+`Resale prices for Colombia vs. Portugal in Miami Gardens, Fla. jumped up 514 per cent since Thursday.`\
+https://nytimes.com/athletic/6870859/2025/12/08/world-cup-2026-tickets-resale-price/
+
 **Trump Hosts Kennedy Center Honors**\
 `President Trump hosted the Kennedy Center Honors on Sunday, recognizing artists for lifetime achievements. Trump, who appointed himself chairman of the center, became the first president to host the ceremony.`\
 https://nytimes.com/video/us/100000010572558/trump-kennedy-center-honors.html
