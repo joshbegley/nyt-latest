@@ -1,3 +1,23 @@
+**What Is the Federal Trade Commission?**\
+`The agency’s first role is to enforce consumer protection laws.`\
+https://nytimes.com/2025/12/08/us/politics/federal-trade-commission.html
+
+**Steelers WR DK Metcalf hospitalized with stomach pain**\
+`Metcalf was released from the hospital on Sunday and is expected to return to Pittsburgh on Monday.`\
+https://nytimes.com/athletic/6872759/2025/12/08/dk-metcalf-hospitalized-pittsburgh-steelers/
+
+**There are other cases that will test presidential power at the court.**\
+`By Ann E. Marimow`\
+https://nytimes.com/live/2025/12/08/us/trump-supreme-court-presidential-power/there-are-other-cases-that-will-test-presidential-power-at-the-court
+
+**Instagram and Facebook Users in Europe Get Option of Sharing Less Data**\
+`The European Commission said Meta, which owns both platforms, is giving users the option of sharing less data in exchange for less personalized ads.`\
+https://nytimes.com/2025/12/08/business/instagram-facebook-eu-data.html
+
+**Map: 7.6-Magnitude Earthquake Strikes off the Coast of Japan**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/12/08/world/earthquake-japan-tsunami.html
+
 **Why Barcelona's Uber sponsorship deal has sparked protests at the Camp Nou**\
 `A strike called by Barcelona's Elite Taxi union could cause disruption before Tuesday night's home game with Eintracht Frankfurt`\
 https://nytimes.com/athletic/6872696/2025/12/08/barcelona-champions-league-uber-protest-sponsorship/
@@ -17,24 +37,4 @@ https://nytimes.com/2025/12/08/us/politics/agencies-independent-boards.html
 **Paramount Makes Hostile Bid for Warner Bros. Discovery**\
 `The offer to shareholders comes days after Warner Bros. agreed to sell its streaming and studio business to Netflix.`\
 https://nytimes.com/2025/12/08/business/paramount-warner-bros-discovery-netflix.html
-
-**Colin Allred Drops Out of Democratic Primary for U.S. Senate in Texas**\
-`His departure came as Representative Jasmine Crockett, a combative rising star in the party, appeared likely to announce her own Senate run soon.`\
-https://nytimes.com/2025/12/08/us/colin-allred-senate-texas-primary.html
-
-**Does Trump need a reason to fire leaders of independent agencies?**\
-`Scores of federal laws limit the president’s ability to fire officials like members of the Federal Trade Commission and governors of the Federal Reserve Board.`\
-https://nytimes.com/live/2025/12/08/us/trump-supreme-court-presidential-power/trump-fire-independent-agency-leaders
-
-**Trump Says Netflix Takeover of Warner Bros. ‘Could Be a Problem’**\
-`The fate of the blockbuster Hollywood deal is in the hands of federal regulators.`\
-https://nytimes.com/2025/12/08/us/politics/trump-netflix-warner-bros-antitrust.html
-
-**Who Is Rebecca Slaughter?**\
-`Ms. Slaughter, a Democratic member of the Federal Trade Commission, sued President Trump after he fired her because she did not align with his agenda.`\
-https://nytimes.com/2025/12/08/us/politics/rebecca-slaughter.html
-
-**Here’s the latest.**\
-`By Ann E. Marimow`\
-https://nytimes.com/live/2025/12/08/us/trump-supreme-court-presidential-power/heres-the-latest
 
