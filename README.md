@@ -1,3 +1,11 @@
+**8 Matisse Works Stolen From Library in Brazil**\
+`Two armed men stole over a dozen pieces of art from a São Paulo exhibition featuring works by the French painter and other artists.`\
+https://nytimes.com/2025/12/08/world/americas/matisse-robbery-sao-paulo.html
+
+**Macaulay's unlikely journey to Man Utd - and how he fits into reshaped recruitment team**\
+`The club's new head of senior scouting has family links to United and will be expected to bolster their recruitment operation`\
+https://nytimes.com/athletic/6869318/2025/12/08/kyle-macaulay-manchester-united-recruitment/
+
 **Xavi Simons' stunning goal was his first big moment at Tottenham. Now he must kick on**\
 `Thomas Frank has never doubted Xavi Simons' quality - he expects his Spurs career to take off after his solo goal in the win over Brentford`\
 https://nytimes.com/athletic/6868511/2025/12/08/xavi-simons-tottenham-first-goal-frank/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6868408/2025/12/08/thierno-barry-everton-goalscorer
 **Wissa is finally a Newcastle player. He will make them better**\
 `The £55m signing from Brentford finally made his Newcastle debut and showed flashes of why he will be worth the wait`\
 https://nytimes.com/athletic/6868488/2025/12/08/yoane-wissa-newcastle-debut/
-
-**Texans defense dims Chiefs' and Patrick Mahomes' playoff hopes: Takeaways**\
-`Patrick Mahomes and the Chiefs have been pulling off miracles for years. The Texans defense wasn't having any of that Sunday night.`\
-https://nytimes.com/athletic/6871040/2025/12/08/texans-chiefs-score-result-takeaways-snf/
-
-**Were West Ham unlucky with Brighton equaliser? Was it right call? What are the rules?**\
-`The West Ham head coach was not impressed Brighton's goal was allowed to stand as it denied his side victory`\
-https://nytimes.com/athletic/6869744/2025/12/08/west-ham-brighton-handball-controversy-var/
 
