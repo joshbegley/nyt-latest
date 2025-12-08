@@ -1,3 +1,11 @@
+**The British businessmen and their Caribbean talent factory with Lionel Messi in their sights**\
+`Mount Pleasant Football Academy is barely a decade old but have become Caribbean champions for the first time. They are just getting started`\
+https://nytimes.com/athletic/6730601/2025/12/08/mount-pleasant-jamaica-concacaf/
+
+**Sonny Gray lied about wanting to play for Yankees before 2017 trade, Brian Cashman says**\
+`Responding to the pitcher's comments, Cashman says Gray lied behind-the-scenes about wanting to play for the team before it traded for him.`\
+https://nytimes.com/athletic/6871932/2025/12/08/sonny-gray-lied-yankees-brian-cashman/
+
 **The stats players care about – and the dangers of data misinterpretation**\
 `Data is playing an even bigger role in how players improve and negotiate their contracts - so which numbers matter to them?`\
 https://nytimes.com/athletic/6826353/2025/12/08/footballers-data-goals-assists-most-important/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/08/world/asia/dogs-in-kimonos-japan-reinvents-a-chil
 **He Was a Russian Activist in Exile. His Own Wife Accused Him of Spying.**\
 `Poland has charged a little-known Russian opposition figure with espionage and participating in a bomb plot. His friends are perplexed.`\
 https://nytimes.com/2025/12/08/world/europe/russia-spy-poland.html
-
-**Connections: Sports Edition Coach: Hints for Dec. 8, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6871690/2025/12/08/connections-sports-edition-hints-for-dec-8-2025/
-
-**Rangers frustrated by officiating in overtime loss: 'It stings now'**\
-`Mika Zibanejad, J.T. Miller and coach Mike Sullivan were frustrated with late calls: "Zero power plays and you don't call that?"`\
-https://nytimes.com/athletic/6871929/2025/12/07/rangers-officiating-power-play-golden-knights/
 
