@@ -1,3 +1,19 @@
+**Jerusalem Authorities Raid UNRWA Compound and Raise Israeli Flag**\
+`Municipal officials say the action was about unpaid taxes. The U.N. relief agency for Palestinians says it is exempt from taxes and should be immune from such a raid, calling it illegal.`\
+https://nytimes.com/2025/12/08/world/middleeast/israel-jerusalem-unraw-police-raid.html
+
+**FA Cup third-round draw: Macclesfield vs. Crystal Palace, Liverpool vs. Barnsley, Wrexham vs. Nottingham Forest**\
+`Premier League leaders Arsenal will travel to Championship Portsmouth, and Chelsea will visit Charlton Athletic.`\
+https://nytimes.com/athletic/6872807/2025/12/08/fa-cup-draw-third-round/
+
+**Why are collectors paying more for sports cards with PSA's newest labels?**\
+`Same card, same grade, different grading label? It's become enough to alter the overall value on the secondary market`\
+https://nytimes.com/athletic/6873159/2025/12/08/psa-grading-labels-sports-cards-value/
+
+**Colts QB Daniel Jones out for season with torn Achilles**\
+`The Colts will turn to rookie Riley Leonard with Jones out. `\
+https://nytimes.com/athletic/6870744/2025/12/08/colts-daniel-jones-torn-achilles-season-ending/
+
 ****\
 `(No description)`\
 https://nytimes.com/video/100000010573909/16austen-25-objects-meme-flex-hand.html
