@@ -1,9 +1,13 @@
+**NBA Rewind: Giannis drama heats up, and so does the NBA Cup**\
+`Who's hot (Celtics, Jalen Johnson) and not (Bulls, Cavaliers) after another big week in the league?`\
+https://nytimes.com/athletic/6865566/2025/12/08/giannis-trade-rumors-nba-cup/
+
 **What Is the Federal Trade Commission?**\
 `The agency’s first role is to enforce consumer protection laws.`\
 https://nytimes.com/2025/12/08/us/politics/federal-trade-commission.html
 
-**Steelers WR DK Metcalf hospitalized with stomach pain**\
-`Metcalf was released from the hospital on Sunday and is expected to return to Pittsburgh on Monday.`\
+**Steelers WR DK Metcalf evaluated at hospital on Sunday with stomach pain**\
+`Metcalf is expected to return to Pittsburgh on Monday.`\
 https://nytimes.com/athletic/6872759/2025/12/08/dk-metcalf-hospitalized-pittsburgh-steelers/
 
 **There are other cases that will test presidential power at the court.**\
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/asia/100000010572865/thai-jets-bomb-cambodia-ami
 **These Independent Agencies Could Be Affected by a Supreme Court Case**\
 `Court filings identify more than two-dozen quasi-independent boards and commissions that could be affected by a Supreme Court ruling in President Trump’s favor.`\
 https://nytimes.com/2025/12/08/us/politics/agencies-independent-boards.html
-
-**Paramount Makes Hostile Bid for Warner Bros. Discovery**\
-`The offer to shareholders comes days after Warner Bros. agreed to sell its streaming and studio business to Netflix.`\
-https://nytimes.com/2025/12/08/business/paramount-warner-bros-discovery-netflix.html
 
