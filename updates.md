@@ -1,3 +1,7 @@
+**Jonathan Kuminga explains how he feels after getting pulled out of the starting rotation**\
+`The decision to take him out of the rotation came as a surprise, given how much Kuminga has played to start the year.`\
+https://nytimes.com/athletic/6872098/2025/12/08/jonathan-kuminga-pulled-out-of-rotation-kerr/
+
 **Fantasy football Week 14 takeaways: Colts dealt major blow; Shedeur Sanders shines**\
 `Michael Salfino shares his thoughts on Week 14, including a downgrade for all of Indy's skill-position players with Daniel Jones likely out.`\
 https://nytimes.com/athletic/6871241/2025/12/08/fantasy-football-week-14-takeaways-colts-dealt-major-blow-shedeur-sanders-shines/

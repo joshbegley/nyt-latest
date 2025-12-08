@@ -1,3 +1,7 @@
+**Jonathan Kuminga explains how he feels after getting pulled out of the starting rotation**\
+`The decision to take him out of the rotation came as a surprise, given how much Kuminga has played to start the year.`\
+https://nytimes.com/athletic/6872098/2025/12/08/jonathan-kuminga-pulled-out-of-rotation-kerr/
+
 **Fantasy football Week 14 takeaways: Colts dealt major blow; Shedeur Sanders shines**\
 `Michael Salfino shares his thoughts on Week 14, including a downgrade for all of Indy's skill-position players with Daniel Jones likely out.`\
 https://nytimes.com/athletic/6871241/2025/12/08/fantasy-football-week-14-takeaways-colts-dealt-major-blow-shedeur-sanders-shines/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6868511/2025/12/08/xavi-simons-tottenham-first-goal
 **Chelsea failed to score for the first time since the opening weekend. Why?**\
 `Chelsea had scored in 13 successive games until they went to Bournemouth and lost Liam Delap to injury`\
 https://nytimes.com/athletic/6868331/2025/12/08/chelsea-maresca-palmer-delap-failed-to-score/
-
-**Sean Dyche and Nottingham Forest's stark reminder**\
-`After spirits had been raised at Forest, a dismal display against Everton showed how much there is ahead for Dyche and his squad `\
-https://nytimes.com/athletic/6869380/2025/12/08/nottingham-forest-everton-sean-dyche/
 
