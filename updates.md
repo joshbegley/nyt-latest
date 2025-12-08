@@ -1,3 +1,11 @@
+**Scoop City: Risers and fallers after Week 14**\
+`The Packers, Rams and Broncos trend up, while the Chiefs, Bengals and Falcons lead our Week 14 fallers`\
+https://nytimes.com/athletic/6873466/2025/12/08/nfl-risers-fallers-week-14-packers-broncos-colts/
+
+**The Movement to Reclaim Childhood Is Just Getting Started**\
+`We’ve done more this year to protect children from the harms of smartphones and social media. Is it enough?`\
+https://nytimes.com/2025/12/08/special-series/jonathan-haidt-smartphone-ban-school.html
+
 **In Hiring, Are Skills the New Degrees?**\
 `The talent you're looking for might be where you least expect them. That’s why employers today are incorporating skills-first hiring to expand their candidate pool and discover those hidden gems. `\
 https://nytimes.com/paidpost/indeed/in-hiring-are-skills-the-new-degrees.html

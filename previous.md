@@ -1,3 +1,11 @@
+**Scoop City: Risers and fallers after Week 14**\
+`The Packers, Rams and Broncos trend up, while the Chiefs, Bengals and Falcons lead our Week 14 fallers`\
+https://nytimes.com/athletic/6873466/2025/12/08/nfl-risers-fallers-week-14-packers-broncos-colts/
+
+**The Movement to Reclaim Childhood Is Just Getting Started**\
+`We’ve done more this year to protect children from the harms of smartphones and social media. Is it enough?`\
+https://nytimes.com/2025/12/08/special-series/jonathan-haidt-smartphone-ban-school.html
+
 **Submit a question for Stewart Mandel's College Football Mailbag**\
 `<p>Well, my guess is you have plenty to ask about. So will just leave this here.</p>
 <p>As always, please include your city.</p>
@@ -27,12 +35,4 @@ https://nytimes.com/paidpost/indeed/in-hiring-are-skills-the-new-degrees.html
 **Jerusalem Authorities Raid UNRWA Compound and Raise Israeli Flag**\
 `Municipal officials say the action was about unpaid taxes. The U.N. relief agency for Palestinians says it is exempt from taxes and should be immune from such a raid, calling it illegal.`\
 https://nytimes.com/2025/12/08/world/middleeast/israel-jerusalem-unrwa-police-raid.html
-
-**FA Cup third-round draw: Macclesfield vs. Crystal Palace, Liverpool vs. Barnsley**\
-`Premier League leaders Arsenal will travel to Championship Portsmouth, and Chelsea will visit Charlton Athletic.`\
-https://nytimes.com/athletic/6872807/2025/12/08/fa-cup-draw-third-round/
-
-**Why are collectors paying more for sports cards with PSA's newest labels?**\
-`Same card, same grade, different grading label? It's become enough to alter the overall value on the secondary market.`\
-https://nytimes.com/athletic/6873159/2025/12/08/psa-grading-labels-sports-cards-value/
 

@@ -1,3 +1,19 @@
+**Maddison: ACL injury on eve of new season 'destroyed me on the inside'**\
+`Maddison, 29, underwent surgery in August after suffering the injury in a pre-season fixture against Newcastle.`\
+https://nytimes.com/athletic/6873448/2025/12/08/james-maddison-tottenham-acl-injury/
+
+**NWSL said it would fight for Trinity Rodman. It's only fighting with itself**\
+`One way or the other, the league will set a precedent with Rodman. The NWSL has the power to choose what that looks like.`\
+https://nytimes.com/athletic/6873302/2025/12/08/nwsl-trinity-rodman-spirit-future/
+
+**Nancy Mace: What’s the Point of Congress?**\
+`The system in the House promotes control by party leaders over accountability and achievement.`\
+https://nytimes.com/2025/12/08/opinion/nancy-mace-congress-republicans.html
+
+**Garnacho insists no regrets over manner of Man Utd exit**\
+`"“Sometimes in life, you have to change things to take a step forward or to improve as a player," Garnacho said.`\
+https://nytimes.com/athletic/6873491/2025/12/08/alejandro-garnacho-manchester-united-chelsea-transfer/
+
 **Scoop City: Risers and fallers after Week 14**\
 `The Packers, Rams and Broncos trend up, while the Chiefs, Bengals and Falcons lead our Week 14 fallers`\
 https://nytimes.com/athletic/6873466/2025/12/08/nfl-risers-fallers-week-14-packers-broncos-colts/
@@ -19,20 +35,4 @@ https://nytimes.com/video/opinion/100000010566429/trump-is-unpopular-does-he-kno
 **Are Trump’s Boat Attacks a War Crime?**\
 `On “The Opinions,” the columnist Jamelle Bouie argues that the president is randomly blowing up boats in the Caribbean — what Bouie calls “criminal murder.”`\
 https://nytimes.com/video/opinion/100000010566422/are-trumps-boat-attacks-a-war-crime.html
-
-**Review: Two New Bach Pieces? The Real Thrill Was in the Chase.**\
-`Two workmanlike pieces by the teenage Bach had their New York premiere at the Chamber Music Society of Lincoln Center.`\
-https://nytimes.com/2025/12/08/arts/music/review-two-short-bach-pieces-premiere.html
-
-**Cora Weiss, Lifelong Champion of Social Justice, Dies at 91**\
-`With a group called Women Strike for Peace, she helped organize demonstrations against the Vietnam War and nuclear weapons. “We managed to get things done,” she said.`\
-https://nytimes.com/2025/12/08/us/politics/cora-weiss-dead.html
-
-**In Hiring, Are Skills the New Degrees?**\
-`The talent you're looking for might be where you least expect them. That’s why employers today are incorporating skills-first hiring to expand their candidate pool and discover those hidden gems. `\
-https://nytimes.com/paidpost/indeed/in-hiring-are-skills-the-new-degrees.html
-
-**Jerusalem Authorities Raid UNRWA Compound and Raise Israeli Flag**\
-`Municipal officials say the action was about unpaid taxes. The U.N. relief agency for Palestinians says it is exempt from taxes and should be immune from such a raid, calling it illegal.`\
-https://nytimes.com/2025/12/08/world/middleeast/israel-jerusalem-unrwa-police-raid.html
 
