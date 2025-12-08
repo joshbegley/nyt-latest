@@ -1,3 +1,11 @@
+**Joe Burrow, Bengals tantalize vs. Bills, but still prove an irrelevant footnote**\
+`Cincinnati held the lead for most of the game, but in the end, Sunday saw another late collapse to cripple any playoff hopes.`\
+https://nytimes.com/athletic/6871409/2025/12/07/joe-burrow-bengals-tantalizing-loss-bills/
+
+**On a day of Jets QBs past and present, thoughts of Fernando Mendoza as the future**\
+`New York might eventually try to figure out how to draft the Indiana Hoosiers quarterback in the 2026 NFL draft.`\
+https://nytimes.com/athletic/6871358/2025/12/07/new-york-jets-miami-dolphins-loss-fernando-mendoza-draft/
+
 **Joe Burrow, Bengals tantalize vs. Bills, but still prove just an irrelevant footnote**\
 `Cincinnati held the lead for most of the game, but in the end, Sunday saw another late collapse to cripple any playoff hopes.`\
 https://nytimes.com/athletic/6871409/2025/12/07/joe-burrow-bengals-tantalizing-loss-bills/

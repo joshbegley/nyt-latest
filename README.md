@@ -18,7 +18,7 @@ https://nytimes.com/athletic/6871358/2025/12/07/new-york-jets-miami-dolphins-los
 `After beating the Bears on Sunday, the Packers now leapfrog Chicago to sit atop the NFC North entering Week 15.`\
 https://nytimes.com/athletic/6871016/2025/12/07/bears-packers-score-result-takeaways-nfl/
 
-**Josh Allen wrestles Bills' win from Bengals, showing anything's possible when he's that guy**\
+**Josh Allen wrests Bills' win from Bengals, showing anything's possible when he's that guy**\
 `Allen played his brand of football that shows his ability to dominate in important moments.`\
 https://nytimes.com/athletic/6871105/2025/12/07/josh-allen-bills-win-breakdown/
 
