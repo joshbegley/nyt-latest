@@ -1,3 +1,7 @@
+**Josh Allen wrests Bills' win from Bengals, showing anything's possible when he's that guy**\
+`Allen played his brand of football that shows his ability to dominate in important moments.`\
+https://nytimes.com/athletic/6871105/2025/12/07/josh-allen-bills-win-breakdown/
+
 **Joe Burrow, Bengals tantalize vs. Bills, but still prove an irrelevant footnote**\
 `Cincinnati held the lead for most of the game, but in the end, Sunday saw another late collapse to cripple any playoff hopes.`\
 https://nytimes.com/athletic/6871409/2025/12/07/joe-burrow-bengals-tantalizing-loss-bills/

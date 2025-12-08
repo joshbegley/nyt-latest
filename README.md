@@ -1,3 +1,7 @@
+**U.S. Deports Second Planeload of Iranians, Officials Say**\
+`In the past, the United States deported Iranians individually on commercial planes. But two months ago, the Trump administration reached a deal with Tehran to coordinate the return of Iranian citizens.`\
+https://nytimes.com/2025/12/07/world/middleeast/us-deports-second-planeload-iranians.html
+
 **Joe Burrow, Bengals tantalize vs. Bills, but still prove an irrelevant footnote**\
 `Cincinnati held the lead for most of the game, but in the end, Sunday saw another late collapse to cripple any playoff hopes.`\
 https://nytimes.com/athletic/6871409/2025/12/07/joe-burrow-bengals-tantalizing-loss-bills/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6871295/2025/12/07/pirates-kyle-schwarber-free-agen
 **J.J. McCarthy delivers career-best outing vs. Commanders at pivotal moment**\
 `McCarthy was 16-for-23 for 163 yards and three touchdowns in Sunday's 31-0 win. But his performance set the stage for something more.`\
 https://nytimes.com/athletic/6871143/2025/12/07/vikings-jj-mccarthy-career-best-commanders/
-
-**Matthew Stafford, Rams' offense roll against Cardinals: Takeaways**\
-`Los Angeles rushed for nearly 250 yards in a dominant win against the Cardinals.`\
-https://nytimes.com/athletic/6871116/2025/12/07/rams-cardinals-score-result-takeaways-nfl/
 
