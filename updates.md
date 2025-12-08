@@ -1,3 +1,7 @@
+**Rangers frustrated by officiating in overtime loss: 'It stings now'**\
+`Mika Zibanejad, J.T. Miller and coach Mike Sullivan were frustrated with late calls: "Zero power plays and you don't call that?"`\
+https://nytimes.com/athletic/6871929/2025/12/07/rangers-officiating-power-play-golden-knights/
+
 **How Keisean Nixon saved the day to send Packers over Bears into first place**\
 `Nixon's first interception of the season came when it mattered most, but the guy he ended up guarding wasn't even his man to start the play.`\
 https://nytimes.com/athletic/6871933/2025/12/07/keisean-nixon-interception-packers-bears/
