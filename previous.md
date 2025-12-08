@@ -1,3 +1,11 @@
+**LeBron James reminds us he's still LeBron with season-high 29 points, clutch buckets**\
+`PHILADELPHIA — LeBron James bowed his legs and hopped down the court.`\
+https://nytimes.com/athletic/6871720/2025/12/08/lebron-james-stats-lakers-beat-76ers-nba/
+
+**Nepal Charges Chinese Construction Firm for Corruption Over Airport**\
+`Nepal’s anti-graft watchdog said the state-owned Chinese firm and Nepali officials colluded to inflate the costs of an international airport in Pokhara.`\
+https://nytimes.com/2025/12/08/business/china-nepal-airport-corruption.html
+
 **In thrashing of Cardinals, Rams offense was reminiscent of the 'Greatest Show on Turf'**\
 `The Rams scored three rushing and three passing TDs for the first time since 2001, when Kurt Warner and company ran roughshod over defenses.`\
 https://nytimes.com/athletic/6871451/2025/12/08/rams-offense-greatest-show-on-turf-win-cardinals/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6872114/2025/12/08/chiefs-travis-kelce-patrick-maho
 **What we heard in the Bears' quiet locker room after they ran out of time in Green Bay**\
 `The Bears rallied after halftime but dug too big a hole against a good Packers team. Now they have to learn from it.`\
 https://nytimes.com/athletic/6871851/2025/12/08/bears-locker-room-reaction-packers/
-
-**Cowboys' biggest flaws exposed in loss to Lions. How do they fix them?**\
-`The Cowboys have two first-round draft picks in 2026 and cornerback and edge rusher are two immediate needs. `\
-https://nytimes.com/athletic/6867805/2025/12/08/cowboys-biggest-concerns-pass-rush-secondary/
-
-**Eagles at Chargers on MNF: Storylines, Herbert's injury, 'Monsters, Inc.' telecast**\
-`Now for a tale of the Birds and the Bolts. The 8-4 Eagles and Chargers link up on "Monday Night Football" and "Monsters Funday Football."`\
-https://nytimes.com/athletic/6865746/2025/12/08/eagles-chargers-mnf-justin-herbert-injury-monsters-inc/
 

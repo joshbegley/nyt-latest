@@ -1,3 +1,11 @@
+**LeBron James reminds us he's still LeBron with season-high 29 points, clutch buckets**\
+`PHILADELPHIA — LeBron James bowed his legs and hopped down the court.`\
+https://nytimes.com/athletic/6871720/2025/12/08/lebron-james-stats-lakers-beat-76ers-nba/
+
+**Nepal Charges Chinese Construction Firm for Corruption Over Airport**\
+`Nepal’s anti-graft watchdog said the state-owned Chinese firm and Nepali officials colluded to inflate the costs of an international airport in Pokhara.`\
+https://nytimes.com/2025/12/08/business/china-nepal-airport-corruption.html
+
 **In thrashing of Cardinals, Rams offense was reminiscent of the 'Greatest Show on Turf'**\
 `The Rams scored three rushing and three passing TDs for the first time since 2001, when Kurt Warner and company ran roughshod over defenses.`\
 https://nytimes.com/athletic/6871451/2025/12/08/rams-offense-greatest-show-on-turf-win-cardinals/
