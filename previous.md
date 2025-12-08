@@ -21,8 +21,8 @@ https://nytimes.com/2025/12/08/arts/music/review-two-short-bach-pieces-premiere.
 https://nytimes.com/2025/12/08/us/politics/cora-weiss-dead.html
 
 **In Hiring, Are Skills the New Degrees?**\
-`The talent you're looking for might be where you least expect them.`\
-https://nytimes.com/paidpost/2025-11-24/.html
+`The talent you're looking for might be where you least expect them. That’s why employers today are incorporating skills-first hiring to expand their candidate pool and discover those hidden gems. `\
+https://nytimes.com/paidpost/indeed/in-hiring-are-skills-the-new-degrees.html
 
 **Jerusalem Authorities Raid UNRWA Compound and Raise Israeli Flag**\
 `Municipal officials say the action was about unpaid taxes. The U.N. relief agency for Palestinians says it is exempt from taxes and should be immune from such a raid, calling it illegal.`\

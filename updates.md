@@ -1,3 +1,7 @@
+**In Hiring, Are Skills the New Degrees?**\
+`The talent you're looking for might be where you least expect them. That’s why employers today are incorporating skills-first hiring to expand their candidate pool and discover those hidden gems. `\
+https://nytimes.com/paidpost/indeed/in-hiring-are-skills-the-new-degrees.html
+
 **Submit a question for Stewart Mandel's College Football Mailbag**\
 `<p>Well, my guess is you have plenty to ask about. So will just leave this here.</p>
 <p>As always, please include your city.</p>
