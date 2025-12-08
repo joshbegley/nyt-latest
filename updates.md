@@ -1,3 +1,7 @@
+**Shedeur Sanders to remain Browns' starter for rest of season, coach Kevin Stefanski says**\
+`Sanders is 1-2 in his three starts and has thrown for a total of 722 yards, five touchdowns and two interceptions. `\
+https://nytimes.com/athletic/6873270/2025/12/08/shedeur-sanders-browns-starting-quarterback/
+
 **For Martin Parr, ‘Showing Things as They Are’ Was Art**\
 `Some saw cynicism in the photographer’s pictures of everyday life in Britain during his nearly six-decade career. But he said he wanted to honor the ordinary.`\
 https://nytimes.com/2025/12/08/arts/martin-parr-photographer-appraisal.html
