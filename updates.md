@@ -1,3 +1,11 @@
+**China’s Weak Currency Is Powering Its Exports, Drawing Criticism**\
+`China’s renminbi is lagging the currencies of key trading partners, making Chinese goods and services cheap and helping to drive exports.`\
+https://nytimes.com/2025/12/07/business/china-rmb-currency.html
+
+**China’s Trade Surplus Climbs Past $1 Trillion for First Time**\
+`President Trump’s tariffs weren’t enough to hold back the global export flood by China, which pushed past last year’s record in just 11 months.`\
+https://nytimes.com/2025/12/07/business/china-trade-surplus.html
+
 **Congress Gears Up to Pass $900 Billion Defense Policy Bill**\
 `Lawmakers aim to send the bill, which authorizes $8 billion more than the White House requested, to the president’s desk by the end of the year.`\
 https://nytimes.com/2025/12/07/us/politics/military-bill-congress-trump.html

@@ -1,3 +1,11 @@
+**China’s Weak Currency Is Powering Its Exports, Drawing Criticism**\
+`China’s renminbi is lagging the currencies of key trading partners, making Chinese goods and services cheap and helping to drive exports.`\
+https://nytimes.com/2025/12/07/business/china-rmb-currency.html
+
+**China’s Trade Surplus Climbs Past $1 Trillion for First Time**\
+`President Trump’s tariffs weren’t enough to hold back the global export flood by China, which pushed past last year’s record in just 11 months.`\
+https://nytimes.com/2025/12/07/business/china-trade-surplus.html
+
 **Congress Gears Up to Pass $900 Billion Defense Policy Bill**\
 `Lawmakers aim to send the bill, which authorizes $8 billion more than the White House requested, to the president’s desk by the end of the year.`\
 https://nytimes.com/2025/12/07/us/politics/military-bill-congress-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6871423/2025/12/07/browns-shedeur-sanders-growth-lo
 **Even in shootout loss, something special is happening with these Penguins: Yohe's 10 observations**\
 `The Penguins played one of their better games of the season against a formidable Western Conference contender.`\
 https://nytimes.com/athletic/6871274/2025/12/07/penguins-shootout-jarry-kindel-stars/
-
-**Raiders kick field goal to cover the spread against Broncos**\
-`The Broncos won the game. The Raiders covered the point spread in the final seconds.`\
-https://nytimes.com/athletic/6871610/2025/12/07/nfl-bad-beat-raiders-broncos-spread-betting/
-
-**Celtics' Jordan Walsh building defensive reputation but says he hasn't done anything yet**\
-`The Lakers acknowledged game planning around Walsh, and the third-year forward hopes he forces more teams to do the same.`\
-https://nytimes.com/athletic/6871477/2025/12/07/celtics-jordan-walsh-defensive-reputation-improving/
 

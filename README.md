@@ -1,3 +1,7 @@
+**Blue Jackets can't solve Washington's Logan Thompson, suffer first shutout loss**\
+`Jet Greaves returned to the Columbus net and the Blue Jackets looked much more structured, but couldn't get the puck in the net.`\
+https://nytimes.com/athletic/6871700/2025/12/07/blue-jackets-thompson-greaves-capitals/
+
 **China’s Weak Currency Is Powering Its Exports, Drawing Criticism**\
 `China’s renminbi is lagging the currencies of key trading partners, making Chinese goods and services cheap and helping to drive exports.`\
 https://nytimes.com/2025/12/07/business/china-rmb-currency.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6871450/2025/12/07/christian-benford-bills-cornerba
 **The growth Shedeur Sanders showed was a small victory for Browns, even in defeat**\
 `Despite falling to Tennessee, Sanders displayed poise and guts in his third career start. Maybe Cleveland has something in the rookie QB. `\
 https://nytimes.com/athletic/6871423/2025/12/07/browns-shedeur-sanders-growth-loss-titans/
-
-**Even in shootout loss, something special is happening with these Penguins: Yohe's 10 observations**\
-`The Penguins played one of their better games of the season against a formidable Western Conference contender.`\
-https://nytimes.com/athletic/6871274/2025/12/07/penguins-shootout-jarry-kindel-stars/
 
