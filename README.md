@@ -1,3 +1,7 @@
+**Tulane expected to promote Will Hall to head coach: Source**\
+`Jon Sumrall will remain Tulane's head coach through the Playoff before heading to Florida, where he was hired last week.`\
+https://nytimes.com/athletic/6872686/2025/12/08/tulane-will-hall-head-coach-jon-sumrall/
+
 **Thai Jets Bomb Cambodia Amid Deadly Border Dispute**\
 `Residents near the Thai-Cambodian border fled as new hostilities left several people dead. The two countries accused each other of firing first, challenging a cease-fire agreement that has been in place since July.`\
 https://nytimes.com/video/world/asia/100000010572865/thai-jets-bomb-cambodia-amid-deadly-border-dispute.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/12/08/us/trump-supreme-court-presidential-power/he
 **Live Updates: Supreme Court to Consider Trump’s Power to Fire Independent Officials**\
 `A Trump victory could expand presidential power and affect over two dozen agencies beyond the Federal Trade Commission.`\
 https://nytimes.com/live/2025/12/08/us/trump-supreme-court-presidential-power
-
-**Inside Real Madrid: A dramatic defeat puts Xabi Alonso's position in serious danger**\
-`Sunday night's 2-0 home defeat by Celta Vigo seriously increased the pressure on the 44-year-old manager`\
-https://nytimes.com/athletic/6872367/2025/12/08/inside-real-madrid-xabi-alonso-celta-la-liga-defeat/
 
