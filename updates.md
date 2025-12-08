@@ -1,3 +1,15 @@
+**These Independent Agencies Could Be Affected by a Supreme Court Case**\
+`Court filings identify more than two-dozen quasi-independent boards and commissions that could be affected by a Supreme Court ruling in President Trump’s favor.`\
+https://nytimes.com/2025/12/08/us/politics/agencies-independent-boards.html
+
+**Paramount Makes Hostile Bid for Warner Bros. Discovery**\
+`The offer to shareholders comes days after Warner Bros. agreed to sell its streaming and studio business to Netflix.`\
+https://nytimes.com/2025/12/08/business/paramount-warner-bros-discovery-netflx.html
+
+**Colin Allred Drops Out of Democratic Primary for U.S. Senate in Texas**\
+`His departure came as Representative Jasmine Crockett, a combative rising star in the party, appeared likely to announce her own Senate run soon.`\
+https://nytimes.com/2025/12/08/us/colin-allred-senate-texas-primary.html
+
 **Does Trump need a reason to fire leaders of independent agencies?**\
 `Scores of federal laws limit the president’s ability to fire officials like members of the Federal Trade Commission and governors of the Federal Reserve Board.`\
 https://nytimes.com/live/2025/12/08/us/trump-supreme-court-presidential-power/trump-fire-independent-agency-leaders
