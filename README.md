@@ -1,3 +1,11 @@
+**Minnesota WBB was 99.9% likely to win with 47 seconds left. It lost.**\
+`Maryland kept its undefeated season alive in the most dramatic of ways.`\
+https://nytimes.com/athletic/6873530/2025/12/08/minnesota-maryland-womens-basketball-loss/
+
+**USA star Pulisic scores twice off bench in Milan's comeback vs. Torino**\
+`Pulisic warded off an illness to score twice off the bench for AC Milan and tie for the league lead in goals`\
+https://nytimes.com/athletic/6873813/2025/12/08/christian-pulisic-goal-video-ac-milan-torino-usmnt/
+
 **Trump Backtracks on Releasing Video of Boat Strike**\
 `The president said he would defer to his defense secretary, Pete Hegseth, on whether to release a video showing a follow-up attack that killed survivors of a Sept. 2 strike on an alleged drug smuggling boat.`\
 https://nytimes.com/2025/12/08/us/politics/trump-boat-strike-video-hegseth.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6873483/2025/12/08/vanderbilt-notre-dame-bowl-cfp/
 **The Second ‘China Shock’**\
 `Chinese exports are flooding the developing world, and the social consequences are bound to be profound.`\
 https://nytimes.com/2025/12/08/world/china-trade-asia-gaza-thailand-cambodia.html
-
-**John Harbaugh critiques 'clear as mud' catch rules after two reversed calls in loss to Steelers**\
-`"They are very hard to understand how they got overturned, but they did and that's where it stands," Harbaugh said of the two key reversals.`\
-https://nytimes.com/athletic/6873531/2025/12/08/harbaugh-comments-ravens-steelers-officiating-nfl/
-
-**Slot has 'no clue' if Salah will play for Liverpool again**\
-`"Usually I’m calm and I’m polite but that doesn’t mean I am weak," Slot said on his handling of the situation.`\
-https://nytimes.com/athletic/6873682/2025/12/08/mohamed-salah-arne-slot-liverpool-future/
 
