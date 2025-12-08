@@ -1,3 +1,11 @@
+**Does Trump need a reason to fire leaders of independent agencies?**\
+`Scores of federal laws limit the president’s ability to fire officials like members of the Federal Trade Commission and governors of the Federal Reserve Board.`\
+https://nytimes.com/live/2025/12/08/us/trump-supreme-court-presidential-power/trump-fire-independent-agency-leaders
+
+**Trump Says Netflix Takeover of Warner Bros. ‘Could Be a Problem’**\
+`The fate of the blockbuster Hollywood deal is in the hands of federal regulators.`\
+https://nytimes.com/2025/12/08/us/politics/trump-netflix-warner-bros-antitrust.html
+
 **Who Is Rebecca Slaughter?**\
 `Ms. Slaughter, a Democratic member of the Federal Trade Commission, sued President Trump after he fired her because she did not align with his agenda.`\
 https://nytimes.com/2025/12/08/us/politics/rebecca-slaughter.html

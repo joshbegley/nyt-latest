@@ -1,3 +1,11 @@
+**Does Trump need a reason to fire leaders of independent agencies?**\
+`Scores of federal laws limit the president’s ability to fire officials like members of the Federal Trade Commission and governors of the Federal Reserve Board.`\
+https://nytimes.com/live/2025/12/08/us/trump-supreme-court-presidential-power/trump-fire-independent-agency-leaders
+
+**Trump Says Netflix Takeover of Warner Bros. ‘Could Be a Problem’**\
+`The fate of the blockbuster Hollywood deal is in the hands of federal regulators.`\
+https://nytimes.com/2025/12/08/us/politics/trump-netflix-warner-bros-antitrust.html
+
 **Who Is Rebecca Slaughter?**\
 `Ms. Slaughter, a Democratic member of the Federal Trade Commission, sued President Trump after he fired her because she did not align with his agenda.`\
 https://nytimes.com/2025/12/08/us/politics/rebecca-slaughter.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6872480/2025/12/08/joey-barton-sentence-aluko-vine-
 **Nasser Hussain: 'England's players will not like what they hear, but Ben Stokes must deliver harsh truths'**\
 `The England captain needs to ascertain whether his players have the strength of character and adaptability to turn the Ashes series around`\
 https://nytimes.com/athletic/6872288/2025/12/08/nasser-hussain-stokes-england-ashes/
-
-**Golden Globes 2026: The Full List of Nominees**\
-`The movies and TV series competing for the 83rd Golden Globes. The ceremony will air on Jan. 11.`\
-https://nytimes.com/2025/12/08/movies/golden-globes-nominees-2026-list.html
-
-**Madrid fear Militao four-month layoff with hamstring injury**\
-`The centre-back was substituted in the first half of what was Madrid's first home league loss of the season on Sunday.`\
-https://nytimes.com/athletic/6872416/2025/12/08/militao-injury-real-madrid-news/
 
