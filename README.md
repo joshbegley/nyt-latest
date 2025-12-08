@@ -1,5 +1,13 @@
+**Liam Coen's Jaguars are playing with an edge and are in control in the AFC South**\
+`The Jaguars may have been overlooked most of this season, but Coen is just OK with that as his team moved into first place.`\
+https://nytimes.com/athletic/6871123/2025/12/07/jaguars-liam-coeh-afc-south-playoffs-colts/
+
+**BYU expresses frustration, argues resume is better than Miami, Notre Dame**\
+`The Cougars fell one spot after falling to Texas Tech. On the other hand, Alabama remained at No. 9 after an SEC championship defeat. `\
+https://nytimes.com/athletic/6871131/2025/12/07/byu-calls-out-cfp-committee-better-metrics/
+
 **Changes sure to be coming for Falcons after embarrassing loss, but who, what and when?**\
-`The Falcons fell to 4-9 with Sunday's ugly 37-9 loss. What changes could we see over the final four games? Or this offseason?`\
+`The Falcons fell to 4-9 and were booed in Sunday's 37-9 loss. What changes could we see over the final four games? Or this offseason?`\
 https://nytimes.com/athletic/6871060/2025/12/07/seahawks-falcons-embarrassing-loss-raheem-morris/
 
 **Nebraska hiring San Diego State's Rob Aurich as defensive coordinator: Source**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/07/nyregion/queens-migrant-boy-detained-rally.html
 **How did Tulane and James Madison end up in the College Football Playoff?**\
 `Thanks to an ACC tiebreaker, James Madison earned a bid to the College Football Playoff.`\
 https://nytimes.com/athletic/6870381/2025/12/07/tulane-james-madison-college-football-playoff-group-of-five/
-
-**Madrid suffer shock home loss to Celta Vigo as Militao goes off injured**\
-`The centre-back was forced off around the 24th minute of Madrid's first league loss at the Bernabeu this season.`\
-https://nytimes.com/athletic/6870697/2025/12/07/real-madrid-celta-vigo-militao-injury-alonso/
-
-**Hardest to Find**\
-`Get into Dan Kammann and Zhouqin Burnikel’s crossword.`\
-https://nytimes.com/2025/12/07/crosswords/daily-puzzle-2025-12-08.html
 
