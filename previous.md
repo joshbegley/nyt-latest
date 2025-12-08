@@ -1,3 +1,11 @@
+**‘The End of an Era,’ and 7 Other Things to Watch on TV This Week**\
+`The first two episodes of Taylor Swift’s documentary series air, and “South Park” wraps up its 28th season.`\
+https://nytimes.com/2025/12/08/arts/television/the-end-of-an-era-and-7-other-things-to-watch-on-tv-this-week.html
+
+**The New York Times in Print for Monday, Dec. 8, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/12/08/todays-new-york-times
+
 **Firefighter Is Killed as Multiple Wildfires Burn in Australia**\
 `The firefighter died after being struck by a tree. Dozens of homes in two states have been lost as hot, windy conditions point to a challenging fire season.`\
 https://nytimes.com/2025/12/08/world/australia/firefighter-dies-bushfires.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6870299/2025/12/08/chelsea-women-defeat-everton-wsl
 **Brighton are starting to miss Mitoma and Hurzeler is running out of answers**\
 `The absence of the Japan winger is starting to show while others, such as Baleba, are looking below par`\
 https://nytimes.com/athletic/6857942/2025/12/08/kaoru-mitoma-brighton-injury/
-
-**This was supposed to be Farke's worst week at Leeds. It could be the making of him**\
-`Leeds have eased the pressure on their manager - three fixtures that looked daunting have instead brought performances and points`\
-https://nytimes.com/athletic/6869164/2025/12/08/leeds-daniel-farke-week-city-chelsea-liverpool/
-
-**Thierno Barry. Premier League goalscorer. Finally**\
-`The French striker has endured near misses aplenty since arriving from Villarreal in the summer, but his moment finally came against Forest`\
-https://nytimes.com/athletic/6868408/2025/12/08/thierno-barry-everton-goalscorer/
 

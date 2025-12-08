@@ -1,3 +1,11 @@
+**‘The End of an Era,’ and 7 Other Things to Watch on TV This Week**\
+`The first two episodes of Taylor Swift’s documentary series air, and “South Park” wraps up its 28th season.`\
+https://nytimes.com/2025/12/08/arts/television/the-end-of-an-era-and-7-other-things-to-watch-on-tv-this-week.html
+
+**The New York Times in Print for Monday, Dec. 8, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/12/08/todays-new-york-times
+
 **Firefighter Is Killed as Multiple Wildfires Burn in Australia**\
 `The firefighter died after being struck by a tree. Dozens of homes in two states have been lost as hot, windy conditions point to a challenging fire season.`\
 https://nytimes.com/2025/12/08/world/australia/firefighter-dies-bushfires.html
