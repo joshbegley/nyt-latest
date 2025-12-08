@@ -1,3 +1,7 @@
+**4 Russian Soldiers Sentenced to Prison for Killing Texan Who Fought for Moscow**\
+`Russell Bonner Bentley III, 64, who was living in the occupied Donbas region of Ukraine, was beaten and tortured to death after he was suspected of being an American saboteur, investigators said.`\
+https://nytimes.com/2025/12/08/world/europe/russia-soldiers-sentence-murder-texas.html
+
 **The Briefing: Wolves 1 Manchester United 4 - Fernandes' double and AFCON-bound players impress**\
 `Carl Anka analyses the main talking points from Manchester United's victory at Molineux`\
 https://nytimes.com/athletic/6867158/2025/12/08/wolves-manchester-united-analysis-premier-league/
@@ -29,8 +33,4 @@ https://nytimes.com/video/opinion/100000010573151/america-must-prepare-for-the-f
 **G.O.P. Senators Push Health Care Options as Vote Looms**\
 `The Senate is set to vote later this week on a three-year extension of Affordable Care Act subsidies that Republicans oppose. The G.O.P. has yet to coalesce around an alternative.`\
 https://nytimes.com/2025/12/08/us/politics/obamacare-subsidy-vote-aca.html
-
-**Minnesota WBB was 99.9% likely to win with 47 seconds left. It lost.**\
-`Maryland kept its undefeated season alive in the most dramatic of ways.`\
-https://nytimes.com/athletic/6873530/2025/12/08/minnesota-maryland-womens-basketball-loss/
 
