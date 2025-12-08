@@ -14,8 +14,8 @@ https://nytimes.com/athletic/6872480/2025/12/08/joey-barton-sentence-aluko-vine-
 `The England captain needs to ascertain whether his players have the strength of character and adaptability to turn the Ashes series around`\
 https://nytimes.com/athletic/6872288/2025/12/08/nasser-hussain-stokes-england-ashes/
 
-**Golden Globes Nominees 2026: An Updating List**\
-`The film and television nominees for the ceremony are now being announced.`\
+**Golden Globes 2026: The Full List of Nominees**\
+`The movies and TV series competing for the 83rd Golden Globes. The ceremony will air on Jan. 11.`\
 https://nytimes.com/2025/12/08/movies/golden-globes-nominees-2026-list.html
 
 **Madrid fear Militao four-month layoff with hamstring injury**\
