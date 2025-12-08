@@ -1,3 +1,7 @@
+**On a day of Jets QBs past and present, thoughts of Fernando Mendoza as QB of the future**\
+`An injury to Tyrod Taylor forced undrafted rookie Brady Cook into the lineup for a blowout loss to the Dolphins.`\
+https://nytimes.com/athletic/6871358/2025/12/07/new-york-jets-miami-dolphins-loss-fernando-mendoza-draft/
+
 **Packers move into first place in NFC North with key win over Bears: Takeaways**\
 `After beating the Bears on Sunday, the Packers now leapfrog Chicago to sit atop the NFC North entering Week 15.`\
 https://nytimes.com/athletic/6871016/2025/12/07/bears-packers-score-result-takeaways-nfl/

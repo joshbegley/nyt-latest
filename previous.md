@@ -1,3 +1,7 @@
+**On a day of Jets QBs past and present, thoughts of Fernando Mendoza as QB of the future**\
+`An injury to Tyrod Taylor forced undrafted rookie Brady Cook into the lineup for a blowout loss to the Dolphins.`\
+https://nytimes.com/athletic/6871358/2025/12/07/new-york-jets-miami-dolphins-loss-fernando-mendoza-draft/
+
 **Packers move into first place in NFC North with key win over Bears: Takeaways**\
 `After beating the Bears on Sunday, the Packers now leapfrog Chicago to sit atop the NFC North entering Week 15.`\
 https://nytimes.com/athletic/6871016/2025/12/07/bears-packers-score-result-takeaways-nfl/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6871186/2025/12/07/commanders-blowout-loss-vikings/
 **The Seahawks know what’s coming. Here’s how they proved it in a romp over the Falcons**\
 `Mike Macdonald called Rashid Shaheed's TD, while Nick Emmanwori and Devon Witherspoon seemed to know exactly where the ball was going.`\
 https://nytimes.com/athletic/6871120/2025/12/07/seahawks-falcons-nick-emmanwori-devon-witherspoon/
-
-**Vannini: Notre Dame's bowl opt-out crosses a new line in college football**\
-`Notre Dame may be upset, but the point of playing football is to play football.`\
-https://nytimes.com/athletic/6871180/2025/12/07/notre-dame-bowl-college-football/
 
