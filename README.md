@@ -1,3 +1,15 @@
+**Trump Looms Over Netflix’s Deal for Warner Bros. Discovery**\
+`President Trump said the acquisition “could be a problem,” suggesting he will insert himself into the regulatory review of the transaction.`\
+https://nytimes.com/2025/12/08/business/dealbook/trump-effect-netflix-warner-bros.html
+
+**Barton given suspended sentence, restraining orders over social media posts**\
+`The former Premier League player was also ordered to pay prosecution costs of £23,419 during Monday's sentencing. `\
+https://nytimes.com/athletic/6872480/2025/12/08/joey-barton-sentence-aluko-vine-social-media/
+
+**Nasser Hussain: 'England's players will not like what they hear, but Ben Stokes must deliver harsh truths'**\
+`The England captain needs to ascertain whether his players have the strength of character and adaptability to turn the Ashes series around`\
+https://nytimes.com/athletic/6872288/2025/12/08/nasser-hussain-stokes-england-ashes/
+
 **Golden Globes Nominees 2026: An Updating List**\
 `The film and television nominees will be announced on Monday.`\
 https://nytimes.com/2025/12/08/movies/golden-globes-nominees-2026-list.html
@@ -14,7 +26,7 @@ https://nytimes.com/athletic/6872327/2025/12/08/bulls-losing-streak-billy-donova
 `This year's College Football Playoff field defied expectations in several ways. Here's what you need to know about the 12 teams.`\
 https://nytimes.com/athletic/6871163/2025/12/08/college-football-playoff-teams-guides-odds/
 
-**Trump Administration Live Updates: Zelensky to Meet European Leaders to Discuss U.S.-Backed Peace Talks**\
+**Trump Administration Live Updates: Zelensky Meets European Leaders to Discuss U.S.-Backed Peace Talks**\
 ``\
 https://nytimes.com/live/2025/12/08/us/trump-news
 
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6871867/2025/12/08/max-verstappen-f1-championship-s
 **USA coach Pochettino says patriotic ‘emotion of the people’ can inspire World Cup run**\
 `Home advantage can be a key factor for the Americans, as it has been for previous World Cup hosts.`\
 https://nytimes.com/athletic/6871924/2025/12/08/usa-pochettino-world-cup-emotion/
-
-**The Athletic 136: The case for Miami, then Notre Dame, then Alabama**\
-`If the committee had followed my ranking process and my results, they could have avoided many of their problems.`\
-https://nytimes.com/athletic/6872487/2025/12/08/college-football-team-rankings-fbs-cfp-postseason/
-
-**Trump Says That Netflix’s Warner Bros. Deal ‘Could Be a Problem’**\
-`President Trump said on Sunday that Netflix’s proposed $83 billion merger with Warner Bros. “could be a problem” because it involves “a very big market share.”`\
-https://nytimes.com/video/business/media/100000010572829/trump-says-that-netflixs-warner-bros-deal-could-be-a-problem.html
-
-**Neymar says he will undergo knee surgery before deciding on Santos future**\
-`The Brazil international said his mental state was "at zero" but his focus is now on the 2026 World Cup. `\
-https://nytimes.com/athletic/6872472/2025/12/08/neymar-news-transfer-brazil-santos-surgery/
 
