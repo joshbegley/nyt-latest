@@ -1,3 +1,7 @@
+**Why Democratic Governors Argue They Are the Party’s Best Shot for 2028**\
+`A long list of people could test that theory, though governors have struggled to make the leap to presidential nominations in recent years.`\
+https://nytimes.com/2025/12/08/us/politics/democratic-governors-dga-2028.html
+
 **Notre Dame AD says ACC did 'permanent damage' to relationship with school**\
 `“We didn’t appreciate the fact that we were singled out repeatedly and compared to Miami,” Bevacqua said.`\
 https://nytimes.com/athletic/6873919/2025/12/08/notre-dame-pete-bevacqua-acc-relationship/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6873802/2025/12/08/iihf-olympic-hockey-rink-size/
 **N.Y. Archdiocese Will Negotiate Sex-Abuse Settlement for 1,300 Accusers**\
 `The archdiocese and its accusers have agreed on a mediator. The archdiocese will raise $300 million to fund the settlement.`\
 https://nytimes.com/2025/12/08/nyregion/ny-archdiocese-sex-abuse-settlement.html
-
-**4 Russian Soldiers Sentenced to Prison for Killing Texan Who Fought for Moscow**\
-`Russell Bonner Bentley III, 64, who was living in the occupied Donbas region of Ukraine, was beaten and tortured to death after he was suspected of being an American saboteur, investigators said.`\
-https://nytimes.com/2025/12/08/world/europe/russia-soldiers-sentence-murder-texas.html
 

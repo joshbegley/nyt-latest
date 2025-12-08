@@ -1,3 +1,7 @@
+**Why Democratic Governors Argue They Are the Party’s Best Shot for 2028**\
+`A long list of people could test that theory, though governors have struggled to make the leap to presidential nominations in recent years.`\
+https://nytimes.com/2025/12/08/us/politics/democratic-governors-dga-2028.html
+
 **Notre Dame AD says ACC did 'permanent damage' to relationship with school**\
 `“We didn’t appreciate the fact that we were singled out repeatedly and compared to Miami,” Bevacqua said.`\
 https://nytimes.com/athletic/6873919/2025/12/08/notre-dame-pete-bevacqua-acc-relationship/
