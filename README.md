@@ -31,7 +31,7 @@ https://nytimes.com/athletic/6871295/2025/12/07/pirates-kyle-schwarber-free-agen
 https://nytimes.com/athletic/6871143/2025/12/07/vikings-jj-mccarthy-career-best-commanders/
 
 **Matthew Stafford, Rams' offense roll against Cardinals: Takeaways**\
-`Los Angeles rushed for nearly 250 yards in a dominant win against the Cardinals`\
+`Los Angeles rushed for nearly 250 yards in a dominant win against the Cardinals.`\
 https://nytimes.com/athletic/6871116/2025/12/07/rams-cardinals-score-result-takeaways-nfl/
 
 **Broncos-Raiders takeaways: Marvin Mims Jr. TD return sparks Broncos win**\
