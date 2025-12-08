@@ -1,3 +1,19 @@
+**Rams-Cardinals takeaways: Stafford, Los Angeles' offense roll in Arizona**\
+`Los Angeles rushed for nearly 250 yards in a dominant win against the Cardinals`\
+https://nytimes.com/athletic/6871116/2025/12/07/rams-cardinals-score-result-takeaways-nfl/
+
+**Broncos-Raiders takeaways: Marvin Mims Jr. TD return sparks Broncos win**\
+`The Broncos moved to 11-2, maintaining their standing atop the AFC alongside the New England Patriots.`\
+https://nytimes.com/athletic/6871088/2025/12/07/broncos-raiders-score-result-takeaways-nfl/
+
+**Vannini: Notre Dame's bowl opt-out crosses a new line in college football**\
+`Notre Dame may be upset, but the point of playing football is to play football.`\
+https://nytimes.com/athletic/6871180/2025/12/07/notre-dame-bowl-college-football/
+
+**Jeff Kent elected to the Hall of Fame; Bonds, Clemens fall way short**\
+`Kent was one of the best-hitting second basemen in MLB history. He is the only person elected off the Contemporary Baseball Era ballot.`\
+https://nytimes.com/athletic/6871232/2025/12/07/jeff-kent-hall-of-fame-contemporary-baseball-era-committee/
+
 **How did the Commanders describe their latest low? Baffling. Enraging. Unacceptable**\
 `The Commanders were eliminated from playoff contention on Sunday, but that was far from the worst part of their day.`\
 https://nytimes.com/athletic/6871186/2025/12/07/commanders-blowout-loss-vikings/
