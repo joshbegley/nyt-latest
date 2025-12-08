@@ -1,3 +1,7 @@
+**Shedeur Sanders to remain Browns' starter for rest of season**\
+`Sanders is 1-2 in his three starts and has thrown for a total of 722 yards, five touchdowns and two interceptions. `\
+https://nytimes.com/athletic/6873270/2025/12/08/shedeur-sanders-browns-starting-quarterback/
+
 **Shedeur Sanders to remain Browns' starter for rest of season, coach Kevin Stefanski says**\
 `Sanders is 1-2 in his three starts and has thrown for a total of 722 yards, five touchdowns and two interceptions. `\
 https://nytimes.com/athletic/6873270/2025/12/08/shedeur-sanders-browns-starting-quarterback/
