@@ -1,3 +1,11 @@
+**Colts to work out QB Philip Rivers, 44, in wake of Daniel Jones' injury**\
+`The eight-time Pro Bowler hasn't played since 2020 when he led the Colts to their last playoff appearance.`\
+https://nytimes.com/athletic/6874207/2025/12/08/philip-rivers-colts-visit-return-nfl/
+
+**Shane Baz emerges as one target in Astros' search for starting pitching: Sources**\
+`The Astros have expressed interest in Rays starter Shane Baz, a Houston native. The 26-year-old has three more seasons of club control.`\
+https://nytimes.com/athletic/6874175/2025/12/08/shane-baz-astros-pitching-search/
+
 **Trump Insists Tariffs Will Buoy the Economy. For Now, He’s on Damage Control.**\
 `The president rolled out a $12 billion bailout for farmers as he makes the case that his policy is working — or will soon.`\
 https://nytimes.com/2025/12/08/us/politics/trump-trade-affordability.html
