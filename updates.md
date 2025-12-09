@@ -1,3 +1,7 @@
+**When the Phone Number in That TV Show Actually Connects Somewhere**\
+`Passing on the classic 555 number, “Stranger Things” is the latest show to offer Easter eggs for viewers who try to call a fictional character.`\
+https://nytimes.com/2025/12/09/arts/television/phone-number-stranger-things.html
+
 **The Territorial Sticking Point Between Russia and Ukraine**\
 `The Kremlin says any peace deal must cede to Russia the entire eastern Donbas region, including territory Ukraine still controls — a nonstarter for Kyiv.`\
 https://nytimes.com/2025/12/09/world/europe/ukraine-maps-russia-territory.html

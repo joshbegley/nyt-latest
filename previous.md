@@ -1,3 +1,7 @@
+**When the Phone Number in That TV Show Actually Connects Somewhere**\
+`Passing on the classic 555 number, “Stranger Things” is the latest show to offer Easter eggs for viewers who try to call a fictional character.`\
+https://nytimes.com/2025/12/09/arts/television/phone-number-stranger-things.html
+
 **The Territorial Sticking Point Between Russia and Ukraine**\
 `The Kremlin says any peace deal must cede to Russia the entire eastern Donbas region, including territory Ukraine still controls — a nonstarter for Kyiv.`\
 https://nytimes.com/2025/12/09/world/europe/ukraine-maps-russia-territory.html
@@ -29,8 +33,4 @@ https://nytimes.com/video/the-athletic/100000010575641/inside-a-camp-for-aspirin
 **U.S. Men’s Soccer Players on Preparing for World Cup 2026**\
 `Matt Turner and Matt Freese discuss how the team is getting ready for the World Cup.`\
 https://nytimes.com/video/the-athletic/100000010575609/us-mens-soccer-players-on-preparing-for-world-cup-2026.html
-
-**‘Voodoo Rituals’ and Banana Wars: U.S. Military Action in Latin America**\
-`The United States’ history in the region includes several about-faces, contradictions and missteps.`\
-https://nytimes.com/2025/12/09/us/politics/military-history-latin-america-strikes.html
 
