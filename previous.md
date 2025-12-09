@@ -1,3 +1,7 @@
+**Is Saturated Fat Actually Good for You?**\
+`Health experts have long recommended limiting it, but Robert F. Kennedy Jr. has signaled a shift in that advice.`\
+https://nytimes.com/2025/12/09/well/eat/saturated-fat-health-risks-dietary-guidelines.html
+
 **The Bounce: NBA Cup elimination is here. So are our Western Conference grades**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/6875582/2025/12/09/nba-cup-elimination-west-grades-kumingathe-bounce/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6875439/2025/12/09/fantasy-football-week-15-drops-j
 **Broncos' massive matchup with Packers has big playoff implications at stake**\
 `The Broncos can't clinch the AFC West in Week 15, but they could boost their odds of capturing No. 1 seed with win vs. Green Bay.`\
 https://nytimes.com/athletic/6875302/2025/12/09/broncos-playoff-implications-packers/
-
-**Helmut Marko to leave Red Bull at end of the year**\
-`The 82-year-old Austrian has been an advisor to Red Bull Racing since it joined the F1 grid in 2005.`\
-https://nytimes.com/athletic/6875514/2025/12/09/helmut-marko-red-bull-exit/
 

@@ -1,3 +1,7 @@
+**Is Saturated Fat Actually Good for You?**\
+`Health experts have long recommended limiting it, but Robert F. Kennedy Jr. has signaled a shift in that advice.`\
+https://nytimes.com/2025/12/09/well/eat/saturated-fat-health-risks-dietary-guidelines.html
+
 **The Bounce: NBA Cup elimination is here. So are our Western Conference grades**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/6875582/2025/12/09/nba-cup-elimination-west-grades-kumingathe-bounce/
