@@ -1,3 +1,7 @@
+**Phillies extend manager Rob Thomson through 2027 season**\
+`The extension cements the Phillies' faith in Thomson, who has led the team to back-to-back NL East titles but also two straight NLDS exits.`\
+https://nytimes.com/athletic/6875892/2025/12/09/rob-thomson-phillies-contract-extension-2027/
+
 **Trump’s Bleak View of the World**\
 `Readers discuss the Trump administration’s National Security Strategy. Also: Hollywood and culture; fighting in a family.`\
 https://nytimes.com/2025/12/09/opinion/trump-national-security-strategy.html
