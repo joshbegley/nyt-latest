@@ -1,9 +1,29 @@
+**How to watch Maryland-Eastern Shore vs. Virginia men's basketball: Time, TV, streaming**\
+`Find out how to watch the Maryland-Eastern Shore Hawks play the Virginia Cavaliers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6875800/2025/12/09/maryland-eastern-shore-vs-virginia-stream-how-to-watch-dec-9/
+
+**How to watch Clemson vs. BYU men's basketball: Time, TV, streaming**\
+`Find out how to watch the Clemson Tigers play the BYU Cougars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6875798/2025/12/09/clemson-vs-byu-stream-how-to-watch-dec-9/
+
+**How to watch Villanova vs. Michigan men's basketball: Time, TV, streaming**\
+`Find out how to watch the Villanova Wildcats play the Michigan Wolverines, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6875795/2025/12/09/villanova-vs-michigan-stream-how-to-watch-dec-9/
+
+**Kyle Schwarber, Will Smith among players added to 2026 USA WBC roster**\
+`Schwarber is one of the key players announced Tuesday for a squad looking to avenge their 2023 gold medal game loss.`\
+https://nytimes.com/athletic/6875699/2025/12/09/kyle-schwarber-usa-2026-world-baseball-classic/
+
+**NFL MVP odds: Drake Maye, Josh Allen on collision course in Week 15**\
+`Matthew Stafford and Drake Maye are the indisputable favorites for MVP. But with Josh Allen up next for Maye, could odds shift?`\
+https://nytimes.com/athletic/6873277/2025/12/09/nfl-mvp-odds-drake-maye-josh-allen/
+
 **Jerry Jones not concerned about George Pickens' effort, appreciates his intensity**\
-`"Pickens brings everything to the table," the Cowboys owner said after the receiver received criticism after the loss to Detroit.`\
+`"Pickens brings everything to the table," Jones said after Pickens received criticism following Dallas' loss to Detroit.`\
 https://nytimes.com/athletic/6875607/2025/12/09/cowboys-george-pickens-jerry-jones-support/
 
-**Tyrese Haliburton is excited to join 'NBA on Prime' as player contributor**\
-`Haliburton said he looks forward to joining players he’s admired while putting the game in a positive light.`\
+**Tyrese Haliburton joining 'NBA on Prime,' will focus on 'positivity' around game**\
+`The two-time All-Star hopes to be a voice that not only celebrates the NBA but helps fans understand the game and its players.`\
 https://nytimes.com/athletic/6874158/2025/12/09/tyrese-haliburton-nba-amazon-prime-pacers/
 
 **Drance: Why apathy growing around Canucks is more dangerous than the losing**\
@@ -13,24 +33,4 @@ https://nytimes.com/athletic/6875015/2025/12/09/vancouver-canucks-standings-red-
 **Ranking New Holiday Specials From ‘Family Guy,’ ‘Fraggle Rock’ and More**\
 `Top picks for seasonal TV cheer include concerts from Nashville and the Tabernacle Choir, along with a new “Nutcracker” on PBS.`\
 https://nytimes.com/2025/12/09/arts/television/christmas-holiday-specials-list.html
-
-**A Weeknight-Dinner Personality Test**\
-`Whatever your answers, these five quick, delicious recipes have you covered.`\
-https://nytimes.com/2025/12/09/dining/a-weeknight-dinner-personality-test.html
-
-**Messi wins MLS MVP for second straight season, makes more league history**\
-`Lionel Messi's dominance since arriving in MLS is clear when you dig into the numbers, and he has more silverware to show for it`\
-https://nytimes.com/athletic/6875579/2025/12/09/lionel-messi-mls-mvp-inter-miami/
-
-**Arsenal add Jesus to Champions League squad after Dowman injury**\
-`Jesus was initially not part of Arsenal's squad for the league phase of the competition but has now replaced Max Dowman.`\
-https://nytimes.com/athletic/6875689/2025/12/09/gabriel-jesus-arsenal-dowman-champions-league/
-
-**Ole Miss getting 4 assistants who left for LSU back for Playoff: Source**\
-`Should Ole Miss beat Tulane in the first round, they would then meet Georgia in the Sugar Bowl in New Orleans for a rematch.`\
-https://nytimes.com/athletic/6875645/2025/12/09/ole-miss-lsu-assistant-coaches-playoff/
-
-**Kristen Stewart on Men and Method Acting**\
-`“Have you ever heard of a female actor that was method?” Kristen Stewart, who recently posed that question on “The Interview,” has been acting since she was a child and became a star in her late teens in “Twilight.`\
-https://nytimes.com/video/podcasts/100000010575526/kristen-stewart-on-men-and-method-acting.html
 
