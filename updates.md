@@ -1,3 +1,11 @@
+**Honduran Authorities Issue Arrest Warrant for Ex-President Pardoned by Trump**\
+`The country’s attorney general said he had issued an international arrest warrant for Juan Orlando Hernández.`\
+https://nytimes.com/2025/12/08/world/americas/honduras-hernandez-arrest-warrant.html
+
+**Top N.Y. Cannabis Official Resigns as Major Investigation Is Dropped**\
+`Gov. Kathy Hochul demanded the resignation of the head of New York’s Office of Cannabis Management following the withdrawal of a case against a Long Island-based company.`\
+https://nytimes.com/2025/12/08/nyregion/cannabis-regulators-omnium.html
+
 **Bill Daly says NHL players won’t play in Milan Olympics if ice isn’t safe**\
 `Daly acknowledged being blindsided last week that the International Ice Hockey Federation approved rink dimension smaller than NHL's.`\
 https://nytimes.com/athletic/6874299/2025/12/08/bill-daly-nhl-milan-olympics-rink/
