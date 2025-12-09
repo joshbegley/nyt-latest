@@ -1,3 +1,7 @@
+**Massachusetts Church Keeps Anti-ICE Nativity Scene, Defying Diocese Leaders**\
+`The Christmas display, which replaces Jesus, Mary and Joseph with a sign saying “ICE Was Here,” has drawn criticism from Catholic leaders and immigration officials.`\
+https://nytimes.com/2025/12/08/us/massachusetts-church-ice-nativity-scene.html
+
 **Florida State women's soccer wins third national championship in five years**\
 `Wrianna Hudson scored with three minutes left as the Seminoles won their third title in the past five years.`\
 https://nytimes.com/athletic/6874386/2025/12/08/florida-state-womens-soccer-national-championship-recap-takeaways/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6874445/2025/12/08/red-sox-kristian-campbell-mlb/
 **Why the Mets and free-agent Pete Alonso won't connect at Winter Meetings**\
 `The Baltimore Orioles and Boston Red Sox are among the teams interested in Alonso, league sources said.`\
 https://nytimes.com/athletic/6874479/2025/12/08/pete-alonso-new-york-mets-winter-meetings/
-
-**Propellers of a Shell**\
-`Kate Hawkins remains undecided.`\
-https://nytimes.com/2025/12/08/crosswords/daily-puzzle-2025-12-09.html
 
