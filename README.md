@@ -1,3 +1,11 @@
+**Shedeur Sanders, Fernando Mendoza and the Browns' path to a quarterback**\
+`Given all of the holes in the Browns' lineup, does it really make sense to splurge on a quarterback in the 2026 draft? `\
+https://nytimes.com/athletic/6874723/2025/12/09/browns-shedeur-sanders-fernando-mendoza-nfl-draft/
+
+**Trump Administration Live Updates: President Calls European Nations ‘Weak’ and ‘Decaying’**\
+``\
+https://nytimes.com/live/2025/12/09/us/trump-news
+
 **Molly Ringwald on Why ‘The Breakfast Club’ Is the Greatest Gen X Work of Art**\
 `The actress Molly Ringwald discusses one of the Gen X era’s most defining films, “The Breakfast Club,” in this excerpt from a T Magazine documentary about how the cohort once synonymous with slacking came to leave such an indelible impression on the culture.`\
 https://nytimes.com/video/t-magazine/100000010567988/molly-ringwald-on-why-the-breakfast-club-is-the-greatest-gen-x-work-of-art.html
@@ -25,12 +33,4 @@ https://nytimes.com/2025/12/09/briefing/the-supreme-court-considers-presidential
 **Shota Imanaga's return won't stop Cubs from adding another accomplished starting pitcher**\
 `Cubs president Jed Hoyer is optimistic that Imanaga can regain what made him a dazzling performer in 2024.`\
 https://nytimes.com/athletic/6874533/2025/12/09/cubs-starting-pitching-offseason-shota-imanaga-return/
-
-**Packers' 'gazelle' Christian Watson reaching another level since return from injury**\
-`Watson has five touchdown catches in the last four games for the NFC North-leading Packers.`\
-https://nytimes.com/athletic/6874048/2025/12/09/christian-watson-packers-receiver-bears/
-
-**Erling Haaland vs Kylian Mbappe: Who has been better? And how are they changing?**\
-`Real Madrid and Manchester City's prolific strikers meet again in the Champions League on Tuesday night`\
-https://nytimes.com/athletic/6874943/2025/12/09/haaland-mbappe-champions-league-real-madrid-man-city/
 
