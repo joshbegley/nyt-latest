@@ -1,3 +1,7 @@
+**The Pulse: The Playoff's biggest blunder, according to you**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6873744/2025/12/09/notre-dame-cfp-snub-the-pulse/
+
 **What Ben Johnson saw on the Bears' final drive in their loss to the Packers**\
 `Helping Caleb Williams get off to better starts in games and shoring up the defense right before halftime are among Johnson's priorities.`\
 https://nytimes.com/athletic/6874088/2025/12/09/bears-ben-johnson-loss-to-packers/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6873488/2025/12/09/lions-playoff-chances-week-15-ra
 **Kevin O'Connell's offensive formula worked vs. Commanders — but is it sustainable?**\
 `O'Connell's offensive plan, which simplified things for young quarterback J.J. McCarthy, worked well in the Vikings' Week 14 victory.`\
 https://nytimes.com/athletic/6873881/2025/12/09/vikings-commanders-kevin-oconnell-offense-jj-mccarthy/
-
-**Pulisic can use USMNT World Cup draw to launch himself as an American icon**\
-`Pulisic has the chance of a lifetime to boost his legacy and take the Americans on a deep run with a manageable road ahead`\
-https://nytimes.com/athletic/6874583/2025/12/09/christian-pulisic-world-cup-draw-usmnt/
 

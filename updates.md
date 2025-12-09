@@ -1,3 +1,7 @@
+**The Pulse: The Playoff's biggest blunder, according to you**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6873744/2025/12/09/notre-dame-cfp-snub-the-pulse/
+
 **What Ben Johnson saw on the Bears' final drive in their loss to the Packers**\
 `Helping Caleb Williams get off to better starts in games and shoring up the defense right before halftime are among Johnson's priorities.`\
 https://nytimes.com/athletic/6874088/2025/12/09/bears-ben-johnson-loss-to-packers/
