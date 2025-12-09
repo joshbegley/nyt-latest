@@ -1,3 +1,7 @@
+**The Territorial Sticking Point Between Russia and Ukraine**\
+`The Kremlin says any peace deal must cede to Russia the entire eastern Donbas region, including territory Ukraine still controls — a nonstarter for Kyiv.`\
+https://nytimes.com/2025/12/09/world/europe/ukraine-maps-russia-territory.html
+
 **Appeals court orders new trial in Wander Franco case: Reports**\
 `An appeals court in the Dominican Republic ruled in favor of the Rays shortstop, who received a two-year suspended prison sentence in June.`\
 https://nytimes.com/athletic/6875587/2025/12/09/wander-franco-rays-trial/
