@@ -1,3 +1,7 @@
+**Appeals court orders new trial in Wander Franco case: Reports**\
+`An appeals court in the Dominican Republic ruled in favor of the Rays shortstop, who received a two-year suspended prison sentence in June.`\
+https://nytimes.com/athletic/6875587/2025/12/09/wander-franco-rays-trial/
+
 **Chez Ma Tante’s Pancakes**\
 `At the Brooklyn restaurant Chez Ma Tante, the brunch pancakes come two to an order, big as dessert plates and almost burnt. Chef de cuisine Jake Leiber shares the recipe for their renowned pancakes.`\
 https://nytimes.com/video/dining/100000010575708/chez-ma-tantes-pancakes.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/09/us/politics/military-history-latin-america-strike
 **DéLana R.A. Dameron, Writer of the Black South, Dies at 40**\
 `An award-winning poet and writer of fiction, she moonlighted as a competitive horsewoman and owned a horse farm outside Columbia, S.C.`\
 https://nytimes.com/2025/12/09/books/delana-ra-dameron-dead.html
-
-**Reader survey: Submit your College Football Playoff bracket picks here!**\
-`Weigh in with your College Football Playoff predictions here to form our reader' consensus bracket.`\
-https://nytimes.com/athletic/6875880/2025/12/09/college-football-playoff-bracket-predictions-submit-your-picks-here/
 

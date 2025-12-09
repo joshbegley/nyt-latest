@@ -1,3 +1,7 @@
+**Appeals court orders new trial in Wander Franco case: Reports**\
+`An appeals court in the Dominican Republic ruled in favor of the Rays shortstop, who received a two-year suspended prison sentence in June.`\
+https://nytimes.com/athletic/6875587/2025/12/09/wander-franco-rays-trial/
+
 **Chez Ma Tante’s Pancakes**\
 `At the Brooklyn restaurant Chez Ma Tante, the brunch pancakes come two to an order, big as dessert plates and almost burnt. Chef de cuisine Jake Leiber shares the recipe for their renowned pancakes.`\
 https://nytimes.com/video/dining/100000010575708/chez-ma-tantes-pancakes.html

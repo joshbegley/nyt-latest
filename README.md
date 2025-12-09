@@ -1,3 +1,7 @@
+**The Territorial Sticking Point Between Russia and Ukraine**\
+`The Kremlin says any peace deal must cede to Russia the entire eastern Donbas region, including territory Ukraine still controls — a nonstarter for Kyiv.`\
+https://nytimes.com/2025/12/09/world/europe/ukraine-maps-russia-territory.html
+
 **Appeals court orders new trial in Wander Franco case: Reports**\
 `An appeals court in the Dominican Republic ruled in favor of the Rays shortstop, who received a two-year suspended prison sentence in June.`\
 https://nytimes.com/athletic/6875587/2025/12/09/wander-franco-rays-trial/
@@ -29,8 +33,4 @@ https://nytimes.com/video/the-athletic/100000010575609/us-mens-soccer-players-on
 **‘Voodoo Rituals’ and Banana Wars: U.S. Military Action in Latin America**\
 `The United States’ history in the region includes several about-faces, contradictions and missteps.`\
 https://nytimes.com/2025/12/09/us/politics/military-history-latin-america-strikes.html
-
-**DéLana R.A. Dameron, Writer of the Black South, Dies at 40**\
-`An award-winning poet and writer of fiction, she moonlighted as a competitive horsewoman and owned a horse farm outside Columbia, S.C.`\
-https://nytimes.com/2025/12/09/books/delana-ra-dameron-dead.html
 
