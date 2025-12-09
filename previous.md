@@ -1,3 +1,11 @@
+**No one is in charge of CFB. That's why Notre Dame (and others) blame everyone but themselves**\
+`Everyone in college football wants a cookie, and they're throwing a tantrum until they get their dessert. `\
+https://nytimes.com/athletic/6873385/2025/12/09/notre-dame-blame-game-college-football-era/
+
+**The ACC got lucky on CFP selection day. It can't put itself in that situation again**\
+`Here's how the ACC can fix its tiebreakers system to make sure its near miss on selection Sunday doesn't happen again.`\
+https://nytimes.com/athletic/6870958/2025/12/09/acc-college-football-playoff-miami-virginia-duke/
+
 **What rookies Shedeur Sanders, Cam Ward, Tyler Shough showed us: Week 14 film review**\
 `The three rookie QBs displayed upside on Sunday. Also, the Jaguars and Texans' strengths in the AFC South race.`\
 https://nytimes.com/athletic/6874034/2025/12/09/shedeur-sanders-cam-ward-tyler-shough-film-review/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6874088/2025/12/09/bears-ben-johnson-loss-to-packer
 **Troy Aikman's guiding principle for 'Monday Night Football': 'I try to be fair'**\
 `In an interview, the longtime NFL analyst covered a range of topics, including analytics, Lane Kiffin and slinging the ball at age 59.`\
 https://nytimes.com/athletic/6869981/2025/12/09/troy-aikman-espn-mnfl-nfl-joe-buck/
-
-**Cowboys would like to figure out their early-game scoring issues and deficits**\
-`In the Cowboys’ 13 games this season, their opponents have scored first 10 times.`\
-https://nytimes.com/athletic/6874334/2025/12/09/cowboys-first-quarter-scoring-struggles/
-
-**'It's all in our hands': Panthers return from bye tied for first in NFC South**\
-`Carolina has a division rematch against New Orleans this week and still has both meetings remaining against Tampa Bay.`\
-https://nytimes.com/athletic/6873861/2025/12/09/panthers-playoff-chances-saints-week-15/
 

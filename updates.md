@@ -1,3 +1,11 @@
+**No one is in charge of CFB. That's why Notre Dame (and others) blame everyone but themselves**\
+`Everyone in college football wants a cookie, and they're throwing a tantrum until they get their dessert. `\
+https://nytimes.com/athletic/6873385/2025/12/09/notre-dame-blame-game-college-football-era/
+
+**The ACC got lucky on CFP selection day. It can't put itself in that situation again**\
+`Here's how the ACC can fix its tiebreakers system to make sure its near miss on selection Sunday doesn't happen again.`\
+https://nytimes.com/athletic/6870958/2025/12/09/acc-college-football-playoff-miami-virginia-duke/
+
 **What rookies Shedeur Sanders, Cam Ward, Tyler Shough showed us: Week 14 film review**\
 `The three rookie QBs displayed upside on Sunday. Also, the Jaguars and Texans' strengths in the AFC South race.`\
 https://nytimes.com/athletic/6874034/2025/12/09/shedeur-sanders-cam-ward-tyler-shough-film-review/
