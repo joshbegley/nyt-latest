@@ -1,3 +1,7 @@
+**The Bounce: NBA Cup elimination is here. So are our Western Conference grades**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/6875582/2025/12/09/nba-cup-elimination-west-grades-kumingathe-bounce/
+
 **MLS free agency big board: The best players available for 2026**\
 `With MLS Cup in the rear view, it's onto the offseason, and free agency is set to kick off with solid contributors up for grabs`\
 https://nytimes.com/athletic/6874551/2025/12/09/mls-free-agency-best-players-2026/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6875302/2025/12/09/broncos-playoff-implications-pac
 **Helmut Marko to leave Red Bull at end of the year**\
 `The 82-year-old Austrian has been an advisor to Red Bull Racing since it joined the F1 grid in 2005.`\
 https://nytimes.com/athletic/6875514/2025/12/09/helmut-marko-red-bull-exit/
-
-**Raul Malo, Lush-Voiced Frontman of the Mavericks, Dies at 60**\
-`As the group’s singer and principal songwriter, he brought an expansive, Latin-inflected sound that breathed new life into country music.`\
-https://nytimes.com/2025/12/09/arts/music/raul-malo-dead.html
 

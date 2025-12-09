@@ -1,3 +1,7 @@
+**The Bounce: NBA Cup elimination is here. So are our Western Conference grades**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/6875582/2025/12/09/nba-cup-elimination-west-grades-kumingathe-bounce/
+
 **MLS free agency big board: The best players available for 2026**\
 `With MLS Cup in the rear view, it's onto the offseason, and free agency is set to kick off with solid contributors up for grabs`\
 https://nytimes.com/athletic/6874551/2025/12/09/mls-free-agency-best-players-2026/
