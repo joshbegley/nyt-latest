@@ -1,3 +1,7 @@
+**Wolves, doom and watching the worst team in England: 'Shall we go in?' 'Do we have to?'**\
+`Collectively, they are hapless, hopeless and unable to attack or defend to Premier League standard. Apart from that, they're fine.`\
+https://nytimes.com/athletic/6873969/2025/12/09/wolves-premier-league-protests/
+
 **Is Mount finally offering United glimpses of the player they signed?**\
 `Mount clearly taps into a lot of what Amorim wants in a player. After two injury-hit seasons, the question is whether he can now kick on`\
 https://nytimes.com/athletic/6874493/2025/12/09/mason-mount-man-united-improvement/

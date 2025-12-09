@@ -14,6 +14,10 @@ https://nytimes.com/2025/12/09/world/asia/thailand-cambodia-border-conflict-evac
 `Slot faced the media on Monday after Salah's comments and dealt with them admirably. But he is facing the biggest test of his career`\
 https://nytimes.com/athletic/6873996/2025/12/09/arne-slot-salah-liverpool-interview/
 
+**Wolves, doom and watching the worst team in England: 'Shall we go in?' 'Do we have to?'**\
+`Collectively, they are hapless, hopeless and unable to attack or defend to Premier League standard. Apart from that, they're fine.`\
+https://nytimes.com/athletic/6873969/2025/12/09/wolves-premier-league-protests/
+
 **Is Mount finally offering United glimpses of the player they signed?**\
 `Mount clearly taps into a lot of what Amorim wants in a player. After two injury-hit seasons, the question is whether he can now kick on`\
 https://nytimes.com/athletic/6874493/2025/12/09/mason-mount-man-united-improvement/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6874850/2025/12/09/derik-queens-historic-game-dylan
 **England’s Wood 'desperately disappointed' after being ruled out of Ashes tour with knee injury**\
 `The seamer's knee injury was picked up in the first Test in Perth and he missed the second Test as a result.`\
 https://nytimes.com/athletic/6874865/2025/12/09/england-mark-wood-ashes-out-injury/
-
-**The New York Times in Print for Tuesday, Dec. 9, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/12/09/todays-new-york-times
 
