@@ -1,3 +1,7 @@
+**The Nationals' big MacKenzie Gore decision: Trade him now or bank his stock will rise**\
+`ORLANDO — The Washington Nationals don’t feel any pressure to trade starting pitcher MacKenzie Gore, who has garnered a considerable amount of interest at this year&#8217;s Winter Meetings.`\
+https://nytimes.com/athletic/6875731/2025/12/09/washington-nationals-mackenzie-gore-trade-decision/
+
 **Chelsea hope Delap can return in four weeks after shoulder injury**\
 `Delap went off in the first-half of Saturday's 0-0 draw against Bournemouth holding his right shoulder.`\
 https://nytimes.com/athletic/6870186/2025/12/09/liam-delap-chelsea-injury-update/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6799636/2025/12/09/mlb-kyle-schwarber-free-agency-s
 **Spurs LGBTQ+ flag relocated after Slavia Prague request**\
 `The large flag is usually situated in the North-East corner of the Spurs ground and will instead be displayed in the South-West corner.`\
 https://nytimes.com/athletic/6875604/2025/12/09/tottenham-slavia-prague-lgbtq-pride-flag/
-
-**Mets open to moving All-Star starting pitcher David Peterson: Sources**\
-`Given Peterson's production over the last two seasons and his affordable salary in 2026, the Mets hold a high asking price for the starter.`\
-https://nytimes.com/athletic/6875757/2025/12/09/mets-david-peterson-trade-market/
 
