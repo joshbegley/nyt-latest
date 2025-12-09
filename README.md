@@ -1,3 +1,7 @@
+**England’s Mark Wood ruled out for rest of Ashes tour with knee injury**\
+`The seamer's knee injury was picked up in the first Test in Perth and he missed the second Test as a result.`\
+https://nytimes.com/athletic/6874865/2025/12/09/england-mark-wood-ashes-out-injury/
+
 **The New York Times in Print for Tuesday, Dec. 9, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/12/09/todays-new-york-times
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6873106/2025/12/09/what-this-picture-tells-us-about
 **Xabi Alonso knows what's wrong at Real Madrid. But he's powerless to fix it**\
 `Former Madrid midfielder Alonso knew what he was getting into at the Bernabeu, but that does not seem to have helped`\
 https://nytimes.com/athletic/6872522/2025/12/09/xabi-alonso-real-madrid-problems-opinion/
-
-**Champions League projections: Will Man City, Chelsea and Liverpool boost their top-eight chances?**\
-`Manchester City versus Real Madrid is the standout fixture in this gameweek and could have a big impact on the make-up of the table`\
-https://nytimes.com/athletic/6872476/2025/12/09/champions-league-projections-manchester-city-real-madrid/
 
