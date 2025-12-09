@@ -1,3 +1,15 @@
+**G.O.P. Will Counter Democrats’ Bid to Preserve Subsidies With Their Own Plan**\
+`Senate Republicans plan to offer a proposal that would create a new payment for people with bare-bones health coverage, clashing with Democrats who are pressing for an extension of existing tax credits.`\
+https://nytimes.com/2025/12/09/us/politics/aca-obamacare-health-subsidies-senate.html
+
+**Why there's no Plan B for Olympic hockey rinks, plus NHL betting integrity, more BOG rumblings**\
+`Also from the NHL's Board of Governors meeting: updates on Canada's men's roster, World Cup planning, Junior-NCAA logistics and NHL revenue.`\
+https://nytimes.com/athletic/6876636/2025/12/09/olympic-hockey-rink-board-of-governors/
+
+**Instant grades for college football's 2025-26 head-coaching hires**\
+`In college football, you never really know whether a coaching hire is going to work. But it's never too early to talk about fit.`\
+https://nytimes.com/athletic/6827060/2025/12/09/college-football-coaching-carousel-grades/
+
 **Reimagining Cancer Care**\
 `From personalized cancer screenings to care and support that extends beyond hospital walls, this health care system delivers improved wellness and survival outcomes at every stage of a patient’s journey. `\
 https://nytimes.com/paidpost/kaiser-permanente/reimagining-cancer-care.html
