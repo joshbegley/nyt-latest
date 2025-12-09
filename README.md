@@ -1,3 +1,11 @@
+**Dodger Details: Updates on Mookie Betts, the rotation, Tommy Edman and more**\
+`The back-to-back champs don't expect to be as aggressive this offseason, but there are subtle ways they can upgrade the roster. `\
+https://nytimes.com/athletic/6874167/2025/12/08/dodger-details-updates-on-mookie-betts-the-rotation-tommy-edman-and-more/
+
+**‘Marjorie Prime’ Review: A.I. Gave Her Back Her Husband. Was It Worth It?**\
+`June Squibb stars in the Broadway premiere of Jordan Harrison’s meditation on grief and the nature of human and artificial intelligence.`\
+https://nytimes.com/2025/12/08/theater/marjorie-prime-review-june-squibb.html
+
 **'Gap is small' between Yankees and Blue Jays in AL East, Aaron Boone says**\
 `New York has work to do, with Toronto already having added front-end starting pitcher Dylan Cease this offseason.`\
 https://nytimes.com/athletic/6874347/2025/12/08/yankees-aaron-boone-gap-is-small-between-us-blue-jays/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6874228/2025/12/08/buster-posey-trading-bryce-eldri
 **Trump Again Threatens Tariffs on Mexico Over Long-Running Water Dispute**\
 `The threat is the latest aggressive action that President Trump has taken against America’s biggest trading partners.`\
 https://nytimes.com/2025/12/08/us/politics/trump-tariffs-mexico-water.html
-
-**Dodgers GM Brandon Gomes: 'Doesn't feel likely' Teoscar Hernández is traded**\
-`There is a temptation to get younger with the club's position player group and to improve its defense.`\
-https://nytimes.com/athletic/6874260/2025/12/08/los-angeles-dodgers-teoscar-hernandez-trade-potential/
-
-**Blue Jays face difficult trade decision with ‘disappointed’ José Berríos**\
-`Toronto will have a tough time moving the right-handed pitcher with three years and $66 million remaining on his contract.`\
-https://nytimes.com/athletic/6874265/2025/12/08/blue-jays-face-difficult-trade-decision-with-disappointed-jose-berrios/
 
