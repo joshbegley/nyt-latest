@@ -1,3 +1,11 @@
+**Man Charged With Attempted Murder in Shooting of Jets Player Kris Boyd**\
+`Weeks after the shooting, Frederick Green, 20, was taken into custody near Buffalo and brought back to Manhattan, the police said.`\
+https://nytimes.com/2025/12/09/nyregion/kris-boyd-ny-jets-shooting-charges.html
+
+**Israeli Ban on Media Entering Gaza Remains, as Legal Challenge Is Delayed**\
+`Israel’s top court gave the government further reprieve on a long-stalled petition seeking free access to Gaza. Critics say barring journalists denies the world a full picture of conditions there.`\
+https://nytimes.com/2025/12/09/world/middleeast/gaza-israel-journalists-access.html
+
 **Israeli Ban on International Media in Gaza Remains, Legal Challenge Delayed**\
 `Israel’s top court gave the government further reprieve on a long-stalled petition seeking free access to Gaza. Critics say barring journalists denies the world a full picture of conditions there.`\
 https://nytimes.com/2025/12/09/world/middleeast/gaza-israel-journalists-access.html
