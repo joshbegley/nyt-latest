@@ -1,3 +1,15 @@
+**Sherman: Nebraska is navigating offseason of gray areas, as last week's coaching changes show**\
+`Change in college football arrives fast and sometimes without warning in December. Last week put that on display.`\
+https://nytimes.com/athletic/6875314/2025/12/09/nebraska-football-coaching-changes-rob-aurich-geep-wade/
+
+**World Sevens Football's second edition showed new possibilities in women’s soccer culture**\
+`Without an example to follow, World Sevens Football continues to find new ways to have fun with soccer.`\
+https://nytimes.com/athletic/6874667/2025/12/09/world-sevens-football-new-possibilities-women-soccer/
+
+**Is NBA 'possession ball' a case of foul play? And what do Mavs have in Ryan Nembhard?**\
+`Nembhard took over as the Mavs’ starting point guard six games ago and has immediately helped everything click.`\
+https://nytimes.com/athletic/6871799/2025/12/09/nba-possession-battle-ryan-nembhard-mavericks/
+
 **These Looted Treasures Are Home. What Now?**\
 `Western museums are returning the Benin Bronzes to Nigeria, but a state-of-the-art museum to display them is still a long way off.`\
 https://nytimes.com/2025/12/09/arts/design/benin-bronzes-returned-nigeria.html
@@ -21,16 +33,4 @@ https://nytimes.com/video/t-magazine/100000010567988/molly-ringwald-on-why-the-b
 **Lithuania Declares National Emergency Over Suspicious Balloons From Belarus**\
 `Hundreds of weather balloons sent to Lithuania this year have disrupted flights and stirred alarm in a sabotage campaign against a NATO state.`\
 https://nytimes.com/2025/12/09/world/europe/lithuania-belarus-balloons-emergency.html
-
-**The Conflict Over Nigeria’s Returned Treasures**\
-`Western museums are returning the Benin Bronzes — priceless items looted during colonialism — to Nigeria, but political infighting has jeopardized the ability to display and maintain the masterpieces. Our reporter, Alex Marshall, traveled to Nigeria to see some of the Bronzes.`\
-https://nytimes.com/video/world/africa/100000010524653/returning-benin-bronzes.html
-
-**Needing a spark off the bench, the Timberwolves turn to Bones Hyland**\
-`The point guard position and scoring off the bench have been issues for Minnesota. Maybe Hyland can help fix things.`\
-https://nytimes.com/athletic/6874261/2025/12/09/bones-hyland-timberwolves-rotation-suns-loss/
-
-**The Giants need to build a 2026 roster that can play baseball worth remembering**\
-`The looming CBA battle makes the 2026 season especially important for a Giants' team that is built to win now, but not in three years.`\
-https://nytimes.com/athletic/6874995/2025/12/09/sf-giants-2026-roster-urgency/
 
