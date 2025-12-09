@@ -1,3 +1,15 @@
+**The Beauty of Longevity **\
+`Wellness practices that amplify joy, bring peace and make these women glow — now and for decades to come.`\
+https://nytimes.com/paidpost/estee-lauder-re-nutriv/the-beauty-of-longevity.html
+
+**Judge Suggests Prosecutor on Comey and James Cases Should Resign as U.S. Attorney**\
+`Lindsey Halligan’s indictments against James B. Comey, the former F.B.I. director, and Letitia James, the attorney general of New York, were dismissed last month over Ms. Halligan’s appointment.`\
+https://nytimes.com/2025/12/09/us/politics/comey-james-halligan.html
+
+**Mining the ‘Manosphere’**\
+`To help us understand the growing problem of adolescent male rage, let’s start a conversation about the power of what we consume online.`\
+https://nytimes.com/2025/12/09/special-series/jack-thorne-adolescence-manosphere.html
+
 **Judge Grants Request to Unseal Grand Jury Records in Maxwell Case**\
 `The ruling cited a law signed last month by President Trump requiring the Justice Department to release its files on Jeffrey Epstein and his longtime companion, Ghislaine Maxwell.`\
 https://nytimes.com/2025/12/09/nyregion/ghislaine-maxwell-epstein-grand-jury-unsealed.html

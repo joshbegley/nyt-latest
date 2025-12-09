@@ -1,3 +1,15 @@
+**The Beauty of Longevity **\
+`Wellness practices that amplify joy, bring peace and make these women glow — now and for decades to come.`\
+https://nytimes.com/paidpost/estee-lauder-re-nutriv/the-beauty-of-longevity.html
+
+**Judge Suggests Prosecutor on Comey and James Cases Should Resign as U.S. Attorney**\
+`Lindsey Halligan’s indictments against James B. Comey, the former F.B.I. director, and Letitia James, the attorney general of New York, were dismissed last month over Ms. Halligan’s appointment.`\
+https://nytimes.com/2025/12/09/us/politics/comey-james-halligan.html
+
+**Mining the ‘Manosphere’**\
+`To help us understand the growing problem of adolescent male rage, let’s start a conversation about the power of what we consume online.`\
+https://nytimes.com/2025/12/09/special-series/jack-thorne-adolescence-manosphere.html
+
 **Judge Grants Request to Unseal Grand Jury Records in Maxwell Case**\
 `The ruling cited a law signed last month by President Trump requiring the Justice Department to release its files on Jeffrey Epstein and his longtime companion, Ghislaine Maxwell.`\
 https://nytimes.com/2025/12/09/nyregion/ghislaine-maxwell-epstein-grand-jury-unsealed.html
@@ -21,16 +33,4 @@ https://nytimes.com/2025/12/09/arts/music/raul-malo-dead.html
 **Patrick Mahomes is benchable during the fantasy football playoffs. We're not joking**\
 `KC Joyner looks at strength-of-schedule and other metrics to analyze which QBs to start or sit in the fantasy playoffs. `\
 https://nytimes.com/athletic/6872421/2025/12/09/fantasy-football-playoffs-start-sit-qb-matchup-ratings-patrick-mahomes/
-
-**In reversal, Twins signal a desire for roster additions rather than a teardown**\
-`Uncertain about their direction a month ago, the Twins have received assurances from ownership they can try to compete in 2026.`\
-https://nytimes.com/athletic/6875362/2025/12/09/twins-free-agent-signings-winter-meetings/
-
-**Villa exploring deal for Gremio winger Alysson**\
-`The 19-year-old made 31 appearances for Gremio during the 2025 season, scoring once and assisting twice.`\
-https://nytimes.com/athletic/6875256/2025/12/09/alysson-aston-villa-transfer-news/
-
-**Tottenham add Tel to Champions League squad as Solanke replacement**\
-`Solanke is recovering from ankle surgery he underwent in October.`\
-https://nytimes.com/athletic/6875469/2025/12/09/mathys-tel-tottenham-champions-league-squad/
 
