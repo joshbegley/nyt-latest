@@ -1,3 +1,7 @@
+**After getting jilted by Kyle Schwarber, where do the Reds go for power next?**\
+`The Reds could pursue a number of sluggers on the market, or potentially trade from their depth to acquire a middle-of-the-order bat.`\
+https://nytimes.com/athletic/6876727/2025/12/09/cincinnati-reds-free-agent-fits-hitters/
+
 **Tyronn Lue rebukes report he was not speaking with Chris Paul: 'We were talking'**\
 `LA Clippers head coach Tyronn Lue denied reporting that he and Chris Paul were not on speaking terms in the wake of Paul's dismissal. `\
 https://nytimes.com/athletic/6876650/2025/12/09/tyronn-lue-chris-paul-clippers-nba/

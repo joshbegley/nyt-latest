@@ -1,3 +1,7 @@
+**Slot questions whether Salah should take lead in resolving Liverpool dispute**\
+`Slot also suggested that Salah’s outburst at Elland Road came as a result of an “emotional” week`\
+https://nytimes.com/athletic/6876925/2025/12/09/salah-liverpool-slot-news-update-inter-champions-league/
+
 **After getting jilted by Kyle Schwarber, where do the Reds go for power next?**\
 `The Reds could pursue a number of sluggers on the market, or potentially trade from their depth to acquire a middle-of-the-order bat.`\
 https://nytimes.com/athletic/6876727/2025/12/09/cincinnati-reds-free-agent-fits-hitters/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6876636/2025/12/09/olympic-hockey-rink-board-of-gov
 **End of Major Corruption Case Embarrasses N.Y. Cannabis Regulators**\
 `A case against the Long Island-based cannabis company Omnium Health was halted on the eve of trial. A judge on Tuesday held off on dropping the matter.`\
 https://nytimes.com/2025/12/09/nyregion/cannabis-investigation-omnium-ny-weed-regulation.html
-
-**Reimagining Cancer Care**\
-`From personalized cancer screenings to care and support that extends beyond hospital walls, this health care system delivers improved wellness and survival outcomes at every stage of a patient’s journey. `\
-https://nytimes.com/paidpost/kaiser-permanente/reimagining-cancer-care.html
 
