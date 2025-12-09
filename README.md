@@ -1,3 +1,7 @@
+**After getting jilted by Kyle Schwarber, where do the Reds go for power next?**\
+`The Reds could pursue a number of sluggers on the market, or potentially trade from their depth to acquire a middle-of-the-order bat.`\
+https://nytimes.com/athletic/6876727/2025/12/09/cincinnati-reds-free-agent-fits-hitters/
+
 **Tyronn Lue rebukes report he was not speaking with Chris Paul: 'We were talking'**\
 `LA Clippers head coach Tyronn Lue denied reporting that he and Chris Paul were not on speaking terms in the wake of Paul's dismissal. `\
 https://nytimes.com/athletic/6876650/2025/12/09/tyronn-lue-chris-paul-clippers-nba/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/09/nyregion/cannabis-investigation-omnium-ny-weed-re
 **Reimagining Cancer Care**\
 `From personalized cancer screenings to care and support that extends beyond hospital walls, this health care system delivers improved wellness and survival outcomes at every stage of a patient’s journey. `\
 https://nytimes.com/paidpost/kaiser-permanente/reimagining-cancer-care.html
-
-**Vistas Painted by Georgia O’Keeffe Protected by Conservation Plan**\
-`The plan will protect 6,000 acres of land in northern New Mexico, and the state is giving more than $900,000 toward the effort.`\
-https://nytimes.com/2025/12/09/arts/design/georgia-okeeffe-new-mexico-conservation-plan.html
 

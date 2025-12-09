@@ -1,3 +1,19 @@
+**Tyronn Lue rebukes report he was not speaking with Chris Paul: 'We were talking'**\
+`LA Clippers head coach Tyronn Lue denied reporting that he and Chris Paul were not on speaking terms in the wake of Paul's dismissal. `\
+https://nytimes.com/athletic/6876650/2025/12/09/tyronn-lue-chris-paul-clippers-nba/
+
+**A Deluge of Rain Prompts Warnings in the Pacific Northwest**\
+`Even for a region used to heavy rain, this week’s system has forecasters on edge. The heaviest rain is expected into Wednesday.`\
+https://nytimes.com/2025/12/09/weather/oregon-washington-rain-atomospheric-river-flood.html
+
+**Stephen Miller’s Stock Sale Raises Questions, Ethics Experts Say**\
+`Mr. Miller, one of President Trump’s top advisers, sold shares in the mining company MP Materials following a lucrative deal between the company and the government.`\
+https://nytimes.com/2025/12/09/us/politics/stephen-miller-minerals-stake-ethics.html
+
+**Does the Couple That Dresses Together Stick Together?**\
+`Timothée Chalamet and Kylie Jenner wore matching orange outfits at a “Marty Supreme” premiere. Was it a ’90s throwback or an attempt to quiet the rumors?`\
+https://nytimes.com/2025/12/09/style/timothee-chalamet-kylie-jenner-marty-supreme.html
+
 **G.O.P. Will Counter Democrats’ Bid to Preserve Subsidies With Their Own Plan**\
 `Senate Republicans plan to offer a proposal that would create a new payment for people with bare-bones health coverage, clashing with Democrats who are pressing for an extension of existing tax credits.`\
 https://nytimes.com/2025/12/09/us/politics/aca-obamacare-health-subsidies-senate.html
@@ -17,20 +33,4 @@ https://nytimes.com/paidpost/kaiser-permanente/reimagining-cancer-care.html
 **Vistas Painted by Georgia O’Keeffe Protected by Conservation Plan**\
 `The plan will protect 6,000 acres of land in northern New Mexico, and the state is giving more than $900,000 toward the effort.`\
 https://nytimes.com/2025/12/09/arts/design/georgia-okeeffe-new-mexico-conservation-plan.html
-
-**Why did the Colts gamble on Philip Rivers to save their season? 'He can still sling it'**\
-`A bigger gamble than bringing in "Uncle Phil" would have been doing nothing.`\
-https://nytimes.com/athletic/6876616/2025/12/09/philip-rivers-colts-gamble-retirement/
-
-**Instant grades for college football's 2025-26 head-coaching hires**\
-`In college football, you never really know whether a coaching hire is going to work. But it's never too early to talk about fit.`\
-https://nytimes.com/athletic/6827060/2025/12/09/college-football-coaching-carousel-grades/
-
-**After Philip Rivers' comeback, who are other notable athletes to come out of retirement?**\
-`With Philip Rivers coming out of retirement and signing with the Colts at 44 years old, we look at others who have done similar.`\
-https://nytimes.com/athletic/6876097/2025/12/09/philip-rivers-colts-famous-athletes-comeback-unretire/
-
-**USMNT striker Balogun continues Champions League streak in Monaco win**\
-`The 24-year-old USMNT forward became the first American to score in three straight Champions League appearances.`\
-https://nytimes.com/athletic/6876836/2025/12/09/balogun-usmnt-monaco-galatasaray/
 
