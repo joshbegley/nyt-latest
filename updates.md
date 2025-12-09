@@ -1,3 +1,7 @@
+**The Affordability Crisis Is Not a ‘Hoax’**\
+`I doubt this was what Trump meant when he called himself “Mr. Brexit.”`\
+https://nytimes.com/2025/12/09/opinion/trump-affordability-crisis-hoax.html
+
 **NBA teams are crashing boards like never before. A call to New Zealand got things started**\
 `You may not know Paul Henare, but if you've watched games recently, you've seen a beloved strategy of his in action.`\
 https://nytimes.com/athletic/6859085/2025/12/09/nba-offensive-rebounding-new-zealand-coaching/
