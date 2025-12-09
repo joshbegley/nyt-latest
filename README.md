@@ -1,3 +1,15 @@
+**FIFA President Infantino accused of ethics breaches relating to Trump**\
+`Advocacy group FairSquare has also requested an investigation into President Trump being awarded the inaugural FIFA Peace Prize last Friday.`\
+https://nytimes.com/athletic/6873068/2025/12/09/fifa-infantino-trump-peace-prize-complaint/
+
+**Macklin Celebrini at 100 games — and what might come next**\
+`One analyst said Celebrini is "built the same" as Sidney Crosby.`\
+https://nytimes.com/athletic/6873478/2025/12/09/macklin-celebrini-sharks-100-games/
+
+**Beaded Gloves and Vintage Work Wear**\
+`A pair strolling through Tokyo were dressed in outfits that incorporated special and sentimental pieces.`\
+https://nytimes.com/2025/12/09/style/street-style-look-archival-garments.html
+
 **Iain Douglas-Hamilton, Elephant Expert and Protector, Dies**\
 `Born into a British aristocratic family, he turned his empathy and understanding of the world’s largest land mammals to the cause of saving them from poachers.`\
 https://nytimes.com/2025/12/09/obituaries/iain-douglas-hamilton-elephant-expert-and-protector-dies.html
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/6871799/2025/12/09/nba-possession-battle-ryan-nembh
 **These Looted Treasures Are Home. What Now?**\
 `Western museums are returning the Benin Bronzes to Nigeria, but a state-of-the-art museum to display them is still a long way off.`\
 https://nytimes.com/2025/12/09/arts/design/benin-bronzes-returned-nigeria.html
-
-**Nvidia Can Sell More Chips in China. Now What?**\
-`President Trump’s move fulfills a major goal of the chipmaker. But the move faces opposition in Washington — and uncertainty in Beijing.`\
-https://nytimes.com/2025/12/09/business/dealbook/nvidias-china-lobbying-chips.html
-
-**Shedeur Sanders, Fernando Mendoza and the Browns' path to a quarterback**\
-`Given all of the holes in the Browns' lineup, does it really make sense to splurge on a quarterback in the 2026 draft? `\
-https://nytimes.com/athletic/6874723/2025/12/09/browns-shedeur-sanders-fernando-mendoza-nfl-draft/
-
-**Trump Administration Live Updates: President Calls European Nations ‘Weak’ and ‘Decaying’**\
-``\
-https://nytimes.com/live/2025/12/09/us/trump-news
 
