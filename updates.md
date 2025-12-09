@@ -1,3 +1,23 @@
+**FIFA President Infantino accused of ethics breaches relating to Trump**\
+`Advocacy group FairSquare has also requested an investigation into President Trump being awarded the inaugural FIFA Peace Prize last Friday.`\
+https://nytimes.com/athletic/6873068/2025/12/09/fifa-infantino-trump-peace-prize-complaint/
+
+**Macklin Celebrini at 100 games — and what might come next**\
+`One analyst said Celebrini is "built the same" as Sidney Crosby.`\
+https://nytimes.com/athletic/6873478/2025/12/09/macklin-celebrini-sharks-100-games/
+
+**Beaded Gloves and Vintage Work Wear**\
+`A pair strolling through Tokyo were dressed in outfits that incorporated special and sentimental pieces.`\
+https://nytimes.com/2025/12/09/style/street-style-look-archival-garments.html
+
+**Iain Douglas-Hamilton, Elephant Expert and Protector, Dies**\
+`Born into a British aristocratic family, he turned his empathy and understanding of the world’s largest land mammals to the cause of saving them from poachers.`\
+https://nytimes.com/2025/12/09/obituaries/iain-douglas-hamilton-elephant-expert-and-protector-dies.html
+
+**PSG's Qatari owners to acquire Belgium second-tier club**\
+`QSI will complete a full acquisition of KAS Eupen and take full operational control of the club.`\
+https://nytimes.com/athletic/6875359/2025/12/09/psg-qsi-qatar-eupen-takeover/
+
 **PSG's Qatari owners to acquire Belgium second-tier club**\
 `QSI will complete a full acquisition of the Belgian Challenger League side and take full operational control of the club.`\
 https://nytimes.com/athletic/6875359/2025/12/09/psg-qsi-qatar-eupen-takeover/

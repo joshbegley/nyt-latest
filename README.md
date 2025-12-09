@@ -1,3 +1,11 @@
+**Frank Gehry’s Forgotten Masterpiece: His Own House in Santa Monica**\
+`Using hardware store materials, the architect turned a pink suburban bungalow into a Deconstructivist icon in the late 1970s.`\
+https://nytimes.com/2025/12/09/realestate/frank-gehry-house-santa-monica.html
+
+**Why Some Teenagers Are Against Australia’s Social Media Ban**\
+`Australia has imposed one of the world’s most comprehensive measures banning social media for children under 16. This is what several young Australian teens think about the ban, which takes effect on Wednesday.`\
+https://nytimes.com/video/world/australia/100000010564624/australia-social-media-ban-teens.html
+
 **FIFA President Infantino accused of ethics breaches relating to Trump**\
 `Advocacy group FairSquare has also requested an investigation into President Trump being awarded the inaugural FIFA Peace Prize last Friday.`\
 https://nytimes.com/athletic/6873068/2025/12/09/fifa-infantino-trump-peace-prize-complaint/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6875314/2025/12/09/nebraska-football-coaching-chang
 **World Sevens Football's second edition showed new possibilities in women’s soccer culture**\
 `Without an example to follow, World Sevens Football continues to find new ways to have fun with soccer.`\
 https://nytimes.com/athletic/6874667/2025/12/09/world-sevens-football-new-possibilities-women-soccer/
-
-**Is NBA 'possession ball' a case of foul play? And what do Mavs have in Ryan Nembhard?**\
-`Nembhard took over as the Mavs’ starting point guard six games ago and has immediately helped everything click.`\
-https://nytimes.com/athletic/6871799/2025/12/09/nba-possession-battle-ryan-nembhard-mavericks/
-
-**These Looted Treasures Are Home. What Now?**\
-`Western museums are returning the Benin Bronzes to Nigeria, but a state-of-the-art museum to display them is still a long way off.`\
-https://nytimes.com/2025/12/09/arts/design/benin-bronzes-returned-nigeria.html
 
