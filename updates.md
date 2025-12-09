@@ -1,3 +1,7 @@
+**Most U.S. Teens Use YouTube and TikTok Daily, Some ‘Almost Constantly,’ Survey Says**\
+`The new Pew report also found that two-thirds of teens said they had used an A.I. chatbot.`\
+https://nytimes.com/2025/12/09/well/family/tik-tok-you-tube-teen-use-pew-study.html
+
 **‘Come North!’ Canada Makes Play for H1-B Visa Holders With New Talent Drive**\
 `The government says it will fast-track immigration for U.S. H1-B visa holders and spend more than $1 billion to attract researchers from the United States and the rest of the world.`\
 https://nytimes.com/2025/12/09/world/canada/canada-usa-immigration-h1-b-visa-talent.html
