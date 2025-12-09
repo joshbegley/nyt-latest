@@ -1,3 +1,7 @@
+**Broncos' massive matchup with Packers has big playoff implications at stake**\
+`The Broncos can't clinch the AFC West in Week 15, but they could boost their odds of capturing No. 1 seed with win vs. Green Bay.`\
+https://nytimes.com/athletic/6875302/2025/12/09/broncos-playoff-implications-packers/
+
 **Helmut Marko to leave Red Bull at end of the year**\
 `The 82-year-old Austrian has been an advisor to Red Bull Racing since it joined the F1 grid in 2005.`\
 https://nytimes.com/athletic/6875514/2025/12/09/helmut-marko-red-bull-exit/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6874853/2025/12/09/canadiens-schedule-brendan-galla
 **Trump Calls Europe ‘Decaying’ and Suggests ‘Size Will Win’ in Ukraine War**\
 `President Trump’s comments deepened his rift with mainstream European leaders over defense and Ukraine policy.`\
 https://nytimes.com/2025/12/09/us/politics/trump-europe-decaying-weak-ukraine.html
-
-**Frank Gehry’s Forgotten Masterpiece: His Own House in Santa Monica**\
-`Using hardware store materials, the architect turned a pink suburban bungalow into a Deconstructivist icon in the late 1970s.`\
-https://nytimes.com/2025/12/09/realestate/frank-gehry-house-santa-monica.html
 

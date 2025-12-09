@@ -1,3 +1,19 @@
+**Helmut Marko to leave Red Bull at end of the year**\
+`The 82-year-old Austrian has been an advisor to Red Bull Racing since it joined the F1 grid in 2005.`\
+https://nytimes.com/athletic/6875514/2025/12/09/helmut-marko-red-bull-exit/
+
+**Raul Malo, Lush-Voiced Frontman of the Mavericks, Dies at 60**\
+`As the group’s singer and principal songwriter, he brought an expansive, Latin-inflected sound that breathed new life into country music.`\
+https://nytimes.com/2025/12/09/arts/music/raul-malo-dead.html
+
+**Patrick Mahomes is benchable during the fantasy football playoffs. We're not joking**\
+`KC Joyner looks at strength-of-schedule and other metrics to analyze which QBs to start or sit in the fantasy playoffs. `\
+https://nytimes.com/athletic/6872421/2025/12/09/fantasy-football-playoffs-start-sit-qb-matchup-ratings-patrick-mahomes/
+
+**In reversal, Twins signal a desire for roster additions rather than a teardown**\
+`Uncertain about their direction a month ago, the Twins have received assurances from ownership they can try to compete in 2026.`\
+https://nytimes.com/athletic/6875362/2025/12/09/twins-free-agent-signings-winter-meetings/
+
 **In reversal, Twins signal a desire for roster additions rather than a teardown**\
 `Uncertain about their direction a month ago, the Twins have received assurances from ownership they can try to compete in 2026`\
 https://nytimes.com/athletic/6875362/2025/12/09/twins-free-agent-signings-winter-meetings/
