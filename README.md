@@ -7,7 +7,7 @@ https://nytimes.com/2025/12/09/us/politics/trump-warner-bros.html
 https://nytimes.com/interactive/2025/12/09/us/crypto-casinos-gambling-streamers.html
 
 **How the Phillies reunited with Kyle Schwarber, their $150M slugger who sets the standard**\
-`ORLANDO, Fla.`\
+`The agreement might have been a fait accompli, sources said. But it was the most important offseason item for the Phillies to address.`\
 https://nytimes.com/athletic/6876548/2025/12/09/phillies-kyle-schwarber-150-million-contract/
 
 **There’s Never Been a Better Time to Quit Caffeine**\
