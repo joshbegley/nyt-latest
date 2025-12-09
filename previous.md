@@ -1,8 +1,20 @@
+**Buster Posey's burning question: Would trading Bryce Eldridge be boldness or idiocy for Giants?**\
+`Posey demonstrated with the industry-shaking trade for Rafael Devers in June that he isn't timid about making a huge deal.`\
+https://nytimes.com/athletic/6874228/2025/12/08/buster-posey-trading-bryce-eldridge-boldness-or-idiocy/
+
+**Trump Again Threatens Tariffs on Mexico Over Long-Running Water Dispute**\
+`The threat is the latest aggressive action that President Trump has taken against America’s biggest trading partners.`\
+https://nytimes.com/2025/12/08/us/politics/trump-tariffs-mexico-water.html
+
+**Dodgers GM Brandon Gomes: 'Doesn't feel likely' Teoscar Hernández is traded**\
+`There is a temptation to get younger with the club's position player group and to improve its defense.`\
+https://nytimes.com/athletic/6874260/2025/12/08/los-angeles-dodgers-teoscar-hernandez-trade-potential/
+
 **Blue Jays face difficult trade decision with ‘disappointed’ José Berríos**\
 `Toronto will have difficult moving the right-handed pitcher with three years and $66 million remaining on his contract.`\
 https://nytimes.com/athletic/6874265/2025/12/08/blue-jays-face-difficult-trade-decision-with-disappointed-jose-berrios/
 
-**At MLB's winter meetings, the Pirates are in a space they rarely occupy: in the mix**\
+**At MLB's Winter Meetings, the Pirates are in a space they rarely occupy: in the mix**\
 `There’s a lot left to do to become contenders, and many in the industry are understandably dubious of the Pirates' appetite to spend.`\
 https://nytimes.com/athletic/6874220/2025/12/08/mlb-winter-meetings-pittsburgh-pirates-position/
 
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/6874149/2025/12/08/cincinnati-reds-kyle-schwarber-p
 **Shane Baz emerges as one target in Astros' search for starting pitching: Sources**\
 `The Astros have expressed interest in Rays starter Shane Baz, a Houston native. The 26-year-old has three more seasons of club control.`\
 https://nytimes.com/athletic/6874175/2025/12/08/shane-baz-astros-pitching-search/
-
-**Trump Offers Farmers $12 Billion Bailout From Trade War**\
-`President Trump promised struggling farmers billions in federal aid during a round-table meeting on Monday. This comes after China boycotted American farm products in retaliation for U.S. tariffs.`\
-https://nytimes.com/video/us/politics/100000010574568/trump-farmer-bailout-trade-war.html
-
-**Mutual interest between Phillies, Don Mattingly in bench coach role**\
-`Mattingly appears poised to become Philadelphia’s bench coach after he and the club work through final, contractual details. `\
-https://nytimes.com/athletic/6874120/2025/12/08/don-mattingly-phillies-bench-coach/
-
-**Heisman finalists: Jeremiyah Love, Fernando Mendoza, Diego Pavia top list**\
-`Love tallied 1,652 scrimmage yards, Mendoza led Indiana to the CFP's No. 1 seed and Pavia carried Vanderbilt to its first 10-win season.`\
-https://nytimes.com/athletic/6873825/2025/12/08/jeremiyah-love-fernando-mendoza-heisman-finalists-2025/
 
