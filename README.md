@@ -1,3 +1,11 @@
+**Blue Jays face difficult trade decision with ‘disappointed’ José Berríos**\
+`Toronto will have difficult moving the right-handed pitcher with three years and $66 million remaining on his contract.`\
+https://nytimes.com/athletic/6874265/2025/12/08/blue-jays-face-difficult-trade-decision-with-disappointed-jose-berrios/
+
+**At MLB's winter meetings, the Pirates are in a space they rarely occupy: in the mix**\
+`There’s a lot left to do to become contenders, and many in the industry are understandably dubious of the Pirates' appetite to spend.`\
+https://nytimes.com/athletic/6874220/2025/12/08/mlb-winter-meetings-pittsburgh-pirates-position/
+
 **Colts to work out QB Philip Rivers, 44, in wake of Daniel Jones' injury**\
 `The eight-time Pro Bowler hasn't played since 2020 when he led the Colts to their last playoff appearance.`\
 https://nytimes.com/athletic/6874207/2025/12/08/philip-rivers-colts-visit-return-nfl/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6874120/2025/12/08/don-mattingly-phillies-bench-coa
 **Heisman finalists: Jeremiyah Love, Fernando Mendoza, Diego Pavia top list**\
 `Love tallied 1,652 scrimmage yards, Mendoza led Indiana to the CFP's No. 1 seed and Pavia carried Vanderbilt to its first 10-win season.`\
 https://nytimes.com/athletic/6873825/2025/12/08/jeremiyah-love-fernando-mendoza-heisman-finalists-2025/
-
-**Detroit Tigers to play exhibition games against Dominican Republic honoring April nightclub victims**\
-`The Dominican Republic will play the Tigers as a warmup for the World Baseball Classic.`\
-https://nytimes.com/athletic/6874099/2025/12/08/tigers-dominican-republic-exhibition-game-nightclub-victims/
-
-**Supreme Court Questions N.Y. Ban on Religious Exemptions for Vaccines**\
-`The U.S. Supreme Court directed a lower court to review the ban, which applies to strict vaccine requirements in New York schools.`\
-https://nytimes.com/2025/12/08/nyregion/ny-school-vaccinations.html
 
