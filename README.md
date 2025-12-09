@@ -1,3 +1,11 @@
+**Trump Offers Farmers $12 Billion Bailout From Trade War**\
+`President Trump promised struggling farmers billions in federal aid during a round-table meeting on Monday. This comes after China boycotted American farm products in retaliation for U.S. tariffs.`\
+https://nytimes.com/video/us/politics/100000010574568/trump-farmer-bailout-trade-war.html
+
+**Mutual interest between Phillies, Don Mattingly in bench coach role**\
+`Mattingly appears poised to become Philadelphia’s bench coach after he and the club work through final, contractual details. `\
+https://nytimes.com/athletic/6874120/2025/12/08/don-mattingly-phillies-bench-coach/
+
 **Heisman finalists: Jeremiyah Love, Fernando Mendoza, Diego Pavia top list**\
 `Love tallied 1,652 scrimmage yards, Mendoza led Indiana to the CFP's No. 1 seed and Pavia carried Vanderbilt to its first 10-win season.`\
 https://nytimes.com/athletic/6873825/2025/12/08/jeremiyah-love-fernando-mendoza-heisman-finalists-2025/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6874089/2025/12/08/jorgen-strand-larsen-wolves-fans
 **Democrats’ Proposal Would Halt Courthouse Arrests of Migrants**\
 `About 80 percent of immigrants have skipped appointments to avoid detention, risking their path to legal status, a New York congressman said.`\
 https://nytimes.com/2025/12/08/nyregion/immigration-legislation-dan-goldman.html
-
-**John Noble Wilford, Times Reporter Who Covered the Moon Landing, Dies at 92**\
-`He gave readers a comprehensive and lyrical account of the historic mission in 1969. His science coverage as a Pulitzer-winning journalist and an author took him around the world.`\
-https://nytimes.com/2025/12/08/science/john-noble-wilford-dead.html
-
-**Bruce Blakeman Moves to Launch New York Governor Campaign**\
-`Mr. Blakeman, the Nassau County executive, would face a bitter Republican primary showdown with Representative Elise Stefanik.`\
-https://nytimes.com/2025/12/08/nyregion/bruce-blakeman-new-york-governor.html
 
