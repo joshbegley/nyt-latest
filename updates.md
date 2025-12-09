@@ -1,3 +1,11 @@
+**Slot retains support after Salah outburst, but credit in the bank is not endless**\
+`Slot faced the media on Monday after Salah's comments and dealt with them admirably. But he is facing the biggest test of his career`\
+https://nytimes.com/athletic/6873996/2025/12/09/arne-slot-salah-liverpool-interview/
+
+**Is Mount finally offering United glimpses of the player they signed?**\
+`Mount clearly taps into a lot of what Amorim wants in a player. After two injury-hit seasons, the question is whether he can now kick on.`\
+https://nytimes.com/athletic/6874493/2025/12/09/mason-mount-man-united-improvement/
+
 **Word of the Day: fruition**\
 `This word has appeared in 444 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/12/09/learning/word-of-the-day-fruition.html

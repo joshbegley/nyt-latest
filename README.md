@@ -1,3 +1,7 @@
+**Late Night Sees Through Trump’s ‘Appease Prize’**\
+`“Call me a boomer, but these participation trophies have gone too far,” Stephen Colbert said before presenting himself with the First Annual Stephen Colbert Joke Prize.`\
+https://nytimes.com/2025/12/09/arts/television/late-night-trump-prize.html
+
 **Word of the Day: fruition**\
 `This word has appeared in 444 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/12/09/learning/word-of-the-day-fruition.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6874865/2025/12/09/england-mark-wood-ashes-out-inju
 **The New York Times in Print for Tuesday, Dec. 9, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/12/09/todays-new-york-times
-
-**'Monsters Funday Football': MNF alt-cast provides animated version of Eagles-Chargers game**\
-`Sulley had an MVP night and Mike Wazowski had clutch moments during ESPN's "Monsters Funday Football" broadcast of the Eagles-Chargers game.`\
-https://nytimes.com/athletic/6874722/2025/12/09/monsters-funday-football-movie-themed-alt-cast-mnf/
 
