@@ -1,3 +1,11 @@
+**Trump Offers Farmers $12 Billion Bailout From Trade War**\
+`President Trump promised struggling farmers billions in federal aid during a round-table meeting on Monday. This comes after China boycotted American farm products in retaliation for U.S. tariffs.`\
+https://nytimes.com/video/us/politics/100000010574568/trump-farmer-bailout-trade-war.html
+
+**Mutual interest between Phillies, Don Mattingly in bench coach role**\
+`Mattingly appears poised to become Philadelphia’s bench coach after he and the club work through final, contractual details. `\
+https://nytimes.com/athletic/6874120/2025/12/08/don-mattingly-phillies-bench-coach/
+
 **Heisman finalists: Jeremiyah Love, Fernando Mendoza, Diego Pavia top list**\
 `Love tallied 1,652 scrimmage yards, Mendoza led Indiana to the CFP's No. 1 seed and Pavia carried Vanderbilt to its first 10-win season.`\
 https://nytimes.com/athletic/6873825/2025/12/08/jeremiyah-love-fernando-mendoza-heisman-finalists-2025/
