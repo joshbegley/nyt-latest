@@ -1,3 +1,7 @@
+**With Teddy Bridgewater in stands, his high school team makes state title game**\
+`The Buccaneers QB coached Miami Northwestern to a state title in 2024. He watched as the team earned a return trip to the title game.`\
+https://nytimes.com/athletic/6874301/2025/12/08/teddy-bridgewater-miami-coach-northwest-high-school/
+
 **Dodger Details: Updates on Mookie Betts, the rotation, Tommy Edman and more**\
 `The back-to-back champs don't expect to be as aggressive this offseason, but there are subtle ways they can upgrade the roster. `\
 https://nytimes.com/athletic/6874167/2025/12/08/dodger-details-updates-on-mookie-betts-the-rotation-tommy-edman-and-more/

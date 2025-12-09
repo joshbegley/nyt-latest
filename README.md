@@ -1,3 +1,7 @@
+**Even entering Tarik Skubal's walk year, the Tigers seem fixated on the long game**\
+`Detroit appears unlikely to make any sort of splash at this year's Winter Meetings.`\
+https://nytimes.com/athletic/6874341/2025/12/08/tigers-tarik-skubal-winter-meetings-mlb/
+
 **With Teddy Bridgewater in stands, his high school team makes state title game**\
 `The Buccaneers QB coached Miami Northwestern to a state title in 2024. He watched as the team earned a return trip to the title game.`\
 https://nytimes.com/athletic/6874301/2025/12/08/teddy-bridgewater-miami-coach-northwest-high-school/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/08/us/desantis-cair-muslim-terrorism-florida.html
 **Shedeur Sanders and Cam Ward swap jerseys, show off friendship**\
 `The two rookies and friends have known each other since 2022, when they began training together`\
 https://nytimes.com/athletic/6874160/2025/12/08/shedeur-sanders-cam-ward-jersey-swap-friends/
-
-**Buster Posey's burning question: Would trading Bryce Eldridge be boldness or idiocy for Giants?**\
-`Posey demonstrated with the industry-shaking trade for Rafael Devers in June that he isn't timid about making a huge deal.`\
-https://nytimes.com/athletic/6874228/2025/12/08/buster-posey-trading-bryce-eldridge-boldness-or-idiocy/
 

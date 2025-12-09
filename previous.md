@@ -1,3 +1,7 @@
+**With Teddy Bridgewater in stands, his high school team makes state title game**\
+`The Buccaneers QB coached Miami Northwestern to a state title in 2024. He watched as the team earned a return trip to the title game.`\
+https://nytimes.com/athletic/6874301/2025/12/08/teddy-bridgewater-miami-coach-northwest-high-school/
+
 **Dodger Details: Updates on Mookie Betts, the rotation, Tommy Edman and more**\
 `The back-to-back champs don't expect to be as aggressive this offseason, but there are subtle ways they can upgrade the roster. `\
 https://nytimes.com/athletic/6874167/2025/12/08/dodger-details-updates-on-mookie-betts-the-rotation-tommy-edman-and-more/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6874160/2025/12/08/shedeur-sanders-cam-ward-jersey-
 **Buster Posey's burning question: Would trading Bryce Eldridge be boldness or idiocy for Giants?**\
 `Posey demonstrated with the industry-shaking trade for Rafael Devers in June that he isn't timid about making a huge deal.`\
 https://nytimes.com/athletic/6874228/2025/12/08/buster-posey-trading-bryce-eldridge-boldness-or-idiocy/
-
-**Trump Again Threatens Tariffs on Mexico Over Long-Running Water Dispute**\
-`The threat is the latest aggressive action that President Trump has taken against America’s biggest trading partners.`\
-https://nytimes.com/2025/12/08/us/politics/trump-tariffs-mexico-water.html
 
