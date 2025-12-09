@@ -1,3 +1,7 @@
+**Chargers Intercept Eagles’ Jalen Hurts 4 Times in Overtime Win**\
+`The Los Angeles Chargers needed overtime on Monday, but they held off the Philadelphia Eagles to win 22-19 and improve to 9-4.`\
+https://nytimes.com/video/sports/football/100000010575282/chargers-intercept-eagles-jalen-hurts-4-times-in-overtime-win.html
+
 **Thailand and Cambodia’s Renewed Border Conflict Forces Evacuations**\
 `Thais sought refuge at an evacuation center as deadly clashes with Cambodia reignited tensions near their shared border. Cambodian families near the border left in a caravan of tractors and motorcycles.`\
 https://nytimes.com/video/world/asia/100000010575164/thailand-cambodia-border-conflict-evacuation.html
