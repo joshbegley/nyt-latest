@@ -1,36 +1,36 @@
-**How to watch Florida vs. UConn men's basketball: Time, TV, streaming**\
-`Find out how to watch the Florida Gators play the UConn Huskies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6876421/2025/12/09/florida-vs-uconn-stream-how-to-watch-dec-9/
+**How to watch Bruins vs. Blues: Time, TV, streaming**\
+`Find out how to watch the Boston Bruins play the St. Louis Blues, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6876457/2025/12/09/bruins-vs-blues-stream-how-to-watch-dec-9/
 
-**How to watch Omaha vs. Nebraska women's basketball: Time, TV, streaming**\
-`Find out how to watch the Omaha Mavericks play the Nebraska Cornhuskers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6876418/2025/12/09/omaha-vs-nebraska-stream-how-to-watch-dec-9/
+**How to watch Avalanche vs. Predators: Time, TV, streaming**\
+`Find out how to watch the Colorado Avalanche play the Nashville Predators, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6876452/2025/12/09/avalanche-vs-predators-stream-how-to-watch-dec-9/
 
-**How to watch Illinois vs. Ohio State men's basketball: Time, TV, streaming**\
-`Find out how to watch the Illinois Fighting Illini play the Ohio State Buckeyes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6876416/2025/12/09/illinois-vs-ohio-state-stream-how-to-watch-dec-9/
+**How to watch Knicks vs. Raptors: Time, TV, streaming**\
+`Find out how to watch the New York Knicks play the Toronto Raptors, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6876450/2025/12/09/knicks-vs-raptors-stream-how-to-watch-dec-9/
 
-**How to watch Raiders vs. Eagles: Time, TV, streaming**\
-`Find out how to watch the Las Vegas Raiders play the Philadelphia Eagles, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6876408/2025/12/09/raiders-vs-eagles-stream-how-to-watch-dec-14/
+**How to watch Blue Jackets vs. Hurricanes: Time, TV, streaming**\
+`Find out how to watch the Columbus Blue Jackets play the Carolina Hurricanes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6876448/2025/12/09/blue-jackets-vs-hurricanes-stream-how-to-watch-dec-9/
 
-**How to watch Chargers vs. Chiefs: Time, TV, streaming**\
-`Find out how to watch the Los Angeles Chargers play the Kansas City Chiefs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6876406/2025/12/09/chargers-vs-chiefs-stream-how-to-watch-dec-14/
+**How to watch Sabres vs. Oilers: Time, TV, streaming**\
+`Find out how to watch the Buffalo Sabres play the Edmonton Oilers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6876446/2025/12/09/sabres-vs-oilers-stream-how-to-watch-dec-9/
 
-**How to watch Jets vs. Jaguars: Time, TV, streaming**\
-`Find out how to watch the New York Jets play the Jacksonville Jaguars, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6876402/2025/12/09/jets-vs-jaguars-stream-how-to-watch-dec-14/
+**How to watch Stars vs. Jets: Time, TV, streaming**\
+`Find out how to watch the Dallas Stars play the Winnipeg Jets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6876444/2025/12/09/stars-vs-jets-stream-how-to-watch-dec-9/
 
-**How to watch Bills vs. Patriots: Time, TV, streaming**\
-`Find out how to watch the Buffalo Bills play the New England Patriots, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6876399/2025/12/09/bills-vs-patriots-stream-how-to-watch-dec-14/
+**Magic to use regular court vs. Heat after NBA Cup court damaged in storage**\
+`Team did not feel comfortable using damaged surface. Earlier, Lakers scrapped their NBA Cup court after Luka Dončić called it "dangerous."`\
+https://nytimes.com/athletic/6876333/2025/12/09/magic-nba-cup-court-damaged/
 
-**How to watch Ravens vs. Bengals: Time, TV, streaming**\
-`Find out how to watch the Baltimore Ravens play the Cincinnati Bengals, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6876400/2025/12/09/ravens-vs-bengals-stream-how-to-watch-dec-14/
+**Fantasy football strength of schedule: Week 15 and playoff matchup rankings**\
+`Jake Ciely's Week 15 matchup and playoff rankings can help with difficult start/sit decisions this week and beyond.`\
+https://nytimes.com/athletic/6876209/2025/12/09/fantasy-football-strength-of-schedule-week-15-playoff-matchup-rankings/
 
-**How to watch Browns vs. Bears: Time, TV, streaming**\
-`Find out how to watch the Cleveland Browns play the Chicago Bears, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6876395/2025/12/09/browns-vs-bears-stream-how-to-watch-dec-14/
+**Dodgers try spending big on a closer — again — with Edwin Díaz**\
+`Díaz is coming off a good but not elite season and relievers are a risk, but the Dodgers have infinite payroll and had a need to fill. `\
+https://nytimes.com/athletic/6876222/2025/12/09/dodgers-edwin-diaz-signing-analysis/
 
