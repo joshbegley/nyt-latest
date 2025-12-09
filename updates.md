@@ -1,3 +1,15 @@
+**Dodger Details: Updates on Mookie Betts, the rotation, Tommy Edman and more**\
+`The back-to-back champs don't expect to be as aggressive this offseason, but there are subtle ways they can upgrade the roster. `\
+https://nytimes.com/athletic/6874167/2025/12/08/dodger-details-updates-on-mookie-betts-the-rotation-tommy-edman-and-more/
+
+**‘Marjorie Prime’ Review: A.I. Gave Her Back Her Husband. Was It Worth It?**\
+`June Squibb stars in the Broadway premiere of Jordan Harrison’s meditation on grief and the nature of human and artificial intelligence.`\
+https://nytimes.com/2025/12/08/theater/marjorie-prime-review-june-squibb.html
+
+**'Gap is small' between Yankees and Blue Jays in AL East, Aaron Boone says**\
+`New York has work to do, with Toronto already having added front-end starting pitcher Dylan Cease this offseason.`\
+https://nytimes.com/athletic/6874347/2025/12/08/yankees-aaron-boone-gap-is-small-between-us-blue-jays/
+
 **Cubs will still pursue high-leverage relief options after signing Phil Maton**\
 `By signing Maton to a two-year, $14.5 million deal last month, Jed Hoyer broke with his recent trend.`\
 https://nytimes.com/athletic/6874240/2025/12/08/cubs-will-pursue-high-leverage-relief/
