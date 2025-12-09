@@ -1,3 +1,11 @@
+**To land All-Star slugger Kyle Schwarber, Reds will need to be creative**\
+`The Reds want Schwarber, that much is known, even if what he wants has yet to be revealed.`\
+https://nytimes.com/athletic/6874149/2025/12/08/cincinnati-reds-kyle-schwarber-pursuit-update/
+
+**Shane Baz emerges as one target in the Astros' search for starting pitching: Sources**\
+`The 26-year-old Rays starter, a Houston native, has three more seasons of club control. `\
+https://nytimes.com/athletic/6874175/2025/12/08/shane-baz-astros-pitching-search/
+
 **Trump Offers Farmers $12 Billion Bailout From Trade War**\
 `President Trump promised struggling farmers billions in federal aid during a round-table meeting on Monday. This comes after China boycotted American farm products in retaliation for U.S. tariffs.`\
 https://nytimes.com/video/us/politics/100000010574568/trump-farmer-bailout-trade-war.html
