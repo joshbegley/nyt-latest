@@ -1,3 +1,15 @@
+**Molly Ringwald on Why ‘The Breakfast Club’ Is the Greatest Gen X Work of Art**\
+`The actress Molly Ringwald discusses one of the Gen X era’s most defining films, “The Breakfast Club,” in this excerpt from a T Magazine documentary about how the cohort once synonymous with slacking came to leave such an indelible impression on the culture.`\
+https://nytimes.com/video/t-magazine/100000010567988/molly-ringwald-on-why-the-breakfast-club-is-the-greatest-gen-x-work-of-art.html
+
+**Lithuania Declares National Emergency Over Suspicious Balloons From Belarus**\
+`Hundreds of weather balloons sent to Lithuania this year have disrupted flights and stirred alarm in a sabotage campaign against a NATO state.`\
+https://nytimes.com/2025/12/09/world/europe/lithuania-belarus-balloons-emergency.html
+
+**The Conflict Over Nigeria’s Returned Treasures**\
+`Western museums are returning the Benin Bronzes — priceless items looted during colonialism — to Nigeria, but political infighting has jeopardized the ability to display and maintain the masterpieces. Our reporter, Alex Marshall, traveled to Nigeria to see some of the Bronzes.`\
+https://nytimes.com/video/world/africa/100000010524653/returning-benin-bronzes.html
+
 **Needing a spark off the bench, the Timberwolves turn to Bones Hyland**\
 `The point guard position and scoring off the bench have been issues for Minnesota. Maybe Hyland can help fix things.`\
 https://nytimes.com/athletic/6874261/2025/12/09/bones-hyland-timberwolves-rotation-suns-loss/
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/6874048/2025/12/09/christian-watson-packers-receive
 **Erling Haaland vs Kylian Mbappe: Who has been better? And how are they changing?**\
 `Real Madrid and Manchester City's prolific strikers meet again in the Champions League on Tuesday night`\
 https://nytimes.com/athletic/6874943/2025/12/09/haaland-mbappe-champions-league-real-madrid-man-city/
-
-**Heisman straw poll: Fernando Mendoza narrowly beats Diego Pavia — will it foreshadow final vote?**\
-`This final straw poll featured the narrowest gap of the season between first and second place.`\
-https://nytimes.com/athletic/6873495/2025/12/09/heisman-trophy-voting-fernando-mendoza-diego-pavia/
-
-**From Disney World to dive boats: The wildest places MLB execs have made a trade or signing**\
-`A trade or signing can materialize at any minute. No flight, family dinner, car ride, vacation, graduation ceremony or wedding is safe.`\
-https://nytimes.com/athletic/6874054/2025/12/09/mlb-execs-trades-signings-places/
-
-**What do you think of the Big Ten's 16-team CFP idea now?**\
-`After another controversial CFP release day, it's worth checking on how an idea that didn't get very far earlier this year would have fared.`\
-https://nytimes.com/athletic/6870981/2025/12/09/tony-petitti-big-ten-playoff-expansion/
 
