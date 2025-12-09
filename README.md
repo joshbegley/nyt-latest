@@ -1,3 +1,7 @@
+**Cubs will still pursue high-leverage relief options after signing Phil Maton**\
+`By signing Maton to a two-year, $14.5 million deal last month, Jed Hoyer broke with his recent trend.`\
+https://nytimes.com/athletic/6874240/2025/12/08/cubs-will-pursue-high-leverage-relief/
+
 **How to watch Boise State vs. Washington: LA Bowl Start Time, TV, streaming**\
 `Find out how to watch the Boise State Broncos play the Washington Huskies, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6874442/2025/12/08/boise-state-vs-washington-stream-how-to-watch-dec-13/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6874265/2025/12/08/blue-jays-face-difficult-trade-d
 **At MLB's Winter Meetings, the Pirates are in a space they rarely occupy: in the mix**\
 `There’s a lot left to do to become contenders, and many in the industry are understandably dubious of the Pirates' appetite to spend.`\
 https://nytimes.com/athletic/6874220/2025/12/08/mlb-winter-meetings-pittsburgh-pirates-position/
-
-**Colts to work out QB Philip Rivers, 44, in wake of Daniel Jones' injury**\
-`The eight-time Pro Bowler hasn't played since 2020 when he led the Colts to their last playoff appearance.`\
-https://nytimes.com/athletic/6874207/2025/12/08/philip-rivers-colts-visit-return-nfl/
 

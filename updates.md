@@ -1,3 +1,7 @@
+**How to watch Boise State vs. Washington: LA Bowl Start Time, TV, streaming**\
+`Find out how to watch the Boise State Broncos play the Washington Huskies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6874442/2025/12/08/boise-state-vs-washington-stream-how-to-watch-dec-13/
+
 **DeSantis Designates Muslim Advocacy Group a ‘Terrorist Organization’**\
 `The executive order from the Florida governor came after another Republican governor, Greg Abbott of Texas, issued a similar declaration last month.`\
 https://nytimes.com/2025/12/08/us/desantis-cair-muslim-terrorism-florida.html
