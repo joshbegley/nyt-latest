@@ -1,3 +1,11 @@
+**Davies returns for Bayern after nine-month injury absence**\
+`The 25-year-old Canada international had been out of action since March after he tore the ACL in his right knee on international duty.`\
+https://nytimes.com/athletic/6876076/2025/12/09/alphonso-davies-bayern-return-canada-world-cup/
+
+**Scott Boras says 8 teams are interested in Cody Bellinger. What does that mean for Yankees?**\
+`Boras indicated nearly one-third of all MLB teams are interested in Bellinger. Will the Yankees be able to retain the free-agent outfielder?`\
+https://nytimes.com/athletic/6876011/2025/12/09/cody-bellinger-yankees-scott-boras/
+
 **Fantasy football market share report: Chris Rodriguez has top-20 appeal in Week 15**\
 `Michael Salfino analyzes the touches and targets distribution for Week 14, and sees big things ahead for Chris Rodriguez and Woody Marks.`\
 https://nytimes.com/athletic/6876144/2025/12/09/fantasy-football-market-share-report-chris-rodriguez/
