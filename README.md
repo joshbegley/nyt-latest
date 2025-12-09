@@ -1,3 +1,7 @@
+**'Gap is small' between Yankees and Blue Jays in AL East, Aaron Boone says**\
+`New York has work to do, with Toronto already having added front-end starting pitcher Dylan Cease this offseason.`\
+https://nytimes.com/athletic/6874347/2025/12/08/yankees-aaron-boone-gap-is-small-between-us-blue-jays/
+
 **Cubs will still pursue high-leverage relief options after signing Phil Maton**\
 `By signing Maton to a two-year, $14.5 million deal last month, Jed Hoyer broke with his recent trend.`\
 https://nytimes.com/athletic/6874240/2025/12/08/cubs-will-pursue-high-leverage-relief/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6874260/2025/12/08/los-angeles-dodgers-teoscar-hern
 **Blue Jays face difficult trade decision with ‘disappointed’ José Berríos**\
 `Toronto will have a tough time moving the right-handed pitcher with three years and $66 million remaining on his contract.`\
 https://nytimes.com/athletic/6874265/2025/12/08/blue-jays-face-difficult-trade-decision-with-disappointed-jose-berrios/
-
-**At MLB's Winter Meetings, the Pirates are in a space they rarely occupy: in the mix**\
-`There’s a lot left to do to become contenders, and many in the industry are understandably dubious of the Pirates' appetite to spend.`\
-https://nytimes.com/athletic/6874220/2025/12/08/mlb-winter-meetings-pittsburgh-pirates-position/
 
