@@ -1,36 +1,36 @@
+**Edwin Díaz signs three-year deal with the Dodgers: Sources**\
+`The reigning world champs add the market's top closer to their bullpen. `\
+https://nytimes.com/athletic/6837757/2025/12/09/mlb-edwin-diaz-free-agency-signing-dodgers/
+
+**Wall Street Is Shaking Off Fears of an A.I. Bubble. For Now.**\
+`The valuations of some artificial intelligence companies are approaching those of the dot-com boom. But investors worry that pulling money from today’s market risks future gains.`\
+https://nytimes.com/2025/12/09/business/wall-street-valuation-ai-bubble.html
+
+**Why the A.I. Boom Is Unlike the Dot-Com Boom**\
+`Silicon Valley is again betting everything on a new technology. But the mania is not a reboot of the late-1990s frenzy.`\
+https://nytimes.com/2025/12/09/technology/ai-boom-unlike-dot-com-boom.html
+
+**Illinois Governor Signs Bill Imposing New Limits on Immigration Enforcement**\
+`The measure restricts immigration arrests around state courthouses. Republicans have criticized the law and suggested it would face legal challenges.`\
+https://nytimes.com/2025/12/09/us/illinois-immigration-legislation-pritzker.html
+
+**Kyle Schwarber to re-sign with Phillies on five-year, $150 million deal: Source**\
+`The Phillies are bringing back the slugger after a career year in which he led the NL with 56 homers and the majors with 132 RBIs. `\
+https://nytimes.com/athletic/6799636/2025/12/09/mlb-kyle-schwarber-free-agency-signing-phillies/
+
+**Spurs LGBTQ+ flag relocated after Slavia Prague request**\
+`The large flag is usually situated in the North-East corner of the Spurs ground and will instead be displayed in the South-West corner.`\
+https://nytimes.com/athletic/6875604/2025/12/09/tottenham-slavia-prague-lgbtq-pride-flag/
+
+**Mets open to moving All-Star starting pitcher David Peterson: Sources**\
+`Given Peterson's production over the last two seasons and his affordable salary in 2026, the Mets hold a high asking price for the starter.`\
+https://nytimes.com/athletic/6875757/2025/12/09/mets-david-peterson-trade-market/
+
+**How to watch Sharks vs. Flyers: Time, TV, streaming**\
+`Find out how to watch the San Jose Sharks play the Philadelphia Flyers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6875847/2025/12/09/sharks-vs-flyers-stream-how-to-watch-dec-9/
+
 **How to watch Lightning vs. Canadiens: Time, TV, streaming**\
 `Find out how to watch the Tampa Bay Lightning play the Montreal Canadiens, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6875843/2025/12/09/lightning-vs-canadiens-stream-how-to-watch-dec-9/
-
-**How to watch Golden Knights vs. Islanders: Time, TV, streaming**\
-`Find out how to watch the Vegas Golden Knights play the New York Islanders, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6875841/2025/12/09/golden-knights-vs-islanders-stream-how-to-watch-dec-9/
-
-**How to watch Heat vs. Magic: Time, TV, streaming**\
-`Find out how to watch the Miami Heat play the Orlando Magic, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6875838/2025/12/09/heat-vs-magic-stream-how-to-watch-dec-9/
-
-**How to watch Ducks vs. Penguins: Time, TV, streaming**\
-`Find out how to watch the Anaheim Ducks play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6875839/2025/12/09/ducks-vs-penguins-stream-how-to-watch-dec-9/
-
-**How to watch Devils vs. Senators: Time, TV, streaming**\
-`Find out how to watch the New Jersey Devils play the Ottawa Senators, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6875834/2025/12/09/devils-vs-senators-stream-how-to-watch-dec-9/
-
-**Top 25 possible national championship games: Will it be an Indiana-Ohio State rematch?**\
-`With apologies to Tulane and James Madison, these are the 25 national title matchups we're likely to see on Jan. 19 in Miami.`\
-https://nytimes.com/athletic/6875276/2025/12/09/college-football-playoff-most-likely-national-championships/
-
-**How to watch Maryland-Eastern Shore vs. Virginia men's basketball: Time, TV, streaming**\
-`Find out how to watch the Maryland-Eastern Shore Hawks play the Virginia Cavaliers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6875800/2025/12/09/maryland-eastern-shore-vs-virginia-stream-how-to-watch-dec-9/
-
-**How to watch Clemson vs. BYU men's basketball: Time, TV, streaming**\
-`Find out how to watch the Clemson Tigers play the BYU Cougars, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6875798/2025/12/09/clemson-vs-byu-stream-how-to-watch-dec-9/
-
-**How to watch Villanova vs. Michigan men's basketball: Time, TV, streaming**\
-`Find out how to watch the Villanova Wildcats play the Michigan Wolverines, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6875795/2025/12/09/villanova-vs-michigan-stream-how-to-watch-dec-9/
 
