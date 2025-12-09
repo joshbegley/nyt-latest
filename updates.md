@@ -1,3 +1,7 @@
+**Justice Dept. Fights Roadblock to Pursuing Comey Case**\
+`The battle preceded the department’s looming decision over whether — and how — to bring new charges against James B. Comey.`\
+https://nytimes.com/2025/12/09/us/politics/evidence-comey-case.html
+
 **Edwin Díaz signs three-year deal with the Dodgers: Sources**\
 `The reigning world champs add the market's top closer to their bullpen. `\
 https://nytimes.com/athletic/6837757/2025/12/09/mlb-edwin-diaz-free-agency-signing-dodgers/

@@ -1,3 +1,7 @@
+**Justice Dept. Fights Roadblock to Pursuing Comey Case**\
+`The battle preceded the department’s looming decision over whether — and how — to bring new charges against James B. Comey.`\
+https://nytimes.com/2025/12/09/us/politics/evidence-comey-case.html
+
 **Edwin Díaz signs three-year deal with the Dodgers: Sources**\
 `The reigning world champs add the market's top closer to their bullpen. `\
 https://nytimes.com/athletic/6837757/2025/12/09/mlb-edwin-diaz-free-agency-signing-dodgers/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6875757/2025/12/09/mets-david-peterson-trade-market
 **How to watch Sharks vs. Flyers: Time, TV, streaming**\
 `Find out how to watch the San Jose Sharks play the Philadelphia Flyers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6875847/2025/12/09/sharks-vs-flyers-stream-how-to-watch-dec-9/
-
-**How to watch Lightning vs. Canadiens: Time, TV, streaming**\
-`Find out how to watch the Tampa Bay Lightning play the Montreal Canadiens, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6875843/2025/12/09/lightning-vs-canadiens-stream-how-to-watch-dec-9/
 

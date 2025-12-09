@@ -1,8 +1,12 @@
+**Chelsea hope Delap can return in four weeks after shoulder injury**\
+`Delap went off in the first-half of Saturday's 0-0 draw against Bournemouth holding his right shoulder.`\
+https://nytimes.com/athletic/6870186/2025/12/09/liam-delap-chelsea-injury-update/
+
 **Justice Dept. Fights Roadblock to Pursuing Comey Case**\
 `The battle preceded the department’s looming decision over whether — and how — to bring new charges against James B. Comey.`\
 https://nytimes.com/2025/12/09/us/politics/evidence-comey-case.html
 
-**Edwin Díaz signs three-year deal with the Dodgers: Sources**\
+**Edwin Díaz signs three-year, $69 million deal with the Dodgers: Sources**\
 `The reigning world champs add the market's top closer to their bullpen. `\
 https://nytimes.com/athletic/6837757/2025/12/09/mlb-edwin-diaz-free-agency-signing-dodgers/
 
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6875604/2025/12/09/tottenham-slavia-prague-lgbtq-pr
 **Mets open to moving All-Star starting pitcher David Peterson: Sources**\
 `Given Peterson's production over the last two seasons and his affordable salary in 2026, the Mets hold a high asking price for the starter.`\
 https://nytimes.com/athletic/6875757/2025/12/09/mets-david-peterson-trade-market/
-
-**How to watch Sharks vs. Flyers: Time, TV, streaming**\
-`Find out how to watch the San Jose Sharks play the Philadelphia Flyers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6875847/2025/12/09/sharks-vs-flyers-stream-how-to-watch-dec-9/
 
