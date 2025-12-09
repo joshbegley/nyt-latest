@@ -1,3 +1,11 @@
+**Frank Gehry’s Forgotten Masterpiece: His Own House in Santa Monica**\
+`Using hardware store materials, the architect turned a pink suburban bungalow into a Deconstructivist icon in the late 1970s.`\
+https://nytimes.com/2025/12/09/realestate/frank-gehry-house-santa-monica.html
+
+**Why Some Teenagers Are Against Australia’s Social Media Ban**\
+`Australia has imposed one of the world’s most comprehensive measures banning social media for children under 16. This is what several young Australian teens think about the ban, which takes effect on Wednesday.`\
+https://nytimes.com/video/world/australia/100000010564624/australia-social-media-ban-teens.html
+
 **FIFA President Infantino accused of ethics breaches relating to Trump**\
 `Advocacy group FairSquare has also requested an investigation into President Trump being awarded the inaugural FIFA Peace Prize last Friday.`\
 https://nytimes.com/athletic/6873068/2025/12/09/fifa-infantino-trump-peace-prize-complaint/
