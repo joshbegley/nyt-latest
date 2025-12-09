@@ -1,3 +1,23 @@
+**Thailand and Cambodia’s Renewed Border Conflict Forces Evacuations**\
+`Thais sought refuge at an evacuation center as deadly clashes with Cambodia reignited tensions near their shared border. Cambodian families near the border left in a caravan of tractors and motorcycles.`\
+https://nytimes.com/video/world/asia/100000010575164/thailand-cambodia-border-conflict-evacuation.html
+
+**All 187,460 Miles of Road That Led to Rome, Mapped**\
+`A digital atlas of ancient Rome’s highways and byways reveals a road network that was more extensive than thought.`\
+https://nytimes.com/2025/12/09/science/archaeology-roman-empire-roads.html
+
+**Style in 2025**\
+`Who would make your best dressed list this year?`\
+https://nytimes.com/2025/12/09/learning/style-in-2025.html
+
+**Wrenching Pain, a Severe Infection: An ICE Detainee Is Ordered Released**\
+`A judge blamed “deliberate indifference” for the illness of a man held by immigration officials. Across the country, several courts have blasted conditions in U.S. facilities.`\
+https://nytimes.com/2025/12/09/nyregion/ice-detention-facilities-judges-criticism.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/12/09/crosswords/spelling-bee-forum.html
+
 **Late Night Sees Through Trump’s ‘Appease Prize’**\
 `“Call me a boomer, but these participation trophies have gone too far,” Stephen Colbert said before presenting himself with the First Annual Stephen Colbert Joke Prize.`\
 https://nytimes.com/2025/12/09/arts/television/late-night-trump-prize.html
@@ -13,24 +33,4 @@ https://nytimes.com/2025/12/09/world/asia/thailand-cambodia-border-conflict-evac
 **Slot retains support after Salah outburst, but credit in the bank is not endless**\
 `Slot faced the media on Monday after Salah's comments and dealt with them admirably. But he is facing the biggest test of his career`\
 https://nytimes.com/athletic/6873996/2025/12/09/arne-slot-salah-liverpool-interview/
-
-**Wolves, doom and watching the worst team in England: 'Shall we go in?' 'Do we have to?'**\
-`Collectively, they are hapless, hopeless and unable to attack or defend to Premier League standard. Apart from that, they're fine.`\
-https://nytimes.com/athletic/6873969/2025/12/09/wolves-premier-league-protests/
-
-**Is Mount finally offering United glimpses of the player they signed?**\
-`Mount clearly taps into a lot of what Amorim wants in a player. After two injury-hit seasons, the question is whether he can now kick on`\
-https://nytimes.com/athletic/6874493/2025/12/09/mason-mount-man-united-improvement/
-
-**Jeremy O. Harris Is Released From Custody in Japan**\
-`The Tony-nominated playwright was arrested last month on suspicion of attempted drug smuggling. He was released on Monday, Japanese officials said.`\
-https://nytimes.com/2025/12/09/theater/jeremy-harris-japan-released.html
-
-**Derik Queen's historic game, Dylan Harper's GW highlight great start for rookie class**\
-`Rookies Derik Queen and Dylan Harper showed out in a crunch-time battle of two star rookies in the making.`\
-https://nytimes.com/athletic/6874850/2025/12/09/derik-queens-historic-game-dylan-harpers-gw-highlight-great-start-for-rookie-class/
-
-**England’s Wood 'desperately disappointed' after being ruled out of Ashes tour with knee injury**\
-`The seamer's knee injury was picked up in the first Test in Perth and he missed the second Test as a result.`\
-https://nytimes.com/athletic/6874865/2025/12/09/england-mark-wood-ashes-out-injury/
 

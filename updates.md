@@ -1,3 +1,23 @@
+**Thailand and Cambodia’s Renewed Border Conflict Forces Evacuations**\
+`Thais sought refuge at an evacuation center as deadly clashes with Cambodia reignited tensions near their shared border. Cambodian families near the border left in a caravan of tractors and motorcycles.`\
+https://nytimes.com/video/world/asia/100000010575164/thailand-cambodia-border-conflict-evacuation.html
+
+**All 187,460 Miles of Road That Led to Rome, Mapped**\
+`A digital atlas of ancient Rome’s highways and byways reveals a road network that was more extensive than thought.`\
+https://nytimes.com/2025/12/09/science/archaeology-roman-empire-roads.html
+
+**Style in 2025**\
+`Who would make your best dressed list this year?`\
+https://nytimes.com/2025/12/09/learning/style-in-2025.html
+
+**Wrenching Pain, a Severe Infection: An ICE Detainee Is Ordered Released**\
+`A judge blamed “deliberate indifference” for the illness of a man held by immigration officials. Across the country, several courts have blasted conditions in U.S. facilities.`\
+https://nytimes.com/2025/12/09/nyregion/ice-detention-facilities-judges-criticism.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/12/09/crosswords/spelling-bee-forum.html
+
 **Wolves, doom and watching the worst team in England: 'Shall we go in?' 'Do we have to?'**\
 `Collectively, they are hapless, hopeless and unable to attack or defend to Premier League standard. Apart from that, they're fine.`\
 https://nytimes.com/athletic/6873969/2025/12/09/wolves-premier-league-protests/
