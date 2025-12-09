@@ -1,3 +1,7 @@
+**NBA teams are crashing boards like never before. A call to New Zealand got things started**\
+`You may not know Paul Henare, but if you've watched games recently, you've seen a beloved strategy of his in action.`\
+https://nytimes.com/athletic/6859085/2025/12/09/nba-offensive-rebounding-new-zealand-coaching/
+
 **Why are we seeing the worst version of Lamar Jackson, and what's next for Daniel Jones?**\
 `Is it simply injuries hampering the Ravens' superstar quarterback, or is there more to it?`\
 https://nytimes.com/athletic/6873174/2025/12/09/nfl-qb-stock-report-rankings-lamar-jackson-ravens-daniel-jones-colts/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6875098/2025/12/09/alabama-state-vs-baylor-stream-h
 **Darko Rajaković 'holds nothing back'. And the Raptors embrace the honesty**\
 `"Any time he gets mad and swears in Serbian, that s--- is so funny," Jamal Shead says of his head coach. `\
 https://nytimes.com/athletic/6866143/2025/12/09/raptors-coach-darko-rajakovic-direct-communication-style/
-
-**The Affordability Crisis Is Not a ‘Hoax’**\
-`I doubt this was what Trump meant when he called himself “Mr. Brexit.”`\
-https://nytimes.com/2025/12/09/opinion/trump-affordability-crisis-hoax.html
 
