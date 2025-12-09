@@ -1,3 +1,7 @@
+**How Much Could China Gain From Access to Powerful Nvidia Chips?**\
+`President Trump said Nvidia can export some chips. But years of U.S. restrictions have propelled China to make everything it needs for advanced A.I.`\
+https://nytimes.com/2025/12/09/business/china-gains-trump-nvidia-chips.html
+
 **The Pulse: The Playoff's biggest blunder, according to you**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6873744/2025/12/09/notre-dame-cfp-snub-the-pulse/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6874757/2025/12/09/maple-leafs-hildeby-shutout-goal
 **The Lions' playoff chances: Win out or go 3-1, plus what to watch this week**\
 `The Lions play on the road for three of their final four games and are on the outside looking in on the NFC playoff battle.`\
 https://nytimes.com/athletic/6873488/2025/12/09/lions-playoff-chances-week-15-rams/
-
-**Kevin O'Connell's offensive formula worked vs. Commanders — but is it sustainable?**\
-`O'Connell's offensive plan, which simplified things for young quarterback J.J. McCarthy, worked well in the Vikings' Week 14 victory.`\
-https://nytimes.com/athletic/6873881/2025/12/09/vikings-commanders-kevin-oconnell-offense-jj-mccarthy/
 

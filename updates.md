@@ -1,3 +1,7 @@
+**How Much Could China Gain From Access to Powerful Nvidia Chips?**\
+`President Trump said Nvidia can export some chips. But years of U.S. restrictions have propelled China to make everything it needs for advanced A.I.`\
+https://nytimes.com/2025/12/09/business/china-gains-trump-nvidia-chips.html
+
 **The Pulse: The Playoff's biggest blunder, according to you**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6873744/2025/12/09/notre-dame-cfp-snub-the-pulse/
