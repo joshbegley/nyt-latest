@@ -1,3 +1,11 @@
+**Patriots, Broncos, Rams and other Week 15 NFL playoff clinching scenarios**\
+`No NFL teams are locked into the postseason yet, but that could change this week. We break down all the Week 15 clinching scenarios.`\
+https://nytimes.com/athletic/6876202/2025/12/09/nfl-playoff-clinching-scenarios-week-15-patriots-rams/
+
+**With Colorful Sculptures, Artist With a Learning Disability Wins the Turner Prize**\
+`Nnena Kalu, who uses cardboard and tape to create her work, received the prestigious art award.`\
+https://nytimes.com/2025/12/09/arts/design/turner-prize-nnena-kalu.html
+
 **Davies returns for Bayern after nine-month injury absence**\
 `The 25-year-old Canada international had been out of action since March after he tore the ACL in his right knee on international duty.`\
 https://nytimes.com/athletic/6876076/2025/12/09/alphonso-davies-bayern-return-canada-world-cup/
