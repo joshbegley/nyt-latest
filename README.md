@@ -1,3 +1,11 @@
+**Multiple Injuries Reported in Shooting at Kentucky State University, Officials Say**\
+`The police said a suspect had been arrested after the shooting at the school in Frankfort, Ky.`\
+https://nytimes.com/2025/12/09/us/shooting-kentucky-state-university.html
+
+**Videos Played at Mangione Hearings Reveal New Details About His Arrest**\
+`Prosecutors showed body camera footage as they argued that some evidence collected when Luigi Mangione was arrested should be admitted at trial.`\
+https://nytimes.com/2025/12/09/nyregion/luigi-mangione-hearing-video.html
+
 **Kathryn Garcia Expected to Be Named New Head of the Port Authority**\
 `Ms. Garcia, who ran for mayor of New York in 2021 after serving as the city’s sanitation commissioner, would succeed Rick Cotton, who is retiring.`\
 https://nytimes.com/2025/12/09/nyregion/kathryn-garcia-port-authority.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6876305/2025/12/09/kyle-schwarber-phillies-contract
 **‘Severance’ Actor Michael Chernus Loves an Old Restaurant**\
 `“You just feel the history and all the stories that must have happened there and all the people who sat at the bar.”`\
 https://nytimes.com/2025/12/09/dining/severance-actor-michael-chernus-where-to-eat.html
-
-**Super Bowl odds: AFC South shakeup following Daniel Jones' injury**\
-`The top seven Super Bowl favorites remained the same from a week ago, but the AFC South saw some movement after Daniel Jones' injury.`\
-https://nytimes.com/athletic/6876048/2025/12/09/super-bowl-2026-odds-betting-colts-patriots-rams/
-
-**How to watch Bruins vs. Blues: Time, TV, streaming**\
-`Find out how to watch the Boston Bruins play the St. Louis Blues, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6876457/2025/12/09/bruins-vs-blues-stream-how-to-watch-dec-9/
 
