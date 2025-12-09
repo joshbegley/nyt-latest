@@ -1,4 +1,8 @@
-**Chargers intercept Eagles' Jalen Hurts 4 times, including the clincher in OT: takeaways**\
+**'Monsters Funday Football': MNF alt-cast provides animated version of Eagles-Chargers game**\
+`Sulley had an MVP night and Mike Wazowski had clutch moments during ESPN's "Monsters Funday Football" broadcast of the Eagles-Chargers game.`\
+https://nytimes.com/athletic/6874722/2025/12/09/monsters-funday-football-movie-themed-alt-cast-mnf/
+
+**Chargers intercept Eagles' Jalen Hurts 4 times, including the clincher in OT: Takeaways**\
 `Los Angeles defensive back Tony Jefferson picks off a tipped ball near the goal line to seal the 22-19 victory in overtime.`\
 https://nytimes.com/athletic/6874100/2025/12/09/eagles-chargers-score-result-takeaways-mnf/
 
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6872476/2025/12/09/champions-league-projections-man
 **Interview: Newcastle sporting director Ross Wilson on transfers, Elliot Anderson and Eddie Howe**\
 `In a career that has taken him from Falkirk to Southampton to Rangers and Nottingham Forest, Wilson faces his biggest challenge at Newcastle`\
 https://nytimes.com/athletic/6858056/2025/12/09/interview-newcastle-sporting-director-ross-wilson-transfers-elliot-anderson-eddie-howe/
-
-**What is pubalgia, the chronic condition afflicting Yamal, Palmer and Williams?**\
-`We dig deep on why this injury is so problematic for young wingers — and how can it be treated`\
-https://nytimes.com/athletic/6866405/2025/12/09/what-is-pubalgia-the-chronic-groin-condition-afflicting-yamal-palmer-and-williams/
 

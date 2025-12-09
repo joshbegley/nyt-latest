@@ -1,3 +1,7 @@
+**Chargers intercept Eagles' Jalen Hurts 4 times, including the clincher in OT: takeaways**\
+`Los Angeles defensive back Tony Jefferson picks off a tipped ball near the goal line to seal the 22-19 victory in overtime.`\
+https://nytimes.com/athletic/6874100/2025/12/09/eagles-chargers-score-result-takeaways-mnf/
+
 **England sacrificed James Anderson…for this?**\
 `He is 43 but was still producing the goods when he wasn't allowed to retire on his own terms. Would he not have been useful for this Ashes?`\
 https://nytimes.com/athletic/6872299/2025/12/09/james-anderson-england-sacrificed-ashes/
