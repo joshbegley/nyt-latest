@@ -3,7 +3,7 @@
 https://nytimes.com/2025/12/09/us/politics/aca-obamacare-health-subsidies-senate.html
 
 **Why there's no Plan B for Olympic hockey rinks, plus NHL betting integrity, more BOG rumblings**\
-`Also from the NHL's Board of Governors meeting, updates on Canada's men's roster, World Cup planning, Junior-NCAA logistics and NHL revenue.`\
+`Also from the NHL's Board of Governors meeting: updates on Canada's men's roster, World Cup planning, Junior-NCAA logistics and NHL revenue.`\
 https://nytimes.com/athletic/6876636/2025/12/09/olympic-hockey-rink-board-of-governors/
 
 **End of Major Corruption Case Embarrasses N.Y. Cannabis Regulators**\
