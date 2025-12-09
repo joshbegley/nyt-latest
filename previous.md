@@ -1,9 +1,17 @@
+**Heisman finalists: Jeremiyah Love, Fernando Mendoza, Diego Pavia top list**\
+`Love tallied 1,652 scrimmage yards, Mendoza led Indiana to the CFP's No. 1 seed and Pavia carried Vanderbilt to its first 10-win season.`\
+https://nytimes.com/athletic/6873825/2025/12/08/jeremiyah-love-fernando-mendoza-heisman-finalists-2025/
+
+**Detroit Tigers to play exhibition games against Dominican Republic honoring April nightclub victims**\
+`The Dominican Republic will play the Tigers as a warmup for the World Baseball Classic.`\
+https://nytimes.com/athletic/6874099/2025/12/08/tigers-dominican-republic-exhibition-game-nightclub-victims/
+
 **Supreme Court Questions N.Y. Ban on Religious Exemptions for Vaccines**\
 `The U.S. Supreme Court directed a lower court to review the ban, which applies to strict vaccine requirements in New York schools.`\
 https://nytimes.com/2025/12/08/nyregion/ny-school-vaccinations.html
 
-**Federal Judge Finds Trump’s Halt on Offshore Wind Is Illegal**\
-`The president ordered a stop to permits for all wind farms in federal waters. A judge called that “capricious.”`\
+**Federal Judge Finds Trump’s Halt on Wind Energy Is Illegal**\
+`The president ordered a stop to permits for all wind farms on federal lands and waters. A judge called that “capricious.”`\
 https://nytimes.com/2025/12/08/climate/trump-offshore-wind-federal-judge.html
 
 **Justices Seem Poised to Expand Trump’s Powers**\
@@ -25,12 +33,4 @@ https://nytimes.com/2025/12/08/science/john-noble-wilford-dead.html
 **Bruce Blakeman Moves to Launch New York Governor Campaign**\
 `Mr. Blakeman, the Nassau County executive, would face a bitter Republican primary showdown with Representative Elise Stefanik.`\
 https://nytimes.com/2025/12/08/nyregion/bruce-blakeman-new-york-governor.html
-
-**One Hundred Schoolchildren Released After Abduction in Nigeria**\
-`One hundred children who had been kidnapped from a Catholic school in northwestern Nigeria last month were released on Sunday. This is part of a larger trend of kidnappings in Nigeria, where victims are released in exchange for ransom.`\
-https://nytimes.com/video/world/africa/100000010574032/nigeria-abducted-children-released.html
-
-**Patriots-Ravens flexed into Week 16 'Sunday Night Football,' bumping Bengals-Dolphins**\
-`The flex gives the Patriots their fourth prime-time game of the season, while the Ravens will make their fifth prime-time appearance.`\
-https://nytimes.com/athletic/6873995/2025/12/08/patriots-ravens-sunday-night-football-flexed/
 
