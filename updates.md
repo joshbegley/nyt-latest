@@ -1,3 +1,7 @@
+**Florida State women's soccer wins third national championship in five years**\
+`Wrianna Hudson scored with three minutes left as the Seminoles won their third title in the past five years.`\
+https://nytimes.com/athletic/6874386/2025/12/08/florida-state-womens-soccer-national-championship-recap-takeaways/
+
 **Angels focus on Tyler Skaggs' drug use as final week of testimony begins**\
 `Defense questions Skaggs' widow and mother, aiming to show that pitcher wasn’t using opiates solely to deal with pain.`\
 https://nytimes.com/athletic/6874582/2025/12/08/angels-tyler-skaggs-trial-drug-use/

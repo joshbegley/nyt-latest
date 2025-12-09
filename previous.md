@@ -1,3 +1,7 @@
+**Florida State women's soccer wins third national championship in five years**\
+`Wrianna Hudson scored with three minutes left as the Seminoles won their third title in the past five years.`\
+https://nytimes.com/athletic/6874386/2025/12/08/florida-state-womens-soccer-national-championship-recap-takeaways/
+
 **Angels focus on Tyler Skaggs' drug use as final week of testimony begins**\
 `Defense questions Skaggs' widow and mother, aiming to show that pitcher wasn’t using opiates solely to deal with pain.`\
 https://nytimes.com/athletic/6874582/2025/12/08/angels-tyler-skaggs-trial-drug-use/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6874479/2025/12/08/pete-alonso-new-york-mets-winter
 **Propellers of a Shell**\
 `Kate Hawkins remains undecided.`\
 https://nytimes.com/2025/12/08/crosswords/daily-puzzle-2025-12-09.html
-
-**Even entering Tarik Skubal's walk year, the Tigers seem fixated on the long game**\
-`Detroit appears unlikely to make any sort of splash at this year's Winter Meetings.`\
-https://nytimes.com/athletic/6874341/2025/12/08/tigers-tarik-skubal-winter-meetings-mlb/
 
