@@ -1,3 +1,7 @@
+**Slot retains support after Salah outburst, but credit in the bank is not endless**\
+`Slot faced the media on Monday after Salah's comments and dealt with them admirably. But he is facing the biggest test of his career.`\
+https://nytimes.com/athletic/6873996/2025/12/09/arne-slot-salah-liverpool-interview/
+
 **Jeremy O. Harris Is Released From Custody in Japan**\
 `The Tony-nominated playwright was arrested last month on suspicion of attempted drug smuggling. He was released on Monday, Japanese officials said.`\
 https://nytimes.com/2025/12/09/theater/jeremy-harris-japan-released.html

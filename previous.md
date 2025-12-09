@@ -1,3 +1,7 @@
+**Slot retains support after Salah outburst, but credit in the bank is not endless**\
+`Slot faced the media on Monday after Salah's comments and dealt with them admirably. But he is facing the biggest test of his career.`\
+https://nytimes.com/athletic/6873996/2025/12/09/arne-slot-salah-liverpool-interview/
+
 **Jeremy O. Harris Is Released From Custody in Japan**\
 `The Tony-nominated playwright was arrested last month on suspicion of attempted drug smuggling. He was released on Monday, Japanese officials said.`\
 https://nytimes.com/2025/12/09/theater/jeremy-harris-japan-released.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6872299/2025/12/09/james-anderson-england-sacrifice
 **Ezri Konsa has become a master of a specific - and unexpected - skill**\
 `Winning free kicks can be seen as a wily trick or as one of football's darker arts – regardless, Konsa takes responsibility on the field`\
 https://nytimes.com/athletic/6713011/2025/12/09/aston-villas-ezri-konsa-has-become-a-master-of-a-specific-and-unexpected-skill/
-
-**Gary Dicker on swapping Brighton for Charlotte: ‘More coaches should look outside the box’**\
-`As under-21s assistant coach, Dicker was comfortable at Brighton. But in a leap of faith, he uprooted to North Carolina to face a challenge`\
-https://nytimes.com/athletic/6722446/2025/12/09/gary-dicker-brighton-charlotte-crown-legacy-interview/
 
