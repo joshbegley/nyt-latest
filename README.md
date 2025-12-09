@@ -1,3 +1,23 @@
+**How to watch Lightning vs. Canadiens: Time, TV, streaming**\
+`Find out how to watch the Tampa Bay Lightning play the Montreal Canadiens, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6875843/2025/12/09/lightning-vs-canadiens-stream-how-to-watch-dec-9/
+
+**How to watch Golden Knights vs. Islanders: Time, TV, streaming**\
+`Find out how to watch the Vegas Golden Knights play the New York Islanders, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6875841/2025/12/09/golden-knights-vs-islanders-stream-how-to-watch-dec-9/
+
+**How to watch Heat vs. Magic: Time, TV, streaming**\
+`Find out how to watch the Miami Heat play the Orlando Magic, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6875838/2025/12/09/heat-vs-magic-stream-how-to-watch-dec-9/
+
+**How to watch Ducks vs. Penguins: Time, TV, streaming**\
+`Find out how to watch the Anaheim Ducks play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6875839/2025/12/09/ducks-vs-penguins-stream-how-to-watch-dec-9/
+
+**How to watch Devils vs. Senators: Time, TV, streaming**\
+`Find out how to watch the New Jersey Devils play the Ottawa Senators, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6875834/2025/12/09/devils-vs-senators-stream-how-to-watch-dec-9/
+
 **Top 25 possible national championship games: Will it be an Indiana-Ohio State rematch?**\
 `With apologies to Tulane and James Madison, these are the 25 national title matchups we're likely to see on Jan. 19 in Miami.`\
 https://nytimes.com/athletic/6875276/2025/12/09/college-football-playoff-most-likely-national-championships/
@@ -13,24 +33,4 @@ https://nytimes.com/athletic/6875798/2025/12/09/clemson-vs-byu-stream-how-to-wat
 **How to watch Villanova vs. Michigan men's basketball: Time, TV, streaming**\
 `Find out how to watch the Villanova Wildcats play the Michigan Wolverines, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6875795/2025/12/09/villanova-vs-michigan-stream-how-to-watch-dec-9/
-
-**Kyle Schwarber, Will Smith among players added to 2026 USA WBC roster**\
-`Schwarber is one of the key players announced Tuesday for a squad looking to avenge their 2023 gold medal game loss.`\
-https://nytimes.com/athletic/6875699/2025/12/09/kyle-schwarber-usa-2026-world-baseball-classic/
-
-**NFL MVP odds: Drake Maye, Josh Allen on collision course in Week 15**\
-`Matthew Stafford and Drake Maye are the indisputable favorites for MVP. But with Josh Allen up next for Maye, could odds shift?`\
-https://nytimes.com/athletic/6873277/2025/12/09/nfl-mvp-odds-drake-maye-josh-allen/
-
-**Jerry Jones not concerned about George Pickens' effort, appreciates his intensity**\
-`"Pickens brings everything to the table," Jones said after Pickens received criticism following Dallas' loss to Detroit.`\
-https://nytimes.com/athletic/6875607/2025/12/09/cowboys-george-pickens-jerry-jones-support/
-
-**Tyrese Haliburton joins 'NBA on Prime,' will focus on 'positivity' around game**\
-`The two-time All-Star hopes to be a voice that not only celebrates the NBA but helps fans understand the game and its players.`\
-https://nytimes.com/athletic/6874158/2025/12/09/tyrese-haliburton-nba-amazon-prime-pacers/
-
-**Drance: Why apathy growing around Canucks is more dangerous than the losing**\
-`The Canucks fell, once again, to the absolute nadir of the NHL standings with a 4-0 loss to Detroit.`\
-https://nytimes.com/athletic/6875015/2025/12/09/vancouver-canucks-standings-red-wings-loss/
 
