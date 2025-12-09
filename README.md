@@ -15,7 +15,7 @@ https://nytimes.com/2025/12/09/world/asia/thailand-cambodia-border-conflict-evac
 https://nytimes.com/athletic/6873996/2025/12/09/arne-slot-salah-liverpool-interview/
 
 **Is Mount finally offering United glimpses of the player they signed?**\
-`Mount clearly taps into a lot of what Amorim wants in a player. After two injury-hit seasons, the question is whether he can now kick on.`\
+`Mount clearly taps into a lot of what Amorim wants in a player. After two injury-hit seasons, the question is whether he can now kick on`\
 https://nytimes.com/athletic/6874493/2025/12/09/mason-mount-man-united-improvement/
 
 **Jeremy O. Harris Is Released From Custody in Japan**\
