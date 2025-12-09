@@ -1,3 +1,11 @@
+**Reimagining Cancer Care**\
+`From personalized cancer screenings to care and support that extends beyond hospital walls, this health care system delivers improved wellness and survival outcomes at every stage of a patient’s journey. `\
+https://nytimes.com/paidpost/kaiser-permanente/reimagining-cancer-care.html
+
+**Storm System Causes Flooding in the Pacific Northwest**\
+`The Snoqualmie River and the Chehalis River flooded roads and neighborhoods in Washington after a storm system brought heavy rain to the Pacific Northwest.`\
+https://nytimes.com/video/weather/100000010576877/washington-river-flood.html
+
 **Why there's no Plan B for Olympic hockey rinks, plus NHL betting integrity, more BOG rumblings**\
 `Also from the NHL's Board of Governors meeting, updates on Canada's men's roster, World Cup planning, Junior-NCAA logistics and NHL revenue.`\
 https://nytimes.com/athletic/6876636/2025/12/09/olympic-hockey-rink-board-of-governors/

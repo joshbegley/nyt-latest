@@ -1,3 +1,7 @@
+**G.O.P. Will Counter Democrats’ Bid to Preserve Subsidies With Their Own Plan**\
+`Senate Republicans plan to offer a proposal that would create a new payment for people with bare-bones health coverage, clashing with Democrats who are pressing for an extension of existing tax credits.`\
+https://nytimes.com/2025/12/09/us/politics/aca-obamacare-health-subsidies-senate.html
+
 **Why there's no Plan B for Olympic hockey rinks, plus NHL betting integrity, more BOG rumblings**\
 `Also from the NHL's Board of Governors meeting, updates on Canada's men's roster, World Cup planning, Junior-NCAA logistics and NHL revenue.`\
 https://nytimes.com/athletic/6876636/2025/12/09/olympic-hockey-rink-board-of-governors/
@@ -18,6 +22,10 @@ https://nytimes.com/2025/12/09/arts/design/georgia-okeeffe-new-mexico-conservati
 `A bigger gamble than bringing in "Uncle Phil" would have been doing nothing.`\
 https://nytimes.com/athletic/6876616/2025/12/09/philip-rivers-colts-gamble-retirement/
 
+**Instant grades for college football's 2025-26 head-coaching hires**\
+`In college football, you never really know whether a coaching hire is going to work. But it's never too early to talk about fit.`\
+https://nytimes.com/athletic/6827060/2025/12/09/college-football-coaching-carousel-grades/
+
 **After Philip Rivers' comeback, who are other notable athletes to come out of retirement?**\
 `With Philip Rivers coming out of retirement and signing with the Colts at 44 years old, we look at others who have done similar.`\
 https://nytimes.com/athletic/6876097/2025/12/09/philip-rivers-colts-famous-athletes-comeback-unretire/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6876097/2025/12/09/philip-rivers-colts-famous-athle
 **USMNT striker Balogun continues Champions League streak in Monaco win**\
 `The 24-year-old USMNT forward became the first American to score in three straight Champions League appearances.`\
 https://nytimes.com/athletic/6876836/2025/12/09/balogun-usmnt-monaco-galatasaray/
-
-**Nobel Prize for Venezuelan Dissident Draws Criticism**\
-`María Corina Machado is being honored for her push for democracy even as she backs President Trump’s military buildup and aggressive campaign against Venezuela.`\
-https://nytimes.com/2025/12/09/world/americas/nobel-prize-venezuela.html
-
-**Storm System Causes Flooding in the Pacific Northwest**\
-`The Snoqualmie River and the Chehalis River flooded roads and neighborhoods in Washington after a storm system brought heavy rain to the Pacific Northwest.`\
-https://nytimes.com/video/weather/100000010576877/washington-river-flood.html
 
