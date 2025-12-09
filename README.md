@@ -1,3 +1,7 @@
+**Most U.S. Teens Use YouTube and TikTok Daily, Some ‘Almost Constantly,’ Survey Says**\
+`The new Pew report also found that two-thirds of teens said they had used an A.I. chatbot.`\
+https://nytimes.com/2025/12/09/well/family/tik-tok-you-tube-teen-use-pew-study.html
+
 **‘Come North!’ Canada Makes Play for H1-B Visa Holders With New Talent Drive**\
 `The government says it will fast-track immigration for U.S. H1-B visa holders and spend more than $1 billion to attract researchers from the United States and the rest of the world.`\
 https://nytimes.com/2025/12/09/world/canada/canada-usa-immigration-h1-b-visa-talent.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/09/arts/design/turner-prize-nnena-kalu.html
 **Davies returns for Bayern after nine-month injury absence**\
 `The 25-year-old Canada international had been out of action since March after he tore the ACL in his right knee on international duty.`\
 https://nytimes.com/athletic/6876076/2025/12/09/alphonso-davies-bayern-return-canada-world-cup/
-
-**Fantasy football market share report: Chris Rodriguez has top-20 appeal in Week 15**\
-`Michael Salfino analyzes the touches and targets distribution for Week 14, and sees big things ahead for Chris Rodriguez and Woody Marks.`\
-https://nytimes.com/athletic/6876144/2025/12/09/fantasy-football-market-share-report-chris-rodriguez/
 
