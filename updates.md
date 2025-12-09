@@ -1,3 +1,39 @@
+**Shota Imanaga's return won't stop Cubs from adding another accomplished starting pitcher**\
+`Cubs president Jed Hoyer is optimistic that Imanaga can regain what made him a dazzling performer in 2024.`\
+https://nytimes.com/athletic/6874533/2025/12/09/cubs-starting-pitching-offseason-shota-imanaga-return/
+
+**Packers' 'gazelle' Christian Watson reaching another level since return from injury**\
+`Watson has five touchdown catches in the last four games for the NFC North-leading Packers.`\
+https://nytimes.com/athletic/6874048/2025/12/09/christian-watson-packers-receiver-bears/
+
+**Erling Haaland vs Kylian Mbappe: Who has been better? And how are they changing?**\
+`Real Madrid and Manchester City's prolific strikers meet again in the Champions League on Tuesday night`\
+https://nytimes.com/athletic/6874943/2025/12/09/haaland-mbappe-champions-league-real-madrid-man-city/
+
+**Heisman straw poll: Fernando Mendoza narrowly beats Diego Pavia — will it foreshadow final vote?**\
+`This final straw poll featured the narrowest gap of the season between first and second place.`\
+https://nytimes.com/athletic/6873495/2025/12/09/heisman-trophy-voting-fernando-mendoza-diego-pavia/
+
+**From Disney World to dive boats: The wildest places MLB execs have made a trade or signing**\
+`A trade or signing can materialize at any minute. No flight, family dinner, car ride, vacation, graduation ceremony or wedding is safe.`\
+https://nytimes.com/athletic/6874054/2025/12/09/mlb-execs-trades-signings-places/
+
+**What do you think of the Big Ten's 16-team CFP idea now?**\
+`After another controversial CFP release day, it's worth checking on how an idea that didn't get very far earlier this year would have fared.`\
+https://nytimes.com/athletic/6870981/2025/12/09/tony-petitti-big-ten-playoff-expansion/
+
+**Can Isak and Ekitike play together for Liverpool? We may be about to find out**\
+`With Mohamed Salah's outburst further limiting his attacking options, Arne Slot may have to field his two summer signings in tandem`\
+https://nytimes.com/athletic/6875069/2025/12/09/liverpool-isak-ekitike-play-together/
+
+**Bottom of the league, but in Champions Cup with Inter Miami. This is Vancouver FC.**\
+`The magic of the cup has sent a last-place Canadian side into Concacaf's premier club competition in 2026`\
+https://nytimes.com/athletic/6874548/2025/12/09/vancouver-fc-cpl-champions-cup-concacaf-whitecaps/
+
+**A repeat bid? Florida basketball has big ambitions, but Gators' focus is elsewhere**\
+`The Gators sit at 5-3 and No. 18 in the country entering Tuesday’s clash with No. 5 UConn.`\
+https://nytimes.com/athletic/6874108/2025/12/09/florida-basketball-repeat-bid-golden/
+
 **TAFC: Xabi Alonso's fight to save Real Madrid job. Plus: Why World Cup will have hydration breaks**\
 `La Liga giants are lining up replacements for their head coach, but how have we reached this stage already?`\
 https://nytimes.com/athletic/6874993/2025/12/09/xabi-alonso-real-madrid-world-cup-hydration/
