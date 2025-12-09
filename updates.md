@@ -1,3 +1,15 @@
+**There’s Never Been a Better Time to Quit Caffeine**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/caffeine-alternative-drinks-coffee
+
+**What’s the Best Way to Give America’s Children $6 Billion?**\
+`Michael and Susan Dell are seeding Trump accounts for American children, but the policy, as written, risks leaving out many recipients.`\
+https://nytimes.com/2025/12/09/upshot/trump-accounts-dell.html
+
+**USA Today’s Top Editor Departs, the Second in Less Than Two Years**\
+`Caren Bohan, who was named editor in chief in September 2024, will no longer continue in her role “effective immediately,” the company told employees.`\
+https://nytimes.com/2025/12/09/business/media/usa-today-top-editor-caren-bohan.html
+
 **Who Will Win: Netflix or Paramount? We’ve Seen This Show Before.**\
 `The tug of war for Warner Bros. Discovery echoes an earlier clash of media titans.`\
 https://nytimes.com/2025/12/09/business/media/netflix-paramount-warner-bros-barry-diller.html

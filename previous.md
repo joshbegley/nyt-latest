@@ -1,3 +1,15 @@
+**There’s Never Been a Better Time to Quit Caffeine**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/caffeine-alternative-drinks-coffee
+
+**What’s the Best Way to Give America’s Children $6 Billion?**\
+`Michael and Susan Dell are seeding Trump accounts for American children, but the policy, as written, risks leaving out many recipients.`\
+https://nytimes.com/2025/12/09/upshot/trump-accounts-dell.html
+
+**USA Today’s Top Editor Departs, the Second in Less Than Two Years**\
+`Caren Bohan, who was named editor in chief in September 2024, will no longer continue in her role “effective immediately,” the company told employees.`\
+https://nytimes.com/2025/12/09/business/media/usa-today-top-editor-caren-bohan.html
+
 **Who Will Win: Netflix or Paramount? We’ve Seen This Show Before.**\
 `The tug of war for Warner Bros. Discovery echoes an earlier clash of media titans.`\
 https://nytimes.com/2025/12/09/business/media/netflix-paramount-warner-bros-barry-diller.html
@@ -21,16 +33,4 @@ https://nytimes.com/2025/12/09/opinion/national-security-strategy-us-europe.html
 **The Briefing - Tottenham Hotspur 3 Slavia Prague 0: Last-16 hopes boosted, emotional Son homecoming**\
 `Tottenham Hotspur boosted their chances of a place in the last 16, but suffered the blow of losing Micky van de Ven to suspension`\
 https://nytimes.com/athletic/6875205/2025/12/09/tottenham-hotspur-3-slavia-prague-0/
-
-**The Briefing - Atalanta 2 Chelsea 1: How damaging was this loss? Maresca's half-time change error?**\
-`Chelsea fell to a 2-1 loss to Atalanta on Tuesday night to drop out of the Champions League top-eight`\
-https://nytimes.com/athletic/6875203/2025/12/09/atalanta-chelsea-score-result-report/
-
-**Legal Groups Sue Justice Dept. for Secret Memo Justifying Boat Strikes**\
-`“The public deserves to know how the Trump administration has justified the outright murder of civilians as lawful,” the organizations said in their lawsuit.`\
-https://nytimes.com/2025/12/09/nyregion/aclu-lawsuit-justice-department-boat-strikes.html
-
-**1 Student Killed and 1 Injured in Kentucky State University Shooting, Officials Say**\
-`The police said a suspect had been arrested after the shooting in Frankfort, Ky. The second student was in critical but stable condition, a university spokesman said.`\
-https://nytimes.com/2025/12/09/us/shooting-kentucky-state-university.html
 

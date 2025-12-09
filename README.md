@@ -1,3 +1,15 @@
+**Asserting a Personal Role in Warner Bros. Battle, Trump Expands His Powers Again**\
+`The move comes as the Supreme Court also appears poised to put antitrust enforcement by the Federal Trade Commission under his control.`\
+https://nytimes.com/2025/12/09/us/politics/trump-warner-bros.html
+
+**Inside the Dark and Predatory World of Crypto Casinos**\
+`Using exploitative marketing strategies, the illicit gambling websites have profited and lured in a young generation of gamblers.`\
+https://nytimes.com/interactive/2025/12/09/us/crypto-casinos-gambling-streamers.html
+
+**How the Phillies reunited with Kyle Schwarber, their $150M slugger who sets the standard**\
+`ORLANDO, Fla.`\
+https://nytimes.com/athletic/6876548/2025/12/09/phillies-kyle-schwarber-150-million-contract/
+
 **There’s Never Been a Better Time to Quit Caffeine**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/caffeine-alternative-drinks-coffee
@@ -21,16 +33,4 @@ https://nytimes.com/newsgraphics/card-story/wallpaper-interior-design-trends-tro
 **The Briefing - Inter 0 Liverpool 1: Was this Slot's biggest win? Were big VAR calls right?**\
 `Analysing Tuesday's big Champions League tie at the San Siro as Liverpool earned a precious win`\
 https://nytimes.com/athletic/6875202/2025/12/09/liverpool-inter-champions-league-result-analysis/
-
-**The Resilience of Religious Doubt**\
-`Belief is reasonable. Skepticism is inevitable.`\
-https://nytimes.com/2025/12/09/opinion/religious-belief-skepticism-doubt.html
-
-**Europe, Too, Is Worth Fighting For**\
-`Provided Europeans want to fight for it.`\
-https://nytimes.com/2025/12/09/opinion/national-security-strategy-us-europe.html
-
-**The Briefing - Tottenham Hotspur 3 Slavia Prague 0: Last-16 hopes boosted, emotional Son homecoming**\
-`Tottenham Hotspur boosted their chances of a place in the last 16, but suffered the blow of losing Micky van de Ven to suspension`\
-https://nytimes.com/athletic/6875205/2025/12/09/tottenham-hotspur-3-slavia-prague-0/
 
