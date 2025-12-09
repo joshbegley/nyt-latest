@@ -1,3 +1,7 @@
+**PSG's Qatari owners to acquire Belgium second-tier club**\
+`QSI will complete a full acquisition of the Belgian Challenger League side and take full operational control of the club.`\
+https://nytimes.com/athletic/6875359/2025/12/09/psg-qsi-qatar-eupen-takeover/
+
 **Sherman: Nebraska is navigating offseason of gray areas, as last week's coaching changes show**\
 `Change in college football arrives fast and sometimes without warning in December. Last week put that on display.`\
 https://nytimes.com/athletic/6875314/2025/12/09/nebraska-football-coaching-changes-rob-aurich-geep-wade/
