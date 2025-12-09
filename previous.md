@@ -1,3 +1,7 @@
+**Needing a spark off the bench, the Timberwolves turn to Bones Hyland**\
+`The point guard position and scoring off the bench have been issues for Minnesota. Maybe Hyland can help fix things.`\
+https://nytimes.com/athletic/6874261/2025/12/09/bones-hyland-timberwolves-rotation-suns-loss/
+
 **The Giants need to build a 2026 roster that can play baseball worth remembering**\
 `The looming CBA battle makes the 2026 season especially important for a Giants' team that is built to win now, but not in three years.`\
 https://nytimes.com/athletic/6874995/2025/12/09/sf-giants-2026-roster-urgency/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6874054/2025/12/09/mlb-execs-trades-signings-places
 **What do you think of the Big Ten's 16-team CFP idea now?**\
 `After another controversial CFP release day, it's worth checking on how an idea that didn't get very far earlier this year would have fared.`\
 https://nytimes.com/athletic/6870981/2025/12/09/tony-petitti-big-ten-playoff-expansion/
-
-**Can Isak and Ekitike play together for Liverpool? We may be about to find out**\
-`With Mohamed Salah's outburst further limiting his attacking options, Arne Slot may have to field his two summer signings in tandem`\
-https://nytimes.com/athletic/6875069/2025/12/09/liverpool-isak-ekitike-play-together/
 

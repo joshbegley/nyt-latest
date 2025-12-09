@@ -1,3 +1,7 @@
+**Needing a spark off the bench, the Timberwolves turn to Bones Hyland**\
+`The point guard position and scoring off the bench have been issues for Minnesota. Maybe Hyland can help fix things.`\
+https://nytimes.com/athletic/6874261/2025/12/09/bones-hyland-timberwolves-rotation-suns-loss/
+
 **The Giants need to build a 2026 roster that can play baseball worth remembering**\
 `The looming CBA battle makes the 2026 season especially important for a Giants' team that is built to win now, but not in three years.`\
 https://nytimes.com/athletic/6874995/2025/12/09/sf-giants-2026-roster-urgency/
