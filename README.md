@@ -1,3 +1,7 @@
+**Israeli Ban on International Media in Gaza Remains, Legal Challenge Delayed**\
+`Israel’s top court gave the government further reprieve on a long-stalled petition seeking free access to Gaza. Critics say barring journalists denies the world a full picture of conditions there.`\
+https://nytimes.com/2025/12/09/world/middleeast/gaza-israel-journalists-access.html
+
 **NASCAR exec Steve Phelps questioned over charter offer on Day 7 of antitrust trial**\
 `Phelps pushed back on the notion that NASCAR issued a "take-it-or-leave-it" charter offer during his turn on the witness stand Tuesday.`\
 https://nytimes.com/athletic/6876060/2025/12/09/nascar-trial-steve-phelps-charter-deal-richard-childress-michael-jordan/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6876026/2025/12/09/new-york-mets-edwin-diaz-plan/
 **The Stars Align for Wine in the East Village**\
 `Chase Sinzer opens a new wine bar, Chaat Dog comes to Passerine and more restaurant openings.`\
 https://nytimes.com/2025/12/09/dining/nyc-restaurant-news.html
-
-**A Gothic Novel Haunted by South African History**\
-`In “Cape Fever,” a young maid finds herself dealing with ghosts from the past and a manipulative employer.`\
-https://nytimes.com/2025/12/09/books/cape-fever-nadia-davids.html
 

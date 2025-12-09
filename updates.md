@@ -1,3 +1,15 @@
+**NASCAR exec Steve Phelps questioned over charter offer on Day 7 of antitrust trial**\
+`Phelps pushed back on the notion that NASCAR issued a "take-it-or-leave-it" charter offer during his turn on the witness stand Tuesday.`\
+https://nytimes.com/athletic/6876060/2025/12/09/nascar-trial-steve-phelps-charter-deal-richard-childress-michael-jordan/
+
+**Scott Boras says Red Sox ownership has 'made it clear to us that they want to add'**\
+`For his part, chief baseball officer Craig Breslow said Monday that he does not feel inhibited by the payroll this offseason.`\
+https://nytimes.com/athletic/6875988/2025/12/09/boston-red-sox-ownership-scott-boras-comments/
+
+**French First Lady’s Insult Against Feminist Protesters Prompts Outcry**\
+`Brigitte Macron used a slur to criticize protesters who had interrupted a show by a French comedian accused of rape in 2021, in a case that was dismissed.`\
+https://nytimes.com/2025/12/09/world/europe/france-brigitte-macron-feminists-slur.html
+
 **LeBron James' agent shuts down idea of superstar leaving Lakers this season**\
 `Rich Paul told Max Kellerman on their podcast that James will finish the season as a Laker.`\
 https://nytimes.com/athletic/6875724/2025/12/09/lebron-james-lakers-future-rich-paul/
