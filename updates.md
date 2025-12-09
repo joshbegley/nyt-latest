@@ -1,3 +1,7 @@
+**Cubs will still pursue high-leverage relief options after signing Phil Maton**\
+`By signing Maton to a two-year, $14.5 million deal last month, Jed Hoyer broke with his recent trend.`\
+https://nytimes.com/athletic/6874240/2025/12/08/cubs-will-pursue-high-leverage-relief/
+
 **How to watch Boise State vs. Washington: LA Bowl Start Time, TV, streaming**\
 `Find out how to watch the Boise State Broncos play the Washington Huskies, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6874442/2025/12/08/boise-state-vs-washington-stream-how-to-watch-dec-13/
