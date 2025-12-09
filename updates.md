@@ -1,3 +1,7 @@
+**Late Night Sees Through Trump’s ‘Appease Prize’**\
+`“Call me a boomer, but these participation trophies have gone too far,” Stephen Colbert said before presenting himself with the First Annual Stephen Colbert Joke Prize.`\
+https://nytimes.com/2025/12/09/arts/television/late-night-trump-prize.html
+
 **Slot retains support after Salah outburst, but credit in the bank is not endless**\
 `Slot faced the media on Monday after Salah's comments and dealt with them admirably. But he is facing the biggest test of his career`\
 https://nytimes.com/athletic/6873996/2025/12/09/arne-slot-salah-liverpool-interview/
