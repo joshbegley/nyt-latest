@@ -1,3 +1,7 @@
+**Inside the Phillies' reunion with Kyle Schwarber, their $150M slugger who sets the standard**\
+`The agreement might have been a fait accompli, sources said. But it was the most important offseason item for the Phillies to address.`\
+https://nytimes.com/athletic/6876548/2025/12/09/phillies-kyle-schwarber-150-million-contract/
+
 **Asserting a Personal Role in Warner Bros. Battle, Trump Expands His Powers Again**\
 `The move comes as the Supreme Court also appears poised to put antitrust enforcement by the Federal Trade Commission under his control.`\
 https://nytimes.com/2025/12/09/us/politics/trump-warner-bros.html
