@@ -1,3 +1,15 @@
+**What rookies Shedeur Sanders, Cam Ward, Tyler Shough showed us: Week 14 film review**\
+`The three rookie QBs displayed upside on Sunday. Also, the Jaguars and Texans' strengths in the AFC South race.`\
+https://nytimes.com/athletic/6874034/2025/12/09/shedeur-sanders-cam-ward-tyler-shough-film-review/
+
+**Are the Blackhawks better than the numbers suggest? A public vs. private analytics debate**\
+`Blackhawks coach Jeff Blashill prefers internal analytics to public models. Is he justified, and where are the weaknesses in each approach?`\
+https://nytimes.com/athletic/6871714/2025/12/09/blackhawks-nhl-analytics-blashill/
+
+**Defensive-led wins look to be Eagles' only hope for 2025**\
+`One silver lining to Philadelphia's loss Monday night was the performance of the defense, which is key to the team's ability to contend.`\
+https://nytimes.com/athletic/6874383/2025/12/09/eagles-defense-only-hope-2025/
+
 **How Much Could China Gain From Access to Powerful Nvidia Chips?**\
 `President Trump said Nvidia can export some chips. But years of U.S. restrictions have propelled China to make everything it needs for advanced A.I.`\
 https://nytimes.com/2025/12/09/business/china-gains-trump-nvidia-chips.html
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/6874334/2025/12/09/cowboys-first-quarter-scoring-st
 **'It's all in our hands': Panthers return from bye tied for first in NFC South**\
 `Carolina has a division rematch against New Orleans this week and still has both meetings remaining against Tampa Bay.`\
 https://nytimes.com/athletic/6873861/2025/12/09/panthers-playoff-chances-saints-week-15/
-
-**Jimmy V Classic watch guide: Clemson-BYU, Florida-UConn in men's, Iowa-ISU in women's**\
-`Defending champions, highly touted prospects and in-state rivalries: The 2025 Jimmy V Classic is every college basketball fan's dream. `\
-https://nytimes.com/athletic/6866456/2025/12/09/jimmy-v-classic-2025-schedule-florida-uconn/
-
-**The Leafs' rapid turnaround has been fuelled by one thing: Goaltending**\
-`With the Leafs surging in their last seven games, some unexpectedly solid play in net has bolstered the entire team.`\
-https://nytimes.com/athletic/6874757/2025/12/09/maple-leafs-hildeby-shutout-goaltending/
-
-**The Lions' playoff chances: Win out or go 3-1, plus what to watch this week**\
-`The Lions play on the road for three of their final four games and are on the outside looking in on the NFC playoff battle.`\
-https://nytimes.com/athletic/6873488/2025/12/09/lions-playoff-chances-week-15-rams/
 
