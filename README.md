@@ -1,3 +1,7 @@
+**The Supreme Court Considers Presidential Power**\
+`We dig into a case in front of the justices this week.`\
+https://nytimes.com/2025/12/09/briefing/the-supreme-court-considers-presidential-power.html
+
 **Shota Imanaga's return won't stop Cubs from adding another accomplished starting pitcher**\
 `Cubs president Jed Hoyer is optimistic that Imanaga can regain what made him a dazzling performer in 2024.`\
 https://nytimes.com/athletic/6874533/2025/12/09/cubs-starting-pitching-offseason-shota-imanaga-return/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6875069/2025/12/09/liverpool-isak-ekitike-play-toge
 **Bottom of the league, but in Champions Cup with Inter Miami. This is Vancouver FC.**\
 `The magic of the cup has sent a last-place Canadian side into Concacaf's premier club competition in 2026`\
 https://nytimes.com/athletic/6874548/2025/12/09/vancouver-fc-cpl-champions-cup-concacaf-whitecaps/
-
-**A repeat bid? Florida basketball has big ambitions, but Gators' focus is elsewhere**\
-`The Gators sit at 5-3 and No. 18 in the country entering Tuesday’s clash with No. 5 UConn.`\
-https://nytimes.com/athletic/6874108/2025/12/09/florida-basketball-repeat-bid-golden/
 
