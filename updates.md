@@ -1,3 +1,15 @@
+**What does Kyle Schwarber's $150 million deal mean for free-agent slugger market?**\
+`Schwarber’s signing should clarify the picture for available power hitters such as Pete Alonso and Eugenio Suárez. `\
+https://nytimes.com/athletic/6876305/2025/12/09/kyle-schwarber-phillies-contract-mlb-free-agency/
+
+**‘Severance’ Actor Michael Chernus Loves an Old Restaurant**\
+`“You just feel the history and all the stories that must have happened there and all the people who sat at the bar.”`\
+https://nytimes.com/2025/12/09/dining/severance-actor-michael-chernus-where-to-eat.html
+
+**Super Bowl odds: AFC South shakeup following Daniel Jones' injury**\
+`The top seven Super Bowl favorites remained the same from a week ago, but the AFC South saw some movement after Daniel Jones' injury.`\
+https://nytimes.com/athletic/6876048/2025/12/09/super-bowl-2026-odds-betting-colts-patriots-rams/
+
 **How to watch Bruins vs. Blues: Time, TV, streaming**\
 `Find out how to watch the Boston Bruins play the St. Louis Blues, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6876457/2025/12/09/bruins-vs-blues-stream-how-to-watch-dec-9/
