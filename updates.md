@@ -1,3 +1,7 @@
+**Even entering Tarik Skubal's walk year, the Tigers seem fixated on the long game**\
+`Detroit appears unlikely to make any sort of splash at this year's Winter Meetings.`\
+https://nytimes.com/athletic/6874341/2025/12/08/tigers-tarik-skubal-winter-meetings-mlb/
+
 **With Teddy Bridgewater in stands, his high school team makes state title game**\
 `The Buccaneers QB coached Miami Northwestern to a state title in 2024. He watched as the team earned a return trip to the title game.`\
 https://nytimes.com/athletic/6874301/2025/12/08/teddy-bridgewater-miami-coach-northwest-high-school/
