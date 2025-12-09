@@ -1,3 +1,15 @@
+**England sacrificed James Anderson…for this?**\
+`He is 43 but was still producing the goods when he wasn't allowed to retire on his own terms. Would he not have been useful for this Ashes?`\
+https://nytimes.com/athletic/6872299/2025/12/09/james-anderson-england-sacrificed-ashes/
+
+**Ezri Konsa has become a master of a specific - and unexpected - skill**\
+`Winning free kicks can be seen as a wily trick or as one of football's darker arts – regardless, Konsa takes responsibility on the field`\
+https://nytimes.com/athletic/6713011/2025/12/09/aston-villas-ezri-konsa-has-become-a-master-of-a-specific-and-unexpected-skill/
+
+**Gary Dicker on swapping Brighton for Charlotte: ‘More coaches should look outside the box’**\
+`As under-21s assistant coach, Dicker was comfortable at Brighton. But in a leap of faith, he uprooted to North Carolina to face a challenge`\
+https://nytimes.com/athletic/6722446/2025/12/09/gary-dicker-brighton-charlotte-crown-legacy-interview/
+
 **What this picture tells us about Arsenal and anger**\
 `Arsenal's players showed a huge range of emotions after conceding late against Aston Villa. What can we learn from them?`\
 https://nytimes.com/athletic/6873106/2025/12/09/what-this-picture-tells-us-about-arsenal-and-anger-after-villa-defeat/
