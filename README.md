@@ -1,3 +1,7 @@
+**Players have long had agents. A former MLB GM now reps coaches and execs, an underserved group**\
+`To Scott Boras, MLB coaches “are the most underpaid coaching category in professional sports.” `\
+https://nytimes.com/athletic/6876423/2025/12/09/mlb-coaches-execs-agent-zack-scott/
+
 **E.P.A. Erases Mention of Humans Causing Climate Change From Some Web Pages**\
 `An E.P.A. site listing the causes of climate change no longer includes the main one: human activity.`\
 https://nytimes.com/2025/12/09/climate/epa-website-climate-change-causes.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6876450/2025/12/09/knicks-vs-raptors-stream-how-to-
 **How to watch Blue Jackets vs. Hurricanes: Time, TV, streaming**\
 `Find out how to watch the Columbus Blue Jackets play the Carolina Hurricanes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6876448/2025/12/09/blue-jackets-vs-hurricanes-stream-how-to-watch-dec-9/
-
-**How to watch Sabres vs. Oilers: Time, TV, streaming**\
-`Find out how to watch the Buffalo Sabres play the Edmonton Oilers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6876446/2025/12/09/sabres-vs-oilers-stream-how-to-watch-dec-9/
 
