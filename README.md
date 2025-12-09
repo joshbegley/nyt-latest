@@ -1,3 +1,11 @@
+**How to watch Alabama State vs. Baylor women's basketball: Time, TV, streaming**\
+`Find out how to watch the Alabama State Lady Hornets play the Baylor Bears, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6875098/2025/12/09/alabama-state-vs-baylor-stream-how-to-watch-dec-9/
+
+**Darko Rajaković 'holds nothing back'. And the Raptors embrace the honesty**\
+`"Any time he gets mad and swears in Serbian, that s--- is so funny," Jamal Shead says of his head coach. `\
+https://nytimes.com/athletic/6866143/2025/12/09/raptors-coach-darko-rajakovic-direct-communication-style/
+
 **The Affordability Crisis Is Not a ‘Hoax’**\
 `I doubt this was what Trump meant when he called himself “Mr. Brexit.”`\
 https://nytimes.com/2025/12/09/opinion/trump-affordability-crisis-hoax.html
@@ -25,12 +33,4 @@ https://nytimes.com/2025/12/09/learning/how-do-you-shop.html
 **M. Gessen and Michelle Goldberg on How to Resist**\
 `Through their reporting, the columnists share how regular citizens stand up to governments they oppose.`\
 https://nytimes.com/2025/12/09/opinion/resisting-unethical-politics.html
-
-**Three Years After Dobbs, the State Divide Over Abortion Deepens**\
-`Some states are enacting legislation to make it harder to get an abortion, while others are passing laws to protect people who provide them.`\
-https://nytimes.com/2025/12/09/us/states-new-abortion-laws.html
-
-**At This Animal Hospital, Your Pet Gets Treated Like a Human**\
-`The Animal Medical Center’s renovated facilities include separate intensive-care areas for cats and dogs and five new operating rooms.`\
-https://nytimes.com/2025/12/09/nyregion/animal-hospital-renovation.html
 

@@ -1,36 +1,36 @@
-**Chargers Intercept Eagles’ Jalen Hurts 4 Times in Overtime Win**\
-`The Los Angeles Chargers needed overtime on Monday, but they held off the Philadelphia Eagles to win 22-19 and improve to 9-4.`\
-https://nytimes.com/video/sports/football/100000010575282/chargers-intercept-eagles-jalen-hurts-4-times-in-overtime-win.html
+**The Affordability Crisis Is Not a ‘Hoax’**\
+`I doubt this was what Trump meant when he called himself “Mr. Brexit.”`\
+https://nytimes.com/2025/12/09/opinion/trump-affordability-crisis-hoax.html
 
-**Thailand and Cambodia’s Renewed Border Conflict Forces Evacuations**\
-`Thais sought refuge at an evacuation center as deadly clashes with Cambodia reignited tensions near their shared border. Cambodian families near the border left in a caravan of tractors and motorcycles.`\
-https://nytimes.com/video/world/asia/100000010575164/thailand-cambodia-border-conflict-evacuation.html
+**A Key Question for the Supreme Court: What About the Fed?**\
+`The president seemed poised for a big Supreme Court win letting him remove officials without cause. But the justices appeared to struggle with how to insulate the Federal Reserve from politics.`\
+https://nytimes.com/2025/12/09/us/supreme-court-fed.html
 
-**All 187,460 Miles of Road That Led to Rome, Mapped**\
-`A digital atlas of ancient Rome’s highways and byways reveals a road network that was more extensive than thought.`\
-https://nytimes.com/2025/12/09/science/archaeology-roman-empire-roads.html
+**Republican Women Suddenly Realize They’re Surrounded by Misogynists**\
+`There’s a big difference between being useful and being respected.`\
+https://nytimes.com/2025/12/09/opinion/republican-women-misogyny-sexism.html
 
-**Style in 2025**\
-`Who would make your best dressed list this year?`\
-https://nytimes.com/2025/12/09/learning/style-in-2025.html
+**Amy Klobuchar: State A.I. Laws Keep Us Safe. Trump’s Next Move Could Upend That.**\
+`“One Rulebook” is not the kind of A.I. regulation this country needs.`\
+https://nytimes.com/2025/12/09/opinion/klobuchar-trump-ai.html
 
-**Wrenching Pain, a Severe Infection: An ICE Detainee Is Ordered Released**\
-`A judge blamed “deliberate indifference” for the illness of a man held by immigration officials. Across the country, several courts have blasted conditions in U.S. facilities.`\
-https://nytimes.com/2025/12/09/nyregion/ice-detention-facilities-judges-criticism.html
+**Netflix? Paramount? They’re Both Terrible for Warner Bros.**\
+`Either merger would be bad for the country.`\
+https://nytimes.com/2025/12/09/opinion/netflix-paramount-warner-bros.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/12/09/crosswords/spelling-bee-forum.html
+**How Do You Shop?**\
+`The Times reported on Gen Z shopping trends. What would you say about where your generation shops and what you buy?`\
+https://nytimes.com/2025/12/09/learning/how-do-you-shop.html
 
-**Late Night Sees Through Trump’s ‘Appease Prize’**\
-`“Call me a boomer, but these participation trophies have gone too far,” Stephen Colbert said before presenting himself with the First Annual Stephen Colbert Joke Prize.`\
-https://nytimes.com/2025/12/09/arts/television/late-night-trump-prize.html
+**M. Gessen and Michelle Goldberg on How to Resist**\
+`Through their reporting, the columnists share how regular citizens stand up to governments they oppose.`\
+https://nytimes.com/2025/12/09/opinion/resisting-unethical-politics.html
 
-**Word of the Day: fruition**\
-`This word has appeared in 444 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/12/09/learning/word-of-the-day-fruition.html
+**Three Years After Dobbs, the State Divide Over Abortion Deepens**\
+`Some states are enacting legislation to make it harder to get an abortion, while others are passing laws to protect people who provide them.`\
+https://nytimes.com/2025/12/09/us/states-new-abortion-laws.html
 
-**In Thailand and Cambodia, Taking Shelter (Again) as Fighting Reignites**\
-`Hundreds of thousands of people fled a deadly border conflict, the authorities said, some sheltering at a racetrack in Thailand and some near temples in Cambodia.`\
-https://nytimes.com/2025/12/09/world/asia/thailand-cambodia-border-conflict-evacuation.html
+**At This Animal Hospital, Your Pet Gets Treated Like a Human**\
+`The Animal Medical Center’s renovated facilities include separate intensive-care areas for cats and dogs and five new operating rooms.`\
+https://nytimes.com/2025/12/09/nyregion/animal-hospital-renovation.html
 
