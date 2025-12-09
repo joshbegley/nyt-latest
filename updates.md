@@ -1,3 +1,7 @@
+**The Giants need to build a 2026 roster that can play baseball worth remembering**\
+`The looming CBA battle makes the 2026 season especially important for a Giants' team that is built to win now, but not in three years.`\
+https://nytimes.com/athletic/6874995/2025/12/09/sf-giants-2026-roster-urgency/
+
 **The Supreme Court Considers Presidential Power**\
 `We dig into a case in front of the justices this week.`\
 https://nytimes.com/2025/12/09/briefing/the-supreme-court-considers-presidential-power.html
