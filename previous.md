@@ -1,36 +1,36 @@
-**Why are we seeing the worst version of Lamar Jackson, and what's next for Daniel Jones?**\
-`Is it simply injuries hampering the Ravens' superstar quarterback, or is there more to it?`\
-https://nytimes.com/athletic/6873174/2025/12/09/nfl-qb-stock-report-rankings-lamar-jackson-ravens-daniel-jones-colts/
+**What Ben Johnson saw on the Bears' final drive in their loss to the Packers**\
+`Helping Caleb Williams get off to better starts in games and shoring up the defense right before halftime are among Johnson's priorities.`\
+https://nytimes.com/athletic/6874088/2025/12/09/bears-ben-johnson-loss-to-packers/
 
-**NFL Week 15 Power Rankings: Rams return to top spot, Bills lurking and Jaguars surging**\
-`The Week 15 NFL power rankings feature some juggling up top as the real contenders start to separate themselves from the pack.`\
-https://nytimes.com/athletic/6873010/2025/12/09/nfl-power-rankings-week-15-rams-bills-jaguars/
+**Troy Aikman's guiding principle for 'Monday Night Football': 'I try to be fair'**\
+`In an interview, the longtime NFL analyst covered a range of topics, including analytics, Lane Kiffin and slinging the ball at age 59.`\
+https://nytimes.com/athletic/6869981/2025/12/09/troy-aikman-espn-mnfl-nfl-joe-buck/
 
-**Day 1 of the MLB Winter Meetings: Rendon out, Nats trade buzz, Mattingly's next move**\
-`The Astros and Rays are in trade talks, while the Dodgers say they are unlikely to deal a key outfielder. `\
-https://nytimes.com/athletic/6874284/2025/12/09/mlb-winter-meetings-day-1-rendon-nationals-mattingly/
+**Cowboys would like to figure out their early-game scoring issues and deficits**\
+`In the Cowboys’ 13 games this season, their opponents have scored first 10 times.`\
+https://nytimes.com/athletic/6874334/2025/12/09/cowboys-first-quarter-scoring-struggles/
 
-**The New York Times International Edition in Print for Wednesday, Dec. 10, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/12/09/todays-new-york-times-international-edition
+**'It's all in our hands': Panthers return from bye tied for first in NFC South**\
+`Carolina has a division rematch against New Orleans this week and still has both meetings remaining against Tampa Bay.`\
+https://nytimes.com/athletic/6873861/2025/12/09/panthers-playoff-chances-saints-week-15/
 
-**Is Steve Wilks the right defensive coordinator for Aaron Glenn?**\
-`Jets fans have been calling for Wilks' firing, but Glenn doesn't appear to be listening.`\
-https://nytimes.com/athletic/6873493/2025/12/09/new-york-jets-defensive-coordinator-aaron-glenn/
+**Jimmy V Classic watch guide: Clemson-BYU, Florida-UConn in men's, Iowa-ISU in women's**\
+`Defending champions, highly touted prospects and in-state rivalries: The 2025 Jimmy V Classic is every college basketball fan's dream. `\
+https://nytimes.com/athletic/6866456/2025/12/09/jimmy-v-classic-2025-schedule-florida-uconn/
 
-**Another Front in the War in Ukraine: Who Gets to Claim a Famed Artist?**\
-`Looking to shake off Moscow’s cultural influences, Kyiv has been seeking to highlight the Ukrainian roots of Kazimir Malevich, a renowned avant-garde painter.`\
-https://nytimes.com/2025/12/09/world/europe/ukraine-malevich-artist.html
+**The Leafs' rapid turnaround has been fuelled by one thing: Goaltending**\
+`With the Leafs surging in their last seven games, some unexpectedly solid play in net has bolstered the entire team.`\
+https://nytimes.com/athletic/6874757/2025/12/09/maple-leafs-hildeby-shutout-goaltending/
 
-**How to watch Alabama State vs. Baylor women's basketball: Time, TV, streaming**\
-`Find out how to watch the Alabama State Lady Hornets play the Baylor Bears, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6875098/2025/12/09/alabama-state-vs-baylor-stream-how-to-watch-dec-9/
+**The Lions' playoff chances: Win out or go 3-1, plus what to watch this week**\
+`The Lions play on the road for three of their final four games and are on the outside looking in on the NFC playoff battle.`\
+https://nytimes.com/athletic/6873488/2025/12/09/lions-playoff-chances-week-15-rams/
 
-**Darko Rajaković 'holds nothing back'. And the Raptors embrace the honesty**\
-`"Any time he gets mad and swears in Serbian, that s--- is so funny," Jamal Shead says of his head coach. `\
-https://nytimes.com/athletic/6866143/2025/12/09/raptors-coach-darko-rajakovic-direct-communication-style/
+**Kevin O'Connell's offensive formula worked vs. Commanders — but is it sustainable?**\
+`O'Connell's offensive plan, which simplified things for young quarterback J.J. McCarthy, worked well in the Vikings' Week 14 victory.`\
+https://nytimes.com/athletic/6873881/2025/12/09/vikings-commanders-kevin-oconnell-offense-jj-mccarthy/
 
-**The Affordability Crisis Is Not a ‘Hoax’**\
-`I doubt this was what Trump meant when he called himself “Mr. Brexit.”`\
-https://nytimes.com/2025/12/09/opinion/trump-affordability-crisis-hoax.html
+**Pulisic can use USMNT World Cup draw to launch himself as an American icon**\
+`Pulisic has the chance of a lifetime to boost his legacy and take the Americans on a deep run with a manageable road ahead`\
+https://nytimes.com/athletic/6874583/2025/12/09/christian-pulisic-world-cup-draw-usmnt/
 
