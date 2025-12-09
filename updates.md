@@ -1,3 +1,19 @@
+**Venezuela tries to prep for WBC amid uncertainty: 'We're not bad people'**\
+`“We’re good people. We’re noble. We’re humble people. Just let us be happy. That’s all,” said Venezuela manager Omar Lopez. `\
+https://nytimes.com/athletic/6876607/2025/12/09/venezuela-wbc-manager-omar-lopez-trump-visas/
+
+**Zaha receives Ivory Coast call-up but Pepe and Adingra out of AFCON squad**\
+`Zaha receives his first callup in two years but Pepe and Adingra are surprise omissions for the reigning champions.`\
+https://nytimes.com/athletic/6876751/2025/12/09/zaha-pepe-ivory-coast-afcon-squad/
+
+**After Trump Threatens Tariffs, Mexico Seeks a Deal on Water**\
+`President Trump threatened 5 percent tariffs on Mexican imports over a water dispute. Mexico’s president, Claudia Sheinbaum, wants an agreement instead.`\
+https://nytimes.com/2025/12/09/us/politics/trump-mexico-tariffs-water-sheinbaum.html
+
+**Trump Pressures Ukraine**\
+`Also, the Supreme Court considers campaign finance limits. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2025/12/09/briefing/trump-ukraine-wall-street-ai-bubble.html
+
 **Inside the Phillies' reunion with Kyle Schwarber, their $150M slugger who sets the standard**\
 `The agreement might have been a fait accompli, sources said. But it was the most important offseason item for the Phillies to address.`\
 https://nytimes.com/athletic/6876548/2025/12/09/phillies-kyle-schwarber-150-million-contract/

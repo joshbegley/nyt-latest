@@ -1,3 +1,11 @@
+**Storm System Causes Flooding in the Pacific Northwest**\
+`The Snoqualmie River and Chehalis River flooded roads and neighborhoods in Washington after a storm system brought heavy rain to the Pacific Northwest.`\
+https://nytimes.com/video/weather/100000010576877/washington-river-flood.html
+
+**Jubilant Sykes, Celebrated Opera Singer, Is Stabbed to Death**\
+`After the police found the Grammy-nominated performer in his home with fatal wounds, his son was taken into custody, the authorities said.`\
+https://nytimes.com/2025/12/09/arts/music/jubilant-sykes-stabbing-death.html
+
 **Venezuela tries to prep for WBC amid uncertainty: 'We're not bad people'**\
 `“We’re good people. We’re noble. We’re humble people. Just let us be happy. That’s all,” said Venezuela manager Omar Lopez. `\
 https://nytimes.com/athletic/6876607/2025/12/09/venezuela-wbc-manager-omar-lopez-trump-visas/
@@ -25,12 +33,4 @@ https://nytimes.com/interactive/2025/12/09/us/crypto-casinos-gambling-streamers.
 **Inside the Phillies' reunion with Kyle Schwarber, their $150M slugger who sets the standard**\
 `The agreement might have been a fait accompli, sources said. But it was the most important offseason item for the Phillies to address.`\
 https://nytimes.com/athletic/6876548/2025/12/09/phillies-kyle-schwarber-150-million-contract/
-
-**There’s Never Been a Better Time to Quit Caffeine**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/caffeine-alternative-drinks-coffee
-
-**What’s the Best Way to Give America’s Children $6 Billion?**\
-`Michael and Susan Dell are seeding Trump accounts for American children, but the policy, as written, risks leaving out many recipients.`\
-https://nytimes.com/2025/12/09/upshot/trump-accounts-dell.html
 
