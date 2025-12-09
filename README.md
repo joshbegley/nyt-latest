@@ -11,7 +11,7 @@ https://nytimes.com/2025/12/09/arts/music/raul-malo-dead.html
 https://nytimes.com/athletic/6872421/2025/12/09/fantasy-football-playoffs-start-sit-qb-matchup-ratings-patrick-mahomes/
 
 **In reversal, Twins signal a desire for roster additions rather than a teardown**\
-`Uncertain about their direction a month ago, the Twins have received assurances from ownership they can try to compete in 2026`\
+`Uncertain about their direction a month ago, the Twins have received assurances from ownership they can try to compete in 2026.`\
 https://nytimes.com/athletic/6875362/2025/12/09/twins-free-agent-signings-winter-meetings/
 
 **Villa exploring deal for Gremio winger Alysson**\
