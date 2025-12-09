@@ -1,3 +1,7 @@
+**Vistas Painted by Georgia O’Keeffe Protected by Conservation Plan**\
+`The plan will protect 6,000 acres of land in northern New Mexico, and the state is giving more than $900,000 toward the effort.`\
+https://nytimes.com/2025/12/09/arts/design/georgia-okeeffe-new-mexico-conservation-plan.html
+
 **Why did the Colts gamble on Philip Rivers to save their season? 'He can still sling it'**\
 `A bigger gamble than bringing in "Uncle Phil" would have been doing nothing.`\
 https://nytimes.com/athletic/6876616/2025/12/09/philip-rivers-colts-gamble-retirement/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6876607/2025/12/09/venezuela-wbc-manager-omar-lopez
 **Zaha receives Ivory Coast call-up but Pepe and Adingra out of AFCON squad**\
 `Zaha receives his first callup in two years but Pepe and Adingra are surprise omissions for the reigning champions.`\
 https://nytimes.com/athletic/6876751/2025/12/09/zaha-pepe-ivory-coast-afcon-squad/
-
-**After Trump Threatens Tariffs, Mexico Seeks a Deal on Water**\
-`President Trump threatened 5 percent tariffs on Mexican imports over a water dispute. Mexico’s president, Claudia Sheinbaum, wants an agreement instead.`\
-https://nytimes.com/2025/12/09/us/politics/trump-mexico-tariffs-water-sheinbaum.html
 

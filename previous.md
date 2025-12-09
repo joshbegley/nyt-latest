@@ -1,3 +1,11 @@
+**Why did the Colts gamble on Philip Rivers to save their season? 'He can still sling it'**\
+`A bigger gamble than bringing in "Uncle Phil" would have been doing nothing.`\
+https://nytimes.com/athletic/6876616/2025/12/09/philip-rivers-colts-gamble-retirement/
+
+**After Philip Rivers' comeback, who are other notable athletes to come out of retirement?**\
+`With Philip Rivers coming out of retirement and signing with the Colts at 44 years old, we look at others who have done similar.`\
+https://nytimes.com/athletic/6876097/2025/12/09/philip-rivers-colts-famous-athletes-comeback-unretire/
+
 **USMNT striker Balogun continues Champions League streak in Monaco win**\
 `The 24-year-old USMNT forward became the first American to score in three straight Champions League appearances.`\
 https://nytimes.com/athletic/6876836/2025/12/09/balogun-usmnt-monaco-galatasaray/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6876751/2025/12/09/zaha-pepe-ivory-coast-afcon-squa
 **After Trump Threatens Tariffs, Mexico Seeks a Deal on Water**\
 `President Trump threatened 5 percent tariffs on Mexican imports over a water dispute. Mexico’s president, Claudia Sheinbaum, wants an agreement instead.`\
 https://nytimes.com/2025/12/09/us/politics/trump-mexico-tariffs-water-sheinbaum.html
-
-**Trump Pressures Ukraine**\
-`Also, the Supreme Court considers campaign finance limits. Here’s the latest at the end of Tuesday.`\
-https://nytimes.com/2025/12/09/briefing/trump-ukraine-wall-street-ai-bubble.html
-
-**Asserting a Personal Role in Warner Bros. Battle, Trump Expands His Powers Again**\
-`The move comes as the Supreme Court also appears poised to put antitrust enforcement by the Federal Trade Commission under his control.`\
-https://nytimes.com/2025/12/09/us/politics/trump-warner-bros.html
 

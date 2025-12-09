@@ -1,3 +1,11 @@
+**Why did the Colts gamble on Philip Rivers to save their season? 'He can still sling it'**\
+`A bigger gamble than bringing in "Uncle Phil" would have been doing nothing.`\
+https://nytimes.com/athletic/6876616/2025/12/09/philip-rivers-colts-gamble-retirement/
+
+**After Philip Rivers' comeback, who are other notable athletes to come out of retirement?**\
+`With Philip Rivers coming out of retirement and signing with the Colts at 44 years old, we look at others who have done similar.`\
+https://nytimes.com/athletic/6876097/2025/12/09/philip-rivers-colts-famous-athletes-comeback-unretire/
+
 **USMNT striker Balogun continues Champions League streak in Monaco win**\
 `The 24-year-old USMNT forward became the first American to score in three straight Champions League appearances.`\
 https://nytimes.com/athletic/6876836/2025/12/09/balogun-usmnt-monaco-galatasaray/
