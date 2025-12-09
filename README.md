@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6876636/2025/12/09/olympic-hockey-rink-board-of-gov
 https://nytimes.com/2025/12/09/nyregion/cannabis-investigation-omnium-ny-weed-regulation.html
 
 **Reimagining Cancer Care**\
-`From personalized cancer screenings to care and support that extends beyond hospital walls, this health care system delivers improved wellness and survival outcomes at every stage of a patient’s journey.`\
+`From personalized cancer screenings to care and support that extends beyond hospital walls, this health care system delivers improved wellness and survival outcomes at every stage of a patient’s journey. `\
 https://nytimes.com/paidpost/kaiser-permanente/reimagining-cancer-care.html
 
 **Vistas Painted by Georgia O’Keeffe Protected by Conservation Plan**\
@@ -31,6 +31,6 @@ https://nytimes.com/athletic/6876836/2025/12/09/balogun-usmnt-monaco-galatasaray
 https://nytimes.com/2025/12/09/world/americas/nobel-prize-venezuela.html
 
 **Storm System Causes Flooding in the Pacific Northwest**\
-`The Snoqualmie River and Chehalis River flooded roads and neighborhoods in Washington after a storm system brought heavy rain to the Pacific Northwest.`\
+`The Snoqualmie River and the Chehalis River flooded roads and neighborhoods in Washington after a storm system brought heavy rain to the Pacific Northwest.`\
 https://nytimes.com/video/weather/100000010576877/washington-river-flood.html
 

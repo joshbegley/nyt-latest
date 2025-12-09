@@ -1,3 +1,19 @@
+**Why there's no Plan B for Olympic hockey rinks, plus NHL betting integrity, more BOG rumblings**\
+`Also from the NHL's Board of Governors meeting, updates on Canada's men's roster, World Cup planning, Junior-NCAA logistics and NHL revenue.`\
+https://nytimes.com/athletic/6876636/2025/12/09/olympic-hockey-rink-board-of-governors/
+
+**End of Major Corruption Case Embarrasses N.Y. Cannabis Regulators**\
+`A case against the Long Island-based cannabis company Omnium Health was halted on the eve of trial. A judge on Tuesday held off on dropping the matter.`\
+https://nytimes.com/2025/12/09/nyregion/cannabis-investigation-omnium-ny-weed-regulation.html
+
+**Reimagining Cancer Care**\
+`From personalized cancer screenings to care and support that extends beyond hospital walls, this health care system delivers improved wellness and survival outcomes at every stage of a patient’s journey.`\
+https://nytimes.com/paidpost/kaiser-permanente/reimagining-cancer-care.html
+
+**Vistas Painted by Georgia O’Keeffe Protected by Conservation Plan**\
+`The plan will protect 6,000 acres of land in northern New Mexico, and the state is giving more than $900,000 toward the effort.`\
+https://nytimes.com/2025/12/09/arts/design/georgia-okeeffe-new-mexico-conservation-plan.html
+
 **Why did the Colts gamble on Philip Rivers to save their season? 'He can still sling it'**\
 `A bigger gamble than bringing in "Uncle Phil" would have been doing nothing.`\
 https://nytimes.com/athletic/6876616/2025/12/09/philip-rivers-colts-gamble-retirement/
