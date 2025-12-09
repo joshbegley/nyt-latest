@@ -10,8 +10,8 @@ https://nytimes.com/athletic/6874386/2025/12/08/florida-state-womens-soccer-nati
 `Defense questions Skaggs' widow and mother, aiming to show that pitcher wasn’t using opiates solely to deal with pain.`\
 https://nytimes.com/athletic/6874582/2025/12/08/angels-tyler-skaggs-trial-drug-use/
 
-**Honduran Authorities Issue Arrest Warrant for Ex-President Pardoned by Trump**\
-`The country’s attorney general said he had issued an international arrest warrant for Juan Orlando Hernández.`\
+**Honduras Issues Arrest Warrant for Ex-President Pardoned by Trump**\
+`The attorney general said he had asked Interpol to detain Juan Orlando Hernández, who was freed from a U.S. prison last week.`\
 https://nytimes.com/2025/12/08/world/americas/honduras-hernandez-arrest-warrant.html
 
 **Top N.Y. Cannabis Official Resigns as Major Investigation Is Dropped**\

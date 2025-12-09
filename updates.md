@@ -1,3 +1,7 @@
+**Honduras Issues Arrest Warrant for Ex-President Pardoned by Trump**\
+`The attorney general said he had asked Interpol to detain Juan Orlando Hernández, who was freed from a U.S. prison last week.`\
+https://nytimes.com/2025/12/08/world/americas/honduras-hernandez-arrest-warrant.html
+
 **Massachusetts Church Keeps Anti-ICE Nativity Scene, Defying Diocese Leaders**\
 `The Christmas display, which replaces Jesus, Mary and Joseph with a sign saying “ICE Was Here,” has drawn criticism from Catholic leaders and immigration officials.`\
 https://nytimes.com/2025/12/08/us/massachusetts-church-ice-nativity-scene.html
