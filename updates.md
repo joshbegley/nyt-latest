@@ -1,3 +1,11 @@
+**USMNT striker Balogun continues Champions League streak in Monaco win**\
+`The 24-year-old USMNT forward became the first American to score in three straight Champions League appearances.`\
+https://nytimes.com/athletic/6876836/2025/12/09/balogun-usmnt-monaco-galatasaray/
+
+**Nobel Prize for Venezuelan Dissident Draws Criticism**\
+`María Corina Machado is being honored for her push for democracy even as she backs President Trump’s military buildup and aggressive campaign against Venezuela.`\
+https://nytimes.com/2025/12/09/world/americas/nobel-prize-venezuela.html
+
 **Storm System Causes Flooding in the Pacific Northwest**\
 `The Snoqualmie River and Chehalis River flooded roads and neighborhoods in Washington after a storm system brought heavy rain to the Pacific Northwest.`\
 https://nytimes.com/video/weather/100000010576877/washington-river-flood.html

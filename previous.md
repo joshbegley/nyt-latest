@@ -1,3 +1,11 @@
+**USMNT striker Balogun continues Champions League streak in Monaco win**\
+`The 24-year-old USMNT forward became the first American to score in three straight Champions League appearances.`\
+https://nytimes.com/athletic/6876836/2025/12/09/balogun-usmnt-monaco-galatasaray/
+
+**Nobel Prize for Venezuelan Dissident Draws Criticism**\
+`María Corina Machado is being honored for her push for democracy even as she backs President Trump’s military buildup and aggressive campaign against Venezuela.`\
+https://nytimes.com/2025/12/09/world/americas/nobel-prize-venezuela.html
+
 **Storm System Causes Flooding in the Pacific Northwest**\
 `The Snoqualmie River and Chehalis River flooded roads and neighborhoods in Washington after a storm system brought heavy rain to the Pacific Northwest.`\
 https://nytimes.com/video/weather/100000010576877/washington-river-flood.html
@@ -25,12 +33,4 @@ https://nytimes.com/2025/12/09/briefing/trump-ukraine-wall-street-ai-bubble.html
 **Asserting a Personal Role in Warner Bros. Battle, Trump Expands His Powers Again**\
 `The move comes as the Supreme Court also appears poised to put antitrust enforcement by the Federal Trade Commission under his control.`\
 https://nytimes.com/2025/12/09/us/politics/trump-warner-bros.html
-
-**Inside the Dark and Predatory World of Crypto Casinos**\
-`Using exploitative marketing strategies, the illicit gambling websites have profited and lured in a young generation of gamblers.`\
-https://nytimes.com/interactive/2025/12/09/us/crypto-casinos-gambling-streamers.html
-
-**Inside the Phillies' reunion with Kyle Schwarber, their $150M slugger who sets the standard**\
-`The agreement might have been a fait accompli, sources said. But it was the most important offseason item for the Phillies to address.`\
-https://nytimes.com/athletic/6876548/2025/12/09/phillies-kyle-schwarber-150-million-contract/
 
