@@ -1,3 +1,7 @@
+**University of Utah approves plan to partner with private equity firm**\
+`While other schools like Clemson and Kentucky have spun off similar entities, Utah would be the first to include outside investors.`\
+https://nytimes.com/athletic/6876083/2025/12/09/utah-private-equity-deal/
+
 **Man Charged With Attempted Murder in Shooting of Jets Player Kris Boyd**\
 `Weeks after the shooting, Frederick Green, 20, was taken into custody near Buffalo and brought back to Manhattan, the police said.`\
 https://nytimes.com/2025/12/09/nyregion/kris-boyd-ny-jets-shooting-charges.html

@@ -1,3 +1,7 @@
+**University of Utah approves plan to partner with private equity firm**\
+`While other schools like Clemson and Kentucky have spun off similar entities, Utah would be the first to include outside investors.`\
+https://nytimes.com/athletic/6876083/2025/12/09/utah-private-equity-deal/
+
 **Man Charged With Attempted Murder in Shooting of Jets Player Kris Boyd**\
 `Weeks after the shooting, Frederick Green, 20, was taken into custody near Buffalo and brought back to Manhattan, the police said.`\
 https://nytimes.com/2025/12/09/nyregion/kris-boyd-ny-jets-shooting-charges.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/09/special-series/big-question-what-is-your-greatest
 **Colts sign Philip Rivers to practice squad: Sources**\
 `Rivers last played in the NFL during the 2020 season, when he led the Colts to the playoffs. `\
 https://nytimes.com/athletic/6875557/2025/12/09/colts-sign-philip-rivers-practice-squad/
-
-**After losing Edwin Díaz, how do the Mets plan on moving forward?**\
-`New York expressed a willingness to go higher on its offer before Díaz decided to sign with Los Angeles.`\
-https://nytimes.com/athletic/6876026/2025/12/09/new-york-mets-edwin-diaz-plan/
 
