@@ -1,3 +1,11 @@
+**DeSantis Designates Muslim Advocacy Group a ‘Terrorist Organization’**\
+`The executive order from the Florida governor came after another Republican governor, Greg Abbott of Texas, issued a similar declaration last month.`\
+https://nytimes.com/2025/12/08/us/desantis-cair-muslim-terrorism-florida.html
+
+**Blue Jays face difficult trade decision with ‘disappointed’ José Berríos**\
+`Toronto will have a tough time moving the right-handed pitcher with three years and $66 million remaining on his contract.`\
+https://nytimes.com/athletic/6874265/2025/12/08/blue-jays-face-difficult-trade-decision-with-disappointed-jose-berrios/
+
 **Shedeur Sanders and Cam Ward swap jerseys, show off friendship**\
 `The two rookies and friends have known each other since 2022, when they began training together`\
 https://nytimes.com/athletic/6874160/2025/12/08/shedeur-sanders-cam-ward-jersey-swap-friends/
