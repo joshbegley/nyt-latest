@@ -1,3 +1,7 @@
+**Is Mount finally offering United glimpses of the player they signed?**\
+`Mount clearly taps into a lot of what Amorim wants in a player. After two injury-hit seasons, the question is whether he can now kick on`\
+https://nytimes.com/athletic/6874493/2025/12/09/mason-mount-man-united-improvement/
+
 **Late Night Sees Through Trump’s ‘Appease Prize’**\
 `“Call me a boomer, but these participation trophies have gone too far,” Stephen Colbert said before presenting himself with the First Annual Stephen Colbert Joke Prize.`\
 https://nytimes.com/2025/12/09/arts/television/late-night-trump-prize.html
