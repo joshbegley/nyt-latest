@@ -7,8 +7,12 @@ https://nytimes.com/2025/12/09/learning/word-of-the-day-fruition.html
 https://nytimes.com/2025/12/09/world/asia/thailand-cambodia-border-conflict-evacuation.html
 
 **Slot retains support after Salah outburst, but credit in the bank is not endless**\
-`Slot faced the media on Monday after Salah's comments and dealt with them admirably. But he is facing the biggest test of his career.`\
+`Slot faced the media on Monday after Salah's comments and dealt with them admirably. But he is facing the biggest test of his career`\
 https://nytimes.com/athletic/6873996/2025/12/09/arne-slot-salah-liverpool-interview/
+
+**Is Mount finally offering United glimpses of the player they signed?**\
+`Mount clearly taps into a lot of what Amorim wants in a player. After two injury-hit seasons, the question is whether he can now kick on.`\
+https://nytimes.com/athletic/6874493/2025/12/09/mason-mount-man-united-improvement/
 
 **Jeremy O. Harris Is Released From Custody in Japan**\
 `The Tony-nominated playwright was arrested last month on suspicion of attempted drug smuggling. He was released on Monday, Japanese officials said.`\
@@ -29,8 +33,4 @@ https://nytimes.com/issue/todayspaper/2025/12/09/todays-new-york-times
 **'Monsters Funday Football': MNF alt-cast provides animated version of Eagles-Chargers game**\
 `Sulley had an MVP night and Mike Wazowski had clutch moments during ESPN's "Monsters Funday Football" broadcast of the Eagles-Chargers game.`\
 https://nytimes.com/athletic/6874722/2025/12/09/monsters-funday-football-movie-themed-alt-cast-mnf/
-
-**Chargers intercept Eagles' Jalen Hurts 4 times, including the clincher in OT: Takeaways**\
-`Los Angeles defensive back Tony Jefferson picks off a tipped ball near the goal line to seal the 22-19 victory in overtime.`\
-https://nytimes.com/athletic/6874100/2025/12/09/eagles-chargers-score-result-takeaways-mnf/
 
