@@ -1,4 +1,16 @@
-**The Briefing - Tottenham Hotspur 3 Slavia Prague 0: Last 16 hopes boosted, emotional Son homecoming**\
+**The Briefing - Inter 0 Liverpool 1: Was this Slot's biggest win? Were big VAR calls right?**\
+`Analysing Tuesday's big Champions League tie at the San Siro as Liverpool earned a precious win`\
+https://nytimes.com/athletic/6875202/2025/12/09/liverpool-inter-champions-league-result-analysis/
+
+**The Resilience of Religious Doubt**\
+`Belief is reasonable. Skepticism is inevitable.`\
+https://nytimes.com/2025/12/09/opinion/religious-belief-skepticism-doubt.html
+
+**Europe, Too, Is Worth Fighting For**\
+`Provided Europeans want to fight for it.`\
+https://nytimes.com/2025/12/09/opinion/national-security-strategy-us-europe.html
+
+**The Briefing - Tottenham Hotspur 3 Slavia Prague 0: Last-16 hopes boosted, emotional Son homecoming**\
 `Tottenham Hotspur boosted their chances of a place in the last 16, but suffered the blow of losing Micky van de Ven to suspension`\
 https://nytimes.com/athletic/6875205/2025/12/09/tottenham-hotspur-3-slavia-prague-0/
 
@@ -21,16 +33,4 @@ https://nytimes.com/2025/12/09/nyregion/luigi-mangione-hearing-video.html
 **Kathryn Garcia Is Named New Head of the Port Authority**\
 `Ms. Garcia, who ran for mayor of New York in 2021 after serving as the city’s sanitation commissioner, would succeed Rick Cotton, who is retiring.`\
 https://nytimes.com/2025/12/09/nyregion/kathryn-garcia-port-authority.html
-
-**2025 college football awards tracker: Winners, finalists for most prestigious awards**\
-`It's time to give out awards to the best in the nation for the 2025 college football season.`\
-https://nytimes.com/athletic/6876205/2025/12/09/2025-college-football-awards-tracker-winners-finalists/
-
-**Trump and Europe’s Far Right**\
-`The American national security strategy echoes the language of far-right parties. But hardliners across the Atlantic seem unimpressed.`\
-https://nytimes.com/2025/12/09/world/trump-us-europe-australia-social-media.html
-
-**Players have long had agents. A former MLB GM now reps coaches and execs, an underserved group**\
-`To Scott Boras, MLB coaches “are the most underpaid coaching category in professional sports.” `\
-https://nytimes.com/athletic/6876423/2025/12/09/mlb-coaches-execs-agent-zack-scott/
 
