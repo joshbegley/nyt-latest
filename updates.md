@@ -1,3 +1,11 @@
+**Why the Mets and free-agent Pete Alonso won't connect at Winter Meetings**\
+`ORLANDO, Fla.`\
+https://nytimes.com/athletic/6874479/2025/12/08/pete-alonso-new-york-mets-winter-meetings/
+
+**Propellers of a Shell**\
+`Kate Hawkins remains undecided.`\
+https://nytimes.com/2025/12/08/crosswords/daily-puzzle-2025-12-09.html
+
 **Even entering Tarik Skubal's walk year, the Tigers seem fixated on the long game**\
 `Detroit appears unlikely to make any sort of splash at this year's Winter Meetings.`\
 https://nytimes.com/athletic/6874341/2025/12/08/tigers-tarik-skubal-winter-meetings-mlb/

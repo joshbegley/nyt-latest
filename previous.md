@@ -1,3 +1,11 @@
+**Why the Mets and free-agent Pete Alonso won't connect at Winter Meetings**\
+`ORLANDO, Fla.`\
+https://nytimes.com/athletic/6874479/2025/12/08/pete-alonso-new-york-mets-winter-meetings/
+
+**Propellers of a Shell**\
+`Kate Hawkins remains undecided.`\
+https://nytimes.com/2025/12/08/crosswords/daily-puzzle-2025-12-09.html
+
 **Even entering Tarik Skubal's walk year, the Tigers seem fixated on the long game**\
 `Detroit appears unlikely to make any sort of splash at this year's Winter Meetings.`\
 https://nytimes.com/athletic/6874341/2025/12/08/tigers-tarik-skubal-winter-meetings-mlb/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6874240/2025/12/08/cubs-will-pursue-high-leverage-r
 **How to watch Boise State vs. Washington: LA Bowl Start Time, TV, streaming**\
 `Find out how to watch the Boise State Broncos play the Washington Huskies, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6874442/2025/12/08/boise-state-vs-washington-stream-how-to-watch-dec-13/
-
-**DeSantis Designates Muslim Advocacy Group a ‘Terrorist Organization’**\
-`The executive order from the Florida governor came after another Republican governor, Greg Abbott of Texas, issued a similar declaration last month.`\
-https://nytimes.com/2025/12/08/us/desantis-cair-muslim-terrorism-florida.html
-
-**Shedeur Sanders and Cam Ward swap jerseys, show off friendship**\
-`The two rookies and friends have known each other since 2022, when they began training together`\
-https://nytimes.com/athletic/6874160/2025/12/08/shedeur-sanders-cam-ward-jersey-swap-friends/
 
