@@ -1,3 +1,11 @@
+**Word of the Day: fruition**\
+`This word has appeared in 444 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/12/09/learning/word-of-the-day-fruition.html
+
+**In Thailand and Cambodia, Taking Shelter (Again) as Fighting Reignites**\
+`Hundreds of thousands of people fled a deadly border conflict, the authorities said, some sheltering at a racetrack in Thailand and some near temples in Cambodia.`\
+https://nytimes.com/2025/12/09/world/asia/thailand-cambodia-border-conflict-evacuation.html
+
 **Slot retains support after Salah outburst, but credit in the bank is not endless**\
 `Slot faced the media on Monday after Salah's comments and dealt with them admirably. But he is facing the biggest test of his career.`\
 https://nytimes.com/athletic/6873996/2025/12/09/arne-slot-salah-liverpool-interview/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6874722/2025/12/09/monsters-funday-football-movie-t
 **Chargers intercept Eagles' Jalen Hurts 4 times, including the clincher in OT: Takeaways**\
 `Los Angeles defensive back Tony Jefferson picks off a tipped ball near the goal line to seal the 22-19 victory in overtime.`\
 https://nytimes.com/athletic/6874100/2025/12/09/eagles-chargers-score-result-takeaways-mnf/
-
-**England sacrificed James Anderson…for this?**\
-`He is 43 but was still producing the goods when he wasn't allowed to retire on his own terms. Would he not have been useful for this Ashes?`\
-https://nytimes.com/athletic/6872299/2025/12/09/james-anderson-england-sacrificed-ashes/
-
-**Ezri Konsa has become a master of a specific - and unexpected - skill**\
-`Winning free kicks can be seen as a wily trick or as one of football's darker arts – regardless, Konsa takes responsibility on the field`\
-https://nytimes.com/athletic/6713011/2025/12/09/aston-villas-ezri-konsa-has-become-a-master-of-a-specific-and-unexpected-skill/
 
