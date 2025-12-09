@@ -1,5 +1,9 @@
-**Injuries Reported in Shooting at Kentucky State University, Officials Say**\
-`The police said a suspect had been arrested after the shooting at the school in Frankfort, Ky.`\
+**Legal Groups Sue Justice Dept. for Secret Memo Justifying Boat Strikes**\
+`“The public deserves to know how the Trump administration has justified the outright murder of civilians as lawful,” the organizations said in their lawsuit.`\
+https://nytimes.com/2025/12/09/nyregion/aclu-lawsuit-justice-department-boat-strikes.html
+
+**1 Student Killed and 1 Injured in Kentucky State University Shooting, Officials Say**\
+`The police said a suspect had been arrested after the shooting in Frankfort, Ky. The second student was in critical but stable condition, a university spokesman said.`\
 https://nytimes.com/2025/12/09/us/shooting-kentucky-state-university.html
 
 **Items Seized From Mangione Included Bullets and Note to ‘Pluck Eyebrows’**\
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/09/climate/epa-website-climate-change-causes.html
 **What does Kyle Schwarber's $150 million deal mean for free-agent slugger market?**\
 `Schwarber’s signing should clarify the picture for available power hitters such as Pete Alonso and Eugenio Suárez. `\
 https://nytimes.com/athletic/6876305/2025/12/09/kyle-schwarber-phillies-contract-mlb-free-agency/
-
-**‘Severance’ Actor Michael Chernus Loves an Old Restaurant**\
-`“You just feel the history and all the stories that must have happened there and all the people who sat at the bar.”`\
-https://nytimes.com/2025/12/09/dining/severance-actor-michael-chernus-where-to-eat.html
 
