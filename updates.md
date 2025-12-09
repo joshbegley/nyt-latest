@@ -1,3 +1,7 @@
+**Shedeur Sanders and Cam Ward swap jerseys, show off friendship**\
+`The two rookies and friends have known each other since 2022, when they began training together`\
+https://nytimes.com/athletic/6874160/2025/12/08/shedeur-sanders-cam-ward-jersey-swap-friends/
+
 **Buster Posey's burning question: Would trading Bryce Eldridge be boldness or idiocy for Giants?**\
 `Posey demonstrated with the industry-shaking trade for Rafael Devers in June that he isn't timid about making a huge deal.`\
 https://nytimes.com/athletic/6874228/2025/12/08/buster-posey-trading-bryce-eldridge-boldness-or-idiocy/

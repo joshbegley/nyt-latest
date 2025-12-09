@@ -1,3 +1,7 @@
+**DeSantis Designates Muslim Advocacy Group a ‘Terrorist Organization’**\
+`The executive order from the Florida governor came after another Republican governor, Greg Abbott of Texas, issued a similar declaration last month.`\
+https://nytimes.com/2025/12/08/us/desantis-cair-muslim-terrorism-florida.html
+
 **Shedeur Sanders and Cam Ward swap jerseys, show off friendship**\
 `The two rookies and friends have known each other since 2022, when they began training together`\
 https://nytimes.com/athletic/6874160/2025/12/08/shedeur-sanders-cam-ward-jersey-swap-friends/
@@ -15,7 +19,7 @@ https://nytimes.com/2025/12/08/us/politics/trump-tariffs-mexico-water.html
 https://nytimes.com/athletic/6874260/2025/12/08/los-angeles-dodgers-teoscar-hernandez-trade-potential/
 
 **Blue Jays face difficult trade decision with ‘disappointed’ José Berríos**\
-`Toronto will have difficult moving the right-handed pitcher with three years and $66 million remaining on his contract.`\
+`Toronto will have a tough time moving the right-handed pitcher with three years and $66 million remaining on his contract.`\
 https://nytimes.com/athletic/6874265/2025/12/08/blue-jays-face-difficult-trade-decision-with-disappointed-jose-berrios/
 
 **At MLB's Winter Meetings, the Pirates are in a space they rarely occupy: in the mix**\
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6874207/2025/12/08/philip-rivers-colts-visit-return
 **Trump Insists Tariffs Will Buoy the Economy. For Now, He’s on Damage Control.**\
 `The president rolled out a $12 billion bailout for farmers as he makes the case that his policy is working — or will soon.`\
 https://nytimes.com/2025/12/08/us/politics/trump-trade-affordability.html
-
-**To land All-Star slugger Kyle Schwarber, Reds will need to be creative**\
-`The Reds want Schwarber, that much is known, even if what he wants has yet to be revealed.`\
-https://nytimes.com/athletic/6874149/2025/12/08/cincinnati-reds-kyle-schwarber-pursuit-update/
 

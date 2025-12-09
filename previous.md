@@ -1,3 +1,7 @@
+**Shedeur Sanders and Cam Ward swap jerseys, show off friendship**\
+`The two rookies and friends have known each other since 2022, when they began training together`\
+https://nytimes.com/athletic/6874160/2025/12/08/shedeur-sanders-cam-ward-jersey-swap-friends/
+
 **Buster Posey's burning question: Would trading Bryce Eldridge be boldness or idiocy for Giants?**\
 `Posey demonstrated with the industry-shaking trade for Rafael Devers in June that he isn't timid about making a huge deal.`\
 https://nytimes.com/athletic/6874228/2025/12/08/buster-posey-trading-bryce-eldridge-boldness-or-idiocy/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/08/us/politics/trump-trade-affordability.html
 **To land All-Star slugger Kyle Schwarber, Reds will need to be creative**\
 `The Reds want Schwarber, that much is known, even if what he wants has yet to be revealed.`\
 https://nytimes.com/athletic/6874149/2025/12/08/cincinnati-reds-kyle-schwarber-pursuit-update/
-
-**Shane Baz emerges as one target in Astros' search for starting pitching: Sources**\
-`The Astros have expressed interest in Rays starter Shane Baz, a Houston native. The 26-year-old has three more seasons of club control.`\
-https://nytimes.com/athletic/6874175/2025/12/08/shane-baz-astros-pitching-search/
 
