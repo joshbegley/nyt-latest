@@ -1,3 +1,7 @@
+**Tottenham add Tel to Champions League squad as Solanke replacement**\
+`Solanke is recovering from ankle surgery he underwent in October.`\
+https://nytimes.com/athletic/6875469/2025/12/09/mathys-tel-tottenham-champions-league-squad/
+
 **Canadiens weekly notebook: Favourable matchups, Gallagher and the momentum line**\
 `Also, are the Canadiens transitioning from a man-on-man defensive system back to a hybrid system?`\
 https://nytimes.com/athletic/6874853/2025/12/09/canadiens-schedule-brendan-gallagher/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/09/style/street-style-look-archival-garments.html
 **Iain Douglas-Hamilton, Elephant Expert and Protector, Dies**\
 `Born into a British aristocratic family, he turned his empathy and understanding of the world’s largest land mammals to the cause of saving them from poachers.`\
 https://nytimes.com/2025/12/09/obituaries/iain-douglas-hamilton-elephant-expert-and-protector-dies.html
-
-**PSG's Qatari owners to acquire Belgium second-tier club**\
-`QSI will complete a full acquisition of KAS Eupen and take full operational control of the club.`\
-https://nytimes.com/athletic/6875359/2025/12/09/psg-qsi-qatar-eupen-takeover/
 
