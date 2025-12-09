@@ -1,4 +1,24 @@
-**Patriots, Broncos, Rams and other Week 15 NFL playoff clinching scenarios**\
+**‘Come North!’ Canada Makes Play for H1-B Visa Holders With New Talent Drive**\
+`The government says it will fast-track immigration for U.S. H1-B visa holders and spend more than $1 billion to attract researchers from the United States and the rest of the world.`\
+https://nytimes.com/2025/12/09/world/canada/canada-usa-immigration-h1-b-visa-talent.html
+
+**When Silicon Valley Seeks the Sacred**\
+`In an uncertain and often frightening world, more people are searching for meaning in communities of faith.`\
+https://nytimes.com/2025/12/09/special-series/silicon-valley-tech-faith-religion.html
+
+**Orioles matched Phillies' contract offer to Kyle Schwarber: Sources**\
+`The Orioles offered a five-year, $150 million deal, the same terms Schwarber agreed upon to return to Philadelphia.`\
+https://nytimes.com/athletic/6876322/2025/12/09/kyle-schwarber-orioles-phillies-mlb-free-agency/
+
+**Cruise Passenger Was Served 33 Drinks Before Deadly Encounter With Crew, Suit Says**\
+`Michael Virgil, 35, became agitated on a Royal Caribbean ship and was restrained by at least five crew members, including some who stood on his back, before he died, the medical examiner said.`\
+https://nytimes.com/2025/12/09/travel/royal-caribbean-cruise-homicide-33-drinks.html
+
+**'Barca and Madrid are the toughest clubs to coach' - Guardiola shows Alonso sympathy**\
+`Guardiola's City won once and lost six games in a nine-game spell during this stage of the 2024-25 season.`\
+https://nytimes.com/athletic/6876279/2025/12/09/guardiola-alonso-real-madrid-man-city/
+
+**Patriots, Broncos, Rams and other Week 15 NFL playoff-clinching scenarios**\
 `No NFL teams are locked into the postseason yet, but that could change this week. We break down all the Week 15 clinching scenarios.`\
 https://nytimes.com/athletic/6876202/2025/12/09/nfl-playoff-clinching-scenarios-week-15-patriots-rams/
 
@@ -13,24 +33,4 @@ https://nytimes.com/athletic/6876076/2025/12/09/alphonso-davies-bayern-return-ca
 **Fantasy football market share report: Chris Rodriguez has top-20 appeal in Week 15**\
 `Michael Salfino analyzes the touches and targets distribution for Week 14, and sees big things ahead for Chris Rodriguez and Woody Marks.`\
 https://nytimes.com/athletic/6876144/2025/12/09/fantasy-football-market-share-report-chris-rodriguez/
-
-**Australia’s Social Media Ban for People Under 16 Takes Effect**\
-`The measure is one of the most sweeping efforts in the world to safeguard children from the harms of the platforms.`\
-https://nytimes.com/2025/12/09/world/asia/australia-social-media-ban-under-16.html
-
-**Scott Boras says 8 teams are interested in Cody Bellinger. What does that mean for Yankees?**\
-`Boras indicated nearly one-third of all MLB teams are interested in Bellinger. Will the Yankees be able to retain the free-agent outfielder?`\
-https://nytimes.com/athletic/6876011/2025/12/09/cody-bellinger-yankees-scott-boras/
-
-**Full Time: What we know about Trinity Rodman's status**\
-`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
-https://nytimes.com/athletic/6876204/2025/12/09/trinity-rodman-status-full-time/
-
-**Somali Americans Are Carrying Proof of Citizenship Amid ICE Raids**\
-`In Minnesota, Somali Americans have been in fear since President Trump called them “garbage.” ICE raids across the state have led to over a dozen arrests, prompting many to carry their U.S. passports to protect against wrongful arrests.`\
-https://nytimes.com/video/us/100000010565397/somali-americans-citizenship-proof-ice-raids.html
-
-**A Rare Bright Spot for U.S. Solar: Subscriptions**\
-`The solar company Sunrun has managed to thrive despite President Trump’s crackdown on renewable energy, offering what it calls “energy as a service.”`\
-https://nytimes.com/2025/12/09/climate/solar-power-subscriptions-sunrun.html
 
