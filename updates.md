@@ -1,3 +1,11 @@
+**These Looted Treasures Are Home. What Now?**\
+`Western museums are returning the Benin Bronzes to Nigeria, but a state-of-the-art museum to display them is still a long way off.`\
+https://nytimes.com/2025/12/09/arts/benin-bronzes-returned-nigeria.html
+
+**Nvidia Can Sell More Chips in China. Now What?**\
+`President Trump’s move fulfills a major goal of the chipmaker. But the move faces opposition in Washington — and uncertainty in Beijing.`\
+https://nytimes.com/2025/12/09/business/dealbook/nvidias-china-lobbying-chips.html
+
 **Shedeur Sanders, Fernando Mendoza and the Browns' path to a quarterback**\
 `Given all of the holes in the Browns' lineup, does it really make sense to splurge on a quarterback in the 2026 draft? `\
 https://nytimes.com/athletic/6874723/2025/12/09/browns-shedeur-sanders-fernando-mendoza-nfl-draft/

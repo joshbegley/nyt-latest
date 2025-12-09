@@ -1,3 +1,11 @@
+**These Looted Treasures Are Home. What Now?**\
+`Western museums are returning the Benin Bronzes to Nigeria, but a state-of-the-art museum to display them is still a long way off.`\
+https://nytimes.com/2025/12/09/arts/benin-bronzes-returned-nigeria.html
+
+**Nvidia Can Sell More Chips in China. Now What?**\
+`President Trump’s move fulfills a major goal of the chipmaker. But the move faces opposition in Washington — and uncertainty in Beijing.`\
+https://nytimes.com/2025/12/09/business/dealbook/nvidias-china-lobbying-chips.html
+
 **Shedeur Sanders, Fernando Mendoza and the Browns' path to a quarterback**\
 `Given all of the holes in the Browns' lineup, does it really make sense to splurge on a quarterback in the 2026 draft? `\
 https://nytimes.com/athletic/6874723/2025/12/09/browns-shedeur-sanders-fernando-mendoza-nfl-draft/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6874261/2025/12/09/bones-hyland-timberwolves-rotati
 **The Giants need to build a 2026 roster that can play baseball worth remembering**\
 `The looming CBA battle makes the 2026 season especially important for a Giants' team that is built to win now, but not in three years.`\
 https://nytimes.com/athletic/6874995/2025/12/09/sf-giants-2026-roster-urgency/
-
-**The Supreme Court Considers Presidential Power**\
-`We dig into a case in front of the justices this week.`\
-https://nytimes.com/2025/12/09/briefing/the-supreme-court-considers-presidential-power.html
-
-**Shota Imanaga's return won't stop Cubs from adding another accomplished starting pitcher**\
-`Cubs president Jed Hoyer is optimistic that Imanaga can regain what made him a dazzling performer in 2024.`\
-https://nytimes.com/athletic/6874533/2025/12/09/cubs-starting-pitching-offseason-shota-imanaga-return/
 
