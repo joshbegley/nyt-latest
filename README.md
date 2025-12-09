@@ -1,3 +1,19 @@
+**Arsenal add Jesus to Champions League squad after Dowman injury**\
+`Jesus was initially not part of Arsenal's squad for the league phase of the competition but has now replaced Max Dowman.`\
+https://nytimes.com/athletic/6875689/2025/12/09/gabriel-jesus-arsenal-dowman-champions-league/
+
+**Ole Miss getting 4 assistants who left for LSU back for Playoff: Source**\
+`Should Ole Miss beat Tulane in the first round, they would then meet Georgia in the Sugar Bowl in New Orleans for a rematch.`\
+https://nytimes.com/athletic/6875645/2025/12/09/ole-miss-lsu-assistant-coaches-playoff/
+
+**Kristen Stewart on Men and Method Acting**\
+`“Have you ever heard of a female actor that was method?” Kristen Stewart, who recently posed that question on “The Interview,” has been acting since she was a child and became a star in her late teens in “Twilight.`\
+https://nytimes.com/video/podcasts/100000010575526/kristen-stewart-on-men-and-method-acting.html
+
+**Kristen Stewart Hopes She’s Not Selfish**\
+`“What is it you don’t want to know about yourself?” The actor and director Kristen Stewart tackled that question with David Marchese, host of “The Interview,” on a recent episode.`\
+https://nytimes.com/video/podcasts/100000010575511/kristen-stewart-hopes-shes-not-selfish.html
+
 **Is Saturated Fat Actually Good for You?**\
 `Health experts have long recommended limiting it, but Robert F. Kennedy Jr. has signaled a shift in that advice.`\
 https://nytimes.com/2025/12/09/well/eat/saturated-fat-health-risks-dietary-guidelines.html
@@ -17,20 +33,4 @@ https://nytimes.com/paidpost/estee-lauder-re-nutriv/the-beauty-of-longevity.html
 **Judge Suggests Prosecutor on Comey and James Cases Should Resign as U.S. Attorney**\
 `Lindsey Halligan’s indictments against James B. Comey, the former F.B.I. director, and Letitia James, the attorney general of New York, were dismissed last month over Ms. Halligan’s appointment.`\
 https://nytimes.com/2025/12/09/us/politics/comey-james-halligan.html
-
-**Mining the ‘Manosphere’**\
-`To help us understand the growing problem of adolescent male rage, let’s start a conversation about the power of what we consume online.`\
-https://nytimes.com/2025/12/09/special-series/jack-thorne-adolescence-manosphere.html
-
-**Judge Grants Request to Unseal Grand Jury Records in Maxwell Case**\
-`The ruling cited a law signed last month by President Trump requiring the Justice Department to release its files on Jeffrey Epstein and his longtime companion, Ghislaine Maxwell.`\
-https://nytimes.com/2025/12/09/nyregion/ghislaine-maxwell-epstein-grand-jury-unsealed.html
-
-**Fantasy football Week 15 drops: High hopes disappear for Jayden Daniels**\
-`Gary Davenport's final column of the season suggests dropping Jayden Daniels, Xavier Worthy and more players with once high expectations.`\
-https://nytimes.com/athletic/6875439/2025/12/09/fantasy-football-week-15-drops-jayden-daniels/
-
-**Broncos' massive matchup with Packers has big playoff implications at stake**\
-`The Broncos can't clinch the AFC West in Week 15, but they could boost their odds of capturing No. 1 seed with win vs. Green Bay.`\
-https://nytimes.com/athletic/6875302/2025/12/09/broncos-playoff-implications-packers/
 
