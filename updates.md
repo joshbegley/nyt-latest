@@ -1,3 +1,23 @@
+**Bill Daly says NHL players won’t play in Milan Olympics if ice isn’t safe**\
+`Daly acknowledged being blindsided last week that the International Ice Hockey Federation approved rink dimension smaller than NHL's.`\
+https://nytimes.com/athletic/6874299/2025/12/08/bill-daly-nhl-milan-olympics-rink/
+
+**Eagles' Jalen Hurts charged with INT, lost fumble on wild triple-turnover play**\
+`The "Monday Night Football" game between the Eagles and Chargers included five turnovers in a span of 11 first-half plays.`\
+https://nytimes.com/athletic/6874501/2025/12/08/jalen-hurts-eagles-chargers-mnf-interception-fumble/
+
+**Red Sox focused on adding power hitter, Kristian Campbell getting outfield reps**\
+`Red Sox chief baseball officer Craig Breslow made clear his desire to add a slugger this offseason.`\
+https://nytimes.com/athletic/6874445/2025/12/08/red-sox-kristian-campbell-mlb/
+
+**Why the Mets and free-agent Pete Alonso won't connect at Winter Meetings**\
+`The Baltimore Orioles and Boston Red Sox are among the teams interested in Alonso, league sources said.`\
+https://nytimes.com/athletic/6874479/2025/12/08/pete-alonso-new-york-mets-winter-meetings/
+
+**Propellers of a Shell**\
+`Kate Hawkins remains undecided.`\
+https://nytimes.com/2025/12/08/crosswords/daily-puzzle-2025-12-09.html
+
 **Cubs will still pursue high-leverage relief options after signing Phil Maton**\
 `By signing Maton to a two-year, $14.5 million deal last month, Jed Hoyer broke with his recent trend.`\
 https://nytimes.com/athletic/6874240/2025/12/08/cubs-will-pursue-high-leverage-relief/
