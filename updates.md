@@ -1,3 +1,7 @@
+**Massachusetts Church Keeps Anti-ICE Nativity Scene, Defying Diocese Leaders**\
+`The Christmas display, which replaces Jesus, Mary and Joseph with a sign saying “ICE Was Here,” has drawn criticism from Catholic leaders and immigration officials.`\
+https://nytimes.com/2025/12/08/us/massachusetts-church-ice-nativity-scene.html
+
 **Florida State women's soccer wins third national championship in five years**\
 `Wrianna Hudson scored with three minutes left as the Seminoles won their third title in the past five years.`\
 https://nytimes.com/athletic/6874386/2025/12/08/florida-state-womens-soccer-national-championship-recap-takeaways/
