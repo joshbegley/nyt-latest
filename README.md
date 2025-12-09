@@ -1,3 +1,7 @@
+**Trump Insists Tariffs Will Buoy the Economy. For Now, He’s on Damage Control.**\
+`The president rolled out a $12 billion bailout for farmers as he makes the case that his policy is working — or will soon.`\
+https://nytimes.com/2025/12/08/us/politics/trump-trade-affordability.html
+
 **To land All-Star slugger Kyle Schwarber, Reds will need to be creative**\
 `The Reds want Schwarber, that much is known, even if what he wants has yet to be revealed.`\
 https://nytimes.com/athletic/6874149/2025/12/08/cincinnati-reds-kyle-schwarber-pursuit-update/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/08/nyregion/ny-school-vaccinations.html
 **Federal Judge Finds Trump’s Halt on Wind Energy Is Illegal**\
 `The president ordered a stop to permits for all wind farms on federal lands and waters. A judge called that “capricious.”`\
 https://nytimes.com/2025/12/08/climate/trump-offshore-wind-federal-judge.html
-
-**Justices Seem Poised to Expand Trump’s Powers**\
-`Also, Paramount made a hostile bid for Warner Bros. Here’s the latest at the end of Monday.`\
-https://nytimes.com/2025/12/08/briefing/justices-seem-poised-to-expand-trumps-powers.html
 
