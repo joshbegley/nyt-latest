@@ -1,3 +1,7 @@
+**Slot questions whether Salah should take lead in resolving Liverpool dispute**\
+`Slot also suggested that Salah’s outburst at Elland Road came as a result of an “emotional” week`\
+https://nytimes.com/athletic/6876925/2025/12/09/salah-liverpool-slot-news-update-inter-champions-league/
+
 **After getting jilted by Kyle Schwarber, where do the Reds go for power next?**\
 `The Reds could pursue a number of sluggers on the market, or potentially trade from their depth to acquire a middle-of-the-order bat.`\
 https://nytimes.com/athletic/6876727/2025/12/09/cincinnati-reds-free-agent-fits-hitters/
