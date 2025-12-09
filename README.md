@@ -1,3 +1,7 @@
+**Angels focus on Tyler Skaggs' drug use as final week of testimony begins**\
+`Defense questions Skaggs' widow and mother, aiming to show that pitcher wasn’t using opiates solely to deal with pain.`\
+https://nytimes.com/athletic/6874582/2025/12/08/angels-tyler-skaggs-trial-drug-use/
+
 **Honduran Authorities Issue Arrest Warrant for Ex-President Pardoned by Trump**\
 `The country’s attorney general said he had issued an international arrest warrant for Juan Orlando Hernández.`\
 https://nytimes.com/2025/12/08/world/americas/honduras-hernandez-arrest-warrant.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/08/crosswords/daily-puzzle-2025-12-09.html
 **Even entering Tarik Skubal's walk year, the Tigers seem fixated on the long game**\
 `Detroit appears unlikely to make any sort of splash at this year's Winter Meetings.`\
 https://nytimes.com/athletic/6874341/2025/12/08/tigers-tarik-skubal-winter-meetings-mlb/
-
-**With Teddy Bridgewater in stands, his high school team makes state title game**\
-`The Buccaneers QB coached Miami Northwestern to a state title in 2024. He watched as the team earned a return trip to the title game.`\
-https://nytimes.com/athletic/6874301/2025/12/08/teddy-bridgewater-miami-coach-northwest-high-school/
 
