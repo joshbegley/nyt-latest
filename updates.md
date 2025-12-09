@@ -1,3 +1,11 @@
+**Blue Jays face difficult trade decision with ‘disappointed’ José Berríos**\
+`Toronto will have difficult moving the right-handed pitcher with three years and $66 million remaining on his contract.`\
+https://nytimes.com/athletic/6874265/2025/12/08/blue-jays-face-difficult-trade-decision-with-disappointed-jose-berrios/
+
+**At MLB's winter meetings, the Pirates are in a space they rarely occupy: in the mix**\
+`There’s a lot left to do to become contenders, and many in the industry are understandably dubious of the Pirates' appetite to spend.`\
+https://nytimes.com/athletic/6874220/2025/12/08/mlb-winter-meetings-pittsburgh-pirates-position/
+
 **Colts to work out QB Philip Rivers, 44, in wake of Daniel Jones' injury**\
 `The eight-time Pro Bowler hasn't played since 2020 when he led the Colts to their last playoff appearance.`\
 https://nytimes.com/athletic/6874207/2025/12/08/philip-rivers-colts-visit-return-nfl/
