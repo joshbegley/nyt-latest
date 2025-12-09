@@ -1,3 +1,15 @@
+**NASCAR exec Steve Phelps questioned over charter offer on Day 7 of antitrust trial**\
+`Phelps pushed back on the notion that NASCAR issued a "take-it-or-leave-it" charter offer during his turn on the witness stand Tuesday.`\
+https://nytimes.com/athletic/6876060/2025/12/09/nascar-trial-steve-phelps-charter-deal-richard-childress-michael-jordan/
+
+**Scott Boras says Red Sox ownership has 'made it clear to us that they want to add'**\
+`For his part, chief baseball officer Craig Breslow said Monday that he does not feel inhibited by the payroll this offseason.`\
+https://nytimes.com/athletic/6875988/2025/12/09/boston-red-sox-ownership-scott-boras-comments/
+
+**French First Lady’s Insult Against Feminist Protesters Prompts Outcry**\
+`Brigitte Macron used a slur to criticize protesters who had interrupted a show by a French comedian accused of rape in 2021, in a case that was dismissed.`\
+https://nytimes.com/2025/12/09/world/europe/france-brigitte-macron-feminists-slur.html
+
 **LeBron James' agent shuts down idea of superstar leaving Lakers this season**\
 `Rich Paul told Max Kellerman on their podcast that James will finish the season as a Laker.`\
 https://nytimes.com/athletic/6875724/2025/12/09/lebron-james-lakers-future-rich-paul/
@@ -21,16 +33,4 @@ https://nytimes.com/2025/12/09/dining/nyc-restaurant-news.html
 **A Gothic Novel Haunted by South African History**\
 `In “Cape Fever,” a young maid finds herself dealing with ghosts from the past and a manipulative employer.`\
 https://nytimes.com/2025/12/09/books/cape-fever-nadia-davids.html
-
-**Liverpool fan charged over alleged racist abuse of Semenyo**\
-`Merseyside Police confirmed a man has been charged with a racially aggravated section five public order offence.`\
-https://nytimes.com/athletic/6875971/2025/12/09/antoine-semenyo-liverpool-racism-bournemouth/
-
-**October 2027 is 'realistic target' for launch of NBA's Europe league**\
-`The new league would attract conglomerate-level, uber-rich investors for new and existing franchises in Europe’s major cities.`\
-https://nytimes.com/athletic/6875957/2025/12/09/nba-europe-expansion-2027/
-
-**Phillies extend manager Rob Thomson through 2027 season**\
-`The extension cements the Phillies' faith in Thomson, who has led the team to back-to-back NL East titles but also two straight NLDS exits.`\
-https://nytimes.com/athletic/6875892/2025/12/09/rob-thomson-phillies-contract-extension-2027/
 
