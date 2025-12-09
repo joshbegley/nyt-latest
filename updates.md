@@ -1,3 +1,15 @@
+**What rookies Shedeur Sanders, Cam Ward, Tyler Shough showed us: Week 14 film review**\
+`The three rookie QBs displayed upside on Sunday. Also, the Jaguars and Texans' strengths in the AFC South race.`\
+https://nytimes.com/athletic/6874034/2025/12/09/shedeur-sanders-cam-ward-tyler-shough-film-review/
+
+**Are the Blackhawks better than the numbers suggest? A public vs. private analytics debate**\
+`Blackhawks coach Jeff Blashill prefers internal analytics to public models. Is he justified, and where are the weaknesses in each approach?`\
+https://nytimes.com/athletic/6871714/2025/12/09/blackhawks-nhl-analytics-blashill/
+
+**Defensive-led wins look to be Eagles' only hope for 2025**\
+`One silver lining to Philadelphia's loss Monday night was the performance of the defense, which is key to the team's ability to contend.`\
+https://nytimes.com/athletic/6874383/2025/12/09/eagles-defense-only-hope-2025/
+
 **How Much Could China Gain From Access to Powerful Nvidia Chips?**\
 `President Trump said Nvidia can export some chips. But years of U.S. restrictions have propelled China to make everything it needs for advanced A.I.`\
 https://nytimes.com/2025/12/09/business/china-gains-trump-nvidia-chips.html
