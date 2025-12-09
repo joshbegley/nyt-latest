@@ -1,3 +1,15 @@
+**Helmut Marko to leave Red Bull at end of the year**\
+`The 82-year-old Austrian has been an advisor to Red Bull Racing since it joined the F1 grid in 2005.`\
+https://nytimes.com/athletic/6875514/2025/12/09/helmut-marko-red-bull-exit/
+
+**Raul Malo, Lush-Voiced Frontman of the Mavericks, Dies at 60**\
+`As the group’s singer and principal songwriter, he brought an expansive, Latin-inflected sound that breathed new life into country music.`\
+https://nytimes.com/2025/12/09/arts/music/raul-malo-dead.html
+
+**Patrick Mahomes is benchable during the fantasy football playoffs. We're not joking**\
+`KC Joyner looks at strength-of-schedule and other metrics to analyze which QBs to start or sit in the fantasy playoffs. `\
+https://nytimes.com/athletic/6872421/2025/12/09/fantasy-football-playoffs-start-sit-qb-matchup-ratings-patrick-mahomes/
+
 **In reversal, Twins signal a desire for roster additions rather than a teardown**\
 `Uncertain about their direction a month ago, the Twins have received assurances from ownership they can try to compete in 2026`\
 https://nytimes.com/athletic/6875362/2025/12/09/twins-free-agent-signings-winter-meetings/
@@ -21,16 +33,4 @@ https://nytimes.com/2025/12/09/us/politics/trump-europe-decaying-weak-ukraine.ht
 **Frank Gehry’s Forgotten Masterpiece: His Own House in Santa Monica**\
 `Using hardware store materials, the architect turned a pink suburban bungalow into a Deconstructivist icon in the late 1970s.`\
 https://nytimes.com/2025/12/09/realestate/frank-gehry-house-santa-monica.html
-
-**Why Some Teenagers Are Against Australia’s Social Media Ban**\
-`Australia has imposed one of the world’s most comprehensive measures banning social media for children under 16. This is what several young Australian teens think about the ban, which takes effect on Wednesday.`\
-https://nytimes.com/video/world/australia/100000010564624/australia-social-media-ban-teens.html
-
-**FIFA President Infantino accused of ethics breaches relating to Trump**\
-`Advocacy group FairSquare has also requested an investigation into President Trump being awarded the inaugural FIFA Peace Prize last Friday.`\
-https://nytimes.com/athletic/6873068/2025/12/09/fifa-infantino-trump-peace-prize-complaint/
-
-**Macklin Celebrini at 100 games — and what might come next**\
-`One analyst said Celebrini is "built the same" as Sidney Crosby.`\
-https://nytimes.com/athletic/6873478/2025/12/09/macklin-celebrini-sharks-100-games/
 
