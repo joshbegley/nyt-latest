@@ -1,3 +1,11 @@
+**Judge Grants Request to Unseal Grand Jury Records in Maxwell Case**\
+`The ruling cited a law signed last month by President Trump requiring the Justice Department to release its files on Jeffrey Epstein and his longtime companion, Ghislaine Maxwell.`\
+https://nytimes.com/2025/12/09/nyregion/ghislaine-maxwell-epstein-grand-jury-unsealed.html
+
+**Fantasy football Week 15 drops: High hopes disappear for Jayden Daniels**\
+`Gary Davenport's final column of the season suggests dropping Jayden Daniels, Xavier Worthy and more players with once high expectations.`\
+https://nytimes.com/athletic/6875439/2025/12/09/fantasy-football-week-15-drops-jayden-daniels/
+
 **Broncos' massive matchup with Packers has big playoff implications at stake**\
 `The Broncos can't clinch the AFC West in Week 15, but they could boost their odds of capturing No. 1 seed with win vs. Green Bay.`\
 https://nytimes.com/athletic/6875302/2025/12/09/broncos-playoff-implications-packers/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6875256/2025/12/09/alysson-aston-villa-transfer-new
 **Tottenham add Tel to Champions League squad as Solanke replacement**\
 `Solanke is recovering from ankle surgery he underwent in October.`\
 https://nytimes.com/athletic/6875469/2025/12/09/mathys-tel-tottenham-champions-league-squad/
-
-**Canadiens weekly notebook: Favourable matchups, Gallagher and the momentum line**\
-`Also, are the Canadiens transitioning from a man-on-man defensive system back to a hybrid system?`\
-https://nytimes.com/athletic/6874853/2025/12/09/canadiens-schedule-brendan-gallagher/
-
-**Trump Calls Europe ‘Decaying’ and Suggests ‘Size Will Win’ in Ukraine War**\
-`President Trump’s comments deepened his rift with mainstream European leaders over defense and Ukraine policy.`\
-https://nytimes.com/2025/12/09/us/politics/trump-europe-decaying-weak-ukraine.html
 
