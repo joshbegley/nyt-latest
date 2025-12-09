@@ -1,3 +1,15 @@
+**Jeremy O. Harris Is Released From Custody in Japan**\
+`The Tony-nominated playwright was arrested last month on suspicion of attempted drug smuggling. He was released on Monday, Japanese officials said.`\
+https://nytimes.com/2025/12/09/theater/jeremy-harris-japan-released.html
+
+**Derik Queen's historic game, Dylan Harper's GW highlight great start for rookie class**\
+`Rookies Derik Queen and Dylan Harper showed out in a crunch-time battle of two star rookies in the making.`\
+https://nytimes.com/athletic/6874850/2025/12/09/derik-queens-historic-game-dylan-harpers-gw-highlight-great-start-for-rookie-class/
+
+**England’s Wood 'desperately disappointed' after being ruled out of Ashes tour with knee injury**\
+`The seamer's knee injury was picked up in the first Test in Perth and he missed the second Test as a result.`\
+https://nytimes.com/athletic/6874865/2025/12/09/england-mark-wood-ashes-out-injury/
+
 **England’s Mark Wood ruled out for rest of Ashes tour with knee injury**\
 `The seamer's knee injury was picked up in the first Test in Perth and he missed the second Test as a result.`\
 https://nytimes.com/athletic/6874865/2025/12/09/england-mark-wood-ashes-out-injury/
