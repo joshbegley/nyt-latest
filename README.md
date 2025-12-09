@@ -1,3 +1,7 @@
+**Somali Americans Are Carrying Proof of Citizenship Amid ICE Raids**\
+`In Minnesota, Somali Americans have been in fear since President Trump called them “garbage.” ICE raids across the state have led to over a dozen arrests, prompting many to carry their U.S. passports to protect against wrongful arrests.`\
+https://nytimes.com/video/us/100000010565397/somali-americans-citizenship-proof-ice-raids.html
+
 **A Rare Bright Spot for U.S. Solar: Subscriptions**\
 `The solar company Sunrun has managed to thrive despite President Trump’s crackdown on renewable energy, offering what it calls “energy as a service.”`\
 https://nytimes.com/2025/12/09/climate/solar-power-subscriptions-sunrun.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6876060/2025/12/09/nascar-trial-steve-phelps-charte
 **Scott Boras says Red Sox ownership has 'made it clear to us that they want to add'**\
 `For his part, chief baseball officer Craig Breslow said Monday that he does not feel inhibited by the payroll this offseason.`\
 https://nytimes.com/athletic/6875988/2025/12/09/boston-red-sox-ownership-scott-boras-comments/
-
-**French First Lady’s Insult Against Feminist Protesters Prompts Outcry**\
-`Brigitte Macron used a slur to criticize protesters who had interrupted a show by a French comedian accused of rape in 2021, in a case that was dismissed.`\
-https://nytimes.com/2025/12/09/world/europe/france-brigitte-macron-feminists-slur.html
 
