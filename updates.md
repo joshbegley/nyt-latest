@@ -1,3 +1,11 @@
+**Storm System Causes Flooding in the Pacific Northwest**\
+`The Snoqualmie River and Chehalis River flooded roads and neighborhoods in Washington after a storm system brought heavy rain to the Pacific Northwest.`\
+https://nytimes.com/video/weather/100000010576877/washington-river-flood.html
+
+**Jubilant Sykes, Celebrated Opera Singer, Is Stabbed to Death**\
+`After the police found the Grammy-nominated performer in his home with fatal wounds, his son was taken into custody, the authorities said.`\
+https://nytimes.com/2025/12/09/arts/music/jubilant-sykes-stabbing-death.html
+
 **Venezuela tries to prep for WBC amid uncertainty: 'We're not bad people'**\
 `“We’re good people. We’re noble. We’re humble people. Just let us be happy. That’s all,” said Venezuela manager Omar Lopez. `\
 https://nytimes.com/athletic/6876607/2025/12/09/venezuela-wbc-manager-omar-lopez-trump-visas/
