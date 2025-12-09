@@ -1,3 +1,15 @@
+**Tottenham add Tel to Champions League squad as Solanke replacement**\
+`Solanke is recovering from ankle surgery he underwent in October.`\
+https://nytimes.com/athletic/6875469/2025/12/09/mathys-tel-tottenham-champions-league-squad/
+
+**Canadiens weekly notebook: Favourable matchups, Gallagher and the momentum line**\
+`Also, are the Canadiens transitioning from a man-on-man defensive system back to a hybrid system?`\
+https://nytimes.com/athletic/6874853/2025/12/09/canadiens-schedule-brendan-gallagher/
+
+**Trump Calls Europe ‘Decaying’ and Suggests ‘Size Will Win’ in Ukraine War**\
+`President Trump’s comments deepened his rift with mainstream European leaders over defense and Ukraine policy.`\
+https://nytimes.com/2025/12/09/us/politics/trump-europe-decaying-weak-ukraine.html
+
 **Frank Gehry’s Forgotten Masterpiece: His Own House in Santa Monica**\
 `Using hardware store materials, the architect turned a pink suburban bungalow into a Deconstructivist icon in the late 1970s.`\
 https://nytimes.com/2025/12/09/realestate/frank-gehry-house-santa-monica.html

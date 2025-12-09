@@ -1,3 +1,15 @@
+**Tottenham add Tel to Champions League squad as Solanke replacement**\
+`Solanke is recovering from ankle surgery he underwent in October.`\
+https://nytimes.com/athletic/6875469/2025/12/09/mathys-tel-tottenham-champions-league-squad/
+
+**Canadiens weekly notebook: Favourable matchups, Gallagher and the momentum line**\
+`Also, are the Canadiens transitioning from a man-on-man defensive system back to a hybrid system?`\
+https://nytimes.com/athletic/6874853/2025/12/09/canadiens-schedule-brendan-gallagher/
+
+**Trump Calls Europe ‘Decaying’ and Suggests ‘Size Will Win’ in Ukraine War**\
+`President Trump’s comments deepened his rift with mainstream European leaders over defense and Ukraine policy.`\
+https://nytimes.com/2025/12/09/us/politics/trump-europe-decaying-weak-ukraine.html
+
 **Frank Gehry’s Forgotten Masterpiece: His Own House in Santa Monica**\
 `Using hardware store materials, the architect turned a pink suburban bungalow into a Deconstructivist icon in the late 1970s.`\
 https://nytimes.com/2025/12/09/realestate/frank-gehry-house-santa-monica.html
@@ -21,16 +33,4 @@ https://nytimes.com/2025/12/09/style/street-style-look-archival-garments.html
 **Iain Douglas-Hamilton, Elephant Expert and Protector, Dies**\
 `Born into a British aristocratic family, he turned his empathy and understanding of the world’s largest land mammals to the cause of saving them from poachers.`\
 https://nytimes.com/2025/12/09/obituaries/iain-douglas-hamilton-elephant-expert-and-protector-dies.html
-
-**PSG's Qatari owners to acquire Belgium second-tier club**\
-`QSI will complete a full acquisition of KAS Eupen and take full operational control of the club.`\
-https://nytimes.com/athletic/6875359/2025/12/09/psg-qsi-qatar-eupen-takeover/
-
-**Sherman: Nebraska is navigating offseason of gray areas, as last week's coaching changes show**\
-`Change in college football arrives fast and sometimes without warning in December. Last week put that on display.`\
-https://nytimes.com/athletic/6875314/2025/12/09/nebraska-football-coaching-changes-rob-aurich-geep-wade/
-
-**World Sevens Football's second edition showed new possibilities in women’s soccer culture**\
-`Without an example to follow, World Sevens Football continues to find new ways to have fun with soccer.`\
-https://nytimes.com/athletic/6874667/2025/12/09/world-sevens-football-new-possibilities-women-soccer/
 

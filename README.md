@@ -1,3 +1,11 @@
+**In reversal, Twins signal a desire for roster additions rather than a teardown**\
+`Uncertain about their direction a month ago, the Twins have received assurances from ownership they can try to compete in 2026`\
+https://nytimes.com/athletic/6875362/2025/12/09/twins-free-agent-signings-winter-meetings/
+
+**Villa exploring deal for Gremio winger Alysson**\
+`The 19-year-old made 31 appearances for Gremio during the 2025 season, scoring once and assisting twice.`\
+https://nytimes.com/athletic/6875256/2025/12/09/alysson-aston-villa-transfer-news/
+
 **Tottenham add Tel to Champions League squad as Solanke replacement**\
 `Solanke is recovering from ankle surgery he underwent in October.`\
 https://nytimes.com/athletic/6875469/2025/12/09/mathys-tel-tottenham-champions-league-squad/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6873068/2025/12/09/fifa-infantino-trump-peace-prize
 **Macklin Celebrini at 100 games — and what might come next**\
 `One analyst said Celebrini is "built the same" as Sidney Crosby.`\
 https://nytimes.com/athletic/6873478/2025/12/09/macklin-celebrini-sharks-100-games/
-
-**Beaded Gloves and Vintage Work Wear**\
-`A pair strolling through Tokyo were dressed in outfits that incorporated special and sentimental pieces.`\
-https://nytimes.com/2025/12/09/style/street-style-look-archival-garments.html
-
-**Iain Douglas-Hamilton, Elephant Expert and Protector, Dies**\
-`Born into a British aristocratic family, he turned his empathy and understanding of the world’s largest land mammals to the cause of saving them from poachers.`\
-https://nytimes.com/2025/12/09/obituaries/iain-douglas-hamilton-elephant-expert-and-protector-dies.html
 
