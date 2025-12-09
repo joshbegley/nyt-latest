@@ -1,9 +1,9 @@
-**Multiple Injuries Reported in Shooting at Kentucky State University, Officials Say**\
+**Injuries Reported in Shooting at Kentucky State University, Officials Say**\
 `The police said a suspect had been arrested after the shooting at the school in Frankfort, Ky.`\
 https://nytimes.com/2025/12/09/us/shooting-kentucky-state-university.html
 
-**Videos Played at Mangione Hearings Reveal New Details About His Arrest**\
-`Prosecutors showed body camera footage as they argued that some evidence collected when Luigi Mangione was arrested should be admitted at trial.`\
+**Items Seized From Mangione Included Bullets and Note to ‘Pluck Eyebrows’**\
+`Prosecutors showed body camera footage as they argued that some evidence the police said they collected from Luigi Mangione’s backpack when he was arrested should be admitted at trial.`\
 https://nytimes.com/2025/12/09/nyregion/luigi-mangione-hearing-video.html
 
 **Kathryn Garcia Expected to Be Named New Head of the Port Authority**\
