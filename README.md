@@ -1,3 +1,11 @@
+**Honduran Authorities Issue Arrest Warrant for Ex-President Pardoned by Trump**\
+`The country’s attorney general said he had issued an international arrest warrant for Juan Orlando Hernández.`\
+https://nytimes.com/2025/12/08/world/americas/honduras-hernandez-arrest-warrant.html
+
+**Top N.Y. Cannabis Official Resigns as Major Investigation Is Dropped**\
+`Gov. Kathy Hochul demanded the resignation of the head of New York’s Office of Cannabis Management following the withdrawal of a case against a Long Island-based company.`\
+https://nytimes.com/2025/12/08/nyregion/cannabis-regulators-omnium.html
+
 **Bill Daly says NHL players won’t play in Milan Olympics if ice isn’t safe**\
 `Daly acknowledged being blindsided last week that the International Ice Hockey Federation approved rink dimension smaller than NHL's.`\
 https://nytimes.com/athletic/6874299/2025/12/08/bill-daly-nhl-milan-olympics-rink/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6874341/2025/12/08/tigers-tarik-skubal-winter-meeti
 **With Teddy Bridgewater in stands, his high school team makes state title game**\
 `The Buccaneers QB coached Miami Northwestern to a state title in 2024. He watched as the team earned a return trip to the title game.`\
 https://nytimes.com/athletic/6874301/2025/12/08/teddy-bridgewater-miami-coach-northwest-high-school/
-
-**Dodger Details: Updates on Mookie Betts, the rotation, Tommy Edman and more**\
-`The back-to-back champs don't expect to be as aggressive this offseason, but there are subtle ways they can upgrade the roster. `\
-https://nytimes.com/athletic/6874167/2025/12/08/dodger-details-updates-on-mookie-betts-the-rotation-tommy-edman-and-more/
-
-**‘Marjorie Prime’ Review: A.I. Gave Her Back Her Husband. Was It Worth It?**\
-`June Squibb stars in the Broadway premiere of Jordan Harrison’s meditation on grief and the nature of human and artificial intelligence.`\
-https://nytimes.com/2025/12/08/theater/marjorie-prime-review-june-squibb.html
 
