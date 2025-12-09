@@ -1,3 +1,7 @@
+**E.P.A. Erases Mention of Humans Causing Climate Change From Some Web Pages**\
+`An E.P.A. site listing the causes of climate change no longer includes the main one: human activity.`\
+https://nytimes.com/2025/12/09/climate/epa-website-climate-change-causes.html
+
 **What does Kyle Schwarber's $150 million deal mean for free-agent slugger market?**\
 `Schwarber’s signing should clarify the picture for available power hitters such as Pete Alonso and Eugenio Suárez. `\
 https://nytimes.com/athletic/6876305/2025/12/09/kyle-schwarber-phillies-contract-mlb-free-agency/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6876448/2025/12/09/blue-jackets-vs-hurricanes-strea
 **How to watch Sabres vs. Oilers: Time, TV, streaming**\
 `Find out how to watch the Buffalo Sabres play the Edmonton Oilers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6876446/2025/12/09/sabres-vs-oilers-stream-how-to-watch-dec-9/
-
-**How to watch Stars vs. Jets: Time, TV, streaming**\
-`Find out how to watch the Dallas Stars play the Winnipeg Jets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6876444/2025/12/09/stars-vs-jets-stream-how-to-watch-dec-9/
 
