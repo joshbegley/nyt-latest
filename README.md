@@ -1,5 +1,9 @@
+**Iain Douglas-Hamilton, Elephant Expert and Protector, Dies**\
+`Born into a British aristocratic family, he turned his empathy and understanding of the world’s largest land mammals to the cause of saving them from poachers.`\
+https://nytimes.com/2025/12/09/obituaries/iain-douglas-hamilton-elephant-expert-and-protector-dies.html
+
 **PSG's Qatari owners to acquire Belgium second-tier club**\
-`QSI will complete a full acquisition of the Belgian Challenger League side and take full operational control of the club.`\
+`QSI will complete a full acquisition of KAS Eupen and take full operational control of the club.`\
 https://nytimes.com/athletic/6875359/2025/12/09/psg-qsi-qatar-eupen-takeover/
 
 **Sherman: Nebraska is navigating offseason of gray areas, as last week's coaching changes show**\
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6874723/2025/12/09/browns-shedeur-sanders-fernando-
 **Trump Administration Live Updates: President Calls European Nations ‘Weak’ and ‘Decaying’**\
 ``\
 https://nytimes.com/live/2025/12/09/us/trump-news
-
-**Molly Ringwald on Why ‘The Breakfast Club’ Is the Greatest Gen X Work of Art**\
-`The actress Molly Ringwald discusses one of the Gen X era’s most defining films, “The Breakfast Club,” in this excerpt from a T Magazine documentary about how the cohort once synonymous with slacking came to leave such an indelible impression on the culture.`\
-https://nytimes.com/video/t-magazine/100000010567988/molly-ringwald-on-why-the-breakfast-club-is-the-greatest-gen-x-work-of-art.html
 
