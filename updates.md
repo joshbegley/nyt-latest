@@ -1,3 +1,11 @@
+**Trump’s Bleak View of the World**\
+`Readers discuss the Trump administration’s National Security Strategy. Also: Hollywood and culture; fighting in a family.`\
+https://nytimes.com/2025/12/09/opinion/trump-national-security-strategy.html
+
+**Staying Informed and Not Overwhelmed in 2026**\
+`We are asking readers to share their tips for coping with the news.`\
+https://nytimes.com/2025/12/09/world/staying-informed-and-not-overwhelmed-in-2026.html
+
 **When the Phone Number in That TV Show Actually Connects Somewhere**\
 `Passing on the classic 555 number, “Stranger Things” is the latest show to offer Easter eggs for viewers who try to call a fictional character.`\
 https://nytimes.com/2025/12/09/arts/television/phone-number-stranger-things.html

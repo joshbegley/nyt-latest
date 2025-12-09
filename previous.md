@@ -1,3 +1,11 @@
+**Trump’s Bleak View of the World**\
+`Readers discuss the Trump administration’s National Security Strategy. Also: Hollywood and culture; fighting in a family.`\
+https://nytimes.com/2025/12/09/opinion/trump-national-security-strategy.html
+
+**Staying Informed and Not Overwhelmed in 2026**\
+`We are asking readers to share their tips for coping with the news.`\
+https://nytimes.com/2025/12/09/world/staying-informed-and-not-overwhelmed-in-2026.html
+
 **When the Phone Number in That TV Show Actually Connects Somewhere**\
 `Passing on the classic 555 number, “Stranger Things” is the latest show to offer Easter eggs for viewers who try to call a fictional character.`\
 https://nytimes.com/2025/12/09/arts/television/phone-number-stranger-things.html
@@ -25,12 +33,4 @@ https://nytimes.com/video/dining/100000010575710/pumpkin-maple-cornbread.html
 **Can the Right Compete With Bad Bunny’s Super Bowl Show?**\
 `Ross Douthat, a Times Opinion columnist and podcast host, sat down with Jon Caramanica and Joe Coscarelli to discuss how conservatives can compete on the biggest stages in mainstream entertainment.`\
 https://nytimes.com/video/podcasts/100000010575665/can-the-right-compete-with-bad-bunnys-super-bowl-show.html
-
-**Inside a Camp for Aspiring N.F.L. Kickers**\
-`A position once akin to a glorified ball boy is attracting better athletes, and specialized training and technological advances are pushing the limits. The Athletic’s Dan Robson visited a camp where free agents are learning those techniques in hopes of getting signed to an N.F.L. team.`\
-https://nytimes.com/video/the-athletic/100000010575641/inside-a-camp-for-aspiring-nfl-kickers.html
-
-**U.S. Men’s Soccer Players on Preparing for World Cup 2026**\
-`Matt Turner and Matt Freese discuss how the team is getting ready for the World Cup.`\
-https://nytimes.com/video/the-athletic/100000010575609/us-mens-soccer-players-on-preparing-for-world-cup-2026.html
 
