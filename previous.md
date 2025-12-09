@@ -1,36 +1,36 @@
-**Is Saturated Fat Actually Good for You?**\
-`Health experts have long recommended limiting it, but Robert F. Kennedy Jr. has signaled a shift in that advice.`\
-https://nytimes.com/2025/12/09/well/eat/saturated-fat-health-risks-dietary-guidelines.html
+**Jerry Jones not concerned about George Pickens' effort, appreciates his intensity**\
+`"Pickens brings everything to the table," the Cowboys owner said after the receiver received criticism after the loss to Detroit.`\
+https://nytimes.com/athletic/6875607/2025/12/09/cowboys-george-pickens-jerry-jones-support/
 
-**The Bounce: NBA Cup elimination is here. So are our Western Conference grades**\
-`Zach Harper catches you up on the latest NBA news in our newsletter.`\
-https://nytimes.com/athletic/6875582/2025/12/09/nba-cup-elimination-west-grades-kumingathe-bounce/
+**Tyrese Haliburton is excited to join 'NBA on Prime' as player contributor**\
+`Haliburton said he looks forward to joining players he’s admired while putting the game in a positive light.`\
+https://nytimes.com/athletic/6874158/2025/12/09/tyrese-haliburton-nba-amazon-prime-pacers/
 
-**MLS free agency big board: The best players available for 2026**\
-`With MLS Cup in the rear view, it's onto the offseason, and free agency is set to kick off with solid contributors up for grabs`\
-https://nytimes.com/athletic/6874551/2025/12/09/mls-free-agency-best-players-2026/
+**Drance: Why apathy growing around Canucks is more dangerous than the losing**\
+`The Canucks fell, once again, to the absolute nadir of the NHL standings with a 4-0 loss to Detroit.`\
+https://nytimes.com/athletic/6875015/2025/12/09/vancouver-canucks-standings-red-wings-loss/
 
-**The Beauty of Longevity **\
-`Wellness practices that amplify joy, bring peace and make these women glow — now and for decades to come.`\
-https://nytimes.com/paidpost/estee-lauder-re-nutriv/the-beauty-of-longevity.html
+**Ranking New Holiday Specials From ‘Family Guy,’ ‘Fraggle Rock’ and More**\
+`Top picks for seasonal TV cheer include concerts from Nashville and the Tabernacle Choir, along with a new “Nutcracker” on PBS.`\
+https://nytimes.com/2025/12/09/arts/television/christmas-holiday-specials-list.html
 
-**Judge Suggests Prosecutor on Comey and James Cases Should Resign as U.S. Attorney**\
-`Lindsey Halligan’s indictments against James B. Comey, the former F.B.I. director, and Letitia James, the attorney general of New York, were dismissed last month over Ms. Halligan’s appointment.`\
-https://nytimes.com/2025/12/09/us/politics/comey-james-halligan.html
+**A Weeknight-Dinner Personality Test**\
+`Whatever your answers, these five quick, delicious recipes have you covered.`\
+https://nytimes.com/2025/12/09/dining/a-weeknight-dinner-personality-test.html
 
-**Mining the ‘Manosphere’**\
-`To help us understand the growing problem of adolescent male rage, let’s start a conversation about the power of what we consume online.`\
-https://nytimes.com/2025/12/09/special-series/jack-thorne-adolescence-manosphere.html
+**Messi wins MLS MVP for second straight season, makes more league history**\
+`Lionel Messi's dominance since arriving in MLS is clear when you dig into the numbers, and he has more silverware to show for it`\
+https://nytimes.com/athletic/6875579/2025/12/09/lionel-messi-mls-mvp-inter-miami/
 
-**Judge Grants Request to Unseal Grand Jury Records in Maxwell Case**\
-`The ruling cited a law signed last month by President Trump requiring the Justice Department to release its files on Jeffrey Epstein and his longtime companion, Ghislaine Maxwell.`\
-https://nytimes.com/2025/12/09/nyregion/ghislaine-maxwell-epstein-grand-jury-unsealed.html
+**Arsenal add Jesus to Champions League squad after Dowman injury**\
+`Jesus was initially not part of Arsenal's squad for the league phase of the competition but has now replaced Max Dowman.`\
+https://nytimes.com/athletic/6875689/2025/12/09/gabriel-jesus-arsenal-dowman-champions-league/
 
-**Fantasy football Week 15 drops: High hopes disappear for Jayden Daniels**\
-`Gary Davenport's final column of the season suggests dropping Jayden Daniels, Xavier Worthy and more players with once high expectations.`\
-https://nytimes.com/athletic/6875439/2025/12/09/fantasy-football-week-15-drops-jayden-daniels/
+**Ole Miss getting 4 assistants who left for LSU back for Playoff: Source**\
+`Should Ole Miss beat Tulane in the first round, they would then meet Georgia in the Sugar Bowl in New Orleans for a rematch.`\
+https://nytimes.com/athletic/6875645/2025/12/09/ole-miss-lsu-assistant-coaches-playoff/
 
-**Broncos' massive matchup with Packers has big playoff implications at stake**\
-`The Broncos can't clinch the AFC West in Week 15, but they could boost their odds of capturing No. 1 seed with win vs. Green Bay.`\
-https://nytimes.com/athletic/6875302/2025/12/09/broncos-playoff-implications-packers/
+**Kristen Stewart on Men and Method Acting**\
+`“Have you ever heard of a female actor that was method?” Kristen Stewart, who recently posed that question on “The Interview,” has been acting since she was a child and became a star in her late teens in “Twilight.`\
+https://nytimes.com/video/podcasts/100000010575526/kristen-stewart-on-men-and-method-acting.html
 

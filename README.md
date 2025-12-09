@@ -1,3 +1,7 @@
+**NFL MVP odds: Drake Maye, Josh Allen on collision course in Week 15**\
+`Matthew Stafford and Drake Maye are the indisputable favorites for MVP. But with Josh Allen up next for Maye, could odds shift?`\
+https://nytimes.com/athletic/6873277/2025/12/09/nfl-mvp-odds-drake-maye-josh-allen/
+
 **Jerry Jones not concerned about George Pickens' effort, appreciates his intensity**\
 `"Pickens brings everything to the table," the Cowboys owner said after the receiver received criticism after the loss to Detroit.`\
 https://nytimes.com/athletic/6875607/2025/12/09/cowboys-george-pickens-jerry-jones-support/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6875689/2025/12/09/gabriel-jesus-arsenal-dowman-cha
 **Ole Miss getting 4 assistants who left for LSU back for Playoff: Source**\
 `Should Ole Miss beat Tulane in the first round, they would then meet Georgia in the Sugar Bowl in New Orleans for a rematch.`\
 https://nytimes.com/athletic/6875645/2025/12/09/ole-miss-lsu-assistant-coaches-playoff/
-
-**Kristen Stewart on Men and Method Acting**\
-`“Have you ever heard of a female actor that was method?” Kristen Stewart, who recently posed that question on “The Interview,” has been acting since she was a child and became a star in her late teens in “Twilight.`\
-https://nytimes.com/video/podcasts/100000010575526/kristen-stewart-on-men-and-method-acting.html
 
