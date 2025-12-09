@@ -1,3 +1,15 @@
+**The Nationals' big MacKenzie Gore decision: Trade him now or bank his stock will rise**\
+`ORLANDO — The Washington Nationals don’t feel any pressure to trade starting pitcher MacKenzie Gore, who has garnered a considerable amount of interest at this year&#8217;s Winter Meetings.`\
+https://nytimes.com/athletic/6875731/2025/12/09/washington-nationals-mackenzie-gore-trade-decision/
+
+**Chelsea hope Delap can return in four weeks after shoulder injury**\
+`Delap went off in the first-half of Saturday's 0-0 draw against Bournemouth holding his right shoulder.`\
+https://nytimes.com/athletic/6870186/2025/12/09/liam-delap-chelsea-injury-update/
+
+**Edwin Díaz signs three-year, $69 million deal with the Dodgers: Sources**\
+`The reigning world champs add the market's top closer to their bullpen. `\
+https://nytimes.com/athletic/6837757/2025/12/09/mlb-edwin-diaz-free-agency-signing-dodgers/
+
 **Justice Dept. Fights Roadblock to Pursuing Comey Case**\
 `The battle preceded the department’s looming decision over whether — and how — to bring new charges against James B. Comey.`\
 https://nytimes.com/2025/12/09/us/politics/evidence-comey-case.html
