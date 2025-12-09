@@ -1,3 +1,11 @@
+**England’s Mark Wood ruled out for rest of Ashes tour with knee injury**\
+`The seamer's knee injury was picked up in the first Test in Perth and he missed the second Test as a result.`\
+https://nytimes.com/athletic/6874865/2025/12/09/england-mark-wood-ashes-out-injury/
+
+**The New York Times in Print for Tuesday, Dec. 9, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/12/09/todays-new-york-times
+
 **'Monsters Funday Football': MNF alt-cast provides animated version of Eagles-Chargers game**\
 `Sulley had an MVP night and Mike Wazowski had clutch moments during ESPN's "Monsters Funday Football" broadcast of the Eagles-Chargers game.`\
 https://nytimes.com/athletic/6874722/2025/12/09/monsters-funday-football-movie-themed-alt-cast-mnf/
