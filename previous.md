@@ -1,36 +1,36 @@
-**The Nationals' big MacKenzie Gore decision: Trade him now or bank his stock will rise**\
-`ORLANDO — The Washington Nationals don’t feel any pressure to trade starting pitcher MacKenzie Gore, who has garnered a considerable amount of interest at this year&#8217;s Winter Meetings.`\
-https://nytimes.com/athletic/6875731/2025/12/09/washington-nationals-mackenzie-gore-trade-decision/
+**Chez Ma Tante’s Pancakes**\
+`At the Brooklyn restaurant Chez Ma Tante, the brunch pancakes come two to an order, big as dessert plates and almost burnt. Chef de cuisine Jake Leiber shares the recipe for their renowned pancakes.`\
+https://nytimes.com/video/dining/100000010575708/chez-ma-tantes-pancakes.html
 
-**Chelsea hope Delap can return in four weeks after shoulder injury**\
-`Delap went off in the first-half of Saturday's 0-0 draw against Bournemouth holding his right shoulder.`\
-https://nytimes.com/athletic/6870186/2025/12/09/liam-delap-chelsea-injury-update/
+**Restaurant Review: Popoca**\
+`Tejal Rao, a chief restaurant critic for The New York Times, visits Popoca in Oakland, a restaurant where the chef and owner, Anthony Salguero, puts Salvadoran ingredients and flavors in the spotlight.`\
+https://nytimes.com/video/dining/100000010575713/restaurant-review-popoca.html
 
-**Justice Dept. Fights Roadblock to Pursuing Comey Case**\
-`The battle preceded the department’s looming decision over whether — and how — to bring new charges against James B. Comey.`\
-https://nytimes.com/2025/12/09/us/politics/evidence-comey-case.html
+**Pumpkin Maple Cornbread**\
+`Sweetened with brown sugar and maple syrup, this cornbread is hardly typical and extremely versatile: It could be served as breakfast, a snack or even a light dessert.`\
+https://nytimes.com/video/dining/100000010575710/pumpkin-maple-cornbread.html
 
-**Edwin Díaz signs three-year, $69 million deal with the Dodgers: Sources**\
-`The reigning world champs add the market's top closer to their bullpen. `\
-https://nytimes.com/athletic/6837757/2025/12/09/mlb-edwin-diaz-free-agency-signing-dodgers/
+**Can the Right Compete With Bad Bunny’s Super Bowl Show?**\
+`Ross Douthat, a Times Opinion columnist and podcast host, sat down with Jon Caramanica and Joe Coscarelli to discuss how conservatives can compete on the biggest stages in mainstream entertainment.`\
+https://nytimes.com/video/podcasts/100000010575665/can-the-right-compete-with-bad-bunnys-super-bowl-show.html
 
-**Wall Street Is Shaking Off Fears of an A.I. Bubble. For Now.**\
-`The valuations of some artificial intelligence companies are approaching those of the dot-com boom. But investors worry that pulling money from today’s market risks future gains.`\
-https://nytimes.com/2025/12/09/business/wall-street-valuation-ai-bubble.html
+**Inside a Camp for Aspiring N.F.L. Kickers**\
+`A position once akin to a glorified ball boy is attracting better athletes, and specialized training and technological advances are pushing the limits. The Athletic’s Dan Robson visited a camp where free agents are learning those techniques in hopes of getting signed to an N.F.L. team.`\
+https://nytimes.com/video/the-athletic/100000010575641/inside-a-camp-for-aspiring-nfl-kickers.html
 
-**Why the A.I. Boom Is Unlike the Dot-Com Boom**\
-`Silicon Valley is again betting everything on a new technology. But the mania is not a reboot of the late-1990s frenzy.`\
-https://nytimes.com/2025/12/09/technology/ai-boom-unlike-dot-com-boom.html
+**U.S. Men’s Soccer Players on Preparing for World Cup 2026**\
+`Matt Turner and Matt Freese discuss how the team is getting ready for the World Cup.`\
+https://nytimes.com/video/the-athletic/100000010575609/us-mens-soccer-players-on-preparing-for-world-cup-2026.html
 
-**Illinois Governor Signs Bill Imposing New Limits on Immigration Enforcement**\
-`The measure restricts immigration arrests around state courthouses. Republicans have criticized the law and suggested it would face legal challenges.`\
-https://nytimes.com/2025/12/09/us/illinois-immigration-legislation-pritzker.html
+**‘Voodoo Rituals’ and Banana Wars: U.S. Military Action in Latin America**\
+`The United States’ history in the region includes several about-faces, contradictions and missteps.`\
+https://nytimes.com/2025/12/09/us/politics/military-history-latin-america-strikes.html
 
-**Kyle Schwarber to re-sign with Phillies on five-year, $150 million deal: Source**\
-`The Phillies are bringing back the slugger after a career year in which he led the NL with 56 homers and the majors with 132 RBIs. `\
-https://nytimes.com/athletic/6799636/2025/12/09/mlb-kyle-schwarber-free-agency-signing-phillies/
+**DéLana R.A. Dameron, Writer of the Black South, Dies at 40**\
+`An award-winning poet and writer of fiction, she moonlighted as a competitive horsewoman and owned a horse farm outside Columbia, S.C.`\
+https://nytimes.com/2025/12/09/books/delana-ra-dameron-dead.html
 
-**Spurs LGBTQ+ flag relocated after Slavia Prague request**\
-`The large flag is usually situated in the North-East corner of the Spurs ground and will instead be displayed in the South-West corner.`\
-https://nytimes.com/athletic/6875604/2025/12/09/tottenham-slavia-prague-lgbtq-pride-flag/
+**Reader survey: Submit your College Football Playoff bracket picks here!**\
+`Weigh in with your College Football Playoff predictions here to form our reader' consensus bracket.`\
+https://nytimes.com/athletic/6875880/2025/12/09/college-football-playoff-bracket-predictions-submit-your-picks-here/
 
