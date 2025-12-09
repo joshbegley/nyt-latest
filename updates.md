@@ -1,3 +1,11 @@
+**Who Will Win: Netflix or Paramount? We’ve Seen This Show Before.**\
+`The tug of war for Warner Bros. Discovery echoes an earlier clash of media titans.`\
+https://nytimes.com/2025/12/09/business/media/netflix-paramount-warner-bros-barry-diller.html
+
+**gws-wallpaper-interior-design-trends-trompe-loeil**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/wallpaper-interior-design-trends-trompe-loeil
+
 **The Briefing - Inter 0 Liverpool 1: Was this Slot's biggest win? Were big VAR calls right?**\
 `Analysing Tuesday's big Champions League tie at the San Siro as Liverpool earned a precious win`\
 https://nytimes.com/athletic/6875202/2025/12/09/liverpool-inter-champions-league-result-analysis/

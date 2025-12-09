@@ -1,3 +1,11 @@
+**Who Will Win: Netflix or Paramount? We’ve Seen This Show Before.**\
+`The tug of war for Warner Bros. Discovery echoes an earlier clash of media titans.`\
+https://nytimes.com/2025/12/09/business/media/netflix-paramount-warner-bros-barry-diller.html
+
+**gws-wallpaper-interior-design-trends-trompe-loeil**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/wallpaper-interior-design-trends-trompe-loeil
+
 **The Briefing - Inter 0 Liverpool 1: Was this Slot's biggest win? Were big VAR calls right?**\
 `Analysing Tuesday's big Champions League tie at the San Siro as Liverpool earned a precious win`\
 https://nytimes.com/athletic/6875202/2025/12/09/liverpool-inter-champions-league-result-analysis/
@@ -25,12 +33,4 @@ https://nytimes.com/2025/12/09/nyregion/aclu-lawsuit-justice-department-boat-str
 **1 Student Killed and 1 Injured in Kentucky State University Shooting, Officials Say**\
 `The police said a suspect had been arrested after the shooting in Frankfort, Ky. The second student was in critical but stable condition, a university spokesman said.`\
 https://nytimes.com/2025/12/09/us/shooting-kentucky-state-university.html
-
-**Items Seized From Mangione Included Bullets and Note to ‘Pluck Eyebrows’**\
-`Prosecutors showed body camera footage as they argued that some evidence the police said they collected from Luigi Mangione’s backpack when he was arrested should be admitted at trial.`\
-https://nytimes.com/2025/12/09/nyregion/luigi-mangione-hearing-video.html
-
-**Kathryn Garcia Is Named New Head of the Port Authority**\
-`Ms. Garcia, who ran for mayor of New York in 2021 after serving as the city’s sanitation commissioner, would succeed Rick Cotton, who is retiring.`\
-https://nytimes.com/2025/12/09/nyregion/kathryn-garcia-port-authority.html
 

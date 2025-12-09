@@ -1,3 +1,7 @@
+**USA Today’s Top Editor Departs, the Second in Less Than Two Years**\
+`Caren Bohan, who was named editor in chief in September 2024, will no longer continue in her role “effective immediately,” the company told employees.`\
+https://nytimes.com/2025/12/09/business/media/usa-today-top-editor-caren-bohan.html
+
 **Who Will Win: Netflix or Paramount? We’ve Seen This Show Before.**\
 `The tug of war for Warner Bros. Discovery echoes an earlier clash of media titans.`\
 https://nytimes.com/2025/12/09/business/media/netflix-paramount-warner-bros-barry-diller.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6875203/2025/12/09/atalanta-chelsea-score-result-re
 **Legal Groups Sue Justice Dept. for Secret Memo Justifying Boat Strikes**\
 `“The public deserves to know how the Trump administration has justified the outright murder of civilians as lawful,” the organizations said in their lawsuit.`\
 https://nytimes.com/2025/12/09/nyregion/aclu-lawsuit-justice-department-boat-strikes.html
-
-**1 Student Killed and 1 Injured in Kentucky State University Shooting, Officials Say**\
-`The police said a suspect had been arrested after the shooting in Frankfort, Ky. The second student was in critical but stable condition, a university spokesman said.`\
-https://nytimes.com/2025/12/09/us/shooting-kentucky-state-university.html
 
