@@ -1,6 +1,6 @@
 **These Looted Treasures Are Home. What Now?**\
 `Western museums are returning the Benin Bronzes to Nigeria, but a state-of-the-art museum to display them is still a long way off.`\
-https://nytimes.com/2025/12/09/arts/benin-bronzes-returned-nigeria.html
+https://nytimes.com/2025/12/09/arts/design/benin-bronzes-returned-nigeria.html
 
 **Nvidia Can Sell More Chips in China. Now What?**\
 `President Trump’s move fulfills a major goal of the chipmaker. But the move faces opposition in Washington — and uncertainty in Beijing.`\
