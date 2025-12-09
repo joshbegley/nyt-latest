@@ -1,3 +1,7 @@
+**The Supreme Court Considers Presidential Power**\
+`We dig into a case in front of the justices this week.`\
+https://nytimes.com/2025/12/09/briefing/the-supreme-court-considers-presidential-power.html
+
 **Shota Imanaga's return won't stop Cubs from adding another accomplished starting pitcher**\
 `Cubs president Jed Hoyer is optimistic that Imanaga can regain what made him a dazzling performer in 2024.`\
 https://nytimes.com/athletic/6874533/2025/12/09/cubs-starting-pitching-offseason-shota-imanaga-return/
