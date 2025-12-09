@@ -1,3 +1,7 @@
+**Phillies extend manager Rob Thomson through 2027 season**\
+`The extension cements the Phillies' faith in Thomson, who has led the team to back-to-back NL East titles but also two straight NLDS exits.`\
+https://nytimes.com/athletic/6875892/2025/12/09/rob-thomson-phillies-contract-extension-2027/
+
 **Trump’s Bleak View of the World**\
 `Readers discuss the Trump administration’s National Security Strategy. Also: Hollywood and culture; fighting in a family.`\
 https://nytimes.com/2025/12/09/opinion/trump-national-security-strategy.html
@@ -29,8 +33,4 @@ https://nytimes.com/video/dining/100000010575713/restaurant-review-popoca.html
 **Pumpkin Maple Cornbread**\
 `Sweetened with brown sugar and maple syrup, this cornbread is hardly typical and extremely versatile: It could be served as breakfast, a snack or even a light dessert.`\
 https://nytimes.com/video/dining/100000010575710/pumpkin-maple-cornbread.html
-
-**Can the Right Compete With Bad Bunny’s Super Bowl Show?**\
-`Ross Douthat, a Times Opinion columnist and podcast host, sat down with Jon Caramanica and Joe Coscarelli to discuss how conservatives can compete on the biggest stages in mainstream entertainment.`\
-https://nytimes.com/video/podcasts/100000010575665/can-the-right-compete-with-bad-bunnys-super-bowl-show.html
 
