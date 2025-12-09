@@ -1,3 +1,7 @@
+**Davies returns for Bayern after nine-month injury absence**\
+`The 25-year-old Canada international had been out of action since March after he tore the ACL in his right knee on international duty.`\
+https://nytimes.com/athletic/6876076/2025/12/09/alphonso-davies-bayern-return-canada-world-cup/
+
 **Fantasy football market share report: Chris Rodriguez has top-20 appeal in Week 15**\
 `Michael Salfino analyzes the touches and targets distribution for Week 14, and sees big things ahead for Chris Rodriguez and Woody Marks.`\
 https://nytimes.com/athletic/6876144/2025/12/09/fantasy-football-market-share-report-chris-rodriguez/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/09/arts/music/timbaland-ai-music-tata-taktumi-suno.h
 **My 5 Favorite Film Scores of 2025**\
 `Nine Inch Nails’ music for “Tron: Ares,” Nala Sinephro’s compositions for “The Smashing Machine” and more.`\
 https://nytimes.com/2025/12/09/arts/music/amplifier-newsletter-film-scores.html
-
-**University of Utah approves plan to partner with private equity firm**\
-`While other schools like Clemson and Kentucky have spun off similar entities, Utah would be the first to include outside investors.`\
-https://nytimes.com/athletic/6876083/2025/12/09/utah-private-equity-deal/
 

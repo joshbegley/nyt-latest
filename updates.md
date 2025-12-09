@@ -1,3 +1,19 @@
+**Fantasy football market share report: Chris Rodriguez has top-20 appeal in Week 15**\
+`Michael Salfino analyzes the touches and targets distribution for Week 14, and sees big things ahead for Chris Rodriguez and Woody Marks.`\
+https://nytimes.com/athletic/6876144/2025/12/09/fantasy-football-market-share-report-chris-rodriguez/
+
+**Australia’s Social Media Ban for People Under 16 Takes Effect**\
+`The measure is one of the most sweeping efforts in the world to safeguard children from the harms of the platforms.`\
+https://nytimes.com/2025/12/09/world/asia/australia-social-media-ban-under-16.html
+
+**What Scott Boras' comments about Cody Bellinger could mean for Yankees' offseason plans**\
+`Boras indicated nearly one-third of all MLB teams are interested in Bellinger. Will the Yankees be able to retain the free-agent outfielder?`\
+https://nytimes.com/athletic/6876011/2025/12/09/cody-bellinger-yankees-scott-boras/
+
+**Full Time: What we know about Trinity Rodman's status**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/6876204/2025/12/09/trinity-rodman-status-full-time/
+
 **Somali Americans Are Carrying Proof of Citizenship Amid ICE Raids**\
 `In Minnesota, Somali Americans have been in fear since President Trump called them “garbage.” ICE raids across the state have led to over a dozen arrests, prompting many to carry their U.S. passports to protect against wrongful arrests.`\
 https://nytimes.com/video/us/100000010565397/somali-americans-citizenship-proof-ice-raids.html
