@@ -1,3 +1,7 @@
+**TAFC: Xabi Alonso's fight to save Real Madrid job. Plus: Why World Cup will have hydration breaks**\
+`La Liga giants are lining up replacements for their head coach, but how have we reached this stage already?`\
+https://nytimes.com/athletic/6874993/2025/12/09/xabi-alonso-real-madrid-world-cup-hydration/
+
 **No one is in charge of CFB. That's why Notre Dame (and others) blame everyone but themselves**\
 `Everyone in college football wants a cookie, and they're throwing a tantrum until they get their dessert. `\
 https://nytimes.com/athletic/6873385/2025/12/09/notre-dame-blame-game-college-football-era/

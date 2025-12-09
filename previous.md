@@ -1,3 +1,7 @@
+**TAFC: Xabi Alonso's fight to save Real Madrid job. Plus: Why World Cup will have hydration breaks**\
+`La Liga giants are lining up replacements for their head coach, but how have we reached this stage already?`\
+https://nytimes.com/athletic/6874993/2025/12/09/xabi-alonso-real-madrid-world-cup-hydration/
+
 **No one is in charge of CFB. That's why Notre Dame (and others) blame everyone but themselves**\
 `Everyone in college football wants a cookie, and they're throwing a tantrum until they get their dessert. `\
 https://nytimes.com/athletic/6873385/2025/12/09/notre-dame-blame-game-college-football-era/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6873744/2025/12/09/notre-dame-cfp-snub-the-pulse/
 **What Ben Johnson saw on the Bears' final drive in their loss to the Packers**\
 `Helping Caleb Williams get off to better starts in games and shoring up the defense right before halftime are among Johnson's priorities.`\
 https://nytimes.com/athletic/6874088/2025/12/09/bears-ben-johnson-loss-to-packers/
-
-**Troy Aikman's guiding principle for 'Monday Night Football': 'I try to be fair'**\
-`In an interview, the longtime NFL analyst covered a range of topics, including analytics, Lane Kiffin and slinging the ball at age 59.`\
-https://nytimes.com/athletic/6869981/2025/12/09/troy-aikman-espn-mnfl-nfl-joe-buck/
 
