@@ -1,3 +1,7 @@
+**Angels focus on Tyler Skaggs' drug use as final week of testimony begins**\
+`Defense questions Skaggs' widow and mother, aiming to show that pitcher wasn’t using opiates solely to deal with pain.`\
+https://nytimes.com/athletic/6874582/2025/12/08/angels-tyler-skaggs-trial-drug-use/
+
 **Honduran Authorities Issue Arrest Warrant for Ex-President Pardoned by Trump**\
 `The country’s attorney general said he had issued an international arrest warrant for Juan Orlando Hernández.`\
 https://nytimes.com/2025/12/08/world/americas/honduras-hernandez-arrest-warrant.html
