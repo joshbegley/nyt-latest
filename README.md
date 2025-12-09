@@ -1,3 +1,15 @@
+**A Rare Bright Spot for U.S. Solar: Subscriptions**\
+`The solar company Sunrun has managed to thrive despite President Trump’s crackdown on renewable energy, offering what it calls “energy as a service.”`\
+https://nytimes.com/2025/12/09/climate/solar-power-subscriptions-sunrun.html
+
+**Timbaland’s Latest Protégée Is an A.I. Pop Singer**\
+`The producer dreamed up TaTa Taktumi and brought her to life with help from the software Suno. She’s arriving at a fraught moment for artificial intelligence in music.`\
+https://nytimes.com/2025/12/09/arts/music/timbaland-ai-music-tata-taktumi-suno.html
+
+**My 5 Favorite Film Scores of 2025**\
+`Nine Inch Nails’ music for “Tron: Ares,” Nala Sinephro’s compositions for “The Smashing Machine” and more.`\
+https://nytimes.com/2025/12/09/arts/music/amplifier-newsletter-film-scores.html
+
 **University of Utah approves plan to partner with private equity firm**\
 `While other schools like Clemson and Kentucky have spun off similar entities, Utah would be the first to include outside investors.`\
 https://nytimes.com/athletic/6876083/2025/12/09/utah-private-equity-deal/
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/6875988/2025/12/09/boston-red-sox-ownership-scott-b
 **French First Lady’s Insult Against Feminist Protesters Prompts Outcry**\
 `Brigitte Macron used a slur to criticize protesters who had interrupted a show by a French comedian accused of rape in 2021, in a case that was dismissed.`\
 https://nytimes.com/2025/12/09/world/europe/france-brigitte-macron-feminists-slur.html
-
-**LeBron James' agent shuts down idea of superstar leaving Lakers this season**\
-`Rich Paul told Max Kellerman on their podcast that James will finish the season as a Laker.`\
-https://nytimes.com/athletic/6875724/2025/12/09/lebron-james-lakers-future-rich-paul/
-
-**What Is Your Greatest Superstition?**\
-`First, we knocked on wood. Then we asked a visual artist, a designer, a psychic medium, a makeup artist and a conductor to each reveal their biggest superstitions.`\
-https://nytimes.com/2025/12/09/special-series/big-question-what-is-your-greatest-superstition.html
-
-**Colts sign Philip Rivers to practice squad: Sources**\
-`Rivers last played in the NFL during the 2020 season, when he led the Colts to the playoffs. `\
-https://nytimes.com/athletic/6875557/2025/12/09/colts-sign-philip-rivers-practice-squad/
 
