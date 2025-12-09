@@ -1,3 +1,23 @@
+**Multiple Injuries Reported in Shooting at Kentucky State University, Officials Say**\
+`The police said a suspect had been arrested after the shooting at the school in Frankfort, Ky.`\
+https://nytimes.com/2025/12/09/us/shooting-kentucky-state-university.html
+
+**Videos Played at Mangione Hearings Reveal New Details About His Arrest**\
+`Prosecutors showed body camera footage as they argued that some evidence collected when Luigi Mangione was arrested should be admitted at trial.`\
+https://nytimes.com/2025/12/09/nyregion/luigi-mangione-hearing-video.html
+
+**Kathryn Garcia Expected to Be Named New Head of the Port Authority**\
+`Ms. Garcia, who ran for mayor of New York in 2021 after serving as the city’s sanitation commissioner, would succeed Rick Cotton, who is retiring.`\
+https://nytimes.com/2025/12/09/nyregion/kathryn-garcia-port-authority.html
+
+**2025 college football awards tracker: Winners, finalists for most prestigious awards**\
+`It's time to give out awards to the best in the nation for the 2025 college football season.`\
+https://nytimes.com/athletic/6876205/2025/12/09/2025-college-football-awards-tracker-winners-finalists/
+
+**Trump and Europe’s Far Right**\
+`The American national security strategy echoes the language of far-right parties. But hardliners across the Atlantic seem unimpressed.`\
+https://nytimes.com/2025/12/09/world/trump-us-europe-australia-social-media.html
+
 **Players have long had agents. A former MLB GM now reps coaches and execs, an underserved group**\
 `To Scott Boras, MLB coaches “are the most underpaid coaching category in professional sports.” `\
 https://nytimes.com/athletic/6876423/2025/12/09/mlb-coaches-execs-agent-zack-scott/
