@@ -1,3 +1,7 @@
+**Shane Baz emerges as one target in the Astros' search for starting pitching: Sources**\
+`The 26-year-old Rays starter, a Houston native, has three more seasons of club control. `\
+https://nytimes.com/athletic/6874175/2025/12/08/shane-baz-astros-pitching-search/
+
 **Trump Offers Farmers $12 Billion Bailout From Trade War**\
 `President Trump promised struggling farmers billions in federal aid during a round-table meeting on Monday. This comes after China boycotted American farm products in retaliation for U.S. tariffs.`\
 https://nytimes.com/video/us/politics/100000010574568/trump-farmer-bailout-trade-war.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/08/briefing/justices-seem-poised-to-expand-trumps-po
 **Edwards told Strand Larsen 'keep your head down' after Wolves fans' sarcastic cheers**\
 `“I just said: ‘look, stay positive and don't react now’,” Edwards said following the reception to Strand Larsen being substituted.`\
 https://nytimes.com/athletic/6874089/2025/12/08/jorgen-strand-larsen-wolves-fans/
-
-**Democrats’ Proposal Would Halt Courthouse Arrests of Migrants**\
-`About 80 percent of immigrants have skipped appointments to avoid detention, risking their path to legal status, a New York congressman said.`\
-https://nytimes.com/2025/12/08/nyregion/immigration-legislation-dan-goldman.html
 
