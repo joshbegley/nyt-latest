@@ -1,3 +1,11 @@
+**'Monsters Funday Football': MNF alt-cast provides animated version of Eagles-Chargers game**\
+`Sulley had an MVP night and Mike Wazowski had clutch moments during ESPN's "Monsters Funday Football" broadcast of the Eagles-Chargers game.`\
+https://nytimes.com/athletic/6874722/2025/12/09/monsters-funday-football-movie-themed-alt-cast-mnf/
+
+**Chargers intercept Eagles' Jalen Hurts 4 times, including the clincher in OT: Takeaways**\
+`Los Angeles defensive back Tony Jefferson picks off a tipped ball near the goal line to seal the 22-19 victory in overtime.`\
+https://nytimes.com/athletic/6874100/2025/12/09/eagles-chargers-score-result-takeaways-mnf/
+
 **Chargers intercept Eagles' Jalen Hurts 4 times, including the clincher in OT: takeaways**\
 `Los Angeles defensive back Tony Jefferson picks off a tipped ball near the goal line to seal the 22-19 victory in overtime.`\
 https://nytimes.com/athletic/6874100/2025/12/09/eagles-chargers-score-result-takeaways-mnf/
