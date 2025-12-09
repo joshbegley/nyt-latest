@@ -10,7 +10,7 @@ https://nytimes.com/athletic/6876144/2025/12/09/fantasy-football-market-share-re
 `The measure is one of the most sweeping efforts in the world to safeguard children from the harms of the platforms.`\
 https://nytimes.com/2025/12/09/world/asia/australia-social-media-ban-under-16.html
 
-**What Scott Boras' comments about Cody Bellinger could mean for Yankees' offseason plans**\
+**Scott Boras says 8 teams are interested in Cody Bellinger. What does that mean for Yankees?**\
 `Boras indicated nearly one-third of all MLB teams are interested in Bellinger. Will the Yankees be able to retain the free-agent outfielder?`\
 https://nytimes.com/athletic/6876011/2025/12/09/cody-bellinger-yankees-scott-boras/
 
