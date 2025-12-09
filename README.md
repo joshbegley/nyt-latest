@@ -1,3 +1,11 @@
+**Edwin Díaz signs three-year deal with the Dodgers: Sources**\
+`The reigning world champs add the market's top closer to their bullpen. `\
+https://nytimes.com/athletic/6837757/2025/12/09/mlb-edwin-diaz-free-agency-signing-dodgers/
+
+**Wall Street Is Shaking Off Fears of an A.I. Bubble. For Now.**\
+`The valuations of some artificial intelligence companies are approaching those of the dot-com boom. But investors worry that pulling money from today’s market risks future gains.`\
+https://nytimes.com/2025/12/09/business/wall-street-valuation-ai-bubble.html
+
 **Why the A.I. Boom Is Unlike the Dot-Com Boom**\
 `Silicon Valley is again betting everything on a new technology. But the mania is not a reboot of the late-1990s frenzy.`\
 https://nytimes.com/2025/12/09/technology/ai-boom-unlike-dot-com-boom.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6875847/2025/12/09/sharks-vs-flyers-stream-how-to-w
 **How to watch Lightning vs. Canadiens: Time, TV, streaming**\
 `Find out how to watch the Tampa Bay Lightning play the Montreal Canadiens, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6875843/2025/12/09/lightning-vs-canadiens-stream-how-to-watch-dec-9/
-
-**How to watch Golden Knights vs. Islanders: Time, TV, streaming**\
-`Find out how to watch the Vegas Golden Knights play the New York Islanders, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6875841/2025/12/09/golden-knights-vs-islanders-stream-how-to-watch-dec-9/
-
-**How to watch Heat vs. Magic: Time, TV, streaming**\
-`Find out how to watch the Miami Heat play the Orlando Magic, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6875838/2025/12/09/heat-vs-magic-stream-how-to-watch-dec-9/
 
