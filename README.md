@@ -1,3 +1,7 @@
+**Toledo expected to hire Mercer's Mike Jacobs as head coach**\
+`Jacobs would replace Jason Candle, who left for UConn after 10 years leading the Rockets.`\
+https://nytimes.com/athletic/6878731/2025/12/10/toledo-football-mike-jacobs-mercer/
+
 **NFL Week 15 staff picks: Who should start panicking?**\
 `Several teams are in desperation mode heading into Week 15. Which ones might be at the end of the road?`\
 https://nytimes.com/athletic/6875812/2025/12/10/nfl-week-15-staff-picks-postseason-stakes/
@@ -25,8 +29,4 @@ https://nytimes.com/athletic/6876503/2025/12/10/tennis-martina-navratilova-donal
 **Buccaneers bring back pass rusher Jason Pierre-Paul**\
 `Tampa Bay signed the 36-year-old three-time Pro Bowl edge rusher to its practice squad, after a two-year hiatus from the NFL.`\
 https://nytimes.com/athletic/6878566/2025/12/10/buccaneers-jason-pierre-paul/
-
-**Judge Grants Request to Unseal Epstein Grand Jury Records**\
-`The ruling could lead to the most expansive look yet at the federal investigation of the convicted sex offender Jeffrey Epstein.`\
-https://nytimes.com/2025/12/10/nyregion/jeffrey-epstein-grand-jury-unsealed.html
 
