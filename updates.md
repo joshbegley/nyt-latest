@@ -1,3 +1,7 @@
+**What Could Thwart the G.O.P.’s Plan to Pick Up 5 House Seats in Texas**\
+`Republicans redid their voting map so they could flip those seats to help keep control of the U.S. House. But achieving that goal is far from guaranteed.`\
+https://nytimes.com/2025/12/10/us/texas-house-redistricting.html
+
 **NFL votes to invest, develop professional flag football leagues**\
 `Flag football ranks among the world’s fastest-growing sports with 20 million players worldwide, according to the NFL.`\
 https://nytimes.com/athletic/6879289/2025/12/10/nfl-votes-develop-flag-football/

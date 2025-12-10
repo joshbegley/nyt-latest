@@ -1,3 +1,7 @@
+**Agriculture Department Approves More Soda Bans For Food Stamps**\
+`Six more states have been approved for waivers that ban the purchase of some sugary foods and beverages using food stamps.`\
+https://nytimes.com/2025/12/10/us/politics/agriculture-department-approves-more-soda-bans-for-food-stamps.html
+
 **NFL votes to invest, develop professional flag football leagues**\
 `Flag football ranks among the world’s fastest-growing sports with 20 million players worldwide, according to the NFL.`\
 https://nytimes.com/athletic/6879289/2025/12/10/nfl-votes-develop-flag-football/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6879296/2025/12/10/ioc-comments-olympic-ice-surface
 **YouTube TV to launch a new sports package next year**\
 `Early in 2026, YouTube TV will launch 10 genre-specific packages, including a YouTube TV Sports Plan.`\
 https://nytimes.com/athletic/6879115/2025/12/10/youtube-tv-sports-plan-2026/
-
-**What Could Thwart the G.O.P.’s Plan to Pick Up 5 House Seats in Texas**\
-`Republicans redid their voting map so they could flip those seats to help keep control of the U.S. House. But achieving that goal is far from guaranteed.`\
-https://nytimes.com/2025/12/10/us/texas-house-redistricting.html
 
