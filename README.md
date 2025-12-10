@@ -1,3 +1,7 @@
+**Pogba partners with world’s first professional camel racing team**\
+`The 32-year-old Monaco midfielder, formerly of Manchester United and Juventus, has joined Al Haboob as an ambassador and shareholder.`\
+https://nytimes.com/athletic/6876675/2025/12/10/paul-pogba-camel-racing/
+
 **How to watch Vikings vs. Cowboys: Time, TV, streaming**\
 `Find out how to watch the Minnesota Vikings play the Dallas Cowboys, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6877901/2025/12/10/vikings-vs-cowboys-stream-how-to-watch-dec-14/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6876348/2025/12/10/liverpool-inter-salah-slot/
 **Late Night Doesn’t Want to Sweat at the Airport**\
 `Ronny Chieng dissed new fitness plans from the Trump administration for travelers in American airports: “We can’t even walk to the gate. They had to invent floors that walk for us.”`\
 https://nytimes.com/2025/12/10/arts/television/late-night-airport-pullup-sean-duffy-rfk-jr.html
-
-**The New York Times in Print for Wednesday, Dec. 10, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/12/10/todays-new-york-times
 
