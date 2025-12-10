@@ -1,3 +1,7 @@
+**Miami Elects First Democratic Mayor in Nearly 30 Years**\
+`Eileen Higgins, a former Miami-Dade County commissioner, will also be the city’s first female mayor and the first non-Hispanic mayor since the 1990s.`\
+https://nytimes.com/2025/12/09/us/miami-mayor-eileen-higgins-election.html
+
 **Trump Seeks to Reassure Americans That He Is Focused on Affordability**\
 `The president finds himself in an economic and political bind as his tariffs drive up costs.`\
 https://nytimes.com/2025/12/09/us/politics/trump-affordability-economy-pennsylvania.html

@@ -1,3 +1,7 @@
+**Zelensky Says Ukraine Could Be ‘Ready for Elections’**\
+`The Ukrainian president told reporters that a vote could be held in 60 to 90 days if the country received security protections from the United States.`\
+https://nytimes.com/2025/12/09/world/europe/zelensky-ukraine-russia-elections.html
+
 **Miami Elects First Democratic Mayor in Nearly 30 Years**\
 `Eileen Higgins, a former Miami-Dade County commissioner, will also be the city’s first female mayor and the first non-Hispanic mayor since the 1990s.`\
 https://nytimes.com/2025/12/09/us/miami-mayor-eileen-higgins-election.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/09/us/politics/trump-nvidia-ai-chips-china.html
 **Leafs' Bobby McMann suspended 1 game for high-sticking**\
 `This is the first time McMann, 29, has ever been suspended or fined by the NHL's Department of Player Safety.`\
 https://nytimes.com/athletic/6877010/2025/12/09/maple-leafs-bobby-mcmann-suspended-oliver-bjorkstrand/
-
-**How to watch Titans vs. 49ers: Time, TV, streaming**\
-`Find out how to watch the Tennessee Titans play the San Francisco 49ers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6877120/2025/12/09/titans-vs-49ers-stream-how-to-watch-dec-14/
 
