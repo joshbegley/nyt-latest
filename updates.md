@@ -1,3 +1,7 @@
+**Hoping to avoid drop in lottery, Twins get 'good outcome' with third pick**\
+`The Twins had the second-best odds of receiving the first pick in the draft via the lottery system.`\
+https://nytimes.com/athletic/6877969/2025/12/10/twins-mlb-draft-lottery-third-pick/
+
 **Why Markets Are Getting Anxious About the Fed**\
 `The central bank is widely expected to lower its benchmark lending rate on Wednesday. But investors are worried about what comes afterward.`\
 https://nytimes.com/2025/12/10/business/dealbook/fed-rates-powell-trump.html

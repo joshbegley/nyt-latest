@@ -2,9 +2,9 @@
 `The central bank is widely expected to lower its benchmark lending rate on Wednesday. But investors are worried about what comes afterward.`\
 https://nytimes.com/2025/12/10/business/dealbook/fed-rates-powell-trump.html
 
-**Hoping to avoid drop in draft lottery, Twins get 'good outcome' with third pick**\
+**Hoping to avoid drop in lottery, Twins get 'good outcome' with third pick**\
 `The Twins had the second-best odds of receiving the first pick in the draft via the lottery system.`\
-https://nytimes.com/athletic/6877969/2025/12/10/twins-mlb-draft-lottery-results-third-pick/
+https://nytimes.com/athletic/6877969/2025/12/10/twins-mlb-draft-lottery-third-pick/
 
 **For newest Lakers, NBA Cup just the appetizer for their bigger goals**\
 `Are Marcus Smart and Deandre Ayton driven by the NBA Cup? Maybe not, but being Lakers has motivated them to win.`\

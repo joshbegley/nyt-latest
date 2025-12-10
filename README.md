@@ -1,3 +1,27 @@
+**Pointed outbursts, cryptic commentary and geopolitics: How Salah uses the media**\
+`The Liverpool forward has one of the biggest followings in the world on social platforms - and has finally found his voice `\
+https://nytimes.com/athletic/6610109/2025/12/10/mohamed-salah-liverpool-social-media/
+
+**Mandel's Mailbag: The committee is center stage for this year's CFP outrage**\
+`Fans are mad again, but this time it isn't all about the format — its about the people running it.`\
+https://nytimes.com/athletic/6877349/2025/12/10/college-football-playoff-committee-notre-dame/
+
+**With Kyle Tucker's likely exit, Craig Counsell seems comfortable with youth movement**\
+`Even if there isn’t an impactful, established bat added to this roster, Counsell sees a pathway to a strong offense.`\
+https://nytimes.com/athletic/6877235/2025/12/10/chicago-cubs-youth-movement-craig-counsell/
+
+**Lowetide: Projecting the Oilers’ trade deadline plans and ideal targets**\
+`Oilers fans are focused on goaltending, but is the market there for a truly elite acquisition?`\
+https://nytimes.com/athletic/6874729/2025/12/10/edmonton-oilers-trades-targets-deadline-plans-2025/
+
+**Are We Losing Our Democracy?**\
+`While the United States is not yet close to a full-on autocracy, the New York Times editorial board outlines some of the warning signs of democratic erosion already taking place, thanks to the efforts of President Trump.`\
+https://nytimes.com/video/opinion/100000010539842/are-we-losing-our-democracy.html
+
+**Trump Administration Live Updates: In Speech on Economy, President Veers into Anti-Immigration Tirade**\
+``\
+https://nytimes.com/live/2025/12/10/us/trump-news
+
 **Why Markets Are Getting Anxious About the Fed**\
 `The central bank is widely expected to lower its benchmark lending rate on Wednesday. But investors are worried about what comes afterward.`\
 https://nytimes.com/2025/12/10/business/dealbook/fed-rates-powell-trump.html
@@ -9,28 +33,4 @@ https://nytimes.com/athletic/6877969/2025/12/10/twins-mlb-draft-lottery-third-pi
 **For newest Lakers, NBA Cup just the appetizer for their bigger goals**\
 `Are Marcus Smart and Deandre Ayton driven by the NBA Cup? Maybe not, but being Lakers has motivated them to win.`\
 https://nytimes.com/athletic/6877862/2025/12/10/lakers-nba-cup-preview/
-
-**In praise of Clarence Seedorf, one of football's most compelling pundits**\
-`The former Dutch international is not just an excellent analyst but a fine journalist - as Tuesday's interrogation of Arne Slot proved`\
-https://nytimes.com/athletic/6878196/2025/12/10/clarence-seedorf-arne-slot-tv-pundit/
-
-**Kyle Schwarber is back, but change is coming to Phillies' roster**\
-`The refrain has remained the same: The Phillies played good baseball in 2025. There will be no panicking. But change is coming. `\
-https://nytimes.com/athletic/6877055/2025/12/10/kyle-schwarber-phillies-roster-offseason/
-
-**The 2025 college football season was wilder than usual — here are 35 reasons why**\
-`The season started with a QB's dad fighting the QB's brother and included the banning of tortillas, among many other bizarre things.`\
-https://nytimes.com/athletic/6875495/2025/12/10/2025-college-football-season-kiffin-pavia-mendoza/
-
-**Stuart Scott's voice, rise through sportscasting headline new '30 for 30'**\
-`Scott burst onto the broadcasting scene with an authentic voice and style in the late 1980s after graduating from North Carolina.`\
-https://nytimes.com/athletic/6877637/2025/12/10/stuart-scott-30-for-30-documentary-espn/
-
-**Jets finally break up their top line: What we're seeing and why it might not help**\
-`Amid a dismal stretch of form, Scott Arniel is starting to make more drastic changes to his lineup. But how drastic, and to what avail?`\
-https://nytimes.com/athletic/6876827/2025/12/10/jets-top-line-scheifele-connor-arniel/
-
-**For 49ers rookie quarterback Kurtis Rourke, the 2026 season begins this week**\
-`Rourke and Brock Purdy are the only two 49ers passers guaranteed to be on the roster when next year's offseason program begins.`\
-https://nytimes.com/athletic/6876733/2025/12/10/kurtis-rourke-49ers-injury-practice/
 
