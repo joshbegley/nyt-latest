@@ -1,3 +1,11 @@
+**Democrats Call for Full Video of Boat Strike That Killed Survivors**\
+`Defense Secretary Pete Hegseth briefed congressional leaders on Tuesday about the monthslong military campaign targeting people suspected of being drug traffickers at sea.`\
+https://nytimes.com/2025/12/09/us/politics/hegseth-democrats-video-boat-strike.html
+
+**Trump Revives Attacks on Fed Members Before Interest Rate Decision**\
+`Without evidence, the president claimed that some Fed governors might have been appointed using an autopen.`\
+https://nytimes.com/2025/12/09/us/politics/trump-fed-powell-cook-biden.html
+
 **This Arkansas City Shows How to Slash Emissions and Save Money, Too**\
 `In the Ozarks, the growing college town of Fayetteville, Ark., is using clean energy to power city facilities and embracing nature-based solutions to climate threats.`\
 https://nytimes.com/2025/12/09/climate/fayetteville-arkansas-climate-plan.html
@@ -25,12 +33,4 @@ https://nytimes.com/2025/12/09/climate/utah-beaver-rescue.html
 **South Dakota Ranchers Are Burning the Prairie to Save It**\
 `A “green glacier” of trees is steadily taking over native grasslands. Landowners are banding together to treat the problem with fire.`\
 https://nytimes.com/2025/12/09/climate/prescribed-burns-wildfire-south-dakota.html
-
-**Not All Drilling in Texas Is About Oil**\
-`The state has become a hub of innovation for creating electricity using geothermal power. Just don’t call it renewable.`\
-https://nytimes.com/2025/12/09/climate/not-all-drilling-in-texas-is-about-oil.html
-
-**Vaughn Grissom trade opens roster spot, but Red Sox remain inactive at Winter Meetings**\
-`The Grissom trade opened a 40-man roster spot for another potential move.`\
-https://nytimes.com/athletic/6877207/2025/12/09/red-sox-vaughn-grissom-trade-inactive-winter-meetings/
 
