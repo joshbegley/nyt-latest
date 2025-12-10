@@ -1,3 +1,7 @@
+**Ex-Barcelona midfielder Iniesta launches re-branded NSN Cycling Team**\
+`Iniesta's company partnered with Swiss investment firm Stoneweg to take over the former Israel-Premier Tech team in November.`\
+https://nytimes.com/athletic/6878034/2025/12/10/andres-iniesta-nsn-cycling-team/
+
 **Map: 5.5-Magnitude Earthquake Shakes Colombia**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/12/10/world/americas/quake-tracker-colombia.html

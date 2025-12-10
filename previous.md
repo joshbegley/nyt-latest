@@ -1,3 +1,7 @@
+**Ex-Barcelona midfielder Iniesta launches re-branded NSN Cycling Team**\
+`Iniesta's company partnered with Swiss investment firm Stoneweg to take over the former Israel-Premier Tech team in November.`\
+https://nytimes.com/athletic/6878034/2025/12/10/andres-iniesta-nsn-cycling-team/
+
 **Map: 5.5-Magnitude Earthquake Shakes Colombia**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/12/10/world/americas/quake-tracker-colombia.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6877360/2025/12/10/jj-gabriel-manchester-united/
 **Pogba partners with world’s first professional camel racing team**\
 `The 32-year-old Monaco midfielder, formerly of Manchester United and Juventus, has joined Al Haboob as an ambassador and shareholder.`\
 https://nytimes.com/athletic/6876675/2025/12/10/paul-pogba-camel-racing/
-
-**How to watch Vikings vs. Cowboys: Time, TV, streaming**\
-`Find out how to watch the Minnesota Vikings play the Dallas Cowboys, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6877901/2025/12/10/vikings-vs-cowboys-stream-how-to-watch-dec-14/
 
