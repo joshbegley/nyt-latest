@@ -1,9 +1,13 @@
+**Stephen Downing, Police Officer Who Wrote for TV, Dies at 87**\
+`While serving in the L.A.P.D., he began delivering scripts for series like “Dragnet” and “Adam-12.” After retiring, he was a showrunner for “MacGyver.”`\
+https://nytimes.com/2025/12/10/arts/television/stephen-downing-dead.html
+
 **$2 Billion in Pentagon Funds Said to Go to Anti-Immigrant Operations**\
 `Democratic lawmakers said in a report that shifting Defense Department funding to support the Trump administration’s immigration agenda has hurt military readiness.`\
 https://nytimes.com/2025/12/10/us/politics/defense-department-funds-immigration.html
 
-**The Briefing: Brugge 0 Arsenal 3 - How good was Madueke's finish? Gyokeres missed chance? Jesus' return?**\
-`We break down the talking points as Arsenal stay perfect in the Champions League with victory in Belgium.`\
+**The Briefing: Brugge 0 Arsenal 3 - How good was Madueke's finish? Did Gyokeres and the returning Jesus impress?**\
+`We break down the talking points as Arsenal stay perfect in the Champions League with victory in Belgium`\
 https://nytimes.com/athletic/6875452/2025/12/10/madueke-arsenal-goal-champions-league/
 
 **Blue Jays Winter Meetings notes: Bullpen options, 2026 shortstop and a Rule 5 selection**\
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/10/us/politics/emil-bove-trump-rally.html
 **In a Tumultuous Era, Global Alliances and Practices Are Upended**\
 `While President Trump has made positive moves, panelists on a DealBook task force pointed to Ukraine, Venezuela and, especially, China as serious missteps.`\
 https://nytimes.com/2025/12/10/business/dealbook/global-leadership-task-force.html
-
-**For Business Leaders, It’s the Personal Connections That Keep Them Going**\
-`Executives on a DealBook Summit task force panel said fear was not the way to build teams capable of navigating difficult times.`\
-https://nytimes.com/2025/12/10/business/dealbook/business-executives-leadership-task-force.html
 
