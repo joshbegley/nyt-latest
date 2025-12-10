@@ -1,3 +1,7 @@
+**Tennessee expected to hire Penn State DC Jim Knowles for same role**\
+`Knowles spent three years with the Buckeyes before joining James Franklin at Penn State.`\
+https://nytimes.com/athletic/6879735/2025/12/10/tennessee-penn-state-dc-jim-knowles-hiring/
+
 **A'ja Wilson after Time magazine honor: 'On my way' to becoming GOAT**\
 `Wilson addressed her status in basketball history, the state of WNBA collective bargaining negotiations and more.`\
 https://nytimes.com/athletic/6879236/2025/12/10/aja-wilson-time-athlete-of-year-wnba/
@@ -25,8 +29,4 @@ https://nytimes.com/interactive/2025/12/10/magazine/best-acting-performances-wes
 **What defines a league-leading management team? Win today AND tomorrow: MoneyCall**\
 `Read the cheat sheet of all of the biggest sports-business stories in The Athletic's free newsletter, MoneyCall`\
 https://nytimes.com/athletic/6879632/2025/12/10/okc-thunder-sam-presti-nba-front-office-moneycall/
-
-**U.S. Moves to Drop Charges in International Soccer Corruption Case**\
-`Hernán López, a former Fox executive, and an Argentine sports marketing company were convicted in 2023 of bribing officials to secure soccer broadcast rights.`\
-https://nytimes.com/2025/12/10/nyregion/soccer-corruption-charges-fox-employee.html
 
