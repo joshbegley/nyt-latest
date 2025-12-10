@@ -1,3 +1,11 @@
+**Tennessee expected to hire Penn State DC Jim Knowles for same role**\
+`Knowles spent three years with the Buckeyes before joining James Franklin at Penn State.`\
+https://nytimes.com/athletic/6879735/2025/12/10/tennessee-penn-state-dc-jim-knowles-hiring/
+
+**A'ja Wilson after Time magazine honor: 'On my way' to becoming GOAT**\
+`Wilson addressed her status in basketball history, the state of WNBA collective bargaining negotiations and more.`\
+https://nytimes.com/athletic/6879236/2025/12/10/aja-wilson-time-athlete-of-year-wnba/
+
 **Shedeur Sanders rookie card sells for $50,000, bears wrong jersey number**\
 `Sanders' most expensive card includes an odd error.`\
 https://nytimes.com/athletic/6879512/2025/12/10/sheduer-sanders-kaboom-card-record-sale/

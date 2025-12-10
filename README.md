@@ -1,3 +1,7 @@
+**Higher Education Plans for a Future Markedly Changed by A.I.**\
+`Leaders of colleges and universities on a panel at the DealBook Summit said other challenges they face include government pressure and preparing graduates for a new world.`\
+https://nytimes.com/2025/12/10/business/dealbook/higher-education-task-force.html
+
 **Tennessee expected to hire Penn State DC Jim Knowles for same role**\
 `Knowles spent three years with the Buckeyes before joining James Franklin at Penn State.`\
 https://nytimes.com/athletic/6879735/2025/12/10/tennessee-penn-state-dc-jim-knowles-hiring/
@@ -25,8 +29,4 @@ https://nytimes.com/2025/12/10/climate/gregg-phillips-fema.html
 **And the Winners of Our Extremely Specific Acting Awards Are...**\
 `Best Acting in a Helmet, Best Nervous Breakdown, Craziest Charm—the film performances so good Wesley Morris had to invent his own categories.`\
 https://nytimes.com/interactive/2025/12/10/magazine/best-acting-performances-wesley-morris.html
-
-**What defines a league-leading management team? Win today AND tomorrow: MoneyCall**\
-`Read the cheat sheet of all of the biggest sports-business stories in The Athletic's free newsletter, MoneyCall`\
-https://nytimes.com/athletic/6879632/2025/12/10/okc-thunder-sam-presti-nba-front-office-moneycall/
 
