@@ -1,5 +1,9 @@
+**NFL Week 15 confidence picks: Why Green Bay will beat Denver**\
+`KC Joyner picks every Week 15 NFL game straight-up and against the spread.`\
+https://nytimes.com/athletic/6878138/2025/12/10/nfl-week-15-confidence-picks-packers-broncos/
+
 **Olympic officials acknowledge hockey arena delays but say smaller rink 'exactly what it should be'**\
-`The IOC sports director said Wednesday that “everybody’s now aligned” on the rinks' dimensions, which came as a surprise to many last week.`\
+`The IOC sports director said Wednesday that "everybody's now aligned" on the rinks' dimensions, which came as a surprise to many last week.`\
 https://nytimes.com/athletic/6879296/2025/12/10/ioc-comments-olympic-ice-surface/
 
 **YouTube TV to launch a new sports package next year**\
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/10/business/beef-prices-steakhouses.html
 **Mets did not make an offer to Pete Alonso before he agreed to Orioles deal: Sources**\
 `The Mets held some interest in bringing Alonso back but were uncomfortable with matching the lengths of what he got.`\
 https://nytimes.com/athletic/6879283/2025/12/10/mlb-pete-alonso-mets-did-not-offer-contract/
-
-**Joe Buck to join National Baseball Hall of Fame as Ford C. Frick winner**\
-`Buck began his major-league broadcasting career with the St. Louis Cardinals in 1991 and quickly became a fixture on national games.`\
-https://nytimes.com/athletic/6879074/2025/12/10/joe-buck-ford-c-frick-award-baseball-hall-of-fame/
 

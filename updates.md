@@ -1,3 +1,7 @@
+**Olympic officials acknowledge hockey arena delays but say smaller rink 'exactly what it should be'**\
+`The IOC sports director said Wednesday that “everybody’s now aligned” on the rinks' dimensions, which came as a surprise to many last week.`\
+https://nytimes.com/athletic/6879296/2025/12/10/ioc-comments-olympic-ice-surface/
+
 **YouTube TV to launch a new sports package next year**\
 `Early in 2026, YouTube TV will launch 10 genre-specific packages, including a YouTube TV Sports Plan.`\
 https://nytimes.com/athletic/6879115/2025/12/10/youtube-tv-sports-plan-2026/

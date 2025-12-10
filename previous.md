@@ -1,3 +1,7 @@
+**Olympic officials acknowledge hockey arena delays but say smaller rink 'exactly what it should be'**\
+`The IOC sports director said Wednesday that “everybody’s now aligned” on the rinks' dimensions, which came as a surprise to many last week.`\
+https://nytimes.com/athletic/6879296/2025/12/10/ioc-comments-olympic-ice-surface/
+
 **YouTube TV to launch a new sports package next year**\
 `Early in 2026, YouTube TV will launch 10 genre-specific packages, including a YouTube TV Sports Plan.`\
 https://nytimes.com/athletic/6879115/2025/12/10/youtube-tv-sports-plan-2026/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6879283/2025/12/10/mlb-pete-alonso-mets-did-not-off
 **Joe Buck to join National Baseball Hall of Fame as Ford C. Frick winner**\
 `Buck began his major-league broadcasting career with the St. Louis Cardinals in 1991 and quickly became a fixture on national games.`\
 https://nytimes.com/athletic/6879074/2025/12/10/joe-buck-ford-c-frick-award-baseball-hall-of-fame/
-
-**When will Jayson Tatum return? 'It's all up to him' Joe Mazzulla says**\
-`With Tatum already back to playing one-on-one after tearing his right Achilles tendon in May, the anticipation for his return is building.`\
-https://nytimes.com/athletic/6879162/2025/12/10/jayson-tatum-return-joe-mazzulla/
 
