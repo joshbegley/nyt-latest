@@ -1,3 +1,11 @@
+**‘Rocky’ Statue to Move to Where It Started: Philadelphia’s Art Museum Steps**\
+`It’s a symbol of the city. But is it art?`\
+https://nytimes.com/2025/12/10/us/rocky-statue-philadelphia-art-museum-stallone.html
+
+**Man Utd and Wrexham in talks over pre-season friendly in 2026**\
+`Nothing has been agreed yet but the teams remain in discussions over a friendly as options are explored ahead of next season.`\
+https://nytimes.com/athletic/6879467/2025/12/10/manchester-united-wrexham-friendly-2026/
+
 **What I'm hearing about moves as MLS free agency begins**\
 `The start of MLS free agency hass sparked a flurry of activity around the league`\
 https://nytimes.com/athletic/6879167/2025/12/10/mls-free-agency-eneli-stroud-rsl/
@@ -25,12 +33,4 @@ https://nytimes.com/2025/12/10/dining/holiday-party-shrimp-tower.html
 **Youth Climate Activists Ask Montana Court to Block Some New Laws**\
 `The young plaintiffs, who won a major case over climate change policy in 2023, argue that legislators are illegally ignoring the effects of fossil fuels.`\
 https://nytimes.com/2025/12/10/climate/montana-youth-lawsuit-climate.html
-
-**Scoop City: Philip Rivers is really happening**\
-`The latest on a battle against Father Time, ranking all 14 likely playoff teams and Mike Sando shares the story of a mid-40s quarterback.`\
-https://nytimes.com/athletic/6879379/2025/12/10/philip-rivers-colts-legit-playoff-nfl-ranking/
-
-**Instant grades for college football's 2025-26 head-coaching hires**\
-`In college football, you never really know whether a coaching hire is going to work. But it's never too early to talk about fit.`\
-https://nytimes.com/athletic/6827060/2025/12/10/college-football-coaching-carousel-grades/
 
