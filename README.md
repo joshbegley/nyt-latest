@@ -1,3 +1,11 @@
+**Trade talks for Marlins starter Edward Cabrera heat up, with Orioles in the mix**\
+`Cabrera, 27, is under club control for three more seasons.`\
+https://nytimes.com/athletic/6877218/2025/12/09/marlins-edward-cabrera-trade-talks-orioles/
+
+**Spirit 'cautiously optimistic' about Trinity Rodman negotiations and working with NWSL**\
+`Spirit's new president of soccer operations says the current salary cap was "built for a different era of women's soccer."`\
+https://nytimes.com/athletic/6876984/2025/12/09/spirit-cautiously-optimistic-about-trinity-rodman-negotiations-and-working-with-nwsl/
+
 **After losing Edwin Díaz, pressure is on David Stearns and the Mets**\
 `Tuesday felt bad for a fan base that had grown fond of Díaz.`\
 https://nytimes.com/athletic/6877121/2025/12/09/edwin-diaz-pressure-on-david-stearns-mets/
@@ -25,12 +33,4 @@ https://nytimes.com/2025/12/09/health/fda-covid-vaccine-adult-death-claims.html
 **Trump Calls Europe ‘Decaying’ and ‘Weak’**\
 `President Trump criticized his European counterparts over their defense and Ukraine policies during an interview with Politico. The president also suggested that it was time for President Volodymyr Zelensky of Ukraine to compromise in the cease-fire talks.`\
 https://nytimes.com/video/us/politics/100000010577149/trump-europe-decaying-weak-ukraine.html
-
-**Zelensky Says Ukraine Could Be ‘Ready for Elections’**\
-`The Ukrainian president told reporters that a vote could be held in 60 to 90 days if the country received security protections from the United States.`\
-https://nytimes.com/2025/12/09/world/europe/zelensky-ukraine-russia-elections.html
-
-**Miami Elects First Democratic Mayor in Nearly 30 Years**\
-`Eileen Higgins, a former Miami-Dade County commissioner, will also be the city’s first female mayor and the first non-Hispanic mayor since the 1990s.`\
-https://nytimes.com/2025/12/09/us/miami-mayor-eileen-higgins-election.html
 
