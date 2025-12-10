@@ -1,3 +1,23 @@
+**U.S. Plans to Scrutinize Foreign Tourists’ Social Media History**\
+`Even visitors from countries like Britain and France, whose citizens don’t need visas, would have to share five years’ worth of social media.`\
+https://nytimes.com/2025/12/09/travel/social-media-tourists-visa-border-patrol.html
+
+**John Schneider reflects on World Series loss, Isiah Kinera-Falefa’s Game 7 lead**\
+`"I think I'll think about it until the day I leave this earth," John Schneider said of the Blue Jays' Game 7 World Series loss. `\
+https://nytimes.com/athletic/6876986/2025/12/09/john-schneider-world-series-isiah-kiner-falefas/
+
+**Special End-of-Year 2025 News Quiz for Students**\
+`See what you remember about this extraordinary year by taking our special 2025 news quiz.`\
+https://nytimes.com/interactive/2025/12/09/learning/09End-of-Year-2025-news-quiz-for-students.html
+
+**Prosecutors Release Body Camera Footage of Luigi Mangione’s Arrest**\
+`The footage shows officers confronting Luigi Mangione at a McDonald’s in Altoona, Pa. Lawyers for Mr. Mangione, who is accused of killing the former C.E.O. of UnitedHealthcare, argued that the evidence recovered at his arrest should not be admitted into trial, as it was obtained without a warrant.`\
+https://nytimes.com/video/us/100000010577332/luigi-mangione-arrest-bodycam-footage.html
+
+**Trump’s Nvidia Chip Deal Reverses Decades of Technology Restrictions**\
+`President Trump’s decision to allow Nvidia to sell its chips to China has raised questions about whether he is prioritizing short-term economic gain over long-term American security interests.`\
+https://nytimes.com/2025/12/09/us/politics/trump-nvidia-ai-chips-china.html
+
 **Leafs' Bobby McMann suspended 1 game for high-sticking**\
 `This is the first time McMann, 29, has ever been suspended or fined by the NHL's Department of Player Safety.`\
 https://nytimes.com/athletic/6877010/2025/12/09/maple-leafs-bobby-mcmann-suspended-oliver-bjorkstrand/

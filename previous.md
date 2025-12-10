@@ -1,3 +1,23 @@
+**U.S. Plans to Scrutinize Foreign Tourists’ Social Media History**\
+`Even visitors from countries like Britain and France, whose citizens don’t need visas, would have to share five years’ worth of social media.`\
+https://nytimes.com/2025/12/09/travel/social-media-tourists-visa-border-patrol.html
+
+**John Schneider reflects on World Series loss, Isiah Kinera-Falefa’s Game 7 lead**\
+`"I think I'll think about it until the day I leave this earth," John Schneider said of the Blue Jays' Game 7 World Series loss. `\
+https://nytimes.com/athletic/6876986/2025/12/09/john-schneider-world-series-isiah-kiner-falefas/
+
+**Special End-of-Year 2025 News Quiz for Students**\
+`See what you remember about this extraordinary year by taking our special 2025 news quiz.`\
+https://nytimes.com/interactive/2025/12/09/learning/09End-of-Year-2025-news-quiz-for-students.html
+
+**Prosecutors Release Body Camera Footage of Luigi Mangione’s Arrest**\
+`The footage shows officers confronting Luigi Mangione at a McDonald’s in Altoona, Pa. Lawyers for Mr. Mangione, who is accused of killing the former C.E.O. of UnitedHealthcare, argued that the evidence recovered at his arrest should not be admitted into trial, as it was obtained without a warrant.`\
+https://nytimes.com/video/us/100000010577332/luigi-mangione-arrest-bodycam-footage.html
+
+**Trump’s Nvidia Chip Deal Reverses Decades of Technology Restrictions**\
+`President Trump’s decision to allow Nvidia to sell its chips to China has raised questions about whether he is prioritizing short-term economic gain over long-term American security interests.`\
+https://nytimes.com/2025/12/09/us/politics/trump-nvidia-ai-chips-china.html
+
 **Leafs' Bobby McMann suspended 1 game for high-sticking**\
 `This is the first time McMann, 29, has ever been suspended or fined by the NHL's Department of Player Safety.`\
 https://nytimes.com/athletic/6877010/2025/12/09/maple-leafs-bobby-mcmann-suspended-oliver-bjorkstrand/
@@ -13,24 +33,4 @@ https://nytimes.com/athletic/6877110/2025/12/09/packers-vs-broncos-stream-how-to
 **How to watch Panthers vs. Saints: Time, TV, streaming**\
 `Find out how to watch the Carolina Panthers play the New Orleans Saints, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6877109/2025/12/09/panthers-vs-saints-stream-how-to-watch-dec-14/
-
-**How to watch Lions vs. Rams: Time, TV, streaming**\
-`Find out how to watch the Detroit Lions play the Los Angeles Rams, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6877102/2025/12/09/lions-vs-rams-stream-how-to-watch-dec-14/
-
-**How to watch Colts vs. Seahawks: Time, TV, streaming**\
-`Find out how to watch the Indianapolis Colts play the Seattle Seahawks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6877098/2025/12/09/colts-vs-seahawks-stream-how-to-watch-dec-14/
-
-**Seattle Plans Pride Match at Soccer World Cup, Infuriating Iran and Egypt**\
-`The two countries, which criminalize homosexuality and impose severe punishments for it, were picked to play on a day celebrating L.G.B.T.Q. communities.`\
-https://nytimes.com/2025/12/09/world/middleeast/iran-egypt-world-cup-seattle-pride.html
-
-**Why Philip Rivers' return to the NFL is a story every fan can get behind**\
-`We'll find out soon enough whether Philip Rivers can still pick apart NFL secondaries at age 44. Either way, the journey will be fun.`\
-https://nytimes.com/athletic/6876786/2025/12/09/philip-rivers-nfl-colts-sports-fans/
-
-**Indiana-Ohio State Big Ten title game draws record viewership**\
-`Fox said the Hoosiers vs. Buckeyes was the most-watched championship game of the weekend.`\
-https://nytimes.com/athletic/6876829/2025/12/09/big-ten-championship-viewers-indiana-ohio-state/
 
