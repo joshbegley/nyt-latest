@@ -1,3 +1,7 @@
+**Is it fair to say Tottenham did not play 'like a big team' against Slavia Prague?**\
+`Pundit Joe Hart was critical of Spurs' mentality against Slavia Prague. Did he have a point?`\
+https://nytimes.com/athletic/6877194/2025/12/10/tottenham-slavia-prague-joe-hart/
+
 **Liverpool show defiance and unity without Salah at Inter. What happens next?**\
 `This was a victory that 'means a lot' to head coach Arne Slot given the pressure on the club following the events of the past few days`\
 https://nytimes.com/athletic/6876348/2025/12/10/liverpool-inter-salah-slot/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/10/obituaries/rod-paige-dead.html
 **Aston Villa, Unai Emery and a remarkable home record**\
 `Arsenal. Manchester City (twice). Paris Saint-Germain. All have been beaten at Villa Park in 2025 — these are good times at the club`\
 https://nytimes.com/athletic/6872914/2025/12/10/aston-villa-unai-emery-home-record/
-
-**Manchester United's crucial 11 days before the WSL winter break**\
-`Manchester United have four games in 11 days, a litmus test for their season`\
-https://nytimes.com/athletic/6875051/2025/12/10/manchester-united-women-wsl-winter-break/
 

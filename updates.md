@@ -1,3 +1,7 @@
+**Is it fair to say Tottenham did not play 'like a big team' against Slavia Prague?**\
+`Pundit Joe Hart was critical of Spurs' mentality against Slavia Prague. Did he have a point?`\
+https://nytimes.com/athletic/6877194/2025/12/10/tottenham-slavia-prague-joe-hart/
+
 **Liverpool show defiance and unity without Salah at Inter. What happens next?**\
 `This was a victory that 'means a lot' to head coach Arne Slot given the pressure on the club following the events of the past few days`\
 https://nytimes.com/athletic/6876348/2025/12/10/liverpool-inter-salah-slot/
