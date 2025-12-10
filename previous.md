@@ -1,3 +1,7 @@
+**Sophie Kinsella, ‘Confessions of a Shopaholic’ Author, Dies at 55**\
+`Writing under a pseudonym, Madeleine Wickham cultivated an international following for her series centered on a young woman addicted to shopping.`\
+https://nytimes.com/2025/12/10/books/sophie-kinsella-dead-madeleine-wickham.html
+
 **Pointed outbursts, cryptic commentary and geopolitics: How Salah uses the media**\
 `The Liverpool forward has one of the biggest followings in the world on social platforms - and has finally found his voice `\
 https://nytimes.com/athletic/6610109/2025/12/10/mohamed-salah-liverpool-social-media/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/10/business/dealbook/fed-rates-powell-trump.html
 **Hoping to avoid drop in lottery, Twins get 'good outcome' with third pick**\
 `The Twins had the second-best odds of receiving the first pick in the draft via the lottery system.`\
 https://nytimes.com/athletic/6877969/2025/12/10/twins-mlb-draft-lottery-third-pick/
-
-**For newest Lakers, NBA Cup just the appetizer for their bigger goals**\
-`Are Marcus Smart and Deandre Ayton driven by the NBA Cup? Maybe not, but being Lakers has motivated them to win.`\
-https://nytimes.com/athletic/6877862/2025/12/10/lakers-nba-cup-preview/
 

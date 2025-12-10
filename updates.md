@@ -1,3 +1,7 @@
+**Sophie Kinsella, ‘Confessions of a Shopaholic’ Author, Dies at 55**\
+`Writing under a pseudonym, Madeleine Wickham cultivated an international following for her series centered on a young woman addicted to shopping.`\
+https://nytimes.com/2025/12/10/books/sophie-kinsella-dead-madeleine-wickham.html
+
 **Pointed outbursts, cryptic commentary and geopolitics: How Salah uses the media**\
 `The Liverpool forward has one of the biggest followings in the world on social platforms - and has finally found his voice `\
 https://nytimes.com/athletic/6610109/2025/12/10/mohamed-salah-liverpool-social-media/

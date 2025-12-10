@@ -1,3 +1,7 @@
+**Minor-league rule change experiment could eliminate hitter timeouts: Sources**\
+`MLB is considering a rule change to eliminate hitter timeouts entirely, or reduce their length, in three Low-A minor leagues next year. `\
+https://nytimes.com/athletic/6878320/2025/12/10/minor-leagues-hitter-timeouts-rule-change-mlb/
+
 **Sophie Kinsella, ‘Confessions of a Shopaholic’ Author, Dies at 55**\
 `Writing under a pseudonym, Madeleine Wickham cultivated an international following for her series centered on a young woman addicted to shopping.`\
 https://nytimes.com/2025/12/10/books/sophie-kinsella-dead-madeleine-wickham.html
@@ -29,8 +33,4 @@ https://nytimes.com/live/2025/12/10/us/trump-news
 **Why Markets Are Getting Anxious About the Fed**\
 `The central bank is widely expected to lower its benchmark lending rate on Wednesday. But investors are worried about what comes afterward.`\
 https://nytimes.com/2025/12/10/business/dealbook/fed-rates-powell-trump.html
-
-**Hoping to avoid drop in lottery, Twins get 'good outcome' with third pick**\
-`The Twins had the second-best odds of receiving the first pick in the draft via the lottery system.`\
-https://nytimes.com/athletic/6877969/2025/12/10/twins-mlb-draft-lottery-third-pick/
 
