@@ -1,9 +1,17 @@
-**Most starting XI changes, most substitutions: Does Maresca need to reconsider his rotation policy?**\
+**Pogba partners with world’s first professional camel racing team**\
+`The 32-year-old Monaco midfielder, formerly of Manchester United and Juventus, has joined Al Haboob as an ambassador and shareholder.`\
+https://nytimes.com/athletic/6876675/2025/12/10/paul-pogba-camel-racing/
+
+**How to watch Vikings vs. Cowboys: Time, TV, streaming**\
+`Find out how to watch the Minnesota Vikings play the Dallas Cowboys, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6877901/2025/12/10/vikings-vs-cowboys-stream-how-to-watch-dec-14/
+
+**Most starting-XI changes, most substitutions: Does Maresca need to reconsider his rotation policy?**\
 `No manager has tinkered more with their starting line-up - or made more in-game alterations - this season than Chesea's head coach`\
 https://nytimes.com/athletic/6877138/2025/12/10/chelsea-rotation-enzo-maresca-atalanta/
 
 **Machado Won’t Pick Up Peace Prize in Person, Nobel Director Says**\
-`The head of the Norwegian Nobel Institute told the state broadcaster that María Corina Machado will not attend Wednesday’s event in Oslo.`\
+`The head of the Norwegian Nobel Institute told the state broadcaster that María Corina Machado would not attend Wednesday’s event in Oslo.`\
 https://nytimes.com/2025/12/10/world/europe/machado-nobel-venezuela-ceremony.html
 
 **Word of the Day: circumspect**\
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6876348/2025/12/10/liverpool-inter-salah-slot/
 **Late Night Doesn’t Want to Sweat at the Airport**\
 `Ronny Chieng dissed new fitness plans from the Trump administration for travelers in American airports: “We can’t even walk to the gate. They had to invent floors that walk for us.”`\
 https://nytimes.com/2025/12/10/arts/television/late-night-airport-pullup-sean-duffy-rfk-jr.html
-
-**The New York Times in Print for Wednesday, Dec. 10, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/12/10/todays-new-york-times
-
-**Trump Picked This Fight With Maduro. He Can’t Back Down.**\
-`If the Trump administration allows Nicolás Maduro to endure, it would signal that a criminal dictatorship masquerading as a state can stare down the United States and win.`\
-https://nytimes.com/2025/12/10/opinion/trum-maduro-venezuela.html
 

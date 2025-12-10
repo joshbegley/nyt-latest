@@ -1,3 +1,19 @@
+**Pogba partners with world’s first professional camel racing team**\
+`The 32-year-old Monaco midfielder, formerly of Manchester United and Juventus, has joined Al Haboob as an ambassador and shareholder.`\
+https://nytimes.com/athletic/6876675/2025/12/10/paul-pogba-camel-racing/
+
+**How to watch Vikings vs. Cowboys: Time, TV, streaming**\
+`Find out how to watch the Minnesota Vikings play the Dallas Cowboys, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6877901/2025/12/10/vikings-vs-cowboys-stream-how-to-watch-dec-14/
+
+**Most starting-XI changes, most substitutions: Does Maresca need to reconsider his rotation policy?**\
+`No manager has tinkered more with their starting line-up - or made more in-game alterations - this season than Chesea's head coach`\
+https://nytimes.com/athletic/6877138/2025/12/10/chelsea-rotation-enzo-maresca-atalanta/
+
+**Machado Won’t Pick Up Peace Prize in Person, Nobel Director Says**\
+`The head of the Norwegian Nobel Institute told the state broadcaster that María Corina Machado would not attend Wednesday’s event in Oslo.`\
+https://nytimes.com/2025/12/10/world/europe/machado-nobel-venezuela-ceremony.html
+
 **Most starting XI changes, most substitutions: Does Maresca need to reconsider his rotation policy?**\
 `No manager has tinkered more with their starting line-up - or made more in-game alterations - this season than Chesea's head coach`\
 https://nytimes.com/athletic/6877138/2025/12/10/chelsea-rotation-enzo-maresca-atalanta/
