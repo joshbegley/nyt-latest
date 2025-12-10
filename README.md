@@ -1,3 +1,7 @@
+**Hoping to avoid drop in draft lottery, Twins get 'good outcome' with third pick**\
+`The Twins had the second-best odds of receiving the first pick in the draft via the lottery system.`\
+https://nytimes.com/athletic/6877969/2025/12/10/twins-mlb-draft-lottery-results-third-pick/
+
 **For newest Lakers, NBA Cup just the appetizer for their bigger goals**\
 `Are Marcus Smart and Deandre Ayton driven by the NBA Cup? Maybe not, but being Lakers has motivated them to win.`\
 https://nytimes.com/athletic/6877862/2025/12/10/lakers-nba-cup-preview/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6876733/2025/12/10/kurtis-rourke-49ers-injury-pract
 **Four thoughts on fallout from Bengals' impactful loss in Buffalo: Dehner Jr.**\
 `From Tee Higgins' concussion issues to the defense's failure to cover tight ends, Cincinnati has a lot to sort through as season fizzles.`\
 https://nytimes.com/athletic/6877339/2025/12/10/bengals-hendrickson-higgins-burton-ravens/
-
-**Why it matters that the Giants move up to 4th pick in the 2026 MLB Draft**\
-`The No. 4 pick is the Kyle Schwarber of picks, almost by definition.`\
-https://nytimes.com/athletic/6877404/2025/12/10/san-francisco-giants-move-up-fourth-pick-mlb-draft/
 
