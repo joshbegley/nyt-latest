@@ -1,3 +1,11 @@
+**Khmer Rouge-Era Land Mines Have a Big Role in Thailand-Cambodia Conflict**\
+`Thailand says ordnance replanted by Cambodia has injured or maimed more than a dozen of its soldiers. Cambodia rejects the accusation.`\
+https://nytimes.com/2025/12/10/world/asia/thailand-cambodia-war-mines.html
+
+**Egypt, Iran and an unforeseen row over a World Cup 'Pride Match'**\
+`Seattle's plans to celebrate its LGBTQ+ community coincide with a group-stage fixture between two countries that criminalize homosexuality`\
+https://nytimes.com/athletic/6877315/2025/12/10/egypt-iran-pride-match-world-cup/
+
 **The Pulse: MLB’s offseason finally clicks on**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6875698/2025/12/10/mlbs-offseason-finally-clicks-on-with-multiple-signings-plus-two-buzzer-beaters/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6877636/2025/12/10/flyers-christian-dvorak-sharks/
 **Last-second strategy cost Penguins dearly in shootout loss: Yohe's 10 observations**\
 `A brutal unforced error sent the game to overtime with just a fraction of a second remaining in regulation.`\
 https://nytimes.com/athletic/6876036/2025/12/10/penguins-muse-letang-karlsson-collapse-ducks/
-
-**Dante Fabbro's third-period turnover sends Blue Jackets to loss to Hurricanes**\
-`Nobody is going to out-Carolina Hurricane the Carolina Hurricanes, who beat Columbus 4-1. `\
-https://nytimes.com/athletic/6877606/2025/12/10/blue-jackets-lose-hurricanes-dante-fabbro-turnover/
-
-**Sabres shake off injuries and Connor McDavid to stop the Oilers**\
-`Buffalo survived key injuries, the officials and Edmonton's superstar to post a big win on the road.`\
-https://nytimes.com/athletic/6877826/2025/12/10/sabres-overcome-injuries-connor-mcdavid-win/
 
