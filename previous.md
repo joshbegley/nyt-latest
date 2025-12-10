@@ -1,3 +1,7 @@
+**JJ Gabriel, the 15-year-old Manchester United forward breaking records and creating a buzz**\
+`The teenager made his first appearance at Old Trafford on Tuesday and his performance showed why he is generating such excitement`\
+https://nytimes.com/athletic/6877360/2025/12/10/jj-gabriel-manchester-united/
+
 **Pogba partners with world’s first professional camel racing team**\
 `The 32-year-old Monaco midfielder, formerly of Manchester United and Juventus, has joined Al Haboob as an ambassador and shareholder.`\
 https://nytimes.com/athletic/6876675/2025/12/10/paul-pogba-camel-racing/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6877194/2025/12/10/tottenham-slavia-prague-joe-hart
 **Liverpool show defiance and unity without Salah at Inter. What happens next?**\
 `This was a victory that 'means a lot' to head coach Arne Slot, given the pressure on the club following the events of the past few days`\
 https://nytimes.com/athletic/6876348/2025/12/10/liverpool-inter-salah-slot/
-
-**Late Night Doesn’t Want to Sweat at the Airport**\
-`Ronny Chieng dissed new fitness plans from the Trump administration for travelers in American airports: “We can’t even walk to the gate. They had to invent floors that walk for us.”`\
-https://nytimes.com/2025/12/10/arts/television/late-night-airport-pullup-sean-duffy-rfk-jr.html
 

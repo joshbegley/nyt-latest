@@ -1,3 +1,7 @@
+**JJ Gabriel, the 15-year-old Manchester United forward breaking records and creating a buzz**\
+`The teenager made his first appearance at Old Trafford on Tuesday and his performance showed why he is generating such excitement`\
+https://nytimes.com/athletic/6877360/2025/12/10/jj-gabriel-manchester-united/
+
 **Is it fair to say Tottenham did not play 'like a big team' against Slavia Prague?**\
 `Pundit Joe Hart was critical of Spurs' mentality against their Czech visitors. Did he have a point?`\
 https://nytimes.com/athletic/6877194/2025/12/10/tottenham-slavia-prague-joe-hart/
