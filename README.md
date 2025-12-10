@@ -1,3 +1,7 @@
+**For Business Leaders, It’s the Personal Connections That Keep Them Going**\
+`Executives on a DealBook Summit task force panel said fear was not the way to build teams capable of navigating difficult times.`\
+https://nytimes.com/2025/12/10/business/dealbook/business-executives-leadership-task-force.html
+
 **Utah Conservation Groups Lead Beaver Relocation Effort**\
 `Conservation groups in Utah are relocating beavers who have been labeled as nuisances to new habitats. Beavers provide several benefits to the ecosystem such as building habitats and reducing runoff.`\
 https://nytimes.com/video/climate/100000010579586/utah-conservation-groups-lead-beaver-relocation-effort.html
@@ -25,8 +29,4 @@ https://nytimes.com/athletic/6879735/2025/12/10/tennessee-penn-state-dc-jim-know
 **A'ja Wilson after Time magazine honor: 'On my way' to becoming GOAT**\
 `Wilson addressed her status in basketball history, the state of WNBA collective bargaining negotiations and more.`\
 https://nytimes.com/athletic/6879236/2025/12/10/aja-wilson-time-athlete-of-year-wnba/
-
-**Shedeur Sanders rookie card sells for $50,000, bears wrong jersey number**\
-`Sanders' most expensive card includes an odd error.`\
-https://nytimes.com/athletic/6879512/2025/12/10/shedeur-sanders-kaboom-card-record-sale/
 
