@@ -1,3 +1,7 @@
+**Democrats Abandon Effort to Defang a Corruption Watchdog in New Jersey**\
+`The state comptroller has aggressively investigated fiscal misconduct. The Democratic leader of the State Senate had introduced legislation blocking the office from subpoenaing records.`\
+https://nytimes.com/2025/12/10/nyregion/democrats-new-jersey-corruption-legislation.html
+
 **Jayden Daniels out vs. Giants, Marcus Mariota to start for Commanders**\
 `Coach Dan Quinn made the announcement on Wednesday, but didn’t make any proclamation about Daniels’ status for the final three games.`\
 https://nytimes.com/athletic/6879125/2025/12/10/jayden-daniels-out-giants-marcus-mariota-starting/
