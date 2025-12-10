@@ -1,3 +1,7 @@
+**Islamic State Camps Pose a Dangerous Problem for Syria’s Leaders**\
+`The government faces a dilemma over what to do with civil-war-era prisons and detention camps that hold thousands of ISIS fighters and tens of thousands of their family members.`\
+https://nytimes.com/2025/12/10/world/middleeast/islamic-state-detention-camps-syria.html
+
 **Just how old is Philip Rivers? Compare him to the NFL's coaches and GMs**\
 `Rivers is older than 13 NFL head coaches, a handful of general managers and Hall of Famers, and very nearly one NFL franchise owner.`\
 https://nytimes.com/athletic/6876631/2025/12/10/philip-rivers-age-nfl-coaches-players/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/10/opinion/interfaith-family-holiday.html
 **Supreme Court Hears Death Penalty Case on Intellectual Disability**\
 `The case involves an Alabama man who challenged his death sentence after a murder conviction because of his varying results in a series of I.Q. tests.`\
 https://nytimes.com/2025/12/10/us/politics/supreme-court-death-penalty-disability.html
-
-**The Contradictions of Gavin Newsom**\
-`How the California governor became the 2028 Democratic front-runner.`\
-https://nytimes.com/2025/12/10/opinion/ezra-klein-podcast-gavin-newsom.html
 
