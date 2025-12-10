@@ -1,3 +1,15 @@
+**The Bounce: Who'll join the Knicks and Magic in the NBA Cup semifinals?**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/6878621/2025/12/10/the-bounce-wholl-join-the-knicks-and-magic-in-the-nba-cup-semifinals/
+
+**WTA Tour signs landmark Mercedes sponsorship deal as ATP commercial merger moves closer**\
+`The agreement is expected to bolster the women's tennis tour's commercial power and visibility.`\
+https://nytimes.com/athletic/6878411/2025/12/10/wta-tour-mercedes-sponsorship-tennis/
+
+**Late-game heroics: NHL-record 4 teams tie score in final 15 seconds**\
+`Only one of the four teams went on to actually win their game, but history was made nonetheless.`\
+https://nytimes.com/athletic/6878442/2025/12/10/nhl-history-score-final-15-seconds/
+
 **Race to Replace Powell at Fed Adds to Cacophony Around Rate Decision**\
 `The end of Jerome Powell’s term as Fed chair will give President Trump his biggest opportunity yet to reshape the central bank.`\
 https://nytimes.com/2025/12/10/business/fed-chair-powell-trump-replacement.html
