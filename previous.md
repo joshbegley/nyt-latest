@@ -1,3 +1,11 @@
+**Map: 5.5-Magnitude Earthquake Shakes Colombia**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/12/10/world/americas/quake-tracker-colombia.html
+
+**C.E.O. Resigns in Fallout Over Massive South Korean Data Breach**\
+`Coupang said Park Dae-jun would step down to accept “grave responsibility” for the leak that exposed information on nearly 34 million customer accounts.`\
+https://nytimes.com/2025/12/10/business/coupang-ceo-resignation-data-leak.html
+
 **Trump Chose to Not Use His Influence to Help Stefanik. Here’s Why.**\
 `With two allies, Elise Stefanik and Bruce Blakeman, running for governor of New York, President Trump is not making an endorsement — for now.`\
 https://nytimes.com/2025/12/10/nyregion/blakeman-trump-stefanik.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6876675/2025/12/10/paul-pogba-camel-racing/
 **How to watch Vikings vs. Cowboys: Time, TV, streaming**\
 `Find out how to watch the Minnesota Vikings play the Dallas Cowboys, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6877901/2025/12/10/vikings-vs-cowboys-stream-how-to-watch-dec-14/
-
-**Most starting XI changes, most substitutions: Does Maresca need to reconsider his rotation policy?**\
-`No Premier League boss has tinkered more with their starting line-up - or made as many in-game changes - this season than the Italian`\
-https://nytimes.com/athletic/6877138/2025/12/10/chelsea-rotation-enzo-maresca-atalanta/
-
-**Machado Won’t Pick Up Peace Prize in Person, Nobel Director Says**\
-`The head of the Norwegian Nobel Institute told the state broadcaster that María Corina Machado would not attend Wednesday’s event in Oslo.`\
-https://nytimes.com/2025/12/10/world/europe/machado-nobel-venezuela-ceremony.html
 

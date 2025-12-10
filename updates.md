@@ -1,3 +1,11 @@
+**Map: 5.5-Magnitude Earthquake Shakes Colombia**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/12/10/world/americas/quake-tracker-colombia.html
+
+**C.E.O. Resigns in Fallout Over Massive South Korean Data Breach**\
+`Coupang said Park Dae-jun would step down to accept “grave responsibility” for the leak that exposed information on nearly 34 million customer accounts.`\
+https://nytimes.com/2025/12/10/business/coupang-ceo-resignation-data-leak.html
+
 **Trump Chose to Not Use His Influence to Help Stefanik. Here’s Why.**\
 `With two allies, Elise Stefanik and Bruce Blakeman, running for governor of New York, President Trump is not making an endorsement — for now.`\
 https://nytimes.com/2025/12/10/nyregion/blakeman-trump-stefanik.html
