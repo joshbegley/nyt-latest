@@ -1,3 +1,15 @@
+**Trump Blames Economic Woes on Immigrants in Xenophobic Tirade**\
+`President Trump veered between demonizing immigrants and assuring a crowd of his supporters that life was better than ever under his administration.`\
+https://nytimes.com/2025/12/09/us/politics/trump-somalis-immigrants.html
+
+**Logan White announces retirement after decorated scouting career with Padres, Dodgers**\
+`White announced his retirement while being honored Tuesday as one of Major League Baseball's Scouts of the Year recipients.`\
+https://nytimes.com/athletic/6877504/2025/12/09/logan-white-announces-retirement-padres-dodgers/
+
+**Nothing can be ruled out with Dodgers, including another blockbuster move**\
+`As Mark Walter said after his team's latest World Series title: "(The front office) makes all the decisions. I just tell them yes."`\
+https://nytimes.com/athletic/6877459/2025/12/09/dodgers-mlb-winter-meetings-kyle-tucker-tarik-skubal/
+
 **Nothing can be ruled out with Dodgers, so is another blockbuster move possible?**\
 `As Mark Walter said after his team's latest World Series title: "(The front office) makes all the decisions. I just tell them yes."`\
 https://nytimes.com/athletic/6877459/2025/12/09/dodgers-mlb-winter-meetings-kyle-tucker-tarik-skubal/
