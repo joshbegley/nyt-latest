@@ -1,3 +1,11 @@
+**‘Rocky’ Statue to Move to Where It Started: Philadelphia’s Art Museum Steps**\
+`It’s a symbol of the city. But is it art?`\
+https://nytimes.com/2025/12/10/us/rocky-statue-philadelphia-art-museum-stallone.html
+
+**Man Utd and Wrexham in talks over pre-season friendly in 2026**\
+`Nothing has been agreed yet but the teams remain in discussions over a friendly as options are explored ahead of next season.`\
+https://nytimes.com/athletic/6879467/2025/12/10/manchester-united-wrexham-friendly-2026/
+
 **What I'm hearing about moves as MLS free agency begins**\
 `The start of MLS free agency hass sparked a flurry of activity around the league`\
 https://nytimes.com/athletic/6879167/2025/12/10/mls-free-agency-eneli-stroud-rsl/
