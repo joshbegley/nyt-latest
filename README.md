@@ -1,3 +1,15 @@
+**From the DealBook Summit: Industry Leaders Share Their Insights**\
+`Representing a variety of public and private sectors, guests from technology and finance to education and the artsparticipated in a lunchtime discussion designed to spark conversation around critical questions of the day.`\
+https://nytimes.com/2025/12/10/business/dealbook/groundbreakers-industry-leaders-insights.html
+
+**The End of an Era at One of America’s Most Famous Artist Retreats**\
+`After a quarter century, the Yaddo president Elaina Richardson will step down, having made her mark on the storied arts residency.`\
+https://nytimes.com/2025/12/10/books/elaina-richardson-yaddo.html
+
+**Bayer Leverkusen 2 Newcastle 2 - Gordon scores again, Newcastle let victory slip**\
+`Newcastle were on course for a vital win before Leverkusen struck late to deny Eddie Howe's men the three points`\
+https://nytimes.com/athletic/6875451/2025/12/10/bayer-leverkusen-2-newcastle-2-briefing/
+
 **Stephen Downing, Police Officer Who Wrote for TV, Dies at 87**\
 `While serving in the L.A.P.D., he began delivering scripts for series like “Dragnet” and “Adam-12.” After retiring, he was a showrunner for “MacGyver.”`\
 https://nytimes.com/2025/12/10/arts/television/stephen-downing-dead.html
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/6879915/2025/12/10/lakers-nba-cup-court-quarterfina
 **Michigan fires coach Sherrone Moore due to violation of university policy**\
 `Moore, 39, has coached at Michigan since 2018 in various roles. `\
 https://nytimes.com/athletic/6879864/2025/12/10/michigan-sherone-moore-coach-fire-policy/
-
-**Yankees make Rule 5 draft pick for first time in 14 years**\
-`Winquest, 25, had a 3.99 ERA in High A and Double A last season in the Cardinals organization. The Yankees view him as a reliever. `\
-https://nytimes.com/athletic/6879119/2025/12/10/yankees-rule-5-draft-cade-winquest/
-
-**Judge Emil Bove Faces Ethics Complaint for Attending Trump Rally**\
-`One of the president’s appeals-court nominees, a former lawyer for the president, was in the crowd at a raucous event in Mt. Pocono, Pa.`\
-https://nytimes.com/2025/12/10/us/politics/emil-bove-trump-rally.html
-
-**In a Tumultuous Era, Global Alliances and Practices Are Upended**\
-`While President Trump has made positive moves, panelists on a DealBook task force pointed to Ukraine, Venezuela and, especially, China as serious missteps.`\
-https://nytimes.com/2025/12/10/business/dealbook/global-leadership-task-force.html
 
