@@ -1,3 +1,15 @@
+**How to watch Minnesota vs. Purdue men's basketball: Time, TV, streaming**\
+`Find out how to watch the Minnesota Golden Gophers play the Purdue Boilermakers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6878897/2025/12/10/minnesota-vs-purdue-stream-how-to-watch-dec-10/
+
+**How to watch Delaware State vs. Maryland women's basketball: Time, TV, streaming**\
+`Find out how to watch the Delaware State Hornets play the Maryland Terrapins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6878895/2025/12/10/delaware-state-vs-maryland-stream-how-to-watch-dec-10/
+
+**How to watch Iowa vs. Iowa State women's basketball: Time, TV, streaming**\
+`Find out how to watch the Iowa Hawkeyes play the Iowa State Cyclones, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6878893/2025/12/10/iowa-vs-iowa-state-stream-how-to-watch-dec-10/
+
 **What Menopause Does to the Body**\
 `A head-to-toe guide to the many unexpected symptoms of the midlife transition.`\
 https://nytimes.com/2025/12/10/well/menopause-symptoms.html

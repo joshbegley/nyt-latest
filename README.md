@@ -1,3 +1,7 @@
+**Why the Canucks are flawed enough to contend for NHL's top draft lottery odds**\
+`Based on their underlying profile, the Canucks are poor-to-unremarkable in every phase of the game.`\
+https://nytimes.com/athletic/6876988/2025/12/10/canucks-stats-standings-nhl-draft-lottery-odds-flaws/
+
 **How to watch Minnesota vs. Purdue men's basketball: Time, TV, streaming**\
 `Find out how to watch the Minnesota Golden Gophers play the Purdue Boilermakers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6878897/2025/12/10/minnesota-vs-purdue-stream-how-to-watch-dec-10/
@@ -25,8 +29,4 @@ https://nytimes.com/athletic/6877728/2025/12/10/alyssa-naeher-re-signs-chicago-s
 **NASCAR CEO Jim France concludes testimony, plaintiffs rest case in antitrust trial**\
 `On Day 8 of the trial, France explained his reasoning for resisting permanent charters to teams as the plaintiffs wrapped up their case.`\
 https://nytimes.com/athletic/6878760/2025/12/10/nascar-trial-jim-france-michael-jordan-plaintiffs-case/
-
-**Archaeologists Find Oldest Evidence of Fire-Making**\
-`Neanderthals 400,000 years ago were striking flints to make fires, researchers have found.`\
-https://nytimes.com/2025/12/10/science/archaeology-humans-neanderthals-fire.html
 
