@@ -1,3 +1,11 @@
+**In praise of Clarence Seedorf, one of football's most compelling pundits**\
+`The former Dutch international is not just an excellent analyst but a fine journalist - as his interrogation of Arne Slot proved`\
+https://nytimes.com/athletic/6878196/2025/12/10/clarence-seedorf-arne-slot-tv-pundit/
+
+**Kyle Schwarber is back, but change is coming to Phillies' roster**\
+`The refrain has remained the same: The Phillies played good baseball in 2025. There will be no panicking. But change is coming. `\
+https://nytimes.com/athletic/6877055/2025/12/10/kyle-schwarber-phillies-roster-offseason/
+
 **The 2025 college football season was wilder than usual — here are 35 reasons why**\
 `The season started with a QB's dad fighting the QB's brother and included the banning of tortillas, among many other bizarre things.`\
 https://nytimes.com/athletic/6875495/2025/12/10/2025-college-football-season-kiffin-pavia-mendoza/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6877404/2025/12/10/san-francisco-giants-move-up-fou
 **Dennis Hildeby is NHL-ready. What does that mean for the Maple Leafs' future?**\
 `Hildeby's unexpected emergence offers flexibility to both coach Craig Berube and GM Brad Treliving later this season.`\
 https://nytimes.com/athletic/6875355/2025/12/10/maple-leafs-hildeby-trade-deadline/
-
-**For Drake Maye and Josh Allen, it could be a long run of baton passing**\
-`Could there be a changing of the guard between Patriots and Bills? Maybe, but it's certain the AFC East has gone from one dynamic QB to two.`\
-https://nytimes.com/athletic/6874718/2025/12/10/patriots-bills-drake-maye-josh-allen/
-
-**Packers' Jordan Love is an MVP candidate, but perhaps his toughest test awaits**\
-`Love sits third in BetMGM's NFL MVP odds behind Rams QB Matthew Stafford and Patriots QB Drake Maye.`\
-https://nytimes.com/athletic/6876532/2025/12/10/jordan-love-mvp-candidate-packers-broncos/
 
