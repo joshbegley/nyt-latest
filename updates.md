@@ -1,3 +1,7 @@
+**Is it fair to say Tottenham did not play 'like a big team' against Slavia Prague?**\
+`Pundit Joe Hart was critical of Spurs' mentality against their Czech visitors. Did he have a point?`\
+https://nytimes.com/athletic/6877194/2025/12/10/tottenham-slavia-prague-joe-hart/
+
 **Pogba partners with world’s first professional camel racing team**\
 `The 32-year-old Monaco midfielder, formerly of Manchester United and Juventus, has joined Al Haboob as an ambassador and shareholder.`\
 https://nytimes.com/athletic/6876675/2025/12/10/paul-pogba-camel-racing/
