@@ -1,3 +1,7 @@
+**What Democrats Can Learn from Biden’s Border Mistakes**\
+`As 2028 takes shape, Democrats will face a version of the same dilemma.`\
+https://nytimes.com/2025/12/10/us/politics/biden-immigration-border-mistakes-lessons.html
+
 **George Altman, Slugger in Negro Leagues, M.L.B. and Japan, Dies at 92**\
 `The rare player to compete in all three, he had an impressive career, becoming a three-time All-Star in the major leagues and later a fan favorite in Japan.`\
 https://nytimes.com/2025/12/10/sports/george-altman-dead.html

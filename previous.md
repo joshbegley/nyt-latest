@@ -1,3 +1,7 @@
+**What Democrats Can Learn from Biden’s Border Mistakes**\
+`As 2028 takes shape, Democrats will face a version of the same dilemma.`\
+https://nytimes.com/2025/12/10/us/politics/biden-immigration-border-mistakes-lessons.html
+
 **George Altman, Slugger in Negro Leagues, M.L.B. and Japan, Dies at 92**\
 `The rare player to compete in all three, he had an impressive career, becoming a three-time All-Star in the major leagues and later a fan favorite in Japan.`\
 https://nytimes.com/2025/12/10/sports/george-altman-dead.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6876659/2025/12/10/dodgers-mlb-winter-meetings-free
 **Why Kyle Schwarber returned to Philadelphia, pitching additions, Wheeler's rehab: Phillies notes**\
 `Schwarber's teammates and coaches appreciated his leadership, work ethic and character. He has embraced them in turn.`\
 https://nytimes.com/athletic/6879827/2025/12/10/phillies-notes-schwarber-returns-zack-wheeler-rehab/
-
-**Trump Administration Opens Applications for ‘Gold Card’ Immigrant Visas**\
-`President Trump has framed the program as a way for the government to raise billions of dollars and prioritize the admission of successful entrepreneurs and investors.`\
-https://nytimes.com/2025/12/10/us/politics/trump-gold-card.html
 
