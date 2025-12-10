@@ -1,3 +1,7 @@
+**Brian Cashman on Yankees' lack of moves at Winter Meetings: 'I haven’t accomplished anything'**\
+`Last year at this time, the Yankees were in a holding pattern as they waited on Juan Soto. That's not the case this winter.`\
+https://nytimes.com/athletic/6878794/2025/12/10/yankees-winter-meetings-transactions-brian-cashman/
+
 **Holiday Spending Shows Effects of an Uneven Economy**\
 `Discount and higher-end retailers have reported stronger sales from consumers who are hunting for the best deals and long-lasting items.`\
 https://nytimes.com/2025/12/10/business/holiday-spending-economy.html
