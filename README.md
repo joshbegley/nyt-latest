@@ -1,5 +1,5 @@
-**Trump Blames Economic Woes on Immigrants in Xenophobic Tirade**\
-`President Trump veered between demonizing immigrants and assuring a crowd of his supporters that life was better than ever under his administration.`\
+**Trump’s Speech on Economy Veers Into an Anti-Immigrant Tirade**\
+`President Trump vacillated between demonizing immigrants and assuring a crowd of his supporters that life was better than ever under his administration.`\
 https://nytimes.com/2025/12/09/us/politics/trump-somalis-immigrants.html
 
 **Logan White announces retirement after decorated scouting career with Padres, Dodgers**\
@@ -12,7 +12,7 @@ https://nytimes.com/athletic/6877459/2025/12/09/dodgers-mlb-winter-meetings-kyle
 
 **Blue Jays consider Opening Day return for Shane Bieber 'realistic'**\
 `It’s not clear if the ailment caused Bieber to pick up his player option and avoid the unknowns of free agency.`\
-https://nytimes.com/athletic/6877409/2025/12/09/blue-jays-shane-bieber-could-return-for-opening-day-after-forearm-fatigue-rehab/
+https://nytimes.com/athletic/6877409/2025/12/09/blue-jays-shane-bieber-could-return-for-opening-day-after-forearm-fatigue/
 
 **Third-Party Holding**\
 `Kareem Ayas makes a break for it.`\
