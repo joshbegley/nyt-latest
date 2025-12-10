@@ -1,3 +1,7 @@
+**Third-Party Holding**\
+`Kareem Ayas makes a break for it.`\
+https://nytimes.com/2025/12/09/crosswords/daily-puzzle-2025-12-10.html
+
 **What will the Cubs’ next moves mean for Matt Shaw?**\
 `After watching Pete Crow-Armstrong and Michael Busch take the next steps in their careers, the Cubs believe Shaw can make a similar leap.`\
 https://nytimes.com/athletic/6877416/2025/12/09/cubs-matt-shaw-next-moves-winter-meetings/

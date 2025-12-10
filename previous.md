@@ -1,3 +1,7 @@
+**Third-Party Holding**\
+`Kareem Ayas makes a break for it.`\
+https://nytimes.com/2025/12/09/crosswords/daily-puzzle-2025-12-10.html
+
 **What will the Cubs’ next moves mean for Matt Shaw?**\
 `After watching Pete Crow-Armstrong and Michael Busch take the next steps in their careers, the Cubs believe Shaw can make a similar leap.`\
 https://nytimes.com/athletic/6877416/2025/12/09/cubs-matt-shaw-next-moves-winter-meetings/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/09/us/politics/pentagon-boat-strike-survivors.html
 **Heat-Magic NBA Cup takeaways: Orlando rallies after slow start to advance**\
 `Orlando flipped the script Tuesday, hitting 15-of-32 3-pointers to overcome a slow start and advance.`\
 https://nytimes.com/athletic/6874219/2025/12/09/nba-cup-quarterfinals-takeaways-heat-magic-knicks-raptors/
-
-**Braves manager Walt Weiss discusses Ronald Acuña Jr., winter priorities, revamped staff**\
-`Weiss says he is encouraged by Acuña’s winter-league performance in Venezuela, especially his stolen-base rate.`\
-https://nytimes.com/athletic/6877191/2025/12/09/braves-winter-meetings-ronald-acuna/
 

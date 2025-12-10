@@ -14,7 +14,7 @@ https://nytimes.com/athletic/6877448/2025/12/09/byu-clemson-aj-dybantsa-robert-w
 `The abrupt decision to revise the plan added new uncertainty and possible delays into the government’s distribution of $3.9 billion in homelessness relief.`\
 https://nytimes.com/2025/12/09/us/politics/trump-homeless-aid-hud.html
 
-**Democrats Call for Full Video of Boat Strike That Killed Survivors**\
+**Democrats Say Hegseth Balked at Call for Full Video of Boat Strike**\
 `Defense Secretary Pete Hegseth briefed congressional leaders on Tuesday about the monthslong military campaign targeting people suspected of being drug traffickers at sea.`\
 https://nytimes.com/2025/12/09/us/politics/hegseth-democrats-video-boat-strike.html
 
