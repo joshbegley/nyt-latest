@@ -1,3 +1,15 @@
+**White Sox get some long-awaited draft luck, while Bears looking for breaks down the stretch**\
+`The pressure is on Chris Getz to make something of the White Sox's luck in the draft lottery. `\
+https://nytimes.com/athletic/6879425/2025/12/10/white-sox-draft-lottery-bears-playoffs/
+
+**U.S. Seizes Oil Tanker Off Venezuela’s Coast, Trump Says**\
+`President Trump announced that the United States had seized an oil tanker off the coast of Venezuela on Wednesday.`\
+https://nytimes.com/video/us/politics/100000010579829/venezuela-oil-tanker-seized.html
+
+**Donald McIntyre, 91, Dies; Starred in New Vision of Wagner’s Operas**\
+`As Wotan in Patrice Chéreau’s neo-Marxist staging of the “Ring” cycle, he was part of a celebrated, polarizing moment in opera history.`\
+https://nytimes.com/2025/12/10/arts/music/donald-mcintyre-dead.html
+
 **What's next for Dodgers after Winter Meetings? What we're hearing**\
 `The Kansas City Royals are among the teams interested in trading for Teoscar Hernández.`\
 https://nytimes.com/athletic/6876659/2025/12/10/dodgers-mlb-winter-meetings-free-agency/
@@ -21,12 +33,4 @@ https://nytimes.com/athletic/6879767/2025/12/10/twins-mlb-free-agency-first-base
 **Pacific Northwest Faces Some of Its Worst Flooding in Decades This Week**\
 `Tens of thousands of residents in Washington were poised to evacuate, as days of heavy rain sends rivers bursting over their banks.`\
 https://nytimes.com/2025/12/10/weather/washington-rivers-flood-evacuations.html
-
-**After Shutdown, Democrats Claim Credit for Funding They Opposed**\
-`Several Democrats who fought to steer federal money to their states and districts have boasted about their success even after voting against the bill that provided the funds.`\
-https://nytimes.com/2025/12/10/us/politics/shutdown-earmarks-democrats.html
-
-**Memo says NFL CBA talks with referees union 'have been unsuccessful'**\
-`EVP of Football Operations Troy Vincent said that talks to extend the current agreement, which expires May 31, “have been unsuccessful.”`\
-https://nytimes.com/athletic/6879706/2025/12/10/nfl-referees-officials-collective-bargaining/
 

@@ -1,3 +1,27 @@
+**What's next for Dodgers after Winter Meetings? What we're hearing**\
+`The Kansas City Royals are among the teams interested in trading for Teoscar Hernández.`\
+https://nytimes.com/athletic/6876659/2025/12/10/dodgers-mlb-winter-meetings-free-agency/
+
+**Why Kyle Schwarber returned to Philadelphia, pitching additions, Wheeler's rehab: Phillies notes**\
+`Schwarber's teammates and coaches appreciated his leadership, work ethic and character. He has embraced them in turn.`\
+https://nytimes.com/athletic/6879827/2025/12/10/phillies-notes-schwarber-returns-zack-wheeler-rehab/
+
+**Trump Administration Opens Applications for ‘Gold Card’ Immigrant Visas**\
+`President Trump has framed the program as a way for the government to raise billions of dollars and prioritize the admission of successful entrepreneurs and investors.`\
+https://nytimes.com/2025/12/10/us/politics/trump-gold-card.html
+
+**How to Fight Rising Utility Bills? Take Over the Company, Activists Say.**\
+`A grass-roots coalition is trying to push New York State to use eminent domain to buy out Central Hudson Gas & Electric and replace it with a public authority.`\
+https://nytimes.com/2025/12/10/nyregion/central-hudson-utility-takeover.html
+
+**Twins exploring free-agent first base market: Sources**\
+`ORLANDO, Fla.`\
+https://nytimes.com/athletic/6879767/2025/12/10/twins-mlb-free-agency-first-base/
+
+**Pacific Northwest Faces Some of Its Worst Flooding in Decades This Week**\
+`Tens of thousands of residents in Washington were poised to evacuate, as days of heavy rain sends rivers bursting over their banks.`\
+https://nytimes.com/2025/12/10/weather/washington-rivers-flood-evacuations.html
+
 **The Briefing: Real Madrid 1 Manchester City 2 - Are Guardiola's side potential winners? What next for Alonso?**\
 `City came from behind to win in the Bernabeu and take a big step towards a place in the Champions League last 16...`\
 https://nytimes.com/athletic/6875453/2025/12/10/real-madrid-1-manchester-city-2/
