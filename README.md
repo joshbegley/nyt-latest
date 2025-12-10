@@ -1,3 +1,11 @@
+**The Pulse: MLB’s offseason finally clicks on**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6875698/2025/12/10/mlbs-offseason-finally-clicks-on-with-multiple-signings-plus-two-buzzer-beaters/
+
+**England to play Uruguay and Japan in March World Cup warm-up friendlies**\
+`Thomas Tuchel's side will face Uruguay at Wembley on Friday March 27, before hosting Japan in the same venue four days later.`\
+https://nytimes.com/athletic/6878148/2025/12/10/england-friendlies-march-uruguay-japan-wembley/
+
 **I.M.F. Prods China, Gently, on Its Weak Currency**\
 `Caught between Beijing and the Trump administration, the International Monetary Fund offered mild criticism of China for relying too heavily on exports.`\
 https://nytimes.com/2025/12/10/business/imf-china-currency.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6877606/2025/12/10/blue-jackets-lose-hurricanes-dan
 **Sabres shake off injuries and Connor McDavid to stop the Oilers**\
 `Buffalo survived key injuries, the officials and Edmonton's superstar to post a big win on the road.`\
 https://nytimes.com/athletic/6877826/2025/12/10/sabres-overcome-injuries-connor-mcdavid-win/
-
-**Philip Rivers vs. Father Time: Colts pick fight that will be hard to win**\
-`Signing a 44-year-old Rivers out of retirement isn't quite as wild as bringing in Jeff Saturday to be the head coach — but it's close.`\
-https://nytimes.com/athletic/6876208/2025/12/10/colts-philip-rivers-father-time-playoffs/
-
-**F1 mailbag: Where does Piastri need to improve? What number will Verstappen use?**\
-`After a three-way title race, F1 takes a short breather. Luke Smith and Madeline Coleman answer your questions about 2026`\
-https://nytimes.com/athletic/6875371/2025/12/10/f1-mailbag-2025-recap-oscar-piastri-max-verstappen/
 

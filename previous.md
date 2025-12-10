@@ -1,36 +1,36 @@
-**USMNT's World Cup opener may hold the key to success or failure**\
-`History makes it clear that the USA's 2026 World Cup opener against Paraguay will dictate its fortunes`\
-https://nytimes.com/athletic/6876814/2025/12/10/usmnt-world-cup-paraguay-pulisic-pochettino/
+**I.M.F. Prods China, Gently, on Its Weak Currency**\
+`Caught between Beijing and the Trump administration, the International Monetary Fund offered mild criticism of China for relying too heavily on exports.`\
+https://nytimes.com/2025/12/10/business/imf-china-currency.html
 
-**Islamic State Camps Pose a Dangerous Problem for Syria’s Leaders**\
-`The government faces a dilemma over what to do with civil-war-era prisons and detention camps that hold thousands of ISIS fighters and tens of thousands of their family members.`\
-https://nytimes.com/2025/12/10/world/middleeast/islamic-state-detention-camps-syria.html
+**Bears coach Ben Johnson issues a mandate: It's all hands on deck to ignite the passing game**\
+`The Bears sense potential for an offensive breakthrough soon. But ... "It's got to happen. We can't just keep saying we're close." `\
+https://nytimes.com/athletic/6876442/2025/12/10/bears-passing-game-caleb-williams/
 
-**Just how old is Philip Rivers? Compare him to the NFL's coaches and GMs**\
-`Rivers is older than 13 NFL head coaches, a handful of general managers and Hall of Famers, and very nearly one NFL franchise owner.`\
-https://nytimes.com/athletic/6876631/2025/12/10/philip-rivers-age-nfl-coaches-players/
+**Why Chiefs' best playoff path would require a cruel twist: Cheering on the Broncos**\
+`Here's how The Athletic's Playoff Simulator handicaps the Chiefs' current odds of making the postseason.`\
+https://nytimes.com/athletic/6876494/2025/12/10/chiefs-playoff-possibilities-broncos/
 
-**Liverpool's diamond midfield is an ideal solution to their problems – for now**\
-`A tactical rejig brought rewards in a crucial Champions League tie for head coach Arne Slot`\
-https://nytimes.com/athletic/6877999/2025/12/10/liverpool-diamond-midfield-inter/
+**In a career year, Christian Dvorak is doing a little of everything for the Flyers**\
+`While other offseason signings have gotten most of the limelight in Philadelphia, Dvorak stole the show against the Sharks.`\
+https://nytimes.com/athletic/6877636/2025/12/10/flyers-christian-dvorak-sharks/
 
-**Day 2 of the MLB Winter Meetings: Schwarber and Diaz sign, Boras holds court and drops hints**\
-`While the Dodgers and Phillies made major signings, the Diamondbacks and Mets are reportedly dangling All-Stars for trade. `\
-https://nytimes.com/athletic/6876877/2025/12/10/mlb-winter-meetings-day-2-schwarber-diaz-boras/
+**Last-second strategy cost Penguins dearly in shootout loss: Yohe's 10 observations**\
+`A brutal unforced error sent the game to overtime with just a fraction of a second remaining in regulation.`\
+https://nytimes.com/athletic/6876036/2025/12/10/penguins-muse-letang-karlsson-collapse-ducks/
 
-**Aaron Rodgers' deep ball unlocked: Breaking down four throws from Sunday**\
-`Downfield passing had been an issue for the Steelers offense all season — until the first play from scrimmage in Baltimore.`\
-https://nytimes.com/athletic/6877064/2025/12/10/pittsburgh-steelers-aaron-rodgers-downfield-passing-game/
+**Dante Fabbro's third-period turnover sends Blue Jackets to loss to Hurricanes**\
+`Nobody is going to out-Carolina Hurricane the Carolina Hurricanes, who beat Columbus 4-1. `\
+https://nytimes.com/athletic/6877606/2025/12/10/blue-jackets-lose-hurricanes-dante-fabbro-turnover/
 
-**The New York Times International Edition in Print for Thursday, Dec. 11, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/12/10/todays-new-york-times-international-edition
+**Sabres shake off injuries and Connor McDavid to stop the Oilers**\
+`Buffalo survived key injuries, the officials and Edmonton's superstar to post a big win on the road.`\
+https://nytimes.com/athletic/6877826/2025/12/10/sabres-overcome-injuries-connor-mcdavid-win/
 
-**Jake Matthews carrying legacy of NFL's most durable family: 'He's the Terminator'**\
-`Toughness is a family affair for Matthews, who will start his 192nd straight game for Atlanta, extending the NFL's longest active streak.`\
-https://nytimes.com/athletic/6875997/2025/12/10/falcons-jake-matthews-family-streak-terminator/
+**Philip Rivers vs. Father Time: Colts pick fight that will be hard to win**\
+`Signing a 44-year-old Rivers out of retirement isn't quite as wild as bringing in Jeff Saturday to be the head coach — but it's close.`\
+https://nytimes.com/athletic/6876208/2025/12/10/colts-philip-rivers-father-time-playoffs/
 
-**How My Interfaith Family Figured Out the Holidays**\
-`By Jessica Grose`\
-https://nytimes.com/2025/12/10/opinion/interfaith-family-holiday.html
+**F1 mailbag: Where does Piastri need to improve? What number will Verstappen use?**\
+`After a three-way title race, F1 takes a short breather. Luke Smith and Madeline Coleman answer your questions about 2026`\
+https://nytimes.com/athletic/6875371/2025/12/10/f1-mailbag-2025-recap-oscar-piastri-max-verstappen/
 
