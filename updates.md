@@ -1,3 +1,15 @@
+**Takeaways from the Fed meeting.**\
+`By Colby Smith`\
+https://nytimes.com/live/2025/12/10/business/federal-reserve-interest-rates/takeaways-from-the-fed-meeting
+
+**U.S. Seizes Oil Tanker Off Venezuelan Coast, Trump Says**\
+`The seizure comes as the United States builds up its forces in the Caribbean as part of a pressure campaign against Nicolás Maduro, the leader of Venezuela.`\
+https://nytimes.com/2025/12/10/us/politics/oil-tanker-seized-us-venezuela-trump.html
+
+**How the Tate Brothers Returned to the United States**\
+`Andrew Tate and his brother, Tristan, were prohibited from leaving Romania for years after they were accused of trafficking dozens of women for a porn business.`\
+https://nytimes.com/video/us/100000010547944/how-the-tate-brothers-returned-to-the-united-states.html
+
 **Rosenthal: The Mets' core is no more. And now their front office needs to deliver**\
 `Edwin Díaz and Pete Alonso were both Mets stalwarts. Now they've signed elsewhere in back-to-back days.`\
 https://nytimes.com/athletic/6879503/2025/12/10/new-york-mets-pete-alonso-edwin-diaz-david-stearns/
