@@ -1,3 +1,7 @@
+**Judge Says Trump Must End Guard Deployment in Los Angeles**\
+`A federal judge ruled that the Trump administration had illegally kept troops in Los Angeles after emergency conditions had ended. The administration is expected to appeal.`\
+https://nytimes.com/2025/12/10/us/politics/national-guard-los-angeles-trump.html
+
 **Tony Dokoupil Is Named Anchor of ‘CBS Evening News’**\
 `He replaces John Dickerson and Maurice DuBois in one of the most high-profile decisions of Bari Weiss’s early tenure as the network’s editor in chief.`\
 https://nytimes.com/2025/12/10/business/tony-dokoupil-cbs-evening-news.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6878320/2025/12/10/minor-leagues-hitter-timeouts-ru
 **Sophie Kinsella, ‘Confessions of a Shopaholic’ Author, Dies at 55**\
 `Writing under a pseudonym, Madeleine Wickham cultivated an international following for her series centered on a young woman addicted to shopping.`\
 https://nytimes.com/2025/12/10/books/sophie-kinsella-dead-madeleine-wickham.html
-
-**Pointed outbursts, cryptic commentary and geopolitics: How Salah uses the media**\
-`The Liverpool forward has one of the biggest followings in the world on social platforms - and has finally found his voice `\
-https://nytimes.com/athletic/6610109/2025/12/10/mohamed-salah-liverpool-social-media/
 
