@@ -1,5 +1,21 @@
+**There’s Party Power in the Shrimp Tower**\
+`Whether to save space, wow guests or indulge in nostalgia, tall food is taking over. This edible tree checks all three boxes.`\
+https://nytimes.com/2025/12/10/dining/holiday-party-shrimp-tower.html
+
+**Youth Climate Activists Ask Montana Court to Block Some New Laws**\
+`The young plaintiffs, who won a major case over climate change policy in 2023, argue that legislators are illegally ignoring the effects of fossil fuels.`\
+https://nytimes.com/2025/12/10/climate/montana-youth-lawsuit-climate.html
+
+**Scoop City: Philip Rivers is really happening**\
+`The latest on a battle against Father Time, ranking all 14 likely playoff teams and Mike Sando shares the story of a mid-40s quarterback.`\
+https://nytimes.com/athletic/6879379/2025/12/10/philip-rivers-colts-legit-playoff-nfl-ranking/
+
+**NFL Week 15 confidence picks: Why Green Bay will beat Denver**\
+`KC Joyner picks every Week 15 NFL game straight-up and against the spread.`\
+https://nytimes.com/athletic/6878138/2025/12/10/nfl-week-15-confidence-picks-packers-broncos/
+
 **Olympic officials acknowledge hockey arena delays but say smaller rink 'exactly what it should be'**\
-`The IOC sports director said Wednesday that “everybody’s now aligned” on the rinks' dimensions, which came as a surprise to many last week.`\
+`The IOC sports director said Wednesday that "everybody's now aligned" on the rinks' dimensions, which came as a surprise to many last week.`\
 https://nytimes.com/athletic/6879296/2025/12/10/ioc-comments-olympic-ice-surface/
 
 **YouTube TV to launch a new sports package next year**\
@@ -17,20 +33,4 @@ https://nytimes.com/athletic/6879040/2025/12/10/lando-norris-f1-championship-pri
 **F.A.A. Chief Failed to Divest Airline Holdings as Promised, Ethics Agency Says**\
 `The Office of Government Ethics told senators that Bryan Bedford, the F.A.A. administrator, did not divest from the airline he previously ran as he had agreed.`\
 https://nytimes.com/2025/12/10/us/politics/bryan-bedford-faa-airline-holdings-ethics.html
-
-**Denied Federal Disaster Aid, a Town in Trump Country Feels Forgotten**\
-`FEMA rejected requests for federal assistance, twice, after devastating floods in western Maryland, part of a larger pattern of making communities pay for their own disaster recovery.`\
-https://nytimes.com/2025/12/10/us/trump-maryland-floods-disaster-aid.html
-
-**As the Price of Beef Soars, Restaurants Are in ‘Code Red’ Mode**\
-`Midpriced steakhouses and fine-dining establishments are trying to figure out how to cover their rising costs without scaring away customers.`\
-https://nytimes.com/2025/12/10/business/beef-prices-steakhouses.html
-
-**Mets did not make an offer to Pete Alonso before he agreed to Orioles deal: Sources**\
-`The Mets held some interest in bringing Alonso back but were uncomfortable with matching the lengths of what he got.`\
-https://nytimes.com/athletic/6879283/2025/12/10/mlb-pete-alonso-mets-did-not-offer-contract/
-
-**Joe Buck to join National Baseball Hall of Fame as Ford C. Frick winner**\
-`Buck began his major-league broadcasting career with the St. Louis Cardinals in 1991 and quickly became a fixture on national games.`\
-https://nytimes.com/athletic/6879074/2025/12/10/joe-buck-ford-c-frick-award-baseball-hall-of-fame/
 

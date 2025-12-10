@@ -10,6 +10,10 @@ https://nytimes.com/2025/12/10/climate/montana-youth-lawsuit-climate.html
 `The latest on a battle against Father Time, ranking all 14 likely playoff teams and Mike Sando shares the story of a mid-40s quarterback.`\
 https://nytimes.com/athletic/6879379/2025/12/10/philip-rivers-colts-legit-playoff-nfl-ranking/
 
+**Instant grades for college football's 2025-26 head-coaching hires**\
+`In college football, you never really know whether a coaching hire is going to work. But it's never too early to talk about fit.`\
+https://nytimes.com/athletic/6827060/2025/12/10/college-football-coaching-carousel-grades/
+
 **NFL Week 15 confidence picks: Why Green Bay will beat Denver**\
 `KC Joyner picks every Week 15 NFL game straight-up and against the spread.`\
 https://nytimes.com/athletic/6878138/2025/12/10/nfl-week-15-confidence-picks-packers-broncos/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/10/us/texas-house-redistricting.html
 **Prime Tire: Lando Norris lost the battle, but won the war**\
 `Welcome to Prime Tire, The Athletic's F1 newsletter.`\
 https://nytimes.com/athletic/6879040/2025/12/10/lando-norris-f1-championship-prime-tire/
-
-**F.A.A. Chief Failed to Divest Airline Holdings as Promised, Ethics Agency Says**\
-`The Office of Government Ethics told senators that Bryan Bedford, the F.A.A. administrator, did not divest from the airline he previously ran as he had agreed.`\
-https://nytimes.com/2025/12/10/us/politics/bryan-bedford-faa-airline-holdings-ethics.html
 
