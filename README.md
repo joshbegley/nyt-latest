@@ -11,7 +11,7 @@ https://nytimes.com/athletic/6872246/2025/12/10/newcastle-woltemade-germany-cham
 https://nytimes.com/athletic/6872958/2025/12/10/tactical-issues-xabi-alonso-madrid/
 
 **Fantasy football rankings Week 15: Sleepers, starts, best WWE and John Cena matches**\
-`Will Christian Watson continue to his league-winning ways? Jake Ciely lets you know where he sits among the rest in his Week 15 rankings.`\
+`Will Christian Watson continue his league-winning ways? Jake Ciely lets you know where he sits among the rest in his Week 15 rankings.`\
 https://nytimes.com/athletic/6876790/2025/12/10/fantasy-football-rankings-week-15-playoffs-sleepers-starts-sits/
 
 **Connections: Sports Edition Coach: Hints for Dec. 10, 2025**\
