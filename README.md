@@ -1,3 +1,7 @@
+**If the Tigers are really geared toward the future, should they trade Tarik Skubal?**\
+`Or will they go all in to win a World Series in Skubal's final year under team control?`\
+https://nytimes.com/athletic/6877130/2025/12/09/should-tigers-trade-tarik-skubal/
+
 **Trade talks for Marlins starter Edward Cabrera heat up, with Orioles in the mix**\
 `Cabrera, 27, is under club control for three more seasons.`\
 https://nytimes.com/athletic/6877218/2025/12/09/marlins-edward-cabrera-trade-talks-orioles/
@@ -29,8 +33,4 @@ https://nytimes.com/video/business/media/100000010568344/the-battle-for-warner-b
 **F.D.A. Expands Covid Vaccine Inquiry to Adult Deaths**\
 `The agency claimed that 10 children’s deaths were linked to the shots, although it did not release evidence to support the assertions.`\
 https://nytimes.com/2025/12/09/health/fda-covid-vaccine-adult-death-claims.html
-
-**Trump Calls Europe ‘Decaying’ and ‘Weak’**\
-`President Trump criticized his European counterparts over their defense and Ukraine policies during an interview with Politico. The president also suggested that it was time for President Volodymyr Zelensky of Ukraine to compromise in the cease-fire talks.`\
-https://nytimes.com/video/us/politics/100000010577149/trump-europe-decaying-weak-ukraine.html
 
