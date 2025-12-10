@@ -1,3 +1,7 @@
+**13 Charged in Gang-Related Attack That Killed 16-Year-Old in Harlem**\
+`The defendants, members of the “OY” gang, were charged with attempted murder in the death of Tresaun Clements, who was not affiliated with a gang, prosecutors said.`\
+https://nytimes.com/2025/12/10/nyregion/gang-feud-murder-charges-harlem.html
+
 **From the DealBook Summit: Industry Leaders Share Their Insights**\
 `Representing a variety of public and private sectors, guests from technology and finance to education and the artsparticipated in a lunchtime discussion designed to spark conversation around critical questions of the day.`\
 https://nytimes.com/2025/12/10/business/dealbook/groundbreakers-industry-leaders-insights.html
