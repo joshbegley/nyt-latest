@@ -1,3 +1,15 @@
+**Fowler arrives under difficult circumstances, but Canadiens had to do something**\
+`The Canadiens can't, or won't, say they hope Jacob Fowler will fix their goaltending problems. So we will say it for them.`\
+https://nytimes.com/athletic/6880088/2025/12/10/canadiens-jacob-fowler-st-louis-goaltending/
+
+**Madrid players insist they are behind head coach Alonso after Man City defeat**\
+`The 2-1 loss means that Madrid have only won two of their last eight games in all competitions.`\
+https://nytimes.com/athletic/6880115/2025/12/10/real-madrid-players-xabi-alonso/
+
+**The Reds weren't 'extending' budget for Kyle Schwarber, but would have fit him in**\
+`Had Schwarber taken the Reds' deal, the quickest way to shed salary would be to trade from their pool of arbitration-eligible players. `\
+https://nytimes.com/athletic/6879666/2025/12/10/the-reds-werent-extending-budget-to-fit-kyle-schwarber-but-would-fit-him-in/
+
 **Red Sox trying to add two more bats after missing on Pete Alonso: Source**\
 `A reunion with Alex Bregman figures to be the main objective at this point, but the Red Sox could also target free agent Eugenio Suarez.`\
 https://nytimes.com/athletic/6880040/2025/12/10/red-sox-free-agents-missing-pete-alonso/
