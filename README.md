@@ -1,3 +1,7 @@
+**Miami Elects First Democratic Mayor in Nearly 30 Years**\
+`Eileen Higgins, a former Miami-Dade County commissioner, will also be the city’s first female mayor and the first non-Hispanic mayor since the 1990s.`\
+https://nytimes.com/2025/12/09/us/miami-mayor-eileen-higgins-election.html
+
 **Trump Seeks to Reassure Americans That He Is Focused on Affordability**\
 `The president finds himself in an economic and political bind as his tariffs drive up costs.`\
 https://nytimes.com/2025/12/09/us/politics/trump-affordability-economy-pennsylvania.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6877010/2025/12/09/maple-leafs-bobby-mcmann-suspend
 **How to watch Titans vs. 49ers: Time, TV, streaming**\
 `Find out how to watch the Tennessee Titans play the San Francisco 49ers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6877120/2025/12/09/titans-vs-49ers-stream-how-to-watch-dec-14/
-
-**How to watch Packers vs. Broncos: Time, TV, streaming**\
-`Find out how to watch the Green Bay Packers play the Denver Broncos, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6877110/2025/12/09/packers-vs-broncos-stream-how-to-watch-dec-14/
 
