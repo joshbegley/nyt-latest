@@ -1,3 +1,15 @@
+**The New York Times in Print for Wednesday, Dec. 10, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/12/10/todays-new-york-times
+
+**Trump Picked This Fight With Maduro. He Can’t Back Down.**\
+`If the Trump administration allows Nicolás Maduro to endure, it would signal that a criminal dictatorship masquerading as a state can stare down the United States and win.`\
+https://nytimes.com/2025/12/10/opinion/trum-maduro-venezuela.html
+
+**Desmond Bane's 'dawg mentality' is transforming the Magic, 37 points at a time**\
+`Bane scored 37 points, collected six rebounds and dished out five assists in the Magic's NBA Cup quarterfinal victory over the Heat.`\
+https://nytimes.com/athletic/6877320/2025/12/10/desmond-bane-stats-magic-nba-cup/
+
 **How John Oliver's comedy partner transitioned from stand up to statistics**\
 `Andy Zaltzman was hooked on cricket after watching Ian Botham in the 1981 Ashes and is now a fixture on the BBC's Test Match Special`\
 https://nytimes.com/athletic/6865671/2025/12/10/andy-zaltzman-tms-cricket-john-oliver/
