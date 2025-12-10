@@ -1,3 +1,11 @@
+**Nothing can be ruled out with Dodgers, so is another blockbuster move possible?**\
+`As Mark Walter said after his team's latest World Series title: "(The front office) makes all the decisions. I just tell them yes."`\
+https://nytimes.com/athletic/6877459/2025/12/09/dodgers-mlb-winter-meetings-kyle-tucker-tarik-skubal/
+
+**Blue Jays consider Opening Day return for Shane Bieber 'realistic'**\
+`It’s not clear if the ailment caused Bieber to pick up his player option and avoid the unknowns of free agency.`\
+https://nytimes.com/athletic/6877409/2025/12/09/blue-jays-shane-bieber-could-return-for-opening-day-after-forearm-fatigue-rehab/
+
 **Third-Party Holding**\
 `Kareem Ayas makes a break for it.`\
 https://nytimes.com/2025/12/09/crosswords/daily-puzzle-2025-12-10.html
@@ -25,12 +33,4 @@ https://nytimes.com/2025/12/09/us/politics/trump-fed-powell-cook-biden.html
 **This Arkansas City Shows How to Slash Emissions and Save Money, Too**\
 `In the Ozarks, the growing college town of Fayetteville, Ark., is using clean energy to power city facilities and embracing nature-based solutions to climate threats.`\
 https://nytimes.com/2025/12/09/climate/fayetteville-arkansas-climate-plan.html
-
-**Inside the Pentagon’s Scramble to Deal With Boat Strike Survivors**\
-`Officials initially weighed sending survivors of U.S. attacks on boats suspected of drug smuggling to a notorious prison in El Salvador, to keep them away from American courts.`\
-https://nytimes.com/2025/12/09/us/politics/pentagon-boat-strike-survivors.html
-
-**Heat-Magic NBA Cup takeaways: Orlando rallies after slow start to advance**\
-`Orlando flipped the script Tuesday, hitting 15-of-32 3-pointers to overcome a slow start and advance.`\
-https://nytimes.com/athletic/6874219/2025/12/09/nba-cup-quarterfinals-takeaways-heat-magic-knicks-raptors/
 
