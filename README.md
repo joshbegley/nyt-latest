@@ -1,3 +1,19 @@
+**Trump Chose to Not Use His Influence to Help Stefanik. Here’s Why.**\
+`With two allies, Elise Stefanik and Bruce Blakeman, running for governor of New York, President Trump is not making an endorsement — for now.`\
+https://nytimes.com/2025/12/10/nyregion/blakeman-trump-stefanik.html
+
+**Holiday Lists**\
+`What do you want to do this season? What don’t you want to do?`\
+https://nytimes.com/2025/12/10/learning/holiday-lists.html
+
+**A New Governor Inherits a Misconduct Investigation Into the State Police**\
+`A prolonged slowdown in traffic enforcement by New Jersey troopers coincided with an uptick in fatal crashes. The pattern remains under investigation as Mikie Sherrill prepares to take office.`\
+https://nytimes.com/2025/12/10/nyregion/mikie-sherrill-new-jersey-state-police-investigation.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/12/10/crosswords/spelling-bee-forum.html
+
 **JJ Gabriel, the 15-year-old Manchester United forward breaking records and creating a buzz**\
 `The teenager made his first appearance at Old Trafford on Tuesday and his performance showed why he is generating such excitement`\
 https://nytimes.com/athletic/6877360/2025/12/10/jj-gabriel-manchester-united/
@@ -17,20 +33,4 @@ https://nytimes.com/athletic/6877138/2025/12/10/chelsea-rotation-enzo-maresca-at
 **Machado Won’t Pick Up Peace Prize in Person, Nobel Director Says**\
 `The head of the Norwegian Nobel Institute told the state broadcaster that María Corina Machado would not attend Wednesday’s event in Oslo.`\
 https://nytimes.com/2025/12/10/world/europe/machado-nobel-venezuela-ceremony.html
-
-**Word of the Day: circumspect**\
-`This word has appeared in 92 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/12/10/learning/word-of-the-day-circumspect.html
-
-**Trump Attacks Fed Governors Ahead of Key Interest Rate Meeting**\
-`During a speech in Pennsylvania focused on the economy, President Trump criticized the Fed chair, Jerome Powell, and four other members. The attack came as the Fed prepares to reveal new interest rates.`\
-https://nytimes.com/video/us/politics/100000010577712/trump-fed-powell-interest-rate.html
-
-**Is it fair to say Tottenham did not play 'like a big team' against Slavia Prague?**\
-`Pundit Joe Hart was critical of Spurs' mentality against their Czech visitors. Did he have a point?`\
-https://nytimes.com/athletic/6877194/2025/12/10/tottenham-slavia-prague-joe-hart/
-
-**Liverpool show defiance and unity without Salah at Inter. What happens next?**\
-`This was a victory that 'means a lot' to head coach Arne Slot, given the pressure on the club following the events of the past few days`\
-https://nytimes.com/athletic/6876348/2025/12/10/liverpool-inter-salah-slot/
 
