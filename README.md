@@ -1,3 +1,23 @@
+**Just how old is Philip Rivers? Compare him to the NFL's coaches and GMs**\
+`Rivers is older than 13 NFL head coaches, a handful of general managers and Hall of Famers, and very nearly one NFL franchise owner.`\
+https://nytimes.com/athletic/6876631/2025/12/10/philip-rivers-age-nfl-coaches-players/
+
+**Liverpool's diamond midfield is an ideal solution to their problems – for now**\
+`A tactical rejig brought rewards in a crucial Champions League tie for head coach Arne Slot`\
+https://nytimes.com/athletic/6877999/2025/12/10/liverpool-diamond-midfield-inter/
+
+**Day 2 of the MLB Winter Meetings: Schwarber and Diaz sign, Boras holds court and drops hints**\
+`While the Dodgers and Phillies made major signings, the Diamondbacks and Mets are reportedly dangling All-Stars for trade. `\
+https://nytimes.com/athletic/6876877/2025/12/10/mlb-winter-meetings-day-2-schwarber-diaz-boras/
+
+**Aaron Rodgers' deep ball unlocked: Breaking down four throws from Sunday**\
+`Downfield passing had been an issue for the Steelers offense all season — until the first play from scrimmage in Baltimore.`\
+https://nytimes.com/athletic/6877064/2025/12/10/pittsburgh-steelers-aaron-rodgers-downfield-passing-game/
+
+**The New York Times International Edition in Print for Thursday, Dec. 11, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/12/10/todays-new-york-times-international-edition
+
 **Jake Matthews carrying legacy of NFL's most durable family: 'He's the Terminator'**\
 `Toughness is a family affair for Matthews, who will start his 192nd straight game for Atlanta, extending the NFL's longest active streak.`\
 https://nytimes.com/athletic/6875997/2025/12/10/falcons-jake-matthews-family-streak-terminator/
@@ -13,24 +33,4 @@ https://nytimes.com/2025/12/10/us/politics/supreme-court-death-penalty-disabilit
 **The Contradictions of Gavin Newsom**\
 `How the California governor became the 2028 Democratic front-runner.`\
 https://nytimes.com/2025/12/10/opinion/ezra-klein-podcast-gavin-newsom.html
-
-**Rare 15th Century Jewish Prayer Book, Looted by the Nazis, to Be Sold**\
-`The illuminated manuscript, confiscated from the Rothschild banking dynasty during the Holocaust, is expected to draw at least $5 million.`\
-https://nytimes.com/2025/12/10/arts/jewish-prayer-book-looted-by-nazis-to-be-sold.html
-
-**Should Some Places Be ‘Phone-Free’?**\
-`New York City clubs are banning phones on the dance floor, and people love it. Are there other places where you wish phones weren’t allowed?`\
-https://nytimes.com/2025/12/10/learning/should-some-places-be-phone-free.html
-
-**A Scientific Pipeline to the Nobel Prize Fueled by Immigrants**\
-`As three immigrants claim Nobel Prizes in science for the United States this year, experts warn that immigration crackdowns could undo American innovation.`\
-https://nytimes.com/2025/12/10/science/nobel-prize-immigrants-science.html
-
-**Democrats Make a Fresh Push to Win State Legislatures**\
-`The arm of the party that focuses on statehouses is targeting hundreds of seats and more than 40 chambers, according to a strategy memo, reflecting Democrats’ new optimism.`\
-https://nytimes.com/2025/12/10/us/politics/democrats-state-legislatures.html
-
-**Lander Will Run for House Seat With Mamdani’s Support**\
-`Brad Lander, the New York City comptroller, will run for a House seat in Brooklyn and Manhattan, challenging Representative Daniel Goldman in the Democratic primary.`\
-https://nytimes.com/2025/12/10/nyregion/lander-goldman-mamdani-congress.html
 
