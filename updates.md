@@ -1,3 +1,7 @@
+**Why the Canucks are flawed enough to contend for NHL's top draft lottery odds**\
+`Based on their underlying profile, the Canucks are poor-to-unremarkable in every phase of the game.`\
+https://nytimes.com/athletic/6876988/2025/12/10/canucks-stats-standings-nhl-draft-lottery-odds-flaws/
+
 **How to watch Minnesota vs. Purdue men's basketball: Time, TV, streaming**\
 `Find out how to watch the Minnesota Golden Gophers play the Purdue Boilermakers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6878897/2025/12/10/minnesota-vs-purdue-stream-how-to-watch-dec-10/
