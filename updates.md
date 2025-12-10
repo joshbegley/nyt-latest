@@ -1,3 +1,7 @@
+**Islamic State Camps Pose a Dangerous Problem for Syria’s Leaders**\
+`The government faces a dilemma over what to do with civil-war-era prisons and detention camps that hold thousands of ISIS fighters and tens of thousands of their family members.`\
+https://nytimes.com/2025/12/10/world/middleeast/islamic-state-detention-camps-syria.html
+
 **Just how old is Philip Rivers? Compare him to the NFL's coaches and GMs**\
 `Rivers is older than 13 NFL head coaches, a handful of general managers and Hall of Famers, and very nearly one NFL franchise owner.`\
 https://nytimes.com/athletic/6876631/2025/12/10/philip-rivers-age-nfl-coaches-players/
