@@ -1,3 +1,7 @@
+**Race to Replace Powell at Fed Adds to Cacophony Around Rate Decision**\
+`The end of Jerome Powell’s term as Fed chair will give President Trump his biggest opportunity yet to reshape the central bank.`\
+https://nytimes.com/2025/12/10/business/fed-chair-powell-trump-replacement.html
+
 **Martina Navratilova discusses her criticism of Donald Trump: 'I just can't be compliant'**\
 `The tennis legend said she hopes to “make people think” about the current political moment.`\
 https://nytimes.com/athletic/6876503/2025/12/10/tennis-martina-navratilova-donald-trump/
@@ -25,12 +29,4 @@ https://nytimes.com/athletic/6878500/2025/12/10/tiago-orlando-city-bahia-transfe
 **NFL returning to Munich in 2026 and 2028 for international football games**\
 `The NFL previously held games in Munich in 2022 (Seahawks-Buccaneers) and in 2024 (Giants-Panthers).`\
 https://nytimes.com/athletic/6878400/2025/12/10/nfl-munich-international-games-german-fans/
-
-**Ranking men's college basketball's 8 undefeated teams, from Michigan to Miami (Ohio)**\
-`When will Michigan, Iowa State, Duke, Arizona and the others lose their first games? We tried to predict.`\
-https://nytimes.com/athletic/6878349/2025/12/10/college-basketball-undefeated-teams-michigan-iowa-state-duke/
-
-**How Can I Stop My Wife From Badgering Our Friends About Climate Change?**\
-`A reader’s wife is angry about what she sees as insufficient commitment to the cause of environmentalism, alienating the couple’s friends.`\
-https://nytimes.com/2025/12/10/style/how-can-i-stop-my-wife-from-badgering-our-friends-about-climate-change.html
 

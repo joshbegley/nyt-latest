@@ -1,3 +1,7 @@
+**Race to Replace Powell at Fed Adds to Cacophony Around Rate Decision**\
+`The end of Jerome Powell’s term as Fed chair will give President Trump his biggest opportunity yet to reshape the central bank.`\
+https://nytimes.com/2025/12/10/business/fed-chair-powell-trump-replacement.html
+
 **Martina Navratilova discusses her criticism of Donald Trump: 'I just can't be compliant'**\
 `The tennis legend said she hopes to “make people think” about the current political moment.`\
 https://nytimes.com/athletic/6876503/2025/12/10/tennis-martina-navratilova-donald-trump/

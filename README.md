@@ -1,3 +1,7 @@
+**Late-game heroics: NHL-record 4 teams tie score in final 15 seconds**\
+`Only one of the four teams went on to actually win their game, but history was made nonetheless.`\
+https://nytimes.com/athletic/6878442/2025/12/10/nhl-history-score-final-15-seconds/
+
 **Race to Replace Powell at Fed Adds to Cacophony Around Rate Decision**\
 `The end of Jerome Powell’s term as Fed chair will give President Trump his biggest opportunity yet to reshape the central bank.`\
 https://nytimes.com/2025/12/10/business/fed-chair-powell-trump-replacement.html
@@ -25,8 +29,4 @@ https://nytimes.com/2025/12/10/business/tony-dokoupil-cbs-evening-news.html
 **Orlando finalizing deal to sign Brazilian winger Tiago from Bahia**\
 `Orlando will pay a fee around $4 million for the signing of the 20-year-old.`\
 https://nytimes.com/athletic/6878500/2025/12/10/tiago-orlando-city-bahia-transfer-news/
-
-**NFL returning to Munich in 2026 and 2028 for international football games**\
-`The NFL previously held games in Munich in 2022 (Seahawks-Buccaneers) and in 2024 (Giants-Panthers).`\
-https://nytimes.com/athletic/6878400/2025/12/10/nfl-munich-international-games-german-fans/
 
