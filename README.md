@@ -1,3 +1,7 @@
+**13 Charged in Gang-Related Attack That Killed 16-Year-Old in Harlem**\
+`The defendants, members of the “OY” gang, were charged with attempted murder in the death of Tresaun Clements, who was not affiliated with a gang, prosecutors said.`\
+https://nytimes.com/2025/12/10/nyregion/gang-feud-murder-charges-harlem.html
+
 **From the DealBook Summit: Industry Leaders Share Their Insights**\
 `Representing a variety of public and private sectors, guests from technology and finance to education and the artsparticipated in a lunchtime discussion designed to spark conversation around critical questions of the day.`\
 https://nytimes.com/2025/12/10/business/dealbook/groundbreakers-industry-leaders-insights.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6879747/2025/12/10/blue-jays-winter-meetings-bullpe
 **Lakers won't use NBA Cup court against Spurs: Source**\
 `This is the second straight game the Lakers will not use their custom yellow court after players complained of slipping on it.`\
 https://nytimes.com/athletic/6879915/2025/12/10/lakers-nba-cup-court-quarterfinals-spurs/
-
-**Michigan fires coach Sherrone Moore due to violation of university policy**\
-`Moore, 39, has coached at Michigan since 2018 in various roles. `\
-https://nytimes.com/athletic/6879864/2025/12/10/michigan-sherone-moore-coach-fire-policy/
 
