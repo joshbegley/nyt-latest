@@ -1,3 +1,11 @@
+**Liverpool show defiance and unity without Salah at Inter. What happens next?**\
+`This was a victory that 'means a lot' to head coach Arne Slot given the pressure on the club following the events of the past few days`\
+https://nytimes.com/athletic/6876348/2025/12/10/liverpool-inter-salah-slot/
+
+**Late Night Doesn’t Want to Sweat at the Airport**\
+`Ronny Chieng dissed new fitness plans from the Trump administration for travelers in American airports: “We can’t even walk to the gate. They had to invent floors that walk for us.”`\
+https://nytimes.com/2025/12/10/arts/television/late-night-airport-pullup-sean-duffy-rfk-jr.html
+
 **The New York Times in Print for Wednesday, Dec. 10, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/12/10/todays-new-york-times
