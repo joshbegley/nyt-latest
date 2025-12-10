@@ -1,3 +1,19 @@
+**How John Oliver's comedy partner transitioned from stand up to statistics**\
+`Andy Zaltzman was hooked on cricket after watching Ian Botham in the 1981 Ashes and is now a fixture on the BBC's Test Match Special`\
+https://nytimes.com/athletic/6865671/2025/12/10/andy-zaltzman-tms-cricket-john-oliver/
+
+**Rod Paige, Education Secretary Who Defended ‘No Child Left Behind,’ Dies at 92**\
+`He was both the first Black person and the first educator to hold the cabinet position, but resigned amid discord over George W. Bush’s No Child Left Behind.`\
+https://nytimes.com/2025/12/10/obituaries/rod-paige-dead.html
+
+**Aston Villa, Unai Emery and a remarkable home record**\
+`Arsenal. Manchester City (twice). Paris Saint-Germain. All have been beaten at Villa Park in 2025 — these are good times at the club`\
+https://nytimes.com/athletic/6872914/2025/12/10/aston-villa-unai-emery-home-record/
+
+**Manchester United's crucial 11 days before the WSL winter break**\
+`Manchester United have four games in 11 days, a litmus test for their season`\
+https://nytimes.com/athletic/6875051/2025/12/10/manchester-united-women-wsl-winter-break/
+
 **Oxlade-Chamberlain interview: 'At Arsenal, everything is bigger and moving towards elite-level'**\
 `Back in England as a free agent, the 32-year-old is convinced he can still perform at a high level — but is waiting for a chance to prove it`\
 https://nytimes.com/athletic/6872552/2025/12/10/alex-oxlade-chamberlain-interview-arsenal/
@@ -17,20 +33,4 @@ https://nytimes.com/athletic/6876790/2025/12/10/fantasy-football-rankings-week-1
 **Connections: Sports Edition Coach: Hints for Dec. 10, 2025**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/6876455/2025/12/10/connections-sports-edition-hints-for-dec-10-2025/
-
-**Hotel prices in World Cup host cities surge by more than 300% after schedule confirmed**\
-`Research by The Athletic for two-night stays around World Cup games in the 16 host cities has revealed huge price hikes`\
-https://nytimes.com/athletic/6875796/2025/12/10/hotel-prices-in-world-cup-host-cities-surge-by-more-than-300-after-schedule-confirmed/
-
-**Taiwan Invokes National Security Law to Protect TSMC Trade Secrets**\
-`An executive left TSMC for Intel. Taiwan’s government says that could threaten its national security.`\
-https://nytimes.com/2025/12/10/business/taiwan-tsmc-trade-secrets.html
-
-**Chip Company Plotted to Send Technology to China, Ex-C.E.O. Says**\
-`The former chief executive of Nexperia, a Dutch chipmaker, said Dutch officials had known for years that the company’s Chinese owner sought to move its technology to China.`\
-https://nytimes.com/2025/12/10/world/asia/dutch-nexperia-zhang-ceo.html
-
-**Sources: Tigers close to deal with right-hander Kyle Finnegan**\
-`Finnegan's time in Detroit was mostly a resounding success.`\
-https://nytimes.com/athletic/6877657/2025/12/09/tigers-near-deal-right-hander-kyle-finnegan/
 
