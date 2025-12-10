@@ -1,3 +1,11 @@
+**Italian Cooking, Kohl Makeup and Icelandic Pools Are Recognized by UNESCO**\
+`The agency added dozens of nominees to its annual list of the world’s “intangible cultural heritage,” celebrating international customs and cuisine.`\
+https://nytimes.com/2025/12/10/world/europe/unesco-yodeling-italian-cooking.html
+
+**Palace defender Munoz to undergo knee surgery - Glasner**\
+`Glasner hopes Munoz's injury is not serious while striker Jean-Philippe Mateta is nursing a knee injury.`\
+https://nytimes.com/athletic/6879457/2025/12/10/munoz-injury-crystal-palace-surgery-news-update/
+
 **‘Rocky’ Statue to Move to Where It Started: Philadelphia’s Art Museum Steps**\
 `It’s a symbol of the city. But is it art?`\
 https://nytimes.com/2025/12/10/us/rocky-statue-philadelphia-art-museum-stallone.html
