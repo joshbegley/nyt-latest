@@ -1,3 +1,11 @@
+**F.D.A. Expands Covid Vaccine Inquiry to Adult Deaths**\
+`The agency claimed that 10 children’s deaths were linked to the shots, although it did not release evidence to support the assertions.`\
+https://nytimes.com/2025/12/09/health/fda-covid-vaccine-adult-death-claims.html
+
+**Trump Calls Europe ‘Decaying’ and ‘Weak’**\
+`President Trump criticized his European counterparts over their defense and Ukraine policies during an interview with Politico. The president also suggested that it was time for President Volodymyr Zelensky of Ukraine to compromise in the cease-fire talks.`\
+https://nytimes.com/video/us/politics/100000010577149/trump-europe-decaying-weak-ukraine.html
+
 **Zelensky Says Ukraine Could Be ‘Ready for Elections’**\
 `The Ukrainian president told reporters that a vote could be held in 60 to 90 days if the country received security protections from the United States.`\
 https://nytimes.com/2025/12/09/world/europe/zelensky-ukraine-russia-elections.html
