@@ -1,8 +1,12 @@
+**Trump Seeks to Reassure Americans That He Is Focused on Affordability**\
+`The president finds himself in an economic and political bind as his tariffs drive up costs.`\
+https://nytimes.com/2025/12/09/us/politics/trump-affordability-economy-pennsylvania.html
+
 **U.S. Plans to Scrutinize Foreign Tourists’ Social Media History**\
 `Even visitors from countries like Britain and France, whose citizens don’t need visas, would have to share five years’ worth of social media.`\
 https://nytimes.com/2025/12/09/travel/social-media-tourists-visa-border-patrol.html
 
-**John Schneider reflects on World Series loss, Isiah Kinera-Falefa’s Game 7 lead**\
+**John Schneider reflects on World Series loss, Isiah Kiner-Falefa’s Game 7 lead**\
 `"I think I'll think about it until the day I leave this earth," John Schneider said of the Blue Jays' Game 7 World Series loss. `\
 https://nytimes.com/athletic/6876986/2025/12/09/john-schneider-world-series-isiah-kiner-falefas/
 
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6877120/2025/12/09/titans-vs-49ers-stream-how-to-wa
 **How to watch Packers vs. Broncos: Time, TV, streaming**\
 `Find out how to watch the Green Bay Packers play the Denver Broncos, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6877110/2025/12/09/packers-vs-broncos-stream-how-to-watch-dec-14/
-
-**How to watch Panthers vs. Saints: Time, TV, streaming**\
-`Find out how to watch the Carolina Panthers play the New Orleans Saints, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6877109/2025/12/09/panthers-vs-saints-stream-how-to-watch-dec-14/
 

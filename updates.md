@@ -1,3 +1,11 @@
+**Trump Seeks to Reassure Americans That He Is Focused on Affordability**\
+`The president finds himself in an economic and political bind as his tariffs drive up costs.`\
+https://nytimes.com/2025/12/09/us/politics/trump-affordability-economy-pennsylvania.html
+
+**John Schneider reflects on World Series loss, Isiah Kiner-Falefa’s Game 7 lead**\
+`"I think I'll think about it until the day I leave this earth," John Schneider said of the Blue Jays' Game 7 World Series loss. `\
+https://nytimes.com/athletic/6876986/2025/12/09/john-schneider-world-series-isiah-kiner-falefas/
+
 **U.S. Plans to Scrutinize Foreign Tourists’ Social Media History**\
 `Even visitors from countries like Britain and France, whose citizens don’t need visas, would have to share five years’ worth of social media.`\
 https://nytimes.com/2025/12/09/travel/social-media-tourists-visa-border-patrol.html
