@@ -1,36 +1,36 @@
-**Italian Cooking, Kohl Makeup and Icelandic Pools Are Recognized by UNESCO**\
-`The agency added dozens of nominees to its annual list of the world’s “intangible cultural heritage,” celebrating international customs and cuisine.`\
-https://nytimes.com/2025/12/10/world/europe/unesco-yodeling-italian-cooking.html
+**How to watch Ball State vs. Louisville women's basketball: Time, TV, streaming**\
+`Find out how to watch the Ball State Cardinals play the Louisville Cardinals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6879608/2025/12/10/ball-state-vs-louisville-stream-how-to-watch-dec-10/
 
-**Palace defender Munoz to undergo knee surgery - Glasner**\
-`Glasner hopes Munoz's injury is not serious while striker Jean-Philippe Mateta is nursing a knee injury.`\
-https://nytimes.com/athletic/6879457/2025/12/10/munoz-injury-crystal-palace-surgery-news-update/
+**How to watch Wisconsin vs. Nebraska men's basketball: Time, TV, streaming**\
+`Find out how to watch the Wisconsin Badgers play the Nebraska Cornhuskers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6879589/2025/12/10/wisconsin-vs-nebraska-stream-how-to-watch-dec-10/
 
-**‘Rocky’ Statue to Move to Where It Started: Philadelphia’s Art Museum Steps**\
-`It’s a symbol of the city. But is it art?`\
-https://nytimes.com/2025/12/10/us/rocky-statue-philadelphia-art-museum-stallone.html
+**How a Manosphere Star Accused of Rape and Trafficking Was Freed**\
+`Barred from leaving Romania, Andrew Tate courted powerful figures on the American right, from Tucker Carlson to Barron Trump. Then an extraordinary order let him go.`\
+https://nytimes.com/2025/12/10/us/andrew-tate-barron-trump-romania.html
 
-**Man Utd and Wrexham in talks over pre-season friendly in 2026**\
-`Nothing has been agreed yet but the teams remain in discussions over a friendly as options are explored ahead of next season.`\
-https://nytimes.com/athletic/6879467/2025/12/10/manchester-united-wrexham-friendly-2026/
+**How to watch Jackson State vs. Houston men's basketball: Time, TV, streaming**\
+`Find out how to watch the Jackson State Tigers play the Houston Cougars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6879580/2025/12/10/jackson-state-vs-houston-stream-how-to-watch-dec-10/
 
-**What I'm hearing about moves as MLS free agency begins**\
-`The start of MLS free agency hass sparked a flurry of activity around the league`\
-https://nytimes.com/athletic/6879167/2025/12/10/mls-free-agency-eneli-stroud-rsl/
+**How to watch Texas vs. UT Rio Grande Valley women's basketball: Time, TV, streaming**\
+`Find out how to watch the Texas Longhorns play the UT Rio Grande Valley Vaqueros, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6879582/2025/12/10/texas-vs-ut-rio-grande-valley-stream-how-to-watch-dec-10/
 
-**A Stranger Found Ricki Lake’s Lost Family Photos After L.A. Wildfires**\
-`Patty Scanlon bought a box of snapshots for $20 at a flea market and was stunned to find family photos of Ms. Lake, whose house burned down in January.`\
-https://nytimes.com/2025/12/10/us/ricki-lake-photos-los-angeles-wildfires.html
+**Duke's latest freshman phenom: Can anyone stop Cam Boozer from winning Wooden Award?**\
+`Cam Boozer is already the clear-cut favorite to win the Wooden Award. Who are the main contenders to catch him?`\
+https://nytimes.com/athletic/6876645/2025/12/10/wooden-award-winner-odds-cameron-boozer-braden-smith/
 
-**Wenne Alton Davis, Actor in ‘Marvelous Mrs. Maisel,’ Hit by S.U.V. and Killed**\
-`The actor, 60, was struck by a vehicle in Midtown Manhattan late on Monday, her agent and the police said.`\
-https://nytimes.com/2025/12/10/us/wenne-alton-davis-dead.html
+**With Pete Alonso signing, Orioles prove they're ready to be bold**\
+`The move sends a message that Baltimore's historically cautious front office is willing take a calculate risk and spend enough to win.`\
+https://nytimes.com/athletic/6879450/2025/12/10/pete-alonso-orioles-signing-future/
 
-**Agriculture Department Approves More Soda Bans For Food Stamps**\
-`Six more states have been approved for waivers that ban the purchase of some sugary foods and beverages using food stamps.`\
-https://nytimes.com/2025/12/10/us/politics/agriculture-department-approves-more-soda-bans-for-food-stamps.html
+**Indiana defender likely out for season after injury in aftermath of Big Ten win**\
+`Defensive lineman Stephen Daley suffered a "serious" injury after Indiana's defeat Saturday of top-ranked Ohio State for the Big Ten title.`\
+https://nytimes.com/athletic/6879460/2025/12/10/indiana-football-injury-celebrating-stephen-daley/
 
-**NFL votes to invest, develop professional flag football leagues**\
-`Flag football ranks among the world’s fastest-growing sports with 20 million players worldwide, according to the NFL.`\
-https://nytimes.com/athletic/6879289/2025/12/10/nfl-votes-develop-flag-football/
+**Trumpism Is Global Culture War**\
+`The Trump administration’s 2025 National Security Strategy is a pivot to the agenda of online reactionaries.`\
+https://nytimes.com/2025/12/10/opinion/trump-national-security.html
 
