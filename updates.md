@@ -1,3 +1,5 @@
+
+
 **Vaughn Grissom trade opens roster spot, but Red Sox remain inactive at Winter Meetings**\
 `The Grissom trade opened a 40-man roster spot for another potential move.`\
 https://nytimes.com/athletic/6877207/2025/12/09/red-sox-vaughn-grissom-trade-inactive-winter-meetings/
