@@ -1,3 +1,11 @@
+**In the Home of a Famed Artist, a Mummified Rat and Other Curiosities**\
+`A leading Surrealist, Meret Oppenheim brought her singular vision of domesticity to life in this 18th-century Alpine summer house.`\
+https://nytimes.com/2025/12/10/t-magazine/meret-oppenheim-switzerland-home.html
+
+**Time saver: NFL cuts 2 minutes between picks in first round of draft**\
+`Teams will now have eight minutes to make their first-round selections, as opposed to the previous 10-minute window.`\
+https://nytimes.com/athletic/6879500/2025/12/10/nfl-draft-cuts-time-first-round-2026/
+
 **A Proponent of Election Conspiracy Theories Will Take a Top Role at FEMA**\
 `Gregg Phillips, who spread unsubstantiated claims of mass voter fraud in the 2016 election, will join the agency’s leadership, the Trump administration confirmed.`\
 https://nytimes.com/2025/12/10/climate/gregg-phillips-fema.html
@@ -25,12 +33,4 @@ https://nytimes.com/live/2025/12/10/business/federal-reserve-interest-rates/take
 **U.S. Seizes Oil Tanker Off Venezuelan Coast, Trump Says**\
 `The seizure comes as the United States builds up its forces in the Caribbean as part of a pressure campaign against Nicolás Maduro, the leader of Venezuela.`\
 https://nytimes.com/2025/12/10/us/politics/oil-tanker-seized-us-venezuela-trump.html
-
-**How the Tate Brothers Returned to the United States**\
-`Andrew Tate and his brother, Tristan, were prohibited from leaving Romania for years after they were accused of trafficking dozens of women for a porn business.`\
-https://nytimes.com/video/us/100000010547944/how-the-tate-brothers-returned-to-the-united-states.html
-
-**Rosenthal: The Mets' core is no more. And now their front office needs to deliver**\
-`Edwin Díaz and Pete Alonso were both Mets stalwarts. Now they've signed elsewhere in back-to-back days.`\
-https://nytimes.com/athletic/6879503/2025/12/10/new-york-mets-pete-alonso-edwin-diaz-david-stearns/
 

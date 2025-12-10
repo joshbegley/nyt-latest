@@ -1,3 +1,11 @@
+**In the Home of a Famed Artist, a Mummified Rat and Other Curiosities**\
+`A leading Surrealist, Meret Oppenheim brought her singular vision of domesticity to life in this 18th-century Alpine summer house.`\
+https://nytimes.com/2025/12/10/t-magazine/meret-oppenheim-switzerland-home.html
+
+**Time saver: NFL cuts 2 minutes between picks in first round of draft**\
+`Teams will now have eight minutes to make their first-round selections, as opposed to the previous 10-minute window.`\
+https://nytimes.com/athletic/6879500/2025/12/10/nfl-draft-cuts-time-first-round-2026/
+
 **A Proponent of Election Conspiracy Theories Will Take a Top Role at FEMA**\
 `Gregg Phillips, who spread unsubstantiated claims of mass voter fraud in the 2016 election, will join the agency’s leadership, the Trump administration confirmed.`\
 https://nytimes.com/2025/12/10/climate/gregg-phillips-fema.html
