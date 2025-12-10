@@ -1,3 +1,7 @@
+**This Arkansas City Shows How to Slash Emissions and Save Money, Too**\
+`In the Ozarks, the growing college town of Fayetteville, Ark., is using clean energy to power city facilities and embracing nature-based solutions to climate threats.`\
+https://nytimes.com/2025/12/09/climate/fayetteville-arkansas-climate-plan.html
+
 **Inside the Pentagon’s Scramble to Deal With Boat Strike Survivors**\
 `Officials initially weighed sending survivors of U.S. attacks on boats suspected of drug smuggling to a notorious prison in El Salvador, to keep them away from American courts.`\
 https://nytimes.com/2025/12/09/us/politics/pentagon-boat-strike-survivors.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/09/climate/not-all-drilling-in-texas-is-about-oil.ht
 **Vaughn Grissom trade opens roster spot, but Red Sox remain inactive at Winter Meetings**\
 `The Grissom trade opened a 40-man roster spot for another potential move.`\
 https://nytimes.com/athletic/6877207/2025/12/09/red-sox-vaughn-grissom-trade-inactive-winter-meetings/
-
-**Big 12's Brett Yormark slams Notre Dame AD's criticism of CFP decision: 'Egregious'**\
-`Brett Yormark said he didn’t like how “Notre Dame has reacted” to its exclusion from the College Football Playoff.`\
-https://nytimes.com/athletic/6877181/2025/12/09/big-12-brett-yormark-notre-dame-cfp/
 
