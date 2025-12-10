@@ -1,3 +1,15 @@
+**How to Fight Rising Utility Bills? Take Over the Company, Activists Say.**\
+`A grass-roots coalition is trying to push New York State to use eminent domain to buy out Central Hudson Gas & Electric and replace it with a public authority.`\
+https://nytimes.com/2025/12/10/nyregion/central-hudson-utility-takeover.html
+
+**Twins exploring free-agent first base market: Sources**\
+`ORLANDO, Fla.`\
+https://nytimes.com/athletic/6879767/2025/12/10/twins-mlb-free-agency-first-base/
+
+**Pacific Northwest Faces Some of Its Worst Flooding in Decades This Week**\
+`Tens of thousands of residents in Washington were poised to evacuate, as days of heavy rain sends rivers bursting over their banks.`\
+https://nytimes.com/2025/12/10/weather/washington-rivers-flood-evacuations.html
+
 **After Shutdown, Democrats Claim Credit for Funding They Opposed**\
 `Several Democrats who fought to steer federal money to their states and districts have boasted about their success even after voting against the bill that provided the funds.`\
 https://nytimes.com/2025/12/10/us/politics/shutdown-earmarks-democrats.html
@@ -17,16 +29,4 @@ https://nytimes.com/athletic/6875453/2025/12/10/real-madrid-1-manchester-city-2/
 **13 Charged in Gang-Related Attack That Killed 16-Year-Old in Harlem**\
 `The defendants, members of the “OY” gang, were charged with attempted murder in the death of Tresaun Clements, who was not affiliated with a gang, prosecutors said.`\
 https://nytimes.com/2025/12/10/nyregion/gang-feud-murder-charges-harlem.html
-
-**From the DealBook Summit: Industry Leaders Share Their Insights**\
-`Representing a variety of public and private sectors, guests from technology and finance to education and the artsparticipated in a lunchtime discussion designed to spark conversation around critical questions of the day.`\
-https://nytimes.com/2025/12/10/business/dealbook/groundbreakers-industry-leaders-insights.html
-
-**The End of an Era at One of America’s Most Famous Artist Retreats**\
-`After a quarter century, the Yaddo president Elaina Richardson will step down, having made her mark on the storied arts residency.`\
-https://nytimes.com/2025/12/10/books/elaina-richardson-yaddo.html
-
-**Bayer Leverkusen 2 Newcastle 2: Gordon scores again, Newcastle let victory slip**\
-`Newcastle were on course for a vital win before Leverkusen struck late to deny Eddie Howe's men the three points`\
-https://nytimes.com/athletic/6875451/2025/12/10/bayer-leverkusen-2-newcastle-2-briefing/
 
