@@ -1,3 +1,11 @@
+**YouTube TV to launch a new sports package next year**\
+`Early in 2026, YouTube TV will launch 10 genre-specific packages, including a YouTube TV Sports Plan.`\
+https://nytimes.com/athletic/6879115/2025/12/10/youtube-tv-sports-plan-2026/
+
+**What Could Thwart the G.O.P.’s Plan to Pick Up 5 House Seats in Texas**\
+`Republicans redid their voting maps so they could flip those seats to help keep control of the U.S. House. But achieving that goal is far from guaranteed.`\
+https://nytimes.com/2025/12/10/us/texas-house-redistricting.html
+
 **Prime Tire: Lando Norris lost the battle, but won the war**\
 `Welcome to Prime Tire, The Athletic's F1 newsletter.`\
 https://nytimes.com/athletic/6879040/2025/12/10/lando-norris-f1-championship-prime-tire/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6879074/2025/12/10/joe-buck-ford-c-frick-award-base
 **When will Jayson Tatum return? 'It's all up to him' Joe Mazzulla says**\
 `With Tatum already back to playing one-on-one after tearing his right Achilles tendon in May, the anticipation for his return is building.`\
 https://nytimes.com/athletic/6879162/2025/12/10/jayson-tatum-return-joe-mazzulla/
-
-**Unusually Strong Winter Storms Are Expected to Drop Heavy Snow This Week**\
-`Two storms moving through the Midwest and Northeast are being supercharged by a system on the West Coast. Blizzard warnings are in effect in West Virginia.`\
-https://nytimes.com/2025/12/10/weather/snow-forecast-virginia.html
-
-**The Moral Cost of Our Spectacles of Violence**\
-`Readers respond to an Opinion guest essay by Phil Klay. Also: American evangelicals.`\
-https://nytimes.com/2025/12/10/opinion/violence-moral-cost.html
 

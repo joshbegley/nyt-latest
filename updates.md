@@ -1,3 +1,11 @@
+**YouTube TV to launch a new sports package next year**\
+`Early in 2026, YouTube TV will launch 10 genre-specific packages, including a YouTube TV Sports Plan.`\
+https://nytimes.com/athletic/6879115/2025/12/10/youtube-tv-sports-plan-2026/
+
+**What Could Thwart the G.O.P.’s Plan to Pick Up 5 House Seats in Texas**\
+`Republicans redid their voting maps so they could flip those seats to help keep control of the U.S. House. But achieving that goal is far from guaranteed.`\
+https://nytimes.com/2025/12/10/us/texas-house-redistricting.html
+
 **Prime Tire: Lando Norris lost the battle, but won the war**\
 `Welcome to Prime Tire, The Athletic's F1 newsletter.`\
 https://nytimes.com/athletic/6879040/2025/12/10/lando-norris-f1-championship-prime-tire/
