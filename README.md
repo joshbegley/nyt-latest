@@ -1,3 +1,7 @@
+**For newest Lakers, NBA Cup just the appetizer for their bigger goals**\
+`Are Marcus Smart and Deandre Ayton driven by the NBA Cup? Maybe not, but being Lakers has motivated them to win.`\
+https://nytimes.com/athletic/6877862/2025/12/10/lakers-nba-cup-preview/
+
 **In praise of Clarence Seedorf, one of football's most compelling pundits**\
 `The former Dutch international is not just an excellent analyst but a fine journalist - as his interrogation of Arne Slot proved`\
 https://nytimes.com/athletic/6878196/2025/12/10/clarence-seedorf-arne-slot-tv-pundit/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6877339/2025/12/10/bengals-hendrickson-higgins-burt
 **Why it matters that the Giants move up to 4th pick in the 2026 MLB Draft**\
 `The No. 4 pick is the Kyle Schwarber of picks, almost by definition.`\
 https://nytimes.com/athletic/6877404/2025/12/10/san-francisco-giants-move-up-fourth-pick-mlb-draft/
-
-**Dennis Hildeby is NHL-ready. What does that mean for the Maple Leafs' future?**\
-`Hildeby's unexpected emergence offers flexibility to both coach Craig Berube and GM Brad Treliving later this season.`\
-https://nytimes.com/athletic/6875355/2025/12/10/maple-leafs-hildeby-trade-deadline/
 
