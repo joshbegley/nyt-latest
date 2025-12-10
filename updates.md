@@ -1,3 +1,7 @@
+**Jake Matthews carrying legacy of NFL's most durable family: 'He's the Terminator'**\
+`Toughness is a family affair for Matthews, who will start his 192nd straight game for Atlanta, extending the NFL's longest active streak.`\
+https://nytimes.com/athletic/6875997/2025/12/10/falcons-jake-matthews-family-streak-terminator/
+
 **How My Interfaith Family Figured Out the Holidays**\
 `By Jessica Grose`\
 https://nytimes.com/2025/12/10/opinion/interfaith-family-holiday.html
