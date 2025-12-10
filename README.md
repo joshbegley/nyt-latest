@@ -1,3 +1,11 @@
+**Ranking men's college basketball's 8 undefeated teams, from Michigan to Miami Ohio**\
+`When will Michigan, Iowa State, Duke, Arizona and the others lose their first games? We tried to predict.`\
+https://nytimes.com/athletic/6878349/2025/12/10/college-basketball-undefeated-teams-michigan-iowa-state-duke/
+
+**How Can I Stop My Wife From Badgering Our Friends About Climate Change?**\
+`A reader’s wife is angry about what she sees as insufficient commitment to the cause of environmentalism, alienating the couple’s friends.`\
+https://nytimes.com/2025/12/10/style/how-can-i-stop-my-wife-from-badgering-our-friends-about-climate-change.html
+
 **C.J. Stroud outlasts aggressive Chiefs defense: Week 14 Quick Outs**\
 `Stroud didn't flinch in the face of Steve Spagnuolo's blitz packages, while Bo Nix found a way against the Raiders.`\
 https://nytimes.com/athletic/6876535/2025/12/10/nfl-week-14-stroud-packers-bo-nix/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6877235/2025/12/10/chicago-cubs-youth-movement-crai
 **Lowetide: Projecting the Oilers’ trade deadline plans and ideal targets**\
 `Oilers fans are focused on goaltending, but is the market there for a truly elite acquisition?`\
 https://nytimes.com/athletic/6874729/2025/12/10/edmonton-oilers-trades-targets-deadline-plans-2025/
-
-**Are We Losing Our Democracy?**\
-`While the United States is not yet close to a full-on autocracy, the New York Times editorial board outlines some of the warning signs of democratic erosion already taking place, thanks to the efforts of President Trump.`\
-https://nytimes.com/video/opinion/100000010539842/are-we-losing-our-democracy.html
-
-**Trump Administration Live Updates: In Speech on Economy, President Veers into Anti-Immigration Tirade**\
-``\
-https://nytimes.com/live/2025/12/10/us/trump-news
 
