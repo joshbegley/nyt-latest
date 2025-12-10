@@ -1,4 +1,20 @@
-**When will Jayson Tatum be back? 'It's all up to him' Joe Mazzulla says**\
+**Denied Federal Disaster Aid, a Town in Trump Country Feels Forgotten**\
+`FEMA rejected requests for federal assistance, twice, after devastating floods in western Maryland, part of a larger pattern of making communities pay for their own disaster recovery.`\
+https://nytimes.com/2025/12/10/us/trump-maryland-floods-disaster-aid.html
+
+**As the Price of Beef Soars, Restaurants Are in ‘Code Red’ Mode**\
+`Midpriced steakhouses and fine-dining establishments are trying to figure out how to cover their rising costs without scaring away customers.`\
+https://nytimes.com/2025/12/10/business/beef-prices-steakhouses.html
+
+**Mets did not make an offer to Pete Alonso before he agreed to Orioles deal: Sources**\
+`The Mets held some interest in bringing Alonso back but were uncomfortable with matching the lengths of what he got.`\
+https://nytimes.com/athletic/6879283/2025/12/10/mlb-pete-alonso-mets-did-not-offer-contract/
+
+**Joe Buck to join Baseball Hall of Fame as Ford C. Frick winner**\
+`Buck began his major-league broadcasting career with the St. Louis Cardinals in 1991 and quickly became a fixture on national games.`\
+https://nytimes.com/athletic/6879074/2025/12/10/joe-buck-ford-c-frick-award-baseball-hall-of-fame/
+
+**When will Jayson Tatum return? 'It's all up to him' Joe Mazzulla says**\
 `With Tatum already back to playing one-on-one after tearing his right Achilles tendon in May, the anticipation for his return is building.`\
 https://nytimes.com/athletic/6879162/2025/12/10/jayson-tatum-return-joe-mazzulla/
 
@@ -17,20 +33,4 @@ https://nytimes.com/2025/12/10/world/middleeast/yemen-separatists.html
 **ACC to examine tiebreaker policy after league champ left out of CFP**\
 `Speaking publicly Wednesday, commissioner Jim Phillips didn't directly address the current friction between the league and Notre Dame. `\
 https://nytimes.com/athletic/6879198/2025/12/10/acc-tiebreaker-policy-duke-virginia-miami/
-
-**Bears coach Ben Johnson issues a mandate: It's all hands on deck to ignite the passing game**\
-`The Bears sense potential for an offensive breakthrough soon. But ... "It's got to happen. We can't just keep saying we're close." `\
-https://nytimes.com/athletic/6876442/2025/12/10/bears-passing-game-caleb-williams/
-
-**Submit your questions for Kevin Fishbain's Bears mailbag**\
-`The Bears' loss in Green Bay dropped them from the No. 1 seed to No. 7 in the NFC. Now they host the Browns. What's on your mind?`\
-https://nytimes.com/athletic/6879219/2025/12/10/submit-your-questions-for-kevin-fishbains-bears-mailbag-19/
-
-**Louvre Heist Was Caught on Film, Officials Say, Rebutting Director’s Account**\
-`Investigators said that a security camera recorded thieves preparing to burgle the Louvre, but that guards didn’t watch the feed in time. The museum’s director had previously said the camera was facing the wrong way.`\
-https://nytimes.com/2025/12/10/world/europe/louvre-heist-camera-delay.html
-
-**Starting With Formaldehyde, Trump Administration Reassesses Chemical Risks**\
-`A draft memo from the E.P.A. assumes a safe threshold exists for formaldehyde, upending earlier findings that there is no safe level of exposure to the carcinogen.`\
-https://nytimes.com/2025/12/10/climate/starting-with-formaldehyde-trump-administration-reassesses-chemical-risks.html
 
