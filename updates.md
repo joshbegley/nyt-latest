@@ -1,3 +1,7 @@
+**NFL Week 15 staff picks: Who should start panicking?**\
+`Several teams are in desperation mode heading into Week 15. Which ones might be at the end of the road?`\
+https://nytimes.com/athletic/6875812/2025/12/10/nfl-week-15-staff-picks-postseason-stakes/
+
 **The Bounce: Who'll join the Knicks and Magic in the NBA Cup semifinals?**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/6878621/2025/12/10/the-bounce-wholl-join-the-knicks-and-magic-in-the-nba-cup-semifinals/
