@@ -10,8 +10,8 @@ https://nytimes.com/athletic/6879706/2025/12/10/nfl-referees-officials-collectiv
 `At this year’s DealBook Summit, there was an understanding that in the Trump era, business runs through the White house like never before.`\
 https://nytimes.com/2025/12/10/business/dealbook/summit-trump-new-normal.html
 
-**The Briefing: Real Madrid 1 Manchester City 2 - Pep's team potential winners? What next for Alonso?**\
-`City came from behind to win in the Bernabeu and take a big step towards a place in the Champions League Last 16...`\
+**The Briefing: Real Madrid 1 Manchester City 2 - Are Guardiola's side potential winners? What next for Alonso?**\
+`City came from behind to win in the Bernabeu and take a big step towards a place in the Champions League last 16...`\
 https://nytimes.com/athletic/6875453/2025/12/10/real-madrid-1-manchester-city-2/
 
 **13 Charged in Gang-Related Attack That Killed 16-Year-Old in Harlem**\
