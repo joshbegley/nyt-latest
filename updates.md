@@ -1,3 +1,7 @@
+**Inside the Pentagon’s Scramble to Deal With Boat Strike Survivors**\
+`Officials initially weighed sending survivors of U.S. attacks on boats suspected of drug smuggling to a notorious prison in El Salvador, to keep them away from American courts.`\
+https://nytimes.com/2025/12/09/us/politics/pentagon-boat-strike-survivors.html
+
 **Heat-Magic NBA Cup takeaways: Orlando rallies after slow start to advance**\
 `Orlando flipped the script Tuesday, hitting 15-of-32 3-pointers to overcome a slow start and advance.`\
 https://nytimes.com/athletic/6874219/2025/12/09/nba-cup-quarterfinals-takeaways-heat-magic-knicks-raptors/
