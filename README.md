@@ -1,3 +1,11 @@
+**Mavericks' Dereck Lively will miss rest of season after foot surgery**\
+`The 21-year-old played in just seven games this season while dealing with persistent right foot issues.`\
+https://nytimes.com/athletic/6879032/2025/12/10/dereck-lively-injury-mavericks-foot/
+
+**A divided Fed is meeting with incomplete data.**\
+`By Ben Casselman`\
+https://nytimes.com/live/2025/12/10/business/federal-reserve-interest-rates/fed-interest-rates-labor-data
+
 **How to Read the Fed’s Projections Like a Pro**\
 `The forecasts will offer a glimpse of the path for policy at a highly uncertain moment for economy — and the central bank.`\
 https://nytimes.com/2025/12/10/business/fed-interest-rates-economy-projections.html
@@ -21,16 +29,4 @@ https://nytimes.com/2025/12/10/movies/sundance-film-festival-charli-xcx-olivia-w
 **Is It OK to Break Up With a Troubled Friend?**\
 `At what point is stepping back self-protection rather than abandonment?`\
 https://nytimes.com/2025/12/10/magazine/ethics-troubled-friend.html
-
-**Danish Intelligence Report Raises Concerns About U.S.**\
-`A new document cites Washington’s shifting strategic priorities and growing pressure on allies under President Trump as sources of uncertainty for Denmark.`\
-https://nytimes.com/2025/12/10/world/europe/danish-intelligence-concerns-about-us.html
-
-**Notre Dame's ACC anger is about more than tweets. What will the Irish do about it?**\
-`The question for Notre Dame is how much leverage it can really use against a conference it has partially called home since 2014.`\
-https://nytimes.com/athletic/6878741/2025/12/10/notre-dame-acc-conference-relationship-pete-bevacqua/
-
-**Wendy Osefo Is the Latest ‘Real Housewives’ Star in Legal Trouble**\
-`Osefo, of “The Real Housewives of Potomac,” faces several counts of fraud. She is the latest in a long line of “Housewives” personalities to face legal trouble.`\
-https://nytimes.com/2025/12/10/arts/television/wendy-osefo-real-housewives.html
 
