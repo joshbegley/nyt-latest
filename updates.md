@@ -1,3 +1,11 @@
+**The Pulse: MLB’s offseason finally clicks on**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6875698/2025/12/10/mlbs-offseason-finally-clicks-on-with-multiple-signings-plus-two-buzzer-beaters/
+
+**England to play Uruguay and Japan in March World Cup warm-up friendlies**\
+`Thomas Tuchel's side will face Uruguay at Wembley on Friday March 27, before hosting Japan in the same venue four days later.`\
+https://nytimes.com/athletic/6878148/2025/12/10/england-friendlies-march-uruguay-japan-wembley/
+
 **I.M.F. Prods China, Gently, on Its Weak Currency**\
 `Caught between Beijing and the Trump administration, the International Monetary Fund offered mild criticism of China for relying too heavily on exports.`\
 https://nytimes.com/2025/12/10/business/imf-china-currency.html
