@@ -1,3 +1,7 @@
+**TV drama on gambling scandal surrounding Ohtani's ex-interpreter in development**\
+`The Lionsgate TV project will focus on Ippei Mizuhara's gambling scandal, which led to his firing by the Dodgers.`\
+https://nytimes.com/athletic/6877219/2025/12/09/shohei-ohtani-interpreter-tv-series/
+
 **Giants celebrate draft lottery luck but prefer not to push it with Logan Webb and the WBC**\
 `San Francisco moved all the way up to the No. 4 selection.`\
 https://nytimes.com/athletic/6877411/2025/12/09/san-francisco-giants-lottery-luck-logan-webb-wbc/
