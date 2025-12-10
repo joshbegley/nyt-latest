@@ -1,3 +1,7 @@
+**C.J. Stroud outlasts aggressive Chiefs defense: Week 14 Quick Outs**\
+`Stroud didn't flinch in the face of Steve Spagnuolo's blitz packages, while Bo Nix found a way against the Raiders.`\
+https://nytimes.com/athletic/6876535/2025/12/10/nfl-week-14-stroud-packers-bo-nix/
+
 **Minor-league rule change experiment could eliminate hitter timeouts: Sources**\
 `MLB is considering a rule change to eliminate hitter timeouts entirely, or reduce their length, in three Low-A minor leagues next year. `\
 https://nytimes.com/athletic/6878320/2025/12/10/minor-leagues-hitter-timeouts-rule-change-mlb/
@@ -29,8 +33,4 @@ https://nytimes.com/video/opinion/100000010539842/are-we-losing-our-democracy.ht
 **Trump Administration Live Updates: In Speech on Economy, President Veers into Anti-Immigration Tirade**\
 ``\
 https://nytimes.com/live/2025/12/10/us/trump-news
-
-**Why Markets Are Getting Anxious About the Fed**\
-`The central bank is widely expected to lower its benchmark lending rate on Wednesday. But investors are worried about what comes afterward.`\
-https://nytimes.com/2025/12/10/business/dealbook/fed-rates-powell-trump.html
 
