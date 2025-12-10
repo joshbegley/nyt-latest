@@ -1,3 +1,11 @@
+**Prime Tire: Lando Norris lost the battle, but won the war**\
+`Welcome to Prime Tire, The Athletic's F1 newsletter.`\
+https://nytimes.com/athletic/6879040/2025/12/10/lando-norris-f1-championship-prime-tire/
+
+**F.A.A. Chief Failed to Divest Airline Holdings as Promised, Ethics Agency Says**\
+`The Office of Government Ethics told senators that Bryan Bedford, the F.A.A. administrator, did not divest from the airline he previously ran as he had agreed.`\
+https://nytimes.com/2025/12/10/us/politics/bryan-bedford-faa-airline-holdings-ethics.html
+
 **Denied Federal Disaster Aid, a Town in Trump Country Feels Forgotten**\
 `FEMA rejected requests for federal assistance, twice, after devastating floods in western Maryland, part of a larger pattern of making communities pay for their own disaster recovery.`\
 https://nytimes.com/2025/12/10/us/trump-maryland-floods-disaster-aid.html
@@ -10,7 +18,7 @@ https://nytimes.com/2025/12/10/business/beef-prices-steakhouses.html
 `The Mets held some interest in bringing Alonso back but were uncomfortable with matching the lengths of what he got.`\
 https://nytimes.com/athletic/6879283/2025/12/10/mlb-pete-alonso-mets-did-not-offer-contract/
 
-**Joe Buck to join Baseball Hall of Fame as Ford C. Frick winner**\
+**Joe Buck to join National Baseball Hall of Fame as Ford C. Frick winner**\
 `Buck began his major-league broadcasting career with the St. Louis Cardinals in 1991 and quickly became a fixture on national games.`\
 https://nytimes.com/athletic/6879074/2025/12/10/joe-buck-ford-c-frick-award-baseball-hall-of-fame/
 
@@ -25,12 +33,4 @@ https://nytimes.com/2025/12/10/weather/snow-forecast-virginia.html
 **The Moral Cost of Our Spectacles of Violence**\
 `Readers respond to an Opinion guest essay by Phil Klay. Also: American evangelicals.`\
 https://nytimes.com/2025/12/10/opinion/violence-moral-cost.html
-
-**Yemeni Separatists Set Sights on Houthi-Controlled Capital**\
-`The Southern Transitional Council has seized control of parts of Yemen over the past week, with ambitions to create a “south Arabian state.”`\
-https://nytimes.com/2025/12/10/world/middleeast/yemen-separatists.html
-
-**ACC to examine tiebreaker policy after league champ left out of CFP**\
-`Speaking publicly Wednesday, commissioner Jim Phillips didn't directly address the current friction between the league and Notre Dame. `\
-https://nytimes.com/athletic/6879198/2025/12/10/acc-tiebreaker-policy-duke-virginia-miami/
 
