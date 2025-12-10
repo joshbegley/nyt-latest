@@ -1,9 +1,21 @@
+**Yankees make Rule 5 draft pick for first time in 14 years**\
+`Winquest, 25, had a 3.99 ERA in High A and Double A last season in the Cardinals organization. The Yankees view him as a reliever. `\
+https://nytimes.com/athletic/6879119/2025/12/10/yankees-rule-5-draft-cade-winquest/
+
+**Judge Emil Bove Faces Ethics Complaint for Attending Trump Rally**\
+`One of the president’s appeals-court nominees, a former lawyer for the president, was in the crowd at a raucous event in Mt. Pocono, Pa.`\
+https://nytimes.com/2025/12/10/us/politics/emil-bove-trump-rally.html
+
+**In a Tumultuous Era, Global Alliances and Practices Are Upended**\
+`While President Trump has made positive moves, panelists on a DealBook task force pointed to Ukraine, Venezuela and, especially, China as serious missteps.`\
+https://nytimes.com/2025/12/10/business/dealbook/global-leadership-task-force.html
+
 **For Business Leaders, It’s the Personal Connections That Keep Them Going**\
 `Executives on a DealBook Summit task force panel said fear was not the way to build teams capable of navigating difficult times.`\
 https://nytimes.com/2025/12/10/business/dealbook/business-executives-leadership-task-force.html
 
 **Utah Conservation Groups Lead Beaver Relocation Effort**\
-`Conservation groups in Utah are relocating beavers who have been labeled as nuisances to new habitats. Beavers provide several benefits to the ecosystem such as building habitats and reducing runoff.`\
+`Conservation groups in Utah are relocating beavers that have been labeled as nuisances to new habitats. Beavers provide several benefits to the ecosystem such as building habitats and reducing runoff.`\
 https://nytimes.com/video/climate/100000010579586/utah-conservation-groups-lead-beaver-relocation-effort.html
 
 **A Controversial Nobel Peace Prize**\
@@ -21,12 +33,4 @@ https://nytimes.com/athletic/6879444/2025/12/10/pete-alonso-baltimore-orioles-si
 **Higher Education Plans for a Future Markedly Changed by A.I.**\
 `Leaders of colleges and universities on a panel at the DealBook Summit said other challenges they face include government pressure and preparing graduates for a new world.`\
 https://nytimes.com/2025/12/10/business/dealbook/higher-education-task-force.html
-
-**Tennessee expected to hire Penn State DC Jim Knowles for same role**\
-`Knowles spent three years with the Buckeyes before joining James Franklin at Penn State.`\
-https://nytimes.com/athletic/6879735/2025/12/10/tennessee-penn-state-dc-jim-knowles-hiring/
-
-**A'ja Wilson after Time magazine honor: 'On my way' to becoming GOAT**\
-`Wilson addressed her status in basketball history, the state of WNBA collective bargaining negotiations and more.`\
-https://nytimes.com/athletic/6879236/2025/12/10/aja-wilson-time-athlete-of-year-wnba/
 
