@@ -26,8 +26,8 @@ https://nytimes.com/athletic/6876675/2025/12/10/paul-pogba-camel-racing/
 `Find out how to watch the Minnesota Vikings play the Dallas Cowboys, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6877901/2025/12/10/vikings-vs-cowboys-stream-how-to-watch-dec-14/
 
-**Most starting-XI changes, most substitutions: Does Maresca need to reconsider his rotation policy?**\
-`No manager has tinkered more with their starting line-up - or made more in-game alterations - this season than Chesea's head coach`\
+**Most starting XI changes, most substitutions: Does Maresca need to reconsider his rotation policy?**\
+`No Premier League boss has tinkered more with their starting line-up - or made as many in-game changes - this season than the Italian`\
 https://nytimes.com/athletic/6877138/2025/12/10/chelsea-rotation-enzo-maresca-atalanta/
 
 **Machado Won’t Pick Up Peace Prize in Person, Nobel Director Says**\
