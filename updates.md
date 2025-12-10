@@ -1,3 +1,11 @@
+**Mavericks' Dereck Lively will miss rest of season after foot surgery**\
+`The 21-year-old played in just seven games this season while dealing with persistent right foot issues.`\
+https://nytimes.com/athletic/6879032/2025/12/10/dereck-lively-injury-mavericks-foot/
+
+**A divided Fed is meeting with incomplete data.**\
+`By Ben Casselman`\
+https://nytimes.com/live/2025/12/10/business/federal-reserve-interest-rates/fed-interest-rates-labor-data
+
 **How to Read the Fed’s Projections Like a Pro**\
 `The forecasts will offer a glimpse of the path for policy at a highly uncertain moment for economy — and the central bank.`\
 https://nytimes.com/2025/12/10/business/fed-interest-rates-economy-projections.html
