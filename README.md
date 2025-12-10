@@ -1,8 +1,16 @@
+**Tony Dokoupil Is Named Anchor of ‘CBS Evening News’**\
+`He replaces John Dickerson and Maurice DuBois in one of the most high-profile decisions of Bari Weiss’s early tenure as the network’s editor in chief.`\
+https://nytimes.com/2025/12/10/business/tony-dokoupil-cbs-evening-news.html
+
+**Orlando finalizing deal to sign Brazilian winger Tiago from Bahia**\
+`Orlando will pay a fee around $4 million for the signing of the 20-year-old.`\
+https://nytimes.com/athletic/6878500/2025/12/10/tiago-orlando-city-bahia-transfer-news/
+
 **NFL returning to Munich in 2026 and 2028 for international football games**\
 `The NFL previously held games in Munich in 2022 (Seahawks-Buccaneers) and in 2024 (Giants-Panthers).`\
 https://nytimes.com/athletic/6878400/2025/12/10/nfl-munich-international-games-german-fans/
 
-**Ranking men's college basketball's 8 undefeated teams, from Michigan to Miami Ohio**\
+**Ranking men's college basketball's 8 undefeated teams, from Michigan to Miami (Ohio)**\
 `When will Michigan, Iowa State, Duke, Arizona and the others lose their first games? We tried to predict.`\
 https://nytimes.com/athletic/6878349/2025/12/10/college-basketball-undefeated-teams-michigan-iowa-state-duke/
 
@@ -25,12 +33,4 @@ https://nytimes.com/2025/12/10/books/sophie-kinsella-dead-madeleine-wickham.html
 **Pointed outbursts, cryptic commentary and geopolitics: How Salah uses the media**\
 `The Liverpool forward has one of the biggest followings in the world on social platforms - and has finally found his voice `\
 https://nytimes.com/athletic/6610109/2025/12/10/mohamed-salah-liverpool-social-media/
-
-**Mandel's Mailbag: The committee is center stage for this year's CFP outrage**\
-`Fans are mad again, but this time it isn't all about the format — its about the people running it.`\
-https://nytimes.com/athletic/6877349/2025/12/10/college-football-playoff-committee-notre-dame/
-
-**With Kyle Tucker's likely exit, Craig Counsell seems comfortable with youth movement**\
-`Even if there isn’t an impactful, established bat added to this roster, Counsell sees a pathway to a strong offense.`\
-https://nytimes.com/athletic/6877235/2025/12/10/chicago-cubs-youth-movement-craig-counsell/
 
