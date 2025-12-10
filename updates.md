@@ -1,3 +1,7 @@
+**Holiday Spending Shows Effects of an Uneven Economy**\
+`Discount and higher-end retailers have reported stronger sales from consumers who are hunting for the best deals and long-lasting items.`\
+https://nytimes.com/2025/12/10/business/holiday-spending-economy.html
+
 **Mavericks' Dereck Lively II will miss rest of season after foot surgery**\
 `The 21-year-old played in just seven games this season while dealing with persistent right foot issues.`\
 https://nytimes.com/athletic/6879032/2025/12/10/dereck-lively-injury-mavericks-foot/
