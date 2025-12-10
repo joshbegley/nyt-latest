@@ -1,3 +1,7 @@
+**NFL returning to Munich in 2026 and 2028 for international football games**\
+`The NFL previously held games in Munich in 2022 (Seahawks-Buccaneers) and in 2024 (Giants-Panthers).`\
+https://nytimes.com/athletic/6878400/2025/12/10/nfl-munich-international-games-german-fans/
+
 **Ranking men's college basketball's 8 undefeated teams, from Michigan to Miami Ohio**\
 `When will Michigan, Iowa State, Duke, Arizona and the others lose their first games? We tried to predict.`\
 https://nytimes.com/athletic/6878349/2025/12/10/college-basketball-undefeated-teams-michigan-iowa-state-duke/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6877349/2025/12/10/college-football-playoff-committ
 **With Kyle Tucker's likely exit, Craig Counsell seems comfortable with youth movement**\
 `Even if there isn’t an impactful, established bat added to this roster, Counsell sees a pathway to a strong offense.`\
 https://nytimes.com/athletic/6877235/2025/12/10/chicago-cubs-youth-movement-craig-counsell/
-
-**Lowetide: Projecting the Oilers’ trade deadline plans and ideal targets**\
-`Oilers fans are focused on goaltending, but is the market there for a truly elite acquisition?`\
-https://nytimes.com/athletic/6874729/2025/12/10/edmonton-oilers-trades-targets-deadline-plans-2025/
 
