@@ -2,6 +2,10 @@
 `Caught between Beijing and the Trump administration, the International Monetary Fund offered mild criticism of China for relying too heavily on exports.`\
 https://nytimes.com/2025/12/10/business/imf-china-currency.html
 
+**Bears coach Ben Johnson issues a mandate: It's all hands on deck to ignite the passing game**\
+`The Bears sense potential for an offensive breakthrough soon. But ... "It's got to happen. We can't just keep saying we're close." `\
+https://nytimes.com/athletic/6876442/2025/12/10/bears-passing-game-caleb-williams/
+
 **Why Chiefs' best playoff path would require a cruel twist: Cheering on the Broncos**\
 `Here's how The Athletic's Playoff Simulator handicaps the Chiefs' current odds of making the postseason.`\
 https://nytimes.com/athletic/6876494/2025/12/10/chiefs-playoff-possibilities-broncos/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6876208/2025/12/10/colts-philip-rivers-father-time-
 **F1 mailbag: Where does Piastri need to improve? What number will Verstappen use?**\
 `After a three-way title race, F1 takes a short breather. Luke Smith and Madeline Coleman answer your questions about 2026`\
 https://nytimes.com/athletic/6875371/2025/12/10/f1-mailbag-2025-recap-oscar-piastri-max-verstappen/
-
-**Jalen Brunson has flipped the script of his scoring ability**\
-`Brunson's first-quarter dominance propelled the Knicks to the NBA Cup semifinals. `\
-https://nytimes.com/athletic/6877787/2025/12/10/knicks-raptors-jalen-brunson-nba-cup-quarterfinals/
 
