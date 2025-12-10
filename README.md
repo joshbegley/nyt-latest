@@ -31,6 +31,6 @@ https://nytimes.com/athletic/6879296/2025/12/10/ioc-comments-olympic-ice-surface
 https://nytimes.com/athletic/6879115/2025/12/10/youtube-tv-sports-plan-2026/
 
 **What Could Thwart the G.O.P.’s Plan to Pick Up 5 House Seats in Texas**\
-`Republicans redid their voting maps so they could flip those seats to help keep control of the U.S. House. But achieving that goal is far from guaranteed.`\
+`Republicans redid their voting map so they could flip those seats to help keep control of the U.S. House. But achieving that goal is far from guaranteed.`\
 https://nytimes.com/2025/12/10/us/texas-house-redistricting.html
 

@@ -1,3 +1,15 @@
+**NFL votes to invest, develop professional flag football leagues**\
+`Flag football ranks among the world’s fastest-growing sports with 20 million players worldwide, according to the NFL.`\
+https://nytimes.com/athletic/6879289/2025/12/10/nfl-votes-develop-flag-football/
+
+**Instant grades for college football's 2025-26 head-coaching hires**\
+`In college football, you never really know whether a coaching hire is going to work. But it's never too early to talk about fit.`\
+https://nytimes.com/athletic/6827060/2025/12/10/college-football-coaching-carousel-grades/
+
+**Olympic officials say smaller hockey rink 'exactly what it should be,' acknowledge arena delays**\
+`The IOC sports director said Wednesday that "everybody's now aligned" on the rinks' dimensions, which came as a surprise to many last week.`\
+https://nytimes.com/athletic/6879296/2025/12/10/ioc-comments-olympic-ice-surface/
+
 **There’s Party Power in the Shrimp Tower**\
 `Whether to save space, wow guests or indulge in nostalgia, tall food is taking over. This edible tree checks all three boxes.`\
 https://nytimes.com/2025/12/10/dining/holiday-party-shrimp-tower.html
