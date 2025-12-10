@@ -1,5 +1,13 @@
-**Wenne Alton Davis, Actor in ‘Marvelous Mrs. Maisel,’ Hit by Auto and Killed**\
-`The actor, 60, was struck by an S.U.V. in Midtown Manhattan late on Monday, her agent and the police said.`\
+**What I'm hearing about moves as MLS free agency begins**\
+`The start of MLS free agency hass sparked a flurry of activity around the league`\
+https://nytimes.com/athletic/6879167/2025/12/10/mls-free-agency-eneli-stroud-rsl/
+
+**A Stranger Found Ricki Lake’s Lost Family Photos After L.A. Wildfires**\
+`Patty Scanlon bought a box of snapshots for $20 at a flea market and was stunned to find family photos of Ms. Lake, whose house burned down in January.`\
+https://nytimes.com/2025/12/10/us/ricki-lake-photos-los-angeles-wildfires.html
+
+**Wenne Alton Davis, Actor in ‘Marvelous Mrs. Maisel,’ Hit by S.U.V. and Killed**\
+`The actor, 60, was struck by a vehicle in Midtown Manhattan late on Monday, her agent and the police said.`\
 https://nytimes.com/2025/12/10/us/wenne-alton-davis-dead.html
 
 **Agriculture Department Approves More Soda Bans For Food Stamps**\
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6879379/2025/12/10/philip-rivers-colts-legit-playof
 **Instant grades for college football's 2025-26 head-coaching hires**\
 `In college football, you never really know whether a coaching hire is going to work. But it's never too early to talk about fit.`\
 https://nytimes.com/athletic/6827060/2025/12/10/college-football-coaching-carousel-grades/
-
-**NFL Week 15 confidence picks: Why Green Bay will beat Denver**\
-`KC Joyner picks every Week 15 NFL game straight-up and against the spread.`\
-https://nytimes.com/athletic/6878138/2025/12/10/nfl-week-15-confidence-picks-packers-broncos/
-
-**Olympic officials say smaller hockey rink 'exactly what it should be,' acknowledge arena delays**\
-`The IOC sports director said Wednesday that "everybody's now aligned" on the rinks' dimensions, which came as a surprise to many last week.`\
-https://nytimes.com/athletic/6879296/2025/12/10/ioc-comments-olympic-ice-surface/
 
