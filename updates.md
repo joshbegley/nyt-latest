@@ -1,3 +1,7 @@
+**The Briefing: Real Madrid 1 Manchester City 2 - Are Guardiola's side potential winners? What next for Alonso?**\
+`City came from behind to win in the Bernabeu and take a big step towards a place in the Champions League last 16...`\
+https://nytimes.com/athletic/6875453/2025/12/10/real-madrid-1-manchester-city-2/
+
 **After Shutdown, Democrats Claim Credit for Funding They Opposed**\
 `Several Democrats who fought to steer federal money to their states and districts have boasted about their success even after voting against the bill that provided the funds.`\
 https://nytimes.com/2025/12/10/us/politics/shutdown-earmarks-democrats.html
