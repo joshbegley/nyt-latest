@@ -1,3 +1,7 @@
+**Democrats Abandon Effort to Defang a Corruption Watchdog in New Jersey**\
+`The state comptroller has aggressively investigated fiscal misconduct. The Democratic leader of the State Senate had introduced legislation blocking the office from subpoenaing records.`\
+https://nytimes.com/2025/12/10/nyregion/democrats-new-jersey-corruption-legislation.html
+
 **Jayden Daniels out vs. Giants, Marcus Mariota to start for Commanders**\
 `Coach Dan Quinn made the announcement on Wednesday, but didn’t make any proclamation about Daniels’ status for the final three games.`\
 https://nytimes.com/athletic/6879125/2025/12/10/jayden-daniels-out-giants-marcus-mariota-starting/
@@ -25,8 +29,4 @@ https://nytimes.com/live/2025/12/10/business/federal-reserve-interest-rates/fed-
 **How to Read the Fed’s Projections Like a Pro**\
 `The forecasts will offer a glimpse of the path for policy at a highly uncertain moment for economy — and the central bank.`\
 https://nytimes.com/2025/12/10/business/fed-interest-rates-economy-projections.html
-
-**What the Fed’s Rate Decision Means for Your Finances**\
-`See how the central bank’s interest rate stance influences car loans, credit cards, mortgages, savings and student loans.`\
-https://nytimes.com/2025/12/10/business/fed-interest-rates-loans-mortgages-credit-cards.html
 

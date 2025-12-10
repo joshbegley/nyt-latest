@@ -1,3 +1,11 @@
+**Jayden Daniels out vs. Giants, Marcus Mariota to start for Commanders**\
+`Coach Dan Quinn made the announcement on Wednesday, but didn’t make any proclamation about Daniels’ status for the final three games.`\
+https://nytimes.com/athletic/6879125/2025/12/10/jayden-daniels-out-giants-marcus-mariota-starting/
+
+**An Easy Holiday Feast That Won’t Break the Bank**\
+`Melissa Clark’s braised pork shoulder with tomatoes, lemons and olives rises to the occasion without much fuss.`\
+https://nytimes.com/2025/12/10/dining/holiday-braised-pork-shoulder-recipe.html
+
 **Brian Cashman on Yankees' lack of moves at Winter Meetings: 'I haven’t accomplished anything'**\
 `Last year at this time, the Yankees were in a holding pattern as they waited on Juan Soto. That's not the case this winter.`\
 https://nytimes.com/athletic/6878794/2025/12/10/yankees-winter-meetings-transactions-brian-cashman/
@@ -21,12 +29,4 @@ https://nytimes.com/2025/12/10/business/fed-interest-rates-economy-projections.h
 **What the Fed’s Rate Decision Means for Your Finances**\
 `See how the central bank’s interest rate stance influences car loans, credit cards, mortgages, savings and student loans.`\
 https://nytimes.com/2025/12/10/business/fed-interest-rates-loans-mortgages-credit-cards.html
-
-**Live Updates: Fed Expected to Cut Rates Again**\
-`Officials at the Federal Reserve have indicated they planned to make a third interest rate cut this year after the labor market has shown signs of weakness.`\
-https://nytimes.com/live/2025/12/10/business/federal-reserve-interest-rates
-
-**Blues bring back Robby Fabbri, signing forward to 1-year, 2-way contract**\
-`Fabbri, a former Blues first-round pick, will join the injury-riddled team in Nashville on Thursday prior to its game against the Predators.`\
-https://nytimes.com/athletic/6878935/2025/12/10/blues-robby-fabbri-signing/
 
