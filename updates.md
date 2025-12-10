@@ -1,3 +1,7 @@
+**Judge Grants Request to Unseal Epstein Grand Jury Records**\
+`The ruling could lead to the most expansive look yet at the federal investigation of the convicted sex offender Jeffrey Epstein.`\
+https://nytimes.com/2025/12/10/nyregion/jeffrey-epstein-grand-jury-unsealed.html
+
 **Judge Says Trump Must End Guard Deployment in Los Angeles**\
 `A federal judge ruled that the Trump administration had illegally kept troops in Los Angeles after emergency conditions had ended. The administration is expected to appeal.`\
 https://nytimes.com/2025/12/10/us/politics/national-guard-los-angeles-trump.html
