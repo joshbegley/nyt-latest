@@ -1,3 +1,11 @@
+**Wenne Alton Davis, Actor in ‘Marvelous Mrs. Maisel,’ Hit by Auto and Killed**\
+`The actor, 60, was struck by an S.U.V. in Midtown Manhattan late on Monday, her agent and the police said.`\
+https://nytimes.com/2025/12/10/us/wenne-alton-davis-dead.html
+
+**Agriculture Department Approves More Soda Bans For Food Stamps**\
+`Six more states have been approved for waivers that ban the purchase of some sugary foods and beverages using food stamps.`\
+https://nytimes.com/2025/12/10/us/politics/agriculture-department-approves-more-soda-bans-for-food-stamps.html
+
 **What Could Thwart the G.O.P.’s Plan to Pick Up 5 House Seats in Texas**\
 `Republicans redid their voting map so they could flip those seats to help keep control of the U.S. House. But achieving that goal is far from guaranteed.`\
 https://nytimes.com/2025/12/10/us/texas-house-redistricting.html
