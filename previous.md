@@ -1,3 +1,7 @@
+**Trump Attacks Fed Governors Ahead of Key Interest Rate Meeting**\
+`During a speech in Pennsylvania focused on the economy, President Trump criticized the Fed chair, Jerome Powell, and four other members. The attack came as the Fed prepares to reveal new interest rates.`\
+https://nytimes.com/video/us/politics/100000010577712/trump-fed-powell-interest-rate.html
+
 **Is it fair to say Tottenham did not play 'like a big team' against Slavia Prague?**\
 `Pundit Joe Hart was critical of Spurs' mentality against Slavia Prague. Did he have a point?`\
 https://nytimes.com/athletic/6877194/2025/12/10/tottenham-slavia-prague-joe-hart/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6865671/2025/12/10/andy-zaltzman-tms-cricket-john-o
 **Rod Paige, Education Secretary Who Defended ‘No Child Left Behind,’ Dies at 92**\
 `He was both the first Black person and the first educator to hold the cabinet position, but resigned amid discord over George W. Bush’s No Child Left Behind.`\
 https://nytimes.com/2025/12/10/obituaries/rod-paige-dead.html
-
-**Aston Villa, Unai Emery and a remarkable home record**\
-`Arsenal. Manchester City (twice). Paris Saint-Germain. All have been beaten at Villa Park in 2025 — these are good times at the club`\
-https://nytimes.com/athletic/6872914/2025/12/10/aston-villa-unai-emery-home-record/
 
