@@ -1,3 +1,11 @@
+**A Surrogacy Firm Told Parents-to-Be Their Money Was Safe. Suddenly, It Vanished.**\
+`Surro Connections held itself out as a reliable business. Now, clients have lost as much as tens of thousands of dollars meant to compensate women carrying their pregnancies.`\
+https://nytimes.com/2025/12/10/health/surro-connections-surrogacy-closure.html
+
+**Shedeur Sanders more focused on Browns beating Bears than his future**\
+`"I'm not content with my situation," Sanders said. "I'm just trying to lead this team."`\
+https://nytimes.com/athletic/6879489/2025/12/10/shedeur-sanders-browns-future-bears/
+
 **How to watch Ball State vs. Louisville women's basketball: Time, TV, streaming**\
 `Find out how to watch the Ball State Cardinals play the Louisville Cardinals, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6879608/2025/12/10/ball-state-vs-louisville-stream-how-to-watch-dec-10/
