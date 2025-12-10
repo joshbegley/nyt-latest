@@ -1,3 +1,11 @@
+**The Bounce: Who'll join the Knicks and Magic in the NBA Cup semifinals?**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/6878621/2025/12/10/the-bounce-wholl-join-the-knicks-and-magic-in-the-nba-cup-semifinals/
+
+**WTA Tour signs landmark Mercedes sponsorship deal as ATP commercial merger moves closer**\
+`The agreement is expected to bolster the women's tennis tour's commercial power and visibility.`\
+https://nytimes.com/athletic/6878411/2025/12/10/wta-tour-mercedes-sponsorship-tennis/
+
 **Late-game heroics: NHL-record 4 teams tie score in final 15 seconds**\
 `Only one of the four teams went on to actually win their game, but history was made nonetheless.`\
 https://nytimes.com/athletic/6878442/2025/12/10/nhl-history-score-final-15-seconds/
@@ -21,12 +29,4 @@ https://nytimes.com/2025/12/10/nyregion/jeffrey-epstein-grand-jury-unsealed.html
 **Judge Says Trump Must End Guard Deployment in Los Angeles**\
 `A federal judge ruled that the Trump administration had illegally kept troops in Los Angeles after emergency conditions had ended. The administration is expected to appeal.`\
 https://nytimes.com/2025/12/10/us/politics/national-guard-los-angeles-trump.html
-
-**Tony Dokoupil Is Named Anchor of ‘CBS Evening News’**\
-`He replaces John Dickerson and Maurice DuBois in one of the most high-profile decisions of Bari Weiss’s early tenure as the network’s editor in chief.`\
-https://nytimes.com/2025/12/10/business/tony-dokoupil-cbs-evening-news.html
-
-**Orlando finalizing deal to sign Brazilian winger Tiago from Bahia**\
-`Orlando will pay a fee around $4 million for the signing of the 20-year-old.`\
-https://nytimes.com/athletic/6878500/2025/12/10/tiago-orlando-city-bahia-transfer-news/
 
