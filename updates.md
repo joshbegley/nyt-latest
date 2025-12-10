@@ -1,3 +1,7 @@
+**In praise of Clarence Seedorf, one of football's most compelling pundits**\
+`The former Dutch international is not just an excellent analyst but a fine journalist - as Tuesday's interrogation of Arne Slot proved`\
+https://nytimes.com/athletic/6878196/2025/12/10/clarence-seedorf-arne-slot-tv-pundit/
+
 **For newest Lakers, NBA Cup just the appetizer for their bigger goals**\
 `Are Marcus Smart and Deandre Ayton driven by the NBA Cup? Maybe not, but being Lakers has motivated them to win.`\
 https://nytimes.com/athletic/6877862/2025/12/10/lakers-nba-cup-preview/
