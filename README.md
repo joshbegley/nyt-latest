@@ -1,3 +1,11 @@
+**Nursing Home Owners Pocketed Millions as Patients Suffered, Report Says**\
+`As the owners intentionally understaffed two New Jersey facilities and diverted Medicaid money for their own use, residents in the homes “suffered unnecessarily,” the state comptroller said.`\
+https://nytimes.com/2025/12/10/nyregion/new-jersey-nursing-homes-medicaid.html
+
+**Days After Trump-Led Peace Talks, New Congolese City Falls to Rebels**\
+`The fighting in Congo continues despite Washington’s claims to have brokered an end to the conflict.`\
+https://nytimes.com/2025/12/10/world/africa/congo-m23-kivu-rwanda-uvira-burundi-trump.html
+
 **Fowler arrives under difficult circumstances, but Canadiens had to do something**\
 `The Canadiens can't, or won't, say they hope Jacob Fowler will fix their goaltending problems. So we will say it for them.`\
 https://nytimes.com/athletic/6880088/2025/12/10/canadiens-jacob-fowler-st-louis-goaltending/
@@ -25,12 +33,4 @@ https://nytimes.com/2025/12/10/us/politics/biden-immigration-border-mistakes-les
 **George Altman, Slugger in Negro Leagues, M.L.B. and Japan, Dies at 92**\
 `The rare player to compete in all three, he had an impressive career, becoming a three-time All-Star in the major leagues and later a fan favorite in Japan.`\
 https://nytimes.com/2025/12/10/sports/george-altman-dead.html
-
-**The Reds weren't 'extending' budget for Kyle Schwarber, but would have fit him in**\
-`Had Schwarber taken the Reds' deal, the quickest way to shed salary would be to trade from their pool of arbitration-eligible players. `\
-https://nytimes.com/athletic/6879666/2025/12/10/the-reds-werent-extending-budget-to-fit-kyle-schwarber-but-would-fit-him-in/
-
-**The U.S. Seized an Oil Tanker Near Venezuela**\
-`Also, the Fed’s latest rate cut was contentious. Here’s the latest at the end of Wednesday.`\
-https://nytimes.com/2025/12/10/briefing/the-us-seized-an-oil-tanker-near-venezuela.html
 
