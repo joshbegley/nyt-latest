@@ -1,3 +1,7 @@
+**A Proponent of Election Conspiracy Theories Will Take a Top Role at FEMA**\
+`Gregg Phillips, who spread unsubstantiated claims of mass voter fraud in the 2016 election, will join the agency’s leadership, the Trump administration confirmed.`\
+https://nytimes.com/2025/12/10/climate/gregg-phillips-fema.html
+
 **And the Winners of Our Extremely Specific Acting Awards Are...**\
 `Best Acting in a Helmet, Best Nervous Breakdown, Craziest Charm—the film performances so good Wesley Morris had to invent his own categories.`\
 https://nytimes.com/interactive/2025/12/10/magazine/best-acting-performances-wesley-morris.html
@@ -29,8 +33,4 @@ https://nytimes.com/video/us/100000010547944/how-the-tate-brothers-returned-to-t
 **Rosenthal: The Mets' core is no more. And now their front office needs to deliver**\
 `Edwin Díaz and Pete Alonso were both Mets stalwarts. Now they've signed elsewhere in back-to-back days.`\
 https://nytimes.com/athletic/6879503/2025/12/10/new-york-mets-pete-alonso-edwin-diaz-david-stearns/
-
-**Army Gynecologist Charged With Secretly Recording Over 40 Patients**\
-`Members of Congress expressed concerns that the Army dismissed complaints about the doctor, who was accused of secretly recording patients at Fort Hood in Texas.`\
-https://nytimes.com/2025/12/10/us/army-gynecologist-charged-texas.html
 
