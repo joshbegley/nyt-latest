@@ -1,3 +1,11 @@
+**Nothing can be ruled out with Dodgers, so is another blockbuster move possible?**\
+`As Mark Walter said after his team's latest World Series title: "(The front office) makes all the decisions. I just tell them yes."`\
+https://nytimes.com/athletic/6877459/2025/12/09/dodgers-mlb-winter-meetings-kyle-tucker-tarik-skubal/
+
+**Blue Jays consider Opening Day return for Shane Bieber 'realistic'**\
+`It’s not clear if the ailment caused Bieber to pick up his player option and avoid the unknowns of free agency.`\
+https://nytimes.com/athletic/6877409/2025/12/09/blue-jays-shane-bieber-could-return-for-opening-day-after-forearm-fatigue-rehab/
+
 **Democrats Say Hegseth Balked at Call for Full Video of Boat Strike**\
 `Defense Secretary Pete Hegseth briefed congressional leaders on Tuesday about the monthslong military campaign targeting people suspected of being drug traffickers at sea.`\
 https://nytimes.com/2025/12/09/us/politics/hegseth-democrats-video-boat-strike.html

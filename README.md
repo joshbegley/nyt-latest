@@ -1,4 +1,12 @@
-**Nothing can be ruled out with Dodgers, so is another blockbuster move possible?**\
+**Trump Blames Economic Woes on Immigrants in Xenophobic Tirade**\
+`President Trump veered between demonizing immigrants and assuring a crowd of his supporters that life was better than ever under his administration.`\
+https://nytimes.com/2025/12/09/us/politics/trump-somalis-immigrants.html
+
+**Logan White announces retirement after decorated scouting career with Padres, Dodgers**\
+`White announced his retirement while being honored Tuesday as one of Major League Baseball's Scouts of the Year recipients.`\
+https://nytimes.com/athletic/6877504/2025/12/09/logan-white-announces-retirement-padres-dodgers/
+
+**Nothing can be ruled out with Dodgers, including another blockbuster move**\
 `As Mark Walter said after his team's latest World Series title: "(The front office) makes all the decisions. I just tell them yes."`\
 https://nytimes.com/athletic/6877459/2025/12/09/dodgers-mlb-winter-meetings-kyle-tucker-tarik-skubal/
 
@@ -25,12 +33,4 @@ https://nytimes.com/2025/12/09/us/politics/trump-homeless-aid-hud.html
 **Democrats Say Hegseth Balked at Call for Full Video of Boat Strike**\
 `Defense Secretary Pete Hegseth briefed congressional leaders on Tuesday about the monthslong military campaign targeting people suspected of being drug traffickers at sea.`\
 https://nytimes.com/2025/12/09/us/politics/hegseth-democrats-video-boat-strike.html
-
-**Trump Revives Attacks on Fed Members Before Interest Rate Decision**\
-`Without evidence, the president claimed that some Fed governors might have been appointed using an autopen.`\
-https://nytimes.com/2025/12/09/us/politics/trump-fed-powell-cook-biden.html
-
-**This Arkansas City Shows How to Slash Emissions and Save Money, Too**\
-`In the Ozarks, the growing college town of Fayetteville, Ark., is using clean energy to power city facilities and embracing nature-based solutions to climate threats.`\
-https://nytimes.com/2025/12/09/climate/fayetteville-arkansas-climate-plan.html
 
