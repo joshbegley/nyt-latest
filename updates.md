@@ -1,3 +1,11 @@
+**Ranking men's college basketball's 8 undefeated teams, from Michigan to Miami Ohio**\
+`When will Michigan, Iowa State, Duke, Arizona and the others lose their first games? We tried to predict.`\
+https://nytimes.com/athletic/6878349/2025/12/10/college-basketball-undefeated-teams-michigan-iowa-state-duke/
+
+**How Can I Stop My Wife From Badgering Our Friends About Climate Change?**\
+`A reader’s wife is angry about what she sees as insufficient commitment to the cause of environmentalism, alienating the couple’s friends.`\
+https://nytimes.com/2025/12/10/style/how-can-i-stop-my-wife-from-badgering-our-friends-about-climate-change.html
+
 **C.J. Stroud outlasts aggressive Chiefs defense: Week 14 Quick Outs**\
 `Stroud didn't flinch in the face of Steve Spagnuolo's blitz packages, while Bo Nix found a way against the Raiders.`\
 https://nytimes.com/athletic/6876535/2025/12/10/nfl-week-14-stroud-packers-bo-nix/
