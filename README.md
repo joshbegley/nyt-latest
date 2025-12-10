@@ -1,3 +1,11 @@
+**Martina Navratilova discusses her criticism of Donald Trump: 'I just can't be compliant'**\
+`The tennis legend said she hopes to “make people think” about the current political moment.`\
+https://nytimes.com/athletic/6876503/2025/12/10/tennis-martina-navratilova-donald-trump/
+
+**Buccaneers bring back pass rusher Jason Pierre-Paul**\
+`Tampa Bay signed the 36-year-old three-time Pro Bowl edge rusher to its practice squad, after a two-year hiatus from the NFL.`\
+https://nytimes.com/athletic/6878566/2025/12/10/buccaneers-jason-pierre-paul/
+
 **Judge Grants Request to Unseal Epstein Grand Jury Records**\
 `The ruling could lead to the most expansive look yet at the federal investigation of the convicted sex offender Jeffrey Epstein.`\
 https://nytimes.com/2025/12/10/nyregion/jeffrey-epstein-grand-jury-unsealed.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6878349/2025/12/10/college-basketball-undefeated-te
 **How Can I Stop My Wife From Badgering Our Friends About Climate Change?**\
 `A reader’s wife is angry about what she sees as insufficient commitment to the cause of environmentalism, alienating the couple’s friends.`\
 https://nytimes.com/2025/12/10/style/how-can-i-stop-my-wife-from-badgering-our-friends-about-climate-change.html
-
-**C.J. Stroud outlasts aggressive Chiefs defense: Week 14 Quick Outs**\
-`Stroud didn't flinch in the face of Steve Spagnuolo's blitz packages, while Bo Nix found a way against the Raiders.`\
-https://nytimes.com/athletic/6876535/2025/12/10/nfl-week-14-stroud-packers-bo-nix/
-
-**Minor-league rule change experiment could eliminate hitter timeouts: Sources**\
-`MLB is considering a rule change to eliminate hitter timeouts entirely, or reduce their length, in three Low-A minor leagues next year.`\
-https://nytimes.com/athletic/6878320/2025/12/10/minor-leagues-hitter-timeouts-rule-change-mlb/
 
