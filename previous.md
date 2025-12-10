@@ -1,36 +1,36 @@
-**Rubio Deletes Calibri as the State Department’s Official Typeface**\
-`Secretary of State Marco Rubio called the Biden-era move to the sans serif typeface “wasteful,” casting the return to Times New Roman as part of a push to stamp out diversity efforts.`\
-https://nytimes.com/2025/12/09/us/politics/rubio-state-department-font.html
+**Leafs' Bobby McMann suspended 1 game for high-sticking**\
+`This is the first time McMann, 29, has ever been suspended or fined by the NHL's Department of Player Safety.`\
+https://nytimes.com/athletic/6877010/2025/12/09/maple-leafs-bobby-mcmann-suspended-oliver-bjorkstrand/
 
-**Bird Flu Is Suspected After Vulture Carcasses Sat Rotting Outside Ohio School**\
-`The birds lingered for days at a Catholic school near Cincinnati as agencies haggled over who was responsible for removing them. Experts said the public health risk was low.`\
-https://nytimes.com/2025/12/09/us/dead-vultures-bird-flu-ohio.html
+**How to watch Titans vs. 49ers: Time, TV, streaming**\
+`Find out how to watch the Tennessee Titans play the San Francisco 49ers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6877120/2025/12/09/titans-vs-49ers-stream-how-to-watch-dec-14/
 
-**Red Sox close to making internal hire for director of pitching position: Source**\
-`The Red Sox have made significant enhancements to their pitching development program but they are continuing to make additional hires.`\
-https://nytimes.com/athletic/6876951/2025/12/09/red-sox-director-of-pitching-hire/
+**How to watch Packers vs. Broncos: Time, TV, streaming**\
+`Find out how to watch the Green Bay Packers play the Denver Broncos, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6877110/2025/12/09/packers-vs-broncos-stream-how-to-watch-dec-14/
 
-**With Yordan Alvarez entrenched at DH, Astros have little choice but to trade an infielder**\
-`Houston's plan is for Alvarez to “spend most of his season” at designated hitter, deepening a roster crunch that now appears untenable. `\
-https://nytimes.com/athletic/6876956/2025/12/09/astros-yordan-alvarez-designated-hitter-infielder-trade/
+**How to watch Panthers vs. Saints: Time, TV, streaming**\
+`Find out how to watch the Carolina Panthers play the New Orleans Saints, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6877109/2025/12/09/panthers-vs-saints-stream-how-to-watch-dec-14/
 
-**Slot questions whether Salah should take lead in resolving Liverpool dispute**\
-`Slot also suggested that Salah’s outburst at Elland Road came as a result of an “emotional” week`\
-https://nytimes.com/athletic/6876925/2025/12/09/salah-liverpool-slot-news-update-inter-champions-league/
+**How to watch Lions vs. Rams: Time, TV, streaming**\
+`Find out how to watch the Detroit Lions play the Los Angeles Rams, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6877102/2025/12/09/lions-vs-rams-stream-how-to-watch-dec-14/
 
-**After getting jilted by Kyle Schwarber, where do the Reds go for power next?**\
-`The Reds could pursue a number of sluggers on the market, or potentially trade from their depth to acquire a middle-of-the-order bat.`\
-https://nytimes.com/athletic/6876727/2025/12/09/cincinnati-reds-free-agent-fits-hitters/
+**How to watch Colts vs. Seahawks: Time, TV, streaming**\
+`Find out how to watch the Indianapolis Colts play the Seattle Seahawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6877098/2025/12/09/colts-vs-seahawks-stream-how-to-watch-dec-14/
 
-**Tyronn Lue rebukes report he was not speaking with Chris Paul: 'We were talking'**\
-`LA Clippers head coach Tyronn Lue denied reporting that he and Chris Paul were not on speaking terms in the wake of Paul's dismissal. `\
-https://nytimes.com/athletic/6876650/2025/12/09/tyronn-lue-chris-paul-clippers-nba/
+**Seattle Plans Pride Match at Soccer World Cup, Infuriating Iran and Egypt**\
+`The two countries, which criminalize homosexuality and impose severe punishments for it, were picked to play on a day celebrating L.G.B.T.Q. communities.`\
+https://nytimes.com/2025/12/09/world/middleeast/iran-egypt-world-cup-seattle-pride.html
 
-**A Deluge of Rain Prompts Warnings in the Pacific Northwest**\
-`Even for a region used to heavy rain, this week’s system has forecasters on edge. The heaviest rain is expected into Wednesday.`\
-https://nytimes.com/2025/12/09/weather/oregon-washington-rain-atomospheric-river-flood.html
+**Why Philip Rivers' return to the NFL is a story every fan can get behind**\
+`We'll find out soon enough whether Philip Rivers can still pick apart NFL secondaries at age 44. Either way, the journey will be fun.`\
+https://nytimes.com/athletic/6876786/2025/12/09/philip-rivers-nfl-colts-sports-fans/
 
-**Stephen Miller’s Stock Sale Raises Questions, Ethics Experts Say**\
-`Mr. Miller, one of President Trump’s top advisers, sold shares in the mining company MP Materials following a lucrative deal between the company and the government.`\
-https://nytimes.com/2025/12/09/us/politics/stephen-miller-minerals-stake-ethics.html
+**Indiana-Ohio State Big Ten title game draws record viewership**\
+`Fox said the Hoosiers vs. Buckeyes was the most-watched championship game of the weekend.`\
+https://nytimes.com/athletic/6876829/2025/12/09/big-ten-championship-viewers-indiana-ohio-state/
 
