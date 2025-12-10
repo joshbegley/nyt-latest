@@ -1,3 +1,11 @@
+**Martina Navratilova discusses her criticism of Donald Trump: 'I just can't be compliant'**\
+`The tennis legend said she hopes to “make people think” about the current political moment.`\
+https://nytimes.com/athletic/6876503/2025/12/10/tennis-martina-navratilova-donald-trump/
+
+**Buccaneers bring back pass rusher Jason Pierre-Paul**\
+`Tampa Bay signed the 36-year-old three-time Pro Bowl edge rusher to its practice squad, after a two-year hiatus from the NFL.`\
+https://nytimes.com/athletic/6878566/2025/12/10/buccaneers-jason-pierre-paul/
+
 **Judge Grants Request to Unseal Epstein Grand Jury Records**\
 `The ruling could lead to the most expansive look yet at the federal investigation of the convicted sex offender Jeffrey Epstein.`\
 https://nytimes.com/2025/12/10/nyregion/jeffrey-epstein-grand-jury-unsealed.html
