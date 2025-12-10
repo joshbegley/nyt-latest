@@ -1,3 +1,15 @@
+**Ex-NWSL executive becomes Bundesliga's first woman CEO**\
+`The Bundesliga club have been without a permanent CEO since Oliver Mintzlaff stepped down in November 2022.`\
+https://nytimes.com/athletic/6878139/2025/12/10/haenni-rb-leipzig-ceo-woman-football/
+
+**50 States, 50 Fixes**\
+`We look at climate solutions across the country.`\
+https://nytimes.com/2025/12/10/briefing/50-states-50-fixes.html
+
+**TAFC: Liverpool's Champions League escape act without Salah. Plus: Pogba joins camel racing**\
+`A controversial decision goes Liverpool's way to ease the pressure on Arne Slot, and words you didn't think you'd read about Paul Pogba`\
+https://nytimes.com/athletic/6878152/2025/12/10/tafc-liverpool-salah-pogba-camel-racing/
+
 **Khmer Rouge-Era Land Mines Have a Big Role in Thailand-Cambodia Conflict**\
 `Thailand says ordnance replanted by Cambodia has injured or maimed more than a dozen of its soldiers. Cambodia rejects the accusation.`\
 https://nytimes.com/2025/12/10/world/asia/thailand-cambodia-war-mines.html
@@ -21,16 +33,4 @@ https://nytimes.com/2025/12/10/business/imf-china-currency.html
 **Bears coach Ben Johnson issues a mandate: It's all hands on deck to ignite the passing game**\
 `The Bears sense potential for an offensive breakthrough soon. But ... "It's got to happen. We can't just keep saying we're close." `\
 https://nytimes.com/athletic/6876442/2025/12/10/bears-passing-game-caleb-williams/
-
-**Why Chiefs' best playoff path would require a cruel twist: Cheering on the Broncos**\
-`Here's how The Athletic's Playoff Simulator handicaps the Chiefs' current odds of making the postseason.`\
-https://nytimes.com/athletic/6876494/2025/12/10/chiefs-playoff-possibilities-broncos/
-
-**In a career year, Christian Dvorak is doing a little of everything for the Flyers**\
-`While other offseason signings have gotten most of the limelight in Philadelphia, Dvorak stole the show against the Sharks.`\
-https://nytimes.com/athletic/6877636/2025/12/10/flyers-christian-dvorak-sharks/
-
-**Last-second strategy cost Penguins dearly in shootout loss: Yohe's 10 observations**\
-`A brutal unforced error sent the game to overtime with just a fraction of a second remaining in regulation.`\
-https://nytimes.com/athletic/6876036/2025/12/10/penguins-muse-letang-karlsson-collapse-ducks/
 
