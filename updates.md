@@ -1,3 +1,11 @@
+**Red Sox trying to add two more bats after missing on Pete Alonso: Source**\
+`A reunion with Alex Bregman figures to be the main objective at this point, but the Red Sox could also target free agent Eugenio Suarez.`\
+https://nytimes.com/athletic/6880040/2025/12/10/red-sox-free-agents-missing-pete-alonso/
+
+**Yankees, Red Sox among teams interested in Brewers' Freddy Peralta: Sources**\
+`One Brewers official said “lots of teams” are calling about Peralta, terming it “a good week.”`\
+https://nytimes.com/athletic/6880122/2025/12/10/freddy-peralta-brewers-yankees-red-sox/
+
 **Giants' Winter Meetings 'haul' is a Rule 5 draft trade for catcher Daniel Susac**\
 `The Giants didn't sign any big names during the Winter Meetings, but they moved up in the first round and added catching depth.`\
 https://nytimes.com/athletic/6880006/2025/12/10/sf-giants-rule-5-daniel-susac-trade-winter-meetings/

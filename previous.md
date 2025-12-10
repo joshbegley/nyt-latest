@@ -1,3 +1,11 @@
+**Red Sox trying to add two more bats after missing on Pete Alonso: Source**\
+`A reunion with Alex Bregman figures to be the main objective at this point, but the Red Sox could also target free agent Eugenio Suarez.`\
+https://nytimes.com/athletic/6880040/2025/12/10/red-sox-free-agents-missing-pete-alonso/
+
+**Yankees, Red Sox among teams interested in Brewers' Freddy Peralta: Sources**\
+`One Brewers official said “lots of teams” are calling about Peralta, terming it “a good week.”`\
+https://nytimes.com/athletic/6880122/2025/12/10/freddy-peralta-brewers-yankees-red-sox/
+
 **Giants' Winter Meetings 'haul' is a Rule 5 draft trade for catcher Daniel Susac**\
 `The Giants didn't sign any big names during the Winter Meetings, but they moved up in the first round and added catching depth.`\
 https://nytimes.com/athletic/6880006/2025/12/10/sf-giants-rule-5-daniel-susac-trade-winter-meetings/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6879425/2025/12/10/white-sox-draft-lottery-bears-pl
 **U.S. Seizes Oil Tanker Off Venezuela’s Coast, Trump Says**\
 `President Trump announced that the United States had seized an oil tanker off the coast of Venezuela on Wednesday.`\
 https://nytimes.com/video/us/politics/100000010579829/venezuela-oil-tanker-seized.html
-
-**Donald McIntyre, 91, Dies; Starred in New Vision of Wagner’s Operas**\
-`As Wotan in Patrice Chéreau’s neo-Marxist staging of the “Ring” cycle, he was part of a celebrated, polarizing moment in opera history.`\
-https://nytimes.com/2025/12/10/arts/music/donald-mcintyre-dead.html
-
-**What's next for Dodgers after Winter Meetings? What we're hearing**\
-`The Kansas City Royals are among the teams interested in trading for Teoscar Hernández.`\
-https://nytimes.com/athletic/6876659/2025/12/10/dodgers-mlb-winter-meetings-free-agency/
 
