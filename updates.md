@@ -1,3 +1,7 @@
+**USMNT's World Cup opener may hold the key to success or failure**\
+`History makes it clear that the USA's 2026 World Cup opener against Paraguay will dictate its fortunes`\
+https://nytimes.com/athletic/6876814/2025/12/10/usmnt-world-cup-paraguay-pulisic-pochettino/
+
 **Islamic State Camps Pose a Dangerous Problem for Syria’s Leaders**\
 `The government faces a dilemma over what to do with civil-war-era prisons and detention camps that hold thousands of ISIS fighters and tens of thousands of their family members.`\
 https://nytimes.com/2025/12/10/world/middleeast/islamic-state-detention-camps-syria.html

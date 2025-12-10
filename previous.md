@@ -1,3 +1,7 @@
+**USMNT's World Cup opener may hold the key to success or failure**\
+`History makes it clear that the USA's 2026 World Cup opener against Paraguay will dictate its fortunes`\
+https://nytimes.com/athletic/6876814/2025/12/10/usmnt-world-cup-paraguay-pulisic-pochettino/
+
 **Islamic State Camps Pose a Dangerous Problem for Syria’s Leaders**\
 `The government faces a dilemma over what to do with civil-war-era prisons and detention camps that hold thousands of ISIS fighters and tens of thousands of their family members.`\
 https://nytimes.com/2025/12/10/world/middleeast/islamic-state-detention-camps-syria.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6875997/2025/12/10/falcons-jake-matthews-family-str
 **How My Interfaith Family Figured Out the Holidays**\
 `By Jessica Grose`\
 https://nytimes.com/2025/12/10/opinion/interfaith-family-holiday.html
-
-**Supreme Court Hears Death Penalty Case on Intellectual Disability**\
-`The case involves an Alabama man who challenged his death sentence after a murder conviction because of his varying results in a series of I.Q. tests.`\
-https://nytimes.com/2025/12/10/us/politics/supreme-court-death-penalty-disability.html
 
