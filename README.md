@@ -1,3 +1,7 @@
+**NFL Week 15 staff picks: Who should start panicking?**\
+`Several teams are in desperation mode heading into Week 15. Which ones might be at the end of the road?`\
+https://nytimes.com/athletic/6875812/2025/12/10/nfl-week-15-staff-picks-postseason-stakes/
+
 **The Bounce: Who'll join the Knicks and Magic in the NBA Cup semifinals?**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/6878621/2025/12/10/the-bounce-wholl-join-the-knicks-and-magic-in-the-nba-cup-semifinals/
@@ -25,8 +29,4 @@ https://nytimes.com/athletic/6878566/2025/12/10/buccaneers-jason-pierre-paul/
 **Judge Grants Request to Unseal Epstein Grand Jury Records**\
 `The ruling could lead to the most expansive look yet at the federal investigation of the convicted sex offender Jeffrey Epstein.`\
 https://nytimes.com/2025/12/10/nyregion/jeffrey-epstein-grand-jury-unsealed.html
-
-**Judge Says Trump Must End Guard Deployment in Los Angeles**\
-`A federal judge ruled that the Trump administration had illegally kept troops in Los Angeles after emergency conditions had ended. The administration is expected to appeal.`\
-https://nytimes.com/2025/12/10/us/politics/national-guard-los-angeles-trump.html
 
