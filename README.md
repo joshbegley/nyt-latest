@@ -1,3 +1,7 @@
+**TV drama on gambling scandal surrounding Ohtani's ex-interpreter in development**\
+`The Lionsgate TV project will focus on Ippei Mizuhara's gambling scandal, which led to his firing by the Dodgers.`\
+https://nytimes.com/athletic/6877219/2025/12/09/shohei-ohtani-interpreter-tv-series/
+
 **Giants celebrate draft lottery luck but prefer not to push it with Logan Webb and the WBC**\
 `San Francisco moved all the way up to the No. 4 selection.`\
 https://nytimes.com/athletic/6877411/2025/12/09/san-francisco-giants-lottery-luck-logan-webb-wbc/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6877416/2025/12/09/cubs-matt-shaw-next-moves-winter
 **Robert Wright III's buzzer-beater caps BYU comeback as AJ Dybantsa has best game yet**\
 `Dybantsa scored or assisted on 34 of BYU's 45 second-half points to lead the comeback over Clemson.`\
 https://nytimes.com/athletic/6877448/2025/12/09/byu-clemson-aj-dybantsa-robert-wright/
-
-**Trump Administration Withdraws Plan to Overhaul Homeless Aid**\
-`The abrupt decision to revise the plan added new uncertainty and possible delays into the government’s distribution of $3.9 billion in homelessness relief.`\
-https://nytimes.com/2025/12/09/us/politics/trump-homeless-aid-hud.html
 
