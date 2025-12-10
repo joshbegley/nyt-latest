@@ -1,3 +1,11 @@
+**C.J. Stroud outlasts aggressive Chiefs defense: Week 14 Quick Outs**\
+`Stroud didn't flinch in the face of Steve Spagnuolo's blitz packages, while Bo Nix found a way against the Raiders.`\
+https://nytimes.com/athletic/6876535/2025/12/10/nfl-week-14-stroud-packers-bo-nix/
+
+**Minor-league rule change experiment could eliminate hitter timeouts: Sources**\
+`MLB is considering a rule change to eliminate hitter timeouts entirely, or reduce their length, in three Low-A minor leagues next year.`\
+https://nytimes.com/athletic/6878320/2025/12/10/minor-leagues-hitter-timeouts-rule-change-mlb/
+
 **Minor-league rule change experiment could eliminate hitter timeouts: Sources**\
 `MLB is considering a rule change to eliminate hitter timeouts entirely, or reduce their length, in three Low-A minor leagues next year. `\
 https://nytimes.com/athletic/6878320/2025/12/10/minor-leagues-hitter-timeouts-rule-change-mlb/
