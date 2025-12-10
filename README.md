@@ -1,3 +1,11 @@
+**Dodgers' signing of Edwin Díaz hit like a shock, but spending was no surprise**\
+`With the addition of Díaz, the Dodgers have now spent a combined $141 million on closers over the past two winters.`\
+https://nytimes.com/athletic/6877125/2025/12/09/dodgers-mlb-winter-meetings-edwin-diaz/
+
+**Kepner: The Blue Jays' championship window is open, and they're barreling through**\
+`“When you feel like you have one,” Blue Jays general manager Ross Atkins said, “you want to lean into it.”`\
+https://nytimes.com/athletic/6877234/2025/12/09/toronto-blue-jays-title-window/
+
 **Chicago White Sox land No. 1 pick in the 2026 MLB Draft**\
 `The White Sox secured just their third No. 1 pick in the MLB Draft in club history. The Giants made the biggest jump, going from 15 to four.`\
 https://nytimes.com/athletic/6877173/2025/12/09/chicago-white-sox-first-pick-2026-mlb-draft-lottery/
@@ -25,12 +33,4 @@ https://nytimes.com/2025/12/09/us/miami-mayor-eileen-higgins-election.html
 **Trump Seeks to Reassure Americans That He Is Focused on Affordability**\
 `The president finds himself in an economic and political bind as his tariffs drive up costs.`\
 https://nytimes.com/2025/12/09/us/politics/trump-affordability-economy-pennsylvania.html
-
-**U.S. Plans to Scrutinize Foreign Tourists’ Social Media History**\
-`Even visitors from countries like Britain and France, whose citizens don’t need visas, would have to share five years’ worth of social media.`\
-https://nytimes.com/2025/12/09/travel/social-media-tourists-visa-border-patrol.html
-
-**John Schneider reflects on World Series loss, Isiah Kiner-Falefa’s Game 7 lead**\
-`"I think I'll think about it until the day I leave this earth," John Schneider said of the Blue Jays' Game 7 World Series loss. `\
-https://nytimes.com/athletic/6876986/2025/12/09/john-schneider-world-series-isiah-kiner-falefas/
 

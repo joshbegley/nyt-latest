@@ -1,3 +1,11 @@
+**Chicago White Sox land No. 1 pick in the 2026 MLB Draft**\
+`The White Sox secured just their third No. 1 pick in the MLB Draft in club history. The Giants made the biggest jump, going from 15 to four.`\
+https://nytimes.com/athletic/6877173/2025/12/09/chicago-white-sox-first-pick-2026-mlb-draft-lottery/
+
+**The Battle for Warner Bros. Discovery**\
+`Nicole Sperling, a Times reporter who covers Hollywood and the streaming revolution, breaks down the competing bids from Netflix and Paramount to buy Warner Bros. Discovery.`\
+https://nytimes.com/video/business/media/100000010568344/the-battle-for-warner-bros-discovery.html
+
 **F.D.A. Expands Covid Vaccine Inquiry to Adult Deaths**\
 `The agency claimed that 10 children’s deaths were linked to the shots, although it did not release evidence to support the assertions.`\
 https://nytimes.com/2025/12/09/health/fda-covid-vaccine-adult-death-claims.html

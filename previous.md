@@ -1,3 +1,11 @@
+**Chicago White Sox land No. 1 pick in the 2026 MLB Draft**\
+`The White Sox secured just their third No. 1 pick in the MLB Draft in club history. The Giants made the biggest jump, going from 15 to four.`\
+https://nytimes.com/athletic/6877173/2025/12/09/chicago-white-sox-first-pick-2026-mlb-draft-lottery/
+
+**The Battle for Warner Bros. Discovery**\
+`Nicole Sperling, a Times reporter who covers Hollywood and the streaming revolution, breaks down the competing bids from Netflix and Paramount to buy Warner Bros. Discovery.`\
+https://nytimes.com/video/business/media/100000010568344/the-battle-for-warner-bros-discovery.html
+
 **F.D.A. Expands Covid Vaccine Inquiry to Adult Deaths**\
 `The agency claimed that 10 children’s deaths were linked to the shots, although it did not release evidence to support the assertions.`\
 https://nytimes.com/2025/12/09/health/fda-covid-vaccine-adult-death-claims.html
@@ -25,12 +33,4 @@ https://nytimes.com/2025/12/09/travel/social-media-tourists-visa-border-patrol.h
 **John Schneider reflects on World Series loss, Isiah Kiner-Falefa’s Game 7 lead**\
 `"I think I'll think about it until the day I leave this earth," John Schneider said of the Blue Jays' Game 7 World Series loss. `\
 https://nytimes.com/athletic/6876986/2025/12/09/john-schneider-world-series-isiah-kiner-falefas/
-
-**Special End-of-Year 2025 News Quiz for Students**\
-`See what you remember about this extraordinary year by taking our special 2025 news quiz.`\
-https://nytimes.com/interactive/2025/12/09/learning/09End-of-Year-2025-news-quiz-for-students.html
-
-**Prosecutors Release Body Camera Footage of Luigi Mangione’s Arrest**\
-`The footage shows officers confronting Luigi Mangione at a McDonald’s in Altoona, Pa. Lawyers for Mr. Mangione, who is accused of killing the former C.E.O. of UnitedHealthcare, argued that the evidence recovered at his arrest should not be admitted into trial, as it was obtained without a warrant.`\
-https://nytimes.com/video/us/100000010577332/luigi-mangione-arrest-bodycam-footage.html
 
