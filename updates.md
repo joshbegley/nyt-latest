@@ -1,3 +1,15 @@
+**Starting With Formaldehyde, Trump Administration Reassesses Chemical Risks**\
+`A draft memo from the E.P.A. assumes a safe threshold exists for formaldehyde, upending earlier findings that there is no safe level of exposure to the carcinogen.`\
+https://nytimes.com/2025/12/10/climate/starting-with-formaldehyde-trump-administration-reassesses-chemical-risks.html
+
+**Chelsea owners BlueCo agree deal to sign teenager Mohamed Zongo**\
+`BlueCo, who also own French club Strasbourg, have beaten several clubs to obtain the promising teenager's signature.`\
+https://nytimes.com/athletic/6867317/2025/12/10/chelsea-mohamed-zongo-strasbourg-transfer/
+
+**Orioles to sign Pete Alonso after missing on slugger Kyle Schwarber: Sources**\
+`The Orioles missed out on signing Kyle Schwarber to a similar amount of money that they offered Alonso.`\
+https://nytimes.com/athletic/6836475/2025/12/10/mlb-pete-alonso-free-agency-signing-orioles/
+
 **Democrats Abandon Effort to Defang a Corruption Watchdog in New Jersey**\
 `The state comptroller has aggressively investigated fiscal misconduct. The Democratic leader of the State Senate had introduced legislation blocking the office from subpoenaing records.`\
 https://nytimes.com/2025/12/10/nyregion/democrats-new-jersey-corruption-legislation.html
