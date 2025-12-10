@@ -1,3 +1,11 @@
+**Italian Cooking, Kohl Makeup and Icelandic Pools Are Recognized by UNESCO**\
+`The agency added dozens of nominees to its annual list of the world’s “intangible cultural heritage,” celebrating international customs and cuisine.`\
+https://nytimes.com/2025/12/10/world/europe/unesco-yodeling-italian-cooking.html
+
+**Palace defender Munoz to undergo knee surgery - Glasner**\
+`Glasner hopes Munoz's injury is not serious while striker Jean-Philippe Mateta is nursing a knee injury.`\
+https://nytimes.com/athletic/6879457/2025/12/10/munoz-injury-crystal-palace-surgery-news-update/
+
 **‘Rocky’ Statue to Move to Where It Started: Philadelphia’s Art Museum Steps**\
 `It’s a symbol of the city. But is it art?`\
 https://nytimes.com/2025/12/10/us/rocky-statue-philadelphia-art-museum-stallone.html
@@ -25,12 +33,4 @@ https://nytimes.com/2025/12/10/us/politics/agriculture-department-approves-more-
 **NFL votes to invest, develop professional flag football leagues**\
 `Flag football ranks among the world’s fastest-growing sports with 20 million players worldwide, according to the NFL.`\
 https://nytimes.com/athletic/6879289/2025/12/10/nfl-votes-develop-flag-football/
-
-**There’s Party Power in the Shrimp Tower**\
-`Whether to save space, wow guests or indulge in nostalgia, tall food is taking over. This edible tree checks all three boxes.`\
-https://nytimes.com/2025/12/10/dining/holiday-party-shrimp-tower.html
-
-**Youth Climate Activists Ask Montana Court to Block Some New Laws**\
-`The young plaintiffs, who won a major case over climate change policy in 2023, argue that legislators are illegally ignoring the effects of fossil fuels.`\
-https://nytimes.com/2025/12/10/climate/montana-youth-lawsuit-climate.html
 
