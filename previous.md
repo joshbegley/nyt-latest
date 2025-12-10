@@ -1,3 +1,15 @@
+**For Business Leaders, It’s the Personal Connections That Keep Them Going**\
+`Executives on a DealBook Summit task force panel said fear was not the way to build teams capable of navigating difficult times.`\
+https://nytimes.com/2025/12/10/business/dealbook/business-executives-leadership-task-force.html
+
+**Utah Conservation Groups Lead Beaver Relocation Effort**\
+`Conservation groups in Utah are relocating beavers who have been labeled as nuisances to new habitats. Beavers provide several benefits to the ecosystem such as building habitats and reducing runoff.`\
+https://nytimes.com/video/climate/100000010579586/utah-conservation-groups-lead-beaver-relocation-effort.html
+
+**A Controversial Nobel Peace Prize**\
+`The Venezuelan opposition leader María Corina Machado supports the use of force to overthrow her country’s government.`\
+https://nytimes.com/2025/12/10/world/venezuela-machado-us-trump-andrew-tate-romania.html
+
 **A Task Force on the Media Grapples With Trust and Biases**\
 `Legacy journalists on a DealBook Summit panel warned about interference from President Trump, while panelists from new media said he is just the “coroner” for a field that had already lost credibility.`\
 https://nytimes.com/2025/12/10/business/dealbook/media-task-force-trust-biases.html
@@ -17,16 +29,4 @@ https://nytimes.com/athletic/6879735/2025/12/10/tennessee-penn-state-dc-jim-know
 **A'ja Wilson after Time magazine honor: 'On my way' to becoming GOAT**\
 `Wilson addressed her status in basketball history, the state of WNBA collective bargaining negotiations and more.`\
 https://nytimes.com/athletic/6879236/2025/12/10/aja-wilson-time-athlete-of-year-wnba/
-
-**Shedeur Sanders rookie card sells for $50,000, bears wrong jersey number**\
-`Sanders' most expensive card includes an odd error.`\
-https://nytimes.com/athletic/6879512/2025/12/10/sheduer-sanders-kaboom-card-record-sale/
-
-**In the Home of a Famed Artist, a Mummified Rat and Other Curiosities**\
-`A leading Surrealist, Meret Oppenheim brought her singular vision of domesticity to life in this 18th-century Alpine summer house.`\
-https://nytimes.com/2025/12/10/t-magazine/meret-oppenheim-switzerland-home.html
-
-**Time saver: NFL cuts 2 minutes between picks in first round of draft**\
-`Teams will now have eight minutes to make their first-round selections, as opposed to the previous 10-minute window.`\
-https://nytimes.com/athletic/6879500/2025/12/10/nfl-draft-cuts-time-first-round-2026/
 

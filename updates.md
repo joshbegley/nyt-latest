@@ -1,3 +1,15 @@
+**For Business Leaders, It’s the Personal Connections That Keep Them Going**\
+`Executives on a DealBook Summit task force panel said fear was not the way to build teams capable of navigating difficult times.`\
+https://nytimes.com/2025/12/10/business/dealbook/business-executives-leadership-task-force.html
+
+**Utah Conservation Groups Lead Beaver Relocation Effort**\
+`Conservation groups in Utah are relocating beavers who have been labeled as nuisances to new habitats. Beavers provide several benefits to the ecosystem such as building habitats and reducing runoff.`\
+https://nytimes.com/video/climate/100000010579586/utah-conservation-groups-lead-beaver-relocation-effort.html
+
+**A Controversial Nobel Peace Prize**\
+`The Venezuelan opposition leader María Corina Machado supports the use of force to overthrow her country’s government.`\
+https://nytimes.com/2025/12/10/world/venezuela-machado-us-trump-andrew-tate-romania.html
+
 **A Task Force on the Media Grapples With Trust and Biases**\
 `Legacy journalists on a DealBook Summit panel warned about interference from President Trump, while panelists from new media said he is just the “coroner” for a field that had already lost credibility.`\
 https://nytimes.com/2025/12/10/business/dealbook/media-task-force-trust-biases.html
