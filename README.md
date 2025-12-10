@@ -1,3 +1,11 @@
+**Fowler arrives under difficult circumstances, but Canadiens had to do something**\
+`The Canadiens can't, or won't, say they hope Jacob Fowler will fix their goaltending problems. So we will say it for them.`\
+https://nytimes.com/athletic/6880088/2025/12/10/canadiens-jacob-fowler-st-louis-goaltending/
+
+**Madrid players insist they are behind head coach Alonso after Man City defeat**\
+`The 2-1 loss means that Madrid have only won two of their last eight games in all competitions.`\
+https://nytimes.com/athletic/6880115/2025/12/10/real-madrid-players-xabi-alonso/
+
 **Red Sox trying to add two more bats after missing on Pete Alonso: Source**\
 `A reunion with Alex Bregman figures to be the main objective at this point, but the Red Sox could also target free agent Eugenio Suarez.`\
 https://nytimes.com/athletic/6880040/2025/12/10/red-sox-free-agents-missing-pete-alonso/
@@ -18,19 +26,11 @@ https://nytimes.com/2025/12/10/us/politics/biden-immigration-border-mistakes-les
 `The rare player to compete in all three, he had an impressive career, becoming a three-time All-Star in the major leagues and later a fan favorite in Japan.`\
 https://nytimes.com/2025/12/10/sports/george-altman-dead.html
 
-**The Reds weren't 'extending' budget to fit Kyle Schwarber, but would fit him in**\
+**The Reds weren't 'extending' budget for Kyle Schwarber, but would have fit him in**\
 `Had Schwarber taken the Reds' deal, the quickest way to shed salary would be to trade from their pool of arbitration-eligible players. `\
 https://nytimes.com/athletic/6879666/2025/12/10/the-reds-werent-extending-budget-to-fit-kyle-schwarber-but-would-fit-him-in/
 
 **The U.S. Seized an Oil Tanker Near Venezuela**\
 `Also, the Fed’s latest rate cut was contentious. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2025/12/10/briefing/the-us-seized-an-oil-tanker-near-venezuela.html
-
-**White Sox get some long-awaited draft luck, while Bears looking for breaks down the stretch**\
-`The pressure is on Chris Getz to make something of the White Sox's luck in the draft lottery. `\
-https://nytimes.com/athletic/6879425/2025/12/10/white-sox-draft-lottery-bears-playoffs/
-
-**U.S. Seizes Oil Tanker Off Venezuela’s Coast, Trump Says**\
-`President Trump announced that the United States had seized an oil tanker off the coast of Venezuela on Wednesday.`\
-https://nytimes.com/video/us/politics/100000010579829/venezuela-oil-tanker-seized.html
 
