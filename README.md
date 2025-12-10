@@ -1,3 +1,7 @@
+**Jake Matthews carrying legacy of NFL's most durable family: 'He's the Terminator'**\
+`Toughness is a family affair for Matthews, who will start his 192nd straight game for Atlanta, extending the NFL's longest active streak.`\
+https://nytimes.com/athletic/6875997/2025/12/10/falcons-jake-matthews-family-streak-terminator/
+
 **How My Interfaith Family Figured Out the Holidays**\
 `By Jessica Grose`\
 https://nytimes.com/2025/12/10/opinion/interfaith-family-holiday.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/10/us/politics/democrats-state-legislatures.html
 **Lander Will Run for House Seat With Mamdani’s Support**\
 `Brad Lander, the New York City comptroller, will run for a House seat in Brooklyn and Manhattan, challenging Representative Daniel Goldman in the Democratic primary.`\
 https://nytimes.com/2025/12/10/nyregion/lander-goldman-mamdani-congress.html
-
-**Divisions to Dominate Fed’s Last 2025 Meeting, Leaving Rate Outlook Unclear**\
-`The central bank is poised to lower interest rates on Wednesday even as a growing chorus of officials urge caution.`\
-https://nytimes.com/2025/12/10/business/economy/fed-meeting-interest-rate-decision.html
 
