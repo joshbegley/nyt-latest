@@ -1,3 +1,7 @@
+**Most starting XI changes, most substitutions: Does Maresca need to reconsider his rotation policy?**\
+`No manager has tinkered more with their starting line-up - or made more in-game alterations - this season than Chesea's head coach`\
+https://nytimes.com/athletic/6877138/2025/12/10/chelsea-rotation-enzo-maresca-atalanta/
+
 **Machado Won’t Pick Up Peace Prize in Person, Nobel Director Says**\
 `The head of the Norwegian Nobel Institute told the state broadcaster that María Corina Machado will not attend Wednesday’s event in Oslo.`\
 https://nytimes.com/2025/12/10/world/europe/machado-nobel-venezuela-ceremony.html
@@ -15,7 +19,7 @@ https://nytimes.com/video/us/politics/100000010577712/trump-fed-powell-interest-
 https://nytimes.com/athletic/6877194/2025/12/10/tottenham-slavia-prague-joe-hart/
 
 **Liverpool show defiance and unity without Salah at Inter. What happens next?**\
-`This was a victory that 'means a lot' to head coach Arne Slot given the pressure on the club following the events of the past few days`\
+`This was a victory that 'means a lot' to head coach Arne Slot, given the pressure on the club following the events of the past few days`\
 https://nytimes.com/athletic/6876348/2025/12/10/liverpool-inter-salah-slot/
 
 **Late Night Doesn’t Want to Sweat at the Airport**\
@@ -29,8 +33,4 @@ https://nytimes.com/issue/todayspaper/2025/12/10/todays-new-york-times
 **Trump Picked This Fight With Maduro. He Can’t Back Down.**\
 `If the Trump administration allows Nicolás Maduro to endure, it would signal that a criminal dictatorship masquerading as a state can stare down the United States and win.`\
 https://nytimes.com/2025/12/10/opinion/trum-maduro-venezuela.html
-
-**Desmond Bane's 'dawg mentality' is transforming the Magic, 37 points at a time**\
-`Bane scored 37 points, collected six rebounds and dished out five assists in the Magic's NBA Cup quarterfinal victory over the Heat.`\
-https://nytimes.com/athletic/6877320/2025/12/10/desmond-bane-stats-magic-nba-cup/
 

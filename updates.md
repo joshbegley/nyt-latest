@@ -1,3 +1,11 @@
+**Most starting XI changes, most substitutions: Does Maresca need to reconsider his rotation policy?**\
+`No manager has tinkered more with their starting line-up - or made more in-game alterations - this season than Chesea's head coach`\
+https://nytimes.com/athletic/6877138/2025/12/10/chelsea-rotation-enzo-maresca-atalanta/
+
+**Liverpool show defiance and unity without Salah at Inter. What happens next?**\
+`This was a victory that 'means a lot' to head coach Arne Slot, given the pressure on the club following the events of the past few days`\
+https://nytimes.com/athletic/6876348/2025/12/10/liverpool-inter-salah-slot/
+
 **Machado Won’t Pick Up Peace Prize in Person, Nobel Director Says**\
 `The head of the Norwegian Nobel Institute told the state broadcaster that María Corina Machado will not attend Wednesday’s event in Oslo.`\
 https://nytimes.com/2025/12/10/world/europe/machado-nobel-venezuela-ceremony.html
