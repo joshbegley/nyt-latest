@@ -1,3 +1,11 @@
+**Machado Won’t Pick Up Peace Prize in Person, Nobel Director Says**\
+`The head of the Norwegian Nobel Institute told the state broadcaster that María Corina Machado will not attend Wednesday’s event in Oslo.`\
+https://nytimes.com/2025/12/10/world/europe/machado-nobel-venezuela-ceremony.html
+
+**Word of the Day: circumspect**\
+`This word has appeared in 92 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/12/10/learning/word-of-the-day-circumspect.html
+
 **Trump Attacks Fed Governors Ahead of Key Interest Rate Meeting**\
 `During a speech in Pennsylvania focused on the economy, President Trump criticized the Fed chair, Jerome Powell, and four other members. The attack came as the Fed prepares to reveal new interest rates.`\
 https://nytimes.com/video/us/politics/100000010577712/trump-fed-powell-interest-rate.html
