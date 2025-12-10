@@ -1,3 +1,7 @@
+**Shedeur Sanders rookie card sells for $50,000, bears wrong jersey number**\
+`Sanders' most expensive card includes an odd error.`\
+https://nytimes.com/athletic/6879512/2025/12/10/sheduer-sanders-kaboom-card-record-sale/
+
 **In the Home of a Famed Artist, a Mummified Rat and Other Curiosities**\
 `A leading Surrealist, Meret Oppenheim brought her singular vision of domesticity to life in this 18th-century Alpine summer house.`\
 https://nytimes.com/2025/12/10/t-magazine/meret-oppenheim-switzerland-home.html
