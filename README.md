@@ -1,3 +1,15 @@
+**How to watch Minnesota vs. Purdue men's basketball: Time, TV, streaming**\
+`Find out how to watch the Minnesota Golden Gophers play the Purdue Boilermakers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6878897/2025/12/10/minnesota-vs-purdue-stream-how-to-watch-dec-10/
+
+**How to watch Delaware State vs. Maryland women's basketball: Time, TV, streaming**\
+`Find out how to watch the Delaware State Hornets play the Maryland Terrapins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6878895/2025/12/10/delaware-state-vs-maryland-stream-how-to-watch-dec-10/
+
+**How to watch Iowa vs. Iowa State women's basketball: Time, TV, streaming**\
+`Find out how to watch the Iowa Hawkeyes play the Iowa State Cyclones, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6878893/2025/12/10/iowa-vs-iowa-state-stream-how-to-watch-dec-10/
+
 **What Menopause Does to the Body**\
 `A head-to-toe guide to the many unexpected symptoms of the midlife transition.`\
 https://nytimes.com/2025/12/10/well/menopause-symptoms.html
@@ -17,16 +29,4 @@ https://nytimes.com/athletic/6878760/2025/12/10/nascar-trial-jim-france-michael-
 **Archaeologists Find Oldest Evidence of Fire-Making**\
 `Neanderthals 400,000 years ago were striking flints to make fires, researchers have found.`\
 https://nytimes.com/2025/12/10/science/archaeology-humans-neanderthals-fire.html
-
-**Miso and Mushrooms and Leeks, Oh My**\
-`This brilliant pasta dish makes the most of just a few ingredients by taking care with each one.`\
-https://nytimes.com/2025/12/10/dining/miso-and-mushrooms-and-leeks-oh-my.html
-
-**5 Books to Help You Through a Breakup**\
-`We asked psychologists, therapists and dating coaches to share the books they recommend.`\
-https://nytimes.com/2025/12/10/well/breakup-books.html
-
-**Toledo expected to hire Mercer's Mike Jacobs as football coach**\
-`Jacobs would replace Jason Candle, who left for UConn after 10 years leading the Rockets.`\
-https://nytimes.com/athletic/6878731/2025/12/10/toledo-football-mike-jacobs-mercer/
 
