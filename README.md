@@ -1,6 +1,6 @@
-**In Barcelona’s season of comebacks, going behind is almost part of the plan**\
-`Barcelona's 2-1 win over Eintracht Frankfurt at home in the Champions League was their seventh comeback of the season`\
-https://nytimes.com/athletic/6878033/2025/12/10/in-barcelonas-season-of-comebacks-going-behind-is-almost-part-of-the-plan/
+**Ex-Barcelona midfielder Iniesta launches re-branded NSN Cycling Team**\
+`Iniesta's company partnered with Swiss investment firm Stoneweg to take over the former Israel-Premier Tech team in November.`\
+https://nytimes.com/athletic/6878034/2025/12/10/andres-iniesta-nsn-cycling-team/
 
 **Map: 5.5-Magnitude Earthquake Shakes Colombia**\
 `View the location of the quake’s epicenter and shake area.`\
