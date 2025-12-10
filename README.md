@@ -1,36 +1,36 @@
-**TV drama on gambling scandal surrounding Ohtani's ex-interpreter in development**\
-`The Lionsgate TV project will focus on Ippei Mizuhara's gambling scandal, which led to his firing by the Dodgers.`\
-https://nytimes.com/athletic/6877219/2025/12/09/shohei-ohtani-interpreter-tv-series/
+**Newcastle's 'Woltemessi' returns to Germany with a new edge to his game**\
+`Before tonight's Champions League game with Leverkusen, we look at how the Germany striker has adapted and improved his game`\
+https://nytimes.com/athletic/6872246/2025/12/10/newcastle-woltemade-germany-champions-league/
 
-**Giants celebrate draft lottery luck but prefer not to push it with Logan Webb and the WBC**\
-`San Francisco moved all the way up to the No. 4 selection.`\
-https://nytimes.com/athletic/6877411/2025/12/09/san-francisco-giants-lottery-luck-logan-webb-wbc/
+**Fantasy football rankings Week 15: Sleepers, starts, best WWE and John Cena matches**\
+`Will Christian Watson continue to his league-winning ways? Jake Ciely lets you know where he sits among the rest in his Week 15 rankings.`\
+https://nytimes.com/athletic/6876790/2025/12/10/fantasy-football-rankings-week-15-playoffs-sleepers-starts-sits/
 
-**Trump’s Speech on Economy Veers Into an Anti-Immigrant Tirade**\
-`President Trump vacillated between demonizing immigrants and assuring a crowd of his supporters that life was better than ever under his administration.`\
-https://nytimes.com/2025/12/09/us/politics/trump-somalis-immigrants.html
+**Connections: Sports Edition Coach: Hints for Dec. 10, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6876455/2025/12/10/connections-sports-edition-hints-for-dec-10-2025/
 
-**Logan White announces retirement after decorated scouting career with Padres, Dodgers**\
-`White announced his retirement while being honored Tuesday as one of Major League Baseball's Scouts of the Year recipients.`\
-https://nytimes.com/athletic/6877504/2025/12/09/logan-white-announces-retirement-padres-dodgers/
+**Hotel prices in World Cup host cities surge by more than 300% after schedule confirmed**\
+`Research by The Athletic for two-night stays around World Cup games in the 16 host cities has revealed huge price hikes`\
+https://nytimes.com/athletic/6875796/2025/12/10/hotel-prices-in-world-cup-host-cities-surge-by-more-than-300-after-schedule-confirmed/
 
-**Nothing can be ruled out with Dodgers, including another blockbuster move**\
-`As Mark Walter said after his team's latest World Series title: "(The front office) makes all the decisions. I just tell them yes."`\
-https://nytimes.com/athletic/6877459/2025/12/09/dodgers-mlb-winter-meetings-kyle-tucker-tarik-skubal/
+**Taiwan Invokes National Security Law to Protect TSMC Trade Secrets**\
+`An executive left TSMC for Intel. Taiwan’s government says that could threaten its national security.`\
+https://nytimes.com/2025/12/10/business/taiwan-tsmc-trade-secrets.html
 
-**Blue Jays consider Opening Day return for Shane Bieber 'realistic'**\
-`It’s not clear if the ailment caused Bieber to pick up his player option and avoid the unknowns of free agency.`\
-https://nytimes.com/athletic/6877409/2025/12/09/blue-jays-shane-bieber-could-return-for-opening-day-after-forearm-fatigue/
+**Chip Company Plotted to Send Technology to China, Ex-C.E.O. Says**\
+`The former chief executive of Nexperia, a Dutch chipmaker, said Dutch officials had known for years that the company’s Chinese owner sought to move its technology to China.`\
+https://nytimes.com/2025/12/10/world/asia/dutch-nexperia-zhang-ceo.html
 
-**Third-Party Holding**\
-`Kareem Ayas makes a break for it.`\
-https://nytimes.com/2025/12/09/crosswords/daily-puzzle-2025-12-10.html
+**Sources: Tigers close to deal with right-hander Kyle Finnegan**\
+`Finnegan's time in Detroit was mostly a resounding success.`\
+https://nytimes.com/athletic/6877657/2025/12/09/tigers-near-deal-right-hander-kyle-finnegan/
 
-**What will the Cubs’ next moves mean for Matt Shaw?**\
-`After watching Pete Crow-Armstrong and Michael Busch take the next steps in their careers, the Cubs believe Shaw can make a similar leap.`\
-https://nytimes.com/athletic/6877416/2025/12/09/cubs-matt-shaw-next-moves-winter-meetings/
+**Corrections: Dec. 10, 2025**\
+`Corrections that appeared in print on Wednesday, Dec. 10, 2025.`\
+https://nytimes.com/2025/12/09/pageoneplus/corrections-dec-10-2025.html
 
-**Robert Wright III's buzzer-beater caps BYU comeback as AJ Dybantsa has best game yet**\
-`Dybantsa scored or assisted on 34 of BYU's 45 second-half points to lead the comeback over Clemson.`\
-https://nytimes.com/athletic/6877448/2025/12/09/byu-clemson-aj-dybantsa-robert-wright/
+**Quote of the Day: For One ICE Detainee, Severe Pain and Neglect**\
+`Quotation of the Day for Wednesday, December 10, 2025.`\
+https://nytimes.com/2025/12/09/pageoneplus/quote-of-the-day-for-one-ice-detainee-severe-pain-and-neglect.html
 
