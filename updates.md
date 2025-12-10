@@ -1,3 +1,15 @@
+**Giants celebrate draft lottery luck but prefer not to push it with Logan Webb and the WBC**\
+`San Francisco moved all the way up to the No. 4 selection.`\
+https://nytimes.com/athletic/6877411/2025/12/09/san-francisco-giants-lottery-luck-logan-webb-wbc/
+
+**Trump’s Speech on Economy Veers Into an Anti-Immigrant Tirade**\
+`President Trump vacillated between demonizing immigrants and assuring a crowd of his supporters that life was better than ever under his administration.`\
+https://nytimes.com/2025/12/09/us/politics/trump-somalis-immigrants.html
+
+**Blue Jays consider Opening Day return for Shane Bieber 'realistic'**\
+`It’s not clear if the ailment caused Bieber to pick up his player option and avoid the unknowns of free agency.`\
+https://nytimes.com/athletic/6877409/2025/12/09/blue-jays-shane-bieber-could-return-for-opening-day-after-forearm-fatigue/
+
 **Trump Blames Economic Woes on Immigrants in Xenophobic Tirade**\
 `President Trump veered between demonizing immigrants and assuring a crowd of his supporters that life was better than ever under his administration.`\
 https://nytimes.com/2025/12/09/us/politics/trump-somalis-immigrants.html

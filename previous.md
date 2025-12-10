@@ -1,5 +1,9 @@
-**Trump Blames Economic Woes on Immigrants in Xenophobic Tirade**\
-`President Trump veered between demonizing immigrants and assuring a crowd of his supporters that life was better than ever under his administration.`\
+**Giants celebrate draft lottery luck but prefer not to push it with Logan Webb and the WBC**\
+`San Francisco moved all the way up to the No. 4 selection.`\
+https://nytimes.com/athletic/6877411/2025/12/09/san-francisco-giants-lottery-luck-logan-webb-wbc/
+
+**Trump’s Speech on Economy Veers Into an Anti-Immigrant Tirade**\
+`President Trump vacillated between demonizing immigrants and assuring a crowd of his supporters that life was better than ever under his administration.`\
 https://nytimes.com/2025/12/09/us/politics/trump-somalis-immigrants.html
 
 **Logan White announces retirement after decorated scouting career with Padres, Dodgers**\
@@ -12,7 +16,7 @@ https://nytimes.com/athletic/6877459/2025/12/09/dodgers-mlb-winter-meetings-kyle
 
 **Blue Jays consider Opening Day return for Shane Bieber 'realistic'**\
 `It’s not clear if the ailment caused Bieber to pick up his player option and avoid the unknowns of free agency.`\
-https://nytimes.com/athletic/6877409/2025/12/09/blue-jays-shane-bieber-could-return-for-opening-day-after-forearm-fatigue-rehab/
+https://nytimes.com/athletic/6877409/2025/12/09/blue-jays-shane-bieber-could-return-for-opening-day-after-forearm-fatigue/
 
 **Third-Party Holding**\
 `Kareem Ayas makes a break for it.`\
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6877448/2025/12/09/byu-clemson-aj-dybantsa-robert-w
 **Trump Administration Withdraws Plan to Overhaul Homeless Aid**\
 `The abrupt decision to revise the plan added new uncertainty and possible delays into the government’s distribution of $3.9 billion in homelessness relief.`\
 https://nytimes.com/2025/12/09/us/politics/trump-homeless-aid-hud.html
-
-**Democrats Say Hegseth Balked at Call for Full Video of Boat Strike**\
-`Defense Secretary Pete Hegseth briefed congressional leaders on Tuesday about the monthslong military campaign targeting people suspected of being drug traffickers at sea.`\
-https://nytimes.com/2025/12/09/us/politics/hegseth-democrats-video-boat-strike.html
 
