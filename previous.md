@@ -1,3 +1,19 @@
+**Rubio Deletes Calibri as the State Department’s Official Typeface**\
+`Secretary of State Marco Rubio called the Biden-era move to the sans serif typeface “wasteful,” casting the return to Times New Roman as part of a push to stamp out diversity efforts.`\
+https://nytimes.com/2025/12/09/us/politics/rubio-state-department-font.html
+
+**Bird Flu Is Suspected After Vulture Carcasses Sat Rotting Outside Ohio School**\
+`The birds lingered for days at a Catholic school near Cincinnati as agencies haggled over who was responsible for removing them. Experts said the public health risk was low.`\
+https://nytimes.com/2025/12/09/us/dead-vultures-bird-flu-ohio.html
+
+**Red Sox close to making internal hire for director of pitching position: Source**\
+`The Red Sox have made significant enhancements to their pitching development program but they are continuing to make additional hires.`\
+https://nytimes.com/athletic/6876951/2025/12/09/red-sox-director-of-pitching-hire/
+
+**With Yordan Alvarez entrenched at DH, Astros have little choice but to trade an infielder**\
+`Houston's plan is for Alvarez to “spend most of his season” at designated hitter, deepening a roster crunch that now appears untenable. `\
+https://nytimes.com/athletic/6876956/2025/12/09/astros-yordan-alvarez-designated-hitter-infielder-trade/
+
 **Slot questions whether Salah should take lead in resolving Liverpool dispute**\
 `Slot also suggested that Salah’s outburst at Elland Road came as a result of an “emotional” week`\
 https://nytimes.com/athletic/6876925/2025/12/09/salah-liverpool-slot-news-update-inter-champions-league/
@@ -17,20 +33,4 @@ https://nytimes.com/2025/12/09/weather/oregon-washington-rain-atomospheric-river
 **Stephen Miller’s Stock Sale Raises Questions, Ethics Experts Say**\
 `Mr. Miller, one of President Trump’s top advisers, sold shares in the mining company MP Materials following a lucrative deal between the company and the government.`\
 https://nytimes.com/2025/12/09/us/politics/stephen-miller-minerals-stake-ethics.html
-
-**Does the Couple That Dresses Together Stick Together?**\
-`Timothée Chalamet and Kylie Jenner wore matching orange outfits at a “Marty Supreme” premiere. Was it a ’90s throwback or an attempt to quiet the rumors?`\
-https://nytimes.com/2025/12/09/style/timothee-chalamet-kylie-jenner-marty-supreme.html
-
-**G.O.P. Will Counter Democrats’ Bid to Preserve Subsidies With Their Own Plan**\
-`Senate Republicans plan to offer a proposal that would create a new payment for people with bare-bones health coverage, clashing with Democrats who are pressing for an extension of existing tax credits.`\
-https://nytimes.com/2025/12/09/us/politics/aca-obamacare-health-subsidies-senate.html
-
-**Why there's no Plan B for Olympic hockey rinks, plus NHL betting integrity, more BOG rumblings**\
-`Also from the NHL's Board of Governors meeting: updates on Canada's men's roster, World Cup planning, Junior-NCAA logistics and NHL revenue.`\
-https://nytimes.com/athletic/6876636/2025/12/09/olympic-hockey-rink-board-of-governors/
-
-**End of Major Corruption Case Embarrasses N.Y. Cannabis Regulators**\
-`A case against the Long Island-based cannabis company Omnium Health was halted on the eve of trial. A judge on Tuesday held off on dropping the matter.`\
-https://nytimes.com/2025/12/09/nyregion/cannabis-investigation-omnium-ny-weed-regulation.html
 

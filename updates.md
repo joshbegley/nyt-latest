@@ -1,3 +1,19 @@
+**Rubio Deletes Calibri as the State Department’s Official Typeface**\
+`Secretary of State Marco Rubio called the Biden-era move to the sans serif typeface “wasteful,” casting the return to Times New Roman as part of a push to stamp out diversity efforts.`\
+https://nytimes.com/2025/12/09/us/politics/rubio-state-department-font.html
+
+**Bird Flu Is Suspected After Vulture Carcasses Sat Rotting Outside Ohio School**\
+`The birds lingered for days at a Catholic school near Cincinnati as agencies haggled over who was responsible for removing them. Experts said the public health risk was low.`\
+https://nytimes.com/2025/12/09/us/dead-vultures-bird-flu-ohio.html
+
+**Red Sox close to making internal hire for director of pitching position: Source**\
+`The Red Sox have made significant enhancements to their pitching development program but they are continuing to make additional hires.`\
+https://nytimes.com/athletic/6876951/2025/12/09/red-sox-director-of-pitching-hire/
+
+**With Yordan Alvarez entrenched at DH, Astros have little choice but to trade an infielder**\
+`Houston's plan is for Alvarez to “spend most of his season” at designated hitter, deepening a roster crunch that now appears untenable. `\
+https://nytimes.com/athletic/6876956/2025/12/09/astros-yordan-alvarez-designated-hitter-infielder-trade/
+
 **Slot questions whether Salah should take lead in resolving Liverpool dispute**\
 `Slot also suggested that Salah’s outburst at Elland Road came as a result of an “emotional” week`\
 https://nytimes.com/athletic/6876925/2025/12/09/salah-liverpool-slot-news-update-inter-champions-league/
