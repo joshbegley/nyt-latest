@@ -1,3 +1,11 @@
+**Nursing Home Owners Pocketed Millions as Patients Suffered, Report Says**\
+`As the owners intentionally understaffed two New Jersey facilities and diverted Medicaid money for their own use, residents in the homes “suffered unnecessarily,” the state comptroller said.`\
+https://nytimes.com/2025/12/10/nyregion/new-jersey-nursing-homes-medicaid.html
+
+**Days After Trump-Led Peace Talks, New Congolese City Falls to Rebels**\
+`The fighting in Congo continues despite Washington’s claims to have brokered an end to the conflict.`\
+https://nytimes.com/2025/12/10/world/africa/congo-m23-kivu-rwanda-uvira-burundi-trump.html
+
 **Fowler arrives under difficult circumstances, but Canadiens had to do something**\
 `The Canadiens can't, or won't, say they hope Jacob Fowler will fix their goaltending problems. So we will say it for them.`\
 https://nytimes.com/athletic/6880088/2025/12/10/canadiens-jacob-fowler-st-louis-goaltending/
