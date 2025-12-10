@@ -1,3 +1,19 @@
+**To Craft the Future, Switzerland Fuses Heritage With Innovation**\
+`While the Swiss way of craft has evolved over centuries, its distinctive approach keeps it contemporary — with an impact that reverberates throughout the world.`\
+https://nytimes.com/paidpost/ubs/to-craft-the-future-switzerland-fuses-heritage-with-innovation.html
+
+**Warner Bros. Deal Piles Pressure on Trump’s Justice Department**\
+`President Trump’s unusual decision to involve himself in the government’s review of the deal puts his antitrust chief in an awkward position.`\
+https://nytimes.com/2025/12/10/technology/warner-bros-deal-justice-department-gail-slater.html
+
+**Charity Raffle Offers Picasso Painting for 100 Euros**\
+`A charity raffle is selling tickets for 100 euros to win a Picasso painting worth more than 1 million euros. The proceeds from the ticket sales are being donated for Alzheimer’s research.`\
+https://nytimes.com/video/arts/100000010578282/pablo-picasso-portrait-raffle.html
+
+**Bucks are hoping to reset their offense. Here's who could help with a turnaround**\
+`"We're not going to panic here," Bucks head coach Doc Rivers said after Milwaukee fell to 10-15 on the season.`\
+https://nytimes.com/athletic/6876971/2025/12/10/bucks-offensive-players-kevin-porter-myles-turner-giannis/
+
 **Why the Canucks are flawed enough to contend for NHL's top draft lottery odds**\
 `Based on their underlying profile, the Canucks are poor-to-unremarkable in every phase of the game.`\
 https://nytimes.com/athletic/6876988/2025/12/10/canucks-stats-standings-nhl-draft-lottery-odds-flaws/
@@ -13,20 +29,4 @@ https://nytimes.com/athletic/6878895/2025/12/10/delaware-state-vs-maryland-strea
 **How to watch Iowa vs. Iowa State women's basketball: Time, TV, streaming**\
 `Find out how to watch the Iowa Hawkeyes play the Iowa State Cyclones, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6878893/2025/12/10/iowa-vs-iowa-state-stream-how-to-watch-dec-10/
-
-**What Menopause Does to the Body**\
-`A head-to-toe guide to the many unexpected symptoms of the midlife transition.`\
-https://nytimes.com/2025/12/10/well/menopause-symptoms.html
-
-**Machado Misses Nobel Peace Prize Ceremony, but Vows to Visit Oslo**\
-`The Venezuelan opposition leader María Corina Machado, who had been living in hiding for more than a year, told the Nobel committee that she was on her way to Oslo after missing the Nobel Peace Prize ceremony.`\
-https://nytimes.com/video/world/europe/100000010578427/machado-nobel-peace-prize-venezuela.html
-
-**Alyssa Naeher re-signs with Chicago Stars through 2026**\
-`The goalkeeper is a mainstay in the NWSL. "I still have more to give and want to be out there competing with my teammates," she said.`\
-https://nytimes.com/athletic/6877728/2025/12/10/alyssa-naeher-re-signs-chicago-stars/
-
-**NASCAR CEO Jim France concludes testimony, plaintiffs rest case in antitrust trial**\
-`On Day 8 of the trial, France explained his reasoning for resisting permanent charters to teams as the plaintiffs wrapped up their case.`\
-https://nytimes.com/athletic/6878760/2025/12/10/nascar-trial-jim-france-michael-jordan-plaintiffs-case/
 
