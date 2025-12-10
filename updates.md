@@ -1,3 +1,7 @@
+**Democrats Say Hegseth Balked at Call for Full Video of Boat Strike**\
+`Defense Secretary Pete Hegseth briefed congressional leaders on Tuesday about the monthslong military campaign targeting people suspected of being drug traffickers at sea.`\
+https://nytimes.com/2025/12/09/us/politics/hegseth-democrats-video-boat-strike.html
+
 **Third-Party Holding**\
 `Kareem Ayas makes a break for it.`\
 https://nytimes.com/2025/12/09/crosswords/daily-puzzle-2025-12-10.html
