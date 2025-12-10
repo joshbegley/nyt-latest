@@ -1,3 +1,15 @@
+**A Task Force on the Media Grapples With Trust and Biases**\
+`Legacy journalists on a DealBook Summit panel warned about interference from President Trump, while panelists from new media said he is just the “coroner” for a field that had already lost credibility.`\
+https://nytimes.com/2025/12/10/business/dealbook/media-task-force-trust-biases.html
+
+**Pete Alonso finds a perfect fit with the Orioles, who needed his right-handed power**\
+`The Orioles needed right-handed power and get it with Alonso. Mets fans will miss the star slugger but the team has avenues to replace him.`\
+https://nytimes.com/athletic/6879444/2025/12/10/pete-alonso-baltimore-orioles-signing-analysis/
+
+**Higher Education Plans for a Future Markedly Changed by A.I.**\
+`Leaders of colleges and universities on a panel at the DealBook Summit said other challenges they face include government pressure and preparing graduates for a new world.`\
+https://nytimes.com/2025/12/10/business/dealbook/higher-education-task-force.html
+
 **Tennessee expected to hire Penn State DC Jim Knowles for same role**\
 `Knowles spent three years with the Buckeyes before joining James Franklin at Penn State.`\
 https://nytimes.com/athletic/6879735/2025/12/10/tennessee-penn-state-dc-jim-knowles-hiring/
@@ -17,16 +29,4 @@ https://nytimes.com/2025/12/10/t-magazine/meret-oppenheim-switzerland-home.html
 **Time saver: NFL cuts 2 minutes between picks in first round of draft**\
 `Teams will now have eight minutes to make their first-round selections, as opposed to the previous 10-minute window.`\
 https://nytimes.com/athletic/6879500/2025/12/10/nfl-draft-cuts-time-first-round-2026/
-
-**A Proponent of Election Conspiracy Theories Will Take a Top Role at FEMA**\
-`Gregg Phillips, who spread unsubstantiated claims of mass voter fraud in the 2016 election, will join the agency’s leadership, the Trump administration confirmed.`\
-https://nytimes.com/2025/12/10/climate/gregg-phillips-fema.html
-
-**And the Winners of Our Extremely Specific Acting Awards Are...**\
-`Best Acting in a Helmet, Best Nervous Breakdown, Craziest Charm—the film performances so good Wesley Morris had to invent his own categories.`\
-https://nytimes.com/interactive/2025/12/10/magazine/best-acting-performances-wesley-morris.html
-
-**What defines a league-leading management team? Win today AND tomorrow: MoneyCall**\
-`Read the cheat sheet of all of the biggest sports-business stories in The Athletic's free newsletter, MoneyCall`\
-https://nytimes.com/athletic/6879632/2025/12/10/okc-thunder-sam-presti-nba-front-office-moneycall/
 
