@@ -1,3 +1,27 @@
+**Leafs' Bobby McMann suspended 1 game for high-sticking**\
+`This is the first time McMann, 29, has ever been suspended or fined by the NHL's Department of Player Safety.`\
+https://nytimes.com/athletic/6877010/2025/12/09/maple-leafs-bobby-mcmann-suspended-oliver-bjorkstrand/
+
+**How to watch Titans vs. 49ers: Time, TV, streaming**\
+`Find out how to watch the Tennessee Titans play the San Francisco 49ers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6877120/2025/12/09/titans-vs-49ers-stream-how-to-watch-dec-14/
+
+**How to watch Packers vs. Broncos: Time, TV, streaming**\
+`Find out how to watch the Green Bay Packers play the Denver Broncos, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6877110/2025/12/09/packers-vs-broncos-stream-how-to-watch-dec-14/
+
+**How to watch Panthers vs. Saints: Time, TV, streaming**\
+`Find out how to watch the Carolina Panthers play the New Orleans Saints, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6877109/2025/12/09/panthers-vs-saints-stream-how-to-watch-dec-14/
+
+**How to watch Lions vs. Rams: Time, TV, streaming**\
+`Find out how to watch the Detroit Lions play the Los Angeles Rams, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6877102/2025/12/09/lions-vs-rams-stream-how-to-watch-dec-14/
+
+**How to watch Colts vs. Seahawks: Time, TV, streaming**\
+`Find out how to watch the Indianapolis Colts play the Seattle Seahawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6877098/2025/12/09/colts-vs-seahawks-stream-how-to-watch-dec-14/
+
 **Seattle Plans Pride Match at Soccer World Cup, Infuriating Iran and Egypt**\
 `The two countries, which criminalize homosexuality and impose severe punishments for it, were picked to play on a day celebrating L.G.B.T.Q. communities.`\
 https://nytimes.com/2025/12/09/world/middleeast/iran-egypt-world-cup-seattle-pride.html
@@ -9,28 +33,4 @@ https://nytimes.com/athletic/6876786/2025/12/09/philip-rivers-nfl-colts-sports-f
 **Indiana-Ohio State Big Ten title game draws record viewership**\
 `Fox said the Hoosiers vs. Buckeyes was the most-watched championship game of the weekend.`\
 https://nytimes.com/athletic/6876829/2025/12/09/big-ten-championship-viewers-indiana-ohio-state/
-
-**Kyle Schwarber: A unique contract for a unique player — and Phillies legend in the making**\
-`Why has there never been a contract like this? Possibly because it’s practically impossible to find another player quite like this.`\
-https://nytimes.com/athletic/6876863/2025/12/09/kyle-schwarber-phillies-legend-contract/
-
-**For Real, a Natural History of Misinformation**\
-`It’s not just humans who suffer from leading one another astray. So do fish, flies and even bacteria.`\
-https://nytimes.com/2025/12/09/science/evolution-fish-misinformation.html
-
-**Rubio Deletes Calibri as the State Department’s Official Typeface**\
-`Secretary of State Marco Rubio called the Biden-era move to the sans serif typeface “wasteful,” casting the return to Times New Roman as part of a push to stamp out diversity efforts.`\
-https://nytimes.com/2025/12/09/us/politics/rubio-state-department-font.html
-
-**Bird Flu Is Suspected After Vulture Carcasses Sat Rotting Outside Ohio School**\
-`The birds lingered for days at a Catholic school near Cincinnati as agencies haggled over who was responsible for removing them. Officials said the public health risk was low.`\
-https://nytimes.com/2025/12/09/us/dead-vultures-bird-flu-ohio.html
-
-**Red Sox close to making internal hire for director of pitching position: Source**\
-`The Red Sox have made significant enhancements to their pitching development program but they are continuing to make additional hires.`\
-https://nytimes.com/athletic/6876951/2025/12/09/red-sox-director-of-pitching-hire/
-
-**With Yordan Alvarez entrenched at DH, Astros have little choice but to trade an infielder**\
-`Houston's plan is for Alvarez to “spend most of his season” at designated hitter, deepening a roster crunch that now appears untenable. `\
-https://nytimes.com/athletic/6876956/2025/12/09/astros-yordan-alvarez-designated-hitter-infielder-trade/
 
