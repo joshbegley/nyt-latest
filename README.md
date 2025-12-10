@@ -1,3 +1,7 @@
+**Wenne Alton Davis, Actor in ‘Marvelous Mrs. Maisel,’ Hit by Auto and Killed**\
+`The actor, 60, was struck by an S.U.V. in Midtown Manhattan late on Monday, her agent and the police said.`\
+https://nytimes.com/2025/12/10/us/wenne-alton-davis-dead.html
+
 **Agriculture Department Approves More Soda Bans For Food Stamps**\
 `Six more states have been approved for waivers that ban the purchase of some sugary foods and beverages using food stamps.`\
 https://nytimes.com/2025/12/10/us/politics/agriculture-department-approves-more-soda-bans-for-food-stamps.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6878138/2025/12/10/nfl-week-15-confidence-picks-pac
 **Olympic officials say smaller hockey rink 'exactly what it should be,' acknowledge arena delays**\
 `The IOC sports director said Wednesday that "everybody's now aligned" on the rinks' dimensions, which came as a surprise to many last week.`\
 https://nytimes.com/athletic/6879296/2025/12/10/ioc-comments-olympic-ice-surface/
-
-**YouTube TV to launch a new sports package next year**\
-`Early in 2026, YouTube TV will launch 10 genre-specific packages, including a YouTube TV Sports Plan.`\
-https://nytimes.com/athletic/6879115/2025/12/10/youtube-tv-sports-plan-2026/
 
