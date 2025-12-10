@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6877862/2025/12/10/lakers-nba-cup-preview/
 
 **In praise of Clarence Seedorf, one of football's most compelling pundits**\
-`The former Dutch international is not just an excellent analyst but a fine journalist - as his interrogation of Arne Slot proved`\
+`The former Dutch international is not just an excellent analyst but a fine journalist - as Tuesday's interrogation of Arne Slot proved`\
 https://nytimes.com/athletic/6878196/2025/12/10/clarence-seedorf-arne-slot-tv-pundit/
 
 **Kyle Schwarber is back, but change is coming to Phillies' roster**\
