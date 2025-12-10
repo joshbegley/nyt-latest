@@ -1,3 +1,7 @@
+**Holiday Spending Shows Effects of an Uneven Economy**\
+`Discount and higher-end retailers have reported stronger sales from consumers who are hunting for the best deals and long-lasting items.`\
+https://nytimes.com/2025/12/10/business/holiday-spending-economy.html
+
 **Mavericks' Dereck Lively II will miss rest of season after foot surgery**\
 `The 21-year-old played in just seven games this season while dealing with persistent right foot issues.`\
 https://nytimes.com/athletic/6879032/2025/12/10/dereck-lively-injury-mavericks-foot/
@@ -25,8 +29,4 @@ https://nytimes.com/athletic/6878935/2025/12/10/blues-robby-fabbri-signing/
 **For the Last Sundance in Utah, Expect Debuts, Reunions and 3 Charli XCX Titles**\
 `Olivia Wilde will also appear in two films, including one she directed, and the cast of “Little Miss Sunshine” will return for its 20th anniversary.`\
 https://nytimes.com/2025/12/10/movies/sundance-film-festival-charli-xcx-olivia-wilde.html
-
-**Is It OK to Break Up With a Troubled Friend?**\
-`At what point is stepping back self-protection rather than abandonment?`\
-https://nytimes.com/2025/12/10/magazine/ethics-troubled-friend.html
 
