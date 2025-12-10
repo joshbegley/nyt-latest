@@ -1,3 +1,7 @@
+**Canada’s Ambassador to U.S., Who Also Led Trade Talks, to Leave Post**\
+`Kirsten Hillman, who came to Washington during the first Trump administration, had already extended her tenure once.`\
+https://nytimes.com/2025/12/09/world/canada/canada-us-ambassador-kirsten-hillman.html
+
 **If the Tigers are really geared toward the future, should they trade Tarik Skubal?**\
 `Or will they go all in to win a World Series in Skubal's final year under team control?`\
 https://nytimes.com/athletic/6877130/2025/12/09/should-tigers-trade-tarik-skubal/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6877173/2025/12/09/chicago-white-sox-first-pick-202
 **The Battle for Warner Bros. Discovery**\
 `Nicole Sperling, a Times reporter who covers Hollywood and the streaming revolution, breaks down the competing bids from Netflix and Paramount to buy Warner Bros. Discovery.`\
 https://nytimes.com/video/business/media/100000010568344/the-battle-for-warner-bros-discovery.html
-
-**F.D.A. Expands Covid Vaccine Inquiry to Adult Deaths**\
-`The agency claimed that 10 children’s deaths were linked to the shots, although it did not release evidence to support the assertions.`\
-https://nytimes.com/2025/12/09/health/fda-covid-vaccine-adult-death-claims.html
 
