@@ -1,3 +1,7 @@
+**Machado Won’t Pick Up Peace Prize in Person, Nobel Director Says**\
+`The head of the Norwegian Nobel Institute told the state broadcaster that María Corina Machado will not attend Wednesday’s event in Oslo.`\
+https://nytimes.com/2025/12/10/world/europe/machado-nobel-venezuela-ceremony.html
+
 **Word of the Day: circumspect**\
 `This word has appeared in 92 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/12/10/learning/word-of-the-day-circumspect.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/10/opinion/trum-maduro-venezuela.html
 **Desmond Bane's 'dawg mentality' is transforming the Magic, 37 points at a time**\
 `Bane scored 37 points, collected six rebounds and dished out five assists in the Magic's NBA Cup quarterfinal victory over the Heat.`\
 https://nytimes.com/athletic/6877320/2025/12/10/desmond-bane-stats-magic-nba-cup/
-
-**How John Oliver's comedy partner transitioned from stand up to statistics**\
-`Andy Zaltzman was hooked on cricket after watching Ian Botham in the 1981 Ashes and is now a fixture on the BBC's Test Match Special`\
-https://nytimes.com/athletic/6865671/2025/12/10/andy-zaltzman-tms-cricket-john-oliver/
 
