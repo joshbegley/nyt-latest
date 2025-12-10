@@ -1,3 +1,7 @@
+**After losing Edwin Díaz, pressure is on David Stearns and the Mets**\
+`Tuesday felt bad for a fan base that had grown fond of Díaz.`\
+https://nytimes.com/athletic/6877121/2025/12/09/edwin-diaz-pressure-on-david-stearns-mets/
+
 **Dodgers' signing of Edwin Díaz hit like a shock, but spending was no surprise**\
 `With the addition of Díaz, the Dodgers have now spent a combined $141 million on closers over the past two winters.`\
 https://nytimes.com/athletic/6877125/2025/12/09/dodgers-mlb-winter-meetings-edwin-diaz/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/09/world/europe/zelensky-ukraine-russia-elections.ht
 **Miami Elects First Democratic Mayor in Nearly 30 Years**\
 `Eileen Higgins, a former Miami-Dade County commissioner, will also be the city’s first female mayor and the first non-Hispanic mayor since the 1990s.`\
 https://nytimes.com/2025/12/09/us/miami-mayor-eileen-higgins-election.html
-
-**Trump Seeks to Reassure Americans That He Is Focused on Affordability**\
-`The president finds himself in an economic and political bind as his tariffs drive up costs.`\
-https://nytimes.com/2025/12/09/us/politics/trump-affordability-economy-pennsylvania.html
 
