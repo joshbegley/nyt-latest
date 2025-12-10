@@ -1,3 +1,15 @@
+**Oxlade-Chamberlain interview: 'At Arsenal, everything is bigger and moving towards elite-level'**\
+`Back in England as a free agent, the 32-year-old is convinced he can still perform at a high level — but is waiting for a chance to prove it`\
+https://nytimes.com/athletic/6872552/2025/12/10/alex-oxlade-chamberlain-interview-arsenal/
+
+**The tactical issues Xabi Alonso needs to fix to save his job at Real Madrid**\
+`The 44-year-old's position at the Bernabeu is already under serious threat, despite having only been appointed in May`\
+https://nytimes.com/athletic/6872958/2025/12/10/tactical-issues-xabi-alonso-madrid/
+
+**Fantasy football rankings Week 15: Sleepers, starts, best WWE and John Cena matches**\
+`Will Christian Watson continue his league-winning ways? Jake Ciely lets you know where he sits among the rest in his Week 15 rankings.`\
+https://nytimes.com/athletic/6876790/2025/12/10/fantasy-football-rankings-week-15-playoffs-sleepers-starts-sits/
+
 **Newcastle's 'Woltemessi' returns to Germany with a new edge to his game**\
 `Before tonight's Champions League game with Leverkusen, we look at how the Germany striker has adapted and improved his game`\
 https://nytimes.com/athletic/6872246/2025/12/10/newcastle-woltemade-germany-champions-league/
