@@ -1,3 +1,7 @@
+**Giants' Winter Meetings 'haul' is a Rule 5 draft trade for catcher Daniel Susac**\
+`The Giants didn't sign any big names during the Winter Meetings, but they moved up in the first round and added catching depth.`\
+https://nytimes.com/athletic/6880006/2025/12/10/sf-giants-rule-5-daniel-susac-trade-winter-meetings/
+
 **What Democrats Can Learn from Biden’s Border Mistakes**\
 `As 2028 takes shape, Democrats will face a version of the same dilemma.`\
 https://nytimes.com/2025/12/10/us/politics/biden-immigration-border-mistakes-lessons.html
