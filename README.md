@@ -1,3 +1,7 @@
+**Why Markets Are Getting Anxious About the Fed**\
+`The central bank is widely expected to lower its benchmark lending rate on Wednesday. But investors are worried about what comes afterward.`\
+https://nytimes.com/2025/12/10/business/dealbook/fed-rates-powell-trump.html
+
 **Hoping to avoid drop in draft lottery, Twins get 'good outcome' with third pick**\
 `The Twins had the second-best odds of receiving the first pick in the draft via the lottery system.`\
 https://nytimes.com/athletic/6877969/2025/12/10/twins-mlb-draft-lottery-results-third-pick/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6876827/2025/12/10/jets-top-line-scheifele-connor-a
 **For 49ers rookie quarterback Kurtis Rourke, the 2026 season begins this week**\
 `Rourke and Brock Purdy are the only two 49ers passers guaranteed to be on the roster when next year's offseason program begins.`\
 https://nytimes.com/athletic/6876733/2025/12/10/kurtis-rourke-49ers-injury-practice/
-
-**Four thoughts on fallout from Bengals' impactful loss in Buffalo: Dehner Jr.**\
-`From Tee Higgins' concussion issues to the defense's failure to cover tight ends, Cincinnati has a lot to sort through as season fizzles.`\
-https://nytimes.com/athletic/6877339/2025/12/10/bengals-hendrickson-higgins-burton-ravens/
 
