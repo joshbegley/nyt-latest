@@ -1,3 +1,7 @@
+**Why Oracle Is Worrying Investors About the A.I. Boom**\
+`Shares in the technology company are down as investors grow anxious that its bet on artificial intelligence, and OpenAI in particular, may not pay off.`\
+https://nytimes.com/2025/12/11/business/dealbook/ai-spending-oracle-openai.html
+
 **Major Weight Loss and Knee-Pain Relief Seen With New Eli Lilly Drug**\
 `The maker of Zepbound reported results from a study of retatrutide, which targets three hormones in the body and led to much more weight loss than any approved drug.`\
 https://nytimes.com/2025/12/11/health/eli-lilly-retatrutide-weight-loss-drug.html

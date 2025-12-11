@@ -1,3 +1,7 @@
+**Why Oracle Is Worrying Investors About the A.I. Boom**\
+`Shares in the technology company are down as investors grow anxious that its bet on artificial intelligence, and OpenAI in particular, may not pay off.`\
+https://nytimes.com/2025/12/11/business/dealbook/ai-spending-oracle-openai.html
+
 **Major Weight Loss and Knee-Pain Relief Seen With New Eli Lilly Drug**\
 `The maker of Zepbound reported results from a study of retatrutide, which targets three hormones in the body and led to much more weight loss than any approved drug.`\
 https://nytimes.com/2025/12/11/health/eli-lilly-retatrutide-weight-loss-drug.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6880672/2025/12/11/49ers-playoff-push-bye/
 **Why there's no need to bring back divisions as SEC moves to 9-game schedule**\
 `The conference is better off with one division, which has led to better matchups even if it means minor headaches.`\
 https://nytimes.com/athletic/6881455/2025/12/11/sec-football-schedule-2026-divisions/
-
-**How F1 drivers avoid jet lag: Casino lights, performance coaches and making beds 'sacred'**\
-`F1 drivers are finding new ways to get ahead - by sleeping better`\
-https://nytimes.com/athletic/6878832/2025/12/11/how-f1-drivers-sleep/
 
