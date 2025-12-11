@@ -1,3 +1,7 @@
+**For Warriors, turnover issues are nothing new. So why are they so damaging this year?**\
+`The Warriors have won NBA titles while being among the most turnover-happy teams in the league. But this year, it's sinking them.`\
+https://nytimes.com/athletic/6881099/2025/12/11/golden-state-warriors-turnover-problems-stephen-curry-jimmy-butler/
+
 **French tennis player suspended for 20 years over anti-corruption breaches**\
 `Quention Folliot was charged with 30 offenses and sanctioned for 27.`\
 https://nytimes.com/athletic/6881919/2025/12/11/tennis-match-fixing-corruption-quentin-folliot-ban/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6882223/2025/12/11/ducks-vs-islanders-stream-how-to
 **How to watch Senators vs. Blue Jackets: Time, TV, streaming**\
 `Find out how to watch the Ottawa Senators play the Columbus Blue Jackets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6882221/2025/12/11/senators-vs-blue-jackets-stream-how-to-watch-dec-11/
-
-**Killer Whales Find an ‘Unlikely Friend’ in Dolphins**\
-`Off the coast of British Columbia, dolphins lead killer whales to salmon and earn their share of lunch, a new study reveals.`\
-https://nytimes.com/2025/12/11/science/orcas-dolphins-fish.html
 
