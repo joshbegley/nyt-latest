@@ -1,3 +1,19 @@
+**Major Weight Loss and Knee-Pain Relief Seen With New Eli Lilly Drug**\
+`The maker of Zepbound reported results from a study of retatrutide, which targets three hormones in the body and led to much more weight loss than any approved drug.`\
+https://nytimes.com/2025/12/11/health/eli-lilly-retatrutide-weight-loss-drug.html
+
+**U.K. Police Seek Suspects in Theft of Over 600 Artifacts From Museum**\
+`The items were stolen in a “high-value burglary” from the Bristol Museum’s British Empire and Commonwealth collection, the police said.`\
+https://nytimes.com/2025/12/11/arts/bristol-museum-robbery.html
+
+**Five candidates to watch in Michigan's coaching search**\
+`Many coaching candidates you’d think the Wolverines might consider are off the market at this point in December. Who might they pursue?`\
+https://nytimes.com/athletic/6880472/2025/12/11/michigan-coaching-candidates-kalen-deboer-jedd-fisch/
+
+**Inside Real Madrid: Is Xabi Alonso still facing the sack?**\
+`The 44-year-old manager is under real pressure at the Santiago Bernabeu, following a terrible run of form`\
+https://nytimes.com/athletic/6881259/2025/12/11/real-madrid-alonso-sack-news-analysis/
+
 **Man Utd wage bill falls year on year: Analysing Q1 financial results**\
 `The fall was helped by the loan exits of high earners Jadon Sancho and Marcus Rashford.`\
 https://nytimes.com/athletic/6881631/2025/12/11/manchester-united-wage-bill-finances/
