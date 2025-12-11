@@ -1,3 +1,11 @@
+**The New York Times in Print for Thursday, Dec. 11, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/12/11/todays-new-york-times
+
+**What Trump Gets Right About Europe**\
+`It’s an actual place, not an arbitrarily bounded zone.`\
+https://nytimes.com/2025/12/11/opinion/national-security-strategy-us-europe.html
+
 **Radek Vitek, the Man Utd loanee who became a Championship 'wall'**\
 `The 6ft 6in Czech has impressed at the Championship promotion hopefuls this season`\
 https://nytimes.com/athletic/6864894/2025/12/11/radek-vitek-man-utd-loan-bristol-city/
@@ -22,15 +30,7 @@ https://nytimes.com/athletic/6874273/2025/12/11/wolves-rob-edwards-relegation-pl
 `Piet Cremers began coaching at just 14 years old and has enjoyed a fast-track career. Next up, at age 31, could be the World Cup with Wales`\
 https://nytimes.com/athletic/6867218/2025/12/11/meet-the-31-year-old-coach-who-has-already-worked-with-guardiola-kompany-and-bellamy/
 
-**Mexico Approves 50% Tariffs on Many Chinese Imports**\
-`The tariffs will apply to goods from China and other nations. Washington has been pressuring Mexico to move away from dealing with China.`\
-https://nytimes.com/2025/12/11/world/americas/mexico-tariffs-china.html
-
-**The Alternative Premier League Table: No 16 – Pressing and possession won in final third**\
-`A detailed look at the teams and players that have been the best at recovering the ball high up the pitch this season`\
-https://nytimes.com/athletic/6878202/2025/12/11/the-alternative-premier-league-table-no-16/
-
-**The demand for instant gratification in football is unrealistic and damaging. Patience is key**\
-`Clubs and managers are sensible to block out the noise from fans and social media — doing so allows them to think and act more rationally`\
-https://nytimes.com/athletic/6875667/2025/12/11/football-relentless-schedule-premier-league-champions-league/
+**Tanaka has a talismanic quality, so why is he not assured of his starting spot?**\
+`The midfielder has an ability to conduct the Elland Road crowd but there are aspects of his game that mean he is not always first choice`\
+https://nytimes.com/athletic/6878522/2025/12/11/ao-tanaka-leeds-farke/
 
