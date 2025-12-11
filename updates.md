@@ -1,3 +1,7 @@
+**Lawsuit Challenges Park Service Passes Featuring Trump**\
+`An environmental group is suing, saying federal law requires an image of public lands, not the president.`\
+https://nytimes.com/2025/12/10/climate/lawsuit-park-service-passes-trump.html
+
 **Nursing Home Owners Pocketed Millions as Patients Suffered, Report Says**\
 `As the owners intentionally understaffed two New Jersey facilities and diverted Medicaid money for their own use, residents in the homes “suffered unnecessarily,” the state comptroller said.`\
 https://nytimes.com/2025/12/10/nyregion/new-jersey-nursing-homes-medicaid.html
