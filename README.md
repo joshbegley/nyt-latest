@@ -1,3 +1,11 @@
+**Lululemon C.E.O. to Step Down in January**\
+`The maker of yoga clothing is looking for a new leader after public pressure from the company’s founder.`\
+https://nytimes.com/2025/12/11/business/lululemon-ceo-calvin-mcdonald.html
+
+**Federal Judge Blocks FEMA From Canceling Climate Resiliency Grants**\
+`A Thursday ruling said the Trump administration cannot eliminate the Building Resilient Infrastructure and Communities program without Congress.`\
+https://nytimes.com/2025/12/11/climate/judge-blocks-fema-canceling-climate-grants.html
+
 **The Duality in Conservative Politics**\
 `Andrew Kolvet of Turning Point USA explains why he endorses a tough-love approach to politics on this episode of “Interesting Times.”`\
 https://nytimes.com/video/opinion/100000010563908/the-duality-in-conservative-politics.html
@@ -25,12 +33,4 @@ https://nytimes.com/2025/12/11/us/hayward-california-gas-line-explosion.html
 **Grizzlies’ Zach Edey expected to miss at least 4 weeks with injury**\
 `With Ja Morant set to return, the Grizzlies will have to go without another player in the lineup: Zach Edey.`\
 https://nytimes.com/athletic/6883039/2025/12/11/zach-edey-grizzlies-injury/
-
-**D.L. Coburn, Playwright With a Solo Hit, ‘The Gin Game,’ Dies at 87**\
-`His two-character work won a Pulitzer Prize and had a long Broadway run, but he never replicated its success and struggled to get his later work staged.`\
-https://nytimes.com/2025/12/11/theater/dl-coburn-dead.html
-
-**Trump Isn’t Interested in Fighting a New Cold War. He Wants a New Civilizational War.**\
-`Trump is not interested in refighting the Cold War. He is, in my view, interested in fighting the civilizational war over what is the American “home.”`\
-https://nytimes.com/2025/12/11/opinion/trump-europe-security-strategy.html
 
