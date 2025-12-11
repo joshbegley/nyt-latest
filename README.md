@@ -1,3 +1,7 @@
+**How to watch Dolphins vs. Steelers: Time, TV, streaming**\
+`Find out how to watch the Miami Dolphins play the Pittsburgh Steelers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6881186/2025/12/11/dolphins-vs-steelers-stream-how-to-watch-dec-15/
+
 **Word of the Day: beatific**\
 `This word has appeared in 17 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/12/11/learning/word-of-the-day-beatific.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/11/opinion/national-security-strategy-us-europe.html
 **Radek Vitek, the Man Utd loanee who became a Championship 'wall'**\
 `The 6ft 6in Czech has impressed at the Championship promotion hopefuls this season`\
 https://nytimes.com/athletic/6864894/2025/12/11/radek-vitek-man-utd-loan-bristol-city/
-
-**England's grade cricket connections, where even Joe Root had to play in the second XI**\
-`Australian grade cricket has been called 'the best finishing school anyone could want' - and several current England players would agree`\
-https://nytimes.com/athletic/6855386/2025/12/11/england-australia-grade-cricket-root-duckett-crawley-brook/
 

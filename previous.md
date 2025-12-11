@@ -1,3 +1,7 @@
+**Word of the Day: beatific**\
+`This word has appeared in 17 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/12/11/learning/word-of-the-day-beatific.html
+
 **Late Night Tries to Decipher Another Rambling Trump Speech**\
 `Among other things, President Trump claimed to be a big hit with Black voters. But Desi Lydic says her potato salad is getting better numbers.`\
 https://nytimes.com/2025/12/11/arts/television/late-night-desi-lydic-trump-speech.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6864894/2025/12/11/radek-vitek-man-utd-loan-bristol
 **England's grade cricket connections, where even Joe Root had to play in the second XI**\
 `Australian grade cricket has been called 'the best finishing school anyone could want' - and several current England players would agree`\
 https://nytimes.com/athletic/6855386/2025/12/11/england-australia-grade-cricket-root-duckett-crawley-brook/
-
-**Hull setback offers Wrexham's Parkinson a chance to reflect on how far he has come**\
-`Last week brought the anniversary of what remains Wrexham manager Phil Parkinson's biggest disappointment in football`\
-https://nytimes.com/athletic/6875042/2025/12/11/hull-wrexham-parkinson/
 

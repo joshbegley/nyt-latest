@@ -1,3 +1,7 @@
+**Word of the Day: beatific**\
+`This word has appeared in 17 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/12/11/learning/word-of-the-day-beatific.html
+
 **Late Night Tries to Decipher Another Rambling Trump Speech**\
 `Among other things, President Trump claimed to be a big hit with Black voters. But Desi Lydic says her potato salad is getting better numbers.`\
 https://nytimes.com/2025/12/11/arts/television/late-night-desi-lydic-trump-speech.html
