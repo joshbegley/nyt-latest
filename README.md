@@ -1,3 +1,11 @@
+**Always on My Mind: Trump’s Enduring Focus on Joe Biden**\
+`After nearly 11 months in office, the president’s tendency to talk about his predecessor is more pronounced than ever.`\
+https://nytimes.com/2025/12/10/us/politics/trump-preoccupation-biden.html
+
+**First Edwin Díaz, now Pete Alonso: Where do Mets go from here?**\
+`The Mets still have two superstar players in Juan Soto and Francisco Lindor, but is that enough to contend?`\
+https://nytimes.com/athletic/6880071/2025/12/10/where-do-mets-go-pete-alonso-edwin-diaz/
+
 **Michigan interim coach Biff Poggi: 'The most interesting man in coaching'**\
 `Biff Poggi was an advisor for Jim Harbaugh before working under Sherrone Moore. One colleague said of Poggi: "His heart is all in it."`\
 https://nytimes.com/athletic/6880279/2025/12/10/michigan-biff-poggi-interim-head-coach/
@@ -25,12 +33,4 @@ https://nytimes.com/2025/12/10/climate/lawsuit-park-service-passes-trump.html
 **Nursing Home Owners Pocketed Millions as Patients Suffered, Report Says**\
 `As the owners intentionally understaffed two New Jersey facilities and diverted Medicaid money for their own use, residents in the homes “suffered unnecessarily,” the state comptroller said.`\
 https://nytimes.com/2025/12/10/nyregion/new-jersey-nursing-homes-medicaid.html
-
-**Days After Trump-Led Peace Talks, New Congolese City Falls to Rebels**\
-`The fighting in Congo continues despite Washington’s claims to have brokered an end to the conflict.`\
-https://nytimes.com/2025/12/10/world/africa/congo-m23-kivu-rwanda-uvira-burundi-trump.html
-
-**Fowler arrives under difficult circumstances, but Canadiens had to do something**\
-`The Canadiens can't, or won't, say they hope Jacob Fowler will fix their goaltending problems. So we will say it for them.`\
-https://nytimes.com/athletic/6880088/2025/12/10/canadiens-jacob-fowler-st-louis-goaltending/
 
