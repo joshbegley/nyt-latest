@@ -1,3 +1,7 @@
+**Wake Up and Smell the Coffee Machines**\
+`Americans are drinking more coffee at home too, according to an industry report.`\
+https://nytimes.com/2025/12/11/realestate/buying-coffee-machines.html
+
 **Falcons vs. Buccaneers Thursday Night Football betting: Player props and a parlay**\
 `Brad Evans offers a player prop and parlay for Thursday night's matchup between the Tampa Bay Buccaneers and Atlanta Falcons. `\
 https://nytimes.com/athletic/6878646/2025/12/11/falcons-buccaneers-thursday-night-football-betting-props-parlay/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6880472/2025/12/11/michigan-coaching-candidates-kal
 **Inside Real Madrid: Is Xabi Alonso still facing the sack?**\
 `The 44-year-old manager is under real pressure at the Santiago Bernabeu, following a terrible run of form`\
 https://nytimes.com/athletic/6881259/2025/12/11/real-madrid-alonso-sack-news-analysis/
-
-**Man Utd wage bill falls year on year: Analysing Q1 financial results**\
-`The fall was helped by the loan exits of high earners Jadon Sancho and Marcus Rashford.`\
-https://nytimes.com/athletic/6881631/2025/12/11/manchester-united-wage-bill-finances/
 
