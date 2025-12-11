@@ -1,3 +1,7 @@
+**Mike Lindell, MyPillow Founder, Announces Run for Minnesota Governor**\
+`He is a close ally of President Trump and has been a leading proponent of the election denial movement, which falsely claims that voting machines are often rigged.`\
+https://nytimes.com/2025/12/11/us/politics/mypillow-mike-lindell-minnesota-governor-election.html
+
 **For Warriors, turnover issues are nothing new. So why are they so damaging this year?**\
 `The Warriors have won NBA titles while being among the most turnover-happy teams in the league. But this year, it's sinking them.`\
 https://nytimes.com/athletic/6881099/2025/12/11/golden-state-warriors-turnover-problems-stephen-curry-jimmy-butler/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6882225/2025/12/11/golden-knights-vs-flyers-stream-
 **How to watch Ducks vs. Islanders: Time, TV, streaming**\
 `Find out how to watch the Anaheim Ducks play the New York Islanders, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6882223/2025/12/11/ducks-vs-islanders-stream-how-to-watch-dec-11/
-
-**How to watch Senators vs. Blue Jackets: Time, TV, streaming**\
-`Find out how to watch the Ottawa Senators play the Columbus Blue Jackets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6882221/2025/12/11/senators-vs-blue-jackets-stream-how-to-watch-dec-11/
 
