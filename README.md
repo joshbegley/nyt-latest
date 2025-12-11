@@ -1,3 +1,7 @@
+**In the Sport of Driving, Four Horses Pull a Cart Around an Arena. Quickly.**\
+`The spectacle is reminiscent of the movie “Ben Hur,” with high-speed action and roaring crowds. Teamwork is crucial.`\
+https://nytimes.com/2025/12/10/sports/horse-racing/chi-geneva-horses-driving.html
+
 **What a Dog Might Do**\
 `Kevin Curry wants us to really think about his puzzle.`\
 https://nytimes.com/2025/12/10/crosswords/daily-puzzle-2025-12-11.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6783789/2025/12/10/mlb-mike-yastrzemski-free-agency
 **One of the Last Times Square Dive Bars Faces Eviction**\
 `New York is a city of hustlers, of odds makers and shot takers. For 54 years, Jimmy’s Corner has been their bar.`\
 https://nytimes.com/2025/12/10/nyregion/jimmys-corner-bar-times-square-boxing.html
-
-**Gavin Newsom: ‘We Failed on the Border’**\
-`Gov. Gavin Newsom has pushed California to offer health insurance to undocumented immigrants. He also thinks the Democratic Party has failed on border policy in recent years. On a recent episode of “The Ezra Klein Show,” he explains why.`\
-https://nytimes.com/video/opinion/100000010559561/gavin-newsom-we-failed-on-the-border.html
 
