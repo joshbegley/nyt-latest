@@ -1,3 +1,7 @@
+**How to watch Dolphins vs. Steelers: Time, TV, streaming**\
+`Find out how to watch the Miami Dolphins play the Pittsburgh Steelers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6881186/2025/12/11/dolphins-vs-steelers-stream-how-to-watch-dec-15/
+
 **Word of the Day: beatific**\
 `This word has appeared in 17 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/12/11/learning/word-of-the-day-beatific.html
