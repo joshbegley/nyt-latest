@@ -1,3 +1,7 @@
+**Plans for Milan vs Como league game to be played in Australia in doubt**\
+`It would be the first time a European league match is played abroad, after plans for the United States to host a La Liga game fell through. `\
+https://nytimes.com/athletic/6881262/2025/12/11/milan-como-australia-serie-a-game-news/
+
 **Must-See Moments From the N.B.A. Cup**\
 `On Wednesday, the Oklahoma Thunder led by 53 points at one point on the way to a win over the Phoenix Suns. And the San Antonio Spurs, without Victor Wembanyama, went to Los Angeles and beat the Lakers.`\
 https://nytimes.com/video/sports/basketball/100000010580507/must-see-moments-from-the-nba-cup.html
