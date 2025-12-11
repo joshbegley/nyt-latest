@@ -1,3 +1,11 @@
+**What we're hearing about Salah's future – and what would be best for his brand?**\
+`Analysing where the unhappy forward's future could lie and the markets that could be most lucrative`\
+https://nytimes.com/athletic/6878776/2025/12/11/mohamed-salah-transfer-options/
+
+**María Corina Machado Appears in Oslo After a Year in Hiding**\
+`María Corina Machado, Venezuela’s opposition leader, greeted supporters in the Norwegian capital, hours after missing the ceremony at which she was awarded the Nobel Peace Prize.`\
+https://nytimes.com/video/world/americas/100000010580235/maria-corina-machado-venezuela-nobel.html
+
 **How to watch Dolphins vs. Steelers: Time, TV, streaming**\
 `Find out how to watch the Miami Dolphins play the Pittsburgh Steelers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6881186/2025/12/11/dolphins-vs-steelers-stream-how-to-watch-dec-15/
