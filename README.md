@@ -1,3 +1,7 @@
+**MLB's returning to NBC. The network wants to air baseball beyond it's 3-year deal**\
+`As part of its MLB partnership, NBC will feature an on-site pregame show for "Sunday Night Baseball."`\
+https://nytimes.com/athletic/6882335/2025/12/11/nbc-mlb-broadcast-deal-sunday-night-baseball/
+
 **Olympics may force USC football to move home games from Coliseum to SoFi Stadium in 2028**\
 `The Olympics will begin on July 14, 2028, and run through July 30, but the Paralympics will not conclude until Aug. 27.`\
 https://nytimes.com/athletic/6882396/2025/12/11/usc-football-sofi-stadium-la-coliseum/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/11/opinion/supreme-court-executive-power.html
 **Drance: Why I worry about Canucks' approach to a Quinn Hughes trade**\
 `The notion that the Canucks will trade captain Quinn Hughes has taken on a certain sense of inevitability.`\
 https://nytimes.com/athletic/6880372/2025/12/11/canucks-quinn-hughes-jim-rutherford-trade/
-
-**Christine Williamson to lead women's basketball coverage on ESPN**\
-`Williamson will replace Elle Duncan as ESPN's lead host for women's basketball coverage.`\
-https://nytimes.com/athletic/6882349/2025/12/11/espn-christine-williamson-women-basketball/
 
