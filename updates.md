@@ -1,3 +1,7 @@
+**Falcons vs. Buccaneers Thursday Night Football betting: Player props and a parlay**\
+`Brad Evans offers a player prop and parlay for Thursday night's matchup between the Tampa Bay Buccaneers and Atlanta Falcons. `\
+https://nytimes.com/athletic/6878646/2025/12/11/falcons-buccaneers-thursday-night-football-betting-props-parlay/
+
 **Key fantasy football playoff questions: What of Philip Rivers? Trust Justin Jefferson?**\
 `Dalton Del Don breaks down the key fantasy football topics for Week 15, including Philip Rivers' return and Harold Fannin's recent success.`\
 https://nytimes.com/athletic/6880535/2025/12/11/key-fantasy-football-playoff-questions-week-15-rivers-jefferson/
