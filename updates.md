@@ -1,3 +1,7 @@
+**Venezuelan Dissident Appears in Norway After Missing Nobel Ceremony**\
+`María Corina Machado, who spent over a year in hiding in Venezuela, greeted supporters in Oslo, hours after her daughter accepted the Nobel Peace Prize in her name.`\
+https://nytimes.com/2025/12/10/world/americas/maria-corina-machado-venezuela-nobel.html
+
 **A Rule Disqualified Equestrians Who Bloodied Their Horses. Top Riders Fought It.**\
 `In January, the blood rule, which ousted riders if their horses bled during competition, will change to a system of warnings and suspensions.`\
 https://nytimes.com/2025/12/10/sports/equestrian-sport-blood-rule-changing.html
