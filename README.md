@@ -1,3 +1,7 @@
+**Science Practice | A Study on Shackleton’s Endurance**\
+`What caused the Antarctic explorer’s ship to wreck? A new study contends it may not be what experts thought.`\
+https://nytimes.com/2025/12/11/learning/science-practice-a-study-on-shackletons-endurance.html
+
 **‘Pretty Strong Words’ Used on Ukraine Call With European Leaders, Trump Says**\
 `Diplomatic efforts have stalled as Britain, France and Germany try to push President Trump away from a proposal to end the conflict that would favor Russia.`\
 https://nytimes.com/2025/12/11/world/europe/trump-ukraine-european-leaders.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6881428/2025/12/11/david-coote-sentence-adjourned/
 **This Week in Sports Trivia: December 11, 2025**\
 `How closely were you following the sports news this week? Find out and test your knowledge by taking The Athletic's weekly quiz.`\
 https://nytimes.com/athletic/6879023/2025/12/11/this-week-in-sports-trivia-december-11-2025/
-
-**How did Bill Belichick sign a top-20 class? Can Penn State recover? Recruiting mailbag**\
-`Can Indiana maintain success given their incoming recruiting class? How did James Franklin sign such a good class at Virginia Tech?`\
-https://nytimes.com/athletic/6878738/2025/12/11/college-football-recruiting-bill-belichick-penn-state/
 

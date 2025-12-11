@@ -1,3 +1,11 @@
+**‘Pretty Strong Words’ Used on Ukraine Call With European Leaders, Trump Says**\
+`Diplomatic efforts have stalled as Britain, France and Germany try to push President Trump away from a proposal to end the conflict that would favor Russia.`\
+https://nytimes.com/2025/12/11/world/europe/trump-ukraine-european-leaders.html
+
+**Day 3 of the MLB Winter Meetings: the Polar Bear's move caps the week**\
+`A relatively quiet Winter Meetings wraps up with one major signing on Wednesday. `\
+https://nytimes.com/athletic/6881575/2025/12/11/mlb-winter-meetings-day-3-pete-alonso/
+
 **Noem to Face Questions From House Panel Amid Immigration Crackdown**\
 `Kristi Noem, the homeland security secretary, has overseen President Trump’s immigration policy, including efforts to detain more immigrants and pause visa applications.`\
 https://nytimes.com/2025/12/11/us/politics/noem-house-hearing-immigration-crackdown.html

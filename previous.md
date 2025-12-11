@@ -1,3 +1,11 @@
+**‘Pretty Strong Words’ Used on Ukraine Call With European Leaders, Trump Says**\
+`Diplomatic efforts have stalled as Britain, France and Germany try to push President Trump away from a proposal to end the conflict that would favor Russia.`\
+https://nytimes.com/2025/12/11/world/europe/trump-ukraine-european-leaders.html
+
+**Day 3 of the MLB Winter Meetings: the Polar Bear's move caps the week**\
+`A relatively quiet Winter Meetings wraps up with one major signing on Wednesday. `\
+https://nytimes.com/athletic/6881575/2025/12/11/mlb-winter-meetings-day-3-pete-alonso/
+
 **Noem to Face Questions From House Panel Amid Immigration Crackdown**\
 `Kristi Noem, the homeland security secretary, has overseen President Trump’s immigration policy, including efforts to detain more immigrants and pause visa applications.`\
 https://nytimes.com/2025/12/11/us/politics/noem-house-hearing-immigration-crackdown.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6879023/2025/12/11/this-week-in-sports-trivia-decem
 **How did Bill Belichick sign a top-20 class? Can Penn State recover? Recruiting mailbag**\
 `Can Indiana maintain success given their incoming recruiting class? How did James Franklin sign such a good class at Virginia Tech?`\
 https://nytimes.com/athletic/6878738/2025/12/11/college-football-recruiting-bill-belichick-penn-state/
-
-**The 5 toughest jobs in college football: Which ones do coaches, staffers consider the hardest?**\
-`How times change. The program voted the toughest job in the Power 4 won at least 10 games five times from 2010 through 2016.`\
-https://nytimes.com/athletic/6840051/2025/12/11/college-football-toughest-coaching-jobs-vacancies/
-
-**College football Freshman All-America team: Julian Sayin, Malachi Toney and more**\
-`We spend so much time talking about transfers, but there were still a significant number of freshmen who played prominent roles in 2025.`\
-https://nytimes.com/athletic/6879458/2025/12/11/college-football-freshman-all-america-teams-4/
 
