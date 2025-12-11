@@ -1,5 +1,9 @@
+**Judge in Oregon Blocks Arrest of Protesters For Noise**\
+`Federal agents outside an ICE detention facility in Eugene, Ore., had sought to enforce a new rule that prohibits “creating a loud or unusual noise” outside federal property.`\
+https://nytimes.com/2025/12/10/us/politics/trump-arrests-protesters-noise-ruling.html
+
 **Mike Yastrzemski, Braves ink 2-year, $23M contract**\
-`Outfielder Mike Yastrzemski has signed a two-year, $23 million contract to join the Atlanta Braves, the team announced Wednesday.`\
+`Yastrzemski comes from a Hall of Fame bloodline, but he's made his own name as a righty-mashing corner outfielder.`\
 https://nytimes.com/athletic/6783789/2025/12/10/mlb-mike-yastrzemski-free-agency-signing-braves/
 
 **One of the Last Times Square Dive Bars Faces Eviction**\
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6877569/2025/12/10/audi-crooks-unprecedented-scorin
 **Defense Bill Will Make D.C. Skies Less Safe, N.T.S.B. Chair Says**\
 `The chair of the National Transportation Safety Board warned that a provision in the new defense bill would worsen the risk of midair collisions near the Washington-area airport where a deadly crash in January killed 67 people.`\
 https://nytimes.com/2025/12/10/us/politics/ntsb-defense-bill-dca-crash.html
-
-**Yankees won't just wait on Cody Bellinger. Here's what they should do in the meantime**\
-`While waiting for Bellinger's decision, the club could address the starting rotation, bullpen and platoon options.`\
-https://nytimes.com/athletic/6880271/2025/12/10/yankees-cody-bellinger-roster-options/
 

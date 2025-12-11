@@ -1,3 +1,11 @@
+**Judge in Oregon Blocks Arrest of Protesters For Noise**\
+`Federal agents outside an ICE detention facility in Eugene, Ore., had sought to enforce a new rule that prohibits “creating a loud or unusual noise” outside federal property.`\
+https://nytimes.com/2025/12/10/us/politics/trump-arrests-protesters-noise-ruling.html
+
+**Mike Yastrzemski, Braves ink 2-year, $23M contract**\
+`Yastrzemski comes from a Hall of Fame bloodline, but he's made his own name as a righty-mashing corner outfielder.`\
+https://nytimes.com/athletic/6783789/2025/12/10/mlb-mike-yastrzemski-free-agency-signing-braves/
+
 **Mike Yastrzemski, Braves ink 2-year, $23M contract**\
 `Outfielder Mike Yastrzemski has signed a two-year, $23 million contract to join the Atlanta Braves, the team announced Wednesday.`\
 https://nytimes.com/athletic/6783789/2025/12/10/mlb-mike-yastrzemski-free-agency-signing-braves/
