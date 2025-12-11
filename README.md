@@ -1,3 +1,11 @@
+**MLB winter meetings still hold value in texting era but may not return in 2026**\
+`The winter meetings are MLB's annual showcase event. But labor issues may mean it does not return next winter. `\
+https://nytimes.com/athletic/6880754/2025/12/11/mlb-winter-meetings-2026-canceled/
+
+**Jayden Daniels hasn't been what he was as a rookie. But there's more to the story**\
+`Last season, the Commanders had a savior. This season, Jayden Daniels has appeared more ordinary. What has changed?`\
+https://nytimes.com/athletic/6881626/2025/12/11/jayden-daniels-regression-injuries-commanders/
+
 **Watch out, Warriors. The Thunder are threatening the NBA's regular-season wins record**\
 `The best NBA regular season ever is brewing in Oklahoma City, but can they actually break the record?`\
 https://nytimes.com/athletic/6879789/2025/12/11/okc-thunder-nba-history-win-record/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6881855/2025/12/11/timo-meier-new-jersey-devils-lea
 **Nike launches NIL collective with LSU athletes**\
 `The renowned footwear and apparel company announced Thursday that a new approach to partnering with college athletes is underway.`\
 https://nytimes.com/athletic/6879438/2025/12/11/nike-lsu-nil-collective-partnership/
-
-**Bulgaria’s Prime Minister Resigns in the Face of Mass Protests**\
-`Prime Minister Rosen Zhelyazkov announced he was stepping down, becoming the latest leader to leave in the past four years, amid public anger over corruption and democratic dysfunction.`\
-https://nytimes.com/2025/12/11/world/europe/bulgaria-prime-minister-resigns-protests.html
-
-**Senate Expected to Deadlock Over Health Care in Dueling Votes**\
-`Neither Democrats’ plan to extend expiring Affordable Care Act subsidies nor Republicans’ proposal to replace them with direct payments for those who buy basic insurance was expected to advance.`\
-https://nytimes.com/2025/12/11/us/politics/health-care-senate-affordable-care-act.html
 
