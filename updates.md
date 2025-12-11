@@ -1,3 +1,7 @@
+**Tariffs Shrank Trade Deficit in September, New Data Show**\
+`U.S. imports and exports ticked up from lows the previous month when the president’s global tariffs went into effect, while the trade deficit continued to fall`\
+https://nytimes.com/2025/12/11/business/economy/trump-tariffs-trade-deficit.html
+
 **Why there's no need to bring back divisions as SEC moves to 9-game schedule**\
 `The conference is better off with one division, which has led to better matchups even if it means minor headaches.`\
 https://nytimes.com/athletic/6881455/2025/12/11/sec-football-schedule-2026-divisions/

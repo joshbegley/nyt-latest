@@ -1,3 +1,7 @@
+**Key fantasy football playoff questions: What of Philip Rivers? Trust Justin Jefferson?**\
+`Dalton Del Don breaks down the key fantasy football topics for Week 15, including Philip Rivers' return and Harold Fannin's recent success.`\
+https://nytimes.com/athletic/6880535/2025/12/11/key-fantasy-football-playoff-questions-week-15-rivers-jefferson/
+
 **Tariffs Shrank Trade Deficit in September, New Data Show**\
 `U.S. imports and exports ticked up from lows the previous month when the president’s global tariffs went into effect, while the trade deficit continued to fall`\
 https://nytimes.com/2025/12/11/business/economy/trump-tariffs-trade-deficit.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6881631/2025/12/11/manchester-united-wage-bill-fina
 **Trump Administration Live Updates: Noem to Face Questions From Lawmakers Amid Immigration Crackdown**\
 ``\
 https://nytimes.com/live/2025/12/11/us/trump-news
-
-**Rested and recovered, 49ers prepare for playoff push after 'blessing' of late-season bye**\
-`Christian McCaffrey said the best part of his bye was playing with his five-month-old daughter, Colette.`\
-https://nytimes.com/athletic/6880672/2025/12/11/49ers-playoff-push-bye/
 
