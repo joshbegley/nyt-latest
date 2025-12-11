@@ -1,3 +1,7 @@
+**Rob Gronkowski says one scenario could maybe get him out of retirement**\
+`The four-time Super Bowl champion tight end was asked if he might follow Philip Rivers' lead and put on an NFL jersey again.`\
+https://nytimes.com/athletic/6880727/2025/12/10/rob-gronkowski-retirement-scenario-return/
+
 **NBA Cup takeaways: Thunder blow out Suns by 49 to advance to semifinals**\
 `The Thunder outscored the Suns (14-10) by 25 points in the second and third quarters, leading by as many as 43 points.`\
 https://nytimes.com/athletic/6880036/2025/12/10/nba-cup-takeaways-thunder-blowout-suns-by-51-points-to-advance-to-second-straight-semifinals/
