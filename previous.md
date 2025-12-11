@@ -1,36 +1,36 @@
-**The Thunder look unstoppable on their way to Las Vegas for the NBA Cup**\
-`Oklahoma City is now 24-1, tied with the 2015-16 Warriors for the best 25-game start in NBA history.`\
-https://nytimes.com/athletic/6881055/2025/12/11/thunder-nba-cup-quarterfinals-suns-streak/
+**This Week in Sports Trivia: December 11, 2025**\
+`How closely were you following the sports news this week? Find out and test your knowledge by taking The Athletic's weekly quiz.`\
+https://nytimes.com/athletic/6879023/2025/12/11/this-week-in-sports-trivia-december-11-2025/
 
-**The World of Andrew Tate**\
-`We look at the social media influencer accused of rape and human trafficking, who was freed from Romania after courting Trump’s allies and family members.`\
-https://nytimes.com/2025/12/11/briefing/the-world-of-andrew-tate.html
+**How did Bill Belichick sign a top-20 class? Can Penn State recover? Recruiting mailbag**\
+`Can Indiana maintain success given their incoming recruiting class? How did James Franklin sign such a good class at Virginia Tech?`\
+https://nytimes.com/athletic/6878738/2025/12/11/college-football-recruiting-bill-belichick-penn-state/
 
-**Do the Giants actually have quality defensive ‘pieces’ to build around?**\
-`The picture on defense is cloudy after such a disappointing season. Yes, there is talent, but the 2-11 record speaks for itself. `\
-https://nytimes.com/athletic/6880485/2025/12/11/ny-giants-defensive-pieces-dexter-lawrence-abdul-carter/
+**The 5 toughest jobs in college football: Which ones do coaches, staffers consider the hardest?**\
+`How times change. The program voted the toughest job in the Power 4 won at least 10 games five times from 2010 through 2016.`\
+https://nytimes.com/athletic/6840051/2025/12/11/college-football-toughest-coaching-jobs-vacancies/
 
-**TAFC: Man City pile pressure on Alonso, Giuliani on World Cup, U.S.-Kaiserslautern link**\
-`Today in TAFC: How Manchester City piled the pressure on Alonso, a Giuliani exclusive, and why so many Americans support Kaiserslautern`\
-https://nytimes.com/athletic/6881294/2025/12/11/man-city-real-madrid-champions-league-result/
+**College football Freshman All-America team: Julian Sayin, Malachi Toney and more**\
+`We spend so much time talking about transfers, but there were still a significant number of freshmen who played prominent roles in 2025.`\
+https://nytimes.com/athletic/6879458/2025/12/11/college-football-freshman-all-america-teams-4/
 
-**'He's never missed a game?': Inside Kevin Byard's unrelenting quest to cement his legacy**\
-`Preparing to play in his 161st consecutive game Sunday, Byard remains on a mission to squeeze the most from his NFL career.`\
-https://nytimes.com/athletic/6879736/2025/12/11/kevin-byard-consecutive-games-played-bears/
+**Red Wings' AHL affiliate is off to a historic start. What are the Griffins doing right?**\
+`The Grand Rapids Griffins have put together the one of the best starts in AHL history, which is an encouraging sign for the Red Wings.`\
+https://nytimes.com/athletic/6879508/2025/12/11/detroit-red-wings-grand-rapids-griffins-historic-start/
 
-**Myles Garrett is a superhero who's on a mission to shatter the NFL's sacks record**\
-`Garrett isn't your average pass rusher. He possesses superhuman abilities that give him an edge each time he steps on the field. `\
-https://nytimes.com/athletic/6879967/2025/12/11/myles-garrett-browns-nfl-sacks-record/
+**Will Packers keep Jeff Hafley? How about Romeo Doubs and Rasheed Walker?: Mailbag**\
+`The Packers' second-year defensive coordinator has set himself up nicely for the upcoming head-coaching cycle.`\
+https://nytimes.com/athletic/6880298/2025/12/11/packers-mailbag-jeff-hafley-romeo-doubs/
 
-**Here’s What to Know About Japan’s Mega Quake Advisory**\
-`Japan’s government says that the chances of a magnitude 8 earthquake have increased. Scientists can’t predict when one will strike, but it represents a meaningful jump over typical odds.`\
-https://nytimes.com/2025/12/11/world/asia/japan-megaquake-warning.html
+**Emmanuel Clase's MLB fate and the demise of a historic, nearly 50-year trade tree**\
+`A star-filled trade tree going back nearly 50 years helped bring Emmanuel Clase to the Guardians, but the end of the line appears near. `\
+https://nytimes.com/athletic/6772126/2025/12/11/emmanuel-clase-mlb-cleveland-trade-tree/
 
-**Could Philip Rivers go from Bo Nix's and Drake Maye's draft mentor to their playoff foe?**\
-`"Kind of like everybody else, I'm eager to see what comes of it," Nix said of Rivers making his return to the NFL.`\
-https://nytimes.com/athletic/6880369/2025/12/11/philip-rivers-bo-nix-drake-maye/
+**Subscriber Q&A with assistant GM Tim Taylor: World Juniors, prospect ETAs and more**\
+`Blues assistant GM Tim Taylor answers questions about keeping up with Russian prospects, development curves ... and his nickname.`\
+https://nytimes.com/athletic/6872997/2025/12/11/blues-tim-taylor-world-juniors/
 
-**The Pulse: A shocking day in Ann Arbor**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6878539/2025/12/11/michigan-sherrone-moore-fired-the-pulse/
+**Wild's Joel Eriksson Ek growing rep leaguewide as relentless shutdown center: 'A pain in the ass'**\
+`Joel Eriksson Ek isn't having his best offensive season, but he remains perhaps the Wild's most irreplaceable player.`\
+https://nytimes.com/athletic/6877666/2025/12/11/wild-joel-eriksson-ek-punchable/
 
