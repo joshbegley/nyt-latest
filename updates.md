@@ -1,3 +1,11 @@
+**What Teenagers Are Saying About Gratitude, Winter Blues and ‘Rage Bait’**\
+`At the end of the year, students share what they’re thankful for, discuss the good and bad of winter, and debate the Oxford Word of the Year.`\
+https://nytimes.com/2025/12/11/learning/what-teenagers-are-saying-about-gratitude-winter-blues-and-rage-bait.html
+
+**Bessent Accelerates Regulation Overhaul to Jumpstart Growth**\
+`The Treasury Secretary unveiled changes to the Financial Stability Oversight Council to ease “overregulation.”`\
+https://nytimes.com/2025/12/11/us/politics/bessent-regulation.html
+
 **What it means that Michigan fired Sherrone Moore 'for cause,' and the contract implications**\
 `By firing Moore for cause, Michigan will not owe Moore any of the money remaining on his five-year contract.`\
 https://nytimes.com/athletic/6882673/2025/12/11/michigan-sherrone-moore-contract-for-cause/
