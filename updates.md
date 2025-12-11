@@ -1,3 +1,11 @@
+**My Favorite Performances of the Year**\
+`Wesley Morris, joined by his editor Sasha Weiss, unveils some highly specific acting awards for 2025.`\
+https://nytimes.com/video/podcasts/100000010574693/my-favorite-performances-of-the-year.html
+
+**Sentencing of ex-Premier League referee Coote adjourned until January**\
+`In October, Coote pleaded guilty to creating a sexually explicit image of a 15-year-old.`\
+https://nytimes.com/athletic/6881428/2025/12/11/david-coote-sentence-adjourned/
+
 **This Week in Sports Trivia: December 11, 2025**\
 `How closely were you following the sports news this week? Find out and test your knowledge by taking The Athletic's weekly quiz.`\
 https://nytimes.com/athletic/6879023/2025/12/11/this-week-in-sports-trivia-december-11-2025/
