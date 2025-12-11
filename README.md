@@ -1,3 +1,7 @@
+**The Quiet Luxury Engagement Ring of the Moment**\
+`Bezel settings, like the one featured in Taylor Swift’s engagement ring, “feel elegant and intentional,” one designer said. “There’s no noise.”`\
+https://nytimes.com/2025/12/11/style/bezel-set-engagement-rings.html
+
 **Why Some Countries May Copy Australia’s Ban on Children Using Social Media**\
 `Governments are studying the decision to prohibit youths from using platforms like Facebook and TikTok as worries grow about the potential harm they cause.`\
 https://nytimes.com/2025/12/11/world/australia/social-media-ban-australia-europe-china-usa.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/11/movies/dust-bunny-review-mads-mikkelsen.html
 **Anti-Corruption Protests Topple Bulgarian Government**\
 `Bulgaria’s prime minister resigned after less than a year in office amid mass protests against his government in recent weeks.`\
 https://nytimes.com/video/world/europe/100000010580690/anti-corruption-protests-topple-bulgarian-government.html
-
-**Grand Slam Track files for bankruptcy, vendors face huge losses**\
-`Michael Johnson's new-look competition still owes some vendors over $1 million while only having $0-$50,000 in assets.`\
-https://nytimes.com/athletic/6882206/2025/12/11/grand-slam-track-bankruptcy-johnson/
 
