@@ -1,3 +1,11 @@
+**My Favorite Performances of the Year**\
+`Wesley Morris, joined by his editor Sasha Weiss, unveils some highly specific acting awards for 2025.`\
+https://nytimes.com/video/podcasts/100000010574693/my-favorite-performances-of-the-year.html
+
+**Sentencing of ex-Premier League referee Coote adjourned until January**\
+`In October, Coote pleaded guilty to creating a sexually explicit image of a 15-year-old.`\
+https://nytimes.com/athletic/6881428/2025/12/11/david-coote-sentence-adjourned/
+
 **This Week in Sports Trivia: December 11, 2025**\
 `How closely were you following the sports news this week? Find out and test your knowledge by taking The Athletic's weekly quiz.`\
 https://nytimes.com/athletic/6879023/2025/12/11/this-week-in-sports-trivia-december-11-2025/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6880298/2025/12/11/packers-mailbag-jeff-hafley-rome
 **Emmanuel Clase's MLB fate and the demise of a historic, nearly 50-year trade tree**\
 `A star-filled trade tree going back nearly 50 years helped bring Emmanuel Clase to the Guardians, but the end of the line appears near. `\
 https://nytimes.com/athletic/6772126/2025/12/11/emmanuel-clase-mlb-cleveland-trade-tree/
-
-**Subscriber Q&A with assistant GM Tim Taylor: World Juniors, prospect ETAs and more**\
-`Blues assistant GM Tim Taylor answers questions about keeping up with Russian prospects, development curves ... and his nickname.`\
-https://nytimes.com/athletic/6872997/2025/12/11/blues-tim-taylor-world-juniors/
-
-**Wild's Joel Eriksson Ek growing rep leaguewide as relentless shutdown center: 'A pain in the ass'**\
-`Joel Eriksson Ek isn't having his best offensive season, but he remains perhaps the Wild's most irreplaceable player.`\
-https://nytimes.com/athletic/6877666/2025/12/11/wild-joel-eriksson-ek-punchable/
 
