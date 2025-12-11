@@ -1,3 +1,11 @@
+**Always on My Mind: Trump’s Enduring Focus on Joe Biden**\
+`After nearly 11 months in office, the president’s tendency to talk about his predecessor is more pronounced than ever.`\
+https://nytimes.com/2025/12/10/us/politics/trump-preoccupation-biden.html
+
+**First Edwin Díaz, now Pete Alonso: Where do Mets go from here?**\
+`The Mets still have two superstar players in Juan Soto and Francisco Lindor, but is that enough to contend?`\
+https://nytimes.com/athletic/6880071/2025/12/10/where-do-mets-go-pete-alonso-edwin-diaz/
+
 **Michigan interim coach Biff Poggi: 'The most interesting man in coaching'**\
 `Biff Poggi was an advisor for Jim Harbaugh before working under Sherrone Moore. One colleague said of Poggi: "His heart is all in it."`\
 https://nytimes.com/athletic/6880279/2025/12/10/michigan-biff-poggi-interim-head-coach/

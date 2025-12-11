@@ -1,3 +1,11 @@
+**A Mysterious House Fire, a Helpful Neighbor and a Murder Charge**\
+`Virginia Cranwell, 82, died in a fire in her New Jersey home this summer. Her neighbor, who claimed he tried to save her, now faces murder and arson charges.`\
+https://nytimes.com/2025/12/10/nyregion/new-jersey-fire-death.html
+
+**The oil tanker seized by the U.S. has a history of faking its location.**\
+`By Christiaan Triebert and Riley Mellen`\
+https://nytimes.com/2025/12/10/us/politics/the-oil-tanker-seized-by-the-us-has-a-history-of-faking-its-location.html
+
 **Always on My Mind: Trump’s Enduring Focus on Joe Biden**\
 `After nearly 11 months in office, the president’s tendency to talk about his predecessor is more pronounced than ever.`\
 https://nytimes.com/2025/12/10/us/politics/trump-preoccupation-biden.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6880263/2025/12/10/nfl-week-17-kickoff-times/
 **Britain Releases New Data on ‘Grooming Gangs’ and Child Sexual Abuse**\
 `The police in Britain warned that the threat from online predators has been rising while political attention has been focused elsewhere.`\
 https://nytimes.com/2025/12/10/world/europe/uk-child-sexual-abuse-grooming-gangs-data.html
-
-**Lawsuit Challenges Park Service Passes Featuring Trump**\
-`An environmental group is suing, saying federal law requires an image of public lands, not the president.`\
-https://nytimes.com/2025/12/10/climate/lawsuit-park-service-passes-trump.html
-
-**Nursing Home Owners Pocketed Millions as Patients Suffered, Report Says**\
-`As the owners intentionally understaffed two New Jersey facilities and diverted Medicaid money for their own use, residents in the homes “suffered unnecessarily,” the state comptroller said.`\
-https://nytimes.com/2025/12/10/nyregion/new-jersey-nursing-homes-medicaid.html
 
