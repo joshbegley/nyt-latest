@@ -1,3 +1,7 @@
+**100,000 Ordered to Evacuate as Rivers Rise in Washington State**\
+`Days of heavy rain pushed waterways to record flood levels in a mountainous region north of Seattle. “Do not wait,” local officials warned residents as they urged them to seek higher ground.`\
+https://nytimes.com/2025/12/11/weather/washington-flooding-rain-atmospheric-river.html
+
 **Steelers' T.J. Watt being evaluated after experiencing lung discomfort**\
 `The star edge rusher's status for Monday’s game against the Miami Dolphins is in question.`\
 https://nytimes.com/athletic/6882458/2025/12/11/tj-watt-hospitalized-lung-questionable-mnf/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6882187/2025/12/11/michigan-timeline-coaching-scand
 **Travis Kelce on Chiefs’ struggles: 'This is a tough reality'**\
 `Kelce voiced his growing frustration after the Chiefs’ latest loss, admitting this season’s struggles.`\
 https://nytimes.com/athletic/6882070/2025/12/11/travis-kelce-chiefs-playoffs-new-heights/
-
-**The Artists Reviving the Legacy of Air Afrique**\
-`Plus: a new Manhattan bathhouse, textiles woven from pineapple leaves and more recommendations from T Magazine.`\
-https://nytimes.com/2025/12/11/t-magazine/moma-art-air-afrique.html
 
