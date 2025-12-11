@@ -1,3 +1,7 @@
+**Man Utd wage bill falls year on year: Analysing Q1 financial results**\
+`The fall was helped by the loan exits of high earners Jadon Sancho and Marcus Rashford.`\
+https://nytimes.com/athletic/6881631/2025/12/11/manchester-united-wage-bill-finances/
+
 **Trump Administration Live Updates: Noem to Face Questions From Lawmakers Amid Immigration Crackdown**\
 ``\
 https://nytimes.com/live/2025/12/11/us/trump-news
