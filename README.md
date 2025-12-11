@@ -1,3 +1,7 @@
+**Lecturer Sanctioned Over MAGA White Supremacy Lesson Is Back in Class**\
+`Some disciplinary measures have been imposed on the lecturer, including being monitored as she teaches a class on diversity and social justice.`\
+https://nytimes.com/2025/12/11/us/indiana-university-professor-sanctioned-maga-white-supremacy-lesson.html
+
 **Hollywood Director Is Convicted in $11 Million Scheme to Defraud Netflix**\
 `Carl Erik Rinsch secured funding from the streaming company for a science-fiction series, “Conquest,” that was never completed.`\
 https://nytimes.com/2025/12/11/business/media/carl-erik-rinsch-netflix-fraud.html
@@ -14,7 +18,7 @@ https://nytimes.com/interactive/2025/12/11/us/earthquake-fillmore-los-angeles.ht
 `A new technology release from OpenAI is supposed to top what Google recently produced. It also shows OpenAI is engaged in a new and more difficult competition.`\
 https://nytimes.com/2025/12/11/technology/openai-google-ai-technology-gap.html
 
-**Olympic champion Michelle Gisin faces neck surgery after serious downhill accident**\
+**Olympic ski champion Michelle Gisin faces neck surgery after serious downhill accident**\
 `The two-time Olympic gold medalist's injury deals a major blow to Team Switzerland ahead of the Milano Cortina Games.`\
 https://nytimes.com/athletic/6882585/2025/12/11/michelle-gisin-olympics-downhill-accident-neck-surgery/
 
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/11/science/plants-heat-infrared-cycads-beetles.html
 **5 New Books We Love This Week**\
 `Reading recommendations from critics and editors at The New York Times.`\
 https://nytimes.com/2025/12/11/books/review/new-recommended-books.html
-
-**Hundreds Quarantined in South Carolina as Measles Spreads**\
-`The outbreak shows no signs of slowing, likely because of the affected area’s “lower-than-hoped-for vaccination coverage,” a state health official said.`\
-https://nytimes.com/2025/12/11/well/measles-cases-outbreak-south-carolina.html
 

@@ -1,3 +1,19 @@
+**Hollywood Director Is Convicted in $11 Million Scheme to Defraud Netflix**\
+`Carl Erik Rinsch secured funding from the streaming company for a science-fiction series, “Conquest,” that was never completed.`\
+https://nytimes.com/2025/12/11/business/media/carl-erik-rinsch-netflix-fraud.html
+
+**Chicharito cements his lackluster Chivas return with an unceremonious exit**\
+`Chicharito is leaving Chivas, the boyhood club he had returned to for a stint that wound up ending with a whimper`\
+https://nytimes.com/athletic/6882470/2025/12/11/chicharito-chivas-exit-mexico-javier-hernandez/
+
+**Small Earthquake Shakes Area Near Los Angeles**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/12/11/us/earthquake-fillmore-los-angeles.html
+
+**Can OpenAI Respond After Google Closes the A.I. Technology Gap?**\
+`A new technology release from OpenAI is supposed to top what Google recently produced. It also shows OpenAI is engaged in a new and more difficult competition.`\
+https://nytimes.com/2025/12/11/technology/openai-google-ai-technology-gap.html
+
 **Olympic champion Michelle Gisin faces neck surgery after serious downhill accident**\
 `The two-time Olympic gold medalist's injury deals a major blow to Team Switzerland ahead of the Milano Cortina Games.`\
 https://nytimes.com/athletic/6882585/2025/12/11/michelle-gisin-olympics-downhill-accident-neck-surgery/
@@ -17,20 +33,4 @@ https://nytimes.com/2025/12/11/books/review/new-recommended-books.html
 **Hundreds Quarantined in South Carolina as Measles Spreads**\
 `The outbreak shows no signs of slowing, likely because of the affected area’s “lower-than-hoped-for vaccination coverage,” a state health official said.`\
 https://nytimes.com/2025/12/11/well/measles-cases-outbreak-south-carolina.html
-
-**U.S. Helped to Weaken Report at U.N. Environment Talks, Participants Say**\
-`American officials joined Russia, Saudi Arabia and Iran in objecting to language on fossils fuels, biodiversity and plastics in a report that was three years in the making.`\
-https://nytimes.com/2025/12/11/climate/unep-climate-report-trump-administration.html
-
-**Video Shows Skydiver Dangling From Plane’s Tail After Parachute Gets Stuck**\
-`A parachutist in Queensland, Australia, survived by cutting the chute free at 15,000 feet when a reserve parachute accidentally deployed, according to a government report.`\
-https://nytimes.com/2025/12/11/world/australia/skydiver-parachute-caught-plane-australia.html
-
-**Sharks' Reaves has lingering feelings, but 'no regrets' about time in Toronto**\
-`"I think just a little honesty and some communication would have been nice," Reaves said about sitting out for long periods last season.`\
-https://nytimes.com/athletic/6882407/2025/12/11/ryan-reaves-leafs-sharks/
-
-**Covid Vaccines Reduced Children’s Likelihood of E.R. and Urgent Care Visits, the C.D.C. Reported**\
-`The vaccines were found to decrease the risk of needing medical care in the first six months after vaccination by 76 percent in children under 4, and by 56 percent in children 5 to 17.`\
-https://nytimes.com/2025/12/11/health/cdc-covid-vaccines-children-er-visits.html
 
