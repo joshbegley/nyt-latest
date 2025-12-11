@@ -1,4 +1,4 @@
-**A Mysterious House Fire, a Helpful Neighbor and a Murder Charge**\
+**A Mysterious Fire, a Helpful Neighbor and a Murder Charge**\
 `Virginia Cranwell, 82, died in a fire in her New Jersey home this summer. Her neighbor, who claimed he tried to save her, now faces murder and arson charges.`\
 https://nytimes.com/2025/12/10/nyregion/new-jersey-fire-death.html
 
@@ -15,7 +15,7 @@ https://nytimes.com/2025/12/10/us/politics/trump-preoccupation-biden.html
 https://nytimes.com/athletic/6880071/2025/12/10/where-do-mets-go-pete-alonso-edwin-diaz/
 
 **Michigan interim coach Biff Poggi: 'The most interesting man in coaching'**\
-`Biff Poggi was an advisor for Jim Harbaugh before working under Sherrone Moore. One colleague said of Poggi: "His heart is all in it."`\
+`Biff Poggi was an adviser for Jim Harbaugh before working under Sherrone Moore. One colleague said of Poggi: "His heart is all in it."`\
 https://nytimes.com/athletic/6880279/2025/12/10/michigan-biff-poggi-interim-head-coach/
 
 **House Gives Bipartisan Approval to $900 Billion Defense Bill**\

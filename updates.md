@@ -1,3 +1,11 @@
+**A Mysterious House Fire, a Helpful Neighbor and a Murder Charge**\
+`Virginia Cranwell, 82, died in a fire in her New Jersey home this summer. Her neighbor, who claimed he tried to save her, now faces murder and arson charges.`\
+https://nytimes.com/2025/12/10/nyregion/new-jersey-fire-death.html
+
+**The oil tanker seized by the U.S. has a history of faking its location.**\
+`By Christiaan Triebert and Riley Mellen`\
+https://nytimes.com/2025/12/10/us/politics/the-oil-tanker-seized-by-the-us-has-a-history-of-faking-its-location.html
+
 **Always on My Mind: Trump’s Enduring Focus on Joe Biden**\
 `After nearly 11 months in office, the president’s tendency to talk about his predecessor is more pronounced than ever.`\
 https://nytimes.com/2025/12/10/us/politics/trump-preoccupation-biden.html
