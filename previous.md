@@ -6,7 +6,7 @@ https://nytimes.com/2025/12/10/world/americas/maria-corina-machado-venezuela-nob
 `In January, the blood rule, which ousted riders if their horses bled during competition, will change to a system of warnings and suspensions.`\
 https://nytimes.com/2025/12/10/sports/equestrian-sport-blood-rule-changing.html
 
-**NBA Cup takeaways: Thunder blowout Suns by 49 to advance to semifinals**\
+**NBA Cup takeaways: Thunder blow out Suns by 49 to advance to semifinals**\
 `The Thunder outscored the Suns (14-10) by 25 points in the second and third quarters, leading by as many as 43 points.`\
 https://nytimes.com/athletic/6880036/2025/12/10/nba-cup-takeaways-thunder-blowout-suns-by-51-points-to-advance-to-second-straight-semifinals/
 
