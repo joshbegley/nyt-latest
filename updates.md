@@ -1,3 +1,7 @@
+**A lot of talk, little action at Winter Meetings: What we’re hearing about the Cubs**\
+`Cubs president of baseball operations Jed Hoyer left winter meetings without making a big move.`\
+https://nytimes.com/athletic/6880509/2025/12/10/what-were-hearing-cubs-winter-meetings/
+
 **Judge in Oregon Blocks Arrest of Protesters For Noise**\
 `Federal agents outside an ICE detention facility in Eugene, Ore., had sought to enforce a new rule that prohibits “creating a loud or unusual noise” outside federal property.`\
 https://nytimes.com/2025/12/10/us/politics/trump-arrests-protesters-noise-ruling.html
