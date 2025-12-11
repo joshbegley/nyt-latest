@@ -1,3 +1,11 @@
+**Christine Williamson to lead women's basketball coverage on ESPN**\
+`Williamson will replace Elle Duncan as ESPN's lead host for its women's basketball coverage.`\
+https://nytimes.com/athletic/6882349/2025/12/11/espn-christine-williamson-women-basketball/
+
+**The play-by-play of how NASCAR's trial of the century came to an end in just two hours**\
+`The NASCAR antitrust trial looked like it was going to the bitter end. And then it was over. Here's how it all went down Thursday in court.`\
+https://nytimes.com/athletic/6882333/2025/12/11/nascar-trial-23xi-front-row-settlement/
+
 **Pakistan’s Ex-Spy Chief Sentenced to Prison After Court-Martial**\
 `Lt. Gen. Faiz Hameed, an ally of the former prime minister, Imran Khan, once led Pakistan’s powerful Inter-Services Intelligence agency.`\
 https://nytimes.com/2025/12/11/world/asia/pakistan-isi-hameed-court-martial-prison.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6882267/2025/12/11/ravens-travis-jones-extension/
 **Mike Lindell, MyPillow Founder, Announces Run for Minnesota Governor**\
 `He is a close ally of President Trump and has been a leading proponent of the election denial movement, which falsely claims that voting machines are often rigged.`\
 https://nytimes.com/2025/12/11/us/politics/mypillow-mike-lindell-minnesota-governor-election.html
-
-**For Warriors, turnover issues are nothing new. So why are they so damaging this year?**\
-`The Warriors have won NBA titles while being among the most turnover-happy teams in the league. But this year, it's sinking them.`\
-https://nytimes.com/athletic/6881099/2025/12/11/golden-state-warriors-turnover-problems-stephen-curry-jimmy-butler/
-
-**French tennis player suspended for 20 years over anti-corruption breaches**\
-`Quention Folliot was charged with 30 offenses and sanctioned for 27.`\
-https://nytimes.com/athletic/6881919/2025/12/11/tennis-match-fixing-corruption-quentin-folliot-ban/
 
