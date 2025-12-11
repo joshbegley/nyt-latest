@@ -1,3 +1,7 @@
+**Here’s What to Know About Japan’s Mega Quake Advisory**\
+`Japan’s government says that the chances of a magnitude 8 earthquake have increased. Scientists can’t predict when one will strike, but it represents a meaningful jump over typical odds.`\
+https://nytimes.com/2025/12/11/world/asia/japan-megaquake-warning.html
+
 **Could Philip Rivers go from Bo Nix's and Drake Maye's draft mentor to their playoff foe?**\
 `"Kind of like everybody else, I'm eager to see what comes of it," Nix said of Rivers making his return to the NFL.`\
 https://nytimes.com/athletic/6880369/2025/12/11/philip-rivers-bo-nix-drake-maye/
