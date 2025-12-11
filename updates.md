@@ -1,3 +1,7 @@
+**Could Philip Rivers go from Bo Nix's and Drake Maye's draft mentor to their playoff foe?**\
+`"Kind of like everybody else, I'm eager to see what comes of it," Nix said of Rivers making his return to the NFL.`\
+https://nytimes.com/athletic/6880369/2025/12/11/philip-rivers-bo-nix-drake-maye/
+
 **The Pulse: A shocking day in Ann Arbor**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6878539/2025/12/11/michigan-sherrone-moore-fired-the-pulse/

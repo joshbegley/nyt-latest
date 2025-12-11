@@ -1,3 +1,7 @@
+**Here’s What to Know About Japan’s Mega Quake Advisory**\
+`Japan’s government says that the chances of a magnitude 8 earthquake have increased. Scientists can’t predict when one will strike, but it represents a meaningful jump over typical odds.`\
+https://nytimes.com/2025/12/11/world/asia/japan-megaquake-warning.html
+
 **Could Philip Rivers go from Bo Nix's and Drake Maye's draft mentor to their playoff foe?**\
 `"Kind of like everybody else, I'm eager to see what comes of it," Nix said of Rivers making his return to the NFL.`\
 https://nytimes.com/athletic/6880369/2025/12/11/philip-rivers-bo-nix-drake-maye/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6880780/2025/12/11/eagles-losing-streak-2023-jalen-
 **Falcons at Bucs on TNF: Creamsicle throwbacks, chaos aboard the pirate ship**\
 `Creamsicle throwbacks and chaos on a pirate ship. The Bucs can stay in first place in the NFC South with a win against ATL. `\
 https://nytimes.com/athletic/6879286/2025/12/11/falcons-buccaneers-tnf-playoff-race-baker-mayfield/
-
-**Cowboys still aiming for playoffs, but can season be a success without getting there?**\
-`In Brian Schottenheimer's first season, the Cowboys have shown progress and their final four games will determine a lot.`\
-https://nytimes.com/athletic/6880521/2025/12/11/cowboys-playoff-berth-season-success/
 
