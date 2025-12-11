@@ -1,7 +1,3 @@
-**What a Dog Might Do**\
-`Kevin Curry wants us to really think about his puzzle.`\
-https://nytimes.com/2025/12/10/crosswords/daily-puzzle-2025-12-11.html
-
 **Tennessee cornerback Jermod McCoy, potential top-10 pick, declares for NFL Draft**\
 `Jermod McCoy's medicals ultimately will determine whether or not he finishes as a top-20 pick in the 2026 NFL Draft.`\
 https://nytimes.com/athletic/6880616/2025/12/10/nfl-draft-2026-jermod-mccoy-tennessee-scouting-report/
@@ -33,4 +29,8 @@ https://nytimes.com/2025/12/10/nyregion/jimmys-corner-bar-times-square-boxing.ht
 **Gavin Newsom: ‘We Failed on the Border’**\
 `Gov. Gavin Newsom has pushed California to offer health insurance to undocumented immigrants. He also thinks the Democratic Party has failed on border policy in recent years. On a recent episode of “The Ezra Klein Show,” he explains why.`\
 https://nytimes.com/video/opinion/100000010559561/gavin-newsom-we-failed-on-the-border.html
+
+**Gavin Newsom on California’s ‘Original Sin’**\
+`Newsom has emerged as a front-runner for the Democratic Party’s 2028 ticket. But will he be able to reconcile his track record as the governor of one of the least affordable states in the country?`\
+https://nytimes.com/video/opinion/100000010574435/gavin-newsom-on-californias-original-sin.html
 
