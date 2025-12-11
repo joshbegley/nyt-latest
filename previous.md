@@ -1,3 +1,7 @@
+**Searching for Beauty in the Bloodshed of Bullfighting**\
+`Albert Serra’s documentary “Afternoons of Solitude” seeks something transcendent in a tradition that many people, in Spain and elsewhere, find barbaric.`\
+https://nytimes.com/2025/12/11/movies/afternoons-of-solitude-albert-serra.html
+
 **We’re Trying to Find a Line the Supreme Court Won’t Cross**\
 `It isn’t easy.`\
 https://nytimes.com/2025/12/11/opinion/supreme-court-slaughter-presidential-power.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/11/us/indiana-senate-redistricting-republicans.html
 **My Favorite Performances of the Year**\
 `Actors took big swings in 2025. Here are some of the best.`\
 https://nytimes.com/2025/12/11/podcasts/cannonball-great-performers.html
-
-**Two Women Who Kept the Art World at Arm’s Length**\
-`Agnes Martin and Jay De Feo spent a lifetime searching for clarity of thought. Their works glow in these two shows.`\
-https://nytimes.com/2025/12/11/arts/design/agnes-martin-jay-de-feo-review-last-chance.html
 

@@ -1,3 +1,7 @@
+**Searching for Beauty in the Bloodshed of Bullfighting**\
+`Albert Serra’s documentary “Afternoons of Solitude” seeks something transcendent in a tradition that many people, in Spain and elsewhere, find barbaric.`\
+https://nytimes.com/2025/12/11/movies/afternoons-of-solitude-albert-serra.html
+
 **We’re Trying to Find a Line the Supreme Court Won’t Cross**\
 `It isn’t easy.`\
 https://nytimes.com/2025/12/11/opinion/supreme-court-slaughter-presidential-power.html
