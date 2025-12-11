@@ -1,3 +1,15 @@
+**Grizzlies’ Zach Edey expected to miss up to 4 weeks with injury**\
+`With Ja Morant set to return, the Grizzlies will have to go without another player in the lineup: Zach Edey.`\
+https://nytimes.com/athletic/6883039/2025/12/11/zach-edey-grizzlies-injury/
+
+**D.L. Coburn, Playwright With a Solo Hit, ‘The Gin Game,’ Dies at 87**\
+`His two-character work won a Pulitzer Prize and had a long Broadway run, but he never replicated its success and struggled to get his later work staged.`\
+https://nytimes.com/2025/12/11/theater/dl-coburn-dead.html
+
+**Trump Isn’t Interested in Fighting a New Cold War. He Wants a New Civilizational War.**\
+`Trump is not interested in refighting the Cold War. He is, in my view, interested in fighting the civilizational war over what is the American “home.”`\
+https://nytimes.com/2025/12/11/opinion/trump-europe-security-strategy.html
+
 **NFL Week 15 model-projected scores and point totals for every game**\
 `Austin Mock's NFL Projection Model gives its predictions for the points differentials and totals for every Week 15 game.`\
 https://nytimes.com/athletic/6883073/2025/12/11/nfl-week-15-projected-scores-model-predicts-point-spreads-and-totals-for-every-game/
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/6882690/2025/12/11/best-bets-browns-bears-army-navy
 **How soaring World Cup ticket prices compare to Super Bowl, other major events**\
 `The 2026 World Cup final could be the single most lucrative match in soccer history.`\
 https://nytimes.com/athletic/6683842/2025/12/11/world-cup-ticket-prices-usmnt-super-bowl/
-
-**NFL best bets Week 15: A Patriots-Bills pick and 4 over-unders**\
-`Austin Mock had his first losing week in quite some time, and is aiming to get back in the green with five bets.`\
-https://nytimes.com/athletic/6882833/2025/12/11/nfl-best-bets-week-15-patriots-bills/
-
-**Southern Miss promotes Blake Anderson to head coach, replaces Charles Huff**\
-`Anderson is 74-54 as a head coach in stops at Arkansas State and Utah State.`\
-https://nytimes.com/athletic/6882770/2025/12/11/southern-miss-blake-anderson-head-coach-charles-huff/
-
-**Man Accused in Charlie Kirk Killing Makes First Court Appearance in Person**\
-`Tyler Robinson faces murder charges in Utah in the Sept. 10 assassination of Mr. Kirk, the political activist and ally of President Trump.`\
-https://nytimes.com/2025/12/11/us/charlie-kirk-assassination-suspect-hearing.html
 

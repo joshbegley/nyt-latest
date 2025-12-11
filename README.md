@@ -1,3 +1,11 @@
+**Crypto Entrepreneur Who Caused 2022 Crash Is Sentenced to 15 Years in Prison**\
+`Do Kwon, who designed the virtual currencies Luna and TerraUSD, which plunged in 2022, had pleaded guilty to fraud.`\
+https://nytimes.com/2025/12/11/technology/crypto-do-kwon-sentenced-prison.html
+
+**Bay Area Gas Explosion Injures at Least 6 and Starts Neighborhood Fire**\
+`A gas line explosion in Hayward, Calif., sent multiple victims to the hospital and led to a fire that burned several houses.`\
+https://nytimes.com/2025/12/11/us/hayward-california-gas-line-explosion.html
+
 **Grizzlies’ Zach Edey expected to miss up to 4 weeks with injury**\
 `With Ja Morant set to return, the Grizzlies will have to go without another player in the lineup: Zach Edey.`\
 https://nytimes.com/athletic/6883039/2025/12/11/zach-edey-grizzlies-injury/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6882669/2025/12/11/mlb-winter-meetings-takeaways-pe
 **Cubs continue remaking bullpen with deal for lefty Hoby Milner: Source**\
 `Milner has pitched for Craig Counsell before, when they were both with the Milwaukee Brewers.`\
 https://nytimes.com/athletic/6882859/2025/12/11/cubs-hoby-milner-bullpen-lefty-reliever/
-
-**Betting for (by) dummies: Loving the totals in Browns-Bears, Army-Navy**\
-`Jon Greenberg and Zac Jackson make their weekly NCAA and NFL picks. This week, they had some fun with totals and futures bets.`\
-https://nytimes.com/athletic/6882690/2025/12/11/best-bets-browns-bears-army-navy-indiana/
-
-**How soaring World Cup ticket prices compare to Super Bowl, other major events**\
-`The 2026 World Cup final could be the single most lucrative match in soccer history.`\
-https://nytimes.com/athletic/6683842/2025/12/11/world-cup-ticket-prices-usmnt-super-bowl/
 

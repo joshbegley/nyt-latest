@@ -1,3 +1,15 @@
+**Grizzlies’ Zach Edey expected to miss up to 4 weeks with injury**\
+`With Ja Morant set to return, the Grizzlies will have to go without another player in the lineup: Zach Edey.`\
+https://nytimes.com/athletic/6883039/2025/12/11/zach-edey-grizzlies-injury/
+
+**D.L. Coburn, Playwright With a Solo Hit, ‘The Gin Game,’ Dies at 87**\
+`His two-character work won a Pulitzer Prize and had a long Broadway run, but he never replicated its success and struggled to get his later work staged.`\
+https://nytimes.com/2025/12/11/theater/dl-coburn-dead.html
+
+**Trump Isn’t Interested in Fighting a New Cold War. He Wants a New Civilizational War.**\
+`Trump is not interested in refighting the Cold War. He is, in my view, interested in fighting the civilizational war over what is the American “home.”`\
+https://nytimes.com/2025/12/11/opinion/trump-europe-security-strategy.html
+
 **NFL Week 15 model-projected scores and point totals for every game**\
 `Austin Mock's NFL Projection Model gives its predictions for the points differentials and totals for every Week 15 game.`\
 https://nytimes.com/athletic/6883073/2025/12/11/nfl-week-15-projected-scores-model-predicts-point-spreads-and-totals-for-every-game/
