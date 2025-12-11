@@ -1,3 +1,7 @@
+**Late Night Tries to Decipher Another Rambling Trump Speech**\
+`Among other things, President Trump claimed to be a big hit with Black voters. But Desi Lydic says her potato salad is getting better numbers.`\
+https://nytimes.com/2025/12/11/arts/television/late-night-desi-lydic-trump-speech.html
+
 **Newcastle were left questioning their own mentality in Leverkusen — and it's Sunderland next**\
 `Newcastle drew 2-2 against Leverkusen on Wednesday night`\
 https://nytimes.com/athletic/6878242/2025/12/11/newcastle-leverkusen-sunderland-analysis/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6855386/2025/12/11/england-australia-grade-cricket-
 **Hull setback offers Wrexham's Parkinson a chance to reflect on how far he has come**\
 `Last week brought the anniversary of what remains Wrexham manager Phil Parkinson's biggest disappointment in football`\
 https://nytimes.com/athletic/6875042/2025/12/11/hull-wrexham-parkinson/
-
-**Women's Champions League: Barca without key players, Man Utd's selection gamble**\
-`Barcelona and OL Lyonnes both confirmed their automatic progression to the Champions League quarter-finals`\
-https://nytimes.com/athletic/6880021/2025/12/11/womens-champions-league-briefing/
 
