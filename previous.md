@@ -1,3 +1,7 @@
+**Drance: Why I worry about Canucks' approach to a Quinn Hughes trade**\
+`The notion that the Canucks will trade captain Quinn Hughes has taken on a certain sense of inevitability.`\
+https://nytimes.com/athletic/6880372/2025/12/11/canucks-quinn-hughes-jim-rutherford-trade/
+
 **Christine Williamson to lead women's basketball coverage on ESPN**\
 `Williamson will replace Elle Duncan as ESPN's lead host for its women's basketball coverage.`\
 https://nytimes.com/athletic/6882349/2025/12/11/espn-christine-williamson-women-basketball/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/11/world/europe/russia-threat-poland-archaeologist.h
 **Ravens sign DT Travis Jones to 3-year extension**\
 `Jones' deal comes a week after Baltimore signed tight end Mark Andrews to a three-year extension.`\
 https://nytimes.com/athletic/6882267/2025/12/11/ravens-travis-jones-extension/
-
-**Mike Lindell, MyPillow Founder, Announces Run for Minnesota Governor**\
-`He is a close ally of President Trump and has been a leading proponent of the election denial movement, which falsely claims that voting machines are often rigged.`\
-https://nytimes.com/2025/12/11/us/politics/mypillow-mike-lindell-minnesota-governor-election.html
 

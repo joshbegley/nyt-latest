@@ -1,3 +1,7 @@
+**Drance: Why I worry about Canucks' approach to a Quinn Hughes trade**\
+`The notion that the Canucks will trade captain Quinn Hughes has taken on a certain sense of inevitability.`\
+https://nytimes.com/athletic/6880372/2025/12/11/canucks-quinn-hughes-jim-rutherford-trade/
+
 **Christine Williamson to lead women's basketball coverage on ESPN**\
 `Williamson will replace Elle Duncan as ESPN's lead host for its women's basketball coverage.`\
 https://nytimes.com/athletic/6882349/2025/12/11/espn-christine-williamson-women-basketball/

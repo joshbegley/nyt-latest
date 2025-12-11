@@ -1,9 +1,17 @@
+**Why Some Countries May Copy Australia’s Ban on Children Using Social Media**\
+`Governments are studying the decision to prohibit youths from using platforms like Facebook and TikTok as worries grow about the potential harm they cause.`\
+https://nytimes.com/2025/12/11/world/australia/social-media-ban-australia-europe-china-usa.html
+
+**The Supreme Court and Executive Power**\
+`Readers respond to an Opinion guest essay about the justices and unitary executive theory. Also: The danger posed by Health Secretary Robert F. Kennedy Jr.`\
+https://nytimes.com/2025/12/11/opinion/supreme-court-executive-power.html
+
 **Drance: Why I worry about Canucks' approach to a Quinn Hughes trade**\
 `The notion that the Canucks will trade captain Quinn Hughes has taken on a certain sense of inevitability.`\
 https://nytimes.com/athletic/6880372/2025/12/11/canucks-quinn-hughes-jim-rutherford-trade/
 
 **Christine Williamson to lead women's basketball coverage on ESPN**\
-`Williamson will replace Elle Duncan as ESPN's lead host for its women's basketball coverage.`\
+`Williamson will replace Elle Duncan as ESPN's lead host for women's basketball coverage.`\
 https://nytimes.com/athletic/6882349/2025/12/11/espn-christine-williamson-women-basketball/
 
 **The play-by-play of how NASCAR's trial of the century came to an end in just two hours**\
@@ -25,12 +33,4 @@ https://nytimes.com/video/world/europe/100000010580690/anti-corruption-protests-
 **Grand Slam Track files for bankruptcy, vendors face huge losses**\
 `Michael Johnson's new-look competition still owes some vendors over $1 million while only having $0-$50,000 in assets.`\
 https://nytimes.com/athletic/6882206/2025/12/11/grand-slam-track-bankruptcy-johnson/
-
-**Russia Warns Poland Over Arrest of a Researcher Wanted by Ukraine**\
-`Poland detained a Russian archaeologist who works on an ancient site in Crimea, which Russia seized in 2014. Ukraine calls the work illegal.`\
-https://nytimes.com/2025/12/11/world/europe/russia-threat-poland-archaeologist.html
-
-**Ravens sign DT Travis Jones to 3-year extension**\
-`Jones' deal comes a week after Baltimore signed tight end Mark Andrews to a three-year extension.`\
-https://nytimes.com/athletic/6882267/2025/12/11/ravens-travis-jones-extension/
 
