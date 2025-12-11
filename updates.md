@@ -1,3 +1,7 @@
+**How to watch Panthers vs. Avalanche: Time, TV, streaming**\
+`Find out how to watch the Florida Panthers play the Colorado Avalanche, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6882838/2025/12/11/panthers-vs-avalanche-stream-how-to-watch-dec-11/
+
 **I Think This Poem Is Kind of Into You**\
 `Our critic A.O. Scott feels the heat of a wintry lyric by the Nobel laureate Louise Glück.`\
 https://nytimes.com/interactive/2025/12/11/books/louise-gluck-poem-early-december-croton-hudson.html
