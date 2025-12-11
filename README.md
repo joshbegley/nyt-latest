@@ -1,3 +1,7 @@
+**A lot of talk, little action at Winter Meetings: What we’re hearing about the Cubs**\
+`Cubs president of baseball operations Jed Hoyer left winter meetings without making a big move.`\
+https://nytimes.com/athletic/6880509/2025/12/10/what-were-hearing-cubs-winter-meetings/
+
 **Judge in Oregon Blocks Arrest of Protesters For Noise**\
 `Federal agents outside an ICE detention facility in Eugene, Ore., had sought to enforce a new rule that prohibits “creating a loud or unusual noise” outside federal property.`\
 https://nytimes.com/2025/12/10/us/politics/trump-arrests-protesters-noise-ruling.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6880374/2025/12/10/aj-preller-fernando-tatis-untouc
 **Audi Crooks is scoring at an elite clip — what are other stunning feats?**\
 `Crooks leads the country in total points (276) and points per game (27.6).`\
 https://nytimes.com/athletic/6877569/2025/12/10/audi-crooks-unprecedented-scoring-pace-and-other-jaw-dropping-college-basketball-feats/
-
-**Defense Bill Will Make D.C. Skies Less Safe, N.T.S.B. Chair Says**\
-`The chair of the National Transportation Safety Board warned that a provision in the new defense bill would worsen the risk of midair collisions near the Washington-area airport where a deadly crash in January killed 67 people.`\
-https://nytimes.com/2025/12/10/us/politics/ntsb-defense-bill-dca-crash.html
 
