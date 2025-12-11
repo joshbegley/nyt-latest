@@ -1,3 +1,27 @@
+**Arsenal, Bayern, PSG and Visit Rwanda: 'We would rather wear anything on our sleeves'**\
+`We visit Kigali and speak to people on all sides about why some teams are ending deals while others are signing new ones`\
+https://nytimes.com/athletic/6878062/2025/12/11/arsenal-bayern-psg-and-visit-rwanda-that-money-is-from-the-blood-of-congolese-people/
+
+**Tender Turkey Meatballs in Tomato Sauce, With Lots of Parm**\
+`Add a green salad and some bread (garlic, if you’d like), and that’s a very good dinner.`\
+https://nytimes.com/2025/12/11/dining/tender-turkey-meatballs-in-tomato-sauce-with-lots-of-parm.html
+
+**Judge Orders Abrego Garcia’s Release From ICE Detention**\
+`The judge said it was “troubling” that the Trump administration had kept Kilmar Armando Abrego Garcia in custody for nearly four months without following through on its pledge to re-expel him.`\
+https://nytimes.com/2025/12/11/us/politics/abrego-garcia-released.html
+
+**R. Bruce Dold, Chicago Tribune Publisher and Pulitzer Winner, Dies at 70**\
+`As head of the editorial page, he encouraged The Tribune’s support of Barack Obama, resulting in the paper’s first endorsement of a Democrat running for the White House.`\
+https://nytimes.com/2025/12/11/us/politics/bruce-dold-dead.html
+
+**Fantasy football injuries, inactives, cheat sheet Week 15**\
+`Fantasy football relevant injuries and their impact, weather reports and game previews. Plus, Ciely's Week 15 player rankings and more.`\
+https://nytimes.com/athletic/6878815/2025/12/11/fantasy-football-injuries-inactives-cheat-sheet-week-15/
+
+**The Bounce: We'll have a first-time NBA Cup champion.**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/6881953/2025/12/11/nba-cup-thunder-the-bounce/
+
 **Emmett Johnson leaves Nebraska with sterling legacy, All-America status**\
 `Johnson took pride in building a new reputation for Nebraska running backs, he said.`\
 https://nytimes.com/athletic/6881795/2025/12/11/emmett-johnson-nebraska-all-american-running-back/
