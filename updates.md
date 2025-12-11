@@ -1,3 +1,11 @@
+**Mike Yastrzemski, Braves ink 2-year, $23M contract**\
+`Outfielder Mike Yastrzemski has signed a two-year, $23 million contract to join the Atlanta Braves, the team announced Wednesday.`\
+https://nytimes.com/athletic/6783789/2025/12/10/mlb-mike-yastrzemski-free-agency-signing-braves/
+
+**One of the Last Times Square Dive Bars Faces Eviction**\
+`New York is a city of hustlers, of odds makers and shot takers. For 54 years, Jimmy’s Corner has been their bar.`\
+https://nytimes.com/2025/12/10/nyregion/jimmys-corner-bar-times-square-boxing.html
+
 **Gavin Newsom: ‘We Failed on the Border’**\
 `Gov. Gavin Newsom has pushed California to offer health insurance to undocumented immigrants. He also thinks the Democratic Party has failed on border policy in recent years. On a recent episode of “The Ezra Klein Show,” he explains why.`\
 https://nytimes.com/video/opinion/100000010559561/gavin-newsom-we-failed-on-the-border.html
