@@ -1,4 +1,12 @@
-**MLB's returning to NBC. The network wants to air baseball beyond it's 3-year deal**\
+**Ex-San Francisco basketball player violated NCAA gambling rules: Report**\
+`The NCAA said that Williams “agreed to his violations” in a negotiated resolution.`\
+https://nytimes.com/athletic/6881640/2025/12/11/ncaa-san-francisco-marcus-williams-gambling-violations/
+
+**The Season of Shredding (Vegetables)**\
+`Pickle latkes, vegetable pajeon and tofu tacos — consider this your invitation to shred your way through the week.`\
+https://nytimes.com/2025/12/11/dining/the-season-of-shredding-vegetables.html
+
+**MLB's returning to NBC. The network wants to air baseball beyond its 3-year deal**\
 `As part of its MLB partnership, NBC will feature an on-site pregame show for "Sunday Night Baseball."`\
 https://nytimes.com/athletic/6882335/2025/12/11/nbc-mlb-broadcast-deal-sunday-night-baseball/
 
@@ -25,12 +33,4 @@ https://nytimes.com/2025/12/11/style/bezel-set-engagement-rings.html
 **Why Some Countries May Copy Australia’s Ban on Children’s Use of Social Media**\
 `Governments are studying the decision to prohibit youths from using platforms like Facebook and TikTok as worries grow about the potential harm they cause.`\
 https://nytimes.com/2025/12/11/world/australia/social-media-ban-australia-europe-china-usa.html
-
-**The Supreme Court and Executive Power**\
-`Readers respond to an Opinion guest essay about the justices and unitary executive theory. Also: The danger posed by Health Secretary Robert F. Kennedy Jr.`\
-https://nytimes.com/2025/12/11/opinion/supreme-court-executive-power.html
-
-**Drance: Why I worry about Canucks' approach to a Quinn Hughes trade**\
-`The notion that the Canucks will trade captain Quinn Hughes has taken on a certain sense of inevitability.`\
-https://nytimes.com/athletic/6880372/2025/12/11/canucks-quinn-hughes-jim-rutherford-trade/
 
