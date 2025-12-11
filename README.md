@@ -1,3 +1,7 @@
+**Mike Yastrzemski, Braves ink 2-year, $23M contract**\
+`Outfielder Mike Yastrzemski has signed a two-year, $23 million contract to join the Atlanta Braves, the team announced Wednesday.`\
+https://nytimes.com/athletic/6783789/2025/12/10/mlb-mike-yastrzemski-free-agency-signing-braves/
+
 **One of the Last Times Square Dive Bars Faces Eviction**\
 `New York is a city of hustlers, of odds makers and shot takers. For 54 years, Jimmy’s Corner has been their bar.`\
 https://nytimes.com/2025/12/10/nyregion/jimmys-corner-bar-times-square-boxing.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/10/us/politics/ntsb-defense-bill-dca-crash.html
 **Yankees won't just wait on Cody Bellinger. Here's what they should do in the meantime**\
 `While waiting for Bellinger's decision, the club could address the starting rotation, bullpen and platoon options.`\
 https://nytimes.com/athletic/6880271/2025/12/10/yankees-cody-bellinger-roster-options/
-
-**A Mysterious Fire, a Helpful Neighbor and a Murder Charge**\
-`Virginia Cranwell, 82, died in a fire in her New Jersey home this summer. Her neighbor, who claimed he tried to save her, now faces murder and arson charges.`\
-https://nytimes.com/2025/12/10/nyregion/new-jersey-fire-death.html
 
