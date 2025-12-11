@@ -1,3 +1,15 @@
+**House Gives Bipartisan Approval to $900 Billion Defense Bill**\
+`The legislation codifies President Trump’s agenda but includes a few measures challenging his policies and insisting on more consultation with Congress.`\
+https://nytimes.com/2025/12/10/us/politics/house-approves-defense-bill.html
+
+**Man Admits to Strangling Pregnant Woman in 1996, Resolving Cold Case**\
+`Gregory Fleetwood, 69, pleaded guilty to manslaughter on Wednesday in the killing of 36-year-old Jasmine Porter. He is expected to be sentenced to 12 years in prison.`\
+https://nytimes.com/2025/12/10/nyregion/bronx-cold-case-strangling-plea.html
+
+**NFL announces remaining Week 17 kickoff times**\
+`A few of the Week 17 matchups are expected to have playoff implications.`\
+https://nytimes.com/athletic/6880263/2025/12/10/nfl-week-17-kickoff-times/
+
 **Britain Releases New Data on ‘Grooming Gangs’ and Child Sexual Abuse**\
 `The police in Britain warned that the threat from online predators has been rising while political attention has been focused elsewhere.`\
 https://nytimes.com/2025/12/10/world/europe/uk-child-sexual-abuse-grooming-gangs-data.html
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/6880088/2025/12/10/canadiens-jacob-fowler-st-louis-
 **Madrid players insist they are behind head coach Alonso after Man City defeat**\
 `The 2-1 loss means that Madrid have only won two of their last eight games in all competitions.`\
 https://nytimes.com/athletic/6880115/2025/12/10/real-madrid-players-xabi-alonso/
-
-**Red Sox trying to add two more bats after missing on Pete Alonso: Source**\
-`A reunion with Alex Bregman figures to be the main objective at this point, but the Red Sox could also target free agent Eugenio Suarez.`\
-https://nytimes.com/athletic/6880040/2025/12/10/red-sox-free-agents-missing-pete-alonso/
-
-**Yankees, Red Sox among teams interested in Brewers' Freddy Peralta: Sources**\
-`One Brewers official said “lots of teams” are calling about Peralta, terming it “a good week.”`\
-https://nytimes.com/athletic/6880122/2025/12/10/freddy-peralta-brewers-yankees-red-sox/
-
-**Giants' Winter Meetings 'haul' is a Rule 5 draft trade for catcher Daniel Susac**\
-`The Giants didn't sign any big names during the Winter Meetings, but they moved up in the first round and added catching depth.`\
-https://nytimes.com/athletic/6880006/2025/12/10/sf-giants-rule-5-daniel-susac-trade-winter-meetings/
 
