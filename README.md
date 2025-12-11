@@ -1,3 +1,15 @@
+**Tzimas to miss rest of season after ACL injury on full Premier League debut**\
+`The striker was hurt in innocuous circumstances during the first half of December's defeat to Aston Villa.`\
+https://nytimes.com/athletic/6882545/2025/12/11/stefanos-tzimas-brighton-injury-update/
+
+**Thomas O. Hicks, Texas Money Man Who Owned 3 Teams, Dies at 79**\
+`A master of leveraged buyouts, he bought baseball and hockey teams in Texas and an English soccer club, only to lose them in an avalanche of debt.`\
+https://nytimes.com/2025/12/11/sports/thomas-o-hicks-dead.html
+
+**What each World Cup match costs to attend after FIFA raises ticket prices post-draw**\
+`For the first time, tickets are available to specific World Cup games, and the prices are largely on a significant rise`\
+https://nytimes.com/athletic/6882370/2025/12/11/world-cup-tickets-every-game-price-fifa/
+
 **Tiny Love Stories: ‘He Invited Me In for a Glass of Wine’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2025/12/11/style/tiny-modern-love-stories-he-invited-me-in-for-a-glass-of-wine.html
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/6881640/2025/12/11/ncaa-san-francisco-marcus-willia
 **The Season of Shredding (Vegetables)**\
 `Pickle latkes, vegetable pajeon and tofu tacos — consider this your invitation to shred your way through the week.`\
 https://nytimes.com/2025/12/11/dining/the-season-of-shredding-vegetables.html
-
-**MLB's returning to NBC. The network wants to air baseball beyond its 3-year deal**\
-`As part of its MLB partnership, NBC will feature an on-site pregame show for "Sunday Night Baseball."`\
-https://nytimes.com/athletic/6882335/2025/12/11/nbc-mlb-broadcast-deal-sunday-night-baseball/
-
-**Olympics may force USC football to move home games from Coliseum to SoFi Stadium in 2028**\
-`The Olympics will begin on July 14, 2028, and run through July 30, but the Paralympics will not conclude until Aug. 27.`\
-https://nytimes.com/athletic/6882396/2025/12/11/usc-football-sofi-stadium-la-coliseum/
-
-**Michigan's many coaching scandals: From Jim Harbaugh to Juwan Howard to Sherrone Moore**\
-`Michigan's athletic department has dealt with a lot of turmoil in recent years, and it's not just in their football program.`\
-https://nytimes.com/athletic/6882187/2025/12/11/michigan-timeline-coaching-scandals-sherrone-moore-jim-harbaugh/
 

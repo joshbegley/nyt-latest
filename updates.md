@@ -1,3 +1,11 @@
+**Tiny Love Stories: ‘He Invited Me In for a Glass of Wine’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2025/12/11/style/tiny-modern-love-stories-he-invited-me-in-for-a-glass-of-wine.html
+
+**Steelers' T.J. Watt hospitalized after experiencing lung discomfort**\
+`The star edge rusher's status for Monday’s game against the Miami Dolphins is in question.`\
+https://nytimes.com/athletic/6882458/2025/12/11/tj-watt-hospitalized-lung-questionable-mnf/
+
 **100,000 Ordered to Evacuate as Rivers Rise in Washington State**\
 `Days of heavy rain pushed waterways to record flood levels in a mountainous region north of Seattle. “Do not wait,” local officials warned residents as they urged them to seek higher ground.`\
 https://nytimes.com/2025/12/11/weather/washington-flooding-rain-atmospheric-river.html

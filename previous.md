@@ -1,8 +1,12 @@
+**Tiny Love Stories: ‘He Invited Me In for a Glass of Wine’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2025/12/11/style/tiny-modern-love-stories-he-invited-me-in-for-a-glass-of-wine.html
+
 **100,000 Ordered to Evacuate as Rivers Rise in Washington State**\
 `Days of heavy rain pushed waterways to record flood levels in a mountainous region north of Seattle. “Do not wait,” local officials warned residents as they urged them to seek higher ground.`\
 https://nytimes.com/2025/12/11/weather/washington-flooding-rain-atmospheric-river.html
 
-**Steelers' T.J. Watt being evaluated after experiencing lung discomfort**\
+**Steelers' T.J. Watt hospitalized after experiencing lung discomfort**\
 `The star edge rusher's status for Monday’s game against the Miami Dolphins is in question.`\
 https://nytimes.com/athletic/6882458/2025/12/11/tj-watt-hospitalized-lung-questionable-mnf/
 
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6882396/2025/12/11/usc-football-sofi-stadium-la-col
 **Michigan's many coaching scandals: From Jim Harbaugh to Juwan Howard to Sherrone Moore**\
 `Michigan's athletic department has dealt with a lot of turmoil in recent years, and it's not just in their football program.`\
 https://nytimes.com/athletic/6882187/2025/12/11/michigan-timeline-coaching-scandals-sherrone-moore-jim-harbaugh/
-
-**Travis Kelce on Chiefs’ struggles: 'This is a tough reality'**\
-`Kelce voiced his growing frustration after the Chiefs’ latest loss, admitting this season’s struggles.`\
-https://nytimes.com/athletic/6882070/2025/12/11/travis-kelce-chiefs-playoffs-new-heights/
 
