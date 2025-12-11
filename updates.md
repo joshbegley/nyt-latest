@@ -1,3 +1,7 @@
+**Olympic champion Michelle Gisin faces neck surgery after serious downhill accident**\
+`The two-time Olympic gold medalist will undergo neck surgery after a violent training crash in St. Moritz on Thursday.`\
+https://nytimes.com/athletic/6882585/2025/12/11/michelle-gisin-olympics-downhill-accident-neck-surgery/
+
 **Turkey’s Largest City Is Threatened by a Lurking Seismic Catastrophe**\
 `Escalating activity along a fault line in the Sea of Marmara is moving closer to Istanbul, seismologists warn.`\
 https://nytimes.com/2025/12/11/science/turkey-earthquake-istanbul-fault-line.html

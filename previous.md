@@ -1,3 +1,7 @@
+**Olympic champion Michelle Gisin faces neck surgery after serious downhill accident**\
+`The two-time Olympic gold medalist will undergo neck surgery after a violent training crash in St. Moritz on Thursday.`\
+https://nytimes.com/athletic/6882585/2025/12/11/michelle-gisin-olympics-downhill-accident-neck-surgery/
+
 **Turkey’s Largest City Is Threatened by a Lurking Seismic Catastrophe**\
 `Escalating activity along a fault line in the Sea of Marmara is moving closer to Istanbul, seismologists warn.`\
 https://nytimes.com/2025/12/11/science/turkey-earthquake-istanbul-fault-line.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6882407/2025/12/11/ryan-reaves-leafs-sharks/
 **Covid Vaccines Reduced Children’s Likelihood of E.R. and Urgent Care Visits, the C.D.C. Reported**\
 `The vaccines were found to decrease the risk of needing medical care in the first six months after vaccination by 76 percent in children under 4, and by 56 percent in children 5 to 17.`\
 https://nytimes.com/2025/12/11/health/cdc-covid-vaccines-children-er-visits.html
-
-**Tangled Parachute Leaves Skydiver Hanging From Plane**\
-`A skydiver was left dangling in the air after their parachute was caught on a plane wing, footage released by the Australian Transport Safety Bureau showed. Everyone landed safely, a report from the bureau said.`\
-https://nytimes.com/video/world/australia/100000010580713/tangled-parachute-leaves-skydiver-hanging-from-plane.html
 
