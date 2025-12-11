@@ -1,5 +1,9 @@
 **Oil Tanker U.S. Seized Has Faked Its Location Before, Data Shows**\
 `The ship has frequently carried oil from countries under U.S. sanctions, and its tracking data shows multiple recent trips to Iran and Venezuela.`\
+https://nytimes.com/2025/12/10/us/politics/oil-tanker-venezuela-tracking-data.html
+
+**Oil Tanker U.S. Seized Has Faked Its Location Before, Data Shows**\
+`The ship has frequently carried oil from countries under U.S. sanctions, and its tracking data shows multiple recent trips to Iran and Venezuela.`\
 https://nytimes.com/2025/12/10/us/politics/the-oil-tanker-seized-by-the-us-has-a-history-of-faking-its-location.html
 
 **A Mysterious Fire, a Helpful Neighbor and a Murder Charge**\
