@@ -1,3 +1,19 @@
+**Video Shows Skydiver Dangling From Plane’s Tail After Parachute Gets Stuck**\
+`A parachutist in Queensland, Australia, survived by cutting the chute free at 15,000 feet when a reserve parachute accidentally deployed, according to a government report.`\
+https://nytimes.com/2025/12/11/world/australia/skydiver-parachute-caught-plane-australia.html
+
+**Sharks' Reaves has lingering feelings, but 'no regrets' about time in Toronto**\
+`"I think just a little honesty and some communication would have been nice," Reaves said about sitting out for long periods last season.`\
+https://nytimes.com/athletic/6882407/2025/12/11/ryan-reaves-leafs-sharks/
+
+**Covid Vaccines Reduced Children’s Likelihood of E.R. and Urgent Care Visits, the C.D.C. Reported**\
+`The vaccines were found to decrease the risk of needing medical care in the first six months after vaccination by 76 percent in children under 4, and by 56 percent in children 5 to 17.`\
+https://nytimes.com/2025/12/11/health/cdc-covid-vaccines-children-er-visits.html
+
+**Tangled Parachute Leaves Skydiver Hanging From Plane**\
+`A skydiver was left dangling in the air after their parachute was caught on a plane wing, footage released by the Australian Transport Safety Bureau showed. Everyone landed safely, a report from the bureau said.`\
+https://nytimes.com/video/world/australia/100000010580713/tangled-parachute-leaves-skydiver-hanging-from-plane.html
+
 **Tzimas to miss rest of season after ACL injury on full Premier League debut**\
 `The striker was hurt in innocuous circumstances during the first half of December's defeat to Aston Villa.`\
 https://nytimes.com/athletic/6882545/2025/12/11/stefanos-tzimas-brighton-injury-update/

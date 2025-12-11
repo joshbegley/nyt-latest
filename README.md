@@ -1,3 +1,7 @@
+**U.S. Helped to Weaken Report at U.N. Environment Talks, Participants Say**\
+`American officials joined Russia, Saudi Arabia and Iran in objecting to language on fossils fuels, biodiversity and plastics in a report that was three years in the making.`\
+https://nytimes.com/2025/12/11/climate/unep-climate-report-trump-administration.html
+
 **Video Shows Skydiver Dangling From Plane’s Tail After Parachute Gets Stuck**\
 `A parachutist in Queensland, Australia, survived by cutting the chute free at 15,000 feet when a reserve parachute accidentally deployed, according to a government report.`\
 https://nytimes.com/2025/12/11/world/australia/skydiver-parachute-caught-plane-australia.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6882370/2025/12/11/world-cup-tickets-every-game-pri
 **Tiny Love Stories: ‘He Invited Me In for a Glass of Wine’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2025/12/11/style/tiny-modern-love-stories-he-invited-me-in-for-a-glass-of-wine.html
-
-**100,000 Ordered to Evacuate as Rivers Rise in Washington State**\
-`Days of heavy rain pushed waterways to record flood levels in a mountainous region north of Seattle. “Do not wait,” local officials warned residents as they urged them to seek higher ground.`\
-https://nytimes.com/2025/12/11/weather/washington-flooding-rain-atmospheric-river.html
 

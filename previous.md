@@ -1,3 +1,19 @@
+**Video Shows Skydiver Dangling From Plane’s Tail After Parachute Gets Stuck**\
+`A parachutist in Queensland, Australia, survived by cutting the chute free at 15,000 feet when a reserve parachute accidentally deployed, according to a government report.`\
+https://nytimes.com/2025/12/11/world/australia/skydiver-parachute-caught-plane-australia.html
+
+**Sharks' Reaves has lingering feelings, but 'no regrets' about time in Toronto**\
+`"I think just a little honesty and some communication would have been nice," Reaves said about sitting out for long periods last season.`\
+https://nytimes.com/athletic/6882407/2025/12/11/ryan-reaves-leafs-sharks/
+
+**Covid Vaccines Reduced Children’s Likelihood of E.R. and Urgent Care Visits, the C.D.C. Reported**\
+`The vaccines were found to decrease the risk of needing medical care in the first six months after vaccination by 76 percent in children under 4, and by 56 percent in children 5 to 17.`\
+https://nytimes.com/2025/12/11/health/cdc-covid-vaccines-children-er-visits.html
+
+**Tangled Parachute Leaves Skydiver Hanging From Plane**\
+`A skydiver was left dangling in the air after their parachute was caught on a plane wing, footage released by the Australian Transport Safety Bureau showed. Everyone landed safely, a report from the bureau said.`\
+https://nytimes.com/video/world/australia/100000010580713/tangled-parachute-leaves-skydiver-hanging-from-plane.html
+
 **Tzimas to miss rest of season after ACL injury on full Premier League debut**\
 `The striker was hurt in innocuous circumstances during the first half of December's defeat to Aston Villa.`\
 https://nytimes.com/athletic/6882545/2025/12/11/stefanos-tzimas-brighton-injury-update/
@@ -17,20 +33,4 @@ https://nytimes.com/2025/12/11/style/tiny-modern-love-stories-he-invited-me-in-f
 **100,000 Ordered to Evacuate as Rivers Rise in Washington State**\
 `Days of heavy rain pushed waterways to record flood levels in a mountainous region north of Seattle. “Do not wait,” local officials warned residents as they urged them to seek higher ground.`\
 https://nytimes.com/2025/12/11/weather/washington-flooding-rain-atmospheric-river.html
-
-**Steelers' T.J. Watt hospitalized after experiencing lung discomfort**\
-`The star edge rusher's status for Monday’s game against the Miami Dolphins is in question.`\
-https://nytimes.com/athletic/6882458/2025/12/11/tj-watt-hospitalized-lung-questionable-mnf/
-
-**Braves add reliever Robert Suarez to bullpen as setup man, backup closer**\
-`Suarez has a unique path as a hard-throwing late bloomer, and he leveraged that into a three-year deal.`\
-https://nytimes.com/athletic/6802236/2025/12/11/mlb-robert-suarez-free-agency-signing-braves/
-
-**Ex-San Francisco basketball player violated NCAA gambling rules: Report**\
-`The NCAA said that Williams “agreed to his violations” in a negotiated resolution.`\
-https://nytimes.com/athletic/6881640/2025/12/11/ncaa-san-francisco-marcus-williams-gambling-violations/
-
-**The Season of Shredding (Vegetables)**\
-`Pickle latkes, vegetable pajeon and tofu tacos — consider this your invitation to shred your way through the week.`\
-https://nytimes.com/2025/12/11/dining/the-season-of-shredding-vegetables.html
 
