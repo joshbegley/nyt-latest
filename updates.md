@@ -1,3 +1,15 @@
+**The New York Times in Print for Thursday, Dec. 11, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/12/11/todays-new-york-times
+
+**What Trump Gets Right About Europe**\
+`It’s an actual place, not an arbitrarily bounded zone.`\
+https://nytimes.com/2025/12/11/opinion/national-security-strategy-us-europe.html
+
+**Tanaka has a talismanic quality, so why is he not assured of his starting spot?**\
+`The midfielder has an ability to conduct the Elland Road crowd but there are aspects of his game that mean he is not always first choice`\
+https://nytimes.com/athletic/6878522/2025/12/11/ao-tanaka-leeds-farke/
+
 **Radek Vitek, the Man Utd loanee who became a Championship 'wall'**\
 `The 6ft 6in Czech has impressed at the Championship promotion hopefuls this season`\
 https://nytimes.com/athletic/6864894/2025/12/11/radek-vitek-man-utd-loan-bristol-city/
