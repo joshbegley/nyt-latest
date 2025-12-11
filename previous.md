@@ -1,6 +1,6 @@
 **Gabriel Jesus's Arsenal return was emotional - but he could be exactly what they need**\
 `Gabriel Jesus played for Arsenal's first-team for the first time in 11 months against Club Brugge`\
-https://nytimes.com/athletic/6880506/2025/12/11/arsenal-gabriel-jesus-return-2/
+https://nytimes.com/athletic/6880506/2025/12/11/arsenal-gabriel-jesus-return-club-brugge/
 
 **The New York Times in Print for Thursday, Dec. 11, 2025**\
 ``\
