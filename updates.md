@@ -1,3 +1,19 @@
+**The Quiet Luxury Engagement Ring of the Moment**\
+`Bezel settings, like the one featured in Taylor Swift’s engagement ring, “feel elegant and intentional,” one designer said. “There’s no noise.”`\
+https://nytimes.com/2025/12/11/style/bezel-set-engagement-rings.html
+
+**Why Some Countries May Copy Australia’s Ban on Children Using Social Media**\
+`Governments are studying the decision to prohibit youths from using platforms like Facebook and TikTok as worries grow about the potential harm they cause.`\
+https://nytimes.com/2025/12/11/world/australia/social-media-ban-australia-europe-china-usa.html
+
+**The Supreme Court and Executive Power**\
+`Readers respond to an Opinion guest essay about the justices and unitary executive theory. Also: The danger posed by Health Secretary Robert F. Kennedy Jr.`\
+https://nytimes.com/2025/12/11/opinion/supreme-court-executive-power.html
+
+**Christine Williamson to lead women's basketball coverage on ESPN**\
+`Williamson will replace Elle Duncan as ESPN's lead host for women's basketball coverage.`\
+https://nytimes.com/athletic/6882349/2025/12/11/espn-christine-williamson-women-basketball/
+
 **Drance: Why I worry about Canucks' approach to a Quinn Hughes trade**\
 `The notion that the Canucks will trade captain Quinn Hughes has taken on a certain sense of inevitability.`\
 https://nytimes.com/athletic/6880372/2025/12/11/canucks-quinn-hughes-jim-rutherford-trade/

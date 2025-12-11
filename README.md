@@ -1,8 +1,24 @@
+**Olympics may force USC football to move home games from Coliseum to SoFi Stadium in 2028**\
+`The Olympics will begin on July 14, 2028, and run through July 30, but the Paralympics will not conclude until Aug. 27.`\
+https://nytimes.com/athletic/6882396/2025/12/11/usc-football-sofi-stadium-la-coliseum/
+
+**Michigan's many coaching scandals: From Jim Harbaugh to Juwan Howard to Sherrone Moore**\
+`Michigan's athletic department has dealt with a lot of turmoil in recent years, and it's not just in their football program.`\
+https://nytimes.com/athletic/6882187/2025/12/11/michigan-timeline-coaching-scandals-sherrone-moore-jim-harbaugh/
+
+**Travis Kelce on Chiefs’ struggles: 'This is a tough reality'**\
+`Kelce voiced his growing frustration after the Chiefs’ latest loss, admitting this season’s struggles.`\
+https://nytimes.com/athletic/6882070/2025/12/11/travis-kelce-chiefs-playoffs-new-heights/
+
+**The Artists Reviving the Legacy of Air Afrique**\
+`Plus: a new Manhattan bathhouse, textiles woven from pineapple leaves and more recommendations from T Magazine.`\
+https://nytimes.com/2025/12/11/t-magazine/moma-art-air-afrique.html
+
 **The Quiet Luxury Engagement Ring of the Moment**\
 `Bezel settings, like the one featured in Taylor Swift’s engagement ring, “feel elegant and intentional,” one designer said. “There’s no noise.”`\
 https://nytimes.com/2025/12/11/style/bezel-set-engagement-rings.html
 
-**Why Some Countries May Copy Australia’s Ban on Children Using Social Media**\
+**Why Some Countries May Copy Australia’s Ban on Children’s Use of Social Media**\
 `Governments are studying the decision to prohibit youths from using platforms like Facebook and TikTok as worries grow about the potential harm they cause.`\
 https://nytimes.com/2025/12/11/world/australia/social-media-ban-australia-europe-china-usa.html
 
@@ -17,20 +33,4 @@ https://nytimes.com/athletic/6880372/2025/12/11/canucks-quinn-hughes-jim-rutherf
 **Christine Williamson to lead women's basketball coverage on ESPN**\
 `Williamson will replace Elle Duncan as ESPN's lead host for women's basketball coverage.`\
 https://nytimes.com/athletic/6882349/2025/12/11/espn-christine-williamson-women-basketball/
-
-**The play-by-play of how NASCAR's trial of the century came to an end in just two hours**\
-`The NASCAR antitrust trial looked like it was going to the bitter end. And then it was over. Here's how it all went down Thursday in court.`\
-https://nytimes.com/athletic/6882333/2025/12/11/nascar-trial-23xi-front-row-settlement/
-
-**Pakistan’s Ex-Spy Chief Sentenced to Prison After Court-Martial**\
-`Lt. Gen. Faiz Hameed, an ally of the former prime minister, Imran Khan, once led Pakistan’s powerful Inter-Services Intelligence agency.`\
-https://nytimes.com/2025/12/11/world/asia/pakistan-isi-hameed-court-martial-prison.html
-
-**‘Dust Bunny’ Review: A World of Wonders, Familiar and Foreign**\
-`The movie, starring Sophie Sloan and Mads Mikkelsen, is a blast of visual delights.`\
-https://nytimes.com/2025/12/11/movies/dust-bunny-review-mads-mikkelsen.html
-
-**Anti-Corruption Protests Topple Bulgarian Government**\
-`Bulgaria’s prime minister resigned after less than a year in office amid mass protests against his government in recent weeks.`\
-https://nytimes.com/video/world/europe/100000010580690/anti-corruption-protests-topple-bulgarian-government.html
 
