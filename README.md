@@ -1,3 +1,7 @@
+**Emmett Johnson leaves Nebraska with sterling legacy, All-America status**\
+`Johnson took pride in building a new reputation for Nebraska running backs, he said.`\
+https://nytimes.com/athletic/6881795/2025/12/11/emmett-johnson-nebraska-all-american-running-back/
+
 **The Bounce: We'll have a first-time NBA Cup champion. Plus, rookie rankings!**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/6881953/2025/12/11/nba-cup-rookie-rankings-thunder-the-bounce/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6881047/2025/12/11/2026-world-cup-host-city-winners
 **Heavy Rain Overflows Rivers and Prompts Evacuations in Washington**\
 `Evacuations were underway on Thursday as flooding intensified in the Pacific Northwest. Up to 100,000 Washington State residents could face orders to evacuate, according to local authorities.`\
 https://nytimes.com/video/weather/100000010580655/washington-northwest-pacific-weather-storm.html
-
-**Disney Agrees to Bring Its Characters to OpenAI’s Sora Videos**\
-`The deal is a watershed for Hollywood, which has been trying to sort through the possible harms and upsides of generative artificial intelligence.`\
-https://nytimes.com/2025/12/11/business/media/disney-openai-sora-deal.html
 
