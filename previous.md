@@ -1,3 +1,11 @@
+**Radek Vitek, the Man Utd loanee who became a Championship 'wall'**\
+`The 6ft 6in Czech has impressed at the Championship promotion hopefuls this season`\
+https://nytimes.com/athletic/6864894/2025/12/11/radek-vitek-man-utd-loan-bristol-city/
+
+**England's grade cricket connections, where even Joe Root had to play in the second XI**\
+`Australian grade cricket has been called 'the best finishing school anyone could want' - and several current England players would agree`\
+https://nytimes.com/athletic/6855386/2025/12/11/england-australia-grade-cricket-root-duckett-crawley-brook/
+
 **Hull setback offers Wrexham's Parkinson a chance to reflect on how far he has come**\
 `Last week brought the anniversary of what remains Wrexham manager Phil Parkinson's biggest disappointment in football`\
 https://nytimes.com/athletic/6875042/2025/12/11/hull-wrexham-parkinson/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6878202/2025/12/11/the-alternative-premier-league-t
 **The demand for instant gratification in football is unrealistic and damaging. Patience is key**\
 `Clubs and managers are sensible to block out the noise from fans and social media — doing so allows them to think and act more rationally`\
 https://nytimes.com/athletic/6875667/2025/12/11/football-relentless-schedule-premier-league-champions-league/
-
-**Andrew Giuliani interview: Trump’s Peace Prize, travel bans and World Cup security**\
-`The World Cup task force's CEO speaks to The Athletic about Trump's domestic policy, moving World Cup games and immigration concerns.`\
-https://nytimes.com/athletic/6878981/2025/12/11/andrew-giuliani-fifa-world-cup/
-
-**Five FPL differentials to target during the hectic festive period**\
-`If you're looking to make gains over the busiest stretch of the season, look to these FPL hidden gems to help you gain in rank`\
-https://nytimes.com/athletic/6876649/2025/12/11/fantasy-premier-league-diferentials-bowen-jimenez/
 
