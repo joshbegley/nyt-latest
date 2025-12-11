@@ -1,3 +1,15 @@
+**What it means that Michigan fired Sherrone Moore 'for cause,' and the contract implications**\
+`By firing Moore for cause, Michigan will not owe Moore any of the money remaining on his five-year contract.`\
+https://nytimes.com/athletic/6882673/2025/12/11/michigan-sherrone-moore-contract-for-cause/
+
+**Until Saturday: Michigan suddenly starting over**\
+`Until Saturday is The Athletic's free college football newsletter.`\
+https://nytimes.com/athletic/6882713/2025/12/11/sherrone-moore-fired-michigan-until-saturday/
+
+**Will the Self-Driving Cars of the Future Lower Emissions?**\
+`Waymo is rapidly expanding in the U.S. But experts say there are big questions about how self-driving cars could affect traffic and greenhouse gas emissions.`\
+https://nytimes.com/2025/12/11/climate/self-driving-cars-emissions.html
+
 **Lecturer Sanctioned Over MAGA White Supremacy Lesson Is Back in Class**\
 `Some disciplinary measures have been imposed on the lecturer, including being monitored as she teaches a class on diversity and social justice.`\
 https://nytimes.com/2025/12/11/us/indiana-university-professor-sanctioned-maga-white-supremacy-lesson.html
@@ -21,16 +33,4 @@ https://nytimes.com/2025/12/11/technology/openai-google-ai-technology-gap.html
 **Olympic ski champion Michelle Gisin faces neck surgery after serious downhill accident**\
 `The two-time Olympic gold medalist's injury deals a major blow to Team Switzerland ahead of the Milano Cortina Games.`\
 https://nytimes.com/athletic/6882585/2025/12/11/michelle-gisin-olympics-downhill-accident-neck-surgery/
-
-**Turkey’s Largest City Is Threatened by a Lurking Seismic Catastrophe**\
-`Escalating activity along a fault line in the Sea of Marmara is moving closer to Istanbul, seismologists warn.`\
-https://nytimes.com/2025/12/11/science/turkey-earthquake-istanbul-fault-line.html
-
-**A Hot Plant’s Mysterious Signal Makes Beetles Pollinate It**\
-`Ancient plants called cycads say “come hither” in infrared.`\
-https://nytimes.com/2025/12/11/science/plants-heat-infrared-cycads-beetles.html
-
-**5 New Books We Love This Week**\
-`Reading recommendations from critics and editors at The New York Times.`\
-https://nytimes.com/2025/12/11/books/review/new-recommended-books.html
 
