@@ -1,3 +1,7 @@
+**Science Practice | A Study on Shackleton’s Endurance**\
+`What caused the Antarctic explorer’s ship to wreck? A new study contends it may not be what experts thought.`\
+https://nytimes.com/2025/12/11/learning/science-practice-a-study-on-shackletons-endurance.html
+
 **‘Pretty Strong Words’ Used on Ukraine Call With European Leaders, Trump Says**\
 `Diplomatic efforts have stalled as Britain, France and Germany try to push President Trump away from a proposal to end the conflict that would favor Russia.`\
 https://nytimes.com/2025/12/11/world/europe/trump-ukraine-european-leaders.html

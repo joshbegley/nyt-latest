@@ -1,36 +1,36 @@
-**Science Practice | A Study on Shackleton’s Endurance**\
-`What caused the Antarctic explorer’s ship to wreck? A new study contends it may not be what experts thought.`\
-https://nytimes.com/2025/12/11/learning/science-practice-a-study-on-shackletons-endurance.html
+**Trump Administration Live Updates: Noem to Face Questions From Lawmakers Amid Immigration Crackdown**\
+``\
+https://nytimes.com/live/2025/12/11/us/trump-news
 
-**‘Pretty Strong Words’ Used on Ukraine Call With European Leaders, Trump Says**\
-`Diplomatic efforts have stalled as Britain, France and Germany try to push President Trump away from a proposal to end the conflict that would favor Russia.`\
-https://nytimes.com/2025/12/11/world/europe/trump-ukraine-european-leaders.html
+**Rested and recovered, 49ers prepare for playoff push after 'blessing' of late-season bye**\
+`Christian McCaffrey said the best part of his bye was playing with his five-month-old daughter, Colette.`\
+https://nytimes.com/athletic/6880672/2025/12/11/49ers-playoff-push-bye/
 
-**Day 3 of the MLB Winter Meetings: the Polar Bear's move caps the week**\
-`A relatively quiet Winter Meetings wraps up with one major signing on Wednesday. `\
-https://nytimes.com/athletic/6881575/2025/12/11/mlb-winter-meetings-day-3-pete-alonso/
+**Why there's no need to bring back divisions as SEC moves to 9-game schedule**\
+`The conference is better off with one division, which has led to better matchups even if it means minor headaches.`\
+https://nytimes.com/athletic/6881455/2025/12/11/sec-football-schedule-2026-divisions/
 
-**Noem to Face Questions From House Panel Amid Immigration Crackdown**\
-`Kristi Noem, the homeland security secretary, has overseen President Trump’s immigration policy, including efforts to detain more immigrants and pause visa applications.`\
-https://nytimes.com/2025/12/11/us/politics/noem-house-hearing-immigration-crackdown.html
+**How F1 drivers avoid jet lag: Casino lights, performance coaches and making beds 'sacred'**\
+`F1 drivers are finding new ways to get ahead - by sleeping better`\
+https://nytimes.com/athletic/6878832/2025/12/11/how-f1-drivers-sleep/
 
-**Philip Rivers brings spark to a Colts season that looked to have been snuffed out**\
-`The Colts looked lifeless after their loss in Jacksonville, but Rivers' return seems to have reenergized the locker room. At least for now.`\
-https://nytimes.com/athletic/6881542/2025/12/11/colts-philip-rivers-spark-juice-seahawks/
+**Broncos, Bo Nix have boosted efficiency with smaller profits. Will it work vs. Packers?**\
+`The second-year QB was No. 2 in deep pass attempts through 10 weeks but has been making higher percentages passes recently.`\
+https://nytimes.com/athletic/6879558/2025/12/11/bo-nix-offense-game-manager-packers/
 
-**Llama drama: Keldon Johnson, Spurs are taking the NBA Cup very seriously**\
-`Johnson's early 3-point barrage helped the Spurs beat the Lakers and get to Las Vegas, where Victory Wembanyama might return.`\
-https://nytimes.com/athletic/6881273/2025/12/11/keldon-johnson-spurs-lakers-nba-cup/
+**Man City's unconvincing Madrid win will not give them more Champions League hope**\
+`Manchester City beat Real Madrid 2-1 on Wednesday night but they will not take positives from it into the competition's latter stages`\
+https://nytimes.com/athletic/6881345/2025/12/11/manchester-city-real-madrid-analysis/
 
-**My Favorite Performances of the Year**\
-`Wesley Morris, joined by his editor Sasha Weiss, unveils some highly specific acting awards for 2025.`\
-https://nytimes.com/video/podcasts/100000010574693/my-favorite-performances-of-the-year.html
+**An early look at the Twins’ possible targets with the No. 3 pick in the MLB draft**\
+`Roch Cholowsky will likely be off the board by the Twins' pick, but there are plenty of high-upside prospects in a strong 2026 draft class.`\
+https://nytimes.com/athletic/6878264/2025/12/11/minnesota-twins-2026-mlb-draft/
 
-**Sentencing of ex-Premier League referee Coote adjourned until January**\
-`In October, Coote pleaded guilty to creating a sexually explicit image of a 15-year-old.`\
-https://nytimes.com/athletic/6881428/2025/12/11/david-coote-sentence-adjourned/
+**Lakers defense, depth exposed in NBA Cup loss to the Spurs**\
+`The Lakers struggled to defend and didn't get much from their bench Wednesday night, both recurring themes this month.`\
+https://nytimes.com/athletic/6881243/2025/12/11/lakers-defense-depth-exposed-spurs-nba-cup/
 
-**This Week in Sports Trivia: December 11, 2025**\
-`How closely were you following the sports news this week? Find out and test your knowledge by taking The Athletic's weekly quiz.`\
-https://nytimes.com/athletic/6879023/2025/12/11/this-week-in-sports-trivia-december-11-2025/
+**'He knew it wasn’t over': Tony Jefferson's journey from scout to difference-maker**\
+`Two years after retiring and pondering a coaching or front-office career, Jefferson has doubled his career interception total this season.`\
+https://nytimes.com/athletic/6880561/2025/12/11/tony-jefferson-chargers-scout-unretirement/
 
