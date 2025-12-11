@@ -1,5 +1,9 @@
+**Quote of the Day: Global Impact Seen as Australia’s Ban on Social Media for Youth Takes Effect**\
+`Quotation of the Day for Thursday, December 11, 2025.`\
+https://nytimes.com/2025/12/10/pageoneplus/quote-of-the-day-global-impact-seen-as-australias-ban-on-social-media-for-youth-takes-effect.html
+
 **Sullen Joe Burrow talks injuries and trying to find fun in frustrating Bengals season**\
-`The quarterback was reflective in Wednesday's session with the media following Sunday's loss amid a tumultuous season.`\
+`The quarterback was reflective in Wednesday's session with the media after Sunday's loss amid a tumultuous season.`\
 https://nytimes.com/athletic/6880903/2025/12/10/joe-burrow-bengals-injuries-finding-fun/
 
 **USA defeats Canada to win 2025 Rivalry Series**\
@@ -25,8 +29,4 @@ https://nytimes.com/athletic/6880036/2025/12/10/nba-cup-takeaways-thunder-blowou
 **Some Horse Breeds Are Near Extinction. These People Are Trying to Save Them.**\
 `The American Cream Draft is almost gone, as is the ancient Caspian. But it’s too late for the Narragansett Pacer, once owned by George Washington.`\
 https://nytimes.com/2025/12/10/sports/rare-horse-breeds-preservation.html
-
-**In the Sport of Driving, Four Horses Pull a Cart Around an Arena. Quickly.**\
-`The spectacle is reminiscent of the movie “Ben Hur,” with high-speed action and roaring crowds. Teamwork is crucial.`\
-https://nytimes.com/2025/12/10/sports/horse-racing/chi-geneva-horses-driving.html
 

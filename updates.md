@@ -1,3 +1,11 @@
+**Quote of the Day: Global Impact Seen as Australia’s Ban on Social Media for Youth Takes Effect**\
+`Quotation of the Day for Thursday, December 11, 2025.`\
+https://nytimes.com/2025/12/10/pageoneplus/quote-of-the-day-global-impact-seen-as-australias-ban-on-social-media-for-youth-takes-effect.html
+
+**Sullen Joe Burrow talks injuries and trying to find fun in frustrating Bengals season**\
+`The quarterback was reflective in Wednesday's session with the media after Sunday's loss amid a tumultuous season.`\
+https://nytimes.com/athletic/6880903/2025/12/10/joe-burrow-bengals-injuries-finding-fun/
+
 **Sullen Joe Burrow talks injuries and trying to find fun in frustrating Bengals season**\
 `The quarterback was reflective in Wednesday's session with the media following Sunday's loss amid a tumultuous season.`\
 https://nytimes.com/athletic/6880903/2025/12/10/joe-burrow-bengals-injuries-finding-fun/
