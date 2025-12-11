@@ -1,3 +1,19 @@
+**What happens when an NFL ball goes into the stands? In this case, a lawsuit**\
+`While some teams require fans to return game balls that enter the stands, the NFL says it has no such formal league-wide policy. `\
+https://nytimes.com/athletic/6858943/2025/12/11/nfl-football-stands-lawsuit-jalen-hurts-eagles-giants/
+
+**How do players and coaches feel about the NBA Cup in Year 3? We asked**\
+`"There's a little added juice to it knowing what's at stake. If you win, you move on and try to win something," one player said.`\
+https://nytimes.com/athletic/6878535/2025/12/11/nba-cup-las-vegas-reaction/
+
+**NFL execs react to Colts signing Philip Rivers: 'Fun story. But it's going to be a disaster'**\
+`“Looking at their schedule, it’s not going to work. They have a tough road with really good defenses. Philip is a sitting duck."`\
+https://nytimes.com/athletic/6879121/2025/12/11/colts-philip-rivers-nfl-return-disaster/
+
+**The New York Times International Edition in Print for Friday, Dec. 12, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/12/11/todays-new-york-times-international-edition
+
 **Searching for Beauty in the Bloodshed of Bullfighting**\
 `Albert Serra’s documentary “Afternoons of Solitude” seeks something transcendent in a tradition that many people, in Spain and elsewhere, find barbaric.`\
 https://nytimes.com/2025/12/11/movies/afternoons-of-solitude-albert-serra.html
@@ -17,20 +33,4 @@ https://nytimes.com/2025/12/11/learning/should-we-dress-up-more-when-we-travel.h
 **What might the Patriots target in the NFL Draft? A way-too-early look**\
 `Much like last offseason, New England is likely to be looking for help at edge rusher, on the offensive line and at wide receiver.`\
 https://nytimes.com/athletic/6879480/2025/12/11/2026-nfl-draft-patriots-targets/
-
-**Searching Brooklyn and the Bronx With a $600,000 Ceiling. Here’s What They Found.**\
-`Fed up with rent increases, a former dancer wasn’t sure if he could afford a two-bedroom apartment. His partner and a dedicated broker helped him find the way.`\
-https://nytimes.com/interactive/2025/12/11/realestate/brooklyn-bronx-apartment-sale.html
-
-**Trump Doesn’t Want to Talk About Affordability. Democrats Say That’s a Gift.**\
-`The president continues to brush off an issue that he said he would solve in his first months in office. Some Democrats say he is making the same mistake as his predecessor.`\
-https://nytimes.com/2025/12/11/us/politics/trump-affordability-democrats.html
-
-**With Republicans Divided, Indiana Senate Set to Vote on Redistricting**\
-`President Trump wants a new congressional map in Indiana that would boost Republicans, but he has struggled to win over some state lawmakers in his party.`\
-https://nytimes.com/2025/12/11/us/indiana-senate-redistricting-republicans.html
-
-**My Favorite Performances of the Year**\
-`Actors took big swings in 2025. Here are some of the best.`\
-https://nytimes.com/2025/12/11/podcasts/cannonball-great-performers.html
 
