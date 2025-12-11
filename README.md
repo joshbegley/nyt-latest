@@ -1,3 +1,7 @@
+**Trump Panel Abruptly Postpones Release of FEMA Overhaul Recommendations**\
+`The group’s report had been expected to provide a road map for change after months of upheaval at the agency.`\
+https://nytimes.com/2025/12/11/climate/trump-fema.html
+
 **Oil Tanker Seizure Hits Venezuela’s Lifeblood. Here’s What to Know.**\
 `Seizures of more tankers could put a stranglehold on Venezuela’s economy, which is exceptionally dependent on oil to keep the government running and pay for basic necessities.`\
 https://nytimes.com/2025/12/11/world/americas/oil-tanker-venezuela-economy-chevron.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6882838/2025/12/11/panthers-vs-avalanche-stream-how
 **How to watch Trail Blazers vs. Pelicans: Time, TV, streaming**\
 `Find out how to watch the Portland Trail Blazers play the New Orleans Pelicans, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6882836/2025/12/11/trail-blazers-vs-pelicans-stream-how-to-watch-dec-11/
-
-**How to watch Bruins vs. Jets: Time, TV, streaming**\
-`Find out how to watch the Boston Bruins play the Winnipeg Jets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6882835/2025/12/11/bruins-vs-jets-stream-how-to-watch-dec-11/
 
