@@ -1,3 +1,7 @@
+**Anti-Corruption Protests Topple Bulgarian Government**\
+`Bulgaria’s prime minister resigned after less than a year in office amid mass protests against his government in recent weeks.`\
+https://nytimes.com/video/world/europe/100000010580690/anti-corruption-protests-topple-bulgarian-government.html
+
 **Grand Slam Track files for bankruptcy, vendors face huge losses**\
 `Michael Johnson's new-look competition still owes some vendors over $1 million while only having $0-$50,000 in assets.`\
 https://nytimes.com/athletic/6882206/2025/12/11/grand-slam-track-bankruptcy-johnson/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6882234/2025/12/11/hurricanes-vs-capitals-stream-ho
 **How to watch Sharks vs. Maple Leafs: Time, TV, streaming**\
 `Find out how to watch the San Jose Sharks play the Toronto Maple Leafs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6882232/2025/12/11/sharks-vs-maple-leafs-stream-how-to-watch-dec-11/
-
-**How to watch Canadiens vs. Penguins: Time, TV, streaming**\
-`Find out how to watch the Montreal Canadiens play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6882231/2025/12/11/canadiens-vs-penguins-stream-how-to-watch-dec-11/
 
