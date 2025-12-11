@@ -1,3 +1,11 @@
+**ICE Tells Watchdog It Has No Videos to Release of Chicago Operations**\
+`The response to an information request contradicted the administration’s public testimony and raised concerns that it may be trying to evade oversight.`\
+https://nytimes.com/2025/12/10/us/politics/ice-bodycam-video-chicago.html
+
+**Warriors' Steph Curry returns to practice after 5 game absence**\
+`In 16 games played this season, Curry is averaging 27.9 points, 3.7 rebounds and 4.0 assists per game.`\
+https://nytimes.com/athletic/6880712/2025/12/10/steph-curry-returns-practice-warriors/
+
 **A lot of talk, little action at Winter Meetings: What we’re hearing about the Cubs**\
 `Cubs president of baseball operations Jed Hoyer left winter meetings without making a big move.`\
 https://nytimes.com/athletic/6880509/2025/12/10/what-were-hearing-cubs-winter-meetings/
@@ -25,12 +33,4 @@ https://nytimes.com/video/opinion/100000010574435/gavin-newsom-on-californias-or
 **Gavin Newsom Is Embracing Contradiction**\
 `Gov. Gavin Newsom has resisted the Trump administration with his push to redistrict California, while also inviting major right-wing figures like Steve Bannon and Charlie Kirk on his podcast. In a recent conversation on “The Ezra Klein Show,” he explains why he’s willing to take these risks.`\
 https://nytimes.com/video/opinion/100000010559552/gavin-newsom-is-embracing-contradiction.html
-
-**A.J. Preller says Fernando Tatis Jr. is untouchable, even with Padres' aims unclear**\
-`Despite all the Padres’ private and public messaging, Preller said other teams have not stopped asking about Tatis.`\
-https://nytimes.com/athletic/6880374/2025/12/10/aj-preller-fernando-tatis-untouchable-padres-goals/
-
-**Audi Crooks is scoring at an elite clip — what are other stunning feats?**\
-`Crooks leads the country in total points (276) and points per game (27.6).`\
-https://nytimes.com/athletic/6877569/2025/12/10/audi-crooks-unprecedented-scoring-pace-and-other-jaw-dropping-college-basketball-feats/
 
