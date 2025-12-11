@@ -1,3 +1,7 @@
+**Michigan interim coach Biff Poggi: 'The most interesting man in coaching'**\
+`Biff Poggi was an advisor for Jim Harbaugh before working under Sherrone Moore. One colleague said of Poggi: "His heart is all in it."`\
+https://nytimes.com/athletic/6880279/2025/12/10/michigan-biff-poggi-interim-head-coach/
+
 **Man Admits to Strangling Pregnant Woman in 1996, Settling Cold Case**\
 `Gregory Fleetwood, 69, pleaded guilty to manslaughter on Wednesday in the killing of 36-year-old Jasmine Porter. He is expected to be sentenced to 12 years in prison.`\
 https://nytimes.com/2025/12/10/nyregion/bronx-cold-case-strangling-plea.html
