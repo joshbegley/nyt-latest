@@ -1,3 +1,15 @@
+**100,000 Ordered to Evacuate as Rivers Rise in Washington State**\
+`Days of heavy rain pushed waterways to record flood levels in a mountainous region north of Seattle. “Do not wait,” local officials warned residents as they urged them to seek higher ground.`\
+https://nytimes.com/2025/12/11/weather/washington-flooding-rain-atmospheric-river.html
+
+**Steelers' T.J. Watt being evaluated after experiencing lung discomfort**\
+`The star edge rusher's status for Monday’s game against the Miami Dolphins is in question.`\
+https://nytimes.com/athletic/6882458/2025/12/11/tj-watt-hospitalized-lung-questionable-mnf/
+
+**Braves add reliever Robert Suarez to bullpen as setup man, backup closer**\
+`Suarez has a unique path as a hard-throwing late bloomer, and he leveraged that into a three-year deal.`\
+https://nytimes.com/athletic/6802236/2025/12/11/mlb-robert-suarez-free-agency-signing-braves/
+
 **Steelers' T.J. Watt being evaluated after experiencing lung discomfort**\
 `Watt's status for Monday’s game against the Miami Dolphins is in question.`\
 https://nytimes.com/athletic/6882458/2025/12/11/tj-watt-hospitalized-lung-questionable-mnf/

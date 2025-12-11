@@ -1,9 +1,13 @@
+**100,000 Ordered to Evacuate as Rivers Rise in Washington State**\
+`Days of heavy rain pushed waterways to record flood levels in a mountainous region north of Seattle. “Do not wait,” local officials warned residents as they urged them to seek higher ground.`\
+https://nytimes.com/2025/12/11/weather/washington-flooding-rain-atmospheric-river.html
+
 **Steelers' T.J. Watt being evaluated after experiencing lung discomfort**\
-`Watt's status for Monday’s game against the Miami Dolphins is in question.`\
+`The star edge rusher's status for Monday’s game against the Miami Dolphins is in question.`\
 https://nytimes.com/athletic/6882458/2025/12/11/tj-watt-hospitalized-lung-questionable-mnf/
 
 **Braves add reliever Robert Suarez to bullpen as setup man, backup closer**\
-`Suarez has a unique path as a hard-throwing late bloomer, and he leveraged that into a three-year deal`\
+`Suarez has a unique path as a hard-throwing late bloomer, and he leveraged that into a three-year deal.`\
 https://nytimes.com/athletic/6802236/2025/12/11/mlb-robert-suarez-free-agency-signing-braves/
 
 **Ex-San Francisco basketball player violated NCAA gambling rules: Report**\
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6882187/2025/12/11/michigan-timeline-coaching-scand
 **Travis Kelce on Chiefs’ struggles: 'This is a tough reality'**\
 `Kelce voiced his growing frustration after the Chiefs’ latest loss, admitting this season’s struggles.`\
 https://nytimes.com/athletic/6882070/2025/12/11/travis-kelce-chiefs-playoffs-new-heights/
-
-**The Artists Reviving the Legacy of Air Afrique**\
-`Plus: a new Manhattan bathhouse, textiles woven from pineapple leaves and more recommendations from T Magazine.`\
-https://nytimes.com/2025/12/11/t-magazine/moma-art-air-afrique.html
 
