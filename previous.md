@@ -1,3 +1,7 @@
+**Senate Expected to Deadlock Over Health Care in Dueling Votes**\
+`Neither Democrats’ plan to extend expiring Affordable Care Act subsidies nor Republicans’ proposal to replace them with direct payments for those who buy basic insurance was expected to advance.`\
+https://nytimes.com/2025/12/11/us/politics/health-care-senate-affordable-care-act.html
+
 **Wake Up and Smell the Coffee Machines**\
 `Americans are drinking more coffee at home too, according to an industry report.`\
 https://nytimes.com/2025/12/11/realestate/buying-coffee-machines.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/11/arts/bristol-museum-robbery.html
 **Five candidates to watch in Michigan's coaching search**\
 `Many coaching candidates you’d think the Wolverines might consider are off the market at this point in December. Who might they pursue?`\
 https://nytimes.com/athletic/6880472/2025/12/11/michigan-coaching-candidates-kalen-deboer-jedd-fisch/
-
-**Inside Real Madrid: Is Xabi Alonso still facing the sack?**\
-`The 44-year-old manager is under real pressure at the Santiago Bernabeu, following a terrible run of form`\
-https://nytimes.com/athletic/6881259/2025/12/11/real-madrid-alonso-sack-news-analysis/
 

@@ -1,3 +1,7 @@
+**Senate Expected to Deadlock Over Health Care in Dueling Votes**\
+`Neither Democrats’ plan to extend expiring Affordable Care Act subsidies nor Republicans’ proposal to replace them with direct payments for those who buy basic insurance was expected to advance.`\
+https://nytimes.com/2025/12/11/us/politics/health-care-senate-affordable-care-act.html
+
 **Wake Up and Smell the Coffee Machines**\
 `Americans are drinking more coffee at home too, according to an industry report.`\
 https://nytimes.com/2025/12/11/realestate/buying-coffee-machines.html
