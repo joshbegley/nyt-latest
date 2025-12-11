@@ -1,3 +1,11 @@
+**Lecturer Sanctioned Over MAGA White Supremacy Lesson Is Back in Class**\
+`Some disciplinary measures have been imposed on the lecturer, including being monitored as she teaches a class on diversity and social justice.`\
+https://nytimes.com/2025/12/11/us/indiana-university-professor-sanctioned-maga-white-supremacy-lesson.html
+
+**Olympic ski champion Michelle Gisin faces neck surgery after serious downhill accident**\
+`The two-time Olympic gold medalist's injury deals a major blow to Team Switzerland ahead of the Milano Cortina Games.`\
+https://nytimes.com/athletic/6882585/2025/12/11/michelle-gisin-olympics-downhill-accident-neck-surgery/
+
 **Hollywood Director Is Convicted in $11 Million Scheme to Defraud Netflix**\
 `Carl Erik Rinsch secured funding from the streaming company for a science-fiction series, “Conquest,” that was never completed.`\
 https://nytimes.com/2025/12/11/business/media/carl-erik-rinsch-netflix-fraud.html
