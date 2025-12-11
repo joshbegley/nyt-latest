@@ -1,3 +1,11 @@
+**Betting for (by) dummies: Loving the totals in Browns-Bears, Army-Navy**\
+`Jon Greenberg and Zac Jackson make their weekly NCAA and NFL picks. This week, they had some fun with totals and futures bets.`\
+https://nytimes.com/athletic/6882690/2025/12/11/best-bets-browns-bears-army-navy-indiana/
+
+**How soaring World Cup ticket prices compare to Super Bowl, other major events**\
+`The 2026 World Cup final could be the single most lucrative match in soccer history.`\
+https://nytimes.com/athletic/6683842/2025/12/11/world-cup-ticket-prices-usmnt-super-bowl/
+
 **NFL best bets Week 15: A Patriots-Bills pick and 4 over-unders**\
 `Austin Mock had his first losing week in quite some time, and is aiming to get back in the green with five bets.`\
 https://nytimes.com/athletic/6882833/2025/12/11/nfl-best-bets-week-15-patriots-bills/
