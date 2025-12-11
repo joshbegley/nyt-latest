@@ -1,3 +1,7 @@
+**Bulgaria’s Prime Minister Resigns in the Face of Mass Protests**\
+`Prime Minister Rosen Zhelyazkov announced he was stepping down, becoming the latest leader to leave in the past four years, amid public anger over corruption and democratic dysfunction.`\
+https://nytimes.com/2025/12/11/world/europe/bulgaria-prime-minister-resigns-protests.html
+
 **Senate Expected to Deadlock Over Health Care in Dueling Votes**\
 `Neither Democrats’ plan to extend expiring Affordable Care Act subsidies nor Republicans’ proposal to replace them with direct payments for those who buy basic insurance was expected to advance.`\
 https://nytimes.com/2025/12/11/us/politics/health-care-senate-affordable-care-act.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/11/health/eli-lilly-retatrutide-weight-loss-drug.htm
 **U.K. Police Seek Suspects in Theft of Over 600 Artifacts From Museum**\
 `The items were stolen in a “high-value burglary” from the Bristol Museum’s British Empire and Commonwealth collection, the police said.`\
 https://nytimes.com/2025/12/11/arts/bristol-museum-robbery.html
-
-**Five candidates to watch in Michigan's coaching search**\
-`Many coaching candidates you’d think the Wolverines might consider are off the market at this point in December. Who might they pursue?`\
-https://nytimes.com/athletic/6880472/2025/12/11/michigan-coaching-candidates-kalen-deboer-jedd-fisch/
 
