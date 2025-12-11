@@ -1,3 +1,31 @@
+**For Warriors, turnover issues are nothing new. So why are they so damaging this year?**\
+`The Warriors have won NBA titles while being among the most turnover-happy teams in the league. But this year, it's sinking them.`\
+https://nytimes.com/athletic/6881099/2025/12/11/golden-state-warriors-turnover-problems-stephen-curry-jimmy-butler/
+
+**French tennis player suspended for 20 years over anti-corruption breaches**\
+`Quention Folliot was charged with 30 offenses and sanctioned for 27.`\
+https://nytimes.com/athletic/6881919/2025/12/11/tennis-match-fixing-corruption-quentin-folliot-ban/
+
+**How to watch Hurricanes vs. Capitals: Time, TV, streaming**\
+`Find out how to watch the Carolina Hurricanes play the Washington Capitals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6882234/2025/12/11/hurricanes-vs-capitals-stream-how-to-watch-dec-11/
+
+**How to watch Sharks vs. Maple Leafs: Time, TV, streaming**\
+`Find out how to watch the San Jose Sharks play the Toronto Maple Leafs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6882232/2025/12/11/sharks-vs-maple-leafs-stream-how-to-watch-dec-11/
+
+**How to watch Canadiens vs. Penguins: Time, TV, streaming**\
+`Find out how to watch the Montreal Canadiens play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6882231/2025/12/11/canadiens-vs-penguins-stream-how-to-watch-dec-11/
+
+**How to watch Lightning vs. Devils: Time, TV, streaming**\
+`Find out how to watch the Tampa Bay Lightning play the New Jersey Devils, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6882227/2025/12/11/lightning-vs-devils-stream-how-to-watch-dec-11/
+
+**How to watch Golden Knights vs. Flyers: Time, TV, streaming**\
+`Find out how to watch the Vegas Golden Knights play the Philadelphia Flyers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6882225/2025/12/11/golden-knights-vs-flyers-stream-how-to-watch-dec-11/
+
 **How to watch Ducks vs. Islanders: Time, TV, streaming**\
 `Find out how to watch the Anaheim Ducks play the New York Islanders, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6882223/2025/12/11/ducks-vs-islanders-stream-how-to-watch-dec-11/
@@ -5,32 +33,4 @@ https://nytimes.com/athletic/6882223/2025/12/11/ducks-vs-islanders-stream-how-to
 **How to watch Senators vs. Blue Jackets: Time, TV, streaming**\
 `Find out how to watch the Ottawa Senators play the Columbus Blue Jackets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6882221/2025/12/11/senators-vs-blue-jackets-stream-how-to-watch-dec-11/
-
-**Killer Whales Find an ‘Unlikely Friend’ in Dolphins**\
-`Off the coast of British Columbia, dolphins lead killer whales to salmon and earn their share of lunch, a new study reveals.`\
-https://nytimes.com/2025/12/11/science/orcas-dolphins-fish.html
-
-**What One Airline’s Meltdown Reveals About India’s Economy**\
-`A tangle of problems at IndiGo, the dominant carrier, resulted in gridlocked airports across the country. Worse, it was the symptom of an even bigger problem.`\
-https://nytimes.com/2025/12/11/business/india-indigo-competition-antitrust.html
-
-**Why the Hornets' Kon Knueppel is still the leader of a strong NBA rookie class**\
-`Zach Harper ranks the top 10 rookies in the NBA so far. Cooper Flagg and Dylan Harper could soon move up. `\
-https://nytimes.com/athletic/6882108/2025/12/11/kon-knueppel-nba-rookies-cooper-flagg-dylan-harper/
-
-**Champions League projections: Arsenal are flying as Real Madrid's chances take a hit**\
-`Our Opta-powered projections have Mikel Arteta's team, Bayern Munich and Paris Saint-Germain as the three favourites to win the competition`\
-https://nytimes.com/athletic/6881443/2025/12/11/champions-league-projections-md-6/
-
-**How to watch Morehead State vs. Notre Dame women's basketball: Time, TV, streaming**\
-`Find out how to watch the Morehead State Eagles play the Notre Dame Fighting Irish, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6882172/2025/12/11/morehead-state-vs-notre-dame-stream-how-to-watch-dec-11/
-
-**How to watch Little Rock vs. Oklahoma women's basketball: Time, TV, streaming**\
-`Find out how to watch the Little Rock Trojans play the Oklahoma Sooners, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6882168/2025/12/11/little-rock-vs-oklahoma-stream-how-to-watch-dec-11/
-
-**How to watch Northern Kentucky vs. Ohio State women's basketball: Time, TV, streaming**\
-`Find out how to watch the Northern Kentucky Norse play the Ohio State Buckeyes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6882170/2025/12/11/northern-kentucky-vs-ohio-state-stream-how-to-watch-dec-11/
 
