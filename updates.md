@@ -1,3 +1,15 @@
+**Why so many American and British fans follow 'unfashionable' German clubs**\
+`For the thousands of American and British “forces kids” raised in post-war Germany, watching football was a way of feeling at home`\
+https://nytimes.com/athletic/6878470/2025/12/11/us-uk-army-bundesliga-german-fans/
+
+**Maresca, the Chelsea lessons he still needs to 'learn' and the ones he is succeeding on**\
+`Chelsea have not won in their last four matches, and while Maresca has learned lessons, there are others he can take from tough run`\
+https://nytimes.com/athletic/6878482/2025/12/11/enzo-maresca-chelsea-lessons/
+
+**Blackhawks deliver complete game in shutout win over Rangers**\
+`The Blackhawks shut out the Rangers with star turns by star players to get back on track after a series of blowout losses.`\
+https://nytimes.com/athletic/6880716/2025/12/11/blackhawks-crevier-shutout-rangers/
+
 **A Former King Seeks an Exit From Exile but Finds No Royal Treatment**\
 `King Juan Carlos I of Spain abdicated and left for exile years ago. Now, his attempted comeback is giving his family a royal headache.`\
 https://nytimes.com/2025/12/11/world/europe/juan-carlos-king-spain-book.html
