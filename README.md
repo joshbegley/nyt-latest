@@ -1,3 +1,7 @@
+**Steelers' T.J. Watt being evaluated after experiencing lung discomfort**\
+`Watt's status for Monday’s game against the Miami Dolphins is in question.`\
+https://nytimes.com/athletic/6882458/2025/12/11/tj-watt-hospitalized-lung-questionable-mnf/
+
 **Braves add reliever Robert Suarez to bullpen as setup man, backup closer**\
 `Suarez has a unique path as a hard-throwing late bloomer, and he leveraged that into a three-year deal`\
 https://nytimes.com/athletic/6802236/2025/12/11/mlb-robert-suarez-free-agency-signing-braves/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6882070/2025/12/11/travis-kelce-chiefs-playoffs-new
 **The Artists Reviving the Legacy of Air Afrique**\
 `Plus: a new Manhattan bathhouse, textiles woven from pineapple leaves and more recommendations from T Magazine.`\
 https://nytimes.com/2025/12/11/t-magazine/moma-art-air-afrique.html
-
-**The Quiet Luxury Engagement Ring of the Moment**\
-`Bezel settings, like the one featured in Taylor Swift’s engagement ring, “feel elegant and intentional,” one designer said. “There’s no noise.”`\
-https://nytimes.com/2025/12/11/style/bezel-set-engagement-rings.html
 

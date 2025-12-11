@@ -1,3 +1,7 @@
+**Braves add reliever Robert Suarez to bullpen as setup man, backup closer**\
+`Suarez has a unique path as a hard-throwing late bloomer, and he leveraged that into a three-year deal`\
+https://nytimes.com/athletic/6802236/2025/12/11/mlb-robert-suarez-free-agency-signing-braves/
+
 **Ex-San Francisco basketball player violated NCAA gambling rules: Report**\
 `The NCAA said that Williams “agreed to his violations” in a negotiated resolution.`\
 https://nytimes.com/athletic/6881640/2025/12/11/ncaa-san-francisco-marcus-williams-gambling-violations/
