@@ -1,3 +1,7 @@
+**Mike Lindell, MyPillow Founder, Announces Run for Minnesota Governor**\
+`He is a close ally of President Trump and has been a leading proponent of the election denial movement, which falsely claims that voting machines are often rigged.`\
+https://nytimes.com/2025/12/11/us/politics/mypillow-mike-lindell-minnesota-governor-election.html
+
 **For Warriors, turnover issues are nothing new. So why are they so damaging this year?**\
 `The Warriors have won NBA titles while being among the most turnover-happy teams in the league. But this year, it's sinking them.`\
 https://nytimes.com/athletic/6881099/2025/12/11/golden-state-warriors-turnover-problems-stephen-curry-jimmy-butler/
