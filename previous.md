@@ -1,3 +1,19 @@
+**Fantasy trends and hidden gems: Rickard Rakell, Dennis Hildeby among top 11 targets for Week 11**\
+`With a very busy Week 11 NHL slate on tap, Shayna Goldman points out the widely-available players to target on the waiver wire.`\
+https://nytimes.com/athletic/6880222/2025/12/11/fantasy-hockey-trends-hidden-gems-sleepers-pickups-week-11/
+
+**Lakers' defensive issues exposed again in NBA Cup loss. Is any help on the way?**\
+`Everybody knows that LA lacks a point-of-attack defender. But unless the trade market opens up, they might have trouble finding one.`\
+https://nytimes.com/athletic/6881281/2025/12/11/lakers-defense-trades-nba-cup-loss/
+
+**The Windup: The Mets have a big mess to clean up**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6881990/2025/12/11/mets-alonso-diaz-schwarber-the-windup/
+
+**The Rams' offense is as balanced as ever thanks for a 13-personnel revolution**\
+`The Rams have leaned into their personnel-diverse ways to keep their best players fresh and at peak form this season.`\
+https://nytimes.com/athletic/6881140/2025/12/11/rams-offensive-balance-13-personnel/
+
 **Is Ice Spice Back on the Rise?**\
 `Jon Caramanica, pop music critic at The New York Times, looks at how Ice Spice’s new single, “Thootie,” taps into her minimalist swagger and why this Dembow-driven collab with Tokischa might mark a real reset.`\
 https://nytimes.com/video/podcasts/100000010576115/is-ice-spice-back-on-the-rise.html
@@ -17,20 +33,4 @@ https://nytimes.com/2025/12/11/business/media/disney-openai-sora-deal.html
 **NFL Draft 2026 underclassman tracker: Which college football stars have declared early?**\
 `We're tracking all non-seniors who have publicly acknowledged their intention to declare for the 2026 NFL Draft.`\
 https://nytimes.com/athletic/6878979/2025/12/11/nfl-draft-2026-college-football-underclassman-tracker/
-
-**NASCAR reaches settlement with 23XI, Front Row to end year-long legal saga**\
-`NASCAR on Thursday reached a deal with 23XI Racing and Front Row Motorsports to end the ongoing litigation. Terms were not yet known.`\
-https://nytimes.com/athletic/6881791/2025/12/11/nascar-settlement-23xi-michael-jordan-trial-lawsuit/
-
-**MLB winter meetings still hold value in texting era but may not return in 2026**\
-`The winter meetings are MLB's annual showcase event. But labor issues may mean it does not return next winter. `\
-https://nytimes.com/athletic/6880754/2025/12/11/mlb-winter-meetings-2026-canceled/
-
-**Jayden Daniels hasn't been what he was as a rookie. But there's more to the story**\
-`Last season, the Commanders had a savior. This season, Jayden Daniels has appeared more ordinary. What has changed?`\
-https://nytimes.com/athletic/6881626/2025/12/11/jayden-daniels-regression-injuries-commanders/
-
-**Watch out, Warriors. The Thunder are threatening the NBA's regular-season wins record**\
-`The best NBA regular season ever is brewing in Oklahoma City, but can they actually break the record?`\
-https://nytimes.com/athletic/6879789/2025/12/11/okc-thunder-nba-history-win-record/
 

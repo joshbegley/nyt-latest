@@ -1,3 +1,7 @@
+**The Bounce: We'll have a first-time NBA Cup champion. Plus, rookie rankings!**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/6881953/2025/12/11/nba-cup-rookie-rankings-thunder-the-bounce/
+
 **Fantasy trends and hidden gems: Rickard Rakell, Dennis Hildeby among top 11 targets for Week 11**\
 `With a very busy Week 11 NHL slate on tap, Shayna Goldman points out the widely-available players to target on the waiver wire.`\
 https://nytimes.com/athletic/6880222/2025/12/11/fantasy-hockey-trends-hidden-gems-sleepers-pickups-week-11/
@@ -29,8 +33,4 @@ https://nytimes.com/video/weather/100000010580655/washington-northwest-pacific-w
 **Disney Agrees to Bring Its Characters to OpenAI’s Sora Videos**\
 `The deal is a watershed for Hollywood, which has been trying to sort through the possible harms and upsides of generative artificial intelligence.`\
 https://nytimes.com/2025/12/11/business/media/disney-openai-sora-deal.html
-
-**NFL Draft 2026 underclassman tracker: Which college football stars have declared early?**\
-`We're tracking all non-seniors who have publicly acknowledged their intention to declare for the 2026 NFL Draft.`\
-https://nytimes.com/athletic/6878979/2025/12/11/nfl-draft-2026-college-football-underclassman-tracker/
 
