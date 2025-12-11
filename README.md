@@ -1,3 +1,7 @@
+**Could Philip Rivers go from Bo Nix's and Drake Maye's draft mentor to their playoff foe?**\
+`"Kind of like everybody else, I'm eager to see what comes of it," Nix said of Rivers making his return to the NFL.`\
+https://nytimes.com/athletic/6880369/2025/12/11/philip-rivers-bo-nix-drake-maye/
+
 **The Pulse: A shocking day in Ann Arbor**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6878539/2025/12/11/michigan-sherrone-moore-fired-the-pulse/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6879286/2025/12/11/falcons-buccaneers-tnf-playoff-r
 **Cowboys still aiming for playoffs, but can season be a success without getting there?**\
 `In Brian Schottenheimer's first season, the Cowboys have shown progress and their final four games will determine a lot.`\
 https://nytimes.com/athletic/6880521/2025/12/11/cowboys-playoff-berth-season-success/
-
-**Jared Goff carrying bigger load and takes center stage as Lions make playoff push**\
-`Over the last four seasons, the Lions rank fourth in December winning percentage at .714. Jared Goff has played a key role in that.`\
-https://nytimes.com/athletic/6879847/2025/12/11/lions-jared-goff-playoffs-rams-matchup/
 
