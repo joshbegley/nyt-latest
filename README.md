@@ -1,3 +1,7 @@
+**One of the Last Times Square Dive Bars Faces Eviction**\
+`New York is a city of hustlers, of odds makers and shot takers. For 54 years, Jimmy’s Corner has been their bar.`\
+https://nytimes.com/2025/12/10/nyregion/jimmys-corner-bar-times-square-boxing.html
+
 **Gavin Newsom: ‘We Failed on the Border’**\
 `Gov. Gavin Newsom has pushed California to offer health insurance to undocumented immigrants. He also thinks the Democratic Party has failed on border policy in recent years. On a recent episode of “The Ezra Klein Show,” he explains why.`\
 https://nytimes.com/video/opinion/100000010559561/gavin-newsom-we-failed-on-the-border.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6880271/2025/12/10/yankees-cody-bellinger-roster-op
 **A Mysterious Fire, a Helpful Neighbor and a Murder Charge**\
 `Virginia Cranwell, 82, died in a fire in her New Jersey home this summer. Her neighbor, who claimed he tried to save her, now faces murder and arson charges.`\
 https://nytimes.com/2025/12/10/nyregion/new-jersey-fire-death.html
-
-**Oil Tanker U.S. Seized Has Faked Its Location Before, Data Shows**\
-`The ship has frequently carried oil from countries under U.S. sanctions, and its tracking data shows multiple recent trips to Iran and Venezuela.`\
-https://nytimes.com/2025/12/10/us/politics/oil-tanker-venezuela-tracking-data.html
 
