@@ -1,3 +1,15 @@
+**This Isn’t the First Time the Fed Has Struggled for Independence**\
+`The Trump administration is threatening the Fed’s autonomy, which the central bank regained with the Treasury-Fed accord in 1951.`\
+https://nytimes.com/2025/12/11/business/federal-reserve-independence-trump.html
+
+**New Jersey Devils' Timo Meier takes leave to deal with family matter**\
+`Meier has scored 11 goals and 23 points in 30 games this season. He is their leading goal scorer and third on the team in points.`\
+https://nytimes.com/athletic/6881855/2025/12/11/timo-meier-new-jersey-devils-leave/
+
+**Nike launches NIL collective with LSU athletes**\
+`The renowned footwear and apparel company announced Thursday that a new approach to partnering with college athletes is underway.`\
+https://nytimes.com/athletic/6879438/2025/12/11/nike-lsu-nil-collective-partnership/
+
 **Bulgaria’s Prime Minister Resigns in the Face of Mass Protests**\
 `Prime Minister Rosen Zhelyazkov announced he was stepping down, becoming the latest leader to leave in the past four years, amid public anger over corruption and democratic dysfunction.`\
 https://nytimes.com/2025/12/11/world/europe/bulgaria-prime-minister-resigns-protests.html
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/6880535/2025/12/11/key-fantasy-football-playoff-que
 **Tariffs Shrank Trade Deficit in September, New Data Show**\
 `U.S. imports and exports ticked up from lows the previous month when the president’s global tariffs went into effect, while the trade deficit continued to fall`\
 https://nytimes.com/2025/12/11/business/economy/trump-tariffs-trade-deficit.html
-
-**Why Oracle Is Worrying Investors About the A.I. Boom**\
-`Shares in the technology company are down as investors grow anxious that its bet on artificial intelligence, and OpenAI in particular, may not pay off.`\
-https://nytimes.com/2025/12/11/business/dealbook/ai-spending-oracle-openai.html
-
-**Major Weight Loss and Knee-Pain Relief Seen With New Eli Lilly Drug**\
-`The maker of Zepbound reported results from a study of retatrutide, which targets three hormones in the body and led to much more weight loss than any approved drug.`\
-https://nytimes.com/2025/12/11/health/eli-lilly-retatrutide-weight-loss-drug.html
-
-**U.K. Police Seek Suspects in Theft of Over 600 Artifacts From Museum**\
-`The items were stolen in a “high-value burglary” from the Bristol Museum’s British Empire and Commonwealth collection, the police said.`\
-https://nytimes.com/2025/12/11/arts/bristol-museum-robbery.html
 
