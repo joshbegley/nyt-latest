@@ -1,3 +1,19 @@
+**The Duality in Conservative Politics**\
+`Andrew Kolvet of Turning Point USA explains why he endorses a tough-love approach to politics on this episode of “Interesting Times.”`\
+https://nytimes.com/video/opinion/100000010563908/the-duality-in-conservative-politics.html
+
+**The ‘Wildness’ of Right-Wing Conspiracy**\
+`On a recent episode of “Interesting Times,” Andrew Kolvet shares what it’s like to be on the receiving end of conspiracy theories from other conservative influencers after Charlie Kirk’s assassination.`\
+https://nytimes.com/video/opinion/100000010563905/the-wildness-of-right-wing-conspiracy.html
+
+**The Coziest New Ski Lodges in the Alps**\
+`Five of the most notable newcomers to Europe’s winter resort scene are small hotels with distinctive personalities — and enough amenities to keep indoor types happy too.`\
+https://nytimes.com/2025/12/11/t-magazine/ski-lodge-alps-cozy-travel.html
+
+**Affordable Care Act Subsidies Are Set to Expire**\
+`Also, Indiana Republicans rejected Trump’s redistricting push. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2025/12/11/briefing/senate-health-care-indiana-voting-map.html
+
 **Grizzlies’ Zach Edey expected to miss at least 4 weeks with injury**\
 `With Ja Morant set to return, the Grizzlies will have to go without another player in the lineup: Zach Edey.`\
 https://nytimes.com/athletic/6883039/2025/12/11/zach-edey-grizzlies-injury/
