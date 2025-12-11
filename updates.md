@@ -1,3 +1,11 @@
+**I Think This Poem Is Kind of Into You**\
+`Our critic A.O. Scott feels the heat of a wintry lyric by the Nobel laureate Louise Glück.`\
+https://nytimes.com/interactive/2025/12/11/books/louise-gluck-poem-early-december-croton-hudson.html
+
+**Huijsen expected to return to Real Madrid squad vs. Alaves**\
+`The centre-back's anticipated return comes as Madrid contend with a number of defensive absences.`\
+https://nytimes.com/athletic/6882709/2025/12/11/dean-huijsen-real-madrid-injury-update/
+
 **Trump Panel Abruptly Postpones Release of FEMA Overhaul Recommendations**\
 `The group’s report had been expected to provide a road map for change after months of upheaval at the agency.`\
 https://nytimes.com/2025/12/11/climate/trump-fema.html
