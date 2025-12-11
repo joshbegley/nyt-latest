@@ -1,3 +1,19 @@
+**A Rule Disqualified Equestrians Who Bloodied Their Horses. Top Riders Fought It.**\
+`In January, the blood rule, which ousted riders if their horses bled during competition, will change to a system of warnings and suspensions.`\
+https://nytimes.com/2025/12/10/sports/equestrian-sport-blood-rule-changing.html
+
+**NBA Cup takeaways: Thunder blowout Suns by 49 to advance to semifinals**\
+`The Thunder outscored the Suns (14-10) by 25 points in the second and third quarters, leading by as many as 43 points.`\
+https://nytimes.com/athletic/6880036/2025/12/10/nba-cup-takeaways-thunder-blowout-suns-by-51-points-to-advance-to-second-straight-semifinals/
+
+**Some Horse Breeds Are Near Extinction. These People Are Trying to Save Them.**\
+`The American Cream Draft is almost gone, as is the ancient Caspian. But it’s too late for the Narragansett Pacer, once owned by George Washington.`\
+https://nytimes.com/2025/12/10/sports/rare-horse-breeds-preservation.html
+
+**In the Sport of Driving, Four Horses Pull a Cart Around an Arena. Quickly.**\
+`The spectacle is reminiscent of the movie “Ben Hur,” with high-speed action and roaring crowds. Teamwork is crucial.`\
+https://nytimes.com/2025/12/10/sports/horse-racing/chi-geneva-horses-driving.html
+
 **What a Dog Might Do**\
 `Kevin Curry wants us to really think about his puzzle.`\
 https://nytimes.com/2025/12/10/crosswords/daily-puzzle-2025-12-11.html
@@ -17,20 +33,4 @@ https://nytimes.com/athletic/6880712/2025/12/10/steph-curry-returns-practice-war
 **A lot of talk, little action at Winter Meetings: What we’re hearing about the Cubs**\
 `Cubs president of baseball operations Jed Hoyer left winter meetings without making a big move.`\
 https://nytimes.com/athletic/6880509/2025/12/10/what-were-hearing-cubs-winter-meetings/
-
-**Judge in Oregon Blocks Arrest of Protesters For Noise**\
-`Federal agents outside an ICE detention facility in Eugene, Ore., had sought to enforce a new rule that prohibits “creating a loud or unusual noise” outside federal property.`\
-https://nytimes.com/2025/12/10/us/politics/trump-arrests-protesters-noise-ruling.html
-
-**Mike Yastrzemski, Braves ink 2-year, $23M contract**\
-`Yastrzemski comes from a Hall of Fame bloodline, but he's made his own name as a righty-mashing corner outfielder.`\
-https://nytimes.com/athletic/6783789/2025/12/10/mlb-mike-yastrzemski-free-agency-signing-braves/
-
-**One of the Last Times Square Dive Bars Faces Eviction**\
-`New York is a city of hustlers, of odds makers and shot takers. For 54 years, Jimmy’s Corner has been their bar.`\
-https://nytimes.com/2025/12/10/nyregion/jimmys-corner-bar-times-square-boxing.html
-
-**Gavin Newsom: ‘We Failed on the Border’**\
-`Gov. Gavin Newsom has pushed California to offer health insurance to undocumented immigrants. He also thinks the Democratic Party has failed on border policy in recent years. On a recent episode of “The Ezra Klein Show,” he explains why.`\
-https://nytimes.com/video/opinion/100000010559561/gavin-newsom-we-failed-on-the-border.html
 
