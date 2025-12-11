@@ -1,3 +1,11 @@
+**Crypto Entrepreneur Who Caused 2022 Crash Is Sentenced to 15 Years in Prison**\
+`Do Kwon, who designed the virtual currencies Luna and TerraUSD, which plunged in 2022, had pleaded guilty to fraud.`\
+https://nytimes.com/2025/12/11/technology/crypto-do-kwon-sentenced-prison.html
+
+**Bay Area Gas Explosion Injures at Least 6 and Starts Neighborhood Fire**\
+`A gas line explosion in Hayward, Calif., sent multiple victims to the hospital and led to a fire that burned several houses.`\
+https://nytimes.com/2025/12/11/us/hayward-california-gas-line-explosion.html
+
 **Grizzlies’ Zach Edey expected to miss up to 4 weeks with injury**\
 `With Ja Morant set to return, the Grizzlies will have to go without another player in the lineup: Zach Edey.`\
 https://nytimes.com/athletic/6883039/2025/12/11/zach-edey-grizzlies-injury/

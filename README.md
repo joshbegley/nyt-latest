@@ -6,7 +6,7 @@ https://nytimes.com/2025/12/11/technology/crypto-do-kwon-sentenced-prison.html
 `A gas line explosion in Hayward, Calif., sent multiple victims to the hospital and led to a fire that burned several houses.`\
 https://nytimes.com/2025/12/11/us/hayward-california-gas-line-explosion.html
 
-**Grizzlies’ Zach Edey expected to miss up to 4 weeks with injury**\
+**Grizzlies’ Zach Edey expected to miss at least 4 weeks with injury**\
 `With Ja Morant set to return, the Grizzlies will have to go without another player in the lineup: Zach Edey.`\
 https://nytimes.com/athletic/6883039/2025/12/11/zach-edey-grizzlies-injury/
 
@@ -27,7 +27,7 @@ https://nytimes.com/athletic/6883073/2025/12/11/nfl-week-15-projected-scores-mod
 https://nytimes.com/athletic/6882954/2025/12/11/world-cup-fans-ticket-prices-column/
 
 **Winter Meetings takeaways: Mets mess, trade talks heating up, Dodgers dominance**\
-`ORLANDO, Fla.`\
+`Why big trades could be coming soon and why the Pirates’ free-agent effort was eye wash.`\
 https://nytimes.com/athletic/6882669/2025/12/11/mlb-winter-meetings-takeaways-pete-alonso-tarik-skubal-freddy-peralta/
 
 **Cubs continue remaking bullpen with deal for lefty Hoby Milner: Source**\
