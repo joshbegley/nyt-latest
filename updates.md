@@ -1,3 +1,19 @@
+**NFL Week 15 model-projected scores and point totals for every game**\
+`Austin Mock's NFL Projection Model gives its predictions for the points differentials and totals for every Week 15 game.`\
+https://nytimes.com/athletic/6883073/2025/12/11/nfl-week-15-projected-scores-model-predicts-point-spreads-and-totals-for-every-game/
+
+**'Going to the World Cup' used to be something ordinary people did. Not with these ticket prices**\
+`The World Cup is about so much more than just the football. FIFA's pricing structure for next summer's tournament ignores that`\
+https://nytimes.com/athletic/6882954/2025/12/11/world-cup-fans-ticket-prices-column/
+
+**Winter Meetings takeaways: Mets mess, trade talks heating up, Dodgers dominance**\
+`ORLANDO, Fla.`\
+https://nytimes.com/athletic/6882669/2025/12/11/mlb-winter-meetings-takeaways-pete-alonso-tarik-skubal-freddy-peralta/
+
+**Cubs continue remaking bullpen with deal for lefty Hoby Milner: Source**\
+`Milner has pitched for Craig Counsell before, when they were both with the Milwaukee Brewers.`\
+https://nytimes.com/athletic/6882859/2025/12/11/cubs-hoby-milner-bullpen-lefty-reliever/
+
 **Betting for (by) dummies: Loving the totals in Browns-Bears, Army-Navy**\
 `Jon Greenberg and Zac Jackson make their weekly NCAA and NFL picks. This week, they had some fun with totals and futures bets.`\
 https://nytimes.com/athletic/6882690/2025/12/11/best-bets-browns-bears-army-navy-indiana/

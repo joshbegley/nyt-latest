@@ -1,3 +1,19 @@
+**NFL Week 15 model-projected scores and point totals for every game**\
+`Austin Mock's NFL Projection Model gives its predictions for the points differentials and totals for every Week 15 game.`\
+https://nytimes.com/athletic/6883073/2025/12/11/nfl-week-15-projected-scores-model-predicts-point-spreads-and-totals-for-every-game/
+
+**'Going to the World Cup' used to be something ordinary people did. Not with these ticket prices**\
+`The World Cup is about so much more than just the football. FIFA's pricing structure for next summer's tournament ignores that`\
+https://nytimes.com/athletic/6882954/2025/12/11/world-cup-fans-ticket-prices-column/
+
+**Winter Meetings takeaways: Mets mess, trade talks heating up, Dodgers dominance**\
+`ORLANDO, Fla.`\
+https://nytimes.com/athletic/6882669/2025/12/11/mlb-winter-meetings-takeaways-pete-alonso-tarik-skubal-freddy-peralta/
+
+**Cubs continue remaking bullpen with deal for lefty Hoby Milner: Source**\
+`Milner has pitched for Craig Counsell before, when they were both with the Milwaukee Brewers.`\
+https://nytimes.com/athletic/6882859/2025/12/11/cubs-hoby-milner-bullpen-lefty-reliever/
+
 **Betting for (by) dummies: Loving the totals in Browns-Bears, Army-Navy**\
 `Jon Greenberg and Zac Jackson make their weekly NCAA and NFL picks. This week, they had some fun with totals and futures bets.`\
 https://nytimes.com/athletic/6882690/2025/12/11/best-bets-browns-bears-army-navy-indiana/
@@ -17,20 +33,4 @@ https://nytimes.com/athletic/6882770/2025/12/11/southern-miss-blake-anderson-hea
 **Man Accused in Charlie Kirk Killing Makes First Court Appearance in Person**\
 `Tyler Robinson faces murder charges in Utah in the Sept. 10 assassination of Mr. Kirk, the political activist and ally of President Trump.`\
 https://nytimes.com/2025/12/11/us/charlie-kirk-assassination-suspect-hearing.html
-
-**What to Know About Trump’s Seizure of an Oil Tanker Near Venezuela**\
-`The tanker was headed eastward and had recently carried Iranian oil. The seizure is an escalation in President Trump’s military pressure campaign against Venezuela’s leader, Nicolás Maduro.`\
-https://nytimes.com/2025/12/11/us/politics/trump-venezuela-tanker.html
-
-**Stocks Reverse Downturn to Reach a Record High**\
-`The S&P 500 edged higher as investors shrugged off concerns over Oracle’s earnings. It was just enough.`\
-https://nytimes.com/2025/12/11/business/sp-stocks-record.html
-
-**Aina out of Nigeria's AFCON squad, five first-time call-ups included**\
-`Aina, Nigeria’s first-choice right-back, is recovering from a hamstring injury he suffered in September.`\
-https://nytimes.com/athletic/6882919/2025/12/11/nigeria-afcon-squad-news/
-
-**Former NBA player Jason Collins announces he has Stage 4 brain cancer**\
-`Collins started experiencing symptoms while trying to pack for a US Open trip.`\
-https://nytimes.com/athletic/6882693/2025/12/11/jason-collins-nba-brain-cancer/
 
