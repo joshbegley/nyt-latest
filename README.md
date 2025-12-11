@@ -1,3 +1,7 @@
+**Gabriel Jesus's Arsenal return was emotional - but he could be exactly what they need**\
+`Gabriel Jesus played for Arsenal's first-team for the first time in 11 months against Club Brugge`\
+https://nytimes.com/athletic/6880506/2025/12/11/arsenal-gabriel-jesus-return-2/
+
 **The New York Times in Print for Thursday, Dec. 11, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/12/11/todays-new-york-times
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6874273/2025/12/11/wolves-rob-edwards-relegation-pl
 **Meet the 31-year-old coach who has already worked with Guardiola, Kompany and Bellamy**\
 `Piet Cremers began coaching at just 14 years old and has enjoyed a fast-track career. Next up, at age 31, could be the World Cup with Wales`\
 https://nytimes.com/athletic/6867218/2025/12/11/meet-the-31-year-old-coach-who-has-already-worked-with-guardiola-kompany-and-bellamy/
-
-**Tanaka has a talismanic quality, so why is he not assured of his starting spot?**\
-`The midfielder has an ability to conduct the Elland Road crowd but there are aspects of his game that mean he is not always first choice`\
-https://nytimes.com/athletic/6878522/2025/12/11/ao-tanaka-leeds-farke/
 
