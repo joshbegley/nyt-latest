@@ -1,3 +1,11 @@
+**Gavin Newsom: ‘We Failed on the Border’**\
+`Gov. Gavin Newsom has pushed California to offer health insurance to undocumented immigrants. He also thinks the Democratic Party has failed on border policy in recent years. On a recent episode of “The Ezra Klein Show,” he explains why.`\
+https://nytimes.com/video/opinion/100000010559561/gavin-newsom-we-failed-on-the-border.html
+
+**Gavin Newsom on California’s ‘Original Sin’**\
+`Newsom has emerged as a front-runner for the Democratic Party’s 2028 ticket. But will he be able to reconcile his track record as the governor of one of the least affordable states in the country?`\
+https://nytimes.com/video/opinion/100000010574435/gavin-newsom-on-californias-original-sin.html
+
 **Gavin Newsom Is Embracing Contradiction**\
 `Gov. Gavin Newsom has resisted the Trump administration with his push to redistrict California, while also inviting major right-wing figures like Steve Bannon and Charlie Kirk on his podcast. In a recent conversation on “The Ezra Klein Show,” he explains why he’s willing to take these risks.`\
 https://nytimes.com/video/opinion/100000010559552/gavin-newsom-is-embracing-contradiction.html
@@ -25,12 +33,4 @@ https://nytimes.com/2025/12/10/nyregion/new-jersey-fire-death.html
 **Oil Tanker U.S. Seized Has Faked Its Location Before, Data Shows**\
 `The ship has frequently carried oil from countries under U.S. sanctions, and its tracking data shows multiple recent trips to Iran and Venezuela.`\
 https://nytimes.com/2025/12/10/us/politics/oil-tanker-venezuela-tracking-data.html
-
-**Always on My Mind: Trump’s Enduring Focus on Joe Biden**\
-`After nearly 11 months in office, the president’s tendency to talk about his predecessor is more pronounced than ever.`\
-https://nytimes.com/2025/12/10/us/politics/trump-preoccupation-biden.html
-
-**First Edwin Díaz, now Pete Alonso: Where do Mets go from here?**\
-`The Mets still have two superstar players in Juan Soto and Francisco Lindor, but is that enough to contend?`\
-https://nytimes.com/athletic/6880071/2025/12/10/where-do-mets-go-pete-alonso-edwin-diaz/
 
