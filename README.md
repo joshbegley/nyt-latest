@@ -1,3 +1,7 @@
+**Tennessee cornerback Jermod McCoy, potential top-10 pick, declares for NFL Draft**\
+`Jermod McCoy's medicals ultimately will determine whether or not he finishes as a top-20 pick in the 2026 NFL Draft.`\
+https://nytimes.com/athletic/6880616/2025/12/10/nfl-draft-2026-jermod-mccoy-tennessee-scouting-report/
+
 **ICE Tells Watchdog It Has No Videos to Release of Chicago Operations**\
 `The response to an information request contradicted the administration’s public testimony and raised concerns that it may be trying to evade oversight.`\
 https://nytimes.com/2025/12/10/us/politics/ice-bodycam-video-chicago.html
@@ -29,8 +33,4 @@ https://nytimes.com/video/opinion/100000010559561/gavin-newsom-we-failed-on-the-
 **Gavin Newsom on California’s ‘Original Sin’**\
 `Newsom has emerged as a front-runner for the Democratic Party’s 2028 ticket. But will he be able to reconcile his track record as the governor of one of the least affordable states in the country?`\
 https://nytimes.com/video/opinion/100000010574435/gavin-newsom-on-californias-original-sin.html
-
-**Gavin Newsom Is Embracing Contradiction**\
-`Gov. Gavin Newsom has resisted the Trump administration with his push to redistrict California, while also inviting major right-wing figures like Steve Bannon and Charlie Kirk on his podcast. In a recent conversation on “The Ezra Klein Show,” he explains why he’s willing to take these risks.`\
-https://nytimes.com/video/opinion/100000010559552/gavin-newsom-is-embracing-contradiction.html
 
