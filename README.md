@@ -1,3 +1,11 @@
+**Fantasy trends and hidden gems: Rickard Rakell, Dennis Hildeby among top 11 targets for Week 11**\
+`With a very busy Week 11 NHL slate on tap, Shayna Goldman points out the widely-available players to target on the waiver wire.`\
+https://nytimes.com/athletic/6880222/2025/12/11/fantasy-hockey-trends-hidden-gems-sleepers-pickups-week-11/
+
+**Lakers' defensive issues exposed again in NBA Cup loss. Is any help on the way?**\
+`Everybody knows that LA lacks a point-of-attack defender. But unless the trade market opens up, they might have trouble finding one.`\
+https://nytimes.com/athletic/6881281/2025/12/11/lakers-defense-trades-nba-cup-loss/
+
 **The Windup: The Mets have a big mess to clean up**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6881990/2025/12/11/mets-alonso-diaz-schwarber-the-windup/
@@ -25,12 +33,4 @@ https://nytimes.com/2025/12/11/business/media/disney-openai-sora-deal.html
 **NFL Draft 2026 underclassman tracker: Which college football stars have declared early?**\
 `We're tracking all non-seniors who have publicly acknowledged their intention to declare for the 2026 NFL Draft.`\
 https://nytimes.com/athletic/6878979/2025/12/11/nfl-draft-2026-college-football-underclassman-tracker/
-
-**NASCAR reaches settlement with 23XI, Front Row to end year-long legal saga**\
-`NASCAR on Thursday reached a deal with 23XI Racing and Front Row Motorsports to end the ongoing litigation. Terms were not yet known.`\
-https://nytimes.com/athletic/6881791/2025/12/11/nascar-settlement-23xi-michael-jordan-trial-lawsuit/
-
-**MLB winter meetings still hold value in texting era but may not return in 2026**\
-`The winter meetings are MLB's annual showcase event. But labor issues may mean it does not return next winter. `\
-https://nytimes.com/athletic/6880754/2025/12/11/mlb-winter-meetings-2026-canceled/
 
