@@ -1,3 +1,7 @@
+**Tariffs Shrank Trade Deficit in September, New Data Show**\
+`U.S. imports and exports ticked up from lows the previous month when the president’s global tariffs went into effect, while the trade deficit continued to fall`\
+https://nytimes.com/2025/12/11/business/economy/trump-tariffs-trade-deficit.html
+
 **Why Oracle Is Worrying Investors About the A.I. Boom**\
 `Shares in the technology company are down as investors grow anxious that its bet on artificial intelligence, and OpenAI in particular, may not pay off.`\
 https://nytimes.com/2025/12/11/business/dealbook/ai-spending-oracle-openai.html

@@ -1,7 +1,3 @@
-**Tariffs Shrank Trade Deficit in September, New Data Show**\
-`U.S. imports and exports ticked up from lows the previous month when the president’s global tariffs went into effect, while the trade deficit continued to fall`\
-https://nytimes.com/2025/12/11/business/economy/trump-tariffs-trade-deficit.html
-
 **Why Oracle Is Worrying Investors About the A.I. Boom**\
 `Shares in the technology company are down as investors grow anxious that its bet on artificial intelligence, and OpenAI in particular, may not pay off.`\
 https://nytimes.com/2025/12/11/business/dealbook/ai-spending-oracle-openai.html
@@ -33,4 +29,8 @@ https://nytimes.com/live/2025/12/11/us/trump-news
 **Rested and recovered, 49ers prepare for playoff push after 'blessing' of late-season bye**\
 `Christian McCaffrey said the best part of his bye was playing with his five-month-old daughter, Colette.`\
 https://nytimes.com/athletic/6880672/2025/12/11/49ers-playoff-push-bye/
+
+**Why there's no need to bring back divisions as SEC moves to 9-game schedule**\
+`The conference is better off with one division, which has led to better matchups even if it means minor headaches.`\
+https://nytimes.com/athletic/6881455/2025/12/11/sec-football-schedule-2026-divisions/
 
