@@ -1,3 +1,15 @@
+**Must-See Moments From the N.B.A. Cup**\
+`On Wednesday, the Oklahoma Thunder led by 53 points at one point on the way to a win over the Phoenix Suns. And the San Antonio Spurs, without Victor Wembanyama, went to Los Angeles and beat the Lakers.`\
+https://nytimes.com/video/sports/basketball/100000010580507/must-see-moments-from-the-nba-cup.html
+
+**Canada Closes Highways to Vancouver After Flooding and Landslides**\
+`The atmospheric river over the Pacific Northwest brought a deluge to British Columbia, forcing road closures and evacuations in Canada.`\
+https://nytimes.com/2025/12/11/world/canada/british-columbia-vancouver-floods.html
+
+**Champions League 2025-26 Projections: Who will lift the trophy in Budapest on May 30?**\
+`Our Opta-powered Champions League projections update after each matchday`\
+https://nytimes.com/athletic/6630404/2025/12/11/champions-league-projections-2025-26/
+
 **Michigan Football Coach Is Detained After Being Fired**\
 `The University of Michigan fired Sherrone Moore earlier in the day, an abrupt end to his career there, one of the highest profile jobs in college football.`\
 https://nytimes.com/2025/12/11/sports/ncaafootball/sherrone-moore-michigan-football-coach.html
