@@ -1,3 +1,15 @@
+**Trump Panel Abruptly Postpones Release of FEMA Overhaul Recommendations**\
+`The group’s report had been expected to provide a road map for change after months of upheaval at the agency.`\
+https://nytimes.com/2025/12/11/climate/trump-fema.html
+
+**Oil Tanker Seizure Hits Venezuela’s Lifeblood. Here’s What to Know.**\
+`Seizures of more tankers could put a stranglehold on Venezuela’s economy, which is exceptionally dependent on oil to keep the government running and pay for basic necessities.`\
+https://nytimes.com/2025/12/11/world/americas/oil-tanker-venezuela-economy-chevron.html
+
+**In Pursuit of Repigmentation**\
+`The first and only FDA-approved prescription treatment for nonsegmental vitiligo repigmentation can offer people a path forward.`\
+https://nytimes.com/paidpost/incyte/in-pursuit-of-repigmentation.html
+
 **A Grand Jury Again Declines to Re-Indict Letitia James**\
 `It was a striking rejection of the administration’s retribution campaign.`\
 https://nytimes.com/2025/12/11/us/politics/grand-jury-letitia-james.html
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/6882838/2025/12/11/panthers-vs-avalanche-stream-how
 **How to watch Trail Blazers vs. Pelicans: Time, TV, streaming**\
 `Find out how to watch the Portland Trail Blazers play the New Orleans Pelicans, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6882836/2025/12/11/trail-blazers-vs-pelicans-stream-how-to-watch-dec-11/
-
-**How to watch Bruins vs. Jets: Time, TV, streaming**\
-`Find out how to watch the Boston Bruins play the Winnipeg Jets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6882835/2025/12/11/bruins-vs-jets-stream-how-to-watch-dec-11/
-
-**How to watch Stars vs. Wild: Time, TV, streaming**\
-`Find out how to watch the Dallas Stars play the Minnesota Wild, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6882830/2025/12/11/stars-vs-wild-stream-how-to-watch-dec-11/
-
-**How to watch Blues vs. Predators: Time, TV, streaming**\
-`Find out how to watch the St. Louis Blues play the Nashville Predators, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6882831/2025/12/11/blues-vs-predators-stream-how-to-watch-dec-11/
 

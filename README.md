@@ -1,3 +1,7 @@
+**Huijsen expected to return to Real Madrid squad vs. Alaves**\
+`The centre-back's anticipated return comes as Madrid contend with a number of defensive absences.`\
+https://nytimes.com/athletic/6882709/2025/12/11/dean-huijsen-real-madrid-injury-update/
+
 **Trump Panel Abruptly Postpones Release of FEMA Overhaul Recommendations**\
 `The group’s report had been expected to provide a road map for change after months of upheaval at the agency.`\
 https://nytimes.com/2025/12/11/climate/trump-fema.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6882841/2025/12/11/clippers-vs-rockets-stream-how-t
 **How to watch Panthers vs. Avalanche: Time, TV, streaming**\
 `Find out how to watch the Florida Panthers play the Colorado Avalanche, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6882838/2025/12/11/panthers-vs-avalanche-stream-how-to-watch-dec-11/
-
-**How to watch Trail Blazers vs. Pelicans: Time, TV, streaming**\
-`Find out how to watch the Portland Trail Blazers play the New Orleans Pelicans, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6882836/2025/12/11/trail-blazers-vs-pelicans-stream-how-to-watch-dec-11/
 
