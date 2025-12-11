@@ -1,3 +1,7 @@
+**Braves add reliever Robert Suarez to bullpen as setup man, backup closer**\
+`Suarez has a unique path as a hard-throwing late bloomer, and he leveraged that into a three-year deal`\
+https://nytimes.com/athletic/6802236/2025/12/11/mlb-robert-suarez-free-agency-signing-braves/
+
 **Ex-San Francisco basketball player violated NCAA gambling rules: Report**\
 `The NCAA said that Williams “agreed to his violations” in a negotiated resolution.`\
 https://nytimes.com/athletic/6881640/2025/12/11/ncaa-san-francisco-marcus-williams-gambling-violations/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/11/t-magazine/moma-art-air-afrique.html
 **The Quiet Luxury Engagement Ring of the Moment**\
 `Bezel settings, like the one featured in Taylor Swift’s engagement ring, “feel elegant and intentional,” one designer said. “There’s no noise.”`\
 https://nytimes.com/2025/12/11/style/bezel-set-engagement-rings.html
-
-**Why Some Countries May Copy Australia’s Ban on Children’s Use of Social Media**\
-`Governments are studying the decision to prohibit youths from using platforms like Facebook and TikTok as worries grow about the potential harm they cause.`\
-https://nytimes.com/2025/12/11/world/australia/social-media-ban-australia-europe-china-usa.html
 
