@@ -1,3 +1,7 @@
+**Bulgaria’s Prime Minister Resigns in the Face of Mass Protests**\
+`Prime Minister Rosen Zhelyazkov announced he was stepping down, becoming the latest leader to leave in the past four years, amid public anger over corruption and democratic dysfunction.`\
+https://nytimes.com/2025/12/11/world/europe/bulgaria-prime-minister-resigns-protests.html
+
 **Senate Expected to Deadlock Over Health Care in Dueling Votes**\
 `Neither Democrats’ plan to extend expiring Affordable Care Act subsidies nor Republicans’ proposal to replace them with direct payments for those who buy basic insurance was expected to advance.`\
 https://nytimes.com/2025/12/11/us/politics/health-care-senate-affordable-care-act.html
