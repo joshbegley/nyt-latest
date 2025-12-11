@@ -1,3 +1,19 @@
+**Republicans Undercut Johnson, Circumventing Him to Force Votes**\
+`The speaker has repeatedly lost his grip on the House floor thanks to a once rare parliamentary maneuver that G.O.P. members are increasingly using to force action on legislation.`\
+https://nytimes.com/2025/12/11/us/politics/republicans-undercut-speaker-johnson.html
+
+**NWSL in advanced talks over league-changing mechanism to pay stars more: Sources**\
+`Trinity Rodman's ongoing negotiations were the impetus for the board vote, but sources say the rule is bigger than one player.`\
+https://nytimes.com/athletic/6883002/2025/12/11/nwsl-rule-change-pay-players-trinity-rodman/
+
+**Fantasy basketball hot topics of the week: Knicks show more Hart, Black boosts Magic**\
+`Stan Son reviews the top recent NBA storylines, including Josh Hart's expanded role for the Knicks.`\
+https://nytimes.com/athletic/6882754/2025/12/11/fantasy-basketball-hot-topics-orlando-hart/
+
+**U.S. Issues New Sanctions Targeting Maduro’s Family and the Oil Sector**\
+`The United States is escalating its pressure campaign on Venezuela’s leader, Nicolás Maduro, after seizing an oil tanker off the coast.`\
+https://nytimes.com/2025/12/11/us/politics/maduro-oil-sanctions-venezuela-tanker.html
+
 **Lululemon C.E.O. to Step Down in January**\
 `The maker of yoga clothing is looking for a new leader after public pressure from the company’s founder.`\
 https://nytimes.com/2025/12/11/business/lululemon-ceo-calvin-mcdonald.html
@@ -17,20 +33,4 @@ https://nytimes.com/video/opinion/100000010563905/the-wildness-of-right-wing-con
 **The Coziest New Ski Lodges in the Alps**\
 `Five of the most notable newcomers to Europe’s winter resort scene are small hotels with distinctive personalities — and enough amenities to keep indoor types happy too.`\
 https://nytimes.com/2025/12/11/t-magazine/ski-lodge-alps-cozy-travel.html
-
-**Affordable Care Act Subsidies Are Set to Expire**\
-`Also, Indiana Republicans rejected Trump’s redistricting push. Here’s the latest at the end of Thursday.`\
-https://nytimes.com/2025/12/11/briefing/senate-health-care-indiana-voting-map.html
-
-**Crypto Entrepreneur Who Caused 2022 Crash Is Sentenced to 15 Years in Prison**\
-`Do Kwon, who designed the virtual currencies Luna and TerraUSD, which plunged in 2022, had pleaded guilty to fraud.`\
-https://nytimes.com/2025/12/11/technology/crypto-do-kwon-sentenced-prison.html
-
-**Bay Area Gas Explosion Injures at Least 6 and Starts Neighborhood Fire**\
-`A gas line explosion in Hayward, Calif., sent multiple victims to the hospital and led to a fire that burned several houses.`\
-https://nytimes.com/2025/12/11/us/hayward-california-gas-line-explosion.html
-
-**Grizzlies’ Zach Edey expected to miss at least 4 weeks with injury**\
-`With Ja Morant set to return, the Grizzlies will have to go without another player in the lineup: Zach Edey.`\
-https://nytimes.com/athletic/6883039/2025/12/11/zach-edey-grizzlies-injury/
 
