@@ -1,3 +1,11 @@
+**Pakistan’s Ex-Spy Chief Sentenced to Prison After Court-Martial**\
+`Lt. Gen. Faiz Hameed, an ally of the former prime minister, Imran Khan, once led Pakistan’s powerful Inter-Services Intelligence agency.`\
+https://nytimes.com/2025/12/11/world/asia/pakistan-isi-hameed-court-martial-prison.html
+
+**‘Dust Bunny’ Review: A World of Wonders, Familiar and Foreign**\
+`The movie, starring Sophie Sloan and Mads Mikkelsen, is a blast of visual delights.`\
+https://nytimes.com/2025/12/11/movies/dust-bunny-review-mads-mikkelsen.html
+
 **Anti-Corruption Protests Topple Bulgarian Government**\
 `Bulgaria’s prime minister resigned after less than a year in office amid mass protests against his government in recent weeks.`\
 https://nytimes.com/video/world/europe/100000010580690/anti-corruption-protests-topple-bulgarian-government.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6881099/2025/12/11/golden-state-warriors-turnover-p
 **French tennis player suspended for 20 years over anti-corruption breaches**\
 `Quention Folliot was charged with 30 offenses and sanctioned for 27.`\
 https://nytimes.com/athletic/6881919/2025/12/11/tennis-match-fixing-corruption-quentin-folliot-ban/
-
-**How to watch Hurricanes vs. Capitals: Time, TV, streaming**\
-`Find out how to watch the Carolina Hurricanes play the Washington Capitals, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6882234/2025/12/11/hurricanes-vs-capitals-stream-how-to-watch-dec-11/
-
-**How to watch Sharks vs. Maple Leafs: Time, TV, streaming**\
-`Find out how to watch the San Jose Sharks play the Toronto Maple Leafs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6882232/2025/12/11/sharks-vs-maple-leafs-stream-how-to-watch-dec-11/
 
