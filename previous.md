@@ -2,7 +2,7 @@
 `The legislation codifies President Trump’s agenda but includes a few measures challenging his policies and insisting on more consultation with Congress.`\
 https://nytimes.com/2025/12/10/us/politics/house-approves-defense-bill.html
 
-**Man Admits to Strangling Pregnant Woman in 1996, Resolving Cold Case**\
+**Man Admits to Strangling Pregnant Woman in 1996, Settling Cold Case**\
 `Gregory Fleetwood, 69, pleaded guilty to manslaughter on Wednesday in the killing of 36-year-old Jasmine Porter. He is expected to be sentenced to 12 years in prison.`\
 https://nytimes.com/2025/12/10/nyregion/bronx-cold-case-strangling-plea.html
 

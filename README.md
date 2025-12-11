@@ -1,3 +1,7 @@
+**Michigan interim coach Biff Poggi: 'The most interesting man in coaching'**\
+`Biff Poggi was an advisor for Jim Harbaugh before working under Sherrone Moore. One colleague said of Poggi: "His heart is all in it."`\
+https://nytimes.com/athletic/6880279/2025/12/10/michigan-biff-poggi-interim-head-coach/
+
 **House Gives Bipartisan Approval to $900 Billion Defense Bill**\
 `The legislation codifies President Trump’s agenda but includes a few measures challenging his policies and insisting on more consultation with Congress.`\
 https://nytimes.com/2025/12/10/us/politics/house-approves-defense-bill.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/10/world/africa/congo-m23-kivu-rwanda-uvira-burundi-
 **Fowler arrives under difficult circumstances, but Canadiens had to do something**\
 `The Canadiens can't, or won't, say they hope Jacob Fowler will fix their goaltending problems. So we will say it for them.`\
 https://nytimes.com/athletic/6880088/2025/12/10/canadiens-jacob-fowler-st-louis-goaltending/
-
-**Madrid players insist they are behind head coach Alonso after Man City defeat**\
-`The 2-1 loss means that Madrid have only won two of their last eight games in all competitions.`\
-https://nytimes.com/athletic/6880115/2025/12/10/real-madrid-players-xabi-alonso/
 
