@@ -1,3 +1,11 @@
+**What we're hearing about Salah's future – and what would be best for his brand?**\
+`Analysing where the unhappy forward's future could lie and the markets that could be most lucrative`\
+https://nytimes.com/athletic/6878776/2025/12/11/mohamed-salah-transfer-options/
+
+**María Corina Machado Appears in Oslo After a Year in Hiding**\
+`María Corina Machado, Venezuela’s opposition leader, greeted supporters in the Norwegian capital, hours after missing the ceremony at which she was awarded the Nobel Peace Prize.`\
+https://nytimes.com/video/world/americas/100000010580235/maria-corina-machado-venezuela-nobel.html
+
 **How to watch Dolphins vs. Steelers: Time, TV, streaming**\
 `Find out how to watch the Miami Dolphins play the Pittsburgh Steelers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6881186/2025/12/11/dolphins-vs-steelers-stream-how-to-watch-dec-15/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6880506/2025/12/11/arsenal-gabriel-jesus-return-clu
 **The New York Times in Print for Thursday, Dec. 11, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/12/11/todays-new-york-times
-
-**Trump Is Not Attacking Europe. He’s Attacking Something Else.**\
-`It’s an actual place, not an arbitrarily bounded zone.`\
-https://nytimes.com/2025/12/11/opinion/national-security-strategy-us-europe.html
-
-**Radek Vitek, the Man Utd loanee who became a Championship 'wall'**\
-`The 6ft 6in Czech has impressed at the Championship promotion hopefuls this season`\
-https://nytimes.com/athletic/6864894/2025/12/11/radek-vitek-man-utd-loan-bristol-city/
 
