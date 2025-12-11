@@ -1,3 +1,11 @@
+**Is Ice Spice Back on the Rise?**\
+`Jon Caramanica, pop music critic at The New York Times, looks at how Ice Spice’s new single, “Thootie,” taps into her minimalist swagger and why this Dembow-driven collab with Tokischa might mark a real reset.`\
+https://nytimes.com/video/podcasts/100000010576115/is-ice-spice-back-on-the-rise.html
+
+**2026 World Cup host city winners and losers: Who has the best games?**\
+`For each of the 16 host sites, the World Cup draw and fixture release hit a bit differently. Here's who has it the best – and worst`\
+https://nytimes.com/athletic/6881047/2025/12/11/2026-world-cup-host-city-winners-losers-usa-mexico-canada/
+
 **Heavy Rain Overflows Rivers and Prompts Evacuations in Washington**\
 `Evacuations were underway on Thursday as flooding intensified in the Pacific Northwest. Up to 100,000 Washington State residents could face orders to evacuate, according to local authorities.`\
 https://nytimes.com/video/weather/100000010580655/washington-northwest-pacific-weather-storm.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6881626/2025/12/11/jayden-daniels-regression-injuri
 **Watch out, Warriors. The Thunder are threatening the NBA's regular-season wins record**\
 `The best NBA regular season ever is brewing in Oklahoma City, but can they actually break the record?`\
 https://nytimes.com/athletic/6879789/2025/12/11/okc-thunder-nba-history-win-record/
-
-**FIFA accused of World Cup ‘betrayal’ over ticket prices for followers of teams**\
-`Football Supporters Europe said prices are set at "astronomical levels" and called on FIFA to halt ticket sales and review the figures.`\
-https://nytimes.com/athletic/6881835/2025/12/11/fifa-world-cup-tickets-pricing-fans/
-
-**USMNT to face Senegal in penultimate World Cup tune-up friendly**\
-`The USMNT's road to the World Cup is now officially complete after the booking of its final friendly opponent`\
-https://nytimes.com/athletic/6881117/2025/12/11/usmnt-senegal-friendly-charlotte-world-cup/
 
