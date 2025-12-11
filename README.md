@@ -1,3 +1,7 @@
+**Indiana Lawmakers Reject Trump’s Redistricting Map**\
+`Republicans make up a majority of the Indiana Senate, but more than a dozen voted against President Trump’s new political map, which aimed to add Republicans in Congress.`\
+https://nytimes.com/video/us/politics/100000010582282/indiana-senators-reject-redistricting-map.html
+
 **Republicans Undercut Johnson, Circumventing Him to Force Votes**\
 `The speaker has repeatedly lost his grip on the House floor thanks to a once rare parliamentary maneuver that G.O.P. members are increasingly using to force action on legislation.`\
 https://nytimes.com/2025/12/11/us/politics/republicans-undercut-speaker-johnson.html
@@ -29,8 +33,4 @@ https://nytimes.com/video/opinion/100000010563908/the-duality-in-conservative-po
 **The ‘Wildness’ of Right-Wing Conspiracy**\
 `On a recent episode of “Interesting Times,” Andrew Kolvet shares what it’s like to be on the receiving end of conspiracy theories from other conservative influencers after Charlie Kirk’s assassination.`\
 https://nytimes.com/video/opinion/100000010563905/the-wildness-of-right-wing-conspiracy.html
-
-**The Coziest New Ski Lodges in the Alps**\
-`Five of the most notable newcomers to Europe’s winter resort scene are small hotels with distinctive personalities — and enough amenities to keep indoor types happy too.`\
-https://nytimes.com/2025/12/11/t-magazine/ski-lodge-alps-cozy-travel.html
 
