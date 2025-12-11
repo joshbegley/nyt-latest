@@ -1,3 +1,19 @@
+**How to watch Morehead State vs. Notre Dame women's basketball: Time, TV, streaming**\
+`Find out how to watch the Morehead State Eagles play the Notre Dame Fighting Irish, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6882172/2025/12/11/morehead-state-vs-notre-dame-stream-how-to-watch-dec-11/
+
+**How to watch Little Rock vs. Oklahoma women's basketball: Time, TV, streaming**\
+`Find out how to watch the Little Rock Trojans play the Oklahoma Sooners, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6882168/2025/12/11/little-rock-vs-oklahoma-stream-how-to-watch-dec-11/
+
+**How to watch Northern Kentucky vs. Ohio State women's basketball: Time, TV, streaming**\
+`Find out how to watch the Northern Kentucky Norse play the Ohio State Buckeyes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6882170/2025/12/11/northern-kentucky-vs-ohio-state-stream-how-to-watch-dec-11/
+
+**What we're seeing and hearing about NASCAR's settlement with 23XI and Front Row**\
+`Here's an updating look at what we're gathering in the aftermath of Thursday's settlement between NASCAR and the two teams suing it.`\
+https://nytimes.com/athletic/6882074/2025/12/11/nascar-23xi-front-row-settlement-facts-scene/
+
 **Arsenal, Bayern, PSG and Visit Rwanda: 'We would rather wear anything on our sleeves'**\
 `We visit Kigali and speak to people on all sides about why some teams are ending deals while others are signing new ones`\
 https://nytimes.com/athletic/6878062/2025/12/11/arsenal-bayern-psg-and-visit-rwanda-that-money-is-from-the-blood-of-congolese-people/

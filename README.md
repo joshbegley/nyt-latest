@@ -1,3 +1,27 @@
+**How to watch Ducks vs. Islanders: Time, TV, streaming**\
+`Find out how to watch the Anaheim Ducks play the New York Islanders, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6882223/2025/12/11/ducks-vs-islanders-stream-how-to-watch-dec-11/
+
+**How to watch Senators vs. Blue Jackets: Time, TV, streaming**\
+`Find out how to watch the Ottawa Senators play the Columbus Blue Jackets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6882221/2025/12/11/senators-vs-blue-jackets-stream-how-to-watch-dec-11/
+
+**Killer Whales Find an ‘Unlikely Friend’ in Dolphins**\
+`Off the coast of British Columbia, dolphins lead killer whales to salmon and earn their share of lunch, a new study reveals.`\
+https://nytimes.com/2025/12/11/science/orcas-dolphins-fish.html
+
+**What One Airline’s Meltdown Reveals About India’s Economy**\
+`A tangle of problems at IndiGo, the dominant carrier, resulted in gridlocked airports across the country. Worse, it was the symptom of an even bigger problem.`\
+https://nytimes.com/2025/12/11/business/india-indigo-competition-antitrust.html
+
+**Why the Hornets' Kon Knueppel is still the leader of a strong NBA rookie class**\
+`Zach Harper ranks the top 10 rookies in the NBA so far. Cooper Flagg and Dylan Harper could soon move up. `\
+https://nytimes.com/athletic/6882108/2025/12/11/kon-knueppel-nba-rookies-cooper-flagg-dylan-harper/
+
+**Champions League projections: Arsenal are flying as Real Madrid's chances take a hit**\
+`Our Opta-powered projections have Mikel Arteta's team, Bayern Munich and Paris Saint-Germain as the three favourites to win the competition`\
+https://nytimes.com/athletic/6881443/2025/12/11/champions-league-projections-md-6/
+
 **How to watch Morehead State vs. Notre Dame women's basketball: Time, TV, streaming**\
 `Find out how to watch the Morehead State Eagles play the Notre Dame Fighting Irish, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6882172/2025/12/11/morehead-state-vs-notre-dame-stream-how-to-watch-dec-11/
@@ -9,28 +33,4 @@ https://nytimes.com/athletic/6882168/2025/12/11/little-rock-vs-oklahoma-stream-h
 **How to watch Northern Kentucky vs. Ohio State women's basketball: Time, TV, streaming**\
 `Find out how to watch the Northern Kentucky Norse play the Ohio State Buckeyes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6882170/2025/12/11/northern-kentucky-vs-ohio-state-stream-how-to-watch-dec-11/
-
-**What we're seeing and hearing about NASCAR's settlement with 23XI and Front Row**\
-`Here's an updating look at what we're gathering in the aftermath of Thursday's settlement between NASCAR and the two teams suing it.`\
-https://nytimes.com/athletic/6882074/2025/12/11/nascar-23xi-front-row-settlement-facts-scene/
-
-**Arsenal, Bayern, PSG and Visit Rwanda: 'We would rather wear anything on our sleeves'**\
-`We visit Kigali and speak to people on all sides about why some teams are ending deals while others are signing new ones`\
-https://nytimes.com/athletic/6878062/2025/12/11/arsenal-bayern-psg-and-visit-rwanda-that-money-is-from-the-blood-of-congolese-people/
-
-**Tender Turkey Meatballs in Tomato Sauce, With Lots of Parm**\
-`Add a green salad and some bread (garlic, if you’d like), and that’s a very good dinner.`\
-https://nytimes.com/2025/12/11/dining/tender-turkey-meatballs-in-tomato-sauce-with-lots-of-parm.html
-
-**Judge Orders Abrego Garcia’s Release From ICE Detention**\
-`The judge said it was “troubling” that the Trump administration had kept Kilmar Armando Abrego Garcia in custody for nearly four months without following through on its pledge to re-expel him.`\
-https://nytimes.com/2025/12/11/us/politics/abrego-garcia-released.html
-
-**R. Bruce Dold, Chicago Tribune Publisher and Pulitzer Winner, Dies at 70**\
-`As head of the editorial page, he encouraged The Tribune’s support of Barack Obama, resulting in the paper’s first endorsement of a Democrat running for the White House.`\
-https://nytimes.com/2025/12/11/us/politics/bruce-dold-dead.html
-
-**Fantasy football injuries, inactives, cheat sheet Week 15**\
-`Fantasy football relevant injuries and their impact, weather reports and game previews. Plus, Ciely's Week 15 player rankings and more.`\
-https://nytimes.com/athletic/6878815/2025/12/11/fantasy-football-injuries-inactives-cheat-sheet-week-15/
 

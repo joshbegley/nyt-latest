@@ -1,3 +1,19 @@
+**How to watch Morehead State vs. Notre Dame women's basketball: Time, TV, streaming**\
+`Find out how to watch the Morehead State Eagles play the Notre Dame Fighting Irish, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6882172/2025/12/11/morehead-state-vs-notre-dame-stream-how-to-watch-dec-11/
+
+**How to watch Little Rock vs. Oklahoma women's basketball: Time, TV, streaming**\
+`Find out how to watch the Little Rock Trojans play the Oklahoma Sooners, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6882168/2025/12/11/little-rock-vs-oklahoma-stream-how-to-watch-dec-11/
+
+**How to watch Northern Kentucky vs. Ohio State women's basketball: Time, TV, streaming**\
+`Find out how to watch the Northern Kentucky Norse play the Ohio State Buckeyes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6882170/2025/12/11/northern-kentucky-vs-ohio-state-stream-how-to-watch-dec-11/
+
+**What we're seeing and hearing about NASCAR's settlement with 23XI and Front Row**\
+`Here's an updating look at what we're gathering in the aftermath of Thursday's settlement between NASCAR and the two teams suing it.`\
+https://nytimes.com/athletic/6882074/2025/12/11/nascar-23xi-front-row-settlement-facts-scene/
+
 **Arsenal, Bayern, PSG and Visit Rwanda: 'We would rather wear anything on our sleeves'**\
 `We visit Kigali and speak to people on all sides about why some teams are ending deals while others are signing new ones`\
 https://nytimes.com/athletic/6878062/2025/12/11/arsenal-bayern-psg-and-visit-rwanda-that-money-is-from-the-blood-of-congolese-people/
@@ -17,20 +33,4 @@ https://nytimes.com/2025/12/11/us/politics/bruce-dold-dead.html
 **Fantasy football injuries, inactives, cheat sheet Week 15**\
 `Fantasy football relevant injuries and their impact, weather reports and game previews. Plus, Ciely's Week 15 player rankings and more.`\
 https://nytimes.com/athletic/6878815/2025/12/11/fantasy-football-injuries-inactives-cheat-sheet-week-15/
-
-**Emmett Johnson leaves Nebraska with sterling legacy, All-America status**\
-`Johnson took pride in building a new reputation for Nebraska running backs, he said.`\
-https://nytimes.com/athletic/6881795/2025/12/11/emmett-johnson-nebraska-all-american-running-back/
-
-**The Bounce: We'll have a first-time NBA Cup champion.**\
-`Zach Harper catches you up on the latest NBA news in our newsletter.`\
-https://nytimes.com/athletic/6881953/2025/12/11/nba-cup-thunder-the-bounce/
-
-**Fantasy trends and hidden gems: Rickard Rakell, Dennis Hildeby among top 11 targets for Week 11**\
-`With a very busy Week 11 NHL slate on tap, Shayna Goldman points out the widely-available players to target on the waiver wire.`\
-https://nytimes.com/athletic/6880222/2025/12/11/fantasy-hockey-trends-hidden-gems-sleepers-pickups-week-11/
-
-**Lakers' defensive issues exposed again in NBA Cup loss. Is any help on the way?**\
-`Everybody knows that LA lacks a point-of-attack defender. But unless the trade market opens up, they might have trouble finding one.`\
-https://nytimes.com/athletic/6881281/2025/12/11/lakers-defense-trades-nba-cup-loss/
 
