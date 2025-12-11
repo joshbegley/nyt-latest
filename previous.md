@@ -1,36 +1,36 @@
-**Plans for Milan vs Como league game to be played in Australia in doubt**\
-`It would be the first time a European league match is played abroad, after plans for the United States to host a La Liga game fell through. `\
-https://nytimes.com/athletic/6881262/2025/12/11/milan-como-australia-serie-a-game-news/
+**We’re Trying to Find a Line the Supreme Court Won’t Cross**\
+`It isn’t easy.`\
+https://nytimes.com/2025/12/11/opinion/supreme-court-slaughter-presidential-power.html
 
-**Must-See Moments From the N.B.A. Cup**\
-`On Wednesday, the Oklahoma Thunder led by 53 points at one point on the way to a win over the Phoenix Suns. And the San Antonio Spurs, without Victor Wembanyama, went to Los Angeles and beat the Lakers.`\
-https://nytimes.com/video/sports/basketball/100000010580507/must-see-moments-from-the-nba-cup.html
+**Fed Divisions Underscore Challenge for Trump’s Next Chair**\
+`President Trump wants substantially lower borrowing costs, but officials at the central bank appear ready to resist delivering further cuts if the economic backdrop does not warrant it.`\
+https://nytimes.com/2025/12/11/business/fed-divisions-trump.html
 
-**Canada Closes Highways to Vancouver After Flooding and Landslides**\
-`The atmospheric river over the Pacific Northwest brought a deluge to British Columbia, forcing road closures and evacuations in Canada.`\
-https://nytimes.com/2025/12/11/world/canada/british-columbia-vancouver-floods.html
+**Should We Dress Up More When We Travel?**\
+`The U.S. Transportation Department began a civility campaign that encourages travelers to dress with respect. Is it time to ditch the sweatpants and follow suit?`\
+https://nytimes.com/2025/12/11/learning/should-we-dress-up-more-when-we-travel.html
 
-**Champions League 2025-26 Projections: Who will lift the trophy in Budapest on May 30?**\
-`Our Opta-powered Champions League projections update after each matchday`\
-https://nytimes.com/athletic/6630404/2025/12/11/champions-league-projections-2025-26/
+**What might the Patriots target in the NFL Draft? A way-too-early look**\
+`Much like last offseason, New England is likely to be looking for help at edge rusher, on the offensive line and at wide receiver.`\
+https://nytimes.com/athletic/6879480/2025/12/11/2026-nfl-draft-patriots-targets/
 
-**Michigan Football Coach Is Detained After Being Fired**\
-`The University of Michigan fired Sherrone Moore earlier in the day, an abrupt end to his career there, one of the highest profile jobs in college football.`\
-https://nytimes.com/2025/12/11/sports/ncaafootball/sherrone-moore-michigan-football-coach.html
+**Searching Brooklyn and the Bronx With a $600,000 Ceiling. Here’s What They Found.**\
+`Fed up with rent increases, a former dancer wasn’t sure if he could afford a two-bedroom apartment. His partner and a dedicated broker helped him find the way.`\
+https://nytimes.com/interactive/2025/12/11/realestate/brooklyn-bronx-apartment-sale.html
 
-**New York Was a Leader on Climate Issues. Under Hochul, Things Changed.**\
-`Faced with an affordability crisis and rising energy demands, Gov. Kathy Hochul has slowed progress on New York’s efforts to fight climate change.`\
-https://nytimes.com/2025/12/11/nyregion/kathy-hochul-new-york-climate-issues.html
+**Trump Doesn’t Want to Talk About Affordability. Democrats Say That’s a Gift.**\
+`The president continues to brush off an issue that he said he would solve in his first months in office. Some Democrats say he is making the same mistake as his predecessor.`\
+https://nytimes.com/2025/12/11/us/politics/trump-affordability-democrats.html
 
-**Force Quit**\
-`What do you think this image is communicating?`\
-https://nytimes.com/2025/12/11/learning/force-quit.html
+**With Republicans Divided, Indiana Senate Set to Vote on Redistricting**\
+`President Trump wants a new congressional map in Indiana that would boost Republicans, but he has struggled to win over some state lawmakers in his party.`\
+https://nytimes.com/2025/12/11/us/indiana-senate-redistricting-republicans.html
 
-**Will the N.Y.P.D. Push Its Therapy Dogs Into Early Retirement?**\
-`The dogs are part of a mental wellness program that began after a rash of officer suicides. The dog unit’s fate is unclear as Commissioner Jessica Tisch shifts more officers to patrol duty.`\
-https://nytimes.com/2025/12/11/nyregion/nypd-wellness-dogs.html
+**My Favorite Performances of the Year**\
+`Actors took big swings in 2025. Here are some of the best.`\
+https://nytimes.com/2025/12/11/podcasts/cannonball-great-performers.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/12/11/crosswords/spelling-bee-forum.html
+**Two Women Who Kept the Art World at Arm’s Length**\
+`Agnes Martin and Jay De Feo spent a lifetime searching for clarity of thought. Their works glow in these two shows.`\
+https://nytimes.com/2025/12/11/arts/design/agnes-martin-jay-de-feo-review-last-chance.html
 
