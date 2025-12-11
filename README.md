@@ -1,36 +1,36 @@
-**Charley Hull’s Instagram tells a story. A trip to her English home told the real one**\
-`“People think I’m a party girl," Charley Hull admits, but her actual home life is nothing like that.`\
-https://nytimes.com/athletic/6879101/2025/12/11/womens-golf-charley-hull-family-lpga/
+**Nobel Peace Prize Winner Machado Vows to End Maduro’s Rule in Venezuela**\
+`María Corina Machado reappeared on the global stage as the Trump administration ramped up its pressure campaign against President Nicolás Maduro.`\
+https://nytimes.com/2025/12/11/world/americas/maria-corina-machado-nobel-venezuela-maduro-trump.html
 
-**As NASCAR trial hits halfway point, defense takes over with stakes still high**\
-`After seven days of the plaintiffs laying out their case, it's the defense's turn. And the future of the sport still hangs in the balance.`\
-https://nytimes.com/athletic/6880877/2025/12/11/nascar-trial-michael-jordan-defense-jury/
+**Chiefs' offense under fire after 6-7 start. Here's how it compares to last season**\
+`Line up the offensive stats, and here's what it tells us when comparing the Chiefs' 12-1 start last year to this year's 6-7 struggle.`\
+https://nytimes.com/athletic/6879685/2025/12/11/chiefs-2025-offense-comparison/
 
-**MSG's 5-story ramp is steep price of admission for visiting athletes**\
-`Older buildings have quirks, but none has an entrance quite like the Garden's long, steep ramp that visiting players have to traverse.`\
-https://nytimes.com/athletic/6879514/2025/12/11/msg-madison-square-garden-ramp-knicks-rangers/
+**Ahead of Trump Call, Fighting Between Thailand and Cambodia Intensifies**\
+`The widening scope of the conflict between the two neighbors presents a challenge to President Trump’s tariff diplomacy, which he has brandished as a peacemaking tool.`\
+https://nytimes.com/2025/12/11/world/asia/trump-call-cambodia-thailand.html
 
-**For the Ravens, a Super Bowl or bust season has morphed into win or else**\
-`Baltimore, which is 6-7 with four games remaining, is just about out of time to prove it can put it all together this season. `\
-https://nytimes.com/athletic/6880242/2025/12/11/ravens-must-win-bengals-afc-north/
+**The Eagles say history isn't repeating, but the echoes are getting awfully loud**\
+`As the critics get louder, the defiant Eagles and owner Jeffrey Lurie press on, insisting they still aren't worried about their slide.`\
+https://nytimes.com/athletic/6880780/2025/12/11/eagles-losing-streak-2023-jalen-hurts-jeffrey-lurie/
 
-**Who was the worst NHL GM to keep his job for 5 years or more?**\
-`Counting down the 10 worst GMs to get at least five years with the same NHL team.`\
-https://nytimes.com/athletic/6876384/2025/12/11/nhl-worst-general-managers-teams-job/
+**Falcons at Bucs on TNF: Creamsicle throwbacks, chaos aboard the pirate ship**\
+`Creamsicle throwbacks and chaos on a pirate ship. The Bucs can stay in first place in the NFC South with a win against ATL. `\
+https://nytimes.com/athletic/6879286/2025/12/11/falcons-buccaneers-tnf-playoff-race-baker-mayfield/
 
-**For USA and Pochettino, opponent familiarity adds intriguing twist to World Cup draw**\
-`If Turkey emerges from a UEFA playoff, the USMNT will have played all its World Cup group opponents in recent friendlies`\
-https://nytimes.com/athletic/6880670/2025/12/11/usmnt-pochettino-turkey-paraguay-belgium-australia-world-cup/
+**Cowboys still aiming for playoffs, but can season be a success without getting there?**\
+`In Brian Schottenheimer's first season, the Cowboys have shown progress and their final four games will determine a lot.`\
+https://nytimes.com/athletic/6880521/2025/12/11/cowboys-playoff-berth-season-success/
 
-**Next man up: How NHL teams are navigating key injuries so far**\
-`Let’s take a look at how some teams around the league are navigating key absences, with some doing better than others.`\
-https://nytimes.com/athletic/6879422/2025/12/11/nhl-injuries-teams-adam-fox-jack-hughes/
+**Jared Goff carrying bigger load and takes center stage as Lions make playoff push**\
+`Over the last four seasons, the Lions rank fourth in December winning percentage at .714. Jared Goff has played a key role in that.`\
+https://nytimes.com/athletic/6879847/2025/12/11/lions-jared-goff-playoffs-rams-matchup/
 
-**'Patriot Way' once again obstructing Buffalo Bills' path to glory**\
-`The Patriots didn't take long to once again be a pain in the Buffalo's side.`\
-https://nytimes.com/athletic/6880218/2025/12/11/bills-patriots-afc-east-playoffs/
+**Panthers haven't been to playoffs since 2017. But Turk Wharton has — often**\
+`"Those Super Bowl rings speak for themselves, man," Wharton said of wearing his before the Panthers played the Rams in Week 13.`\
+https://nytimes.com/athletic/6880331/2025/12/11/carolina-panthers-playoffs-experience-turk-wharton/
 
-**Vic's Picks, Week 15: Can Superman ... er, Josh Allen carry the Bills past the Patriots?**\
-`The Bills, like most teams, are flawed, but Allen is playing like a superhero. Meanwhile, can the Ravens and Chiefs turn it around?`\
-https://nytimes.com/athletic/6876597/2025/12/11/nfl-week-15-picks-predictions-betting-2025/
+**Is a Jordan Addison extension on the horizon for the Vikings? We explore their options**\
+`Addison, a third-year wideout, will be eligible for an extension this offseason. Might Minnesota be wise to spend its cap space elsewhere?`\
+https://nytimes.com/athletic/6880249/2025/12/11/jordan-addison-vikings-extension-trade/
 
