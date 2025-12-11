@@ -1,3 +1,7 @@
+**Man Utd wage bill falls year on year: Analysing Q1 financial results**\
+`The fall was helped by the loan exits of high earners Jadon Sancho and Marcus Rashford.`\
+https://nytimes.com/athletic/6881631/2025/12/11/manchester-united-wage-bill-finances/
+
 **Trump Administration Live Updates: Noem to Face Questions From Lawmakers Amid Immigration Crackdown**\
 ``\
 https://nytimes.com/live/2025/12/11/us/trump-news
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6878264/2025/12/11/minnesota-twins-2026-mlb-draft/
 **Lakers defense, depth exposed in NBA Cup loss to the Spurs**\
 `The Lakers struggled to defend and didn't get much from their bench Wednesday night, both recurring themes this month.`\
 https://nytimes.com/athletic/6881243/2025/12/11/lakers-defense-depth-exposed-spurs-nba-cup/
-
-**'He knew it wasn’t over': Tony Jefferson's journey from scout to difference-maker**\
-`Two years after retiring and pondering a coaching or front-office career, Jefferson has doubled his career interception total this season.`\
-https://nytimes.com/athletic/6880561/2025/12/11/tony-jefferson-chargers-scout-unretirement/
 
