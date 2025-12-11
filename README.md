@@ -1,3 +1,7 @@
+**Hull setback offers Wrexham's Parkinson a chance to reflect on how far he has come**\
+`Last week brought the anniversary of what remains Wrexham manager Phil Parkinson's biggest disappointment in football`\
+https://nytimes.com/athletic/6875042/2025/12/11/hull-wrexham-parkinson/
+
 **Women's Champions League: Barca without key players, Man Utd's selection gamble**\
 `Barcelona and OL Lyonnes both confirmed their automatic progression to the Champions League quarter-finals`\
 https://nytimes.com/athletic/6880021/2025/12/11/womens-champions-league-briefing/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6878981/2025/12/11/andrew-giuliani-fifa-world-cup/
 **Five FPL differentials to target during the hectic festive period**\
 `If you're looking to make gains over the busiest stretch of the season, look to these FPL hidden gems to help you gain in rank`\
 https://nytimes.com/athletic/6876649/2025/12/11/fantasy-premier-league-diferentials-bowen-jimenez/
-
-**Xabi Alonso is on the thinnest of ice**\
-`As defeats go, this was not a bad one for the coach or his team, but this crisis is not over yet.`\
-https://nytimes.com/athletic/6875136/2025/12/11/real-madrid-xabi-alonso-future/
 
