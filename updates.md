@@ -1,3 +1,7 @@
+**Indiana Lawmakers Reject Trump’s Redistricting Map**\
+`Republicans make up a majority of the Indiana Senate, but more than a dozen voted against President Trump’s new political map, which aimed to add Republicans in Congress.`\
+https://nytimes.com/video/us/politics/100000010582282/indiana-senators-reject-redistricting-map.html
+
 **Republicans Undercut Johnson, Circumventing Him to Force Votes**\
 `The speaker has repeatedly lost his grip on the House floor thanks to a once rare parliamentary maneuver that G.O.P. members are increasingly using to force action on legislation.`\
 https://nytimes.com/2025/12/11/us/politics/republicans-undercut-speaker-johnson.html
