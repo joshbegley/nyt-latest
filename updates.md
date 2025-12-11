@@ -1,3 +1,7 @@
+**Smithsonian Returns Three Khmer Artifacts Thought Looted to Cambodia**\
+`Museum and Cambodian officials said they jointly investigated the provenance of the objects and found sufficient evidence to suggest they had been stolen.`\
+https://nytimes.com/2025/12/11/arts/smithsonian-returns-khmer-artifacts-looted-cambodia.html
+
 **What Teenagers Are Saying About Gratitude, Winter Blues and ‘Rage Bait’**\
 `At the end of the year, students share what they’re thankful for, discuss the good and bad of winter, and debate the Oxford Word of the Year.`\
 https://nytimes.com/2025/12/11/learning/what-teenagers-are-saying-about-gratitude-winter-blues-and-rage-bait.html
