@@ -1,3 +1,15 @@
+**Grand Slam Track files for bankruptcy, vendors face huge losses**\
+`Michael Johnson's new-look competition still owes some vendors over $1 million while only having $0-$50,000 in assets.`\
+https://nytimes.com/athletic/6882206/2025/12/11/grand-slam-track-bankruptcy-johnson/
+
+**Russia Warns Poland Over Arrest of a Researcher Wanted by Ukraine**\
+`Poland detained a Russian archaeologist who works on an ancient site in Crimea, which Russia seized in 2014. Ukraine calls the work illegal.`\
+https://nytimes.com/2025/12/11/world/europe/russia-threat-poland-archaeologist.html
+
+**Ravens sign DT Travis Jones to 3-year extension**\
+`Jones' deal comes a week after Baltimore signed tight end Mark Andrews to a three-year extension.`\
+https://nytimes.com/athletic/6882267/2025/12/11/ravens-travis-jones-extension/
+
 **Mike Lindell, MyPillow Founder, Announces Run for Minnesota Governor**\
 `He is a close ally of President Trump and has been a leading proponent of the election denial movement, which falsely claims that voting machines are often rigged.`\
 https://nytimes.com/2025/12/11/us/politics/mypillow-mike-lindell-minnesota-governor-election.html
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/6882232/2025/12/11/sharks-vs-maple-leafs-stream-how
 **How to watch Canadiens vs. Penguins: Time, TV, streaming**\
 `Find out how to watch the Montreal Canadiens play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6882231/2025/12/11/canadiens-vs-penguins-stream-how-to-watch-dec-11/
-
-**How to watch Lightning vs. Devils: Time, TV, streaming**\
-`Find out how to watch the Tampa Bay Lightning play the New Jersey Devils, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6882227/2025/12/11/lightning-vs-devils-stream-how-to-watch-dec-11/
-
-**How to watch Golden Knights vs. Flyers: Time, TV, streaming**\
-`Find out how to watch the Vegas Golden Knights play the Philadelphia Flyers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6882225/2025/12/11/golden-knights-vs-flyers-stream-how-to-watch-dec-11/
-
-**How to watch Ducks vs. Islanders: Time, TV, streaming**\
-`Find out how to watch the Anaheim Ducks play the New York Islanders, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6882223/2025/12/11/ducks-vs-islanders-stream-how-to-watch-dec-11/
 

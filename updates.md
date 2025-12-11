@@ -1,3 +1,15 @@
+**Grand Slam Track files for bankruptcy, vendors face huge losses**\
+`Michael Johnson's new-look competition still owes some vendors over $1 million while only having $0-$50,000 in assets.`\
+https://nytimes.com/athletic/6882206/2025/12/11/grand-slam-track-bankruptcy-johnson/
+
+**Russia Warns Poland Over Arrest of a Researcher Wanted by Ukraine**\
+`Poland detained a Russian archaeologist who works on an ancient site in Crimea, which Russia seized in 2014. Ukraine calls the work illegal.`\
+https://nytimes.com/2025/12/11/world/europe/russia-threat-poland-archaeologist.html
+
+**Ravens sign DT Travis Jones to 3-year extension**\
+`Jones' deal comes a week after Baltimore signed tight end Mark Andrews to a three-year extension.`\
+https://nytimes.com/athletic/6882267/2025/12/11/ravens-travis-jones-extension/
+
 **Mike Lindell, MyPillow Founder, Announces Run for Minnesota Governor**\
 `He is a close ally of President Trump and has been a leading proponent of the election denial movement, which falsely claims that voting machines are often rigged.`\
 https://nytimes.com/2025/12/11/us/politics/mypillow-mike-lindell-minnesota-governor-election.html
