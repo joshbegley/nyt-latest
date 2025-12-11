@@ -1,36 +1,36 @@
-**Syria, Rebuilding its Military, Relies on Loyalists and Religious Teaching**\
-`Critics say Syria’s fledgling government is hobbling military preparedness as it redoes the country’s forces from scratch.`\
-https://nytimes.com/2025/12/11/world/middleeast/syria-rebuilding-its-military-relies-on-loyalists-and-religious-teaching.html
+**Charley Hull’s Instagram tells a story. A trip to her English home told the real one**\
+`“People think I’m a party girl," Charley Hull admits, but her actual home life is nothing like that.`\
+https://nytimes.com/athletic/6879101/2025/12/11/womens-golf-charley-hull-family-lpga/
 
-**What happens when an NFL ball goes into the stands? In this case, a lawsuit**\
-`While some teams require fans to return game balls that enter the stands, the NFL says it has no such formal league-wide policy. `\
-https://nytimes.com/athletic/6858943/2025/12/11/nfl-football-stands-lawsuit-jalen-hurts-eagles-giants/
+**As NASCAR trial hits halfway point, defense takes over with stakes still high**\
+`After seven days of the plaintiffs laying out their case, it's the defense's turn. And the future of the sport still hangs in the balance.`\
+https://nytimes.com/athletic/6880877/2025/12/11/nascar-trial-michael-jordan-defense-jury/
 
-**How do players and coaches feel about the NBA Cup in Year 3? We asked**\
-`"There's a little added juice to it knowing what's at stake. If you win, you move on and try to win something," one player said.`\
-https://nytimes.com/athletic/6878535/2025/12/11/nba-cup-las-vegas-reaction/
+**MSG's 5-story ramp is steep price of admission for visiting athletes**\
+`Older buildings have quirks, but none has an entrance quite like the Garden's long, steep ramp that visiting players have to traverse.`\
+https://nytimes.com/athletic/6879514/2025/12/11/msg-madison-square-garden-ramp-knicks-rangers/
 
-**NFL execs react to Colts signing Philip Rivers: 'Fun story. But it's going to be a disaster'**\
-`“Looking at their schedule, it’s not going to work. They have a tough road with really good defenses. Philip is a sitting duck."`\
-https://nytimes.com/athletic/6879121/2025/12/11/colts-philip-rivers-nfl-return-disaster/
+**For the Ravens, a Super Bowl or bust season has morphed into win or else**\
+`Baltimore, which is 6-7 with four games remaining, is just about out of time to prove it can put it all together this season. `\
+https://nytimes.com/athletic/6880242/2025/12/11/ravens-must-win-bengals-afc-north/
 
-**The New York Times International Edition in Print for Friday, Dec. 12, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/12/11/todays-new-york-times-international-edition
+**Who was the worst NHL GM to keep his job for 5 years or more?**\
+`Counting down the 10 worst GMs to get at least five years with the same NHL team.`\
+https://nytimes.com/athletic/6876384/2025/12/11/nhl-worst-general-managers-teams-job/
 
-**Searching for Beauty in the Bloodshed of Bullfighting**\
-`Albert Serra’s documentary “Afternoons of Solitude” seeks something transcendent in a tradition that many people, in Spain and elsewhere, find barbaric.`\
-https://nytimes.com/2025/12/11/movies/afternoons-of-solitude-albert-serra.html
+**For USA and Pochettino, opponent familiarity adds intriguing twist to World Cup draw**\
+`If Turkey emerges from a UEFA playoff, the USMNT will have played all its World Cup group opponents in recent friendlies`\
+https://nytimes.com/athletic/6880670/2025/12/11/usmnt-pochettino-turkey-paraguay-belgium-australia-world-cup/
 
-**We’re Trying to Find a Line the Supreme Court Won’t Cross**\
-`It isn’t easy.`\
-https://nytimes.com/2025/12/11/opinion/supreme-court-slaughter-presidential-power.html
+**Next man up: How NHL teams are navigating key injuries so far**\
+`Let’s take a look at how some teams around the league are navigating key absences, with some doing better than others.`\
+https://nytimes.com/athletic/6879422/2025/12/11/nhl-injuries-teams-adam-fox-jack-hughes/
 
-**Fed Divisions Underscore Challenge for Trump’s Next Chair**\
-`President Trump wants substantially lower borrowing costs, but officials at the central bank appear ready to resist delivering further cuts if the economic backdrop does not warrant it.`\
-https://nytimes.com/2025/12/11/business/fed-divisions-trump.html
+**'Patriot Way' once again obstructing Buffalo Bills' path to glory**\
+`The Patriots didn't take long to once again be a pain in the Buffalo's side.`\
+https://nytimes.com/athletic/6880218/2025/12/11/bills-patriots-afc-east-playoffs/
 
-**Should We Dress Up More When We Travel?**\
-`The U.S. Transportation Department began a civility campaign that encourages travelers to dress with respect. Is it time to ditch the sweatpants and follow suit?`\
-https://nytimes.com/2025/12/11/learning/should-we-dress-up-more-when-we-travel.html
+**Vic's Picks, Week 15: Can Superman ... er, Josh Allen carry the Bills past the Patriots?**\
+`The Bills, like most teams, are flawed, but Allen is playing like a superhero. Meanwhile, can the Ravens and Chiefs turn it around?`\
+https://nytimes.com/athletic/6876597/2025/12/11/nfl-week-15-picks-predictions-betting-2025/
 

@@ -1,3 +1,7 @@
+**Syria, Rebuilding its Military, Relies on Loyalists and Religious Teaching**\
+`Critics say Syria’s fledgling government is hobbling military preparedness as it redoes the country’s forces from scratch.`\
+https://nytimes.com/2025/12/11/world/middleeast/syria-rebuilding-its-military-relies-on-loyalists-and-religious-teaching.html
+
 **What happens when an NFL ball goes into the stands? In this case, a lawsuit**\
 `While some teams require fans to return game balls that enter the stands, the NFL says it has no such formal league-wide policy. `\
 https://nytimes.com/athletic/6858943/2025/12/11/nfl-football-stands-lawsuit-jalen-hurts-eagles-giants/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/11/business/fed-divisions-trump.html
 **Should We Dress Up More When We Travel?**\
 `The U.S. Transportation Department began a civility campaign that encourages travelers to dress with respect. Is it time to ditch the sweatpants and follow suit?`\
 https://nytimes.com/2025/12/11/learning/should-we-dress-up-more-when-we-travel.html
-
-**What might the Patriots target in the NFL Draft? A way-too-early look**\
-`Much like last offseason, New England is likely to be looking for help at edge rusher, on the offensive line and at wide receiver.`\
-https://nytimes.com/athletic/6879480/2025/12/11/2026-nfl-draft-patriots-targets/
 

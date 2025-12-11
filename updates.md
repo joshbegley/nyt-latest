@@ -1,3 +1,7 @@
+**Syria, Rebuilding its Military, Relies on Loyalists and Religious Teaching**\
+`Critics say Syria’s fledgling government is hobbling military preparedness as it redoes the country’s forces from scratch.`\
+https://nytimes.com/2025/12/11/world/middleeast/syria-rebuilding-its-military-relies-on-loyalists-and-religious-teaching.html
+
 **What happens when an NFL ball goes into the stands? In this case, a lawsuit**\
 `While some teams require fans to return game balls that enter the stands, the NFL says it has no such formal league-wide policy. `\
 https://nytimes.com/athletic/6858943/2025/12/11/nfl-football-stands-lawsuit-jalen-hurts-eagles-giants/
