@@ -1,3 +1,11 @@
+**Do the Giants actually have quality defensive ‘pieces’ to build around?**\
+`The picture on defense is cloudy after such a disappointing season. Yes, there is talent, but the 2-11 record speaks for itself. `\
+https://nytimes.com/athletic/6880485/2025/12/11/ny-giants-defensive-pieces-dexter-lawrence-abdul-carter/
+
+**TAFC: Man City pile pressure on Alonso, Giuliani on World Cup, U.S.-Kaiserslautern link**\
+`Today in TAFC: How Manchester City piled the pressure on Alonso, a Giuliani exclusive, and why so many Americans support Kaiserslautern`\
+https://nytimes.com/athletic/6881294/2025/12/11/man-city-real-madrid-champions-league-result/
+
 **'He's never missed a game?': Inside Kevin Byard's unrelenting quest to cement his legacy**\
 `Preparing to play in his 161st consecutive game Sunday, Byard remains on a mission to squeeze the most from his NFL career.`\
 https://nytimes.com/athletic/6879736/2025/12/11/kevin-byard-consecutive-games-played-bears/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6881022/2025/12/11/rangers-power-play-shesterkin-bl
 **Nobel Peace Prize Winner Machado Vows to End Maduro’s Rule in Venezuela**\
 `María Corina Machado reappeared on the global stage as the Trump administration ramped up its pressure campaign against President Nicolás Maduro.`\
 https://nytimes.com/2025/12/11/world/americas/maria-corina-machado-nobel-venezuela-maduro-trump.html
-
-**Chiefs' offense under fire after 6-7 start. Here's how it compares to last season**\
-`Line up the offensive stats, and here's what it tells us when comparing the Chiefs' 12-1 start last year to this year's 6-7 struggle.`\
-https://nytimes.com/athletic/6879685/2025/12/11/chiefs-2025-offense-comparison/
-
-**Ahead of Trump Call, Fighting Between Thailand and Cambodia Intensifies**\
-`The widening scope of the conflict between the two neighbors presents a challenge to President Trump’s tariff diplomacy, which he has brandished as a peacemaking tool.`\
-https://nytimes.com/2025/12/11/world/asia/trump-call-cambodia-thailand.html
 
