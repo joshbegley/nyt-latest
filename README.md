@@ -1,3 +1,11 @@
+**What Teenagers Are Saying About Gratitude, Winter Blues and ‘Rage Bait’**\
+`At the end of the year, students share what they’re thankful for, discuss the good and bad of winter, and debate the Oxford Word of the Year.`\
+https://nytimes.com/2025/12/11/learning/what-teenagers-are-saying-about-gratitude-winter-blues-and-rage-bait.html
+
+**Bessent Accelerates Regulation Overhaul to Jumpstart Growth**\
+`The Treasury Secretary unveiled changes to the Financial Stability Oversight Council to ease “overregulation.”`\
+https://nytimes.com/2025/12/11/us/politics/bessent-regulation.html
+
 **What it means that Michigan fired Sherrone Moore 'for cause,' and the contract implications**\
 `By firing Moore for cause, Michigan will not owe Moore any of the money remaining on his five-year contract.`\
 https://nytimes.com/athletic/6882673/2025/12/11/michigan-sherrone-moore-contract-for-cause/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6882470/2025/12/11/chicharito-chivas-exit-mexico-ja
 **Small Earthquake Shakes Area Near Los Angeles**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/12/11/us/earthquake-fillmore-los-angeles.html
-
-**Can OpenAI Respond After Google Closes the A.I. Technology Gap?**\
-`A new technology release from OpenAI is supposed to top what Google recently produced. It also shows OpenAI is engaged in a new and more difficult competition.`\
-https://nytimes.com/2025/12/11/technology/openai-google-ai-technology-gap.html
-
-**Olympic ski champion Michelle Gisin faces neck surgery after serious downhill accident**\
-`The two-time Olympic gold medalist's injury deals a major blow to Team Switzerland ahead of the Milano Cortina Games.`\
-https://nytimes.com/athletic/6882585/2025/12/11/michelle-gisin-olympics-downhill-accident-neck-surgery/
 

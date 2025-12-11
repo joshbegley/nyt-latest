@@ -1,3 +1,15 @@
+**What it means that Michigan fired Sherrone Moore 'for cause,' and the contract implications**\
+`By firing Moore for cause, Michigan will not owe Moore any of the money remaining on his five-year contract.`\
+https://nytimes.com/athletic/6882673/2025/12/11/michigan-sherrone-moore-contract-for-cause/
+
+**Until Saturday: Michigan suddenly starting over**\
+`Until Saturday is The Athletic's free college football newsletter.`\
+https://nytimes.com/athletic/6882713/2025/12/11/sherrone-moore-fired-michigan-until-saturday/
+
+**Will the Self-Driving Cars of the Future Lower Emissions?**\
+`Waymo is rapidly expanding in the U.S. But experts say there are big questions about how self-driving cars could affect traffic and greenhouse gas emissions.`\
+https://nytimes.com/2025/12/11/climate/self-driving-cars-emissions.html
+
 **Lecturer Sanctioned Over MAGA White Supremacy Lesson Is Back in Class**\
 `Some disciplinary measures have been imposed on the lecturer, including being monitored as she teaches a class on diversity and social justice.`\
 https://nytimes.com/2025/12/11/us/indiana-university-professor-sanctioned-maga-white-supremacy-lesson.html
