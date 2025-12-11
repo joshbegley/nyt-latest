@@ -1,3 +1,11 @@
+**Sullen Joe Burrow talks injuries and trying to find fun in frustrating Bengals season**\
+`The quarterback was reflective in Wednesday's session with the media following Sunday's loss amid a tumultuous season.`\
+https://nytimes.com/athletic/6880903/2025/12/10/joe-burrow-bengals-injuries-finding-fun/
+
+**USA defeats Canada to win 2025 Rivalry Series**\
+`The United States women’s national hockey team won the 2025 Rivalry Series on Wednesday with yet another dominant win over Team Canada.`\
+https://nytimes.com/athletic/6876887/2025/12/10/usa-canada-2025-rivalry-series/
+
 **Rob Gronkowski says one scenario could maybe get him out of retirement**\
 `The four-time Super Bowl champion tight end was asked if he might follow Philip Rivers' lead and put on an NFL jersey again.`\
 https://nytimes.com/athletic/6880727/2025/12/10/rob-gronkowski-retirement-scenario-return/

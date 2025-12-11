@@ -1,3 +1,11 @@
+**Sullen Joe Burrow talks injuries and trying to find fun in frustrating Bengals season**\
+`The quarterback was reflective in Wednesday's session with the media following Sunday's loss amid a tumultuous season.`\
+https://nytimes.com/athletic/6880903/2025/12/10/joe-burrow-bengals-injuries-finding-fun/
+
+**USA defeats Canada to win 2025 Rivalry Series**\
+`The United States women’s national hockey team won the 2025 Rivalry Series on Wednesday with yet another dominant win over Team Canada.`\
+https://nytimes.com/athletic/6876887/2025/12/10/usa-canada-2025-rivalry-series/
+
 **Rob Gronkowski says one scenario could maybe get him out of retirement**\
 `The four-time Super Bowl champion tight end was asked if he might follow Philip Rivers' lead and put on an NFL jersey again.`\
 https://nytimes.com/athletic/6880727/2025/12/10/rob-gronkowski-retirement-scenario-return/
@@ -21,12 +29,4 @@ https://nytimes.com/2025/12/10/sports/rare-horse-breeds-preservation.html
 **In the Sport of Driving, Four Horses Pull a Cart Around an Arena. Quickly.**\
 `The spectacle is reminiscent of the movie “Ben Hur,” with high-speed action and roaring crowds. Teamwork is crucial.`\
 https://nytimes.com/2025/12/10/sports/horse-racing/chi-geneva-horses-driving.html
-
-**What a Dog Might Do**\
-`Kevin Curry wants us to really think about his puzzle.`\
-https://nytimes.com/2025/12/10/crosswords/daily-puzzle-2025-12-11.html
-
-**Tennessee cornerback Jermod McCoy, potential top-10 pick, declares for NFL Draft**\
-`Jermod McCoy's medicals ultimately will determine whether or not he finishes as a top-20 pick in the 2026 NFL Draft.`\
-https://nytimes.com/athletic/6880616/2025/12/10/nfl-draft-2026-jermod-mccoy-tennessee-scouting-report/
 
