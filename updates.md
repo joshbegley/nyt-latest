@@ -1,3 +1,7 @@
+**Tennessee cornerback Jermod McCoy, potential top-10 pick, declares for NFL Draft**\
+`Jermod McCoy's medicals ultimately will determine whether or not he finishes as a top-20 pick in the 2026 NFL Draft.`\
+https://nytimes.com/athletic/6880616/2025/12/10/nfl-draft-2026-jermod-mccoy-tennessee-scouting-report/
+
 **ICE Tells Watchdog It Has No Videos to Release of Chicago Operations**\
 `The response to an information request contradicted the administration’s public testimony and raised concerns that it may be trying to evade oversight.`\
 https://nytimes.com/2025/12/10/us/politics/ice-bodycam-video-chicago.html
