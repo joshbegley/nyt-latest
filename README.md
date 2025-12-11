@@ -1,3 +1,15 @@
+**Must-See Moments From the N.B.A. Cup**\
+`On Wednesday, the Oklahoma Thunder led by 53 points at one point on the way to a win over the Phoenix Suns. And the San Antonio Spurs, without Victor Wembanyama, went to Los Angeles and beat the Lakers.`\
+https://nytimes.com/video/sports/basketball/100000010580507/must-see-moments-from-the-nba-cup.html
+
+**Canada Closes Highways to Vancouver After Flooding and Landslides**\
+`The atmospheric river over the Pacific Northwest brought a deluge to British Columbia, forcing road closures and evacuations in Canada.`\
+https://nytimes.com/2025/12/11/world/canada/british-columbia-vancouver-floods.html
+
+**Champions League 2025-26 Projections: Who will lift the trophy in Budapest on May 30?**\
+`Our Opta-powered Champions League projections update after each matchday`\
+https://nytimes.com/athletic/6630404/2025/12/11/champions-league-projections-2025-26/
+
 **Michigan Football Coach Is Detained After Being Fired**\
 `The University of Michigan fired Sherrone Moore earlier in the day, an abrupt end to his career there, one of the highest profile jobs in college football.`\
 https://nytimes.com/2025/12/11/sports/ncaafootball/sherrone-moore-michigan-football-coach.html
@@ -21,16 +33,4 @@ https://nytimes.com/2025/12/11/crosswords/spelling-bee-forum.html
 **What we're hearing about Salah's future – and what would be best for his brand?**\
 `Analysing where the unhappy forward's future could lie and the markets that could be most lucrative`\
 https://nytimes.com/athletic/6878776/2025/12/11/mohamed-salah-transfer-options/
-
-**María Corina Machado Appears in Oslo After a Year in Hiding**\
-`María Corina Machado, Venezuela’s opposition leader, greeted supporters in the Norwegian capital, hours after missing the ceremony at which she was awarded the Nobel Peace Prize.`\
-https://nytimes.com/video/world/americas/100000010580235/maria-corina-machado-venezuela-nobel.html
-
-**How to watch Dolphins vs. Steelers: Time, TV, streaming**\
-`Find out how to watch the Miami Dolphins play the Pittsburgh Steelers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6881186/2025/12/11/dolphins-vs-steelers-stream-how-to-watch-dec-15/
-
-**Word of the Day: beatific**\
-`This word has appeared in 17 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/12/11/learning/word-of-the-day-beatific.html
 
