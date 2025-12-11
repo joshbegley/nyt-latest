@@ -1,3 +1,7 @@
+**Hundreds Quarantined in South Carolina as Measles Spreads**\
+`The outbreak shows no signs of slowing, likely because of the affected area’s “lower-than-hoped-for vaccination coverage,” a state health official said.`\
+https://nytimes.com/2025/12/11/well/measles-cases-outbreak-south-carolina.html
+
 **U.S. Helped to Weaken Report at U.N. Environment Talks, Participants Say**\
 `American officials joined Russia, Saudi Arabia and Iran in objecting to language on fossils fuels, biodiversity and plastics in a report that was three years in the making.`\
 https://nytimes.com/2025/12/11/climate/unep-climate-report-trump-administration.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/11/sports/thomas-o-hicks-dead.html
 **What each World Cup match costs to attend after FIFA raises ticket prices post-draw**\
 `For the first time, tickets are available to specific World Cup games, and the prices are largely on a significant rise`\
 https://nytimes.com/athletic/6882370/2025/12/11/world-cup-tickets-every-game-price-fifa/
-
-**Tiny Love Stories: ‘He Invited Me In for a Glass of Wine’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://nytimes.com/2025/12/11/style/tiny-modern-love-stories-he-invited-me-in-for-a-glass-of-wine.html
 
