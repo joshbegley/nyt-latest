@@ -1,4 +1,4 @@
-**Rob Gronkowski says this one scenario could maybe get him out of retirement**\
+**Rob Gronkowski says one scenario could maybe get him out of retirement**\
 `The four-time Super Bowl champion tight end was asked if he might follow Philip Rivers' lead and put on an NFL jersey again.`\
 https://nytimes.com/athletic/6880727/2025/12/10/rob-gronkowski-retirement-scenario-return/
 
