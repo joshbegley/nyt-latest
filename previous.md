@@ -1,3 +1,19 @@
+**NFL Draft 2026 underclassman tracker: Which college football stars have declared early?**\
+`We're tracking all non-seniors who have publicly acknowledged their intention to declare for the 2026 NFL Draft.`\
+https://nytimes.com/athletic/6878979/2025/12/11/nfl-draft-2026-college-football-underclassman-tracker/
+
+**NASCAR reaches settlement with 23XI, Front Row to end year-long legal saga**\
+`NASCAR on Thursday reached a deal with 23XI Racing and Front Row Motorsports to end the ongoing litigation. Terms were not yet known.`\
+https://nytimes.com/athletic/6881791/2025/12/11/nascar-settlement-23xi-michael-jordan-trial-lawsuit/
+
+**MLB winter meetings still hold value in texting era but may not return in 2026**\
+`The winter meetings are MLB's annual showcase event. But labor issues may mean it does not return next winter. `\
+https://nytimes.com/athletic/6880754/2025/12/11/mlb-winter-meetings-2026-canceled/
+
+**Jayden Daniels hasn't been what he was as a rookie. But there's more to the story**\
+`Last season, the Commanders had a savior. This season, Jayden Daniels has appeared more ordinary. What has changed?`\
+https://nytimes.com/athletic/6881626/2025/12/11/jayden-daniels-regression-injuries-commanders/
+
 **Watch out, Warriors. The Thunder are threatening the NBA's regular-season wins record**\
 `The best NBA regular season ever is brewing in Oklahoma City, but can they actually break the record?`\
 https://nytimes.com/athletic/6879789/2025/12/11/okc-thunder-nba-history-win-record/
@@ -17,20 +33,4 @@ https://nytimes.com/2025/12/11/science/malaria-usaid-mosquitoes.html
 **This Isn’t the First Time the Fed Has Struggled for Independence**\
 `The Trump administration is threatening the Fed’s autonomy, which the central bank regained with the Treasury-Fed accord in 1951.`\
 https://nytimes.com/2025/12/11/business/federal-reserve-independence-trump.html
-
-**New Jersey Devils' Timo Meier takes leave to deal with family matter**\
-`Meier has scored 11 goals and 23 points in 30 games this season. He is their leading goal scorer and third on the team in points.`\
-https://nytimes.com/athletic/6881855/2025/12/11/timo-meier-new-jersey-devils-leave/
-
-**Nike launches NIL collective with LSU athletes**\
-`The renowned footwear and apparel company announced Thursday that a new approach to partnering with college athletes is underway.`\
-https://nytimes.com/athletic/6879438/2025/12/11/nike-lsu-nil-collective-partnership/
-
-**Bulgaria’s Prime Minister Resigns in the Face of Mass Protests**\
-`Prime Minister Rosen Zhelyazkov announced he was stepping down, becoming the latest leader to leave in the past four years, amid public anger over corruption and democratic dysfunction.`\
-https://nytimes.com/2025/12/11/world/europe/bulgaria-prime-minister-resigns-protests.html
-
-**Senate Expected to Deadlock Over Health Care in Dueling Votes**\
-`Neither Democrats’ plan to extend expiring Affordable Care Act subsidies nor Republicans’ proposal to replace them with direct payments for those who buy basic insurance was expected to advance.`\
-https://nytimes.com/2025/12/11/us/politics/health-care-senate-affordable-care-act.html
 
