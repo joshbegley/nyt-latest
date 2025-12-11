@@ -1,3 +1,7 @@
+**Michigan Football Coach Is Detained After Being Fired**\
+`The University of Michigan fired Sherrone Moore earlier in the day, an abrupt end to his career there, one of the highest profile jobs in college football.`\
+https://nytimes.com/2025/12/11/sports/ncaafootball/sherrone-moore-michigan-football-coach.html
+
 **New York Was a Leader on Climate Issues. Under Hochul, Things Changed.**\
 `Faced with an affordability crisis and rising energy demands, Gov. Kathy Hochul has slowed progress on New York’s efforts to fight climate change.`\
 https://nytimes.com/2025/12/11/nyregion/kathy-hochul-new-york-climate-issues.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6881186/2025/12/11/dolphins-vs-steelers-stream-how-
 **Word of the Day: beatific**\
 `This word has appeared in 17 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/12/11/learning/word-of-the-day-beatific.html
-
-**Late Night Tries to Decipher Another Rambling Trump Speech**\
-`Among other things, President Trump claimed to be a big hit with Black voters. But Desi Lydic says her potato salad is getting better numbers.`\
-https://nytimes.com/2025/12/11/arts/television/late-night-desi-lydic-trump-speech.html
 
