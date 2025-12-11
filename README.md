@@ -1,36 +1,36 @@
-**Oil Tanker Seizure Hits Venezuela’s Lifeblood. Here’s What to Know.**\
-`Seizures of more tankers could put a stranglehold on Venezuela’s economy, which is exceptionally dependent on oil to keep the government running and pay for basic necessities.`\
-https://nytimes.com/2025/12/11/world/americas/oil-tanker-venezuela-economy-chevron.html
+**A Grand Jury Again Declines to Re-Indict Letitia James**\
+`It was a striking rejection of the administration’s retribution campaign.`\
+https://nytimes.com/2025/12/11/us/politics/grand-jury-letitia-james.html
 
-**Amnesty International Accuses Hamas of War Crimes in 2023 Attack on Israel**\
-`The rights group said it had documented atrocities committed by Palestinian armed groups, including murder, imprisonment, torture and sexual violence.`\
-https://nytimes.com/2025/12/11/world/middleeast/amnesty-international-hamas-war-crimes-israel.html
+**How to watch Celtics vs. Bucks: Time, TV, streaming**\
+`Find out how to watch the Boston Celtics play the Milwaukee Bucks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6882844/2025/12/11/celtics-vs-bucks-stream-how-to-watch-dec-11/
 
-**How to watch Iowa vs. Iowa State men's basketball: Time, TV, streaming**\
-`Find out how to watch the Iowa Hawkeyes play the Iowa State Cyclones, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6882780/2025/12/11/iowa-vs-iowa-state-stream-how-to-watch-dec-11/
+**How to watch Nuggets vs. Kings: Time, TV, streaming**\
+`Find out how to watch the Denver Nuggets play the Sacramento Kings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6882843/2025/12/11/nuggets-vs-kings-stream-how-to-watch-dec-11/
 
-**Smithsonian Returns Three Khmer Artifacts Thought Looted to Cambodia**\
-`Museum and Cambodian officials said they jointly investigated the provenance of the objects and found sufficient evidence to suggest they had been stolen.`\
-https://nytimes.com/2025/12/11/arts/smithsonian-returns-khmer-artifacts-looted-cambodia.html
+**How to watch Clippers vs. Rockets: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Clippers play the Houston Rockets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6882841/2025/12/11/clippers-vs-rockets-stream-how-to-watch-dec-11/
 
-**What Teenagers Are Saying About Gratitude, Winter Blues and ‘Rage Bait’**\
-`At the end of the year, students share what they’re thankful for, discuss the good and bad of winter, and debate the Oxford Word of the Year.`\
-https://nytimes.com/2025/12/11/learning/what-teenagers-are-saying-about-gratitude-winter-blues-and-rage-bait.html
+**How to watch Panthers vs. Avalanche: Time, TV, streaming**\
+`Find out how to watch the Florida Panthers play the Colorado Avalanche, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6882838/2025/12/11/panthers-vs-avalanche-stream-how-to-watch-dec-11/
 
-**Bessent Accelerates Regulation Overhaul to Jumpstart Growth**\
-`The Treasury Secretary unveiled changes to the Financial Stability Oversight Council to ease “overregulation.”`\
-https://nytimes.com/2025/12/11/us/politics/bessent-regulation.html
+**How to watch Trail Blazers vs. Pelicans: Time, TV, streaming**\
+`Find out how to watch the Portland Trail Blazers play the New Orleans Pelicans, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6882836/2025/12/11/trail-blazers-vs-pelicans-stream-how-to-watch-dec-11/
 
-**What it means that Michigan fired Sherrone Moore 'for cause,' and the contract implications**\
-`By firing Moore for cause, Michigan will not owe Moore any of the money remaining on his five-year contract.`\
-https://nytimes.com/athletic/6882673/2025/12/11/michigan-sherrone-moore-contract-for-cause/
+**How to watch Bruins vs. Jets: Time, TV, streaming**\
+`Find out how to watch the Boston Bruins play the Winnipeg Jets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6882835/2025/12/11/bruins-vs-jets-stream-how-to-watch-dec-11/
 
-**Until Saturday: Michigan suddenly starting over**\
-`Until Saturday is The Athletic's free college football newsletter.`\
-https://nytimes.com/athletic/6882713/2025/12/11/sherrone-moore-fired-michigan-until-saturday/
+**How to watch Stars vs. Wild: Time, TV, streaming**\
+`Find out how to watch the Dallas Stars play the Minnesota Wild, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6882830/2025/12/11/stars-vs-wild-stream-how-to-watch-dec-11/
 
-**Will the Self-Driving Cars of the Future Lower Emissions?**\
-`Waymo is rapidly expanding in the U.S. But experts say there are big questions about how self-driving cars could affect traffic and greenhouse gas emissions.`\
-https://nytimes.com/2025/12/11/climate/self-driving-cars-emissions.html
+**How to watch Blues vs. Predators: Time, TV, streaming**\
+`Find out how to watch the St. Louis Blues play the Nashville Predators, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6882831/2025/12/11/blues-vs-predators-stream-how-to-watch-dec-11/
 
