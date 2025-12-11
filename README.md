@@ -1,3 +1,7 @@
+**Venezuelan Dissident Appears in Norway After Missing Nobel Ceremony**\
+`María Corina Machado, who spent over a year in hiding in Venezuela, greeted supporters in Oslo, hours after her daughter accepted the Nobel Peace Prize in her name.`\
+https://nytimes.com/2025/12/10/world/americas/maria-corina-machado-venezuela-nobel.html
+
 **A Rule Disqualified Equestrians Who Bloodied Their Horses. Top Riders Fought It.**\
 `In January, the blood rule, which ousted riders if their horses bled during competition, will change to a system of warnings and suspensions.`\
 https://nytimes.com/2025/12/10/sports/equestrian-sport-blood-rule-changing.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/10/us/politics/ice-bodycam-video-chicago.html
 **Warriors' Steph Curry returns to practice after 5 game absence**\
 `In 16 games played this season, Curry is averaging 27.9 points, 3.7 rebounds and 4.0 assists per game.`\
 https://nytimes.com/athletic/6880712/2025/12/10/steph-curry-returns-practice-warriors/
-
-**A lot of talk, little action at Winter Meetings: What we’re hearing about the Cubs**\
-`Cubs president of baseball operations Jed Hoyer left winter meetings without making a big move.`\
-https://nytimes.com/athletic/6880509/2025/12/10/what-were-hearing-cubs-winter-meetings/
 
