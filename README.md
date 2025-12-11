@@ -1,3 +1,7 @@
+**Rob Gronkowski says this one scenario could maybe get him out of retirement**\
+`The four-time Super Bowl champion tight end was asked if he might follow Philip Rivers' lead and put on an NFL jersey again.`\
+https://nytimes.com/athletic/6880727/2025/12/10/rob-gronkowski-retirement-scenario-return/
+
 **Venezuelan Dissident Appears in Norway After Missing Nobel Ceremony**\
 `María Corina Machado, who spent over a year in hiding in Venezuela, greeted supporters in Oslo, hours after her daughter accepted the Nobel Peace Prize in her name.`\
 https://nytimes.com/2025/12/10/world/americas/maria-corina-machado-venezuela-nobel.html
@@ -25,12 +29,4 @@ https://nytimes.com/2025/12/10/crosswords/daily-puzzle-2025-12-11.html
 **Tennessee cornerback Jermod McCoy, potential top-10 pick, declares for NFL Draft**\
 `Jermod McCoy's medicals ultimately will determine whether or not he finishes as a top-20 pick in the 2026 NFL Draft.`\
 https://nytimes.com/athletic/6880616/2025/12/10/nfl-draft-2026-jermod-mccoy-tennessee-scouting-report/
-
-**ICE Tells Watchdog It Has No Videos to Release of Chicago Operations**\
-`The response to an information request contradicted the administration’s public testimony and raised concerns that it may be trying to evade oversight.`\
-https://nytimes.com/2025/12/10/us/politics/ice-bodycam-video-chicago.html
-
-**Warriors' Steph Curry returns to practice after 5 game absence**\
-`In 16 games played this season, Curry is averaging 27.9 points, 3.7 rebounds and 4.0 assists per game.`\
-https://nytimes.com/athletic/6880712/2025/12/10/steph-curry-returns-practice-warriors/
 
