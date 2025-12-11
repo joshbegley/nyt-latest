@@ -1,3 +1,15 @@
+**Turkey’s Largest City Is Threatened by a Lurking Seismic Catastrophe**\
+`Escalating activity along a fault line in the Sea of Marmara is moving closer to Istanbul, seismologists warn.`\
+https://nytimes.com/2025/12/11/science/turkey-earthquake-istanbul-fault-line.html
+
+**A Hot Plant’s Mysterious Signal Makes Beetles Pollinate It**\
+`Ancient plants called cycads say “come hither” in infrared.`\
+https://nytimes.com/2025/12/11/science/plants-heat-infrared-cycads-beetles.html
+
+**5 New Books We Love This Week**\
+`Reading recommendations from critics and editors at The New York Times.`\
+https://nytimes.com/2025/12/11/books/review/new-recommended-books.html
+
 **Hundreds Quarantined in South Carolina as Measles Spreads**\
 `The outbreak shows no signs of slowing, likely because of the affected area’s “lower-than-hoped-for vaccination coverage,” a state health official said.`\
 https://nytimes.com/2025/12/11/well/measles-cases-outbreak-south-carolina.html
