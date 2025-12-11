@@ -1,19 +1,3 @@
-**African Treasures Return Home**\
-`The Benin Bronzes, taken from what is now Nigeria, have become a symbol in the effort to return looted artifacts to their home countries.`\
-https://nytimes.com/2025/12/11/world/africa-art-nigeria-bulgaria-venezuela.html
-
-**Where to Eat Like Zohran Mamdani**\
-`On the culinary trail of New York City’s mayor elect.`\
-https://nytimes.com/2025/12/11/dining/where-to-eat-like-zohran-mamdani.html
-
-**Scoop City: Why tonight's NFC South game is actually worth watching**\
-`Previewing Falcons (4-9) at Buccaneers (7-6), along with the candid Troy Aikman and an NFC East hangover for the Eagles and Commanders`\
-https://nytimes.com/athletic/6882875/2025/12/11/matchups-falcons-buccaneers-nfc-east-struggles/
-
-**I Think This Poem Is Kind of Into You**\
-`Our critic A.O. Scott feels the heat of a wintry lyric by the Nobel laureate Louise Glück.`\
-https://nytimes.com/interactive/2025/12/11/books/louise-gluck-poem-early-december-croton-hudson.html
-
 **Huijsen expected to return to Real Madrid squad vs. Alaves**\
 `The centre-back's anticipated return comes as Madrid contend with a number of defensive absences.`\
 https://nytimes.com/athletic/6882709/2025/12/11/dean-huijsen-real-madrid-injury-update/
@@ -29,4 +13,24 @@ https://nytimes.com/2025/12/11/world/americas/oil-tanker-venezuela-economy-chevr
 **In Pursuit of Repigmentation**\
 `The first and only FDA-approved prescription treatment for nonsegmental vitiligo repigmentation can offer people a path forward.`\
 https://nytimes.com/paidpost/incyte/in-pursuit-of-repigmentation.html
+
+**A Grand Jury Again Declines to Re-Indict Letitia James**\
+`It was a striking rejection of the administration’s retribution campaign.`\
+https://nytimes.com/2025/12/11/us/politics/grand-jury-letitia-james.html
+
+**How to watch Celtics vs. Bucks: Time, TV, streaming**\
+`Find out how to watch the Boston Celtics play the Milwaukee Bucks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6882844/2025/12/11/celtics-vs-bucks-stream-how-to-watch-dec-11/
+
+**How to watch Nuggets vs. Kings: Time, TV, streaming**\
+`Find out how to watch the Denver Nuggets play the Sacramento Kings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6882843/2025/12/11/nuggets-vs-kings-stream-how-to-watch-dec-11/
+
+**How to watch Clippers vs. Rockets: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Clippers play the Houston Rockets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6882841/2025/12/11/clippers-vs-rockets-stream-how-to-watch-dec-11/
+
+**How to watch Panthers vs. Avalanche: Time, TV, streaming**\
+`Find out how to watch the Florida Panthers play the Colorado Avalanche, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6882838/2025/12/11/panthers-vs-avalanche-stream-how-to-watch-dec-11/
 
