@@ -1,3 +1,11 @@
+**Newcastle were left questioning their own mentality in Leverkusen — and it's Sunderland next**\
+`Newcastle drew 2-2 against Leverkusen on Wednesday night`\
+https://nytimes.com/athletic/6878242/2025/12/11/newcastle-leverkusen-sunderland-analysis/
+
+**Guardiola enjoys the sweet smell of a very different type of victory in Madrid**\
+`The Madrid media regularly accused the ex-Barcelona manager of 'peeing perfume'. Things are different now but his team are no less effective`\
+https://nytimes.com/athletic/6880723/2025/12/11/pep-guardiola-manchester-city-real-madrid/
+
 **Gabriel Jesus's Arsenal return was emotional - but he could be exactly what they need**\
 `Gabriel Jesus played for Arsenal's first-team for the first time in 11 months against Club Brugge`\
 https://nytimes.com/athletic/6880506/2025/12/11/arsenal-gabriel-jesus-return-club-brugge/
@@ -6,7 +14,7 @@ https://nytimes.com/athletic/6880506/2025/12/11/arsenal-gabriel-jesus-return-clu
 ``\
 https://nytimes.com/issue/todayspaper/2025/12/11/todays-new-york-times
 
-**What Trump Gets Right About Europe**\
+**Trump Is Not Attacking Europe. He’s Attacking Something Else.**\
 `It’s an actual place, not an arbitrarily bounded zone.`\
 https://nytimes.com/2025/12/11/opinion/national-security-strategy-us-europe.html
 
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6875042/2025/12/11/hull-wrexham-parkinson/
 **Women's Champions League: Barca without key players, Man Utd's selection gamble**\
 `Barcelona and OL Lyonnes both confirmed their automatic progression to the Champions League quarter-finals`\
 https://nytimes.com/athletic/6880021/2025/12/11/womens-champions-league-briefing/
-
-**Should Wolves stick or twist?**\
-`The financial decision seems straightforward, but the balance sheet cannot be the only consideration when Wolves decide their January plans`\
-https://nytimes.com/athletic/6874273/2025/12/11/wolves-rob-edwards-relegation-plans/
-
-**Meet the 31-year-old coach who has already worked with Guardiola, Kompany and Bellamy**\
-`Piet Cremers began coaching at just 14 years old and has enjoyed a fast-track career. Next up, at age 31, could be the World Cup with Wales`\
-https://nytimes.com/athletic/6867218/2025/12/11/meet-the-31-year-old-coach-who-has-already-worked-with-guardiola-kompany-and-bellamy/
 
