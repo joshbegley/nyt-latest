@@ -1,3 +1,7 @@
+**Smithsonian Returns Three Khmer Artifacts Thought Looted to Cambodia**\
+`Museum and Cambodian officials said they jointly investigated the provenance of the objects and found sufficient evidence to suggest they had been stolen.`\
+https://nytimes.com/2025/12/11/arts/smithsonian-returns-khmer-artifacts-looted-cambodia.html
+
 **What Teenagers Are Saying About Gratitude, Winter Blues and ‘Rage Bait’**\
 `At the end of the year, students share what they’re thankful for, discuss the good and bad of winter, and debate the Oxford Word of the Year.`\
 https://nytimes.com/2025/12/11/learning/what-teenagers-are-saying-about-gratitude-winter-blues-and-rage-bait.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/11/business/media/carl-erik-rinsch-netflix-fraud.htm
 **Chicharito cements his lackluster Chivas return with an unceremonious exit**\
 `Chicharito is leaving Chivas, the boyhood club he had returned to for a stint that wound up ending with a whimper`\
 https://nytimes.com/athletic/6882470/2025/12/11/chicharito-chivas-exit-mexico-javier-hernandez/
-
-**Small Earthquake Shakes Area Near Los Angeles**\
-`View the location of the quake’s epicenter and shake area.`\
-https://nytimes.com/interactive/2025/12/11/us/earthquake-fillmore-los-angeles.html
 
