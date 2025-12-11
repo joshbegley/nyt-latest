@@ -1,3 +1,11 @@
+**Betting for (by) dummies: Loving the totals in Browns-Bears, Army-Navy**\
+`Jon Greenberg and Zac Jackson make their weekly NCAA and NFL picks. This week, they had some fun with totals and futures bets.`\
+https://nytimes.com/athletic/6882690/2025/12/11/best-bets-browns-bears-army-navy-indiana/
+
+**How soaring World Cup ticket prices compare to Super Bowl, other major events**\
+`The 2026 World Cup final could be the single most lucrative match in soccer history.`\
+https://nytimes.com/athletic/6683842/2025/12/11/world-cup-ticket-prices-usmnt-super-bowl/
+
 **NFL best bets Week 15: A Patriots-Bills pick and 4 over-unders**\
 `Austin Mock had his first losing week in quite some time, and is aiming to get back in the green with five bets.`\
 https://nytimes.com/athletic/6882833/2025/12/11/nfl-best-bets-week-15-patriots-bills/
@@ -25,8 +33,4 @@ https://nytimes.com/athletic/6882919/2025/12/11/nigeria-afcon-squad-news/
 **Former NBA player Jason Collins announces he has Stage 4 brain cancer**\
 `Collins started experiencing symptoms while trying to pack for a US Open trip.`\
 https://nytimes.com/athletic/6882693/2025/12/11/jason-collins-nba-brain-cancer/
-
-**U.S. Says Ex-C.E.O. of Abercrombie Is Fit for Trial, Despite Diagnosis**\
-`The former chief executive, Michael S. Jeffries, was charged with running an international sex-trafficking ring. An earlier ruling found that he could not be tried because he had Alzheimer’s.`\
-https://nytimes.com/2025/12/11/nyregion/michael-jeffries-abercrombie-trial-dementia.html
 
