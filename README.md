@@ -1,3 +1,7 @@
+**Gavin Newsom Is Embracing Contradiction**\
+`Gov. Gavin Newsom has resisted the Trump administration with his push to redistrict California, while also inviting major right-wing figures like Steve Bannon and Charlie Kirk on his podcast. In a recent conversation on “The Ezra Klein Show,” he explains why he’s willing to take these risks.`\
+https://nytimes.com/video/opinion/100000010559552/gavin-newsom-is-embracing-contradiction.html
+
 **A.J. Preller says Fernando Tatis Jr. is untouchable, even with Padres' aims unclear**\
 `Despite all the Padres’ private and public messaging, Preller said other teams have not stopped asking about Tatis.`\
 https://nytimes.com/athletic/6880374/2025/12/10/aj-preller-fernando-tatis-untouchable-padres-goals/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/10/us/politics/trump-preoccupation-biden.html
 **First Edwin Díaz, now Pete Alonso: Where do Mets go from here?**\
 `The Mets still have two superstar players in Juan Soto and Francisco Lindor, but is that enough to contend?`\
 https://nytimes.com/athletic/6880071/2025/12/10/where-do-mets-go-pete-alonso-edwin-diaz/
-
-**Michigan interim coach Biff Poggi: 'The most interesting man in coaching'**\
-`Biff Poggi was an adviser for Jim Harbaugh before working under Sherrone Moore. One colleague said of Poggi: "His heart is all in it."`\
-https://nytimes.com/athletic/6880279/2025/12/10/michigan-biff-poggi-interim-head-coach/
 
