@@ -6,7 +6,7 @@ https://nytimes.com/athletic/6880506/2025/12/11/arsenal-gabriel-jesus-return-clu
 ``\
 https://nytimes.com/issue/todayspaper/2025/12/11/todays-new-york-times
 
-**What Trump Gets Right About Europe**\
+**Trump Is Not Attacking Europe. He’s Attacking Something Else.**\
 `It’s an actual place, not an arbitrarily bounded zone.`\
 https://nytimes.com/2025/12/11/opinion/national-security-strategy-us-europe.html
 
