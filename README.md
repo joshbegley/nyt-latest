@@ -1,3 +1,15 @@
+**Judge Orders Abrego Garcia’s Release From ICE Detention**\
+`The judge said it was “troubling” that the Trump administration had kept Kilmar Armando Abrego Garcia in custody for nearly four months without following through on its pledge to re-expel him.`\
+https://nytimes.com/2025/12/11/us/politics/abrego-garcia-released.html
+
+**R. Bruce Dold, Chicago Tribune Publisher and Pulitzer Winner, Dies at 70**\
+`As head of the editorial page, he encouraged The Tribune’s support of Barack Obama, resulting in the paper’s first endorsement of a Democrat running for the White House.`\
+https://nytimes.com/2025/12/11/us/politics/bruce-dold-dead.html
+
+**Fantasy football injuries, inactives, cheat sheet Week 15**\
+`Fantasy football relevant injuries and their impact, weather reports and game previews. Plus, Ciely's Week 15 player rankings and more.`\
+https://nytimes.com/athletic/6878815/2025/12/11/fantasy-football-injuries-inactives-cheat-sheet-week-15/
+
 **Emmett Johnson leaves Nebraska with sterling legacy, All-America status**\
 `Johnson took pride in building a new reputation for Nebraska running backs, he said.`\
 https://nytimes.com/athletic/6881795/2025/12/11/emmett-johnson-nebraska-all-american-running-back/
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/6881990/2025/12/11/mets-alonso-diaz-schwarber-the-w
 **The Rams' offense is as balanced as ever thanks for a 13-personnel revolution**\
 `The Rams have leaned into their personnel-diverse ways to keep their best players fresh and at peak form this season.`\
 https://nytimes.com/athletic/6881140/2025/12/11/rams-offensive-balance-13-personnel/
-
-**Is Ice Spice Back on the Rise?**\
-`Jon Caramanica, pop music critic at The New York Times, looks at how Ice Spice’s new single, “Thootie,” taps into her minimalist swagger and why this Dembow-driven collab with Tokischa might mark a real reset.`\
-https://nytimes.com/video/podcasts/100000010576115/is-ice-spice-back-on-the-rise.html
-
-**2026 World Cup host city winners and losers: Who has the best games?**\
-`For each of the 16 host sites, the World Cup draw and fixture release hit a bit differently. Here's who has it the best – and worst`\
-https://nytimes.com/athletic/6881047/2025/12/11/2026-world-cup-host-city-winners-losers-usa-mexico-canada/
-
-**Heavy Rain Overflows Rivers and Prompts Evacuations in Washington**\
-`Evacuations were underway on Thursday as flooding intensified in the Pacific Northwest. Up to 100,000 Washington State residents could face orders to evacuate, according to local authorities.`\
-https://nytimes.com/video/weather/100000010580655/washington-northwest-pacific-weather-storm.html
 
