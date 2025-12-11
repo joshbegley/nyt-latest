@@ -1,3 +1,11 @@
+**Heavy Rain Overflows Rivers and Prompts Evacuations in Washington**\
+`Evacuations were underway on Thursday as flooding intensified in the Pacific Northwest. Up to 100,000 Washington State residents could face orders to evacuate, according to local authorities.`\
+https://nytimes.com/video/weather/100000010580655/washington-northwest-pacific-weather-storm.html
+
+**Disney Agrees to Bring Its Characters to OpenAI’s Sora Videos**\
+`The deal is a watershed for Hollywood, which has been trying to sort through the possible harms and upsides of generative artificial intelligence.`\
+https://nytimes.com/2025/12/11/business/media/disney-openai-sora-deal.html
+
 **NFL Draft 2026 underclassman tracker: Which college football stars have declared early?**\
 `We're tracking all non-seniors who have publicly acknowledged their intention to declare for the 2026 NFL Draft.`\
 https://nytimes.com/athletic/6878979/2025/12/11/nfl-draft-2026-college-football-underclassman-tracker/
