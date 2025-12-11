@@ -1,3 +1,11 @@
+**Lululemon C.E.O. to Step Down in January**\
+`The maker of yoga clothing is looking for a new leader after public pressure from the company’s founder.`\
+https://nytimes.com/2025/12/11/business/lululemon-ceo-calvin-mcdonald.html
+
+**Federal Judge Blocks FEMA From Canceling Climate Resiliency Grants**\
+`A Thursday ruling said the Trump administration cannot eliminate the Building Resilient Infrastructure and Communities program without Congress.`\
+https://nytimes.com/2025/12/11/climate/judge-blocks-fema-canceling-climate-grants.html
+
 **The Duality in Conservative Politics**\
 `Andrew Kolvet of Turning Point USA explains why he endorses a tough-love approach to politics on this episode of “Interesting Times.”`\
 https://nytimes.com/video/opinion/100000010563908/the-duality-in-conservative-politics.html
