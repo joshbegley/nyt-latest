@@ -1,3 +1,11 @@
+**'He's never missed a game?': Inside Kevin Byard's unrelenting quest to cement his legacy**\
+`Preparing to play in his 161st consecutive game Sunday, Byard remains on a mission to squeeze the most from his NFL career.`\
+https://nytimes.com/athletic/6879736/2025/12/11/kevin-byard-consecutive-games-played-bears/
+
+**Myles Garrett is a superhero who's on a mission to shatter the NFL's sacks record**\
+`Garrett isn't your average pass rusher. He possesses superhuman abilities that give him an edge each time he steps on the field. `\
+https://nytimes.com/athletic/6879967/2025/12/11/myles-garrett-browns-nfl-sacks-record/
+
 **Here’s What to Know About Japan’s Mega Quake Advisory**\
 `Japan’s government says that the chances of a magnitude 8 earthquake have increased. Scientists can’t predict when one will strike, but it represents a meaningful jump over typical odds.`\
 https://nytimes.com/2025/12/11/world/asia/japan-megaquake-warning.html
