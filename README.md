@@ -1,3 +1,11 @@
+**The Pulse: A shocking day in Ann Arbor**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6878539/2025/12/11/michigan-sherrone-moore-fired-the-pulse/
+
+**The Rangers can't afford a lack of urgency: 'Just didn't earn the bounces'**\
+`The Rangers were shut out and out-competed by the Blackhawks, particularly in the bottom six and on the power play.`\
+https://nytimes.com/athletic/6881022/2025/12/11/rangers-power-play-shesterkin-blackhawks/
+
 **Nobel Peace Prize Winner Machado Vows to End Maduro’s Rule in Venezuela**\
 `María Corina Machado reappeared on the global stage as the Trump administration ramped up its pressure campaign against President Nicolás Maduro.`\
 https://nytimes.com/2025/12/11/world/americas/maria-corina-machado-nobel-venezuela-maduro-trump.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6880521/2025/12/11/cowboys-playoff-berth-season-suc
 **Jared Goff carrying bigger load and takes center stage as Lions make playoff push**\
 `Over the last four seasons, the Lions rank fourth in December winning percentage at .714. Jared Goff has played a key role in that.`\
 https://nytimes.com/athletic/6879847/2025/12/11/lions-jared-goff-playoffs-rams-matchup/
-
-**Panthers haven't been to playoffs since 2017. But Turk Wharton has — often**\
-`"Those Super Bowl rings speak for themselves, man," Wharton said of wearing his before the Panthers played the Rams in Week 13.`\
-https://nytimes.com/athletic/6880331/2025/12/11/carolina-panthers-playoffs-experience-turk-wharton/
-
-**Is a Jordan Addison extension on the horizon for the Vikings? We explore their options**\
-`Addison, a third-year wideout, will be eligible for an extension this offseason. Might Minnesota be wise to spend its cap space elsewhere?`\
-https://nytimes.com/athletic/6880249/2025/12/11/jordan-addison-vikings-extension-trade/
 
