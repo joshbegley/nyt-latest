@@ -1,3 +1,11 @@
+**Emmett Johnson leaves Nebraska with sterling legacy, All-America status**\
+`Johnson took pride in building a new reputation for Nebraska running backs, he said.`\
+https://nytimes.com/athletic/6881795/2025/12/11/emmett-johnson-nebraska-all-american-running-back/
+
+**The Bounce: We'll have a first-time NBA Cup champion. Plus, rookie rankings!**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/6881953/2025/12/11/nba-cup-rookie-rankings-thunder-the-bounce/
+
 **Fantasy trends and hidden gems: Rickard Rakell, Dennis Hildeby among top 11 targets for Week 11**\
 `With a very busy Week 11 NHL slate on tap, Shayna Goldman points out the widely-available players to target on the waiver wire.`\
 https://nytimes.com/athletic/6880222/2025/12/11/fantasy-hockey-trends-hidden-gems-sleepers-pickups-week-11/
