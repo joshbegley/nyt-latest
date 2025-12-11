@@ -1,3 +1,11 @@
+**Grizzlies’ Zach Edey expected to miss at least 4 weeks with injury**\
+`With Ja Morant set to return, the Grizzlies will have to go without another player in the lineup: Zach Edey.`\
+https://nytimes.com/athletic/6883039/2025/12/11/zach-edey-grizzlies-injury/
+
+**Winter Meetings takeaways: Mets mess, trade talks heating up, Dodgers dominance**\
+`Why big trades could be coming soon and why the Pirates’ free-agent effort was eye wash.`\
+https://nytimes.com/athletic/6882669/2025/12/11/mlb-winter-meetings-takeaways-pete-alonso-tarik-skubal-freddy-peralta/
+
 **Crypto Entrepreneur Who Caused 2022 Crash Is Sentenced to 15 Years in Prison**\
 `Do Kwon, who designed the virtual currencies Luna and TerraUSD, which plunged in 2022, had pleaded guilty to fraud.`\
 https://nytimes.com/2025/12/11/technology/crypto-do-kwon-sentenced-prison.html
