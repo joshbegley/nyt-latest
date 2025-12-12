@@ -1,3 +1,11 @@
+**Quote of the Day: States Raking In Billions From the Slot Machines on Your Phone**\
+`Quotation of the Day for Friday, December 12, 2025.`\
+https://nytimes.com/2025/12/11/pageoneplus/quote-of-the-day-states-raking-in-billions-from-the-slot-machines-on-your-phone.html
+
+**Trump Signs A.I. Executive Order**\
+`Trump signed an executive order on Thursday that would limit individual states in regulating the artificial intelligence industry.`\
+https://nytimes.com/video/us/politics/100000010582690/ai-trump-executive-orde.html
+
 **Reddit Sues Australian Government to Block Social Media Ban**\
 `The company said the new law, which makes it illegal for children under 16 to have social media accounts, infringes on children’s rights.`\
 https://nytimes.com/2025/12/11/world/asia/reddit-lawsuit-australia-social-media-ban.html
@@ -25,12 +33,4 @@ https://nytimes.com/interactive/2025/12/11/world/quake-tracker-north-pacific-oce
 **Navy Submits Investigation on Senator to Hegseth’s Office**\
 `The report concerns a video in which Senator Mark Kelly, a retired Navy captain, and five other Democratic lawmakers reminded military members of their obligation to refuse illegal orders.`\
 https://nytimes.com/2025/12/11/us/politics/senator-mark-kelly-investigation-navy.html
-
-**Rocky Road Ingredient**\
-`Adrian Johnson and Jess Rucks open our solving weekend with a treat.`\
-https://nytimes.com/2025/12/11/crosswords/daily-puzzle-2025-12-12.html
-
-**Steph Curry urges Jonathan Kuminga not to 'lose your spirit' when not playing**\
-`Curry empathizes with Jonathan Kuminga, but admitted that maintaining a positive spirit has "been JK's challenge as a young player."`\
-https://nytimes.com/athletic/6883527/2025/12/11/jonathan-kuminga-steph-curry-warriors-rotation/
 
