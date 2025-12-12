@@ -1,3 +1,11 @@
+**A Brutally Long Tennis Season Takes a Toll on Players**\
+`Injuries and mental exhaustion this year forced both men and women to withdraw from tournaments and suspend play for months.`\
+https://nytimes.com/2025/12/12/sports/tennis/player-injuries-season.html
+
+**Our Critics Look Back on Their Year in Reading**\
+`It’s been a good one. Dwight Garner, Alexandra Jacobs and Jennifer Szalai discuss the books that have stayed with them.`\
+https://nytimes.com/2025/12/12/books/review/podcast-critics-year-in-reading.html
+
 **It Was an Eventful Year for Golf, on and Off the Course**\
 `Rory McIlroy got his career Grand Slam, Scottie Scheffler kept winning and two tours named new leaders.`\
 https://nytimes.com/2025/12/12/sports/golf/year-review-2025.html
