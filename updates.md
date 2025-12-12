@@ -1,3 +1,15 @@
+**Mike Vrabel or Kyle Shanahan? Debating the crowded NFL Coach of the Year field**\
+`Any of these seven candidates could be considered worthy of the award, but the Patriots' and 49ers' coaches have the strongest case.`\
+https://nytimes.com/athletic/6879182/2025/12/12/nfl-coach-of-the-year-vrabel-shanahan-johnson/
+
+**The New York Times International Edition in Print for Saturday, Dec. 13, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/12/12/todays-new-york-times-international-edition
+
+**Arsenal agree new shirt sleeve sponsorship to replace Visit Rwanda from 2026-27**\
+`Deel will replace the existing Visit Rwanda sponsorship — the eight-year sponsorship which expires at the end of the campaign.`\
+https://nytimes.com/athletic/6884102/2025/12/12/arsenal-shirt-sleeve-sponsor-deal/
+
 **Slot to hold talks with Salah over selection for Brighton game**\
 `Salah's last start for Liverpool came in the 4-1 home defeat against PSV on November 26.`\
 https://nytimes.com/athletic/6884081/2025/12/12/liverpool-mohamed-salah-arne-slot-talks/
