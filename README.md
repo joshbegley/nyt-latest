@@ -1,3 +1,7 @@
+**Joseph Byrd, Who Shook Up Psychedelic Rock, Dies at 87**\
+`A veteran of the Fluxus art movement, he brought an anarchic spirit to the California acid-rock scene with his band, the United States of America.`\
+https://nytimes.com/2025/12/12/arts/music/joseph-byrd-dead.html
+
 **Jake Paul admits the one fighter he’ll never face after beating Mike Tyson**\
 `"There's a very short list of people that I wouldn't step into the ring with," Paul said.`\
 https://nytimes.com/athletic/6884921/2025/12/12/jake-paul-david-benavidez-wont-fight/
@@ -25,8 +29,4 @@ https://nytimes.com/athletic/6884945/2025/12/12/blue-jays-mark-shapiro-contract-
 **After settlement, NASCAR will be better. But it shouldn't have happened like this**\
 `In the end, NASCAR's business model is getting a boost. It just should have never taken a trial to get to that point.`\
 https://nytimes.com/athletic/6884571/2025/12/12/nascar-settlement-trial-unnecessary-michael-jordan-jim-france/
-
-**Taylor Swift’s ‘The End of an Era’: 5 Takeaways**\
-`The six-part Disney+ series goes behind the scenes of the pop star’s record-breaking Eras Tour, revealing some of her creative processes and struggles.`\
-https://nytimes.com/2025/12/12/arts/music/taylor-swift-eras-tour-docuseries.html
 
