@@ -1,3 +1,11 @@
+**Rocky Road Ingredient**\
+`Adrian Johnson and Jess Rucks open our solving weekend with a treat.`\
+https://nytimes.com/2025/12/11/crosswords/rocky-road-ingredient.html
+
+**Steph Curry urges Jonathan Kuminga not to 'lose your spirit' when not playing**\
+`Curry empathizes with Jonathan Kuminga, but admitted that maintaining a positive spirit has "been JK's challenge as a young player."`\
+https://nytimes.com/athletic/6883527/2025/12/11/jonathan-kuminga-steph-curry-warriors-rotation/
+
 **SEC schedule revealed: Lane Kiffin returns to Ole Miss early in 2026 season**\
 `The SEC on Thursday night revealed its schedule for 2026, the first with a nine-game conference schedule. Here are our takeaways.`\
 https://nytimes.com/athletic/6883594/2025/12/11/sec-schedule-lane-kiffin-lsu-ole-miss-takeaways/

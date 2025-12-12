@@ -1,3 +1,7 @@
+**Navy Submits Investigation on Senator to Hegseth’s Office**\
+`The report concerns a video in which Senator Mark Kelly, a retired Navy captain, and five other Democratic lawmakers reminded military members of their obligation to refuse illegal orders.`\
+https://nytimes.com/2025/12/11/us/politics/senator-mark-kelly-investigation-navy.html
+
 **Rocky Road Ingredient**\
 `Adrian Johnson and Jess Rucks open our solving weekend with a treat.`\
 https://nytimes.com/2025/12/11/crosswords/rocky-road-ingredient.html
@@ -29,8 +33,4 @@ https://nytimes.com/video/us/politics/100000010582298/noem-house-hearing-immigra
 **Stuck in Quicksand, a Hiker in Utah Has His SOS Answered**\
 `Austin Dirks used a Garmin satellite device to reach emergency responders, who rescued him in a remote canyon in Arches National Park.`\
 https://nytimes.com/2025/12/11/us/hiker-quicksand-rescue-utah.html
-
-**Hiker Rescued From Quicksand in Arches National Park**\
-`Austin Dirks was on a solo hike in Arches National Park when he got stuck in quicksand. Emergency responders rescued him after he sent an SOS message using a satellite device.`\
-https://nytimes.com/video/us/100000010582488/quicksand-arches-national-park-rescue.html
 
