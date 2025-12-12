@@ -1,4 +1,8 @@
-**Businesses Are Cashing In on Trump’s Tax Cuts. Will It Help the Economy?**\
+**Great Performers Awards: Best Performance in a Helmet**\
+`Welcome to “Cannonball’s” 1st Annual Great Performers Awards Show. On this week’s episode, our host Wesley Morris is joined by his editor, Sasha Weiss, to discuss some of the best acting of 2025. Up first, best performance in a helmet.`\
+https://nytimes.com/video/podcasts/100000010574694/great-performers-awards-best-performance-in-a-helmet.html
+
+**Businesses Are Cashing In on Trump’s Tax Cuts**\
 `Corporate tax revenue has quickly dipped since Republicans passed tax cuts this summer. But economists think these tax breaks might be worth it.`\
 https://nytimes.com/2025/12/12/us/politics/trumps-corporate-tax-cuts-economy.html
 
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6884934/2025/12/12/pacers-vs-76ers-stream-how-to-wa
 **How to watch Bulls vs. Hornets: Time, TV, streaming**\
 `Find out how to watch the Chicago Bulls play the Charlotte Hornets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6884932/2025/12/12/bulls-vs-hornets-stream-how-to-watch-dec-12/
-
-**How to watch Cavaliers vs. Wizards: Time, TV, streaming**\
-`Find out how to watch the Cleveland Cavaliers play the Washington Wizards, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6884930/2025/12/12/cavaliers-vs-wizards-stream-how-to-watch-dec-12/
 
