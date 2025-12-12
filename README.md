@@ -1,36 +1,36 @@
-**Quote of the Day: States Raking In Billions From the Slot Machines on Your Phone**\
-`Quotation of the Day for Friday, December 12, 2025.`\
-https://nytimes.com/2025/12/11/pageoneplus/quote-of-the-day-states-raking-in-billions-from-the-slot-machines-on-your-phone.html
+**Man City's ominous post-Christmas record should make Arsenal nervous**\
+`The leaders reacted badly to their loss against Villa – it might be City's form in the second half of recent seasons that is worrying them`\
+https://nytimes.com/athletic/6876224/2025/12/12/man-city-arsenal-post-christmas-analysis/
 
-**Trump Signs A.I. Executive Order**\
-`Trump signed an executive order on Thursday that would limit individual states in regulating the artificial intelligence industry.`\
-https://nytimes.com/video/us/politics/100000010582690/ai-trump-executive-orde.html
+**From Chips to Security, China Is Getting Much of What It Wants From the U.S.**\
+`For China, President Trump’s moves to loosen chip controls, soften U.S. rhetoric and stay silent on tensions with Japan amount to a rare string of strategic gains.`\
+https://nytimes.com/2025/12/12/world/asia/nvidia-china-trump-security-japan.html
 
-**Reddit Sues Australian Government to Block Social Media Ban**\
-`The company said the new law, which makes it illegal for children under 16 to have social media accounts, infringes on children’s rights.`\
-https://nytimes.com/2025/12/11/world/asia/reddit-lawsuit-australia-social-media-ban.html
+**Billy Bonds: 'The most important and influential person in West Ham's history'**\
+`Billy Bonds passed away late last month. Former players from across the game explain why he was so important`\
+https://nytimes.com/athletic/6848982/2025/12/12/billy-bonds-west-ham/
 
-**Leafs observations: The potential catastrophic effects of Oliver Ekman-Larsson's injury**\
-`Toronto's blue line is at risk of taking another hit if Ekman-Larsson, who left Thursday's game with an injury, is out long term.`\
-https://nytimes.com/athletic/6883588/2025/12/11/oliver-ekman-larsson-injury-maple-leafs/
+**Why It’s Best to Imagine the Worst**\
+`After learning devastating news about our young son, we needed to feel connected to friends and family, not just exist beyond their imagination.`\
+https://nytimes.com/2025/12/12/style/modern-love-why-its-best-to-imagine-the-worst.html
 
-**A familiar problem for the Flyers is rearing its ugly head once again**\
-`Despite a generally impressive performance against a genuine Stanley Cup contender, the Flyers still can't score on the man advantage.`\
-https://nytimes.com/athletic/6883779/2025/12/11/flyers-power-play-golden-knights/
+**Corrections: Dec. 12, 2025**\
+`Corrections that appeared in print on Friday, Dec. 12, 2025.`\
+https://nytimes.com/2025/12/12/pageoneplus/corrections-dec-12-2025.html
 
-**Merzlikins yanked early, Blue Jackets can't quite recover in loss to Senators**\
-`The Blue Jackets managed to get within a goal after a 3-0 deficit to start the game, but the Senators pulled away late.`\
-https://nytimes.com/athletic/6883692/2025/12/11/blue-jackets-merzlikins-pulled-werenski-senators/
+**They Run a Grocery Store Together. Now They’re Walking Down the Aisle.**\
+`Gretty Garcia and Jesse Clemente left full-time jobs in advertising and journalism to help with one of her parents’ businesses in the Bronx.`\
+https://nytimes.com/2025/12/12/style/gretty-garcia-jesse-clemente-wedding.html
 
-**Texans owner has fun with C.J. Stroud 'snub' after victory over Chiefs**\
-`Cal McNair and the Texans' social media team quickly and humorously evaporate any perceived tension between ownership and quarterback.`\
-https://nytimes.com/athletic/6883721/2025/12/11/cj-stroud-texans-owner-cal-mcnair-snub/
+**She’s in Gaza. He’s in Cairo. Separated by a Closed Border, They Married Remotely.**\
+`Mayar Kabaja and Hatem Saadallah went on their first date in Gaza City 10 days before Oct. 7, 2023. He and his family evacuated to Egypt over 18 months ago, and the two have not been able to see each other since.`\
+https://nytimes.com/2025/12/12/style/wedding-gaza-cairo-rafah-border.html
 
-**Map: 6.7-Magnitude Earthquake Strikes Off Japan**\
-`View the location of the quake’s epicenter and shake area.`\
-https://nytimes.com/interactive/2025/12/11/world/quake-tracker-north-pacific-ocean-japan.html
+**Two Scots Choose a Wintry New York for a Would-Be Elopement**\
+`Lauren Aitchison and Tommy Kerr made a marriage plan shortly after falling in love in Glasgow, but her mother was soon on to them.`\
+https://nytimes.com/2025/12/12/style/lauren-aitchison-tommy-kerr-wedding.html
 
-**Navy Submits Investigation on Senator to Hegseth’s Office**\
-`The report concerns a video in which Senator Mark Kelly, a retired Navy captain, and five other Democratic lawmakers reminded military members of their obligation to refuse illegal orders.`\
-https://nytimes.com/2025/12/11/us/politics/senator-mark-kelly-investigation-navy.html
+**He Fell in Love With the Video Game-Themed Artwork, Then the Artist**\
+`Hector Perez admired Adrianny Almonte’s mural in Santo Domingo, but he didn’t know she had painted it until he stumbled on a Facebook post.`\
+https://nytimes.com/2025/12/12/style/hector-perez-adrianny-almonte-wedding.html
 
