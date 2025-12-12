@@ -14,9 +14,9 @@ https://nytimes.com/2025/12/12/crosswords/spelling-bee-forum.html
 `The new visa for rich foreigners had Kimmel rethinking the Statue of Liberty’s inscription: “Never mind your poor and tired. Give us a million bucks — you’re in.”`\
 https://nytimes.com/2025/12/12/arts/television/jimmy-kimmel-trump-gold-card.html
 
-**East German clash heads Bundesliga action as Milan, Marseille and Real chase wins**\
-`An East Germany clash between Union Berlin and RB Leipzig kicks of a great weekend of European league action.`\
-https://nytimes.com/athletic/6883541/2025/12/12/east-german-bundesliga-milan-marseille/
+**European preview: Leipzig v Union, Marseille host Monaco, and Como go to Rome**\
+`From an East German clash in the Bundesliga to a Ligue 1 classic, we preview the standout European games taking place this gameweek.`\
+https://nytimes.com/athletic/6883541/2025/12/12/rb-leipzig-bundesliga-milan-marseille-real-madrid/
 
 **Word of the Day: compensation**\
 `This word has appeared in 1,406 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
