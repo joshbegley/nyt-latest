@@ -1,3 +1,11 @@
+**Merzlikins yanked early, Blue Jackets can't quite recover in loss to Senators**\
+`The Blue Jackets managed to get within a goal after a 3-0 deficit to start the game, but the Senators pulled away late.`\
+https://nytimes.com/athletic/6883692/2025/12/11/blue-jackets-merzlikins-pulled-werenski-senators/
+
+**Texans owner has fun with C.J. Stroud 'snub' after victory over Chiefs**\
+`Cal McNair and the Texans' social media team quickly and humorously evaporate any perceived tension between ownership and quarterback.`\
+https://nytimes.com/athletic/6883721/2025/12/11/cj-stroud-texans-owner-cal-mcnair-snub/
+
 **Map: 6.7-Magnitude Earthquake Strikes Off Japan**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/12/11/world/quake-tracker-north-pacific-ocean-japan.html
@@ -25,12 +33,4 @@ https://nytimes.com/2025/12/11/business/media/arkansas-public-television-drops-p
 **Michael Jordan's rookie Nike shoes fetch almost $700K at auction**\
 `Sotheby's latest auction bridged eras of greatness, headlined by Jordan's rookie shoes and memorabilia from Kobe Bryant's career.`\
 https://nytimes.com/athletic/6881751/2025/12/11/michael-jordan-rookie-nike-shoes-auction/
-
-**Trump Offers Symbolic Pardon for Clerk Convicted of Election Tampering**\
-`Tina Peters was sentenced for a Colorado state crime that the president has no ability to pardon. President Trump has no legal power to free her from prison.`\
-https://nytimes.com/2025/12/11/us/politics/trump-pardon-tina-peters-colorado.html
-
-**Democrats Press Noem on Harsh Immigration Tactics**\
-`Some Democratic lawmakers pressed Homeland Security Secretary Kristi Noem on the Trump administration’s aggressive immigration enforcement tactics during a hearing on Thursday.`\
-https://nytimes.com/video/us/politics/100000010582298/noem-house-hearing-immigration-crackdown.html
 

@@ -1,3 +1,11 @@
+**Merzlikins yanked early, Blue Jackets can't quite recover in loss to Senators**\
+`The Blue Jackets managed to get within a goal after a 3-0 deficit to start the game, but the Senators pulled away late.`\
+https://nytimes.com/athletic/6883692/2025/12/11/blue-jackets-merzlikins-pulled-werenski-senators/
+
+**Texans owner has fun with C.J. Stroud 'snub' after victory over Chiefs**\
+`Cal McNair and the Texans' social media team quickly and humorously evaporate any perceived tension between ownership and quarterback.`\
+https://nytimes.com/athletic/6883721/2025/12/11/cj-stroud-texans-owner-cal-mcnair-snub/
+
 **Map: 6.7-Magnitude Earthquake Strikes Off Japan**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/12/11/world/quake-tracker-north-pacific-ocean-japan.html
