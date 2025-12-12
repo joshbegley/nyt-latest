@@ -1,3 +1,7 @@
+**Lowetide: Hyman's hat trick a positive for Oilers. Where else can they improve?**\
+`Thursday was a good night for the Oilers, and possibly solved one problem on the roster.`\
+https://nytimes.com/athletic/6880495/2025/12/12/zach-hyman-oilers-hat-trick-roster-stats/
+
 **Don't overthink the fantasy football playoffs. Plus Pitts' career game and Odunze's return**\
 `Andy Behrens recaps fantasy-relevant league news and offers advice to prevent a fantasy playoff loss.`\
 https://nytimes.com/athletic/6884492/2025/12/12/fantasy-football-news-championship-advice-kyle-pitts/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/12/technology/elon-musk-europe.html
 **Should You Donate to Charity This Year or Wait? It Depends.**\
 `Changes in the tax law will have different effects on people who take the standard deduction versus high earners who itemize.`\
 https://nytimes.com/2025/12/12/your-money/donations-charity-tax-law.html
-
-**Clippers invent another way to lose a close game in a season full of them**\
-`On Thursday, LA lost after a failed in-bounds play, which is the latest example of its clutch-time disasters.`\
-https://nytimes.com/athletic/6883813/2025/12/12/clippers-close-game-clutch-time-losses-rockets/
 

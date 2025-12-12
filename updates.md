@@ -1,3 +1,7 @@
+**Lowetide: Hyman's hat trick a positive for Oilers. Where else can they improve?**\
+`Thursday was a good night for the Oilers, and possibly solved one problem on the roster.`\
+https://nytimes.com/athletic/6880495/2025/12/12/zach-hyman-oilers-hat-trick-roster-stats/
+
 **Don't overthink the fantasy football playoffs. Plus Pitts' career game and Odunze's return**\
 `Andy Behrens recaps fantasy-relevant league news and offers advice to prevent a fantasy playoff loss.`\
 https://nytimes.com/athletic/6884492/2025/12/12/fantasy-football-news-championship-advice-kyle-pitts/
