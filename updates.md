@@ -1,3 +1,7 @@
+**Navy Submits Investigation on Senator to Hegseth’s Office**\
+`The report concerns a video in which Senator Mark Kelly, a retired Navy captain, and five other Democratic lawmakers reminded military members of their obligation to refuse illegal orders.`\
+https://nytimes.com/2025/12/11/us/politics/senator-mark-kelly-investigation-navy.html
+
 **Rocky Road Ingredient**\
 `Adrian Johnson and Jess Rucks open our solving weekend with a treat.`\
 https://nytimes.com/2025/12/11/crosswords/rocky-road-ingredient.html
