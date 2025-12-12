@@ -1,3 +1,15 @@
+**Why are 6-7 Chiefs still betting favorites over 9-4 Chargers? An oddsmaker explains**\
+`Despite a disappointing 6-7 record and losses in four of their last five games, the Chiefs are still respected in Las Vegas. Here's why.`\
+https://nytimes.com/athletic/6882871/2025/12/12/chiefs-betting-favorites-chargers-oddsmakers/
+
+**What does the film say about Bryce Young's up-and-down season?**\
+`When Bryce Young has space to step up in the pocket, he is capable of high-level play. He struggles when the pocket gets muddy.`\
+https://nytimes.com/athletic/6881227/2025/12/12/panthers-bryce-young-keys-to-success/
+
+**Is DJ Moore's Bears future in question? Can pass rush heat up? Mailbag plus Week 15 picks**\
+`Would the Bears trade Moore? He's having his least productive season on the best team he's been on. That leads this week's mailbag.`\
+https://nytimes.com/athletic/6883114/2025/12/12/bears-mailbag-dj-moore-future/
+
 **Lions-Rams matchup to watch: How Detroit's D handles L.A.'s 13 personnel**\
 `The Rams like to dictate things on offense by running 13 personnel. Kelvin Sheppard's linebacker-heavy group could be suited to defend.`\
 https://nytimes.com/athletic/6883596/2025/12/12/lions-defense-matthew-stafford-sean-mcvay-rams/
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/6882566/2025/12/12/nhl-salary-cap-rising-board-of-g
 **Mike Vrabel pushes his players beyond their limits. Here’s why it works**\
 `Patriots coach Mike Vrabel is hard on his players, but after every game, win or lose, he greets them alone in the tunnel and thanks them.`\
 https://nytimes.com/athletic/6879941/2025/12/12/mike-vrabel-patriots-hugs-leadership/
-
-**Jacob Fowler’s 36-save NHL debut provides Canadiens with everything they needed**\
-`Jacob Fowler will surely not look this good every night, but for one night at least, he was exactly what the Canadiens needed.`\
-https://nytimes.com/athletic/6883875/2025/12/12/jacob-fowler-36-saves-nhl-debut-canadiens/
-
-**Understanding Joe Burrow’s best trait nobody talks about**\
-`Burrow's ability to recognize defensive patterns, set protections and find explosives out of them has set him apart in the NFL.`\
-https://nytimes.com/athletic/6882524/2025/12/12/joe-burrow-play-calling-defense-bengals/
-
-**Bulls' Matas Buzelis still powering through Billy Donovan's ongoing test**\
-`For a Bulls regime sworn to internal development and against tanking, Matas Buzelis is a beacon of hope.`\
-https://nytimes.com/athletic/6880470/2025/12/12/matas-buzelis-billy-donovan-bulls-nba/
 
