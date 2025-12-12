@@ -1,3 +1,15 @@
+**Great Performers Awards: Best Grasp of Scuzz**\
+`Wesley Morris, the host of “Cannonball,” and his editor, Sasha Weiss, discuss Timothée Chalamet’s bold performance in “Marty Supreme.”`\
+https://nytimes.com/video/podcasts/100000010583365/great-performers-awards-best-grasp-of-scuzz.html
+
+**Gonzo Fans Have Made ‘Dungeon Crawler Carl’ Into a Global Blockbuster**\
+`Matt Dinniman introduced his series about an alien reality TV show free on the web. But readers ate up the goofy humor, now to the tune of 6 million books sold.`\
+https://nytimes.com/2025/12/12/books/review/dungeon-crawler-carl-matt-dinniman.html
+
+**Where things stand as Tyler Skaggs trial enters final day of testimony**\
+`The jury heard from a former MLB lawyer, ex-pitcher Matt Harvey, an addiction expert and others as testimony wound down this week.`\
+https://nytimes.com/athletic/6884046/2025/12/12/tyler-skaggs-angels-trial-testimony/
+
 **What I'm hearing about Giannis, AD and other major NBA trade situations**\
 `The NBA trade deadline is not until Feb. 5, but Monday marks a significant day when talks heat up. `\
 https://nytimes.com/athletic/6881845/2025/12/12/nba-trades-giannis-antetokounmpo-anthony-davis-warriors-mavericks/
@@ -17,16 +29,4 @@ https://nytimes.com/athletic/6883168/2025/12/12/rams-jared-verse-sean-mcvay-meet
 **Cooling Labor Market and Elevated Inflation Stoke Fed Divisions**\
 `Fed officials explained their opposition to the central bank’s decision this week to cut interest rates by a quarter of a percentage point.`\
 https://nytimes.com/2025/12/12/business/economy/fed-rate-decision-dissents.html
-
-**UNC fires coordinators Freddie Kitchens and Mike Priefer after 4-8 season**\
-`UNC’s offense finished 129th in the country in total offense with 288.8 yards per game and 119th in scoring offense.`\
-https://nytimes.com/athletic/6884564/2025/12/12/unc-freddie-kitchens-mike-priefer-fired/
-
-**USMNT's Robinson hopeful of making return from knee injury vs. Burnley on Saturday**\
-`The 28-year-old has only made three appearances for Fulham this season, with severe pain undermining his efforts to get match-fit.`\
-https://nytimes.com/athletic/6884665/2025/12/12/antonee-robinson-return-fulham-usmnt/
-
-**A Seized Oil Tanker and the Big Business of Dark Fleet Smuggling**\
-`The U.S. seizure of a vessel off Venezuela is likely to squeeze the country’s government, but do little to counter the tankers that secretively move oil from sanctioned countries.`\
-https://nytimes.com/2025/12/12/business/energy-environment/venezuela-oil-tanker-dark-fleet.html
 

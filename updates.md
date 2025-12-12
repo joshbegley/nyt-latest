@@ -1,3 +1,15 @@
+**What I'm hearing about Giannis, AD and other major NBA trade situations**\
+`The NBA trade deadline is not until Feb. 5, but Monday marks a significant day when talks heat up. `\
+https://nytimes.com/athletic/6881845/2025/12/12/nba-trades-giannis-antetokounmpo-anthony-davis-warriors-mavericks/
+
+**Sources: D.C. in advanced talks to sign Tai Baribo from Philadelphia**\
+`D.C. finished last in MLS in 2025 and is seeking a replacement for star forward Christian Benteke`\
+https://nytimes.com/athletic/6884708/2025/12/12/tai-baribo-dc-united-philadelphia-union-mls-trade/
+
+**How college football's new landscape has changed betting on bowl games**\
+`Betting on bowl games is harder than ever thanks to the new landscape. We spoke to oddsmakers and bettors for their thoughts on the topic.`\
+https://nytimes.com/athletic/6881873/2025/12/12/betting-college-football-bowls-changes-nil-coaches/
+
 **How a meeting with Sean McVay pushed Jared Verse to elevate his game in Year 2**\
 `Verse, the 2024 Defensive Rookie of the Year, has had to adjust to the extra attention rotating his way in his second season.`\
 https://nytimes.com/athletic/6883168/2025/12/12/rams-jared-verse-sean-mcvay-meeting/
