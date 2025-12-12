@@ -1,3 +1,7 @@
+**Transportation Dept. Threatens to Withhold Funds From N.Y. Over Noncitizen Licenses**\
+`The Trump administration gave New York 30 days to pause issuing all non-domiciled commercial driver’s licenses, among other demands, or risk losing $73 million in highway funds.`\
+https://nytimes.com/2025/12/12/us/politics/transportation-dept-threatens-to-withhold-funds-from-ny-over-noncitizen-licenses.html
+
 **Justice Dept. Asks Appeals Court to Kill Contempt Inquiry Into Deportation Flights**\
 `The bid by the department was only the latest flashpoint between the Trump administration and the courts, especially over the president’s aggressive immigration agenda.`\
 https://nytimes.com/2025/12/12/us/politics/justice-department-deportation-flights-investigation.html
