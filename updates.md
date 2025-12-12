@@ -1,3 +1,7 @@
+**TAFC: World Cup's $8k ticket, Everton's 'Toffee Lady' returns, Haaland vs Dixie Dean**\
+`Today in TAFC: FIFA accused of 'betrayal' of fans after World Cup ticket price rise. Plus: Will Haaland become the greatest-ever EPL scorer?`\
+https://nytimes.com/athletic/6884100/2025/12/12/the-athletic-fc-world-cup-8k-ticket-evertons-toffee-lady-returns-haaland-vs-dixie-dean/
+
 **The Pulse: Trial of the century goes poof**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6882674/2025/12/12/nascar-michael-jordan-trial-the-pulse/

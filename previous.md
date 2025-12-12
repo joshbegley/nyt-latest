@@ -1,3 +1,7 @@
+**TAFC: World Cup's $8k ticket, Everton's 'Toffee Lady' returns, Haaland vs Dixie Dean**\
+`Today in TAFC: FIFA accused of 'betrayal' of fans after World Cup ticket price rise. Plus: Will Haaland become the greatest-ever EPL scorer?`\
+https://nytimes.com/athletic/6884100/2025/12/12/the-athletic-fc-world-cup-8k-ticket-evertons-toffee-lady-returns-haaland-vs-dixie-dean/
+
 **The Pulse: Trial of the century goes poof**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6882674/2025/12/12/nascar-michael-jordan-trial-the-pulse/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6876713/2025/12/12/college-football-awards-2025-ann
 **Penguins deliver their biggest dud of the season after delayed start: Yohe's 10 observations**\
 `The game started late, and the Penguins started even later, losing the second game of the season's longest homestand.`\
 https://nytimes.com/athletic/6883617/2025/12/12/penguins-letang-fowler-delay-canadiens/
-
-**The 'situational masters' who help make the NFL's most crucial calls**\
-`In the hyper-competitive NFL, some teams seek an edge by empowering in-game decision-making consultants, whose help can loom large.`\
-https://nytimes.com/athletic/6880984/2025/12/12/nfl-situational-game-management-experts/
 
