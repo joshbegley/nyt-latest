@@ -1,3 +1,11 @@
+**East German clash heads Bundesliga action as Milan, Marseille and Real chase wins**\
+`An East Germany clash between Union Berlin and RB Leipzig kicks of a great weekend of European league action.`\
+https://nytimes.com/athletic/6883541/2025/12/12/east-german-bundesliga-milan-marseille/
+
+**Word of the Day: compensation**\
+`This word has appeared in 1,406 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/12/12/learning/word-of-the-day-compensation.html
+
 **Bucs blow big lead in a big game … and they're big mad about it**\
 `Todd Bowles, Mike Evans and Baker Mayfield expressed a lot of disappointment after losing a critical game to the Falcons on Thursday night.`\
 https://nytimes.com/athletic/6883863/2025/12/12/buccaneers-angry-falcons-loss/
@@ -25,12 +33,4 @@ https://nytimes.com/2025/12/12/us/politics/hud-boston-discrimination.html
 **Welcome to Talk of the Devils: Manchester United, a constant contradiction **\
 `Welcome to our new Talk of the Devils column with Ian Irving, bringing you all the talking points and bits you may have missed about United`\
 https://nytimes.com/athletic/6882278/2025/12/12/manchester-united-constant-contradiction/
-
-**Why don't Tottenham Hotspur go on tour to the USA?**\
-`Spurs have already confirmed their plans for the summer of 2026, when they will extend their run of not visiting the U.S. to eight years`\
-https://nytimes.com/athletic/6881900/2025/12/12/spurs-tour-usa-australia/
-
-**Kirk Cousins rallies Falcons and hurts Bucs' playoff hopes: Takeaways**\
-`Even without being in playoff contention, the Falcons rallied from a two-touchdown deficit in the fourth quarter for a last-second win.`\
-https://nytimes.com/athletic/6882716/2025/12/12/falcons-bucs-score-result-takeaways-thursday-night-football/
 
