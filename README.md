@@ -1,3 +1,7 @@
+**Arsenal agree new shirt sleeve sponsorship to replace Visit Rwanda from 2026-27**\
+`Deel will replace the existing Visit Rwanda sponsorship — the eight-year sponsorship which expires at the end of the campaign.`\
+https://nytimes.com/athletic/6884102/2025/12/12/arsenal-shirt-sleeve-sponsor-deal/
+
 **Slot to hold talks with Salah over selection for Brighton game**\
 `Salah's last start for Liverpool came in the 4-1 home defeat against PSV on November 26.`\
 https://nytimes.com/athletic/6884081/2025/12/12/liverpool-mohamed-salah-arne-slot-talks/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/12/business/china-investment-economy.html
 **Should Parents Overrule a Strange Christmas Gift Request?**\
 `A ruling on an unusual letter to Santa.`\
 https://nytimes.com/interactive/2025/12/12/magazine/christmas-gift-hodgman-quiz.html
-
-**Watch an Ensemble Scene From ‘Wake Up Dead Man: A Knives Out Mystery’**\
-`The writer and director Rian Johnson narrates a sequence from his film.`\
-https://nytimes.com/2025/12/12/movies/wake-up-dead-man-a-knives-out-mystery-clip.html
 
