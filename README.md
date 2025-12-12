@@ -1,3 +1,15 @@
+**What I'm hearing about Giannis, AD and other major NBA trade situations**\
+`The NBA trade deadline is not until Feb. 5, but Monday marks a significant day when talks heat up. `\
+https://nytimes.com/athletic/6881845/2025/12/12/nba-trades-giannis-antetokounmpo-anthony-davis-warriors-mavericks/
+
+**Sources: D.C. in advanced talks to sign Tai Baribo from Philadelphia**\
+`D.C. finished last in MLS in 2025 and is seeking a replacement for star forward Christian Benteke`\
+https://nytimes.com/athletic/6884708/2025/12/12/tai-baribo-dc-united-philadelphia-union-mls-trade/
+
+**How college football's new landscape has changed betting on bowl games**\
+`Betting on bowl games is harder than ever thanks to the new landscape. We spoke to oddsmakers and bettors for their thoughts on the topic.`\
+https://nytimes.com/athletic/6881873/2025/12/12/betting-college-football-bowls-changes-nil-coaches/
+
 **How a meeting with Sean McVay pushed Jared Verse to elevate his game in Year 2**\
 `Verse, the 2024 Defensive Rookie of the Year, has had to adjust to the extra attention rotating his way in his second season.`\
 https://nytimes.com/athletic/6883168/2025/12/12/rams-jared-verse-sean-mcvay-meeting/
@@ -17,16 +29,4 @@ https://nytimes.com/athletic/6884665/2025/12/12/antonee-robinson-return-fulham-u
 **A Seized Oil Tanker and the Big Business of Dark Fleet Smuggling**\
 `The U.S. seizure of a vessel off Venezuela is likely to squeeze the country’s government, but do little to counter the tankers that secretively move oil from sanctioned countries.`\
 https://nytimes.com/2025/12/12/business/energy-environment/venezuela-oil-tanker-dark-fleet.html
-
-**Shai Gilgeous-Alexander breaking records, book-smart Harrison Barnes and more NBA trends I'm watching**\
-`If the Thunder are hitting their long-range shots, it’s goodnight for anyone facing them.`\
-https://nytimes.com/athletic/6883899/2025/12/12/nba-trends-sga-harrison-barnes-knicks/
-
-**NHL Power Rankings: Checking every team's Christmas list**\
-`From good luck to massive trade hauls, here’s every team’s top Christmas wish.`\
-https://nytimes.com/athletic/6883867/2025/12/12/nhl-power-rankings-christmas-list/
-
-**Alex Lyon's path back to Sabres' net and other thoughts from Buffalo's road trip**\
-`"It’s just satisfying when you try to stay as ready as you can, and then it pays off,” Lyon said after Thursday's win over Vancouver.`\
-https://nytimes.com/athletic/6883982/2025/12/12/alex-lyons-sabres-net-road-trip/
 
