@@ -1,3 +1,11 @@
+**How FIFA's World Cup pricing dwarfs projections in original North American bid**\
+`Ticket prices released this week by FIFA were, on average, 174 per cent higher than in the original North American bid book.`\
+https://nytimes.com/athletic/6884967/2025/12/12/world-cup-tickets-fifa-pricing/
+
+**Trio provides the energy for a Giannis-less Bucks in a much-needed win**\
+`At the end of Thursday's game against the Celtics, a Bucks trio carried the team to a much-needed win.`\
+https://nytimes.com/athletic/6884202/2025/12/12/bucks-nba-bobby-portis-kyle-kuzma-kevin-porter-jr/
+
 **Following first taste of extended playoff success, Blue Jays extend president Mark Shapiro**\
 `Shapiro will now need to keep Toronto on the cutting edge and charging toward a return to the World Series once again.`\
 https://nytimes.com/athletic/6884945/2025/12/12/blue-jays-mark-shapiro-contract-extension/

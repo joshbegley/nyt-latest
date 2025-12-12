@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6884967/2025/12/12/world-cup-tickets-fifa-pricing/
 https://nytimes.com/athletic/6884202/2025/12/12/bucks-nba-bobby-portis-kyle-kuzma-kevin-porter-jr/
 
 **Following first taste of extended playoff success, Blue Jays extend president Mark Shapiro**\
-`Shapiro will now need to keep Toronto on the cutting edge and charging toward a return to the World Series once again.`\
+`Shapiro will need to keep Toronto on the cutting edge and charging toward a return to the World Series.`\
 https://nytimes.com/athletic/6884945/2025/12/12/blue-jays-mark-shapiro-contract-extension/
 
 **After settlement, NASCAR will be better. But it shouldn't have happened like this**\
