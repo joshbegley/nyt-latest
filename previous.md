@@ -1,3 +1,11 @@
+**Iran Arrests Nobel Laureate Narges Mohammadi Amid Broader Crackdown**\
+`The human rights activist was released on furlough from prison last year, but was detained again on Friday, along with several other human rights activists.`\
+https://nytimes.com/2025/12/12/world/middleeast/iran-arrests-narges-mohammadi.html
+
+**Royals agree to five-year extension with All-Star Maikel Garcia: Source**\
+`Kansas City has now locked up the left side of its infield – Garcia and shortstop Bobby Witt Jr. – through at least 2030.`\
+https://nytimes.com/athletic/6885155/2025/12/12/maikel-garcia-kansas-city-royals-extension/
+
 **NASCAR needs to move into the future. It's time for Jim France to step aside**\
 `France stepped in to carry on his family's legacy. But after this damaging lawsuit and trial, the sport needs change to move forward.`\
 https://nytimes.com/athletic/6884976/2025/12/12/nascar-settlement-jim-france-future-owner/
@@ -25,12 +33,4 @@ https://nytimes.com/2025/12/12/sports/f1-racing-2026-season.html
 **So, Your House Is Stinky. Here’s How to Fix It. **\
 `Text by Caroline Mullen`\
 https://nytimes.com/card/2025/12/12/smarter-living/wirecutter/
-
-**Ex-Michigan coach Sherrone Moore charged with home invasion, stalking, breaking and entering**\
-`The home invasion charge is a felony, while the stalking and breaking and entering charges are misdemeanors.`\
-https://nytimes.com/athletic/6884529/2025/12/12/sherrone-moore-court-charges-michigan-football/
-
-**Arthur L. Carter, 93, Dies; Investment Banker Founded a Cheeky Newspaper**\
-`After making a fortune on Wall Street, he bought The Nation magazine and founded The New York Observer, which one writer called a “maypole of Manhattan gossip and intrigue.”`\
-https://nytimes.com/2025/12/12/business/media/arthur-carter-dead.html
 
