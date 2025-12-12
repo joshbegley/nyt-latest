@@ -1,3 +1,11 @@
+**Tether submits offer for controlling stake in Juventus**\
+`Sources close to Exor, speaking on the condition of anonymity, have told The Athletic that the company does not intend to sell its stake. `\
+https://nytimes.com/athletic/6885426/2025/12/12/juventus-takeover-tether-proposal/
+
+**The State of the Burger Address**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/the-state-of-the-burger-address
+
 **In a Hamlet Built on Forbidden Love, a Cyclone Buried It All**\
 `Three generations of a family built their homes and lives in Sri Lanka’s highland tea country. The biggest storm in decades wiped out their hamlet in a landslide.`\
 https://nytimes.com/2025/12/12/world/asia/in-a-hamlet-built-on-forbidden-love-a-cyclone-buried-it-all.html
@@ -25,12 +33,4 @@ https://nytimes.com/newsgraphics/card-story/antique-furniture-guide
 **Harvard Replaces Leader of Health Center Said to Have Focused on Palestinians**\
 `The center at the university’s public health school was also a focus of the Trump administration after having been examined in a Harvard antisemitism report earlier this year.`\
 https://nytimes.com/2025/12/12/us/harvard-replaces-public-health-center-director.html
-
-**gws-holiday-decor-apartment-brooklyn**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/holiday-decor-apartment-brooklyn
-
-**How to watch Blackhawks vs. Blues: Time, TV, streaming**\
-`Find out how to watch the Chicago Blackhawks play the St. Louis Blues, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6885417/2025/12/12/blackhawks-vs-blues-stream-how-to-watch-dec-12/
 
