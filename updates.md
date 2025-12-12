@@ -1,3 +1,15 @@
+**What Indiana’s Defiance Means for Trump: 6 Takeaways**\
+`President Trump’s failure to ram through a Republican-friendly House map was a new sign that his iron grip on the party has slipped, and was likely to reverberate nationally.`\
+https://nytimes.com/2025/12/11/us/politics/indiana-trump-redistricting-takeaways.html
+
+**Lane Thomas agrees to one-year deal with Royals: Source**\
+`Thomas will get another opportunity to build value with a one-year deal with the Kansas City Royals.`\
+https://nytimes.com/athletic/6817011/2025/12/11/lane-thomas-royals-free-agent-signing/
+
+**Mammoth's Cooley will miss at least 8 weeks with lower-body injury**\
+`Cooley, tied for fourth in Mammoth scoring, had two collisions involving his leg in the space of a week.`\
+https://nytimes.com/athletic/6883303/2025/12/11/logan-cooley-utah-mammoth-injury/
+
 **‘Storm Highway’ Expected to Send More Rain to Flooded Areas**\
 `Just as this week’s floodwaters in the Pacific Northwest begin to recede, forecasters warn, another storm will approach the West Coast.`\
 https://nytimes.com/2025/12/11/weather/washington-british-columbia-atmospheric-river-forecast.html
