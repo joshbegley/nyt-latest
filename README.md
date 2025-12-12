@@ -1,3 +1,11 @@
+**Ex-Michigan coach Sherrone Moore charged with home invasion, stalking, breaking and entering**\
+`The home invasion charge is a felony, while the stalking and breaking and entering charges are misdemeanors.`\
+https://nytimes.com/athletic/6884529/2025/12/12/sherrone-moore-court-charges-michigan-football/
+
+**Arthur L. Carter, 93, Dies; Investment Banker Founded a Cheeky Newspaper**\
+`After making a fortune on Wall Street, he bought The Nation magazine and founded The New York Observer, which one writer called a “maypole of Manhattan gossip and intrigue.”`\
+https://nytimes.com/2025/12/12/business/media/arthur-carter-dead.html
+
 **How to Find a Date in a Country with Over 30 Million Extra Men**\
 `A decade after the end of the one-child policy, China has over 30 million so-called surplus men. Can this dating boot camp help them find love?`\
 https://nytimes.com/video/opinion/100000010583475/china-dating-men-one-child-policy.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6884755/2025/12/12/edmonton-oilers-trade-tristan-ja
 **Salah to be included in Liverpool squad against Brighton**\
 `The forward's future had been thrown into doubt by his incendiary comments last weekend and exclusion from the squad that faced Inter Milan.`\
 https://nytimes.com/athletic/6885058/2025/12/12/mohamed-salah-liverpool-squad-brighton/
-
-**How FIFA's World Cup pricing dwarfs projections in original North American bid**\
-`Ticket prices released this week by FIFA were, on average, 174 per cent higher than in the original North American bid book.`\
-https://nytimes.com/athletic/6884967/2025/12/12/world-cup-tickets-fifa-pricing/
-
-**Trio provides the energy for a Giannis-less Bucks in a much-needed win**\
-`At the end of Thursday's game against the Celtics, a Bucks trio carried the team to a much-needed win.`\
-https://nytimes.com/athletic/6884202/2025/12/12/bucks-nba-bobby-portis-kyle-kuzma-kevin-porter-jr/
 
