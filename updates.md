@@ -1,3 +1,11 @@
+**In a Hamlet Built on Forbidden Love, a Cyclone Buried It All**\
+`Three generations of a family built their homes and lives in Sri Lanka’s highland tea country. The biggest storm in decades wiped out their hamlet in a landslide.`\
+https://nytimes.com/2025/12/12/world/asia/in-a-hamlet-built-on-forbidden-love-a-cyclone-buried-it-all.html
+
+**Cyclone Aftermath In Sri Lanka**\
+`Mujib Mashal, our South Asia bureau chief, takes us to Kandy in Sri Lanka, which suffered the worst of the devastation from last month’s cyclone.`\
+https://nytimes.com/video/world/asia/100000010566916/cyclone-aftermath-in-sri-lanka.html
+
 **Immigration Agents Are Using Air Passenger Data for Deportation Effort**\
 `The Transportation Security Administration is providing passenger lists to Immigrations and Customs Enforcement to identify and detain travelers subject to deportation orders.`\
 https://nytimes.com/2025/12/12/us/politics/immigration-tsa-passenger-data.html
