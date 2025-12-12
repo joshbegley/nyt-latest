@@ -1,3 +1,7 @@
+**Messi's MLS triumph watched by 4.6M says league but questions remain**\
+`The advertised numbers represent a significant jump in viewership for the championship game`\
+https://nytimes.com/athletic/6876379/2025/12/12/lionel-messis-mls-triumph-watched-by-4-6m-says-league-but-questions-remain/
+
 **What I'm hearing about the Flyers and Quinn Hughes, plus Christian Dvorak's future**\
 `Dvorak continues to contribute. What does that mean for the rest of this season and beyond?`\
 https://nytimes.com/athletic/6885102/2025/12/12/flyers-hughes-trade-dvorak/
@@ -21,8 +25,4 @@ https://nytimes.com/2025/12/12/us/politics/trump-white-house-ballroom-lawsuit-na
 **Germany Accuses Russia of Sabotage, Cyberattacks and Disinformation**\
 `The German foreign ministry’s announcement, which Russia denied, was the latest suggestion of growing Russian aggression in Europe.`\
 https://nytimes.com/2025/12/12/world/europe/germany-russia-cyberattacks-sabotage-hybrid-war.html
-
-**Panthers alone in first place in NFC South after Bucs' loss to Falcons**\
-`Carolina was last in first place by itself during the 2015 Super Bowl season.`\
-https://nytimes.com/athletic/6884709/2025/12/12/panthers-first-place-nfc-south/
 
