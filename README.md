@@ -1,3 +1,11 @@
+**How FIFA's World Cup pricing dwarfs projections in original North American bid**\
+`Ticket prices released this week by FIFA were, on average, 174 per cent higher than in the original North American bid book.`\
+https://nytimes.com/athletic/6884967/2025/12/12/world-cup-tickets-fifa-pricing/
+
+**Trio provides the energy for a Giannis-less Bucks in a much-needed win**\
+`At the end of Thursday's game against the Celtics, a Bucks trio carried the team to a much-needed win.`\
+https://nytimes.com/athletic/6884202/2025/12/12/bucks-nba-bobby-portis-kyle-kuzma-kevin-porter-jr/
+
 **Following first taste of extended playoff success, Blue Jays extend president Mark Shapiro**\
 `Shapiro will now need to keep Toronto on the cutting edge and charging toward a return to the World Series once again.`\
 https://nytimes.com/athletic/6884945/2025/12/12/blue-jays-mark-shapiro-contract-extension/
@@ -21,12 +29,4 @@ https://nytimes.com/video/arts/music/100000010573819/the-best-albums-of-2025.htm
 **Jets undrafted rookie QB Brady Cook to make first NFL start**\
 `Cook will become the first undrafted rookie to start at QB for the Jets in 50 years.`\
 https://nytimes.com/athletic/6884951/2025/12/12/brady-cook-jets-start-qb-jaguars/
-
-**Great Performers Awards: Best Performance in a Helmet**\
-`Welcome to “Cannonball’s” 1st Annual Great Performers Awards Show. On this week’s episode, our host Wesley Morris is joined by his editor, Sasha Weiss, to discuss some of the best acting of 2025. Up first, best performance in a helmet.`\
-https://nytimes.com/video/podcasts/100000010574694/great-performers-awards-best-performance-in-a-helmet.html
-
-**Big Businesses Are Cashing In on Trump’s Tax Cuts**\
-`Corporate tax revenue has quickly dipped since Republicans passed tax cuts this summer. But economists think these tax breaks might be worth it.`\
-https://nytimes.com/2025/12/12/us/politics/trumps-corporate-tax-cuts-economy.html
 
