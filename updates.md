@@ -1,3 +1,11 @@
+**Unai Emery's faith in Evann Guessand is beginning to pay off**\
+`The £30m summer signing is not yet a finished product – but Villa's Europa League campaign is helping him develop `\
+https://nytimes.com/athletic/6883230/2025/12/12/evann-guessand-aston-villa-europa-league/
+
+**Matt Boldy shines as Wild win 'measuring stick' game against Stars**\
+`Thursday was Minnesota's first regulation win over Dallas since Nov. 18, 2021. The Stars had been 10-0-5 in their 15 games against the Wild.`\
+https://nytimes.com/athletic/6883825/2025/12/12/matt-boldy-shines-wild-beats-stars/
+
 **Matt Boldy shines as Wild win 'measuring stick' game against Stars**\
 `Thursday was the Wild's first regulation win over the Dallas Stars since Nov. 18, 2021.`\
 https://nytimes.com/athletic/6883825/2025/12/12/matt-boldy-shines-wild-beats-stars/

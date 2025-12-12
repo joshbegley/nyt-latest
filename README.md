@@ -1,3 +1,7 @@
+**Bucs blow big lead in a big game … and they're big mad about it**\
+`Todd Bowles, Mike Evans and Baker Mayfield expressed a lot of disappointment after losing a critical game to the Falcons on Thursday night.`\
+https://nytimes.com/athletic/6883863/2025/12/12/buccaneers-angry-falcons-loss/
+
 **Unai Emery's faith in Evann Guessand is beginning to pay off**\
 `The £30m summer signing is not yet a finished product – but Villa's Europa League campaign is helping him develop `\
 https://nytimes.com/athletic/6883230/2025/12/12/evann-guessand-aston-villa-europa-league/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6881900/2025/12/12/spurs-tour-usa-australia/
 **Kirk Cousins rallies Falcons and hurts Bucs' playoff hopes: Takeaways**\
 `Even without being in playoff contention, the Falcons rallied from a two-touchdown deficit in the fourth quarter for a last-second win.`\
 https://nytimes.com/athletic/6882716/2025/12/12/falcons-bucs-score-result-takeaways-thursday-night-football/
-
-**Newcastle Under-19s have lost every game in Europe, but does that tell the full story?**\
-`While six straight losses in the UEFA Youth League is a poor return, there are signs the club can be more competitive in the future`\
-https://nytimes.com/athletic/6879172/2025/12/12/newcastle-u19s-have-lost-every-game-in-europe-but-does-that-tell-the-full-story/
 
