@@ -1,5 +1,9 @@
+**Michael Jordan was already a basketball legend. Now, he's one in NASCAR too**\
+`Thursday's settlement was that significant for NASCAR's teams that Jordan just made himself a transformative figure in yet another sport.`\
+https://nytimes.com/athletic/6882918/2025/12/11/michael-jordan-nascar-settlement-trial-legend/
+
 **Penguins delay game against Canadiens due to traffic accident**\
-`Many players arrived around an hour later than usual, but they were able to arrive in time for the 7:30 p.m. ET start.`\
+`Many players arrived around an hour later than usual, but they were able to make it in time for the 7:30 p.m. ET start.`\
 https://nytimes.com/athletic/6883405/2025/12/11/penguins-canadiens-game-delay-traffic-accident-pittsburgh/
 
 **What 23XI, Front Row and NASCAR's other teams are getting in the settlement**\
@@ -18,8 +22,8 @@ https://nytimes.com/athletic/6883290/2025/12/11/coastal-carolina-hires-ryan-bear
 `President Trump’s failure to ram through a Republican-friendly House map was a new sign that his iron grip on the party has slipped, and was likely to reverberate nationally.`\
 https://nytimes.com/2025/12/11/us/politics/indiana-trump-redistricting-takeaways.html
 
-**Lane Thomas agrees to one-year deal with Royals: Source**\
-`Thomas will get another opportunity to build value with a one-year deal with the Kansas City Royals.`\
+**Outfielder Lane Thomas agrees to one-year, $5.25 million deal with Royals: Source**\
+`Thomas, who only appeared in 39 games with Cleveland last season due to injuries, will get an opportunity to build value with Kansas City.`\
 https://nytimes.com/athletic/6817011/2025/12/11/lane-thomas-royals-free-agent-signing/
 
 **Mammoth's Cooley will miss at least 8 weeks with lower-body injury**\
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6883303/2025/12/11/logan-cooley-utah-mammoth-injury
 **‘Storm Highway’ Expected to Send More Rain to Flooded Areas**\
 `Just as this week’s floodwaters in the Pacific Northwest begin to recede, forecasters warn, another storm will approach the West Coast.`\
 https://nytimes.com/2025/12/11/weather/washington-british-columbia-atmospheric-river-forecast.html
-
-**Trump Signs Executive Order to Neuter State A.I. Laws**\
-`The order would create one federal regulatory framework for artificial intelligence, Mr. Trump told reporters in the Oval Office.`\
-https://nytimes.com/2025/12/11/technology/ai-trump-executive-order.html
 

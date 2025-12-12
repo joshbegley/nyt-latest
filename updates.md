@@ -1,3 +1,15 @@
+**Michael Jordan was already a basketball legend. Now, he's one in NASCAR too**\
+`Thursday's settlement was that significant for NASCAR's teams that Jordan just made himself a transformative figure in yet another sport.`\
+https://nytimes.com/athletic/6882918/2025/12/11/michael-jordan-nascar-settlement-trial-legend/
+
+**Penguins delay game against Canadiens due to traffic accident**\
+`Many players arrived around an hour later than usual, but they were able to make it in time for the 7:30 p.m. ET start.`\
+https://nytimes.com/athletic/6883405/2025/12/11/penguins-canadiens-game-delay-traffic-accident-pittsburgh/
+
+**Outfielder Lane Thomas agrees to one-year, $5.25 million deal with Royals: Source**\
+`Thomas, who only appeared in 39 games with Cleveland last season due to injuries, will get an opportunity to build value with Kansas City.`\
+https://nytimes.com/athletic/6817011/2025/12/11/lane-thomas-royals-free-agent-signing/
+
 **Penguins delay game against Canadiens due to traffic accident**\
 `Many players arrived around an hour later than usual, but they were able to arrive in time for the 7:30 p.m. ET start.`\
 https://nytimes.com/athletic/6883405/2025/12/11/penguins-canadiens-game-delay-traffic-accident-pittsburgh/
