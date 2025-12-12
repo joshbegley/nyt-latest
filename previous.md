@@ -1,3 +1,19 @@
+**The Bounce: The NBA Cup semis are here. Plus, Joel Embiid's shot diet leaves us hungry**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/6884840/2025/12/12/the-bounce-nba-cup-joel-embiid-thunder/
+
+**House Democrats Release Epstein Photos Documenting Ties to Powerful Men**\
+`The images, released without context by Democrats on the Oversight Committee, reveal little new about the deceased sex offender’s ties to prominent men in politics, entertainment and finance.`\
+https://nytimes.com/2025/12/12/us/politics/jeffrey-epstein-photos-estate.html
+
+**This ‘Into the Woods,’ Is Not that Deep. That’s What Makes It Great.**\
+`A new London staging of the Stephen Sondheim and James Lapine musical makes the most of its comedic elements and delivers a visual treat.`\
+https://nytimes.com/2025/12/12/theater/into-the-woods-bridge-theater.html
+
+**NHL trade grades: Oilers make a big goalie move but Tristan Jarry isn't the answer**\
+`The Oilers needed a goalie upgrade over Stuart Skinner but Tristan Jarry probably isn't the answer.`\
+https://nytimes.com/athletic/6884732/2025/12/12/nhl-trade-grades-oilers-penguins-skinner-jarry/
+
 **Wading into the Canucks' mess. Plus: Is this the most unpredictable NHL season yet?**\
 `We've also got a three-part trivia question for you quizzers out there.`\
 https://nytimes.com/athletic/6884780/2025/12/12/quinn-hughes-trade-rumors-canucks-nhl/
@@ -17,20 +33,4 @@ https://nytimes.com/athletic/6884778/2025/12/12/midge-purce-resigns-gotham-fc/
 **Joanna Trollope, Popular British Author, Dies at 82**\
 `Her books, many of which were best sellers, often described empty marriages, love affairs (with tasteful sex) and heroic clergymen.`\
 https://nytimes.com/2025/12/12/books/joanna-trollope-dead.html
-
-**Oilers acquire Penguins goaltender Tristan Jarry**\
-`The Oilers are banking on Tristan Jarry being the answer in net, and the Penguins were ready to move on from their up-and-down goaltender. `\
-https://nytimes.com/athletic/6884762/2025/12/12/oilers-penguins-tristan-jarry-stuart-skinner-brett-kulak/
-
-**Here It Is, Our Classic Potato Latke Recipe**\
-`And more reader (and staff) favorites from this week.`\
-https://nytimes.com/2025/12/12/dining/here-it-is-our-classic-potato-latke-recipe.html
-
-**‘Little Bear Ridge Road’ to Close Early on Broadway**\
-`The lauded play by Samuel D. Hunter is the first production of Scott Rudin’s comeback season. Despite positive reviews, sales have been soft.`\
-https://nytimes.com/2025/12/12/theater/little-bear-ridge-broadway-closing.html
-
-**Great Performers Awards: Best Grasp of Scuzz**\
-`Wesley Morris, the host of “Cannonball,” and his editor, Sasha Weiss, discuss Timothée Chalamet’s bold performance in “Marty Supreme.”`\
-https://nytimes.com/video/podcasts/100000010583365/great-performers-awards-best-grasp-of-scuzz.html
 

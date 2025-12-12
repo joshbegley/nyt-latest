@@ -1,3 +1,19 @@
+**The Bounce: The NBA Cup semis are here. Plus, Joel Embiid's shot diet leaves us hungry**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/6884840/2025/12/12/the-bounce-nba-cup-joel-embiid-thunder/
+
+**House Democrats Release Epstein Photos Documenting Ties to Powerful Men**\
+`The images, released without context by Democrats on the Oversight Committee, reveal little new about the deceased sex offender’s ties to prominent men in politics, entertainment and finance.`\
+https://nytimes.com/2025/12/12/us/politics/jeffrey-epstein-photos-estate.html
+
+**This ‘Into the Woods,’ Is Not that Deep. That’s What Makes It Great.**\
+`A new London staging of the Stephen Sondheim and James Lapine musical makes the most of its comedic elements and delivers a visual treat.`\
+https://nytimes.com/2025/12/12/theater/into-the-woods-bridge-theater.html
+
+**NHL trade grades: Oilers make a big goalie move but Tristan Jarry isn't the answer**\
+`The Oilers needed a goalie upgrade over Stuart Skinner but Tristan Jarry probably isn't the answer.`\
+https://nytimes.com/athletic/6884732/2025/12/12/nhl-trade-grades-oilers-penguins-skinner-jarry/
+
 **Wading into the Canucks' mess. Plus: Is this the most unpredictable NHL season yet?**\
 `We've also got a three-part trivia question for you quizzers out there.`\
 https://nytimes.com/athletic/6884780/2025/12/12/quinn-hughes-trade-rumors-canucks-nhl/
