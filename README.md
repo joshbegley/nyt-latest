@@ -1,3 +1,11 @@
+**The Prospects: Kian Breckin, Manchester City**\
+`The Athletic takes a look at a Manchester City midfielder who has tasted senior football on loan and may now be ready to take that next step`\
+https://nytimes.com/athletic/6881571/2025/12/12/prospects-kian-breckin-manchester-city/
+
+**Welcome to the chaotic, warp-speed Premier League season nobody can predict**\
+`Has there ever been a season during which the narratives and fortunes of clubs change so suddenly and dramatically? `\
+https://nytimes.com/athletic/6881525/2025/12/12/premier-league-warp-speed-season/
+
 **Is Haaland the greatest goalscorer in English football history?**\
 `How does the Manchester City striker's record compare to those who have gone before him, like the legendary Dixie Dean and Jimmy Greaves?`\
 https://nytimes.com/athletic/6773305/2025/12/12/haaland-greatest-goalscorer-english-football/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6880351/2025/12/12/arne-slot-liverpool-tactical-pro
 **Man City's ominous post-Christmas record should make Arsenal nervous**\
 `The leaders reacted badly to their loss against Villa – it might be City's form in the second half of recent seasons that is worrying them`\
 https://nytimes.com/athletic/6876224/2025/12/12/man-city-arsenal-post-christmas-analysis/
-
-**From Chips to Security, China Is Getting Much of What It Wants From the U.S.**\
-`For China, President Trump’s moves to loosen chip controls, soften U.S. rhetoric and stay silent on tensions with Japan amount to a rare string of strategic gains.`\
-https://nytimes.com/2025/12/12/world/asia/nvidia-china-trump-security-japan.html
-
-**Billy Bonds: 'The most important and influential person in West Ham's history'**\
-`Billy Bonds passed away late last month. Former players from across the game explain why he was so important`\
-https://nytimes.com/athletic/6848982/2025/12/12/billy-bonds-west-ham/
 
