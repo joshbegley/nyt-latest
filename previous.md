@@ -1,3 +1,7 @@
+**Jets undrafted rookie QB Brady Cook to make first NFL start**\
+`Cook will become the first undrafted rookie to start at QB for the Jets in 50 years.`\
+https://nytimes.com/athletic/6884951/2025/12/12/brady-cook-jets-start-qb-jaguars/
+
 **Great Performers Awards: Best Performance in a Helmet**\
 `Welcome to “Cannonball’s” 1st Annual Great Performers Awards Show. On this week’s episode, our host Wesley Morris is joined by his editor, Sasha Weiss, to discuss some of the best acting of 2025. Up first, best performance in a helmet.`\
 https://nytimes.com/video/podcasts/100000010574694/great-performers-awards-best-performance-in-a-helmet.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/12/us/hindi-comics-standup.html
 **How to watch Pacers vs. 76ers: Time, TV, streaming**\
 `Find out how to watch the Indiana Pacers play the Philadelphia 76ers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6884934/2025/12/12/pacers-vs-76ers-stream-how-to-watch-dec-12/
-
-**How to watch Bulls vs. Hornets: Time, TV, streaming**\
-`Find out how to watch the Chicago Bulls play the Charlotte Hornets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6884932/2025/12/12/bulls-vs-hornets-stream-how-to-watch-dec-12/
 

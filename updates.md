@@ -1,3 +1,7 @@
+**Jets undrafted rookie QB Brady Cook to make first NFL start**\
+`Cook will become the first undrafted rookie to start at QB for the Jets in 50 years.`\
+https://nytimes.com/athletic/6884951/2025/12/12/brady-cook-jets-start-qb-jaguars/
+
 **Great Performers Awards: Best Performance in a Helmet**\
 `Welcome to “Cannonball’s” 1st Annual Great Performers Awards Show. On this week’s episode, our host Wesley Morris is joined by his editor, Sasha Weiss, to discuss some of the best acting of 2025. Up first, best performance in a helmet.`\
 https://nytimes.com/video/podcasts/100000010574694/great-performers-awards-best-performance-in-a-helmet.html
