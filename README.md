@@ -1,3 +1,15 @@
+**Phil Upchurch, Jazz Guitarist and Sideman to Stars, Dies at 84**\
+`A self-taught session man extraordinaire, he played with a constellation of stars, including Michael Jackson, Curtis Mayfield, Chaka Khan and Dizzy Gillespie.`\
+https://nytimes.com/2025/12/12/arts/music/phil-upchurch-dead.html
+
+**What we're hearing about Kevyn Adams' future as Sabres GM**\
+`The Sabres have been holding internal discussions about replacing Adams as general manager.`\
+https://nytimes.com/athletic/6884781/2025/12/12/buffalo-sabres-kevyn-adams-gm/
+
+**Canadians Rush to Buy Stockpiles of Boycotted U.S. Liquor**\
+`Four Canadian provinces are selling off the American liquor they pulled from shelves in protest over President Trump’s tariffs. Some bourbon drinkers are thrilled.`\
+https://nytimes.com/2025/12/12/world/canada/canada-american-liquor-ban-tariffs-charity.html
+
 **gws-how-to-choose-seeds-with-flavor-in-mind**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/how-to-choose-seeds-with-flavor-in-mind
@@ -21,16 +33,4 @@ https://nytimes.com/newsgraphics/card-story/chocolate-shops-paris
 **gws-big-apple-circus-dogs-nyc**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/big-apple-circus-dogs-nyc
-
-**Angel Reese says she plans to return to the Chicago Sky for third season**\
-`Reese says she's working on her relationship with the Sky's coach and general manager.`\
-https://nytimes.com/athletic/6885487/2025/12/12/angel-reese-chicago-sky-return/
-
-**King Charles Relays ‘Good News’ About His Cancer Treatment**\
-`In a prerecorded message aired on Friday, King Charles III said that his doctors planned to scale back his cancer treatment starting next year, after being diagnosed in early 2024. The monarch also promoted cancer research and screening programs for early detection.`\
-https://nytimes.com/video/world/europe/100000010584467/king-charles-cancer-good-news.html
-
-**gws-gabriel-hendifar-new-york-home**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/gabriel-hendifar-new-york-home
 

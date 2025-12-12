@@ -1,3 +1,19 @@
+**gws-how-to-choose-seeds-with-flavor-in-mind**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/how-to-choose-seeds-with-flavor-in-mind
+
+**Cowboys CB Trevon Diggs wants future to be in Dallas**\
+`Cowboys executive vice president Stephen Jones wasn’t as certain about Diggs playing against Minnesota this weekend.`\
+https://nytimes.com/athletic/6884720/2025/12/12/trevon-diggs-cowboys-vikings-injury-update/
+
+**Scenes From Washington After a Week of Torrential Rain and Flooding**\
+`More than 100,000 residents were told to leave their homes across Washington State this week as rivers overflowed.`\
+https://nytimes.com/2025/12/12/us/washington-flooding-rain-evacuations.html
+
+**Kenny Pickett to replace injured Geno Smith at quarterback for Raiders against Eagles**\
+`Pickett will replace Geno Smith, who injured his shoulder and hand in last week's loss to Denver.`\
+https://nytimes.com/athletic/6885479/2025/12/12/raiders-kenny-pickett-starting-quarterback/
+
 **In Paris, a New Wave of Chocolate Boutiques**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/chocolate-shops-paris
@@ -17,16 +33,4 @@ https://nytimes.com/video/world/europe/100000010584467/king-charles-cancer-good-
 **gws-gabriel-hendifar-new-york-home**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/gabriel-hendifar-new-york-home
-
-**The Best Coffee Tables on the Market Right Now**\
-`Low-to-the-ground styles to hold in high esteem, no matter the price point.`\
-https://nytimes.com/2025/12/12/t-magazine/best-coffee-tables.html
-
-**Washington State to hire Missouri OC Kirby Moore as coach: Source**\
-`Moore is a Washington native and the younger brother of Saints head coach Kellen Moore.`\
-https://nytimes.com/athletic/6883574/2025/12/12/washington-state-football-coach-kirby-moore-missouri/
-
-**National Parks Ordered to Remove Items Promoting D.E.I. From Gift Shops**\
-`The Interior Department said that the review of retail items would ensure gift shops at national parks did not “promote specific viewpoints.”`\
-https://nytimes.com/2025/12/12/us/politics/national-parks-dei-gift-shops.html
 
