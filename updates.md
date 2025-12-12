@@ -1,3 +1,11 @@
+**East German clash heads Bundesliga action as Milan, Marseille and Real chase wins**\
+`An East Germany clash between Union Berlin and RB Leipzig kicks of a great weekend of European league action.`\
+https://nytimes.com/athletic/6883541/2025/12/12/east-german-bundesliga-milan-marseille/
+
+**Word of the Day: compensation**\
+`This word has appeared in 1,406 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/12/12/learning/word-of-the-day-compensation.html
+
 **Bucs blow big lead in a big game … and they're big mad about it**\
 `Todd Bowles, Mike Evans and Baker Mayfield expressed a lot of disappointment after losing a critical game to the Falcons on Thursday night.`\
 https://nytimes.com/athletic/6883863/2025/12/12/buccaneers-angry-falcons-loss/
