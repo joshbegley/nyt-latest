@@ -1,3 +1,7 @@
+**Messi's MLS triumph watched by 4.6M says league but questions remain**\
+`The advertised numbers represent a significant jump in viewership for the championship game`\
+https://nytimes.com/athletic/6876379/2025/12/12/lionel-messis-mls-triumph-watched-by-4-6m-says-league-but-questions-remain/
+
 **What I'm hearing about the Flyers and Quinn Hughes, plus Christian Dvorak's future**\
 `Dvorak continues to contribute. What does that mean for the rest of this season and beyond?`\
 https://nytimes.com/athletic/6885102/2025/12/12/flyers-hughes-trade-dvorak/
