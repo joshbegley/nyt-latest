@@ -11,7 +11,7 @@ https://nytimes.com/2025/12/12/learning/word-of-the-day-compensation.html
 https://nytimes.com/athletic/6883863/2025/12/12/buccaneers-angry-falcons-loss/
 
 **Unai Emery's faith in Evann Guessand is beginning to pay off**\
-`The £30m summer signing is not yet a finished product – but Villa's Europa League campaign is helping him develop `\
+`The £30m summer signing is not yet a finished product — but Villa's Europa League campaign is helping him develop `\
 https://nytimes.com/athletic/6883230/2025/12/12/evann-guessand-aston-villa-europa-league/
 
 **Matt Boldy shines as Wild win 'measuring stick' game against Stars**\

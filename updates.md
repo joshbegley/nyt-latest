@@ -1,3 +1,7 @@
+**Unai Emery's faith in Evann Guessand is beginning to pay off**\
+`The £30m summer signing is not yet a finished product — but Villa's Europa League campaign is helping him develop `\
+https://nytimes.com/athletic/6883230/2025/12/12/evann-guessand-aston-villa-europa-league/
+
 **East German clash heads Bundesliga action as Milan, Marseille and Real chase wins**\
 `An East Germany clash between Union Berlin and RB Leipzig kicks of a great weekend of European league action.`\
 https://nytimes.com/athletic/6883541/2025/12/12/east-german-bundesliga-milan-marseille/
