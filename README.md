@@ -1,3 +1,7 @@
+**Michael Jordan's rookie Nike shoes fetch almost $700K at auction**\
+`Sotheby's latest auction bridged eras of greatness, headlined by Jordan's rookie shoes and memorabilia from Kobe Bryant's career.`\
+https://nytimes.com/athletic/6881751/2025/12/11/michael-jordan-rookie-nike-shoes-auction/
+
 **Trump Offers Symbolic Pardon for Clerk Convicted of Election Tampering**\
 `Tina Peters was sentenced for a Colorado state crime that the president has no ability to pardon. President Trump has no legal power to free her from prison.`\
 https://nytimes.com/2025/12/11/us/politics/trump-pardon-tina-peters-colorado.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6882943/2025/12/11/nascar-settlement-23xi-front-row
 **Lawsuit Seeks to Stop Oil Exploration in Remote Areas of the Arctic**\
 `A federal lawsuit argues that proposed work by ConocoPhillips could threaten delicate ecosystems in the largest tract of public land in the U.S.`\
 https://nytimes.com/2025/12/11/climate/alaska-lawsuit-drilling-conoco-phillips.html
-
-**Coastal Carolina hires Ryan Beard as its next head coach**\
-`Beard has a 19-16 head coaching record, also spent time at Louisville, Western Kentucky and Central Michigan.`\
-https://nytimes.com/athletic/6883290/2025/12/11/coastal-carolina-hires-ryan-beard-as-head-coach/
 
