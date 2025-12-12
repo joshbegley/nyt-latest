@@ -1,3 +1,11 @@
+**Falcons finally find a way, overcoming 19 penalties and 14-point deficit to beat Bucs**\
+`The Falcons were down 14 points in the fourth quarter Thursday but came back to beat the Bucs 29-28 with the help of some unlikely heroes.`\
+https://nytimes.com/athletic/6883986/2025/12/12/falcons-buccaneers-tnf-sills-neuzil-alford/
+
+**Ohio State mailbag: What's been most surprising about this season? Miami or Texas A&M?**\
+`Answering your Ohio State questions about Playoff expectations, red zone troubles, the Cotton Bowl matchup, the O-line and more.`\
+https://nytimes.com/athletic/6881700/2025/12/12/ohio-state-play-cotton-bowl-expectations/
+
 **Fantasy Premier League live Q&A: Gameweek 16 advice from Ben Dinnery**\
 `Post your questions, and Ben will be online to offer his insight from 4pm to 5pm UK time (11am to 12pm ET)`\
 https://nytimes.com/athletic/6884308/2025/12/12/fantasy-premier-league-fpl-tips-qa-gameweek-16-advice-from-ben-dinnery/
