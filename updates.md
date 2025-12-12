@@ -1,3 +1,15 @@
+**Oilers acquire Penguins goaltender Tristan Jarry**\
+`The Oilers are banking on Tristan Jarry being the answer in net, and the Penguins were ready to move on from their up-and-down goaltender. `\
+https://nytimes.com/athletic/6884762/2025/12/12/oilers-penguins-tristan-jarry-stuart-skinner-brett-kulak/
+
+**Here It Is, Our Classic Potato Latke Recipe**\
+`And more reader (and staff) favorites from this week.`\
+https://nytimes.com/2025/12/12/dining/here-it-is-our-classic-potato-latke-recipe.html
+
+**‘Little Bear Ridge Road’ to Close Early on Broadway**\
+`The lauded play by Samuel D. Hunter is the first production of Scott Rudin’s comeback season. Despite positive reviews, sales have been soft.`\
+https://nytimes.com/2025/12/12/theater/little-bear-ridge-broadway-closing.html
+
 **Great Performers Awards: Best Grasp of Scuzz**\
 `Wesley Morris, the host of “Cannonball,” and his editor, Sasha Weiss, discuss Timothée Chalamet’s bold performance in “Marty Supreme.”`\
 https://nytimes.com/video/podcasts/100000010583365/great-performers-awards-best-grasp-of-scuzz.html
