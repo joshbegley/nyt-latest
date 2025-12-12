@@ -1,3 +1,11 @@
+**Man City's Toure calls Wigan sacking 'the best thing that happened to me'**\
+`Toure was dismissed by Wigan in January 2023 after failing to win any of his seven Championship matches in charge.`\
+https://nytimes.com/athletic/6884481/2025/12/12/manchester-city-kolo-toure-wigan/
+
+**Bijan Robinson apologizes for using homophobic phrase on TNF postgame show**\
+`Robinson used the term in response to analyst Richard Sherman's comments on backyard football.`\
+https://nytimes.com/athletic/6884381/2025/12/12/bijan-robinson-apology-tnf/
+
 **Russia Sues Holder of Frozen Assets Europe Wants for Ukraine Loan**\
 `The lawsuit was a warning to European officials who are racing to agree to a plan to use Russian government assets in Europe to lend money to Ukraine.`\
 https://nytimes.com/2025/12/12/world/europe/russia-ukraine-frozen-assets-belgium-euroclear.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6883813/2025/12/12/clippers-close-game-clutch-time-
 **From ‘Spaghetti Western’ Scores to the Opera Stage**\
 `Throughout his life, Ennio Morricone felt shunned by the classical music world. But these days his pop-culture cachet isn’t such a drawback.`\
 https://nytimes.com/2025/12/12/arts/music/ennio-morricone-opera-partenope.html
-
-**Dozens Killed as a Hospital Is Bombed in Brutal Civil War**\
-`Jets from the Myanmar military dropped two bombs on the facility in Mrauk-U, in what rebels and witnesses called a deliberate attack on civilians.`\
-https://nytimes.com/2025/12/12/world/asia/myanmar-hospital-attack-rakhine.html
-
-**Maple Leafs after 30: How good can Easton Cowan be?**\
-`Easton Cowan’s numbers have all the traits of a player who can one day move the needle.`\
-https://nytimes.com/athletic/6882641/2025/12/12/maple-leafs-easton-cowan-analytics/
 
