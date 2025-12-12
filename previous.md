@@ -1,3 +1,23 @@
+**Wading into the Canucks' mess. Plus: Is this the most unpredictable NHL season yet?**\
+`We've also got a three-part trivia question for you quizzers out there.`\
+https://nytimes.com/athletic/6884780/2025/12/12/quinn-hughes-trade-rumors-canucks-nhl/
+
+**F1 and FIA announce new Concorde Agreement signed with teams through 2030**\
+`The Concorde Agreement serves as the binding commercial and governing terms between the sport.`\
+https://nytimes.com/athletic/6884612/2025/12/12/f1-fia-concorde-agreement/
+
+**Fraudster’s Victims Are Seething After Trump Commuted His Sentence**\
+`David Gentile spent just days in prison for his conviction in what prosecutors described as a $1.6 billion scheme that defrauded thousands of investors.`\
+https://nytimes.com/2025/12/12/nyregion/david-gentile-trump-commutation.html
+
+**Midge Purce re-signs with Gotham FC for another season**\
+`The 30-year-old forward, fresh off a championship and with a star profile beyond the pitch, has determined she wants to stay in New Jersey.`\
+https://nytimes.com/athletic/6884778/2025/12/12/midge-purce-resigns-gotham-fc/
+
+**Joanna Trollope, Popular British Author, Dies at 82**\
+`Her books, many of which were best sellers, often described empty marriages, love affairs (with tasteful sex) and heroic clergymen.`\
+https://nytimes.com/2025/12/12/books/joanna-trollope-dead.html
+
 **Oilers acquire Penguins goaltender Tristan Jarry**\
 `The Oilers are banking on Tristan Jarry being the answer in net, and the Penguins were ready to move on from their up-and-down goaltender. `\
 https://nytimes.com/athletic/6884762/2025/12/12/oilers-penguins-tristan-jarry-stuart-skinner-brett-kulak/
@@ -13,24 +33,4 @@ https://nytimes.com/2025/12/12/theater/little-bear-ridge-broadway-closing.html
 **Great Performers Awards: Best Grasp of Scuzz**\
 `Wesley Morris, the host of “Cannonball,” and his editor, Sasha Weiss, discuss Timothée Chalamet’s bold performance in “Marty Supreme.”`\
 https://nytimes.com/video/podcasts/100000010583365/great-performers-awards-best-grasp-of-scuzz.html
-
-**Gonzo Fans Have Made ‘Dungeon Crawler Carl’ Into a Global Blockbuster**\
-`Matt Dinniman introduced his series about an alien reality TV show free on the web. But readers ate up the goofy humor, now to the tune of 6 million books sold.`\
-https://nytimes.com/2025/12/12/books/review/dungeon-crawler-carl-matt-dinniman.html
-
-**Where things stand as Tyler Skaggs trial enters final day of testimony**\
-`The jury heard from a former MLB lawyer, ex-pitcher Matt Harvey, an addiction expert and others as testimony wound down this week.`\
-https://nytimes.com/athletic/6884046/2025/12/12/tyler-skaggs-angels-trial-testimony/
-
-**What I'm hearing about Giannis, AD and other major NBA trade situations**\
-`The NBA trade deadline is not until Feb. 5, but Monday marks a significant day when talks heat up. `\
-https://nytimes.com/athletic/6881845/2025/12/12/nba-trades-giannis-antetokounmpo-anthony-davis-warriors-mavericks/
-
-**Sources: D.C. in advanced talks to sign Tai Baribo from Philadelphia**\
-`D.C. finished last in MLS in 2025 and is seeking a replacement for star forward Christian Benteke`\
-https://nytimes.com/athletic/6884708/2025/12/12/tai-baribo-dc-united-philadelphia-union-mls-trade/
-
-**How college football's new landscape has changed betting on bowl games**\
-`Betting on bowl games is harder than ever thanks to the new landscape. We spoke to oddsmakers and bettors for their thoughts on the topic.`\
-https://nytimes.com/athletic/6881873/2025/12/12/betting-college-football-bowls-changes-nil-coaches/
 
