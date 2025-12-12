@@ -1,3 +1,7 @@
+**What I'm hearing about the Flyers and Quinn Hughes, plus Christian Dvorak's future**\
+`Dvorak continues to contribute. What does that mean for the rest of this season and beyond?`\
+https://nytimes.com/athletic/6885102/2025/12/12/flyers-hughes-trade-dvorak/
+
 **Snoop Dogg joins Team USA as first-ever honorary coach for Winter Olympics**\
 `Team USA's biggest hype man is taking on a new role.`\
 https://nytimes.com/athletic/6885148/2025/12/12/snoop-dogg-team-usa-honorary-coach-olympics/
@@ -21,8 +25,4 @@ https://nytimes.com/2025/12/12/world/europe/germany-russia-cyberattacks-sabotage
 **Panthers alone in first place in NFC South after Bucs' loss to Falcons**\
 `Carolina was last in first place by itself during the 2015 Super Bowl season.`\
 https://nytimes.com/athletic/6884709/2025/12/12/panthers-first-place-nfc-south/
-
-**Is This the Ultimate Winter Sun Destination?**\
-`Puerto Escondido, set on a stunning sweep of Mexico’s Pacific Coast, draws both big-wave surfers and starchitects.`\
-https://nytimes.com/2025/12/12/t-magazine/puerto-escondido-oaxaca-hotel-travel.html
 
