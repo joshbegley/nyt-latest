@@ -1,8 +1,20 @@
+**Immigration Agents Are Using Air Passenger Data for Deportation Effort**\
+`The Transportation Security Administration is providing passenger lists to Immigrations and Customs Enforcement to identify and detain travelers subject to deportation orders.`\
+https://nytimes.com/2025/12/12/us/politics/immigration-tsa-passenger-data.html
+
+**Notre Dame's Jeremiyah Love: Irish 'put ourselves in that position' to miss Playoff**\
+`“At the end of the day, we left it up to the committee to decide whether we're going to be in the playoffs or not," Love said.`\
+https://nytimes.com/athletic/6885420/2025/12/12/jeremiyah-love-notre-dame-playoff-heisman/
+
+**In Trump’s Justice Dept., Failing in Court Might Be Better Than Bucking the Boss**\
+`Thursday demonstrated an emerging reality for President Trump: Commanding the Justice Department is not the same as controlling the justice system.`\
+https://nytimes.com/2025/12/12/us/politics/trump-justice-dept.html
+
 **Antique or Imitation? A Field Guide for Furniture Hunting.**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/antique-furniture-guide
 
-**Harvard Replaces Leader of Health Center Accused of Favoring Palestinians**\
+**Harvard Replaces Leader of Health Center Said to Have Focused on Palestinians**\
 `The center at the university’s public health school was also a focus of the Trump administration after having been examined in a Harvard antisemitism report earlier this year.`\
 https://nytimes.com/2025/12/12/us/harvard-replaces-public-health-center-director.html
 
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/6885414/2025/12/12/jazz-vs-grizzlies-stream-how-to-
 **How to watch Nets vs. Mavericks: Time, TV, streaming**\
 `Find out how to watch the Brooklyn Nets play the Dallas Mavericks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6885412/2025/12/12/nets-vs-mavericks-stream-how-to-watch-dec-12/
-
-**How to watch Timberwolves vs. Warriors: Time, TV, streaming**\
-`Find out how to watch the Minnesota Timberwolves play the Golden State Warriors, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6885410/2025/12/12/timberwolves-vs-warriors-stream-how-to-watch-dec-12/
-
-**How to watch Kraken vs. Mammoth: Time, TV, streaming**\
-`Find out how to watch the Seattle Kraken play the Utah Mammoth, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6885408/2025/12/12/kraken-vs-mammoth-stream-how-to-watch-dec-12/
-
-**Caitlin Clark makes Team USA debut at camp, says she's back to full health**\
-`Clark said she was nervous coming back to the court after missing most of the WNBA season.`\
-https://nytimes.com/athletic/6885337/2025/12/12/caitlin-clark-team-usa-training-camp-debut/
 

@@ -1,3 +1,19 @@
+**Immigration Agents Are Using Air Passenger Data for Deportation Effort**\
+`The Transportation Security Administration is providing passenger lists to Immigrations and Customs Enforcement to identify and detain travelers subject to deportation orders.`\
+https://nytimes.com/2025/12/12/us/politics/immigration-tsa-passenger-data.html
+
+**Notre Dame's Jeremiyah Love: Irish 'put ourselves in that position' to miss Playoff**\
+`“At the end of the day, we left it up to the committee to decide whether we're going to be in the playoffs or not," Love said.`\
+https://nytimes.com/athletic/6885420/2025/12/12/jeremiyah-love-notre-dame-playoff-heisman/
+
+**In Trump’s Justice Dept., Failing in Court Might Be Better Than Bucking the Boss**\
+`Thursday demonstrated an emerging reality for President Trump: Commanding the Justice Department is not the same as controlling the justice system.`\
+https://nytimes.com/2025/12/12/us/politics/trump-justice-dept.html
+
+**Harvard Replaces Leader of Health Center Said to Have Focused on Palestinians**\
+`The center at the university’s public health school was also a focus of the Trump administration after having been examined in a Harvard antisemitism report earlier this year.`\
+https://nytimes.com/2025/12/12/us/harvard-replaces-public-health-center-director.html
+
 **Antique or Imitation? A Field Guide for Furniture Hunting.**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/antique-furniture-guide
