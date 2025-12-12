@@ -1,3 +1,11 @@
+**National Trust Sues to Block Trump’s White House Ballroom Construction**\
+`The lawsuit seeks to force President Trump to submit his ballroom plans for public review and input.`\
+https://nytimes.com/2025/12/12/us/politics/trump-white-house-ballroom-lawsuit-national-trust.html
+
+**Germany Accuses Russia of Sabotage, Cyberattacks and Disinformation**\
+`The German foreign ministry’s announcement, which Russia denied, was the latest suggestion of growing Russian aggression in Europe.`\
+https://nytimes.com/2025/12/12/world/europe/germany-russia-cyberattacks-sabotage-hybrid-war.html
+
 **Panthers alone in first place in NFC South after Bucs' loss to Falcons**\
 `Carolina was last in first place by itself during the 2015 Super Bowl season.`\
 https://nytimes.com/athletic/6884709/2025/12/12/panthers-first-place-nfc-south/
