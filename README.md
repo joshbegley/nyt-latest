@@ -1,36 +1,36 @@
-**Brighton may use January transfer 'solution' after Tzimas injury - Hurzeler**\
-`The club normally uses the January window for signings for the future rather than immediate needs, but that may now change.`\
-https://nytimes.com/athletic/6884275/2025/12/12/brighton-transfer-news-latest/
+**The Athletic’s Friday football quiz question #85**\
+`Can you answer the weekly poser plucked from deep inside The Athletic's trivia vaults?`\
+https://nytimes.com/athletic/6882350/2025/12/12/the-athletics-friday-football-quiz-question-85/
 
-**TAFC: World Cup's $8k ticket, Everton's 'Toffee Lady' returns, Haaland vs Dixie Dean**\
-`Today in TAFC: FIFA accused of 'betrayal' of fans after World Cup ticket price rise. Plus: Will Haaland become the greatest-ever EPL scorer?`\
-https://nytimes.com/athletic/6884100/2025/12/12/the-athletic-fc-world-cup-8k-ticket-evertons-toffee-lady-returns-haaland-vs-dixie-dean/
+**How do this season's Heisman Trophy finalists project as NFL Draft prospects?**\
+`Fernando Mendoza could be QB1 in this draft, but every Heisman finalist has an NFL future.`\
+https://nytimes.com/athletic/6878491/2025/12/12/nfl-draft-2026-heisman-mendoza-love-pavia-sayin/
 
-**The Pulse: Trial of the century goes poof**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6882674/2025/12/12/nascar-michael-jordan-trial-the-pulse/
+**Ten chaotic moments that unexpectedly shaped the college football season**\
+`A 2-point attempt in the middle of season, an overturned fumble by a blade of grass and a Heisman moment defined a chaotic 2025 season.`\
+https://nytimes.com/athletic/6882542/2025/12/12/college-football-chaos-moments-playoff-notre-dame/
 
-**Lindsey Vonn wins her 83rd World Cup race, capping odds-defying return to Alpine skiing**\
-`The American legend spent her comeback season saying she just needed more time. On Friday, she backed it up with another World Cup win.`\
-https://nytimes.com/athletic/6884090/2025/12/12/lindsey-vonn-olympics-world-cup-win-st-moritz-downhill/
+**For Drake Maye and other QBs, phone will always ring if they can do toughest job in sports**\
+`Philip Rivers isn't the first time an NFL team has reached out to the retirement home. There aren't enough humans with skills to play QB.`\
+https://nytimes.com/athletic/6883607/2025/12/12/patriots-drake-maye-philip-rivers-colts-nfl-qbs/
 
-**Why are 6-7 Chiefs still betting favorites over 9-4 Chargers? An oddsmaker explains**\
-`Despite a disappointing 6-7 record and losses in four of their last five games, the Chiefs are still respected in Las Vegas. Here's why.`\
-https://nytimes.com/athletic/6882871/2025/12/12/chiefs-betting-favorites-chargers-oddsmakers/
+**Is Dalot starting to silence his critics?**\
+`The full-back comes in for plenty of criticism but his recent performances, particularly in an attacking sense, have been encouraging`\
+https://nytimes.com/athletic/6881698/2025/12/12/diogo-dalot-critics-manchester-united/
 
-**What does the film say about Bryce Young's up-and-down season?**\
-`When Bryce Young has space to step up in the pocket, he is capable of high-level play. He struggles when the pocket gets muddy.`\
-https://nytimes.com/athletic/6881227/2025/12/12/panthers-bryce-young-keys-to-success/
+**Did you notice the Pistons already have a second star?**\
+`The 22-year-old Duren always been a double-double threat, but he has ascended to stardom by improving his offense and rim protection. `\
+https://nytimes.com/athletic/6883333/2025/12/12/jalen-duren-pistons-highlights-video/
 
-**Is DJ Moore's Bears future in question? Can pass rush heat up? Mailbag plus Week 15 picks**\
-`Would the Bears trade Moore? He's having his least productive season on the best team he's been on. That leads this week's mailbag.`\
-https://nytimes.com/athletic/6883114/2025/12/12/bears-mailbag-dj-moore-future/
+**How the Söderblom brothers' childhood competitiveness fulfilled their NHL dreams**\
+`"It's very often, we look at each other and like, pinch me, what is going on?" the brothers' mother said. "We're so very proud."`\
+https://nytimes.com/athletic/6882465/2025/12/12/blackhawks-red-wings-arvid-elmer-soderblom-nhl/
 
-**Lions-Rams matchup to watch: How Detroit's D handles L.A.'s 13 personnel**\
-`The Rams like to dictate things on offense by running 13 personnel. Kelvin Sheppard's linebacker-heavy group could be suited to defend.`\
-https://nytimes.com/athletic/6883596/2025/12/12/lions-defense-matthew-stafford-sean-mcvay-rams/
+**Fernando Mendoza, Ahmad Hardy headline The Athletic's all-transfer team**\
+`The Heisman Trophy favorite, as well as the nation's leading rusher and leader in sacks and tackles for loss, are all first-year transfers. `\
+https://nytimes.com/athletic/6881797/2025/12/12/all-transfer-team-college-football-fernando-mendoza-ahmad-hardy/
 
-**How to watch the 2025 College Football Awards: Jeremiyah Love, Caleb Downs among nominees**\
-`Friday night's telecast honors the best players, coaches and community fixtures across college football.`\
-https://nytimes.com/athletic/6876713/2025/12/12/college-football-awards-2025-announcement-how-to-watch/
+**Bills notebook: Buffalo's AFC East hopes hang in the balance in Week 15**\
+`The Bills (9-4) need to beat the Patriots (11-2) on Sunday to retain hopes for a sixth straight division title.`\
+https://nytimes.com/athletic/6883086/2025/12/12/bills-notebook-week-15-afc-east/
 

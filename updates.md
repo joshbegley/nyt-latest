@@ -1,3 +1,7 @@
+**Brighton may use January transfer 'solution' after Tzimas injury - Hurzeler**\
+`The club normally uses the January window for signings for the future rather than immediate needs, but that may now change.`\
+https://nytimes.com/athletic/6884275/2025/12/12/brighton-transfer-news-latest/
+
 **TAFC: World Cup's $8k ticket, Everton's 'Toffee Lady' returns, Haaland vs Dixie Dean**\
 `Today in TAFC: FIFA accused of 'betrayal' of fans after World Cup ticket price rise. Plus: Will Haaland become the greatest-ever EPL scorer?`\
 https://nytimes.com/athletic/6884100/2025/12/12/the-athletic-fc-world-cup-8k-ticket-evertons-toffee-lady-returns-haaland-vs-dixie-dean/
