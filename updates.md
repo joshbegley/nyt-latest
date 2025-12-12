@@ -1,3 +1,11 @@
+**Justice Dept. Asks Appeals Court to Kill Contempt Inquiry Into Deportation Flights**\
+`The bid by the department was only the latest flashpoint between the Trump administration and the courts, especially over the president’s aggressive immigration agenda.`\
+https://nytimes.com/2025/12/12/us/politics/justice-department-deportation-flights-investigation.html
+
+**With Penguins' Tristan Jarry trade, Kyle Dubas takes another major leap forward**\
+`Dubas is on a heater, and the Penguins are suddenly well ahead of schedule. `\
+https://nytimes.com/athletic/6885182/2025/12/12/penguins-tristan-jarry-trade-kyle-dubas-nhl/
+
 **Review: At Ailey, an Ascetic Tribute and a MacArthur Composer**\
 `New works by Jamar Roberts and Matthew Neenan had their premieres at Alvin Ailey American Dance Theater.`\
 https://nytimes.com/2025/12/12/arts/dance/review-jamar-roberts-matthew-neenan-alvin-ailey.html
