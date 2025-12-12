@@ -1,3 +1,19 @@
+**How to Find a Date in a Country with Over 30 Million Extra Men**\
+`A decade after the end of the one-child policy, China has over 30 million so-called surplus men. Can this dating boot camp help them find love?`\
+https://nytimes.com/video/opinion/100000010583475/china-dating-men-one-child-policy.html
+
+**How Matt Boldy has continued his ascent, become the Wild's MVP so far this season**\
+`The 24-year-old winger has become a "a regular driver every night" for the Wild in his fifth NHL season.`\
+https://nytimes.com/athletic/6883943/2025/12/12/matt-boldy-ascent-wild-mvp/
+
+**A Trickle of Aid Reaches a Captured, War-Ravaged City in Sudan**\
+`A local group negotiated permission from the paramilitary force controlling El Fasher, offering a rare glimpse into conditions after a massacre.`\
+https://nytimes.com/2025/12/12/world/africa/sudan-fasher-food-aid.html
+
+**Joseph Byrd, Who Shook Up Psychedelic Rock, Dies at 87**\
+`A veteran of the Fluxus art movement, he brought an anarchic spirit to the California acid-rock scene with his band, the United States of America.`\
+https://nytimes.com/2025/12/12/arts/music/joseph-byrd-dead.html
+
 **Jake Paul admits the one fighter he’ll never face after beating Mike Tyson**\
 `"There's a very short list of people that I wouldn't step into the ring with," Paul said.`\
 https://nytimes.com/athletic/6884921/2025/12/12/jake-paul-david-benavidez-wont-fight/
@@ -17,16 +33,4 @@ https://nytimes.com/athletic/6884967/2025/12/12/world-cup-tickets-fifa-pricing/
 **Trio provides the energy for a Giannis-less Bucks in a much-needed win**\
 `At the end of Thursday's game against the Celtics, a Bucks trio carried the team to a much-needed win.`\
 https://nytimes.com/athletic/6884202/2025/12/12/bucks-nba-bobby-portis-kyle-kuzma-kevin-porter-jr/
-
-**Following first taste of extended playoff success, Blue Jays extend president Mark Shapiro**\
-`Shapiro will need to keep Toronto on the cutting edge and charging toward a return to the World Series.`\
-https://nytimes.com/athletic/6884945/2025/12/12/blue-jays-mark-shapiro-contract-extension/
-
-**After settlement, NASCAR will be better. But it shouldn't have happened like this**\
-`In the end, NASCAR's business model is getting a boost. It just should have never taken a trial to get to that point.`\
-https://nytimes.com/athletic/6884571/2025/12/12/nascar-settlement-trial-unnecessary-michael-jordan-jim-france/
-
-**Taylor Swift’s ‘The End of an Era’: 5 Takeaways**\
-`The six-part Disney+ series goes behind the scenes of the pop star’s record-breaking Eras Tour, revealing some of her creative processes and struggles.`\
-https://nytimes.com/2025/12/12/arts/music/taylor-swift-eras-tour-docuseries.html
 
