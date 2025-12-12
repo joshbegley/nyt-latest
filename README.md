@@ -22,7 +22,7 @@ https://nytimes.com/athletic/6885410/2025/12/12/timberwolves-vs-warriors-stream-
 `Find out how to watch the Seattle Kraken play the Utah Mammoth, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6885408/2025/12/12/kraken-vs-mammoth-stream-how-to-watch-dec-12/
 
-**Caitlin Clark makes debut with Team USA at camp, says she's back to full health**\
+**Caitlin Clark makes Team USA debut at camp, says she's back to full health**\
 `Clark said she was nervous coming back to the court after missing most of the WNBA season.`\
 https://nytimes.com/athletic/6885337/2025/12/12/caitlin-clark-team-usa-training-camp-debut/
 
