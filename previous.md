@@ -1,3 +1,15 @@
+**Fantasy Premier League live Q&A: Gameweek 16 advice from Ben Dinnery**\
+`Post your questions, and Ben will be online to offer his insight from 4pm to 5pm UK time (11am to 12pm ET)`\
+https://nytimes.com/athletic/6884308/2025/12/12/fantasy-premier-league-fpl-tips-qa-gameweek-16-advice-from-ben-dinnery/
+
+**Is baseball ready for Pete Rose in the Hall of Fame? Surveying people in the game**\
+`We asked prominent people in the sport whether Rose belongs in the Hall of Fame. The answers were as conflicted as you would expect.`\
+https://nytimes.com/athletic/6884088/2025/12/12/pete-rose-baseball-hall-of-fame/
+
+**The Crime Involved Trash Bags. But it Wasn’t a Mob Caper.**\
+`Prosecutors say a city official on Jeju Island in South Korea stole more than $400,000 by pocketing the sale of government-issued trash bags that cost as little as 7 cents each.`\
+https://nytimes.com/2025/12/12/world/asia/jeju-south-korea-trash-bags-fraud.html
+
 **Why Is It So Hard to Build Big Things?**\
 `Today we look at the state of American inertia.`\
 https://nytimes.com/2025/12/12/briefing/why-is-it-so-hard-to-build-big-things.html
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/6878491/2025/12/12/nfl-draft-2026-heisman-mendoza-l
 **Ten chaotic moments that unexpectedly shaped the college football season**\
 `A 2-point attempt in the middle of season, an overturned fumble by a blade of grass and a Heisman moment defined a chaotic 2025 season.`\
 https://nytimes.com/athletic/6882542/2025/12/12/college-football-chaos-moments-playoff-notre-dame/
-
-**For Drake Maye and other QBs, phone will always ring if they can do toughest job in sports**\
-`Philip Rivers isn't the first time an NFL team has reached out to the retirement home. There aren't enough humans with skills to play QB.`\
-https://nytimes.com/athletic/6883607/2025/12/12/patriots-drake-maye-philip-rivers-colts-nfl-qbs/
-
-**Is Dalot starting to silence his critics?**\
-`The full-back comes in for plenty of criticism but his recent performances, particularly in an attacking sense, have been encouraging`\
-https://nytimes.com/athletic/6881698/2025/12/12/diogo-dalot-critics-manchester-united/
-
-**Did you notice the Pistons already have a second star?**\
-`The 22-year-old Duren always been a double-double threat, but he has ascended to stardom by improving his offense and rim protection. `\
-https://nytimes.com/athletic/6883333/2025/12/12/jalen-duren-pistons-highlights-video/
 

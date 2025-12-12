@@ -1,3 +1,15 @@
+**Fantasy Premier League live Q&A: Gameweek 16 advice from Ben Dinnery**\
+`Post your questions, and Ben will be online to offer his insight from 4pm to 5pm UK time (11am to 12pm ET)`\
+https://nytimes.com/athletic/6884308/2025/12/12/fantasy-premier-league-fpl-tips-qa-gameweek-16-advice-from-ben-dinnery/
+
+**Is baseball ready for Pete Rose in the Hall of Fame? Surveying people in the game**\
+`We asked prominent people in the sport whether Rose belongs in the Hall of Fame. The answers were as conflicted as you would expect.`\
+https://nytimes.com/athletic/6884088/2025/12/12/pete-rose-baseball-hall-of-fame/
+
+**The Crime Involved Trash Bags. But it Wasn’t a Mob Caper.**\
+`Prosecutors say a city official on Jeju Island in South Korea stole more than $400,000 by pocketing the sale of government-issued trash bags that cost as little as 7 cents each.`\
+https://nytimes.com/2025/12/12/world/asia/jeju-south-korea-trash-bags-fraud.html
+
 **Why Is It So Hard to Build Big Things?**\
 `Today we look at the state of American inertia.`\
 https://nytimes.com/2025/12/12/briefing/why-is-it-so-hard-to-build-big-things.html

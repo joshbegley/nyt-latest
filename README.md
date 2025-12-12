@@ -1,6 +1,14 @@
+**Falcons finally find a way, overcoming 19 penalties and 14-point deficit to beat Bucs**\
+`The Falcons were down 14 points in the fourth quarter Thursday but came back to beat the Bucs 29-28 with the help of some unlikely heroes.`\
+https://nytimes.com/athletic/6883986/2025/12/12/falcons-buccaneers-tnf-sills-neuzil-alford/
+
 **Fantasy Premier League live Q&A: Gameweek 16 advice from Ben Dinnery**\
 `Post your questions, and Ben will be online to offer his insight from 4pm to 5pm UK time (11am to 12pm ET)`\
 https://nytimes.com/athletic/6884308/2025/12/12/fantasy-premier-league-fpl-tips-qa-gameweek-16-advice-from-ben-dinnery/
+
+**Ohio State mailbag: What's been most surprising about this season? Miami or Texas A&M?**\
+`Answering your Ohio State questions about Playoff expectations, red zone troubles, the Cotton Bowl matchup, the O-line and more.`\
+https://nytimes.com/athletic/6881700/2025/12/12/ohio-state-play-cotton-bowl-expectations/
 
 **Is baseball ready for Pete Rose in the Hall of Fame? Surveying people in the game**\
 `We asked prominent people in the sport whether Rose belongs in the Hall of Fame. The answers were as conflicted as you would expect.`\
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6883246/2025/12/12/mens-soccer-national-championshi
 **The Athletic’s Friday football quiz question #85**\
 `Can you answer the weekly poser plucked from deep inside The Athletic's trivia vaults?`\
 https://nytimes.com/athletic/6882350/2025/12/12/the-athletics-friday-football-quiz-question-85/
-
-**How do this season's Heisman Trophy finalists project as NFL Draft prospects?**\
-`Fernando Mendoza could be QB1 in this draft, but every Heisman finalist has an NFL future.`\
-https://nytimes.com/athletic/6878491/2025/12/12/nfl-draft-2026-heisman-mendoza-love-pavia-sayin/
-
-**Ten chaotic moments that unexpectedly shaped the college football season**\
-`A 2-point attempt in the middle of season, an overturned fumble by a blade of grass and a Heisman moment defined a chaotic 2025 season.`\
-https://nytimes.com/athletic/6882542/2025/12/12/college-football-chaos-moments-playoff-notre-dame/
 
