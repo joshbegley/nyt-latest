@@ -1,3 +1,11 @@
+**Thailand Says Trump Call About Cambodia Conflict Is Set for Friday**\
+`President Trump’s planned intervention comes as the hostilities entered their fifth day and appeared to escalate, and while Thailand moves toward early elections.`\
+https://nytimes.com/2025/12/12/world/asia/thailand-cambodia-trump-call.html
+
+**King Charles to Speak About His Cancer in Televised Message, BBC Reports**\
+`A video of the king discussing his “recovery journey” will air on Channel 4 on Friday, British media reported. He was diagnosed with an unspecified type of cancer last year.`\
+https://nytimes.com/2025/12/12/world/europe/king-charles-cancer-update.html
+
 **European preview: Leipzig v Union, Marseille host Monaco, and Como go to Rome**\
 `From an East German clash in the Bundesliga to a Ligue 1 classic, we preview the standout European games taking place this gameweek.`\
 https://nytimes.com/athletic/6883541/2025/12/12/rb-leipzig-bundesliga-milan-marseille-real-madrid/

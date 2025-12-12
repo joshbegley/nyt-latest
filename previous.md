@@ -1,3 +1,11 @@
+**Thailand Says Trump Call About Cambodia Conflict Is Set for Friday**\
+`President Trump’s planned intervention comes as the hostilities entered their fifth day and appeared to escalate, and while Thailand moves toward early elections.`\
+https://nytimes.com/2025/12/12/world/asia/thailand-cambodia-trump-call.html
+
+**King Charles to Speak About His Cancer in Televised Message, BBC Reports**\
+`A video of the king discussing his “recovery journey” will air on Channel 4 on Friday, British media reported. He was diagnosed with an unspecified type of cancer last year.`\
+https://nytimes.com/2025/12/12/world/europe/king-charles-cancer-update.html
+
 **Mamdani Will Be New York City’s First Soccer-Mad Mayor**\
 `Zohran Mamdani isn’t just a superfan. Until recently, he was a key player on the Talking Headers, a rec-league team where he was known as Z.`\
 https://nytimes.com/2025/12/12/nyregion/mamdani-soccer-talking-headers-brooklyn.html
@@ -25,12 +33,4 @@ https://nytimes.com/2025/12/12/learning/word-of-the-day-compensation.html
 **Bucs blow big lead in a big game … and they're big mad about it**\
 `Todd Bowles, Mike Evans and Baker Mayfield expressed a lot of disappointment after losing a critical game to the Falcons on Thursday night.`\
 https://nytimes.com/athletic/6883863/2025/12/12/buccaneers-angry-falcons-loss/
-
-**Unai Emery's faith in Evann Guessand is beginning to pay off**\
-`The £30m summer signing is not yet a finished product — but Villa's Europa League campaign is helping him develop `\
-https://nytimes.com/athletic/6883230/2025/12/12/evann-guessand-aston-villa-europa-league/
-
-**Matt Boldy shines as Wild win 'measuring stick' game against Stars**\
-`Thursday was Minnesota's first regulation win over Dallas since Nov. 18, 2021. The Stars had been 10-0-5 in their 15 games against the Wild.`\
-https://nytimes.com/athletic/6883825/2025/12/12/matt-boldy-shines-wild-beats-stars/
 
