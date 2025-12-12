@@ -1,3 +1,11 @@
+**Life and Death in India’s Air Apocalypse**\
+`For hundreds of millions of Indians, toxic winter air poisons bodies, constricts lives and wears down spirits.`\
+https://nytimes.com/2025/12/12/opinion/india-air-pollution.html
+
+**The New York Times in Print for Friday, Dec. 12, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/12/12/todays-new-york-times
+
 **HUD Accuses Boston of Racial Discrimination in Housing Policies**\
 `The Department of Housing and Urban Development is investigating whether the city’s focus on affordable housing for people of color violated federal law.`\
 https://nytimes.com/2025/12/12/us/politics/hud-boston-discrimination.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6882973/2025/12/12/sean-dyche-nottingham-forest-sub
 **How Arsenal reintegrate players returning from injury: Bespoke programmes - and patience**\
 `After 15 league games this season, Arsenal have suffered 15 injuries but the number of absentees have largely been a subplot`\
 https://nytimes.com/athletic/6881440/2025/12/12/arsenal-reintegrating-players-from-injury/
-
-**Brighton push for SCR amendment fearing big clubs will reap outsize benefits**\
-`Unless new financial rules change, Brighton fear aspirational clubs in the middle of the Premier League will find it even harder to compete `\
-https://nytimes.com/athletic/6844490/2025/12/12/brighton-push-for-scr-amendment-fearing-big-clubs-will-reap-outsize-benefits/
-
-**Is Crystal Palace's Christantus Uche starting to earn Oliver Glasner's trust?**\
-`The Nigerian forward has struggled for minutes since arriving from Getafe this summer, but scored and performed strongly against Shelbourne`\
-https://nytimes.com/athletic/6869858/2025/12/12/crystal-palace-christantus-uche-oliver-glasner/
 

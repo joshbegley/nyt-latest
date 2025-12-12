@@ -1,3 +1,11 @@
+**Life and Death in India’s Air Apocalypse**\
+`For hundreds of millions of Indians, toxic winter air poisons bodies, constricts lives and wears down spirits.`\
+https://nytimes.com/2025/12/12/opinion/india-air-pollution.html
+
+**The New York Times in Print for Friday, Dec. 12, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/12/12/todays-new-york-times
+
 **Kirk Cousins rallies Falcons and hurts Bucs' playoff hopes: Takeaways**\
 `Even without being in playoff contention, the Falcons rallied from a two-touchdown deficit in the fourth quarter for a last-second win.`\
 https://nytimes.com/athletic/6882716/2025/12/12/falcons-bucs-score-result-takeaways-thursday-night-football/
