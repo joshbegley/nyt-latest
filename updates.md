@@ -1,3 +1,7 @@
+**How a meeting with Sean McVay pushed Jared Verse to elevate his game in Year 2**\
+`Verse, the 2024 Defensive Rookie of the Year, has had to adjust to the extra attention rotating his way in his second season.`\
+https://nytimes.com/athletic/6883168/2025/12/12/rams-jared-verse-sean-mcvay-meeting/
+
 **Cooling Labor Market and Elevated Inflation Stoke Fed Divisions**\
 `Fed officials explained their opposition to the central bank’s decision this week to cut interest rates by a quarter of a percentage point.`\
 https://nytimes.com/2025/12/12/business/economy/fed-rate-decision-dissents.html
