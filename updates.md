@@ -1,3 +1,11 @@
+**Lawsuit Seeks to Stop Oil Exploration in Remote Areas of the Arctic**\
+`A federal lawsuit argues that proposed work by ConocoPhillips could threaten delicate ecosystems in the largest tract of public land in the U.S.`\
+https://nytimes.com/2025/12/11/climate/alaska-lawsuit-drilling-conoco-phillips.html
+
+**Coastal Carolina hires Ryan Beard as its next head coach**\
+`Beard has a 19-16 head coaching record, also spent time at Louisville, Western Kentucky and Central Michigan.`\
+https://nytimes.com/athletic/6883290/2025/12/11/coastal-carolina-hires-ryan-beard-as-head-coach/
+
 **What Indiana’s Defiance Means for Trump: 6 Takeaways**\
 `President Trump’s failure to ram through a Republican-friendly House map was a new sign that his iron grip on the party has slipped, and was likely to reverberate nationally.`\
 https://nytimes.com/2025/12/11/us/politics/indiana-trump-redistricting-takeaways.html
