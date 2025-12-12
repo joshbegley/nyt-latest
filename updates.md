@@ -1,3 +1,7 @@
+**In Paris, a New Wave of Chocolate Boutiques**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/chocolate-shops-paris
+
 **gws-big-apple-circus-dogs-nyc**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/big-apple-circus-dogs-nyc

@@ -1,3 +1,7 @@
+**In Paris, a New Wave of Chocolate Boutiques**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/chocolate-shops-paris
+
 **gws-big-apple-circus-dogs-nyc**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/big-apple-circus-dogs-nyc
@@ -25,8 +29,4 @@ https://nytimes.com/athletic/6883574/2025/12/12/washington-state-football-coach-
 **National Parks Ordered to Remove Items Promoting D.E.I. From Gift Shops**\
 `The Interior Department said that the review of retail items would ensure gift shops at national parks did not “promote specific viewpoints.”`\
 https://nytimes.com/2025/12/12/us/politics/national-parks-dei-gift-shops.html
-
-**gws-best-desserts-america**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/best-desserts-america
 
