@@ -1,3 +1,7 @@
+**Trump Offers Symbolic Pardon for Clerk Convicted of Election Tampering**\
+`Tina Peters was sentenced for a Colorado state crime that the president has no ability to pardon. President Trump has no legal power to free her from prison.`\
+https://nytimes.com/2025/12/11/us/politics/trump-pardon-tina-peters-colorado.html
+
 **Democrats Press Noem on Harsh Immigration Tactics**\
 `Some Democratic lawmakers pressed Homeland Security Secretary Kristi Noem on the Trump administration’s aggressive immigration enforcement tactics during a hearing on Thursday.`\
 https://nytimes.com/video/us/politics/100000010582298/noem-house-hearing-immigration-crackdown.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/11/climate/alaska-lawsuit-drilling-conoco-phillips.h
 **Coastal Carolina hires Ryan Beard as its next head coach**\
 `Beard has a 19-16 head coaching record, also spent time at Louisville, Western Kentucky and Central Michigan.`\
 https://nytimes.com/athletic/6883290/2025/12/11/coastal-carolina-hires-ryan-beard-as-head-coach/
-
-**What Indiana’s Defiance Means for Trump: 6 Takeaways**\
-`President Trump’s failure to ram through a Republican-friendly House map was a new sign that his iron grip on the party has slipped, and was likely to reverberate nationally.`\
-https://nytimes.com/2025/12/11/us/politics/indiana-trump-redistricting-takeaways.html
 
