@@ -1,3 +1,15 @@
+**Mamdani Will Be New York City’s First Soccer-Mad Mayor**\
+`Zohran Mamdani isn’t just a superfan. Until recently, he was a key player on the Talking Headers, a rec-league team where he was known as Z.`\
+https://nytimes.com/2025/12/12/nyregion/mamdani-soccer-talking-headers-brooklyn.html
+
+**Fleece, Love and Vomit: New Yorkers’ Best (and Worst) SantaCon Stories**\
+`The bar crawl and charity fund-raiser has been eliciting strong reactions in the city for more than 25 years. Readers shared theirs.`\
+https://nytimes.com/2025/12/12/style/santacon-stories-new-york.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/12/12/crosswords/spelling-bee-forum.html
+
 **Jimmy Kimmel Takes a Swipe at Trump’s ‘Gold Card’**\
 `The new visa for rich foreigners had Kimmel rethinking the Statue of Liberty’s inscription: “Never mind your poor and tired. Give us a million bucks — you’re in.”`\
 https://nytimes.com/2025/12/12/arts/television/jimmy-kimmel-trump-gold-card.html
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/6883230/2025/12/12/evann-guessand-aston-villa-europ
 **Matt Boldy shines as Wild win 'measuring stick' game against Stars**\
 `Thursday was Minnesota's first regulation win over Dallas since Nov. 18, 2021. The Stars had been 10-0-5 in their 15 games against the Wild.`\
 https://nytimes.com/athletic/6883825/2025/12/12/matt-boldy-shines-wild-beats-stars/
-
-**Life and Death in India’s Air Apocalypse**\
-`For hundreds of millions of Indians, toxic winter air poisons bodies, constricts lives and wears down spirits.`\
-https://nytimes.com/2025/12/12/opinion/india-air-pollution.html
-
-**The New York Times in Print for Friday, Dec. 12, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/12/12/todays-new-york-times
-
-**HUD Accuses Boston of Racial Discrimination in Housing Policies**\
-`The Department of Housing and Urban Development is investigating whether the city’s focus on affordable housing for people of color violated federal law.`\
-https://nytimes.com/2025/12/12/us/politics/hud-boston-discrimination.html
 
