@@ -1,3 +1,11 @@
+**What I'm hearing about the Flyers and Quinn Hughes, plus Christian Dvorak's future**\
+`Dvorak continues to contribute. What does that mean for the rest of this season and beyond?`\
+https://nytimes.com/athletic/6885102/2025/12/12/flyers-hughes-trade-dvorak/
+
+**Snoop Dogg joins Team USA as first-ever honorary coach for Winter Olympics**\
+`Team USA's biggest hype man is taking on a new role.`\
+https://nytimes.com/athletic/6885148/2025/12/12/snoop-dogg-team-usa-honorary-coach-olympics/
+
 **The U.S. Seizes an Oil Tanker. What’s Next?**\
 `Readers react to developments in the U.S.-Venezuela confrontation. Also: A group of six women with decades of connection.`\
 https://nytimes.com/2025/12/12/opinion/us-venezuela-oil-tanker.html
