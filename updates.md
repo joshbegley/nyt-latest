@@ -1,3 +1,7 @@
+**Michael Jordan's rookie Nike shoes fetch almost $700K at auction**\
+`Sotheby's latest auction bridged eras of greatness, headlined by Jordan's rookie shoes and memorabilia from Kobe Bryant's career.`\
+https://nytimes.com/athletic/6881751/2025/12/11/michael-jordan-rookie-nike-shoes-auction/
+
 **Trump Offers Symbolic Pardon for Clerk Convicted of Election Tampering**\
 `Tina Peters was sentenced for a Colorado state crime that the president has no ability to pardon. President Trump has no legal power to free her from prison.`\
 https://nytimes.com/2025/12/11/us/politics/trump-pardon-tina-peters-colorado.html

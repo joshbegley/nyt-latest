@@ -1,3 +1,7 @@
+**Arkansas Public Television Drops PBS**\
+`The loss of federal funding forced a difficult decision, the executive director of Arkansas TV said: Cut PBS, or go off the air entirely.`\
+https://nytimes.com/2025/12/11/business/media/arkansas-public-television-drops-pbs.html
+
 **Michael Jordan's rookie Nike shoes fetch almost $700K at auction**\
 `Sotheby's latest auction bridged eras of greatness, headlined by Jordan's rookie shoes and memorabilia from Kobe Bryant's career.`\
 https://nytimes.com/athletic/6881751/2025/12/11/michael-jordan-rookie-nike-shoes-auction/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6883405/2025/12/11/penguins-canadiens-game-delay-tr
 **What 23XI, Front Row and NASCAR's other teams are getting in the settlement**\
 `NASCAR agreed to permanent charters, a bigger share of revenue for teams, and more in the settlement reached Thursday in federal court.`\
 https://nytimes.com/athletic/6882943/2025/12/11/nascar-settlement-23xi-front-row-details/
-
-**Lawsuit Seeks to Stop Oil Exploration in Remote Areas of the Arctic**\
-`A federal lawsuit argues that proposed work by ConocoPhillips could threaten delicate ecosystems in the largest tract of public land in the U.S.`\
-https://nytimes.com/2025/12/11/climate/alaska-lawsuit-drilling-conoco-phillips.html
 
