@@ -1,3 +1,11 @@
+**Is This the Ultimate Winter Sun Destination?**\
+`Puerto Escondido, set on a stunning sweep of Mexico’s Pacific Coast, draws both big-wave surfers and starchitects.`\
+https://nytimes.com/2025/12/12/t-magazine/puerto-escondido-oaxaca-hotel-travel.html
+
+**LeBrun: Oilers GM Stan Bowman gets the goalie he was after in Tristan Jarry trade**\
+`Oilers general manager Stan Bowman began having conversations with the Penguins about a Jarry trade over the summer.`\
+https://nytimes.com/athletic/6885113/2025/12/12/tristan-jarry-trade-oilers-stan-bowman/
+
 **Iran Arrests Nobel Laureate Narges Mohammadi Amid Broader Crackdown**\
 `The human rights activist was released on furlough from prison last year, but was detained again on Friday, along with several other human rights activists.`\
 https://nytimes.com/2025/12/12/world/middleeast/iran-arrests-narges-mohammadi.html
@@ -25,12 +33,4 @@ https://nytimes.com/2025/12/12/books/review/podcast-critics-year-in-reading.html
 **It Was an Eventful Year for Golf, on and Off the Course**\
 `Rory McIlroy got his career Grand Slam, Scottie Scheffler kept winning and two tours named new leaders.`\
 https://nytimes.com/2025/12/12/sports/golf/year-review-2025.html
-
-**Formula 1 Moves Into a New World in 2026**\
-`Under revised regulations, cars will be lighter, shorter and narrower, and will rely heavily on electric power. The goal: to make racing more exciting.`\
-https://nytimes.com/2025/12/12/sports/f1-racing-2026-season.html
-
-**So, Your House Is Stinky. Here’s How to Fix It. **\
-`Text by Caroline Mullen`\
-https://nytimes.com/card/2025/12/12/smarter-living/wirecutter/
 

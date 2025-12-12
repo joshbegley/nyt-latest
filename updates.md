@@ -1,3 +1,11 @@
+**Is This the Ultimate Winter Sun Destination?**\
+`Puerto Escondido, set on a stunning sweep of Mexico’s Pacific Coast, draws both big-wave surfers and starchitects.`\
+https://nytimes.com/2025/12/12/t-magazine/puerto-escondido-oaxaca-hotel-travel.html
+
+**LeBrun: Oilers GM Stan Bowman gets the goalie he was after in Tristan Jarry trade**\
+`Oilers general manager Stan Bowman began having conversations with the Penguins about a Jarry trade over the summer.`\
+https://nytimes.com/athletic/6885113/2025/12/12/tristan-jarry-trade-oilers-stan-bowman/
+
 **Iran Arrests Nobel Laureate Narges Mohammadi Amid Broader Crackdown**\
 `The human rights activist was released on furlough from prison last year, but was detained again on Friday, along with several other human rights activists.`\
 https://nytimes.com/2025/12/12/world/middleeast/iran-arrests-narges-mohammadi.html
