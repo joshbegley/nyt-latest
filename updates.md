@@ -1,3 +1,7 @@
+**Arkansas Public Television Drops PBS**\
+`The loss of federal funding forced a difficult decision, the executive director of Arkansas TV said: Cut PBS, or go off the air entirely.`\
+https://nytimes.com/2025/12/11/business/media/arkansas-public-television-drops-pbs.html
+
 **Michael Jordan's rookie Nike shoes fetch almost $700K at auction**\
 `Sotheby's latest auction bridged eras of greatness, headlined by Jordan's rookie shoes and memorabilia from Kobe Bryant's career.`\
 https://nytimes.com/athletic/6881751/2025/12/11/michael-jordan-rookie-nike-shoes-auction/
