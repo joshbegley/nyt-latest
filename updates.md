@@ -1,3 +1,15 @@
+**Mamdani Will Be New York City’s First Soccer-Mad Mayor**\
+`Zohran Mamdani isn’t just a superfan. Until recently, he was a key player on the Talking Headers, a rec-league team where he was known as Z.`\
+https://nytimes.com/2025/12/12/nyregion/mamdani-soccer-talking-headers-brooklyn.html
+
+**Fleece, Love and Vomit: New Yorkers’ Best (and Worst) SantaCon Stories**\
+`The bar crawl and charity fund-raiser has been eliciting strong reactions in the city for more than 25 years. Readers shared theirs.`\
+https://nytimes.com/2025/12/12/style/santacon-stories-new-york.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/12/12/crosswords/spelling-bee-forum.html
+
 **Jimmy Kimmel Takes a Swipe at Trump’s ‘Gold Card’**\
 `The new visa for rich foreigners had Kimmel rethinking the Statue of Liberty’s inscription: “Never mind your poor and tired. Give us a million bucks — you’re in.”`\
 https://nytimes.com/2025/12/12/arts/television/jimmy-kimmel-trump-gold-card.html
