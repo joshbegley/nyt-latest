@@ -1,3 +1,15 @@
+**Great Performers Awards: Best Grasp of Scuzz**\
+`Wesley Morris, the host of “Cannonball,” and his editor, Sasha Weiss, discuss Timothée Chalamet’s bold performance in “Marty Supreme.”`\
+https://nytimes.com/video/podcasts/100000010583365/great-performers-awards-best-grasp-of-scuzz.html
+
+**Gonzo Fans Have Made ‘Dungeon Crawler Carl’ Into a Global Blockbuster**\
+`Matt Dinniman introduced his series about an alien reality TV show free on the web. But readers ate up the goofy humor, now to the tune of 6 million books sold.`\
+https://nytimes.com/2025/12/12/books/review/dungeon-crawler-carl-matt-dinniman.html
+
+**Where things stand as Tyler Skaggs trial enters final day of testimony**\
+`The jury heard from a former MLB lawyer, ex-pitcher Matt Harvey, an addiction expert and others as testimony wound down this week.`\
+https://nytimes.com/athletic/6884046/2025/12/12/tyler-skaggs-angels-trial-testimony/
+
 **What I'm hearing about Giannis, AD and other major NBA trade situations**\
 `The NBA trade deadline is not until Feb. 5, but Monday marks a significant day when talks heat up. `\
 https://nytimes.com/athletic/6881845/2025/12/12/nba-trades-giannis-antetokounmpo-anthony-davis-warriors-mavericks/
