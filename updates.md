@@ -1,3 +1,11 @@
+**‘Storm Highway’ Expected to Send More Rain to Flooded Areas**\
+`Just as this week’s floodwaters in the Pacific Northwest begin to recede, forecasters warn, another storm will approach the West Coast.`\
+https://nytimes.com/2025/12/11/weather/washington-british-columbia-atmospheric-river-forecast.html
+
+**Trump Signs Executive Order to Neuter State A.I. Laws**\
+`The order would create one federal regulatory framework for artificial intelligence, Mr. Trump told reporters in the Oval Office.`\
+https://nytimes.com/2025/12/11/technology/ai-trump-executive-order.html
+
 **Indiana Lawmakers Reject Trump’s Redistricting Map**\
 `Republicans make up a majority of the Indiana Senate, but more than a dozen voted against President Trump’s new political map, which aimed to add Republicans in Congress.`\
 https://nytimes.com/video/us/politics/100000010582282/indiana-senators-reject-redistricting-map.html
