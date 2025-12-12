@@ -1,3 +1,7 @@
+**How Josh Hart and others are benefiting from new Knicks shooting coach**\
+`At the request of Hart, Knicks coach Mike Brown hired Peter Patton as a shooting coach. Here's how he is impacting the team.`\
+https://nytimes.com/athletic/6881909/2025/12/12/knicks-josh-hart-shooting-coach/
+
 **Mike Vrabel or Kyle Shanahan? Debating the crowded NFL Coach of the Year field**\
 `Any of these seven candidates could be considered worthy of the award, but the Patriots' and 49ers' coaches have the strongest case.`\
 https://nytimes.com/athletic/6879182/2025/12/12/nfl-coach-of-the-year-vrabel-shanahan-johnson/
