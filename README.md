@@ -2,7 +2,7 @@
 `The Justice Department escalated an effort to seize and inspect old ballots in Fulton County, where President Trump was booked in his criminal election interference case.`\
 https://nytimes.com/2025/12/12/us/politics/trump-2020-ballots-fulton-county-georgia.html
 
-**Caitlin Clark stresses importance of salvaging 2026 WNBA season in CBA negotiations**\
+**Caitlin Clark stresses importance of 2026 WNBA season in CBA negotiations**\
 `“It's important that we find a way to play this next season," Clark said on Friday at Team USA training camp.`\
 https://nytimes.com/athletic/6885586/2025/12/12/wnba-caitlin-clark-cba-negotiations/
 

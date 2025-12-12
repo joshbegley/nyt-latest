@@ -1,3 +1,11 @@
+**Trump Officials Sue to Seize 2020 Ballots in a Georgia County**\
+`The Justice Department escalated an effort to seize and inspect old ballots in Fulton County, where President Trump was booked in his criminal election interference case.`\
+https://nytimes.com/2025/12/12/us/politics/trump-2020-ballots-fulton-county-georgia.html
+
+**Caitlin Clark stresses importance of salvaging 2026 WNBA season in CBA negotiations**\
+`“It's important that we find a way to play this next season," Clark said on Friday at Team USA training camp.`\
+https://nytimes.com/athletic/6885586/2025/12/12/wnba-caitlin-clark-cba-negotiations/
+
 **Rescuers Work to Evacuate Flooded Areas of Washington**\
 `Also, T.S.A. is giving passenger data to immigration agents. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2025/12/12/briefing/storm-flooding-washington-tsa-ice-data.html
