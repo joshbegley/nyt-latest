@@ -1,3 +1,11 @@
+**Lawsuit Seeks to Stop Oil Exploration in Remote Areas of the Arctic**\
+`A federal lawsuit argues that proposed work by ConocoPhillips could threaten delicate ecosystems in the largest tract of public land in the U.S.`\
+https://nytimes.com/2025/12/11/climate/alaska-lawsuit-drilling-conoco-phillips.html
+
+**Coastal Carolina hires Ryan Beard as its next head coach**\
+`Beard has a 19-16 head coaching record, also spent time at Louisville, Western Kentucky and Central Michigan.`\
+https://nytimes.com/athletic/6883290/2025/12/11/coastal-carolina-hires-ryan-beard-as-head-coach/
+
 **What Indiana’s Defiance Means for Trump: 6 Takeaways**\
 `President Trump’s failure to ram through a Republican-friendly House map was a new sign that his iron grip on the party has slipped, and was likely to reverberate nationally.`\
 https://nytimes.com/2025/12/11/us/politics/indiana-trump-redistricting-takeaways.html
@@ -25,12 +33,4 @@ https://nytimes.com/video/us/politics/100000010582282/indiana-senators-reject-re
 **Republicans Undercut Johnson, Circumventing Him to Force Votes**\
 `The speaker has repeatedly lost his grip on the House floor thanks to a once rare parliamentary maneuver that G.O.P. members are increasingly using to force action on legislation.`\
 https://nytimes.com/2025/12/11/us/politics/republicans-undercut-speaker-johnson.html
-
-**NWSL in advanced talks over league-changing mechanism to pay stars more: Sources**\
-`Trinity Rodman's ongoing negotiations were the impetus for the board vote, but sources say the rule is bigger than one player.`\
-https://nytimes.com/athletic/6883002/2025/12/11/nwsl-rule-change-pay-players-trinity-rodman/
-
-**Fantasy basketball hot topics of the week: Knicks show more Hart, Black boosts Magic**\
-`Stan Son reviews the top recent NBA storylines, including Josh Hart's expanded role for the Knicks.`\
-https://nytimes.com/athletic/6882754/2025/12/11/fantasy-basketball-hot-topics-orlando-hart/
 
