@@ -1,3 +1,11 @@
+**‘We Came to Cheer Ourselves Up’: Soccer Offers Gazans Rare Joy**\
+`Palestinians in Gaza braved bad weather to gather on Thursday night to watch their national soccer team play Saudi Arabia in the knockout stages of the Arab Cup.`\
+https://nytimes.com/video/world/middleeast/100000010583150/gaza-palestine-soccer-arab-cup.html
+
+**Rescuers Evacuate Residents From Flooded Areas in Washington State**\
+`Rescuers evacuated residents stranded in their homes after several days of heavy rain in western Washington. Local officials issued urgent evacuation orders to more than 100,000 people in the flooded region.`\
+https://nytimes.com/video/weather/100000010583242/washington-flooding-rescues-evacuations.html
+
 **Exorbitant World Cup ticket prices could ruin hopes of growing soccer in the U.S.**\
 `Even the least expensive tickets for next summer's World Cup will be unaffordable for the majority of Americans`\
 https://nytimes.com/athletic/6882762/2025/12/12/exorbitant-world-cup-ticket-prices-could-ruin-hopes-of-growing-soccer-in-the-u-s/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6883137/2025/12/12/where-do-the-mets-go-from-here-t
 **Can the Chargers end the Chiefs' season and their reign over this rivalry?**\
 `Khalil Mack looks forward to the challenge: "Not as much so the feeling of beating them, but knowing what beating them can do for us."`\
 https://nytimes.com/athletic/6883385/2025/12/12/chargers-chiefs-rivalry-elimination-afc-west/
-
-**The FCS playoffs have been wild so far. Here's how to tune in to the quarterfinals**\
-`Following Illinois State's shocking win over North Dakota State, no team looks safe in these FCS playoffs. `\
-https://nytimes.com/athletic/6883124/2025/12/12/fcs-playoffs-quarterfinals-odds-schedule-how-to-watch/
-
-**Seven things we learned about the Astros at the Winter Meetings**\
-`Though both men intend to “retire here,” the future of general manager Dana Brown and manager Joe Espada beyond this season is murky.`\
-https://nytimes.com/athletic/6883573/2025/12/12/houston-astros-winter-meetings-takeaways/
 
