@@ -1,3 +1,7 @@
+**What About Larry Ellison’s Billions?**\
+`The Oracle co-founder has pledged billions to finance Paramount’s takeover bid for Warner Bros. Discovery — which has questions about his commitment.`\
+https://nytimes.com/2025/12/12/business/dealbook/ellison-paramount-oracle-warner-bros-financing.html
+
 **Austria Bans Head Scarves in Schools for Girls Under 14**\
 `Austria’s centrist government passed the new law, which takes effect next year, after years of pressure from the far right.`\
 https://nytimes.com/2025/12/12/world/europe/austria-head-scarf-ban-schools.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6883401/2025/12/12/yankees-anthony-volpe-austin-wel
 **'This is the perfect mentality' - Rashford praised by Barca coach Flick**\
 `The England international has started just one of his side's last six matches since the return from last month's international break.`\
 https://nytimes.com/athletic/6884330/2025/12/12/marcus-rashford-barcelona-loan-transfer/
-
-**Falcons finally find a way, overcoming 19 penalties and 14-point deficit to beat Bucs**\
-`The Falcons were down 14 points in the fourth quarter Thursday but came back to beat the Bucs 29-28 with the help of some unlikely heroes.`\
-https://nytimes.com/athletic/6883986/2025/12/12/falcons-buccaneers-tnf-sills-neuzil-alford/
 
