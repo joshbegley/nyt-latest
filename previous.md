@@ -1,3 +1,19 @@
+**Great Performers Awards: Best Performance in a Helmet**\
+`Welcome to “Cannonball’s” 1st Annual Great Performers Awards Show. On this week’s episode, our host Wesley Morris is joined by his editor, Sasha Weiss, to discuss some of the best acting of 2025. Up first, best performance in a helmet.`\
+https://nytimes.com/video/podcasts/100000010574694/great-performers-awards-best-performance-in-a-helmet.html
+
+**Businesses Are Cashing In on Trump’s Tax Cuts**\
+`Corporate tax revenue has quickly dipped since Republicans passed tax cuts this summer. But economists think these tax breaks might be worth it.`\
+https://nytimes.com/2025/12/12/us/politics/trumps-corporate-tax-cuts-economy.html
+
+**Man Utd Women interested in January deals for Lundkvist, Schuller**\
+`Lundkvist is out of contract at the San Diego Wave, while Schuller's Bayern Munich deal expires next summer.`\
+https://nytimes.com/athletic/6884303/2025/12/12/man-utd-women-transfers-lundkvist-schuller/
+
+**Tate Museums Are in Choppy Waters. Now, Their Director Is Leaving.**\
+`Maria Balshaw, the director of the British museum group that includes Tate Modern and Tate Britain, is stepping down next spring after nine years in the role.`\
+https://nytimes.com/2025/12/12/arts/design/tate-museums-maria-balshaw.html
+
 **Record Flooding Forces Rescues Across Western Washington**\
 `A major river in the region was set to crest on Friday morning, with more rain on the way.`\
 https://nytimes.com/2025/12/12/us/washington-flooding-rain-atmospheric-river.html
@@ -17,20 +33,4 @@ https://nytimes.com/athletic/6884934/2025/12/12/pacers-vs-76ers-stream-how-to-wa
 **How to watch Bulls vs. Hornets: Time, TV, streaming**\
 `Find out how to watch the Chicago Bulls play the Charlotte Hornets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6884932/2025/12/12/bulls-vs-hornets-stream-how-to-watch-dec-12/
-
-**How to watch Cavaliers vs. Wizards: Time, TV, streaming**\
-`Find out how to watch the Cleveland Cavaliers play the Washington Wizards, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6884930/2025/12/12/cavaliers-vs-wizards-stream-how-to-watch-dec-12/
-
-**How to watch Hawks vs. Pistons: Time, TV, streaming**\
-`Find out how to watch the Atlanta Hawks play the Detroit Pistons, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6884928/2025/12/12/hawks-vs-pistons-stream-how-to-watch-dec-12/
-
-**A college football tradition continues in Atlanta — a decade ago, once decided by 1 vote**\
-`“We’re giving the country an HBCU Super Bowl,” said John T. Grant, the executive director of the Celebration Bowl.`\
-https://nytimes.com/athletic/6883708/2025/12/12/celebration-bowl-hbcu-college-football/
-
-**The Bounce: The NBA Cup semis are here. Plus, Joel Embiid's shot diet leaves us hungry**\
-`Zach Harper catches you up on the latest NBA news in our newsletter.`\
-https://nytimes.com/athletic/6884840/2025/12/12/the-bounce-nba-cup-joel-embiid-thunder/
 
