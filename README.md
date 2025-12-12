@@ -1,3 +1,11 @@
+**U.S. Drops Sanctions on Brazilian Justice at Center of Bolsonaro Trial**\
+`The U.S. Treasury said that maintaining sanctions against Justice Alexandre de Moraes was no longer in the interests of the United States.`\
+https://nytimes.com/2025/12/12/world/americas/brazil-us-sanctions-justice-moraes.html
+
+**Trump Is Facing Down Biden’s Demons**\
+`Too old? Tough economy? The presidents change, but the troubles are familiar.`\
+https://nytimes.com/2025/12/12/us/politics/trump-biden-age-health-economy.html
+
 **Deadly Storm Causes Massive Flooding Across Gaza**\
 `Nearly 795,000 displaced people in Gaza were at risk of dangerous floodwaters, according to the United Nations. The heavy rain and strong winds flooded makeshift shelters and collapsed several buildings, according to the Gaza Civil Defense.`\
 https://nytimes.com/video/world/middleeast/100000010583512/world-middle-east-displaced-gaza-storm-byron-flooding.html
@@ -25,12 +33,4 @@ https://nytimes.com/2025/12/12/us/florida-school-vaccine-mandates.html
 **Stream These 10 Movies and TV Shows Before They Leave Netflix in January**\
 `A ton of titles are expiring soon for U.S. subscribers. Catch them while you can, including a Scorsese classic and one of TV’s most influential series.`\
 https://nytimes.com/2025/12/12/arts/television/netflix-expiring-movies-shows-january.html
-
-**F.D.A. Approves Two New Drugs to Treat Gonorrhea**\
-`The sexually transmitted disease has become increasingly resistant to existing antibiotics.`\
-https://nytimes.com/2025/12/12/health/fda-gonorrhea-antibiotics.html
-
-**Chelsea's Palmer must have minutes managed due to groin pain - Maresca**\
-`Palmer has made two appearances for the club since missing over two months of football with a groin injury.`\
-https://nytimes.com/athletic/6884630/2025/12/12/cole-palmer-injury-chelsea-maresca/
 
