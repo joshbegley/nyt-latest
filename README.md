@@ -11,7 +11,7 @@ https://nytimes.com/athletic/6882278/2025/12/12/manchester-united-constant-contr
 https://nytimes.com/athletic/6881900/2025/12/12/spurs-tour-usa-australia/
 
 **Kirk Cousins rallies Falcons and hurts Bucs' playoff hopes: Takeaways**\
-`Even without being in playoff contention, the Falcons fought back from a two-touchdown deficit in the fourth quarter for a last-second win.`\
+`Even without being in playoff contention, the Falcons rallied from a two-touchdown deficit in the fourth quarter for a last-second win.`\
 https://nytimes.com/athletic/6882716/2025/12/12/falcons-bucs-score-result-takeaways-thursday-night-football/
 
 **Newcastle Under-19s have lost every game in Europe, but does that tell the full story?**\
