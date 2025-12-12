@@ -1,3 +1,11 @@
+**Antique or Imitation? A Field Guide for Furniture Hunting.**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/antique-furniture-guide
+
+**Harvard Replaces Leader of Health Center Accused of Favoring Palestinians**\
+`The center at the university’s public health school was also a focus of the Trump administration after having been examined in a Harvard antisemitism report earlier this year.`\
+https://nytimes.com/2025/12/12/us/harvard-replaces-public-health-center-director.html
+
 **gws-holiday-decor-apartment-brooklyn**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/holiday-decor-apartment-brooklyn
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6885408/2025/12/12/kraken-vs-mammoth-stream-how-to-
 **Caitlin Clark makes Team USA debut at camp, says she's back to full health**\
 `Clark said she was nervous coming back to the court after missing most of the WNBA season.`\
 https://nytimes.com/athletic/6885337/2025/12/12/caitlin-clark-team-usa-training-camp-debut/
-
-**Victor Wembanyama likely to return from left calf injury for NBA Cup semifinals**\
-`The Spurs have gone 9-3 in Wembanyama's absence but could get him back for their toughest test of the season`\
-https://nytimes.com/athletic/6883130/2025/12/12/victor-wembanyama-injury-nba-cup-spurs-thunder/
-
-**How to watch Texas vs. UConn men's basketball: Time, TV, streaming**\
-`Find out how to watch the Texas Longhorns play the UConn Huskies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6885367/2025/12/12/texas-vs-uconn-stream-how-to-watch-dec-12/
 
