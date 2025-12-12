@@ -1,36 +1,36 @@
-**The Prospects: Kian Breckin, Manchester City**\
-`The Athletic takes a look at a Manchester City midfielder who has tasted senior football on loan and may now be ready to take that next step`\
-https://nytimes.com/athletic/6881571/2025/12/12/prospects-kian-breckin-manchester-city/
+**HUD Accuses Boston of Racial Discrimination in Housing Policies**\
+`The Department of Housing and Urban Development is investigating whether the city’s focus on affordable housing for people of color violated federal law.`\
+https://nytimes.com/2025/12/12/us/politics/hud-boston-discrimination.html
 
-**Welcome to the chaotic, warp-speed Premier League season nobody can predict**\
-`Has there ever been a season during which the narratives and fortunes of clubs change so suddenly and dramatically? `\
-https://nytimes.com/athletic/6881525/2025/12/12/premier-league-warp-speed-season/
+**Welcome to Talk of the Devils: Manchester United, a constant contradiction **\
+`Welcome to our new Talk of the Devils column with Ian Irving, bringing you all the talking points and bits you may have missed about United`\
+https://nytimes.com/athletic/6882278/2025/12/12/manchester-united-constant-contradiction/
 
-**Is Haaland the greatest goalscorer in English football history?**\
-`How does the Manchester City striker's record compare to those who have gone before him, like the legendary Dixie Dean and Jimmy Greaves?`\
-https://nytimes.com/athletic/6773305/2025/12/12/haaland-greatest-goalscorer-english-football/
+**Why don't Tottenham Hotspur go on tour to the USA?**\
+`Spurs have already confirmed their plans for the summer of 2026, when they will extend their run of not visiting the U.S. to eight years`\
+https://nytimes.com/athletic/6881900/2025/12/12/spurs-tour-usa-australia/
 
-**Premier League Predictions: Liverpool vs Brighton, Sunderland vs Newcastle and the rest of Matchday 16**\
-`Who's leading after MD15? And what do our writer, the algorithm, a child and this week's subscriber expect to see on Matchday 16?`\
-https://nytimes.com/athletic/6878154/2025/12/12/premier-league-predictions-md16/
+**Kirk Cousins rallies Falcons and hurts Bucs' playoff hopes: Takeaways**\
+`Even without being in playoff contention, the Falcons fought back from a two-touchdown deficit in the fourth quarter for a last-second win.`\
+https://nytimes.com/athletic/6882716/2025/12/12/falcons-bucs-score-result-takeaways-thursday-night-football/
 
-**Why Mbappe and PSG are claiming hundreds of millions of Euros from each other**\
-`One of the world’s greatest footballers wants €263million. The European champions' counterclaim is for €440m`\
-https://nytimes.com/athletic/6878165/2025/12/12/kylian-mbappe-psg-claim-court-why/
+**Newcastle Under-19s have lost every game in Europe, but does that tell the full story?**\
+`While six straight losses in the UEFA Youth League is a poor return, there are signs the club can be more competitive in the future`\
+https://nytimes.com/athletic/6879172/2025/12/12/newcastle-u19s-have-lost-every-game-in-europe-but-does-that-tell-the-full-story/
 
-**What do Real Madrid actually want?**\
-`Xabi Alonso was only hired in May, but he is already under significant pressure. Should we be surprised?`\
-https://nytimes.com/athletic/6881911/2025/12/12/real-madrid-perez-alonso-future-champions-league/
+**Sean Dyche is developing a knack for sending in the cavalry at the ideal moment**\
+`Against Utrecht in the Europa League, the Nottingham Forest manager again changed a game through his well-timed substitutions`\
+https://nytimes.com/athletic/6882973/2025/12/12/sean-dyche-nottingham-forest-substitutions/
 
-**Fantasy Premier League: Priority transfers for Gameweek 16**\
-`All FPL managers have been bumped up to the maximum five free transfers to help with AFCON, so you have plenty of flexibility`\
-https://nytimes.com/athletic/6878077/2025/12/12/fantasy-premier-league-priority-transfers-for-gameweek-16/
+**How Arsenal reintegrate players returning from injury: Bespoke programmes - and patience**\
+`After 15 league games this season, Arsenal have suffered 15 injuries but the number of absentees have largely been a subplot`\
+https://nytimes.com/athletic/6881440/2025/12/12/arsenal-reintegrating-players-from-injury/
 
-**Liverpool lack a Plan A – minor tactical issues are creating a major problem**\
-`The Premier League champions' performances this season show their problems run deeper than Mohamed Salah's recent mixed-zone rant`\
-https://nytimes.com/athletic/6880351/2025/12/12/arne-slot-liverpool-tactical-problems/
+**Brighton push for SCR amendment fearing big clubs will reap outsize benefits**\
+`Unless new financial rules change, Brighton fear aspirational clubs in the middle of the Premier League will find it even harder to compete `\
+https://nytimes.com/athletic/6844490/2025/12/12/brighton-push-for-scr-amendment-fearing-big-clubs-will-reap-outsize-benefits/
 
-**Man City's ominous post-Christmas record should make Arsenal nervous**\
-`The leaders reacted badly to their loss against Villa – it might be City's form in the second half of recent seasons that is worrying them`\
-https://nytimes.com/athletic/6876224/2025/12/12/man-city-arsenal-post-christmas-analysis/
+**Is Crystal Palace's Christantus Uche starting to earn Oliver Glasner's trust?**\
+`The Nigerian forward has struggled for minutes since arriving from Getafe this summer, but scored and performed strongly against Shelbourne`\
+https://nytimes.com/athletic/6869858/2025/12/12/crystal-palace-christantus-uche-oliver-glasner/
 
