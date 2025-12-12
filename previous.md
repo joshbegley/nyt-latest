@@ -1,3 +1,7 @@
+**Risk-Based Screening Works as Well as Yearly Checks After 40 in Finding Breast Cancers**\
+`A study of more than 45,000 women found that screening women according to their level of risk was as effective in detecting  tumors as the one-size-fits-most screening currently recommended.`\
+https://nytimes.com/2025/12/12/health/jama-breast-cancer-risk-based-screening.html
+
 **U.S. Drops Sanctions on Brazilian Justice at Center of Bolsonaro Trial**\
 `The U.S. Treasury said that maintaining sanctions against Justice Alexandre de Moraes was no longer in the interests of the United States.`\
 https://nytimes.com/2025/12/12/world/americas/brazil-us-sanctions-justice-moraes.html
@@ -26,11 +30,7 @@ https://nytimes.com/2025/12/12/briefing/storm-flooding-washington-tsa-ice-data.h
 `The prospect of soaring health care costs could exacerbate Americans’ feelings about affordability, an issue that President Trump has tried to downplay. But Democrats plan to keep the issue front and center.`\
 https://nytimes.com/2025/12/12/us/politics/trump-republicans-obamacare-health-costs.html
 
-**Florida Hearing on Ending School Vaccine Mandates Draws Fervent Crowd**\
+**In Florida’s Panhandle, a Hearing on School Vaccine Mandates Gets Heated**\
 `The hearing was the first concrete step toward repealing some of the state’s vaccine requirements. Rolling back others would require legislative action.`\
 https://nytimes.com/2025/12/12/us/florida-school-vaccine-mandates.html
-
-**Stream These 10 Movies and TV Shows Before They Leave Netflix in January**\
-`A ton of titles are expiring soon for U.S. subscribers. Catch them while you can, including a Scorsese classic and one of TV’s most influential series.`\
-https://nytimes.com/2025/12/12/arts/television/netflix-expiring-movies-shows-january.html
 
