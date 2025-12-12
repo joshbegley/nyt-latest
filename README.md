@@ -1,3 +1,7 @@
+**Jimmy Kimmel Takes a Swipe at Trump’s ‘Gold Card’**\
+`The new visa for rich foreigners had Kimmel rethinking the Statue of Liberty’s inscription: “Never mind your poor and tired. Give us a million bucks — you’re in.”`\
+https://nytimes.com/2025/12/12/arts/television/jimmy-kimmel-trump-gold-card.html
+
 **East German clash heads Bundesliga action as Milan, Marseille and Real chase wins**\
 `An East Germany clash between Union Berlin and RB Leipzig kicks of a great weekend of European league action.`\
 https://nytimes.com/athletic/6883541/2025/12/12/east-german-bundesliga-milan-marseille/
@@ -29,8 +33,4 @@ https://nytimes.com/issue/todayspaper/2025/12/12/todays-new-york-times
 **HUD Accuses Boston of Racial Discrimination in Housing Policies**\
 `The Department of Housing and Urban Development is investigating whether the city’s focus on affordable housing for people of color violated federal law.`\
 https://nytimes.com/2025/12/12/us/politics/hud-boston-discrimination.html
-
-**Welcome to Talk of the Devils: Manchester United, a constant contradiction **\
-`Welcome to our new Talk of the Devils column with Ian Irving, bringing you all the talking points and bits you may have missed about United`\
-https://nytimes.com/athletic/6882278/2025/12/12/manchester-united-constant-contradiction/
 
