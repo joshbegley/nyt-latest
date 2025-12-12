@@ -1,3 +1,11 @@
+**Exorbitant World Cup ticket prices could ruin hopes of growing soccer in the U.S.**\
+`Even the least expensive tickets for next summer's World Cup will be unaffordable for the majority of Americans`\
+https://nytimes.com/athletic/6882762/2025/12/12/exorbitant-world-cup-ticket-prices-could-ruin-hopes-of-growing-soccer-in-the-u-s/
+
+**Trump Wanted Ukraine to Cede Land to Russia. Ukraine Has Another Offer.**\
+`A Ukrainian peace plan, sent this week to Washington, pushes back against President Trump’s proposal that Ukraine give up more land for peace.`\
+https://nytimes.com/2025/12/12/world/europe/ukraine-trump-peace-plan-counterproposal.html
+
 **What About Larry Ellison’s Billions?**\
 `The Oracle co-founder has pledged billions to finance Paramount’s takeover bid for Warner Bros. Discovery — which has questions about his commitment.`\
 https://nytimes.com/2025/12/12/business/dealbook/ellison-paramount-oracle-warner-bros-financing.html
