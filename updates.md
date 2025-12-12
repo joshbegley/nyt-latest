@@ -1,3 +1,15 @@
+**Stuck in Quicksand, a Hiker in Utah Has His SOS Answered**\
+`Austin Dirks used a Garmin satellite device to reach emergency responders, who rescued him in a remote canyon in Arches National Park.`\
+https://nytimes.com/2025/12/11/us/hiker-quicksand-rescue-utah.html
+
+**Hiker Rescued From Quicksand in Arches National Park**\
+`Austin Dirks was on a solo hike in Arches National Park when he got stuck in quicksand. Emergency responders rescued him after he sent an SOS message using a satellite device.`\
+https://nytimes.com/video/us/100000010582488/quicksand-arches-national-park-rescue.html
+
+**Penguins delay game against Canadiens due to traffic accident**\
+`Many players arrived around an hour later than usual, but they were able to make it in time for the 7:30 p.m. (ET) start.`\
+https://nytimes.com/athletic/6883405/2025/12/11/penguins-canadiens-game-delay-traffic-accident-pittsburgh/
+
 **Michael Jordan was already a basketball legend. Now, he's one in NASCAR too**\
 `Thursday's settlement was that significant for NASCAR's teams that Jordan just made himself a transformative figure in yet another sport.`\
 https://nytimes.com/athletic/6882918/2025/12/11/michael-jordan-nascar-settlement-trial-legend/
