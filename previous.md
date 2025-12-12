@@ -1,3 +1,7 @@
+**Democrats Press Noem on Harsh Immigration Tactics**\
+`Some Democratic lawmakers pressed Homeland Security Secretary Kristi Noem on the Trump administration’s aggressive immigration enforcement tactics during a hearing on Thursday.`\
+https://nytimes.com/video/us/politics/100000010582298/noem-house-hearing-immigration-crackdown.html
+
 **Stuck in Quicksand, a Hiker in Utah Has His SOS Answered**\
 `Austin Dirks used a Garmin satellite device to reach emergency responders, who rescued him in a remote canyon in Arches National Park.`\
 https://nytimes.com/2025/12/11/us/hiker-quicksand-rescue-utah.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6883290/2025/12/11/coastal-carolina-hires-ryan-bear
 **What Indiana’s Defiance Means for Trump: 6 Takeaways**\
 `President Trump’s failure to ram through a Republican-friendly House map was a new sign that his iron grip on the party has slipped, and was likely to reverberate nationally.`\
 https://nytimes.com/2025/12/11/us/politics/indiana-trump-redistricting-takeaways.html
-
-**Outfielder Lane Thomas agrees to one-year, $5.25 million deal with Royals: Source**\
-`Thomas, who only appeared in 39 games with Cleveland last season due to injuries, will get an opportunity to build value with Kansas City.`\
-https://nytimes.com/athletic/6817011/2025/12/11/lane-thomas-royals-free-agent-signing/
 

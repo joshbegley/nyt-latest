@@ -1,3 +1,7 @@
+**Democrats Press Noem on Harsh Immigration Tactics**\
+`Some Democratic lawmakers pressed Homeland Security Secretary Kristi Noem on the Trump administration’s aggressive immigration enforcement tactics during a hearing on Thursday.`\
+https://nytimes.com/video/us/politics/100000010582298/noem-house-hearing-immigration-crackdown.html
+
 **Stuck in Quicksand, a Hiker in Utah Has His SOS Answered**\
 `Austin Dirks used a Garmin satellite device to reach emergency responders, who rescued him in a remote canyon in Arches National Park.`\
 https://nytimes.com/2025/12/11/us/hiker-quicksand-rescue-utah.html
