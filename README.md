@@ -1,3 +1,11 @@
+**Justice Dept. Asks Appeals Court to Kill Contempt Inquiry Into Deportation Flights**\
+`The bid by the department was only the latest flashpoint between the Trump administration and the courts, especially over the president’s aggressive immigration agenda.`\
+https://nytimes.com/2025/12/12/us/politics/justice-department-deportation-flights-investigation.html
+
+**With Penguins' Tristan Jarry trade, Kyle Dubas takes another major leap forward**\
+`Dubas is on a heater, and the Penguins are suddenly well ahead of schedule. `\
+https://nytimes.com/athletic/6885182/2025/12/12/penguins-tristan-jarry-trade-kyle-dubas-nhl/
+
 **Review: At Ailey, an Ascetic Tribute and a MacArthur Composer**\
 `New works by Jamar Roberts and Matthew Neenan had their premieres at Alvin Ailey American Dance Theater.`\
 https://nytimes.com/2025/12/12/arts/dance/review-jamar-roberts-matthew-neenan-alvin-ailey.html
@@ -17,16 +25,4 @@ https://nytimes.com/2025/12/12/us/politics/admiral-alvin-holsey-retires-boat-str
 **Flashback: Your Weekly History Quiz, Dec. 13, 2025**\
 `Can you sort 8 historical events?`\
 https://nytimes.com/interactive/2025/12/12/upshot/flashback.html
-
-**Dozens Killed in Hospital Strike in Myanmar**\
-`Myanmar’s junta bombed a hospital compound in Rakhine State, killing dozens, according to aid workers and rebel forces. The attacks are some of the latest in a civil war that was started by a coup in February 2021.`\
-https://nytimes.com/video/world/asia/100000010582691/myanmar-hospital-attack-rohingya.html
-
-**Messi's MLS triumph watched by 4.6M says league but questions remain**\
-`The advertised numbers represent a significant jump in viewership for the championship game`\
-https://nytimes.com/athletic/6876379/2025/12/12/lionel-messis-mls-triumph-watched-by-4-6m-says-league-but-questions-remain/
-
-**What I'm hearing about the Flyers and Quinn Hughes, plus Christian Dvorak's future**\
-`Dvorak continues to contribute. What does that mean for the rest of this season and beyond?`\
-https://nytimes.com/athletic/6885102/2025/12/12/flyers-hughes-trade-dvorak/
 
