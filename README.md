@@ -1,5 +1,9 @@
+**Unai Emery's faith in Evann Guessand is beginning to pay off**\
+`The £30m summer signing is not yet a finished product – but Villa's Europa League campaign is helping him develop `\
+https://nytimes.com/athletic/6883230/2025/12/12/evann-guessand-aston-villa-europa-league/
+
 **Matt Boldy shines as Wild win 'measuring stick' game against Stars**\
-`Thursday was the Wild's first regulation win over the Dallas Stars since Nov. 18, 2021.`\
+`Thursday was Minnesota's first regulation win over Dallas since Nov. 18, 2021. The Stars had been 10-0-5 in their 15 games against the Wild.`\
 https://nytimes.com/athletic/6883825/2025/12/12/matt-boldy-shines-wild-beats-stars/
 
 **Life and Death in India’s Air Apocalypse**\
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6882716/2025/12/12/falcons-bucs-score-result-takeaw
 **Newcastle Under-19s have lost every game in Europe, but does that tell the full story?**\
 `While six straight losses in the UEFA Youth League is a poor return, there are signs the club can be more competitive in the future`\
 https://nytimes.com/athletic/6879172/2025/12/12/newcastle-u19s-have-lost-every-game-in-europe-but-does-that-tell-the-full-story/
-
-**Sean Dyche is developing a knack for sending in the cavalry at the ideal moment**\
-`Against Utrecht in the Europa League, the Nottingham Forest manager again changed a game through his well-timed substitutions`\
-https://nytimes.com/athletic/6882973/2025/12/12/sean-dyche-nottingham-forest-substitutions/
 
