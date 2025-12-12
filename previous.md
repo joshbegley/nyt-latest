@@ -1,36 +1,36 @@
+**Record Flooding Forces Rescues Across Western Washington**\
+`A major river in the region was set to crest on Friday morning, with more rain on the way.`\
+https://nytimes.com/2025/12/12/us/washington-flooding-rain-atmospheric-river.html
+
+**Sources: Rapids to tab Tottenham assistant as new manager**\
+`The Rapids narrowly missed the playoffs in 2025 and moved on from manager Chris Armas`\
+https://nytimes.com/athletic/6884783/2025/12/12/colorado-rapids-matt-wells-manager-tottenham-mls/
+
+**Comics Performing in Hindi Are Selling Out Shows Across the U.S.**\
+`America is becoming a second home for Hindi comedy.`\
+https://nytimes.com/2025/12/12/us/hindi-comics-standup.html
+
+**How to watch Pacers vs. 76ers: Time, TV, streaming**\
+`Find out how to watch the Indiana Pacers play the Philadelphia 76ers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6884934/2025/12/12/pacers-vs-76ers-stream-how-to-watch-dec-12/
+
+**How to watch Bulls vs. Hornets: Time, TV, streaming**\
+`Find out how to watch the Chicago Bulls play the Charlotte Hornets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6884932/2025/12/12/bulls-vs-hornets-stream-how-to-watch-dec-12/
+
+**How to watch Cavaliers vs. Wizards: Time, TV, streaming**\
+`Find out how to watch the Cleveland Cavaliers play the Washington Wizards, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6884930/2025/12/12/cavaliers-vs-wizards-stream-how-to-watch-dec-12/
+
+**How to watch Hawks vs. Pistons: Time, TV, streaming**\
+`Find out how to watch the Atlanta Hawks play the Detroit Pistons, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6884928/2025/12/12/hawks-vs-pistons-stream-how-to-watch-dec-12/
+
+**A college football tradition continues in Atlanta — a decade ago, once decided by 1 vote**\
+`“We’re giving the country an HBCU Super Bowl,” said John T. Grant, the executive director of the Celebration Bowl.`\
+https://nytimes.com/athletic/6883708/2025/12/12/celebration-bowl-hbcu-college-football/
+
 **The Bounce: The NBA Cup semis are here. Plus, Joel Embiid's shot diet leaves us hungry**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/6884840/2025/12/12/the-bounce-nba-cup-joel-embiid-thunder/
-
-**House Democrats Release Epstein Photos Documenting Ties to Powerful Men**\
-`The images, released without context by Democrats on the Oversight Committee, reveal little new about the deceased sex offender’s ties to prominent men in politics, entertainment and finance.`\
-https://nytimes.com/2025/12/12/us/politics/jeffrey-epstein-photos-estate.html
-
-**This ‘Into the Woods,’ Is Not that Deep. That’s What Makes It Great.**\
-`A new London staging of the Stephen Sondheim and James Lapine musical makes the most of its comedic elements and delivers a visual treat.`\
-https://nytimes.com/2025/12/12/theater/into-the-woods-bridge-theater.html
-
-**NHL trade grades: Oilers make a big goalie move but Tristan Jarry isn't the answer**\
-`The Oilers needed a goalie upgrade over Stuart Skinner but Tristan Jarry probably isn't the answer.`\
-https://nytimes.com/athletic/6884732/2025/12/12/nhl-trade-grades-oilers-penguins-skinner-jarry/
-
-**Wading into the Canucks' mess. Plus: Is this the most unpredictable NHL season yet?**\
-`We've also got a three-part trivia question for you quizzers out there.`\
-https://nytimes.com/athletic/6884780/2025/12/12/quinn-hughes-trade-rumors-canucks-nhl/
-
-**F1 and FIA announce new Concorde Agreement signed with teams through 2030**\
-`The Concorde Agreement serves as the binding commercial and governing terms between the sport.`\
-https://nytimes.com/athletic/6884612/2025/12/12/f1-fia-concorde-agreement/
-
-**Fraudster’s Victims Are Seething After Trump Commuted His Sentence**\
-`David Gentile spent just days in prison for his conviction in what prosecutors described as a $1.6 billion scheme that defrauded thousands of investors.`\
-https://nytimes.com/2025/12/12/nyregion/david-gentile-trump-commutation.html
-
-**Midge Purce re-signs with Gotham FC for another season**\
-`The 30-year-old forward, fresh off a championship and with a star profile beyond the pitch, has determined she wants to stay in New Jersey.`\
-https://nytimes.com/athletic/6884778/2025/12/12/midge-purce-resigns-gotham-fc/
-
-**Joanna Trollope, Popular British Author, Dies at 82**\
-`Her books, many of which were best sellers, often described empty marriages, love affairs (with tasteful sex) and heroic clergymen.`\
-https://nytimes.com/2025/12/12/books/joanna-trollope-dead.html
 
