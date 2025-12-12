@@ -1,3 +1,11 @@
+**'This is the perfect mentality' - Rashford praised by Barca coach Flick**\
+`The England international has started just one of his side's last six matches since the return from last month's international break.`\
+https://nytimes.com/athletic/6884330/2025/12/12/marcus-rashford-barcelona-loan-transfer/
+
+**The Crime Involved Trash Bags. But It Wasn’t a Mob Caper.**\
+`Prosecutors say a city official on Jeju Island in South Korea stole more than $400,000 by pocketing the sale of government-issued trash bags that cost as little as 7 cents each.`\
+https://nytimes.com/2025/12/12/world/asia/jeju-south-korea-trash-bags-fraud.html
+
 **Falcons finally find a way, overcoming 19 penalties and 14-point deficit to beat Bucs**\
 `The Falcons were down 14 points in the fourth quarter Thursday but came back to beat the Bucs 29-28 with the help of some unlikely heroes.`\
 https://nytimes.com/athletic/6883986/2025/12/12/falcons-buccaneers-tnf-sills-neuzil-alford/
