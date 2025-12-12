@@ -1,3 +1,7 @@
+**NASCAR needs to move into the future. It's time for Jim France to step aside**\
+`France stepped in to carry on his family's legacy. But after this damaging lawsuit and trial, the sport needs change to move forward.`\
+https://nytimes.com/athletic/6884976/2025/12/12/nascar-settlement-jim-france-future-owner/
+
 **The Year in Sports: It Has Been a Time of ‘I Can’t Believe I Just Saw That’**\
 `There have been almost superhuman performances from the likes of Shohei Ohtani, A’ja Wilson and Tadej Pogacar.`\
 https://nytimes.com/2025/12/12/sports/year-in-sports-2025.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6884529/2025/12/12/sherrone-moore-court-charges-mic
 **Arthur L. Carter, 93, Dies; Investment Banker Founded a Cheeky Newspaper**\
 `After making a fortune on Wall Street, he bought The Nation magazine and founded The New York Observer, which one writer called a “maypole of Manhattan gossip and intrigue.”`\
 https://nytimes.com/2025/12/12/business/media/arthur-carter-dead.html
-
-**How to Find a Date in a Country with Over 30 Million Extra Men**\
-`A decade after the end of the one-child policy, China has over 30 million so-called surplus men. Can this dating boot camp help them find love?`\
-https://nytimes.com/video/opinion/100000010583475/china-dating-men-one-child-policy.html
 

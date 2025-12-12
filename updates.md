@@ -1,3 +1,7 @@
+**The Year in Sports: It Has Been a Time of ‘I Can’t Believe I Just Saw That’**\
+`There have been almost superhuman performances from the likes of Shohei Ohtani, A’ja Wilson and Tadej Pogacar.`\
+https://nytimes.com/2025/12/12/sports/year-in-sports-2025.html
+
 **A Brutally Long Tennis Season Takes a Toll on Players**\
 `Injuries and mental exhaustion this year forced both men and women to withdraw from tournaments and suspend play for months.`\
 https://nytimes.com/2025/12/12/sports/tennis/player-injuries-season.html
