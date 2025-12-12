@@ -1,3 +1,7 @@
+**Map: 6.7-Magnitude Earthquake Shakes Off Japan**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/12/11/world/quake-tracker-north-pacific-ocean-japan.html
+
 **Navy Submits Investigation on Senator to Hegseth’s Office**\
 `The report concerns a video in which Senator Mark Kelly, a retired Navy captain, and five other Democratic lawmakers reminded military members of their obligation to refuse illegal orders.`\
 https://nytimes.com/2025/12/11/us/politics/senator-mark-kelly-investigation-navy.html

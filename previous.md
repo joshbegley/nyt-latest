@@ -1,3 +1,7 @@
+**Map: 6.7-Magnitude Earthquake Shakes Off Japan**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/12/11/world/quake-tracker-north-pacific-ocean-japan.html
+
 **Navy Submits Investigation on Senator to Hegseth’s Office**\
 `The report concerns a video in which Senator Mark Kelly, a retired Navy captain, and five other Democratic lawmakers reminded military members of their obligation to refuse illegal orders.`\
 https://nytimes.com/2025/12/11/us/politics/senator-mark-kelly-investigation-navy.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/11/us/politics/trump-pardon-tina-peters-colorado.htm
 **Democrats Press Noem on Harsh Immigration Tactics**\
 `Some Democratic lawmakers pressed Homeland Security Secretary Kristi Noem on the Trump administration’s aggressive immigration enforcement tactics during a hearing on Thursday.`\
 https://nytimes.com/video/us/politics/100000010582298/noem-house-hearing-immigration-crackdown.html
-
-**Stuck in Quicksand, a Hiker in Utah Has His SOS Answered**\
-`Austin Dirks used a Garmin satellite device to reach emergency responders, who rescued him in a remote canyon in Arches National Park.`\
-https://nytimes.com/2025/12/11/us/hiker-quicksand-rescue-utah.html
 
