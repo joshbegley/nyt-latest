@@ -1,4 +1,4 @@
-**Map: 6.7-Magnitude Earthquake Shakes Off Japan**\
+**Map: 6.7-Magnitude Earthquake Strikes Off Japan**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/12/11/world/quake-tracker-north-pacific-ocean-japan.html
 
