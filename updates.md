@@ -1,3 +1,7 @@
+**Following first taste of extended playoff success, Blue Jays extend president Mark Shapiro**\
+`Shapiro will need to keep Toronto on the cutting edge and charging toward a return to the World Series.`\
+https://nytimes.com/athletic/6884945/2025/12/12/blue-jays-mark-shapiro-contract-extension/
+
 **How FIFA's World Cup pricing dwarfs projections in original North American bid**\
 `Ticket prices released this week by FIFA were, on average, 174 per cent higher than in the original North American bid book.`\
 https://nytimes.com/athletic/6884967/2025/12/12/world-cup-tickets-fifa-pricing/
