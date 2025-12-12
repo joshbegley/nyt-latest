@@ -1,3 +1,15 @@
+**NHL Power Rankings: Checking every team's Christmas list**\
+`From good luck to massive trade hauls, here’s every team’s top Christmas wish.`\
+https://nytimes.com/athletic/6883867/2025/12/12/nhl-power-rankings-christmas-list/
+
+**Alex Lyon's path back to Sabres' net and other thoughts from Buffalo's road trip**\
+`"It’s just satisfying when you try to stay as ready as you can, and then it pays off,” Lyon said after Thursday's win over Vancouver.`\
+https://nytimes.com/athletic/6883982/2025/12/12/alex-lyons-sabres-net-road-trip/
+
+**IOC: Russian, Belarusian youth athletes should compete under national flags**\
+`"The Olympic Summit recognised that ... youth athletes should not be held accountable for the actions of their government," the IOC said.`\
+https://nytimes.com/athletic/6884457/2025/12/12/russia-ban-belarus-athletes/
+
 **Lowetide: Hyman's hat trick a positive for Oilers. Where else can they improve?**\
 `Thursday was a good night for the Oilers, and possibly solved one problem on the roster.`\
 https://nytimes.com/athletic/6880495/2025/12/12/zach-hyman-oilers-hat-trick-roster-stats/
