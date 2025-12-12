@@ -1,3 +1,11 @@
+**In a Hamlet Built on Forbidden Love, a Cyclone Buried It All**\
+`Three generations of a family built their homes and lives in Sri Lanka’s highland tea country. The biggest storm in decades wiped out their hamlet in a landslide.`\
+https://nytimes.com/2025/12/12/world/asia/in-a-hamlet-built-on-forbidden-love-a-cyclone-buried-it-all.html
+
+**Cyclone Aftermath In Sri Lanka**\
+`Mujib Mashal, our South Asia bureau chief, takes us to Kandy in Sri Lanka, which suffered the worst of the devastation from last month’s cyclone.`\
+https://nytimes.com/video/world/asia/100000010566916/cyclone-aftermath-in-sri-lanka.html
+
 **Immigration Agents Are Using Air Passenger Data for Deportation Effort**\
 `The Transportation Security Administration is providing passenger lists to Immigrations and Customs Enforcement to identify and detain travelers subject to deportation orders.`\
 https://nytimes.com/2025/12/12/us/politics/immigration-tsa-passenger-data.html
@@ -25,12 +33,4 @@ https://nytimes.com/newsgraphics/card-story/holiday-decor-apartment-brooklyn
 **How to watch Blackhawks vs. Blues: Time, TV, streaming**\
 `Find out how to watch the Chicago Blackhawks play the St. Louis Blues, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6885417/2025/12/12/blackhawks-vs-blues-stream-how-to-watch-dec-12/
-
-**How to watch Jazz vs. Grizzlies: Time, TV, streaming**\
-`Find out how to watch the Utah Jazz play the Memphis Grizzlies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6885414/2025/12/12/jazz-vs-grizzlies-stream-how-to-watch-dec-12/
-
-**How to watch Nets vs. Mavericks: Time, TV, streaming**\
-`Find out how to watch the Brooklyn Nets play the Dallas Mavericks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6885412/2025/12/12/nets-vs-mavericks-stream-how-to-watch-dec-12/
 
