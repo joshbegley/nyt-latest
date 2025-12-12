@@ -1,3 +1,7 @@
+**NASCAR needs to move into the future. It's time for Jim France to step aside**\
+`France stepped in to carry on his family's legacy. But after this damaging lawsuit and trial, the sport needs change to move forward.`\
+https://nytimes.com/athletic/6884976/2025/12/12/nascar-settlement-jim-france-future-owner/
+
 **The Year in Sports: It Has Been a Time of ‘I Can’t Believe I Just Saw That’**\
 `There have been almost superhuman performances from the likes of Shohei Ohtani, A’ja Wilson and Tadej Pogacar.`\
 https://nytimes.com/2025/12/12/sports/year-in-sports-2025.html
