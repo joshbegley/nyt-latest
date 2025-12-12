@@ -1,3 +1,7 @@
+**Trump Offers Symbolic Pardon for Clerk Convicted of Election Tampering**\
+`Tina Peters was sentenced for a Colorado state crime that the president has no ability to pardon. President Trump has no legal power to free her from prison.`\
+https://nytimes.com/2025/12/11/us/politics/trump-pardon-tina-peters-colorado.html
+
 **Democrats Press Noem on Harsh Immigration Tactics**\
 `Some Democratic lawmakers pressed Homeland Security Secretary Kristi Noem on the Trump administration’s aggressive immigration enforcement tactics during a hearing on Thursday.`\
 https://nytimes.com/video/us/politics/100000010582298/noem-house-hearing-immigration-crackdown.html
