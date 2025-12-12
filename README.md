@@ -1,3 +1,15 @@
+**NHL Power Rankings: Checking every team's Christmas list**\
+`From good luck to massive trade hauls, here’s every team’s top Christmas wish.`\
+https://nytimes.com/athletic/6883867/2025/12/12/nhl-power-rankings-christmas-list/
+
+**Alex Lyon's path back to Sabres' net and other thoughts from Buffalo's road trip**\
+`"It’s just satisfying when you try to stay as ready as you can, and then it pays off,” Lyon said after Thursday's win over Vancouver.`\
+https://nytimes.com/athletic/6883982/2025/12/12/alex-lyons-sabres-net-road-trip/
+
+**IOC: Russian, Belarusian youth athletes should compete under national flags**\
+`"The Olympic Summit recognised that ... youth athletes should not be held accountable for the actions of their government," the IOC said.`\
+https://nytimes.com/athletic/6884457/2025/12/12/russia-ban-belarus-athletes/
+
 **Lowetide: Hyman's hat trick a positive for Oilers. Where else can they improve?**\
 `Thursday was a good night for the Oilers, and possibly solved one problem on the roster.`\
 https://nytimes.com/athletic/6880495/2025/12/12/zach-hyman-oilers-hat-trick-roster-stats/
@@ -21,16 +33,4 @@ https://nytimes.com/2025/12/12/world/europe/russia-ukraine-frozen-assets-belgium
 **Could taking the NBA Cup global help the tournament live up to its lofty ambitions?**\
 `It's hard not to feel like something's there with the NBA Cup. Like it's one or two adjustments from becoming a staple.`\
 https://nytimes.com/athletic/6884031/2025/12/12/nba-cup-format-changes-international-vegas-thunder/
-
-**Kentucky went from top 10 to unranked. How can the Wildcats salvage their season?**\
-`The Athletic spoke with coaches and watched UK's games to assess what Kentucky must do to salvage its still-young season.`\
-https://nytimes.com/athletic/6882985/2025/12/12/kentucky-basketball-losing-analysis-mark-pope/
-
-**Elon Musk Taunts Europe and Tests Willingness to Enforce Online Laws**\
-`Backed by White House officials, the tech billionaire has lashed out at the European Union after his social media platform X was fined last week.`\
-https://nytimes.com/2025/12/12/technology/elon-musk-europe.html
-
-**Should You Donate to Charity This Year or Wait? It Depends.**\
-`Changes in the tax law will have different effects on people who take the standard deduction versus high earners who itemize.`\
-https://nytimes.com/2025/12/12/your-money/donations-charity-tax-law.html
 
