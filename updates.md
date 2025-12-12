@@ -1,3 +1,7 @@
+**Matt Boldy shines as Wild win 'measuring stick' game against Stars**\
+`Thursday was the Wild's first regulation win over the Dallas Stars since Nov. 18, 2021.`\
+https://nytimes.com/athletic/6883825/2025/12/12/matt-boldy-shines-wild-beats-stars/
+
 **Matt Boldy shines as Wild wins 'measuring stick' game against Stars**\
 `Thursday was the Wild's first regulation win over the Dallas Stars since Nov. 18, 2021.`\
 https://nytimes.com/athletic/6883825/2025/12/12/matt-boldy-shines-wild-beats-stars/
