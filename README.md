@@ -1,3 +1,15 @@
+**It Was an Eventful Year for Golf, on and Off the Course**\
+`Rory McIlroy got his career Grand Slam, Scottie Scheffler kept winning and two tours named new leaders.`\
+https://nytimes.com/2025/12/12/sports/golf/year-review-2025.html
+
+**Formula 1 Moves Into a New World in 2026**\
+`Under revised regulations, cars will be lighter, shorter and narrower, and will rely heavily on electric power. The goal: to make racing more exciting.`\
+https://nytimes.com/2025/12/12/sports/f1-racing-2026-season.html
+
+**So, Your House Is Stinky. Here’s How to Fix It. **\
+`Text by Caroline Mullen`\
+https://nytimes.com/card/2025/12/12/smarter-living/wirecutter/
+
 **Ex-Michigan coach Sherrone Moore charged with home invasion, stalking, breaking and entering**\
 `The home invasion charge is a felony, while the stalking and breaking and entering charges are misdemeanors.`\
 https://nytimes.com/athletic/6884529/2025/12/12/sherrone-moore-court-charges-michigan-football/
@@ -21,16 +33,4 @@ https://nytimes.com/2025/12/12/world/africa/sudan-fasher-food-aid.html
 **Joseph Byrd, Who Shook Up Psychedelic Rock, Dies at 87**\
 `A veteran of the Fluxus art movement, he brought an anarchic spirit to the California acid-rock scene with his band, the United States of America.`\
 https://nytimes.com/2025/12/12/arts/music/joseph-byrd-dead.html
-
-**Jake Paul admits the one fighter he’ll never face after beating Mike Tyson**\
-`"There's a very short list of people that I wouldn't step into the ring with," Paul said.`\
-https://nytimes.com/athletic/6884921/2025/12/12/jake-paul-david-benavidez-wont-fight/
-
-**Lowetide: Why the Oilers made bold moves to address goaltending, defence**\
-`The Oilers swung two deals Friday designed to address clear weaknesses and add to the team's recent progress.`\
-https://nytimes.com/athletic/6884755/2025/12/12/edmonton-oilers-trade-tristan-jarry-stuart-skinner-penguins/
-
-**Salah to be included in Liverpool squad against Brighton**\
-`The forward's future had been thrown into doubt by his incendiary comments last weekend and exclusion from the squad that faced Inter Milan.`\
-https://nytimes.com/athletic/6885058/2025/12/12/mohamed-salah-liverpool-squad-brighton/
 
