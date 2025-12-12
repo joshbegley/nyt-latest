@@ -1,3 +1,7 @@
+**Map: 6.7-Magnitude Earthquake Strikes Off Japan**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/12/11/world/quake-tracker-north-pacific-ocean-japan.html
+
 **Rocky Road Ingredient**\
 `Adrian Johnson and Jess Rucks open our solving weekend with a treat.`\
 https://nytimes.com/2025/12/11/crosswords/daily-puzzle-2025-12-12.html
