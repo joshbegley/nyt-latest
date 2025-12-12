@@ -1,3 +1,11 @@
+**Deadly Storm Causes Massive Flooding Across Gaza**\
+`Nearly 795,000 displaced people in Gaza were at risk of dangerous floodwaters, according to the United Nations. The heavy rain and strong winds flooded makeshift shelters and collapsed several buildings, according to the Gaza Civil Defense.`\
+https://nytimes.com/video/world/middleeast/100000010583512/world-middle-east-displaced-gaza-storm-byron-flooding.html
+
+**Caitlin Clark stresses importance of 2026 WNBA season in CBA negotiations**\
+`“It's important that we find a way to play this next season," Clark said on Friday at Team USA training camp.`\
+https://nytimes.com/athletic/6885586/2025/12/12/wnba-caitlin-clark-cba-negotiations/
+
 **Trump Officials Sue to Seize 2020 Ballots in a Georgia County**\
 `The Justice Department escalated an effort to seize and inspect old ballots in Fulton County, where President Trump was booked in his criminal election interference case.`\
 https://nytimes.com/2025/12/12/us/politics/trump-2020-ballots-fulton-county-georgia.html
