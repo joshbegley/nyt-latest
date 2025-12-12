@@ -1,3 +1,7 @@
+**European preview: Leipzig v Union, Marseille host Monaco, and Como go to Rome**\
+`From an East German clash in the Bundesliga to a Ligue 1 classic, we preview the standout European games taking place this gameweek.`\
+https://nytimes.com/athletic/6883541/2025/12/12/rb-leipzig-bundesliga-milan-marseille-real-madrid/
+
 **Mamdani Will Be New York City’s First Soccer-Mad Mayor**\
 `Zohran Mamdani isn’t just a superfan. Until recently, he was a key player on the Talking Headers, a rec-league team where he was known as Z.`\
 https://nytimes.com/2025/12/12/nyregion/mamdani-soccer-talking-headers-brooklyn.html
