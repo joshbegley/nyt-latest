@@ -1,3 +1,7 @@
+**HUD Accuses Boston of Racial Discrimination in Housing Policies**\
+`The Department of Housing and Urban Development is investigating whether the city’s focus on affordable housing for people of color violated federal law.`\
+https://nytimes.com/2025/12/12/us/politics/hud-boston-discrimination.html
+
 **Welcome to Talk of the Devils: Manchester United, a constant contradiction **\
 `Welcome to our new Talk of the Devils column with Ian Irving, bringing you all the talking points and bits you may have missed about United`\
 https://nytimes.com/athletic/6882278/2025/12/12/manchester-united-constant-contradiction/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6844490/2025/12/12/brighton-push-for-scr-amendment-
 **Is Crystal Palace's Christantus Uche starting to earn Oliver Glasner's trust?**\
 `The Nigerian forward has struggled for minutes since arriving from Getafe this summer, but scored and performed strongly against Shelbourne`\
 https://nytimes.com/athletic/6869858/2025/12/12/crystal-palace-christantus-uche-oliver-glasner/
-
-**Dermot Reeve. Captain. Innovator. Addict**\
-`The ex-Warwickshire and England cricketer had a brilliant tactical mind but has suffered from drug addiction since ending his playing days`\
-https://nytimes.com/athletic/6865188/2025/12/12/dermot-reeve-captain-innovator-addict/
 
