@@ -1,3 +1,7 @@
+**Jimmy Kimmel Takes a Swipe at Trump’s ‘Gold Card’**\
+`The new visa for rich foreigners had Kimmel rethinking the Statue of Liberty’s inscription: “Never mind your poor and tired. Give us a million bucks — you’re in.”`\
+https://nytimes.com/2025/12/12/arts/television/jimmy-kimmel-trump-gold-card.html
+
 **Unai Emery's faith in Evann Guessand is beginning to pay off**\
 `The £30m summer signing is not yet a finished product — but Villa's Europa League campaign is helping him develop `\
 https://nytimes.com/athletic/6883230/2025/12/12/evann-guessand-aston-villa-europa-league/
