@@ -1,3 +1,11 @@
+**Cooling Labor Market and Elevated Inflation Stoke Fed Divisions**\
+`Fed officials explained their opposition to the central bank’s decision this week to cut interest rates by a quarter of a percentage point.`\
+https://nytimes.com/2025/12/12/business/economy/fed-rate-decision-dissents.html
+
+**UNC fires coordinators Freddie Kitchens and Mike Priefer after 4-8 season**\
+`UNC’s offense finished 129th in the country in total offense with 288.8 yards per game and 119th in scoring offense.`\
+https://nytimes.com/athletic/6884564/2025/12/12/unc-freddie-kitchens-mike-priefer-fired/
+
 **USMNT's Robinson hopeful of making return from knee injury vs. Burnley on Saturday**\
 `The 28-year-old has only made three appearances for Fulham this season, with severe pain undermining his efforts to get match-fit.`\
 https://nytimes.com/athletic/6884665/2025/12/12/antonee-robinson-return-fulham-usmnt/

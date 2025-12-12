@@ -1,3 +1,11 @@
+**Cooling Labor Market and Elevated Inflation Stoke Fed Divisions**\
+`Fed officials explained their opposition to the central bank’s decision this week to cut interest rates by a quarter of a percentage point.`\
+https://nytimes.com/2025/12/12/business/economy/fed-rate-decision-dissents.html
+
+**UNC fires coordinators Freddie Kitchens and Mike Priefer after 4-8 season**\
+`UNC’s offense finished 129th in the country in total offense with 288.8 yards per game and 119th in scoring offense.`\
+https://nytimes.com/athletic/6884564/2025/12/12/unc-freddie-kitchens-mike-priefer-fired/
+
 **USMNT's Robinson hopeful of making return from knee injury vs. Burnley on Saturday**\
 `The 28-year-old has only made three appearances for Fulham this season, with severe pain undermining his efforts to get match-fit.`\
 https://nytimes.com/athletic/6884665/2025/12/12/antonee-robinson-return-fulham-usmnt/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6884457/2025/12/12/russia-ban-belarus-athletes/
 **Lowetide: Hyman's hat trick a positive for Oilers. Where else can they improve?**\
 `Thursday was a good night for the Oilers, and possibly solved one problem on the roster.`\
 https://nytimes.com/athletic/6880495/2025/12/12/zach-hyman-oilers-hat-trick-roster-stats/
-
-**Don't overthink the fantasy football playoffs. Plus Pitts' career game and Odunze's return**\
-`Andy Behrens recaps fantasy-relevant league news and offers advice to prevent a fantasy playoff loss.`\
-https://nytimes.com/athletic/6884492/2025/12/12/fantasy-football-news-championship-advice-kyle-pitts/
-
-**Man City's Toure calls Wigan sacking 'the best thing that happened to me'**\
-`Toure was dismissed by Wigan in January 2023 after failing to win any of his seven Championship matches in charge.`\
-https://nytimes.com/athletic/6884481/2025/12/12/manchester-city-kolo-toure-wigan/
 
