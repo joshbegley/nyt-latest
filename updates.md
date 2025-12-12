@@ -1,3 +1,7 @@
+**SEC schedule revealed: Lane Kiffin returns to Ole Miss early in 2026 season**\
+`The SEC on Thursday night revealed its schedule for 2026, the first with a nine-game conference schedule. Here are our takeaways.`\
+https://nytimes.com/athletic/6883594/2025/12/11/sec-schedule-lane-kiffin-lsu-ole-miss-takeaways/
+
 **Arkansas Public Television Drops PBS**\
 `The loss of federal funding forced a difficult decision, the executive director of Arkansas TV said: Cut PBS, or go off the air entirely.`\
 https://nytimes.com/2025/12/11/business/media/arkansas-public-television-drops-pbs.html
