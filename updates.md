@@ -1,3 +1,11 @@
+**Arsenal's Saliba has ankle injury, may miss Wolves game - Arteta**\
+`The 24-year-old has missed Arsenal’s last four games, after completing 90 minutes against Bayern Munich in late November.`\
+https://nytimes.com/athletic/6884190/2025/12/12/saliba-injury-update-arsenal/
+
+**Mohammed Ben Sulayem officially re-elected FIA president**\
+`The 64-year-old is a 14-time FIA Middle East Rally Champion and was first elected as president in 2021.`\
+https://nytimes.com/athletic/6882394/2025/12/12/mohammed-ben-sulayem-fia-president-election/
+
 **How Josh Hart and others are benefiting from new Knicks shooting coach**\
 `At the request of Hart, Knicks coach Mike Brown hired Peter Patton as a shooting coach. Here's how he is impacting the team.`\
 https://nytimes.com/athletic/6881909/2025/12/12/knicks-josh-hart-shooting-coach/
