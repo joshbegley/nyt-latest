@@ -1,3 +1,11 @@
+**Antique or Imitation? A Field Guide for Furniture Hunting.**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/antique-furniture-guide
+
+**Harvard Replaces Leader of Health Center Accused of Favoring Palestinians**\
+`The center at the university’s public health school was also a focus of the Trump administration after having been examined in a Harvard antisemitism report earlier this year.`\
+https://nytimes.com/2025/12/12/us/harvard-replaces-public-health-center-director.html
+
 **gws-holiday-decor-apartment-brooklyn**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/holiday-decor-apartment-brooklyn
