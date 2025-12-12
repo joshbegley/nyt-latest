@@ -1,3 +1,11 @@
+**The U.S. Seizes an Oil Tanker. What’s Next?**\
+`Readers react to developments in the U.S.-Venezuela confrontation. Also: A group of six women with decades of connection.`\
+https://nytimes.com/2025/12/12/opinion/us-venezuela-oil-tanker.html
+
+**Steelers' T.J. Watt has surgery to repair partially collapsed lung, brother J.J. says**\
+`T.J. Watt is expected to be released from the hospital on Friday, although his recovery timeline is still to be determined.`\
+https://nytimes.com/athletic/6885170/2025/12/12/tj-watt-steelers-collapsed-lung-dry-needling/
+
 **National Trust Sues to Block Trump’s White House Ballroom Construction**\
 `The lawsuit seeks to force President Trump to submit his ballroom plans for public review and input.`\
 https://nytimes.com/2025/12/12/us/politics/trump-white-house-ballroom-lawsuit-national-trust.html
@@ -17,12 +25,4 @@ https://nytimes.com/2025/12/12/t-magazine/puerto-escondido-oaxaca-hotel-travel.h
 **LeBrun: Oilers GM Stan Bowman gets the goalie he was after in Tristan Jarry trade**\
 `Oilers general manager Stan Bowman began having conversations with the Penguins about a Jarry trade over the summer.`\
 https://nytimes.com/athletic/6885113/2025/12/12/tristan-jarry-trade-oilers-stan-bowman/
-
-**Iran Arrests Nobel Laureate Narges Mohammadi Amid Broader Crackdown**\
-`The human rights activist was released on furlough from prison last year, but was detained again on Friday, along with several other human rights activists.`\
-https://nytimes.com/2025/12/12/world/middleeast/iran-arrests-narges-mohammadi.html
-
-**Royals agree to five-year extension with All-Star Maikel Garcia: Source**\
-`Kansas City has now locked up the left side of its infield – Garcia and shortstop Bobby Witt Jr. – through at least 2030.`\
-https://nytimes.com/athletic/6885155/2025/12/12/maikel-garcia-kansas-city-royals-extension/
 

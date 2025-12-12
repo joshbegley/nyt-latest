@@ -1,3 +1,11 @@
+**The U.S. Seizes an Oil Tanker. What’s Next?**\
+`Readers react to developments in the U.S.-Venezuela confrontation. Also: A group of six women with decades of connection.`\
+https://nytimes.com/2025/12/12/opinion/us-venezuela-oil-tanker.html
+
+**Steelers' T.J. Watt has surgery to repair partially collapsed lung, brother J.J. says**\
+`T.J. Watt is expected to be released from the hospital on Friday, although his recovery timeline is still to be determined.`\
+https://nytimes.com/athletic/6885170/2025/12/12/tj-watt-steelers-collapsed-lung-dry-needling/
+
 **National Trust Sues to Block Trump’s White House Ballroom Construction**\
 `The lawsuit seeks to force President Trump to submit his ballroom plans for public review and input.`\
 https://nytimes.com/2025/12/12/us/politics/trump-white-house-ballroom-lawsuit-national-trust.html
