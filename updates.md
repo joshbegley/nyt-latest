@@ -1,3 +1,11 @@
+**U.S. Drops Sanctions on Brazilian Justice at Center of Bolsonaro Trial**\
+`The U.S. Treasury said that maintaining sanctions against Justice Alexandre de Moraes was no longer in the interests of the United States.`\
+https://nytimes.com/2025/12/12/world/americas/brazil-us-sanctions-justice-moraes.html
+
+**Trump Is Facing Down Biden’s Demons**\
+`Too old? Tough economy? The presidents change, but the troubles are familiar.`\
+https://nytimes.com/2025/12/12/us/politics/trump-biden-age-health-economy.html
+
 **Deadly Storm Causes Massive Flooding Across Gaza**\
 `Nearly 795,000 displaced people in Gaza were at risk of dangerous floodwaters, according to the United Nations. The heavy rain and strong winds flooded makeshift shelters and collapsed several buildings, according to the Gaza Civil Defense.`\
 https://nytimes.com/video/world/middleeast/100000010583512/world-middle-east-displaced-gaza-storm-byron-flooding.html
