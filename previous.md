@@ -1,36 +1,36 @@
-**Arsenal's Saliba has ankle injury, may miss Wolves game - Arteta**\
-`The 24-year-old has missed Arsenal’s last four games, after completing 90 minutes against Bayern Munich in late November.`\
-https://nytimes.com/athletic/6884190/2025/12/12/saliba-injury-update-arsenal/
+**Why are 6-7 Chiefs still betting favorites over 9-4 Chargers? An oddsmaker explains**\
+`Despite a disappointing 6-7 record and losses in four of their last five games, the Chiefs are still respected in Las Vegas. Here's why.`\
+https://nytimes.com/athletic/6882871/2025/12/12/chiefs-betting-favorites-chargers-oddsmakers/
 
-**Mohammed Ben Sulayem officially re-elected FIA president**\
-`The 64-year-old is a 14-time FIA Middle East Rally Champion and was first elected as president in 2021.`\
-https://nytimes.com/athletic/6882394/2025/12/12/mohammed-ben-sulayem-fia-president-election/
+**What does the film say about Bryce Young's up-and-down season?**\
+`When Bryce Young has space to step up in the pocket, he is capable of high-level play. He struggles when the pocket gets muddy.`\
+https://nytimes.com/athletic/6881227/2025/12/12/panthers-bryce-young-keys-to-success/
 
-**How Josh Hart and others are benefiting from new Knicks shooting coach**\
-`At the request of Hart, Knicks coach Mike Brown hired Peter Patton as a shooting coach. Here's how he is impacting the team.`\
-https://nytimes.com/athletic/6881909/2025/12/12/knicks-josh-hart-shooting-coach/
+**Is DJ Moore's Bears future in question? Can pass rush heat up? Mailbag plus Week 15 picks**\
+`Would the Bears trade Moore? He's having his least productive season on the best team he's been on. That leads this week's mailbag.`\
+https://nytimes.com/athletic/6883114/2025/12/12/bears-mailbag-dj-moore-future/
 
-**Mike Vrabel or Kyle Shanahan? Debating the crowded NFL Coach of the Year field**\
-`Any of these seven candidates could be considered worthy of the award, but the Patriots' and 49ers' coaches have the strongest case.`\
-https://nytimes.com/athletic/6879182/2025/12/12/nfl-coach-of-the-year-vrabel-shanahan-johnson/
+**Lions-Rams matchup to watch: How Detroit's D handles L.A.'s 13 personnel**\
+`The Rams like to dictate things on offense by running 13 personnel. Kelvin Sheppard's linebacker-heavy group could be suited to defend.`\
+https://nytimes.com/athletic/6883596/2025/12/12/lions-defense-matthew-stafford-sean-mcvay-rams/
 
-**The New York Times International Edition in Print for Saturday, Dec. 13, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/12/12/todays-new-york-times-international-edition
+**How to watch the 2025 College Football Awards: Jeremiyah Love, Caleb Downs among nominees**\
+`Friday night's telecast honors the best players, coaches and community fixtures across college football.`\
+https://nytimes.com/athletic/6876713/2025/12/12/college-football-awards-2025-announcement-how-to-watch/
 
-**Arsenal agree new shirt sleeve sponsorship to replace Visit Rwanda from 2026-27**\
-`Deel will replace the existing Visit Rwanda sponsorship — the eight-year sponsorship which expires at the end of the campaign.`\
-https://nytimes.com/athletic/6884102/2025/12/12/arsenal-shirt-sleeve-sponsor-deal/
+**Penguins deliver their biggest dud of the season after delayed start: Yohe's 10 observations**\
+`The game started late, and the Penguins started even later, losing the second game of the season's longest homestand.`\
+https://nytimes.com/athletic/6883617/2025/12/12/penguins-letang-fowler-delay-canadiens/
 
-**Slot to hold talks with Salah over selection for Brighton game**\
-`Salah's last start for Liverpool came in the 4-1 home defeat against PSV on November 26.`\
-https://nytimes.com/athletic/6884081/2025/12/12/liverpool-mohamed-salah-arne-slot-talks/
+**The 'situational masters' who help make the NFL's most crucial calls**\
+`In the hyper-competitive NFL, some teams seek an edge by empowering in-game decision-making consultants, whose help can loom large.`\
+https://nytimes.com/athletic/6880984/2025/12/12/nfl-situational-game-management-experts/
 
-**Week 15 fantasy football intel, predictions using player prop lines**\
-`Brad Evans scours sportsbooks to offer fantasy advice, including relying on TreVeyon Henderson, ahead of Week 15.`\
-https://nytimes.com/athletic/6882003/2025/12/12/week-15-fantasy-football-intel-predictions-using-player-prop-lines/
+**Will a rising NHL salary cap mean fewer teams spending to the upper limit?**\
+`Several of the NHL's governors went on record this week to The Athletic on how they see the rising cap affecting their teams' payrolls.`\
+https://nytimes.com/athletic/6882566/2025/12/12/nhl-salary-cap-rising-board-of-governors/
 
-**Dreading Another Holiday With the In-Laws? Here’s What to Do.**\
-`Experts share tips for managing tricky family dynamics.`\
-https://nytimes.com/2025/12/12/well/family/holiday-manage-in-laws-tips.html
+**Mike Vrabel pushes his players beyond their limits. Here’s why it works**\
+`Patriots coach Mike Vrabel is hard on his players, but after every game, win or lose, he greets them alone in the tunnel and thanks them.`\
+https://nytimes.com/athletic/6879941/2025/12/12/mike-vrabel-patriots-hugs-leadership/
 
