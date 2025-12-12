@@ -1,3 +1,7 @@
+**Matt Boldy shines as Wild wins 'measuring stick' game against Stars**\
+`Thursday was the Wild's first regulation win over the Dallas Stars since Nov. 18, 2021.`\
+https://nytimes.com/athletic/6883825/2025/12/12/matt-boldy-shines-wild-beats-stars/
+
 **Life and Death in India’s Air Apocalypse**\
 `For hundreds of millions of Indians, toxic winter air poisons bodies, constricts lives and wears down spirits.`\
 https://nytimes.com/2025/12/12/opinion/india-air-pollution.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6879172/2025/12/12/newcastle-u19s-have-lost-every-g
 **Sean Dyche is developing a knack for sending in the cavalry at the ideal moment**\
 `Against Utrecht in the Europa League, the Nottingham Forest manager again changed a game through his well-timed substitutions`\
 https://nytimes.com/athletic/6882973/2025/12/12/sean-dyche-nottingham-forest-substitutions/
-
-**How Arsenal reintegrate players returning from injury: Bespoke programmes - and patience**\
-`After 15 league games this season, Arsenal have suffered 15 injuries but the number of absentees have largely been a subplot`\
-https://nytimes.com/athletic/6881440/2025/12/12/arsenal-reintegrating-players-from-injury/
 
