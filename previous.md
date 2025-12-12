@@ -8,7 +8,7 @@ https://nytimes.com/2025/12/11/us/politics/senator-mark-kelly-investigation-navy
 
 **Rocky Road Ingredient**\
 `Adrian Johnson and Jess Rucks open our solving weekend with a treat.`\
-https://nytimes.com/2025/12/11/crosswords/rocky-road-ingredient.html
+https://nytimes.com/2025/12/11/crosswords/daily-puzzle-2025-12-12.html
 
 **Steph Curry urges Jonathan Kuminga not to 'lose your spirit' when not playing**\
 `Curry empathizes with Jonathan Kuminga, but admitted that maintaining a positive spirit has "been JK's challenge as a young player."`\
