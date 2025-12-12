@@ -1,3 +1,11 @@
+**Why Is It So Hard to Build Big Things?**\
+`Today we look at the state of American inertia.`\
+https://nytimes.com/2025/12/12/briefing/why-is-it-so-hard-to-build-big-things.html
+
+**NFL Week 15 schedule rankings: Top 5 Sunday games with 'must-win' energy**\
+`There are big games and bigger stakes on the 15th Sunday of this NFL season. Those results should rearrange and clarify the playoff picture.`\
+https://nytimes.com/athletic/6880193/2025/12/12/nfl-week-15-schedule-playoffs-chiefs-lions-cowboys/
+
 **How to watch 2025 Men's College Cup: 4 outsiders competing for soccer national title**\
 `History is within reach for four men's soccer programs. Which school will prevail in the 2025 College Cup?`\
 https://nytimes.com/athletic/6883246/2025/12/12/mens-soccer-national-championship-college-cup-teams-tv/
