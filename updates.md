@@ -1,3 +1,7 @@
+**Kirk Cousins rallies Falcons and hurts Bucs' playoff hopes: Takeaways**\
+`Even without being in playoff contention, the Falcons rallied from a two-touchdown deficit in the fourth quarter for a last-second win.`\
+https://nytimes.com/athletic/6882716/2025/12/12/falcons-bucs-score-result-takeaways-thursday-night-football/
+
 **HUD Accuses Boston of Racial Discrimination in Housing Policies**\
 `The Department of Housing and Urban Development is investigating whether the city’s focus on affordable housing for people of color violated federal law.`\
 https://nytimes.com/2025/12/12/us/politics/hud-boston-discrimination.html
