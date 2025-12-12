@@ -1,3 +1,15 @@
+**USMNT's Robinson hopeful of making return from knee injury vs. Burnley on Saturday**\
+`The 28-year-old has only made three appearances for Fulham this season, with severe pain undermining his efforts to get match-fit.`\
+https://nytimes.com/athletic/6884665/2025/12/12/antonee-robinson-return-fulham-usmnt/
+
+**A Seized Oil Tanker and the Big Business of Dark Fleet Smuggling**\
+`The U.S. seizure of a vessel off Venezuela is likely to squeeze the country’s government, but do little to counter the tankers that secretively move oil from sanctioned countries.`\
+https://nytimes.com/2025/12/12/business/energy-environment/venezuela-oil-tanker-dark-fleet.html
+
+**Shai Gilgeous-Alexander breaking records, book-smart Harrison Barnes and more NBA trends I'm watching**\
+`If the Thunder are hitting their long-range shots, it’s goodnight for anyone facing them.`\
+https://nytimes.com/athletic/6883899/2025/12/12/nba-trends-sga-harrison-barnes-knicks/
+
 **NHL Power Rankings: Checking every team's Christmas list**\
 `From good luck to massive trade hauls, here’s every team’s top Christmas wish.`\
 https://nytimes.com/athletic/6883867/2025/12/12/nhl-power-rankings-christmas-list/

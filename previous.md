@@ -1,3 +1,15 @@
+**USMNT's Robinson hopeful of making return from knee injury vs. Burnley on Saturday**\
+`The 28-year-old has only made three appearances for Fulham this season, with severe pain undermining his efforts to get match-fit.`\
+https://nytimes.com/athletic/6884665/2025/12/12/antonee-robinson-return-fulham-usmnt/
+
+**A Seized Oil Tanker and the Big Business of Dark Fleet Smuggling**\
+`The U.S. seizure of a vessel off Venezuela is likely to squeeze the country’s government, but do little to counter the tankers that secretively move oil from sanctioned countries.`\
+https://nytimes.com/2025/12/12/business/energy-environment/venezuela-oil-tanker-dark-fleet.html
+
+**Shai Gilgeous-Alexander breaking records, book-smart Harrison Barnes and more NBA trends I'm watching**\
+`If the Thunder are hitting their long-range shots, it’s goodnight for anyone facing them.`\
+https://nytimes.com/athletic/6883899/2025/12/12/nba-trends-sga-harrison-barnes-knicks/
+
 **NHL Power Rankings: Checking every team's Christmas list**\
 `From good luck to massive trade hauls, here’s every team’s top Christmas wish.`\
 https://nytimes.com/athletic/6883867/2025/12/12/nhl-power-rankings-christmas-list/
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/6884492/2025/12/12/fantasy-football-news-championsh
 **Man City's Toure calls Wigan sacking 'the best thing that happened to me'**\
 `Toure was dismissed by Wigan in January 2023 after failing to win any of his seven Championship matches in charge.`\
 https://nytimes.com/athletic/6884481/2025/12/12/manchester-city-kolo-toure-wigan/
-
-**Bijan Robinson apologizes for using homophobic phrase on TNF postgame show**\
-`Robinson used the term in response to analyst Richard Sherman's comments on backyard football.`\
-https://nytimes.com/athletic/6884381/2025/12/12/bijan-robinson-apology-tnf/
-
-**Russia Sues Holder of Frozen Assets Europe Wants for Ukraine Loan**\
-`The lawsuit was a warning to European officials who are racing to agree to a plan to use Russian government assets in Europe to lend money to Ukraine.`\
-https://nytimes.com/2025/12/12/world/europe/russia-ukraine-frozen-assets-belgium-euroclear.html
-
-**Could taking the NBA Cup global help the tournament live up to its lofty ambitions?**\
-`It's hard not to feel like something's there with the NBA Cup. Like it's one or two adjustments from becoming a staple.`\
-https://nytimes.com/athletic/6884031/2025/12/12/nba-cup-format-changes-international-vegas-thunder/
 
