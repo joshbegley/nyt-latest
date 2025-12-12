@@ -1,3 +1,11 @@
+**Penguins delay game against Canadiens due to traffic accident**\
+`Many players arrived around an hour later than usual, but they were able to arrive in time for the 7:30 p.m. ET start.`\
+https://nytimes.com/athletic/6883405/2025/12/11/penguins-canadiens-game-delay-traffic-accident-pittsburgh/
+
+**What 23XI, Front Row and NASCAR's other teams are getting in the settlement**\
+`NASCAR agreed to permanent charters, a bigger share of revenue for teams, and more in the settlement reached Thursday in federal court.`\
+https://nytimes.com/athletic/6882943/2025/12/11/nascar-settlement-23xi-front-row-details/
+
 **Lawsuit Seeks to Stop Oil Exploration in Remote Areas of the Arctic**\
 `A federal lawsuit argues that proposed work by ConocoPhillips could threaten delicate ecosystems in the largest tract of public land in the U.S.`\
 https://nytimes.com/2025/12/11/climate/alaska-lawsuit-drilling-conoco-phillips.html

@@ -1,3 +1,11 @@
+**Penguins delay game against Canadiens due to traffic accident**\
+`Many players arrived around an hour later than usual, but they were able to arrive in time for the 7:30 p.m. ET start.`\
+https://nytimes.com/athletic/6883405/2025/12/11/penguins-canadiens-game-delay-traffic-accident-pittsburgh/
+
+**What 23XI, Front Row and NASCAR's other teams are getting in the settlement**\
+`NASCAR agreed to permanent charters, a bigger share of revenue for teams, and more in the settlement reached Thursday in federal court.`\
+https://nytimes.com/athletic/6882943/2025/12/11/nascar-settlement-23xi-front-row-details/
+
 **Lawsuit Seeks to Stop Oil Exploration in Remote Areas of the Arctic**\
 `A federal lawsuit argues that proposed work by ConocoPhillips could threaten delicate ecosystems in the largest tract of public land in the U.S.`\
 https://nytimes.com/2025/12/11/climate/alaska-lawsuit-drilling-conoco-phillips.html
@@ -25,12 +33,4 @@ https://nytimes.com/2025/12/11/weather/washington-british-columbia-atmospheric-r
 **Trump Signs Executive Order to Neuter State A.I. Laws**\
 `The order would create one federal regulatory framework for artificial intelligence, Mr. Trump told reporters in the Oval Office.`\
 https://nytimes.com/2025/12/11/technology/ai-trump-executive-order.html
-
-**Indiana Lawmakers Reject Trump’s Redistricting Map**\
-`Republicans make up a majority of the Indiana Senate, but more than a dozen voted against President Trump’s new political map, which aimed to add Republicans in Congress.`\
-https://nytimes.com/video/us/politics/100000010582282/indiana-senators-reject-redistricting-map.html
-
-**Republicans Undercut Johnson, Circumventing Him to Force Votes**\
-`The speaker has repeatedly lost his grip on the House floor thanks to a once rare parliamentary maneuver that G.O.P. members are increasingly using to force action on legislation.`\
-https://nytimes.com/2025/12/11/us/politics/republicans-undercut-speaker-johnson.html
 
