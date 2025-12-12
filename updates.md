@@ -1,3 +1,7 @@
+**Amid Fractures on the Right, Tucker Carlson Continues His Attacks**\
+`On Theo Von’s show this week, Mr. Carlson lashed out at a major supporter of the president, the F.B.I. and “unimpressive, dumb, totally noncreative people” leading the nation.`\
+https://nytimes.com/2025/12/12/style/amid-fractures-on-the-right-tucker-carlson-continues-his-attacks.html
+
 **Cauliflower Piccata**\
 `Piccata sauce — that buttery, briny combination of lemon, butter and capers, silky in texture and tart in flavor — is not just for chicken or swordfish.`\
 https://nytimes.com/video/dining/100000010368588/cauliflower-piccata.html
