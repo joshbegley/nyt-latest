@@ -1,3 +1,7 @@
+**Deadly Storm Causes Massive Flooding Across Gaza**\
+`Nearly 795,000 displaced people in Gaza were at risk of dangerous floodwaters, according to the United Nations. The heavy rain and strong winds flooded makeshift shelters and collapsed several buildings, according to the Gaza Civil Defense.`\
+https://nytimes.com/video/world/middleeast/100000010583512/world-middle-east-displaced-gaza-storm-byron-flooding.html
+
 **Trump Officials Sue to Seize 2020 Ballots in a Georgia County**\
 `The Justice Department escalated an effort to seize and inspect old ballots in Fulton County, where President Trump was booked in his criminal election interference case.`\
 https://nytimes.com/2025/12/12/us/politics/trump-2020-ballots-fulton-county-georgia.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/12/health/fda-gonorrhea-antibiotics.html
 **Chelsea's Palmer must have minutes managed due to groin pain - Maresca**\
 `Palmer has made two appearances for the club since missing over two months of football with a groin injury.`\
 https://nytimes.com/athletic/6884630/2025/12/12/cole-palmer-injury-chelsea-maresca/
-
-**Frank says Tottenham will be 'in the market' for January transfers**\
-`Spurs are missing key players to injury, including Destiny Udogie, James Maddison, Dejan Kulusevski and Dominic Solanke. `\
-https://nytimes.com/athletic/6885136/2025/12/12/tottenham-transfer-news-january-frank/
 
