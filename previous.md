@@ -1,3 +1,15 @@
+**Clippers invent another way to lose a close game in a season full of them**\
+`On Thursday, LA lost after a failed in-bounds play, which is the latest example of its clutch-time disasters.`\
+https://nytimes.com/athletic/6883813/2025/12/12/clippers-close-game-clutch-time-losses-rockets/
+
+**From ‘Spaghetti Western’ Scores to the Opera Stage**\
+`Throughout his life, Ennio Morricone felt shunned by the classical music world. But these days his pop-culture cachet isn’t such a drawback.`\
+https://nytimes.com/2025/12/12/arts/music/ennio-morricone-opera-partenope.html
+
+**Dozens Killed as a Hospital Is Bombed in Brutal Civil War**\
+`Jets from the Myanmar military dropped two bombs on the facility in Mrauk-U, in what rebels and witnesses called a deliberate attack on civilians.`\
+https://nytimes.com/2025/12/12/world/asia/myanmar-hospital-attack-rakhine.html
+
 **Maple Leafs after 30: How good can Easton Cowan be?**\
 `Easton Cowan’s numbers have all the traits of a player who can one day move the needle.`\
 https://nytimes.com/athletic/6882641/2025/12/12/maple-leafs-easton-cowan-analytics/
@@ -21,16 +33,4 @@ https://nytimes.com/video/weather/100000010583242/washington-flooding-rescues-ev
 **Exorbitant World Cup ticket prices could ruin hopes of growing soccer in the U.S.**\
 `Even the least expensive tickets for next summer's World Cup will be unaffordable for the majority of Americans`\
 https://nytimes.com/athletic/6882762/2025/12/12/exorbitant-world-cup-ticket-prices-could-ruin-hopes-of-growing-soccer-in-the-u-s/
-
-**Trump Wanted Ukraine to Cede Land to Russia. Ukraine Has Another Offer.**\
-`A Ukrainian peace plan, sent this week to Washington, pushes back against President Trump’s proposal that Ukraine give up more land for peace.`\
-https://nytimes.com/2025/12/12/world/europe/ukraine-trump-peace-plan-counterproposal.html
-
-**What About Larry Ellison’s Billions?**\
-`The Oracle co-founder has pledged billions to finance Paramount’s takeover bid for Warner Bros. Discovery — which has questions about his commitment.`\
-https://nytimes.com/2025/12/12/business/dealbook/ellison-paramount-oracle-warner-bros-financing.html
-
-**Austria Bans Head Scarves in Schools for Girls Under 14**\
-`Austria’s centrist government passed the new law, which takes effect next year, after years of pressure from the far right.`\
-https://nytimes.com/2025/12/12/world/europe/austria-head-scarf-ban-schools.html
 

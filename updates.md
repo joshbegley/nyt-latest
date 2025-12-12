@@ -1,3 +1,15 @@
+**Clippers invent another way to lose a close game in a season full of them**\
+`On Thursday, LA lost after a failed in-bounds play, which is the latest example of its clutch-time disasters.`\
+https://nytimes.com/athletic/6883813/2025/12/12/clippers-close-game-clutch-time-losses-rockets/
+
+**From ‘Spaghetti Western’ Scores to the Opera Stage**\
+`Throughout his life, Ennio Morricone felt shunned by the classical music world. But these days his pop-culture cachet isn’t such a drawback.`\
+https://nytimes.com/2025/12/12/arts/music/ennio-morricone-opera-partenope.html
+
+**Dozens Killed as a Hospital Is Bombed in Brutal Civil War**\
+`Jets from the Myanmar military dropped two bombs on the facility in Mrauk-U, in what rebels and witnesses called a deliberate attack on civilians.`\
+https://nytimes.com/2025/12/12/world/asia/myanmar-hospital-attack-rakhine.html
+
 **Maple Leafs after 30: How good can Easton Cowan be?**\
 `Easton Cowan’s numbers have all the traits of a player who can one day move the needle.`\
 https://nytimes.com/athletic/6882641/2025/12/12/maple-leafs-easton-cowan-analytics/
