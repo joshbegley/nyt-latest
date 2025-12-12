@@ -1,3 +1,11 @@
+**Tether submits offer for controlling stake in Juventus**\
+`Sources close to Exor, speaking on the condition of anonymity, have told The Athletic that the company does not intend to sell its stake. `\
+https://nytimes.com/athletic/6885426/2025/12/12/juventus-takeover-tether-proposal/
+
+**The State of the Burger Address**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/the-state-of-the-burger-address
+
 **In a Hamlet Built on Forbidden Love, a Cyclone Buried It All**\
 `Three generations of a family built their homes and lives in Sri Lanka’s highland tea country. The biggest storm in decades wiped out their hamlet in a landslide.`\
 https://nytimes.com/2025/12/12/world/asia/in-a-hamlet-built-on-forbidden-love-a-cyclone-buried-it-all.html
