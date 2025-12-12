@@ -1,3 +1,7 @@
+**Don't overthink the fantasy football playoffs. Plus Pitts' career game and Odunze's return**\
+`Andy Behrens recaps fantasy-relevant league news and offers advice to prevent a fantasy playoff loss.`\
+https://nytimes.com/athletic/6884492/2025/12/12/fantasy-football-news-championship-advice-kyle-pitts/
+
 **Man City's Toure calls Wigan sacking 'the best thing that happened to me'**\
 `Toure was dismissed by Wigan in January 2023 after failing to win any of his seven Championship matches in charge.`\
 https://nytimes.com/athletic/6884481/2025/12/12/manchester-city-kolo-toure-wigan/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/12/your-money/donations-charity-tax-law.html
 **Clippers invent another way to lose a close game in a season full of them**\
 `On Thursday, LA lost after a failed in-bounds play, which is the latest example of its clutch-time disasters.`\
 https://nytimes.com/athletic/6883813/2025/12/12/clippers-close-game-clutch-time-losses-rockets/
-
-**From ‘Spaghetti Western’ Scores to the Opera Stage**\
-`Throughout his life, Ennio Morricone felt shunned by the classical music world. But these days his pop-culture cachet isn’t such a drawback.`\
-https://nytimes.com/2025/12/12/arts/music/ennio-morricone-opera-partenope.html
 
