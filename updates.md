@@ -1,3 +1,7 @@
+**Slot to hold talks with Salah over selection for Brighton game**\
+`Salah's last start for Liverpool came in the 4-1 home defeat against PSV on November 26.`\
+https://nytimes.com/athletic/6884081/2025/12/12/liverpool-mohamed-salah-arne-slot-talks/
+
 **Week 15 fantasy football intel, predictions using player prop lines**\
 `Brad Evans scours sportsbooks to offer fantasy advice, including relying on TreVeyon Henderson, ahead of Week 15.`\
 https://nytimes.com/athletic/6882003/2025/12/12/week-15-fantasy-football-intel-predictions-using-player-prop-lines/

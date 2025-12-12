@@ -1,3 +1,7 @@
+**Slot to hold talks with Salah over selection for Brighton game**\
+`Salah's last start for Liverpool came in the 4-1 home defeat against PSV on November 26.`\
+https://nytimes.com/athletic/6884081/2025/12/12/liverpool-mohamed-salah-arne-slot-talks/
+
 **Week 15 fantasy football intel, predictions using player prop lines**\
 `Brad Evans scours sportsbooks to offer fantasy advice, including relying on TreVeyon Henderson, ahead of Week 15.`\
 https://nytimes.com/athletic/6882003/2025/12/12/week-15-fantasy-football-intel-predictions-using-player-prop-lines/
@@ -29,8 +33,4 @@ https://nytimes.com/interactive/2025/12/12/magazine/christmas-gift-hodgman-quiz.
 **Watch an Ensemble Scene From ‘Wake Up Dead Man: A Knives Out Mystery’**\
 `The writer and director Rian Johnson narrates a sequence from his film.`\
 https://nytimes.com/2025/12/12/movies/wake-up-dead-man-a-knives-out-mystery-clip.html
-
-**Paramount Says Money Is No Object. Warner Bros. Isn’t Convinced.**\
-`Larry Ellison is backstopping Paramount’s bid for Warner Brothers, but Warner Brothers is concerned that the billionaire has not provided a personal guarantee to pay.`\
-https://nytimes.com/2025/12/12/business/paramount-warner-bros-netflix-deal.html
 
