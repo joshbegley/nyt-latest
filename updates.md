@@ -1,3 +1,7 @@
+**Bucs blow big lead in a big game … and they're big mad about it**\
+`Todd Bowles, Mike Evans and Baker Mayfield expressed a lot of disappointment after losing a critical game to the Falcons on Thursday night.`\
+https://nytimes.com/athletic/6883863/2025/12/12/buccaneers-angry-falcons-loss/
+
 **Unai Emery's faith in Evann Guessand is beginning to pay off**\
 `The £30m summer signing is not yet a finished product – but Villa's Europa League campaign is helping him develop `\
 https://nytimes.com/athletic/6883230/2025/12/12/evann-guessand-aston-villa-europa-league/
