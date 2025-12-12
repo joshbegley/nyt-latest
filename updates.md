@@ -1,3 +1,11 @@
+**The Pulse: Trial of the century goes poof**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6882674/2025/12/12/nascar-michael-jordan-trial-the-pulse/
+
+**Lindsey Vonn wins her 83rd World Cup race, capping odds-defying return to Alpine skiing**\
+`The American legend spent her comeback season saying she just needed more time. On Friday, she backed it up with another World Cup win.`\
+https://nytimes.com/athletic/6884090/2025/12/12/lindsey-vonn-olympics-world-cup-win-st-moritz-downhill/
+
 **Why are 6-7 Chiefs still betting favorites over 9-4 Chargers? An oddsmaker explains**\
 `Despite a disappointing 6-7 record and losses in four of their last five games, the Chiefs are still respected in Las Vegas. Here's why.`\
 https://nytimes.com/athletic/6882871/2025/12/12/chiefs-betting-favorites-chargers-oddsmakers/
