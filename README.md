@@ -1,3 +1,7 @@
+**The Bounce: The NBA Cup semis are here. Plus, Joel Embiid's shot diet leaves us hungry**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/6884840/2025/12/12/the-bounce-nba-cup-joel-embiid-thunder/
+
 **House Democrats Release Epstein Photos Documenting Ties to Powerful Men**\
 `The images, released without context by Democrats on the Oversight Committee, reveal little new about the deceased sex offender’s ties to prominent men in politics, entertainment and finance.`\
 https://nytimes.com/2025/12/12/us/politics/jeffrey-epstein-photos-estate.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6884778/2025/12/12/midge-purce-resigns-gotham-fc/
 **Joanna Trollope, Popular British Author, Dies at 82**\
 `Her books, many of which were best sellers, often described empty marriages, love affairs (with tasteful sex) and heroic clergymen.`\
 https://nytimes.com/2025/12/12/books/joanna-trollope-dead.html
-
-**Oilers acquire Penguins goaltender Tristan Jarry**\
-`The Oilers are banking on Tristan Jarry being the answer in net, and the Penguins were ready to move on from their up-and-down goaltender. `\
-https://nytimes.com/athletic/6884762/2025/12/12/oilers-penguins-tristan-jarry-stuart-skinner-brett-kulak/
 
