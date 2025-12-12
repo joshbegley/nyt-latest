@@ -1,9 +1,17 @@
+**Stuck in Quicksand, a Hiker in Utah Has His SOS Answered**\
+`Austin Dirks used a Garmin satellite device to reach emergency responders, who rescued him in a remote canyon in Arches National Park.`\
+https://nytimes.com/2025/12/11/us/hiker-quicksand-rescue-utah.html
+
+**Hiker Rescued From Quicksand in Arches National Park**\
+`Austin Dirks was on a solo hike in Arches National Park when he got stuck in quicksand. Emergency responders rescued him after he sent an SOS message using a satellite device.`\
+https://nytimes.com/video/us/100000010582488/quicksand-arches-national-park-rescue.html
+
 **Michael Jordan was already a basketball legend. Now, he's one in NASCAR too**\
 `Thursday's settlement was that significant for NASCAR's teams that Jordan just made himself a transformative figure in yet another sport.`\
 https://nytimes.com/athletic/6882918/2025/12/11/michael-jordan-nascar-settlement-trial-legend/
 
 **Penguins delay game against Canadiens due to traffic accident**\
-`Many players arrived around an hour later than usual, but they were able to make it in time for the 7:30 p.m. ET start.`\
+`Many players arrived around an hour later than usual, but they were able to make it in time for the 7:30 p.m. (ET) start.`\
 https://nytimes.com/athletic/6883405/2025/12/11/penguins-canadiens-game-delay-traffic-accident-pittsburgh/
 
 **What 23XI, Front Row and NASCAR's other teams are getting in the settlement**\
@@ -25,12 +33,4 @@ https://nytimes.com/2025/12/11/us/politics/indiana-trump-redistricting-takeaways
 **Outfielder Lane Thomas agrees to one-year, $5.25 million deal with Royals: Source**\
 `Thomas, who only appeared in 39 games with Cleveland last season due to injuries, will get an opportunity to build value with Kansas City.`\
 https://nytimes.com/athletic/6817011/2025/12/11/lane-thomas-royals-free-agent-signing/
-
-**Mammoth's Cooley will miss at least 8 weeks with lower-body injury**\
-`Cooley, tied for fourth in Mammoth scoring, had two collisions involving his leg in the space of a week.`\
-https://nytimes.com/athletic/6883303/2025/12/11/logan-cooley-utah-mammoth-injury/
-
-**‘Storm Highway’ Expected to Send More Rain to Flooded Areas**\
-`Just as this week’s floodwaters in the Pacific Northwest begin to recede, forecasters warn, another storm will approach the West Coast.`\
-https://nytimes.com/2025/12/11/weather/washington-british-columbia-atmospheric-river-forecast.html
 
