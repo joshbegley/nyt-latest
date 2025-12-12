@@ -1,11 +1,3 @@
-**‘Storm Highway’ Expected to Send More Rain to Flooded Areas**\
-`Just as this week’s floodwaters in the Pacific Northwest begin to recede, forecasters warn, another storm will approach the West Coast.`\
-https://nytimes.com/2025/12/11/weather/washington-british-columbia-atmospheric-river-forecast.html
-
-**Trump Signs Executive Order to Neuter State A.I. Laws**\
-`The order would create one federal regulatory framework for artificial intelligence, Mr. Trump told reporters in the Oval Office.`\
-https://nytimes.com/2025/12/11/technology/ai-trump-executive-order.html
-
 **Indiana Lawmakers Reject Trump’s Redistricting Map**\
 `Republicans make up a majority of the Indiana Senate, but more than a dozen voted against President Trump’s new political map, which aimed to add Republicans in Congress.`\
 https://nytimes.com/video/us/politics/100000010582282/indiana-senators-reject-redistricting-map.html
@@ -33,4 +25,12 @@ https://nytimes.com/2025/12/11/business/lululemon-ceo-calvin-mcdonald.html
 **Federal Judge Blocks FEMA From Canceling Climate Resiliency Grants**\
 `A Thursday ruling said the Trump administration cannot eliminate the Building Resilient Infrastructure and Communities program without Congress.`\
 https://nytimes.com/2025/12/11/climate/judge-blocks-fema-canceling-climate-grants.html
+
+**The Duality in Conservative Politics**\
+`Andrew Kolvet of Turning Point USA explains why he endorses a tough-love approach to politics on this episode of “Interesting Times.”`\
+https://nytimes.com/video/opinion/100000010563908/the-duality-in-conservative-politics.html
+
+**The ‘Wildness’ of Right-Wing Conspiracy**\
+`On a recent episode of “Interesting Times,” Andrew Kolvet shares what it’s like to be on the receiving end of conspiracy theories from other conservative influencers after Charlie Kirk’s assassination.`\
+https://nytimes.com/video/opinion/100000010563905/the-wildness-of-right-wing-conspiracy.html
 
