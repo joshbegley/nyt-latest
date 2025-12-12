@@ -1,3 +1,7 @@
+**SEC schedule revealed: Lane Kiffin returns to Ole Miss early in 2026 season**\
+`The SEC on Thursday night revealed its schedule for 2026, the first with a nine-game conference schedule. Here are our takeaways.`\
+https://nytimes.com/athletic/6883594/2025/12/11/sec-schedule-lane-kiffin-lsu-ole-miss-takeaways/
+
 **Arkansas Public Television Drops PBS**\
 `The loss of federal funding forced a difficult decision, the executive director of Arkansas TV said: Cut PBS, or go off the air entirely.`\
 https://nytimes.com/2025/12/11/business/media/arkansas-public-television-drops-pbs.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6882918/2025/12/11/michael-jordan-nascar-settlement
 **Penguins delay game against Canadiens due to traffic accident**\
 `Many players arrived around an hour later than usual, but they were able to make it in time for the 7:30 p.m. (ET) start.`\
 https://nytimes.com/athletic/6883405/2025/12/11/penguins-canadiens-game-delay-traffic-accident-pittsburgh/
-
-**What 23XI, Front Row and NASCAR's other teams are getting in the settlement**\
-`NASCAR agreed to permanent charters, a bigger share of revenue for teams, and more in the settlement reached Thursday in federal court.`\
-https://nytimes.com/athletic/6882943/2025/12/11/nascar-settlement-23xi-front-row-details/
 
