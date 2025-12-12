@@ -1,3 +1,19 @@
+**gws-best-desserts-america**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/best-desserts-america
+
+**JuJu Watkins attends Team USA camp, remains sidelined with injury**\
+`USC star JuJu Watkins is participating in her first senior Team USA camp this weekend at Duke.`\
+https://nytimes.com/athletic/6885467/2025/12/12/juju-watkins-attends-team-usa-camp-remains-sidelined-with-injury/
+
+**The Best New Restaurants in New York in 2025**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/best-new-nyc-restaurants
+
+**Utah HC Whittingham 'stepping down' after 21 years, Utes' bowl game**\
+`One of college football’s most respected minds is moving on to something else.`\
+https://nytimes.com/athletic/6884661/2025/12/12/utah-football-kyle-whittingham-leaving/
+
 **Tether submits offer for controlling stake in Juventus**\
 `Sources close to Exor, speaking on the condition of anonymity, have told The Athletic that the company does not intend to sell its stake. `\
 https://nytimes.com/athletic/6885426/2025/12/12/juventus-takeover-tether-proposal/

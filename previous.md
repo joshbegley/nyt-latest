@@ -1,3 +1,19 @@
+**gws-best-desserts-america**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/best-desserts-america
+
+**JuJu Watkins attends Team USA camp, remains sidelined with injury**\
+`USC star JuJu Watkins is participating in her first senior Team USA camp this weekend at Duke.`\
+https://nytimes.com/athletic/6885467/2025/12/12/juju-watkins-attends-team-usa-camp-remains-sidelined-with-injury/
+
+**The Best New Restaurants in New York in 2025**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/best-new-nyc-restaurants
+
+**Utah HC Whittingham 'stepping down' after 21 years, Utes' bowl game**\
+`One of college football’s most respected minds is moving on to something else.`\
+https://nytimes.com/athletic/6884661/2025/12/12/utah-football-kyle-whittingham-leaving/
+
 **Tether submits offer for controlling stake in Juventus**\
 `Sources close to Exor, speaking on the condition of anonymity, have told The Athletic that the company does not intend to sell its stake. `\
 https://nytimes.com/athletic/6885426/2025/12/12/juventus-takeover-tether-proposal/
@@ -17,20 +33,4 @@ https://nytimes.com/video/world/asia/100000010566916/cyclone-aftermath-in-sri-la
 **Immigration Agents Are Using Air Passenger Data for Deportation Effort**\
 `The Transportation Security Administration is providing passenger lists to Immigrations and Customs Enforcement to identify and detain travelers subject to deportation orders.`\
 https://nytimes.com/2025/12/12/us/politics/immigration-tsa-passenger-data.html
-
-**Notre Dame's Jeremiyah Love: Irish 'put ourselves in that position' to miss Playoff**\
-`“At the end of the day, we left it up to the committee to decide whether we're going to be in the playoffs or not," Love said.`\
-https://nytimes.com/athletic/6885420/2025/12/12/jeremiyah-love-notre-dame-playoff-heisman/
-
-**In Trump’s Justice Dept., Failing in Court Might Be Better Than Bucking the Boss**\
-`Thursday demonstrated an emerging reality for President Trump: Commanding the Justice Department is not the same as controlling the justice system.`\
-https://nytimes.com/2025/12/12/us/politics/trump-justice-dept.html
-
-**Antique or Imitation? A Field Guide for Furniture Hunting.**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/antique-furniture-guide
-
-**Harvard Replaces Leader of Health Center Said to Have Focused on Palestinians**\
-`The center at the university’s public health school was also a focus of the Trump administration after having been examined in a Harvard antisemitism report earlier this year.`\
-https://nytimes.com/2025/12/12/us/harvard-replaces-public-health-center-director.html
 
