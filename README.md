@@ -1,3 +1,7 @@
+**The 12.14.25**\
+``\
+https://nytimes.com/issue/magazine/2025/12/12/the-121425
+
 **Phil Upchurch, Jazz Guitarist and Sideman to Stars, Dies at 84**\
 `A self-taught session man extraordinaire, he played with a constellation of stars, including Michael Jackson, Curtis Mayfield, Chaka Khan and Dizzy Gillespie.`\
 https://nytimes.com/2025/12/12/arts/music/phil-upchurch-dead.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6885479/2025/12/12/raiders-kenny-pickett-starting-q
 **In Paris, a New Wave of Chocolate Boutiques**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/chocolate-shops-paris
-
-**gws-big-apple-circus-dogs-nyc**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/big-apple-circus-dogs-nyc
 
