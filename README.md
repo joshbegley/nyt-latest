@@ -1,3 +1,11 @@
+**A Brutally Long Tennis Season Takes a Toll on Players**\
+`Injuries and mental exhaustion this year forced both men and women to withdraw from tournaments and suspend play for months.`\
+https://nytimes.com/2025/12/12/sports/tennis/player-injuries-season.html
+
+**Our Critics Look Back on Their Year in Reading**\
+`It’s been a good one. Dwight Garner, Alexandra Jacobs and Jennifer Szalai discuss the books that have stayed with them.`\
+https://nytimes.com/2025/12/12/books/review/podcast-critics-year-in-reading.html
+
 **It Was an Eventful Year for Golf, on and Off the Course**\
 `Rory McIlroy got his career Grand Slam, Scottie Scheffler kept winning and two tours named new leaders.`\
 https://nytimes.com/2025/12/12/sports/golf/year-review-2025.html
@@ -25,12 +33,4 @@ https://nytimes.com/video/opinion/100000010583475/china-dating-men-one-child-pol
 **How Matt Boldy has continued his ascent, become the Wild's MVP so far this season**\
 `The 24-year-old winger has become a "a regular driver every night" for the Wild in his fifth NHL season.`\
 https://nytimes.com/athletic/6883943/2025/12/12/matt-boldy-ascent-wild-mvp/
-
-**A Trickle of Aid Reaches a Captured, War-Ravaged City in Sudan**\
-`A local group negotiated permission from the paramilitary force controlling El Fasher, offering a rare glimpse into conditions after a massacre.`\
-https://nytimes.com/2025/12/12/world/africa/sudan-fasher-food-aid.html
-
-**Joseph Byrd, Who Shook Up Psychedelic Rock, Dies at 87**\
-`A veteran of the Fluxus art movement, he brought an anarchic spirit to the California acid-rock scene with his band, the United States of America.`\
-https://nytimes.com/2025/12/12/arts/music/joseph-byrd-dead.html
 
