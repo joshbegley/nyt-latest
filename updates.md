@@ -1,3 +1,7 @@
+**‘Wake Up Dead Man: A Knives Out Mystery’ | Anatomy of a Scene**\
+`The writer and director Rian Johnson narrates a sequence from his film.`\
+https://nytimes.com/video/movies/100000010582359/wake-up-dead-man-a-knives-out-mystery-scene.html
+
 **Thailand Says Trump Call About Cambodia Conflict Is Set for Friday**\
 `President Trump’s planned intervention comes as the hostilities entered their fifth day and appeared to escalate, and while Thailand moves toward early elections.`\
 https://nytimes.com/2025/12/12/world/asia/thailand-cambodia-trump-call.html
