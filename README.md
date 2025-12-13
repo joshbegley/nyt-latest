@@ -1,3 +1,7 @@
+**How Did the C.I.A. Lose a Nuclear Device?**\
+`A plutonium-packed generator disappeared on one of the world’s highest mountains in a covert mission that the U.S. will not talk about.`\
+https://nytimes.com/interactive/2025/12/13/world/asia/cia-nuclear-device-himalayas-nanda-devi.html
+
 **New York Could See Its First Big Snow of the Season This Weekend**\
 `Up to three inches of snow is forecast in the city and across the region from late Saturday into Sunday morning.`\
 https://nytimes.com/2025/12/13/weather/nyc-snow-forecast.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/13/world/asia/north-korea-soldiers-russia-ukraine.ht
 **20 States Sue to Block $100,000 Fee for H-1B Visas**\
 `California and New York are among the states arguing that the Trump administration’s decision to charge that fee for skilled foreign workers is illegal.`\
 https://nytimes.com/2025/12/13/us/politics/states-lawsuit-h1b-visas.html
-
-**Sixers drop Pacers as the old Joel Embiid scores season-high 39 points**\
-`Friday night was the first bit of proof that a healthy Joel Embiid can still show up and take over.`\
-https://nytimes.com/athletic/6886076/2025/12/13/sixers-win-pacers-old-joel-embiid-returns/
 
