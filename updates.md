@@ -1,3 +1,11 @@
+**How to watch Senators vs. Wild: Time, TV, streaming**\
+`Find out how to watch the Ottawa Senators play the Minnesota Wild, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6886364/2025/12/13/senators-vs-wild-stream-how-to-watch-dec-13/
+
+**How to watch Ducks vs. Devils: Time, TV, streaming**\
+`Find out how to watch the Anaheim Ducks play the New Jersey Devils, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6886362/2025/12/13/ducks-vs-devils-stream-how-to-watch-dec-13/
+
 **How to watch Marquette vs. Purdue men's basketball: Time, TV, streaming**\
 `Find out how to watch the Marquette Golden Eagles play the Purdue Boilermakers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6886358/2025/12/13/marquette-vs-purdue-stream-how-to-watch-dec-13/
