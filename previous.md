@@ -1,3 +1,15 @@
+**Blackhawks' Connor Bedard leaves ice holding shoulder**\
+`Bedard recorded two assists in the Blackhawks' loss to give him 19 goals, 25 assists and 44 points in 31 games this season.`\
+https://nytimes.com/athletic/6886034/2025/12/12/blackhawks-connor-bedard-injury-blues-shoulder/
+
+**Judge’s Order Complicates Justice Dept. Plans to Again Charge Comey**\
+`Justice Department officials have been considering whether to bring new charges against James B. Comey, the former F.B.I. director, after a different judge dismissed the original case against him.`\
+https://nytimes.com/2025/12/12/us/politics/judge-comey-richman-files.html
+
+**'In it to win it': Wild's Bill Guerin gets the star he promised in Quinn Hughes trade**\
+`Guerin, the Wild GM, had been after a top-tier player and got his guy in Hughes, one of the NHL's top defensemen — at a steep price.`\
+https://nytimes.com/athletic/6886000/2025/12/12/bill-guerin-quinn-hughes-trade/
+
 **Government Can Withhold Funds From Planned Parenthood, Appeals Court Rules**\
 `A three-judge panel threw out a lower court’s order, allowing the Trump administration to continue defunding the group and other major abortion providers.`\
 https://nytimes.com/2025/12/12/us/politics/planned-parenthood-medicaid-funding.html
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/6885854/2025/12/12/mets-stearns-cohen-alonso-schwar
 **U.S. Boarded Ship and Seized Cargo Heading to Iran From China**\
 `The seizure last month came amid fears of a renewed conflict between Iran and Israel.`\
 https://nytimes.com/2025/12/12/us/politics/cargo-ship-seized-iran-china.html
-
-**NHL trade grades: Wild get Quinn Hughes and enter win-now mode, but it's costly**\
-`Hughes provides the Wild with a superstar at a premium position, something they have dearly lacked.`\
-https://nytimes.com/athletic/6885786/2025/12/12/nhl-trade-grades-quinn-hughes-wild-canucks/
-
-**NBA Cup cash is substantial. If Orlando wins, Desmond Bane will buy a boat**\
-`Prize money has risen each season for the Cup, with total winnings for champion players reaching $530,000 this year. `\
-https://nytimes.com/athletic/6885719/2025/12/12/nba-cup-cash-orlando-magic-desmond-bane-boat/
-
-**Behind the Seized Venezuelan Tanker, Cuba’s Secret Lifeline**\
-`Firms with ties to Cuba are getting a larger share of Venezuelan oil exports, as the island’s security agents boost President Nicolás Maduro’s defenses.`\
-https://nytimes.com/2025/12/12/world/americas/venezuela-cuba-oil-tanker.html
 

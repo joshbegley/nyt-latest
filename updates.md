@@ -1,3 +1,15 @@
+**Blackhawks' Connor Bedard leaves ice holding shoulder**\
+`Bedard recorded two assists in the Blackhawks' loss to give him 19 goals, 25 assists and 44 points in 31 games this season.`\
+https://nytimes.com/athletic/6886034/2025/12/12/blackhawks-connor-bedard-injury-blues-shoulder/
+
+**Judge’s Order Complicates Justice Dept. Plans to Again Charge Comey**\
+`Justice Department officials have been considering whether to bring new charges against James B. Comey, the former F.B.I. director, after a different judge dismissed the original case against him.`\
+https://nytimes.com/2025/12/12/us/politics/judge-comey-richman-files.html
+
+**'In it to win it': Wild's Bill Guerin gets the star he promised in Quinn Hughes trade**\
+`Guerin, the Wild GM, had been after a top-tier player and got his guy in Hughes, one of the NHL's top defensemen — at a steep price.`\
+https://nytimes.com/athletic/6886000/2025/12/12/bill-guerin-quinn-hughes-trade/
+
 **Government Can Withhold Funds From Planned Parenthood, Appeals Court Rules**\
 `A three-judge panel threw out a lower court’s order, allowing the Trump administration to continue defunding the group and other major abortion providers.`\
 https://nytimes.com/2025/12/12/us/politics/planned-parenthood-medicaid-funding.html
