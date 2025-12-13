@@ -1,5 +1,5 @@
 **Why the Canucks decided to move swiftly and trade Quinn Hughes**\
-`The Vancouver Canucks didn&#8217;t decide to trade Quinn Hughes.`\
+`On Friday, Vancouver dealt one of the biggest stars in the history of the franchise in a somewhat purely future-oriented deal.`\
 https://nytimes.com/athletic/6885808/2025/12/12/vancouver-canucks-quinn-hughes-trade/
 
 **The latest on the Mets' offseason, why Alonso beat Schwarber and more MLB notes**\
