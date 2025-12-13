@@ -1,3 +1,11 @@
+**All smiles for Slot and Salah, who played on Saturday like he had a point to prove with future unclear**\
+`The Egyptian played a crucial role off the bench at Anfield on Saturday - but his future remains unclear after last weekend's comments...`\
+https://nytimes.com/athletic/6886515/2025/12/13/salah-slot-liverpool-brighton-premier-league/
+
+**Kenley Jansen agrees to one-year deal with Tigers: Source**\
+`Jansen is 24 saves shy of becoming the third closer ever with 500.`\
+https://nytimes.com/athletic/6847998/2025/12/13/mlb-kenley-jansen-free-agency-signing-tigers/
+
 **Blackhawks call up goal-scoring prospect Nick Lardis with Connor Bedard injured**\
 `The 20-year-old Lardis accumulated 175 goals in 257 career OHL games before turning pro this season with the IceHogs.`\
 https://nytimes.com/athletic/6886746/2025/12/13/nick-lardis-nhl-blackhawks-debut/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6886796/2025/12/13/shedeur-sanders-film-breakdown-s
 **DoorDash Deliverer Faces Tampering Charges Tied to Food Order**\
 `The authorities said the woman, who was making a delivery for DoorDash, was captured on a doorbell camera spraying an unknown aerosol.`\
 https://nytimes.com/2025/12/13/us/kentucky-delivery-driver-pepper-spray-food.html
-
-**Slot has 'no issue' with Salah after Liverpool forward's return**\
-`The Egypt international returned to action on Saturday with the league champions after being dropped following an incendiary interview.`\
-https://nytimes.com/athletic/6886794/2025/12/13/salah-slot-liverpool-issue-squad-afcon/
-
-**Roy Kramer, Transformational Executive in College Sports, Dies at 96**\
-`Leading the Southeastern Conference for 12 years, he masterminded its rise as a national power, lifted by a flood of money from TV rights, bowl games and other sources.`\
-https://nytimes.com/2025/12/13/sports/ncaafootball/roy-kramer-dead.html
 
