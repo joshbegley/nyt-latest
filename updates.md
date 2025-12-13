@@ -1,3 +1,19 @@
+**The Pulse: Heisman race for the ages?**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6886125/2025/12/13/could-this-be-the-closest-heisman-race-ever-well-know-soon/
+
+**Cavaliers' Evan Mobley to miss 2-4 weeks with left calf strain**\
+`Mobley sustained the injury during Friday's road win at Washington and could now miss between seven and 14 games.`\
+https://nytimes.com/athletic/6887150/2025/12/13/cavaliers-evan-mobley-injury-status-left-calf-strain/
+
+**Brown University has faced a number of difficulties this year.**\
+`By Alan Blinder`\
+https://nytimes.com/live/2025/12/13/us/brown-shooting/brown-university-has-faced-a-number-of-difficulties-this-year
+
+**How to watch UCLA vs. Gonzaga men's basketball: Time, TV, streaming**\
+`Find out how to watch the UCLA Bruins play the Gonzaga Bulldogs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6887247/2025/12/13/ucla-vs-gonzaga-stream-how-to-watch-dec-13/
+
 **How Canucks are processing the Quinn Hughes trade as new players join team**\
 `The post-Quinn Hughes era of Canucks hockey began with a practice on Saturday afternoon in Newark, N.J.`\
 https://nytimes.com/athletic/6886944/2025/12/13/canucks-trade-hughes-buium-rossi/

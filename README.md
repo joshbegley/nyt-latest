@@ -1,3 +1,7 @@
+**Paul Wiggin, Browns legend and Stanford coach during "The Play," dies at 91**\
+`Wiggin teamed with Jim Brown to help Cleveland win the 1964 NFL title and was Stanford’s coach for one of football’s most famous plays.`\
+https://nytimes.com/athletic/6887078/2025/12/13/paul-wiggin-cleveland-browns-stanford-coach-dies/
+
 **The Pulse: Heisman race for the ages?**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6886125/2025/12/13/could-this-be-the-closest-heisman-race-ever-well-know-soon/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6887108/2025/12/13/christian-mccaffrey-injury-statu
 **Change Locations**\
 `Zachary Edward-Brown and John Kugelman’s puzzle makes moving fun.`\
 https://nytimes.com/2025/12/13/crosswords/daily-puzzle-2025-12-14.html
-
-**Live Updates: Multiple People Shot at Brown University During Finals**\
-`Officials said the extent of the injuries on the Rhode Island campus was unclear, and a suspect was not in custody. Students and faculty members were told to lock doors and remain in hiding.`\
-https://nytimes.com/live/2025/12/13/us/brown-shooting
 
