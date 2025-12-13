@@ -3,7 +3,7 @@
 https://nytimes.com/2025/12/12/health/jama-breast-cancer-risk-based-screening.html
 
 **U.S. Drops Sanctions on Brazilian Justice at Center of Bolsonaro Trial**\
-`The U.S. Treasury said that maintaining sanctions against Justice Alexandre de Moraes was no longer in the interests of the United States.`\
+`A senior Trump administration official said that maintaining sanctions against Justice Alexandre de Moraes was no longer in the interest of the United States.`\
 https://nytimes.com/2025/12/12/world/americas/brazil-us-sanctions-justice-moraes.html
 
 **Trump Is Facing Down Biden’s Demons**\
