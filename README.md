@@ -1,3 +1,7 @@
+**Danny Jansen, Rangers agree to 2-year, $14.5 million deal: Sources**\
+`The Rangers had been looking for a catcher to pair with Kyle Higashioka.`\
+https://nytimes.com/athletic/6783723/2025/12/12/mlb-danny-jansen-free-agency-signing/
+
 **Why the Canucks decided to move swiftly and trade Quinn Hughes**\
 `On Friday, Vancouver dealt one of the biggest stars in the history of the franchise in a somewhat purely future-oriented deal.`\
 https://nytimes.com/athletic/6885808/2025/12/12/vancouver-canucks-quinn-hughes-trade/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/12/us/politics/republican-health-care-plan-subsidies
 **After False Earthquake Alert, Lawmakers Demand Answers on How It Was Sent**\
 `The federal government and earthquake experts blamed a technical glitch for the alert that sent warnings hundreds of miles away last week.`\
 https://nytimes.com/2025/12/12/us/usgs-nevada-false-earthquake-shakealert.html
-
-**Elon Musk’s SpaceX Valued at $800 Billion, as It Prepares to Go Public**\
-`A sale of insider shares at $421 a share would make Mr. Musk’s rocket company the most valuable private company in the world, as it readies for a possible initial public offering next year.`\
-https://nytimes.com/2025/12/12/technology/elon-musk-spacex-ipo.html
 
