@@ -1,36 +1,36 @@
-**Russian Bombs Plunge Odesa Into Darkness Amid Peace Talks**\
-`Much of Ukraine’s largest Black Sea port was without power, heat and water on Saturday after strikes from Russia, which has shown little appetite for a deal to end the war.`\
-https://nytimes.com/2025/12/13/world/europe/russia-ukraine-odesa-attack.html
+**U.S. Forces Attacked in Syria, State Media Says**\
+`Injuries were reported in an attack that the Syrian government’s news agency said happened near the ancient city of Palmyra.`\
+https://nytimes.com/2025/12/13/world/africa/us-forces-attacked-syria.html
 
-**'A crazy 30 minutes': How Marco Rossi found out he was being traded, what comes next**\
-`"We all play hockey, and we know it might happen. But I'm really happy for everything Minnesota has done for me," Rossi said. `\
-https://nytimes.com/athletic/6886132/2025/12/13/marco-rossi-life-after-wild-canucks-trade/
+**Jo Ann Allen Boyce Dies at 84; Braved Mobs in Integrating a School**\
+`She was one of the Clinton 12, Black students who broke a race barrier by entering a Tennessee high school in 1956 in the face of harassment by white segregationists.`\
+https://nytimes.com/2025/12/13/us/jo-ann-allen-boyce-dead.html
 
-**Winners and losers of the Quinn Hughes trade**\
-`The effects of Quinn Hughes' move to the Wild are going to be felt league-wide. Here are the winners and losers on both sides of the ledger.`\
-https://nytimes.com/athletic/6886099/2025/12/13/quinn-hughes-canucks-wild-winners-losers/
+**How to watch Oklahoma State vs. Oklahoma women's basketball: Time, TV, streaming**\
+`Find out how to watch the Oklahoma State Cowgirls play the Oklahoma Sooners, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6886486/2025/12/13/oklahoma-state-vs-oklahoma-stream-how-to-watch-dec-13/
 
-**What will the Wild lineup look like with Quinn Hughes? Projected lines, pairings (when healthy)**\
-`Does Hughes slot in as a partner to likely Team USA teammate Brock Faber? What does that mean for the rest of the Minnesota lineup?`\
-https://nytimes.com/athletic/6886102/2025/12/13/wild-projected-lineup-quinn-hughes/
+**How to watch New Orleans vs. Houston men's basketball: Time, TV, streaming**\
+`Find out how to watch the New Orleans Privateers play the Houston Cougars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6886482/2025/12/13/new-orleans-vs-houston-stream-how-to-watch-dec-13/
 
-**Scoop City: Fantasy tips to win Week 15**\
-`You can't sit Lamar Jackson, but you can worry about his ceiling. Why Isaiah Likely is a top-10 TE this week and more. `\
-https://nytimes.com/athletic/6885597/2025/12/13/everything-fantasy-football-managers-need-to-know-for-week-15/
+**How to watch Memphis vs. Louisville men's basketball: Time, TV, streaming**\
+`Find out how to watch the Memphis Tigers play the Louisville Cardinals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6886484/2025/12/13/memphis-vs-louisville-stream-how-to-watch-dec-13/
 
-**Eight Eagles thoughts: Saquon Barkley — not a bunny — offers reason for positivity**\
-`The Eagles host the 2-11 Las Vegas Raiders this week for a chance to change the discourse about the team, at least for one week.`\
-https://nytimes.com/athletic/6885563/2025/12/13/philadelphia-eagles-saquon-barkley-jordan-davis/
+**How to watch Nebraska vs. Illinois men's basketball: Time, TV, streaming**\
+`Find out how to watch the Nebraska Cornhuskers play the Illinois Fighting Illini, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6886480/2025/12/13/nebraska-vs-illinois-stream-how-to-watch-dec-13/
 
-**10 bowls to celebrate college football uniqueness: Blue turf, orange snacks, Honolulu sky**\
-`Blue turf, orange snacks, Tampa pirate ships and "Mouth Heaven." Don't sleep on the non-CFP bowl games.`\
-https://nytimes.com/athletic/6883170/2025/12/13/college-football-weird-bowl-games-pop-tarts-schedule/
+**How to watch George Washington vs. Florida men's basketball: Time, TV, streaming**\
+`Find out how to watch the George Washington Revolutionaries play the Florida Gators, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6886478/2025/12/13/george-washington-vs-florida-stream-how-to-watch-dec-13/
 
-**Baby Steps**\
-`The antidote to our increasingly disembodied lives may lie in letting go of our inhibitions and dancing like kids do.`\
-https://nytimes.com/2025/12/13/briefing/baby-steps.html
+**How to watch Lindenwood (MO) vs. Iowa women's basketball: Time, TV, streaming**\
+`Find out how to watch the Lindenwood (MO) Lions play the Iowa Hawkeyes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6886475/2025/12/13/lindenwood-mo-vs-iowa-stream-how-to-watch-dec-13/
 
-**Blues' best prospect development surprise? Jiricek's upside? Subscriber Q&A with Tim Taylor, part 2**\
-`The Blues' assistant GM says he sees Adam Jiricek trending toward being a No. 1 defenseman in the NHL: 'This kid does everything.'`\
-https://nytimes.com/athletic/6880342/2025/12/13/blues-tim-taylor-jiricek-fischer/
+**How to watch Chattanooga vs. Auburn men's basketball: Time, TV, streaming**\
+`Find out how to watch the Chattanooga Mocs play the Auburn Tigers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6886461/2025/12/13/chattanooga-vs-auburn-stream-how-to-watch-dec-13/
 
