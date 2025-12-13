@@ -1,5 +1,10 @@
-**Blackhawks' Connor Bedard leaves ice holding shoulder**\
-`Bedard recorded two assists in the Blackhawks' loss to give him 19 goals, 25 assists and 44 points in 31 games this season.`\
+**Testimony concludes in Tyler Skaggs trial as Angels president John Carpino takes the stand**\
+`Carpino acknowledged that the team declined to pay out the remainder of Skaggs’ 2019 contract after his death.`\
+https://nytimes.com/athletic/6886068/2025/12/12/angels-president-john-carpino-tyler-skaggs-trial-testimony/
+
+**Blackhawks' Connor Bedard injured after 'freak accident' against Blues**\
+`Bedard will not play against the Red Wings on Sunday, and more information is expected to be available Monday after further evaluation.
+`\
 https://nytimes.com/athletic/6886034/2025/12/12/blackhawks-connor-bedard-injury-blues-shoulder/
 
 **Judge’s Order Complicates Justice Dept. Plans to Again Charge Comey**\
@@ -29,8 +34,4 @@ https://nytimes.com/athletic/6885808/2025/12/12/vancouver-canucks-quinn-hughes-t
 **The latest on the Mets' offseason, why Alonso beat Schwarber and more MLB notes**\
 `Plus details on Luis Robert's potential trade market, a possible destination for Pete Fairbanks and a next free agent to return from Japan`\
 https://nytimes.com/athletic/6885854/2025/12/12/mets-stearns-cohen-alonso-schwarber-robert-offseason-mlb/
-
-**U.S. Boarded Ship and Seized Cargo Heading to Iran From China**\
-`The seizure last month came amid fears of a renewed conflict between Iran and Israel.`\
-https://nytimes.com/2025/12/12/us/politics/cargo-ship-seized-iran-china.html
 

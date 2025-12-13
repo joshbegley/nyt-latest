@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6886068/2025/12/12/angels-president-john-carpino-tyler-skaggs-trial-testimony/
 
 **Blackhawks' Connor Bedard injured after 'freak accident' against Blues**\
-`Bedard will not play against the Red Wings on Sunday, and more information is expected to be available Monday after further evaluation.
+`Bedard will not play against the Red Wings on Saturday, and more information is expected to be available Monday after further evaluation.
 `\
 https://nytimes.com/athletic/6886034/2025/12/12/blackhawks-connor-bedard-injury-blues-shoulder/
 
