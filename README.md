@@ -6,8 +6,8 @@ https://nytimes.com/2025/12/13/us/politics/states-lawsuit-h1b-visas.html
 `Friday night was the first bit of proof that a healthy Joel Embiid can still show up and take over.`\
 https://nytimes.com/athletic/6886076/2025/12/13/sixers-win-pacers-old-joel-embiid-returns/
 
-**Steph Curry returns to Warriors after missing 5 games with quad injury**\
-`Warriors guard adds pregame theatrics to a vintage performance, minus a win.`\
+**Steph Curry hits 100-foot shot before return to lineup, scores 39 in Warriors' loss**\
+`Curry played in his first game after missing five straight because of a quad injury, and he hit big shots before and during Friday's game.`\
 https://nytimes.com/athletic/6885536/2025/12/13/steph-curry-return-injury-warriors-nba/
 
 **The New York Times in Print for Saturday, Dec. 13, 2025**\
