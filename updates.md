@@ -1,3 +1,7 @@
+**Board of Creatives?**\
+`Gene Louise De Vera’s puzzle sets a record!`\
+https://nytimes.com/2025/12/12/crosswords/daily-puzzle-2025-12-13.html
+
 **Danny Jansen, Rangers agree to 2-year, $14.5 million deal: Sources**\
 `The Rangers had been looking for a catcher to pair with Kyle Higashioka.`\
 https://nytimes.com/athletic/6783723/2025/12/12/mlb-danny-jansen-free-agency-signing/
