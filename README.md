@@ -1,3 +1,7 @@
+**New York Could See Its First Big Snow of the Season This Weekend**\
+`Up to three inches of snow is forecast in the city and across the region from late Saturday into Sunday morning.`\
+https://nytimes.com/2025/12/13/weather/nyc-snow-forecast.html
+
 **Up All Night in New York, Selling Christmas Trees**\
 `Before Santa comes to town, the tree sellers do, packing themselves into trailers and vans across New York City to claim a slice of the competitive tree market.`\
 https://nytimes.com/2025/12/13/nyregion/nyc-christmas-trees.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/13/us/politics/states-lawsuit-h1b-visas.html
 **Sixers drop Pacers as the old Joel Embiid scores season-high 39 points**\
 `Friday night was the first bit of proof that a healthy Joel Embiid can still show up and take over.`\
 https://nytimes.com/athletic/6886076/2025/12/13/sixers-win-pacers-old-joel-embiid-returns/
-
-**Steph Curry hits 100-foot shot before return to lineup, scores 39 in Warriors' loss**\
-`Curry played in his first game after missing five straight because of a quad injury, and he hit big shots before and during Friday's game.`\
-https://nytimes.com/athletic/6885536/2025/12/13/steph-curry-return-injury-warriors-nba/
 
