@@ -1,3 +1,7 @@
+**Active Shooter Alert Issued at Brown University**\
+`In an emergency alert, the school told students and faculty to lock doors, silence phones and hide. A suspect was in custody.`\
+https://nytimes.com/2025/12/13/us/brown-university-shooting.html
+
 **Dustin May, Cardinals agree to one-year contract: Source**\
 `May, who made 23 starts last year between the Los Angeles Dodgers and Boston Red Sox, should slot in at the top of the Cardinals’ rotation.`\
 https://nytimes.com/athletic/6840410/2025/12/13/mlb-dustin-may-free-agency-signing-cardinals/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6887003/2025/12/13/toronto-fc-walker-zimmerman-mls/
 **How the Wild pulled off the Quinn Hughes trade, from the first phone call to the final fist pump**\
 `Wild president of hockey operations and general manager Bill Guerin discusses the process of trading for the superstar defenseman.`\
 https://nytimes.com/athletic/6886987/2025/12/13/wild-quinn-hughes-trade-bill-guerin/
-
-**Trump threatens to seize control of Washington, D.C.'s public golf courses**\
-`The Trump administration’s interest in Washington’s public golf courses is part of a larger plan to revamp the capital’s footprint.`\
-https://nytimes.com/athletic/6886848/2025/12/13/trump-administration-threatens-seize-dc-golf-courses/
 

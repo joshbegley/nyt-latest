@@ -1,3 +1,7 @@
+**Active Shooter Alert Issued at Brown University**\
+`In an emergency alert, the school told students and faculty to lock doors, silence phones and hide. A suspect was in custody.`\
+https://nytimes.com/2025/12/13/us/brown-university-shooting.html
+
 **Dustin May, Cardinals agree to one-year contract: Source**\
 `May, who made 23 starts last year between the Los Angeles Dodgers and Boston Red Sox, should slot in at the top of the Cardinals’ rotation.`\
 https://nytimes.com/athletic/6840410/2025/12/13/mlb-dustin-may-free-agency-signing-cardinals/
