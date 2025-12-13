@@ -1,3 +1,7 @@
+**Russian Bombs Plunge Odesa Into Darkness Amid Peace Talks**\
+`Much of Ukraine’s largest Black Sea port was without power, heat and water on Saturday after strikes from Russia, which has shown little appetite for a deal to end the war.`\
+https://nytimes.com/2025/12/13/world/europe/russia-ukraine-odesa-attack.html
+
 **'A crazy 30 minutes': How Marco Rossi found out he was being traded, what comes next**\
 `"We all play hockey, and we know it might happen. But I'm really happy for everything Minnesota has done for me," Rossi said. `\
 https://nytimes.com/athletic/6886132/2025/12/13/marco-rossi-life-after-wild-canucks-trade/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/13/briefing/baby-steps.html
 **Blues' best prospect development surprise? Jiricek's upside? Subscriber Q&A with Tim Taylor, part 2**\
 `The Blues' assistant GM says he sees Adam Jiricek trending toward being a No. 1 defenseman in the NHL: 'This kid does everything.'`\
 https://nytimes.com/athletic/6880342/2025/12/13/blues-tim-taylor-jiricek-fischer/
-
-**What is EBOO? Phillies star Bryce Harper's blood ozone treatment goes viral**\
-`The procedure involves drawing blood, treating it with a laser and ozone, and then reentering it into the body but is not FDA approved.`\
-https://nytimes.com/athletic/6884480/2025/12/13/bryce-harper-blood-ozone-treatment-phillies/
 
