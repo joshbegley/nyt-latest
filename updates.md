@@ -1,3 +1,7 @@
+**Roy Kramer, Transformational Executive in College Sports, Dies at 96**\
+`Leading the Southeastern Conference for 12 years, he masterminded its rise as a national power, lifted by a flood of money from TV rights, bowl games and other sources.`\
+https://nytimes.com/2025/12/13/sports/ncaafootball/roy-kramer-dead.html
+
 **Maresca calls last 48 hours his 'worst' as Chelsea head coach**\
 `The head coach said the issue was a "general" one and that he is "very happy with the fans" after their win against Everton on Saturday.`\
 https://nytimes.com/athletic/6886747/2025/12/13/enzo-maresca-worst-chelsea-48-hours-everton/
