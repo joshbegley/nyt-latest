@@ -1,3 +1,19 @@
+**LaNorris Sellers expected to pass on 2026 NFL Draft, stay at South Carolina**\
+`Sellers would have drawn interest as a possible top-20 pick or via the transfer portal, but all signs point to him staying put.`\
+https://nytimes.com/athletic/6886817/2025/12/13/lanorris-sellers-nfl-draft-south-carolina-transfer/
+
+**Six U.N. Peacekeepers Killed in Drone Strike in Sudanese Battle Zone**\
+`The strike on a United Nations base in the southern Kordofan region was the deadliest single episode for the body’s personnel in Sudan’s civil war.`\
+https://nytimes.com/2025/12/13/world/africa/sudan-un-peacekeepers-killed-drone-strike.html
+
+**Brandon Aiyuk put on reserve/left squad list; season, and likely 49ers tenure, over**\
+`The wide receiver hasn't played since a Week 7 multi-ligament injury in 2024.`\
+https://nytimes.com/athletic/6887016/2025/12/13/brandon-aiyuk-49ers-season-over/
+
+**Morgan Scalley, Utah reach agreement to become Utes football coach**\
+`Scalley had agreed to an amended contract that made him "head coach-in-waiting" in November 2023.`\
+https://nytimes.com/athletic/6886983/2025/12/13/morgan-scalley-utah-football-coach/
+
 **Arizona State, Kenny Dillingham discussing pay raise amid interest from other schools**\
 `Dillingham has been linked to coaching jobs at Michigan, LSU and more, but he said he doesn't want to leave the Sun Devils.`\
 https://nytimes.com/athletic/6887018/2025/12/13/kenny-dillingham-arizona-state-contract-negotiations/
@@ -17,20 +33,4 @@ https://nytimes.com/athletic/6886848/2025/12/13/trump-administration-threatens-s
 **Donald Trump honors 'Miracle on Ice' Olympic team with Congressional Gold Medal**\
 `The U.S. men's hockey team upset the Soviet Union in a medal round match at the 1980 Olympics in Lake Placid, N.Y.`\
 https://nytimes.com/athletic/6886819/2025/12/13/miracle-on-ice-olympic-hockey-congressional-medal/
-
-**How to watch Spurs vs. Thunder: Time, TV, streaming**\
-`Find out how to watch the San Antonio Spurs play the Oklahoma City Thunder, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6886996/2025/12/13/spurs-vs-thunder-stream-how-to-watch-dec-13/
-
-**How to watch Predators vs. Avalanche: Time, TV, streaming**\
-`Find out how to watch the Nashville Predators play the Colorado Avalanche, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6886994/2025/12/13/predators-vs-avalanche-stream-how-to-watch-dec-13/
-
-**How to watch Flames vs. Kings: Time, TV, streaming**\
-`Find out how to watch the Calgary Flames play the Los Angeles Kings, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6886992/2025/12/13/flames-vs-kings-stream-how-to-watch-dec-13/
-
-**How to watch UC Riverside vs. BYU men's basketball: Time, TV, streaming**\
-`Find out how to watch the UC Riverside Highlanders play the BYU Cougars, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6886980/2025/12/13/uc-riverside-vs-byu-stream-how-to-watch-dec-13/
 
