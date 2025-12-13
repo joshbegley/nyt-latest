@@ -1,3 +1,7 @@
+**'A crazy 30 minutes': How Marco Rossi found out he was being traded, what comes next**\
+`"We all play hockey, and we know it might happen. But I'm really happy for everything Minnesota has done for me," Rossi said. `\
+https://nytimes.com/athletic/6886132/2025/12/13/marco-rossi-life-after-wild-canucks-trade/
+
 **Winners and losers of the Quinn Hughes trade**\
 `The effects of Quinn Hughes' move to the Wild are going to be felt league-wide. Here are the winners and losers on both sides of the ledger.`\
 https://nytimes.com/athletic/6886099/2025/12/13/quinn-hughes-canucks-wild-winners-losers/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6880342/2025/12/13/blues-tim-taylor-jiricek-fischer
 **What is EBOO? Phillies star Bryce Harper's blood ozone treatment goes viral**\
 `The procedure involves drawing blood, treating it with a laser and ozone, and then reentering it into the body but is not FDA approved.`\
 https://nytimes.com/athletic/6884480/2025/12/13/bryce-harper-blood-ozone-treatment-phillies/
-
-**Nino Niederreiter's unique route to 1,000 NHL games**\
-`How Niederreiter got from a Swiss mountain city to 1,000 games in the NHL is one of the most unique stories in the NHL.`\
-https://nytimes.com/athletic/6882598/2025/12/13/nino-niederreiter-1000-nhl-games/
 
