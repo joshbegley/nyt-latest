@@ -1,3 +1,7 @@
+**Peter Greene, ‘Pulp Fiction’ and ‘The Mask’ Actor, Dies at 60**\
+`Mr. Greene, who built a four-decade career uncannily portraying villains, was found dead in his apartment in Manhattan on Friday, his manager said.`\
+https://nytimes.com/2025/12/13/movies/peter-greene-dead.html
+
 **Flight Returns to Dulles After Engine Failure During Takeoff, F.A.A. Says**\
 `United Airlines Flight 803, which was headed to Toyko, safely landed at Washington Dulles International Airport in Virginia around 1:20 p.m. on Saturday, the F.A.A. said.`\
 https://nytimes.com/2025/12/13/us/dulles-airport-fire-washington.html
