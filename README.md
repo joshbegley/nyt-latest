@@ -1,3 +1,7 @@
+**After False Earthquake Alert, Lawmakers Demand Answers on How It Was Sent**\
+`The federal government and earthquake experts blamed a technical glitch for the alert that sent warnings hundreds of miles away last week.`\
+https://nytimes.com/2025/12/12/us/usgs-nevada-false-earthquake-shakealert.html
+
 **Elon Musk’s SpaceX Valued at $800 Billion, as It Prepares to Go Public**\
 `A sale of insider shares at $421 a share would make Mr. Musk’s rocket company the most valuable private company in the world, as it readies for a possible initial public offering next year.`\
 https://nytimes.com/2025/12/12/technology/elon-musk-spacex-ipo.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/12/health/jama-breast-cancer-risk-based-screening.ht
 **U.S. Drops Sanctions on Brazilian Justice at Center of Bolsonaro Trial**\
 `A senior Trump administration official said that maintaining sanctions against Justice Alexandre de Moraes was no longer in the interest of the United States.`\
 https://nytimes.com/2025/12/12/world/americas/brazil-us-sanctions-justice-moraes.html
-
-**Trump Is Facing Down Biden’s Demons**\
-`Too old? Tough economy? The presidents change, but the troubles are familiar.`\
-https://nytimes.com/2025/12/12/us/politics/trump-biden-age-health-economy.html
 
