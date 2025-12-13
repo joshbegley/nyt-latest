@@ -1,3 +1,7 @@
+**NHL trade grades: Wild get Quinn Hughes and enter win-now mode, but it's costly**\
+`Hughes provides the Wild with a superstar at a premium position, something they have dearly lacked.`\
+https://nytimes.com/athletic/6885786/2025/12/12/nhl-trade-grades-quinn-hughes-wild-canucks/
+
 **NBA Cup cash is substantial. If Orlando wins, Desmond Bane will buy a boat**\
 `Prize money has risen each season for the Cup, with total winnings for champion players reaching $530,000 this year. `\
 https://nytimes.com/athletic/6885719/2025/12/12/nba-cup-cash-orlando-magic-desmond-bane-boat/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/12/us/politics/machado-venezuela-escape-oslo.html
 **Canucks trade Quinn Hughes to Wild: Sources**\
 `The Minnesota Wild pulled off their biggest trade in franchise history Friday night.`\
 https://nytimes.com/athletic/6885748/2025/12/12/canucks-quinn-hughes-wild-trade/
-
-**World Cup ticket requests top 5M in first 24 hours, says FIFA**\
-`The governing body indicated strong sales as the latest wave of ticketing availability opened`\
-https://nytimes.com/athletic/6885726/2025/12/12/world-cup-ticket-requests-fifa-third-phase/
 
