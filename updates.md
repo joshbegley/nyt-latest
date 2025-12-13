@@ -1,3 +1,7 @@
+**Is Times New Roman Better Than Calibri for the State Department?**\
+`Type designers weigh in on the recent decision to replace Calibri with Times New Roman in official documents.`\
+https://nytimes.com/interactive/2025/12/13/us/calibri-font-times-new-roman-state-department.html
+
 **So, the Devils didn't land Quinn Hughes. How can they move forward?**\
 `Though they didn't land Hughes, the Devils still gained something from the saga coming to an end: clarity.`\
 https://nytimes.com/athletic/6886734/2025/12/13/nj-devils-quinn-hughes-trade-nhl/

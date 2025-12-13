@@ -1,3 +1,7 @@
+**Is Times New Roman Better Than Calibri for the State Department?**\
+`Type designers weigh in on the recent decision to replace Calibri with Times New Roman in official documents.`\
+https://nytimes.com/interactive/2025/12/13/us/calibri-font-times-new-roman-state-department.html
+
 **So, the Devils didn't land Quinn Hughes. How can they move forward?**\
 `Though they didn't land Hughes, the Devils still gained something from the saga coming to an end: clarity.`\
 https://nytimes.com/athletic/6886734/2025/12/13/nj-devils-quinn-hughes-trade-nhl/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/13/movies/peter-greene-dead.html
 **Flight Returns to Dulles After Engine Failure During Takeoff, F.A.A. Says**\
 `United Airlines Flight 803, which was headed to Toyko, safely landed at Washington Dulles International Airport in Virginia around 1:20 p.m. on Saturday, the F.A.A. said.`\
 https://nytimes.com/2025/12/13/us/dulles-airport-fire-washington.html
-
-**Yankees re-sign Amed Rosario to 1-year, $2.5 million contract: Source**\
-`The Yankees could use Rosario as a platoon option at third base with Ryan McMahon, who struggles against lefty pitching.`\
-https://nytimes.com/athletic/6873352/2025/12/13/mlb-amed-rosario-free-agency-signing-yankees/
 
