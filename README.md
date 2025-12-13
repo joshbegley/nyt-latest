@@ -1,3 +1,7 @@
+**How the Wild pulled off the Quinn Hughes trade, from the first phone call to the final fist pump**\
+`Wild president of hockey operations and general manager Bill Guerin discusses the process of trading for the superstar defenseman.`\
+https://nytimes.com/athletic/6886987/2025/12/13/wild-quinn-hughes-trade-bill-guerin/
+
 **Trump threatens to seize control of Washington, D.C.'s public golf courses**\
 `The Trump administration’s interest in Washington’s public golf courses is part of a larger plan to revamp the capital’s footprint.`\
 https://nytimes.com/athletic/6886848/2025/12/13/trump-administration-threatens-seize-dc-golf-courses/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6886971/2025/12/13/arizona-vs-alabama-stream-how-to
 **Is Times New Roman Better Than Calibri for the State Department?**\
 `Type designers weigh in on the recent decision to replace Calibri with Times New Roman in official documents.`\
 https://nytimes.com/interactive/2025/12/13/us/calibri-font-times-new-roman-state-department.html
-
-**So, the Devils didn't land Quinn Hughes. How can they move forward?**\
-`Though they didn't land Hughes, the Devils still gained something from the saga coming to an end: clarity.`\
-https://nytimes.com/athletic/6886734/2025/12/13/nj-devils-quinn-hughes-trade-nhl/
 
