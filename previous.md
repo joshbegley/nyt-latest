@@ -1,3 +1,23 @@
+**How to watch Canadiens vs. Rangers: Time, TV, streaming**\
+`Find out how to watch the Montreal Canadiens play the New York Rangers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6886720/2025/12/13/canadiens-vs-rangers-stream-how-to-watch-dec-13/
+
+**How to watch Red Wings vs. Blackhawks: Time, TV, streaming**\
+`Find out how to watch the Detroit Red Wings play the Chicago Blackhawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6886718/2025/12/13/red-wings-vs-blackhawks-stream-how-to-watch-dec-13/
+
+**How to watch Oilers vs. Maple Leafs: Time, TV, streaming**\
+`Find out how to watch the Edmonton Oilers play the Toronto Maple Leafs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6886716/2025/12/13/oilers-vs-maple-leafs-stream-how-to-watch-dec-13/
+
+**How to watch Golden Knights vs. Blue Jackets: Time, TV, streaming**\
+`Find out how to watch the Vegas Golden Knights play the Columbus Blue Jackets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6886714/2025/12/13/golden-knights-vs-blue-jackets-stream-how-to-watch-dec-13/
+
+**Colts will start 44-year-old Philip Rivers against Seahawks: Source**\
+`Rivers will make his first start in nearly five years. `\
+https://nytimes.com/athletic/6882055/2025/12/13/philip-rivers-starting-colts-news-seahawks/
+
 **How to watch Kansas vs. NC State men's basketball: Time, TV, streaming**\
 `Find out how to watch the Kansas Jayhawks play the NC State Wolfpack, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6886685/2025/12/13/kansas-vs-nc-state-stream-how-to-watch-dec-13/
@@ -13,24 +33,4 @@ https://nytimes.com/athletic/6886682/2025/12/13/michigan-vs-maryland-stream-how-
 **How to watch Louisiana Tech vs. LSU women's basketball: Time, TV, streaming**\
 `Find out how to watch the Louisiana Tech Lady Techsters play the LSU Tigers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6886680/2025/12/13/louisiana-tech-vs-lsu-stream-how-to-watch-dec-13/
-
-**How to watch Central Arkansas vs. Vanderbilt men's basketball: Time, TV, streaming**\
-`Find out how to watch the Central Arkansas Bears play the Vanderbilt Commodores, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6886677/2025/12/13/central-arkansas-vs-vanderbilt-stream-how-to-watch-dec-13/
-
-**How to watch UConn vs. USC women's basketball: Time, TV, streaming**\
-`Find out how to watch the UConn Huskies play the USC Trojans, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6886675/2025/12/13/uconn-vs-usc-stream-how-to-watch-dec-13/
-
-**MAHA Moms Are Angry at the E.P.A. Lee Zeldin Is Trying to Win Them Back.**\
-`A split is emerging within Trump’s base as health activists accuse Mr. Zeldin of leading the agency to prioritize chemical industry interests over public health.`\
-https://nytimes.com/2025/12/13/climate/maha-moms-epa-lee-zeldin.html
-
-**The Briefing: Chelsea 2 Everton 0 - Palmer scores on Stamford Bridge return as Maresca's side climb to fourth**\
-`Analysis of Chelsea's Premier League encounter with Everton at Stamford Bridge`\
-https://nytimes.com/athletic/6878213/2025/12/13/chelsea-everton-premier-league-analysis/
-
-**The Young People Fixated on Who Gets to Work in America**\
-`For some Gen Z conservatives, H-1B visas are a hot new topic.`\
-https://nytimes.com/2025/12/13/style/h1b-visa-young-conservatives-maga.html
 
