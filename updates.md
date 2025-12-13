@@ -1,3 +1,7 @@
+**U.S. Drops Sanctions on Brazilian Justice at Center of Bolsonaro Trial**\
+`A senior Trump administration official said that maintaining sanctions against Justice Alexandre de Moraes was no longer in the interest of the United States.`\
+https://nytimes.com/2025/12/12/world/americas/brazil-us-sanctions-justice-moraes.html
+
 **Risk-Based Screening Works as Well as Yearly Checks After 40 in Finding Breast Cancers**\
 `A study of more than 45,000 women found that screening women according to their level of risk was as effective in detecting  tumors as the one-size-fits-most screening currently recommended.`\
 https://nytimes.com/2025/12/12/health/jama-breast-cancer-risk-based-screening.html
