@@ -1,3 +1,7 @@
+**Board of Creatives?**\
+`Gene Louise De Vera’s puzzle sets a record!`\
+https://nytimes.com/2025/12/12/crosswords/daily-puzzle-2025-12-13.html
+
 **Danny Jansen, Rangers agree to 2-year, $14.5 million deal: Sources**\
 `The Rangers had been looking for a catcher to pair with Kyle Higashioka.`\
 https://nytimes.com/athletic/6783723/2025/12/12/mlb-danny-jansen-free-agency-signing/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/12/world/americas/venezuela-cuba-oil-tanker.html
 **House G.O.P. Releases Health Plan That Would Allow Subsidies to End**\
 `The legislation, expected to come to a vote next week, would make changes that could eventually affect health care costs but are unlikely to immediately curb rising premiums.`\
 https://nytimes.com/2025/12/12/us/politics/republican-health-care-plan-subsidies-expire.html
-
-**After False Earthquake Alert, Lawmakers Demand Answers on How It Was Sent**\
-`The federal government and earthquake experts blamed a technical glitch for the alert that sent warnings hundreds of miles away last week.`\
-https://nytimes.com/2025/12/12/us/usgs-nevada-false-earthquake-shakealert.html
 
