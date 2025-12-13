@@ -1,3 +1,7 @@
+**Dustin May, Cardinals agree to one-year contract: Source**\
+`May, who made 23 starts last year between the Los Angeles Dodgers and Boston Red Sox, should slot in at the top of the Cardinals’ rotation.`\
+https://nytimes.com/athletic/6840410/2025/12/13/mlb-dustin-may-free-agency-signing-cardinals/
+
 **LaNorris Sellers expected to pass on 2026 NFL Draft, stay at South Carolina**\
 `Sellers would have drawn interest as a possible top-20 pick or via the transfer portal, but all signs point to him staying put.`\
 https://nytimes.com/athletic/6886817/2025/12/13/lanorris-sellers-nfl-draft-south-carolina-transfer/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6886987/2025/12/13/wild-quinn-hughes-trade-bill-gue
 **Trump threatens to seize control of Washington, D.C.'s public golf courses**\
 `The Trump administration’s interest in Washington’s public golf courses is part of a larger plan to revamp the capital’s footprint.`\
 https://nytimes.com/athletic/6886848/2025/12/13/trump-administration-threatens-seize-dc-golf-courses/
-
-**Donald Trump honors 'Miracle on Ice' Olympic team with Congressional Gold Medal**\
-`The U.S. men's hockey team upset the Soviet Union in a medal round match at the 1980 Olympics in Lake Placid, N.Y.`\
-https://nytimes.com/athletic/6886819/2025/12/13/miracle-on-ice-olympic-hockey-congressional-medal/
 

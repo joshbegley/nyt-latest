@@ -1,3 +1,7 @@
+**Dustin May, Cardinals agree to one-year contract: Source**\
+`May, who made 23 starts last year between the Los Angeles Dodgers and Boston Red Sox, should slot in at the top of the Cardinals’ rotation.`\
+https://nytimes.com/athletic/6840410/2025/12/13/mlb-dustin-may-free-agency-signing-cardinals/
+
 **Utah promotes DC Morgan Scalley to head football coach**\
 `Scalley had agreed to an amended contract that made him "head coach-in-waiting" in November 2023.`\
 https://nytimes.com/athletic/6886983/2025/12/13/morgan-scalley-utah-football-coach/
