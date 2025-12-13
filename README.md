@@ -30,7 +30,7 @@ https://nytimes.com/athletic/6886499/2025/12/13/lightning-vs-islanders-stream-ho
 `The release of the prisoners, including a Nobel laureate and an opposition leader, was part of a monthslong rapprochement between Washington and Minsk.`\
 https://nytimes.com/2025/12/13/world/europe/belarus-lukasheno-potash-political-prisoners-russia.html
 
-**U.S. Forces Attacked in Syria, State Media Says**\
-`Injuries were reported in an attack that the Syrian government’s news agency said happened near the ancient city of Palmyra.`\
+**U.S. Forces Attacked in Syria, Syria State Media Says**\
+`Injuries were reported in an assault near the ancient city of Palmyra, the Syrian government’s news agency said.`\
 https://nytimes.com/2025/12/13/world/africa/us-forces-attacked-syria.html
 
