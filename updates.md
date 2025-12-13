@@ -1,3 +1,7 @@
+**Arizona State, Kenny Dillingham discussing pay raise amid interest from other schools**\
+`Dillingham has been linked to coaching jobs at Michigan, LSU and more, but he said he doesn't want to leave the Sun Devils.`\
+https://nytimes.com/athletic/6887018/2025/12/13/kenny-dillingham-arizona-state-contract-negotiations/
+
 **Toronto FC finalizing deal for Walker Zimmerman: Sources**\
 `The two-time MLS Defender of the Year was one of the best free-agent options on the market after leaving Nashville SC.`\
 https://nytimes.com/athletic/6887003/2025/12/13/toronto-fc-walker-zimmerman-mls/

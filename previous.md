@@ -1,3 +1,7 @@
+**Arizona State, Kenny Dillingham discussing pay raise amid interest from other schools**\
+`Dillingham has been linked to coaching jobs at Michigan, LSU and more, but he said he doesn't want to leave the Sun Devils.`\
+https://nytimes.com/athletic/6887018/2025/12/13/kenny-dillingham-arizona-state-contract-negotiations/
+
 **Toronto FC finalizing deal for Walker Zimmerman: Sources**\
 `The two-time MLS Defender of the Year was one of the best free-agent options on the market after leaving Nashville SC.`\
 https://nytimes.com/athletic/6887003/2025/12/13/toronto-fc-walker-zimmerman-mls/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6886992/2025/12/13/flames-vs-kings-stream-how-to-wa
 **How to watch UC Riverside vs. BYU men's basketball: Time, TV, streaming**\
 `Find out how to watch the UC Riverside Highlanders play the BYU Cougars, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6886980/2025/12/13/uc-riverside-vs-byu-stream-how-to-watch-dec-13/
-
-**How to watch Arizona vs. Alabama men's basketball: Time, TV, streaming**\
-`Find out how to watch the Arizona Wildcats play the Alabama Crimson Tide, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6886971/2025/12/13/arizona-vs-alabama-stream-how-to-watch-dec-13/
 
