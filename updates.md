@@ -1,3 +1,7 @@
+**Thailand Rejects Trump’s Claim That It Reached a Cease-Fire With Cambodia**\
+`The conflict appeared to have continued unabated on Saturday morning, a day after President Trump said a cease-fire was supposed to have resumed.`\
+https://nytimes.com/2025/12/13/world/asia/thailand-cambodia-trump-ceasefire.html
+
 **North Korean Soldiers Return to Fanfare After Serving in Russia’s War With Ukraine**\
 `Kim Jong-un hugged the returning troops and awarded the country’s highest medal to nine soldiers killed in action.`\
 https://nytimes.com/2025/12/13/world/asia/north-korea-soldiers-russia-ukraine.html
