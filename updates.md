@@ -1,3 +1,7 @@
+**Toronto FC finalizing deal for Walker Zimmerman: Sources**\
+`The two-time MLS Defender of the Year was one of the best free-agent options on the market after leaving Nashville SC.`\
+https://nytimes.com/athletic/6887003/2025/12/13/toronto-fc-walker-zimmerman-mls/
+
 **How the Wild pulled off the Quinn Hughes trade, from the first phone call to the final fist pump**\
 `Wild president of hockey operations and general manager Bill Guerin discusses the process of trading for the superstar defenseman.`\
 https://nytimes.com/athletic/6886987/2025/12/13/wild-quinn-hughes-trade-bill-guerin/

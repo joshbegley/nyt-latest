@@ -1,3 +1,7 @@
+**Toronto FC finalizing deal for Walker Zimmerman: Sources**\
+`The two-time MLS Defender of the Year was one of the best free-agent options on the market after leaving Nashville SC.`\
+https://nytimes.com/athletic/6887003/2025/12/13/toronto-fc-walker-zimmerman-mls/
+
 **How the Wild pulled off the Quinn Hughes trade, from the first phone call to the final fist pump**\
 `Wild president of hockey operations and general manager Bill Guerin discusses the process of trading for the superstar defenseman.`\
 https://nytimes.com/athletic/6886987/2025/12/13/wild-quinn-hughes-trade-bill-guerin/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6886980/2025/12/13/uc-riverside-vs-byu-stream-how-t
 **How to watch Arizona vs. Alabama men's basketball: Time, TV, streaming**\
 `Find out how to watch the Arizona Wildcats play the Alabama Crimson Tide, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6886971/2025/12/13/arizona-vs-alabama-stream-how-to-watch-dec-13/
-
-**Is Times New Roman Better Than Calibri for the State Department?**\
-`Type designers weigh in on the recent decision to replace Calibri with Times New Roman in official documents.`\
-https://nytimes.com/interactive/2025/12/13/us/calibri-font-times-new-roman-state-department.html
 
