@@ -1,3 +1,19 @@
+**Up All Night in New York, Selling Christmas Trees**\
+`Before Santa comes to town, the tree sellers do, packing themselves into trailers and vans across New York City to claim a slice of the competitive tree market.`\
+https://nytimes.com/2025/12/13/nyregion/nyc-christmas-trees.html
+
+**How the ‘Pasta Heiress’ Spends Her Day**\
+`Sarah Raffetto, the fourth-generation owner of Raffetto’s, spends her days cutting pasta and her nights singing her heart out.`\
+https://nytimes.com/2025/12/13/nyregion/how-sarah-raffetto-pasta.html
+
+**Eric Adams Doesn’t Care What His Critics Say: ‘I Lived Up to My Promise’**\
+`Interviewed as he prepares to leave City Hall, Mayor Eric Adams said that he hadn’t gotten the credit he deserved and that certain forces had always been arrayed against him.`\
+https://nytimes.com/2025/12/13/nyregion/eric-adams-interview.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/12/13/crosswords/spelling-bee-forum.html
+
 **Thailand Rejects Trump’s Claim That It Reached a Cease-Fire With Cambodia**\
 `The conflict appeared to have continued unabated on Saturday morning, a day after President Trump said a cease-fire was supposed to have resumed.`\
 https://nytimes.com/2025/12/13/world/asia/thailand-cambodia-trump-ceasefire.html
@@ -17,20 +33,4 @@ https://nytimes.com/athletic/6886076/2025/12/13/sixers-win-pacers-old-joel-embii
 **Steph Curry hits 100-foot shot before return to lineup, scores 39 in Warriors' loss**\
 `Curry played in his first game after missing five straight because of a quad injury, and he hit big shots before and during Friday's game.`\
 https://nytimes.com/athletic/6885536/2025/12/13/steph-curry-return-injury-warriors-nba/
-
-**The New York Times in Print for Saturday, Dec. 13, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/12/13/todays-new-york-times
-
-**Has Matthew Fisher's time finally come?**\
-`Fisher's progress has been frustrated by injury but, now with the help of Surrey and techniques used in baseball, he is ready to make a mark`\
-https://nytimes.com/athletic/6875461/2025/12/13/matthew-fisher-england-ashes-surrey-wood-lions/
-
-**Why Leeds' new 5-3-2 formation has shown potential — and could work**\
-`Leeds switched to a 5-3-2 formation against Manchester City and have been much better since. This is why the system works`\
-https://nytimes.com/athletic/6884914/2025/12/13/leeds-new-formation-analysis/
-
-**What happens when a star player goes to war with their club?**\
-`The Athletic looks back at five prominent examples of high-profile Premier League players taking on their clubs`\
-https://nytimes.com/athletic/6884287/2025/12/13/what-happens-when-a-star-player-goes-to-war-with-their-club/
 
