@@ -16,7 +16,7 @@ https://nytimes.com/athletic/6878215/2025/12/13/arsenal-wolves-premier-league-an
 
 **Here’s what to know.**\
 `The university sent an alert late Saturday afternoon warning students to hide. A suspect was not in custody, university officials said, correcting an earlier posting.`\
-https://nytimes.com/2025/12/13/us/brown-university-shooting.html
+https://nytimes.com/live/2025/12/13/us/brown-shooting/brown-university-shooting
 
 **Dustin May, Cardinals agree to 1-year contract: Sources**\
 `May, who made 23 starts in 2025 between the Los Angeles Dodgers and Boston Red Sox, should slot in at the top of the Cardinals’ rotation.`\
