@@ -22,6 +22,10 @@ https://nytimes.com/athletic/6885269/2025/12/13/blue-jackets-slow-start-spirals/
 `Love's Heisman campaign was hatched over the summer as the star running back worked with an associate AD to come up with ideas. `\
 https://nytimes.com/athletic/6885257/2025/12/13/jeremiyah-love-heisman-voting-notre-dame/
 
+**The Reasonable Majority Is No Longer Silent**\
+`Donald Trump is confronting a backlash of the reasonable.`\
+https://nytimes.com/2025/12/13/opinion/trump-swing-voters-approval-rating.html
+
 **The 3 leadership lessons an NBA coach learned from billion-dollar CEOs**\
 `A longtime NBA coach went on a "leadership tour" and met with a range of business leaders to learn what he could borrow on the court.`\
 https://nytimes.com/athletic/6884839/2025/12/13/nba-coach-leadership-lessons-business-joe-boylan/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6884839/2025/12/13/nba-coach-leadership-lessons-bus
 **The Athletic staff 2025-26 bowl pick 'em for every bowl game**\
 `Bowl pick 'em! The Athletic's staff made picks for bowl season for every bowl game, including the four first-round CFP games.`\
 https://nytimes.com/athletic/6876839/2025/12/13/bowl-predictions-the-athletic-bowl-pick-em/
-
-**Republican Women vs. the G.O.P.**\
-`Trump didn’t invent misogyny, but he’s leaning into it.`\
-https://nytimes.com/2025/12/13/opinion/gop-women-misogyny-problem.html
 
