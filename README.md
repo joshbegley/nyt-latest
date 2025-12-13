@@ -1,3 +1,11 @@
+**Flight Returns to Dulles After Engine Failure During Takeoff, F.A.A. Says**\
+`United Airlines Flight 803, which was headed to Toyko, safely landed at Washington Dulles International Airport in Virginia around 1:20 p.m. on Saturday, the F.A.A. said.`\
+https://nytimes.com/2025/12/13/us/dulles-airport-fire-washington.html
+
+**Yankees re-sign Amed Rosario to 1-year, $2.5 million contract: Source**\
+`The Yankees could use Rosario as a platoon option at third base with Ryan McMahon, who struggles against lefty pitching.`\
+https://nytimes.com/athletic/6873352/2025/12/13/mlb-amed-rosario-free-agency-signing-yankees/
+
 **WATCH: Has Shedeur Sanders done enough to be Browns' QB in 2026?**\
 `Sanders is in line four more starts this season, so he'll have an opportunity to play his way into the Browns' long-term QB plans.`\
 https://nytimes.com/athletic/6886796/2025/12/13/shedeur-sanders-film-breakdown-scouting-qb-2026/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6886736/2025/12/13/hurricanes-vs-flyers-stream-how-
 **How to watch Knicks vs. Magic: Time, TV, streaming**\
 `Find out how to watch the New York Knicks play the Orlando Magic, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6886733/2025/12/13/knicks-vs-magic-stream-how-to-watch-dec-13/
-
-**How to watch Panthers vs. Stars: Time, TV, streaming**\
-`Find out how to watch the Florida Panthers play the Dallas Stars, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6886729/2025/12/13/panthers-vs-stars-stream-how-to-watch-dec-13/
-
-**How to watch Capitals vs. Jets: Time, TV, streaming**\
-`Find out how to watch the Washington Capitals play the Winnipeg Jets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6886722/2025/12/13/capitals-vs-jets-stream-how-to-watch-dec-13/
 
