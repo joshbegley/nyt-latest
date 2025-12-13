@@ -1,3 +1,7 @@
+**Government Can Withhold Funds From Planned Parenthood, Appeals Court Rules**\
+`A three-judge panel threw out a lower court’s order, allowing the Trump administration to continue defunding the group and other major abortion providers.`\
+https://nytimes.com/2025/12/12/us/politics/planned-parenthood-medicaid-funding.html
+
 **Board of Creatives?**\
 `Gene Louise De Vera’s puzzle sets a record!`\
 https://nytimes.com/2025/12/12/crosswords/daily-puzzle-2025-12-13.html
