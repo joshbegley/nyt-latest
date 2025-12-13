@@ -1,3 +1,15 @@
+**Scoop City: Fantasy tips to win Week 15**\
+`You can't sit Lamar Jackson, but you can worry about his ceiling. Why Isaiah Likely is a top-10 TE this week and more. `\
+https://nytimes.com/athletic/6885597/2025/12/13/everything-fantasy-football-managers-need-to-know-for-week-15/
+
+**Eight Eagles thoughts: Saquon Barkley — not a bunny — offers reason for positivity**\
+`The Eagles host the 2-11 Las Vegas Raiders this week for a chance to change the discourse about the team, at least for one week.`\
+https://nytimes.com/athletic/6885563/2025/12/13/philadelphia-eagles-saquon-barkley-jordan-davis/
+
+**10 bowls to celebrate college football uniqueness: Blue turf, orange snacks, Honolulu sky**\
+`Blue turf, orange snacks, Tampa pirate ships and "Mouth Heaven." Don't sleep on the non-CFP bowl games.`\
+https://nytimes.com/athletic/6883170/2025/12/13/college-football-weird-bowl-games-pop-tarts-schedule/
+
 **Baby Steps**\
 `The antidote to our increasingly disembodied lives may lie in letting go of our inhibitions and dancing like kids do.`\
 https://nytimes.com/2025/12/13/briefing/baby-steps.html
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/6885269/2025/12/13/blue-jackets-slow-start-spirals/
 **How Notre Dame built Jeremiyah Love's Heisman Trophy campaign**\
 `Love's Heisman campaign was hatched over the summer as the star running back worked with an associate AD to come up with ideas. `\
 https://nytimes.com/athletic/6885257/2025/12/13/jeremiyah-love-heisman-voting-notre-dame/
-
-**The Reasonable Majority Is No Longer Silent**\
-`Donald Trump is confronting a backlash of the reasonable.`\
-https://nytimes.com/2025/12/13/opinion/trump-swing-voters-approval-rating.html
-
-**The 3 leadership lessons an NBA coach learned from billion-dollar CEOs**\
-`A longtime NBA coach went on a "leadership tour" and met with a range of business leaders to learn what he could borrow on the court.`\
-https://nytimes.com/athletic/6884839/2025/12/13/nba-coach-leadership-lessons-business-joe-boylan/
-
-**The Athletic staff 2025-26 bowl pick 'em for every bowl game**\
-`Bowl pick 'em! The Athletic's staff made picks for bowl season for every bowl game, including the four first-round CFP games.`\
-https://nytimes.com/athletic/6876839/2025/12/13/bowl-predictions-the-athletic-bowl-pick-em/
 

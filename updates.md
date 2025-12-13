@@ -1,3 +1,15 @@
+**Scoop City: Fantasy tips to win Week 15**\
+`You can't sit Lamar Jackson, but you can worry about his ceiling. Why Isaiah Likely is a top-10 TE this week and more. `\
+https://nytimes.com/athletic/6885597/2025/12/13/everything-fantasy-football-managers-need-to-know-for-week-15/
+
+**Eight Eagles thoughts: Saquon Barkley — not a bunny — offers reason for positivity**\
+`The Eagles host the 2-11 Las Vegas Raiders this week for a chance to change the discourse about the team, at least for one week.`\
+https://nytimes.com/athletic/6885563/2025/12/13/philadelphia-eagles-saquon-barkley-jordan-davis/
+
+**10 bowls to celebrate college football uniqueness: Blue turf, orange snacks, Honolulu sky**\
+`Blue turf, orange snacks, Tampa pirate ships and "Mouth Heaven." Don't sleep on the non-CFP bowl games.`\
+https://nytimes.com/athletic/6883170/2025/12/13/college-football-weird-bowl-games-pop-tarts-schedule/
+
 **The Reasonable Majority Is No Longer Silent**\
 `Donald Trump is confronting a backlash of the reasonable.`\
 https://nytimes.com/2025/12/13/opinion/trump-swing-voters-approval-rating.html
