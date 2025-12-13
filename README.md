@@ -1,5 +1,9 @@
+**World Cup ticket requests top 5M in first 24 hours, says FIFA**\
+`The governing body indicated strong sales as the latest wave of ticketing availability opened`\
+https://nytimes.com/athletic/6885726/2025/12/12/world-cup-ticket-requests-fifa-third-phase/
+
 **National Guardsman Who Was Shot Is Making ‘Extraordinary Progress,’ Doctor Says**\
-`Staff Sgt. Andrew Wolfe, who suffered a head wound in the shooting near the White House last month, has moved from acute care to rehabilitation, a doctor said.`\
+`Staff Sgt. Andrew Wolfe, who suffered a head wound in the shooting near the White House last month, has moved from acute care to rehabilitation.`\
 https://nytimes.com/2025/12/12/us/national-guard-dc-shooting-andrew-wolfe.html
 
 **Risk-Based Screening Works as Well as Yearly Checks After 40 in Finding Breast Cancers**\
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6885586/2025/12/12/wnba-caitlin-clark-cba-negotiati
 **Rescuers Work to Evacuate Flooded Areas of Washington**\
 `Also, T.S.A. is giving passenger data to immigration agents. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2025/12/12/briefing/storm-flooding-washington-tsa-ice-data.html
-
-**For Republicans, Trump’s Hands-Off Approach to Health Care Is a Problem**\
-`The prospect of soaring health care costs could exacerbate Americans’ feelings about affordability, an issue that President Trump has tried to downplay. But Democrats plan to keep the issue front and center.`\
-https://nytimes.com/2025/12/12/us/politics/trump-republicans-obamacare-health-costs.html
 
