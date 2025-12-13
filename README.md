@@ -1,3 +1,11 @@
+**Fergie's fury and going to games in disguise - when our reporters were banned**\
+`The Athletic's reporters try to have constructive relationships with clubs, but sometimes things can become frosty...`\
+https://nytimes.com/athletic/6881282/2025/12/13/reporters-banned-premier-league-clubs/
+
+**Liverpool are creating more chances than opponents, so have they just been unlucky?**\
+`Why do some teams consistently 'win' on xG but lose the match? Is it just luck or is there more to it?`\
+https://nytimes.com/athletic/6881450/2025/12/13/liverpool-xg-premier-league-slot-luck/
+
 **Gory, never glory: Newcastle, Sunderland and why the 'desperation derby' is everything**\
 `Newcastle and Sunderland face each other for the first time in the Premier League since 2016. It will mean everything to both sets of fans`\
 https://nytimes.com/athletic/6884181/2025/12/13/newcastle-sunderland-premier-league-derby/
@@ -25,13 +33,4 @@ https://nytimes.com/athletic/6885987/2025/12/12/big-12-conference-business-partn
 **Quote of the Day: For Ukrainians, U.S. Talks Are Just Background Din to Blackouts**\
 `Quotation of the Day for Saturday, December 13, 2025.`\
 https://nytimes.com/2025/12/12/pageoneplus/quote-of-the-day-for-ukrainians-us-talks-are-just-background-din-to-blackouts.html
-
-**Testimony concludes in Tyler Skaggs trial as Angels president John Carpino takes the stand**\
-`Carpino acknowledged that the team declined to pay out the remainder of Skaggs’ 2019 contract after his death.`\
-https://nytimes.com/athletic/6886068/2025/12/12/angels-president-john-carpino-tyler-skaggs-trial-testimony/
-
-**Blackhawks' Connor Bedard injured after 'freak accident' against Blues**\
-`Bedard will not play against the Red Wings on Saturday, and more information is expected to be available Monday after further evaluation.
-`\
-https://nytimes.com/athletic/6886034/2025/12/12/blackhawks-connor-bedard-injury-blues-shoulder/
 
