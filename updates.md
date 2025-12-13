@@ -1,3 +1,11 @@
+**Why the Canucks decided to move swiftly and trade Quinn Hughes**\
+`On Friday, Vancouver dealt one of the biggest stars in the history of the franchise in a somewhat purely future-oriented deal.`\
+https://nytimes.com/athletic/6885808/2025/12/12/vancouver-canucks-quinn-hughes-trade/
+
+**The latest on the Mets' offseason, why Alonso beat Schwarber and more MLB notes**\
+`Plus details on Luis Robert's potential trade market, a possible destination for Pete Fairbanks and a next free-agent to return from Japan.`\
+https://nytimes.com/athletic/6885854/2025/12/12/mets-stearns-cohen-alonso-schwarber-robert-offseason-mlb/
+
 **U.S. Boarded Ship and Seized Cargo Heading to Iran From China**\
 `The seizure last month came amid fears of a renewed conflict between Iran and Israel.`\
 https://nytimes.com/2025/12/12/us/politics/cargo-ship-seized-iran-china.html
