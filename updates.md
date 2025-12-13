@@ -1,3 +1,7 @@
+**Has Matthew Fisher's time finally come?**\
+`Fisher's progress has been frustrated by injury but, now with the help of Surrey and techniques used in baseball, he is ready to make a mark`\
+https://nytimes.com/athletic/6875461/2025/12/13/matthew-fisher-england-ashes-surrey-wood-lions/
+
 **Why Leeds' new 5-3-2 formation has shown potential — and could work**\
 `Leeds switched to a 5-3-2 formation against Manchester City and have been much better since. This is why the system works`\
 https://nytimes.com/athletic/6884914/2025/12/13/leeds-new-formation-analysis/
