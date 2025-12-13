@@ -1,3 +1,7 @@
+**Why Won’t Senators Stand Up to Trump? We Asked 3 Who Called It Quits.**\
+`The current and former lawmakers get candid about bipartisan politics, party leadership and the state of the Senate.`\
+https://nytimes.com/2025/12/13/magazine/senators-manchin-flake-smith-interview.html
+
 **Can Trump’s Grand Plans for Gaza Get Off the Drawing Board?**\
 `The next steps for the president’s 20-point Gaza peace plan have been mired in uncertainty and a lack of detail, but that may be set to change. Here’s what to know.`\
 https://nytimes.com/2025/12/13/world/middleeast/trump-gaza-plans-postwar.html
