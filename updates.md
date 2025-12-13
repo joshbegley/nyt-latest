@@ -1,3 +1,7 @@
+**Donte DiVincenzo's late-game guts were honed in Steph Curry's shadow**\
+`On Friday night, Curry and the Warriors lost because he created a monster in DiVincenzo three years ago, or so the monster says.`\
+https://nytimes.com/athletic/6886199/2025/12/13/donte-divincenzos-steph-curry-timberwolves-warriors/
+
 **How to watch Sharks vs. Penguins: Time, TV, streaming**\
 `Find out how to watch the San Jose Sharks play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6886500/2025/12/13/sharks-vs-penguins-stream-how-to-watch-dec-13/
