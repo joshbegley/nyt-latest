@@ -1,3 +1,15 @@
+**The Briefing: Arsenal 2 Wolves 1 - Own goal and own goal again restore five-point lead for Arteta's side**\
+`The Athletic's writers analyse Arsenal's nervy win against Wolves at the Emirates Stadium`\
+https://nytimes.com/athletic/6878215/2025/12/13/arsenal-wolves-premier-league-analysis-result/
+
+**Dustin May, Cardinals agree to 1-year contract: Sources**\
+`May, who made 23 starts last year between the Los Angeles Dodgers and Boston Red Sox, should slot in at the top of the Cardinals’ rotation.`\
+https://nytimes.com/athletic/6840410/2025/12/13/mlb-dustin-may-free-agency-signing-cardinals/
+
+**Brandon Aiyuk put on reserve/left squad list; 49ers tenure likely over**\
+`The wide receiver hasn't played since a Week 7 multi-ligament injury in 2024.`\
+https://nytimes.com/athletic/6887016/2025/12/13/brandon-aiyuk-49ers-season-over/
+
 **Active Shooter Alert Issued at Brown University**\
 `In an emergency alert, the school told students and faculty to lock doors, silence phones and hide. A suspect was in custody.`\
 https://nytimes.com/2025/12/13/us/brown-university-shooting.html

@@ -1,8 +1,12 @@
+**The Briefing: Arsenal 2 Wolves 1 - Own goal and own goal again restore five-point lead for Arteta's side**\
+`The Athletic's writers analyse Arsenal's nervy win against Wolves at the Emirates Stadium`\
+https://nytimes.com/athletic/6878215/2025/12/13/arsenal-wolves-premier-league-analysis-result/
+
 **Active Shooter Alert Issued at Brown University**\
 `In an emergency alert, the school told students and faculty to lock doors, silence phones and hide. A suspect was in custody.`\
 https://nytimes.com/2025/12/13/us/brown-university-shooting.html
 
-**Dustin May, Cardinals agree to one-year contract: Source**\
+**Dustin May, Cardinals agree to 1-year contract: Sources**\
 `May, who made 23 starts last year between the Los Angeles Dodgers and Boston Red Sox, should slot in at the top of the Cardinals’ rotation.`\
 https://nytimes.com/athletic/6840410/2025/12/13/mlb-dustin-may-free-agency-signing-cardinals/
 
@@ -14,7 +18,7 @@ https://nytimes.com/athletic/6886817/2025/12/13/lanorris-sellers-nfl-draft-south
 `The strike on a United Nations base in the southern Kordofan region was the deadliest single episode for the body’s personnel in Sudan’s civil war.`\
 https://nytimes.com/2025/12/13/world/africa/sudan-un-peacekeepers-killed-drone-strike.html
 
-**Brandon Aiyuk put on reserve/left squad list; season, and likely 49ers tenure, over**\
+**Brandon Aiyuk put on reserve/left squad list; 49ers tenure likely over**\
 `The wide receiver hasn't played since a Week 7 multi-ligament injury in 2024.`\
 https://nytimes.com/athletic/6887016/2025/12/13/brandon-aiyuk-49ers-season-over/
 
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6887018/2025/12/13/kenny-dillingham-arizona-state-c
 **Toronto FC finalizing deal for Walker Zimmerman: Sources**\
 `The two-time MLS Defender of the Year was one of the best free-agent options on the market after leaving Nashville SC.`\
 https://nytimes.com/athletic/6887003/2025/12/13/toronto-fc-walker-zimmerman-mls/
-
-**How the Wild pulled off the Quinn Hughes trade, from the first phone call to the final fist pump**\
-`Wild president of hockey operations and general manager Bill Guerin discusses the process of trading for the superstar defenseman.`\
-https://nytimes.com/athletic/6886987/2025/12/13/wild-quinn-hughes-trade-bill-guerin/
 

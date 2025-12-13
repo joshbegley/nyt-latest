@@ -1,4 +1,4 @@
-**The Briefing: Arsenal 2 Wolves 1 - Own goal and own goal again restore five-point lead for Arteta's side**\
+**The Briefing: Arsenal 2 Wolves 1 - Own-goal double restores five-point lead for Arteta's side**\
 `The Athletic's writers analyse Arsenal's nervy win against Wolves at the Emirates Stadium`\
 https://nytimes.com/athletic/6878215/2025/12/13/arsenal-wolves-premier-league-analysis-result/
 
@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6878215/2025/12/13/arsenal-wolves-premier-league-an
 https://nytimes.com/2025/12/13/us/brown-university-shooting.html
 
 **Dustin May, Cardinals agree to 1-year contract: Sources**\
-`May, who made 23 starts last year between the Los Angeles Dodgers and Boston Red Sox, should slot in at the top of the Cardinals’ rotation.`\
+`May, who made 23 starts in 2025 between the Los Angeles Dodgers and Boston Red Sox, should slot in at the top of the Cardinals’ rotation.`\
 https://nytimes.com/athletic/6840410/2025/12/13/mlb-dustin-may-free-agency-signing-cardinals/
 
 **LaNorris Sellers expected to pass on 2026 NFL Draft, stay at South Carolina**\
