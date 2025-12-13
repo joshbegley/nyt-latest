@@ -1,3 +1,7 @@
+**Behind the Seized Venezuelan Tanker, Cuba’s Secret Lifeline**\
+`Firms with ties to Cuba are getting a larger share of Venezuelan oil exports, as the island’s security agents boost President Nicolás Maduro’s defenses.`\
+https://nytimes.com/2025/12/12/world/americas/venezuela-cuba-oil-tanker.html
+
 **House G.O.P. Releases Health Plan That Would Allow Subsidies to End**\
 `The legislation, expected to come to a vote next week, would make changes that could eventually affect health care costs but are unlikely to immediately curb rising premiums.`\
 https://nytimes.com/2025/12/12/us/politics/republican-health-care-plan-subsidies-expire.html
