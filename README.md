@@ -1,3 +1,7 @@
+**Messi's India tour begins in chaos as probe launched into 'deeply disturbing' vandalism**\
+`Footage from India's ANI news agency showed hundreds of fans invading the pitch, vandalising the stands and goal nets at the 85,000 stadium.`\
+https://nytimes.com/athletic/6886282/2025/12/13/lionel-messi-india-tour-violence-vandalism/
+
 **NBA Cup semifinals watch guide: Knicks vs. Magic, Thunder vs. Spurs in Las Vegas**\
 `Four teams remain in the third annual NBA in-season tournament. Saturday's doubleheader goes down in Las Vegas and on Prime Video.`\
 https://nytimes.com/athletic/6882659/2025/12/13/nba-cup-semifinals-knicks-magic-thunder-spurs-tv/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6845102/2025/12/13/rwanda-f1-race-africa/
 **Can I Insist That My Dysfunctional Son Get a Vasectomy?**\
 `I’ve told him that I won’t continue supporting him unless he agrees.`\
 https://nytimes.com/2025/12/13/magazine/son-vasectomy-ethics.html
-
-**Trump’s Nvidia Deal Undermines National Security**\
-`This week, Donald Trump announced that he would allow Nvidia to sell chips to China. The Times Opinion editor, Kathleen Kingsbury, argues that the move undermines national security.`\
-https://nytimes.com/video/opinion/100000010584310/trumps-nvidia-deal-undermines-national-security.html
 
