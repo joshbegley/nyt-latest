@@ -1,3 +1,7 @@
+**U.S. Boarded Ship and Seized Cargo Heading to Iran From China**\
+`The seizure last month came amid fears of a renewed conflict between Iran and Israel.`\
+https://nytimes.com/2025/12/12/us/politics/us-boarded-ship-and-seized-cargo-heading-to-iran-from-china.html
+
 **NHL trade grades: Wild get Quinn Hughes and enter win-now mode, but it's costly**\
 `Hughes provides the Wild with a superstar at a premium position, something they have dearly lacked.`\
 https://nytimes.com/athletic/6885786/2025/12/12/nhl-trade-grades-quinn-hughes-wild-canucks/
