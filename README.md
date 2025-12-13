@@ -1,3 +1,7 @@
+**Republican Women vs. the G.O.P.**\
+`Trump didn’t invent misogyny, but he’s leaning into it.`\
+https://nytimes.com/video/opinion/100000010583542/republican-women-vs-the-gop.html
+
 **Fernando Mendoza, Heisman favorite, needs to be the answer for the Jets**\
 `Evidence suggests the Jets should use their draft capital (not all of it) to land Mendoza, whose traits can help end their run of futility.`\
 https://nytimes.com/athletic/6885343/2025/12/13/fernando-mendoza-jets-heisman-trophy-2026-nfl-draft/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6886351/2025/12/13/michigan-state-vs-penn-state-str
 **How to watch Iona vs. St. John's men's basketball: Time, TV, streaming**\
 `Find out how to watch the Iona Gaels play the St. John's Red Storm, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6886352/2025/12/13/iona-vs-st-john-s-stream-how-to-watch-dec-13/
-
-**How to watch Arkansas vs. Texas Tech men's basketball: Time, TV, streaming**\
-`Find out how to watch the Arkansas Razorbacks play the Texas Tech Red Raiders, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6886348/2025/12/13/arkansas-vs-texas-tech-stream-how-to-watch-dec-13/
 
