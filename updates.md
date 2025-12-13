@@ -1,3 +1,7 @@
+**How Did the C.I.A. Lose a Nuclear Device?**\
+`A plutonium-packed generator disappeared on one of the world’s highest mountains in a covert mission that the U.S. will not talk about.`\
+https://nytimes.com/interactive/2025/12/13/world/asia/cia-nuclear-device-himalayas-nanda-devi.html
+
 **New York Could See Its First Big Snow of the Season This Weekend**\
 `Up to three inches of snow is forecast in the city and across the region from late Saturday into Sunday morning.`\
 https://nytimes.com/2025/12/13/weather/nyc-snow-forecast.html
