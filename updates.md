@@ -1,3 +1,7 @@
+**Baby Steps**\
+`The antidote to our increasingly disembodied lives may lie in letting go of our inhibitions and dancing like kids do.`\
+https://nytimes.com/2025/12/13/briefing/baby-steps.html
+
 **Blues' best prospect development surprise? Jiricek's upside? Subscriber Q&A with Tim Taylor, part 2**\
 `The Blues' assistant GM says he sees Adam Jiricek trending toward being a No. 1 defenseman in the NHL: 'This kid does everything.'`\
 https://nytimes.com/athletic/6880342/2025/12/13/blues-tim-taylor-jiricek-fischer/
