@@ -1,3 +1,7 @@
+**Fernando Mendoza, Heisman favorite, needs to be the answer for the Jets**\
+`Evidence suggests the Jets should use their draft capital (not all of it) to land Mendoza, whose traits can help end their run of futility.`\
+https://nytimes.com/athletic/6885343/2025/12/13/fernando-mendoza-jets-heisman-trophy-2026-nfl-draft/
+
 **How to watch Senators vs. Wild: Time, TV, streaming**\
 `Find out how to watch the Ottawa Senators play the Minnesota Wild, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6886364/2025/12/13/senators-vs-wild-stream-how-to-watch-dec-13/

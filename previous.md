@@ -1,3 +1,7 @@
+**Fernando Mendoza, Heisman favorite, needs to be the answer for the Jets**\
+`Evidence suggests the Jets should use their draft capital (not all of it) to land Mendoza, whose traits can help end their run of futility.`\
+https://nytimes.com/athletic/6885343/2025/12/13/fernando-mendoza-jets-heisman-trophy-2026-nfl-draft/
+
 **How to watch Senators vs. Wild: Time, TV, streaming**\
 `Find out how to watch the Ottawa Senators play the Minnesota Wild, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6886364/2025/12/13/senators-vs-wild-stream-how-to-watch-dec-13/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6886352/2025/12/13/iona-vs-st-john-s-stream-how-to-
 **How to watch Arkansas vs. Texas Tech men's basketball: Time, TV, streaming**\
 `Find out how to watch the Arkansas Razorbacks play the Texas Tech Red Raiders, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6886348/2025/12/13/arkansas-vs-texas-tech-stream-how-to-watch-dec-13/
-
-**How to watch Wofford vs. Ole Miss women's basketball: Time, TV, streaming**\
-`Find out how to watch the Wofford Terriers play the Ole Miss Rebels, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6886346/2025/12/13/wofford-vs-ole-miss-stream-how-to-watch-dec-13/
 
