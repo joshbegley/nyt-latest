@@ -1,3 +1,7 @@
+**Can Trump’s Grand Plans for Gaza Get Off the Drawing Board?**\
+`The next steps for the president’s 20-point Gaza peace plan have been mired in uncertainty and a lack of detail, but that may be set to change. Here’s what to know.`\
+https://nytimes.com/2025/12/13/world/middleeast/trump-gaza-plans-postwar.html
+
 **A Measles Outbreak Brings With It Echoes of the Pandemic**\
 `In South Carolina, parents struggle to deal with infections that have brought quarantines and remote learning. Health care workers are bracing for an increase in cases.`\
 https://nytimes.com/2025/12/13/us/a-measles-outbreak-brings-with-it-echoes-of-the-pandemic.html

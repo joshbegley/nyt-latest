@@ -1,3 +1,7 @@
+**Why Won’t Senators Stand Up to Trump? We Asked 3 Who Called It Quits.**\
+`The current and former lawmakers get candid about bipartisan politics, party leadership and the state of the Senate.`\
+https://nytimes.com/2025/12/13/magazine/senators-manchin-flake-smith-interview.html
+
 **Can Trump’s Grand Plans for Gaza Get Off the Drawing Board?**\
 `The next steps for the president’s 20-point Gaza peace plan have been mired in uncertainty and a lack of detail, but that may be set to change. Here’s what to know.`\
 https://nytimes.com/2025/12/13/world/middleeast/trump-gaza-plans-postwar.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/13/us/politics/biden-presidential-library-delaware.h
 **What Is a ‘Zombie Mortgage,’ and How Can You Avoid It?**\
 `After the housing crash in 2008, thousands of second mortgages became worthless. But they never really died.`\
 https://nytimes.com/2025/12/13/realestate/what-is-a-zombie-mortgage-and-how-can-you-avoid-it.html
-
-**Social Security Disability, a Protection for Some Workers, Is at a Crossroads**\
-`The benefits provide important economic support for older people who cannot work. The White House recently halted changes to the program that had worried some experts.`\
-https://nytimes.com/2025/12/13/business/social-security-disability-insurance-retirement.html
 
