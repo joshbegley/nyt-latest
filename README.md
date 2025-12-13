@@ -1,3 +1,7 @@
+**Thailand Rejects Trump’s Claim That It Reached a Cease-Fire With Cambodia**\
+`The conflict appeared to have continued unabated on Saturday morning, a day after President Trump said a cease-fire was supposed to have resumed.`\
+https://nytimes.com/2025/12/13/world/asia/thailand-cambodia-trump-ceasefire.html
+
 **North Korean Soldiers Return to Fanfare After Serving in Russia’s War With Ukraine**\
 `Kim Jong-un hugged the returning troops and awarded the country’s highest medal to nine soldiers killed in action.`\
 https://nytimes.com/2025/12/13/world/asia/north-korea-soldiers-russia-ukraine.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6884914/2025/12/13/leeds-new-formation-analysis/
 **What happens when a star player goes to war with their club?**\
 `The Athletic looks back at five prominent examples of high-profile Premier League players taking on their clubs`\
 https://nytimes.com/athletic/6884287/2025/12/13/what-happens-when-a-star-player-goes-to-war-with-their-club/
-
-**Fergie's fury and going to games in disguise - when our reporters were banned**\
-`The Athletic's reporters try to have constructive relationships with clubs, but sometimes things can become frosty...`\
-https://nytimes.com/athletic/6881282/2025/12/13/reporters-banned-premier-league-clubs/
 
