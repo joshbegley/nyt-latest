@@ -1,3 +1,11 @@
+**Appeals Court Says Trump Must End Los Angeles Deployment by Monday**\
+`While the decision did not remove the National Guard troops from the president’s control, it blocked him from using them in the nation’s second-largest city.`\
+https://nytimes.com/2025/12/13/us/california-national-guard-trump-los-angeles.html
+
+**Georgia Bulldogs freshmen arrested on shoplifting charges**\
+`The two freshmen were arrested in Athens, Ga., and charged with misdemeanor shoplifting.`\
+https://nytimes.com/athletic/6887014/2025/12/13/georgia-football-players-shoplifting-charges/
+
 **Paul Wiggin, Browns legend and Stanford coach during "The Play," dies at 91**\
 `Wiggin teamed with Jim Brown to help Cleveland win the 1964 NFL title and was Stanford’s coach for one of football’s most famous plays.`\
 https://nytimes.com/athletic/6887078/2025/12/13/paul-wiggin-cleveland-browns-stanford-coach-dies/
