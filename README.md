@@ -1,3 +1,7 @@
+**Can Trump’s Grand Plans for Gaza Get Off the Drawing Board?**\
+`The next steps for the president’s 20-point Gaza peace plan have been mired in uncertainty and a lack of detail, but that may be set to change. Here’s what to know.`\
+https://nytimes.com/2025/12/13/world/middleeast/trump-gaza-plans-postwar.html
+
 **A Measles Outbreak Brings With It Echoes of the Pandemic**\
 `In South Carolina, parents struggle to deal with infections that have brought quarantines and remote learning. Health care workers are bracing for an increase in cases.`\
 https://nytimes.com/2025/12/13/us/a-measles-outbreak-brings-with-it-echoes-of-the-pandemic.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/13/realestate/what-is-a-zombie-mortgage-and-how-can-
 **Social Security Disability, a Protection for Some Workers, Is at a Crossroads**\
 `The benefits provide important economic support for older people who cannot work. The White House recently halted changes to the program that had worried some experts.`\
 https://nytimes.com/2025/12/13/business/social-security-disability-insurance-retirement.html
-
-**What to know about this year's Army-Navy Game, from odds to stats**\
-`For the 126th time, Army and Navy will face off on turf. Here's how to watch Saturday's rivalry game.`\
-https://nytimes.com/athletic/6885332/2025/12/13/army-navy-game-college-football-history-tv-odds/
 

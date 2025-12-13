@@ -1,36 +1,36 @@
-**How Did the C.I.A. Lose a Nuclear Device?**\
-`A plutonium-packed generator disappeared on one of the world’s highest mountains in a covert mission that the U.S. will not talk about.`\
-https://nytimes.com/interactive/2025/12/13/world/asia/cia-nuclear-device-himalayas-nanda-devi.html
+**A Measles Outbreak Brings With It Echoes of the Pandemic**\
+`In South Carolina, parents struggle to deal with infections that have brought quarantines and remote learning. Health care workers are bracing for an increase in cases.`\
+https://nytimes.com/2025/12/13/us/a-measles-outbreak-brings-with-it-echoes-of-the-pandemic.html
 
-**New York Could See Its First Big Snow of the Season This Weekend**\
-`Up to three inches of snow is forecast in the city and across the region from late Saturday into Sunday morning.`\
-https://nytimes.com/2025/12/13/weather/nyc-snow-forecast.html
+**Korea’s English Exam Was So Hard It Prompted an Apology. How Would You Do?**\
+`South Korea has a notoriously grueling college entrance exam. This year’s English portion was so difficult that it led to a resignation. Could you answer some of the questions correctly?`\
+https://nytimes.com/2025/12/13/world/asia/korea-english-exam-how-would-you-do.html
 
-**Up All Night in New York, Selling Christmas Trees**\
-`Before Santa comes to town, the tree sellers do, packing themselves into trailers and vans across New York City to claim a slice of the competitive tree market.`\
-https://nytimes.com/2025/12/13/nyregion/nyc-christmas-trees.html
+**Colorado Officials Reject Trump’s ‘Pardon’ of a Convicted Election Denier**\
+`The president’s stated intention to pardon Tina Peters, jailed for tampering with election machines in 2020, has set off a legal fight over the extent of Mr. Trump’s pardon powers.`\
+https://nytimes.com/2025/12/13/us/politics/trump-tina-peters.html
 
-**How the ‘Pasta Heiress’ Spends Her Day**\
-`Sarah Raffetto, the fourth-generation owner of Raffetto’s, spends her days cutting pasta and her nights singing her heart out.`\
-https://nytimes.com/2025/12/13/nyregion/how-sarah-raffetto-pasta.html
+**My Boss Got Way Too Drunk at the Christmas Party**\
+`And now I’m dealing with the consequences.`\
+https://nytimes.com/2025/12/13/business/my-boss-got-way-too-drunk-at-the-christmas-party.html
 
-**Eric Adams Doesn’t Care What His Critics Say: ‘I Lived Up to My Promise’**\
-`Interviewed as he prepares to leave City Hall, Mayor Eric Adams said that he hadn’t gotten the credit he deserved and that certain forces had always been arrayed against him.`\
-https://nytimes.com/2025/12/13/nyregion/eric-adams-interview.html
+**The Crime Wave Reshaping Latin American Politics**\
+`Security has become a top concern for voters across the region who are calling for iron-fisted measures. In Chile, the issue is pushing the country to the right.`\
+https://nytimes.com/2025/12/13/world/americas/chile-election-latin-america-crime.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/12/13/crosswords/spelling-bee-forum.html
+**Biden Has Raised Little of What He Needs to Build a Presidential Library**\
+`His library foundation has told the I.R.S. that by the end of 2027 it expects to bring in just $11.3 million — not nearly enough for a traditional presidential library.`\
+https://nytimes.com/2025/12/13/us/politics/biden-presidential-library-delaware.html
 
-**Thailand Rejects Trump’s Claim That It Reached a Cease-Fire With Cambodia**\
-`The conflict appeared to have continued unabated on Saturday morning, a day after President Trump said a cease-fire was supposed to have resumed.`\
-https://nytimes.com/2025/12/13/world/asia/thailand-cambodia-trump-ceasefire.html
+**What Is a ‘Zombie Mortgage,’ and How Can You Avoid It?**\
+`After the housing crash in 2008, thousands of second mortgages became worthless. But they never really died.`\
+https://nytimes.com/2025/12/13/realestate/what-is-a-zombie-mortgage-and-how-can-you-avoid-it.html
 
-**North Korean Soldiers Return to Fanfare After Serving in Russia’s War With Ukraine**\
-`Kim Jong-un hugged the returning troops and awarded the country’s highest medal to nine soldiers killed in action.`\
-https://nytimes.com/2025/12/13/world/asia/north-korea-soldiers-russia-ukraine.html
+**Social Security Disability, a Protection for Some Workers, Is at a Crossroads**\
+`The benefits provide important economic support for older people who cannot work. The White House recently halted changes to the program that had worried some experts.`\
+https://nytimes.com/2025/12/13/business/social-security-disability-insurance-retirement.html
 
-**20 States Sue to Block $100,000 Fee for H-1B Visas**\
-`California and New York are among the states arguing that the Trump administration’s decision to charge that fee for skilled foreign workers is illegal.`\
-https://nytimes.com/2025/12/13/us/politics/states-lawsuit-h1b-visas.html
+**What to know about this year's Army-Navy Game, from odds to stats**\
+`For the 126th time, Army and Navy will face off on turf. Here's how to watch Saturday's rivalry game.`\
+https://nytimes.com/athletic/6885332/2025/12/13/army-navy-game-college-football-history-tv-odds/
 
