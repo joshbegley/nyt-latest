@@ -1,3 +1,15 @@
+**Sixers drop Pacers as the old Joel Embiid scores season-high 39 points**\
+`Friday night was the first bit of proof that the old Joel Embiid can still show up and take over.`\
+https://nytimes.com/athletic/6886076/2025/12/13/sixers-win-pacers-old-joel-embiid-returns/
+
+**Steph Curry returns to Warriors after missing 5 games with quad injury**\
+`Warriors guard adds pregame theatrics to a vintage performance, minus a win.`\
+https://nytimes.com/athletic/6885536/2025/12/13/steph-curry-return-injury-warriors-nba/
+
+**The New York Times in Print for Saturday, Dec. 13, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/12/13/todays-new-york-times
+
 **Has Matthew Fisher's time finally come?**\
 `Fisher's progress has been frustrated by injury but, now with the help of Surrey and techniques used in baseball, he is ready to make a mark`\
 https://nytimes.com/athletic/6875461/2025/12/13/matthew-fisher-england-ashes-surrey-wood-lions/
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/6881450/2025/12/13/liverpool-xg-premier-league-slot
 **Gory, never glory: Newcastle, Sunderland and why the 'desperation derby' is everything**\
 `Newcastle and Sunderland face each other for the first time in the Premier League since 2016. It will mean everything to both sets of fans`\
 https://nytimes.com/athletic/6884181/2025/12/13/newcastle-sunderland-premier-league-derby/
-
-**Back on song with Everton, Dewsbury-Hall has a point to prove against Chelsea**\
-`Dewsbury-Hall was a bit-part player at Chelsea. A £25m move to Everton has given him a fresh lease of life`\
-https://nytimes.com/athletic/6882181/2025/12/13/everton-kiernan-dewsbury-hall-chelsea/
-
-**Connections: Sports Edition Coach: Hints for Dec. 13, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6885639/2025/12/13/connections-sports-edition-hints-for-dec-13-2025/
-
-**Corrections: Dec. 13, 2025**\
-`Corrections that appeared in print on Saturday, Dec. 13, 2025.`\
-https://nytimes.com/2025/12/13/pageoneplus/corrections-dec-13-2025.html
 
