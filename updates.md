@@ -1,3 +1,7 @@
+**Students Told to Hide From ‘Active Shooter’ at Brown University**\
+`A suspect was not in custody, university officials said in an alert, correcting an earlier posting. Students and faculty were told to lock doors, silence phones and hide.`\
+https://nytimes.com/2025/12/13/us/brown-university-shooting.html
+
 **The Briefing: Arsenal 2 Wolves 1 - Own-goal double restores five-point lead for Arteta's side**\
 `The Athletic's writers analyse Arsenal's nervy win against Wolves at the Emirates Stadium`\
 https://nytimes.com/athletic/6878215/2025/12/13/arsenal-wolves-premier-league-analysis-result/
