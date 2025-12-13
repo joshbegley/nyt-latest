@@ -1,3 +1,7 @@
+**Trump threatens to seize control of Washington, D.C.'s public golf courses**\
+`The Trump administration’s interest in Washington’s public golf courses is part of a larger plan to revamp the capital’s footprint.`\
+https://nytimes.com/athletic/6886848/2025/12/13/trump-administration-threatens-seize-dc-golf-courses/
+
 **Donald Trump honors 'Miracle on Ice' Olympic team with Congressional Gold Medal**\
 `The U.S. men's hockey team upset the Soviet Union in a medal round match at the 1980 Olympics in Lake Placid, N.Y.`\
 https://nytimes.com/athletic/6886819/2025/12/13/miracle-on-ice-olympic-hockey-congressional-medal/
@@ -29,8 +33,4 @@ https://nytimes.com/interactive/2025/12/13/us/calibri-font-times-new-roman-state
 **So, the Devils didn't land Quinn Hughes. How can they move forward?**\
 `Though they didn't land Hughes, the Devils still gained something from the saga coming to an end: clarity.`\
 https://nytimes.com/athletic/6886734/2025/12/13/nj-devils-quinn-hughes-trade-nhl/
-
-**Abraham Quintanilla Jr., Music Producer and Father of Selena, Dies at 86**\
-`As a teenager, he hoped to make it big in the Tejano music world. He realized that dream through his daughter.`\
-https://nytimes.com/2025/12/13/arts/music/abraham-quintanilla-dead.html
 

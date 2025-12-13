@@ -1,3 +1,7 @@
+**Trump threatens to seize control of Washington, D.C.'s public golf courses**\
+`The Trump administration’s interest in Washington’s public golf courses is part of a larger plan to revamp the capital’s footprint.`\
+https://nytimes.com/athletic/6886848/2025/12/13/trump-administration-threatens-seize-dc-golf-courses/
+
 **Donald Trump honors 'Miracle on Ice' Olympic team with Congressional Gold Medal**\
 `The U.S. men's hockey team upset the Soviet Union in a medal round match at the 1980 Olympics in Lake Placid, N.Y.`\
 https://nytimes.com/athletic/6886819/2025/12/13/miracle-on-ice-olympic-hockey-congressional-medal/
