@@ -1,3 +1,7 @@
+**National Guardsman Who Was Shot Is Making ‘Extraordinary Progress,’ Doctor Says**\
+`Staff Sgt. Andrew Wolfe, who suffered a head wound in the shooting near the White House last month, has moved from acute care to rehabilitation, a doctor said.`\
+https://nytimes.com/2025/12/12/us/national-guard-dc-shooting-andrew-wolfe.html
+
 **Risk-Based Screening Works as Well as Yearly Checks After 40 in Finding Breast Cancers**\
 `A study of more than 45,000 women found that screening women according to their level of risk was as effective in detecting  tumors as the one-size-fits-most screening currently recommended.`\
 https://nytimes.com/2025/12/12/health/jama-breast-cancer-risk-based-screening.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/12/briefing/storm-flooding-washington-tsa-ice-data.h
 **For Republicans, Trump’s Hands-Off Approach to Health Care Is a Problem**\
 `The prospect of soaring health care costs could exacerbate Americans’ feelings about affordability, an issue that President Trump has tried to downplay. But Democrats plan to keep the issue front and center.`\
 https://nytimes.com/2025/12/12/us/politics/trump-republicans-obamacare-health-costs.html
-
-**In Florida’s Panhandle, a Hearing on School Vaccine Mandates Gets Heated**\
-`The hearing was the first concrete step toward repealing some of the state’s vaccine requirements. Rolling back others would require legislative action.`\
-https://nytimes.com/2025/12/12/us/florida-school-vaccine-mandates.html
 
