@@ -1,3 +1,7 @@
+**Russian Bombs Plunge Odesa Into Darkness Amid Peace Talks**\
+`Much of Ukraine’s largest Black Sea port was without power, heat and water on Saturday after strikes from Russia, which has shown little appetite for a deal to end the war.`\
+https://nytimes.com/2025/12/13/world/europe/russia-ukraine-odesa-attack.html
+
 **'A crazy 30 minutes': How Marco Rossi found out he was being traded, what comes next**\
 `"We all play hockey, and we know it might happen. But I'm really happy for everything Minnesota has done for me," Rossi said. `\
 https://nytimes.com/athletic/6886132/2025/12/13/marco-rossi-life-after-wild-canucks-trade/
