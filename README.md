@@ -1,3 +1,7 @@
+**Government Can Withhold Funds From Planned Parenthood, Appeals Court Rules**\
+`A three-judge panel threw out a lower court’s order, allowing the Trump administration to continue defunding the group and other major abortion providers.`\
+https://nytimes.com/2025/12/12/us/politics/planned-parenthood-medicaid-funding.html
+
 **Board of Creatives?**\
 `Gene Louise De Vera’s puzzle sets a record!`\
 https://nytimes.com/2025/12/12/crosswords/daily-puzzle-2025-12-13.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6885719/2025/12/12/nba-cup-cash-orlando-magic-desmo
 **Behind the Seized Venezuelan Tanker, Cuba’s Secret Lifeline**\
 `Firms with ties to Cuba are getting a larger share of Venezuelan oil exports, as the island’s security agents boost President Nicolás Maduro’s defenses.`\
 https://nytimes.com/2025/12/12/world/americas/venezuela-cuba-oil-tanker.html
-
-**House G.O.P. Releases Health Plan That Would Allow Subsidies to End**\
-`The legislation, expected to come to a vote next week, would make changes that could eventually affect health care costs but are unlikely to immediately curb rising premiums.`\
-https://nytimes.com/2025/12/12/us/politics/republican-health-care-plan-subsidies-expire.html
 
