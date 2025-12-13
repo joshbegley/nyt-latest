@@ -1,3 +1,15 @@
+**MAHA Moms Are Angry at the E.P.A. Lee Zeldin Is Trying to Win Them Back.**\
+`A split is emerging within Trump’s base as health activists accuse Mr. Zeldin of leading the agency to prioritize chemical industry interests over public health.`\
+https://nytimes.com/2025/12/13/climate/maha-moms-epa-lee-zeldin.html
+
+**The Briefing: Chelsea 2 Everton 0 - Cole Palmer scores on Stamford Bridge return as Maresca's side climb to fourth**\
+`Analysis of Chelsea's Premier League encounter with Everton at Stamford Bridge`\
+https://nytimes.com/athletic/6878213/2025/12/13/chelsea-everton-premier-league-analysis/
+
+**The Young People Fixated on Who Gets to Work in America**\
+`For some Gen Z conservatives, H-1B visas are a hot new topic.`\
+https://nytimes.com/2025/12/13/style/h1b-visa-young-conservatives-maga.html
+
 **LA Galaxy close in on deal for Philadelphia Union's Jakob Glesnes**\
 `The 31-year-old center-back was named in the MLS' Best XI in 2025 after winning the Supporters' Shield with the Union.`\
 https://nytimes.com/athletic/6886547/2025/12/13/jakob-glesnes-la-galaxy-philadephia-union-transfer-news/
@@ -21,16 +33,4 @@ https://nytimes.com/2025/12/13/style/allen-epstein.html
 **San Diego FC finalizing deal for Lewis Morgan from New York Red Bulls**\
 `The Red Bulls will receive a SuperDraft pick as part of the compensation.`\
 https://nytimes.com/athletic/6886579/2025/12/13/lewis-morgan-san-diego-fc-red-bulls/
-
-**Under pressure, can Mets, Padres line up on a trade that could help both clubs?**\
-`While neither Francisco Lindor or Fernando Tatis Jr. are part of the talks, the teams are engaging in trade discussions.`\
-https://nytimes.com/athletic/6886542/2025/12/13/mets-padres-trade-talks-mlb/
-
-**WATCH: How Puka Nacua powers the NFL's best offense**\
-`Puka Nacua's dominant start has been a perfect example of what happens when a special player gets dropped into a special situation.`\
-https://nytimes.com/athletic/6885625/2025/12/13/rams-offense-puka-nacua-film-breakdown/
-
-**Jorge Polanco, Mets agree to 2-year, $40 million deal: Sources**\
-`The 32-year-old will help fill a void created by Pete Alonso's departure from Queens. `\
-https://nytimes.com/athletic/6792445/2025/12/13/mlb-jorge-polanco-free-agency-signing-mets/
 

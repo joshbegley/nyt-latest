@@ -1,3 +1,7 @@
+**Jorge Polanco, Mets agree to 2-year, $40 million deal: Sources**\
+`The 32-year-old will help fill a void created by Pete Alonso's departure from Queens. `\
+https://nytimes.com/athletic/6792445/2025/12/13/mlb-jorge-polanco-free-agency-signing-mets/
+
 **LA Galaxy close in on deal for Philadelphia Union's Jakob Glesnes**\
 `The 31-year-old center-back was named in the MLS' Best XI in 2025 after winning the Supporters' Shield with the Union.`\
 https://nytimes.com/athletic/6886547/2025/12/13/jakob-glesnes-la-galaxy-philadephia-union-transfer-news/
