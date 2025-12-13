@@ -1,3 +1,7 @@
+**New York Could See Its First Big Snow of the Season This Weekend**\
+`Up to three inches of snow is forecast in the city and across the region from late Saturday into Sunday morning.`\
+https://nytimes.com/2025/12/13/weather/nyc-snow-forecast.html
+
 **Up All Night in New York, Selling Christmas Trees**\
 `Before Santa comes to town, the tree sellers do, packing themselves into trailers and vans across New York City to claim a slice of the competitive tree market.`\
 https://nytimes.com/2025/12/13/nyregion/nyc-christmas-trees.html
