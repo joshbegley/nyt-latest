@@ -1,3 +1,7 @@
+**Appeals Court Says Trump Must End Los Angeles Deployment by Monday**\
+`While the decision did not remove the National Guard troops from the president’s control, it blocked him from using them in the nation’s second-largest city.`\
+https://nytimes.com/2025/12/13/us/california-national-guard-trump-los-angeles.html
+
 **Georgia Bulldogs freshmen arrested on shoplifting charges**\
 `The two freshmen were arrested in Athens, Ga., and charged with misdemeanor shoplifting.`\
 https://nytimes.com/athletic/6887014/2025/12/13/georgia-football-players-shoplifting-charges/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6886944/2025/12/13/canucks-trade-hughes-buium-rossi
 **White injury 'looks like a hamstring', Arteta says**\
 `The league leaders "don't know the extent" of the issue yet but the defender was forced off 30 minutes into their win against Wolves. `\
 https://nytimes.com/athletic/6887189/2025/12/13/ben-white-arsenal-injury-news-arteta/
-
-**Christian McCaffrey likely to play through minor back injury vs. Titans: Source**\
-`McCaffrey had a day off on Wednesday and missed most of Thursday's practice with an illness, but practiced in full Friday.`\
-https://nytimes.com/athletic/6887108/2025/12/13/christian-mccaffrey-injury-status-update-49ers/
 
