@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6885808/2025/12/12/vancouver-canucks-quinn-hughes-trade/
 
 **The latest on the Mets' offseason, why Alonso beat Schwarber and more MLB notes**\
-`Plus details on Luis Robert's potential trade market, a possible destination for Pete Fairbanks and a next free-agent to return from Japan.`\
+`Plus details on Luis Robert's potential trade market, a possible destination for Pete Fairbanks and a next free agent to return from Japan.`\
 https://nytimes.com/athletic/6885854/2025/12/12/mets-stearns-cohen-alonso-schwarber-robert-offseason-mlb/
 
 **U.S. Boarded Ship and Seized Cargo Heading to Iran From China**\

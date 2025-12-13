@@ -1,3 +1,7 @@
+**The latest on the Mets' offseason, why Alonso beat Schwarber and more MLB notes**\
+`Plus details on Luis Robert's potential trade market, a possible destination for Pete Fairbanks and a next free agent to return from Japan.`\
+https://nytimes.com/athletic/6885854/2025/12/12/mets-stearns-cohen-alonso-schwarber-robert-offseason-mlb/
+
 **Why the Canucks decided to move swiftly and trade Quinn Hughes**\
 `On Friday, Vancouver dealt one of the biggest stars in the history of the franchise in a somewhat purely future-oriented deal.`\
 https://nytimes.com/athletic/6885808/2025/12/12/vancouver-canucks-quinn-hughes-trade/
