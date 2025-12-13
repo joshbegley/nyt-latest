@@ -1,3 +1,11 @@
+**How to watch UC Riverside vs. BYU men's basketball: Time, TV, streaming**\
+`Find out how to watch the UC Riverside Highlanders play the BYU Cougars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6886980/2025/12/13/uc-riverside-vs-byu-stream-how-to-watch-dec-13/
+
+**How to watch Arizona vs. Alabama men's basketball: Time, TV, streaming**\
+`Find out how to watch the Arizona Wildcats play the Alabama Crimson Tide, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6886971/2025/12/13/arizona-vs-alabama-stream-how-to-watch-dec-13/
+
 **Is Times New Roman Better Than Calibri for the State Department?**\
 `Type designers weigh in on the recent decision to replace Calibri with Times New Roman in official documents.`\
 https://nytimes.com/interactive/2025/12/13/us/calibri-font-times-new-roman-state-department.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6886746/2025/12/13/nick-lardis-nhl-blackhawks-debut
 **Behind the Quinn Hughes trade: Who was in on the Canucks star, and what execs think of the deal**\
 `"Vancouver did very well, considering the circumstances," one West team executive said. "Bold move by the Wild. Pressure is on to win now."`\
 https://nytimes.com/athletic/6886805/2025/12/13/quinn-hughes-trade-canucks-rumblings/
-
-**Peter Greene, ‘Pulp Fiction’ and ‘The Mask’ Actor, Dies at 60**\
-`Mr. Greene, who built a four-decade career uncannily portraying villains, was found dead in his apartment in Manhattan on Friday, his manager said.`\
-https://nytimes.com/2025/12/13/movies/peter-greene-dead.html
-
-**Flight Returns to Dulles After Engine Failure During Takeoff, F.A.A. Says**\
-`United Airlines Flight 803, which was headed to Toyko, safely landed at Washington Dulles International Airport in Virginia around 1:20 p.m. on Saturday, the F.A.A. said.`\
-https://nytimes.com/2025/12/13/us/dulles-airport-fire-washington.html
 

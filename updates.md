@@ -1,3 +1,11 @@
+**How to watch UC Riverside vs. BYU men's basketball: Time, TV, streaming**\
+`Find out how to watch the UC Riverside Highlanders play the BYU Cougars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6886980/2025/12/13/uc-riverside-vs-byu-stream-how-to-watch-dec-13/
+
+**How to watch Arizona vs. Alabama men's basketball: Time, TV, streaming**\
+`Find out how to watch the Arizona Wildcats play the Alabama Crimson Tide, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6886971/2025/12/13/arizona-vs-alabama-stream-how-to-watch-dec-13/
+
 **Is Times New Roman Better Than Calibri for the State Department?**\
 `Type designers weigh in on the recent decision to replace Calibri with Times New Roman in official documents.`\
 https://nytimes.com/interactive/2025/12/13/us/calibri-font-times-new-roman-state-department.html
