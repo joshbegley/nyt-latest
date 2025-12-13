@@ -1,3 +1,7 @@
+**Why Leeds' new 5-3-2 formation has shown potential — and could work**\
+`Leeds switched to a 5-3-2 formation against Manchester City and have been much better since. This is why the system works`\
+https://nytimes.com/athletic/6884914/2025/12/13/leeds-new-formation-analysis/
+
 **What happens when a star player goes to war with their club?**\
 `The Athletic looks back at five prominent examples of high-profile Premier League players taking on their clubs`\
 https://nytimes.com/athletic/6884287/2025/12/13/what-happens-when-a-star-player-goes-to-war-with-their-club/
