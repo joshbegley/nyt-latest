@@ -1,3 +1,11 @@
+**NHL trade grades: Wild get Quinn Hughes and enter win-now mode, but it's costly**\
+`Hughes provides the Wild with a superstar at a premium position, something they have dearly lacked.`\
+https://nytimes.com/athletic/6885786/2025/12/12/nhl-trade-grades-quinn-hughes-wild-canucks/
+
+**NBA Cup cash is substantial. If Orlando wins, Desmond Bane will buy a boat**\
+`Prize money has risen each season for the Cup, with total winnings for champion players reaching $530,000 this year. `\
+https://nytimes.com/athletic/6885719/2025/12/12/nba-cup-cash-orlando-magic-desmond-bane-boat/
+
 **Behind the Seized Venezuelan Tanker, Cuba’s Secret Lifeline**\
 `Firms with ties to Cuba are getting a larger share of Venezuelan oil exports, as the island’s security agents boost President Nicolás Maduro’s defenses.`\
 https://nytimes.com/2025/12/12/world/americas/venezuela-cuba-oil-tanker.html
