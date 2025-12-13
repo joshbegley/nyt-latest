@@ -1,3 +1,7 @@
+**Danny Jansen, Rangers agree to 2-year, $14.5 million deal: Sources**\
+`The Rangers had been looking for a catcher to pair with Kyle Higashioka.`\
+https://nytimes.com/athletic/6783723/2025/12/12/mlb-danny-jansen-free-agency-signing/
+
 **The latest on the Mets' offseason, why Alonso beat Schwarber and more MLB notes**\
 `Plus details on Luis Robert's potential trade market, a possible destination for Pete Fairbanks and a next free agent to return from Japan`\
 https://nytimes.com/athletic/6885854/2025/12/12/mets-stearns-cohen-alonso-schwarber-robert-offseason-mlb/
