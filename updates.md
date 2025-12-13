@@ -1,3 +1,19 @@
+**How to watch Hurricanes vs. Flyers: Time, TV, streaming**\
+`Find out how to watch the Carolina Hurricanes play the Philadelphia Flyers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6886736/2025/12/13/hurricanes-vs-flyers-stream-how-to-watch-dec-13/
+
+**How to watch Knicks vs. Magic: Time, TV, streaming**\
+`Find out how to watch the New York Knicks play the Orlando Magic, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6886733/2025/12/13/knicks-vs-magic-stream-how-to-watch-dec-13/
+
+**How to watch Panthers vs. Stars: Time, TV, streaming**\
+`Find out how to watch the Florida Panthers play the Dallas Stars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6886729/2025/12/13/panthers-vs-stars-stream-how-to-watch-dec-13/
+
+**How to watch Capitals vs. Jets: Time, TV, streaming**\
+`Find out how to watch the Washington Capitals play the Winnipeg Jets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6886722/2025/12/13/capitals-vs-jets-stream-how-to-watch-dec-13/
+
 **How to watch Canadiens vs. Rangers: Time, TV, streaming**\
 `Find out how to watch the Montreal Canadiens play the New York Rangers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6886720/2025/12/13/canadiens-vs-rangers-stream-how-to-watch-dec-13/
