@@ -1,3 +1,15 @@
+**How to watch Sharks vs. Penguins: Time, TV, streaming**\
+`Find out how to watch the San Jose Sharks play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6886500/2025/12/13/sharks-vs-penguins-stream-how-to-watch-dec-13/
+
+**How to watch Lightning vs. Islanders: Time, TV, streaming**\
+`Find out how to watch the Tampa Bay Lightning play the New York Islanders, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6886499/2025/12/13/lightning-vs-islanders-stream-how-to-watch-dec-13/
+
+**Belarus Frees Prominent Political Prisoners as U.S. Lifts Some Trade Sanctions**\
+`The release of the prisoners, including a Nobel laureate and an opposition leader, was part of a monthslong rapprochement between Washington and Minsk.`\
+https://nytimes.com/2025/12/13/world/europe/belarus-lukasheno-potash-political-prisoners-russia.html
+
 **U.S. Forces Attacked in Syria, State Media Says**\
 `Injuries were reported in an attack that the Syrian government’s news agency said happened near the ancient city of Palmyra.`\
 https://nytimes.com/2025/12/13/world/africa/us-forces-attacked-syria.html
