@@ -1,3 +1,11 @@
+**Behind the Venezuelan Opposition Leader’s Daring Escape to Oslo**\
+`An American firm with experience in special operations spirited Maria Corina Machado, the recipient of the Nobel Peace Prize, out of the country in a secretive land, sea and air operation.`\
+https://nytimes.com/2025/12/12/us/politics/machado-venezuela-escape-oslo.html
+
+**Canucks trade Quinn Hughes to Wild: Sources**\
+`The Minnesota Wild pulled off their biggest trade in franchise history Friday night.`\
+https://nytimes.com/athletic/6885748/2025/12/12/canucks-quinn-hughes-wild-trade/
+
 **World Cup ticket requests top 5M in first 24 hours, says FIFA**\
 `The governing body indicated strong sales as the latest wave of ticketing availability opened`\
 https://nytimes.com/athletic/6885726/2025/12/12/world-cup-ticket-requests-fifa-third-phase/
@@ -25,12 +33,4 @@ https://nytimes.com/video/world/middleeast/100000010583512/world-middle-east-dis
 **Trump Officials Sue to Seize 2020 Ballots in a Georgia County**\
 `The Justice Department escalated an effort to seize and inspect old ballots in Fulton County, where President Trump was booked in his criminal election interference case.`\
 https://nytimes.com/2025/12/12/us/politics/trump-2020-ballots-fulton-county-georgia.html
-
-**Caitlin Clark stresses importance of 2026 WNBA season in CBA negotiations**\
-`“It's important that we find a way to play this next season," Clark said on Friday at Team USA training camp.`\
-https://nytimes.com/athletic/6885586/2025/12/12/wnba-caitlin-clark-cba-negotiations/
-
-**Rescuers Work to Evacuate Flooded Areas of Washington**\
-`Also, T.S.A. is giving passenger data to immigration agents. Here’s the latest at the end of Friday.`\
-https://nytimes.com/2025/12/12/briefing/storm-flooding-washington-tsa-ice-data.html
 
