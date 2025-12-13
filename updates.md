@@ -1,3 +1,15 @@
+**How Canucks are processing the Quinn Hughes trade as new players join team**\
+`The post-Quinn Hughes era of Canucks hockey began with a practice on Saturday afternoon in Newark, N.J.`\
+https://nytimes.com/athletic/6886944/2025/12/13/canucks-trade-hughes-buium-rossi/
+
+**White injury 'looks like a hamstring', Arteta says**\
+`The league leaders "don't know the extent" of the issue yet but the defender was forced off 30 minutes into their win against Wolves. `\
+https://nytimes.com/athletic/6887189/2025/12/13/ben-white-arsenal-injury-news-arteta/
+
+**Live Updates: Multiple People Shot at Brown University During Finals**\
+`Officials said the extent of the injuries on the Rhode Island campus was unclear, and a suspect was not in custody. Students and faculty members were told to lock doors and remain in hiding.`\
+https://nytimes.com/live/2025/12/13/us/brown-shooting
+
 **Here’s what to know.**\
 `The university sent an alert late Saturday afternoon warning students to hide. A suspect was not in custody, university officials said, correcting an earlier posting.`\
 https://nytimes.com/live/2025/12/13/us/brown-shooting/brown-university-shooting
