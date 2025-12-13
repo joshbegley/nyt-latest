@@ -1,3 +1,19 @@
+**Up All Night in New York, Selling Christmas Trees**\
+`Before Santa comes to town, the tree sellers do, packing themselves into trailers and vans across New York City to claim a slice of the competitive tree market.`\
+https://nytimes.com/2025/12/13/nyregion/nyc-christmas-trees.html
+
+**How the ‘Pasta Heiress’ Spends Her Day**\
+`Sarah Raffetto, the fourth-generation owner of Raffetto’s, spends her days cutting pasta and her nights singing her heart out.`\
+https://nytimes.com/2025/12/13/nyregion/how-sarah-raffetto-pasta.html
+
+**Eric Adams Doesn’t Care What His Critics Say: ‘I Lived Up to My Promise’**\
+`Interviewed as he prepares to leave City Hall, Mayor Eric Adams said that he hadn’t gotten the credit he deserved and that certain forces had always been arrayed against him.`\
+https://nytimes.com/2025/12/13/nyregion/eric-adams-interview.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/12/13/crosswords/spelling-bee-forum.html
+
 **Thailand Rejects Trump’s Claim That It Reached a Cease-Fire With Cambodia**\
 `The conflict appeared to have continued unabated on Saturday morning, a day after President Trump said a cease-fire was supposed to have resumed.`\
 https://nytimes.com/2025/12/13/world/asia/thailand-cambodia-trump-ceasefire.html
