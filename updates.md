@@ -1,3 +1,5 @@
+
+
 **U.S.-U.K. Trade Deal Hits Stumbling Block**\
 `The U.S. government has paused a tech-focused trade pledge with Britain over broader disagreements about Britain’s digital regulations and food safety rules.`\
 https://nytimes.com/2025/12/13/business/economy/us-britain-trade-deal.html
