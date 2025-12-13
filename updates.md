@@ -1,3 +1,7 @@
+**Multiple People Shot at Brown University, Police Say**\
+`The university warned students to hide in an alert late Saturday afternoon. A suspect was not in custody, university officials said, correcting an earlier posting.`\
+https://nytimes.com/2025/12/13/us/brown-university-shooting.html
+
 **Students Told to Hide From ‘Active Shooter’ at Brown University**\
 `A suspect was not in custody, university officials said in an alert, correcting an earlier posting. Students and faculty were told to lock doors, silence phones and hide.`\
 https://nytimes.com/2025/12/13/us/brown-university-shooting.html
