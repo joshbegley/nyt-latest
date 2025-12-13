@@ -1,3 +1,7 @@
+**Maresca calls last 48 hours his 'worst' as Chelsea head coach**\
+`The head coach said the issue was a "general" one and that he is "very happy with the fans" after their win against Everton on Saturday.`\
+https://nytimes.com/athletic/6886747/2025/12/13/enzo-maresca-worst-chelsea-48-hours-everton/
+
 **How to watch Hurricanes vs. Flyers: Time, TV, streaming**\
 `Find out how to watch the Carolina Hurricanes play the Philadelphia Flyers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6886736/2025/12/13/hurricanes-vs-flyers-stream-how-to-watch-dec-13/

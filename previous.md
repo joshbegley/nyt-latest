@@ -1,3 +1,7 @@
+**Maresca calls last 48 hours his 'worst' as Chelsea head coach**\
+`The head coach said the issue was a "general" one and that he is "very happy with the fans" after their win against Everton on Saturday.`\
+https://nytimes.com/athletic/6886747/2025/12/13/enzo-maresca-worst-chelsea-48-hours-everton/
+
 **How to watch Hurricanes vs. Flyers: Time, TV, streaming**\
 `Find out how to watch the Carolina Hurricanes play the Philadelphia Flyers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6886736/2025/12/13/hurricanes-vs-flyers-stream-how-to-watch-dec-13/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6886716/2025/12/13/oilers-vs-maple-leafs-stream-how
 **How to watch Golden Knights vs. Blue Jackets: Time, TV, streaming**\
 `Find out how to watch the Vegas Golden Knights play the Columbus Blue Jackets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6886714/2025/12/13/golden-knights-vs-blue-jackets-stream-how-to-watch-dec-13/
-
-**Colts will start 44-year-old Philip Rivers against Seahawks: Source**\
-`Rivers will make his first start in nearly five years. `\
-https://nytimes.com/athletic/6882055/2025/12/13/philip-rivers-starting-colts-news-seahawks/
 
