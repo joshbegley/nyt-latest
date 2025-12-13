@@ -1,3 +1,7 @@
+**Behind the Quinn Hughes trade: Who was in on the Canucks star, and what execs think of the deal**\
+`"Vancouver did very well, considering the circumstances," one West team executive said. "Bold move by the Wild. Pressure is on to win now."`\
+https://nytimes.com/athletic/6886805/2025/12/13/quinn-hughes-trade-canucks-rumblings/
+
 **Peter Greene, ‘Pulp Fiction’ and ‘The Mask’ Actor, Dies at 60**\
 `Mr. Greene, who built a four-decade career uncannily portraying villains, was found dead in his apartment in Manhattan on Friday, his manager said.`\
 https://nytimes.com/2025/12/13/movies/peter-greene-dead.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/13/sports/ncaafootball/roy-kramer-dead.html
 **Maresca calls last 48 hours his 'worst' as Chelsea head coach**\
 `The head coach said the issue was a "general" one and that he is "very happy with the fans" after their win against Everton on Saturday.`\
 https://nytimes.com/athletic/6886747/2025/12/13/enzo-maresca-worst-chelsea-48-hours-everton/
-
-**How to watch Hurricanes vs. Flyers: Time, TV, streaming**\
-`Find out how to watch the Carolina Hurricanes play the Philadelphia Flyers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6886736/2025/12/13/hurricanes-vs-flyers-stream-how-to-watch-dec-13/
 
