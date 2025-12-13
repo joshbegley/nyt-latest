@@ -1,3 +1,7 @@
+**Colts will start 44-year-old Philip Rivers against Seahawks: Source**\
+`Rivers will make his first start in nearly five years. `\
+https://nytimes.com/athletic/6882055/2025/12/13/philip-rivers-starting-colts-news-seahawks/
+
 **How to watch Kansas vs. NC State men's basketball: Time, TV, streaming**\
 `Find out how to watch the Kansas Jayhawks play the NC State Wolfpack, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6886685/2025/12/13/kansas-vs-nc-state-stream-how-to-watch-dec-13/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/13/climate/maha-moms-epa-lee-zeldin.html
 **The Briefing: Chelsea 2 Everton 0 - Palmer scores on Stamford Bridge return as Maresca's side climb to fourth**\
 `Analysis of Chelsea's Premier League encounter with Everton at Stamford Bridge`\
 https://nytimes.com/athletic/6878213/2025/12/13/chelsea-everton-premier-league-analysis/
-
-**The Young People Fixated on Who Gets to Work in America**\
-`For some Gen Z conservatives, H-1B visas are a hot new topic.`\
-https://nytimes.com/2025/12/13/style/h1b-visa-young-conservatives-maga.html
 
