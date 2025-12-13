@@ -1,3 +1,7 @@
+**Reader Mailbag: A Pause on Gerrymanders, and a Risk in Primaries**\
+`Indiana Republicans reject redrawn maps, and battle lines have been drawn among Democrats in Texas.`\
+https://nytimes.com/2025/12/13/upshot/gerrymander-indiana-texas-primary.html
+
 **Donte DiVincenzo's late-game guts were honed in Steph Curry's shadow**\
 `On Friday night, Curry and the Warriors lost because he created a monster in DiVincenzo three years ago, or so the monster says.`\
 https://nytimes.com/athletic/6886199/2025/12/13/donte-divincenzos-steph-curry-timberwolves-warriors/

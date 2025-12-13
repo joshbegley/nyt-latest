@@ -1,3 +1,7 @@
+**Reader Mailbag: A Pause on Gerrymanders, and a Risk in Primaries**\
+`Indiana Republicans reject redrawn maps, and battle lines have been drawn among Democrats in Texas.`\
+https://nytimes.com/2025/12/13/upshot/gerrymander-indiana-texas-primary.html
+
 **Donte DiVincenzo's late-game guts were honed in Steph Curry's shadow**\
 `On Friday night, Curry and the Warriors lost because he created a monster in DiVincenzo three years ago, or so the monster says.`\
 https://nytimes.com/athletic/6886199/2025/12/13/donte-divincenzos-steph-curry-timberwolves-warriors/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6886486/2025/12/13/oklahoma-state-vs-oklahoma-strea
 **How to watch New Orleans vs. Houston men's basketball: Time, TV, streaming**\
 `Find out how to watch the New Orleans Privateers play the Houston Cougars, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6886482/2025/12/13/new-orleans-vs-houston-stream-how-to-watch-dec-13/
-
-**How to watch Memphis vs. Louisville men's basketball: Time, TV, streaming**\
-`Find out how to watch the Memphis Tigers play the Louisville Cardinals, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6886484/2025/12/13/memphis-vs-louisville-stream-how-to-watch-dec-13/
 
