@@ -1,3 +1,7 @@
+**Georgia Bulldogs freshmen arrested on shoplifting charges**\
+`The two freshmen were arrested in Athens, Ga., and charged with misdemeanor shoplifting.`\
+https://nytimes.com/athletic/6887014/2025/12/13/georgia-football-players-shoplifting-charges/
+
 **Paul Wiggin, Browns legend and Stanford coach during "The Play," dies at 91**\
 `Wiggin teamed with Jim Brown to help Cleveland win the 1964 NFL title and was Stanford’s coach for one of football’s most famous plays.`\
 https://nytimes.com/athletic/6887078/2025/12/13/paul-wiggin-cleveland-browns-stanford-coach-dies/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6887189/2025/12/13/ben-white-arsenal-injury-news-ar
 **Christian McCaffrey likely to play through minor back injury vs. Titans: Source**\
 `McCaffrey had a day off on Wednesday and missed most of Thursday's practice with an illness, but practiced in full Friday.`\
 https://nytimes.com/athletic/6887108/2025/12/13/christian-mccaffrey-injury-status-update-49ers/
-
-**Change Locations**\
-`Zachary Edward-Brown and John Kugelman’s puzzle makes moving fun.`\
-https://nytimes.com/2025/12/13/crosswords/daily-puzzle-2025-12-14.html
 
