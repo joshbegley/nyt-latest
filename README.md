@@ -1,3 +1,7 @@
+**U.S. Boarded Ship and Seized Cargo Heading to Iran From China**\
+`The seizure last month came amid fears of a renewed conflict between Iran and Israel.`\
+https://nytimes.com/2025/12/12/us/politics/us-boarded-ship-and-seized-cargo-heading-to-iran-from-china.html
+
 **NHL trade grades: Wild get Quinn Hughes and enter win-now mode, but it's costly**\
 `Hughes provides the Wild with a superstar at a premium position, something they have dearly lacked.`\
 https://nytimes.com/athletic/6885786/2025/12/12/nhl-trade-grades-quinn-hughes-wild-canucks/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6885759/2025/12/12/blue-jays-sign-tyler-rogers-reli
 **Behind the Venezuelan Opposition Leader’s Daring Escape to Oslo**\
 `An American firm with experience in special operations spirited María Corina Machado, the recipient of the Nobel Peace Prize, out of the country in a secretive land, sea and air operation.`\
 https://nytimes.com/2025/12/12/us/politics/machado-venezuela-escape-oslo.html
-
-**Canucks trade Quinn Hughes to Wild: Sources**\
-`The Minnesota Wild pulled off their biggest trade in franchise history Friday night.`\
-https://nytimes.com/athletic/6885748/2025/12/12/canucks-quinn-hughes-wild-trade/
 
