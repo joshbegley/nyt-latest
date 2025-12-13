@@ -1,3 +1,7 @@
+**Peter Greene, ‘Pulp Fiction’ and ‘The Mask’ Actor, Dies at 60**\
+`Mr. Greene, who built a four-decade career uncannily portraying villains, was found dead in his apartment in Manhattan on Friday, his manager said.`\
+https://nytimes.com/2025/12/13/movies/peter-greene-dead.html
+
 **Flight Returns to Dulles After Engine Failure During Takeoff, F.A.A. Says**\
 `United Airlines Flight 803, which was headed to Toyko, safely landed at Washington Dulles International Airport in Virginia around 1:20 p.m. on Saturday, the F.A.A. said.`\
 https://nytimes.com/2025/12/13/us/dulles-airport-fire-washington.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6886747/2025/12/13/enzo-maresca-worst-chelsea-48-ho
 **How to watch Hurricanes vs. Flyers: Time, TV, streaming**\
 `Find out how to watch the Carolina Hurricanes play the Philadelphia Flyers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6886736/2025/12/13/hurricanes-vs-flyers-stream-how-to-watch-dec-13/
-
-**How to watch Knicks vs. Magic: Time, TV, streaming**\
-`Find out how to watch the New York Knicks play the Orlando Magic, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6886733/2025/12/13/knicks-vs-magic-stream-how-to-watch-dec-13/
 
