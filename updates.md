@@ -1,4 +1,8 @@
 **Sixers drop Pacers as the old Joel Embiid scores season-high 39 points**\
+`Friday night was the first bit of proof that a healthy Joel Embiid can still show up and take over.`\
+https://nytimes.com/athletic/6886076/2025/12/13/sixers-win-pacers-old-joel-embiid-returns/
+
+**Sixers drop Pacers as the old Joel Embiid scores season-high 39 points**\
 `Friday night was the first bit of proof that the old Joel Embiid can still show up and take over.`\
 https://nytimes.com/athletic/6886076/2025/12/13/sixers-win-pacers-old-joel-embiid-returns/
 
