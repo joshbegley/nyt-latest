@@ -1,3 +1,11 @@
+**WATCH: How Puka Nacua powers the NFL's best offense**\
+`Puka Nacua's dominant start has been a perfect example of what happens when a special player gets dropped into a special situation.`\
+https://nytimes.com/athletic/6885625/2025/12/13/rams-offense-puka-nacua-film-breakdown/
+
+**Jorge Polanco agrees to two-year, $40 million deal with the Mets: Sources**\
+`The 32-year-old will help fill a void created by Pete Alonso's departure from Queens. `\
+https://nytimes.com/athletic/6792445/2025/12/13/mlb-jorge-polanco-free-agency-signing-mets/
+
 **WATCH: How Packers have become most complete team in the NFL**\
 `With wide receivers Christian Watson and Jayden Reed returning to the lineup, the Packers' passing offense is as explosive as ever.`\
 https://nytimes.com/athletic/6885596/2025/12/13/packers-jordan-love-film-breakdown/
@@ -25,12 +33,4 @@ https://nytimes.com/2025/12/13/dining/that-70s-dessert.html
 **Reader Mailbag: A Pause on Gerrymanders, and a Risk in Primaries**\
 `Indiana Republicans reject redrawn maps, and battle lines have been drawn among Democrats in Texas.`\
 https://nytimes.com/2025/12/13/upshot/gerrymander-indiana-texas-primary.html
-
-**Donte DiVincenzo's late-game guts were honed in Steph Curry's shadow**\
-`On Friday night, Curry and the Warriors lost because he created a monster in DiVincenzo three years ago, or so the monster says.`\
-https://nytimes.com/athletic/6886199/2025/12/13/donte-divincenzos-steph-curry-timberwolves-warriors/
-
-**How to watch Sharks vs. Penguins: Time, TV, streaming**\
-`Find out how to watch the San Jose Sharks play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6886500/2025/12/13/sharks-vs-penguins-stream-how-to-watch-dec-13/
 

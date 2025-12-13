@@ -1,3 +1,27 @@
+**Michigan State's Tom Izzo becomes Big Ten’s highest-paid coach**\
+`Michigan State approved a contract amendment for Izzo that increases his salary to approximately $7.2 million per year.`\
+https://nytimes.com/athletic/6886527/2025/12/13/michigan-state-tom-izzo-big-ten-highest-paid-coach/
+
+**Israel Says It Killed Senior Hamas Commander, Despite Cease-Fire**\
+`Hamas said the attack on Saturday was a breach of the truce. The militant group did not comment on Israel’s claim to have killed one of its members.`\
+https://nytimes.com/2025/12/13/world/middleeast/israel-says-it-killed-senior-hamas-commander-despite-cease-fire.html
+
+**University of Maryland President Cleared of Plagiarism**\
+`The claims last year by a conservative publication against Darryll J. Pines prompted a yearlong investigation and an extensive review of his published works.`\
+https://nytimes.com/2025/12/13/us/politics/university-of-maryland-president-cleared-of-plagiarism.html
+
+**Woody Allen Is Not Sorry About His Friendship With Jeffrey Epstein**\
+`The nonagenarian director is taking a slightly different tack than many of the other powerful people associated with the disgraced former financier.`\
+https://nytimes.com/2025/12/13/style/allen-epstein.html
+
+**San Diego FC finalizing deal for Lewis Morgan from New York Red Bulls**\
+`The Red Bulls will receive a SuperDraft pick as part of the compensation.`\
+https://nytimes.com/athletic/6886579/2025/12/13/lewis-morgan-san-diego-fc-red-bulls/
+
+**Under pressure, can Mets, Padres line up on a trade that could help both clubs?**\
+`While neither Francisco Lindor or Fernando Tatis Jr. are part of the talks, the teams are engaging in trade discussions.`\
+https://nytimes.com/athletic/6886542/2025/12/13/mets-padres-trade-talks-mlb/
+
 **WATCH: How Puka Nacua powers the NFL's best offense**\
 `Puka Nacua's dominant start has been a perfect example of what happens when a special player gets dropped into a special situation.`\
 https://nytimes.com/athletic/6885625/2025/12/13/rams-offense-puka-nacua-film-breakdown/
@@ -9,28 +33,4 @@ https://nytimes.com/athletic/6792445/2025/12/13/mlb-jorge-polanco-free-agency-si
 **WATCH: How Packers have become most complete team in the NFL**\
 `With wide receivers Christian Watson and Jayden Reed returning to the lineup, the Packers' passing offense is as explosive as ever.`\
 https://nytimes.com/athletic/6885596/2025/12/13/packers-jordan-love-film-breakdown/
-
-**This Is My Go-To Fancy Winter Chicken**\
-`Genevieve Ko’s roasted orange chicken is so impressive and beautiful for how easy and simple it is.`\
-https://nytimes.com/2025/12/13/dining/this-is-my-go-to-fancy-winter-chicken.html
-
-**U.S.-U.K. Trade Deal Hits Stumbling Block**\
-`The U.S. government has paused a tech-focused trade pledge with Britain over broader disagreements about Britain’s digital regulations and food safety rules.`\
-https://nytimes.com/2025/12/13/business/economy/trump-uk-trade-deal-tariffs.html
-
-**Stellar offense, defense have Pistons cruising: 'We're here to win championships'**\
-`"I think we're the best team in the league, and we're going to continue to show it," Jalen Duren said after Friday's victory over the Hawks.`\
-https://nytimes.com/athletic/6886147/2025/12/13/pistons-stellar-offense-defense/
-
-**Russini: What I'm hearing on Joe Burrow's future and the NFL's coaching interest in Marcus Freeman**\
-`Also: The NFL has its eyes on officiating complaints, and the Seahawks are thriving thanks to a partnership that started in a Starbucks.`\
-https://nytimes.com/athletic/6885980/2025/12/13/nfl-rumors-news-joe-burrow-marcus-freeman-giants/
-
-**That ’70s Dessert**\
-`This holiday, I’m leaning into retro charm with cherry yum-yum, one-day fruitcake and sock-it-to-me-cake.`\
-https://nytimes.com/2025/12/13/dining/that-70s-dessert.html
-
-**Reader Mailbag: A Pause on Gerrymanders, and a Risk in Primaries**\
-`Indiana Republicans reject redrawn maps, and battle lines have been drawn among Democrats in Texas.`\
-https://nytimes.com/2025/12/13/upshot/gerrymander-indiana-texas-primary.html
 
