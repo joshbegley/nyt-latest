@@ -1,3 +1,7 @@
+**DoorDash Deliverer Faces Tampering Charges Tied to Food Order**\
+`The authorities said the woman, who was making a delivery for DoorDash, was captured on a doorbell camera spraying an unknown aerosol.`\
+https://nytimes.com/2025/12/13/us/kentucky-delivery-driver-pepper-spray-food.html
+
 **Slot has 'no issue' with Salah after Liverpool forward's return**\
 `The Egypt international returned to action on Saturday with the league champions after being dropped following an incendiary interview.`\
 https://nytimes.com/athletic/6886794/2025/12/13/salah-slot-liverpool-issue-squad-afcon/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6886722/2025/12/13/capitals-vs-jets-stream-how-to-w
 **How to watch Canadiens vs. Rangers: Time, TV, streaming**\
 `Find out how to watch the Montreal Canadiens play the New York Rangers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6886720/2025/12/13/canadiens-vs-rangers-stream-how-to-watch-dec-13/
-
-**How to watch Red Wings vs. Blackhawks: Time, TV, streaming**\
-`Find out how to watch the Detroit Red Wings play the Chicago Blackhawks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6886718/2025/12/13/red-wings-vs-blackhawks-stream-how-to-watch-dec-13/
 
