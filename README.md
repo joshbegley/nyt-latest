@@ -1,3 +1,7 @@
+**The Briefing: Arsenal 2 Wolves 1 - Own goal and own goal again restore five-point lead for Arteta's side**\
+`The Athletic's writers analyse Arsenal's nervy win against Wolves at the Emirates Stadium`\
+https://nytimes.com/athletic/6878215/2025/12/13/arsenal-wolves-premier-league-analysis-result/
+
 **Active Shooter Alert Issued at Brown University**\
 `In an emergency alert, the school told students and faculty to lock doors, silence phones and hide. A suspect was in custody.`\
 https://nytimes.com/2025/12/13/us/brown-university-shooting.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6887018/2025/12/13/kenny-dillingham-arizona-state-c
 **Toronto FC finalizing deal for Walker Zimmerman: Sources**\
 `The two-time MLS Defender of the Year was one of the best free-agent options on the market after leaving Nashville SC.`\
 https://nytimes.com/athletic/6887003/2025/12/13/toronto-fc-walker-zimmerman-mls/
-
-**How the Wild pulled off the Quinn Hughes trade, from the first phone call to the final fist pump**\
-`Wild president of hockey operations and general manager Bill Guerin discusses the process of trading for the superstar defenseman.`\
-https://nytimes.com/athletic/6886987/2025/12/13/wild-quinn-hughes-trade-bill-guerin/
 
