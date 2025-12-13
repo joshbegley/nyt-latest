@@ -1,3 +1,11 @@
+**House G.O.P. Releases Health Plan That Would Allow Subsidies to End**\
+`The legislation, expected to come to a vote next week, would make changes that could eventually affect health care costs but are unlikely to immediately curb rising premiums.`\
+https://nytimes.com/2025/12/12/us/politics/republican-health-care-plan-subsidies-expire.html
+
+**After False Earthquake Alert, Lawmakers Demand Answers on How It Was Sent**\
+`The federal government and earthquake experts blamed a technical glitch for the alert that sent warnings hundreds of miles away last week.`\
+https://nytimes.com/2025/12/12/us/usgs-nevada-false-earthquake-shakealert.html
+
 **Elon Musk’s SpaceX Valued at $800 Billion, as It Prepares to Go Public**\
 `A sale of insider shares at $421 a share would make Mr. Musk’s rocket company the most valuable private company in the world, as it readies for a possible initial public offering next year.`\
 https://nytimes.com/2025/12/12/technology/elon-musk-spacex-ipo.html

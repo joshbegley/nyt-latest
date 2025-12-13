@@ -1,3 +1,11 @@
+**House G.O.P. Releases Health Plan That Would Allow Subsidies to End**\
+`The legislation, expected to come to a vote next week, would make changes that could eventually affect health care costs but are unlikely to immediately curb rising premiums.`\
+https://nytimes.com/2025/12/12/us/politics/republican-health-care-plan-subsidies-expire.html
+
+**After False Earthquake Alert, Lawmakers Demand Answers on How It Was Sent**\
+`The federal government and earthquake experts blamed a technical glitch for the alert that sent warnings hundreds of miles away last week.`\
+https://nytimes.com/2025/12/12/us/usgs-nevada-false-earthquake-shakealert.html
+
 **Elon Musk’s SpaceX Valued at $800 Billion, as It Prepares to Go Public**\
 `A sale of insider shares at $421 a share would make Mr. Musk’s rocket company the most valuable private company in the world, as it readies for a possible initial public offering next year.`\
 https://nytimes.com/2025/12/12/technology/elon-musk-spacex-ipo.html
@@ -25,12 +33,4 @@ https://nytimes.com/2025/12/12/us/national-guard-dc-shooting-andrew-wolfe.html
 **Risk-Based Screening Works as Well as Yearly Checks After 40 in Finding Breast Cancers**\
 `A study of more than 45,000 women found that screening women according to their level of risk was as effective in detecting  tumors as the one-size-fits-most screening currently recommended.`\
 https://nytimes.com/2025/12/12/health/jama-breast-cancer-risk-based-screening.html
-
-**U.S. Drops Sanctions on Brazilian Justice at Center of Bolsonaro Trial**\
-`A senior Trump administration official said that maintaining sanctions against Justice Alexandre de Moraes was no longer in the interest of the United States.`\
-https://nytimes.com/2025/12/12/world/americas/brazil-us-sanctions-justice-moraes.html
-
-**Trump Is Facing Down Biden’s Demons**\
-`Too old? Tough economy? The presidents change, but the troubles are familiar.`\
-https://nytimes.com/2025/12/12/us/politics/trump-biden-age-health-economy.html
 
