@@ -1,3 +1,7 @@
+**What happens when a star player goes to war with their club?**\
+`The Athletic looks back at five prominent examples of high-profile Premier League players taking on their clubs`\
+https://nytimes.com/athletic/6884287/2025/12/13/what-happens-when-a-star-player-goes-to-war-with-their-club/
+
 **Fergie's fury and going to games in disguise - when our reporters were banned**\
 `The Athletic's reporters try to have constructive relationships with clubs, but sometimes things can become frosty...`\
 https://nytimes.com/athletic/6881282/2025/12/13/reporters-banned-premier-league-clubs/

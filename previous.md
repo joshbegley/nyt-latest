@@ -1,3 +1,7 @@
+**What happens when a star player goes to war with their club?**\
+`The Athletic looks back at five prominent examples of high-profile Premier League players taking on their clubs`\
+https://nytimes.com/athletic/6884287/2025/12/13/what-happens-when-a-star-player-goes-to-war-with-their-club/
+
 **Fergie's fury and going to games in disguise - when our reporters were banned**\
 `The Athletic's reporters try to have constructive relationships with clubs, but sometimes things can become frosty...`\
 https://nytimes.com/athletic/6881282/2025/12/13/reporters-banned-premier-league-clubs/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/13/pageoneplus/corrections-dec-14-2025.html
 **Sources: Big 12 negotiating partnership for schools to opt in to funding**\
 `The partnership would focus on expanding commercial and business operations while offering a capital line of credit to 16 universities.`\
 https://nytimes.com/athletic/6885987/2025/12/12/big-12-conference-business-partnerships/
-
-**Quote of the Day: For Ukrainians, U.S. Talks Are Just Background Din to Blackouts**\
-`Quotation of the Day for Saturday, December 13, 2025.`\
-https://nytimes.com/2025/12/12/pageoneplus/quote-of-the-day-for-ukrainians-us-talks-are-just-background-din-to-blackouts.html
 

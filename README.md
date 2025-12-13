@@ -1,3 +1,7 @@
+**Why Leeds' new 5-3-2 formation has shown potential — and could work**\
+`Leeds switched to a 5-3-2 formation against Manchester City and have been much better since. This is why the system works`\
+https://nytimes.com/athletic/6884914/2025/12/13/leeds-new-formation-analysis/
+
 **What happens when a star player goes to war with their club?**\
 `The Athletic looks back at five prominent examples of high-profile Premier League players taking on their clubs`\
 https://nytimes.com/athletic/6884287/2025/12/13/what-happens-when-a-star-player-goes-to-war-with-their-club/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/13/pageoneplus/corrections-dec-13-2025.html
 **Corrections: Dec. 14, 2025**\
 `Corrections that appeared in print on Sunday, Dec. 14, 2025.`\
 https://nytimes.com/2025/12/13/pageoneplus/corrections-dec-14-2025.html
-
-**Sources: Big 12 negotiating partnership for schools to opt in to funding**\
-`The partnership would focus on expanding commercial and business operations while offering a capital line of credit to 16 universities.`\
-https://nytimes.com/athletic/6885987/2025/12/12/big-12-conference-business-partnerships/
 
