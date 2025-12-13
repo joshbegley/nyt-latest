@@ -1,3 +1,7 @@
+**Marina Yee, Elusive Avant-Garde Designer, Dies at 58**\
+`She was one of the Antwerp Six, young Belgians who upended the fashion industry with their innovative designs and turned their country into an unlikely style hub.`\
+https://nytimes.com/2025/12/13/fashion/runway-womens/marina-yee-dead.html
+
 **Russian Bombs Plunge Odesa Into Darkness Amid Peace Talks**\
 `Much of Ukraine’s largest Black Sea port was without power, heat and water on Saturday after strikes from Russia, which has shown little appetite for a deal to end the war.`\
 https://nytimes.com/2025/12/13/world/europe/russia-ukraine-odesa-attack.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6883170/2025/12/13/college-football-weird-bowl-game
 **Baby Steps**\
 `The antidote to our increasingly disembodied lives may lie in letting go of our inhibitions and dancing like kids do.`\
 https://nytimes.com/2025/12/13/briefing/baby-steps.html
-
-**Blues' best prospect development surprise? Jiricek's upside? Subscriber Q&A with Tim Taylor, part 2**\
-`The Blues' assistant GM says he sees Adam Jiricek trending toward being a No. 1 defenseman in the NHL: 'This kid does everything.'`\
-https://nytimes.com/athletic/6880342/2025/12/13/blues-tim-taylor-jiricek-fischer/
 
