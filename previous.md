@@ -1,36 +1,36 @@
-**Why Won’t Senators Stand Up to Trump? We Asked 3 Who Called It Quits.**\
-`The current and former lawmakers get candid about bipartisan politics, party leadership and the state of the Senate.`\
-https://nytimes.com/2025/12/13/magazine/senators-manchin-flake-smith-interview.html
+**NBA Cup semifinals watch guide: Knicks vs. Magic, Thunder vs. Spurs in Las Vegas**\
+`Four teams remain in the third annual NBA in-season tournament. Saturday's doubleheader goes down in Las Vegas and on Prime Video.`\
+https://nytimes.com/athletic/6882659/2025/12/13/nba-cup-semifinals-knicks-magic-thunder-spurs-tv/
 
-**Can Trump’s Grand Plans for Gaza Get Off the Drawing Board?**\
-`The next steps for the president’s 20-point Gaza peace plan have been mired in uncertainty and a lack of detail, but that may be set to change. Here’s what to know.`\
-https://nytimes.com/2025/12/13/world/middleeast/trump-gaza-plans-postwar.html
+**The 2025 Heisman Trophy broadcast: Mendoza, Pavia, Sayin and Love from New York City**\
+`Indiana is going for its first-ever Heisman Trophy behind Fernando Mendoza's lead candidacy.`\
+https://nytimes.com/athletic/6877598/2025/12/13/heisman-trophy-ceremony-2025-finalists-how-to-watch/
 
-**A Measles Outbreak Brings With It Echoes of the Pandemic**\
-`In South Carolina, parents struggle to deal with infections that have brought quarantines and remote learning. Health care workers are bracing for an increase in cases.`\
-https://nytimes.com/2025/12/13/us/a-measles-outbreak-brings-with-it-echoes-of-the-pandemic.html
+**Why the Oilers' problems run deeper than dumping Stuart Skinner**\
+`Even with a new goalie, the Oilers still look like an aging, top-heavy team that has played a ton of hockey the past two seasons.`\
+https://nytimes.com/athletic/6885326/2025/12/13/oilers-stuart-skinner-trade-penguins-tristan-jarry/
 
-**Korea’s English Exam Was So Hard It Prompted an Apology. How Would You Do?**\
-`South Korea has a notoriously grueling college entrance exam. This year’s English portion was so difficult that it led to a resignation. Could you answer some of the questions correctly?`\
-https://nytimes.com/2025/12/13/world/asia/korea-english-exam-how-would-you-do.html
+**NFL Week 15 roundtable: Philip Rivers returns, MVP race, Packers-Broncos showdown**\
+`While Rivers' return grabs headlines, Packers-Broncos may be the week's best game. Our writers Mike Sando, Jeff Howe and Zak Keefer discuss.`\
+https://nytimes.com/athletic/6885548/2025/12/13/nfl-week-15-philip-rivers-colts-broncos-packers/
 
-**Colorado Officials Reject Trump’s ‘Pardon’ of a Convicted Election Denier**\
-`The president’s stated intention to pardon Tina Peters, jailed for tampering with election machines in 2020, has set off a legal fight over the extent of Mr. Trump’s pardon powers.`\
-https://nytimes.com/2025/12/13/us/politics/trump-tina-peters.html
+**Kyle Pitts changed the conversation about his future, but he's not talking about it for now**\
+`While Pitts is the topic of conversation, rookie James Pearce Jr. moves up the charts after the Falcons' big win Thursday.`\
+https://nytimes.com/athletic/6884742/2025/12/13/kyle-pitts-falcons-buccaneers-tnf/
 
-**My Boss Got Way Too Drunk at the Christmas Party**\
-`And now I’m dealing with the consequences.`\
-https://nytimes.com/2025/12/13/business/my-boss-got-way-too-drunk-at-the-christmas-party.html
+**Fizz, forklifts and failed McDonald's runs: How F1 winners celebrate world titles**\
+`New F1 world champion Lando Norris' title celebrations ended looking for nuggets. Other parties crossed continents and destroyed property`\
+https://nytimes.com/athletic/6884816/2025/12/13/f1-world-title-parties/
 
-**The Crime Wave Reshaping Latin American Politics**\
-`Security has become a top concern for voters across the region who are calling for iron-fisted measures. In Chile, the issue is pushing the country to the right.`\
-https://nytimes.com/2025/12/13/world/americas/chile-election-latin-america-crime.html
+**Rwanda aiming for F1 race in 2029, government official says talks 'progressing'**\
+`Africa has not hosted an F1 race since the 1993 South African Grand Prix.`\
+https://nytimes.com/athletic/6845102/2025/12/13/rwanda-f1-race-africa/
 
-**Biden Has Raised Little of What He Needs to Build a Presidential Library**\
-`His library foundation has told the I.R.S. that by the end of 2027 it expects to bring in just $11.3 million — not nearly enough for a traditional presidential library.`\
-https://nytimes.com/2025/12/13/us/politics/biden-presidential-library-delaware.html
+**Can I Insist That My Dysfunctional Son Get a Vasectomy?**\
+`I’ve told him that I won’t continue supporting him unless he agrees.`\
+https://nytimes.com/2025/12/13/magazine/son-vasectomy-ethics.html
 
-**What Is a ‘Zombie Mortgage,’ and How Can You Avoid It?**\
-`After the housing crash in 2008, thousands of second mortgages became worthless. But they never really died.`\
-https://nytimes.com/2025/12/13/realestate/what-is-a-zombie-mortgage-and-how-can-you-avoid-it.html
+**Trump’s Nvidia Deal Undermines National Security**\
+`This week, Donald Trump announced that he would allow Nvidia to sell chips to China. The Times Opinion editor, Kathleen Kingsbury, argues that the move undermines national security.`\
+https://nytimes.com/video/opinion/100000010584310/trumps-nvidia-deal-undermines-national-security.html
 
