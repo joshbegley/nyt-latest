@@ -1,3 +1,15 @@
+**Stellar offense, defense have Pistons cruising: 'We're here to win championships'**\
+`"I think we're the best team in the league, and we're going to continue to show it," Jalen Duren said after Friday's victory over the Hawks.`\
+https://nytimes.com/athletic/6886147/2025/12/13/pistons-stellar-offense-defense/
+
+**Russini: What I'm hearing on Joe Burrow's future and the NFL's coaching interest in Marcus Freeman**\
+`Also: The NFL has its eyes on officiating complaints, and the Seahawks are thriving thanks to a partnership that started in a Starbucks.`\
+https://nytimes.com/athletic/6885980/2025/12/13/nfl-rumors-news-joe-burrow-marcus-freeman-giants/
+
+**That ’70s Dessert**\
+`This holiday, I’m leaning into retro charm with cherry yum-yum, one-day fruitcake and sock-it-to-me-cake.`\
+https://nytimes.com/2025/12/13/dining/that-70s-dessert.html
+
 **Reader Mailbag: A Pause on Gerrymanders, and a Risk in Primaries**\
 `Indiana Republicans reject redrawn maps, and battle lines have been drawn among Democrats in Texas.`\
 https://nytimes.com/2025/12/13/upshot/gerrymander-indiana-texas-primary.html
