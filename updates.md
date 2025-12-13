@@ -1,3 +1,7 @@
+**Steph Curry hits 100-foot shot before return to lineup, scores 39 in Warriors' loss**\
+`Curry played in his first game after missing five straight because of a quad injury, and he hit big shots before and during Friday's game.`\
+https://nytimes.com/athletic/6885536/2025/12/13/steph-curry-return-injury-warriors-nba/
+
 **20 States Sue to Block $100,000 Fee for H-1B Visas**\
 `California and New York are among the states arguing that the Trump administration’s decision to charge that fee for skilled foreign workers is illegal.`\
 https://nytimes.com/2025/12/13/us/politics/states-lawsuit-h1b-visas.html
