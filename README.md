@@ -1,3 +1,7 @@
+**NBA Cup cash is substantial. If Orlando wins, Desmond Bane will buy a boat**\
+`Prize money has risen each season for the Cup, with total winnings for champion players reaching $530,000 this year. `\
+https://nytimes.com/athletic/6885719/2025/12/12/nba-cup-cash-orlando-magic-desmond-bane-boat/
+
 **Behind the Seized Venezuelan Tanker, Cuba’s Secret Lifeline**\
 `Firms with ties to Cuba are getting a larger share of Venezuelan oil exports, as the island’s security agents boost President Nicolás Maduro’s defenses.`\
 https://nytimes.com/2025/12/12/world/americas/venezuela-cuba-oil-tanker.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6885748/2025/12/12/canucks-quinn-hughes-wild-trade/
 **World Cup ticket requests top 5M in first 24 hours, says FIFA**\
 `The governing body indicated strong sales as the latest wave of ticketing availability opened`\
 https://nytimes.com/athletic/6885726/2025/12/12/world-cup-ticket-requests-fifa-third-phase/
-
-**National Guardsman Who Was Shot Is Making ‘Extraordinary Progress,’ Doctor Says**\
-`Staff Sgt. Andrew Wolfe, who suffered a head wound in the shooting near the White House last month, has moved from acute care to rehabilitation.`\
-https://nytimes.com/2025/12/12/us/national-guard-dc-shooting-andrew-wolfe.html
 
