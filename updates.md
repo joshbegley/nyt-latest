@@ -1,3 +1,7 @@
+**How the Wild pulled off the Quinn Hughes trade, from the first phone call to the final fist pump**\
+`Wild president of hockey operations and general manager Bill Guerin discusses the process of trading for the superstar defenseman.`\
+https://nytimes.com/athletic/6886987/2025/12/13/wild-quinn-hughes-trade-bill-guerin/
+
 **Trump threatens to seize control of Washington, D.C.'s public golf courses**\
 `The Trump administration’s interest in Washington’s public golf courses is part of a larger plan to revamp the capital’s footprint.`\
 https://nytimes.com/athletic/6886848/2025/12/13/trump-administration-threatens-seize-dc-golf-courses/
