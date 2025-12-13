@@ -1,3 +1,11 @@
+**So, the Devils didn't land Quinn Hughes. How can they move forward?**\
+`Though they didn't land Hughes, the Devils still gained something from the saga coming to an end: clarity.`\
+https://nytimes.com/athletic/6886734/2025/12/13/nj-devils-quinn-hughes-trade-nhl/
+
+**Abraham Quintanilla Jr., Music Producer and Father of Selena, Dies at 86**\
+`As a teenager, he hoped to make it big in the Tejano music world. He realized that dream through his daughter.`\
+https://nytimes.com/2025/12/13/arts/music/abraham-quintanilla-dead.html
+
 **All smiles for Slot and Salah, who played on Saturday like he had a point to prove with future unclear**\
 `The Egyptian played a crucial role off the bench at Anfield on Saturday - but his future remains unclear after last weekend's comments...`\
 https://nytimes.com/athletic/6886515/2025/12/13/salah-slot-liverpool-brighton-premier-league/
