@@ -1,3 +1,11 @@
+**World Cup ticket requests top 5M in first 24 hours, says FIFA**\
+`The governing body indicated strong sales as the latest wave of ticketing availability opened`\
+https://nytimes.com/athletic/6885726/2025/12/12/world-cup-ticket-requests-fifa-third-phase/
+
+**National Guardsman Who Was Shot Is Making ‘Extraordinary Progress,’ Doctor Says**\
+`Staff Sgt. Andrew Wolfe, who suffered a head wound in the shooting near the White House last month, has moved from acute care to rehabilitation.`\
+https://nytimes.com/2025/12/12/us/national-guard-dc-shooting-andrew-wolfe.html
+
 **National Guardsman Who Was Shot Is Making ‘Extraordinary Progress,’ Doctor Says**\
 `Staff Sgt. Andrew Wolfe, who suffered a head wound in the shooting near the White House last month, has moved from acute care to rehabilitation, a doctor said.`\
 https://nytimes.com/2025/12/12/us/national-guard-dc-shooting-andrew-wolfe.html
