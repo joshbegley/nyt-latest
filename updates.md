@@ -1,5 +1,9 @@
 **U.S. Boarded Ship and Seized Cargo Heading to Iran From China**\
 `The seizure last month came amid fears of a renewed conflict between Iran and Israel.`\
+https://nytimes.com/2025/12/12/us/politics/cargo-ship-seized-iran-china.html
+
+**U.S. Boarded Ship and Seized Cargo Heading to Iran From China**\
+`The seizure last month came amid fears of a renewed conflict between Iran and Israel.`\
 https://nytimes.com/2025/12/12/us/politics/us-boarded-ship-and-seized-cargo-heading-to-iran-from-china.html
 
 **NHL trade grades: Wild get Quinn Hughes and enter win-now mode, but it's costly**\
