@@ -10,7 +10,7 @@ https://nytimes.com/2025/12/13/world/africa/sudan-un-peacekeepers-killed-drone-s
 `The wide receiver hasn't played since a Week 7 multi-ligament injury in 2024.`\
 https://nytimes.com/athletic/6887016/2025/12/13/brandon-aiyuk-49ers-season-over/
 
-**Morgan Scalley, Utah reach agreement to become Utes football coach**\
+**Utah promotes DC Morgan Scalley to head football coach**\
 `Scalley had agreed to an amended contract that made him "head coach-in-waiting" in November 2023.`\
 https://nytimes.com/athletic/6886983/2025/12/13/morgan-scalley-utah-football-coach/
 

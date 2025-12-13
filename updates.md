@@ -1,3 +1,7 @@
+**Utah promotes DC Morgan Scalley to head football coach**\
+`Scalley had agreed to an amended contract that made him "head coach-in-waiting" in November 2023.`\
+https://nytimes.com/athletic/6886983/2025/12/13/morgan-scalley-utah-football-coach/
+
 **LaNorris Sellers expected to pass on 2026 NFL Draft, stay at South Carolina**\
 `Sellers would have drawn interest as a possible top-20 pick or via the transfer portal, but all signs point to him staying put.`\
 https://nytimes.com/athletic/6886817/2025/12/13/lanorris-sellers-nfl-draft-south-carolina-transfer/
