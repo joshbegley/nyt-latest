@@ -1,3 +1,7 @@
+**Donald Trump honors 'Miracle on Ice' Olympic team with Congressional Gold Medal**\
+`The U.S. men's hockey team upset the Soviet Union in a medal round match at the 1980 Olympics in Lake Placid, N.Y.`\
+https://nytimes.com/athletic/6886819/2025/12/13/miracle-on-ice-olympic-hockey-congressional-medal/
+
 **How to watch Spurs vs. Thunder: Time, TV, streaming**\
 `Find out how to watch the San Antonio Spurs play the Oklahoma City Thunder, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6886996/2025/12/13/spurs-vs-thunder-stream-how-to-watch-dec-13/
