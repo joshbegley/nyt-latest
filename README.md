@@ -1,3 +1,7 @@
+**Behind the Seized Venezuelan Tanker, Cuba’s Secret Lifeline**\
+`Firms with ties to Cuba are getting a larger share of Venezuelan oil exports, as the island’s security agents boost President Nicolás Maduro’s defenses.`\
+https://nytimes.com/2025/12/12/world/americas/venezuela-cuba-oil-tanker.html
+
 **House G.O.P. Releases Health Plan That Would Allow Subsidies to End**\
 `The legislation, expected to come to a vote next week, would make changes that could eventually affect health care costs but are unlikely to immediately curb rising premiums.`\
 https://nytimes.com/2025/12/12/us/politics/republican-health-care-plan-subsidies-expire.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6885726/2025/12/12/world-cup-ticket-requests-fifa-t
 **National Guardsman Who Was Shot Is Making ‘Extraordinary Progress,’ Doctor Says**\
 `Staff Sgt. Andrew Wolfe, who suffered a head wound in the shooting near the White House last month, has moved from acute care to rehabilitation.`\
 https://nytimes.com/2025/12/12/us/national-guard-dc-shooting-andrew-wolfe.html
-
-**Risk-Based Screening Works as Well as Yearly Checks After 40 in Finding Breast Cancers**\
-`A study of more than 45,000 women found that screening women according to their level of risk was as effective in detecting  tumors as the one-size-fits-most screening currently recommended.`\
-https://nytimes.com/2025/12/12/health/jama-breast-cancer-risk-based-screening.html
 
