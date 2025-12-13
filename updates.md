@@ -1,3 +1,7 @@
+**National Guardsman Who Was Shot Is Making ‘Extraordinary Progress,’ Doctor Says**\
+`Staff Sgt. Andrew Wolfe, who suffered a head wound in the shooting near the White House last month, has moved from acute care to rehabilitation, a doctor said.`\
+https://nytimes.com/2025/12/12/us/national-guard-dc-shooting-andrew-wolfe.html
+
 **U.S. Drops Sanctions on Brazilian Justice at Center of Bolsonaro Trial**\
 `A senior Trump administration official said that maintaining sanctions against Justice Alexandre de Moraes was no longer in the interest of the United States.`\
 https://nytimes.com/2025/12/12/world/americas/brazil-us-sanctions-justice-moraes.html
