@@ -1,3 +1,7 @@
+**20 States Sue to Block $100,000 Fee for H-1B Visas**\
+`California and New York are among the states arguing that the Trump administration’s decision to charge that fee for skilled foreign workers is illegal.`\
+https://nytimes.com/2025/12/13/us/politics/states-lawsuit-h1b-visas.html
+
 **Sixers drop Pacers as the old Joel Embiid scores season-high 39 points**\
 `Friday night was the first bit of proof that a healthy Joel Embiid can still show up and take over.`\
 https://nytimes.com/athletic/6886076/2025/12/13/sixers-win-pacers-old-joel-embiid-returns/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6881282/2025/12/13/reporters-banned-premier-league-
 **Liverpool are creating more chances than opponents, so have they just been unlucky?**\
 `Why do some teams consistently 'win' on xG but lose the match? Is it just luck or is there more to it?`\
 https://nytimes.com/athletic/6881450/2025/12/13/liverpool-xg-premier-league-slot-luck/
-
-**Gory, never glory: Newcastle, Sunderland and why the 'desperation derby' is everything**\
-`Newcastle and Sunderland face each other for the first time in the Premier League since 2016. It will mean everything to both sets of fans`\
-https://nytimes.com/athletic/6884181/2025/12/13/newcastle-sunderland-premier-league-derby/
 
