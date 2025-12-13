@@ -1,3 +1,7 @@
+**Blackhawks call up goal-scoring prospect Nick Lardis with Connor Bedard injured**\
+`The 20-year-old Lardis accumulated 175 goals in 257 career OHL games before turning pro this season with the IceHogs.`\
+https://nytimes.com/athletic/6886746/2025/12/13/nick-lardis-nhl-blackhawks-debut/
+
 **Behind the Quinn Hughes trade: Who was in on the Canucks star, and what execs think of the deal**\
 `"Vancouver did very well, considering the circumstances," one West team executive said. "Bold move by the Wild. Pressure is on to win now."`\
 https://nytimes.com/athletic/6886805/2025/12/13/quinn-hughes-trade-canucks-rumblings/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6886794/2025/12/13/salah-slot-liverpool-issue-squad
 **Roy Kramer, Transformational Executive in College Sports, Dies at 96**\
 `Leading the Southeastern Conference for 12 years, he masterminded its rise as a national power, lifted by a flood of money from TV rights, bowl games and other sources.`\
 https://nytimes.com/2025/12/13/sports/ncaafootball/roy-kramer-dead.html
-
-**Maresca calls last 48 hours his 'worst' as Chelsea head coach**\
-`The head coach said the issue was a "general" one and that he is "very happy with the fans" after their win against Everton on Saturday.`\
-https://nytimes.com/athletic/6886747/2025/12/13/enzo-maresca-worst-chelsea-48-hours-everton/
 

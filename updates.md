@@ -1,3 +1,7 @@
+**Blackhawks call up goal-scoring prospect Nick Lardis with Connor Bedard injured**\
+`The 20-year-old Lardis accumulated 175 goals in 257 career OHL games before turning pro this season with the IceHogs.`\
+https://nytimes.com/athletic/6886746/2025/12/13/nick-lardis-nhl-blackhawks-debut/
+
 **Behind the Quinn Hughes trade: Who was in on the Canucks star, and what execs think of the deal**\
 `"Vancouver did very well, considering the circumstances," one West team executive said. "Bold move by the Wild. Pressure is on to win now."`\
 https://nytimes.com/athletic/6886805/2025/12/13/quinn-hughes-trade-canucks-rumblings/
