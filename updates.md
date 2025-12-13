@@ -1,3 +1,11 @@
+**DoorDash Deliverer Faces Tampering Charges Tied to Food Order**\
+`The authorities said the woman, who was making a delivery for DoorDash, was captured on a doorbell camera spraying an unknown aerosol.`\
+https://nytimes.com/2025/12/13/us/kentucky-delivery-driver-pepper-spray-food.html
+
+**Slot has 'no issue' with Salah after Liverpool forward's return**\
+`The Egypt international returned to action on Saturday with the league champions after being dropped following an incendiary interview.`\
+https://nytimes.com/athletic/6886794/2025/12/13/salah-slot-liverpool-issue-squad-afcon/
+
 **Roy Kramer, Transformational Executive in College Sports, Dies at 96**\
 `Leading the Southeastern Conference for 12 years, he masterminded its rise as a national power, lifted by a flood of money from TV rights, bowl games and other sources.`\
 https://nytimes.com/2025/12/13/sports/ncaafootball/roy-kramer-dead.html
