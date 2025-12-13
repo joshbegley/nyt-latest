@@ -1,3 +1,7 @@
+**U.S. Forces Attacked in Syria, Syria State Media Says**\
+`Injuries were reported in an assault near the ancient city of Palmyra, the Syrian government’s news agency said.`\
+https://nytimes.com/2025/12/13/world/africa/us-forces-attacked-syria.html
+
 **Stellar offense, defense have Pistons cruising: 'We're here to win championships'**\
 `"I think we're the best team in the league, and we're going to continue to show it," Jalen Duren said after Friday's victory over the Hawks.`\
 https://nytimes.com/athletic/6886147/2025/12/13/pistons-stellar-offense-defense/
