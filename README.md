@@ -2,8 +2,8 @@
 `The Athletic's writers analyse Arsenal's nervy win against Wolves at the Emirates Stadium`\
 https://nytimes.com/athletic/6878215/2025/12/13/arsenal-wolves-premier-league-analysis-result/
 
-**Active Shooter Alert Issued at Brown University**\
-`In an emergency alert, the school told students and faculty to lock doors, silence phones and hide. A suspect was in custody.`\
+**Students Told to Hide From ‘Active Shooter’ at Brown University**\
+`A suspect was not in custody, university officials said in an alert, correcting an earlier posting. Students and faculty were told to lock doors, silence phones and hide.`\
 https://nytimes.com/2025/12/13/us/brown-university-shooting.html
 
 **Dustin May, Cardinals agree to 1-year contract: Sources**\
