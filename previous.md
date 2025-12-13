@@ -1,3 +1,7 @@
+**North Korean Soldiers Return to Fanfare After Serving in Russia’s War With Ukraine**\
+`Kim Jong-un hugged the returning troops and awarded the country’s highest medal to nine soldiers killed in action.`\
+https://nytimes.com/2025/12/13/world/asia/north-korea-soldiers-russia-ukraine.html
+
 **20 States Sue to Block $100,000 Fee for H-1B Visas**\
 `California and New York are among the states arguing that the Trump administration’s decision to charge that fee for skilled foreign workers is illegal.`\
 https://nytimes.com/2025/12/13/us/politics/states-lawsuit-h1b-visas.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6884287/2025/12/13/what-happens-when-a-star-player-
 **Fergie's fury and going to games in disguise - when our reporters were banned**\
 `The Athletic's reporters try to have constructive relationships with clubs, but sometimes things can become frosty...`\
 https://nytimes.com/athletic/6881282/2025/12/13/reporters-banned-premier-league-clubs/
-
-**Liverpool are creating more chances than opponents, so have they just been unlucky?**\
-`Why do some teams consistently 'win' on xG but lose the match? Is it just luck or is there more to it?`\
-https://nytimes.com/athletic/6881450/2025/12/13/liverpool-xg-premier-league-slot-luck/
 

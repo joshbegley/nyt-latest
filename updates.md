@@ -1,3 +1,7 @@
+**North Korean Soldiers Return to Fanfare After Serving in Russia’s War With Ukraine**\
+`Kim Jong-un hugged the returning troops and awarded the country’s highest medal to nine soldiers killed in action.`\
+https://nytimes.com/2025/12/13/world/asia/north-korea-soldiers-russia-ukraine.html
+
 **Steph Curry hits 100-foot shot before return to lineup, scores 39 in Warriors' loss**\
 `Curry played in his first game after missing five straight because of a quad injury, and he hit big shots before and during Friday's game.`\
 https://nytimes.com/athletic/6885536/2025/12/13/steph-curry-return-injury-warriors-nba/
