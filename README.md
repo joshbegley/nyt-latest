@@ -1,3 +1,7 @@
+**WATCH: Has Shedeur Sanders done enough to be Browns' QB in 2026?**\
+`Sanders is in line four more starts this season, so he'll have an opportunity to play his way into the Browns' long-term QB plans.`\
+https://nytimes.com/athletic/6886796/2025/12/13/shedeur-sanders-film-breakdown-scouting-qb-2026/
+
 **DoorDash Deliverer Faces Tampering Charges Tied to Food Order**\
 `The authorities said the woman, who was making a delivery for DoorDash, was captured on a doorbell camera spraying an unknown aerosol.`\
 https://nytimes.com/2025/12/13/us/kentucky-delivery-driver-pepper-spray-food.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6886729/2025/12/13/panthers-vs-stars-stream-how-to-
 **How to watch Capitals vs. Jets: Time, TV, streaming**\
 `Find out how to watch the Washington Capitals play the Winnipeg Jets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6886722/2025/12/13/capitals-vs-jets-stream-how-to-watch-dec-13/
-
-**How to watch Canadiens vs. Rangers: Time, TV, streaming**\
-`Find out how to watch the Montreal Canadiens play the New York Rangers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6886720/2025/12/13/canadiens-vs-rangers-stream-how-to-watch-dec-13/
 
