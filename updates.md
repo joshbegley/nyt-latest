@@ -1,3 +1,11 @@
+**All smiles for Slot and Salah, who played on Saturday like he had a point to prove with future unclear**\
+`The Egyptian played a crucial role off the bench at Anfield on Saturday - but his future remains unclear after last weekend's comments...`\
+https://nytimes.com/athletic/6886515/2025/12/13/salah-slot-liverpool-brighton-premier-league/
+
+**Kenley Jansen agrees to one-year deal with Tigers: Source**\
+`Jansen is 24 saves shy of becoming the third closer ever with 500.`\
+https://nytimes.com/athletic/6847998/2025/12/13/mlb-kenley-jansen-free-agency-signing-tigers/
+
 **Blackhawks call up goal-scoring prospect Nick Lardis with Connor Bedard injured**\
 `The 20-year-old Lardis accumulated 175 goals in 257 career OHL games before turning pro this season with the IceHogs.`\
 https://nytimes.com/athletic/6886746/2025/12/13/nick-lardis-nhl-blackhawks-debut/
