@@ -1,3 +1,7 @@
+**The Reasonable Majority Is No Longer Silent**\
+`Donald Trump is confronting a backlash of the reasonable.`\
+https://nytimes.com/2025/12/13/opinion/trump-swing-voters-approval-rating.html
+
 **Baby Steps**\
 `The antidote to our increasingly disembodied lives may lie in letting go of our inhibitions and dancing like kids do.`\
 https://nytimes.com/2025/12/13/briefing/baby-steps.html
