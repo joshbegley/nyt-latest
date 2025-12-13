@@ -1,3 +1,7 @@
+**Donald Trump honors 'Miracle on Ice' Olympic team with Congressional Gold Medal**\
+`The U.S. men's hockey team upset the Soviet Union in a medal round match at the 1980 Olympics in Lake Placid, N.Y.`\
+https://nytimes.com/athletic/6886819/2025/12/13/miracle-on-ice-olympic-hockey-congressional-medal/
+
 **How to watch Spurs vs. Thunder: Time, TV, streaming**\
 `Find out how to watch the San Antonio Spurs play the Oklahoma City Thunder, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6886996/2025/12/13/spurs-vs-thunder-stream-how-to-watch-dec-13/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6886734/2025/12/13/nj-devils-quinn-hughes-trade-nhl
 **Abraham Quintanilla Jr., Music Producer and Father of Selena, Dies at 86**\
 `As a teenager, he hoped to make it big in the Tejano music world. He realized that dream through his daughter.`\
 https://nytimes.com/2025/12/13/arts/music/abraham-quintanilla-dead.html
-
-**All smiles for Slot and Salah, who played on Saturday like he had a point to prove with future unclear**\
-`The Egyptian played a crucial role off the bench at Anfield on Saturday - but his future remains unclear after last weekend's comments...`\
-https://nytimes.com/athletic/6886515/2025/12/13/salah-slot-liverpool-brighton-premier-league/
 
