@@ -30,7 +30,7 @@ https://nytimes.com/athletic/6886542/2025/12/13/mets-padres-trade-talks-mlb/
 `Puka Nacua's dominant start has been a perfect example of what happens when a special player gets dropped into a special situation.`\
 https://nytimes.com/athletic/6885625/2025/12/13/rams-offense-puka-nacua-film-breakdown/
 
-**Jorge Polanco agrees to two-year, $40 million deal with the Mets: Sources**\
+**Jorge Polanco, Mets agree to 2-year, $40 million deal: Sources**\
 `The 32-year-old will help fill a void created by Pete Alonso's departure from Queens. `\
 https://nytimes.com/athletic/6792445/2025/12/13/mlb-jorge-polanco-free-agency-signing-mets/
 
