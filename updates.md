@@ -1,3 +1,7 @@
+**LA Galaxy close in on deal for Philadelphia Union's Jakob Glesnes**\
+`The 31-year-old center-back was named in the MLS' Best XI in 2025 after winning the Supporters' Shield with the Union.`\
+https://nytimes.com/athletic/6886547/2025/12/13/jakob-glesnes-la-galaxy-philadephia-union-transfer-news/
+
 **Michigan State's Tom Izzo becomes Big Ten’s highest-paid coach**\
 `Michigan State approved a contract amendment for Izzo that increases his salary to approximately $7.2 million per year.`\
 https://nytimes.com/athletic/6886527/2025/12/13/michigan-state-tom-izzo-big-ten-highest-paid-coach/
