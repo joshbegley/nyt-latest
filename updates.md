@@ -1,3 +1,15 @@
+**MAHA Moms Are Angry at the E.P.A. Lee Zeldin Is Trying to Win Them Back.**\
+`A split is emerging within Trump’s base as health activists accuse Mr. Zeldin of leading the agency to prioritize chemical industry interests over public health.`\
+https://nytimes.com/2025/12/13/climate/maha-moms-epa-lee-zeldin.html
+
+**The Briefing: Chelsea 2 Everton 0 - Cole Palmer scores on Stamford Bridge return as Maresca's side climb to fourth**\
+`Analysis of Chelsea's Premier League encounter with Everton at Stamford Bridge`\
+https://nytimes.com/athletic/6878213/2025/12/13/chelsea-everton-premier-league-analysis/
+
+**The Young People Fixated on Who Gets to Work in America**\
+`For some Gen Z conservatives, H-1B visas are a hot new topic.`\
+https://nytimes.com/2025/12/13/style/h1b-visa-young-conservatives-maga.html
+
 **Jorge Polanco, Mets agree to 2-year, $40 million deal: Sources**\
 `The 32-year-old will help fill a void created by Pete Alonso's departure from Queens. `\
 https://nytimes.com/athletic/6792445/2025/12/13/mlb-jorge-polanco-free-agency-signing-mets/

@@ -1,36 +1,36 @@
+**How to watch Kansas vs. NC State men's basketball: Time, TV, streaming**\
+`Find out how to watch the Kansas Jayhawks play the NC State Wolfpack, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6886685/2025/12/13/kansas-vs-nc-state-stream-how-to-watch-dec-13/
+
+**Cubs promote Tyler Zombro to a more significant pitching role within the organization**\
+`Zombro’s expertise will now be used more in amateur scouting and player development. `\
+https://nytimes.com/athletic/6886044/2025/12/13/cubs-promote-tyler-zombro-pitching/
+
+**How to watch Michigan vs. Maryland men's basketball: Time, TV, streaming**\
+`Find out how to watch the Michigan Wolverines play the Maryland Terrapins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6886682/2025/12/13/michigan-vs-maryland-stream-how-to-watch-dec-13/
+
+**How to watch Louisiana Tech vs. LSU women's basketball: Time, TV, streaming**\
+`Find out how to watch the Louisiana Tech Lady Techsters play the LSU Tigers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6886680/2025/12/13/louisiana-tech-vs-lsu-stream-how-to-watch-dec-13/
+
+**How to watch Central Arkansas vs. Vanderbilt men's basketball: Time, TV, streaming**\
+`Find out how to watch the Central Arkansas Bears play the Vanderbilt Commodores, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6886677/2025/12/13/central-arkansas-vs-vanderbilt-stream-how-to-watch-dec-13/
+
+**How to watch UConn vs. USC women's basketball: Time, TV, streaming**\
+`Find out how to watch the UConn Huskies play the USC Trojans, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6886675/2025/12/13/uconn-vs-usc-stream-how-to-watch-dec-13/
+
 **MAHA Moms Are Angry at the E.P.A. Lee Zeldin Is Trying to Win Them Back.**\
 `A split is emerging within Trump’s base as health activists accuse Mr. Zeldin of leading the agency to prioritize chemical industry interests over public health.`\
 https://nytimes.com/2025/12/13/climate/maha-moms-epa-lee-zeldin.html
 
-**The Briefing: Chelsea 2 Everton 0 - Cole Palmer scores on Stamford Bridge return as Maresca's side climb to fourth**\
+**The Briefing: Chelsea 2 Everton 0 - Palmer scores on Stamford Bridge return as Maresca's side climb to fourth**\
 `Analysis of Chelsea's Premier League encounter with Everton at Stamford Bridge`\
 https://nytimes.com/athletic/6878213/2025/12/13/chelsea-everton-premier-league-analysis/
 
 **The Young People Fixated on Who Gets to Work in America**\
 `For some Gen Z conservatives, H-1B visas are a hot new topic.`\
 https://nytimes.com/2025/12/13/style/h1b-visa-young-conservatives-maga.html
-
-**LA Galaxy close in on deal for Philadelphia Union's Jakob Glesnes**\
-`The 31-year-old center-back was named in the MLS' Best XI in 2025 after winning the Supporters' Shield with the Union.`\
-https://nytimes.com/athletic/6886547/2025/12/13/jakob-glesnes-la-galaxy-philadephia-union-transfer-news/
-
-**Michigan State's Tom Izzo becomes Big Ten’s highest-paid coach**\
-`Michigan State approved a contract amendment for Izzo that increases his salary to approximately $7.2 million per year.`\
-https://nytimes.com/athletic/6886527/2025/12/13/michigan-state-tom-izzo-big-ten-highest-paid-coach/
-
-**Israel Says It Killed Senior Hamas Commander, Despite Cease-Fire**\
-`Hamas said the attack on Saturday was a breach of the truce. The militant group did not comment on Israel’s claim to have killed one of its members.`\
-https://nytimes.com/2025/12/13/world/middleeast/israel-says-it-killed-senior-hamas-commander-despite-cease-fire.html
-
-**University of Maryland President Cleared of Plagiarism**\
-`The claims last year by a conservative publication against Darryll J. Pines prompted a yearlong investigation and an extensive review of his published works.`\
-https://nytimes.com/2025/12/13/us/politics/university-of-maryland-president-cleared-of-plagiarism.html
-
-**Woody Allen Is Not Sorry About His Friendship With Jeffrey Epstein**\
-`The nonagenarian director is taking a slightly different tack than many of the other powerful people associated with the disgraced former financier.`\
-https://nytimes.com/2025/12/13/style/allen-epstein.html
-
-**San Diego FC finalizing deal for Lewis Morgan from New York Red Bulls**\
-`The Red Bulls will receive a SuperDraft pick as part of the compensation.`\
-https://nytimes.com/athletic/6886579/2025/12/13/lewis-morgan-san-diego-fc-red-bulls/
 
