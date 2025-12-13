@@ -1,3 +1,11 @@
+**How to watch Senators vs. Wild: Time, TV, streaming**\
+`Find out how to watch the Ottawa Senators play the Minnesota Wild, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6886364/2025/12/13/senators-vs-wild-stream-how-to-watch-dec-13/
+
+**How to watch Ducks vs. Devils: Time, TV, streaming**\
+`Find out how to watch the Anaheim Ducks play the New Jersey Devils, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6886362/2025/12/13/ducks-vs-devils-stream-how-to-watch-dec-13/
+
 **How to watch Marquette vs. Purdue men's basketball: Time, TV, streaming**\
 `Find out how to watch the Marquette Golden Eagles play the Purdue Boilermakers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6886358/2025/12/13/marquette-vs-purdue-stream-how-to-watch-dec-13/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6886348/2025/12/13/arkansas-vs-texas-tech-stream-ho
 **How to watch Wofford vs. Ole Miss women's basketball: Time, TV, streaming**\
 `Find out how to watch the Wofford Terriers play the Ole Miss Rebels, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6886346/2025/12/13/wofford-vs-ole-miss-stream-how-to-watch-dec-13/
-
-**Messi's India tour begins in chaos as probe launched into 'deeply disturbing' vandalism**\
-`Footage from India's ANI news agency showed hundreds of fans invading the pitch, vandalising the stands and goal nets at the 85,000 stadium.`\
-https://nytimes.com/athletic/6886282/2025/12/13/lionel-messi-india-tour-violence-vandalism/
-
-**NBA Cup semifinals watch guide: Knicks vs. Magic, Thunder vs. Spurs in Las Vegas**\
-`Four teams remain in the third annual NBA in-season tournament. Saturday's doubleheader goes down in Las Vegas and on Prime Video.`\
-https://nytimes.com/athletic/6882659/2025/12/13/nba-cup-semifinals-knicks-magic-thunder-spurs-tv/
 
