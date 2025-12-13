@@ -1,3 +1,7 @@
+**Here’s what to know.**\
+`The university sent an alert late Saturday afternoon warning students to hide. A suspect was not in custody, university officials said, correcting an earlier posting.`\
+https://nytimes.com/live/2025/12/13/us/brown-shooting/brown-university-shooting
+
 **Christian McCaffrey likely to play through minor back injury vs. Titans: Source**\
 `McCaffrey had a day off on Wednesday and missed most of Thursday's practice with an illness, but practiced in full Friday.`\
 https://nytimes.com/athletic/6887108/2025/12/13/christian-mccaffrey-injury-status-update-49ers/

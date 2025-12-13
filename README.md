@@ -1,3 +1,11 @@
+**How Canucks are processing the Quinn Hughes trade as new players join team**\
+`The post-Quinn Hughes era of Canucks hockey began with a practice on Saturday afternoon in Newark, N.J.`\
+https://nytimes.com/athletic/6886944/2025/12/13/canucks-trade-hughes-buium-rossi/
+
+**White injury 'looks like a hamstring', Arteta says**\
+`The league leaders "don't know the extent" of the issue yet but the defender was forced off 30 minutes into their win against Wolves. `\
+https://nytimes.com/athletic/6887189/2025/12/13/ben-white-arsenal-injury-news-arteta/
+
 **Christian McCaffrey likely to play through minor back injury vs. Titans: Source**\
 `McCaffrey had a day off on Wednesday and missed most of Thursday's practice with an illness, but practiced in full Friday.`\
 https://nytimes.com/athletic/6887108/2025/12/13/christian-mccaffrey-injury-status-update-49ers/
@@ -6,8 +14,8 @@ https://nytimes.com/athletic/6887108/2025/12/13/christian-mccaffrey-injury-statu
 `Zachary Edward-Brown and John Kugelman’s puzzle makes moving fun.`\
 https://nytimes.com/2025/12/13/crosswords/daily-puzzle-2025-12-14.html
 
-**Live Updates: Multiple People Shot at Brown University, Police Say**\
-`The university told students and faculty members to lock doors and hide after reports of a shooting at the engineering building on the Rhode Island campus. A suspect was not in custody.`\
+**Live Updates: Multiple People Shot at Brown University During Finals**\
+`Officials said the extent of the injuries on the Rhode Island campus was unclear, and a suspect was not in custody. Students and faculty members were told to lock doors and remain in hiding.`\
 https://nytimes.com/live/2025/12/13/us/brown-shooting
 
 **The Briefing: Arsenal 2 Wolves 1 - Own-goal double restores five-point lead for Arteta's side**\
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6840410/2025/12/13/mlb-dustin-may-free-agency-signi
 **LaNorris Sellers expected to pass on 2026 NFL Draft, stay at South Carolina**\
 `Sellers would have drawn interest as a possible top-20 pick or via the transfer portal, but all signs point to him staying put.`\
 https://nytimes.com/athletic/6886817/2025/12/13/lanorris-sellers-nfl-draft-south-carolina-transfer/
-
-**Six U.N. Peacekeepers Killed in Drone Strike in Sudanese Battle Zone**\
-`The strike on a United Nations base in the southern Kordofan region was the deadliest single episode for the body’s personnel in Sudan’s civil war.`\
-https://nytimes.com/2025/12/13/world/africa/sudan-un-peacekeepers-killed-drone-strike.html
-
-**Brandon Aiyuk put on reserve/left squad list; 49ers tenure likely over**\
-`The wide receiver hasn't played since a Week 7 multi-ligament injury in 2024.`\
-https://nytimes.com/athletic/6887016/2025/12/13/brandon-aiyuk-49ers-season-over/
 
