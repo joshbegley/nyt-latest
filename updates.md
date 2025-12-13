@@ -1,3 +1,15 @@
+**Sixers drop Pacers as the old Joel Embiid scores season-high 39 points**\
+`Friday night was the first bit of proof that the old Joel Embiid can still show up and take over.`\
+https://nytimes.com/athletic/6886076/2025/12/13/sixers-win-pacers-old-joel-embiid-returns/
+
+**Steph Curry returns to Warriors after missing 5 games with quad injury**\
+`Warriors guard adds pregame theatrics to a vintage performance, minus a win.`\
+https://nytimes.com/athletic/6885536/2025/12/13/steph-curry-return-injury-warriors-nba/
+
+**The New York Times in Print for Saturday, Dec. 13, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/12/13/todays-new-york-times
+
 **Has Matthew Fisher's time finally come?**\
 `Fisher's progress has been frustrated by injury but, now with the help of Surrey and techniques used in baseball, he is ready to make a mark`\
 https://nytimes.com/athletic/6875461/2025/12/13/matthew-fisher-england-ashes-surrey-wood-lions/
