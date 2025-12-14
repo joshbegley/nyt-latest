@@ -1,3 +1,7 @@
+**Eagles-Raiders takeaways: Philadelphia shuts out Las Vegas**\
+`Hurts went 12-of-15 for 175 yards and three touchdowns.`\
+https://nytimes.com/athletic/6888641/2025/12/14/raiders-eagles-score-result-takeaways-nfl/
+
 **Chiefs QB Patrick Mahomes leaves in fourth quarter with apparent knee injury**\
 `Mahomes was replaced by Gardner Minshew, who threw an interception to seal the Chiefs' 16-13 loss and elimination from playoff contention.`\
 https://nytimes.com/athletic/6889142/2025/12/14/patrick-mahomes-chiefs-knee-injury-chargers/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/14/us/politics/clintons-epstein-inquiry.html
 **Bengals defend leaving snow on stadium seats, potentially violating NFL policy**\
 `The Bengals defended their actions in a statement, saying ushers could help wipe off seats if needed.`\
 https://nytimes.com/athletic/6888779/2025/12/14/bengals-snow-paycor-stadium/
-
-**Bondi Beach Is What ‘Globalize the Intifada’ Looks Like**\
-`When a slogan’s real meaning comes true.`\
-https://nytimes.com/2025/12/14/opinion/bondi-beach-shooting.html
 
