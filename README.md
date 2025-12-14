@@ -1,3 +1,11 @@
+**Chiefs QB Patrick Mahomes leaves in fourth quarter with apparent knee injury**\
+`The Chiefs need a win Sunday to avoid being eliminated from postseason contention.`\
+https://nytimes.com/athletic/6889142/2025/12/14/patrick-mahomes-chiefs-knee-injury-chargers/
+
+**What to Know About the Victims of the Bondi Beach Shooting**\
+`At least 15 people were killed in the attack in Sydney, including a long-serving rabbi in Bondi and a Holocaust survivor.`\
+https://nytimes.com/2025/12/14/world/australia/australia-shooting-hanukkah-victims-bondi-beach.html
+
 **A Hanukkah Attack in Sydney**\
 `Gunmen killed at least 15 people attending a Jewish celebration at the city’s popular Bondi Beach in what Australian officials are calling a terrorist attack.`\
 https://nytimes.com/2025/12/14/world/attack-hanukkah-sydney-kenya-maids-saudi.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6888779/2025/12/14/bengals-snow-paycor-stadium/
 **Bondi Beach Is What ‘Globalize the Intifada’ Looks Like**\
 `When a slogan’s real meaning comes true.`\
 https://nytimes.com/2025/12/14/opinion/bondi-beach-shooting.html
-
-**Read the document**\
-`Bill and Hillary Clinton’s lawyer writes a letter on Oct. 6 to the House Oversight Committee opposing their live testimony regarding the Jeffrey Epstein investigation.`\
-https://nytimes.com/interactive/2025/12/14/us/politics/20251006-dek-hogr.html
-
-**Read the document**\
-`Bill and Hillary Clinton’s lawyer writes a letter on Nov. 3 to the House Oversight Committee opposing their live testimony regarding the Jeffrey Epstein investigation.`\
-https://nytimes.com/interactive/2025/12/14/us/politics/20251103-dek-hogr.html
 
