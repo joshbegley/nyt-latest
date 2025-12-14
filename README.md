@@ -1,3 +1,15 @@
+**How to watch Lakers vs. Suns: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Lakers play the Phoenix Suns, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6888862/2025/12/14/lakers-vs-suns-stream-how-to-watch-dec-14/
+
+**How to watch Warriors vs. Trail Blazers: Time, TV, streaming**\
+`Find out how to watch the Golden State Warriors play the Portland Trail Blazers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6888860/2025/12/14/warriors-vs-trail-blazers-stream-how-to-watch-dec-14/
+
+**How to watch Sabres vs. Kraken: Time, TV, streaming**\
+`Find out how to watch the Buffalo Sabres play the Seattle Kraken, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6888857/2025/12/14/sabres-vs-kraken-stream-how-to-watch-dec-14/
+
 **PSG interested in signing Everton forward Gago**\
 `Conversations regarding a potential move away to PSG remain in initial stages and a transfer fee has yet to be agreed, sources said.`\
 https://nytimes.com/athletic/6888300/2025/12/14/psg-everton-kelly-gago-transfer/
@@ -21,16 +33,4 @@ https://nytimes.com/2025/12/14/world/australia/bondi-beach-gunman-tackled-video.
 **Frank expresses need for time at Spurs after Forest defeat: ‘This is not a quick fix’**\
 `Spurs were beaten 3-0 at the City Ground following a goal in either half from Callum Hudson-Odoi and an Ibrahim Sangare strike.`\
 https://nytimes.com/athletic/6888592/2025/12/14/thomas-frank-tottenham-forest-reaction/
-
-**How the Sydney Shooting Unfolded: Maps and Videos**\
-`Two suspected gunmen opened fire from a footbridge at hundreds of people who had gathered for a Hanukkah celebration.`\
-https://nytimes.com/interactive/2025/12/14/world/australia/sydney-bondi-beach-shooting-maps.html
-
-**Newcastle's Burn hospitalised after rib injury vs. Sunderland**\
-`Burn was sent for medical checks after his 42nd-minute substitution. “He was struggling to breathe at half-time," Eddie Howe said.`\
-https://nytimes.com/athletic/6888505/2025/12/14/dan-burn-newcastle-sunderland-injury/
-
-**Jewish Community Targeted in Deadly Australian Shooting**\
-`At least 11 people were killed and several others were injured at Bondi Beach in Sydney on Sunday, after what officials said was a terrorist attack on Jewish Australians.`\
-https://nytimes.com/video/world/australia/100000010586397/australia-mass-shooting-jewish.html
 
