@@ -1,3 +1,11 @@
+**NBA Cup takeaways: Jalen Brunson erupts, Knicks outlast Magic to reach final**\
+`The victory gives New York a chance to prove that it can contend not only in the East but also against one of the West's best.`\
+https://nytimes.com/athletic/6887141/2025/12/13/nba-cup-takeaways-semifinals-magic-knicks-spurs-thunder/
+
+**Buffalo Bills players, staff safe after mass shooting near team hotel: Sources**\
+`The Bills are staying less than 2 miles from the scene of a mass shooting on the campus of Brown University.`\
+https://nytimes.com/athletic/6887372/2025/12/13/brown-shooting-buffalo-bills-hotel-patriots/
+
 **Pathetic third period spells doom for the Penguins: Observations**\
 `In a week of embarrassing losses, the Penguins outdid themselves on Saturday in a 6-5 overtime loss to the Sharks. `\
 https://nytimes.com/athletic/6887233/2025/12/13/penguins-sharks-overtime-observations-sidney-crosby/
