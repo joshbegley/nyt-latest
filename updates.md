@@ -1,3 +1,11 @@
+**Man arrested after football manager injured before non-league match**\
+`A man has been arrested on suspicion of causing grievous bodily harm after an incident before Welling United vs Potters Bar.`\
+https://nytimes.com/athletic/6888005/2025/12/14/welling-united-potters-bar-arrest/
+
+**Merrill Kelly, Diamondbacks finalizing two-year, $40 million deal: Source**\
+`The 37-year-old righty had spent his entire major-league career in Arizona before heading to Texas at the 2025 trade deadline.`\
+https://nytimes.com/athletic/6781395/2025/12/14/merrill-kelly-free-agency-signing-diamondbacks/
+
 **Hamas Confirms Top Commander’s Death in Israeli Strike in Gaza**\
 `The killing of the commander, Raed Saad, on Saturday was the highest-profile assassination of a Hamas leader since a cease-fire came into force two months ago.`\
 https://nytimes.com/2025/12/14/world/middleeast/hamas-israel-commander-killed.html
