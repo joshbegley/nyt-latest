@@ -1,3 +1,11 @@
+**Gunshots, Sirens and a Manhunt Transform Brown’s Campus**\
+`A typical Saturday night on the Ivy League campus was shaken by the killing of two people and the wounding of 9 others.`\
+https://nytimes.com/2025/12/13/us/shooting-brown-university-manhunt.html
+
+**USA sweeps Canada in Rivalry Series, final meeting before Olympics**\
+`While Saturday night ended with a fourth straight loss to the Americans, the Canadians put up a hard-fought effort.`\
+https://nytimes.com/athletic/6887568/2025/12/13/usa-canada-rivalry-series-hockey-2026-olympics/
+
 **Jalen Brunson, pound for pound, is the NBA's best scorer**\
 `With Jalen Brunson, it's time to say the quiet part out loud, writes James L. Edwards III.`\
 https://nytimes.com/athletic/6887574/2025/12/13/jalen-brunson-knicks-nba-best-scorer/
