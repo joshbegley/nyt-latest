@@ -1,3 +1,7 @@
+**Kalen DeBoer shuts down Michigan coaching search talk**\
+`DeBoer is in his second season at Alabama and set to play at Oklahoma in a first-round College Football Playoff game.`\
+https://nytimes.com/athletic/6889242/2025/12/14/kalen-deboer-michigan-coach-rumors/
+
 **Commanders-Giants takeaways: Punt return touchdown sparks Washington win**\
 `In a game featuring the two worst teams in the NFC East, the Commanders' special teams unit made the difference.`\
 https://nytimes.com/athletic/6888212/2025/12/14/commanders-giants-takeaways-result-score/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6889064/2025/12/14/chiefs-bengals-vikings-playoff-e
 **‘Anna Christie’ Review: Michelle Williams on the Waterfront**\
 `The actress stars in Thomas Kail’s luminous revival of Eugene O’Neill’s play about a woman whose past threatens her future.`\
 https://nytimes.com/2025/12/14/theater/anna-christie-review-michelle-williams-on-the-waterfront.html
-
-**Eagles-Raiders takeaways: Philadelphia shuts out Las Vegas**\
-`Hurts went 12-of-15 for 175 yards and three touchdowns.`\
-https://nytimes.com/athletic/6888641/2025/12/14/raiders-eagles-score-result-takeaways-nfl/
 

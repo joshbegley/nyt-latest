@@ -1,3 +1,11 @@
+**Commanders-Giants takeaways: Punt return touchdown sparks Washington win**\
+`In a game featuring the two worst teams in the NFC East, the Commanders' special teams unit made the difference.`\
+https://nytimes.com/athletic/6888212/2025/12/14/commanders-giants-takeaways-result-score/
+
+**Lamar Jackson's 2 TDs spark Ravens offense, dashing Bengals' postseason hopes**\
+`The Bengals officially miss the playoffs for the third consecutive season and lose 10 games for the first time since 2020.`\
+https://nytimes.com/athletic/6889095/2025/12/14/ravens-bengals-score-result-takeaways-nfl/
+
 **Josh Allen and the Bills stun Patriots with 21-point comeback victory**\
 `For the second week in a row, the Bills came alive in the second half to pull off a comeback.`\
 https://nytimes.com/athletic/6888549/2025/12/14/bills-patriots-score-result-takeaways-nfl/
