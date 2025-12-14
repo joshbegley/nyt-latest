@@ -14,8 +14,8 @@ https://nytimes.com/athletic/6887164/2025/12/14/victor-wembanyama-return-nba-cup
 `Both women said the shooting on Saturday had damaged a sense of security they had cultivated for years based on the notion that they were unlikely to witness two school shootings in one lifetime.`\
 https://nytimes.com/2025/12/13/us/brown-students-mass-shooting-parkland.html
 
-**Maple Leafs can’t afford to lose their edge: 'We gotta start pushing'**\
-`That corner the Toronto Maple Leafs looked to be turning is suddenly in the past. They lost 6-3 to the Edmonton Oilers.`\
+**Maple Leafs can't afford to lose their edge: 'We gotta start pushing'**\
+`That corner the Maple Leafs looked to be turning is suddenly in the past. They lost 6-3 to the Oilers on Saturday.`\
 https://nytimes.com/athletic/6887637/2025/12/14/maple-leafs-lose-oilers-result-score/
 
 **Why Juventus, despite problems, are resisting $1bn takeover by a stablecoin company**\

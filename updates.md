@@ -1,3 +1,7 @@
+**Maple Leafs can't afford to lose their edge: 'We gotta start pushing'**\
+`That corner the Maple Leafs looked to be turning is suddenly in the past. They lost 6-3 to the Oilers on Saturday.`\
+https://nytimes.com/athletic/6887637/2025/12/14/maple-leafs-lose-oilers-result-score/
+
 **A Brown University Instructor Hid From Gunfire With His Students**\
 `Joseph Oduro, 21, said he was leading an economics study session for about 60 students when a masked man entered the room and started shooting.`\
 https://nytimes.com/2025/12/14/us/brown-shooting-classroom-victims.html
