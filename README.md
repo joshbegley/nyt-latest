@@ -1,3 +1,7 @@
+**Mohamed Salah the Liverpool player is no longer untouchable, but his legacy is**\
+`Nothing lasts forever in sport. Nothing except the memories and the images that the most treasured players leave behind`\
+https://nytimes.com/athletic/6887622/2025/12/14/mohamed-salah-legacy-liverpool-ekitike-premier-league/
+
 **Why a thrilling NBA Cup semifinal ended with all those fouls**\
 `The last nine seconds of the game featured one foul and whistle after another, with the Spurs ultimately coming out on top.`\
 https://nytimes.com/athletic/6887800/2025/12/14/spurs-thunder-nba-cup-ending-fouls/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6886577/2025/12/14/juventus-stablecoin-tether-takeo
 **Everton's revival meets its arch-nemesis: Stamford Bridge**\
 `Saturday's defeat was probably a fair reflection of where David Moyes' flawed-but-improving side are right now`\
 https://nytimes.com/athletic/6887159/2025/12/14/everton-stamford-bridge-hoodoo-moyes-grealish/
-
-**What does Apollo's investment in Wrexham mean? Why have they also got public funding?**\
-`U.S. firm buying a stake in the ambitious Welsh club has attracted controversy - and why the money won't be spent on more new signings`\
-https://nytimes.com/athletic/6881424/2025/12/14/what-does-apollos-investment-in-wrexham-mean-why-have-they-also-got-public-funding/
 
