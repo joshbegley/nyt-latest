@@ -1,5 +1,5 @@
-**Police Urge People to Avoid Sydney’s Bondi Beach After Incident**\
-`Anyone in the area should take shelter, the police said. They declined to elaborate and details of the incident were not immediately clear.`\
+**At Least 10 People Injured in Shooting at Bondi Beach in Sydney**\
+`Anyone in the area should take shelter, the police said. They declined to elaborate, and details of the shooting were not immediately clear.`\
 https://nytimes.com/2025/12/14/world/asia/bondi-sydney-australia-police-shooting.html
 
 **His Job Is to Make the Subway Accessible. His Own Life Fuels His Work.**\
