@@ -1,5 +1,5 @@
 **Chiefs QB Patrick Mahomes leaves in fourth quarter with apparent knee injury**\
-`The Chiefs need a win Sunday to avoid being eliminated from postseason contention.`\
+`Mahomes was replaced by Gardner Minshew, who threw an interception to seal the Chiefs' 16-13 loss and elimination from playoff contention.`\
 https://nytimes.com/athletic/6889142/2025/12/14/patrick-mahomes-chiefs-knee-injury-chargers/
 
 **What to Know About the Victims of the Bondi Beach Shooting**\
