@@ -1,3 +1,11 @@
+**Bystander Tackled and Disarmed One of the Sydney Gunmen, Video Shows**\
+`The video, verified by The New York Times, shows a man sneaking up on one of the shooters who targeted a Hanukkah celebration in Sydney on Sunday.`\
+https://nytimes.com/2025/12/14/world/australia/bondi-beach-gunman-tackled-video.html
+
+**Frank expresses need for time at Spurs after Forest defeat: ‘This is not a quick fix’**\
+`Spurs were beaten 3-0 at the City Ground following a goal in either half from Callum Hudson-Odoi and an Ibrahim Sangare strike.`\
+https://nytimes.com/athletic/6888592/2025/12/14/thomas-frank-tottenham-forest-reaction/
+
 **Zelensky Offers Compromise Before Latest Round of Peace Plan Talks**\
 `Ukraine’s president is meeting with U.S. negotiators on the latest plans to try to end the war with Russia. He said he would give up hopes of joining NATO, at least for now, if he got strong security guarantees.`\
 https://nytimes.com/2025/12/14/world/europe/zelensky-ukraine-peace-talks.html

@@ -1,3 +1,7 @@
+**Surveillance Never Looked So Good**\
+`Charisse Pearlina Weston turns nefarious materials developed to monitor people into precarious, undulating forms.`\
+https://nytimes.com/2025/12/14/arts/design/charisse-pearlina-weston.html
+
 **Bystander Tackled and Disarmed One of the Sydney Gunmen, Video Shows**\
 `The video, verified by The New York Times, shows a man sneaking up on one of the shooters who targeted a Hanukkah celebration in Sydney on Sunday.`\
 https://nytimes.com/2025/12/14/world/australia/bondi-beach-gunman-tackled-video.html
@@ -27,10 +31,6 @@ https://nytimes.com/video/us/100000010586541/brown-university-shooting-press-con
 https://nytimes.com/athletic/6887793/2025/12/14/mlb-offseason-superlatives-so-far-plus-a-heisman-winner-is-crowned/
 
 **Zelensky Offers Compromise Before Latest Round of Peace Plan Talks**\
-`Ukraine’s president is meeting with U.S. negotiators on the latest plans to try to end the war with Russia. He said he would give up hopes of joining NATO, at least for now, if he got strong security guarantees.`\
+`Ukraine’s president is meeting with U.S. negotiators about plans to end the war with Russia. He said he would give up hopes of joining NATO in exchange for security guarantees.`\
 https://nytimes.com/2025/12/14/world/europe/zelensky-ukraine-peace-talks.html
-
-**Lowetide: Ranking the Oilers' call-up options among forwards**\
-`There are few forwards in Bakersfield who could have a material impact on Edmonton's postseason.`\
-https://nytimes.com/athletic/6886830/2025/12/14/edmonton-oilers-depth-chart-forwards-ike-howard/
 
