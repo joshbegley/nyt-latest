@@ -1,3 +1,7 @@
+**Person of Interest in Brown University Shooting Is Detained**\
+`Authorities said that a gunman shot two students and injured nine more in an attack in a classroom at Brown University on Saturday. On Sunday, officials said that a person of interest in connection with the shooting had been detained.`\
+https://nytimes.com/video/us/100000010586393/brown-university-shooting.html
+
 **New York City Gets Its First Big Snowfall of the Season**\
 `The city has not seen this much snow this early in the season since 2019, the National Weather Service said.`\
 https://nytimes.com/2025/12/14/weather/snowstorm-nyc-weather.html
