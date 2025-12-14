@@ -1,3 +1,7 @@
+**PSG interested in signing Everton forward Gago**\
+`Conversations regarding a potential move away to PSG remain in initial stages and a transfer fee has yet to be agreed, sources said.`\
+https://nytimes.com/athletic/6888300/2025/12/14/psg-everton-kelly-gago-transfer/
+
 **The Briefing - Brentford 1 Leeds 1: Calvert-Lewin flying, cut-back error, game of fine margins**\
 `Leeds United drew 1-1 with Brentford to gain a precious Premier League point. Here are the main themes from the game.`\
 https://nytimes.com/athletic/6886294/2025/12/14/calvert-lewin-brentford-leeds-premier-league-result/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6888505/2025/12/14/dan-burn-newcastle-sunderland-in
 **Jewish Community Targeted in Deadly Australian Shooting**\
 `At least 11 people were killed and several others were injured at Bondi Beach in Sydney on Sunday, after what officials said was a terrorist attack on Jewish Australians.`\
 https://nytimes.com/video/world/australia/100000010586397/australia-mass-shooting-jewish.html
-
-**Watch Live: Officials Give an Update on the Brown Shooting**\
-`Officials provide an update on the shooting that happened at Brown University on Saturday.`\
-https://nytimes.com/video/us/100000010586541/brown-university-shooting-press-conference.html
 
