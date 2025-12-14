@@ -1,3 +1,7 @@
+**How did the Chiefs fall apart? How did the Bills stun the Pats? Our experts' Week 15 takeaways**\
+`The Bills pulled off one of the most improbable comeback wins of the season, while Jalen Hurts and Lamar Jackson both bounced back.`\
+https://nytimes.com/athletic/6888715/2025/12/14/nfl-takeaways-week-15-scores-results/
+
 **House Republicans Accuse D.C. Police of Manipulating Crime Statistics**\
 `The committee cited interviews with police commanders in an effort to buttress President Trump’s federal takeover of law enforcement and the National Guard deployment in the capital city.`\
 https://nytimes.com/2025/12/14/us/politics/house-republicans-dc-crime.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6888212/2025/12/14/commanders-giants-takeaways-resu
 **Lamar Jackson's 2 TDs spark Ravens offense, dashing Bengals' postseason hopes**\
 `The Bengals officially miss the playoffs for the third consecutive season and lose 10 games for the first time since 2020.`\
 https://nytimes.com/athletic/6889095/2025/12/14/ravens-bengals-score-result-takeaways-nfl/
-
-**Josh Allen and the Bills stun Patriots with 21-point comeback victory**\
-`For the second week in a row, the Bills came alive in the second half to pull off a comeback.`\
-https://nytimes.com/athletic/6888549/2025/12/14/bills-patriots-score-result-takeaways-nfl/
 
