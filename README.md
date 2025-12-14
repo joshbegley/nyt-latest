@@ -1,3 +1,7 @@
+**A Brown University Instructor Hid From Gunfire With His Students**\
+`Joseph Oduro, 21, said he was leading an economics study session for about 60 students when a masked man entered the room and started shooting.`\
+https://nytimes.com/2025/12/14/us/brown-shooting-classroom-victims.html
+
 **The New York Times in Print for Sunday, Dec. 14, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/12/14/todays-new-york-times
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6881424/2025/12/14/what-does-apollos-investment-in-
 **Welcome to Neymar: the referendum. Does he deserve to be in Brazil's World Cup plans?**\
 `One topic of conversation will dominate Brazil's build-up to the 2026 tournament, just as it did with Romario in 2002`\
 https://nytimes.com/athletic/6884385/2025/12/14/neymar-brazil-world-cup-2026/
-
-**'FIFA treating it like a Taylor Swift concert': England fans fume over World Cup ticket prices**\
-`After eye-watering price rises on World Cup tickets, what do loyal England fans think - and can they even afford to go to the tournament?`\
-https://nytimes.com/athletic/6886250/2025/12/14/england-fans-world-cup-ticket-prices/
 
