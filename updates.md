@@ -1,3 +1,11 @@
+**Bondi Beach Is What ‘Globalize the Intifada’ Looks Like**\
+`When a slogan’s real meaning comes true.`\
+https://nytimes.com/2025/12/14/opinion/bondi-beach-shooting.html
+
+**Read the document**\
+`Bill and Hillary Clinton’s lawyer writes a letter on Oct. 6 to the House Oversight Committee opposing their live testimony regarding the Jeffrey Epstein investigation.`\
+https://nytimes.com/interactive/2025/12/14/us/politics/20251006-dek-hogr.html
+
 **Read the document**\
 `Bill and Hillary Clinton’s lawyer writes a letter on Nov. 3 to the House Oversight Committee opposing their live testimony regarding the Jeffrey Epstein investigation.`\
 https://nytimes.com/interactive/2025/12/14/us/politics/20251103-dek-hogr.html
