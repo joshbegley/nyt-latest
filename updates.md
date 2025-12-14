@@ -1,3 +1,7 @@
+**Pathetic third period spells doom for the Penguins: Observations**\
+`In a week of embarrassing losses, the Penguins outdid themselves on Saturday in a 6-5 overtime loss to the Sharks. `\
+https://nytimes.com/athletic/6887233/2025/12/13/penguins-sharks-overtime-observations-sidney-crosby/
+
 **Buffalo Bills players, staff safe after mass shooting near team hotel: Sources**\
 `The Bills are staying less than two miles from the scene of a mass shooting on the campus of Brown University.`\
 https://nytimes.com/athletic/6887372/2025/12/13/brown-shooting-buffalo-bills-hotel-patriots/

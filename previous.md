@@ -1,3 +1,7 @@
+**Pathetic third period spells doom for the Penguins: Observations**\
+`In a week of embarrassing losses, the Penguins outdid themselves on Saturday in a 6-5 overtime loss to the Sharks. `\
+https://nytimes.com/athletic/6887233/2025/12/13/penguins-sharks-overtime-observations-sidney-crosby/
+
 **Buffalo Bills players, staff safe after mass shooting near team hotel: Sources**\
 `The Bills are staying less than two miles from the scene of a mass shooting on the campus of Brown University.`\
 https://nytimes.com/athletic/6887372/2025/12/13/brown-shooting-buffalo-bills-hotel-patriots/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6887244/2025/12/13/wild-players-react-quinn-hughes-
 **Witnesses describe an anxious campus as news of a shooting spread and police arrived.**\
 `By Rylee Kirk, Mitch Smith, Alan Blinder and Ashley Ahn`\
 https://nytimes.com/live/2025/12/13/us/brown-shooting/witnesses-describe-an-anxious-campus-as-news-of-a-shooting-spread-and-police-arrived
-
-**A Pottery Master Prospers in Japan by Embracing a Troubled History**\
-`Visuals by Chang W. Lee, Text by Martin Fackler and Hisako Ueno`\
-https://nytimes.com/card/2025/12/14/world/asia/japan-korea-pottery
 
