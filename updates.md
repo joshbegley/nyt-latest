@@ -1,3 +1,7 @@
+**Hamas Confirms Top Commander’s Death in Israeli Strike in Gaza**\
+`The killing of the commander, Raed Saad, on Saturday was the highest-profile assassination of a Hamas leader since a cease-fire came into force two months ago.`\
+https://nytimes.com/2025/12/14/world/middleeast/hamas-israel-commander-killed.html
+
 **Hospitalized Brown Student Describes Hiding From Shooter**\
 `The student, in his first year at Brown, was shot in the leg. He described helping others who were more seriously injured as they hid in their classroom.`\
 https://nytimes.com/2025/12/14/us/brown-shooting-witness-spencer-yang.html
