@@ -1,3 +1,7 @@
+**Colts QB Philip Rivers, 44, throws first regular-season TD pass since 2020**\
+`Rivers shook off the rust quickly, completing his last seven passes of the first half.`\
+https://nytimes.com/athletic/6888668/2025/12/14/colts-philip-rivers-seahawks-score-result-takeaways-2/
+
 **U.S. Military Plane and JetBlue Flight Nearly Collided Over Caribbean, Radio Traffic Shows**\
 `The Air Force refueling tanker was flying without its location transponder activated and could not be detected by air traffic control.`\
 https://nytimes.com/2025/12/14/world/americas/jetblue-venezuela-midair-collision-us-air-force.html
