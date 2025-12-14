@@ -1,3 +1,15 @@
+**How to watch Hornets vs. Cavaliers: Time, TV, streaming**\
+`Find out how to watch the Charlotte Hornets play the Cleveland Cavaliers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6888133/2025/12/14/hornets-vs-cavaliers-stream-how-to-watch-dec-14/
+
+**How to watch Wizards vs. Pacers: Time, TV, streaming**\
+`Find out how to watch the Washington Wizards play the Indiana Pacers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6888130/2025/12/14/wizards-vs-pacers-stream-how-to-watch-dec-14/
+
+**How to watch Mammoth vs. Penguins: Time, TV, streaming**\
+`Find out how to watch the Utah Mammoth play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6888128/2025/12/14/mammoth-vs-penguins-stream-how-to-watch-dec-14/
+
 **A Hanukkah Attack**\
 `We cover shootings at Bondi Beach, in Australia, and at Brown University.`\
 https://nytimes.com/2025/12/14/briefing/a-hanukkah-attack.html
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/6888103/2025/12/14/winthrop-vs-tennessee-stream-how
 **How to watch Kentucky vs. Belmont women's basketball: Time, TV, streaming**\
 `Find out how to watch the Kentucky Wildcats play the Belmont Bruins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6888101/2025/12/14/kentucky-vs-belmont-stream-how-to-watch-dec-14/
-
-**How to watch Louisville vs. North Carolina women's basketball: Time, TV, streaming**\
-`Find out how to watch the Louisville Cardinals play the North Carolina Tar Heels, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6888099/2025/12/14/louisville-vs-north-carolina-stream-how-to-watch-dec-14/
-
-**James Cameron Tempers His Temper and Channels His Inner Na’vi**\
-`Years after his Titanic tantrums, the “Avatar” director has “mellowed,” says Sigourney Weaver. He calls it “marinating.”`\
-https://nytimes.com/2025/12/14/style/james-cameron-tempers-his-temper-and-channels-his-inner-navi.html
-
-**Confirm or Deny: James Cameron Edition**\
-`The box office king sits for a lightning-round interview.`\
-https://nytimes.com/2025/12/14/style/confirm-or-deny-james-cameron-edition.html
 

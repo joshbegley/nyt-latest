@@ -1,3 +1,7 @@
+**A Hanukkah Attack**\
+`We cover shootings at Bondi Beach, in Australia, and at Brown University.`\
+https://nytimes.com/2025/12/14/briefing/a-hanukkah-attack.html
+
 **How to watch Notre Dame vs. JMU women's basketball: Time, TV, streaming**\
 `Find out how to watch the Notre Dame Fighting Irish play the James Madison Dukes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6888111/2025/12/14/notre-dame-vs-jmu-stream-how-to-watch-dec-14/
