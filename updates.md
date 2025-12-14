@@ -1,3 +1,11 @@
+**Live Updates: At Least 10 Injured in Shooting at Sydney’s Bondi Beach**\
+`The police told people near Bondi, one of Australia’s best-known beaches, to take shelter. Details of the shooting were not immediately clear.`\
+https://nytimes.com/live/2025/12/14/world/sydney-bondi-beach-shooting
+
+**Why a thrilling NBA Cup semifinal ended with all those fouls**\
+`The last nine seconds of the game featured one foul and whistle after another, with the Spurs ultimately coming out on top.`\
+https://nytimes.com/athletic/6887800/2025/12/14/spurs-thunder-nba-cup-ending-fouls/
+
 **Live Updates: At Least 10 Injured in Shooting at Australia’s Best-Known Beach**\
 `Two people were in custody after the shooting at Bondi Beach in Sydney, the police said. The authorities advised people nearby to take shelter.`\
 https://nytimes.com/live/2025/12/14/world/sydney-bondi-beach-shooting
