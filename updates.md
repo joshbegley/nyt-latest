@@ -1,3 +1,11 @@
+**In 21 minutes, Victor Wembanyama dominates previously dominant Thunder in return from injury**\
+`Playing on a minutes restriction, Wembanyama finished with 22 points, nine rebounds and two blocks in a 111-109 win over the Thunder.`\
+https://nytimes.com/athletic/6887164/2025/12/14/victor-wembanyama-return-nba-cup/
+
+**2 Students at Brown Witnessed School Shootings as Children**\
+`Both women said the shooting on Saturday had damaged a sense of security they had cultivated for years based on the notion that they were unlikely to witness two school shootings in one lifetime.`\
+https://nytimes.com/2025/12/13/us/brown-students-mass-shooting-parkland.html
+
 **Victor Wembanyama, Spurs snap Thunder's 16-game winning streak to reach NBA Cup final**\
 `Playing on a minutes restriction, Wembanyama finished with 22 points, nine rebounds and two blocks in a 111-109 win over the Thunder.`\
 https://nytimes.com/athletic/6887164/2025/12/14/victor-wembanyama-return-nba-cup/
