@@ -1,3 +1,15 @@
+**How to watch Lakers vs. Suns: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Lakers play the Phoenix Suns, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6888862/2025/12/14/lakers-vs-suns-stream-how-to-watch-dec-14/
+
+**How to watch Warriors vs. Trail Blazers: Time, TV, streaming**\
+`Find out how to watch the Golden State Warriors play the Portland Trail Blazers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6888860/2025/12/14/warriors-vs-trail-blazers-stream-how-to-watch-dec-14/
+
+**How to watch Sabres vs. Kraken: Time, TV, streaming**\
+`Find out how to watch the Buffalo Sabres play the Seattle Kraken, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6888857/2025/12/14/sabres-vs-kraken-stream-how-to-watch-dec-14/
+
 **The Briefing - Brentford 1 Leeds 1: Calvert-Lewin flying, cutback error, game of fine margins**\
 `Leeds United drew 1-1 with Brentford to gain a precious Premier League point. Here are the main themes from the game.`\
 https://nytimes.com/athletic/6886294/2025/12/14/calvert-lewin-brentford-leeds-premier-league-result/
