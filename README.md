@@ -1,3 +1,7 @@
+**The Briefing - Brentford 1 Leeds 1: Calvert-Lewin flying, cut-back error, game of fine margins**\
+`Leeds United drew 1-1 with Brentford to gain a precious Premier League point. Here are the main themes from the game.`\
+https://nytimes.com/athletic/6886294/2025/12/14/calvert-lewin-brentford-leeds-premier-league-result/
+
 **A preview of The Athletic’s live coverage this week**\
 `Our live coverage this week includes Joshua vs Paul, Premier League, NFL and more`\
 https://nytimes.com/athletic/6888056/2025/12/14/live-coverage-weekly-schedule-4/
@@ -29,8 +33,4 @@ https://nytimes.com/video/world/australia/100000010586397/australia-mass-shootin
 **Watch Live: Officials Give an Update on the Brown Shooting**\
 `Officials provide an update on the shooting that happened at Brown University on Saturday.`\
 https://nytimes.com/video/us/100000010586541/brown-university-shooting-press-conference.html
-
-**The Pulse: MLB offseason's early movers (and snoozers)**\
-`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
-https://nytimes.com/athletic/6887793/2025/12/14/mlb-offseason-superlatives-so-far-plus-a-heisman-winner-is-crowned/
 
