@@ -1,3 +1,19 @@
+**What does Apollo's investment in Wrexham mean? Why have they also got public funding?**\
+`U.S. firm buying a stake in the ambitious Welsh club has attracted controversy - and why the money won't be spent on more new signings`\
+https://nytimes.com/athletic/6881424/2025/12/14/what-does-apollos-investment-in-wrexham-mean-why-have-they-also-got-public-funding/
+
+**Welcome to Neymar: the referendum. Does he deserve to be in Brazil's World Cup plans?**\
+`One topic of conversation will dominate Brazil's build-up to the 2026 tournament, just as it did with Romario in 2002`\
+https://nytimes.com/athletic/6884385/2025/12/14/neymar-brazil-world-cup-2026/
+
+**'FIFA treating it like a Taylor Swift concert': England fans fume over World Cup ticket prices**\
+`After eye-watering price rises on World Cup tickets, what do loyal England fans think - and can they even afford to go to the tournament?`\
+https://nytimes.com/athletic/6886250/2025/12/14/england-fans-world-cup-ticket-prices/
+
+**Park the bus, raumdeuter, prawn sandwich brigade – football’s word of the year, 2000-2025**\
+`With 'ragebait' the Oxford English Dictionary word of the year, here's a look at what footballing equivalents might have been since 2000`\
+https://nytimes.com/athletic/6875571/2025/12/14/football-word-of-the-year-premier-league-mourinho-guardiola-muller-messi/
+
 **In Rome, the King of Paparazzi Is a Star in His Own Right**\
 `Rino Barillari has been snapping photos of, and sparring with, the famous for 65 years, from Princess Margaret to Lady Gaga, Peter O’Toole to Spike Lee. He is now a fixture himself in the celebrity firmament.`\
 https://nytimes.com/2025/12/14/world/europe/rome-italy-celebrity-paparazzi-rino-barillari.html
@@ -17,20 +33,4 @@ https://nytimes.com/athletic/6887624/2025/12/14/connections-sports-edition-hints
 **'The Athletic Show': Philip Rivers returns, flag football exploding**\
 `Rivers is older than 13 NFL head coaches, making his joining the Colts a confounding choice as they're on the verge of playoff elimination.`\
 https://nytimes.com/athletic/6885530/2025/12/14/athletic-show-philip-rivers-flag-football-nfl/
-
-**Gunshots, Sirens and a Manhunt Transform Brown’s Campus**\
-`A typical Saturday night on the Ivy League campus was shaken by the killing of two people and the wounding of 9 others.`\
-https://nytimes.com/2025/12/13/us/shooting-brown-university-manhunt.html
-
-**USA sweeps Canada in Rivalry Series, final meeting before Olympics**\
-`While Saturday night ended with a fourth straight loss to the Americans, the Canadians put up a hard-fought effort.`\
-https://nytimes.com/athletic/6887568/2025/12/13/usa-canada-rivalry-series-hockey-2026-olympics/
-
-**Jalen Brunson, pound for pound, is the NBA's best scorer**\
-`With Jalen Brunson, it's time to say the quiet part out loud, writes James L. Edwards III.`\
-https://nytimes.com/athletic/6887574/2025/12/13/jalen-brunson-knicks-nba-best-scorer/
-
-**Losing streak hits season-long 5 games as Blue Jackets' late rally attempt fizzles**\
-`Columbus had several opportunities to tie the score late, but it still fell short, 3-2, to the Golden Knights on Saturday.`\
-https://nytimes.com/athletic/6887590/2025/12/13/blue-jackets-golden-knights-adam-fantilli/
 
