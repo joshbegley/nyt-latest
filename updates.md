@@ -1,3 +1,15 @@
+**Until Saturday: The most brutal call of the season**\
+`Until Saturday is The Athletic's free college football newsletter.`\
+https://nytimes.com/athletic/6888143/2025/12/14/celebration-bowl-ending-until-saturday/
+
+**Bondi Shooting Is Latest in Alarming Rise of Antisemitic Attacks in Australia**\
+`A string of incidents has targeted the Jewish community in recent months.`\
+https://nytimes.com/2025/12/14/world/australia/bondi-shooting-antisemitic-attacks-australia.html
+
+**How to watch Hornets vs. Cavaliers: Time, TV, streaming**\
+`Find out how to watch the Charlotte Hornets play the Cleveland Cavaliers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6888133/2025/12/14/hornets-vs-cavaliers-stream-how-to-watch-dec-14/
+
 **New York City Gets Its First Big Snowfall of the Season**\
 `The city has not seen this much snow this early in the season since 2019, the National Weather Service said.`\
 https://nytimes.com/2025/12/14/weather/snowstorm-nyc-weather.html
