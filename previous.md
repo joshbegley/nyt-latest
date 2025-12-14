@@ -1,36 +1,36 @@
-**Deadly Attack in Syria on U.S. Troops Exposes Growing Challenges for Country’s Leader**\
-`The attacks further complicate President Ahmed al-Sharaa’s efforts to unify the country and rebuild relationships with the international community, analysts say.`\
-https://nytimes.com/2025/12/14/world/middleeast/syria-us-soldiers-killed.html
+**Three days with the Saginaw Spirit, where being different is the name of the game**\
+`The Athletic went behind the scenes with the Spirit to get an inside look at their approach under Dave Drinkill and Chris Lazary.`\
+https://nytimes.com/athletic/6744137/2025/12/14/ohl-saginaw-spirit-dave-drinkill-chris-lazary-junior-hockey/
 
-**Fernando Mendoza started his football career as QB4. Look at him now**\
-`Mendoza is one of the longest long shots in Heisman history.`\
-https://nytimes.com/athletic/6885230/2025/12/14/fernando-mendoza-heisman-college-football-playoff/
+**After Thunder's 'frustrating' loss at NBA Cup, wins record is next target**\
+`Oklahoma City hadn't lost in nearly six weeks before Saturday night, but is still in great shape to challenge the Warriors' NBA record.`\
+https://nytimes.com/athletic/6887865/2025/12/14/thunder-frustrating-loss-nba-cup/
 
-**NFL Week 15 top storylines: Ticking clocks, Super Bowl previews, battle with Father Time**\
-`Can Philip Rivers save the Colts' season? Can the Chiefs stave off elimination? Week 15 in the NFL offers a little bit of everything.`\
-https://nytimes.com/athletic/6883065/2025/12/14/nfl-week-15-top-storylines-philip-rivers/
+**With Brady Cook starting for Jets, let's look at top 5 undrafted QBs in NFL history**\
+`From Warren Moon to Kurt Warner, we look at the quarterbacks who went from draft day disappointment to NFL stardom.`\
+https://nytimes.com/athletic/6886922/2025/12/14/brady-cook-jets-top-undrafted-qbs-nfl-history/
 
-**The New York Times International Edition in Print for Monday, Dec. 15, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/12/14/todays-new-york-times-international-edition
+**J.T. Miller's game-winner, a pair of important faceoffs and more Rangers thoughts**\
+`A 3-0 first-period deficit wasn't too much for New York's captain and his teammates to overcome in a resilient, 5-4 overtime win.`\
+https://nytimes.com/athletic/6887728/2025/12/14/j-t-millers-game-winner-rangers-thoughts/
 
-**How to watch Canucks vs. Devils: Time, TV, streaming**\
-`Find out how to watch the Vancouver Canucks play the New Jersey Devils, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6887997/2025/12/14/canucks-vs-devils-stream-how-to-watch-dec-14/
+**The sports collectibles in Home Alone and what they're worth today**\
+`The holiday classic is filled with memorable items, some of which hold a bit of value today. `\
+https://nytimes.com/athletic/6885885/2025/12/14/home-alone-michael-jordan-starting-lineup/
 
-**Floods, Mud and Cold Add to Gazans’ Misery**\
-`The rainstorm that battered the enclave this week has left many shivering in tent camps. Despite a cease-fire, rebuilding is still a long way off.`\
-https://nytimes.com/2025/12/14/world/middleeast/gaza-floods-mud-disease.html
+**Despite shootout loss, Sam Ersson seems to be finding a groove with Flyers**\
+`Ersson's numbers in the Flyers' 4-3 loss don't reflect how important he was in helping his team earn a point.`\
+https://nytimes.com/athletic/6887700/2025/12/14/flyers-sam-ersson-hurricanes-shootout-loss/
 
-**How to watch Eastern Illinois vs. Iowa State men's basketball: Time, TV, streaming**\
-`Find out how to watch the Eastern Illinois Panthers play the Iowa State Cyclones, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6887992/2025/12/14/eastern-illinois-vs-iowa-state-stream-how-to-watch-dec-14/
+**How does the Quinn Hughes blockbuster trade impact each NHL team?**\
+`From teams that missed out on a good opportunity to teams that now face an even tougher division, how does the deal impact each club?`\
+https://nytimes.com/athletic/6887341/2025/12/14/canucks-wild-quinn-hughes-trade-impacts-nhl-teams/
 
-**How to watch Baylor vs. Texas women's basketball: Time, TV, streaming**\
-`Find out how to watch the Baylor Bears play the Texas Longhorns, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6887990/2025/12/14/baylor-vs-texas-stream-how-to-watch-dec-14/
+**Was I Based or Cringe? I Decided to Find Out.**\
+`Remind me never to listen to what they are saying online about me.`\
+https://nytimes.com/2025/12/14/opinion/maga-right-wing-young-voters.html
 
-**How to watch Illinois State vs. Nebraska women's basketball: Time, TV, streaming**\
-`Find out how to watch the Illinois State Redbirds play the Nebraska Cornhuskers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6887987/2025/12/14/illinois-state-vs-nebraska-stream-how-to-watch-dec-14/
+**Sunday Special: The Best Music of 2025**\
+`Bad Bunny, PinkPantheress and more picks from our pop music desk.`\
+https://nytimes.com/2025/12/14/podcasts/the-daily/sunday-special-the-best-music-of-2025.html
 
