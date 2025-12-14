@@ -1,3 +1,7 @@
+**Witnesses Describe Chaos at Bondi Beach**\
+`Gunshots ripped through a Hanukkah celebration in Sydney, Australia, killing at least 12 people.`\
+https://nytimes.com/2025/12/14/world/australia/witness-accounts-bondi-beach-shooting.html
+
 **Three days with the Saginaw Spirit, where being different is the name of the game**\
 `The Athletic went behind the scenes with the Spirit to get an inside look at their approach under Dave Drinkill and Chris Lazary.`\
 https://nytimes.com/athletic/6744137/2025/12/14/ohl-saginaw-spirit-dave-drinkill-chris-lazary-junior-hockey/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6887341/2025/12/14/canucks-wild-quinn-hughes-trade-
 **Was I Based or Cringe? I Decided to Find Out.**\
 `Remind me never to listen to what they are saying online about me.`\
 https://nytimes.com/2025/12/14/opinion/maga-right-wing-young-voters.html
-
-**Sunday Special: The Best Music of 2025**\
-`Bad Bunny, PinkPantheress and more picks from our pop music desk.`\
-https://nytimes.com/2025/12/14/podcasts/the-daily/sunday-special-the-best-music-of-2025.html
 
