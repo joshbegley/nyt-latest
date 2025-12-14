@@ -1,3 +1,23 @@
+**In Rome, the King of Paparazzi Is a Star in His Own Right**\
+`Rino Barillari has been snapping photos of, and sparring with, the famous for 65 years, from Princess Margaret to Lady Gaga, Peter O’Toole to Spike Lee. He is now a fixture himself in the celebrity firmament.`\
+https://nytimes.com/2025/12/14/world/europe/rome-italy-celebrity-paparazzi-rino-barillari.html
+
+**Quote of the Day: Biden Has Raised Little of What He Needs to Build a Typical Presidential Library**\
+`Quotation of the Day for Sunday, December 14, 2025.`\
+https://nytimes.com/2025/12/14/pageoneplus/quote-of-the-day-biden-has-raised-little-of-what-he-needs-to-build-a-typical-presidential-library.html
+
+**The Far Right in Germany Keeps Trying to Unseal National Secrets**\
+`Opponents of AfD lawmakers say that their push to publish sensitive details about national security could benefit Russian military planning.`\
+https://nytimes.com/2025/12/14/world/europe/germany-far-right-afd-russia-security-secrets.html
+
+**Connections: Sports Edition Coach: Hints for Dec. 14, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6887624/2025/12/14/connections-sports-edition-hints-for-dec-14-2025/
+
+**'The Athletic Show': Philip Rivers returns, flag football exploding**\
+`Rivers is older than 13 NFL head coaches, making his joining the Colts a confounding choice as they're on the verge of playoff elimination.`\
+https://nytimes.com/athletic/6885530/2025/12/14/athletic-show-philip-rivers-flag-football-nfl/
+
 **Gunshots, Sirens and a Manhunt Transform Brown’s Campus**\
 `A typical Saturday night on the Ivy League campus was shaken by the killing of two people and the wounding of 9 others.`\
 https://nytimes.com/2025/12/13/us/shooting-brown-university-manhunt.html
@@ -13,24 +33,4 @@ https://nytimes.com/athletic/6887574/2025/12/13/jalen-brunson-knicks-nba-best-sc
 **Losing streak hits season-long 5 games as Blue Jackets' late rally attempt fizzles**\
 `Columbus had several opportunities to tie the score late, but it still fell short, 3-2, to the Golden Knights on Saturday.`\
 https://nytimes.com/athletic/6887590/2025/12/13/blue-jackets-golden-knights-adam-fantilli/
-
-**Lindsay Gottlieb on Brown shooting: 'It doesn't need to be this way'**\
-`The former Brown player says she heard about the tragedy at her alma mater after returning to the locker room after the game.`\
-https://nytimes.com/athletic/6887589/2025/12/13/usc-lindsay-gottlieb-reaction-brown-university-shooting/
-
-**'We need these moments': Orlando Magic pledge to grow from NBA Cup letdown**\
-`The Magic, with eyes on the playoffs, hope this loss leads to gains later on. “It’s definitely a motivation,” Wendell Carter Jr. said. `\
-https://nytimes.com/athletic/6887617/2025/12/13/orlando-magic-nba-cup-disappointment/
-
-**What We Know About the Deadly Shooting at Brown University**\
-`Two people were killed and nine others injured during an attack on the Rhode Island campus. Officials were searching for a gunman late Saturday.`\
-https://nytimes.com/2025/12/13/us/brown-university-shooting-what-happened.html
-
-**Kansas' Darryn Peterson exits late with hamstring tightness vs. NC State**\
-`Peterson had 17 points, five rebounds and four assists in a season-high 31 minutes before exiting in the fourth quarter.`\
-https://nytimes.com/athletic/6887441/2025/12/13/darryn-peterson-kansas-hamstring-nc-state/
-
-**Mariners, Giants emerge as front-runners for Brendan Donovan trade: Sources**\
-`As shown by his trading away of Sonny Gray, president of baseball operations Chaim Bloom isn't afraid to make a big deal.`\
-https://nytimes.com/athletic/6887340/2025/12/13/mariners-giants-brendan-donovan-trade-partner/
 
