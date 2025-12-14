@@ -1,3 +1,7 @@
+**A preview of The Athletic’s live coverage this week**\
+`Our live coverage this week includes Joshua vs Paul, Premier League, NFL and more`\
+https://nytimes.com/athletic/6888056/2025/12/14/live-coverage-weekly-schedule-4/
+
 **Surveillance Never Looked So Good**\
 `Charisse Pearlina Weston turns nefarious materials developed to monitor people into precarious, undulating forms.`\
 https://nytimes.com/2025/12/14/arts/design/charisse-pearlina-weston.html
@@ -29,8 +33,4 @@ https://nytimes.com/video/us/100000010586541/brown-university-shooting-press-con
 **The Pulse: MLB offseason's early movers (and snoozers)**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6887793/2025/12/14/mlb-offseason-superlatives-so-far-plus-a-heisman-winner-is-crowned/
-
-**Zelensky Offers Compromise Before Latest Round of Peace Plan Talks**\
-`Ukraine’s president is meeting with U.S. negotiators about plans to end the war with Russia. He said he would give up hopes of joining NATO in exchange for security guarantees.`\
-https://nytimes.com/2025/12/14/world/europe/zelensky-ukraine-peace-talks.html
 

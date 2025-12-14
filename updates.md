@@ -1,3 +1,7 @@
+**A preview of The Athletic’s live coverage this week**\
+`Our live coverage this week includes Joshua vs Paul, Premier League, NFL and more`\
+https://nytimes.com/athletic/6888056/2025/12/14/live-coverage-weekly-schedule-4/
+
 **Surveillance Never Looked So Good**\
 `Charisse Pearlina Weston turns nefarious materials developed to monitor people into precarious, undulating forms.`\
 https://nytimes.com/2025/12/14/arts/design/charisse-pearlina-weston.html
