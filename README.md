@@ -1,3 +1,11 @@
+**Bystander Tackled and Disarmed One of the Sydney Gunmen, Video Shows**\
+`The video, verified by The New York Times, shows a man sneaking up on one of the shooters who targeted a Hanukkah celebration in Sydney on Sunday.`\
+https://nytimes.com/2025/12/14/world/australia/bondi-beach-gunman-tackled-video.html
+
+**Frank expresses need for time at Spurs after Forest defeat: ‘This is not a quick fix’**\
+`Spurs were beaten 3-0 at the City Ground following a goal in either half from Callum Hudson-Odoi and an Ibrahim Sangare strike.`\
+https://nytimes.com/athletic/6888592/2025/12/14/thomas-frank-tottenham-forest-reaction/
+
 **How the Sydney Shooting Unfolded: Maps and Videos**\
 `Two suspected gunmen opened fire from a footbridge at hundreds of people who had gathered for a Hanukkah celebration.`\
 https://nytimes.com/interactive/2025/12/14/world/australia/sydney-bondi-beach-shooting-maps.html
@@ -25,12 +33,4 @@ https://nytimes.com/2025/12/14/world/europe/zelensky-ukraine-peace-talks.html
 **Lowetide: Ranking the Oilers' call-up options among forwards**\
 `There are few forwards in Bakersfield who could have a material impact on Edmonton's postseason.`\
 https://nytimes.com/athletic/6886830/2025/12/14/edmonton-oilers-depth-chart-forwards-ike-howard/
-
-**How to watch Kings vs. Timberwolves: Time, TV, streaming**\
-`Find out how to watch the Sacramento Kings play the Minnesota Timberwolves, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6888447/2025/12/14/kings-vs-timberwolves-stream-how-to-watch-dec-14/
-
-**How to watch Oilers vs. Canadiens: Time, TV, streaming**\
-`Find out how to watch the Edmonton Oilers play the Montreal Canadiens, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6888445/2025/12/14/oilers-vs-canadiens-stream-how-to-watch-dec-14/
 
