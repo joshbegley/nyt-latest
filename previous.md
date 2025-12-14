@@ -1,3 +1,7 @@
+**Cody Miller, U.S. Olympic swimming champion, joins Enhanced Games**\
+`Miller was part of the U.S. men's 4 x 100 metre medley relay team that won gold at the 2016 Rio Olympics.`\
+https://nytimes.com/athletic/6886592/2025/12/14/cody-miller-enhanced-games/
+
 **‘The Feeling of Being Under Siege’: U.S. Rabbis React to Sydney Attack**\
 `After gunmen opened fire at a Hanukkah celebration in Australia, rabbis across the United States reflected on how to protect their congregations during their own events.`\
 https://nytimes.com/2025/12/14/world/australia/hanukkah-shooting-bondi-reaction.html
@@ -29,8 +33,4 @@ https://nytimes.com/live/2025/12/14/us/brown-shooting/students-barricaded-themse
 **Read the document**\
 `Bill and Hillary Clinton’s lawyer writes a letter on Dec. 10 to the House Oversight Committee opposing their live testimony regarding the Jeffrey Epstein investigation.`\
 https://nytimes.com/interactive/2025/12/14/us/politics/20251210-dek-hogr.html
-
-**Summer Britcher delivers USA Luge's historic 50th World Cup win**\
-`Britcher, the winningest U.S. woman in Luge World Cup history, claimed her sixth career victory on the circuit.`\
-https://nytimes.com/athletic/6888516/2025/12/14/summer-britcher-luge-world-cup-win-salt-lake-city/
 

@@ -1,3 +1,7 @@
+**Cody Miller, U.S. Olympic swimming champion, joins Enhanced Games**\
+`Miller was part of the U.S. men's 4 x 100 metre medley relay team that won gold at the 2016 Rio Olympics.`\
+https://nytimes.com/athletic/6886592/2025/12/14/cody-miller-enhanced-games/
+
 **‘The Feeling of Being Under Siege’: U.S. Rabbis React to Sydney Attack**\
 `After gunmen opened fire at a Hanukkah celebration in Australia, rabbis across the United States reflected on how to protect their congregations during their own events.`\
 https://nytimes.com/2025/12/14/world/australia/hanukkah-shooting-bondi-reaction.html
