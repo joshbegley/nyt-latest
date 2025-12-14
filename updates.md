@@ -1,3 +1,7 @@
+**Jewish Community Targeted in Deadly Australian Shooting**\
+`At least 11 people were killed and several others were injured at Bondi Beach in Sydney on Sunday, after what officials said was a terrorist attack on Jewish Australians.`\
+https://nytimes.com/video/world/australia/100000010586397/australia-mass-shooting-jewish.html
+
 **Watch Live: Officials Give an Update on the Brown Shooting**\
 `Officials provide an update on the shooting that happened at Brown University on Saturday.`\
 https://nytimes.com/video/us/100000010586541/brown-university-shooting-press-conference.html

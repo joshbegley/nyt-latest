@@ -1,3 +1,7 @@
+**Jewish Community Targeted in Deadly Australian Shooting**\
+`At least 11 people were killed and several others were injured at Bondi Beach in Sydney on Sunday, after what officials said was a terrorist attack on Jewish Australians.`\
+https://nytimes.com/video/world/australia/100000010586397/australia-mass-shooting-jewish.html
+
 **Watch Live: Officials Give an Update on the Brown Shooting**\
 `Officials provide an update on the shooting that happened at Brown University on Saturday.`\
 https://nytimes.com/video/us/100000010586541/brown-university-shooting-press-conference.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6888443/2025/12/14/pelicans-vs-bulls-stream-how-to-
 **How to watch 76ers vs. Hawks: Time, TV, streaming**\
 `Find out how to watch the Philadelphia 76ers play the Atlanta Hawks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6888441/2025/12/14/76ers-vs-hawks-stream-how-to-watch-dec-14/
-
-**How to watch Flyers vs. Hurricanes: Time, TV, streaming**\
-`Find out how to watch the Philadelphia Flyers play the Carolina Hurricanes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6888439/2025/12/14/flyers-vs-hurricanes-stream-how-to-watch-dec-14/
 
