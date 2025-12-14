@@ -1,3 +1,15 @@
+**Blake Horvath lifts Navy over Army for second year in a row**\
+`A Cale Hellums mistake and clutch Horvath throw delivered more joy to Navy and heartbreak to Army — a 17-16 Navy win.`\
+https://nytimes.com/athletic/6887274/2025/12/13/navy-army-blake-horvath-score/
+
+**Jamarques Lawrence stuns Illinois with last-second 3 as Nebraska extends win streak**\
+`Pryce Sandfort scored 32 points for the Huskers, including 26 in the first half, while Rienk Mast totaled 17 and Lawrence 14.`\
+https://nytimes.com/athletic/6887216/2025/12/13/nebraska-illinois-college-basketball-upset-history/
+
+**Paul Wiggin, Browns legend and Stanford coach during 'The Play,' dies at 91**\
+`Wiggin teamed with Jim Brown to help Cleveland win the 1964 NFL title and was Stanford’s coach for one of football’s most famous plays.`\
+https://nytimes.com/athletic/6887078/2025/12/13/paul-wiggin-cleveland-browns-stanford-coach-dies/
+
 **Quinn Hughes trade has new Wild teammates 'shocked' — and pumped: 'Gosh, it’s going to be fun'**\
 `Potential defensive partner Brock Faber: "All my buddies were texting me — they’re like, ‘Quinn Hughes is coming.' I was obviously shocked."`\
 https://nytimes.com/athletic/6887244/2025/12/13/wild-players-react-quinn-hughes-trade/
