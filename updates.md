@@ -1,3 +1,7 @@
+**Zelensky Offers Compromise Before Latest Round of Peace Plan Talks**\
+`Ukraine’s president is meeting with U.S. negotiators on the latest plans to try to end the war with Russia. He said he would give up hopes of joining NATO, at least for now, if he got strong security guarantees.`\
+https://nytimes.com/2025/12/14/world/europe/zelensky-ukraine-peace-talks.html
+
 **How the Sydney Shooting Unfolded: Maps and Videos**\
 `Two suspected gunmen opened fire from a footbridge at hundreds of people who had gathered for a Hanukkah celebration.`\
 https://nytimes.com/interactive/2025/12/14/world/australia/sydney-bondi-beach-shooting-maps.html

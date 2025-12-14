@@ -19,7 +19,7 @@ https://nytimes.com/video/us/100000010586541/brown-university-shooting-press-con
 https://nytimes.com/athletic/6887793/2025/12/14/mlb-offseason-superlatives-so-far-plus-a-heisman-winner-is-crowned/
 
 **Zelensky Offers Compromise Before Latest Round of Peace Plan Talks**\
-`Ukraine’s president is meeting with U.S. negotiators on the latest plans to try end the war with Russia. He said he would give up hopes of joining NATO, at least for now, if he got strong security guarantees.`\
+`Ukraine’s president is meeting with U.S. negotiators on the latest plans to try to end the war with Russia. He said he would give up hopes of joining NATO, at least for now, if he got strong security guarantees.`\
 https://nytimes.com/2025/12/14/world/europe/zelensky-ukraine-peace-talks.html
 
 **Lowetide: Ranking the Oilers' call-up options among forwards**\
