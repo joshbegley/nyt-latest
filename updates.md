@@ -1,5 +1,9 @@
 **Bondi Shooting Is Latest in Alarming Rise of Antisemitic Attacks in Australia**\
 `A string of incidents has targeted the Jewish community in recent months.`\
+https://nytimes.com/2025/12/14/world/australia/bondi-shooting-antisemitic-attacks-australia.html
+
+**Bondi Shooting Is Latest in Alarming Rise of Antisemitic Attacks in Australia**\
+`A string of incidents has targeted the Jewish community in recent months.`\
 https://nytimes.com/2025/12/14/world/australia/bondi-shooting-is-latest-in-alarming-rise-of-antisemitic-attacks-in-australia.html
 
 **How to watch Hornets vs. Cavaliers: Time, TV, streaming**\
