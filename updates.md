@@ -1,3 +1,7 @@
+**Until Saturday: The most brutal call of the season**\
+`Until Saturday is The Athletic's free college football newsletter.`\
+https://nytimes.com/athletic/6888143/2025/12/14/celebration-bowl-ending-until-saturday/
+
 **Bondi Shooting Is Latest in Alarming Rise of Antisemitic Attacks in Australia**\
 `A string of incidents has targeted the Jewish community in recent months.`\
 https://nytimes.com/2025/12/14/world/australia/bondi-shooting-antisemitic-attacks-australia.html
