@@ -1,3 +1,7 @@
+**Kansas' Darryn Peterson exits late with hamstring tightness vs. NC State**\
+`Peterson had 17 points, five rebounds and four assists in a season-high 31 minutes before exiting in the fourth quarter.`\
+https://nytimes.com/athletic/6887441/2025/12/13/darryn-peterson-kansas-hamstring-nc-state/
+
 **Mariners, Giants emerge as front-runners for Brendan Donovan trade: Sources**\
 `As shown by his trading away of Sonny Gray, president of baseball operations Chaim Bloom isn't afraid to make a big deal.`\
 https://nytimes.com/athletic/6887340/2025/12/13/mariners-giants-brendan-donovan-trade-partner/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6887372/2025/12/13/brown-shooting-buffalo-bills-hot
 **Fernando Mendoza wins 2025 Heisman Trophy, the first for Indiana's program**\
 `The nerdy and unflappable quarterback won a close vote in what's been a dream season for Indiana.`\
 https://nytimes.com/athletic/6885933/2025/12/13/heisman-trophy-winner-2025-fernando-mendoza-indiana/
-
-**At Least Two Killed in Shooting at Brown University**\
-`Students remained locked in their dorms and classrooms as the police searched for the shooter, who was described as a man wearing black. At least two people are dead, and eight are in critical condition.`\
-https://nytimes.com/video/us/100000010585801/brown-university-rhode-island-shooting.html
 
