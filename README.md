@@ -1,6 +1,10 @@
+**Victor Wembanyama, Spurs snap Thunder's 16-game winning streak to reach NBA Cup final**\
+`Playing on a minutes restriction, Wembanyama finished with 22 points, nine rebounds and two blocks in a 111-109 win over the Thunder.`\
+https://nytimes.com/athletic/6887164/2025/12/14/victor-wembanyama-return-nba-cup/
+
 **At least 2 students at Brown have survived school shootings before.**\
 `By Camille Baker`\
-https://nytimes.com/live/2025/12/13/us/brown-shooting/at-least-2-students-at-brown-have-survived-school-shootings-before
+https://nytimes.com/2025/12/13/us/at-least-2-students-at-brown-have-survived-school-shootings-before.html
 
 **Maple Leafs can’t afford to lose their edge: 'We gotta start pushing'**\
 `That corner the Toronto Maple Leafs looked to be turning is suddenly in the past. They lost 6-3 to the Edmonton Oilers.`\
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6886250/2025/12/14/england-fans-world-cup-ticket-pr
 **Park the bus, raumdeuter, prawn sandwich brigade – football’s word of the year, 2000-2025**\
 `With 'ragebait' the Oxford English Dictionary word of the year, here's a look at what footballing equivalents might have been since 2000`\
 https://nytimes.com/athletic/6875571/2025/12/14/football-word-of-the-year-premier-league-mourinho-guardiola-muller-messi/
-
-**In Rome, the King of Paparazzi Is a Star in His Own Right**\
-`Rino Barillari has been snapping photos of, and sparring with, the famous for 65 years, from Princess Margaret to Lady Gaga, Peter O’Toole to Spike Lee. He is now a fixture himself in the celebrity firmament.`\
-https://nytimes.com/2025/12/14/world/europe/rome-italy-celebrity-paparazzi-rino-barillari.html
 
