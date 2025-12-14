@@ -1,3 +1,7 @@
+**Mariners, Giants emerge as front-runners for Brendan Donovan trade: Sources**\
+`As shown by his trading away of Sonny Gray, president of baseball operations Chaim Bloom isn't afraid to make a big deal.`\
+https://nytimes.com/athletic/6887340/2025/12/13/mariners-giants-brendan-donovan-trade-partner/
+
 **What to Know About Brown University**\
 `Here’s what to know about the Rhode Island university, where a shooting on Saturday killed two people and injured eight others.`\
 https://nytimes.com/2025/12/13/us/brown-university-what-to-know.html

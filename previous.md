@@ -1,3 +1,7 @@
+**Mariners, Giants emerge as front-runners for Brendan Donovan trade: Sources**\
+`As shown by his trading away of Sonny Gray, president of baseball operations Chaim Bloom isn't afraid to make a big deal.`\
+https://nytimes.com/athletic/6887340/2025/12/13/mariners-giants-brendan-donovan-trade-partner/
+
 **What to Know About Brown University**\
 `Here’s what to know about the Rhode Island university, where a shooting on Saturday killed two people and injured eight others.`\
 https://nytimes.com/2025/12/13/us/brown-university-what-to-know.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6885933/2025/12/13/heisman-trophy-winner-2025-ferna
 **At Least Two Killed in Shooting at Brown University**\
 `Students remained locked in their dorms and classrooms as the police searched for the shooter, who was described as a man wearing black. At least two people are dead, and eight are in critical condition.`\
 https://nytimes.com/video/us/100000010585801/brown-university-rhode-island-shooting.html
-
-**'It was a weird day' — Wild victorious in first game after Quinn Hughes trade: Takeaways**\
-`Minnesota came out on top with a 3-2 victory over the Senators with a makeshift lineup due to the blockbuster trade and injuries.`\
-https://nytimes.com/athletic/6887281/2025/12/13/wild-senators-quinn-hughes-trade-takeaways/
 
