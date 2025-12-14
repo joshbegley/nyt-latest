@@ -1,3 +1,11 @@
+**What does Apollo's investment in Wrexham mean? Why have they also got public funding?**\
+`U.S. firm buying a stake in the ambitious Welsh club has attracted controversy - and why the money won't be spent on more new signings`\
+https://nytimes.com/athletic/6881424/2025/12/14/what-does-apollos-investment-in-wrexham-mean-why-have-they-also-got-public-funding/
+
+**Welcome to Neymar: the referendum. Does he deserve to be in Brazil's World Cup plans?**\
+`One topic of conversation will dominate Brazil's build-up to the 2026 tournament, just as it did with Romario in 2002`\
+https://nytimes.com/athletic/6884385/2025/12/14/neymar-brazil-world-cup-2026/
+
 **'FIFA treating it like a Taylor Swift concert': England fans fume over World Cup ticket prices**\
 `After eye-watering price rises on World Cup tickets, what do loyal England fans think - and can they even afford to go to the tournament?`\
 https://nytimes.com/athletic/6886250/2025/12/14/england-fans-world-cup-ticket-prices/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6887624/2025/12/14/connections-sports-edition-hints
 **'The Athletic Show': Philip Rivers returns, flag football exploding**\
 `Rivers is older than 13 NFL head coaches, making his joining the Colts a confounding choice as they're on the verge of playoff elimination.`\
 https://nytimes.com/athletic/6885530/2025/12/14/athletic-show-philip-rivers-flag-football-nfl/
-
-**Gunshots, Sirens and a Manhunt Transform Brown’s Campus**\
-`A typical Saturday night on the Ivy League campus was shaken by the killing of two people and the wounding of 9 others.`\
-https://nytimes.com/2025/12/13/us/shooting-brown-university-manhunt.html
-
-**USA sweeps Canada in Rivalry Series, final meeting before Olympics**\
-`While Saturday night ended with a fourth straight loss to the Americans, the Canadians put up a hard-fought effort.`\
-https://nytimes.com/athletic/6887568/2025/12/13/usa-canada-rivalry-series-hockey-2026-olympics/
 
