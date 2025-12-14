@@ -1,3 +1,7 @@
+**USC coach Lindsay Gottlieb addresses Brown shooting: 'We're the only country that lives this way'**\
+`The former Brown player says she heard about the tragedy at her alma mater after returning to the locker room after the game.`\
+https://nytimes.com/athletic/6887589/2025/12/13/usc-lindsay-gottlieb-reaction-brown-university-shooting/
+
 **'We need these moments': Orlando Magic pledge to grow from NBA Cup letdown**\
 `The Magic, with eyes on the playoffs, hope this loss leads to gains later on. “It’s definitely a motivation,” Wendell Carter Jr. said. `\
 https://nytimes.com/athletic/6887617/2025/12/13/orlando-magic-nba-cup-disappointment/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6887391/2025/12/13/royals-brewers-trade-angel-zerpa
 **NBA Cup takeaways: Jalen Brunson erupts, Knicks outlast Magic to reach final**\
 `The victory gives New York a chance to prove that it can contend not only in the East but also against one of the West's best.`\
 https://nytimes.com/athletic/6887141/2025/12/13/nba-cup-takeaways-semifinals-magic-knicks-spurs-thunder/
-
-**Pathetic third period spells doom for the Penguins: Observations**\
-`In a week of embarrassing losses, the Penguins outdid themselves on Saturday with a 6-5 overtime loss to the Sharks. `\
-https://nytimes.com/athletic/6887233/2025/12/13/penguins-sharks-overtime-observations-sidney-crosby/
 
