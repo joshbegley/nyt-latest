@@ -1,3 +1,7 @@
+**What to Know About Brown University**\
+`Here’s what to know about the Rhode Island university, where a shooting on Saturday killed two people and injured eight others.`\
+https://nytimes.com/2025/12/13/us/brown-university-what-to-know.html
+
 **South Carolina State wins Celebration Bowl after 4 OTs, disputed 2-point play**\
 `The refs ruled that Tyler Smith carried the ball over an orange pylon to give the Bulldogs the 40-38 victory.`\
 https://nytimes.com/athletic/6887377/2025/12/13/south-carolina-state-celebration-bowl-controversy/
@@ -29,8 +33,4 @@ https://nytimes.com/video/us/100000010585801/brown-university-rhode-island-shoot
 **'It was a weird day' — Wild victorious in first game after Quinn Hughes trade: Takeaways**\
 `Minnesota came out on top with a 3-2 victory over the Senators with a makeshift lineup due to the blockbuster trade and injuries.`\
 https://nytimes.com/athletic/6887281/2025/12/13/wild-senators-quinn-hughes-trade-takeaways/
-
-**Blake Horvath lifts Navy over Army for second year in a row**\
-`A Cale Hellums mistake and clutch Horvath throw delivered more joy to Navy and heartbreak to Army — a 17-16 Navy win.`\
-https://nytimes.com/athletic/6887274/2025/12/13/navy-army-blake-horvath-score/
 
