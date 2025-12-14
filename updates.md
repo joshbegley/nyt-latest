@@ -1,3 +1,7 @@
+**What We Know About the Deadly Shooting at Brown University**\
+`Two people were killed and nine others injured during an attack on the Rhode Island campus. Officials were searching for a gunman late Saturday.`\
+https://nytimes.com/2025/12/13/us/brown-university-shooting-what-happened.html
+
 **Kansas' Darryn Peterson exits late with hamstring tightness vs. NC State**\
 `Peterson had 17 points, five rebounds and four assists in a season-high 31 minutes before exiting in the fourth quarter.`\
 https://nytimes.com/athletic/6887441/2025/12/13/darryn-peterson-kansas-hamstring-nc-state/
