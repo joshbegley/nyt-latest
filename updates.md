@@ -1,3 +1,23 @@
+**Josh Allen and the Bills stun Patriots with 21-point comeback victory**\
+`For the second week in a row, the Bills came alive in the second half to pull off a comeback.`\
+https://nytimes.com/athletic/6888549/2025/12/14/bills-patriots-score-result-takeaways-nfl/
+
+**Chiefs eliminated from playoffs as Mahomes hurt in loss to Chargers: Takeaways**\
+`The Chiefs will miss the playoffs for the first time since 2014 after a 16-13 defeat to the Los Angeles Chargers.`\
+https://nytimes.com/athletic/6888575/2025/12/14/chargers-chiefs-score-result-takeaways-nfl/
+
+**Bears-Browns takeaways: Caleb Williams, Chicago thump Cleveland**\
+`Williams led the Bears in a blowout win in frigid temperatures in Chicago.`\
+https://nytimes.com/athletic/6888195/2025/12/14/browns-bears-score-result-takeaways-nfl/
+
+**Syrian Who Killed U.S. Soldiers Was Member of Security Forces, Officials Say**\
+`The gunman who killed two U.S. soldiers and an American civilian interpreter had been set to be dismissed from the security forces over his extremist views, U.S. and Syrian officials said.`\
+https://nytimes.com/2025/12/14/world/middleeast/syria-isis-attack.html
+
+**Chiefs QB Patrick Mahomes' knee injury 'didn't look good,' will have MRI**\
+`Mahomes was replaced by Gardner Minshew, who threw an interception to seal the Chiefs' 16-13 loss and elimination from playoff contention.`\
+https://nytimes.com/athletic/6889142/2025/12/14/patrick-mahomes-chiefs-knee-injury-chargers/
+
 **Chiefs QB Patrick Mahomes leaves in fourth quarter with knee injury**\
 `Mahomes was replaced by Gardner Minshew, who threw an interception to seal the Chiefs' 16-13 loss and elimination from playoff contention.`\
 https://nytimes.com/athletic/6889142/2025/12/14/patrick-mahomes-chiefs-knee-injury-chargers/

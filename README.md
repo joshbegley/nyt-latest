@@ -1,3 +1,11 @@
+**Commanders-Giants takeaways: Punt return touchdown sparks Washington win**\
+`In a game featuring the two worst teams in the NFC East, the Commanders' special teams unit made the difference.`\
+https://nytimes.com/athletic/6888212/2025/12/14/commanders-giants-takeaways-result-score/
+
+**Lamar Jackson's 2 TDs spark Ravens offense, dashing Bengals' postseason hopes**\
+`The Bengals officially miss the playoffs for the third consecutive season and lose 10 games for the first time since 2020.`\
+https://nytimes.com/athletic/6889095/2025/12/14/ravens-bengals-score-result-takeaways-nfl/
+
 **Josh Allen and the Bills stun Patriots with 21-point comeback victory**\
 `For the second week in a row, the Bills came alive in the second half to pull off a comeback.`\
 https://nytimes.com/athletic/6888549/2025/12/14/bills-patriots-score-result-takeaways-nfl/
@@ -25,12 +33,4 @@ https://nytimes.com/2025/12/14/theater/anna-christie-review-michelle-williams-on
 **Eagles-Raiders takeaways: Philadelphia shuts out Las Vegas**\
 `Hurts went 12-of-15 for 175 yards and three touchdowns.`\
 https://nytimes.com/athletic/6888641/2025/12/14/raiders-eagles-score-result-takeaways-nfl/
-
-**Chiefs QB Patrick Mahomes' knee injury 'didn't look good,' will have MRI**\
-`Mahomes was replaced by Gardner Minshew, who threw an interception to seal the Chiefs' 16-13 loss and elimination from playoff contention.`\
-https://nytimes.com/athletic/6889142/2025/12/14/patrick-mahomes-chiefs-knee-injury-chargers/
-
-**What to Know About the Victims of the Bondi Beach Shooting**\
-`At least 15 people were killed in the attack in Sydney, including a long-serving rabbi in Bondi and a Holocaust survivor.`\
-https://nytimes.com/2025/12/14/world/australia/australia-shooting-hanukkah-victims-bondi-beach.html
 
