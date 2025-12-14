@@ -1,3 +1,7 @@
+**Summer Britcher delivers USA Luge's historic 50th World Cup win**\
+`Britcher, the winningest U.S. woman in Luge World Cup history, claimed her sixth career victory on the circuit.`\
+https://nytimes.com/athletic/6888516/2025/12/14/summer-britcher-luge-world-cup-win-salt-lake-city/
+
 **How to watch Lakers vs. Suns: Time, TV, streaming**\
 `Find out how to watch the Los Angeles Lakers play the Phoenix Suns, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6888862/2025/12/14/lakers-vs-suns-stream-how-to-watch-dec-14/

@@ -1,3 +1,7 @@
+**Summer Britcher delivers USA Luge's historic 50th World Cup win**\
+`Britcher, the winningest U.S. woman in Luge World Cup history, claimed her sixth career victory on the circuit.`\
+https://nytimes.com/athletic/6888516/2025/12/14/summer-britcher-luge-world-cup-win-salt-lake-city/
+
 **How to watch Lakers vs. Suns: Time, TV, streaming**\
 `Find out how to watch the Los Angeles Lakers play the Phoenix Suns, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6888862/2025/12/14/lakers-vs-suns-stream-how-to-watch-dec-14/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/14/arts/design/charisse-pearlina-weston.html
 **Bystander Tackled and Disarmed One of the Sydney Gunmen, Video Shows**\
 `The video, verified by The New York Times, shows a man sneaking up on one of the shooters who targeted a Hanukkah celebration in Sydney on Sunday.`\
 https://nytimes.com/2025/12/14/world/australia/bondi-beach-gunman-tackled-video.html
-
-**Frank expresses need for time at Spurs after Forest defeat: ‘This is not a quick fix’**\
-`Spurs were beaten 3-0 at the City Ground following a goal in either half from Callum Hudson-Odoi and an Ibrahim Sangare strike.`\
-https://nytimes.com/athletic/6888592/2025/12/14/thomas-frank-tottenham-forest-reaction/
 
