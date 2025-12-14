@@ -1,3 +1,7 @@
+**Watch Live: Officials Give an Update on the Brown Shooting**\
+`Officials provide an update on the shooting that happened at Brown University on Saturday.`\
+https://nytimes.com/video/us/100000010586541/brown-university-shooting-press-conference.html
+
 **The Pulse: MLB offseason's early movers (and snoozers)**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6887793/2025/12/14/mlb-offseason-superlatives-so-far-plus-a-heisman-winner-is-crowned/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6888441/2025/12/14/76ers-vs-hawks-stream-how-to-wat
 **How to watch Flyers vs. Hurricanes: Time, TV, streaming**\
 `Find out how to watch the Philadelphia Flyers play the Carolina Hurricanes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6888439/2025/12/14/flyers-vs-hurricanes-stream-how-to-watch-dec-14/
-
-**How to watch Bucks vs. Nets: Time, TV, streaming**\
-`Find out how to watch the Milwaukee Bucks play the Brooklyn Nets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6888437/2025/12/14/bucks-vs-nets-stream-how-to-watch-dec-14/
 

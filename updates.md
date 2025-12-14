@@ -1,3 +1,7 @@
+**Watch Live: Officials Give an Update on the Brown Shooting**\
+`Officials provide an update on the shooting that happened at Brown University on Saturday.`\
+https://nytimes.com/video/us/100000010586541/brown-university-shooting-press-conference.html
+
 **The Pulse: MLB offseason's early movers (and snoozers)**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6887793/2025/12/14/mlb-offseason-superlatives-so-far-plus-a-heisman-winner-is-crowned/
