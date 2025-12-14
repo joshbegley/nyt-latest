@@ -1,3 +1,15 @@
+**Read the document**\
+`Bill and Hillary Clinton’s lawyer writes a letter on Nov. 3 to the House Oversight Committee opposing their live testimony regarding the Jeffrey Epstein investigation.`\
+https://nytimes.com/interactive/2025/12/14/us/politics/20251103-dek-hogr.html
+
+**Students barricaded themselves in the Sciences Library, then were evacuated at gunpoint.**\
+`By Dana Goldstein`\
+https://nytimes.com/live/2025/12/14/us/brown-shooting/students-barricaded-themselves-in-the-sciences-library-then-were-evacuated-at-gunpoint
+
+**Read the document**\
+`Bill and Hillary Clinton’s lawyer writes a letter on Dec. 10 to the House Oversight Committee opposing their live testimony regarding the Jeffrey Epstein investigation.`\
+https://nytimes.com/interactive/2025/12/14/us/politics/20251210-dek-hogr.html
+
 **Summer Britcher delivers USA Luge's historic 50th World Cup win**\
 `Britcher, the winningest U.S. woman in Luge World Cup history, claimed her sixth career victory on the circuit.`\
 https://nytimes.com/athletic/6888516/2025/12/14/summer-britcher-luge-world-cup-win-salt-lake-city/

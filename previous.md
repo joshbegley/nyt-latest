@@ -1,3 +1,15 @@
+**Read the document**\
+`Bill and Hillary Clinton’s lawyer writes a letter on Nov. 3 to the House Oversight Committee opposing their live testimony regarding the Jeffrey Epstein investigation.`\
+https://nytimes.com/interactive/2025/12/14/us/politics/20251103-dek-hogr.html
+
+**Students barricaded themselves in the Sciences Library, then were evacuated at gunpoint.**\
+`By Dana Goldstein`\
+https://nytimes.com/live/2025/12/14/us/brown-shooting/students-barricaded-themselves-in-the-sciences-library-then-were-evacuated-at-gunpoint
+
+**Read the document**\
+`Bill and Hillary Clinton’s lawyer writes a letter on Dec. 10 to the House Oversight Committee opposing their live testimony regarding the Jeffrey Epstein investigation.`\
+https://nytimes.com/interactive/2025/12/14/us/politics/20251210-dek-hogr.html
+
 **Summer Britcher delivers USA Luge's historic 50th World Cup win**\
 `Britcher, the winningest U.S. woman in Luge World Cup history, claimed her sixth career victory on the circuit.`\
 https://nytimes.com/athletic/6888516/2025/12/14/summer-britcher-luge-world-cup-win-salt-lake-city/
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/6888300/2025/12/14/psg-everton-kelly-gago-transfer/
 **The Briefing - Brentford 1 Leeds 1: Calvert-Lewin flying, cutback error, game of fine margins**\
 `Leeds United drew 1-1 with Brentford to gain a precious Premier League point. Here are the main themes from the game.`\
 https://nytimes.com/athletic/6886294/2025/12/14/calvert-lewin-brentford-leeds-premier-league-result/
-
-**A preview of The Athletic’s live coverage this week**\
-`Our live coverage this week includes Joshua vs Paul, Premier League, NFL and more`\
-https://nytimes.com/athletic/6888056/2025/12/14/live-coverage-weekly-schedule-4/
-
-**Surveillance Never Looked So Good**\
-`Charisse Pearlina Weston turns nefarious materials developed to monitor people into precarious, undulating forms.`\
-https://nytimes.com/2025/12/14/arts/design/charisse-pearlina-weston.html
-
-**Bystander Tackled and Disarmed One of the Sydney Gunmen, Video Shows**\
-`The video, verified by The New York Times, shows a man sneaking up on one of the shooters who targeted a Hanukkah celebration in Sydney on Sunday.`\
-https://nytimes.com/2025/12/14/world/australia/bondi-beach-gunman-tackled-video.html
 
