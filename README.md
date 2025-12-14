@@ -1,3 +1,19 @@
+**Brown Cancels Classes and Exams for the Rest of the Semester**\
+`The term, scheduled to end on Friday, has been cut short, and school officials said students could go home immediately.`\
+https://nytimes.com/live/2025/12/14/us/brown-shooting/brown-shooting-classes-cancelled
+
+**The Briefing: Forest 3 Spurs 0 - Where does this leave Thomas Frank? Are Spurs their own worst enemy?**\
+`We break down the talking points from a disappointing defeat at the City Ground.`\
+https://nytimes.com/athletic/6886265/2025/12/14/tottenham-gray-error-forest/
+
+**A Moral Reckoning on Immigration**\
+`How we do we treat a stranger, to whom we are obligated and what constitutes human dignity? The debates are dividing Christian denominations.`\
+https://nytimes.com/2025/12/14/briefing/a-moral-reckoning-on-immigration.html
+
+**Leaders worldwide react with horror to the Bondi attack.**\
+`They condemned the antisemitic attack at Bondi Beach and pledged to stand with Jews during a period of rising antisemitism around the world.`\
+https://nytimes.com/live/2025/12/14/world/sydney-bondi-beach-shooting/reaction-bondi-beach-attack
+
 **Person of Interest in Brown University Shooting Is Detained**\
 `Authorities said that a gunman shot two students and injured nine more in an attack in a classroom at Brown University on Saturday. On Sunday, officials said that a person of interest in connection with the shooting had been detained.`\
 https://nytimes.com/video/us/100000010586393/brown-university-shooting.html
@@ -17,20 +33,4 @@ https://nytimes.com/athletic/6781395/2025/12/14/merrill-kelly-free-agency-signin
 **Hamas Confirms Top Commander’s Death in Israeli Strike in Gaza**\
 `The killing of the commander, Raed Saad, on Saturday was the highest-profile assassination of a Hamas leader since a cease-fire came into force two months ago.`\
 https://nytimes.com/2025/12/14/world/middleeast/hamas-israel-commander-killed.html
-
-**Hospitalized Brown Student Describes Hiding From Shooter**\
-`The student, in his first year at Brown, was shot in the leg. He described helping others who were more seriously injured as they hid in their classroom.`\
-https://nytimes.com/2025/12/14/us/brown-shooting-witness-spencer-yang.html
-
-**What Is Chabad, the Group That Hosted the Hanukkah Event in Australia?**\
-`The global organization represents a branch of Hasidic Judaism. It is dedicated to strengthening Jewish life through educational, cultural and other services.`\
-https://nytimes.com/2025/12/14/world/australia/what-is-chabad-sydney-attacks.html
-
-**Trump Administration Live Updates: President Vows to Retaliate Against ISIS After Deadly Attack in Syria**\
-``\
-https://nytimes.com/live/2025/12/14/us/trump-news
-
-**On ‘Saturday Night Live,’ President Trump Blows Up a Familiar Sleigh**\
-`Josh O’Connor hosted this week’s episode, which satirized an airborne news conference and also featured a pair of very sensitive male strippers.`\
-https://nytimes.com/2025/12/14/arts/television/snl-josh-oconnor-lily-allen.html
 
