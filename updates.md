@@ -1,3 +1,7 @@
+**Victor Wembanyama returns from injury, overwhelms Thunder in 21-minute bench role**\
+`Playing on a minutes restriction, Wembanyama finished with 22 points, nine rebounds and two blocks in a 111-109 win over the Thunder.`\
+https://nytimes.com/athletic/6887164/2025/12/14/victor-wembanyama-return-nba-cup/
+
 **In 21 minutes, Victor Wembanyama dominates previously dominant Thunder in return from injury**\
 `Playing on a minutes restriction, Wembanyama finished with 22 points, nine rebounds and two blocks in a 111-109 win over the Thunder.`\
 https://nytimes.com/athletic/6887164/2025/12/14/victor-wembanyama-return-nba-cup/

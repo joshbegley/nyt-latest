@@ -1,3 +1,7 @@
+**The New York Times in Print for Sunday, Dec. 14, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/12/14/todays-new-york-times
+
 **Victor Wembanyama returns from injury, overwhelms Thunder in 21-minute bench role**\
 `Playing on a minutes restriction, Wembanyama finished with 22 points, nine rebounds and two blocks in a 111-109 win over the Thunder.`\
 https://nytimes.com/athletic/6887164/2025/12/14/victor-wembanyama-return-nba-cup/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6884385/2025/12/14/neymar-brazil-world-cup-2026/
 **'FIFA treating it like a Taylor Swift concert': England fans fume over World Cup ticket prices**\
 `After eye-watering price rises on World Cup tickets, what do loyal England fans think - and can they even afford to go to the tournament?`\
 https://nytimes.com/athletic/6886250/2025/12/14/england-fans-world-cup-ticket-prices/
-
-**Park the bus, raumdeuter, prawn sandwich brigade – football’s word of the year, 2000-2025**\
-`With 'ragebait' the Oxford English Dictionary word of the year, here's a look at what footballing equivalents might have been since 2000`\
-https://nytimes.com/athletic/6875571/2025/12/14/football-word-of-the-year-premier-league-mourinho-guardiola-muller-messi/
 
