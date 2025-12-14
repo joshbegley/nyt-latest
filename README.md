@@ -3,7 +3,7 @@
 https://nytimes.com/2025/12/14/us/politics/house-republicans-dc-crime.html
 
 **Gunshots, Then 12 Hours of Fear at Brown University**\
-`Stud`\
+`As the shooter remained at large, students sheltered in place in classrooms and basements, waiting for the all clear.`\
 https://nytimes.com/2025/12/14/us/gunshots-lockdown-brown-university.html
 
 **Dwyane Wade and Allen Iverson almost teamed up with the Heat in 2006, but Wade rejected the deal**\

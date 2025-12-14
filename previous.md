@@ -1,3 +1,11 @@
+**House Republicans Accuse D.C. Police of Manipulating Crime Statistics**\
+`The committee cited interviews with police commanders in an effort to buttress President Trump’s federal takeover of law enforcement and the National Guard deployment in the capital city.`\
+https://nytimes.com/2025/12/14/us/politics/house-republicans-dc-crime.html
+
+**Gunshots, Then 12 Hours of Fear at Brown University**\
+`Stud`\
+https://nytimes.com/2025/12/14/us/gunshots-lockdown-brown-university.html
+
 **Dwyane Wade and Allen Iverson almost teamed up with the Heat in 2006, but Wade rejected the deal**\
 `Pat Riley was close for trading for Iverson, but Wade vetoed the deal when he discovered the Heat would have to give up Udonis Haslem.`\
 https://nytimes.com/athletic/6889014/2025/12/14/dwyane-wade-allen-iverson-miami-heat-trade/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6889095/2025/12/14/ravens-bengals-score-result-take
 **Josh Allen and the Bills stun Patriots with 21-point comeback victory**\
 `For the second week in a row, the Bills came alive in the second half to pull off a comeback.`\
 https://nytimes.com/athletic/6888549/2025/12/14/bills-patriots-score-result-takeaways-nfl/
-
-**Chiefs eliminated from playoffs as Mahomes hurt in loss to Chargers: Takeaways**\
-`The Chiefs will miss the playoffs for the first time since 2014 after a 16-13 defeat to the Los Angeles Chargers.`\
-https://nytimes.com/athletic/6888575/2025/12/14/chargers-chiefs-score-result-takeaways-nfl/
-
-**Bears-Browns takeaways: Caleb Williams, Chicago thump Cleveland**\
-`Williams led the Bears in a blowout win in frigid temperatures in Chicago.`\
-https://nytimes.com/athletic/6888195/2025/12/14/browns-bears-score-result-takeaways-nfl/
 

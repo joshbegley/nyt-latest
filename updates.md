@@ -1,3 +1,11 @@
+**House Republicans Accuse D.C. Police of Manipulating Crime Statistics**\
+`The committee cited interviews with police commanders in an effort to buttress President Trump’s federal takeover of law enforcement and the National Guard deployment in the capital city.`\
+https://nytimes.com/2025/12/14/us/politics/house-republicans-dc-crime.html
+
+**Gunshots, Then 12 Hours of Fear at Brown University**\
+`Stud`\
+https://nytimes.com/2025/12/14/us/gunshots-lockdown-brown-university.html
+
 **Dwyane Wade and Allen Iverson almost teamed up with the Heat in 2006, but Wade rejected the deal**\
 `Pat Riley was close for trading for Iverson, but Wade vetoed the deal when he discovered the Heat would have to give up Udonis Haslem.`\
 https://nytimes.com/athletic/6889014/2025/12/14/dwyane-wade-allen-iverson-miami-heat-trade/
