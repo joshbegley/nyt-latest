@@ -1,3 +1,11 @@
+**Quinn Hughes trade has new Wild teammates 'shocked' — and pumped: 'Gosh, it’s going to be fun'**\
+`Potential defensive partner Brock Faber: "All my buddies were texting me — they’re like, ‘Quinn Hughes is coming.' I was obviously shocked."`\
+https://nytimes.com/athletic/6887244/2025/12/13/wild-players-react-quinn-hughes-trade/
+
+**Witnesses describe an anxious campus as news of a shooting spread and police arrived.**\
+`By Rylee Kirk, Mitch Smith, Alan Blinder and Ashley Ahn`\
+https://nytimes.com/live/2025/12/13/us/brown-shooting/witnesses-describe-an-anxious-campus-as-news-of-a-shooting-spread-and-police-arrived
+
 **A Pottery Master Prospers in Japan by Embracing a Troubled History**\
 `Visuals by Chang W. Lee, Text by Martin Fackler and Hisako Ueno`\
 https://nytimes.com/card/2025/12/14/world/asia/japan-korea-pottery
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6886125/2025/12/13/could-this-be-the-closest-heisma
 **Cavaliers' Evan Mobley to miss 2-4 weeks with left calf strain**\
 `Mobley sustained the injury during Friday's road win at Washington and could now miss between seven and 14 games.`\
 https://nytimes.com/athletic/6887150/2025/12/13/cavaliers-evan-mobley-injury-status-left-calf-strain/
-
-**Brown University has faced a number of difficulties this year.**\
-`By Alan Blinder`\
-https://nytimes.com/live/2025/12/13/us/brown-shooting/brown-university-has-faced-a-number-of-difficulties-this-year
-
-**How to watch UCLA vs. Gonzaga men's basketball: Time, TV, streaming**\
-`Find out how to watch the UCLA Bruins play the Gonzaga Bulldogs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6887247/2025/12/13/ucla-vs-gonzaga-stream-how-to-watch-dec-13/
 
