@@ -1,3 +1,11 @@
+**U.S. Military Plane and JetBlue Flight Nearly Collided Over Caribbean, Radio Traffic Shows**\
+`The Air Force refueling tanker was flying without its location transponder activated and could not be detected by air traffic control.`\
+https://nytimes.com/2025/12/14/world/americas/jetblue-venezuela-midair-collision-us-air-force.html
+
+**Texas A&M upsets Nebraska to advance to volleyball Final Four**\
+`The top-ranked Huskers lost for the first time in 34 matches this season.`\
+https://nytimes.com/athletic/6889373/2025/12/14/texas-am-nebraska-volleyball-final-four/
+
 **Colts QB Philip Rivers, 44, throws first regular-season TD pass since 2020**\
 `Philip Rivers shook off the rust quickly, completing his last seven passes of the first half.`\
 https://nytimes.com/athletic/6888668/2025/12/14/colts-philip-rivers-seahawks-score-result-takeaways-2/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6888715/2025/12/14/nfl-takeaways-week-15-scores-res
 **House Republicans Accuse D.C. Police of Manipulating Crime Statistics**\
 `The committee cited interviews with police commanders in an effort to buttress President Trump’s federal takeover of law enforcement and the National Guard deployment in the capital city.`\
 https://nytimes.com/2025/12/14/us/politics/house-republicans-dc-crime.html
-
-**Gunshots, Then 12 Hours of Fear at Brown University**\
-`As the shooter remained at large, students sheltered in place in classrooms and basements, waiting for the all clear.`\
-https://nytimes.com/2025/12/14/us/gunshots-lockdown-brown-university.html
-
-**Dwyane Wade and Allen Iverson almost teamed up with the Heat in 2006, but Wade rejected the deal**\
-`Pat Riley was close for trading for Iverson, but Wade vetoed the deal when he discovered the Heat would have to give up Udonis Haslem.`\
-https://nytimes.com/athletic/6889014/2025/12/14/dwyane-wade-allen-iverson-miami-heat-trade/
 
