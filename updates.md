@@ -1,3 +1,11 @@
+**Why Juventus, despite problems, are resisting $1bn takeover by a stablecoin company**\
+`Tether's bid to buy a 65.4 per cent stake in Juventus has been swiftly declined by Exor, the Agnelli family holding company. Here's why...`\
+https://nytimes.com/athletic/6886577/2025/12/14/juventus-stablecoin-tether-takeover/
+
+**Everton's revival meets its arch-nemesis: Stamford Bridge**\
+`Saturday's defeat was probably a fair reflection of where David Moyes' flawed-but-improving side are right now`\
+https://nytimes.com/athletic/6887159/2025/12/14/everton-stamford-bridge-hoodoo-moyes-grealish/
+
 **What does Apollo's investment in Wrexham mean? Why have they also got public funding?**\
 `U.S. firm buying a stake in the ambitious Welsh club has attracted controversy - and why the money won't be spent on more new signings`\
 https://nytimes.com/athletic/6881424/2025/12/14/what-does-apollos-investment-in-wrexham-mean-why-have-they-also-got-public-funding/
