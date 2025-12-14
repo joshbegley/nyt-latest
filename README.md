@@ -2,10 +2,6 @@
 `Anyone in the area should take shelter, the police said. They declined to elaborate and details of the incident were not immediately clear.`\
 https://nytimes.com/2025/12/14/world/asia/bondi-sydney-australia-police-shooting.html
 
-**Arsenal must not let the baggage from previous Premier League title bids undermine this one**\
-`Mikel Arteta's side almost threw away a win against Wolves in a notably nervous atmosphere in the stands and on the pitch`\
-https://nytimes.com/athletic/6887419/2025/12/14/arsenal-tension-baggage-premier-league-title-bid/
-
 **His Job Is to Make the Subway Accessible. His Own Life Fuels His Work.**\
 `Quemuel Arroyo, the New York transit system’s chief accessibility officer, has used a wheelchair for half his life. He understands how difficult it is to navigate the subway.`\
 https://nytimes.com/2025/12/14/nyregion/q-arroyo-subway-accessible.html
@@ -33,4 +29,8 @@ https://nytimes.com/athletic/6887800/2025/12/14/spurs-thunder-nba-cup-ending-fou
 **A Brown University Instructor Hid From Gunfire With His Students**\
 `Joseph Oduro, 21, said he was leading an economics study session for about 60 students when a masked man entered the room and started shooting.`\
 https://nytimes.com/2025/12/14/us/brown-shooting-classroom-victims.html
+
+**The New York Times in Print for Sunday, Dec. 14, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/12/14/todays-new-york-times
 
