@@ -1,3 +1,7 @@
+**Police Urge People to Avoid Sydney’s Bondi Beach After Incident**\
+`Anyone in the area should take shelter, the police said. They declined to elaborate and details of the incident were not immediately clear.`\
+https://nytimes.com/2025/12/14/world/asia/bondi-sydney-australia-police-shooting.html
+
 **Arsenal must not let the baggage from previous Premier League title bids undermine this one**\
 `Mikel Arteta's side almost threw away a win against Wolves in a notably nervous atmosphere in the stands and on the pitch`\
 https://nytimes.com/athletic/6887419/2025/12/14/arsenal-tension-baggage-premier-league-title-bid/
