@@ -1,3 +1,7 @@
+**The New York Times in Print for Sunday, Dec. 14, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/12/14/todays-new-york-times
+
 **Police Urge People to Avoid Sydney’s Bondi Beach After Incident**\
 `Anyone in the area should take shelter, the police said. They declined to elaborate and details of the incident were not immediately clear.`\
 https://nytimes.com/2025/12/14/world/asia/bondi-sydney-australia-police-shooting.html
