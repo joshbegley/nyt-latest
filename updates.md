@@ -1,3 +1,19 @@
+**Deadly Attack in Syria on U.S. Troops Exposes Growing Challenges for Country’s Leader**\
+`The attacks further complicate President Ahmed al-Sharaa’s efforts to unify the country and rebuild relationships with the international community, analysts say.`\
+https://nytimes.com/2025/12/14/world/middleeast/syria-us-soldiers-killed.html
+
+**Fernando Mendoza started his football career as QB4. Look at him now**\
+`Mendoza is one of the longest long shots in Heisman history.`\
+https://nytimes.com/athletic/6885230/2025/12/14/fernando-mendoza-heisman-college-football-playoff/
+
+**NFL Week 15 top storylines: Ticking clocks, Super Bowl previews, battle with Father Time**\
+`Can Philip Rivers save the Colts' season? Can the Chiefs stave off elimination? Week 15 in the NFL offers a little bit of everything.`\
+https://nytimes.com/athletic/6883065/2025/12/14/nfl-week-15-top-storylines-philip-rivers/
+
+**The New York Times International Edition in Print for Monday, Dec. 15, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/12/14/todays-new-york-times-international-edition
+
 **How to watch Canucks vs. Devils: Time, TV, streaming**\
 `Find out how to watch the Vancouver Canucks play the New Jersey Devils, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6887997/2025/12/14/canucks-vs-devils-stream-how-to-watch-dec-14/

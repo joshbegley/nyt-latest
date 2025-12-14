@@ -1,3 +1,19 @@
+**Deadly Attack in Syria on U.S. Troops Exposes Growing Challenges for Country’s Leader**\
+`The attacks further complicate President Ahmed al-Sharaa’s efforts to unify the country and rebuild relationships with the international community, analysts say.`\
+https://nytimes.com/2025/12/14/world/middleeast/syria-us-soldiers-killed.html
+
+**Fernando Mendoza started his football career as QB4. Look at him now**\
+`Mendoza is one of the longest long shots in Heisman history.`\
+https://nytimes.com/athletic/6885230/2025/12/14/fernando-mendoza-heisman-college-football-playoff/
+
+**NFL Week 15 top storylines: Ticking clocks, Super Bowl previews, battle with Father Time**\
+`Can Philip Rivers save the Colts' season? Can the Chiefs stave off elimination? Week 15 in the NFL offers a little bit of everything.`\
+https://nytimes.com/athletic/6883065/2025/12/14/nfl-week-15-top-storylines-philip-rivers/
+
+**The New York Times International Edition in Print for Monday, Dec. 15, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/12/14/todays-new-york-times-international-edition
+
 **How to watch Canucks vs. Devils: Time, TV, streaming**\
 `Find out how to watch the Vancouver Canucks play the New Jersey Devils, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6887997/2025/12/14/canucks-vs-devils-stream-how-to-watch-dec-14/
@@ -17,20 +33,4 @@ https://nytimes.com/athletic/6887990/2025/12/14/baylor-vs-texas-stream-how-to-wa
 **How to watch Illinois State vs. Nebraska women's basketball: Time, TV, streaming**\
 `Find out how to watch the Illinois State Redbirds play the Nebraska Cornhuskers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6887987/2025/12/14/illinois-state-vs-nebraska-stream-how-to-watch-dec-14/
-
-**How to watch Toledo vs. Ohio State women's basketball: Time, TV, streaming**\
-`Find out how to watch the Toledo Rockets play the Ohio State Buckeyes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6887988/2025/12/14/toledo-vs-ohio-state-stream-how-to-watch-dec-14/
-
-**Bondi Beach Is One of Australia’s Most Famous Destinations**\
-`At least 10 people were injured on Sunday in a shooting at the beach, the ambulance service of the state of New South Wales said.`\
-https://nytimes.com/2025/12/14/world/australia/bondi-beach-is-one-of-australias-most-famous-destinations.html
-
-**Here is the latest.**\
-`By Yan Zhuang, Thomas Gibbons-Neff, Mark Arsenault and Mitch Smith`\
-https://nytimes.com/live/2025/12/14/us/brown-shooting/here-is-the-latest
-
-**Live Updates: Police Search for Gunman in Deadly Shooting at Brown**\
-`The Brown University campus remained on lockdown early Sunday after a shooting inside a classroom killed two students and injured nine others.`\
-https://nytimes.com/live/2025/12/14/us/brown-shooting
 
