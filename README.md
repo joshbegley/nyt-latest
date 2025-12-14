@@ -1,3 +1,11 @@
+**Bondi Beach Is What ‘Globalize the Intifada’ Looks Like**\
+`When a slogan’s real meaning comes true.`\
+https://nytimes.com/2025/12/14/opinion/bondi-beach-shooting.html
+
+**Read the document**\
+`Bill and Hillary Clinton’s lawyer writes a letter on Oct. 6 to the House Oversight Committee opposing their live testimony regarding the Jeffrey Epstein investigation.`\
+https://nytimes.com/interactive/2025/12/14/us/politics/20251006-dek-hogr.html
+
 **Read the document**\
 `Bill and Hillary Clinton’s lawyer writes a letter on Nov. 3 to the House Oversight Committee opposing their live testimony regarding the Jeffrey Epstein investigation.`\
 https://nytimes.com/interactive/2025/12/14/us/politics/20251103-dek-hogr.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6888860/2025/12/14/warriors-vs-trail-blazers-stream
 **How to watch Sabres vs. Kraken: Time, TV, streaming**\
 `Find out how to watch the Buffalo Sabres play the Seattle Kraken, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6888857/2025/12/14/sabres-vs-kraken-stream-how-to-watch-dec-14/
-
-**PSG interested in signing Everton forward Gago**\
-`Conversations regarding a potential move away to PSG remain in initial stages and a transfer fee has yet to be agreed, sources said.`\
-https://nytimes.com/athletic/6888300/2025/12/14/psg-everton-kelly-gago-transfer/
-
-**The Briefing - Brentford 1 Leeds 1: Calvert-Lewin flying, cutback error, game of fine margins**\
-`Leeds United drew 1-1 with Brentford to gain a precious Premier League point. Here are the main themes from the game.`\
-https://nytimes.com/athletic/6886294/2025/12/14/calvert-lewin-brentford-leeds-premier-league-result/
 
