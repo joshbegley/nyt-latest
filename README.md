@@ -1,3 +1,11 @@
+**Gunshots, Sirens and a Manhunt Transform Brown’s Campus**\
+`A typical Saturday night on the Ivy League campus was shaken by the killing of two people and the wounding of 9 others.`\
+https://nytimes.com/2025/12/13/us/shooting-brown-university-manhunt.html
+
+**USA sweeps Canada in Rivalry Series, final meeting before Olympics**\
+`While Saturday night ended with a fourth straight loss to the Americans, the Canadians put up a hard-fought effort.`\
+https://nytimes.com/athletic/6887568/2025/12/13/usa-canada-rivalry-series-hockey-2026-olympics/
+
 **Jalen Brunson, pound for pound, is the NBA's best scorer**\
 `With Jalen Brunson, it's time to say the quiet part out loud, writes James L. Edwards III.`\
 https://nytimes.com/athletic/6887574/2025/12/13/jalen-brunson-knicks-nba-best-scorer/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6887441/2025/12/13/darryn-peterson-kansas-hamstring
 **Mariners, Giants emerge as front-runners for Brendan Donovan trade: Sources**\
 `As shown by his trading away of Sonny Gray, president of baseball operations Chaim Bloom isn't afraid to make a big deal.`\
 https://nytimes.com/athletic/6887340/2025/12/13/mariners-giants-brendan-donovan-trade-partner/
-
-**What to Know About Brown University**\
-`Here’s what to know about the Rhode Island university, where a shooting on Saturday killed two people and injured eight others.`\
-https://nytimes.com/2025/12/13/us/brown-university-what-to-know.html
-
-**South Carolina State wins Celebration Bowl after 4 OTs, disputed 2-point play**\
-`The refs ruled that Tyler Smith carried the ball over an orange pylon to give the Bulldogs the 40-38 victory.`\
-https://nytimes.com/athletic/6887377/2025/12/13/south-carolina-state-celebration-bowl-controversy/
 
