@@ -1,3 +1,7 @@
+**Kansas' Darryn Peterson exits late with hamstring tightness vs. NC State**\
+`Peterson had 17 points, five rebounds and four assists in a season-high 31 minutes before exiting in the fourth quarter.`\
+https://nytimes.com/athletic/6887441/2025/12/13/darryn-peterson-kansas-hamstring-nc-state/
+
 **Mariners, Giants emerge as front-runners for Brendan Donovan trade: Sources**\
 `As shown by his trading away of Sonny Gray, president of baseball operations Chaim Bloom isn't afraid to make a big deal.`\
 https://nytimes.com/athletic/6887340/2025/12/13/mariners-giants-brendan-donovan-trade-partner/
