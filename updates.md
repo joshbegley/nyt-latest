@@ -1,3 +1,11 @@
+**How Lindsey Vonn, at 41, became one of the fastest skiers in the world again**\
+`With the 2026 Olympics less than two months away, Vonn is a medal contender. It's all thanks to a new knee and a lot of offseason work.`\
+https://nytimes.com/athletic/6887342/2025/12/14/lindsey-vonn-comeback-knee-olympics-world-cup-st-moritz/
+
+**Witnesses Fled Bondi Beach as Gunmen Targeted Jewish Event**\
+`Gunshots ripped through a Hanukkah celebration in Sydney, Australia, killing at least 12 people.`\
+https://nytimes.com/2025/12/14/world/australia/witness-accounts-bondi-beach-shooting.html
+
 **Witnesses Describe Chaos at Bondi Beach**\
 `Gunshots ripped through a Hanukkah celebration in Sydney, Australia, killing at least 12 people.`\
 https://nytimes.com/2025/12/14/world/australia/witness-accounts-bondi-beach-shooting.html
