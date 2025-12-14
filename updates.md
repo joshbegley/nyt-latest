@@ -1,3 +1,7 @@
+**Live Updates: At Least 10 Injured in Shooting at Australia’s Best-Known Beach**\
+`Two people were in custody after the shooting at Bondi Beach in Sydney, the police said. The authorities advised people nearby to take shelter.`\
+https://nytimes.com/live/2025/12/14/world/sydney-bondi-beach-shooting
+
 **Cole Palmer is back to conduct the orchestra at Chelsea**\
 `The England international marked his return to Stamford Bridge after injury with a typically brilliant goal `\
 https://nytimes.com/athletic/6887202/2025/12/14/cole-palmer-return-stamford-bridge/
