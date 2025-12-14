@@ -1,3 +1,7 @@
+**New York City Gets Its First Big Snowfall of the Season**\
+`The city has not seen this much snow this early in the season since 2019, the National Weather Service said.`\
+https://nytimes.com/2025/12/14/weather/snowstorm-nyc-weather.html
+
 **Man arrested after football manager injured before non-league match**\
 `A man has been arrested on suspicion of causing grievous bodily harm after an incident before Welling United vs Potters Bar.`\
 https://nytimes.com/athletic/6888005/2025/12/14/welling-united-potters-bar-arrest/
