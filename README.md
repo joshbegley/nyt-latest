@@ -1,3 +1,11 @@
+**‘The Feeling of Being Under Siege’: U.S. Rabbis React to Sydney Attack**\
+`After gunmen opened fire at a Hanukkah celebration in Australia, rabbis across the United States reflected on how to protect their congregations during their own events.`\
+https://nytimes.com/2025/12/14/world/australia/hanukkah-shooting-bondi-reaction.html
+
+**Inside the Clintons’ Fight to Avoid Testifying in the House Epstein Inquiry**\
+`Bill and Hillary Clinton have repeatedly offered to provide sworn statements, but Representative James R. Comer has threatened to hold them in contempt of Congress if they fail to appear.`\
+https://nytimes.com/2025/12/14/us/politics/clintons-epstein-inquiry.html
+
 **Bengals defend leaving snow on stadium seats, potentially violating NFL policy**\
 `The Bengals defended their actions in a statement, saying ushers could help wipe off seats if needed.`\
 https://nytimes.com/athletic/6888779/2025/12/14/bengals-snow-paycor-stadium/
@@ -25,12 +33,4 @@ https://nytimes.com/interactive/2025/12/14/us/politics/20251210-dek-hogr.html
 **Summer Britcher delivers USA Luge's historic 50th World Cup win**\
 `Britcher, the winningest U.S. woman in Luge World Cup history, claimed her sixth career victory on the circuit.`\
 https://nytimes.com/athletic/6888516/2025/12/14/summer-britcher-luge-world-cup-win-salt-lake-city/
-
-**How to watch Lakers vs. Suns: Time, TV, streaming**\
-`Find out how to watch the Los Angeles Lakers play the Phoenix Suns, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6888862/2025/12/14/lakers-vs-suns-stream-how-to-watch-dec-14/
-
-**How to watch Warriors vs. Trail Blazers: Time, TV, streaming**\
-`Find out how to watch the Golden State Warriors play the Portland Trail Blazers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6888860/2025/12/14/warriors-vs-trail-blazers-stream-how-to-watch-dec-14/
 

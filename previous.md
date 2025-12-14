@@ -1,3 +1,7 @@
+**Bengals defend leaving snow on stadium seats, potentially violating NFL policy**\
+`The Bengals defended their actions in a statement, saying ushers could help wipe off seats if needed.`\
+https://nytimes.com/athletic/6888779/2025/12/14/bengals-snow-paycor-stadium/
+
 **Bondi Beach Is What ‘Globalize the Intifada’ Looks Like**\
 `When a slogan’s real meaning comes true.`\
 https://nytimes.com/2025/12/14/opinion/bondi-beach-shooting.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6888862/2025/12/14/lakers-vs-suns-stream-how-to-wat
 **How to watch Warriors vs. Trail Blazers: Time, TV, streaming**\
 `Find out how to watch the Golden State Warriors play the Portland Trail Blazers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6888860/2025/12/14/warriors-vs-trail-blazers-stream-how-to-watch-dec-14/
-
-**How to watch Sabres vs. Kraken: Time, TV, streaming**\
-`Find out how to watch the Buffalo Sabres play the Seattle Kraken, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6888857/2025/12/14/sabres-vs-kraken-stream-how-to-watch-dec-14/
 
