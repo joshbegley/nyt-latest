@@ -1,3 +1,15 @@
+**A Pottery Master Prospers in Japan by Embracing a Troubled History**\
+`Visuals by Chang W. Lee, Text by Martin Fackler and Hisako Ueno`\
+https://nytimes.com/card/2025/12/14/world/asia/japan-korea-pottery
+
+**Journalism, Interrupted: 7 Podcast Hosts on the State of the Media**\
+`A conversation with seven of the most influential hosts in podcasts and TV news.`\
+https://nytimes.com/2025/12/13/podcasts/the-daily/journalism-media-trust.html
+
+**Two freshmen on Georgia football team arrested on shoplifting charges**\
+`The two freshmen were arrested in Athens, Ga., and charged with misdemeanor shoplifting.`\
+https://nytimes.com/athletic/6887014/2025/12/13/georgia-football-players-shoplifting-charges/
+
 **Appeals Court Says Trump Must End Los Angeles Deployment by Monday**\
 `While the decision did not remove the National Guard troops from the president’s control, it blocked him from using them in the nation’s second-largest city.`\
 https://nytimes.com/2025/12/13/us/california-national-guard-trump-los-angeles.html
