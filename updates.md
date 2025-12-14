@@ -1,3 +1,15 @@
+**How to watch Hornets vs. Cavaliers: Time, TV, streaming**\
+`Find out how to watch the Charlotte Hornets play the Cleveland Cavaliers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6888133/2025/12/14/hornets-vs-cavaliers-stream-how-to-watch-dec-14/
+
+**How to watch Wizards vs. Pacers: Time, TV, streaming**\
+`Find out how to watch the Washington Wizards play the Indiana Pacers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6888130/2025/12/14/wizards-vs-pacers-stream-how-to-watch-dec-14/
+
+**How to watch Mammoth vs. Penguins: Time, TV, streaming**\
+`Find out how to watch the Utah Mammoth play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6888128/2025/12/14/mammoth-vs-penguins-stream-how-to-watch-dec-14/
+
 **A Hanukkah Attack**\
 `We cover shootings at Bondi Beach, in Australia, and at Brown University.`\
 https://nytimes.com/2025/12/14/briefing/a-hanukkah-attack.html
