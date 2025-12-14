@@ -1,3 +1,11 @@
+**Quinn Hughes trade has new Wild teammates 'shocked' — and pumped: 'Gosh, it’s going to be fun'**\
+`Potential defensive partner Brock Faber: "All my buddies were texting me — they’re like, ‘Quinn Hughes is coming.' I was obviously shocked."`\
+https://nytimes.com/athletic/6887244/2025/12/13/wild-players-react-quinn-hughes-trade/
+
+**Witnesses describe an anxious campus as news of a shooting spread and police arrived.**\
+`By Rylee Kirk, Mitch Smith, Alan Blinder and Ashley Ahn`\
+https://nytimes.com/live/2025/12/13/us/brown-shooting/witnesses-describe-an-anxious-campus-as-news-of-a-shooting-spread-and-police-arrived
+
 **A Pottery Master Prospers in Japan by Embracing a Troubled History**\
 `Visuals by Chang W. Lee, Text by Martin Fackler and Hisako Ueno`\
 https://nytimes.com/card/2025/12/14/world/asia/japan-korea-pottery
