@@ -1,3 +1,7 @@
+**Real Madrid beat Alaves 2-1 to ease pressure on Alonso for now**\
+`The victory was just Madrid's third win in their last nine games.`\
+https://nytimes.com/athletic/6889332/2025/12/14/xabi-alonso-real-madrid-alaves-pressure/
+
 **How did the Chiefs fall apart? How did the Bills stun the Pats? Our experts' Week 15 takeaways**\
 `The Bills pulled off one of the most improbable comeback wins of the season, while Jalen Hurts and Lamar Jackson both bounced back.`\
 https://nytimes.com/athletic/6888715/2025/12/14/nfl-takeaways-week-15-scores-results/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6889242/2025/12/14/kalen-deboer-michigan-coach-rumo
 **Commanders-Giants takeaways: Punt return touchdown sparks Washington win**\
 `In a game featuring the two worst teams in the NFC East, the Commanders' special teams unit made the difference.`\
 https://nytimes.com/athletic/6888212/2025/12/14/commanders-giants-takeaways-result-score/
-
-**Lamar Jackson's 2 TDs spark Ravens offense, dashing Bengals' postseason hopes**\
-`The Bengals officially miss the playoffs for the third consecutive season and lose 10 games for the first time since 2020.`\
-https://nytimes.com/athletic/6889095/2025/12/14/ravens-bengals-score-result-takeaways-nfl/
 
