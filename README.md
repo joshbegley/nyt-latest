@@ -1,3 +1,11 @@
+**Why Juventus, despite problems, are resisting $1bn takeover by a stablecoin company**\
+`Tether's bid to buy a 65.4 per cent stake in Juventus has been swiftly declined by Exor, the Agnelli family holding company. Here's why...`\
+https://nytimes.com/athletic/6886577/2025/12/14/juventus-stablecoin-tether-takeover/
+
+**Everton's revival meets its arch-nemesis: Stamford Bridge**\
+`Saturday's defeat was probably a fair reflection of where David Moyes' flawed-but-improving side are right now`\
+https://nytimes.com/athletic/6887159/2025/12/14/everton-stamford-bridge-hoodoo-moyes-grealish/
+
 **What does Apollo's investment in Wrexham mean? Why have they also got public funding?**\
 `U.S. firm buying a stake in the ambitious Welsh club has attracted controversy - and why the money won't be spent on more new signings`\
 https://nytimes.com/athletic/6881424/2025/12/14/what-does-apollos-investment-in-wrexham-mean-why-have-they-also-got-public-funding/
@@ -25,12 +33,4 @@ https://nytimes.com/2025/12/14/pageoneplus/quote-of-the-day-biden-has-raised-lit
 **The Far Right in Germany Keeps Trying to Unseal National Secrets**\
 `Opponents of AfD lawmakers say that their push to publish sensitive details about national security could benefit Russian military planning.`\
 https://nytimes.com/2025/12/14/world/europe/germany-far-right-afd-russia-security-secrets.html
-
-**Connections: Sports Edition Coach: Hints for Dec. 14, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6887624/2025/12/14/connections-sports-edition-hints-for-dec-14-2025/
-
-**'The Athletic Show': Philip Rivers returns, flag football exploding**\
-`Rivers is older than 13 NFL head coaches, making his joining the Colts a confounding choice as they're on the verge of playoff elimination.`\
-https://nytimes.com/athletic/6885530/2025/12/14/athletic-show-philip-rivers-flag-football-nfl/
 
