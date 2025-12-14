@@ -1,4 +1,8 @@
 **Maple Leafs can't afford to lose their edge: 'We gotta start pushing'**\
+`That corner the Leafs looked to be turning is suddenly in the past. They lost 6-3 to the Oilers, marking their third loss in four games.`\
+https://nytimes.com/athletic/6887637/2025/12/14/maple-leafs-lose-oilers-result-score/
+
+**Maple Leafs can't afford to lose their edge: 'We gotta start pushing'**\
 `That corner the Maple Leafs looked to be turning is suddenly in the past. They lost 6-3 to the Oilers on Saturday.`\
 https://nytimes.com/athletic/6887637/2025/12/14/maple-leafs-lose-oilers-result-score/
 
