@@ -1,3 +1,15 @@
+**Trump Administration Live Updates: President Vows to Retaliate Against ISIS After Deadly Attack in Syria**\
+``\
+https://nytimes.com/live/2025/12/14/us/trump-news
+
+**On ‘Saturday Night Live,’ President Trump Blows Up a Familiar Sleigh**\
+`Josh O’Connor hosted this week’s episode, which satirized an airborne news conference and also featured a pair of very sensitive male strippers.`\
+https://nytimes.com/2025/12/14/arts/television/snl-josh-oconnor-lily-allen.html
+
+**No Quick Fix for Our Housing Crisis**\
+`Sampling the many responses to a column by Ezra Klein.`\
+https://nytimes.com/2025/12/14/opinion/us-housing-crisis.html
+
 **Until Saturday: The most brutal call of the season**\
 `Until Saturday is The Athletic's free college football newsletter.`\
 https://nytimes.com/athletic/6888143/2025/12/14/celebration-bowl-ending-until-saturday/
