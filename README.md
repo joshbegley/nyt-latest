@@ -1,3 +1,7 @@
+**'We need these moments': Orlando Magic pledge to grow from NBA Cup letdown**\
+`The Magic, with eyes on the playoffs, hope this loss leads to gains later on. “It’s definitely a motivation,” Wendell Carter Jr. said. `\
+https://nytimes.com/athletic/6887617/2025/12/13/orlando-magic-nba-cup-disappointment/
+
 **What We Know About the Deadly Shooting at Brown University**\
 `Two people were killed and nine others injured during an attack on the Rhode Island campus. Officials were searching for a gunman late Saturday.`\
 https://nytimes.com/2025/12/13/us/brown-university-shooting-what-happened.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6887141/2025/12/13/nba-cup-takeaways-semifinals-mag
 **Pathetic third period spells doom for the Penguins: Observations**\
 `In a week of embarrassing losses, the Penguins outdid themselves on Saturday with a 6-5 overtime loss to the Sharks. `\
 https://nytimes.com/athletic/6887233/2025/12/13/penguins-sharks-overtime-observations-sidney-crosby/
-
-**Buffalo Bills players, staff safe after mass shooting near team hotel: Sources**\
-`The Bills are staying less than 2 miles from the scene of a mass shooting on the campus of Brown University.`\
-https://nytimes.com/athletic/6887372/2025/12/13/brown-shooting-buffalo-bills-hotel-patriots/
 
