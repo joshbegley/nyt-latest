@@ -1,3 +1,7 @@
+**Josh Allen and the Bills stun Patriots with 21-point comeback victory**\
+`For the second week in a row, the Bills came alive in the second half to pull off a comeback.`\
+https://nytimes.com/athletic/6888549/2025/12/14/bills-patriots-score-result-takeaways-nfl/
+
 **Chiefs eliminated from playoffs as Mahomes hurt in loss to Chargers: Takeaways**\
 `The Chiefs will miss the playoffs for the first time since 2014 after a 16-13 defeat to the Los Angeles Chargers.`\
 https://nytimes.com/athletic/6888575/2025/12/14/chargers-chiefs-score-result-takeaways-nfl/
@@ -22,15 +26,11 @@ https://nytimes.com/2025/12/14/theater/anna-christie-review-michelle-williams-on
 `Hurts went 12-of-15 for 175 yards and three touchdowns.`\
 https://nytimes.com/athletic/6888641/2025/12/14/raiders-eagles-score-result-takeaways-nfl/
 
-**Chiefs QB Patrick Mahomes leaves in fourth quarter with knee injury**\
+**Chiefs QB Patrick Mahomes' knee injury 'didn't look good,' will have MRI**\
 `Mahomes was replaced by Gardner Minshew, who threw an interception to seal the Chiefs' 16-13 loss and elimination from playoff contention.`\
 https://nytimes.com/athletic/6889142/2025/12/14/patrick-mahomes-chiefs-knee-injury-chargers/
 
 **What to Know About the Victims of the Bondi Beach Shooting**\
 `At least 15 people were killed in the attack in Sydney, including a long-serving rabbi in Bondi and a Holocaust survivor.`\
 https://nytimes.com/2025/12/14/world/australia/australia-shooting-hanukkah-victims-bondi-beach.html
-
-**A Hanukkah Attack in Sydney**\
-`Gunmen killed at least 15 people attending a Jewish celebration at the city’s popular Bondi Beach in what Australian officials are calling a terrorist attack.`\
-https://nytimes.com/2025/12/14/world/attack-hanukkah-sydney-kenya-maids-saudi.html
 
