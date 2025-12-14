@@ -1,3 +1,19 @@
+**James Cameron Tempers His Temper and Channels His Inner Na’vi**\
+`Years after his Titanic tantrums, the “Avatar” director has “mellowed,” says Sigourney Weaver. He calls it “marinating.”`\
+https://nytimes.com/2025/12/14/style/james-cameron-tempers-his-temper-and-channels-his-inner-navi.html
+
+**Confirm or Deny: James Cameron Edition**\
+`The box office king sits for a lightning-round interview.`\
+https://nytimes.com/2025/12/14/style/confirm-or-deny-james-cameron-edition.html
+
+**What We Know About the Shooting at Bondi Beach**\
+`Two gunman opened fire at dozens of people who were at a Jewish holiday event. At least 11 people were killed in the attack, and so was one of the shooters, the police said.`\
+https://nytimes.com/2025/12/14/world/australia/what-we-know-bondi-shooting.html
+
+**Mass Shootings Are Rare in Australia, Which Has Strict Gun Laws**\
+`The country’s stringent rules are often lauded as a model policy by proponents of gun control in the United States.`\
+https://nytimes.com/2025/12/14/world/australia/australia-gun-laws-sydney-shooting.html
+
 **Van Dijk: Of course I’ve told Salah I want him to stay at Liverpool**\
 `Salah returned to the squad for Saturday's 2-0 win over Brighton & Hove Albion following his post-Leeds outburst.`\
 https://nytimes.com/athletic/6888032/2025/12/14/virgil-van-dijk-mohamed-salah-liverpool-future/
@@ -17,20 +33,4 @@ https://nytimes.com/athletic/6887464/2025/12/14/blackhawks-fail-first-test-witho
 **Russo: The Wild have no long-term guarantees from Quinn Hughes, but there's reason to believe**\
 `"This is going to be fun for Quinn," Hughes' agent, Pat Brisson, tells The Athletic. That's not a promise of extending, but it's something.`\
 https://nytimes.com/athletic/6887248/2025/12/14/wild-quinn-hughes-trade-russo/
-
-**Cubs takeaways from playoffs and free-agent deals, Owen Caissie’s WBC decision and more**\
-`Plus notes on Jaxon Wiggins, a pitcher who could help Chicago in 2026 if he can make the same kind of leap Cade Horton did in 2025.`\
-https://nytimes.com/athletic/6887090/2025/12/14/cubs-free-agent-deals-owen-caissie-world-baseball-classic/
-
-**How Lindsey Vonn, at 41, became one of the fastest skiers in the world again**\
-`With the 2026 Olympics less than two months away, Vonn is a medal contender. It's all thanks to a new knee and a lot of offseason work.`\
-https://nytimes.com/athletic/6887342/2025/12/14/lindsey-vonn-comeback-knee-olympics-world-cup-st-moritz/
-
-**Witnesses Fled Bondi Beach as Gunmen Targeted Jewish Event**\
-`Gunshots ripped through a Hanukkah celebration in Sydney, Australia, killing at least 12 people.`\
-https://nytimes.com/2025/12/14/world/australia/witness-accounts-bondi-beach-shooting.html
-
-**Three days with the Saginaw Spirit, where being different is the name of the game**\
-`The Athletic went behind the scenes with the Spirit to get an inside look at their approach under Dave Drinkill and Chris Lazary.`\
-https://nytimes.com/athletic/6744137/2025/12/14/ohl-saginaw-spirit-dave-drinkill-chris-lazary-junior-hockey/
 
