@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6887574/2025/12/13/jalen-brunson-knicks-nba-best-scorer/
 
 **Losing streak hits season-long 5 games as Blue Jackets' late rally attempt fizzles**\
-`Columbus had several opportunities to tie the game late, but it still fell short 3-2 to the Golden Knights on Saturday.`\
+`Columbus had several opportunities to tie the score late, but it still fell short, 3-2, to the Golden Knights on Saturday.`\
 https://nytimes.com/athletic/6887590/2025/12/13/blue-jackets-golden-knights-adam-fantilli/
 
 **Lindsay Gottlieb on Brown shooting: 'It doesn't need to be this way'**\
