@@ -1,3 +1,15 @@
+**Victor Wembanyama, Spurs snap Thunder's 16-game winning streak to reach NBA Cup final**\
+`Playing on a minutes restriction, Wembanyama finished with 22 points, nine rebounds and two blocks in a 111-109 win over the Thunder.`\
+https://nytimes.com/athletic/6887164/2025/12/14/victor-wembanyama-return-nba-cup/
+
+**At least 2 students at Brown have survived school shootings before.**\
+`By Camille Baker`\
+https://nytimes.com/2025/12/13/us/at-least-2-students-at-brown-have-survived-school-shootings-before.html
+
+**Maple Leafs can’t afford to lose their edge: 'We gotta start pushing'**\
+`That corner the Toronto Maple Leafs looked to be turning is suddenly in the past. They lost 6-3 to the Edmonton Oilers.`\
+https://nytimes.com/athletic/6887637/2025/12/14/maple-leafs-lose-oilers-result-score/
+
 **Why Juventus, despite problems, are resisting $1bn takeover by a stablecoin company**\
 `Tether's bid to buy a 65.4 per cent stake in Juventus has been swiftly declined by Exor, the Agnelli family holding company. Here's why...`\
 https://nytimes.com/athletic/6886577/2025/12/14/juventus-stablecoin-tether-takeover/
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/6886250/2025/12/14/england-fans-world-cup-ticket-pr
 **Park the bus, raumdeuter, prawn sandwich brigade – football’s word of the year, 2000-2025**\
 `With 'ragebait' the Oxford English Dictionary word of the year, here's a look at what footballing equivalents might have been since 2000`\
 https://nytimes.com/athletic/6875571/2025/12/14/football-word-of-the-year-premier-league-mourinho-guardiola-muller-messi/
-
-**In Rome, the King of Paparazzi Is a Star in His Own Right**\
-`Rino Barillari has been snapping photos of, and sparring with, the famous for 65 years, from Princess Margaret to Lady Gaga, Peter O’Toole to Spike Lee. He is now a fixture himself in the celebrity firmament.`\
-https://nytimes.com/2025/12/14/world/europe/rome-italy-celebrity-paparazzi-rino-barillari.html
-
-**Quote of the Day: Biden Has Raised Little of What He Needs to Build a Typical Presidential Library**\
-`Quotation of the Day for Sunday, December 14, 2025.`\
-https://nytimes.com/2025/12/14/pageoneplus/quote-of-the-day-biden-has-raised-little-of-what-he-needs-to-build-a-typical-presidential-library.html
-
-**The Far Right in Germany Keeps Trying to Unseal National Secrets**\
-`Opponents of AfD lawmakers say that their push to publish sensitive details about national security could benefit Russian military planning.`\
-https://nytimes.com/2025/12/14/world/europe/germany-far-right-afd-russia-security-secrets.html
 

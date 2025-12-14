@@ -1,3 +1,15 @@
+**Victor Wembanyama, Spurs snap Thunder's 16-game winning streak to reach NBA Cup final**\
+`Playing on a minutes restriction, Wembanyama finished with 22 points, nine rebounds and two blocks in a 111-109 win over the Thunder.`\
+https://nytimes.com/athletic/6887164/2025/12/14/victor-wembanyama-return-nba-cup/
+
+**At least 2 students at Brown have survived school shootings before.**\
+`By Camille Baker`\
+https://nytimes.com/2025/12/13/us/at-least-2-students-at-brown-have-survived-school-shootings-before.html
+
+**Maple Leafs can’t afford to lose their edge: 'We gotta start pushing'**\
+`That corner the Toronto Maple Leafs looked to be turning is suddenly in the past. They lost 6-3 to the Edmonton Oilers.`\
+https://nytimes.com/athletic/6887637/2025/12/14/maple-leafs-lose-oilers-result-score/
+
 **Why Juventus, despite problems, are resisting $1bn takeover by a stablecoin company**\
 `Tether's bid to buy a 65.4 per cent stake in Juventus has been swiftly declined by Exor, the Agnelli family holding company. Here's why...`\
 https://nytimes.com/athletic/6886577/2025/12/14/juventus-stablecoin-tether-takeover/
