@@ -1,3 +1,15 @@
+**Jalen Brunson, pound for pound, is the NBA's best scorer**\
+`With Jalen Brunson, it's time to say the quiet part out loud, writes James L. Edwards III.`\
+https://nytimes.com/athletic/6887574/2025/12/13/jalen-brunson-knicks-nba-best-scorer/
+
+**Losing streak hits season-long 5 games as Blue Jackets' late rally attempt fizzles**\
+`Columbus had several opportunities to tie the score late, but it still fell short, 3-2, to the Golden Knights on Saturday.`\
+https://nytimes.com/athletic/6887590/2025/12/13/blue-jackets-golden-knights-adam-fantilli/
+
+**Lindsay Gottlieb on Brown shooting: 'It doesn't need to be this way'**\
+`The former Brown player says she heard about the tragedy at her alma mater after returning to the locker room after the game.`\
+https://nytimes.com/athletic/6887589/2025/12/13/usc-lindsay-gottlieb-reaction-brown-university-shooting/
+
 **USC coach Lindsay Gottlieb addresses Brown shooting: 'We're the only country that lives this way'**\
 `The former Brown player says she heard about the tragedy at her alma mater after returning to the locker room after the game.`\
 https://nytimes.com/athletic/6887589/2025/12/13/usc-lindsay-gottlieb-reaction-brown-university-shooting/

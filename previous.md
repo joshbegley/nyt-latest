@@ -1,4 +1,12 @@
-**USC coach Lindsay Gottlieb addresses Brown shooting: 'We're the only country that lives this way'**\
+**Jalen Brunson, pound for pound, is the NBA's best scorer**\
+`With Jalen Brunson, it's time to say the quiet part out loud, writes James L. Edwards III.`\
+https://nytimes.com/athletic/6887574/2025/12/13/jalen-brunson-knicks-nba-best-scorer/
+
+**Losing streak hits season-long 5 games as Blue Jackets' late rally attempt fizzles**\
+`Columbus had several opportunities to tie the score late, but it still fell short, 3-2, to the Golden Knights on Saturday.`\
+https://nytimes.com/athletic/6887590/2025/12/13/blue-jackets-golden-knights-adam-fantilli/
+
+**Lindsay Gottlieb on Brown shooting: 'It doesn't need to be this way'**\
 `The former Brown player says she heard about the tragedy at her alma mater after returning to the locker room after the game.`\
 https://nytimes.com/athletic/6887589/2025/12/13/usc-lindsay-gottlieb-reaction-brown-university-shooting/
 
@@ -25,12 +33,4 @@ https://nytimes.com/2025/12/13/us/brown-university-what-to-know.html
 **South Carolina State wins Celebration Bowl after 4 OTs, disputed 2-point play**\
 `The refs ruled that Tyler Smith carried the ball over an orange pylon to give the Bulldogs the 40-38 victory.`\
 https://nytimes.com/athletic/6887377/2025/12/13/south-carolina-state-celebration-bowl-controversy/
-
-**Royals come out ahead in Brewers swap, netting Isaac Collins, Nick Mears for Angel Zerpa**\
-`The Brewers lose one of their top on-base hitters and a serviceable reliever and get only a reliever with a platoon split in return.`\
-https://nytimes.com/athletic/6887391/2025/12/13/royals-brewers-trade-angel-zerpa-isaac-collins-nick-mears/
-
-**NBA Cup takeaways: Jalen Brunson erupts, Knicks outlast Magic to reach final**\
-`The victory gives New York a chance to prove that it can contend not only in the East but also against one of the West's best.`\
-https://nytimes.com/athletic/6887141/2025/12/13/nba-cup-takeaways-semifinals-magic-knicks-spurs-thunder/
 
