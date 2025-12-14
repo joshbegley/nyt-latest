@@ -1,3 +1,7 @@
+**USC coach Lindsay Gottlieb addresses Brown shooting: 'We're the only country that lives this way'**\
+`The former Brown player says she heard about the tragedy at her alma mater after returning to the locker room after the game.`\
+https://nytimes.com/athletic/6887589/2025/12/13/usc-lindsay-gottlieb-reaction-brown-university-shooting/
+
 **'We need these moments': Orlando Magic pledge to grow from NBA Cup letdown**\
 `The Magic, with eyes on the playoffs, hope this loss leads to gains later on. “It’s definitely a motivation,” Wendell Carter Jr. said. `\
 https://nytimes.com/athletic/6887617/2025/12/13/orlando-magic-nba-cup-disappointment/
