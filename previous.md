@@ -1,3 +1,7 @@
+**Bondi Shooting Is Latest in Alarming Rise of Antisemitic Attacks in Australia**\
+`A string of incidents has targeted the Jewish community in recent months.`\
+https://nytimes.com/2025/12/14/world/australia/bondi-shooting-is-latest-in-alarming-rise-of-antisemitic-attacks-in-australia.html
+
 **How to watch Hornets vs. Cavaliers: Time, TV, streaming**\
 `Find out how to watch the Charlotte Hornets play the Cleveland Cavaliers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6888133/2025/12/14/hornets-vs-cavaliers-stream-how-to-watch-dec-14/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6888107/2025/12/14/south-carolina-state-vs-ole-miss
 **How to watch Winthrop vs. Tennessee women's basketball: Time, TV, streaming**\
 `Find out how to watch the Winthrop Eagles play the Tennessee Lady Volunteers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6888103/2025/12/14/winthrop-vs-tennessee-stream-how-to-watch-dec-14/
-
-**How to watch Kentucky vs. Belmont women's basketball: Time, TV, streaming**\
-`Find out how to watch the Kentucky Wildcats play the Belmont Bruins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6888101/2025/12/14/kentucky-vs-belmont-stream-how-to-watch-dec-14/
 
