@@ -1,3 +1,7 @@
+**Until Saturday: The most brutal call of the season**\
+`Until Saturday is The Athletic's free college football newsletter.`\
+https://nytimes.com/athletic/6888143/2025/12/14/celebration-bowl-ending-until-saturday/
+
 **Bondi Shooting Is Latest in Alarming Rise of Antisemitic Attacks in Australia**\
 `A string of incidents has targeted the Jewish community in recent months.`\
 https://nytimes.com/2025/12/14/world/australia/bondi-shooting-antisemitic-attacks-australia.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6888109/2025/12/14/penn-state-vs-south-carolina-str
 **How to watch South Carolina State vs. Ole Miss women's basketball: Time, TV, streaming**\
 `Find out how to watch the South Carolina State Lady Bulldogs play the Ole Miss Rebels, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6888107/2025/12/14/south-carolina-state-vs-ole-miss-stream-how-to-watch-dec-14/
-
-**How to watch Winthrop vs. Tennessee women's basketball: Time, TV, streaming**\
-`Find out how to watch the Winthrop Eagles play the Tennessee Lady Volunteers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6888103/2025/12/14/winthrop-vs-tennessee-stream-how-to-watch-dec-14/
 
