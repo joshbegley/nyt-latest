@@ -1,3 +1,15 @@
+**How to watch Northern Iowa vs. Iowa State women's basketball: Time, TV, streaming**\
+`Find out how to watch the Northern Iowa Panthers play the Iowa State Cyclones, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6888411/2025/12/14/northern-iowa-vs-iowa-state-stream-how-to-watch-dec-14/
+
+**How to watch Jacksonville vs. TCU women's basketball: Time, TV, streaming**\
+`Find out how to watch the Jacksonville Dolphins play the TCU Horned Frogs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6888409/2025/12/14/jacksonville-vs-tcu-stream-how-to-watch-dec-14/
+
+**The Briefing: Forest 3 Spurs 0 - Where does this leave Thomas Frank? Are Tottenham their own worst enemy?**\
+`We break down the talking points from a disappointing defeat at the City Ground`\
+https://nytimes.com/athletic/6886265/2025/12/14/tottenham-gray-error-forest/
+
 **The Briefing: Crystal Palace 0 Man City 3 - Pressure on Arsenal maintained as Cherki goes top of Premier League assists chart**\
 `Analysis of Manchester City's victory at Selhurst Park on Sunday afternoon`\
 https://nytimes.com/athletic/6886264/2025/12/14/crystal-palace-manchester-city-premier-league-analysis/
