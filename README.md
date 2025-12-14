@@ -1,3 +1,15 @@
+**Chiefs eliminated from playoffs as Mahomes hurt in loss to Chargers: Takeaways**\
+`The Chiefs will miss the playoffs for the first time since 2014 after a 16-13 defeat to the Los Angeles Chargers.`\
+https://nytimes.com/athletic/6888575/2025/12/14/chargers-chiefs-score-result-takeaways-nfl/
+
+**Bears-Browns takeaways: Caleb Williams, Chicago thump Cleveland**\
+`Williams led the Bears in a blowout win in frigid temperatures in Chicago.`\
+https://nytimes.com/athletic/6888195/2025/12/14/browns-bears-score-result-takeaways-nfl/
+
+**Syrian Who Killed U.S. Soldiers Was Member of Security Forces, Officials Say**\
+`The gunman who killed two U.S. soldiers and an American civilian interpreter had been set to be dismissed from the security forces over his extremist views, U.S. and Syrian officials said.`\
+https://nytimes.com/2025/12/14/world/middleeast/syria-isis-attack.html
+
 **Chiefs, Bengals, Vikings eliminated from playoff contention**\
 `A series of results around the league ended a streak of 10 consecutive postseason appearances for Kansas City.`\
 https://nytimes.com/athletic/6889064/2025/12/14/chiefs-bengals-vikings-playoff-elimination/
@@ -21,16 +33,4 @@ https://nytimes.com/2025/12/14/world/australia/australia-shooting-hanukkah-victi
 **A Hanukkah Attack in Sydney**\
 `Gunmen killed at least 15 people attending a Jewish celebration at the city’s popular Bondi Beach in what Australian officials are calling a terrorist attack.`\
 https://nytimes.com/2025/12/14/world/attack-hanukkah-sydney-kenya-maids-saudi.html
-
-**Chargers' Tony Jefferson ejected for helmet-to-helmet hit vs. Chiefs**\
-`Jefferson was flagged and then ejected for an illegal hit on Chiefs wide receiver Tyquan Thornton.`\
-https://nytimes.com/athletic/6889084/2025/12/14/tony-jefferson-ejected-chargers-chiefs/
-
-**Cody Miller, U.S. Olympic swimming champion, joins Enhanced Games**\
-`Miller was part of the U.S. men's 4 x 100 metre medley relay team that won gold at the 2016 Rio Olympics.`\
-https://nytimes.com/athletic/6886592/2025/12/14/cody-miller-enhanced-games/
-
-**‘The Feeling of Being Under Siege’: U.S. Rabbis React to Sydney Attack**\
-`After gunmen opened fire at a Hanukkah celebration in Australia, rabbis across the United States reflected on how to protect their congregations during their own events.`\
-https://nytimes.com/2025/12/14/world/australia/hanukkah-shooting-bondi-reaction.html
 

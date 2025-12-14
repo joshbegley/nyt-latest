@@ -1,3 +1,7 @@
+**Chiefs QB Patrick Mahomes leaves in fourth quarter with knee injury**\
+`Mahomes was replaced by Gardner Minshew, who threw an interception to seal the Chiefs' 16-13 loss and elimination from playoff contention.`\
+https://nytimes.com/athletic/6889142/2025/12/14/patrick-mahomes-chiefs-knee-injury-chargers/
+
 **Chiefs, Bengals, Vikings eliminated from playoff contention**\
 `A series of results around the league ended a streak of 10 consecutive postseason appearances for Kansas City.`\
 https://nytimes.com/athletic/6889064/2025/12/14/chiefs-bengals-vikings-playoff-elimination/
