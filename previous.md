@@ -1,3 +1,11 @@
+**How the Sydney Shooting Unfolded: Maps and Videos**\
+`Two suspected gunmen opened fire from a footbridge at hundreds of people who had gathered for a Hanukkah celebration.`\
+https://nytimes.com/interactive/2025/12/14/world/australia/sydney-bondi-beach-shooting-maps.html
+
+**Newcastle's Burn hospitalised after rib injury vs. Sunderland**\
+`Burn was sent for medical checks after his 42nd-minute substitution. “He was struggling to breathe at half-time," Eddie Howe said.`\
+https://nytimes.com/athletic/6888505/2025/12/14/dan-burn-newcastle-sunderland-injury/
+
 **Jewish Community Targeted in Deadly Australian Shooting**\
 `At least 11 people were killed and several others were injured at Bondi Beach in Sydney on Sunday, after what officials said was a terrorist attack on Jewish Australians.`\
 https://nytimes.com/video/world/australia/100000010586397/australia-mass-shooting-jewish.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6888447/2025/12/14/kings-vs-timberwolves-stream-how
 **How to watch Oilers vs. Canadiens: Time, TV, streaming**\
 `Find out how to watch the Edmonton Oilers play the Montreal Canadiens, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6888445/2025/12/14/oilers-vs-canadiens-stream-how-to-watch-dec-14/
-
-**How to watch Pelicans vs. Bulls: Time, TV, streaming**\
-`Find out how to watch the New Orleans Pelicans play the Chicago Bulls, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6888443/2025/12/14/pelicans-vs-bulls-stream-how-to-watch-dec-14/
-
-**How to watch 76ers vs. Hawks: Time, TV, streaming**\
-`Find out how to watch the Philadelphia 76ers play the Atlanta Hawks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6888441/2025/12/14/76ers-vs-hawks-stream-how-to-watch-dec-14/
 
