@@ -1,3 +1,11 @@
+**Hospitalized Brown Student Describes Hiding From Shooter**\
+`The student, in his first year at Brown, was shot in the leg. He described helping others who were more seriously injured as they hid in their classroom.`\
+https://nytimes.com/live/2025/12/14/us/brown-shooting/brown-shooting-witness-spencer-yang
+
+**What Is Chabad, the Group That Hosted the Hanukkah Event in Australia?**\
+`The global organization represents a branch of Hasidic Judaism. It is dedicated to strengthening Jewish life through educational, cultural and other services.`\
+https://nytimes.com/2025/12/14/world/australia/what-is-chabad-sydney-attacks.html
+
 **Trump Administration Live Updates: President Vows to Retaliate Against ISIS After Deadly Attack in Syria**\
 ``\
 https://nytimes.com/live/2025/12/14/us/trump-news
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6888133/2025/12/14/hornets-vs-cavaliers-stream-how-
 **How to watch Wizards vs. Pacers: Time, TV, streaming**\
 `Find out how to watch the Washington Wizards play the Indiana Pacers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6888130/2025/12/14/wizards-vs-pacers-stream-how-to-watch-dec-14/
-
-**How to watch Mammoth vs. Penguins: Time, TV, streaming**\
-`Find out how to watch the Utah Mammoth play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6888128/2025/12/14/mammoth-vs-penguins-stream-how-to-watch-dec-14/
-
-**A Hanukkah Attack**\
-`We cover shootings at Bondi Beach, in Australia, and at Brown University.`\
-https://nytimes.com/2025/12/14/briefing/a-hanukkah-attack.html
 
