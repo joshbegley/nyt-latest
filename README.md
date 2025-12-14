@@ -1,4 +1,8 @@
-**Witnesses Describe Chaos at Bondi Beach**\
+**How Lindsey Vonn, at 41, became one of the fastest skiers in the world again**\
+`With the 2026 Olympics less than two months away, Vonn is a medal contender. It's all thanks to a new knee and a lot of offseason work.`\
+https://nytimes.com/athletic/6887342/2025/12/14/lindsey-vonn-comeback-knee-olympics-world-cup-st-moritz/
+
+**Witnesses Fled Bondi Beach as Gunmen Targeted Jewish Event**\
 `Gunshots ripped through a Hanukkah celebration in Sydney, Australia, killing at least 12 people.`\
 https://nytimes.com/2025/12/14/world/australia/witness-accounts-bondi-beach-shooting.html
 
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6887700/2025/12/14/flyers-sam-ersson-hurricanes-sho
 **How does the Quinn Hughes blockbuster trade impact each NHL team?**\
 `From teams that missed out on a good opportunity to teams that now face an even tougher division, how does the deal impact each club?`\
 https://nytimes.com/athletic/6887341/2025/12/14/canucks-wild-quinn-hughes-trade-impacts-nhl-teams/
-
-**Was I Based or Cringe? I Decided to Find Out.**\
-`Remind me never to listen to what they are saying online about me.`\
-https://nytimes.com/2025/12/14/opinion/maga-right-wing-young-voters.html
 
