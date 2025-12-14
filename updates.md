@@ -1,3 +1,15 @@
+**What We Know About the American Troops in Syria**\
+`The killing of three Americans during what was said to be a counterterrorism operation in central Syria served as a reminder that U.S. troops are still operating in the country.`\
+https://nytimes.com/2025/12/14/world/asia/what-we-know-about-the-american-troops-in-syria.html
+
+**Cole Palmer is back to conduct the orchestra at Chelsea**\
+`The England international marked his return to Stamford Bridge after injury with a typically brilliant goal `\
+https://nytimes.com/athletic/6887202/2025/12/14/cole-palmer-return-stamford-bridge/
+
+**Live Updates: At Least 10 Injured in Shooting at Bondi Beach in Sydney**\
+`Two people were in custody after the shooting at Australia’s best-known beach during a Jewish event. The authorities advised people nearby to take shelter.`\
+https://nytimes.com/live/2025/12/14/world/sydney-bondi-beach-shooting
+
 **Live Updates: At Least 10 Injured in Shooting at Sydney’s Bondi Beach**\
 `The police told people near Bondi, one of Australia’s best-known beaches, to take shelter. Details of the shooting were not immediately clear.`\
 https://nytimes.com/live/2025/12/14/world/sydney-bondi-beach-shooting
