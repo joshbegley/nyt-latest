@@ -1,3 +1,7 @@
+**Gunshots, Then 12 Hours of Fear at Brown University**\
+`As the shooter remained at large, students sheltered in place in classrooms and basements, waiting for the all clear.`\
+https://nytimes.com/2025/12/14/us/gunshots-lockdown-brown-university.html
+
 **House Republicans Accuse D.C. Police of Manipulating Crime Statistics**\
 `The committee cited interviews with police commanders in an effort to buttress President Trump’s federal takeover of law enforcement and the National Guard deployment in the capital city.`\
 https://nytimes.com/2025/12/14/us/politics/house-republicans-dc-crime.html
