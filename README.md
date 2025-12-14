@@ -1,3 +1,15 @@
+**Dwyane Wade and Allen Iverson almost teamed up with the Heat in 2006, but Wade rejected the deal**\
+`Pat Riley was close for trading for Iverson, but Wade vetoed the deal when he discovered the Heat would have to give up Udonis Haslem.`\
+https://nytimes.com/athletic/6889014/2025/12/14/dwyane-wade-allen-iverson-miami-heat-trade/
+
+**Cardinals-Texans takeaways: Houston's fast start fuels sixth straight win**\
+`The No. 1 defense in the NFL got some help with a strong performance from C.J. Stroud and the Houston offense.`\
+https://nytimes.com/athletic/6888625/2025/12/14/cardinals-texans-score-result-takeaways-nfl/
+
+**Jets-Jaguars takeaways: Trevor Lawrence shines as Jacksonville cruises in rout**\
+`Trevor Lawrence passed for 330 yards and five touchdowns on Sunday to lead Jacksonville in a rout.`\
+https://nytimes.com/athletic/6888581/2025/12/14/jets-jaguars-score-result-takeaways-nfl/
+
 **Kalen DeBoer shuts down Michigan coaching search talk**\
 `DeBoer is in his second season at Alabama and set to play at Oklahoma in a first-round College Football Playoff game.`\
 https://nytimes.com/athletic/6889242/2025/12/14/kalen-deboer-michigan-coach-rumors/
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/6888575/2025/12/14/chargers-chiefs-score-result-tak
 **Bears-Browns takeaways: Caleb Williams, Chicago thump Cleveland**\
 `Williams led the Bears in a blowout win in frigid temperatures in Chicago.`\
 https://nytimes.com/athletic/6888195/2025/12/14/browns-bears-score-result-takeaways-nfl/
-
-**Syrian Who Killed U.S. Soldiers Was Member of Security Forces, Officials Say**\
-`The gunman who killed two U.S. soldiers and an American civilian interpreter had been set to be dismissed from the security forces over his extremist views, U.S. and Syrian officials said.`\
-https://nytimes.com/2025/12/14/world/middleeast/syria-isis-attack.html
-
-**Chiefs, Bengals, Vikings eliminated from playoff contention**\
-`A series of results around the league ended a streak of 10 consecutive postseason appearances for Kansas City.`\
-https://nytimes.com/athletic/6889064/2025/12/14/chiefs-bengals-vikings-playoff-elimination/
-
-**‘Anna Christie’ Review: Michelle Williams on the Waterfront**\
-`The actress stars in Thomas Kail’s luminous revival of Eugene O’Neill’s play about a woman whose past threatens her future.`\
-https://nytimes.com/2025/12/14/theater/anna-christie-review-michelle-williams-on-the-waterfront.html
 
