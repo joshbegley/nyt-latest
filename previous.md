@@ -1,3 +1,7 @@
+**Why a thrilling NBA Cup semifinal ended with all those fouls**\
+`The last nine seconds of the game featured one foul and whistle after another, with the Spurs ultimately coming out on top.`\
+https://nytimes.com/athletic/6887800/2025/12/14/spurs-thunder-nba-cup-ending-fouls/
+
 **A Brown University Instructor Hid From Gunfire With His Students**\
 `Joseph Oduro, 21, said he was leading an economics study session for about 60 students when a masked man entered the room and started shooting.`\
 https://nytimes.com/2025/12/14/us/brown-shooting-classroom-victims.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6887159/2025/12/14/everton-stamford-bridge-hoodoo-m
 **What does Apollo's investment in Wrexham mean? Why have they also got public funding?**\
 `U.S. firm buying a stake in the ambitious Welsh club has attracted controversy - and why the money won't be spent on more new signings`\
 https://nytimes.com/athletic/6881424/2025/12/14/what-does-apollos-investment-in-wrexham-mean-why-have-they-also-got-public-funding/
-
-**Welcome to Neymar: the referendum. Does he deserve to be in Brazil's World Cup plans?**\
-`One topic of conversation will dominate Brazil's build-up to the 2026 tournament, just as it did with Romario in 2002`\
-https://nytimes.com/athletic/6884385/2025/12/14/neymar-brazil-world-cup-2026/
 

@@ -1,3 +1,7 @@
+**Why a thrilling NBA Cup semifinal ended with all those fouls**\
+`The last nine seconds of the game featured one foul and whistle after another, with the Spurs ultimately coming out on top.`\
+https://nytimes.com/athletic/6887800/2025/12/14/spurs-thunder-nba-cup-ending-fouls/
+
 **Maple Leafs can't afford to lose their edge: 'We gotta start pushing'**\
 `That corner the Leafs looked to be turning is suddenly in the past. They lost 6-3 to the Oilers, marking their third loss in four games.`\
 https://nytimes.com/athletic/6887637/2025/12/14/maple-leafs-lose-oilers-result-score/
