@@ -1,3 +1,11 @@
+**Eagles-Raiders takeaways: Philadelphia shuts out Las Vegas**\
+`Hurts went 12-of-15 for 175 yards and three touchdowns.`\
+https://nytimes.com/athletic/6888641/2025/12/14/raiders-eagles-score-result-takeaways-nfl/
+
+**Chiefs QB Patrick Mahomes leaves in fourth quarter with apparent knee injury**\
+`Mahomes was replaced by Gardner Minshew, who threw an interception to seal the Chiefs' 16-13 loss and elimination from playoff contention.`\
+https://nytimes.com/athletic/6889142/2025/12/14/patrick-mahomes-chiefs-knee-injury-chargers/
+
 **Chiefs QB Patrick Mahomes leaves in fourth quarter with apparent knee injury**\
 `The Chiefs need a win Sunday to avoid being eliminated from postseason contention.`\
 https://nytimes.com/athletic/6889142/2025/12/14/patrick-mahomes-chiefs-knee-injury-chargers/
