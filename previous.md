@@ -2,7 +2,7 @@
 `The police told people near Bondi, one of Australia’s best-known beaches, to take shelter. Details of the shooting were not immediately clear.`\
 https://nytimes.com/live/2025/12/14/world/sydney-bondi-beach-shooting
 
-**Brendon McCullum backs England's beleaguered top seven as tourists double down for Adelaide**\
+**Brendon McCullum backs beleaguered top seven as England double down for Adelaide**\
 `The England head coach will not change his approach even with his own position under scrutiny as the tourists look to recover from 2-0 down`\
 https://nytimes.com/athletic/6887732/2025/12/14/brendon-mccullum-england-ashes-adelaide/
 
