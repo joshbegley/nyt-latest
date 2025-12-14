@@ -1,3 +1,15 @@
+**New York City Gets Its First Big Snowfall of the Season**\
+`The city has not seen this much snow this early in the season since 2019, the National Weather Service said.`\
+https://nytimes.com/2025/12/14/weather/snowstorm-nyc-weather.html
+
+**Man arrested after football manager injured before non-league match**\
+`A man has been arrested on suspicion of causing grievous bodily harm after an incident before Welling United vs Potters Bar.`\
+https://nytimes.com/athletic/6888005/2025/12/14/welling-united-potters-bar-arrest/
+
+**Merrill Kelly, Diamondbacks finalizing two-year, $40 million deal: Source**\
+`The 37-year-old righty had spent his entire major-league career in Arizona before heading to Texas at the 2025 trade deadline.`\
+https://nytimes.com/athletic/6781395/2025/12/14/merrill-kelly-free-agency-signing-diamondbacks/
+
 **Hamas Confirms Top Commander’s Death in Israeli Strike in Gaza**\
 `The killing of the commander, Raed Saad, on Saturday was the highest-profile assassination of a Hamas leader since a cease-fire came into force two months ago.`\
 https://nytimes.com/2025/12/14/world/middleeast/hamas-israel-commander-killed.html
@@ -21,16 +33,4 @@ https://nytimes.com/2025/12/14/arts/television/snl-josh-oconnor-lily-allen.html
 **No Quick Fix for Our Housing Crisis**\
 `Sampling the many responses to a column by Ezra Klein.`\
 https://nytimes.com/2025/12/14/opinion/us-housing-crisis.html
-
-**Until Saturday: The most brutal call of the season**\
-`Until Saturday is The Athletic's free college football newsletter.`\
-https://nytimes.com/athletic/6888143/2025/12/14/celebration-bowl-ending-until-saturday/
-
-**Bondi Shooting Is Latest in Alarming Rise of Antisemitic Attacks in Australia**\
-`A string of incidents has targeted the Jewish community in recent months.`\
-https://nytimes.com/2025/12/14/world/australia/bondi-shooting-antisemitic-attacks-australia.html
-
-**How to watch Hornets vs. Cavaliers: Time, TV, streaming**\
-`Find out how to watch the Charlotte Hornets play the Cleveland Cavaliers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6888133/2025/12/14/hornets-vs-cavaliers-stream-how-to-watch-dec-14/
 
