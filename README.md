@@ -1,3 +1,7 @@
+**Fernando Mendoza wins 2025 Heisman Trophy, the first for Indiana's program**\
+`The nerdy and unflappable quarterback won a close vote in what's been a dream season for Indiana.`\
+https://nytimes.com/athletic/6885933/2025/12/13/heisman-trophy-winner-2025-fernando-mendoza-indiana/
+
 **At Least Two Killed in Shooting at Brown University**\
 `Students remained locked in their dorms and classrooms as the police searched for the shooter, who was described as a man wearing black. At least two people are dead, and eight are in critical condition.`\
 https://nytimes.com/video/us/100000010585801/brown-university-rhode-island-shooting.html
@@ -29,8 +33,4 @@ https://nytimes.com/card/2025/12/14/world/asia/japan-korea-pottery
 **Journalism, Interrupted: 7 Podcast Hosts on the State of the Media**\
 `A conversation with seven of the most influential hosts in podcasts and TV news.`\
 https://nytimes.com/2025/12/13/podcasts/the-daily/journalism-media-trust.html
-
-**Appeals Court Says Trump Must End Los Angeles Deployment by Monday**\
-`While the decision did not remove the National Guard troops from the president’s control, it blocked him from using them in the nation’s second-largest city.`\
-https://nytimes.com/2025/12/13/us/california-national-guard-trump-los-angeles.html
 

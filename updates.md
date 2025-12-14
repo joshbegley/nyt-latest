@@ -1,3 +1,7 @@
+**At Least Two Killed in Shooting at Brown University**\
+`Students remained locked in their dorms and classrooms as the police searched for the shooter, who was described as a man wearing black. At least two people are dead, and eight are in critical condition.`\
+https://nytimes.com/video/us/100000010585801/brown-university-rhode-island-shooting.html
+
 **'It was a weird day' — Wild victorious in first game after Quinn Hughes trade: Takeaways**\
 `Minnesota came out on top with a 3-2 victory over the Senators with a makeshift lineup due to the blockbuster trade and injuries.`\
 https://nytimes.com/athletic/6887281/2025/12/13/wild-senators-quinn-hughes-trade-takeaways/
