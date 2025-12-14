@@ -1,3 +1,11 @@
+**'It was a weird day' — Wild victorious in first game after Quinn Hughes trade: Takeaways**\
+`Minnesota came out on top with a 3-2 victory over the Senators with a makeshift lineup due to the blockbuster trade and injuries.`\
+https://nytimes.com/athletic/6887281/2025/12/13/wild-senators-quinn-hughes-trade-takeaways/
+
+**Jamarques Lawrence's last-second 3 stuns Illinois as Nebraska extends win streak**\
+`Lawrence had 14 points and Pryce Sandfort scored 32 for the Huskers, who are 11-0 and off to their best start in program history.`\
+https://nytimes.com/athletic/6887216/2025/12/13/nebraska-illinois-college-basketball-upset-history/
+
 **Blake Horvath lifts Navy over Army for second year in a row**\
 `A Cale Hellums mistake and clutch Horvath throw delivered more joy to Navy and heartbreak to Army — a 17-16 Navy win.`\
 https://nytimes.com/athletic/6887274/2025/12/13/navy-army-blake-horvath-score/
