@@ -1,3 +1,27 @@
+**How to watch Notre Dame vs. JMU women's basketball: Time, TV, streaming**\
+`Find out how to watch the Notre Dame Fighting Irish play the James Madison Dukes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6888111/2025/12/14/notre-dame-vs-jmu-stream-how-to-watch-dec-14/
+
+**How to watch Penn State vs. South Carolina women's basketball: Time, TV, streaming**\
+`Find out how to watch the Penn State Lady Lions play the South Carolina Gamecocks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6888109/2025/12/14/penn-state-vs-south-carolina-stream-how-to-watch-dec-14/
+
+**How to watch South Carolina State vs. Ole Miss women's basketball: Time, TV, streaming**\
+`Find out how to watch the South Carolina State Lady Bulldogs play the Ole Miss Rebels, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6888107/2025/12/14/south-carolina-state-vs-ole-miss-stream-how-to-watch-dec-14/
+
+**How to watch Winthrop vs. Tennessee women's basketball: Time, TV, streaming**\
+`Find out how to watch the Winthrop Eagles play the Tennessee Lady Volunteers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6888103/2025/12/14/winthrop-vs-tennessee-stream-how-to-watch-dec-14/
+
+**How to watch Kentucky vs. Belmont women's basketball: Time, TV, streaming**\
+`Find out how to watch the Kentucky Wildcats play the Belmont Bruins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6888101/2025/12/14/kentucky-vs-belmont-stream-how-to-watch-dec-14/
+
+**How to watch Louisville vs. North Carolina women's basketball: Time, TV, streaming**\
+`Find out how to watch the Louisville Cardinals play the North Carolina Tar Heels, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6888099/2025/12/14/louisville-vs-north-carolina-stream-how-to-watch-dec-14/
+
 **James Cameron Tempers His Temper and Channels His Inner Na’vi**\
 `Years after his Titanic tantrums, the “Avatar” director has “mellowed,” says Sigourney Weaver. He calls it “marinating.”`\
 https://nytimes.com/2025/12/14/style/james-cameron-tempers-his-temper-and-channels-his-inner-navi.html
@@ -9,28 +33,4 @@ https://nytimes.com/2025/12/14/style/confirm-or-deny-james-cameron-edition.html
 **What We Know About the Shooting at Bondi Beach**\
 `Two gunman opened fire at dozens of people who were at a Jewish holiday event. At least 11 people were killed in the attack, and so was one of the shooters, the police said.`\
 https://nytimes.com/2025/12/14/world/australia/what-we-know-bondi-shooting.html
-
-**Mass Shootings Are Rare in Australia, Which Has Strict Gun Laws**\
-`The country’s stringent rules are often lauded as a model policy by proponents of gun control in the United States.`\
-https://nytimes.com/2025/12/14/world/australia/australia-gun-laws-sydney-shooting.html
-
-**Van Dijk: Of course I’ve told Salah I want him to stay at Liverpool**\
-`Salah returned to the squad for Saturday's 2-0 win over Brighton & Hove Albion following his post-Leeds outburst.`\
-https://nytimes.com/athletic/6888032/2025/12/14/virgil-van-dijk-mohamed-salah-liverpool-future/
-
-**Jake Sanderson should play at the Olympics, but will he get Norris consideration?**\
-`As Sanderson continues his upward trajectory, it's fair to consider his chances of winning the Norris, given to the NHL's best defenseman.`\
-https://nytimes.com/athletic/6882571/2025/12/14/nhl-jake-sanderson-senators-olympics-norris-trophy/
-
-**NC State gave up 9 3-pointers to whom? Defense too soft in OT loss to No. 19 Kansas**\
-`"We haven't won the games we've needed to win. That's just a fact," NC State coach Will Wade said.`\
-https://nytimes.com/athletic/6887719/2025/12/14/nc-state-overtime-loss-kansas-result-score/
-
-**Blackhawks fail their first test without Connor Bedard**\
-`In its first game without its superstar center, Chicago was competitive and had its moments, but ultimately couldn't get enough going.`\
-https://nytimes.com/athletic/6887464/2025/12/14/blackhawks-fail-first-test-without-connor-bedard/
-
-**Russo: The Wild have no long-term guarantees from Quinn Hughes, but there's reason to believe**\
-`"This is going to be fun for Quinn," Hughes' agent, Pat Brisson, tells The Athletic. That's not a promise of extending, but it's something.`\
-https://nytimes.com/athletic/6887248/2025/12/14/wild-quinn-hughes-trade-russo/
 
