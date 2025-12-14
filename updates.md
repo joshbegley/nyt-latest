@@ -1,5 +1,9 @@
 **Hospitalized Brown Student Describes Hiding From Shooter**\
 `The student, in his first year at Brown, was shot in the leg. He described helping others who were more seriously injured as they hid in their classroom.`\
+https://nytimes.com/2025/12/14/us/brown-shooting-witness-spencer-yang.html
+
+**Hospitalized Brown Student Describes Hiding From Shooter**\
+`The student, in his first year at Brown, was shot in the leg. He described helping others who were more seriously injured as they hid in their classroom.`\
 https://nytimes.com/live/2025/12/14/us/brown-shooting/brown-shooting-witness-spencer-yang
 
 **What Is Chabad, the Group That Hosted the Hanukkah Event in Australia?**\
