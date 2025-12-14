@@ -1,3 +1,11 @@
+**Zelensky Offers Compromise Before Latest Round of Peace Plan Talks**\
+`Ukraine’s president is meeting with U.S. negotiators on the latest plans to try end the war with Russia. He said he would give up hopes of joining NATO, at least for now, if he got strong security guarantees.`\
+https://nytimes.com/2025/12/14/world/europe/zelensky-ukraine-peace-talks.html
+
+**Lowetide: Ranking the Oilers' call-up options among forwards**\
+`There are few forwards in Bakersfield who could have a material impact on Edmonton's postseason.`\
+https://nytimes.com/athletic/6886830/2025/12/14/edmonton-oilers-depth-chart-forwards-ike-howard/
+
 **How to watch Kings vs. Timberwolves: Time, TV, streaming**\
 `Find out how to watch the Sacramento Kings play the Minnesota Timberwolves, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6888447/2025/12/14/kings-vs-timberwolves-stream-how-to-watch-dec-14/

@@ -1,3 +1,7 @@
+**The Pulse: MLB offseason's early movers (and snoozers)**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6887793/2025/12/14/mlb-offseason-superlatives-so-far-plus-a-heisman-winner-is-crowned/
+
 **Zelensky Offers Compromise Before Latest Round of Peace Plan Talks**\
 `Ukraine’s president is meeting with U.S. negotiators on the latest plans to try end the war with Russia. He said he would give up hopes of joining NATO, at least for now, if he got strong security guarantees.`\
 https://nytimes.com/2025/12/14/world/europe/zelensky-ukraine-peace-talks.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6888439/2025/12/14/flyers-vs-hurricanes-stream-how-
 **How to watch Bucks vs. Nets: Time, TV, streaming**\
 `Find out how to watch the Milwaukee Bucks play the Brooklyn Nets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6888437/2025/12/14/bucks-vs-nets-stream-how-to-watch-dec-14/
-
-**How to watch Bruins vs. Wild: Time, TV, streaming**\
-`Find out how to watch the Boston Bruins play the Minnesota Wild, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6888435/2025/12/14/bruins-vs-wild-stream-how-to-watch-dec-14/
 
