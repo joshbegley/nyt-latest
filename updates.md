@@ -1,3 +1,7 @@
+**Royals come out ahead in Brewers swap, netting Isaac Collins, Nick Mears for Angel Zerpa**\
+`The Brewers lose one of their top on-base hitters and a serviceable reliever and get only a reliever with a platoon split in return.`\
+https://nytimes.com/athletic/6887391/2025/12/13/royals-brewers-trade-angel-zerpa-isaac-collins-nick-mears/
+
 **NBA Cup takeaways: Jalen Brunson erupts, Knicks outlast Magic to reach final**\
 `The victory gives New York a chance to prove that it can contend not only in the East but also against one of the West's best.`\
 https://nytimes.com/athletic/6887141/2025/12/13/nba-cup-takeaways-semifinals-magic-knicks-spurs-thunder/

@@ -1,3 +1,7 @@
+**Royals come out ahead in Brewers swap, netting Isaac Collins, Nick Mears for Angel Zerpa**\
+`The Brewers lose one of their top on-base hitters and a serviceable reliever and get only a reliever with a platoon split in return.`\
+https://nytimes.com/athletic/6887391/2025/12/13/royals-brewers-trade-angel-zerpa-isaac-collins-nick-mears/
+
 **NBA Cup takeaways: Jalen Brunson erupts, Knicks outlast Magic to reach final**\
 `The victory gives New York a chance to prove that it can contend not only in the East but also against one of the West's best.`\
 https://nytimes.com/athletic/6887141/2025/12/13/nba-cup-takeaways-semifinals-magic-knicks-spurs-thunder/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6887274/2025/12/13/navy-army-blake-horvath-score/
 **Jamarques Lawrence's last-second 3 stuns Illinois as Nebraska extends win streak**\
 `Lawrence had 14 points and Pryce Sandfort scored 32 for the Huskers, who are 11-0 and off to their best start in program history.`\
 https://nytimes.com/athletic/6887216/2025/12/13/nebraska-illinois-college-basketball-upset-history/
-
-**Quinn Hughes trade has new Wild teammates 'shocked' — and pumped: 'Gosh, it’s going to be fun'**\
-`Potential defensive partner Brock Faber: "All my buddies were texting me — they’re like, ‘Quinn Hughes is coming.' I was obviously shocked."`\
-https://nytimes.com/athletic/6887244/2025/12/13/wild-players-react-quinn-hughes-trade/
 

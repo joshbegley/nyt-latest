@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6887391/2025/12/13/royals-brewers-trade-angel-zerpa
 https://nytimes.com/athletic/6887141/2025/12/13/nba-cup-takeaways-semifinals-magic-knicks-spurs-thunder/
 
 **Pathetic third period spells doom for the Penguins: Observations**\
-`In a week of embarrassing losses, the Penguins outdid themselves on Saturday in a 6-5 overtime loss to the Sharks. `\
+`In a week of embarrassing losses, the Penguins outdid themselves on Saturday with a 6-5 overtime loss to the Sharks. `\
 https://nytimes.com/athletic/6887233/2025/12/13/penguins-sharks-overtime-observations-sidney-crosby/
 
 **Buffalo Bills players, staff safe after mass shooting near team hotel: Sources**\
