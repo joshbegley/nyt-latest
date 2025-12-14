@@ -1,3 +1,19 @@
+**His Job Is to Make the Subway Accessible. His Own Life Fuels His Work.**\
+`Quemuel Arroyo, the New York transit system’s chief accessibility officer, has used a wheelchair for half his life. He understands how difficult it is to navigate the subway.`\
+https://nytimes.com/2025/12/14/nyregion/q-arroyo-subway-accessible.html
+
+**‘Watching the Twinkling Subway Cars Chug By’**\
+`Hooked on Broadway at a young age, an unlikely dog walker and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2025/12/14/nyregion/metropolitan-diary.html
+
+**Officials Target Youth Immigration Program, Speeding Up Deportations**\
+`The Trump administration is dissolving long-established protections meant to help undocumented children stay in the country.`\
+https://nytimes.com/2025/12/14/nyregion/migrant-youth-detentions-deportations.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/12/14/crosswords/spelling-bee-forum.html
+
 **Mohamed Salah the Liverpool player is no longer untouchable, but his legacy is**\
 `Nothing lasts forever in sport. Nothing except the memories and the images that the most treasured players leave behind`\
 https://nytimes.com/athletic/6887622/2025/12/14/mohamed-salah-legacy-liverpool-ekitike-premier-league/
@@ -17,20 +33,4 @@ https://nytimes.com/issue/todayspaper/2025/12/14/todays-new-york-times
 **Victor Wembanyama returns from injury, overwhelms Thunder in 21-minute bench role**\
 `Playing on a minutes restriction, Wembanyama finished with 22 points, nine rebounds and two blocks in a 111-109 win over the Thunder.`\
 https://nytimes.com/athletic/6887164/2025/12/14/victor-wembanyama-return-nba-cup/
-
-**2 Students at Brown Witnessed School Shootings as Children**\
-`Both women said the shooting on Saturday had damaged a sense of security they had cultivated for years based on the notion that they were unlikely to witness two school shootings in one lifetime.`\
-https://nytimes.com/2025/12/13/us/brown-students-mass-shooting-parkland.html
-
-**Maple Leafs can't afford to lose their edge: 'We gotta start pushing'**\
-`That corner the Leafs looked to be turning is suddenly in the past. They lost 6-3 to the Oilers, marking their third loss in four games.`\
-https://nytimes.com/athletic/6887637/2025/12/14/maple-leafs-lose-oilers-result-score/
-
-**Why Juventus, despite problems, are resisting $1bn takeover by a stablecoin company**\
-`Tether's bid to buy a 65.4 per cent stake in Juventus has been swiftly declined by Exor, the Agnelli family holding company. Here's why...`\
-https://nytimes.com/athletic/6886577/2025/12/14/juventus-stablecoin-tether-takeover/
-
-**Everton's revival meets its arch-nemesis: Stamford Bridge**\
-`Saturday's defeat was probably a fair reflection of where David Moyes' flawed-but-improving side are right now`\
-https://nytimes.com/athletic/6887159/2025/12/14/everton-stamford-bridge-hoodoo-moyes-grealish/
 
