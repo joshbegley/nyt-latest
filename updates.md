@@ -1,3 +1,11 @@
+**Cole Palmer is back to conduct the orchestra at Chelsea**\
+`The England international marked his return to Stamford Bridge after injury with a typically brilliant goal `\
+https://nytimes.com/athletic/6887202/2025/12/14/cole-palmer-return-stamford-bridge/
+
+**Live Updates: At Least 10 Injured in Shooting at Sydney’s Bondi Beach**\
+`Two suspects were in custody, the police said. The authorities advised people near Bondi, one of Australia’s best-known beaches, to take shelter.`\
+https://nytimes.com/live/2025/12/14/world/sydney-bondi-beach-shooting
+
 **Brendon McCullum backs beleaguered top seven as England double down for Adelaide**\
 `The England head coach will not change his approach even with his own position under scrutiny as the tourists look to recover from 2-0 down`\
 https://nytimes.com/athletic/6887732/2025/12/14/brendon-mccullum-england-ashes-adelaide/

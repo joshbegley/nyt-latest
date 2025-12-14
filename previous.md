@@ -1,5 +1,9 @@
+**Cole Palmer is back to conduct the orchestra at Chelsea**\
+`The England international marked his return to Stamford Bridge after injury with a typically brilliant goal `\
+https://nytimes.com/athletic/6887202/2025/12/14/cole-palmer-return-stamford-bridge/
+
 **Live Updates: At Least 10 Injured in Shooting at Sydney’s Bondi Beach**\
-`The police told people near Bondi, one of Australia’s best-known beaches, to take shelter. Details of the shooting were not immediately clear.`\
+`Two suspects were in custody, the police said. The authorities advised people near Bondi, one of Australia’s best-known beaches, to take shelter.`\
 https://nytimes.com/live/2025/12/14/world/sydney-bondi-beach-shooting
 
 **Brendon McCullum backs beleaguered top seven as England double down for Adelaide**\
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/14/crosswords/spelling-bee-forum.html
 **Mohamed Salah the Liverpool player is no longer untouchable, but his legacy is**\
 `Nothing lasts forever in sport. Nothing except the memories and the images that the most treasured players leave behind`\
 https://nytimes.com/athletic/6887622/2025/12/14/mohamed-salah-legacy-liverpool-ekitike-premier-league/
-
-**Why a thrilling NBA Cup semifinal ended with all those fouls**\
-`The last nine seconds of the game featured one foul and whistle after another, with the Spurs ultimately coming out on top.`\
-https://nytimes.com/athletic/6887800/2025/12/14/spurs-thunder-nba-cup-ending-fouls/
 
