@@ -2,7 +2,7 @@
 `The victory was just Madrid's third win in their last nine games.`\
 https://nytimes.com/athletic/6889332/2025/12/14/xabi-alonso-real-madrid-alaves-pressure/
 
-**How did the Chiefs fall apart? How did the Bills stun the Pats? Our experts' Week 15 takeaways**\
+**How did the Chiefs fall apart? How did the Bills stun the Pats? Experts' Week 15 takeaways**\
 `The Bills pulled off one of the most improbable comeback wins of the season, while Jalen Hurts and Lamar Jackson both bounced back.`\
 https://nytimes.com/athletic/6888715/2025/12/14/nfl-takeaways-week-15-scores-results/
 

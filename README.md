@@ -1,3 +1,19 @@
+**Colts QB Philip Rivers, 44, throws first regular-season TD pass since 2020**\
+`Philip Rivers shook off the rust quickly, completing his last seven passes of the first half.`\
+https://nytimes.com/athletic/6888668/2025/12/14/colts-philip-rivers-seahawks-score-result-takeaways-2/
+
+**Suspects in Bondi Beach Terror Attack Identified as Father and Son**\
+`The New South Wales police commissioner did not give the men’s names, but said the elder was 50, had licenses for six firearms, and had been killed at the scene. The son was in critical condition.`\
+https://nytimes.com/2025/12/14/world/australia/suspects-identified-bondi-beach-attack.html
+
+**Due to an illness, Kristaps Porziņģis will be away from the Hawks for 2 weeks**\
+`Porziņģis has not played since Dec. 5, when he scored 25 points in a home loss to the Denver Nuggets.`\
+https://nytimes.com/athletic/6889323/2025/12/14/kristaps-porzingis-hawks-status-illness/
+
+**Lift on the Slopes**\
+`Jeff Jerome and Andrea Carla Michaels make their debut as collaborators in The New York Times.`\
+https://nytimes.com/2025/12/14/crosswords/daily-puzzle-2025-12-15.html
+
 **Real Madrid beat Alaves 2-1 to ease pressure on Alonso for now**\
 `The victory was just Madrid's third win in their last nine games.`\
 https://nytimes.com/athletic/6889332/2025/12/14/xabi-alonso-real-madrid-alaves-pressure/
@@ -17,20 +33,4 @@ https://nytimes.com/2025/12/14/us/gunshots-lockdown-brown-university.html
 **Dwyane Wade and Allen Iverson almost teamed up with the Heat in 2006, but Wade rejected the deal**\
 `Pat Riley was close for trading for Iverson, but Wade vetoed the deal when he discovered the Heat would have to give up Udonis Haslem.`\
 https://nytimes.com/athletic/6889014/2025/12/14/dwyane-wade-allen-iverson-miami-heat-trade/
-
-**Cardinals-Texans takeaways: Houston's fast start fuels sixth straight win**\
-`The No. 1 defense in the NFL got some help with a strong performance from C.J. Stroud and the Houston offense.`\
-https://nytimes.com/athletic/6888625/2025/12/14/cardinals-texans-score-result-takeaways-nfl/
-
-**Jets-Jaguars takeaways: Trevor Lawrence shines as Jacksonville cruises in rout**\
-`Trevor Lawrence passed for 330 yards and five touchdowns on Sunday to lead Jacksonville in a rout.`\
-https://nytimes.com/athletic/6888581/2025/12/14/jets-jaguars-score-result-takeaways-nfl/
-
-**Kalen DeBoer shuts down Michigan coaching search talk**\
-`DeBoer is in his second season at Alabama and set to play at Oklahoma in a first-round College Football Playoff game.`\
-https://nytimes.com/athletic/6889242/2025/12/14/kalen-deboer-michigan-coach-rumors/
-
-**Commanders-Giants takeaways: Punt return touchdown sparks Washington win**\
-`In a game featuring the two worst teams in the NFC East, the Commanders' special teams unit made the difference.`\
-https://nytimes.com/athletic/6888212/2025/12/14/commanders-giants-takeaways-result-score/
 
