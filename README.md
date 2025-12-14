@@ -7,7 +7,7 @@ https://nytimes.com/2025/12/14/world/asia/what-we-know-about-the-american-troops
 https://nytimes.com/athletic/6887202/2025/12/14/cole-palmer-return-stamford-bridge/
 
 **Live Updates: At Least 10 Injured in Shooting at Bondi Beach in Sydney**\
-`Two people were in custody after the shooting at Australia’s best-known beach, the police said. The authorities advised people nearby to take shelter.`\
+`Two people were in custody after the shooting at Australia’s best-known beach during a Jewish event. The authorities advised people nearby to take shelter.`\
 https://nytimes.com/live/2025/12/14/world/sydney-bondi-beach-shooting
 
 **Brendon McCullum backs beleaguered top seven as England double down for Adelaide**\
