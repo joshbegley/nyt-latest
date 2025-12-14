@@ -1,9 +1,13 @@
+**'It was a weird day' — Wild victorious in first game after Quinn Hughes trade: Takeaways**\
+`Minnesota came out on top with a 3-2 victory over the Senators with a makeshift lineup due to the blockbuster trade and injuries.`\
+https://nytimes.com/athletic/6887281/2025/12/13/wild-senators-quinn-hughes-trade-takeaways/
+
 **Blake Horvath lifts Navy over Army for second year in a row**\
 `A Cale Hellums mistake and clutch Horvath throw delivered more joy to Navy and heartbreak to Army — a 17-16 Navy win.`\
 https://nytimes.com/athletic/6887274/2025/12/13/navy-army-blake-horvath-score/
 
-**Jamarques Lawrence stuns Illinois with last-second 3 as Nebraska extends win streak**\
-`Pryce Sandfort scored 32 points for the Huskers, including 26 in the first half, while Rienk Mast totaled 17 and Lawrence 14.`\
+**Jamarques Lawrence's last-second 3 stuns Illinois as Nebraska extends win streak**\
+`Lawrence had 14 points and Pryce Sandfort scored 32 for the Huskers, who are 11-0 and off to their best start in program history.`\
 https://nytimes.com/athletic/6887216/2025/12/13/nebraska-illinois-college-basketball-upset-history/
 
 **Quinn Hughes trade has new Wild teammates 'shocked' — and pumped: 'Gosh, it’s going to be fun'**\
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/13/us/california-national-guard-trump-los-angeles.ht
 **Two freshmen on Georgia football team arrested on shoplifting charges**\
 `The two freshmen were arrested in Athens, Ga., and charged with misdemeanor shoplifting.`\
 https://nytimes.com/athletic/6887014/2025/12/13/georgia-football-players-shoplifting-charges/
-
-**Paul Wiggin, Browns legend and Stanford coach during 'The Play,' dies at 91**\
-`Wiggin teamed with Jim Brown to help Cleveland win the 1964 NFL title and was Stanford’s coach for one of football’s most famous plays.`\
-https://nytimes.com/athletic/6887078/2025/12/13/paul-wiggin-cleveland-browns-stanford-coach-dies/
 
