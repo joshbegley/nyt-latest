@@ -1,3 +1,7 @@
+**Floods, Mud and Cold Add to Gazans’ Misery**\
+`The rainstorm that battered the enclave this week has left many shivering in tent camps. Despite a cease-fire, rebuilding is still a long way off.`\
+https://nytimes.com/2025/12/14/world/middleeast/gaza-floods-mud-disease.html
+
 **How to watch Eastern Illinois vs. Iowa State men's basketball: Time, TV, streaming**\
 `Find out how to watch the Eastern Illinois Panthers play the Iowa State Cyclones, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6887992/2025/12/14/eastern-illinois-vs-iowa-state-stream-how-to-watch-dec-14/
