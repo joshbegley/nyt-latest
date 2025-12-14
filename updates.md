@@ -1,3 +1,11 @@
+**Surveillance Never Looked So Good**\
+`Charisse Pearlina Weston turns nefarious materials developed to monitor people into precarious, undulating forms.`\
+https://nytimes.com/2025/12/14/arts/design/charisse-pearlina-weston.html
+
+**Zelensky Offers Compromise Before Latest Round of Peace Plan Talks**\
+`Ukraine’s president is meeting with U.S. negotiators about plans to end the war with Russia. He said he would give up hopes of joining NATO in exchange for security guarantees.`\
+https://nytimes.com/2025/12/14/world/europe/zelensky-ukraine-peace-talks.html
+
 **Bystander Tackled and Disarmed One of the Sydney Gunmen, Video Shows**\
 `The video, verified by The New York Times, shows a man sneaking up on one of the shooters who targeted a Hanukkah celebration in Sydney on Sunday.`\
 https://nytimes.com/2025/12/14/world/australia/bondi-beach-gunman-tackled-video.html
