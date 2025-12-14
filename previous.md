@@ -1,6 +1,14 @@
-**At Least 10 People Injured in Shooting at Bondi Beach in Sydney**\
+**Live Updates: At Least 10 Injured in Shooting at Sydney’s Bondi Beach**\
+`The police told people near Bondi, one of Australia’s best-known beaches, to take shelter. Details of the shooting were not immediately clear.`\
+https://nytimes.com/live/2025/12/14/world/sydney-bondi-beach-shooting
+
+**Brendon McCullum backs England's beleaguered top seven as tourists double down for Adelaide**\
+`The England head coach will not change his approach even with his own position under scrutiny as the tourists look to recover from 2-0 down`\
+https://nytimes.com/athletic/6887732/2025/12/14/brendon-mccullum-england-ashes-adelaide/
+
+**Here’s the latest.**\
 `Anyone in the area should take shelter, the police said. They declined to elaborate, and details of the shooting were not immediately clear.`\
-https://nytimes.com/2025/12/14/world/asia/bondi-sydney-australia-police-shooting.html
+https://nytimes.com/live/2025/12/14/world/sydney-bondi-beach-shooting/bondi-sydney-australia-police-shooting
 
 **His Job Is to Make the Subway Accessible. His Own Life Fuels His Work.**\
 `Quemuel Arroyo, the New York transit system’s chief accessibility officer, has used a wheelchair for half his life. He understands how difficult it is to navigate the subway.`\
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6887622/2025/12/14/mohamed-salah-legacy-liverpool-e
 **Why a thrilling NBA Cup semifinal ended with all those fouls**\
 `The last nine seconds of the game featured one foul and whistle after another, with the Spurs ultimately coming out on top.`\
 https://nytimes.com/athletic/6887800/2025/12/14/spurs-thunder-nba-cup-ending-fouls/
-
-**A Brown University Instructor Hid From Gunfire With His Students**\
-`Joseph Oduro, 21, said he was leading an economics study session for about 60 students when a masked man entered the room and started shooting.`\
-https://nytimes.com/2025/12/14/us/brown-shooting-classroom-victims.html
-
-**The New York Times in Print for Sunday, Dec. 14, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/12/14/todays-new-york-times
 
