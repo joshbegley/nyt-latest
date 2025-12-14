@@ -1,3 +1,7 @@
+**Van Dijk: Of course I’ve told Salah I want him to stay at Liverpool**\
+`Salah returned to the squad for Saturday's 2-0 win over Brighton & Hove Albion following his post-Leeds outburst.`\
+https://nytimes.com/athletic/6888032/2025/12/14/virgil-van-dijk-mohamed-salah-liverpool-future/
+
 **Jake Sanderson should play at the Olympics, but will he get Norris consideration?**\
 `As Sanderson continues his upward trajectory, it's fair to consider his chances of winning the Norris, given to the NHL's best defenseman.`\
 https://nytimes.com/athletic/6882571/2025/12/14/nhl-jake-sanderson-senators-olympics-norris-trophy/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/14/world/australia/witness-accounts-bondi-beach-shoo
 **Three days with the Saginaw Spirit, where being different is the name of the game**\
 `The Athletic went behind the scenes with the Spirit to get an inside look at their approach under Dave Drinkill and Chris Lazary.`\
 https://nytimes.com/athletic/6744137/2025/12/14/ohl-saginaw-spirit-dave-drinkill-chris-lazary-junior-hockey/
-
-**After Thunder's 'frustrating' loss at NBA Cup, wins record is next target**\
-`Oklahoma City hadn't lost in nearly six weeks before Saturday night, but is still in great shape to challenge the Warriors' NBA record.`\
-https://nytimes.com/athletic/6887865/2025/12/14/thunder-frustrating-loss-nba-cup/
 
