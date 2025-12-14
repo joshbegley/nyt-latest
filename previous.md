@@ -1,3 +1,7 @@
+**Buffalo Bills players, staff safe after mass shooting near team hotel: Sources**\
+`The Bills are staying less than two miles from the scene of a mass shooting on the campus of Brown University.`\
+https://nytimes.com/athletic/6887372/2025/12/13/brown-shooting-buffalo-bills-hotel-patriots/
+
 **Fernando Mendoza wins 2025 Heisman Trophy, the first for Indiana's program**\
 `The nerdy and unflappable quarterback won a close vote in what's been a dream season for Indiana.`\
 https://nytimes.com/athletic/6885933/2025/12/13/heisman-trophy-winner-2025-fernando-mendoza-indiana/
@@ -29,8 +33,4 @@ https://nytimes.com/live/2025/12/13/us/brown-shooting/witnesses-describe-an-anxi
 **A Pottery Master Prospers in Japan by Embracing a Troubled History**\
 `Visuals by Chang W. Lee, Text by Martin Fackler and Hisako Ueno`\
 https://nytimes.com/card/2025/12/14/world/asia/japan-korea-pottery
-
-**Journalism, Interrupted: 7 Podcast Hosts on the State of the Media**\
-`A conversation with seven of the most influential hosts in podcasts and TV news.`\
-https://nytimes.com/2025/12/13/podcasts/the-daily/journalism-media-trust.html
 

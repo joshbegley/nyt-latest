@@ -1,3 +1,7 @@
+**Buffalo Bills players, staff safe after mass shooting near team hotel: Sources**\
+`The Bills are staying less than two miles from the scene of a mass shooting on the campus of Brown University.`\
+https://nytimes.com/athletic/6887372/2025/12/13/brown-shooting-buffalo-bills-hotel-patriots/
+
 **Fernando Mendoza wins 2025 Heisman Trophy, the first for Indiana's program**\
 `The nerdy and unflappable quarterback won a close vote in what's been a dream season for Indiana.`\
 https://nytimes.com/athletic/6885933/2025/12/13/heisman-trophy-winner-2025-fernando-mendoza-indiana/
