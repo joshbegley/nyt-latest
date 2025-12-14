@@ -1,3 +1,7 @@
+**Hamas Confirms Top Commander’s Death in Israeli Strike in Gaza**\
+`The killing of the commander, Raed Saad, on Saturday was the highest-profile assassination of a Hamas leader since a cease-fire came into force two months ago.`\
+https://nytimes.com/2025/12/14/world/middleeast/hamas-israel-commander-killed.html
+
 **Hospitalized Brown Student Describes Hiding From Shooter**\
 `The student, in his first year at Brown, was shot in the leg. He described helping others who were more seriously injured as they hid in their classroom.`\
 https://nytimes.com/2025/12/14/us/brown-shooting-witness-spencer-yang.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/14/world/australia/bondi-shooting-antisemitic-attack
 **How to watch Hornets vs. Cavaliers: Time, TV, streaming**\
 `Find out how to watch the Charlotte Hornets play the Cleveland Cavaliers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6888133/2025/12/14/hornets-vs-cavaliers-stream-how-to-watch-dec-14/
-
-**How to watch Wizards vs. Pacers: Time, TV, streaming**\
-`Find out how to watch the Washington Wizards play the Indiana Pacers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6888130/2025/12/14/wizards-vs-pacers-stream-how-to-watch-dec-14/
 
