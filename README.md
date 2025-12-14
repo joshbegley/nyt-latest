@@ -1,3 +1,7 @@
+**What We Know About the Deadly Shooting at Brown University**\
+`Two people were killed and nine others injured during an attack on the Rhode Island campus. Officials were searching for a gunman late Saturday.`\
+https://nytimes.com/2025/12/13/us/brown-university-shooting-what-happened.html
+
 **Kansas' Darryn Peterson exits late with hamstring tightness vs. NC State**\
 `Peterson had 17 points, five rebounds and four assists in a season-high 31 minutes before exiting in the fourth quarter.`\
 https://nytimes.com/athletic/6887441/2025/12/13/darryn-peterson-kansas-hamstring-nc-state/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6887233/2025/12/13/penguins-sharks-overtime-observa
 **Buffalo Bills players, staff safe after mass shooting near team hotel: Sources**\
 `The Bills are staying less than 2 miles from the scene of a mass shooting on the campus of Brown University.`\
 https://nytimes.com/athletic/6887372/2025/12/13/brown-shooting-buffalo-bills-hotel-patriots/
-
-**Fernando Mendoza wins 2025 Heisman Trophy, the first for Indiana's program**\
-`The nerdy and unflappable quarterback won a close vote in what's been a dream season for Indiana.`\
-https://nytimes.com/athletic/6885933/2025/12/13/heisman-trophy-winner-2025-fernando-mendoza-indiana/
 
