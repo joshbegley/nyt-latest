@@ -1,3 +1,7 @@
+**'We need these moments': Orlando Magic pledge to grow from NBA Cup letdown**\
+`The Magic, with eyes on the playoffs, hope this loss leads to gains later on. “It’s definitely a motivation,” Wendell Carter Jr. said. `\
+https://nytimes.com/athletic/6887617/2025/12/13/orlando-magic-nba-cup-disappointment/
+
 **What We Know About the Deadly Shooting at Brown University**\
 `Two people were killed and nine others injured during an attack on the Rhode Island campus. Officials were searching for a gunman late Saturday.`\
 https://nytimes.com/2025/12/13/us/brown-university-shooting-what-happened.html
