@@ -1,3 +1,7 @@
+**How to watch Canucks vs. Devils: Time, TV, streaming**\
+`Find out how to watch the Vancouver Canucks play the New Jersey Devils, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6887997/2025/12/14/canucks-vs-devils-stream-how-to-watch-dec-14/
+
 **Floods, Mud and Cold Add to Gazans’ Misery**\
 `The rainstorm that battered the enclave this week has left many shivering in tent camps. Despite a cease-fire, rebuilding is still a long way off.`\
 https://nytimes.com/2025/12/14/world/middleeast/gaza-floods-mud-disease.html
