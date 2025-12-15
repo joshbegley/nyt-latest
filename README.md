@@ -1,3 +1,11 @@
+**Cincinnati quarterback Brendan Sorsby to enter transfer portal**\
+`Sorsby was one of the most productive QBs in college football this season, responsible for 36 touchdowns, tied for third-most in the FBS.`\
+https://nytimes.com/athletic/6891513/2025/12/15/cincinnati-quarterback-brendan-sorsby-transfer-portal/
+
+**AP men's basketball Top 25: Arizona remains No. 1, Nebraska earns highest ranking since 1991**\
+`Nebraska leapt eight spots to No. 15 after its win over Illinois on Saturday.`\
+https://nytimes.com/athletic/6891371/2025/12/15/ap-top-25-basketball-poll-arizona-nebraska-arkansas/
+
 **Ukraine Claims First Strike by Underwater Drone on Russian Submarine**\
 `As it tries to demonstrate its continuing ability to fight, Ukraine said it had used drones to inflict serious damage on a Russian Kilo-class submarine at a Black Sea port.`\
 https://nytimes.com/2025/12/15/world/europe/ukraine-russia-submarine-drones.html
@@ -25,8 +33,4 @@ https://nytimes.com/athletic/6891005/2025/12/15/nfl-week-15-double-digit-comebac
 **Vikings head coach Kevin O'Connell bristles at J.J. McCarthy's 'Griddy'**\
 `The Vikings coach criticized his quarterback's touchdown celebration and said he would have preferred McCarthy sprint into the end zone.`\
 https://nytimes.com/athletic/6891269/2025/12/15/jj-mccarthy-minnesota-vikings-griddy-celebration/
-
-**Scottie Scheffler wins fourth consecutive PGA Tour player of the year**\
-`Aldrich Potgieter wins the Arnold Palmer Award as rookie of the year.`\
-https://nytimes.com/athletic/6891328/2025/12/15/scottie-scheffler-aldrich-potgieter-pga-tour-awards/
 
