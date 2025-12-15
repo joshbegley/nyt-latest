@@ -1,3 +1,7 @@
+**Tennis heat rule will apply across ATP Tour from 2026 season after player criticism**\
+`The men's circuit did not previously have a unified extreme heat policy.`\
+https://nytimes.com/athletic/6892302/2025/12/15/tennis-extreme-heat-rules-atp-tour/
+
 **Rob Reiner’s Son Arrested After Fatal Stabbing**\
 `Also, police search for Brown University shooter. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2025/12/15/briefing/rob-reiners-son-arrested.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6888321/2025/12/15/the-briefing-man-utd-4-bournemou
 **Rob Reiner Made Clear What He Believed In, Onscreen and Off**\
 `In films like “A Few Good Men,” the director’s ideas of honor and morality were stated as plainly as could be.`\
 https://nytimes.com/2025/12/15/movies/rob-reiner-films-activism.html
-
-**Rob and Nick Reiner Made a Movie About a Turbulent Father-Son Relationship**\
-`Nick Reiner, who struggled with drug addiction, wrote “Being Charlie” during a period of sobriety. His father directed the film.`\
-https://nytimes.com/2025/12/15/us/nick-reiner-being-charlie.html
 

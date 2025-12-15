@@ -1,3 +1,7 @@
+**Rob Reiner’s Son Arrested After Fatal Stabbing**\
+`Also, police search for Brown University shooter. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2025/12/15/briefing/rob-reiners-son-arrested.html
+
 **E.U. Flies 110 Tons of Aid to Darfur. But Will It Reach Those In Need?**\
 `The European Union has mounted an “air bridge” effort, with at least eight aid flights planned to Sudan. But getting supplies to the areas with the most dire need is an enormous challenge.`\
 https://nytimes.com/2025/12/15/world/africa/darfur-sudan-eu-aid.html
