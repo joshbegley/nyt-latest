@@ -1,3 +1,7 @@
+**Some Australian Jews said they felt the government did not protect them.**\
+`By Victoria Kim`\
+https://nytimes.com/live/2025/12/15/world/bondi-beach-shooting-australia/some-australian-jews-said-they-felt-the-government-did-not-protect-them
+
 **England opt against Shoaib Bashir recall and name unchanged batting lineup for Adelaide**\
 `The tourists have made one change for the third Test with quick bowler Josh Tongue replacing the ineffective Gus Atkinson`\
 https://nytimes.com/athletic/6890519/2025/12/15/england-bashir-tongue-atkinson-adelaide/
