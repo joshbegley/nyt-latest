@@ -1,36 +1,36 @@
+**Celtics are rolling despite some occasional bumps. Here's what we've learned**\
+`With the Celtics playing well of late, writer Jay King takes a look at some of the trends he's noticing. `\
+https://nytimes.com/athletic/6885484/2025/12/15/celtics-jaylen-brown-trends-nba/
+
+**How the Bears defense put together its best game in years**\
+`The Bears increased their league-leading takeaways total to 30 in flattening the Browns 31-3 to move back into first place in the NFC North.`\
+https://nytimes.com/athletic/6889704/2025/12/15/bears-defense-best-game-browns/
+
+**How are the Knicks different from last season? NBA coaches weigh in**\
+`NBA coaches give their thoughts on how, or how not, the Knicks are different under Mike Brown.`\
+https://nytimes.com/athletic/6888331/2025/12/15/knicks-nba-cup-finals-coaches/
+
+**Which team has sports' ultimate front office? Take this 30-second poll**\
+`You've seen how the most powerful and influential executives have ranked their leagues' front offices. Now it's your turn.`\
+https://nytimes.com/athletic/6882601/2025/12/15/front-office-rankings-2025-fan-poll-thunder-dodgers/
+
+**It's tempting, but Raptors should avoid Giannis Antetokounmpo and Anthony Davis**\
+`Just because the Raptors have the pieces necessary to make a major trade work, doesn't mean they should. `\
+https://nytimes.com/athletic/6888467/2025/12/15/raptors-giannis-antetokounmpo-anthony-davis-nba-trade-deadline/
+
+**Dolphins at Steelers on MNF: Pittsburgh's Monday night streak, Fitzpatrick vs. Ramsey**\
+`The division-leading Steelers go for their 23rd straight home win on "Monday Night Football." The Dolphins are on a four-game win streak.`\
+https://nytimes.com/athletic/6885614/2025/12/15/steelers-dolphins-monday-night-football-streak-weather-playoffs/
+
+**Will Cowboys move on from Matt Eberflus? Defensive debacle has Jerry Jones thinking**\
+`Eberflus is Dallas' third defensive coordinator in three seasons and after the performance vs. the Vikings, there could be a fourth.`\
+https://nytimes.com/athletic/6890570/2025/12/15/cowboys-defense-matt-eberflus-jerry-jones-vikings/
+
+**Panthers blow great opportunity vs. Saints, and have no one to blame but themselves**\
+`The Panthers still can win the NFC South, but the path to do that is much more difficult than if they'd beaten the Saints.`\
+https://nytimes.com/athletic/6890175/2025/12/15/panthers-loss-nfc-south-saints-bucs/
+
 **Who’s the fastest-rising prospect in each NHL team’s pipeline?**\
 `From top picks ready to make the leap to hidden gems ready for a bigger chance, here's each NHL team's fastest-rising prospect.`\
 https://nytimes.com/athletic/6885424/2025/12/15/nhl-prospects-pipeline-top-risers-players-stars/
-
-**Team USA is 0-for-the-Olympics in biathlon. Can this fun-loving Kiwi fix that?**\
-`Campbell Wright is a New Zealander to his core. But he competes for the U.S. and is the country's best hope to end a major Olympic drought.`\
-https://nytimes.com/athletic/6840937/2025/12/15/olympics-biathlon-campbell-wright-american-medal/
-
-**Intentional fouls ruined the Spurs-Thunder game. The NBA should abolish them**\
-`Whether or not the "foul-up-three" strategy is employed correctly, it makes the product far less entertaining.`\
-https://nytimes.com/athletic/6889233/2025/12/15/intentional-fouls-spurs-thunder-nba-cup/
-
-**Rosenthal: What I'm hearing about the Royals' interest in Jarren Duran and more MLB notes**\
-`Despite adding Lane Thomas and Isaac Collins to their outfield this offseason, the Royals may be looking for more, with Duran a top target.`\
-https://nytimes.com/athletic/6890000/2025/12/15/royals-red-sox-mlb-free-agency-trades/
-
-**The sound and fury of Lane Kiffin's Ole Miss departure**\
-`Kiffin's latest job change echoes his previous exits across the country, complete with a gaslighting of fans who once helped build him up.`\
-https://nytimes.com/athletic/6878523/2025/12/15/lane-kiffin-lsu-ole-miss-oxford/
-
-**This Week in the NBA: Steph Curry returns, Thunder vocal about chasing history and more**\
-`"When I come back on the court, I think it will be me," Wembanyama said when asked who the best player in the NBA is.`\
-https://nytimes.com/athletic/6887402/2025/12/15/nba-victor-wembanyama-steph-curry-thunder-record/
-
-**What I'm hearing about the Mavericks headed into trade season**\
-`Will the Mavericks hold a fire sale in time for the Feb. 5 trade deadline? Here are a few things to consider as the date approaches.`\
-https://nytimes.com/athletic/6888689/2025/12/15/mavericks-nba-trade-deadline-anthony-davis/
-
-**Canadiens' maturation is a non-linear process and this weekend showed it**\
-`The Canadiens are young, that's a tangible fact. But the process of maturing is less tangible, and the team matured this weekend.`\
-https://nytimes.com/athletic/6890468/2025/12/15/canadiens-maturation-non-linear-rangers-oilers/
-
-**Rams' belief in themselves only growing as they set the bar in NFC: 'You can't stop us'**\
-`A second straight week with 40-plus points and 500-plus yards of offense has the Rams believing they can't be stopped at the moment. `\
-https://nytimes.com/athletic/6890007/2025/12/15/rams-clinch-playoff-spot-nfc/
 
