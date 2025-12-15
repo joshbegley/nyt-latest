@@ -1,3 +1,7 @@
+**Rob and Nick Reiner Made a Movie About a Turbulent Father-Son Relationship**\
+`Nick Reiner, who struggled with drug addiction, wrote “Being Charlie” during a period of sobriety. His father directed the film.`\
+https://nytimes.com/2025/12/15/us/nick-reiner-being-charlie.html
+
 **McLaughlin-Levrone, Thomas among several athletes owed more than $1m by GST**\
 `A Chapter 11 filing has disclosed the amounts that McLaughlin-Levrone and other several high-profile athletes are owed by GST.`\
 https://nytimes.com/athletic/6892119/2025/12/15/grand-slam-track-mclaughlin-levrone-thomas-bednarek/

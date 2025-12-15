@@ -1,3 +1,7 @@
+**Rob and Nick Reiner Made a Movie About a Turbulent Father-Son Relationship**\
+`Nick Reiner, who struggled with drug addiction, wrote “Being Charlie” during a period of sobriety. His father directed the film.`\
+https://nytimes.com/2025/12/15/us/nick-reiner-being-charlie.html
+
 **The shootings at Brown and in Sydney were a ‘gut punch’ for Providence’s Jewish community.**\
 `By Talya Minsberg`\
 https://nytimes.com/live/2025/12/15/us/brown-shooting/the-shootings-at-brown-and-in-sydney-were-a-gut-punch-for-providences-jewish-community
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/15/world/gaza-israel-rob-reiner-australia.html
 **U.S. star Adams exits Bournemouth vs. Man United early with apparent injury**\
 `Tyler Adams, who has been a consistent standout for Bournemouth this season, was forced off early at Old Trafford on Monday`\
 https://nytimes.com/athletic/6892067/2025/12/15/tyler-adams-injury-bournemouth-manchester-united-usmnt/
-
-**Sheffield Wednesday takeover: Three bidders remain, including Mike Ashley**\
-`Wednesday are bottom of the Championship after being deducted 18 points for entering administration.`\
-https://nytimes.com/athletic/6892024/2025/12/15/sheffield-wednesday-takeover-ashley-dunfermline-latest/
 
