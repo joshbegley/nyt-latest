@@ -1,3 +1,7 @@
+**Scottie Scheffler wins fourth consecutive PGA Tour player of the year**\
+`Aldrich Potgieter wins the Arnold Palmer Award as rookie of the year.`\
+https://nytimes.com/athletic/6891328/2025/12/15/scottie-scheffler-aldrich-potgieter-pga-tour-awards/
+
 **Rob Reiner: 14 Movies and Shows to Stream**\
 `He played one of the most memorable sitcom roles of the ’70s before going on to direct a string of enduring movie classics. Here are some of his career highlights.`\
 https://nytimes.com/2025/12/15/movies/rob-reiner-streaming.html
@@ -25,8 +29,4 @@ https://nytimes.com/2025/12/15/business/media/boston-globes-former-top-editor-re
 **Phillies finalizing 1-year, $10 million deal with Adolis García: Sources**\
 `The Phillies are making a bet on a bounce-back season from García, who was non-tendered last month by the Rangers. `\
 https://nytimes.com/athletic/6873092/2025/12/15/mlb-adolis-garcia-free-agency-signing-phillies/
-
-**What You Hope for in 2026**\
-`America is cynical — about its institutions, politics and future. We want to know what makes you believe the future can improve.`\
-https://nytimes.com/2025/12/15/briefing/what-you-hope-for-in-2026.html
 

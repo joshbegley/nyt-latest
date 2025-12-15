@@ -1,3 +1,7 @@
+**Scottie Scheffler wins fourth consecutive PGA Tour player of the year**\
+`Aldrich Potgieter wins the Arnold Palmer Award as rookie of the year.`\
+https://nytimes.com/athletic/6891328/2025/12/15/scottie-scheffler-aldrich-potgieter-pga-tour-awards/
+
 **Rob Reiner: 14 Movies and Shows to Stream**\
 `He played one of the most memorable sitcom roles of the ’70s before going on to direct a string of enduring movie classics. Here are some of his career highlights.`\
 https://nytimes.com/2025/12/15/movies/rob-reiner-streaming.html
