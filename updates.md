@@ -1,3 +1,31 @@
+**Jeffery Simmons’ Tennessee home robbed during Titans’ game in San Francisco**\
+`During Sunday’s game in California, authorities say a group of six burglars broke into Simmons' home in Tennessee. `\
+https://nytimes.com/athletic/6891811/2025/12/15/titans-jeffery-simmons-home-robbery-tennessee/
+
+**Grand Canyon Hotels to Reopen After Unexpected 11-Day Closure**\
+`The National Park Service said hotels on the South Rim could again welcome guests starting on Wednesday after repairs to a broken water pipeline.`\
+https://nytimes.com/2025/12/15/travel/grand-canyon-hotels-south-rim-open.html
+
+**How to watch Rockets vs. Nuggets: Time, TV, streaming**\
+`Find out how to watch the Houston Rockets play the Denver Nuggets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6891989/2025/12/15/rockets-vs-nuggets-stream-how-to-watch-dec-15/
+
+**How to watch Raptors vs. Heat: Time, TV, streaming**\
+`Find out how to watch the Toronto Raptors play the Miami Heat, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6891986/2025/12/15/raptors-vs-heat-stream-how-to-watch-dec-15/
+
+**How to watch Grizzlies vs. Clippers: Time, TV, streaming**\
+`Find out how to watch the Memphis Grizzlies play the Los Angeles Clippers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6891983/2025/12/15/grizzlies-vs-clippers-stream-how-to-watch-dec-15/
+
+**How to watch Predators vs. Blues: Time, TV, streaming**\
+`Find out how to watch the Nashville Predators play the St. Louis Blues, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6891981/2025/12/15/predators-vs-blues-stream-how-to-watch-dec-15/
+
+**How to watch Mavericks vs. Jazz: Time, TV, streaming**\
+`Find out how to watch the Dallas Mavericks play the Utah Jazz, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6891979/2025/12/15/mavericks-vs-jazz-stream-how-to-watch-dec-15/
+
 **How to watch Kings vs. Stars: Time, TV, streaming**\
 `Find out how to watch the Los Angeles Kings play the Dallas Stars, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6891976/2025/12/15/kings-vs-stars-stream-how-to-watch-dec-15/
