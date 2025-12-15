@@ -1,3 +1,7 @@
+**Jimmy Lai Found Guilty by Hong Kong Court**\
+`Hong Kong media tycoon, Jimmy Lai, was found guilty on Monday in a landmark National Security trial. The 78-year-old founder of a popular pro-democracy paper could face life in prison.`\
+https://nytimes.com/video/world/asia/100000010587153/jimmy-lai-guilty-national-security.html
+
 **Anthony Joshua interview: Critics of Jake Paul fight 'need to understand me. I don't need to understand them'**\
 `The two-time world champion has been criticised for taking a fight with the YouTuber, but he sees Friday's event as an 'opportunity'.`\
 https://nytimes.com/athletic/6879284/2025/12/15/anthony-joshua-interview-jake-paul/
