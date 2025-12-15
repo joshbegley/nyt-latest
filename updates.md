@@ -1,3 +1,11 @@
+**E.U. Flies 110 Tons of Aid to Darfur. But Will It Reach Those In Need?**\
+`The European Union has mounted an “air bridge” effort, with at least eight aid flights planned to Sudan. But getting supplies to the areas with the most dire need is an enormous challenge.`\
+https://nytimes.com/2025/12/15/world/africa/darfur-sudan-eu-aid.html
+
+**Vikings edge rusher Jonathan Greenard out for season with shoulder injury**\
+`The 2024 Pro Bowler reaggravated a shoulder injury in Sunday's victory over the Cowboys. He had three sacks this season for the Vikings.`\
+https://nytimes.com/athletic/6892112/2025/12/15/jonathan-greenard-vikings-shoulder-injury/
+
 **The Warriors have some big problems: A lack of continuity is high on the list**\
 `The Warriors have used 15 different starting lineups this season. Can they find continuity? `\
 https://nytimes.com/athletic/6891313/2025/12/15/warriors-starting-lineup-carousel-nba/
