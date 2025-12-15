@@ -1,3 +1,7 @@
+**Boston Globe’s Former Top Editor Returns**\
+`Brian McGrory led the news organization for a decade until he departed in early 2023.`\
+https://nytimes.com/2025/12/15/business/media/boston-globes-former-top-editor-returns.html
+
 **Phillies finalizing 1-year, $10 million deal with Adolis García: Sources**\
 `The Phillies are making a bet on a bounce-back season from García, who was non-tendered last month by the Rangers. `\
 https://nytimes.com/athletic/6873092/2025/12/15/mlb-adolis-garcia-free-agency-signing-phillies/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6891062/2025/12/15/thomas-frank-tottenham-future-le
 **NBA Power Rankings: Trade winds are starting to blow across the league**\
 `Dec. 15 is a holiday for many NBA fans as trade restrictions are lifted for many of the offseason’s free-agent acquisitions.`\
 https://nytimes.com/athletic/6891129/2025/12/15/nba-power-rankings-knicks-warriors-trade-season/
-
-**‘Weird’ Townhouse Gave Couple Chance at Realizing Brooklyn Dream**\
-`Absent the detail of neighboring homes and only 12 feet wide, an 1899 building in need of renovations gave an architect and a designer an opportunity to buy in Cobble Hill.`\
-https://nytimes.com/2025/12/15/realestate/cobble-hill-brooklyn-townhouse-renovation.html
 
