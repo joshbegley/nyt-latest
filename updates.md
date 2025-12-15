@@ -1,3 +1,15 @@
+**PSA parent company Collectors to acquire Beckett**\
+`Collectors adds a third grading company to its stable, all of which will remain separate brands`\
+https://nytimes.com/athletic/6891882/2025/12/15/collectors-beckett-psa-card-grading/
+
+**Harvard’s President Will Stay in the Role Indefinitely**\
+`Alan M. Garber was appointed after his predecessor resigned under pressure. He has been in the role as Harvard fended off challenges from the Trump administration.`\
+https://nytimes.com/2025/12/15/us/harvard-president-alan-garber-trump.html
+
+**Padres' Yu Darvish unsure if he will pitch again after third elbow surgery**\
+`Darvish faces a long rehab from the elbow surgery he had in October and hasn't committed to returning to the mound at the end of the rehab.`\
+https://nytimes.com/athletic/6889030/2025/12/15/padres-yu-darvish-pitching-future/
+
 **The Next Steps for Gaza**\
 `A cease-fire is mostly holding, But tough issues remain, including the fate of Hamas weapons.`\
 https://nytimes.com/2025/12/15/world/gaza-israel-rob-reiner-australia.html

@@ -1,3 +1,7 @@
+**With return, Rivers extends NFL health insurance plan for 5 more years**\
+`Though his Hall of Fame candidacy now has to wait, Rivers unlocked some important health benefits with his return. `\
+https://nytimes.com/athletic/6892020/2025/12/15/philip-rivers-return-health-insurance-plan-extension/
+
 **PSA parent company Collectors to acquire Beckett**\
 `Collectors adds a third grading company to its stable, all of which will remain separate brands`\
 https://nytimes.com/athletic/6891882/2025/12/15/collectors-beckett-psa-card-grading/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/15/business/ford-electric-vehicles-hybrids.html
 **Jewish Community on Edge Following Bondi Beach Attack**\
 `Following a deadly shooting on Sunday, members of the Australian Jewish community have expressed anger toward the government over a failure to do enough to address concerns about rising antisemitism in Australia.`\
 https://nytimes.com/video/world/australia/100000010587908/australia-shooting-jewish-voices.html
-
-**Controlling Blood Sugar Cut Heart Disease Risk in Half, Study Says**\
-`People who brought their blood glucose down to a normal level had a lower risk of death from heart disease or hospitalization for heart failure after 20 years.`\
-https://nytimes.com/2025/12/15/well/blood-sugar-heart-disease-risk.html
 
