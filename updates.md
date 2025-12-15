@@ -1,3 +1,15 @@
+**Police Release Only Known Video of Brown University Gunman**\
+`Authorities in Providence, R.I., released security camera footage of a person exiting the engineering building where the attack took place on Saturday.`\
+https://nytimes.com/video/us/100000010588602/brown-university-shooting-suspect-cctv.html
+
+**As Archie Bunker’s Foil, Rob Reiner Brought Politics Home**\
+`Reiner’s “All in the Family” role didn’t just capture the arguments of its time. It gave us a preview of our own.`\
+https://nytimes.com/2025/12/15/arts/television/rob-reiner-all-in-the-family-meathead.html
+
+**Browns say Shedeur Sanders' play-call sheet 'must have fallen out' during loss to Bears**\
+`Sanders was seen changing wristbands following Cleveland's second drive in the loss to Chicago. `\
+https://nytimes.com/athletic/6891825/2025/12/15/browns-shedeur-sanders-kevin-stefanski-wristband-play-sheet/
+
 **Chiefs' Andy Reid expects Patrick Mahomes to recover quickly from injury**\
 `Mahomes will get a second opinion on his knee from Dr. Dan Cooper, the Dallas Cowboys team physician and a well-known orthopedic surgeon.`\
 https://nytimes.com/athletic/6891668/2025/12/15/chiefs-patrick-mahomes-acl-recovery/
