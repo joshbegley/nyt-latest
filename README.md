@@ -1,3 +1,7 @@
+**He Recorded China’s Detention of Uyghurs. The U.S. Wants to Deport Him to Uganda.**\
+`Heng Guan fled to the United States and released rare video evidence of China’s clampdown. His supporters say that sending him to Uganda puts him at risk.`\
+https://nytimes.com/2025/12/15/us/heng-guan-china-uyghurs-deportation-uganda.html
+
 **Submit your questions for our next Cubs mailbags**\
 `With transactions around the league flowing, what questions do you have about the Cubs? Submit them here. `\
 https://nytimes.com/athletic/6891840/2025/12/15/chicago-cubs-offseason-mailbag-discussion/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6891981/2025/12/15/predators-vs-blues-stream-how-to
 **How to watch Mavericks vs. Jazz: Time, TV, streaming**\
 `Find out how to watch the Dallas Mavericks play the Utah Jazz, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6891979/2025/12/15/mavericks-vs-jazz-stream-how-to-watch-dec-15/
-
-**How to watch Kings vs. Stars: Time, TV, streaming**\
-`Find out how to watch the Los Angeles Kings play the Dallas Stars, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6891976/2025/12/15/kings-vs-stars-stream-how-to-watch-dec-15/
 
