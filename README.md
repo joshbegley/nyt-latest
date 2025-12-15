@@ -1,3 +1,11 @@
+**The ‘Troublemaker’ Who Took On China Faces Up to Life in Jail After Guilty Verdicts**\
+`Jimmy Lai, the publisher of a popular tabloid, was convicted of national security charges on Monday after spending decades supporting the city’s vanquished pro-democracy movement.`\
+https://nytimes.com/2025/12/15/world/asia/jimmy-lai-guilty-national-security.html
+
+**China Nears First Investment Decline in 3 Decades After Sharp Monthly Drop**\
+`A broad measure of investment fell more than 10 percent in November, continuing a recent reversal and signaling the depth of China’s property crisis.`\
+https://nytimes.com/2025/12/15/business/china-investment-real-estate.html
+
 **‘There’s Still Hope.’ How the Bondi Community Rushed to Help.**\
 `I lived and worked around Bondi for years. The emergency response tells you everything you need to know about the area.`\
 https://nytimes.com/2025/12/15/world/asia/bondi-community-hanukkah-attack.html
@@ -25,12 +33,4 @@ https://nytimes.com/live/2025/12/15/world/bondi-beach-shooting-australia/heres-t
 **Live Updates: Australian Police Plan to Charge Suspect in Bondi Massacre**\
 `Officials said a father and son killed at least 15 people at a Jewish holiday celebration. More than three dozen others were hospitalized, including a surviving gunman.`\
 https://nytimes.com/live/2025/12/15/world/bondi-beach-shooting-australia
-
-**Rob Reiner, Actor Who Went on to Direct Classic Films, Dies at 78**\
-`Mr. Reiner, who was in “All in the Family,” directed films including “This Is Spinal Tap,” “When Harry Met Sally …,” “The Princess Bride” and “A Few Good Men.”`\
-https://nytimes.com/2025/12/15/movies/rob-reiner-dead.html
-
-**The self-taught bat maker supplying Jake Weatherald with a blade to put England to the sword**\
-`Jack Konnis makes and repairs bats from a small warehouse in Norwood, Adelaide, including the 2lb 11oz blade used by Australia's opener`\
-https://nytimes.com/athletic/6875563/2025/12/15/australia-jake-weatherald-bat-jk-konnis/
 
