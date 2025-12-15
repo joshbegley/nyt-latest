@@ -1,3 +1,15 @@
+**‘Brilliant and Kind’: Hollywood Pays Tribute to Rob Reiner**\
+`Stars of Mr. Reiner’s movies, as well as celebrities who simply admired his work, have posted heartfelt tributes to the director on social media.`\
+https://nytimes.com/2025/12/15/us/rob-reiner-tributes-hollywood-response.html
+
+**FPL Gameweek 16 review: Load up on Man City players – but save room for Ekitike**\
+`From emerging forwards to renewed title contenders, here’s a full review of the weekend and what it means for your FPL squad going forward`\
+https://nytimes.com/athletic/6888926/2025/12/15/fantasy-premier-league-gameweek-16-review-fpl-tips/
+
+**Mailbag: Sorting through Notre Dame's ACC, ESPN and opt-out angst, one week later**\
+`Irish fans have questions about how Notre Dame got here and how they can avoid a replay of this brutal end to a season.`\
+https://nytimes.com/athletic/6890795/2025/12/15/notre-dame-mailbag-espn-cfp-acc/
+
 **Chris Finch was asked about the Timberwolves' rotation. He had answers ready**\
 `After a win over the Kings, Minnesota's coach explained why there are only so many minutes to go around for a deep squad.`\
 https://nytimes.com/athletic/6889590/2025/12/15/timberwolves-terrence-shannon-rob-dillingham-chris-finch-rotation/
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/6885573/2025/12/15/rangers-quinn-hughes-trade-prosp
 **Drake Maye had a final shot, but it was the reigning MVP — Josh Allen — who stole the show**\
 `In a hard-fought game between division rivals with MVP-worthy quarterbacks, Allen took control to prevent Patriots' playoff party.`\
 https://nytimes.com/athletic/6889421/2025/12/15/patriots-bills-josh-allen-drake-maye-mvp-candidates/
-
-**The Senators are struggling to score at five-on-five. What can they do to fix it?**\
-`The Senators have gotten their power play back on track, but opponents have outscored them 14-5 at even strength in the last six games.`\
-https://nytimes.com/athletic/6887174/2025/12/15/senators-five-on-five-scoring/
-
-**Audi reveals new F1 team name and logo for 2026 after Sauber rebrand**\
-`In 2022, Audi confirmed it would enter F1 for the first time from 2026, developing its own engine and acquiring one of the existing teams.`\
-https://nytimes.com/athletic/6890727/2025/12/15/audi-sauber-2026-rebrand-f1/
-
-**Blue Jackets Monday Gathering: No. 1 picks, the heart of the rebuild, are a mixed bag**\
-`With the Blue Jackets trying to escape the rebuilding phase for good, how have their recent top picks performed?`\
-https://nytimes.com/athletic/6887809/2025/12/15/blue-jackets-first-round-picks-werenski-olympics/
 
