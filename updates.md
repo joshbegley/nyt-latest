@@ -1,3 +1,11 @@
+**USMNT Tracker: Whisper it, but Reyna is getting regular minutes. Plus: Return of the Jedi!**\
+`Reyna is getting consistent game time, the real reason Pulisic was substituted and Robinson plays the full match in Fulham win`\
+https://nytimes.com/athletic/6890868/2025/12/15/usmnt-gio-reyna-jedi-robinson/
+
+**San Francisco Giants trade candidate: Brendan Donovan**\
+`Donovan isn't a star, but he's a good player, as they say, and the Giants could always use more of those.`\
+https://nytimes.com/athletic/6890464/2025/12/15/sf-giants-brendan-donovan-trade-candidate/
+
 **Drance: Canucks win without Hughes, but Vancouver's future must be the focus**\
 `The three players Vancouver netted for Hughes made positive first impressions in their Canucks debuts on Sunday.`\
 https://nytimes.com/athletic/6889976/2025/12/15/canucks-devils-zeev-buium-marco-rossi-quinn-hughes/
