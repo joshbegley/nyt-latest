@@ -1,3 +1,7 @@
+**Emergency Responders Recount Horror of Sydney Shooting**\
+`Two medical professionals who live near Bondi Beach, where gunmen attacked a Hanukkah festival on Sunday, described a harrowing scene.`\
+https://nytimes.com/2025/12/14/world/australia/emergency-responders-sydney-shooting-recount-horror.html
+
 **‘It: Welcome to Derry’ Season 1 Finale Recap: The Mist**\
 `A strange fog envelops the town, sowing fear and chaos. The monster is loose.`\
 https://nytimes.com/2025/12/14/arts/television/it-welcome-to-derry-recap-season-1-finale.html

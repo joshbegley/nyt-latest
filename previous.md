@@ -1,3 +1,7 @@
+**Emergency Responders Recount Horror of Sydney Shooting**\
+`Two medical professionals who live near Bondi Beach, where gunmen attacked a Hanukkah festival on Sunday, described a harrowing scene.`\
+https://nytimes.com/2025/12/14/world/australia/emergency-responders-sydney-shooting-recount-horror.html
+
 **‘It: Welcome to Derry’ Season 1 Finale Recap: The Mist**\
 `A strange fog envelops the town, sowing fear and chaos. The monster is loose.`\
 https://nytimes.com/2025/12/14/arts/television/it-welcome-to-derry-recap-season-1-finale.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6889828/2025/12/14/draymond-green-returns-warriors-
 **Jimmy Lai’s Life, in Photos and Video**\
 `He attributed his rags-to-riches ascent to the freedoms of Hong Kong, and has paid a hefty price for defending them.`\
 https://nytimes.com/2025/12/14/world/asia/jimmy-lai-photos-video.html
-
-**In a messy Commanders win, a 10-year journeyman turned into the most unlikely hero**\
-`Antonio Hamilton Sr. was tabbed to start his first NFL game in two years. Turned out, he played a starring role in Washington's win.`\
-https://nytimes.com/athletic/6889602/2025/12/14/antonio-hamilton-commanders-south-carolina-state/
 
