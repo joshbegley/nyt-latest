@@ -1,3 +1,7 @@
+**Sunderland and a celebratory team photo they had waited two years to take**\
+`Sunderland players posed in front of their fans after their 1-0 win over Newcastle on Sunday `\
+https://nytimes.com/athletic/6889273/2025/12/15/sunderland-newcastle-photo-celebrations-derby/
+
 **The ‘Troublemaker’ Who Took On China Faces Up to Life in Jail After Guilty Verdicts**\
 `Jimmy Lai, the publisher of a popular tabloid, was convicted of national security charges on Monday after spending decades supporting the city’s vanquished pro-democracy movement.`\
 https://nytimes.com/2025/12/15/world/asia/jimmy-lai-guilty-national-security.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/15/arts/television/emily-in-paris-plus-10-things-to-
 **Here’s the latest.**\
 `By Victoria Kim, Yan Zhuang, Jin Yu Young and Livia Albeck-Ripka`\
 https://nytimes.com/live/2025/12/15/world/bondi-beach-shooting-australia/heres-the-latest
-
-**Live Updates: Australian Police Plan to Charge Suspect in Bondi Massacre**\
-`Officials said a father and son killed at least 15 people at a Jewish holiday celebration. More than three dozen others were hospitalized, including a surviving gunman.`\
-https://nytimes.com/live/2025/12/15/world/bondi-beach-shooting-australia
 

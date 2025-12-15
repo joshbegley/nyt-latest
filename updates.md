@@ -1,3 +1,11 @@
+**The ‘Troublemaker’ Who Took On China Faces Up to Life in Jail After Guilty Verdicts**\
+`Jimmy Lai, the publisher of a popular tabloid, was convicted of national security charges on Monday after spending decades supporting the city’s vanquished pro-democracy movement.`\
+https://nytimes.com/2025/12/15/world/asia/jimmy-lai-guilty-national-security.html
+
+**China Nears First Investment Decline in 3 Decades After Sharp Monthly Drop**\
+`A broad measure of investment fell more than 10 percent in November, continuing a recent reversal and signaling the depth of China’s property crisis.`\
+https://nytimes.com/2025/12/15/business/china-investment-real-estate.html
+
 **‘There’s Still Hope.’ How the Bondi Community Rushed to Help.**\
 `I lived and worked around Bondi for years. The emergency response tells you everything you need to know about the area.`\
 https://nytimes.com/2025/12/15/world/asia/bondi-community-hanukkah-attack.html
