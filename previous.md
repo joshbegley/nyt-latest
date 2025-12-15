@@ -1,3 +1,7 @@
+**Can Week 15's surprise fantasy stars keep scoring? Here's the verdict.**\
+`KC Joyner vets Week 15's breakout players to determine if they can sustain their success down the stretch.`\
+https://nytimes.com/athletic/6890667/2025/12/15/fantasy-football-week-15-breakouts-trevor-lawrence/
+
 **Twins to shore up offense at first base by signing Josh Bell: Source**\
 `Bell was arguably the best free-agent hitter fit for the Twins.`\
 https://nytimes.com/athletic/6785208/2025/12/15/mlb-josh-bell-free-agency-signing-twins/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6890868/2025/12/15/usmnt-gio-reyna-jedi-robinson/
 **San Francisco Giants trade candidate: Brendan Donovan**\
 `Donovan isn't a star, but he's a good player, as they say, and the Giants could always use more of those.`\
 https://nytimes.com/athletic/6890464/2025/12/15/sf-giants-brendan-donovan-trade-candidate/
-
-**Drance: Canucks win without Hughes, but Vancouver's future must be the focus**\
-`The three players Vancouver netted for Hughes made positive first impressions in their Canucks debuts on Sunday.`\
-https://nytimes.com/athletic/6889976/2025/12/15/canucks-devils-zeev-buium-marco-rossi-quinn-hughes/
 
