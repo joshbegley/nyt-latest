@@ -1,3 +1,15 @@
+**How are the hobbled 49ers still in this? They found a different way to be great**\
+`Two defensive stars were lost for the season. Their QB missed multiple games. Still, here are the 49ers are, a game out of the No. 1 seed.`\
+https://nytimes.com/athletic/6890676/2025/12/15/san-francisco-49ers-playoff-picture-injuries-resilience/
+
+**Rob Reiner and His Wife Are Found Dead in Their Los Angeles Home**\
+`The Los Angeles Police Department was investigating what it described as “an apparent homicide” after the director Rob Reiner and his wife, Michele, were found dead in their home.`\
+https://nytimes.com/video/us/100000010587635/rob-reiner-director-dead.html
+
+**‘Titaníque,’ Singing and Spoofing Celine Dion, Sets Sail for Broadway**\
+`This zany musical made it from the basement of a Manhattan grocery to London’s West End, and now hopes to become Broadway’s next hit comedy.`\
+https://nytimes.com/2025/12/15/theater/titanique-broadway.html
+
 **NBA Rewind: The Knicks are red hot, and we're warming up to the NBA Cup**\
 `Who's hot (Nuggets, Grizzlies) and not (Blazers) in the NBA — and what to expect in Tuesday's Cup final.`\
 https://nytimes.com/athletic/6883990/2025/12/15/nba-rewind-knicks-spurs-nba-cup/
