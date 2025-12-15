@@ -1,3 +1,7 @@
+**Louvre Museum Staff Go on Daylong Strike, Shutting Out Tourists**\
+`About a fifth of the Louvre’s 2,100 employees voted to go on strike for the day, adding to the sense of crisis at the museum since a brazen heist in October.`\
+https://nytimes.com/2025/12/15/world/europe/louvre-strike-crisis-tourists.html
+
 **This Hanukkah, We Need the Light of Hope**\
 `We must not succumb to the darkness of hate and fear.`\
 https://nytimes.com/2025/12/15/opinion/hanukkah-attack-sydney-australia.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6888395/2025/12/15/oilers-vasily-podkolzin-stats-pr
 **Trump Administration Live Updates: Officials Face Deadline to Withdraw Troops From L.A.**\
 ``\
 https://nytimes.com/live/2025/12/15/us/trump-news
-
-**Hong Kong Media Tycoon’s Conviction Was Years in the Making**\
-`Jimmy Lai spent decades criticizing China’s rulers. He faces up to life in prison after a court found him guilty of national security crimes.`\
-https://nytimes.com/2025/12/15/world/asia/hong-kong-jimmy-lai-tycoon-china.html
 

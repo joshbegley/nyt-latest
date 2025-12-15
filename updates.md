@@ -1,3 +1,7 @@
+**Louvre Museum Staff Go on Daylong Strike, Shutting Out Tourists**\
+`About a fifth of the Louvre’s 2,100 employees voted to go on strike for the day, adding to the sense of crisis at the museum since a brazen heist in October.`\
+https://nytimes.com/2025/12/15/world/europe/louvre-strike-crisis-tourists.html
+
 **This Hanukkah, We Need the Light of Hope**\
 `We must not succumb to the darkness of hate and fear.`\
 https://nytimes.com/2025/12/15/opinion/hanukkah-attack-sydney-australia.html
