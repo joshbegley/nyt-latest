@@ -1,3 +1,7 @@
+**Tennis heat rule will apply across ATP Tour from 2026 season after player criticism**\
+`The men's circuit lacked an extreme heat policy. Now, if the Wet Bulb Globe Temperature hits or exceeds 90 degrees, outdoor play will stop.`\
+https://nytimes.com/athletic/6892302/2025/12/15/tennis-extreme-heat-rules-atp-tour/
+
 **13 Gifts that Cost (Almost) Nothing**\
 `We asked readers to tell us about the most memorable presents they’ve received.`\
 https://nytimes.com/2025/12/15/opinion/contributors/holiday-gifts-presents-free.html

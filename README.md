@@ -1,3 +1,7 @@
+**St. Louis City closing in on Yoann Damet as next head coach**\
+`At 35 years old, Damet will be one of the youngest coaches in MLS.`\
+https://nytimes.com/athletic/6892364/2025/12/15/st-louis-city-yoann-damet-head-coach/
+
 **13 Gifts that Cost (Almost) Nothing**\
 `We asked readers to tell us about the most memorable presents they’ve received.`\
 https://nytimes.com/2025/12/15/opinion/contributors/holiday-gifts-presents-free.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6891313/2025/12/15/warriors-starting-lineup-carouse
 **Anthony Geary, Luke on ‘General Hospital,’ Dies at 78**\
 `Portraying Luke Spencer, he was one of the best-known soap opera stars in American television. His onscreen romance with Laura Webber, played by Genie Francis, changed the landscape of daytime television.`\
 https://nytimes.com/2025/12/15/arts/television/anthony-geary-dead.html
-
-**Why a fresh start makes sense for both Dylan Raiola and Nebraska**\
-`Dylan Raiola and Nebraska produced two winning seasons together, but never transcended in the way they both believed they could.`\
-https://nytimes.com/athletic/6892080/2025/12/15/dylan-raiola-nebraska-qb-transfer-portal-reasons/
 

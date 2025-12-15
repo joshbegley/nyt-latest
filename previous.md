@@ -7,7 +7,7 @@ https://nytimes.com/2025/12/15/opinion/contributors/holiday-gifts-presents-free.
 https://nytimes.com/2025/12/15/us/politics/trump-crypto-winklevoss.html
 
 **Tennis heat rule will apply across ATP Tour from 2026 season after player criticism**\
-`The men's circuit didn't have a unified extreme heat policy. Now, if the WBGT reaches or exceeds 90 degrees, outdoor play will be suspended.`\
+`The men's circuit lacked an extreme heat policy. Now, if the Wet Bulb Globe Temperature hits or exceeds 90 degrees, outdoor play will stop.`\
 https://nytimes.com/athletic/6892302/2025/12/15/tennis-extreme-heat-rules-atp-tour/
 
 **Rob Reiner’s Son Arrested After Fatal Stabbing**\
