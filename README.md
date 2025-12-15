@@ -1,3 +1,7 @@
+**U.S. Soldiers Killed in Syria Identified as Iowa National Guard Sergeants**\
+`The shooting attack in Palmyra, Syria, on Saturday struck troops deployed as part of an antiterrorism mission. Two were killed, along with an American civilian interpreter; three others were wounded.`\
+https://nytimes.com/2025/12/15/us/syria-killed-soldiers-iowa-national-guard.html
+
 **Victim of Brown Shooting Remembered as a Scholar, Always Willing to Help**\
 `MukhammadAziz Umurzokov, 18, was gentle and extroverted, his sisters and a friend said, and had dreams of becoming a neurosurgeon.`\
 https://nytimes.com/2025/12/15/us/brown-university-shooting-victim-mukhammadaziz-umurzokov-uzbekistan.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6889545/2025/12/15/pistons-nba-trade-deadline-needs
 **Which Complexion Booster Is Better?**\
 `Can a $15 complexion-booster stack up against a nearly $50 one? Beauty writer Neha Tandon put both to the test.`\
 https://nytimes.com/video/smarter-living/wirecutter/100000010587864/which-complexion-booster-is-better.html
-
-**Nick Reiner Had Spoken Openly About His Struggles**\
-`He and his father, the director Rob Reiner, also worked together on a film that was loosely inspired by the son’s early life.`\
-https://nytimes.com/2025/12/15/us/nick-reiner-rob-reiner-son.html
 
