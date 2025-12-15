@@ -11,7 +11,7 @@ https://nytimes.com/live/2025/12/15/us/brown-shooting/heres-the-latest
 https://nytimes.com/live/2025/12/15/us/brown-shooting
 
 **Jimmy Lai Found Guilty by Hong Kong Court**\
-`Hong Kong media tycoon, Jimmy Lai, was found guilty on Monday in a landmark National Security trial. The 78-year-old founder of a popular pro-democracy paper could face life in prison.`\
+`The Hong Kong media tycoon Jimmy Lai was found guilty on Monday in a landmark national security trial. The 78-year-old founder of a popular pro-democracy paper could face life in prison.`\
 https://nytimes.com/video/world/asia/100000010587153/jimmy-lai-guilty-national-security.html
 
 **Anthony Joshua interview: Critics of Jake Paul fight 'need to understand me. I don't need to understand them'**\

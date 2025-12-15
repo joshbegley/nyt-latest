@@ -1,3 +1,15 @@
+**Democratic leaders mourn Reiner, a champion of liberal causes.**\
+`By Shashank Bengali and Jill Cowan`\
+https://nytimes.com/live/2025/12/15/us/rob-michele-reiner-dead/democratic-leaders-mourn-reiner-a-champion-of-liberal-causes
+
+**Here’s the latest.**\
+`By Mitch Smith, Qasim Nauman, Mark Arsenault and Thomas Gibbons-Neff`\
+https://nytimes.com/live/2025/12/15/us/brown-shooting/heres-the-latest
+
+**Live Updates: Police Search for Brown University Gunman Two Days After Attack**\
+`The authorities said they released a person of interest after officials could not connect him to the shooting. They have not named any other suspects.`\
+https://nytimes.com/live/2025/12/15/us/brown-shooting
+
 **Jimmy Lai Found Guilty by Hong Kong Court**\
 `Hong Kong media tycoon, Jimmy Lai, was found guilty on Monday in a landmark National Security trial. The 78-year-old founder of a popular pro-democracy paper could face life in prison.`\
 https://nytimes.com/video/world/asia/100000010587153/jimmy-lai-guilty-national-security.html
@@ -15,22 +27,10 @@ https://nytimes.com/2025/12/15/nyregion/creative-economy-new-york-city.html
 https://nytimes.com/2025/12/15/crosswords/spelling-bee-forum.html
 
 **Police Continue Search for Suspect in Brown University Shooting**\
-`After detaining and releasing a suspect with connection to a deadly shooting at Brown University, officials said they are still searching for the gunman. Students held a candlelight vigil following an overnight lockdown.`\
+`The authorities said they had released a man whom they could not connect to the deadly shooting at Brown University. Officials said they are still searching for the gunman. Students held a candlelight vigil following an overnight lockdown.`\
 https://nytimes.com/video/us/100000010587159/brown-university-shooting-vigil-gunman.html
 
 **Brentwood, where the Reiners lived, is a wealthy enclave popular with celebrities.**\
 `By Jill Cowan`\
 https://nytimes.com/live/2025/12/15/us/rob-michele-reiner-dead/brentwood-where-the-reiners-lived-is-a-wealthy-enclave-popular-with-celebrities
-
-**Australia and England cricket sides pay tribute to victims of Bondi Beach attack**\
-`The Australia side watched the events unfurl while at the team hotel in Adelaide, where the third Ashes Test begins on Wednesday.`\
-https://nytimes.com/athletic/6890497/2025/12/15/australia-england-cricket-bondi-beach-attack/
-
-**Some Australian Jews said they felt the government did not protect them.**\
-`By Victoria Kim`\
-https://nytimes.com/live/2025/12/15/world/bondi-beach-shooting-australia/some-australian-jews-said-they-felt-the-government-did-not-protect-them
-
-**England opt against Shoaib Bashir recall and name unchanged batting lineup for Adelaide**\
-`The tourists have made one change for the third Test with quick bowler Josh Tongue replacing the ineffective Gus Atkinson`\
-https://nytimes.com/athletic/6890519/2025/12/15/england-bashir-tongue-atkinson-adelaide/
 
