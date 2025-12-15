@@ -1,36 +1,36 @@
+**After a 3-game layoff, Draymond Green is back in Warriors lineup**\
+`The Warriors are hopeful that Green will be able to stay healthy and get the Warriors back on track.`\
+https://nytimes.com/athletic/6889828/2025/12/14/draymond-green-returns-warriors-blazers/
+
+**Jimmy Lai’s Life, in Photos and Video**\
+`He attributed his rags-to-riches ascent to the freedoms of Hong Kong, and has paid a hefty price for defending them.`\
+https://nytimes.com/2025/12/14/world/asia/jimmy-lai-photos-video.html
+
+**In a messy Commanders win, a 10-year journeyman turned into the most unlikely hero**\
+`Antonio Hamilton Sr. was tabbed to start his first NFL game in two years. Turned out, he played a starring role in Washington's win.`\
+https://nytimes.com/athletic/6889602/2025/12/14/antonio-hamilton-commanders-south-carolina-state/
+
+**How a historic beatdown of a bad team prepares the Eagles for their next challenger**\
+`The final stretch of the regular season is providing the Eagles a few opportunities to tune up before the playoffs.`\
+https://nytimes.com/athletic/6888635/2025/12/14/eagles-raiders-historic-beatdown/
+
+**Lions-Rams takeaways: Matthew Stafford wins QB duel with Goff in shootout**\
+`Stafford finished 24 of 38 for 368 yards and two touchdowns while Goff finished 25-for-41 for 338 yards and three touchdowns in a shootout. `\
+https://nytimes.com/athletic/6889365/2025/12/14/lions-rams-score-result-takeaways-nfl/
+
+**Chiefs will miss playoffs. Why Chris Jones' words — and emotions — spoke for his team**\
+`The Chiefs didn't just lose their 2025 playoff hopes on Sunday. They also lost quarterback Patrick Mahomes to a torn ACL.`\
+https://nytimes.com/athletic/6888601/2025/12/14/chiefs-out-of-playoffs-chris-jones/
+
+**The Giants' ineptitude is so deeply ingrained, Mike Kafka never stood a chance**\
+`One can only pity Kafka at this point. The interim coach has given it his best effort, but there was no saving the Giants this season.`\
+https://nytimes.com/athletic/6889663/2025/12/14/ny-giants-mike-kafka-ineptitude-jaxson-dart/
+
+**Ravens picked right time to play their best and most physical game of season**\
+`In shutting out Joe Burrow and the Bengals, the Ravens had their best performance of the season at a time when they couldn't afford a loss.`\
+https://nytimes.com/athletic/6889596/2025/12/14/ravens-defense-win-bengals-afc-north/
+
 **How to watch Alabama vs. Oklahoma: CFP First Round Start Time, TV, streaming**\
 `Find out how to watch the Alabama Crimson Tide play the Oklahoma Sooners, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6889850/2025/12/14/alabama-vs-oklahoma-stream-how-to-watch-dec-19/
-
-**Packers-Broncos takeaways: Bo Nix throws career-high four TDs**\
-`Nix threw for 302 yards and a career-high four touchdowns as the Broncos won their 11th straight game.`\
-https://nytimes.com/athletic/6889186/2025/12/14/packers-broncos-score-result-takeaways-nfl/
-
-**The Bucks' latest defeat continues pattern of losing winnable games**\
-`The Bucks put together a sloppy and unfocused effort in a 127-82 loss to the Nets three days after a surprise win without their best player.`\
-https://nytimes.com/athletic/6889675/2025/12/14/bucks-blowout-loss-nets-doc-rivers/
-
-**Diego Pavia fires off angry message to Heisman voters after losing out**\
-`Pavia completed 71.2 percent of his passes for 3,192 yards and 27 touchdowns.`\
-https://nytimes.com/athletic/6889546/2025/12/14/diego-pavia-heisman-loss-reaction-vanderbilt/
-
-**Panthers-Saints takeaways: Shough comes up clutch in upset of Carolina**\
-`Quarterback helps Saints post back-to-back wins for the first time this season.`\
-https://nytimes.com/athletic/6889399/2025/12/14/panthers-saints-score-result-takeaways-nfl/
-
-**Joe Burrow’s feel-good story turns worse again as Bengals' season fizzles out**\
-`A home shutout loss eliminated Cincinnati from the playoffs and had the quarterback again searching for how to make things right.`\
-https://nytimes.com/athletic/6889685/2025/12/14/joe-burrow-bengals-ravens-playoff-elimination/
-
-**49ers-Titans takeaways: Brock Purdy shines to keep San Francisco playoff hopes alive**\
-`The 49ers are among three teams in the NFC West with at least 10 wins.`\
-https://nytimes.com/athletic/6889457/2025/12/14/titans-49ers-score-result-takeaways-nfl/
-
-**Brady Cook makes his future QB2 case as the Jets defense hits a new low**\
-`It was an ugly loss in Jacksonville, with a single, small glimmer of hope.`\
-https://nytimes.com/athletic/6889693/2025/12/14/brady-cook-first-start-jets-jaguars/
-
-**Bills, Josh Allen leave it all on the field in gut-wrenching comeback against Patriots**\
-`The Buffalo quarterback weathered a shaky stomach and a 21-point deficit to pull closer in the AFC East race.`\
-https://nytimes.com/athletic/6889603/2025/12/14/josh-allen-bills-comeback-patriots/
 
