@@ -1,8 +1,12 @@
+**Bills, Josh Allen leave it all on the field in gut-wrenching comeback against Patriots**\
+`The Bills stayed in the race for the AFC East title with the win.`\
+https://nytimes.com/athletic/6889603/2025/12/14/josh-allen-bills-comeback-patriots/
+
 **California Hires Former C.D.C. Officials Who Criticized Trump Administration**\
 `A former director of the Centers for Disease Control and Prevention and a former chief medical officer of the agency will advise the state on public health issues.`\
 https://nytimes.com/2025/12/14/us/california-newsom-cdc-trump.html
 
-**A Caleb Williams-to-DJ Moore magic trick was everything the Bears needed**\
+**Caleb Williams-to-DJ Moore magic trick everything Bears needed**\
 `The Bears' 10th win of the season got its 'wow!' moment on a highlight-reel TD pass that broke the game open.`\
 https://nytimes.com/athletic/6889415/2025/12/14/bears-caleb-williams-dj-moore-browns/
 
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6889509/2025/12/14/jalen-hurts-eagles-win-stats-per
 **2025 NFL Simulator: Updated playoff picture and projected draft order after Week 15 results**\
 `How could your favorite team's season end? Find out all the possible paths here.`\
 https://nytimes.com/athletic/6513952/2025/12/14/2025-nfl-playoff-simulator-path-postseason/
-
-**Packers' Micah Parsons leaves vs. Broncos with non-contact knee injury**\
-`Parsons was officially ruled questionable to return after injuring his left knee in the third quarter.`\
-https://nytimes.com/athletic/6889517/2025/12/14/micah-parsons-injury-left-knee-packers/
 
