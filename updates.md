@@ -1,3 +1,7 @@
+**‘There’s Still Hope.’ How the Bondi Community Rushed to Help.**\
+`I lived and worked around Bondi for years. The emergency response tells you everything you need to know about the area.`\
+https://nytimes.com/2025/12/15/world/asia/bondi-community-hanukkah-attack.html
+
 **Reiner’s career spanned Hollywood and politics.**\
 `By Derrick Bryson Taylor and Shawn Hubler`\
 https://nytimes.com/live/2025/12/15/us/rob-michele-reiner-dead/reiners-career-hollywood-politics
