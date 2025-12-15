@@ -1,3 +1,19 @@
+**How to watch South Florida vs. Vanderbilt women's basketball: Time, TV, streaming**\
+`Find out how to watch the South Florida Bulls play the Vanderbilt Commodores, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6891963/2025/12/15/south-florida-vs-vanderbilt-stream-how-to-watch-dec-15/
+
+**What Does It Mean to Be a ‘Person of Interest’?**\
+`Police officers investigating the Brown University shooting released a man they called a “person of interest.” Officials defended the twist in the case as the normal course of policing.`\
+https://nytimes.com/2025/12/15/us/brown-university-shooting-person-of-interest.html
+
+**Can Philip Rivers really win NFL Comeback Player of the Year? Here are the odds**\
+`After just one game, Philip Rivers is now the No. 2 favorite to win NFL Comeback Player of the Year.`\
+https://nytimes.com/athletic/6891610/2025/12/15/odds-nfl-comeback-player-of-the-year-philip-rivers/
+
+**Scoop City: Josh Allen makes MVP a three-horse race**\
+`Josh Allen and the Bills lead our Week 15 risers and fallers, with the Broncos, Chargers and Jaguars also trending up`\
+https://nytimes.com/athletic/6891914/2025/12/15/josh-allen-nfl-mvp-week-15-risers-fallers-scoop-city/
+
 **Selling Young Men on the Blame Game**\
 `It’s not a coincidence that more young men are blaming women for their problems, Jamelle Bouie says.`\
 https://nytimes.com/video/opinion/100000010583558/selling-young-men-on-the-blame-game.html

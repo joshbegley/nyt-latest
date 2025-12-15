@@ -1,3 +1,19 @@
+**How to watch South Florida vs. Vanderbilt women's basketball: Time, TV, streaming**\
+`Find out how to watch the South Florida Bulls play the Vanderbilt Commodores, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6891963/2025/12/15/south-florida-vs-vanderbilt-stream-how-to-watch-dec-15/
+
+**What Does It Mean to Be a ‘Person of Interest’?**\
+`Police officers investigating the Brown University shooting released a man they called a “person of interest.” Officials defended the twist in the case as the normal course of policing.`\
+https://nytimes.com/2025/12/15/us/brown-university-shooting-person-of-interest.html
+
+**Can Philip Rivers really win NFL Comeback Player of the Year? Here are the odds**\
+`After just one game, Philip Rivers is now the No. 2 favorite to win NFL Comeback Player of the Year.`\
+https://nytimes.com/athletic/6891610/2025/12/15/odds-nfl-comeback-player-of-the-year-philip-rivers/
+
+**Scoop City: Josh Allen makes MVP a three-horse race**\
+`Josh Allen and the Bills lead our Week 15 risers and fallers, with the Broncos, Chargers and Jaguars also trending up`\
+https://nytimes.com/athletic/6891914/2025/12/15/josh-allen-nfl-mvp-week-15-risers-fallers-scoop-city/
+
 **Selling Young Men on the Blame Game**\
 `It’s not a coincidence that more young men are blaming women for their problems, Jamelle Bouie says.`\
 https://nytimes.com/video/opinion/100000010583558/selling-young-men-on-the-blame-game.html
@@ -17,20 +33,4 @@ https://nytimes.com/2025/12/15/science/covid-ecology-anthropause-birds.html
 **Here’s the Only Known Video of the Possible Brown University Gunman**\
 `It was captured on Saturday after the shooting as a man exited the engineering building where the attack took place.`\
 https://nytimes.com/2025/12/15/us/brown-university-shooting-suspect-video.html
-
-**Police Release Only Known Video of Brown University Gunman**\
-`Authorities in Providence, R.I., released security camera footage of a person exiting the engineering building where the attack took place on Saturday.`\
-https://nytimes.com/video/us/100000010588602/brown-university-shooting-suspect-cctv.html
-
-**As Archie Bunker’s Foil, Rob Reiner Brought Politics Home**\
-`Reiner’s “All in the Family” role didn’t just capture the arguments of its time. It gave us a preview of our own.`\
-https://nytimes.com/2025/12/15/arts/television/rob-reiner-all-in-the-family-meathead.html
-
-**Browns say Shedeur Sanders' play-call sheet 'must have fallen out' during loss to Bears**\
-`Sanders was seen changing wristbands following Cleveland's second drive in the loss to Chicago. `\
-https://nytimes.com/athletic/6891825/2025/12/15/browns-shedeur-sanders-kevin-stefanski-wristband-play-sheet/
-
-**Chiefs' Andy Reid expects Patrick Mahomes to recover quickly from injury**\
-`Mahomes will get a second opinion on his knee from Dr. Dan Cooper, the Dallas Cowboys team physician and a well-known orthopedic surgeon.`\
-https://nytimes.com/athletic/6891668/2025/12/15/chiefs-patrick-mahomes-acl-recovery/
 
