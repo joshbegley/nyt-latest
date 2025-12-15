@@ -1,3 +1,7 @@
+**Why a fresh start makes sense for both Dylan Raiola and Nebraska**\
+`Dylan Raiola and Nebraska produced two winning seasons together, but never transcended in the way they both believed they could.`\
+https://nytimes.com/athletic/6892080/2025/12/15/dylan-raiola-nebraska-qb-transfer-portal-reasons/
+
 **The Briefing: Man Utd 4 Bournemouth 4 - The most chaotic game of the season? Did Amorim change formation?**\
 `Manchester United fought back from 3-2 down to lead 4-3 with little time left on the clock, only for Bounemouth to grab a late equaliser`\
 https://nytimes.com/athletic/6888321/2025/12/15/the-briefing-man-utd-4-bournemouth-4/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6891882/2025/12/15/collectors-beckett-psa-card-grad
 **Harvard’s President Will Stay in the Role Indefinitely**\
 `Alan M. Garber was appointed after his predecessor resigned under pressure. He has been in the role as Harvard fended off challenges from the Trump administration.`\
 https://nytimes.com/2025/12/15/us/harvard-president-alan-garber-trump.html
-
-**Padres' Yu Darvish unsure if he will pitch again after third elbow surgery**\
-`Darvish faces a long rehab from the elbow surgery he had in October and hasn't committed to returning to the mound at the end of the rehab.`\
-https://nytimes.com/athletic/6889030/2025/12/15/padres-yu-darvish-pitching-future/
 

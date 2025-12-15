@@ -1,3 +1,11 @@
+**The Briefing: Man Utd 4 Bournemouth 4 - The most chaotic game of the season? Did Amorim change formation?**\
+`Manchester United fought back from 3-2 down to lead 4-3 with little time left on the clock, only for Bounemouth to grab a late equaliser`\
+https://nytimes.com/athletic/6888321/2025/12/15/the-briefing-man-utd-4-bournemouth-4/
+
+**Rob Reiner Made Clear What He Believed In, Onscreen and Off**\
+`In films like “A Few Good Men,” the director’s ideas of honor and morality were stated as plainly as could be.`\
+https://nytimes.com/2025/12/15/movies/rob-reiner-films-activism.html
+
 **Rob and Nick Reiner Made a Movie About a Turbulent Father-Son Relationship**\
 `Nick Reiner, who struggled with drug addiction, wrote “Being Charlie” during a period of sobriety. His father directed the film.`\
 https://nytimes.com/2025/12/15/us/nick-reiner-being-charlie.html
