@@ -1,3 +1,19 @@
+**Here’s the latest.**\
+`By Victoria Kim, Yan Zhuang, Jin Yu Young and Livia Albeck-Ripka`\
+https://nytimes.com/live/2025/12/15/world/bondi-beach-shooting-australia/heres-the-latest
+
+**Live Updates: Australian Police Plan to Charge Suspect in Bondi Massacre**\
+`Officials said a father and son killed at least 15 people at a Jewish holiday celebration. More than three dozen others were hospitalized, including a surviving gunman.`\
+https://nytimes.com/live/2025/12/15/world/bondi-beach-shooting-australia
+
+**Rob Reiner, Actor Who Went on to Direct Classic Films, Dies at 78**\
+`Mr. Reiner, who was in “All in the Family,” directed films including “This Is Spinal Tap,” “When Harry Met Sally …,” “The Princess Bride” and “A Few Good Men.”`\
+https://nytimes.com/2025/12/15/movies/rob-reiner-dead.html
+
+**The self-taught bat maker supplying Jake Weatherald with a blade to put England to the sword**\
+`Jack Konnis makes and repairs bats from a small warehouse in Norwood, Adelaide, including the 2lb 11oz blade used by Australia's opener`\
+https://nytimes.com/athletic/6875563/2025/12/15/australia-jake-weatherald-bat-jk-konnis/
+
 **Lindelof is taking on the challenge of adapting to Villa's crucial Torres role**\
 `The former Man United player is a different defender to Torres, who is crucial to Emery's setup. But he adapted against West Ham`\
 https://nytimes.com/athletic/6888614/2025/12/15/pau-torres-and-victor-lindelof/

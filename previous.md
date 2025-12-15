@@ -1,3 +1,19 @@
+**Here’s the latest.**\
+`By Victoria Kim, Yan Zhuang, Jin Yu Young and Livia Albeck-Ripka`\
+https://nytimes.com/live/2025/12/15/world/bondi-beach-shooting-australia/heres-the-latest
+
+**Live Updates: Australian Police Plan to Charge Suspect in Bondi Massacre**\
+`Officials said a father and son killed at least 15 people at a Jewish holiday celebration. More than three dozen others were hospitalized, including a surviving gunman.`\
+https://nytimes.com/live/2025/12/15/world/bondi-beach-shooting-australia
+
+**Rob Reiner, Actor Who Went on to Direct Classic Films, Dies at 78**\
+`Mr. Reiner, who was in “All in the Family,” directed films including “This Is Spinal Tap,” “When Harry Met Sally …,” “The Princess Bride” and “A Few Good Men.”`\
+https://nytimes.com/2025/12/15/movies/rob-reiner-dead.html
+
+**The self-taught bat maker supplying Jake Weatherald with a blade to put England to the sword**\
+`Jack Konnis makes and repairs bats from a small warehouse in Norwood, Adelaide, including the 2lb 11oz blade used by Australia's opener`\
+https://nytimes.com/athletic/6875563/2025/12/15/australia-jake-weatherald-bat-jk-konnis/
+
 **Lindelof is taking on the challenge of adapting to Villa's crucial Torres role**\
 `The former Man United player is a different defender to Torres, who is crucial to Emery's setup. But he adapted against West Ham`\
 https://nytimes.com/athletic/6888614/2025/12/15/pau-torres-and-victor-lindelof/
@@ -17,20 +33,4 @@ https://nytimes.com/athletic/6888680/2025/12/15/nottingham-forest-sangare-totten
 **Calvert-Lewin: Leeds United's free transfer whose goals are starting to prove invaluable**\
 `When Calvert-Lewin arrived at Leeds, some fans doubted his fitness and ability to score crucial goals. He's starting to prove them wrong.`\
 https://nytimes.com/athletic/6889359/2025/12/15/leeds-brentford-calvert-lewin/
-
-**Why Wolves' 14th Premier League defeat of the season was different**\
-`Losing a game in which you score two own goals is not usually a positive, but in the context of Wolves' season this was a hopeful display`\
-https://nytimes.com/athletic/6887444/2025/12/15/wolves-arsenal-improvement-rob-edwards/
-
-**West Ham need leaders like Billy Bonds if they are to survive in the Premier League**\
-`The defeat against Villa once again highlighted West Ham’s defensive frailties, as well as their dearth of leaders`\
-https://nytimes.com/athletic/6888855/2025/12/15/west-ham-aston-villa-leadership-analysis/
-
-**Matheus Nunes' reinvention at right-back is further proof of Pep Guardiola's brilliance**\
-`The Manchester City manager's ability to develop and tweak the games of established players is one of his greatest strengths `\
-https://nytimes.com/athletic/6888178/2025/12/15/nunes-guardiola-man-city-premier-league/
-
-**Glasner's system works, but Palace simply have to improve in front of goal**\
-`Despite the scoreline the performance against Manchester City was largely an encouraging one, apart from the missed chances`\
-https://nytimes.com/athletic/6883135/2025/12/15/crystal-palace-premier-league-glasner/
 
