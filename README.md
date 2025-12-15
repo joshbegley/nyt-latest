@@ -1,6 +1,18 @@
+**A Caleb Williams-to-DJ Moore magic trick was everything the Bears needed**\
+`The Bears' 10th win of the season got its 'wow!' moment on a highlight-reel TD pass that broke the game open.`\
+https://nytimes.com/athletic/6889415/2025/12/14/bears-caleb-williams-dj-moore-browns/
+
+**Here’s the latest.**\
+`By David Pierson`\
+https://nytimes.com/live/2025/12/12/world/hong-kong-jimmy-lai/heres-the-latest
+
+**Live Updates: Hong Kong Court to Hand Down Verdict in Jimmy Lai’s Trial**\
+`Officials have cast Mr. Lai, a pro-democracy media tycoon, as the mastermind of protests that roiled the city in 2019. He could face life in prison.`\
+https://nytimes.com/live/2025/12/12/world/hong-kong-jimmy-lai
+
 **Seahawks takeaways: Myers' record-breaking day spoils Rivers' return**\
 `Seattle couldn't find the end zone, but Jason Myers kicked six field goals in a hard-fought win.`\
-https://nytimes.com/athletic/6888681/2025/12/14/colts-philip-rivers-seahawks-score-result-takeaways/
+https://nytimes.com/athletic/6888681/2025/12/14/seahawks-colts-score-result-takeaways/
 
 **Patriots' title celebration postponed as Bills show they're still a scary late-season team**\
 `The Patriots could have clinched the AFC East title, but the Bills came back and showed they're still a force to be reckoned with.`\
@@ -21,16 +33,4 @@ https://nytimes.com/2025/12/14/world/americas/jetblue-venezuela-midair-collision
 **Texas A&M upsets Nebraska to advance to volleyball Final Four**\
 `The top-ranked Huskers lost for the first time in 34 matches this season.`\
 https://nytimes.com/athletic/6889373/2025/12/14/texas-am-nebraska-volleyball-final-four/
-
-**Colts QB Philip Rivers, 44, throws first regular-season TD pass since 2020**\
-`Rivers shook off the rust quickly, completing his last seven passes of the first half.`\
-https://nytimes.com/athletic/6888668/2025/12/14/colts-philip-rivers-seahawks-score-result-takeaways-2/
-
-**Suspects in Bondi Beach Terror Attack Identified as Father and Son**\
-`The New South Wales police commissioner did not give the men’s names, but said the elder was 50, had licenses for six firearms, and had been killed at the scene. The son was in critical condition.`\
-https://nytimes.com/2025/12/14/world/australia/suspects-identified-bondi-beach-attack.html
-
-**Due to an illness, Kristaps Porziņģis will be away from the Hawks for 2 weeks**\
-`Porziņģis has not played since Dec. 5, when he scored 25 points in a home loss to the Denver Nuggets.`\
-https://nytimes.com/athletic/6889323/2025/12/14/kristaps-porzingis-hawks-status-illness/
 
