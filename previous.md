@@ -1,3 +1,27 @@
+**MLB to regulate use of data and tech in minors in hopes of leveling the playing field**\
+`“We won’t know what sort of innovation we’ll miss because of this," an analyst said. "But we’ll probably miss out on something.”`\
+https://nytimes.com/athletic/6879487/2025/12/15/mlb-technology-change-minor-leagues/
+
+**Minkah Fitzpatrick's return, a reminder of a wasted era for the Steelers defense**\
+`The star safety, traded to Miami last summer, was once a part of a Pittsburgh defense that accomplished plenty, but never in the postseason.`\
+https://nytimes.com/athletic/6889345/2025/12/15/minkah-fitzpatrick-return-steelers-defense-wasted-era/
+
+**What makes these 49ers' special? The answer might surprise you**\
+`The 49ers' offense is about the same as 2024. The defense is worse. The special teams, though, has taken a historic leap. Is it sustainable?`\
+https://nytimes.com/athletic/6890683/2025/12/15/49ers-special-teams-eddy-pineiro/
+
+**What we learned in NFL Week 15: Bills looked primed for playoffs, new reality for Chiefs**\
+`Plus, the Denver Broncos and Los Angeles Rams inched a little closer to earning their respective conference’s No. 1 seeds.`\
+https://nytimes.com/athletic/6890063/2025/12/15/nfl-week-15-takeaways-josh-allen-drake-maye-patrick-mahomes/
+
+**A Chiefs dynasty on pause, and the inspirational Philip Rivers: Sando's Pick Six**\
+`Patrick Mahomes' injury extinguished the Chiefs' final hope (and raised major questions), while Rivers gave Indy slim hope, even in defeat.`\
+https://nytimes.com/athletic/6885745/2025/12/15/patrick-mahomes-injury-chiefs-philip-rivers-pick-six/
+
+**The New York Times International Edition in Print for Tuesday, Dec. 16, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/12/15/todays-new-york-times-international-edition
+
 **Brazil, Ancelotti in advanced talks to extend contract beyond 2026 World Cup**\
 `The CBF is in talks over extending his deal through to 2030.`\
 https://nytimes.com/athletic/6884298/2025/12/15/brazil-carlo-ancelotti-contract-talks/
@@ -9,28 +33,4 @@ https://nytimes.com/athletic/6890688/2025/12/15/rams-vs-seahawks-stream-how-to-w
 **Why New York Has Backed Off on Addressing Climate Change**\
 `With affordability and energy costs looming large as political issues, Gov. Kathy Hochul is less focused on going green.`\
 https://nytimes.com/2025/12/15/nyregion/why-new-york-has-backed-off-on-addressing-climate-change.html
-
-**Trump’s Superlatives Are Bigger Than Yours**\
-`The president is getting a lesson in the limits of grade inflation.`\
-https://nytimes.com/2025/12/15/opinion/trump-grades-patel-hegseth.html
-
-**How Do I Choose the Right Winter Boots?**\
-`Stay snug and stylish with our critic’s advice for finding a boot that can handle the elements as well as an evening out.`\
-https://nytimes.com/2025/12/15/fashion/winter-boots-warm-style.html
-
-**Kast’s Victory in Chile Is Another Win for Global Right-Wing Movement**\
-`José Antonio Kast, who was elected president on Sunday, is the latest conservative to rise to power promising strict law and order measures.`\
-https://nytimes.com/2025/12/15/world/americas/chile-kast-right-wing-movement.html
-
-**What We’d Lose if We Didn’t Have the HBO Comedy Special**\
-`The potential Warner Bros. Discovery sale might jeopardize a lively outlet for artier stand-up shows like those of Sarah Sherman and Adam Pally.`\
-https://nytimes.com/2025/12/15/arts/television/hbo-comedy-special-sarah-sherman-adam-pally.html
-
-**Trial to Start for Judge Accused of Helping Undocumented Immigrant Evade Agents**\
-`The Milwaukee County judge faces federal charges, but she has maintained her innocence.`\
-https://nytimes.com/2025/12/15/us/judge-trial-undocumented-immigrant.html
-
-**Bests, Worsts and Mosts: What Are Your 2025 Superlatives?**\
-`Get inspiration from year-end roundups by Times critics and readers. Then, make your own lists of recommendations and reflections for the end of the year.`\
-https://nytimes.com/2025/12/15/learning/bests-worsts-and-mosts-what-are-your-2025-superlatives.html
 
