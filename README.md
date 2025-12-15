@@ -1,3 +1,7 @@
+**Democratic leaders mourn Reiner, a champion of liberal causes.**\
+`By Shashank Bengali and Jill Cowan`\
+https://nytimes.com/live/2025/12/15/us/rob-michele-reiner-dead/democratic-leaders-mourn-reiner-a-champion-of-liberal-causes
+
 **Here’s the latest.**\
 `By Mitch Smith, Qasim Nauman, Mark Arsenault and Thomas Gibbons-Neff`\
 https://nytimes.com/live/2025/12/15/us/brown-shooting/heres-the-latest
@@ -29,8 +33,4 @@ https://nytimes.com/video/us/100000010587159/brown-university-shooting-vigil-gun
 **Brentwood, where the Reiners lived, is a wealthy enclave popular with celebrities.**\
 `By Jill Cowan`\
 https://nytimes.com/live/2025/12/15/us/rob-michele-reiner-dead/brentwood-where-the-reiners-lived-is-a-wealthy-enclave-popular-with-celebrities
-
-**Australia and England cricket sides pay tribute to victims of Bondi Beach attack**\
-`The Australia side watched the events unfurl while at the team hotel in Adelaide, where the third Ashes Test begins on Wednesday.`\
-https://nytimes.com/athletic/6890497/2025/12/15/australia-england-cricket-bondi-beach-attack/
 
