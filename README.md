@@ -1,3 +1,11 @@
+**Rob Reiner: 14 Movies and Shows to Stream**\
+`He played one of the most memorable sitcom roles of the ’70s before going on to direct a string of enduring movie classics. Here are some of his career highlights.`\
+https://nytimes.com/2025/12/15/movies/robert-reiner-streaming.html
+
+**The Food Stories That Consumed Us in 2025**\
+`From restaurant coverage to the death of a Food Network star, these are our most read articles of the year.`\
+https://nytimes.com/2025/12/15/dining/most-popular-food-stories-2025.html
+
 **To Learn How to Live, My Students Studied the Dead**\
 `A social studies teacher explores what writing obituaries of “overlooked” relatives can teach students about contributing meaningfully to society.`\
 https://nytimes.com/2025/12/15/learning/lesson-plans/to-learn-how-to-live-my-students-studied-the-dead.html
@@ -25,12 +33,4 @@ https://nytimes.com/2025/12/15/briefing/what-you-hope-for-in-2026.html
 **Schools and Colleges Across New England Cancel Classes and Tighten Security**\
 `A gunman who killed two students at Brown University is still at large. There were no specific threats against other schools, but many are taking precautions.`\
 https://nytimes.com/2025/12/15/us/brown-university-shooting-classes-canceled-yale-harvard.html
-
-**Iranian Authorities Assaulted Detained Nobel Laureate, Family Says**\
-`Narges Mohammadi and several other Iranian activists were detained last Friday. She has been beaten, requiring emergency medical treatment, and accused of working with Israel, her family said.`\
-https://nytimes.com/2025/12/15/world/middleeast/narge-mohammadi-iran-beating.html
-
-**Despite Challenges, the Berlin Film Festival Moves Forward**\
-`The festival, which takes place in winter and late in the award season, has, in recent years, been somewhat overshadowed by its sister events in Cannes and Venice.`\
-https://nytimes.com/2025/12/15/movies/berlin-film-festival-europe.html
 
