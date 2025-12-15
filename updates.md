@@ -1,3 +1,11 @@
+**Daiyan Henley challenged the Chargers defense. They responded and look playoff ready.**\
+`Henley implored his teammates to prove they have a playoff-worthy defense and the Chargers took a huge step toward making that a reality. `\
+https://nytimes.com/athletic/6889856/2025/12/14/chargers-defense-playoffs-daiyan-henley-chiefs/
+
+**How the Eagles' beatdown of a bad team prepares them for their next challenger**\
+`The final stretch of the regular season is providing the Eagles a few opportunities to tune up before the playoffs.`\
+https://nytimes.com/athletic/6888635/2025/12/14/eagles-raiders-historic-beatdown/
+
 **Bears handle their easiest business with 31-3 win over Browns. Now comes the hard part**\
 `These just aren't your average Bears. They're smarter, tougher, more talented, and they're back atop the NFC North after the Packers' loss. `\
 https://nytimes.com/athletic/6889428/2025/12/14/bears-browns-nfc-playoff-race-tough-schedule/
