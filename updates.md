@@ -1,3 +1,7 @@
+**Tennis heat rule will apply across ATP Tour from 2026 season after player criticism**\
+`The men's circuit did not previously have a unified extreme heat policy.`\
+https://nytimes.com/athletic/6892302/2025/12/15/tennis-extreme-heat-rules-atp-tour/
+
 **Rob Reiner’s Son Arrested After Fatal Stabbing**\
 `Also, police search for Brown University shooter. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2025/12/15/briefing/rob-reiners-son-arrested.html
