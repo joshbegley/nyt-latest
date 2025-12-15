@@ -1,3 +1,15 @@
+**U.S. Soldiers Killed in Syria Identified as Iowa National Guard Sergeants**\
+`The shooting attack in Palmyra, Syria, on Saturday struck troops deployed as part of an antiterrorism mission. Two were killed, along with an American civilian interpreter; three others were wounded.`\
+https://nytimes.com/2025/12/15/us/syria-killed-soldiers-iowa-national-guard.html
+
+**Victim of Brown Shooting Remembered as a Scholar, Always Willing to Help**\
+`MukhammadAziz Umurzokov, 18, was gentle and extroverted, his sisters and a friend said, and had dreams of becoming a neurosurgeon.`\
+https://nytimes.com/2025/12/15/us/brown-university-shooting-victim-mukhammadaziz-umurzokov-uzbekistan.html
+
+**Bystander Who Tackled Sydney Gunman Is Hailed as a ‘Hero’**\
+`The parents of Ahmed el Ahmed, 43, said their son was brave and felt compelled to intervene to tackle one of the gunmen in Sunday’s mass shooting at Bondi Beach in which at least 15 people were killed.`\
+https://nytimes.com/video/world/australia/100000010587389/bondi-shooting-hero-ahmed.html
+
 **How a Lego Expert Dusts His Sets**\
 `Any AFOLs in the house? That’s adult fans of Lego, for the uninitiated. Here’s how our Lego expert Joshua Lyon keeps his sets dust free.`\
 https://nytimes.com/video/smarter-living/wirecutter/100000010587890/how-a-lego-expert-dusts-his-sets.html
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/6889545/2025/12/15/pistons-nba-trade-deadline-needs
 **Which Complexion Booster Is Better?**\
 `Can a $15 complexion-booster stack up against a nearly $50 one? Beauty writer Neha Tandon put both to the test.`\
 https://nytimes.com/video/smarter-living/wirecutter/100000010587864/which-complexion-booster-is-better.html
-
-**Nick Reiner Had Spoken Openly About His Struggles**\
-`He and his father, the director Rob Reiner, also worked together on a film that was loosely inspired by the son’s early life.`\
-https://nytimes.com/2025/12/15/us/nick-reiner-rob-reiner-son.html
-
-**How Tech’s Biggest Companies Are Offloading the Risks of the A.I. Boom**\
-`The data centers used for work on artificial intelligence can cost tens of billions to build. Tech giants are finding ways to avoid being on the hook for some of those costs.`\
-https://nytimes.com/2025/12/15/technology/ai-risks-debt.html
-
-**Jets fire defensive coordinator Steve Wilks after allowing 48 points to Jaguars**\
-`The Jets have allowed 28.4 points per game this season, third worst in the NFL.`\
-https://nytimes.com/athletic/6891210/2025/12/15/steve-wilks-fired-jets-harris/
 
