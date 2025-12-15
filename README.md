@@ -1,3 +1,27 @@
+**This Viral Sofa Is Made of Metal Poles**\
+`Have you sat on a camping chair and thought to yourself, “Wow, I wish this was a permanent piece of furniture in my home”? Probably not. Wirecutter writer Ivy Elrod reviewed the Anabei sofa.`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010587952/this-viral-sofa-is-made-of-metal-poles.html
+
+**Victim of Shooting at Brown Remembered as ‘a Bright Light’**\
+`Ella Cook, a 19-year-old sophomore from Mountain Brook, Ala., was a gifted pianist and spoke fluent French, a classmate said.`\
+https://nytimes.com/2025/12/15/us/brown-university-shooting-victim-ella-cook-alabama.html
+
+**How to watch Pistons vs. Celtics: Time, TV, streaming**\
+`Find out how to watch the Detroit Pistons play the Boston Celtics, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6891326/2025/12/15/pistons-vs-celtics-stream-how-to-watch-dec-15/
+
+**How to watch Panthers vs. Lightning: Time, TV, streaming**\
+`Find out how to watch the Florida Panthers play the Tampa Bay Lightning, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6891322/2025/12/15/panthers-vs-lightning-stream-how-to-watch-dec-15/
+
+**How to watch Ducks vs. Rangers: Time, TV, streaming**\
+`Find out how to watch the Anaheim Ducks play the New York Rangers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6891321/2025/12/15/ducks-vs-rangers-stream-how-to-watch-dec-15/
+
+**Blackhawks place Bedard on IR with upper-body injury**\
+`Bedard suffered an apparent shoulder injury that coach Jeff Blashill called a "freak accident" on Friday.`\
+https://nytimes.com/athletic/6890242/2025/12/15/connor-bedard-injury-ir-upper-body/
+
 **Mariah Carey to perform at 2026 Milan-Cortina Olympics Opening Ceremony**\
 `Carey will follow in the footsteps of Celine Dion and Lady Gaga, who delivered performances at the 2024 Paris Olympic opening ceremony.`\
 https://nytimes.com/athletic/6891090/2025/12/15/mariah-carey-milano-cortina-2026-olympics-opening-ceremony/
@@ -9,28 +33,4 @@ https://nytimes.com/video/smarter-living/wirecutter/100000010587924/how-we-teste
 **U.S. Soldiers Killed in Syria Identified as Iowa National Guard Sergeants**\
 `The shooting attack in Palmyra, Syria, on Saturday struck troops deployed as part of an antiterrorism mission. Two were killed, along with an American civilian interpreter; three others were wounded.`\
 https://nytimes.com/2025/12/15/us/syria-killed-soldiers-iowa-national-guard.html
-
-**Victim of Brown Shooting Remembered as a Scholar, Always Willing to Help**\
-`MukhammadAziz Umurzokov, 18, was gentle and extroverted, his sisters and a friend said, and had dreams of becoming a neurosurgeon.`\
-https://nytimes.com/2025/12/15/us/brown-university-shooting-victim-mukhammadaziz-umurzokov-uzbekistan.html
-
-**Bystander Who Tackled Sydney Gunman Is Hailed as a ‘Hero’**\
-`The parents of Ahmed el Ahmed, 43, said their son was brave and felt compelled to intervene to tackle one of the gunmen in Sunday’s mass shooting at Bondi Beach in which at least 15 people were killed.`\
-https://nytimes.com/video/world/australia/100000010587389/bondi-shooting-hero-ahmed.html
-
-**How a Lego Expert Dusts His Sets**\
-`Any AFOLs in the house? That’s adult fans of Lego, for the uninitiated. Here’s how our Lego expert Joshua Lyon keeps his sets dust free.`\
-https://nytimes.com/video/smarter-living/wirecutter/100000010587890/how-a-lego-expert-dusts-his-sets.html
-
-**Man Utd's Amad, Mbeumo available for Bournemouth game before AFCON**\
-`Ivory Coast and Cameroon begin their AFCON campaigns on December 24.`\
-https://nytimes.com/athletic/6875057/2025/12/15/amad-mbeumo-afcon-manchester-united-deadline/
-
-**What I'm hearing about Giannis Antetokounmpo and the Bucks at the start of trade season**\
-`The Bucks, now 11-16 on the season and holding on to the last Play-In Tournament spot in the Eastern Conference, are looking for help.`\
-https://nytimes.com/athletic/6890775/2025/12/15/bucks-giannis-antetokounmpo-nba-trade-season/
-
-**A Richly Spiced Chickpea Stew to Linger Over**\
-`Thickened with yogurt and meditative to prepare, this saland-e nakhod is a perfect warming winter dinner.`\
-https://nytimes.com/2025/12/15/dining/a-richly-spiced-chickpea-stew-to-linger-over.html
 
