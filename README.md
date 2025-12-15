@@ -1,9 +1,13 @@
+**Jeanette Winter, Who Told Children About Artists’ Lives, Dies at 86**\
+`Her picture books found models of perseverance and imagination in figures like Emily Dickinson, Georgia O’Keeffe and Benny Goodman.`\
+https://nytimes.com/2025/12/14/obituaries/jeanette-winter-dead.html
+
 **A ‘Small Place’ Copes With Unimaginable Tragedy After Brown Shooting**\
 `The killing of two college students brought an unwelcome and unusual spotlight to the mayor of Providence, R.I., a place where many residents know each other.`\
 https://nytimes.com/2025/12/14/us/brown-university-shooting-providence-mayor.html
 
 **Daiyan Henley challenged the Chargers defense. They responded and look playoff ready.**\
-`Henley implored his teammates to prove they have a playoff-worthy defense and the Chargers took a huge step toward making that a reality. `\
+`Henley implored his teammates to prove they have a playoff-worthy defense, and the Chargers took a huge step toward making that a reality. `\
 https://nytimes.com/athletic/6889856/2025/12/14/chargers-defense-playoffs-daiyan-henley-chiefs/
 
 **Bears handle their easiest business with 31-3 win over Browns. Now comes the hard part**\
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6888635/2025/12/14/eagles-raiders-historic-beatdown
 **Lions-Rams takeaways: Matthew Stafford wins QB duel with Goff in shootout**\
 `Stafford finished 24 of 38 for 368 yards and two touchdowns while Goff finished 25-for-41 for 338 yards and three touchdowns in a shootout. `\
 https://nytimes.com/athletic/6889365/2025/12/14/lions-rams-score-result-takeaways-nfl/
-
-**As Chiefs miss the playoffs, why Chris Jones' words — and emotions — spoke for his team**\
-`The Chiefs didn't just lose their 2025 playoff hopes on Sunday. They also lost quarterback Patrick Mahomes to a torn ACL.`\
-https://nytimes.com/athletic/6888601/2025/12/14/chiefs-out-of-playoffs-chris-jones/
 
