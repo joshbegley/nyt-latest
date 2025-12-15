@@ -1,3 +1,7 @@
+**Chris Finch was asked about the Timberwolves' rotation. He had answers ready**\
+`After a win over the Kings, Minnesota's coach explained why there are only so many minutes to go around for a deep squad.`\
+https://nytimes.com/athletic/6889590/2025/12/15/timberwolves-terrence-shannon-rob-dillingham-chris-finch-rotation/
+
 **An Update on Two Shootings**\
 `We have the latest from Brown University and Bondi Beach.`\
 https://nytimes.com/2025/12/15/briefing/an-update-on-two-shootings.html
@@ -25,10 +29,6 @@ https://nytimes.com/athletic/6887174/2025/12/15/senators-five-on-five-scoring/
 **Audi reveals new F1 team name and logo for 2026 after Sauber rebrand**\
 `In 2022, Audi confirmed it would enter F1 for the first time from 2026, developing its own engine and acquiring one of the existing teams.`\
 https://nytimes.com/athletic/6890727/2025/12/15/audi-sauber-2026-rebrand-f1/
-
-**Looking at the best starts in pro sports as Thunder pursue record**\
-`The Thunder matched the Golden State Warriors through 25 games, but Saturday's loss now has them off the pace.`\
-https://nytimes.com/athletic/6885279/2025/12/15/thunder-nba-best-starts-pro-sports/
 
 **Blue Jackets Monday Gathering: No. 1 picks, the heart of the rebuild, are a mixed bag**\
 `With the Blue Jackets trying to escape the rebuilding phase for good, how have their recent top picks performed?`\
