@@ -1,3 +1,11 @@
+**Brentwood, where the Reiners lived, is a wealthy enclave popular with celebrities.**\
+`By Jill Cowan`\
+https://nytimes.com/live/2025/12/15/us/rob-michele-reiner-dead/brentwood-where-the-reiners-lived-is-a-wealthy-enclave-popular-with-celebrities
+
+**Australia and England cricket sides pay tribute to victims of Bondi Beach attack**\
+`The Australia side watched the events unfurl while at the team hotel in Adelaide, where the third Ashes Test begins on Wednesday.`\
+https://nytimes.com/athletic/6890497/2025/12/15/australia-england-cricket-bondi-beach-attack/
+
 **Some Australian Jews said they felt the government did not protect them.**\
 `By Victoria Kim`\
 https://nytimes.com/live/2025/12/15/world/bondi-beach-shooting-australia/some-australian-jews-said-they-felt-the-government-did-not-protect-them
