@@ -1,6 +1,18 @@
+**Sabres fire Kevyn Adams, name Jarmo Kekäläinen as GM**\
+`The Buffalo Sabres announced Monday that Adams had been relieved of his duties as general manager.`\
+https://nytimes.com/athletic/6891723/2025/12/15/buffalo-sabres-kevyn-adams-jarmo-kekalainen/
+
+**Packers' Micah Parsons tore ACL vs. Broncos, MRI confirms: Sources**\
+`Parsons will likely miss the start of next season and has four more years under contract in Green Bay after this one.`\
+https://nytimes.com/athletic/6891657/2025/12/15/micah-parsons-acl-tear-injury-packers/
+
 **Send your Lions mailbag questions to Colton Pouncy**\
 `<p>After the Detroit Lions lost to the Los Angeles Rams on Sunday, their playoff chances took a significant hit, but they&#8217;re not out of it.`\
 https://nytimes.com/athletic/6891720/2025/12/15/send-your-lions-mailbag-questions-to-colton-pouncy/
+
+**Instant grades for college football's 2025-26 head-coaching hires**\
+`In college football, you never really know whether a coaching hire is going to work. But it's never too early to talk about fit.`\
+https://nytimes.com/athletic/6827060/2025/12/15/college-football-coaching-carousel-grades/
 
 **NFL overreactions: Expect plenty of points in Rams-Seahawks**\
 `Toby Mergler has his initial bets for Week 16 of the NFL season.`\
@@ -21,16 +33,4 @@ https://nytimes.com/2025/12/15/world/europe/ukraine-russia-submarine-drones.html
 **Fantasy football Week 15 recap, early waivers speed run: Injuries and scoring galore**\
 `Scoring explosions highlighted Week 15, but some crucial injuries could threaten fantasy managers' title pursuit.`\
 https://nytimes.com/athletic/6891508/2025/12/15/fantasy-football-week-15-recap-early-waivers-speed-run-injuries-and-scoring-galore/
-
-**Trump Seizes on Rob Reiner’s Death to Attack the Hollywood Director**\
-`The president attributed the killing of Rob Reiner and his wife to “Trump derangement syndrome.” There was no indication that the couple’s political beliefs were linked to their deaths.`\
-https://nytimes.com/2025/12/15/us/politics/trump-rob-reiner.html
-
-**Nebraska QB Dylan Raiola expected to enter transfer portal: Reports**\
-`At 6-foot-3 and 230 pounds with an NFL-caliber arm, Raiola figures to rate among the most coveted quarterbacks in the portal.`\
-https://nytimes.com/athletic/6891599/2025/12/15/dylan-raiola-nebraska-transfer-qb/
-
-**Rangers' Zibanejad won't play vs. Ducks after missing team meeting**\
-`"I think it's important for everyone to understand what the expectations are," coach Mike Sullivan said about benching Zibanejad. `\
-https://nytimes.com/athletic/6891602/2025/12/15/ny-rangers-mika-zibanejad-benched-team-meeting/
 

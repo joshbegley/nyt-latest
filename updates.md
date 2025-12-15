@@ -1,3 +1,15 @@
+**Sabres fire Kevyn Adams, name Jarmo Kekäläinen as GM**\
+`The Buffalo Sabres announced Monday that Adams had been relieved of his duties as general manager.`\
+https://nytimes.com/athletic/6891723/2025/12/15/buffalo-sabres-kevyn-adams-jarmo-kekalainen/
+
+**Packers' Micah Parsons tore ACL vs. Broncos, MRI confirms: Sources**\
+`Parsons will likely miss the start of next season and has four more years under contract in Green Bay after this one.`\
+https://nytimes.com/athletic/6891657/2025/12/15/micah-parsons-acl-tear-injury-packers/
+
+**Instant grades for college football's 2025-26 head-coaching hires**\
+`In college football, you never really know whether a coaching hire is going to work. But it's never too early to talk about fit.`\
+https://nytimes.com/athletic/6827060/2025/12/15/college-football-coaching-carousel-grades/
+
 **Send your Lions mailbag questions to Colton Pouncy**\
 `<p>After the Detroit Lions lost to the Los Angeles Rams on Sunday, their playoff chances took a significant hit, but they&#8217;re not out of it.`\
 https://nytimes.com/athletic/6891720/2025/12/15/send-your-lions-mailbag-questions-to-colton-pouncy/
