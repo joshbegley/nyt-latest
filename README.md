@@ -1,4 +1,8 @@
-**What Does It Mean to be a ‘Person of Interest’?**\
+**How to watch South Florida vs. Vanderbilt women's basketball: Time, TV, streaming**\
+`Find out how to watch the South Florida Bulls play the Vanderbilt Commodores, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6891963/2025/12/15/south-florida-vs-vanderbilt-stream-how-to-watch-dec-15/
+
+**What Does It Mean to Be a ‘Person of Interest’?**\
 `Police officers investigating the Brown University shooting released a man they called a “person of interest.” Officials defended the twist in the case as the normal course of policing.`\
 https://nytimes.com/2025/12/15/us/brown-university-shooting-person-of-interest.html
 
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/15/science/covid-ecology-anthropause-birds.html
 **Here’s the Only Known Video of the Possible Brown University Gunman**\
 `It was captured on Saturday after the shooting as a man exited the engineering building where the attack took place.`\
 https://nytimes.com/2025/12/15/us/brown-university-shooting-suspect-video.html
-
-**Police Release Only Known Video of Brown University Gunman**\
-`Authorities in Providence, R.I., released security camera footage of a person exiting the engineering building where the attack took place on Saturday.`\
-https://nytimes.com/video/us/100000010588602/brown-university-shooting-suspect-cctv.html
 
