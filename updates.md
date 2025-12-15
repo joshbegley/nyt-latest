@@ -1,3 +1,7 @@
+**How Jalen Hurts responded when 'everybody's watching': 31-0 victory, 154.9 passer rating, early exit**\
+`All eyes were on Hurts to see what he would do after throwing four interceptions last week. `\
+https://nytimes.com/athletic/6889509/2025/12/14/jalen-hurts-eagles-win-stats-performance/
+
 **Packers' Micah Parsons leaves vs. Broncos with non-contact knee injury**\
 `Parsons was officially ruled questionable to return after injuring his left knee in the third quarter.`\
 https://nytimes.com/athletic/6889517/2025/12/14/micah-parsons-injury-left-knee-packers/
