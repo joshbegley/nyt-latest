@@ -1,3 +1,7 @@
+**As Seahawks escape Philip Rivers' Colts, all focus turns to massive Rams rematch**\
+`The Seahawks' offense started slow yet again but delivered in crunch time, setting up a monumental game vs. the Rams on Thursday in Seattle.`\
+https://nytimes.com/athletic/6890002/2025/12/14/seahawks-colts-philip-rivers-rams/
+
 **Yohe's 10 observations: Penguins' penchant for blowing leads hits remarkable low**\
 `The Penguins somehow embarrassed themselves even more on Sunday than on Saturday in a 5-4 loss to Utah. `\
 https://nytimes.com/athletic/6889324/2025/12/14/penguins-blowing-leads-10-observations/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/14/obituaries/jeanette-winter-dead.html
 **A ‘Small Place’ Copes With Unimaginable Tragedy After Brown Shooting**\
 `The killing of two college students brought an unwelcome and unusual spotlight to the mayor of Providence, R.I., a place where many residents know each other.`\
 https://nytimes.com/2025/12/14/us/brown-university-shooting-providence-mayor.html
-
-**Daiyan Henley challenged the Chargers defense. They responded and look playoff ready.**\
-`Henley implored his teammates to prove they have a playoff-worthy defense, and the Chargers took a huge step toward making that a reality. `\
-https://nytimes.com/athletic/6889856/2025/12/14/chargers-defense-playoffs-daiyan-henley-chiefs/
 
