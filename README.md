@@ -1,3 +1,19 @@
+**Michele Singer Reiner: A Photographer Who Changed Movie History**\
+`Falling in love with her inspired the director Rob Reiner to give “When Harry Met Sally…” a new ending. The Reiners went on to work together on movies and political causes.`\
+https://nytimes.com/2025/12/15/us/michele-singer-reiner-dead.html
+
+**Women's college basketball power rankings: Can UConn go undefeated this season?**\
+`Could Iowa trip up UConn on Saturday? Sabreena Merchant breaks down her top 25. `\
+https://nytimes.com/athletic/6890094/2025/12/15/womens-college-basketball-power-rankings-can-uconn-go-undefeated-this-season/
+
+**MMLR: The Leafs’ top players have gone cold. It's time for more Cowan**\
+`It's not just injuries that have caused the Leafs to drop three of the last four, including a humbling beatdown by the Oilers.`\
+https://nytimes.com/athletic/6888484/2025/12/15/maple-leafs-easton-cowan-mmlr/
+
+**NHL weekend rankings: A wild Friday shakes up the league — and our top 5**\
+`Quinn Hughes is in Minnesota. Stuart Skinner is in Pittsburgh. Kevyn Adams might be on his way out. You know, just your average NHL weekend.`\
+https://nytimes.com/athletic/6889858/2025/12/15/nhl-weekend-rankings-wild-devils-oilers/
+
 **Celtics are rolling despite some occasional bumps. Here's what we've learned**\
 `With the Celtics playing well of late, writer Jay King takes a look at some of the trends he's noticing. `\
 https://nytimes.com/athletic/6885484/2025/12/15/celtics-jaylen-brown-trends-nba/
@@ -17,20 +33,4 @@ https://nytimes.com/athletic/6882601/2025/12/15/front-office-rankings-2025-fan-p
 **It's tempting, but Raptors should avoid Giannis Antetokounmpo and Anthony Davis**\
 `Just because the Raptors have the pieces necessary to make a major trade work, doesn't mean they should. `\
 https://nytimes.com/athletic/6888467/2025/12/15/raptors-giannis-antetokounmpo-anthony-davis-nba-trade-deadline/
-
-**Dolphins at Steelers on MNF: Pittsburgh's Monday night streak, Fitzpatrick vs. Ramsey**\
-`The division-leading Steelers go for their 23rd straight home win on "Monday Night Football." The Dolphins are on a four-game win streak.`\
-https://nytimes.com/athletic/6885614/2025/12/15/steelers-dolphins-monday-night-football-streak-weather-playoffs/
-
-**Will Cowboys move on from Matt Eberflus? Defensive debacle has Jerry Jones thinking**\
-`Eberflus is Dallas' third defensive coordinator in three seasons and after the performance vs. the Vikings, there could be a fourth.`\
-https://nytimes.com/athletic/6890570/2025/12/15/cowboys-defense-matt-eberflus-jerry-jones-vikings/
-
-**Panthers blow great opportunity vs. Saints, and have no one to blame but themselves**\
-`The Panthers still can win the NFC South, but the path to do that is much more difficult than if they'd beaten the Saints.`\
-https://nytimes.com/athletic/6890175/2025/12/15/panthers-loss-nfc-south-saints-bucs/
-
-**Who’s the fastest-rising prospect in each NHL team’s pipeline?**\
-`From top picks ready to make the leap to hidden gems ready for a bigger chance, here's each NHL team's fastest-rising prospect.`\
-https://nytimes.com/athletic/6885424/2025/12/15/nhl-prospects-pipeline-top-risers-players-stars/
 
