@@ -1,3 +1,15 @@
+**England opt against Shoaib Bashir recall and name unchanged batting lineup for Adelaide**\
+`The tourists have made one change for the third Test with quick bowler Josh Tongue replacing the ineffective Gus Atkinson`\
+https://nytimes.com/athletic/6890519/2025/12/15/england-bashir-tongue-atkinson-adelaide/
+
+**'We're with him': Suns support Dillon Brooks after his ejection in loss to Lakers**\
+`This marked the eighth regular-season ejection of Brooks’ career, his first in a Suns uniform.`\
+https://nytimes.com/athletic/6890342/2025/12/15/dillon-brooks-stats-ejected-suns-lakers/
+
+**Word of the Day: anachronism**\
+`This word has appeared in 33 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/12/15/learning/word-of-the-day-anachronism.html
+
 **The ‘Troublemaker’ Who Took On China Faces Up to Life in Jail After Guilty Verdicts**\
 `Jimmy Lai, the publisher of a popular tabloid, was convicted of national security charges on Monday after spending decades supporting the city’s vanquished pro-democracy movement.`\
 https://nytimes.com/2025/12/15/world/asia/jimmy-lai-guilty-national-security.html
@@ -21,16 +33,4 @@ https://nytimes.com/video/world/australia/100000010587158/sydney-bondi-beach-sho
 **The New York Times in Print for Monday, Dec. 15, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/12/15/todays-new-york-times
-
-**‘Emily in Paris,’ Plus 10 Things to Watch on TV This Week**\
-`The Netflix rom-com series is back for a fifth season, and David Letterman’s interview show returns.`\
-https://nytimes.com/2025/12/15/arts/television/emily-in-paris-plus-10-things-to-watch-on-tv-this-week.html
-
-**Here’s the latest.**\
-`By Victoria Kim, Yan Zhuang, Jin Yu Young and Livia Albeck-Ripka`\
-https://nytimes.com/live/2025/12/15/world/bondi-beach-shooting-australia/heres-the-latest
-
-**Live Updates: Australian Police Plan to Charge Suspect in Bondi Massacre**\
-`Officials said a father and son killed at least 15 people at a Jewish holiday celebration. More than three dozen others were hospitalized, including a surviving gunman.`\
-https://nytimes.com/live/2025/12/15/world/bondi-beach-shooting-australia
 

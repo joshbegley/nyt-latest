@@ -1,3 +1,7 @@
+**Some Australian Jews said they felt the government did not protect them.**\
+`By Victoria Kim`\
+https://nytimes.com/live/2025/12/15/world/bondi-beach-shooting-australia/some-australian-jews-said-they-felt-the-government-did-not-protect-them
+
 **England opt against Shoaib Bashir recall and name unchanged batting lineup for Adelaide**\
 `The tourists have made one change for the third Test with quick bowler Josh Tongue replacing the ineffective Gus Atkinson`\
 https://nytimes.com/athletic/6890519/2025/12/15/england-bashir-tongue-atkinson-adelaide/
@@ -29,8 +33,4 @@ https://nytimes.com/live/2025/12/15/us/rob-michele-reiner-dead/reiners-career-ho
 **Australia Mourns After Bondi Beach Shooting**\
 `The belongings of people at Bondi Beach during a deadly shooting were lined up on the sand on Monday. People brought flowers and flags were lowered for the victims of the attack on a Jewish festival.`\
 https://nytimes.com/video/world/australia/100000010587158/sydney-bondi-beach-shooting.html
-
-**The New York Times in Print for Monday, Dec. 15, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/12/15/todays-new-york-times
 
