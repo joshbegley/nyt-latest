@@ -1,3 +1,7 @@
+**How to watch Rams vs. Seahawks: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Rams play the Seattle Seahawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6890688/2025/12/15/rams-vs-seahawks-stream-how-to-watch-dec-18/
+
 **Why New York Has Backed Off on Addressing Climate Change**\
 `With affordability and energy costs looming large as political issues, Gov. Kathy Hochul is less focused on going green.`\
 https://nytimes.com/2025/12/15/nyregion/why-new-york-has-backed-off-on-addressing-climate-change.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/15/learning/bests-worsts-and-mosts-what-are-your-202
 **$2.4 Million Homes in California**\
 `A Streamline Moderne house in Los Angeles, a contemporary home in Berkeley and a wood-shingled house in Redondo Beach`\
 https://nytimes.com/2025/12/15/realestate/two-and-a-half-million-dollar-homes-in-los-angeles-redondo-beach-berkeley.html
-
-**A Race-Car Driver Cruises Manhattan for His First Apartment**\
-`Jaden Lander didn’t want to leave the Upper East Side, where he grew up, but he found what he was looking for in the Financial District.`\
-https://nytimes.com/2025/12/15/realestate/a-race-car-driver-cruises-manhattan-for-his-first-apartment.html
 
