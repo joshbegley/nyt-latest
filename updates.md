@@ -1,3 +1,7 @@
+**Yohe's 10 observations: Penguins' penchant for blowing leads hits remarkable low**\
+`The Penguins somehow embarrassed themselves even more on Sunday than on Saturday in a 5-4 loss to Utah. `\
+https://nytimes.com/athletic/6889324/2025/12/14/penguins-blowing-leads-10-observations/
+
 **Trump Said Freeing Jimmy Lai Would Be Easy. He Should Prove It.**\
 `The Hong Kong publisher’s fate will reveal whether democracies still have the resolve to defend their own values.`\
 https://nytimes.com/2025/12/14/opinion/china-hong-kong-jimmy-lai.html
