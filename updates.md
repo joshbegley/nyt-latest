@@ -1,3 +1,11 @@
+**Send your Lions mailbag questions to Colton Pouncy**\
+`<p>After the Detroit Lions lost to the Los Angeles Rams on Sunday, their playoff chances took a significant hit, but they&#8217;re not out of it.`\
+https://nytimes.com/athletic/6891720/2025/12/15/send-your-lions-mailbag-questions-to-colton-pouncy/
+
+**NFL overreactions: Expect plenty of points in Rams-Seahawks**\
+`Toby Mergler has his initial bets for Week 16 of the NFL season.`\
+https://nytimes.com/athletic/6891128/2025/12/15/nfl-overreactions-week-16-rams-seahawks-over/
+
 **Cincinnati quarterback Brendan Sorsby to enter transfer portal**\
 `Sorsby was one of the most productive QBs in college football this season, responsible for 36 touchdowns, tied for third-most in the FBS.`\
 https://nytimes.com/athletic/6891513/2025/12/15/cincinnati-quarterback-brendan-sorsby-transfer-portal/

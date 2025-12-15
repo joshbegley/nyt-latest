@@ -1,3 +1,11 @@
+**Send your Lions mailbag questions to Colton Pouncy**\
+`<p>After the Detroit Lions lost to the Los Angeles Rams on Sunday, their playoff chances took a significant hit, but they&#8217;re not out of it.`\
+https://nytimes.com/athletic/6891720/2025/12/15/send-your-lions-mailbag-questions-to-colton-pouncy/
+
+**NFL overreactions: Expect plenty of points in Rams-Seahawks**\
+`Toby Mergler has his initial bets for Week 16 of the NFL season.`\
+https://nytimes.com/athletic/6891128/2025/12/15/nfl-overreactions-week-16-rams-seahawks-over/
+
 **Cincinnati quarterback Brendan Sorsby to enter transfer portal**\
 `Sorsby was one of the most productive QBs in college football this season, responsible for 36 touchdowns, tied for third-most in the FBS.`\
 https://nytimes.com/athletic/6891513/2025/12/15/cincinnati-quarterback-brendan-sorsby-transfer-portal/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6891599/2025/12/15/dylan-raiola-nebraska-transfer-q
 **Rangers' Zibanejad won't play vs. Ducks after missing team meeting**\
 `"I think it's important for everyone to understand what the expectations are," coach Mike Sullivan said about benching Zibanejad. `\
 https://nytimes.com/athletic/6891602/2025/12/15/ny-rangers-mika-zibanejad-benched-team-meeting/
-
-**No lead was safe in a Week 15 that tied the NFL record for double-digit comebacks**\
-`Here's how the week's dramatic, come-from-behind victories affected divisional standings and playoff seeding as the season nears its end.`\
-https://nytimes.com/athletic/6891005/2025/12/15/nfl-week-15-double-digit-comebacks/
-
-**Vikings head coach Kevin O'Connell bristles at J.J. McCarthy's 'Griddy'**\
-`The Vikings coach criticized his quarterback's touchdown celebration and said he would have preferred McCarthy sprint into the end zone.`\
-https://nytimes.com/athletic/6891269/2025/12/15/jj-mccarthy-minnesota-vikings-griddy-celebration/
 
