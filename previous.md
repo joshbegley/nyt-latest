@@ -1,3 +1,7 @@
+**Quinn Hughes' dazzling first impression with Wild and why he's 'extremely open-minded' to staying**\
+`The newest Wild player had a very eventful day, from equipment catastrophes to scoring a goal on his debut.`\
+https://nytimes.com/athletic/6890014/2025/12/14/wild-quinn-hughes-debut-equipment-guerin/
+
 **Here’s how Jimmy Lai became a politically outspoken tycoon.**\
 `By John Yoon and Alexandra Stevenson`\
 https://nytimes.com/live/2025/12/15/world/hong-kong-jimmy-lai/heres-how-jimmy-lai-became-a-politically-outspoken-tycoon
@@ -31,8 +35,4 @@ https://nytimes.com/athletic/6890002/2025/12/14/seahawks-colts-philip-rivers-ram
 **Yohe's 10 observations: Penguins' penchant for blowing leads hits remarkable low**\
 `The Penguins somehow embarrassed themselves even more on Sunday than on Saturday in a 5-4 loss to Utah. `\
 https://nytimes.com/athletic/6889324/2025/12/14/penguins-blowing-leads-10-observations/
-
-**Trump Said Freeing Jimmy Lai Would Be Easy. He Should Prove It.**\
-`The Hong Kong publisher’s fate will reveal whether democracies still have the resolve to defend their own values.`\
-https://nytimes.com/2025/12/14/opinion/china-hong-kong-jimmy-lai.html
 

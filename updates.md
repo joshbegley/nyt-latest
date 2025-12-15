@@ -1,3 +1,7 @@
+**Quinn Hughes' dazzling first impression with Wild and why he's 'extremely open-minded' to staying**\
+`The newest Wild player had a very eventful day, from equipment catastrophes to scoring a goal on his debut.`\
+https://nytimes.com/athletic/6890014/2025/12/14/wild-quinn-hughes-debut-equipment-guerin/
+
 **Here’s how Jimmy Lai became a politically outspoken tycoon.**\
 `By John Yoon and Alexandra Stevenson`\
 https://nytimes.com/live/2025/12/15/world/hong-kong-jimmy-lai/heres-how-jimmy-lai-became-a-politically-outspoken-tycoon
