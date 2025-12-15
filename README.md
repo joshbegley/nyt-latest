@@ -1,3 +1,15 @@
+**The NBA Cup has become Wemby's world**\
+`This is becoming Wemby's world, and as he warned a year and a half ago, "everywhere" should be worried.`\
+https://nytimes.com/athletic/6890861/2025/12/15/victor-wembanyama-spurs-nba-cup-thunder-knicks/
+
+**‘Don’t Feed the Pig’: The Anti-Corruption Call That Helped Topple a Government**\
+`Mass demonstrations in Bulgaria were spurred by spreading outrage over graft that many say was fueling an authoritarian power grab.`\
+https://nytimes.com/2025/12/15/world/europe/bulgaria-corruption-protests-government.html
+
+**SpaceX’s Next Big Launch Could Be an I.P.O.**\
+`Elon Musk’s rocket and satellite giant is already planning a stock sale at an $800 billion valuation. Going public could put it in the trillion-dollar club.`\
+https://nytimes.com/2025/12/15/business/dealbook/spacex-ipo-trillion-musk.html
+
 **Maresca refuses to retract 'worst 48hrs' comment, insists he is happy**\
 `After Saturday's 2-0 win against Everton, the head coach had made the complaint after saying "many people didn't support us".`\
 https://nytimes.com/athletic/6890876/2025/12/15/enzo-maresca-chelsea-comments-happy/
@@ -21,16 +33,4 @@ https://nytimes.com/2025/12/15/world/asia/hong-kong-jimmy-lai-tycoon-china.html
 **Before F1 teams did huge hospitality, the paddock's first chef cooked next to the cars**\
 `In 2025, F1 teams have huge teams of staff to feed and entertain hundreds of guests each race. Back in 1979, Ferrari had just one chef`\
 https://nytimes.com/athletic/6890770/2025/12/15/f1-team-chef-pasticcino-ferrari/
-
-**Why Won’t Senators Stand Up to Trump? We Asked 3 Who Called It Quits.**\
-`Three current and former lawmakers talk with Lulu Garcia-Navarro about bipartisan politics, party leadership and the state of the Senate.`\
-https://nytimes.com/video/podcasts/100000010587623/why-wont-senators-stand-up-to-trump-we-asked-3-who-called-it-quits.html
-
-**‘Brilliant and Kind’: Hollywood Pays Tribute to Rob Reiner**\
-`Stars of Mr. Reiner’s movies, as well as celebrities who simply admired his work, have posted heartfelt tributes to the director on social media.`\
-https://nytimes.com/2025/12/15/us/rob-reiner-tributes-hollywood-response.html
-
-**FPL Gameweek 16 review: Load up on Man City players – but save room for Ekitike**\
-`From emerging forwards to renewed title contenders, here’s a full review of the weekend and what it means for your FPL squad going forward`\
-https://nytimes.com/athletic/6888926/2025/12/15/fantasy-premier-league-gameweek-16-review-fpl-tips/
 
