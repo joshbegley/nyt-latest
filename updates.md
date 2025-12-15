@@ -1,3 +1,15 @@
+**Colts' Anthony Richardson cleared for football activities; Philip Rivers to start Week 16**\
+`Richardson has been on injured reserve since October after fracturing his orbital bone. `\
+https://nytimes.com/athletic/6891557/2025/12/15/colts-anthony-richardson-cleared-philip-rivers-starter/
+
+**Rob Reiner Fought for Democrats, and They Loved Him Back**\
+`The Hollywood star was an unusually hands-on activist and donor, whose deep understanding of politics set him apart from other celebrities.`\
+https://nytimes.com/2025/12/15/us/politics/rob-reiner-democrats-politics.html
+
+**Sabres fire Kevyn Adams, name Jarmo Kekäläinen as GM**\
+`The Sabres announced Monday that Adams had been relieved of his duties as general manager.`\
+https://nytimes.com/athletic/6891723/2025/12/15/buffalo-sabres-kevyn-adams-jarmo-kekalainen/
+
 **What I'm hearing about Kris Letang's hellish season**\
 `For the first time in team history, the Penguins have lost consecutive games after holding a three-goal lead.`\
 https://nytimes.com/athletic/6890378/2025/12/15/penguins-kris-letang-trade-rumors-nhl/

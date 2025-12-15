@@ -1,3 +1,11 @@
+**Colts' Anthony Richardson cleared for football activities; Philip Rivers to start Week 16**\
+`Richardson has been on injured reserve since October after fracturing his orbital bone. `\
+https://nytimes.com/athletic/6891557/2025/12/15/colts-anthony-richardson-cleared-philip-rivers-starter/
+
+**Rob Reiner Fought for Democrats, and They Loved Him Back**\
+`The Hollywood star was an unusually hands-on activist and donor, whose deep understanding of politics set him apart from other celebrities.`\
+https://nytimes.com/2025/12/15/us/politics/rob-reiner-democrats-politics.html
+
 **What I'm hearing about Kris Letang's hellish season**\
 `For the first time in team history, the Penguins have lost consecutive games after holding a three-goal lead.`\
 https://nytimes.com/athletic/6890378/2025/12/15/penguins-kris-letang-trade-rumors-nhl/
@@ -23,14 +31,6 @@ https://nytimes.com/athletic/6891520/2025/12/15/mets-mlb-offseason-moves-free-ag
 https://nytimes.com/athletic/6891275/2025/12/15/nfl-week16-odds-spreads-packers-bears-rams-seahawks/
 
 **Sabres fire Kevyn Adams, name Jarmo Kekäläinen as GM**\
-`The Buffalo Sabres announced Monday that Adams had been relieved of his duties as general manager.`\
+`The Sabres announced Monday that Adams had been relieved of his duties as general manager.`\
 https://nytimes.com/athletic/6891723/2025/12/15/buffalo-sabres-kevyn-adams-jarmo-kekalainen/
-
-**Packers' Micah Parsons tore ACL vs. Broncos, MRI confirms: Sources**\
-`Parsons will likely miss the start of next season and has four more years under contract in Green Bay after this one.`\
-https://nytimes.com/athletic/6891657/2025/12/15/micah-parsons-acl-tear-injury-packers/
-
-**Send your Lions mailbag questions to Colton Pouncy**\
-`<p>After the Detroit Lions lost to the Los Angeles Rams on Sunday, their playoff chances took a significant hit, but they&#8217;re not out of it.`\
-https://nytimes.com/athletic/6891720/2025/12/15/send-your-lions-mailbag-questions-to-colton-pouncy/
 
