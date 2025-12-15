@@ -1,3 +1,7 @@
+**What We Know About Rob Reiner and His Death**\
+`The director’s family said that he and his wife, Michele, had died on Sunday. The police said they had found two bodies at the Reiner home in Los Angeles.`\
+https://nytimes.com/2025/12/15/us/rob-reiner-michele-death-investigation.html
+
 **Nathan Lyon targets 'little fairytale' as he returns for Australia in Adelaide Test**\
 `Spin will play a part at the Adelaide Oval where Lyon could overtake Glenn McGrath to become Australia's second leading Test wicket-taker`\
 https://nytimes.com/athletic/6890553/2025/12/15/nathan-lyon-australia-ashes-mcgrath/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/15/nyregion/creative-economy-new-york-city.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/12/15/crosswords/spelling-bee-forum.html
-
-**Police Continue Search for Suspect in Brown University Shooting**\
-`The authorities said they had released a man whom they could not connect to the deadly shooting at Brown University. Officials said they are still searching for the gunman. Students held a candlelight vigil following an overnight lockdown.`\
-https://nytimes.com/video/us/100000010587159/brown-university-shooting-vigil-gunman.html
 
