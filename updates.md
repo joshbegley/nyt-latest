@@ -1,3 +1,7 @@
+**How to watch Rams vs. Seahawks: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Rams play the Seattle Seahawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6890688/2025/12/15/rams-vs-seahawks-stream-how-to-watch-dec-18/
+
 **Why New York Has Backed Off on Addressing Climate Change**\
 `With affordability and energy costs looming large as political issues, Gov. Kathy Hochul is less focused on going green.`\
 https://nytimes.com/2025/12/15/nyregion/why-new-york-has-backed-off-on-addressing-climate-change.html
