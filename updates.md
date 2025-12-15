@@ -1,3 +1,19 @@
+**Ravens picked right time to play their best and most physical game of season**\
+`In shutting out Joe Burrow and the Bengals, the Ravens had their best performance of the season at a time when they couldn't afford a loss.`\
+https://nytimes.com/athletic/6889596/2025/12/14/ravens-defense-win-bengals-afc-north/
+
+**How to watch Alabama vs. Oklahoma: CFP First Round Start Time, TV, streaming**\
+`Find out how to watch the Alabama Crimson Tide play the Oklahoma Sooners, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6889850/2025/12/14/alabama-vs-oklahoma-stream-how-to-watch-dec-19/
+
+**Packers-Broncos takeaways: Bo Nix throws career-high four TDs**\
+`Nix threw for 302 yards and a career-high four touchdowns as the Broncos won their 11th straight game.`\
+https://nytimes.com/athletic/6889186/2025/12/14/packers-broncos-score-result-takeaways-nfl/
+
+**49ers-Titans takeaways: Brock Purdy shines, San Francisco keeps pace in NFC West**\
+`The 49ers are among three teams in the NFC West with at least 10 wins.`\
+https://nytimes.com/athletic/6889457/2025/12/14/titans-49ers-score-result-takeaways-nfl/
+
 **The Bucks' latest defeat continues pattern of losing winnable games**\
 `The Bucks put together a sloppy and unfocused effort in a 127-82 loss to the Nets three days after a surprise win without their best player.`\
 https://nytimes.com/athletic/6889675/2025/12/14/bucks-blowout-loss-nets-doc-rivers/
