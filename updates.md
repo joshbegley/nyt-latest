@@ -1,3 +1,11 @@
+**Mets have work to do: Here's how they'll approach the rest of the offseason**\
+`Sources weigh in on which Mets players might be on the block, which type of players they're considering and a possible bullpen scenario.`\
+https://nytimes.com/athletic/6891520/2025/12/15/mets-mlb-offseason-moves-free-agents/
+
+**NFL Week 16 odds, spreads: Big shifts in Packers-Bears, Rams-Seahawks**\
+`Week 15 had seismic repercussions for the playoffs and this week's odds. Check out the winners and losers so far.`\
+https://nytimes.com/athletic/6891275/2025/12/15/nfl-week16-odds-spreads-packers-bears-rams-seahawks/
+
 **Sabres fire Kevyn Adams, name Jarmo Kekäläinen as GM**\
 `The Buffalo Sabres announced Monday that Adams had been relieved of his duties as general manager.`\
 https://nytimes.com/athletic/6891723/2025/12/15/buffalo-sabres-kevyn-adams-jarmo-kekalainen/
