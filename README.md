@@ -1,3 +1,7 @@
+**Police Continue Search for Suspect in Brown University Shooting**\
+`After detaining and releasing a suspect with connection to a deadly shooting at Brown University, officials said they are still searching for the gunman. Students held a candlelight vigil following an overnight lockdown.`\
+https://nytimes.com/video/us/100000010587159/brown-university-shooting-vigil-gunman.html
+
 **Brentwood, where the Reiners lived, is a wealthy enclave popular with celebrities.**\
 `By Jill Cowan`\
 https://nytimes.com/live/2025/12/15/us/rob-michele-reiner-dead/brentwood-where-the-reiners-lived-is-a-wealthy-enclave-popular-with-celebrities
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/15/world/asia/jimmy-lai-guilty-national-security.htm
 **China Nears First Investment Decline in 3 Decades After Sharp Monthly Drop**\
 `A broad measure of investment fell more than 10 percent in November, continuing a recent reversal and signaling the depth of China’s property crisis.`\
 https://nytimes.com/2025/12/15/business/china-investment-real-estate.html
-
-**‘There’s Still Hope.’ How the Bondi Community Rushed to Help.**\
-`I lived and worked around Bondi for years. The emergency response tells you everything you need to know about the area.`\
-https://nytimes.com/2025/12/15/world/asia/bondi-community-hanukkah-attack.html
 
