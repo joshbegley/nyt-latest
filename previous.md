@@ -1,3 +1,19 @@
+**J.J. McCarthy leads Vikings over Cowboys, adds a 'Griddy': Takeaways**\
+`The Vikings' young quarterback won the fourth game of his career and helped put Dallas nearly out of playoff contention.`\
+https://nytimes.com/athletic/6889412/2025/12/14/vikings-cowboys-score-result-takeaways-nfl-snf/
+
+**NFL playoff picture, Week 15: Bills' comeback win keeps AFC East crown within reach**\
+`The Broncos and Rams are in control of the AFC and NFC, respectively. Can they each hang on for another few weeks?`\
+https://nytimes.com/athletic/6879197/2025/12/14/nfl-playoff-picture-week-15-bills-patriots-broncos/
+
+**A mini-Dougie dance, a basketball ball fake, a jump pass: Brock Purdy is having fun**\
+`If Purdy is having fun, right tackle Colton McKivitz says, “it means the offense is having fun and the team is having fun."`\
+https://nytimes.com/athletic/6890058/2025/12/14/brock-purdy-49ers-win-titans/
+
+**After losing Micah Parsons, what's next for the wounded Packers?**\
+`The Packers' best player will likely miss the rest of the season with knee injury suffered against the Broncos.`\
+https://nytimes.com/athletic/6890250/2025/12/14/packers-micah-parsons-injury-broncos-playoffs/
+
 **Wild cruise, notch 6 goals as Quinn Hughes scores in exciting debut: Takeaways**\
 `Quinn became the sixth defenseman in franchise history to score a goal in his debut as five Wild players scored one goal.`\
 https://nytimes.com/athletic/6889962/2025/12/14/wild-quinn-hughes-goals-debut-bruins/
@@ -17,22 +33,4 @@ https://nytimes.com/live/2025/12/15/world/hong-kong-jimmy-lai/heres-how-jimmy-la
 **Broncos showed in win vs. Packers — with this Bo Nix — they can contend for it all**\
 `The second-year quarterback threw for 304 yards and four TDs in arguably the best performance of his career as Broncos clinch playoff spot.`\
 https://nytimes.com/athletic/6890088/2025/12/14/broncos-bo-nix-super-bowl-contender-packers/
-
-**Submit a question for Stewart Mandel's College Football Mailbag**\
-`<p>Hope you got some holiday shopping done before we spend next weekend watching CFP games.</p>
-<p>Leave your questions here. Please include your city.</p>
-`\
-https://nytimes.com/athletic/6890210/2025/12/14/submit-a-question-for-stewart-mandels-college-football-mailbag-327/
-
-**Steve Kerr shares latest plea for gun control after mass shooting at Brown**\
-`Kerr used his platform Sunday to remind people that they can still make a difference on gun control.`\
-https://nytimes.com/athletic/6889873/2025/12/14/steve-kerr-gun-control-brown-warriors-comments/
-
-**Lions face more tough questions after dropping another one to a top NFC team**\
-`The Lions have played four games against the Rams, Eagles and Packers — and are a combined 0-4 against them.`\
-https://nytimes.com/athletic/6890048/2025/12/14/lions-loss-playoff-chances-nfc-rams/
-
-**Two Bodies Found at Home Owned by Rob Reiner, Hollywood Director and Actor**\
-`The Los Angeles Police Department said it is investigating the deaths as “an apparent homicide.”`\
-https://nytimes.com/2025/12/14/us/rob-reiner-home-bodies.html
 
