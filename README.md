@@ -1,3 +1,7 @@
+**Anthony Geary, ‘General Hospital’ Star, Dies at 78**\
+`Portraying Luke Spencer, he was one of the best-known soap opera stars in American television. His onscreen romance with Laura Webber, played by Genie Francis, changed the landscape of daytime television.`\
+https://nytimes.com/2025/12/15/arts/television/anthony-geary-dead.html
+
 **Why a fresh start makes sense for both Dylan Raiola and Nebraska**\
 `Dylan Raiola and Nebraska produced two winning seasons together, but never transcended in the way they both believed they could.`\
 https://nytimes.com/athletic/6892080/2025/12/15/dylan-raiola-nebraska-qb-transfer-portal-reasons/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6892020/2025/12/15/philip-rivers-return-health-insu
 **PSA parent company Collectors to acquire Beckett**\
 `Collectors adds a third grading company to its stable, all of which will remain separate brands`\
 https://nytimes.com/athletic/6891882/2025/12/15/collectors-beckett-psa-card-grading/
-
-**Harvard’s President Will Stay in the Role Indefinitely**\
-`Alan M. Garber was appointed after his predecessor resigned under pressure. He has been in the role as Harvard fended off challenges from the Trump administration.`\
-https://nytimes.com/2025/12/15/us/harvard-president-alan-garber-trump.html
 
