@@ -1,3 +1,11 @@
+**Mariah Carey to perform at 2026 Milan-Cortina Olympics Opening Ceremony**\
+`Carey will follow in the footsteps of Celine Dion and Lady Gaga, who delivered performances at the 2024 Paris Olympic opening ceremony.`\
+https://nytimes.com/athletic/6891090/2025/12/15/mariah-carey-milano-cortina-2026-olympics-opening-ceremony/
+
+**How We Tested Earplugs for Sleeping**\
+`In her quest to find the most effective earplugs, sleep editor Christina Colizza turned to Wirecutter’s audio team to determine how much noise they actually reduced.`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010587924/how-we-tested-earplugs-for-sleeping.html
+
 **U.S. Soldiers Killed in Syria Identified as Iowa National Guard Sergeants**\
 `The shooting attack in Palmyra, Syria, on Saturday struck troops deployed as part of an antiterrorism mission. Two were killed, along with an American civilian interpreter; three others were wounded.`\
 https://nytimes.com/2025/12/15/us/syria-killed-soldiers-iowa-national-guard.html

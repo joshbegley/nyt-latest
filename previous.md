@@ -1,3 +1,11 @@
+**Mariah Carey to perform at 2026 Milan-Cortina Olympics Opening Ceremony**\
+`Carey will follow in the footsteps of Celine Dion and Lady Gaga, who delivered performances at the 2024 Paris Olympic opening ceremony.`\
+https://nytimes.com/athletic/6891090/2025/12/15/mariah-carey-milano-cortina-2026-olympics-opening-ceremony/
+
+**How We Tested Earplugs for Sleeping**\
+`In her quest to find the most effective earplugs, sleep editor Christina Colizza turned to Wirecutter’s audio team to determine how much noise they actually reduced.`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010587924/how-we-tested-earplugs-for-sleeping.html
+
 **U.S. Soldiers Killed in Syria Identified as Iowa National Guard Sergeants**\
 `The shooting attack in Palmyra, Syria, on Saturday struck troops deployed as part of an antiterrorism mission. Two were killed, along with an American civilian interpreter; three others were wounded.`\
 https://nytimes.com/2025/12/15/us/syria-killed-soldiers-iowa-national-guard.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6890775/2025/12/15/bucks-giannis-antetokounmpo-nba-
 **A Richly Spiced Chickpea Stew to Linger Over**\
 `Thickened with yogurt and meditative to prepare, this saland-e nakhod is a perfect warming winter dinner.`\
 https://nytimes.com/2025/12/15/dining/a-richly-spiced-chickpea-stew-to-linger-over.html
-
-**Pistons' focus is development, not big moves, with trade season beginning**\
-`Of course things can change, but don't expect Detroit to be a big player at the trade deadline this season. `\
-https://nytimes.com/athletic/6889545/2025/12/15/pistons-nba-trade-deadline-needs-development/
-
-**Which Complexion Booster Is Better?**\
-`Can a $15 complexion-booster stack up against a nearly $50 one? Beauty writer Neha Tandon put both to the test.`\
-https://nytimes.com/video/smarter-living/wirecutter/100000010587864/which-complexion-booster-is-better.html
 
