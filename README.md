@@ -1,3 +1,7 @@
+**‘Weird’ Townhouse Gave Couple Chance at Realizing Brooklyn Dream**\
+`Absent the detail of neighboring homes and only 12 feet wide, an 1899 building in need of renovations gave an architect and a designer an opportunity to buy in Cobble Hill.`\
+https://nytimes.com/2025/12/15/realestate/cobble-hill-brooklyn-townhouse-renovation.html
+
 **U.K. Spy Chief Warns of Acute Russia Threat: The ‘Frontline is Everywhere’**\
 `In her first public speech as head of MI6, Blaise Metreweli said Russia was attempting to export chaos to Europe through hybrid attacks and disinformation.`\
 https://nytimes.com/2025/12/15/world/europe/uk-mi6-russia-chaos.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6890242/2025/12/15/connor-bedard-injury-ir-upper-bo
 **Mariah Carey to perform at 2026 Milan-Cortina Olympics Opening Ceremony**\
 `Carey will follow in the footsteps of Celine Dion and Lady Gaga, who delivered performances at the 2024 Paris Olympic opening ceremony.`\
 https://nytimes.com/athletic/6891090/2025/12/15/mariah-carey-milano-cortina-2026-olympics-opening-ceremony/
-
-**How We Tested Earplugs for Sleeping**\
-`In her quest to find the most effective earplugs, sleep editor Christina Colizza turned to Wirecutter’s audio team to determine how much noise they actually reduced.`\
-https://nytimes.com/video/smarter-living/wirecutter/100000010587924/how-we-tested-earplugs-for-sleeping.html
 
