@@ -1,3 +1,11 @@
+**He Recorded China’s Detention of Uyghurs. The U.S. Wants to Deport Him to Uganda.**\
+`Heng Guan fled to the United States and released rare video evidence of China’s clampdown. His supporters say that sending him to Uganda puts him at risk.`\
+https://nytimes.com/2025/12/15/us/heng-guan-china-uyghurs-deportation-uganda.html
+
+**Submit your questions for our next Cubs mailbags**\
+`With transactions around the league flowing, what questions do you have about the Cubs? Submit them here. `\
+https://nytimes.com/athletic/6891840/2025/12/15/chicago-cubs-offseason-mailbag-discussion/
+
 **Jeffery Simmons’ Tennessee home robbed during Titans’ game in San Francisco**\
 `During Sunday’s game in California, authorities say a group of six burglars broke into Simmons' home in Tennessee. `\
 https://nytimes.com/athletic/6891811/2025/12/15/titans-jeffery-simmons-home-robbery-tennessee/
