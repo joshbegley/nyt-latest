@@ -1,3 +1,7 @@
+**Whitney Biennial Names 56 Artists to Unwind These ‘Weird Times’**\
+`The 2026 exhibition focuses on how artists measure American influence and their relationship to a country whose role in the world is changing.`\
+https://nytimes.com/2025/12/15/arts/design/whitney-biennial-56-artists.html
+
 **What We Know About Rob Reiner and His Death**\
 `The director’s family said that he and his wife, Michele, had died on Sunday. The police said they had found two bodies at the Reiner home in Los Angeles.`\
 https://nytimes.com/2025/12/15/us/rob-reiner-michele-death-investigation.html

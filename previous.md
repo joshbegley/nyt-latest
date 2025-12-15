@@ -1,3 +1,7 @@
+**Whitney Biennial Names 56 Artists to Unwind These ‘Weird Times’**\
+`The 2026 exhibition focuses on how artists measure American influence and their relationship to a country whose role in the world is changing.`\
+https://nytimes.com/2025/12/15/arts/design/whitney-biennial-56-artists.html
+
 **What We Know About Rob Reiner and His Death**\
 `The director’s family said that he and his wife, Michele, had died on Sunday. The police said they had found two bodies at the Reiner home in Los Angeles.`\
 https://nytimes.com/2025/12/15/us/rob-reiner-michele-death-investigation.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6879284/2025/12/15/anthony-joshua-interview-jake-pa
 **With Prices Soaring, Can New York Survive as a Mecca for the Arts?**\
 `The number of artists living in the city has declined after growing sharply between 2004 and 2019. Almost 50 arts venues have closed in the past five years.`\
 https://nytimes.com/2025/12/15/nyregion/creative-economy-new-york-city.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/12/15/crosswords/spelling-bee-forum.html
 
