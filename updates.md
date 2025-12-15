@@ -1,3 +1,11 @@
+**13 Gifts that Cost (Almost) Nothing**\
+`We asked readers to tell us about the most memorable presents they’ve received.`\
+https://nytimes.com/2025/12/15/opinion/contributors/holiday-gifts-presents-free.html
+
+**Tennis heat rule will apply across ATP Tour from 2026 season after player criticism**\
+`The men's circuit didn't have a unified extreme heat policy. Now, if the WBGT reaches or exceeds 90 degrees, outdoor play will be suspended.`\
+https://nytimes.com/athletic/6892302/2025/12/15/tennis-extreme-heat-rules-atp-tour/
+
 **How the Winklevoss Twins Won Big in Trump’s Pro-Crypto Washington**\
 `Few industry players seem closer to Trump than the 44-year-old billionaire brothers. And they have gotten more than just invitations to the White House this year.`\
 https://nytimes.com/2025/12/15/us/politics/trump-crypto-winklevoss.html
