@@ -6,7 +6,7 @@ https://nytimes.com/athletic/6889962/2025/12/14/wild-quinn-hughes-goals-debut-br
 `Following Brooks’ ejection, James missed the technical free throw that would've tied Sunday's game.`\
 https://nytimes.com/athletic/6890277/2025/12/14/suns-lakers-result-brooks-james-fouls/
 
-**Quinn Hughes' dazzling first impression with Wild and why he's 'extremely open-minded' to staying**\
+**Quinn Hughes' dazzling first impression with Wild and why he's 'open-minded' to staying**\
 `The newest Wild player had a very eventful day, from equipment catastrophes to scoring a goal on his debut.`\
 https://nytimes.com/athletic/6890014/2025/12/14/wild-quinn-hughes-debut-equipment-guerin/
 

@@ -1,3 +1,7 @@
+**Quinn Hughes' dazzling first impression with Wild and why he's 'open-minded' to staying**\
+`The newest Wild player had a very eventful day, from equipment catastrophes to scoring a goal on his debut.`\
+https://nytimes.com/athletic/6890014/2025/12/14/wild-quinn-hughes-debut-equipment-guerin/
+
 **Wild cruise, notch 6 goals as Quinn Hughes scores in exciting debut: Takeaways**\
 `Quinn became the sixth defenseman in franchise history to score a goal in his debut as five Wild players scored one goal.`\
 https://nytimes.com/athletic/6889962/2025/12/14/wild-quinn-hughes-goals-debut-bruins/
