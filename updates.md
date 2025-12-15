@@ -1,5 +1,9 @@
 **Rob Reiner: 14 Movies and Shows to Stream**\
 `He played one of the most memorable sitcom roles of the ’70s before going on to direct a string of enduring movie classics. Here are some of his career highlights.`\
+https://nytimes.com/2025/12/15/movies/rob-reiner-streaming.html
+
+**Rob Reiner: 14 Movies and Shows to Stream**\
+`He played one of the most memorable sitcom roles of the ’70s before going on to direct a string of enduring movie classics. Here are some of his career highlights.`\
 https://nytimes.com/2025/12/15/movies/robert-reiner-streaming.html
 
 **The Food Stories That Consumed Us in 2025**\
