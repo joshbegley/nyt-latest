@@ -1,3 +1,11 @@
+**NBA Rewind: The Knicks are red hot, and we're warming up to the NBA Cup**\
+`Who's hot (Nuggets, Grizzlies) and not (Blazers) in the NBA — and what to expect in Tuesday's Cup final.`\
+https://nytimes.com/athletic/6883990/2025/12/15/nba-rewind-knicks-spurs-nba-cup/
+
+**Submit your questions for the college basketball mailbag**\
+`A fireworks-filled nonconference portion of the season is winding down. Ask us anything about this season.`\
+https://nytimes.com/athletic/6891010/2025/12/15/college-basketball-mailbag-submit-your-questions/
+
 **USMNT Tracker: Whisper it, but Reyna is getting regular minutes. Plus: Return of the Jedi!**\
 `Reyna is getting consistent game time, the real reason Pulisic was substituted and Robinson plays the full match in Fulham win`\
 https://nytimes.com/athletic/6890868/2025/12/15/usmnt-gio-reyna-jedi-robinson/
