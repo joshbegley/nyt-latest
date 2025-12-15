@@ -1,3 +1,7 @@
+**It's time for Browns to make some changes. Lopsided loss to Bears only reinforces that**\
+`Of the 25 losses Cleveland has now earned over the last two seasons, this latest one to Chicago was one of the ugliest. `\
+https://nytimes.com/athletic/6889593/2025/12/14/browns-coaching-change-loss-bears/
+
 **Jeanette Winter, Who Told Children About Artists’ Lives, Dies at 86**\
 `Her picture books found models of perseverance and imagination in figures like Emily Dickinson, Georgia O’Keeffe and Benny Goodman.`\
 https://nytimes.com/2025/12/14/obituaries/jeanette-winter-dead.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6889602/2025/12/14/antonio-hamilton-commanders-sout
 **How the Eagles' beatdown of a bad team prepares them for their next challenger**\
 `The final stretch of the regular season is providing the Eagles a few opportunities to tune up before the playoffs.`\
 https://nytimes.com/athletic/6888635/2025/12/14/eagles-raiders-historic-beatdown/
-
-**Lions-Rams takeaways: Matthew Stafford wins QB duel with Goff in shootout**\
-`Stafford finished 24 of 38 for 368 yards and two touchdowns while Goff finished 25-for-41 for 338 yards and three touchdowns in a shootout. `\
-https://nytimes.com/athletic/6889365/2025/12/14/lions-rams-score-result-takeaways-nfl/
 
