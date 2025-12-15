@@ -1,3 +1,7 @@
+**Ravens picked right time to play their best and most physical game of season**\
+`In shutting out Joe Burrow and the Bengals, the Ravens had their best performance of the season at a time when they couldn't afford a loss.`\
+https://nytimes.com/athletic/6889596/2025/12/14/ravens-defense-win-bengals-afc-north/
+
 **How to watch Alabama vs. Oklahoma: CFP First Round Start Time, TV, streaming**\
 `Find out how to watch the Alabama Crimson Tide play the Oklahoma Sooners, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6889850/2025/12/14/alabama-vs-oklahoma-stream-how-to-watch-dec-19/
@@ -22,15 +26,11 @@ https://nytimes.com/athletic/6889399/2025/12/14/panthers-saints-score-result-tak
 `A home shutout loss eliminated Cincinnati from the playoffs and had the quarterback again searching for how to make things right.`\
 https://nytimes.com/athletic/6889685/2025/12/14/joe-burrow-bengals-ravens-playoff-elimination/
 
-**49ers-Titans takeaways: Brock Purdy shines to keep San Francisco playoff hopes alive**\
+**49ers-Titans takeaways: Brock Purdy shines, San Francisco keeps pace in NFC West**\
 `The 49ers are among three teams in the NFC West with at least 10 wins.`\
 https://nytimes.com/athletic/6889457/2025/12/14/titans-49ers-score-result-takeaways-nfl/
 
 **Brady Cook makes his future QB2 case as the Jets defense hits a new low**\
 `It was an ugly loss in Jacksonville, with a single, small glimmer of hope.`\
 https://nytimes.com/athletic/6889693/2025/12/14/brady-cook-first-start-jets-jaguars/
-
-**Bills, Josh Allen leave it all on the field in gut-wrenching comeback against Patriots**\
-`The Buffalo quarterback weathered a shaky stomach and a 21-point deficit to pull closer in the AFC East race.`\
-https://nytimes.com/athletic/6889603/2025/12/14/josh-allen-bills-comeback-patriots/
 
