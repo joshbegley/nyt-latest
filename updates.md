@@ -1,3 +1,11 @@
+**As Joe Burrow's season spirals further, cue the speculation about his future**\
+`Burrow is drawing comparisons to Carson Palmer and Andrew Luck, and not in a good way. Do they have merit?`\
+https://nytimes.com/athletic/6890697/2025/12/15/joe-burrow-bengals-ravens-carson-palmer-andrew-luck/
+
+**Lucky Broncos (again), right? Well, they haven't won 11 in a row by accident**\
+`Discount the Broncos' 11-game win streak all you want, but at a certain point, asterisks lose their impact.`\
+https://nytimes.com/athletic/6890664/2025/12/15/broncos-packers-win-streak-bo-nix/
+
 **MLB to regulate use of data and tech in minors in hopes of leveling the playing field**\
 `“We won’t know what sort of innovation we’ll miss because of this," an analyst said. "But we’ll probably miss out on something.”`\
 https://nytimes.com/athletic/6879487/2025/12/15/mlb-technology-change-minor-leagues/
