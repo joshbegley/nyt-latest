@@ -1,3 +1,7 @@
+**Brazil, Ancelotti in advanced talks to extend contract beyond 2026 World Cup**\
+`The CBF is in talks over extending his deal through to 2030.`\
+https://nytimes.com/athletic/6884298/2025/12/15/brazil-carlo-ancelotti-contract-talks/
+
 **How to watch Rams vs. Seahawks: Time, TV, streaming**\
 `Find out how to watch the Los Angeles Rams play the Seattle Seahawks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6890688/2025/12/15/rams-vs-seahawks-stream-how-to-watch-dec-18/

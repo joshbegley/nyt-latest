@@ -1,3 +1,7 @@
+**Brazil, Ancelotti in advanced talks to extend contract beyond 2026 World Cup**\
+`The CBF is in talks over extending his deal through to 2030.`\
+https://nytimes.com/athletic/6884298/2025/12/15/brazil-carlo-ancelotti-contract-talks/
+
 **How to watch Rams vs. Seahawks: Time, TV, streaming**\
 `Find out how to watch the Los Angeles Rams play the Seattle Seahawks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6890688/2025/12/15/rams-vs-seahawks-stream-how-to-watch-dec-18/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/15/us/judge-trial-undocumented-immigrant.html
 **Bests, Worsts and Mosts: What Are Your 2025 Superlatives?**\
 `Get inspiration from year-end roundups by Times critics and readers. Then, make your own lists of recommendations and reflections for the end of the year.`\
 https://nytimes.com/2025/12/15/learning/bests-worsts-and-mosts-what-are-your-2025-superlatives.html
-
-**$2.4 Million Homes in California**\
-`A Streamline Moderne house in Los Angeles, a contemporary home in Berkeley and a wood-shingled house in Redondo Beach`\
-https://nytimes.com/2025/12/15/realestate/two-and-a-half-million-dollar-homes-in-los-angeles-redondo-beach-berkeley.html
 
