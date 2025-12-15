@@ -1,3 +1,15 @@
+**Trump Seizes on Rob Reiner’s Death to Attack the Hollywood Director**\
+`The president attributed the killing of Rob Reiner and his wife to “Trump derangement syndrome.” There was no indication that the couple’s political beliefs were linked to their deaths.`\
+https://nytimes.com/2025/12/15/us/politics/trump-rob-reiner.html
+
+**Nebraska QB Dylan Raiola expected to enter transfer portal: Reports**\
+`At 6-foot-3 and 230 pounds with an NFL-caliber arm, Raiola figures to rate among the most coveted quarterbacks in the portal.`\
+https://nytimes.com/athletic/6891599/2025/12/15/dylan-raiola-nebraska-transfer-qb/
+
+**Rangers' Zibanejad won't play vs. Ducks after missing team meeting**\
+`"I think it's important for everyone to understand what the expectations are," coach Mike Sullivan said about benching Zibanejad. `\
+https://nytimes.com/athletic/6891602/2025/12/15/ny-rangers-mika-zibanejad-benched-team-meeting/
+
 **No lead was safe in a Week 15 that tied the NFL record for double-digit comebacks**\
 `Here's how the week's dramatic, come-from-behind victories affected divisional standings and playoff seeding as the season nears its end.`\
 https://nytimes.com/athletic/6891005/2025/12/15/nfl-week-15-double-digit-comebacks/
@@ -17,16 +29,4 @@ https://nytimes.com/2025/12/15/movies/rob-reiner-streaming.html
 **The Food Stories That Consumed Us in 2025**\
 `From restaurant coverage to the death of a Food Network star, these are our most read articles of the year.`\
 https://nytimes.com/2025/12/15/dining/most-popular-food-stories-2025.html
-
-**To Learn How to Live, My Students Studied the Dead**\
-`A social studies teacher explores what writing obituaries of “overlooked” relatives can teach students about contributing meaningfully to society.`\
-https://nytimes.com/2025/12/15/learning/lesson-plans/to-learn-how-to-live-my-students-studied-the-dead.html
-
-**Which Complexion Booster Is Better?**\
-`Can a $15 complexion-booster stack up against a nearly $50 one? Beauty writer Neha Tandon put both to the test.`\
-https://nytimes.com/video/smarter-living/wirecutter/100000010588146/which-complexion-booster-is-better.html
-
-**Blues' Holloway out 6 weeks after suffering lower-body injury in practice**\
-`Holloway is tied for the team lead with eight goals and second with 17 points.`\
-https://nytimes.com/athletic/6891131/2025/12/15/blues-dylan-holloway-injury/
 
