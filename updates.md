@@ -1,3 +1,7 @@
+**The Bucks' latest defeat continues pattern of losing winnable games**\
+`The Bucks put together a sloppy and unfocused effort in a 127-82 loss to the Nets three days after a surprise win without their best player.`\
+https://nytimes.com/athletic/6889675/2025/12/14/bucks-blowout-loss-nets-doc-rivers/
+
 **Diego Pavia fires off angry message to Heisman voters after losing out**\
 `Pavia completed 71.2 percent of his passes for 3,192 yards and 27 touchdowns.`\
 https://nytimes.com/athletic/6889546/2025/12/14/diego-pavia-heisman-loss-reaction-vanderbilt/

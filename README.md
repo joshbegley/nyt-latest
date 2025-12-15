@@ -1,3 +1,11 @@
+**How to watch Alabama vs. Oklahoma: CFP First Round Start Time, TV, streaming**\
+`Find out how to watch the Alabama Crimson Tide play the Oklahoma Sooners, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6889850/2025/12/14/alabama-vs-oklahoma-stream-how-to-watch-dec-19/
+
+**Packers-Broncos takeaways: Bo Nix throws career-high four TDs**\
+`Nix threw for 302 yards and a career-high four touchdowns as the Broncos won their 11th straight game.`\
+https://nytimes.com/athletic/6889186/2025/12/14/packers-broncos-score-result-takeaways-nfl/
+
 **The Bucks' latest defeat continues pattern of losing winnable games**\
 `The Bucks put together a sloppy and unfocused effort in a 127-82 loss to the Nets three days after a surprise win without their best player.`\
 https://nytimes.com/athletic/6889675/2025/12/14/bucks-blowout-loss-nets-doc-rivers/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6889693/2025/12/14/brady-cook-first-start-jets-jagu
 **Bills, Josh Allen leave it all on the field in gut-wrenching comeback against Patriots**\
 `The Buffalo quarterback weathered a shaky stomach and a 21-point deficit to pull closer in the AFC East race.`\
 https://nytimes.com/athletic/6889603/2025/12/14/josh-allen-bills-comeback-patriots/
-
-**California Hires Former C.D.C. Officials Who Criticized Trump Administration**\
-`A former director of the Centers for Disease Control and Prevention and a former chief medical officer of the agency will advise the state on public health issues.`\
-https://nytimes.com/2025/12/14/us/california-newsom-cdc-trump.html
-
-**Caleb Williams-to-DJ Moore magic trick everything Bears needed**\
-`The Bears' 10th win of the season got its 'wow!' moment on a highlight-reel TD pass that broke the game open.`\
-https://nytimes.com/athletic/6889415/2025/12/14/bears-caleb-williams-dj-moore-browns/
 
