@@ -30,7 +30,3 @@ https://nytimes.com/athletic/6873092/2025/12/15/mlb-adolis-garcia-free-agency-si
 `America is cynical — about its institutions, politics and future. We want to know what makes you believe the future can improve.`\
 https://nytimes.com/2025/12/15/briefing/what-you-hope-for-in-2026.html
 
-**Schools and Colleges Across New England Cancel Classes and Tighten Security**\
-`A gunman who killed two students at Brown University is still at large. There were no specific threats against other schools, but many are taking precautions.`\
-https://nytimes.com/2025/12/15/us/brown-university-shooting-classes-canceled-yale-harvard.html
-
