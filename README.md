@@ -1,3 +1,11 @@
+**TAFC – The chaos of Messi's India tour. Plus: What next for Salah?**\
+`Angry fans in Kolkata threw chairs and bottles after the 'GOAT Tour' failed to live up to expectations`\
+https://nytimes.com/athletic/6890751/2025/12/15/lionel-messi-india-mohamed-salah-tafc/
+
+**The Panicked Moments When a Beach Celebration Became a ‘War Zone’**\
+`Two men toting long guns opened fire on hundreds of people who were celebrating Hanukkah on Bondi Beach in Sydney, the core of the Australian city’s Jewish community.`\
+https://nytimes.com/2025/12/15/world/australia/bondi-beach-shooting-sydney-australia.html
+
 **Bury manager leaves job after backlash from supporters over historic child sex case**\
 `Jolley, 48, pleaded guilty to having sex with a 15-year-old girl in 2009.`\
 https://nytimes.com/athletic/6890732/2025/12/15/bury-manager-michael-jolley-leaves-job/
@@ -25,12 +33,4 @@ https://nytimes.com/2025/12/15/us/michele-singer-reiner-dead.html
 **Women's college basketball power rankings: Can UConn go undefeated this season?**\
 `Could Iowa trip up UConn on Saturday? Sabreena Merchant breaks down her top 25. `\
 https://nytimes.com/athletic/6890094/2025/12/15/womens-college-basketball-power-rankings-can-uconn-go-undefeated-this-season/
-
-**MMLR: The Leafs’ top players have gone cold. It's time for more Cowan**\
-`It's not just injuries that have caused the Leafs to drop three of the last four, including a humbling beatdown by the Oilers.`\
-https://nytimes.com/athletic/6888484/2025/12/15/maple-leafs-easton-cowan-mmlr/
-
-**NHL weekend rankings: A wild Friday shakes up the league — and our top 5**\
-`Quinn Hughes is in Minnesota. Stuart Skinner is in Pittsburgh. Kevyn Adams might be on his way out. You know, just your average NHL weekend.`\
-https://nytimes.com/athletic/6889858/2025/12/15/nhl-weekend-rankings-wild-devils-oilers/
 

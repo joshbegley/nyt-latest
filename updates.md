@@ -1,3 +1,7 @@
+**Bury manager leaves job after backlash from supporters over historic child sex case**\
+`Jolley, 48, pleaded guilty to having sex with a 15-year-old girl in 2009.`\
+https://nytimes.com/athletic/6890732/2025/12/15/bury-manager-michael-jolley-leaves-job/
+
 **Zelensky to Meet U.S. Envoys and European Leaders in New Push to End War**\
 `For the second day running, President Volodymyr Zelensky of Ukraine was set to meet in Berlin with Steve Witkoff and Jared Kushner, two key Trump aides.`\
 https://nytimes.com/2025/12/15/world/europe/zelensky-berlin-ukraine-witkoff-russia-peace-talks.html
