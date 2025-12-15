@@ -1,3 +1,7 @@
+**Twins to shore up offense at first base by signing Josh Bell: Source**\
+`Bell was arguably the best free-agent hitter fit for the Twins.`\
+https://nytimes.com/athletic/6785208/2025/12/15/mlb-josh-bell-free-agency-signing-twins/
+
 **How are the hobbled 49ers still in this? They found a different way to be great**\
 `Two defensive stars were lost for the season. Their QB missed multiple games. Still, here are the 49ers are, a game out of the No. 1 seed.`\
 https://nytimes.com/athletic/6890676/2025/12/15/san-francisco-49ers-playoff-picture-injuries-resilience/
