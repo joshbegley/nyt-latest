@@ -1,3 +1,7 @@
+**Nathan Lyon targets 'little fairytale' as he returns for Australia in Adelaide Test**\
+`Spin will play a part at the Adelaide Oval where Lyon could overtake Glenn McGrath to become Australia's second leading Test wicket-taker`\
+https://nytimes.com/athletic/6890553/2025/12/15/nathan-lyon-australia-ashes-mcgrath/
+
 **Democratic leaders mourn Reiner, a champion of liberal causes.**\
 `By Shashank Bengali and Jill Cowan`\
 https://nytimes.com/live/2025/12/15/us/rob-michele-reiner-dead/democratic-leaders-mourn-reiner-a-champion-of-liberal-causes
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/15/crosswords/spelling-bee-forum.html
 **Police Continue Search for Suspect in Brown University Shooting**\
 `The authorities said they had released a man whom they could not connect to the deadly shooting at Brown University. Officials said they are still searching for the gunman. Students held a candlelight vigil following an overnight lockdown.`\
 https://nytimes.com/video/us/100000010587159/brown-university-shooting-vigil-gunman.html
-
-**Brentwood, where the Reiners lived, is a wealthy enclave popular with celebrities.**\
-`By Jill Cowan`\
-https://nytimes.com/live/2025/12/15/us/rob-michele-reiner-dead/brentwood-where-the-reiners-lived-is-a-wealthy-enclave-popular-with-celebrities
 
