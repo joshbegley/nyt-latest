@@ -1,3 +1,15 @@
+**How to watch Kings vs. Stars: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Kings play the Dallas Stars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6891976/2025/12/15/kings-vs-stars-stream-how-to-watch-dec-15/
+
+**How to watch Senators vs. Jets: Time, TV, streaming**\
+`Find out how to watch the Ottawa Senators play the Winnipeg Jets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6891973/2025/12/15/senators-vs-jets-stream-how-to-watch-dec-15/
+
+**Rob Reiner: A Life in Pictures**\
+`The actor-turned-director spent decades at the forefront of the entertainment world.`\
+https://nytimes.com/2025/12/15/movies/rob-reiner-photos.html
+
 **How to watch South Florida vs. Vanderbilt women's basketball: Time, TV, streaming**\
 `Find out how to watch the South Florida Bulls play the Vanderbilt Commodores, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6891963/2025/12/15/south-florida-vs-vanderbilt-stream-how-to-watch-dec-15/
@@ -19,18 +31,6 @@ https://nytimes.com/athletic/6891914/2025/12/15/josh-allen-nfl-mvp-week-15-riser
 https://nytimes.com/video/opinion/100000010583558/selling-young-men-on-the-blame-game.html
 
 **What the Maple Leafs are doing to get Auston Matthews' season on track**\
-`Matthews has 13 goals and 21 points through 26 games but has not taken over games the way he has in past seasons.`\
+`Matthews has 13 goals and 21 points through 26 games but has not taken over contests the way he has in past seasons.`\
 https://nytimes.com/athletic/6891745/2025/12/15/maple-leafs-auston-matthews-season/
-
-**The G.O.P.’s ‘Women Problem’**\
-`This started long before President Trump was in office, Michelle Cottle says.`\
-https://nytimes.com/video/opinion/100000010583555/the-gops-women-problem.html
-
-**How the Pandemic Lockdowns Changed a Songbird’s Beak**\
-`For ecologists, the Covid-19 pandemic has presented a remarkable natural experiment in what can happen to wild animals when humans stay home.`\
-https://nytimes.com/2025/12/15/science/covid-ecology-anthropause-birds.html
-
-**Here’s the Only Known Video of the Possible Brown University Gunman**\
-`It was captured on Saturday after the shooting as a man exited the engineering building where the attack took place.`\
-https://nytimes.com/2025/12/15/us/brown-university-shooting-suspect-video.html
 
