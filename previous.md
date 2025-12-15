@@ -1,3 +1,7 @@
+**Does a Jazz Chisholm Jr. trade make sense? 3 thoughts on the Yankees' offseason**\
+`The Yankees are the only AL East team without a notable external addition this offseason. What's next for Brian Cashman and company? `\
+https://nytimes.com/athletic/6888867/2025/12/15/yankees-jazz-chisholm-trade/
+
 **Hughes trade highlights the difficult road ahead in Rangers' pursuit of big splash**\
 `The Rangers reportedly put in an offer on the star defenseman, but it's unlikely New York had the trade capital to pose a realistic chance.`\
 https://nytimes.com/athletic/6885573/2025/12/15/rangers-quinn-hughes-trade-prospects/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6888420/2025/12/15/blackhawks-production-bedard-abs
 **49ers' Ricky Pearsall performs like the heir to Brandon Aiyuk in win over Titans**\
 `It's clear the 49ers are relying on Pearsall to become Aiyuk's successor in the receiving corps — this season and in the future.`\
 https://nytimes.com/athletic/6890111/2025/12/15/49ers-ricky-pearsall-brandon-aiyuk-titans/
-
-**Two bad teams entered the Meadowlands on Sunday, but desperate Commanders will take the win**\
-`All Washington has left is the hope that finishing strong now will lead to a smoother runway next season.`\
-https://nytimes.com/athletic/6888219/2025/12/15/desperate-commanders-beat-giants/
 

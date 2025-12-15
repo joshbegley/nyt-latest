@@ -1,3 +1,7 @@
+**Does a Jazz Chisholm Jr. trade make sense? 3 thoughts on the Yankees' offseason**\
+`The Yankees are the only AL East team without a notable external addition this offseason. What's next for Brian Cashman and company? `\
+https://nytimes.com/athletic/6888867/2025/12/15/yankees-jazz-chisholm-trade/
+
 **Hughes trade highlights the difficult road ahead in Rangers' pursuit of big splash**\
 `The Rangers reportedly put in an offer on the star defenseman, but it's unlikely New York had the trade capital to pose a realistic chance.`\
 https://nytimes.com/athletic/6885573/2025/12/15/rangers-quinn-hughes-trade-prospects/
