@@ -1,4 +1,12 @@
-**A Caleb Williams-to-DJ Moore magic trick was everything the Bears needed**\
+**Bills, Josh Allen leave it all on the field in gut-wrenching comeback against Patriots**\
+`The Bills stayed in the race for the AFC East title with the win.`\
+https://nytimes.com/athletic/6889603/2025/12/14/josh-allen-bills-comeback-patriots/
+
+**California Hires Former C.D.C. Officials Who Criticized Trump Administration**\
+`A former director of the Centers for Disease Control and Prevention and a former chief medical officer of the agency will advise the state on public health issues.`\
+https://nytimes.com/2025/12/14/us/california-newsom-cdc-trump.html
+
+**Caleb Williams-to-DJ Moore magic trick everything Bears needed**\
 `The Bears' 10th win of the season got its 'wow!' moment on a highlight-reel TD pass that broke the game open.`\
 https://nytimes.com/athletic/6889415/2025/12/14/bears-caleb-williams-dj-moore-browns/
 
@@ -10,7 +18,7 @@ https://nytimes.com/live/2025/12/12/world/hong-kong-jimmy-lai/heres-the-latest
 `Officials have cast Mr. Lai, a pro-democracy media tycoon, as the mastermind of protests that roiled the city in 2019. He could face life in prison.`\
 https://nytimes.com/live/2025/12/12/world/hong-kong-jimmy-lai
 
-**Seahawks takeaways: Myers' record-breaking day spoils Rivers' return**\
+**Seahawks takeaways: Jason Myers' record-breaking day spoils Rivers' return**\
 `Seattle couldn't find the end zone, but Jason Myers kicked six field goals in a hard-fought win.`\
 https://nytimes.com/athletic/6888681/2025/12/14/seahawks-colts-score-result-takeaways/
 
@@ -22,15 +30,7 @@ https://nytimes.com/athletic/6889471/2025/12/14/bills-patriots-week-15-afc-east-
 `All eyes were on Hurts to see what he would do after throwing four interceptions last week. `\
 https://nytimes.com/athletic/6889509/2025/12/14/jalen-hurts-eagles-win-stats-performance/
 
-**Packers' Micah Parsons leaves vs. Broncos with non-contact knee injury**\
-`Parsons was officially ruled questionable to return after injuring his left knee in the third quarter.`\
-https://nytimes.com/athletic/6889517/2025/12/14/micah-parsons-injury-left-knee-packers/
-
-**U.S. Military Plane and JetBlue Flight Nearly Collided Over Caribbean, Radio Traffic Shows**\
-`The Air Force refueling tanker was flying without its location transponder activated and could not be detected by air traffic control.`\
-https://nytimes.com/2025/12/14/world/americas/jetblue-venezuela-midair-collision-us-air-force.html
-
-**Texas A&M upsets Nebraska to advance to volleyball Final Four**\
-`The top-ranked Huskers lost for the first time in 34 matches this season.`\
-https://nytimes.com/athletic/6889373/2025/12/14/texas-am-nebraska-volleyball-final-four/
+**2025 NFL Simulator: Updated playoff picture and projected draft order after Week 15 results**\
+`How could your favorite team's season end? Find out all the possible paths here.`\
+https://nytimes.com/athletic/6513952/2025/12/14/2025-nfl-playoff-simulator-path-postseason/
 
