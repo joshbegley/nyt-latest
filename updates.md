@@ -1,3 +1,11 @@
+**Justice Dept. Charges Four in Los Angeles Over Left-Wing Bomb Plot**\
+`Administration officials said the case grew out of a presidential order declaring antifa to be a terrorist group.`\
+https://nytimes.com/2025/12/15/us/politics/los-angeles-bomb-plot.html
+
+**After Two Mass Shootings, Grief and Resilience**\
+`Readers react to the shootings at Bondi Beach in Sydney, Australia, and at Brown University. Also: Defining old; the East Wing teardown.`\
+https://nytimes.com/2025/12/15/opinion/sydney-australia-brown-shootings.html
+
 **Colts' Anthony Richardson cleared for football activities; Philip Rivers to start Week 16**\
 `Richardson has been on injured reserve since October after fracturing his orbital bone. `\
 https://nytimes.com/athletic/6891557/2025/12/15/colts-anthony-richardson-cleared-philip-rivers-starter/

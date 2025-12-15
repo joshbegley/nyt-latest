@@ -1,3 +1,11 @@
+**Chiefs' Andy Reid expects Patrick Mahomes to recover quickly from injury**\
+`Mahomes will get a second opinion on his knee from Dr. Dan Cooper, the Dallas Cowboys team physician and a well-known orthopedic surgeon.`\
+https://nytimes.com/athletic/6891668/2025/12/15/chiefs-patrick-mahomes-acl-recovery/
+
+**Bo Nix, Sean Payton are angling toward new heights in Broncos' QB-coach partnership**\
+`Nix on relationship with his play-caller and coach: "Together, we have something going right now."`\
+https://nytimes.com/athletic/6891548/2025/12/15/bo-nix-sean-payton-broncos-partnership/
+
 **Justice Dept. Charges Four in Los Angeles Over Left-Wing Bomb Plot**\
 `Administration officials said the case grew out of a presidential order declaring antifa to be a terrorist group.`\
 https://nytimes.com/2025/12/15/us/politics/los-angeles-bomb-plot.html
@@ -25,12 +33,4 @@ https://nytimes.com/2025/12/15/us/politics/trump-tech-workers.html
 **Cavaliers booed after latest loss to inferior team, and Donovan Mitchell says they deserved it**\
 `"I would boo us too," said Mitchell when asked about fans booing during Cleveland's 119-111 overtime defeat to Charlotte. `\
 https://nytimes.com/athletic/6891443/2025/12/15/donovan-mitchell-cavs-season-comments/
-
-**What I'm Hearing: Latest moves around MLS**\
-`Offseason player movement continues at a rapid pace. Here's the latest `\
-https://nytimes.com/athletic/6891517/2025/12/15/what-im-hearing-colorado-keeps-retooling-another-liga-mx-bid-and-more-around-mls/
-
-**Mets have work to do: Here's how they'll approach the rest of the offseason**\
-`Sources weigh in on which Mets players might be on the block, which type of players they're considering and a possible bullpen scenario.`\
-https://nytimes.com/athletic/6891520/2025/12/15/mets-mlb-offseason-moves-free-agents/
 

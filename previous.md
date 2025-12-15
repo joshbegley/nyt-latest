@@ -1,3 +1,11 @@
+**Justice Dept. Charges Four in Los Angeles Over Left-Wing Bomb Plot**\
+`Administration officials said the case grew out of a presidential order declaring antifa to be a terrorist group.`\
+https://nytimes.com/2025/12/15/us/politics/los-angeles-bomb-plot.html
+
+**After Two Mass Shootings, Grief and Resilience**\
+`Readers react to the shootings at Bondi Beach in Sydney, Australia, and at Brown University. Also: Defining old; the East Wing teardown.`\
+https://nytimes.com/2025/12/15/opinion/sydney-australia-brown-shootings.html
+
 **Colts' Anthony Richardson cleared for football activities; Philip Rivers to start Week 16**\
 `Richardson has been on injured reserve since October after fracturing his orbital bone. `\
 https://nytimes.com/athletic/6891557/2025/12/15/colts-anthony-richardson-cleared-philip-rivers-starter/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6891517/2025/12/15/what-im-hearing-colorado-keeps-r
 **Mets have work to do: Here's how they'll approach the rest of the offseason**\
 `Sources weigh in on which Mets players might be on the block, which type of players they're considering and a possible bullpen scenario.`\
 https://nytimes.com/athletic/6891520/2025/12/15/mets-mlb-offseason-moves-free-agents/
-
-**NFL Week 16 odds, spreads: Big shifts in Packers-Bears, Rams-Seahawks**\
-`Week 15 had seismic repercussions for the playoffs and this week's odds. Check out the winners and losers so far.`\
-https://nytimes.com/athletic/6891275/2025/12/15/nfl-week16-odds-spreads-packers-bears-rams-seahawks/
-
-**Sabres fire Kevyn Adams, name Jarmo Kekäläinen as GM**\
-`The Sabres announced Monday that Adams had been relieved of his duties as general manager.`\
-https://nytimes.com/athletic/6891723/2025/12/15/buffalo-sabres-kevyn-adams-jarmo-kekalainen/
 
