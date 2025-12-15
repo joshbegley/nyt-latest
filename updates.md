@@ -1,3 +1,11 @@
+**This Hanukkah, We Need the Light of Hope**\
+`We must not succumb to the darkness of hate and fear.`\
+https://nytimes.com/2025/12/15/opinion/hanukkah-attack-sydney-australia.html
+
+**The NBA Cup has become Wemby's world**\
+`After Wembanyama helped end Oklahoma City's winning streak, "everywhere" should start to be worried.`\
+https://nytimes.com/athletic/6890861/2025/12/15/victor-wembanyama-spurs-nba-cup-thunder-knicks/
+
 **The NBA Cup has become Wemby's world**\
 `This is becoming Wemby's world, and as he warned a year and a half ago, "everywhere" should be worried.`\
 https://nytimes.com/athletic/6890861/2025/12/15/victor-wembanyama-spurs-nba-cup-thunder-knicks/
