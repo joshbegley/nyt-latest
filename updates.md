@@ -1,3 +1,11 @@
+**Hughes trade highlights the difficult road ahead in Rangers' pursuit of big splash**\
+`The Rangers reportedly put in an offer on the star defenseman, but it's unlikely New York had the trade capital to pose a realistic chance.`\
+https://nytimes.com/athletic/6885573/2025/12/15/rangers-quinn-hughes-trade-prospects/
+
+**Drake Maye had a final shot, but it was the reigning MVP — Josh Allen — who stole the show**\
+`In a hard-fought game between division rivals with MVP-worthy quarterbacks, Allen took control to prevent Patriots' playoff party.`\
+https://nytimes.com/athletic/6889421/2025/12/15/patriots-bills-josh-allen-drake-maye-mvp-candidates/
+
 **Before F1 teams did huge hospitality, the paddock's first chef cooked next to the cars**\
 `In 2025, F1 teams have huge teams of staff to feed and entertain hundreds of guests each race. Back in 1979, Ferrari had just one chef`\
 https://nytimes.com/athletic/6890770/2025/12/15/f1-team-chef-pasticcino-ferrari/
