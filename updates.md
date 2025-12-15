@@ -1,3 +1,7 @@
+**Chris Finch was asked about the Timberwolves' rotation. He had answers ready**\
+`After a win over the Kings, Minnesota's coach explained why there are only so many minutes to go around for a deep squad.`\
+https://nytimes.com/athletic/6889590/2025/12/15/timberwolves-terrence-shannon-rob-dillingham-chris-finch-rotation/
+
 **An Update on Two Shootings**\
 `We have the latest from Brown University and Bondi Beach.`\
 https://nytimes.com/2025/12/15/briefing/an-update-on-two-shootings.html
