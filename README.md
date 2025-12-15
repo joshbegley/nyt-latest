@@ -14,7 +14,7 @@ https://nytimes.com/athletic/6892036/2025/12/15/tulane-vs-ole-miss-stream-how-to
 `Find out how to watch the Miami (FL) Hurricanes play the Texas A&M Aggies, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6892034/2025/12/15/miami-fl-vs-texas-a-m-stream-how-to-watch-dec-20/
 
-**Commanders shut down Jayden Daniels for rest of season: Source**\
+**Commanders shut down star QB Jayden Daniels for rest of season**\
 `Daniels’ second NFL season was limited to seven starts because of injuries. Marcus Mariota expected to start final three games.`\
 https://nytimes.com/athletic/6892008/2025/12/15/commanders-jayden-daniels-season-over/
 
