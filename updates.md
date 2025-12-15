@@ -1,3 +1,7 @@
+**Rodgers close to agreement to become head coach of Saudi club Al Qadsiah**\
+`The 52-year-old Northern Irishman has been out of work since resigning as Celtic manager in October.`\
+https://nytimes.com/athletic/6890610/2025/12/15/brendan-rodgers-manager-saudi-al-qadsiah/
+
 **Whitney Biennial Names 56 Artists to Unwind These ‘Weird Times’**\
 `The 2026 exhibition focuses on how artists measure American influence and their relationship to a country whose role in the world is changing.`\
 https://nytimes.com/2025/12/15/arts/design/whitney-biennial-56-artists.html
