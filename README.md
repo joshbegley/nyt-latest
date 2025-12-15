@@ -1,3 +1,7 @@
+**E.U. Flies 110 Tons of Aid to Darfur. But Will It Reach Those In Need?**\
+`The European Union has mounted an “air bridge” effort, with at least eight aid flights planned to Sudan. But getting supplies to the areas with the most dire need is an enormous challenge.`\
+https://nytimes.com/2025/12/15/world/africa/darfur-sudan-eu-aid.html
+
 **Vikings edge rusher Jonathan Greenard out for season with shoulder injury**\
 `The 2024 Pro Bowler reaggravated a shoulder injury in Sunday's victory over the Cowboys. He had three sacks this season for the Vikings.`\
 https://nytimes.com/athletic/6892112/2025/12/15/jonathan-greenard-vikings-shoulder-injury/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/15/us/nick-reiner-being-charlie.html
 **The shootings at Brown and in Sydney were a ‘gut punch’ for Providence’s Jewish community.**\
 `By Talya Minsberg`\
 https://nytimes.com/live/2025/12/15/us/brown-shooting/the-shootings-at-brown-and-in-sydney-were-a-gut-punch-for-providences-jewish-community
-
-**McLaughlin-Levrone, Thomas among several athletes owed more than $1m by GST**\
-`A Chapter 11 filing has disclosed the amounts that McLaughlin-Levrone and other several high-profile athletes are owed by GST.`\
-https://nytimes.com/athletic/6892119/2025/12/15/grand-slam-track-mclaughlin-levrone-thomas-bednarek/
 
