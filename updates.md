@@ -1,3 +1,19 @@
+**A Caleb Williams-to-DJ Moore magic trick was everything the Bears needed**\
+`The Bears' 10th win of the season got its 'wow!' moment on a highlight-reel TD pass that broke the game open.`\
+https://nytimes.com/athletic/6889415/2025/12/14/bears-caleb-williams-dj-moore-browns/
+
+**Here’s the latest.**\
+`By David Pierson`\
+https://nytimes.com/live/2025/12/12/world/hong-kong-jimmy-lai/heres-the-latest
+
+**Live Updates: Hong Kong Court to Hand Down Verdict in Jimmy Lai’s Trial**\
+`Officials have cast Mr. Lai, a pro-democracy media tycoon, as the mastermind of protests that roiled the city in 2019. He could face life in prison.`\
+https://nytimes.com/live/2025/12/12/world/hong-kong-jimmy-lai
+
+**Seahawks takeaways: Myers' record-breaking day spoils Rivers' return**\
+`Seattle couldn't find the end zone, but Jason Myers kicked six field goals in a hard-fought win.`\
+https://nytimes.com/athletic/6888681/2025/12/14/seahawks-colts-score-result-takeaways/
+
 **Seahawks takeaways: Myers' record-breaking day spoils Rivers' return**\
 `Seattle couldn't find the end zone, but Jason Myers kicked six field goals in a hard-fought win.`\
 https://nytimes.com/athletic/6888681/2025/12/14/colts-philip-rivers-seahawks-score-result-takeaways/
