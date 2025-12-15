@@ -1,3 +1,7 @@
+**Jimmy Lai Found Guilty by Hong Kong Court**\
+`The Hong Kong media tycoon Jimmy Lai was found guilty on Monday in a landmark national security trial. The 78-year-old founder of a popular pro-democracy paper could face life in prison.`\
+https://nytimes.com/video/world/asia/100000010587153/jimmy-lai-guilty-national-security.html
+
 **Democratic leaders mourn Reiner, a champion of liberal causes.**\
 `By Shashank Bengali and Jill Cowan`\
 https://nytimes.com/live/2025/12/15/us/rob-michele-reiner-dead/democratic-leaders-mourn-reiner-a-champion-of-liberal-causes
