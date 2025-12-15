@@ -1,3 +1,7 @@
+**The Next Steps for Gaza**\
+`A cease-fire is mostly holding, But tough issues remain, including the fate of Hamas weapons.`\
+https://nytimes.com/2025/12/15/world/gaza-israel-rob-reiner-australia.html
+
 **U.S. star Adams exits Bournemouth vs. Man United early with apparent injury**\
 `Tyler Adams, who has been a consistent standout for Bournemouth this season, was forced off early at Old Trafford on Monday`\
 https://nytimes.com/athletic/6892067/2025/12/15/tyler-adams-injury-bournemouth-manchester-united-usmnt/

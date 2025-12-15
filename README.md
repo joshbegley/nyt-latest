@@ -1,3 +1,7 @@
+**Padres' Yu Darvish unsure if he will pitch again after third elbow surgery**\
+`Darvish faces a long rehab from the elbow surgery he had in October and hasn't committed to returning to the mound at the end of the rehab.`\
+https://nytimes.com/athletic/6889030/2025/12/15/padres-yu-darvish-pitching-future/
+
 **The Next Steps for Gaza**\
 `A cease-fire is mostly holding, But tough issues remain, including the fate of Hamas weapons.`\
 https://nytimes.com/2025/12/15/world/gaza-israel-rob-reiner-australia.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/15/world/australia/albanese-gun-control-bondi-shooti
 **How to watch Tulane vs. Ole Miss: CFP First Round Start Time, TV, streaming**\
 `Find out how to watch the Tulane Green Wave play the Ole Miss Rebels, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6892036/2025/12/15/tulane-vs-ole-miss-stream-how-to-watch-dec-20/
-
-**How to watch Miami (FL) vs. Texas A&M: CFP First Round Start Time, TV, streaming**\
-`Find out how to watch the Miami (FL) Hurricanes play the Texas A&M Aggies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6892034/2025/12/15/miami-fl-vs-texas-a-m-stream-how-to-watch-dec-20/
 
