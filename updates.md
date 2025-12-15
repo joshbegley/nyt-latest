@@ -1,3 +1,11 @@
+**Selling Young Men on the Blame Game**\
+`It’s not a coincidence that more young men are blaming women for their problems, Jamelle Bouie says.`\
+https://nytimes.com/video/opinion/100000010583558/selling-young-men-on-the-blame-game.html
+
+**What the Maple Leafs are doing to get Auston Matthews' season on track**\
+`Matthews has 13 goals and 21 points through 26 games but has not taken over games the way he has in past seasons.`\
+https://nytimes.com/athletic/6891745/2025/12/15/maple-leafs-auston-matthews-season/
+
 **The G.O.P.’s ‘Women Problem’**\
 `This started long before President Trump was in office, Michelle Cottle says.`\
 https://nytimes.com/video/opinion/100000010583555/the-gops-women-problem.html
