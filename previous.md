@@ -1,3 +1,11 @@
+**Before F1 teams did huge hospitality, the paddock's first chef cooked next to the cars**\
+`In 2025, F1 teams have huge teams of staff to feed and entertain hundreds of guests each race. Back in 1979, Ferrari had just one chef`\
+https://nytimes.com/athletic/6890770/2025/12/15/f1-team-chef-pasticcino-ferrari/
+
+**Why Won’t Senators Stand Up to Trump? We Asked 3 Who Called It Quits.**\
+`The current and former lawmakers talk with Lulu Garcia-Navarro about bipartisan politics, party leadership and the state of the Senate.`\
+https://nytimes.com/video/podcasts/100000010587623/why-wont-senators-stand-up-to-trump-we-asked-3-who-called-it-quits.html
+
 **‘Brilliant and Kind’: Hollywood Pays Tribute to Rob Reiner**\
 `Stars of Mr. Reiner’s movies, as well as celebrities who simply admired his work, have posted heartfelt tributes to the director on social media.`\
 https://nytimes.com/2025/12/15/us/rob-reiner-tributes-hollywood-response.html
@@ -25,12 +33,4 @@ https://nytimes.com/2025/12/15/world/australia/ahmed-bondi-shooting-hero-tackled
 **Does a Jazz Chisholm Jr. trade make sense? 3 thoughts on the Yankees' offseason**\
 `The Yankees are the only AL East team without a notable external addition this offseason. What's next for Brian Cashman and company? `\
 https://nytimes.com/athletic/6888867/2025/12/15/yankees-jazz-chisholm-trade/
-
-**Hughes trade highlights the difficult road ahead in Rangers' pursuit of big splash**\
-`The Rangers reportedly put in an offer on the star defenseman, but it's unlikely New York had the trade capital to pose a realistic chance.`\
-https://nytimes.com/athletic/6885573/2025/12/15/rangers-quinn-hughes-trade-prospects/
-
-**Drake Maye had a final shot, but it was the reigning MVP — Josh Allen — who stole the show**\
-`In a hard-fought game between division rivals with MVP-worthy quarterbacks, Allen took control to prevent Patriots' playoff party.`\
-https://nytimes.com/athletic/6889421/2025/12/15/patriots-bills-josh-allen-drake-maye-mvp-candidates/
 

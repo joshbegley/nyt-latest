@@ -1,3 +1,11 @@
+**Before F1 teams did huge hospitality, the paddock's first chef cooked next to the cars**\
+`In 2025, F1 teams have huge teams of staff to feed and entertain hundreds of guests each race. Back in 1979, Ferrari had just one chef`\
+https://nytimes.com/athletic/6890770/2025/12/15/f1-team-chef-pasticcino-ferrari/
+
+**Why Won’t Senators Stand Up to Trump? We Asked 3 Who Called It Quits.**\
+`The current and former lawmakers talk with Lulu Garcia-Navarro about bipartisan politics, party leadership and the state of the Senate.`\
+https://nytimes.com/video/podcasts/100000010587623/why-wont-senators-stand-up-to-trump-we-asked-3-who-called-it-quits.html
+
 **‘Brilliant and Kind’: Hollywood Pays Tribute to Rob Reiner**\
 `Stars of Mr. Reiner’s movies, as well as celebrities who simply admired his work, have posted heartfelt tributes to the director on social media.`\
 https://nytimes.com/2025/12/15/us/rob-reiner-tributes-hollywood-response.html
