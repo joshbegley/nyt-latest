@@ -1,3 +1,15 @@
+**Australia Mourns After Bondi Beach Shooting**\
+`The belongings of people at Bondi Beach during a deadly shooting were lined up on the sand on Monday. People brought flowers and flags were lowered for the victims of the attack on a Jewish festival.`\
+https://nytimes.com/video/world/australia/100000010587158/sydney-bondi-beach-shooting.html
+
+**The New York Times in Print for Monday, Dec. 15, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/12/15/todays-new-york-times
+
+**‘Emily in Paris,’ Plus 10 Things to Watch on TV This Week**\
+`The Netflix rom-com series is back for a fifth season, and David Letterman’s interview show returns.`\
+https://nytimes.com/2025/12/15/arts/television/emily-in-paris-plus-10-things-to-watch-on-tv-this-week.html
+
 **Here’s the latest.**\
 `By Victoria Kim, Yan Zhuang, Jin Yu Young and Livia Albeck-Ripka`\
 https://nytimes.com/live/2025/12/15/world/bondi-beach-shooting-australia/heres-the-latest
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/6888614/2025/12/15/pau-torres-and-victor-lindelof/
 **Newcastle's safety-first approach horribly backfired – so what now after derby humbling?**\
 `Newcastle's season should not become defined by this fixture. But upcoming defeats will only be magnified in the wake of this result`\
 https://nytimes.com/athletic/6887888/2025/12/15/newcastle-sunderland-analysis/
-
-**Why 'humble' Ferdi Kadioglu's versatility will be crucial for Brighton over Christmas**\
-`Ferdi Kadioglu has played in 15 of 16 league games this season, he is Brighton best option at left-back over the coming weeks`\
-https://nytimes.com/athletic/6881592/2025/12/15/ferdi-kadioglu-brighton-liverpool-versatility/
-
-**Sangare shows why Forest fought to sign him... and why they'll miss him during AFCON**\
-`Ibrahim Sangare has struggled to play regularly for Forest but against Tottenham he showed just why he could still be a brilliant signing.`\
-https://nytimes.com/athletic/6888680/2025/12/15/nottingham-forest-sangare-tottenham-result/
-
-**Calvert-Lewin: Leeds United's free transfer whose goals are starting to prove invaluable**\
-`When Calvert-Lewin arrived at Leeds, some fans doubted his fitness and ability to score crucial goals. He's starting to prove them wrong.`\
-https://nytimes.com/athletic/6889359/2025/12/15/leeds-brentford-calvert-lewin/
 
