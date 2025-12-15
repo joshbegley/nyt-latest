@@ -1,3 +1,7 @@
+**Jewish Community on Edge Following Bondi Beach Attack**\
+`Following a deadly shooting on Sunday, members of the Australian Jewish community have expressed anger toward the government over a failure to do enough to address concerns about rising antisemitism in Australia.`\
+https://nytimes.com/video/world/australia/100000010587908/australia-shooting-jewish-voices.html
+
 **Commanders shut down star QB Jayden Daniels for rest of season**\
 `Daniels’ second NFL season was limited to seven starts because of injuries. Marcus Mariota expected to start final three games.`\
 https://nytimes.com/athletic/6892008/2025/12/15/commanders-jayden-daniels-season-over/
