@@ -1,3 +1,11 @@
+**PSA parent company Collectors to acquire Beckett**\
+`Collectors adds a third grading company to its stable, all of which will remain separate brands`\
+https://nytimes.com/athletic/6891882/2025/12/15/collectors-beckett-psa-card-grading/
+
+**Harvard’s President Will Stay in the Role Indefinitely**\
+`Alan M. Garber was appointed after his predecessor resigned under pressure. He has been in the role as Harvard fended off challenges from the Trump administration.`\
+https://nytimes.com/2025/12/15/us/harvard-president-alan-garber-trump.html
+
 **Padres' Yu Darvish unsure if he will pitch again after third elbow surgery**\
 `Darvish faces a long rehab from the elbow surgery he had in October and hasn't committed to returning to the mound at the end of the rehab.`\
 https://nytimes.com/athletic/6889030/2025/12/15/padres-yu-darvish-pitching-future/
@@ -25,12 +33,4 @@ https://nytimes.com/video/world/australia/100000010587908/australia-shooting-jew
 **Controlling Blood Sugar Cut Heart Disease Risk in Half, Study Says**\
 `People who brought their blood glucose down to a normal level had a lower risk of death from heart disease or hospitalization for heart failure after 20 years.`\
 https://nytimes.com/2025/12/15/well/blood-sugar-heart-disease-risk.html
-
-**Australian Leader Pledges Stricter Gun Laws After Deadly Bondi Shooting**\
-`The police said on Monday that they expected to bring criminal charges against the surviving suspect, who is in a coma after being shot by the police.`\
-https://nytimes.com/2025/12/15/world/australia/albanese-gun-control-bondi-shooting.html
-
-**How to watch Tulane vs. Ole Miss: CFP First Round Start Time, TV, streaming**\
-`Find out how to watch the Tulane Green Wave play the Ole Miss Rebels, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6892036/2025/12/15/tulane-vs-ole-miss-stream-how-to-watch-dec-20/
 
