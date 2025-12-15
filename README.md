@@ -1,3 +1,7 @@
+**Bears handle their easiest business with 31-3 win over Browns. Now comes the hard part**\
+`These just aren't your average Bears. They're smarter, tougher, more talented, and they're back atop the NFC North after the Packers' loss. `\
+https://nytimes.com/athletic/6889428/2025/12/14/bears-browns-nfc-playoff-race-tough-schedule/
+
 **After a 3-game layoff, Draymond Green is back in Warriors lineup**\
 `The Warriors are hopeful that Green will be able to stay healthy and get the Warriors back on track.`\
 https://nytimes.com/athletic/6889828/2025/12/14/draymond-green-returns-warriors-blazers/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6889663/2025/12/14/ny-giants-mike-kafka-ineptitude-
 **Ravens picked right time to play their best and most physical game of season**\
 `In shutting out Joe Burrow and the Bengals, the Ravens had their best performance of the season at a time when they couldn't afford a loss.`\
 https://nytimes.com/athletic/6889596/2025/12/14/ravens-defense-win-bengals-afc-north/
-
-**How to watch Alabama vs. Oklahoma: CFP First Round Start Time, TV, streaming**\
-`Find out how to watch the Alabama Crimson Tide play the Oklahoma Sooners, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6889850/2025/12/14/alabama-vs-oklahoma-stream-how-to-watch-dec-19/
 
