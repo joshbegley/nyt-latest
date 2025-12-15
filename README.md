@@ -1,3 +1,15 @@
+**Panthers-Saints takeaways: Shough comes up clutch in upset of Carolina**\
+`Quarterback helps Saints post back-to-back wins for the first time this season.`\
+https://nytimes.com/athletic/6889399/2025/12/14/panthers-saints-score-result-takeaways-nfl/
+
+**Joe Burrow’s feel-good story turns worse again as Bengals' season fizzles out**\
+`A home shutout loss eliminated Cincinnati from the playoffs and had the quarterback again searching for how to make things right.`\
+https://nytimes.com/athletic/6889685/2025/12/14/joe-burrow-bengals-ravens-playoff-elimination/
+
+**49ers-Titans takeaways: Brock Purdy shines to keep San Francisco playoff hopes alive**\
+`The 49ers are among three teams in the NFC West with at least 10 wins.`\
+https://nytimes.com/athletic/6889457/2025/12/14/titans-49ers-score-result-takeaways-nfl/
+
 **Brady Cook makes his future QB2 case as the Jets defense hits a new low**\
 `It was an ugly loss in Jacksonville, with a single, small glimmer of hope.`\
 https://nytimes.com/athletic/6889693/2025/12/14/brady-cook-first-start-jets-jaguars/
@@ -21,16 +33,4 @@ https://nytimes.com/live/2025/12/12/world/hong-kong-jimmy-lai/heres-the-latest
 **Live Updates: Hong Kong Court to Hand Down Verdict in Jimmy Lai’s Trial**\
 `Officials have cast Mr. Lai, a pro-democracy media tycoon, as the mastermind of protests that roiled the city in 2019. He could face life in prison.`\
 https://nytimes.com/live/2025/12/12/world/hong-kong-jimmy-lai
-
-**Seahawks takeaways: Jason Myers' record-breaking day spoils Rivers' return**\
-`Seattle couldn't find the end zone, but Jason Myers kicked six field goals in a hard-fought win.`\
-https://nytimes.com/athletic/6888681/2025/12/14/seahawks-colts-score-result-takeaways/
-
-**Patriots' title celebration postponed as Bills show they're still a scary late-season team**\
-`The Patriots could have clinched the AFC East title, but the Bills came back and showed they're still a force to be reckoned with.`\
-https://nytimes.com/athletic/6889471/2025/12/14/bills-patriots-week-15-afc-east-title/
-
-**How Jalen Hurts responded when 'everybody's watching': 31-0 victory, 154.9 passer rating, early exit**\
-`All eyes were on Hurts to see what he would do after throwing four interceptions last week. `\
-https://nytimes.com/athletic/6889509/2025/12/14/jalen-hurts-eagles-win-stats-performance/
 

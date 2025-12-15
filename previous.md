@@ -1,5 +1,9 @@
+**Brady Cook makes his future QB2 case as the Jets defense hits a new low**\
+`It was an ugly loss in Jacksonville, with a single, small glimmer of hope.`\
+https://nytimes.com/athletic/6889693/2025/12/14/brady-cook-first-start-jets-jaguars/
+
 **Bills, Josh Allen leave it all on the field in gut-wrenching comeback against Patriots**\
-`The Bills stayed in the race for the AFC East title with the win.`\
+`The Buffalo quarterback weathered a shaky stomach and a 21-point deficit to pull closer in the AFC East race.`\
 https://nytimes.com/athletic/6889603/2025/12/14/josh-allen-bills-comeback-patriots/
 
 **California Hires Former C.D.C. Officials Who Criticized Trump Administration**\
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6889471/2025/12/14/bills-patriots-week-15-afc-east-
 **How Jalen Hurts responded when 'everybody's watching': 31-0 victory, 154.9 passer rating, early exit**\
 `All eyes were on Hurts to see what he would do after throwing four interceptions last week. `\
 https://nytimes.com/athletic/6889509/2025/12/14/jalen-hurts-eagles-win-stats-performance/
-
-**2025 NFL Simulator: Updated playoff picture and projected draft order after Week 15 results**\
-`How could your favorite team's season end? Find out all the possible paths here.`\
-https://nytimes.com/athletic/6513952/2025/12/14/2025-nfl-playoff-simulator-path-postseason/
 

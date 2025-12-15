@@ -1,3 +1,11 @@
+**Brady Cook makes his future QB2 case as the Jets defense hits a new low**\
+`It was an ugly loss in Jacksonville, with a single, small glimmer of hope.`\
+https://nytimes.com/athletic/6889693/2025/12/14/brady-cook-first-start-jets-jaguars/
+
+**Bills, Josh Allen leave it all on the field in gut-wrenching comeback against Patriots**\
+`The Buffalo quarterback weathered a shaky stomach and a 21-point deficit to pull closer in the AFC East race.`\
+https://nytimes.com/athletic/6889603/2025/12/14/josh-allen-bills-comeback-patriots/
+
 **Bills, Josh Allen leave it all on the field in gut-wrenching comeback against Patriots**\
 `The Bills stayed in the race for the AFC East title with the win.`\
 https://nytimes.com/athletic/6889603/2025/12/14/josh-allen-bills-comeback-patriots/
