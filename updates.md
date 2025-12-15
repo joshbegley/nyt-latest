@@ -1,3 +1,7 @@
+**McLaughlin-Levrone, Thomas among several athletes owed more than $1m by GST**\
+`A Chapter 11 filing has disclosed the amounts that McLaughlin-Levrone and other several high-profile athletes are owed by GST.`\
+https://nytimes.com/athletic/6892119/2025/12/15/grand-slam-track-mclaughlin-levrone-thomas-bednarek/
+
 **The shootings at Brown and in Sydney were a ‘gut punch’ for Providence’s Jewish community.**\
 `By Talya Minsberg`\
 https://nytimes.com/live/2025/12/15/us/brown-shooting/the-shootings-at-brown-and-in-sydney-were-a-gut-punch-for-providences-jewish-community
