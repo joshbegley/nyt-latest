@@ -1,3 +1,7 @@
+**Reiner’s career spanned Hollywood and politics.**\
+`By Derrick Bryson Taylor and Shawn Hubler`\
+https://nytimes.com/live/2025/12/15/us/rob-michele-reiner-dead/reiners-career-hollywood-politics
+
 **Australia Mourns After Bondi Beach Shooting**\
 `The belongings of people at Bondi Beach during a deadly shooting were lined up on the sand on Monday. People brought flowers and flags were lowered for the victims of the attack on a Jewish festival.`\
 https://nytimes.com/video/world/australia/100000010587158/sydney-bondi-beach-shooting.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6875563/2025/12/15/australia-jake-weatherald-bat-jk
 **Lindelof is taking on the challenge of adapting to Villa's crucial Torres role**\
 `The former Man United player is a different defender to Torres, who is crucial to Emery's setup. But he adapted against West Ham`\
 https://nytimes.com/athletic/6888614/2025/12/15/pau-torres-and-victor-lindelof/
-
-**Newcastle's safety-first approach horribly backfired – so what now after derby humbling?**\
-`Newcastle's season should not become defined by this fixture. But upcoming defeats will only be magnified in the wake of this result`\
-https://nytimes.com/athletic/6887888/2025/12/15/newcastle-sunderland-analysis/
 
