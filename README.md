@@ -1,3 +1,11 @@
+**Selling Young Men on the Blame Game**\
+`It’s not a coincidence that more young men are blaming women for their problems, Jamelle Bouie says.`\
+https://nytimes.com/video/opinion/100000010583558/selling-young-men-on-the-blame-game.html
+
+**What the Maple Leafs are doing to get Auston Matthews' season on track**\
+`Matthews has 13 goals and 21 points through 26 games but has not taken over games the way he has in past seasons.`\
+https://nytimes.com/athletic/6891745/2025/12/15/maple-leafs-auston-matthews-season/
+
 **The G.O.P.’s ‘Women Problem’**\
 `This started long before President Trump was in office, Michelle Cottle says.`\
 https://nytimes.com/video/opinion/100000010583555/the-gops-women-problem.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6891825/2025/12/15/browns-shedeur-sanders-kevin-ste
 **Chiefs' Andy Reid expects Patrick Mahomes to recover quickly from injury**\
 `Mahomes will get a second opinion on his knee from Dr. Dan Cooper, the Dallas Cowboys team physician and a well-known orthopedic surgeon.`\
 https://nytimes.com/athletic/6891668/2025/12/15/chiefs-patrick-mahomes-acl-recovery/
-
-**Bo Nix, Sean Payton are angling toward new heights in Broncos' QB-coach partnership**\
-`Nix on his relationship with his play caller and coach: "Together, we have something going right now."`\
-https://nytimes.com/athletic/6891548/2025/12/15/bo-nix-sean-payton-broncos-partnership/
-
-**Justice Dept. Charges Four in Los Angeles Over Left-Wing Bomb Plot**\
-`Administration officials said the case grew out of a presidential order declaring antifa to be a terrorist group.`\
-https://nytimes.com/2025/12/15/us/politics/los-angeles-bomb-plot.html
 

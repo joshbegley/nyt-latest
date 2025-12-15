@@ -1,3 +1,15 @@
+**The G.O.P.’s ‘Women Problem’**\
+`This started long before President Trump was in office, Michelle Cottle says.`\
+https://nytimes.com/video/opinion/100000010583555/the-gops-women-problem.html
+
+**How the Pandemic Lockdowns Changed a Songbird’s Beak**\
+`For ecologists, the Covid-19 pandemic has presented a remarkable natural experiment in what can happen to wild animals when humans stay home.`\
+https://nytimes.com/2025/12/15/science/covid-ecology-anthropause-birds.html
+
+**Here’s the Only Known Video of the Possible Brown University Gunman**\
+`It was captured on Saturday after the shooting as a man exited the engineering building where the attack took place.`\
+https://nytimes.com/2025/12/15/us/brown-university-shooting-suspect-video.html
+
 **Police Release Only Known Video of Brown University Gunman**\
 `Authorities in Providence, R.I., released security camera footage of a person exiting the engineering building where the attack took place on Saturday.`\
 https://nytimes.com/video/us/100000010588602/brown-university-shooting-suspect-cctv.html
@@ -15,22 +27,10 @@ https://nytimes.com/athletic/6891825/2025/12/15/browns-shedeur-sanders-kevin-ste
 https://nytimes.com/athletic/6891668/2025/12/15/chiefs-patrick-mahomes-acl-recovery/
 
 **Bo Nix, Sean Payton are angling toward new heights in Broncos' QB-coach partnership**\
-`Nix on relationship with his play-caller and coach: "Together, we have something going right now."`\
+`Nix on his relationship with his play caller and coach: "Together, we have something going right now."`\
 https://nytimes.com/athletic/6891548/2025/12/15/bo-nix-sean-payton-broncos-partnership/
 
 **Justice Dept. Charges Four in Los Angeles Over Left-Wing Bomb Plot**\
 `Administration officials said the case grew out of a presidential order declaring antifa to be a terrorist group.`\
 https://nytimes.com/2025/12/15/us/politics/los-angeles-bomb-plot.html
-
-**After Two Mass Shootings, Grief and Resilience**\
-`Readers react to the shootings at Bondi Beach in Sydney, Australia, and at Brown University. Also: Defining old; the East Wing teardown.`\
-https://nytimes.com/2025/12/15/opinion/sydney-australia-brown-shootings.html
-
-**Colts' Anthony Richardson cleared for football activities; Philip Rivers to start Week 16**\
-`Richardson has been on injured reserve since October after fracturing his orbital bone. `\
-https://nytimes.com/athletic/6891557/2025/12/15/colts-anthony-richardson-cleared-philip-rivers-starter/
-
-**Rob Reiner Fought for Democrats, and They Loved Him Back**\
-`The Hollywood star was an unusually hands-on activist and donor, whose deep understanding of politics set him apart from other celebrities.`\
-https://nytimes.com/2025/12/15/us/politics/rob-reiner-democrats-politics.html
 

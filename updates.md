@@ -1,3 +1,19 @@
+**The G.O.P.’s ‘Women Problem’**\
+`This started long before President Trump was in office, Michelle Cottle says.`\
+https://nytimes.com/video/opinion/100000010583555/the-gops-women-problem.html
+
+**How the Pandemic Lockdowns Changed a Songbird’s Beak**\
+`For ecologists, the Covid-19 pandemic has presented a remarkable natural experiment in what can happen to wild animals when humans stay home.`\
+https://nytimes.com/2025/12/15/science/covid-ecology-anthropause-birds.html
+
+**Here’s the Only Known Video of the Possible Brown University Gunman**\
+`It was captured on Saturday after the shooting as a man exited the engineering building where the attack took place.`\
+https://nytimes.com/2025/12/15/us/brown-university-shooting-suspect-video.html
+
+**Bo Nix, Sean Payton are angling toward new heights in Broncos' QB-coach partnership**\
+`Nix on his relationship with his play caller and coach: "Together, we have something going right now."`\
+https://nytimes.com/athletic/6891548/2025/12/15/bo-nix-sean-payton-broncos-partnership/
+
 **Police Release Only Known Video of Brown University Gunman**\
 `Authorities in Providence, R.I., released security camera footage of a person exiting the engineering building where the attack took place on Saturday.`\
 https://nytimes.com/video/us/100000010588602/brown-university-shooting-suspect-cctv.html
