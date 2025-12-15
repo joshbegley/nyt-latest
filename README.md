@@ -1,3 +1,7 @@
+**Diego Pavia fires off angry message to Heisman voters after losing out**\
+`Pavia completed 71.2 percent of his passes for 3,192 yards and 27 touchdowns.`\
+https://nytimes.com/athletic/6889546/2025/12/14/diego-pavia-heisman-loss-reaction-vanderbilt/
+
 **Panthers-Saints takeaways: Shough comes up clutch in upset of Carolina**\
 `Quarterback helps Saints post back-to-back wins for the first time this season.`\
 https://nytimes.com/athletic/6889399/2025/12/14/panthers-saints-score-result-takeaways-nfl/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6889415/2025/12/14/bears-caleb-williams-dj-moore-br
 **Here’s the latest.**\
 `By David Pierson`\
 https://nytimes.com/live/2025/12/12/world/hong-kong-jimmy-lai/heres-the-latest
-
-**Live Updates: Hong Kong Court to Hand Down Verdict in Jimmy Lai’s Trial**\
-`Officials have cast Mr. Lai, a pro-democracy media tycoon, as the mastermind of protests that roiled the city in 2019. He could face life in prison.`\
-https://nytimes.com/live/2025/12/12/world/hong-kong-jimmy-lai
 
