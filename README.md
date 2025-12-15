@@ -1,3 +1,7 @@
+**Trump Said Freeing Jimmy Lai Would Be Easy. He Should Prove It.**\
+`The Hong Kong publisher’s fate will reveal whether democracies still have the resolve to defend their own values.`\
+https://nytimes.com/2025/12/14/opinion/china-hong-kong-jimmy-lai.html
+
 **Buffalo's 'ImprobaBills' may have found their identity in yet another unlikely win**\
 `The Bills have remained calm in the face of big deficits.`\
 https://nytimes.com/athletic/6889787/2025/12/14/buffalo-bills-comeback-win-locker-room/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6889856/2025/12/14/chargers-defense-playoffs-daiyan
 **Bears handle their easiest business with 31-3 win over Browns. Now comes the hard part**\
 `These just aren't your average Bears. They're smarter, tougher, more talented, and they're back atop the NFC North after the Packers' loss. `\
 https://nytimes.com/athletic/6889428/2025/12/14/bears-browns-nfc-playoff-race-tough-schedule/
-
-**After a 3-game layoff, Draymond Green is back in Warriors lineup**\
-`The Warriors are hopeful that Green will be able to stay healthy and get the Warriors back on track.`\
-https://nytimes.com/athletic/6889828/2025/12/14/draymond-green-returns-warriors-blazers/
 
