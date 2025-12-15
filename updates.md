@@ -1,3 +1,7 @@
+**St. Louis City closing in on Yoann Damet as next head coach**\
+`At 35 years old, Damet will be one of the youngest coaches in MLS.`\
+https://nytimes.com/athletic/6892364/2025/12/15/st-louis-city-yoann-damet-head-coach/
+
 **Tennis heat rule will apply across ATP Tour from 2026 season after player criticism**\
 `The men's circuit lacked an extreme heat policy. Now, if the Wet Bulb Globe Temperature hits or exceeds 90 degrees, outdoor play will stop.`\
 https://nytimes.com/athletic/6892302/2025/12/15/tennis-extreme-heat-rules-atp-tour/
