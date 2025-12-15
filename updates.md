@@ -1,3 +1,27 @@
+**Inside Barcelona: Has Hansi Flick finally fixed his defence?**\
+`Saturday's 2-0 home win against Osasuna brought significant signs of progress from Barca, after a rocky few months for their back line`\
+https://nytimes.com/athletic/6890767/2025/12/15/barcelona-la-liga-flick-garcia-defence/
+
+**Lowetide: How Vasily Podkolzin is finally delivering on draft-day promise**\
+`Podkolzin is blossoming as an offensive player and is perhaps finding the extra gear once predicted for him.`\
+https://nytimes.com/athletic/6888395/2025/12/15/oilers-vasily-podkolzin-stats-profile-highlights/
+
+**Trump Administration Live Updates: Officials Face Deadline to Withdraw Troops From L.A.**\
+``\
+https://nytimes.com/live/2025/12/15/us/trump-news
+
+**Hong Kong Media Tycoon’s Conviction Was Years in the Making**\
+`Jimmy Lai spent decades criticizing China’s rulers. He faces up to life in prison after a court found him guilty of national security crimes.`\
+https://nytimes.com/2025/12/15/world/asia/hong-kong-jimmy-lai-tycoon-china.html
+
+**Before F1 teams did huge hospitality, the paddock's first chef cooked next to the cars**\
+`In 2025, F1 teams have huge teams of staff to feed and entertain hundreds of guests each race. Back in 1979, Ferrari had just one chef`\
+https://nytimes.com/athletic/6890770/2025/12/15/f1-team-chef-pasticcino-ferrari/
+
+**Why Won’t Senators Stand Up to Trump? We Asked 3 Who Called It Quits.**\
+`Three current and former lawmakers talk with Lulu Garcia-Navarro about bipartisan politics, party leadership and the state of the Senate.`\
+https://nytimes.com/video/podcasts/100000010587623/why-wont-senators-stand-up-to-trump-we-asked-3-who-called-it-quits.html
+
 **Hughes trade highlights the difficult road ahead in Rangers' pursuit of big splash**\
 `The Rangers reportedly put in an offer on the star defenseman, but it's unlikely New York had the trade capital to pose a realistic chance.`\
 https://nytimes.com/athletic/6885573/2025/12/15/rangers-quinn-hughes-trade-prospects/

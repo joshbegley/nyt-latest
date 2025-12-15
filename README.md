@@ -1,3 +1,7 @@
+**Maresca refuses to retract 'worst 48hrs' comment, insists he is happy**\
+`After Saturday's 2-0 win against Everton, the head coach had made the complaint after saying "many people didn't support us".`\
+https://nytimes.com/athletic/6890876/2025/12/15/enzo-maresca-chelsea-comments-happy/
+
 **Inside Barcelona: Has Hansi Flick finally fixed his defence?**\
 `Saturday's 2-0 home win against Osasuna brought significant signs of progress from Barca, after a rocky few months for their back line`\
 https://nytimes.com/athletic/6890767/2025/12/15/barcelona-la-liga-flick-garcia-defence/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/15/us/rob-reiner-tributes-hollywood-response.html
 **FPL Gameweek 16 review: Load up on Man City players – but save room for Ekitike**\
 `From emerging forwards to renewed title contenders, here’s a full review of the weekend and what it means for your FPL squad going forward`\
 https://nytimes.com/athletic/6888926/2025/12/15/fantasy-premier-league-gameweek-16-review-fpl-tips/
-
-**Mailbag: Sorting through Notre Dame's ACC, ESPN and opt-out angst, one week later**\
-`Irish fans have questions about how Notre Dame got here and how they can avoid a replay of this brutal end to a season.`\
-https://nytimes.com/athletic/6890795/2025/12/15/notre-dame-mailbag-espn-cfp-acc/
 
