@@ -1,3 +1,7 @@
+**U.K. Spy Chief Warns of Acute Russia Threat: The ‘Frontline is Everywhere’**\
+`In her first public speech as head of MI6, Blaise Metreweli said Russia was attempting to export chaos to Europe through hybrid attacks and disinformation.`\
+https://nytimes.com/2025/12/15/world/europe/uk-mi6-russia-chaos.html
+
 **This Viral Sofa Is Made of Metal Poles**\
 `Have you sat on a camping chair and thought to yourself, “Wow, I wish this was a permanent piece of furniture in my home”? Probably not. Wirecutter writer Ivy Elrod reviewed the Anabei sofa.`\
 https://nytimes.com/video/smarter-living/wirecutter/100000010587952/this-viral-sofa-is-made-of-metal-poles.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6891090/2025/12/15/mariah-carey-milano-cortina-2026
 **How We Tested Earplugs for Sleeping**\
 `In her quest to find the most effective earplugs, sleep editor Christina Colizza turned to Wirecutter’s audio team to determine how much noise they actually reduced.`\
 https://nytimes.com/video/smarter-living/wirecutter/100000010587924/how-we-tested-earplugs-for-sleeping.html
-
-**U.S. Soldiers Killed in Syria Identified as Iowa National Guard Sergeants**\
-`The shooting attack in Palmyra, Syria, on Saturday struck troops deployed as part of an antiterrorism mission. Two were killed, along with an American civilian interpreter; three others were wounded.`\
-https://nytimes.com/2025/12/15/us/syria-killed-soldiers-iowa-national-guard.html
 
