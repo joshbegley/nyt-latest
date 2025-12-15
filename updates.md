@@ -1,3 +1,19 @@
+**Australia Urged to Act Faster on Antisemitism After Bondi Beach Attack**\
+`Jillian Segal, the country’s special envoy to combat antisemitism, said the deadly incident was shocking but not surprising amid a rise in violence targeting the Jewish community.`\
+https://nytimes.com/2025/12/15/world/australia/australia-antisemitism-jewish-attacks-bondi-beach.html
+
+**The Bounce: A fun NBA Cup final awaits**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/6891103/2025/12/15/the-bounce-nba-cup-spurs-knicks-wembanyama/
+
+**The Windup: A doozy of a trade**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6891176/2025/12/15/royals-brewers-trade-the-windup/
+
+**Australian Leaders Promise to Tighten Gun Laws After Bondi Beach Attack**\
+`The prime minister’s office said officials agreed that Australia needed “immediate” reform, including new restrictions on who is allowed to own firearms.`\
+https://nytimes.com/2025/12/15/world/australia/australia-gun-laws-bondi-shooting-attack.html
+
 **Can Week 15's surprise fantasy stars keep scoring? Here's the verdict.**\
 `KC Joyner vets Week 15's breakout players to determine if they can sustain their success down the stretch.`\
 https://nytimes.com/athletic/6890667/2025/12/15/fantasy-football-week-15-breakouts-trevor-lawrence/
