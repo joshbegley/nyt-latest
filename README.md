@@ -1,3 +1,7 @@
+**Rob Reiner’s Son Arrested After Fatal Stabbing**\
+`Also, police search for Brown University shooter. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2025/12/15/briefing/rob-reiners-son-arrested.html
+
 **E.U. Flies 110 Tons of Aid to Darfur. But Will It Reach Those In Need?**\
 `The European Union has mounted an “air bridge” effort, with at least eight aid flights planned to Sudan. But getting supplies to the areas with the most dire need is an enormous challenge.`\
 https://nytimes.com/2025/12/15/world/africa/darfur-sudan-eu-aid.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/15/movies/rob-reiner-films-activism.html
 **Rob and Nick Reiner Made a Movie About a Turbulent Father-Son Relationship**\
 `Nick Reiner, who struggled with drug addiction, wrote “Being Charlie” during a period of sobriety. His father directed the film.`\
 https://nytimes.com/2025/12/15/us/nick-reiner-being-charlie.html
-
-**The shootings at Brown and in Sydney were a ‘gut punch’ for Providence’s Jewish community.**\
-`By Talya Minsberg`\
-https://nytimes.com/live/2025/12/15/us/brown-shooting/the-shootings-at-brown-and-in-sydney-were-a-gut-punch-for-providences-jewish-community
 
