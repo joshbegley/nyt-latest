@@ -1,3 +1,11 @@
+**Wild cruise, notch 6 goals as Quinn Hughes scores in exciting debut: Takeaways**\
+`Quinn became the sixth defenseman in franchise history to score a goal in his debut as five Wild players scored one goal.`\
+https://nytimes.com/athletic/6889962/2025/12/14/wild-quinn-hughes-goals-debut-bruins/
+
+**LeBron James, Dillon Brooks trade barbs and buckets in Lakers-Suns thriller**\
+`Following Brooks’ ejection, James missed the technical free throw that would've tied Sunday's game.`\
+https://nytimes.com/athletic/6890277/2025/12/14/suns-lakers-result-brooks-james-fouls/
+
 **Quinn Hughes' dazzling first impression with Wild and why he's 'extremely open-minded' to staying**\
 `The newest Wild player had a very eventful day, from equipment catastrophes to scoring a goal on his debut.`\
 https://nytimes.com/athletic/6890014/2025/12/14/wild-quinn-hughes-debut-equipment-guerin/
