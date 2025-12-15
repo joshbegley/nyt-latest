@@ -1,3 +1,7 @@
+**Trial Opens for Judge Accused of Steering Immigrant Away from Federal Agents**\
+`“There was no corrupt intent,” the judge’s lawyer said in an opening statement. Prosecutors said the judge’s political views made her “cross the line.”`\
+https://nytimes.com/2025/12/15/us/milwaukee-judge-immigration.html
+
 **St. Louis City closing in on Yoann Damet as next head coach**\
 `At 35 years old, Damet will be one of the youngest coaches in MLS.`\
 https://nytimes.com/athletic/6892364/2025/12/15/st-louis-city-yoann-damet-head-coach/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6892112/2025/12/15/jonathan-greenard-vikings-should
 **The Warriors have some big problems: A lack of continuity is high on the list**\
 `The Warriors have used 15 different starting lineups this season. Can they find continuity? `\
 https://nytimes.com/athletic/6891313/2025/12/15/warriors-starting-lineup-carousel-nba/
-
-**Anthony Geary, Luke on ‘General Hospital,’ Dies at 78**\
-`Portraying Luke Spencer, he was one of the best-known soap opera stars in American television. His onscreen romance with Laura Webber, played by Genie Francis, changed the landscape of daytime television.`\
-https://nytimes.com/2025/12/15/arts/television/anthony-geary-dead.html
 

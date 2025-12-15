@@ -1,3 +1,7 @@
+**Trial Opens for Judge Accused of Steering Immigrant Away from Federal Agents**\
+`“There was no corrupt intent,” the judge’s lawyer said in an opening statement. Prosecutors said the judge’s political views made her “cross the line.”`\
+https://nytimes.com/2025/12/15/us/milwaukee-judge-immigration.html
+
 **St. Louis City closing in on Yoann Damet as next head coach**\
 `At 35 years old, Damet will be one of the youngest coaches in MLS.`\
 https://nytimes.com/athletic/6892364/2025/12/15/st-louis-city-yoann-damet-head-coach/
