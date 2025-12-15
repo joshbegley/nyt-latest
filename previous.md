@@ -1,4 +1,20 @@
-**U.K. Spy Chief Warns of Acute Russia Threat: The ‘Frontline is Everywhere’**\
+**Renate Reinsve Talks Levity, Joachim Trier and Quantum Physics**\
+`“I would feel deflated if I couldn’t go into something deeply existential and explore,” said the Norwegian actress, who stars in the Oscar-buzzy “Sentimental Value.”`\
+https://nytimes.com/2025/12/15/movies/renate-reinsve-actor.html
+
+**Thomas Frank given backing of Spurs owners following hierarchy discussions**\
+`The current position of the majority shareholding Lewis family is to stick with Frank and to give him the time that he needs.`\
+https://nytimes.com/athletic/6891062/2025/12/15/thomas-frank-tottenham-future-lewis/
+
+**NBA Power Rankings: Trade winds are starting to blow across the league**\
+`Dec. 15 is a holiday for many NBA fans as trade restrictions are lifted for many of the offseason’s free-agent acquisitions.`\
+https://nytimes.com/athletic/6891129/2025/12/15/nba-power-rankings-knicks-warriors-trade-season/
+
+**‘Weird’ Townhouse Gave Couple Chance at Realizing Brooklyn Dream**\
+`Absent the detail of neighboring homes and only 12 feet wide, an 1899 building in need of renovations gave an architect and a designer an opportunity to buy in Cobble Hill.`\
+https://nytimes.com/2025/12/15/realestate/cobble-hill-brooklyn-townhouse-renovation.html
+
+**U.K. Spy Chief Warns of Acute Russia Threat: The ‘Front Line Is Everywhere’**\
 `In her first public speech as head of MI6, Blaise Metreweli said Russia was attempting to export chaos to Europe through hybrid attacks and disinformation.`\
 https://nytimes.com/2025/12/15/world/europe/uk-mi6-russia-chaos.html
 
@@ -17,20 +33,4 @@ https://nytimes.com/athletic/6891326/2025/12/15/pistons-vs-celtics-stream-how-to
 **How to watch Panthers vs. Lightning: Time, TV, streaming**\
 `Find out how to watch the Florida Panthers play the Tampa Bay Lightning, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6891322/2025/12/15/panthers-vs-lightning-stream-how-to-watch-dec-15/
-
-**How to watch Ducks vs. Rangers: Time, TV, streaming**\
-`Find out how to watch the Anaheim Ducks play the New York Rangers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6891321/2025/12/15/ducks-vs-rangers-stream-how-to-watch-dec-15/
-
-**Blackhawks place Bedard on IR with upper-body injury**\
-`Bedard suffered an apparent shoulder injury that coach Jeff Blashill called a "freak accident" on Friday.`\
-https://nytimes.com/athletic/6890242/2025/12/15/connor-bedard-injury-ir-upper-body/
-
-**Mariah Carey to perform at 2026 Milan-Cortina Olympics Opening Ceremony**\
-`Carey will follow in the footsteps of Celine Dion and Lady Gaga, who delivered performances at the 2024 Paris Olympic opening ceremony.`\
-https://nytimes.com/athletic/6891090/2025/12/15/mariah-carey-milano-cortina-2026-olympics-opening-ceremony/
-
-**How We Tested Earplugs for Sleeping**\
-`In her quest to find the most effective earplugs, sleep editor Christina Colizza turned to Wirecutter’s audio team to determine how much noise they actually reduced.`\
-https://nytimes.com/video/smarter-living/wirecutter/100000010587924/how-we-tested-earplugs-for-sleeping.html
 
