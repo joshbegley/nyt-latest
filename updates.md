@@ -1,3 +1,7 @@
+**Bears handle their easiest business with 31-3 win over Browns. Now comes the hard part**\
+`These just aren't your average Bears. They're smarter, tougher, more talented, and they're back atop the NFC North after the Packers' loss. `\
+https://nytimes.com/athletic/6889428/2025/12/14/bears-browns-nfc-playoff-race-tough-schedule/
+
 **After a 3-game layoff, Draymond Green is back in Warriors lineup**\
 `The Warriors are hopeful that Green will be able to stay healthy and get the Warriors back on track.`\
 https://nytimes.com/athletic/6889828/2025/12/14/draymond-green-returns-warriors-blazers/
