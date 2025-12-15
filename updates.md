@@ -1,3 +1,7 @@
+**‘It: Welcome to Derry’ Season 1 Finale Recap: The Mist**\
+`A strange fog envelops the town, sowing fear and chaos. The monster is loose.`\
+https://nytimes.com/2025/12/14/arts/television/it-welcome-to-derry-recap-season-1-finale.html
+
 **It's time for Browns to make some changes. Lopsided loss to Bears only reinforces that**\
 `Of the 25 losses Cleveland has now earned over the last two seasons, this latest one to Chicago was one of the ugliest. `\
 https://nytimes.com/athletic/6889593/2025/12/14/browns-coaching-change-loss-bears/
