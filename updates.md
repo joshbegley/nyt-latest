@@ -1,3 +1,5 @@
+
+
 **Scottie Scheffler wins fourth consecutive PGA Tour player of the year**\
 `Aldrich Potgieter wins the Arnold Palmer Award as rookie of the year.`\
 https://nytimes.com/athletic/6891328/2025/12/15/scottie-scheffler-aldrich-potgieter-pga-tour-awards/
