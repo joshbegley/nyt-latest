@@ -1,3 +1,7 @@
+**Packers' Micah Parsons leaves vs. Broncos with non-contact knee injury**\
+`Parsons was officially ruled questionable to return after injuring his left knee in the third quarter.`\
+https://nytimes.com/athletic/6889517/2025/12/14/micah-parsons-injury-left-knee-packers/
+
 **U.S. Military Plane and JetBlue Flight Nearly Collided Over Caribbean, Radio Traffic Shows**\
 `The Air Force refueling tanker was flying without its location transponder activated and could not be detected by air traffic control.`\
 https://nytimes.com/2025/12/14/world/americas/jetblue-venezuela-midair-collision-us-air-force.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6889332/2025/12/14/xabi-alonso-real-madrid-alaves-p
 **How did the Chiefs fall apart? How did the Bills stun the Pats? Experts' Week 15 takeaways**\
 `The Bills pulled off one of the most improbable comeback wins of the season, while Jalen Hurts and Lamar Jackson both bounced back.`\
 https://nytimes.com/athletic/6888715/2025/12/14/nfl-takeaways-week-15-scores-results/
-
-**House Republicans Accuse D.C. Police of Manipulating Crime Statistics**\
-`The committee cited interviews with police commanders in an effort to buttress President Trump’s federal takeover of law enforcement and the National Guard deployment in the capital city.`\
-https://nytimes.com/2025/12/14/us/politics/house-republicans-dc-crime.html
 

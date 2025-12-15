@@ -1,3 +1,7 @@
+**Packers' Micah Parsons leaves vs. Broncos with non-contact knee injury**\
+`Parsons was officially ruled questionable to return after injuring his left knee in the third quarter.`\
+https://nytimes.com/athletic/6889517/2025/12/14/micah-parsons-injury-left-knee-packers/
+
 **U.S. Military Plane and JetBlue Flight Nearly Collided Over Caribbean, Radio Traffic Shows**\
 `The Air Force refueling tanker was flying without its location transponder activated and could not be detected by air traffic control.`\
 https://nytimes.com/2025/12/14/world/americas/jetblue-venezuela-midair-collision-us-air-force.html
