@@ -1,3 +1,11 @@
+**What We Know About Rob Reiner and His Death**\
+`The director’s family said that he and his wife, Michele, had died on Sunday. The police said they had found two bodies at the Reiner home in Los Angeles.`\
+https://nytimes.com/2025/12/15/us/rob-reiner-michele-death-investigation.html
+
+**Nathan Lyon targets 'little fairytale' as he returns for Australia in Adelaide Test**\
+`Spin will play a part at the Adelaide Oval where Lyon could overtake Glenn McGrath to become Australia's second leading Test wicket-taker`\
+https://nytimes.com/athletic/6890553/2025/12/15/nathan-lyon-australia-ashes-mcgrath/
+
 **Jimmy Lai Found Guilty by Hong Kong Court**\
 `The Hong Kong media tycoon Jimmy Lai was found guilty on Monday in a landmark national security trial. The 78-year-old founder of a popular pro-democracy paper could face life in prison.`\
 https://nytimes.com/video/world/asia/100000010587153/jimmy-lai-guilty-national-security.html
