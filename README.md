@@ -1,3 +1,7 @@
+**The Next Steps for Gaza**\
+`A cease-fire is mostly holding, But tough issues remain, including the fate of Hamas weapons.`\
+https://nytimes.com/2025/12/15/world/gaza-israel-rob-reiner-australia.html
+
 **U.S. star Adams exits Bournemouth vs. Man United early with apparent injury**\
 `Tyler Adams, who has been a consistent standout for Bournemouth this season, was forced off early at Old Trafford on Monday`\
 https://nytimes.com/athletic/6892067/2025/12/15/tyler-adams-injury-bournemouth-manchester-united-usmnt/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6892036/2025/12/15/tulane-vs-ole-miss-stream-how-to
 **How to watch Miami (FL) vs. Texas A&M: CFP First Round Start Time, TV, streaming**\
 `Find out how to watch the Miami (FL) Hurricanes play the Texas A&M Aggies, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6892034/2025/12/15/miami-fl-vs-texas-a-m-stream-how-to-watch-dec-20/
-
-**Commanders shut down star QB Jayden Daniels for rest of season**\
-`Daniels’ second NFL season was limited to seven starts because of injuries. Marcus Mariota expected to start final three games.`\
-https://nytimes.com/athletic/6892008/2025/12/15/commanders-jayden-daniels-season-over/
 
