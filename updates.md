@@ -1,3 +1,11 @@
+**Anthony Geary, ‘General Hospital’ Star, Dies at 78**\
+`Portraying Luke Spencer, he was one of the best-known soap opera stars in American television. His onscreen romance with Laura Webber, played by Genie Francis, changed the landscape of daytime television.`\
+https://nytimes.com/2025/12/15/arts/television/anthony-geary-dead.html
+
+**Why a fresh start makes sense for both Dylan Raiola and Nebraska**\
+`Dylan Raiola and Nebraska produced two winning seasons together, but never transcended in the way they both believed they could.`\
+https://nytimes.com/athletic/6892080/2025/12/15/dylan-raiola-nebraska-qb-transfer-portal-reasons/
+
 **The Briefing: Man Utd 4 Bournemouth 4 - The most chaotic game of the season? Did Amorim change formation?**\
 `Manchester United fought back from 3-2 down to lead 4-3 with little time left on the clock, only for Bounemouth to grab a late equaliser`\
 https://nytimes.com/athletic/6888321/2025/12/15/the-briefing-man-utd-4-bournemouth-4/

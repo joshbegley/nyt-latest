@@ -1,3 +1,7 @@
+**The Warriors have some big problems: A lack of continuity is high on the list**\
+`The Warriors have used 15 different starting lineups this season. Can they find continuity? `\
+https://nytimes.com/athletic/6891313/2025/12/15/warriors-starting-lineup-carousel-nba/
+
 **Anthony Geary, ‘General Hospital’ Star, Dies at 78**\
 `Portraying Luke Spencer, he was one of the best-known soap opera stars in American television. His onscreen romance with Laura Webber, played by Genie Francis, changed the landscape of daytime television.`\
 https://nytimes.com/2025/12/15/arts/television/anthony-geary-dead.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6892119/2025/12/15/grand-slam-track-mclaughlin-levr
 **With return, Rivers extends NFL health insurance plan for 5 more years**\
 `Though his Hall of Fame candidacy now has to wait, Rivers unlocked some important health benefits with his return. `\
 https://nytimes.com/athletic/6892020/2025/12/15/philip-rivers-return-health-insurance-plan-extension/
-
-**PSA parent company Collectors to acquire Beckett**\
-`Collectors adds a third grading company to its stable, all of which will remain separate brands`\
-https://nytimes.com/athletic/6891882/2025/12/15/collectors-beckett-psa-card-grading/
 
