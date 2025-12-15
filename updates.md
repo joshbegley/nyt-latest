@@ -1,3 +1,15 @@
+**Is Amorim about to change Manchester United's formation?**\
+`Losing three key players to AFCON could play a part in the Portuguese trialling a new formation in the coming games`\
+https://nytimes.com/athletic/6888643/2025/12/15/is-ruben-amorim-about-to-change-his-manchester-united-formation/
+
+**Are the Islanders actually good, and should it change the long-term vision?**\
+`The Islanders are on pace for 102 points and sit second in the East. The standings can shift quickly, though, and prudence may be wise.`\
+https://nytimes.com/athletic/6889917/2025/12/15/new-york-islanders-analytics-projection-trade/
+
+**The Pulse: Say goodbye to these NFL teams**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6888684/2025/12/15/chiefs-vikings-bengals-eliminated-the-pulse/
+
 **Michele Singer Reiner: A Photographer Who Changed Movie History**\
 `Falling in love with her inspired the director Rob Reiner to give “When Harry Met Sally…” a new ending. The Reiners went on to work together on movies and political causes.`\
 https://nytimes.com/2025/12/15/us/michele-singer-reiner-dead.html

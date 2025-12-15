@@ -1,3 +1,15 @@
+**Is Amorim about to change Manchester United's formation?**\
+`Losing three key players to AFCON could play a part in the Portuguese trialling a new formation in the coming games`\
+https://nytimes.com/athletic/6888643/2025/12/15/is-ruben-amorim-about-to-change-his-manchester-united-formation/
+
+**Are the Islanders actually good, and should it change the long-term vision?**\
+`The Islanders are on pace for 102 points and sit second in the East. The standings can shift quickly, though, and prudence may be wise.`\
+https://nytimes.com/athletic/6889917/2025/12/15/new-york-islanders-analytics-projection-trade/
+
+**The Pulse: Say goodbye to these NFL teams**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6888684/2025/12/15/chiefs-vikings-bengals-eliminated-the-pulse/
+
 **Michele Singer Reiner: A Photographer Who Changed Movie History**\
 `Falling in love with her inspired the director Rob Reiner to give “When Harry Met Sally…” a new ending. The Reiners went on to work together on movies and political causes.`\
 https://nytimes.com/2025/12/15/us/michele-singer-reiner-dead.html
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/6885484/2025/12/15/celtics-jaylen-brown-trends-nba/
 **How the Bears defense put together its best game in years**\
 `The Bears increased their league-leading takeaways total to 30 in flattening the Browns 31-3 to move back into first place in the NFC North.`\
 https://nytimes.com/athletic/6889704/2025/12/15/bears-defense-best-game-browns/
-
-**How are the Knicks different from last season? NBA coaches weigh in**\
-`NBA coaches give their thoughts on how, or how not, the Knicks are different under Mike Brown.`\
-https://nytimes.com/athletic/6888331/2025/12/15/knicks-nba-cup-finals-coaches/
-
-**Which team has sports' ultimate front office? Take this 30-second poll**\
-`You've seen how the most powerful and influential executives have ranked their leagues' front offices. Now it's your turn.`\
-https://nytimes.com/athletic/6882601/2025/12/15/front-office-rankings-2025-fan-poll-thunder-dodgers/
-
-**It's tempting, but Raptors should avoid Giannis Antetokounmpo and Anthony Davis**\
-`Just because the Raptors have the pieces necessary to make a major trade work, doesn't mean they should. `\
-https://nytimes.com/athletic/6888467/2025/12/15/raptors-giannis-antetokounmpo-anthony-davis-nba-trade-deadline/
 
