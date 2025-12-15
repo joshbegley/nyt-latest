@@ -1,3 +1,11 @@
+**Here’s how Jimmy Lai became a politically outspoken tycoon.**\
+`By John Yoon and Alexandra Stevenson`\
+https://nytimes.com/live/2025/12/15/world/hong-kong-jimmy-lai/heres-how-jimmy-lai-became-a-politically-outspoken-tycoon
+
+**Broncos showed in win vs. Packers — with this Bo Nix — they can contend for it all**\
+`The second-year quarterback threw for 304 yards and four TDs in arguably the best performance of his career as Broncos clinch playoff spot.`\
+https://nytimes.com/athletic/6890088/2025/12/14/broncos-bo-nix-super-bowl-contender-packers/
+
 **Submit a question for Stewart Mandel's College Football Mailbag**\
 `<p>Hope you got some holiday shopping done before we spend next weekend watching CFP games.</p>
 <p>Leave your questions here. Please include your city.</p>
@@ -27,12 +35,4 @@ https://nytimes.com/athletic/6889324/2025/12/14/penguins-blowing-leads-10-observ
 **Trump Said Freeing Jimmy Lai Would Be Easy. He Should Prove It.**\
 `The Hong Kong publisher’s fate will reveal whether democracies still have the resolve to defend their own values.`\
 https://nytimes.com/2025/12/14/opinion/china-hong-kong-jimmy-lai.html
-
-**Buffalo's 'ImprobaBills' may have found their identity in yet another unlikely win**\
-`The Bills have remained calm in the face of big deficits.`\
-https://nytimes.com/athletic/6889787/2025/12/14/buffalo-bills-comeback-win-locker-room/
-
-**Emergency Responders Recount Horror of Sydney Shooting**\
-`Two medical professionals who live near Bondi Beach, where gunmen attacked a Hanukkah festival on Sunday, described a harrowing scene.`\
-https://nytimes.com/2025/12/14/world/australia/emergency-responders-sydney-shooting-recount-horror.html
 
