@@ -1,3 +1,15 @@
+**U.S. star Adams exits Bournemouth vs. Man United early with apparent injury**\
+`Tyler Adams, who has been a consistent standout for Bournemouth this season, was forced off early at Old Trafford on Monday`\
+https://nytimes.com/athletic/6892067/2025/12/15/tyler-adams-injury-bournemouth-manchester-united-usmnt/
+
+**Sheffield Wednesday takeover: Three bidders remain, including Mike Ashley**\
+`Wednesday are bottom of the Championship after being deducted 18 points for entering administration.`\
+https://nytimes.com/athletic/6892024/2025/12/15/sheffield-wednesday-takeover-ashley-dunfermline-latest/
+
+**Ford Will Take $19.5 Billion Hit as It Rolls Back E.V. Plans**\
+`Ford Motor said the costs come from its decision to make fewer electric vehicles than it had planned and more hybrids that use both gasoline engines and batteries.`\
+https://nytimes.com/2025/12/15/business/ford-electric-vehicles-hybrids.html
+
 **Jewish Community on Edge Following Bondi Beach Attack**\
 `Following a deadly shooting on Sunday, members of the Australian Jewish community have expressed anger toward the government over a failure to do enough to address concerns about rising antisemitism in Australia.`\
 https://nytimes.com/video/world/australia/100000010587908/australia-shooting-jewish-voices.html

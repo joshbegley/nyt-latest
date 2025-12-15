@@ -1,3 +1,15 @@
+**U.S. star Adams exits Bournemouth vs. Man United early with apparent injury**\
+`Tyler Adams, who has been a consistent standout for Bournemouth this season, was forced off early at Old Trafford on Monday`\
+https://nytimes.com/athletic/6892067/2025/12/15/tyler-adams-injury-bournemouth-manchester-united-usmnt/
+
+**Sheffield Wednesday takeover: Three bidders remain, including Mike Ashley**\
+`Wednesday are bottom of the Championship after being deducted 18 points for entering administration.`\
+https://nytimes.com/athletic/6892024/2025/12/15/sheffield-wednesday-takeover-ashley-dunfermline-latest/
+
+**Ford Will Take $19.5 Billion Hit as It Rolls Back E.V. Plans**\
+`Ford Motor said the costs come from its decision to make fewer electric vehicles than it had planned and more hybrids that use both gasoline engines and batteries.`\
+https://nytimes.com/2025/12/15/business/ford-electric-vehicles-hybrids.html
+
 **Jewish Community on Edge Following Bondi Beach Attack**\
 `Following a deadly shooting on Sunday, members of the Australian Jewish community have expressed anger toward the government over a failure to do enough to address concerns about rising antisemitism in Australia.`\
 https://nytimes.com/video/world/australia/100000010587908/australia-shooting-jewish-voices.html
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/6892034/2025/12/15/miami-fl-vs-texas-a-m-stream-how
 **Commanders shut down star QB Jayden Daniels for rest of season**\
 `Daniels’ second NFL season was limited to seven starts because of injuries. Marcus Mariota expected to start final three games.`\
 https://nytimes.com/athletic/6892008/2025/12/15/commanders-jayden-daniels-season-over/
-
-**He Recorded China’s Detention of Uyghurs. The U.S. Wants to Deport Him to Uganda.**\
-`Heng Guan fled to the United States and released rare video evidence of China’s clampdown. His supporters say that sending him to Uganda puts him at risk.`\
-https://nytimes.com/2025/12/15/us/heng-guan-china-uyghurs-deportation-uganda.html
-
-**Submit your questions for our next Cubs mailbags**\
-`With transactions around the league flowing, what questions do you have about the Cubs? Submit them here. `\
-https://nytimes.com/athletic/6891840/2025/12/15/chicago-cubs-offseason-mailbag-discussion/
-
-**Jeffery Simmons’ Tennessee home robbed during Titans’ game in San Francisco**\
-`During Sunday’s game in California, authorities say a group of six burglars broke into Simmons' home in Tennessee. `\
-https://nytimes.com/athletic/6891811/2025/12/15/titans-jeffery-simmons-home-robbery-tennessee/
 
