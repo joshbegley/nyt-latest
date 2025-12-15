@@ -1,3 +1,11 @@
+**49ers-Titans takeaways: Brock Purdy shines to keep San Francisco playoff hopes alive**\
+`The 49ers are among three teams in the NFC West with at least 10 wins.`\
+https://nytimes.com/athletic/6889457/2025/12/14/titans-49ers-score-result-takeaways-nfl/
+
+**Bills, Josh Allen leave it all on the field in gut-wrenching comeback against Patriots**\
+`The Buffalo quarterback weathered a shaky stomach and a 21-point deficit to pull closer in the AFC East race.`\
+https://nytimes.com/athletic/6889603/2025/12/14/josh-allen-bills-comeback-patriots/
+
 **Ravens picked right time to play their best and most physical game of season**\
 `In shutting out Joe Burrow and the Bengals, the Ravens had their best performance of the season at a time when they couldn't afford a loss.`\
 https://nytimes.com/athletic/6889596/2025/12/14/ravens-defense-win-bengals-afc-north/
