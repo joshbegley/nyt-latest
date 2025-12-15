@@ -1,3 +1,15 @@
+**Australia Mourns After Bondi Beach Shooting**\
+`The belongings of people at Bondi Beach during a deadly shooting were lined up on the sand on Monday. People brought flowers and flags were lowered for the victims of the attack on a Jewish festival.`\
+https://nytimes.com/video/world/australia/100000010587158/sydney-bondi-beach-shooting.html
+
+**The New York Times in Print for Monday, Dec. 15, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/12/15/todays-new-york-times
+
+**‘Emily in Paris,’ Plus 10 Things to Watch on TV This Week**\
+`The Netflix rom-com series is back for a fifth season, and David Letterman’s interview show returns.`\
+https://nytimes.com/2025/12/15/arts/television/emily-in-paris-plus-10-things-to-watch-on-tv-this-week.html
+
 **Here’s the latest.**\
 `By Victoria Kim, Yan Zhuang, Jin Yu Young and Livia Albeck-Ripka`\
 https://nytimes.com/live/2025/12/15/world/bondi-beach-shooting-australia/heres-the-latest
