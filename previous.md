@@ -1,3 +1,7 @@
+**Buffalo's 'ImprobaBills' may have found their identity in yet another unlikely win**\
+`The Bills have remained calm in the face of big deficits.`\
+https://nytimes.com/athletic/6889787/2025/12/14/buffalo-bills-comeback-win-locker-room/
+
 **Emergency Responders Recount Horror of Sydney Shooting**\
 `Two medical professionals who live near Bondi Beach, where gunmen attacked a Hanukkah festival on Sunday, described a harrowing scene.`\
 https://nytimes.com/2025/12/14/world/australia/emergency-responders-sydney-shooting-recount-horror.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6889428/2025/12/14/bears-browns-nfc-playoff-race-to
 **After a 3-game layoff, Draymond Green is back in Warriors lineup**\
 `The Warriors are hopeful that Green will be able to stay healthy and get the Warriors back on track.`\
 https://nytimes.com/athletic/6889828/2025/12/14/draymond-green-returns-warriors-blazers/
-
-**Jimmy Lai’s Life, in Photos and Video**\
-`He attributed his rags-to-riches ascent to the freedoms of Hong Kong, and has paid a hefty price for defending them.`\
-https://nytimes.com/2025/12/14/world/asia/jimmy-lai-photos-video.html
 
