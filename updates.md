@@ -1,3 +1,11 @@
+**The Warriors have some big problems: A lack of continuity is high on the list**\
+`The Warriors have used 15 different starting lineups this season. Can they find continuity? `\
+https://nytimes.com/athletic/6891313/2025/12/15/warriors-starting-lineup-carousel-nba/
+
+**Anthony Geary, Luke on ‘General Hospital,’ Dies at 78**\
+`Portraying Luke Spencer, he was one of the best-known soap opera stars in American television. His onscreen romance with Laura Webber, played by Genie Francis, changed the landscape of daytime television.`\
+https://nytimes.com/2025/12/15/arts/television/anthony-geary-dead.html
+
 **Anthony Geary, ‘General Hospital’ Star, Dies at 78**\
 `Portraying Luke Spencer, he was one of the best-known soap opera stars in American television. His onscreen romance with Laura Webber, played by Genie Francis, changed the landscape of daytime television.`\
 https://nytimes.com/2025/12/15/arts/television/anthony-geary-dead.html
