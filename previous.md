@@ -1,3 +1,7 @@
+**Patriots' title celebration postponed as Bills show they're still a scary late-season team**\
+`The Patriots could have clinched the AFC East title, but the Bills came back and showed they're still a force to be reckoned with.`\
+https://nytimes.com/athletic/6889471/2025/12/14/bills-patriots-week-15-afc-east-title/
+
 **How Jalen Hurts responded when 'everybody's watching': 31-0 victory, 154.9 passer rating, early exit**\
 `All eyes were on Hurts to see what he would do after throwing four interceptions last week. `\
 https://nytimes.com/athletic/6889509/2025/12/14/jalen-hurts-eagles-win-stats-performance/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6889323/2025/12/14/kristaps-porzingis-hawks-status-
 **Lift on the Slopes**\
 `Jeff Jerome and Andrea Carla Michaels make their debut as collaborators in The New York Times.`\
 https://nytimes.com/2025/12/14/crosswords/daily-puzzle-2025-12-15.html
-
-**Real Madrid beat Alaves 2-1 to ease pressure on Alonso for now**\
-`The victory was just Madrid's third win in their last nine games.`\
-https://nytimes.com/athletic/6889332/2025/12/14/xabi-alonso-real-madrid-alaves-pressure/
 

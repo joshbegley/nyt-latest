@@ -1,3 +1,7 @@
+**Seahawks takeaways: Myers' record-breaking day spoils Rivers' return**\
+`Seattle couldn't find the end zone, but Jason Myers kicked six field goals in a hard-fought win.`\
+https://nytimes.com/athletic/6888681/2025/12/14/colts-philip-rivers-seahawks-score-result-takeaways/
+
 **Patriots' title celebration postponed as Bills show they're still a scary late-season team**\
 `The Patriots could have clinched the AFC East title, but the Bills came back and showed they're still a force to be reckoned with.`\
 https://nytimes.com/athletic/6889471/2025/12/14/bills-patriots-week-15-afc-east-title/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/14/world/australia/suspects-identified-bondi-beach-a
 **Due to an illness, Kristaps Porziņģis will be away from the Hawks for 2 weeks**\
 `Porziņģis has not played since Dec. 5, when he scored 25 points in a home loss to the Denver Nuggets.`\
 https://nytimes.com/athletic/6889323/2025/12/14/kristaps-porzingis-hawks-status-illness/
-
-**Lift on the Slopes**\
-`Jeff Jerome and Andrea Carla Michaels make their debut as collaborators in The New York Times.`\
-https://nytimes.com/2025/12/14/crosswords/daily-puzzle-2025-12-15.html
 
