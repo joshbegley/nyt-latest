@@ -1,3 +1,11 @@
+**USMNT Tracker: Whisper it, but Reyna is getting regular minutes. Plus: Return of the Jedi!**\
+`Reyna is getting consistent game time, the real reason Pulisic was substituted and Robinson plays the full match in Fulham win`\
+https://nytimes.com/athletic/6890868/2025/12/15/usmnt-gio-reyna-jedi-robinson/
+
+**San Francisco Giants trade candidate: Brendan Donovan**\
+`Donovan isn't a star, but he's a good player, as they say, and the Giants could always use more of those.`\
+https://nytimes.com/athletic/6890464/2025/12/15/sf-giants-brendan-donovan-trade-candidate/
+
 **Drance: Canucks win without Hughes, but Vancouver's future must be the focus**\
 `The three players Vancouver netted for Hughes made positive first impressions in their Canucks debuts on Sunday.`\
 https://nytimes.com/athletic/6889976/2025/12/15/canucks-devils-zeev-buium-marco-rossi-quinn-hughes/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6890861/2025/12/15/victor-wembanyama-spurs-nba-cup-
 **‘Don’t Feed the Pig’: The Anti-Corruption Call That Helped Topple a Government**\
 `Mass demonstrations in Bulgaria were spurred by spreading outrage over graft that many say was fueling an authoritarian power grab.`\
 https://nytimes.com/2025/12/15/world/europe/bulgaria-corruption-protests-government.html
-
-**SpaceX’s Next Big Launch Could Be an I.P.O.**\
-`Elon Musk’s rocket and satellite giant is already planning a stock sale at an $800 billion valuation. Going public could put it in the trillion-dollar club.`\
-https://nytimes.com/2025/12/15/business/dealbook/spacex-ipo-trillion-musk.html
-
-**Maresca refuses to retract 'worst 48hrs' comment, insists he is happy**\
-`After Saturday's 2-0 win against Everton, the head coach had made the complaint after saying "many people didn't support us".`\
-https://nytimes.com/athletic/6890876/2025/12/15/enzo-maresca-chelsea-comments-happy/
 
