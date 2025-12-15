@@ -1,3 +1,15 @@
+**The shootings at Brown and in Sydney were a ‘gut punch’ for Providence’s Jewish community.**\
+`By Talya Minsberg`\
+https://nytimes.com/live/2025/12/15/us/brown-shooting/the-shootings-at-brown-and-in-sydney-were-a-gut-punch-for-providences-jewish-community
+
+**McLaughlin-Levrone, Thomas among several athletes owned more than $1m by GST**\
+`A Chapter 11 filing has disclosed the amounts that McLaughlin-Levrone and other several high-profile athletes are owed by GST.`\
+https://nytimes.com/athletic/6892119/2025/12/15/grand-slam-track-mclaughlin-levrone-thomas-bednarek/
+
+**With return, Rivers extends NFL health insurance plan for 5 more years**\
+`Though his Hall of Fame candidacy now has to wait, Rivers unlocked some important health benefits with his return. `\
+https://nytimes.com/athletic/6892020/2025/12/15/philip-rivers-return-health-insurance-plan-extension/
+
 **PSA parent company Collectors to acquire Beckett**\
 `Collectors adds a third grading company to its stable, all of which will remain separate brands`\
 https://nytimes.com/athletic/6891882/2025/12/15/collectors-beckett-psa-card-grading/
