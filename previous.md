@@ -1,3 +1,7 @@
+**Zelensky to Meet U.S. Envoys and European Leaders in New Push to End War**\
+`For the second day running, President Volodymyr Zelensky of Ukraine was set to meet in Berlin with Steve Witkoff and Jared Kushner, two key Trump aides.`\
+https://nytimes.com/2025/12/15/world/europe/zelensky-berlin-ukraine-witkoff-russia-peace-talks.html
+
 **Is Amorim about to change Manchester United's formation?**\
 `Losing three key players to AFCON could play a part in the Portuguese trialling a new formation in the coming games`\
 https://nytimes.com/athletic/6888643/2025/12/15/is-ruben-amorim-about-to-change-his-manchester-united-formation/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6889858/2025/12/15/nhl-weekend-rankings-wild-devils
 **Celtics are rolling despite some occasional bumps. Here's what we've learned**\
 `With the Celtics playing well of late, writer Jay King takes a look at some of the trends he's noticing. `\
 https://nytimes.com/athletic/6885484/2025/12/15/celtics-jaylen-brown-trends-nba/
-
-**How the Bears defense put together its best game in years**\
-`The Bears increased their league-leading takeaways total to 30 in flattening the Browns 31-3 to move back into first place in the NFC North.`\
-https://nytimes.com/athletic/6889704/2025/12/15/bears-defense-best-game-browns/
 

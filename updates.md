@@ -1,3 +1,7 @@
+**Zelensky to Meet U.S. Envoys and European Leaders in New Push to End War**\
+`For the second day running, President Volodymyr Zelensky of Ukraine was set to meet in Berlin with Steve Witkoff and Jared Kushner, two key Trump aides.`\
+https://nytimes.com/2025/12/15/world/europe/zelensky-berlin-ukraine-witkoff-russia-peace-talks.html
+
 **Is Amorim about to change Manchester United's formation?**\
 `Losing three key players to AFCON could play a part in the Portuguese trialling a new formation in the coming games`\
 https://nytimes.com/athletic/6888643/2025/12/15/is-ruben-amorim-about-to-change-his-manchester-united-formation/
