@@ -1,3 +1,7 @@
+**Commanders shut down star QB Jayden Daniels for rest of season**\
+`Daniels’ second NFL season was limited to seven starts because of injuries. Marcus Mariota expected to start final three games.`\
+https://nytimes.com/athletic/6892008/2025/12/15/commanders-jayden-daniels-season-over/
+
 **Controlling Blood Sugar Cut Heart Disease Risk in Half, Study Says**\
 `People who brought their blood glucose down to a normal level had a lower risk of death from heart disease or hospitalization for heart failure after 20 years.`\
 https://nytimes.com/2025/12/15/well/blood-sugar-heart-disease-risk.html
