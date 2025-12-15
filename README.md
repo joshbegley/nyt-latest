@@ -1,3 +1,15 @@
+**How are the hobbled 49ers still in this? They found a different way to be great**\
+`Two defensive stars were lost for the season. Their QB missed multiple games. Still, here are the 49ers are, a game out of the No. 1 seed.`\
+https://nytimes.com/athletic/6890676/2025/12/15/san-francisco-49ers-playoff-picture-injuries-resilience/
+
+**Rob Reiner and His Wife Are Found Dead in Their Los Angeles Home**\
+`The Los Angeles Police Department was investigating what it described as “an apparent homicide” after the director Rob Reiner and his wife, Michele, were found dead in their home.`\
+https://nytimes.com/video/us/100000010587635/rob-reiner-director-dead.html
+
+**‘Titaníque,’ Singing and Spoofing Celine Dion, Sets Sail for Broadway**\
+`This zany musical made it from the basement of a Manhattan grocery to London’s West End, and now hopes to become Broadway’s next hit comedy.`\
+https://nytimes.com/2025/12/15/theater/titanique-broadway.html
+
 **NBA Rewind: The Knicks are red hot, and we're warming up to the NBA Cup**\
 `Who's hot (Nuggets, Grizzlies) and not (Blazers) in the NBA — and what to expect in Tuesday's Cup final.`\
 https://nytimes.com/athletic/6883990/2025/12/15/nba-rewind-knicks-spurs-nba-cup/
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/6889976/2025/12/15/canucks-devils-zeev-buium-marco-
 **The Former Yeezy Designer Remaking Crocs**\
 `Steven Smith created some of the most famous sneakers of all time. His new gig is all about foam.`\
 https://nytimes.com/2025/12/15/style/steven-smith-crocs-yeezy-designer.html
-
-**In A.I. Boom, Venture Capital Firms Are Raising Loads More Money**\
-`Lightspeed Venture Partners, a Silicon Valley venture firm, has amassed more than $9 billion to invest in artificial intelligence. That is its biggest haul.`\
-https://nytimes.com/2025/12/15/technology/ai-venture-capital-big-funds.html
-
-**Louvre Museum Staff Go on Daylong Strike, Shutting Out Tourists**\
-`About a fifth of the Louvre’s 2,100 employees voted to go on strike for the day, adding to the sense of crisis at the museum since a brazen heist in October.`\
-https://nytimes.com/2025/12/15/world/europe/louvre-strike-crisis-tourists.html
-
-**This Hanukkah, We Need the Light of Hope**\
-`We must not succumb to the darkness of hate and fear.`\
-https://nytimes.com/2025/12/15/opinion/hanukkah-attack-sydney-australia.html
 
