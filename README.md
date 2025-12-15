@@ -1,3 +1,7 @@
+**After a 3-game layoff, Draymond Green is back in Warriors lineup**\
+`The Warriors are hopeful that Green will be able to stay healthy and get the Warriors back on track.`\
+https://nytimes.com/athletic/6889828/2025/12/14/draymond-green-returns-warriors-blazers/
+
 **Jimmy Lai’s Life, in Photos and Video**\
 `He attributed his rags-to-riches ascent to the freedoms of Hong Kong, and has paid a hefty price for defending them.`\
 https://nytimes.com/2025/12/14/world/asia/jimmy-lai-photos-video.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6889596/2025/12/14/ravens-defense-win-bengals-afc-n
 **How to watch Alabama vs. Oklahoma: CFP First Round Start Time, TV, streaming**\
 `Find out how to watch the Alabama Crimson Tide play the Oklahoma Sooners, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6889850/2025/12/14/alabama-vs-oklahoma-stream-how-to-watch-dec-19/
-
-**Packers-Broncos takeaways: Bo Nix throws career-high four TDs**\
-`Nix threw for 302 yards and a career-high four touchdowns as the Broncos won their 11th straight game.`\
-https://nytimes.com/athletic/6889186/2025/12/14/packers-broncos-score-result-takeaways-nfl/
 
