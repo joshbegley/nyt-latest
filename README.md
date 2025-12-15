@@ -1,3 +1,11 @@
+**Officials Renew Search for Providence Shooter After Releasing Person of Interest**\
+`Hours after announcing they had detained a person in connection with the deadly shooting at Brown University, officials appealed to the public for new leads.`\
+https://nytimes.com/2025/12/15/us/brown-university-shooting-suspect.html
+
+**Inside Real Madrid: Have Vinicius Jr and Rodrygo saved Xabi Alonso from the sack?**\
+`There is still a great deal of pressure on Real Madrid's manager, after an unconvincing 2-1 win at Alaves on Sunday `\
+https://nytimes.com/athletic/6890596/2025/12/15/real-madrid-xabi-alonso-job-vinicius-jr-rodrygo/
+
 **Roomba Maker iRobot Files for Bankruptcy, With Chinese Supplier Taking Control**\
 `Founded in 1990 by three M.I.T. researchers, iRobot introduced its vacuum in 2002. Its restructuring will turn the company over to its largest creditor.`\
 https://nytimes.com/2025/12/15/business/roomba-irobot-bankruptcy.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6890697/2025/12/15/joe-burrow-bengals-ravens-carson
 **Lucky Broncos (again), right? Well, they haven't won 11 in a row by accident**\
 `Discount the Broncos' 11-game win streak all you want, but at a certain point, asterisks lose their impact.`\
 https://nytimes.com/athletic/6890664/2025/12/15/broncos-packers-win-streak-bo-nix/
-
-**What we learned in NFL Week 15: Bills looked primed for playoffs, new reality for Chiefs**\
-`Plus, the Denver Broncos and Los Angeles Rams inched a little closer to earning their respective conference’s No. 1 seeds.`\
-https://nytimes.com/athletic/6890063/2025/12/15/nfl-week-15-takeaways-josh-allen-drake-maye-patrick-mahomes/
-
-**The New York Times International Edition in Print for Tuesday, Dec. 16, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/12/15/todays-new-york-times-international-edition
 
