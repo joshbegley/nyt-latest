@@ -1,3 +1,7 @@
+**Rodgers close to agreement to become head coach of Saudi club Al Qadsiah**\
+`The 52-year-old Northern Irishman has been out of work since resigning as Celtic manager in October.`\
+https://nytimes.com/athletic/6890610/2025/12/15/brendan-rodgers-manager-saudi-al-qadsiah/
+
 **Whitney Biennial Names 56 Artists to Unwind These ‘Weird Times’**\
 `The 2026 exhibition focuses on how artists measure American influence and their relationship to a country whose role in the world is changing.`\
 https://nytimes.com/2025/12/15/arts/design/whitney-biennial-56-artists.html
@@ -29,8 +33,4 @@ https://nytimes.com/video/world/asia/100000010587153/jimmy-lai-guilty-national-s
 **Anthony Joshua interview: Critics of Jake Paul fight 'need to understand me. I don't need to understand them'**\
 `The two-time world champion has been criticised for taking a fight with the YouTuber, but he sees Friday's event as an 'opportunity'.`\
 https://nytimes.com/athletic/6879284/2025/12/15/anthony-joshua-interview-jake-paul/
-
-**With Prices Soaring, Can New York Survive as a Mecca for the Arts?**\
-`The number of artists living in the city has declined after growing sharply between 2004 and 2019. Almost 50 arts venues have closed in the past five years.`\
-https://nytimes.com/2025/12/15/nyregion/creative-economy-new-york-city.html
 
