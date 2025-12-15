@@ -1,3 +1,7 @@
+**Roomba Maker iRobot Files for Bankruptcy, With Chinese Supplier Taking Control**\
+`Founded in 1990 by three M.I.T. researchers, iRobot introduced its vacuum in 2002. Its restructuring will turn the company over to its largest creditor.`\
+https://nytimes.com/2025/12/15/business/roomba-irobot-bankruptcy.html
+
 **As Joe Burrow's season spirals further, cue the speculation about his future**\
 `Burrow is drawing comparisons to Carson Palmer and Andrew Luck, and not in a good way. Do they have merit?`\
 https://nytimes.com/athletic/6890697/2025/12/15/joe-burrow-bengals-ravens-carson-palmer-andrew-luck/

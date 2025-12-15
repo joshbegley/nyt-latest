@@ -1,3 +1,7 @@
+**Roomba Maker iRobot Files for Bankruptcy, With Chinese Supplier Taking Control**\
+`Founded in 1990 by three M.I.T. researchers, iRobot introduced its vacuum in 2002. Its restructuring will turn the company over to its largest creditor.`\
+https://nytimes.com/2025/12/15/business/roomba-irobot-bankruptcy.html
+
 **A Chiefs dynasty on pause, and the inspirational Philip Rivers: Sando's Pick Six**\
 `Patrick Mahomes' injury extinguished the Chiefs' final hope (and raised major questions), while Rivers gave Indy slim hope, even in defeat.`\
 https://nytimes.com/athletic/6885745/2025/12/15/patrick-mahomes-injury-chiefs-philip-rivers-pick-six/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6890063/2025/12/15/nfl-week-15-takeaways-josh-allen
 **The New York Times International Edition in Print for Tuesday, Dec. 16, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/12/15/todays-new-york-times-international-edition
-
-**Brazil, Ancelotti in advanced talks to extend contract beyond 2026 World Cup**\
-`The CBF is in talks over extending his deal through to 2030.`\
-https://nytimes.com/athletic/6884298/2025/12/15/brazil-carlo-ancelotti-contract-talks/
 
