@@ -1,3 +1,11 @@
+**An Update on Two Shootings**\
+`We have the latest from Brown University and Bondi Beach.`\
+https://nytimes.com/2025/12/15/briefing/an-update-on-two-shootings.html
+
+**Ahmed el Ahmed, Who Tackled a Bondi Beach Gunman, Was Seriously Injured**\
+`Mr. el Ahmed’s bravery in disarming one of the gunmen was praised by Australian officials and a video of his actions went viral worldwide. He is recovering in a hospital.`\
+https://nytimes.com/2025/12/15/world/australia/ahmed-bondi-shooting-hero-tackled-shooter-injured.html
+
 **Does a Jazz Chisholm Jr. trade make sense? 3 thoughts on the Yankees' offseason**\
 `The Yankees are the only AL East team without a notable external addition this offseason. What's next for Brian Cashman and company? `\
 https://nytimes.com/athletic/6888867/2025/12/15/yankees-jazz-chisholm-trade/
