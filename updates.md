@@ -1,3 +1,7 @@
+**Trump Said Freeing Jimmy Lai Would Be Easy. He Should Prove It.**\
+`The Hong Kong publisher’s fate will reveal whether democracies still have the resolve to defend their own values.`\
+https://nytimes.com/2025/12/14/opinion/china-hong-kong-jimmy-lai.html
+
 **Buffalo's 'ImprobaBills' may have found their identity in yet another unlikely win**\
 `The Bills have remained calm in the face of big deficits.`\
 https://nytimes.com/athletic/6889787/2025/12/14/buffalo-bills-comeback-win-locker-room/
