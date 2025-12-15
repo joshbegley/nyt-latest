@@ -1,3 +1,7 @@
+**This Hanukkah, We Need the Light of Hope**\
+`We must not succumb to the darkness of hate and fear.`\
+https://nytimes.com/2025/12/15/opinion/hanukkah-attack-sydney-australia.html
+
 **The NBA Cup has become Wemby's world**\
 `This is becoming Wemby's world, and as he warned a year and a half ago, "everywhere" should be worried.`\
 https://nytimes.com/athletic/6890861/2025/12/15/victor-wembanyama-spurs-nba-cup-thunder-knicks/
@@ -29,8 +33,4 @@ https://nytimes.com/live/2025/12/15/us/trump-news
 **Hong Kong Media Tycoon’s Conviction Was Years in the Making**\
 `Jimmy Lai spent decades criticizing China’s rulers. He faces up to life in prison after a court found him guilty of national security crimes.`\
 https://nytimes.com/2025/12/15/world/asia/hong-kong-jimmy-lai-tycoon-china.html
-
-**Before F1 teams did huge hospitality, the paddock's first chef cooked next to the cars**\
-`In 2025, F1 teams have huge teams of staff to feed and entertain hundreds of guests each race. Back in 1979, Ferrari had just one chef`\
-https://nytimes.com/athletic/6890770/2025/12/15/f1-team-chef-pasticcino-ferrari/
 

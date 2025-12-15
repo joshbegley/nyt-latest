@@ -1,3 +1,19 @@
+**The NBA Cup has become Wemby's world**\
+`This is becoming Wemby's world, and as he warned a year and a half ago, "everywhere" should be worried.`\
+https://nytimes.com/athletic/6890861/2025/12/15/victor-wembanyama-spurs-nba-cup-thunder-knicks/
+
+**‘Don’t Feed the Pig’: The Anti-Corruption Call That Helped Topple a Government**\
+`Mass demonstrations in Bulgaria were spurred by spreading outrage over graft that many say was fueling an authoritarian power grab.`\
+https://nytimes.com/2025/12/15/world/europe/bulgaria-corruption-protests-government.html
+
+**SpaceX’s Next Big Launch Could Be an I.P.O.**\
+`Elon Musk’s rocket and satellite giant is already planning a stock sale at an $800 billion valuation. Going public could put it in the trillion-dollar club.`\
+https://nytimes.com/2025/12/15/business/dealbook/spacex-ipo-trillion-musk.html
+
+**Maresca refuses to retract 'worst 48hrs' comment, insists he is happy**\
+`After Saturday's 2-0 win against Everton, the head coach had made the complaint after saying "many people didn't support us".`\
+https://nytimes.com/athletic/6890876/2025/12/15/enzo-maresca-chelsea-comments-happy/
+
 **Inside Barcelona: Has Hansi Flick finally fixed his defence?**\
 `Saturday's 2-0 home win against Osasuna brought significant signs of progress from Barca, after a rocky few months for their back line`\
 https://nytimes.com/athletic/6890767/2025/12/15/barcelona-la-liga-flick-garcia-defence/
