@@ -1,3 +1,15 @@
+**To Learn How to Live, My Students Studied the Dead**\
+`A social studies teacher explores what writing obituaries of “overlooked” relatives can teach students about contributing meaningfully to society.`\
+https://nytimes.com/2025/12/15/learning/lesson-plans/to-learn-how-to-live-my-students-studied-the-dead.html
+
+**Which Complexion Booster Is Better?**\
+`Can a $15 complexion-booster stack up against a nearly $50 one? Beauty writer Neha Tandon put both to the test.`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010588146/which-complexion-booster-is-better.html
+
+**Blues' Holloway out 6 weeks after suffering lower-body injury in practice**\
+`Holloway is tied for the team lead with eight goals and second with 17 points.`\
+https://nytimes.com/athletic/6891131/2025/12/15/blues-dylan-holloway-injury/
+
 **Boston Globe’s Former Top Editor Returns**\
 `Brian McGrory led the news organization for a decade until he departed in early 2023.`\
 https://nytimes.com/2025/12/15/business/media/boston-globes-former-top-editor-returns.html
@@ -21,16 +33,4 @@ https://nytimes.com/2025/12/15/world/middleeast/narge-mohammadi-iran-beating.htm
 **Despite Challenges, the Berlin Film Festival Moves Forward**\
 `The festival, which takes place in winter and late in the award season, has, in recent years, been somewhat overshadowed by its sister events in Cannes and Venice.`\
 https://nytimes.com/2025/12/15/movies/berlin-film-festival-europe.html
-
-**Renate Reinsve Talks Levity, Joachim Trier and Quantum Physics**\
-`“I would feel deflated if I couldn’t go into something deeply existential and explore,” said the Norwegian actress, who stars in the Oscar-buzzy “Sentimental Value.”`\
-https://nytimes.com/2025/12/15/movies/renate-reinsve-actor.html
-
-**Thomas Frank given backing of Spurs owners following hierarchy discussions**\
-`The current position of the majority shareholding Lewis family is to stick with Frank and to give him the time that he needs.`\
-https://nytimes.com/athletic/6891062/2025/12/15/thomas-frank-tottenham-future-lewis/
-
-**NBA Power Rankings: Trade winds are starting to blow across the league**\
-`Dec. 15 is a holiday for many NBA fans as trade restrictions are lifted for many of the offseason’s free-agent acquisitions.`\
-https://nytimes.com/athletic/6891129/2025/12/15/nba-power-rankings-knicks-warriors-trade-season/
 

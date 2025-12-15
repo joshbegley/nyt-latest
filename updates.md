@@ -1,3 +1,7 @@
+**Boston Globe’s Former Top Editor Returns**\
+`Brian McGrory led the news organization for a decade until he departed in early 2023.`\
+https://nytimes.com/2025/12/15/business/media/boston-globes-former-top-editor-returns.html
+
 **Phillies finalizing 1-year, $10 million deal with Adolis García: Sources**\
 `The Phillies are making a bet on a bounce-back season from García, who was non-tendered last month by the Rangers. `\
 https://nytimes.com/athletic/6873092/2025/12/15/mlb-adolis-garcia-free-agency-signing-phillies/
