@@ -1,3 +1,15 @@
+**Snoop Dogg to perform Netflix Christmas Day halftime show during Lions-Vikings**\
+`In its second season with Christmas NFL games, Netflix is adding to the entertainment with Snoop Dogg.`\
+https://nytimes.com/athletic/6894335/2025/12/16/snoop-dogg-netflix-christmas-halftime-show-lions-vikings/
+
+**Hegseth Declines to Show Lawmakers Boat Strike Video**\
+`The defense secretary joined the secretary of state on Capitol Hill to deliver the first classified briefings to include all members of the House and Senate on the maritime attacks.`\
+https://nytimes.com/2025/12/16/us/politics/hegseth-congress-boat-strike-video.html
+
+**Prosecutors flag conflict of interest concern in NBA sports gambling case**\
+`Rozier is paying for defendant Deniro Laster's attorney.`\
+https://nytimes.com/athletic/6894254/2025/12/16/terry-rozier-nba-sports-gambling-betting-deniro-laster/
+
 **‘Sinners’ and ‘Wicked: For Good’ Lead the Way on the Oscar Shortlists**\
 `The lineups, which Oscar voters will choose from next month, include the new casting category, which was largely a dress rehearsal for best picture.`\
 https://nytimes.com/2025/12/16/movies/oscars-shortlist-awards-sinners-wicked.html
