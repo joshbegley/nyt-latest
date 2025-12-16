@@ -1,3 +1,7 @@
+**Couple Confronted Suspected Bondi Gunman, New Footage Shows**\
+`Previously unseen dash cam footage captured the moment Boris and Sofia Gurman tackled one of the suspected Bondi Beach gunmen during the attack on Sunday, in which at least 15 people were killed — including the Gurmans.`\
+https://nytimes.com/video/world/australia/100000010589995/couple-bondi-shooting-dashcam.html
+
 **The Bounce: Who's got the edge in the NBA Cup final?**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/6893737/2025/12/16/nba-cup-knicks-spurs-the-bounce/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6893087/2025/12/16/arch-manning-texas-return-2026/
 **Why are Manchester United struggling to control games when they are ahead?**\
 `United have dropped 10 points from winning positions this season – it's a trend that Ruben Amorim needs to fix`\
 https://nytimes.com/athletic/6893320/2025/12/16/manchester-united-control-game-state-premier-league/
-
-**Video Shows Couple Confronting a Suspected Bondi Beach Gunman**\
-`Dash cam footage has emerged of Boris and Sofia Gurman trying to disarm one of the suspected attackers. The couple was killed, but their bravery was lauded by Australians.`\
-https://nytimes.com/2025/12/16/world/australia/bondi-beach-shooting-dashcam-video-boris-sofia-gurman.html
 
