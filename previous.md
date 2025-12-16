@@ -1,3 +1,7 @@
+**The Timing of Trump’s $10 Billion Suit Against the BBC Is Significant**\
+`The lawsuit landed just hours before a once-a-decade review of the broadcaster’s royal charter, which governs its mission, purpose and funding.`\
+https://nytimes.com/2025/12/16/us/politics/trump-bbc-lawsuit-timing.html
+
 **Zelensky’s Dilemma: How Much Must Ukraine Cede to Make Peace?**\
 `Two days of talks between President Volodymyr Zelensky and allies have brought some progress on security guarantees, but Russia remains opposed to any foreign forces in Ukraine.`\
 https://nytimes.com/2025/12/16/world/europe/zelensky-ukraine-peace-talks.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6892544/2025/12/16/nba-cup-future-las-vegas/
 **A Look at Australia’s Gun Laws**\
 `We examine how the country responds to mass shootings.`\
 https://nytimes.com/2025/12/16/briefing/a-look-at-australias-gun-laws.html
-
-**Trump’s Top Aide Acknowledges ‘Score Settling’ Behind Prosecutions**\
-`In interviews with Vanity Fair, Susie Wiles, the White House chief of staff, called JD Vance a “conspiracy theorist” and said Pam Bondi “completely whiffed” the early handling of the Epstein files.`\
-https://nytimes.com/2025/12/16/us/politics/trump-susie-wiles.html
 

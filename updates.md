@@ -1,3 +1,7 @@
+**The Timing of Trump’s $10 Billion Suit Against the BBC Is Significant**\
+`The lawsuit landed just hours before a once-a-decade review of the broadcaster’s royal charter, which governs its mission, purpose and funding.`\
+https://nytimes.com/2025/12/16/us/politics/trump-bbc-lawsuit-timing.html
+
 **Zelensky’s Dilemma: How Much Must Ukraine Cede to Make Peace?**\
 `Two days of talks between President Volodymyr Zelensky and allies have brought some progress on security guarantees, but Russia remains opposed to any foreign forces in Ukraine.`\
 https://nytimes.com/2025/12/16/world/europe/zelensky-ukraine-peace-talks.html
