@@ -1,3 +1,7 @@
+**NFL MVP odds: Can Josh Allen rise to the top?**\
+`Josh Allen's odds shortened considerably after beating Drake Maye in Week 15. But can either challenge Stafford?`\
+https://nytimes.com/athletic/6893631/2025/12/16/nfl-mvp-odds-josh-allen-matthew-stafford-drake-maye/
+
 **Stephen King: What Rob Reiner Saw in Me**\
 `In Rob’s hands, “Stand by Me,” my most autobiographical novel, rang true.`\
 https://nytimes.com/2025/12/16/opinion/culture/stephen-king-rob-reiner-stand-by-me.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6893929/2025/12/16/ducks-vs-blue-jackets-stream-how
 **How to watch Flyers vs. Canadiens: Time, TV, streaming**\
 `Find out how to watch the Philadelphia Flyers play the Montreal Canadiens, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6893927/2025/12/16/flyers-vs-canadiens-stream-how-to-watch-dec-16/
-
-**How to watch DePaul vs. St. John's men's basketball: Time, TV, streaming**\
-`Find out how to watch the DePaul Blue Demons play the St. John's Red Storm, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6893913/2025/12/16/depaul-vs-st-john-s-stream-how-to-watch-dec-16/
 
