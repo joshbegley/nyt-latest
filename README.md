@@ -1,3 +1,11 @@
+**Snoop Dogg to perform Netflix Christmas Day halftime show during Lions-Vikings**\
+`In its second season with Christmas NFL games, Netflix is adding to the entertainment with Snoop Dogg.`\
+https://nytimes.com/athletic/6894335/2025/12/16/snoop-dogg-netflix-christmas-halftime-show-lions-vikings/
+
+**Hegseth Declines to Show Lawmakers Boat Strike Video**\
+`The defense secretary joined the secretary of state on Capitol Hill to deliver the first classified briefings to include all members of the House and Senate on the maritime attacks.`\
+https://nytimes.com/2025/12/16/us/politics/hegseth-congress-boat-strike-video.html
+
 **Prosecutors flag conflict of interest concern in NBA sports gambling case**\
 `Rozier is paying for defendant Deniro Laster's attorney.`\
 https://nytimes.com/athletic/6894254/2025/12/16/terry-rozier-nba-sports-gambling-betting-deniro-laster/
@@ -25,12 +33,4 @@ https://nytimes.com/2025/12/16/sports/autoracing/f1-lewis-hamilton.html
 **The man representing Nick Reiner is one of the most well-known lawyers in Los Angeles.**\
 `By Matt Stevens and Tim Arango`\
 https://nytimes.com/live/2025/12/16/us/rob-michele-reiner-death-investigation/the-man-representing-nick-reiner-is-one-of-the-most-well-known-lawyers-in-los-angeles
-
-**Canadian Linguists Rise Up Against the Letter ‘S’**\
-`Some words spelled the British way are emerging in Canadian government documents. A group of language experts say the changes undermine Canada’s identity.`\
-https://nytimes.com/2025/12/16/world/canada/carney-british-spelling.html
-
-**Wrong Turns and Long Nights: Inside the Search for the Brown University Attacker**\
-`After determining that a man they had detained was not the killer, Rhode Island officials have searched for more evidence and released photos of a possible gunman.`\
-https://nytimes.com/2025/12/16/us/brown-university-attack-timeline.html
 
