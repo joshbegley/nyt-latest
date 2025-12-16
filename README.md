@@ -1,3 +1,7 @@
+**A Look at Australia’s Gun Laws**\
+`We examine how the country responds to mass shootings.`\
+https://nytimes.com/2025/12/16/briefing/a-look-at-australias-gun-laws.html
+
 **Trump’s Top Aide Acknowledges ‘Score Settling’ Behind Prosecutions**\
 `In interviews with Vanity Fair, Susie Wiles, the White House chief of staff, called JD Vance a “conspiracy theorist” and said Pam Bondi “completely whiffed” the early handling of the Epstein files.`\
 https://nytimes.com/2025/12/16/us/politics/trump-susie-wiles.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6892091/2025/12/16/red-wings-max-plante-prospect-wo
 **Which teams eliminated from playoff contention have brightest 2026 NFL Draft outlooks?**\
 `The Jets, Browns and Raiders have hope for the offseason. The Giants might even field a playoff contender in 2026, if all goes right.`\
 https://nytimes.com/athletic/6892216/2025/12/16/nfl-draft-2026-top-10-jets-giants-playoffs/
-
-**An SEC football season through the eyes of Aussie road-tripping parents**\
-`The Haberers found Texas fans to be “a bit off-putting” and Tennessee fans to be amped up and “pretty smart-mouthed."`\
-https://nytimes.com/athletic/6891717/2025/12/16/sec-football-road-trip-vanderbilt/
 
