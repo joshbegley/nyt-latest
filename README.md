@@ -1,3 +1,7 @@
+**Cubs' bullpen picture coming into focus with Caleb Thielbar as latest signing: Source**\
+`With Thielbar, the Cubs can now attack hitters from the left side with two drastically different arm angles.`\
+https://nytimes.com/athletic/6894942/2025/12/16/cubs-bullpen-caleb-thielbar-signing-source/
+
 **Fantasy football market share report: Get Michael Carter, forget Tyler Warren for Week 16**\
 `Michael Salfino analyzes the touches and targets distribution for Week 15 and suggests adding Michael Carter, but benching Tyler Warren.`\
 https://nytimes.com/athletic/6894572/2025/12/16/fantasy-football-market-share-report-michael-carter/
@@ -30,8 +34,4 @@ https://nytimes.com/2025/12/16/nyregion/mamdani-adams-criticism.html
 `City posted their third-highest revenue total of £694.1million but lost £9.9m for the year ending June 30, 2025.
 `\
 https://nytimes.com/athletic/6894517/2025/12/16/manchester-city-financial-results-2024-25/
-
-**Reiners’ Son to Be Charged With Murder**\
-`Also, the unemployment rate rose. Here’s the latest at the end of Tuesday.`\
-https://nytimes.com/2025/12/16/briefing/rob-reiner-son-charges-unemployment-rate.html
 

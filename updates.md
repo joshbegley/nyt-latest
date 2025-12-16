@@ -1,3 +1,12 @@
+**Fantasy football market share report: Get Michael Carter, forget Tyler Warren for Week 16**\
+`Michael Salfino analyzes the touches and targets distribution for Week 15 and suggests adding Michael Carter, but benching Tyler Warren.`\
+https://nytimes.com/athletic/6894572/2025/12/16/fantasy-football-market-share-report-michael-carter/
+
+**Man City 2024-25 accounts: small loss after big spending is unlikely to cause alarm**\
+`City posted their third-highest revenue total of £694.1million but lost £9.9m for the year ending June 30, 2025.
+`\
+https://nytimes.com/athletic/6894517/2025/12/16/manchester-city-financial-results-2024-25/
+
 **Man City 2024-25 accounts: small loss after big spending is unlikely to cause alarm**\
 `City posted their third-highest revenue total of £694.1million but lost £9.9m for the year ending June 30, 2025.
 `\
