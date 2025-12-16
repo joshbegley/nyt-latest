@@ -1,3 +1,11 @@
+**Australia Doubles Down on Gun Control After Mass Shooting**\
+`The country has long looked warily at the cycle of gun violence in the United States, where meaningful changes in policy have been rare.`\
+https://nytimes.com/2025/12/16/world/australia/australia-gun-control-bondi-shooting.html
+
+**Arch Manning will return to Texas next season and not declare for 2026 NFL Draft: Source**\
+`The Longhorns quarterback will return to school instead of declaring for the NFL Draft as a redshirt sophomore.`\
+https://nytimes.com/athletic/6893087/2025/12/16/arch-manning-texas-return-2026/
+
 **Why are Manchester United struggling to control games when they are ahead?**\
 `United have dropped 10 points from winning positions this season – it's a trend that Ruben Amorim needs to fix`\
 https://nytimes.com/athletic/6893320/2025/12/16/manchester-united-control-game-state-premier-league/
