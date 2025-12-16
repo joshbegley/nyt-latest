@@ -1,3 +1,7 @@
+**Hear the Best Albums and Songs of 2025**\
+`90 tracks! Five hours! Remix the year in pop however you wish.`\
+https://nytimes.com/2025/12/16/arts/music/amplifier-newsletter-best-songs-albums-2024.html
+
 **U.S. Sends Cubans to Naval Station at Guantánamo Bay**\
 `The transfer of nearly two dozen men this week restarted a Trump administration deportation operation on the base after a two-month hiatus.`\
 https://nytimes.com/2025/12/16/us/politics/cubans-deportations-guantanamo-bay.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6893989/2025/12/16/nfl-week-16-playoff-clinching-sc
 **Rob Reiner’s Legacy Will Outlast Trump’s Toxic Talk**\
 `Readers mourn Rob Reiner and take offense at the president’s crude response. Also: America snubs its allies; phone scams; former President Joe Biden’s library.`\
 https://nytimes.com/2025/12/16/opinion/rob-reiner-trump.html
-
-**France, in Rare Win for Government, Passes Welfare Budget Law**\
-`Sébastien Lecornu, the third French prime minister in less than a year, succeeded where his two predecessors failed — at least for now.`\
-https://nytimes.com/2025/12/16/world/europe/france-budget-law-lecornu-macron.html
 

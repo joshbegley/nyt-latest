@@ -1,3 +1,7 @@
+**Under U.S. Pressure, Militia Backed by Rwanda to Withdraw From City in Congo**\
+`The militia said the withdrawal was intended to give ongoing peace talks with the Congolese government “the maximum chance to succeed.”`\
+https://nytimes.com/2025/12/16/world/africa/congo-rebels-withdraw-rwanda.html
+
 **Hear the Best Albums and Songs of 2025**\
 `90 tracks! Five hours! Remix the year in pop however you wish.`\
 https://nytimes.com/2025/12/16/arts/music/amplifier-newsletter-best-songs-albums-2024.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/16/health/alcohol-heart-disease-cancer.html
 **NFL Week 16 playoff scenarios: How Eagles, Broncos can lock up key spots**\
 `The Rams' clash with the Seahawks will have significant implications in the races for the NFC West and the top seed in the conference.`\
 https://nytimes.com/athletic/6893989/2025/12/16/nfl-week-16-playoff-clinching-scenarios-broncos-eagles/
-
-**Rob Reiner’s Legacy Will Outlast Trump’s Toxic Talk**\
-`Readers mourn Rob Reiner and take offense at the president’s crude response. Also: America snubs its allies; phone scams; former President Joe Biden’s library.`\
-https://nytimes.com/2025/12/16/opinion/rob-reiner-trump.html
 

@@ -1,3 +1,7 @@
+**Hear the Best Albums and Songs of 2025**\
+`90 tracks! Five hours! Remix the year in pop however you wish.`\
+https://nytimes.com/2025/12/16/arts/music/amplifier-newsletter-best-songs-albums-2024.html
+
 **U.S. Sends Cubans to Naval Station at Guantánamo Bay**\
 `The transfer of nearly two dozen men this week restarted a Trump administration deportation operation on the base after a two-month hiatus.`\
 https://nytimes.com/2025/12/16/us/politics/cubans-deportations-guantanamo-bay.html
