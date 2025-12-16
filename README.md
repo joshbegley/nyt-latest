@@ -1,3 +1,7 @@
+**Bondi Suspects Were in Southern Philippines, Where ISIS Is Active**\
+`It remains unclear what the two men did there last month.`\
+https://nytimes.com/2025/12/16/world/asia/bondi-shooting-gunmen-philippines-isis.html
+
 **The New York Times in Print for Tuesday, Dec. 16, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/12/16/todays-new-york-times
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6893033/2025/12/16/jaylen-brown-takes-blame-celtics
 **How Ekitike established himself as Liverpool's No 1 striker**\
 `The French striker has left his fellow big-money new signing Alexander Isak in the shade so far this season`\
 https://nytimes.com/athletic/6891069/2025/12/16/hugo-ekitike-liverpool-striker/
-
-**A Finnish soccer club's stadium burnt down. Rivals are helping the club rebuild**\
-`Rival clubs in Finland are supporting FC Haka's efforts to finance a rebuilding project after a fire at its stadium earlier this month`\
-https://nytimes.com/athletic/6891158/2025/12/16/fc-haka-fire-finland/
 
