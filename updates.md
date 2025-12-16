@@ -1,3 +1,15 @@
+**U.S. Sends Cubans to Naval Station at Guantánamo Bay**\
+`The transfer of nearly two dozen men this week restarted a Trump administration deportation operation on the base after a two-month hiatus.`\
+https://nytimes.com/2025/12/16/us/politics/cubans-deportations-guantanamo-bay.html
+
+**Super Bowl odds: Top 2 favorites to clash in Week 16**\
+`Preseason favorites like the Lions and Chiefs are fumbling the playoff race as the NFC West rises to the top. `\
+https://nytimes.com/athletic/6894079/2025/12/16/super-bowl-2026-odds-rams-seahawks/
+
+**Does the overhead kick have a stranglehold on the FIFA Puskas Award?**\
+`Santiago Montiel's winning strike is the fourth year in a row that a bicycle kick has won – should other techniques get more credit?`\
+https://nytimes.com/athletic/6894104/2025/12/16/fifa-goal-of-2025-overhead-montiel-rice-yamal/
+
 **M.I.T. Professor Is Fatally Shot in His Home**\
 `The professor, Nuno F.G. Loureiro, was pronounced dead at a hospital on Tuesday morning. The authorities said they had opened a homicide investigation.`\
 https://nytimes.com/2025/12/16/us/mit-professor-shot-brookline-nuno-loureiro.html
