@@ -1,4 +1,16 @@
-**FIFA Best: Dembele crowned best men's player, Bonmati wins again**\
+**Send your Cowboys mailbag questions to Jon Machota**\
+`<p>The Dallas Cowboys have lost two games in a row, are not quite officially eliminated from playoff contention (but it&#8217;s close) and have a lot of things to address.`\
+https://nytimes.com/athletic/6894229/2025/12/16/send-your-cowboys-mailbag-questions-to-jon-machota/
+
+**U.S. Threatens Penalties Against European Tech Firms Amid Regulatory Fight**\
+`The Trump administration singled out European tech firms by name and promised economic consequences Tuesday unless the E.U. rolls back tech regulation and lawsuits.`\
+https://nytimes.com/2025/12/16/business/economy/us-eu-tech-penalties.html
+
+**White House Shrugs Off Rise in Unemployment Rate**\
+`The Trump administration looked to recast elements of a dour jobs report Thursday as a sign of strength.`\
+https://nytimes.com/2025/12/16/us/politics/trump-administration-unemployment-rate-economy.html
+
+**Dembele, Bonmati crowned winners at FIFA Best Awards**\
 `Luis Enrique and Sarina Wiegman were named men's and women's coach of the year, respectively, at the ceremony in Doha.`\
 https://nytimes.com/athletic/6890715/2025/12/16/fifa-best-awards-ousmane-dembele-aitana-bonmati/
 
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/6893805/2025/12/16/dearica-hamby-aces-pregnancy-dis
 **Trinidad Has Become a U.S. Staging Ground in Its Conflict With Venezuela**\
 `The United States and Trinidad say U.S. Marines installed a radar in Tobago to combat drugs — but this war materiel isn’t designed for operations based at sea or on land.`\
 https://nytimes.com/2025/12/16/world/trinidad-and-tobago-us-military-venezuela.html
-
-**Are A.I. Data Centers Really Ruining Our Water Supply?**\
-`Andy Masley, a blogger who has written extensively about A.I. water use, joined “Hard Fork” to separate fact from fiction on the topic. Is it a distraction from other more pressing environmental concerns?`\
-https://nytimes.com/video/podcasts/100000010590282/are-ai-data-centers-really-ruining-our-water-supply.html
-
-**Arctic Warming Is Turning Alaska’s Rivers Red With Toxic Runoff**\
-`A yearly checkup on the region documents a warmer, rainier Arctic and 200 Alaskan rivers “rusting” as melting tundra leaches minerals from the soil into waterways.`\
-https://nytimes.com/2025/12/16/climate/arctic-report-card-agu.html
-
-**Sean McVay not ruling Davante Adams out vs. Seahawks despite hamstring strain**\
-`Adams, who leads the league with 14 receiving touchdowns, missed practice Tuesday after aggravating his hamstring vs. the Lions. `\
-https://nytimes.com/athletic/6892575/2025/12/16/rams-davante-adams-hamstring-injury/
 
