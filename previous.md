@@ -1,3 +1,7 @@
+**Submit your Dodgers questions for Fabian Ardaya's mailbag**\
+`Submit your Dodgers questions for Fabian Ardaya's mailbag`\
+https://nytimes.com/athletic/6895020/2025/12/16/dodgers-offseason-free-agents-mailbag/
+
 **Maresca says he has not spoken to Chelsea hierarchy, thanks fans for support**\
 `The Italian was speaking after Chelsea booked their place in the Carabao Cup semi-final with a 3-1 win over Cardiff City in Wales.`\
 https://nytimes.com/athletic/6894978/2025/12/16/enzo-maresca-chelsea-outburst-fans-support/
@@ -30,8 +34,4 @@ https://nytimes.com/2025/12/16/briefing/rob-reiner-son-charges-unemployment-rate
 **Lawmakers Demand the Release of Classified Boat Strike Video**\
 `Following classified hearings for all the members of the House and Senate, Defense Secretary Pete Hegseth declined on Tuesday to release the unedited video of a boat attack in September that included a second strike to kill survivors.`\
 https://nytimes.com/video/us/politics/100000010591337/hegseth-boat-strike.html
-
-**Doug Armstrong on Blues trade talk: Untouchables? Core players? Jordan Binnington's future?**\
-`The GM opened up about the possibility of the Blues making trades, and when they could happen. "We’re not selling 50 cents on the dollar."`\
-https://nytimes.com/athletic/6894473/2025/12/16/doug-armstrong-blues-trades-binnington/
 
