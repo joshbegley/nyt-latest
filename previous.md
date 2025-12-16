@@ -1,3 +1,7 @@
+**Victor Wembanyama and the ‘ethical’ Spurs have earned the right to raise the bar**\
+`In praising the Spurs' "ethical basketball," Wembanyama made a statement that said as much about his team's progress as any opponent.`\
+https://nytimes.com/athletic/6892516/2025/12/16/victor-wembanyama-spurs-ethical-thunder/
+
 **Move the NBA Cup out of Vegas? What to know about the future of the tournament**\
 `The NBA is considering options beyond Vegas, but changing locations might not do much for an event that is growing anyway.`\
 https://nytimes.com/athletic/6892544/2025/12/16/nba-cup-future-las-vegas/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6892373/2025/12/16/49ers-titans-brock-purdy-trent-w
 **The Seahawks' offense is 'in a funk' at the wrong time. Can it be fixed quickly?**\
 `"It's a little bit late in the year right now to be saying that," Mike Macdonald said, "so I think we've got to pick it up on all fronts."`\
 https://nytimes.com/athletic/6892678/2025/12/16/seahawks-offense-sam-darnold-running-game-rams/
-
-**Red Wings prospect Max Plante leading NCAA in points, with World Juniors test next**\
-`Leading the charge for No. 5 Minnesota Duluth, Plante's dedication and determination are promising signs for Detroit.`\
-https://nytimes.com/athletic/6892091/2025/12/16/red-wings-max-plante-prospect-world-juniors/
 

@@ -1,3 +1,7 @@
+**Victor Wembanyama and the ‘ethical’ Spurs have earned the right to raise the bar**\
+`In praising the Spurs' "ethical basketball," Wembanyama made a statement that said as much about his team's progress as any opponent.`\
+https://nytimes.com/athletic/6892516/2025/12/16/victor-wembanyama-spurs-ethical-thunder/
+
 **Move the NBA Cup out of Vegas? What to know about the future of the tournament**\
 `The NBA is considering options beyond Vegas, but changing locations might not do much for an event that is growing anyway.`\
 https://nytimes.com/athletic/6892544/2025/12/16/nba-cup-future-las-vegas/
