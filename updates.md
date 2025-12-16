@@ -1,3 +1,11 @@
+**By Overcoming Doubts, Lando Norris Claimed His First F1 Drivers’ Title**\
+`But he didn’t win it by much, as Max Verstappen made a late-season charge.`\
+https://nytimes.com/2025/12/16/sports/f1-lando-norris-drivers-title.html
+
+**Scoop City: Comeback expectations for Mahomes and Parsons**\
+`What's next for two injured superstars, plus an updated playoff picture after the Dolphins ... gave up?`\
+https://nytimes.com/athletic/6894423/2025/12/16/comeback-timeline-patrick-mahomes-micah-parsons/
+
 **Ukraine Plan Calls For Enhanced Military, With U.S. and European Backup**\
 `The latest proposal is designed to deter future Russian aggression. But Russia is not part of the talks and has shown little willingness to negotiate.`\
 https://nytimes.com/2025/12/16/world/europe/ukraine-security-guarantees-talks.html
