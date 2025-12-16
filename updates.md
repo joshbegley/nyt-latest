@@ -1,3 +1,7 @@
+**How to watch James Madison vs. Oregon: CFP First Round Start Time, TV, streaming**\
+`Find out how to watch the James Madison Dukes play the Oregon Ducks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6892550/2025/12/15/how-to-watch-james-madison-at-oregon-cfp-first-round-tv-channel-and-streaming-options-for-december-20/
+
 **Rob Reiner Is Said to Have Argued With His Son at a Holiday Party**\
 `Rob Reiner and his son, Nick, had a dispute at a party hosted by Conan O’Brien the night before the director and his wife were found dead.`\
 https://nytimes.com/2025/12/15/us/rob-nick-reiner-conan-o-brien-party.html

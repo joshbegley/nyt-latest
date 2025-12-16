@@ -32,5 +32,5 @@ https://nytimes.com/2025/12/15/us/politics/pelosi-stock-trading-ban.html
 
 **How to watch James Madison vs. Oregon: CFP First Round Start Time, TV, streaming**\
 `Find out how to watch the James Madison Dukes play the Oregon Ducks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6892550/2025/12/15/james-madison-vs-oregon-stream-how-to-watch-dec-20/
+https://nytimes.com/athletic/6892550/2025/12/15/how-to-watch-james-madison-at-oregon-cfp-first-round-tv-channel-and-streaming-options-for-december-20/
 
