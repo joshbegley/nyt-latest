@@ -1,3 +1,7 @@
+**‘Beaches,’ a Novel and a Film, Will Spread Its Wings on Broadway**\
+`A musical adaptation of the story will open at the Majestic Theater next spring. And yes, the score includes “Wind Beneath My Wings.”`\
+https://nytimes.com/2025/12/16/theater/beaches-broadway-musical.html
+
 **Australia Doubles Down on Gun Control After Mass Shooting**\
 `The country has long looked warily at the cycle of gun violence in the United States, where meaningful changes in policy have been rare.`\
 https://nytimes.com/2025/12/16/world/australia/australia-gun-control-bondi-shooting.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/16/style/street-style-look-red-coat.html
 **Obamas Had Plans to See the Reiners the Day They Were Found Dead**\
 `Michelle Obama said on “Jimmy Kimmel Live!” that she and former President Barack Obama were longtime friends of the couple and called them “decent, courageous” people.`\
 https://nytimes.com/2025/12/16/us/michelle-obama-rob-reiner-michele.html
-
-**Partial team sale will significantly clear Twins' finances, may set table for future sale**\
-`The cash infusion will significantly reduce the Twins' debt.`\
-https://nytimes.com/athletic/6892645/2025/12/16/twins-partial-sale-finances-debt-update/
 
