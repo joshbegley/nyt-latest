@@ -1,3 +1,15 @@
+**Ruth Kiew Dies at 79; Botanist Made Discoveries in Remote Forests**\
+`Trekking across Malaysia, her adopted country, she found more than 150 unrecorded plant species. “She’s one of the greatest botanists who ever lived,” a colleague said.`\
+https://nytimes.com/2025/12/16/science/earth/ruth-kiew-dead.html
+
+**Suarez finalizing new deal with Inter Miami for 2026 season**\
+`Suárez, who turns 39 in January, returns for another year.`\
+https://nytimes.com/athletic/6894366/2025/12/16/luis-suarez-new-deal-contract-inter-miami/
+
+**Under U.S. Pressure, Militia Backed by Rwanda to Withdraw From City in Congo**\
+`The militia said the withdrawal was intended to give ongoing peace talks with the Congolese government “the maximum chance to succeed.”`\
+https://nytimes.com/2025/12/16/world/africa/congo-rebels-withdraw-rwanda.html
+
 **Hear the Best Albums and Songs of 2025**\
 `90 tracks! Five hours! Remix the year in pop however you wish.`\
 https://nytimes.com/2025/12/16/arts/music/amplifier-newsletter-best-songs-albums-2024.html
