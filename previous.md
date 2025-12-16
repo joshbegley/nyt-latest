@@ -1,3 +1,7 @@
+**Rob Reiner Is Said to Have Argued With His Son at a Holiday Party**\
+`Rob Reiner and his son, Nick, had a dispute at a party hosted by Conan O’Brien the night before the director and his wife were found dead.`\
+https://nytimes.com/2025/12/15/us/rob-nick-reiner-conan-o-brien-party.html
+
 **Nick Reiner’s Struggles With Drugs Left His Parents ‘Desperate’**\
 `Mr. Reiner, who was arrested in connection with the deaths of Rob and Michele Reiner, once estimated he had been in drug treatment 18 times as a teenager.`\
 https://nytimes.com/2025/12/15/movies/nick-reiner-drugs-rehab-heroin-cocaine.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/15/us/politics/pelosi-stock-trading-ban.html
 **How to watch James Madison vs. Oregon: CFP First Round Start Time, TV, streaming**\
 `Find out how to watch the James Madison Dukes play the Oregon Ducks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6892550/2025/12/15/james-madison-vs-oregon-stream-how-to-watch-dec-20/
-
-**Eager for Center Stage, Patel Casts Aside Caution in Statements as F.B.I. Leader**\
-`Kash Patel’s impulse to publicize the work of the bureau under his leadership has revived questions about his competence and his future in the administration.`\
-https://nytimes.com/2025/12/15/us/politics/kash-patel-fbi.html
 
