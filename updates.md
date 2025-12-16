@@ -1,3 +1,15 @@
+**Rebecca Lowe will host seventh consecutive Olympics with NBC Sports: Source**\
+`Lowe will also work as a host for Fox Sports' World Cup coverage later this summer.`\
+https://nytimes.com/athletic/6891388/2025/12/16/rebecca-lowe-nbc-milan-cortina-olympics/
+
+**A Fiery Coat and Socks to Match**\
+`Red outerwear (and like-colored socks) cheered up an ensemble spotted in Tokyo.`\
+https://nytimes.com/2025/12/16/style/street-style-look-red-coat.html
+
+**Obamas Had Plans to See the Reiners the Day They Were Found Dead**\
+`Michelle Obama said on “Jimmy Kimmel Live!” that she and former President Barack Obama were longtime friends of the couple and called them “decent, courageous” people.`\
+https://nytimes.com/2025/12/16/us/michelle-obama-rob-reiner-michele.html
+
 **'Significant' partial team sale clears Twins' finances, may set table for future sale**\
 `The cash infusion will significantly reduce the Twins' debt.`\
 https://nytimes.com/athletic/6892645/2025/12/16/twins-partial-sale-finances-debt-update/

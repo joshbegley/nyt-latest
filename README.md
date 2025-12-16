@@ -1,3 +1,15 @@
+**Why are Manchester United struggling to control games when they are ahead?**\
+`United have dropped 10 points from winning positions this season – it's a trend that Ruben Amorim needs to fix`\
+https://nytimes.com/athletic/6893320/2025/12/16/manchester-united-control-game-state-premier-league/
+
+**Video Shows Couple Confronting a Suspected Bondi Beach Gunman**\
+`Dash cam footage has emerged of Boris and Sofia Gurman trying to disarm one of the suspected attackers. The couple was killed, but their bravery was lauded by Australians.`\
+https://nytimes.com/2025/12/16/world/australia/bondi-beach-shooting-dashcam-video-boris-sofia-gurman.html
+
+**Arsenal's White set for at least one month out with hamstring injury**\
+`White was substituted 31 minutes into Arsenal's 2-1 win over Wolves on Saturday.`\
+https://nytimes.com/athletic/6893268/2025/12/16/ben-white-injury-update/
+
 **Rebecca Lowe will host seventh consecutive Olympics with NBC Sports: Source**\
 `Lowe will also work as a host for Fox Sports' World Cup coverage later this summer.`\
 https://nytimes.com/athletic/6891388/2025/12/16/rebecca-lowe-nbc-milan-cortina-olympics/
@@ -21,16 +33,4 @@ https://nytimes.com/2025/12/16/arts/music/ellen-arkbro.html
 **Liverpool parade attacker sentenced to 21 years, six months in prison**\
 `Judge Andrew Menary KC said that the evidence against Paul Doyle was “overwhelming” as he described the footage as “truly shocking”.`\
 https://nytimes.com/athletic/6891218/2025/12/16/paul-doyle-sentencing-liverpool-title-parade/
-
-**British Man Who Drove Into Soccer Parade Is Sentenced to 21 Years**\
-`Paul Doyle struck more than 130 people when he plowed his car through fans leaving a jubilant victory parade for Liverpool F.C.`\
-https://nytimes.com/2025/12/16/world/europe/uk-liverpool-parade-attack-paul-doyle.html
-
-**Carabao Cup predictions as Arsenal and Manchester City look to progress to final four**\
-`The Carabao Cup quarter-finals are here this week and The Athletic is on hand to pick each of the four games.`\
-https://nytimes.com/athletic/6893355/2025/12/16/carabao-cup-quarter-final-predictions-and-picks/
-
-**The Timing of Trump’s $10 Billion Suit Against the BBC Is Significant**\
-`The lawsuit landed just hours before a once-a-decade review of the broadcaster’s royal charter, which governs its mission, purpose and funding.`\
-https://nytimes.com/2025/12/16/us/politics/trump-bbc-lawsuit-timing.html
 
