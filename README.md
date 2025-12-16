@@ -1,36 +1,36 @@
-**NFL QB stock report, Week 16: Can a Sam Darnold-led team win a Super Bowl?**\
-`Following Patrick Mahomes' torn ACL, the Chiefs must seriously consider how much they need to invest in a quality backup. `\
-https://nytimes.com/athletic/6891377/2025/12/16/nfl-qb-stock-report-sam-darnold-seahawks-patrick-mahomes-philip-rivers/
+**What can the Bears take from their rout of the Browns into rematch with the Packers?**\
+`First place in the NFC North is on the line Saturday night. What do the Bears need to do to knock off the Packers this time?`\
+https://nytimes.com/athletic/6892124/2025/12/16/bears-packers-nfc-north-rematch/
 
-**How, down their best player, the Steelers' much-maligned run defense shut down the Dolphins**\
-`It was no T.J. Watt, no problem for the Steelers in an easy Monday night victory that kept them atop the AFC North.`\
-https://nytimes.com/athletic/6893154/2025/12/16/pittsburgh-steelers-defense-tj-watt-absence-dolphins-monday-night/
+**I tore my ACL in the NFL. This is what it takes mentally to come back**\
+`Although former NFL QB Brian Hoyer wouldn't wish an ACL injury on anyone, grinding through the rehab process made him mentally tougher.`\
+https://nytimes.com/athletic/6892543/2025/12/16/acl-tears-nfl-patrick-mahomes-micah-parsons/
 
-**Potential NFL expansion to 18 games feels reckless with season-ending injuries: Jones**\
-`Yes, these injuries could've happened in Week 1 as easily as Week 15. But why heighten the risk with an extra regular-season game?`\
-https://nytimes.com/athletic/6892060/2025/12/16/nfl-18-game-expansion-injuries-mahomes-parsons/
+**How can the Panthers make a successful playoff push? Stay aggressive, for starters**\
+`Bottling up Baker Mayfield on Sunday, limiting penalties and getting Tetairoa McMillan move involved also make the list.`\
+https://nytimes.com/athletic/6892404/2025/12/16/carolina-panthers-playoff-push-bucs-nfc-south/
 
-**NFL Week 16 Power Rankings: Broncos, Bills surging, 49ers lurking as we pick team MVPs**\
-`The Week 16 power rankings are picking MVPs for each team after a weekend that saw Josh Allen (of course) and Trevor Lawrence (what?) shine.`\
-https://nytimes.com/athletic/6891082/2025/12/16/nfl-power-rankings-week-16-broncos-bills-49ers-mvp/
+**Brian Schottenheimer says Cowboys' final three games will be 'all about winning'**\
+`Dallas is all-but eliminated from the playoffs. The final three games could determine a lot for some Cowboys players and coaches.`\
+https://nytimes.com/athletic/6892606/2025/12/16/cowboys-disappointment-playoffs-goals/
 
-**How big is the College Football Playoff spending gap? Here's how all 12 teams compare**\
-`With two Group of 5 teams in the College Football Playoff, the financial gap between teams in the bracket is especially pronounced.`\
-https://nytimes.com/athletic/6892030/2025/12/16/college-football-playoff-revenue-salaries-money/
+**Rangers fans got it right with warm receptions for Chris Kreider and Jacob Trouba**\
+`"It's hard to put into words what the experience was like for 13 years, what that experience was like tonight," Kreider said.`\
+https://nytimes.com/athletic/6892908/2025/12/16/rangers-kreider-trouba-return-fan-reception/
 
-**The blunt, obsessive hitting guru who helped push Kyle Schwarber to greatness**\
-`Schwarber just signed a five-year, $150-million deal with the Philadelphia Phillies, based partly on his intensive work with Aaron Capista.`\
-https://nytimes.com/athletic/6891991/2025/12/16/kyle-schwarber-hitting-coach-phillies-contract/
+**Three games to determine Lions' playoff fate: Scenarios that get them in**\
+`The Lions can put them in the best position by finishing 3-0, but even that doesn't guarantee them a postseason invitation.`\
+https://nytimes.com/athletic/6891878/2025/12/16/detroit-lions-playoff-scenarios-chances/
 
-**New Yorkers Back Mamdani’s Push for Free Child Care, Poll Shows**\
-`A Siena University poll showed that voters support having wealthy New Yorkers pay more in taxes to fund child care statewide, and favored Gov. Kathy Hochul in next year’s election.`\
-https://nytimes.com/2025/12/16/nyregion/poll-hochul-mamdani-siena.html
+**The NBA Cup final is here. What you need to know about Knicks-Spurs in Vegas title game**\
+`Victor Wembanyama and the Spurs vs. Jalen Brunson and the Knicks. The NBA's in-season tournament will crown a new champion Tuesday night.`\
+https://nytimes.com/athletic/6891839/2025/12/16/nba-cup-final-knicks-spurs-wembanyama-brunson-money/
 
-**The New York Times International Edition in Print for Wednesday, Dec. 17, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/12/16/todays-new-york-times-international-edition
+**How will the Avalanche, Stars react after the Wild's Quinn Hughes blockbuster?**\
+`Catching up with Colorado execs Joe Sakic and Chris MacFarland and Dallas GM Jim Nill on what the trade means for a gauntlet division.`\
+https://nytimes.com/athletic/6892099/2025/12/16/quinn-hughes-trade-avalanche-stars/
 
-**As Israeli Settlements Get Bigger, Palestinian Hikes Grow Shorter**\
-`With Israelis rapidly building in the West Bank, Palestinian hikers are increasingly unable to walk across the land.`\
-https://nytimes.com/2025/12/16/world/middleeast/west-bank-hiking-settlements.html
+**In replacing Kevyn Adams as Sabres GM, Jarmo Kekäläinen has a heavy lift ahead**\
+`Kekäläinen’s to-do list will be lengthy as he takes over for Adams as Buffalo's general manager.`\
+https://nytimes.com/athletic/6892569/2025/12/16/sabres-buffalo-jarmo-kekalainen-kevyn-adams/
 
