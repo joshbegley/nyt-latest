@@ -1,8 +1,12 @@
+**Australian Leader Says Sydney Gunmen Were Motivated by ISIS**\
+`The two men who killed at least 15 people on Sunday were driven by “Islamic State ideology,” Prime Minister Anthony Albanese told Australia’s public broadcaster.`\
+https://nytimes.com/2025/12/15/world/australia/bondi-beach-shooting-gunmen-isis.html
+
 **Brown Student Has Survived Two School Shootings**\
 `Mia Tretta, a Brown student, survived a deadly shooting at her high school in 2019 and another attack on Saturday. As the authorities search for the gunman in the latest attack, she is coping with trauma again.`\
 https://nytimes.com/video/us/100000010589153/brown-shooting-student-tretta.html
 
-**Gold Glove infielder Ha-Seong Kim reunites with Braves on one-year deal: Source**\
+**Gold Glover Ha-Seong Kim reunites with Braves on one-year, $20 million deal: Source**\
 `The 30-year-old Korean rejuvenated his free-agent stock with a healthy and productive 24-game stint with the Braves in September.`\
 https://nytimes.com/athletic/6838921/2025/12/15/mlb-haseong-kim-free-agency-signing-braves/
 
@@ -29,8 +33,4 @@ https://nytimes.com/live/2025/12/15/us/rob-michele-reiner-dead/celebrity-deaths-
 **Trump Files $10 Billion Suit Against BBC Over Documentary**\
 `The British broadcaster, which has expressed regret over the editing of video clips about the president, has rejected claims that the error was evidence of a fundamental bias in its news reporting.`\
 https://nytimes.com/2025/12/15/us/politics/trump-sues-bbc.html
-
-**Full Time: NWSL’s looming rule change, explained**\
-`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
-https://nytimes.com/athletic/6892535/2025/12/15/nwsl-salary-rule-change-trinity-rodman-full-time/
 
