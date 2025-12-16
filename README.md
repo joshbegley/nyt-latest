@@ -1,3 +1,11 @@
+**Donald Trump Jr. Is Engaged to Palm Beach Socialite Bettina Anderson**\
+`The relationship between the president’s son and Ms. Anderson had been the subject of tabloid speculation during his previous engagement to Kimberly Guilfoyle.`\
+https://nytimes.com/2025/12/15/us/donald-trump-jr-engaged-bettina-anderson.html
+
+**Aaron Rodgers passes Steelers past Dolphins to keep AFC North lead: Takeaways**\
+`The future Hall of Fame quarterback threw two touchdown passes as the Steelers beat the Dolphins 28-15 to keep their AFC North lead Monday.`\
+https://nytimes.com/athletic/6892372/2025/12/15/steelers-dolphins-score-result-takeaways-mnf-nfl/
+
 **U.S. Strikes 3 More Boats in Eastern Pacific, Killing 8**\
 `The attacks brought the number killed since the Trump administration began the strikes on suspected drug smugglers to at least 95.`\
 https://nytimes.com/2025/12/15/us/politics/drug-boat-strikes-pacific.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6892924/2025/12/15/rangers-matt-rempe-broken-thumb-
 **Jason Kelce on brother Travis Kelce's NFL future: 'I'm curious too'**\
 `Jason Kelce had advice Monday for brother Travis: "Enjoy these last three games and then let it sink in. It will come to you with time."`\
 https://nytimes.com/athletic/6892816/2025/12/15/jason-kelce-chiefs-travis-kelce-nfl-retirement/
-
-**Red Sox, Nationals swap pitching prospects with contrasting styles in win-win deal**\
-`Luis Perales has more upside, while Jake Bennett has a higher floor. Both pitchers have paths to succeed in their new organizations.`\
-https://nytimes.com/athletic/6892679/2025/12/15/red-sox-nationals-luis-perales-jake-bennett-trade-analysis/
-
-**Words Before a Date**\
-`You’ll have to complete Jason Reich’s crossword from start to finish.`\
-https://nytimes.com/2025/12/15/crosswords/daily-puzzle-2025-12-16.html
 
