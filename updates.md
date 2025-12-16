@@ -1,3 +1,7 @@
+**Joe Ely, Texas-Born Troubadour of the Open Road, Dies at 78**\
+`Thanks to his eclectic style and tireless touring, he was among the most influential artists in the early days of Americana and alt-country music.`\
+https://nytimes.com/2025/12/15/obituaries/joe-ely-dead.html
+
 **At a Dark Moment, Jews in New York Celebrate the Festival of Lights**\
 `After the mass shooting at a Hanukkah celebration in Sydney, Australia, Jewish New Yorkers said they felt the need to stand up for their community.`\
 https://nytimes.com/2025/12/15/nyregion/hanukkah-menorah-nyc-jews-australia.html
