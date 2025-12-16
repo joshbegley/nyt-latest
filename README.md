@@ -1,3 +1,11 @@
+**Other celebrities have died tragically in L.A.’s Brentwood neighborhood.**\
+`The wealthy enclave`\
+https://nytimes.com/live/2025/12/15/us/rob-michele-reiner-dead/celebrity-deaths-brentwood-los-angeles
+
+**Trump Files $10 Billion Suit Against BBC Over Documentary**\
+`The British broadcaster, which has expressed regret over the editing of video clips about the president, has rejected claims that the error was evidence of a fundamental bias in its news reporting.`\
+https://nytimes.com/2025/12/15/us/politics/trump-sues-bbc.html
+
 **Full Time: NWSL’s looming rule change, explained**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/6892535/2025/12/15/nwsl-salary-rule-change-trinity-rodman-full-time/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6892497/2025/12/15/eagles-vs-commanders-stream-how-
 **Trial Opens for Judge Accused of Steering Immigrant Away from Federal Agents**\
 `“There was no corrupt intent,” the judge’s lawyer said in an opening statement. Prosecutors said the judge’s political views made her “cross the line.”`\
 https://nytimes.com/2025/12/15/us/milwaukee-judge-immigration.html
-
-**St. Louis City closing in on Yoann Damet as next head coach**\
-`At 35 years old, Damet will be one of the youngest coaches in MLS.`\
-https://nytimes.com/athletic/6892364/2025/12/15/st-louis-city-yoann-damet-head-coach/
-
-**13 Gifts that Cost (Almost) Nothing**\
-`We asked readers to tell us about the most memorable presents they’ve received.`\
-https://nytimes.com/2025/12/15/opinion/contributors/holiday-gifts-presents-free.html
 
