@@ -1,3 +1,7 @@
+**Newcastle's Burn out for up to six weeks with rib and lung issue**\
+`Burn, 33, suffered the injury during a first-half collision of Newcastle's defeat to Sunderland.`\
+https://nytimes.com/athletic/6892282/2025/12/16/dan-burn-injury-newcastle/
+
 **Steelers Eliminate Dolphins From Playoff Race With 28-15 Win**\
 `The Pittsburgh Steelers quarterback Aaron Rodgers threw for 224 yards and two touchdowns on Monday in a 28-15 victory over the Miami Dolphins.`\
 https://nytimes.com/video/sports/football/100000010589961/steelers-eliminate-dolphins-from-playoff-race-with-28-15-win.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/16/nyregion/uber-doordash-nyc-tipping.html
 **Flu Cases Skyrocket in New York City, Earlier Than Expected**\
 `The city and surrounding region have some of the highest levels of flu-like illness in the United States.`\
 https://nytimes.com/2025/12/16/nyregion/flu-cases-nyc.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/12/16/crosswords/spelling-bee-forum.html
 
