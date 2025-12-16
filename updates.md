@@ -1,3 +1,7 @@
+**With outfield 'pretty much set,' Phillies signal offseason's heaviest lifting is done**\
+`The Phillies aren't done reshaping the roster, but their outfield configuration has come into focus. Here's where their offseason stands. `\
+https://nytimes.com/athletic/6894476/2025/12/16/phillies-outfield-offseason-trades-signings/
+
 **Gunmen in Sydney Massacre Were Motivated by Islamic State, Officials Say**\
 `Investigators said they were also looking into a trip to the Philippines that the father-and-son attackers took last month.`\
 https://nytimes.com/2025/12/16/world/australia/bondi-beach-shooting-terror-attack-isis.html
