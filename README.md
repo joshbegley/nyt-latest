@@ -1,3 +1,11 @@
+**The Bounce: Who's got the edge in the NBA Cup final?**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/6893737/2025/12/16/nba-cup-knicks-spurs-the-bounce/
+
+**PSG ordered to pay Kylian Mbappe €60m in unpaid salary**\
+`Mbappe was partially successful with his claim, as the court ruled that PSG failed to pay his wages for April, May and June 2024`\
+https://nytimes.com/athletic/6893463/2025/12/16/kylian-mbappe-psg-salary-court-case/
+
 **Premier League injuries have cost clubs over £1bn in salaries over past five years**\
 `Overall injury frequency has dropped in the Premier League by 25 per cent over the last four seasons`\
 https://nytimes.com/athletic/6893381/2025/12/16/premier-league-injuries-1bn-salaries/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6893320/2025/12/16/manchester-united-control-game-s
 **Video Shows Couple Confronting a Suspected Bondi Beach Gunman**\
 `Dash cam footage has emerged of Boris and Sofia Gurman trying to disarm one of the suspected attackers. The couple was killed, but their bravery was lauded by Australians.`\
 https://nytimes.com/2025/12/16/world/australia/bondi-beach-shooting-dashcam-video-boris-sofia-gurman.html
-
-**Arsenal's White set for at least one month out with hamstring injury**\
-`White was substituted 31 minutes into Arsenal's 2-1 win over Wolves on Saturday.`\
-https://nytimes.com/athletic/6893268/2025/12/16/ben-white-injury-update/
-
-**Rebecca Lowe will host seventh consecutive Olympics with NBC Sports: Source**\
-`Lowe will also work as a host for Fox Sports' World Cup coverage later this summer.`\
-https://nytimes.com/athletic/6891388/2025/12/16/rebecca-lowe-nbc-milan-cortina-olympics/
 
