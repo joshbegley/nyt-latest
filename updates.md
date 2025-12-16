@@ -1,3 +1,7 @@
+**How to watch Eagles vs. Commanders: Time, TV, streaming**\
+`Find out how to watch the Philadelphia Eagles play the Washington Commanders, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6892497/2025/12/15/eagles-vs-commanders-stream-how-to-watch-dec-20/
+
 **Trial Opens for Judge Accused of Steering Immigrant Away from Federal Agents**\
 `“There was no corrupt intent,” the judge’s lawyer said in an opening statement. Prosecutors said the judge’s political views made her “cross the line.”`\
 https://nytimes.com/2025/12/15/us/milwaukee-judge-immigration.html
