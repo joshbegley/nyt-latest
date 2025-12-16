@@ -1,3 +1,7 @@
+**Matt Rempe (mostly) happy with return from broken thumb: Rangers notes**\
+`Rempe missed almost two months during recovery but put in a noticeable shift in his first game back.`\
+https://nytimes.com/athletic/6892924/2025/12/15/rangers-matt-rempe-broken-thumb-ducks/
+
 **Jason Kelce on his brother Travis' NFL future: 'I'm curious too'**\
 `Monday night, Jason Kelce commented on whether Travis would weigh retirement at the end of the season.`\
 https://nytimes.com/athletic/6892816/2025/12/15/jason-kelce-chiefs-travis-kelce-nfl-retirement/
@@ -29,8 +33,4 @@ https://nytimes.com/live/2025/12/15/world/bondi-beach-shooting-gunmen-isis
 **Kushner’s Firm Pulls Out of Trump-Branded Hotel Deal in Serbia**\
 `The announcement came just hours after prosecutors there charged four government officials with corruption in connection with the half-billion-dollar project.`\
 https://nytimes.com/2025/12/15/us/politics/kushner-trump-hotel-deal-serbia.html
-
-**Here’s the latest.**\
-`The two men who killed 15 people on Sunday were driven by “Islamic State ideology,” Prime Minister Anthony Albanese told Australia’s public broadcaster.`\
-https://nytimes.com/live/2025/12/15/world/bondi-beach-shooting-gunmen-isis/bondi-beach-shooting-gunmen-isis
 

@@ -1,3 +1,7 @@
+**Matt Rempe (mostly) happy with return from broken thumb: Rangers notes**\
+`Rempe missed almost two months during recovery but put in a noticeable shift in his first game back.`\
+https://nytimes.com/athletic/6892924/2025/12/15/rangers-matt-rempe-broken-thumb-ducks/
+
 **Jason Kelce on his brother Travis' NFL future: 'I'm curious too'**\
 `Monday night, Jason Kelce commented on whether Travis would weigh retirement at the end of the season.`\
 https://nytimes.com/athletic/6892816/2025/12/15/jason-kelce-chiefs-travis-kelce-nfl-retirement/
