@@ -1,3 +1,15 @@
+**Plena, One of Puerto Rico’s Earliest Genres, Is Still Thriving**\
+`The rhythms and movements of Plena live on`\
+https://nytimes.com/paidpost/discover-puerto-rico/plena-one-of-puerto-ricos-earliest-genres-is-still-thriving.html
+
+**The Plena of Puerto Rico: Equal Parts Rhythm and Rebellion**\
+`Plena continues to serve as the island’s “sung newspaper”`\
+https://nytimes.com/paidpost/discover-puerto-rico/the-plena-of-puerto-rico-equal-parts-rhythm-and-rebellion.html
+
+**Quinn Hughes trade: Understanding the blockbuster's massive ripple-effects**\
+`The Wild got their guy, and the rest of the league is still coming to terms with the megadeal.`\
+https://nytimes.com/athletic/6893764/2025/12/16/quinn-hughes-trade-wild-nhl-red-light/
+
 **Quinn Hughes trade shook betting markets, but the Wild still face a tough path**\
 `The Wild sat in the middle tier of Stanley Cup contenders before the trade, but sportsbooks quickly adjusted Minnesota's odds to win.`\
 https://nytimes.com/athletic/6892327/2025/12/16/quinn-hughes-trade-betting-market-stanley-cup-odds/
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/6892624/2025/12/16/nba-trade-deadline-team-giannis-
 **FIFA’s 'extreme' ticket prices unfairly impact disabled fans, says supporters' group**\
 `Football Supporters Europe described ticket prices for the tournament as “extreme” and “prohibitively expensive".`\
 https://nytimes.com/athletic/6893637/2025/12/16/world-cup-ticket-prices-disabled-fans/
-
-**Jets release WR Allen Lazard, who followed Aaron Rodgers from Packers to New York: Source**\
-`Lazard was in his third season with the Jets.`\
-https://nytimes.com/athletic/6893749/2025/12/16/allen-lazard-new-york-jets-released/
-
-**Couple Confronted Suspected Bondi Gunman, New Footage Shows**\
-`Previously unseen dash cam footage captured the moment Boris and Sofia Gurman tackled one of the suspected Bondi Beach gunmen during the attack on Sunday, in which at least 15 people were killed — including the Gurmans.`\
-https://nytimes.com/video/world/australia/100000010589995/couple-bondi-shooting-dashcam.html
-
-**The Bounce: Who's got the edge in the NBA Cup final?**\
-`Zach Harper catches you up on the latest NBA news in our newsletter.`\
-https://nytimes.com/athletic/6893737/2025/12/16/nba-cup-knicks-spurs-the-bounce/
 
