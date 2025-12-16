@@ -1,3 +1,11 @@
+**At Rome’s New Stations, Peruse Ancient Relics While Catching a Train**\
+`Part station, part museum, two new subway stops in Rome offer riders the chance to see ancient artifacts unearthed in digging for the stations.`\
+https://nytimes.com/2025/12/16/world/europe/rome-subway-stations-museum-archaeology.html
+
+**Donald Trump May Be About to Pick the Least Important Fed Chair in Decades**\
+`Consensus may be a thing of the past. And that’s good.`\
+https://nytimes.com/2025/12/16/opinion/trump-federal-reserve-powell.html
+
 **Snoop Dogg to perform Netflix Christmas Day halftime show during Lions-Vikings**\
 `In its second season with Christmas NFL games, Netflix is adding to the entertainment with Snoop Dogg.`\
 https://nytimes.com/athletic/6894335/2025/12/16/snoop-dogg-netflix-christmas-halftime-show-lions-vikings/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6894423/2025/12/16/comeback-timeline-patrick-mahome
 **Ukraine Plan Calls For Enhanced Military, With U.S. and European Backup**\
 `The latest proposal is designed to deter future Russian aggression. But Russia is not part of the talks and has shown little willingness to negotiate.`\
 https://nytimes.com/2025/12/16/world/europe/ukraine-security-guarantees-talks.html
-
-**For Lewis Hamilton, a Year of Frustration in Formula 1**\
-`He has been a dominant force in racing for years, but his move to Ferrari in 2025 resulted in no wins and no podiums.`\
-https://nytimes.com/2025/12/16/sports/autoracing/f1-lewis-hamilton.html
-
-**The man representing Nick Reiner is one of the most well-known lawyers in Los Angeles.**\
-`By Matt Stevens and Tim Arango`\
-https://nytimes.com/live/2025/12/16/us/rob-michele-reiner-death-investigation/the-man-representing-nick-reiner-is-one-of-the-most-well-known-lawyers-in-los-angeles
 

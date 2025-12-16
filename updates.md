@@ -1,3 +1,11 @@
+**At Rome’s New Stations, Peruse Ancient Relics While Catching a Train**\
+`Part station, part museum, two new subway stops in Rome offer riders the chance to see ancient artifacts unearthed in digging for the stations.`\
+https://nytimes.com/2025/12/16/world/europe/rome-subway-stations-museum-archaeology.html
+
+**Donald Trump May Be About to Pick the Least Important Fed Chair in Decades**\
+`Consensus may be a thing of the past. And that’s good.`\
+https://nytimes.com/2025/12/16/opinion/trump-federal-reserve-powell.html
+
 **Snoop Dogg to perform Netflix Christmas Day halftime show during Lions-Vikings**\
 `In its second season with Christmas NFL games, Netflix is adding to the entertainment with Snoop Dogg.`\
 https://nytimes.com/athletic/6894335/2025/12/16/snoop-dogg-netflix-christmas-halftime-show-lions-vikings/

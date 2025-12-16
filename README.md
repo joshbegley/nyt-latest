@@ -1,3 +1,15 @@
+**How to watch Queens vs. Arkansas men's basketball: Time, TV, streaming**\
+`Find out how to watch the Queens Royals play the Arkansas Razorbacks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6894524/2025/12/16/queens-vs-arkansas-stream-how-to-watch-dec-16/
+
+**How to watch Chiefs vs. Titans: Time, TV, streaming**\
+`Find out how to watch the Kansas City Chiefs play the Tennessee Titans, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6894510/2025/12/16/chiefs-vs-titans-stream-how-to-watch-dec-21/
+
+**How to watch Bills vs. Browns: Time, TV, streaming**\
+`Find out how to watch the Buffalo Bills play the Cleveland Browns, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6894508/2025/12/16/bills-vs-browns-stream-how-to-watch-dec-21/
+
 **At Rome’s New Stations, Peruse Ancient Relics While Catching a Train**\
 `Part station, part museum, two new subway stops in Rome offer riders the chance to see ancient artifacts unearthed in digging for the stations.`\
 https://nytimes.com/2025/12/16/world/europe/rome-subway-stations-museum-archaeology.html
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/6894254/2025/12/16/terry-rozier-nba-sports-gambling
 **‘Sinners’ and ‘Wicked: For Good’ Lead the Way on the Oscar Shortlists**\
 `The lineups, which Oscar voters will choose from next month, include the new casting category, which was largely a dress rehearsal for best picture.`\
 https://nytimes.com/2025/12/16/movies/oscars-shortlist-awards-sinners-wicked.html
-
-**By Overcoming Doubts, Lando Norris Claimed His First F1 Drivers’ Title**\
-`But he didn’t win it by much, as Max Verstappen made a late-season charge.`\
-https://nytimes.com/2025/12/16/sports/f1-lando-norris-drivers-title.html
-
-**Scoop City: Comeback expectations for Mahomes and Parsons**\
-`What's next for two injured superstars, plus an updated playoff picture after the Dolphins ... gave up?`\
-https://nytimes.com/athletic/6894423/2025/12/16/comeback-timeline-patrick-mahomes-micah-parsons/
-
-**Ukraine Plan Calls For Enhanced Military, With U.S. and European Backup**\
-`The latest proposal is designed to deter future Russian aggression. But Russia is not part of the talks and has shown little willingness to negotiate.`\
-https://nytimes.com/2025/12/16/world/europe/ukraine-security-guarantees-talks.html
 
