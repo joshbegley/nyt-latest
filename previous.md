@@ -1,36 +1,36 @@
-**Newcastle's Burn out for up to six weeks with rib and lung issue**\
-`Burn, 33, suffered the injury during a first-half collision of Newcastle's defeat to Sunderland.`\
-https://nytimes.com/athletic/6892282/2025/12/16/dan-burn-injury-newcastle/
+**The Trump Mind-Set Is Not Complex**\
+`Gimme, gimme, gimme. Gimme some more.`\
+https://nytimes.com/2025/12/16/opinion/trump-corruption-conflict-interest-mindset.html
 
-**Steelers Eliminate Dolphins From Playoff Race With 28-15 Win**\
-`The Pittsburgh Steelers quarterback Aaron Rodgers threw for 224 yards and two touchdowns on Monday in a 28-15 victory over the Miami Dolphins.`\
-https://nytimes.com/video/sports/football/100000010589961/steelers-eliminate-dolphins-from-playoff-race-with-28-15-win.html
+**More Rain Is Forecast for Washington, Still Flooded From Last Week**\
+`Rain that fell on Monday and another round that is expected on Tuesday could send already swollen rivers even higher, forecasters said.`\
+https://nytimes.com/2025/12/16/weather/seattle-washington-rain-forecast.html
 
-**A Luxurious Voyage Onboard and Onshore**\
-`Aboard one of the world’s largest sailing yachts, travelers can embark on a sensorial voyage across the waves — that continues on land.`\
-https://nytimes.com/paidpost/orient-express/a-luxurious-voyage-onboard-and-onshore.html
+**‘Everyone’s on Edge’: Days After a Deadly Shooting, a Community Is in a Standstill**\
+`As a manhunt for a gunman who killed two and injured nine at Brown University stretched into a third day, residents and officials alike were growing weary.`\
+https://nytimes.com/2025/12/16/us/brown-university-shooting-students-providence.html
 
-**Sydney Gunmen Inspired by ISIS, Australia Prime Minister Says**\
-`Australia’s prime minister said the gunmen behind a shooting at a Jewish festival were motivated by the Islamic State. Investigators also said one of the gunmen was a licensed holder of several firearms.`\
-https://nytimes.com/video/world/australia/100000010589741/australian-prime-minister-bondi-shooting-isis.html
+**‘Reiner’s Career Shows What We’ve Lost’: Three Opinion Writers on His Legacy**\
+`Jamelle Bouie, Michelle Cottle and Ross Douthat chat with Stephen Stromberg about Rob Reiner’s legacy.`\
+https://nytimes.com/2025/12/16/opinion/rob-reiner-career-movies-hollywood-roundtable.html
 
-**Portuguese Grand Prix returning to F1 calendar in 2027**\
-`The Portuguese Grand Prix has not been staged since 2021.`\
-https://nytimes.com/athletic/6875348/2025/12/16/f1-portuguese-grand-prix/
+**What Does It Mean to Give Well?**\
+`Elie Hassenfeld, the chief executive of the nonprofit GiveWell, makes the case for a more rigorous, transparent and accountable approach to charitable giving.`\
+https://nytimes.com/2025/12/16/opinion/ezra-klein-podcast-elie-hassenfeld.html
 
-**CFG executive Carlos Raphael Moersen in advanced talks to join Spurs**\
-`Moersen, known as 'Rafi', has spent the last 10 years working for CFG clubs, including negotiating deals for Manchester City.`\
-https://nytimes.com/athletic/6891142/2025/12/16/carlos-raphael-moersen-tottenham-manchester-city/
+**Are You Too Judgmental?**\
+`If so, would you like to find ways to ways to change that? The Well newsletter gives some useful tips.`\
+https://nytimes.com/2025/12/16/learning/are-you-too-judgmental.html
 
-**Jane Austen’s Birthday Party**\
-`The author’s fans are celebrating her 250th birthday. What fandoms are you in? How would you want to celebrate them?`\
-https://nytimes.com/2025/12/16/learning/jane-austens-birthday-party.html
+**Olivia Nuzzi, Karine Jean-Pierre and Eric Trump Have All Written the Same Book**\
+`A recent spate of books highlights the presence of a new category, one well suited to our time: the grievance memoir.`\
+https://nytimes.com/2025/12/16/opinion/olivia-nuzzi-karine-jean-pierre-eric-trump.html
 
-**Flu Cases Skyrocket in New York City, Earlier Than Expected**\
-`The city and surrounding region have some of the highest levels of flu-like illness in the United States.`\
-https://nytimes.com/2025/12/16/nyregion/flu-cases-nyc.html
+**Jobs Data Is Finally Back. But the Economic Picture Is Still Blurry.**\
+`November’s job report may be distorted as a result of the government shutdown, limiting how much it will influence the Federal Reserve’s next interest rate decision in January.`\
+https://nytimes.com/2025/12/16/business/jobs-data-economy.html
 
-**Uber and DoorDash Try to Halt N.Y.C. Law That Encourages Tipping**\
-`The two food-delivery app companies filed a lawsuit against new rules, starting in January, that require food-delivery apps  to provide a tipping option at checkout.`\
-https://nytimes.com/2025/12/16/nyregion/uber-doordash-nyc-tipping.html
+**At Brown, a Shooting Tests a Fragile Trust**\
+`The Ivy League school has faced a series of challenges related to protests and politics. Through it all, it has kept its gates open to the city and tried to heal divisions on campus.`\
+https://nytimes.com/2025/12/16/us/brown-shooting-campus-trust.html
 
