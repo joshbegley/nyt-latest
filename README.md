@@ -1,3 +1,23 @@
+**NFL Week 16 playoff scenarios: How Eagles, Broncos can lock up key spots**\
+`The Rams' clash with the Seahawks will have significant implications in the races for the NFC West and the top seed in the conference.`\
+https://nytimes.com/athletic/6893989/2025/12/16/nfl-week-16-playoff-clinching-scenarios-broncos-eagles/
+
+**Rob Reiner’s Legacy Will Outlast Trump’s Toxic Talk**\
+`Readers mourn Rob Reiner and take offense at the president’s crude response. Also: America snubs its allies; phone scams; former President Joe Biden’s library.`\
+https://nytimes.com/2025/12/16/opinion/rob-reiner-trump.html
+
+**France, in Rare Win for Government, Passes Welfare Budget Law**\
+`Sébastien Lecornu, the third French prime minister in less than a year, succeeded where his two predecessors failed — at least for now.`\
+https://nytimes.com/2025/12/16/world/europe/france-budget-law-lecornu-macron.html
+
+**Rob and Nick Reiner: A Father-Son Relationship in Several Acts**\
+`Some who worked on the semi-autobiographical “Being Charlie” saw challenges play out on the set.`\
+https://nytimes.com/2025/12/16/us/rob-nick-reiner-father-son-being-charlie.html
+
+**England and Gotham defender Jess Carter talks winning championships and combating racist abuse**\
+`England defender Jess Carter won three championships in 181 days, but her proudest moments happened in the quiet.`\
+https://nytimes.com/athletic/6886150/2025/12/16/jess-carter-england-gotham-nwsl-champion/
+
 **Trump Stymied on Prosecutors as G.O.P. Refuses to Defy Democrats**\
 `An informal custom gives Senate Democrats leverage on federal prosecutors even as Republicans have sought to ease other confirmations. The president wants it eliminated.`\
 https://nytimes.com/2025/12/16/us/politics/trump-prosecutors-senate-blue-slips.html
@@ -9,24 +29,4 @@ https://nytimes.com/2025/12/16/dining/nyc-restaurant-news.html
 **Can 49ers' passing attack overcome run game, defensive woes in playoffs?**\
 `Robert Mays and Derrik Klassen dove into the Niners on the latest episode of “The Athletic Football Show”.`\
 https://nytimes.com/athletic/6893088/2025/12/16/upon-further-review-are-niners-flaws-too-big-for-a-postseason-run/
-
-**FIFA creates new $60 World Cup ticket category for few supporters**\
-`One thousand of the cheaper tickets will be available for each team per game after outrage over historically high prices this month.`\
-https://nytimes.com/athletic/6894159/2025/12/16/fifa-world-cup-ticket-category-backlash/
-
-**Send your Cowboys mailbag questions to Jon Machota**\
-`<p>The Dallas Cowboys have lost two games in a row, are not quite officially eliminated from playoff contention (but it&#8217;s close) and have a lot of things to address.`\
-https://nytimes.com/athletic/6894229/2025/12/16/send-your-cowboys-mailbag-questions-to-jon-machota/
-
-**U.S. Threatens Penalties Against European Tech Firms Amid Regulatory Fight**\
-`The Trump administration singled out European tech firms by name and promised economic consequences Tuesday unless the E.U. rolls back tech regulation and lawsuits.`\
-https://nytimes.com/2025/12/16/business/economy/us-eu-tech-penalties.html
-
-**White House Shrugs Off Rise in Unemployment Rate**\
-`The Trump administration looked to recast elements of a dour jobs report Thursday as a sign of strength.`\
-https://nytimes.com/2025/12/16/us/politics/trump-administration-unemployment-rate-economy.html
-
-**Dembele, Bonmati crowned winners at FIFA Best Awards**\
-`Luis Enrique and Sarina Wiegman were named men's and women's coach of the year, respectively, at the ceremony in Doha.`\
-https://nytimes.com/athletic/6890715/2025/12/16/fifa-best-awards-ousmane-dembele-aitana-bonmati/
 
