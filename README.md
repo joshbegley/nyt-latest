@@ -1,3 +1,7 @@
+**Remixing Trump’s Economy Speech, Vance Strikes a Different Tone**\
+`Vice President JD Vance pleaded with everybody to just hang in there a little longer, saying the economy would improve.`\
+https://nytimes.com/2025/12/16/us/politics/vance-trump-economy-speech.html
+
 **Jim Harbaugh says he texted Sherrone Moore after ex-Michigan coach’s arrest**\
 `"I still don't have my head wrapped around it," Harbaugh said of Moore's arrest on charges of stalking and breaking and entering.`\
 https://nytimes.com/athletic/6894592/2025/12/16/sherrone-moore-jim-harbaugh-michigan-arrest-firing-reaction/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6894754/2025/12/16/jayden-daniels-injuries-frustrat
 **Chris Marinak, top MLB exec regarded as candidate for commissioner, departs**\
 `Marinak joined MLB in 2008 and was responsible for several of the league's significant on-field changes, including instant replay.`\
 https://nytimes.com/athletic/6894796/2025/12/16/chris-marinak-mlb-executive-exit/
-
-**Our Petty, Hollow, Squalid Ogre in Chief**\
-`The White House has never had a more loathsome occupant.`\
-https://nytimes.com/2025/12/16/opinion/trump-reiner-death-post-truth-social.html
 

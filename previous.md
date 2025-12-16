@@ -1,3 +1,7 @@
+**Jim Harbaugh says he texted Sherrone Moore after ex-Michigan coach’s arrest**\
+`"I still don't have my head wrapped around it," Harbaugh said of Moore's arrest on charges of stalking and breaking and entering.`\
+https://nytimes.com/athletic/6894592/2025/12/16/sherrone-moore-jim-harbaugh-michigan-arrest-firing-reaction/
+
 **Fantasy football strength of schedule: Week 16 and championship matchup rankings**\
 `Jake Ciely's Week 16 and championship matchup rankings can help with difficult start/sit decisions this week and beyond.`\
 https://nytimes.com/athletic/6894503/2025/12/16/fantasy-football-week-16-playoffs-schedule-strength-matchups/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6894796/2025/12/16/chris-marinak-mlb-executive-exit
 **Our Petty, Hollow, Squalid Ogre in Chief**\
 `The White House has never had a more loathsome occupant.`\
 https://nytimes.com/2025/12/16/opinion/trump-reiner-death-post-truth-social.html
-
-**Nick Reiner Will Be Charged With Murdering His Parents**\
-`Prosecutors said that Mr. Reiner killed his parents, Rob and Michelle Reiner, using a knife. He has not yet entered a plea.`\
-https://nytimes.com/2025/12/16/us/nick-reiner-charges-murder-rob-michele.html
 
