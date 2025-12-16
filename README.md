@@ -1,3 +1,7 @@
+**Europe May Roll Back Combustion Engine Ban**\
+`A proposal to revise an E.U. law requiring carmakers to stop producing combustion engines by 2035 would offer some relief to automakers, but it sets back the region’s climate goals.`\
+https://nytimes.com/2025/12/16/business/economy/europe-auto-emissions-ban.html
+
 **Perfection Takes Time**\
 `Delve into the philosophy that shapes every Patek Philippe.`\
 https://nytimes.com/paidpost/patek-philippe/perfection-takes-time.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6893933/2025/12/16/islanders-vs-red-wings-stream-ho
 **How to watch Blackhawks vs. Maple Leafs: Time, TV, streaming**\
 `Find out how to watch the Chicago Blackhawks play the Toronto Maple Leafs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6893931/2025/12/16/blackhawks-vs-maple-leafs-stream-how-to-watch-dec-16/
-
-**How to watch Ducks vs. Blue Jackets: Time, TV, streaming**\
-`Find out how to watch the Anaheim Ducks play the Columbus Blue Jackets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6893929/2025/12/16/ducks-vs-blue-jackets-stream-how-to-watch-dec-16/
 
