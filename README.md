@@ -1,3 +1,7 @@
+**Mikaela Shiffrin, 4-for-4 in slalom to start Olympic year, gets 105th World Cup win**\
+`Shiffrin has won five straight World Cup slaloms dating back to last season's finale, firmly establishing herself as the Olympic favorite.`\
+https://nytimes.com/athletic/6894044/2025/12/16/mikaela-shiffrin-olympics-world-cup-slalom-win-courchevel/
+
 **Denny Hamlin, days after NASCAR suit settlement, asks Sirius host for apology**\
 `Hamlin, the 23XI Racing co-owner, took to X on Tuesday to express his displeasure over criticism and more from the SiriusXM channel.`\
 https://nytimes.com/athletic/6894070/2025/12/16/denny-hamlin-siriusxm-nascar-larry-mcreynolds-dave-moody/
@@ -25,8 +29,4 @@ https://nytimes.com/interactive/2025/12/16/magazine/norma-swenson-our-bodies-our
 **The Hip-Hop Trailblazer Who Demanded Recognition — and Pay — for Her Work**\
 `Angie Stone always knew she had what it took to make it, even if the music industry did not.`\
 https://nytimes.com/interactive/2025/12/16/magazine/angie-stone-music.html
-
-**The Track and Field Star Who Casually Shattered Race and Gender Barriers**\
-`Mabel Landry Staton was one of the first Black, female long-jumpers in the history of the Olympics.`\
-https://nytimes.com/interactive/2025/12/16/magazine/mabel-landry-staton-olympics.html
 
