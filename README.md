@@ -1,3 +1,7 @@
+**A Pipe Organist Invites You to Bliss Out to Her Dreamy Colors**\
+`Ellen Arkbro makes music that shifts and churns with no regard for harmony’s rules. She’s one of the most interesting composers for her instrument working today.`\
+https://nytimes.com/2025/12/16/arts/music/ellen-arkbro.html
+
 **Liverpool parade attacker sentenced to 21 years, six months in prison**\
 `Judge Andrew Menary KC said that the evidence against Paul Doyle was “overwhelming” as he described the footage as “truly shocking”.`\
 https://nytimes.com/athletic/6891218/2025/12/16/paul-doyle-sentencing-liverpool-title-parade/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6893282/2025/12/16/world-cup-fan-zone-queens-new-yo
 **Why a Flood of New Data Is Unlikely to Settle Debate on Rates**\
 `A backlog of government economic data is set to ease, but disagreement on the country’s economic outlook could linger.`\
 https://nytimes.com/2025/12/16/business/dealbook/jobs-inflation-fed-rates.html
-
-**'Be free, be me': Odafe Oweh has unlocked the Chargers' pass rush**\
-`Oweh has seven sacks since coming over in a midseason trade from the Ravens.`\
-https://nytimes.com/athletic/6892461/2025/12/16/chargers-odafe-oweh-pass-rush/
 
