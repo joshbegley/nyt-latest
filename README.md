@@ -1,3 +1,7 @@
+**Dearica Hamby, Aces agree to dismiss pregnancy discrimination lawsuit**\
+`Hamby alleged that the team treated her differently after she announced her pregnancy in 2022 and subsequently traded her in 2023.`\
+https://nytimes.com/athletic/6893805/2025/12/16/dearica-hamby-aces-pregnancy-discrimination-lawsuit-dropped/
+
 **Trinidad Has Become a U.S. Staging Ground in Its Conflict With Venezuela**\
 `The United States and Trinidad say U.S. Marines installed a radar in Tobago to combat drugs — but this war materiel isn’t designed for operations based at sea or on land.`\
 https://nytimes.com/2025/12/16/world/trinidad-and-tobago-us-military-venezuela.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6893937/2025/12/16/hugo-broos-south-africa-mbokazi-
 **Was Man Utd 4-4 Bournemouth the game of the season so far? Our writers have their say**\
 `Our writers debate the merits of a game that was packed with action, goals... and chaos. Lots of chaos`\
 https://nytimes.com/athletic/6893505/2025/12/16/man-utd-bournemouth-premier-league-game-of-the-season/
-
-**What to know about the report.**\
-`By Rebecca Davis O’Brien`\
-https://nytimes.com/live/2025/12/16/business/jobs-report-economy/what-to-know-about-the-report
 

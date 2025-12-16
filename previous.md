@@ -1,13 +1,17 @@
+**Trinidad Has Become a U.S. Staging Ground in Its Conflict With Venezuela**\
+`The United States and Trinidad say U.S. Marines installed a radar in Tobago to combat drugs — but this war materiel isn’t designed for operations based at sea or on land.`\
+https://nytimes.com/2025/12/16/world/trinidad-and-tobago-us-military-venezuela.html
+
 **Are A.I. Data Centers Really Ruining Our Water Supply?**\
 `Andy Masley, a blogger who has written extensively about A.I. water use, joined “Hard Fork” to separate fact from fiction on the topic. Is it a distraction from other more pressing environmental concerns?`\
 https://nytimes.com/video/podcasts/100000010590282/are-ai-data-centers-really-ruining-our-water-supply.html
 
-**Arctic Warming Turning Alaska’s Rivers Red With Toxic Runoff**\
-`A yearly checkup on the region documents a warmer, rainier Arctic and 200 Alaskan rivers “rusting” as melting tundra leaches minerals from the soil to waterways.`\
+**Arctic Warming Is Turning Alaska’s Rivers Red With Toxic Runoff**\
+`A yearly checkup on the region documents a warmer, rainier Arctic and 200 Alaskan rivers “rusting” as melting tundra leaches minerals from the soil into waterways.`\
 https://nytimes.com/2025/12/16/climate/arctic-report-card-agu.html
 
-**Sean McVay not ruling Davante Adams out vs. Seahawks despite missing practice**\
-`Adams leads the league with 14 receiving touchdowns in his 12th NFL season. `\
+**Sean McVay not ruling Davante Adams out vs. Seahawks despite hamstring strain**\
+`Adams, who leads the league with 14 receiving touchdowns, missed practice on Tuesday after aggravating his hamstring vs. the Lions. `\
 https://nytimes.com/athletic/6892575/2025/12/16/rams-davante-adams-hamstring-injury/
 
 **Takeaways From Susie Wiles’s Candid Interviews Describing Trump World**\
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6893505/2025/12/16/man-utd-bournemouth-premier-leag
 **What to know about the report.**\
 `By Rebecca Davis O’Brien`\
 https://nytimes.com/live/2025/12/16/business/jobs-report-economy/what-to-know-about-the-report
-
-**New York Accuses UPS of Seasonal Worker Wage Theft**\
-`In a lawsuit, the state’s attorney general, Letitia James, said UPS had “repeatedly and persistently” failed to pay seasonal workers for all of the time they spent on the job.`\
-https://nytimes.com/2025/12/16/business/ups-seasonal-worker-lawsuit-new-york.html
 
