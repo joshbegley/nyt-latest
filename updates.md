@@ -1,3 +1,15 @@
+**The Pulse: Do you care about the NBA Cup?**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6891511/2025/12/16/nba-cup-poll-the-pulse/
+
+**Canadiens weekly notebook: How to manufacture a top-four pair and a top line**\
+`This week's edition of the notebook looks at Alexandre Carrier, Zack Bolduc, Owen Beck and Jon Cooper's appreciation for Nick Suzuki.`\
+https://nytimes.com/athletic/6893240/2025/12/16/canadiens-weekly-notebook-top-pair-top-line/
+
+**'I'll buy a watch. I got robbed': Knicks reveal what they'll do with NBA Cup money**\
+`The Knicks reveal what they're going to do with the prize money from a deep NBA Cup run.`\
+https://nytimes.com/athletic/6891538/2025/12/16/knicks-spurs-nba-cup-finals-winnings/
+
 **What can the Bears take from their rout of the Browns into rematch with the Packers?**\
 `First place in the NFC North is on the line Saturday night. What do the Bears need to do to knock off the Packers this time?`\
 https://nytimes.com/athletic/6892124/2025/12/16/bears-packers-nfc-north-rematch/
