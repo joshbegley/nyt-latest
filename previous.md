@@ -1,5 +1,17 @@
-**Trump Administration Takes Aim at Another European Climate Law**\
-`U.S. officials told Europe that its methane law, aimed at tackling climate change, would hurt American oil and gas companies.`\
+**Wrong Turns and Long Nights: Inside the Search for the Brown University Attacker**\
+`After determining that a man they had detained was not the killer, Rhode Island officials have searched for more evidence and released photos of a possible gunman.`\
+https://nytimes.com/2025/12/16/us/brown-university-attack-timeline.html
+
+**Trump and Top Aides Publicly Defend Susie Wiles After Explosive Interviews**\
+`President Trump praised his chief of staff as doing “a fantastic job,” and more than a dozen members of his cabinet have posted defenses of her on social media.`\
+https://nytimes.com/2025/12/16/us/politics/susie-wiles-vanity-fair.html
+
+**Sample Our Best Books of the Year**\
+`Audiobook excerpts from our picks for the top fiction and nonfiction of 2025.`\
+https://nytimes.com/2025/12/16/podcasts/best-books-2025-excerpts.html
+
+**U.S. Is Said to Seek Exemption From a European Climate Law**\
+`Diplomats told E.U. officials that the bloc’s law on methane, a potent greenhouse gas, would hurt American oil and gas companies.`\
 https://nytimes.com/2025/12/16/climate/trump-europe-methane-rules.html
 
 **Ruth Kiew Dies at 79; Botanist Made Discoveries in Remote Forests**\
@@ -21,16 +33,4 @@ https://nytimes.com/2025/12/16/arts/music/amplifier-newsletter-best-songs-albums
 **U.S. Sends Cubans to Naval Station at Guantánamo Bay**\
 `The transfer of nearly two dozen men this week restarted a Trump administration deportation operation on the base after a two-month hiatus.`\
 https://nytimes.com/2025/12/16/us/politics/cubans-deportations-guantanamo-bay.html
-
-**Super Bowl odds: Top 2 favorites to clash in Week 16**\
-`Preseason favorites like the Lions and Chiefs are fumbling the playoff race as the NFC West rises to the top. `\
-https://nytimes.com/athletic/6894079/2025/12/16/super-bowl-2026-odds-rams-seahawks/
-
-**Does the overhead kick have a stranglehold on the FIFA Puskas Award?**\
-`Santiago Montiel's winning strike is the fourth year in a row that a bicycle kick has won – should other techniques get more credit?`\
-https://nytimes.com/athletic/6894104/2025/12/16/fifa-goal-of-2025-overhead-montiel-rice-yamal/
-
-**M.I.T. Professor Is Fatally Shot in His Home**\
-`The professor, Nuno F.G. Loureiro, was pronounced dead at a hospital on Tuesday morning. The authorities said they had opened a homicide investigation.`\
-https://nytimes.com/2025/12/16/us/mit-professor-shot-brookline-nuno-loureiro.html
 
