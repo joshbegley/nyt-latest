@@ -1,3 +1,7 @@
+**Takeaways From Susie Wiles’s Candid Interviews Describing Trump World**\
+`During 11 interviews with Vanity Fair over President Trump’s first year back in office, Ms. Wiles, his chief of staff, opened up about the president, the people around him and their internal fights.`\
+https://nytimes.com/2025/12/16/us/politics/susie-wiles-takeaways-trump.html
+
 **Rob Reiner Gave Us Great Reasons to Go to the Movies**\
 `“This Is Spinal Tap,” “When Harry Met Sally …,” “Misery”: Reiner delivered an incredible number of accessible, original and adult movies that we still cherish.`\
 https://nytimes.com/2025/12/16/movies/rob-reiner-movies-director.html
@@ -29,8 +33,4 @@ https://nytimes.com/paidpost/patek-philippe/perfection-takes-time.html
 **NFL MVP odds: Can Josh Allen rise to the top?**\
 `Josh Allen's odds shortened considerably after beating Drake Maye in Week 15. But can either challenge Stafford?`\
 https://nytimes.com/athletic/6893631/2025/12/16/nfl-mvp-odds-josh-allen-matthew-stafford-drake-maye/
-
-**Stephen King: What Rob Reiner Saw in Me**\
-`In Rob’s hands, “Stand by Me,” my most autobiographical novel, rang true.`\
-https://nytimes.com/2025/12/16/opinion/culture/stephen-king-rob-reiner-stand-by-me.html
 

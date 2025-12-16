@@ -1,3 +1,7 @@
+**Takeaways From Susie Wiles’s Candid Interviews Describing Trump World**\
+`During 11 interviews with Vanity Fair over President Trump’s first year back in office, Ms. Wiles, his chief of staff, opened up about the president, the people around him and their internal fights.`\
+https://nytimes.com/2025/12/16/us/politics/susie-wiles-takeaways-trump.html
+
 **Rob Reiner Gave Us Great Reasons to Go to the Movies**\
 `“This Is Spinal Tap,” “When Harry Met Sally …,” “Misery”: Reiner delivered an incredible number of accessible, original and adult movies that we still cherish.`\
 https://nytimes.com/2025/12/16/movies/rob-reiner-movies-director.html
