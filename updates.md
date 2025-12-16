@@ -1,3 +1,11 @@
+**British Man Who Drove Into Soccer Parade Is Sentenced to 21 Years**\
+`Paul Doyle struck more than 130 people when he plowed his car through fans leaving a jubilant victory parade for Liverpool F.C.`\
+https://nytimes.com/2025/12/16/world/europe/uk-liverpool-parade-attack-paul-doyle.html
+
+**2025 NFL Simulator: Updated playoff paths and projected draft order after Week 15 results**\
+`How could your favorite team's season end? Find out all the possible paths here.`\
+https://nytimes.com/athletic/6513952/2025/12/16/2025-nfl-playoff-simulator-path-postseason/
+
 **Carabao Cup predictions as Arsenal and Manchester City look to progress to final four**\
 `The Carabao Cup quarter-finals are here this week and The Athletic is on hand to pick each of the four games.`\
 https://nytimes.com/athletic/6893355/2025/12/16/carabao-cup-quarter-final-predictions-and-picks/

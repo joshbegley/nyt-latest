@@ -1,3 +1,7 @@
+**Liverpool parade attacker sentenced to 21 years, six months in prison**\
+`Judge Andrew Menary KC said that the evidence against Paul Doyle was “overwhelming” as he described the footage as “truly shocking”.`\
+https://nytimes.com/athletic/6891218/2025/12/16/paul-doyle-sentencing-liverpool-title-parade/
+
 **British Man Who Drove Into Soccer Parade Is Sentenced to 21 Years**\
 `Paul Doyle struck more than 130 people when he plowed his car through fans leaving a jubilant victory parade for Liverpool F.C.`\
 https://nytimes.com/2025/12/16/world/europe/uk-liverpool-parade-attack-paul-doyle.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/16/business/dealbook/jobs-inflation-fed-rates.html
 **'Be free, be me': Odafe Oweh has unlocked the Chargers' pass rush**\
 `Oweh has seven sacks since coming over in a midseason trade from the Ravens.`\
 https://nytimes.com/athletic/6892461/2025/12/16/chargers-odafe-oweh-pass-rush/
-
-**2025 NFL Simulator: Updated playoff paths and projected draft order after Week 15 results**\
-`How could your favorite team's season end? Find out all the possible paths here.`\
-https://nytimes.com/athletic/6513952/2025/12/16/2025-nfl-playoff-simulator-path-postseason/
 
