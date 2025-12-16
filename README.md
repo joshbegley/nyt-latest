@@ -1,3 +1,23 @@
+**The Trump Mind-Set Is Not Complex**\
+`Gimme, gimme, gimme. Gimme some more.`\
+https://nytimes.com/2025/12/16/opinion/trump-corruption-conflict-interest-mindset.html
+
+**More Rain Is Forecast for Washington, Still Flooded From Last Week**\
+`Rain that fell on Monday and another round that is expected on Tuesday could send already swollen rivers even higher, forecasters said.`\
+https://nytimes.com/2025/12/16/weather/seattle-washington-rain-forecast.html
+
+**‘Everyone’s on Edge’: Days After a Deadly Shooting, a Community Is in a Standstill**\
+`As a manhunt for a gunman who killed two and injured nine at Brown University stretched into a third day, residents and officials alike were growing weary.`\
+https://nytimes.com/2025/12/16/us/brown-university-shooting-students-providence.html
+
+**‘Reiner’s Career Shows What We’ve Lost’: Three Opinion Writers on His Legacy**\
+`Jamelle Bouie, Michelle Cottle and Ross Douthat chat with Stephen Stromberg about Rob Reiner’s legacy.`\
+https://nytimes.com/2025/12/16/opinion/rob-reiner-career-movies-hollywood-roundtable.html
+
+**What Does It Mean to Give Well?**\
+`Elie Hassenfeld, the chief executive of the nonprofit GiveWell, makes the case for a more rigorous, transparent and accountable approach to charitable giving.`\
+https://nytimes.com/2025/12/16/opinion/ezra-klein-podcast-elie-hassenfeld.html
+
 **Are You Too Judgmental?**\
 `If so, would you like to find ways to ways to change that? The Well newsletter gives some useful tips.`\
 https://nytimes.com/2025/12/16/learning/are-you-too-judgmental.html
@@ -13,24 +33,4 @@ https://nytimes.com/2025/12/16/business/jobs-data-economy.html
 **At Brown, a Shooting Tests a Fragile Trust**\
 `The Ivy League school has faced a series of challenges related to protests and politics. Through it all, it has kept its gates open to the city and tried to heal divisions on campus.`\
 https://nytimes.com/2025/12/16/us/brown-shooting-campus-trust.html
-
-**The Diary of a Jeffrey Epstein Girlfriend Shows How He Used Women**\
-`A Bear Stearns executive introduced a 23-year-old employee to Epstein. She shared her diary with us.`\
-https://nytimes.com/interactive/2025/12/16/magazine/jeffrey-epstein-girlfriend-diary-women-investigation.html
-
-**Subways Are for Shopping? A Tough Sell for New Yorkers.**\
-`The Turnstyle Underground Market in the 59th Street-Columbus Circle station faces some retail challenges.`\
-https://nytimes.com/2025/12/16/nyregion/turnstyle-mall-columbus-circle.html
-
-**Senators Investigate Role of A.I. Data Centers in Rising Electricity Costs**\
-`Three Democrats are seeking information from tech firms about the growing energy use of data centers and the utility bills of individuals and other businesses.`\
-https://nytimes.com/2025/12/16/business/energy-environment/senate-democrats-electricity-prices-data-centers.html
-
-**Neckties Don’t Need to Be Cool**\
-`Bizarre attempts to revive the necktie are leaving us cold.`\
-https://nytimes.com/2025/12/16/style/neckties-trend.html
-
-**Venezuela’s Oil Is a Focus of Trump’s Campaign Against Maduro**\
-`In public, the White House says it is confronting Venezuela to curb drug trafficking. Behind the scenes, gaining access to the country’s vast oil reserves is a priority.`\
-https://nytimes.com/2025/12/16/us/politics/trump-maduro-venezuela-oil-tanker.html
 
