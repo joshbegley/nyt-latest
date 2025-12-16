@@ -1,3 +1,19 @@
+**Bondi Suspects Were in Southern Philippines, Where ISIS Is Active**\
+`It remains unclear what the two men did there last month.`\
+https://nytimes.com/2025/12/16/world/asia/bondi-shooting-gunmen-philippines-isis.html
+
+**The New York Times in Print for Tuesday, Dec. 16, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/12/16/todays-new-york-times
+
+**Europe Is in Decline. Good.**\
+`Demotion need not be traumatic.`\
+https://nytimes.com/2025/12/16/opinion/europe-decline-economy-china.html
+
+**In Sydney Suburb Where Suspects Lived, Neighbor Saw ‘No Dramas’**\
+`He said the people in the house were relatively new to the area and largely kept to themselves.`\
+https://nytimes.com/2025/12/16/world/australia/sydney-bondi-suspects-neighborhood-bonnyrigg.html
+
 **Cooper Flagg puts on a show at Utah, erupts for career-high 42 points**\
 `Flagg became the first 18-year-old in NBA history to record a 40-point game.`\
 https://nytimes.com/athletic/6893035/2025/12/16/cooper-flagg-career-high-42-points-mavericks/
@@ -17,20 +33,4 @@ https://nytimes.com/athletic/6893033/2025/12/16/jaylen-brown-takes-blame-celtics
 **How Ekitike established himself as Liverpool's No 1 striker**\
 `The French striker has left his fellow big-money new signing Alexander Isak in the shade so far this season`\
 https://nytimes.com/athletic/6891069/2025/12/16/hugo-ekitike-liverpool-striker/
-
-**A Finnish soccer club's stadium burnt down. Rivals are helping the club rebuild**\
-`Rival clubs in Finland are supporting FC Haka's efforts to finance a rebuilding project after a fire at its stadium earlier this month`\
-https://nytimes.com/athletic/6891158/2025/12/16/fc-haka-fire-finland/
-
-**Serie A briefing: Defiant Inter on top, Zaniolo on fire, Napoli running on fumes**\
-`Going into the weekend four different clubs had led Serie A – Juventus, Milan, Napoli, and Roma – and now there is a fifth: Inter `\
-https://nytimes.com/athletic/6891016/2025/12/16/james-horncastles-serie-a-briefing-defiant-inter-on-top/
-
-**A new manager and a mentality shift: Manchester City's rise to the top of the WSL**\
-`After finishing fourth last season, Manchester City enter the winter break with a six-point lead at the top of the Women's Super League`\
-https://nytimes.com/athletic/6890714/2025/12/16/man-city-wsl-leaders-alex-greenwood-lily-murphy/
-
-**Can England's forgotten men get into the World Cup squad?**\
-`For England's forgotten men there is a clean slate under Thomas Tuchel, and their exclusions are a sign that football moves fast`\
-https://nytimes.com/athletic/6890951/2025/12/16/gomes-mainoo-mount-england-tuchel-world-cup-squad/
 
