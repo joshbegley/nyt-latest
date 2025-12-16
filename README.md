@@ -1,3 +1,15 @@
+**How Ekitike established himself as Liverpool's No 1 striker**\
+`The French striker has left his fellow big-money new signing Alexander Isak in the shade so far this season`\
+https://nytimes.com/athletic/6891069/2025/12/16/hugo-ekitike-liverpool-striker/
+
+**A Finnish soccer club's stadium burnt down. Rivals are helping the club rebuild**\
+`Rival clubs in Finland are supporting FC Haka's efforts to finance a rebuilding project after a fire at its stadium earlier this month`\
+https://nytimes.com/athletic/6891158/2025/12/16/fc-haka-fire-finland/
+
+**Serie A briefing: Defiant Inter on top, Zaniolo on fire, Napoli running on fumes**\
+`Going into the weekend four different clubs had led Serie A – Juventus, Milan, Napoli, and Roma – and now there is a fifth: Inter `\
+https://nytimes.com/athletic/6891016/2025/12/16/james-horncastles-serie-a-briefing-defiant-inter-on-top/
+
 **A new manager and a mentality shift: Manchester City's rise to the top of the WSL**\
 `After finishing fourth last season, Manchester City enter the winter break with a six-point lead at the top of the Women's Super League`\
 https://nytimes.com/athletic/6890714/2025/12/16/man-city-wsl-leaders-alex-greenwood-lily-murphy/
@@ -21,16 +33,4 @@ https://nytimes.com/2025/12/16/world/asia/borneo-elephants-poaching-beheading.ht
 **Connections: Sports Edition Coach: Hints for Dec. 16, 2025**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/6892949/2025/12/16/connections-sports-edition-hints-for-dec-16-2025/
-
-**Volkswagen to End Production at German Plant, a First in Company History**\
-`The auto giant stopped making cars at the plant in Dresden, which opened in 2001, as it faces weaker demand and steep U.S. tariffs.`\
-https://nytimes.com/2025/12/16/business/volkswagen-dresden-factory-closed.html
-
-**Corrections: Dec. 16, 2025**\
-`Corrections that appeared in print on Tuesday, Dec. 16, 2025.`\
-https://nytimes.com/2025/12/16/pageoneplus/corrections-dec-16-2025.html
-
-**Fantasy football waiver wire Week 16: Michael Carter, Matthew Golden, streamers**\
-`Jake Ciely dissects the rampant injuries and NFL roster churn coming out of the weekend to direct you to the help you need for Week 16.`\
-https://nytimes.com/athletic/6891509/2025/12/16/fantasy-football-waiver-wire-week-16-michael-carter-matthew-golden-streamers/
 
