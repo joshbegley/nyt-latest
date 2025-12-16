@@ -1,3 +1,7 @@
+**Nick Reiner’s Struggles With Drugs Left His Parents ‘Desperate’**\
+`Mr. Reiner, who was arrested in connection with the deaths of Rob and Michele Reiner, once estimated he had been in drug treatment 18 times as a teenager.`\
+https://nytimes.com/2025/12/15/movies/nick-reiner-drugs-rehab-heroin-cocaine.html
+
 **Wisconsin Judge Allows Election Case to Proceed Against Trump Advisers**\
 `A judge ruled that at least two of three defendants would have to stand trial in a case stemming from a plan to deploy fake electors after Donald Trump lost the 2020 presidential election.`\
 https://nytimes.com/2025/12/15/us/politics/wisconsin-trump-electors-court.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6892550/2025/12/15/james-madison-vs-oregon-stream-h
 **Eager for Center Stage, Patel Casts Aside Caution in Statements as F.B.I. Leader**\
 `Kash Patel’s impulse to publicize the work of the bureau under his leadership has revived questions about his competence and his future in the administration.`\
 https://nytimes.com/2025/12/15/us/politics/kash-patel-fbi.html
-
-**Robert Samuelson, Award-Winning Economics Columnist, Dies at 79**\
-`He was a familiar byline in Newsweek and The Washington Post for decades, explaining the intricacies of economic policy in reader-friendly vernacular.`\
-https://nytimes.com/2025/12/15/business/media/robert-samuelson-dead.html
 

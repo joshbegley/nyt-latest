@@ -1,3 +1,7 @@
+**Nick Reiner’s Struggles With Drugs Left His Parents ‘Desperate’**\
+`Mr. Reiner, who was arrested in connection with the deaths of Rob and Michele Reiner, once estimated he had been in drug treatment 18 times as a teenager.`\
+https://nytimes.com/2025/12/15/movies/nick-reiner-drugs-rehab-heroin-cocaine.html
+
 **Wisconsin Judge Allows Election Case to Proceed Against Trump Advisers**\
 `A judge ruled that at least two of three defendants would have to stand trial in a case stemming from a plan to deploy fake electors after Donald Trump lost the 2020 presidential election.`\
 https://nytimes.com/2025/12/15/us/politics/wisconsin-trump-electors-court.html
