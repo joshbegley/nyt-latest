@@ -30,7 +30,3 @@ https://nytimes.com/2025/12/16/us/politics/trump-administration-unemployment-rat
 `Luis Enrique and Sarina Wiegman were named men's and women's coach of the year, respectively, at the ceremony in Doha.`\
 https://nytimes.com/athletic/6890715/2025/12/16/fifa-best-awards-ousmane-dembele-aitana-bonmati/
 
-**'Focus on what's ahead of you': Tom Brady offers advice to Patrick Mahomes during recovery**\
-`Brady knows better than anyone what Mahomes is dealing with as he begins the road to recovery. `\
-https://nytimes.com/athletic/6893897/2025/12/16/tom-brady-patrick-mahomes-acl/
-
