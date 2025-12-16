@@ -1,3 +1,7 @@
+**Prosecutors flag conflict of interest concern in NBA sports gambling case**\
+`Rozier is paying for defendant Deniro Laster's attorney.`\
+https://nytimes.com/athletic/6894254/2025/12/16/terry-rozier-nba-sports-gambling-betting-deniro-laster/
+
 **‘Sinners’ and ‘Wicked: For Good’ Lead the Way on the Oscar Shortlists**\
 `The lineups, which Oscar voters will choose from next month, include the new casting category, which was largely a dress rehearsal for best picture.`\
 https://nytimes.com/2025/12/16/movies/oscars-shortlist-awards-sinners-wicked.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/16/world/canada/carney-british-spelling.html
 **Wrong Turns and Long Nights: Inside the Search for the Brown University Attacker**\
 `After determining that a man they had detained was not the killer, Rhode Island officials have searched for more evidence and released photos of a possible gunman.`\
 https://nytimes.com/2025/12/16/us/brown-university-attack-timeline.html
-
-**Trump and Top Aides Publicly Defend Susie Wiles After Explosive Interviews**\
-`President Trump praised his chief of staff as doing “a fantastic job,” and more than a dozen members of his cabinet have posted defenses of her on social media.`\
-https://nytimes.com/2025/12/16/us/politics/susie-wiles-vanity-fair.html
 

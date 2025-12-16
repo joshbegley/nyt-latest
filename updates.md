@@ -1,3 +1,7 @@
+**‘Sinners’ and ‘Wicked: For Good’ Lead the Way on the Oscar Shortlists**\
+`The lineups, which Oscar voters will choose from next month, include the new casting category, which was largely a dress rehearsal for best picture.`\
+https://nytimes.com/2025/12/16/movies/oscars-shortlist-awards-sinners-wicked.html
+
 **By Overcoming Doubts, Lando Norris Claimed His First F1 Drivers’ Title**\
 `But he didn’t win it by much, as Max Verstappen made a late-season charge.`\
 https://nytimes.com/2025/12/16/sports/f1-lando-norris-drivers-title.html

@@ -1,3 +1,7 @@
+**‘Sinners’ and ‘Wicked: For Good’ Lead the Way on the Oscar Shortlists**\
+`The lineups, which Oscar voters will choose from next month, include the new casting category, which was largely a dress rehearsal for best picture.`\
+https://nytimes.com/2025/12/16/movies/oscars-shortlist-awards-sinners-wicked.html
+
 **By Overcoming Doubts, Lando Norris Claimed His First F1 Drivers’ Title**\
 `But he didn’t win it by much, as Max Verstappen made a late-season charge.`\
 https://nytimes.com/2025/12/16/sports/f1-lando-norris-drivers-title.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/16/us/brown-university-attack-timeline.html
 **Trump and Top Aides Publicly Defend Susie Wiles After Explosive Interviews**\
 `President Trump praised his chief of staff as doing “a fantastic job,” and more than a dozen members of his cabinet have posted defenses of her on social media.`\
 https://nytimes.com/2025/12/16/us/politics/susie-wiles-vanity-fair.html
-
-**Sample Our Best Books of the Year**\
-`Audiobook excerpts from our picks for the top fiction and nonfiction of 2025.`\
-https://nytimes.com/2025/12/16/podcasts/best-books-2025-excerpts.html
 
