@@ -1,3 +1,7 @@
+**Brigitte Macron Apologizes for Slur Against Feminist Activists. Sort Of.**\
+`In a short video, the French first lady said that she was “sorry if I have hurt women victims,” but she also noted that she should be allowed to behave freely in private.`\
+https://nytimes.com/2025/12/16/world/europe/france-first-lady-brigitte-macron-apology.html
+
 **How Bo Nix, Trevor Lawrence and J.J. McCarthy are developing: Week 15 film review**\
 `The three quarterbacks all had wins in Week 15 as they saw growth in their performance.`\
 https://nytimes.com/athletic/6892434/2025/12/16/bo-nix-trevor-lawrence-jj-mccarthy-film-review/

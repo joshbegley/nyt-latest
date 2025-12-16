@@ -1,3 +1,7 @@
+**Brigitte Macron Apologizes for Slur Against Feminist Activists. Sort Of.**\
+`In a short video, the French first lady said that she was “sorry if I have hurt women victims,” but she also noted that she should be allowed to behave freely in private.`\
+https://nytimes.com/2025/12/16/world/europe/france-first-lady-brigitte-macron-apology.html
+
 **How Bo Nix, Trevor Lawrence and J.J. McCarthy are developing: Week 15 film review**\
 `The three quarterbacks all had wins in Week 15 as they saw growth in their performance.`\
 https://nytimes.com/athletic/6892434/2025/12/16/bo-nix-trevor-lawrence-jj-mccarthy-film-review/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6892124/2025/12/16/bears-packers-nfc-north-rematch/
 **I tore my ACL in the NFL. This is what it takes mentally to come back**\
 `Although former NFL QB Brian Hoyer wouldn't wish an ACL injury on anyone, grinding through the rehab process made him mentally tougher.`\
 https://nytimes.com/athletic/6892543/2025/12/16/acl-tears-nfl-patrick-mahomes-micah-parsons/
-
-**'I'll buy a watch. I got robbed': Knicks reveal what they'll do with NBA Cup money**\
-`The Knicks reveal what they're going to do with the prize money from a deep NBA Cup run.`\
-https://nytimes.com/athletic/6891538/2025/12/16/knicks-spurs-nba-cup-finals-winnings/
 
