@@ -26,11 +26,11 @@ https://nytimes.com/2025/12/16/business/dealbook/jobs-inflation-fed-rates.html
 `Oweh has seven sacks since coming over in a midseason trade from the Ravens.`\
 https://nytimes.com/athletic/6892461/2025/12/16/chargers-odafe-oweh-pass-rush/
 
+**2025 NFL Simulator: Updated playoff paths and projected draft order after Week 15 results**\
+`How could your favorite team's season end? Find out all the possible paths here.`\
+https://nytimes.com/athletic/6513952/2025/12/16/2025-nfl-playoff-simulator-path-postseason/
+
 **Victor Wembanyama and the ‘ethical’ Spurs have earned the right to raise the bar**\
 `In praising the Spurs' "ethical basketball," Wembanyama made a statement that said as much about his team's progress as any opponent.`\
 https://nytimes.com/athletic/6892516/2025/12/16/victor-wembanyama-spurs-ethical-thunder/
-
-**Move the NBA Cup out of Vegas? What to know about the future of the tournament**\
-`The NBA is considering options beyond Vegas, but changing locations might not do much for an event that is growing anyway.`\
-https://nytimes.com/athletic/6892544/2025/12/16/nba-cup-future-las-vegas/
 

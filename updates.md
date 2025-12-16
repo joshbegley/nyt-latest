@@ -1,3 +1,7 @@
+**Carabao Cup predictions as Arsenal and Manchester City look to progress to final four**\
+`The Carabao Cup quarter-finals are here this week and The Athletic is on hand to pick each of the four games.`\
+https://nytimes.com/athletic/6893355/2025/12/16/carabao-cup-quarter-final-predictions-and-picks/
+
 **The Timing of Trump’s $10 Billion Suit Against the BBC Is Significant**\
 `The lawsuit landed just hours before a once-a-decade review of the broadcaster’s royal charter, which governs its mission, purpose and funding.`\
 https://nytimes.com/2025/12/16/us/politics/trump-bbc-lawsuit-timing.html

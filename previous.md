@@ -1,3 +1,7 @@
+**Carabao Cup predictions as Arsenal and Manchester City look to progress to final four**\
+`The Carabao Cup quarter-finals are here this week and The Athletic is on hand to pick each of the four games.`\
+https://nytimes.com/athletic/6893355/2025/12/16/carabao-cup-quarter-final-predictions-and-picks/
+
 **The Timing of Trump’s $10 Billion Suit Against the BBC Is Significant**\
 `The lawsuit landed just hours before a once-a-decade review of the broadcaster’s royal charter, which governs its mission, purpose and funding.`\
 https://nytimes.com/2025/12/16/us/politics/trump-bbc-lawsuit-timing.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6892516/2025/12/16/victor-wembanyama-spurs-ethical-
 **Move the NBA Cup out of Vegas? What to know about the future of the tournament**\
 `The NBA is considering options beyond Vegas, but changing locations might not do much for an event that is growing anyway.`\
 https://nytimes.com/athletic/6892544/2025/12/16/nba-cup-future-las-vegas/
-
-**A Look at Australia’s Gun Laws**\
-`We examine how the country responds to mass shootings.`\
-https://nytimes.com/2025/12/16/briefing/a-look-at-australias-gun-laws.html
 
