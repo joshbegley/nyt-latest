@@ -26,11 +26,11 @@ https://nytimes.com/athletic/6891142/2025/12/16/carlos-raphael-moersen-tottenham
 `The author’s fans are celebrating her 250th birthday. What fandoms are you in? How would you want to celebrate them?`\
 https://nytimes.com/2025/12/16/learning/jane-austens-birthday-party.html
 
-**Uber and DoorDash Try to Halt N.Y.C. Law That Encourages Tipping**\
-`The two food-delivery app companies filed a lawsuit against new rules, starting in January, that require food-delivery apps  to provide a tipping option at checkout.`\
-https://nytimes.com/2025/12/16/nyregion/uber-doordash-nyc-tipping.html
-
 **Flu Cases Skyrocket in New York City, Earlier Than Expected**\
 `The city and surrounding region have some of the highest levels of flu-like illness in the United States.`\
 https://nytimes.com/2025/12/16/nyregion/flu-cases-nyc.html
+
+**Uber and DoorDash Try to Halt N.Y.C. Law That Encourages Tipping**\
+`The two food-delivery app companies filed a lawsuit against new rules, starting in January, that require food-delivery apps  to provide a tipping option at checkout.`\
+https://nytimes.com/2025/12/16/nyregion/uber-doordash-nyc-tipping.html
 
