@@ -1,3 +1,11 @@
+**M.I.T. Professor Is Fatally Shot in His Home**\
+`The professor, Nuno F.G. Loureiro, was pronounced dead at a hospital on Tuesday morning. The authorities said they had opened a homicide investigation.`\
+https://nytimes.com/2025/12/16/us/mit-professor-shot-brookline-nuno-loureiro.html
+
+**What we learned from Jarmo Kekäläinen's first news conference as Sabres GM**\
+`Kekäläinen spoke about his vision for the Sabres on Tuesday and what the next steps look like for him.`\
+https://nytimes.com/athletic/6894261/2025/12/16/sabres-jarmo-kekalainen-gm-terry-pegula/
+
 **Heart Association Revives Theory That Light Drinking May Be Good for You**\
 `The American Heart Association report runs contrary to recent studies — and the group’s own guidelines — that found any amount of alcohol to be harmful.`\
 https://nytimes.com/2025/12/16/health/alcohol-heart-disease-cancer.html

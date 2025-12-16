@@ -1,3 +1,11 @@
+**M.I.T. Professor Is Fatally Shot in His Home**\
+`The professor, Nuno F.G. Loureiro, was pronounced dead at a hospital on Tuesday morning. The authorities said they had opened a homicide investigation.`\
+https://nytimes.com/2025/12/16/us/mit-professor-shot-brookline-nuno-loureiro.html
+
+**What we learned from Jarmo Kekäläinen's first news conference as Sabres GM**\
+`Kekäläinen spoke about his vision for the Sabres on Tuesday and what the next steps look like for him.`\
+https://nytimes.com/athletic/6894261/2025/12/16/sabres-jarmo-kekalainen-gm-terry-pegula/
+
 **Heart Association Revives Theory That Light Drinking May Be Good for You**\
 `The American Heart Association report runs contrary to recent studies — and the group’s own guidelines — that found any amount of alcohol to be harmful.`\
 https://nytimes.com/2025/12/16/health/alcohol-heart-disease-cancer.html
@@ -21,12 +29,4 @@ https://nytimes.com/2025/12/16/us/rob-nick-reiner-father-son-being-charlie.html
 **England and Gotham defender Jess Carter talks winning championships and combating racist abuse**\
 `England defender Jess Carter won three championships in 181 days, but her proudest moments happened in the quiet.`\
 https://nytimes.com/athletic/6886150/2025/12/16/jess-carter-england-gotham-nwsl-champion/
-
-**Trump Stymied on Prosecutors as G.O.P. Refuses to Defy Democrats**\
-`An informal custom gives Senate Democrats leverage on federal prosecutors even as Republicans have sought to ease other confirmations. The president wants it eliminated.`\
-https://nytimes.com/2025/12/16/us/politics/trump-prosecutors-senate-blue-slips.html
-
-**Kashi Offers Indian Supper Club Fare in Downtown Brooklyn**\
-`A calorie-conscious bowl restaurant in SoHo, Iberian nibbles in Chelsea and more restaurant news.`\
-https://nytimes.com/2025/12/16/dining/nyc-restaurant-news.html
 
