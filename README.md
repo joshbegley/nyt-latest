@@ -1,3 +1,7 @@
+**Joe Ely, Texas-Born Troubadour of the Open Road, Dies at 78**\
+`Thanks to his eclectic style and tireless touring, he was among the most influential artists in the early days of Americana and alt-country music.`\
+https://nytimes.com/2025/12/15/obituaries/joe-ely-dead.html
+
 **At a Dark Moment, Jews in New York Celebrate the Festival of Lights**\
 `After the mass shooting at a Hanukkah celebration in Sydney, Australia, Jewish New Yorkers said they felt the need to stand up for their community.`\
 https://nytimes.com/2025/12/15/nyregion/hanukkah-menorah-nyc-jews-australia.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6838921/2025/12/15/mlb-haseong-kim-free-agency-sign
 **Rob Reiner Is Said to Have Argued With His Son at a Holiday Party**\
 `Rob Reiner and his son, Nick, had a dispute at a party hosted by Conan O’Brien the night before the director and his wife were found dead.`\
 https://nytimes.com/2025/12/15/us/rob-nick-reiner-conan-o-brien-party.html
-
-**Nick Reiner’s Struggles With Drugs Left His Parents ‘Desperate’**\
-`Mr. Reiner, who was arrested in connection with the deaths of Rob and Michele Reiner, once estimated he had been in drug treatment 18 times as a teenager.`\
-https://nytimes.com/2025/12/15/movies/nick-reiner-drugs-rehab-heroin-cocaine.html
 
