@@ -1,3 +1,7 @@
+**How to watch Eagles vs. Commanders: Time, TV, streaming**\
+`Find out how to watch the Philadelphia Eagles play the Washington Commanders, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6892497/2025/12/15/eagles-vs-commanders-stream-how-to-watch-dec-20/
+
 **Trial Opens for Judge Accused of Steering Immigrant Away from Federal Agents**\
 `“There was no corrupt intent,” the judge’s lawyer said in an opening statement. Prosecutors said the judge’s political views made her “cross the line.”`\
 https://nytimes.com/2025/12/15/us/milwaukee-judge-immigration.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/15/world/africa/darfur-sudan-eu-aid.html
 **Vikings edge rusher Jonathan Greenard out for season with shoulder injury**\
 `The 2024 Pro Bowler reaggravated a shoulder injury in Sunday's victory over the Cowboys. He had three sacks this season for the Vikings.`\
 https://nytimes.com/athletic/6892112/2025/12/15/jonathan-greenard-vikings-shoulder-injury/
-
-**The Warriors have some big problems: A lack of continuity is high on the list**\
-`The Warriors have used 15 different starting lineups this season. Can they find continuity? `\
-https://nytimes.com/athletic/6891313/2025/12/15/warriors-starting-lineup-carousel-nba/
 
