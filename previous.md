@@ -1,3 +1,7 @@
+**Trump Stymied on Prosecutors as G.O.P. Refuses to Defy Democrats**\
+`An informal custom gives Senate Democrats leverage on federal prosecutors even as Republicans have sought to ease other confirmations. The president wants it eliminated.`\
+https://nytimes.com/2025/12/16/us/politics/trump-prosecutors-senate-blue-slips.html
+
 **Kashi Offers Indian Supper Club Fare in Downtown Brooklyn**\
 `A calorie-conscious bowl restaurant in SoHo, Iberian nibbles in Chelsea and more restaurant news.`\
 https://nytimes.com/2025/12/16/dining/nyc-restaurant-news.html
@@ -25,12 +29,4 @@ https://nytimes.com/2025/12/16/us/politics/trump-administration-unemployment-rat
 **Dembele, Bonmati crowned winners at FIFA Best Awards**\
 `Luis Enrique and Sarina Wiegman were named men's and women's coach of the year, respectively, at the ceremony in Doha.`\
 https://nytimes.com/athletic/6890715/2025/12/16/fifa-best-awards-ousmane-dembele-aitana-bonmati/
-
-**'Focus on what's ahead of you': Tom Brady offers advice to Patrick Mahomes during recovery**\
-`Brady knows better than anyone what Mahomes is dealing with as he begins the road to recovery. `\
-https://nytimes.com/athletic/6893897/2025/12/16/tom-brady-patrick-mahomes-acl/
-
-**This family landed Shohei Ohtani's most expensive baseball card while having dinner**\
-`The Anderson family couldn't believe their luck when they found out perhaps the best baseball card released this year was theirs`\
-https://nytimes.com/athletic/6893838/2025/12/16/shohei-ohtani-baseball-card-gold-logoman-auction/
 

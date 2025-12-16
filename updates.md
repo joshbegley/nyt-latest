@@ -1,3 +1,7 @@
+**Trump Stymied on Prosecutors as G.O.P. Refuses to Defy Democrats**\
+`An informal custom gives Senate Democrats leverage on federal prosecutors even as Republicans have sought to ease other confirmations. The president wants it eliminated.`\
+https://nytimes.com/2025/12/16/us/politics/trump-prosecutors-senate-blue-slips.html
+
 **Kashi Offers Indian Supper Club Fare in Downtown Brooklyn**\
 `A calorie-conscious bowl restaurant in SoHo, Iberian nibbles in Chelsea and more restaurant news.`\
 https://nytimes.com/2025/12/16/dining/nyc-restaurant-news.html
