@@ -1,3 +1,7 @@
+**Liverpool parade attacker sentenced to 21 years, six months in prison**\
+`Judge Andrew Menary KC said that the evidence against Paul Doyle was “overwhelming” as he described the footage as “truly shocking”.`\
+https://nytimes.com/athletic/6891218/2025/12/16/paul-doyle-sentencing-liverpool-title-parade/
+
 **British Man Who Drove Into Soccer Parade Is Sentenced to 21 Years**\
 `Paul Doyle struck more than 130 people when he plowed his car through fans leaving a jubilant victory parade for Liverpool F.C.`\
 https://nytimes.com/2025/12/16/world/europe/uk-liverpool-parade-attack-paul-doyle.html
