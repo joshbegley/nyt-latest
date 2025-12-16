@@ -1,3 +1,11 @@
+**NFL playoff picture after Week 15: Bills' comeback win keeps AFC East crown within reach**\
+`The Broncos and Rams are in control of the AFC and NFC, respectively. Can they each hang on for another few weeks?`\
+https://nytimes.com/athletic/6879197/2025/12/15/nfl-playoff-picture-week-15-bills-patriots-broncos-update/
+
+**Two years after the Pac-12 collapsed, its stars are still defining football**\
+`Fernando Mendoza is the latest Heisman Trophy winner to have started his collegiate career in the "Conference of Champions."`\
+https://nytimes.com/athletic/6892832/2025/12/15/pac-12-football-legacy/
+
 **Washington rebounds for OT win and first NCAA men's soccer title**\
 `The Huskies also needed overtime to get out of the first round of the NCAA tournament.`\
 https://nytimes.com/athletic/6892929/2025/12/15/ncaa-mens-soccer-washington-ot-nc-state/
