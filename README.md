@@ -1,3 +1,7 @@
+**U.S. Strikes 3 More Boats in Eastern Pacific, Killing 8**\
+`The attacks brought the number killed since the Trump administration began the strikes on suspected drug smugglers to at least 95.`\
+https://nytimes.com/2025/12/15/us/politics/drug-boat-strikes-pacific.html
+
 **NFL playoff picture after Week 15: Bills' comeback win keeps AFC East crown within reach**\
 `The Broncos and Rams are in control of the AFC and NFC, respectively. Can they each hang on for another few weeks?`\
 https://nytimes.com/athletic/6879197/2025/12/15/nfl-playoff-picture-week-15-bills-patriots-broncos-update/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6892679/2025/12/15/red-sox-nationals-luis-perales-j
 **Words Before a Date**\
 `You’ll have to complete Jason Reich’s crossword from start to finish.`\
 https://nytimes.com/2025/12/15/crosswords/daily-puzzle-2025-12-16.html
-
-**Joe Ely, Texas-Born Troubadour of the Open Road, Dies at 78**\
-`Thanks to his eclectic style and tireless touring, he was among the most influential artists in the early days of Americana and alt-country music.`\
-https://nytimes.com/2025/12/15/obituaries/joe-ely-dead.html
 
