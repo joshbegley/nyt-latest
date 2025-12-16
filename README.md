@@ -7,7 +7,7 @@ https://nytimes.com/2025/12/16/movies/rob-reiner-movies-director.html
 https://nytimes.com/athletic/6893937/2025/12/16/hugo-broos-south-africa-mbokazi-afcon/
 
 **Was Man Utd 4-4 Bournemouth the game of the season so far? Our writers have their say**\
-`Our writers debate the merits of a game that was packed with action, goals...and chaos. Lots of chaos`\
+`Our writers debate the merits of a game that was packed with action, goals... and chaos. Lots of chaos`\
 https://nytimes.com/athletic/6893505/2025/12/16/man-utd-bournemouth-premier-league-game-of-the-season/
 
 **What to know about the report.**\
