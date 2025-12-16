@@ -1,3 +1,7 @@
+**FIFA creates new $60 World Cup ticket category for few supporters**\
+`One thousand of the cheaper tickets will be available for each team per game after outrage over historically high prices this month.`\
+https://nytimes.com/athletic/6894159/2025/12/16/fifa-world-cup-ticket-category-backlash/
+
 **Send your Cowboys mailbag questions to Jon Machota**\
 `<p>The Dallas Cowboys have lost two games in a row, are not quite officially eliminated from playoff contention (but it&#8217;s close) and have a lot of things to address.`\
 https://nytimes.com/athletic/6894229/2025/12/16/send-your-cowboys-mailbag-questions-to-jon-machota/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/16/world/australia/sydney-shooting-antisemitism-path
 **Dearica Hamby, Aces agree to dismiss pregnancy discrimination lawsuit**\
 `Hamby alleged that the team treated her differently after she announced her pregnancy in 2022 and subsequently traded her in 2023.`\
 https://nytimes.com/athletic/6893805/2025/12/16/dearica-hamby-aces-pregnancy-discrimination-lawsuit-dropped/
-
-**Trinidad Has Become a U.S. Staging Ground in Its Conflict With Venezuela**\
-`The United States and Trinidad say U.S. Marines installed a radar in Tobago to combat drugs — but this war materiel isn’t designed for operations based at sea or on land.`\
-https://nytimes.com/2025/12/16/world/trinidad-and-tobago-us-military-venezuela.html
 

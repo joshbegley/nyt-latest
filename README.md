@@ -1,3 +1,11 @@
+**Kashi Offers Indian Supper Club Fare in Downtown Brooklyn**\
+`A calorie-conscious bowl restaurant in SoHo, Iberian nibbles in Chelsea and more restaurant news.`\
+https://nytimes.com/2025/12/16/dining/nyc-restaurant-news.html
+
+**Can 49ers' passing attack overcome run game, defensive woes in playoffs?**\
+`Robert Mays and Derrik Klassen dove into the Niners on the latest episode of “The Athletic Football Show”.`\
+https://nytimes.com/athletic/6893088/2025/12/16/upon-further-review-are-niners-flaws-too-big-for-a-postseason-run/
+
 **FIFA creates new $60 World Cup ticket category for few supporters**\
 `One thousand of the cheaper tickets will be available for each team per game after outrage over historically high prices this month.`\
 https://nytimes.com/athletic/6894159/2025/12/16/fifa-world-cup-ticket-category-backlash/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6893897/2025/12/16/tom-brady-patrick-mahomes-acl/
 **This family landed Shohei Ohtani's most expensive baseball card while having dinner**\
 `The Anderson family couldn't believe their luck when they found out perhaps the best baseball card released this year was theirs`\
 https://nytimes.com/athletic/6893838/2025/12/16/shohei-ohtani-baseball-card-gold-logoman-auction/
-
-**After an Antisemitic Atrocity, Australia Looks for a Path Forward**\
-`Jews are fearful of more violence and Muslims are wary of a backlash after the mass shooting at Bondi Beach killed 15. Can Australia steer its way toward stability?`\
-https://nytimes.com/2025/12/16/world/australia/sydney-shooting-antisemitism-path-forward.html
-
-**Dearica Hamby, Aces agree to dismiss pregnancy discrimination lawsuit**\
-`Hamby alleged that the team treated her differently after she announced her pregnancy in 2022 and subsequently traded her in 2023.`\
-https://nytimes.com/athletic/6893805/2025/12/16/dearica-hamby-aces-pregnancy-discrimination-lawsuit-dropped/
 

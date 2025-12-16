@@ -1,3 +1,7 @@
+**FIFA creates new $60 World Cup ticket category for few supporters**\
+`One thousand of the cheaper tickets will be available for each team per game after outrage over historically high prices this month.`\
+https://nytimes.com/athletic/6894159/2025/12/16/fifa-world-cup-ticket-category-backlash/
+
 **Send your Cowboys mailbag questions to Jon Machota**\
 `<p>The Dallas Cowboys have lost two games in a row, are not quite officially eliminated from playoff contention (but it&#8217;s close) and have a lot of things to address.`\
 https://nytimes.com/athletic/6894229/2025/12/16/send-your-cowboys-mailbag-questions-to-jon-machota/
