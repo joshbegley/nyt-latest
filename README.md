@@ -1,3 +1,7 @@
+**'Significant' partial team sale clears Twins' finances, may set table for future sale**\
+`The cash infusion will significantly reduce the Twins' debt.`\
+https://nytimes.com/athletic/6892645/2025/12/16/twins-partial-sale-finances-debt-update/
+
 **A Pipe Organist Invites You to Bliss Out to Her Dreamy Colors**\
 `Ellen Arkbro makes music that shifts and churns with no regard for harmony’s rules. She’s one of the most interesting composers for her instrument working today.`\
 https://nytimes.com/2025/12/16/arts/music/ellen-arkbro.html
@@ -29,8 +33,4 @@ https://nytimes.com/live/2025/12/16/us/trump-news
 **New York New Jersey announces ticketed World Cup fan zone in Queens**\
 `Organizers expect about 10,000 people per day to attend the Queens fan zone, with the potential for sell-outs.`\
 https://nytimes.com/athletic/6893282/2025/12/16/world-cup-fan-zone-queens-new-york/
-
-**Why a Flood of New Data Is Unlikely to Settle Debate on Rates**\
-`A backlog of government economic data is set to ease, but disagreement on the country’s economic outlook could linger.`\
-https://nytimes.com/2025/12/16/business/dealbook/jobs-inflation-fed-rates.html
 
