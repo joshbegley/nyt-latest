@@ -1,3 +1,7 @@
+**How to watch Morgan State vs. LSU women's basketball: Time, TV, streaming**\
+`Find out how to watch the Morgan State Lady Bears play the LSU Tigers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6893299/2025/12/16/morgan-state-vs-lsu-stream-how-to-watch-dec-16/
+
 **The Trump Mind-Set Is Not Complex**\
 `Gimme, gimme, gimme. Gimme some more.`\
 https://nytimes.com/2025/12/16/opinion/trump-corruption-conflict-interest-mindset.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/16/opinion/olivia-nuzzi-karine-jean-pierre-eric-trum
 **Jobs Data Is Finally Back. But the Economic Picture Is Still Blurry.**\
 `November’s job report may be distorted as a result of the government shutdown, limiting how much it will influence the Federal Reserve’s next interest rate decision in January.`\
 https://nytimes.com/2025/12/16/business/jobs-data-economy.html
-
-**At Brown, a Shooting Tests a Fragile Trust**\
-`The Ivy League school has faced a series of challenges related to protests and politics. Through it all, it has kept its gates open to the city and tried to heal divisions on campus.`\
-https://nytimes.com/2025/12/16/us/brown-shooting-campus-trust.html
 

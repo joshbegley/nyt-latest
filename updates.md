@@ -1,3 +1,7 @@
+**How to watch Morgan State vs. LSU women's basketball: Time, TV, streaming**\
+`Find out how to watch the Morgan State Lady Bears play the LSU Tigers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6893299/2025/12/16/morgan-state-vs-lsu-stream-how-to-watch-dec-16/
+
 **The Trump Mind-Set Is Not Complex**\
 `Gimme, gimme, gimme. Gimme some more.`\
 https://nytimes.com/2025/12/16/opinion/trump-corruption-conflict-interest-mindset.html
