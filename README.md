@@ -1,3 +1,7 @@
+**NFL playoff picture after Week 15: Bills' comeback win keeps AFC East crown within reach**\
+`The Broncos and Rams are in control of the AFC and NFC, respectively. Can they each hang on for another few weeks?`\
+https://nytimes.com/athletic/6879197/2025/12/15/nfl-playoff-picture-week-15-bills-patriots-broncos-update/
+
 **Washington rebounds for OT win and first NCAA men's soccer title**\
 `The Huskies also needed overtime to get out of the first round of the NCAA tournament.`\
 https://nytimes.com/athletic/6892929/2025/12/15/ncaa-mens-soccer-washington-ot-nc-state/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/15/crosswords/daily-puzzle-2025-12-16.html
 **Joe Ely, Texas-Born Troubadour of the Open Road, Dies at 78**\
 `Thanks to his eclectic style and tireless touring, he was among the most influential artists in the early days of Americana and alt-country music.`\
 https://nytimes.com/2025/12/15/obituaries/joe-ely-dead.html
-
-**At a Dark Moment, Jews in New York Celebrate the Festival of Lights**\
-`After the mass shooting at a Hanukkah celebration in Sydney, Australia, Jewish New Yorkers said they felt the need to stand up for their community.`\
-https://nytimes.com/2025/12/15/nyregion/hanukkah-menorah-nyc-jews-australia.html
 
