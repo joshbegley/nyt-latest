@@ -1,3 +1,19 @@
+**How to watch Ducks vs. Blue Jackets: Time, TV, streaming**\
+`Find out how to watch the Anaheim Ducks play the Columbus Blue Jackets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6893929/2025/12/16/ducks-vs-blue-jackets-stream-how-to-watch-dec-16/
+
+**How to watch Flyers vs. Canadiens: Time, TV, streaming**\
+`Find out how to watch the Philadelphia Flyers play the Montreal Canadiens, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6893927/2025/12/16/flyers-vs-canadiens-stream-how-to-watch-dec-16/
+
+**How to watch DePaul vs. St. John's men's basketball: Time, TV, streaming**\
+`Find out how to watch the DePaul Blue Demons play the St. John's Red Storm, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6893913/2025/12/16/depaul-vs-st-john-s-stream-how-to-watch-dec-16/
+
+**Jerry Jones says the Cowboys' defensive talent is not the issue**\
+`Jones said opposing quarterbacks are too often having big games against the Dallas defense.`\
+https://nytimes.com/athletic/6893699/2025/12/16/cowboys-matt-eberflus-job-status-jerry-jones/
+
 **Jerry Jones says the Cowboys' defensive talent is not the issue**\
 `Jones said opposing quarters are too often having big games against the Dallas defense.`\
 https://nytimes.com/athletic/6893699/2025/12/16/cowboys-matt-eberflus-job-status-jerry-jones/
