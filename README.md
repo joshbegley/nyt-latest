@@ -1,3 +1,23 @@
+**Denny Hamlin, days after NASCAR suit settlement, asks Sirius host for apology**\
+`Hamlin, the 23XI Racing co-owner, took to X on Tuesday to express his displeasure over criticism and more from the SiriusXM channel.`\
+https://nytimes.com/athletic/6894070/2025/12/16/denny-hamlin-siriusxm-nascar-larry-mcreynolds-dave-moody/
+
+**The Best Movies of 2025: You Decide**\
+`The critics have had their say. Now it’s your turn. What movies released in 2025 do you consider the best?`\
+https://nytimes.com/interactive/2025/12/16/movies/vote-best-movies-2025.html
+
+**D’Wayne Wiggins’s Songs Were Embraced by Everyone From Church Ladies to Biggie**\
+`With Tony! Toni! Toné!, his songs captured the mood of how people lived and died in Oakland.`\
+https://nytimes.com/interactive/2025/12/16/magazine/dwayne-wiggins-music.html
+
+**There Was No Villain Michelle Trachtenberg Couldn’t Play**\
+`The actress seemed to channel her childhood bullies when playing deliciously vindictive characters.`\
+https://nytimes.com/interactive/2025/12/16/magazine/michelle-trachtenberg-actor.html
+
+**Hall of Fame college football coach Nick Saban joins Nashville Predators ownership**\
+`Saban cited his “competitive nature and a great passion for sports” as a reason to buy into the Predators.`\
+https://nytimes.com/athletic/6894488/2025/12/16/nick-saban-ownership-group-nashville-predators/
+
 **The Activist Who Became Radicalized by Working on ‘Our Bodies, Our Selves’**\
 `Norma Swenson exposed the systematic sexism within the medical establishment.`\
 https://nytimes.com/interactive/2025/12/16/magazine/norma-swenson-our-bodies-our-selves.html
@@ -9,28 +29,4 @@ https://nytimes.com/interactive/2025/12/16/magazine/angie-stone-music.html
 **The Track and Field Star Who Casually Shattered Race and Gender Barriers**\
 `Mabel Landry Staton was one of the first Black, female long-jumpers in the history of the Olympics.`\
 https://nytimes.com/interactive/2025/12/16/magazine/mabel-landry-staton-olympics.html
-
-**When Terence Stamp, Bad Boy of ‘60s Cinema, Left Acting for an Ashram**\
-`After a decade away from the movies, he had a remarkable second act.`\
-https://nytimes.com/interactive/2025/12/16/magazine/terence-stamp-actor.html
-
-**Jill Sobule’s Fans Always Made Sure She Had a Place to Perform — and to Stay**\
-`After her label dropped her, supporters showed her she could still make it in music.`\
-https://nytimes.com/interactive/2025/12/16/magazine/jill-sobule-music.html
-
-**Assata Shakur’s Freedom Came With Shattering Costs for Her and Her Family**\
-`The F.B.I. made her the first woman on their list of most-wanted terrorists.`\
-https://nytimes.com/interactive/2025/12/16/magazine/assata-shakur-activist.html
-
-**The Psychoanalyst Who Believed Holocaust Survivors Were More Than Just Victims**\
-`Anna Ornstein, an Auschwitz survivor, wanted to change the way her field thought about those who endured the concentration camps.`\
-https://nytimes.com/interactive/2025/12/16/magazine/anna-ornstein-psychoanalyst-holocaust.html
-
-**Her Art Was Ignored for Decades. She Kept Painting Anyway.**\
-`Marcia Marcus never wavered, whether she was being celebrated or overlooked.`\
-https://nytimes.com/interactive/2025/12/16/magazine/marcia-marcus-artist-painter.html
-
-**David Lynch Seduced Audiences by Exploring Their Secret Desires**\
-`The director lived a disciplined life to make space for his wild, surrealist visions.`\
-https://nytimes.com/interactive/2025/12/16/magazine/david-lynch-director.html
 

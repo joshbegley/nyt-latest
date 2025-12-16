@@ -1,36 +1,36 @@
-**The Bonobo Who Had a Lot to Say**\
-`They tried to teach his adoptive mother to communicate. Kanzi learned instead.`\
-https://nytimes.com/interactive/2025/12/16/magazine/kanzi-bonobo-english.html
+**The Activist Who Became Radicalized by Working on ‘Our Bodies, Our Selves’**\
+`Norma Swenson exposed the systematic sexism within the medical establishment.`\
+https://nytimes.com/interactive/2025/12/16/magazine/norma-swenson-our-bodies-our-selves.html
 
-**He Pioneered the Right to Die Movement. He Thought It Didn’t Go Far Enough.**\
-`Derek Humphry wanted patients to die with dignity, if only politicians and doctors would allow it.`\
-https://nytimes.com/interactive/2025/12/16/magazine/derek-humphry-right-to-die.html
+**The Hip-Hop Trailblazer Who Demanded Recognition — and Pay — for Her Work**\
+`Angie Stone always knew she had what it took to make it, even if the music industry did not.`\
+https://nytimes.com/interactive/2025/12/16/magazine/angie-stone-music.html
 
-**The Secret Service Agent Haunted by His Failure to Save J.F.K.**\
-`He rarely spoke of the assassination he could not prevent. That changed in the final years of his life.`\
-https://nytimes.com/interactive/2025/12/16/magazine/clint-hill-jfk-secret-service.html
+**The Track and Field Star Who Casually Shattered Race and Gender Barriers**\
+`Mabel Landry Staton was one of the first Black, female long-jumpers in the history of the Olympics.`\
+https://nytimes.com/interactive/2025/12/16/magazine/mabel-landry-staton-olympics.html
 
-**She Sold a Painting for $165 Million and Gave It All Away**\
-`Agnes Gund owned the beloved artwork for 41 years. Its proceeds helped her fund criminal justice reform.`\
-https://nytimes.com/interactive/2025/12/16/magazine/agnes-gund-painting-philanthropy.html
+**When Terence Stamp, Bad Boy of ‘60s Cinema, Left Acting for an Ashram**\
+`After a decade away from the movies, he had a remarkable second act.`\
+https://nytimes.com/interactive/2025/12/16/magazine/terence-stamp-actor.html
 
-**Jane Goodall Approached Chimps as She Did People, On Their Own Terms**\
-`The world’s leading expert on chimpanzees saw them as distinct and dignified.`\
-https://nytimes.com/interactive/2025/12/16/magazine/jane-goodall-chimpanzees.html
+**Jill Sobule’s Fans Always Made Sure She Had a Place to Perform — and to Stay**\
+`After her label dropped her, supporters showed her she could still make it in music.`\
+https://nytimes.com/interactive/2025/12/16/magazine/jill-sobule-music.html
 
-**The Refugee Who Became the Executive Editor of The Times**\
-`As a child, Max Frankel was an outsider. As an editor, he couldn’t resist a good human story.`\
-https://nytimes.com/interactive/2025/12/16/magazine/max-frankel-editor.html
+**Assata Shakur’s Freedom Came With Shattering Costs for Her and Her Family**\
+`The F.B.I. made her the first woman on their list of most-wanted terrorists.`\
+https://nytimes.com/interactive/2025/12/16/magazine/assata-shakur-activist.html
 
-**Before George Foreman Was a Lovable Pitchman, He Was Just Plain Mean**\
-`After losing his title to Muhammad Ali, the boxer sank into a depression that ended only after he was born again.`\
-https://nytimes.com/interactive/2025/12/16/magazine/george-foreman-boxing.html
+**The Psychoanalyst Who Believed Holocaust Survivors Were More Than Just Victims**\
+`Anna Ornstein, an Auschwitz survivor, wanted to change the way her field thought about those who endured the concentration camps.`\
+https://nytimes.com/interactive/2025/12/16/magazine/anna-ornstein-psychoanalyst-holocaust.html
 
-**‘Ranger Doug’ Witnessed America’s Glaciers Melting in Real Time**\
-`Over his six-decade tenure as a ranger, Douglas Follett explained the wonders of nature to park visitors.`\
-https://nytimes.com/interactive/2025/12/16/magazine/ranger-doug-follett-glacier.html
+**Her Art Was Ignored for Decades. She Kept Painting Anyway.**\
+`Marcia Marcus never wavered, whether she was being celebrated or overlooked.`\
+https://nytimes.com/interactive/2025/12/16/magazine/marcia-marcus-artist-painter.html
 
-**Roberta Flack Dreamed of Being a Classical Pianist, Then Made Pop History**\
-`She defied trends and ended up making some of the most memorable hits of the ‘70s.`\
-https://nytimes.com/interactive/2025/12/16/magazine/roberta-flack-pop-music.html
+**David Lynch Seduced Audiences by Exploring Their Secret Desires**\
+`The director lived a disciplined life to make space for his wild, surrealist visions.`\
+https://nytimes.com/interactive/2025/12/16/magazine/david-lynch-director.html
 
