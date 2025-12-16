@@ -1,8 +1,16 @@
+**Fantasy football strength of schedule: Week 16 and championship matchup rankings**\
+`Jake Ciely's Week 16 and championship matchup rankings can help with difficult start/sit decisions this week and beyond.`\
+https://nytimes.com/athletic/6894503/2025/12/16/fantasy-football-week-16-playoffs-schedule-strength-matchups/
+
+**What’s in Our Queue? ‘I Must, I Can, I Will’ and More**\
+`Text by Annie Correal`\
+https://nytimes.com/card/2025/12/16/arts/editors-recommendations-juangabriel
+
 **How to Do a Little More Good in the World**\
 `As part of Times Opinion’s Giving Guide, the columnist Ezra Klein spoke with Elie Hassenfeld, GiveWell’s co-founder and chief executive.`\
 https://nytimes.com/video/opinion/100000010576873/how-to-do-a-little-more-good-in-the-world.html
 
-**Officials Release Enhanced Video of Brown University Shooting Suspect**\
+**Officials Release Enhanced Video of Possible Shooting Suspect at Brown**\
 `The Providence Police Department released enhanced security camera footage of a suspect in the Brown University shooting walking through the neighborhood hours before the tragedy took place.`\
 https://nytimes.com/video/us/100000010591823/brown-university-shooting-suspect-enhanced-video.html
 
@@ -25,12 +33,4 @@ https://nytimes.com/2025/12/16/opinion/trump-reiner-death-post-truth-social.html
 **Nick Reiner Will Be Charged With Murdering His Parents**\
 `Prosecutors said that Mr. Reiner killed his parents, Rob and Michelle Reiner, using a knife. He has not yet entered a plea.`\
 https://nytimes.com/2025/12/16/us/nick-reiner-charges-murder-rob-michele.html
-
-**ACC league members to play uneven conference schedules in 2026**\
-`The five teams to play eight ACC games are Boston College, Clemson, Florida State, Georgia Tech and North Carolina.`\
-https://nytimes.com/athletic/6894755/2025/12/16/acc-uneven-conference-schedule/
-
-**Two More Heritage Foundation Trustees Resign Over Support for Tucker Carlson**\
-`Three trustees have left since the think tank’s president backed the conservative podcaster’s friendly interview with Nick Fuentes.`\
-https://nytimes.com/2025/12/16/us/politics/heritage-foundation-trustees-resign-tucker-carlson.html
 
