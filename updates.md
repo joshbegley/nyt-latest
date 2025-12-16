@@ -1,3 +1,11 @@
+**Michigan interim head coach Biff Poggi says players feel 'betrayed'**\
+`Poggi spoke about the emotions his players have been dealing with in the wake of the firing and arrest of Sherrone Moore.`\
+https://nytimes.com/athletic/6892588/2025/12/15/biff-poggi-michigan-sherrone-moore/
+
+**Here’s the latest.**\
+`The two men who killed 15 people on Sunday were driven by “Islamic State ideology,” Prime Minister Anthony Albanese told Australia’s public broadcaster.`\
+https://nytimes.com/live/2025/12/15/world/bondi-beach-shooting-gunmen-isis/bondi-beach-shooting-gunmen-isis
+
 **Live Updates: Australian Leader Says Sydney Gunmen Were Motivated by ISIS**\
 `The two men who killed at least 15 people on Sunday were driven by “Islamic State ideology,” Prime Minister Anthony Albanese told Australia’s public broadcaster.`\
 https://nytimes.com/live/2025/12/15/world/bondi-beach-shooting-gunmen-isis
