@@ -1,3 +1,11 @@
+**FIFA’s 'extreme' ticket prices unfairly impact disabled fans, says supporters' group**\
+`Football Supporters Europe described ticket prices for the tournament as “extreme” and “prohibitively expensive".`\
+https://nytimes.com/athletic/6893637/2025/12/16/world-cup-ticket-prices-disabled-fans/
+
+**Jets release WR Allen Lazard, who followed Aaron Rodgers from Packers to New York: Source**\
+`Lazard was in his third season with the Jets.`\
+https://nytimes.com/athletic/6893749/2025/12/16/allen-lazard-new-york-jets-released/
+
 **Couple Confronted Suspected Bondi Gunman, New Footage Shows**\
 `Previously unseen dash cam footage captured the moment Boris and Sofia Gurman tackled one of the suspected Bondi Beach gunmen during the attack on Sunday, in which at least 15 people were killed — including the Gurmans.`\
 https://nytimes.com/video/world/australia/100000010589995/couple-bondi-shooting-dashcam.html
@@ -25,12 +33,4 @@ https://nytimes.com/2025/12/16/theater/beaches-broadway-musical.html
 **Australia Doubles Down on Gun Control After Mass Shooting**\
 `The country has long looked warily at the cycle of gun violence in the United States, where meaningful changes in policy have been rare.`\
 https://nytimes.com/2025/12/16/world/australia/australia-gun-control-bondi-shooting.html
-
-**Arch Manning will return to Texas next season and not declare for 2026 NFL Draft: Source**\
-`The Longhorns quarterback will return to school instead of declaring for the NFL Draft as a redshirt sophomore.`\
-https://nytimes.com/athletic/6893087/2025/12/16/arch-manning-texas-return-2026/
-
-**Why are Manchester United struggling to control games when they are ahead?**\
-`United have dropped 10 points from winning positions this season – it's a trend that Ruben Amorim needs to fix`\
-https://nytimes.com/athletic/6893320/2025/12/16/manchester-united-control-game-state-premier-league/
 

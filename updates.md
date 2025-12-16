@@ -1,3 +1,11 @@
+**FIFA’s 'extreme' ticket prices unfairly impact disabled fans, says supporters' group**\
+`Football Supporters Europe described ticket prices for the tournament as “extreme” and “prohibitively expensive".`\
+https://nytimes.com/athletic/6893637/2025/12/16/world-cup-ticket-prices-disabled-fans/
+
+**Jets release WR Allen Lazard, who followed Aaron Rodgers from Packers to New York: Source**\
+`Lazard was in his third season with the Jets.`\
+https://nytimes.com/athletic/6893749/2025/12/16/allen-lazard-new-york-jets-released/
+
 **Couple Confronted Suspected Bondi Gunman, New Footage Shows**\
 `Previously unseen dash cam footage captured the moment Boris and Sofia Gurman tackled one of the suspected Bondi Beach gunmen during the attack on Sunday, in which at least 15 people were killed — including the Gurmans.`\
 https://nytimes.com/video/world/australia/100000010589995/couple-bondi-shooting-dashcam.html
