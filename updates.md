@@ -1,3 +1,7 @@
+**Nick Reiner Talked Openly About His Addiction Struggles**\
+`Nick Reiner was arrested and booked on suspicion of murdering his mother and father, the movie director, Rob Reiner. The younger Reiner had been open about his struggles with drug abuse and homelessness.`\
+https://nytimes.com/video/us/100000010589743/nick-reiner-drugs-rehab-addiction.html
+
 **Bondi Suspects Were in Southern Philippines, Where ISIS Is Active**\
 `It remains unclear what the two men did there last month.`\
 https://nytimes.com/2025/12/16/world/asia/bondi-shooting-gunmen-philippines-isis.html
