@@ -1,3 +1,7 @@
+**Move the NBA Cup out of Vegas? What to know about the future of the tournament**\
+`The NBA is considering options beyond Vegas, but changing locations might not do much for an event that is growing anyway.`\
+https://nytimes.com/athletic/6892544/2025/12/16/nba-cup-future-las-vegas/
+
 **A Look at Australia’s Gun Laws**\
 `We examine how the country responds to mass shootings.`\
 https://nytimes.com/2025/12/16/briefing/a-look-at-australias-gun-laws.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6892678/2025/12/16/seahawks-offense-sam-darnold-run
 **Red Wings prospect Max Plante leading NCAA in points, with World Juniors test next**\
 `Leading the charge for No. 5 Minnesota Duluth, Plante's dedication and determination are promising signs for Detroit.`\
 https://nytimes.com/athletic/6892091/2025/12/16/red-wings-max-plante-prospect-world-juniors/
-
-**Which teams eliminated from playoff contention have brightest 2026 NFL Draft outlooks?**\
-`The Jets, Browns and Raiders have hope for the offseason. The Giants might even field a playoff contender in 2026, if all goes right.`\
-https://nytimes.com/athletic/6892216/2025/12/16/nfl-draft-2026-top-10-jets-giants-playoffs/
 

@@ -1,3 +1,7 @@
+**Move the NBA Cup out of Vegas? What to know about the future of the tournament**\
+`The NBA is considering options beyond Vegas, but changing locations might not do much for an event that is growing anyway.`\
+https://nytimes.com/athletic/6892544/2025/12/16/nba-cup-future-las-vegas/
+
 **A Look at Australia’s Gun Laws**\
 `We examine how the country responds to mass shootings.`\
 https://nytimes.com/2025/12/16/briefing/a-look-at-australias-gun-laws.html
