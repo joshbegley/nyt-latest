@@ -1,3 +1,5 @@
+
+
 **North Texas QB Drew Mestemaker, nation's leader in passing, plans to enter transfer portal**\
 `Mestemaker, a former walk-on, will be heavily pursued by quarterback-needy Power 4 programs. `\
 https://nytimes.com/athletic/6894677/2025/12/16/drew-mestemaker-north-texas-qb-transfer-portal/
