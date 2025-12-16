@@ -1,3 +1,11 @@
+**Brown Student Has Survived Two School Shootings**\
+`Mia Tretta, a Brown student, survived a deadly shooting at her high school in 2019 and another attack on Saturday. As the authorities search for the gunman in the latest attack, she is coping with trauma again.`\
+https://nytimes.com/video/us/100000010589153/brown-shooting-student-tretta.html
+
+**Gold Glove infielder Ha-Seong Kim reunites with Braves on one-year deal: Source**\
+`The 30-year-old Korean rejuvenated his free-agent stock with a healthy and productive 24-game stint with the Braves in September.`\
+https://nytimes.com/athletic/6838921/2025/12/15/mlb-haseong-kim-free-agency-signing-braves/
+
 **Rob Reiner Is Said to Have Argued With His Son at a Holiday Party**\
 `Rob Reiner and his son, Nick, had a dispute at a party hosted by Conan O’Brien the night before the director and his wife were found dead.`\
 https://nytimes.com/2025/12/15/us/rob-nick-reiner-conan-o-brien-party.html
@@ -25,12 +33,4 @@ https://nytimes.com/2025/12/15/us/politics/trump-sues-bbc.html
 **Full Time: NWSL’s looming rule change, explained**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/6892535/2025/12/15/nwsl-salary-rule-change-trinity-rodman-full-time/
-
-**Pelosi Resisted Stock-Trading Ban as Wealth Grew, Fueling Suspicion**\
-`The former speaker failed to appreciate the groundswell of support for banning the practice, refusing to give an inch amid G.O.P. accusations that she was corrupt.`\
-https://nytimes.com/2025/12/15/us/politics/pelosi-stock-trading-ban.html
-
-**How to watch James Madison vs. Oregon: CFP First Round Start Time, TV, streaming**\
-`Find out how to watch the James Madison Dukes play the Oregon Ducks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6892550/2025/12/15/how-to-watch-james-madison-at-oregon-cfp-first-round-tv-channel-and-streaming-options-for-december-20/
 
