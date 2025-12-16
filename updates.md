@@ -1,3 +1,8 @@
+**Man City 2024-25 accounts: small loss after big spending is unlikely to cause alarm**\
+`City posted their third-highest revenue total of £694.1million but lost £9.9m for the year ending June 30, 2025.
+`\
+https://nytimes.com/athletic/6894517/2025/12/16/manchester-city-financial-results-2024-25/
+
 **Submit your Dodgers questions for Fabian Ardaya's mailbag**\
 `Submit your Dodgers questions for Fabian Ardaya's mailbag`\
 https://nytimes.com/athletic/6895020/2025/12/16/dodgers-offseason-free-agents-mailbag/

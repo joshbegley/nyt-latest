@@ -1,3 +1,7 @@
+**Fantasy football market share report: Get Michael Carter, forget Tyler Warren for Week 16**\
+`Michael Salfino analyzes the touches and targets distribution for Week 15 and suggests adding Michael Carter, but benching Tyler Warren.`\
+https://nytimes.com/athletic/6894572/2025/12/16/fantasy-football-market-share-report-michael-carter/
+
 **Submit your Dodgers questions for Fabian Ardaya's mailbag**\
 `Submit your Dodgers questions for Fabian Ardaya's mailbag`\
 https://nytimes.com/athletic/6895020/2025/12/16/dodgers-offseason-free-agents-mailbag/
@@ -30,8 +34,4 @@ https://nytimes.com/athletic/6894517/2025/12/16/manchester-city-financial-result
 **Reiners’ Son to Be Charged With Murder**\
 `Also, the unemployment rate rose. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2025/12/16/briefing/rob-reiner-son-charges-unemployment-rate.html
-
-**Lawmakers Demand the Release of Classified Boat Strike Video**\
-`Following classified hearings for all the members of the House and Senate, Defense Secretary Pete Hegseth declined on Tuesday to release the unedited video of a boat attack in September that included a second strike to kill survivors.`\
-https://nytimes.com/video/us/politics/100000010591337/hegseth-boat-strike.html
 
