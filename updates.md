@@ -1,3 +1,11 @@
+**Will the Big Bash League go private?**\
+`CA's decision over private investment will go a long way towards shaping the futures of both the BBL and Australian cricket as a whole`\
+https://nytimes.com/athletic/6888830/2025/12/16/big-bash-league-australia-private-bbl-ipl/
+
+**Guglielmo Vicario is far from perfect, but he's also far from Tottenham's biggest problem**\
+`The Italian has been in the spotlight for the wrong reasons, but is still preventing more goals than most of his Premier League rivals`\
+https://nytimes.com/athletic/6891208/2025/12/16/guglielmo-vicario-tottenham-errors/
+
 **Jaylen Brown takes blame for Celtics' home loss to East-leading Pistons**\
 `Thanks to Brown's big half, the Celtics took a 57-53 lead into halftime, but they fell behind late and couldn't catch the Pistons.`\
 https://nytimes.com/athletic/6893033/2025/12/16/jaylen-brown-takes-blame-celtics-lose-pistons-2/
