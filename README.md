@@ -10,7 +10,7 @@ https://nytimes.com/athletic/6892929/2025/12/15/ncaa-mens-soccer-washington-ot-n
 `Monday's closing arguments set the stage, with a significant range of potential outcomes in play.`\
 https://nytimes.com/athletic/6892772/2025/12/15/tyler-skaggs-angels-trial-closing-arguments/
 
-**Two years after the Pac-12 collapsed, its football legacy lives on**\
+**Two years after the Pac-12 collapsed, its stars are still defining football**\
 `Fernando Mendoza is the latest Heisman Trophy winner to have started his collegiate career in the "Conference of Champions."`\
 https://nytimes.com/athletic/6892832/2025/12/15/pac-12-football-legacy/
 
