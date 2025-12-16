@@ -1,3 +1,11 @@
+**Other celebrities have died tragically in L.A.’s Brentwood neighborhood.**\
+`The wealthy enclave`\
+https://nytimes.com/live/2025/12/15/us/rob-michele-reiner-dead/celebrity-deaths-brentwood-los-angeles
+
+**Trump Files $10 Billion Suit Against BBC Over Documentary**\
+`The British broadcaster, which has expressed regret over the editing of video clips about the president, has rejected claims that the error was evidence of a fundamental bias in its news reporting.`\
+https://nytimes.com/2025/12/15/us/politics/trump-sues-bbc.html
+
 **Full Time: NWSL’s looming rule change, explained**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/6892535/2025/12/15/nwsl-salary-rule-change-trinity-rodman-full-time/
