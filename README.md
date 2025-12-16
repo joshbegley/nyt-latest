@@ -1,3 +1,11 @@
+**Wisconsin Judge Allows Election Case to Proceed Against Trump Advisers**\
+`A judge ruled that at least two of three defendants would have to stand trial in a case stemming from a plan to deploy fake electors after Donald Trump lost the 2020 presidential election.`\
+https://nytimes.com/2025/12/15/us/politics/wisconsin-trump-electors-court.html
+
+**In 1-for-1 deal with Nationals, Red Sox land sought-after pitching prototype**\
+`Having already added Sonny Gray and Johan Oviedo, the Red Sox continue to pursue trades that raise the floor of their pitching group. `\
+https://nytimes.com/athletic/6892560/2025/12/15/boston-red-sox-trade-jake-bennett/
+
 **Other celebrities have died tragically in L.A.’s Brentwood neighborhood.**\
 `The wealthy enclave`\
 https://nytimes.com/live/2025/12/15/us/rob-michele-reiner-dead/celebrity-deaths-brentwood-los-angeles
@@ -25,12 +33,4 @@ https://nytimes.com/2025/12/15/us/politics/kash-patel-fbi.html
 **Robert Samuelson, Award-Winning Economics Columnist, Dies at 79**\
 `He was a familiar byline in Newsweek and The Washington Post for decades, explaining the intricacies of economic policy in reader-friendly vernacular.`\
 https://nytimes.com/2025/12/15/business/media/robert-samuelson-dead.html
-
-**How to watch Eagles vs. Commanders: Time, TV, streaming**\
-`Find out how to watch the Philadelphia Eagles play the Washington Commanders, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6892497/2025/12/15/eagles-vs-commanders-stream-how-to-watch-dec-20/
-
-**Trial Opens for Judge Accused of Steering Immigrant Away from Federal Agents**\
-`“There was no corrupt intent,” the judge’s lawyer said in an opening statement. Prosecutors said the judge’s political views made her “cross the line.”`\
-https://nytimes.com/2025/12/15/us/milwaukee-judge-immigration.html
 
