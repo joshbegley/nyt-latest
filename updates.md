@@ -1,3 +1,7 @@
+**TAFC – The mystery of FC Haka's stadium fire. Plus: Inside Real Madrid's finances**\
+`FC Haka's home was destroyed – but their rivals are helping the nine-time Finnish champions rebuild`\
+https://nytimes.com/athletic/6893356/2025/12/16/haka-stadium-fire-real-madrid-finances-tafc/
+
 **The Pulse: Do you care about the NBA Cup?**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6891511/2025/12/16/nba-cup-poll-the-pulse/
