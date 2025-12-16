@@ -1,3 +1,7 @@
+**Red Sox, Nationals swap pitching prospects with contrasting styles in win-win deal**\
+`Luis Perales has more upside, while Jake Bennett has a higher floor. Both pitchers have paths to succeed in their new organizations.`\
+https://nytimes.com/athletic/6892679/2025/12/15/red-sox-nationals-luis-perales-jake-bennett-trade-analysis/
+
 **Words Before a Date**\
 `You’ll have to complete Jason Reich’s crossword from start to finish.`\
 https://nytimes.com/2025/12/15/crosswords/daily-puzzle-2025-12-16.html
@@ -29,8 +33,4 @@ https://nytimes.com/live/2025/12/15/world/bondi-beach-shooting-gunmen-isis/bondi
 **Brown Student Has Survived Two School Shootings**\
 `Mia Tretta, a Brown student, survived a deadly shooting at her high school in 2019 and another attack on Saturday. As the authorities search for the gunman in the latest attack, she is coping with trauma again.`\
 https://nytimes.com/video/us/100000010589153/brown-shooting-student-tretta.html
-
-**Gold Glover Ha-Seong Kim reunites with Braves on one-year, $20 million deal: Source**\
-`The 30-year-old Korean rejuvenated his free-agent stock with a healthy and productive 24-game stint with the Braves in September.`\
-https://nytimes.com/athletic/6838921/2025/12/15/mlb-haseong-kim-free-agency-signing-braves/
 
