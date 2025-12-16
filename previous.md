@@ -1,3 +1,7 @@
+**Words Before a Date**\
+`You’ll have to complete Jason Reich’s crossword from start to finish.`\
+https://nytimes.com/2025/12/15/crosswords/daily-puzzle-2025-12-16.html
+
 **Joe Ely, Texas-Born Troubadour of the Open Road, Dies at 78**\
 `Thanks to his eclectic style and tireless touring, he was among the most influential artists in the early days of Americana and alt-country music.`\
 https://nytimes.com/2025/12/15/obituaries/joe-ely-dead.html
@@ -29,8 +33,4 @@ https://nytimes.com/video/us/100000010589153/brown-shooting-student-tretta.html
 **Gold Glover Ha-Seong Kim reunites with Braves on one-year, $20 million deal: Source**\
 `The 30-year-old Korean rejuvenated his free-agent stock with a healthy and productive 24-game stint with the Braves in September.`\
 https://nytimes.com/athletic/6838921/2025/12/15/mlb-haseong-kim-free-agency-signing-braves/
-
-**Rob Reiner Is Said to Have Argued With His Son at a Holiday Party**\
-`Rob Reiner and his son, Nick, had a dispute at a party hosted by Conan O’Brien the night before the director and his wife were found dead.`\
-https://nytimes.com/2025/12/15/us/rob-nick-reiner-conan-o-brien-party.html
 

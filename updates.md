@@ -1,3 +1,7 @@
+**Words Before a Date**\
+`You’ll have to complete Jason Reich’s crossword from start to finish.`\
+https://nytimes.com/2025/12/15/crosswords/daily-puzzle-2025-12-16.html
+
 **Joe Ely, Texas-Born Troubadour of the Open Road, Dies at 78**\
 `Thanks to his eclectic style and tireless touring, he was among the most influential artists in the early days of Americana and alt-country music.`\
 https://nytimes.com/2025/12/15/obituaries/joe-ely-dead.html
