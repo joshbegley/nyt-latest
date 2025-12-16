@@ -1,3 +1,11 @@
+**Will the Big Bash League go private?**\
+`CA's decision over private investment will go a long way towards shaping the futures of both the BBL and Australian cricket as a whole`\
+https://nytimes.com/athletic/6888830/2025/12/16/big-bash-league-australia-private-bbl-ipl/
+
+**Guglielmo Vicario is far from perfect, but he's also far from Tottenham's biggest problem**\
+`The Italian has been in the spotlight for the wrong reasons, but is still preventing more goals than most of his Premier League rivals`\
+https://nytimes.com/athletic/6891208/2025/12/16/guglielmo-vicario-tottenham-errors/
+
 **Jaylen Brown takes blame for Celtics' home loss to East-leading Pistons**\
 `Thanks to Brown's big half, the Celtics took a 57-53 lead into halftime, but they fell behind late and couldn't catch the Pistons.`\
 https://nytimes.com/athletic/6893033/2025/12/16/jaylen-brown-takes-blame-celtics-lose-pistons-2/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6890951/2025/12/16/gomes-mainoo-mount-england-tuche
 **What are the FIFA Best Awards? And who is nominated this year?**\
 `How are FIFA's annual awards different from the Ballon d'Or? Who is nominated? Who votes? And how can you watch Tuesday's show?`\
 https://nytimes.com/athletic/6891405/2025/12/16/fifa-best-awards-bonmati-putellas-dembele-hakimi/
-
-**Bundesliga Briefing: Welcome back, Urs Fischer – to Bayern Munich's detriment**\
-`Plus the story of the slapstick transfer of the summer and the player who walks the pitch barefoot before matches`\
-https://nytimes.com/athletic/6890841/2025/12/16/bundesliga-briefing-urs-fischer-mainz-bayern-munich/
-
-**In a Remote Jungle, the Gruesome Poaching of Rare Elephants**\
-`More than a dozen Bornean elephants have been killed — including five beheaded — in Malaysia in the past 18 months, authorities say.`\
-https://nytimes.com/2025/12/16/world/asia/borneo-elephants-poaching-beheading.html
 
