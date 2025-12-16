@@ -1,3 +1,7 @@
+**ISIS and the Bondi Beach Attack**\
+`Australian officials say the suspects were motivated by ISIS. It suggests the group may still have the ability to inspire acts of terrorism.`\
+https://nytimes.com/2025/12/16/world/isis-bondi-beach-attack-ukraine-trump.html
+
 **With outfield 'pretty much set,' Phillies signal offseason's heaviest lifting is done**\
 `The Phillies aren't done reshaping the roster, but their outfield configuration has come into focus. Here's where their offseason stands. `\
 https://nytimes.com/athletic/6894476/2025/12/16/phillies-outfield-offseason-trades-signings/
@@ -21,12 +25,4 @@ https://nytimes.com/2025/12/16/world/americas/boat-strikes-colombia-usa-trump-pe
 **Mikaela Shiffrin, 4-for-4 in slalom to start Olympic year, gets 105th World Cup win**\
 `Shiffrin has won five straight World Cup slaloms dating back to last season's finale, firmly establishing herself as the Olympic favorite.`\
 https://nytimes.com/athletic/6894044/2025/12/16/mikaela-shiffrin-olympics-world-cup-slalom-win-courchevel/
-
-**Denny Hamlin, days after NASCAR suit settlement, asks Sirius host for apology**\
-`Hamlin, the 23XI Racing co-owner, took to X on Tuesday to express his displeasure over criticism and more from the SiriusXM channel.`\
-https://nytimes.com/athletic/6894070/2025/12/16/denny-hamlin-siriusxm-nascar-larry-mcreynolds-dave-moody/
-
-**The Best Movies of 2025: You Decide**\
-`The critics have had their say. Now it’s your turn. What movies released in 2025 do you consider the best?`\
-https://nytimes.com/interactive/2025/12/16/movies/vote-best-movies-2025.html
 

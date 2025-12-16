@@ -1,3 +1,7 @@
+**ISIS and the Bondi Beach Attack**\
+`Australian officials say the suspects were motivated by ISIS. It suggests the group may still have the ability to inspire acts of terrorism.`\
+https://nytimes.com/2025/12/16/world/isis-bondi-beach-attack-ukraine-trump.html
+
 **With outfield 'pretty much set,' Phillies signal offseason's heaviest lifting is done**\
 `The Phillies aren't done reshaping the roster, but their outfield configuration has come into focus. Here's where their offseason stands. `\
 https://nytimes.com/athletic/6894476/2025/12/16/phillies-outfield-offseason-trades-signings/
