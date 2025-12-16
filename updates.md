@@ -1,3 +1,11 @@
+**Brown Student Has Survived Two School Shootings**\
+`Mia Tretta, a Brown student, survived a deadly shooting at her high school in 2019 and another attack on Saturday. As the authorities search for the gunman in the latest attack, she is coping with trauma again.`\
+https://nytimes.com/video/us/100000010589153/brown-shooting-student-tretta.html
+
+**Gold Glove infielder Ha-Seong Kim reunites with Braves on one-year deal: Source**\
+`The 30-year-old Korean rejuvenated his free-agent stock with a healthy and productive 24-game stint with the Braves in September.`\
+https://nytimes.com/athletic/6838921/2025/12/15/mlb-haseong-kim-free-agency-signing-braves/
+
 **How to watch James Madison vs. Oregon: CFP First Round Start Time, TV, streaming**\
 `Find out how to watch the James Madison Dukes play the Oregon Ducks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6892550/2025/12/15/how-to-watch-james-madison-at-oregon-cfp-first-round-tv-channel-and-streaming-options-for-december-20/
