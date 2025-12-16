@@ -1,3 +1,11 @@
+**'Significant' partial team sale clears Twins' finances, may set table for future sale**\
+`The cash infusion will significantly reduce the Twins' debt.`\
+https://nytimes.com/athletic/6892645/2025/12/16/twins-partial-sale-finances-debt-update/
+
+**A Pipe Organist Invites You to Bliss Out to Her Dreamy Colors**\
+`Ellen Arkbro makes music that shifts and churns with no regard for harmony’s rules. She’s one of the most interesting composers for her instrument working today.`\
+https://nytimes.com/2025/12/16/arts/music/ellen-arkbro.html
+
 **Liverpool parade attacker sentenced to 21 years, six months in prison**\
 `Judge Andrew Menary KC said that the evidence against Paul Doyle was “overwhelming” as he described the footage as “truly shocking”.`\
 https://nytimes.com/athletic/6891218/2025/12/16/paul-doyle-sentencing-liverpool-title-parade/

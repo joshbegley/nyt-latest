@@ -1,3 +1,7 @@
+**Obamas Had Plans to See the Reiners the Day They Were Found Dead**\
+`Michelle Obama said on “Jimmy Kimmel Live!” that she and former President Barack Obama were longtime friends of the couple and called them “decent, courageous” people.`\
+https://nytimes.com/2025/12/16/us/michelle-obama-rob-reiner-michele.html
+
 **'Significant' partial team sale clears Twins' finances, may set table for future sale**\
 `The cash infusion will significantly reduce the Twins' debt.`\
 https://nytimes.com/athletic/6892645/2025/12/16/twins-partial-sale-finances-debt-update/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/16/world/europe/zelensky-ukraine-peace-talks.html
 **Trump Administration Live Updates: BBC to Defend Itself Against President’s $10 Billion Lawsuit**\
 ``\
 https://nytimes.com/live/2025/12/16/us/trump-news
-
-**New York New Jersey announces ticketed World Cup fan zone in Queens**\
-`Organizers expect about 10,000 people per day to attend the Queens fan zone, with the potential for sell-outs.`\
-https://nytimes.com/athletic/6893282/2025/12/16/world-cup-fan-zone-queens-new-york/
 
