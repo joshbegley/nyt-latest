@@ -1,3 +1,7 @@
+**Australia Doubles Down on Gun Control After Mass Shooting**\
+`The country has long looked warily at the cycle of gun violence in the United States, where meaningful changes in policy have been rare.`\
+https://nytimes.com/2025/12/16/world/australia/australia-gun-control-bondi-shooting.html
+
 **Arch Manning will return to Texas next season and not declare for 2026 NFL Draft: Source**\
 `The Longhorns quarterback will return to school instead of declaring for the NFL Draft as a redshirt sophomore.`\
 https://nytimes.com/athletic/6893087/2025/12/16/arch-manning-texas-return-2026/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/16/us/michelle-obama-rob-reiner-michele.html
 **'Significant' partial team sale clears Twins' finances, may set table for future sale**\
 `The cash infusion will significantly reduce the Twins' debt.`\
 https://nytimes.com/athletic/6892645/2025/12/16/twins-partial-sale-finances-debt-update/
-
-**A Pipe Organist Invites You to Bliss Out to Her Dreamy Colors**\
-`Ellen Arkbro makes music that shifts and churns with no regard for harmony’s rules. She’s one of the most interesting composers for her instrument working today.`\
-https://nytimes.com/2025/12/16/arts/music/ellen-arkbro.html
 
