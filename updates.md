@@ -1,3 +1,15 @@
+**Donald Trump Jr. Is Engaged to Palm Beach Socialite Bettina Anderson**\
+`The relationship between the president’s son and Ms. Anderson had been the subject of tabloid speculation during his previous engagement to Kimberly Guilfoyle.`\
+https://nytimes.com/2025/12/15/us/donald-trump-jr-engaged-bettina-anderson.html
+
+**Aaron Rodgers passes Steelers past Dolphins to keep AFC North lead: Takeaways**\
+`The future Hall of Fame quarterback threw two touchdown passes as the Steelers beat the Dolphins 28-15 to keep their AFC North lead Monday.`\
+https://nytimes.com/athletic/6892372/2025/12/15/steelers-dolphins-score-result-takeaways-mnf-nfl/
+
+**U.S. Strikes 3 More Boats in Eastern Pacific, Killing 8**\
+`The attacks brought the number killed since the Trump administration began the strikes on suspected drug smugglers to at least 95.`\
+https://nytimes.com/2025/12/15/us/politics/drug-boat-strikes-pacific.html
+
 **NFL playoff picture after Week 15: Bills' comeback win keeps AFC East crown within reach**\
 `The Broncos and Rams are in control of the AFC and NFC, respectively. Can they each hang on for another few weeks?`\
 https://nytimes.com/athletic/6879197/2025/12/15/nfl-playoff-picture-week-15-bills-patriots-broncos-update/
