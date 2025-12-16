@@ -1,3 +1,7 @@
+**Heart Association Revives Theory That Light Drinking May Be Good for You**\
+`The American Heart Association report runs contrary to recent studies — and the group’s own guidelines — that found any amount of alcohol to be harmful.`\
+https://nytimes.com/2025/12/16/health/alcohol-heart-disease-cancer.html
+
 **NFL Week 16 playoff scenarios: How Eagles, Broncos can lock up key spots**\
 `The Rams' clash with the Seahawks will have significant implications in the races for the NFC West and the top seed in the conference.`\
 https://nytimes.com/athletic/6893989/2025/12/16/nfl-week-16-playoff-clinching-scenarios-broncos-eagles/
@@ -25,8 +29,4 @@ https://nytimes.com/2025/12/16/us/politics/trump-prosecutors-senate-blue-slips.h
 **Kashi Offers Indian Supper Club Fare in Downtown Brooklyn**\
 `A calorie-conscious bowl restaurant in SoHo, Iberian nibbles in Chelsea and more restaurant news.`\
 https://nytimes.com/2025/12/16/dining/nyc-restaurant-news.html
-
-**Can 49ers' passing attack overcome run game, defensive woes in playoffs?**\
-`Robert Mays and Derrik Klassen dove into the Niners on the latest episode of “The Athletic Football Show”.`\
-https://nytimes.com/athletic/6893088/2025/12/16/upon-further-review-are-niners-flaws-too-big-for-a-postseason-run/
 
