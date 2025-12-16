@@ -1,3 +1,11 @@
+**Kashi Offers Indian Supper Club Fare in Downtown Brooklyn**\
+`A calorie-conscious bowl restaurant in SoHo, Iberian nibbles in Chelsea and more restaurant news.`\
+https://nytimes.com/2025/12/16/dining/nyc-restaurant-news.html
+
+**Can 49ers' passing attack overcome run game, defensive woes in playoffs?**\
+`Robert Mays and Derrik Klassen dove into the Niners on the latest episode of “The Athletic Football Show”.`\
+https://nytimes.com/athletic/6893088/2025/12/16/upon-further-review-are-niners-flaws-too-big-for-a-postseason-run/
+
 **FIFA creates new $60 World Cup ticket category for few supporters**\
 `One thousand of the cheaper tickets will be available for each team per game after outrage over historically high prices this month.`\
 https://nytimes.com/athletic/6894159/2025/12/16/fifa-world-cup-ticket-category-backlash/
