@@ -1,3 +1,15 @@
+**Research Flights Over the Atlantic Could Help Improve Atmospheric River Forecasting**\
+`A global effort to better understand moisture-laden rivers in the sky, like those currently battering the West Coast, will take flight in January.`\
+https://nytimes.com/2025/12/16/climate/atmospheric-rivers-forecasts.html
+
+**Australia Can’t Recover From This**\
+`The victims were let down by a government whose role it is to do what individuals cannot: keep our nation safe from terrorism and mass shootings.`\
+https://nytimes.com/2025/12/16/opinion/australia-bondi-beach-shooting.html
+
+**Chicken Stroganoff**\
+`This Brazilian stroganoff is a riff on the classic Russian-American beef, mushroom and sour cream stew that was considered peak haute cuisine in the United States during the 1950s.`\
+https://nytimes.com/video/dining/100000010367264/chicken-stroganoff.html
+
 **Remixing Trump’s Economy Speech, Vance Strikes a Different Tone**\
 `Vice President JD Vance pleaded with everybody to just hang in there a little longer, saying the economy would improve.`\
 https://nytimes.com/2025/12/16/us/politics/vance-trump-economy-speech.html
