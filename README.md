@@ -1,6 +1,14 @@
+**Live Updates: Australian Leader Says Sydney Gunmen Were Motivated by ISIS**\
+`The two men who killed at least 15 people on Sunday were driven by “Islamic State ideology,” Prime Minister Anthony Albanese told Australia’s public broadcaster.`\
+https://nytimes.com/live/2025/12/15/world/bondi-beach-shooting-gunmen-isis
+
+**Kushner’s Firm Pulls Out of Trump-Branded Hotel Deal in Serbia**\
+`The announcement came just hours after prosecutors there charged four government officials with corruption in connection with the half-billion-dollar project.`\
+https://nytimes.com/2025/12/15/us/politics/kushner-trump-hotel-deal-serbia.html
+
 **Australian Leader Says Sydney Gunmen Were Motivated by ISIS**\
 `The two men who killed at least 15 people on Sunday were driven by “Islamic State ideology,” Prime Minister Anthony Albanese told Australia’s public broadcaster.`\
-https://nytimes.com/2025/12/15/world/australia/bondi-beach-shooting-gunmen-isis.html
+https://nytimes.com/live/2025/12/15/world/bondi-beach-shooting-gunmen-isis/bondi-beach-shooting-gunmen-isis
 
 **Brown Student Has Survived Two School Shootings**\
 `Mia Tretta, a Brown student, survived a deadly shooting at her high school in 2019 and another attack on Saturday. As the authorities search for the gunman in the latest attack, she is coping with trauma again.`\
@@ -25,12 +33,4 @@ https://nytimes.com/2025/12/15/us/politics/wisconsin-trump-electors-court.html
 **In 1-for-1 deal with Nationals, Red Sox land sought-after pitching prototype**\
 `Having already added Sonny Gray and Johan Oviedo, the Red Sox continue to pursue trades that raise the floor of their pitching group. `\
 https://nytimes.com/athletic/6892560/2025/12/15/boston-red-sox-trade-jake-bennett/
-
-**Other celebrities have died tragically in L.A.’s Brentwood neighborhood.**\
-`The wealthy enclave`\
-https://nytimes.com/live/2025/12/15/us/rob-michele-reiner-dead/celebrity-deaths-brentwood-los-angeles
-
-**Trump Files $10 Billion Suit Against BBC Over Documentary**\
-`The British broadcaster, which has expressed regret over the editing of video clips about the president, has rejected claims that the error was evidence of a fundamental bias in its news reporting.`\
-https://nytimes.com/2025/12/15/us/politics/trump-sues-bbc.html
 
