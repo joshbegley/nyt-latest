@@ -10,8 +10,8 @@ https://nytimes.com/live/2025/12/15/world/bondi-beach-shooting-gunmen-isis
 `The announcement came just hours after prosecutors there charged four government officials with corruption in connection with the half-billion-dollar project.`\
 https://nytimes.com/2025/12/15/us/politics/kushner-trump-hotel-deal-serbia.html
 
-**Australian Leader Says Sydney Gunmen Were Motivated by ISIS**\
-`The two men who killed at least 15 people on Sunday were driven by “Islamic State ideology,” Prime Minister Anthony Albanese told Australia’s public broadcaster.`\
+**Here’s the latest.**\
+`The two men who killed 15 people on Sunday were driven by “Islamic State ideology,” Prime Minister Anthony Albanese told Australia’s public broadcaster.`\
 https://nytimes.com/live/2025/12/15/world/bondi-beach-shooting-gunmen-isis/bondi-beach-shooting-gunmen-isis
 
 **Brown Student Has Survived Two School Shootings**\
