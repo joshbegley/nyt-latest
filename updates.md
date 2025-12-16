@@ -1,3 +1,7 @@
+**Heroic Bondi Bystander’s Immigrant Background Is a Balm for Some Australians**\
+`Ahmed el Ahmed, a Muslim who arrived from Syria nearly 20 years ago, disarmed one of the suspected gunmen, who officials said were inspired by ISIS.`\
+https://nytimes.com/2025/12/16/world/australia/bondi-beach-shooting-hero-bystander-ahmed-immigrant.html
+
 **Brigitte Macron Apologizes for Slur Against Feminist Activists. Sort Of.**\
 `In a short video, the French first lady said that she was “sorry if I have hurt women victims,” but she also noted that she should be allowed to behave freely in private.`\
 https://nytimes.com/2025/12/16/world/europe/france-first-lady-brigitte-macron-apology.html
