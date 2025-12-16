@@ -1,36 +1,36 @@
-**At Rome’s New Stations, Peruse Ancient Relics While Catching a Train**\
-`Part station, part museum, two new subway stops in Rome offer riders the chance to see ancient artifacts unearthed in digging for the stations.`\
-https://nytimes.com/2025/12/16/world/europe/rome-subway-stations-museum-archaeology.html
+**How to watch Bengals vs. Dolphins: Time, TV, streaming**\
+`Find out how to watch the Cincinnati Bengals play the Miami Dolphins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6894548/2025/12/16/bengals-vs-dolphins-stream-how-to-watch-dec-21/
 
-**Donald Trump May Be About to Pick the Least Important Fed Chair in Decades**\
-`Consensus may be a thing of the past. And that’s good.`\
-https://nytimes.com/2025/12/16/opinion/trump-federal-reserve-powell.html
+**How to watch Vikings vs. Giants: Time, TV, streaming**\
+`Find out how to watch the Minnesota Vikings play the New York Giants, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6894543/2025/12/16/vikings-vs-giants-stream-how-to-watch-dec-21/
 
-**Snoop Dogg to perform Netflix Christmas Day halftime show during Lions-Vikings**\
-`In its second season with Christmas NFL games, Netflix is adding to the entertainment with Snoop Dogg.`\
-https://nytimes.com/athletic/6894335/2025/12/16/snoop-dogg-netflix-christmas-halftime-show-lions-vikings/
+**How to watch Northern Colorado vs. Texas Tech men's basketball: Time, TV, streaming**\
+`Find out how to watch the Northern Colorado Bears play the Texas Tech Red Raiders, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6894539/2025/12/16/northern-colorado-vs-texas-tech-stream-how-to-watch-dec-16/
 
-**Hegseth Declines to Show Lawmakers Boat Strike Video**\
-`The defense secretary joined the secretary of state on Capitol Hill to deliver the first classified briefings to include all members of the House and Senate on the maritime attacks.`\
-https://nytimes.com/2025/12/16/us/politics/hegseth-congress-boat-strike-video.html
+**Brown cancels men's and women's basketball games in aftermath of shooting**\
+`The Brown men's basketball team was scheduled to play USC on Sunday.`\
+https://nytimes.com/athletic/6894455/2025/12/16/brown-shooting-basketball-canceled-mens-womens/
 
-**Prosecutors flag conflict of interest concern in NBA sports gambling case**\
-`Rozier is paying for defendant Deniro Laster's attorney.`\
-https://nytimes.com/athletic/6894254/2025/12/16/terry-rozier-nba-sports-gambling-betting-deniro-laster/
+**How to watch Cal Poly vs. UCLA women's basketball: Time, TV, streaming**\
+`Find out how to watch the Cal Poly Mustangs play the UCLA Bruins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6894537/2025/12/16/cal-poly-vs-ucla-stream-how-to-watch-dec-16/
 
-**‘Sinners’ and ‘Wicked: For Good’ Lead the Way on the Oscar Shortlists**\
-`The lineups, which Oscar voters will choose from next month, include the new casting category, which was largely a dress rehearsal for best picture.`\
-https://nytimes.com/2025/12/16/movies/oscars-shortlist-awards-sinners-wicked.html
+**How to watch East Tennessee State vs. North Carolina men's basketball: Time, TV, streaming**\
+`Find out how to watch the East Tennessee State Buccaneers play the North Carolina Tar Heels, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6894533/2025/12/16/east-tennessee-state-vs-north-carolina-stream-how-to-watch-dec-16/
 
-**By Overcoming Doubts, Lando Norris Claimed His First F1 Drivers’ Title**\
-`But he didn’t win it by much, as Max Verstappen made a late-season charge.`\
-https://nytimes.com/2025/12/16/sports/f1-lando-norris-drivers-title.html
+**How to watch UAPB vs. TCU women's basketball: Time, TV, streaming**\
+`Find out how to watch the Arkansas-Pine Bluff Golden Lions play the TCU Horned Frogs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6894526/2025/12/16/uapb-vs-tcu-stream-how-to-watch-dec-16/
 
-**Scoop City: Comeback expectations for Mahomes and Parsons**\
-`What's next for two injured superstars, plus an updated playoff picture after the Dolphins ... gave up?`\
-https://nytimes.com/athletic/6894423/2025/12/16/comeback-timeline-patrick-mahomes-micah-parsons/
+**How to watch Queens vs. Arkansas men's basketball: Time, TV, streaming**\
+`Find out how to watch the Queens Royals play the Arkansas Razorbacks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6894524/2025/12/16/queens-vs-arkansas-stream-how-to-watch-dec-16/
 
-**Ukraine Plan Calls For Enhanced Military, With U.S. and European Backup**\
-`The latest proposal is designed to deter future Russian aggression. But Russia is not part of the talks and has shown little willingness to negotiate.`\
-https://nytimes.com/2025/12/16/world/europe/ukraine-security-guarantees-talks.html
+**How to watch Chiefs vs. Titans: Time, TV, streaming**\
+`Find out how to watch the Kansas City Chiefs play the Tennessee Titans, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6894510/2025/12/16/chiefs-vs-titans-stream-how-to-watch-dec-21/
 
