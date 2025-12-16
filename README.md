@@ -1,3 +1,7 @@
+**Washington rebounds for OT win and first NCAA men's soccer title**\
+`The Huskies also needed overtime to get out of the first round of the NCAA tournament.`\
+https://nytimes.com/athletic/6892929/2025/12/15/ncaa-mens-soccer-washington-ot-nc-state/
+
 **Tyler Skaggs civil trial vs. Angels heading to jury: Here's what's at stake**\
 `Monday's closing arguments set the stage, with a significant range of potential outcomes in play.`\
 https://nytimes.com/athletic/6892772/2025/12/15/tyler-skaggs-angels-trial-closing-arguments/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/15/obituaries/joe-ely-dead.html
 **At a Dark Moment, Jews in New York Celebrate the Festival of Lights**\
 `After the mass shooting at a Hanukkah celebration in Sydney, Australia, Jewish New Yorkers said they felt the need to stand up for their community.`\
 https://nytimes.com/2025/12/15/nyregion/hanukkah-menorah-nyc-jews-australia.html
-
-**Michigan interim coach Biff Poggi says players feel 'betrayed' after Sherrone Moore firing**\
-`Michigan's interim coach spoke about the emotions his players have been dealing with in the wake of the firing and arrest of Sherrone Moore.`\
-https://nytimes.com/athletic/6892588/2025/12/15/biff-poggi-michigan-sherrone-moore/
 
