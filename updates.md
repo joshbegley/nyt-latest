@@ -1,3 +1,11 @@
+**Wisconsin Judge Allows Election Case to Proceed Against Trump Advisers**\
+`A judge ruled that at least two of three defendants would have to stand trial in a case stemming from a plan to deploy fake electors after Donald Trump lost the 2020 presidential election.`\
+https://nytimes.com/2025/12/15/us/politics/wisconsin-trump-electors-court.html
+
+**In 1-for-1 deal with Nationals, Red Sox land sought-after pitching prototype**\
+`Having already added Sonny Gray and Johan Oviedo, the Red Sox continue to pursue trades that raise the floor of their pitching group. `\
+https://nytimes.com/athletic/6892560/2025/12/15/boston-red-sox-trade-jake-bennett/
+
 **Other celebrities have died tragically in L.A.’s Brentwood neighborhood.**\
 `The wealthy enclave`\
 https://nytimes.com/live/2025/12/15/us/rob-michele-reiner-dead/celebrity-deaths-brentwood-los-angeles
