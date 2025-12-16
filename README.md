@@ -1,3 +1,15 @@
+**Research Flights Over the Atlantic Could Help Improve Atmospheric River Forecasting**\
+`A global effort to better understand moisture-laden rivers in the sky, like those currently battering the West Coast, will take flight in January.`\
+https://nytimes.com/2025/12/16/climate/atmospheric-rivers-forecasts.html
+
+**Australia Can’t Recover From This**\
+`The victims were let down by a government whose role it is to do what individuals cannot: keep our nation safe from terrorism and mass shootings.`\
+https://nytimes.com/2025/12/16/opinion/australia-bondi-beach-shooting.html
+
+**Chicken Stroganoff**\
+`This Brazilian stroganoff is a riff on the classic Russian-American beef, mushroom and sour cream stew that was considered peak haute cuisine in the United States during the 1950s.`\
+https://nytimes.com/video/dining/100000010367264/chicken-stroganoff.html
+
 **Remixing Trump’s Economy Speech, Vance Strikes a Different Tone**\
 `Vice President JD Vance pleaded with everybody to just hang in there a little longer, saying the economy would improve.`\
 https://nytimes.com/2025/12/16/us/politics/vance-trump-economy-speech.html
@@ -21,16 +33,4 @@ https://nytimes.com/video/opinion/100000010576873/how-to-do-a-little-more-good-i
 **Officials Release Enhanced Video of Possible Shooting Suspect at Brown**\
 `The Providence Police Department released enhanced security camera footage of a suspect in the Brown University shooting walking through the neighborhood hours before the tragedy took place.`\
 https://nytimes.com/video/us/100000010591823/brown-university-shooting-suspect-enhanced-video.html
-
-**GiveWell’s Lightbulb Moment**\
-`Elie Hassenfeld was inspired to start GiveWell when he couldn’t find answers to his questions about charitable donations. He shares the organization’s origin story on “The Ezra Klein Show.”`\
-https://nytimes.com/video/opinion/100000010576876/givewells-lightbulb-moment.html
-
-**Jayden Daniels 'frustrated' and 'disappointed' by injury-riddled season**\
-`Adding to Daniels’ frustration is the belief that at least two of his injuries during a shortened 2025 campaign were fluke incidents. `\
-https://nytimes.com/athletic/6894754/2025/12/16/jayden-daniels-injuries-frustrated/
-
-**Chris Marinak, top MLB exec regarded as candidate for commissioner, departs**\
-`Marinak joined MLB in 2008 and was responsible for several of the league's significant on-field changes, including instant replay.`\
-https://nytimes.com/athletic/6894796/2025/12/16/chris-marinak-mlb-executive-exit/
 
