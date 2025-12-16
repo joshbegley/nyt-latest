@@ -1,3 +1,15 @@
+**Steelers Eliminate Dolphins From Playoff Race With 28-15 Win**\
+`The Pittsburgh Steelers quarterback Aaron Rodgers threw for 224 yards and two touchdowns on Monday in a 28-15 victory over the Miami Dolphins.`\
+https://nytimes.com/video/sports/football/100000010589961/steelers-eliminate-dolphins-from-playoff-race-with-28-15-win.html
+
+**A Luxurious Voyage Onboard and Onshore**\
+`Aboard one of the world’s largest sailing yachts, travelers can embark on a sensorial voyage across the waves — that continues on land.`\
+https://nytimes.com/paidpost/orient-express/a-luxurious-voyage-onboard-and-onshore.html
+
+**Sydney Gunmen Inspired by ISIS, Australia Prime Minister Says**\
+`Australia’s prime minister said the gunmen behind a shooting at a Jewish festival were motivated by the Islamic State. Investigators also said one of the gunmen was a licensed holder of several firearms.`\
+https://nytimes.com/video/world/australia/100000010589741/australian-prime-minister-bondi-shooting-isis.html
+
 **Portuguese Grand Prix returning to F1 calendar in 2027**\
 `The Portuguese Grand Prix has not been staged since 2021.`\
 https://nytimes.com/athletic/6875348/2025/12/16/f1-portuguese-grand-prix/
