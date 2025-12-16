@@ -1,3 +1,7 @@
+**Jason Kelce on his brother Travis' NFL future: 'I'm curious too'**\
+`Monday night, Jason Kelce commented on whether Travis would weigh retirement at the end of the season.`\
+https://nytimes.com/athletic/6892816/2025/12/15/jason-kelce-chiefs-travis-kelce-nfl-retirement/
+
 **Red Sox, Nationals swap pitching prospects with contrasting styles in win-win deal**\
 `Luis Perales has more upside, while Jake Bennett has a higher floor. Both pitchers have paths to succeed in their new organizations.`\
 https://nytimes.com/athletic/6892679/2025/12/15/red-sox-nationals-luis-perales-jake-bennett-trade-analysis/
