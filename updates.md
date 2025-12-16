@@ -1,3 +1,7 @@
+**Partial team sale will significantly clear Twins' finances, may set table for future sale**\
+`The cash infusion will significantly reduce the Twins' debt.`\
+https://nytimes.com/athletic/6892645/2025/12/16/twins-partial-sale-finances-debt-update/
+
 **Australia Doubles Down on Gun Control After Mass Shooting**\
 `The country has long looked warily at the cycle of gun violence in the United States, where meaningful changes in policy have been rare.`\
 https://nytimes.com/2025/12/16/world/australia/australia-gun-control-bondi-shooting.html
