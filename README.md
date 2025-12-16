@@ -30,7 +30,7 @@ https://nytimes.com/2025/12/16/style/street-style-look-red-coat.html
 `Michelle Obama said on “Jimmy Kimmel Live!” that she and former President Barack Obama were longtime friends of the couple and called them “decent, courageous” people.`\
 https://nytimes.com/2025/12/16/us/michelle-obama-rob-reiner-michele.html
 
-**'Significant' partial team sale clears Twins' finances, may set table for future sale**\
+**Partial team sale will significantly clear Twins' finances, may set table for future sale**\
 `The cash infusion will significantly reduce the Twins' debt.`\
 https://nytimes.com/athletic/6892645/2025/12/16/twins-partial-sale-finances-debt-update/
 
