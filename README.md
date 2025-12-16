@@ -1,3 +1,7 @@
+**TAFC – The mystery of FC Haka's stadium fire. Plus: Inside Real Madrid's finances**\
+`FC Haka's home was destroyed – but their rivals are helping the nine-time Finnish champions rebuild`\
+https://nytimes.com/athletic/6893356/2025/12/16/haka-stadium-fire-real-madrid-finances-tafc/
+
 **The Pulse: Do you care about the NBA Cup?**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6891511/2025/12/16/nba-cup-poll-the-pulse/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6892606/2025/12/16/cowboys-disappointment-playoffs-
 **Rangers fans got it right with warm receptions for Chris Kreider and Jacob Trouba**\
 `"It's hard to put into words what the experience was like for 13 years, what that experience was like tonight," Kreider said.`\
 https://nytimes.com/athletic/6892908/2025/12/16/rangers-kreider-trouba-return-fan-reception/
-
-**Three games to determine Lions' playoff fate: Scenarios that get them in**\
-`The Lions can put them in the best position by finishing 3-0, but even that doesn't guarantee them a postseason invitation.`\
-https://nytimes.com/athletic/6891878/2025/12/16/detroit-lions-playoff-scenarios-chances/
 
