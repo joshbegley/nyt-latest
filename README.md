@@ -1,3 +1,7 @@
+**Eager for Center Stage, Patel Casts Aside Caution in Statements as F.B.I. Leader**\
+`Kash Patel’s impulse to publicize the work of the bureau under his leadership has revived questions about his competence and his future in the administration.`\
+https://nytimes.com/2025/12/15/us/politics/kash-patel-fbi.html
+
 **Robert Samuelson, Award-Winning Economics Columnist, Dies at 79**\
 `He was a familiar byline in Newsweek and The Washington Post for decades, explaining the intricacies of economic policy in reader-friendly vernacular.`\
 https://nytimes.com/2025/12/15/business/media/robert-samuelson-dead.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6892302/2025/12/15/tennis-extreme-heat-rules-atp-to
 **Rob Reiner’s Son Arrested After Fatal Stabbing**\
 `Also, police search for Brown University shooter. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2025/12/15/briefing/rob-reiners-son-arrested.html
-
-**E.U. Flies 110 Tons of Aid to Darfur. But Will It Reach Those In Need?**\
-`The European Union has mounted an “air bridge” effort, with at least eight aid flights planned to Sudan. But getting supplies to the areas with the most dire need is an enormous challenge.`\
-https://nytimes.com/2025/12/15/world/africa/darfur-sudan-eu-aid.html
 
