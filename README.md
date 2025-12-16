@@ -1,3 +1,7 @@
+**Sydney Gunmen Inspired by ISIS, Australia Prime Minister Says**\
+`Australia’s prime minister said the gunmen behind a shooting at a Jewish festival were motivated by the Islamic State. Investigators also said one of the gunmen was a licensed holder of several firearms.`\
+https://nytimes.com/video/world/australia/100000010589741/australian-prime-minister-bondi-shooting-isis.html
+
 **Portuguese Grand Prix returning to F1 calendar in 2027**\
 `The Portuguese Grand Prix has not been staged since 2021.`\
 https://nytimes.com/athletic/6875348/2025/12/16/f1-portuguese-grand-prix/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/16/arts/television/late-night-tribute-rob-reiner.htm
 **The BookKeeper: Real Madrid, the world's richest football club, analysed like never before**\
 `Real Madrid's remarkable financial power is dissected in remarkable depth and detail in the latest edition of The BookKeeper`\
 https://nytimes.com/athletic/6823685/2025/12/16/real-madrid-florentino-perez-finances-analysis/
-
-**'No business being out there': Ime Udoka rips officiating in Rockets' loss to Nuggets**\
-`A disputed call against Houston's Amen Thompson led to the game-tying free throw for Denver late in the fourth quarter. `\
-https://nytimes.com/athletic/6893208/2025/12/16/rockets-ime-udoka-rips-refs-loss-nuggets/
 
