@@ -10,8 +10,8 @@ https://nytimes.com/video/podcasts/100000010590282/are-ai-data-centers-really-ru
 `A yearly checkup on the region documents a warmer, rainier Arctic and 200 Alaskan rivers “rusting” as melting tundra leaches minerals from the soil into waterways.`\
 https://nytimes.com/2025/12/16/climate/arctic-report-card-agu.html
 
-**Sean McVay not ruling Davante Adams out vs. Seahawks despite missing practice**\
-`Adams leads the league with 14 receiving touchdowns in his 12th NFL season. `\
+**Sean McVay not ruling Davante Adams out vs. Seahawks despite hamstring strain**\
+`Adams, who leads the league with 14 receiving touchdowns, missed practice on Tuesday after aggravating his hamstring vs. the Lions. `\
 https://nytimes.com/athletic/6892575/2025/12/16/rams-davante-adams-hamstring-injury/
 
 **Takeaways From Susie Wiles’s Candid Interviews Describing Trump World**\
