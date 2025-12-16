@@ -1,3 +1,7 @@
+**Warriors fan express frustrations to owner Joe Lacob in email, gets response**\
+`"You can't be as frustrated as me," Lacob wrote to the fan.`\
+https://nytimes.com/athletic/6894652/2025/12/16/warriors-joe-lacob-owner-fan-email/
+
 **The Hardest and Easiest Spelling Bee Words of 2025**\
 `A quick look at the attainability of getting the top 10 toughest words. No reason to dillydally.`\
 https://nytimes.com/2025/12/16/upshot/spelling-bee-words-2025.html
@@ -25,8 +29,4 @@ https://nytimes.com/2025/12/16/world/isis-bondi-beach-attack-ukraine-trump.html
 **With outfield 'pretty well set,' Phillies signal offseason's heaviest lifting is done**\
 `The Phillies aren't done reshaping the roster, but their outfield configuration has come into focus. Here's where their offseason stands. `\
 https://nytimes.com/athletic/6894476/2025/12/16/phillies-outfield-offseason-trades-signings/
-
-**Gunmen in Sydney Massacre Were Motivated by Islamic State, Officials Say**\
-`Investigators said they were also looking into a trip to the Philippines that the father-and-son attackers took last month.`\
-https://nytimes.com/2025/12/16/world/australia/bondi-beach-shooting-terror-attack-isis.html
 
