@@ -1,3 +1,7 @@
+**How to watch DePaul vs. St. John's men's basketball: Time, TV, streaming**\
+`Find out how to watch the DePaul Blue Demons play the St. John's Red Storm, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6893913/2025/12/16/depaul-vs-st-john-s-stream-how-to-watch-dec-16/
+
 **Jerry Jones says the Cowboys' defensive talent is not the issue**\
 `Jones said opposing quarters are too often having big games against the Dallas defense.`\
 https://nytimes.com/athletic/6893699/2025/12/16/cowboys-matt-eberflus-job-status-jerry-jones/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/16/dining/beef-biryani-green-chile-bean-bake-and-she
 **Elite top pair potential? Why Zeev Buium could be Canucks' next star**\
 `There are many exciting tools in Buium's game, and he has the potential to be a special player for the Canucks.`\
 https://nytimes.com/athletic/6893314/2025/12/16/vancouver-canucks-zeev-buium-stats-video-quinn-hughes/
-
-**Plena, One of Puerto Rico’s Earliest Genres, Is Still Thriving**\
-`The rhythms and movements of Plena live on`\
-https://nytimes.com/paidpost/discover-puerto-rico/plena-one-of-puerto-ricos-earliest-genres-is-still-thriving.html
 

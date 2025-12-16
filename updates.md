@@ -1,3 +1,23 @@
+**Jerry Jones says the Cowboys' defensive talent is not the issue**\
+`Jones said opposing quarters are too often having big games against the Dallas defense.`\
+https://nytimes.com/athletic/6893699/2025/12/16/cowboys-matt-eberflus-job-status-jerry-jones/
+
+**How to watch Lipscomb vs. Duke men's basketball: Time, TV, streaming**\
+`Find out how to watch the Lipscomb Bisons play the Duke Blue Devils, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6893899/2025/12/16/lipscomb-vs-duke-stream-how-to-watch-dec-16/
+
+**How to watch Louisville vs. Tennessee men's basketball: Time, TV, streaming**\
+`Find out how to watch the Louisville Cardinals play the Tennessee Volunteers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6893896/2025/12/16/louisville-vs-tennessee-stream-how-to-watch-dec-16/
+
+**How to watch Toledo vs. Michigan State men's basketball: Time, TV, streaming**\
+`Find out how to watch the Toledo Rockets play the Michigan State Spartans, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6893893/2025/12/16/toledo-vs-michigan-state-stream-how-to-watch-dec-16/
+
+**Netflix Adds More Podcasts in Deal With iHeartMedia**\
+`The streaming service now has about 30 video podcasts lined up for 2026, including the influential radio show “The Breakfast Club.”`\
+https://nytimes.com/2025/12/16/business/media/netflix-iheartmedia-video-podcasts.html
+
 **Netflix Adds More Podcasts in Deal with iHeartMedia**\
 `The streaming service now has about 30 video podcasts lined up for 2026, including the influential radio show “The Breakfast Club.”`\
 https://nytimes.com/2025/12/16/business/media/netflix-iheartmedia-video-podcasts.html
