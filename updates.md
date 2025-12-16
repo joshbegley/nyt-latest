@@ -1,3 +1,7 @@
+**Robert Samuelson, Award-Winning Economics Columnist, Dies at 79**\
+`He was a familiar byline in Newsweek and The Washington Post for decades, explaining the intricacies of economic policy in reader-friendly vernacular.`\
+https://nytimes.com/2025/12/15/business/media/robert-samuelson-dead.html
+
 **How to watch Eagles vs. Commanders: Time, TV, streaming**\
 `Find out how to watch the Philadelphia Eagles play the Washington Commanders, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6892497/2025/12/15/eagles-vs-commanders-stream-how-to-watch-dec-20/

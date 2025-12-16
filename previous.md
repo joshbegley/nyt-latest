@@ -1,3 +1,7 @@
+**Robert Samuelson, Award-Winning Economics Columnist, Dies at 79**\
+`He was a familiar byline in Newsweek and The Washington Post for decades, explaining the intricacies of economic policy in reader-friendly vernacular.`\
+https://nytimes.com/2025/12/15/business/media/robert-samuelson-dead.html
+
 **How to watch Eagles vs. Commanders: Time, TV, streaming**\
 `Find out how to watch the Philadelphia Eagles play the Washington Commanders, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6892497/2025/12/15/eagles-vs-commanders-stream-how-to-watch-dec-20/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/15/briefing/rob-reiners-son-arrested.html
 **E.U. Flies 110 Tons of Aid to Darfur. But Will It Reach Those In Need?**\
 `The European Union has mounted an “air bridge” effort, with at least eight aid flights planned to Sudan. But getting supplies to the areas with the most dire need is an enormous challenge.`\
 https://nytimes.com/2025/12/15/world/africa/darfur-sudan-eu-aid.html
-
-**Vikings edge rusher Jonathan Greenard out for season with shoulder injury**\
-`The 2024 Pro Bowler reaggravated a shoulder injury in Sunday's victory over the Cowboys. He had three sacks this season for the Vikings.`\
-https://nytimes.com/athletic/6892112/2025/12/15/jonathan-greenard-vikings-shoulder-injury/
 
