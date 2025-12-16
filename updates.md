@@ -1,3 +1,7 @@
+**As Israeli Settlements Get Bigger, Palestinian Hikes Grow Shorter**\
+`With Israelis rapidly building in the West Bank, Palestinian hikers are increasingly unable to walk across the land.`\
+https://nytimes.com/2025/12/16/world/middleeast/west-bank-hiking-settlements.html
+
 **How to watch Morgan State vs. LSU women's basketball: Time, TV, streaming**\
 `Find out how to watch the Morgan State Lady Bears play the LSU Tigers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6893299/2025/12/16/morgan-state-vs-lsu-stream-how-to-watch-dec-16/

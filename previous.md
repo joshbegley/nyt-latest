@@ -1,3 +1,7 @@
+**As Israeli Settlements Get Bigger, Palestinian Hikes Grow Shorter**\
+`With Israelis rapidly building in the West Bank, Palestinian hikers are increasingly unable to walk across the land.`\
+https://nytimes.com/2025/12/16/world/middleeast/west-bank-hiking-settlements.html
+
 **How to watch Morgan State vs. LSU women's basketball: Time, TV, streaming**\
 `Find out how to watch the Morgan State Lady Bears play the LSU Tigers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6893299/2025/12/16/morgan-state-vs-lsu-stream-how-to-watch-dec-16/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/16/learning/are-you-too-judgmental.html
 **Olivia Nuzzi, Karine Jean-Pierre and Eric Trump Have All Written the Same Book**\
 `A recent spate of books highlights the presence of a new category, one well suited to our time: the grievance memoir.`\
 https://nytimes.com/2025/12/16/opinion/olivia-nuzzi-karine-jean-pierre-eric-trump.html
-
-**Jobs Data Is Finally Back. But the Economic Picture Is Still Blurry.**\
-`November’s job report may be distorted as a result of the government shutdown, limiting how much it will influence the Federal Reserve’s next interest rate decision in January.`\
-https://nytimes.com/2025/12/16/business/jobs-data-economy.html
 
