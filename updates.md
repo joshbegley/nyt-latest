@@ -1,3 +1,11 @@
+**Europe May Roll Back Combustion Engine Ban**\
+`A proposal to revise an E.U. law requiring carmakers to stop producing combustion engines by 2035 would offer some relief to automakers, but it sets back the region’s climate goals.`\
+https://nytimes.com/2025/12/16/business/economy/europe-auto-emissions-ban.html
+
+**Perfection Takes Time**\
+`Delve into the philosophy that shapes every Patek Philippe.`\
+https://nytimes.com/paidpost/patek-philippe/perfection-takes-time.html
+
 **NFL MVP odds: Can Josh Allen rise to the top?**\
 `Josh Allen's odds shortened considerably after beating Drake Maye in Week 15. But can either challenge Stafford?`\
 https://nytimes.com/athletic/6893631/2025/12/16/nfl-mvp-odds-josh-allen-matthew-stafford-drake-maye/
