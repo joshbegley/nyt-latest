@@ -1,3 +1,15 @@
+**At a Dark Moment, Jews in New York Celebrate the Festival of Lights**\
+`After the mass shooting at a Hanukkah celebration in Sydney, Australia, Jewish New Yorkers said they felt the need to stand up for their community.`\
+https://nytimes.com/2025/12/15/nyregion/hanukkah-menorah-nyc-jews-australia.html
+
+**Michigan interim coach Biff Poggi says players feel 'betrayed' after Sherrone Moore firing**\
+`Michigan's interim coach spoke about the emotions his players have been dealing with in the wake of the firing and arrest of Sherrone Moore.`\
+https://nytimes.com/athletic/6892588/2025/12/15/biff-poggi-michigan-sherrone-moore/
+
+**Live Updates: Sydney Gunmen Were Motivated by ISIS, Australia Prime Minister Says**\
+`Prime Minister Anthony Albanese said two gunmen who killed 15 people at a Jewish holiday celebration were motivated by the Islamic State.`\
+https://nytimes.com/live/2025/12/15/world/bondi-beach-shooting-gunmen-isis
+
 **Michigan interim head coach Biff Poggi says players feel 'betrayed'**\
 `Poggi spoke about the emotions his players have been dealing with in the wake of the firing and arrest of Sherrone Moore.`\
 https://nytimes.com/athletic/6892588/2025/12/15/biff-poggi-michigan-sherrone-moore/

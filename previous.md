@@ -1,9 +1,13 @@
-**Michigan interim head coach Biff Poggi says players feel 'betrayed'**\
-`Poggi spoke about the emotions his players have been dealing with in the wake of the firing and arrest of Sherrone Moore.`\
+**At a Dark Moment, Jews in New York Celebrate the Festival of Lights**\
+`After the mass shooting at a Hanukkah celebration in Sydney, Australia, Jewish New Yorkers said they felt the need to stand up for their community.`\
+https://nytimes.com/2025/12/15/nyregion/hanukkah-menorah-nyc-jews-australia.html
+
+**Michigan interim coach Biff Poggi says players feel 'betrayed' after Sherrone Moore firing**\
+`Michigan's interim coach spoke about the emotions his players have been dealing with in the wake of the firing and arrest of Sherrone Moore.`\
 https://nytimes.com/athletic/6892588/2025/12/15/biff-poggi-michigan-sherrone-moore/
 
-**Live Updates: Australian Leader Says Sydney Gunmen Were Motivated by ISIS**\
-`The two men who killed at least 15 people on Sunday were driven by “Islamic State ideology,” Prime Minister Anthony Albanese told Australia’s public broadcaster.`\
+**Live Updates: Sydney Gunmen Were Motivated by ISIS, Australia Prime Minister Says**\
+`Prime Minister Anthony Albanese said two gunmen who killed 15 people at a Jewish holiday celebration were motivated by the Islamic State.`\
 https://nytimes.com/live/2025/12/15/world/bondi-beach-shooting-gunmen-isis
 
 **Kushner’s Firm Pulls Out of Trump-Branded Hotel Deal in Serbia**\
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/15/us/rob-nick-reiner-conan-o-brien-party.html
 **Nick Reiner’s Struggles With Drugs Left His Parents ‘Desperate’**\
 `Mr. Reiner, who was arrested in connection with the deaths of Rob and Michele Reiner, once estimated he had been in drug treatment 18 times as a teenager.`\
 https://nytimes.com/2025/12/15/movies/nick-reiner-drugs-rehab-heroin-cocaine.html
-
-**Wisconsin Judge Allows Election Case to Proceed Against Trump Advisers**\
-`A judge ruled that at least two of three defendants would have to stand trial in a case stemming from a plan to deploy fake electors after Donald Trump lost the 2020 presidential election.`\
-https://nytimes.com/2025/12/15/us/politics/wisconsin-trump-electors-court.html
 
