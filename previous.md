@@ -1,3 +1,7 @@
+**North Texas QB Drew Mestemaker, nation's leader in passing, plans to enter transfer portal**\
+`Mestemaker, a former walk-on, will be heavily pursued by quarterback-needy Power 4 programs. `\
+https://nytimes.com/athletic/6894677/2025/12/16/drew-mestemaker-north-texas-qb-transfer-portal/
+
 **Research Flights Over the Atlantic Could Help Improve Atmospheric River Forecasting**\
 `A global effort to better understand moisture-laden rivers in the sky, like those currently battering the West Coast, will take flight in January.`\
 https://nytimes.com/2025/12/16/climate/atmospheric-rivers-forecasts.html
@@ -29,8 +33,4 @@ https://nytimes.com/card/2025/12/16/arts/editors-recommendations-juangabriel
 **How to Do a Little More Good in the World**\
 `As part of Times Opinion’s Giving Guide, the columnist Ezra Klein spoke with Elie Hassenfeld, GiveWell’s co-founder and chief executive.`\
 https://nytimes.com/video/opinion/100000010576873/how-to-do-a-little-more-good-in-the-world.html
-
-**Officials Release Enhanced Video of Possible Shooting Suspect at Brown**\
-`The Providence Police Department released enhanced security camera footage of a suspect in the Brown University shooting walking through the neighborhood hours before the tragedy took place.`\
-https://nytimes.com/video/us/100000010591823/brown-university-shooting-suspect-enhanced-video.html
 
