@@ -1,3 +1,7 @@
+**Word of the Day: unimpeachable**\
+`This word has appeared in 53 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/12/16/learning/word-of-the-day-unimpeachable.html
+
 **Nick Reiner Talked Openly About His Addiction Struggles**\
 `Nick Reiner was arrested and booked on suspicion of murdering his mother and father, the movie director, Rob Reiner. The younger Reiner had been open about his struggles with drug abuse and homelessness.`\
 https://nytimes.com/video/us/100000010589743/nick-reiner-drugs-rehab-addiction.html
