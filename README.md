@@ -1,36 +1,36 @@
-**Heroic Bondi Bystander’s Immigrant Background Is a Balm for Some Australians**\
-`Ahmed el Ahmed, a Muslim who arrived from Syria nearly 20 years ago, disarmed one of the suspected gunmen, who officials said were inspired by ISIS.`\
-https://nytimes.com/2025/12/16/world/australia/bondi-beach-shooting-hero-bystander-ahmed-immigrant.html
+**Trump’s Top Aide Acknowledges ‘Score Settling’ Behind Prosecutions**\
+`In interviews with Vanity Fair, Susie Wiles, the White House chief of staff, called JD Vance a “conspiracy theorist” and said Pam Bondi “completely whiffed” the early handling of the Epstein files.`\
+https://nytimes.com/2025/12/16/us/politics/trump-susie-wiles.html
 
-**Brigitte Macron Apologizes for Slur Against Feminist Activists. Sort Of.**\
-`In a short video, the French first lady said that she was “sorry if I have hurt women victims,” but she also noted that she should be allowed to behave freely in private.`\
-https://nytimes.com/2025/12/16/world/europe/france-first-lady-brigitte-macron-apology.html
+**College football bowl guide: Non-CFP games to watch this week, starring Memphis-NC State**\
+`There are six bowl games beyond CFP purview that are going down between Tuesday and Friday. Here's how to watch each of them.`\
+https://nytimes.com/athletic/6892481/2025/12/16/college-football-bowl-game-tv-schedule-memphis-nc-state/
 
-**How Bo Nix, Trevor Lawrence and J.J. McCarthy are developing: Week 15 film review**\
-`The three quarterbacks all had wins in Week 15 as they saw growth in their performance.`\
-https://nytimes.com/athletic/6892434/2025/12/16/bo-nix-trevor-lawrence-jj-mccarthy-film-review/
+**Luke Weaver's free agency: Where does reliever stand and will he reunite with Yankees?**\
+`A league source said the Yankees have expressed "genuine" interest in re-signing Weaver, who is one of the top available relievers.`\
+https://nytimes.com/athletic/6892134/2025/12/16/luke-weaver-free-agency-yankees/
 
-**How a national title would feel for every CFP team, from unbearable to euphoric**\
-`How the world changes and what the ramifications are if each of the 12 teams in the College Football Playoff wins the national title.`\
-https://nytimes.com/athletic/6891846/2025/12/16/college-football-playoff-12-teams-national-title/
+**Live Updates: Jobs Report Expected to Provide Overdue Clarity on Economy**\
+`Hiring and unemployment data for November will offer an update on a cooling job market buffeted by President Trump’s policies.`\
+https://nytimes.com/live/2025/12/16/business/jobs-report-economy
 
-**Making sense of where the Red Sox stand as the offseason progresses**\
-`Plus, updates on where Triston Casas stands, Marcelo Mayer's WBC status and Kristian Campbell's offseason work. `\
-https://nytimes.com/athletic/6892348/2025/12/16/boston-red-sox-offseason-update/
+**49ers minutia minute: Brock Purdy's wheels and Trent Williams' knockdowns**\
+`Meanwhile, the 49ers are set to get some much-needed reinforcements on run defense, and Ricky Pearsall's status for Week 16 is unclear.`\
+https://nytimes.com/athletic/6892373/2025/12/16/49ers-titans-brock-purdy-trent-williams/
 
-**TAFC – The mystery of FC Haka's stadium fire. Plus: Inside Real Madrid's finances**\
-`FC Haka's home was destroyed – but their rivals are helping the nine-time Finnish champions rebuild`\
-https://nytimes.com/athletic/6893356/2025/12/16/haka-stadium-fire-real-madrid-finances-tafc/
+**The Seahawks' offense is 'in a funk' at the wrong time. Can it be fixed quickly?**\
+`"It's a little bit late in the year right now to be saying that," Mike Macdonald said, "so I think we've got to pick it up on all fronts."`\
+https://nytimes.com/athletic/6892678/2025/12/16/seahawks-offense-sam-darnold-running-game-rams/
 
-**The Pulse: Do you care about the NBA Cup?**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6891511/2025/12/16/nba-cup-poll-the-pulse/
+**Red Wings prospect Max Plante leading NCAA in points, with World Juniors test next**\
+`Leading the charge for No. 5 Minnesota Duluth, Plante's dedication and determination are promising signs for Detroit.`\
+https://nytimes.com/athletic/6892091/2025/12/16/red-wings-max-plante-prospect-world-juniors/
 
-**Canadiens weekly notebook: How to manufacture a top-four pair and a top line**\
-`This week's edition of the notebook looks at Alexandre Carrier, Zack Bolduc, Owen Beck and Jon Cooper's appreciation for Nick Suzuki.`\
-https://nytimes.com/athletic/6893240/2025/12/16/canadiens-weekly-notebook-top-pair-top-line/
+**Which teams eliminated from playoff contention have brightest 2026 NFL Draft outlooks?**\
+`The Jets, Browns and Raiders have hope for the offseason. The Giants might even field a playoff contender in 2026, if all goes right.`\
+https://nytimes.com/athletic/6892216/2025/12/16/nfl-draft-2026-top-10-jets-giants-playoffs/
 
-**What can the Bears take from their rout of the Browns into rematch with the Packers?**\
-`First place in the NFC North is on the line Saturday night. What do the Bears need to do to knock off the Packers this time?`\
-https://nytimes.com/athletic/6892124/2025/12/16/bears-packers-nfc-north-rematch/
+**An SEC football season through the eyes of Aussie road-tripping parents**\
+`The Haberers found Texas fans to be “a bit off-putting” and Tennessee fans to be amped up and “pretty smart-mouthed."`\
+https://nytimes.com/athletic/6891717/2025/12/16/sec-football-road-trip-vanderbilt/
 
