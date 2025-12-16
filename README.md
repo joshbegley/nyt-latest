@@ -1,3 +1,7 @@
+**Perfection Takes Time**\
+`Delve into the philosophy that shapes every Patek Philippe.`\
+https://nytimes.com/paidpost/patek-philippe/perfection-takes-time.html
+
 **NFL MVP odds: Can Josh Allen rise to the top?**\
 `Josh Allen's odds shortened considerably after beating Drake Maye in Week 15. But can either challenge Stafford?`\
 https://nytimes.com/athletic/6893631/2025/12/16/nfl-mvp-odds-josh-allen-matthew-stafford-drake-maye/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6893931/2025/12/16/blackhawks-vs-maple-leafs-stream
 **How to watch Ducks vs. Blue Jackets: Time, TV, streaming**\
 `Find out how to watch the Anaheim Ducks play the Columbus Blue Jackets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6893929/2025/12/16/ducks-vs-blue-jackets-stream-how-to-watch-dec-16/
-
-**How to watch Flyers vs. Canadiens: Time, TV, streaming**\
-`Find out how to watch the Philadelphia Flyers play the Montreal Canadiens, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6893927/2025/12/16/flyers-vs-canadiens-stream-how-to-watch-dec-16/
 

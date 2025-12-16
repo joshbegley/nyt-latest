@@ -1,3 +1,7 @@
+**NFL MVP odds: Can Josh Allen rise to the top?**\
+`Josh Allen's odds shortened considerably after beating Drake Maye in Week 15. But can either challenge Stafford?`\
+https://nytimes.com/athletic/6893631/2025/12/16/nfl-mvp-odds-josh-allen-matthew-stafford-drake-maye/
+
 **Stephen King: What Rob Reiner Saw in Me**\
 `In Rob’s hands, “Stand by Me,” my most autobiographical novel, rang true.`\
 https://nytimes.com/2025/12/16/opinion/culture/stephen-king-rob-reiner-stand-by-me.html
