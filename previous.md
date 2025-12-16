@@ -1,3 +1,7 @@
+**Portuguese Grand Prix returning to F1 calendar in 2027**\
+`The Portuguese Grand Prix has not been staged since 2021.`\
+https://nytimes.com/athletic/6875348/2025/12/16/f1-portuguese-grand-prix/
+
 **CFG executive Carlos Raphael Moersen in advanced talks to join Spurs**\
 `Moersen, known as 'Rafi', has spent the last 10 years working for CFG clubs, including negotiating deals for Manchester City.`\
 https://nytimes.com/athletic/6891142/2025/12/16/carlos-raphael-moersen-tottenham-manchester-city/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6823685/2025/12/16/real-madrid-florentino-perez-fin
 **'No business being out there': Ime Udoka rips officiating in Rockets' loss to Nuggets**\
 `A disputed call against Houston's Amen Thompson led to the game-tying free throw for Denver late in the fourth quarter. `\
 https://nytimes.com/athletic/6893208/2025/12/16/rockets-ime-udoka-rips-refs-loss-nuggets/
-
-**Pat Cummins revels in Australia return as hosts aim to wrap up Ashes in style**\
-`The fast bowler will return as captain at Adelaide as he plays his first game for five months having recovered from a back injury`\
-https://nytimes.com/athletic/6892568/2025/12/16/cummins-australia-ashes-adelaide-stokes-england/
 

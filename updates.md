@@ -1,3 +1,7 @@
+**Portuguese Grand Prix returning to F1 calendar in 2027**\
+`The Portuguese Grand Prix has not been staged since 2021.`\
+https://nytimes.com/athletic/6875348/2025/12/16/f1-portuguese-grand-prix/
+
 **CFG executive Carlos Raphael Moersen in advanced talks to join Spurs**\
 `Moersen, known as 'Rafi', has spent the last 10 years working for CFG clubs, including negotiating deals for Manchester City.`\
 https://nytimes.com/athletic/6891142/2025/12/16/carlos-raphael-moersen-tottenham-manchester-city/
