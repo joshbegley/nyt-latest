@@ -1,3 +1,8 @@
+**Man City 2024-25 accounts: small loss after big spending is unlikely to cause alarm**\
+`City posted their third-highest revenue total of £694.1million but lost £9.9m for the year ending June 30, 2025.
+`\
+https://nytimes.com/athletic/6894517/2025/12/16/manchester-city-financial-results-2024-25/
+
 **Maresca says he has not spoken to Chelsea hierarchy, thanks fans for support**\
 `The Italian was speaking after Chelsea booked their place in the Carabao Cup semi-final with a 3-1 win over Cardiff City in Wales.`\
 https://nytimes.com/athletic/6894978/2025/12/16/enzo-maresca-chelsea-outburst-fans-support/
