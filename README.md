@@ -1,3 +1,7 @@
+**Michigan interim head coach Biff Poggi says players feel 'betrayed'**\
+`Poggi spoke about the emotions his players have been dealing with in the wake of the firing and arrest of Sherrone Moore.`\
+https://nytimes.com/athletic/6892588/2025/12/15/biff-poggi-michigan-sherrone-moore/
+
 **Live Updates: Australian Leader Says Sydney Gunmen Were Motivated by ISIS**\
 `The two men who killed at least 15 people on Sunday were driven by “Islamic State ideology,” Prime Minister Anthony Albanese told Australia’s public broadcaster.`\
 https://nytimes.com/live/2025/12/15/world/bondi-beach-shooting-gunmen-isis
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/15/movies/nick-reiner-drugs-rehab-heroin-cocaine.htm
 **Wisconsin Judge Allows Election Case to Proceed Against Trump Advisers**\
 `A judge ruled that at least two of three defendants would have to stand trial in a case stemming from a plan to deploy fake electors after Donald Trump lost the 2020 presidential election.`\
 https://nytimes.com/2025/12/15/us/politics/wisconsin-trump-electors-court.html
-
-**In 1-for-1 deal with Nationals, Red Sox land sought-after pitching prototype**\
-`Having already added Sonny Gray and Johan Oviedo, the Red Sox continue to pursue trades that raise the floor of their pitching group. `\
-https://nytimes.com/athletic/6892560/2025/12/15/boston-red-sox-trade-jake-bennett/
 
