@@ -1,3 +1,19 @@
+**Netflix Adds More Podcasts in Deal with iHeartMedia**\
+`The streaming service now has about 30 video podcasts lined up for 2026, including the influential radio show “The Breakfast Club.”`\
+https://nytimes.com/2025/12/16/business/media/netflix-iheartmedia-video-podcasts.html
+
+**It Wasn’t Easy Being a Founding Father of the American Symphony**\
+`George Frederick Bristow, born 200 years ago this month, struggled to find American champions of his music as orchestras favored European tradition.`\
+https://nytimes.com/2025/12/16/arts/music/george-frederick-bristow.html
+
+**Beef Biryani, Green Chile Bean Bake and Sheet-Pan Lemon Turmeric Chicken**\
+`Five weeknight recipes that are as simple as they are supremely nourishing and delicious.`\
+https://nytimes.com/2025/12/16/dining/beef-biryani-green-chile-bean-bake-and-sheet-pan-lemon-turmeric-chicken.html
+
+**Elite top pair potential? Why Zeev Buium could be Canucks' next star**\
+`There are many exciting tools in Buium's game, and he has the potential to be a special player for the Canucks.`\
+https://nytimes.com/athletic/6893314/2025/12/16/vancouver-canucks-zeev-buium-stats-video-quinn-hughes/
+
 **Plena, One of Puerto Rico’s Earliest Genres, Is Still Thriving**\
 `The rhythms and movements of Plena live on`\
 https://nytimes.com/paidpost/discover-puerto-rico/plena-one-of-puerto-ricos-earliest-genres-is-still-thriving.html
@@ -17,20 +33,4 @@ https://nytimes.com/athletic/6892327/2025/12/16/quinn-hughes-trade-betting-marke
 **Watching ‘Liberation’ With a Women’s Movement Pioneer, My Mom**\
 `In researching her new Broadway play, Bess Wohl interviewed my mother. After a performance, we all discussed the play and its themes.`\
 https://nytimes.com/2025/12/16/theater/liberation-broadway-letty-cottin-pogrebin.html
-
-**10-Year-Old Killed in Russia School Stabbing**\
-`The attack appeared to have been inspired by white supremacist ideology, Telegram channels close to intelligence agencies reported.`\
-https://nytimes.com/2025/12/16/world/europe/russia-school-stabbing-attack-moscow.html
-
-**Until Saturday: Bowl season watchability calendar**\
-`Until Saturday is The Athletic's free college football newsletter.`\
-https://nytimes.com/athletic/6893797/2025/12/16/best-bowl-games-schedule-until-saturday/
-
-**Giannis, Jonathan Kuminga and following the money: Welcome to trade season**\
-`Most teams got a breather while the NBA Cup wraps, and phone calls between front offices will take on a new urgency in the coming days.`\
-https://nytimes.com/athletic/6892624/2025/12/16/nba-trade-deadline-team-giannis-chris-paul/
-
-**FIFA’s 'extreme' ticket prices unfairly impact disabled fans, says supporters' group**\
-`Football Supporters Europe described ticket prices for the tournament as “extreme” and “prohibitively expensive".`\
-https://nytimes.com/athletic/6893637/2025/12/16/world-cup-ticket-prices-disabled-fans/
 
