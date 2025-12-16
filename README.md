@@ -1,3 +1,7 @@
+**Heroic Bondi Bystander’s Immigrant Background Is a Balm for Some Australians**\
+`Ahmed el Ahmed, a Muslim who arrived from Syria nearly 20 years ago, disarmed one of the suspected gunmen, who officials said were inspired by ISIS.`\
+https://nytimes.com/2025/12/16/world/australia/bondi-beach-shooting-hero-bystander-ahmed-immigrant.html
+
 **Brigitte Macron Apologizes for Slur Against Feminist Activists. Sort Of.**\
 `In a short video, the French first lady said that she was “sorry if I have hurt women victims,” but she also noted that she should be allowed to behave freely in private.`\
 https://nytimes.com/2025/12/16/world/europe/france-first-lady-brigitte-macron-apology.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6893240/2025/12/16/canadiens-weekly-notebook-top-pa
 **What can the Bears take from their rout of the Browns into rematch with the Packers?**\
 `First place in the NFC North is on the line Saturday night. What do the Bears need to do to knock off the Packers this time?`\
 https://nytimes.com/athletic/6892124/2025/12/16/bears-packers-nfc-north-rematch/
-
-**I tore my ACL in the NFL. This is what it takes mentally to come back**\
-`Although former NFL QB Brian Hoyer wouldn't wish an ACL injury on anyone, grinding through the rehab process made him mentally tougher.`\
-https://nytimes.com/athletic/6892543/2025/12/16/acl-tears-nfl-patrick-mahomes-micah-parsons/
 
