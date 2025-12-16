@@ -1,4 +1,8 @@
-**FIFA Best: Dembele crowned best men's player, Bonmati wins again**\
+**White House Shrugs Off Rise in Unemployment Rate**\
+`The Trump administration looked to recast elements of a dour jobs report Thursday as a sign of strength.`\
+https://nytimes.com/2025/12/16/us/politics/trump-administration-unemployment-rate-economy.html
+
+**Dembele, Bonmati crowned winners at FIFA Best Awards**\
 `Luis Enrique and Sarina Wiegman were named men's and women's coach of the year, respectively, at the ceremony in Doha.`\
 https://nytimes.com/athletic/6890715/2025/12/16/fifa-best-awards-ousmane-dembele-aitana-bonmati/
 
@@ -29,8 +33,4 @@ https://nytimes.com/video/podcasts/100000010590282/are-ai-data-centers-really-ru
 **Arctic Warming Is Turning Alaska’s Rivers Red With Toxic Runoff**\
 `A yearly checkup on the region documents a warmer, rainier Arctic and 200 Alaskan rivers “rusting” as melting tundra leaches minerals from the soil into waterways.`\
 https://nytimes.com/2025/12/16/climate/arctic-report-card-agu.html
-
-**Sean McVay not ruling Davante Adams out vs. Seahawks despite hamstring strain**\
-`Adams, who leads the league with 14 receiving touchdowns, missed practice Tuesday after aggravating his hamstring vs. the Lions. `\
-https://nytimes.com/athletic/6892575/2025/12/16/rams-davante-adams-hamstring-injury/
 

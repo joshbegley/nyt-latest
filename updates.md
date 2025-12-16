@@ -1,3 +1,15 @@
+**FIFA Best: Dembele crowned best men's player, Bonmati wins again**\
+`Luis Enrique and Sarina Wiegman were named men's and women's coach of the year, respectively, at the ceremony in Doha.`\
+https://nytimes.com/athletic/6890715/2025/12/16/fifa-best-awards-ousmane-dembele-aitana-bonmati/
+
+**'Focus on what's ahead of you': Tom Brady offers advice to Patrick Mahomes during recovery**\
+`Brady knows better than anyone what Mahomes is dealing with as he begins the road to recovery. `\
+https://nytimes.com/athletic/6893897/2025/12/16/tom-brady-patrick-mahomes-acl/
+
+**Sean McVay not ruling Davante Adams out vs. Seahawks despite hamstring strain**\
+`Adams, who leads the league with 14 receiving touchdowns, missed practice Tuesday after aggravating his hamstring vs. the Lions. `\
+https://nytimes.com/athletic/6892575/2025/12/16/rams-davante-adams-hamstring-injury/
+
 **This family landed Shohei Ohtani's most expensive baseball card while having dinner**\
 `The Anderson family couldn't believe their luck when they found out perhaps the best baseball card released this year was theirs`\
 https://nytimes.com/athletic/6893838/2025/12/16/shohei-ohtani-baseball-card-gold-logoman-auction/
