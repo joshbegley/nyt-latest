@@ -1,36 +1,36 @@
-**How to watch Bengals vs. Dolphins: Time, TV, streaming**\
-`Find out how to watch the Cincinnati Bengals play the Miami Dolphins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6894548/2025/12/16/bengals-vs-dolphins-stream-how-to-watch-dec-21/
+**The Poet Who Captured the Rhythms of His Communities**\
+`After attending James Baldwin’s funeral, Thomas Sayers Ellis was inspired to create a collective for Black artists.`\
+https://nytimes.com/interactive/2025/12/16/magazine/thomas-sayers-ellis-poet.html
 
-**How to watch Vikings vs. Giants: Time, TV, streaming**\
-`Find out how to watch the Minnesota Vikings play the New York Giants, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6894543/2025/12/16/vikings-vs-giants-stream-how-to-watch-dec-21/
+**How to watch Buccaneers vs. Panthers: Time, TV, streaming**\
+`Find out how to watch the Tampa Bay Buccaneers play the Carolina Panthers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6894577/2025/12/16/buccaneers-vs-panthers-stream-how-to-watch-dec-21/
 
-**How to watch Northern Colorado vs. Texas Tech men's basketball: Time, TV, streaming**\
-`Find out how to watch the Northern Colorado Bears play the Texas Tech Red Raiders, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6894539/2025/12/16/northern-colorado-vs-texas-tech-stream-how-to-watch-dec-16/
+**Mike McDaniel on potential change at QB after MNF loss: 'Everything is on the table'**\
+`A quarterback change might be on the horizon for Miami after Tua Tagovailoa's MNF performance amid an underwhelming season.`\
+https://nytimes.com/athletic/6894456/2025/12/16/dolphins-qb-change-tua-tagovailoa-mnf-mike-mcdaniel/
 
-**Brown cancels men's and women's basketball games in aftermath of shooting**\
-`The Brown men's basketball team was scheduled to play USC on Sunday.`\
-https://nytimes.com/athletic/6894455/2025/12/16/brown-shooting-basketball-canceled-mens-womens/
+**How to watch Jets vs. Saints: Time, TV, streaming**\
+`Find out how to watch the New York Jets play the New Orleans Saints, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6894574/2025/12/16/jets-vs-saints-stream-how-to-watch-dec-21/
 
-**How to watch Cal Poly vs. UCLA women's basketball: Time, TV, streaming**\
-`Find out how to watch the Cal Poly Mustangs play the UCLA Bruins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6894537/2025/12/16/cal-poly-vs-ucla-stream-how-to-watch-dec-16/
+**The Lives They Lived**\
+`Remembering some of the artists, innovators and thinkers we lost in the past year.`\
+https://nytimes.com/interactive/2025/12/16/magazine/celebrity-artist-deaths-2025.html
 
-**How to watch East Tennessee State vs. North Carolina men's basketball: Time, TV, streaming**\
-`Find out how to watch the East Tennessee State Buccaneers play the North Carolina Tar Heels, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6894533/2025/12/16/east-tennessee-state-vs-north-carolina-stream-how-to-watch-dec-16/
+**Commercializing the Arctic**\
+`Trump has shifted the U.S. approach to the Arctic, promoting oil and gas even as scientists have issued more dire warnings about the region.`\
+https://nytimes.com/2025/12/16/climate/the-arctic-oil-gas-climate-change.html
 
-**How to watch UAPB vs. TCU women's basketball: Time, TV, streaming**\
-`Find out how to watch the Arkansas-Pine Bluff Golden Lions play the TCU Horned Frogs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6894526/2025/12/16/uapb-vs-tcu-stream-how-to-watch-dec-16/
+**How to watch Towson vs. Kansas men's basketball: Time, TV, streaming**\
+`Find out how to watch the Towson Tigers play the Kansas Jayhawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6894569/2025/12/16/towson-vs-kansas-stream-how-to-watch-dec-16/
 
-**How to watch Queens vs. Arkansas men's basketball: Time, TV, streaming**\
-`Find out how to watch the Queens Royals play the Arkansas Razorbacks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6894524/2025/12/16/queens-vs-arkansas-stream-how-to-watch-dec-16/
+**How to watch Butler vs. UConn men's basketball: Time, TV, streaming**\
+`Find out how to watch the Butler Bulldogs play the UConn Huskies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6894566/2025/12/16/butler-vs-uconn-stream-how-to-watch-dec-16/
 
-**How to watch Chiefs vs. Titans: Time, TV, streaming**\
-`Find out how to watch the Kansas City Chiefs play the Tennessee Titans, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6894510/2025/12/16/chiefs-vs-titans-stream-how-to-watch-dec-21/
+**How to watch Pacific vs. BYU men's basketball: Time, TV, streaming**\
+`Find out how to watch the Pacific Tigers play the BYU Cougars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6894561/2025/12/16/pacific-vs-byu-stream-how-to-watch-dec-16/
 
