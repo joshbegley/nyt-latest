@@ -1,3 +1,7 @@
+**Jason Kelce on his brother Travis' NFL future: 'I'm curious too'**\
+`Monday night, Jason Kelce commented on whether Travis would weigh retirement at the end of the season.`\
+https://nytimes.com/athletic/6892816/2025/12/15/jason-kelce-chiefs-travis-kelce-nfl-retirement/
+
 **Red Sox, Nationals swap pitching prospects with contrasting styles in win-win deal**\
 `Luis Perales has more upside, while Jake Bennett has a higher floor. Both pitchers have paths to succeed in their new organizations.`\
 https://nytimes.com/athletic/6892679/2025/12/15/red-sox-nationals-luis-perales-jake-bennett-trade-analysis/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/15/us/politics/kushner-trump-hotel-deal-serbia.html
 **Here’s the latest.**\
 `The two men who killed 15 people on Sunday were driven by “Islamic State ideology,” Prime Minister Anthony Albanese told Australia’s public broadcaster.`\
 https://nytimes.com/live/2025/12/15/world/bondi-beach-shooting-gunmen-isis/bondi-beach-shooting-gunmen-isis
-
-**Brown Student Has Survived Two School Shootings**\
-`Mia Tretta, a Brown student, survived a deadly shooting at her high school in 2019 and another attack on Saturday. As the authorities search for the gunman in the latest attack, she is coping with trauma again.`\
-https://nytimes.com/video/us/100000010589153/brown-shooting-student-tretta.html
 
