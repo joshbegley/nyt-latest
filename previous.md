@@ -1,3 +1,7 @@
+**Trump Administration Takes Aim at Another European Climate Law**\
+`U.S. officials told Europe that its methane law, aimed at tackling climate change, would hurt American oil and gas companies.`\
+https://nytimes.com/2025/12/16/climate/trump-europe-methane-rules.html
+
 **Ruth Kiew Dies at 79; Botanist Made Discoveries in Remote Forests**\
 `Trekking across Malaysia, her adopted country, she found more than 150 unrecorded plant species. “She’s one of the greatest botanists who ever lived,” a colleague said.`\
 https://nytimes.com/2025/12/16/science/earth/ruth-kiew-dead.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6894104/2025/12/16/fifa-goal-of-2025-overhead-monti
 **M.I.T. Professor Is Fatally Shot in His Home**\
 `The professor, Nuno F.G. Loureiro, was pronounced dead at a hospital on Tuesday morning. The authorities said they had opened a homicide investigation.`\
 https://nytimes.com/2025/12/16/us/mit-professor-shot-brookline-nuno-loureiro.html
-
-**What we learned from Jarmo Kekäläinen's first news conference as Sabres GM**\
-`Kekäläinen spoke about his vision for the Sabres on Tuesday and what the next steps look like for him.`\
-https://nytimes.com/athletic/6894261/2025/12/16/sabres-jarmo-kekalainen-gm-terry-pegula/
 

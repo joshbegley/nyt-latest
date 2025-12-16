@@ -1,3 +1,7 @@
+**Trump Administration Takes Aim at Another European Climate Law**\
+`U.S. officials told Europe that its methane law, aimed at tackling climate change, would hurt American oil and gas companies.`\
+https://nytimes.com/2025/12/16/climate/trump-europe-methane-rules.html
+
 **Ruth Kiew Dies at 79; Botanist Made Discoveries in Remote Forests**\
 `Trekking across Malaysia, her adopted country, she found more than 150 unrecorded plant species. “She’s one of the greatest botanists who ever lived,” a colleague said.`\
 https://nytimes.com/2025/12/16/science/earth/ruth-kiew-dead.html

@@ -1,5 +1,5 @@
-**Trump Administration Takes Aim at Another European Climate Law**\
-`U.S. officials told Europe that its methane law, aimed at tackling climate change, would hurt American oil and gas companies.`\
+**U.S. Is Said to Seek Exemption From a European Climate Law**\
+`Diplomats told E.U. officials that the bloc’s law on methane, a potent greenhouse gas, would hurt American oil and gas companies.`\
 https://nytimes.com/2025/12/16/climate/trump-europe-methane-rules.html
 
 **Ruth Kiew Dies at 79; Botanist Made Discoveries in Remote Forests**\
