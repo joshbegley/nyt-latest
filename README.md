@@ -1,9 +1,17 @@
+**How to watch Ducks vs. Blue Jackets: Time, TV, streaming**\
+`Find out how to watch the Anaheim Ducks play the Columbus Blue Jackets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6893929/2025/12/16/ducks-vs-blue-jackets-stream-how-to-watch-dec-16/
+
+**How to watch Flyers vs. Canadiens: Time, TV, streaming**\
+`Find out how to watch the Philadelphia Flyers play the Montreal Canadiens, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6893927/2025/12/16/flyers-vs-canadiens-stream-how-to-watch-dec-16/
+
 **How to watch DePaul vs. St. John's men's basketball: Time, TV, streaming**\
 `Find out how to watch the DePaul Blue Demons play the St. John's Red Storm, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6893913/2025/12/16/depaul-vs-st-john-s-stream-how-to-watch-dec-16/
 
 **Jerry Jones says the Cowboys' defensive talent is not the issue**\
-`Jones said opposing quarters are too often having big games against the Dallas defense.`\
+`Jones said opposing quarterbacks are too often having big games against the Dallas defense.`\
 https://nytimes.com/athletic/6893699/2025/12/16/cowboys-matt-eberflus-job-status-jerry-jones/
 
 **How to watch Lipscomb vs. Duke men's basketball: Time, TV, streaming**\
@@ -25,12 +33,4 @@ https://nytimes.com/2025/12/16/business/media/netflix-iheartmedia-video-podcasts
 **It Wasn’t Easy Being a Founding Father of the American Symphony**\
 `George Frederick Bristow, born 200 years ago this month, struggled to find American champions of his music as orchestras favored European tradition.`\
 https://nytimes.com/2025/12/16/arts/music/george-frederick-bristow.html
-
-**Beef Biryani, Green Chile Bean Bake and Sheet-Pan Lemon Turmeric Chicken**\
-`Five weeknight recipes that are as simple as they are supremely nourishing and delicious.`\
-https://nytimes.com/2025/12/16/dining/beef-biryani-green-chile-bean-bake-and-sheet-pan-lemon-turmeric-chicken.html
-
-**Elite top pair potential? Why Zeev Buium could be Canucks' next star**\
-`There are many exciting tools in Buium's game, and he has the potential to be a special player for the Canucks.`\
-https://nytimes.com/athletic/6893314/2025/12/16/vancouver-canucks-zeev-buium-stats-video-quinn-hughes/
 
