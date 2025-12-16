@@ -1,36 +1,36 @@
-**Donald Trump Jr. Is Engaged to Palm Beach Socialite Bettina Anderson**\
-`The relationship between the president’s son and Ms. Anderson had been the subject of tabloid speculation during his previous engagement to Kimberly Guilfoyle.`\
-https://nytimes.com/2025/12/15/us/donald-trump-jr-engaged-bettina-anderson.html
+**A new manager and a mentality shift: Manchester City's rise to the top of the WSL**\
+`After finishing fourth last season, Manchester City enter the winter break with a six-point lead at the top of the Women's Super League`\
+https://nytimes.com/athletic/6890714/2025/12/16/man-city-wsl-leaders-alex-greenwood-lily-murphy/
 
-**Aaron Rodgers passes Steelers past Dolphins to keep AFC North lead: Takeaways**\
-`The future Hall of Fame quarterback threw two touchdown passes as the Steelers beat the Dolphins 28-15 to keep their AFC North lead Monday.`\
-https://nytimes.com/athletic/6892372/2025/12/15/steelers-dolphins-score-result-takeaways-mnf-nfl/
+**Can England's forgotten men get into the World Cup squad?**\
+`For England's forgotten men there is a clean slate under Thomas Tuchel, and their exclusions are a sign that football moves fast`\
+https://nytimes.com/athletic/6890951/2025/12/16/gomes-mainoo-mount-england-tuchel-world-cup-squad/
 
-**U.S. Strikes 3 More Boats in Eastern Pacific, Killing 8**\
-`The attacks brought the number killed since the Trump administration began the strikes on suspected drug smugglers to at least 95.`\
-https://nytimes.com/2025/12/15/us/politics/drug-boat-strikes-pacific.html
+**What are the FIFA Best Awards? And who is nominated this year?**\
+`How are FIFA's annual awards different from the Ballon d'Or? Who is nominated? Who votes? And how can you watch Tuesday's show?`\
+https://nytimes.com/athletic/6891405/2025/12/16/fifa-best-awards-bonmati-putellas-dembele-hakimi/
 
-**NFL playoff picture after Week 15: Bills' comeback win keeps AFC East crown within reach**\
-`The Broncos and Rams are in control of the AFC and NFC, respectively. Can they each hang on for another few weeks?`\
-https://nytimes.com/athletic/6879197/2025/12/15/nfl-playoff-picture-week-15-bills-patriots-broncos-update/
+**Bundesliga Briefing: Welcome back, Urs Fischer – to Bayern Munich's detriment**\
+`Plus the story of the slapstick transfer of the summer and the player who walks the pitch barefoot before matches`\
+https://nytimes.com/athletic/6890841/2025/12/16/bundesliga-briefing-urs-fischer-mainz-bayern-munich/
 
-**Washington rebounds for OT win and first NCAA men's soccer title**\
-`The Huskies also needed overtime to get out of the first round of the NCAA tournament.`\
-https://nytimes.com/athletic/6892929/2025/12/15/ncaa-mens-soccer-washington-ot-nc-state/
+**In a Remote Jungle, the Gruesome Poaching of Rare Elephants**\
+`More than a dozen Bornean elephants have been killed — including five beheaded — in Malaysia in the past 18 months, authorities say.`\
+https://nytimes.com/2025/12/16/world/asia/borneo-elephants-poaching-beheading.html
 
-**Tyler Skaggs civil trial vs. Angels heading to jury: Here's what's at stake**\
-`Monday's closing arguments set the stage, with a significant range of potential outcomes in play.`\
-https://nytimes.com/athletic/6892772/2025/12/15/tyler-skaggs-angels-trial-closing-arguments/
+**Connections: Sports Edition Coach: Hints for Dec. 16, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6892949/2025/12/16/connections-sports-edition-hints-for-dec-16-2025/
 
-**Two years after the Pac-12 collapsed, its stars are still defining football**\
-`Fernando Mendoza is the latest Heisman Trophy winner to have started his collegiate career in the "Conference of Champions."`\
-https://nytimes.com/athletic/6892832/2025/12/15/pac-12-football-legacy/
+**Volkswagen to End Production at German Plant, a First in Company History**\
+`The auto giant stopped making cars at the plant in Dresden, which opened in 2001, as it faces weaker demand and steep U.S. tariffs.`\
+https://nytimes.com/2025/12/16/business/volkswagen-dresden-factory-closed.html
 
-**Matt Rempe (mostly) happy with return from broken thumb: Rangers notes**\
-`Rempe missed almost two months during recovery but put in a noticeable shift in his first game back.`\
-https://nytimes.com/athletic/6892924/2025/12/15/rangers-matt-rempe-broken-thumb-ducks/
+**Corrections: Dec. 16, 2025**\
+`Corrections that appeared in print on Tuesday, Dec. 16, 2025.`\
+https://nytimes.com/2025/12/16/pageoneplus/corrections-dec-16-2025.html
 
-**Jason Kelce on brother Travis Kelce's NFL future: 'I'm curious too'**\
-`Jason Kelce had advice Monday for brother Travis: "Enjoy these last three games and then let it sink in. It will come to you with time."`\
-https://nytimes.com/athletic/6892816/2025/12/15/jason-kelce-chiefs-travis-kelce-nfl-retirement/
+**Fantasy football waiver wire Week 16: Michael Carter, Matthew Golden, streamers**\
+`Jake Ciely dissects the rampant injuries and NFL roster churn coming out of the weekend to direct you to the help you need for Week 16.`\
+https://nytimes.com/athletic/6891509/2025/12/16/fantasy-football-waiver-wire-week-16-michael-carter-matthew-golden-streamers/
 
