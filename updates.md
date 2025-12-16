@@ -1,3 +1,11 @@
+**Premier League injuries have cost clubs over £1bn in salaries over last five years**\
+`Overall injury frequency has dropped in the Premier League by 25 per cent over the last four seasons`\
+https://nytimes.com/athletic/6893381/2025/12/16/premier-league-injuries-1bn-salaries/
+
+**Fernandes 'hurt' after feeling Man Utd wanted him to leave last summer**\
+`"From the club’s side, I felt a bit like, ‘If you leave, it’s not so bad for us’. It hurts me a bit," Fernandes said to Canal 11.`\
+https://nytimes.com/athletic/6893377/2025/12/16/bruno-fernandes-manchester-united-transfer-exit/
+
 **‘Beaches,’ a Novel and a Film, Will Spread Its Wings on Broadway**\
 `A musical adaptation of the story will open at the Majestic Theater next spring. And yes, the score includes “Wind Beneath My Wings.”`\
 https://nytimes.com/2025/12/16/theater/beaches-broadway-musical.html
