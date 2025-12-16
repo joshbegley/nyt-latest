@@ -1,3 +1,7 @@
+**‘Beaches,’ a Novel and a Film, Will Spread Its Wings on Broadway**\
+`A musical adaptation of the story will open at the Majestic Theater next spring. And yes, the score includes “Wind Beneath My Wings.”`\
+https://nytimes.com/2025/12/16/theater/beaches-broadway-musical.html
+
 **Partial team sale will significantly clear Twins' finances, may set table for future sale**\
 `The cash infusion will significantly reduce the Twins' debt.`\
 https://nytimes.com/athletic/6892645/2025/12/16/twins-partial-sale-finances-debt-update/
