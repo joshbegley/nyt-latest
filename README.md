@@ -1,3 +1,15 @@
+**Rob Reiner Gave Us Great Reasons to Go to the Movies**\
+`“This Is Spinal Tap,” “When Harry Met Sally …,” “Misery”: Reiner delivered an incredible number of accessible, original and adult movies that we still cherish.`\
+https://nytimes.com/2025/12/16/movies/rob-reiner-movies-director.html
+
+**South Africa head coach Hugo Broos apologises for alleged racism**\
+`“I can assure you he is a Black guy, but he will come out of my room as a white guy," the head coach said on Friday.`\
+https://nytimes.com/athletic/6893937/2025/12/16/hugo-broos-south-africa-mbokazi-afcon/
+
+**Was Man Utd 4-4 Bournemouth the game of the season so far? Our writers have their say**\
+`Our writers debate the merits of a game that was packed with action, goals...and chaos. Lots of chaos`\
+https://nytimes.com/athletic/6893505/2025/12/16/man-utd-bournemouth-premier-league-game-of-the-season/
+
 **What to know about the report.**\
 `By Rebecca Davis O’Brien`\
 https://nytimes.com/live/2025/12/16/business/jobs-report-economy/what-to-know-about-the-report
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/6893631/2025/12/16/nfl-mvp-odds-josh-allen-matthew-
 **Stephen King: What Rob Reiner Saw in Me**\
 `In Rob’s hands, “Stand by Me,” my most autobiographical novel, rang true.`\
 https://nytimes.com/2025/12/16/opinion/culture/stephen-king-rob-reiner-stand-by-me.html
-
-**How to watch Canucks vs. Rangers: Time, TV, streaming**\
-`Find out how to watch the Vancouver Canucks play the New York Rangers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6893944/2025/12/16/canucks-vs-rangers-stream-how-to-watch-dec-16/
-
-**How to watch Mammoth vs. Bruins: Time, TV, streaming**\
-`Find out how to watch the Utah Mammoth play the Boston Bruins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6893941/2025/12/16/mammoth-vs-bruins-stream-how-to-watch-dec-16/
-
-**Brown Shooter Still at Large After Nearly Three Days**\
-`The authorities are still looking for the gunman who killed two students at Brown University. Investigators are expected to release more video footage on Tuesday.`\
-https://nytimes.com/2025/12/16/us/brown-university-shooter-search-investigation.html
 

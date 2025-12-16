@@ -1,3 +1,11 @@
+**What to know about the report.**\
+`By Rebecca Davis O’Brien`\
+https://nytimes.com/live/2025/12/16/business/jobs-report-economy/what-to-know-about-the-report
+
+**New York Accuses UPS of Seasonal Worker Wage Theft**\
+`In a lawsuit, the state’s attorney general, Letitia James, said UPS had “repeatedly and persistently” failed to pay seasonal workers for all of the time they spent on the job.`\
+https://nytimes.com/2025/12/16/business/ups-seasonal-worker-lawsuit-new-york.html
+
 **Europe May Roll Back Combustion Engine Ban**\
 `A proposal to revise an E.U. law requiring carmakers to stop producing combustion engines by 2035 would offer some relief to automakers, but it sets back the region’s climate goals.`\
 https://nytimes.com/2025/12/16/business/economy/europe-auto-emissions-ban.html
