@@ -1,3 +1,15 @@
+**How Bo Nix, Trevor Lawrence and J.J. McCarthy are developing: Week 15 film review**\
+`The three quarterbacks all had wins in Week 15 as they saw growth in their performance.`\
+https://nytimes.com/athletic/6892434/2025/12/16/bo-nix-trevor-lawrence-jj-mccarthy-film-review/
+
+**How a national title would feel for every CFP team, from unbearable to euphoric**\
+`How the world changes and what the ramifications are if each of the 12 teams in the College Football Playoff wins the national title.`\
+https://nytimes.com/athletic/6891846/2025/12/16/college-football-playoff-12-teams-national-title/
+
+**Making sense of where the Red Sox stand as the offseason progresses**\
+`Plus, updates on where Triston Casas stands, Marcelo Mayer's WBC status and Kristian Campbell's offseason work. `\
+https://nytimes.com/athletic/6892348/2025/12/16/boston-red-sox-offseason-update/
+
 **TAFC – The mystery of FC Haka's stadium fire. Plus: Inside Real Madrid's finances**\
 `FC Haka's home was destroyed – but their rivals are helping the nine-time Finnish champions rebuild`\
 https://nytimes.com/athletic/6893356/2025/12/16/haka-stadium-fire-real-madrid-finances-tafc/
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/6892543/2025/12/16/acl-tears-nfl-patrick-mahomes-mi
 **'I'll buy a watch. I got robbed': Knicks reveal what they'll do with NBA Cup money**\
 `The Knicks reveal what they're going to do with the prize money from a deep NBA Cup run.`\
 https://nytimes.com/athletic/6891538/2025/12/16/knicks-spurs-nba-cup-finals-winnings/
-
-**How can the Panthers make a successful playoff push? Stay aggressive, for starters**\
-`Bottling up Baker Mayfield on Sunday, limiting penalties and getting Tetairoa McMillan move involved also make the list.`\
-https://nytimes.com/athletic/6892404/2025/12/16/carolina-panthers-playoff-push-bucs-nfc-south/
-
-**Brian Schottenheimer says Cowboys' final three games will be 'all about winning'**\
-`Dallas is all-but eliminated from the playoffs. The final three games could determine a lot for some Cowboys players and coaches.`\
-https://nytimes.com/athletic/6892606/2025/12/16/cowboys-disappointment-playoffs-goals/
-
-**Rangers fans got it right with warm receptions for Chris Kreider and Jacob Trouba**\
-`"It's hard to put into words what the experience was like for 13 years, what that experience was like tonight," Kreider said.`\
-https://nytimes.com/athletic/6892908/2025/12/16/rangers-kreider-trouba-return-fan-reception/
 

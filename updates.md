@@ -1,3 +1,15 @@
+**How Bo Nix, Trevor Lawrence and J.J. McCarthy are developing: Week 15 film review**\
+`The three quarterbacks all had wins in Week 15 as they saw growth in their performance.`\
+https://nytimes.com/athletic/6892434/2025/12/16/bo-nix-trevor-lawrence-jj-mccarthy-film-review/
+
+**How a national title would feel for every CFP team, from unbearable to euphoric**\
+`How the world changes and what the ramifications are if each of the 12 teams in the College Football Playoff wins the national title.`\
+https://nytimes.com/athletic/6891846/2025/12/16/college-football-playoff-12-teams-national-title/
+
+**Making sense of where the Red Sox stand as the offseason progresses**\
+`Plus, updates on where Triston Casas stands, Marcelo Mayer's WBC status and Kristian Campbell's offseason work. `\
+https://nytimes.com/athletic/6892348/2025/12/16/boston-red-sox-offseason-update/
+
 **TAFC – The mystery of FC Haka's stadium fire. Plus: Inside Real Madrid's finances**\
 `FC Haka's home was destroyed – but their rivals are helping the nine-time Finnish champions rebuild`\
 https://nytimes.com/athletic/6893356/2025/12/16/haka-stadium-fire-real-madrid-finances-tafc/
