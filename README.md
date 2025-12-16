@@ -1,3 +1,7 @@
+**With outfield 'pretty much set,' Phillies signal offseason's heaviest lifting is done**\
+`The Phillies aren't done reshaping the roster, but their outfield configuration has come into focus. Here's where their offseason stands. `\
+https://nytimes.com/athletic/6894476/2025/12/16/phillies-outfield-offseason-trades-signings/
+
 **Gunmen in Sydney Massacre Were Motivated by Islamic State, Officials Say**\
 `Investigators said they were also looking into a trip to the Philippines that the father-and-son attackers took last month.`\
 https://nytimes.com/2025/12/16/world/australia/bondi-beach-shooting-terror-attack-isis.html
@@ -25,8 +29,4 @@ https://nytimes.com/athletic/6894070/2025/12/16/denny-hamlin-siriusxm-nascar-lar
 **The Best Movies of 2025: You Decide**\
 `The critics have had their say. Now it’s your turn. What movies released in 2025 do you consider the best?`\
 https://nytimes.com/interactive/2025/12/16/movies/vote-best-movies-2025.html
-
-**D’Wayne Wiggins’s Songs Were Embraced by Everyone From Church Ladies to Biggie**\
-`With Tony! Toni! Toné!, his songs captured the mood of how people lived and died in Oakland.`\
-https://nytimes.com/interactive/2025/12/16/magazine/dwayne-wiggins-music.html
 
