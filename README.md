@@ -1,3 +1,11 @@
+**Ruth Kiew Dies at 79; Botanist Made Discoveries in Remote Forests**\
+`Trekking across Malaysia, her adopted country, she found more than 150 unrecorded plant species. “She’s one of the greatest botanists who ever lived,” a colleague said.`\
+https://nytimes.com/2025/12/16/science/earth/ruth-kiew-dead.html
+
+**Suarez finalizing new deal with Inter Miami for 2026 season**\
+`Suárez, who turns 39 in January, returns for another year.`\
+https://nytimes.com/athletic/6894366/2025/12/16/luis-suarez-new-deal-contract-inter-miami/
+
 **Under U.S. Pressure, Militia Backed by Rwanda to Withdraw From City in Congo**\
 `The militia said the withdrawal was intended to give ongoing peace talks with the Congolese government “the maximum chance to succeed.”`\
 https://nytimes.com/2025/12/16/world/africa/congo-rebels-withdraw-rwanda.html
@@ -25,12 +33,4 @@ https://nytimes.com/2025/12/16/us/mit-professor-shot-brookline-nuno-loureiro.htm
 **What we learned from Jarmo Kekäläinen's first news conference as Sabres GM**\
 `Kekäläinen spoke about his vision for the Sabres on Tuesday and what the next steps look like for him.`\
 https://nytimes.com/athletic/6894261/2025/12/16/sabres-jarmo-kekalainen-gm-terry-pegula/
-
-**Heart Association Revives Theory That Light Drinking May Be Good for You**\
-`The American Heart Association report runs contrary to recent studies — and the group’s own guidelines — that found any amount of alcohol to be harmful.`\
-https://nytimes.com/2025/12/16/health/alcohol-heart-disease-cancer.html
-
-**NFL Week 16 playoff scenarios: How Eagles, Broncos can lock up key spots**\
-`The Rams' clash with the Seahawks will have significant implications in the races for the NFC West and the top seed in the conference.`\
-https://nytimes.com/athletic/6893989/2025/12/16/nfl-week-16-playoff-clinching-scenarios-broncos-eagles/
 
