@@ -1,3 +1,7 @@
+**Cooper Flagg puts on a show at Utah, erupts for career-high 42 points**\
+`Flagg became the first 18-year-old in NBA history to record a 40-point game.`\
+https://nytimes.com/athletic/6893035/2025/12/16/cooper-flagg-career-high-42-points-mavericks/
+
 **Will the Big Bash League go private?**\
 `CA's decision over private investment will go a long way towards shaping the futures of both the BBL and Australian cricket as a whole`\
 https://nytimes.com/athletic/6888830/2025/12/16/big-bash-league-australia-private-bbl-ipl/
