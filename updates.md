@@ -1,3 +1,7 @@
+**Warriors fan express frustrations to owner Joe Lacob in email, gets response**\
+`"You can't be as frustrated as me," Lacob wrote to the fan.`\
+https://nytimes.com/athletic/6894652/2025/12/16/warriors-joe-lacob-owner-fan-email/
+
 **The Hardest and Easiest Spelling Bee Words of 2025**\
 `A quick look at the attainability of getting the top 10 toughest words. No reason to dillydally.`\
 https://nytimes.com/2025/12/16/upshot/spelling-bee-words-2025.html
