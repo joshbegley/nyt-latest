@@ -1,3 +1,15 @@
+**Rob Reiner Gave Us Great Reasons to Go to the Movies**\
+`“This Is Spinal Tap,” “When Harry Met Sally …,” “Misery”: Reiner delivered an incredible number of accessible, original and adult movies that we still cherish.`\
+https://nytimes.com/2025/12/16/movies/rob-reiner-movies-director.html
+
+**South Africa head coach Hugo Broos apologises for alleged racism**\
+`“I can assure you he is a Black guy, but he will come out of my room as a white guy," the head coach said on Friday.`\
+https://nytimes.com/athletic/6893937/2025/12/16/hugo-broos-south-africa-mbokazi-afcon/
+
+**Was Man Utd 4-4 Bournemouth the game of the season so far? Our writers have their say**\
+`Our writers debate the merits of a game that was packed with action, goals... and chaos. Lots of chaos`\
+https://nytimes.com/athletic/6893505/2025/12/16/man-utd-bournemouth-premier-league-game-of-the-season/
+
 **What to know about the report.**\
 `By Rebecca Davis O’Brien`\
 https://nytimes.com/live/2025/12/16/business/jobs-report-economy/what-to-know-about-the-report
