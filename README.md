@@ -1,3 +1,7 @@
+**Word of the Day: unimpeachable**\
+`This word has appeared in 53 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/12/16/learning/word-of-the-day-unimpeachable.html
+
 **Nick Reiner Talked Openly About His Addiction Struggles**\
 `Nick Reiner was arrested and booked on suspicion of murdering his mother and father, the movie director, Rob Reiner. The younger Reiner had been open about his struggles with drug abuse and homelessness.`\
 https://nytimes.com/video/us/100000010589743/nick-reiner-drugs-rehab-addiction.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6888830/2025/12/16/big-bash-league-australia-privat
 **Guglielmo Vicario is far from perfect, but he's also far from Tottenham's biggest problem**\
 `The Italian has been in the spotlight for the wrong reasons, but is still preventing more goals than most of his Premier League rivals`\
 https://nytimes.com/athletic/6891208/2025/12/16/guglielmo-vicario-tottenham-errors/
-
-**Jaylen Brown takes blame for Celtics' home loss to East-leading Pistons**\
-`Thanks to Brown's big half, the Celtics took a 57-53 lead into halftime, but they fell behind late and couldn't catch the Pistons.`\
-https://nytimes.com/athletic/6893033/2025/12/16/jaylen-brown-takes-blame-celtics-lose-pistons-2/
 
