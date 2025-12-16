@@ -1,4 +1,4 @@
-**Premier League injuries have cost clubs over £1bn in salaries over last five years**\
+**Premier League injuries have cost clubs over £1bn in salaries over past five years**\
 `Overall injury frequency has dropped in the Premier League by 25 per cent over the last four seasons`\
 https://nytimes.com/athletic/6893381/2025/12/16/premier-league-injuries-1bn-salaries/
 
