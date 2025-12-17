@@ -1,3 +1,7 @@
+**The Ashes Briefing: Carey leads Australia's counter-attack after Archer gives England hope**\
+`England claimed eight wickets on the first day in Adelaide after Australia won the toss and batted, but Alex Carey was the star of the show`\
+https://nytimes.com/athletic/6888848/2025/12/17/ashes-australia-england-carey-khawaja-archer-briefing/
+
 **How to watch Patriots vs. Ravens: Time, TV, streaming**\
 `Find out how to watch the New England Patriots play the Baltimore Ravens, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6895784/2025/12/17/patriots-vs-ravens-stream-how-to-watch-dec-21/
