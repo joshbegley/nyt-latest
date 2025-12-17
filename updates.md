@@ -18,6 +18,11 @@ https://nytimes.com/athletic/6895539/2025/12/17/maple-leafs-blackhawks-auston-ma
 `\
 https://nytimes.com/athletic/6895539/2025/12/17/maple-leafs-blackhawks-auston-matthews-comeback-win/
 
+**Even after comeback win, Leafs can't afford to keep playing with fire**\
+`A thrilling eight seconds may have been the difference in Toronto's 3-2 win over Chicago, but it isn’t tenable going forward.
+`\
+https://nytimes.com/athletic/6895539/2025/12/17/maple-leafs-blackhawks-auston-matthews-comeback-win/
+
 **The New York Times in Print for Wednesday, Dec. 17, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/12/17/todays-new-york-times

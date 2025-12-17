@@ -4,7 +4,7 @@ https://nytimes.com/2025/12/17/world/asia/rabbi-eli-schlanger-funeral-bondi-shoo
 
 **First Funeral Held For Victim of Bondi Beach Shooting**\
 `People mourned the death of Rabbi Eli Schlanger during the first funeral for those killed in the Bondi Beach shooting. He was a key organizer of the Jewish event that was tarnished by a mass shooting.`\
-https://nytimes.com/video/world/australia/100000010592479/first-funeral-held-for-victim-of-bondi-beach-shooting.html
+https://nytimes.com/video/world/australia/100000010592479/rabbi-eli-schlanger-funeral-bondi-shooting.html
 
 **The New York Times in Print for Wednesday, Dec. 17, 2025**\
 ``\
@@ -14,7 +14,7 @@ https://nytimes.com/issue/todayspaper/2025/12/17/todays-new-york-times
 `Chile’s new leader wants to rewrite its past and recast its future.`\
 https://nytimes.com/2025/12/17/opinion/chile-election-kast-pinochet.html
 
-**Tarasenko, Trenin have huge nights as short-handed Wild steamroll Caps**\
+**Tarasenko, Yurov have huge nights as short-handed Wild steamroll Caps**\
 `This run is a far cry from the last few years, when the Wild's season fell apart once injuries started to pile up.`\
 https://nytimes.com/athletic/6895186/2025/12/17/tarasenko-yurov-wild-shut-out-capitals/
 
