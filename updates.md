@@ -1,3 +1,11 @@
+**Browns' Devin Bush found not guilty of assault, harassment following May arrest**\
+`In 14 games for the Browns this year, Bush has recorded 93 tackles, two sacks and two interceptions.`\
+https://nytimes.com/athletic/6896389/2025/12/17/browns-devin-bush-not-guilty-arrest/
+
+**Wilson agrees to stay with Thorns through 2026, exercising her player option in NWSL: Exclusive**\
+`The U.S. forward said the comfort of returning to Portland is what she needed following the birth of her daughter. `\
+https://nytimes.com/athletic/6895169/2025/12/17/sophia-wilson-contract-portland-thorns-2026/
+
 **Palace's Kamada facing up to 10 weeks out with hamstring injury**\
 `Kamada’s injury will further deplete Palace's squad ahead of a busy run of fixtures.`\
 https://nytimes.com/athletic/6896453/2025/12/17/daichi-kamada-palace-injury-update/
