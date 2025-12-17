@@ -1,3 +1,7 @@
+**Word of the Day: commensurate**\
+`This word has appeared in 117 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/12/17/learning/word-of-the-day-commensurate.html
+
 **Late Night Thanks the White House for a ‘Doozy of an Interview’**\
 `Jimmy Kimmel was grateful that Susie Wiles, the president’s “future former chief of staff,” spilled the beans on her boss in a Vanity Fair article.`\
 https://nytimes.com/2025/12/17/arts/television/late-night-susie-wiles-interview.html

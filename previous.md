@@ -1,3 +1,7 @@
+**Word of the Day: commensurate**\
+`This word has appeared in 117 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/12/17/learning/word-of-the-day-commensurate.html
+
 **Late Night Thanks the White House for a ‘Doozy of an Interview’**\
 `Jimmy Kimmel was grateful that Susie Wiles, the president’s “future former chief of staff,” spilled the beans on her boss in a Vanity Fair article.`\
 https://nytimes.com/2025/12/17/arts/television/late-night-susie-wiles-interview.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/17/world/asia/australia-bondi-beach-shooting.html
 **On Bali, the Holiday Vibe Masks Memories of a Massacre**\
 `Sixty years ago, half a million Indonesians were killed in anti-Communist purges. On Bali, resorts and clubs were built atop mass graves.`\
 https://nytimes.com/2025/12/17/world/asia/bali-indonesia-communist-massacres.html
-
-**Crystal Palace play twice in 48 hours. How is that going to work?**\
-`Go full-strength on Thursday and Saturday? Play the kids in Europe? Try to find a balance? The manager has some tricky decisions to make...`\
-https://nytimes.com/athletic/6888560/2025/12/17/crystal-palace-oliver-glasner-premier-league-conference-league/
 
