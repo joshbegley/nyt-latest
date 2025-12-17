@@ -1,36 +1,36 @@
-**Must-See Moments From the N.B.A. Cup Championship**\
-`The New York Knicks pulled off a comeback victory over the San Antonio Spurs to take the N.B.A. Cup in Las Vegas.`\
-https://nytimes.com/video/sports/basketball/100000010592644/must-see-moments-from-the-nba-cup-championship.html
+**A Last Chance to Prep for the Exam. Then, a Gunman at the Classroom Door.**\
+`For the students in the Brown University review session, concerns about grades and questions about economic concepts would be forgotten in an instant.`\
+https://nytimes.com/2025/12/17/us/exam-review-brown-shooting.html
 
-**England consider official complaint over Snicko, Carey admits he feathered an edge**\
-`The Australia wicketkeeper was given not out on 72 after the technology showed a spike before the ball reached the bat`\
-https://nytimes.com/athletic/6895826/2025/12/17/england-australia-snicko-carey-tongue/
+**The Man Who Rules the Country Presides Over Nothing**\
+`Why are the Supreme Court and Congress conspiring to give him more power?`\
+https://nytimes.com/2025/12/17/opinion/trump-presidential-power-miller-vought.html
 
-**FIFA not entirely to blame for World Cup ticket prices. But it made one big mistake.**\
-`FIFA is an easy target for something that likely would've happened anyway, but it could've catered more to specific sects of fandom`\
-https://nytimes.com/athletic/6893012/2025/12/17/fifa-world-cup-ticket-prices-fans/
+**Do the Patriots have enough at wide receiver to win in the playoffs?**\
+`The Patriots receivers have been vastly improved from last year's unit, but they will need to step up even more as the playoffs approach.`\
+https://nytimes.com/athletic/6894358/2025/12/17/patriots-wide-receiver-nfl-playoffs-stefon-diggs/
 
-**‘Good-Bad’ Movies**\
-`What are your favorite films that are so bad, they’re good?`\
-https://nytimes.com/2025/12/17/learning/good-bad-movies.html
+**How the ‘Fallout’ Writers Gave Sex Appeal to a Ghoul With No Nose**\
+`Just ahead of the Season 2 premiere, the co-creator Geneva Robertson-Dworet talked about the challenge of finding fun in a nuclear apocalypse.`\
+https://nytimes.com/2025/12/17/arts/television/fallout-season-2-premiere-geneva-robertson-dworet.html
 
-**Eric Adams Pledged to Help Dyslexic Students. Many Say He Fell Short.**\
-`Mayor Adams took notable steps toward improving reading instruction in New York. But families and advocates say many students with dyslexia are still struggling.`\
-https://nytimes.com/2025/12/17/nyregion/nyc-dyslexia-children-eric-adams.html
+**What Rob Reiner Told Me the Last Time We Spoke**\
+`In life and art, he was the successor to Norman Lear.`\
+https://nytimes.com/2025/12/17/opinion/rob-reiner-norman-lear-archie-bunker-politics.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/12/17/crosswords/spelling-bee-forum.html
+**Heating Costs Expected to Rise 9.2% This Winter**\
+`Colder weather and rising electricity and fuel costs will lead to a big jump in costs for individuals, according to estimates from a group representing state energy officials.`\
+https://nytimes.com/2025/12/17/business/energy-environment/winter-heating-costs-increase.html
 
-**The Ashes Briefing: Carey leads Australia's counter-attack after Archer gives England hope**\
-`England claimed eight wickets on the first day in Adelaide after Australia won the toss and batted, but Alex Carey was the star of the show`\
-https://nytimes.com/athletic/6888848/2025/12/17/ashes-australia-england-carey-khawaja-archer-briefing/
+**The Movie I Was Afraid to See**\
+`It all comes down to coordination.`\
+https://nytimes.com/2025/12/17/opinion/voice-of-hind-rajab-movie-gaza.html
 
-**How to watch Patriots vs. Ravens: Time, TV, streaming**\
-`Find out how to watch the New England Patriots play the Baltimore Ravens, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6895784/2025/12/17/patriots-vs-ravens-stream-how-to-watch-dec-21/
+**Will the Oscars Make Room for ‘Difficult’ Women?**\
+`Rose Byrne, Jennifer Lawrence and Amanda Seyfried give great performances as women who buck convention. But some voters prize ‘likability’ above all else.`\
+https://nytimes.com/2025/12/17/movies/oscar-contenders-jennifer-lawrence-rose-byrne-amanda-seyfried.html
 
-**Word of the Day: commensurate**\
-`This word has appeared in 117 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/12/17/learning/word-of-the-day-commensurate.html
+**I Cashed Out My 401(k) to Build a Women-Only Retirement Community**\
+`The Bird’s Nest is experimenting with a different way to age.`\
+https://nytimes.com/2025/12/17/podcasts/the-birds-nest-womens-retirement-community-tiny-homes.html
 
