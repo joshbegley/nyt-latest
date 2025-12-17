@@ -1,3 +1,15 @@
+**South Africa Arrests Kenyans Working on U.S. Refugee Applications**\
+`The authorities said that seven Kenyans were working illegally. The arrests came amid increased tensions between South Africa and the United States.`\
+https://nytimes.com/2025/12/17/world/africa/south-africa-kenya-workers.html
+
+**A New Stage in the Fight for Warner Bros. Discovery**\
+`The media company formally rejected a hostile takeover bid by Paramount and questioned the purported political advantages held by its unwanted suitor.`\
+https://nytimes.com/2025/12/17/business/dealbook/paramount-warner-bros-netflix.html
+
+**FIFA Council approves record $655m prize fund for 2026 World Cup**\
+`The fund marks a 50 per cent increase from the 2022 tournament in Qatar and will see the winners of the competition earning $50million.`\
+https://nytimes.com/athletic/6896180/2025/12/17/fifa-world-cup-record-prize-fund/
+
 **UK ups pressure on Abramovich to transfer £2.5bn from Chelsea sale to Ukraine victims**\
 `This latest threat follows a more than three-year impasse between the Russian oligarch and the UK government.`\
 https://nytimes.com/athletic/6896168/2025/12/17/uk-increases-pressure-on-roman-abramovich-to-transfer-2-5bn-from-chelsea-sale-to-ukraine-victims/
