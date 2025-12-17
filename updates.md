@@ -1,3 +1,11 @@
+**Guardiola says Bobb got hamstring injury in Carabao Cup win but hopefully 'back soon'**\
+`The City midfielder was substituted in the 19th minute and went straight down the tunnel during the Carabao Cup game.`\
+https://nytimes.com/athletic/6897763/2025/12/17/oscar-bobb-hamstring-injury/
+
+**House Rejects Measure to Bar Strikes Inside Venezuela**\
+`The Democratic measure was defeated mostly along party lines, along with another resolution that would have halted the military’s escalating campaign of boat attacks.`\
+https://nytimes.com/2025/12/17/us/politics/trump-venezuela-house-vote.html
+
 **Hans van Manen, Celebrated Dutch Choreographer, Is Dead at 93**\
 `He rose from poverty to become one of the Netherlands’ most revered dance makers, creating more than 150 avant-garde works in a career spanning eight decades.`\
 https://nytimes.com/2025/12/17/arts/dance/hans-van-manen-dead.html
