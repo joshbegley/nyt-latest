@@ -1,3 +1,15 @@
+**Knicks will not hang NBA Cup banner in Madison Square Garden: Sources**\
+`The Los Angeles Lakers and Milwaukee Bucks, the first two NBA Cup winners, both hung banners for winning the in-season tournament.`\
+https://nytimes.com/athletic/6896747/2025/12/17/knicks-nba-cup-championship-banner/
+
+**My Ex-Lover Lied About His Marriage Being Over. Should I Tell His Wife?**\
+`I started feeling I wasn’t getting the full story. My instincts were correct.`\
+https://nytimes.com/2025/12/17/magazine/lover-wife-ethics.html
+
+**The Most Notable Movies of 2025**\
+`Across the newsroom, journalists picked their most notable movies from 2025.`\
+https://nytimes.com/video/movies/moviesupdate/100000010580011/the-most-notable-movies-of-2025.html
+
 **Phillies to land right-handed bullpen help in deal with Brad Keller: Sources**\
 `Keller is coming off an impressive bounceback season with the Cubs.`\
 https://nytimes.com/athletic/6837003/2025/12/17/mlb-brad-keller-free-agency-signing-phillies/
