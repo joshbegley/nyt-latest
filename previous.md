@@ -1,3 +1,11 @@
+**Tiny Love Stories: ‘Good Riddance, Christmas’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2025/12/17/style/tiny-modern-love-stories-good-riddance-christmas.html
+
+**Chelsea, Bayern reach UWCL quarter-finals: Who else qualified, how do the play-offs work?**\
+`Manchester United and Arsenal both moved up the table with their respective wins over Juventus and OH Leuven.`\
+https://nytimes.com/athletic/6896560/2025/12/17/womens-champions-league-league-phase/
+
 **House Republicans Press Jack Smith Over Investigations Into Trump**\
 `Even adversaries of Jack Smith, the former special counsel, conceded that his tight-lipped, painstaking approach made tripping him up particularly difficult.`\
 https://nytimes.com/2025/12/17/us/politics/jack-smith-trump-prosecutions-congress.html
@@ -25,12 +33,4 @@ https://nytimes.com/2025/12/17/us/politics/trump-immigration-citizenship-denatur
 **Sherrone Moore had 'long history of domestic violence' against Michigan staffer, lawyer alleges**\
 `Pittsfield Township Police provided information in sworn testimony at a complaint authorization hearing last week.`\
 https://nytimes.com/athletic/6897448/2025/12/17/sherrone-moore-michigan-domestic-violence-allegation/
-
-**Fani Willis Calls Trump and Allies ‘Criminals’ at Georgia Senate Hearing**\
-`The district attorney in Atlanta addressed a Republican-led committee created to investigate her conduct during her prosecution of President Trump last year.`\
-https://nytimes.com/2025/12/17/us/fani-willis-georgia-senate-hearing-trump.html
-
-**What to Know About the New Flu Variant**\
-`Scientists have expressed alarm about the dominant version of the virus that’s circulating now.`\
-https://nytimes.com/2025/12/17/well/new-flu-variant-symptoms.html
 
