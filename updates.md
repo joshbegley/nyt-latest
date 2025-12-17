@@ -1,3 +1,15 @@
+**Seattle? Mexico City? Where should the next NBA Cup final be played?**\
+`Historic college venues? An international city? Here are some ideas for where the NBA Cup final could go next.`\
+https://nytimes.com/athletic/6896293/2025/12/17/nba-cup-site-las-vegas-new-home/
+
+**Cincinnati's Jizzle James, son of Edgerrin James, returns to hoops roster**\
+`The team dismissed Jizzle James in July due to undisclosed personal issues.`\
+https://nytimes.com/athletic/6896280/2025/12/17/cincinnati-basketball-jizzle-james-return/
+
+**FIFA confirms dates for Women's Club World Cup in January 2028**\
+`The 16-team tournament will take place in the same year as the LA Olympic Games and midway through the European domestic football season.`\
+https://nytimes.com/athletic/6896275/2025/12/17/fifa-womens-club-world-cup-january-wsl/
+
 **Inaugural FIFA Women's Club World Cup to take place in January 2028**\
 `The 16-team tournament will take place in the same year as the LA Olympic Games and midway through the European domestic football season.`\
 https://nytimes.com/athletic/6896275/2025/12/17/fifa-womens-club-world-cup-january-wsl/
