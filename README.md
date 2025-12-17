@@ -1,3 +1,11 @@
+**Chuck Neinas, exec who helped shape modern college football, dies at 93**\
+`Neinas helped drive changes that altered traditional TV arrangements led to a wave of conference realignment.`\
+https://nytimes.com/athletic/6894960/2025/12/16/chuck-neinas-big-12-obituary-college-football/
+
+**Former Atlanta Hawks senior VP of finance pleads guilty to wire fraud**\
+`After he was indicted in October, Lester Jones pleaded guilty Tuesday to federal wire fraud tied to years of concealed personal spending.`\
+https://nytimes.com/athletic/6894932/2025/12/16/hawks-executive-guilty-lester-jones-nba/
+
 **Judge Says He Will Not Immediately Halt Trump’s Ballroom Project**\
 `A federal judge said he would order the Trump administration to submit plans for the building by the end of the month, but allowed minor construction to continue for now.`\
 https://nytimes.com/2025/12/16/us/politics/judge-trump-ballroom.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6894572/2025/12/16/fantasy-football-market-share-re
 **Submit your Dodgers questions for Fabian Ardaya's mailbag**\
 `Submit your Dodgers questions for Fabian Ardaya's mailbag`\
 https://nytimes.com/athletic/6895020/2025/12/16/dodgers-offseason-free-agents-mailbag/
-
-**Maresca says he has not spoken to Chelsea hierarchy, thanks fans for support**\
-`The Italian was speaking after Chelsea booked their place in the Carabao Cup semi-final with a 3-1 win over Cardiff City in Wales.`\
-https://nytimes.com/athletic/6894978/2025/12/16/enzo-maresca-chelsea-outburst-fans-support/
-
-**Three winter leagues to withdraw from Caribbean Series if held in Venezuela**\
-`The three leagues announced that "due to external situations beyond their control" they will be unable to attend if it remains in Caracas.`\
-https://nytimes.com/athletic/6894491/2025/12/16/caribbean-series-venezuela-dominican-republic-puerto-rico-participation/
 
