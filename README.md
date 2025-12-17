@@ -1,3 +1,11 @@
+**2025 Sports Media Awards: Person of the Year, top dealmakers and more**\
+`Who won Andrew Marchand's coveted end-of-the-year "Golden Clickers?"`\
+https://nytimes.com/athletic/6893866/2025/12/17/2025-sports-media-awards-ernie-johnson-elle-duncan/
+
+**Bears QB Caleb Williams is progressing, but can he earn a signature win over the Packers?**\
+`Williams had a chance for a memorable comeback win at Lambeau Field. Now he can avenge that loss and get on the doorstep to the playoffs.`\
+https://nytimes.com/athletic/6894762/2025/12/17/bears-caleb-williams-packers/
+
 **Inside the Bruins' faceoff play that's impossible to stop**\
 `Geekie knows how to get open. It is a critical skill the Boston Bruins wing has mastered on his journey to becoming an elite goal scorer. `\
 https://nytimes.com/athletic/6895513/2025/12/17/bruins-morgan-geekie-david-pastrnak/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6885017/2025/12/17/canada-world-juniors-gavin-mcken
 **Vikings WR Justin Jefferson has had a tough season, but 1,000 yards is still within reach**\
 `Jefferson has struggled along with young quarterback J.J. McCarthy, but Minnesota's all-world wideout can end the season on a high note.`\
 https://nytimes.com/athletic/6894499/2025/12/17/justin-jefferson-vikings-1000-yards/
-
-**Making the grade: A step-by-step look at how PFF analyzes an NFL game**\
-`Widely consumed and oft-criticized, Pro Football Focus' grades have become catnip for NFL fans. Here's how the evaluations are made.`\
-https://nytimes.com/athletic/6894963/2025/12/17/pff-grades-nfl-games-pro-football-focus/
-
-**To secure AFC North title, Ravens must take care of business down the stretch**\
-`If they win their final three games, the Ravens are guaranteed to take the AFC North for a franchise-record third straight season. `\
-https://nytimes.com/athletic/6894947/2025/12/17/ravens-playoff-hopes-afc-north/
 
