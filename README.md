@@ -1,3 +1,7 @@
+**Miami Heat in limbo with Terry Rozier charged in illegal gambling case**\
+`The Miami Heat will likely need clarity on whether they can trade Rozier before they make any significant in-season moves.`\
+https://nytimes.com/athletic/6895406/2025/12/16/terry-rozier-adam-silver-trade-no-solution/
+
 **Like Barked Orders**\
 `Gary Larson and Doug Peterson have outmaneuvered us.`\
 https://nytimes.com/2025/12/16/crosswords/daily-puzzle-2025-12-17.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/16/us/reiner-family-rob-nick-michele.html
 **Adam Silver: NBA to decide on expansion in 2026 with Vegas, Seattle focus**\
 `The NBA last added a team in 2004, when the Charlotte Bobcats became the league's 30th franchise.`\
 https://nytimes.com/athletic/6895216/2025/12/16/adam-silver-nba-expansion-2026-las-vegas-seattle/
-
-**Pound-for-pound great Terence 'Bud' Crawford retires from boxing at 42-0**\
-`Crawford last fought in September where he cemented his legacy as one of the all-time greats with an upset victory against Canelo Alvarez.`\
-https://nytimes.com/athletic/6895213/2025/12/16/terence-crawford-boxing-retirement-undefeated/
 
