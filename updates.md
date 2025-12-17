@@ -1,3 +1,19 @@
+**Top Republican Examining Boat Strike ‘Satisfied’ With Military Mission**\
+`After viewing video of a follow-up strike, Republicans largely had confidence in the Pentagon’s legal rationale while Democrats questioned its legality.`\
+https://nytimes.com/2025/12/17/us/politics/boat-strike-video-questions-lawmakers.html
+
+**Maccabi Tel-Aviv fined for 'racist and/or discriminatory behaviour' in Europa League tie**\
+`UEFA has fined Maccabi €20,000 and given the club a suspended away fan ban`\
+https://nytimes.com/athletic/6896988/2025/12/17/maccabi-tel-aviv-stuttgart-uefa-sanctions/
+
+**Who is Quinn Ewers? Meet the Dolphins' new starting quarterback**\
+`Ewers was the final quarterback selected in last year’s NFL Draft despite entering the season projected as a top draft pick.`\
+https://nytimes.com/athletic/6896751/2025/12/17/quinn-ewers-miami-dolphins/
+
+**This Dance Party Has Everything. (It’s at a Supermarket.)**\
+`Noche Buena brings together Filipino communities over rich dishes and great music. This year, the celebration started early.`\
+https://nytimes.com/2025/12/17/dining/noche-buena-filipino-recipes.html
+
 **Venezuelan Navy Escorts Vessels After Trump’s Blockade Threat**\
 `The Venezuelan government was said to have ordered the escort, according to two people familiar with the matter. It was not immediately clear whether the vessels were subject to U.S. sanctions.`\
 https://nytimes.com/2025/12/17/us/politics/venezuela-blockade-military-escort-trump.html
