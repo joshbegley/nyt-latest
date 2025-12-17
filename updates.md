@@ -1,3 +1,7 @@
+**Miami Heat in limbo with Terry Rozier charged in illegal gambling case**\
+`The Miami Heat will likely need clarity on whether they can trade Rozier before they make any significant in-season moves.`\
+https://nytimes.com/athletic/6895406/2025/12/16/terry-rozier-adam-silver-trade-no-solution/
+
 **Like Barked Orders**\
 `Gary Larson and Doug Peterson have outmaneuvered us.`\
 https://nytimes.com/2025/12/16/crosswords/daily-puzzle-2025-12-17.html
