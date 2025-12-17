@@ -1,4 +1,8 @@
 **‘I always take responsibility’: Blackhawks’ Artyom Levshunov scratched for being late**\
+`Levshunov sat out Chicago's 3-2 loss to the Maple Leafs on Tuesday after arriving late to practice the day before.`\
+https://nytimes.com/athletic/6895068/2025/12/16/blackhawks-maple-leafs-artyom-levshunov-scratched/
+
+**‘I always take responsibility’: Blackhawks’ Artyom Levshunov scratched for being late**\
 `Levshunov sat out of Chicago's 3-2 loss to the Maple Leafs after arriving late to a team meeting.`\
 https://nytimes.com/athletic/6895068/2025/12/16/blackhawks-maple-leafs-artyom-levshunov-scratched/
 
