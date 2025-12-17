@@ -1,3 +1,11 @@
+**Like Barked Orders**\
+`Gary Larson and Doug Peterson have outmaneuvered us.`\
+https://nytimes.com/2025/12/16/crosswords/daily-puzzle-2025-12-17.html
+
+**Adam Silver floats possibility of playing NBA Cup final in 'storied college arenas'**\
+`Could we see the NBA Cup finale in a college venue like Cameron Indoor Stadium or Allen Fieldhouse? `\
+https://nytimes.com/athletic/6895286/2025/12/16/nba-cup-future-adam-silver-college-arena/
+
 **Why Nick Reiner Could Face the Death Penalty**\
 `The two first-degree murder counts include a special circumstance, which increases the maximum punishment if he is convicted.`\
 https://nytimes.com/2025/12/16/us/nick-reiner-death-penalty-murder.html

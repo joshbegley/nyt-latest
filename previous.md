@@ -1,3 +1,11 @@
+**Like Barked Orders**\
+`Gary Larson and Doug Peterson have outmaneuvered us.`\
+https://nytimes.com/2025/12/16/crosswords/daily-puzzle-2025-12-17.html
+
+**Adam Silver floats possibility of playing NBA Cup final in 'storied college arenas'**\
+`Could we see the NBA Cup finale in a college venue like Cameron Indoor Stadium or Allen Fieldhouse? `\
+https://nytimes.com/athletic/6895286/2025/12/16/nba-cup-future-adam-silver-college-arena/
+
 **Why Nick Reiner Could Face the Death Penalty**\
 `The two first-degree murder counts include a special circumstance, which increases the maximum punishment if he is convicted.`\
 https://nytimes.com/2025/12/16/us/nick-reiner-death-penalty-murder.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6895216/2025/12/16/adam-silver-nba-expansion-2026-l
 **Pound-for-pound great Terence 'Bud' Crawford retires from boxing at 42-0**\
 `Crawford last fought in September where he cemented his legacy as one of the all-time greats with an upset victory against Canelo Alvarez.`\
 https://nytimes.com/athletic/6895213/2025/12/16/terence-crawford-boxing-retirement-undefeated/
-
-**Oilers' Leon Draisaitl scores 1,000th point: 'He's showing no signs of slowing down'**\
-`Draisaitl became the fifth-fastest player born outside of North America to reach the 1,000-point milestone.`\
-https://nytimes.com/athletic/6891612/2025/12/16/leon-draisaitl-oilers-1000-points/
-
-**Trump Orders Blockade of Some Oil Tankers Around Venezuela**\
-`The president announced the move using bellicose language, in an escalation of his pressure campaign against Nicolás Maduro, Venezuela’s leader. But its scope and economic effects were not clear.`\
-https://nytimes.com/2025/12/16/us/politics/trump-blockade-venezuela-oil-tankers.html
 
