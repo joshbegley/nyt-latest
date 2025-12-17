@@ -1,3 +1,7 @@
+**Trump Administration Live Updates: Venezuela Condemns U.S. Blockade on Some Oil Tankers**\
+``\
+https://nytimes.com/live/2025/12/17/us/trump-news
+
 **Carlos Alcaraz splits with coach Juan Carlos Ferrero after six Grand Slams and seven years**\
 `The world No. 1 confirmed the split on social media, saying that they made the decision together.`\
 https://nytimes.com/athletic/6896095/2025/12/17/carlos-alcaraz-juan-carlos-ferrero-split/

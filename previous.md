@@ -1,3 +1,7 @@
+**Trump Administration Live Updates: Venezuela Condemns U.S. Blockade on Some Oil Tankers**\
+``\
+https://nytimes.com/live/2025/12/17/us/trump-news
+
 **Forecasters Warn of More Possible Flooding in Washington State**\
 `Heavy rain and strong winds through early Wednesday could bring additional flooding to Washington State, forecasters warned.`\
 https://nytimes.com/video/us/100000010592884/washington-storm-flooding.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6895006/2025/12/17/bears-packers-rematch-nfc-playof
 **A Kevin Stefanski, Browns divorce may be coming. A lot can be learned from latest disaster**\
 `Stefanski might be in his final days as Cleveland's head coach because of the Deshaun Watson trade and the catastrophes that followed.`\
 https://nytimes.com/athletic/6893560/2025/12/17/kevin-stefanski-browns-coaching-hot-seat/
-
-**College Football Playoff guide for bandwagon fans: Reasons to root for (and against) every team**\
-`Looking for a team to root for in the CFP? We've got you covered. `\
-https://nytimes.com/athletic/6894461/2025/12/17/college-football-playoff-bandwagon-fan-guide-2025/
 
