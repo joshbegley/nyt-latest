@@ -1,3 +1,7 @@
+**Cowboys WR George Pickens on recent criticism: ‘It’s starting to get kinda old’**\
+`Pickens has career-highs with 81 receptions, 1,212 yards and eight TD catches.`\
+https://nytimes.com/athletic/6897781/2025/12/17/cowboys-george-pickens-criticism/
+
 **Scoop City: Miami's $212 million quarterback, benched**\
 `A Miami quarterback decision, resources for the league's worst teams and two long-awaited breakouts, plus Mike Sando on Aaron Rodgers`\
 https://nytimes.com/athletic/6897793/2025/12/17/dolphins-bench-tua-tagovailoa-aaron-rodgers-giants-titans-raiders/

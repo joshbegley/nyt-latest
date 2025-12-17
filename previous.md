@@ -1,3 +1,7 @@
+**Cowboys WR George Pickens on recent criticism: ‘It’s starting to get kinda old’**\
+`Pickens has career-highs with 81 receptions, 1,212 yards and eight TD catches.`\
+https://nytimes.com/athletic/6897781/2025/12/17/cowboys-george-pickens-criticism/
+
 **Scoop City: Miami's $212 million quarterback, benched**\
 `A Miami quarterback decision, resources for the league's worst teams and two long-awaited breakouts, plus Mike Sando on Aaron Rodgers`\
 https://nytimes.com/athletic/6897793/2025/12/17/dolphins-bench-tua-tagovailoa-aaron-rodgers-giants-titans-raiders/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/17/us/politics/jack-smith-trump-prosecutions-congres
 **A Study Linked Cheese to Lower Dementia Risk. Is That Too Good to Be True?**\
 `Dairy fat has been making the headlines. Here’s what to know.`\
 https://nytimes.com/2025/12/17/well/eat/cheese-dementia-study.html
-
-**Woman in ‘Slender Man’ Stabbing Won’t Contest Effort to Revoke Her Release**\
-`Morgan Geyser, who was convicted after she stabbed a friend in 2014 to please a fictional character, was arrested last month after she cut off a monitoring bracelet and fled from a group home.`\
-https://nytimes.com/2025/12/17/us/morgan-geyser-slender-man-release-privileges.html
 
