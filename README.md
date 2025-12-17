@@ -1,3 +1,7 @@
+**California’s ‘Twilight Zone’ of Endless Fog Is Finally Clearing**\
+`An unrelenting gloom has blanketed much of the state’s Central Valley since late November.`\
+https://nytimes.com/2025/12/17/weather/california-tule-fog-central-valley.html
+
 **Submit your questions for Kevin Fishbain's Bears mailbag**\
 `The 10-4 Bears host the Packers on Saturday night with first place in the NFC North on the line. We welcome your questions.`\
 https://nytimes.com/athletic/6897490/2025/12/17/bears-mailbag-questions-52/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/17/nyregion/hate-crime-stabbing-chabad.html
 **No-Churn Olive Oil Ice Cream With Hot Fudge**\
 `At Ecco restaurant in Atlanta, one dessert stands above the rest: a salted olive oil gelato. Inspired by that dish in flavor but not in method, this frozen treat doesn’t require an ice-cream maker.`\
 https://nytimes.com/video/dining/100000010368578/no-churn-olive-oil-ice-cream-with-hot-fudge.html
-
-**Storm Knocks Out Power for Hundreds of Thousands in the Pacific Northwest**\
-`The region has faced significant flooding in the last week. Powerful winds from another storm have compounded the misery.`\
-https://nytimes.com/2025/12/17/weather/wind-power-outages-british-columbia-washington-oregon.html
 
