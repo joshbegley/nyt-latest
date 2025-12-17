@@ -1,3 +1,11 @@
+**Lowetide: Connor McDavid's soaring December is leading Oilers back up standings**\
+`McDavid is back on track, and with Zach Hyman healthy, the Oilers have a fantastic top line.`\
+https://nytimes.com/athletic/6893829/2025/12/17/connor-mcdavid-oilers-stat-standings-december-2025/
+
+**AC Milan in talks over move for West Ham's Fullkrug**\
+`Fullkrug's agent said last month it would "make sense" for the 32-year-old to leave West Ham.`\
+https://nytimes.com/athletic/6896447/2025/12/17/niclas-fullkrug-milan-west-ham/
+
 **2025's most tectonically powerful sports business storylines: MoneyCall**\
 `Welcome back to MoneyCall, The Athletic’s weekly sports business cheat sheet.`\
 https://nytimes.com/athletic/6896579/2025/12/17/2025-year-end-sports-business-moneycall/
