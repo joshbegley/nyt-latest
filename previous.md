@@ -1,3 +1,7 @@
+**Fani Willis Calls Trump and Allies ‘Criminals’ at Georgia Senate Hearing**\
+`The district attorney in Atlanta addressed a Republican-led committee created to investigate her conduct during her prosecution of President Trump last year.`\
+https://nytimes.com/2025/12/17/us/fani-willis-georgia-senate-hearing-trump.html
+
 **What to Know About the New Flu Variant**\
 `Scientists have expressed alarm about the dominant version of the virus that’s circulating now.`\
 https://nytimes.com/2025/12/17/well/new-flu-variant-symptoms.html
@@ -6,7 +10,7 @@ https://nytimes.com/2025/12/17/well/new-flu-variant-symptoms.html
 `Las Vegas may seem obvious, but is it still a good option? And are owners willing to split the financial pie even more?`\
 https://nytimes.com/athletic/6896797/2025/12/17/nba-expansion-las-vegas-seattle-adam-silver/
 
-**Security Camera Footage Shows Nick Reiner Enter Store an Hour Before His Arrest**\
+**Video Footage Shows Nick Reiner Enter Store an Hour Before His Arrest**\
 `Mr. Reiner was filmed entering a gas station’s store in South Los Angeles to buy a sports drink roughly an hour before he was arrested by the police across the street.`\
 https://nytimes.com/2025/12/17/us/nick-reiner-arrest-video-gas-station.html
 
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/17/weather/california-tule-fog-central-valley.html
 **Submit your questions for Kevin Fishbain's Bears mailbag**\
 `The 10-4 Bears host the Packers on Saturday night with first place in the NFC North on the line. We welcome your questions.`\
 https://nytimes.com/athletic/6897490/2025/12/17/bears-mailbag-questions-52/
-
-**Finland Apologizes to China, Japan and South Korea for Racist Gesture**\
-`A Finnish beauty queen was stripped of her crown for a gesture mocking Asians. After Finnish lawmakers have copied her, Finland’s prime minister is trying to defuse the controversy.`\
-https://nytimes.com/2025/12/17/world/europe/finland-scandal-beauty-queen-china-racist.html
 

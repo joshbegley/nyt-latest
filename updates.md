@@ -1,3 +1,11 @@
+**Fani Willis Calls Trump and Allies ‘Criminals’ at Georgia Senate Hearing**\
+`The district attorney in Atlanta addressed a Republican-led committee created to investigate her conduct during her prosecution of President Trump last year.`\
+https://nytimes.com/2025/12/17/us/fani-willis-georgia-senate-hearing-trump.html
+
+**Video Footage Shows Nick Reiner Enter Store an Hour Before His Arrest**\
+`Mr. Reiner was filmed entering a gas station’s store in South Los Angeles to buy a sports drink roughly an hour before he was arrested by the police across the street.`\
+https://nytimes.com/2025/12/17/us/nick-reiner-arrest-video-gas-station.html
+
 **What to Know About the New Flu Variant**\
 `Scientists have expressed alarm about the dominant version of the virus that’s circulating now.`\
 https://nytimes.com/2025/12/17/well/new-flu-variant-symptoms.html
