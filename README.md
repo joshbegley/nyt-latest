@@ -1,3 +1,7 @@
+**Team Races Against Time to Save a Tangled Sea Lion in British Columbia**\
+`Experts tracked the sea lion, which had a rope around its neck, for over a month before they were able to catch up to it in Cowichan Bay, Canada.`\
+https://nytimes.com/2025/12/16/world/canada/sea-lion-rescue-cowichan-bay-vancouver.html
+
 **Penguins Become Prey for the Pumas of Patagonia**\
 `In Argentina, the return of pumas brought top predators back to the landscape — much to penguins’ dismay.`\
 https://nytimes.com/2025/12/16/science/penguins-pumas-patagonia.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6895011/2025/12/16/sabrina-ionescus-los-angeles-hom
 **Jared Kushner’s Firm Pulls Out of Bid for Warner Bros. Discovery**\
 `Affinity Partners, Mr. Kushner’s private equity firm, played a small financial role in Paramount’s $108 billion offer, but it had attracted political attention to the deal.`\
 https://nytimes.com/2025/12/16/business/kushner-paramount-warner-bros-discovery.html
-
-**Cubs' bullpen picture coming into focus with Caleb Thielbar as latest signing: Source**\
-`With Thielbar, the Cubs can now attack hitters from the left side with two drastically different arm angles.`\
-https://nytimes.com/athletic/6894942/2025/12/16/cubs-bullpen-caleb-thielbar-signing-source/
 

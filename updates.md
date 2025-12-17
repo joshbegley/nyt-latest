@@ -1,3 +1,11 @@
+**Penguins Become Prey for the Pumas of Patagonia**\
+`In Argentina, the return of pumas brought top predators back to the landscape — much to penguins’ dismay.`\
+https://nytimes.com/2025/12/16/science/penguins-pumas-patagonia.html
+
+**When the Bones Were Good, These Bees Buried Their Babies**\
+`A cave in the Dominican Republic concealed thousands of years worth of animal bones that had been turned into nests by prehistoric bees.`\
+https://nytimes.com/2025/12/16/science/bees-bones-nests.html
+
 **Chuck Neinas, exec who helped shape modern college football, dies at 93**\
 `Neinas helped drive changes that altered traditional TV arrangements led to a wave of conference realignment.`\
 https://nytimes.com/athletic/6894960/2025/12/16/chuck-neinas-big-12-obituary-college-football/
