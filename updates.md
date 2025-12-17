@@ -1,3 +1,7 @@
+**Why Nick Reiner Could Face the Death Penalty**\
+`The two first-degree murder counts include a special circumstance, which increases the maximum punishment if he is convicted.`\
+https://nytimes.com/2025/12/16/us/nick-reiner-death-penalty-murder.html
+
 **Prosecutors Charge Nick Reiner With Murdering His Parents**\
 `Los Angeles prosecutors charged Nick Reiner with two counts of first-degree murder in the deaths of his parents, the director Rob Reiner and Michele Singer Reiner.`\
 https://nytimes.com/video/us/100000010592318/nick-reiner-charges-murder-rob-michele.html

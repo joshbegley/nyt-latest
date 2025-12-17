@@ -1,3 +1,7 @@
+**Why Nick Reiner Could Face the Death Penalty**\
+`The two first-degree murder counts include a special circumstance, which increases the maximum punishment if he is convicted.`\
+https://nytimes.com/2025/12/16/us/nick-reiner-death-penalty-murder.html
+
 **Prosecutors Charge Nick Reiner With Murdering His Parents**\
 `Los Angeles prosecutors charged Nick Reiner with two counts of first-degree murder in the deaths of his parents, the director Rob Reiner and Michele Singer Reiner.`\
 https://nytimes.com/video/us/100000010592318/nick-reiner-charges-murder-rob-michele.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6891612/2025/12/16/leon-draisaitl-oilers-1000-point
 **Trump Orders Blockade of Some Oil Tankers Around Venezuela**\
 `The president announced the move using bellicose language, in an escalation of his pressure campaign against Nicolás Maduro, Venezuela’s leader. But its scope and economic effects were not clear.`\
 https://nytimes.com/2025/12/16/us/politics/trump-blockade-venezuela-oil-tankers.html
-
-**Giants guarantee $22 million to Adrian Houser, adding depth if not flash to rotation**\
-`Houser is expected to help fill out a rotation that's light on experience behind 2025 NL All-Stars Logan Webb and Robbie Ray.`\
-https://nytimes.com/athletic/6895081/2025/12/16/giants-sign-adrian-houser-mlb/
 
