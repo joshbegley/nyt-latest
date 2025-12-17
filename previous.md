@@ -1,3 +1,15 @@
+**Inter Miami nearing deal for Canada goalkeeper St. Clair**\
+`St. Clair was named 2025 MLS Goalkeeper of the Year and is one of the marquee free agents on the market.`\
+https://nytimes.com/athletic/6897749/2025/12/17/dayne-st-clair-inter-miami-transfer/
+
+**A 4-point plan for new Penguins owners to fix FSG's weaknesses**\
+`The Penguins' new owners have several urgent questions to answer. Here's where they should start.`\
+https://nytimes.com/athletic/6897268/2025/12/17/penguins-sale-hoffmann-family-nhl-fsg/
+
+**Will Kenley Jansen get to 500 saves with the Tigers? Here's how he fits in Detroit**\
+`Will Jansen be a traditional closer? Can he stave off decline? Those are the questions entering his new contract.`\
+https://nytimes.com/athletic/6897464/2025/12/17/kenley-jansen-detroit-tigers-closer-500-saves/
+
 **Cowboys WR George Pickens on recent criticism: ‘It’s starting to get kinda old’**\
 `Pickens has career-highs with 81 receptions, 1,212 yards and eight TD catches.`\
 https://nytimes.com/athletic/6897781/2025/12/17/cowboys-george-pickens-criticism/
@@ -21,16 +33,4 @@ https://nytimes.com/2025/12/17/t-magazine/james-barnor-photography-moma.html
 **Tiny Love Stories: ‘Good Riddance, Christmas’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2025/12/17/style/tiny-modern-love-stories-good-riddance-christmas.html
-
-**Chelsea, Bayern reach UWCL quarter-finals: Who else qualified, how do the play-offs work?**\
-`Manchester United and Arsenal both moved up the table with their respective wins over Juventus and OH Leuven.`\
-https://nytimes.com/athletic/6896560/2025/12/17/womens-champions-league-league-phase/
-
-**House Republicans Press Jack Smith Over Investigations Into Trump**\
-`Even adversaries of Jack Smith, the former special counsel, conceded that his tight-lipped, painstaking approach made tripping him up particularly difficult.`\
-https://nytimes.com/2025/12/17/us/politics/jack-smith-trump-prosecutions-congress.html
-
-**A Study Linked Cheese to Lower Dementia Risk. Is That Too Good to Be True?**\
-`Dairy fat has been making the headlines. Here’s what to know.`\
-https://nytimes.com/2025/12/17/well/eat/cheese-dementia-study.html
 

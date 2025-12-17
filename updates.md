@@ -1,3 +1,15 @@
+**Inter Miami nearing deal for Canada goalkeeper St. Clair**\
+`St. Clair was named 2025 MLS Goalkeeper of the Year and is one of the marquee free agents on the market.`\
+https://nytimes.com/athletic/6897749/2025/12/17/dayne-st-clair-inter-miami-transfer/
+
+**A 4-point plan for new Penguins owners to fix FSG's weaknesses**\
+`The Penguins' new owners have several urgent questions to answer. Here's where they should start.`\
+https://nytimes.com/athletic/6897268/2025/12/17/penguins-sale-hoffmann-family-nhl-fsg/
+
+**Will Kenley Jansen get to 500 saves with the Tigers? Here's how he fits in Detroit**\
+`Will Jansen be a traditional closer? Can he stave off decline? Those are the questions entering his new contract.`\
+https://nytimes.com/athletic/6897464/2025/12/17/kenley-jansen-detroit-tigers-closer-500-saves/
+
 **Cowboys WR George Pickens on recent criticism: ‘It’s starting to get kinda old’**\
 `Pickens has career-highs with 81 receptions, 1,212 yards and eight TD catches.`\
 https://nytimes.com/athletic/6897781/2025/12/17/cowboys-george-pickens-criticism/
