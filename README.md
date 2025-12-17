@@ -1,3 +1,23 @@
+**Health Department Cancels Grants to Group That Criticized Kennedy’s Vaccine Policies**\
+`The American Academy of Pediatrics had called the department’s policies “irresponsible and purposefully misleading” and joined a lawsuit against its vaccine policy.`\
+https://nytimes.com/2025/12/17/us/politics/health-department-grants-kennedy-cavvines.html
+
+**Bears expand stadium search beyond Arlington Heights — including northwest Indiana**\
+`The Bears' letter served as a new concession that their desired path to getting their stadium project moved forward has been obstructed.`\
+https://nytimes.com/athletic/6897939/2025/12/17/bears-stadium-search-northwest-indiana/
+
+**Kerr: Warriors have answers they need on current roster, including Kuminga**\
+`Warriors coach doesn't believe team needs to add to roster, plans to give more playing time to 23-year-old forward.`\
+https://nytimes.com/athletic/6897713/2025/12/17/warriors-steve-kerr-jonathan-kuminga-roster/
+
+**Trump’s Claim That Venezuela ‘Stole’ U.S. Oil Fields Touches Nationalist Nerve**\
+`President Trump said the United States wanted to reclaim expropriated oil assets, setting off a nationalist reaction in a country where the resource holds a mythical status.`\
+https://nytimes.com/2025/12/17/world/americas/trump-venezuela-oil-fields-stolen-claims.html
+
+**Defense Dept. Opens Formal Inquiry Into Senator Mark Kelly**\
+`The Pentagon said it was initiating a “command investigation” into the senator, another extraordinary step as the Trump administration seeks retribution against the president’s perceived foes.`\
+https://nytimes.com/2025/12/17/us/politics/mark-kelly-defense-department-inquiry.html
+
 **Flying Taxis? China Has Them. And Drone Lunch Deliveries, Too.**\
 `China’s experiments in clean energy can feel like living in the future. Even when things don’t quite work.`\
 https://nytimes.com/interactive/2025/12/17/climate/china-hefei-clean-energy-drones-evs-robots.html
@@ -13,24 +33,4 @@ https://nytimes.com/2025/12/17/us/politics/trump-venezuela-house-vote.html
 **Hans van Manen, Celebrated Dutch Choreographer, Is Dead at 93**\
 `He rose from poverty to become one of the Netherlands’ most revered dance makers, creating more than 150 avant-garde works in a career spanning eight decades.`\
 https://nytimes.com/2025/12/17/arts/dance/hans-van-manen-dead.html
-
-**How the ‘Wicked’ Movies Turbocharged a Broadway Juggernaut**\
-`The musical was already one of theater’s biggest success stories. Then came Hollywood.`\
-https://nytimes.com/interactive/2025/12/17/theater/wicked-movies-broadway-earnings.html
-
-**Carabao Cup semi-final draw: Chelsea to face Arsenal or Palace, Newcastle play Man City**\
-`The semi-final draw was conducted on Wednesday after Newcastle and Manchester City booked progressed.`\
-https://nytimes.com/athletic/6897618/2025/12/17/carabao-cup-quarter-final-draw-teams-2025/
-
-**Trump Finds That Retribution Isn’t Always So Easy**\
-`In some ways, Trump’s broader flexing of power has achieved what he set out to do. But his attempts to push prosecutions of rivals have been far less successful.`\
-https://nytimes.com/2025/12/17/us/politics/trump-retribution-revenge.html
-
-**The U.S. Seeks to Increase Denaturalizations**\
-`Also, New York will allow the terminally ill to end their lives. Here’s the latest at the end of Wednesday.`\
-https://nytimes.com/2025/12/17/briefing/the-us-seeks-to-increase-denaturalizations.html
-
-**Inter Miami nearing deal for Canada goalkeeper St. Clair**\
-`St. Clair was named 2025 MLS Goalkeeper of the Year and is one of the marquee free agents on the market.`\
-https://nytimes.com/athletic/6897749/2025/12/17/dayne-st-clair-inter-miami-transfer/
 

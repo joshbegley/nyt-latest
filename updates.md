@@ -1,3 +1,7 @@
+**Flying Taxis? China Has Them. And Drone Lunch Deliveries, Too.**\
+`China’s experiments in clean energy can feel like living in the future. Even when things don’t quite work.`\
+https://nytimes.com/interactive/2025/12/17/climate/china-hefei-clean-energy-drones-evs-robots.html
+
 **Guardiola says Bobb got hamstring injury in Carabao Cup win but hopefully 'back soon'**\
 `The City midfielder was substituted in the 19th minute and went straight down the tunnel during the Carabao Cup game.`\
 https://nytimes.com/athletic/6897763/2025/12/17/oscar-bobb-hamstring-injury/

@@ -1,3 +1,7 @@
+**Flying Taxis? China Has Them. And Drone Lunch Deliveries, Too.**\
+`China’s experiments in clean energy can feel like living in the future. Even when things don’t quite work.`\
+https://nytimes.com/interactive/2025/12/17/climate/china-hefei-clean-energy-drones-evs-robots.html
+
 **Guardiola says Bobb got hamstring injury in Carabao Cup win but hopefully 'back soon'**\
 `The City midfielder was substituted in the 19th minute and went straight down the tunnel during the Carabao Cup game.`\
 https://nytimes.com/athletic/6897763/2025/12/17/oscar-bobb-hamstring-injury/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/17/briefing/the-us-seeks-to-increase-denaturalizatio
 **Inter Miami nearing deal for Canada goalkeeper St. Clair**\
 `St. Clair was named 2025 MLS Goalkeeper of the Year and is one of the marquee free agents on the market.`\
 https://nytimes.com/athletic/6897749/2025/12/17/dayne-st-clair-inter-miami-transfer/
-
-**A 4-point plan for new Penguins owners to fix FSG's weaknesses**\
-`The Penguins' new owners have several urgent questions to answer. Here's where they should start.`\
-https://nytimes.com/athletic/6897268/2025/12/17/penguins-sale-hoffmann-family-nhl-fsg/
 
