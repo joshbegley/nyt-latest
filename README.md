@@ -1,36 +1,36 @@
+**Who wins: A team of Canadians who played in Canada or Americans who played in America?**\
+`It's Double Canadians vs. Double Americans, two teams made up of players who represent their country both internationally and in the NHL.`\
+https://nytimes.com/athletic/6895161/2025/12/17/nhl-team-canada-usa-players-olympics/
+
+**Here’s the latest.**\
+`By Jesus Jiménez`\
+https://nytimes.com/live/2025/12/17/us/rob-nick-reiner-murder-charges/heres-the-latest
+
+**Live Updates: Prosecutors Build Case Against Son in Reiner Killings**\
+`It was unclear when Nick Reiner would be medically cleared to appear in court for an arraignment after he was charged with murdering his parents, Rob and Michele Singer Reiner.`\
+https://nytimes.com/live/2025/12/17/us/rob-nick-reiner-murder-charges
+
+**Greenpeace’s Fight With Pipeline Giant Exposes a Legal Loophole**\
+`A court filing by a group with deep ties to the pipeline company Energy Transfer raises questions about the growing use of amicus briefs in litigation.`\
+https://nytimes.com/2025/12/17/climate/greenpeaces-fight-with-pipeline-giant-exposes-a-legal-loophole.html
+
+**Anti-Vaccine Influencers Are Only Getting Stronger**\
+`I was wrong about how to push back.`\
+https://nytimes.com/2025/12/17/opinion/anti-vaccine-influencers.html
+
+**Your Holiday Dilemmas, Solved!**\
+`Our columnist offers guidance on holiday travel, gift exchanges and seasonal hospitality. (Must it extend to electric vehicle charging?)`\
+https://nytimes.com/2025/12/17/style/holiday-etiquette-questions.html
+
+**Surviving Bondi Suspect Charged With Terrorism and Murder**\
+`The surviving suspect in the mass shooting at Bondi Beach in Sydney, Australia, on Sunday, in which at least 15 people were killed, has been charged with murder and terrorism, the police said on Wednesday.`\
+https://nytimes.com/video/world/australia/100000010592674/bondi-suspect-charged-terrorism-murder.html
+
+**Australia Shooting Is a Reminder of Islamic State’s Power to Inspire Attacks**\
+`ISIS is too weakened to seize territory, experts said, but its ability to churn out propaganda aimed at provoking violence against the West persists.`\
+https://nytimes.com/2025/12/17/world/europe/islamic-state-attacks-australia.html
+
 **Malaysian FA says three matches forfeited by FIFA due to ineligible players**\
 `Malasyia's 1-1 draw against Cape Verde, 2-1 win against Singapore, and 1-0 win against Palestine have been declared as 3-0 defeats.`\
 https://nytimes.com/athletic/6896092/2025/12/17/malaysia-friendlies-forfeited-ineligible-players/
-
-**Statue of Liberty Replica Collapses in Brazil**\
-`Strong winds knocked over a replica of the Statue of Liberty outside of a department store in southern Brazil. There were no injuries, according to Brazilian local media.`\
-https://nytimes.com/video/world/americas/100000010592933/brazil-statue-of-liberty-fall.html
-
-**South Africa Arrests Workers Processing U.S. Refugee Applications**\
-`Seven Kenyans were detained for working in the country illegally, officials said. The arrests came amid rising tensions after the United States prioritized white Afrikaners seeking asylum.`\
-https://nytimes.com/2025/12/17/world/africa/south-africa-kenya-workers.html
-
-**A New Stage in the Fight for Warner Bros. Discovery**\
-`The media company formally rejected a hostile takeover bid by Paramount and questioned the purported political advantages held by its unwanted suitor.`\
-https://nytimes.com/2025/12/17/business/dealbook/paramount-warner-bros-netflix.html
-
-**FIFA Council approves record $655m prize fund for 2026 World Cup**\
-`The fund marks a 50 per cent increase from the 2022 tournament in Qatar and will see the winners of the competition earning $50million.`\
-https://nytimes.com/athletic/6896180/2025/12/17/fifa-world-cup-record-prize-fund/
-
-**UK ups pressure on Abramovich to transfer £2.5bn from Chelsea sale to Ukraine victims**\
-`This latest threat follows a more than three-year impasse between the Russian oligarch and the UK government.`\
-https://nytimes.com/athletic/6896168/2025/12/17/uk-increases-pressure-on-roman-abramovich-to-transfer-2-5bn-from-chelsea-sale-to-ukraine-victims/
-
-**He’s Only 4 Feet Tall, but Paddington Is London’s Biggest New Musical Star**\
-`Audiences are falling in love with the title character in “Paddington: The Musical.” Bringing such a beloved bear to the stage was “a huge responsibility,” the show’s director said.`\
-https://nytimes.com/2025/12/17/arts/paddington-bear-musical.html
-
-**Billy Crystal, Larry David and Others Remember Rob Reiner as a ‘Master Story Teller’**\
-`A group of prominent figures issued a statement memorializing Mr. Reiner and his wife, Michele Singer Reiner. “We were their friends, and we will miss them forever.”`\
-https://nytimes.com/2025/12/17/us/billy-crystal-larry-david-rob-reiner-statement.html
-
-**Mandel's Mailbag: Michigan's coaching mess, Notre Dame and the ACC's relationship on edge**\
-`Plus, landing spots for the top QBs in the portal and if the Playoff does expand, how will they fit more games into the schedule?`\
-https://nytimes.com/athletic/6895349/2025/12/17/michigan-notre-dame-acc-mandel-mailbag/
 
