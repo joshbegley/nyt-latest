@@ -1,3 +1,7 @@
+**Adam Silver: NBA to decide on expansion in 2026 with Vegas, Seattle focus**\
+`Silver clarified that Seattle and Las Vegas are the two American cities which the league is most focused. `\
+https://nytimes.com/athletic/6895216/2025/12/16/adam-silver-nba-expansion-2026-las-vegas-seattle/
+
 **Pound-for-pound great Terence 'Bud' Crawford retires from boxing at 42-0**\
 `Crawford last fought in September where he cemented his legacy as one of the all-time greats with an upset victory against Canelo Alvarez.`\
 https://nytimes.com/athletic/6895213/2025/12/16/terence-crawford-boxing-retirement-undefeated/
