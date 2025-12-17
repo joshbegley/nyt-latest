@@ -1,3 +1,7 @@
+**Tarasenko, Trenin have huge nights as short-handed Wild steamroll Caps**\
+`This run is a far cry from the last few years, when the Wild's season fell apart once injuries started to pile up.`\
+https://nytimes.com/athletic/6895186/2025/12/17/tarasenko-yurov-wild-shut-out-capitals/
+
 **Australia Begins Burying Victims of Bondi Shooting**\
 `The funerals began as authorities said they were gearing up to charge one of the suspects behind the country’s worst mass shooting in three decades, who awoke from a coma.`\
 https://nytimes.com/2025/12/17/world/asia/australia-bondi-beach-shooting.html
@@ -30,8 +34,4 @@ https://nytimes.com/athletic/6893422/2025/12/17/liverpool-dressing-room-leaders/
 **Lee Trundle, a Wrexham and Swansea legend, and football's most unlikely cult hero**\
 `Despite never playing at the top level, Trundle was a player whose skills went viral in an era before social media was even a thing`\
 https://nytimes.com/athletic/6862015/2025/12/17/lee-trundle-swansea-wrexham-soccer-am/
-
-**A discussion about Viktor Gyokeres' start at Arsenal**\
-`The 27-year-old has six goals in 19 appearances since a summer move from Sporting CP - our Arsenal writers discuss how he has performed`\
-https://nytimes.com/athletic/6891574/2025/12/17/viktor-gyokeres-arsenal-arteta-havertz/
 

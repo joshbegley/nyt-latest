@@ -1,3 +1,12 @@
+**Tarasenko, Trenin have huge nights as short-handed Wild steamroll Caps**\
+`This run is a far cry from the last few years, when the Wild's season fell apart once injuries started to pile up.`\
+https://nytimes.com/athletic/6895186/2025/12/17/tarasenko-yurov-wild-shut-out-capitals/
+
+**Even after comeback win, Leafs can't afford to keep playing with fire**\
+`A thrilling eight seconds may have been the difference in Toronto's 3-2 win over Chicago, but it isn’t tenable going forward.
+`\
+https://nytimes.com/athletic/6895539/2025/12/17/maple-leafs-blackhawks-auston-matthews-comeback-win/
+
 **Even after comeback win, Leafs can't afford to keep playing with fire**\
 `A thrilling eight seconds may have been the difference in Toronto's 3-2 win over Chicago, but it isn’t tenable going forward.
 `\

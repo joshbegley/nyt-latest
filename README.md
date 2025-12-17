@@ -1,9 +1,17 @@
+**The New York Times in Print for Wednesday, Dec. 17, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/12/17/todays-new-york-times
+
+**Chile Is Swerving to the Right — and Into the Past**\
+`Chile’s new leader wants to rewrite its past and recast its future.`\
+https://nytimes.com/2025/12/17/opinion/chile-election-kast-pinochet.html
+
 **Tarasenko, Trenin have huge nights as short-handed Wild steamroll Caps**\
 `This run is a far cry from the last few years, when the Wild's season fell apart once injuries started to pile up.`\
 https://nytimes.com/athletic/6895186/2025/12/17/tarasenko-yurov-wild-shut-out-capitals/
 
-**Australia Begins Burying Victims of Bondi Shooting**\
-`The funerals began as authorities said they were gearing up to charge one of the suspects behind the country’s worst mass shooting in three decades, who awoke from a coma.`\
+**Suspect in Bondi Beach Massacre Is Charged With Murder and Terrorism**\
+`The Australian authorities said the 24-year-old man, who had been shot by the police, woke from a coma on Tuesday afternoon.`\
 https://nytimes.com/2025/12/17/world/asia/australia-bondi-beach-shooting.html
 
 **On Bali, the Holiday Vibe Masks Memories of a Massacre**\
@@ -26,12 +34,4 @@ https://nytimes.com/athletic/6895539/2025/12/17/maple-leafs-blackhawks-auston-ma
 **The tragedy of Billy Vigar and what football did next**\
 `Vigar's tragic death after striking his head on a perimeter wall led to claims football did not do enough to ensure the safety of players`\
 https://nytimes.com/athletic/6884653/2025/12/17/billy-vigar-death/
-
-**Inside Liverpool's dressing room: 'Main character energy', the quiet men, and who takes criticism personally?**\
-`Arne Slot's squad is much changed this season – so what dynamics are at play now?`\
-https://nytimes.com/athletic/6893422/2025/12/17/liverpool-dressing-room-leaders/
-
-**Lee Trundle, a Wrexham and Swansea legend, and football's most unlikely cult hero**\
-`Despite never playing at the top level, Trundle was a player whose skills went viral in an era before social media was even a thing`\
-https://nytimes.com/athletic/6862015/2025/12/17/lee-trundle-swansea-wrexham-soccer-am/
 
