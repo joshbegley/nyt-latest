@@ -1,3 +1,7 @@
+**UK ups pressure on Abramovich to transfer £2.5bn from Chelsea sale to Ukraine victims**\
+`This latest threat follows a more than three-year impasse between the Russian oligarch and the UK government.`\
+https://nytimes.com/athletic/6896168/2025/12/17/uk-increases-pressure-on-roman-abramovich-to-transfer-2-5bn-from-chelsea-sale-to-ukraine-victims/
+
 **He’s Only 4 Feet Tall, but Paddington Is London’s Biggest New Musical Star**\
 `Audiences are falling in love with the title character in “Paddington: The Musical.” Bringing such a beloved bear to the stage was “a huge responsibility,” the show’s director said.`\
 https://nytimes.com/2025/12/17/arts/paddington-bear-musical.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6896098/2025/12/17/mazraoui-afcon-morocco-mancheste
 **Warner Bros. Says Ellisons ‘Misled’ Shareholders in Takeover Bid**\
 `The claim was made as part of Warner Bros. Discovery’s dismissal of Paramount’s hostile takeover offer.`\
 https://nytimes.com/2025/12/17/business/media/warner-bros-paramount-takeover-netflix.html
-
-**Carlos Alcaraz splits with coach Juan Carlos Ferrero after six Grand Slams and seven years**\
-`The world No. 1 confirmed the split on social media, saying that they made the decision together.`\
-https://nytimes.com/athletic/6896095/2025/12/17/carlos-alcaraz-juan-carlos-ferrero-split/
 

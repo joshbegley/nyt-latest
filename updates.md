@@ -1,3 +1,7 @@
+**UK ups pressure on Abramovich to transfer £2.5bn from Chelsea sale to Ukraine victims**\
+`This latest threat follows a more than three-year impasse between the Russian oligarch and the UK government.`\
+https://nytimes.com/athletic/6896168/2025/12/17/uk-increases-pressure-on-roman-abramovich-to-transfer-2-5bn-from-chelsea-sale-to-ukraine-victims/
+
 **From 'X-mode' to 'Corner Mode' — F1 car systems terms simplified for new 2026 designs**\
 `The FIA has changed several key terms that will be used to explain system changes on the new cars coming to F1 in 2026`\
 https://nytimes.com/athletic/6895408/2025/12/17/f1-2026-car-modes/
