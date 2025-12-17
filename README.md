@@ -1,3 +1,11 @@
+**House Republicans Press Jack Smith Over Investigations Into Trump**\
+`Even adversaries of Jack Smith, the former special counsel, conceded that his tight-lipped, painstaking approach made tripping him up particularly difficult.`\
+https://nytimes.com/2025/12/17/us/politics/jack-smith-trump-prosecutions-congress.html
+
+**A Study Linked Cheese to Lower Dementia Risk. Is That Too Good to Be True?**\
+`Dairy fat has been making the headlines. Here’s what to know.`\
+https://nytimes.com/2025/12/17/well/eat/cheese-dementia-study.html
+
 **Woman in ‘Slender Man’ Stabbing Won’t Contest Effort to Revoke Her Release**\
 `Morgan Geyser, who was convicted after she stabbed a friend in 2014 to please a fictional character, was arrested last month after she cut off a monitoring bracelet and fled from a group home.`\
 https://nytimes.com/2025/12/17/us/morgan-geyser-slender-man-release-privileges.html
@@ -25,12 +33,4 @@ https://nytimes.com/2025/12/17/us/fani-willis-georgia-senate-hearing-trump.html
 **What to Know About the New Flu Variant**\
 `Scientists have expressed alarm about the dominant version of the virus that’s circulating now.`\
 https://nytimes.com/2025/12/17/well/new-flu-variant-symptoms.html
-
-**NBA will decide on expansion in 2026. Here are 4 factors that may determine the choice**\
-`Las Vegas may seem obvious, but is it still a good option? And are owners willing to split the financial pie even more?`\
-https://nytimes.com/athletic/6896797/2025/12/17/nba-expansion-las-vegas-seattle-adam-silver/
-
-**Video Footage Shows Nick Reiner Enter Store an Hour Before His Arrest**\
-`Mr. Reiner was filmed entering a gas station’s store in South Los Angeles to buy a sports drink roughly an hour before he was arrested by the police across the street.`\
-https://nytimes.com/2025/12/17/us/nick-reiner-arrest-video-gas-station.html
 
