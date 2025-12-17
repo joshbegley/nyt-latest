@@ -1,3 +1,11 @@
+**Top Republican Examining Boat Strike ‘Satisfied’ With Military Mission**\
+`After viewing video of a follow-up strike, Republicans largely had confidence in the Pentagon’s legal rationale while Democrats questioned its legality.`\
+https://nytimes.com/2025/12/17/us/politics/boat-strike-video-questions-lawmakers.html
+
+**Maccabi Tel-Aviv fined for 'racist and/or discriminatory behaviour' in Europa League tie**\
+`UEFA has fined Maccabi €20,000 and given the club a suspended away fan ban`\
+https://nytimes.com/athletic/6896988/2025/12/17/maccabi-tel-aviv-stuttgart-uefa-sanctions/
+
 **Who is Quinn Ewers? Meet the Dolphins' new starting quarterback**\
 `Ewers was the final quarterback selected in last year’s NFL Draft despite entering the season projected as a top draft pick.`\
 https://nytimes.com/athletic/6896751/2025/12/17/quinn-ewers-miami-dolphins/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6897060/2025/12/17/worst-f1-predictions-2025-prime-
 **Rams' Puka Nacua criticizes NFL refs on live stream: 'They want to be on TV, too'**\
 `The Rams' All-Pro receiver made the comments during a live stream with Adin Ross and N3on. `\
 https://nytimes.com/athletic/6897073/2025/12/17/puka-nacua-rams-adin-ross-live-stream-refs/
-
-**‘Here We Go Again’: In Melania Trump’s Movie, This Time She Knows What She’s Doing**\
-`The first lady is behind a movie that she has said will give a better idea of what it was like for her to move into the White House for a second time.`\
-https://nytimes.com/2025/12/17/us/politics/melania-trump-movie-trailer.html
-
-**The prosecutors assigned to the Reiners’ killing are familiar with high-profile cases.**\
-`The lawyers, Habib Balian and Jonathan Chung, have managed complex homicide cases that attracted heavy attention from the media.`\
-https://nytimes.com/live/2025/12/17/us/rob-nick-reiner-murder-charges/the-prosecutors-assigned-to-the-reiners-killing-are-familiar-with-high-profile-cases
 
