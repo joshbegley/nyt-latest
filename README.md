@@ -1,3 +1,7 @@
+**The Ashes Briefing: Carey leads Australia's counter-attack after Archer gives England hope**\
+`England claimed eight wickets on the first day in Adelaide after Australia won the toss and batted, but Alex Carey was the star of the show`\
+https://nytimes.com/athletic/6888848/2025/12/17/ashes-australia-england-carey-khawaja-archer-briefing/
+
 **How to watch Patriots vs. Ravens: Time, TV, streaming**\
 `Find out how to watch the New England Patriots play the Baltimore Ravens, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6895784/2025/12/17/patriots-vs-ravens-stream-how-to-watch-dec-21/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/17/opinion/chile-election-kast-pinochet.html
 **Tarasenko, Yurov have huge nights as short-handed Wild steamroll Caps**\
 `This run is a far cry from the last few years, when the Wild's season fell apart once injuries started to pile up.`\
 https://nytimes.com/athletic/6895186/2025/12/17/tarasenko-yurov-wild-shut-out-capitals/
-
-**Suspect in Bondi Beach Massacre Is Charged With Murder and Terrorism**\
-`The Australian authorities said the 24-year-old man, who had been shot by the police, woke from a coma on Tuesday afternoon.`\
-https://nytimes.com/2025/12/17/world/asia/australia-bondi-beach-shooting.html
 

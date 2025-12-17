@@ -1,3 +1,7 @@
+**How to watch Patriots vs. Ravens: Time, TV, streaming**\
+`Find out how to watch the New England Patriots play the Baltimore Ravens, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6895784/2025/12/17/patriots-vs-ravens-stream-how-to-watch-dec-21/
+
 **Word of the Day: commensurate**\
 `This word has appeared in 117 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/12/17/learning/word-of-the-day-commensurate.html
