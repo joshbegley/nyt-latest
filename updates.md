@@ -1,3 +1,7 @@
+**Prosecutors Charge Nick Reiner With Murdering His Parents**\
+`Los Angeles prosecutors charged Nick Reiner with two counts of first-degree murder in the deaths of his parents, the director Rob Reiner and Michele Singer Reiner.`\
+https://nytimes.com/video/us/100000010592318/nick-reiner-charges-murder-rob-michele.html
+
 **Packers injuries: Updates on Micah Parsons, Josh Jacobs, Christian Watson and more**\
 `The Packers estimated nine players as non-participants on Tuesday ahead of Saturday's game in Chicago.`\
 https://nytimes.com/athletic/6895072/2025/12/16/packers-injuries-parsons-watson-jacobs-bears/
