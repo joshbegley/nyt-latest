@@ -1,3 +1,7 @@
+**England consider official complaint over Snicko, Carey admits he feathered an edge**\
+`The Australia wicketkeeper was given not out on 72 after the technology showed a spike before the ball reached the bat`\
+https://nytimes.com/athletic/6895826/2025/12/17/england-australia-snicko-carey-tongue/
+
 **FIFA not entirely to blame for World Cup ticket prices. But it made one big mistake.**\
 `FIFA is an easy target for something that likely would've happened anyway, but it could've catered more to specific sects of fandom`\
 https://nytimes.com/athletic/6893012/2025/12/17/fifa-world-cup-ticket-prices-fans/
