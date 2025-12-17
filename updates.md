@@ -1,3 +1,7 @@
+**Inaugural FIFA Women's Club World Cup to take place in January 2028**\
+`The 16-team tournament will take place in the same year as the LA Olympic Games and midway through the European domestic football season.`\
+https://nytimes.com/athletic/6896275/2025/12/17/fifa-womens-club-world-cup-january-wsl/
+
 **Liverpool's Szoboszlai hoping to be fit for Spurs game after sustaining ankle injury**\
 `The Hungary international was forced off with in the closing stages of last weekend's 2-0 win over Brighton & Hove Albion.`\
 https://nytimes.com/athletic/6896322/2025/12/17/liverpool-dominik-szoboszlai-injury-update/

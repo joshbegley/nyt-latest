@@ -1,4 +1,12 @@
-**Inaugural FIFA Women's Club World Cup to take place in January 2028**\
+**Seattle? Mexico City? Where should the next NBA Cup final be played?**\
+`Historic college venues? An international city? Here are some ideas for where the NBA Cup final could go next.`\
+https://nytimes.com/athletic/6896293/2025/12/17/nba-cup-site-las-vegas-new-home/
+
+**Cincinnati's Jizzle James, son of Edgerrin James, returns to hoops roster**\
+`The team dismissed Jizzle James in July due to undisclosed personal issues.`\
+https://nytimes.com/athletic/6896280/2025/12/17/cincinnati-basketball-jizzle-james-return/
+
+**FIFA confirms dates for Women's Club World Cup in January 2028**\
 `The 16-team tournament will take place in the same year as the LA Olympic Games and midway through the European domestic football season.`\
 https://nytimes.com/athletic/6896275/2025/12/17/fifa-womens-club-world-cup-january-wsl/
 
@@ -25,12 +33,4 @@ https://nytimes.com/live/2025/12/17/us/rob-nick-reiner-murder-charges
 **Greenpeace’s Fight With Pipeline Giant Exposes a Legal Loophole**\
 `A court filing by a group with deep ties to the pipeline company Energy Transfer raises questions about the growing use of amicus briefs in litigation.`\
 https://nytimes.com/2025/12/17/climate/greenpeaces-fight-with-pipeline-giant-exposes-a-legal-loophole.html
-
-**Anti-Vaccine Influencers Are Only Getting Stronger**\
-`I was wrong about how to push back.`\
-https://nytimes.com/2025/12/17/opinion/anti-vaccine-influencers.html
-
-**Your Holiday Dilemmas, Solved!**\
-`Our columnist offers guidance on holiday travel, gift exchanges and seasonal hospitality. (Must it extend to electric vehicle charging?)`\
-https://nytimes.com/2025/12/17/style/holiday-etiquette-questions.html
 
