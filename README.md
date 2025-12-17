@@ -1,3 +1,7 @@
+**Canada’s Population Shrinks Amid Tightened Immigration**\
+`The government has greatly restricted the number of work and study permits issued to foreigners following an unpopular immigration boom during the pandemic.`\
+https://nytimes.com/2025/12/17/world/canada/canada-population-decline-immigration.html
+
 **Trump Administration Aims to Strip More Naturalized Americans of Citizenship**\
 `An official with U.S. Citizenship and Immigration Services said it would prioritize “those who’ve unlawfully obtained U.S. citizenship.”`\
 https://nytimes.com/2025/12/17/us/politics/trump-immigration-citizenship-denaturalization.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6897515/2025/12/17/dillon-brooks-lesson-learn-eject
 **A Militant’s Transformation**\
 `Ahmed Al-Sharaa, a former Al Qaeda ally, is now president of Syria. We look at his transformation, and whether he can transform his country, too.`\
 https://nytimes.com/2025/12/17/world/syria-militant-us-venezuela.html
-
-**How Ruff, players reacted to Kekäläinen replacing Adams as Sabres GM**\
-`Wednesday was not an ordinary practice day for the Sabres in the wake of the organization's management shakeup.`\
-https://nytimes.com/athletic/6897441/2025/12/17/buffalo-sabres-gm-lindy-ruff-kevyn-adams/
 
