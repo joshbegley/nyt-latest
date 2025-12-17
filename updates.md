@@ -1,3 +1,7 @@
+**From 'X-mode' to 'Corner Mode' — F1 car systems terms simplified for new 2026 designs**\
+`The FIA has changed several key terms that will be used to explain system changes on the new cars coming to F1 in 2026`\
+https://nytimes.com/athletic/6895408/2025/12/17/f1-2026-car-modes/
+
 **He’s Only 4 Feet Tall, but Paddington Is London’s Biggest New Musical Star**\
 `Audiences are falling in love with the title character in “Paddington: The Musical.” Bringing such a beloved bear to the stage was “a huge responsibility,” the show’s director said.`\
 https://nytimes.com/2025/12/17/arts/paddington-bear-musical.html

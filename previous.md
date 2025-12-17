@@ -10,7 +10,7 @@ https://nytimes.com/2025/12/17/us/billy-crystal-larry-david-rob-reiner-statement
 `Plus, landing spots for the top QBs in the portal and if the Playoff does expand, how will they fit more games into the schedule?`\
 https://nytimes.com/athletic/6895349/2025/12/17/michigan-notre-dame-acc-mandel-mailbag/
 
-**From "X-mode" to "Corner Mode" — F1 car systems terms simplified for new 2026 designs**\
+**From 'X-mode' to 'Corner Mode' — F1 car systems terms simplified for new 2026 designs**\
 `The FIA has changed several key terms that will be used to explain system changes on the new cars coming to F1 in 2026`\
 https://nytimes.com/athletic/6895408/2025/12/17/f1-2026-car-modes/
 
