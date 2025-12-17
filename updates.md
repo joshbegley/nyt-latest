@@ -1,3 +1,8 @@
+**Even after comeback win, Leafs can't afford to keep playing with fire**\
+`A thrilling eight seconds may have been the difference in Toronto's 3-2 win over Chicago, but it isn’t tenable going forward.
+`\
+https://nytimes.com/athletic/6895539/2025/12/17/maple-leafs-blackhawks-auston-matthews-comeback-win/
+
 **Australia Begins Burying Victims of Bondi Shooting**\
 `The funerals began as authorities said they were gearing up to charge one of the suspects behind the country’s worst mass shooting in three decades, who awoke from a coma.`\
 https://nytimes.com/2025/12/17/world/asia/australia-bondi-beach-shooting.html

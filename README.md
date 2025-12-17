@@ -1,4 +1,4 @@
-**Tarasenko, Trenin have huge nights as shorthanded Wild steamroll Caps**\
+**Tarasenko, Trenin have huge nights as short-handed Wild steamroll Caps**\
 `This run is a far cry from the last few years, when the Wild's season fell apart once injuries started to pile up.`\
 https://nytimes.com/athletic/6895186/2025/12/17/tarasenko-yurov-wild-shut-out-capitals/
 
