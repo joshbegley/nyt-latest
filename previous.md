@@ -31,6 +31,6 @@ https://nytimes.com/2025/12/16/us/politics/trump-blockade-venezuela-oil-tankers.
 https://nytimes.com/athletic/6895081/2025/12/16/giants-sign-adrian-houser-mlb/
 
 **Packers injuries: Updates on Micah Parsons, Josh Jacobs, Christian Watson and more**\
-`The Packers estimated nine players as non-participants on Tuesday ahead of Saturday night's game in Chicago.`\
+`The Packers estimated nine players as non-participants on Tuesday ahead of Saturday's game in Chicago.`\
 https://nytimes.com/athletic/6895072/2025/12/16/packers-injuries-parsons-watson-jacobs-bears/
 

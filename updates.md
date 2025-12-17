@@ -1,3 +1,7 @@
+**Packers injuries: Updates on Micah Parsons, Josh Jacobs, Christian Watson and more**\
+`The Packers estimated nine players as non-participants on Tuesday ahead of Saturday's game in Chicago.`\
+https://nytimes.com/athletic/6895072/2025/12/16/packers-injuries-parsons-watson-jacobs-bears/
+
 **Jeremiyah Love declares for 2026 NFL Draft. Could he be a top-10 pick?**\
 `Love, who finished third in Heisman voting, could be the first non-quarterback selected on the offensive side of the ball. `\
 https://nytimes.com/athletic/6895360/2025/12/16/jeremiyah-love-2026-nfl-draft-declares-scouting/

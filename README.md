@@ -1,3 +1,7 @@
+**Prosecutors Charge Nick Reiner With Murdering His Parents**\
+`Los Angeles prosecutors charged Nick Reiner with two counts of first-degree murder in the deaths of his parents, the director Rob Reiner and Michele Singer Reiner.`\
+https://nytimes.com/video/us/100000010592318/nick-reiner-charges-murder-rob-michele.html
+
 **Jeremiyah Love declares for 2026 NFL Draft. Could he be a top-10 pick?**\
 `Love, who finished third in Heisman voting, could be the first non-quarterback selected on the offensive side of the ball. `\
 https://nytimes.com/athletic/6895360/2025/12/16/jeremiyah-love-2026-nfl-draft-declares-scouting/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/16/us/politics/trump-blockade-venezuela-oil-tankers.
 **Giants guarantee $22 million to Adrian Houser, adding depth if not flash to rotation**\
 `Houser is expected to help fill out a rotation that's light on experience behind 2025 NL All-Stars Logan Webb and Robbie Ray.`\
 https://nytimes.com/athletic/6895081/2025/12/16/giants-sign-adrian-houser-mlb/
-
-**Packers injuries: Updates on Micah Parsons, Josh Jacobs, Christian Watson and more**\
-`The Packers estimated nine players as non-participants on Tuesday ahead of Saturday's game in Chicago.`\
-https://nytimes.com/athletic/6895072/2025/12/16/packers-injuries-parsons-watson-jacobs-bears/
 
