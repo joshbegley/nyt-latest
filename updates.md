@@ -1,3 +1,11 @@
+**Liverpool's Szoboszlai hoping to be fit for Spurs game after sustaining ankle injury**\
+`The Hungary international was forced off with in the closing stages of last weekend's 2-0 win over Brighton & Hove Albion.`\
+https://nytimes.com/athletic/6896322/2025/12/17/liverpool-dominik-szoboszlai-injury-update/
+
+**Danger, prestige and the reason sailors give up Christmas: Sydney Hobart Yacht Race**\
+`The Sydney Hobart Yacht Race is one of the world's most prestigious sailing races - it can also be one of the most dangerous`\
+https://nytimes.com/athletic/6896084/2025/12/17/sydney-hobart-race-preview/
+
 **Who wins: A team of Canadians who played in Canada or Americans who played in America?**\
 `It's Double Canadians vs. Double Americans, two teams made up of players who represent their country both internationally and in the NHL.`\
 https://nytimes.com/athletic/6895161/2025/12/17/nhl-team-canada-usa-players-olympics/
