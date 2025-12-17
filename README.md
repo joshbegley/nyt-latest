@@ -1,3 +1,7 @@
+**Warner Bros. Says Ellisons ‘Misled’ Shareholders in Takeover Bid**\
+`The claim was made as part of Warner Bros. Discovery’s dismissal of Paramount’s hostile takeover offer.`\
+https://nytimes.com/2025/12/17/business/media/warner-bros-paramount-takeover-netflix.html
+
 **Carlos Alcaraz splits with coach Juan Carlos Ferrero after six Grand Slams and seven years**\
 `The world No. 1 confirmed the split on social media.`\
 https://nytimes.com/athletic/6896095/2025/12/17/carlos-alcaraz-juan-carlos-ferrero-split/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6895706/2025/12/17/victor-wembanyama-grandmother-sp
 **Ole Miss football ‘embraces choas' — can the Rebels block out the noise and prove they belong**\
 `Just when Ole Miss is on the precipice of something great, fate always seems to intervene.`\
 https://nytimes.com/athletic/6893588/2025/12/17/ole-miss-football-embraces-choas-can-the-rebels-block-out-the-noise-and-prove-they-belong/
-
-**College hoops mailbag: Is this the best start to a basketball season?**\
-`With nonconference play coming to a close, what college basketball teams have stood out and disappointed in 2025-26?`\
-https://nytimes.com/athletic/6894618/2025/12/17/college-basketball-mailbag-best-season-start-studs-duds/
 
