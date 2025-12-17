@@ -1,3 +1,7 @@
+**Jeremiyah Love declares for 2026 NFL Draft. Could he be a top-10 pick?**\
+`Love, who finished third in Heisman voting, could be the first non-quarterback selected on the offensive side of the ball. `\
+https://nytimes.com/athletic/6895360/2025/12/16/jeremiyah-love-2026-nfl-draft-declares-scouting/
+
 **Darts player Cameron Menzies repeatedly punches table following loss at World Darts Championship**\
 `Menzies apologized for his “emotional” reaction after the match, saying the death of his uncle played a role in his outburst.`\
 https://nytimes.com/athletic/6895222/2025/12/16/darts-punch-table-injured-hand/
