@@ -1,3 +1,15 @@
+**Woman in ‘Slender Man’ Stabbing Won’t Contest Effort to Revoke Her Release**\
+`Morgan Geyser, who was convicted after she stabbed a friend in 2014 to please a fictional character, was arrested last month after she cut off a monitoring bracelet and fled from a group home.`\
+https://nytimes.com/2025/12/17/us/morgan-geyser-slender-man-release-privileges.html
+
+**Let’s Go Beyond Trump’s Vile Words About Rob Reiner**\
+`We must do far more to address the national crisis of addiction that leaves so many households in despair as well as danger.`\
+https://nytimes.com/2025/12/17/opinion/trump-rob-reiner.html
+
+**Trump Administration Aims to Strip More Foreign-Born Americans of Citizenship**\
+`An official with U.S. Citizenship and Immigration Services said it would prioritize “those who’ve unlawfully obtained U.S. citizenship.”`\
+https://nytimes.com/2025/12/17/us/politics/trump-immigration-citizenship-denaturalization.html
+
 **Canada’s Population Shrinks Amid Tightened Immigration**\
 `The government has greatly restricted the number of work and study permits issued to foreigners following an unpopular immigration boom during the pandemic.`\
 https://nytimes.com/2025/12/17/world/canada/canada-population-decline-immigration.html
