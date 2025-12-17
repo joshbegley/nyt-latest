@@ -1,3 +1,7 @@
+**Danger, prestige and the reason sailors give up Christmas: Sydney Hobart Yacht Race**\
+`The Sydney Hobart Yacht Race is one of the world's most prestigious sailing races - it can also be one of the most dangerous`\
+https://nytimes.com/athletic/6896084/2025/12/17/sydney-hobart-race-preview/
+
 **Who wins: A team of Canadians who played in Canada or Americans who played in America?**\
 `It's Double Canadians vs. Double Americans, two teams made up of players who represent their country both internationally and in the NHL.`\
 https://nytimes.com/athletic/6895161/2025/12/17/nhl-team-canada-usa-players-olympics/
@@ -29,8 +33,4 @@ https://nytimes.com/video/world/australia/100000010592674/bondi-suspect-charged-
 **Australia Shooting Is a Reminder of Islamic State’s Power to Inspire Attacks**\
 `ISIS is too weakened to seize territory, experts said, but its ability to churn out propaganda aimed at provoking violence against the West persists.`\
 https://nytimes.com/2025/12/17/world/europe/islamic-state-attacks-australia.html
-
-**Malaysian FA says three matches forfeited by FIFA due to ineligible players**\
-`Malasyia's 1-1 draw against Cape Verde, 2-1 win against Singapore, and 1-0 win against Palestine have been declared as 3-0 defeats.`\
-https://nytimes.com/athletic/6896092/2025/12/17/malaysia-friendlies-forfeited-ineligible-players/
 
