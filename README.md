@@ -1,3 +1,7 @@
+**TAFC — Liverpool parade attacker jailed for 21 years. Plus: Mbappe's $76m court win and a World Cup tickets climbdown**\
+`In today's TAFC newsletter, we reflect on a ruling that will bring closure, but not an end to the suffering of those affected on May 26`\
+https://nytimes.com/athletic/6896013/2025/12/17/liverpool-parade-attack-tafc/
+
 **The Knicks are champions, and it's OK to say it**\
 `The Knicks' NBA Cup championship might be a sign of more to come.`\
 https://nytimes.com/athletic/6895633/2025/12/17/knicks-nba-cup-champions/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/17/arts/java-man-indonesia-netherlands.html
 **Adam Fantilli's highlight-reel OT winner sends Blue Jackets past Ducks, snaps skid**\
 `The lingering memory from this game will be Fantilli's goal, his second overtime winner, both coming this season.`\
 https://nytimes.com/athletic/6895445/2025/12/17/adam-fantilli-overtime-winner-blue-jackets-ducks/
-
-**The Spurs lost the NBA Cup, but the rest of the league remains on notice**\
-`Victor Wembanyama and the Spurs showed the entire NBA that they can hang with anyone, and aren't going away anytime soon.`\
-https://nytimes.com/athletic/6895682/2025/12/17/spurs-nba-cup-loss-wemby-thunder/
 

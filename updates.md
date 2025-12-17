@@ -1,3 +1,11 @@
+**The Knicks are champions, and it's OK to say it**\
+`The Knicks' NBA Cup championship might be a sign of more to come.`\
+https://nytimes.com/athletic/6895633/2025/12/17/knicks-nba-cup-champions/
+
+**Red Wings thoughts: DeBrincat's scoring tear, Sandin-Pellikka's growth**\
+`The Red Wings' 3-2 win over the Islanders showed some growth in a key team area, and continuations of a few strong individual runs. `\
+https://nytimes.com/athletic/6895447/2025/12/17/red-wings-islanders-alex-debrincat-nhl/
+
 **The Pulse: Your opinions on the NBA Cup**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6894818/2025/12/17/nba-cup-knicks-spurs-poll-the-pulse/
