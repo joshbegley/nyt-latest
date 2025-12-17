@@ -1,3 +1,7 @@
+**Gil Gerard, Star of ‘Buck Rogers,’ Dies at 82**\
+`He was best known for playing the title character in “Buck Rogers in the 25th Century,” which ran on NBC from 1979 to 1981.`\
+https://nytimes.com/2025/12/17/arts/gil-gerard-buck-rogers-dead.html
+
 **The Bounce: The Knicks won a title! Plus, NBA owners check their emails**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/6896366/2025/12/17/knicks-nba-cup-the-bounce-title/

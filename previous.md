@@ -1,3 +1,7 @@
+**Gil Gerard, Star of ‘Buck Rogers,’ Dies at 82**\
+`He was best known for playing the title character in “Buck Rogers in the 25th Century,” which ran on NBC from 1979 to 1981.`\
+https://nytimes.com/2025/12/17/arts/gil-gerard-buck-rogers-dead.html
+
 **The Bounce: The Knicks won a title! Plus, NBA owners check their emails**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/6896366/2025/12/17/knicks-nba-cup-the-bounce-title/
@@ -25,12 +29,4 @@ https://nytimes.com/athletic/6896084/2025/12/17/sydney-hobart-race-preview/
 **Who wins: A team of Canadians who played in Canada or Americans who played in America?**\
 `It's Double Canadians vs. Double Americans, two teams made up of players who represent their country both internationally and in the NHL.`\
 https://nytimes.com/athletic/6895161/2025/12/17/nhl-team-canada-usa-players-olympics/
-
-**Here’s the latest.**\
-`By Jesus Jiménez`\
-https://nytimes.com/live/2025/12/17/us/rob-nick-reiner-murder-charges/heres-the-latest
-
-**Live Updates: Prosecutors Build Case Against Son in Reiner Killings**\
-`It was unclear when Nick Reiner would be medically cleared to appear in court for an arraignment after he was charged with murdering his parents, Rob and Michele Singer Reiner.`\
-https://nytimes.com/live/2025/12/17/us/rob-nick-reiner-murder-charges
 
