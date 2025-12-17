@@ -1,3 +1,7 @@
+**Oilers' Leon Draisaitl scores 1,000th point: 'He's showing no signs of slowing down'**\
+`Draisaitl became the fifth-fastest player born outside of North America to reach the 1,000-point milestone.`\
+https://nytimes.com/athletic/6891612/2025/12/16/leon-draisaitl-oilers-1000-points/
+
 **Trump Orders Blockade of Some Oil Tankers Around Venezuela**\
 `The president announced the move using bellicose language, in an escalation of his pressure campaign against Nicolás Maduro, Venezuela’s leader. But its scope and economic effects were not clear.`\
 https://nytimes.com/2025/12/16/us/politics/trump-blockade-venezuela-oil-tankers.html
@@ -20,7 +24,7 @@ https://nytimes.com/athletic/6895171/2025/12/16/capitals-vs-wild-stream-how-to-w
 
 **How to watch Raiders vs. Texans: Time, TV, streaming**\
 `Find out how to watch the Las Vegas Raiders play the Houston Texans, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6895160/2025/12/16/raiders-vs-texans-stream-how-to-watch-dec-21/
+https://nytimes.com/athletic/6895160/2025/12/16/how-to-watch-raiders-vs-texans-tv-channel-and-streaming-options-for-december-21/
 
 **How to watch Avalanche vs. Kraken: Time, TV, streaming**\
 `Find out how to watch the Colorado Avalanche play the Seattle Kraken, with time, TV channel and streaming information.`\
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6895156/2025/12/16/avalanche-vs-kraken-stream-how-t
 **How to watch Flames vs. Sharks: Time, TV, streaming**\
 `Find out how to watch the Calgary Flames play the San Jose Sharks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6895154/2025/12/16/flames-vs-sharks-stream-how-to-watch-dec-16/
-
-**How to watch Jaguars vs. Broncos: Time, TV, streaming**\
-`Find out how to watch the Jacksonville Jaguars play the Denver Broncos, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6895146/2025/12/16/jaguars-vs-broncos-stream-how-to-watch-dec-21/
 

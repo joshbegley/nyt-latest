@@ -1,3 +1,11 @@
+**Oilers' Leon Draisaitl scores 1,000th point: 'He's showing no signs of slowing down'**\
+`Draisaitl became the fifth-fastest player born outside of North America to reach the 1,000-point milestone.`\
+https://nytimes.com/athletic/6891612/2025/12/16/leon-draisaitl-oilers-1000-points/
+
+**How to watch Raiders vs. Texans: Time, TV, streaming**\
+`Find out how to watch the Las Vegas Raiders play the Houston Texans, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6895160/2025/12/16/how-to-watch-raiders-vs-texans-tv-channel-and-streaming-options-for-december-21/
+
 **Trump Orders Blockade of Some Oil Tankers Around Venezuela**\
 `The president announced the move using bellicose language, in an escalation of his pressure campaign against Nicolás Maduro, Venezuela’s leader. But its scope and economic effects were not clear.`\
 https://nytimes.com/2025/12/16/us/politics/trump-blockade-venezuela-oil-tankers.html
