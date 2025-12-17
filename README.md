@@ -1,3 +1,11 @@
+**From the Phog to the Palestra, our favorite college hoops venues for the NBA Cup final**\
+`There is no shortage of options for the NBA if it wants to tap into college basketball's most hallowed venues.`\
+https://nytimes.com/athletic/6896780/2025/12/17/nba-cup-final-moving-college-campuses/
+
+**Netflix partnership with Barstool will remove 'Pardon My Take' video from YouTube**\
+`The deal follows a similar agreement with Spotify and reflects increasing competition between Netflix and YouTube in the podcast space.`\
+https://nytimes.com/athletic/6896916/2025/12/17/netflix-pardon-my-take-podcast-deals/
+
 **Ex-Harvard Medical Morgue Manager Who Sold Body Parts Gets 8-Year Sentence**\
 `Cedric Lodge, and his wife, Denise Lodge, stole and sold donated human remains intended for medical research and teaching, prosecutors said.`\
 https://nytimes.com/2025/12/17/us/harvard-morgue-stolen-body-parts.html
@@ -25,12 +33,4 @@ https://nytimes.com/2025/12/17/style/marty-supreme-premiere-timothee-chalamet-ma
 **Fantasy trends and hidden gems: Trade fallout and a two-week outlook**\
 `Shayna Goldman analyzes key fantasy-relevant trades and previews the next two weeks to help managers stay competitive through the holidays.`\
 https://nytimes.com/athletic/6896471/2025/12/17/fantasy-trends-hidden-gems-trade-fallout-two-week-outlook/
-
-**ICE Arrests Disrupt Schools, Prompting Fear Among Families**\
-`President Trump’s immigration crackdown has at times resulted in arrests near schools, setting off concerns among parents, educators and students.`\
-https://nytimes.com/2025/12/17/us/politics/ice-arrests-schools.html
-
-**How Do You Afford Life in New York City?**\
-`The New York Times is looking to talk to New Yorkers about how they budget, splurge and save in one of the most expensive cities in the world.`\
-https://nytimes.com/2025/12/17/nyregion/new-york-city-affordability.html
 

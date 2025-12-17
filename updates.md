@@ -1,3 +1,7 @@
+**Ex-Harvard Medical Morgue Manager Who Sold Body Parts Gets 8-Year Sentence**\
+`Cedric Lodge, and his wife, Denise Lodge, stole and sold donated human remains intended for medical research and teaching, prosecutors said.`\
+https://nytimes.com/2025/12/17/us/harvard-morgue-stolen-body-parts.html
+
 **More Than 2,000 Dinosaur Footprints Are Found in the Italian Alps**\
 `Two hundred million years ago, prosauropods walked the earth. They left something behind.`\
 https://nytimes.com/2025/12/17/science/dinosaur-footprints-olympics-italy.html
