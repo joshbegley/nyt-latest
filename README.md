@@ -1,4 +1,4 @@
-**F.C.C. Chair Says Agency ‘Isn’t Independent’**\
+**F.C.C. Chair Says Agency ‘Isn’t Independent,’ Breaking From Tradition**\
 `The comment from Brendan Carr, a Republican, raised concerns from lawmakers about how President Trump might use the agency.`\
 https://nytimes.com/2025/12/17/technology/fcc-brendan-carr-senate-hearing.html
 
