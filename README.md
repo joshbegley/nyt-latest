@@ -1,3 +1,7 @@
+**How the ‘Wicked’ Movies Turbocharged a Broadway Juggernaut**\
+`The musical was already one of theater’s biggest success stories. Then came Hollywood.`\
+https://nytimes.com/interactive/2025/12/17/theater/wicked-movies-broadway-earnings.html
+
 **Carabao Cup semi-final draw: Chelsea to face Arsenal or Palace, Newcastle play Man City**\
 `The semi-final draw was conducted on Wednesday after Newcastle and Manchester City booked progressed.`\
 https://nytimes.com/athletic/6897618/2025/12/17/carabao-cup-quarter-final-draw-teams-2025/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6897781/2025/12/17/cowboys-george-pickens-criticism
 **Scoop City: Miami's $212 million quarterback, benched**\
 `A Miami quarterback decision, resources for the league's worst teams and two long-awaited breakouts, plus Mike Sando on Aaron Rodgers`\
 https://nytimes.com/athletic/6897793/2025/12/17/dolphins-bench-tua-tagovailoa-aaron-rodgers-giants-titans-raiders/
-
-**Bongino to Step Down From F.B.I.**\
-`The departure of Dan Bongino had seemed inevitable since August, when the White House hired Missouri’s attorney general, Andrew Bailey, to share his job as deputy director.`\
-https://nytimes.com/2025/12/17/us/politics/dan-bongino-steps-down-fbi.html
 
