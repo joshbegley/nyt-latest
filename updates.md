@@ -1,3 +1,7 @@
+**Marc-Andre ter Stegen is back for Barcelona. What happens next?**\
+`The German goalkeeper made his first appearance in seven months, but still faces an uncertain future`\
+https://nytimes.com/athletic/6895865/2025/12/17/barcelona-ter-stegen-future-flick-copa-del-rey/
+
 **A Last Chance to Prep for the Exam. Then, a Gunman at the Classroom Door.**\
 `For the students in the Brown University review session, concerns about grades and questions about economic concepts would be forgotten in an instant.`\
 https://nytimes.com/2025/12/17/us/exam-review-brown-shooting.html
