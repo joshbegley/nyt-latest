@@ -1,3 +1,7 @@
+**Trump Orders Blockade of Some Oil Tankers Around Venezuela**\
+`The president announced the move using bellicose language, in an escalation of his pressure campaign against Nicolás Maduro, Venezuela’s leader. But its scope and economic effects were not clear.`\
+https://nytimes.com/2025/12/16/us/politics/trump-blockade-venezuela-oil-tankers.html
+
 **Giants guarantee $22 million to Adrian Houser, adding depth if not flash to rotation**\
 `Houser is expected to help fill out a rotation that's light on experience behind 2025 NL All-Stars Logan Webb and Robbie Ray.`\
 https://nytimes.com/athletic/6895081/2025/12/16/giants-sign-adrian-houser-mlb/
