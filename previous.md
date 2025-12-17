@@ -1,5 +1,13 @@
+**Darts player Cameron Menzies repeatedly punches table following loss at World Darts Championship**\
+`Menzies apologized for his “emotional” reaction after the match, saying the death of his uncle played a role in his outburst.`\
+https://nytimes.com/athletic/6895222/2025/12/16/darts-punch-table-injured-hand/
+
+**Reiner Family Associate Details Events Before and After Killings Were Discovered**\
+`A person close to the family provided a detailed account of what occurred in the Reiner house after a massage therapist received no response at the gate.`\
+https://nytimes.com/2025/12/16/us/reiner-family-rob-nick-michele.html
+
 **Adam Silver: NBA to decide on expansion in 2026 with Vegas, Seattle focus**\
-`Silver clarified that Seattle and Las Vegas are the two American cities which the league is most focused. `\
+`The NBA last added a team in 2004, when the Charlotte Bobcats became the league's 30th franchise.`\
 https://nytimes.com/athletic/6895216/2025/12/16/adam-silver-nba-expansion-2026-las-vegas-seattle/
 
 **Pound-for-pound great Terence 'Bud' Crawford retires from boxing at 42-0**\
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6895072/2025/12/16/packers-injuries-parsons-watson-
 **How to watch Oilers vs. Penguins: Time, TV, streaming**\
 `Find out how to watch the Edmonton Oilers play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6895175/2025/12/16/oilers-vs-penguins-stream-how-to-watch-dec-16/
-
-**How to watch Capitals vs. Wild: Time, TV, streaming**\
-`Find out how to watch the Washington Capitals play the Minnesota Wild, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6895171/2025/12/16/capitals-vs-wild-stream-how-to-watch-dec-16/
-
-**How to watch Raiders vs. Texans: Time, TV, streaming**\
-`Find out how to watch the Las Vegas Raiders play the Houston Texans, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6895160/2025/12/16/how-to-watch-raiders-vs-texans-tv-channel-and-streaming-options-for-december-21/
 
