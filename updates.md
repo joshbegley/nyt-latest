@@ -1,3 +1,15 @@
+**Grief Mixes With Anger at Funeral of Rabbi Killed in Bondi Beach Attack**\
+`The funeral for Rabbi Eli Schlanger on Wednesday was the first held for one of the 15 people killed in a mass shooting at a Jewish celebration in Sydney, Australia.`\
+https://nytimes.com/2025/12/17/world/asia/rabbi-eli-schlanger-funeral-bondi-shooting.html
+
+**First Funeral Held For Victim of Bondi Beach Shooting**\
+`People mourned the death of Rabbi Eli Schlanger during the first funeral for those killed in the Bondi Beach shooting. He was a key organizer of the Jewish event that was tarnished by a mass shooting.`\
+https://nytimes.com/video/world/australia/100000010592479/rabbi-eli-schlanger-funeral-bondi-shooting.html
+
+**Tarasenko, Yurov have huge nights as short-handed Wild steamroll Caps**\
+`This run is a far cry from the last few years, when the Wild's season fell apart once injuries started to pile up.`\
+https://nytimes.com/athletic/6895186/2025/12/17/tarasenko-yurov-wild-shut-out-capitals/
+
 **Even after comeback win, Leafs can't afford to keep playing with fire**\
 `A thrilling eight seconds may have been the difference in Toronto's 3-2 win over Chicago, but it isn’t tenable going forward.
 `\
