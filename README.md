@@ -1,3 +1,7 @@
+**Palace's Kamada facing up to 10 weeks out with hamstring injury**\
+`Kamada’s injury will further deplete Palace's squad ahead of a busy run of fixtures.`\
+https://nytimes.com/athletic/6896453/2025/12/17/daichi-kamada-palace-injury-update/
+
 **Macclesfield's Ethan McLeod, former Wolves academy forward, dies in road accident aged 21**\
 `McLeod joined Wolves as a seven-year-old and signed a professional contract with the team in 2023.`\
 https://nytimes.com/athletic/6896429/2025/12/17/ethan-mcleod-death-wolves-macclesfield/
@@ -25,8 +29,4 @@ https://nytimes.com/athletic/6896275/2025/12/17/fifa-womens-club-world-cup-janua
 **Liverpool's Szoboszlai hoping to be fit for Spurs game after sustaining ankle injury**\
 `The Hungary international was forced off with in the closing stages of last weekend's 2-0 win over Brighton & Hove Albion.`\
 https://nytimes.com/athletic/6896322/2025/12/17/liverpool-dominik-szoboszlai-injury-update/
-
-**Danger, prestige and the reason sailors give up Christmas: Sydney Hobart Yacht Race**\
-`The Sydney Hobart Yacht Race is one of the world's most prestigious sailing races - it can also be one of the most dangerous`\
-https://nytimes.com/athletic/6896084/2025/12/17/sydney-hobart-race-preview/
 

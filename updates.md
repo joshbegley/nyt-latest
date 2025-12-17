@@ -1,3 +1,7 @@
+**Macclesfield's Ethan McLeod, former Wolves academy forward, dies in road accident aged 21**\
+`McLeod joined Wolves as a seven-year-old and signed a professional contract with the team in 2023.`\
+https://nytimes.com/athletic/6896429/2025/12/17/ethan-mcleod-death-wolves-macclesfield/
+
 **Gil Gerard, Star of ‘Buck Rogers,’ Dies at 82**\
 `He was best known for playing the title character in “Buck Rogers in the 25th Century,” which ran on NBC from 1979 to 1981.`\
 https://nytimes.com/2025/12/17/arts/gil-gerard-buck-rogers-dead.html
