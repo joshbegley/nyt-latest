@@ -1,3 +1,7 @@
+**The Pulse: Your opinions on the NBA Cup**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6894818/2025/12/17/nba-cup-knicks-spurs-poll-the-pulse/
+
 **2025 Sports Media Awards: Person of the Year, top dealmakers and more**\
 `Who won Andrew Marchand's coveted end-of-the-year "Golden Clickers?"`\
 https://nytimes.com/athletic/6893866/2025/12/17/2025-sports-media-awards-ernie-johnson-elle-duncan/
