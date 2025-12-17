@@ -1,3 +1,11 @@
+**How to watch Marquette vs. UConn women's basketball: Time, TV, streaming**\
+`Find out how to watch the Marquette Golden Eagles play the UConn Huskies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6896679/2025/12/17/marquette-vs-uconn-stream-how-to-watch-dec-17/
+
+**How to watch Vanderbilt vs. Memphis men's basketball: Time, TV, streaming**\
+`Find out how to watch the Vanderbilt Commodores play the Memphis Tigers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6896675/2025/12/17/vanderbilt-vs-memphis-stream-how-to-watch-dec-17/
+
 **How to watch Saint Francis (PA) vs. Florida men's basketball: Time, TV, streaming**\
 `Find out how to watch the Saint Francis (PA) Red Flash play the Florida Gators, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6896661/2025/12/17/saint-francis-pa-vs-florida-stream-how-to-watch-dec-17/
@@ -25,12 +33,4 @@ https://nytimes.com/2025/12/17/us/politics/appeals-court-washington-national-gua
 **How Rob Reiner Created His Comedy Legacy**\
 `These moments from his movies brought the laughs, in many different ways.`\
 https://nytimes.com/2025/12/17/movies/rob-reiner-comedy-legacy.html
-
-**Flyers look primed to stay in the playoff race all season: Five thoughts**\
-`Despite the likely loss of Tyson Foerster for the rest of the season, the Flyers have shown plenty of reasons for optimism.`\
-https://nytimes.com/athletic/6896459/2025/12/17/flyers-playoffs-foerster-injury/
-
-**Let Us Eat Cake**\
-`A boozy, celebratory centerpiece, baba au rhum savarin is the best kind of dessert experience.`\
-https://nytimes.com/2025/12/17/magazine/baba-au-rhum-savarin-recipe.html
 
