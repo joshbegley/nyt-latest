@@ -1,4 +1,4 @@
-**Adam Silver: NBA expansion decision in 2026 to focus on Vegas and Seattle**\
+**Adam Silver: NBA to decide on expansion in 2026 with Vegas, Seattle focus**\
 `Silver clarified that Seattle and Las Vegas are the two American cities which the league is most focused. `\
 https://nytimes.com/athletic/6895216/2025/12/16/adam-silver-nba-expansion-2026-las-vegas-seattle/
 
