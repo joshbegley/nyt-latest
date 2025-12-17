@@ -1,3 +1,11 @@
+**How to watch Oilers vs. Penguins: Time, TV, streaming**\
+`Find out how to watch the Edmonton Oilers play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6895175/2025/12/16/oilers-vs-penguins-stream-how-to-watch-dec-16/
+
+**How to watch Capitals vs. Wild: Time, TV, streaming**\
+`Find out how to watch the Washington Capitals play the Minnesota Wild, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6895171/2025/12/16/capitals-vs-wild-stream-how-to-watch-dec-16/
+
 **How to watch Raiders vs. Texans: Time, TV, streaming**\
 `Find out how to watch the Las Vegas Raiders play the Houston Texans, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6895160/2025/12/16/raiders-vs-texans-stream-how-to-watch-dec-21/

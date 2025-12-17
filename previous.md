@@ -1,3 +1,11 @@
+**How to watch Oilers vs. Penguins: Time, TV, streaming**\
+`Find out how to watch the Edmonton Oilers play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6895175/2025/12/16/oilers-vs-penguins-stream-how-to-watch-dec-16/
+
+**How to watch Capitals vs. Wild: Time, TV, streaming**\
+`Find out how to watch the Washington Capitals play the Minnesota Wild, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6895171/2025/12/16/capitals-vs-wild-stream-how-to-watch-dec-16/
+
 **How to watch Raiders vs. Texans: Time, TV, streaming**\
 `Find out how to watch the Las Vegas Raiders play the Houston Texans, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6895160/2025/12/16/raiders-vs-texans-stream-how-to-watch-dec-21/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6895129/2025/12/16/falcons-vs-cardinals-stream-how-
 **How to watch Steelers vs. Lions: Time, TV, streaming**\
 `Find out how to watch the Pittsburgh Steelers play the Detroit Lions, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6895108/2025/12/16/steelers-vs-lions-stream-how-to-watch-dec-21/
-
-**Widow of Officer Slain in Park Ave. Attack Sues Landlord Over Security**\
-`Didarul Islam and three others were killed when a gunman came to a Midtown skyscraper. The suit says the building had few physical barriers and lax surveillance.`\
-https://nytimes.com/2025/12/16/nyregion/didarul-islam-widow-lawsuit.html
-
-**Team Races Against Time to Save a Tangled Sea Lion in British Columbia**\
-`Experts tracked the sea lion, which had a rope around its neck, for over a month before they were able to catch up to it in Cowichan Bay, Canada.`\
-https://nytimes.com/2025/12/16/world/canada/sea-lion-rescue-cowichan-bay-vancouver.html
 
