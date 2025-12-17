@@ -1,3 +1,7 @@
+**Dip for Dinner, Holiday Edition**\
+`Make this hot honey whipped ricotta for that party you’re going to, or make it for dinner with your favorite crackers and cut up vegetables.`\
+https://nytimes.com/2025/12/17/dining/dip-for-dinner-holiday-edition.html
+
 **Browns' Devin Bush found not guilty of assault, harassment following May arrest**\
 `In 14 games for the Browns this year, Bush has recorded 93 tackles, two sacks and two interceptions.`\
 https://nytimes.com/athletic/6896389/2025/12/17/browns-devin-bush-not-guilty-arrest/
