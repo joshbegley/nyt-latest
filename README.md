@@ -1,3 +1,7 @@
+**Marc-Andre ter Stegen is back for Barcelona. What happens next?**\
+`The German goalkeeper made his first appearance in seven months, but still faces an uncertain future`\
+https://nytimes.com/athletic/6895865/2025/12/17/barcelona-ter-stegen-future-flick-copa-del-rey/
+
 **A Last Chance to Prep for the Exam. Then, a Gunman at the Classroom Door.**\
 `For the students in the Brown University review session, concerns about grades and questions about economic concepts would be forgotten in an instant.`\
 https://nytimes.com/2025/12/17/us/exam-review-brown-shooting.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/17/opinion/voice-of-hind-rajab-movie-gaza.html
 **Will the Oscars Make Room for ‘Difficult’ Women?**\
 `Rose Byrne, Jennifer Lawrence and Amanda Seyfried give great performances as women who buck convention. But some voters prize ‘likability’ above all else.`\
 https://nytimes.com/2025/12/17/movies/oscar-contenders-jennifer-lawrence-rose-byrne-amanda-seyfried.html
-
-**I Cashed Out My 401(k) to Build a Women-Only Retirement Community**\
-`The Bird’s Nest is experimenting with a different way to age.`\
-https://nytimes.com/2025/12/17/podcasts/the-birds-nest-womens-retirement-community-tiny-homes.html
 
