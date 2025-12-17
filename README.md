@@ -1,3 +1,7 @@
+**Trump Orders Blockade of Some Oil Tankers Around Venezuela**\
+`The president announced the move using bellicose language, in an escalation of his pressure campaign against Nicolás Maduro, Venezuela’s leader. But its scope and economic effects were not clear.`\
+https://nytimes.com/2025/12/16/us/politics/trump-blockade-venezuela-oil-tankers.html
+
 **Giants guarantee $22 million to Adrian Houser, adding depth if not flash to rotation**\
 `Houser is expected to help fill out a rotation that's light on experience behind 2025 NL All-Stars Logan Webb and Robbie Ray.`\
 https://nytimes.com/athletic/6895081/2025/12/16/giants-sign-adrian-houser-mlb/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6895154/2025/12/16/flames-vs-sharks-stream-how-to-w
 **How to watch Jaguars vs. Broncos: Time, TV, streaming**\
 `Find out how to watch the Jacksonville Jaguars play the Denver Broncos, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6895146/2025/12/16/jaguars-vs-broncos-stream-how-to-watch-dec-21/
-
-**Where Did Jeffrey Epstein Get His Money?**\
-`For years, rumors swirled about where Jeffrey Epstein’s wealth came from. A Times investigation reveals the truth of how a college dropout clawed his way to the pinnacle of American finance and society.`\
-https://nytimes.com/video/magazine/100000010588155/where-did-jeffrey-epstein-get-his-money.html
 
