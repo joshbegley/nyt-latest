@@ -11,7 +11,7 @@ https://nytimes.com/athletic/6896098/2025/12/17/mazraoui-afcon-morocco-mancheste
 https://nytimes.com/2025/12/17/business/media/warner-bros-paramount-takeover-netflix.html
 
 **Carlos Alcaraz splits with coach Juan Carlos Ferrero after six Grand Slams and seven years**\
-`The world No. 1 confirmed the split on social media.`\
+`The world No. 1 confirmed the split on social media, saying that they made the decision together.`\
 https://nytimes.com/athletic/6896095/2025/12/17/carlos-alcaraz-juan-carlos-ferrero-split/
 
 **Britain Rejoins E.U. Student Exchange Program That It Left After Brexit**\

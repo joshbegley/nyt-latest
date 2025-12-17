@@ -1,3 +1,7 @@
+**Carlos Alcaraz splits with coach Juan Carlos Ferrero after six Grand Slams and seven years**\
+`The world No. 1 confirmed the split on social media, saying that they made the decision together.`\
+https://nytimes.com/athletic/6896095/2025/12/17/carlos-alcaraz-juan-carlos-ferrero-split/
+
 **Forecasters Warn of More Possible Flooding in Washington State**\
 `Heavy rain and strong winds through early Wednesday could bring additional flooding to Washington State, forecasters warned.`\
 https://nytimes.com/video/us/100000010592884/washington-storm-flooding.html
