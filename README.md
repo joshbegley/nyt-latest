@@ -1,3 +1,15 @@
+**How to watch South Florida vs. Alabama men's basketball: Time, TV, streaming**\
+`Find out how to watch the South Florida Bulls play the Alabama Crimson Tide, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6897345/2025/12/17/south-florida-vs-alabama-stream-how-to-watch-dec-17/
+
+**Ceal Floyer, Incisive Conceptual Artist, Dies at 57**\
+`Her work had a clean, minimal aesthetic at odds with the ambiguities it suggested. It was also unusually accessible.`\
+https://nytimes.com/2025/12/17/arts/ceal-floyer-dead.html
+
+**NFL Week 16 staff picks: NFC supremacy hangs in the balance**\
+`It's "Butterfly Effect" season in the NFL, and nearly every game has downstream effects on someone's playoff hopes.`\
+https://nytimes.com/athletic/6895648/2025/12/17/nfl-week-16-staff-picks-nfc-showdown/
+
 **Nearly $900 Million Flowed in Secret to Help Harris and Trump in 2024**\
 `The main dark-money group backing Kamala Harris and Joe Biden raised a staggering $613 million last year, while its pro-Trump counterpart brought in $275 million, new filings show.`\
 https://nytimes.com/2025/12/17/us/politics/harris-trump-dark-money-democrats-republicans.html
@@ -21,16 +33,4 @@ https://nytimes.com/2025/12/17/us/politics/boat-strike-video-questions-lawmakers
 **Maccabi Tel-Aviv fined for 'racist and/or discriminatory behaviour' in Europa League tie**\
 `UEFA has fined Maccabi €20,000 and given the club a suspended away fan ban`\
 https://nytimes.com/athletic/6896988/2025/12/17/maccabi-tel-aviv-stuttgart-uefa-sanctions/
-
-**Who is Quinn Ewers? Meet the Dolphins' new starting quarterback**\
-`Ewers was the final quarterback selected in last year’s NFL Draft despite entering the season projected as a top draft pick.`\
-https://nytimes.com/athletic/6896751/2025/12/17/quinn-ewers-miami-dolphins/
-
-**This Dance Party Has Everything. (It’s at a Supermarket.)**\
-`Noche Buena brings together Filipino communities over rich dishes and great music. This year, the celebration started early.`\
-https://nytimes.com/2025/12/17/dining/noche-buena-filipino-recipes.html
-
-**Venezuelan Navy Escorts Vessels After Trump’s Blockade Threat**\
-`The Venezuelan government was said to have ordered the escort, according to two people familiar with the matter. It was not immediately clear whether the vessels were subject to U.S. sanctions.`\
-https://nytimes.com/2025/12/17/us/politics/venezuela-blockade-military-escort-trump.html
 
