@@ -1,3 +1,7 @@
+**How Ruff, players reacted to Kekäläinen replacing Adams as Sabres GM**\
+`Wednesday was not an ordinary practice day for the Sabres in the wake of the organization's management shakeup.`\
+https://nytimes.com/athletic/6897441/2025/12/17/buffalo-sabres-gm-lindy-ruff-kevyn-adams/
+
 **California’s ‘Twilight Zone’ of Endless Fog Is Finally Clearing**\
 `An unrelenting gloom has blanketed much of the state’s Central Valley since late November.`\
 https://nytimes.com/2025/12/17/weather/california-tule-fog-central-valley.html
@@ -27,10 +31,6 @@ https://nytimes.com/video/us/100000010594152/nick-reiner-gas-station.html
 https://nytimes.com/video/podcasts/100000010590383/jeff-flake-on-venezuela-republicans-cant-speak-truth-to-power.html
 
 **Stabbing Near Chabad Headquarters Investigated as a Possible Hate Crime**\
-`A dispute on a Brooklyn street appeared to explode after the perpetrator accosted the victim with antisemitic statements, the police said.`\
+`A dispute on a Brooklyn street appeared to explode after the perpetrator made antisemitic statements, the police said.`\
 https://nytimes.com/2025/12/17/nyregion/hate-crime-stabbing-chabad.html
-
-**No-Churn Olive Oil Ice Cream With Hot Fudge**\
-`At Ecco restaurant in Atlanta, one dessert stands above the rest: a salted olive oil gelato. Inspired by that dish in flavor but not in method, this frozen treat doesn’t require an ice-cream maker.`\
-https://nytimes.com/video/dining/100000010368578/no-churn-olive-oil-ice-cream-with-hot-fudge.html
 

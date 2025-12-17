@@ -1,3 +1,11 @@
+**How Ruff, players reacted to Kekäläinen replacing Adams as Sabres GM**\
+`Wednesday was not an ordinary practice day for the Sabres in the wake of the organization's management shakeup.`\
+https://nytimes.com/athletic/6897441/2025/12/17/buffalo-sabres-gm-lindy-ruff-kevyn-adams/
+
+**Stabbing Near Chabad Headquarters Investigated as a Possible Hate Crime**\
+`A dispute on a Brooklyn street appeared to explode after the perpetrator made antisemitic statements, the police said.`\
+https://nytimes.com/2025/12/17/nyregion/hate-crime-stabbing-chabad.html
+
 **California’s ‘Twilight Zone’ of Endless Fog Is Finally Clearing**\
 `An unrelenting gloom has blanketed much of the state’s Central Valley since late November.`\
 https://nytimes.com/2025/12/17/weather/california-tule-fog-central-valley.html
