@@ -1,3 +1,11 @@
+**Carlos Alcaraz splits with coach Juan Carlos Ferrero after six Grand Slams and seven years**\
+`The world No. 1 confirmed the split on social media.`\
+https://nytimes.com/athletic/6896095/2025/12/17/carlos-alcaraz-juan-carlos-ferrero-split/
+
+**Britain Rejoins E.U. Student Exchange Program That It Left After Brexit**\
+`The government said it would pay about $760 million to allow young Britons to take part in 2027.`\
+https://nytimes.com/2025/12/17/world/europe/uk-eu-erasmus-scheme-students-brexit.html
+
 **Why the Phillies are betting on Adolis García despite his struggles**\
 `García will be the Phillies’ everyday right fielder. But with a relative bargain comes traits that Kevin Long and company will labor to fix.`\
 https://nytimes.com/athletic/6895144/2025/12/17/adolis-garcia-phillies-sign/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6893588/2025/12/17/ole-miss-football-embraces-choas
 **College hoops mailbag: Is this the best start to a basketball season?**\
 `With nonconference play coming to a close, what college basketball teams have stood out and disappointed in 2025-26?`\
 https://nytimes.com/athletic/6894618/2025/12/17/college-basketball-mailbag-best-season-start-studs-duds/
-
-**College Football Playoff oddly specific predictions: Miami silences Texas A&M's 12th man!**\
-`Carson Beck and Marcel Reed will each throw an interception, but Beck gets the last word with a 20-yard TD strike in OT to win it. `\
-https://nytimes.com/athletic/6894983/2025/12/17/college-football-playoff-predictions-miami-texas-am/
-
-**Giants' Adrian Houser deal makes sense if he's not the only rotation addition**\
-`Houser has been good, bad and in-between over the past two seasons. Which version will the Giants get? And are the done with pitching adds?`\
-https://nytimes.com/athletic/6895329/2025/12/17/sf-giants-adrian-houser-signing-analysis/
 
