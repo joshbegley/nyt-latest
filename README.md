@@ -1,3 +1,7 @@
+**Rosenthal: What I'm hearing about the DBacks' interest in Alex Bregman, plus more MLB offseason notes**\
+`For Bregman to land in the Phoenix area, where he lives in the offseason, the DBacks would likely have to unload Ketel Marte first.`\
+https://nytimes.com/athletic/6895435/2025/12/16/diamondbacks-alex-bregman-athletics-ha-seong-kim/
+
 **Miami Heat in limbo with Terry Rozier charged in illegal gambling case**\
 `The Miami Heat will likely need clarity on whether they can trade Rozier before they make any significant in-season moves.`\
 https://nytimes.com/athletic/6895406/2025/12/16/terry-rozier-adam-silver-trade-no-solution/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6895222/2025/12/16/darts-punch-table-injured-hand/
 **Reiner Family Associate Details Events Before and After Killings Were Discovered**\
 `A person close to the family provided a detailed account of what occurred in the Reiner house after a massage therapist received no response at the gate.`\
 https://nytimes.com/2025/12/16/us/reiner-family-rob-nick-michele.html
-
-**Adam Silver: NBA to decide on expansion in 2026 with Vegas, Seattle focus**\
-`The NBA last added a team in 2004, when the Charlotte Bobcats became the league's 30th franchise.`\
-https://nytimes.com/athletic/6895216/2025/12/16/adam-silver-nba-expansion-2026-las-vegas-seattle/
 
