@@ -1,3 +1,7 @@
+**Dolphins bench Tua Tagovailoa, will start Quinn Ewers vs. Bengals: Source**\
+`The move comes two days after the Dolphins were officially eliminated from the playoffs.`\
+https://nytimes.com/athletic/6896608/2025/12/17/tua-tagovailoa-benched-dolphins-quinn-ewers/
+
 **Knicks will not hang NBA Cup banner in Madison Square Garden: Sources**\
 `The Los Angeles Lakers and Milwaukee Bucks, the first two NBA Cup winners, both hung banners for winning the in-season tournament.`\
 https://nytimes.com/athletic/6896747/2025/12/17/knicks-nba-cup-championship-banner/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6896579/2025/12/17/2025-year-end-sports-business-mo
 **How to watch Kings vs. Panthers: Time, TV, streaming**\
 `Find out how to watch the Los Angeles Kings play the Florida Panthers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6896689/2025/12/17/kings-vs-panthers-stream-how-to-watch-dec-17/
-
-**How to watch Marquette vs. UConn women's basketball: Time, TV, streaming**\
-`Find out how to watch the Marquette Golden Eagles play the UConn Huskies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6896679/2025/12/17/marquette-vs-uconn-stream-how-to-watch-dec-17/
 
