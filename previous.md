@@ -1,3 +1,7 @@
+**Australia Begins Burying Victims of Bondi Shooting**\
+`The funerals began as authorities said they were gearing up to charge one of the suspects behind the country’s worst mass shooting in three decades, who awoke from a coma.`\
+https://nytimes.com/2025/12/17/world/asia/australia-bondi-beach-shooting.html
+
 **On Bali, the Holiday Vibe Masks Memories of a Massacre**\
 `Sixty years ago, half a million Indonesians were killed in anti-Communist purges. On Bali, resorts and clubs were built atop mass graves.`\
 https://nytimes.com/2025/12/17/world/asia/bali-indonesia-communist-massacres.html
@@ -30,8 +34,4 @@ https://nytimes.com/athletic/6862015/2025/12/17/lee-trundle-swansea-wrexham-socc
 **A discussion about Viktor Gyokeres' start at Arsenal**\
 `The 27-year-old has six goals in 19 appearances since a summer move from Sporting CP - our Arsenal writers discuss how he has performed`\
 https://nytimes.com/athletic/6891574/2025/12/17/viktor-gyokeres-arsenal-arteta-havertz/
-
-**What impact has Real Madrid's injury crisis had on Xabi Alonso's turbulent start?**\
-`Xabi Alonso is on thin ice at Real Madrid, and injuries to some key players haven't helped`\
-https://nytimes.com/athletic/6893851/2025/12/17/real-madrid-xabi-alonso-injuries/
 
