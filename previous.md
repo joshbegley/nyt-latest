@@ -1,3 +1,7 @@
+**Man Utd unhappy with Morocco for rejecting Mazraoui request**\
+`FIFA announced this month that the deadline for players to be released to AFCON squads would be pushed back to December 15.`\
+https://nytimes.com/athletic/6896098/2025/12/17/mazraoui-afcon-morocco-manchester-united/
+
 **Warner Bros. Says Ellisons ‘Misled’ Shareholders in Takeover Bid**\
 `The claim was made as part of Warner Bros. Discovery’s dismissal of Paramount’s hostile takeover offer.`\
 https://nytimes.com/2025/12/17/business/media/warner-bros-paramount-takeover-netflix.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6894461/2025/12/17/college-football-playoff-bandwag
 **As Victor Wembanyama grieves his grandmother, Spurs process NBA Cup loss**\
 `After an emotional night, the Spurs were still able to come out of their loss to the Knicks having learned something about themselves.`\
 https://nytimes.com/athletic/6895706/2025/12/17/victor-wembanyama-grandmother-spurs-loss-nba-cup/
-
-**Ole Miss football ‘embraces choas' — can the Rebels block out the noise and prove they belong**\
-`Just when Ole Miss is on the precipice of something great, fate always seems to intervene.`\
-https://nytimes.com/athletic/6893588/2025/12/17/ole-miss-football-embraces-choas-can-the-rebels-block-out-the-noise-and-prove-they-belong/
 

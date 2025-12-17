@@ -1,3 +1,7 @@
+**Man Utd unhappy with Morocco for rejecting Mazraoui request**\
+`FIFA announced this month that the deadline for players to be released to AFCON squads would be pushed back to December 15.`\
+https://nytimes.com/athletic/6896098/2025/12/17/mazraoui-afcon-morocco-manchester-united/
+
 **Warner Bros. Says Ellisons ‘Misled’ Shareholders in Takeover Bid**\
 `The claim was made as part of Warner Bros. Discovery’s dismissal of Paramount’s hostile takeover offer.`\
 https://nytimes.com/2025/12/17/business/media/warner-bros-paramount-takeover-netflix.html
