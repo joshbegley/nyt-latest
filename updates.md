@@ -1,3 +1,15 @@
+**How to watch South Florida vs. Alabama men's basketball: Time, TV, streaming**\
+`Find out how to watch the South Florida Bulls play the Alabama Crimson Tide, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6897345/2025/12/17/south-florida-vs-alabama-stream-how-to-watch-dec-17/
+
+**Ceal Floyer, Incisive Conceptual Artist, Dies at 57**\
+`Her work had a clean, minimal aesthetic at odds with the ambiguities it suggested. It was also unusually accessible.`\
+https://nytimes.com/2025/12/17/arts/ceal-floyer-dead.html
+
+**NFL Week 16 staff picks: NFC supremacy hangs in the balance**\
+`It's "Butterfly Effect" season in the NFL, and nearly every game has downstream effects on someone's playoff hopes.`\
+https://nytimes.com/athletic/6895648/2025/12/17/nfl-week-16-staff-picks-nfc-showdown/
+
 **Nearly $900 Million Flowed in Secret to Help Harris and Trump in 2024**\
 `The main dark-money group backing Kamala Harris and Joe Biden raised a staggering $613 million last year, while its pro-Trump counterpart brought in $275 million, new filings show.`\
 https://nytimes.com/2025/12/17/us/politics/harris-trump-dark-money-democrats-republicans.html
