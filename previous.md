@@ -1,3 +1,7 @@
+**The Bounce: The Knicks won a title! Plus, NBA owners check their emails**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/6896366/2025/12/17/knicks-nba-cup-the-bounce-title/
+
 **Seattle? Mexico City? Where should the next NBA Cup final be played?**\
 `Historic college venues? An international city? Here are some ideas for where the NBA Cup final could go next.`\
 https://nytimes.com/athletic/6896293/2025/12/17/nba-cup-site-las-vegas-new-home/
@@ -29,8 +33,4 @@ https://nytimes.com/live/2025/12/17/us/rob-nick-reiner-murder-charges/heres-the-
 **Live Updates: Prosecutors Build Case Against Son in Reiner Killings**\
 `It was unclear when Nick Reiner would be medically cleared to appear in court for an arraignment after he was charged with murdering his parents, Rob and Michele Singer Reiner.`\
 https://nytimes.com/live/2025/12/17/us/rob-nick-reiner-murder-charges
-
-**Greenpeace’s Fight With Pipeline Giant Exposes a Legal Loophole**\
-`A court filing by a group with deep ties to the pipeline company Energy Transfer raises questions about the growing use of amicus briefs in litigation.`\
-https://nytimes.com/2025/12/17/climate/greenpeaces-fight-with-pipeline-giant-exposes-a-legal-loophole.html
 
