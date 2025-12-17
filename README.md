@@ -1,3 +1,11 @@
+**On Bali, the Holiday Vibe Masks Memories of a Massacre**\
+`Sixty years ago, half a million Indonesians were killed in anti-Communist purges. On Bali, resorts and clubs were built atop mass graves.`\
+https://nytimes.com/2025/12/17/world/asia/bali-indonesia-communist-massacres.html
+
+**Crystal Palace play twice in 48 hours. How is that going to work?**\
+`Go full-strength on Thursday and Saturday? Play the kids in Europe? Try to find a balance? The manager has some tricky decisions to make...`\
+https://nytimes.com/athletic/6888560/2025/12/17/crystal-palace-oliver-glasner-premier-league-conference-league/
+
 **Lionel Messi's GOAT tour of India: Stadium chaos, a 'missed wedding', and a 21-metre statue**\
 `He unveiled a statue of himself and met Indian sporting greats, but events in Kolkata meant the GOAT tour was soured for some`\
 https://nytimes.com/athletic/6894116/2025/12/17/lionel-messi-india-tour/
@@ -26,12 +34,4 @@ https://nytimes.com/athletic/6891574/2025/12/17/viktor-gyokeres-arsenal-arteta-h
 **What impact has Real Madrid's injury crisis had on Xabi Alonso's turbulent start?**\
 `Xabi Alonso is on thin ice at Real Madrid, and injuries to some key players haven't helped`\
 https://nytimes.com/athletic/6893851/2025/12/17/real-madrid-xabi-alonso-injuries/
-
-**Fernandes feels unloved by Man Utd. The truth is he is their most precious asset**\
-`The Portuguese may be perturbed at his treatment in the summer but his numbers underline his value to United `\
-https://nytimes.com/athletic/6894398/2025/12/17/bruno-fernandes-manchester-united-goals-assists/
-
-**Salah's bid for crowning glory, look out for DR Congo and Cameroon in chaos - AFCON stories to watch**\
-`A look at some of the key teams, players and potential plot lines from the upcoming Africa Cup of Nations which begins on Sunday`\
-https://nytimes.com/athletic/6875176/2025/12/17/africa-cup-of-nations-storylines-to-watch/
 
