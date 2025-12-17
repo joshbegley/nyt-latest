@@ -1,3 +1,11 @@
+**Guardiola says Bobb got hamstring injury in Carabao Cup win but hopefully 'back soon'**\
+`The City midfielder was substituted in the 19th minute and went straight down the tunnel during the Carabao Cup game.`\
+https://nytimes.com/athletic/6897763/2025/12/17/oscar-bobb-hamstring-injury/
+
+**House Rejects Measure to Bar Strikes Inside Venezuela**\
+`The Democratic measure was defeated mostly along party lines, along with another resolution that would have halted the military’s escalating campaign of boat attacks.`\
+https://nytimes.com/2025/12/17/us/politics/trump-venezuela-house-vote.html
+
 **Hans van Manen, Celebrated Dutch Choreographer, Is Dead at 93**\
 `He rose from poverty to become one of the Netherlands’ most revered dance makers, creating more than 150 avant-garde works in a career spanning eight decades.`\
 https://nytimes.com/2025/12/17/arts/dance/hans-van-manen-dead.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6897749/2025/12/17/dayne-st-clair-inter-miami-trans
 **A 4-point plan for new Penguins owners to fix FSG's weaknesses**\
 `The Penguins' new owners have several urgent questions to answer. Here's where they should start.`\
 https://nytimes.com/athletic/6897268/2025/12/17/penguins-sale-hoffmann-family-nhl-fsg/
-
-**Will Kenley Jansen get to 500 saves with the Tigers? Here's how he fits in Detroit**\
-`Will Jansen be a traditional closer? Can he stave off decline? Those are the questions entering his new contract.`\
-https://nytimes.com/athletic/6897464/2025/12/17/kenley-jansen-detroit-tigers-closer-500-saves/
-
-**Cowboys WR George Pickens on recent criticism: ‘It’s starting to get kinda old’**\
-`Pickens has career-highs with 81 receptions, 1,212 yards and eight TD catches.`\
-https://nytimes.com/athletic/6897781/2025/12/17/cowboys-george-pickens-criticism/
 

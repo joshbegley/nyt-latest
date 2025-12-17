@@ -1,3 +1,7 @@
+**Hans van Manen, Celebrated Dutch Choreographer, Is Dead at 93**\
+`He rose from poverty to become one of the Netherlands’ most revered dance makers, creating more than 150 avant-garde works in a career spanning eight decades.`\
+https://nytimes.com/2025/12/17/arts/dance/hans-van-manen-dead.html
+
 **How the ‘Wicked’ Movies Turbocharged a Broadway Juggernaut**\
 `The musical was already one of theater’s biggest success stories. Then came Hollywood.`\
 https://nytimes.com/interactive/2025/12/17/theater/wicked-movies-broadway-earnings.html

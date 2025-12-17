@@ -1,3 +1,7 @@
+**Hans van Manen, Celebrated Dutch Choreographer, Is Dead at 93**\
+`He rose from poverty to become one of the Netherlands’ most revered dance makers, creating more than 150 avant-garde works in a career spanning eight decades.`\
+https://nytimes.com/2025/12/17/arts/dance/hans-van-manen-dead.html
+
 **How the ‘Wicked’ Movies Turbocharged a Broadway Juggernaut**\
 `The musical was already one of theater’s biggest success stories. Then came Hollywood.`\
 https://nytimes.com/interactive/2025/12/17/theater/wicked-movies-broadway-earnings.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6897464/2025/12/17/kenley-jansen-detroit-tigers-clo
 **Cowboys WR George Pickens on recent criticism: ‘It’s starting to get kinda old’**\
 `Pickens has career-highs with 81 receptions, 1,212 yards and eight TD catches.`\
 https://nytimes.com/athletic/6897781/2025/12/17/cowboys-george-pickens-criticism/
-
-**Scoop City: Miami's $212 million quarterback, benched**\
-`A Miami quarterback decision, resources for the league's worst teams and two long-awaited breakouts, plus Mike Sando on Aaron Rodgers`\
-https://nytimes.com/athletic/6897793/2025/12/17/dolphins-bench-tua-tagovailoa-aaron-rodgers-giants-titans-raiders/
 
