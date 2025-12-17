@@ -1,3 +1,27 @@
+**How to watch Hurricanes vs. Predators: Time, TV, streaming**\
+`Find out how to watch the Carolina Hurricanes play the Nashville Predators, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6897417/2025/12/17/hurricanes-vs-predators-stream-how-to-watch-dec-17/
+
+**Christine Choy, Documentarian of Asian American Life, Dies at 76**\
+`Her film “Who Killed Vincent Chin?” earned an Oscar nomination in 1988 and was inducted into the National Film Registry for its cultural significance.`\
+https://nytimes.com/2025/12/17/movies/christine-choy-dead.html
+
+**Trump’s NASA Pick Is Confirmed at Last to Lead Space Program in Peril**\
+`Jared Isaacman, the billionaire nominated twice to lead the agency, may draw some lessons from the tenure of another NASA leader in the 1990s.`\
+https://nytimes.com/2025/12/17/science/nasa-jared-isaacman-confirmed-senate.html
+
+**How to watch Cavaliers vs. Bulls: Time, TV, streaming**\
+`Find out how to watch the Cleveland Cavaliers play the Chicago Bulls, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6897406/2025/12/17/cavaliers-vs-bulls-stream-how-to-watch-dec-17/
+
+**How to watch Grizzlies vs. Timberwolves: Time, TV, streaming**\
+`Find out how to watch the Memphis Grizzlies play the Minnesota Timberwolves, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6897404/2025/12/17/grizzlies-vs-timberwolves-stream-how-to-watch-dec-17/
+
+**How to watch Mammoth vs. Red Wings: Time, TV, streaming**\
+`Find out how to watch the Utah Mammoth play the Detroit Red Wings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6897402/2025/12/17/mammoth-vs-red-wings-stream-how-to-watch-dec-17/
+
 **How to watch Devils vs. Golden Knights: Time, TV, streaming**\
 `Find out how to watch the New Jersey Devils play the Vegas Golden Knights, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6897400/2025/12/17/devils-vs-golden-knights-stream-how-to-watch-dec-17/
@@ -9,28 +33,4 @@ https://nytimes.com/athletic/6897398/2025/12/17/jets-vs-blues-stream-how-to-watc
 **The Oscars are coming to YouTube. Is the Super Bowl next?**\
 `The Oscars, an iconic tentpole of the broadcast TV landscape, are moving to YouTube. What could that mean for sports' biggest events?`\
 https://nytimes.com/athletic/6897207/2025/12/17/oscars-2029-youtube-nfl-super-bowl/
-
-**How to watch Northwestern State vs. Texas women's basketball: Time, TV, streaming**\
-`Find out how to watch the Northwestern State Lady Demons play the Texas Longhorns, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6897383/2025/12/17/northwestern-state-vs-texas-stream-how-to-watch-dec-17/
-
-**How to watch Campbell vs. Gonzaga men's basketball: Time, TV, streaming**\
-`Find out how to watch the Campbell Fighting Camels play the Gonzaga Bulldogs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6897378/2025/12/17/campbell-vs-gonzaga-stream-how-to-watch-dec-17/
-
-**Brad Stevens: Celtics could be trade deadline buyers 'if it makes sense'**\
-`At 15-11 without Jayson Tatum, the Celtics find themselves in an interesting position two months out from the NBA trade deadline.`\
-https://nytimes.com/athletic/6897263/2025/12/17/brad-stevens-celtics-trade-deadline-buyers/
-
-**How to watch UNC Wilmington vs. North Carolina women's basketball: Time, TV, streaming**\
-`Find out how to watch the UNC Wilmington Seahawks play the North Carolina Tar Heels, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6897357/2025/12/17/unc-wilmington-vs-north-carolina-stream-how-to-watch-dec-17/
-
-**How to watch South Florida vs. Alabama men's basketball: Time, TV, streaming**\
-`Find out how to watch the South Florida Bulls play the Alabama Crimson Tide, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6897345/2025/12/17/south-florida-vs-alabama-stream-how-to-watch-dec-17/
-
-**Ceal Floyer, Incisive Conceptual Artist, Dies at 57**\
-`Her work had a clean, minimal aesthetic at odds with the ambiguities it suggested. It was also unusually accessible.`\
-https://nytimes.com/2025/12/17/arts/ceal-floyer-dead.html
 
