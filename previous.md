@@ -1,3 +1,15 @@
+**Scoop City: Miami's $212 million quarterback, benched**\
+`A Miami quarterback decision, resources for the league's worst teams and two long-awaited breakouts, plus Mike Sando on Aaron Rodgers`\
+https://nytimes.com/athletic/6897793/2025/12/17/dolphins-bench-tua-tagovailoa-aaron-rodgers-giants-titans-raiders/
+
+**Bongino to Step Down From F.B.I.**\
+`The departure of Dan Bongino had seemed inevitable since August, when the White House hired Missouri’s attorney general, Andrew Bailey, to share his job as deputy director.`\
+https://nytimes.com/2025/12/17/us/politics/dan-bongino-steps-down-fbi.html
+
+**Joe Burrow indicates he's in on Bengals and Zac Taylor, but the clock ticks**\
+`The quarterback was pretty definitive on Wednesday that he doesn't see himself on another team next season.`\
+https://nytimes.com/athletic/6897675/2025/12/17/joe-burrow-zac-taylor-bengals-dolphins/
+
 **James Barnor Has Photographed Ghana Since the 1940s. He Remembers Everything.**\
 `The 96-year-old on postcolonial history, his first camera and the importance of talking to younger artists.`\
 https://nytimes.com/2025/12/17/t-magazine/james-barnor-photography-moma.html
@@ -21,16 +33,4 @@ https://nytimes.com/2025/12/17/well/eat/cheese-dementia-study.html
 **Woman in ‘Slender Man’ Stabbing Won’t Contest Effort to Revoke Her Release**\
 `Morgan Geyser, who was convicted after she stabbed a friend in 2014 to please a fictional character, was arrested last month after she cut off a monitoring bracelet and fled from a group home.`\
 https://nytimes.com/2025/12/17/us/morgan-geyser-slender-man-release-privileges.html
-
-**Let’s Go Beyond Trump’s Vile Words About Rob Reiner**\
-`We must do far more to address the national crisis of addiction that leaves so many households in despair as well as danger.`\
-https://nytimes.com/2025/12/17/opinion/trump-rob-reiner.html
-
-**Canada’s Population Shrinks Amid Tightened Immigration**\
-`The government has greatly restricted the number of work and study permits issued to foreigners following an unpopular immigration boom during the pandemic.`\
-https://nytimes.com/2025/12/17/world/canada/canada-population-decline-immigration.html
-
-**Trump Administration Aims to Strip More Foreign-Born Americans of Citizenship**\
-`An official with U.S. Citizenship and Immigration Services said it would prioritize “those who’ve unlawfully obtained U.S. citizenship.”`\
-https://nytimes.com/2025/12/17/us/politics/trump-immigration-citizenship-denaturalization.html
 
