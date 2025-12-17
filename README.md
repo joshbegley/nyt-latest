@@ -1,3 +1,11 @@
+**Lowetide: Connor McDavid's soaring December is leading Oilers back up standings**\
+`McDavid is back on track, and with Zach Hyman healthy, the Oilers have a fantastic top line.`\
+https://nytimes.com/athletic/6893829/2025/12/17/connor-mcdavid-oilers-stat-standings-december-2025/
+
+**AC Milan in talks over move for West Ham's Fullkrug**\
+`Fullkrug's agent said last month it would "make sense" for the 32-year-old to leave West Ham.`\
+https://nytimes.com/athletic/6896447/2025/12/17/niclas-fullkrug-milan-west-ham/
+
 **2025's most tectonically powerful sports business storylines: MoneyCall**\
 `Welcome back to MoneyCall, The Athletic’s weekly sports business cheat sheet.`\
 https://nytimes.com/athletic/6896579/2025/12/17/2025-year-end-sports-business-moneycall/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6896146/2025/12/17/premier-league-manager-sack-race
 **How to watch Mississippi Valley State vs. Ole Miss women's basketball: Time, TV, streaming**\
 `Find out how to watch the Mississippi Valley State Devilettes play the Ole Miss Rebels, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6896654/2025/12/17/mississippi-valley-state-vs-ole-miss-stream-how-to-watch-dec-17/
-
-**How to watch Eastern Kentucky vs. Louisville women's basketball: Time, TV, streaming**\
-`Find out how to watch the Eastern Kentucky Colonels play the Louisville Cardinals, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6896650/2025/12/17/eastern-kentucky-vs-louisville-stream-how-to-watch-dec-17/
-
-**Five reasons to stop worrying about Canucks wins as the rebuild begins**\
-`The Canucks have won both games they've played since Quinn Hughes was traded to Minnesota.`\
-https://nytimes.com/athletic/6895674/2025/12/17/canucks-stats-standings-rebuild-quinn-hughes/
 
