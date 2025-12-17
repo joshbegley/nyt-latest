@@ -1,3 +1,7 @@
+**The Pulse: Your opinions on the NBA Cup**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6894818/2025/12/17/nba-cup-knicks-spurs-poll-the-pulse/
+
 **2025 Sports Media Awards: Person of the Year, top dealmakers and more**\
 `Who won Andrew Marchand's coveted end-of-the-year "Golden Clickers?"`\
 https://nytimes.com/athletic/6893866/2025/12/17/2025-sports-media-awards-ernie-johnson-elle-duncan/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6895397/2025/12/17/yohes-10-observations-oilers-toy
 **What I saw and heard at Canada's World Junior camp: McKenna, the bubble, the NHLers, more**\
 `Scott Wheeler spent the last three days at the Gale Centre Arena in Niagara Falls for a series of practices and scrimmages.`\
 https://nytimes.com/athletic/6885017/2025/12/17/canada-world-juniors-gavin-mckenna-camp/
-
-**Vikings WR Justin Jefferson has had a tough season, but 1,000 yards is still within reach**\
-`Jefferson has struggled along with young quarterback J.J. McCarthy, but Minnesota's all-world wideout can end the season on a high note.`\
-https://nytimes.com/athletic/6894499/2025/12/17/justin-jefferson-vikings-1000-yards/
 
