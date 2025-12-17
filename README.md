@@ -18,7 +18,7 @@ https://nytimes.com/athletic/6897881/2025/12/17/micah-parsons-jeff-hafley-packer
 `The American Academy of Pediatrics had called the department’s policies “irresponsible and purposefully misleading” and joined a lawsuit against its vaccine policy.`\
 https://nytimes.com/2025/12/17/us/politics/health-department-grants-kennedy-cavvines.html
 
-**Bears expand stadium search beyond Arlington Heights — including northwest Indiana**\
+**Bears eye northwest Indiana as they expand stadium search**\
 `The Bears' letter served as a new concession that their desired path to getting their stadium project moved forward has been obstructed.`\
 https://nytimes.com/athletic/6897939/2025/12/17/bears-stadium-search-northwest-indiana/
 

@@ -1,3 +1,19 @@
+**House Passes Bill to Ban Gender Transition Treatments for Minors**\
+`The measure had little chance of consideration in the Senate, where it would need bipartisan support to move, but it reflected the priorities of the Republican majority.`\
+https://nytimes.com/2025/12/17/us/politics/bill-gender-transition-treatments-minors.html
+
+**Newcastle's Livramento a 'worry' for Chelsea match after knee injury**\
+`Livramento, 23, received medical attention on the pitch at St James' Park on Wednesday before being replaced in the 76th minute.`\
+https://nytimes.com/athletic/6897937/2025/12/17/tino-livramento-injury-update-newcastle/
+
+**Bodies of Rob and Michele Reiner Were Found in Master Bedroom, Police Say**\
+`After finding the slain couple, investigators focused on their younger son, Nick, as a suspect. He was formally charged with murder on Tuesday.`\
+https://nytimes.com/2025/12/17/us/rob-michele-reiner-location-death.html
+
+**Micah Parsons will break sack record next year, Packers DC Jeff Hafley predicts**\
+`Parsons ranks tied for third in sacks, first in total pressures and first in pressure percentage through 15 weeks this season.`\
+https://nytimes.com/athletic/6897881/2025/12/17/micah-parsons-jeff-hafley-packers-sacks/
+
 **Health Department Cancels Grants to Group That Criticized Kennedy’s Vaccine Policies**\
 `The American Academy of Pediatrics had called the department’s policies “irresponsible and purposefully misleading” and joined a lawsuit against its vaccine policy.`\
 https://nytimes.com/2025/12/17/us/politics/health-department-grants-kennedy-cavvines.html
