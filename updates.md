@@ -1,3 +1,15 @@
+**How to watch Steelers vs. Lions: Time, TV, streaming**\
+`Find out how to watch the Pittsburgh Steelers play the Detroit Lions, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6895108/2025/12/16/steelers-vs-lions-stream-how-to-watch-dec-21/
+
+**Widow of Officer Slain in Park Ave. Attack Sues Landlord Over Security**\
+`Didarul Islam and three others were killed when a gunman came to a Midtown skyscraper. The suit says the building had few physical barriers and lax surveillance.`\
+https://nytimes.com/2025/12/16/nyregion/didarul-islam-widow-lawsuit.html
+
+**Team Races Against Time to Save a Tangled Sea Lion in British Columbia**\
+`Experts tracked the sea lion, which had a rope around its neck, for over a month before they were able to catch up to it in Cowichan Bay, Canada.`\
+https://nytimes.com/2025/12/16/world/canada/sea-lion-rescue-cowichan-bay-vancouver.html
+
 **Penguins Become Prey for the Pumas of Patagonia**\
 `In Argentina, the return of pumas brought top predators back to the landscape — much to penguins’ dismay.`\
 https://nytimes.com/2025/12/16/science/penguins-pumas-patagonia.html
