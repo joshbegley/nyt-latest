@@ -1,3 +1,7 @@
+**Packers injuries: Updates on Micah Parsons, Josh Jacobs, Christian Watson and more**\
+`The Packers estimated nine players as non-participants on Tuesday ahead of Saturday night's game in Chicago.`\
+https://nytimes.com/athletic/6895072/2025/12/16/packers-injuries-parsons-watson-jacobs-bears/
+
 **How to watch Oilers vs. Penguins: Time, TV, streaming**\
 `Find out how to watch the Edmonton Oilers play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6895175/2025/12/16/oilers-vs-penguins-stream-how-to-watch-dec-16/
