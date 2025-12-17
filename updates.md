@@ -1,3 +1,20 @@
+**The New York Times in Print for Wednesday, Dec. 17, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/12/17/todays-new-york-times
+
+**Chile Is Swerving to the Right — and Into the Past**\
+`Chile’s new leader wants to rewrite its past and recast its future.`\
+https://nytimes.com/2025/12/17/opinion/chile-election-kast-pinochet.html
+
+**Suspect in Bondi Beach Massacre Is Charged With Murder and Terrorism**\
+`The Australian authorities said the 24-year-old man, who had been shot by the police, woke from a coma on Tuesday afternoon.`\
+https://nytimes.com/2025/12/17/world/asia/australia-bondi-beach-shooting.html
+
+**Even after comeback win, Leafs can't afford to keep playing with fire**\
+`A thrilling eight seconds may have been the difference in Toronto's 3-2 win over Chicago, but it isn’t tenable going forward.
+`\
+https://nytimes.com/athletic/6895539/2025/12/17/maple-leafs-blackhawks-auston-matthews-comeback-win/
+
 **Even after comeback win, Leafs can't afford to keep playing with fire**\
 `A thrilling eight seconds may have been the difference in Toronto's 3-2 win over Chicago, but it isn’t tenable going forward.
 `\
