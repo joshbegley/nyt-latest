@@ -1,3 +1,7 @@
+**Knicks' bench delivers New York's first banner since 1973: NBA Cup takeaways**\
+`Yes, the Knicks are going to hang a banner inside MSG.`\
+https://nytimes.com/athletic/6895370/2025/12/16/nba-cup-knicks-spurs-takeaways/
+
 **‘I always take responsibility’: Blackhawks’ Artyom Levshunov scratched for being late**\
 `Levshunov sat out Chicago's 3-2 loss to the Maple Leafs on Tuesday after arriving late to practice the day before.`\
 https://nytimes.com/athletic/6895068/2025/12/16/blackhawks-maple-leafs-artyom-levshunov-scratched/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/16/us/nick-reiner-death-penalty-murder.html
 **Prosecutors Charge Nick Reiner With Murdering His Parents**\
 `Los Angeles prosecutors charged Nick Reiner with two counts of first-degree murder in the deaths of his parents, the director Rob Reiner and Michele Singer Reiner.`\
 https://nytimes.com/video/us/100000010592318/nick-reiner-charges-murder-rob-michele.html
-
-**Jeremiyah Love declares for 2026 NFL Draft. Could he be a top-10 pick?**\
-`Love, who finished third in Heisman voting, could be the first non-quarterback selected on the offensive side of the ball. `\
-https://nytimes.com/athletic/6895360/2025/12/16/jeremiyah-love-2026-nfl-draft-declares-scouting/
 

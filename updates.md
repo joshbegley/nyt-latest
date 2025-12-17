@@ -1,3 +1,7 @@
+**Knicks' bench delivers New York's first banner since 1973: NBA Cup takeaways**\
+`Yes, the Knicks are going to hang a banner inside MSG.`\
+https://nytimes.com/athletic/6895370/2025/12/16/nba-cup-knicks-spurs-takeaways/
+
 **‘I always take responsibility’: Blackhawks’ Artyom Levshunov scratched for being late**\
 `Levshunov sat out Chicago's 3-2 loss to the Maple Leafs on Tuesday after arriving late to practice the day before.`\
 https://nytimes.com/athletic/6895068/2025/12/16/blackhawks-maple-leafs-artyom-levshunov-scratched/
