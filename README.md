@@ -6,7 +6,7 @@ https://nytimes.com/2025/12/17/well/new-flu-variant-symptoms.html
 `Las Vegas may seem obvious, but is it still a good option? And are owners willing to split the financial pie even more?`\
 https://nytimes.com/athletic/6896797/2025/12/17/nba-expansion-las-vegas-seattle-adam-silver/
 
-**Security Camera Footage Shows Nick Reiner Enter Store an Hour Before His Arrest**\
+**Video Footage Shows Nick Reiner Enter Store an Hour Before His Arrest**\
 `Mr. Reiner was filmed entering a gas station’s store in South Los Angeles to buy a sports drink roughly an hour before he was arrested by the police across the street.`\
 https://nytimes.com/2025/12/17/us/nick-reiner-arrest-video-gas-station.html
 
