@@ -1,3 +1,7 @@
+**College Football Playoff confidential: Coaches love Georgia, pick McGuire over Day, call out frauds**\
+`There's some group concern for Ole Miss, predictions for Miami to advance, and a lot of fear of the Bulldogs.`\
+https://nytimes.com/athletic/6894571/2025/12/17/college-football-playoff-confidential-indiana-ohio-state-georgia/
+
 **Free-agent matchmaking: Finding the best homes for Kyle Tucker, Framber Valdez and others**\
 `Some of the top free agents are already off the board. We look for homes for those remaining high-profile players on the market.`\
 https://nytimes.com/athletic/6889235/2025/12/17/mlb-free-agents-best-fits-2025-2026/
