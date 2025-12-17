@@ -31,6 +31,6 @@ https://nytimes.com/video/us/100000010594152/nick-reiner-gas-station.html
 https://nytimes.com/video/podcasts/100000010590383/jeff-flake-on-venezuela-republicans-cant-speak-truth-to-power.html
 
 **Stabbing Near Chabad Headquarters Investigated as a Possible Hate Crime**\
-`A dispute on a Brooklyn street appeared to explode after the perpetrator accosted the victim with antisemitic statements, the police said.`\
+`A dispute on a Brooklyn street appeared to explode after the perpetrator made antisemitic statements, the police said.`\
 https://nytimes.com/2025/12/17/nyregion/hate-crime-stabbing-chabad.html
 
