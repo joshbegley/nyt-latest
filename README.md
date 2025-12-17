@@ -1,3 +1,23 @@
+**More Than 2,000 Dinosaur Footprints Are Found in the Italian Alps**\
+`Two hundred million years ago, prosauropods walked the earth. They left something behind.`\
+https://nytimes.com/2025/12/17/science/dinosaur-footprints-olympics-italy.html
+
+**Executives at Subprime Auto Lender Are Charged With Fraud**\
+`Federal prosecutors filed criminal fraud charges against two top executives at Tricolor Auto, and two other executives have already pleaded guilty to related charges.`\
+https://nytimes.com/2025/12/17/business/auto-lender-fraud.html
+
+**When Patients Lose Faith in Medicine**\
+`Readers react to Daniela Lamas’s essay on the moral dilemma posed by a patient who refused her advice, then died. Also: Managing methane on farms.`\
+https://nytimes.com/2025/12/17/opinion/patients-doctor-ethical-choice.html
+
+**N.Y. Governor Will Sign Right-to-Die Bill for the Terminally Ill**\
+`Gov. Kathy Hochul cast the measure in unusually personal terms, saying she had felt “the pain of seeing someone you love suffer and feeling powerless to stop it.”`\
+https://nytimes.com/2025/12/17/nyregion/medical-dying-assisted-suicide-hochul.html
+
+**Timothée Chalamet, Gwyneth Paltrow and Zohran Mamdani Toast ‘Marty Supreme’**\
+`With orange beanies, a roast pig and a mayor-elect, the New York premiere of A24’s buzzy Ping-Pong film was its own kind of flick.`\
+https://nytimes.com/2025/12/17/style/marty-supreme-premiere-timothee-chalamet-mamdani.html
+
 **Fantasy trends and hidden gems: Trade fallout and a two-week outlook**\
 `Shayna Goldman analyzes key fantasy-relevant trades and previews the next two weeks to help managers stay competitive through the holidays.`\
 https://nytimes.com/athletic/6896471/2025/12/17/fantasy-trends-hidden-gems-trade-fallout-two-week-outlook/
@@ -13,24 +33,4 @@ https://nytimes.com/2025/12/17/nyregion/new-york-city-affordability.html
 **The Oscars Will Be Streamed**\
 `The Academy of Motion Picture Arts and Sciences said that it had reached a deal with YouTube for exclusive rights to the show starting in 2029.`\
 https://nytimes.com/2025/12/17/business/media/oscars-youtube.html
-
-**What’s in Our Queue? ‘Duster’ and More**\
-`Text by Mark Arsenault`\
-https://nytimes.com/card/2025/12/17/arts/editors-recommendations-duster
-
-**Submit a question for Eric Koreen’s Raptors mailbag**\
-`Submit your questions for our upcoming Raptors mailbag. `\
-https://nytimes.com/athletic/6896718/2025/12/17/raptors-mailbag-holiday-submit-question/
-
-**'Almost like it wasn't real': Travis Kelce opens up about Mahomes' injury**\
-`Kelce addressed Mahomes' injury and the Chiefs being eliminated from the playoffs in his latest "New Heights" episode.`\
-https://nytimes.com/athletic/6896858/2025/12/17/patrick-mahomes-injury-travis-kelce-chiefs/
-
-**Celtic chairman Lawwell steps down citing 'intolerable' abuse**\
-`Lawwell, 66, was part of a Celtic board which has been under heavy scrutiny from supporters this season with several protests being staged.`\
-https://nytimes.com/athletic/6896769/2025/12/17/celtic-chairman-peter-lawwell-resigns-abuse/
-
-**‘The Voice of Hind Rajab’ Review: When Help Won’t Arrive**\
-`Kaouther Ben Hania’s dramatized feature about a Palestinian girl who is killed in Gaza City is both powerfully direct and purposefully removed.`\
-https://nytimes.com/2025/12/17/movies/the-voice-of-hind-rajab-review.html
 
