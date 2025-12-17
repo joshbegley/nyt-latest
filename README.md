@@ -1,3 +1,7 @@
+**Must-See Moments From the N.B.A. Cup Championship**\
+`The New York Knicks pulled off a comeback victory over the San Antonio Spurs to take the N.B.A. Cup in Las Vegas.`\
+https://nytimes.com/video/sports/basketball/100000010592644/must-see-moments-from-the-nba-cup-championship.html
+
 **England consider official complaint over Snicko, Carey admits he feathered an edge**\
 `The Australia wicketkeeper was given not out on 72 after the technology showed a spike before the ball reached the bat`\
 https://nytimes.com/athletic/6895826/2025/12/17/england-australia-snicko-carey-tongue/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6895784/2025/12/17/patriots-vs-ravens-stream-how-to
 **Word of the Day: commensurate**\
 `This word has appeared in 117 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/12/17/learning/word-of-the-day-commensurate.html
-
-**Late Night Thanks the White House for a ‘Doozy of an Interview’**\
-`Jimmy Kimmel was grateful that Susie Wiles, the president’s “future former chief of staff,” spilled the beans on her boss in a Vanity Fair article.`\
-https://nytimes.com/2025/12/17/arts/television/late-night-susie-wiles-interview.html
 
