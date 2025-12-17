@@ -1,3 +1,19 @@
+**FIFA not entirely to blame for World Cup ticket prices. But it made one big mistake.**\
+`FIFA is an easy target for something that likely would've happened anyway, but it could've catered more to specific sects of fandom`\
+https://nytimes.com/athletic/6893012/2025/12/17/fifa-world-cup-ticket-prices-fans/
+
+**‘Good-Bad’ Movies**\
+`What are your favorite films that are so bad, they’re good?`\
+https://nytimes.com/2025/12/17/learning/good-bad-movies.html
+
+**Eric Adams Pledged to Help Dyslexic Students. Many Say He Fell Short.**\
+`Mayor Adams took notable steps toward improving reading instruction in New York. But families and advocates say many students with dyslexia are still struggling.`\
+https://nytimes.com/2025/12/17/nyregion/nyc-dyslexia-children-eric-adams.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/12/17/crosswords/spelling-bee-forum.html
+
 **The Ashes Briefing: Carey leads Australia's counter-attack after Archer gives England hope**\
 `England claimed eight wickets on the first day in Adelaide after Australia won the toss and batted, but Alex Carey was the star of the show`\
 https://nytimes.com/athletic/6888848/2025/12/17/ashes-australia-england-carey-khawaja-archer-briefing/
@@ -17,20 +33,4 @@ https://nytimes.com/2025/12/17/arts/television/late-night-susie-wiles-interview.
 **Grief Mixes With Anger at Funeral of Rabbi Killed in Bondi Beach Attack**\
 `The funeral for Rabbi Eli Schlanger on Wednesday was the first held for one of the 15 people killed in a mass shooting at a Jewish celebration in Sydney, Australia.`\
 https://nytimes.com/2025/12/17/world/asia/rabbi-eli-schlanger-funeral-bondi-shooting.html
-
-**First Funeral Held For Victim of Bondi Beach Shooting**\
-`People mourned the death of Rabbi Eli Schlanger during the first funeral for those killed in the Bondi Beach shooting. He was a key organizer of the Jewish event that was tarnished by a mass shooting.`\
-https://nytimes.com/video/world/australia/100000010592479/rabbi-eli-schlanger-funeral-bondi-shooting.html
-
-**The New York Times in Print for Wednesday, Dec. 17, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/12/17/todays-new-york-times
-
-**Chile Is Swerving to the Right — and Into the Past**\
-`Chile’s new leader wants to rewrite its past and recast its future.`\
-https://nytimes.com/2025/12/17/opinion/chile-election-kast-pinochet.html
-
-**Tarasenko, Yurov have huge nights as short-handed Wild steamroll Caps**\
-`This run is a far cry from the last few years, when the Wild's season fell apart once injuries started to pile up.`\
-https://nytimes.com/athletic/6895186/2025/12/17/tarasenko-yurov-wild-shut-out-capitals/
 

@@ -1,3 +1,19 @@
+**FIFA not entirely to blame for World Cup ticket prices. But it made one big mistake.**\
+`FIFA is an easy target for something that likely would've happened anyway, but it could've catered more to specific sects of fandom`\
+https://nytimes.com/athletic/6893012/2025/12/17/fifa-world-cup-ticket-prices-fans/
+
+**‘Good-Bad’ Movies**\
+`What are your favorite films that are so bad, they’re good?`\
+https://nytimes.com/2025/12/17/learning/good-bad-movies.html
+
+**Eric Adams Pledged to Help Dyslexic Students. Many Say He Fell Short.**\
+`Mayor Adams took notable steps toward improving reading instruction in New York. But families and advocates say many students with dyslexia are still struggling.`\
+https://nytimes.com/2025/12/17/nyregion/nyc-dyslexia-children-eric-adams.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/12/17/crosswords/spelling-bee-forum.html
+
 **The Ashes Briefing: Carey leads Australia's counter-attack after Archer gives England hope**\
 `England claimed eight wickets on the first day in Adelaide after Australia won the toss and batted, but Alex Carey was the star of the show`\
 https://nytimes.com/athletic/6888848/2025/12/17/ashes-australia-england-carey-khawaja-archer-briefing/
