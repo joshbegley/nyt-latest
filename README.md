@@ -1,3 +1,11 @@
+**Browns' Devin Bush found not guilty of assault, harassment following May arrest**\
+`In 14 games for the Browns this year, Bush has recorded 93 tackles, two sacks and two interceptions.`\
+https://nytimes.com/athletic/6896389/2025/12/17/browns-devin-bush-not-guilty-arrest/
+
+**Wilson agrees to stay with Thorns through 2026, exercising her player option in NWSL: Exclusive**\
+`The U.S. forward said the comfort of returning to Portland is what she needed following the birth of her daughter. `\
+https://nytimes.com/athletic/6895169/2025/12/17/sophia-wilson-contract-portland-thorns-2026/
+
 **Palace's Kamada facing up to 10 weeks out with hamstring injury**\
 `Kamada’s injury will further deplete Palace's squad ahead of a busy run of fixtures.`\
 https://nytimes.com/athletic/6896453/2025/12/17/daichi-kamada-palace-injury-update/
@@ -21,12 +29,4 @@ https://nytimes.com/athletic/6896293/2025/12/17/nba-cup-site-las-vegas-new-home/
 **Cincinnati's Jizzle James, son of Edgerrin James, returns to hoops roster**\
 `The team dismissed Jizzle James in July due to undisclosed personal issues.`\
 https://nytimes.com/athletic/6896280/2025/12/17/cincinnati-basketball-jizzle-james-return/
-
-**FIFA confirms dates for Women's Club World Cup in January 2028**\
-`The 16-team tournament will take place in the same year as the LA Olympic Games and midway through the European domestic football season.`\
-https://nytimes.com/athletic/6896275/2025/12/17/fifa-womens-club-world-cup-january-wsl/
-
-**Liverpool's Szoboszlai hoping to be fit for Spurs game after sustaining ankle injury**\
-`The Hungary international was forced off with in the closing stages of last weekend's 2-0 win over Brighton & Hove Albion.`\
-https://nytimes.com/athletic/6896322/2025/12/17/liverpool-dominik-szoboszlai-injury-update/
 
