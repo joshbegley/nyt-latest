@@ -1,3 +1,7 @@
+**Giants guarantee $22 million to Adrian Houser, adding depth if not flash to rotation**\
+`Houser is expected to help fill out a rotation that's light on experience behind 2025 NL All-Stars Logan Webb and Robbie Ray.`\
+https://nytimes.com/athletic/6895081/2025/12/16/giants-sign-adrian-houser-mlb/
+
 **Packers injuries: Updates on Micah Parsons, Josh Jacobs, Christian Watson and more**\
 `The Packers estimated nine players as non-participants on Tuesday ahead of Saturday night's game in Chicago.`\
 https://nytimes.com/athletic/6895072/2025/12/16/packers-injuries-parsons-watson-jacobs-bears/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6895146/2025/12/16/jaguars-vs-broncos-stream-how-to
 **Where Did Jeffrey Epstein Get His Money?**\
 `For years, rumors swirled about where Jeffrey Epstein’s wealth came from. A Times investigation reveals the truth of how a college dropout clawed his way to the pinnacle of American finance and society.`\
 https://nytimes.com/video/magazine/100000010588155/where-did-jeffrey-epstein-get-his-money.html
-
-**How to watch Falcons vs. Cardinals: Time, TV, streaming**\
-`Find out how to watch the Atlanta Falcons play the Arizona Cardinals, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6895129/2025/12/16/falcons-vs-cardinals-stream-how-to-watch-dec-21/
 
