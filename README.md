@@ -1,3 +1,11 @@
+**Trump Administration Aims to Strip More Naturalized Americans of Citizenship**\
+`An official with U.S. Citizenship and Immigration Services said it would prioritize “those who’ve unlawfully obtained U.S. citizenship.”`\
+https://nytimes.com/2025/12/17/us/politics/trump-immigration-citizenship-denaturalization.html
+
+**Sherrone Moore had 'long history of domestic violence' against Michigan staffer, lawyer alleges**\
+`Pittsfield Township Police provided information in sworn testimony at a complaint authorization hearing last week.`\
+https://nytimes.com/athletic/6897448/2025/12/17/sherrone-moore-michigan-domestic-violence-allegation/
+
 **Fani Willis Calls Trump and Allies ‘Criminals’ at Georgia Senate Hearing**\
 `The district attorney in Atlanta addressed a Republican-led committee created to investigate her conduct during her prosecution of President Trump last year.`\
 https://nytimes.com/2025/12/17/us/fani-willis-georgia-senate-hearing-trump.html
@@ -25,12 +33,4 @@ https://nytimes.com/2025/12/17/world/syria-militant-us-venezuela.html
 **How Ruff, players reacted to Kekäläinen replacing Adams as Sabres GM**\
 `Wednesday was not an ordinary practice day for the Sabres in the wake of the organization's management shakeup.`\
 https://nytimes.com/athletic/6897441/2025/12/17/buffalo-sabres-gm-lindy-ruff-kevyn-adams/
-
-**California’s ‘Twilight Zone’ of Endless Fog Is Finally Clearing**\
-`An unrelenting gloom has blanketed much of the state’s Central Valley since late November.`\
-https://nytimes.com/2025/12/17/weather/california-tule-fog-central-valley.html
-
-**Submit your questions for Kevin Fishbain's Bears mailbag**\
-`The 10-4 Bears host the Packers on Saturday night with first place in the NFC North on the line. We welcome your questions.`\
-https://nytimes.com/athletic/6897490/2025/12/17/bears-mailbag-questions-52/
 
