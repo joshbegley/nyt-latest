@@ -1,3 +1,7 @@
+**One Way the Brown Attack Was Unusual: The Gunman Escaped**\
+`It is rare for a gunman in a high-profile shooting to get away, and many are apprehended within days. The authorities shared grainy video and begged for tips as the search stretched into its fourth day.`\
+https://nytimes.com/2025/12/17/us/brown-attack-manhunt-gunman-escaped.html
+
 **College Football Playoff confidential: Coaches love Georgia, pick McGuire over Day, call out frauds**\
 `There's some group concern for Ole Miss, predictions for Miami to advance, and a lot of fear of the Bulldogs.`\
 https://nytimes.com/athletic/6894571/2025/12/17/college-football-playoff-confidential-indiana-ohio-state-georgia/

@@ -1,3 +1,7 @@
+**One Way the Brown Attack Was Unusual: The Gunman Escaped**\
+`It is rare for a gunman in a high-profile shooting to get away, and many are apprehended within days. The authorities shared grainy video and begged for tips as the search stretched into its fourth day.`\
+https://nytimes.com/2025/12/17/us/brown-attack-manhunt-gunman-escaped.html
+
 **College Football Playoff confidential: Coaches love Georgia, pick McGuire over Day, call out frauds**\
 `There's some group concern for Ole Miss, predictions for Miami to advance, and a lot of fear of the Bulldogs.`\
 https://nytimes.com/athletic/6894571/2025/12/17/college-football-playoff-confidential-indiana-ohio-state-georgia/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/17/opinion/trump-presidential-power-miller-vought.ht
 **Do the Patriots have enough at wide receiver to win in the playoffs?**\
 `The Patriots receivers have been vastly improved from last year's unit, but they will need to step up even more as the playoffs approach.`\
 https://nytimes.com/athletic/6894358/2025/12/17/patriots-wide-receiver-nfl-playoffs-stefon-diggs/
-
-**How the ‘Fallout’ Writers Gave Sex Appeal to a Ghoul With No Nose**\
-`Just ahead of the Season 2 premiere, the co-creator Geneva Robertson-Dworet talked about the challenge of finding fun in a nuclear apocalypse.`\
-https://nytimes.com/2025/12/17/arts/television/fallout-season-2-premiere-geneva-robertson-dworet.html
 
