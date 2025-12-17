@@ -1,3 +1,7 @@
+**Phillies to land right-handed bullpen help in deal with Brad Keller: Sources**\
+`Keller is coming off an impressive bounceback season with the Cubs.`\
+https://nytimes.com/athletic/6837003/2025/12/17/mlb-brad-keller-free-agency-signing-phillies/
+
 **Lowetide: Connor McDavid's soaring December is leading Oilers back up standings**\
 `McDavid is back on track, and with Zach Hyman healthy, the Oilers have a fantastic top line.`\
 https://nytimes.com/athletic/6893829/2025/12/17/connor-mcdavid-oilers-stat-standings-december-2025/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6896661/2025/12/17/saint-francis-pa-vs-florida-stre
 **Premier League: Next manager sacked odds and favourites**\
 `Sacking season is underway as the games come thick and fast, but which Premier League manager is under the most pressure?`\
 https://nytimes.com/athletic/6896146/2025/12/17/premier-league-manager-sack-race-tottenham-liverpool/
-
-**How to watch Mississippi Valley State vs. Ole Miss women's basketball: Time, TV, streaming**\
-`Find out how to watch the Mississippi Valley State Devilettes play the Ole Miss Rebels, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6896654/2025/12/17/mississippi-valley-state-vs-ole-miss-stream-how-to-watch-dec-17/
 

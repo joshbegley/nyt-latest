@@ -1,3 +1,7 @@
+**Phillies to land right-handed bullpen help in deal with Brad Keller: Sources**\
+`Keller is coming off an impressive bounceback season with the Cubs.`\
+https://nytimes.com/athletic/6837003/2025/12/17/mlb-brad-keller-free-agency-signing-phillies/
+
 **Lowetide: Connor McDavid's soaring December is leading Oilers back up standings**\
 `McDavid is back on track, and with Zach Hyman healthy, the Oilers have a fantastic top line.`\
 https://nytimes.com/athletic/6893829/2025/12/17/connor-mcdavid-oilers-stat-standings-december-2025/

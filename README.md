@@ -1,3 +1,15 @@
+**Knicks will not hang NBA Cup banner in Madison Square Garden: Sources**\
+`The Los Angeles Lakers and Milwaukee Bucks, the first two NBA Cup winners, both hung banners for winning the in-season tournament.`\
+https://nytimes.com/athletic/6896747/2025/12/17/knicks-nba-cup-championship-banner/
+
+**My Ex-Lover Lied About His Marriage Being Over. Should I Tell His Wife?**\
+`I started feeling I wasn’t getting the full story. My instincts were correct.`\
+https://nytimes.com/2025/12/17/magazine/lover-wife-ethics.html
+
+**The Most Notable Movies of 2025**\
+`Across the newsroom, journalists picked their most notable movies from 2025.`\
+https://nytimes.com/video/movies/moviesupdate/100000010580011/the-most-notable-movies-of-2025.html
+
 **Phillies to land right-handed bullpen help in deal with Brad Keller: Sources**\
 `Keller is coming off an impressive bounceback season with the Cubs.`\
 https://nytimes.com/athletic/6837003/2025/12/17/mlb-brad-keller-free-agency-signing-phillies/
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/6896689/2025/12/17/kings-vs-panthers-stream-how-to-
 **How to watch Marquette vs. UConn women's basketball: Time, TV, streaming**\
 `Find out how to watch the Marquette Golden Eagles play the UConn Huskies, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6896679/2025/12/17/marquette-vs-uconn-stream-how-to-watch-dec-17/
-
-**How to watch Vanderbilt vs. Memphis men's basketball: Time, TV, streaming**\
-`Find out how to watch the Vanderbilt Commodores play the Memphis Tigers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6896675/2025/12/17/vanderbilt-vs-memphis-stream-how-to-watch-dec-17/
-
-**How to watch Saint Francis (PA) vs. Florida men's basketball: Time, TV, streaming**\
-`Find out how to watch the Saint Francis (PA) Red Flash play the Florida Gators, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6896661/2025/12/17/saint-francis-pa-vs-florida-stream-how-to-watch-dec-17/
-
-**Premier League: Next manager sacked odds and favourites**\
-`Sacking season is underway as the games come thick and fast, but which Premier League manager is under the most pressure?`\
-https://nytimes.com/athletic/6896146/2025/12/17/premier-league-manager-sack-race-tottenham-liverpool/
 
