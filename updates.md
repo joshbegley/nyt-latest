@@ -1,3 +1,15 @@
+**Warner Bros. Says Ellisons ‘Misled’ Shareholders in Takeover Bid**\
+`The claim was made as part of Warner Bros. Discovery’s dismissal of Paramount’s hostile takeover offer.`\
+https://nytimes.com/2025/12/17/business/media/warner-bros-paramount-takeover-netflix.html
+
+**Carlos Alcaraz splits with coach Juan Carlos Ferrero after six Grand Slams and seven years**\
+`The world No. 1 confirmed the split on social media.`\
+https://nytimes.com/athletic/6896095/2025/12/17/carlos-alcaraz-juan-carlos-ferrero-split/
+
+**Britain Rejoins E.U. Student Exchange Program That It Left After Brexit**\
+`The government said it would pay about $760 million to allow young Britons to take part in 2027.`\
+https://nytimes.com/2025/12/17/world/europe/uk-eu-erasmus-scheme-students-brexit.html
+
 **Why the Phillies are betting on Adolis García despite his struggles**\
 `García will be the Phillies’ everyday right fielder. But with a relative bargain comes traits that Kevin Long and company will labor to fix.`\
 https://nytimes.com/athletic/6895144/2025/12/17/adolis-garcia-phillies-sign/
