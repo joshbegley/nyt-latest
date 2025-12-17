@@ -1,3 +1,7 @@
+**Rosenthal: What I'm hearing about the DBacks' interest in Alex Bregman, plus more MLB offseason notes**\
+`For Bregman to land in the Phoenix area, where he lives in the offseason, the DBacks would likely have to unload Ketel Marte first.`\
+https://nytimes.com/athletic/6895435/2025/12/16/diamondbacks-alex-bregman-athletics-ha-seong-kim/
+
 **Miami Heat in limbo with Terry Rozier charged in illegal gambling case**\
 `The Miami Heat will likely need clarity on whether they can trade Rozier before they make any significant in-season moves.`\
 https://nytimes.com/athletic/6895406/2025/12/16/terry-rozier-adam-silver-trade-no-solution/
