@@ -1,36 +1,36 @@
-**One Way the Brown Attack Was Unusual: The Gunman Escaped**\
-`It is rare for a gunman in a high-profile shooting to get away, and many are apprehended within days. The authorities shared grainy video and begged for tips as the search stretched into its fourth day.`\
-https://nytimes.com/2025/12/17/us/brown-attack-manhunt-gunman-escaped.html
+**2025 Sports Media Awards: Person of the Year, top dealmakers and more**\
+`Who won Andrew Marchand's coveted end-of-the-year "Golden Clickers?"`\
+https://nytimes.com/athletic/6893866/2025/12/17/2025-sports-media-awards-ernie-johnson-elle-duncan/
 
-**College Football Playoff confidential: Coaches love Georgia, pick McGuire over Day, call out frauds**\
-`There's some group concern for Ole Miss, predictions for Miami to advance, and a lot of fear of the Bulldogs.`\
-https://nytimes.com/athletic/6894571/2025/12/17/college-football-playoff-confidential-indiana-ohio-state-georgia/
+**Bears QB Caleb Williams is progressing, but can he earn a signature win over the Packers?**\
+`Williams had a chance for a memorable comeback win at Lambeau Field. Now he can avenge that loss and get on the doorstep to the playoffs.`\
+https://nytimes.com/athletic/6894762/2025/12/17/bears-caleb-williams-packers/
 
-**Free-agent matchmaking: Finding the best homes for Kyle Tucker, Framber Valdez and others**\
-`Some of the top free agents are already off the board. We look for homes for those remaining high-profile players on the market.`\
-https://nytimes.com/athletic/6889235/2025/12/17/mlb-free-agents-best-fits-2025-2026/
+**Inside the Bruins' faceoff play that's impossible to stop**\
+`Geekie knows how to get open. It is a critical skill the Boston Bruins wing has mastered on his journey to becoming an elite goal scorer. `\
+https://nytimes.com/athletic/6895513/2025/12/17/bruins-morgan-geekie-david-pastrnak/
 
-**The Steelers' on-the-fly roster build, and the 'castoffs' who got them back on track**\
-`A handful of bargain-bin acquisitions have made all the difference as Pittsburgh has taken control of the AFC North.`\
-https://nytimes.com/athletic/6895087/2025/12/17/pittsburgh-steelers-roster-rebuild-castoffs/
+**Dutch Return ‘Java Man’ Bones, With 40,000 Fossils Set to Follow**\
+`The items were taken in the late 19th century from what was then called the Dutch East Indies. Indonesia had been trying to get them back for decades.`\
+https://nytimes.com/2025/12/17/arts/java-man-indonesia-netherlands.html
 
-**The New York Times International Edition in Print for Thursday, Dec. 18, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/12/17/todays-new-york-times-international-edition
+**Adam Fantilli's highlight-reel OT winner sends Blue Jackets past Ducks, snaps skid**\
+`The lingering memory from this game will be Fantilli's goal, his second overtime winner, both coming this season.`\
+https://nytimes.com/athletic/6895445/2025/12/17/adam-fantilli-overtime-winner-blue-jackets-ducks/
 
-**Marc-Andre ter Stegen is back for Barcelona. What happens next?**\
-`The German goalkeeper made his first appearance in seven months, but still faces an uncertain future`\
-https://nytimes.com/athletic/6895865/2025/12/17/barcelona-ter-stegen-future-flick-copa-del-rey/
+**The Spurs lost the NBA Cup, but the rest of the league remains on notice**\
+`Victor Wembanyama and the Spurs showed the entire NBA that they can hang with anyone, and aren't going away anytime soon.`\
+https://nytimes.com/athletic/6895682/2025/12/17/spurs-nba-cup-loss-wemby-thunder/
 
-**A Last Chance to Prep for the Exam. Then, a Gunman at the Classroom Door.**\
-`For the students in the Brown University review session, concerns about grades and questions about economic concepts would be forgotten in an instant.`\
-https://nytimes.com/2025/12/17/us/exam-review-brown-shooting.html
+**Yohe's 10 observations: Oilers toy with Penguins as Leon Draisaitl, Connor McDavid dominate**\
+`McDavid and Draisaitl put on a show as the Oilers skated circles around the Penguins in a 6-4 win.`\
+https://nytimes.com/athletic/6895397/2025/12/17/yohes-10-observations-oilers-toy-with-penguins/
 
-**The Man Who Rules the Country Presides Over Nothing**\
-`Why are the Supreme Court and Congress conspiring to give him more power?`\
-https://nytimes.com/2025/12/17/opinion/trump-presidential-power-miller-vought.html
+**What I saw and heard at Canada's World Junior camp: McKenna, the bubble, the NHLers, more**\
+`Scott Wheeler spent the last three days at the Gale Centre Arena in Niagara Falls for a series of practices and scrimmages.`\
+https://nytimes.com/athletic/6885017/2025/12/17/canada-world-juniors-gavin-mckenna-camp/
 
-**Do the Patriots have enough at wide receiver to win in the playoffs?**\
-`The Patriots receivers have been vastly improved from last year's unit, but they will need to step up even more as the playoffs approach.`\
-https://nytimes.com/athletic/6894358/2025/12/17/patriots-wide-receiver-nfl-playoffs-stefon-diggs/
+**Vikings WR Justin Jefferson has had a tough season, but 1,000 yards is still within reach**\
+`Jefferson has struggled along with young quarterback J.J. McCarthy, but Minnesota's all-world wideout can end the season on a high note.`\
+https://nytimes.com/athletic/6894499/2025/12/17/justin-jefferson-vikings-1000-yards/
 
