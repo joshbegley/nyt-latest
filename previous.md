@@ -1,3 +1,19 @@
+**Russia may return to international football in new FIFA youth tournament**\
+`Russia's national teams and domestic clubs have been suspended from FIFA and UEFA competitions since the nation's invasion of Ukraine.`\
+https://nytimes.com/athletic/6896684/2025/12/17/russia-ban-football-fifa-uefa/
+
+**NFL Week 16 confidence picks: One team gets a rare maximum-level selection**\
+`KC Joyner has his straight-up and against-the-spread picks for the NFL's Week 16 games.`\
+https://nytimes.com/athletic/6895958/2025/12/17/nfl-week-16-confidence-picks-texans-raiders/
+
+**Tankers Under Sanction Are Only a Subset of Fleet Moving Venezuelan Oil**\
+`The scope of President Trump’s blockade against ships carrying oil from Venezuela was not clear on Wednesday.`\
+https://nytimes.com/2025/12/17/us/politics/tankers-sanctions-venezuela-oil.html
+
+**The Browns, Raiders and Titans failed fantasy football managers spectacularly in 2025**\
+`The Browns, Titans and Raiders were disproportionately bad this season, and fantasy managers felt it when sifting through the waiver wire. `\
+https://nytimes.com/athletic/6896418/2025/12/17/fantasy-football-failures-browns-raiders-titans/
+
 **Mets to strengthen back end of 'pen with former Yankees righty Luke Weaver: Sources**\
 `Weaver logged a 3.62 ERA in 64 appearances in 2025, but struggled after returning from a hamstring injury in June. Can he bounce back? `\
 https://nytimes.com/athletic/6808737/2025/12/17/mlb-luke-weaver-free-agency-signing-mets/
@@ -17,20 +33,4 @@ https://nytimes.com/athletic/6896747/2025/12/17/knicks-nba-cup-championship-bann
 **My Ex-Lover Lied About His Marriage Being Over. Should I Tell His Wife?**\
 `I started feeling I wasn’t getting the full story. My instincts were correct.`\
 https://nytimes.com/2025/12/17/magazine/lover-wife-ethics.html
-
-**The Most Notable Movies of 2025**\
-`Across the newsroom, journalists picked their most notable movies from 2025.`\
-https://nytimes.com/video/movies/moviesupdate/100000010580011/the-most-notable-movies-of-2025.html
-
-**Phillies to land right-handed bullpen help in deal with Brad Keller: Sources**\
-`Keller is coming off an impressive bounceback season with the Cubs.`\
-https://nytimes.com/athletic/6837003/2025/12/17/mlb-brad-keller-free-agency-signing-phillies/
-
-**Lowetide: Connor McDavid's soaring December is leading Oilers back up standings**\
-`McDavid is back on track, and with Zach Hyman healthy, the Oilers have a fantastic top line.`\
-https://nytimes.com/athletic/6893829/2025/12/17/connor-mcdavid-oilers-stat-standings-december-2025/
-
-**AC Milan in talks over move for West Ham's Fullkrug**\
-`Fullkrug's agent said last month it would "make sense" for the 32-year-old to leave West Ham.`\
-https://nytimes.com/athletic/6896447/2025/12/17/niclas-fullkrug-milan-west-ham/
 

@@ -1,3 +1,19 @@
+**Russia may return to international football in new FIFA youth tournament**\
+`Russia's national teams and domestic clubs have been suspended from FIFA and UEFA competitions since the nation's invasion of Ukraine.`\
+https://nytimes.com/athletic/6896684/2025/12/17/russia-ban-football-fifa-uefa/
+
+**NFL Week 16 confidence picks: One team gets a rare maximum-level selection**\
+`KC Joyner has his straight-up and against-the-spread picks for the NFL's Week 16 games.`\
+https://nytimes.com/athletic/6895958/2025/12/17/nfl-week-16-confidence-picks-texans-raiders/
+
+**Tankers Under Sanction Are Only a Subset of Fleet Moving Venezuelan Oil**\
+`The scope of President Trump’s blockade against ships carrying oil from Venezuela was not clear on Wednesday.`\
+https://nytimes.com/2025/12/17/us/politics/tankers-sanctions-venezuela-oil.html
+
+**The Browns, Raiders and Titans failed fantasy football managers spectacularly in 2025**\
+`The Browns, Titans and Raiders were disproportionately bad this season, and fantasy managers felt it when sifting through the waiver wire. `\
+https://nytimes.com/athletic/6896418/2025/12/17/fantasy-football-failures-browns-raiders-titans/
+
 **Mets to strengthen back end of 'pen with former Yankees righty Luke Weaver: Sources**\
 `Weaver logged a 3.62 ERA in 64 appearances in 2025, but struggled after returning from a hamstring injury in June. Can he bounce back? `\
 https://nytimes.com/athletic/6808737/2025/12/17/mlb-luke-weaver-free-agency-signing-mets/
