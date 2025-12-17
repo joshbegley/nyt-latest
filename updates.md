@@ -1,3 +1,11 @@
+**How to watch Marquette vs. UConn women's basketball: Time, TV, streaming**\
+`Find out how to watch the Marquette Golden Eagles play the UConn Huskies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6896679/2025/12/17/marquette-vs-uconn-stream-how-to-watch-dec-17/
+
+**How to watch Vanderbilt vs. Memphis men's basketball: Time, TV, streaming**\
+`Find out how to watch the Vanderbilt Commodores play the Memphis Tigers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6896675/2025/12/17/vanderbilt-vs-memphis-stream-how-to-watch-dec-17/
+
 **How to watch Saint Francis (PA) vs. Florida men's basketball: Time, TV, streaming**\
 `Find out how to watch the Saint Francis (PA) Red Flash play the Florida Gators, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6896661/2025/12/17/saint-francis-pa-vs-florida-stream-how-to-watch-dec-17/

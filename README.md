@@ -1,3 +1,7 @@
+**How to watch Kings vs. Panthers: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Kings play the Florida Panthers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6896689/2025/12/17/kings-vs-panthers-stream-how-to-watch-dec-17/
+
 **How to watch Marquette vs. UConn women's basketball: Time, TV, streaming**\
 `Find out how to watch the Marquette Golden Eagles play the UConn Huskies, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6896679/2025/12/17/marquette-vs-uconn-stream-how-to-watch-dec-17/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6895674/2025/12/17/canucks-stats-standings-rebuild-
 **Appeals Court Allows National Guard to Remain in D.C., for Now**\
 `A three-judge panel voted unanimously to allow troops to stay in the capital for the duration of the appeal, citing the city’s unique legal status.`\
 https://nytimes.com/2025/12/17/us/politics/appeals-court-washington-national-guard.html
-
-**How Rob Reiner Created His Comedy Legacy**\
-`These moments from his movies brought the laughs, in many different ways.`\
-https://nytimes.com/2025/12/17/movies/rob-reiner-comedy-legacy.html
 
