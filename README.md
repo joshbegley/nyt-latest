@@ -1,3 +1,7 @@
+**College Football Playoff confidential: Coaches love Georgia, pick McGuire over Day, call out frauds**\
+`There's some group concern for Ole Miss, predictions for Miami to advance, and a lot of fear of the Bulldogs.`\
+https://nytimes.com/athletic/6894571/2025/12/17/college-football-playoff-confidential-indiana-ohio-state-georgia/
+
 **Free-agent matchmaking: Finding the best homes for Kyle Tucker, Framber Valdez and others**\
 `Some of the top free agents are already off the board. We look for homes for those remaining high-profile players on the market.`\
 https://nytimes.com/athletic/6889235/2025/12/17/mlb-free-agents-best-fits-2025-2026/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6894358/2025/12/17/patriots-wide-receiver-nfl-playo
 **How the ‘Fallout’ Writers Gave Sex Appeal to a Ghoul With No Nose**\
 `Just ahead of the Season 2 premiere, the co-creator Geneva Robertson-Dworet talked about the challenge of finding fun in a nuclear apocalypse.`\
 https://nytimes.com/2025/12/17/arts/television/fallout-season-2-premiere-geneva-robertson-dworet.html
-
-**What Rob Reiner Told Me the Last Time We Spoke**\
-`In life and art, he was the successor to Norman Lear.`\
-https://nytimes.com/2025/12/17/opinion/rob-reiner-norman-lear-archie-bunker-politics.html
 

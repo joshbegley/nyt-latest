@@ -1,3 +1,15 @@
+**Free-agent matchmaking: Finding the best homes for Kyle Tucker, Framber Valdez and others**\
+`Some of the top free agents are already off the board. We look for homes for those remaining high-profile players on the market.`\
+https://nytimes.com/athletic/6889235/2025/12/17/mlb-free-agents-best-fits-2025-2026/
+
+**The Steelers' on-the-fly roster build, and the 'castoffs' who got them back on track**\
+`A handful of bargain-bin acquisitions have made all the difference as Pittsburgh has taken control of the AFC North.`\
+https://nytimes.com/athletic/6895087/2025/12/17/pittsburgh-steelers-roster-rebuild-castoffs/
+
+**The New York Times International Edition in Print for Thursday, Dec. 18, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/12/17/todays-new-york-times-international-edition
+
 **Marc-Andre ter Stegen is back for Barcelona. What happens next?**\
 `The German goalkeeper made his first appearance in seven months, but still faces an uncertain future`\
 https://nytimes.com/athletic/6895865/2025/12/17/barcelona-ter-stegen-future-flick-copa-del-rey/
