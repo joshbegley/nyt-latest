@@ -1,3 +1,11 @@
+**‘I always take responsibility’: Blackhawks’ Artyom Levshunov scratched for being late**\
+`Levshunov sat out of Chicago's 3-2 loss to the Maple Leafs after arriving late to a team meeting.`\
+https://nytimes.com/athletic/6895068/2025/12/16/blackhawks-maple-leafs-artyom-levshunov-scratched/
+
+**Norman Podhoretz, Influential Editor and Neoconservative Force, Dies at 95**\
+`A New York intellectual and onetime liberal stalwart, his Commentary magazine became his platform as his political and social view turned sharply rightward.`\
+https://nytimes.com/2025/12/16/us/politics/norman-podhoretz-dead.html
+
 **Rosenthal: What I'm hearing about the DBacks' interest in Alex Bregman, plus more MLB offseason notes**\
 `For Bregman to land in the Phoenix area, where he lives in the offseason, the DBacks would likely have to unload Ketel Marte first.`\
 https://nytimes.com/athletic/6895435/2025/12/16/diamondbacks-alex-bregman-athletics-ha-seong-kim/
