@@ -1,3 +1,11 @@
+**Mets to strengthen back end of 'pen with former Yankees righty Luke Weaver: Sources**\
+`Weaver logged a 3.62 ERA in 64 appearances in 2025, but struggled after returning from a hamstring injury in June. Can he bounce back? `\
+https://nytimes.com/athletic/6808737/2025/12/17/mlb-luke-weaver-free-agency-signing-mets/
+
+**Senate Passes Defense Policy Bill, Clearing It for Trump**\
+`The legislation authorizes $900 billion for the Pentagon, provides a pay raise for troops, and has some measures to reassert congressional oversight.`\
+https://nytimes.com/2025/12/17/us/politics/senate-defense-bill-trump-military.html
+
 **Dolphins bench Tua Tagovailoa, will start Quinn Ewers vs. Bengals: Source**\
 `The move comes two days after the Dolphins were officially eliminated from the playoffs.`\
 https://nytimes.com/athletic/6896608/2025/12/17/tua-tagovailoa-benched-dolphins-quinn-ewers/

@@ -1,3 +1,11 @@
+**Mets to strengthen back end of 'pen with former Yankees righty Luke Weaver: Sources**\
+`Weaver logged a 3.62 ERA in 64 appearances in 2025, but struggled after returning from a hamstring injury in June. Can he bounce back? `\
+https://nytimes.com/athletic/6808737/2025/12/17/mlb-luke-weaver-free-agency-signing-mets/
+
+**Senate Passes Defense Policy Bill, Clearing It for Trump**\
+`The legislation authorizes $900 billion for the Pentagon, provides a pay raise for troops, and has some measures to reassert congressional oversight.`\
+https://nytimes.com/2025/12/17/us/politics/senate-defense-bill-trump-military.html
+
 **Dolphins bench Tua Tagovailoa, will start Quinn Ewers vs. Bengals: Source**\
 `The move comes two days after the Dolphins were officially eliminated from the playoffs.`\
 https://nytimes.com/athletic/6896608/2025/12/17/tua-tagovailoa-benched-dolphins-quinn-ewers/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6893829/2025/12/17/connor-mcdavid-oilers-stat-stand
 **AC Milan in talks over move for West Ham's Fullkrug**\
 `Fullkrug's agent said last month it would "make sense" for the 32-year-old to leave West Ham.`\
 https://nytimes.com/athletic/6896447/2025/12/17/niclas-fullkrug-milan-west-ham/
-
-**2025's most tectonically powerful sports business storylines: MoneyCall**\
-`Welcome back to MoneyCall, The Athletic’s weekly sports business cheat sheet.`\
-https://nytimes.com/athletic/6896579/2025/12/17/2025-year-end-sports-business-moneycall/
-
-**How to watch Kings vs. Panthers: Time, TV, streaming**\
-`Find out how to watch the Los Angeles Kings play the Florida Panthers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6896689/2025/12/17/kings-vs-panthers-stream-how-to-watch-dec-17/
 
