@@ -1,3 +1,7 @@
+**Forecasters Warn of More Possible Flooding in Washington State**\
+`Heavy rain and strong winds through early Wednesday could bring additional flooding to Washington State, forecasters warned.`\
+https://nytimes.com/video/us/100000010592884/washington-storm-flooding.html
+
 **Man Utd unhappy with Morocco for rejecting Mazraoui request**\
 `FIFA announced this month that the deadline for players to be released to AFCON squads would be pushed back to December 15.`\
 https://nytimes.com/athletic/6896098/2025/12/17/mazraoui-afcon-morocco-manchester-united/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6893560/2025/12/17/kevin-stefanski-browns-coaching-
 **College Football Playoff guide for bandwagon fans: Reasons to root for (and against) every team**\
 `Looking for a team to root for in the CFP? We've got you covered. `\
 https://nytimes.com/athletic/6894461/2025/12/17/college-football-playoff-bandwagon-fan-guide-2025/
-
-**As Victor Wembanyama grieves his grandmother, Spurs process NBA Cup loss**\
-`After an emotional night, the Spurs were still able to come out of their loss to the Knicks having learned something about themselves.`\
-https://nytimes.com/athletic/6895706/2025/12/17/victor-wembanyama-grandmother-spurs-loss-nba-cup/
 
