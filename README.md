@@ -1,3 +1,11 @@
+**Grief Mixes With Anger at Funeral of Rabbi Killed in Bondi Beach Attack**\
+`The funeral for Rabbi Eli Schlanger on Wednesday was the first held for one of the 15 people killed in a mass shooting at a Jewish celebration in Sydney, Australia.`\
+https://nytimes.com/2025/12/17/world/asia/rabbi-eli-schlanger-funeral-bondi-shooting.html
+
+**First Funeral Held For Victim of Bondi Beach Shooting**\
+`People mourned the death of Rabbi Eli Schlanger during the first funeral for those killed in the Bondi Beach shooting. He was a key organizer of the Jewish event that was tarnished by a mass shooting.`\
+https://nytimes.com/video/world/australia/100000010592479/first-funeral-held-for-victim-of-bondi-beach-shooting.html
+
 **The New York Times in Print for Wednesday, Dec. 17, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/12/17/todays-new-york-times
@@ -25,13 +33,4 @@ https://nytimes.com/athletic/6888560/2025/12/17/crystal-palace-oliver-glasner-pr
 **Lionel Messi's GOAT tour of India: Stadium chaos, a 'missed wedding', and a 21-metre statue**\
 `He unveiled a statue of himself and met Indian sporting greats, but events in Kolkata meant the GOAT tour was soured for some`\
 https://nytimes.com/athletic/6894116/2025/12/17/lionel-messi-india-tour/
-
-**Even after comeback win, Leafs can't afford to keep playing with fire**\
-`A thrilling eight seconds may have been the difference in Toronto's 3-2 win over Chicago, but it isn’t tenable going forward.
-`\
-https://nytimes.com/athletic/6895539/2025/12/17/maple-leafs-blackhawks-auston-matthews-comeback-win/
-
-**The tragedy of Billy Vigar and what football did next**\
-`Vigar's tragic death after striking his head on a perimeter wall led to claims football did not do enough to ensure the safety of players`\
-https://nytimes.com/athletic/6884653/2025/12/17/billy-vigar-death/
 
