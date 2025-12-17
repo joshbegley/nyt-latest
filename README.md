@@ -1,3 +1,7 @@
+**How to watch Patriots vs. Ravens: Time, TV, streaming**\
+`Find out how to watch the New England Patriots play the Baltimore Ravens, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6895784/2025/12/17/patriots-vs-ravens-stream-how-to-watch-dec-21/
+
 **Word of the Day: commensurate**\
 `This word has appeared in 117 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/12/17/learning/word-of-the-day-commensurate.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6895186/2025/12/17/tarasenko-yurov-wild-shut-out-ca
 **Suspect in Bondi Beach Massacre Is Charged With Murder and Terrorism**\
 `The Australian authorities said the 24-year-old man, who had been shot by the police, woke from a coma on Tuesday afternoon.`\
 https://nytimes.com/2025/12/17/world/asia/australia-bondi-beach-shooting.html
-
-**On Bali, the Holiday Vibe Masks Memories of a Massacre**\
-`Sixty years ago, half a million Indonesians were killed in anti-Communist purges. On Bali, resorts and clubs were built atop mass graves.`\
-https://nytimes.com/2025/12/17/world/asia/bali-indonesia-communist-massacres.html
 
