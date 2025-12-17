@@ -1,3 +1,7 @@
+**Late Night Thanks the White House for a ‘Doozy of an Interview’**\
+`Jimmy Kimmel was grateful that Susie Wiles, the president’s “future former chief of staff,” spilled the beans on her boss in a Vanity Fair article.`\
+https://nytimes.com/2025/12/17/arts/television/late-night-susie-wiles-interview.html
+
 **Grief Mixes With Anger at Funeral of Rabbi Killed in Bondi Beach Attack**\
 `The funeral for Rabbi Eli Schlanger on Wednesday was the first held for one of the 15 people killed in a mass shooting at a Jewish celebration in Sydney, Australia.`\
 https://nytimes.com/2025/12/17/world/asia/rabbi-eli-schlanger-funeral-bondi-shooting.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/17/world/asia/bali-indonesia-communist-massacres.htm
 **Crystal Palace play twice in 48 hours. How is that going to work?**\
 `Go full-strength on Thursday and Saturday? Play the kids in Europe? Try to find a balance? The manager has some tricky decisions to make...`\
 https://nytimes.com/athletic/6888560/2025/12/17/crystal-palace-oliver-glasner-premier-league-conference-league/
-
-**Lionel Messi's GOAT tour of India: Stadium chaos, a 'missed wedding', and a 21-metre statue**\
-`He unveiled a statue of himself and met Indian sporting greats, but events in Kolkata meant the GOAT tour was soured for some`\
-https://nytimes.com/athletic/6894116/2025/12/17/lionel-messi-india-tour/
 

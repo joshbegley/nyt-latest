@@ -1,3 +1,7 @@
+**Late Night Thanks the White House for a ‘Doozy of an Interview’**\
+`Jimmy Kimmel was grateful that Susie Wiles, the president’s “future former chief of staff,” spilled the beans on her boss in a Vanity Fair article.`\
+https://nytimes.com/2025/12/17/arts/television/late-night-susie-wiles-interview.html
+
 **Grief Mixes With Anger at Funeral of Rabbi Killed in Bondi Beach Attack**\
 `The funeral for Rabbi Eli Schlanger on Wednesday was the first held for one of the 15 people killed in a mass shooting at a Jewish celebration in Sydney, Australia.`\
 https://nytimes.com/2025/12/17/world/asia/rabbi-eli-schlanger-funeral-bondi-shooting.html
