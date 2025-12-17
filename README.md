@@ -1,3 +1,7 @@
+**Malaysian FA says three matches forfeited by FIFA due to ineligible players**\
+`Malasyia's 1-1 draw against Cape Verde, 2-1 win against Singapore, and 1-0 win against Palestine have been declared as 3-0 defeats.`\
+https://nytimes.com/athletic/6896092/2025/12/17/malaysia-friendlies-forfeited-ineligible-players/
+
 **Statue of Liberty Replica Collapses in Brazil**\
 `Strong winds knocked over a replica of the Statue of Liberty outside of a department store in southern Brazil. There were no injuries, according to Brazilian local media.`\
 https://nytimes.com/video/world/americas/100000010592933/brazil-statue-of-liberty-fall.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/17/us/billy-crystal-larry-david-rob-reiner-statement
 **Mandel's Mailbag: Michigan's coaching mess, Notre Dame and the ACC's relationship on edge**\
 `Plus, landing spots for the top QBs in the portal and if the Playoff does expand, how will they fit more games into the schedule?`\
 https://nytimes.com/athletic/6895349/2025/12/17/michigan-notre-dame-acc-mandel-mailbag/
-
-**From 'X-mode' to 'Corner Mode' — F1 car systems terms simplified for new 2026 designs**\
-`The FIA has changed several key terms that will be used to explain system changes on the new cars coming to F1 in 2026`\
-https://nytimes.com/athletic/6895408/2025/12/17/f1-2026-car-modes/
 

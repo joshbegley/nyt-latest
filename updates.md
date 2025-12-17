@@ -1,3 +1,11 @@
+**Statue of Liberty Replica Collapses in Brazil**\
+`Strong winds knocked over a replica of the Statue of Liberty outside of a department store in southern Brazil. There were no injuries, according to Brazilian local media.`\
+https://nytimes.com/video/world/americas/100000010592933/brazil-statue-of-liberty-fall.html
+
+**South Africa Arrests Workers Processing U.S. Refugee Applications**\
+`Seven Kenyans were detained for working in the country illegally, officials said. The arrests came amid rising tensions after the United States prioritized white Afrikaners seeking asylum.`\
+https://nytimes.com/2025/12/17/world/africa/south-africa-kenya-workers.html
+
 **South Africa Arrests Kenyans Working on U.S. Refugee Applications**\
 `The authorities said that seven Kenyans were working illegally. The arrests came amid increased tensions between South Africa and the United States.`\
 https://nytimes.com/2025/12/17/world/africa/south-africa-kenya-workers.html

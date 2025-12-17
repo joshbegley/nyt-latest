@@ -1,5 +1,9 @@
-**South Africa Arrests Kenyans Working on U.S. Refugee Applications**\
-`The authorities said that seven Kenyans were working illegally. The arrests came amid increased tensions between South Africa and the United States.`\
+**Statue of Liberty Replica Collapses in Brazil**\
+`Strong winds knocked over a replica of the Statue of Liberty outside of a department store in southern Brazil. There were no injuries, according to Brazilian local media.`\
+https://nytimes.com/video/world/americas/100000010592933/brazil-statue-of-liberty-fall.html
+
+**South Africa Arrests Workers Processing U.S. Refugee Applications**\
+`Seven Kenyans were detained for working in the country illegally, officials said. The arrests came amid rising tensions after the United States prioritized white Afrikaners seeking asylum.`\
 https://nytimes.com/2025/12/17/world/africa/south-africa-kenya-workers.html
 
 **A New Stage in the Fight for Warner Bros. Discovery**\
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6895349/2025/12/17/michigan-notre-dame-acc-mandel-m
 **From 'X-mode' to 'Corner Mode' — F1 car systems terms simplified for new 2026 designs**\
 `The FIA has changed several key terms that will be used to explain system changes on the new cars coming to F1 in 2026`\
 https://nytimes.com/athletic/6895408/2025/12/17/f1-2026-car-modes/
-
-**Trump Administration Live Updates: Venezuela Condemns U.S. Blockade on Some Oil Tankers**\
-``\
-https://nytimes.com/live/2025/12/17/us/trump-news
 
