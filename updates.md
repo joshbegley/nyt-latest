@@ -1,3 +1,7 @@
+**How to watch Raiders vs. Texans: Time, TV, streaming**\
+`Find out how to watch the Las Vegas Raiders play the Houston Texans, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6895160/2025/12/16/raiders-vs-texans-stream-how-to-watch-dec-21/
+
 **How to watch Avalanche vs. Kraken: Time, TV, streaming**\
 `Find out how to watch the Colorado Avalanche play the Seattle Kraken, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6895156/2025/12/16/avalanche-vs-kraken-stream-how-to-watch-dec-16/

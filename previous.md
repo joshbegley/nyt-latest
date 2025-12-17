@@ -1,3 +1,7 @@
+**How to watch Raiders vs. Texans: Time, TV, streaming**\
+`Find out how to watch the Las Vegas Raiders play the Houston Texans, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6895160/2025/12/16/raiders-vs-texans-stream-how-to-watch-dec-21/
+
 **How to watch Avalanche vs. Kraken: Time, TV, streaming**\
 `Find out how to watch the Colorado Avalanche play the Seattle Kraken, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6895156/2025/12/16/avalanche-vs-kraken-stream-how-to-watch-dec-16/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/16/nyregion/didarul-islam-widow-lawsuit.html
 **Team Races Against Time to Save a Tangled Sea Lion in British Columbia**\
 `Experts tracked the sea lion, which had a rope around its neck, for over a month before they were able to catch up to it in Cowichan Bay, Canada.`\
 https://nytimes.com/2025/12/16/world/canada/sea-lion-rescue-cowichan-bay-vancouver.html
-
-**Penguins Become Prey for the Pumas of Patagonia**\
-`In Argentina, the return of pumas brought top predators back to the landscape — much to penguins’ dismay.`\
-https://nytimes.com/2025/12/16/science/penguins-pumas-patagonia.html
 
