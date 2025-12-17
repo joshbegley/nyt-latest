@@ -1,3 +1,7 @@
+**Macclesfield's Ethan McLeod, former Wolves academy forward, dies in road accident aged 21**\
+`McLeod joined Wolves as a seven-year-old and signed a professional contract with the team in 2023.`\
+https://nytimes.com/athletic/6896429/2025/12/17/ethan-mcleod-death-wolves-macclesfield/
+
 **Gil Gerard, Star of ‘Buck Rogers,’ Dies at 82**\
 `He was best known for playing the title character in “Buck Rogers in the 25th Century,” which ran on NBC from 1979 to 1981.`\
 https://nytimes.com/2025/12/17/arts/gil-gerard-buck-rogers-dead.html
@@ -25,8 +29,4 @@ https://nytimes.com/athletic/6896322/2025/12/17/liverpool-dominik-szoboszlai-inj
 **Danger, prestige and the reason sailors give up Christmas: Sydney Hobart Yacht Race**\
 `The Sydney Hobart Yacht Race is one of the world's most prestigious sailing races - it can also be one of the most dangerous`\
 https://nytimes.com/athletic/6896084/2025/12/17/sydney-hobart-race-preview/
-
-**Who wins: A team of Canadians who played in Canada or Americans who played in America?**\
-`It's Double Canadians vs. Double Americans, two teams made up of players who represent their country both internationally and in the NHL.`\
-https://nytimes.com/athletic/6895161/2025/12/17/nhl-team-canada-usa-players-olympics/
 
