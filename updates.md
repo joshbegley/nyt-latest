@@ -1,5 +1,9 @@
 **Venezuelan Navy Escorts Vessels After Trump’s Blockade Threat**\
 `The Venezuelan government was said to have ordered the escort, according to two people familiar with the matter. It was not immediately clear whether the vessels were subject to U.S. sanctions.`\
+https://nytimes.com/2025/12/17/us/politics/venezuela-blockade-military-escort-trump.html
+
+**Venezuelan Navy Escorts Vessels After Trump’s Blockade Threat**\
+`The Venezuelan government was said to have ordered the escort, according to two people familiar with the matter. It was not immediately clear whether the vessels were subject to U.S. sanctions.`\
 https://nytimes.com/2025/12/17/us/politics/venezuela-blockade-military-escort.html
 
 **Rangers call up top prospect Gabe Perreault, Brennan Othmann from AHL**\

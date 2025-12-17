@@ -1,6 +1,6 @@
 **Venezuelan Navy Escorts Vessels After Trump’s Blockade Threat**\
 `The Venezuelan government was said to have ordered the escort, according to two people familiar with the matter. It was not immediately clear whether the vessels were subject to U.S. sanctions.`\
-https://nytimes.com/2025/12/17/us/politics/venezuela-blockade-military-escort.html
+https://nytimes.com/2025/12/17/us/politics/venezuela-blockade-military-escort-trump.html
 
 **Rangers call up top prospect Gabe Perreault, Brennan Othmann from AHL**\
 `In search of a spark after two consecutive losses, the New York Rangers called up reinforcements.`\
