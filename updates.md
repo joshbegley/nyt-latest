@@ -1,3 +1,11 @@
+**House Republicans Press Jack Smith Over Investigations Into Trump**\
+`Even adversaries of Jack Smith, the former special counsel, conceded that his tight-lipped, painstaking approach made tripping him up particularly difficult.`\
+https://nytimes.com/2025/12/17/us/politics/jack-smith-trump-prosecutions-congress.html
+
+**A Study Linked Cheese to Lower Dementia Risk. Is That Too Good to Be True?**\
+`Dairy fat has been making the headlines. Here’s what to know.`\
+https://nytimes.com/2025/12/17/well/eat/cheese-dementia-study.html
+
 **Woman in ‘Slender Man’ Stabbing Won’t Contest Effort to Revoke Her Release**\
 `Morgan Geyser, who was convicted after she stabbed a friend in 2014 to please a fictional character, was arrested last month after she cut off a monitoring bracelet and fled from a group home.`\
 https://nytimes.com/2025/12/17/us/morgan-geyser-slender-man-release-privileges.html
