@@ -1,3 +1,7 @@
+**South Africa Arrests Kenyans Working on U.S. Refugee Applications**\
+`The authorities said that seven Kenyans were working illegally. The arrests came amid increased tensions between South Africa and the United States.`\
+https://nytimes.com/2025/12/17/world/africa/south-africa-kenya-workers.html
+
 **A New Stage in the Fight for Warner Bros. Discovery**\
 `The media company formally rejected a hostile takeover bid by Paramount and questioned the purported political advantages held by its unwanted suitor.`\
 https://nytimes.com/2025/12/17/business/dealbook/paramount-warner-bros-netflix.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6895408/2025/12/17/f1-2026-car-modes/
 **Trump Administration Live Updates: Venezuela Condemns U.S. Blockade on Some Oil Tankers**\
 ``\
 https://nytimes.com/live/2025/12/17/us/trump-news
-
-**Forecasters Warn of More Possible Flooding in Washington State**\
-`Heavy rain and strong winds through early Wednesday could bring additional flooding to Washington State, forecasters warned.`\
-https://nytimes.com/video/us/100000010592884/washington-storm-flooding.html
 
