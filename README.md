@@ -1,3 +1,11 @@
+**The Knicks are champions, and it's OK to say it**\
+`The Knicks' NBA Cup championship might be a sign of more to come.`\
+https://nytimes.com/athletic/6895633/2025/12/17/knicks-nba-cup-champions/
+
+**Red Wings thoughts: DeBrincat's scoring tear, Sandin-Pellikka's growth**\
+`The Red Wings' 3-2 win over the Islanders showed some growth in a key team area, and continuations of a few strong individual runs. `\
+https://nytimes.com/athletic/6895447/2025/12/17/red-wings-islanders-alex-debrincat-nhl/
+
 **The Pulse: Your opinions on the NBA Cup**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6894818/2025/12/17/nba-cup-knicks-spurs-poll-the-pulse/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6895445/2025/12/17/adam-fantilli-overtime-winner-bl
 **The Spurs lost the NBA Cup, but the rest of the league remains on notice**\
 `Victor Wembanyama and the Spurs showed the entire NBA that they can hang with anyone, and aren't going away anytime soon.`\
 https://nytimes.com/athletic/6895682/2025/12/17/spurs-nba-cup-loss-wemby-thunder/
-
-**Yohe's 10 observations: Oilers toy with Penguins as Leon Draisaitl, Connor McDavid dominate**\
-`McDavid and Draisaitl put on a show as the Oilers skated circles around the Penguins in a 6-4 win.`\
-https://nytimes.com/athletic/6895397/2025/12/17/yohes-10-observations-oilers-toy-with-penguins/
-
-**What I saw and heard at Canada's World Junior camp: McKenna, the bubble, the NHLers, more**\
-`Scott Wheeler spent the last three days at the Gale Centre Arena in Niagara Falls for a series of practices and scrimmages.`\
-https://nytimes.com/athletic/6885017/2025/12/17/canada-world-juniors-gavin-mckenna-camp/
 
