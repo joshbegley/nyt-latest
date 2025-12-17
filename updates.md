@@ -1,3 +1,11 @@
+**F.C.C. Chair Says Agency ‘Isn’t Independent,’ Breaking From Tradition**\
+`The comment from Brendan Carr, a Republican, raised concerns from lawmakers about how President Trump might use the agency.`\
+https://nytimes.com/2025/12/17/technology/fcc-brendan-carr-senate-hearing.html
+
+**Chiefs lay out next steps for Patrick Mahomes, won't rule out return for 2026 opener**\
+`The Chiefs' head athletic trainer said nine months is the standard recovery time for an injury like Mahomes', give or take a month or two.`\
+https://nytimes.com/athletic/6897126/2025/12/17/chiefs-patrick-mahomes-injury-next-steps/
+
 **Top Republican Examining Boat Strike ‘Satisfied’ With Military Mission**\
 `After viewing video of a follow-up strike, Republicans largely had confidence in the Pentagon’s legal rationale while Democrats questioned its legality.`\
 https://nytimes.com/2025/12/17/us/politics/boat-strike-video-questions-lawmakers.html
