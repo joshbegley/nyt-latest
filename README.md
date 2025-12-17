@@ -1,3 +1,7 @@
+**Adam Silver: NBA expansion decision in 2026 to focus on Vegas and Seattle**\
+`Silver clarified that Seattle and Las Vegas are the two American cities which the league is most focused. `\
+https://nytimes.com/athletic/6895216/2025/12/16/adam-silver-nba-expansion-2026-las-vegas-seattle/
+
 **Pound-for-pound great Terence 'Bud' Crawford retires from boxing at 42-0**\
 `Crawford last fought in September where he cemented his legacy as one of the all-time greats with an upset victory against Canelo Alvarez.`\
 https://nytimes.com/athletic/6895213/2025/12/16/terence-crawford-boxing-retirement-undefeated/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6895171/2025/12/16/capitals-vs-wild-stream-how-to-w
 **How to watch Raiders vs. Texans: Time, TV, streaming**\
 `Find out how to watch the Las Vegas Raiders play the Houston Texans, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6895160/2025/12/16/how-to-watch-raiders-vs-texans-tv-channel-and-streaming-options-for-december-21/
-
-**How to watch Avalanche vs. Kraken: Time, TV, streaming**\
-`Find out how to watch the Colorado Avalanche play the Seattle Kraken, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6895156/2025/12/16/avalanche-vs-kraken-stream-how-to-watch-dec-16/
 

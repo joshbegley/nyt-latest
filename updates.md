@@ -1,3 +1,7 @@
+**Pound-for-pound great Terence 'Bud' Crawford retires from boxing at 42-0**\
+`Crawford last fought in September where he cemented his legacy as one of the all-time greats with an upset victory against Canelo Alvarez.`\
+https://nytimes.com/athletic/6895213/2025/12/16/terence-crawford-boxing-retirement-undefeated/
+
 **Oilers' Leon Draisaitl scores 1,000th point: 'He's showing no signs of slowing down'**\
 `Draisaitl became the fifth-fastest player born outside of North America to reach the 1,000-point milestone.`\
 https://nytimes.com/athletic/6891612/2025/12/16/leon-draisaitl-oilers-1000-points/
