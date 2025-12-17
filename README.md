@@ -1,3 +1,7 @@
+**Ex-Harvard Medical Morgue Manager Who Sold Body Parts Gets 8-Year Sentence**\
+`Cedric Lodge, and his wife, Denise Lodge, stole and sold donated human remains intended for medical research and teaching, prosecutors said.`\
+https://nytimes.com/2025/12/17/us/harvard-morgue-stolen-body-parts.html
+
 **More Than 2,000 Dinosaur Footprints Are Found in the Italian Alps**\
 `Two hundred million years ago, prosauropods walked the earth. They left something behind.`\
 https://nytimes.com/2025/12/17/science/dinosaur-footprints-olympics-italy.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/17/us/politics/ice-arrests-schools.html
 **How Do You Afford Life in New York City?**\
 `The New York Times is looking to talk to New Yorkers about how they budget, splurge and save in one of the most expensive cities in the world.`\
 https://nytimes.com/2025/12/17/nyregion/new-york-city-affordability.html
-
-**The Oscars Will Be Streamed**\
-`The Academy of Motion Picture Arts and Sciences said that it had reached a deal with YouTube for exclusive rights to the show starting in 2029.`\
-https://nytimes.com/2025/12/17/business/media/oscars-youtube.html
 
