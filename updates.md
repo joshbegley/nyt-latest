@@ -1,3 +1,7 @@
+**Must-See Moments From the N.B.A. Cup Championship**\
+`The New York Knicks pulled off a comeback victory over the San Antonio Spurs to take the N.B.A. Cup in Las Vegas.`\
+https://nytimes.com/video/sports/basketball/100000010592644/must-see-moments-from-the-nba-cup-championship.html
+
 **England consider official complaint over Snicko, Carey admits he feathered an edge**\
 `The Australia wicketkeeper was given not out on 72 after the technology showed a spike before the ball reached the bat`\
 https://nytimes.com/athletic/6895826/2025/12/17/england-australia-snicko-carey-tongue/
