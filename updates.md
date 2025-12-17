@@ -1,3 +1,7 @@
+**How to watch Kings vs. Panthers: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Kings play the Florida Panthers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6896689/2025/12/17/kings-vs-panthers-stream-how-to-watch-dec-17/
+
 **How to watch Marquette vs. UConn women's basketball: Time, TV, streaming**\
 `Find out how to watch the Marquette Golden Eagles play the UConn Huskies, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6896679/2025/12/17/marquette-vs-uconn-stream-how-to-watch-dec-17/

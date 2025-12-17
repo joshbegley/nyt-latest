@@ -1,3 +1,7 @@
+**2025's most tectonically powerful sports business storylines: MoneyCall**\
+`Welcome back to MoneyCall, The Athletic’s weekly sports business cheat sheet.`\
+https://nytimes.com/athletic/6896579/2025/12/17/2025-year-end-sports-business-moneycall/
+
 **How to watch Kings vs. Panthers: Time, TV, streaming**\
 `Find out how to watch the Los Angeles Kings play the Florida Panthers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6896689/2025/12/17/kings-vs-panthers-stream-how-to-watch-dec-17/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6896650/2025/12/17/eastern-kentucky-vs-louisville-s
 **Five reasons to stop worrying about Canucks wins as the rebuild begins**\
 `The Canucks have won both games they've played since Quinn Hughes was traded to Minnesota.`\
 https://nytimes.com/athletic/6895674/2025/12/17/canucks-stats-standings-rebuild-quinn-hughes/
-
-**Appeals Court Allows National Guard to Remain in D.C., for Now**\
-`A three-judge panel voted unanimously to allow troops to stay in the capital for the duration of the appeal, citing the city’s unique legal status.`\
-https://nytimes.com/2025/12/17/us/politics/appeals-court-washington-national-guard.html
 
