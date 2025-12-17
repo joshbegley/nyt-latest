@@ -1,3 +1,7 @@
+**Fantasy trends and hidden gems: Trade fallout and a two-week outlook**\
+`Shayna Goldman analyzes key fantasy-relevant trades and previews the next two weeks to help managers stay competitive through the holidays.`\
+https://nytimes.com/athletic/6896471/2025/12/17/fantasy-trends-hidden-gems-trade-fallout-two-week-outlook/
+
 **ICE Arrests Disrupt Schools, Prompting Fear Among Families**\
 `President Trump’s immigration crackdown has at times resulted in arrests near schools, setting off concerns among parents, educators and students.`\
 https://nytimes.com/2025/12/17/us/politics/ice-arrests-schools.html
