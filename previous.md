@@ -1,3 +1,23 @@
+**How to watch Avalanche vs. Kraken: Time, TV, streaming**\
+`Find out how to watch the Colorado Avalanche play the Seattle Kraken, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6895156/2025/12/16/avalanche-vs-kraken-stream-how-to-watch-dec-16/
+
+**How to watch Flames vs. Sharks: Time, TV, streaming**\
+`Find out how to watch the Calgary Flames play the San Jose Sharks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6895154/2025/12/16/flames-vs-sharks-stream-how-to-watch-dec-16/
+
+**How to watch Jaguars vs. Broncos: Time, TV, streaming**\
+`Find out how to watch the Jacksonville Jaguars play the Denver Broncos, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6895146/2025/12/16/jaguars-vs-broncos-stream-how-to-watch-dec-21/
+
+**Where Did Jeffrey Epstein Get His Money?**\
+`For years, rumors swirled about where Jeffrey Epstein’s wealth came from. A Times investigation reveals the truth of how a college dropout clawed his way to the pinnacle of American finance and society.`\
+https://nytimes.com/video/magazine/100000010588155/where-did-jeffrey-epstein-get-his-money.html
+
+**How to watch Falcons vs. Cardinals: Time, TV, streaming**\
+`Find out how to watch the Atlanta Falcons play the Arizona Cardinals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6895129/2025/12/16/falcons-vs-cardinals-stream-how-to-watch-dec-21/
+
 **How to watch Steelers vs. Lions: Time, TV, streaming**\
 `Find out how to watch the Pittsburgh Steelers play the Detroit Lions, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6895108/2025/12/16/steelers-vs-lions-stream-how-to-watch-dec-21/
@@ -13,24 +33,4 @@ https://nytimes.com/2025/12/16/world/canada/sea-lion-rescue-cowichan-bay-vancouv
 **Penguins Become Prey for the Pumas of Patagonia**\
 `In Argentina, the return of pumas brought top predators back to the landscape — much to penguins’ dismay.`\
 https://nytimes.com/2025/12/16/science/penguins-pumas-patagonia.html
-
-**When the Bones Were Good, These Bees Buried Their Babies**\
-`A cave in the Dominican Republic concealed thousands of years worth of animal bones that had been turned into nests by prehistoric bees.`\
-https://nytimes.com/2025/12/16/science/bees-bones-nests.html
-
-**Chuck Neinas, exec who helped shape modern college football, dies at 93**\
-`Neinas helped drive changes that altered traditional TV arrangements led to a wave of conference realignment.`\
-https://nytimes.com/athletic/6894960/2025/12/16/chuck-neinas-big-12-obituary-college-football/
-
-**Former Atlanta Hawks senior VP of finance pleads guilty to wire fraud**\
-`After he was indicted in October, Lester Jones pleaded guilty Tuesday to federal wire fraud tied to years of concealed personal spending.`\
-https://nytimes.com/athletic/6894932/2025/12/16/hawks-executive-guilty-lester-jones-nba/
-
-**Judge Says He Will Not Immediately Halt Trump’s Ballroom Project**\
-`A federal judge said he would order the Trump administration to submit plans for the building by the end of the month, but allowed minor construction to continue for now.`\
-https://nytimes.com/2025/12/16/us/politics/judge-trump-ballroom.html
-
-**Trump Expands Travel Ban and Restrictions to 20 More Countries**\
-`People from Syria, South Sudan and those with documents issued by the Palestinian Authority are included in the latest restrictions. More than 35 countries are now under U.S. travel restrictions.`\
-https://nytimes.com/2025/12/16/us/politics/trump-expanded-travel-ban.html
 
