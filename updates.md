@@ -1,3 +1,7 @@
+**Forecasters Warn of More Possible Flooding in Washington State**\
+`Heavy rain and strong winds through early Wednesday could bring additional flooding to Washington State, forecasters warned.`\
+https://nytimes.com/video/us/100000010592884/washington-storm-flooding.html
+
 **Man Utd unhappy with Morocco for rejecting Mazraoui request**\
 `FIFA announced this month that the deadline for players to be released to AFCON squads would be pushed back to December 15.`\
 https://nytimes.com/athletic/6896098/2025/12/17/mazraoui-afcon-morocco-manchester-united/
