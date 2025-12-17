@@ -1,3 +1,7 @@
+**Malaysian FA says three matches forfeited by FIFA due to ineligible players**\
+`Malasyia's 1-1 draw against Cape Verde, 2-1 win against Singapore, and 1-0 win against Palestine have been declared as 3-0 defeats.`\
+https://nytimes.com/athletic/6896092/2025/12/17/malaysia-friendlies-forfeited-ineligible-players/
+
 **Statue of Liberty Replica Collapses in Brazil**\
 `Strong winds knocked over a replica of the Statue of Liberty outside of a department store in southern Brazil. There were no injuries, according to Brazilian local media.`\
 https://nytimes.com/video/world/americas/100000010592933/brazil-statue-of-liberty-fall.html
