@@ -1,3 +1,7 @@
+**ICE Arrests Disrupt Schools, Prompting Fear Among Families**\
+`President Trump’s immigration crackdown has at times resulted in arrests near schools, setting off concerns among parents, educators and students.`\
+https://nytimes.com/2025/12/17/us/politics/ice-arrests-schools.html
+
 **How Do You Afford Life in New York City?**\
 `The New York Times is looking to talk to New Yorkers about how they budget, splurge and save in one of the most expensive cities in the world.`\
 https://nytimes.com/2025/12/17/nyregion/new-york-city-affordability.html
