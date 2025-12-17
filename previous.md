@@ -1,3 +1,19 @@
+**He’s Only 4 Feet Tall, but Paddington Is London’s Biggest New Musical Star**\
+`Audiences are falling in love with the title character in “Paddington: The Musical.” Bringing such a beloved bear to the stage was “a huge responsibility,” the show’s director said.`\
+https://nytimes.com/2025/12/17/arts/paddington-bear-musical.html
+
+**Billy Crystal, Larry David and Others Remember Rob Reiner as a ‘Master Story Teller’**\
+`A group of prominent figures issued a statement memorializing Mr. Reiner and his wife, Michele Singer Reiner. “We were their friends, and we will miss them forever.”`\
+https://nytimes.com/2025/12/17/us/billy-crystal-larry-david-rob-reiner-statement.html
+
+**Mandel's Mailbag: Michigan's coaching mess, Notre Dame and the ACC's relationship on edge**\
+`Plus, landing spots for the top QBs in the portal and if the Playoff does expand, how will they fit more games into the schedule?`\
+https://nytimes.com/athletic/6895349/2025/12/17/michigan-notre-dame-acc-mandel-mailbag/
+
+**From "X-mode" to "Corner Mode" — F1 car systems terms simplified for new 2026 designs**\
+`The FIA has changed several key terms that will be used to explain system changes on the new cars coming to F1 in 2026`\
+https://nytimes.com/athletic/6895408/2025/12/17/f1-2026-car-modes/
+
 **Trump Administration Live Updates: Venezuela Condemns U.S. Blockade on Some Oil Tankers**\
 ``\
 https://nytimes.com/live/2025/12/17/us/trump-news
@@ -17,20 +33,4 @@ https://nytimes.com/2025/12/17/business/media/warner-bros-paramount-takeover-net
 **Carlos Alcaraz splits with coach Juan Carlos Ferrero after six Grand Slams and seven years**\
 `The world No. 1 confirmed the split on social media, saying that they made the decision together.`\
 https://nytimes.com/athletic/6896095/2025/12/17/carlos-alcaraz-juan-carlos-ferrero-split/
-
-**Britain Rejoins E.U. Student Exchange Program That It Left After Brexit**\
-`The government said it would pay about $760 million to allow young Britons to take part in 2027.`\
-https://nytimes.com/2025/12/17/world/europe/uk-eu-erasmus-scheme-students-brexit.html
-
-**Why the Phillies are betting on Adolis García despite his struggles**\
-`García will be the Phillies’ everyday right fielder. But with a relative bargain comes traits that Kevin Long and company will labor to fix.`\
-https://nytimes.com/athletic/6895144/2025/12/17/adolis-garcia-phillies-sign/
-
-**Who's ready for Bears vs. Packers in a prime-time game Saturday night? Everybody**\
-`More than any Packers game since the 2010 NFC Championship Game, the Bears need to win to prove they're ready to be a legit playoff team.`\
-https://nytimes.com/athletic/6895006/2025/12/17/bears-packers-rematch-nfc-playoff-race-prime-time/
-
-**A Kevin Stefanski, Browns divorce may be coming. A lot can be learned from latest disaster**\
-`Stefanski might be in his final days as Cleveland's head coach because of the Deshaun Watson trade and the catastrophes that followed.`\
-https://nytimes.com/athletic/6893560/2025/12/17/kevin-stefanski-browns-coaching-hot-seat/
 
