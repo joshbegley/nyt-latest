@@ -1,3 +1,7 @@
+**Giants guarantee $22 million to Adrian Houser, adding depth if not flash to rotation**\
+`Houser is expected to help fill out a rotation that's light on experience behind 2025 NL All-Stars Logan Webb and Robbie Ray.`\
+https://nytimes.com/athletic/6895081/2025/12/16/giants-sign-adrian-houser-mlb/
+
 **Packers injuries: Updates on Micah Parsons, Josh Jacobs, Christian Watson and more**\
 `The Packers estimated nine players as non-participants on Tuesday ahead of Saturday night's game in Chicago.`\
 https://nytimes.com/athletic/6895072/2025/12/16/packers-injuries-parsons-watson-jacobs-bears/
