@@ -1,3 +1,7 @@
+**TAFC — Liverpool parade attacker jailed for 21 years. Plus: Mbappe's $76m court win and a World Cup tickets climbdown**\
+`In today's TAFC newsletter, we reflect on a ruling that will bring closure, but not an end to the suffering of those affected on May 26`\
+https://nytimes.com/athletic/6896013/2025/12/17/liverpool-parade-attack-tafc/
+
 **The Knicks are champions, and it's OK to say it**\
 `The Knicks' NBA Cup championship might be a sign of more to come.`\
 https://nytimes.com/athletic/6895633/2025/12/17/knicks-nba-cup-champions/
