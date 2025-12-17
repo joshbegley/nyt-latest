@@ -1,3 +1,7 @@
+**James Barnor Has Photographed Ghana Since the 1940s. He Remembers Everything.**\
+`The 96-year-old on postcolonial history, his first camera and the importance of talking to younger artists.`\
+https://nytimes.com/2025/12/17/t-magazine/james-barnor-photography-moma.html
+
 **Tiny Love Stories: ‘Good Riddance, Christmas’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2025/12/17/style/tiny-modern-love-stories-good-riddance-christmas.html

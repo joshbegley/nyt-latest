@@ -1,3 +1,7 @@
+**James Barnor Has Photographed Ghana Since the 1940s. He Remembers Everything.**\
+`The 96-year-old on postcolonial history, his first camera and the importance of talking to younger artists.`\
+https://nytimes.com/2025/12/17/t-magazine/james-barnor-photography-moma.html
+
 **Tiny Love Stories: ‘Good Riddance, Christmas’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2025/12/17/style/tiny-modern-love-stories-good-riddance-christmas.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/17/world/canada/canada-population-decline-immigratio
 **Trump Administration Aims to Strip More Foreign-Born Americans of Citizenship**\
 `An official with U.S. Citizenship and Immigration Services said it would prioritize “those who’ve unlawfully obtained U.S. citizenship.”`\
 https://nytimes.com/2025/12/17/us/politics/trump-immigration-citizenship-denaturalization.html
-
-**Sherrone Moore had 'long history of domestic violence' against Michigan staffer, lawyer alleges**\
-`Pittsfield Township Police provided information in sworn testimony at a complaint authorization hearing last week.`\
-https://nytimes.com/athletic/6897448/2025/12/17/sherrone-moore-michigan-domestic-violence-allegation/
 
