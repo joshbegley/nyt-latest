@@ -1,3 +1,7 @@
+**Storm Knocks Out Power for Hundreds of Thousands in the Pacific Northwest**\
+`The region has faced significant flooding in the last week. Powerful winds from another storm have compounded the misery.`\
+https://nytimes.com/2025/12/17/weather/wind-power-outages-british-columbia-washington-oregon.html
+
 **Qatari fund, private equity firm buying stake in Wizards ownership group**\
 `Powell Jobs has owned a minority share of Monumental Sports & Entertainment since 2017.`\
 https://nytimes.com/athletic/6897257/2025/12/17/laurene-powell-jobs-wizards-mystics-capitals-monumental-qatar/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6897402/2025/12/17/mammoth-vs-red-wings-stream-how-
 **How to watch Devils vs. Golden Knights: Time, TV, streaming**\
 `Find out how to watch the New Jersey Devils play the Vegas Golden Knights, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6897400/2025/12/17/devils-vs-golden-knights-stream-how-to-watch-dec-17/
-
-**How to watch Jets vs. Blues: Time, TV, streaming**\
-`Find out how to watch the Winnipeg Jets play the St. Louis Blues, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6897398/2025/12/17/jets-vs-blues-stream-how-to-watch-dec-17/
 

@@ -1,3 +1,7 @@
+**Storm Knocks Out Power for Hundreds of Thousands in the Pacific Northwest**\
+`The region has faced significant flooding in the last week. Powerful winds from another storm have compounded the misery.`\
+https://nytimes.com/2025/12/17/weather/wind-power-outages-british-columbia-washington-oregon.html
+
 **Qatari fund, private equity firm buying stake in Wizards ownership group**\
 `Powell Jobs has owned a minority share of Monumental Sports & Entertainment since 2017.`\
 https://nytimes.com/athletic/6897257/2025/12/17/laurene-powell-jobs-wizards-mystics-capitals-monumental-qatar/
