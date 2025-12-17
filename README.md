@@ -1,3 +1,11 @@
+**Penguins Become Prey for the Pumas of Patagonia**\
+`In Argentina, the return of pumas brought top predators back to the landscape — much to penguins’ dismay.`\
+https://nytimes.com/2025/12/16/science/penguins-pumas-patagonia.html
+
+**When the Bones Were Good, These Bees Buried Their Babies**\
+`A cave in the Dominican Republic concealed thousands of years worth of animal bones that had been turned into nests by prehistoric bees.`\
+https://nytimes.com/2025/12/16/science/bees-bones-nests.html
+
 **Chuck Neinas, exec who helped shape modern college football, dies at 93**\
 `Neinas helped drive changes that altered traditional TV arrangements led to a wave of conference realignment.`\
 https://nytimes.com/athletic/6894960/2025/12/16/chuck-neinas-big-12-obituary-college-football/
@@ -25,12 +33,4 @@ https://nytimes.com/2025/12/16/business/kushner-paramount-warner-bros-discovery.
 **Cubs' bullpen picture coming into focus with Caleb Thielbar as latest signing: Source**\
 `With Thielbar, the Cubs can now attack hitters from the left side with two drastically different arm angles.`\
 https://nytimes.com/athletic/6894942/2025/12/16/cubs-bullpen-caleb-thielbar-signing-source/
-
-**Fantasy football market share report: Get Michael Carter, forget Tyler Warren for Week 16**\
-`Michael Salfino analyzes the touches and targets distribution for Week 15 and suggests adding Michael Carter, but benching Tyler Warren.`\
-https://nytimes.com/athletic/6894572/2025/12/16/fantasy-football-market-share-report-michael-carter/
-
-**Submit your Dodgers questions for Fabian Ardaya's mailbag**\
-`Submit your Dodgers questions for Fabian Ardaya's mailbag`\
-https://nytimes.com/athletic/6895020/2025/12/16/dodgers-offseason-free-agents-mailbag/
 
