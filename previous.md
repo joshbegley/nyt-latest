@@ -1,3 +1,23 @@
+**Lee Trundle, a Wrexham and Swansea legend, and football's most unlikely cult hero**\
+`Despite never playing at the top level, Trundle was a player whose skills went viral in an era before social media was even a thing`\
+https://nytimes.com/athletic/6862015/2025/12/17/lee-trundle-swansea-wrexham-soccer-am/
+
+**A discussion about Viktor Gyokeres' start at Arsenal**\
+`The 27-year-old has six goals in 19 appearances since a summer move from Sporting CP - our Arsenal writers discuss how he has performed`\
+https://nytimes.com/athletic/6891574/2025/12/17/viktor-gyokeres-arsenal-arteta-havertz/
+
+**Fernandes feels unloved by Man Utd. The truth is he is their most precious asset**\
+`The Portuguese may be perturbed at his treatment in the summer but his numbers underline his value to United `\
+https://nytimes.com/athletic/6894398/2025/12/17/bruno-fernandes-manchester-united-goals-assists/
+
+**Salah's bid for crowning glory, look out for DR Congo and Cameroon in chaos - AFCON stories to watch**\
+`A look at some of the key teams, players and potential plot lines from the upcoming Africa Cup of Nations which begins on Sunday`\
+https://nytimes.com/athletic/6875176/2025/12/17/africa-cup-of-nations-storylines-to-watch/
+
+**Brighton midfielder Carlos Baleba wants to win AFCON but 'everyone wants to beat Cameroon'**\
+`From Ligue 1 to the Premier League and now AFCON, the Brighton & Hove midfielder has enjoyed a turbo-charged two years`\
+https://nytimes.com/athletic/6890867/2025/12/17/carlos-baleba-brighton-cameroon-afcon/
+
 **Does China Have a Robot Bubble?**\
 `The Chinese government is betting that robots will drive economic growth. But the bots can’t really do much yet.`\
 https://nytimes.com/2025/12/17/business/china-robot-unitree-ubtech.html
@@ -13,24 +33,4 @@ https://nytimes.com/athletic/6894467/2025/12/17/connections-sports-edition-hints
 **On British Roads, Chinese Cars Are Racing Ahead**\
 `BYD, Chery and other Chinese automakers are winning over drivers in Britain, where tariffs are low and buyers are open to new brands.`\
 https://nytimes.com/2025/12/17/business/britain-china-cars-byd.html
-
-**Corrections: Dec. 17, 2025**\
-`Corrections that appeared in print on Wednesday, Dec. 17, 2025.`\
-https://nytimes.com/2025/12/17/pageoneplus/corrections-dec-17-2025.html
-
-**Quote of the Day: Brown’s Tradition of Openness Is Now Fractured**\
-`Quotation of the Day for Wednesday, December 17, 2025.`\
-https://nytimes.com/2025/12/16/pageoneplus/quote-of-the-day-browns-tradition-of-openness-is-now-fractured.html
-
-**Knicks' bench delivers New York's first banner since 1973: NBA Cup takeaways**\
-`Yes, the Knicks are going to hang a banner inside MSG.`\
-https://nytimes.com/athletic/6895370/2025/12/16/nba-cup-knicks-spurs-takeaways/
-
-**‘I always take responsibility’: Blackhawks’ Artyom Levshunov scratched for being late**\
-`Levshunov sat out Chicago's 3-2 loss to the Maple Leafs on Tuesday after arriving late to practice the day before.`\
-https://nytimes.com/athletic/6895068/2025/12/16/blackhawks-maple-leafs-artyom-levshunov-scratched/
-
-**Norman Podhoretz, Influential Editor and Neoconservative Force, Dies at 95**\
-`A New York intellectual and onetime liberal stalwart, his Commentary magazine became his platform as his political and social view turned sharply rightward.`\
-https://nytimes.com/2025/12/16/us/politics/norman-podhoretz-dead.html
 
