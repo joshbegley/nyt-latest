@@ -1,3 +1,7 @@
+**Zuckerberg Compound Prompts Palo Alto to Consider Billionaire Housing Law**\
+`The Silicon Valley college town has changed drastically as Mark Zuckerberg, Larry Page and other tech founders have scooped up multiple properties.`\
+https://nytimes.com/2025/12/18/us/palo-alto-billionaire-compound-law.html
+
 **Week 16 NFL playoff picture: A team-by-team look at every possible scenario**\
 `With three weeks remaining in the 2025 NFL season, the playoff picture is starting to take shape.`\
 https://nytimes.com/athletic/6891435/2025/12/18/week-16-nfl-playoff-picture-a-team-by-team-look-at-every-possible-scenario/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/18/business/dealbook/affordability-crisis-trump.html
 **If this is Guardiola’s goodbye to English football, his legacy is unique**\
 `No coach has had a greater impact on the English game in recent times than the Catalan, who will be the ultimate hard act to follow`\
 https://nytimes.com/athletic/6898463/2025/12/18/pep-guardiola-manchester-city-legacy/
-
-**Trump Administration Live Updates: President Defends Record on Economy Amid Americans’ Concerns**\
-``\
-https://nytimes.com/live/2025/12/18/us/trump-news
 
