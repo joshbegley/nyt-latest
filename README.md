@@ -1,3 +1,7 @@
+**French Doctor Sentenced to Life for Fatally Poisoning 12 People**\
+`Frédéric Péchier, an anesthesiologist, was found guilty of poisoning 30 patients, of whom 12 died.`\
+https://nytimes.com/2025/12/18/world/europe/french-doctor-anesthesiologist-fatally-poisoning-12-people-convicted.html
+
 **Missouri QB Beau Pribula to enter transfer portal: Sources**\
 `Pribula started 10 games for the Tigers after joining the team last season, having spent his first three years in college at Penn State.`\
 https://nytimes.com/athletic/6899664/2025/12/18/missouri-beau-pribula-enter-transfer-portal/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6899680/2025/12/18/hawks-vs-hornets-stream-how-to-w
 **How to watch Oilers vs. Bruins: Time, TV, streaming**\
 `Find out how to watch the Edmonton Oilers play the Boston Bruins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6899675/2025/12/18/oilers-vs-bruins-stream-how-to-watch-dec-18/
-
-**How to watch Blackhawks vs. Canadiens: Time, TV, streaming**\
-`Find out how to watch the Chicago Blackhawks play the Montreal Canadiens, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6899673/2025/12/18/blackhawks-vs-canadiens-stream-how-to-watch-dec-18/
 
