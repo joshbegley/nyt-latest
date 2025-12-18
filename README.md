@@ -1,3 +1,7 @@
+**The Year in Pictures 2025**\
+`Reflections of Turbulent Times`\
+https://nytimes.com/interactive/2025/world/year-in-pictures.html
+
 **Injured James Harden won't play vs. Thunder. Status vs. Lakers Saturday TBD**\
 `Harden practiced Sunday with a sleeve on his left leg, a day after the Clippers had a film session and canceled a practice due to injuries.`\
 https://nytimes.com/athletic/6897950/2025/12/17/james-harden-injury-calf-out-clippers/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/17/style/conservatives-engagements-marjorie-taylor-g
 **Twelve Men Saturated East Harlem Housing Project With Drugs, U.S. Says**\
 `For more than three and a half years, officials said, the men used the Johnson Houses as “an open drug market” to sell crack cocaine and fentanyl.`\
 https://nytimes.com/2025/12/17/nyregion/sdny-harlem-drug-charges.html
-
-**Israel Approves $37 Billion Deal to Deliver Gas to Egypt**\
-`Israel’s granting of an export permit is the final step to allow the deal, first announced by energy companies in August, to proceed.`\
-https://nytimes.com/2025/12/17/world/middleeast/israel-gas-deal-egypt.html
 

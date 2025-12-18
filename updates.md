@@ -1,3 +1,11 @@
+**Injured James Harden won't play vs. Thunder. Status vs. Lakers Saturday TBD**\
+`Harden practiced Sunday with a sleeve on his left leg, a day after the Clippers had a film session and canceled a practice due to injuries.`\
+https://nytimes.com/athletic/6897950/2025/12/17/james-harden-injury-calf-out-clippers/
+
+**Nats continue youth movement; set to hire Phillies' Ani Kilambi, 31, as GM**\
+`The Nationals will have a 33-year-old manager, 31-year-old GM and 35-year-old president of baseball operations.`\
+https://nytimes.com/athletic/6897955/2025/12/17/nationals-youth-movement-ani-kilambi-gm/
+
 **ICE Must Allow Lawmakers to Inspect Detention Centers, Judge Rules**\
 `Judge Jia M. Cobb wrote that two policies announced in June appeared to unlawfully bar members of Congress from making unannounced visits at immigration detention facilities.`\
 https://nytimes.com/2025/12/17/us/politics/ice-inspections-democrats-congress-lawsuit.html
