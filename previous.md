@@ -1,3 +1,7 @@
+**NC State coach Will Wade criticizes team over 8-4 record: 'Kindergarten's over'**\
+`NC State, now 8-4 on the season, has yet to beat a high-major opponent after losing in overtime to Kansas on Saturday.`\
+https://nytimes.com/athletic/6899445/2025/12/18/will-wade-nc-state-cbb/
+
 **European Leaders Discuss Financing Ukraine With Frozen Russian Assets**\
 `The European Council convened in Brussels to discuss leveraging up to $247 billion in frozen Russian government assets held in Europe to finance Ukraine’s war effort.`\
 https://nytimes.com/video/world/europe/100000010595674/european-union-ukraine-russia-assets-fund.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/18/learning/lesson-plans/ask-a-journalist-reporting-
 **West Ham part ways with women's head coach Rehanne Skinner**\
 `The 46-year-old leaves West Ham 11th in the Women's Super League (WSL) with just one win in 11 matches.`\
 https://nytimes.com/athletic/6899053/2025/12/18/west-ham-sack-rehanne-skinner/
-
-**Over 1,000 Were Killed in Attack on Famine-Stricken Camp in Sudan, U.N. Says**\
-`A paramilitary attack in April was one of the most brutal of Sudan’s civil war. Now, hunger is spreading as Western aid cuts have reduced U.N. rations.`\
-https://nytimes.com/2025/12/18/world/africa/sudan-rsf-attack-darfur-un.html
 

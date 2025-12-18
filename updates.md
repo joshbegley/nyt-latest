@@ -1,3 +1,7 @@
+**NC State coach Will Wade criticizes team over 8-4 record: 'Kindergarten's over'**\
+`NC State, now 8-4 on the season, has yet to beat a high-major opponent after losing in overtime to Kansas on Saturday.`\
+https://nytimes.com/athletic/6899445/2025/12/18/will-wade-nc-state-cbb/
+
 **European Leaders Discuss Financing Ukraine With Frozen Russian Assets**\
 `The European Council convened in Brussels to discuss leveraging up to $247 billion in frozen Russian government assets held in Europe to finance Ukraine’s war effort.`\
 https://nytimes.com/video/world/europe/100000010595674/european-union-ukraine-russia-assets-fund.html
