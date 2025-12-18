@@ -1,5 +1,9 @@
+**Cubs adding 1B Tyler Austin, a former Yankee returning from Japan: Source**\
+`Austin produced his best year with the Yankees in 2018, when he hit 17 home runs in 69 games.`\
+https://nytimes.com/athletic/6901049/2025/12/18/cubs-adding-first-baseman-tyler-austin/
+
 **Coming Soon to a TV Near Trump: A G.O.P. Ad in N.Y. Governor’s Race**\
-`Bruce Blakeman, an ally of President Trump who is running for governor in New York, is buying ad time on Fox News in the West Palm Beach, Fla., market, where Mr. Trump may be watching.`\
+`Bruce Blakeman, an ally of President Trump, is buying ad time on Fox News in the West Palm Beach, Fla., market, where Mr. Trump may be watching.`\
 https://nytimes.com/2025/12/18/nyregion/blakeman-trump-fox-news.html
 
 **Winter Weather Kicks Into High Gear Just in Time for Christmas Travel**\
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/100000010597180/north-carolina-plane-crash.html
 **Trump Mocks Obama, Biden in His Presidential ‘Walk of Fame’**\
 `The White House unveiled new plaques near the Oval Office mocking some of President Trump’s predecessors. The new display distorts history and aligns with Mr. Trump’s worldview.`\
 https://nytimes.com/video/us/politics/100000010596269/trump-presidential-plaques-.html
-
-**Sue Bender, Who Wrote About Living With the Amish, Dies at 91**\
-`“Plain and Simple,” her best-selling 1989 book, was a go-to text of the anti-materialist movement known as voluntary simplicity.`\
-https://nytimes.com/2025/12/18/books/sue-bender-dead.html
 
