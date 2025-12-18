@@ -1,3 +1,7 @@
+**Trump Boasts About Economy in Prime Time Speech**\
+`The president gave a televised speech that featured repeated criticism of Democrats and his predecessor, Joseph R. Biden Jr., along with boasts about gains that many Americans have said they are not experiencing.`\
+https://nytimes.com/video/us/politics/100000010595325/trump-economy-speech-white-house.html
+
 **The New York Times in Print for Thursday, Dec. 18, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/12/18/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6896558/2025/12/18/leeds-piroe-farke-premier-league
 **Why Chelsea's hopes of a stadium at Earls Court may not yet be over**\
 `Chelsea still believe there is a chance of them building a new home at Earls Court, despite an alternative plan for the land being approved`\
 https://nytimes.com/athletic/6896581/2025/12/18/chelsea-stadium-earls-court-planning/
-
-**Manchester United and Antoine Semenyo. Does it make sense?**\
-`Semenyo's seven goals and three assists across the 2025-26 season rank him as one of the more dangerous attackers outside of the 'Big Six'`\
-https://nytimes.com/athletic/6822771/2025/12/18/antoine-semenyo-manchester-united-transfer-analysis/
 
