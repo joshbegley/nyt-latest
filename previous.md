@@ -1,3 +1,19 @@
+**For neighbors, a sense of shock and sadness hangs over the Reiners’ home.**\
+`By Rachel Parsons`\
+https://nytimes.com/live/2025/12/17/us/rob-nick-reiner-murder-charges/for-neighbors-a-sense-of-shock-and-sadness-hangs-over-the-reiners-home
+
+**U.S. Government Admits Liability in Deadly D.C.-Area Air Collision**\
+`A federal court filing says the Army crew piloting a Black Hawk helicopter could have avoided the nighttime accident in January if it had been able to see and avoid a commercial jet.`\
+https://nytimes.com/live/2025/12/17/us/trump-news/government-liability-air-collision
+
+**Fani Willis Defends Failed Election Interference Case in Heated Hearing**\
+`The Atlanta-area district attorney called President Trump and his allies “criminals” while being questioned by a Georgia Senate committee on Wednesday.`\
+https://nytimes.com/video/us/politics/100000010594014/willis-georgia-investigative-hearing.html
+
+**Lions told to stop booger-flicking celebrations, St. Brown says**\
+`Amon-Ra St. Brown and his teammates apparently went a bit too far with their celebrations against the Rams last Sunday.`\
+https://nytimes.com/athletic/6898028/2025/12/17/detroit-lions-stop-booger-flicking-celebrations/
+
 **Photographer Finds More Than 2,000 Dinosaur Footprints in the Italian Alps**\
 `While hiking in the Italian Alps in September, a nature photographer came upon a surface speckled with more than 2,000 dinosaur footprints. The site is not that far from Bormio, where Alpine skiing will take place at the Winter Olympics in February.`\
 https://nytimes.com/video/world/europe/100000010594323/dinosaur-footprints-italian-alps.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/12/17/us/politics/trump-presidential-walk-of-fame-white
 **Trump’s handling of the economy has dragged down his approval rating.**\
 `By Ruth Igielnik and Tyler Pager`\
 https://nytimes.com/live/2025/12/17/us/trump-address-nation-speech/trumps-handling-of-the-economy-has-dragged-down-his-approval-rating
-
-**Here’s What to Expect From Trump’s Speech**\
-`President Trump will address the nation on Wednesday night at 9 p.m. Eastern time. The New York Times will provide live coverage and analysis.`\
-https://nytimes.com/2025/12/17/us/politics/trump-address-speech-when-what-time.html
-
-**Live Updates: Trump to Address Nation From Oval Office**\
-`The president said his message would focus on how his administration had done great work, but the speech comes as many Americans are facing cost-of-living concerns.`\
-https://nytimes.com/live/2025/12/17/us/trump-address-nation-speech
-
-**Ghislaine Maxwell Asks a Judge to Throw Out Her Sex-Abuse Conviction**\
-`Ms. Maxwell, who conspired with Jeffrey Epstein in a sex-trafficking scheme, argued that she had been denied a fair trial.`\
-https://nytimes.com/2025/12/17/nyregion/ghislaine-maxwell-prison-jeffrey-epstein.html
-
-**Senate Passes Air Safety Measure, Reversing Provision in Defense Bill**\
-`The legislation restores restrictions on military aircraft flying near busy airports, implemented after a fatal collision near D.C. in January, that had been removed in the defense bill.`\
-https://nytimes.com/2025/12/17/us/politics/senate-defense-bills-air-safety.html
 

@@ -1,3 +1,11 @@
+**Wesley Morris Remembers Rob Reiner’s Movies**\
+`This week, Wesley reflects on the impact Rob Reiner had on his life, specifically the 1990 film “Misery,” and how Reiner brought humanity to his characters in unexpected ways.`\
+https://nytimes.com/video/podcasts/100000010593623/wesley-morris-remembers-rob-reiners-movies.html
+
+**Jury in Skaggs-Angels trial asks court questions related to damages**\
+`Two days of deliberations have rendered no verdict from jurors in the wrongful death civil trial.`\
+https://nytimes.com/athletic/6898204/2025/12/17/tyler-skaggs-case-angels-might-request-mistrial/
+
 **For neighbors, a sense of shock and sadness hangs over the Reiners’ home.**\
 `By Rachel Parsons`\
 https://nytimes.com/live/2025/12/17/us/rob-nick-reiner-murder-charges/for-neighbors-a-sense-of-shock-and-sadness-hangs-over-the-reiners-home
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/17/us/trump-phone-call-georgia-election.html
 **For Hegseth, There Is One Boat Strike He Doesn’t Want the Public to See**\
 `The Pentagon has released plenty of video clips that show American missiles blowing boats suspected of carrying drugs out of the water. But the “double tap” strike on Sept. 2 is being kept under wraps.`\
 https://nytimes.com/2025/12/17/us/politics/hegseth-boat-strike-video.html
-
-**Presidential History, According to Trump**\
-`The White House unveiled plaques near the Oval Office that describe U.S. presidents with varying levels of accuracy, depending on President Trump’s opinion of them.`\
-https://nytimes.com/2025/12/17/us/politics/trump-presidential-walk-of-fame-white-house.html
-
-**Trump’s handling of the economy has dragged down his approval rating.**\
-`By Ruth Igielnik and Tyler Pager`\
-https://nytimes.com/live/2025/12/17/us/trump-address-nation-speech/trumps-handling-of-the-economy-has-dragged-down-his-approval-rating
 
