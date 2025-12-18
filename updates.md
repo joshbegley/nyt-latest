@@ -1,3 +1,7 @@
+**Australia Mourns the Youngest Victim of the Bondi Beach Shooting**\
+`Sydney’s devastated Jewish community gathered for the funeral of “Matilda Bee,” an ebullient, smiling 10-year-old girl.`\
+https://nytimes.com/2025/12/18/world/asia/australia-matilda-funeral-bondi-shooting.html
+
 **The mystery of the 'Hercules gene' - the blessing and curse of sports stars**\
 `Having extra muscle mass sounds like a benefit for athletes, but the reality is far more complicated`\
 https://nytimes.com/athletic/6856557/2025/12/18/myostatin-mutation-harry-aikines-aryeetey/
