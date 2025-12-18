@@ -1,3 +1,7 @@
+**Rams star Puka Nacua apologizes for antisemitic dance on livestream**\
+`Nacua, 24, appeared with streamers Adin Ross and N3on this week in advance of the Rams' Thursday night game against the Seattle Seahawks.`\
+https://nytimes.com/athletic/6900166/2025/12/18/puka-nacua-apology-rams-adin-ross-stream/
+
 **Trump Signs Executive Order to Reclassify Marijuana, Easing Restrictions on the Drug**\
 `Marijuana’s classification as one of the most dangerous and habit-forming substances has long drawn criticism.`\
 https://nytimes.com/2025/12/18/us/politics/trump-marijuana-reclassify-order.html
