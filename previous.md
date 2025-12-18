@@ -1,40 +1,40 @@
-**When Judges Are Attacked, You Suffer**\
-`The rise in judicial threats is being fueled by the political rhetoric of the Trump administration, argues the judge Esther Salas.`\
-https://nytimes.com/video/opinion/100000010577027/when-judges-are-attacked-you-suffer.html
+**‘Miraculous,’ ‘Amazing,’ ‘Disappointing’: 14 Voters on Their Experiences with GLP-1 Drugs and Health in America**\
+`The participants discuss their experiences with taking GLP 1s for weight loss and diabetes.`\
+https://nytimes.com/interactive/2025/12/18/opinion/focus-group-former-glp1.html
 
-**Must-See Moments From the N.B.A.**\
-`On Wednesday, the stumbling Cleveland Cavaliers fell to the Chicago Bulls as the Bulls’ Josh Giddey recorded a triple-double, and the Memphis Grizzlies won on the road against the Minnesota Timberwolves.`\
-https://nytimes.com/video/sports/basketball/100000010595471/must-see-moments-from-the-nba.html
+**What Courage Does for Us**\
+`Bravery and cowardice are both exemplary teachers.`\
+https://nytimes.com/2025/12/18/opinion/bondi-beach-uvalde-parkland-courage.html
 
-**City Council Introduces Bill to Create Mamdani’s Community Safety Agency**\
-`The proposed Department of Community Safety would send mental health teams to respond to 911 calls, rather than the police, according to Mayor-elect Zohran Mamdani’s plans.`\
-https://nytimes.com/2025/12/18/nyregion/city-council-community-safety-mamdani.html
+**Rob Reiner Made Your Favorite Movie**\
+`He made mine. You know the scene.`\
+https://nytimes.com/2025/12/18/podcasts/rob-reiner-made-your-favorite-movie.html
 
-**New York City Set to Raise the Cap on Permits for Street Vendors**\
-`The legislation is part of a package of City Council bills aimed at helping the city’s thousands of vendors get on the right side of the law.`\
-https://nytimes.com/2025/12/18/nyregion/nyc-street-vendor-permits-cap-raised.html
+**Outside Dallas, a Young Family Just Wanted Some Space. Here’s Where They Found It.**\
+`After a long stint in Europe, a Texas couple brought their two young daughters home and searched for a house in a good school district with room for grandparents and friends.`\
+https://nytimes.com/interactive/2025/12/18/realestate/dallas-fort-worth-texas-homes-sale.html
 
-**Where ‘Seinfeld,’ a $120,000 Chandelier and a Mysterious Church Converge**\
-`Olde Good Things, an antiques giant with stores in New York and Los Angeles, is operated by a group called the Church of Bible Understanding.`\
-https://nytimes.com/2025/12/18/nyregion/olde-good-things-antiques.html
+**Nigeria Closes Factories Linked to U.S. Auto Industry Amid Poisoning Inquiry**\
+`Carmakers have known for decades that battery recycling was poisoning people abroad. Nigeria’s crackdown is an effort to catalog the damage.`\
+https://nytimes.com/2025/12/18/world/africa/nigeria-lead-factory-closings.html
 
-**Flowers and Candlelight**\
-`Why was this image in the news this week? What is your reaction?`\
-https://nytimes.com/2025/12/18/learning/flowers-and-candlelight.html
+**Who Can Solve Iran’s Many Problems? Not I, Says the President.**\
+`Despite sky-high inflation, water and energy cuts and prospects for a deal with the U. S. dimming, President Masoud Pezeshkian has apparently thrown up his hands.`\
+https://nytimes.com/2025/12/18/world/middleeast/iran-pezeshkian-domestic-foreign-crises.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/12/18/crosswords/spelling-bee-forum.html
+**For Families Fighting Addiction, Reiner Tragedy Strikes a Nerve**\
+`Nick Reiner, charged with murdering his parents, Rob and Michele Singer Reiner, spent much of his life battling drug addiction, an affliction that millions of Americans face.`\
+https://nytimes.com/2025/12/18/us/rob-reiner-murder-addiction.html
 
-**An Airport Hotel Gets New Life as Affordable Housing**\
-`Text by Text by Mihir Zaveri; Visuals by Karsten Moran`\
-https://nytimes.com/card/2025/12/18/undefined/
+**How ‘Affordability’ Became a New Magic Word for Politicians**\
+`A rallying cry for Democrats taps into frustration over the inaccessibility of a modestly nice American existence — even for those with a decent income.`\
+https://nytimes.com/2025/12/18/magazine/affordability-economy.html
 
-**How to watch 49ers vs. Colts: Time, TV, streaming**\
-`Find out how to watch the San Francisco 49ers play the Indianapolis Colts, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6898887/2025/12/18/49ers-vs-colts-stream-how-to-watch-dec-22/
+**David Brooks, E.J. Dionne and Robert Siegel Take Stock of 2025**\
+`Trump is giving himself an A-plus-plus-plus, but the rest of America is anxious.`\
+https://nytimes.com/2025/12/18/opinion/the-conversation-trump-presidency-anxiety.html
 
-**After a season on the margins, Savinho offers a glimpse of his potential**\
-`The Brazilian winger has found minutes hard to come by, but he impressed in scoring against Brentford in the League Cup `\
-https://nytimes.com/athletic/6898826/2025/12/18/after-a-season-on-the-margins-savinho-offers-glimpse-of-his-potential/
+**36 Hours in San Luis Obispo County**\
+`Wineries and boutique hotels have sprouted along the backroads and once-sleepy main streets of this Central Coast county.`\
+https://nytimes.com/interactive/2025/12/18/travel/things-to-do-san-luis-obispo.html
 
