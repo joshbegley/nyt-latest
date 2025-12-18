@@ -1,3 +1,7 @@
+**Must-See Moments From the N.B.A.**\
+`On Wednesday, the stumbling Cleveland Cavaliers fell to the Chicago Bulls as the Bulls’ Josh Giddey recorded a triple-double, and the Memphis Grizzlies won on the road against the Minnesota Timberwolves.`\
+https://nytimes.com/video/sports/basketball/100000010595471/must-see-moments-from-the-nba.html
+
 **City Council Introduces Bill to Create Mamdani’s Community Safety Agency**\
 `The proposed Department of Community Safety would send mental health teams to respond to 911 calls, rather than the police, according to Mayor-elect Zohran Mamdani’s plans.`\
 https://nytimes.com/2025/12/18/nyregion/city-council-community-safety-mamdani.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6898826/2025/12/18/after-a-season-on-the-margins-sa
 **BP Names New Boss After Its C.E.O. Steps Down**\
 `Meg O’Neill of Australia’s Woodside Energy will lead the London energy giant, replacing Murray Auchincloss, who will exit after less than two years in the role.`\
 https://nytimes.com/2025/12/18/business/bp-new-ceo-oil.html
-
-**The Ashes Briefing: Relentless Australia stamp their authority on England as Ben Stokes stands alone**\
-`The tourists' batters wilted once more against an experienced bowling attack with more scrutiny falling on the on-field technology`\
-https://nytimes.com/athletic/6897480/2025/12/18/ashes-england-australia-lyon-cummins-stokes-briefing/
 
