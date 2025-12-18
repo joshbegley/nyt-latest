@@ -1,8 +1,16 @@
+**For neighbors, a sense of shock and sadness hangs over the Reiners’ home.**\
+`By Rachel Parsons`\
+https://nytimes.com/live/2025/12/17/us/rob-nick-reiner-murder-charges/for-neighbors-a-sense-of-shock-and-sadness-hangs-over-the-reiners-home
+
+**U.S. Government Admits Liability in Deadly D.C.-Area Air Collision**\
+`A federal court filing says the Army crew piloting a Black Hawk helicopter could have avoided the nighttime accident in January if it had been able to see and avoid a commercial jet.`\
+https://nytimes.com/live/2025/12/17/us/trump-news/government-liability-air-collision
+
 **Fani Willis Defends Failed Election Interference Case in Heated Hearing**\
 `The Atlanta-area district attorney called President Trump and his allies “criminals” while being questioned by a Georgia Senate committee on Wednesday.`\
 https://nytimes.com/video/us/politics/100000010594014/willis-georgia-investigative-hearing.html
 
-**Detroit Lions were told to stop with the booger-flicking celebrations**\
+**Lions told to stop booger-flicking celebrations, St. Brown says**\
 `Amon-Ra St. Brown and his teammates apparently went a bit too far with their celebrations against the Rams last Sunday.`\
 https://nytimes.com/athletic/6898028/2025/12/17/detroit-lions-stop-booger-flicking-celebrations/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/17/us/politics/trump-presidential-walk-of-fame-white
 **Trump’s handling of the economy has dragged down his approval rating.**\
 `By Ruth Igielnik and Tyler Pager`\
 https://nytimes.com/live/2025/12/17/us/trump-address-nation-speech/trumps-handling-of-the-economy-has-dragged-down-his-approval-rating
-
-**Here’s What to Expect From Trump’s Speech**\
-`President Trump will address the nation on Wednesday night at 9 p.m. Eastern time. The New York Times will provide live coverage and analysis.`\
-https://nytimes.com/2025/12/17/us/politics/trump-address-speech-when-what-time.html
-
-**Live Updates: Trump to Address Nation From Oval Office**\
-`The president said his message would focus on how his administration had done great work, but the speech comes as many Americans are facing cost-of-living concerns.`\
-https://nytimes.com/live/2025/12/17/us/trump-address-nation-speech
 
