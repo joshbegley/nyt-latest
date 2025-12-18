@@ -1,4 +1,8 @@
-**Late Night Shades Trump’s Impromptu ‘Liar-side Chat’**\
+**Word of the Day: nominate**\
+`This word has appeared in 262 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/12/18/learning/word-of-the-day-nominate.html
+
+**Late Night Shades Trump’s Impromptu ‘Liar-Side Chat’**\
 `Jimmy Kimmel called the president’s last-minute speech “a surprise prime-time episode of ‘The Worst Wing’ tonight on every channel.”`\
 https://nytimes.com/2025/12/18/arts/television/late-night-trump-address.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6893456/2025/12/18/west-ham-defensive-problems/
 **From Fernandes to Foden and Rogers to Rice, there’s a new FPL midfield template**\
 `Four of the five most transferred-in FPL players this gameweek are midfielders. So, who should be your priority purchases?`\
 https://nytimes.com/athletic/6896077/2025/12/18/fantasy-premier-league-fpl-tips-gameweek-17-foden-fernandes/
-
-**Newcastle have taken a step towards derby-day redemption — and Wembley**\
-`Eddie Howe's side needed to win after Sunday's ignominy on Wearside, and they did. They really had no alternative.`\
-https://nytimes.com/athletic/6898376/2025/12/18/newcastle-howe-carabao-redemption-sunderland/
 

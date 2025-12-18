@@ -1,3 +1,11 @@
+**Word of the Day: nominate**\
+`This word has appeared in 262 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/12/18/learning/word-of-the-day-nominate.html
+
+**Late Night Shades Trump’s Impromptu ‘Liar-Side Chat’**\
+`Jimmy Kimmel called the president’s last-minute speech “a surprise prime-time episode of ‘The Worst Wing’ tonight on every channel.”`\
+https://nytimes.com/2025/12/18/arts/television/late-night-trump-address.html
+
 **Late Night Shades Trump’s Impromptu ‘Liar-side Chat’**\
 `Jimmy Kimmel called the president’s last-minute speech “a surprise prime-time episode of ‘The Worst Wing’ tonight on every channel.”`\
 https://nytimes.com/2025/12/18/arts/television/late-night-trump-address.html
