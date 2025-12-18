@@ -1,3 +1,15 @@
+**A Designer of Maximalist Fine Jewelry Embraces Warm Minimalism at Home**\
+`With clean lines and a pared-down palette, Joe Spiro’s London apartment is a refuge from his glittery day job.`\
+https://nytimes.com/2025/12/18/t-magazine/joe-spiro-house.html
+
+**Make-Ahead, Easy-to-Transport Christmas Casseroles**\
+`Wild rice and mushroom casserole, slow-baked beans with kale and other festive showstoppers for the holiday feast.`\
+https://nytimes.com/2025/12/18/dining/make-ahead-easy-to-transport-christmas-casseroles.html
+
+**Jet Crashes at North Carolina Airport**\
+`The Federal Aviation Administration said several people were killed when a Cessna C550 jet crashed while landing at Statesville Regional Airport.`\
+https://nytimes.com/video/us/100000010596592/north-carolina-jet-crash.html
+
 **Rams star Puka Nacua apologizes for antisemitic dance on livestream**\
 `Nacua, 24, appeared with streamers Adin Ross and N3on this week in advance of the Rams' Thursday night game against the Seattle Seahawks.`\
 https://nytimes.com/athletic/6900166/2025/12/18/puka-nacua-apology-rams-adin-ross-stream/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/12/18/nyregion/atlantic-city-mayor-not-guilty.html
 **Trump Signs Executive Order to Reclassify Marijuana, Easing Restrictions on the Drug**\
 `Marijuana’s classification as one of the most dangerous and habit-forming substances has long drawn criticism.`\
 https://nytimes.com/2025/12/18/us/politics/trump-marijuana-reclassify-order.html
-
-**Plane registered to former NASCAR driver Greg Biffle crashes in North Carolina**\
-`A Cessna plane registered to Biffle's GB Aviation crashed Thursday outside of Charlotte. There's been no confirmation who was on board.`\
-https://nytimes.com/athletic/6899642/2025/12/18/plane-crash-greg-biffle-nascar-driver/
-
-**A Lesson From the Abrego Garcia Saga**\
-`Kilmar Armando Abrego Garcia’s release from immigration detention last week offers a useful model for how Democrats can successfully challenge the Trump administration, the Opinion columnist Jamelle Bouie argues.`\
-https://nytimes.com/video/opinion/100000010594893/a-lesson-from-the-abrego-garcia-saga.html
-
-**Putin to Project Unyielding Stance on Ukraine at News Marathon**\
-`The annual news conference sets the Kremlin’s tone for the next year and highlights President Vladimir V. Putin’s grip over Russia.`\
-https://nytimes.com/2025/12/18/world/europe/putin-russia-ukraine.html
 
