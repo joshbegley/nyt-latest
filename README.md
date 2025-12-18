@@ -1,3 +1,7 @@
+**The Pulse: The youngest baseball braintrust?**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6897150/2025/12/18/nationals-general-manager-31-the-pulse/
+
 **The rise of Quinn Hughes: Hockey nerd, skating savant — and ideal fit for the Wild**\
 `From youth hockey to the U.S. NTDP to the NHL, Hughes' path to the Wild has left teammates and coaches in awe.`\
 https://nytimes.com/athletic/6897134/2025/12/18/quinn-hughes-wild-hockey-nerd/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6894693/2025/12/18/rams-seahawks-playoffs-davante-a
 **Siegel: The Maple Leafs can do better with their hazy policy of injury disclosure**\
 `In Toronto, the policy of injury disclosure seems to be to provide as little information as possible. It doesn't need to be this way.`\
 https://nytimes.com/athletic/6885149/2025/12/18/maple-leafs-injury-disclosure-stolarz-berube/
-
-**Mike Evans has made a career of torching the Panthers — can they slow him Sunday?**\
-`With first place in the NFC South at stake, Carolina faces its longtime nemesis in Evans, who returned last week from a 9-game absence.`\
-https://nytimes.com/athletic/6898002/2025/12/18/panthers-bucs-mike-evans-jaycee-horn/
 
