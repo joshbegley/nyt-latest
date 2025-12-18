@@ -1,3 +1,11 @@
+**Van Persie in confrontation with Feyenoord fans, says they 'have right to be angry'**\
+`“I feel I should stand with the supporters and give them a platform to express their frustration," the former striker told ESPN.`\
+https://nytimes.com/athletic/6899022/2025/12/18/robin-van-persie-feyenoord-fans/
+
+**2026 Vuelta a Espana route: No Madrid and Monaco time-trial start**\
+`The race will take place from August 22 to September 13, featuring seven major summit finishes and 58,000m of climbing.`\
+https://nytimes.com/athletic/6899072/2025/12/18/vuelta-a-espana-route-madrid-monaco/
+
 **The Pulse: The youngest baseball braintrust?**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6897150/2025/12/18/nationals-general-manager-31-the-pulse/
