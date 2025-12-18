@@ -1,3 +1,7 @@
+**Youngest Victim of Bondi Beach Shooting Laid to Rest**\
+`A funeral was held on Thursday for Matilda, 10, the youngest victim of Sunday’s mass shooting at Bondi Beach.`\
+https://nytimes.com/video/world/australia/100000010595508/bondi-shooting-matilda-funeral.html
+
 **They Thought They Had ‘Made It.’ Now They Can’t Afford Food.**\
 `New Yorkers in the so-called “missing middle,” who may make too much for food benefits, say it’s still hard to find enough money for groceries.`\
 https://nytimes.com/2025/12/18/nyregion/nyc-food-budgets.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6891435/2025/12/18/week-16-nfl-playoff-picture-a-te
 **Ecuador's soccer player Pineida shot dead aged 33**\
 `The full-back, who played nine times at international level and most recently in 2021, was killed in Guayaquil.`\
 https://nytimes.com/athletic/6898963/2025/12/18/mario-pineida-ecuador-footballer-death/
-
-**How Should Parents Talk to Their Children About Wealth Inequality?**\
-`Parents sometimes struggle when they try to explain why some people have more or less money than others. What’s your advice?`\
-https://nytimes.com/2025/12/18/learning/how-should-parents-talk-to-their-children-about-wealth-inequality.html
 
