@@ -1,3 +1,35 @@
+**Rams' backfield keeping up its recent pace among 3 ways to beat the Seahawks**\
+`We list three ways LA can earn a win with the NFC"s top seed likely at stake, as well as three ways Seattle can prevent it from happening.`\
+https://nytimes.com/athletic/6895083/2025/12/18/rams-seahawks-thursday-night-football/
+
+**NBA Cup reporters poll: What should change? Is Vegas the right fit? Hang the banner?**\
+`Our NBA writers who were in Vegas tell us what they saw and heard, and what they think the future of the Cup looks like.`\
+https://nytimes.com/athletic/6898056/2025/12/18/nba-cup-future-banner-las-vegas/
+
+**A new Bears stadium site? No one cares when Packers are coming to town**\
+`Kevin Warren deserves penalty flag for ill-timed Indiana leverage play. The focus should be on Soldier Field, where there's a game to play. `\
+https://nytimes.com/athletic/6898610/2025/12/18/bears-stadium-site-kevin-warren-packers/
+
+**Munetaka Murakami could be the next Kyle Schwarber. Will he take a short-term deal to prove it?**\
+`From the clubs' perspective, though, a long-term deal for Murakami might present even more of a challenging bet.`\
+https://nytimes.com/athletic/6898364/2025/12/18/mlb-munetaka-murakami-free-agency-update/
+
+**Yes, the Knicks are good enough to win the whole thing**\
+`Does winning the NBA Cup help the Knicks’ pursuit of their first NBA title since '73? Can they beat the Thunder in the Finals? Yes and yes.`\
+https://nytimes.com/athletic/6898130/2025/12/18/knicks-nba-cup-championship-contenders/
+
+**After a flurry of reliever signings, how will the Cubs pivot to fill out ’pen?**\
+`As manager Craig Counsell likes to say, there will be a pitcher somewhere on a field in Arizona whom no one is talking about in spring. `\
+https://nytimes.com/athletic/6898554/2025/12/18/chicago-cubs-relief-market-pivot/
+
+**In Season 25 as the voice of the Bears, Jeff Joniak is still pinching himself**\
+`When it comes to calling Bears games on the radio, Joniak's urge to be compelling and, more importantly, prepared is a daily quest. `\
+https://nytimes.com/athletic/6897388/2025/12/18/bears-broadcaster-jeff-joniak-espn/
+
+**Ranking potential PWHL expansion markets as 'Takeover Tour' kicks off**\
+`The PWHL will play in 11 additional cities this season ahead of more expansion. Which markets have the best chance of earning a team?`\
+https://nytimes.com/athletic/6897757/2025/12/18/pwhl-expansion-takeover-tour-markets/
+
 **Van Persie in confrontation with Feyenoord fans, says they 'have right to be angry'**\
 `“I feel I should stand with the supporters and give them a platform to express their frustration," the former striker told ESPN.`\
 https://nytimes.com/athletic/6899022/2025/12/18/robin-van-persie-feyenoord-fans/
@@ -5,36 +37,4 @@ https://nytimes.com/athletic/6899022/2025/12/18/robin-van-persie-feyenoord-fans/
 **2026 Vuelta a Espana route: No Madrid and Monaco time-trial start**\
 `The race will take place from August 22 to September 13, featuring seven major summit finishes and 58,000m of climbing.`\
 https://nytimes.com/athletic/6899072/2025/12/18/vuelta-a-espana-route-madrid-monaco/
-
-**The Pulse: The youngest baseball braintrust?**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6897150/2025/12/18/nationals-general-manager-31-the-pulse/
-
-**The rise of Quinn Hughes: Hockey nerd, skating savant — and ideal fit for the Wild**\
-`From youth hockey to the U.S. NTDP to the NHL, Hughes' path to the Wild has left teammates and coaches in awe.`\
-https://nytimes.com/athletic/6897134/2025/12/18/quinn-hughes-wild-hockey-nerd/
-
-**Pope Leo Names Illinois Bishop to Replace Cardinal Dolan in New York**\
-`The appointment of Bishop Ronald A. Hicks is expected to bring a markedly different leadership style to New York’s archdiocese.`\
-https://nytimes.com/2025/12/18/us/bishop-ronald-hicks-cardinal-timothy-dolan-archbishop-new-york.html
-
-**Will OKC's dominance steal NBA trade deadline's thunder?**\
-`The Oklahoma City Thunder’s consistent dominance has rivals contemplating their moves at the trade deadline. `\
-https://nytimes.com/athletic/6897991/2025/12/18/nba-trade-deadline-okc-thunder-success/
-
-**Which team has the ultimate front office in 2025? The fans get the final say**\
-`After polling more than 100 front-office executives from across the NFL, NBA, NHL and MLB this year, the fans finally got their vote.`\
-https://nytimes.com/athletic/6897294/2025/12/18/ultimate-front-office-ranking-2025/
-
-**The ironic case for Tom Brady as my sports media person of the year: Deitsch**\
-`Richard Deitsch started the year predicting Tom Brady wouldn't last. He ends it making the case Brady is the Sports Media Person of 2025.`\
-https://nytimes.com/athletic/6896994/2025/12/18/tom-brady-nfl-fox-tv-media-2025/
-
-**Multiple issues Dallas should address in 2026 NFL Draft: Cowboys mailbag**\
-`The Cowboys have decisions to make on Pickens, Matt Eberflus, Javonte Williams and more before next season.`\
-https://nytimes.com/athletic/6898227/2025/12/18/cowboys-mailbag-pickens-eberflus-nfl-draft/
-
-**Scoring points, creating turnovers are recipe to running the table: Lions mailbag**\
-`A beat-up Lions team — sound familiar? — has to figure out how to win out and get a spot in the NFC playoffs.`\
-https://nytimes.com/athletic/6898446/2025/12/18/lions-mailbag-playoffs-injuries-dan-campbell/
 
