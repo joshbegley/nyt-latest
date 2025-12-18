@@ -1,3 +1,7 @@
+**Plane registered to former NASCAR driver Greg Biffle crashes in North Carolina**\
+`A Cessna plane registered to Biffle's GB Aviation crashed Thursday outside of Charlotte. There's been no confirmation who was on board.`\
+https://nytimes.com/athletic/6899642/2025/12/18/plane-crash-greg-biffle-nascar-driver/
+
 **A Lesson From the Abrego Garcia Saga**\
 `Kilmar Armando Abrego Garcia’s release from immigration detention last week offers a useful model for how Democrats can successfully challenge the Trump administration, the Opinion columnist Jamelle Bouie argues.`\
 https://nytimes.com/video/opinion/100000010594893/a-lesson-from-the-abrego-garcia-saga.html
@@ -27,14 +31,10 @@ https://nytimes.com/athletic/6899696/2025/12/18/colombia-football-violence-medel
 https://nytimes.com/2025/12/18/us/statesville-plane-crash-north-carolina.html
 
 **Trump’s Drone Strikes Are Wrong. Obama’s Were, Too**\
-`Readers respond to a guest essay on why the string of recent boat strikes by the Trump administration are unjustified. `\
+`Readers respond to a guest essay on why the recent boat strikes by the Trump administration are unjustified. `\
 https://nytimes.com/2025/12/18/opinion/trump-obama-drone-strikes-illegal.html
 
 **Trump Administration Tries to Stop Some Immigrants From Driving Trucks**\
 `The transportation department said the new rules were intended to make roads safer, but there’s no data to suggest that immigrants cause more truck accidents.`\
 https://nytimes.com/2025/12/18/business/trump-immigrants-trucks.html
-
-**Once Again, Health Care Proves to Be a Bitter Political Pill for G.O.P.**\
-`The inability to find a credible counter to the Affordable Care Act has long bedeviled Republicans and cost them at the polls. It’s threatening to do so again next year.`\
-https://nytimes.com/2025/12/18/us/politics/health-care-gop.html
 
