@@ -1,3 +1,11 @@
+**Injured James Harden won't play vs. Thunder. Status vs. Lakers Saturday TBD**\
+`Harden practiced Sunday with a sleeve on his left leg, a day after the Clippers had a film session and canceled a practice due to injuries.`\
+https://nytimes.com/athletic/6897950/2025/12/17/james-harden-injury-calf-out-clippers/
+
+**Nats continue youth movement; set to hire Phillies' Ani Kilambi, 31, as GM**\
+`The Nationals will have a 33-year-old manager, 31-year-old GM and 35-year-old president of baseball operations.`\
+https://nytimes.com/athletic/6897955/2025/12/17/nationals-youth-movement-ani-kilambi-gm/
+
 **ICE Must Allow Lawmakers to Inspect Detention Centers, Judge Rules**\
 `Judge Jia M. Cobb wrote that two policies announced in June appeared to unlawfully bar members of Congress from making unannounced visits at immigration detention facilities.`\
 https://nytimes.com/2025/12/17/us/politics/ice-inspections-democrats-congress-lawsuit.html
@@ -25,12 +33,4 @@ https://nytimes.com/2025/12/17/nyregion/sdny-harlem-drug-charges.html
 **Israel Approves $37 Billion Deal to Deliver Gas to Egypt**\
 `Israel’s granting of an export permit is the final step to allow the deal, first announced by energy companies in August, to proceed.`\
 https://nytimes.com/2025/12/17/world/middleeast/israel-gas-deal-egypt.html
-
-**House Passes Bill to Ban Gender Transition Treatments for Minors**\
-`The measure had little chance of consideration in the Senate, where it would need bipartisan support to move, but it reflected the priorities of the Republican majority.`\
-https://nytimes.com/2025/12/17/us/politics/bill-gender-transition-treatments-minors.html
-
-**Newcastle's Livramento a 'worry' for Chelsea match after knee injury**\
-`Livramento, 23, received medical attention on the pitch at St James' Park on Wednesday before being replaced in the 76th minute.`\
-https://nytimes.com/athletic/6897937/2025/12/17/tino-livramento-injury-update-newcastle/
 

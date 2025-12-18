@@ -1,3 +1,15 @@
+**ICE Must Allow Lawmakers to Inspect Detention Centers, Judge Rules**\
+`Judge Jia M. Cobb wrote that two policies announced in June appeared to unlawfully bar members of Congress from making unannounced visits at immigration detention facilities.`\
+https://nytimes.com/2025/12/17/us/politics/ice-inspections-democrats-congress-lawsuit.html
+
+**Venezuelans Express Anger at Trump’s Oil Tanker Blockade**\
+`Venezuelans spoke out after President Trump ordered a “complete blockade” of sanctioned oil tankers going to and from Venezuela. Hours after he announced the blockade, the Venezuelan Navy began escorting tankers sailing around the country’s east coast.`\
+https://nytimes.com/video/world/americas/100000010594584/venezuela-oil-blockade-reactions.html
+
+**Nick Reiner Seen at Los Angeles Gas Station Before Arrest**\
+`Security camera footage from a gas station convenience store in Los Angeles shows Nick Reiner buying a sports drink. About an hour later, Mr. Reiner is arrested across the street. Mr. Reiner was charged with first-degree murder in the stabbing deaths of his parents, Rob and Michele Singer Reiner.`\
+https://nytimes.com/video/us/100000010594811/nick-reiner-seen-at-los-angeles-gas-station-before-arrest.html
+
 **Search for Unidentified Killer at Brown University Stretches to 4th Day**\
 `Officials said that they were working with physical evidence, including DNA, and that they were seeking a second man who appeared to have crossed paths with the possible suspect’.`\
 https://nytimes.com/2025/12/17/us/brown-shooter-suspect-providence.html
