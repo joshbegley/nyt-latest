@@ -1,3 +1,7 @@
+**Trump Signs Executive Order to Reclassify Marijuana, Easing Restrictions on the Drug**\
+`Marijuana’s classification as one of the most dangerous and habit-forming substances has long drawn criticism.`\
+https://nytimes.com/2025/12/18/us/politics/trump-marijuana-reclassify-order.html
+
 **Cowboys DC Matt Eberflus moving up to the coaching booth: 'Going to be a good adjustment'**\
 `Eberflus is not looking for a vote of confidence from owner Jerry Jones. "It's about doing your job," he said Thursday.`\
 https://nytimes.com/athletic/6900016/2025/12/18/cowboys-matt-eberflus-defense-coaching-booth/

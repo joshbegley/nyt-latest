@@ -1,3 +1,7 @@
+**Rams star Puka Nacua apologizes for antisemitic dance on livestream**\
+`Nacua, 24, appeared with streamers Adin Ross and N3on this week in advance of the Rams' Thursday night game against the Seattle Seahawks.`\
+https://nytimes.com/athletic/6900166/2025/12/18/puka-nacua-apology-rams-adin-ross-stream/
+
 **Cowboys DC Matt Eberflus moving up to the coaching booth: 'Going to be a good adjustment'**\
 `Eberflus is not looking for a vote of confidence from owner Jerry Jones. "It's about doing your job," he said Thursday.`\
 https://nytimes.com/athletic/6900016/2025/12/18/cowboys-matt-eberflus-defense-coaching-booth/
@@ -33,8 +37,4 @@ https://nytimes.com/video/opinion/100000010594893/a-lesson-from-the-abrego-garci
 **Putin to Project Unyielding Stance on Ukraine at News Marathon**\
 `The annual news conference sets the Kremlin’s tone for the next year and highlights President Vladimir V. Putin’s grip over Russia.`\
 https://nytimes.com/2025/12/18/world/europe/putin-russia-ukraine.html
-
-**N.Y.C. Subway Crime Is Down, Hochul Says, Rebutting Trump Officials**\
-`Gov. Kathy Hochul said the state would spend another $77 million on police patrols in the subway, acknowledging that felony assaults remain stubbornly high.`\
-https://nytimes.com/2025/12/18/nyregion/nyc-subway-mta-safety-low-crime.html
 
