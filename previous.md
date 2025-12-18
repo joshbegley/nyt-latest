@@ -1,5 +1,9 @@
+**Truth Social Parent to Merge With Nuclear Fusion Firm in $6 Billion Deal**\
+`The deal would be a total transformation for Trump Media & Technology Group, the social media and crypto company in which President Trump holds a large stake.`\
+https://nytimes.com/2025/12/18/business/trump-media-tae-technologies-fusion-power-deal.html
+
 **UWCL draw: Arsenal to face Chelsea if they win play-off game**\
-`The playoffs will take place over February 11-12 and 18-19 before the quarter-finals in late March and early April. `\
+`The play-offs will take place over February 11-12 and 18-19 before the quarter-finals in late March and early April. `\
 https://nytimes.com/athletic/6898939/2025/12/18/womens-champions-league-arsenal-chelsea-man-utd/
 
 **Why the Affordability Crisis Is Likely to Stalk Trump**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6877567/2025/12/18/nfl-color-commentary-rankings-br
 **Play harder? Doc Rivers says Bucks' problems are more a matter of execution**\
 `With Giannis Antetokounmpo out with a calf strain, Milwaukee has to focus on winning the margins, the coach said.`\
 https://nytimes.com/athletic/6895333/2025/12/18/bucks-doc-rivers-execution-giannis/
-
-**Lovable, a Start-Up That Makes Anyone a Coder, Raises $330 Million**\
-`The Swedish company is now valued at $6.6 billion, more than triple its $1.8 billion valuation set by investors in July.`\
-https://nytimes.com/2025/12/18/business/dealbook/lovable-a-start-up-that-makes-anyone-a-coder-raises-330-million.html
 

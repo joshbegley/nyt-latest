@@ -1,3 +1,11 @@
+**Truth Social Parent to Merge With Nuclear Fusion Firm in $6 Billion Deal**\
+`The deal would be a total transformation for Trump Media & Technology Group, the social media and crypto company in which President Trump holds a large stake.`\
+https://nytimes.com/2025/12/18/business/trump-media-tae-technologies-fusion-power-deal.html
+
+**UWCL draw: Arsenal to face Chelsea if they win play-off game**\
+`The play-offs will take place over February 11-12 and 18-19 before the quarter-finals in late March and early April. `\
+https://nytimes.com/athletic/6898939/2025/12/18/womens-champions-league-arsenal-chelsea-man-utd/
+
 **UWCL draw: Arsenal to face Chelsea if they win play-off game**\
 `The playoffs will take place over February 11-12 and 18-19 before the quarter-finals in late March and early April. `\
 https://nytimes.com/athletic/6898939/2025/12/18/womens-champions-league-arsenal-chelsea-man-utd/
