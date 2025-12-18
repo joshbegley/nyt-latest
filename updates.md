@@ -1,3 +1,11 @@
+**Until Saturday: What a high-pressure Playoff**\
+`Until Saturday is The Athletic's free college football newsletter.`\
+https://nytimes.com/athletic/6899917/2025/12/18/college-football-playoff-teams-2025-until-saturday/
+
+**Getting back to Seattle has been long overdue for the NBA**\
+`The Emerald City, through no fault of its own, has been without an NBA team for 17 years. It's long past time to rectify that mistake.`\
+https://nytimes.com/athletic/6897297/2025/12/18/nba-expansion-seattle-adam-silver/
+
 **‘Avatar: Fire and Ash’ Review: By Land, by Water, by Air!**\
 `For the franchise’s third movie, James Cameron throws in new creatures, new landscapes, melodramatic plot lines and big battle sequences. It’s a lot.`\
 https://nytimes.com/2025/12/18/movies/avatar-fire-and-ash-review.html
