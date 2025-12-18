@@ -2,7 +2,7 @@
 `Richardson, who practiced for the first time in more than 2 months, is still on IR, but the team opened his 21-day return-to-play window.`\
 https://nytimes.com/athletic/6899742/2025/12/18/anthony-richardson-practice-return-injury-colts/
 
-**Colombian Cup final ends in chaos with pitch battle and 59 injuries as '120kg of pyrotechnics' seized**\
+**Colombian soccer final ends in chaos with pitch battle and 59 injuries as '120kg of pyrotechnics' seized**\
 `Violence erupted after the match with an on-pitch battle between groups of fans, many of whom were carrying weapons.`\
 https://nytimes.com/athletic/6899696/2025/12/18/colombia-football-violence-medellin/
 
