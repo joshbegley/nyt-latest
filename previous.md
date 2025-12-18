@@ -1,3 +1,7 @@
+**Senate Passes Air Safety Measure, Reversing Provision in Defense Bill**\
+`The legislation restores restrictions on military aircraft flying near busy airports, implemented after a fatal collision near D.C. in January, that had been removed in the defense bill.`\
+https://nytimes.com/2025/12/17/us/politics/senate-defense-bills-air-safety.html
+
 **Twins owner Tom Pohlad talks replacing brother, new minority partners, winning back fans**\
 `Takeaways from Tom Pohlad's first press conference in charge of the Twins and why the changes could be a mixed bag for frustrated fans.`\
 https://nytimes.com/athletic/6897605/2025/12/17/minnesota-twins-tom-pohlad-ownership-developments/
