@@ -1,3 +1,15 @@
+**NCAA 'vehemently opposed' as Kalshi files to offer prediction markets on player transfers**\
+`Kalshi filed the necessary paperwork to begin taking bets this week on who will transfer, but as of Thursday no markets are available.`\
+https://nytimes.com/athletic/6899520/2025/12/18/ncaa-transfer-portal-kalshi-prediction-markets/
+
+**Garnett taking role with Timberwolves, ending long estrangement with former team**\
+`Garnett had a strained relationship with former owner Glen Taylor and his jersey has yet to be retired.`\
+https://nytimes.com/athletic/6899454/2025/12/18/kevin-garnett-timberwolves-off-court-role/
+
+**Fans in Tokyo Visit Twin Pandas Before They Head to China**\
+`Thousands of people have flocked to Ueno Zoo in Tokyo to see two giant pandas before they leave for China. There were fears in Japan that the twins would not be replaced amid political disputes between the countries.`\
+https://nytimes.com/video/world/asia/100000010592901/japan-pandas-china-zoo.html
+
 **Zelensky Makes Appeal to E.U. Leaders for Frozen Russian Funds to Fight War**\
 `President Volodymyr Zelensky said in Brussels, where the leaders had gathered, that without the money, his country would have to reduce its drone production significantly.`\
 https://nytimes.com/2025/12/18/world/europe/ukraine-zelensky-russia-putin.html

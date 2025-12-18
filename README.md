@@ -1,3 +1,15 @@
+**Missouri QB Beau Pribula to enter transfer portal: Sources**\
+`Pribula started 10 games for the Tigers after joining the team last season, having spent his first three years in college at Penn State.`\
+https://nytimes.com/athletic/6899664/2025/12/18/missouri-beau-pribula-enter-transfer-portal/
+
+**Massachusetts Battery Start-Up to List on Stock Exchange**\
+`Factorial, the start-up, said the listing would provide money that would help it bring new solid-state batteries to market as soon as 2027.`\
+https://nytimes.com/2025/12/18/business/energy-environment/factorial-electric-vehicle-battery-spac.html
+
+**U.S. government admits liability in D.C. plane crash that killed figure skaters**\
+`The government said the Army helicopter pilots failed to "maintain vigilance" to see and avoid the American Airlines jet before the crash.`\
+https://nytimes.com/athletic/6899400/2025/12/18/plane-crash-government-liability-figure-skaters-olympics/
+
 **NCAA 'vehemently opposed' as Kalshi files to offer prediction markets on player transfers**\
 `Kalshi filed the necessary paperwork to begin taking bets this week on who will transfer, but as of Thursday no markets are available.`\
 https://nytimes.com/athletic/6899520/2025/12/18/ncaa-transfer-portal-kalshi-prediction-markets/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6899675/2025/12/18/oilers-vs-bruins-stream-how-to-w
 **How to watch Blackhawks vs. Canadiens: Time, TV, streaming**\
 `Find out how to watch the Chicago Blackhawks play the Montreal Canadiens, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6899673/2025/12/18/blackhawks-vs-canadiens-stream-how-to-watch-dec-18/
-
-**How to watch Knicks vs. Pacers: Time, TV, streaming**\
-`Find out how to watch the New York Knicks play the Indiana Pacers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6899671/2025/12/18/knicks-vs-pacers-stream-how-to-watch-dec-18/
-
-**How to watch Maple Leafs vs. Capitals: Time, TV, streaming**\
-`Find out how to watch the Toronto Maple Leafs play the Washington Capitals, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6899667/2025/12/18/maple-leafs-vs-capitals-stream-how-to-watch-dec-18/
-
-**How to watch Wild vs. Blue Jackets: Time, TV, streaming**\
-`Find out how to watch the Minnesota Wild play the Columbus Blue Jackets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6899662/2025/12/18/wild-vs-blue-jackets-stream-how-to-watch-dec-18/
 
