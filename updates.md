@@ -1,3 +1,19 @@
+**How to watch Albany vs. Vanderbilt women's basketball: Time, TV, streaming**\
+`Find out how to watch the Albany Great Danes play the Vanderbilt Commodores, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6900714/2025/12/18/albany-vs-vanderbilt-stream-how-to-watch-dec-18/
+
+**How to watch Wizards vs. Spurs: Time, TV, streaming**\
+`Find out how to watch the Washington Wizards play the San Antonio Spurs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6900711/2025/12/18/wizards-vs-spurs-stream-how-to-watch-dec-18/
+
+**Ohio cites affair with undergrad, public intoxication as causes for firing coach**\
+`Brian Smith's lawyer wrote that Smith did not hide the relationship and that OU has no policy preventing an employee from dating a student.`\
+https://nytimes.com/athletic/6900477/2025/12/18/brian-smith-ohio-university-football-affair/
+
+**How to watch Southern vs. Baylor women's basketball: Time, TV, streaming**\
+`Find out how to watch the Southern Jaguars play the Baylor Bears, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6900675/2025/12/18/southern-vs-baylor-stream-how-to-watch-dec-18/
+
 **We’re in the Age of American Pessimism**\
 `America is in its pessimism era and Trump is playing on it, argues the columnist David Brooks in this episode of “The Conversation.”`\
 https://nytimes.com/video/opinion/100000010593621/were-in-the-age-of-american-pessimism.html
