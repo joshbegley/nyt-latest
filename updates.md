@@ -1,3 +1,15 @@
+**For the First Time, a Former Refugee Will Lead the U.N.’s Refugee Agency**\
+`Barham Salih, who fought against Saddam Hussein’s rule in Iraq and later served as president, was chosen to lead the U.N. High Commission for Refugees.`\
+https://nytimes.com/2025/12/18/world/middleeast/un-refugee-agency-barham-salih-iraq.html
+
+**Chiefs moving to Kansas? State 'aggressively pursuing' team**\
+`The Kansas City Chiefs appear to be moving closer to leaving Arrowhead Stadium and crossing state lines to Kansas.`\
+https://nytimes.com/athletic/6900960/2025/12/18/chiefs-moving-to-kansas-arrowhead-new-stadium/
+
+**The U.S. Moves to End Gender-Related Care for Minors**\
+`Also, authorities search for a person of interest in the Brown shooting. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2025/12/18/briefing/trump-gender-related-treatments-brown-shooting-investigation.html
+
 **Trump Relies on Distortions to Support His Pressure Campaign on Venezuela**\
 `The president has a long record of making false or misleading statements. But the sheer density of them in his administration’s boat attacks and Venezuela pressure campaign is exceptional.`\
 https://nytimes.com/2025/12/18/us/trump-venezuela-false-claims-misinformation.html
