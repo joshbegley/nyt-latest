@@ -1,3 +1,11 @@
+**How to watch South Carolina vs. South Florida women's basketball: Time, TV, streaming**\
+`Find out how to watch the South Carolina Gamecocks play the South Florida Bulls, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6899616/2025/12/18/south-carolina-vs-south-florida-stream-how-to-watch-dec-18/
+
+**A Hot Pink Carousel Touches Down in Switzerland**\
+`Plus: Norwegian ski sweaters, an antique-filled hotel in Jakarta and more recommendations from T Magazine.`\
+https://nytimes.com/2025/12/18/t-magazine/carsten-holler-carousel-st-moritz.html
+
 **How to watch Norfolk State vs. Ohio State women's basketball: Time, TV, streaming**\
 `Find out how to watch the Norfolk State Spartans play the Ohio State Buckeyes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6899614/2025/12/18/norfolk-state-vs-ohio-state-stream-how-to-watch-dec-18/

@@ -1,3 +1,11 @@
+**How to watch South Carolina vs. South Florida women's basketball: Time, TV, streaming**\
+`Find out how to watch the South Carolina Gamecocks play the South Florida Bulls, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6899616/2025/12/18/south-carolina-vs-south-florida-stream-how-to-watch-dec-18/
+
+**A Hot Pink Carousel Touches Down in Switzerland**\
+`Plus: Norwegian ski sweaters, an antique-filled hotel in Jakarta and more recommendations from T Magazine.`\
+https://nytimes.com/2025/12/18/t-magazine/carsten-holler-carousel-st-moritz.html
+
 **How to watch Norfolk State vs. Ohio State women's basketball: Time, TV, streaming**\
 `Find out how to watch the Norfolk State Spartans play the Ohio State Buckeyes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6899614/2025/12/18/norfolk-state-vs-ohio-state-stream-how-to-watch-dec-18/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/18/arts/rob-reiner-north-movie.html
 **The Meaning of Luigi Mangione’s New Suits**\
 `In court before his trial for killing the chief executive of UnitedHealthcare, Mr. Mangione tried out a different look.`\
 https://nytimes.com/2025/12/18/style/luigi-mangione-court-hearings-suits.html
-
-**Mamdani Names Budget Director as He Prepares to Enact Costly Agenda**\
-`Mayor-Elect Zohran Mamdani chose Sherif Soliman, a veteran of municipal government and the chief financial officer of the City University of New York, to lead the Office of Management and Budget.`\
-https://nytimes.com/2025/12/18/nyregion/zohran-mamdani-sherif-soliman-omb.html
-
-**The Bounce: Is the NBA finally heading to Seattle and Las Vegas?**\
-`Zach Harper catches you up on the latest NBA news in our newsletter.`\
-https://nytimes.com/athletic/6899515/2025/12/18/the-bounce-nba-expansion-seattle-las-egas-dillon-brooks/
 

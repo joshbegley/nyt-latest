@@ -1,3 +1,11 @@
+**How to watch Penguins vs. Senators: Time, TV, streaming**\
+`Find out how to watch the Pittsburgh Penguins play the Ottawa Senators, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6899654/2025/12/18/penguins-vs-senators-stream-how-to-watch-dec-18/
+
+**The Windup: More free-agency signings, and a 31-year-old GM?!**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6899617/2025/12/18/free-agency-signings-31-year-old-gm-the-windup/
+
 **How to watch South Carolina vs. South Florida women's basketball: Time, TV, streaming**\
 `Find out how to watch the South Carolina Gamecocks play the South Florida Bulls, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6899616/2025/12/18/south-carolina-vs-south-florida-stream-how-to-watch-dec-18/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/18/us/politics/dnc-2024-autopsy-democrats-ken-martin
 **Sticky Coconut Chicken and Rice, One-Pot and Pretty Perfect**\
 `Plump pieces of chicken thigh cook on top of gingery coconut rice studded with cashews, while cilantro and hot sauce add freshness and heat.`\
 https://nytimes.com/2025/12/18/dining/sticky-coconut-chicken-and-rice-one-pot-and-pretty-perfect.html
-
-**The Flop That Proved Rob Reiner Could Take Criticism With Humor**\
-`Roger Ebert said he “hated, hated, hated, hated, hated” Reiner’s 1994 film “North.” The director took it in stride.`\
-https://nytimes.com/2025/12/18/arts/rob-reiner-north-movie.html
-
-**The Meaning of Luigi Mangione’s New Suits**\
-`In court before his trial for killing the chief executive of UnitedHealthcare, Mr. Mangione tried out a different look.`\
-https://nytimes.com/2025/12/18/style/luigi-mangione-court-hearings-suits.html
 
