@@ -1,3 +1,7 @@
+**Must-See Moments From the N.B.A.**\
+`On Wednesday, the stumbling Cleveland Cavaliers fell to the Chicago Bulls as the Bulls’ Josh Giddey recorded a triple-double, and the Memphis Grizzlies won on the road against the Minnesota Timberwolves.`\
+https://nytimes.com/video/sports/basketball/100000010595471/must-see-moments-from-the-nba.html
+
 **After a season on the margins, Savinho offers a glimpse of his potential**\
 `The Brazilian winger has found minutes hard to come by, but he impressed in scoring against Brentford in the League Cup `\
 https://nytimes.com/athletic/6898826/2025/12/18/after-a-season-on-the-margins-savinho-offers-glimpse-of-his-potential/
