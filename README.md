@@ -1,3 +1,35 @@
+**How Saka creates crossing angles for himself**\
+`In one-versus-one situations — or even one-v-two — Bukayo Saka's ability is unquestionable. This is how he finds space`\
+https://nytimes.com/athletic/6895992/2025/12/18/bukayo-saka-arsenal-crossing-space/
+
+**The 111-year-old stadium being rebuilt using decommissioned planes**\
+`The designers of Strasbourg's new stadium hope their outside-the-box thinking will inspire other redevelopment projects`\
+https://nytimes.com/athletic/6875333/2025/12/18/strasbourg-stadium-decomissioned-planes/
+
+**Birthrates Are Falling, but Don’t Blame Dogs in Strollers**\
+`New research suggests that having a pet can actually make people more likely to become parents.`\
+https://nytimes.com/2025/12/18/world/birthrates-falling-dont-blame-dogs.html
+
+**At Tokyo Zoo, Visitors Fear a Spat With China Will Cost Japan Its Pandas**\
+`Pandas have stood for friendship between China and Japan since 1972. But the last two are about to go, and a dispute over Taiwan could get in the way of sending more.`\
+https://nytimes.com/2025/12/18/world/asia/japan-china-pandas.html
+
+**E.U. Leaders Debate Plan for Ukraine Financed by Frozen Russian Assets**\
+`The European Council convenes on Thursday, and at stake is a contentious deal to back Ukraine and its war effort in 2026 and 2027.`\
+https://nytimes.com/2025/12/18/world/europe/russia-eu-ukraine-frozen-assets.html
+
+**Connections: Sports Edition Coach: Hints for Dec. 18, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6898482/2025/12/18/connections-sports-edition-hints-for-dec-18-2025/
+
+**China Is Feeling Strong and Senses an American Retreat**\
+`Beijing is using its messaging tools to show off its prowess at building infrastructure and project power, taking advantage of what it says is “deep anxiety” in U.S. policies.`\
+https://nytimes.com/2025/12/18/business/trump-xi-us-china.html
+
+**Corrections: Dec. 18, 2025**\
+`Corrections that appeared in print on Thursday, Dec. 18, 2025.`\
+https://nytimes.com/2025/12/18/pageoneplus/corrections-dec-18-2025.html
+
 **Quote of the Day: A Coach Pokes and Prods at Every Weakness to Hone Schwarber’s Bat**\
 `Quotation of the Day for Thursday, December 18, 2025.`\
 https://nytimes.com/2025/12/17/pageoneplus/quote-of-the-day-a-coach-pokes-and-prods-at-every-weakness-to-hone-schwarbers-bat.html
@@ -5,36 +37,4 @@ https://nytimes.com/2025/12/17/pageoneplus/quote-of-the-day-a-coach-pokes-and-pr
 **U.S. Military Announces 4 Killed in 26th Boat Strike**\
 `The attack on Wednesday brings the total number killed to at least 99 since the Trump administration began bombing boats suspected of ferrying drugs in the Caribbean Sea and the Pacific Ocean.`\
 https://nytimes.com/2025/12/17/us/politics/military-4-dead-boat-strike-pacific-ocean.html
-
-**Doug Gottlieb pausing radio show to focus on coaching duties**\
-`Gottlieb went 4-28 in his first season but has Green Bay at 6-7 this year.`\
-https://nytimes.com/athletic/6898654/2025/12/17/doug-gottlieb-pausing-radio-show/
-
-**Fact-Checking Trump’s Prime-Time Address on the Economy**\
-`The president cited misleading statistics to insist, wrongly, that prices were coming down.`\
-https://nytimes.com/2025/12/17/us/politics/fact-checking-trumps-economy-address.html
-
-**Anthony Joshua, Jake Paul double down on trash talk ahead of fight**\
-`Joshua said he's "carrying boxing" by taking on Paul, while his opponent claims people who care about the sport should "want me to win."`\
-https://nytimes.com/athletic/6898466/2025/12/17/anthony-joshua-jake-paul-fight/
-
-**No fans allowed at Colorado basketball home game because of harsh weather**\
-`The Buffaloes played Portland State without fans in attendance because of potentially dangerous road conditions.`\
-https://nytimes.com/athletic/6898513/2025/12/17/colorado-buffaloes-basketball-no-fans-allowed-weather/
-
-**Australia to Crack Down on Hate Speech After Bondi Attack**\
-`New legislation will be drafted to target those who promote violence and to increase penalties for hate speech, the prime minister said Thursday.`\
-https://nytimes.com/2025/12/17/us/australia-hate-speech-legislation.html
-
-**Full Transcript of President Trump’s Speech on the Economy**\
-`The president sharply attacked his predecessor while insisting that his own record contained nothing but victories.`\
-https://nytimes.com/2025/12/17/us/politics/trump-speech-transcript-economy.html
-
-**In Combative Speech, Trump Tries to Deflect Blame for Economic Concerns**\
-`Mixing misleading claims with repeated attacks, President Trump promised relief for Americans but said he needed time to deliver it.`\
-https://nytimes.com/2025/12/17/us/trump-tv-white-house-speech-economy.html
-
-**Peter Arnett, Pulitzer-Winning War Correspondent, Dies at 91**\
-`He won the prestigious award for his daring coverage of the Vietnam War for The Associated Press, and went on to cover conflicts for CNN for nearly two decades.`\
-https://nytimes.com/2025/12/17/world/peter-arnett-dead.html
 

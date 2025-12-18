@@ -1,3 +1,11 @@
+**Quote of the Day: A Coach Pokes and Prods at Every Weakness to Hone Schwarber’s Bat**\
+`Quotation of the Day for Thursday, December 18, 2025.`\
+https://nytimes.com/2025/12/17/pageoneplus/quote-of-the-day-a-coach-pokes-and-prods-at-every-weakness-to-hone-schwarbers-bat.html
+
+**U.S. Military Announces 4 Killed in 26th Boat Strike**\
+`The attack on Wednesday brings the total number killed to at least 99 since the Trump administration began bombing boats suspected of ferrying drugs in the Caribbean Sea and the Pacific Ocean.`\
+https://nytimes.com/2025/12/17/us/politics/military-4-dead-boat-strike-pacific-ocean.html
+
 **Doug Gottlieb pausing radio show to focus on coaching duties**\
 `Gottlieb went 4-28 in his first season but has Green Bay at 6-7 this year.`\
 https://nytimes.com/athletic/6898654/2025/12/17/doug-gottlieb-pausing-radio-show/
