@@ -1,3 +1,11 @@
+**How Will Trump’s Policies Affect You? We Answer Your Questions.**\
+`Hard to follow the dizzying array of developments out of Washington over the past year? Here are our answers to your pressing questions.`\
+https://nytimes.com/interactive/2025/12/18/us/trump-policy-impact-tariffs-healthcare-immigration-affordability.html
+
+**McIlroy has done the impossible – make the British public fall in love with golf**\
+`BBC Sports Personality of the Year may not add much to McIlroy's CV, but it proves that golf is finally cutting through`\
+https://nytimes.com/athletic/6899328/2025/12/18/rory-mcilroy-bbc-sports-personality-golf/
+
 **McIlroy has done the impossible - make the great British public fall in love with golf**\
 `BBC Sports Personality of the Year may not add much to McIlroy's CV, but it proves that golf is finally cutting through`\
 https://nytimes.com/athletic/6899328/2025/12/18/rory-mcilroy-bbc-sports-personality-golf/

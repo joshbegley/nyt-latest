@@ -6,8 +6,8 @@ https://nytimes.com/interactive/2025/12/18/us/trump-policy-impact-tariffs-health
 `BBC Sports Personality of the Year may not add much to McIlroy's CV, but it proves that golf is finally cutting through`\
 https://nytimes.com/athletic/6899328/2025/12/18/rory-mcilroy-bbc-sports-personality-golf/
 
-**Saban compares JMU’s playoff spot to minor-league team reaching  World Series**\
-`Saban sparked debate on "The Pat McAfee Show" by comparing JMU’s playoff inclusion to a minor-league team reaching the World Series.`\
+**Saban compares JMU’s playoff spot to minor-league team reaching World Series**\
+`The five highest-ranked conference champions make the field even if they don't finish in the top 12 of the rankings.`\
 https://nytimes.com/athletic/6900603/2025/12/18/nick-saban-jmu-college-football-playoff-mcafee/
 
 **Warriors' Al Horford says he's likely out another week with sciatica**\
