@@ -1,3 +1,27 @@
+**Seahawks vs. Rams and four more Week 16 games that will have huge impact on playoff races**\
+`The Week 16 slate is loaded with high-stakes games, including a Bears-Packers game that will likely determine the winner of the NFC North.`\
+https://nytimes.com/athletic/6894180/2025/12/18/nfl-playoff-races-week-16-rams-seahawks-bears-packers/
+
+**The birth of MLB free agency set the table for baseball's upcoming labor dispute**\
+`Fifty years after its inception, free agency isn't going anywhere. But the ability for MLB teams to spend unlimited amounts could be.`\
+https://nytimes.com/athletic/6894858/2025/12/18/mlb-free-agency-history-strike-labor-dispute/
+
+**QB Tiers revisited: Patrick Mahomes still unanimous No. 1? How high might Drake Maye climb?**\
+`Mahomes' disappointing season could open the door to a Tier 2 vote (or a few). Who else has over or underperformed expectations in 2025?`\
+https://nytimes.com/athletic/6897097/2025/12/18/quarterback-tiers-2025-mahomes-burrow-lamar-jackson/
+
+**An early look at the Jets’ coming offseason rebuild: Free agency, NFL Draft, QB options**\
+`It will be a crucial offseason for Aaron Glenn and GM Darren Mougey.`\
+https://nytimes.com/athletic/6897958/2025/12/18/new-york-jets-offseason-draft-free-agency-qb/
+
+**The New York Times International Edition in Print for Friday, Dec. 19, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/12/18/todays-new-york-times-international-edition
+
+**From Nuggets to Knicks to Pels, how good is your team at shooting?**\
+`More than ever, today's NBA is not simply about makes.`\
+https://nytimes.com/athletic/6894551/2025/12/18/best-nba-shooting-teams-rankings-nuggets-thunder-knicks/
+
 **‘Miraculous,’ ‘Amazing,’ ‘Disappointing’: 14 Voters on Their Experiences with GLP-1 Drugs and Health in America**\
 `The participants discuss their experiences with taking GLP 1s for weight loss and diabetes.`\
 https://nytimes.com/interactive/2025/12/18/opinion/focus-group-former-glp1.html
@@ -13,28 +37,4 @@ https://nytimes.com/2025/12/18/podcasts/rob-reiner-made-your-favorite-movie.html
 **Outside Dallas, a Young Family Just Wanted Some Space. Here’s Where They Found It.**\
 `After a long stint in Europe, a Texas couple brought their two young daughters home and searched for a house in a good school district with room for grandparents and friends.`\
 https://nytimes.com/interactive/2025/12/18/realestate/dallas-fort-worth-texas-homes-sale.html
-
-**Nigeria Closes Factories Linked to U.S. Auto Industry Amid Poisoning Inquiry**\
-`Carmakers have known for decades that battery recycling was poisoning people abroad. Nigeria’s crackdown is an effort to catalog the damage.`\
-https://nytimes.com/2025/12/18/world/africa/nigeria-lead-factory-closings.html
-
-**Who Can Solve Iran’s Many Problems? Not I, Says the President.**\
-`Despite sky-high inflation, water and energy cuts and prospects for a deal with the U. S. dimming, President Masoud Pezeshkian has apparently thrown up his hands.`\
-https://nytimes.com/2025/12/18/world/middleeast/iran-pezeshkian-domestic-foreign-crises.html
-
-**For Families Fighting Addiction, Reiner Tragedy Strikes a Nerve**\
-`Nick Reiner, charged with murdering his parents, Rob and Michele Singer Reiner, spent much of his life battling drug addiction, an affliction that millions of Americans face.`\
-https://nytimes.com/2025/12/18/us/rob-reiner-murder-addiction.html
-
-**How ‘Affordability’ Became a New Magic Word for Politicians**\
-`A rallying cry for Democrats taps into frustration over the inaccessibility of a modestly nice American existence — even for those with a decent income.`\
-https://nytimes.com/2025/12/18/magazine/affordability-economy.html
-
-**David Brooks, E.J. Dionne and Robert Siegel Take Stock of 2025**\
-`Trump is giving himself an A-plus-plus-plus, but the rest of America is anxious.`\
-https://nytimes.com/2025/12/18/opinion/the-conversation-trump-presidency-anxiety.html
-
-**36 Hours in San Luis Obispo County**\
-`Wineries and boutique hotels have sprouted along the backroads and once-sleepy main streets of this Central Coast county.`\
-https://nytimes.com/interactive/2025/12/18/travel/things-to-do-san-luis-obispo.html
 
