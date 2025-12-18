@@ -1,3 +1,11 @@
+**Is It About the Oil?**\
+`We look at what President Trump is trying to achieve in Venezuela.`\
+https://nytimes.com/2025/12/18/briefing/is-it-about-the-oil.html
+
+**BBC Sports Personality of the Year odds, predictions: Rory McIlroy, Lando Norris favoured**\
+`Who is the favourite to win Sports Personality of the Year this year? And is there likely to be an upset?`\
+https://nytimes.com/athletic/6895907/2025/12/18/bbc-sports-personality-of-the-year-rory-mcilroy/
+
 **How to watch the Final Four of this year's surprising NCAA women's volleyball tournament**\
 `Madness isn't just for March. The women's volleyball tournament has delivered on the chaos leading into the Final Four. `\
 https://nytimes.com/athletic/6897672/2025/12/18/ncaa-womens-volleyball-2025-final-four-teams-tv/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6897664/2025/12/18/cfp-quarterback-rankings-fernand
 **Australia have outclassed England. This was the day the music died for this team and regime**\
 `The hosts enjoyed another dominant day in Adelaide to leave Ben Stokes physically 'broken' and his side on the brink of a series defeat`\
 https://nytimes.com/athletic/6898904/2025/12/18/england-australia-outclassed-stokes-ashes/
-
-**Cooper Flagg broke LeBron James' 22-year-old record. How do their rookie seasons compare?**\
-`It's too early to determine Flagg's long-term status, but his rookie numbers are comparable to those LeBron James had for his rookie season.`\
-https://nytimes.com/athletic/6894134/2025/12/18/cooper-flagg-lebron-james-record-nba-mavericks-lakers/
-
-**49ers mailbag: Do 49ers teammates think Brandon Aiyuk quit on the team?**\
-`Also among this week's questions: Why has Bryce Huff's production dipped, and can the Niners' run defense be fixed by returning players?`\
-https://nytimes.com/athletic/6898119/2025/12/18/brandon-aiyuk-49ers-zach-wilson-mailbag/
 
