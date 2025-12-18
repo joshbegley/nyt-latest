@@ -1,3 +1,7 @@
+**Australia Mourns the Youngest Victim of the Bondi Beach Shooting**\
+`Sydney’s devastated Jewish community gathered for the funeral of “Matilda Bee,” an ebullient, smiling 10-year-old girl.`\
+https://nytimes.com/2025/12/18/world/asia/australia-matilda-funeral-bondi-shooting.html
+
 **The mystery of the 'Hercules gene' - the blessing and curse of sports stars**\
 `Having extra muscle mass sounds like a benefit for athletes, but the reality is far more complicated`\
 https://nytimes.com/athletic/6856557/2025/12/18/myostatin-mutation-harry-aikines-aryeetey/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6898376/2025/12/18/newcastle-howe-carabao-redemptio
 **Callum Hudson-Odoi is turning his season around at Forest - can he go up another level?**\
 `Against Tottenham, it felt like it was Hudson-Odoi emphatically back at his best. He's showing again why he is Forest's leading wide man`\
 https://nytimes.com/athletic/6896611/2025/12/18/callum-hudson-odoi-forest-tottenham/
-
-**What next for Joel Piroe?**\
-`The Dutchman was one of the stars of the promotion-winning campaign but now finds himself increasingly marginalised under Daniel Farke`\
-https://nytimes.com/athletic/6896558/2025/12/18/leeds-piroe-farke-premier-league/
 

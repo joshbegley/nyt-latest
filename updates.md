@@ -1,3 +1,7 @@
+**The mystery of the 'Hercules gene' - the blessing and curse of sports stars**\
+`Having extra muscle mass sounds like a benefit for athletes, but the reality is far more complicated`\
+https://nytimes.com/athletic/6856557/2025/12/18/myostatin-mutation-harry-aikines-aryeetey/
+
 **Trump Boasts About Economy in Prime Time Speech**\
 `The president gave a televised speech that featured repeated criticism of Democrats and his predecessor, Joseph R. Biden Jr., along with boasts about gains that many Americans have said they are not experiencing.`\
 https://nytimes.com/video/us/politics/100000010595325/trump-economy-speech-white-house.html
