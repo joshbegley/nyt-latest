@@ -1,3 +1,7 @@
+**Peter Arnett, Pulitzer-Winning War Correspondent, Dies at 91**\
+`He won the prestigious award for his daring coverage of the Vietnam War for The Associated Press, and went on to cover conflicts for CNN for nearly two decades.`\
+https://nytimes.com/2025/12/17/world/peter-arnett-dead.html
+
 **Canada beats Sweden in first World Juniors pre-tournament game**\
 `Canada still has a few roster cuts to make before the tournament begins on Boxing Day.`\
 https://nytimes.com/athletic/6898308/2025/12/17/canada-world-juniors-roster-lineup-sweden/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/12/17/us/trump-news/government-liability-air-colli
 **Fani Willis Defends Failed Election Interference Case in Heated Hearing**\
 `The Atlanta-area district attorney called President Trump and his allies “criminals” while being questioned by a Georgia Senate committee on Wednesday.`\
 https://nytimes.com/video/us/politics/100000010594014/willis-georgia-investigative-hearing.html
-
-**Lions told to stop booger-flicking celebrations, St. Brown says**\
-`Amon-Ra St. Brown and his teammates apparently went a bit too far with their celebrations against the Rams last Sunday.`\
-https://nytimes.com/athletic/6898028/2025/12/17/detroit-lions-stop-booger-flicking-celebrations/
 
