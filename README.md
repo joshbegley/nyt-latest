@@ -1,4 +1,8 @@
-**Saban compares JMU’s playoff spot to a minor-league team reaching the World Series**\
+**McIlroy has done the impossible - make the great British public fall in love with golf**\
+`BBC Sports Personality of the Year may not add much to McIlroy's CV, but it proves that golf is finally cutting through`\
+https://nytimes.com/athletic/6899328/2025/12/18/rory-mcilroy-bbc-sports-personality-golf/
+
+**Saban compares JMU’s playoff spot to minor-league team reaching  World Series**\
 `Saban sparked debate on "The Pat McAfee Show" by comparing JMU’s playoff inclusion to a minor-league team reaching the World Series.`\
 https://nytimes.com/athletic/6900603/2025/12/18/nick-saban-jmu-college-football-playoff-mcafee/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/18/business/john-e-olson-dead.html
 **The German Chancellor Betting on America**\
 `Friedrich Merz believes the world needs a stronger Germany. He is still navigating how to do it.`\
 https://nytimes.com/2025/12/18/world/german-chancellor-america-ukraine-europe.html
-
-**From Bravo to Cable News, Garcia Is Pushing Republicans on Epstein**\
-`The top Democrat on the Oversight Committee, Representative Robert Garcia has brought aggressive tactics and reality-show flair to investigating Trump.`\
-https://nytimes.com/2025/12/18/us/politics/robert-garcia-epstein.html
 
