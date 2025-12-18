@@ -1,3 +1,23 @@
+**McIlroy has done the impossible - make the great British public fall in love with golf**\
+`BBC Sports Personality of the Year may not add much to McIlroy's CV, but it proves that golf is finally cutting through`\
+https://nytimes.com/athletic/6899328/2025/12/18/rory-mcilroy-bbc-sports-personality-golf/
+
+**Saban compares JMU’s playoff spot to minor-league team reaching  World Series**\
+`Saban sparked debate on "The Pat McAfee Show" by comparing JMU’s playoff inclusion to a minor-league team reaching the World Series.`\
+https://nytimes.com/athletic/6900603/2025/12/18/nick-saban-jmu-college-football-playoff-mcafee/
+
+**Warriors' Al Horford says he's likely out another week with sciatica**\
+`The 39-year-old veteran has played in just 13 games this season after signing with the Warriors earlier this year.`\
+https://nytimes.com/athletic/6900696/2025/12/18/warriors-al-horford-sciatica/
+
+**Texas names Muschamp new defensive coordinator after firing Kwiatkowski**\
+`Will Muschamp is back running an SEC defense, and it will be back at Texas, where his head coaching career was originally supposed to begin.`\
+https://nytimes.com/athletic/6900841/2025/12/18/texas-will-mushchamp-defensive-coordinator/
+
+**Who is Adin Ross, the streamer who hosted Puka Nacua?**\
+`Along with Puka Nacua, Ross has mingled with athletes Bronny James, Antonio Brown and international soccer star Neymar.`\
+https://nytimes.com/athletic/6900434/2025/12/18/adin-ross-puka-nacua-livestream/
+
 **Milan-Como game in Perth set to go ahead - Serie A president**\
 `Serie A's concerns have been allayed following meetings with FIFA President Gianni Infantino and referees' chief Pierluigi Collina.`\
 https://nytimes.com/athletic/6900802/2025/12/18/milan-como-serie-a-perth-australia/

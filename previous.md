@@ -1,3 +1,23 @@
+**McIlroy has done the impossible - make the great British public fall in love with golf**\
+`BBC Sports Personality of the Year may not add much to McIlroy's CV, but it proves that golf is finally cutting through`\
+https://nytimes.com/athletic/6899328/2025/12/18/rory-mcilroy-bbc-sports-personality-golf/
+
+**Saban compares JMU’s playoff spot to minor-league team reaching  World Series**\
+`Saban sparked debate on "The Pat McAfee Show" by comparing JMU’s playoff inclusion to a minor-league team reaching the World Series.`\
+https://nytimes.com/athletic/6900603/2025/12/18/nick-saban-jmu-college-football-playoff-mcafee/
+
+**Warriors' Al Horford says he's likely out another week with sciatica**\
+`The 39-year-old veteran has played in just 13 games this season after signing with the Warriors earlier this year.`\
+https://nytimes.com/athletic/6900696/2025/12/18/warriors-al-horford-sciatica/
+
+**Texas names Muschamp new defensive coordinator after firing Kwiatkowski**\
+`Will Muschamp is back running an SEC defense, and it will be back at Texas, where his head coaching career was originally supposed to begin.`\
+https://nytimes.com/athletic/6900841/2025/12/18/texas-will-mushchamp-defensive-coordinator/
+
+**Who is Adin Ross, the streamer who hosted Puka Nacua?**\
+`Along with Puka Nacua, Ross has mingled with athletes Bronny James, Antonio Brown and international soccer star Neymar.`\
+https://nytimes.com/athletic/6900434/2025/12/18/adin-ross-puka-nacua-livestream/
+
 **Milan-Como game in Perth set to go ahead - Serie A president**\
 `Serie A's concerns have been allayed following meetings with FIFA President Gianni Infantino and referees' chief Pierluigi Collina.`\
 https://nytimes.com/athletic/6900802/2025/12/18/milan-como-serie-a-perth-australia/
@@ -17,24 +37,4 @@ https://nytimes.com/2025/12/18/business/john-e-olson-dead.html
 **The German Chancellor Betting on America**\
 `Friedrich Merz believes the world needs a stronger Germany. He is still navigating how to do it.`\
 https://nytimes.com/2025/12/18/world/german-chancellor-america-ukraine-europe.html
-
-**From Bravo to Cable News, Garcia Is Pushing Republicans on Epstein**\
-`The top Democrat on the Oversight Committee, Representative Robert Garcia has brought aggressive tactics and reality-show flair to investigating Trump.`\
-https://nytimes.com/2025/12/18/us/politics/robert-garcia-epstein.html
-
-**The Second Annual Where to Eaties**\
-`Our off-the-rails restaurant awards ceremony is back.`\
-https://nytimes.com/2025/12/18/dining/the-second-annual-where-to-eaties.html
-
-**4 Takeaways From Trial of Judge Accused of Aiding Undocumented Immigrant**\
-`The Milwaukee judge was charged with obstructing federal immigration agents, who were trying to arrest a man who had appeared before her on a battery charge.`\
-https://nytimes.com/2025/12/18/us/judge-hannah-dugan-trial-takeaways.html
-
-**Trump Pressed Georgia Speaker to Overturn His 2020 Election Loss**\
-`In newly obtained audio, President Trump reiterated his claims that he had won Georgia in 2020 in a phone call with the state’s House Speaker, David Ralston. Mr. Trump lost Georgia by more than 11,000 votes that year.`\
-https://nytimes.com/video/us/politics/100000010596124/trump-ralston-georgia-election.html
-
-**NWSL Players Association opposes new star player rule change proposal**\
-`Any resolution from the proposed rule change would not guarantee Trinity Rodman stays in the league, nor does it solve the open grievance. `\
-https://nytimes.com/athletic/6900594/2025/12/18/nwsl-players-association-opposes-new-star-player-rule-change-proposal/
 
