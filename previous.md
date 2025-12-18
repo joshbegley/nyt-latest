@@ -1,5 +1,9 @@
+**‘Avatar: Fire and Ash’ Review: By Land, by Water, by Air!**\
+`For the franchise’s third movie, James Cameron throws in new creatures, new landscapes, melodramatic plot lines and big battle sequences. It’s a lot.`\
+https://nytimes.com/2025/12/18/movies/avatar-fire-and-ash-review.html
+
 **World Series-winning Dodgers received $484,747 per full postseason share in 2025**\
-`The Dodgers issued fewer total shares for their recent World Series victory than what they granted in 2025.`\
+`The Dodgers issued fewer total shares for their recent World Series victory than what they granted in 2024.`\
 https://nytimes.com/athletic/6899797/2025/12/18/dodgers-world-series-posteason-share-amounts/
 
 **Democratic Lawmakers Request Review of Commerce Secretary’s Possible Conflicts**\
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6896755/2025/12/18/pep-guardiola-maresca-manchester
 **250 Years of Jane Austen, in Objects**\
 `To capture Jane Austen’s brief life and enormous impact, editors at The New York Times Book Review assembled a sampling of the wealth, wonder and weirdness she has brought to our lives.`\
 https://nytimes.com/video/books/100000010560621/250-years-of-jane-austen-in-objects.html
-
-**French Doctor Sentenced to Life for Fatally Poisoning 12 People**\
-`Frédéric Péchier, an anesthesiologist, was found guilty of poisoning 30 patients, of whom 12 died.`\
-https://nytimes.com/2025/12/18/world/europe/france-anesthesiologist-fatal-poisoning.html
 

@@ -1,3 +1,11 @@
+**‘Avatar: Fire and Ash’ Review: By Land, by Water, by Air!**\
+`For the franchise’s third movie, James Cameron throws in new creatures, new landscapes, melodramatic plot lines and big battle sequences. It’s a lot.`\
+https://nytimes.com/2025/12/18/movies/avatar-fire-and-ash-review.html
+
+**World Series-winning Dodgers received $484,747 per full postseason share in 2025**\
+`The Dodgers issued fewer total shares for their recent World Series victory than what they granted in 2024.`\
+https://nytimes.com/athletic/6899797/2025/12/18/dodgers-world-series-posteason-share-amounts/
+
 **World Series-winning Dodgers received $484,747 per full postseason share in 2025**\
 `The Dodgers issued fewer total shares for their recent World Series victory than what they granted in 2025.`\
 https://nytimes.com/athletic/6899797/2025/12/18/dodgers-world-series-posteason-share-amounts/
