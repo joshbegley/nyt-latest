@@ -1,3 +1,19 @@
+**From Fernandes to Foden and Rogers to Rice, there’s a new FPL midfield template**\
+`Four of the five most transferred-in FPL players this gameweek are midfielders. So, who should be your priority purchases?`\
+https://nytimes.com/athletic/6896077/2025/12/18/fantasy-premier-league-fpl-tips-gameweek-17-foden-fernandes/
+
+**Newcastle have taken a step towards derby-day redemption — and Wembley**\
+`Eddie Howe's side needed to win after Sunday's ignominy on Wearside, and they did. They really had no alternative.`\
+https://nytimes.com/athletic/6898376/2025/12/18/newcastle-howe-carabao-redemption-sunderland/
+
+**Callum Hudson-Odoi is turning his season around at Forest - can he go up another level?**\
+`Against Tottenham, it felt like it was Hudson-Odoi emphatically back at his best. He's showing again why he is Forest's leading wide man`\
+https://nytimes.com/athletic/6896611/2025/12/18/callum-hudson-odoi-forest-tottenham/
+
+**What next for Joel Piroe?**\
+`The Dutchman was one of the stars of the promotion-winning campaign but now finds himself increasingly marginalised under Daniel Farke`\
+https://nytimes.com/athletic/6896558/2025/12/18/leeds-piroe-farke-premier-league/
+
 **Why Chelsea's hopes of a stadium at Earls Court may not yet be over**\
 `Chelsea still believe there is a chance of them building a new home at Earls Court, despite an alternative plan for the land being approved`\
 https://nytimes.com/athletic/6896581/2025/12/18/chelsea-stadium-earls-court-planning/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6895886/2025/12/18/premier-league-settled-squad-dep
 **Africa Cup of Nations 2025 predictions: Winner, players to watch and more**\
 `Will Mohamed Salah finally lift the trophy? Will Nigeria make up for missing the World Cup? Our writers outline what they think might happen`\
 https://nytimes.com/athletic/6878133/2025/12/18/africa-cup-of-nations-2025-predictions-winner-players-to-watch-and-more/
-
-**Lionel Messi politics and Ronaldinho on the bongos: It’s election season at Barcelona**\
-`Several opponents to Joan Laporta's presidency have already stated their intention to run against him`\
-https://nytimes.com/athletic/6896317/2025/12/18/barcelona-messi-laporta-elections/
-
-**How Saka creates crossing angles for himself**\
-`In one-versus-one situations — or even one-v-two — Bukayo Saka's ability is unquestionable. This is how he finds space`\
-https://nytimes.com/athletic/6895992/2025/12/18/bukayo-saka-arsenal-crossing-space/
-
-**The 111-year-old stadium being rebuilt using decommissioned planes**\
-`The designers of Strasbourg's new stadium hope their outside-the-box thinking will inspire other redevelopment projects`\
-https://nytimes.com/athletic/6875333/2025/12/18/strasbourg-stadium-decomissioned-planes/
-
-**Birthrates Are Falling, but Don’t Blame Dogs in Strollers**\
-`New research suggests that having a pet can actually make people more likely to become parents.`\
-https://nytimes.com/2025/12/18/world/birthrates-falling-dont-blame-dogs.html
 
