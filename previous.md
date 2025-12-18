@@ -1,3 +1,11 @@
+**How Should Parents Talk to Their Children About Wealth Inequality?**\
+`Parents sometimes struggle when they try to explain why some people have more or less money than others. What’s your advice?`\
+https://nytimes.com/2025/12/18/learning/how-should-parents-talk-to-their-children-about-wealth-inequality.html
+
+**Olivier Rioux, Florida's 7-foot-9 freshman, dunks home first career field goal**\
+`Including Wednesday, Rioux has played just seven minutes this season, as he sits behind a loaded frontcourt.`\
+https://nytimes.com/athletic/6899194/2025/12/18/oliver-rioux-florida-first-basket-dunk/
+
 **Como's Fabregas in dispute with Senegal over Diao's AFCON participation**\
 `Diao, 20, has made just seven appearances this campaign due to recurring issues, namely with his foot and hamstring.`\
 https://nytimes.com/athletic/6896965/2025/12/18/fabregas-senegal-diao-afcon-squad-news/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6897608/2025/12/18/nebraska-volleyball-merritt-beas
 **Dodgers mailbag: Edwin Díaz's surprise signing, Teoscar Hernández's future**\
 `Plus, how the front office is approaching spending this offseason.`\
 https://nytimes.com/athletic/6896929/2025/12/18/dodgers-edwin-diaz-teoscar-hernandez/
-
-**NFL Draft prospects to watch in Alabama-Oklahoma College Football Playoff game**\
-`The quarterbacks will be in the spotlight, as always, but a few other NFL Draft prospects could play key roles Friday night.`\
-https://nytimes.com/athletic/6894530/2025/12/18/nfl-draft-2026-alabama-oklahoma-ty-simpson/
-
-**The NFL color commentators you’d meet at a football watch party**\
-`NFL color commentators are our parasocial party guests, and each member of the crew brings something to the potluck.`\
-https://nytimes.com/athletic/6877567/2025/12/18/nfl-color-commentary-rankings-brady-aikman-olsen-romo/
 

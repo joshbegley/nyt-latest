@@ -1,3 +1,11 @@
+**How Should Parents Talk to Their Children About Wealth Inequality?**\
+`Parents sometimes struggle when they try to explain why some people have more or less money than others. What’s your advice?`\
+https://nytimes.com/2025/12/18/learning/how-should-parents-talk-to-their-children-about-wealth-inequality.html
+
+**Olivier Rioux, Florida's 7-foot-9 freshman, dunks home first career field goal**\
+`Including Wednesday, Rioux has played just seven minutes this season, as he sits behind a loaded frontcourt.`\
+https://nytimes.com/athletic/6899194/2025/12/18/oliver-rioux-florida-first-basket-dunk/
+
 **Como's Fabregas in dispute with Senegal over Diao's AFCON participation**\
 `Diao, 20, has made just seven appearances this campaign due to recurring issues, namely with his foot and hamstring.`\
 https://nytimes.com/athletic/6896965/2025/12/18/fabregas-senegal-diao-afcon-squad-news/
