@@ -1,3 +1,27 @@
+**Manchester United and Antoine Semenyo. Does it make sense?**\
+`Semenyo's seven goals and three assists across the 2025-26 season rank him as one of the more dangerous attackers outside of the 'Big Six'`\
+https://nytimes.com/athletic/6822771/2025/12/18/antoine-semenyo-manchester-united-transfer-analysis/
+
+**The Alternative Premier League Table: No 17 – Own goals**\
+`Matchday 16 saw four own goals go in across the division. So who are the teams and players most susceptible to putting it in their own net?`\
+https://nytimes.com/athletic/6895863/2025/12/18/alternative-premier-league-table-own-goals/
+
+**6 Takeaways From Trump’s Address to the Nation**\
+`President Trump disparaged Democrats and insisted the economy is booming despite concerns about the cost of living.`\
+https://nytimes.com/2025/12/18/us/politics/6-takeaways-from-trumps-address-to-the-nation.html
+
+**Who has the most settled squad in the Premier League - and how much does that matter?**\
+`Crystal Palace and Chelsea have vastly different approaches to squad rotation - we explain the reasons for it...`\
+https://nytimes.com/athletic/6895886/2025/12/18/premier-league-settled-squad-depth/
+
+**Africa Cup of Nations 2025 predictions: Winner, players to watch and more**\
+`Will Mohamed Salah finally lift the trophy? Will Nigeria make up for missing the World Cup? Our writers outline what they think might happen`\
+https://nytimes.com/athletic/6878133/2025/12/18/africa-cup-of-nations-2025-predictions-winner-players-to-watch-and-more/
+
+**Lionel Messi politics and Ronaldinho on the bongos: It’s election season at Barcelona**\
+`Several opponents to Joan Laporta's presidency have already stated their intention to run against him`\
+https://nytimes.com/athletic/6896317/2025/12/18/barcelona-messi-laporta-elections/
+
 **How Saka creates crossing angles for himself**\
 `In one-versus-one situations — or even one-v-two — Bukayo Saka's ability is unquestionable. This is how he finds space`\
 https://nytimes.com/athletic/6895992/2025/12/18/bukayo-saka-arsenal-crossing-space/
@@ -13,28 +37,4 @@ https://nytimes.com/2025/12/18/world/birthrates-falling-dont-blame-dogs.html
 **At Tokyo Zoo, Visitors Fear a Spat With China Will Cost Japan Its Pandas**\
 `Pandas have stood for friendship between China and Japan since 1972. But the last two are about to go, and a dispute over Taiwan could get in the way of sending more.`\
 https://nytimes.com/2025/12/18/world/asia/japan-china-pandas.html
-
-**E.U. Leaders Debate Plan for Ukraine Financed by Frozen Russian Assets**\
-`The European Council convenes on Thursday, and at stake is a contentious deal to back Ukraine and its war effort in 2026 and 2027.`\
-https://nytimes.com/2025/12/18/world/europe/russia-eu-ukraine-frozen-assets.html
-
-**Connections: Sports Edition Coach: Hints for Dec. 18, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6898482/2025/12/18/connections-sports-edition-hints-for-dec-18-2025/
-
-**China Is Feeling Strong and Senses an American Retreat**\
-`Beijing is using its messaging tools to show off its prowess at building infrastructure and project power, taking advantage of what it says is “deep anxiety” in U.S. policies.`\
-https://nytimes.com/2025/12/18/business/trump-xi-us-china.html
-
-**Corrections: Dec. 18, 2025**\
-`Corrections that appeared in print on Thursday, Dec. 18, 2025.`\
-https://nytimes.com/2025/12/18/pageoneplus/corrections-dec-18-2025.html
-
-**Quote of the Day: A Coach Pokes and Prods at Every Weakness to Hone Schwarber’s Bat**\
-`Quotation of the Day for Thursday, December 18, 2025.`\
-https://nytimes.com/2025/12/17/pageoneplus/quote-of-the-day-a-coach-pokes-and-prods-at-every-weakness-to-hone-schwarbers-bat.html
-
-**U.S. Military Announces 4 Killed in 26th Boat Strike**\
-`The attack on Wednesday brings the total number killed to at least 99 since the Trump administration began bombing boats suspected of ferrying drugs in the Caribbean Sea and the Pacific Ocean.`\
-https://nytimes.com/2025/12/17/us/politics/military-4-dead-boat-strike-pacific-ocean.html
 
