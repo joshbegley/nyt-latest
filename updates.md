@@ -1,3 +1,11 @@
+**Anthony Joshua, Jake Paul double down on trash talk ahead of fight**\
+`Joshua said he's “carrying boxing” by taking on Paul, while his opponent claims people who care about the sport should "want me to win."`\
+https://nytimes.com/athletic/6898466/2025/12/17/anthony-joshua-jake-paul-fight/
+
+**No fans allowed at Colorado basketball home game because of harsh weather**\
+`The Buffaloes played Portland State without fans in attendance because of potentially dangerous road conditions.`\
+https://nytimes.com/athletic/6898513/2025/12/17/colorado-buffaloes-basketball-no-fans-allowed-weather/
+
 **Australia to Crack Down on Hate Speech After Bondi Attack**\
 `New legislation will be drafted to target those who promote violence and to increase penalties for hate speech, the prime minister said Thursday.`\
 https://nytimes.com/2025/12/17/us/australia-hate-speech-legislation.html
