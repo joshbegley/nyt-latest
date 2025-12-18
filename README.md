@@ -1,3 +1,11 @@
+**PEN America Elects New President at Fraught Time for Free Speech**\
+`The novelist Dinaw Mengestu will lead the literary group at a time of escalating threats to free expression at home and abroad.`\
+https://nytimes.com/2025/12/17/arts/dinaw-mengestu-pen-america-new-president.html
+
+**Investigators look at a Santa Monica hotel as they trace Nick Reiner’s movements.**\
+`By Orlando Mayorquín, Matt Stevens and Shawn Hubler`\
+https://nytimes.com/live/2025/12/17/us/rob-nick-reiner-murder-charges/hotel-focus-reiner-murders
+
 **Wesley Morris Remembers Rob Reiner’s Movies**\
 `This week, Wesley reflects on the impact Rob Reiner had on his life, specifically the 1990 film “Misery,” and how Reiner brought humanity to his characters in unexpected ways.`\
 https://nytimes.com/video/podcasts/100000010593623/wesley-morris-remembers-rob-reiners-movies.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/europe/100000010594323/dinosaur-footprints-itali
 **Jake Paul's Most Valuable Promotions in talks with Sky Sports for broadcast deal: Sources**\
 `Sky Sports has previously had deals with Matchroom, Boxxer and Top Rank.`\
 https://nytimes.com/athletic/6898004/2025/12/17/jake-pauls-most-valuable-promotions-in-talks-with-sky-sports-for-broadcast-deal-sources/
-
-**‘Who’s Gonna Stop You?’ Listen to Trump Press Georgia Speaker Over 2020 Vote.**\
-`During much of the 12.5-minute call, President Trump reiterated his claims that he had won Georgia, a state he lost by more than 11,000 votes that year.`\
-https://nytimes.com/2025/12/17/us/trump-phone-call-georgia-election.html
-
-**For Hegseth, There Is One Boat Strike He Doesn’t Want the Public to See**\
-`The Pentagon has released plenty of video clips that show American missiles blowing boats suspected of carrying drugs out of the water. But the “double tap” strike on Sept. 2 is being kept under wraps.`\
-https://nytimes.com/2025/12/17/us/politics/hegseth-boat-strike-video.html
 
