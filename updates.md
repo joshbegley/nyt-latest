@@ -1,3 +1,7 @@
+**Broncos' stifling red-zone defense is covering up a problem. Can the trend continue?**\
+`The Broncos are 26th in pass yards allowed per game since Week 11, but a stifling defense near the goal line has helped them keep the pace.`\
+https://nytimes.com/athletic/6897201/2025/12/18/broncos-red-zone-defense-secondary/
+
 **Julius Randle is so valuable to the Wolves that they can't survive his rare off night**\
 `With Randle struggling and Anthony Edwards (foot) out, Minnesota had few answers against a short-handed Grizzlies squad.`\
 https://nytimes.com/athletic/6898801/2025/12/18/julius-randle-timberwolves-loss-memphis/

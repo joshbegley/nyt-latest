@@ -1,40 +1,40 @@
-**Interest Rate Cut and Slower Inflation Offer Britons a Reprieve**\
-`Britain’s central bank reduced interest rates to 3.75 percent, a move that was welcomed by the government, which has been looking to lower the high cost of living.`\
-https://nytimes.com/2025/12/18/business/britain-interest-rates-economy.html
+**UWCL draw: Arsenal to face Chelsea if they win play-off game**\
+`The playoffs will take place over February 11-12 and 18-19 before the quarter-finals in late March and early April. `\
+https://nytimes.com/athletic/6898939/2025/12/18/womens-champions-league-arsenal-chelsea-man-utd/
 
-**Chiefs' breakthrough draft class faces emotional end: 'I would love to stay here'**\
-`Chiefs cornerback Jaylen Watson is a pending free agent but says he would return to Chiefs if things turned out.`\
-https://nytimes.com/athletic/6897729/2025/12/18/chiefs-jaylen-watson-2022-draft-class/
+**Why the Affordability Crisis Is Likely to Stalk Trump**\
+`The president promoted his economic accomplishments in a defiant address. But some voters are feeling the pinch of stubborn inflation and a cooling labor market.`\
+https://nytimes.com/2025/12/18/business/dealbook/affordability-crisis-trump.html
 
-**Chelsea's Maresca high on Man City's list in event of Guardiola exit**\
-`City are advancing contingency planning as there is a growing anticipation of this being the Catalan manager's last season.`\
-https://nytimes.com/athletic/6896778/2025/12/18/pep-guardiola-man-city-enzo-maresca/
+**If this is Guardiola’s goodbye to English football, his legacy is unique**\
+`No coach has had a greater impact on the English game in recent times than the Catalan, who will be the ultimate hard act to follow`\
+https://nytimes.com/athletic/6898463/2025/12/18/pep-guardiola-manchester-city-legacy/
 
-**Is It About the Oil?**\
-`We look at what President Trump is trying to achieve in Venezuela.`\
-https://nytimes.com/2025/12/18/briefing/is-it-about-the-oil.html
+**Trump Administration Live Updates: President Defends Record on Economy Amid Americans’ Concerns**\
+``\
+https://nytimes.com/live/2025/12/18/us/trump-news
 
-**BBC Sports Personality of the Year odds, predictions: Rory McIlroy, Lando Norris favoured**\
-`Who is the favourite to win Sports Personality of the Year this year? And is there likely to be an upset?`\
-https://nytimes.com/athletic/6895907/2025/12/18/bbc-sports-personality-of-the-year-rory-mcilroy/
+**A second chance at life, and the Nebraska volleyball connection that sparked a smile**\
+`Merritt Squire was named after former Nebraska star Merritt Beason. They met at a time the Squire family needed it most.`\
+https://nytimes.com/athletic/6897608/2025/12/18/nebraska-volleyball-merritt-beason/
 
-**How to watch the Final Four of this year's surprising NCAA women's volleyball tournament**\
-`Madness isn't just for March. The women's volleyball tournament has delivered on the chaos leading into the Final Four. `\
-https://nytimes.com/athletic/6897672/2025/12/18/ncaa-womens-volleyball-2025-final-four-teams-tv/
+**Dodgers mailbag: Edwin Díaz's surprise signing, Teoscar Hernández's future**\
+`Plus, how the front office is approaching spending this offseason.`\
+https://nytimes.com/athletic/6896929/2025/12/18/dodgers-edwin-diaz-teoscar-hernandez/
 
-**Yankees fans are anxious about the slow offseason. But should they be worried?**\
-`Yankees fans are getting antsy about the club's lack of major moves. Let’s rate the most popular fears floating around the fan base.`\
-https://nytimes.com/athletic/6897565/2025/12/18/yankees-slow-offseason-fans/
+**NFL Draft prospects to watch in Alabama-Oklahoma College Football Playoff game**\
+`The quarterbacks will be in the spotlight, as always, but a few other NFL Draft prospects could play key roles Friday night.`\
+https://nytimes.com/athletic/6894530/2025/12/18/nfl-draft-2026-alabama-oklahoma-ty-simpson/
 
-**Blackhawks power rankings: Bedard's shoulder, Nazar's slump, Levshunov's alarm clock**\
-`The vibes are considerably less immaculate than they were four weeks ago. But the power rankings soldier on.`\
-https://nytimes.com/athletic/6896819/2025/12/18/blackhawks-connor-bedard-injury-power-rankings/
+**The NFL color commentators you’d meet at a football watch party**\
+`NFL color commentators are our parasocial party guests, and each member of the crew brings something to the potluck.`\
+https://nytimes.com/athletic/6877567/2025/12/18/nfl-color-commentary-rankings-brady-aikman-olsen-romo/
 
-**CFP pressure gauge: Which coaches are facing the most heat to make a run?**\
-`For some programs, success is no longer defined by getting in the College Football Playoff, but by how long they last.`\
-https://nytimes.com/athletic/6892217/2025/12/18/college-football-playoff-coach-rankings-pressure/
+**Play harder? Doc Rivers says Bucks' problems are more a matter of execution**\
+`With Giannis Antetokounmpo out with a calf strain, Milwaukee has to focus on winning the margins, the coach said.`\
+https://nytimes.com/athletic/6895333/2025/12/18/bucks-doc-rivers-execution-giannis/
 
-**Broncos' stifling red-zone defense is covering up a problem. Can the trend continue?**\
-`The Broncos are 26th in pass yards allowed per game since Week 11, but a stifling defense near the goal line has helped them keep the pace.`\
-https://nytimes.com/athletic/6897201/2025/12/18/broncos-red-zone-defense-secondary/
+**Lovable, a Start-Up That Makes Anyone a Coder, Raises $330 Million**\
+`The Swedish company is now valued at $6.6 billion, more than triple its $1.8 billion valuation set by investors in July.`\
+https://nytimes.com/2025/12/18/business/dealbook/lovable-a-start-up-that-makes-anyone-a-coder-raises-330-million.html
 
