@@ -1,3 +1,7 @@
+**U.S. Accuses Venezuelan of Masterminding Tren de Aragua’s Expansion**\
+`The gang, which was also the subject of charges brought in Nebraska, is President Trump’s chosen nemesis. The defendant remains at large.`\
+https://nytimes.com/2025/12/18/us/politics/tren-de-aragua-venezuela-gang.html
+
 **NFL Week 16 model-projected scores and point totals for every game**\
 `Austin Mock's NFL Projection Model gives its predictions for the points differentials and totals for every Week 16 game.`\
 https://nytimes.com/athletic/6900667/2025/12/18/nfl-week-16-odds-projected-scores-point-spreads-totals/
