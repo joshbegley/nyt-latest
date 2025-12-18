@@ -1,3 +1,19 @@
+**From Fernandes to Foden and Rogers to Rice, there’s a new FPL midfield template**\
+`Four of the five most transferred-in FPL players this gameweek are midfielders. So, who should be your priority purchases?`\
+https://nytimes.com/athletic/6896077/2025/12/18/fantasy-premier-league-fpl-tips-gameweek-17-foden-fernandes/
+
+**Newcastle have taken a step towards derby-day redemption — and Wembley**\
+`Eddie Howe's side needed to win after Sunday's ignominy on Wearside, and they did. They really had no alternative.`\
+https://nytimes.com/athletic/6898376/2025/12/18/newcastle-howe-carabao-redemption-sunderland/
+
+**Callum Hudson-Odoi is turning his season around at Forest - can he go up another level?**\
+`Against Tottenham, it felt like it was Hudson-Odoi emphatically back at his best. He's showing again why he is Forest's leading wide man`\
+https://nytimes.com/athletic/6896611/2025/12/18/callum-hudson-odoi-forest-tottenham/
+
+**What next for Joel Piroe?**\
+`The Dutchman was one of the stars of the promotion-winning campaign but now finds himself increasingly marginalised under Daniel Farke`\
+https://nytimes.com/athletic/6896558/2025/12/18/leeds-piroe-farke-premier-league/
+
 **Why Chelsea's hopes of a stadium at Earls Court may not yet be over**\
 `Chelsea still believe there is a chance of them building a new home at Earls Court, despite an alternative plan for the land being approved`\
 https://nytimes.com/athletic/6896581/2025/12/18/chelsea-stadium-earls-court-planning/
