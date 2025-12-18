@@ -1,3 +1,7 @@
+**Zelensky Makes Appeal to E.U. Leaders for Frozen Russian Funds to Fight War**\
+`President Volodymyr Zelensky said in Brussels, where the leaders had gathered, that without the money, his country would have to reduce its drone production significantly.`\
+https://nytimes.com/2025/12/18/world/europe/ukraine-zelensky-russia-putin.html
+
 **How to watch Hawks vs. Hornets: Time, TV, streaming**\
 `Find out how to watch the Atlanta Hawks play the Charlotte Hornets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6899680/2025/12/18/hawks-vs-hornets-stream-how-to-watch-dec-18/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6899654/2025/12/18/penguins-vs-senators-stream-how-
 **The Windup: More free-agency signings, and a 31-year-old GM?!**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6899617/2025/12/18/free-agency-signings-31-year-old-gm-the-windup/
-
-**How to watch South Carolina vs. South Florida women's basketball: Time, TV, streaming**\
-`Find out how to watch the South Carolina Gamecocks play the South Florida Bulls, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6899616/2025/12/18/south-carolina-vs-south-florida-stream-how-to-watch-dec-18/
 

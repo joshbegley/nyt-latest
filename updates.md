@@ -1,3 +1,7 @@
+**Zelensky Makes Appeal to E.U. Leaders for Frozen Russian Funds to Fight War**\
+`President Volodymyr Zelensky said in Brussels, where the leaders had gathered, that without the money, his country would have to reduce its drone production significantly.`\
+https://nytimes.com/2025/12/18/world/europe/ukraine-zelensky-russia-putin.html
+
 **How to watch Hawks vs. Hornets: Time, TV, streaming**\
 `Find out how to watch the Atlanta Hawks play the Charlotte Hornets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6899680/2025/12/18/hawks-vs-hornets-stream-how-to-watch-dec-18/
