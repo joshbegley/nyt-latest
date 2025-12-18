@@ -1,3 +1,7 @@
+**We’re in the Age of American Pessimism**\
+`America is in its pessimism era and Trump is playing on it, argues the columnist David Brooks in this episode of “The Conversation.”`\
+https://nytimes.com/video/opinion/100000010593621/were-in-the-age-of-american-pessimism.html
+
 **Is Trump Finished?**\
 `“A lot of people are seeing some things that are really bad for Donald Trump,” David Brooks says in this episode of “The Conversation.”`\
 https://nytimes.com/video/opinion/100000010593626/is-trump-finished.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6894843/2025/12/18/why-does-free-agency-matter-more
 **Ex-NFL player Myles Jack arrested in Texas on felony gun charge**\
 `The former Steelers and Jaguars LB was arrested after police saw him fall from a second-story window, they said.`\
 https://nytimes.com/athletic/6900051/2025/12/18/nfl-myles-jack-arrest/
-
-**Fantasy basketball hot topics of the week: KD's upside in Houston, Asa Newell watch and more**\
-`Stan Son reviews the top recent NBA storylines, including KD's capped upside with Houston and a player to watch in Atlanta.`\
-https://nytimes.com/athletic/6899779/2025/12/18/fantasy-basketball-hot-topics-waiver-wire-kd/
 

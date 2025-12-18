@@ -1,3 +1,11 @@
+**Is Trump Finished?**\
+`“A lot of people are seeing some things that are really bad for Donald Trump,” David Brooks says in this episode of “The Conversation.”`\
+https://nytimes.com/video/opinion/100000010593626/is-trump-finished.html
+
+**Men's clubs spent $1.37 billion on agents this year - FIFA**\
+`The combined spending by men’s clubs on agents between January 1 and December 1, 2025, was the highest-ever total for a calendar year.`\
+https://nytimes.com/athletic/6900597/2025/12/18/clubs-agent-fees-record-fifa-report/
+
 **What Katy Perry Gets About Justin Trudeau**\
 `As a politician, Justin Trudeau was an excellent celebrity. And the rest of the world could learn a useful lesson from how he wielded his star power.`\
 https://nytimes.com/2025/12/18/opinion/justin-trudeau-katy-perry-couple.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6900051/2025/12/18/nfl-myles-jack-arrest/
 **Fantasy basketball hot topics of the week: KD's upside in Houston, Asa Newell watch and more**\
 `Stan Son reviews the top recent NBA storylines, including KD's capped upside with Houston and a player to watch in Atlanta.`\
 https://nytimes.com/athletic/6899779/2025/12/18/fantasy-basketball-hot-topics-waiver-wire-kd/
-
-**Jacques Martin to join Senators' Ring of Honour on Jan. 24**\
-`The 73-year-old Martin is Ottawa's franchise leader in regular-season and playoff coaching wins as well as games coached.`\
-https://nytimes.com/athletic/6899526/2025/12/18/jacques-martin-ottawa-senators-ring-honour/
-
-**Puka Nacua's brother arrested, accused of stealing car belonging to Lakers rookie**\
-`Samson Nacua last played for the UFL's now-defunct Michigan Panthers after brief training camp stops in the NFL.`\
-https://nytimes.com/athletic/6898441/2025/12/18/samson-nacua-arrested-adou-thiero-lakers/
 

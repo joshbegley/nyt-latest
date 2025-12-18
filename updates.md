@@ -1,3 +1,11 @@
+**Is Trump Finished?**\
+`“A lot of people are seeing some things that are really bad for Donald Trump,” David Brooks says in this episode of “The Conversation.”`\
+https://nytimes.com/video/opinion/100000010593626/is-trump-finished.html
+
+**Men's clubs spent $1.37 billion on agents this year - FIFA**\
+`The combined spending by men’s clubs on agents between January 1 and December 1, 2025, was the highest-ever total for a calendar year.`\
+https://nytimes.com/athletic/6900597/2025/12/18/clubs-agent-fees-record-fifa-report/
+
 **What Katy Perry Gets About Justin Trudeau**\
 `As a politician, Justin Trudeau was an excellent celebrity. And the rest of the world could learn a useful lesson from how he wielded his star power.`\
 https://nytimes.com/2025/12/18/opinion/justin-trudeau-katy-perry-couple.html
