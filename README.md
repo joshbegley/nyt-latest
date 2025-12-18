@@ -1,3 +1,7 @@
+**The College Football Playoff's best players at every position on the field**\
+`Seven of the top nine finishers in Heisman Trophy voting will compete in this year’s CFP, representing five different teams.`\
+https://nytimes.com/athletic/6897290/2025/12/18/college-football-playoff-best-players/
+
 **The Putin Confidant Who Pushed Back Against the War**\
 `Dmitri N. Kozak had worked with President Vladimir V. Putin for three decades before quitting in September. His associates described his break with the Russian leader.`\
 https://nytimes.com/2025/12/18/world/europe/russia-putin-aide-dmitri-kozak-ukraine-war.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/12/18/opinion/focus-group-former-glp1.html
 **What Courage Does for Us**\
 `Bravery and cowardice are both exemplary teachers.`\
 https://nytimes.com/2025/12/18/opinion/bondi-beach-uvalde-parkland-courage.html
-
-**Rob Reiner Made Your Favorite Movie**\
-`He made mine. You know the scene.`\
-https://nytimes.com/2025/12/18/podcasts/rob-reiner-made-your-favorite-movie.html
 
