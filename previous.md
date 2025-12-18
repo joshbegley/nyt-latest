@@ -1,3 +1,7 @@
+**College Football Playoff home games are back. Here's what makes each host stadium unique**\
+`Our experts share what makes the stadiums at Oklahoma, Texas A&M, Ole Miss and Oregon special ahead of their first-round Playoff games.`\
+https://nytimes.com/athletic/6897529/2025/12/18/college-football-playoff-home-stadiums-tickets/
+
 **Rams' backfield keeping up its recent pace among 3 ways to beat the Seahawks**\
 `We list three ways LA can earn a win with the NFC"s top seed likely at stake, as well as three ways Seattle can prevent it from happening.`\
 https://nytimes.com/athletic/6895083/2025/12/18/rams-seahawks-thursday-night-football/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6897757/2025/12/18/pwhl-expansion-takeover-tour-mar
 **Van Persie in confrontation with Feyenoord fans, says they 'have right to be angry'**\
 `“I feel I should stand with the supporters and give them a platform to express their frustration," the former striker told ESPN.`\
 https://nytimes.com/athletic/6899022/2025/12/18/robin-van-persie-feyenoord-fans/
-
-**2026 Vuelta a Espana route: No Madrid and Monaco time-trial start**\
-`The race will take place from August 22 to September 13, featuring seven major summit finishes and 58,000m of climbing.`\
-https://nytimes.com/athletic/6899072/2025/12/18/vuelta-a-espana-route-madrid-monaco/
 

@@ -1,3 +1,7 @@
+**College Football Playoff home games are back. Here's what makes each host stadium unique**\
+`Our experts share what makes the stadiums at Oklahoma, Texas A&M, Ole Miss and Oregon special ahead of their first-round Playoff games.`\
+https://nytimes.com/athletic/6897529/2025/12/18/college-football-playoff-home-stadiums-tickets/
+
 **Rams' backfield keeping up its recent pace among 3 ways to beat the Seahawks**\
 `We list three ways LA can earn a win with the NFC"s top seed likely at stake, as well as three ways Seattle can prevent it from happening.`\
 https://nytimes.com/athletic/6895083/2025/12/18/rams-seahawks-thursday-night-football/
