@@ -1,3 +1,5 @@
+
+
 **How to watch Pistons vs. Mavericks: Time, TV, streaming**\
 `Find out how to watch the Detroit Pistons play the Dallas Mavericks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6900778/2025/12/18/pistons-vs-mavericks-stream-how-to-watch-dec-18/
