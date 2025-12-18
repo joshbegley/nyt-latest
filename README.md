@@ -1,3 +1,7 @@
+**The mystery of the 'Hercules gene' - the blessing and curse of sports stars**\
+`Having extra muscle mass sounds like a benefit for athletes, but the reality is far more complicated`\
+https://nytimes.com/athletic/6856557/2025/12/18/myostatin-mutation-harry-aikines-aryeetey/
+
 **Trump Boasts About Economy in Prime Time Speech**\
 `The president gave a televised speech that featured repeated criticism of Democrats and his predecessor, Joseph R. Biden Jr., along with boasts about gains that many Americans have said they are not experiencing.`\
 https://nytimes.com/video/us/politics/100000010595325/trump-economy-speech-white-house.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6896611/2025/12/18/callum-hudson-odoi-forest-totten
 **What next for Joel Piroe?**\
 `The Dutchman was one of the stars of the promotion-winning campaign but now finds himself increasingly marginalised under Daniel Farke`\
 https://nytimes.com/athletic/6896558/2025/12/18/leeds-piroe-farke-premier-league/
-
-**Why Chelsea's hopes of a stadium at Earls Court may not yet be over**\
-`Chelsea still believe there is a chance of them building a new home at Earls Court, despite an alternative plan for the land being approved`\
-https://nytimes.com/athletic/6896581/2025/12/18/chelsea-stadium-earls-court-planning/
 

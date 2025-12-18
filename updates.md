@@ -1,3 +1,7 @@
+**Trump Boasts About Economy in Prime Time Speech**\
+`The president gave a televised speech that featured repeated criticism of Democrats and his predecessor, Joseph R. Biden Jr., along with boasts about gains that many Americans have said they are not experiencing.`\
+https://nytimes.com/video/us/politics/100000010595325/trump-economy-speech-white-house.html
+
 **The New York Times in Print for Thursday, Dec. 18, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/12/18/todays-new-york-times
