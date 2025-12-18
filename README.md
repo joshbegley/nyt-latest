@@ -1,3 +1,11 @@
+**Anthony Joshua, Jake Paul double down on trash talk ahead of fight**\
+`Joshua said he's “carrying boxing” by taking on Paul, while his opponent claims people who care about the sport should "want me to win."`\
+https://nytimes.com/athletic/6898466/2025/12/17/anthony-joshua-jake-paul-fight/
+
+**No fans allowed at Colorado basketball home game because of harsh weather**\
+`The Buffaloes played Portland State without fans in attendance because of potentially dangerous road conditions.`\
+https://nytimes.com/athletic/6898513/2025/12/17/colorado-buffaloes-basketball-no-fans-allowed-weather/
+
 **Australia to Crack Down on Hate Speech After Bondi Attack**\
 `New legislation will be drafted to target those who promote violence and to increase penalties for hate speech, the prime minister said Thursday.`\
 https://nytimes.com/2025/12/17/us/australia-hate-speech-legislation.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/17/arts/dinaw-mengestu-pen-america-new-president.htm
 **Investigators look at a Santa Monica hotel as they trace Nick Reiner’s movements.**\
 `By Orlando Mayorquín, Matt Stevens and Shawn Hubler`\
 https://nytimes.com/live/2025/12/17/us/rob-nick-reiner-murder-charges/hotel-focus-reiner-murders
-
-**Wesley Morris Remembers Rob Reiner’s Movies**\
-`This week, Wesley reflects on the impact Rob Reiner had on his life, specifically the 1990 film “Misery,” and how Reiner brought humanity to his characters in unexpected ways.`\
-https://nytimes.com/video/podcasts/100000010593623/wesley-morris-remembers-rob-reiners-movies.html
-
-**Jury in Skaggs-Angels trial asks court questions related to damages**\
-`Two days of deliberations have rendered no verdict from jurors in the wrongful death civil trial.`\
-https://nytimes.com/athletic/6898204/2025/12/17/tyler-skaggs-case-angels-might-request-mistrial/
 
