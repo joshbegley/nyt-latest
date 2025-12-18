@@ -1,3 +1,11 @@
+**Mamdani Appointee Resigns After Decade-Old Antisemitic Posts Re-emerge**\
+`Catherine Almonte Da Costa resigned from her just-announced post as Mayor-elect Zohran Mamdani’s director of appointments after the Anti-Defamation League resurfaced the comments.`\
+https://nytimes.com/2025/12/18/nyregion/mamdani-resigns-antisemitic-da-costa.html
+
+**Live Updates: Authorities Search for a New Person of Interest in the Shooting at Brown**\
+`Investigators are also examining the possibility that the case is connected to the killing of an M.I.T. professor in his home in Massachusetts.`\
+https://nytimes.com/live/2025/12/18/us/brown-shooting-suspect
+
 **How Will Trump’s Policies Affect You? We Answer Your Questions.**\
 `Hard to follow the dizzying array of developments out of Washington over the past year? Here are our answers to your pressing questions.`\
 https://nytimes.com/interactive/2025/12/18/us/trump-policy-impact-tariffs-healthcare-immigration-affordability.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6900802/2025/12/18/milan-como-serie-a-perth-austral
 **The 12.21.25 Issue**\
 ``\
 https://nytimes.com/issue/magazine/2025/12/18/the-122125-issue
-
-**Man Accused of Dismembering Woman Had Surgical Skills**\
-`The remains of a woman and her child were found near Gilgo Beach on Long Island. Prosecutors accused Andrew Dykes, the father of the child, who had worked in Army clinics, in the woman’s murder.`\
-https://nytimes.com/2025/12/18/nyregion/gilgo-beach-mother-baby-murder.html
-
-**John E. Olson, Analyst Fired for Enron Skepticism, Dies at 83**\
-`An adviser at Merrill Lynch, he refused to recommend the energy trading company. His employer pushed him out, but his stand made him a hero.`\
-https://nytimes.com/2025/12/18/business/john-e-olson-dead.html
 

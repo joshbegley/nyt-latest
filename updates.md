@@ -1,3 +1,7 @@
+**Saban compares JMU’s playoff spot to minor-league team reaching World Series**\
+`The five highest-ranked conference champions make the field even if they don't finish in the top 12 of the rankings.`\
+https://nytimes.com/athletic/6900603/2025/12/18/nick-saban-jmu-college-football-playoff-mcafee/
+
 **How Will Trump’s Policies Affect You? We Answer Your Questions.**\
 `Hard to follow the dizzying array of developments out of Washington over the past year? Here are our answers to your pressing questions.`\
 https://nytimes.com/interactive/2025/12/18/us/trump-policy-impact-tariffs-healthcare-immigration-affordability.html
