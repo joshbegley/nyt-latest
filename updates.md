@@ -1,3 +1,7 @@
+**Australia to Crack Down on Hate Speech After Bondi Attack**\
+`New legislation will be drafted to target those who promote violence and to increase penalties for hate speech, the prime minister said Thursday.`\
+https://nytimes.com/2025/12/17/us/australia-hate-speech-legislation.html
+
 **Full Transcript of President Trump’s Speech on the Economy**\
 `The president sharply attacked his predecessor while insisting that his own record contained nothing but victories.`\
 https://nytimes.com/2025/12/17/us/politics/trump-speech-transcript-economy.html
