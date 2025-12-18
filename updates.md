@@ -1,3 +1,15 @@
+**How to watch Norfolk State vs. Ohio State women's basketball: Time, TV, streaming**\
+`Find out how to watch the Norfolk State Spartans play the Ohio State Buckeyes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6899614/2025/12/18/norfolk-state-vs-ohio-state-stream-how-to-watch-dec-18/
+
+**Trump Moves to Prevent Access to Gender-Related Care for Minors**\
+`Proposed new rules would pull all federal financing from hospitals that continue to provide gender treatments for adolescents.`\
+https://nytimes.com/2025/12/18/health/trump-gender-affirming-care-funding.html
+
+**‘Cover-Up’ Review: Seymour Hersh, Scoops and Power**\
+`In their documentary, Laura Poitras (“Citzenfour”) and Mark Obenhaus trace the career highs and lows of the famed investigative journalist.`\
+https://nytimes.com/2025/12/18/movies/cover-up-review-seymour-hersh.html
+
 **Max Sasson's deal, the blue line mix and Quinn Hughes' Canucks legacy: Notebook**\
 `The Canucks have turned the page on the Quinn Hughes era with a pair of surprising road wins.`\
 https://nytimes.com/athletic/6895745/2025/12/18/vancouver-canucks-zeev-buium-quinn-hughes-max-sasson/
