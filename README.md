@@ -1,3 +1,11 @@
+**How to watch Norfolk State vs. Ohio State women's basketball: Time, TV, streaming**\
+`Find out how to watch the Norfolk State Spartans play the Ohio State Buckeyes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6899614/2025/12/18/norfolk-state-vs-ohio-state-stream-how-to-watch-dec-18/
+
+**Trump Moves to Prevent Access to Gender-Related Care for Minors**\
+`Proposed new rules would pull all federal financing from hospitals that continue to provide gender treatments for adolescents.`\
+https://nytimes.com/2025/12/18/health/trump-gender-affirming-care-funding.html
+
 **‘Cover-Up’ Review: Seymour Hersh, Scoops and Power**\
 `In their documentary, Laura Poitras (“Citzenfour”) and Mark Obenhaus trace the career highs and lows of the famed investigative journalist.`\
 https://nytimes.com/2025/12/18/movies/cover-up-review-seymour-hersh.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/18/nyregion/zohran-mamdani-sherif-soliman-omb.html
 **The Bounce: Is the NBA finally heading to Seattle and Las Vegas?**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/6899515/2025/12/18/the-bounce-nba-expansion-seattle-las-egas-dillon-brooks/
-
-**NC State coach Will Wade criticizes team over 8-4 record: 'Kindergarten's over'**\
-`NC State, now 8-4 on the season, has yet to beat a high-major opponent after losing in overtime to Kansas on Saturday.`\
-https://nytimes.com/athletic/6899445/2025/12/18/will-wade-nc-state-cbb/
-
-**European Leaders Discuss Financing Ukraine With Frozen Russian Assets**\
-`The European Council convened in Brussels to discuss leveraging up to $247 billion in frozen Russian government assets held in Europe to finance Ukraine’s war effort.`\
-https://nytimes.com/video/world/europe/100000010595674/european-union-ukraine-russia-assets-fund.html
 
