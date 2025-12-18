@@ -1,3 +1,7 @@
+**Trump Announces ‘Warrior Dividend’ For Troops**\
+`President Trump promised active duty troops a $1,776 check from revenue raised by tariffs, without acknowledging that the Supreme Court is weighing the legality of the powers used to impose the levies.`\
+https://nytimes.com/2025/12/18/us/trump-address-warrior-dividend-military-check-1776.html
+
 **Ask a Journalist: Reporting on Youth Trends With Data and Graphics**\
 `The Times Upshot reporter Claire Cain Miller joins us in January to chat with teenagers about using data and visuals to help explain the world. Post your comments and questions for her by Jan. 16.`\
 https://nytimes.com/2025/12/18/learning/lesson-plans/ask-a-journalist-reporting-on-youth-trends-with-data-and-graphics.html
