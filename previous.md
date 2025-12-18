@@ -1,3 +1,11 @@
+**Mamdani Names Budget Director as He Prepares to Enact Costly Agenda**\
+`Mayor-Elect Zohran Mamdani chose Sherif Soliman, a veteran of municipal government and the chief financial officer of the City University of New York, to lead the Office of Management and Budget.`\
+https://nytimes.com/2025/12/18/nyregion/zohran-mamdani-sherif-soliman-omb.html
+
+**The Bounce: Is the NBA finally heading to Seattle and Las Vegas?**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/6899515/2025/12/18/the-bounce-nba-expansion-seattle-las-egas-dillon-brooks/
+
 **NC State coach Will Wade criticizes team over 8-4 record: 'Kindergarten's over'**\
 `NC State, now 8-4 on the season, has yet to beat a high-major opponent after losing in overtime to Kansas on Saturday.`\
 https://nytimes.com/athletic/6899445/2025/12/18/will-wade-nc-state-cbb/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6899402/2025/12/18/mlb-offseason-diamondbacks-rays-
 **Trump Announces ‘Warrior Dividend’ For Troops**\
 `President Trump promised active duty troops a $1,776 check from revenue raised by tariffs, without acknowledging that the Supreme Court is weighing the legality of the powers used to impose the levies.`\
 https://nytimes.com/2025/12/18/us/trump-address-warrior-dividend-military-check-1776.html
-
-**Ask a Journalist: Reporting on Youth Trends With Data and Graphics**\
-`The Times Upshot reporter Claire Cain Miller joins us in January to chat with teenagers about using data and visuals to help explain the world. Post your comments and questions for her by Jan. 16.`\
-https://nytimes.com/2025/12/18/learning/lesson-plans/ask-a-journalist-reporting-on-youth-trends-with-data-and-graphics.html
-
-**West Ham part ways with women's head coach Rehanne Skinner**\
-`The 46-year-old leaves West Ham 11th in the Women's Super League (WSL) with just one win in 11 matches.`\
-https://nytimes.com/athletic/6899053/2025/12/18/west-ham-sack-rehanne-skinner/
 
