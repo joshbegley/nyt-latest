@@ -1,3 +1,7 @@
+**Como's Fabregas in dispute with Senegal over Diao's AFCON participation**\
+`Diao, 20, has made just seven appearances this campaign due to recurring issues, namely with his foot and hamstring.`\
+https://nytimes.com/athletic/6896965/2025/12/18/fabregas-senegal-diao-afcon-squad-news/
+
 **Truth Social Parent to Merge With Nuclear Fusion Firm in $6 Billion Deal**\
 `The deal would be a total transformation for Trump Media & Technology Group, the social media and crypto company in which President Trump holds a large stake.`\
 https://nytimes.com/2025/12/18/business/trump-media-tae-technologies-fusion-power-deal.html
