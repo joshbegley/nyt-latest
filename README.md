@@ -1,3 +1,7 @@
+**NFL Week 16 model-projected scores and point totals for every game**\
+`Austin Mock's NFL Projection Model gives its predictions for the points differentials and totals for every Week 16 game.`\
+https://nytimes.com/athletic/6900667/2025/12/18/nfl-week-16-odds-projected-scores-point-spreads-totals/
+
 **Mamdani Appointee Resigns After Decade-Old Antisemitic Posts Re-emerge**\
 `Catherine Almonte Da Costa resigned from her just-announced post as Mayor-elect Zohran Mamdani’s director of appointments after the Anti-Defamation League resurfaced the comments.`\
 https://nytimes.com/2025/12/18/nyregion/mamdani-resigns-antisemitic-da-costa.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6900434/2025/12/18/adin-ross-puka-nacua-livestream/
 **Milan-Como game in Perth set to go ahead - Serie A president**\
 `Serie A's concerns have been allayed following meetings with FIFA President Gianni Infantino and referees' chief Pierluigi Collina.`\
 https://nytimes.com/athletic/6900802/2025/12/18/milan-como-serie-a-perth-australia/
-
-**The 12.21.25 Issue**\
-``\
-https://nytimes.com/issue/magazine/2025/12/18/the-122125-issue
 
