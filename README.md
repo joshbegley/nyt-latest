@@ -1,40 +1,40 @@
-**When Judges Are Attacked, You Suffer**\
-`The rise in judicial threats is being fueled by the political rhetoric of the Trump administration, argues the judge Esther Salas.`\
-https://nytimes.com/video/opinion/100000010577027/when-judges-are-attacked-you-suffer.html
+**How ‘Affordability’ Became a New Magic Word for Politicians**\
+`A rallying cry for Democrats taps into frustration over the inaccessibility of a modestly nice American existence — even for those with a decent income.`\
+https://nytimes.com/2025/12/18/magazine/affordability-economy.html
 
-**Must-See Moments From the N.B.A.**\
-`On Wednesday, the stumbling Cleveland Cavaliers fell to the Chicago Bulls as the Bulls’ Josh Giddey recorded a triple-double, and the Memphis Grizzlies won on the road against the Minnesota Timberwolves.`\
-https://nytimes.com/video/sports/basketball/100000010595471/must-see-moments-from-the-nba.html
+**David Brooks, E.J. Dionne and Robert Siegel Take Stock of 2025**\
+`Trump is giving himself an A-plus-plus-plus, but the rest of America is anxious.`\
+https://nytimes.com/2025/12/18/opinion/the-conversation-trump-presidency-anxiety.html
 
-**City Council Introduces Bill to Create Mamdani’s Community Safety Agency**\
-`The proposed Department of Community Safety would send mental health teams to respond to 911 calls, rather than the police, according to Mayor-elect Zohran Mamdani’s plans.`\
-https://nytimes.com/2025/12/18/nyregion/city-council-community-safety-mamdani.html
+**36 Hours in San Luis Obispo County**\
+`Wineries and boutique hotels have sprouted along the backroads and once-sleepy main streets of this Central Coast county.`\
+https://nytimes.com/interactive/2025/12/18/travel/things-to-do-san-luis-obispo.html
 
-**New York City Set to Raise the Cap on Permits for Street Vendors**\
-`The legislation is part of a package of City Council bills aimed at helping the city’s thousands of vendors get on the right side of the law.`\
-https://nytimes.com/2025/12/18/nyregion/nyc-street-vendor-permits-cap-raised.html
+**Leanne Ford’s Cozy Sunroom Has an Old Soul**\
+`The interior designer keeps things casual in her 1900s cottage, with a corduroy sofa, oversize TV cabinet and Art Deco-inspired molding.`\
+https://nytimes.com/2025/12/18/realestate/leanne-fords-cozy-sunroom-has-an-old-soul.html
 
-**Where ‘Seinfeld,’ a $120,000 Chandelier and a Mysterious Church Converge**\
-`Olde Good Things, an antiques giant with stores in New York and Los Angeles, is operated by a group called the Church of Bible Understanding.`\
-https://nytimes.com/2025/12/18/nyregion/olde-good-things-antiques.html
+**A $600 Suckling Pig? Wagyu for All? On Menus, It’s a New Gilded Age**\
+`In Manhattan and across the country, restaurants are trotting out ever-pricier dishes and luxury upgrades to meet the demand from affluent diners.`\
+https://nytimes.com/2025/12/18/dining/nyc-restaurant-prices-luxury-menus.html
 
-**Flowers and Candlelight**\
-`Why was this image in the news this week? What is your reaction?`\
-https://nytimes.com/2025/12/18/learning/flowers-and-candlelight.html
+**The Ritual Shaming of the Woman at the Coldplay Concert**\
+`Kristin Cabot was caught on camera with her boss at a concert. The video went viral. Soon she was drowning in the vitriol of strangers.`\
+https://nytimes.com/2025/12/18/style/the-ritual-shaming-of-the-woman-at-the-coldplay-concert.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/12/18/crosswords/spelling-bee-forum.html
+**The Sketch That Reveals the History of ‘American Gothic’**\
+`The famous painting by Grant Wood shows a farmer holding a pitchfork and a woman standing next to him. The earlier sketch is a bit different.`\
+https://nytimes.com/2025/12/18/nyregion/grant-wood-american-gothic-sketch.html
 
-**An Airport Hotel Gets New Life as Affordable Housing**\
-`Text by Text by Mihir Zaveri; Visuals by Karsten Moran`\
-https://nytimes.com/card/2025/12/18/undefined/
+**What Happens When You Send a Girl to School**\
+`Joyce Arthur says she is a living testimony to the benefit of investing in African girls’ education.`\
+https://nytimes.com/2025/12/18/opinion/communities-fund-camfed-campaign-female-education.html
 
-**How to watch 49ers vs. Colts: Time, TV, streaming**\
-`Find out how to watch the San Francisco 49ers play the Indianapolis Colts, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6898887/2025/12/18/49ers-vs-colts-stream-how-to-watch-dec-22/
+**Best Classical Music Albums of 2025**\
+`Listen to recordings by Maria Dueñas and Daniil Trifonov, works by Thomas Adès and Tania León, and more.`\
+https://nytimes.com/2025/12/18/arts/music/best-classical-music-albums-of-2025.html
 
-**After a season on the margins, Savinho offers a glimpse of his potential**\
-`The Brazilian winger has found minutes hard to come by, but he impressed in scoring against Brentford in the League Cup `\
-https://nytimes.com/athletic/6898826/2025/12/18/after-a-season-on-the-margins-savinho-offers-glimpse-of-his-potential/
+**How Early Decision at Colleges Is (and Is Not) About Your Money**\
+`Early decision isn’t just for the rich, as long as people with lower incomes can get accurate price quotes before agreeing to attend if they get in.`\
+https://nytimes.com/2025/12/18/your-money/early-decision-financial-aid-college-university.html
 

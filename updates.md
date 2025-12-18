@@ -1,3 +1,7 @@
+**When Judges Are Attacked, You Suffer**\
+`The rise in judicial threats is being fueled by the political rhetoric of the Trump administration, argues the judge Esther Salas.`\
+https://nytimes.com/video/opinion/100000010577027/when-judges-are-attacked-you-suffer.html
+
 **Must-See Moments From the N.B.A.**\
 `On Wednesday, the stumbling Cleveland Cavaliers fell to the Chicago Bulls as the Bulls’ Josh Giddey recorded a triple-double, and the Memphis Grizzlies won on the road against the Minnesota Timberwolves.`\
 https://nytimes.com/video/sports/basketball/100000010595471/must-see-moments-from-the-nba.html

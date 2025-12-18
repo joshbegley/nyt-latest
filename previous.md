@@ -1,3 +1,7 @@
+**When Judges Are Attacked, You Suffer**\
+`The rise in judicial threats is being fueled by the political rhetoric of the Trump administration, argues the judge Esther Salas.`\
+https://nytimes.com/video/opinion/100000010577027/when-judges-are-attacked-you-suffer.html
+
 **Must-See Moments From the N.B.A.**\
 `On Wednesday, the stumbling Cleveland Cavaliers fell to the Chicago Bulls as the Bulls’ Josh Giddey recorded a triple-double, and the Memphis Grizzlies won on the road against the Minnesota Timberwolves.`\
 https://nytimes.com/video/sports/basketball/100000010595471/must-see-moments-from-the-nba.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6898887/2025/12/18/49ers-vs-colts-stream-how-to-wat
 **After a season on the margins, Savinho offers a glimpse of his potential**\
 `The Brazilian winger has found minutes hard to come by, but he impressed in scoring against Brentford in the League Cup `\
 https://nytimes.com/athletic/6898826/2025/12/18/after-a-season-on-the-margins-savinho-offers-glimpse-of-his-potential/
-
-**BP Names New Boss After Its C.E.O. Steps Down**\
-`Meg O’Neill of Australia’s Woodside Energy will lead the London energy giant, replacing Murray Auchincloss, who will exit after less than two years in the role.`\
-https://nytimes.com/2025/12/18/business/bp-new-ceo-oil.html
 
