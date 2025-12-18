@@ -1,9 +1,13 @@
+**World Series-winning Dodgers received $484,747 per full postseason share in 2025**\
+`The Dodgers issued fewer total shares for their recent World Series victory than what they granted in 2025.`\
+https://nytimes.com/athletic/6899797/2025/12/18/dodgers-world-series-posteason-share-amounts/
+
 **Democratic Lawmakers Request Review of Commerce Secretary’s Possible Conflicts**\
 `Lawmakers in the House and the Senate asked a government watchdog to determine if Howard Lutnick is following ethics guidelines in promoting data centers that benefit his family’s businesses.`\
 https://nytimes.com/2025/12/18/us/politics/howard-lutnick-conflicts-inspector-general.html
 
 **Tarik Skubal joins Paul Skenes in Team USA's loaded rotation for 2026 WBC**\
-`Tarik Skubal's addition could give Team USA a big boost over Samurai Japan, the reigning WBC champions.`\
+`Skubal's addition could give Team USA a big boost over Samurai Japan, the reigning WBC champions.`\
 https://nytimes.com/athletic/6899582/2025/12/18/tarik-skubal-paul-skenes-team-usa-rotation-wbc-2026/
 
 **Breanna Stewart open to NBA commissioner Adam Silver joining WNBA CBA talks**\
@@ -29,12 +33,4 @@ https://nytimes.com/video/books/100000010560621/250-years-of-jane-austen-in-obje
 **French Doctor Sentenced to Life for Fatally Poisoning 12 People**\
 `Frédéric Péchier, an anesthesiologist, was found guilty of poisoning 30 patients, of whom 12 died.`\
 https://nytimes.com/2025/12/18/world/europe/france-anesthesiologist-fatal-poisoning.html
-
-**Missouri QB Beau Pribula to enter transfer portal, Zollers to start Gator Bowl**\
-`Pribula started 10 games for the Tigers after joining the team last season, having spent his first three years in college at Penn State.`\
-https://nytimes.com/athletic/6899664/2025/12/18/missouri-beau-pribula-enter-transfer-portal/
-
-**Massachusetts Battery Start-Up to List on Stock Exchange**\
-`Factorial, the start-up, said the listing would provide money that would help it bring new solid-state batteries to market as soon as 2027.`\
-https://nytimes.com/2025/12/18/business/energy-environment/factorial-electric-vehicle-battery-spac.html
 

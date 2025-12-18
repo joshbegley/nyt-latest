@@ -1,3 +1,11 @@
+**World Series-winning Dodgers received $484,747 per full postseason share in 2025**\
+`The Dodgers issued fewer total shares for their recent World Series victory than what they granted in 2025.`\
+https://nytimes.com/athletic/6899797/2025/12/18/dodgers-world-series-posteason-share-amounts/
+
+**Tarik Skubal joins Paul Skenes in Team USA's loaded rotation for 2026 WBC**\
+`Skubal's addition could give Team USA a big boost over Samurai Japan, the reigning WBC champions.`\
+https://nytimes.com/athletic/6899582/2025/12/18/tarik-skubal-paul-skenes-team-usa-rotation-wbc-2026/
+
 **Democratic Lawmakers Request Review of Commerce Secretary’s Possible Conflicts**\
 `Lawmakers in the House and the Senate asked a government watchdog to determine if Howard Lutnick is following ethics guidelines in promoting data centers that benefit his family’s businesses.`\
 https://nytimes.com/2025/12/18/us/politics/howard-lutnick-conflicts-inspector-general.html
