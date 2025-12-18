@@ -1,3 +1,7 @@
+**After a season on the margins, Savinho offers a glimpse of his potential**\
+`The Brazilian winger has found minutes hard to come by, but he impressed in scoring against Brentford in the League Cup `\
+https://nytimes.com/athletic/6898826/2025/12/18/after-a-season-on-the-margins-savinho-offers-glimpse-of-his-potential/
+
 **City Council Introduces Bill to Create Mamdani’s Community Safety Agency**\
 `The proposed Department of Community Safety would send mental health teams to respond to 911 calls, rather than the police, according to Mayor-elect Zohran Mamdani’s plans.`\
 https://nytimes.com/2025/12/18/nyregion/city-council-community-safety-mamdani.html
