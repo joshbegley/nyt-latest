@@ -18,7 +18,7 @@ https://nytimes.com/athletic/6900101/2025/12/18/dinosaur-footprints-near-milan-c
 `A jury on Thursday acquitted Marty Small Sr. of all four crimes he was charged with, including aggravated assault and endangering the welfare of his teenage daughter.`\
 https://nytimes.com/2025/12/18/nyregion/atlantic-city-mayor-not-guilty.html
 
-**Trump to Sign Executive Order to Reclassify Marijuana, Easing Restrictions on the Drug**\
+**Trump Signs Executive Order to Reclassify Marijuana, Easing Restrictions on the Drug**\
 `Marijuana’s classification as one of the most dangerous and habit-forming substances has long drawn criticism.`\
 https://nytimes.com/2025/12/18/us/politics/trump-marijuana-reclassify-order.html
 
