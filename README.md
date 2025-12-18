@@ -1,3 +1,15 @@
+**Max Sasson's deal, the blue line mix and Quinn Hughes' Canucks legacy: Notebook**\
+`The Canucks have turned the page on the Quinn Hughes era with a pair of surprising road wins.`\
+https://nytimes.com/athletic/6895745/2025/12/18/vancouver-canucks-zeev-buium-quinn-hughes-max-sasson/
+
+**The D.N.C. Is Killing Its Autopsy of What Went Wrong in 2024**\
+`Ken Martin, the Democratic National Committee chairman, ordered the report months ago but is now said to believe that its release would be counterproductive for the party.`\
+https://nytimes.com/2025/12/18/us/politics/dnc-2024-autopsy-democrats-ken-martin.html
+
+**Sticky Coconut Chicken and Rice, One-Pot and Pretty Perfect**\
+`Plump pieces of chicken thigh cook on top of gingery coconut rice studded with cashews, while cilantro and hot sauce add freshness and heat.`\
+https://nytimes.com/2025/12/18/dining/sticky-coconut-chicken-and-rice-one-pot-and-pretty-perfect.html
+
 **The Flop That Proved Rob Reiner Could Take Criticism With Humor**\
 `Roger Ebert said he “hated, hated, hated, hated, hated” Reiner’s 1994 film “North.” The director took it in stride.`\
 https://nytimes.com/2025/12/18/arts/rob-reiner-north-movie.html
@@ -25,16 +37,4 @@ https://nytimes.com/video/world/europe/100000010595674/european-union-ukraine-ru
 **Fantasy football injuries, inactives, cheat sheet Week 16**\
 `Fantasy football relevant injuries and their impact, weather reports and game previews. Plus, Ciely's Week 16 player rankings and more.`\
 https://nytimes.com/athletic/6894620/2025/12/18/fantasy-football-injuries-inactives-cheat-sheet-week-16/
-
-**Martha Stewart reveals Jalen Brunson accidentally broke her toe**\
-`Brunson collided with Stewart in Game 1 of the Eastern Conference semifinals.`\
-https://nytimes.com/athletic/6899370/2025/12/18/nba-martha-stewart-jalen-brunson-broken-toe/
-
-**Youngest Victim of Bondi Beach Shooting Laid to Rest**\
-`A funeral was held on Thursday for Matilda, 10, the youngest victim of Sunday’s mass shooting at Bondi Beach.`\
-https://nytimes.com/video/world/australia/100000010595508/bondi-shooting-matilda-funeral.html
-
-**They Thought They Had ‘Made It.’ Now They Can’t Afford Food.**\
-`New Yorkers in the so-called “missing middle,” who may make too much for food benefits, say it’s still hard to find enough money for groceries.`\
-https://nytimes.com/2025/12/18/nyregion/nyc-food-budgets.html
 
