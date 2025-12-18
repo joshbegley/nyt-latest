@@ -26,7 +26,7 @@ https://nytimes.com/card/2025/12/18/undefined/
 `Find out how to watch the San Francisco 49ers play the Indianapolis Colts, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6898887/2025/12/18/49ers-vs-colts-stream-how-to-watch-dec-22/
 
-**After a season on the margins, Savinho offers glimpse of his potential**\
+**After a season on the margins, Savinho offers a glimpse of his potential**\
 `The Brazilian winger has found minutes hard to come by, but he impressed in scoring against Brentford in the League Cup `\
 https://nytimes.com/athletic/6898826/2025/12/18/after-a-season-on-the-margins-savinho-offers-glimpse-of-his-potential/
 
