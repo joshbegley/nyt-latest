@@ -1,3 +1,27 @@
+**How to watch Pistons vs. Mavericks: Time, TV, streaming**\
+`Find out how to watch the Detroit Pistons play the Dallas Mavericks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6900778/2025/12/18/pistons-vs-mavericks-stream-how-to-watch-dec-18/
+
+**How to watch Kings vs. Trail Blazers: Time, TV, streaming**\
+`Find out how to watch the Sacramento Kings play the Portland Trail Blazers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6900773/2025/12/18/kings-vs-trail-blazers-stream-how-to-watch-dec-18/
+
+**How to watch Heat vs. Nets: Time, TV, streaming**\
+`Find out how to watch the Miami Heat play the Brooklyn Nets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6900770/2025/12/18/heat-vs-nets-stream-how-to-watch-dec-18/
+
+**How to watch Lakers vs. Jazz: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Lakers play the Utah Jazz, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6900767/2025/12/18/lakers-vs-jazz-stream-how-to-watch-dec-18/
+
+**Missouri State expected to hire SMU OC Casey Woods as coach: Source**\
+`Woods has been at SMU since 2022 and previously coached as an assistant at Missouri and UAB.`\
+https://nytimes.com/athletic/6900678/2025/12/18/missouri-state-smu-casey-woods-coach/
+
+**How to watch Rangers vs. Blues: Time, TV, streaming**\
+`Find out how to watch the New York Rangers play the St. Louis Blues, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6900765/2025/12/18/rangers-vs-blues-stream-how-to-watch-dec-18/
+
 **How to watch Warriors vs. Suns: Time, TV, streaming**\
 `Find out how to watch the Golden State Warriors play the Phoenix Suns, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6900760/2025/12/18/warriors-vs-suns-stream-how-to-watch-dec-18/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6900753/2025/12/18/rockets-vs-pelicans-stream-how-t
 **How to watch Flyers vs. Sabres: Time, TV, streaming**\
 `Find out how to watch the Philadelphia Flyers play the Buffalo Sabres, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6900750/2025/12/18/flyers-vs-sabres-stream-how-to-watch-dec-18/
-
-**How to watch Stars vs. Sharks: Time, TV, streaming**\
-`Find out how to watch the Dallas Stars play the San Jose Sharks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6900748/2025/12/18/stars-vs-sharks-stream-how-to-watch-dec-18/
-
-**How to watch Raptors vs. Bucks: Time, TV, streaming**\
-`Find out how to watch the Toronto Raptors play the Milwaukee Bucks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6900743/2025/12/18/raptors-vs-bucks-stream-how-to-watch-dec-18/
-
-**How to watch Kraken vs. Flames: Time, TV, streaming**\
-`Find out how to watch the Seattle Kraken play the Calgary Flames, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6900741/2025/12/18/kraken-vs-flames-stream-how-to-watch-dec-18/
-
-**How to watch Magic vs. Nuggets: Time, TV, streaming**\
-`Find out how to watch the Orlando Magic play the Denver Nuggets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6900732/2025/12/18/magic-vs-nuggets-stream-how-to-watch-dec-18/
-
-**How to watch Cal Poly vs. USC women's basketball: Time, TV, streaming**\
-`Find out how to watch the Cal Poly Mustangs play the USC Trojans, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6900721/2025/12/18/cal-poly-vs-usc-stream-how-to-watch-dec-18/
-
-**WNBPA authorizes executive committee to call for strike 'when necessary'**\
-`The announcement marked the latest development in a tense saga of labor talks between the union and league.`\
-https://nytimes.com/athletic/6900593/2025/12/18/wnba-players-association-strike-authorization/
 
