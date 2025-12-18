@@ -1,3 +1,7 @@
+**Coming Soon to a TV Near Trump: A G.O.P. Ad in N.Y. Governor’s Race**\
+`Bruce Blakeman, an ally of President Trump who is running for governor in New York, is buying ad time on Fox News in the West Palm Beach, Fla., market, where Mr. Trump may be watching.`\
+https://nytimes.com/2025/12/18/nyregion/blakeman-trump-fox-news.html
+
 **Winter Weather Kicks Into High Gear Just in Time for Christmas Travel**\
 `If you’re planning to hit the road in the next few days, here’s where storms may snarl your plans.`\
 https://nytimes.com/2025/12/18/weather/california-rain-christmas-snow-forecast.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000010596269/trump-presidential-plaques
 **Sue Bender, Who Wrote About Living With the Amish, Dies at 91**\
 `“Plain and Simple,” her best-selling 1989 book, was a go-to text of the anti-materialist movement known as voluntary simplicity.`\
 https://nytimes.com/2025/12/18/books/sue-bender-dead.html
-
-**Greg Biffle was a true 'wheelman' on the racetrack — and a true hero off it**\
-`Biffle won a lot of races in his NASCAR career. What he did after Hurricane Helene will leave an even deeper legacy.`\
-https://nytimes.com/athletic/6900518/2025/12/18/greg-biffle-legacy-nascar-hurricane-helene/
 

@@ -1,3 +1,7 @@
+**Winter Weather Kicks Into High Gear Just in Time for Christmas Travel**\
+`If you’re planning to hit the road in the next few days, here’s where storms may snarl your plans.`\
+https://nytimes.com/2025/12/18/weather/california-rain-christmas-snow-forecast.html
+
 **2025 Faces Quiz**\
 `See how well you know the defining personalities of 2025 with The New York Times Faces Quiz.`\
 https://nytimes.com/interactive/2025/briefing/2025-faces-quiz.html
