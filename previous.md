@@ -1,5 +1,17 @@
+**Greg Biffle was a true 'wheelman' on the racetrack — and a true hero off it**\
+`Biffle won a lot of races in his NASCAR career. What he did after Hurricane Helene will leave an even deeper legacy.`\
+https://nytimes.com/athletic/6900518/2025/12/18/greg-biffle-legacy-nascar-hurricane-helene/
+
+**U.K. Appoints New Ambassador to U.S. After Predecessor Is Fired Over Epstein Links**\
+`Christian Turner’s appointment comes as the United States and Britain’s relationship is being tested amid a number of foreign policy issues.`\
+https://nytimes.com/2025/12/18/world/europe/uk-ambassador-us-turner.html
+
+**3 Make-Ahead Holiday Brunch Recipes for a Crowd**\
+`Turn Genevieve Ko’s cinnamon roll Bundt cake, breakfast enchiladas or sesame scallion buns into a new holiday tradition.`\
+https://nytimes.com/2025/12/18/dining/make-ahead-christmas-brunch-menu.html
+
 **U.S. Accuses Venezuelan of Masterminding Tren de Aragua’s Expansion**\
-`The gang, which was also the subject of charges brought in Nebraska, is President Trump’s chosen nemesis. The defendant remains at large.`\
+`The gang, which was the subject of charges brought in several states, is President Trump’s chosen nemesis. The defendant remains at large.`\
 https://nytimes.com/2025/12/18/us/politics/tren-de-aragua-venezuela-gang.html
 
 **NFL Week 16 model-projected scores and point totals for every game**\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6899328/2025/12/18/rory-mcilroy-bbc-sports-personal
 **Saban compares JMU’s playoff spot to minor-league team reaching World Series**\
 `The five highest-ranked conference champions make the field even if they don't finish in the top 12 of the rankings.`\
 https://nytimes.com/athletic/6900603/2025/12/18/nick-saban-jmu-college-football-playoff-mcafee/
-
-**Warriors' Al Horford says he's likely out another week with sciatica**\
-`The 39-year-old veteran has played in just 13 games this season after signing with the Warriors earlier this year.`\
-https://nytimes.com/athletic/6900696/2025/12/18/warriors-al-horford-sciatica/
-
-**Texas names Muschamp new defensive coordinator after firing Kwiatkowski**\
-`Will Muschamp is back running an SEC defense, and it will be back at Texas, where his head coaching career was originally supposed to begin.`\
-https://nytimes.com/athletic/6900841/2025/12/18/texas-will-mushchamp-defensive-coordinator/
-
-**Who is Adin Ross, the streamer who hosted Puka Nacua?**\
-`Along with Puka Nacua, Ross has mingled with athletes Bronny James, Antonio Brown and international soccer star Neymar.`\
-https://nytimes.com/athletic/6900434/2025/12/18/adin-ross-puka-nacua-livestream/
 

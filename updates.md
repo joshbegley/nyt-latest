@@ -1,3 +1,19 @@
+**Greg Biffle was a true 'wheelman' on the racetrack — and a true hero off it**\
+`Biffle won a lot of races in his NASCAR career. What he did after Hurricane Helene will leave an even deeper legacy.`\
+https://nytimes.com/athletic/6900518/2025/12/18/greg-biffle-legacy-nascar-hurricane-helene/
+
+**U.K. Appoints New Ambassador to U.S. After Predecessor Is Fired Over Epstein Links**\
+`Christian Turner’s appointment comes as the United States and Britain’s relationship is being tested amid a number of foreign policy issues.`\
+https://nytimes.com/2025/12/18/world/europe/uk-ambassador-us-turner.html
+
+**3 Make-Ahead Holiday Brunch Recipes for a Crowd**\
+`Turn Genevieve Ko’s cinnamon roll Bundt cake, breakfast enchiladas or sesame scallion buns into a new holiday tradition.`\
+https://nytimes.com/2025/12/18/dining/make-ahead-christmas-brunch-menu.html
+
+**U.S. Accuses Venezuelan of Masterminding Tren de Aragua’s Expansion**\
+`The gang, which was the subject of charges brought in several states, is President Trump’s chosen nemesis. The defendant remains at large.`\
+https://nytimes.com/2025/12/18/us/politics/tren-de-aragua-venezuela-gang.html
+
 **U.S. Accuses Venezuelan of Masterminding Tren de Aragua’s Expansion**\
 `The gang, which was also the subject of charges brought in Nebraska, is President Trump’s chosen nemesis. The defendant remains at large.`\
 https://nytimes.com/2025/12/18/us/politics/tren-de-aragua-venezuela-gang.html
