@@ -1,3 +1,7 @@
+**Ask a Journalist: Reporting on Youth Trends With Data and Graphics**\
+`The Times Upshot reporter Claire Cain Miller joins us in January to chat with teenagers about using data and visuals to help explain the world. Post your comments and questions for her by Jan. 16.`\
+https://nytimes.com/2025/12/18/learning/lesson-plans/ask-a-journalist-reporting-on-youth-trends-with-data-and-graphics.html
+
 **West Ham part ways with women's head coach Rehanne Skinner**\
 `The 46-year-old leaves West Ham 11th in the Women's Super League (WSL) with just one win in 11 matches.`\
 https://nytimes.com/athletic/6899053/2025/12/18/west-ham-sack-rehanne-skinner/

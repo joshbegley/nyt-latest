@@ -1,3 +1,7 @@
+**Trump Announces ‘Warrior Dividend’ For Troops**\
+`President Trump promised active duty troops a $1,776 check from revenue raised by tariffs, without acknowledging that the Supreme Court is weighing the legality of the powers used to impose the levies.`\
+https://nytimes.com/2025/12/18/us/trump-address-warrior-dividend-military-check-1776.html
+
 **Ask a Journalist: Reporting on Youth Trends With Data and Graphics**\
 `The Times Upshot reporter Claire Cain Miller joins us in January to chat with teenagers about using data and visuals to help explain the world. Post your comments and questions for her by Jan. 16.`\
 https://nytimes.com/2025/12/18/learning/lesson-plans/ask-a-journalist-reporting-on-youth-trends-with-data-and-graphics.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6899194/2025/12/18/oliver-rioux-florida-first-baske
 **Como's Fabregas in dispute with Senegal over Diao's AFCON participation**\
 `Diao, 20, has made just seven appearances this campaign due to recurring issues, namely with his foot and hamstring.`\
 https://nytimes.com/athletic/6896965/2025/12/18/fabregas-senegal-diao-afcon-squad-news/
-
-**Truth Social Parent to Merge With Nuclear Fusion Firm in $6 Billion Deal**\
-`Trump Media & Technology Group, the social media and crypto company part owned by President Trump, said it would help develop a “utility-scale fusion power plant.”`\
-https://nytimes.com/2025/12/18/business/trump-media-tae-technologies-fusion-power-deal.html
 
