@@ -1,3 +1,7 @@
+**Winter Weather Kicks Into High Gear Just in Time for Christmas Travel**\
+`If you’re planning to hit the road in the next few days, here’s where storms may snarl your plans.`\
+https://nytimes.com/2025/12/18/weather/california-rain-christmas-snow-forecast.html
+
 **2025 Faces Quiz**\
 `See how well you know the defining personalities of 2025 with The New York Times Faces Quiz.`\
 https://nytimes.com/interactive/2025/briefing/2025-faces-quiz.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/18/books/sue-bender-dead.html
 **Greg Biffle was a true 'wheelman' on the racetrack — and a true hero off it**\
 `Biffle won a lot of races in his NASCAR career. What he did after Hurricane Helene will leave an even deeper legacy.`\
 https://nytimes.com/athletic/6900518/2025/12/18/greg-biffle-legacy-nascar-hurricane-helene/
-
-**U.K. Appoints New Ambassador to U.S. After Predecessor Is Fired Over Epstein Links**\
-`Christian Turner’s appointment comes as the United States and Britain’s relationship is being tested amid a number of foreign policy issues.`\
-https://nytimes.com/2025/12/18/world/europe/uk-ambassador-us-turner.html
 

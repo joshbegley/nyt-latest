@@ -1,3 +1,19 @@
+**2025 Faces Quiz**\
+`See how well you know the defining personalities of 2025 with The New York Times Faces Quiz.`\
+https://nytimes.com/interactive/2025/briefing/2025-faces-quiz.html
+
+**2025 Faces Quiz: Sports**\
+`See how well you know the athletes of 2025 with The New York Times Faces Quiz.`\
+https://nytimes.com/interactive/2025/briefing/2025-faces-quiz-sports.html
+
+**2025 Faces Quiz: Politics**\
+`See how well you know the politicians of 2025 with The New York Times Faces Quiz.`\
+https://nytimes.com/interactive/2025/briefing/2025-faces-quiz-politics.html
+
+**2025 Faces Quiz: Culture**\
+`See how well you know the television, movie, music and literary figures of 2025 with The New York Times Faces Quiz.`\
+https://nytimes.com/interactive/2025/briefing/2025-faces-quiz-culture.html
+
 **Jelly Roll Is Pardoned for Previous Robbery and Drug Convictions**\
 `The clemency decision by Gov. Bill Lee of Tennessee could make it easier for the country star to travel internationally.`\
 https://nytimes.com/2025/12/18/arts/music/jelly-roll-pardon-tennessee.html

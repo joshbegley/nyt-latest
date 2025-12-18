@@ -1,3 +1,19 @@
+**2025 Faces Quiz**\
+`See how well you know the defining personalities of 2025 with The New York Times Faces Quiz.`\
+https://nytimes.com/interactive/2025/briefing/2025-faces-quiz.html
+
+**2025 Faces Quiz: Sports**\
+`See how well you know the athletes of 2025 with The New York Times Faces Quiz.`\
+https://nytimes.com/interactive/2025/briefing/2025-faces-quiz-sports.html
+
+**2025 Faces Quiz: Politics**\
+`See how well you know the politicians of 2025 with The New York Times Faces Quiz.`\
+https://nytimes.com/interactive/2025/briefing/2025-faces-quiz-politics.html
+
+**2025 Faces Quiz: Culture**\
+`See how well you know the television, movie, music and literary figures of 2025 with The New York Times Faces Quiz.`\
+https://nytimes.com/interactive/2025/briefing/2025-faces-quiz-culture.html
+
 **Jelly Roll Is Pardoned for Previous Robbery and Drug Convictions**\
 `The clemency decision by Gov. Bill Lee of Tennessee could make it easier for the country star to travel internationally.`\
 https://nytimes.com/2025/12/18/arts/music/jelly-roll-pardon-tennessee.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6900518/2025/12/18/greg-biffle-legacy-nascar-hurric
 **U.K. Appoints New Ambassador to U.S. After Predecessor Is Fired Over Epstein Links**\
 `Christian Turner’s appointment comes as the United States and Britain’s relationship is being tested amid a number of foreign policy issues.`\
 https://nytimes.com/2025/12/18/world/europe/uk-ambassador-us-turner.html
-
-**3 Make-Ahead Holiday Brunch Recipes for a Crowd**\
-`Turn Genevieve Ko’s cinnamon roll Bundt cake, breakfast enchiladas or sesame scallion buns into a new holiday tradition.`\
-https://nytimes.com/2025/12/18/dining/make-ahead-christmas-brunch-menu.html
-
-**U.S. Accuses Venezuelan of Masterminding Tren de Aragua’s Expansion**\
-`The gang, which was the subject of charges brought in several states, is President Trump’s chosen nemesis. The defendant remains at large.`\
-https://nytimes.com/2025/12/18/us/politics/tren-de-aragua-venezuela-gang.html
-
-**NFL Week 16 model-projected scores and point totals for every game**\
-`Austin Mock's NFL Projection Model gives its predictions for the points differentials and totals for every Week 16 game.`\
-https://nytimes.com/athletic/6900667/2025/12/18/nfl-week-16-odds-projected-scores-point-spreads-totals/
-
-**Mamdani Appointee Resigns After Decade-Old Antisemitic Posts Re-emerge**\
-`Catherine Almonte Da Costa resigned from her just-announced post as Mayor-elect Zohran Mamdani’s director of appointments after the Anti-Defamation League resurfaced the comments.`\
-https://nytimes.com/2025/12/18/nyregion/mamdani-resigns-antisemitic-da-costa.html
 
