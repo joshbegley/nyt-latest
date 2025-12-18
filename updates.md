@@ -1,3 +1,11 @@
+**The College Football Playoff's best players at every position on the field**\
+`Seven of the top nine finishers in Heisman Trophy voting will compete in this year’s CFP, representing five different teams.`\
+https://nytimes.com/athletic/6897290/2025/12/18/college-football-playoff-best-players/
+
+**The Putin Confidant Who Pushed Back Against the War**\
+`Dmitri N. Kozak had worked with President Vladimir V. Putin for three decades before quitting in September. His associates described his break with the Russian leader.`\
+https://nytimes.com/2025/12/18/world/europe/russia-putin-aide-dmitri-kozak-ukraine-war.html
+
 **Seahawks vs. Rams and four more Week 16 games that will have huge impact on playoff races**\
 `The Week 16 slate is loaded with high-stakes games, including a Bears-Packers game that will likely determine the winner of the NFC North.`\
 https://nytimes.com/athletic/6894180/2025/12/18/nfl-playoff-races-week-16-rams-seahawks-bears-packers/
