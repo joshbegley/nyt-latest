@@ -1,3 +1,7 @@
+**Breanna Stewart open to NBA commissioner Adam Silver joining WNBA CBA talks**\
+`Silver said he has been closely monitoring the labor discussions.`\
+https://nytimes.com/athletic/6899487/2025/12/18/wnba-cba-breanna-stewart-adam-silver/
+
 **How Many Ski Chalets Does a Mountainless City Need?**\
 `Restaurants, bars and hotels have gone full après-ski, hold the skiing.`\
 https://nytimes.com/2025/12/18/dining/ski-chalets.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6899400/2025/12/18/plane-crash-government-liability
 **NCAA 'vehemently opposed' as Kalshi files to offer prediction markets on player transfers**\
 `Kalshi filed the necessary paperwork to begin taking bets this week on who will transfer, but as of Thursday no markets are available.`\
 https://nytimes.com/athletic/6899520/2025/12/18/ncaa-transfer-portal-kalshi-prediction-markets/
-
-**Garnett taking role with Timberwolves, ending long estrangement with former team**\
-`Garnett had a strained relationship with former owner Glen Taylor and his jersey has yet to be retired.`\
-https://nytimes.com/athletic/6899454/2025/12/18/kevin-garnett-timberwolves-off-court-role/
 
