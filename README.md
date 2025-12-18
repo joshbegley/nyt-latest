@@ -1,3 +1,7 @@
+**The Putin Confidant Who Pushed Back Against the War**\
+`Dmitri N. Kozak had worked with President Vladimir V. Putin for three decades before quitting in September. His associates described his break with the Russian leader.`\
+https://nytimes.com/2025/12/18/world/europe/russia-putin-aide-dmitri-kozak-ukraine-war.html
+
 **Seahawks vs. Rams and four more Week 16 games that will have huge impact on playoff races**\
 `The Week 16 slate is loaded with high-stakes games, including a Bears-Packers game that will likely determine the winner of the NFC North.`\
 https://nytimes.com/athletic/6894180/2025/12/18/nfl-playoff-races-week-16-rams-seahawks-bears-packers/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/18/opinion/bondi-beach-uvalde-parkland-courage.html
 **Rob Reiner Made Your Favorite Movie**\
 `He made mine. You know the scene.`\
 https://nytimes.com/2025/12/18/podcasts/rob-reiner-made-your-favorite-movie.html
-
-**Outside Dallas, a Young Family Just Wanted Some Space. Here’s Where They Found It.**\
-`After a long stint in Europe, a Texas couple brought their two young daughters home and searched for a house in a good school district with room for grandparents and friends.`\
-https://nytimes.com/interactive/2025/12/18/realestate/dallas-fort-worth-texas-homes-sale.html
 
