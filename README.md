@@ -1,3 +1,7 @@
+**Presidential History, According to Trump**\
+`The White House unveiled plaques near the Oval Office that describe U.S. presidents with varying levels of accuracy, depending on President Trump’s opinion of them.`\
+https://nytimes.com/2025/12/17/us/politics/trump-presidential-walk-of-fame-white-house.html
+
 **Trump’s handling of the economy has dragged down his approval rating.**\
 `By Ruth Igielnik and Tyler Pager`\
 https://nytimes.com/live/2025/12/17/us/trump-address-nation-speech/trumps-handling-of-the-economy-has-dragged-down-his-approval-rating
@@ -19,7 +23,7 @@ https://nytimes.com/2025/12/17/nyregion/ghislaine-maxwell-prison-jeffrey-epstein
 https://nytimes.com/2025/12/17/us/politics/senate-defense-bills-air-safety.html
 
 **Twins owner Tom Pohlad talks replacing brother, new minority partners, winning back fans**\
-`Takeaways from Tom Pohlad's first press conference in charge of the Twins and why the changes could be a mixed bag for frustrated fans.`\
+`Takeaways from Tom Pohlad's first news conference in charge of the Twins and why the changes could be a mixed bag for frustrated fans.`\
 https://nytimes.com/athletic/6897605/2025/12/17/minnesota-twins-tom-pohlad-ownership-developments/
 
 **The Year in Pictures 2025**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6897950/2025/12/17/james-harden-injury-calf-out-cli
 **Nats continue youth movement; set to hire Phillies' Ani Kilambi, 31, as GM: Source**\
 `The Nationals will have a 33-year-old manager, 31-year-old GM and 35-year-old president of baseball operations.`\
 https://nytimes.com/athletic/6897955/2025/12/17/nationals-youth-movement-ani-kilambi-gm/
-
-**ICE Must Allow Lawmakers to Inspect Detention Centers, Judge Rules**\
-`Judge Jia M. Cobb wrote that two policies announced in June appeared to unlawfully bar members of Congress from making unannounced visits at immigration detention facilities.`\
-https://nytimes.com/2025/12/17/us/politics/ice-inspections-democrats-congress-lawsuit.html
 
