@@ -1,3 +1,7 @@
+**Zuckerberg Compound Prompts Palo Alto to Consider Billionaire Housing Law**\
+`The Silicon Valley college town has changed drastically as Mark Zuckerberg, Larry Page and other tech founders have scooped up multiple properties.`\
+https://nytimes.com/2025/12/18/us/palo-alto-billionaire-compound-law.html
+
 **Week 16 NFL playoff picture: A team-by-team look at every possible scenario**\
 `With three weeks remaining in the 2025 NFL season, the playoff picture is starting to take shape.`\
 https://nytimes.com/athletic/6891435/2025/12/18/week-16-nfl-playoff-picture-a-team-by-team-look-at-every-possible-scenario/
@@ -19,7 +23,7 @@ https://nytimes.com/athletic/6899194/2025/12/18/oliver-rioux-florida-first-baske
 https://nytimes.com/athletic/6896965/2025/12/18/fabregas-senegal-diao-afcon-squad-news/
 
 **Truth Social Parent to Merge With Nuclear Fusion Firm in $6 Billion Deal**\
-`The deal would be a total transformation for Trump Media & Technology Group, the social media and crypto company in which President Trump holds a large stake.`\
+`Trump Media & Technology Group, the social media and crypto company in which President Trump holds a large stake, said it would help develop a “utility-scale fusion power plant.”`\
 https://nytimes.com/2025/12/18/business/trump-media-tae-technologies-fusion-power-deal.html
 
 **UWCL draw: Arsenal to face Chelsea if they win play-off game**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/18/business/dealbook/affordability-crisis-trump.html
 **If this is Guardiola’s goodbye to English football, his legacy is unique**\
 `No coach has had a greater impact on the English game in recent times than the Catalan, who will be the ultimate hard act to follow`\
 https://nytimes.com/athletic/6898463/2025/12/18/pep-guardiola-manchester-city-legacy/
-
-**Trump Administration Live Updates: President Defends Record on Economy Amid Americans’ Concerns**\
-``\
-https://nytimes.com/live/2025/12/18/us/trump-news
 

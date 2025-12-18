@@ -1,3 +1,11 @@
+**Zuckerberg Compound Prompts Palo Alto to Consider Billionaire Housing Law**\
+`The Silicon Valley college town has changed drastically as Mark Zuckerberg, Larry Page and other tech founders have scooped up multiple properties.`\
+https://nytimes.com/2025/12/18/us/palo-alto-billionaire-compound-law.html
+
+**Truth Social Parent to Merge With Nuclear Fusion Firm in $6 Billion Deal**\
+`Trump Media & Technology Group, the social media and crypto company in which President Trump holds a large stake, said it would help develop a “utility-scale fusion power plant.”`\
+https://nytimes.com/2025/12/18/business/trump-media-tae-technologies-fusion-power-deal.html
+
 **Week 16 NFL playoff picture: A team-by-team look at every possible scenario**\
 `With three weeks remaining in the 2025 NFL season, the playoff picture is starting to take shape.`\
 https://nytimes.com/athletic/6891435/2025/12/18/week-16-nfl-playoff-picture-a-team-by-team-look-at-every-possible-scenario/
