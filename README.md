@@ -1,3 +1,7 @@
+**Jet Crashes at North Carolina Airport**\
+`The Federal Aviation Administration said several people were killed when a Cessna C550 jet crashed while landing at Statesville Regional Airport.`\
+https://nytimes.com/video/us/100000010596592/north-carolina-jet-crash.html
+
 **Rams star Puka Nacua apologizes for antisemitic dance on livestream**\
 `Nacua, 24, appeared with streamers Adin Ross and N3on this week in advance of the Rams' Thursday night game against the Seattle Seahawks.`\
 https://nytimes.com/athletic/6900166/2025/12/18/puka-nacua-apology-rams-adin-ross-stream/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6899642/2025/12/18/plane-crash-greg-biffle-nascar-d
 **A Lesson From the Abrego Garcia Saga**\
 `Kilmar Armando Abrego Garcia’s release from immigration detention last week offers a useful model for how Democrats can successfully challenge the Trump administration, the Opinion columnist Jamelle Bouie argues.`\
 https://nytimes.com/video/opinion/100000010594893/a-lesson-from-the-abrego-garcia-saga.html
-
-**Putin to Project Unyielding Stance on Ukraine at News Marathon**\
-`The annual news conference sets the Kremlin’s tone for the next year and highlights President Vladimir V. Putin’s grip over Russia.`\
-https://nytimes.com/2025/12/18/world/europe/putin-russia-ukraine.html
 
