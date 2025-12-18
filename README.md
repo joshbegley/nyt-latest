@@ -1,3 +1,7 @@
+**Late Night Shades Trump’s Impromptu ‘Liar-side Chat’**\
+`Jimmy Kimmel called the president’s last-minute speech “a surprise prime-time episode of ‘The Worst Wing’ tonight on every channel.”`\
+https://nytimes.com/2025/12/18/arts/television/late-night-trump-address.html
+
 **Australia Mourns the Youngest Victim of the Bondi Beach Shooting**\
 `Sydney’s devastated Jewish community gathered for the funeral of “Matilda Bee,” an ebullient, smiling 10-year-old girl.`\
 https://nytimes.com/2025/12/18/world/asia/australia-matilda-funeral-bondi-shooting.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6896077/2025/12/18/fantasy-premier-league-fpl-tips-
 **Newcastle have taken a step towards derby-day redemption — and Wembley**\
 `Eddie Howe's side needed to win after Sunday's ignominy on Wearside, and they did. They really had no alternative.`\
 https://nytimes.com/athletic/6898376/2025/12/18/newcastle-howe-carabao-redemption-sunderland/
-
-**Callum Hudson-Odoi is turning his season around at Forest - can he go up another level?**\
-`Against Tottenham, it felt like it was Hudson-Odoi emphatically back at his best. He's showing again why he is Forest's leading wide man`\
-https://nytimes.com/athletic/6896611/2025/12/18/callum-hudson-odoi-forest-tottenham/
 
