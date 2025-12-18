@@ -1,3 +1,11 @@
+**West Ham sack women's head coach Rehanne Skinner**\
+`The 46-year-old leaves West Ham 11th in the Women's Super League (WSL) with just one win in 11 matches.`\
+https://nytimes.com/athletic/6899053/2025/12/18/west-ham-sack-rehanne-skinner/
+
+**Truth Social Parent to Merge With Nuclear Fusion Firm in $6 Billion Deal**\
+`Trump Media & Technology Group, the social media and crypto company part owned by President Trump, said it would help develop a “utility-scale fusion power plant.”`\
+https://nytimes.com/2025/12/18/business/trump-media-tae-technologies-fusion-power-deal.html
+
 **Over 1,000 Were Killed in Attack on Famine-Stricken Camp in Sudan, U.N. Says**\
 `A paramilitary attack in April was one of the most brutal of Sudan’s civil war. Now, hunger is spreading as Western aid cuts have reduced U.N. rations.`\
 https://nytimes.com/2025/12/18/world/africa/sudan-rsf-attack-darfur-un.html

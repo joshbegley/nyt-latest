@@ -1,4 +1,4 @@
-**West Ham sack women's head coach Rehanne Skinner**\
+**West Ham part ways with women's head coach Rehanne Skinner**\
 `The 46-year-old leaves West Ham 11th in the Women's Super League (WSL) with just one win in 11 matches.`\
 https://nytimes.com/athletic/6899053/2025/12/18/west-ham-sack-rehanne-skinner/
 

@@ -1,3 +1,7 @@
+**West Ham sack women's head coach Rehanne Skinner**\
+`The 46-year-old leaves West Ham 11th in the Women's Super League (WSL) with just one win in 11 matches.`\
+https://nytimes.com/athletic/6899053/2025/12/18/west-ham-sack-rehanne-skinner/
+
 **Over 1,000 Were Killed in Attack on Famine-Stricken Camp in Sudan, U.N. Says**\
 `A paramilitary attack in April was one of the most brutal of Sudan’s civil war. Now, hunger is spreading as Western aid cuts have reduced U.N. rations.`\
 https://nytimes.com/2025/12/18/world/africa/sudan-rsf-attack-darfur-un.html
@@ -27,14 +31,10 @@ https://nytimes.com/athletic/6899194/2025/12/18/oliver-rioux-florida-first-baske
 https://nytimes.com/athletic/6896965/2025/12/18/fabregas-senegal-diao-afcon-squad-news/
 
 **Truth Social Parent to Merge With Nuclear Fusion Firm in $6 Billion Deal**\
-`Trump Media & Technology Group, the social media and crypto company in which President Trump holds a large stake, said it would help develop a “utility-scale fusion power plant.”`\
+`Trump Media & Technology Group, the social media and crypto company part owned by President Trump, said it would help develop a “utility-scale fusion power plant.”`\
 https://nytimes.com/2025/12/18/business/trump-media-tae-technologies-fusion-power-deal.html
 
 **UWCL draw: Arsenal to face Chelsea if they win play-off game**\
 `The play-offs will take place over February 11-12 and 18-19 before the quarter-finals in late March and early April. `\
 https://nytimes.com/athletic/6898939/2025/12/18/womens-champions-league-arsenal-chelsea-man-utd/
-
-**Why the Affordability Crisis Is Likely to Stalk Trump**\
-`The president promoted his economic accomplishments in a defiant address. But some voters are feeling the pinch of stubborn inflation and a cooling labor market.`\
-https://nytimes.com/2025/12/18/business/dealbook/affordability-crisis-trump.html
 
