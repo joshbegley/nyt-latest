@@ -1,3 +1,19 @@
+**Plane registered to former NASCAR driver Greg Biffle crashes in North Carolina**\
+`A Cessna plane registered to Biffle's GB Aviation crashed Thursday outside of Charlotte. There's been no confirmation who was on board.`\
+https://nytimes.com/athletic/6899642/2025/12/18/plane-crash-greg-biffle-nascar-driver/
+
+**A Lesson From the Abrego Garcia Saga**\
+`Kilmar Armando Abrego Garcia’s release from immigration detention last week offers a useful model for how Democrats can successfully challenge the Trump administration, the Opinion columnist Jamelle Bouie argues.`\
+https://nytimes.com/video/opinion/100000010594893/a-lesson-from-the-abrego-garcia-saga.html
+
+**Putin to Project Unyielding Stance on Ukraine at News Marathon**\
+`The annual news conference sets the Kremlin’s tone for the next year and highlights President Vladimir V. Putin’s grip over Russia.`\
+https://nytimes.com/2025/12/18/world/europe/putin-russia-ukraine.html
+
+**Trump’s Drone Strikes Are Wrong. Obama’s Were, Too**\
+`Readers respond to a guest essay on why the recent boat strikes by the Trump administration are unjustified. `\
+https://nytimes.com/2025/12/18/opinion/trump-obama-drone-strikes-illegal.html
+
 **Trump’s Drone Strikes Are Wrong. Obama’s Were, Too**\
 `Readers respond to a guest essay on why the string of recent boat strikes by the Trump administration are unjustified. `\
 https://nytimes.com/2025/12/18/opinion/trump-obama-drone-strikes-illegal.html

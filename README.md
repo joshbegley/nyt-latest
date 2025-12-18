@@ -1,3 +1,7 @@
+**Trump to Sign Executive Order to Reclassify Marijuana, Easing Restrictions on the Drug**\
+`Marijuana’s classification as one of the most dangerous and habit-forming substances has long drawn criticism.`\
+https://nytimes.com/2025/12/18/us/politics/trump-marijuana-reclassify-order.html
+
 **Plane registered to former NASCAR driver Greg Biffle crashes in North Carolina**\
 `A Cessna plane registered to Biffle's GB Aviation crashed Thursday outside of Charlotte. There's been no confirmation who was on board.`\
 https://nytimes.com/athletic/6899642/2025/12/18/plane-crash-greg-biffle-nascar-driver/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/18/us/statesville-plane-crash-north-carolina.html
 **Trump’s Drone Strikes Are Wrong. Obama’s Were, Too**\
 `Readers respond to a guest essay on why the recent boat strikes by the Trump administration are unjustified. `\
 https://nytimes.com/2025/12/18/opinion/trump-obama-drone-strikes-illegal.html
-
-**Trump Administration Tries to Stop Some Immigrants From Driving Trucks**\
-`The transportation department said the new rules were intended to make roads safer, but there’s no data to suggest that immigrants cause more truck accidents.`\
-https://nytimes.com/2025/12/18/business/trump-immigrants-trucks.html
 

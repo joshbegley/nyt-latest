@@ -1,3 +1,15 @@
+**Plane registered to former NASCAR driver Greg Biffle crashes in North Carolina**\
+`A Cessna plane registered to Biffle's GB Aviation crashed Thursday outside of Charlotte. There's been no confirmation who was on board.`\
+https://nytimes.com/athletic/6899642/2025/12/18/plane-crash-greg-biffle-nascar-driver/
+
+**A Lesson From the Abrego Garcia Saga**\
+`Kilmar Armando Abrego Garcia’s release from immigration detention last week offers a useful model for how Democrats can successfully challenge the Trump administration, the Opinion columnist Jamelle Bouie argues.`\
+https://nytimes.com/video/opinion/100000010594893/a-lesson-from-the-abrego-garcia-saga.html
+
+**Putin to Project Unyielding Stance on Ukraine at News Marathon**\
+`The annual news conference sets the Kremlin’s tone for the next year and highlights President Vladimir V. Putin’s grip over Russia.`\
+https://nytimes.com/2025/12/18/world/europe/putin-russia-ukraine.html
+
 **N.Y.C. Subway Crime Is Down, Hochul Says, Rebutting Trump Officials**\
 `Gov. Kathy Hochul said the state would spend another $77 million on police patrols in the subway, acknowledging that felony assaults remain stubbornly high.`\
 https://nytimes.com/2025/12/18/nyregion/nyc-subway-mta-safety-low-crime.html
@@ -19,22 +31,10 @@ https://nytimes.com/athletic/6899696/2025/12/18/colombia-football-violence-medel
 https://nytimes.com/2025/12/18/us/statesville-plane-crash-north-carolina.html
 
 **Trump’s Drone Strikes Are Wrong. Obama’s Were, Too**\
-`Readers respond to a guest essay on why the string of recent boat strikes by the Trump administration are unjustified. `\
+`Readers respond to a guest essay on why the recent boat strikes by the Trump administration are unjustified. `\
 https://nytimes.com/2025/12/18/opinion/trump-obama-drone-strikes-illegal.html
 
 **Trump Administration Tries to Stop Some Immigrants From Driving Trucks**\
 `The transportation department said the new rules were intended to make roads safer, but there’s no data to suggest that immigrants cause more truck accidents.`\
 https://nytimes.com/2025/12/18/business/trump-immigrants-trucks.html
-
-**Once Again, Health Care Proves to Be a Bitter Political Pill for G.O.P.**\
-`The inability to find a credible counter to the Affordable Care Act has long bedeviled Republicans and cost them at the polls. It’s threatening to do so again next year.`\
-https://nytimes.com/2025/12/18/us/politics/health-care-gop.html
-
-**Until Saturday: What a high-pressure Playoff**\
-`Until Saturday is The Athletic's free college football newsletter.`\
-https://nytimes.com/athletic/6899917/2025/12/18/college-football-playoff-teams-2025-until-saturday/
-
-**Getting back to Seattle has been long overdue for the NBA**\
-`The Emerald City, through no fault of its own, has been without an NBA team for 17 years. It's long past time to rectify that mistake.`\
-https://nytimes.com/athletic/6897297/2025/12/18/nba-expansion-seattle-adam-silver/
 
