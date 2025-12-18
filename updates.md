@@ -1,3 +1,7 @@
+**The Year in Pictures 2025**\
+`Reflections of Turbulent Times`\
+https://nytimes.com/interactive/2025/world/year-in-pictures.html
+
 **Injured James Harden won't play vs. Thunder. Status vs. Lakers Saturday TBD**\
 `Harden practiced Sunday with a sleeve on his left leg, a day after the Clippers had a film session and canceled a practice due to injuries.`\
 https://nytimes.com/athletic/6897950/2025/12/17/james-harden-injury-calf-out-clippers/
