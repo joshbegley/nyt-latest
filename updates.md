@@ -1,3 +1,19 @@
+**How to watch 49ers vs. Colts: Time, TV, streaming**\
+`Find out how to watch the San Francisco 49ers play the Indianapolis Colts, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6898887/2025/12/18/49ers-vs-colts-stream-how-to-watch-dec-22/
+
+**After a season on the margins, Savinho offers glimpse of his potential**\
+`The Brazilian winger has found minutes hard to come by, but he impressed in scoring against Brentford in the League Cup `\
+https://nytimes.com/athletic/6898826/2025/12/18/after-a-season-on-the-margins-savinho-offers-glimpse-of-his-potential/
+
+**BP Names New Boss After Its C.E.O. Steps Down**\
+`Meg O’Neill of Australia’s Woodside Energy will lead the London energy giant, replacing Murray Auchincloss, who will exit after less than two years in the role.`\
+https://nytimes.com/2025/12/18/business/bp-new-ceo-oil.html
+
+**The Ashes Briefing: Relentless Australia stamp their authority on England as Ben Stokes stands alone**\
+`The tourists' batters wilted once more against an experienced bowling attack with more scrutiny falling on the on-field technology`\
+https://nytimes.com/athletic/6897480/2025/12/18/ashes-england-australia-lyon-cummins-stokes-briefing/
+
 **Word of the Day: nominate**\
 `This word has appeared in 262 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/12/18/learning/word-of-the-day-nominate.html
