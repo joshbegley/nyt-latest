@@ -1,3 +1,7 @@
+**Como's Fabregas in dispute with Senegal over Diao's AFCON participation**\
+`Diao, 20, has made just seven appearances this campaign due to recurring issues, namely with his foot and hamstring.`\
+https://nytimes.com/athletic/6896965/2025/12/18/fabregas-senegal-diao-afcon-squad-news/
+
 **Truth Social Parent to Merge With Nuclear Fusion Firm in $6 Billion Deal**\
 `The deal would be a total transformation for Trump Media & Technology Group, the social media and crypto company in which President Trump holds a large stake.`\
 https://nytimes.com/2025/12/18/business/trump-media-tae-technologies-fusion-power-deal.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6894530/2025/12/18/nfl-draft-2026-alabama-oklahoma-
 **The NFL color commentators you’d meet at a football watch party**\
 `NFL color commentators are our parasocial party guests, and each member of the crew brings something to the potluck.`\
 https://nytimes.com/athletic/6877567/2025/12/18/nfl-color-commentary-rankings-brady-aikman-olsen-romo/
-
-**Play harder? Doc Rivers says Bucks' problems are more a matter of execution**\
-`With Giannis Antetokounmpo out with a calf strain, Milwaukee has to focus on winning the margins, the coach said.`\
-https://nytimes.com/athletic/6895333/2025/12/18/bucks-doc-rivers-execution-giannis/
 
