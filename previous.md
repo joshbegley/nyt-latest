@@ -1,3 +1,7 @@
+**The Time of One’s Life**\
+`Joseph Gangi asks us to mind our Q’s.`\
+https://nytimes.com/2025/12/17/crosswords/daily-puzzle-2025-12-18.html
+
 **PEN America Elects New President at Fraught Time for Free Speech**\
 `The novelist Dinaw Mengestu will lead the literary group at a time of escalating threats to free expression at home and abroad.`\
 https://nytimes.com/2025/12/17/arts/dinaw-mengestu-pen-america-new-president.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6898028/2025/12/17/detroit-lions-stop-booger-flicki
 **Photographer Finds More Than 2,000 Dinosaur Footprints in the Italian Alps**\
 `While hiking in the Italian Alps in September, a nature photographer came upon a surface speckled with more than 2,000 dinosaur footprints. The site is not that far from Bormio, where Alpine skiing will take place at the Winter Olympics in February.`\
 https://nytimes.com/video/world/europe/100000010594323/dinosaur-footprints-italian-alps.html
-
-**Jake Paul's Most Valuable Promotions in talks with Sky Sports for broadcast deal: Sources**\
-`Sky Sports has previously had deals with Matchroom, Boxxer and Top Rank.`\
-https://nytimes.com/athletic/6898004/2025/12/17/jake-pauls-most-valuable-promotions-in-talks-with-sky-sports-for-broadcast-deal-sources/
 

@@ -1,3 +1,7 @@
+**The Time of One’s Life**\
+`Joseph Gangi asks us to mind our Q’s.`\
+https://nytimes.com/2025/12/17/crosswords/daily-puzzle-2025-12-18.html
+
 **PEN America Elects New President at Fraught Time for Free Speech**\
 `The novelist Dinaw Mengestu will lead the literary group at a time of escalating threats to free expression at home and abroad.`\
 https://nytimes.com/2025/12/17/arts/dinaw-mengestu-pen-america-new-president.html
