@@ -1,3 +1,15 @@
+**Here’s What to Expect From Trump’s Speech**\
+`President Trump will address the nation on Wednesday night at 9 p.m. Eastern time. The New York Times will provide live coverage and analysis.`\
+https://nytimes.com/2025/12/17/us/politics/trump-address-speech-when-what-time.html
+
+**Live Updates: Trump to Address Nation From Oval Office**\
+`The president said his message would focus on how his administration had done great work, but the speech comes as many Americans are facing cost-of-living concerns.`\
+https://nytimes.com/live/2025/12/17/us/trump-address-nation-speech
+
+**Ghislaine Maxwell Asks a Judge to Throw Out Her Sex-Abuse Conviction**\
+`Ms. Maxwell, who conspired with Jeffrey Epstein in a sex-trafficking scheme, argued that she had been denied a fair trial.`\
+https://nytimes.com/2025/12/17/nyregion/ghislaine-maxwell-prison-jeffrey-epstein.html
+
 **Senate Passes Air Safety Measure, Reversing Provision in Defense Bill**\
 `The legislation restores restrictions on military aircraft flying near busy airports, implemented after a fatal collision near D.C. in January, that had been removed in the defense bill.`\
 https://nytimes.com/2025/12/17/us/politics/senate-defense-bills-air-safety.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/12/17/us/politics/ice-inspections-democrats-congress-la
 **Venezuelans Express Anger at Trump’s Oil Tanker Blockade**\
 `Venezuelans spoke out after President Trump ordered a “complete blockade” of sanctioned oil tankers going to and from Venezuela. Hours after he announced the blockade, the Venezuelan Navy began escorting tankers sailing around the country’s east coast.`\
 https://nytimes.com/video/world/americas/100000010594584/venezuela-oil-blockade-reactions.html
-
-**Nick Reiner Seen at Los Angeles Gas Station Before Arrest**\
-`Security camera footage from a gas station convenience store in Los Angeles shows Nick Reiner buying a sports drink. About an hour later, Mr. Reiner is arrested across the street. Mr. Reiner was charged with first-degree murder in the stabbing deaths of his parents, Rob and Michele Singer Reiner.`\
-https://nytimes.com/video/us/100000010594811/nick-reiner-seen-at-los-angeles-gas-station-before-arrest.html
-
-**Search for Unidentified Killer at Brown University Stretches to 4th Day**\
-`Officials said that they were working with physical evidence, including DNA, and that they were seeking a second man who appeared to have crossed paths with the possible suspect’.`\
-https://nytimes.com/2025/12/17/us/brown-shooter-suspect-providence.html
-
-**Love, or at Least Marriage, Is in the Air in Trump’s Washington**\
-`Several prominent conservative figures have announced that they are engaged this week, news often celebrated by President Trump.`\
-https://nytimes.com/2025/12/17/style/conservatives-engagements-marjorie-taylor-greene-trump-jr.html
 

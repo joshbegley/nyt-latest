@@ -1,3 +1,15 @@
+**Here’s What to Expect From Trump’s Speech**\
+`President Trump will address the nation on Wednesday night at 9 p.m. Eastern time. The New York Times will provide live coverage and analysis.`\
+https://nytimes.com/2025/12/17/us/politics/trump-address-speech-when-what-time.html
+
+**Live Updates: Trump to Address Nation From Oval Office**\
+`The president said his message would focus on how his administration had done great work, but the speech comes as many Americans are facing cost-of-living concerns.`\
+https://nytimes.com/live/2025/12/17/us/trump-address-nation-speech
+
+**Ghislaine Maxwell Asks a Judge to Throw Out Her Sex-Abuse Conviction**\
+`Ms. Maxwell, who conspired with Jeffrey Epstein in a sex-trafficking scheme, argued that she had been denied a fair trial.`\
+https://nytimes.com/2025/12/17/nyregion/ghislaine-maxwell-prison-jeffrey-epstein.html
+
 **Senate Passes Air Safety Measure, Reversing Provision in Defense Bill**\
 `The legislation restores restrictions on military aircraft flying near busy airports, implemented after a fatal collision near D.C. in January, that had been removed in the defense bill.`\
 https://nytimes.com/2025/12/17/us/politics/senate-defense-bills-air-safety.html
