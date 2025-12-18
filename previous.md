@@ -1,3 +1,7 @@
+**For Hegseth, There Is One Boat Strike He Doesn’t Want the Public to See**\
+`The Pentagon has released plenty of video clips that show American missiles blowing boats suspected of carrying drugs out of the water. But the “double tap” strike on Sept. 2 is being kept under wraps.`\
+https://nytimes.com/2025/12/17/us/politics/hegseth-boat-strike-video.html
+
 **Presidential History, According to Trump**\
 `The White House unveiled plaques near the Oval Office that describe U.S. presidents with varying levels of accuracy, depending on President Trump’s opinion of them.`\
 https://nytimes.com/2025/12/17/us/politics/trump-presidential-walk-of-fame-white-house.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/world/year-in-pictures.html
 **Injured James Harden won't play vs. Thunder. Status vs. Lakers Saturday TBD**\
 `Harden practiced Sunday with a sleeve on his left leg, a day after the Clippers had a film session and canceled a practice due to injuries.`\
 https://nytimes.com/athletic/6897950/2025/12/17/james-harden-injury-calf-out-clippers/
-
-**Nats continue youth movement; set to hire Phillies' Ani Kilambi, 31, as GM: Source**\
-`The Nationals will have a 33-year-old manager, 31-year-old GM and 35-year-old president of baseball operations.`\
-https://nytimes.com/athletic/6897955/2025/12/17/nationals-youth-movement-ani-kilambi-gm/
 

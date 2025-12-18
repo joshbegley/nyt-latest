@@ -1,3 +1,7 @@
+**For Hegseth, There Is One Boat Strike He Doesn’t Want the Public to See**\
+`The Pentagon has released plenty of video clips that show American missiles blowing boats suspected of carrying drugs out of the water. But the “double tap” strike on Sept. 2 is being kept under wraps.`\
+https://nytimes.com/2025/12/17/us/politics/hegseth-boat-strike-video.html
+
 **Presidential History, According to Trump**\
 `The White House unveiled plaques near the Oval Office that describe U.S. presidents with varying levels of accuracy, depending on President Trump’s opinion of them.`\
 https://nytimes.com/2025/12/17/us/politics/trump-presidential-walk-of-fame-white-house.html
