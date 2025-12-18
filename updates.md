@@ -1,3 +1,35 @@
+**Rams' backfield keeping up its recent pace among 3 ways to beat the Seahawks**\
+`We list three ways LA can earn a win with the NFC"s top seed likely at stake, as well as three ways Seattle can prevent it from happening.`\
+https://nytimes.com/athletic/6895083/2025/12/18/rams-seahawks-thursday-night-football/
+
+**NBA Cup reporters poll: What should change? Is Vegas the right fit? Hang the banner?**\
+`Our NBA writers who were in Vegas tell us what they saw and heard, and what they think the future of the Cup looks like.`\
+https://nytimes.com/athletic/6898056/2025/12/18/nba-cup-future-banner-las-vegas/
+
+**A new Bears stadium site? No one cares when Packers are coming to town**\
+`Kevin Warren deserves penalty flag for ill-timed Indiana leverage play. The focus should be on Soldier Field, where there's a game to play. `\
+https://nytimes.com/athletic/6898610/2025/12/18/bears-stadium-site-kevin-warren-packers/
+
+**Munetaka Murakami could be the next Kyle Schwarber. Will he take a short-term deal to prove it?**\
+`From the clubs' perspective, though, a long-term deal for Murakami might present even more of a challenging bet.`\
+https://nytimes.com/athletic/6898364/2025/12/18/mlb-munetaka-murakami-free-agency-update/
+
+**Yes, the Knicks are good enough to win the whole thing**\
+`Does winning the NBA Cup help the Knicks’ pursuit of their first NBA title since '73? Can they beat the Thunder in the Finals? Yes and yes.`\
+https://nytimes.com/athletic/6898130/2025/12/18/knicks-nba-cup-championship-contenders/
+
+**After a flurry of reliever signings, how will the Cubs pivot to fill out ’pen?**\
+`As manager Craig Counsell likes to say, there will be a pitcher somewhere on a field in Arizona whom no one is talking about in spring. `\
+https://nytimes.com/athletic/6898554/2025/12/18/chicago-cubs-relief-market-pivot/
+
+**In Season 25 as the voice of the Bears, Jeff Joniak is still pinching himself**\
+`When it comes to calling Bears games on the radio, Joniak's urge to be compelling and, more importantly, prepared is a daily quest. `\
+https://nytimes.com/athletic/6897388/2025/12/18/bears-broadcaster-jeff-joniak-espn/
+
+**Ranking potential PWHL expansion markets as 'Takeover Tour' kicks off**\
+`The PWHL will play in 11 additional cities this season ahead of more expansion. Which markets have the best chance of earning a team?`\
+https://nytimes.com/athletic/6897757/2025/12/18/pwhl-expansion-takeover-tour-markets/
+
 **Van Persie in confrontation with Feyenoord fans, says they 'have right to be angry'**\
 `“I feel I should stand with the supporters and give them a platform to express their frustration," the former striker told ESPN.`\
 https://nytimes.com/athletic/6899022/2025/12/18/robin-van-persie-feyenoord-fans/
