@@ -3,7 +3,7 @@
 https://nytimes.com/2025/12/18/us/politics/howard-lutnick-conflicts-inspector-general.html
 
 **Tarik Skubal joins Paul Skenes in Team USA's loaded rotation for 2026 WBC**\
-`Tarik Skubal's addition could give Team USA a big boost over Samurai Japan, the reigning WBC champions.`\
+`Skubal's addition could give Team USA a big boost over Samurai Japan, the reigning WBC champions.`\
 https://nytimes.com/athletic/6899582/2025/12/18/tarik-skubal-paul-skenes-team-usa-rotation-wbc-2026/
 
 **Breanna Stewart open to NBA commissioner Adam Silver joining WNBA CBA talks**\

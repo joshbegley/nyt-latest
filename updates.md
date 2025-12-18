@@ -1,3 +1,11 @@
+**Democratic Lawmakers Request Review of Commerce Secretary’s Possible Conflicts**\
+`Lawmakers in the House and the Senate asked a government watchdog to determine if Howard Lutnick is following ethics guidelines in promoting data centers that benefit his family’s businesses.`\
+https://nytimes.com/2025/12/18/us/politics/howard-lutnick-conflicts-inspector-general.html
+
+**Tarik Skubal joins Paul Skenes in Team USA's loaded rotation for 2026 WBC**\
+`Tarik Skubal's addition could give Team USA a big boost over Samurai Japan, the reigning WBC champions.`\
+https://nytimes.com/athletic/6899582/2025/12/18/tarik-skubal-paul-skenes-team-usa-rotation-wbc-2026/
+
 **Breanna Stewart open to NBA commissioner Adam Silver joining WNBA CBA talks**\
 `Silver said he has been closely monitoring the labor discussions.`\
 https://nytimes.com/athletic/6899487/2025/12/18/wnba-cba-breanna-stewart-adam-silver/

@@ -1,3 +1,11 @@
+**Democratic Lawmakers Request Review of Commerce Secretary’s Possible Conflicts**\
+`Lawmakers in the House and the Senate asked a government watchdog to determine if Howard Lutnick is following ethics guidelines in promoting data centers that benefit his family’s businesses.`\
+https://nytimes.com/2025/12/18/us/politics/howard-lutnick-conflicts-inspector-general.html
+
+**Tarik Skubal joins Paul Skenes in Team USA's loaded rotation for 2026 WBC**\
+`Tarik Skubal's addition could give Team USA a big boost over Samurai Japan, the reigning WBC champions.`\
+https://nytimes.com/athletic/6899582/2025/12/18/tarik-skubal-paul-skenes-team-usa-rotation-wbc-2026/
+
 **Breanna Stewart open to NBA commissioner Adam Silver joining WNBA CBA talks**\
 `Silver said he has been closely monitoring the labor discussions.`\
 https://nytimes.com/athletic/6899487/2025/12/18/wnba-cba-breanna-stewart-adam-silver/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6899664/2025/12/18/missouri-beau-pribula-enter-tran
 **Massachusetts Battery Start-Up to List on Stock Exchange**\
 `Factorial, the start-up, said the listing would provide money that would help it bring new solid-state batteries to market as soon as 2027.`\
 https://nytimes.com/2025/12/18/business/energy-environment/factorial-electric-vehicle-battery-spac.html
-
-**U.S. government admits liability in D.C. plane crash that killed figure skaters**\
-`The government said the Army helicopter pilots failed to "maintain vigilance" to see and avoid the American Airlines jet before the crash.`\
-https://nytimes.com/athletic/6899400/2025/12/18/plane-crash-government-liability-figure-skaters-olympics/
-
-**NCAA 'vehemently opposed' as Kalshi files to offer prediction markets on player transfers**\
-`Kalshi filed the necessary paperwork to begin taking bets this week on who will transfer, but as of Thursday no markets are available.`\
-https://nytimes.com/athletic/6899520/2025/12/18/ncaa-transfer-portal-kalshi-prediction-markets/
 
