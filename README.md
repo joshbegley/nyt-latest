@@ -1,3 +1,11 @@
+**For the First Time, a Former Refugee Will Lead the U.N.’s Refugee Agency**\
+`Barham Salih, who fought against Saddam Hussein’s rule in Iraq and later served as president, was chosen to lead the U.N. High Commission for Refugees.`\
+https://nytimes.com/2025/12/18/world/middleeast/un-refugee-agency-barham-salih-iraq.html
+
+**Chiefs moving to Kansas? State 'aggressively pursuing' team**\
+`The Kansas City Chiefs appear to be moving closer to leaving Arrowhead Stadium and crossing state lines to Kansas.`\
+https://nytimes.com/athletic/6900960/2025/12/18/chiefs-moving-to-kansas-arrowhead-new-stadium/
+
 **Trump Relies on Distortions to Support His Pressure Campaign on Venezuela**\
 `The president has a long record of making false or misleading statements. But the sheer density of them in his administration’s boat attacks and Venezuela pressure campaign is exceptional.`\
 https://nytimes.com/2025/12/18/us/trump-venezuela-false-claims-misinformation.html
@@ -15,7 +23,7 @@ https://nytimes.com/video/dining/100000010368623/vegan-cacio-e-pepe.html
 https://nytimes.com/2025/12/18/business/media/tiktok-deal-agreements-us-investors.html
 
 **The U.S. Moves to End Gender-Related Care for Minors**\
-`Also, authorities search for a person of interest in Brown shooting. Here’s the latest at the end of Thursday.`\
+`Also, authorities search for a person of interest in the Brown shooting. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2025/12/18/briefing/trump-gender-related-treatments-brown-shooting-investigation.html
 
 **Ferrari is almost out of time — 2026 is 'now or never' for Hamilton and Leclerc**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6899472/2025/12/18/giannis-antetokounmpo-bucks-nba-
 **President Trump Reclassifies Marijuana With Executive Order**\
 `Marijuana was downgraded from a Schedule I drug to a Schedule III drug on Thursday. The reclassification does not legalize cannabis, but it does ease restrictions on the substance and allows for more research.`\
 https://nytimes.com/video/us/politics/100000010597414/trump-marijuana-executive-order.html
-
-**Nike’s Struggles Continue, but Turnaround Plan May Be Working**\
-`Quarterly sales rose slightly for the world’s largest footwear company despite weak results in China and with its Converse brand.`\
-https://nytimes.com/2025/12/18/business/nike-earnings-converse.html
-
-**Cubs adding 1B Tyler Austin, a former Yankee returning from Japan: Source**\
-`Austin, 34, produced his best year with the Yankees in 2018, when he hit 17 home runs in 69 games. In Japan, he hit .293.`\
-https://nytimes.com/athletic/6901049/2025/12/18/cubs-tyler-austin-contract/
 
