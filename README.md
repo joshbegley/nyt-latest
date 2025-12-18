@@ -1,3 +1,11 @@
+**What to know about the report.**\
+`The Federal Reserve will get an updated read on U.S. inflation on Thursday with the release of last month’s Consumer Price Index.`\
+https://nytimes.com/live/2025/12/18/business/cpi-inflation-tariffs-fed/inflation-cpi-interest-rates
+
+**Live Updates: Inflation Likely Remained Stuck Around 3%**\
+`Inflation has moved higher this year, in part because of President Trump’s tariffs. The latest Consumer Price Index, for November, will provide an updated read on the situation.`\
+https://nytimes.com/live/2025/12/18/business/cpi-inflation-tariffs-fed
+
 **College Football Playoff home games are back. Here's what makes each host stadium unique**\
 `Our experts share what makes the stadiums at Oklahoma, Texas A&M, Ole Miss and Oregon special ahead of their first-round Playoff games.`\
 https://nytimes.com/athletic/6897529/2025/12/18/college-football-playoff-home-stadiums-tickets/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6898554/2025/12/18/chicago-cubs-relief-market-pivot
 **In Season 25 as the voice of the Bears, Jeff Joniak is still pinching himself**\
 `When it comes to calling Bears games on the radio, Joniak's urge to be compelling and, more importantly, prepared is a daily quest. `\
 https://nytimes.com/athletic/6897388/2025/12/18/bears-broadcaster-jeff-joniak-espn/
-
-**Ranking potential PWHL expansion markets as 'Takeover Tour' kicks off**\
-`The PWHL will play in 11 additional cities this season ahead of more expansion. Which markets have the best chance of earning a team?`\
-https://nytimes.com/athletic/6897757/2025/12/18/pwhl-expansion-takeover-tour-markets/
-
-**Van Persie in confrontation with Feyenoord fans, says they 'have right to be angry'**\
-`“I feel I should stand with the supporters and give them a platform to express their frustration," the former striker told ESPN.`\
-https://nytimes.com/athletic/6899022/2025/12/18/robin-van-persie-feyenoord-fans/
 
