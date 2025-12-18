@@ -1,3 +1,15 @@
+**What Katy Perry Gets About Justin Trudeau**\
+`As a politician, Justin Trudeau was an excellent celebrity. And the rest of the world could learn a useful lesson from how he wielded his star power.`\
+https://nytimes.com/2025/12/18/opinion/justin-trudeau-katy-perry-couple.html
+
+**Europe Begins to Tiptoe Away From Key Climate Policies**\
+`Europe has some of the world’s most ambitious climate goals, but in recent months it has backtracked on rules governing automobile emissions and deforestation.`\
+https://nytimes.com/2025/12/18/climate/europe-climate-policies.html
+
+**Strong Winds Cause Major Power Outage Across the Pacific Northwest**\
+`More than 200,000 customers lost power due to the strong gusts of wind that toppled trees and power lines on Wednesday. The wind speed in North Bend, Wash., reached 112 miles per hour.`\
+https://nytimes.com/video/weather/100000010596579/extreme-weather-power-outages-pacific-northwest.html
+
 **Trump and His Loyalists Move to Name the Kennedy Center for Him**\
 `The performing arts center is by law designated the John F. Kennedy Center for the Performing Arts, and it has been generally understood that the power to change the center’s name lies with Congress.`\
 https://nytimes.com/2025/12/18/us/politics/trump-kennedy-center-name.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6899526/2025/12/18/jacques-martin-ottawa-senators-r
 **Puka Nacua's brother arrested, accused of stealing car belonging to Lakers rookie**\
 `Samson Nacua last played for the UFL's now-defunct Michigan Panthers after brief training camp stops in the NFL.`\
 https://nytimes.com/athletic/6898441/2025/12/18/samson-nacua-arrested-adou-thiero-lakers/
-
-**A Designer of Maximalist Fine Jewelry Embraces Warm Minimalism at Home**\
-`With clean lines and a pared-down palette, Joe Spiro’s London apartment is a refuge from his glittery day job.`\
-https://nytimes.com/2025/12/18/t-magazine/joe-spiro-house.html
-
-**Make-Ahead, Easy-to-Transport Christmas Casseroles**\
-`Wild rice and mushroom casserole, slow-baked beans with kale and other festive showstoppers for the holiday feast.`\
-https://nytimes.com/2025/12/18/dining/make-ahead-easy-to-transport-christmas-casseroles.html
-
-**Jet Crashes at North Carolina Airport**\
-`The Federal Aviation Administration said several people were killed when a Cessna C550 jet crashed while landing at Statesville Regional Airport.`\
-https://nytimes.com/video/us/100000010596592/north-carolina-jet-crash.html
 
