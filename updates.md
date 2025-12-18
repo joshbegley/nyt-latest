@@ -1,4 +1,8 @@
 **Trump’s Drone Strikes Are Wrong. Obama’s Were, Too**\
+`Readers respond to a guest essay on why the string of recent boat strikes by the Trump administration are unjustified. `\
+https://nytimes.com/2025/12/18/opinion/trump-obama-drone-strikes-illegal.html
+
+**Trump’s Drone Strikes Are Wrong. Obama’s Were, Too**\
 `Readers respond to a guest essay on President Trump’s use of drone strikes. `\
 https://nytimes.com/2025/12/18/opinion/trump-obama-drone-strikes-illegal.html
 
