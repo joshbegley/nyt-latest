@@ -1,3 +1,11 @@
+**What to know about the report.**\
+`The Federal Reserve will get an updated read on U.S. inflation on Thursday with the release of last month’s Consumer Price Index.`\
+https://nytimes.com/live/2025/12/18/business/cpi-inflation-tariffs-fed/inflation-cpi-interest-rates
+
+**Live Updates: Inflation Likely Remained Stuck Around 3%**\
+`Inflation has moved higher this year, in part because of President Trump’s tariffs. The latest Consumer Price Index, for November, will provide an updated read on the situation.`\
+https://nytimes.com/live/2025/12/18/business/cpi-inflation-tariffs-fed
+
 **College Football Playoff home games are back. Here's what makes each host stadium unique**\
 `Our experts share what makes the stadiums at Oklahoma, Texas A&M, Ole Miss and Oregon special ahead of their first-round Playoff games.`\
 https://nytimes.com/athletic/6897529/2025/12/18/college-football-playoff-home-stadiums-tickets/
