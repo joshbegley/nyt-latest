@@ -1,3 +1,23 @@
+**Max Sasson's deal, the blue line mix and Quinn Hughes' Canucks legacy: Notebook**\
+`The Canucks have turned the page on the Quinn Hughes era with a pair of surprising road wins.`\
+https://nytimes.com/athletic/6895745/2025/12/18/vancouver-canucks-zeev-buium-quinn-hughes-max-sasson/
+
+**The D.N.C. Is Killing Its Autopsy of What Went Wrong in 2024**\
+`Ken Martin, the Democratic National Committee chairman, ordered the report months ago but is now said to believe that its release would be counterproductive for the party.`\
+https://nytimes.com/2025/12/18/us/politics/dnc-2024-autopsy-democrats-ken-martin.html
+
+**Sticky Coconut Chicken and Rice, One-Pot and Pretty Perfect**\
+`Plump pieces of chicken thigh cook on top of gingery coconut rice studded with cashews, while cilantro and hot sauce add freshness and heat.`\
+https://nytimes.com/2025/12/18/dining/sticky-coconut-chicken-and-rice-one-pot-and-pretty-perfect.html
+
+**The Flop That Proved Rob Reiner Could Take Criticism With Humor**\
+`Roger Ebert said he “hated, hated, hated, hated, hated” Reiner’s 1994 film “North.” The director took it in stride.`\
+https://nytimes.com/2025/12/18/arts/rob-reiner-north-movie.html
+
+**The Meaning of Luigi Mangione’s New Suits**\
+`In court before his trial for killing the chief executive of UnitedHealthcare, Mr. Mangione tried out a different look.`\
+https://nytimes.com/2025/12/18/style/luigi-mangione-court-hearings-suits.html
+
 **Mamdani Names Budget Director as He Prepares to Enact Costly Agenda**\
 `Mayor-Elect Zohran Mamdani chose Sherif Soliman, a veteran of municipal government and the chief financial officer of the City University of New York, to lead the Office of Management and Budget.`\
 https://nytimes.com/2025/12/18/nyregion/zohran-mamdani-sherif-soliman-omb.html
