@@ -1,3 +1,7 @@
+**Thousands of dinosaur footprints discovered near Milan-Cortina Olympic sites**\
+`Thousands of footprints are discovered near Olympic slopes, which researchers say is one of the most striking fossil discoveries in decades.`\
+https://nytimes.com/athletic/6900101/2025/12/18/thousands-of-dinosaur-footprints-discovered-near-milan-cortina-olympic-sites/
+
 **Atlantic City’s Mayor Is Found Not Guilty of Assaulting His Daughter**\
 `A jury on Thursday acquitted Marty Small Sr. of all four crimes he was charged with, including aggravated assault and endangering the welfare of his teenage daughter.`\
 https://nytimes.com/2025/12/18/nyregion/atlantic-city-mayor-not-guilty.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6899742/2025/12/18/anthony-richardson-practice-retu
 **Colombian soccer final ends in chaos with pitch battle and 59 injuries as '120kg of pyrotechnics' seized**\
 `Violence erupted after the match with an on-pitch battle between groups of fans, many of whom were carrying weapons.`\
 https://nytimes.com/athletic/6899696/2025/12/18/colombia-football-violence-medellin/
-
-**Multiple People Are Killed in North Carolina Jet Crash, Officials Say**\
-`The plane, a Cessna C550, crashed while landing at Statesville Regional Airport, the Federal Aviation Administration said.`\
-https://nytimes.com/2025/12/18/us/statesville-plane-crash-north-carolina.html
 

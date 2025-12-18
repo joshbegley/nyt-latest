@@ -1,3 +1,11 @@
+**Atlantic City’s Mayor Is Found Not Guilty of Assaulting His Daughter**\
+`A jury on Thursday acquitted Marty Small Sr. of all four crimes he was charged with, including aggravated assault and endangering the welfare of his teenage daughter.`\
+https://nytimes.com/2025/12/18/nyregion/atlantic-city-mayor-not-guilty.html
+
+**Trump to Sign Executive Order to Reclassify Marijuana, Easing Restrictions on the Drug**\
+`Marijuana’s classification as one of the most dangerous and habit-forming substances has long drawn criticism.`\
+https://nytimes.com/2025/12/18/us/politics/trump-marijuana-reclassify-order.html
+
 **Plane registered to former NASCAR driver Greg Biffle crashes in North Carolina**\
 `A Cessna plane registered to Biffle's GB Aviation crashed Thursday outside of Charlotte. There's been no confirmation who was on board.`\
 https://nytimes.com/athletic/6899642/2025/12/18/plane-crash-greg-biffle-nascar-driver/
