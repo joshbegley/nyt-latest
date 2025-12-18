@@ -1,3 +1,7 @@
+**Canada beats Sweden in first World Juniors pre-tournament game**\
+`Canada still has a few roster cuts to make before the tournament begins on Boxing Day.`\
+https://nytimes.com/athletic/6898308/2025/12/17/canada-world-juniors-roster-lineup-sweden/
+
 **The Time of One’s Life**\
 `Joseph Gangi asks us to mind our Q’s.`\
 https://nytimes.com/2025/12/17/crosswords/daily-puzzle-2025-12-18.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000010594014/willis-georgia-investigati
 **Lions told to stop booger-flicking celebrations, St. Brown says**\
 `Amon-Ra St. Brown and his teammates apparently went a bit too far with their celebrations against the Rams last Sunday.`\
 https://nytimes.com/athletic/6898028/2025/12/17/detroit-lions-stop-booger-flicking-celebrations/
-
-**Photographer Finds More Than 2,000 Dinosaur Footprints in the Italian Alps**\
-`While hiking in the Italian Alps in September, a nature photographer came upon a surface speckled with more than 2,000 dinosaur footprints. The site is not that far from Bormio, where Alpine skiing will take place at the Winter Olympics in February.`\
-https://nytimes.com/video/world/europe/100000010594323/dinosaur-footprints-italian-alps.html
 

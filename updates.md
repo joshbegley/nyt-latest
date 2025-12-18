@@ -1,3 +1,7 @@
+**Canada beats Sweden in first World Juniors pre-tournament game**\
+`Canada still has a few roster cuts to make before the tournament begins on Boxing Day.`\
+https://nytimes.com/athletic/6898308/2025/12/17/canada-world-juniors-roster-lineup-sweden/
+
 **The Time of One’s Life**\
 `Joseph Gangi asks us to mind our Q’s.`\
 https://nytimes.com/2025/12/17/crosswords/daily-puzzle-2025-12-18.html
