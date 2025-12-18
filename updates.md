@@ -1,3 +1,15 @@
+**Scoop City: Previewing Rams at Seahawks**\
+`Previewing Rams-Seahawks, a game big enough to fill a newsletter, which also helps distract Bengals fans like myself`\
+https://nytimes.com/athletic/6901081/2025/12/18/rams-seahawks-preview-nfc-nfl-scoop-city/
+
+**Vegan Cacio e Pepe**\
+`This speedy vegan take on cacio e pepe utilizes a classic technique: Cook the pasta just short of al dente, reserve some of the starchy pasta water to add body to the sauce, then simmer the pasta in its sauce with a splash of pasta water, stirring vigorously until the sauce is emulsified.`\
+https://nytimes.com/video/dining/100000010368623/vegan-cacio-e-pepe.html
+
+**TikTok Signs Agreements With Investors in Step Toward Avoiding a U.S. Ban**\
+`The Chinese-owned video app reached agreements with the software giant Oracle and two investment firms, Silver Lake and MGX, as part of a deal to keep TikTok operating in the United States.`\
+https://nytimes.com/2025/12/18/business/media/tiktok-deal-agreements-us-investors.html
+
 **Cubs adding 1B Tyler Austin, a former Yankee returning from Japan: Source**\
 `Austin produced his best year with the Yankees in 2018, when he hit 17 home runs in 69 games.`\
 https://nytimes.com/athletic/6901049/2025/12/18/cubs-tyler-austin-contract/

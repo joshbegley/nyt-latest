@@ -31,7 +31,7 @@ https://nytimes.com/video/us/politics/100000010597414/trump-marijuana-executive-
 https://nytimes.com/2025/12/18/business/nike-earnings-converse.html
 
 **Cubs adding 1B Tyler Austin, a former Yankee returning from Japan: Source**\
-`Austin produced his best year with the Yankees in 2018, when he hit 17 home runs in 69 games.`\
+`Austin, 34, produced his best year with the Yankees in 2018, when he hit 17 home runs in 69 games. In Japan, he hit .293.`\
 https://nytimes.com/athletic/6901049/2025/12/18/cubs-tyler-austin-contract/
 
 **Coming Soon to a TV Near Trump: A G.O.P. Ad in N.Y. Governor’s Race**\
