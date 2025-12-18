@@ -1,5 +1,9 @@
+**Fact-Checking Trump’s Prime-Time Address on the Economy**\
+`The president cited misleading statistics to insist, wrongly, that prices were coming down.`\
+https://nytimes.com/2025/12/17/us/politics/fact-checking-trumps-economy-address.html
+
 **Anthony Joshua, Jake Paul double down on trash talk ahead of fight**\
-`Joshua said he's “carrying boxing” by taking on Paul, while his opponent claims people who care about the sport should "want me to win."`\
+`Joshua said he's "carrying boxing" by taking on Paul, while his opponent claims people who care about the sport should "want me to win."`\
 https://nytimes.com/athletic/6898466/2025/12/17/anthony-joshua-jake-paul-fight/
 
 **No fans allowed at Colorado basketball home game because of harsh weather**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/17/crosswords/daily-puzzle-2025-12-18.html
 **PEN America Elects New President at Fraught Time for Free Speech**\
 `The novelist Dinaw Mengestu will lead the literary group at a time of escalating threats to free expression at home and abroad.`\
 https://nytimes.com/2025/12/17/arts/dinaw-mengestu-pen-america-new-president.html
-
-**Investigators look at a Santa Monica hotel as they trace Nick Reiner’s movements.**\
-`By Orlando Mayorquín, Matt Stevens and Shawn Hubler`\
-https://nytimes.com/live/2025/12/17/us/rob-nick-reiner-murder-charges/hotel-focus-reiner-murders
 

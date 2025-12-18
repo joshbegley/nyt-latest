@@ -1,3 +1,11 @@
+**Fact-Checking Trump’s Prime-Time Address on the Economy**\
+`The president cited misleading statistics to insist, wrongly, that prices were coming down.`\
+https://nytimes.com/2025/12/17/us/politics/fact-checking-trumps-economy-address.html
+
+**Anthony Joshua, Jake Paul double down on trash talk ahead of fight**\
+`Joshua said he's "carrying boxing" by taking on Paul, while his opponent claims people who care about the sport should "want me to win."`\
+https://nytimes.com/athletic/6898466/2025/12/17/anthony-joshua-jake-paul-fight/
+
 **Anthony Joshua, Jake Paul double down on trash talk ahead of fight**\
 `Joshua said he's “carrying boxing” by taking on Paul, while his opponent claims people who care about the sport should "want me to win."`\
 https://nytimes.com/athletic/6898466/2025/12/17/anthony-joshua-jake-paul-fight/
