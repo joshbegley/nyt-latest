@@ -1,3 +1,7 @@
+**Trump’s Drone Strikes Are Wrong. Obama’s Were, Too**\
+`Readers respond to a guest essay on President Trump’s use of drone strikes. `\
+https://nytimes.com/2025/12/18/opinion/trump-obama-drone-strikes-illegal.html
+
 **N.Y.C. Subway Crime Is Down, Hochul Says, Rebutting Trump Officials**\
 `Gov. Kathy Hochul said the state would spend another $77 million on police patrols in the subway, acknowledging that felony assaults remain stubbornly high.`\
 https://nytimes.com/2025/12/18/nyregion/nyc-subway-mta-safety-low-crime.html

@@ -19,7 +19,7 @@ https://nytimes.com/athletic/6899696/2025/12/18/colombia-football-violence-medel
 https://nytimes.com/2025/12/18/us/statesville-plane-crash-north-carolina.html
 
 **Trump’s Drone Strikes Are Wrong. Obama’s Were, Too**\
-`Readers respond to a guest essay on President Trump’s use of drone strikes. `\
+`Readers respond to a guest essay on why the string of recent boat strikes by the Trump administration are unjustified. `\
 https://nytimes.com/2025/12/18/opinion/trump-obama-drone-strikes-illegal.html
 
 **Trump Administration Tries to Stop Some Immigrants From Driving Trucks**\
