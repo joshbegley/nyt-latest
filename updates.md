@@ -1,3 +1,11 @@
+**Fantasy basketball hot topics of the week: KD's upside in Houston, Asa Newell watch and more**\
+`Stan Son reviews the top recent NBA storylines, including KD's capped upside with Houston and a player to watch in Atlanta.`\
+https://nytimes.com/athletic/6899779/2025/12/18/fantasy-basketball-hot-topics-waiver-wire-kd/
+
+**Puka Nacua's brother arrested, accused of stealing car belonging to Lakers rookie**\
+`Samson Nacua last played for the UFL's now-defunct Michigan Panthers after brief training camp stops in the NFL.`\
+https://nytimes.com/athletic/6898441/2025/12/18/samson-nacua-arrested-adou-thiero-lakers/
+
 **Jacques Martin to join Senators' Ring of Honour on Jan. 24**\
 `The 73-year-old Martin is Ottawa's franchise leader in regular-season and playoff coaching wins as well as games coached.`\
 https://nytimes.com/athletic/6899526/2025/12/18/jacques-martin-ottawa-senators-ring-honour/
