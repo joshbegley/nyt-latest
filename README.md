@@ -1,3 +1,7 @@
+**Trump Relies on Distortions to Support His Pressure Campaign on Venezuela**\
+`The president has a long record of making false or misleading statements. But the sheer density of them in his administration’s boat attacks and Venezuela pressure campaign is exceptional.`\
+https://nytimes.com/2025/12/18/us/trump-venezuela-false-claims-misinformation.html
+
 **Scoop City: Previewing Rams at Seahawks**\
 `Previewing Rams-Seahawks, a game big enough to fill a newsletter, which also helps distract Bengals fans like myself`\
 https://nytimes.com/athletic/6901081/2025/12/18/rams-seahawks-preview-nfc-nfl-scoop-city/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/18/business/nike-earnings-converse.html
 **Cubs adding 1B Tyler Austin, a former Yankee returning from Japan: Source**\
 `Austin, 34, produced his best year with the Yankees in 2018, when he hit 17 home runs in 69 games. In Japan, he hit .293.`\
 https://nytimes.com/athletic/6901049/2025/12/18/cubs-tyler-austin-contract/
-
-**Coming Soon to a TV Near Trump: A G.O.P. Ad in N.Y. Governor’s Race**\
-`Bruce Blakeman, an ally of President Trump, is buying ad time on Fox News in the West Palm Beach, Fla., market, where Mr. Trump may be watching.`\
-https://nytimes.com/2025/12/18/nyregion/blakeman-trump-fox-news.html
 
