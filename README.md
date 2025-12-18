@@ -1,4 +1,8 @@
-**McIlroy has done the impossible - make the great British public fall in love with golf**\
+**How Will Trump’s Policies Affect You? We Answer Your Questions.**\
+`Hard to follow the dizzying array of developments out of Washington over the past year? Here are our answers to your pressing questions.`\
+https://nytimes.com/interactive/2025/12/18/us/trump-policy-impact-tariffs-healthcare-immigration-affordability.html
+
+**McIlroy has done the impossible – make the British public fall in love with golf**\
 `BBC Sports Personality of the Year may not add much to McIlroy's CV, but it proves that golf is finally cutting through`\
 https://nytimes.com/athletic/6899328/2025/12/18/rory-mcilroy-bbc-sports-personality-golf/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/18/nyregion/gilgo-beach-mother-baby-murder.html
 **John E. Olson, Analyst Fired for Enron Skepticism, Dies at 83**\
 `An adviser at Merrill Lynch, he refused to recommend the energy trading company. His employer pushed him out, but his stand made him a hero.`\
 https://nytimes.com/2025/12/18/business/john-e-olson-dead.html
-
-**The German Chancellor Betting on America**\
-`Friedrich Merz believes the world needs a stronger Germany. He is still navigating how to do it.`\
-https://nytimes.com/2025/12/18/world/german-chancellor-america-ukraine-europe.html
 
