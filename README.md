@@ -1,3 +1,7 @@
+**Why Chelsea's hopes of a stadium at Earls Court may not yet be over**\
+`Chelsea still believe there is a chance of them building a new home at Earls Court, despite an alternative plan for the land being approved`\
+https://nytimes.com/athletic/6896581/2025/12/18/chelsea-stadium-earls-court-planning/
+
 **Manchester United and Antoine Semenyo. Does it make sense?**\
 `Semenyo's seven goals and three assists across the 2025-26 season rank him as one of the more dangerous attackers outside of the 'Big Six'`\
 https://nytimes.com/athletic/6822771/2025/12/18/antoine-semenyo-manchester-united-transfer-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6875333/2025/12/18/strasbourg-stadium-decomissioned
 **Birthrates Are Falling, but Don’t Blame Dogs in Strollers**\
 `New research suggests that having a pet can actually make people more likely to become parents.`\
 https://nytimes.com/2025/12/18/world/birthrates-falling-dont-blame-dogs.html
-
-**At Tokyo Zoo, Visitors Fear a Spat With China Will Cost Japan Its Pandas**\
-`Pandas have stood for friendship between China and Japan since 1972. But the last two are about to go, and a dispute over Taiwan could get in the way of sending more.`\
-https://nytimes.com/2025/12/18/world/asia/japan-china-pandas.html
 
