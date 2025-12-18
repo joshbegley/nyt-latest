@@ -1,3 +1,19 @@
+**Search for Unidentified Killer at Brown University Stretches to 4th Day**\
+`Officials said that they were working with physical evidence, including DNA, and that they were seeking a second man who appeared to have crossed paths with the possible suspect’.`\
+https://nytimes.com/2025/12/17/us/brown-shooter-suspect-providence.html
+
+**Love, or at Least Marriage, Is in the Air in Trump’s Washington**\
+`Several prominent conservative figures have announced that they are engaged this week, news often celebrated by President Trump.`\
+https://nytimes.com/2025/12/17/style/conservatives-engagements-marjorie-taylor-greene-trump-jr.html
+
+**Twelve Men Saturated East Harlem Housing Project With Drugs, U.S. Says**\
+`For more than three and a half years, officials said, the men used the Johnson Houses as “an open drug market” to sell crack cocaine and fentanyl.`\
+https://nytimes.com/2025/12/17/nyregion/sdny-harlem-drug-charges.html
+
+**Israel Approves $37 Billion Deal to Deliver Gas to Egypt**\
+`Israel’s granting of an export permit is the final step to allow the deal, first announced by energy companies in August, to proceed.`\
+https://nytimes.com/2025/12/17/world/middleeast/israel-gas-deal-egypt.html
+
 **House Passes Bill to Ban Gender Transition Treatments for Minors**\
 `The measure had little chance of consideration in the Senate, where it would need bipartisan support to move, but it reflected the priorities of the Republican majority.`\
 https://nytimes.com/2025/12/17/us/politics/bill-gender-transition-treatments-minors.html
@@ -17,20 +33,4 @@ https://nytimes.com/athletic/6897881/2025/12/17/micah-parsons-jeff-hafley-packer
 **Health Department Cancels Grants to Group That Criticized Kennedy’s Vaccine Policies**\
 `The American Academy of Pediatrics had called the department’s policies “irresponsible and purposefully misleading” and joined a lawsuit against its vaccine policy.`\
 https://nytimes.com/2025/12/17/us/politics/health-department-grants-kennedy-cavvines.html
-
-**Bears eye northwest Indiana as they expand stadium search**\
-`The Bears' letter served as a new concession that their desired path to getting their stadium project moved forward has been obstructed.`\
-https://nytimes.com/athletic/6897939/2025/12/17/bears-stadium-search-northwest-indiana/
-
-**Kerr: Warriors have answers they need on current roster, including Kuminga**\
-`Warriors coach doesn't believe team needs to add to roster, plans to give more playing time to 23-year-old forward.`\
-https://nytimes.com/athletic/6897713/2025/12/17/warriors-steve-kerr-jonathan-kuminga-roster/
-
-**Trump’s Claim That Venezuela ‘Stole’ U.S. Oil Fields Touches Nationalist Nerve**\
-`President Trump said the United States wanted to reclaim expropriated oil assets, setting off a nationalist reaction in a country where the resource holds a mythical status.`\
-https://nytimes.com/2025/12/17/world/americas/trump-venezuela-oil-fields-stolen-claims.html
-
-**Defense Dept. Opens Formal Inquiry Into Senator Mark Kelly**\
-`The Pentagon said it was initiating a “command investigation” into the senator, another extraordinary step as the Trump administration seeks retribution against the president’s perceived foes.`\
-https://nytimes.com/2025/12/17/us/politics/mark-kelly-defense-department-inquiry.html
 

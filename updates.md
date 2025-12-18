@@ -1,3 +1,19 @@
+**Search for Unidentified Killer at Brown University Stretches to 4th Day**\
+`Officials said that they were working with physical evidence, including DNA, and that they were seeking a second man who appeared to have crossed paths with the possible suspect’.`\
+https://nytimes.com/2025/12/17/us/brown-shooter-suspect-providence.html
+
+**Love, or at Least Marriage, Is in the Air in Trump’s Washington**\
+`Several prominent conservative figures have announced that they are engaged this week, news often celebrated by President Trump.`\
+https://nytimes.com/2025/12/17/style/conservatives-engagements-marjorie-taylor-greene-trump-jr.html
+
+**Twelve Men Saturated East Harlem Housing Project With Drugs, U.S. Says**\
+`For more than three and a half years, officials said, the men used the Johnson Houses as “an open drug market” to sell crack cocaine and fentanyl.`\
+https://nytimes.com/2025/12/17/nyregion/sdny-harlem-drug-charges.html
+
+**Israel Approves $37 Billion Deal to Deliver Gas to Egypt**\
+`Israel’s granting of an export permit is the final step to allow the deal, first announced by energy companies in August, to proceed.`\
+https://nytimes.com/2025/12/17/world/middleeast/israel-gas-deal-egypt.html
+
 **House Passes Bill to Ban Gender Transition Treatments for Minors**\
 `The measure had little chance of consideration in the Senate, where it would need bipartisan support to move, but it reflected the priorities of the Republican majority.`\
 https://nytimes.com/2025/12/17/us/politics/bill-gender-transition-treatments-minors.html
