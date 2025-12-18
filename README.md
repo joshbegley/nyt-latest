@@ -1,3 +1,7 @@
+**Chelsea's Maresca high on Man City's list in event of Guardiola exit**\
+`City are advancing contingency planning as there is a growing anticipation of this being the Catalan manager's last season.`\
+https://nytimes.com/athletic/6896778/2025/12/18/pep-guardiola-man-city-enzo-maresca/
+
 **Is It About the Oil?**\
 `We look at what President Trump is trying to achieve in Venezuela.`\
 https://nytimes.com/2025/12/18/briefing/is-it-about-the-oil.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6897014/2025/12/18/oregon-nil-college-football-play
 **Ranking the College Football Playoff's 12 starting QBs, from Mendoza to Mateer**\
 `If you have a good signal caller on your side, you're going to feel good about your chances every time your team takes the field.`\
 https://nytimes.com/athletic/6897664/2025/12/18/cfp-quarterback-rankings-fernando-mendoza/
-
-**Australia have outclassed England. This was the day the music died for this team and regime**\
-`The hosts enjoyed another dominant day in Adelaide to leave Ben Stokes physically 'broken' and his side on the brink of a series defeat`\
-https://nytimes.com/athletic/6898904/2025/12/18/england-australia-outclassed-stokes-ashes/
 

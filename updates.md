@@ -1,3 +1,11 @@
+**Is It About the Oil?**\
+`We look at what President Trump is trying to achieve in Venezuela.`\
+https://nytimes.com/2025/12/18/briefing/is-it-about-the-oil.html
+
+**BBC Sports Personality of the Year odds, predictions: Rory McIlroy, Lando Norris favoured**\
+`Who is the favourite to win Sports Personality of the Year this year? And is there likely to be an upset?`\
+https://nytimes.com/athletic/6895907/2025/12/18/bbc-sports-personality-of-the-year-rory-mcilroy/
+
 **How to watch the Final Four of this year's surprising NCAA women's volleyball tournament**\
 `Madness isn't just for March. The women's volleyball tournament has delivered on the chaos leading into the Final Four. `\
 https://nytimes.com/athletic/6897672/2025/12/18/ncaa-womens-volleyball-2025-final-four-teams-tv/
