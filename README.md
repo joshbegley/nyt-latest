@@ -1,3 +1,15 @@
+**The U.S. Moves to End Gender-Related Care for Minors**\
+`Also, authorities search for a person of interest in Brown shooting. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2025/12/18/briefing/trump-gender-related-treatments-brown-shooting-investigation.html
+
+**Ferrari is almost out of time — 2026 is 'now or never' for Hamilton and Leclerc**\
+`Ferrari team boss Fred Vasseur has fronted up to what went wrong for the Italian in F1 2025. But it cannot afford to repeat this in 2026`\
+https://nytimes.com/athletic/6898276/2025/12/18/ferrari-lewis-hamilton-charles-leclerc-2026-f1/
+
+**Giannis addresses reported trade rumors, calf injury: 'I'm still locked in'**\
+`Giannis spoke Thursday on the rumors surrounding the future with the Milwaukee Bucks, as well as the injury to his right calf.`\
+https://nytimes.com/athletic/6899472/2025/12/18/giannis-antetokounmpo-bucks-nba-trade-rumors-comments/
+
 **President Trump Reclassifies Marijuana With Executive Order**\
 `Marijuana was downgraded from a Schedule I drug to a Schedule III drug on Thursday. The reclassification does not legalize cannabis, but it does ease restrictions on the substance and allows for more research.`\
 https://nytimes.com/video/us/politics/100000010597414/trump-marijuana-executive-order.html
@@ -25,16 +37,4 @@ https://nytimes.com/interactive/2025/briefing/2025-faces-quiz.html
 **2025 Faces Quiz: Sports**\
 `See how well you know the athletes of 2025 with The New York Times Faces Quiz.`\
 https://nytimes.com/interactive/2025/briefing/2025-faces-quiz-sports.html
-
-**2025 Faces Quiz: Politics**\
-`See how well you know the politicians of 2025 with The New York Times Faces Quiz.`\
-https://nytimes.com/interactive/2025/briefing/2025-faces-quiz-politics.html
-
-**2025 Faces Quiz: Culture**\
-`See how well you know the television, movie, music and literary figures of 2025 with The New York Times Faces Quiz.`\
-https://nytimes.com/interactive/2025/briefing/2025-faces-quiz-culture.html
-
-**Jelly Roll Is Pardoned for Previous Robbery and Drug Convictions**\
-`The clemency decision by Gov. Bill Lee of Tennessee could make it easier for the country star to travel internationally.`\
-https://nytimes.com/2025/12/18/arts/music/jelly-roll-pardon-tennessee.html
 
