@@ -1,3 +1,7 @@
+**Chelsea's Maresca high on Man City's list in event of Guardiola exit**\
+`City are advancing contingency planning as there is a growing anticipation of this being the Catalan manager's last season.`\
+https://nytimes.com/athletic/6896778/2025/12/18/pep-guardiola-man-city-enzo-maresca/
+
 **Is It About the Oil?**\
 `We look at what President Trump is trying to achieve in Venezuela.`\
 https://nytimes.com/2025/12/18/briefing/is-it-about-the-oil.html
