@@ -1,3 +1,7 @@
+**Late Night Shades Trump’s Impromptu ‘Liar-side Chat’**\
+`Jimmy Kimmel called the president’s last-minute speech “a surprise prime-time episode of ‘The Worst Wing’ tonight on every channel.”`\
+https://nytimes.com/2025/12/18/arts/television/late-night-trump-address.html
+
 **Australia Mourns the Youngest Victim of the Bondi Beach Shooting**\
 `Sydney’s devastated Jewish community gathered for the funeral of “Matilda Bee,” an ebullient, smiling 10-year-old girl.`\
 https://nytimes.com/2025/12/18/world/asia/australia-matilda-funeral-bondi-shooting.html
