@@ -1,3 +1,11 @@
+**Week 16 NFL playoff picture: A team-by-team look at every possible scenario**\
+`With three weeks remaining in the 2025 NFL season, the playoff picture is starting to take shape.`\
+https://nytimes.com/athletic/6891435/2025/12/18/week-16-nfl-playoff-picture-a-team-by-team-look-at-every-possible-scenario/
+
+**Ecuador's soccer player Pineida shot dead aged 33**\
+`The full-back, who played nine times at international level and most recently in 2021, was killed in Guayaquil.`\
+https://nytimes.com/athletic/6898963/2025/12/18/mario-pineida-ecuador-footballer-death/
+
 **How Should Parents Talk to Their Children About Wealth Inequality?**\
 `Parents sometimes struggle when they try to explain why some people have more or less money than others. What’s your advice?`\
 https://nytimes.com/2025/12/18/learning/how-should-parents-talk-to-their-children-about-wealth-inequality.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6898463/2025/12/18/pep-guardiola-manchester-city-le
 **Trump Administration Live Updates: President Defends Record on Economy Amid Americans’ Concerns**\
 ``\
 https://nytimes.com/live/2025/12/18/us/trump-news
-
-**A second chance at life, and the Nebraska volleyball connection that sparked a smile**\
-`Merritt Squire was named after former Nebraska star Merritt Beason. They met at a time the Squire family needed it most.`\
-https://nytimes.com/athletic/6897608/2025/12/18/nebraska-volleyball-merritt-beason/
-
-**Dodgers mailbag: Edwin Díaz's surprise signing, Teoscar Hernández's future**\
-`Plus, how the front office is approaching spending this offseason.`\
-https://nytimes.com/athletic/6896929/2025/12/18/dodgers-edwin-diaz-teoscar-hernandez/
 
