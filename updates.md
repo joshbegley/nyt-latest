@@ -1,3 +1,7 @@
+**We’re in the Age of American Pessimism**\
+`America is in its pessimism era and Trump is playing on it, argues the columnist David Brooks in this episode of “The Conversation.”`\
+https://nytimes.com/video/opinion/100000010593621/were-in-the-age-of-american-pessimism.html
+
 **Is Trump Finished?**\
 `“A lot of people are seeing some things that are really bad for Donald Trump,” David Brooks says in this episode of “The Conversation.”`\
 https://nytimes.com/video/opinion/100000010593626/is-trump-finished.html
