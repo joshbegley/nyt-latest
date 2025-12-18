@@ -1,3 +1,7 @@
+**The New York Times in Print for Thursday, Dec. 18, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/12/18/todays-new-york-times
+
 **Kerkez looked inhibited at Liverpool. A tactical tweak has changed that**\
 `The Hungary left-back is being given more licence to attack in recent matches - which is the reason he was signed in the first place`\
 https://nytimes.com/athletic/6896468/2025/12/18/milos-kerkez-liverpool-tactics/

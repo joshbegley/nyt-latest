@@ -1,3 +1,7 @@
+**The New York Times in Print for Thursday, Dec. 18, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/12/18/todays-new-york-times
+
 **Kerkez looked inhibited at Liverpool. A tactical tweak has changed that**\
 `The Hungary left-back is being given more licence to attack in recent matches - which is the reason he was signed in the first place`\
 https://nytimes.com/athletic/6896468/2025/12/18/milos-kerkez-liverpool-tactics/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6896581/2025/12/18/chelsea-stadium-earls-court-plan
 **Manchester United and Antoine Semenyo. Does it make sense?**\
 `Semenyo's seven goals and three assists across the 2025-26 season rank him as one of the more dangerous attackers outside of the 'Big Six'`\
 https://nytimes.com/athletic/6822771/2025/12/18/antoine-semenyo-manchester-united-transfer-analysis/
-
-**The Alternative Premier League Table: No 17 – Own goals**\
-`Matchday 16 saw four own goals go in across the division. So who are the teams and players most susceptible to putting it in their own net?`\
-https://nytimes.com/athletic/6895863/2025/12/18/alternative-premier-league-table-own-goals/
 
