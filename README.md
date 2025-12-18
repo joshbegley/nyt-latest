@@ -1,3 +1,7 @@
+**Atlantic City’s Mayor Is Found Not Guilty of Assaulting His Daughter**\
+`A jury on Thursday acquitted Marty Small Sr. of all four crimes he was charged with, including aggravated assault and endangering the welfare of his teenage daughter.`\
+https://nytimes.com/2025/12/18/nyregion/atlantic-city-mayor-not-guilty.html
+
 **Trump to Sign Executive Order to Reclassify Marijuana, Easing Restrictions on the Drug**\
 `Marijuana’s classification as one of the most dangerous and habit-forming substances has long drawn criticism.`\
 https://nytimes.com/2025/12/18/us/politics/trump-marijuana-reclassify-order.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6899696/2025/12/18/colombia-football-violence-medel
 **Multiple People Are Killed in North Carolina Jet Crash, Officials Say**\
 `The plane, a Cessna C550, crashed while landing at Statesville Regional Airport, the Federal Aviation Administration said.`\
 https://nytimes.com/2025/12/18/us/statesville-plane-crash-north-carolina.html
-
-**Trump’s Drone Strikes Are Wrong. Obama’s Were, Too**\
-`Readers respond to a guest essay on why the recent boat strikes by the Trump administration are unjustified. `\
-https://nytimes.com/2025/12/18/opinion/trump-obama-drone-strikes-illegal.html
 
