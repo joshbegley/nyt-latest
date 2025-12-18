@@ -1,3 +1,19 @@
+**Jelly Roll Is Pardoned for Previous Robbery and Drug Convictions**\
+`The clemency decision by Gov. Bill Lee of Tennessee could make it easier for the country star to travel internationally.`\
+https://nytimes.com/2025/12/18/arts/music/jelly-roll-pardon-tennessee.html
+
+**7 Killed in North Carolina Jet Crash**\
+`Five adults and two people were killed after a small passenger jet crashed at the Statesville Regional Airport in North Carolina, according to the local sheriff. The plane was registered to the NASCAR driver Greg Biffle.`\
+https://nytimes.com/video/us/100000010597180/north-carolina-plane-crash.html
+
+**Trump Mocks Obama, Biden in His Presidential ‘Walk of Fame’**\
+`The White House unveiled new plaques near the Oval Office mocking some of President Trump’s predecessors. The new display distorts history and aligns with Mr. Trump’s worldview.`\
+https://nytimes.com/video/us/politics/100000010596269/trump-presidential-plaques-.html
+
+**Sue Bender, Who Wrote About Living With the Amish, Dies at 91**\
+`“Plain and Simple,” her best-selling 1989 book, was a go-to text of the anti-materialist movement known as voluntary simplicity.`\
+https://nytimes.com/2025/12/18/books/sue-bender-dead.html
+
 **Greg Biffle was a true 'wheelman' on the racetrack — and a true hero off it**\
 `Biffle won a lot of races in his NASCAR career. What he did after Hurricane Helene will leave an even deeper legacy.`\
 https://nytimes.com/athletic/6900518/2025/12/18/greg-biffle-legacy-nascar-hurricane-helene/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6900667/2025/12/18/nfl-week-16-odds-projected-score
 **Mamdani Appointee Resigns After Decade-Old Antisemitic Posts Re-emerge**\
 `Catherine Almonte Da Costa resigned from her just-announced post as Mayor-elect Zohran Mamdani’s director of appointments after the Anti-Defamation League resurfaced the comments.`\
 https://nytimes.com/2025/12/18/nyregion/mamdani-resigns-antisemitic-da-costa.html
-
-**Live Updates: Authorities Search for a New Person of Interest in the Shooting at Brown**\
-`Investigators are also examining the possibility that the case is connected to the killing of an M.I.T. professor in his home in Massachusetts.`\
-https://nytimes.com/live/2025/12/18/us/brown-shooting-suspect
-
-**How Will Trump’s Policies Affect You? We Answer Your Questions.**\
-`Hard to follow the dizzying array of developments out of Washington over the past year? Here are our answers to your pressing questions.`\
-https://nytimes.com/interactive/2025/12/18/us/trump-policy-impact-tariffs-healthcare-immigration-affordability.html
-
-**McIlroy has done the impossible – make the British public fall in love with golf**\
-`BBC Sports Personality of the Year may not add much to McIlroy's CV, but it proves that golf is finally cutting through`\
-https://nytimes.com/athletic/6899328/2025/12/18/rory-mcilroy-bbc-sports-personality-golf/
-
-**Saban compares JMU’s playoff spot to minor-league team reaching World Series**\
-`The five highest-ranked conference champions make the field even if they don't finish in the top 12 of the rankings.`\
-https://nytimes.com/athletic/6900603/2025/12/18/nick-saban-jmu-college-football-playoff-mcafee/
 
