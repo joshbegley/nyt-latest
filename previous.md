@@ -1,3 +1,27 @@
+**City Council Introduces Bill to Create Mamdani’s Community Safety Agency**\
+`The proposed Department of Community Safety would send mental health teams to respond to 911 calls, rather than the police, according to Mayor-elect Zohran Mamdani’s plans.`\
+https://nytimes.com/2025/12/18/nyregion/city-council-community-safety-mamdani.html
+
+**New York City Set to Raise the Cap on Permits for Street Vendors**\
+`The legislation is part of a package of City Council bills aimed at helping the city’s thousands of vendors get on the right side of the law.`\
+https://nytimes.com/2025/12/18/nyregion/nyc-street-vendor-permits-cap-raised.html
+
+**Where ‘Seinfeld,’ a $120,000 Chandelier and a Mysterious Church Converge**\
+`Olde Good Things, an antiques giant with stores in New York and Los Angeles, is operated by a group called the Church of Bible Understanding.`\
+https://nytimes.com/2025/12/18/nyregion/olde-good-things-antiques.html
+
+**Flowers and Candlelight**\
+`Why was this image in the news this week? What is your reaction?`\
+https://nytimes.com/2025/12/18/learning/flowers-and-candlelight.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/12/18/crosswords/spelling-bee-forum.html
+
+**An Airport Hotel Gets New Life as Affordable Housing**\
+`Text by Text by Mihir Zaveri; Visuals by Karsten Moran`\
+https://nytimes.com/card/2025/12/18/undefined/
+
 **How to watch 49ers vs. Colts: Time, TV, streaming**\
 `Find out how to watch the San Francisco 49ers play the Indianapolis Colts, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6898887/2025/12/18/49ers-vs-colts-stream-how-to-watch-dec-22/
@@ -13,28 +37,4 @@ https://nytimes.com/2025/12/18/business/bp-new-ceo-oil.html
 **The Ashes Briefing: Relentless Australia stamp their authority on England as Ben Stokes stands alone**\
 `The tourists' batters wilted once more against an experienced bowling attack with more scrutiny falling on the on-field technology`\
 https://nytimes.com/athletic/6897480/2025/12/18/ashes-england-australia-lyon-cummins-stokes-briefing/
-
-**Word of the Day: nominate**\
-`This word has appeared in 262 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/12/18/learning/word-of-the-day-nominate.html
-
-**Late Night Shades Trump’s Impromptu ‘Liar-Side Chat’**\
-`Jimmy Kimmel called the president’s last-minute speech “a surprise prime-time episode of ‘The Worst Wing’ tonight on every channel.”`\
-https://nytimes.com/2025/12/18/arts/television/late-night-trump-address.html
-
-**Australia Mourns the Youngest Victim of the Bondi Beach Shooting**\
-`Sydney’s devastated Jewish community gathered for the funeral of “Matilda Bee,” an ebullient, smiling 10-year-old girl.`\
-https://nytimes.com/2025/12/18/world/asia/australia-matilda-funeral-bondi-shooting.html
-
-**The mystery of the 'Hercules gene' - the blessing and curse of sports stars**\
-`Having extra muscle mass sounds like a benefit for athletes, but the reality is far more complicated`\
-https://nytimes.com/athletic/6856557/2025/12/18/myostatin-mutation-harry-aikines-aryeetey/
-
-**Trump Boasts About Economy in Prime Time Speech**\
-`The president gave a televised speech that featured repeated criticism of Democrats and his predecessor, Joseph R. Biden Jr., along with boasts about gains that many Americans have said they are not experiencing.`\
-https://nytimes.com/video/us/politics/100000010595325/trump-economy-speech-white-house.html
-
-**The New York Times in Print for Thursday, Dec. 18, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/12/18/todays-new-york-times
 
