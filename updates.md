@@ -1,3 +1,7 @@
+**Peter Arnett, Pulitzer-Winning War Correspondent, Dies at 91**\
+`He won the prestigious award for his daring coverage of the Vietnam War for The Associated Press, and went on to cover conflicts for CNN for nearly two decades.`\
+https://nytimes.com/2025/12/17/world/peter-arnett-dead.html
+
 **Canada beats Sweden in first World Juniors pre-tournament game**\
 `Canada still has a few roster cuts to make before the tournament begins on Boxing Day.`\
 https://nytimes.com/athletic/6898308/2025/12/17/canada-world-juniors-roster-lineup-sweden/
