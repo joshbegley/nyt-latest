@@ -1,3 +1,15 @@
+**Milan-Como game in Perth set to go ahead - Serie A president**\
+`Serie A's concerns have been allayed following meetings with FIFA President Gianni Infantino and referees' chief Pierluigi Collina.`\
+https://nytimes.com/athletic/6900802/2025/12/18/milan-como-serie-a-perth-australia/
+
+**The 12.21.25 Issue**\
+``\
+https://nytimes.com/issue/magazine/2025/12/18/the-122125-issue
+
+**Man Accused of Dismembering Woman Had Surgical Skills**\
+`The remains of a woman and her child were found near Gilgo Beach on Long Island. Prosecutors accused Andrew Dykes, the father of the child, who had worked in Army clinics, in the woman’s murder.`\
+https://nytimes.com/2025/12/18/nyregion/gilgo-beach-mother-baby-murder.html
+
 **John E. Olson, Analyst Fired for Enron Skepticism, Dies at 83**\
 `An adviser at Merrill Lynch, he refused to recommend the energy trading company. His employer pushed him out, but his stand made him a hero.`\
 https://nytimes.com/2025/12/18/business/john-e-olson-dead.html
