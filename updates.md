@@ -1,3 +1,7 @@
+**Over 1,000 Were Killed in Attack on Famine-Stricken Camp in Sudan, U.N. Says**\
+`A paramilitary attack in April was one of the most brutal of Sudan’s civil war. Now, hunger is spreading as Western aid cuts have reduced U.N. rations.`\
+https://nytimes.com/2025/12/18/world/africa/sudan-rsf-attack-darfur-un.html
+
 **Zuckerberg Compound Prompts Palo Alto to Consider Billionaire Housing Law**\
 `The Silicon Valley college town has changed drastically as Mark Zuckerberg, Larry Page and other tech founders have scooped up multiple properties.`\
 https://nytimes.com/2025/12/18/us/palo-alto-billionaire-compound-law.html
