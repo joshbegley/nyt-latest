@@ -1,3 +1,7 @@
+**Twins owner Tom Pohlad talks replacing brother, new minority partners, winning back fans**\
+`Takeaways from Tom Pohlad's first press conference in charge of the Twins and why the changes could be a mixed bag for frustrated fans.`\
+https://nytimes.com/athletic/6897605/2025/12/17/minnesota-twins-tom-pohlad-ownership-developments/
+
 **The Year in Pictures 2025**\
 `Reflections of Turbulent Times`\
 https://nytimes.com/interactive/2025/world/year-in-pictures.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/17/us/brown-shooter-suspect-providence.html
 **Love, or at Least Marriage, Is in the Air in Trump’s Washington**\
 `Several prominent conservative figures have announced that they are engaged this week, news often celebrated by President Trump.`\
 https://nytimes.com/2025/12/17/style/conservatives-engagements-marjorie-taylor-greene-trump-jr.html
-
-**Twelve Men Saturated East Harlem Housing Project With Drugs, U.S. Says**\
-`For more than three and a half years, officials said, the men used the Johnson Houses as “an open drug market” to sell crack cocaine and fentanyl.`\
-https://nytimes.com/2025/12/17/nyregion/sdny-harlem-drug-charges.html
 

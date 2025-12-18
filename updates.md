@@ -1,3 +1,7 @@
+**Twins owner Tom Pohlad talks replacing brother, new minority partners, winning back fans**\
+`Takeaways from Tom Pohlad's first press conference in charge of the Twins and why the changes could be a mixed bag for frustrated fans.`\
+https://nytimes.com/athletic/6897605/2025/12/17/minnesota-twins-tom-pohlad-ownership-developments/
+
 **The Year in Pictures 2025**\
 `Reflections of Turbulent Times`\
 https://nytimes.com/interactive/2025/world/year-in-pictures.html
