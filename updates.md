@@ -1,3 +1,11 @@
+**Julius Randle is so valuable to the Wolves that they can't survive his rare off night**\
+`With Randle struggling and Anthony Edwards (foot) out, Minnesota had few answers against a short-handed Grizzlies squad.`\
+https://nytimes.com/athletic/6898801/2025/12/18/julius-randle-timberwolves-loss-memphis/
+
+**Interest Rate Cut and Slower Inflation Offer Britons a Reprieve**\
+`Britain’s central bank reduced interest rates to 3.75 percent, a move that was welcomed by the government, which has been looking to lower the high cost of living.`\
+https://nytimes.com/2025/12/18/business/britain-interest-rates-economy.html
+
 **Chiefs' breakthrough draft class faces emotional end: 'I would love to stay here'**\
 `Chiefs cornerback Jaylen Watson is a pending free agent but says he would return to Chiefs if things turned out.`\
 https://nytimes.com/athletic/6897729/2025/12/18/chiefs-jaylen-watson-2022-draft-class/
