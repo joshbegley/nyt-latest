@@ -1,3 +1,11 @@
+**Julius Randle is so valuable to the Wolves that they can't survive his rare off night**\
+`With Randle struggling and Anthony Edwards (foot) out, Minnesota had few answers against a short-handed Grizzlies squad.`\
+https://nytimes.com/athletic/6898801/2025/12/18/julius-randle-timberwolves-loss-memphis/
+
+**Interest Rate Cut and Slower Inflation Offer Britons a Reprieve**\
+`Britain’s central bank reduced interest rates to 3.75 percent, a move that was welcomed by the government, which has been looking to lower the high cost of living.`\
+https://nytimes.com/2025/12/18/business/britain-interest-rates-economy.html
+
 **Chiefs' breakthrough draft class faces emotional end: 'I would love to stay here'**\
 `Chiefs cornerback Jaylen Watson is a pending free agent but says he would return to Chiefs if things turned out.`\
 https://nytimes.com/athletic/6897729/2025/12/18/chiefs-jaylen-watson-2022-draft-class/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6896819/2025/12/18/blackhawks-connor-bedard-injury-
 **CFP pressure gauge: Which coaches are facing the most heat to make a run?**\
 `For some programs, success is no longer defined by getting in the College Football Playoff, but by how long they last.`\
 https://nytimes.com/athletic/6892217/2025/12/18/college-football-playoff-coach-rankings-pressure/
-
-**Broncos' stifling red-zone defense is covering up a problem. Can the trend continue?**\
-`The Broncos are 26th in pass yards allowed per game since Week 11, but a stifling defense near the goal line has helped them keep the pace.`\
-https://nytimes.com/athletic/6897201/2025/12/18/broncos-red-zone-defense-secondary/
-
-**Oregon pioneered CFB's new way of doing business — with no titles to show for it**\
-`Oregon has never been better, but the Ducks are no longer gate-crashers. The transformation that took them decades now takes mere months.`\
-https://nytimes.com/athletic/6897014/2025/12/18/oregon-nil-college-football-playoff/
 
