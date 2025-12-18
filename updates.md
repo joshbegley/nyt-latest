@@ -1,3 +1,11 @@
+**Cubs adding 1B Tyler Austin, a former Yankee returning from Japan: Source**\
+`Austin produced his best year with the Yankees in 2018, when he hit 17 home runs in 69 games.`\
+https://nytimes.com/athletic/6901049/2025/12/18/cubs-adding-first-baseman-tyler-austin/
+
+**Coming Soon to a TV Near Trump: A G.O.P. Ad in N.Y. Governor’s Race**\
+`Bruce Blakeman, an ally of President Trump, is buying ad time on Fox News in the West Palm Beach, Fla., market, where Mr. Trump may be watching.`\
+https://nytimes.com/2025/12/18/nyregion/blakeman-trump-fox-news.html
+
 **Winter Weather Kicks Into High Gear Just in Time for Christmas Travel**\
 `If you’re planning to hit the road in the next few days, here’s where storms may snarl your plans.`\
 https://nytimes.com/2025/12/18/weather/california-rain-christmas-snow-forecast.html

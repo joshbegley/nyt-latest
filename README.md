@@ -1,3 +1,11 @@
+**President Trump Reclassifies Marijuana With Executive Order**\
+`Marijuana was downgraded from a Schedule I drug to a Schedule III drug on Thursday. The reclassification does not legalize cannabis, but it does ease restrictions on the substance and allows for more research.`\
+https://nytimes.com/video/us/politics/100000010597414/trump-marijuana-executive-order.html
+
+**Nike’s Struggles Continue, but Turnaround Plan May Be Working**\
+`Quarterly sales rose slightly for the world’s largest footwear company despite weak results in China and with its Converse brand.`\
+https://nytimes.com/2025/12/18/business/nike-earnings-converse.html
+
 **Cubs adding 1B Tyler Austin, a former Yankee returning from Japan: Source**\
 `Austin produced his best year with the Yankees in 2018, when he hit 17 home runs in 69 games.`\
 https://nytimes.com/athletic/6901049/2025/12/18/cubs-adding-first-baseman-tyler-austin/
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2025/briefing/2025-faces-quiz-culture.html
 **Jelly Roll Is Pardoned for Previous Robbery and Drug Convictions**\
 `The clemency decision by Gov. Bill Lee of Tennessee could make it easier for the country star to travel internationally.`\
 https://nytimes.com/2025/12/18/arts/music/jelly-roll-pardon-tennessee.html
-
-**7 Killed in North Carolina Jet Crash**\
-`Five adults and two people were killed after a small passenger jet crashed at the Statesville Regional Airport in North Carolina, according to the local sheriff. The plane was registered to the NASCAR driver Greg Biffle.`\
-https://nytimes.com/video/us/100000010597180/north-carolina-plane-crash.html
-
-**Trump Mocks Obama, Biden in His Presidential ‘Walk of Fame’**\
-`The White House unveiled new plaques near the Oval Office mocking some of President Trump’s predecessors. The new display distorts history and aligns with Mr. Trump’s worldview.`\
-https://nytimes.com/video/us/politics/100000010596269/trump-presidential-plaques-.html
 
