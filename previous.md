@@ -1,3 +1,11 @@
+**Full Transcript of President Trump’s Speech on the Economy**\
+`The president sharply attacked his predecessor while insisting that his own record contained nothing but victories.`\
+https://nytimes.com/2025/12/17/us/politics/trump-speech-transcript-economy.html
+
+**In Combative Speech, Trump Tries to Deflect Blame for Economic Concerns**\
+`Mixing misleading claims with repeated attacks, President Trump promised relief for Americans but said he needed time to deliver it.`\
+https://nytimes.com/2025/12/17/us/trump-tv-white-house-speech-economy.html
+
 **Peter Arnett, Pulitzer-Winning War Correspondent, Dies at 91**\
 `He won the prestigious award for his daring coverage of the Vietnam War for The Associated Press, and went on to cover conflicts for CNN for nearly two decades.`\
 https://nytimes.com/2025/12/17/world/peter-arnett-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6898204/2025/12/17/tyler-skaggs-case-angels-might-r
 **For neighbors, a sense of shock and sadness hangs over the Reiners’ home.**\
 `By Rachel Parsons`\
 https://nytimes.com/live/2025/12/17/us/rob-nick-reiner-murder-charges/for-neighbors-a-sense-of-shock-and-sadness-hangs-over-the-reiners-home
-
-**U.S. Government Admits Liability in Deadly D.C.-Area Air Collision**\
-`A federal court filing says the Army crew piloting a Black Hawk helicopter could have avoided the nighttime accident in January if it had been able to see and avoid a commercial jet.`\
-https://nytimes.com/live/2025/12/17/us/trump-news/government-liability-air-collision
-
-**Fani Willis Defends Failed Election Interference Case in Heated Hearing**\
-`The Atlanta-area district attorney called President Trump and his allies “criminals” while being questioned by a Georgia Senate committee on Wednesday.`\
-https://nytimes.com/video/us/politics/100000010594014/willis-georgia-investigative-hearing.html
 

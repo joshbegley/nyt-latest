@@ -1,3 +1,7 @@
+**Australia to Crack Down on Hate Speech After Bondi Attack**\
+`New legislation will be drafted to target those who promote violence and to increase penalties for hate speech, the prime minister said Thursday.`\
+https://nytimes.com/2025/12/17/us/australia-hate-speech-legislation.html
+
 **Full Transcript of President Trump’s Speech on the Economy**\
 `The president sharply attacked his predecessor while insisting that his own record contained nothing but victories.`\
 https://nytimes.com/2025/12/17/us/politics/trump-speech-transcript-economy.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/podcasts/100000010593623/wesley-morris-remembers-rob-r
 **Jury in Skaggs-Angels trial asks court questions related to damages**\
 `Two days of deliberations have rendered no verdict from jurors in the wrongful death civil trial.`\
 https://nytimes.com/athletic/6898204/2025/12/17/tyler-skaggs-case-angels-might-request-mistrial/
-
-**For neighbors, a sense of shock and sadness hangs over the Reiners’ home.**\
-`By Rachel Parsons`\
-https://nytimes.com/live/2025/12/17/us/rob-nick-reiner-murder-charges/for-neighbors-a-sense-of-shock-and-sadness-hangs-over-the-reiners-home
 

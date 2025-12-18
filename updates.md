@@ -1,3 +1,11 @@
+**Full Transcript of President Trump’s Speech on the Economy**\
+`The president sharply attacked his predecessor while insisting that his own record contained nothing but victories.`\
+https://nytimes.com/2025/12/17/us/politics/trump-speech-transcript-economy.html
+
+**In Combative Speech, Trump Tries to Deflect Blame for Economic Concerns**\
+`Mixing misleading claims with repeated attacks, President Trump promised relief for Americans but said he needed time to deliver it.`\
+https://nytimes.com/2025/12/17/us/trump-tv-white-house-speech-economy.html
+
 **Peter Arnett, Pulitzer-Winning War Correspondent, Dies at 91**\
 `He won the prestigious award for his daring coverage of the Vietnam War for The Associated Press, and went on to cover conflicts for CNN for nearly two decades.`\
 https://nytimes.com/2025/12/17/world/peter-arnett-dead.html
