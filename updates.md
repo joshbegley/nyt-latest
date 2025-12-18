@@ -1,3 +1,15 @@
+**N.Y.C. Subway Crime Is Down, Hochul Says, Rebutting Trump Officials**\
+`Gov. Kathy Hochul said the state would spend another $77 million on police patrols in the subway, acknowledging that felony assaults remain stubbornly high.`\
+https://nytimes.com/2025/12/18/nyregion/nyc-subway-mta-safety-low-crime.html
+
+**Inside the Fight to Keep Mamdani’s Promise of 200,000 Affordable Homes**\
+`As Zohran Mamdani prepares to take over as mayor of New York, his team and allies have been pushing back against proposals that could make it more difficult to build new homes in the city.`\
+https://nytimes.com/2025/12/18/nyregion/mamdani-city-council-housing.html
+
+**Trump’s Drone Strikes Are Wrong. Obama’s Were, Too.**\
+`Readers respond to Jeh C. Johnson’s essay on drone strikes. `\
+https://nytimes.com/2025/12/18/opinion/trump-obama-drone-strikes-illegal.html
+
 **Colts' Anthony Richardson returns to practice after orbital fracture**\
 `Richardson, who practiced for the first time in more than 2 months, is still on IR, but the team opened his 21-day return-to-play window.`\
 https://nytimes.com/athletic/6899742/2025/12/18/anthony-richardson-practice-return-injury-colts/
