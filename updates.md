@@ -1,3 +1,11 @@
+**Wesley Morris Remembers Rob Reiner’s Movies**\
+`This week, Wesley reflects on the impact Rob Reiner had on his life, specifically the 1990 film “Misery,” and how Reiner brought humanity to his characters in unexpected ways.`\
+https://nytimes.com/video/podcasts/100000010593623/wesley-morris-remembers-rob-reiners-movies.html
+
+**Jury in Skaggs-Angels trial asks court questions related to damages**\
+`Two days of deliberations have rendered no verdict from jurors in the wrongful death civil trial.`\
+https://nytimes.com/athletic/6898204/2025/12/17/tyler-skaggs-case-angels-might-request-mistrial/
+
 **For neighbors, a sense of shock and sadness hangs over the Reiners’ home.**\
 `By Rachel Parsons`\
 https://nytimes.com/live/2025/12/17/us/rob-nick-reiner-murder-charges/for-neighbors-a-sense-of-shock-and-sadness-hangs-over-the-reiners-home
