@@ -1,3 +1,7 @@
+**Cubs adding 1B Tyler Austin, a former Yankee returning from Japan: Source**\
+`Austin produced his best year with the Yankees in 2018, when he hit 17 home runs in 69 games.`\
+https://nytimes.com/athletic/6901049/2025/12/18/cubs-tyler-austin-contract/
+
 **The U.S. Moves to End Gender-Related Care for Minors**\
 `Also, authorities search for a person of interest in Brown shooting. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2025/12/18/briefing/trump-gender-related-treatments-brown-shooting-investigation.html
