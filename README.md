@@ -1,3 +1,19 @@
+**Trump and His Loyalists Move to Name the Kennedy Center for Him**\
+`The performing arts center is by law designated the John F. Kennedy Center for the Performing Arts, and it has been generally understood that the power to change the center’s name lies with Congress.`\
+https://nytimes.com/2025/12/18/us/politics/trump-kennedy-center-name.html
+
+**Australian Police Detain 7 Men on Suspicion of Planning a ‘Violent Act’**\
+`The raid in Sydney occurred days after a mass shooting in Bondi Beach killed 15 people, but the police say they have found no connection between the two events so far.`\
+https://nytimes.com/2025/12/18/world/australia/sydney-arrests-suspicion-violent-act.html
+
+**WATCH: Why does free agency matter more in MLB than in other sports?**\
+`Baseball free agency is unlike any other major-league free agency in North American sports.`\
+https://nytimes.com/athletic/6894843/2025/12/18/why-does-free-agency-matter-more-in-mlb-than-in-other-sports/
+
+**Ex-NFL player Myles Jack arrested in Texas on felony gun charge**\
+`The former Steelers and Jaguars LB was arrested after police saw him fall from a second-story window, they said.`\
+https://nytimes.com/athletic/6900051/2025/12/18/nfl-myles-jack-arrest/
+
 **Fantasy basketball hot topics of the week: KD's upside in Houston, Asa Newell watch and more**\
 `Stan Son reviews the top recent NBA storylines, including KD's capped upside with Houston and a player to watch in Atlanta.`\
 https://nytimes.com/athletic/6899779/2025/12/18/fantasy-basketball-hot-topics-waiver-wire-kd/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/12/18/dining/make-ahead-easy-to-transport-christmas-cas
 **Jet Crashes at North Carolina Airport**\
 `The Federal Aviation Administration said several people were killed when a Cessna C550 jet crashed while landing at Statesville Regional Airport.`\
 https://nytimes.com/video/us/100000010596592/north-carolina-jet-crash.html
-
-**Rams star Puka Nacua apologizes for antisemitic dance on livestream**\
-`Nacua, 24, appeared with streamers Adin Ross and N3on this week in advance of the Rams' Thursday night game against the Seattle Seahawks.`\
-https://nytimes.com/athletic/6900166/2025/12/18/puka-nacua-apology-rams-adin-ross-stream/
-
-**Cowboys DC Matt Eberflus moving up to the coaching booth: 'Going to be a good adjustment'**\
-`Eberflus is not looking for a vote of confidence from owner Jerry Jones. "It's about doing your job," he said Thursday.`\
-https://nytimes.com/athletic/6900016/2025/12/18/cowboys-matt-eberflus-defense-coaching-booth/
-
-**Trump Administration Proposes Rules to End Gender-Related Care for Minors**\
-`Health Secretary Robert F.`\
-https://nytimes.com/video/us/politics/100000010596326/trump-ends-gender-care-minors.html
-
-**Cardinal Timothy Dolan Tapped the Power of the New York Pulpit**\
-`From St. Patrick’s Cathedral to the White House to Fox News, he comfortably inhabited many spheres of influence.`\
-https://nytimes.com/2025/12/18/us/cardinal-timothy-dolan-archbishop-catholicism.html
 
