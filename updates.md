@@ -1,3 +1,11 @@
+**Jacques Martin to join Senators' Ring of Honour on Jan. 24**\
+`The 73-year-old Martin is Ottawa's franchise leader in regular-season and playoff coaching wins as well as games coached.`\
+https://nytimes.com/athletic/6899526/2025/12/18/jacques-martin-ottawa-senators-ring-honour/
+
+**Puka Nacua's brother arrested, accused of stealing car belonging to Lakers rookie**\
+`Samson Nacua last played for the UFL's now-defunct Michigan Panthers after brief training camp stops in the NFL.`\
+https://nytimes.com/athletic/6898441/2025/12/18/samson-nakua-arrested-adou-thiero-lakers/
+
 **A Designer of Maximalist Fine Jewelry Embraces Warm Minimalism at Home**\
 `With clean lines and a pared-down palette, Joe Spiro’s London apartment is a refuge from his glittery day job.`\
 https://nytimes.com/2025/12/18/t-magazine/joe-spiro-house.html

@@ -1,3 +1,11 @@
+**Jacques Martin to join Senators' Ring of Honour on Jan. 24**\
+`The 73-year-old Martin is Ottawa's franchise leader in regular-season and playoff coaching wins as well as games coached.`\
+https://nytimes.com/athletic/6899526/2025/12/18/jacques-martin-ottawa-senators-ring-honour/
+
+**Puka Nacua's brother arrested, accused of stealing car belonging to Lakers rookie**\
+`Samson Nacua last played for the UFL's now-defunct Michigan Panthers after brief training camp stops in the NFL.`\
+https://nytimes.com/athletic/6898441/2025/12/18/samson-nakua-arrested-adou-thiero-lakers/
+
 **A Designer of Maximalist Fine Jewelry Embraces Warm Minimalism at Home**\
 `With clean lines and a pared-down palette, Joe Spiro’s London apartment is a refuge from his glittery day job.`\
 https://nytimes.com/2025/12/18/t-magazine/joe-spiro-house.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/18/us/cardinal-timothy-dolan-archbishop-catholicism.
 **Thousands of dinosaur footprints discovered near Milan-Cortina Olympic sites**\
 `Thousands of footprints are discovered near Olympic slopes, which researchers say is one of the most striking fossil discoveries in decades.`\
 https://nytimes.com/athletic/6900101/2025/12/18/dinosaur-footprints-near-milan-cortina-olympic-sites/
-
-**Atlantic City’s Mayor Is Found Not Guilty of Assaulting His Daughter**\
-`A jury on Thursday acquitted Marty Small Sr. of all four crimes he was charged with, including aggravated assault and endangering the welfare of his teenage daughter.`\
-https://nytimes.com/2025/12/18/nyregion/atlantic-city-mayor-not-guilty.html
-
-**Trump Signs Executive Order to Reclassify Marijuana, Easing Restrictions on the Drug**\
-`Marijuana’s classification as one of the most dangerous and habit-forming substances has long drawn criticism.`\
-https://nytimes.com/2025/12/18/us/politics/trump-marijuana-reclassify-order.html
 
