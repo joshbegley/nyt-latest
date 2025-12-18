@@ -1,3 +1,11 @@
+**The Flop That Proved Rob Reiner Could Take Criticism With Humor**\
+`Roger Ebert said he “hated, hated, hated, hated, hated” Reiner’s 1994 film “North.” The director took it in stride.`\
+https://nytimes.com/2025/12/18/arts/rob-reiner-north-movie.html
+
+**The Meaning of Luigi Mangione’s New Suits**\
+`In court before his trial for killing the chief executive of UnitedHealthcare, Mr. Mangione tried out a different look.`\
+https://nytimes.com/2025/12/18/style/luigi-mangione-court-hearings-suits.html
+
 **Mamdani Names Budget Director as He Prepares to Enact Costly Agenda**\
 `Mayor-Elect Zohran Mamdani chose Sherif Soliman, a veteran of municipal government and the chief financial officer of the City University of New York, to lead the Office of Management and Budget.`\
 https://nytimes.com/2025/12/18/nyregion/zohran-mamdani-sherif-soliman-omb.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/australia/100000010595508/bondi-shooting-matilda
 **They Thought They Had ‘Made It.’ Now They Can’t Afford Food.**\
 `New Yorkers in the so-called “missing middle,” who may make too much for food benefits, say it’s still hard to find enough money for groceries.`\
 https://nytimes.com/2025/12/18/nyregion/nyc-food-budgets.html
-
-**Rosenthal: What I'm hearing about the Diamondbacks, Rays and Cardinals, plus more MLB notes**\
-`A scenario exists in which the Diamondbacks could sign Alex Bregman and keep Ketel Marte, but it seems unrealistic.`\
-https://nytimes.com/athletic/6899402/2025/12/18/mlb-offseason-diamondbacks-rays-cardinals-free-agency-trades/
-
-**Trump Announces ‘Warrior Dividend’ For Troops**\
-`President Trump promised active duty troops a $1,776 check from revenue raised by tariffs, without acknowledging that the Supreme Court is weighing the legality of the powers used to impose the levies.`\
-https://nytimes.com/2025/12/18/us/trump-address-warrior-dividend-military-check-1776.html
 
