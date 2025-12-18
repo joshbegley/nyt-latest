@@ -1,3 +1,11 @@
+**Trump’s handling of the economy has dragged down his approval rating.**\
+`By Ruth Igielnik and Tyler Pager`\
+https://nytimes.com/live/2025/12/17/us/trump-address-nation-speech/trumps-handling-of-the-economy-has-dragged-down-his-approval-rating
+
+**Nats continue youth movement; set to hire Phillies' Ani Kilambi, 31, as GM: Source**\
+`The Nationals will have a 33-year-old manager, 31-year-old GM and 35-year-old president of baseball operations.`\
+https://nytimes.com/athletic/6897955/2025/12/17/nationals-youth-movement-ani-kilambi-gm/
+
 **Here’s What to Expect From Trump’s Speech**\
 `President Trump will address the nation on Wednesday night at 9 p.m. Eastern time. The New York Times will provide live coverage and analysis.`\
 https://nytimes.com/2025/12/17/us/politics/trump-address-speech-when-what-time.html
