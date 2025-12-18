@@ -1,3 +1,15 @@
+**Youngest Victim of Bondi Beach Shooting Laid to Rest**\
+`A funeral was held on Thursday for Matilda, 10, the youngest victim of Sunday’s mass shooting at Bondi Beach.`\
+https://nytimes.com/video/world/australia/100000010595508/bondi-shooting-matilda-funeral.html
+
+**They Thought They Had ‘Made It.’ Now They Can’t Afford Food.**\
+`New Yorkers in the so-called “missing middle,” who may make too much for food benefits, say it’s still hard to find enough money for groceries.`\
+https://nytimes.com/2025/12/18/nyregion/nyc-food-budgets.html
+
+**Rosenthal: What I'm hearing about the Diamondbacks, Rays and Cardinals, plus more MLB notes**\
+`A scenario exists in which the Diamondbacks could sign Alex Bregman and keep Ketel Marte, but it seems unrealistic.`\
+https://nytimes.com/athletic/6899402/2025/12/18/mlb-offseason-diamondbacks-rays-cardinals-free-agency-trades/
+
 **Trump Announces ‘Warrior Dividend’ For Troops**\
 `President Trump promised active duty troops a $1,776 check from revenue raised by tariffs, without acknowledging that the Supreme Court is weighing the legality of the powers used to impose the levies.`\
 https://nytimes.com/2025/12/18/us/trump-address-warrior-dividend-military-check-1776.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6891435/2025/12/18/week-16-nfl-playoff-picture-a-te
 **Ecuador's soccer player Pineida shot dead aged 33**\
 `The full-back, who played nine times at international level and most recently in 2021, was killed in Guayaquil.`\
 https://nytimes.com/athletic/6898963/2025/12/18/mario-pineida-ecuador-footballer-death/
-
-**How Should Parents Talk to Their Children About Wealth Inequality?**\
-`Parents sometimes struggle when they try to explain why some people have more or less money than others. What’s your advice?`\
-https://nytimes.com/2025/12/18/learning/how-should-parents-talk-to-their-children-about-wealth-inequality.html
-
-**Olivier Rioux, Florida's 7-foot-9 freshman, dunks home first career field goal**\
-`Including Wednesday, Rioux has played just seven minutes this season, as he sits behind a loaded frontcourt.`\
-https://nytimes.com/athletic/6899194/2025/12/18/oliver-rioux-florida-first-basket-dunk/
-
-**Como's Fabregas in dispute with Senegal over Diao's AFCON participation**\
-`Diao, 20, has made just seven appearances this campaign due to recurring issues, namely with his foot and hamstring.`\
-https://nytimes.com/athletic/6896965/2025/12/18/fabregas-senegal-diao-afcon-squad-news/
 
