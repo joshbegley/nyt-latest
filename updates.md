@@ -1,3 +1,15 @@
+**NFL Week 16 model-projected scores and point totals for every game**\
+`Austin Mock's NFL Projection Model gives its predictions for the points differentials and totals for every Week 16 game.`\
+https://nytimes.com/athletic/6900667/2025/12/18/nfl-week-16-odds-projected-scores-point-spreads-totals/
+
+**Mamdani Appointee Resigns After Decade-Old Antisemitic Posts Re-emerge**\
+`Catherine Almonte Da Costa resigned from her just-announced post as Mayor-elect Zohran Mamdani’s director of appointments after the Anti-Defamation League resurfaced the comments.`\
+https://nytimes.com/2025/12/18/nyregion/mamdani-resigns-antisemitic-da-costa.html
+
+**Live Updates: Authorities Search for a New Person of Interest in the Shooting at Brown**\
+`Investigators are also examining the possibility that the case is connected to the killing of an M.I.T. professor in his home in Massachusetts.`\
+https://nytimes.com/live/2025/12/18/us/brown-shooting-suspect
+
 **Saban compares JMU’s playoff spot to minor-league team reaching World Series**\
 `The five highest-ranked conference champions make the field even if they don't finish in the top 12 of the rankings.`\
 https://nytimes.com/athletic/6900603/2025/12/18/nick-saban-jmu-college-football-playoff-mcafee/
