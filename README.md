@@ -1,3 +1,11 @@
+**If Guardiola goes, Maresca may be the best candidate to preserve his Man City legacy**\
+`The Chelsea coach had two stints at Manchester City and his coach has exhibited the strong influence of Pep Guardiola's methods`\
+https://nytimes.com/athletic/6896755/2025/12/18/pep-guardiola-maresca-manchester-city-legacy/
+
+**250 Years of Jane Austen, in Objects**\
+`To capture Jane Austen’s brief life and enormous impact, editors at The New York Times Book Review assembled a sampling of the wealth, wonder and weirdness she has brought to our lives.`\
+https://nytimes.com/video/books/100000010560621/250-years-of-jane-austen-in-objects.html
+
 **French Doctor Sentenced to Life for Fatally Poisoning 12 People**\
 `Frédéric Péchier, an anesthesiologist, was found guilty of poisoning 30 patients, of whom 12 died.`\
 https://nytimes.com/2025/12/18/world/europe/french-doctor-anesthesiologist-fatally-poisoning-12-people-convicted.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/asia/100000010592901/japan-pandas-china-zoo.html
 **Zelensky Makes Appeal to E.U. Leaders for Frozen Russian Funds to Fight War**\
 `President Volodymyr Zelensky said in Brussels, where the leaders had gathered, that without the money, his country would have to reduce its drone production significantly.`\
 https://nytimes.com/2025/12/18/world/europe/ukraine-zelensky-russia-putin.html
-
-**How to watch Hawks vs. Hornets: Time, TV, streaming**\
-`Find out how to watch the Atlanta Hawks play the Charlotte Hornets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6899680/2025/12/18/hawks-vs-hornets-stream-how-to-watch-dec-18/
-
-**How to watch Oilers vs. Bruins: Time, TV, streaming**\
-`Find out how to watch the Edmonton Oilers play the Boston Bruins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6899675/2025/12/18/oilers-vs-bruins-stream-how-to-watch-dec-18/
 

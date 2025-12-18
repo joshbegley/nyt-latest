@@ -1,3 +1,19 @@
+**French Doctor Sentenced to Life for Fatally Poisoning 12 People**\
+`Frédéric Péchier, an anesthesiologist, was found guilty of poisoning 30 patients, of whom 12 died.`\
+https://nytimes.com/2025/12/18/world/europe/french-doctor-anesthesiologist-fatally-poisoning-12-people-convicted.html
+
+**Missouri QB Beau Pribula to enter transfer portal: Sources**\
+`Pribula started 10 games for the Tigers after joining the team last season, having spent his first three years in college at Penn State.`\
+https://nytimes.com/athletic/6899664/2025/12/18/missouri-beau-pribula-enter-transfer-portal/
+
+**Massachusetts Battery Start-Up to List on Stock Exchange**\
+`Factorial, the start-up, said the listing would provide money that would help it bring new solid-state batteries to market as soon as 2027.`\
+https://nytimes.com/2025/12/18/business/energy-environment/factorial-electric-vehicle-battery-spac.html
+
+**U.S. government admits liability in D.C. plane crash that killed figure skaters**\
+`The government said the Army helicopter pilots failed to "maintain vigilance" to see and avoid the American Airlines jet before the crash.`\
+https://nytimes.com/athletic/6899400/2025/12/18/plane-crash-government-liability-figure-skaters-olympics/
+
 **NCAA 'vehemently opposed' as Kalshi files to offer prediction markets on player transfers**\
 `Kalshi filed the necessary paperwork to begin taking bets this week on who will transfer, but as of Thursday no markets are available.`\
 https://nytimes.com/athletic/6899520/2025/12/18/ncaa-transfer-portal-kalshi-prediction-markets/
