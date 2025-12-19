@@ -1,3 +1,11 @@
+**Mamdani to Name Deputy Mayors for Housing and Economic Justice**\
+`Zohran Mamdani, New York City’s mayor-elect, will tap Leila Bozorg, a longtime public official and pro-development advocate, and Julie Su, who served as secretary of labor in the Biden administration.`\
+https://nytimes.com/2025/12/19/nyregion/zohran-mamdani-leila-bozorg-julie-su.html
+
+**NHL Power Rankings: Sing along to your team's Christmas song**\
+`We've found a set of holiday lyrics that apply to each team and their place in the rankings.`\
+https://nytimes.com/athletic/6903408/2025/12/19/nhl-power-rankings-29/
+
 **The Bounce: What happened to the Cavs? Plus, Giannis speaks!**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/6903614/2025/12/19/cleveland-cavaliers-giannis-nba-the-bounce/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6900782/2025/12/19/college-football-playoff-picks-a
 **Erika Kirk Endorses JD Vance for 2028**\
 `The early backing of Ms. Kirk, the widow of Charlie Kirk, is notable because she now leads the influential conservative group he founded, Turning Point USA.`\
 https://nytimes.com/2025/12/19/us/politics/erika-kirk-jd-vance-2028-election-endorsement.html
-
-**Netflix's 'King of Collectibles' Ken Goldin on season 3 and the items he won't sell**\
-`The show has helped a once insular hobby reach new audiences, and Goldin is ready to take credit. `\
-https://nytimes.com/athletic/6901896/2025/12/19/goldin-king-of-collectibles-netflix-sports-memorabilia/
-
-**Amorim addresses 'Free Kobbie Mainoo' t-shirt, ‘entitled’ Obi and Amass**\
-`"He’s not going to start because of the t-shirt and he’s not going to the bench because of the t-shirt," Amorim said on Mainoo.`\
-https://nytimes.com/athletic/6903434/2025/12/19/manchester-united-amorim-mainoo-obi-amass/
 
