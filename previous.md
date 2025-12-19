@@ -1,3 +1,31 @@
+**The Chargers have found a winning formula. Will it be enough for a playoff run?**\
+`Through 12 weeks, the Chargers had the league's lowest rate of designed runs in the first 28 minutes of games. They've reversed that trend.`\
+https://nytimes.com/athletic/6901524/2025/12/19/chargers-offense-winning-formula-jim-harbaugh-greg-roman/
+
+**Will college football have a new champion? Here's each CFP team's national title history**\
+`Three of the top five seeds in the College Football Playoff have never won a national title, including No. 1 Indiana.`\
+https://nytimes.com/athletic/6899991/2025/12/19/college-football-playoff-national-championships-history-teams/
+
+**Lowetide: 4 more tweaks the Oilers need to make this season**\
+`There's more work for the Oilers to do before the trade deadline, and it must be done on a limited budget.`\
+https://nytimes.com/athletic/6899700/2025/12/19/edmonton-oilers-tristan-jarry-roster-depth-chart/
+
+**Dodgers mailbag: Mookie Betts, three-peating, Roki Sasaki and more**\
+`The Dodgers have a surplus of intriguing outfield prospects, but here's who have separated themselves from the pack. `\
+https://nytimes.com/athletic/6900026/2025/12/19/dodgers-mookie-betts-roki-sasaki/
+
+**Bears might be new to the big stage but have grown eager for it**\
+`A surprising season in Chicago is set up now for a compelling finish. A Saturday night rivalry test has an entire locker room buzzing.`\
+https://nytimes.com/athletic/6901131/2025/12/19/bears-packers-preview-c-j-gardner-johnson-nfl/
+
+**Trump Administration Live Updates: Diversity Visa Program Paused After Brown Shootings**\
+``\
+https://nytimes.com/live/2025/12/19/us/trump-news
+
+**Australia Debates New Laws to Restrict Hate and Suspend Protests**\
+`The authorities are vowing to crack down after a mass shooting at a Jewish holiday celebration. Experts say that what the country needs might not be new laws.`\
+https://nytimes.com/2025/12/19/world/australia/new-laws-protests-hate-speech.html
+
 **What Trump’s Push Into Nuclear Means for the Sector (and His Net Worth)**\
 `The president’s paper wealth soared on news that the company behind Truth Social has agreed to merge with a fusion start-up. But China is way ahead in the funding race to commercialize the technology.`\
 https://nytimes.com/2025/12/19/business/dealbook/trump-nuclear-fusion.html
@@ -9,28 +37,4 @@ https://nytimes.com/2025/12/19/world/middleeast/gaza-hunger-report-israel.html
 **Fantasy Premier League live Q&A: Gameweek 17 advice from Ben Dinnery**\
 `Ben Dinnery of premierinjuries.com is on hand to offer his expert advice to give you the best chance of FPL success this gameweek`\
 https://nytimes.com/athletic/6903296/2025/12/19/fantasy-premier-league-live-qa-gameweek-17-advice-from-ben-dinnery/
-
-**Was Pelicans' win over Rockets — with Zion benched — a preview of what's next?**\
-`Thursday's win felt like the first meaningful steps toward a future that doesn’t involve Williamson as the top priority.`\
-https://nytimes.com/athletic/6903102/2025/12/19/pelicans-win-zion-williamson-bench/
-
-**College Football Playoff Hope-O-Meter: Why are some Bama fans waving the white flag?**\
-`How far do fans of College Football Playoff teams think they can go? And how far should they go? We asked, and you answered.`\
-https://nytimes.com/athletic/6899449/2025/12/19/college-football-playoff-fans-alabama-ohio-state-indiana/
-
-**Alabama is no longer college football's main character, but can anyone take its place?**\
-`Is a program like the Alabama of the 2010s an impossibility in the new era of college football?`\
-https://nytimes.com/athletic/6902599/2025/12/19/alabama-college-football-playoff-nick-saban-kalen-deboer/
-
-**GM Spotlight: How does Temple build — and retain — a football roster in the portal age?**\
-`Temple football GM Clayton Barnes details how in-season contract talks are handled, where to find portal targets and more.`\
-https://nytimes.com/athletic/6901358/2025/12/19/college-football-general-manager-temple/
-
-**Riots Erupt in Bangladesh After the Killing of a Student Leader**\
-`Newspaper buildings were set on fire after the death of an activist who was attacked recently. Political leaders fear more violence could derail attempts to restore democracy.`\
-https://nytimes.com/2025/12/19/world/asia/bangladesh-riots-student-killing.html
-
-**NFL Week 16 schedule rankings: Top 5 Sunday games with the most holiday spirit**\
-`'Tis the season for Christmas movies, high-stakes football and Myles Garrett as a one-man, John McClane-esque wrecking ball. `\
-https://nytimes.com/athletic/6899686/2025/12/19/nfl-week-16-tv-schedule-patriots-ravens-cowboys/
 
