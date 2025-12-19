@@ -1,3 +1,19 @@
+**A Memorial to Kennedy? It’s Trump’s Now, Too.**\
+`The Kennedy Center installed President Trump’s name on the facade of the arts center, which had been designated as a living memorial to President John F. Kennedy.`\
+https://nytimes.com/2025/12/19/us/politics/kennedy-center-trump-sign.html
+
+**Brad Keselowski undergoes surgery, expects to be ready for Daytona 500**\
+`Keselowski was injured Thursday in a skiing accident, then completed surgery the same day.`\
+https://nytimes.com/athletic/6905161/2025/12/19/brad-keselowski-broken-leg-injury-nascar/
+
+**Emily Korzenik, 96, Dies; Rabbi Took a Bar Mitzvah to Poland**\
+`Part of the first generation of women ordained in America, she presided over the first bar mitzvah in Krakow, still scarred by the Holocaust, in decades. It did not go smoothly.`\
+https://nytimes.com/2025/12/19/nyregion/emily-faust-korzenik-dead.html
+
+**ICE Detainee Being Held at a Troubled Jailhouse in Newark Dies**\
+`Jean Wilson Brutus, 41, was one of four migrants to die in the past week after medical emergencies in detention centers in New Jersey, Michigan, Mississippi and Pennsylvania.`\
+https://nytimes.com/2025/12/19/nyregion/ice-detainee-death-newark.html
+
 **Bachata Is Still Underrated**\
 `Romeo Santos and Prince Royce, the leading stars of Dominican bachata music, explain why the genre deserves respect and to be platformed.`\
 https://nytimes.com/video/podcasts/100000010599689/bachata-is-still-underrated.html
@@ -21,20 +37,4 @@ https://nytimes.com/video/smarter-living/wirecutter/100000010600407/you-dont-nee
 **What is the origin of the Epstein case?**\
 `By Devlin Barrett`\
 https://nytimes.com/live/2025/12/19/us/epstein-files-release/what-is-the-origin-of-the-epstein-case
-
-**Mamdani Revamps Hiring After Old Antisemitic Remarks Prompt Aide to Quit**\
-`Mayor-elect Zohran Mamdani said he did not know about the antisemitic posts and would not have hired the woman who made them if he had.`\
-https://nytimes.com/2025/12/19/nyregion/mamdani-vetting-overhaul-da-costa-antisemitic.html
-
-**Wolves chairman Jeff Shi steps down after eight years**\
-`He has been replaced in an interim capacity by Nathan Shi as the Premier League side sit bottom of the table with two points.`\
-https://nytimes.com/athletic/6779725/2025/12/19/jeff-shi-wolves-chairman-steps-down/
-
-**Elon Musk’s 2018 Tesla Pay Deal Is Restored by Delaware Supreme Court**\
-`A lower-court judge had invalidated the package, saying shareholders had not been properly informed about the plan. Friday’s ruling means the pay deal, worth about $139 billion now, can proceed.`\
-https://nytimes.com/2025/12/19/business/elon-musk-pay-ruling-delaware.html
-
-**NFL fines Rams' Puka Nacua $25,000 for criticizing referees: Source**\
-`Nacua criticized the league's refs during a livestream with Adin Ross and N3on, then reiterated his take following a loss to the Seahawks. `\
-https://nytimes.com/athletic/6904593/2025/12/19/rams-puka-nacua-fine-nfl-refs/
 

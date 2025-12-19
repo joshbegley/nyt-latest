@@ -1,3 +1,7 @@
+**Allan Ludwig, ‘Founding Father’ of Gravestone Studies, Dies at 92**\
+`His Pulitzer-nominated book “Graven Images” inspired a reassessment of Puritan art, challenging the belief that imagery carved on headstones was meaningless.`\
+https://nytimes.com/2025/12/19/arts/allan-ludwig-dead.html
+
 **A Memorial to Kennedy? It’s Trump’s Now, Too.**\
 `The Kennedy Center installed President Trump’s name on the facade of the arts center, which had been designated as a living memorial to President John F. Kennedy.`\
 https://nytimes.com/2025/12/19/us/politics/kennedy-center-trump-sign.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/12/19/us/epstein-files-release/for-trump-epstein-i
 **You Don’t Need Baby Laundry Detergent**\
 `According to Wirecutter’s laundry expert Andrea Barnes, dedicated baby detergents are “expensive and unnecessary.”`\
 https://nytimes.com/video/smarter-living/wirecutter/100000010600407/you-dont-need-baby-laundry-detergent.html
-
-**What is the origin of the Epstein case?**\
-`By Devlin Barrett`\
-https://nytimes.com/live/2025/12/19/us/epstein-files-release/what-is-the-origin-of-the-epstein-case
 
