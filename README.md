@@ -1,3 +1,7 @@
+**Wild keep 'rolling' despite injuries for sixth straight win: Takeaways**\
+`Minnesota's 5-2 win over Columbus was its 18th in the past 23 games (18-3-2) and positioned the team third in the NHL with 47 points.`\
+https://nytimes.com/athletic/6901318/2025/12/18/wild-blue-jackets-injuries-takeaways/
+
 **Before the Massacre, Bondi Suspects Spent Weeks at a Philippine Hotel**\
 `Workers at the budget hotel in the southern Philippines, a region that has long battled Islamist insurgencies, said the two men rarely left their room.`\
 https://nytimes.com/2025/12/18/world/asia/bondi-philippines-hotel.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6901643/2025/12/18/penguins-silovs-penalties-muse-s
 **The Next Epicenter of Sports**\
 `From youth development to visionary leadership — discover how Abu Dhabi is building the future of sport.`\
 https://nytimes.com/paidpost/athletic/experienceabudhabi/thenextepicenterofsports.html
-
-**Japan Raises Interest Rates to Highest Level in 30 Years**\
-`The Bank of Japan moved to slow inflation as the prime minister is borrowing more to fund an ambitious effort to build up industry and support households.`\
-https://nytimes.com/2025/12/18/business/bank-of-japan-rates-inflation.html
 
