@@ -1,3 +1,7 @@
+**Submit your New York Rangers mailbag questions**\
+`Send in your questions, and Vince Mercogliano or Peter Baugh may answer them in an upcoming Rangers mailbag.`\
+https://nytimes.com/athletic/6904107/2025/12/19/new-york-rangers-mailbag-question-prompt/
+
 **How to watch Heat vs. Celtics: Time, TV, streaming**\
 `Find out how to watch the Miami Heat play the Boston Celtics, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6904152/2025/12/19/heat-vs-celtics-stream-how-to-watch-dec-19/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/19/weather/denver-winds-fire-colorado.html
 **Three Killed in Stabbing Attack in Taiwan**\
 `The attacker, who threw smoke grenades inside a train station in Taiwan’s capital, later continued his rampage nearby and died in falling from a building.`\
 https://nytimes.com/2025/12/19/world/asia/stabbing-taipei-taiwan.html
-
-**Throwback Cooper Flagg rookie card sells for record $180,000**\
-`Collectors are gearing up to chase Flagg's NBA Debut Patch card later this season. `\
-https://nytimes.com/athletic/6903347/2025/12/19/cooper-flagg-rookie-card-record-sale/
 
