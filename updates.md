@@ -1,3 +1,11 @@
+**It’s Cold Out There. Here’s How to Nourish Your Skin.**\
+`Tips from three people working in chilly climates: a fashion designer, an aesthetician and a chef.`\
+https://nytimes.com/2025/12/19/t-magazine/cold-winter-skin-moisturizing.html
+
+**Carrie Coon and Tracy Letts Want to Get Under Your Skin**\
+`The couple are gearing up for the Broadway opening of “Bug,” about a descent into paranoia and psychosis in a squalid motel room.`\
+https://nytimes.com/2025/12/19/theater/carrie-coon-tracy-letts-bug-broadway.html
+
 **What’s next for Canucks after trading Quinn Hughes? Here’s what a rebuild could look like**\
 `The Canucks' actions going forward will be more important than simply saying the word "rebuild."`\
 https://nytimes.com/athletic/6900531/2025/12/19/canucks-rebuild-trades-draft-picks-contracts/

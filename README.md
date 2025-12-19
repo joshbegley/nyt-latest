@@ -1,3 +1,11 @@
+**6 Cookie Tips in 60 Seconds from NYT Cooking**\
+`Remember these tips from Genevieve Ko, a senior editor for NYT Cooking, when you make your next batch of holiday cookies.`\
+https://nytimes.com/video/dining/100000010593099/6-cookie-tips-in-60-seconds-from-nyt-cooking.html
+
+**Trump signs law strengthening stadium security against drones**\
+`The Safer Skies Act empowers state and local law enforcement to neutralize drones at stadiums, airports and major public events.`\
+https://nytimes.com/athletic/6903655/2025/12/19/trump-drone-law-stadium-security/
+
 **It’s Cold Out There. Here’s How to Nourish Your Skin.**\
 `Tips from three people working in chilly climates: a fashion designer, an aesthetician and a chef.`\
 https://nytimes.com/2025/12/19/t-magazine/cold-winter-skin-moisturizing.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6904143/2025/12/19/hurricanes-vs-panthers-stream-ho
 **How to watch Canucks vs. Islanders: Time, TV, streaming**\
 `Find out how to watch the Vancouver Canucks play the New York Islanders, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6904139/2025/12/19/canucks-vs-islanders-stream-how-to-watch-dec-19/
-
-**How to watch Wright State vs. Kentucky women's basketball: Time, TV, streaming**\
-`Find out how to watch the Wright State Raiders play the Kentucky Wildcats, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6904102/2025/12/19/wright-state-vs-kentucky-stream-how-to-watch-dec-19/
-
-**The ‘Stranger Things’ Cast Says Goodbye to the Netflix Series**\
-`Nearly a decade after the hit sci-fi horror series debuted, cast members including Finn Wolfhard, Gaten Matarazzo and Maya Hawke gathered in New York City.`\
-https://nytimes.com/2025/12/19/style/stranger-things-finale-cast-party.html
 
