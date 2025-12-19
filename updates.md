@@ -1,3 +1,8 @@
+**Everton and The Friedkin Group, one year on: From crisis to stability – now time to forge ahead**\
+`A once-debt-ridden Premier League club finds themselves on much firmer footing. Following Everton now is a different beast entirely
+`\
+https://nytimes.com/athletic/6899387/2025/12/19/everton-friedkin-moyes-stadium/
+
 **Unai Emery's power structure at Aston Villa: Who's who and how does it work?**\
 `Most Premier League clubs do things differently, but Villa's manager-led structure is proving effective. Here's how it works.`\
 https://nytimes.com/athletic/6845282/2025/12/19/unai-emery-aston-vila-organisation/
