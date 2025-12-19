@@ -1,3 +1,7 @@
+**What’s next for Canucks after trading Quinn Hughes? Here’s what a rebuild could look like**\
+`The Canucks' actions going forward will be more important than simply saying the word "rebuild."`\
+https://nytimes.com/athletic/6900531/2025/12/19/canucks-rebuild-trades-draft-picks-contracts/
+
 **Submit your New York Rangers mailbag questions**\
 `Send in your questions, and Vince Mercogliano or Peter Baugh may answer them in an upcoming Rangers mailbag.`\
 https://nytimes.com/athletic/6904107/2025/12/19/new-york-rangers-mailbag-question-prompt/
