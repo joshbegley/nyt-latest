@@ -1,3 +1,15 @@
+**Why Are Weddings So Expensive?**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/wedding-cost-price-planning
+
+**Here’s the latest.**\
+`By Devlin Barrett, Glenn Thrush, Alan Feuer and Michael Gold`\
+https://nytimes.com/live/2025/12/19/us/epstein-files-release/heres-the-latest
+
+**Live Updates: Justice Department Is Set to Release Trove of Epstein Files**\
+`The material will include some, but not all, documents related to investigations of Jeffrey Epstein. Congress set a Friday deadline for the Trump administration to release the files.`\
+https://nytimes.com/live/2025/12/19/us/epstein-files-release
+
 **gws-utah-beaver-rescue**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/utah-beaver-rescue
