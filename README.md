@@ -1,3 +1,7 @@
+**Shutting down Jayden Daniels can't obscure the Commanders' other issues**\
+`Jayden Daniels’ health has taken center stage as a disappointing Commanders season winds down, but that can't explain what happened in 2025.`\
+https://nytimes.com/athletic/6901820/2025/12/19/jayden-daniels-shutdown-injuries-health/
+
 **Kennedy Center Board Votes to Add Trump to Its Name**\
 `President Trump’s handpicked board of trustees announced that the John F. Kennedy Center for the Performing Arts would be renamed the Trump-Kennedy Center, a change that may need Congress’s approval.`\
 https://nytimes.com/video/us/politics/100000010598633/trump-kennedy-center-name-change.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/19/world/australia/new-laws-protests-hate-speech.htm
 **What Trump’s Push Into Nuclear Means for the Sector (and His Net Worth)**\
 `The president’s paper wealth soared on news that the company behind Truth Social has agreed to merge with a fusion start-up. But China is way ahead in the funding race to commercialize the technology.`\
 https://nytimes.com/2025/12/19/business/dealbook/trump-nuclear-fusion.html
-
-**Global Experts Say Most Palestinians in Gaza Face Major Difficulties Accessing Food**\
-`A panel of food security experts said the situation remained dire in the enclave despite a cease-fire in October and greater flows of aid.`\
-https://nytimes.com/2025/12/19/world/middleeast/gaza-hunger-report-israel.html
 

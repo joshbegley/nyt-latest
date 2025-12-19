@@ -1,3 +1,7 @@
+**Kennedy Center Board Votes to Add Trump to Its Name**\
+`President Trump’s handpicked board of trustees announced that the John F. Kennedy Center for the Performing Arts would be renamed the Trump-Kennedy Center, a change that may need Congress’s approval.`\
+https://nytimes.com/video/us/politics/100000010598633/trump-kennedy-center-name-change.html
+
 **The Chargers have found a winning formula. Will it be enough for a playoff run?**\
 `Through 12 weeks, the Chargers had the league's lowest rate of designed runs in the first 28 minutes of games. They've reversed that trend.`\
 https://nytimes.com/athletic/6901524/2025/12/19/chargers-offense-winning-formula-jim-harbaugh-greg-roman/
