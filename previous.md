@@ -1,3 +1,11 @@
+**Bachata Is Still Underrated**\
+`Romeo Santos and Prince Royce, the leading stars of Dominican bachata music, explain why the genre deserves respect and to be platformed.`\
+https://nytimes.com/video/podcasts/100000010599689/bachata-is-still-underrated.html
+
+**NBA outlines new injury reporting rules in effort to curb illegal sports betting**\
+`The league said the changes are meant to prevent injury information from being leaked and used by sports bettors.`\
+https://nytimes.com/athletic/6905154/2025/12/19/nba-illegal-sports-betting-gambling-injury-reporting-memo/
+
 **Pirates land power bat, Astros nab an intriguing arm, Rays add upside in 3-team deal**\
 `There is logic in this deal for all three teams. Plus: Analysis on the Phillies/Royals swap involving Matt Strahm.`\
 https://nytimes.com/athletic/6905102/2025/12/19/pirates-astros-rays-brandon-lowe-mike-burrows-anderson-brito/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/19/business/elon-musk-pay-ruling-delaware.html
 **NFL fines Rams' Puka Nacua $25,000 for criticizing referees: Source**\
 `Nacua criticized the league's refs during a livestream with Adin Ross and N3on, then reiterated his take following a loss to the Seahawks. `\
 https://nytimes.com/athletic/6904593/2025/12/19/rams-puka-nacua-fine-nfl-refs/
-
-**U.S. Strikes Islamic State Targets in Syria**\
-`American forces struck dozens of suspected ISIS sites, making good on President Trump’s vow to avenge two American soldiers and a civilian U.S. interpreter killed by the group last week.`\
-https://nytimes.com/2025/12/19/us/politics/us-islamic-state-strikes-syria.html
-
-**Travis Kelce pushes back on retirement, puts focus on Chiefs' last 3 games**\
-`"I think I'd rather just keep the focus of the media and everything on this team right now," Kelce said Friday.`\
-https://nytimes.com/athletic/6905047/2025/12/19/travis-kelce-retirement-comments-chiefs/
 

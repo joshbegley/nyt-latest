@@ -1,3 +1,11 @@
+**Bachata Is Still Underrated**\
+`Romeo Santos and Prince Royce, the leading stars of Dominican bachata music, explain why the genre deserves respect and to be platformed.`\
+https://nytimes.com/video/podcasts/100000010599689/bachata-is-still-underrated.html
+
+**NBA outlines new injury reporting rules in effort to curb illegal sports betting**\
+`The league said the changes are meant to prevent injury information from being leaked and used by sports bettors.`\
+https://nytimes.com/athletic/6905154/2025/12/19/nba-illegal-sports-betting-gambling-injury-reporting-memo/
+
 **Pirates land power bat, Astros nab an intriguing arm, Rays add upside in 3-team deal**\
 `There is logic in this deal for all three teams. Plus: Analysis on the Phillies/Royals swap involving Matt Strahm.`\
 https://nytimes.com/athletic/6905102/2025/12/19/pirates-astros-rays-brandon-lowe-mike-burrows-anderson-brito/
