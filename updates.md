@@ -1,3 +1,7 @@
+**'Ridiculous': Luka Dončić monster triple-double leads Lakers past Jazz**\
+`The NBA's leading scorer impresses teammate LeBron James with his 45 points, 11 rebounds and 14 assists Thursday night.`\
+https://nytimes.com/athletic/6902025/2025/12/19/luka-doncic-lakers-jazz-highlights-score/
+
 **The New York Times in Print for Friday, Dec. 19, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/12/19/todays-new-york-times
