@@ -1,3 +1,7 @@
+**A Somber Mood at Science Meeting as Trump Budget Cuts Continue**\
+`News of the breakup of a leading science institution rippled through an annual gathering of Earth, ocean and space scientists. Many say American science is suffering under the Trump administration.`\
+https://nytimes.com/2025/12/19/climate/ncar-climate-research-agu.html
+
 **U.S. Attacks Another Boat Believed to Be Trafficking Drugs**\
 `The attack killed 5 people, the latest known fatalities since the attacks began in September. The Trump administration has accused those on the boats of ferrying narcotics but provided little proof.`\
 https://nytimes.com/2025/12/19/us/politics/us-boat-strike-drug-trafficking.html
@@ -29,8 +33,4 @@ https://nytimes.com/video/dining/100000010593102/restaurant-review-banh-anh-em-i
 **The 2025 Vibe Scooch**\
 `In a year of big headlines, these small shifts, mini trends and under-the-radar developments reflected a new cultural atmosphere.`\
 https://nytimes.com/interactive/2025/12/19/style/2025-review-culture-vibe-scooch.html
-
-**Dubai Chocolate Cake**\
-`Dubai chocolate has become a worldwide phenomenon for good reason: Few can resist the combination of rich chocolate and creamy pistachios punctuated by crispy bits of toasted kataifi. This cake transforms those flavors into a showstopping dessert with stunning layers.`\
-https://nytimes.com/video/dining/100000010593106/dubai-chocolate-cake.html
 
