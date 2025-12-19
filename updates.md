@@ -1,3 +1,11 @@
+**The Next Epicenter of Sports**\
+`From youth development to visionary leadership — discover how Abu Dhabi is building the future of sport.`\
+https://nytimes.com/paidpost/athletic/experienceabudhabi/thenextepicenterofsports.html
+
+**Japan Raises Interest Rates to Highest Level in 30 Years**\
+`The Bank of Japan moved to slow inflation as the prime minister is borrowing more to fund an ambitious effort to build up industry and support households.`\
+https://nytimes.com/2025/12/18/business/bank-of-japan-rates-inflation.html
+
 **Top international prospect opts out of agreement with Yankees, expects to sign with Mets: Sources**\
 `Wandy Asigen, a 16-year-old shortstop, is the No. 2 prospect in the 2026 international class according to MLB Pipeline's rankings.`\
 https://nytimes.com/athletic/6901590/2025/12/18/international-prospect-wandy-asigen-mets-yankees-opt-out/
