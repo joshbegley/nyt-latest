@@ -1,3 +1,7 @@
+**What We Know About the Shootings at Brown and M.I.T.**\
+`A single suspect carried out the shooting at Brown University and the killing of an M.I.T. professor, and was later found dead in New Hampshire, authorities said.`\
+https://nytimes.com/2025/12/19/us/brown-mit-shootings-what-we-know.html
+
 **Word of the Day: indefatigable**\
 `This word has appeared in 111 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/12/19/learning/word-of-the-day-indefatigable.html
@@ -18,8 +22,8 @@ https://nytimes.com/2025/12/19/us/neves-valente-supect-what-we-know.html
 `A federal lawsuit alleges that NFLPA executives conspired to prevent an attorney for the union from serving as a witness for the FBI.`\
 https://nytimes.com/athletic/6901927/2025/12/19/nflpa-heather-mcphee-lawsuit-retaliation-fbi-investigation/
 
-**'Ridiculous': Luka Dončić monster triple-double leads Lakers past Jazz**\
-`The NBA's leading scorer impresses teammate LeBron James with his 45 points, 11 rebounds and 14 assists Thursday night.`\
+**'Ridiculous': Luka Dončić's monster triple-double leads Lakers past Jazz**\
+`The NBA's leading scorer impressed teammate LeBron James with his 45 points, 11 rebounds and 14 assists Thursday night.`\
 https://nytimes.com/athletic/6902025/2025/12/19/luka-doncic-lakers-jazz-highlights-score/
 
 **The New York Times in Print for Friday, Dec. 19, 2025**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/19/opinion/tehran-iran-water-drought-crisis.html
 **Australia Announces Plan to Buy Back Guns in Wake of Hanukkah Attack**\
 `The program is expected to take hundreds of thousands of firearms out of circulation, the prime minister said on Friday.`\
 https://nytimes.com/2025/12/19/world/asia/australia-gun-buyback-bondi-shooting.html
-
-**Matthew Stafford continues MVP push, but Rams collapse in loss to Seahawks: Takeaways**\
-`Everything was going right for Los Angeles during its "Thursday Night Football" matchup against Seattle — until the fourth quarter.`\
-https://nytimes.com/athletic/6901928/2025/12/19/rams-seahawks-score-result-takeaways-thursday-night-football/
 
