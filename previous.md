@@ -1,3 +1,15 @@
+**What We Know About the Suspects in the Bondi Beach Attack**\
+`The police named Sajid Akram, 50, and his son, Naveed Akram, 24, as the suspects in the shooting that claimed 15 lives on Dec. 14.`\
+https://nytimes.com/2025/12/19/world/australia/bondi-shooting-attack-suspects.html
+
+**Padres agree to deal with Korean infielder Sung-Mun Song: Source**\
+`Song is a late bloomer projected as more of a utility player than an everyday player.`\
+https://nytimes.com/athletic/6903527/2025/12/19/mlb-sung-mun-song-signs-padres/
+
+**Staff picks all 4 first-round CFP games against the spread**\
+`Our staff picked the four College Football Playoff first-round games against the spread.`\
+https://nytimes.com/athletic/6900782/2025/12/19/college-football-playoff-picks-against-the-spread/
+
 **Erika Kirk Endorses JD Vance for 2028**\
 `The early backing of Ms. Kirk, the widow of Charlie Kirk, is notable because she now leads the influential conservative group he founded, Turning Point USA.`\
 https://nytimes.com/2025/12/19/us/politics/erika-kirk-jd-vance-2028-election-endorsement.html
@@ -21,16 +33,4 @@ https://nytimes.com/video/world/europe/100000010598577/europe-loan-ukraine-russi
 **Ignore the noise. Joe Burrow is set for a fantasy football rebound in Week 16**\
 `Andy Behrens dissects the Joe Burrow drama and other burning Week 16 fantasy topics.`\
 https://nytimes.com/athletic/6903443/2025/12/19/fantasy-football-news-week-16-joe-burrow/
-
-**Anfernee Simons? Anthony Davis? Looking at Celtics NBA trade candidates**\
-`Which Celtics could be on the move at the deadline? Jay King takes a look at the NBA's big trade board.`\
-https://nytimes.com/athletic/6900269/2025/12/19/celtics-nba-trade-deadline-rumors-candidates-anthony-davis/
-
-**Everton's Dewsbury-Hall out of Arsenal game but Grealish available**\
-`A scan earlier this week revealed Dewsbury-Hall, 27, sustained a hamstring issue in last week's two-goal loss at Chelsea.`\
-https://nytimes.com/athletic/6903421/2025/12/19/dewsbury-hall-everton-injury-news/
-
-**NFL Draft prospects to watch in Miami-Texas A&M College Football Playoff game**\
-`Can Carson Beck solve Texas A&M's defense? Will Rueben Bain Jr. or KC Concepcion serve up a signature moment? `\
-https://nytimes.com/athletic/6894549/2025/12/19/nfl-draft-2026-miami-tamu-carson-beck-bain/
 

@@ -1,3 +1,15 @@
+**What We Know About the Suspects in the Bondi Beach Attack**\
+`The police named Sajid Akram, 50, and his son, Naveed Akram, 24, as the suspects in the shooting that claimed 15 lives on Dec. 14.`\
+https://nytimes.com/2025/12/19/world/australia/bondi-shooting-attack-suspects.html
+
+**Padres agree to deal with Korean infielder Sung-Mun Song: Source**\
+`Song is a late bloomer projected as more of a utility player than an everyday player.`\
+https://nytimes.com/athletic/6903527/2025/12/19/mlb-sung-mun-song-signs-padres/
+
+**Staff picks all 4 first-round CFP games against the spread**\
+`Our staff picked the four College Football Playoff first-round games against the spread.`\
+https://nytimes.com/athletic/6900782/2025/12/19/college-football-playoff-picks-against-the-spread/
+
 **Erika Kirk Endorses JD Vance for 2028**\
 `The early backing of Ms. Kirk, the widow of Charlie Kirk, is notable because she now leads the influential conservative group he founded, Turning Point USA.`\
 https://nytimes.com/2025/12/19/us/politics/erika-kirk-jd-vance-2028-election-endorsement.html
