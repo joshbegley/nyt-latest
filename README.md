@@ -1,3 +1,7 @@
+**Martha Stewart Gave Us Her Hosting Tips. They’re Eternally Helpful.**\
+`Text by Christine Cyr Clisset`\
+https://nytimes.com/card/2025/12/19/smarter-living/wirecutter/
+
 **An Engine of Fossil Discovery Fights Its Own Extinction**\
 `A funding crisis at the Museum of the Earth and the Paleontological Research Institution in Ithaca, N.Y., could scatter priceless specimens and end nearly a century of pioneering research.`\
 https://nytimes.com/2025/12/19/science/museum-of-the-earth-ithaca-fossils.html
@@ -25,8 +29,4 @@ https://nytimes.com/2025/12/19/us/politics/us-boat-strike-drug-trafficking.html
 **Seguin has successful surgery on torn ACL, will be re-evaluated after Olympic break**\
 `Seguin had seven goals and 10 assists in 27 games before getting tangled up with Rangers defenseman Vladislav Gavrikov on Dec. 2.`\
 https://nytimes.com/athletic/6904257/2025/12/19/dallas-stars-tyler-seguin-acl-surgery/
-
-**Theodor Pistek, Oscar-Winning ‘Amadeus’ Costume Designer, Dies at 93**\
-`A busy designer who worked on over 100 films, he was also a racecar driver and a painter of photorealistic works, many depicting cars and their operators.`\
-https://nytimes.com/2025/12/19/movies/theodor-pistek-dead.html
 
