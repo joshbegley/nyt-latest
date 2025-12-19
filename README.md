@@ -1,8 +1,12 @@
+**'Enough is enough': Werenski vents after Blue Jackets' latest frustrating loss**\
+`Werenski scored twice for the second game in a row but the Blue Jackets lost the fifth of their last six games in regulation.`\
+https://nytimes.com/athletic/6901907/2025/12/18/blue-jackets-werenski-greaves-wild/
+
 **Blackhawks' youth line going through learning process together**\
 `The Blackhawks' line of Oliver Moore, Nick Lardis and Ryan Greene is tied for the youngest in the NHL.`\
 https://nytimes.com/athletic/6901240/2025/12/18/blackhawks-oliver-moore-nick-lardis-ryan-greene/
 
-**Michael King, Padres agree on three-year, $75 million deal: Sources**\
+**Michael King, Padres agree on 3-year, $75 million deal: Sources**\
 `The 30-year-old hit free agency as one of the more intriguing starters available.`\
 https://nytimes.com/athletic/6801855/2025/12/18/mlb-michael-king-free-agency-signing-padres/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6901590/2025/12/18/international-prospect-wandy-asi
 **Ausar Thompson ejected after close contact with official while arguing foul call**\
 `It appeared that Thompson contacted official John Goble, then was ejected after he continued arguing. `\
 https://nytimes.com/athletic/6901836/2025/12/18/ausar-thompson-ejected-pistons-mavericks-video/
-
-**Pitch Catcher**\
-`Hemant Mehta opens our solving weekend.`\
-https://nytimes.com/2025/12/18/crosswords/daily-puzzle-2025-12-19.html
 
