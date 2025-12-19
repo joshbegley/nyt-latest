@@ -1,3 +1,7 @@
+**Blazers survive multiple late-game collapses after controversial last-second foul call**\
+`A last-second foul call saved Portland from one of the most shocking collapses in recent NBA history. `\
+https://nytimes.com/athletic/6902195/2025/12/19/blazers-kings-deni-avdija-foul-demar-derozan/
+
 **What We Know About the Suspect in the Brown and M.I.T. Killings**\
 `Officials identified a man from Portugal as the suspect in the deadly shooting at Brown University and the killing of an M.I.T. professor. The police said on Thursday he died from a self-inflicted gunshot.`\
 https://nytimes.com/2025/12/19/us/neves-valente-supect-what-we-know.html
@@ -22,7 +26,7 @@ https://nytimes.com/2025/12/19/opinion/tehran-iran-water-drought-crisis.html
 `The program is expected to take hundreds of thousands of firearms out of circulation, the prime minister said on Friday.`\
 https://nytimes.com/2025/12/19/world/asia/australia-gun-buyback-bondi-shooting.html
 
-**Takeaways: Matthew Stafford continues MVP push, but Rams collapse in loss to Seahawks**\
+**Matthew Stafford continues MVP push, but Rams collapse in loss to Seahawks: Takeaways**\
 `Everything was going right for Los Angeles during its "Thursday Night Football" matchup against Seattle — until the fourth quarter.`\
 https://nytimes.com/athletic/6901928/2025/12/19/rams-seahawks-score-result-takeaways-thursday-night-football/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6901486/2025/12/19/seahawks-score-result-takeaways-
 **Could AFCON play a big role in this crucial spell of Brighton's season?**\
 `The Christmas period can often shape a club's season, and this winter's AFCON could positively and negatively impact Brighton's hopes`\
 https://nytimes.com/athletic/6844578/2025/12/19/brighton-fixtures-afcon/
-
-**Chelsea's attack is key in the Champions League. Will the handbrake be released?**\
-`The Champions League's new format has provided valuable clues about Chelsea's credentials in Europe this season `\
-https://nytimes.com/athletic/6899226/2025/12/19/chelsea-womens-champions-league-credentials-analysis/
 

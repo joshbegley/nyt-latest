@@ -1,3 +1,7 @@
+**A Reddit Post Led to a Breakthrough in the Brown Shooting Investigation**\
+`A Reddit user provided information that helped identify Claudio Manuel Neves Valente as not only the suspect in the campus shooting, but also the murder of an M.I.T. professor.`\
+https://nytimes.com/2025/12/19/us/brown-mit-shooting-investigation-reddit.html
+
 **Blazers survive multiple late-game collapses after controversial last-second foul call**\
 `A last-second foul call saved Portland from one of the most shocking collapses in recent NBA history. `\
 https://nytimes.com/athletic/6902195/2025/12/19/blazers-kings-deni-avdija-foul-demar-derozan/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6901928/2025/12/19/rams-seahawks-score-result-takea
 **Seahawks' Sam Darnold redeems himself by beating Rams in OT, clinching playoffs: Takeaways**\
 `The Seahawks quarterback threw two interceptions but rallied Seattle from a 16-point deficit to win the game in overtime.`\
 https://nytimes.com/athletic/6901486/2025/12/19/seahawks-score-result-takeaways-thursday-night-football/
-
-**Could AFCON play a big role in this crucial spell of Brighton's season?**\
-`The Christmas period can often shape a club's season, and this winter's AFCON could positively and negatively impact Brighton's hopes`\
-https://nytimes.com/athletic/6844578/2025/12/19/brighton-fixtures-afcon/
 
