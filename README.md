@@ -1,4 +1,4 @@
-**Jakobi Meyers, Jaguars agree to three-year, $60 million contract extension: Sources**\
+**Jakobi Meyers, Jaguars agree to 3-year, $60 million contract extension: Sources**\
 `The wide receiver, whom Jacksonville acquired from the Raiders in November, will have $40 million guaranteed in his new deal.`\
 https://nytimes.com/athletic/6901344/2025/12/18/jaguars-jakobi-meyers-contract-extension/
 
