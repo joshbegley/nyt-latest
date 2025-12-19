@@ -1,3 +1,15 @@
+**Arteta: Havertz and Gabriel close to returning**\
+`Havertz has been out with a knee injury since August, while Gabriel suffered a thigh issue last month.`\
+https://nytimes.com/athletic/6902487/2025/12/19/arsenal-team-news-havertz-gabriel/
+
+**Here is the latest.**\
+`By Alan Blinder, Glenn Thrush, Chelsia Rose Marcius, Maria Cramer and Qasim Nauman`\
+https://nytimes.com/live/2025/12/19/us/brown-mit-shooting-suspect/here-is-the-latest
+
+**Live Updates: Suspect in Brown University Shooting Is Found Dead**\
+`The authorities said the man is also suspected of killing an M.I.T. professor after the Brown shooting. Any motive remains unclear.`\
+https://nytimes.com/live/2025/12/19/us/brown-mit-shooting-suspect
+
 **Before betting probe, Emmanuel Clase caught breaking MLB's sign-stealing era cell phone rules**\
 `MLB has worked to police player cell phone use, but the league loosened its cell phone rules in 2025 in response to concerns from players.`\
 https://nytimes.com/athletic/6901487/2025/12/19/mlb-emmanuel-ortiz-cell-phone-betting-caught/

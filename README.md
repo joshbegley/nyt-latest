@@ -1,3 +1,11 @@
+**Australia federation bans four soccer players over match-fixing**\
+`The players have been banned from any activity related to the sport, and all have accepted their sanctions without appealing.`\
+https://nytimes.com/athletic/6902436/2025/12/19/australia-match-fixing-soccer-ban/
+
+**Hurzeler hoping for lack of Brighton first-team departures in January**\
+`Hurzeler was asked about the future of Diego Coppola, who is yet to start a Premier League match this season.`\
+https://nytimes.com/athletic/6902581/2025/12/19/fabian-hurzeler-brighton-january-transfers/
+
 **Arteta: Havertz and Gabriel close to returning**\
 `Havertz has been out with a knee injury since August, while Gabriel suffered a thigh issue last month.`\
 https://nytimes.com/athletic/6902487/2025/12/19/arsenal-team-news-havertz-gabriel/
@@ -29,12 +37,4 @@ https://nytimes.com/issue/todaysinyt/2025/12/19/todays-new-york-times-internatio
 **Bears fan. College QB. Fourth-stringer. Now, he's protecting Aaron Rodgers' blindside**\
 `An unlikely journey for the man holding down one of the most important jobs in the NFL.`\
 https://nytimes.com/athletic/6901209/2025/12/19/dylan-cook-pittsburgh-steelers/
-
-**Maresca says he will 'absolutely' be at Chelsea next season**\
-`Maresca's comments come following The Athletic's report that he is high on Manchester City's list in the event Pep Guardiola leaves.`\
-https://nytimes.com/athletic/6902477/2025/12/19/enzo-maresca-chelsea-future/
-
-**How to watch Cent. Conn. St. vs. Maryland women's basketball: Time, TV, streaming**\
-`Find out how to watch the Central Connecticut State Blue Devils play the Maryland Terrapins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6902539/2025/12/19/cent-conn-st-vs-maryland-stream-how-to-watch-dec-19/
 
