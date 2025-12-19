@@ -1,3 +1,7 @@
+**Martha Stewart Gave Us Her Hosting Tips. They’re Eternally Helpful.**\
+`Text by Christine Cyr Clisset`\
+https://nytimes.com/card/2025/12/19/smarter-living/wirecutter/
+
 **An Engine of Fossil Discovery Fights Its Own Extinction**\
 `A funding crisis at the Museum of the Earth and the Paleontological Research Institution in Ithaca, N.Y., could scatter priceless specimens and end nearly a century of pioneering research.`\
 https://nytimes.com/2025/12/19/science/museum-of-the-earth-ithaca-fossils.html
