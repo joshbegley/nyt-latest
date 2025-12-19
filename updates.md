@@ -1,3 +1,15 @@
+**Pirates land power bat, Astros nab an intriguing arm, Rays add upside in 3-team deal**\
+`There is logic in this deal for all three teams. Plus: Analysis on the Phillies/Royals swap involving Matt Strahm.`\
+https://nytimes.com/athletic/6905102/2025/12/19/pirates-astros-rays-brandon-lowe-mike-burrows-anderson-brito/
+
+**For Trump, Epstein is the story that won’t go away.**\
+`By Luke Broadwater`\
+https://nytimes.com/live/2025/12/19/us/epstein-files-release/for-trump-epstein-is-the-story-that-wont-go-away
+
+**You Don’t Need Baby Laundry Detergent**\
+`According to Wirecutter’s laundry expert Andrea Barnes, dedicated baby detergents are “expensive and unnecessary.”`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010600407/you-dont-need-baby-laundry-detergent.html
+
 **What is the origin of the Epstein case?**\
 `By Devlin Barrett`\
 https://nytimes.com/live/2025/12/19/us/epstein-files-release/what-is-the-origin-of-the-epstein-case
