@@ -1,3 +1,23 @@
+**The Lakers need to trade for defensive help. But can they find it?**\
+`The Lakers have a high-powered offense but could use wing defenders. They're not alone, which could complicate things.`\
+https://nytimes.com/athletic/6902319/2025/12/19/lakers-trade-rumors-deadline-needs/
+
+**Three-time Grand Slam champion Stan Wawrinka uses acrostic poem to declare 2026 his final season**\
+`Wawrinka, 40, said he still has “dreams in this sport” in his statement.`\
+https://nytimes.com/athletic/6904598/2025/12/19/tennis-stan-wawrinka-retirement-date/
+
+**Spit and Sulfur: How Venezuela Went From U.S. Ally to Trump Target**\
+`Closely tied to Washington during much of the Cold War, Venezuela has gone through political upheavals over the years that now make it a major enemy in the eyes of the Trump administration.`\
+https://nytimes.com/2025/12/19/us/politics/venezuela-united-states-history.html
+
+**Toulouse, France**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/things-to-do-toulouse
+
+**After Airport Pat-Down, Sean Duffy’s Daughter Calls T.S.A. ‘Unconstitutional’**\
+`Evita Duffy-Alfonso suggested that her father, the transportation secretary, would try to eliminate the security agency if he were in charge of it.`\
+https://nytimes.com/2025/12/19/travel/sean-duffy-daughter-tsa-unconstitutional.html
+
 **SNL’s Sarah Sherman Tests Gross Gifts**\
 `Saturday Night Live cast member and human disco ball Sarah Sherman knows gross. So who better to review a selection of very gross gifts, all of them hand-picked by Wirecutter’s gifts team?`\
 https://nytimes.com/video/smarter-living/wirecutter/100000010599505/snls-sarah-sherman-tests-gross-gifts.html
@@ -17,24 +37,4 @@ https://nytimes.com/2025/12/19/world/canada/toronto-isis-terror-charges.html
 **What We Know About Rob Reiner’s Final Projects**\
 `The release of a “Spinal Tap” concert film that was filmed at Stonehenge has been delayed.`\
 https://nytimes.com/2025/12/19/movies/rob-reiner-spinal-tap-stonehenge-the-bear.html
-
-**Astros to fill hole in rotation with Mike Burrows via three-team trade: Sources**\
-`Without Framber Valdez, the Astros need rotation help. They are trying to get it as cheaply as possible.`\
-https://nytimes.com/athletic/6904585/2025/12/19/astros-trade-mike-burrows-pirates-rays/
-
-**ICE Allows Democratic Lawmakers Inside Migrant Cells in New York City**\
-`The immigration agency had barred elected officials from the holding facilities. A federal judge this week said they must be given access.`\
-https://nytimes.com/2025/12/19/nyregion/ice-congress-detention-nyc.html
-
-**Rail Giants Aim to Prove Benefits of Coast-to-Coast Network**\
-`Regulators will decide whether a merger of Union Pacific and Norfolk Southern would improve shipment times or stifle competition. A decision is expected in 2027.`\
-https://nytimes.com/2025/12/19/business/railroad-merger-union-pacific-norfolk-southern.html
-
-**Martha Stewart Gave Us Her Hosting Tips. They’re Eternally Helpful.**\
-`Text by Christine Cyr Clisset`\
-https://nytimes.com/card/2025/12/19/smarter-living/wirecutter/
-
-**An Engine of Fossil Discovery Fights Its Own Extinction**\
-`A funding crisis at the Museum of the Earth and the Paleontological Research Institution in Ithaca, N.Y., could scatter priceless specimens and end nearly a century of pioneering research.`\
-https://nytimes.com/2025/12/19/science/museum-of-the-earth-ithaca-fossils.html
 
