@@ -1,3 +1,11 @@
+**Lawyers for Angels, Skaggs family discussing possible settlement: Source**\
+`Settlement discussions have been largely dormant throughout the trial. But the Angels re-engaged Thursday.`\
+https://nytimes.com/athletic/6894501/2025/12/18/tyler-skaggs-angels-wrongful-death-trial/
+
+**Penguins' tailspin hits overdrive in brutal loss against Senators: Yohe's 10 observations**\
+`The Penguins have now lost seven straight, while goalie Arturs Silovs has lost 10 of his last 11 starts.`\
+https://nytimes.com/athletic/6901643/2025/12/18/penguins-silovs-penalties-muse-senators/
+
 **The Next Epicenter of Sports**\
 `From youth development to visionary leadership — discover how Abu Dhabi is building the future of sport.`\
 https://nytimes.com/paidpost/athletic/experienceabudhabi/thenextepicenterofsports.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/18/science/lemon-planet-pulsar-webb.html
 **Dillingham's Michigan situation has Arizona State back in familiar spot**\
 `In three years, Dillingham has gone from unproven head coach to one of the nation’s more respected program builders. Others have noticed.`\
 https://nytimes.com/athletic/6901422/2025/12/18/kenny-dillinghams-michigan-arizona-state-coach-rumors/
-
-**TCU QB Josh Hoover to enter transfer portal: Could Indiana be interested?**\
-`Hoover's 3,949 passing yards in 2024 were a school record. He was believed to be making around $2 million in 2025, according to a source.`\
-https://nytimes.com/athletic/6901556/2025/12/18/josh-hoover-transfer-portal-quarterbacks/
-
-**John Means tears his Achilles the same day he was set to sign with a team**\
-`Means, who underwent Tommy John surgery in 2022 and 2024, hoped to be ready for next season's Opening Day.`\
-https://nytimes.com/athletic/6901510/2025/12/18/john-means-injury-mlb-free-agency/
 

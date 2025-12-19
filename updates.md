@@ -1,3 +1,11 @@
+**Lawyers for Angels, Skaggs family discussing possible settlement: Source**\
+`Settlement discussions have been largely dormant throughout the trial. But the Angels re-engaged Thursday.`\
+https://nytimes.com/athletic/6894501/2025/12/18/tyler-skaggs-angels-wrongful-death-trial/
+
+**Penguins' tailspin hits overdrive in brutal loss against Senators: Yohe's 10 observations**\
+`The Penguins have now lost seven straight, while goalie Arturs Silovs has lost 10 of his last 11 starts.`\
+https://nytimes.com/athletic/6901643/2025/12/18/penguins-silovs-penalties-muse-senators/
+
 **Top international prospect opts out of agreement with Yankees, expects to sign with Mets: Sources**\
 `Wandy Asigen, a 16-year-old shortstop, is the No. 2 prospect in the 2026 international class, according to MLB Pipeline's ranking.`\
 https://nytimes.com/athletic/6901590/2025/12/18/international-prospect-wandy-asigen-mets-yankees-opt-out/
