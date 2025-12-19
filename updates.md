@@ -1,3 +1,7 @@
+**An Engine of Fossil Discovery Fights Its Own Extinction**\
+`A funding crisis at the Museum of the Earth and the Paleontological Research Institution in Ithaca, N.Y., could scatter priceless specimens and end nearly a century of pioneering research.`\
+https://nytimes.com/2025/12/19/science/museum-of-the-earth-ithaca-fossils.html
+
 **Inside a whirlwind week that led Sabres to new GM Jarmo Kekäläinen**\
 `Sabres COO Pete Guelli said it feels like a “new day” for the franchise as Jarmo Kekäläinen takes over hockey operations.`\
 https://nytimes.com/athletic/6904224/2025/12/19/buffalo-sabres-jarmo-kekalainen-kevyn-adams/
