@@ -1,40 +1,40 @@
-**Texas A&M sweeps Pitt to advance to first volleyball final**\
-`Over the Aggies' last 11 sets, they have won nine and lost only two, punching their ticket to the national championship.`\
-https://nytimes.com/athletic/6902012/2025/12/18/texas-am-sweeps-pitt-first-volleyball-final/
+**Britain Is Preparing for Attacks on Its Soil. Critics Say It Must Move Faster.**\
+`As military officials sound the alarm over Russian hybrid attacks, the chair of Parliament’s defense committee said the government’s progress on ramping up home defense was “glacial.”`\
+https://nytimes.com/2025/12/19/world/europe/uk-defense-russia.html
 
-**'God-awful': The Maple Leafs' woeful power play is sinking their season**\
-`The Leafs had plenty of chances for a momentum swing against the Capitals, but a dismal performance on the power play led to a shutout.`\
-https://nytimes.com/athletic/6902017/2025/12/18/maple-leafs-power-play-berube-capitals/
+**Connections: Sports Edition Coach: Hints for Dec. 19, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6901314/2025/12/19/connections-sports-edition-hints-for-dec-19-2025/
 
-**Wild keep 'rolling' despite injuries for sixth straight win: Takeaways**\
-`Minnesota's 5-2 win over Columbus was its 18th in the past 23 games (18-3-2) and positioned the team third in the NHL with 47 points.`\
-https://nytimes.com/athletic/6901318/2025/12/18/wild-blue-jackets-injuries-takeaways/
+**Sparks Flew in Their ‘Rave Crew’ Group Chat**\
+`Prakhar Gupta, a podcaster from India, was intrigued when Claudia Robles-Gil, an artist from Mexico City, joined his friend group.`\
+https://nytimes.com/2025/12/19/style/claudia-robles-gil-prakhar-gupta-wedding.html
 
-**Before the Massacre, Bondi Suspects Spent Weeks at a Philippine Hotel**\
-`Workers at the budget hotel in the southern Philippines, a region that has long battled Islamist insurgencies, said the two men rarely left their room.`\
-https://nytimes.com/2025/12/18/world/asia/bondi-philippines-hotel.html
+**Corrections: Dec. 19, 2025**\
+`Corrections that appeared in print on Friday, Dec. 19, 2025.`\
+https://nytimes.com/2025/12/19/pageoneplus/corrections-dec-19-2025.html
 
-**Seahawks convert wild 2-point conversion after apparent incomplete pass**\
-`The Seahawks scored 16 points in a span of 3:13 and tied the score on the most improbable of all two-point conversions.`\
-https://nytimes.com/athletic/6901991/2025/12/18/seahawks-2-point-conversion-rams-thursday-night-football/
+**Learning About Her Culture Until it Was No Longer Greek to Him**\
+`Irene Zahariadis was moments from deleting Hinge when she matched with Kevin Walker. It wasn’t long before he was helping roast a goat.`\
+https://nytimes.com/2025/12/19/style/irene-zahariadis-kevin-walker-wedding.html
 
-**'Enough is enough': Werenski vents after Blue Jackets' latest frustrating loss**\
-`Werenski scored twice for the second game in a row but the Blue Jackets lost the fifth of their last six games in regulation.`\
-https://nytimes.com/athletic/6901907/2025/12/18/blue-jackets-werenski-greaves-wild/
+**She Traded Her Beach Vibes for Chickens and Chestnuts**\
+`Michael Craver and Simone Gaillard knew instantly they wanted to be together. Less certain was whether she’d be interested in his farmhouse.`\
+https://nytimes.com/2025/12/19/style/simone-gaillard-michael-craver-wedding.html
 
-**Blackhawks' youth line going through learning process together**\
-`The Blackhawks' line of Oliver Moore, Nick Lardis and Ryan Greene is tied for the youngest in the NHL.`\
-https://nytimes.com/athletic/6901240/2025/12/18/blackhawks-oliver-moore-nick-lardis-ryan-greene/
+**‘A Singularly Turbulent Time’: Deeper Uncertainty in Store for Global Economy**\
+`A reordering of the rules of trade, set on top of transformational change in technology, demographics and climate, is remaking jobs, politics and lives.`\
+https://nytimes.com/2025/12/19/business/economy/trump-trade-global-econ.html
 
-**Michael King, Padres agree to 3-year, $75 million deal: Sources**\
-`The 30-year-old hit free agency as one of the more intriguing starters available.`\
-https://nytimes.com/athletic/6801855/2025/12/18/mlb-michael-king-free-agency-signing-padres/
+**When a Performer Met a Playwright**\
+`Like the characters in “When Harry Met Sally …” a film Grace Aki loves, she and F Haynie had a tepid start, and eventually, a romance.`\
+https://nytimes.com/2025/12/19/style/grace-aki-f-haynie-wedding.html
 
-**Puka Nacua scores TD, skips antisemitic celebration after streaming controversy**\
-`Nacua apologized earlier Thursday after appearing on a livestream this week in which he practiced an antisemitic touchdown dance.`\
-https://nytimes.com/athletic/6901719/2025/12/18/puka-nacua-td-celebration-antisemitic-adin-ross-stream/
+**The Revenge of the People Pleaser**\
+`After being assaulted, I worked for years to make myself invisible. Ryan saw me anyway.`\
+https://nytimes.com/2025/12/19/style/modern-love-revenge-of-the-people-pleaser.html
 
-**Lawyers for Angels, Skaggs family discussing possible settlement: Source**\
-`Settlement discussions have been largely dormant throughout the trial. But the Angels re-engaged Thursday.`\
-https://nytimes.com/athletic/6894501/2025/12/18/tyler-skaggs-angels-wrongful-death-trial/
+**Quote of the Day: The One Boat Strike Hegseth Isn’t Sharing**\
+`Quotation of the Day for Friday, December 19, 2025.`\
+https://nytimes.com/2025/12/18/pageoneplus/quote-of-the-day-the-one-boat-strike-hegseth-isnt-sharing.html
 
