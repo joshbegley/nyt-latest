@@ -1,3 +1,27 @@
+**Unai Emery's power structure at Aston Villa: Who's who and how does it work?**\
+`Most Premier League clubs do things differently, but Villa's manager-led structure is proving effective. Here's how it works.`\
+https://nytimes.com/athletic/6845282/2025/12/19/unai-emery-aston-vila-organisation/
+
+**How similar is Enzo Maresca's football to Pep Guardiola's?**\
+`There are few head coaches with a stylistic fit that is more closely analogous to that of City's current manager`\
+https://nytimes.com/athletic/6897163/2025/12/19/maresca-guardiola-tactical-comparison/
+
+**Six years of Mikel Arteta at Arsenal: What next for club and manager?**\
+`Talks with Arteta over his future are on the horizon. What will Arsenal and the Spaniard need to consider?`\
+https://nytimes.com/athletic/6899315/2025/12/19/mikel-arteta-arsenal-six-years/
+
+**Tottenham's slump a huge test of Thomas Frank's man-management skills**\
+`At Brentford, Frank recruited most of his squad. In north London, he’s inherited established internationals who present different challenges`\
+https://nytimes.com/athletic/6899129/2025/12/19/thomas-frank-tottenham-premier-league/
+
+**Premier League predictions: Tottenham vs Liverpool, Everton vs Arsenal, and the rest of Matchday 17**\
+`Who's leading after MD16? And what do our writer, the algorithm, a child and this week's subscriber expect to see on Matchday 17?`\
+https://nytimes.com/athletic/6896089/2025/12/19/premier-league-predictions-md17/
+
+**The Radar – The Athletic’s scouting guide to the 2025 Africa Cup of Nations**\
+`We've profiled 34 players to keep an eye on in Morocco over the next few weeks`\
+https://nytimes.com/athletic/6896882/2025/12/19/the-radar-scouting-2025-afcon/
+
 **Forest are playing Dyche-ball, but not as we know it – 'Oles', 15-pass moves and redefining pragmatism**\
 `Dyche has made surprisingly quick progress in fixing Forest’s problems. Maybe more surprising is the way he’s gone about fixing them`\
 https://nytimes.com/athletic/6898979/2025/12/19/forest-sean-dyche-style-pragmatism/
@@ -14,28 +38,4 @@ https://nytimes.com/athletic/6895936/2025/12/19/world-cup-ticket-prices-fifa-ana
 `A once-debt-ridden Premier League club finds themselves on much firmer footing. Following Everton now is a different beast entirely
 `\
 https://nytimes.com/athletic/6899387/2025/12/19/everton-friedkin-moyes-stadium/
-
-**Britain Is Preparing for Attacks on Its Soil. Critics Say It Must Move Faster.**\
-`As military officials sound the alarm over Russian hybrid attacks, the chair of Parliament’s defense committee said the government’s progress on ramping up home defense was “glacial.”`\
-https://nytimes.com/2025/12/19/world/europe/uk-defense-russia.html
-
-**Connections: Sports Edition Coach: Hints for Dec. 19, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6901314/2025/12/19/connections-sports-edition-hints-for-dec-19-2025/
-
-**Sparks Flew in Their ‘Rave Crew’ Group Chat**\
-`Prakhar Gupta, a podcaster from India, was intrigued when Claudia Robles-Gil, an artist from Mexico City, joined his friend group.`\
-https://nytimes.com/2025/12/19/style/claudia-robles-gil-prakhar-gupta-wedding.html
-
-**Corrections: Dec. 19, 2025**\
-`Corrections that appeared in print on Friday, Dec. 19, 2025.`\
-https://nytimes.com/2025/12/19/pageoneplus/corrections-dec-19-2025.html
-
-**Learning About Her Culture Until it Was No Longer Greek to Him**\
-`Irene Zahariadis was moments from deleting Hinge when she matched with Kevin Walker. It wasn’t long before he was helping roast a goat.`\
-https://nytimes.com/2025/12/19/style/irene-zahariadis-kevin-walker-wedding.html
-
-**She Traded Her Beach Vibes for Chickens and Chestnuts**\
-`Michael Craver and Simone Gaillard knew instantly they wanted to be together. Less certain was whether she’d be interested in his farmhouse.`\
-https://nytimes.com/2025/12/19/style/simone-gaillard-michael-craver-wedding.html
 
