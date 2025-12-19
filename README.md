@@ -1,9 +1,13 @@
+**The Ultimate Party for the Ultimate Party-Dress Designer**\
+`The brand Oscar de la Renta celebrates 60 years of glamour.`\
+https://nytimes.com/2025/12/19/style/oscar-de-la-renta-60th-anniversary-show-dresses.html
+
 **Flashback: Your Weekly History Quiz, Dec. 20, 2025**\
 `Can you sort 8 historical events?`\
 https://nytimes.com/interactive/2025/12/19/upshot/flashback.html
 
 **Orioles acquire Shane Baz, a starter on the rise, by leveraging prospect depth**\
-`With Baz, Trevor Rogers and Kyle Bradish, the Orioles rotation now at least has the upside to be among the best in baseball.`\
+`With Baz, Trevor Rogers and Kyle Bradish, the Orioles' rotation now at least has the upside to be among the best in baseball.`\
 https://nytimes.com/athletic/6904793/2025/12/19/shane-baz-orioles-rays-trade-caden-bodine-slater-de-brun/
 
 **Exploring Hawaii’s Big Island on a Budget**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6904445/2025/12/19/angels-tyler-skaggs-lawsuit-sett
 **Inside Meret Oppenheim’s Swiss Summer Home**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/meret-oppenheim-switzerland-home
-
-**New York Commuters to Be Fined for ‘Repeatedly’ Activating Tickets Late**\
-`Passengers on Metro-North and Long Island Rail Road trains could face $8 fines if they keep waiting until after the train leaves to activate their mobile tickets.`\
-https://nytimes.com/2025/12/19/nyregion/nyc-commuters-ticket-activation-fee-lirr-metro-north.html
 
