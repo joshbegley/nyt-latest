@@ -1,3 +1,23 @@
+**Trump-Appointed Judge Flays ICE Over Conditions in Long Island Lockup**\
+`A detainee and eight others were held in a tiny room with an open toilet in freezing, filthy conditions.`\
+https://nytimes.com/2025/12/19/nyregion/judge-ice-detention-long-island.html
+
+**Snow Day**\
+`Tell us a story, real or made up, that is inspired by these images.`\
+https://nytimes.com/2025/12/19/learning/snow-day.html
+
+**Falling Enrollment, Money Woes: The New School Seeks a Path to Survival**\
+`The New York City university has embarked on an overhaul that some professors and students say imperils its standing as a bastion of the liberal arts.`\
+https://nytimes.com/2025/12/19/nyregion/new-school-nyc-cuts.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/12/19/crosswords/spelling-bee-forum.html
+
+**The Ashes Briefing: Australia tighten grip on the urn as Travis Head exploits blunt England attack**\
+`A spirited first session from England gave way to familiar Australian dominance as the crowd in Adelaide rose to their local hero`\
+https://nytimes.com/athletic/6901091/2025/12/19/ashes-australia-head-england-stokes-briefing/
+
 **Chelsea are calm about Maresca's situation - they must move on from the drama**\
 `Enzo Maresca is high on City's list of possible candidates if Pep Guardiola leaves at the end of the season`\
 https://nytimes.com/athletic/6901681/2025/12/19/enzo-maresca-chelsea-man-city-interest/
