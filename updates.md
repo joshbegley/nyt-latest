@@ -1,3 +1,11 @@
+**gws-utah-beaver-rescue**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/utah-beaver-rescue
+
+**The Meek Really Did Inherit the Earth, at Least Among Ants**\
+`How did ants take over the world? The answer may be skin deep.`\
+https://nytimes.com/2025/12/19/science/ants-exoskeletons-weak.html
+
 **Supreme Court Refuses to Halt Free Speech Lawsuit From Immigration Judges**\
 `The case, brought by the union representing immigration judges, could have implications for other workplace claims brought by government officials.`\
 https://nytimes.com/2025/12/19/us/politics/supreme-court-immigration-judges-speech.html

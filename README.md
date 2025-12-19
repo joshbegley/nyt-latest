@@ -1,3 +1,15 @@
+**Why Are Weddings So Expensive?**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/wedding-cost-price-planning
+
+**Here’s the latest.**\
+`By Devlin Barrett, Glenn Thrush, Alan Feuer and Michael Gold`\
+https://nytimes.com/live/2025/12/19/us/epstein-files-release/heres-the-latest
+
+**Live Updates: Justice Department Is Set to Release Trove of Epstein Files**\
+`The material will include some, but not all, documents related to investigations of Jeffrey Epstein. Congress set a Friday deadline for the Trump administration to release the files.`\
+https://nytimes.com/live/2025/12/19/us/epstein-files-release
+
 **gws-utah-beaver-rescue**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/utah-beaver-rescue
@@ -25,16 +37,4 @@ https://nytimes.com/2025/12/19/business/christmas-trees-shopping-marketing.html
 **Weighing Politics and Morality in the Israel Debate**\
 `Readers respond to an essay criticizing U.S. Democrats’ failure to resolve the conflict in Gaza. Also: Trump’s Kennedy Center rebrand; blaming immigrants after the Brown shooting.`\
 https://nytimes.com/2025/12/19/opinion/israel-gaza-democrats.html
-
-**He Said He Was Not Close With Epstein. His Emails Suggest Otherwise.**\
-`Andrew Farkas, a New York City real estate mogul, had assured investors that his relationship with Jeffrey Epstein was for business only.`\
-https://nytimes.com/2025/12/19/nyregion/epstein-farkas-relationship-marina.html
-
-**Dancing Babies and Toddlers Are Teaching the Pros a Thing or Two**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/baby-toddler-raves-professional-dancers
-
-**The Lakers need to trade for defensive help. But can they find it?**\
-`The Lakers have a high-powered offense but could use wing defenders. They're not alone, which could complicate things.`\
-https://nytimes.com/athletic/6902319/2025/12/19/lakers-trade-rumors-deadline-needs/
 
