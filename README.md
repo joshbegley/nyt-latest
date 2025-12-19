@@ -1,3 +1,19 @@
+**The Bounce: What happened to the Cavs? Plus, Giannis speaks!**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/6903614/2025/12/19/cleveland-cavaliers-giannis-nba-the-bounce/
+
+**PSG goalkeeper Safonov fractured hand before penalty saves in shootout victory**\
+`Luis Enrique explained Safonov appeared to sustain the injury during the third penalty kick in the Intercontinental Cup final.`\
+https://nytimes.com/athletic/6903536/2025/12/19/safonov-penalty-saves-injury-psg/
+
+**Naomi Osaka leaves Evolve, tennis agency she co-founded, after three years**\
+`Former world No. 1 and four-time Grand Slam champion Osaka launched the agency with Stuart Duguid in 2022.`\
+https://nytimes.com/athletic/6903526/2025/12/19/tennis-naomi-osaka-evolve-agency-sabalenka-kyrgios/
+
+**Vikings-Giants predictions: What we're watching with J.J. McCarthy and Jaxson Dart**\
+`Will McCarthy win his third straight, or will the Giants defensive front wreak havoc on the young quarterback? Here's our preview.`\
+https://nytimes.com/athletic/6901215/2025/12/19/vikings-giants-preview-predictions-jj-mccarthy-jaxson-dart/
+
 **What We Know About the Suspects in the Bondi Beach Attack**\
 `The police named Sajid Akram, 50, and his son, Naveed Akram, 24, as the suspects in the shooting that claimed 15 lives on Dec. 14.`\
 https://nytimes.com/2025/12/19/world/australia/bondi-shooting-attack-suspects.html
@@ -21,16 +37,4 @@ https://nytimes.com/athletic/6901896/2025/12/19/goldin-king-of-collectibles-netf
 **Amorim addresses 'Free Kobbie Mainoo' t-shirt, ‘entitled’ Obi and Amass**\
 `"He’s not going to start because of the t-shirt and he’s not going to the bench because of the t-shirt," Amorim said on Mainoo.`\
 https://nytimes.com/athletic/6903434/2025/12/19/manchester-united-amorim-mainoo-obi-amass/
-
-**Europe Funnels Billions to Ukraine but Wobbles Geopolitically**\
-`The European Union came up with an 11th-hour compromise to help Ukraine, but the solution raised questions about the bloc’s decisiveness.`\
-https://nytimes.com/2025/12/19/world/europe/eu-ukraine-russia-frozen-assets.html
-
-**Europe Agrees on Loan to Ukraine Without Using Russian Funds**\
-`European leaders agreed on Friday to provide Ukraine with a $105 billion loan but failed to reach a consensus on using Russian government assets frozen in Europe to back it.`\
-https://nytimes.com/video/world/europe/100000010598577/europe-loan-ukraine-russia.html
-
-**Ignore the noise. Joe Burrow is set for a fantasy football rebound in Week 16**\
-`Andy Behrens dissects the Joe Burrow drama and other burning Week 16 fantasy topics.`\
-https://nytimes.com/athletic/6903443/2025/12/19/fantasy-football-news-week-16-joe-burrow/
 
