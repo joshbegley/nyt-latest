@@ -1,3 +1,7 @@
+**What Trump’s Push Into Nuclear Means for the Sector (and His Net Worth)**\
+`The president’s paper wealth soared on news that the company behind Truth Social has agreed to merge with a fusion start-up. But China is way ahead in the funding race to commercialize the technology.`\
+https://nytimes.com/2025/12/19/business/dealbook/trump-nuclear-fusion.html
+
 **Global Experts Say Most Palestinians in Gaza Face Major Difficulties Accessing Food**\
 `A panel of food security experts said the situation remained dire in the enclave despite a cease-fire in October and greater flows of aid.`\
 https://nytimes.com/2025/12/19/world/middleeast/gaza-hunger-report-israel.html

@@ -1,3 +1,7 @@
+**What Trump’s Push Into Nuclear Means for the Sector (and His Net Worth)**\
+`The president’s paper wealth soared on news that the company behind Truth Social has agreed to merge with a fusion start-up. But China is way ahead in the funding race to commercialize the technology.`\
+https://nytimes.com/2025/12/19/business/dealbook/trump-nuclear-fusion.html
+
 **Global Experts Say Most Palestinians in Gaza Face Major Difficulties Accessing Food**\
 `A panel of food security experts said the situation remained dire in the enclave despite a cease-fire in October and greater flows of aid.`\
 https://nytimes.com/2025/12/19/world/middleeast/gaza-hunger-report-israel.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/19/world/asia/bangladesh-riots-student-killing.html
 **NFL Week 16 schedule rankings: Top 5 Sunday games with the most holiday spirit**\
 `'Tis the season for Christmas movies, high-stakes football and Myles Garrett as a one-man, John McClane-esque wrecking ball. `\
 https://nytimes.com/athletic/6899686/2025/12/19/nfl-week-16-tv-schedule-patriots-ravens-cowboys/
-
-**The Brown Manhunt Ends**\
-`We tell the story of the search for the suspect in not one but two killings.`\
-https://nytimes.com/2025/12/19/briefing/the-brown-manhunt-ends.html
 
