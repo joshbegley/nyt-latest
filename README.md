@@ -1,3 +1,15 @@
+**NBA Trade Board 2025-26: Anthony Davis, Trae Young and other potential movers**\
+`Which players are being the most discussed as trade targets as the race to the Feb. 5 deadline begins?`\
+https://nytimes.com/athletic/6877429/2025/12/19/nba-trade-rumors-anthony-davis-trae-young/
+
+**Who steps up without Rome Odunze, Luther Burden? Bears mailbag, plus Week 16 picks**\
+`How will the Bears manage their receiver injuries? Can they get to Jordan Love? It's our weekly mailbag, plus picks for Saturday night.`\
+https://nytimes.com/athletic/6900835/2025/12/19/bears-mailbag-rome-odunze-luther-burden-week-16-picks/
+
+**The Phillies' quest for pitching depth is similar but different this winter**\
+`This offseason, the Phillies have vacant 40-man spots to promise and an unsettled roster to use as a pitch to improve their depth.`\
+https://nytimes.com/athletic/6892063/2025/12/19/phillies-pitching-depth-offseason/
+
 **Gakpo to return 'earlier than expected' but out of Spurs, Brighton games - Slot**\
 `The Dutch international picked up a muscle injury during the 3-3 draw with Leeds and missed the victories over Inter and Brighton.`\
 https://nytimes.com/athletic/6902778/2025/12/19/cody-gakpo-liverpool-injury-news/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6901723/2025/12/19/stephon-castle-darius-garland-nb
 **Ranking the College Football Playoff's first-round games by watchability**\
 `We've sorted the four first-round games by national appeal. Alabama plays at Oklahoma on Friday; Miami visits Texas A&M Saturday afternoon.`\
 https://nytimes.com/athletic/6898101/2025/12/19/college-football-playoff-first-round-games-tv-schedule/
-
-**J.T. Miller etches another chapter in OT chronicles, plus other Rangers thoughts**\
-`After 60 minutes — when one play can end the game — Miller has consistently delivered.`\
-https://nytimes.com/athletic/6902182/2025/12/19/rangers-win-blues-j-t-miller-overtime/
-
-**Best passing center ever? Nikola Jokić now has the NBA record to back that up**\
-`Jokić passed Kareem Abdul-Jabbar for the most career regular-season assists by an NBA center. `\
-https://nytimes.com/athletic/6902298/2025/12/19/nikola-jokic-center-assists-record/
-
-**Zack Bolduc's ability to adapt creates an important domino effect for the Canadiens**\
-`Bolduc's ability to mesh with Nick Suzuki and Cole Caufield benefits the Canadiens up and down their lineup.`\
-https://nytimes.com/athletic/6902226/2025/12/19/canadiens-blackhawks-zack-bolduc-domino-effect/
 

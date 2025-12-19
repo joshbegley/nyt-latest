@@ -1,3 +1,7 @@
+**Gakpo to return 'earlier than expected' but out of Spurs, Brighton games - Slot**\
+`The Dutch international picked up a muscle injury during the 3-3 draw with Leeds and missed the victories over Inter and Brighton.`\
+https://nytimes.com/athletic/6902778/2025/12/19/cody-gakpo-liverpool-injury-news/
+
 **The Pulse: The College Football Playoff is finally here**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6900096/2025/12/19/the-college-football-playoff-is-finally-here-plus-a-tnf-classic/
