@@ -1,3 +1,7 @@
+**U.S. Strikes Islamic State Targets in Syria**\
+`American forces struck dozens of suspected ISIS sites, making good on President Trump’s vow to avenge two American soldiers killed by the group last week.`\
+https://nytimes.com/2025/12/19/us/politics/us-islamic-state-strikes-syria.html
+
 **Travis Kelce pushes back on retirement talk, wants to focus on and 'enjoy' Chiefs' last 3 games**\
 `"I think I'd rather just keep the focus of the media and everything on this team right now," Kelce said Friday.`\
 https://nytimes.com/athletic/6905047/2025/12/19/travis-kelce-retirement-comments-chiefs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6904911/2025/12/19/phillies-bullpen-jt-realmuto-fre
 **R.F.K. Jr. Likely to Swap U.S. Childhood Vaccine Schedule for Denmark’s**\
 `The shift would mean fewer shots recommended for children. But a Danish health official found the idea baffling, saying the United States was getting “crazier and crazier in public health.”`\
 https://nytimes.com/2025/12/19/health/kennedy-childhood-vaccine-schedule-denmark.html
-
-**Elise Stefanik Drops Out of N.Y. Governor’s Race and Will Leave Congress**\
-`Ms. Stefanik, a Republican congresswoman and staunch ally of President Trump, abruptly ended her bid to unseat Gov. Kathy Hochul and said she would not seek another House term.`\
-https://nytimes.com/2025/12/19/nyregion/elise-stefanik-drops-out-governor.html
 
