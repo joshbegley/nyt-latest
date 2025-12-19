@@ -1,6 +1,6 @@
 **Picking three potential Premier League underdog winners**\
 `Where could the upsets in the Premier League come from this weekend?`\
-https://nytimes.com/athletic/6902506/2025/12/19/picking-premier-league-underdog-winners-newcastle-bounce-back-and-wolves-win/
+https://nytimes.com/athletic/6902506/2025/12/19/premier-league-underdog-winners-newcastle-wolves-nottingham-forest/
 
 **Guardiola declines to confirm he will be at Man City next season**\
 `Guardiola claimed discussions about his future are “not on the table right now”. `\

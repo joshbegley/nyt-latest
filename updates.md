@@ -1,3 +1,15 @@
+**Picking three potential Premier League underdog winners**\
+`Where could the upsets in the Premier League come from this weekend?`\
+https://nytimes.com/athletic/6902506/2025/12/19/picking-premier-league-underdog-winners-newcastle-bounce-back-and-wolves-win/
+
+**Guardiola declines to confirm he will be at Man City next season**\
+`Guardiola claimed discussions about his future are “not on the table right now”. `\
+https://nytimes.com/athletic/6903371/2025/12/19/pep-guardiola-manchester-city-future-news/
+
+**Tennis player banned for 12 years after 22 match-fixing offenses in five months**\
+`Pang Renlong had been provisionally suspended along with two other players late last year.`\
+https://nytimes.com/athletic/6903352/2025/12/19/tennis-match-fixing-ban-pang-renlong/
+
 **‘Oh, Mary!’ Came to London. It’s the Raciest Show in Town.**\
 `Some had wondered how the show about Abraham Lincoln’s wife would fare after its creator left the Broadway cast. But mirth is abundant as it opens on the West End.`\
 https://nytimes.com/2025/12/19/arts/oh-mary-trafalgar-theater-london.html
