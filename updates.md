@@ -1,3 +1,7 @@
+**Wild keep 'rolling' despite injuries for sixth straight win: Takeaways**\
+`Minnesota's 5-2 win over Columbus was its 18th in the past 23 games (18-3-2) and positioned the team third in the NHL with 47 points.`\
+https://nytimes.com/athletic/6901318/2025/12/18/wild-blue-jackets-injuries-takeaways/
+
 **Seahawks convert wild 2-point conversion after apparent incomplete pass**\
 `The Seahawks scored 16 points in a span of 3:13 and tied the score on the most improbable of all two-point conversions.`\
 https://nytimes.com/athletic/6901991/2025/12/18/seahawks-2-point-conversion-rams-thursday-night-football/
