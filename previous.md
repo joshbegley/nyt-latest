@@ -1,3 +1,23 @@
+**Submit your New York Rangers mailbag questions**\
+`Send in your questions, and Vince Mercogliano or Peter Baugh may answer them in an upcoming Rangers mailbag.`\
+https://nytimes.com/athletic/6904107/2025/12/19/new-york-rangers-mailbag-question-prompt/
+
+**How to watch Heat vs. Celtics: Time, TV, streaming**\
+`Find out how to watch the Miami Heat play the Boston Celtics, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6904152/2025/12/19/heat-vs-celtics-stream-how-to-watch-dec-19/
+
+**How to watch 76ers vs. Knicks: Time, TV, streaming**\
+`Find out how to watch the Philadelphia 76ers play the New York Knicks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6904149/2025/12/19/76ers-vs-knicks-stream-how-to-watch-dec-19/
+
+**How to watch Hurricanes vs. Panthers: Time, TV, streaming**\
+`Find out how to watch the Carolina Hurricanes play the Florida Panthers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6904143/2025/12/19/hurricanes-vs-panthers-stream-how-to-watch-dec-19/
+
+**How to watch Canucks vs. Islanders: Time, TV, streaming**\
+`Find out how to watch the Vancouver Canucks play the New York Islanders, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6904139/2025/12/19/canucks-vs-islanders-stream-how-to-watch-dec-19/
+
 **How to watch Wright State vs. Kentucky women's basketball: Time, TV, streaming**\
 `Find out how to watch the Wright State Raiders play the Kentucky Wildcats, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6904102/2025/12/19/wright-state-vs-kentucky-stream-how-to-watch-dec-19/
@@ -17,24 +37,4 @@ https://nytimes.com/2025/12/19/weather/denver-winds-fire-colorado.html
 **Three Killed in Stabbing Attack in Taiwan**\
 `The attacker, who threw smoke grenades inside a train station in Taiwan’s capital, later continued his rampage nearby and died in falling from a building.`\
 https://nytimes.com/2025/12/19/world/asia/stabbing-taipei-taiwan.html
-
-**Throwback Cooper Flagg rookie card sells for record $180,000**\
-`Collectors are gearing up to chase Flagg's NBA Debut Patch card later this season. `\
-https://nytimes.com/athletic/6903347/2025/12/19/cooper-flagg-rookie-card-record-sale/
-
-**Make-Ahead French Toast With Maple Apples**\
-`With reader (and staff) favorites from this week.`\
-https://nytimes.com/2025/12/19/dining/make-ahead-french-toast-with-maple-apples.html
-
-**Romeo Santos and Prince Royce Want Bachata to Share in Latin Music’s Boom**\
-`Despite huge collaborations, top-selling albums and sellout tours, the leading stars of the Dominican genre still feel like they haven’t received their due.`\
-https://nytimes.com/2025/12/19/arts/music/romeo-santos-prince-royce-interview-popcast.html
-
-**Five Science Fiction Movies to Stream Now**\
-`In this month’s picks, torrents, trolls and time travel.`\
-https://nytimes.com/2025/12/19/movies/science-fiction-movies-streaming.html
-
-**Five Free Movies to Stream**\
-`The final column of the year looks at the end of things — the end of the world, the end of youth — along with an underrated holiday gem.`\
-https://nytimes.com/2025/12/19/movies/free-movies-streaming.html
 

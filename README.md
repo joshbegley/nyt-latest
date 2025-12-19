@@ -1,3 +1,7 @@
+**What’s next for Canucks after trading Quinn Hughes? Here’s what a rebuild could look like**\
+`The Canucks' actions going forward will be more important than simply saying the word "rebuild."`\
+https://nytimes.com/athletic/6900531/2025/12/19/canucks-rebuild-trades-draft-picks-contracts/
+
 **Submit your New York Rangers mailbag questions**\
 `Send in your questions, and Vince Mercogliano or Peter Baugh may answer them in an upcoming Rangers mailbag.`\
 https://nytimes.com/athletic/6904107/2025/12/19/new-york-rangers-mailbag-question-prompt/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6903808/2025/12/19/flyers-suspend-radio-broadcaster
 **High Winds Around Denver Prompt Warnings About Significant Fire Risk**\
 `Colorado, like much of the West, has been battered by strong winds this week. The National Weather Service issued some of its strongest warnings yet for Friday.`\
 https://nytimes.com/2025/12/19/weather/denver-winds-fire-colorado.html
-
-**Three Killed in Stabbing Attack in Taiwan**\
-`The attacker, who threw smoke grenades inside a train station in Taiwan’s capital, later continued his rampage nearby and died in falling from a building.`\
-https://nytimes.com/2025/12/19/world/asia/stabbing-taipei-taiwan.html
 
