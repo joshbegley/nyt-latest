@@ -1,3 +1,11 @@
+**Texas A&M sweeps Pitt to advance to first volleyball final**\
+`Over the Aggies' last 11 sets, they have won nine and lost only two, punching their ticket to the national championship.`\
+https://nytimes.com/athletic/6902012/2025/12/18/texas-am-sweeps-pitt-first-volleyball-final/
+
+**'God-awful': The Maple Leafs' woeful power play is sinking their season**\
+`The Leafs had plenty of chances for a momentum swing against the Capitals, but a dismal performance on the power play led to a shutout.`\
+https://nytimes.com/athletic/6902017/2025/12/18/maple-leafs-power-play-berube-capitals/
+
 **Wild keep 'rolling' despite injuries for sixth straight win: Takeaways**\
 `Minnesota's 5-2 win over Columbus was its 18th in the past 23 games (18-3-2) and positioned the team third in the NHL with 47 points.`\
 https://nytimes.com/athletic/6901318/2025/12/18/wild-blue-jackets-injuries-takeaways/
