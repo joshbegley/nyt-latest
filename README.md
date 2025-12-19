@@ -1,3 +1,7 @@
+**Prosecutors Say Minnesota’s Fraud Scandal Goes Further Than Previously Known**\
+`Federal prosecutors said they were now investigating fraud worth billions of dollars in 14 social services programs in the state.`\
+https://nytimes.com/2025/12/18/us/prosecutors-say-minnesotas-fraud-scandal-goes-further-than-previously-known.html
+
 **Why isn't Zion Williamson starting? Pelicans' coach says it's 'to maximize his minutes'**\
 `Williamson, who is on a minutes restriction after returning from injury, won't start to help ensure he can play in longer stints later on.`\
 https://nytimes.com/athletic/6901440/2025/12/18/zion-williamson-bench-pelicans-starting-lineup/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/18/world/middleeast/un-refugee-agency-barham-salih-i
 **Chiefs moving to Kansas? State 'aggressively pursuing' team**\
 `The Kansas City Chiefs appear to be moving closer to leaving Arrowhead Stadium and crossing state lines to Kansas.`\
 https://nytimes.com/athletic/6900960/2025/12/18/chiefs-moving-to-kansas-arrowhead-new-stadium/
-
-**Trump Relies on Distortions to Support His Pressure Campaign on Venezuela**\
-`The president has a long record of making false or misleading statements. But the sheer density of them in his administration’s boat attacks and Venezuela pressure campaign is exceptional.`\
-https://nytimes.com/2025/12/18/us/trump-venezuela-false-claims-misinformation.html
 
