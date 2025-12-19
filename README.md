@@ -1,3 +1,15 @@
+**Astros to fill hole in rotation with Mike Burrows via three-team trade: Sources**\
+`Without Framber Valdez, the Astros need rotation help. They are trying to get it as cheaply as possible.`\
+https://nytimes.com/athletic/6904585/2025/12/19/astros-trade-mike-burrows-pirates-rays/
+
+**ICE Allows Democratic Lawmakers Inside Migrant Cells in New York City**\
+`The immigration agency had barred elected officials from the holding facilities. A federal judge this week said they must be given access.`\
+https://nytimes.com/2025/12/19/nyregion/ice-congress-detention-nyc.html
+
+**Rail Giants Aim to Prove Benefits of Coast-to-Coast Network**\
+`Regulators will decide whether a merger of Union Pacific and Norfolk Southern would improve shipment times or stifle competition. A decision is expected in 2027.`\
+https://nytimes.com/2025/12/19/business/railroad-merger-union-pacific-norfolk-southern.html
+
 **Martha Stewart Gave Us Her Hosting Tips. They’re Eternally Helpful.**\
 `Text by Christine Cyr Clisset`\
 https://nytimes.com/card/2025/12/19/smarter-living/wirecutter/
@@ -21,12 +33,4 @@ https://nytimes.com/athletic/6904131/2025/12/19/enhanced-games-lawsuit-anti-dopi
 **A Somber Mood at Science Meeting as Trump Budget Cuts Continue**\
 `News of the breakup of a leading science institution rippled through an annual gathering of Earth, ocean and space scientists. Many say American science is suffering under the Trump administration.`\
 https://nytimes.com/2025/12/19/climate/ncar-climate-research-agu.html
-
-**U.S. Attacks Another Boat Believed to Be Trafficking Drugs**\
-`The attack killed 5 people, the latest known fatalities since the attacks began in September. The Trump administration has accused those on the boats of ferrying narcotics but provided little proof.`\
-https://nytimes.com/2025/12/19/us/politics/us-boat-strike-drug-trafficking.html
-
-**Seguin has successful surgery on torn ACL, will be re-evaluated after Olympic break**\
-`Seguin had seven goals and 10 assists in 27 games before getting tangled up with Rangers defenseman Vladislav Gavrikov on Dec. 2.`\
-https://nytimes.com/athletic/6904257/2025/12/19/dallas-stars-tyler-seguin-acl-surgery/
 
