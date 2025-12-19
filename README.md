@@ -1,3 +1,11 @@
+**How to watch Wright State vs. Kentucky women's basketball: Time, TV, streaming**\
+`Find out how to watch the Wright State Raiders play the Kentucky Wildcats, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6904102/2025/12/19/wright-state-vs-kentucky-stream-how-to-watch-dec-19/
+
+**The ‘Stranger Things’ Cast Says Goodbye to the Netflix Series**\
+`Nearly a decade after the hit sci-fi horror series debuted, cast members including Finn Wolfhard, Gaten Matarazzo and Maya Hawke gathered in New York City.`\
+https://nytimes.com/2025/12/19/style/stranger-things-finale-cast-party.html
+
 **Flyers suspend radio broadcaster for comments made during hot mic moment**\
 `Brian Smith, the Flyers' director of broadcasting and content, will fill in, calling games with analyst Todd Fedoruk.`\
 https://nytimes.com/athletic/6903808/2025/12/19/flyers-suspend-radio-broadcaster-comments/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/19/movies/science-fiction-movies-streaming.html
 **Five Free Movies to Stream**\
 `The final column of the year looks at the end of things — the end of the world, the end of youth — along with an underrated holiday gem.`\
 https://nytimes.com/2025/12/19/movies/free-movies-streaming.html
-
-**Phillies trade Matt Strahm to Royals for Jonathan Bowlan in cost-saving reliever swap**\
-`The Phillies traded the lefty set-up man to Kansas City in a move designed to free up money — nearly $7M in 2026 — to address other needs.`\
-https://nytimes.com/athletic/6903636/2025/12/19/phillies-royals-strahm-bowlan-trade/
-
-**Mapping an Ever-Evolving Cuisine**\
-`In her latest book, Diane Kochilas looks at the evolution of Greek cooking and restaurants in Athens and beyond.`\
-https://nytimes.com/2025/12/19/dining/diane-kochilas.html
 
