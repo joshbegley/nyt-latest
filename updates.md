@@ -1,3 +1,7 @@
+**Mapping an Ever-Evolving Cuisine**\
+`In her latest book, Diane Kochilas looks at the evolution of Greek cooking and restaurants in Athens and beyond.`\
+https://nytimes.com/2025/12/19/dining/diane-kochilas.html
+
 **Which teams will do some last-minute NHL trade shopping?**\
 `Plus: We're finally seeing some of the playoff pretenders come back to Earth.`\
 https://nytimes.com/athletic/6903635/2025/12/19/nhl-trade-board-2026-red-light/

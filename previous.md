@@ -1,3 +1,7 @@
+**Mapping an Ever-Evolving Cuisine**\
+`In her latest book, Diane Kochilas looks at the evolution of Greek cooking and restaurants in Athens and beyond.`\
+https://nytimes.com/2025/12/19/dining/diane-kochilas.html
+
 **Which teams will do some last-minute NHL trade shopping?**\
 `Plus: We're finally seeing some of the playoff pretenders come back to Earth.`\
 https://nytimes.com/athletic/6903635/2025/12/19/nhl-trade-board-2026-red-light/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/19/world/australia/bondi-shooting-attack-suspects.ht
 **Padres agree to deal with Korean infielder Sung-Mun Song: Source**\
 `Song is a late bloomer projected as more of a utility player than an everyday player.`\
 https://nytimes.com/athletic/6903527/2025/12/19/mlb-sung-mun-song-signs-padres/
-
-**Staff picks all 4 first-round CFP games against the spread**\
-`Our staff picked the four College Football Playoff first-round games against the spread.`\
-https://nytimes.com/athletic/6900782/2025/12/19/college-football-playoff-picks-against-the-spread/
 
