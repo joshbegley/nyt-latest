@@ -1,3 +1,11 @@
+**Mamdani to Name Deputy Mayors for Housing and Economic Justice**\
+`Zohran Mamdani, New York City’s mayor-elect, will tap Leila Bozorg, a longtime public official and pro-development advocate, and Julie Su, who served as secretary of labor in the Biden administration.`\
+https://nytimes.com/2025/12/19/nyregion/zohran-mamdani-leila-bozorg-julie-su.html
+
+**NHL Power Rankings: Sing along to your team's Christmas song**\
+`We've found a set of holiday lyrics that apply to each team and their place in the rankings.`\
+https://nytimes.com/athletic/6903408/2025/12/19/nhl-power-rankings-29/
+
 **The Bounce: What happened to the Cavs? Plus, Giannis speaks!**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/6903614/2025/12/19/cleveland-cavaliers-giannis-nba-the-bounce/
