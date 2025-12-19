@@ -1,3 +1,23 @@
+**Before betting probe, Emmanuel Clase caught breaking MLB's sign-stealing era cell phone rules**\
+`MLB has worked to police player cell phone use, but the league loosened its cell phone rules in 2025 in response to concerns from players.`\
+https://nytimes.com/athletic/6901487/2025/12/19/mlb-emmanuel-ortiz-cell-phone-betting-caught/
+
+**Baker Mayfield is back in Charlotte and sure to be amped up vs. former team**\
+`Mayfield made six starts for the Panthers in 2022 and was benched after Matt Rhule was fired. He's 4-0 vs. Carolina as Tampa Bay's QB.`\
+https://nytimes.com/athletic/6901286/2025/12/19/panthers-baker-mayfield-nfc-south-playoffs-bucs/
+
+**College Football Playoff bracket predictions: Our staff and readers disagree**\
+`The College Football Playoff is here and votes have been tallied. Here's who our writers, editors and readers believe will win each game.`\
+https://nytimes.com/athletic/6899931/2025/12/19/college-football-playoff-predictions-bracket-2025/
+
+**The New York Times International Edition in Print for Saturday, Dec. 20, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/12/19/todays-new-york-times-international-edition
+
+**Bears fan. College QB. Fourth-stringer. Now, he's protecting Aaron Rodgers' blindside**\
+`An unlikely journey for the man holding down one of the most important jobs in the NFL.`\
+https://nytimes.com/athletic/6901209/2025/12/19/dylan-cook-pittsburgh-steelers/
+
 **Maresca says he will 'absolutely' be at Chelsea next season**\
 `Maresca's comments come following The Athletic's report that he is high on Manchester City's list in the event Pep Guardiola leaves.`\
 https://nytimes.com/athletic/6902477/2025/12/19/enzo-maresca-chelsea-future/
@@ -17,24 +37,4 @@ https://nytimes.com/interactive/2025/12/19/briefing/news-quiz-rob-reiner-trump.h
 **The Small Gestures That Help Us Navigate Grief**\
 `Readers share the small, practical acts of kindness that made a difference.`\
 https://nytimes.com/2025/12/19/well/loss-grief-tips-acts-of-kindness.html
-
-**Why the New Cannabis Classification Matters**\
-`Moving cannabis to a category of drugs that includes some common medicines will have implications for research, businesses and patients.`\
-https://nytimes.com/2025/12/19/health/why-the-new-cannabis-classification-matters.html
-
-**A Tribe Gains Federal Recognition, After a Fight Handed Down Over Generations**\
-`The distinction for the Lumbee Tribe in North Carolina, signed into law on Thursday, opens access to federal support and defies challenges from other tribes over their legitimacy.`\
-https://nytimes.com/2025/12/19/us/politics/lumbee-tribe-north-carolina-federal-recognition.html
-
-**Trump’s New Marijuana Policy Offers an Opportunity**\
-`Marijuana has been tied to psychosis and other health problems. I still think it’s safer than alcohol.`\
-https://nytimes.com/2025/12/19/opinion/trump-marijuana-policy.html
-
-**Can You Let Your Dog Run Off-Leash Wherever You Want?**\
-`A ruling on a dispute over the use of shared spaces.`\
-https://nytimes.com/interactive/2025/12/19/magazine/off-leash-dogs-hodgman-quiz.html
-
-**An Election ‘Off Year,’ but Not a Year Off**\
-`Takeaways from an eventful 2025 election cycle.`\
-https://nytimes.com/interactive/2025/12/19/us/elections/2025-election-takeaways.html
 
