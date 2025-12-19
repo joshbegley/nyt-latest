@@ -1,3 +1,31 @@
+**Riots Flare Up in Bangladesh After a Student Protest Leader Is Killed**\
+`Violent unrest spilled onto the streets of Dhaka, Bangladesh, following the killing of of a prominent student leader who was shot over the weekend. The offices of two leading newspapers were set on fire.`\
+https://nytimes.com/video/world/asia/100000010599663/bangladesh-riots-fires-hadi.html
+
+**Trump Announces Pricing Deals With Nine Drugmakers**\
+`The companies agreed to sell most of their drugs to Medicaid at the prices they charge in European countries and to sell drugs directly to consumers through a planned TrumpRx website.`\
+https://nytimes.com/2025/12/19/health/trump-announces-pricing-deals-with-nine-drugmakers.html
+
+**Your Holiday Party Food Should Be a Shrimp Tower**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/holiday-party-shrimp-tower
+
+**NFL best bets Week 16: Tua's absence is being overvalued**\
+`Austin Mock's NFL Projection Model is on fire this season. He has four more picks lined up for Week 16.`\
+https://nytimes.com/athletic/6903752/2025/12/19/nfl-best-bets-week-16-tua-quinn-ewers-dolphins/
+
+**N.Y. Governor to Sign Prison Reform Bill After Beatings and Deaths**\
+`Prison guards have been accused of more than 120 acts of brutality that amounted to torture in the past decade in New York, a Times investigation found.`\
+https://nytimes.com/2025/12/19/nyregion/hochul-signs-prison-reform.html
+
+**At Least Three Killed in Taipei Stabbing Attack**\
+`At least three people were killed and at least six others were injured after an assailant with a knife attacked people in a train station and a busy retail area. The police said the attacker died after fleeing and then falling or jumping from a building.`\
+https://nytimes.com/video/world/asia/100000010598913/taipei-taiwan-stabbing-attack.html
+
+**gws-judi-jupiter-gen-z-photographer**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/judi-jupiter-gen-z-photographer
+
 **Why Are Weddings So Expensive?**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/wedding-cost-price-planning
@@ -9,32 +37,4 @@ https://nytimes.com/live/2025/12/19/us/epstein-files-release/heres-the-latest
 **Live Updates: Justice Department Is Set to Release Trove of Epstein Files**\
 `The material will include some, but not all, documents related to investigations of Jeffrey Epstein. Congress set a Friday deadline for the Trump administration to release the files.`\
 https://nytimes.com/live/2025/12/19/us/epstein-files-release
-
-**gws-utah-beaver-rescue**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/utah-beaver-rescue
-
-**The Meek Really Did Inherit the Earth, at Least Among Ants**\
-`How did ants take over the world? The answer may be skin deep.`\
-https://nytimes.com/2025/12/19/science/ants-exoskeletons-weak.html
-
-**Supreme Court Refuses to Halt Free Speech Lawsuit From Immigration Judges**\
-`The case, brought by the union representing immigration judges, could have implications for other workplace claims brought by government officials.`\
-https://nytimes.com/2025/12/19/us/politics/supreme-court-immigration-judges-speech.html
-
-**Hundreds of Swimmers and Surfers Honor Bondi Beach Victims**\
-`Hundreds of swimmers and surfers paddled out and held a moment of silence for the 15 victims killed and dozens injured during a Hanukkah festival at Bondi Beach in Sydney, Australia.`\
-https://nytimes.com/video/world/australia/100000010599364/swimmers-honor-bondi-beach-victims.html
-
-**Bumpy Rollout for New Gates Meant to Stop Subway Fare Evasion**\
-`At a demonstration of devices designed to replace turnstiles, one rider got hit in the neck, and another sneaked through without paying.`\
-https://nytimes.com/2025/12/19/nyregion/nyc-subway-fare-gates-mta.html
-
-**Real or Fake? There’s a War Over Christmas … Trees.**\
-`Tree farmers and the marketing group that supports them want more Americans to buy live-cut trees. A new Home Depot ad gave them holiday hope.`\
-https://nytimes.com/2025/12/19/business/christmas-trees-shopping-marketing.html
-
-**Weighing Politics and Morality in the Israel Debate**\
-`Readers respond to an essay criticizing U.S. Democrats’ failure to resolve the conflict in Gaza. Also: Trump’s Kennedy Center rebrand; blaming immigrants after the Brown shooting.`\
-https://nytimes.com/2025/12/19/opinion/israel-gaza-democrats.html
 
