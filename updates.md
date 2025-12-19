@@ -1,3 +1,7 @@
+**He Smeared Dog Feces on a Critic. Now, He’s Back in the Spotlight.**\
+`Two years after the assault, Marco Goecke is staging a nontraditional “Nutcracker.” Ballet Basel hopes the focus will stay on his choreography.`\
+https://nytimes.com/2025/12/19/arts/dance/marco-goecke-feces-critic-nutcracker.html
+
 **NBA Trade Board 2025-26: Anthony Davis, Trae Young and other potential movers**\
 `Which players are being the most discussed as trade targets as the race to the Feb. 5 deadline begins?`\
 https://nytimes.com/athletic/6877429/2025/12/19/nba-trade-rumors-anthony-davis-trae-young/
