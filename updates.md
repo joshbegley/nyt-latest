@@ -1,3 +1,11 @@
+**‘Oh, Mary!’ Came to London. It’s the Raciest Show in Town.**\
+`Some had wondered how the show about Abraham Lincoln’s wife would fare after its creator left the Broadway cast. But mirth is abundant as it opens on the West End.`\
+https://nytimes.com/2025/12/19/arts/oh-mary-trafalgar-theater-london.html
+
+**USMNT midfielder Adams could miss up to three months after MCL tear**\
+`Adams is now facing a race against time to be match fit for international friendlies against Belgium and Portugal on March 28 and April 1.`\
+https://nytimes.com/athletic/6893326/2025/12/19/tyler-adams-injury-usmnt-bournemouth/
+
 **Shutting down Jayden Daniels can't obscure the Commanders' other issues**\
 `Jayden Daniels’ health has taken center stage as a disappointing Commanders season winds down, but that can't explain what happened in 2025.`\
 https://nytimes.com/athletic/6901820/2025/12/19/jayden-daniels-shutdown-injuries-health/

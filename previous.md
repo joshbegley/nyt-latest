@@ -1,3 +1,11 @@
+**‘Oh, Mary!’ Came to London. It’s the Raciest Show in Town.**\
+`Some had wondered how the show about Abraham Lincoln’s wife would fare after its creator left the Broadway cast. But mirth is abundant as it opens on the West End.`\
+https://nytimes.com/2025/12/19/arts/oh-mary-trafalgar-theater-london.html
+
+**USMNT midfielder Adams could miss up to three months after MCL tear**\
+`Adams is now facing a race against time to be match fit for international friendlies against Belgium and Portugal on March 28 and April 1.`\
+https://nytimes.com/athletic/6893326/2025/12/19/tyler-adams-injury-usmnt-bournemouth/
+
 **Shutting down Jayden Daniels can't obscure the Commanders' other issues**\
 `Jayden Daniels’ health has taken center stage as a disappointing Commanders season winds down, but that can't explain what happened in 2025.`\
 https://nytimes.com/athletic/6901820/2025/12/19/jayden-daniels-shutdown-injuries-health/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6901131/2025/12/19/bears-packers-preview-c-j-gardne
 **Trump Administration Live Updates: Diversity Visa Program Paused After Brown Shootings**\
 ``\
 https://nytimes.com/live/2025/12/19/us/trump-news
-
-**Australia Debates New Laws to Restrict Hate and Suspend Protests**\
-`The authorities are vowing to crack down after a mass shooting at a Jewish holiday celebration. Experts say that what the country needs might not be new laws.`\
-https://nytimes.com/2025/12/19/world/australia/new-laws-protests-hate-speech.html
-
-**What Trump’s Push Into Nuclear Means for the Sector (and His Net Worth)**\
-`The president’s paper wealth soared on news that the company behind Truth Social has agreed to merge with a fusion start-up. But China is way ahead in the funding race to commercialize the technology.`\
-https://nytimes.com/2025/12/19/business/dealbook/trump-nuclear-fusion.html
 

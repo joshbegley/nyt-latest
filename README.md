@@ -1,3 +1,7 @@
+**Tennis player banned for 12 years after trying to fix 22 matches in five months**\
+`Pang Renlong had been provisionally suspended along with two other players late last year.`\
+https://nytimes.com/athletic/6903352/2025/12/19/tennis-match-fixing-ban-pang-renlong/
+
 **‘Oh, Mary!’ Came to London. It’s the Raciest Show in Town.**\
 `Some had wondered how the show about Abraham Lincoln’s wife would fare after its creator left the Broadway cast. But mirth is abundant as it opens on the West End.`\
 https://nytimes.com/2025/12/19/arts/oh-mary-trafalgar-theater-london.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6900026/2025/12/19/dodgers-mookie-betts-roki-sasaki
 **Bears might be new to the big stage but have grown eager for it**\
 `A surprising season in Chicago is set up now for a compelling finish. A Saturday night rivalry test has an entire locker room buzzing.`\
 https://nytimes.com/athletic/6901131/2025/12/19/bears-packers-preview-c-j-gardner-johnson-nfl/
-
-**Trump Administration Live Updates: Diversity Visa Program Paused After Brown Shootings**\
-``\
-https://nytimes.com/live/2025/12/19/us/trump-news
 
