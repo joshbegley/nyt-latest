@@ -1,3 +1,11 @@
+**Before the Massacre, Bondi Suspects Spent Weeks at a Philippine Hotel**\
+`Workers at the budget hotel in the southern Philippines, a region that has long battled Islamist insurgencies, said the two men rarely left their room.`\
+https://nytimes.com/2025/12/18/world/asia/bondi-philippines-hotel.html
+
+**Seahawks convert wild 2-point conversion after apparent incomplete pass**\
+`The Seahawks scored 16 points in a span of 3:13 to tie the score on the most improbable of all two-point conversions.`\
+https://nytimes.com/athletic/6901991/2025/12/18/seahawks-2-point-conversion-rams-thursday-night-football/
+
 **'Enough is enough': Werenski vents after Blue Jackets' latest frustrating loss**\
 `Werenski scored twice for the second game in a row but the Blue Jackets lost the fifth of their last six games in regulation.`\
 https://nytimes.com/athletic/6901907/2025/12/18/blue-jackets-werenski-greaves-wild/
@@ -29,12 +37,4 @@ https://nytimes.com/paidpost/athletic/experienceabudhabi/thenextepicenterofsport
 **Japan Raises Interest Rates to Highest Level in 30 Years**\
 `The Bank of Japan moved to slow inflation as the prime minister is borrowing more to fund an ambitious effort to build up industry and support households.`\
 https://nytimes.com/2025/12/18/business/bank-of-japan-rates-inflation.html
-
-**Top international prospect opts out of agreement with Yankees, expects to sign with Mets: Sources**\
-`Wandy Asigen, a 16-year-old shortstop, is the No. 2 prospect in the 2026 international class, according to MLB Pipeline's ranking.`\
-https://nytimes.com/athletic/6901590/2025/12/18/international-prospect-wandy-asigen-mets-yankees-opt-out/
-
-**Ausar Thompson ejected after close contact with official while arguing foul call**\
-`It appeared that Thompson contacted official John Goble, then was ejected after he continued arguing. `\
-https://nytimes.com/athletic/6901836/2025/12/18/ausar-thompson-ejected-pistons-mavericks-video/
 
