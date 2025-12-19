@@ -14,7 +14,7 @@ https://nytimes.com/athletic/6901907/2025/12/18/blue-jackets-werenski-greaves-wi
 `The Blackhawks' line of Oliver Moore, Nick Lardis and Ryan Greene is tied for the youngest in the NHL.`\
 https://nytimes.com/athletic/6901240/2025/12/18/blackhawks-oliver-moore-nick-lardis-ryan-greene/
 
-**Michael King, Padres agree on 3-year, $75 million deal: Sources**\
+**Michael King, Padres agree to 3-year, $75 million deal: Sources**\
 `The 30-year-old hit free agency as one of the more intriguing starters available.`\
 https://nytimes.com/athletic/6801855/2025/12/18/mlb-michael-king-free-agency-signing-padres/
 
