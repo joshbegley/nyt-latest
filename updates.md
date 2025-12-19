@@ -1,3 +1,7 @@
+**Newcastle's Livramento avoids serious injury but set for 'weeks' out**\
+`Livramento, 23, was forced off during the second half of Newcastle's Carabao Cup win over Fulham on Wednesday.`\
+https://nytimes.com/athletic/6902469/2025/12/19/tino-livramento-newcastle-injury-news/
+
 **The New York Times News Quiz, Dec. 18, 2025**\
 `Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
 https://nytimes.com/interactive/2025/12/19/briefing/news-quiz-rob-reiner-trump.html
