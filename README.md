@@ -1,3 +1,7 @@
+**An Engine of Fossil Discovery Fights Its Own Extinction**\
+`A funding crisis at the Museum of the Earth and the Paleontological Research Institution in Ithaca, N.Y., could scatter priceless specimens and end nearly a century of pioneering research.`\
+https://nytimes.com/2025/12/19/science/museum-of-the-earth-ithaca-fossils.html
+
 **Inside a whirlwind week that led Sabres to new GM Jarmo Kekäläinen**\
 `Sabres COO Pete Guelli said it feels like a “new day” for the franchise as Jarmo Kekäläinen takes over hockey operations.`\
 https://nytimes.com/athletic/6904224/2025/12/19/buffalo-sabres-jarmo-kekalainen-kevyn-adams/
@@ -25,8 +29,4 @@ https://nytimes.com/athletic/6904257/2025/12/19/dallas-stars-tyler-seguin-acl-su
 **Theodor Pistek, Oscar-Winning ‘Amadeus’ Costume Designer, Dies at 93**\
 `A busy designer who worked on over 100 films, he was also a racecar driver and a painter of photorealistic works, many depicting cars and their operators.`\
 https://nytimes.com/2025/12/19/movies/theodor-pistek-dead.html
-
-**Justice Dept. Won’t Meet Friday Deadline to Release All Epstein Files**\
-`Several members of Congress criticized the department’s No. 2, Todd Blanche, after he said more documents would be coming weeks late.`\
-https://nytimes.com/2025/12/19/us/politics/epstein-files-deadline.html
 

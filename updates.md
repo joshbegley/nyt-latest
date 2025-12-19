@@ -1,3 +1,7 @@
+**Inside a whirlwind week that led Sabres to new GM Jarmo Kekäläinen**\
+`Sabres COO Pete Guelli said it feels like a “new day” for the franchise as Jarmo Kekäläinen takes over hockey operations.`\
+https://nytimes.com/athletic/6904224/2025/12/19/buffalo-sabres-jarmo-kekalainen-kevyn-adams/
+
 **The Downside of Being a Child Prodigy? Late Bloomers May Win in the End.**\
 `A new study suggests that the people who reach the pinnacle of their fields typically dabbled in multiple disciplines when they were young.`\
 https://nytimes.com/2025/12/19/well/high-performers-multiple-disciplines-early-study.html
