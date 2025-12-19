@@ -1,3 +1,7 @@
+**Seahawks Win Thursday Night Thriller Against Rams**\
+`At one point down by 16 in the fourth quarter, the Seattle Seahawks clawed their way back against the Los Angeles Rams to take the lead in the N.F.C.`\
+https://nytimes.com/video/sports/football/100000010598335/seahawks-win-thursday-night-thriller-against-rams.html
+
 **Suspect in Death of M.I.T. Professor Was a Former Classmate, Prosecutors Say**\
 `Nuno F.G. Loureiro, the professor, attended the same physics program in Portugal as the man suspected in his killing.`\
 https://nytimes.com/2025/12/19/us/mit-professor-brown-shooting-suspect-portugal.html
