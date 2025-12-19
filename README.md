@@ -1,3 +1,7 @@
+**Inside a whirlwind week that led Sabres to new GM Jarmo Kekäläinen**\
+`Sabres COO Pete Guelli said it feels like a “new day” for the franchise as Jarmo Kekäläinen takes over hockey operations.`\
+https://nytimes.com/athletic/6904224/2025/12/19/buffalo-sabres-jarmo-kekalainen-kevyn-adams/
+
 **The Downside of Being a Child Prodigy? Late Bloomers May Win in the End.**\
 `A new study suggests that the people who reach the pinnacle of their fields typically dabbled in multiple disciplines when they were young.`\
 https://nytimes.com/2025/12/19/well/high-performers-multiple-disciplines-early-study.html
@@ -25,12 +29,4 @@ https://nytimes.com/2025/12/19/movies/theodor-pistek-dead.html
 **Justice Dept. Won’t Meet Friday Deadline to Release All Epstein Files**\
 `Several members of Congress criticized the department’s No. 2, Todd Blanche, after he said more documents would be coming weeks late.`\
 https://nytimes.com/2025/12/19/us/politics/epstein-files-deadline.html
-
-**Clippers fans aren't normally ones for booing. That's changing**\
-`The Clippers are heading back to Intuit Dome this weekend. Their last time there, they heard something very rare.`\
-https://nytimes.com/athletic/6902232/2025/12/19/clippers-fans-nba-western-conference/
-
-**Lessons From Decades of Marriage**\
-`Couples married for decades reflect on how love, patience and resilience helped them weather life’s challenges and sustain lasting, meaningful unions.`\
-https://nytimes.com/2025/12/19/style/marriage-advice-relationship-lessons.html
 
