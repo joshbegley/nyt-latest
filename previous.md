@@ -7,7 +7,7 @@ https://nytimes.com/paidpost/athletic/experienceabudhabi/thenextepicenterofsport
 https://nytimes.com/2025/12/18/business/bank-of-japan-rates-inflation.html
 
 **Top international prospect opts out of agreement with Yankees, expects to sign with Mets: Sources**\
-`Wandy Asigen, a 16-year-old shortstop, is the No. 2 prospect in the 2026 international class according to MLB Pipeline's rankings.`\
+`Wandy Asigen, a 16-year-old shortstop, is the No. 2 prospect in the 2026 international class, according to MLB Pipeline's ranking.`\
 https://nytimes.com/athletic/6901590/2025/12/18/international-prospect-wandy-asigen-mets-yankees-opt-out/
 
 **Ausar Thompson ejected after close contact with official while arguing foul call**\

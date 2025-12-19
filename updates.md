@@ -1,3 +1,7 @@
+**Top international prospect opts out of agreement with Yankees, expects to sign with Mets: Sources**\
+`Wandy Asigen, a 16-year-old shortstop, is the No. 2 prospect in the 2026 international class, according to MLB Pipeline's ranking.`\
+https://nytimes.com/athletic/6901590/2025/12/18/international-prospect-wandy-asigen-mets-yankees-opt-out/
+
 **The Next Epicenter of Sports**\
 `From youth development to visionary leadership — discover how Abu Dhabi is building the future of sport.`\
 https://nytimes.com/paidpost/athletic/experienceabudhabi/thenextepicenterofsports.html
