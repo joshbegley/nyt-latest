@@ -1,3 +1,7 @@
+**Three-time Grand Slam champion Wawrinka uses poem to name 2026 his final season**\
+`Wawrinka, 40, said he still has “dreams in this sport” in his statement.`\
+https://nytimes.com/athletic/6904598/2025/12/19/tennis-stan-wawrinka-retirement-date/
+
 **He Said He Was Not Close With Epstein. His Emails Suggest Otherwise.**\
 `Andrew Farkas, a New York City real estate mogul, had assured investors that his relationship with Jeffrey Epstein was for business only.`\
 https://nytimes.com/2025/12/19/nyregion/epstein-farkas-relationship-marina.html

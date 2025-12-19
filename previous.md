@@ -10,7 +10,7 @@ https://nytimes.com/newsgraphics/card-story/baby-toddler-raves-professional-danc
 `The Lakers have a high-powered offense but could use wing defenders. They're not alone, which could complicate things.`\
 https://nytimes.com/athletic/6902319/2025/12/19/lakers-trade-rumors-deadline-needs/
 
-**Three-time Grand Slam champion Stan Wawrinka uses acrostic poem to declare 2026 his final season**\
+**Three-time Grand Slam champion Wawrinka uses poem to name 2026 his final season**\
 `Wawrinka, 40, said he still has “dreams in this sport” in his statement.`\
 https://nytimes.com/athletic/6904598/2025/12/19/tennis-stan-wawrinka-retirement-date/
 
