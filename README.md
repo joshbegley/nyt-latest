@@ -22,7 +22,7 @@ https://nytimes.com/2025/12/19/opinion/tehran-iran-water-drought-crisis.html
 `The program is expected to take hundreds of thousands of firearms out of circulation, the prime minister said on Friday.`\
 https://nytimes.com/2025/12/19/world/asia/australia-gun-buyback-bondi-shooting.html
 
-**Takeaways: Matthew Stafford continues MVP push, but Rams collapse in loss to Seahawks**\
+**Matthew Stafford continues MVP push, but Rams collapse in loss to Seahawks: Takeaways**\
 `Everything was going right for Los Angeles during its "Thursday Night Football" matchup against Seattle — until the fourth quarter.`\
 https://nytimes.com/athletic/6901928/2025/12/19/rams-seahawks-score-result-takeaways-thursday-night-football/
 

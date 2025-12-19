@@ -1,3 +1,11 @@
+**What We Know About the Suspect in the Brown and M.I.T. Killings**\
+`Officials identified a man from Portugal as the suspect in the deadly shooting at Brown University and the killing of an M.I.T. professor. The police said on Thursday he died from a self-inflicted gunshot.`\
+https://nytimes.com/2025/12/19/us/neves-valente-supect-what-we-know.html
+
+**NFLPA lawyer sues union leaders, alleging retaliation for helping FBI**\
+`A federal lawsuit alleges that NFLPA executives conspired to prevent an attorney for the union from serving as a witness for the FBI.`\
+https://nytimes.com/athletic/6901927/2025/12/19/nflpa-heather-mcphee-lawsuit-retaliation-fbi-investigation/
+
 **'Ridiculous': Luka Dončić monster triple-double leads Lakers past Jazz**\
 `The NBA's leading scorer impresses teammate LeBron James with his 45 points, 11 rebounds and 14 assists Thursday night.`\
 https://nytimes.com/athletic/6902025/2025/12/19/luka-doncic-lakers-jazz-highlights-score/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6844578/2025/12/19/brighton-fixtures-afcon/
 **Chelsea's attack is key in the Champions League. Will the handbrake be released?**\
 `The Champions League's new format has provided valuable clues about Chelsea's credentials in Europe this season `\
 https://nytimes.com/athletic/6899226/2025/12/19/chelsea-womens-champions-league-credentials-analysis/
-
-**How Frimpong shook off his injury frustrations - with yoga and pilates**\
-`The £29m summer signing has turned to pilates in an effort to get over his fitness problems`\
-https://nytimes.com/athletic/6894723/2025/12/19/jeremie-frimpong-liverpool-injury-pilates/
-
-**Talk of the Devils column: Mainoo, a big conundrum for Amorim and United fans**\
-`Every Friday during the season, Ian Irving will bring you his reflections, along with the best United content from across our channels`\
-https://nytimes.com/athletic/6899323/2025/12/19/mainoo-manchester-united-amorim/
 

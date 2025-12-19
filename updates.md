@@ -1,3 +1,11 @@
+**What We Know About the Suspect in the Brown and M.I.T. Killings**\
+`Officials identified a man from Portugal as the suspect in the deadly shooting at Brown University and the killing of an M.I.T. professor. The police said on Thursday he died from a self-inflicted gunshot.`\
+https://nytimes.com/2025/12/19/us/neves-valente-supect-what-we-know.html
+
+**NFLPA lawyer sues union leaders, alleging retaliation for helping FBI**\
+`A federal lawsuit alleges that NFLPA executives conspired to prevent an attorney for the union from serving as a witness for the FBI.`\
+https://nytimes.com/athletic/6901927/2025/12/19/nflpa-heather-mcphee-lawsuit-retaliation-fbi-investigation/
+
 **'Ridiculous': Luka Dončić monster triple-double leads Lakers past Jazz**\
 `The NBA's leading scorer impresses teammate LeBron James with his 45 points, 11 rebounds and 14 assists Thursday night.`\
 https://nytimes.com/athletic/6902025/2025/12/19/luka-doncic-lakers-jazz-highlights-score/
