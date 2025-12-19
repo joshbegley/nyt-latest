@@ -1,3 +1,19 @@
+**NFL Week 16 schedule rankings: Top 5 Sunday games with the most holiday spirit**\
+`'Tis the season for Christmas movies, high-stakes football and Myles Garrett as a one-man, John McClane-esque wrecking ball. `\
+https://nytimes.com/athletic/6899686/2025/12/19/nfl-week-16-tv-schedule-patriots-ravens-cowboys/
+
+**The Brown Manhunt Ends**\
+`We tell the story of the search for the suspect in not one but two killings.`\
+https://nytimes.com/2025/12/19/briefing/the-brown-manhunt-ends.html
+
+**McTominay disputes 'myth' that players improve after leaving Man Utd**\
+`McTominay, speaking to CBS Sports, said "it's just too easy of an excuse" to attribute their upturn in form to leaving United.`\
+https://nytimes.com/athletic/6902805/2025/12/19/scott-mctominay-manchester-united-improvement-myth/
+
+**Men's college basketball watch guide: Duke-Texas Tech, Auburn-Purdue and more this weekend**\
+`Saturday offers three games between ranked opponents. There's also a late-night spotlight for No. 1 and undefeated Arizona.`\
+https://nytimes.com/athletic/6901489/2025/12/19/duke-texas-tech-auburn-purdue-college-basketball-tv/
+
 **Trump Signs Law Repealing Tough Sanctions on Syria**\
 `The Caesar Act was imposed in 2019 in response to widespread and systematic violations of human rights by the regime of former dictator Bashar al-Assad.`\
 https://nytimes.com/2025/12/19/world/middleeast/syria-trump-repeal-sanctions-ceasar-act.html
