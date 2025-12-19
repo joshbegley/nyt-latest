@@ -1,3 +1,15 @@
+**Rafael Ithier, Ambassador of Puerto Rican Music, Dies at 99**\
+`Leading the acclaimed salsa group El Gran Combo de Puerto Rico, he brought the music of his native island to a worldwide audience for more than 60 years.`\
+https://nytimes.com/2025/12/19/arts/music/rafael-ithier-dead.html
+
+**Toronto Man Faces Terror Charges of Targeting Jews and Women**\
+`After two failed abductions, three men were arrested, one of whom is charged with working to support the Islamic State terrorist group.`\
+https://nytimes.com/2025/12/19/world/canada/toronto-isis-terror-charges.html
+
+**What We Know About Rob Reiner’s Final Projects**\
+`The release of a “Spinal Tap” concert film that was filmed at Stonehenge has been delayed.`\
+https://nytimes.com/2025/12/19/movies/rob-reiner-spinal-tap-stonehenge-the-bear.html
+
 **Astros to fill hole in rotation with Mike Burrows via three-team trade: Sources**\
 `Without Framber Valdez, the Astros need rotation help. They are trying to get it as cheaply as possible.`\
 https://nytimes.com/athletic/6904585/2025/12/19/astros-trade-mike-burrows-pirates-rays/
@@ -21,16 +33,4 @@ https://nytimes.com/2025/12/19/science/museum-of-the-earth-ithaca-fossils.html
 **Inside a whirlwind week that led Sabres to new GM Jarmo Kekäläinen**\
 `Sabres COO Pete Guelli said it feels like a “new day” for the franchise as Jarmo Kekäläinen takes over hockey operations.`\
 https://nytimes.com/athletic/6904224/2025/12/19/buffalo-sabres-jarmo-kekalainen-kevyn-adams/
-
-**The Downside of Being a Child Prodigy? Late Bloomers May Win in the End.**\
-`A new study suggests that the people who reach the pinnacle of their fields typically dabbled in multiple disciplines when they were young.`\
-https://nytimes.com/2025/12/19/well/high-performers-multiple-disciplines-early-study.html
-
-**Enhanced Games stops pursuing $800m lawsuit against world sports federations**\
-`World Aquatics has banned athletes who participate in the event from competing in their competitions, WADA calls it a "dangerous concept."`\
-https://nytimes.com/athletic/6904131/2025/12/19/enhanced-games-lawsuit-anti-doping-aquatics/
-
-**A Somber Mood at Science Meeting as Trump Budget Cuts Continue**\
-`News of the breakup of a leading science institution rippled through an annual gathering of Earth, ocean and space scientists. Many say American science is suffering under the Trump administration.`\
-https://nytimes.com/2025/12/19/climate/ncar-climate-research-agu.html
 
