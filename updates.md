@@ -1,3 +1,7 @@
+**'Ask those guys, not me': Has Craig Berube lost the Leafs?**\
+`The Leafs’ brass should be asking tough questions to determine whether this season is still salvageable with Craig Berube at the controls.`\
+https://nytimes.com/athletic/6904822/2025/12/19/craig-berube-lost-maple-leafs/
+
 **Controversial Dakota Pipeline Gets a Big, Belated Government Boost**\
 `A delayed environmental review cleared the Dakota Access Pipeline to continue operating. Separately, a North Dakota judge expressed unusual exasperation over the tangled legal battles.`\
 https://nytimes.com/2025/12/19/climate/dakota-access-pipeline-greenpeace-energy-transfer-army-corps.html
