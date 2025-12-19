@@ -1,3 +1,7 @@
+**Pirates land power bat, Astros nab an intriguing arm, Rays add upside in 3-team deal**\
+`There is logic in this deal for all three teams. Plus: Analysis on the Phillies/Royals swap involving Matt Strahm.`\
+https://nytimes.com/athletic/6905102/2025/12/19/pirates-astros-rays-brandon-lowe-mike-burrows-anderson-brito/
+
 **For Trump, Epstein is the story that won’t go away.**\
 `By Luke Broadwater`\
 https://nytimes.com/live/2025/12/19/us/epstein-files-release/for-trump-epstein-is-the-story-that-wont-go-away
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/19/us/politics/us-islamic-state-strikes-syria.html
 **Travis Kelce pushes back on retirement, puts focus on Chiefs' last 3 games**\
 `"I think I'd rather just keep the focus of the media and everything on this team right now," Kelce said Friday.`\
 https://nytimes.com/athletic/6905047/2025/12/19/travis-kelce-retirement-comments-chiefs/
-
-**N.B.A. Tweaks Its Rules to Thwart Sports Betting Cheats**\
-`The basketball league will require teams to submit injury reports closer to tipoff, an attempt to close one source of inside information.`\
-https://nytimes.com/2025/12/19/business/nba-sports-betting-injuries.html
 
