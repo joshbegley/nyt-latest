@@ -7,7 +7,7 @@ https://nytimes.com/newsgraphics/card-story/camping-on-a-budget-hawaii-trip
 https://nytimes.com/interactive/2025/12/19/us/brown-mit-shooting-suspect-complaint-affidavit.html
 
 **Read the Arrest Affidavit**\
-`Here is the arrest warrant for the gunman, whom the authorities identified as Claudio Manuel Neves Valente. Mr. Valente was found dead Thursday in a storage unit in New Hampshire.`\
+`Here is the arrest warrant for the Brown University gunman, whom the authorities identified as Claudio Manuel Neves Valente. Mr. Valente was found dead Thursday in a storage unit in New Hampshire.`\
 https://nytimes.com/interactive/2025/12/19/us/brown-mit-shooting-arrest-affidavit.html
 
 **Miami’s Marcus Allen to miss rest of season after cancer diagnosis**\
