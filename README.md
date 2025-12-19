@@ -1,3 +1,7 @@
+**Which teams will do some last-minute NHL trade shopping?**\
+`Plus: We're finally seeing some of the playoff pretenders come back to Earth.`\
+https://nytimes.com/athletic/6903635/2025/12/19/nhl-trade-board-2026-red-light/
+
 **Mamdani to Name Deputy Mayors for Housing and Economic Justice**\
 `Zohran Mamdani, New York City’s mayor-elect, will tap Leila Bozorg, a longtime public official and pro-development advocate, and Julie Su, who served as secretary of labor in the Biden administration.`\
 https://nytimes.com/2025/12/19/nyregion/zohran-mamdani-leila-bozorg-julie-su.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6903527/2025/12/19/mlb-sung-mun-song-signs-padres/
 **Staff picks all 4 first-round CFP games against the spread**\
 `Our staff picked the four College Football Playoff first-round games against the spread.`\
 https://nytimes.com/athletic/6900782/2025/12/19/college-football-playoff-picks-against-the-spread/
-
-**Erika Kirk Endorses JD Vance for 2028**\
-`The early backing of Ms. Kirk, the widow of Charlie Kirk, is notable because she now leads the influential conservative group he founded, Turning Point USA.`\
-https://nytimes.com/2025/12/19/us/politics/erika-kirk-jd-vance-2028-election-endorsement.html
 
