@@ -1,3 +1,19 @@
+**Before the Massacre, Bondi Suspects Spent Weeks at a Philippine Hotel**\
+`Workers at the budget hotel in the southern Philippines, a region that has long battled Islamist insurgencies, said the two men rarely left their room.`\
+https://nytimes.com/2025/12/18/world/asia/bondi-philippines-hotel.html
+
+**Seahawks convert wild 2-point conversion after apparent incomplete pass**\
+`The Seahawks scored 16 points in a span of 3:13 to tie the score on the most improbable of all two-point conversions.`\
+https://nytimes.com/athletic/6901991/2025/12/18/seahawks-2-point-conversion-rams-thursday-night-football/
+
+**'Enough is enough': Werenski vents after Blue Jackets' latest frustrating loss**\
+`Werenski scored twice for the second game in a row but the Blue Jackets lost the fifth of their last six games in regulation.`\
+https://nytimes.com/athletic/6901907/2025/12/18/blue-jackets-werenski-greaves-wild/
+
+**Michael King, Padres agree on 3-year, $75 million deal: Sources**\
+`The 30-year-old hit free agency as one of the more intriguing starters available.`\
+https://nytimes.com/athletic/6801855/2025/12/18/mlb-michael-king-free-agency-signing-padres/
+
 **Blackhawks' youth line going through learning process together**\
 `The Blackhawks' line of Oliver Moore, Nick Lardis and Ryan Greene is tied for the youngest in the NHL.`\
 https://nytimes.com/athletic/6901240/2025/12/18/blackhawks-oliver-moore-nick-lardis-ryan-greene/
