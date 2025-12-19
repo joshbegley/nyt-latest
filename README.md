@@ -1,3 +1,11 @@
+**Fantasy Premier League live Q&A: Gameweek 17 advice from Ben Dinnery**\
+`Ben Dinnery of premierinjuries.com is on hand to offer his expert advice to give you the best chance of FPL success this gameweek`\
+https://nytimes.com/athletic/6903296/2025/12/19/fantasy-premier-league-live-qa-gameweek-17-advice-from-ben-dinnery/
+
+**Pelicans pull off comeback win – without Zion Williamson**\
+`Thursday's win over the Rockets felt like the first meaningful steps toward a future that doesn’t involve Williamson as the top priority.`\
+https://nytimes.com/athletic/6903102/2025/12/19/pelicans-win-zion-williamson-bench/
+
 **College Football Playoff Hope-O-Meter: Why are some Bama fans waving the white flag?**\
 `How far do fans of College Football Playoff teams think they can go? And how far should they go? We asked, and you answered.`\
 https://nytimes.com/athletic/6899449/2025/12/19/college-football-playoff-fans-alabama-ohio-state-indiana/
@@ -25,12 +33,4 @@ https://nytimes.com/2025/12/19/briefing/the-brown-manhunt-ends.html
 **McTominay disputes 'myth' that players improve after leaving Man Utd**\
 `McTominay, speaking to CBS Sports, said "it's just too easy of an excuse" to attribute their upturn in form to leaving United.`\
 https://nytimes.com/athletic/6902805/2025/12/19/scott-mctominay-manchester-united-improvement-myth/
-
-**Men's college basketball watch guide: Duke-Texas Tech, Auburn-Purdue and more this weekend**\
-`Saturday offers three games between ranked opponents. There's also a late-night spotlight for No. 1 and undefeated Arizona.`\
-https://nytimes.com/athletic/6901489/2025/12/19/duke-texas-tech-auburn-purdue-college-basketball-tv/
-
-**Trump Signs Law Repealing Tough Sanctions on Syria**\
-`The Caesar Act was imposed in 2019 in response to widespread and systematic violations of human rights by the regime of former dictator Bashar al-Assad.`\
-https://nytimes.com/2025/12/19/world/middleeast/syria-trump-repeal-sanctions-caesar-act.html
 
