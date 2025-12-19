@@ -1,3 +1,7 @@
+**Phillies trade Matt Strahm to Royals for Jonathan Bowlan in cost-saving reliever swap**\
+`The Phillies traded the veteran lefty to the Royals in a move designed to free up money — nearly $7 million — to address other needs.`\
+https://nytimes.com/athletic/6903636/2025/12/19/phillies-royals-strahm-bowlan-trade/
+
 **Mapping an Ever-Evolving Cuisine**\
 `In her latest book, Diane Kochilas looks at the evolution of Greek cooking and restaurants in Athens and beyond.`\
 https://nytimes.com/2025/12/19/dining/diane-kochilas.html
