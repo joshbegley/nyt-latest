@@ -1,3 +1,11 @@
+**Travis Kelce pushes back on retirement talk, wants to focus on and 'enjoy' Chiefs' last 3 games**\
+`"I think I'd rather just keep the focus of the media and everything on this team right now," Kelce said Friday.`\
+https://nytimes.com/athletic/6905047/2025/12/19/travis-kelce-retirement-comments-chiefs/
+
+**N.B.A. Tweaks Its Rules to Thwart Sports Betting Cheats**\
+`The basketball league will require teams to submit injury reports closer to tipoff, an attempt to close one source of inside information.`\
+https://nytimes.com/2025/12/19/business/nba-sports-betting-injuries.html
+
 **Trump’s Name Joins Kennedy’s on Performing Arts Center’s Facade**\
 `Workers hauled up large letters spelling out Mr. Trump’s full name to add to the white marble face of the building on Friday morning.`\
 https://nytimes.com/2025/12/19/us/politics/kennedy-center-name.html

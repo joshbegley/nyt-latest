@@ -1,3 +1,11 @@
+**Travis Kelce pushes back on retirement talk, wants to focus on and 'enjoy' Chiefs' last 3 games**\
+`"I think I'd rather just keep the focus of the media and everything on this team right now," Kelce said Friday.`\
+https://nytimes.com/athletic/6905047/2025/12/19/travis-kelce-retirement-comments-chiefs/
+
+**N.B.A. Tweaks Its Rules to Thwart Sports Betting Cheats**\
+`The basketball league will require teams to submit injury reports closer to tipoff, an attempt to close one source of inside information.`\
+https://nytimes.com/2025/12/19/business/nba-sports-betting-injuries.html
+
 **Trump’s Name Joins Kennedy’s on Performing Arts Center’s Facade**\
 `Workers hauled up large letters spelling out Mr. Trump’s full name to add to the white marble face of the building on Friday morning.`\
 https://nytimes.com/2025/12/19/us/politics/kennedy-center-name.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/19/health/kennedy-childhood-vaccine-schedule-denmark
 **Elise Stefanik Drops Out of N.Y. Governor’s Race and Will Leave Congress**\
 `Ms. Stefanik, a Republican congresswoman and staunch ally of President Trump, abruptly ended her bid to unseat Gov. Kathy Hochul and said she would not seek another House term.`\
 https://nytimes.com/2025/12/19/nyregion/elise-stefanik-drops-out-governor.html
-
-**WATCH: The Texans' passing offense has found itself again**\
-`Since C.J. Stroud's return from injury in Week 13, the Texans are finding explosive passes at every level of the play.`\
-https://nytimes.com/athletic/6904791/2025/12/19/video-cj-stroud-offense-texans/
-
-**She Put the Heat in ‘Heated Rivalry’**\
-`Thanks to a steamy television adaptation, Rachel Reid’s romance novels about closeted hockey players have become mainstream best-sellers.`\
-https://nytimes.com/2025/12/19/books/heated-rivalry-rachel-reid-hockey-romance.html
 
