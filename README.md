@@ -4,7 +4,7 @@ https://nytimes.com/video/world/asia/100000010599663/bangladesh-riots-fires-hadi
 
 **Trump Announces Pricing Deals With Nine Drugmakers**\
 `The companies agreed to sell most of their drugs to Medicaid at the prices they charge in European countries and to sell drugs directly to consumers through a planned TrumpRx website.`\
-https://nytimes.com/2025/12/19/health/trump-announces-pricing-deals-with-nine-drugmakers.html
+https://nytimes.com/2025/12/19/health/trump-drug-pricing-deals.html
 
 **Your Holiday Party Food Should Be a Shrimp Tower**\
 `(No description)`\
