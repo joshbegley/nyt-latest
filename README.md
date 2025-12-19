@@ -1,3 +1,7 @@
+**'Ridiculous': Luka Dončić monster triple-double leads Lakers past Jazz**\
+`The NBA's leading scorer impresses teammate LeBron James with his 45 points, 11 rebounds and 14 assists Thursday night.`\
+https://nytimes.com/athletic/6902025/2025/12/19/luka-doncic-lakers-jazz-highlights-score/
+
 **The New York Times in Print for Friday, Dec. 19, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/12/19/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6894723/2025/12/19/jeremie-frimpong-liverpool-injur
 **Talk of the Devils column: Mainoo, a big conundrum for Amorim and United fans**\
 `Every Friday during the season, Ian Irving will bring you his reflections, along with the best United content from across our channels`\
 https://nytimes.com/athletic/6899323/2025/12/19/mainoo-manchester-united-amorim/
-
-**When should you use your remaining first set of FPL chips? **\
-`From standout captaincy fixtures to strong home match-ups, managers can deploy their remaining chips with confidence rather than desperation`\
-https://nytimes.com/athletic/6894821/2025/12/19/fantasy-premier-league-gameweek-17-fpl-tips-chips/
 
