@@ -1,3 +1,11 @@
+**Supreme Court Refuses to Halt Free Speech Lawsuit From Immigration Judges**\
+`The case, brought by the union representing immigration judges, could have implications for other workplace claims brought by government officials.`\
+https://nytimes.com/2025/12/19/us/politics/supreme-court-immigration-judges-speech.html
+
+**Hundreds of Swimmers and Surfers Honor Bondi Beach Victims**\
+`Hundreds of swimmers and surfers paddled out and held a moment of silence for the 15 victims killed and dozens injured during a Hanukkah festival at Bondi Beach in Sydney, Australia.`\
+https://nytimes.com/video/world/australia/100000010599364/swimmers-honor-bondi-beach-victims.html
+
 **Bumpy Rollout for New Gates Meant to Stop Subway Fare Evasion**\
 `At a demonstration of devices designed to replace turnstiles, one rider got hit in the neck, and another sneaked through without paying.`\
 https://nytimes.com/2025/12/19/nyregion/nyc-subway-fare-gates-mta.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6904598/2025/12/19/tennis-stan-wawrinka-retirement-
 **Spit and Sulfur: How Venezuela Went From U.S. Ally to Trump Target**\
 `Closely tied to Washington during much of the Cold War, Venezuela has gone through political upheavals over the years that now make it a major enemy in the eyes of the Trump administration.`\
 https://nytimes.com/2025/12/19/us/politics/venezuela-united-states-history.html
-
-**Toulouse, France**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/things-to-do-toulouse
-
-**After Airport Pat-Down, Sean Duffy’s Daughter Calls T.S.A. ‘Unconstitutional’**\
-`Evita Duffy-Alfonso suggested that her father, the transportation secretary, would try to eliminate the security agency if he were in charge of it.`\
-https://nytimes.com/2025/12/19/travel/sean-duffy-daughter-tsa-unconstitutional.html
 
