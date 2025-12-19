@@ -1,3 +1,11 @@
+**It’s Cold Out There. Here’s How to Nourish Your Skin.**\
+`Tips from three people working in chilly climates: a fashion designer, an aesthetician and a chef.`\
+https://nytimes.com/2025/12/19/t-magazine/cold-winter-skin-moisturizing.html
+
+**Carrie Coon and Tracy Letts Want to Get Under Your Skin**\
+`The couple are gearing up for the Broadway opening of “Bug,” about a descent into paranoia and psychosis in a squalid motel room.`\
+https://nytimes.com/2025/12/19/theater/carrie-coon-tracy-letts-bug-broadway.html
+
 **What’s next for Canucks after trading Quinn Hughes? Here’s what a rebuild could look like**\
 `The Canucks' actions going forward will be more important than simply saying the word "rebuild."`\
 https://nytimes.com/athletic/6900531/2025/12/19/canucks-rebuild-trades-draft-picks-contracts/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6904102/2025/12/19/wright-state-vs-kentucky-stream-
 **The ‘Stranger Things’ Cast Says Goodbye to the Netflix Series**\
 `Nearly a decade after the hit sci-fi horror series debuted, cast members including Finn Wolfhard, Gaten Matarazzo and Maya Hawke gathered in New York City.`\
 https://nytimes.com/2025/12/19/style/stranger-things-finale-cast-party.html
-
-**Flyers suspend radio broadcaster for comments made during hot mic moment**\
-`Brian Smith, the Flyers' director of broadcasting and content, will fill in, calling games with analyst Todd Fedoruk.`\
-https://nytimes.com/athletic/6903808/2025/12/19/flyers-suspend-radio-broadcaster-comments/
-
-**High Winds Around Denver Prompt Warnings About Significant Fire Risk**\
-`Colorado, like much of the West, has been battered by strong winds this week. The National Weather Service issued some of its strongest warnings yet for Friday.`\
-https://nytimes.com/2025/12/19/weather/denver-winds-fire-colorado.html
 
