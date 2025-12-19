@@ -1,3 +1,15 @@
+**Minnesota family's Shohei Ohtani card sells for record $3 million**\
+`A Minnesota family sold the new most expensive Ohtani card of all time. `\
+https://nytimes.com/athletic/6899367/2025/12/19/shohei-ohtani-record-card-sale-dodgers/
+
+**What We Know About the Shootings at Brown and M.I.T.**\
+`A single suspect carried out the shooting at Brown University and the killing of an M.I.T. professor, and was later found dead in New Hampshire, authorities said.`\
+https://nytimes.com/2025/12/19/us/brown-mit-shootings-what-we-know.html
+
+**'Ridiculous': Luka Dončić's monster triple-double leads Lakers past Jazz**\
+`The NBA's leading scorer impressed teammate LeBron James with his 45 points, 11 rebounds and 14 assists Thursday night.`\
+https://nytimes.com/athletic/6902025/2025/12/19/luka-doncic-lakers-jazz-highlights-score/
+
 **Word of the Day: indefatigable**\
 `This word has appeared in 111 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/12/19/learning/word-of-the-day-indefatigable.html
