@@ -1,3 +1,7 @@
+**Read the Arrest Affidavit**\
+`Here is the arrest warrant for the gunman, whom the authorities identified as Claudio Manuel Neves Valente. Mr. Valente was found dead Thursday in a storage unit in New Hampshire.`\
+https://nytimes.com/interactive/2025/12/19/us/brown-mit-shooting-arrest-affidavit.html
+
 **Exploring Hawaii’s Big Island on a Budget**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/camping-on-a-budget-hawaii-trip
