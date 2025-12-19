@@ -1,3 +1,7 @@
+**Japan Raises Interest Rates to Highest Level in 30 Years**\
+`The Bank of Japan moved to slow inflation as the prime minister is borrowing more to fund an ambitious effort to build up industry and support households.`\
+https://nytimes.com/2025/12/18/business/bank-of-japan-rates-inflation.html
+
 **Top international prospect opts out of agreement with Yankees, expects to sign with Mets: Sources**\
 `Wandy Asigen, a 16-year-old shortstop, is the No. 2 prospect in the 2026 international class according to MLB Pipeline's rankings.`\
 https://nytimes.com/athletic/6901590/2025/12/18/international-prospect-wandy-asigen-mets-yankees-opt-out/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6901510/2025/12/18/john-means-injury-mlb-free-agenc
 **Prosecutors Say Minnesota’s Fraud Scandal Goes Further Than Previously Known**\
 `Federal prosecutors said they were now investigating fraud worth billions of dollars in 14 social services programs in the state.`\
 https://nytimes.com/2025/12/18/us/minnesota-fraud-scandal.html
-
-**Why isn't Zion Williamson starting? Pelicans' coach says it's 'to maximize his minutes'**\
-`Williamson, who is on a minutes restriction after returning from injury, won't start to help ensure he can play in longer stints later on.`\
-https://nytimes.com/athletic/6901440/2025/12/18/zion-williamson-bench-pelicans-starting-lineup/
 

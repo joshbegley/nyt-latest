@@ -1,3 +1,11 @@
+**Top international prospect opts out of agreement with Yankees, expects to sign with Mets: Sources**\
+`Wandy Asigen, a 16-year-old shortstop, is the No. 2 prospect in the 2026 international class according to MLB Pipeline's rankings.`\
+https://nytimes.com/athletic/6901590/2025/12/18/international-prospect-wandy-asigen-mets-yankees-opt-out/
+
+**Ausar Thompson ejected after close contact with official while arguing foul call**\
+`It appeared that Thompson contacted official John Goble, then was ejected after he continued arguing. `\
+https://nytimes.com/athletic/6901836/2025/12/18/ausar-thompson-ejected-pistons-mavericks-video/
+
 **Pitch Catcher**\
 `Hemant Mehta opens our solving weekend.`\
 https://nytimes.com/2025/12/18/crosswords/daily-puzzle-2025-12-19.html

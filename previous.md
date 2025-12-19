@@ -1,3 +1,11 @@
+**Top international prospect opts out of agreement with Yankees, expects to sign with Mets: Sources**\
+`Wandy Asigen, a 16-year-old shortstop, is the No. 2 prospect in the 2026 international class according to MLB Pipeline's rankings.`\
+https://nytimes.com/athletic/6901590/2025/12/18/international-prospect-wandy-asigen-mets-yankees-opt-out/
+
+**Ausar Thompson ejected after close contact with official while arguing foul call**\
+`It appeared that Thompson contacted official John Goble, then was ejected after he continued arguing. `\
+https://nytimes.com/athletic/6901836/2025/12/18/ausar-thompson-ejected-pistons-mavericks-video/
+
 **Pitch Catcher**\
 `Hemant Mehta opens our solving weekend.`\
 https://nytimes.com/2025/12/18/crosswords/daily-puzzle-2025-12-19.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/18/us/minnesota-fraud-scandal.html
 **Why isn't Zion Williamson starting? Pelicans' coach says it's 'to maximize his minutes'**\
 `Williamson, who is on a minutes restriction after returning from injury, won't start to help ensure he can play in longer stints later on.`\
 https://nytimes.com/athletic/6901440/2025/12/18/zion-williamson-bench-pelicans-starting-lineup/
-
-**New Judges Take Charge of Sept. 11 Case at Guantánamo**\
-`The long-running case had been on hold for nearly a year because of higher court appeals and the retirement of the military judge.`\
-https://nytimes.com/2025/12/18/us/politics/judges-sept-11-guantanamo.html
-
-**Jakobi Meyers, Jaguars agree to 3-year, $60 million contract extension: Sources**\
-`The wide receiver, whom Jacksonville acquired from the Raiders in November, will have $40 million guaranteed in his new deal.`\
-https://nytimes.com/athletic/6901344/2025/12/18/jaguars-jakobi-meyers-contract-extension/
 
