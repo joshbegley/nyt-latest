@@ -1,3 +1,7 @@
+**Australia Announces Plan to Buy Back Guns in Wake of Hanukkah Attack**\
+`The program is expected to take hundreds of thousands of firearms out of circulation, the prime minister said on Friday.`\
+https://nytimes.com/2025/12/19/world/asia/australia-gun-buyback-bondi-shooting.html
+
 **Matthew Stafford continues MVP push, but Rams collapse in loss to Seahawks**\
 `Everything was going right for Los Angeles during its "Thursday Night Football" matchup against Seattle — until the fourth quarter.`\
 https://nytimes.com/athletic/6901928/2025/12/19/rams-seahawks-score-result-takeaways-thursday-night-football/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6898949/2025/12/19/west-ham-london-stadium-relegati
 **Joel Drakes-Thomas: The talented Crystal Palace academy prospect who is justifying the hype**\
 `The 16-year-old excelled against the Finnish side KuPS with Oliver Glasner praising his confidence and willingness to work back defensively`\
 https://nytimes.com/athletic/6893517/2025/12/19/joel-drakes-thomas-crystal-palace-kups/
-
-**Trump Administration to Appeal Harvard Funding Case**\
-`Facing a deadline to appeal, the Justice Department told the courts late Thursday that it would try to overturn a judge’s ruling in favor of Harvard.`\
-https://nytimes.com/2025/12/19/us/trump-administration-appeal-harvard-funding-case.html
 
