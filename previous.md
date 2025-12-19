@@ -1,3 +1,15 @@
+**Blackhawks' youth line going through learning process together**\
+`The Blackhawks' line of Oliver Moore, Nick Lardis and Ryan Greene is tied for the youngest in the NHL.`\
+https://nytimes.com/athletic/6901240/2025/12/18/blackhawks-oliver-moore-nick-lardis-ryan-greene/
+
+**Michael King, Padres agree on three-year, $75 million deal: Sources**\
+`The 30-year-old hit free agency as one of the more intriguing starters available.`\
+https://nytimes.com/athletic/6801855/2025/12/18/mlb-michael-king-free-agency-signing-padres/
+
+**Puka Nacua scores TD, skips antisemitic celebration after streaming controversy**\
+`Nacua apologized earlier Thursday after appearing on a livestream this week in which he practiced an antisemitic touchdown dance.`\
+https://nytimes.com/athletic/6901719/2025/12/18/puka-nacua-td-celebration-antisemitic-adin-ross-stream/
+
 **Lawyers for Angels, Skaggs family discussing possible settlement: Source**\
 `Settlement discussions have been largely dormant throughout the trial. But the Angels re-engaged Thursday.`\
 https://nytimes.com/athletic/6894501/2025/12/18/tyler-skaggs-angels-wrongful-death-trial/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6901836/2025/12/18/ausar-thompson-ejected-pistons-m
 **Pitch Catcher**\
 `Hemant Mehta opens our solving weekend.`\
 https://nytimes.com/2025/12/18/crosswords/daily-puzzle-2025-12-19.html
-
-**Judge Convicted of Obstructing Agents as They Sought Undocumented Immigrant**\
-`The Wisconsin state judge, Hannah C. Dugan, was accused of ushering a man to a side door as federal agents waited outside a courtroom.`\
-https://nytimes.com/2025/12/18/us/judge-hannah-dugan-trial-verdict.html
-
-**Lemon-Shaped World Is the Most Stretched-Out Planet Ever Seen**\
-`An unusual object orbiting a rapidly spinning star might be a new phenomenon in the universe.`\
-https://nytimes.com/2025/12/18/science/lemon-planet-pulsar-webb.html
-
-**Dillingham's Michigan situation has Arizona State back in familiar spot**\
-`In three years, Dillingham has gone from unproven head coach to one of the nation’s more respected program builders. Others have noticed.`\
-https://nytimes.com/athletic/6901422/2025/12/18/kenny-dillinghams-michigan-arizona-state-coach-rumors/
 
