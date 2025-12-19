@@ -1,3 +1,11 @@
+**Trump’s Name Is Rarely Mentioned in New Epstein Files**\
+`The files that The Times initially reviewed on Friday included only a handful of references to or images of Mr. Trump.`\
+https://nytimes.com/2025/12/19/us/trump-epstein-files.html
+
+**Trump Picks New Leader for Southern Command as Venezuela Pressure Grows**\
+`Lt. Gen. Francis L. Donovan, a Marine general with expansive experience in special operations and the Middle East, would take over after the abrupt departure of the previous commander.`\
+https://nytimes.com/2025/12/19/us/politics/frank-donovan-southern-command-trump.html
+
 **The Justice Dept. Released a Trove of Epstein Files**\
 `Also, investigators seek a motive in killings at Brown and M.I.T. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2025/12/19/briefing/epstein-files-brown-mit-shootings.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/19/us/politics/kennedy-center-trump-sign.html
 **Brad Keselowski undergoes surgery, expects to be ready for Daytona 500**\
 `Keselowski was injured Thursday in a skiing accident, then completed surgery the same day.`\
 https://nytimes.com/athletic/6905161/2025/12/19/brad-keselowski-broken-leg-injury-nascar/
-
-**Emily Korzenik, 96, Dies; Rabbi Took a Bar Mitzvah to Poland**\
-`Part of the first generation of women ordained in America, she presided over the first bar mitzvah in Krakow, still scarred by the Holocaust, in decades. It did not go smoothly.`\
-https://nytimes.com/2025/12/19/nyregion/emily-faust-korzenik-dead.html
-
-**ICE Detainee Dies After Being Held at a Troubled Jailhouse in Newark**\
-`Jean Wilson Brutus, 41, was one of four migrants to die in the past week after medical emergencies in detention centers in New Jersey, Michigan, Mississippi and Pennsylvania.`\
-https://nytimes.com/2025/12/19/nyregion/ice-detainee-death-newark.html
 
