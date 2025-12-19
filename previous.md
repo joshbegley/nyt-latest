@@ -1,5 +1,9 @@
-**Seahawks' Derick Hall suspended 1 game for unsportsmanlike act vs. Rams**\
-`Hall was suspended for unnecessarily stepping on the leg of Rams guard Kevin Dotson at the end of a play. `\
+**Controversial Dakota Pipeline Gets a Big, Belated Government Boost**\
+`A delayed environmental review cleared the Dakota Access Pipeline to continue operating. Separately, a North Dakota judge expressed unusual exasperation over the tangled legal battles.`\
+https://nytimes.com/2025/12/19/climate/dakota-access-pipeline-greenpeace-energy-transfer-army-corps.html
+
+**Seahawks' Derick Hall suspended one game for unsportsmanlike act vs. Rams**\
+`The NFL suspended Hall for unnecessarily stepping on the leg of Rams guard Kevin Dotson at the end of a play. `\
 https://nytimes.com/athletic/6904880/2025/12/19/derick-hall-suspended-seahawks-rams-nfl-tnf/
 
 **Federal Judge Overturns Conviction in Killing of D.J. Jam Master Jay**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6904984/2025/12/19/devils-vs-mammoth-stream-how-to-
 **How to watch Jets vs. Avalanche: Time, TV, streaming**\
 `Find out how to watch the Winnipeg Jets play the Colorado Avalanche, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6904981/2025/12/19/jets-vs-avalanche-stream-how-to-watch-dec-19/
-
-**Brooklyn Man Accused of Stealing $16 Million in Crypto From Victims**\
-`From a house in Sheepshead Bay, Ronald Spektor bilked about 100 hapless marks across the United States, prosecutors say. Then, he went online to brag.`\
-https://nytimes.com/2025/12/19/nyregion/brooklyn-crypto-scam.html
 

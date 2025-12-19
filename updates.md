@@ -1,3 +1,11 @@
+**Controversial Dakota Pipeline Gets a Big, Belated Government Boost**\
+`A delayed environmental review cleared the Dakota Access Pipeline to continue operating. Separately, a North Dakota judge expressed unusual exasperation over the tangled legal battles.`\
+https://nytimes.com/2025/12/19/climate/dakota-access-pipeline-greenpeace-energy-transfer-army-corps.html
+
+**Seahawks' Derick Hall suspended one game for unsportsmanlike act vs. Rams**\
+`The NFL suspended Hall for unnecessarily stepping on the leg of Rams guard Kevin Dotson at the end of a play. `\
+https://nytimes.com/athletic/6904880/2025/12/19/derick-hall-suspended-seahawks-rams-nfl-tnf/
+
 **Seahawks' Derick Hall suspended 1 game for unsportsmanlike act vs. Rams**\
 `Hall was suspended for unnecessarily stepping on the leg of Rams guard Kevin Dotson at the end of a play. `\
 https://nytimes.com/athletic/6904880/2025/12/19/derick-hall-suspended-seahawks-rams-nfl-tnf/
