@@ -27,7 +27,7 @@ https://nytimes.com/athletic/6903421/2025/12/19/dewsbury-hall-everton-injury-new
 https://nytimes.com/athletic/6894549/2025/12/19/nfl-draft-2026-miami-tamu-carson-beck-bain/
 
 **Portuguese Colleagues Laud Slain Professor, but Don’t Recall Suspect**\
-`Nuno Loureiro studied in Libson in the 1990s, where his former colleagues remembered him fondly. His alleged killer also studied there.`\
+`Nuno Loureiro studied in Lisbon in the 1990s, where his former colleagues remembered him fondly. His alleged killer also studied there.`\
 https://nytimes.com/2025/12/19/us/mit-professor-shooting-suspect-portugal-lisbon-physics.html
 
 **Joan Didion and Kurt Vonnegut Had Something to Say. We Have It on Tape.**\
