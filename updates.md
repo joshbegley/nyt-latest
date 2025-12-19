@@ -1,3 +1,7 @@
+**Riots Erupt in Bangladesh After the Killing of a Student Leader**\
+`Newspaper buildings were set on fire after the death of an activist who was attacked recently. Political leaders fear more violence could derail attempts to restore democracy.`\
+https://nytimes.com/2025/12/19/world/asia/bangladesh-riots-student-killing.html
+
 **NFL Week 16 schedule rankings: Top 5 Sunday games with the most holiday spirit**\
 `'Tis the season for Christmas movies, high-stakes football and Myles Garrett as a one-man, John McClane-esque wrecking ball. `\
 https://nytimes.com/athletic/6899686/2025/12/19/nfl-week-16-tv-schedule-patriots-ravens-cowboys/

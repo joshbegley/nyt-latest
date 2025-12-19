@@ -1,3 +1,7 @@
+**Riots Erupt in Bangladesh After the Killing of a Student Leader**\
+`Newspaper buildings were set on fire after the death of an activist who was attacked recently. Political leaders fear more violence could derail attempts to restore democracy.`\
+https://nytimes.com/2025/12/19/world/asia/bangladesh-riots-student-killing.html
+
 **NFL Week 16 schedule rankings: Top 5 Sunday games with the most holiday spirit**\
 `'Tis the season for Christmas movies, high-stakes football and Myles Garrett as a one-man, John McClane-esque wrecking ball. `\
 https://nytimes.com/athletic/6899686/2025/12/19/nfl-week-16-tv-schedule-patriots-ravens-cowboys/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6899251/2025/12/19/the-prospects-liverpools-kieran-
 **Which big-name Blues could be traded after team declares 'no untouchables' — and for what return?**\
 `Assessing the Blues options if they decide to sell their most prominent players, from Jordan Binnington to Brayden Schenn to Robert Thomas.`\
 https://nytimes.com/athletic/6845922/2025/12/19/blues-trade-board-big-names/
-
-**Meet the viral Georgia fan who refused to sing 'Rocky Top': 'It's just a bad song'**\
-`Nolan McGill, a fifth-grader at Rivermont Elementary in Chattanooga, Tenn., is a big fan of Gunner Stockton and the Bulldogs.`\
-https://nytimes.com/athletic/6901535/2025/12/19/viral-georgia-kid-rocky-top-tennessee/
 
