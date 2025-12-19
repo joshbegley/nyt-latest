@@ -1,3 +1,7 @@
+**Seahawks convert wild 2-point conversion after apparent incomplete pass**\
+`The Seahawks scored 16 points in a span of 3:13 and tied the score on the most improbable of all two-point conversions.`\
+https://nytimes.com/athletic/6901991/2025/12/18/seahawks-2-point-conversion-rams-thursday-night-football/
+
 **Michael King, Padres agree to 3-year, $75 million deal: Sources**\
 `The 30-year-old hit free agency as one of the more intriguing starters available.`\
 https://nytimes.com/athletic/6801855/2025/12/18/mlb-michael-king-free-agency-signing-padres/
