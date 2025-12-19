@@ -1,3 +1,11 @@
+**Democratic State Lawmakers Vow to Unite and Push Back on Trump’s Deportations**\
+`Lawmakers from a half-dozen states said Thursday they will use legislation next year to thwart the tactics of federal law enforcement carrying out immigration policies.`\
+https://nytimes.com/2025/12/18/us/politics/democrats-trump-deportations.html
+
+**Greg Biffle's NASCAR career in photos, from Truck breakthrough to Cup Series wins**\
+`Biffle burst onto the Truck Series scene in 1998 and won more than 50 top-level races over the next 20 years in a career for the ages.`\
+https://nytimes.com/athletic/6900144/2025/12/18/greg-biffle-nascar-career-photos/
+
 **Shouting, Ranting, Insulting: Trump’s Uninhibited Second Term**\
 `Many of President Trump’s supporters love his professional-wrestling style of leadership. But some of his recent attacks have sickened even some of his own political allies.`\
 https://nytimes.com/2025/12/18/us/politics/trump-insults-second-term.html
