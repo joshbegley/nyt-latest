@@ -1,3 +1,19 @@
+**The Ultimate Party for the Ultimate Party-Dress Designer**\
+`The brand Oscar de la Renta celebrates 60 years of glamour.`\
+https://nytimes.com/2025/12/19/style/oscar-de-la-renta-60th-anniversary-show-dresses.html
+
+**Flashback: Your Weekly History Quiz, Dec. 20, 2025**\
+`Can you sort 8 historical events?`\
+https://nytimes.com/interactive/2025/12/19/upshot/flashback.html
+
+**Orioles acquire Shane Baz, a starter on the rise, by leveraging prospect depth**\
+`With Baz, Trevor Rogers and Kyle Bradish, the Orioles' rotation now at least has the upside to be among the best in baseball.`\
+https://nytimes.com/athletic/6904793/2025/12/19/shane-baz-orioles-rays-trade-caden-bodine-slater-de-brun/
+
+**Read the Arrest Affidavit**\
+`Here is the arrest warrant for the Brown University gunman, whom the authorities identified as Claudio Manuel Neves Valente. Mr. Valente was found dead Thursday in a storage unit in New Hampshire.`\
+https://nytimes.com/interactive/2025/12/19/us/brown-mit-shooting-arrest-affidavit.html
+
 **Read the Arrest Affidavit**\
 `Here is the arrest warrant for the gunman, whom the authorities identified as Claudio Manuel Neves Valente. Mr. Valente was found dead Thursday in a storage unit in New Hampshire.`\
 https://nytimes.com/interactive/2025/12/19/us/brown-mit-shooting-arrest-affidavit.html
