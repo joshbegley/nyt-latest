@@ -1,3 +1,7 @@
+**Elon Musk’s 2018 Tesla Pay Deal Is Restored by Delaware Supreme Court**\
+`A lower-court judge had invalidated the package, saying shareholders had not been properly informed about the plan. Friday’s ruling means the pay deal, worth about $139 billion now, can proceed.`\
+https://nytimes.com/2025/12/19/business/elon-musk-pay-ruling-delaware.html
+
 **NFL fines Rams' Puka Nacua $25,000 for criticizing referees: Source**\
 `Nacua criticized the league's refs during a livestream with Adin Ross and N3on, then reiterated his take following a loss to the Seahawks. `\
 https://nytimes.com/athletic/6904593/2025/12/19/rams-puka-nacua-fine-nfl-refs/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/19/us/how-the-times-is-covering-the-latest-release-o
 **Hochul Expected to Veto Bill Requiring 2-Person Crews on Subway Trains**\
 `The bill, which would ensure that every train has a conductor and a driver, as most now do, was supported by the transit workers’ union and opposed by many transit advocates.`\
 https://nytimes.com/2025/12/19/nyregion/hochul-mta-conductors-twu.html
-
-**Phillies lean right with new-look bullpen, still waiting on J.T. Realmuto**\
-`After a busy week, the Phillies have a deeper stable of righty relievers. But they're locked in a standoff with Realmuto, sources said.`\
-https://nytimes.com/athletic/6904911/2025/12/19/phillies-bullpen-jt-realmuto-free-agency/
 

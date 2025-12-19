@@ -1,8 +1,12 @@
+**NFL fines Rams' Puka Nacua $25,000 for criticizing referees: Source**\
+`Nacua criticized the league's refs during a livestream with Adin Ross and N3on, then reiterated his take following a loss to the Seahawks. `\
+https://nytimes.com/athletic/6904593/2025/12/19/rams-puka-nacua-fine-nfl-refs/
+
 **U.S. Strikes Islamic State Targets in Syria**\
 `American forces struck dozens of suspected ISIS sites, making good on President Trump’s vow to avenge two American soldiers killed by the group last week.`\
 https://nytimes.com/2025/12/19/us/politics/us-islamic-state-strikes-syria.html
 
-**Travis Kelce pushes back on retirement talk, wants to focus on and 'enjoy' Chiefs' last 3 games**\
+**Travis Kelce pushes back on retirement, puts focus on Chiefs' last 3 games**\
 `"I think I'd rather just keep the focus of the media and everything on this team right now," Kelce said Friday.`\
 https://nytimes.com/athletic/6905047/2025/12/19/travis-kelce-retirement-comments-chiefs/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/19/nyregion/hochul-mta-conductors-twu.html
 **Phillies lean right with new-look bullpen, still waiting on J.T. Realmuto**\
 `After a busy week, the Phillies have a deeper stable of righty relievers. But they're locked in a standoff with Realmuto, sources said.`\
 https://nytimes.com/athletic/6904911/2025/12/19/phillies-bullpen-jt-realmuto-free-agency/
-
-**R.F.K. Jr. Likely to Swap U.S. Childhood Vaccine Schedule for Denmark’s**\
-`The shift would mean fewer shots recommended for children. But a Danish health official found the idea baffling, saying the United States was getting “crazier and crazier in public health.”`\
-https://nytimes.com/2025/12/19/health/kennedy-childhood-vaccine-schedule-denmark.html
 
