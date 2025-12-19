@@ -1,5 +1,21 @@
+**Make-Ahead French Toast With Maple Apples**\
+`With reader (and staff) favorites from this week.`\
+https://nytimes.com/2025/12/19/dining/make-ahead-french-toast-with-maple-apples.html
+
+**Romeo Santos and Prince Royce Want Bachata to Share in Latin Music’s Boom**\
+`Despite huge collaborations, top-selling albums and sellout tours, the leading stars of the Dominican genre still feel like they haven’t received their due.`\
+https://nytimes.com/2025/12/19/arts/music/romeo-santos-prince-royce-interview-popcast.html
+
+**Five Science Fiction Movies to Stream Now**\
+`In this month’s picks, torrents, trolls and time travel.`\
+https://nytimes.com/2025/12/19/movies/science-fiction-movies-streaming.html
+
+**Five Free Movies to Stream**\
+`The final column of the year looks at the end of things — the end of the world, the end of youth — along with an underrated holiday gem.`\
+https://nytimes.com/2025/12/19/movies/free-movies-streaming.html
+
 **Phillies trade Matt Strahm to Royals for Jonathan Bowlan in cost-saving reliever swap**\
-`The Phillies traded the veteran lefty to the Royals in a move designed to free up money — nearly $7 million — to address other needs.`\
+`The Phillies traded the lefty set-up man to Kansas City in a move designed to free up money — nearly $7M in 2026 — to address other needs.`\
 https://nytimes.com/athletic/6903636/2025/12/19/phillies-royals-strahm-bowlan-trade/
 
 **Mapping an Ever-Evolving Cuisine**\
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6903408/2025/12/19/nhl-power-rankings-29/
 **The Bounce: What happened to the Cavs? Plus, Giannis speaks!**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/6903614/2025/12/19/cleveland-cavaliers-giannis-nba-the-bounce/
-
-**PSG goalkeeper Safonov fractured hand before penalty saves in shootout victory**\
-`Luis Enrique explained Safonov appeared to sustain the injury during the third penalty kick in the Intercontinental Cup final.`\
-https://nytimes.com/athletic/6903536/2025/12/19/safonov-penalty-saves-injury-psg/
-
-**Naomi Osaka leaves Evolve, tennis agency she co-founded, after three years**\
-`Former world No. 1 and four-time Grand Slam champion Osaka launched the agency with Stuart Duguid in 2022.`\
-https://nytimes.com/athletic/6903526/2025/12/19/tennis-naomi-osaka-evolve-agency-sabalenka-kyrgios/
-
-**Vikings-Giants predictions: What we're watching with J.J. McCarthy and Jaxson Dart**\
-`Will McCarthy win his third straight, or will the Giants defensive front wreak havoc on the young quarterback? Here's our preview.`\
-https://nytimes.com/athletic/6901215/2025/12/19/vikings-giants-preview-predictions-jj-mccarthy-jaxson-dart/
-
-**What We Know About the Suspects in the Bondi Beach Attack**\
-`The police named Sajid Akram, 50, and his son, Naveed Akram, 24, as the suspects in the shooting that claimed 15 lives on Dec. 14.`\
-https://nytimes.com/2025/12/19/world/australia/bondi-shooting-attack-suspects.html
 
