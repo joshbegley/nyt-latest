@@ -1,3 +1,7 @@
+**Greg Biffle's NASCAR career in photos, from Trucks to Cup Series wins**\
+`Biffle burst onto the Truck Series scene in 1998 and won more than 50 top-level races over the next 20 years in a career for the ages.`\
+https://nytimes.com/athletic/6900144/2025/12/18/greg-biffle-nascar-career-photos/
+
 **For the First Time, a Former Refugee Will Lead the U.N.’s Refugee Agency**\
 `Barham Salih, who fought against Saddam Hussein’s rule in Iraq and later served as president, was chosen to lead the U.N. High Commission for Refugees.`\
 https://nytimes.com/2025/12/18/world/middleeast/un-refugee-agency-barham-salih-iraq.html
