@@ -1,3 +1,7 @@
+**Why isn't Zion Williamson starting? Pelicans' coach says it's 'to maximize his minutes'**\
+`Williamson, who is on a minutes restriction after returning from injury, won't start to help ensure he can play in longer stints later on.`\
+https://nytimes.com/athletic/6901440/2025/12/18/zion-williamson-bench-pelicans-starting-lineup/
+
 **New Judges Take Charge of Sept. 11 Case at Guantánamo**\
 `The long-running case had been on hold for nearly a year because of higher court appeals and the retirement of the military judge.`\
 https://nytimes.com/2025/12/18/us/politics/judges-sept-11-guantanamo.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6900960/2025/12/18/chiefs-moving-to-kansas-arrowhea
 **Trump Relies on Distortions to Support His Pressure Campaign on Venezuela**\
 `The president has a long record of making false or misleading statements. But the sheer density of them in his administration’s boat attacks and Venezuela pressure campaign is exceptional.`\
 https://nytimes.com/2025/12/18/us/trump-venezuela-false-claims-misinformation.html
-
-**Scoop City: Previewing Rams at Seahawks**\
-`Previewing Rams-Seahawks, a game big enough to fill a newsletter, which also helps distract Bengals fans like myself`\
-https://nytimes.com/athletic/6901081/2025/12/18/rams-seahawks-preview-nfc-nfl-scoop-city/
 
