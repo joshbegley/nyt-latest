@@ -1,3 +1,11 @@
+**Erika Kirk Endorses JD Vance for 2028**\
+`The early backing of Ms. Kirk, the widow of Charlie Kirk, is notable because she now leads the influential conservative group he founded, Turning Point USA.`\
+https://nytimes.com/2025/12/19/us/politics/erika-kirk-jd-vance-2028-election-endorsement.html
+
+**Netflix's 'King of Collectibles' Ken Goldin on season 3 and the items he won't sell**\
+`The show has helped a once insular hobby reach new audiences, and Goldin is ready to take credit. `\
+https://nytimes.com/athletic/6901896/2025/12/19/goldin-king-of-collectibles-netflix-sports-memorabilia/
+
 **Amorim addresses 'Free Kobbie Mainoo' t-shirt, ‘entitled’ Obi and Amass**\
 `"He’s not going to start because of the t-shirt and he’s not going to the bench because of the t-shirt," Amorim said on Mainoo.`\
 https://nytimes.com/athletic/6903434/2025/12/19/manchester-united-amorim-mainoo-obi-amass/

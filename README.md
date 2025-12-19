@@ -1,3 +1,7 @@
+**Staff picks all 4 first-round CFP games against the spread**\
+`Our staff picked the four College Football Playoff first-round games against the spread.`\
+https://nytimes.com/athletic/6900782/2025/12/19/college-football-playoff-picks-against-the-spread/
+
 **Erika Kirk Endorses JD Vance for 2028**\
 `The early backing of Ms. Kirk, the widow of Charlie Kirk, is notable because she now leads the influential conservative group he founded, Turning Point USA.`\
 https://nytimes.com/2025/12/19/us/politics/erika-kirk-jd-vance-2028-election-endorsement.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6900269/2025/12/19/celtics-nba-trade-deadline-rumor
 **Everton's Dewsbury-Hall out of Arsenal game but Grealish available**\
 `A scan earlier this week revealed Dewsbury-Hall, 27, sustained a hamstring issue in last week's two-goal loss at Chelsea.`\
 https://nytimes.com/athletic/6903421/2025/12/19/dewsbury-hall-everton-injury-news/
-
-**NFL Draft prospects to watch in Miami-Texas A&M College Football Playoff game**\
-`Can Carson Beck solve Texas A&M's defense? Will Rueben Bain Jr. or KC Concepcion serve up a signature moment? `\
-https://nytimes.com/athletic/6894549/2025/12/19/nfl-draft-2026-miami-tamu-carson-beck-bain/
 
