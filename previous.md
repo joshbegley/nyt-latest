@@ -1,3 +1,11 @@
+**Europe Agrees on Loan to Ukraine Without Using Russian Funds**\
+`European leaders agreed on Friday to provide Ukraine with a $105 billion loan but failed to reach a consensus on using Russian government assets frozen in Europe to back it.`\
+https://nytimes.com/video/world/europe/100000010598577/europe-loan-ukraine-russia.html
+
+**Ignore the noise. Joe Burrow is set for a fantasy football rebound in Week 16**\
+`Andy Behrens dissects the Joe Burrow drama and other burning Week 16 fantasy topics.`\
+https://nytimes.com/athletic/6903443/2025/12/19/fantasy-football-news-week-16-joe-burrow/
+
 **Anfernee Simons? Anthony Davis? Looking at Celtics NBA trade candidates**\
 `Which Celtics could be on the move at the deadline? Jay King takes a look at the NBA's big trade board.`\
 https://nytimes.com/athletic/6900269/2025/12/19/celtics-nba-trade-deadline-rumors-candidates-anthony-davis/
@@ -25,16 +33,4 @@ https://nytimes.com/athletic/6898354/2025/12/19/nhl-unusual-trades-mcdavid-crosb
 **Picking three potential Premier League underdog winners**\
 `Where could the upsets in the Premier League come from this weekend?`\
 https://nytimes.com/athletic/6902506/2025/12/19/premier-league-underdog-winners-newcastle-wolves-nottingham-forest/
-
-**Guardiola declines to confirm he will be at Man City next season**\
-`Guardiola claimed discussions about his future are “not on the table right now”. `\
-https://nytimes.com/athletic/6903371/2025/12/19/pep-guardiola-manchester-city-future-news/
-
-**College Football Playoff 2025 projections: Who's favored to advance in the bracket?**\
-`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
-https://nytimes.com/athletic/6560541/2025/12/19/college-football-playoff-bracket-projections-odds/
-
-**Tennis player banned for 12 years after 22 match-fixing offenses in five months**\
-`Pang Renlong had been provisionally suspended along with two other players late last year.`\
-https://nytimes.com/athletic/6903352/2025/12/19/tennis-match-fixing-ban-pang-renlong/
 

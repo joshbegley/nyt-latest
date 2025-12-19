@@ -1,3 +1,11 @@
+**Europe Agrees on Loan to Ukraine Without Using Russian Funds**\
+`European leaders agreed on Friday to provide Ukraine with a $105 billion loan but failed to reach a consensus on using Russian government assets frozen in Europe to back it.`\
+https://nytimes.com/video/world/europe/100000010598577/europe-loan-ukraine-russia.html
+
+**Ignore the noise. Joe Burrow is set for a fantasy football rebound in Week 16**\
+`Andy Behrens dissects the Joe Burrow drama and other burning Week 16 fantasy topics.`\
+https://nytimes.com/athletic/6903443/2025/12/19/fantasy-football-news-week-16-joe-burrow/
+
 **Anfernee Simons? Anthony Davis? Looking at Celtics NBA trade candidates**\
 `Which Celtics could be on the move at the deadline? Jay King takes a look at the NBA's big trade board.`\
 https://nytimes.com/athletic/6900269/2025/12/19/celtics-nba-trade-deadline-rumors-candidates-anthony-davis/
