@@ -1,3 +1,7 @@
+**The Next Epicenter of Sports**\
+`From youth development to visionary leadership — discover how Abu Dhabi is building the future of sport.`\
+https://nytimes.com/paidpost/athletic/experienceabudhabi/thenextepicenterofsports.html
+
 **Japan Raises Interest Rates to Highest Level in 30 Years**\
 `The Bank of Japan moved to slow inflation as the prime minister is borrowing more to fund an ambitious effort to build up industry and support households.`\
 https://nytimes.com/2025/12/18/business/bank-of-japan-rates-inflation.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6901556/2025/12/18/josh-hoover-transfer-portal-quar
 **John Means tears his Achilles the same day he was set to sign with a team**\
 `Means, who underwent Tommy John surgery in 2022 and 2024, hoped to be ready for next season's Opening Day.`\
 https://nytimes.com/athletic/6901510/2025/12/18/john-means-injury-mlb-free-agency/
-
-**Prosecutors Say Minnesota’s Fraud Scandal Goes Further Than Previously Known**\
-`Federal prosecutors said they were now investigating fraud worth billions of dollars in 14 social services programs in the state.`\
-https://nytimes.com/2025/12/18/us/minnesota-fraud-scandal.html
 
