@@ -1,3 +1,11 @@
+**Immigration Officials Deport Queens 6-Year-Old and Father Who Fled China**\
+`Hundreds of people had rallied for the family in New York City after they were separated by Immigration and Customs Enforcement agents in November.`\
+https://nytimes.com/2025/12/19/nyregion/child-father-deported-china-nyc.html
+
+**Epstein Files Include 1996 Child Porn Complaint That F.B.I. Ignored**\
+`Newly released files show how Maria Farmer, who worked for Mr. Epstein in the 1990s, had urged the F.B.I. to investigate him. The case went nowhere for years.`\
+https://nytimes.com/2025/12/19/us/epstein-fbi-complaint-1996-maria-farmer.html
+
 **Acquiring Mike Burrows is a 'good start' for Astros. What's next?**\
 `Houston GM Dana Brown described Burrows as an “upside play” with potential to blossom into a “pillar” of future Astros rotations.`\
 https://nytimes.com/athletic/6905263/2025/12/19/astros-mike-burrows-trade-offseason-moves/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/19/us/bill-clinton-epstein-photos.html
 **Arizona State's Jordyn Tyson, USC's Makai Lemon declare for 2026 NFL Draft**\
 `Tyson was known for making big catches at Arizona State, while Lemon ranked third nationally in receiving yards at USC. `\
 https://nytimes.com/athletic/6905202/2025/12/19/jordan-tyson-arizona-state-nfl-draft-makai-lemon/
-
-**Introducing Your Next Newsletter Writer (for Now), and Looking Back at 2025**\
-`There will be much to dive into when On Politics returns in January, and a familiar voice will be taking the helm — at least for a little while.`\
-https://nytimes.com/2025/12/19/us/politics/trump-midterms-elections.html
-
-**Allan Ludwig, ‘Founding Father’ of Gravestone Studies, Dies at 92**\
-`His Pulitzer-nominated book “Graven Images” inspired a reassessment of Puritan art, challenging the belief that imagery carved on headstones was meaningless.`\
-https://nytimes.com/2025/12/19/arts/allan-ludwig-dead.html
 
