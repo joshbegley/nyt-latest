@@ -1,40 +1,40 @@
-**Australia federation bans four soccer players over match-fixing**\
-`The players have been banned from any activity related to the sport, and all have accepted their sanctions without appealing.`\
-https://nytimes.com/athletic/6902436/2025/12/19/australia-match-fixing-soccer-ban/
+**Ranking the College Football Playoff's first-round games by watchability**\
+`We've sorted the four first-round games by national appeal. Alabama plays at Oklahoma on Friday; Miami visits Texas A&M Saturday afternoon.`\
+https://nytimes.com/athletic/6898101/2025/12/19/college-football-playoff-first-round-games-tv-schedule/
 
-**Hurzeler hoping for lack of Brighton first-team departures in January**\
-`Hurzeler was asked about the future of Diego Coppola, who is yet to start a Premier League match this season.`\
-https://nytimes.com/athletic/6902581/2025/12/19/fabian-hurzeler-brighton-january-transfers/
+**J.T. Miller etches another chapter in OT chronicles, plus other Rangers thoughts**\
+`After 60 minutes — when one play can end the game — Miller has consistently delivered.`\
+https://nytimes.com/athletic/6902182/2025/12/19/rangers-win-blues-j-t-miller-overtime/
 
-**Arteta: Havertz and Gabriel close to returning**\
-`Havertz has been out with a knee injury since August, while Gabriel suffered a thigh issue last month.`\
-https://nytimes.com/athletic/6902487/2025/12/19/arsenal-team-news-havertz-gabriel/
+**Best passing center ever? Nikola Jokić now has the NBA record to back that up**\
+`Jokić passed Kareem Abdul-Jabbar for the most career regular-season assists by an NBA center. `\
+https://nytimes.com/athletic/6902298/2025/12/19/nikola-jokic-center-assists-record/
 
-**Here is the latest.**\
-`By Alan Blinder, Glenn Thrush, Chelsia Rose Marcius, Maria Cramer and Qasim Nauman`\
-https://nytimes.com/live/2025/12/19/us/brown-mit-shooting-suspect/here-is-the-latest
+**Zack Bolduc's ability to adapt creates an important domino effect for the Canadiens**\
+`Bolduc's ability to mesh with Nick Suzuki and Cole Caufield benefits the Canadiens up and down their lineup.`\
+https://nytimes.com/athletic/6902226/2025/12/19/canadiens-blackhawks-zack-bolduc-domino-effect/
 
-**Live Updates: Suspect in Brown University Shooting Is Found Dead**\
-`The authorities said the man is also suspected of killing an M.I.T. professor after the Brown shooting. Any motive remains unclear.`\
-https://nytimes.com/live/2025/12/19/us/brown-mit-shooting-suspect
+**Trent Frederic, the Bruins' rapid rebuild and a run of transactional smashes**\
+`Trading Frederic to the Oilers was the right move, and a series of other right moves have followed for Boston.`\
+https://nytimes.com/athletic/6901866/2025/12/19/bruins-oilers-trent-frederic-trade/
 
-**Before betting probe, Emmanuel Clase caught breaking MLB's sign-stealing era cell phone rules**\
-`MLB has worked to police player cell phone use, but the league loosened its cell phone rules in 2025 in response to concerns from players.`\
-https://nytimes.com/athletic/6901487/2025/12/19/mlb-emmanuel-ortiz-cell-phone-betting-caught/
+**Sources: World Cup fan fests in Bay Area to be reduced after region's lackluster draw**\
+`A slate lacking marquee stars and commercial appeal may change how the Bay Area handles its piece of the World Cup`\
+https://nytimes.com/athletic/6900446/2025/12/19/2026-world-cup-fifa-fan-fests-bay-area-san-francisco/
 
-**Baker Mayfield is back in Charlotte and sure to be amped up vs. former team**\
-`Mayfield made six starts for the Panthers in 2022 and was benched after Matt Rhule was fired. He's 4-0 vs. Carolina as Tampa Bay's QB.`\
-https://nytimes.com/athletic/6901286/2025/12/19/panthers-baker-mayfield-nfc-south-playoffs-bucs/
+**Saquon Barkley on verge of back-to-back NFC East titles, 1,000-yard seasons: Eagles notes**\
+`No NFC East team has won the division two years in a row in more than two decades, but Philadelphia can accomplish that Saturday.`\
+https://nytimes.com/athletic/6901541/2025/12/19/eagles-notes-saquon-barkley-on-verge-of-back-to-back-nfc-east-titles-1000-yard-seasons/
 
-**College Football Playoff bracket predictions: Our staff and readers disagree**\
-`The College Football Playoff is here and votes have been tallied. Here's who our writers, editors and readers believe will win each game.`\
-https://nytimes.com/athletic/6899931/2025/12/19/college-football-playoff-predictions-bracket-2025/
+**Rumblings: What I'm hearing on Canada's Olympic roster bubble, plus NHL trade chatter picking up**\
+`Who makes the final Canadian cut? And the latest on trade targets Phillip Danault, Rasmus Andersson, Kiefer Sherwood and Ryan O'Reilly.`\
+https://nytimes.com/athletic/6900997/2025/12/19/canada-olympic-roster-trades-danault-andersson/
 
-**The New York Times International Edition in Print for Saturday, Dec. 20, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/12/19/todays-new-york-times-international-edition
+**Bills notebook for Browns game: What's up with Dalton Kincaid?**\
+`Following their electric comeback Sunday to snap the New England Patriots&#8217; 10-game win streak, the Buffalo Bills have won three straight and six of their last eight.`\
+https://nytimes.com/athletic/6900803/2025/12/19/bills-notebook-for-browns-game-whats-up-with-dalton-kincaid/
 
-**Bears fan. College QB. Fourth-stringer. Now, he's protecting Aaron Rodgers' blindside**\
-`An unlikely journey for the man holding down one of the most important jobs in the NFL.`\
-https://nytimes.com/athletic/6901209/2025/12/19/dylan-cook-pittsburgh-steelers/
+**Who is the Tyler Kolek that Jalen Brunson keeps speaking about?**\
+`Kolek is having himself a week.`\
+https://nytimes.com/athletic/6901967/2025/12/19/knicks-pacers-tyler-kolek-jalen-brunson/
 
