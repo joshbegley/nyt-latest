@@ -1,3 +1,11 @@
+**Maresca says he will 'absolutely' be at Chelsea next season**\
+`Maresca's comments come following The Athletic's report that he is high on Manchester City's list in the event Pep Guardiola leaves.`\
+https://nytimes.com/athletic/6902477/2025/12/19/enzo-maresca-chelsea-future/
+
+**How to watch Cent. Conn. St. vs. Maryland women's basketball: Time, TV, streaming**\
+`Find out how to watch the Central Connecticut State Blue Devils play the Maryland Terrapins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6902539/2025/12/19/cent-conn-st-vs-maryland-stream-how-to-watch-dec-19/
+
 **Newcastle's Livramento avoids serious injury but set for 'weeks' out**\
 `Livramento, 23, was forced off during the second half of Newcastle's Carabao Cup win over Fulham on Wednesday.`\
 https://nytimes.com/athletic/6902469/2025/12/19/tino-livramento-newcastle-injury-news/
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2025/12/19/magazine/off-leash-dogs-hodgman-quiz.
 **An Election ‘Off Year,’ but Not a Year Off**\
 `Takeaways from an eventful 2025 election cycle.`\
 https://nytimes.com/interactive/2025/12/19/us/elections/2025-election-takeaways.html
-
-**U.S. Will Pay $450,000 to Wildfire Fighters With Cancer**\
-`They will be eligible for a one-time payment as well as college tuition for their children. The effort is part of a legislative push to address the dangers of working in toxic smoke.`\
-https://nytimes.com/2025/12/19/us/wildfire-fighters-cancer.html
-
-**Yes, Nancy Pelosi Says, the Country Is Ready for a Woman to Be President**\
-`The speaker emerita is disappointed and a little surprised that the presidential glass ceiling remains intact, but confident that it will change.`\
-https://nytimes.com/2025/12/19/opinion/pelosi-woman-president.html
 
