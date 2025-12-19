@@ -1,3 +1,7 @@
+**Trump Announces Pricing Deals With Nine Drugmakers**\
+`The companies agreed to sell most of their drugs to Medicaid at the prices they charge in European countries and to sell drugs directly to consumers through a planned TrumpRx website.`\
+https://nytimes.com/2025/12/19/health/trump-drug-pricing-deals.html
+
 **Riots Flare Up in Bangladesh After a Student Protest Leader Is Killed**\
 `Violent unrest spilled onto the streets of Dhaka, Bangladesh, following the killing of of a prominent student leader who was shot over the weekend. The offices of two leading newspapers were set on fire.`\
 https://nytimes.com/video/world/asia/100000010599663/bangladesh-riots-fires-hadi.html
