@@ -1,3 +1,15 @@
+**Justice Dept. Won’t Meet Friday Deadline to Release All Epstein Files**\
+`Several members of Congress criticized the department’s No. 2, Todd Blanche, after he said more documents would be coming weeks late.`\
+https://nytimes.com/2025/12/19/us/politics/epstein-files-deadline.html
+
+**Clippers fans aren't normally ones for booing. That's changing**\
+`The Clippers are heading back to Intuit Dome this weekend. Their last time there, they heard something very rare.`\
+https://nytimes.com/athletic/6902232/2025/12/19/clippers-fans-nba-western-conference/
+
+**Lessons From Decades of Marriage**\
+`Couples married for decades reflect on how love, patience and resilience helped them weather life’s challenges and sustain lasting, meaningful unions.`\
+https://nytimes.com/2025/12/19/style/marriage-advice-relationship-lessons.html
+
 **Restaurant Review: Bánh Anh Em in Manhattan**\
 `Bánh Anh Em, in Manhattan’s East Village, sizzles with scrappy, ad-hoc cooking that shows off the full fervor of Vietnamese cuisine.`\
 https://nytimes.com/video/dining/100000010593102/restaurant-review-banh-anh-em-in-manhattan.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/12/19/business/energy-environment/trump-media-tae-merge
 **Is Tennis’ ‘Battle-of-the-Sexes’ a Lose-Lose Situation?**\
 `The women’s world No. 1 Aryna Sabalenka will play the men’s world No. 652 Nick Kyrgios in a match labeled as the fourth Battle of the Sexes in the sport’s history. The Athletic’s Sarah Shepherd reports on why it’s a lose-lose situation for women in tennis.`\
 https://nytimes.com/video/the-athletic/100000010593130/is-tennis-battle-of-the-sexes-a-lose-lose-situation.html
-
-**How Was 2025 in the World of Books?**\
-`“Some of us feel exhausted, some of us feel energized.” The Book Review looks back on the year’s biggest stories and trends in the publishing industry.`\
-https://nytimes.com/2025/12/19/books/review/podcast-publishing-2025.html
-
-**6 Cookie Tips in 60 Seconds from NYT Cooking**\
-`Remember these tips from Genevieve Ko, a senior editor for NYT Cooking, when you make your next batch of holiday cookies.`\
-https://nytimes.com/video/dining/100000010593099/6-cookie-tips-in-60-seconds-from-nyt-cooking.html
-
-**Trump signs law strengthening stadium security against drones**\
-`The Safer Skies Act empowers state and local law enforcement to neutralize drones at stadiums, airports and major public events.`\
-https://nytimes.com/athletic/6903655/2025/12/19/trump-drone-law-stadium-security/
 
