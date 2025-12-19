@@ -1,3 +1,7 @@
+**Trump’s Name Joins Kennedy’s on Performing Arts Center’s Facade**\
+`Workers hauled up large letters spelling out Mr. Trump’s full name to add to the white marble face of the building on Friday morning.`\
+https://nytimes.com/2025/12/19/us/politics/kennedy-center-name.html
+
 **How to See the Epstein Files Released on Friday**\
 `The searchable database published by the Justice Department is broken into multiple categories.`\
 https://nytimes.com/2025/12/19/us/how-to-read-epstein-files.html
@@ -8,7 +12,7 @@ https://nytimes.com/2025/12/19/world/europe/trevi-fountain-2-euro-fee.html
 
 **How The Times is covering the latest release of Epstein files.**\
 `By The New York Times`\
-https://nytimes.com/live/2025/12/19/us/epstein-files-release/how-the-times-is-covering-the-latest-release-of-epstein-files
+https://nytimes.com/2025/12/19/us/how-the-times-is-covering-the-latest-release-of-epstein-files.html
 
 **Hochul Expected to Veto Bill Requiring 2-Person Crews on Subway Trains**\
 `The bill, which would ensure that every train has a conductor and a driver, as most now do, was supported by the transit workers’ union and opposed by many transit advocates.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6904791/2025/12/19/video-cj-stroud-offense-texans/
 **She Put the Heat in ‘Heated Rivalry’**\
 `Thanks to a steamy television adaptation, Rachel Reid’s romance novels about closeted hockey players have become mainstream best-sellers.`\
 https://nytimes.com/2025/12/19/books/heated-rivalry-rachel-reid-hockey-romance.html
-
-**'Ask those guys, not me': Has Craig Berube lost the Leafs?**\
-`The Leafs’ brass should be asking tough questions to determine whether this season is still salvageable with Craig Berube at the controls.`\
-https://nytimes.com/athletic/6904822/2025/12/19/craig-berube-lost-maple-leafs/
 
