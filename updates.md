@@ -1,3 +1,11 @@
+**Trump’s Name Is Rarely Mentioned in New Epstein Files**\
+`The files that The Times initially reviewed on Friday included only a handful of references to or images of Mr. Trump.`\
+https://nytimes.com/2025/12/19/us/trump-epstein-files.html
+
+**Trump Picks New Leader for Southern Command as Venezuela Pressure Grows**\
+`Lt. Gen. Francis L. Donovan, a Marine general with expansive experience in special operations and the Middle East, would take over after the abrupt departure of the previous commander.`\
+https://nytimes.com/2025/12/19/us/politics/frank-donovan-southern-command-trump.html
+
 **The Justice Dept. Released a Trove of Epstein Files**\
 `Also, investigators seek a motive in killings at Brown and M.I.T. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2025/12/19/briefing/epstein-files-brown-mit-shootings.html

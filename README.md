@@ -1,3 +1,11 @@
+**Acquiring Mike Burrows is a 'good start' for Astros. What's next?**\
+`Houston GM Dana Brown described Burrows as an “upside play” with potential to blossom into a “pillar” of future Astros rotations.`\
+https://nytimes.com/athletic/6905263/2025/12/19/astros-mike-burrows-trade-offseason-moves/
+
+**Justice Dept. Will Appeal Dismissal of Comey and James Indictments**\
+`The Trump administration had vowed to fight a judge’s decision to dismiss unrelated criminal charges against James Comey, the former F.B.I. director, and Letitia James, the attorney general of New York.`\
+https://nytimes.com/2025/12/19/us/politics/trump-james-comey-appeal.html
+
 **Trump’s Name Is Rarely Mentioned in New Epstein Files**\
 `The files that The Times initially reviewed on Friday included only a handful of references to or images of Mr. Trump.`\
 https://nytimes.com/2025/12/19/us/trump-epstein-files.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/19/us/politics/trump-midterms-elections.html
 **Allan Ludwig, ‘Founding Father’ of Gravestone Studies, Dies at 92**\
 `His Pulitzer-nominated book “Graven Images” inspired a reassessment of Puritan art, challenging the belief that imagery carved on headstones was meaningless.`\
 https://nytimes.com/2025/12/19/arts/allan-ludwig-dead.html
-
-**A Memorial to Kennedy? It’s Trump’s Now, Too.**\
-`The Kennedy Center installed President Trump’s name on the facade of the arts center, which had been designated as a living memorial to President John F. Kennedy.`\
-https://nytimes.com/2025/12/19/us/politics/kennedy-center-trump-sign.html
-
-**Brad Keselowski undergoes surgery, expects to be ready for Daytona 500**\
-`Keselowski was injured Thursday in a skiing accident, then completed surgery the same day.`\
-https://nytimes.com/athletic/6905161/2025/12/19/brad-keselowski-broken-leg-injury-nascar/
 
