@@ -1,3 +1,7 @@
+**James B. Hunt Jr., N.C. Governor Who Kept State Blue, Dies at 88**\
+`During his 16 years in office, he earned national acclaim for his focus on education. But losing his bid for the Senate in 1984 cost him a shot at the presidency.`\
+https://nytimes.com/2025/12/18/us/politics/james-b-hunt-jr-dead.html
+
 **Democratic State Lawmakers Vow to Unite and Push Back on Trump’s Deportations**\
 `Lawmakers from a half-dozen states said Thursday they will use legislation next year to thwart the tactics of federal law enforcement carrying out immigration policies.`\
 https://nytimes.com/2025/12/18/us/politics/democrats-trump-deportations.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/dining/100000010368623/vegan-cacio-e-pepe.html
 **TikTok Signs Agreements With Investors in Step Toward Avoiding a U.S. Ban**\
 `The Chinese-owned video app formalized commitments from the software giant Oracle and two investment firms as part of a deal to keep TikTok operating in the United States.`\
 https://nytimes.com/2025/12/18/business/media/tiktok-deal-agreements-us-investors.html
-
-**The U.S. Moves to End Gender-Related Care for Minors**\
-`Also, authorities search for a person of interest in the Brown shooting. Here’s the latest at the end of Thursday.`\
-https://nytimes.com/2025/12/18/briefing/trump-gender-related-treatments-brown-shooting-investigation.html
 

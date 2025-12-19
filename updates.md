@@ -1,3 +1,7 @@
+**James B. Hunt Jr., N.C. Governor Who Kept State Blue, Dies at 88**\
+`During his 16 years in office, he earned national acclaim for his focus on education. But losing his bid for the Senate in 1984 cost him a shot at the presidency.`\
+https://nytimes.com/2025/12/18/us/politics/james-b-hunt-jr-dead.html
+
 **Democratic State Lawmakers Vow to Unite and Push Back on Trump’s Deportations**\
 `Lawmakers from a half-dozen states said Thursday they will use legislation next year to thwart the tactics of federal law enforcement carrying out immigration policies.`\
 https://nytimes.com/2025/12/18/us/politics/democrats-trump-deportations.html
