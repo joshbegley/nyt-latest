@@ -1,3 +1,11 @@
+**Xabi Alonso's future at Real Madrid: A discussion on what we're hearing**\
+`Real Madrid's under-pressure manager faces another potentially decisive match on Saturday, at home to Sevilla`\
+https://nytimes.com/athletic/6902714/2025/12/19/xabi-alonso-real-madrid-future-sack-la-liga/
+
+**Rams were looking like the best version of themselves. Then came the epic collapse**\
+`The Rams appeared to be in complete control, of the game and the NFC West, before the Seahawks stole it all away in an overtime thriller. `\
+https://nytimes.com/athletic/6902240/2025/12/19/rams-collapse-seahawks-nfc-west/
+
 **He Smeared Dog Feces on a Critic. Now, He’s Back in the Spotlight.**\
 `Two years after the assault, Marco Goecke is staging a nontraditional “Nutcracker.” Ballet Basel hopes the focus will stay on his choreography.`\
 https://nytimes.com/2025/12/19/arts/dance/marco-goecke-feces-critic-nutcracker.html
