@@ -1,3 +1,15 @@
+**Trump Administration Pauses Diversity Immigration Program After Brown Shooting**\
+`Homeland Security Secretary Kristi Noem said President Trump ordered the program to be suspended after it emerged that the shooting suspect used it to move to the United States.`\
+https://nytimes.com/2025/12/19/us/brown-shooting-suspect-diversity-visa-program.html
+
+**TAFC — Why AFCON is football's most underrated tournament. Plus: Messi's political power at Barcelona**\
+`In today's TAFC newsletter, a look at what makes the Africa Cup of Nations so compelling, plus Messi's enduring influence at his old club`\
+https://nytimes.com/athletic/6902724/2025/12/19/tafc-afcon-messi-barcelona/
+
+**Stephon Castle's full-court pressure, Darius Garland's flow and more NBA trends I'm watching**\
+`Three NBA trends that have caught our eye over the past week.`\
+https://nytimes.com/athletic/6901723/2025/12/19/stephon-castle-darius-garland-nba-trends/
+
 **Ranking the College Football Playoff's first-round games by watchability**\
 `We've sorted the four first-round games by national appeal. Alabama plays at Oklahoma on Friday; Miami visits Texas A&M Saturday afternoon.`\
 https://nytimes.com/athletic/6898101/2025/12/19/college-football-playoff-first-round-games-tv-schedule/
