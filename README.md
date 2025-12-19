@@ -1,10 +1,14 @@
-**John Means tore his Achilles the same day he was set to sign with a team**\
+**TCU QB Josh Hoover to enter transfer portal: Could Indiana be interested?**\
+`Hoover's 3,949 passing yards in 2024 were a school record. He was believed to be making around $2 million in 2025, according to a source.`\
+https://nytimes.com/athletic/6901556/2025/12/18/josh-hoover-transfer-portal-quarterbacks/
+
+**John Means tears his Achilles the same day he was set to sign with a team**\
 `Means, who underwent Tommy John surgery in 2022 and 2024, hoped to be ready for next season's Opening Day.`\
 https://nytimes.com/athletic/6901510/2025/12/18/john-means-injury-mlb-free-agency/
 
 **Prosecutors Say Minnesota’s Fraud Scandal Goes Further Than Previously Known**\
 `Federal prosecutors said they were now investigating fraud worth billions of dollars in 14 social services programs in the state.`\
-https://nytimes.com/2025/12/18/us/prosecutors-say-minnesotas-fraud-scandal-goes-further-than-previously-known.html
+https://nytimes.com/2025/12/18/us/minnesota-fraud-scandal.html
 
 **Why isn't Zion Williamson starting? Pelicans' coach says it's 'to maximize his minutes'**\
 `Williamson, who is on a minutes restriction after returning from injury, won't start to help ensure he can play in longer stints later on.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/18/us/politics/trump-insults-second-term.html
 **Greg Biffle's NASCAR career in photos, from Truck breakthrough to Cup Series wins**\
 `Biffle burst onto the Truck Series scene in 1998 and won more than 50 top-level races over the next 20 years in a career for the ages.`\
 https://nytimes.com/athletic/6900144/2025/12/18/greg-biffle-nascar-career-photos/
-
-**For the First Time, a Former Refugee Will Lead the U.N.’s Refugee Agency**\
-`Barham Salih, who fought against Saddam Hussein’s rule in Iraq and later served as president, was chosen to lead the U.N. High Commission for Refugees.`\
-https://nytimes.com/2025/12/18/world/middleeast/un-refugee-agency-barham-salih-iraq.html
 

@@ -1,3 +1,7 @@
+**John Means tore his Achilles the same day he was set to sign with a team**\
+`Means, who underwent Tommy John surgery in 2022 and 2024, hoped to be ready for next season's Opening Day.`\
+https://nytimes.com/athletic/6901510/2025/12/18/john-means-injury-mlb-free-agency/
+
 **Prosecutors Say Minnesota’s Fraud Scandal Goes Further Than Previously Known**\
 `Federal prosecutors said they were now investigating fraud worth billions of dollars in 14 social services programs in the state.`\
 https://nytimes.com/2025/12/18/us/prosecutors-say-minnesotas-fraud-scandal-goes-further-than-previously-known.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6900144/2025/12/18/greg-biffle-nascar-career-photos
 **For the First Time, a Former Refugee Will Lead the U.N.’s Refugee Agency**\
 `Barham Salih, who fought against Saddam Hussein’s rule in Iraq and later served as president, was chosen to lead the U.N. High Commission for Refugees.`\
 https://nytimes.com/2025/12/18/world/middleeast/un-refugee-agency-barham-salih-iraq.html
-
-**Chiefs moving to Kansas? State 'aggressively pursuing' team**\
-`The Kansas City Chiefs appear to be moving closer to leaving Arrowhead Stadium and crossing state lines to Kansas.`\
-https://nytimes.com/athletic/6900960/2025/12/18/chiefs-moving-to-kansas-arrowhead-new-stadium/
 
