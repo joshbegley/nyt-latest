@@ -2,7 +2,7 @@
 `An unusual object orbiting a rapidly spinning star might be a new phenomenon in the universe.`\
 https://nytimes.com/2025/12/18/science/lemon-planet-pulsar-webb.html
 
-**Kenny Dillingham's Michigan situation puts Arizona State back in a familiar place**\
+**Dillingham's Michigan situation has Arizona State back in familiar spot**\
 `In three years, Dillingham has gone from unproven head coach to one of the nation’s more respected program builders. Others have noticed.`\
 https://nytimes.com/athletic/6901422/2025/12/18/kenny-dillinghams-michigan-arizona-state-coach-rumors/
 
