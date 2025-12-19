@@ -1,3 +1,15 @@
+**Suspect in Brown University Shooting Found Dead**\
+`Officials said the suspect in the Brown University shooting was found dead in a storage unit in New Hampshire. They believe the 48-year-old man also killed an M.I.T. professor.`\
+https://nytimes.com/video/us/100000010598227/brown-attack-manhunt-gunman-mit.html
+
+**The Ashes Briefing: Australia tighten their grip on the urn as Travis Head exploits England's blunt attack**\
+`A spirited first session from England gave way to familiar Australian dominance as the crowd in Adelaide rose to their local hero`\
+https://nytimes.com/athletic/6901091/2025/12/19/ashes-australia-head-england-stokes-briefing/
+
+**Jimmy Kimmel Wishes Trump Wouldn’t Yell at Us on Live TV**\
+`As the president addressed the nation about the economy, it was “hard to tell if he was giving a speech or having a seizure on TV,” Kimmel said.`\
+https://nytimes.com/2025/12/19/arts/television/jimmy-kimmel-trump-speech.html
+
 **Minnesota family's Shohei Ohtani card sells for record $3 million**\
 `A Minnesota family sold the new most expensive Ohtani card of all time. `\
 https://nytimes.com/athletic/6899367/2025/12/19/shohei-ohtani-record-card-sale-dodgers/
