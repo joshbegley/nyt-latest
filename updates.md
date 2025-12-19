@@ -1,3 +1,15 @@
+**Who says no to these 11 trades (featuring things that can't actually be traded)?**\
+`Terry Pegula for Francesco Aquilini? Crosby becomes an American for a Canadian Stanley Cup win? The trade block is open for business.`\
+https://nytimes.com/athletic/6898354/2025/12/19/nhl-unusual-trades-mcdavid-crosby-pegula/
+
+**Picking three potential Premier League underdog winners**\
+`Where could the upsets in the Premier League come from this weekend?`\
+https://nytimes.com/athletic/6902506/2025/12/19/premier-league-underdog-winners-newcastle-wolves-nottingham-forest/
+
+**College Football Playoff 2025 projections: Who's favored to advance in the bracket?**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/12/19/college-football-playoff-bracket-projections-odds/
+
 **Picking three potential Premier League underdog winners**\
 `Where could the upsets in the Premier League come from this weekend?`\
 https://nytimes.com/athletic/6902506/2025/12/19/picking-premier-league-underdog-winners-newcastle-bounce-back-and-wolves-win/

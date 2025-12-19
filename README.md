@@ -1,3 +1,19 @@
+**Everton's Dewsbury-Hall out of Arsenal game but Grealish available**\
+`A scan earlier this week revealed Dewsbury-Hall, 27, sustained a hamstring issue in last week's two-goal loss at Chelsea.`\
+https://nytimes.com/athletic/6903421/2025/12/19/dewsbury-hall-everton-injury-news/
+
+**NFL Draft prospects to watch in Miami-Texas A&M College Football Playoff game**\
+`Can Carson Beck solve Texas A&M's defense? Will Rueben Bain Jr. or KC Concepcion serve up a signature moment? `\
+https://nytimes.com/athletic/6894549/2025/12/19/nfl-draft-2026-miami-tamu-carson-beck-bain/
+
+**Portuguese Colleagues Laud Slain Professor, but Don’t Recall Suspect**\
+`Nuno Loureiro studied in Libson in the 1990s, where his former colleagues remembered him fondly. His alleged killer also studied there.`\
+https://nytimes.com/2025/12/19/us/mit-professor-shooting-suspect-portugal-lisbon-physics.html
+
+**Joan Didion and Kurt Vonnegut Had Something to Say. We Have It on Tape.**\
+`Rare recordings of E.E. Cummings, Mary Oliver and more offer a tour through literary history led by authors in their own words — and voices. Take a listen.`\
+https://nytimes.com/2025/12/19/books/james-baldwin-joan-didion-92ny-recordings.html
+
 **Who says no to these 11 trades (featuring things that can't actually be traded)?**\
 `Terry Pegula for Francesco Aquilini? Crosby becomes an American for a Canadian Stanley Cup win? The trade block is open for business.`\
 https://nytimes.com/athletic/6898354/2025/12/19/nhl-unusual-trades-mcdavid-crosby-pegula/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6903352/2025/12/19/tennis-match-fixing-ban-pang-ren
 **‘Oh, Mary!’ Came to London. It’s the Raciest Show in Town.**\
 `Some had wondered how the show about Abraham Lincoln’s wife would fare after its creator left the Broadway cast. But mirth is abundant as it opens on the West End.`\
 https://nytimes.com/2025/12/19/arts/oh-mary-trafalgar-theater-london.html
-
-**USMNT midfielder Adams could miss up to three months after MCL tear**\
-`Adams is now facing a race against time to be match fit for international friendlies against Belgium and Portugal on March 28 and April 1.`\
-https://nytimes.com/athletic/6893326/2025/12/19/tyler-adams-injury-usmnt-bournemouth/
-
-**Shutting down Jayden Daniels can't obscure the Commanders' other issues**\
-`Jayden Daniels’ health has taken center stage as a disappointing Commanders season winds down, but that can't explain what happened in 2025.`\
-https://nytimes.com/athletic/6901820/2025/12/19/jayden-daniels-shutdown-injuries-health/
-
-**Kennedy Center Board Votes to Add Trump to Its Name**\
-`President Trump’s handpicked board of trustees announced that the John F. Kennedy Center for the Performing Arts would be renamed the Trump-Kennedy Center, a change that may need Congress’s approval.`\
-https://nytimes.com/video/us/politics/100000010598633/trump-kennedy-center-name-change.html
-
-**The Chargers have found a winning formula. Will it be enough for a playoff run?**\
-`Through 12 weeks, the Chargers had the league's lowest rate of designed runs in the first 28 minutes of games. They've reversed that trend.`\
-https://nytimes.com/athletic/6901524/2025/12/19/chargers-offense-winning-formula-jim-harbaugh-greg-roman/
 

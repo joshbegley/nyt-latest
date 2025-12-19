@@ -1,10 +1,18 @@
+**Who says no to these 11 trades (featuring things that can't actually be traded)?**\
+`Terry Pegula for Francesco Aquilini? Crosby becomes an American for a Canadian Stanley Cup win? The trade block is open for business.`\
+https://nytimes.com/athletic/6898354/2025/12/19/nhl-unusual-trades-mcdavid-crosby-pegula/
+
 **Picking three potential Premier League underdog winners**\
 `Where could the upsets in the Premier League come from this weekend?`\
-https://nytimes.com/athletic/6902506/2025/12/19/picking-premier-league-underdog-winners-newcastle-bounce-back-and-wolves-win/
+https://nytimes.com/athletic/6902506/2025/12/19/premier-league-underdog-winners-newcastle-wolves-nottingham-forest/
 
 **Guardiola declines to confirm he will be at Man City next season**\
 `Guardiola claimed discussions about his future are “not on the table right now”. `\
 https://nytimes.com/athletic/6903371/2025/12/19/pep-guardiola-manchester-city-future-news/
+
+**College Football Playoff 2025 projections: Who's favored to advance in the bracket?**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/12/19/college-football-playoff-bracket-projections-odds/
 
 **Tennis player banned for 12 years after 22 match-fixing offenses in five months**\
 `Pang Renlong had been provisionally suspended along with two other players late last year.`\
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/politics/100000010598633/trump-kennedy-center-name-
 **The Chargers have found a winning formula. Will it be enough for a playoff run?**\
 `Through 12 weeks, the Chargers had the league's lowest rate of designed runs in the first 28 minutes of games. They've reversed that trend.`\
 https://nytimes.com/athletic/6901524/2025/12/19/chargers-offense-winning-formula-jim-harbaugh-greg-roman/
-
-**Will college football have a new champion? Here's each CFP team's national title history**\
-`Three of the top five seeds in the College Football Playoff have never won a national title, including No. 1 Indiana.`\
-https://nytimes.com/athletic/6899991/2025/12/19/college-football-playoff-national-championships-history-teams/
-
-**Lowetide: 4 more tweaks the Oilers need to make this season**\
-`There's more work for the Oilers to do before the trade deadline, and it must be done on a limited budget.`\
-https://nytimes.com/athletic/6899700/2025/12/19/edmonton-oilers-tristan-jarry-roster-depth-chart/
 
