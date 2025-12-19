@@ -1,3 +1,15 @@
+**How The Times is covering the latest release of Epstein files.**\
+`By The New York Times`\
+https://nytimes.com/live/2025/12/19/us/epstein-files-release/how-the-times-is-covering-the-latest-release-of-epstein-files
+
+**Hochul Expected to Veto Bill Requiring 2-Person Crews on Subway Trains**\
+`The bill, which would ensure that every train has a conductor and a driver, as most now do, was supported by the transit workers’ union and opposed by many transit advocates.`\
+https://nytimes.com/2025/12/19/nyregion/hochul-mta-conductors-twu.html
+
+**Phillies lean right with new-look bullpen, still waiting on J.T. Realmuto**\
+`After a busy week, the Phillies have a deeper stable of righty relievers. But they're locked in a standoff with Realmuto, sources said.`\
+https://nytimes.com/athletic/6904911/2025/12/19/phillies-bullpen-jt-realmuto-free-agency/
+
 **R.F.K. Jr. Likely to Swap U.S. Childhood Vaccine Schedule for Denmark’s**\
 `The shift would mean fewer shots recommended for children. But a Danish health official found the idea baffling, saying the United States was getting “crazier and crazier in public health.”`\
 https://nytimes.com/2025/12/19/health/kennedy-childhood-vaccine-schedule-denmark.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/12/19/climate/dakota-access-pipeline-greenpeace-energy-
 **Seahawks' Derick Hall suspended one game for unsportsmanlike act vs. Rams**\
 `The NFL suspended Hall for unnecessarily stepping on the leg of Rams guard Kevin Dotson at the end of a play. `\
 https://nytimes.com/athletic/6904880/2025/12/19/derick-hall-suspended-seahawks-rams-nfl-tnf/
-
-**Federal Judge Overturns Conviction in Killing of D.J. Jam Master Jay**\
-`Karl Jordan Jr., godson of the musician, was convicted last year of murder in the service of a drug deal. The judge found that the government had not proved the motive.`\
-https://nytimes.com/2025/12/19/nyregion/jam-master-jay-conviction-overturned.html
-
-**How to watch Thunder vs. Timberwolves: Time, TV, streaming**\
-`Find out how to watch the Oklahoma City Thunder play the Minnesota Timberwolves, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6904999/2025/12/19/thunder-vs-timberwolves-stream-how-to-watch-dec-19/
-
-**University of Virginia’s Board Names a New President**\
-`The selection of Scott Beardsley by the G.O.P.-appointed board comes after the previous president resigned under pressure from the Trump administration. A new Democratic-appointed board could try to overturn the choice.`\
-https://nytimes.com/2025/12/19/us/uva-president-scott-beardsley.html
 

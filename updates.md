@@ -1,3 +1,15 @@
+**How The Times is covering the latest release of Epstein files.**\
+`By The New York Times`\
+https://nytimes.com/live/2025/12/19/us/epstein-files-release/how-the-times-is-covering-the-latest-release-of-epstein-files
+
+**Hochul Expected to Veto Bill Requiring 2-Person Crews on Subway Trains**\
+`The bill, which would ensure that every train has a conductor and a driver, as most now do, was supported by the transit workers’ union and opposed by many transit advocates.`\
+https://nytimes.com/2025/12/19/nyregion/hochul-mta-conductors-twu.html
+
+**Phillies lean right with new-look bullpen, still waiting on J.T. Realmuto**\
+`After a busy week, the Phillies have a deeper stable of righty relievers. But they're locked in a standoff with Realmuto, sources said.`\
+https://nytimes.com/athletic/6904911/2025/12/19/phillies-bullpen-jt-realmuto-free-agency/
+
 **R.F.K. Jr. Likely to Swap U.S. Childhood Vaccine Schedule for Denmark’s**\
 `The shift would mean fewer shots recommended for children. But a Danish health official found the idea baffling, saying the United States was getting “crazier and crazier in public health.”`\
 https://nytimes.com/2025/12/19/health/kennedy-childhood-vaccine-schedule-denmark.html

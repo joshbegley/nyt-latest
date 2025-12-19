@@ -1,3 +1,11 @@
+**How to See the Epstein Files Released on Friday**\
+`The searchable database published by the Justice Department is broken into multiple categories.`\
+https://nytimes.com/2025/12/19/us/how-to-read-epstein-files.html
+
+**Toss a Coin in the Trevi Fountain? That’ll Be 2 Euros, Wish Not Included**\
+`Starting on Feb. 1, Rome will charge tourists a fee to go down into the basin of the famed 18th-century fountain. Not every one is happy (except Romans, who won’t have to pay).`\
+https://nytimes.com/2025/12/19/world/europe/trevi-fountain-2-euro-fee.html
+
 **How The Times is covering the latest release of Epstein files.**\
 `By The New York Times`\
 https://nytimes.com/live/2025/12/19/us/epstein-files-release/how-the-times-is-covering-the-latest-release-of-epstein-files
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/19/books/heated-rivalry-rachel-reid-hockey-romance.h
 **'Ask those guys, not me': Has Craig Berube lost the Leafs?**\
 `The Leafs’ brass should be asking tough questions to determine whether this season is still salvageable with Craig Berube at the controls.`\
 https://nytimes.com/athletic/6904822/2025/12/19/craig-berube-lost-maple-leafs/
-
-**Controversial Dakota Pipeline Gets a Big, Belated Government Boost**\
-`A delayed environmental review cleared the Dakota Access Pipeline to continue operating. Separately, a North Dakota judge expressed unusual exasperation over the tangled legal battles.`\
-https://nytimes.com/2025/12/19/climate/dakota-access-pipeline-greenpeace-energy-transfer-army-corps.html
-
-**Seahawks' Derick Hall suspended one game for unsportsmanlike act vs. Rams**\
-`The NFL suspended Hall for unnecessarily stepping on the leg of Rams guard Kevin Dotson at the end of a play. `\
-https://nytimes.com/athletic/6904880/2025/12/19/derick-hall-suspended-seahawks-rams-nfl-tnf/
 
