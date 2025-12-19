@@ -1,3 +1,11 @@
+**Erika Kirk Endorses JD Vance for 2028**\
+`The early backing of Ms. Kirk, the widow of Charlie Kirk, is notable because she now leads the influential conservative group he founded, Turning Point USA.`\
+https://nytimes.com/2025/12/19/us/politics/erika-kirk-jd-vance-2028-election-endorsement.html
+
+**Netflix's 'King of Collectibles' Ken Goldin on season 3 and the items he won't sell**\
+`The show has helped a once insular hobby reach new audiences, and Goldin is ready to take credit. `\
+https://nytimes.com/athletic/6901896/2025/12/19/goldin-king-of-collectibles-netflix-sports-memorabilia/
+
 **Amorim addresses 'Free Kobbie Mainoo' t-shirt, ‘entitled’ Obi and Amass**\
 `"He’s not going to start because of the t-shirt and he’s not going to the bench because of the t-shirt," Amorim said on Mainoo.`\
 https://nytimes.com/athletic/6903434/2025/12/19/manchester-united-amorim-mainoo-obi-amass/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6903421/2025/12/19/dewsbury-hall-everton-injury-new
 **NFL Draft prospects to watch in Miami-Texas A&M College Football Playoff game**\
 `Can Carson Beck solve Texas A&M's defense? Will Rueben Bain Jr. or KC Concepcion serve up a signature moment? `\
 https://nytimes.com/athletic/6894549/2025/12/19/nfl-draft-2026-miami-tamu-carson-beck-bain/
-
-**Portuguese Colleagues Laud Slain Professor, but Don’t Recall Suspect**\
-`Nuno Loureiro studied in Lisbon in the 1990s, where his former colleagues remembered him fondly. His alleged killer also studied there.`\
-https://nytimes.com/2025/12/19/us/mit-professor-shooting-suspect-portugal-lisbon-physics.html
-
-**Joan Didion and Kurt Vonnegut Had Something to Say. We Have It on Tape.**\
-`Rare recordings of E.E. Cummings, Mary Oliver and more offer a tour through literary history led by authors in their own words — and voices. Take a listen.`\
-https://nytimes.com/2025/12/19/books/james-baldwin-joan-didion-92ny-recordings.html
 
