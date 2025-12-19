@@ -1,3 +1,5 @@
+
+
 **TCU QB Josh Hoover to enter transfer portal: Could Indiana be interested?**\
 `Hoover's 3,949 passing yards in 2024 were a school record. He was believed to be making around $2 million in 2025, according to a source.`\
 https://nytimes.com/athletic/6901556/2025/12/18/josh-hoover-transfer-portal-quarterbacks/
