@@ -1,3 +1,15 @@
+**TCU QB Josh Hoover to enter transfer portal: Could Indiana be interested?**\
+`Hoover's 3,949 passing yards in 2024 were a school record. He was believed to be making around $2 million in 2025, according to a source.`\
+https://nytimes.com/athletic/6901556/2025/12/18/josh-hoover-transfer-portal-quarterbacks/
+
+**John Means tears his Achilles the same day he was set to sign with a team**\
+`Means, who underwent Tommy John surgery in 2022 and 2024, hoped to be ready for next season's Opening Day.`\
+https://nytimes.com/athletic/6901510/2025/12/18/john-means-injury-mlb-free-agency/
+
+**Prosecutors Say Minnesota’s Fraud Scandal Goes Further Than Previously Known**\
+`Federal prosecutors said they were now investigating fraud worth billions of dollars in 14 social services programs in the state.`\
+https://nytimes.com/2025/12/18/us/minnesota-fraud-scandal.html
+
 **John Means tore his Achilles the same day he was set to sign with a team**\
 `Means, who underwent Tommy John surgery in 2022 and 2024, hoped to be ready for next season's Opening Day.`\
 https://nytimes.com/athletic/6901510/2025/12/18/john-means-injury-mlb-free-agency/
