@@ -1,3 +1,7 @@
+**Shutting down Jayden Daniels can't obscure the Commanders' other issues**\
+`Jayden Daniels’ health has taken center stage as a disappointing Commanders season winds down, but that can't explain what happened in 2025.`\
+https://nytimes.com/athletic/6901820/2025/12/19/jayden-daniels-shutdown-injuries-health/
+
 **Kennedy Center Board Votes to Add Trump to Its Name**\
 `President Trump’s handpicked board of trustees announced that the John F. Kennedy Center for the Performing Arts would be renamed the Trump-Kennedy Center, a change that may need Congress’s approval.`\
 https://nytimes.com/video/us/politics/100000010598633/trump-kennedy-center-name-change.html
