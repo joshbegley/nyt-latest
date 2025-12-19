@@ -1,3 +1,7 @@
+**Chelsea are calm about Maresca's situation - they must move on from the drama**\
+`Enzo Maresca is high on City's list of possible candidates if Pep Guardiola leaves at the end of the season`\
+https://nytimes.com/athletic/6901681/2025/12/19/enzo-maresca-chelsea-man-city-interest/
+
 **Suspect in Brown University Shooting Found Dead**\
 `Officials said the suspect in the Brown University shooting was found dead in a storage unit in New Hampshire. They believe the 48-year-old man also killed an M.I.T. professor.`\
 https://nytimes.com/video/us/100000010598227/brown-attack-manhunt-gunman-mit.html
