@@ -1,3 +1,7 @@
+**A Memorial to Kennedy? It’s Trump’s Now, Too.**\
+`The Kennedy Center installed President Trump’s name on the facade of the arts center, which had been designated as a living memorial to President John F. Kennedy.`\
+https://nytimes.com/2025/12/19/us/politics/kennedy-center-trump-sign.html
+
 **Brad Keselowski undergoes surgery, expects to be ready for Daytona 500**\
 `Keselowski was injured Thursday in a skiing accident, then completed surgery the same day.`\
 https://nytimes.com/athletic/6905161/2025/12/19/brad-keselowski-broken-leg-injury-nascar/
@@ -33,8 +37,4 @@ https://nytimes.com/video/smarter-living/wirecutter/100000010600407/you-dont-nee
 **What is the origin of the Epstein case?**\
 `By Devlin Barrett`\
 https://nytimes.com/live/2025/12/19/us/epstein-files-release/what-is-the-origin-of-the-epstein-case
-
-**Mamdani Revamps Hiring After Old Antisemitic Remarks Prompt Aide to Quit**\
-`Mayor-elect Zohran Mamdani said he did not know about the antisemitic posts and would not have hired the woman who made them if he had.`\
-https://nytimes.com/2025/12/19/nyregion/mamdani-vetting-overhaul-da-costa-antisemitic.html
 
