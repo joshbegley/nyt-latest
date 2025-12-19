@@ -1,3 +1,7 @@
+**Arizona State's Jordyn Tyson, USC's Makai Lemon declare for 2026 NFL Draft**\
+`Tyson was known for making big catches at Arizona State, while Lemon ranked third nationally in receiving yards at USC. `\
+https://nytimes.com/athletic/6905202/2025/12/19/jordan-tyson-arizona-state-nfl-draft-makai-lemon/
+
 **Introducing Your Next Newsletter Writer (for Now), and Looking Back at 2025**\
 `There will be much to dive into when On Politics returns in January, and a familiar voice will be taking the helm — at least for a little while.`\
 https://nytimes.com/2025/12/19/us/politics/trump-midterms-elections.html
@@ -18,7 +22,7 @@ https://nytimes.com/athletic/6905161/2025/12/19/brad-keselowski-broken-leg-injur
 `Part of the first generation of women ordained in America, she presided over the first bar mitzvah in Krakow, still scarred by the Holocaust, in decades. It did not go smoothly.`\
 https://nytimes.com/2025/12/19/nyregion/emily-faust-korzenik-dead.html
 
-**ICE Detainee Being Held at a Troubled Jailhouse in Newark Dies**\
+**ICE Detainee Dies After Being Held at a Troubled Jailhouse in Newark**\
 `Jean Wilson Brutus, 41, was one of four migrants to die in the past week after medical emergencies in detention centers in New Jersey, Michigan, Mississippi and Pennsylvania.`\
 https://nytimes.com/2025/12/19/nyregion/ice-detainee-death-newark.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6905154/2025/12/19/nba-illegal-sports-betting-gambl
 **Pirates land power bat, Astros nab an intriguing arm, Rays add upside in 3-team deal**\
 `There is logic in this deal for all three teams. Plus: Analysis on the Phillies/Royals swap involving Matt Strahm.`\
 https://nytimes.com/athletic/6905102/2025/12/19/pirates-astros-rays-brandon-lowe-mike-burrows-anderson-brito/
-
-**For Trump, Epstein is the story that won’t go away.**\
-`By Luke Broadwater`\
-https://nytimes.com/live/2025/12/19/us/epstein-files-release/for-trump-epstein-is-the-story-that-wont-go-away
 
