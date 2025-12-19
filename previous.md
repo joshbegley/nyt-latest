@@ -1,3 +1,7 @@
+**Shouting, Ranting, Insulting: Trump’s Uninhibited Second Term**\
+`Many of President Trump’s supporters love his professional-wrestling style of leadership. But some of his recent attacks have sickened even some of his own political allies.`\
+https://nytimes.com/2025/12/18/us/politics/trump-insults-second-term.html
+
 **Greg Biffle's NASCAR career in photos, from Trucks to Cup Series wins**\
 `Biffle burst onto the Truck Series scene in 1998 and won more than 50 top-level races over the next 20 years in a career for the ages.`\
 https://nytimes.com/athletic/6900144/2025/12/18/greg-biffle-nascar-career-photos/
@@ -23,7 +27,7 @@ https://nytimes.com/athletic/6901081/2025/12/18/rams-seahawks-preview-nfc-nfl-sc
 https://nytimes.com/video/dining/100000010368623/vegan-cacio-e-pepe.html
 
 **TikTok Signs Agreements With Investors in Step Toward Avoiding a U.S. Ban**\
-`The Chinese-owned video app reached agreements with the software giant Oracle and two investment firms, Silver Lake and MGX, as part of a deal to keep TikTok operating in the United States.`\
+`The Chinese-owned video app formalized commitments from the software giant Oracle and two investment firms as part of a deal to keep TikTok operating in the United States.`\
 https://nytimes.com/2025/12/18/business/media/tiktok-deal-agreements-us-investors.html
 
 **The U.S. Moves to End Gender-Related Care for Minors**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/18/briefing/trump-gender-related-treatments-brown-sh
 **Ferrari is almost out of time — 2026 is 'now or never' for Hamilton and Leclerc**\
 `Ferrari team boss Fred Vasseur has fronted up to what went wrong for the Italian in F1 2025. But it cannot afford to repeat this in 2026`\
 https://nytimes.com/athletic/6898276/2025/12/18/ferrari-lewis-hamilton-charles-leclerc-2026-f1/
-
-**Giannis addresses reported trade rumors, calf injury: 'I'm still locked in'**\
-`Giannis spoke Thursday on the rumors surrounding the future with the Milwaukee Bucks, as well as the injury to his right calf.`\
-https://nytimes.com/athletic/6899472/2025/12/18/giannis-antetokounmpo-bucks-nba-trade-rumors-comments/
 

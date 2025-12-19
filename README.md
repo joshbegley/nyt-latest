@@ -1,8 +1,12 @@
+**Democratic State Lawmakers Vow to Unite and Push Back on Trump’s Deportations**\
+`Lawmakers from a half-dozen states said Thursday they will use legislation next year to thwart the tactics of federal law enforcement carrying out immigration policies.`\
+https://nytimes.com/2025/12/18/us/politics/democrats-trump-deportations.html
+
 **Shouting, Ranting, Insulting: Trump’s Uninhibited Second Term**\
 `Many of President Trump’s supporters love his professional-wrestling style of leadership. But some of his recent attacks have sickened even some of his own political allies.`\
 https://nytimes.com/2025/12/18/us/politics/trump-insults-second-term.html
 
-**Greg Biffle's NASCAR career in photos, from Trucks to Cup Series wins**\
+**Greg Biffle's NASCAR career in photos, from Truck breakthrough to Cup Series wins**\
 `Biffle burst onto the Truck Series scene in 1998 and won more than 50 top-level races over the next 20 years in a career for the ages.`\
 https://nytimes.com/athletic/6900144/2025/12/18/greg-biffle-nascar-career-photos/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/18/business/media/tiktok-deal-agreements-us-investor
 **The U.S. Moves to End Gender-Related Care for Minors**\
 `Also, authorities search for a person of interest in the Brown shooting. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2025/12/18/briefing/trump-gender-related-treatments-brown-shooting-investigation.html
-
-**Ferrari is almost out of time — 2026 is 'now or never' for Hamilton and Leclerc**\
-`Ferrari team boss Fred Vasseur has fronted up to what went wrong for the Italian in F1 2025. But it cannot afford to repeat this in 2026`\
-https://nytimes.com/athletic/6898276/2025/12/18/ferrari-lewis-hamilton-charles-leclerc-2026-f1/
 

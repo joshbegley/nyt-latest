@@ -1,3 +1,11 @@
+**Shouting, Ranting, Insulting: Trump’s Uninhibited Second Term**\
+`Many of President Trump’s supporters love his professional-wrestling style of leadership. But some of his recent attacks have sickened even some of his own political allies.`\
+https://nytimes.com/2025/12/18/us/politics/trump-insults-second-term.html
+
+**TikTok Signs Agreements With Investors in Step Toward Avoiding a U.S. Ban**\
+`The Chinese-owned video app formalized commitments from the software giant Oracle and two investment firms as part of a deal to keep TikTok operating in the United States.`\
+https://nytimes.com/2025/12/18/business/media/tiktok-deal-agreements-us-investors.html
+
 **Greg Biffle's NASCAR career in photos, from Trucks to Cup Series wins**\
 `Biffle burst onto the Truck Series scene in 1998 and won more than 50 top-level races over the next 20 years in a career for the ages.`\
 https://nytimes.com/athletic/6900144/2025/12/18/greg-biffle-nascar-career-photos/
