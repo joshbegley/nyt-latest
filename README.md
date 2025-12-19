@@ -1,3 +1,7 @@
+**Watch: Trevor Lawrence looks like the star he was promised to be**\
+`After a shaky start to the year, Lawrence and the Jaguars offense have hit their stride over the back half of the season.`\
+https://nytimes.com/athletic/6904862/2025/12/19/video-trevor-lawrence-star-movement-qb/
+
 **Immigration Officials Deport Queens 6-Year-Old and Father Who Fled China**\
 `Hundreds of people had rallied for the family in New York City after they were separated by Immigration and Customs Enforcement agents in November.`\
 https://nytimes.com/2025/12/19/nyregion/child-father-deported-china-nyc.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/19/us/suspect-brown-mit-autopsy.html
 **Bill Clinton Features Prominently in Epstein Files Release**\
 `The focus on a former president comes at a moment when Republicans have fought to shift public attention away from Mr. Epstein’s friendship with President Trump.`\
 https://nytimes.com/2025/12/19/us/bill-clinton-epstein-photos.html
-
-**Arizona State's Jordyn Tyson, USC's Makai Lemon declare for 2026 NFL Draft**\
-`Tyson was known for making big catches at Arizona State, while Lemon ranked third nationally in receiving yards at USC. `\
-https://nytimes.com/athletic/6905202/2025/12/19/jordan-tyson-arizona-state-nfl-draft-makai-lemon/
 
