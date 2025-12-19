@@ -1,3 +1,7 @@
+**Michael King, Padres agree to 3-year, $75 million deal: Sources**\
+`The 30-year-old hit free agency as one of the more intriguing starters available.`\
+https://nytimes.com/athletic/6801855/2025/12/18/mlb-michael-king-free-agency-signing-padres/
+
 **Before the Massacre, Bondi Suspects Spent Weeks at a Philippine Hotel**\
 `Workers at the budget hotel in the southern Philippines, a region that has long battled Islamist insurgencies, said the two men rarely left their room.`\
 https://nytimes.com/2025/12/18/world/asia/bondi-philippines-hotel.html

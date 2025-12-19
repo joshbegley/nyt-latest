@@ -3,7 +3,7 @@
 https://nytimes.com/2025/12/18/world/asia/bondi-philippines-hotel.html
 
 **Seahawks convert wild 2-point conversion after apparent incomplete pass**\
-`The Seahawks scored 16 points in a span of 3:13 to tie the score on the most improbable of all two-point conversions.`\
+`The Seahawks scored 16 points in a span of 3:13 and tied the score on the most improbable of all two-point conversions.`\
 https://nytimes.com/athletic/6901991/2025/12/18/seahawks-2-point-conversion-rams-thursday-night-football/
 
 **'Enough is enough': Werenski vents after Blue Jackets' latest frustrating loss**\
