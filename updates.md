@@ -1,3 +1,11 @@
+**He Said He Was Not Close With Epstein. His Emails Suggest Otherwise.**\
+`Andrew Farkas, a New York City real estate mogul, had assured investors that his relationship with Jeffrey Epstein was for business only.`\
+https://nytimes.com/2025/12/19/nyregion/epstein-farkas-relationship-marina.html
+
+**Dancing Babies and Toddlers Are Teaching the Pros a Thing or Two**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/baby-toddler-raves-professional-dancers
+
 **The Lakers need to trade for defensive help. But can they find it?**\
 `The Lakers have a high-powered offense but could use wing defenders. They're not alone, which could complicate things.`\
 https://nytimes.com/athletic/6902319/2025/12/19/lakers-trade-rumors-deadline-needs/
