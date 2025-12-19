@@ -1,3 +1,15 @@
+**Amorim addresses 'Free Kobbie Mainoo' t-shirt, ‘entitled’ Obi and Amass**\
+`"He’s not going to start because of the t-shirt and he’s not going to the bench because of the t-shirt," Amorim said on Mainoo.`\
+https://nytimes.com/athletic/6903434/2025/12/19/manchester-united-amorim-mainoo-obi-amass/
+
+**Europe Funnels Billions to Ukraine but Wobbles Geopolitically**\
+`The European Union came up with an 11th-hour compromise to help Ukraine, but the solution raised questions about the bloc’s decisiveness.`\
+https://nytimes.com/2025/12/19/world/europe/eu-ukraine-russia-frozen-assets.html
+
+**Portuguese Colleagues Laud Slain Professor, but Don’t Recall Suspect**\
+`Nuno Loureiro studied in Lisbon in the 1990s, where his former colleagues remembered him fondly. His alleged killer also studied there.`\
+https://nytimes.com/2025/12/19/us/mit-professor-shooting-suspect-portugal-lisbon-physics.html
+
 **Europe Agrees on Loan to Ukraine Without Using Russian Funds**\
 `European leaders agreed on Friday to provide Ukraine with a $105 billion loan but failed to reach a consensus on using Russian government assets frozen in Europe to back it.`\
 https://nytimes.com/video/world/europe/100000010598577/europe-loan-ukraine-russia.html
