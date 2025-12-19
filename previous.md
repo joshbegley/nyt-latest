@@ -1,4 +1,16 @@
-**Matthew Stafford continues MVP push, but Rams collapse in loss to Seahawks**\
+**The New York Times in Print for Friday, Dec. 19, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/12/19/todays-new-york-times
+
+**How Did a City of 10 Million People Nearly Run Out of Water?**\
+`Restricting Tehran’s growth and water use — however politically difficult — would be more prudent than trying to engineer ever more elaborate workarounds.`\
+https://nytimes.com/2025/12/19/opinion/tehran-iran-water-drought-crisis.html
+
+**Australia Announces Plan to Buy Back Guns in Wake of Hanukkah Attack**\
+`The program is expected to take hundreds of thousands of firearms out of circulation, the prime minister said on Friday.`\
+https://nytimes.com/2025/12/19/world/asia/australia-gun-buyback-bondi-shooting.html
+
+**Takeaways: Matthew Stafford continues MVP push, but Rams collapse in loss to Seahawks**\
 `Everything was going right for Los Angeles during its "Thursday Night Football" matchup against Seattle — until the fourth quarter.`\
 https://nytimes.com/athletic/6901928/2025/12/19/rams-seahawks-score-result-takeaways-thursday-night-football/
 
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6899323/2025/12/19/mainoo-manchester-united-amorim/
 **When should you use your remaining first set of FPL chips? **\
 `From standout captaincy fixtures to strong home match-ups, managers can deploy their remaining chips with confidence rather than desperation`\
 https://nytimes.com/athletic/6894821/2025/12/19/fantasy-premier-league-gameweek-17-fpl-tips-chips/
-
-**West Ham, relegation and the London Stadium intimidation factor: 'It's not hostile enough'**\
-`West Ham have poor home form and there is a question over whether the London Stadium is unwelcoming enough`\
-https://nytimes.com/athletic/6898949/2025/12/19/west-ham-london-stadium-relegation/
-
-**Joel Drakes-Thomas: The talented Crystal Palace academy prospect who is justifying the hype**\
-`The 16-year-old excelled against the Finnish side KuPS with Oliver Glasner praising his confidence and willingness to work back defensively`\
-https://nytimes.com/athletic/6893517/2025/12/19/joel-drakes-thomas-crystal-palace-kups/
-
-**Trump Administration to Appeal Harvard Funding Case**\
-`Facing a deadline to appeal, the Justice Department told the courts late Thursday that it would try to overturn a judge’s ruling in favor of Harvard.`\
-https://nytimes.com/2025/12/19/us/trump-administration-appeal-harvard-funding-case.html
 

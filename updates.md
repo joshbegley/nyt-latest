@@ -1,3 +1,19 @@
+**The New York Times in Print for Friday, Dec. 19, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/12/19/todays-new-york-times
+
+**How Did a City of 10 Million People Nearly Run Out of Water?**\
+`Restricting Tehran’s growth and water use — however politically difficult — would be more prudent than trying to engineer ever more elaborate workarounds.`\
+https://nytimes.com/2025/12/19/opinion/tehran-iran-water-drought-crisis.html
+
+**Australia Announces Plan to Buy Back Guns in Wake of Hanukkah Attack**\
+`The program is expected to take hundreds of thousands of firearms out of circulation, the prime minister said on Friday.`\
+https://nytimes.com/2025/12/19/world/asia/australia-gun-buyback-bondi-shooting.html
+
+**Takeaways: Matthew Stafford continues MVP push, but Rams collapse in loss to Seahawks**\
+`Everything was going right for Los Angeles during its "Thursday Night Football" matchup against Seattle — until the fourth quarter.`\
+https://nytimes.com/athletic/6901928/2025/12/19/rams-seahawks-score-result-takeaways-thursday-night-football/
+
 **Matthew Stafford continues MVP push, but Rams collapse in loss to Seahawks**\
 `Everything was going right for Los Angeles during its "Thursday Night Football" matchup against Seattle — until the fourth quarter.`\
 https://nytimes.com/athletic/6901928/2025/12/19/rams-seahawks-score-result-takeaways-thursday-night-football/
