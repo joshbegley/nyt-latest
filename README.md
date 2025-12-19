@@ -1,3 +1,11 @@
+**Suspect in Brown and M.I.T. Killings Died 2 Days Before He Was Found, Autopsy Shows**\
+`The examination confirmed that the suspect had died from a self-inflicted gunshot wound. His body was found late Thursday in a storage unit in New Hampshire.`\
+https://nytimes.com/2025/12/19/us/suspect-brown-mit-autopsy.html
+
+**Bill Clinton Features Prominently in Epstein Files Release**\
+`The focus on a former president comes at a moment when Republicans have fought to shift public attention away from Mr. Epstein’s friendship with President Trump.`\
+https://nytimes.com/2025/12/19/us/bill-clinton-epstein-photos.html
+
 **Arizona State's Jordyn Tyson, USC's Makai Lemon declare for 2026 NFL Draft**\
 `Tyson was known for making big catches at Arizona State, while Lemon ranked third nationally in receiving yards at USC. `\
 https://nytimes.com/athletic/6905202/2025/12/19/jordan-tyson-arizona-state-nfl-draft-makai-lemon/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/19/nyregion/ice-detainee-death-newark.html
 **Bachata Is Still Underrated**\
 `Romeo Santos and Prince Royce, the leading stars of Dominican bachata music, explain why the genre deserves respect and to be platformed.`\
 https://nytimes.com/video/podcasts/100000010599689/bachata-is-still-underrated.html
-
-**NBA outlines new injury reporting rules in effort to curb illegal sports betting**\
-`The league said the changes are meant to prevent injury information from being leaked and used by sports bettors.`\
-https://nytimes.com/athletic/6905154/2025/12/19/nba-illegal-sports-betting-gambling-injury-reporting-memo/
-
-**Pirates land power bat, Astros nab an intriguing arm, Rays add upside in 3-team deal**\
-`There is logic in this deal for all three teams. Plus: Analysis on the Phillies/Royals swap involving Matt Strahm.`\
-https://nytimes.com/athletic/6905102/2025/12/19/pirates-astros-rays-brandon-lowe-mike-burrows-anderson-brito/
 

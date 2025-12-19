@@ -1,3 +1,15 @@
+**Arizona State's Jordyn Tyson, USC's Makai Lemon declare for 2026 NFL Draft**\
+`Tyson was known for making big catches at Arizona State, while Lemon ranked third nationally in receiving yards at USC. `\
+https://nytimes.com/athletic/6905202/2025/12/19/jordan-tyson-arizona-state-nfl-draft-makai-lemon/
+
+**Introducing Your Next Newsletter Writer (for Now), and Looking Back at 2025**\
+`There will be much to dive into when On Politics returns in January, and a familiar voice will be taking the helm — at least for a little while.`\
+https://nytimes.com/2025/12/19/us/politics/trump-midterms-elections.html
+
+**ICE Detainee Dies After Being Held at a Troubled Jailhouse in Newark**\
+`Jean Wilson Brutus, 41, was one of four migrants to die in the past week after medical emergencies in detention centers in New Jersey, Michigan, Mississippi and Pennsylvania.`\
+https://nytimes.com/2025/12/19/nyregion/ice-detainee-death-newark.html
+
 **Allan Ludwig, ‘Founding Father’ of Gravestone Studies, Dies at 92**\
 `His Pulitzer-nominated book “Graven Images” inspired a reassessment of Puritan art, challenging the belief that imagery carved on headstones was meaningless.`\
 https://nytimes.com/2025/12/19/arts/allan-ludwig-dead.html
