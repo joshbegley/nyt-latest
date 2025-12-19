@@ -1,3 +1,7 @@
+**Chelsea are calm about Maresca's situation - they must move on from the drama**\
+`Enzo Maresca is high on City's list of possible candidates if Pep Guardiola leaves at the end of the season`\
+https://nytimes.com/athletic/6901681/2025/12/19/enzo-maresca-chelsea-man-city-interest/
+
 **Suspect in Brown University Shooting Found Dead**\
 `Officials said the suspect in the Brown University shooting was found dead in a storage unit in New Hampshire. They believe the 48-year-old man also killed an M.I.T. professor.`\
 https://nytimes.com/video/us/100000010598227/brown-attack-manhunt-gunman-mit.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6902195/2025/12/19/blazers-kings-deni-avdija-foul-d
 **What We Know About the Suspect in the Brown and M.I.T. Killings**\
 `Officials identified a man from Portugal as the suspect in the deadly shooting at Brown University and the killing of an M.I.T. professor. The police said on Thursday he died from a self-inflicted gunshot.`\
 https://nytimes.com/2025/12/19/us/neves-valente-supect-what-we-know.html
-
-**NFLPA lawyer sues union leaders, alleging retaliation for helping FBI**\
-`A federal lawsuit alleges that NFLPA executives conspired to prevent an attorney for the union from serving as a witness for the FBI.`\
-https://nytimes.com/athletic/6901927/2025/12/19/nflpa-heather-mcphee-lawsuit-retaliation-fbi-investigation/
 
