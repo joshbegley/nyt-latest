@@ -1,3 +1,7 @@
+**New Judges Take Charge of Sept. 11 Case at Guantánamo**\
+`The long-running case had been on hold for nearly a year because of higher court appeals and the retirement of the military judge.`\
+https://nytimes.com/2025/12/18/us/politics/judges-sept-11-guantanamo.html
+
 **Jakobi Meyers, Jaguars agree to 3-year, $60 million contract extension: Sources**\
 `The wide receiver, whom Jacksonville acquired from the Raiders in November, will have $40 million guaranteed in his new deal.`\
 https://nytimes.com/athletic/6901344/2025/12/18/jaguars-jakobi-meyers-contract-extension/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/18/us/trump-venezuela-false-claims-misinformation.ht
 **Scoop City: Previewing Rams at Seahawks**\
 `Previewing Rams-Seahawks, a game big enough to fill a newsletter, which also helps distract Bengals fans like myself`\
 https://nytimes.com/athletic/6901081/2025/12/18/rams-seahawks-preview-nfc-nfl-scoop-city/
-
-**Vegan Cacio e Pepe**\
-`This speedy vegan take on cacio e pepe utilizes a classic technique: Cook the pasta just short of al dente, reserve some of the starchy pasta water to add body to the sauce, then simmer the pasta in its sauce with a splash of pasta water, stirring vigorously until the sauce is emulsified.`\
-https://nytimes.com/video/dining/100000010368623/vegan-cacio-e-pepe.html
 
