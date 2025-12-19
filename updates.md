@@ -1,3 +1,7 @@
+**A Reddit Post Led to a Breakthrough in the Brown Shooting Investigation**\
+`A Reddit user provided information that helped identify Claudio Manuel Neves Valente as not only the suspect in the campus shooting, but also the murder of an M.I.T. professor.`\
+https://nytimes.com/2025/12/19/us/brown-mit-shooting-investigation-reddit.html
+
 **Blazers survive multiple late-game collapses after controversial last-second foul call**\
 `A last-second foul call saved Portland from one of the most shocking collapses in recent NBA history. `\
 https://nytimes.com/athletic/6902195/2025/12/19/blazers-kings-deni-avdija-foul-demar-derozan/
