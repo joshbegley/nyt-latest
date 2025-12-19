@@ -1,3 +1,15 @@
+**Inside Meret Oppenheim’s Swiss Summer Home**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/meret-oppenheim-switzerland-home
+
+**New York Commuters to Be Fined for ‘Repeatedly’ Activating Tickets Late**\
+`Passengers on Metro-North and Long Island Rail Road trains could face $8 fines if they keep waiting until after the train leaves to activate their mobile tickets.`\
+https://nytimes.com/2025/12/19/nyregion/nyc-commuters-ticket-activation-fee-lirr-metro-north.html
+
+**The Filthy Word That Filmmakers Swear By**\
+`How directors and writers striving for a PG-13 rating have learned to ration the use of a four-letter obscenity.`\
+https://nytimes.com/interactive/2025/12/19/arts/swearing-pg13-r-rating.html
+
 **Trump Announces Pricing Deals With Nine Drugmakers**\
 `The companies agreed to sell most of their drugs to Medicaid at the prices they charge in European countries and to sell drugs directly to consumers through a planned TrumpRx website.`\
 https://nytimes.com/2025/12/19/health/trump-drug-pricing-deals.html
