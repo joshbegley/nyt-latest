@@ -1,9 +1,13 @@
+**Global Experts Say Most Palestinians in Gaza Face Major Difficulties Accessing Food**\
+`A panel of food security experts said the situation remained dire in the enclave despite a cease-fire in October and greater flows of aid.`\
+https://nytimes.com/2025/12/19/world/middleeast/gaza-hunger-report-israel.html
+
 **Fantasy Premier League live Q&A: Gameweek 17 advice from Ben Dinnery**\
 `Ben Dinnery of premierinjuries.com is on hand to offer his expert advice to give you the best chance of FPL success this gameweek`\
 https://nytimes.com/athletic/6903296/2025/12/19/fantasy-premier-league-live-qa-gameweek-17-advice-from-ben-dinnery/
 
-**Pelicans pull off comeback win – without Zion Williamson**\
-`Thursday's win over the Rockets felt like the first meaningful steps toward a future that doesn’t involve Williamson as the top priority.`\
+**Was Pelicans' win over Rockets — with Zion benched — a preview of what's next?**\
+`Thursday's win felt like the first meaningful steps toward a future that doesn’t involve Williamson as the top priority.`\
 https://nytimes.com/athletic/6903102/2025/12/19/pelicans-win-zion-williamson-bench/
 
 **College Football Playoff Hope-O-Meter: Why are some Bama fans waving the white flag?**\
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6899686/2025/12/19/nfl-week-16-tv-schedule-patriots
 **The Brown Manhunt Ends**\
 `We tell the story of the search for the suspect in not one but two killings.`\
 https://nytimes.com/2025/12/19/briefing/the-brown-manhunt-ends.html
-
-**McTominay disputes 'myth' that players improve after leaving Man Utd**\
-`McTominay, speaking to CBS Sports, said "it's just too easy of an excuse" to attribute their upturn in form to leaving United.`\
-https://nytimes.com/athletic/6902805/2025/12/19/scott-mctominay-manchester-united-improvement-myth/
 
