@@ -1,3 +1,7 @@
+**NBA reinstates Eric Lewis to officiate G League games after 2023 social media review**\
+`The NBA investigated Lewis in 2023 over his alleged X burner account that commented on Lewis and the games he officiated.`\
+https://nytimes.com/athletic/6904573/2025/12/19/eric-lewis-reinstated-nba-social-media/
+
 **Rafael Ithier, Ambassador of Puerto Rican Music, Dies at 99**\
 `Leading the acclaimed salsa group El Gran Combo de Puerto Rico, he brought the music of his native island to a worldwide audience for more than 60 years.`\
 https://nytimes.com/2025/12/19/arts/music/rafael-ithier-dead.html
@@ -29,8 +33,4 @@ https://nytimes.com/card/2025/12/19/smarter-living/wirecutter/
 **An Engine of Fossil Discovery Fights Its Own Extinction**\
 `A funding crisis at the Museum of the Earth and the Paleontological Research Institution in Ithaca, N.Y., could scatter priceless specimens and end nearly a century of pioneering research.`\
 https://nytimes.com/2025/12/19/science/museum-of-the-earth-ithaca-fossils.html
-
-**Inside a whirlwind week that led Sabres to new GM Jarmo Kekäläinen**\
-`Sabres COO Pete Guelli said it feels like a “new day” for the franchise as Jarmo Kekäläinen takes over hockey operations.`\
-https://nytimes.com/athletic/6904224/2025/12/19/buffalo-sabres-jarmo-kekalainen-kevyn-adams/
 
