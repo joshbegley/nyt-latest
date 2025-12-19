@@ -1,3 +1,7 @@
+**Minnesota family's Shohei Ohtani card sells for record $3 million**\
+`A Minnesota family sold the new most expensive Ohtani card of all time. `\
+https://nytimes.com/athletic/6899367/2025/12/19/shohei-ohtani-record-card-sale-dodgers/
+
 **What We Know About the Shootings at Brown and M.I.T.**\
 `A single suspect carried out the shooting at Brown University and the killing of an M.I.T. professor, and was later found dead in New Hampshire, authorities said.`\
 https://nytimes.com/2025/12/19/us/brown-mit-shootings-what-we-know.html
@@ -33,8 +37,4 @@ https://nytimes.com/issue/todayspaper/2025/12/19/todays-new-york-times
 **How Did a City of 10 Million People Nearly Run Out of Water?**\
 `Restricting Tehran’s growth and water use — however politically difficult — would be more prudent than trying to engineer ever more elaborate workarounds.`\
 https://nytimes.com/2025/12/19/opinion/tehran-iran-water-drought-crisis.html
-
-**Australia Announces Plan to Buy Back Guns in Wake of Hanukkah Attack**\
-`The program is expected to take hundreds of thousands of firearms out of circulation, the prime minister said on Friday.`\
-https://nytimes.com/2025/12/19/world/asia/australia-gun-buyback-bondi-shooting.html
 
