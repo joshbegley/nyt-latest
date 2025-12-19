@@ -1,3 +1,15 @@
+**NBA Trade Board 2025-26: Anthony Davis, Trae Young and other potential movers**\
+`Which players are being the most discussed as trade targets as the race to the Feb. 5 deadline begins?`\
+https://nytimes.com/athletic/6877429/2025/12/19/nba-trade-rumors-anthony-davis-trae-young/
+
+**Who steps up without Rome Odunze, Luther Burden? Bears mailbag, plus Week 16 picks**\
+`How will the Bears manage their receiver injuries? Can they get to Jordan Love? It's our weekly mailbag, plus picks for Saturday night.`\
+https://nytimes.com/athletic/6900835/2025/12/19/bears-mailbag-rome-odunze-luther-burden-week-16-picks/
+
+**The Phillies' quest for pitching depth is similar but different this winter**\
+`This offseason, the Phillies have vacant 40-man spots to promise and an unsettled roster to use as a pitch to improve their depth.`\
+https://nytimes.com/athletic/6892063/2025/12/19/phillies-pitching-depth-offseason/
+
 **Gakpo to return 'earlier than expected' but out of Spurs, Brighton games - Slot**\
 `The Dutch international picked up a muscle injury during the 3-3 draw with Leeds and missed the victories over Inter and Brighton.`\
 https://nytimes.com/athletic/6902778/2025/12/19/cody-gakpo-liverpool-injury-news/
