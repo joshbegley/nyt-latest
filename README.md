@@ -1,3 +1,11 @@
+**How to watch Devils vs. Mammoth: Time, TV, streaming**\
+`Find out how to watch the New Jersey Devils play the Utah Mammoth, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6904984/2025/12/19/devils-vs-mammoth-stream-how-to-watch-dec-19/
+
+**How to watch Jets vs. Avalanche: Time, TV, streaming**\
+`Find out how to watch the Winnipeg Jets play the Colorado Avalanche, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6904981/2025/12/19/jets-vs-avalanche-stream-how-to-watch-dec-19/
+
 **Brooklyn Man Accused of Stealing $16 Million in Crypto From Victims**\
 `From a house in Sheepshead Bay, Ronald Spektor bilked about 100 hapless marks across the United States, prosecutors say. Then, he went online to brag.`\
 https://nytimes.com/2025/12/19/nyregion/brooklyn-crypto-scam.html
@@ -27,14 +35,6 @@ https://nytimes.com/athletic/6904736/2025/12/19/mohamed-salah-liverpool-apology-
 https://nytimes.com/athletic/6904843/2025/12/19/rams-seahawks-classic-nfl-history-scoop-city/
 
 **The Ultimate Party for the Ultimate Party-Dress Designer**\
-`The brand Oscar de la Renta celebrates 60 years of glamour.`\
+`Oscar de la Renta holds a blowout 60th-anniversary bash. Everyone dressed to the nines.`\
 https://nytimes.com/2025/12/19/style/oscar-de-la-renta-60th-anniversary-show-dresses.html
-
-**Flashback: Your Weekly History Quiz, Dec. 20, 2025**\
-`Can you sort 8 historical events?`\
-https://nytimes.com/interactive/2025/12/19/upshot/flashback.html
-
-**Orioles acquire Shane Baz, a starter on the rise, by leveraging prospect depth**\
-`With Baz, Trevor Rogers and Kyle Bradish, the Orioles' rotation now at least has the upside to be among the best in baseball.`\
-https://nytimes.com/athletic/6904793/2025/12/19/shane-baz-orioles-rays-trade-caden-bodine-slater-de-brun/
 
