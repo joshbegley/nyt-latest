@@ -1,3 +1,11 @@
+**Amorim addresses 'Free Kobbie Mainoo' t-shirt, ‘entitled’ Obi and Amass**\
+`"He’s not going to start because of the t-shirt and he’s not going to the bench because of the t-shirt," Amorim said on Mainoo.`\
+https://nytimes.com/athletic/6903434/2025/12/19/manchester-united-amorim-mainoo-obi-amass/
+
+**Europe Funnels Billions to Ukraine but Wobbles Geopolitically**\
+`The European Union came up with an 11th-hour compromise to help Ukraine, but the solution raised questions about the bloc’s decisiveness.`\
+https://nytimes.com/2025/12/19/world/europe/eu-ukraine-russia-frozen-assets.html
+
 **Europe Agrees on Loan to Ukraine Without Using Russian Funds**\
 `European leaders agreed on Friday to provide Ukraine with a $105 billion loan but failed to reach a consensus on using Russian government assets frozen in Europe to back it.`\
 https://nytimes.com/video/world/europe/100000010598577/europe-loan-ukraine-russia.html
@@ -25,12 +33,4 @@ https://nytimes.com/2025/12/19/us/mit-professor-shooting-suspect-portugal-lisbon
 **Joan Didion and Kurt Vonnegut Had Something to Say. We Have It on Tape.**\
 `Rare recordings of E.E. Cummings, Mary Oliver and more offer a tour through literary history led by authors in their own words — and voices. Take a listen.`\
 https://nytimes.com/2025/12/19/books/james-baldwin-joan-didion-92ny-recordings.html
-
-**Who says no to these 11 trades (featuring things that can't actually be traded)?**\
-`Terry Pegula for Francesco Aquilini? Crosby becomes an American for a Canadian Stanley Cup win? The trade block is open for business.`\
-https://nytimes.com/athletic/6898354/2025/12/19/nhl-unusual-trades-mcdavid-crosby-pegula/
-
-**Picking three potential Premier League underdog winners**\
-`Where could the upsets in the Premier League come from this weekend?`\
-https://nytimes.com/athletic/6902506/2025/12/19/premier-league-underdog-winners-newcastle-wolves-nottingham-forest/
 
