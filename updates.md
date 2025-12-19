@@ -1,3 +1,15 @@
+**Bumpy Rollout for New Gates Meant to Stop Subway Fare Evasion**\
+`At a demonstration of devices designed to replace turnstiles, one rider got hit in the neck, and another sneaked through without paying.`\
+https://nytimes.com/2025/12/19/nyregion/nyc-subway-fare-gates-mta.html
+
+**Real or Fake? There’s a War Over Christmas … Trees.**\
+`Tree farmers and the marketing group that supports them want more Americans to buy live-cut trees. A new Home Depot ad gave them holiday hope.`\
+https://nytimes.com/2025/12/19/business/christmas-trees-shopping-marketing.html
+
+**Weighing Politics and Morality in the Israel Debate**\
+`Readers respond to an essay criticizing U.S. Democrats’ failure to resolve the conflict in Gaza. Also: Trump’s Kennedy Center rebrand; blaming immigrants after the Brown shooting.`\
+https://nytimes.com/2025/12/19/opinion/israel-gaza-democrats.html
+
 **Three-time Grand Slam champion Wawrinka uses poem to name 2026 his final season**\
 `Wawrinka, 40, said he still has “dreams in this sport” in his statement.`\
 https://nytimes.com/athletic/6904598/2025/12/19/tennis-stan-wawrinka-retirement-date/
