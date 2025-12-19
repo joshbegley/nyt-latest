@@ -1,3 +1,7 @@
+**Could AFCON play a big role in this crucial spell of Brighton's season?**\
+`The Christmas period can often shape a club's season, and this winter's AFCON could positively and negatively impact Brighton's hopes`\
+https://nytimes.com/athletic/6844578/2025/12/19/brighton-fixtures-afcon/
+
 **A Reddit Post Led to a Breakthrough in the Brown Shooting Investigation**\
 `A Reddit user provided information that helped identify Claudio Manuel Neves Valente as not only the suspect in the campus shooting, but also the murder of an M.I.T. professor.`\
 https://nytimes.com/2025/12/19/us/brown-mit-shooting-investigation-reddit.html
