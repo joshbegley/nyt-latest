@@ -1,3 +1,11 @@
+**New Judges Take Charge of Sept. 11 Case at Guantánamo**\
+`The long-running case had been on hold for nearly a year because of higher court appeals and the retirement of the military judge.`\
+https://nytimes.com/2025/12/18/us/politics/judges-sept-11-guantanamo.html
+
+**Jakobi Meyers, Jaguars agree to 3-year, $60 million contract extension: Sources**\
+`The wide receiver, whom Jacksonville acquired from the Raiders in November, will have $40 million guaranteed in his new deal.`\
+https://nytimes.com/athletic/6901344/2025/12/18/jaguars-jakobi-meyers-contract-extension/
+
 **Jakobi Meyers, Jaguars agree to three-year, $60 million contract extension: Sources**\
 `The wide receiver, whom Jacksonville acquired from the Raiders in November, will have $40 million guaranteed in his new deal.`\
 https://nytimes.com/athletic/6901344/2025/12/18/jaguars-jakobi-meyers-contract-extension/
