@@ -1,3 +1,27 @@
+**Exploring Hawaii’s Big Island on a Budget**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/camping-on-a-budget-hawaii-trip
+
+**Read the Criminal Complaint**\
+`Here is the complaint affidavit for Claudio Manuel Neves Valente, the man police believe killed two students at Brown University as well as a professor at the Massachusetts Institute of Technology.`\
+https://nytimes.com/interactive/2025/12/19/us/brown-mit-shooting-suspect-complaint-affidavit.html
+
+**Read the Arrest Affidavit**\
+`Here is the arrest warrant for the Brown University gunman, whom the authorities identified as Claudio Manuel Neves Valente. Mr. Valente was found dead Thursday in a storage unit in New Hampshire.`\
+https://nytimes.com/interactive/2025/12/19/us/brown-mit-shooting-arrest-affidavit.html
+
+**Miami’s Marcus Allen to miss rest of season after cancer diagnosis**\
+`Miami forward Marcus Allen will miss the rest of the season after being diagnosed with non-Hodgkin lymphoma`\
+https://nytimes.com/athletic/6904735/2025/12/19/miamis-marcus-allen-cancer-diagnosis/
+
+**Where to Eat Like Zohran Mamdani**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/where-to-eat-like-zohran-mamdani
+
+**Angels settle with family of pitcher Tyler Skaggs, avoiding jury verdict**\
+`The landmark case lasted nearly three months. The terms of the settlement have not been made public.`\
+https://nytimes.com/athletic/6904445/2025/12/19/angels-tyler-skaggs-lawsuit-settlement-trial/
+
 **Inside Meret Oppenheim’s Swiss Summer Home**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/meret-oppenheim-switzerland-home
