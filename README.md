@@ -1,40 +1,40 @@
-**Xabi Alonso's future at Real Madrid: A discussion on what we're hearing**\
-`Real Madrid's under-pressure manager faces another potentially decisive match on Saturday, at home to Sevilla`\
-https://nytimes.com/athletic/6902714/2025/12/19/xabi-alonso-real-madrid-future-sack-la-liga/
+**Trump Signs Law Repealing Tough Sanctions on Syria**\
+`The Caesar Act was imposed in 2019 in response to widespread and systematic violations of human rights by the regime of former dictator Bashar al-Assad.`\
+https://nytimes.com/2025/12/19/world/middleeast/syria-trump-repeal-sanctions-ceasar-act.html
 
-**Rams were looking like the best version of themselves. Then came the epic collapse**\
-`The Rams appeared to be in complete control, of the game and the NFC West, before the Seahawks stole it all away in an overtime thriller. `\
-https://nytimes.com/athletic/6902240/2025/12/19/rams-collapse-seahawks-nfc-west/
+**Is Oklahoma lucky or good? Sooners eager to give the nation their answer**\
+`The Sooners are well aware they were the only first-round CFP host that opened as a betting underdog.`\
+https://nytimes.com/athletic/6901074/2025/12/19/oklahoma-brent-venables-college-football-playoff/
 
-**He Smeared Dog Feces on a Critic. Now, He’s Back in the Spotlight.**\
-`Two years after the assault, Marco Goecke is staging a nontraditional “Nutcracker.” Ballet Basel hopes the focus will stay on his choreography.`\
-https://nytimes.com/2025/12/19/arts/dance/marco-goecke-feces-critic-nutcracker.html
+**How Broncos' Zach Allen's impact for Broncos has gone beyond harassing QBs**\
+`The veteran defensive lineman has helped Eyioma Uwazurike develop during his first season with a significant role in Denver`\
+https://nytimes.com/athletic/6900559/2025/12/19/zach-allen-denver-broncos-defense/
 
-**NBA Trade Board 2025-26: Anthony Davis, Trae Young and other potential movers**\
-`Which players are being the most discussed as trade targets as the race to the Feb. 5 deadline begins?`\
-https://nytimes.com/athletic/6877429/2025/12/19/nba-trade-rumors-anthony-davis-trae-young/
+**The Prospects: Liverpool's Kieran Morrison**\
+`The Athletic cast an eye over Liverpool youngster Kieran Morrison during a game against Inter`\
+https://nytimes.com/athletic/6899251/2025/12/19/the-prospects-liverpools-kieran-morrison/
 
-**Who steps up without Rome Odunze, Luther Burden? Bears mailbag, plus Week 16 picks**\
-`How will the Bears manage their receiver injuries? Can they get to Jordan Love? It's our weekly mailbag, plus picks for Saturday night.`\
-https://nytimes.com/athletic/6900835/2025/12/19/bears-mailbag-rome-odunze-luther-burden-week-16-picks/
+**Which big-name Blues could be traded after team declares 'no untouchables' — and for what return?**\
+`Assessing the Blues options if they decide to sell their most prominent players, from Jordan Binnington to Brayden Schenn to Robert Thomas.`\
+https://nytimes.com/athletic/6845922/2025/12/19/blues-trade-board-big-names/
 
-**The Phillies' quest for pitching depth is similar but different this winter**\
-`This offseason, the Phillies have vacant 40-man spots to promise and an unsettled roster to use as a pitch to improve their depth.`\
-https://nytimes.com/athletic/6892063/2025/12/19/phillies-pitching-depth-offseason/
+**Meet the viral Georgia fan who refused to sing 'Rocky Top': 'It's just a bad song'**\
+`Nolan McGill, a fifth-grader at Rivermont Elementary in Chattanooga, Tenn., is a big fan of Gunner Stockton and the Bulldogs.`\
+https://nytimes.com/athletic/6901535/2025/12/19/viral-georgia-kid-rocky-top-tennessee/
 
-**Gakpo to return 'earlier than expected' but out of Spurs, Brighton games - Slot**\
-`The Dutch international picked up a muscle injury during the 3-3 draw with Leeds and missed the victories over Inter and Brighton.`\
-https://nytimes.com/athletic/6902778/2025/12/19/cody-gakpo-liverpool-injury-news/
+**What are the Flyers' options with Tyson Foerster likely out for the season?**\
+`Philadelphia could struggle to replace a player who had 10 goals and 3 assists in 21 games this season.`\
+https://nytimes.com/athletic/6901889/2025/12/19/flyers-foerster-injury-grundstrom-bump/
 
-**The Pulse: The College Football Playoff is finally here**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6900096/2025/12/19/the-college-football-playoff-is-finally-here-plus-a-tnf-classic/
+**How Christian Watson went from the hospital to likely playing vs. the Bears**\
+`Watson is among 10 players listed as questionable for the Packers ahead of Saturday night's pivotal game in Chicago.`\
+https://nytimes.com/athletic/6901128/2025/12/19/packers-christian-watson-hospital-playing-vs-bears/
 
-**With New E.U. Loan, Ukraine Avoids Budget Crunch and Can Plan War Effort**\
-`The loan will cover two-thirds of the country’s financial needs for the next two years. It also bolsters Ukraine’s position in ongoing peace talks.`\
-https://nytimes.com/2025/12/19/world/europe/ukraine-russia-frozen-assets-loan.html
+**The Athletic’s Friday football quiz question #86**\
+`Can you answer the weekly poser plucked from deep inside The Athletic's trivia vaults?`\
+https://nytimes.com/athletic/6899086/2025/12/19/the-athletics-friday-football-quiz-question-86/
 
-**Trump Administration Pauses Diversity Immigration Program After Brown Shooting**\
-`Homeland Security Secretary Kristi Noem said President Trump ordered the program to be suspended after it emerged that the shooting suspect used it to move to the United States.`\
-https://nytimes.com/2025/12/19/us/brown-shooting-suspect-diversity-visa-program.html
+**The Giants are building a bullpen out of injured relievers, and it just might work**\
+`The Giants' strategy for building their bullpen has been to target pitchers coming off injury who could out-perform their cheap contracts.`\
+https://nytimes.com/athletic/6900809/2025/12/19/sf-giants-bullpen-construction/
 
