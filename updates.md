@@ -1,3 +1,7 @@
+**Prosecutors Say Minnesota’s Fraud Scandal Goes Further Than Previously Known**\
+`Federal prosecutors said they were now investigating fraud worth billions of dollars in 14 social services programs in the state.`\
+https://nytimes.com/2025/12/18/us/prosecutors-say-minnesotas-fraud-scandal-goes-further-than-previously-known.html
+
 **Why isn't Zion Williamson starting? Pelicans' coach says it's 'to maximize his minutes'**\
 `Williamson, who is on a minutes restriction after returning from injury, won't start to help ensure he can play in longer stints later on.`\
 https://nytimes.com/athletic/6901440/2025/12/18/zion-williamson-bench-pelicans-starting-lineup/
