@@ -1,3 +1,7 @@
+**What is the origin of the Epstein case?**\
+`By Devlin Barrett`\
+https://nytimes.com/live/2025/12/19/us/epstein-files-release/what-is-the-origin-of-the-epstein-case
+
 **Mamdani Revamps Hiring After Old Antisemitic Remarks Prompt Aide to Quit**\
 `Mayor-elect Zohran Mamdani said he did not know about the antisemitic posts and would not have hired the woman who made them if he had.`\
 https://nytimes.com/2025/12/19/nyregion/mamdani-vetting-overhaul-da-costa-antisemitic.html
@@ -15,7 +19,7 @@ https://nytimes.com/2025/12/19/business/elon-musk-pay-ruling-delaware.html
 https://nytimes.com/athletic/6904593/2025/12/19/rams-puka-nacua-fine-nfl-refs/
 
 **U.S. Strikes Islamic State Targets in Syria**\
-`American forces struck dozens of suspected ISIS sites, making good on President Trump’s vow to avenge two American soldiers killed by the group last week.`\
+`American forces struck dozens of suspected ISIS sites, making good on President Trump’s vow to avenge two American soldiers and a civilian U.S. interpreter killed by the group last week.`\
 https://nytimes.com/2025/12/19/us/politics/us-islamic-state-strikes-syria.html
 
 **Travis Kelce pushes back on retirement, puts focus on Chiefs' last 3 games**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/19/us/politics/kennedy-center-name.html
 **How to See the Epstein Files Released on Friday**\
 `The searchable database published by the Justice Department is broken into multiple categories.`\
 https://nytimes.com/2025/12/19/us/how-to-read-epstein-files.html
-
-**Toss a Coin in the Trevi Fountain? That’ll Be 2 Euros, Wish Not Included**\
-`Starting on Feb. 1, Rome will charge tourists a fee to go down into the basin of the famed 18th-century fountain. Not every one is happy (except Romans, who won’t have to pay).`\
-https://nytimes.com/2025/12/19/world/europe/trevi-fountain-2-euro-fee.html
 
