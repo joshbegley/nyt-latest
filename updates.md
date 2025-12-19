@@ -1,3 +1,19 @@
+**Trump’s Name Joins Kennedy’s on Performing Arts Center’s Facade**\
+`Workers hauled up large letters spelling out Mr. Trump’s full name to add to the white marble face of the building on Friday morning.`\
+https://nytimes.com/2025/12/19/us/politics/kennedy-center-name.html
+
+**How to See the Epstein Files Released on Friday**\
+`The searchable database published by the Justice Department is broken into multiple categories.`\
+https://nytimes.com/2025/12/19/us/how-to-read-epstein-files.html
+
+**Toss a Coin in the Trevi Fountain? That’ll Be 2 Euros, Wish Not Included**\
+`Starting on Feb. 1, Rome will charge tourists a fee to go down into the basin of the famed 18th-century fountain. Not every one is happy (except Romans, who won’t have to pay).`\
+https://nytimes.com/2025/12/19/world/europe/trevi-fountain-2-euro-fee.html
+
+**How The Times is covering the latest release of Epstein files.**\
+`By The New York Times`\
+https://nytimes.com/2025/12/19/us/how-the-times-is-covering-the-latest-release-of-epstein-files.html
+
 **How The Times is covering the latest release of Epstein files.**\
 `By The New York Times`\
 https://nytimes.com/live/2025/12/19/us/epstein-files-release/how-the-times-is-covering-the-latest-release-of-epstein-files
