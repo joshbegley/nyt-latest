@@ -1,3 +1,7 @@
+**Anfernee Simons? Anthony Davis? Looking at Celtics NBA trade candidates**\
+`Which Celtics could be on the move at the deadline? Jay King takes a look at the NBA's big trade board.`\
+https://nytimes.com/athletic/6900269/2025/12/19/celtics-nba-trade-deadline-rumors-candidates-anthony-davis/
+
 **Everton's Dewsbury-Hall out of Arsenal game but Grealish available**\
 `A scan earlier this week revealed Dewsbury-Hall, 27, sustained a hamstring issue in last week's two-goal loss at Chelsea.`\
 https://nytimes.com/athletic/6903421/2025/12/19/dewsbury-hall-everton-injury-news/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6560541/2025/12/19/college-football-playoff-bracket
 **Tennis player banned for 12 years after 22 match-fixing offenses in five months**\
 `Pang Renlong had been provisionally suspended along with two other players late last year.`\
 https://nytimes.com/athletic/6903352/2025/12/19/tennis-match-fixing-ban-pang-renlong/
-
-**‘Oh, Mary!’ Came to London. It’s the Raciest Show in Town.**\
-`Some had wondered how the show about Abraham Lincoln’s wife would fare after its creator left the Broadway cast. But mirth is abundant as it opens on the West End.`\
-https://nytimes.com/2025/12/19/arts/oh-mary-trafalgar-theater-london.html
 
