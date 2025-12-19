@@ -1,3 +1,11 @@
+**The Pulse: The College Football Playoff is finally here**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6900096/2025/12/19/the-college-football-playoff-is-finally-here-plus-a-tnf-classic/
+
+**With New E.U. Loan, Ukraine Avoids Budget Crunch and Can Plan War Effort**\
+`The loan will cover two-thirds of the country’s financial needs for the next two years. It also bolsters Ukraine’s position in ongoing peace talks.`\
+https://nytimes.com/2025/12/19/world/europe/ukraine-russia-frozen-assets-loan.html
+
 **Trump Administration Pauses Diversity Immigration Program After Brown Shooting**\
 `Homeland Security Secretary Kristi Noem said President Trump ordered the program to be suspended after it emerged that the shooting suspect used it to move to the United States.`\
 https://nytimes.com/2025/12/19/us/brown-shooting-suspect-diversity-visa-program.html

@@ -1,3 +1,7 @@
+**Gakpo to return 'earlier than expected' but out of Spurs, Brighton games - Slot**\
+`The Dutch international picked up a muscle injury during the 3-3 draw with Leeds and missed the victories over Inter and Brighton.`\
+https://nytimes.com/athletic/6902778/2025/12/19/cody-gakpo-liverpool-injury-news/
+
 **The Pulse: The College Football Playoff is finally here**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6900096/2025/12/19/the-college-football-playoff-is-finally-here-plus-a-tnf-classic/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6902298/2025/12/19/nikola-jokic-center-assists-reco
 **Zack Bolduc's ability to adapt creates an important domino effect for the Canadiens**\
 `Bolduc's ability to mesh with Nick Suzuki and Cole Caufield benefits the Canadiens up and down their lineup.`\
 https://nytimes.com/athletic/6902226/2025/12/19/canadiens-blackhawks-zack-bolduc-domino-effect/
-
-**Trent Frederic, the Bruins' rapid rebuild and a run of transactional smashes**\
-`Trading Frederic to the Oilers was the right move, and a series of other right moves have followed for Boston.`\
-https://nytimes.com/athletic/6901866/2025/12/19/bruins-oilers-trent-frederic-trade/
 
