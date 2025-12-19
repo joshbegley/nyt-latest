@@ -1,3 +1,7 @@
+**Seahawks' Derick Hall suspended 1 game for unsportsmanlike act vs. Rams**\
+`Hall was suspended for unnecessarily stepping on the leg of Rams guard Kevin Dotson at the end of a play. `\
+https://nytimes.com/athletic/6904880/2025/12/19/derick-hall-suspended-seahawks-rams-nfl-tnf/
+
 **Federal Judge Overturns Conviction in Killing of D.J. Jam Master Jay**\
 `Karl Jordan Jr., godson of the musician, was convicted last year of murder in the service of a drug deal. The judge found that the government had not proved the motive.`\
 https://nytimes.com/2025/12/19/nyregion/jam-master-jay-conviction-overturned.html

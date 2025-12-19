@@ -1,3 +1,7 @@
+**Seahawks' Derick Hall suspended 1 game for unsportsmanlike act vs. Rams**\
+`Hall was suspended for unnecessarily stepping on the leg of Rams guard Kevin Dotson at the end of a play. `\
+https://nytimes.com/athletic/6904880/2025/12/19/derick-hall-suspended-seahawks-rams-nfl-tnf/
+
 **Federal Judge Overturns Conviction in Killing of D.J. Jam Master Jay**\
 `Karl Jordan Jr., godson of the musician, was convicted last year of murder in the service of a drug deal. The judge found that the government had not proved the motive.`\
 https://nytimes.com/2025/12/19/nyregion/jam-master-jay-conviction-overturned.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6904981/2025/12/19/jets-vs-avalanche-stream-how-to-
 **Brooklyn Man Accused of Stealing $16 Million in Crypto From Victims**\
 `From a house in Sheepshead Bay, Ronald Spektor bilked about 100 hapless marks across the United States, prosecutors say. Then, he went online to brag.`\
 https://nytimes.com/2025/12/19/nyregion/brooklyn-crypto-scam.html
-
-**How to watch Washington vs. Stanford women's basketball: Time, TV, streaming**\
-`Find out how to watch the Washington Huskies play the Stanford Cardinal, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6904943/2025/12/19/washington-vs-stanford-stream-how-to-watch-dec-19/
 
