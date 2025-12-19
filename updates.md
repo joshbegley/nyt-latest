@@ -1,3 +1,7 @@
+**Suspect in Death of M.I.T. Professor Was a Former Classmate, Prosecutors Say**\
+`Nuno F.G. Loureiro, the professor, attended the same physics program in Portugal as the man suspected in his killing.`\
+https://nytimes.com/2025/12/19/us/mit-professor-brown-shooting-suspect-portugal.html
+
 **Trump-Appointed Judge Flays ICE Over Conditions in Long Island Lockup**\
 `A detainee and eight others were held in a tiny room with an open toilet in freezing, filthy conditions.`\
 https://nytimes.com/2025/12/19/nyregion/judge-ice-detention-long-island.html

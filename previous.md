@@ -1,3 +1,7 @@
+**Suspect in Death of M.I.T. Professor Was a Former Classmate, Prosecutors Say**\
+`Nuno F.G. Loureiro, the professor, attended the same physics program in Portugal as the man suspected in his killing.`\
+https://nytimes.com/2025/12/19/us/mit-professor-brown-shooting-suspect-portugal.html
+
 **Trump-Appointed Judge Flays ICE Over Conditions in Long Island Lockup**\
 `A detainee and eight others were held in a tiny room with an open toilet in freezing, filthy conditions.`\
 https://nytimes.com/2025/12/19/nyregion/judge-ice-detention-long-island.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/19/arts/television/jimmy-kimmel-trump-speech.html
 **Minnesota family's Shohei Ohtani card sells for record $3 million**\
 `A Minnesota family sold the new most expensive Ohtani card of all time. `\
 https://nytimes.com/athletic/6899367/2025/12/19/shohei-ohtani-record-card-sale-dodgers/
-
-**What We Know About the Shootings at Brown and M.I.T.**\
-`A single suspect carried out the shooting at Brown University and the killing of an M.I.T. professor, and was later found dead in New Hampshire, authorities said.`\
-https://nytimes.com/2025/12/19/us/brown-mit-shootings-what-we-know.html
 
