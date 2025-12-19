@@ -1,3 +1,7 @@
+**Matthew Stafford continues MVP push, but Rams collapse in loss to Seahawks**\
+`Everything was going right for Los Angeles during its "Thursday Night Football" matchup against Seattle — until the fourth quarter.`\
+https://nytimes.com/athletic/6901928/2025/12/19/rams-seahawks-score-result-takeaways-thursday-night-football/
+
 **Seahawks' Sam Darnold redeems himself by beating Rams in OT, clinching playoffs: Takeaways**\
 `The Seahawks quarterback threw two interceptions but rallied Seattle from a 16-point deficit to win the game in overtime.`\
 https://nytimes.com/athletic/6901486/2025/12/19/seahawks-score-result-takeaways-thursday-night-football/

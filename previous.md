@@ -1,3 +1,7 @@
+**Matthew Stafford continues MVP push, but Rams collapse in loss to Seahawks**\
+`Everything was going right for Los Angeles during its "Thursday Night Football" matchup against Seattle — until the fourth quarter.`\
+https://nytimes.com/athletic/6901928/2025/12/19/rams-seahawks-score-result-takeaways-thursday-night-football/
+
 **Seahawks' Sam Darnold redeems himself by beating Rams in OT, clinching playoffs: Takeaways**\
 `The Seahawks quarterback threw two interceptions but rallied Seattle from a 16-point deficit to win the game in overtime.`\
 https://nytimes.com/athletic/6901486/2025/12/19/seahawks-score-result-takeaways-thursday-night-football/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6893517/2025/12/19/joel-drakes-thomas-crystal-palac
 **Trump Administration to Appeal Harvard Funding Case**\
 `Facing a deadline to appeal, the Justice Department told the courts late Thursday that it would try to overturn a judge’s ruling in favor of Harvard.`\
 https://nytimes.com/2025/12/19/us/trump-administration-appeal-harvard-funding-case.html
-
-**Unai Emery's power structure at Aston Villa: Who's who and how does it work?**\
-`Most Premier League clubs do things differently, but Villa's manager-led structure is proving effective. Here's how it works.`\
-https://nytimes.com/athletic/6845282/2025/12/19/unai-emery-aston-vila-organisation/
 
