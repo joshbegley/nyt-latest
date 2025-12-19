@@ -1,3 +1,7 @@
+**Which teams will do some last-minute NHL trade shopping?**\
+`Plus: We're finally seeing some of the playoff pretenders come back to Earth.`\
+https://nytimes.com/athletic/6903635/2025/12/19/nhl-trade-board-2026-red-light/
+
 **Mamdani to Name Deputy Mayors for Housing and Economic Justice**\
 `Zohran Mamdani, New York City’s mayor-elect, will tap Leila Bozorg, a longtime public official and pro-development advocate, and Julie Su, who served as secretary of labor in the Biden administration.`\
 https://nytimes.com/2025/12/19/nyregion/zohran-mamdani-leila-bozorg-julie-su.html
