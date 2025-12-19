@@ -1,3 +1,7 @@
+**Phillies trade Matt Strahm to Royals for Jonathan Bowlan in cost-saving reliever swap**\
+`The Phillies traded the veteran lefty to the Royals in a move designed to free up money — nearly $7 million — to address other needs.`\
+https://nytimes.com/athletic/6903636/2025/12/19/phillies-royals-strahm-bowlan-trade/
+
 **Mapping an Ever-Evolving Cuisine**\
 `In her latest book, Diane Kochilas looks at the evolution of Greek cooking and restaurants in Athens and beyond.`\
 https://nytimes.com/2025/12/19/dining/diane-kochilas.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6901215/2025/12/19/vikings-giants-preview-predictio
 **What We Know About the Suspects in the Bondi Beach Attack**\
 `The police named Sajid Akram, 50, and his son, Naveed Akram, 24, as the suspects in the shooting that claimed 15 lives on Dec. 14.`\
 https://nytimes.com/2025/12/19/world/australia/bondi-shooting-attack-suspects.html
-
-**Padres agree to deal with Korean infielder Sung-Mun Song: Source**\
-`Song is a late bloomer projected as more of a utility player than an everyday player.`\
-https://nytimes.com/athletic/6903527/2025/12/19/mlb-sung-mun-song-signs-padres/
 
