@@ -1,3 +1,7 @@
+**Phillies lean right with new-look bullpen, still waiting on J.T. Realmuto**\
+`After a busy week, the Phillies have a deeper stable of righty relievers. But they're locked in a standoff with Realmuto, sources said.`\
+https://nytimes.com/athletic/6904911/2025/12/19/phillies-bullpen-jt-realmuto-free-agency/
+
 **R.F.K. Jr. Likely to Swap U.S. Childhood Vaccine Schedule for Denmark’s**\
 `The shift would mean fewer shots recommended for children. But a Danish health official found the idea baffling, saying the United States was getting “crazier and crazier in public health.”`\
 https://nytimes.com/2025/12/19/health/kennedy-childhood-vaccine-schedule-denmark.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/19/nyregion/jam-master-jay-conviction-overturned.htm
 **How to watch Thunder vs. Timberwolves: Time, TV, streaming**\
 `Find out how to watch the Oklahoma City Thunder play the Minnesota Timberwolves, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6904999/2025/12/19/thunder-vs-timberwolves-stream-how-to-watch-dec-19/
-
-**University of Virginia’s Board Names a New President**\
-`The selection of Scott Beardsley by the G.O.P.-appointed board comes after the previous president resigned under pressure from the Trump administration. A new Democratic-appointed board could try to overturn the choice.`\
-https://nytimes.com/2025/12/19/us/uva-president-scott-beardsley.html
 

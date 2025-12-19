@@ -1,3 +1,19 @@
+**R.F.K. Jr. Likely to Swap U.S. Childhood Vaccine Schedule for Denmark’s**\
+`The shift would mean fewer shots recommended for children. But a Danish health official found the idea baffling, saying the United States was getting “crazier and crazier in public health.”`\
+https://nytimes.com/2025/12/19/health/kennedy-childhood-vaccine-schedule-denmark.html
+
+**Elise Stefanik Drops Out of N.Y. Governor’s Race and Will Leave Congress**\
+`Ms. Stefanik, a Republican congresswoman and staunch ally of President Trump, abruptly ended her bid to unseat Gov. Kathy Hochul and said she would not seek another House term.`\
+https://nytimes.com/2025/12/19/nyregion/elise-stefanik-drops-out-governor.html
+
+**WATCH: The Texans' passing offense has found itself again**\
+`Since C.J. Stroud's return from injury in Week 13, the Texans are finding explosive passes at every level of the play.`\
+https://nytimes.com/athletic/6904791/2025/12/19/video-cj-stroud-offense-texans/
+
+**She Put the Heat in ‘Heated Rivalry’**\
+`Thanks to a steamy television adaptation, Rachel Reid’s romance novels about closeted hockey players have become mainstream best-sellers.`\
+https://nytimes.com/2025/12/19/books/heated-rivalry-rachel-reid-hockey-romance.html
+
 **'Ask those guys, not me': Has Craig Berube lost the Leafs?**\
 `The Leafs’ brass should be asking tough questions to determine whether this season is still salvageable with Craig Berube at the controls.`\
 https://nytimes.com/athletic/6904822/2025/12/19/craig-berube-lost-maple-leafs/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6904999/2025/12/19/thunder-vs-timberwolves-stream-h
 **University of Virginia’s Board Names a New President**\
 `The selection of Scott Beardsley by the G.O.P.-appointed board comes after the previous president resigned under pressure from the Trump administration. A new Democratic-appointed board could try to overturn the choice.`\
 https://nytimes.com/2025/12/19/us/uva-president-scott-beardsley.html
-
-**How to watch Bulls vs. Cavaliers: Time, TV, streaming**\
-`Find out how to watch the Chicago Bulls play the Cleveland Cavaliers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6904997/2025/12/19/bulls-vs-cavaliers-stream-how-to-watch-dec-19/
-
-**How to watch Stars vs. Ducks: Time, TV, streaming**\
-`Find out how to watch the Dallas Stars play the Anaheim Ducks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6904993/2025/12/19/stars-vs-ducks-stream-how-to-watch-dec-19/
-
-**How to watch Spurs vs. Hawks: Time, TV, streaming**\
-`Find out how to watch the San Antonio Spurs play the Atlanta Hawks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6904991/2025/12/19/spurs-vs-hawks-stream-how-to-watch-dec-19/
-
-**How to watch Devils vs. Mammoth: Time, TV, streaming**\
-`Find out how to watch the New Jersey Devils play the Utah Mammoth, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6904984/2025/12/19/devils-vs-mammoth-stream-how-to-watch-dec-19/
 
