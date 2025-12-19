@@ -1,3 +1,11 @@
+**SNL’s Sarah Sherman Tests Gross Gifts**\
+`Saturday Night Live cast member and human disco ball Sarah Sherman knows gross. So who better to review a selection of very gross gifts, all of them hand-picked by Wirecutter’s gifts team?`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010599505/snls-sarah-sherman-tests-gross-gifts.html
+
+**NBA reinstates Eric Lewis to officiate G League games after 2023 social media review**\
+`The NBA investigated Lewis in 2023 over his alleged X burner account that commented on Lewis and the games he officiated.`\
+https://nytimes.com/athletic/6904573/2025/12/19/eric-lewis-reinstated-nba-social-media/
+
 **Rafael Ithier, Ambassador of Puerto Rican Music, Dies at 99**\
 `Leading the acclaimed salsa group El Gran Combo de Puerto Rico, he brought the music of his native island to a worldwide audience for more than 60 years.`\
 https://nytimes.com/2025/12/19/arts/music/rafael-ithier-dead.html
