@@ -1,3 +1,11 @@
+**Mamdani Revamps Hiring After Old Antisemitic Remarks Prompt Aide to Quit**\
+`Mayor-elect Zohran Mamdani said he did not know about the antisemitic posts and would not have hired the woman who made them if he had.`\
+https://nytimes.com/2025/12/19/nyregion/mamdani-vetting-overhaul-da-costa-antisemitic.html
+
+**Wolves chairman Jeff Shi steps down after eight years**\
+`He has been replaced in an interim capacity by Nathan Shi as the Premier League side sit bottom of the table with two points.`\
+https://nytimes.com/athletic/6779725/2025/12/19/jeff-shi-wolves-chairman-steps-down/
+
 **Elon Musk’s 2018 Tesla Pay Deal Is Restored by Delaware Supreme Court**\
 `A lower-court judge had invalidated the package, saying shareholders had not been properly informed about the plan. Friday’s ruling means the pay deal, worth about $139 billion now, can proceed.`\
 https://nytimes.com/2025/12/19/business/elon-musk-pay-ruling-delaware.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/19/us/how-to-read-epstein-files.html
 **Toss a Coin in the Trevi Fountain? That’ll Be 2 Euros, Wish Not Included**\
 `Starting on Feb. 1, Rome will charge tourists a fee to go down into the basin of the famed 18th-century fountain. Not every one is happy (except Romans, who won’t have to pay).`\
 https://nytimes.com/2025/12/19/world/europe/trevi-fountain-2-euro-fee.html
-
-**How The Times is covering the latest release of Epstein files.**\
-`By The New York Times`\
-https://nytimes.com/2025/12/19/us/how-the-times-is-covering-the-latest-release-of-epstein-files.html
-
-**Hochul Expected to Veto Bill Requiring 2-Person Crews on Subway Trains**\
-`The bill, which would ensure that every train has a conductor and a driver, as most now do, was supported by the transit workers’ union and opposed by many transit advocates.`\
-https://nytimes.com/2025/12/19/nyregion/hochul-mta-conductors-twu.html
 

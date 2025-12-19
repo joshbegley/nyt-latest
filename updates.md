@@ -1,3 +1,7 @@
+**Elon Musk’s 2018 Tesla Pay Deal Is Restored by Delaware Supreme Court**\
+`A lower-court judge had invalidated the package, saying shareholders had not been properly informed about the plan. Friday’s ruling means the pay deal, worth about $139 billion now, can proceed.`\
+https://nytimes.com/2025/12/19/business/elon-musk-pay-ruling-delaware.html
+
 **NFL fines Rams' Puka Nacua $25,000 for criticizing referees: Source**\
 `Nacua criticized the league's refs during a livestream with Adin Ross and N3on, then reiterated his take following a loss to the Seahawks. `\
 https://nytimes.com/athletic/6904593/2025/12/19/rams-puka-nacua-fine-nfl-refs/
