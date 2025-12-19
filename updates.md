@@ -1,3 +1,19 @@
+**How to watch Wright State vs. Kentucky women's basketball: Time, TV, streaming**\
+`Find out how to watch the Wright State Raiders play the Kentucky Wildcats, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6904102/2025/12/19/wright-state-vs-kentucky-stream-how-to-watch-dec-19/
+
+**The ‘Stranger Things’ Cast Says Goodbye to the Netflix Series**\
+`Nearly a decade after the hit sci-fi horror series debuted, cast members including Finn Wolfhard, Gaten Matarazzo and Maya Hawke gathered in New York City.`\
+https://nytimes.com/2025/12/19/style/stranger-things-finale-cast-party.html
+
+**Flyers suspend radio broadcaster for comments made during hot mic moment**\
+`Brian Smith, the Flyers' director of broadcasting and content, will fill in, calling games with analyst Todd Fedoruk.`\
+https://nytimes.com/athletic/6903808/2025/12/19/flyers-suspend-radio-broadcaster-comments/
+
+**High Winds Around Denver Prompt Warnings About Significant Fire Risk**\
+`Colorado, like much of the West, has been battered by strong winds this week. The National Weather Service issued some of its strongest warnings yet for Friday.`\
+https://nytimes.com/2025/12/19/weather/denver-winds-fire-colorado.html
+
 **Three Killed in Stabbing Attack in Taiwan**\
 `The attacker, who threw smoke grenades inside a train station in Taiwan’s capital, later continued his rampage nearby and died in falling from a building.`\
 https://nytimes.com/2025/12/19/world/asia/stabbing-taipei-taiwan.html

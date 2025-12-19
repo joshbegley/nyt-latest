@@ -1,3 +1,19 @@
+**How to watch Wright State vs. Kentucky women's basketball: Time, TV, streaming**\
+`Find out how to watch the Wright State Raiders play the Kentucky Wildcats, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6904102/2025/12/19/wright-state-vs-kentucky-stream-how-to-watch-dec-19/
+
+**The ‘Stranger Things’ Cast Says Goodbye to the Netflix Series**\
+`Nearly a decade after the hit sci-fi horror series debuted, cast members including Finn Wolfhard, Gaten Matarazzo and Maya Hawke gathered in New York City.`\
+https://nytimes.com/2025/12/19/style/stranger-things-finale-cast-party.html
+
+**Flyers suspend radio broadcaster for comments made during hot mic moment**\
+`Brian Smith, the Flyers' director of broadcasting and content, will fill in, calling games with analyst Todd Fedoruk.`\
+https://nytimes.com/athletic/6903808/2025/12/19/flyers-suspend-radio-broadcaster-comments/
+
+**High Winds Around Denver Prompt Warnings About Significant Fire Risk**\
+`Colorado, like much of the West, has been battered by strong winds this week. The National Weather Service issued some of its strongest warnings yet for Friday.`\
+https://nytimes.com/2025/12/19/weather/denver-winds-fire-colorado.html
+
 **Three Killed in Stabbing Attack in Taiwan**\
 `The attacker, who threw smoke grenades inside a train station in Taiwan’s capital, later continued his rampage nearby and died in falling from a building.`\
 https://nytimes.com/2025/12/19/world/asia/stabbing-taipei-taiwan.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/12/19/movies/science-fiction-movies-streaming.html
 **Five Free Movies to Stream**\
 `The final column of the year looks at the end of things — the end of the world, the end of youth — along with an underrated holiday gem.`\
 https://nytimes.com/2025/12/19/movies/free-movies-streaming.html
-
-**Phillies trade Matt Strahm to Royals for Jonathan Bowlan in cost-saving reliever swap**\
-`The Phillies traded the lefty set-up man to Kansas City in a move designed to free up money — nearly $7M in 2026 — to address other needs.`\
-https://nytimes.com/athletic/6903636/2025/12/19/phillies-royals-strahm-bowlan-trade/
-
-**Mapping an Ever-Evolving Cuisine**\
-`In her latest book, Diane Kochilas looks at the evolution of Greek cooking and restaurants in Athens and beyond.`\
-https://nytimes.com/2025/12/19/dining/diane-kochilas.html
-
-**Which teams will do some last-minute NHL trade shopping?**\
-`Plus: We're finally seeing some of the playoff pretenders come back to Earth.`\
-https://nytimes.com/athletic/6903635/2025/12/19/nhl-trade-board-2026-red-light/
-
-**Mamdani Names Deputy Mayors for Housing and Economic Justice**\
-`Zohran Mamdani, New York City’s mayor-elect, tapped Leila Bozorg, a longtime public official and pro-development advocate, and Julie Su, who served as secretary of labor in the Biden administration.`\
-https://nytimes.com/2025/12/19/nyregion/zohran-mamdani-leila-bozorg-julie-su.html
 
