@@ -1,3 +1,11 @@
+**Australia federation bans four soccer players over match-fixing**\
+`The players have been banned from any activity related to the sport, and all have accepted their sanctions without appealing.`\
+https://nytimes.com/athletic/6902436/2025/12/19/australia-match-fixing-soccer-ban/
+
+**Hurzeler hoping for lack of Brighton first-team departures in January**\
+`Hurzeler was asked about the future of Diego Coppola, who is yet to start a Premier League match this season.`\
+https://nytimes.com/athletic/6902581/2025/12/19/fabian-hurzeler-brighton-january-transfers/
+
 **Arteta: Havertz and Gabriel close to returning**\
 `Havertz has been out with a knee injury since August, while Gabriel suffered a thigh issue last month.`\
 https://nytimes.com/athletic/6902487/2025/12/19/arsenal-team-news-havertz-gabriel/
