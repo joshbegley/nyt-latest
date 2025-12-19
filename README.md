@@ -1,3 +1,7 @@
+**'Ask those guys, not me': Has Craig Berube lost the Leafs?**\
+`The Leafs’ brass should be asking tough questions to determine whether this season is still salvageable with Craig Berube at the controls.`\
+https://nytimes.com/athletic/6904822/2025/12/19/craig-berube-lost-maple-leafs/
+
 **Controversial Dakota Pipeline Gets a Big, Belated Government Boost**\
 `A delayed environmental review cleared the Dakota Access Pipeline to continue operating. Separately, a North Dakota judge expressed unusual exasperation over the tangled legal battles.`\
 https://nytimes.com/2025/12/19/climate/dakota-access-pipeline-greenpeace-energy-transfer-army-corps.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6904991/2025/12/19/spurs-vs-hawks-stream-how-to-wat
 **How to watch Devils vs. Mammoth: Time, TV, streaming**\
 `Find out how to watch the New Jersey Devils play the Utah Mammoth, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6904984/2025/12/19/devils-vs-mammoth-stream-how-to-watch-dec-19/
-
-**How to watch Jets vs. Avalanche: Time, TV, streaming**\
-`Find out how to watch the Winnipeg Jets play the Colorado Avalanche, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6904981/2025/12/19/jets-vs-avalanche-stream-how-to-watch-dec-19/
 
