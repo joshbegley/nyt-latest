@@ -1,3 +1,7 @@
+**How to watch San Diego State vs. Arizona men's basketball: Time, TV, streaming**\
+`Find out how to watch the San Diego State Aztecs play the Arizona Wildcats, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6906760/2025/12/20/san-diego-state-vs-arizona-stream-how-to-watch-dec-20/
+
 **Bill Clinton, a Main Character in the Epstein Drop, Just Can’t Escape Scandal**\
 `The Republican-led Justice Department’s release of photos of the former president with Jeffrey Epstein will introduce yet another generation to his flaws and controversies.`\
 https://nytimes.com/2025/12/20/us/politics/bill-clinton-epstein-files-photos-scandal.html
@@ -10,7 +14,7 @@ https://nytimes.com/athletic/6903263/2025/12/20/real-sociedad-manager-matarazzo/
 `ESPN promoted Manziel as the guest picker earlier this week, but he did not appear on the broadcast Saturday.`\
 https://nytimes.com/athletic/6906634/2025/12/20/johnny-manziel-college-gameday-texas-am/
 
-**The Briefing: Tottenham 1 Liverpool 2: Slot's side hold on, Isak injury, Spurs down to nine men**\
+**The Briefing: Tottenham 1 Liverpool 2 — Slot's side hold on, Isak injury, Spurs down to nine men**\
 `Our writers bring you the key talking points from the Tottenham Hotspur Stadium`\
 https://nytimes.com/athletic/6893409/2025/12/20/tottenham-liverpool-result-isak-premier-league/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6906576/2025/12/20/matt-doherty-wolves-relegation-w
 **Rosenthal: Why Orioles and Rays made Shane Baz trade – and how it benefits both AL East rivals**\
 `The O's get a potential No. 1 starter. With this deal and an earlier trade Friday, the Rays added six prospects to their top 30.`\
 https://nytimes.com/athletic/6906479/2025/12/20/orioles-rays-trade-al-east-shane-baz/
-
-**Overlooked No More: Inge Lehmann, Who Discovered the Earth’s Inner Core**\
-`She pointed to evidence that the Earth’s inner core was solid — not liquid, as scientists had believed — a discovery that was ahead of its time.`\
-https://nytimes.com/2025/12/20/obituaries/inge-lehmann-overlooked.html
 

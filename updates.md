@@ -1,3 +1,7 @@
+**Bill Clinton, a Main Character in the Epstein Drop, Just Can’t Escape Scandal**\
+`The Republican-led Justice Department’s release of photos of the former president with Jeffrey Epstein will introduce yet another generation to his flaws and controversies.`\
+https://nytimes.com/2025/12/20/us/politics/bill-clinton-epstein-files-photos-scandal.html
+
 **Real Sociedad appoint American head coach Matarazzo**\
 `The club has reached an agreement with Matarazzo on a contract through to the end of the 2026-27 season.`\
 https://nytimes.com/athletic/6903263/2025/12/20/real-sociedad-manager-matarazzo/
