@@ -1,3 +1,7 @@
+**NHL trade grades: Phillip Danault makes sense for Canadiens — despite obvious red flag**\
+`While the idea of adding a clutch playoff performer sounds enticing, Danault's offensive downturn and contract are a concern.`\
+https://nytimes.com/athletic/6905624/2025/12/20/kings-canadiens-phillip-danault-trade-grades-nhl/
+
 **Anthony Joshua breezes back to heavyweight stardom with rout of dancing, trolling Jake Paul**\
 `Order has been restored to professional boxing. Or, at least, as much order as boxing ever has.`\
 https://nytimes.com/athletic/6905529/2025/12/20/jake-paul-vs-anthony-joshua-fight-result-netflix/

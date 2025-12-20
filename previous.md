@@ -1,3 +1,7 @@
+**NHL trade grades: Phillip Danault makes sense for Canadiens — despite obvious red flag**\
+`While the idea of adding a clutch playoff performer sounds enticing, Danault's offensive downturn and contract are a concern.`\
+https://nytimes.com/athletic/6905624/2025/12/20/kings-canadiens-phillip-danault-trade-grades-nhl/
+
 **Pep Guardiola has found his formula and full-backs O’Reilly and Nunes are central to it**\
 `Their formation has become narrower, but Manchester City are relying on their wide players more than ever`\
 https://nytimes.com/athletic/6897056/2025/12/20/man-city-guardiola-nunes-oreilly/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6905039/2025/12/20/connections-sports-edition-hints
 **Escape From the Abyss: Surviving the Atrocities in El Fasher**\
 `No one knows the true toll of the massacre, and the city remains isolated. Now, refugee camps in Chad are flooded with newly displaced Sudanese.`\
 https://nytimes.com/2025/12/20/world/africa/sudan-el-fasher-refugees-chad.html
-
-**Corrections: Dec. 20, 2025**\
-`Corrections that appeared in print on Saturday, Dec. 20, 2025.`\
-https://nytimes.com/2025/12/20/pageoneplus/corrections-dec-20-2025.html
 
