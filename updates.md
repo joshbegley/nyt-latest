@@ -1,3 +1,11 @@
+**Taiwan’s Subway Stabber Planned His Deadly Spree, Police Say**\
+`Investigators said they were unsure of the attacker’s motives. But clues pointed to an isolated and increasingly troubled life, and no accomplices.`\
+https://nytimes.com/2025/12/20/world/asia/taiwan-subway-stabbing.html
+
+**Jeff Shi's position at Wolves was untenable. Now Fosun need to implement real change**\
+`The legacy Wolves fans Shi took for granted have engineered change through peaceful protest. But what happens next will be telling`\
+https://nytimes.com/athletic/6905562/2025/12/20/jeff-shi-wolves-fosun-change/
+
 **Lou Cannon Dies at 92; Journalist Chronicled Reagan as an Author**\
 `He was a foremost authority on the president, tracing his career in unvarnished accounts from his time as California governor through his years in the White House.`\
 https://nytimes.com/2025/12/20/books/lou-cannon-dead.html
