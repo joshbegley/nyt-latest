@@ -1,3 +1,7 @@
+**Thiago Silva, 41, to join Porto after Fluminense exit**\
+`The 41-year-old defender will be able to represent the Portuguese club from January, when the registration period opens.`\
+https://nytimes.com/athletic/6906180/2025/12/20/thiago-silva-porto-transfer/
+
 **'It got us going': Chris Finch's fiery exit spurs Wolves to their most intense performance of the season**\
 `It was only a matter of time before the Chris Finch would erupt. The Timberwolves used it as fuel in their win over the Thunder.`\
 https://nytimes.com/athletic/6905316/2025/12/20/chris-finch-timberwolves-thunder/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6906103/2025/12/20/islanders-vs-sabres-stream-how-t
 **How to watch North Carolina vs. Ohio State men's basketball: Time, TV, streaming**\
 `Find out how to watch the North Carolina Tar Heels play the Ohio State Buckeyes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6906094/2025/12/20/north-carolina-vs-ohio-state-stream-how-to-watch-dec-20/
-
-**How to watch Kansas State vs. TCU women's basketball: Time, TV, streaming**\
-`Find out how to watch the Kansas State Wildcats play the TCU Horned Frogs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6906092/2025/12/20/kansas-state-vs-tcu-stream-how-to-watch-dec-20/
 

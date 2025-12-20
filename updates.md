@@ -1,3 +1,7 @@
+**Thiago Silva, 41, to join Porto after Fluminense exit**\
+`The 41-year-old defender will be able to represent the Portuguese club from January, when the registration period opens.`\
+https://nytimes.com/athletic/6906180/2025/12/20/thiago-silva-porto-transfer/
+
 **'It got us going': Chris Finch's fiery exit spurs Wolves to their most intense performance of the season**\
 `It was only a matter of time before the Chris Finch would erupt. The Timberwolves used it as fuel in their win over the Thunder.`\
 https://nytimes.com/athletic/6905316/2025/12/20/chris-finch-timberwolves-thunder/
