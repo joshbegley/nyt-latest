@@ -1,3 +1,11 @@
+**Epstein Files Photos Disappear From Government Website, Including One of Trump**\
+`A total of 16 photos were taken down at some point on Saturday from the website that the Justice Department created. One featured an open drawer containing other photos, including at least one of President Trump.`\
+https://nytimes.com/2025/12/20/us/politics/trump-epstein-files-government-website.html
+
+**First Batch of Epstein Files Provides Few Revelations**\
+`The Justice Department, under pressure from Congress to comply with a law signed by President Trump, released more than 13,000 files on Friday arising from investigations into Jeffrey Epstein.`\
+https://nytimes.com/video/us/100000010601541/epstein-doj-files-released.html
+
 **49ers' Ricky Pearsall out for Monday's game at Colts with knee injury**\
 `The 49ers have a 7-1 record in games Pearsall has played and are 3-3 in games he has missed.`\
 https://nytimes.com/athletic/6906996/2025/12/20/ricky-pearsall-out-49ers-colts/
@@ -7,7 +15,7 @@ https://nytimes.com/athletic/6906996/2025/12/20/ricky-pearsall-out-49ers-colts/
 https://nytimes.com/2025/12/20/crosswords/daily-puzzle-2025-12-21.html
 
 **NHL referee makes wrong goal call, reverses decision after Senators, fans celebrate**\
-`The mix up following a goaltender interference review drastically changed the mood of Senators players and fans at the Canadian Tire Centre.`\
+`The mix-up following a goaltender interference review drastically changed the mood of Senators players and fans at the Canadian Tire Centre.`\
 https://nytimes.com/athletic/6906986/2025/12/20/senators-nhl-referee-goal-call-blackhawks/
 
 **Kenny Dillingham's new contract shows Arizona State is tired of 'sleeping giant' narrative**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6906783/2025/12/20/miami-texas-aggies-cfp-notre-dam
 **Mbappe equals Ronaldo record in Real Madrid win against Sevilla**\
 `Mbappe scored his 59th goal of 2025 with an 86th minute penalty against Sevilla during Saturday's La Liga win.`\
 https://nytimes.com/athletic/6906917/2025/12/20/kylian-mbappe-ronaldo-madrid-record/
-
-**Rams fire special teams coordinator Chase Blackburn: Source**\
-`The Rams have seen special teams issues prove costly in three of their four losses this season.`\
-https://nytimes.com/athletic/6906894/2025/12/20/rams-chase-blackburn-fired-special-teams-coordinator/
-
-**The Briefing: Everton 0 Arsenal 1 — Arsenal lead the Premier League at Christmas, Gyokeres scores**\
-`Arsenal ground out a win on the road to return to the top of the Premier League`\
-https://nytimes.com/athletic/6893424/2025/12/20/everton-arsenal-top-christmas-result-gyokeres/
 

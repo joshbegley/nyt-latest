@@ -1,3 +1,15 @@
+**Epstein Files Photos Disappear From Government Website, Including One of Trump**\
+`A total of 16 photos were taken down at some point on Saturday from the website that the Justice Department created. One featured an open drawer containing other photos, including at least one of President Trump.`\
+https://nytimes.com/2025/12/20/us/politics/trump-epstein-files-government-website.html
+
+**First Batch of Epstein Files Provides Few Revelations**\
+`The Justice Department, under pressure from Congress to comply with a law signed by President Trump, released more than 13,000 files on Friday arising from investigations into Jeffrey Epstein.`\
+https://nytimes.com/video/us/100000010601541/epstein-doj-files-released.html
+
+**NHL referee makes wrong goal call, reverses decision after Senators, fans celebrate**\
+`The mix-up following a goaltender interference review drastically changed the mood of Senators players and fans at the Canadian Tire Centre.`\
+https://nytimes.com/athletic/6906986/2025/12/20/senators-nhl-referee-goal-call-blackhawks/
+
 **49ers' Ricky Pearsall out for Monday's game at Colts with knee injury**\
 `The 49ers have a 7-1 record in games Pearsall has played and are 3-3 in games he has missed.`\
 https://nytimes.com/athletic/6906996/2025/12/20/ricky-pearsall-out-49ers-colts/
