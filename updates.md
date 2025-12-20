@@ -1,3 +1,15 @@
+**How a reluctant Division II transfer became an SEC phenomenon at Ole Miss**\
+`Ferris State transfer Trinidad Chambliss has been a surprise breakout star at Ole Miss as the Rebels head into the College Football Playoff.`\
+https://nytimes.com/athletic/6716551/2025/12/20/trinidad-chambliss-ole-miss-ferris-state/
+
+**Scoop City: Fantasy tips to win Week 16**\
+`Andy Behrens provides a rundown of everything fantasy football you need to know for Week 16.`\
+https://nytimes.com/athletic/6905257/2025/12/20/everything-fantasy-football-managers-need-to-know-week-16/
+
+**From A.I. to Tariffs, 14 Charts That Explain 2025**\
+`President Trump’s trade policy, inflation and climbing stock prices shaped business and the economy this year.`\
+https://nytimes.com/2025/12/20/business/dealbook/charts-2025-economy.html
+
 **U.S. Strikes on Syria Underscore Scale of Challenge for Its President**\
 `The Syrian government did not comment directly on the extensive American strikes targeting the Islamic State on Friday, but said it was intensifying its own efforts to fight the group.`\
 https://nytimes.com/2025/12/20/world/middleeast/us-strikes-syria-aftermath.html

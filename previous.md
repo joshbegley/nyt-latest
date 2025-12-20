@@ -1,3 +1,15 @@
+**How a reluctant Division II transfer became an SEC phenomenon at Ole Miss**\
+`Ferris State transfer Trinidad Chambliss has been a surprise breakout star at Ole Miss as the Rebels head into the College Football Playoff.`\
+https://nytimes.com/athletic/6716551/2025/12/20/trinidad-chambliss-ole-miss-ferris-state/
+
+**Scoop City: Fantasy tips to win Week 16**\
+`Andy Behrens provides a rundown of everything fantasy football you need to know for Week 16.`\
+https://nytimes.com/athletic/6905257/2025/12/20/everything-fantasy-football-managers-need-to-know-week-16/
+
+**From A.I. to Tariffs, 14 Charts That Explain 2025**\
+`President Trump’s trade policy, inflation and climbing stock prices shaped business and the economy this year.`\
+https://nytimes.com/2025/12/20/business/dealbook/charts-2025-economy.html
+
 **U.S. Strikes on Syria Underscore Scale of Challenge for Its President**\
 `The Syrian government did not comment directly on the extensive American strikes targeting the Islamic State on Friday, but said it was intensifying its own efforts to fight the group.`\
 https://nytimes.com/2025/12/20/world/middleeast/us-strikes-syria-aftermath.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6904520/2025/12/20/winnipeg-jets-nhl-trade-deadline
 **The Evgeni Malkin dilemma is hanging over the Penguins and Kyle Dubas**\
 `Kyle Dubas will have his hands full when it comes to Evgeni Malkin's future.`\
 https://nytimes.com/athletic/6904887/2025/12/20/evgeni-malkin-penguins-kyle-dubas/
-
-**Is it time to turn attention to draft lottery again as Blackhawks' playoff hopes slide?**\
-`Chicago's outlook has changed for the season, and the thought of it joining the NHL Draft Lottery conversation again isn't far off.`\
-https://nytimes.com/athletic/6904742/2025/12/20/blackhawks-nhl-playoffs-draft-lottery/
-
-**Russini: What I’m hearing about Aaron Glenn's status with the Jets and one team's coaching wish list**\
-`Also: How Philip Rivers won over the Colts, an overlooked Coach of the Year candidate and the NFL's grossest touchdown celebration.`\
-https://nytimes.com/athletic/6905542/2025/12/20/nfl-rumors-news-aaron-glenn-jets-titans-coaching-candidates/
-
-**Derrick White hits nine 3s as Celtics snap skid against shorthanded Heat**\
-`On a night when they were badly outrebounded, the Celtics' hot outside shooting helped them run away from the Heat.`\
-https://nytimes.com/athletic/6905664/2025/12/20/celtics-heat-score-result-derrick-white/
 
