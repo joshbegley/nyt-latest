@@ -1,3 +1,7 @@
+**Land Grab: Israel’s Escalating Campaign for Control of the West Bank**\
+`Israeli seizure of Palestinian lands in the West Bank, often brutally, has accelerated, raising doubts about the prospects of a peaceful solution to the conflict.`\
+https://nytimes.com/interactive/2025/12/20/world/middleeast/west-bank-settlements.html
+
 **How to watch Magic vs. Jazz: Time, TV, streaming**\
 `Find out how to watch the Orlando Magic play the Utah Jazz, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6906788/2025/12/20/magic-vs-jazz-stream-how-to-watch-dec-20/
