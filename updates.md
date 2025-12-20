@@ -1,3 +1,7 @@
+**Epstein Victims Upset About Lack of Transparency in Newly Released Files**\
+`Several victims said they were frustrated by the heavy redactions of photos and documents that the Justice Department released on Friday.`\
+https://nytimes.com/2025/12/19/us/epstein-files-victims-reaction.html
+
 **Judge Blocks Trump Administration’s Homeless Aid Plan**\
 `The proposal would have required recipients to get treatment for addiction or mental illness as a condition of receiving housing funds. The administration has said it will try again.`\
 https://nytimes.com/2025/12/19/us/politics/trump-homelessness-funding-judge.html
