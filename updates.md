@@ -1,3 +1,15 @@
+**How to watch North Carolina vs. Ohio State men's basketball: Time, TV, streaming**\
+`Find out how to watch the North Carolina Tar Heels play the Ohio State Buckeyes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6906094/2025/12/20/north-carolina-vs-ohio-state-stream-how-to-watch-dec-20/
+
+**How to watch Kansas State vs. TCU women's basketball: Time, TV, streaming**\
+`Find out how to watch the Kansas State Wildcats play the TCU Horned Frogs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6906092/2025/12/20/kansas-state-vs-tcu-stream-how-to-watch-dec-20/
+
+**How to watch Long Beach State vs. UCLA women's basketball: Time, TV, streaming**\
+`Find out how to watch the Long Beach State Beach play the UCLA Bruins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6906086/2025/12/20/long-beach-state-vs-ucla-stream-how-to-watch-dec-20/
+
 **Arizona State's Dillingham signs new deal, taking Michigan candidate off board: Source**\
 `The new contract will raise Dillingham's salary to $7.5 million per year.`\
 https://nytimes.com/athletic/6906044/2025/12/20/kenny-dillingham-arizona-state-contract-michigan/

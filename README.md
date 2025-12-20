@@ -1,3 +1,11 @@
+**How to watch Oilers vs. Wild: Time, TV, streaming**\
+`Find out how to watch the Edmonton Oilers play the Minnesota Wild, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6906105/2025/12/20/oilers-vs-wild-stream-how-to-watch-dec-20/
+
+**How to watch Islanders vs. Sabres: Time, TV, streaming**\
+`Find out how to watch the New York Islanders play the Buffalo Sabres, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6906103/2025/12/20/islanders-vs-sabres-stream-how-to-watch-dec-20/
+
 **How to watch North Carolina vs. Ohio State men's basketball: Time, TV, streaming**\
 `Find out how to watch the North Carolina Tar Heels play the Ohio State Buckeyes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6906094/2025/12/20/north-carolina-vs-ohio-state-stream-how-to-watch-dec-20/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6716551/2025/12/20/trinidad-chambliss-ole-miss-ferr
 **Scoop City: Fantasy tips to win Week 16**\
 `Andy Behrens provides a rundown of everything fantasy football you need to know for Week 16.`\
 https://nytimes.com/athletic/6905257/2025/12/20/everything-fantasy-football-managers-need-to-know-week-16/
-
-**From A.I. to Tariffs, 14 Charts That Explain 2025**\
-`President Trump’s trade policy, inflation and climbing stock prices shaped business and the economy this year.`\
-https://nytimes.com/2025/12/20/business/dealbook/charts-2025-economy.html
-
-**U.S. Strikes on Syria Underscore Scale of Challenge for Its President**\
-`The Syrian government did not comment directly on the extensive American strikes targeting the Islamic State on Friday, but said it was intensifying its own efforts to fight the group.`\
-https://nytimes.com/2025/12/20/world/middleeast/us-strikes-syria-aftermath.html
 
