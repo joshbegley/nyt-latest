@@ -1,3 +1,7 @@
+**Raja Shehadeh Believes Israelis and Palestinians Can Still Find Peace**\
+`The writer and lawyer has been documenting the occupation for decades. Somehow, he maintains hope.`\
+https://nytimes.com/2025/12/20/magazine/raja-shehadeh-interview.html
+
 **Darts and the Ally Pally wasp(s)**\
 `The World Darts Championship is a staple of the festive season - but it's not just the players and fans creating a buzz`\
 https://nytimes.com/athletic/6904470/2025/12/20/darts-world-championship-ally-pally-wasp/

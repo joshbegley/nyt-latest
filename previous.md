@@ -1,3 +1,7 @@
+**Raja Shehadeh Believes Israelis and Palestinians Can Still Find Peace**\
+`The writer and lawyer has been documenting the occupation for decades. Somehow, he maintains hope.`\
+https://nytimes.com/2025/12/20/magazine/raja-shehadeh-interview.html
+
 **Darts and the Ally Pally wasp(s)**\
 `The World Darts Championship is a staple of the festive season - but it's not just the players and fans creating a buzz`\
 https://nytimes.com/athletic/6904470/2025/12/20/darts-world-championship-ally-pally-wasp/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/20/world/americas/bad-bunny-mexico-city.html
 **As the ‘Avatar’ Villain Varang, Oona Chaplin Connected With Her Rage**\
 `She had been working with refugees and channeled her anger over their situation into the ferocious performance, which was filmed several years ago.`\
 https://nytimes.com/2025/12/20/movies/as-the-avatar-villain-varang-oona-chaplin-connected-with-her-rage.html
-
-**My 55+ Community Is Neglecting Its Maintenance. What Should I Do?**\
-`When formal complaints don’t get results, you can threaten to withhold rent. But be prepared for a fight.`\
-https://nytimes.com/2025/12/20/realestate/renting-landlords-intercom-system-repairs.html
 
