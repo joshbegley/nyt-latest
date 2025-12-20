@@ -1,3 +1,7 @@
+**Iowa State QB Rocco Becht plans to enter portal: Source**\
+`A three-year starter at Iowa State, Rocco Becht decided to enter the transfer portal on Friday. Could he join Matt Campbell at Penn State?`\
+https://nytimes.com/athletic/6906243/2025/12/20/rocco-becht-transfer-portal-iowa-state-psu/
+
 **Passenger Train in India Hits Elephant Herd, Killing Seven**\
 `No people were injured in the accident, despite a partial derailment. As elephant habitat shrinks, such deadly encounters are on the rise.`\
 https://nytimes.com/2025/12/20/world/asia/india-elephant-train-death.html
