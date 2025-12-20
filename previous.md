@@ -1,3 +1,7 @@
+**Chris Finch ejected less than 6 minutes into game vs. Thunder**\
+`The Timberwolves' coach had repeatedly spoken out about the way the Thunder are officiated prior to this incident. `\
+https://nytimes.com/athletic/6905539/2025/12/19/timberwolves-thunder-chris-finch-ejection-julius-randle/
+
 **Tulane's Jon Sumrall mourns father's death before College Football Playoff**\
 `Jon Sumrall’s father, George, died Thursday night following an illness. He was 77 years old.`\
 https://nytimes.com/athletic/6905515/2025/12/19/tulane-jon-sumrall-father-college-football-playoff/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/19/us/politics/marco-rubio-briefing-reporters.html
 **Lawmakers Criticize Justice Dept. For Not Releasing All Epstein Files**\
 `Republicans and Democrats who had been pressing for the disclosure accused officials of failing to comply with a law that requires all material to be released.`\
 https://nytimes.com/2025/12/19/us/congress-doj-epstein-files.html
-
-**Investigation into plane crash that killed Greg Biffle, 6 others begins**\
-`The plane had 3 licensed pilots aboard, and investigators haven't determined who was operating the aircraft.`\
-https://nytimes.com/athletic/6905224/2025/12/19/greg-biffle-plane-crash-investigation-nascar-ntsb/
 

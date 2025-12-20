@@ -1,3 +1,7 @@
+**Chris Finch ejected less than 6 minutes into game vs. Thunder**\
+`The Timberwolves' coach had repeatedly spoken out about the way the Thunder are officiated prior to this incident. `\
+https://nytimes.com/athletic/6905539/2025/12/19/timberwolves-thunder-chris-finch-ejection-julius-randle/
+
 **Tulane's Jon Sumrall mourns father's death before College Football Playoff**\
 `Jon Sumrall’s father, George, died Thursday night following an illness. He was 77 years old.`\
 https://nytimes.com/athletic/6905515/2025/12/19/tulane-jon-sumrall-father-college-football-playoff/
