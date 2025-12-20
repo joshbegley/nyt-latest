@@ -1,3 +1,7 @@
+**Mahomes, Doncic and Irving surprise teammates with epic gifts: From Playstation 5s to golf carts**\
+`NFL and NBA stars Patrick Mahomes, Luka Dončić, and Kyrie Irving surprised teammates with holiday gifts, from PS5s and e-bikes to golf carts`\
+https://nytimes.com/athletic/6906712/2025/12/20/mahomes-doncic-irving-christmas-gifts-teammates/
+
 **Miami emerges from low-scoring slugfest, downing Texas A&M: Takeaways**\
 `Miami will play No. 2 Ohio State in the Cotton Bowl on Dec. 31.`\
 https://nytimes.com/athletic/6906710/2025/12/20/miami-texas-am-college-football-playoff-takeaways-score/

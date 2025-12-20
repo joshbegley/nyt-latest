@@ -1,3 +1,7 @@
+**Mahomes, Doncic and Irving surprise teammates with epic gifts: From Playstation 5s to golf carts**\
+`NFL and NBA stars Patrick Mahomes, Luka Dončić, and Kyrie Irving surprised teammates with holiday gifts, from PS5s and e-bikes to golf carts`\
+https://nytimes.com/athletic/6906712/2025/12/20/mahomes-doncic-irving-christmas-gifts-teammates/
+
 **Isak set for scan on injury sustained after scoring vs. Tottenham**\
 `Isak was replaced after being caught as he put Liverpool ahead at the Tottenham Hotspur Stadium.`\
 https://nytimes.com/athletic/6906801/2025/12/20/alexander-isak-liverpool-injury-update/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6906782/2025/12/20/suns-vs-warriors-stream-how-to-w
 **How to watch Lakers vs. Clippers: Time, TV, streaming**\
 `Find out how to watch the Los Angeles Lakers play the Los Angeles Clippers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6906779/2025/12/20/lakers-vs-clippers-stream-how-to-watch-dec-20/
-
-**How to watch Golden Knights vs. Flames: Time, TV, streaming**\
-`Find out how to watch the Vegas Golden Knights play the Calgary Flames, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6906775/2025/12/20/golden-knights-vs-flames-stream-how-to-watch-dec-20/
 
