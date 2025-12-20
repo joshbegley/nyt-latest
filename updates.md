@@ -1,3 +1,11 @@
+**The Briefing: Tottenham 1 Liverpool 2: Slot's side hold on, Isak injury, Spurs down to nine men**\
+`Our writers bring you the key talking points from the Tottenham Hotspur Stadium`\
+https://nytimes.com/athletic/6893409/2025/12/20/tottenham-liverpool-result-isak-premier-league/
+
+**U.S. Coast Guard Boards Tanker Carrying Venezuelan Oil**\
+`The vessel, which was flying a Panamanian flag, was not on a list of tankers under U.S. sanctions.`\
+https://nytimes.com/2025/12/20/us/politics/us-coast-guard-venezuela-oil-tanker.html
+
 **Cynthia Lummis, a One-Term G.O.P. Senator, Will Not Seek Re-election**\
 `A conservative who has served in the Senate since 2021, Ms. Lummis attributed the decision to the “difficult, exhausting session” this fall on Capitol Hill.`\
 https://nytimes.com/2025/12/20/us/politics/cynthia-lummis-reelection.html
