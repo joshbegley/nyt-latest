@@ -1,4 +1,4 @@
-**Epstein Files Photos Disappear from Government Website, Including One of Trump**\
+**Epstein Files Photos Disappear From Government Website, Including One of Trump**\
 `A total of 16 photos were taken down at some point on Saturday from the website that the Justice Department created. One featured an open drawer containing other photos, including at least one of President Trump.`\
 https://nytimes.com/2025/12/20/us/politics/trump-epstein-files-government-website.html
 
@@ -15,7 +15,7 @@ https://nytimes.com/athletic/6906996/2025/12/20/ricky-pearsall-out-49ers-colts/
 https://nytimes.com/2025/12/20/crosswords/daily-puzzle-2025-12-21.html
 
 **NHL referee makes wrong goal call, reverses decision after Senators, fans celebrate**\
-`The mix up following a goaltender interference review drastically changed the mood of Senators players and fans at the Canadian Tire Centre.`\
+`The mix-up following a goaltender interference review drastically changed the mood of Senators players and fans at the Canadian Tire Centre.`\
 https://nytimes.com/athletic/6906986/2025/12/20/senators-nhl-referee-goal-call-blackhawks/
 
 **Kenny Dillingham's new contract shows Arizona State is tired of 'sleeping giant' narrative**\
