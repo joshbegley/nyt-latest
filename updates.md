@@ -1,3 +1,7 @@
+**Anthony Joshua (mercifully) stops Jake Paul in sixth round of bizarre heavyweight showdown**\
+`Order has been restored to professional boxing. Or, at least, as much order as boxing ever has.`\
+https://nytimes.com/athletic/6905529/2025/12/20/jake-paul-vs-anthony-joshua-fight-result-netflix/
+
 **Kraken trade Mason Marchment to Blue Jackets for draft picks: Sources**\
 `Marchment, who has four goals and 13 points in 29 games this season, will join his fifth NHL franchise.`\
 https://nytimes.com/athletic/6905647/2025/12/20/kraken-mason-marchment-blue-jackets-trade/

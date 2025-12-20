@@ -1,3 +1,7 @@
+**Anthony Joshua (mercifully) stops Jake Paul in sixth round of bizarre heavyweight showdown**\
+`Order has been restored to professional boxing. Or, at least, as much order as boxing ever has.`\
+https://nytimes.com/athletic/6905529/2025/12/20/jake-paul-vs-anthony-joshua-fight-result-netflix/
+
 **Kraken trade Mason Marchment to Blue Jackets for draft picks: Sources**\
 `Marchment, who has four goals and 13 points in 29 games this season, will join his fifth NHL franchise.`\
 https://nytimes.com/athletic/6905647/2025/12/20/kraken-mason-marchment-blue-jackets-trade/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/20/us/wheres-the-humanity-bondi-attack-leaves-suspec
 **College Football Playoff 2025 projections: Who's favored to advance in the bracket?**\
 `Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
 https://nytimes.com/athletic/6560541/2025/12/20/college-football-playoff-bracket-projections-odds/
-
-**Quote of the Day: Palo Alto Confronts Billionaires Who Hog Its Housing Stock**\
-`Quotation of the Day for Saturday, December 20, 2025.`\
-https://nytimes.com/2025/12/19/pageoneplus/quote-of-the-day-palo-alto-confronts-billionaires-who-hog-its-housing-stock.html
 
