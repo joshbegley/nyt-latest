@@ -1,3 +1,7 @@
+**The Briefing: Everton 0 Arsenal 1 - Arsenal lead the Premier League at Christmas, Gyokeres scores**\
+`Arsenal ground out a win on the road to return to the top of the Premier League`\
+https://nytimes.com/athletic/6893424/2025/12/20/everton-arsenal-top-christmas-result-gyokeres/
+
 **The Briefing: Leeds 4 Crystal Palace 1 - Calvert-Lewin for England? Ampadu's secret weapon?**\
 `A buoyant Leeds United overwhelmed Crystal Palace with a barrage of long throws and corners to continue their recent resurgence`\
 https://nytimes.com/athletic/6893425/2025/12/20/leeds-3-crystal-palace-1/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6906666/2025/12/20/marcus-smart-lakers-jazz-fine-nb
 **Land Grab: Israel’s Escalating Campaign for Control of the West Bank**\
 `Israeli seizure of Palestinian lands in the West Bank, often brutally, has accelerated, raising doubts about the prospects of a peaceful solution to the conflict.`\
 https://nytimes.com/interactive/2025/12/20/world/middleeast/west-bank-settlements.html
-
-**How to watch Magic vs. Jazz: Time, TV, streaming**\
-`Find out how to watch the Orlando Magic play the Utah Jazz, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6906788/2025/12/20/magic-vs-jazz-stream-how-to-watch-dec-20/
 

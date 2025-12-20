@@ -1,3 +1,11 @@
+**The Briefing: Leeds 4 Crystal Palace 1 - Calvert-Lewin for England? Ampadu's secret weapon?**\
+`A buoyant Leeds United overwhelmed Crystal Palace with a barrage of long throws and corners to continue their recent resurgence`\
+https://nytimes.com/athletic/6893425/2025/12/20/leeds-3-crystal-palace-1/
+
+**Blackhawks' Frank Nazar injured after taking puck to the face**\
+`Nazar, a 2022 first-round pick, was recently promoted to No. 1 center due to Connor Bedard's injury,`\
+https://nytimes.com/athletic/6906908/2025/12/20/blackhawks-frank-nazar-injury-face/
+
 **Epstein and Maxwell Grand Jury Records Are Released**\
 `The transcripts and photos were part of Department of Justice files arising from investigations into the disgraced financier and his former girlfriend.`\
 https://nytimes.com/2025/12/20/us/epstein-maxwell-grand-jury.html

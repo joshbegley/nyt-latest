@@ -1,3 +1,11 @@
+**The Briefing: Leeds 4 Crystal Palace 1 - Calvert-Lewin for England? Ampadu's secret weapon?**\
+`A buoyant Leeds United overwhelmed Crystal Palace with a barrage of long throws and corners to continue their recent resurgence`\
+https://nytimes.com/athletic/6893425/2025/12/20/leeds-3-crystal-palace-1/
+
+**Blackhawks' Frank Nazar injured after taking puck to the face**\
+`Nazar, a 2022 first-round pick, was recently promoted to No. 1 center due to Connor Bedard's injury,`\
+https://nytimes.com/athletic/6906908/2025/12/20/blackhawks-frank-nazar-injury-face/
+
 **Epstein and Maxwell Grand Jury Records Are Released**\
 `The transcripts and photos were part of Department of Justice files arising from investigations into the disgraced financier and his former girlfriend.`\
 https://nytimes.com/2025/12/20/us/epstein-maxwell-grand-jury.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2025/12/20/world/middleeast/west-bank-settlement
 **How to watch Magic vs. Jazz: Time, TV, streaming**\
 `Find out how to watch the Orlando Magic play the Utah Jazz, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6906788/2025/12/20/magic-vs-jazz-stream-how-to-watch-dec-20/
-
-**How to watch Trail Blazers vs. Kings: Time, TV, streaming**\
-`Find out how to watch the Portland Trail Blazers play the Sacramento Kings, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6906785/2025/12/20/trail-blazers-vs-kings-stream-how-to-watch-dec-20/
-
-**How to watch Suns vs. Warriors: Time, TV, streaming**\
-`Find out how to watch the Phoenix Suns play the Golden State Warriors, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6906782/2025/12/20/suns-vs-warriors-stream-how-to-watch-dec-20/
 
