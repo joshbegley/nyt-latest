@@ -1,3 +1,7 @@
+**How to watch Tennessee vs. Louisville women's basketball: Time, TV, streaming**\
+`Find out how to watch the Tennessee Lady Volunteers play the Louisville Cardinals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6905865/2025/12/20/tennessee-vs-louisville-stream-how-to-watch-dec-20/
+
 **A ‘Timeout Box’ in an Elementary School Draws Outrage: ‘This is Not OK’**\
 `An upstate New York district, where most students are Native American, placed its superintendent on leave after images of a wooden box in a classroom spread on social media.`\
 https://nytimes.com/2025/12/20/nyregion/school-timeout-box-discipline-new-york.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6905562/2025/12/20/jeff-shi-wolves-fosun-change/
 **The New York Times in Print for Saturday, Dec. 20, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/12/20/todays-new-york-times
-
-**Lou Cannon Dies at 92; Journalist Chronicled Reagan as an Author**\
-`He was a foremost authority on the president, tracing his career in unvarnished accounts from his time as California governor through his years in the White House.`\
-https://nytimes.com/2025/12/20/books/lou-cannon-dead.html
 
