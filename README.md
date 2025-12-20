@@ -1,3 +1,11 @@
+**Ramaswamy Challenges Conservatives on Surging Bigotry on the Right**\
+`The leading Republican candidate for Ohio governor is calling out his party for rising intolerance, including against Indian American immigrants and their children, like him.`\
+https://nytimes.com/2025/12/19/us/politics/vivek-ramaswamy-anti-indian-hate.html
+
+**White House Chides Smithsonian for Delayed Turnover of Records on Programming**\
+`The institution has tried to work with the administration’s demands that it present a more uplifting view of American history.`\
+https://nytimes.com/2025/12/19/us/politics/smithsonian-records-trump.html
+
 **Padres got creative to re-sign Michael King. How will they fill their remaining needs?**\
 `Will the Padres trade Nick Pivetta? Will they keep shopping? With A.J. Preller, you never know what'll happen next.`\
 https://nytimes.com/athletic/6902247/2025/12/19/padres-re-sign-michael-king-offseason-needs/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/19/us/politics/elise-stefanik-trump-governor-congres
 **Tension between Maple Leafs players, Craig Berube appears to be growing**\
 `If a tense practice on Friday is any indication, Craig Berube’s frustration with his players is boiling over.`\
 https://nytimes.com/athletic/6905103/2025/12/19/toronto-maple-leafs-craig-berube-coach-news/
-
-**Candace Parker, Blake Griffin, Kelvin Sampson headline HOF candidate list**\
-`Parker may be the most accomplished newcomer among the candidates for the Naismith Basketball Hall of Fame's Class of 2026.`\
-https://nytimes.com/athletic/6905165/2025/12/19/candace-parker-basketball-hall-of-fame-candidates/
-
-**Pirates upgraded lineup with All-Star slugger Brandon Lowe. What's next?**\
-`There’s still a long way to go to turn the 2026 Pirates into an NL contender, but they look a lot closer than they did last week.`\
-https://nytimes.com/athletic/6905252/2025/12/19/pittsburgh-pirates-brandon-lowe-offseason-analysis/
 
