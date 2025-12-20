@@ -1,3 +1,11 @@
+**The Briefing: Tottenham 1 Liverpool 2: Slot's side hold on, Isak injury, Spurs down to nine men**\
+`Our writers bring you the key talking points from the Tottenham Hotspur Stadium`\
+https://nytimes.com/athletic/6893409/2025/12/20/tottenham-liverpool-result-isak-premier-league/
+
+**U.S. Coast Guard Boards Tanker Carrying Venezuelan Oil**\
+`The vessel, which was flying a Panamanian flag, was not on a list of tankers under U.S. sanctions.`\
+https://nytimes.com/2025/12/20/us/politics/us-coast-guard-venezuela-oil-tanker.html
+
 **Cynthia Lummis, a One-Term G.O.P. Senator, Will Not Seek Re-election**\
 `A conservative who has served in the Senate since 2021, Ms. Lummis attributed the decision to the “difficult, exhausting session” this fall on Capitol Hill.`\
 https://nytimes.com/2025/12/20/us/politics/cynthia-lummis-reelection.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6906230/2025/12/20/dodgers-mlb-luxury-tax-payment-2
 **The Pulse: Streaming the Super Bowl?**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6905734/2025/12/20/is-streaming-the-super-bowl-in-our-future/
-
-**Blue Jackets hope Mason Marchment boosts lineup, jolts dressing room**\
-`GM Don Waddell has wanted Marchment for a while, but he also wanted to change the dynamic with the Blue Jackets.`\
-https://nytimes.com/athletic/6906236/2025/12/20/blue-jackets-mason-marchment-trade-analysis/
-
-**Do people buy NBA Cup champions gear? We investigate**\
-`The NBA Cup doesn't get much respect, but does that stop fans from repping their team's success in the competition? `\
-https://nytimes.com/athletic/6906050/2025/12/20/knicks-nba-cup-merchandise/
 
