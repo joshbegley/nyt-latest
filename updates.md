@@ -1,3 +1,11 @@
+**Rubio Meets (and Meets, and Meets … ) the Press**\
+`The secretary of state held a marathon news conference, offering little news but more respect for reporters than most others in the Trump administration.`\
+https://nytimes.com/2025/12/19/us/politics/marco-rubio-briefing-reporters.html
+
+**Pirates upgraded lineup with All-Star slugger Brandon Lowe. What's next?**\
+`There’s still a long way to go to turn the 2026 Pirates into an NL contender, but they look a lot closer than they did last week.`\
+https://nytimes.com/athletic/6905252/2025/12/19/pittsburgh-pirates-brandon-lowe-offseason-analysis/
+
 **Lawmakers Criticize Justice Dept. For Not Releasing All Epstein Files**\
 `Republicans and Democrats who had been pressing for the disclosure accused officials of failing to comply with a law that requires all material to be released.`\
 https://nytimes.com/2025/12/19/us/congress-doj-epstein-files.html

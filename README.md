@@ -1,3 +1,7 @@
+**Padres got creative to re-sign Michael King. How will they fill their remaining needs?**\
+`Will the Padres trade Nick Pivetta? Will they keep shopping? With A.J. Preller, you never know what'll happen next.`\
+https://nytimes.com/athletic/6902247/2025/12/19/padres-re-sign-michael-king-offseason-needs/
+
 **Rubio Meets (and Meets, and Meets … ) the Press**\
 `The secretary of state held a marathon news conference, offering little news but more respect for reporters than most others in the Trump administration.`\
 https://nytimes.com/2025/12/19/us/politics/marco-rubio-briefing-reporters.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6905165/2025/12/19/candace-parker-basketball-hall-o
 **Pirates upgraded lineup with All-Star slugger Brandon Lowe. What's next?**\
 `There’s still a long way to go to turn the 2026 Pirates into an NL contender, but they look a lot closer than they did last week.`\
 https://nytimes.com/athletic/6905252/2025/12/19/pittsburgh-pirates-brandon-lowe-offseason-analysis/
-
-**Hochul Reaches Deal on A.I. Regulation in New York**\
-`The bill, which lawmakers passed in June, will be modified to more closely match a similar law in California, at Big Tech’s urging.`\
-https://nytimes.com/2025/12/19/nyregion/ai-bill-regulations-ny.html
 
