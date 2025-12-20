@@ -1,3 +1,7 @@
+**Real Sociedad appoint American head coach Matarazzo**\
+`The club has reached an agreement with Matarazzo on a contract through to the end of the 2026-27 season.`\
+https://nytimes.com/athletic/6903263/2025/12/20/real-sociedad-manager-matarazzo/
+
 **Johnny Manziel replaced as 'College GameDay' guest picker by Alex Caruso**\
 `ESPN promoted Manziel as the guest picker earlier this week, but he did not appear on the broadcast Saturday.`\
 https://nytimes.com/athletic/6906634/2025/12/20/johnny-manziel-college-gameday-texas-am/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/20/obituaries/inge-lehmann-overlooked.html
 **Coppola admits concern for World Cup place due to lack of Brighton minutes**\
 `The Italy international made his first league start for Brighton since his summer move on Saturday.`\
 https://nytimes.com/athletic/6906511/2025/12/20/diego-coppola-brighton-italy-world-cup/
-
-**Dodgers to pay record $169 million luxury tax bill after back-to-back World Series wins**\
-`The Dodgers' 2025 tax bill exceeds the payrolls of 12 separate MLB franchises this season.`\
-https://nytimes.com/athletic/6906230/2025/12/20/dodgers-mlb-luxury-tax-payment-2025/
 
