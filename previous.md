@@ -1,3 +1,7 @@
+**The Ashes Briefing: Australia made to work at last, but England resistance is too little too late**\
+`England were set an improbable 435 to win after dismissing Australia before lunch but, after a solid start, they lost key wickets after tea`\
+https://nytimes.com/athletic/6905399/2025/12/20/australia-ashes-england-cummins-crawley-briefing/
+
 **Taiwan’s Subway Stabber Planned His Deadly Spree, Police Say**\
 `Investigators said they were unsure of the attacker’s motives. But clues pointed to an isolated and increasingly troubled life, and no accomplices.`\
 https://nytimes.com/2025/12/20/world/asia/taiwan-subway-stabbing.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6905529/2025/12/20/jake-paul-vs-anthony-joshua-figh
 **Kraken trade Mason Marchment to Blue Jackets for draft picks: Sources**\
 `Marchment, who has four goals and 13 points in 29 games this season, will join his fifth NHL franchise.`\
 https://nytimes.com/athletic/6905647/2025/12/20/kraken-mason-marchment-blue-jackets-trade/
-
-**AFCON, Total Energies and football's problematic links to fossil fuel**\
-`The energy company’s sponsorship is a reminder of how football feels morally compromised on environmental issues`\
-https://nytimes.com/athletic/6899904/2025/12/20/afcon-total-energies-fossil-fuel/
 
