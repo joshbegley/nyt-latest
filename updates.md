@@ -1,3 +1,15 @@
+**NASCAR Star’s Plane Turned Back Minutes After Takeoff**\
+`The National Transportation Safety Board is investigating the crash at a North Carolina airport, which killed seven people, including the driver Greg Biffle and his wife and children.`\
+https://nytimes.com/2025/12/19/us/politics/greg-biffle-plane-crash.html
+
+**Elise Stefanik Tried Everything to Please Trump. He Still Jilted Her.**\
+`The G.O.P. congresswoman who ran as a moderate but became an “ultra MAGA” Trump acolyte ultimately found herself undermined by the president and politically adrift.`\
+https://nytimes.com/2025/12/19/us/politics/elise-stefanik-trump-governor-congress.html
+
+**Tension between Maple Leafs and Craig Berube appears to be growing**\
+`If a tense practice on Friday is any indication, Craig Berube’s frustration with his players is boiling over.`\
+https://nytimes.com/athletic/6905103/2025/12/19/toronto-maple-leafs-craig-berube-coach-news/
+
 **Candace Parker, Blake Griffin, Kelvin Sampson headline HOF candidate list**\
 `Parker may be the most accomplished newcomer among the candidates for the Naismith Basketball Hall of Fame's Class of 2026.`\
 https://nytimes.com/athletic/6905165/2025/12/19/candace-parker-basketball-hall-of-fame-candidates/
