@@ -1,4 +1,4 @@
-**The Briefing: Manchester City 2 West Ham 0: Haaland and Reijnders goals pile pressure on Arsenal**\
+**The Briefing: Manchester City 3 West Ham 0: Haaland and Reijnders goals pile pressure on Arsenal**\
 `Manchester City comfortably beat West Ham 3-0 at the Etihad Stadium. Jordan Campbell brings you the key talking points...`\
 https://nytimes.com/athletic/6893408/2025/12/20/manchester-city-west-ham-premier-league-result/
 
