@@ -1,3 +1,7 @@
+**Was 2025 the End of ‘Teflon Trump’?**\
+`Jamelle Bouie, Michelle Cottle and David French convene to discuss the year that was.`\
+https://nytimes.com/video/opinion/100000010596761/was-2025-the-end-of-teflon-trump.html
+
 **How to watch Flyers vs. Rangers: Time, TV, streaming**\
 `Find out how to watch the Philadelphia Flyers play the New York Rangers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6905981/2025/12/20/flyers-vs-rangers-stream-how-to-watch-dec-20/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6905959/2025/12/20/iowa-vs-uconn-stream-how-to-watc
 **NFL Saturday is back. Here's how to watch Eagles vs. Commanders, Packers vs. Bears**\
 `The NFL returns to Saturday action with two of its most revered rivalries. Here's what you need to know.`\
 https://nytimes.com/athletic/6902125/2025/12/20/nfl-saturday-schedule-eagles-commanders-packers-bears/
-
-**NFL Week 16 roundtable: Parsons-less Packers meet Bears, Jaguars-Broncos, NFC South woes**\
-`Jaguars-Broncos could be the week's biggest showdown, while the Packers and Bears battle in the NFC North. Our writers discuss Week 16.`\
-https://nytimes.com/athletic/6904531/2025/12/20/nfl-week-16-parsons-jaguars-bears-broncos-patriots/
 
