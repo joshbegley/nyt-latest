@@ -1,3 +1,7 @@
+**Mahomes, Doncic and Irving surprise teammates with epic gifts: From Playstation 5s to golf carts**\
+`NFL and NBA stars Patrick Mahomes, Luka Dončić and Kyrie Irving surprised teammates with holiday gifts, from PS5s and e-bikes to golf carts.`\
+https://nytimes.com/athletic/6906712/2025/12/20/mahomes-doncic-irving-christmas-gifts-teammates/
+
 **Kenny Dillingham's new contract shows Arizona State is tired of 'sleeping giant' narrative**\
 `Dillingham said he never doubted the agreement would get done, which suggests his interest in Michigan may not have been that strong.`\
 https://nytimes.com/athletic/6906853/2025/12/20/kenny-dillingham-arizona-state-contract/
