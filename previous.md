@@ -1,3 +1,7 @@
+**In Washington, it's out with the old, in with the newest, youngest leadership in baseball**\
+`The Nationals were known as one of MLB's most traditional organizations. Now they're bringing in a uniformly young, fresh group to lead. `\
+https://nytimes.com/athletic/6905130/2025/12/20/washington-nationals-young-leadership-toboni-butera-kilambi/
+
 **Raja Shehadeh Believes Israelis and Palestinians Can Still Find Peace**\
 `The writer and lawyer has been documenting the occupation for decades. Somehow, he maintains hope.`\
 https://nytimes.com/2025/12/20/magazine/raja-shehadeh-interview.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/100000010596053/la-raid-immigration-us-citizens-vid
 **They Sang, They Danced, They Camped Out: What Fans Did for Bad Bunny**\
 `The award-winning Puerto Rican artist, the most-streamed on the planet, is performing eight concerts in Mexico. People flocked from all over the world, including the United States.`\
 https://nytimes.com/2025/12/20/world/americas/bad-bunny-mexico-city.html
-
-**As the ‘Avatar’ Villain Varang, Oona Chaplin Connected With Her Rage**\
-`She had been working with refugees and channeled her anger over their situation into the ferocious performance, which was filmed several years ago.`\
-https://nytimes.com/2025/12/20/movies/as-the-avatar-villain-varang-oona-chaplin-connected-with-her-rage.html
 

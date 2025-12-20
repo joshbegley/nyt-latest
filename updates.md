@@ -1,3 +1,7 @@
+**In Washington, it's out with the old, in with the newest, youngest leadership in baseball**\
+`The Nationals were known as one of MLB's most traditional organizations. Now they're bringing in a uniformly young, fresh group to lead. `\
+https://nytimes.com/athletic/6905130/2025/12/20/washington-nationals-young-leadership-toboni-butera-kilambi/
+
 **Raja Shehadeh Believes Israelis and Palestinians Can Still Find Peace**\
 `The writer and lawyer has been documenting the occupation for decades. Somehow, he maintains hope.`\
 https://nytimes.com/2025/12/20/magazine/raja-shehadeh-interview.html
