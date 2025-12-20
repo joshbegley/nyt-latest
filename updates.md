@@ -1,3 +1,7 @@
+**Lou Cannon, Journalist Who Chronicled Reagan in Books, Dies at 92**\
+`He was a foremost authority on the president, tracking his career, in unvarnished accounts, from his time as California governor through his years in the White House.`\
+https://nytimes.com/2025/12/20/books/lou-cannon-dead.html
+
 **The New York Times in Print for Saturday, Dec. 20, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/12/20/todays-new-york-times
