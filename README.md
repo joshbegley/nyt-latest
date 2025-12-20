@@ -1,3 +1,7 @@
+**Sabres fire associate GM Jason Karmanos in first front-office move by Jarmo Kekäläinen**\
+`Kekäläinen may try to surround himself with trusted assistants from Columbus to start changing the culture in Buffalo. `\
+https://nytimes.com/athletic/6906529/2025/12/20/jason-karmanos-fired-buffalo-sabres-general-manager/
+
 **'Do we want to be remembered for being cowards?' Doherty warns Wolves**\
 `Doherty also said pushing to leave in January was the "easy option", and claimed his side have become “scared” to take the lead in games.`\
 https://nytimes.com/athletic/6906576/2025/12/20/matt-doherty-wolves-relegation-warning/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6906050/2025/12/20/knicks-nba-cup-merchandise/
 **Chelsea coach Maresca to serve touchline ban for Villa game**\
 `Maresca will serve his second touchline ban of the season for Chelsea's Premier League match at home against Aston Villa on December 27. `\
 https://nytimes.com/athletic/6906284/2025/12/20/enzo-maresca-chelsea-suspension/
-
-**California Faces a Weeklong Lashing of Rain, Wind and Some Snow**\
-`Forecasters said a parade of storms from the Pacific Ocean will pull in a river of moisture. Over the next week, parts of Northern California could get seven to 10 inches of rain.`\
-https://nytimes.com/2025/12/20/weather/california-rain-atmospheric-river.html
 
