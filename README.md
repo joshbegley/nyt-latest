@@ -1,3 +1,7 @@
+**NFL Saturday is back. Here's how to watch Eagles vs. Commanders, Packers vs. Bears**\
+`The NFL returns to Saturday action with two of its most revered rivalries. Here's what you need to know.`\
+https://nytimes.com/athletic/6902125/2025/12/20/nfl-saturday-schedule-eagles-commanders-packers-bears/
+
 **NFL Week 16 roundtable: Parsons-less Packers meet Bears, Jaguars-Broncos, NFC South woes**\
 `Jaguars-Broncos could be the week's biggest showdown, while the Packers and Bears battle in the NFC North. Our writers discuss Week 16.`\
 https://nytimes.com/athletic/6904531/2025/12/20/nfl-week-16-parsons-jaguars-bears-broncos-patriots/
@@ -34,8 +38,4 @@ https://nytimes.com/2025/12/20/magazine/concierge-medical-practice-ethics.html
 **Connections Companion No. 924**\
 `Scroll down for hints and conversation about the puzzle for Sunday, Dec. 21, 2025.`\
 https://nytimes.com/2025/12/20/crosswords/connections-companion-924.html
-
-**Best of 2025, Canada Edition**\
-`Here are the Canadian standouts from The Times’s culture, books and arts coverage over the last year.`\
-https://nytimes.com/2025/12/20/world/canada/best-of-2025-canada-edition.html
 
