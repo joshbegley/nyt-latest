@@ -1,3 +1,7 @@
+**The Briefing: Manchester City 2 West Ham 0: Haaland and Reijnders goals pile pressure on Arsenal**\
+`Manchester City comfortably beat West Ham 3-0 at the Etihad Stadium. Jordan Campbell brings you the key talking points...`\
+https://nytimes.com/athletic/6893408/2025/12/20/manchester-city-west-ham-premier-league-result/
+
 **Adeyemi to be fined by Dortmund for reaction to being substituted**\
 `After being withdrawn, Adeyemi walked past the Dortmund bench and appeared to be heading towards the tunnel and back to the dressing room.`\
 https://nytimes.com/athletic/6906226/2025/12/20/karim-adeyemi-dortmund-fined/
