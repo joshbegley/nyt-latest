@@ -1,3 +1,11 @@
+**Epstein and Maxwell Grand Jury Records Are Released**\
+`The transcripts and photos were part of Department of Justice files arising from investigations into the disgraced financier and his former girlfriend.`\
+https://nytimes.com/2025/12/20/us/epstein-maxwell-grand-jury.html
+
+**Mahomes, Doncic and Irving surprise teammates with epic gifts: From Playstation 5s to golf carts**\
+`NFL and NBA stars Patrick Mahomes, Luka Dončić and Kyrie Irving surprised teammates with holiday gifts, from PS5s and e-bikes to golf carts.`\
+https://nytimes.com/athletic/6906712/2025/12/20/mahomes-doncic-irving-christmas-gifts-teammates/
+
 **Mahomes, Doncic and Irving surprise teammates with epic gifts: From Playstation 5s to golf carts**\
 `NFL and NBA stars Patrick Mahomes, Luka Dončić, and Kyrie Irving surprised teammates with holiday gifts, from PS5s and e-bikes to golf carts`\
 https://nytimes.com/athletic/6906712/2025/12/20/mahomes-doncic-irving-christmas-gifts-teammates/
