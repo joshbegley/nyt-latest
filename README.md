@@ -1,3 +1,15 @@
+**How to watch North Carolina vs. Ohio State men's basketball: Time, TV, streaming**\
+`Find out how to watch the North Carolina Tar Heels play the Ohio State Buckeyes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6906094/2025/12/20/north-carolina-vs-ohio-state-stream-how-to-watch-dec-20/
+
+**How to watch Kansas State vs. TCU women's basketball: Time, TV, streaming**\
+`Find out how to watch the Kansas State Wildcats play the TCU Horned Frogs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6906092/2025/12/20/kansas-state-vs-tcu-stream-how-to-watch-dec-20/
+
+**How to watch Long Beach State vs. UCLA women's basketball: Time, TV, streaming**\
+`Find out how to watch the Long Beach State Beach play the UCLA Bruins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6906086/2025/12/20/long-beach-state-vs-ucla-stream-how-to-watch-dec-20/
+
 **Arizona State's Dillingham signs new deal, taking Michigan candidate off board: Source**\
 `The new contract will raise Dillingham's salary to $7.5 million per year.`\
 https://nytimes.com/athletic/6906044/2025/12/20/kenny-dillingham-arizona-state-contract-michigan/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/12/20/business/dealbook/charts-2025-economy.html
 **U.S. Strikes on Syria Underscore Scale of Challenge for Its President**\
 `The Syrian government did not comment directly on the extensive American strikes targeting the Islamic State on Friday, but said it was intensifying its own efforts to fight the group.`\
 https://nytimes.com/2025/12/20/world/middleeast/us-strikes-syria-aftermath.html
-
-**Closing Arguments**\
-`Today, your highly personal, delightfully specific bests of 2025.`\
-https://nytimes.com/2025/12/20/briefing/morning-readers-best-of-2025.html
-
-**How to watch FCS semifinals: A Brawl of the Wild sequel and an underdog matchup**\
-`Cinderella runs and in-state rivalries headline Saturday's FCS playoff semifinals.`\
-https://nytimes.com/athletic/6901265/2025/12/20/fcs-playoffs-semifinals-montana-state-rivalry-tv-2025/
-
-**Olympic check-in: Which Rangers have the best chance to go to Milan?**\
-`The Rangers have multiple players with realistic chances to make Olympic rosters, including a few Americans.`\
-https://nytimes.com/athletic/6904592/2025/12/20/olympics-hockey-rangers-players-roster-chances/
 
