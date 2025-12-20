@@ -1,3 +1,7 @@
+**Closing Arguments**\
+`Today, your highly personal, delightfully specific bests of 2025.`\
+https://nytimes.com/2025/12/20/briefing/morning-readers-best-of-2025.html
+
 **How to watch FCS semifinals: A Brawl of the Wild sequel and an underdog matchup**\
 `Cinderella runs and in-state rivalries headline Saturday's FCS playoff semifinals.`\
 https://nytimes.com/athletic/6901265/2025/12/20/fcs-playoffs-semifinals-montana-state-rivalry-tv-2025/

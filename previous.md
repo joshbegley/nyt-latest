@@ -1,3 +1,7 @@
+**Closing Arguments**\
+`Today, your highly personal, delightfully specific bests of 2025.`\
+https://nytimes.com/2025/12/20/briefing/morning-readers-best-of-2025.html
+
 **How to watch FCS semifinals: A Brawl of the Wild sequel and an underdog matchup**\
 `Cinderella runs and in-state rivalries headline Saturday's FCS playoff semifinals.`\
 https://nytimes.com/athletic/6901265/2025/12/20/fcs-playoffs-semifinals-montana-state-rivalry-tv-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6905664/2025/12/20/celtics-heat-score-result-derric
 **Rating every NHL team's goal song for the 2025-26 season**\
 `For years, goal songs have signaled joy in NHL arenas. Our staff rated each one, based on personal opinions and how the tune fits the team.`\
 https://nytimes.com/athletic/6898752/2025/12/20/nhl-team-goal-songs-2025-2026-best-rankings/
-
-**How Mariners helped Mets with Jorge Polanco's transition to first base**\
-`Despite Seattle working with him on first-base fundamentals this past season, Polanco still has some habits he'll need to break.`\
-https://nytimes.com/athletic/6905374/2025/12/20/mets-jorge-polanco-first-base-mariners/
 
