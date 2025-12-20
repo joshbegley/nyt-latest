@@ -1,3 +1,7 @@
+**The Pulse: Streaming the Super Bowl?**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6905734/2025/12/20/is-streaming-the-super-bowl-in-our-future/
+
 **Blue Jackets hope Mason Marchment boosts lineup, jolts dressing room**\
 `GM Don Waddell has wanted Marchment for a while, but he also wanted to change the dynamic with the Blue Jackets.`\
 https://nytimes.com/athletic/6906236/2025/12/20/blue-jackets-mason-marchment-trade-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6906428/2025/12/20/hurricanes-vs-lightning-stream-h
 **How to watch Pacers vs. Pelicans: Time, TV, streaming**\
 `Find out how to watch the Indiana Pacers play the New Orleans Pelicans, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6906425/2025/12/20/pacers-vs-pelicans-stream-how-to-watch-dec-20/
-
-**How to watch Maple Leafs vs. Predators: Time, TV, streaming**\
-`Find out how to watch the Toronto Maple Leafs play the Nashville Predators, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6906422/2025/12/20/maple-leafs-vs-predators-stream-how-to-watch-dec-20/
 

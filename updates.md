@@ -1,3 +1,7 @@
+**The Pulse: Streaming the Super Bowl?**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6905734/2025/12/20/is-streaming-the-super-bowl-in-our-future/
+
 **Blue Jackets hope Mason Marchment boosts lineup, jolts dressing room**\
 `GM Don Waddell has wanted Marchment for a while, but he also wanted to change the dynamic with the Blue Jackets.`\
 https://nytimes.com/athletic/6906236/2025/12/20/blue-jackets-mason-marchment-trade-analysis/
