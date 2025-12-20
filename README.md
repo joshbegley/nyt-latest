@@ -6,7 +6,7 @@ https://nytimes.com/athletic/6897056/2025/12/20/man-city-guardiola-nunes-oreilly
 `His dramatic winner against Arsenal embodied the resilience that has defined the season to date for the Argentinian and his club`\
 https://nytimes.com/athletic/6898947/2025/12/20/emi-buendia-tactical-rebirth/
 
-**Anthony Joshua (mercifully) stops Jake Paul in sixth round of bizarre heavyweight showdown**\
+**Anthony Joshua breezes back to heavyweight stardom with rout of dancing, trolling Jake Paul**\
 `Order has been restored to professional boxing. Or, at least, as much order as boxing ever has.`\
 https://nytimes.com/athletic/6905529/2025/12/20/jake-paul-vs-anthony-joshua-fight-result-netflix/
 
