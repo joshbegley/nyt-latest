@@ -1,3 +1,11 @@
+**How to watch Oilers vs. Wild: Time, TV, streaming**\
+`Find out how to watch the Edmonton Oilers play the Minnesota Wild, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6906105/2025/12/20/oilers-vs-wild-stream-how-to-watch-dec-20/
+
+**How to watch Islanders vs. Sabres: Time, TV, streaming**\
+`Find out how to watch the New York Islanders play the Buffalo Sabres, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6906103/2025/12/20/islanders-vs-sabres-stream-how-to-watch-dec-20/
+
 **How to watch North Carolina vs. Ohio State men's basketball: Time, TV, streaming**\
 `Find out how to watch the North Carolina Tar Heels play the Ohio State Buckeyes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6906094/2025/12/20/north-carolina-vs-ohio-state-stream-how-to-watch-dec-20/
