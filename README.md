@@ -1,3 +1,19 @@
+**How to watch Houston vs. Arkansas men's basketball: Time, TV, streaming**\
+`Find out how to watch the Houston Cougars play the Arkansas Razorbacks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6906394/2025/12/20/houston-vs-arkansas-stream-how-to-watch-dec-20/
+
+**How to watch Maryland vs. Virginia men's basketball: Time, TV, streaming**\
+`Find out how to watch the Maryland Terrapins play the Virginia Cavaliers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6906388/2025/12/20/maryland-vs-virginia-stream-how-to-watch-dec-20/
+
+**How to watch Texas Tech vs. Duke men's basketball: Time, TV, streaming**\
+`Find out how to watch the Texas Tech Red Raiders play the Duke Blue Devils, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6906378/2025/12/20/texas-tech-vs-duke-stream-how-to-watch-dec-20/
+
+**How to watch Auburn vs. Purdue men's basketball: Time, TV, streaming**\
+`Find out how to watch the Auburn Tigers play the Purdue Boilermakers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6906375/2025/12/20/auburn-vs-purdue-stream-how-to-watch-dec-20/
+
 **The Briefing: Manchester City 3 West Ham 0: Haaland and Reijnders goals pile pressure on Arsenal**\
 `Manchester City comfortably beat West Ham 3-0 at the Etihad Stadium. Jordan Campbell brings you the key talking points...`\
 https://nytimes.com/athletic/6893408/2025/12/20/manchester-city-west-ham-premier-league-result/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/12/20/dining/now-bring-us-some-sticky-toffee-pudding.ht
 **Donald Trump Is Very Unhappy With You**\
 `It’s all over but the shouting.`\
 https://nytimes.com/2025/12/20/opinion/trump-speech-address.html
-
-**Robert Mnuchin, Stock Trader Turned Art Dealer, Dies at 92**\
-`A major player in the block-trading boom, he left Wall Street for the art world, winning a Jeff Koons sculpture at auction for $91 million in 2019.`\
-https://nytimes.com/2025/12/20/arts/design/robert-mnuchin-dead.html
-
-**Bowen Yang Is Leaving ‘S.N.L.’ After This Weekend’s Episode**\
-`Yang has been part of the NBC sketch show since 2018, earning five Emmy nominations.`\
-https://nytimes.com/2025/12/20/arts/television/bowen-yang-leaving-snl.html
-
-**Thiago Silva, 41, to join Porto after Fluminense exit**\
-`The 41-year-old defender will be able to represent the Portuguese club from January, when the registration period opens.`\
-https://nytimes.com/athletic/6906180/2025/12/20/thiago-silva-porto-transfer/
-
-**'It got us going': Chris Finch's fiery exit spurs Wolves to their most intense performance of the season**\
-`It was only a matter of time before Chris Finch would erupt. The Timberwolves used it as fuel in their win over the Thunder.`\
-https://nytimes.com/athletic/6905316/2025/12/20/chris-finch-timberwolves-thunder/
 
