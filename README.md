@@ -1,3 +1,7 @@
+**Kenny Dillingham's new contract shows Arizona State is tired of 'sleeping giant' narrative**\
+`Dillingham said he never doubted the agreement would get done, which suggests his interest in Michigan may not have been that strong.`\
+https://nytimes.com/athletic/6906853/2025/12/20/kenny-dillingham-arizona-state-contract/
+
 **Frank calls decision to award Ekitike goal 'a mistake'**\
 `Ekitike scored his side's second during the 2-1 win at the Tottenham Hotspur Stadium, climbing above Cristian Romero to head home.`\
 https://nytimes.com/athletic/6907040/2025/12/20/thomas-frank-hugo-ekitike-goal-liverpool-tottenham/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6906908/2025/12/20/blackhawks-frank-nazar-injury-fa
 **Epstein and Maxwell Grand Jury Records Are Released**\
 `The transcripts and photos were part of Department of Justice files arising from investigations into the disgraced financier and his former girlfriend.`\
 https://nytimes.com/2025/12/20/us/epstein-maxwell-grand-jury.html
-
-**Mahomes, Doncic and Irving surprise teammates with epic gifts: From Playstation 5s to golf carts**\
-`NFL and NBA stars Patrick Mahomes, Luka Dončić and Kyrie Irving surprised teammates with holiday gifts, from PS5s and e-bikes to golf carts.`\
-https://nytimes.com/athletic/6906712/2025/12/20/mahomes-doncic-irving-christmas-gifts-teammates/
 
