@@ -1,3 +1,11 @@
+**6 Takeaways From the First Batch of the Epstein Files**\
+`Many of the Justice Department documents were heavily redacted, and President Trump’s name was rarely mentioned. The White House also sought to make political hay of the release of photos of Bill Clinton.`\
+https://nytimes.com/2025/12/19/us/politics/epstein-files-takeaways.html
+
+**Chris Finch ejected less than 6 minutes into game vs. Thunder**\
+`The Timberwolves' coach had repeatedly spoken out about the way the Thunder are officiated before this incident. `\
+https://nytimes.com/athletic/6905539/2025/12/19/timberwolves-thunder-chris-finch-ejection-julius-randle/
+
 **Chris Finch ejected less than 6 minutes into game vs. Thunder**\
 `The Timberwolves' coach had repeatedly spoken out about the way the Thunder are officiated prior to this incident. `\
 https://nytimes.com/athletic/6905539/2025/12/19/timberwolves-thunder-chris-finch-ejection-julius-randle/

@@ -1,5 +1,9 @@
+**6 Takeaways From the First Batch of the Epstein Files**\
+`Many of the Justice Department documents were heavily redacted, and President Trump’s name was rarely mentioned. The White House also sought to make political hay of the release of photos of Bill Clinton.`\
+https://nytimes.com/2025/12/19/us/politics/epstein-files-takeaways.html
+
 **Chris Finch ejected less than 6 minutes into game vs. Thunder**\
-`The Timberwolves' coach had repeatedly spoken out about the way the Thunder are officiated prior to this incident. `\
+`The Timberwolves' coach had repeatedly spoken out about the way the Thunder are officiated before this incident. `\
 https://nytimes.com/athletic/6905539/2025/12/19/timberwolves-thunder-chris-finch-ejection-julius-randle/
 
 **Tulane's Jon Sumrall mourns father's death before College Football Playoff**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6902247/2025/12/19/padres-re-sign-michael-king-offs
 **Rubio Meets (and Meets, and Meets … ) the Press**\
 `The secretary of state held a marathon news conference, offering little news but more respect for reporters than most others in the Trump administration.`\
 https://nytimes.com/2025/12/19/us/politics/marco-rubio-briefing-reporters.html
-
-**Lawmakers Criticize Justice Dept. For Not Releasing All Epstein Files**\
-`Republicans and Democrats who had been pressing for the disclosure accused officials of failing to comply with a law that requires all material to be released.`\
-https://nytimes.com/2025/12/19/us/congress-doj-epstein-files.html
 
