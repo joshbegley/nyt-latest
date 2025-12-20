@@ -30,7 +30,7 @@ https://nytimes.com/athletic/6906092/2025/12/20/kansas-state-vs-tcu-stream-how-t
 `Find out how to watch the Long Beach State Beach play the UCLA Bruins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6906086/2025/12/20/long-beach-state-vs-ucla-stream-how-to-watch-dec-20/
 
-**Arizona State's Dillingham signs new deal, taking Michigan candidate off board: Source**\
+**Arizona State's Dillingham signs new deal as Michigan search continues: Source**\
 `The new contract will raise Dillingham's salary to $7.5 million per year.`\
 https://nytimes.com/athletic/6906044/2025/12/20/kenny-dillingham-arizona-state-contract-michigan/
 
