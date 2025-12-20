@@ -1,3 +1,7 @@
+**Passenger Train in India Hits Elephant Herd, Killing Seven**\
+`No people were injured in the accident, despite a partial derailment. As elephant habitat shrinks, such deadly encounters are on the rise.`\
+https://nytimes.com/2025/12/20/world/asia/india-elephant-train-death.html
+
 **Now Bring Us Some Sticky Toffee Pudding**\
 `No tricky techniques, no specialty ingredients, just perfect sticky toffee pudding with “extra” sauce.`\
 https://nytimes.com/2025/12/20/dining/now-bring-us-some-sticky-toffee-pudding.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6901780/2025/12/20/chabot-batherson-sanderson-trade
 **The Briefing: Newcastle 2 Chelsea 2 — What did Maresca say at half-time? How did Gordon not earn penalty?**\
 `Newcastle's meeting with Chelsea was packed with drama — The Athletic analyses all the talking points`\
 https://nytimes.com/athletic/6893407/2025/12/20/newcastle-2-chelsea-2-maresca-woltemade-gordon-james-joao-pedro/
-
-**How to watch Blackhawks vs. Senators: Time, TV, streaming**\
-`Find out how to watch the Chicago Blackhawks play the Ottawa Senators, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6906111/2025/12/20/blackhawks-vs-senators-stream-how-to-watch-dec-20/
 
