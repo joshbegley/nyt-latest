@@ -1,3 +1,23 @@
+**A ‘Timeout Box’ in an Elementary School Draws Outrage: ‘This is Not OK’**\
+`An upstate New York district, where most students are Native American, placed its superintendent on leave after images of a wooden box in a classroom spread on social media.`\
+https://nytimes.com/2025/12/20/nyregion/school-timeout-box-discipline-new-york.html
+
+**A Weekly Gathering for Those Who Fled the Nazis Ends After 82 Years**\
+`The meetings began in 1943 in a German enclave in Manhattan. When the last member to experience life under Hitler died, the original purpose was gone.`\
+https://nytimes.com/2025/12/20/nyregion/nazi-refugee-stammtisch.html
+
+**How the Head of a Baby Food Company Spends a Day Taste-Testing**\
+`Angela Vranich, the co-founder of Little Spoon, tries new smoothie flavors as she keeps up with her sheepadoodle, workout schedule and grown-up friends.`\
+https://nytimes.com/2025/12/20/nyregion/angela-vranich-little-spoon.html
+
+**Crypto Fraudster Sam Bankman-Fried Has New Pursuit: Jailhouse Lawyer**\
+`The man convicted of taking billions has advised the former president of Honduras and Sean Combs, among others. He said in an interview that he helps in ways overwhelmed lawyers cannot.`\
+https://nytimes.com/2025/12/20/nyregion/sam-bankman-fried-jailhouse-lawyer.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/12/20/crosswords/spelling-bee-forum.html
+
 **The Ashes Briefing: Australia made to work at last, but England resistance is too little too late**\
 `England were set an improbable 435 to win after dismissing Australia before lunch but, after a solid start, they lost key wickets after tea`\
 https://nytimes.com/athletic/6905399/2025/12/20/australia-ashes-england-cummins-crawley-briefing/
