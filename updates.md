@@ -1,3 +1,7 @@
+**Padres got creative to re-sign Michael King. How will they fill their remaining needs?**\
+`Will the Padres trade Nick Pivetta? Will they keep shopping? With A.J. Preller, you never know what'll happen next.`\
+https://nytimes.com/athletic/6902247/2025/12/19/padres-re-sign-michael-king-offseason-needs/
+
 **Rubio Meets (and Meets, and Meets … ) the Press**\
 `The secretary of state held a marathon news conference, offering little news but more respect for reporters than most others in the Trump administration.`\
 https://nytimes.com/2025/12/19/us/politics/marco-rubio-briefing-reporters.html
