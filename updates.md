@@ -1,3 +1,11 @@
+**Sabres fire associate GM Jason Karmanos in first front-office move by Jarmo Kekäläinen**\
+`Kekäläinen may try to surround himself with trusted assistants from Columbus to start changing the culture in Buffalo. `\
+https://nytimes.com/athletic/6906529/2025/12/20/jason-karmanos-fired-buffalo-sabres-general-manager/
+
+**'Do we want to be remembered for being cowards?' Doherty warns Wolves**\
+`Doherty also said pushing to leave in January was the "easy option", and claimed his side have become “scared” to take the lead in games.`\
+https://nytimes.com/athletic/6906576/2025/12/20/matt-doherty-wolves-relegation-warning/
+
 **Rosenthal: Why Orioles and Rays made Shane Baz trade – and how it benefits both AL East rivals**\
 `The O's get a potential No. 1 starter. With this deal and an earlier trade Friday, the Rays added six prospects to their top 30.`\
 https://nytimes.com/athletic/6906479/2025/12/20/orioles-rays-trade-al-east-shane-baz/
