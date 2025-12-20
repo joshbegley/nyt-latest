@@ -1,3 +1,23 @@
+**A ‘Timeout Box’ in an Elementary School Draws Outrage: ‘This is Not OK’**\
+`An upstate New York district, where most students are Native American, placed its superintendent on leave after images of a wooden box in a classroom spread on social media.`\
+https://nytimes.com/2025/12/20/nyregion/school-timeout-box-discipline-new-york.html
+
+**A Weekly Gathering for Those Who Fled the Nazis Ends After 82 Years**\
+`The meetings began in 1943 in a German enclave in Manhattan. When the last member to experience life under Hitler died, the original purpose was gone.`\
+https://nytimes.com/2025/12/20/nyregion/nazi-refugee-stammtisch.html
+
+**How the Head of a Baby Food Company Spends a Day Taste-Testing**\
+`Angela Vranich, the co-founder of Little Spoon, tries new smoothie flavors as she keeps up with her sheepadoodle, workout schedule and grown-up friends.`\
+https://nytimes.com/2025/12/20/nyregion/angela-vranich-little-spoon.html
+
+**Crypto Fraudster Sam Bankman-Fried Has New Pursuit: Jailhouse Lawyer**\
+`The man convicted of taking billions has advised the former president of Honduras and Sean Combs, among others. He said in an interview that he helps in ways overwhelmed lawyers cannot.`\
+https://nytimes.com/2025/12/20/nyregion/sam-bankman-fried-jailhouse-lawyer.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/12/20/crosswords/spelling-bee-forum.html
+
 **The Ashes Briefing: Australia made to work at last, but England resistance is too little too late**\
 `England were set an improbable 435 to win after dismissing Australia before lunch but, after a solid start, they lost key wickets after tea`\
 https://nytimes.com/athletic/6905399/2025/12/20/australia-ashes-england-cummins-crawley-briefing/
@@ -17,24 +37,4 @@ https://nytimes.com/issue/todayspaper/2025/12/20/todays-new-york-times
 **Lou Cannon Dies at 92; Journalist Chronicled Reagan as an Author**\
 `He was a foremost authority on the president, tracing his career in unvarnished accounts from his time as California governor through his years in the White House.`\
 https://nytimes.com/2025/12/20/books/lou-cannon-dead.html
-
-**Mangione’s Lawyers Take Issue With Bondi’s Ties to UnitedHealthcare**\
-`Lawyers for Luigi Mangione, who is accused of killing UnitedHealthcare’s chief executive, say Attorney General Pam Bondi should have recused herself from the case.`\
-https://nytimes.com/2025/12/20/nyregion/luigi-mangione-pam-bondi-united-healthcare.html
-
-**NHL trade grades: Phillip Danault makes sense for Canadiens — despite obvious red flag**\
-`While the idea of adding a clutch playoff performer sounds enticing, Danault's offensive downturn and contract are a concern.`\
-https://nytimes.com/athletic/6905624/2025/12/20/kings-canadiens-phillip-danault-trade-grades-nhl/
-
-**Buendia embodies everything Emery wants from a No 10**\
-`His dramatic winner against Arsenal embodied the resilience that has defined the season to date for the Argentinian and his club`\
-https://nytimes.com/athletic/6898947/2025/12/20/emi-buendia-tactical-rebirth/
-
-**Anthony Joshua breezes back to heavyweight stardom with rout of dancing, trolling Jake Paul**\
-`Order has been restored to professional boxing. Or, at least, as much order as boxing ever has.`\
-https://nytimes.com/athletic/6905529/2025/12/20/jake-paul-vs-anthony-joshua-fight-result-netflix/
-
-**Kraken trade Mason Marchment to Blue Jackets for draft picks: Sources**\
-`Marchment, who has four goals and 13 points in 29 games this season, will join his fifth NHL franchise.`\
-https://nytimes.com/athletic/6905647/2025/12/20/kraken-mason-marchment-blue-jackets-trade/
 
