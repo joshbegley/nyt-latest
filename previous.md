@@ -1,3 +1,7 @@
+**Judge Blocks Trump Administration’s Homeless Aid Plan**\
+`The proposal would have required recipients to get treatment for addiction or mental illness as a condition of receiving housing funds. The administration has said it will try again.`\
+https://nytimes.com/2025/12/19/us/politics/trump-homelessness-funding-judge.html
+
 **Ramaswamy Challenges Conservatives on Surging Bigotry on the Right**\
 `The leading Republican candidate for Ohio governor is calling out his party for rising intolerance, including against Indian American immigrants and their children, like him.`\
 https://nytimes.com/2025/12/19/us/politics/vivek-ramaswamy-anti-indian-hate.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/19/us/politics/greg-biffle-plane-crash.html
 **Elise Stefanik Tried Everything to Please Trump. He Still Jilted Her.**\
 `The G.O.P. congresswoman who ran as a moderate but became an “ultra MAGA” Trump acolyte ultimately found herself undermined by the president and politically adrift.`\
 https://nytimes.com/2025/12/19/us/politics/elise-stefanik-trump-governor-congress.html
-
-**Tension between Maple Leafs players, Craig Berube appears to be growing**\
-`If a tense practice on Friday is any indication, Craig Berube’s frustration with his players is boiling over.`\
-https://nytimes.com/athletic/6905103/2025/12/19/toronto-maple-leafs-craig-berube-coach-news/
 

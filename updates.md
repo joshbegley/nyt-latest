@@ -1,3 +1,7 @@
+**Judge Blocks Trump Administration’s Homeless Aid Plan**\
+`The proposal would have required recipients to get treatment for addiction or mental illness as a condition of receiving housing funds. The administration has said it will try again.`\
+https://nytimes.com/2025/12/19/us/politics/trump-homelessness-funding-judge.html
+
 **Ramaswamy Challenges Conservatives on Surging Bigotry on the Right**\
 `The leading Republican candidate for Ohio governor is calling out his party for rising intolerance, including against Indian American immigrants and their children, like him.`\
 https://nytimes.com/2025/12/19/us/politics/vivek-ramaswamy-anti-indian-hate.html
