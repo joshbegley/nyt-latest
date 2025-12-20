@@ -1,3 +1,11 @@
+**Ramaswamy Challenges Conservatives on Surging Bigotry on the Right**\
+`The leading Republican candidate for Ohio governor is calling out his party for rising intolerance, including against Indian American immigrants and their children, like him.`\
+https://nytimes.com/2025/12/19/us/politics/vivek-ramaswamy-anti-indian-hate.html
+
+**White House Chides Smithsonian for Delayed Turnover of Records on Programming**\
+`The institution has tried to work with the administration’s demands that it present a more uplifting view of American history.`\
+https://nytimes.com/2025/12/19/us/politics/smithsonian-records-trump.html
+
 **Padres got creative to re-sign Michael King. How will they fill their remaining needs?**\
 `Will the Padres trade Nick Pivetta? Will they keep shopping? With A.J. Preller, you never know what'll happen next.`\
 https://nytimes.com/athletic/6902247/2025/12/19/padres-re-sign-michael-king-offseason-needs/
