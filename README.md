@@ -26,8 +26,8 @@ https://nytimes.com/athletic/6905103/2025/12/19/toronto-maple-leafs-craig-berube
 `Parker may be the most accomplished newcomer among the candidates for the Naismith Basketball Hall of Fame's Class of 2026.`\
 https://nytimes.com/athletic/6905165/2025/12/19/candace-parker-basketball-hall-of-fame-candidates/
 
-**The Pirates upgraded their lineup with All-Star slugger Brandon Lowe. What’s next?**\
-`On paper, there’s still a long way to go to turn the 2026 Pirates into a NL  contender. But they look a lot closer than they did last week.`\
+**Pirates upgraded lineup with All-Star slugger Brandon Lowe. What's next?**\
+`There’s still a long way to go to turn the 2026 Pirates into an NL contender, but they look a lot closer than they did last week.`\
 https://nytimes.com/athletic/6905252/2025/12/19/pittsburgh-pirates-brandon-lowe-offseason-analysis/
 
 **Hochul Reaches Deal on A.I. Regulation in New York**\
