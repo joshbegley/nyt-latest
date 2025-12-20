@@ -1,3 +1,11 @@
+**Hochul Reaches Deal on A.I. Regulation in New York**\
+`The bill, which lawmakers passed in June, will be modified to more closely match a similar law in California, at Big Tech’s urging.`\
+https://nytimes.com/2025/12/19/nyregion/ai-bill-regulations-ny.html
+
+**Mavericks' GM search to push past NBA trade deadline, focus on experience: Sources**\
+`The Mavericks' front office is expected to field offers on Anthony Davis and other veteran players in the coming weeks.`\
+https://nytimes.com/athletic/6904524/2025/12/19/mavericks-gm-search-candidates/
+
 **Watch: Trevor Lawrence looks like the star he was promised to be**\
 `After a shaky start to the year, Lawrence and the Jaguars offense have hit their stride over the back half of the season.`\
 https://nytimes.com/athletic/6904862/2025/12/19/video-trevor-lawrence-star-movement-qb/

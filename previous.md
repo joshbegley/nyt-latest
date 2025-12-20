@@ -1,3 +1,11 @@
+**Hochul Reaches Deal on A.I. Regulation in New York**\
+`The bill, which lawmakers passed in June, will be modified to more closely match a similar law in California, at Big Tech’s urging.`\
+https://nytimes.com/2025/12/19/nyregion/ai-bill-regulations-ny.html
+
+**Mavericks' GM search to push past NBA trade deadline, focus on experience: Sources**\
+`The Mavericks' front office is expected to field offers on Anthony Davis and other veteran players in the coming weeks.`\
+https://nytimes.com/athletic/6904524/2025/12/19/mavericks-gm-search-candidates/
+
 **Watch: Trevor Lawrence looks like the star he was promised to be**\
 `After a shaky start to the year, Lawrence and the Jaguars offense have hit their stride over the back half of the season.`\
 https://nytimes.com/athletic/6904862/2025/12/19/video-trevor-lawrence-star-movement-qb/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/19/us/politics/frank-donovan-southern-command-trump.
 **The Justice Dept. Released a Trove of Epstein Files**\
 `Also, investigators seek a motive in killings at Brown and M.I.T. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2025/12/19/briefing/epstein-files-brown-mit-shootings.html
-
-**Suspect in Brown and M.I.T. Killings Died 2 Days Before He Was Found, Autopsy Shows**\
-`The examination confirmed that the suspect had died from a self-inflicted gunshot wound. His body was found late Thursday in a storage unit in New Hampshire.`\
-https://nytimes.com/2025/12/19/us/suspect-brown-mit-autopsy.html
-
-**Bill Clinton Features Prominently in Epstein Files Release**\
-`The focus on a former president comes at a moment when Republicans have fought to shift public attention away from Mr. Epstein’s friendship with President Trump.`\
-https://nytimes.com/2025/12/19/us/bill-clinton-epstein-photos.html
 
