@@ -1,3 +1,11 @@
+**Colorado State Senator at Fault in Car Crash That Killed Her, Officials Say**\
+`A toxicology report found elevated levels of alcohol in Senator Faith Winter’s blood at the time of the November crash.`\
+https://nytimes.com/2025/12/20/us/colorado-state-senator-at-fault-in-car-crash-that-killed-her-officials-say.html
+
+**'It is a joke' - Raphinha omission from FIFA Best XI criticised by Flick**\
+`Barcelona's Lamine Yamal and Pedri were picked in the XI, but Flick expressed his disappointment at Raphinha being overlooked.`\
+https://nytimes.com/athletic/6906018/2025/12/20/fifa-best-team-raphinha-barcelona/
+
 **How a reluctant Division II transfer became an SEC phenomenon at Ole Miss**\
 `Ferris State transfer Trinidad Chambliss has been a surprise breakout star at Ole Miss as the Rebels head into the College Football Playoff.`\
 https://nytimes.com/athletic/6716551/2025/12/20/trinidad-chambliss-ole-miss-ferris-state/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6904592/2025/12/20/olympics-hockey-rangers-players-
 **From puck cupping to heel touches: The skills NHLers consider when customizing their curves**\
 `Which curves do NHLers use, and why? The Athletic asked a sampling of players. Their roles go a long way in explaining their preferences.`\
 https://nytimes.com/athletic/6878634/2025/12/20/nhl-stick-customization-blades-curves/
-
-**Why the Jets should wait before they sell at the trade deadline**\
-`The Jets still face a long road to being a playoff team again, but it's possible they'll dig themselves out of the hole they're in.`\
-https://nytimes.com/athletic/6904520/2025/12/20/winnipeg-jets-nhl-trade-deadline-sellers/
-
-**The Evgeni Malkin dilemma is hanging over the Penguins and Kyle Dubas**\
-`Kyle Dubas will have his hands full when it comes to Evgeni Malkin's future.`\
-https://nytimes.com/athletic/6904887/2025/12/20/evgeni-malkin-penguins-kyle-dubas/
 

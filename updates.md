@@ -1,3 +1,11 @@
+**Colorado State Senator at Fault in Car Crash That Killed Her, Officials Say**\
+`A toxicology report found elevated levels of alcohol in Senator Faith Winter’s blood at the time of the November crash.`\
+https://nytimes.com/2025/12/20/us/colorado-state-senator-at-fault-in-car-crash-that-killed-her-officials-say.html
+
+**'It is a joke' - Raphinha omission from FIFA Best XI criticised by Flick**\
+`Barcelona's Lamine Yamal and Pedri were picked in the XI, but Flick expressed his disappointment at Raphinha being overlooked.`\
+https://nytimes.com/athletic/6906018/2025/12/20/fifa-best-team-raphinha-barcelona/
+
 **How a reluctant Division II transfer became an SEC phenomenon at Ole Miss**\
 `Ferris State transfer Trinidad Chambliss has been a surprise breakout star at Ole Miss as the Rebels head into the College Football Playoff.`\
 https://nytimes.com/athletic/6716551/2025/12/20/trinidad-chambliss-ole-miss-ferris-state/
