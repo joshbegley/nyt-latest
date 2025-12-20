@@ -1,3 +1,7 @@
+**Bowen Yang Is Leaving ‘S.N.L.’ After This Weekend’s Episode**\
+`Yang has been part of the NBC sketch show since 2018, earning five Emmy nominations.`\
+https://nytimes.com/2025/12/20/arts/television/bowen-yang-leaving-snl.html
+
 **Thiago Silva, 41, to join Porto after Fluminense exit**\
 `The 41-year-old defender will be able to represent the Portuguese club from January, when the registration period opens.`\
 https://nytimes.com/athletic/6906180/2025/12/20/thiago-silva-porto-transfer/
