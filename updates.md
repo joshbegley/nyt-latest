@@ -1,3 +1,7 @@
+**A Timeline of How the Trump Administration Released and Withheld Epstein Files**\
+`A year of political pressure and partial disclosures preceded the release of long-sought records on Jeffrey Epstein.`\
+https://nytimes.com/2025/12/19/us/politics/epstein-files-release-timeline.html
+
 **Kings trade Phillip Danault to Canadiens for draft pick**\
 `Danault, 32, was in the midst of a trying season with the Kings, as he didn’t score a goal and produced just five assists in 30 games.`\
 https://nytimes.com/athletic/6905596/2025/12/19/la-kings-phillip-danault-canadiens-trade/
