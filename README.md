@@ -1,3 +1,7 @@
+**Cynthia Lummis, a One-Term G.O.P. Senator, Will Not Seek Re-election**\
+`A conservative who has served in the Senate since 2021, Ms. Lummis attributed the decision to the “difficult, exhausting session” this fall on Capitol Hill.`\
+https://nytimes.com/2025/12/20/us/politics/cynthia-lummis-reelection.html
+
 **Sabres fire associate GM Jason Karmanos in first front-office move by Jarmo Kekäläinen**\
 `Kekäläinen may try to surround himself with trusted assistants from Columbus to start changing the culture in Buffalo. `\
 https://nytimes.com/athletic/6906529/2025/12/20/jason-karmanos-fired-buffalo-sabres-general-manager/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6906236/2025/12/20/blue-jackets-mason-marchment-tra
 **Do people buy NBA Cup champions gear? We investigate**\
 `The NBA Cup doesn't get much respect, but does that stop fans from repping their team's success in the competition? `\
 https://nytimes.com/athletic/6906050/2025/12/20/knicks-nba-cup-merchandise/
-
-**Chelsea coach Maresca to serve touchline ban for Villa game**\
-`Maresca will serve his second touchline ban of the season for Chelsea's Premier League match at home against Aston Villa on December 27. `\
-https://nytimes.com/athletic/6906284/2025/12/20/enzo-maresca-chelsea-suspension/
 
