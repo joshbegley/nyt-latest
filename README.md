@@ -1,3 +1,11 @@
+**Notre Dame fans cry foul over low-scoring Miami-Texas A&M Playoff matchup**\
+`Texas A&M-Miami was the first College Football Playoff game ever to go into halftime with a scoreless tie.`\
+https://nytimes.com/athletic/6906783/2025/12/20/miami-texas-aggies-cfp-notre-dame-reactions/
+
+**Mbappe equals Ronaldo record in Real Madrid win over Sevilla**\
+`Mbappe scored his 59th goal of 2025 with an 86th minute penalty against Sevilla during Saturday's La Liga win.`\
+https://nytimes.com/athletic/6906917/2025/12/20/kylian-mbappe-ronaldo-madrid-record/
+
 **Rams fire special teams coordinator Chase Blackburn: Source**\
 `The Rams have seen special teams issues prove costly in three of their four losses this season.`\
 https://nytimes.com/athletic/6906894/2025/12/20/rams-chase-blackburn-fired-special-teams-coordinator/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6906801/2025/12/20/alexander-isak-liverpool-injury-
 **College Football Playoff 2025 projections: Who's favored to advance in the bracket?**\
 `Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
 https://nytimes.com/athletic/6560541/2025/12/20/college-football-playoff-bracket-projections-odds/
-
-**Miami emerges from low-scoring slugfest, downing Texas A&M: Takeaways**\
-`Miami will play No. 2 Ohio State in the Cotton Bowl on Dec. 31.`\
-https://nytimes.com/athletic/6906710/2025/12/20/miami-texas-am-college-football-playoff-takeaways-score/
-
-**Lakers' Marcus Smart fined $35K for 'obscene gesture' toward official**\
-`Smart has been fined multiple times for his behavior toward officials during his NBA career.`\
-https://nytimes.com/athletic/6906666/2025/12/20/marcus-smart-lakers-jazz-fine-nba/
 
