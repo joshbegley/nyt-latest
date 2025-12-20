@@ -1,3 +1,11 @@
+**Isak set for scan on injury sustained after scoring vs. Tottenham**\
+`Isak was replaced after being caught as he put Liverpool ahead at the Tottenham Hotspur Stadium.`\
+https://nytimes.com/athletic/6906801/2025/12/20/alexander-isak-liverpool-injury-update/
+
+**College Football Playoff 2025 projections: Who's favored to advance in the bracket?**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/12/20/college-football-playoff-bracket-projections-odds/
+
 **Miami emerges from low-scoring slugfest, downing Texas A&M for first Playoff win: Takeaways**\
 `Miami will play No. 2 Ohio State in the Cotton Bowl on Dec. 31.`\
 https://nytimes.com/athletic/6906710/2025/12/20/miami-texas-am-college-football-playoff-takeaways-score/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6906779/2025/12/20/lakers-vs-clippers-stream-how-to
 **How to watch Golden Knights vs. Flames: Time, TV, streaming**\
 `Find out how to watch the Vegas Golden Knights play the Calgary Flames, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6906775/2025/12/20/golden-knights-vs-flames-stream-how-to-watch-dec-20/
-
-**How to watch Kraken vs. Sharks: Time, TV, streaming**\
-`Find out how to watch the Seattle Kraken play the San Jose Sharks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6906772/2025/12/20/kraken-vs-sharks-stream-how-to-watch-dec-20/
-
-**How to watch Blue Jackets vs. Ducks: Time, TV, streaming**\
-`Find out how to watch the Columbus Blue Jackets play the Anaheim Ducks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6906773/2025/12/20/blue-jackets-vs-ducks-stream-how-to-watch-dec-20/
 

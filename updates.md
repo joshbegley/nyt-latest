@@ -1,3 +1,11 @@
+**Isak set for scan on injury sustained after scoring vs. Tottenham**\
+`Isak was replaced after being caught as he put Liverpool ahead at the Tottenham Hotspur Stadium.`\
+https://nytimes.com/athletic/6906801/2025/12/20/alexander-isak-liverpool-injury-update/
+
+**College Football Playoff 2025 projections: Who's favored to advance in the bracket?**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/12/20/college-football-playoff-bracket-projections-odds/
+
 **Miami emerges from low-scoring slugfest, downing Texas A&M for first Playoff win: Takeaways**\
 `Miami will play No. 2 Ohio State in the Cotton Bowl on Dec. 31.`\
 https://nytimes.com/athletic/6906710/2025/12/20/miami-texas-am-college-football-playoff-takeaways-score/
