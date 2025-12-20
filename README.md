@@ -1,3 +1,7 @@
+**The New York Times in Print for Saturday, Dec. 20, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/12/20/todays-new-york-times
+
 **Lou Cannon, Journalist Who Chronicled Reagan in Books, Dies at 92**\
 `He was a foremost authority on the president, tracking his career from his first term as California governor through his eight years in the White House.`\
 https://nytimes.com/2025/12/20/books/lou-cannon-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6899904/2025/12/20/afcon-total-energies-fossil-fuel
 **Amorim's reluctance to use kids is understandable. His public attacks are not**\
 `It is no surprise that United's under-pressure head coach does not prioritise the academy but he must choose his words more carefully`\
 https://nytimes.com/athletic/6899631/2025/12/20/ruben-amorim-manchester-united-academy/
-
-**Two NJ Transit Trains Collide, Injuring More Than a Dozen People**\
-`The incident Friday evening shut down the Montclair-Boonton Line in Montclair, N.J.`\
-https://nytimes.com/2025/12/20/nyregion/nj-transit-crash.html
 

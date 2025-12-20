@@ -1,3 +1,11 @@
+**Lou Cannon, Journalist Who Chronicled Reagan in Books, Dies at 92**\
+`He was a foremost authority on the president, tracking his career from his first term as California governor through his eight years in the White House.`\
+https://nytimes.com/2025/12/20/books/lou-cannon-dead.html
+
+**Mangione’s Lawyers Take Issue With Bondi’s Ties to UnitedHealthcare**\
+`Lawyers for Luigi Mangione, who is accused of killing UnitedHealthcare’s chief executive, say Attorney General Pam Bondi should have recused herself from the case.`\
+https://nytimes.com/2025/12/20/nyregion/luigi-mangione-pam-bondi-united-healthcare.html
+
 **NHL trade grades: Phillip Danault makes sense for Canadiens — despite obvious red flag**\
 `While the idea of adding a clutch playoff performer sounds enticing, Danault's offensive downturn and contract are a concern.`\
 https://nytimes.com/athletic/6905624/2025/12/20/kings-canadiens-phillip-danault-trade-grades-nhl/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6899631/2025/12/20/ruben-amorim-manchester-united-a
 **Two NJ Transit Trains Collide, Injuring More Than a Dozen People**\
 `The incident Friday evening shut down the Montclair-Boonton Line in Montclair, N.J.`\
 https://nytimes.com/2025/12/20/nyregion/nj-transit-crash.html
-
-**Connections: Sports Edition Coach: Hints for Dec. 20, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6905039/2025/12/20/connections-sports-edition-hints-for-dec-20-2025/
-
-**Escape From the Abyss: Surviving the Atrocities in El Fasher**\
-`No one knows the true toll of the massacre, and the city remains isolated. Now, refugee camps in Chad are flooded with newly displaced Sudanese.`\
-https://nytimes.com/2025/12/20/world/africa/sudan-el-fasher-refugees-chad.html
 
