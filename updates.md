@@ -1,3 +1,7 @@
+**The Briefing: Newcastle 2 Chelsea 2 — What did Maresca say at half-time? How did Gordon not earn penalty?**\
+`Newcastle's meeting with Chelsea was packed with drama — The Athletic analyses all the talking points`\
+https://nytimes.com/athletic/6893407/2025/12/20/newcastle-2-chelsea-2-maresca-woltemade-gordon-james-joao-pedro/
+
 **Bowen Yang Is Leaving ‘S.N.L.’ After This Weekend’s Episode**\
 `Yang has been part of the NBC sketch show since 2018, earning five Emmy nominations.`\
 https://nytimes.com/2025/12/20/arts/television/bowen-yang-leaving-snl.html

@@ -18,8 +18,8 @@ https://nytimes.com/2025/12/20/dining/make-sugar-cake-your-new-holiday-tradition
 `Also, how Jake Sanderson reacted to playing longer minutes than usual in Thomas Chabot’s absence.`\
 https://nytimes.com/athletic/6901780/2025/12/20/chabot-batherson-sanderson-trade/
 
-**The Briefing: Newcastle 2 Chelsea 2 - What did Maresca say at half-time? How did Gordon not earn penalty?**\
-`Newcastle's meeting with Chelsea was packed with drama - The Athletic analyses all the talking points`\
+**The Briefing: Newcastle 2 Chelsea 2 — What did Maresca say at half-time? How did Gordon not earn penalty?**\
+`Newcastle's meeting with Chelsea was packed with drama — The Athletic analyses all the talking points`\
 https://nytimes.com/athletic/6893407/2025/12/20/newcastle-2-chelsea-2-maresca-woltemade-gordon-james-joao-pedro/
 
 **How to watch Blackhawks vs. Senators: Time, TV, streaming**\
