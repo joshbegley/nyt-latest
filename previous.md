@@ -1,3 +1,7 @@
+**Quote of the Day: Palo Alto Confronts Billionaires Who Hog Its Housing Stock**\
+`Quotation of the Day for Saturday, December 20, 2025.`\
+https://nytimes.com/2025/12/19/pageoneplus/quote-of-the-day-palo-alto-confronts-billionaires-who-hog-its-housing-stock.html
+
 **Shouldn’t be in CFP? Alabama roars back from 17-0 hole at Oklahoma to advance to Rose Bowl**\
 `Momentum swung before halftime in the Crimson Tide's favor, and they never looked back.`\
 https://nytimes.com/athletic/6905495/2025/12/19/alabama-oklahoma-score-results-takeaways-college-football-playoff/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/19/us/epstein-files-victims-reaction.html
 **Judge Blocks Trump Administration’s Homeless Aid Plan**\
 `The proposal would have required recipients to get treatment for addiction or mental illness as a condition of receiving housing funds. The administration has said it will try again.`\
 https://nytimes.com/2025/12/19/us/politics/trump-homelessness-funding-judge.html
-
-**Ramaswamy Challenges Conservatives on Surging Bigotry on the Right**\
-`The leading Republican candidate for Ohio governor is calling out his party for rising intolerance, including against Indian American immigrants and their children, like him.`\
-https://nytimes.com/2025/12/19/us/politics/vivek-ramaswamy-anti-indian-hate.html
 
