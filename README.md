@@ -1,3 +1,7 @@
+**A Timeline of How the Trump Administration Released and Withheld Epstein Files**\
+`A year of political pressure and partial disclosures preceded the release of long-sought records on Jeffrey Epstein.`\
+https://nytimes.com/2025/12/19/us/politics/epstein-files-release-timeline.html
+
 **Kings trade Phillip Danault to Canadiens for draft pick**\
 `Danault, 32, was in the midst of a trying season with the Kings, as he didn’t score a goal and produced just five assists in 30 games.`\
 https://nytimes.com/athletic/6905596/2025/12/19/la-kings-phillip-danault-canadiens-trade/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/19/us/politics/vivek-ramaswamy-anti-indian-hate.html
 **White House Chides Smithsonian for Delayed Turnover of Records on Programming**\
 `The institution has tried to work with the administration’s demands that it present a more uplifting view of American history.`\
 https://nytimes.com/2025/12/19/us/politics/smithsonian-records-trump.html
-
-**Padres got creative to re-sign Michael King. How will they fill their remaining needs?**\
-`Will the Padres trade Nick Pivetta? Will they keep shopping? With A.J. Preller, you never know what'll happen next.`\
-https://nytimes.com/athletic/6902247/2025/12/19/padres-re-sign-michael-king-offseason-needs/
 
