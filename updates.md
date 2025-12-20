@@ -1,3 +1,7 @@
+**Cynthia Lummis, a One-Term G.O.P. Senator, Will Not Seek Re-election**\
+`A conservative who has served in the Senate since 2021, Ms. Lummis attributed the decision to the “difficult, exhausting session” this fall on Capitol Hill.`\
+https://nytimes.com/2025/12/20/us/politics/cynthia-lummis-reelection.html
+
 **Sabres fire associate GM Jason Karmanos in first front-office move by Jarmo Kekäläinen**\
 `Kekäläinen may try to surround himself with trusted assistants from Columbus to start changing the culture in Buffalo. `\
 https://nytimes.com/athletic/6906529/2025/12/20/jason-karmanos-fired-buffalo-sabres-general-manager/
