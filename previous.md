@@ -1,3 +1,11 @@
+**Candace Parker, Blake Griffin, Kelvin Sampson headline HOF candidate list**\
+`Parker may be the most accomplished newcomer among the candidates for the Naismith Basketball Hall of Fame's Class of 2026.`\
+https://nytimes.com/athletic/6905165/2025/12/19/candace-parker-basketball-hall-of-fame-candidates/
+
+**The Pirates upgraded their lineup with All-Star slugger Brandon Lowe. What’s next?**\
+`On paper, there’s still a long way to go to turn the 2026 Pirates into a NL  contender. But they look a lot closer than they did last week.`\
+https://nytimes.com/athletic/6905252/2025/12/19/pittsburgh-pirates-brandon-lowe-offseason-analysis/
+
 **Hochul Reaches Deal on A.I. Regulation in New York**\
 `The bill, which lawmakers passed in June, will be modified to more closely match a similar law in California, at Big Tech’s urging.`\
 https://nytimes.com/2025/12/19/nyregion/ai-bill-regulations-ny.html
@@ -19,7 +27,7 @@ https://nytimes.com/2025/12/19/nyregion/child-father-deported-china-nyc.html
 https://nytimes.com/2025/12/19/us/epstein-fbi-complaint-1996-maria-farmer.html
 
 **Acquiring Mike Burrows is a 'good start' for Astros. What's next?**\
-`Houston GM Dana Brown described Burrows as an “upside play” with potential to blossom into a “pillar” of future Astros rotations.`\
+`Houston GM Dana Brown described Burrows as an "upside play” with potential to blossom into a "pillar" of future Astros rotations.`\
 https://nytimes.com/athletic/6905263/2025/12/19/astros-mike-burrows-trade-offseason-moves/
 
 **Justice Dept. Will Appeal Dismissal of Comey and James Indictments**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/19/us/politics/trump-james-comey-appeal.html
 **Trump’s Name Is Rarely Mentioned in New Epstein Files**\
 `The files that The Times initially reviewed on Friday included only a handful of references to or images of Mr. Trump.`\
 https://nytimes.com/2025/12/19/us/trump-epstein-files.html
-
-**Trump Picks New Leader for Southern Command as Venezuela Pressure Grows**\
-`Lt. Gen. Francis L. Donovan, a Marine general with expansive experience in special operations and the Middle East, would take over after the abrupt departure of the previous commander.`\
-https://nytimes.com/2025/12/19/us/politics/frank-donovan-southern-command-trump.html
-
-**The Justice Dept. Released a Trove of Epstein Files**\
-`Also, investigators seek a motive in killings at Brown and M.I.T. Here’s the latest at the end of Friday.`\
-https://nytimes.com/2025/12/19/briefing/epstein-files-brown-mit-shootings.html
 

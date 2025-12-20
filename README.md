@@ -1,3 +1,15 @@
+**NASCAR Star’s Plane Turned Back Minutes After Takeoff**\
+`The National Transportation Safety Board is investigating the crash at a North Carolina airport, which killed seven people, including the driver Greg Biffle and his wife and children.`\
+https://nytimes.com/2025/12/19/us/politics/greg-biffle-plane-crash.html
+
+**Elise Stefanik Tried Everything to Please Trump. He Still Jilted Her.**\
+`The G.O.P. congresswoman who ran as a moderate but became an “ultra MAGA” Trump acolyte ultimately found herself undermined by the president and politically adrift.`\
+https://nytimes.com/2025/12/19/us/politics/elise-stefanik-trump-governor-congress.html
+
+**Tension between Maple Leafs and Craig Berube appears to be growing**\
+`If a tense practice on Friday is any indication, Craig Berube’s frustration with his players is boiling over.`\
+https://nytimes.com/athletic/6905103/2025/12/19/toronto-maple-leafs-craig-berube-coach-news/
+
 **Candace Parker, Blake Griffin, Kelvin Sampson headline HOF candidate list**\
 `Parker may be the most accomplished newcomer among the candidates for the Naismith Basketball Hall of Fame's Class of 2026.`\
 https://nytimes.com/athletic/6905165/2025/12/19/candace-parker-basketball-hall-of-fame-candidates/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/12/19/nyregion/child-father-deported-china-nyc.html
 **Epstein Files Include 1996 Child Porn Complaint That F.B.I. Ignored**\
 `Newly released files show how Maria Farmer, who worked for Mr. Epstein in the 1990s, had urged the F.B.I. to investigate him. The case went nowhere for years.`\
 https://nytimes.com/2025/12/19/us/epstein-fbi-complaint-1996-maria-farmer.html
-
-**Acquiring Mike Burrows is a 'good start' for Astros. What's next?**\
-`Houston GM Dana Brown described Burrows as an "upside play” with potential to blossom into a "pillar" of future Astros rotations.`\
-https://nytimes.com/athletic/6905263/2025/12/19/astros-mike-burrows-trade-offseason-moves/
-
-**Justice Dept. Will Appeal Dismissal of Comey and James Indictments**\
-`The Trump administration had vowed to fight a judge’s decision to dismiss unrelated criminal charges against James Comey, the former F.B.I. director, and Letitia James, the attorney general of New York.`\
-https://nytimes.com/2025/12/19/us/politics/trump-james-comey-appeal.html
-
-**Trump’s Name Is Rarely Mentioned in New Epstein Files**\
-`The files that The Times initially reviewed on Friday included only a handful of references to or images of Mr. Trump.`\
-https://nytimes.com/2025/12/19/us/trump-epstein-files.html
 
