@@ -1,3 +1,7 @@
+**Lawmakers Criticize Justice Dept. For Not Releasing All Epstein Files**\
+`Republicans and Democrats who had been pressing for the disclosure accused officials of failing to comply with a law that requires all material to be released.`\
+https://nytimes.com/2025/12/19/us/lawmakers-criticize-justice-dept.html
+
 **Investigation into plane crash that killed Greg Biffle, 6 others begins**\
 `The plane had 3 licensed pilots aboard, and investigators haven't determined who was operating the aircraft.`\
 https://nytimes.com/athletic/6905224/2025/12/19/greg-biffle-plane-crash-investigation-nascar-ntsb/
@@ -14,7 +18,7 @@ https://nytimes.com/2025/12/19/us/politics/greg-biffle-plane-crash.html
 `The G.O.P. congresswoman who ran as a moderate but became an “ultra MAGA” Trump acolyte ultimately found herself undermined by the president and politically adrift.`\
 https://nytimes.com/2025/12/19/us/politics/elise-stefanik-trump-governor-congress.html
 
-**Tension between Maple Leafs and Craig Berube appears to be growing**\
+**Tension between Maple Leafs players, Craig Berube appears to be growing**\
 `If a tense practice on Friday is any indication, Craig Berube’s frustration with his players is boiling over.`\
 https://nytimes.com/athletic/6905103/2025/12/19/toronto-maple-leafs-craig-berube-coach-news/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/19/nyregion/ai-bill-regulations-ny.html
 **Mavericks' GM search to push past NBA trade deadline, focus on experience: Sources**\
 `The Mavericks' front office is expected to field offers on Anthony Davis and other veteran players in the coming weeks.`\
 https://nytimes.com/athletic/6904524/2025/12/19/mavericks-gm-search-candidates/
-
-**Watch: Trevor Lawrence looks like the star he was promised to be**\
-`After a shaky start to the year, Lawrence and the Jaguars offense have hit their stride over the back half of the season.`\
-https://nytimes.com/athletic/6904862/2025/12/19/video-trevor-lawrence-star-movement-qb/
 
