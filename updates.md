@@ -1,3 +1,7 @@
+**U.S. Strikes on Syria Underscore Scale of Challenge for Its President**\
+`The Syrian government did not comment directly on the extensive American strikes targeting the Islamic State on Friday, but said it was intensifying its own efforts to fight the group.`\
+https://nytimes.com/2025/12/20/world/middleeast/us-strikes-syria-aftermath.html
+
 **Closing Arguments**\
 `Today, your highly personal, delightfully specific bests of 2025.`\
 https://nytimes.com/2025/12/20/briefing/morning-readers-best-of-2025.html

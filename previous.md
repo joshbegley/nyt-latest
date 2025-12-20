@@ -1,3 +1,7 @@
+**U.S. Strikes on Syria Underscore Scale of Challenge for Its President**\
+`The Syrian government did not comment directly on the extensive American strikes targeting the Islamic State on Friday, but said it was intensifying its own efforts to fight the group.`\
+https://nytimes.com/2025/12/20/world/middleeast/us-strikes-syria-aftermath.html
+
 **Closing Arguments**\
 `Today, your highly personal, delightfully specific bests of 2025.`\
 https://nytimes.com/2025/12/20/briefing/morning-readers-best-of-2025.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6905542/2025/12/20/nfl-rumors-news-aaron-glenn-jets
 **Derrick White hits nine 3s as Celtics snap skid against shorthanded Heat**\
 `On a night when they were badly outrebounded, the Celtics' hot outside shooting helped them run away from the Heat.`\
 https://nytimes.com/athletic/6905664/2025/12/20/celtics-heat-score-result-derrick-white/
-
-**Rating every NHL team's goal song for the 2025-26 season**\
-`For years, goal songs have signaled joy in NHL arenas. Our staff rated each one, based on personal opinions and how the tune fits the team.`\
-https://nytimes.com/athletic/6898752/2025/12/20/nhl-team-goal-songs-2025-2026-best-rankings/
 
