@@ -1,3 +1,11 @@
+**How to watch Flyers vs. Rangers: Time, TV, streaming**\
+`Find out how to watch the Philadelphia Flyers play the New York Rangers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6905981/2025/12/20/flyers-vs-rangers-stream-how-to-watch-dec-20/
+
+**How to watch Red Wings vs. Capitals: Time, TV, streaming**\
+`Find out how to watch the Detroit Red Wings play the Washington Capitals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6905979/2025/12/20/red-wings-vs-capitals-stream-how-to-watch-dec-20/
+
 **How to watch Oakland vs. Michigan State men's basketball: Time, TV, streaming**\
 `Find out how to watch the Oakland Golden Grizzlies play the Michigan State Spartans, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6905975/2025/12/20/oakland-vs-michigan-state-stream-how-to-watch-dec-20/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6902125/2025/12/20/nfl-saturday-schedule-eagles-com
 **NFL Week 16 roundtable: Parsons-less Packers meet Bears, Jaguars-Broncos, NFC South woes**\
 `Jaguars-Broncos could be the week's biggest showdown, while the Packers and Bears battle in the NFC North. Our writers discuss Week 16.`\
 https://nytimes.com/athletic/6904531/2025/12/20/nfl-week-16-parsons-jaguars-bears-broncos-patriots/
-
-**Kalen DeBoer and Alabama's CFP win should make Tide faithful finally appreciate their coach**\
-`Alabama has endured bad losses under Kalen DeBoer. But in the big games, like Friday at Oklahoma, the Tide most always shows up.`\
-https://nytimes.com/athletic/6905721/2025/12/20/alabama-kalen-deboer-cfp-michigan/
-
-**Game, blouses: VJ Edgecombe soars as 76ers finally get a signature win**\
-`VJ Edgecombe is proving he's more than a reliable rookie. He's becoming an offensive engine.`\
-https://nytimes.com/athletic/6905573/2025/12/20/76ers-knicks-vj-edgecombe-highlights-dunk/
 

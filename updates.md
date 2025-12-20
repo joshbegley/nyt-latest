@@ -1,3 +1,11 @@
+**How to watch Flyers vs. Rangers: Time, TV, streaming**\
+`Find out how to watch the Philadelphia Flyers play the New York Rangers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6905981/2025/12/20/flyers-vs-rangers-stream-how-to-watch-dec-20/
+
+**How to watch Red Wings vs. Capitals: Time, TV, streaming**\
+`Find out how to watch the Detroit Red Wings play the Washington Capitals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6905979/2025/12/20/red-wings-vs-capitals-stream-how-to-watch-dec-20/
+
 **How to watch Oakland vs. Michigan State men's basketball: Time, TV, streaming**\
 `Find out how to watch the Oakland Golden Grizzlies play the Michigan State Spartans, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6905975/2025/12/20/oakland-vs-michigan-state-stream-how-to-watch-dec-20/
