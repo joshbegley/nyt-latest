@@ -1,3 +1,11 @@
+**Pep Guardiola has found his formula and full-backs O’Reilly and Nunes are central to it**\
+`Their formation has become narrower, but Manchester City are relying on their wide players more than ever`\
+https://nytimes.com/athletic/6897056/2025/12/20/man-city-guardiola-nunes-oreilly/
+
+**Buendia embodies everything Emery wants from a No 10**\
+`His dramatic winner against Arsenal embodied the resilience that has defined the season to date for the Argentinian and his club`\
+https://nytimes.com/athletic/6898947/2025/12/20/emi-buendia-tactical-rebirth/
+
 **Anthony Joshua (mercifully) stops Jake Paul in sixth round of bizarre heavyweight showdown**\
 `Order has been restored to professional boxing. Or, at least, as much order as boxing ever has.`\
 https://nytimes.com/athletic/6905529/2025/12/20/jake-paul-vs-anthony-joshua-fight-result-netflix/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/20/world/africa/sudan-el-fasher-refugees-chad.html
 **Corrections: Dec. 20, 2025**\
 `Corrections that appeared in print on Saturday, Dec. 20, 2025.`\
 https://nytimes.com/2025/12/20/pageoneplus/corrections-dec-20-2025.html
-
-**‘Where’s the Humanity?’ Bondi Attack Leaves Suspects’ Neighborhood Stunned**\
-`The alleged gunmen in the shooting, Sajid Akram, 50 and his son, Naveed Akram, 24, were from Bonnyrigg, a diverse, multilingual suburb miles from Sydney’s Bondi Beach.`\
-https://nytimes.com/2025/12/20/us/wheres-the-humanity-bondi-attack-leaves-suspects-neighborhood-stunned.html
-
-**College Football Playoff 2025 projections: Who's favored to advance in the bracket?**\
-`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
-https://nytimes.com/athletic/6560541/2025/12/20/college-football-playoff-bracket-projections-odds/
 
