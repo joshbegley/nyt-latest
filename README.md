@@ -1,3 +1,7 @@
+**Bill Clinton, a Main Character in the Epstein Drop, Just Can’t Escape Scandal**\
+`The Republican-led Justice Department’s release of photos of the former president with Jeffrey Epstein will introduce yet another generation to his flaws and controversies.`\
+https://nytimes.com/2025/12/20/us/politics/bill-clinton-epstein-files-photos-scandal.html
+
 **Real Sociedad appoint American head coach Matarazzo**\
 `The club has reached an agreement with Matarazzo on a contract through to the end of the 2026-27 season.`\
 https://nytimes.com/athletic/6903263/2025/12/20/real-sociedad-manager-matarazzo/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6906479/2025/12/20/orioles-rays-trade-al-east-shane
 **Overlooked No More: Inge Lehmann, Who Discovered the Earth’s Inner Core**\
 `She pointed to evidence that the Earth’s inner core was solid — not liquid, as scientists had believed — a discovery that was ahead of its time.`\
 https://nytimes.com/2025/12/20/obituaries/inge-lehmann-overlooked.html
-
-**Coppola admits concern for World Cup place due to lack of Brighton minutes**\
-`The Italy international made his first league start for Brighton since his summer move on Saturday.`\
-https://nytimes.com/athletic/6906511/2025/12/20/diego-coppola-brighton-italy-world-cup/
 
