@@ -1,4 +1,4 @@
-**Arizona State's Dillingham signs extension, taking Michigan candidate off board: Source**\
+**Arizona State's Dillingham signs new deal, taking Michigan candidate off board: Source**\
 `The new contract will raise Dillingham's salary to $7.5 million per year.`\
 https://nytimes.com/athletic/6906044/2025/12/20/kenny-dillingham-arizona-state-contract-michigan/
 
