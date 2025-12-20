@@ -2,7 +2,7 @@
 `The Rams have seen special teams issues prove costly in three of their four losses this season.`\
 https://nytimes.com/athletic/6906894/2025/12/20/rams-chase-blackburn-fired-special-teams-coordinator/
 
-**The Briefing: Everton 0 Arsenal 1 - Arsenal lead the Premier League at Christmas, Gyokeres scores**\
+**The Briefing: Everton 0 Arsenal 1 — Arsenal lead the Premier League at Christmas, Gyokeres scores**\
 `Arsenal ground out a win on the road to return to the top of the Premier League`\
 https://nytimes.com/athletic/6893424/2025/12/20/everton-arsenal-top-christmas-result-gyokeres/
 

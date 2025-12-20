@@ -1,3 +1,15 @@
+**Rams fire special teams coordinator Chase Blackburn: Source**\
+`The Rams have seen special teams issues prove costly in three of their four losses this season.`\
+https://nytimes.com/athletic/6906894/2025/12/20/rams-chase-blackburn-fired-special-teams-coordinator/
+
+**The Briefing: Everton 0 Arsenal 1 - Arsenal lead the Premier League at Christmas, Gyokeres scores**\
+`Arsenal ground out a win on the road to return to the top of the Premier League`\
+https://nytimes.com/athletic/6893424/2025/12/20/everton-arsenal-top-christmas-result-gyokeres/
+
+**The Briefing: Leeds 4 Crystal Palace 1 - Calvert-Lewin for England? Ampadu's secret weapon?**\
+`A buoyant Leeds United overwhelmed Crystal Palace with a barrage of long throws and corners to continue their recent resurgence`\
+https://nytimes.com/athletic/6893425/2025/12/20/leeds-4-crystal-palace-1/
+
 **The Briefing: Leeds 4 Crystal Palace 1 - Calvert-Lewin for England? Ampadu's secret weapon?**\
 `A buoyant Leeds United overwhelmed Crystal Palace with a barrage of long throws and corners to continue their recent resurgence`\
 https://nytimes.com/athletic/6893425/2025/12/20/leeds-3-crystal-palace-1/
