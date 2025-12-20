@@ -1,3 +1,11 @@
+**Tulane's Jon Sumrall mourns father's death before College Football Playoff**\
+`Jon Sumrall’s father, George, died Thursday night following an illness. He was 77 years old.`\
+https://nytimes.com/athletic/6905515/2025/12/19/tulane-jon-sumrall-father-college-football-playoff/
+
+**Io or Luna**\
+`Robert S. Gard’s second Saturday puzzle is as bright as two moons.`\
+https://nytimes.com/2025/12/19/crosswords/daily-puzzle-2025-12-20.html
+
 **Epstein Victims Upset About Lack of Transparency in Newly Released Files**\
 `Several victims said they were frustrated by the heavy redactions of photos and documents that the Justice Department released on Friday.`\
 https://nytimes.com/2025/12/19/us/epstein-files-victims-reaction.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/19/us/congress-doj-epstein-files.html
 **Investigation into plane crash that killed Greg Biffle, 6 others begins**\
 `The plane had 3 licensed pilots aboard, and investigators haven't determined who was operating the aircraft.`\
 https://nytimes.com/athletic/6905224/2025/12/19/greg-biffle-plane-crash-investigation-nascar-ntsb/
-
-**Hochul Repeals Rule Allowing New Customers Free Gas Hookups**\
-`Gov. Kathy Hochul struck down a decades-old provision that raised gas bills for millions of New Yorkers. The move could help curb the use of fossil fuels.`\
-https://nytimes.com/2025/12/19/nyregion/hochul-gas-hookups-rule-repeal.html
-
-**NASCAR Star’s Plane Turned Back Minutes After Takeoff**\
-`The National Transportation Safety Board is investigating the crash at a North Carolina airport, which killed seven people, including the driver Greg Biffle and his wife and children.`\
-https://nytimes.com/2025/12/19/us/politics/greg-biffle-plane-crash.html
 

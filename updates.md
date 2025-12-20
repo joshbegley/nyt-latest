@@ -1,3 +1,11 @@
+**Tulane's Jon Sumrall mourns father's death before College Football Playoff**\
+`Jon Sumrall’s father, George, died Thursday night following an illness. He was 77 years old.`\
+https://nytimes.com/athletic/6905515/2025/12/19/tulane-jon-sumrall-father-college-football-playoff/
+
+**Io or Luna**\
+`Robert S. Gard’s second Saturday puzzle is as bright as two moons.`\
+https://nytimes.com/2025/12/19/crosswords/daily-puzzle-2025-12-20.html
+
 **Epstein Victims Upset About Lack of Transparency in Newly Released Files**\
 `Several victims said they were frustrated by the heavy redactions of photos and documents that the Justice Department released on Friday.`\
 https://nytimes.com/2025/12/19/us/epstein-files-victims-reaction.html
