@@ -1,3 +1,19 @@
+**49ers' Ricky Pearsall out for Monday's game at Colts with knee injury**\
+`The 49ers have a 7-1 record in games Pearsall has played and are 3-3 in games he has missed.`\
+https://nytimes.com/athletic/6906996/2025/12/20/ricky-pearsall-out-49ers-colts/
+
+**Present Time**\
+`David Kwong, the magician, branches out with a festive Sunday puzzle.`\
+https://nytimes.com/2025/12/20/crosswords/daily-puzzle-2025-12-21.html
+
+**NHL referee makes wrong goal call, reverses decision after Senators, fans celebrate**\
+`The mix up following a goaltender interference review drastically changed the mood of Senators players and fans at the Canadian Tire Centre.`\
+https://nytimes.com/athletic/6906986/2025/12/20/senators-nhl-referee-goal-call-blackhawks/
+
+**Kenny Dillingham's new contract shows Arizona State is tired of 'sleeping giant' narrative**\
+`Dillingham said he never doubted the agreement would get done, which suggests his interest in Michigan may not have been that strong.`\
+https://nytimes.com/athletic/6906853/2025/12/20/kenny-dillingham-arizona-state-contract/
+
 **Frank calls decision to award Ekitike goal 'a mistake'**\
 `Ekitike scored his side's second during the 2-1 win at the Tottenham Hotspur Stadium, climbing above Cristian Romero to head home.`\
 https://nytimes.com/athletic/6907040/2025/12/20/thomas-frank-hugo-ekitike-goal-liverpool-tottenham/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6906894/2025/12/20/rams-chase-blackburn-fired-speci
 **The Briefing: Everton 0 Arsenal 1 — Arsenal lead the Premier League at Christmas, Gyokeres scores**\
 `Arsenal ground out a win on the road to return to the top of the Premier League`\
 https://nytimes.com/athletic/6893424/2025/12/20/everton-arsenal-top-christmas-result-gyokeres/
-
-**The Briefing: Leeds 4 Crystal Palace 1 - Calvert-Lewin for England? Ampadu's secret weapon?**\
-`A buoyant Leeds United overwhelmed Crystal Palace with a barrage of long throws and corners to continue their recent resurgence`\
-https://nytimes.com/athletic/6893425/2025/12/20/leeds-4-crystal-palace-1/
-
-**Blackhawks' Frank Nazar injured after taking puck to the face**\
-`Nazar, a 2022 first-round pick, was recently promoted to No. 1 center due to Connor Bedard's injury,`\
-https://nytimes.com/athletic/6906908/2025/12/20/blackhawks-frank-nazar-injury-face/
-
-**Epstein and Maxwell Grand Jury Records Are Released**\
-`The transcripts and photos were part of Department of Justice files arising from investigations into the disgraced financier and his former girlfriend.`\
-https://nytimes.com/2025/12/20/us/epstein-maxwell-grand-jury.html
-
-**Mahomes, Doncic and Irving surprise teammates with epic gifts: From Playstation 5s to golf carts**\
-`NFL and NBA stars Patrick Mahomes, Luka Dončić and Kyrie Irving surprised teammates with holiday gifts, from PS5s and e-bikes to golf carts.`\
-https://nytimes.com/athletic/6906712/2025/12/20/mahomes-doncic-irving-christmas-gifts-teammates/
 
