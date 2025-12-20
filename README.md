@@ -1,3 +1,15 @@
+**Kraken trade Mason Marchment to Blue Jackets for draft picks: Sources**\
+`Marchment, who has four goals and 13 points in 29 games this season, will join his fifth NHL franchise.`\
+https://nytimes.com/athletic/6905647/2025/12/20/kraken-mason-marchment-blue-jackets-trade/
+
+**AFCON, Total Energies and football's problematic links to fossil fuel**\
+`The energy company’s sponsorship is a reminder of how football feels morally compromised on environmental issues`\
+https://nytimes.com/athletic/6899904/2025/12/20/afcon-total-energies-fossil-fuel/
+
+**Amorim's reluctance to use kids is understandable. His public attacks are not**\
+`It is no surprise that United's under-pressure head coach does not prioritise the academy but he must choose his words more carefully`\
+https://nytimes.com/athletic/6899631/2025/12/20/ruben-amorim-manchester-united-academy/
+
 **Two NJ Transit Trains Collide, Injuring More Than a Dozen People**\
 `The incident Friday evening shut down the Montclair-Boonton Line in Montclair, N.J.`\
 https://nytimes.com/2025/12/20/nyregion/nj-transit-crash.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6560541/2025/12/20/college-football-playoff-bracket
 **Quote of the Day: Palo Alto Confronts Billionaires Who Hog Its Housing Stock**\
 `Quotation of the Day for Saturday, December 20, 2025.`\
 https://nytimes.com/2025/12/19/pageoneplus/quote-of-the-day-palo-alto-confronts-billionaires-who-hog-its-housing-stock.html
-
-**Shouldn’t be in CFP? Alabama roars back from 17-0 hole at Oklahoma to advance to Rose Bowl**\
-`Momentum swung before halftime in the Crimson Tide's favor, and they never looked back.`\
-https://nytimes.com/athletic/6905495/2025/12/19/alabama-oklahoma-score-results-takeaways-college-football-playoff/
-
-**A Timeline of How the Trump Administration Released and Withheld Epstein Files**\
-`A year of political pressure and partial disclosures preceded the release of long-sought records on Jeffrey Epstein.`\
-https://nytimes.com/2025/12/19/us/politics/epstein-files-release-timeline.html
-
-**Kings trade Phillip Danault to Canadiens for draft pick**\
-`Danault, 32, was in the midst of a trying season with the Kings, as he didn’t score a goal and produced just five assists in 30 games.`\
-https://nytimes.com/athletic/6905596/2025/12/19/la-kings-phillip-danault-canadiens-trade/
 
