@@ -1,3 +1,31 @@
+**How to watch Magic vs. Jazz: Time, TV, streaming**\
+`Find out how to watch the Orlando Magic play the Utah Jazz, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6906788/2025/12/20/magic-vs-jazz-stream-how-to-watch-dec-20/
+
+**How to watch Trail Blazers vs. Kings: Time, TV, streaming**\
+`Find out how to watch the Portland Trail Blazers play the Sacramento Kings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6906785/2025/12/20/trail-blazers-vs-kings-stream-how-to-watch-dec-20/
+
+**How to watch Suns vs. Warriors: Time, TV, streaming**\
+`Find out how to watch the Phoenix Suns play the Golden State Warriors, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6906782/2025/12/20/suns-vs-warriors-stream-how-to-watch-dec-20/
+
+**How to watch Lakers vs. Clippers: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Lakers play the Los Angeles Clippers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6906779/2025/12/20/lakers-vs-clippers-stream-how-to-watch-dec-20/
+
+**How to watch Golden Knights vs. Flames: Time, TV, streaming**\
+`Find out how to watch the Vegas Golden Knights play the Calgary Flames, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6906775/2025/12/20/golden-knights-vs-flames-stream-how-to-watch-dec-20/
+
+**How to watch Kraken vs. Sharks: Time, TV, streaming**\
+`Find out how to watch the Seattle Kraken play the San Jose Sharks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6906772/2025/12/20/kraken-vs-sharks-stream-how-to-watch-dec-20/
+
+**How to watch Blue Jackets vs. Ducks: Time, TV, streaming**\
+`Find out how to watch the Columbus Blue Jackets play the Anaheim Ducks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6906773/2025/12/20/blue-jackets-vs-ducks-stream-how-to-watch-dec-20/
+
 **How to watch San Diego State vs. Arizona men's basketball: Time, TV, streaming**\
 `Find out how to watch the San Diego State Aztecs play the Arizona Wildcats, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6906760/2025/12/20/san-diego-state-vs-arizona-stream-how-to-watch-dec-20/
@@ -9,32 +37,4 @@ https://nytimes.com/2025/12/20/us/politics/bill-clinton-epstein-files-photos-sca
 **Real Sociedad appoint American head coach Matarazzo**\
 `The club has reached an agreement with Matarazzo on a contract through to the end of the 2026-27 season.`\
 https://nytimes.com/athletic/6903263/2025/12/20/real-sociedad-manager-matarazzo/
-
-**Johnny Manziel replaced as 'College GameDay' guest picker by Alex Caruso**\
-`ESPN promoted Manziel as the guest picker earlier this week, but he did not appear on the broadcast Saturday.`\
-https://nytimes.com/athletic/6906634/2025/12/20/johnny-manziel-college-gameday-texas-am/
-
-**The Briefing: Tottenham 1 Liverpool 2 — Slot's side hold on, Isak injury, Spurs down to nine men**\
-`Our writers bring you the key talking points from the Tottenham Hotspur Stadium`\
-https://nytimes.com/athletic/6893409/2025/12/20/tottenham-liverpool-result-isak-premier-league/
-
-**U.S. Coast Guard Boards Tanker Carrying Venezuelan Oil**\
-`The vessel, which was flying a Panamanian flag, was not on a list of tankers under U.S. sanctions.`\
-https://nytimes.com/2025/12/20/us/politics/us-coast-guard-venezuela-oil-tanker.html
-
-**Cynthia Lummis, a One-Term G.O.P. Senator, Will Not Seek Re-election**\
-`A conservative who has served in the Senate since 2021, Ms. Lummis attributed the decision to the “difficult, exhausting session” this fall on Capitol Hill.`\
-https://nytimes.com/2025/12/20/us/politics/cynthia-lummis-reelection.html
-
-**Sabres fire associate GM Jason Karmanos in first front-office move by Jarmo Kekäläinen**\
-`Kekäläinen may try to surround himself with trusted assistants from Columbus to start changing the culture in Buffalo. `\
-https://nytimes.com/athletic/6906529/2025/12/20/jason-karmanos-fired-buffalo-sabres-general-manager/
-
-**'Do we want to be remembered for being cowards?' Doherty warns Wolves**\
-`Doherty also said pushing to leave in January was the "easy option", and claimed his side have become “scared” to take the lead in games.`\
-https://nytimes.com/athletic/6906576/2025/12/20/matt-doherty-wolves-relegation-warning/
-
-**Rosenthal: Why Orioles and Rays made Shane Baz trade – and how it benefits both AL East rivals**\
-`The O's get a potential No. 1 starter. With this deal and an earlier trade Friday, the Rays added six prospects to their top 30.`\
-https://nytimes.com/athletic/6906479/2025/12/20/orioles-rays-trade-al-east-shane-baz/
 
