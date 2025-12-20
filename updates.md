@@ -1,3 +1,7 @@
+**Overlooked No More: Inge Lehmann, Who Discovered the Earth’s Inner Core**\
+`She pointed to evidence that the Earth’s inner core was solid — not liquid, as scientists had believed — a discovery that was ahead of its time.`\
+https://nytimes.com/2025/12/20/obituaries/inge-lehmann-overlooked.html
+
 **Coppola admits concern for World Cup place due to lack of Brighton minutes**\
 `The Italy international made his first league start for Brighton since his summer move on Saturday.`\
 https://nytimes.com/athletic/6906511/2025/12/20/diego-coppola-brighton-italy-world-cup/

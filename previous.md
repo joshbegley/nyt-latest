@@ -1,3 +1,7 @@
+**Overlooked No More: Inge Lehmann, Who Discovered the Earth’s Inner Core**\
+`She pointed to evidence that the Earth’s inner core was solid — not liquid, as scientists had believed — a discovery that was ahead of its time.`\
+https://nytimes.com/2025/12/20/obituaries/inge-lehmann-overlooked.html
+
 **Coppola admits concern for World Cup place due to lack of Brighton minutes**\
 `The Italy international made his first league start for Brighton since his summer move on Saturday.`\
 https://nytimes.com/athletic/6906511/2025/12/20/diego-coppola-brighton-italy-world-cup/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6906442/2025/12/20/wizards-vs-grizzlies-stream-how-
 **How to watch Canucks vs. Bruins: Time, TV, streaming**\
 `Find out how to watch the Vancouver Canucks play the Boston Bruins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6906437/2025/12/20/canucks-vs-bruins-stream-how-to-watch-dec-20/
-
-**How to watch Mavericks vs. 76ers: Time, TV, streaming**\
-`Find out how to watch the Dallas Mavericks play the Philadelphia 76ers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6906435/2025/12/20/mavericks-vs-76ers-stream-how-to-watch-dec-20/
 
