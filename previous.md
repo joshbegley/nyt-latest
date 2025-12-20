@@ -1,3 +1,7 @@
+**Darts and the Ally Pally wasp(s)**\
+`The World Darts Championship is a staple of the festive season - but it's not just the players and fans creating a buzz`\
+https://nytimes.com/athletic/6904470/2025/12/20/darts-world-championship-ally-pally-wasp/
+
 **With Attacks on Oil Tankers, Ukraine Takes Aim at Russia’s War Financing**\
 `Strikes on four vessels signal that Kyiv is willing to expand the maritime theater of the conflict in an effort to crimp Moscow’s military funding.`\
 https://nytimes.com/2025/12/20/world/europe/russia-ukraine-oil-tanker-attacks-shadow-fleet.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/20/movies/as-the-avatar-villain-varang-oona-chaplin-
 **My 55+ Community Is Neglecting Its Maintenance. What Should I Do?**\
 `When formal complaints don’t get results, you can threaten to withhold rent. But be prepared for a fight.`\
 https://nytimes.com/2025/12/20/realestate/renting-landlords-intercom-system-repairs.html
-
-**Koch Political Operation Spent Nearly $550 Million During 2024 Cycle**\
-`The huge sum shows that while the Koch network may not hold significant power at high levels of the Republican Party, it remains a financial juggernaut.`\
-https://nytimes.com/2025/12/20/us/politics/koch-network-2024-election-trump.html
 
