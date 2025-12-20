@@ -1,3 +1,7 @@
+**Epstein Victims Upset About Lack of Transparency in Newly Released Files**\
+`Several victims said they were frustrated by the heavy redactions of photos and documents that the Justice Department released on Friday.`\
+https://nytimes.com/2025/12/19/us/epstein-files-victims-reaction.html
+
 **Judge Blocks Trump Administration’s Homeless Aid Plan**\
 `The proposal would have required recipients to get treatment for addiction or mental illness as a condition of receiving housing funds. The administration has said it will try again.`\
 https://nytimes.com/2025/12/19/us/politics/trump-homelessness-funding-judge.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/19/nyregion/hochul-gas-hookups-rule-repeal.html
 **NASCAR Star’s Plane Turned Back Minutes After Takeoff**\
 `The National Transportation Safety Board is investigating the crash at a North Carolina airport, which killed seven people, including the driver Greg Biffle and his wife and children.`\
 https://nytimes.com/2025/12/19/us/politics/greg-biffle-plane-crash.html
-
-**Elise Stefanik Tried Everything to Please Trump. He Still Jilted Her.**\
-`The G.O.P. congresswoman who ran as a moderate but became an “ultra MAGA” Trump acolyte ultimately found herself undermined by the president and politically adrift.`\
-https://nytimes.com/2025/12/19/us/politics/elise-stefanik-trump-governor-congress.html
 
