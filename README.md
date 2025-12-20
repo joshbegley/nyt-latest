@@ -1,4 +1,4 @@
-**Rosenthal: Why Orioles and Rays made the Shane Baz trade – and how it benefits both AL East rivals**\
+**Rosenthal: Why Orioles and Rays made Shane Baz trade – and how it benefits both AL East rivals**\
 `The O's get a potential No. 1 starter. With this deal and an earlier trade Friday, the Rays added six prospects to their top 30.`\
 https://nytimes.com/athletic/6906479/2025/12/20/orioles-rays-trade-al-east-shane-baz/
 

@@ -1,3 +1,7 @@
+**Rosenthal: Why Orioles and Rays made the Shane Baz trade – and how it benefits both AL East rivals**\
+`The O's get a potential No. 1 starter. With this deal and an earlier trade Friday, the Rays added six prospects to their top 30.`\
+https://nytimes.com/athletic/6906479/2025/12/20/orioles-rays-trade-al-east-shane-baz/
+
 **Overlooked No More: Inge Lehmann, Who Discovered the Earth’s Inner Core**\
 `She pointed to evidence that the Earth’s inner core was solid — not liquid, as scientists had believed — a discovery that was ahead of its time.`\
 https://nytimes.com/2025/12/20/obituaries/inge-lehmann-overlooked.html
