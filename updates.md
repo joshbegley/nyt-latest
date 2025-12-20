@@ -1,3 +1,7 @@
+**Miami emerges from low-scoring slugfest, downing Texas A&M: Takeaways**\
+`Miami will play No. 2 Ohio State in the Cotton Bowl on Dec. 31.`\
+https://nytimes.com/athletic/6906710/2025/12/20/miami-texas-am-college-football-playoff-takeaways-score/
+
 **Isak set for scan on injury sustained after scoring vs. Tottenham**\
 `Isak was replaced after being caught as he put Liverpool ahead at the Tottenham Hotspur Stadium.`\
 https://nytimes.com/athletic/6906801/2025/12/20/alexander-isak-liverpool-injury-update/
