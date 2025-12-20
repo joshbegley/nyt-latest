@@ -1,3 +1,7 @@
+**Blue Jackets hope Mason Marchment boosts lineup, jolts dressing room**\
+`GM Don Waddell has wanted Marchment for a while, but he also wanted to change the dynamic with the Blue Jackets.`\
+https://nytimes.com/athletic/6906236/2025/12/20/blue-jackets-mason-marchment-trade-analysis/
+
 **Do people buy NBA Cup champions gear? We investigate**\
 `The NBA Cup doesn't get much respect, but does that stop fans from repping their team's success in the competition? `\
 https://nytimes.com/athletic/6906050/2025/12/20/knicks-nba-cup-merchandise/

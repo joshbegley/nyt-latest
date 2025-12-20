@@ -1,3 +1,7 @@
+**Blue Jackets hope Mason Marchment boosts lineup, jolts dressing room**\
+`GM Don Waddell has wanted Marchment for a while, but he also wanted to change the dynamic with the Blue Jackets.`\
+https://nytimes.com/athletic/6906236/2025/12/20/blue-jackets-mason-marchment-trade-analysis/
+
 **Do people buy NBA Cup champions gear? We investigate**\
 `The NBA Cup doesn't get much respect, but does that stop fans from repping their team's success in the competition? `\
 https://nytimes.com/athletic/6906050/2025/12/20/knicks-nba-cup-merchandise/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6906425/2025/12/20/pacers-vs-pelicans-stream-how-to
 **How to watch Maple Leafs vs. Predators: Time, TV, streaming**\
 `Find out how to watch the Toronto Maple Leafs play the Nashville Predators, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6906422/2025/12/20/maple-leafs-vs-predators-stream-how-to-watch-dec-20/
-
-**How to watch Penguins vs. Canadiens: Time, TV, streaming**\
-`Find out how to watch the Pittsburgh Penguins play the Montreal Canadiens, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6906420/2025/12/20/penguins-vs-canadiens-stream-how-to-watch-dec-20/
 
