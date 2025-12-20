@@ -1,3 +1,7 @@
+**Rubio Meets (and Meets, and Meets … ) the Press**\
+`The secretary of state held a marathon news conference, offering little news but more respect for reporters than most others in the Trump administration.`\
+https://nytimes.com/2025/12/19/us/politics/marco-rubio-briefing-reporters.html
+
 **Lawmakers Criticize Justice Dept. For Not Releasing All Epstein Files**\
 `Republicans and Democrats who had been pressing for the disclosure accused officials of failing to comply with a law that requires all material to be released.`\
 https://nytimes.com/2025/12/19/us/congress-doj-epstein-files.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6905252/2025/12/19/pittsburgh-pirates-brandon-lowe-
 **Hochul Reaches Deal on A.I. Regulation in New York**\
 `The bill, which lawmakers passed in June, will be modified to more closely match a similar law in California, at Big Tech’s urging.`\
 https://nytimes.com/2025/12/19/nyregion/ai-bill-regulations-ny.html
-
-**Mavericks' GM search to push past NBA trade deadline, focus on experience: Sources**\
-`The Mavericks' front office is expected to field offers on Anthony Davis and other veteran players in the coming weeks.`\
-https://nytimes.com/athletic/6904524/2025/12/19/mavericks-gm-search-candidates/
 
