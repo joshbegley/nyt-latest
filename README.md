@@ -1,3 +1,27 @@
+**How to watch Oakland vs. Michigan State men's basketball: Time, TV, streaming**\
+`Find out how to watch the Oakland Golden Grizzlies play the Michigan State Spartans, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6905975/2025/12/20/oakland-vs-michigan-state-stream-how-to-watch-dec-20/
+
+**How to watch St. John's vs. Kentucky men's basketball: Time, TV, streaming**\
+`Find out how to watch the St. John's Red Storm play the Kentucky Wildcats, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6905973/2025/12/20/st-john-s-vs-kentucky-stream-how-to-watch-dec-20/
+
+**How to watch Montana vs. Louisville men's basketball: Time, TV, streaming**\
+`Find out how to watch the Montana Grizzlies play the Louisville Cardinals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6905971/2025/12/20/montana-vs-louisville-stream-how-to-watch-dec-20/
+
+**How to watch South Carolina vs. FGCU women's basketball: Time, TV, streaming**\
+`Find out how to watch the South Carolina Gamecocks play the Florida Gulf Coast Eagles, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6905969/2025/12/20/south-carolina-vs-fgcu-stream-how-to-watch-dec-20/
+
+**How to watch Texas Southern vs. Vanderbilt women's basketball: Time, TV, streaming**\
+`Find out how to watch the Texas Southern Tigers play the Vanderbilt Commodores, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6905967/2025/12/20/texas-southern-vs-vanderbilt-stream-how-to-watch-dec-20/
+
+**How to watch Iowa vs. UConn women's basketball: Time, TV, streaming**\
+`Find out how to watch the Iowa Hawkeyes play the UConn Huskies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6905959/2025/12/20/iowa-vs-uconn-stream-how-to-watch-dec-20/
+
 **NFL Saturday is back. Here's how to watch Eagles vs. Commanders, Packers vs. Bears**\
 `The NFL returns to Saturday action with two of its most revered rivalries. Here's what you need to know.`\
 https://nytimes.com/athletic/6902125/2025/12/20/nfl-saturday-schedule-eagles-commanders-packers-bears/
@@ -13,29 +37,4 @@ https://nytimes.com/athletic/6905721/2025/12/20/alabama-kalen-deboer-cfp-michiga
 **Game, blouses: VJ Edgecombe soars as 76ers finally get a signature win**\
 `VJ Edgecombe is proving he's more than a reliable rookie. He's becoming an offensive engine.`\
 https://nytimes.com/athletic/6905573/2025/12/20/76ers-knicks-vj-edgecombe-highlights-dunk/
-
-**Inside the tense relationship between NCAA programs and CHL teams**\
-`Over the last several months, The Athletic spoke with NCAA and CHL coaches and executives about their uneasy alliance.
-`\
-https://nytimes.com/athletic/6797867/2025/12/20/hockey-chl-ncaa-world-juniors-gavin-mckenna/
-
-**UConn-Iowa, Tennessee-Louisville collide in Women's Champions Classic. Here's how to watch**\
-`The 2025 Women's Champions Classic features four of college basketball's most elite squads in a Saturday doubleheader.`\
-https://nytimes.com/athletic/6901071/2025/12/20/uconn-iowa-basketball-womens-champions-classic-2025-tv/
-
-**I thought I lost my team the state championship. Then I went viral**\
-`Tyler Milioto was at the center of a wild finish in the Louisiana state championship game that went viral.`\
-https://nytimes.com/athletic/6904812/2025/12/20/sports-lessons-dont-quit-kicker-st-charles-louisiana/
-
-**Christian McCaffrey chasing Roger Craig, standard that shaped 49ers icon**\
-`McCaffrey’s longest run this season has only been 20 yards, but he bounces off tacklers and makes others miss with regularity, like Craig.`\
-https://nytimes.com/athletic/6905231/2025/12/20/christian-mccaffrey-49ers-roger-craig-nfl-record/
-
-**Should I Feel Bad About Joining a Concierge Medical Practice?**\
-`I can afford the membership fee, but I’m torn about the ethics of being part of this growing trend.`\
-https://nytimes.com/2025/12/20/magazine/concierge-medical-practice-ethics.html
-
-**Connections Companion No. 924**\
-`Scroll down for hints and conversation about the puzzle for Sunday, Dec. 21, 2025.`\
-https://nytimes.com/2025/12/20/crosswords/connections-companion-924.html
 
