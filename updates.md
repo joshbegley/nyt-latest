@@ -1,3 +1,7 @@
+**Arizona State's Dillingham signs new deal as Michigan search continues: Source**\
+`The new contract will raise Dillingham's salary to $7.5 million per year.`\
+https://nytimes.com/athletic/6906044/2025/12/20/kenny-dillingham-arizona-state-contract-michigan/
+
 **The Briefing: Newcastle 2 Chelsea 2 - What did Maresca say at half-time? How did Gordon not earn penalty?**\
 `Newcastle's meeting with Chelsea was packed with drama - The Athletic analyses all the talking points`\
 https://nytimes.com/athletic/6893407/2025/12/20/newcastle-2-chelsea-2-maresca-woltemade-gordon-james-joao-pedro/
