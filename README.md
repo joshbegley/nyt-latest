@@ -1,3 +1,7 @@
+**Cowboys activate Trevon Diggs; cornerback hasn't played since Week 6**\
+`Diggs had said he expected to play last week against the Vikings and was “definitely disappointed” when he was not activated.`\
+https://nytimes.com/athletic/6906876/2025/12/20/cowboys-trevon-diggs-activated-against-chargers/
+
 **Notre Dame fans cry foul over low-scoring Miami-Texas A&M Playoff matchup**\
 `Texas A&M-Miami was the first College Football Playoff game ever to go into halftime with a scoreless tie.`\
 https://nytimes.com/athletic/6906783/2025/12/20/miami-texas-aggies-cfp-notre-dame-reactions/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6906712/2025/12/20/mahomes-doncic-irving-christmas-
 **Isak set for scan on injury sustained after scoring vs. Tottenham**\
 `Isak was replaced after being caught as he put Liverpool ahead at the Tottenham Hotspur Stadium.`\
 https://nytimes.com/athletic/6906801/2025/12/20/alexander-isak-liverpool-injury-update/
-
-**College Football Playoff 2025 projections: Who's favored to advance in the bracket?**\
-`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
-https://nytimes.com/athletic/6560541/2025/12/20/college-football-playoff-bracket-projections-odds/
 
