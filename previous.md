@@ -1,3 +1,7 @@
+**Shouldn’t be in CFP? Alabama roars back from 17-0 hole at Oklahoma to advance to Rose Bowl**\
+`Momentum swung before halftime in the Crimson Tide's favor, and they never looked back.`\
+https://nytimes.com/athletic/6905495/2025/12/19/alabama-oklahoma-score-results-takeaways-college-football-playoff/
+
 **A Timeline of How the Trump Administration Released and Withheld Epstein Files**\
 `A year of political pressure and partial disclosures preceded the release of long-sought records on Jeffrey Epstein.`\
 https://nytimes.com/2025/12/19/us/politics/epstein-files-release-timeline.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/19/us/politics/trump-homelessness-funding-judge.html
 **Ramaswamy Challenges Conservatives on Surging Bigotry on the Right**\
 `The leading Republican candidate for Ohio governor is calling out his party for rising intolerance, including against Indian American immigrants and their children, like him.`\
 https://nytimes.com/2025/12/19/us/politics/vivek-ramaswamy-anti-indian-hate.html
-
-**White House Chides Smithsonian for Delayed Turnover of Records on Programming**\
-`The institution has tried to work with the administration’s demands that it present a more uplifting view of American history.`\
-https://nytimes.com/2025/12/19/us/politics/smithsonian-records-trump.html
 
