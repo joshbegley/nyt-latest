@@ -1,3 +1,11 @@
+**Do people buy NBA Cup champions gear? We investigate**\
+`The NBA Cup doesn't get much respect, but does that stop fans from repping their team's success in the competition? `\
+https://nytimes.com/athletic/6906050/2025/12/20/knicks-nba-cup-merchandise/
+
+**Chelsea coach Maresca to serve touchline ban for Villa game**\
+`Maresca will serve his second touchline ban of the season for Chelsea's Premier League match at home against Aston Villa on December 27. `\
+https://nytimes.com/athletic/6906284/2025/12/20/enzo-maresca-chelsea-suspension/
+
 **California Faces a Weeklong Lashing of Rain, Wind and Some Snow**\
 `Forecasters said a parade of storms from the Pacific Ocean will pull in a river of moisture. Over the next week, parts of Northern California could get seven to 10 inches of rain.`\
 https://nytimes.com/2025/12/20/weather/california-rain-atmospheric-river.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6906422/2025/12/20/maple-leafs-vs-predators-stream-
 **How to watch Penguins vs. Canadiens: Time, TV, streaming**\
 `Find out how to watch the Pittsburgh Penguins play the Montreal Canadiens, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6906420/2025/12/20/penguins-vs-canadiens-stream-how-to-watch-dec-20/
-
-**How to watch Hornets vs. Pistons: Time, TV, streaming**\
-`Find out how to watch the Charlotte Hornets play the Detroit Pistons, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6906417/2025/12/20/hornets-vs-pistons-stream-how-to-watch-dec-20/
-
-**How to watch Celtics vs. Raptors: Time, TV, streaming**\
-`Find out how to watch the Boston Celtics play the Toronto Raptors, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6906414/2025/12/20/celtics-vs-raptors-stream-how-to-watch-dec-20/
 

@@ -1,3 +1,11 @@
+**Do people buy NBA Cup champions gear? We investigate**\
+`The NBA Cup doesn't get much respect, but does that stop fans from repping their team's success in the competition? `\
+https://nytimes.com/athletic/6906050/2025/12/20/knicks-nba-cup-merchandise/
+
+**Chelsea coach Maresca to serve touchline ban for Villa game**\
+`Maresca will serve his second touchline ban of the season for Chelsea's Premier League match at home against Aston Villa on December 27. `\
+https://nytimes.com/athletic/6906284/2025/12/20/enzo-maresca-chelsea-suspension/
+
 **California Faces a Weeklong Lashing of Rain, Wind and Some Snow**\
 `Forecasters said a parade of storms from the Pacific Ocean will pull in a river of moisture. Over the next week, parts of Northern California could get seven to 10 inches of rain.`\
 https://nytimes.com/2025/12/20/weather/california-rain-atmospheric-river.html
