@@ -1,3 +1,7 @@
+**Kings trade Phillip Danault to Canadiens for draft pick**\
+`Danault, 32, was in the midst of a trying season with the Kings, as he didn’t score a goal and produced just five assists in 30 games.`\
+https://nytimes.com/athletic/6905596/2025/12/19/la-kings-phillip-danault-canadiens-trade/
+
 **6 Takeaways From the First Batch of the Epstein Files**\
 `Many of the Justice Department documents were heavily redacted, and President Trump’s name was rarely mentioned. The White House also sought to make political hay of the release of photos of Bill Clinton.`\
 https://nytimes.com/2025/12/19/us/politics/epstein-files-takeaways.html
