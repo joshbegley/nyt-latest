@@ -1,3 +1,7 @@
+**'Do we want to be remembered for being cowards?' Doherty warns Wolves**\
+`Doherty also said pushing to leave in January was the "easy option", and claimed his side have become “scared” to take the lead in games.`\
+https://nytimes.com/athletic/6906576/2025/12/20/matt-doherty-wolves-relegation-warning/
+
 **Rosenthal: Why Orioles and Rays made Shane Baz trade – and how it benefits both AL East rivals**\
 `The O's get a potential No. 1 starter. With this deal and an earlier trade Friday, the Rays added six prospects to their top 30.`\
 https://nytimes.com/athletic/6906479/2025/12/20/orioles-rays-trade-al-east-shane-baz/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6906284/2025/12/20/enzo-maresca-chelsea-suspension/
 **California Faces a Weeklong Lashing of Rain, Wind and Some Snow**\
 `Forecasters said a parade of storms from the Pacific Ocean will pull in a river of moisture. Over the next week, parts of Northern California could get seven to 10 inches of rain.`\
 https://nytimes.com/2025/12/20/weather/california-rain-atmospheric-river.html
-
-**How to watch Wizards vs. Grizzlies: Time, TV, streaming**\
-`Find out how to watch the Washington Wizards play the Memphis Grizzlies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6906442/2025/12/20/wizards-vs-grizzlies-stream-how-to-watch-dec-20/
 
