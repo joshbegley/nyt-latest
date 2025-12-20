@@ -1,3 +1,11 @@
+**Miami emerges from low-scoring slugfest, downing Texas A&M for first Playoff win**\
+`Miami will play No. 2 Ohio State in the Cotton Bowl on Dec. 31.`\
+https://nytimes.com/athletic/6906710/2025/12/20/miami-texas-am-college-football-playoff-takeaways-score/
+
+**Lakers' Marcus Smart fined $35K for 'obscene gesture' toward official**\
+`Smart has been fined multiple times for his behavior toward officials during his NBA career.`\
+https://nytimes.com/athletic/6906666/2025/12/20/marcus-smart-lakers-jazz-fine-nba/
+
 **Land Grab: Israel’s Escalating Campaign for Control of the West Bank**\
 `Israeli seizure of Palestinian lands in the West Bank, often brutally, has accelerated, raising doubts about the prospects of a peaceful solution to the conflict.`\
 https://nytimes.com/interactive/2025/12/20/world/middleeast/west-bank-settlements.html
