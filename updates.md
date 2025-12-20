@@ -1,3 +1,7 @@
+**Hezbollah Is Down, but Not Out, as Lebanon Faces Pressure to Disarm It**\
+`The Lebanese militant group has resisted calls to lay down all its arms, risking a return to war with Israel.`\
+https://nytimes.com/2025/12/20/world/middleeast/hezbollah-lebanon-israel.html
+
 **How to watch Tennessee vs. Louisville women's basketball: Time, TV, streaming**\
 `Find out how to watch the Tennessee Lady Volunteers play the Louisville Cardinals, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6905865/2025/12/20/tennessee-vs-louisville-stream-how-to-watch-dec-20/

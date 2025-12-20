@@ -1,3 +1,7 @@
+**Hezbollah Is Down, but Not Out, as Lebanon Faces Pressure to Disarm It**\
+`The Lebanese militant group has resisted calls to lay down all its arms, risking a return to war with Israel.`\
+https://nytimes.com/2025/12/20/world/middleeast/hezbollah-lebanon-israel.html
+
 **How to watch Tennessee vs. Louisville women's basketball: Time, TV, streaming**\
 `Find out how to watch the Tennessee Lady Volunteers play the Louisville Cardinals, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6905865/2025/12/20/tennessee-vs-louisville-stream-how-to-watch-dec-20/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/20/world/asia/taiwan-subway-stabbing.html
 **Jeff Shi's position at Wolves was untenable. Now Fosun need to implement real change**\
 `The legacy Wolves fans Shi took for granted have engineered change through peaceful protest. But what happens next will be telling`\
 https://nytimes.com/athletic/6905562/2025/12/20/jeff-shi-wolves-fosun-change/
-
-**The New York Times in Print for Saturday, Dec. 20, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/12/20/todays-new-york-times
 
