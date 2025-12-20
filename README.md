@@ -1,3 +1,11 @@
+**Taiwan’s Subway Stabber Planned His Deadly Spree, Police Say**\
+`Investigators said they were unsure of the attacker’s motives. But clues pointed to an isolated and increasingly troubled life, and no accomplices.`\
+https://nytimes.com/2025/12/20/world/asia/taiwan-subway-stabbing.html
+
+**Jeff Shi's position at Wolves was untenable. Now Fosun need to implement real change**\
+`The legacy Wolves fans Shi took for granted have engineered change through peaceful protest. But what happens next will be telling`\
+https://nytimes.com/athletic/6905562/2025/12/20/jeff-shi-wolves-fosun-change/
+
 **The New York Times in Print for Saturday, Dec. 20, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/12/20/todays-new-york-times
@@ -14,10 +22,6 @@ https://nytimes.com/2025/12/20/nyregion/luigi-mangione-pam-bondi-united-healthca
 `While the idea of adding a clutch playoff performer sounds enticing, Danault's offensive downturn and contract are a concern.`\
 https://nytimes.com/athletic/6905624/2025/12/20/kings-canadiens-phillip-danault-trade-grades-nhl/
 
-**Pep Guardiola has found his formula and full-backs O’Reilly and Nunes are central to it**\
-`Their formation has become narrower, but Manchester City are relying on their wide players more than ever`\
-https://nytimes.com/athletic/6897056/2025/12/20/man-city-guardiola-nunes-oreilly/
-
 **Buendia embodies everything Emery wants from a No 10**\
 `His dramatic winner against Arsenal embodied the resilience that has defined the season to date for the Argentinian and his club`\
 https://nytimes.com/athletic/6898947/2025/12/20/emi-buendia-tactical-rebirth/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6905647/2025/12/20/kraken-mason-marchment-blue-jack
 **AFCON, Total Energies and football's problematic links to fossil fuel**\
 `The energy company’s sponsorship is a reminder of how football feels morally compromised on environmental issues`\
 https://nytimes.com/athletic/6899904/2025/12/20/afcon-total-energies-fossil-fuel/
-
-**Amorim's reluctance to use kids is understandable. His public attacks are not**\
-`It is no surprise that United's under-pressure head coach does not prioritise the academy but he must choose his words more carefully`\
-https://nytimes.com/athletic/6899631/2025/12/20/ruben-amorim-manchester-united-academy/
 

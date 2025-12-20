@@ -1,3 +1,7 @@
+**Lou Cannon Dies at 92; Journalist Chronicled Reagan as an Author**\
+`He was a foremost authority on the president, tracing his career in unvarnished accounts from his time as California governor through his years in the White House.`\
+https://nytimes.com/2025/12/20/books/lou-cannon-dead.html
+
 **Lou Cannon, Journalist Who Chronicled Reagan as an Author, Dies at 92**\
 `He was a foremost authority on the president, tracking his career in unvarnished accounts from his time as California governor through his years in the White House.`\
 https://nytimes.com/2025/12/20/books/lou-cannon-dead.html
