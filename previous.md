@@ -1,6 +1,6 @@
 **Lawmakers Criticize Justice Dept. For Not Releasing All Epstein Files**\
 `Republicans and Democrats who had been pressing for the disclosure accused officials of failing to comply with a law that requires all material to be released.`\
-https://nytimes.com/2025/12/19/us/lawmakers-criticize-justice-dept.html
+https://nytimes.com/2025/12/19/us/congress-doj-epstein-files.html
 
 **Investigation into plane crash that killed Greg Biffle, 6 others begins**\
 `The plane had 3 licensed pilots aboard, and investigators haven't determined who was operating the aircraft.`\
