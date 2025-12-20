@@ -1,3 +1,7 @@
+**Iowa State QB Rocco Becht plans to enter portal: Source**\
+`A three-year starter at Iowa State, Rocco Becht decided to enter the transfer portal on Friday. Could he join Matt Campbell at Penn State?`\
+https://nytimes.com/athletic/6906243/2025/12/20/rocco-becht-transfer-portal-iowa-state-psu/
+
 **Passenger Train in India Hits Elephant Herd, Killing Seven**\
 `No people were injured in the accident, despite a partial derailment. As elephant habitat shrinks, such deadly encounters are on the rise.`\
 https://nytimes.com/2025/12/20/world/asia/india-elephant-train-death.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/20/dining/make-sugar-cake-your-new-holiday-tradition
 **Chabot's pending return, Batherson's scoring and evaluating trade options: Sens notebook**\
 `Also, how Jake Sanderson reacted to playing longer minutes than usual in Thomas Chabot's absence.`\
 https://nytimes.com/athletic/6901780/2025/12/20/chabot-batherson-sanderson-trade/
-
-**The Briefing: Newcastle 2 Chelsea 2 — What did Maresca say at half-time? How did Gordon not earn penalty?**\
-`Newcastle's meeting with Chelsea was packed with drama — The Athletic analyses all the talking points`\
-https://nytimes.com/athletic/6893407/2025/12/20/newcastle-2-chelsea-2-maresca-woltemade-gordon-james-joao-pedro/
 

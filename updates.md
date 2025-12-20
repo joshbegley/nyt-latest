@@ -1,3 +1,7 @@
+**Passenger Train in India Hits Elephant Herd, Killing Seven**\
+`No people were injured in the accident, despite a partial derailment. As elephant habitat shrinks, such deadly encounters are on the rise.`\
+https://nytimes.com/2025/12/20/world/asia/india-elephant-train-death.html
+
 **Now Bring Us Some Sticky Toffee Pudding**\
 `No tricky techniques, no specialty ingredients, just perfect sticky toffee pudding with “extra” sauce.`\
 https://nytimes.com/2025/12/20/dining/now-bring-us-some-sticky-toffee-pudding.html
