@@ -1,3 +1,11 @@
+**Coppola admits concern for World Cup place due to lack of Brighton minutes**\
+`The Italy international made his first league start for Brighton since his summer move on Saturday.`\
+https://nytimes.com/athletic/6906511/2025/12/20/diego-coppola-brighton-italy-world-cup/
+
+**Dodgers to pay record $169 million luxury tax bill after back-to-back World Series wins**\
+`The Dodgers' 2025 tax bill exceeds the payrolls of 12 separate MLB franchises this season.`\
+https://nytimes.com/athletic/6906230/2025/12/20/dodgers-mlb-luxury-tax-payment-2025/
+
 **The Pulse: Streaming the Super Bowl?**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6905734/2025/12/20/is-streaming-the-super-bowl-in-our-future/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6906437/2025/12/20/canucks-vs-bruins-stream-how-to-
 **How to watch Mavericks vs. 76ers: Time, TV, streaming**\
 `Find out how to watch the Dallas Mavericks play the Philadelphia 76ers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6906435/2025/12/20/mavericks-vs-76ers-stream-how-to-watch-dec-20/
-
-**How to watch Hurricanes vs. Lightning: Time, TV, streaming**\
-`Find out how to watch the Carolina Hurricanes play the Tampa Bay Lightning, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6906428/2025/12/20/hurricanes-vs-lightning-stream-how-to-watch-dec-20/
-
-**How to watch Pacers vs. Pelicans: Time, TV, streaming**\
-`Find out how to watch the Indiana Pacers play the New Orleans Pelicans, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6906425/2025/12/20/pacers-vs-pelicans-stream-how-to-watch-dec-20/
 
