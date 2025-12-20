@@ -1,3 +1,7 @@
+**How a reluctant Division II transfer became an SEC phenomenon at Ole Miss**\
+`Ferris State transfer Trinidad Chambliss has been a surprise breakout star at Ole Miss as the Rebels head into the College Football Playoff.`\
+https://nytimes.com/athletic/6716551/2025/12/20/trinidad-chambliss-ole-miss-ferris-state/
+
 **Scoop City: Fantasy tips to win Week 16**\
 `Andy Behrens provides a rundown of everything fantasy football you need to know for Week 16.`\
 https://nytimes.com/athletic/6905257/2025/12/20/everything-fantasy-football-managers-need-to-know-week-16/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6904520/2025/12/20/winnipeg-jets-nhl-trade-deadline
 **The Evgeni Malkin dilemma is hanging over the Penguins and Kyle Dubas**\
 `Kyle Dubas will have his hands full when it comes to Evgeni Malkin's future.`\
 https://nytimes.com/athletic/6904887/2025/12/20/evgeni-malkin-penguins-kyle-dubas/
-
-**Is it time to turn attention to draft lottery again as Blackhawks' playoff hopes slide?**\
-`Chicago's outlook has changed for the season, and the thought of it joining the NHL Draft Lottery conversation again isn't far off.`\
-https://nytimes.com/athletic/6904742/2025/12/20/blackhawks-nhl-playoffs-draft-lottery/
 
