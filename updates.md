@@ -1,3 +1,12 @@
+**NFL Saturday is back. Here's how to watch Eagles vs. Commanders, Packers vs. Bears**\
+`The NFL returns to Saturday action with two of its most revered rivalries. Here's what you need to know.`\
+https://nytimes.com/athletic/6902125/2025/12/20/nfl-saturday-schedule-eagles-commanders-packers-bears/
+
+**Inside the tense relationship between NCAA programs and CHL teams**\
+`Over the last several months, The Athletic spoke with NCAA and CHL coaches and executives about their uneasy alliance.
+`\
+https://nytimes.com/athletic/6797867/2025/12/20/hockey-chl-ncaa-world-juniors-gavin-mckenna/
+
 **NFL Week 16 roundtable: Parsons-less Packers meet Bears, Jaguars-Broncos, NFC South woes**\
 `Jaguars-Broncos could be the week's biggest showdown, while the Packers and Bears battle in the NFC North. Our writers discuss Week 16.`\
 https://nytimes.com/athletic/6904531/2025/12/20/nfl-week-16-parsons-jaguars-bears-broncos-patriots/
