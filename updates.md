@@ -1,3 +1,7 @@
+**Adeyemi to be fined by Dortmund for reaction to being substituted**\
+`After being withdrawn, Adeyemi walked past the Dortmund bench and appeared to be heading towards the tunnel and back to the dressing room.`\
+https://nytimes.com/athletic/6906226/2025/12/20/karim-adeyemi-dortmund-fined/
+
 **Iowa State QB Rocco Becht plans to enter portal: Source**\
 `A three-year starter at Iowa State, Rocco Becht decided to enter the transfer portal on Friday. Could he join Matt Campbell at Penn State?`\
 https://nytimes.com/athletic/6906243/2025/12/20/rocco-becht-transfer-portal-iowa-state-psu/

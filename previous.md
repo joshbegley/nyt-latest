@@ -1,3 +1,7 @@
+**Adeyemi to be fined by Dortmund for reaction to being substituted**\
+`After being withdrawn, Adeyemi walked past the Dortmund bench and appeared to be heading towards the tunnel and back to the dressing room.`\
+https://nytimes.com/athletic/6906226/2025/12/20/karim-adeyemi-dortmund-fined/
+
 **Iowa State QB Rocco Becht plans to enter portal: Source**\
 `A three-year starter at Iowa State, Rocco Becht decided to enter the transfer portal on Friday. Could he join Matt Campbell at Penn State?`\
 https://nytimes.com/athletic/6906243/2025/12/20/rocco-becht-transfer-portal-iowa-state-psu/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6905316/2025/12/20/chris-finch-timberwolves-thunder
 **Make Sugar Cake Your New Holiday Tradition**\
 `Moravian sugar cake is a pillowy cake-bread hybrid with a caramelized crust and, best of all, little pockets of crunchy, buttery sugar.`\
 https://nytimes.com/2025/12/20/dining/make-sugar-cake-your-new-holiday-tradition.html
-
-**Chabot's pending return, Batherson's scoring and evaluating trade options: Sens notebook**\
-`Also, how Jake Sanderson reacted to playing longer minutes than usual in Thomas Chabot's absence.`\
-https://nytimes.com/athletic/6901780/2025/12/20/chabot-batherson-sanderson-trade/
 

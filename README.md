@@ -1,3 +1,7 @@
+**The Briefing: Manchester City 2 West Ham 0: Haaland and Reijnders goals pile pressure on Arsenal**\
+`Manchester City comfortably beat West Ham 3-0 at the Etihad Stadium. Jordan Campbell brings you the key talking points...`\
+https://nytimes.com/athletic/6893408/2025/12/20/manchester-city-west-ham-premier-league-result/
+
 **Adeyemi to be fined by Dortmund for reaction to being substituted**\
 `After being withdrawn, Adeyemi walked past the Dortmund bench and appeared to be heading towards the tunnel and back to the dressing room.`\
 https://nytimes.com/athletic/6906226/2025/12/20/karim-adeyemi-dortmund-fined/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6906180/2025/12/20/thiago-silva-porto-transfer/
 **'It got us going': Chris Finch's fiery exit spurs Wolves to their most intense performance of the season**\
 `It was only a matter of time before Chris Finch would erupt. The Timberwolves used it as fuel in their win over the Thunder.`\
 https://nytimes.com/athletic/6905316/2025/12/20/chris-finch-timberwolves-thunder/
-
-**Make Sugar Cake Your New Holiday Tradition**\
-`Moravian sugar cake is a pillowy cake-bread hybrid with a caramelized crust and, best of all, little pockets of crunchy, buttery sugar.`\
-https://nytimes.com/2025/12/20/dining/make-sugar-cake-your-new-holiday-tradition.html
 
