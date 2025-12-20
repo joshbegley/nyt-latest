@@ -1,3 +1,7 @@
+**Arizona State's Dillingham signs new deal, taking Michigan candidate off board: Source**\
+`The new contract will raise Dillingham's salary to $7.5 million per year.`\
+https://nytimes.com/athletic/6906044/2025/12/20/kenny-dillingham-arizona-state-contract-michigan/
+
 **Colorado State Senator at Fault in Car Crash That Killed Her, Officials Say**\
 `A toxicology report found elevated levels of alcohol in Senator Faith Winter’s blood at the time of the November crash.`\
 https://nytimes.com/2025/12/20/us/colorado-state-senator-at-fault-in-car-crash-that-killed-her-officials-say.html

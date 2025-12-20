@@ -1,3 +1,7 @@
+**Arizona State's Dillingham signs new deal, taking Michigan candidate off board: Source**\
+`The new contract will raise Dillingham's salary to $7.5 million per year.`\
+https://nytimes.com/athletic/6906044/2025/12/20/kenny-dillingham-arizona-state-contract-michigan/
+
 **Colorado State Senator at Fault in Car Crash That Killed Her, Officials Say**\
 `A toxicology report found elevated levels of alcohol in Senator Faith Winter’s blood at the time of the November crash.`\
 https://nytimes.com/2025/12/20/us/colorado-state-senator-at-fault-in-car-crash-that-killed-her-officials-say.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6901265/2025/12/20/fcs-playoffs-semifinals-montana-
 **Olympic check-in: Which Rangers have the best chance to go to Milan?**\
 `The Rangers have multiple players with realistic chances to make Olympic rosters, including a few Americans.`\
 https://nytimes.com/athletic/6904592/2025/12/20/olympics-hockey-rangers-players-roster-chances/
-
-**From puck cupping to heel touches: The skills NHLers consider when customizing their curves**\
-`Which curves do NHLers use, and why? The Athletic asked a sampling of players. Their roles go a long way in explaining their preferences.`\
-https://nytimes.com/athletic/6878634/2025/12/20/nhl-stick-customization-blades-curves/
 
