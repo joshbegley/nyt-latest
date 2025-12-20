@@ -1,3 +1,7 @@
+**Land Grab: Israel’s Escalating Campaign for Control of the West Bank**\
+`Israeli seizure of Palestinian lands in the West Bank, often brutally, has accelerated, raising doubts about the prospects of a peaceful solution to the conflict.`\
+https://nytimes.com/interactive/2025/12/20/world/middleeast/west-bank-settlements.html
+
 **How to watch Magic vs. Jazz: Time, TV, streaming**\
 `Find out how to watch the Orlando Magic play the Utah Jazz, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6906788/2025/12/20/magic-vs-jazz-stream-how-to-watch-dec-20/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6906760/2025/12/20/san-diego-state-vs-arizona-strea
 **Bill Clinton, a Main Character in the Epstein Drop, Just Can’t Escape Scandal**\
 `The Republican-led Justice Department’s release of photos of the former president with Jeffrey Epstein will introduce yet another generation to his flaws and controversies.`\
 https://nytimes.com/2025/12/20/us/politics/bill-clinton-epstein-files-photos-scandal.html
-
-**Real Sociedad appoint American head coach Matarazzo**\
-`The club has reached an agreement with Matarazzo on a contract through to the end of the 2026-27 season.`\
-https://nytimes.com/athletic/6903263/2025/12/20/real-sociedad-manager-matarazzo/
 
