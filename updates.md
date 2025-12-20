@@ -1,3 +1,7 @@
+**Anthony Joshua breezes back to heavyweight stardom with rout of dancing, trolling Jake Paul**\
+`Order has been restored to professional boxing. Or, at least, as much order as boxing ever has.`\
+https://nytimes.com/athletic/6905529/2025/12/20/jake-paul-vs-anthony-joshua-fight-result-netflix/
+
 **Pep Guardiola has found his formula and full-backs O’Reilly and Nunes are central to it**\
 `Their formation has become narrower, but Manchester City are relying on their wide players more than ever`\
 https://nytimes.com/athletic/6897056/2025/12/20/man-city-guardiola-nunes-oreilly/
