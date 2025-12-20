@@ -1,40 +1,40 @@
+**Kraken trade Mason Marchment to Blue Jackets for draft picks: Sources**\
+`Marchment, who has four goals and 13 points in 29 games this season, will join his fifth NHL franchise.`\
+https://nytimes.com/athletic/6905647/2025/12/20/kraken-mason-marchment-blue-jackets-trade/
+
+**AFCON, Total Energies and football's problematic links to fossil fuel**\
+`The energy company’s sponsorship is a reminder of how football feels morally compromised on environmental issues`\
+https://nytimes.com/athletic/6899904/2025/12/20/afcon-total-energies-fossil-fuel/
+
+**Amorim's reluctance to use kids is understandable. His public attacks are not**\
+`It is no surprise that United's under-pressure head coach does not prioritise the academy but he must choose his words more carefully`\
+https://nytimes.com/athletic/6899631/2025/12/20/ruben-amorim-manchester-united-academy/
+
+**Two NJ Transit Trains Collide, Injuring More Than a Dozen People**\
+`The incident Friday evening shut down the Montclair-Boonton Line in Montclair, N.J.`\
+https://nytimes.com/2025/12/20/nyregion/nj-transit-crash.html
+
+**Connections: Sports Edition Coach: Hints for Dec. 20, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6905039/2025/12/20/connections-sports-edition-hints-for-dec-20-2025/
+
+**Escape From the Abyss: Surviving the Atrocities in El Fasher**\
+`No one knows the true toll of the massacre, and the city remains isolated. Now, refugee camps in Chad are flooded with newly displaced Sudanese.`\
+https://nytimes.com/2025/12/20/world/africa/sudan-el-fasher-refugees-chad.html
+
+**Corrections: Dec. 20, 2025**\
+`Corrections that appeared in print on Saturday, Dec. 20, 2025.`\
+https://nytimes.com/2025/12/20/pageoneplus/corrections-dec-20-2025.html
+
+**‘Where’s the Humanity?’ Bondi Attack Leaves Suspects’ Neighborhood Stunned**\
+`The alleged gunmen in the shooting, Sajid Akram, 50 and his son, Naveed Akram, 24, were from Bonnyrigg, a diverse, multilingual suburb miles from Sydney’s Bondi Beach.`\
+https://nytimes.com/2025/12/20/us/wheres-the-humanity-bondi-attack-leaves-suspects-neighborhood-stunned.html
+
+**College Football Playoff 2025 projections: Who's favored to advance in the bracket?**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/12/20/college-football-playoff-bracket-projections-odds/
+
 **Quote of the Day: Palo Alto Confronts Billionaires Who Hog Its Housing Stock**\
 `Quotation of the Day for Saturday, December 20, 2025.`\
 https://nytimes.com/2025/12/19/pageoneplus/quote-of-the-day-palo-alto-confronts-billionaires-who-hog-its-housing-stock.html
-
-**Shouldn’t be in CFP? Alabama roars back from 17-0 hole at Oklahoma to advance to Rose Bowl**\
-`Momentum swung before halftime in the Crimson Tide's favor, and they never looked back.`\
-https://nytimes.com/athletic/6905495/2025/12/19/alabama-oklahoma-score-results-takeaways-college-football-playoff/
-
-**A Timeline of How the Trump Administration Released and Withheld Epstein Files**\
-`A year of political pressure and partial disclosures preceded the release of long-sought records on Jeffrey Epstein.`\
-https://nytimes.com/2025/12/19/us/politics/epstein-files-release-timeline.html
-
-**Kings trade Phillip Danault to Canadiens for draft pick**\
-`Danault, 32, was in the midst of a trying season with the Kings, as he didn’t score a goal and produced just five assists in 30 games.`\
-https://nytimes.com/athletic/6905596/2025/12/19/la-kings-phillip-danault-canadiens-trade/
-
-**6 Takeaways From the First Batch of the Epstein Files**\
-`Many of the Justice Department documents were heavily redacted, and President Trump’s name was rarely mentioned. The White House also sought to make political hay of the release of photos of Bill Clinton.`\
-https://nytimes.com/2025/12/19/us/politics/epstein-files-takeaways.html
-
-**Chris Finch ejected less than 6 minutes into game vs. Thunder**\
-`The Timberwolves' coach had repeatedly spoken out about the way the Thunder are officiated before this incident. `\
-https://nytimes.com/athletic/6905539/2025/12/19/timberwolves-thunder-chris-finch-ejection-julius-randle/
-
-**Tulane's Jon Sumrall mourns father's death before College Football Playoff**\
-`Jon Sumrall’s father, George, died Thursday night following an illness. He was 77 years old.`\
-https://nytimes.com/athletic/6905515/2025/12/19/tulane-jon-sumrall-father-college-football-playoff/
-
-**Io or Luna**\
-`Robert S. Gard’s second Saturday puzzle is as bright as two moons.`\
-https://nytimes.com/2025/12/19/crosswords/daily-puzzle-2025-12-20.html
-
-**Epstein Victims Upset About Lack of Transparency in Newly Released Files**\
-`Several victims said they were frustrated by the heavy redactions of photos and documents that the Justice Department released on Friday.`\
-https://nytimes.com/2025/12/19/us/epstein-files-victims-reaction.html
-
-**Judge Blocks Trump Administration’s Homeless Aid Plan**\
-`The proposal would have required recipients to get treatment for addiction or mental illness as a condition of receiving housing funds. The administration has said it will try again.`\
-https://nytimes.com/2025/12/19/us/politics/trump-homelessness-funding-judge.html
 
