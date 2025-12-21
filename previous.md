@@ -8,7 +8,7 @@ https://nytimes.com/athletic/6907818/2025/12/21/yankees-re-sign-paul-blackburn/
 
 **Nine People Killed in Mass Shooting at Tavern in South Africa**\
 `Around a dozen gunmen opened fire at random at bar patrons. The police said they launched a manhunt to find the unknown assailants.`\
-https://nytimes.com/2025/12/21/world/asia/mass-shooting-tavern-south-africa.html
+https://nytimes.com/2025/12/21/world/africa/mass-shooting-tavern-south-africa.html
 
 **The New York Times in Print for Sunday, Dec. 21, 2025**\
 ``\
