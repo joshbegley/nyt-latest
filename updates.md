@@ -1,3 +1,7 @@
+**CFP quarterfinal odds: Top 3 seeds open as clear favorites**\
+`Ohio State is the biggest favorite of the quarterfinals while Oregon is the only first-round winner to be favored.`\
+https://nytimes.com/athletic/6907827/2025/12/21/college-football-playoff-quarterfinal-odds-indiana-ohio-state-georgia/
+
 **Here Are Six Holiday Feasts for You**\
 `Pernil, prime rib roast and lemon butter salmon with dill anchor generous (but completely doable) holiday dinner menus.`\
 https://nytimes.com/2025/12/21/dining/here-are-six-holiday-feasts-for-you.html

@@ -1,3 +1,7 @@
+**CFP quarterfinal odds: Top 3 seeds open as clear favorites**\
+`Ohio State is the biggest favorite of the quarterfinals while Oregon is the only first-round winner to be favored.`\
+https://nytimes.com/athletic/6907827/2025/12/21/college-football-playoff-quarterfinal-odds-indiana-ohio-state-georgia/
+
 **Here Are Six Holiday Feasts for You**\
 `Pernil, prime rib roast and lemon butter salmon with dill anchor generous (but completely doable) holiday dinner menus.`\
 https://nytimes.com/2025/12/21/dining/here-are-six-holiday-feasts-for-you.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/21/dining/plaza-hotel-on-the-job.html
 **In Pursuit of a Political Utopia**\
 `In “The Testament of Ann Lee,” coming out Christmas Day, Amanda Seyfried plays a woman searching for another, better world.`\
 https://nytimes.com/2025/12/21/briefing/testament-of-ann-lee.html
-
-**College football national title odds: OSU still favorite ahead of IU with quarters set**\
-`The top of the national title odds board remained the same after the four first-round games. Ohio State is still the favorite.`\
-https://nytimes.com/athletic/6907887/2025/12/21/college-football-national-title-odds-ohio-state-indiana/
 
