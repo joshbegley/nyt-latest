@@ -1,3 +1,7 @@
+**As Commanders limp to the finish line, emotions are boiling over**\
+`After a chippy loss to the Eagles continued a season of misery, the lingering anger in the Commanders’ locker room was palpable.`\
+https://nytimes.com/athletic/6908266/2025/12/21/commanders-eagles-fight-tension-ejections/
+
 **Watching the Ashes won (and lost) from the hill at Adelaide Oval: 'England are so easy to beat'**\
 `Australia's home dominance has been maintained with the urn again retained before Christmas, leaving fans of both teams craving competition`\
 https://nytimes.com/athletic/6908141/2025/12/21/watching-the-ashes-won-and-lost-from-the-hill-at-adelaide-oval-england-are-so-easy-to-beat/
