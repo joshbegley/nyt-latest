@@ -1,3 +1,7 @@
+**Texas Tech rallies from 17-point deficit to hand Duke first loss: 3 takeaways**\
+`Short-handed and in foul trouble, Texas Tech relied on two players to score its final 25 points.`\
+https://nytimes.com/athletic/6907668/2025/12/20/texas-tech-upsets-duke-college-basketball/
+
 **David Adelman's ejection vs. Rockets adds to theme of frustrated NBA coaches**\
 `Players and coaches don't mind physical matchups, but the frustration boils over when there is inconsistency behind the whistle.`\
 https://nytimes.com/athletic/6907471/2025/12/20/nba-coaches-referees-ejections-displeasure-adelman-finch-udoka/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6907177/2025/12/20/la-kings-phillip-danault-trade-s
 **Vikings' plane returns to airport after landing gear malfunctions**\
 `The team switched planes and left for Sunday's game against the New York Giants at 7:30 p.m. local time`\
 https://nytimes.com/athletic/6907432/2025/12/20/vikings-plane-issues-late-departure-giants/
-
-**329 Days of Trump, Trump, Trump**\
-`President Trump dominates our collective consciousness. The Times broke down how he has relentlessly pursued attention in the first 329 days of his second term.`\
-https://nytimes.com/interactive/2025/12/20/business/media/trump-media-year-in-review-2025.html
 
