@@ -1,3 +1,7 @@
+**Steelers' DK Metcalf swings at fan during sideline altercation**\
+`Broadcast cameras captured the receiver appearing to throw a punch at a fan in Lions attire in the stands.`\
+https://nytimes.com/athletic/6909531/2025/12/21/steelers-dk-metcalf-strikes-fan-sideline-confrontation/
+
 **Jimmy Kimmel Will Deliver Britain’s ‘Alternative Christmas Message’**\
 `Mr. Kimmel will speak out against fascism and about the importance of free speech in the holiday address, according to a Channel 4 spokesman.`\
 https://nytimes.com/2025/12/21/world/europe/jimmy-kimmel-holiday-message-uk-channel-4.html
