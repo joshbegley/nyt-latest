@@ -1,3 +1,7 @@
+**Montana State stomps Montana to reach FCS championship game**\
+`The Bobcats return to the finals for the second consecutive season and will face the Illinois State-Villanova winner on Jan. 5.`\
+https://nytimes.com/athletic/6907297/2025/12/20/montana-state-bobcats-grizzlies-fcs-semifinals/
+
 **Ole Miss has a new favorite son as Pete Golding leads Rebels to first Playoff win**\
 `The win was special for a fan base that has taken the first step in the healing process after losing Lane Kiffin to LSU.`\
 https://nytimes.com/athletic/6907548/2025/12/20/ole-miss-pete-golding-college-football-playoff/
