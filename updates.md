@@ -1,3 +1,7 @@
+**Devils' Jack Hughes will return to lineup Sunday after 18-game absence**\
+`Timo Meier and Arseny Gritsyuk are also slated to return Sunday against Buffalo.`\
+https://nytimes.com/athletic/6909294/2025/12/21/new-jersey-devils-jack-hughes-return/
+
 **Brain injury charity Headway criticise handling of apparent Martinez head knock**\
 `Martinez appeared groggy and in visible pain following a clash with Matty Cash.`\
 https://nytimes.com/athletic/6909002/2025/12/21/martinez-injury-head-villa-united-news-critcism/
