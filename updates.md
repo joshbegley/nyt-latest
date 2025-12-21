@@ -1,3 +1,7 @@
+**Trump Administration Live Updates: Deputy A.G. Says Mentions of Trump Won’t Be Stripped From Epstein Files**\
+``\
+https://nytimes.com/live/2025/12/21/us/trump-news
+
 **Mamdani Inauguration to Usher in ‘New Era’ With Broadway Block Party**\
 `Zohran Mamdani will be sworn in as New York City’s new mayor on Jan. 1, alongside a party spanning seven blocks that will accommodate 40,000 spectators, his transition team said.`\
 https://nytimes.com/2025/12/21/nyregion/nyc-zohran-mamdani-inauguration-block-party.html
