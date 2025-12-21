@@ -1,3 +1,11 @@
+**Aston Villa 2 Man Utd 1: Can Emery dream of the title? What impact did Bruno injury have?**\
+`Dissecting the major talking points from the Premier League clash at Villa Park`\
+https://nytimes.com/athletic/6896157/2025/12/21/aston-villa-man-utd-result-analysis/
+
+**Michigan loses OC Chip Lindsey to Missouri as coaching search continues**\
+`Missouri coach Eli Drinkwitz has been mentioned as a possible Michigan candidate, but now he's hiring the Wolverines' offensive coordinator.`\
+https://nytimes.com/athletic/6908840/2025/12/21/missouri-chip-lindsey-michigan-offensive-coordinator/
+
 **Until Saturday: Blowouts happen**\
 `Until Saturday is The Athletic's free college football newsletter.`\
 https://nytimes.com/athletic/6908859/2025/12/21/college-football-playoff-blowouts-until-saturday/

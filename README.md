@@ -1,3 +1,7 @@
+**‘Avatar’ Sequel Is Neither Fire Nor Ash at North American Box Office**\
+`“Avatar: Fire and Ash” took in $88 million over the weekend, a sizable No. 1 total that nonetheless fell 34 percent behind the opening for its franchise predecessor.`\
+https://nytimes.com/2025/12/21/business/avatar-fire-and-ash-opening-weekend.html
+
 **Aston Villa 2 Man Utd 1: Can Emery dream of the title? What impact did Bruno injury have?**\
 `Dissecting the major talking points from the Premier League clash at Villa Park`\
 https://nytimes.com/athletic/6896157/2025/12/21/aston-villa-man-utd-result-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6908773/2025/12/21/sabres-vs-devils-stream-how-to-w
 **How to watch Avalanche vs. Wild: Time, TV, streaming**\
 `Find out how to watch the Colorado Avalanche play the Minnesota Wild, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6908770/2025/12/21/avalanche-vs-wild-stream-how-to-watch-dec-21/
-
-**How to watch Maple Leafs vs. Stars: Time, TV, streaming**\
-`Find out how to watch the Toronto Maple Leafs play the Dallas Stars, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6908768/2025/12/21/maple-leafs-vs-stars-stream-how-to-watch-dec-21/
 
