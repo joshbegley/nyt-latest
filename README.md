@@ -1,3 +1,7 @@
+**Although Warriors had a shaky start to season, Steve Kerr has confidence in playoff push**\
+`Kerr remains hopeful that his original goal can still come to fruition.`\
+https://nytimes.com/athletic/6909506/2025/12/21/warriors-steve-kerr-top-four-seed-playoff-nba/
+
 **Jimmy Kimmel Will Deliver Britain’s ‘Alternative Christmas Message’**\
 `Mr. Kimmel will speak out against fascism and about the importance of free speech in the holiday address, according to a Channel 4 spokesman.`\
 https://nytimes.com/2025/12/21/world/europe/jimmy-kimmel-holiday-message-uk-channel-4.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6908966/2025/12/21/nfl-takeaways-week-16-scores-res
 **Man Is Arrested in Bow-and-Arrow Killing After Overnight Standoff**\
 `The man was taken into custody on Sunday afternoon in Kearny, N.J., hours after a fire broke out in the building in which he was hiding.`\
 https://nytimes.com/2025/12/21/nyregion/suspect-bow-arrow-killing-arrested-nj.html
-
-**Sue Bird, Dirk Nowitzki headline 2026 FIBA Hall of Fame class**\
-`FIBA announced its next group of Hall of Fame inductees to celebrate World Basketball Day.`\
-https://nytimes.com/athletic/6909201/2025/12/21/sue-bird-dirk-nowitzki-2026-hall-of-fame/
 
