@@ -1,3 +1,11 @@
+**Cowboys eliminated from playoff contention after Eagles beat Commanders**\
+`The Eagles’ win over the Commanders on Saturday officially eliminated the 6-7-1 Cowboys from playoff contention.`\
+https://nytimes.com/athletic/6900851/2025/12/20/cowboys-eliminated-nfl-playoff-picture/
+
+**Nearly a Third of San Francisco Loses Electricity**\
+`At least 125,000 customers out of 414,000 lost power on Saturday.`\
+https://nytimes.com/2025/12/20/us/san-francisco-electricity-out.html
+
 **How Miami pulled off its biggest win in 24 years — and why it was a moment of validation**\
 `Miami looked like a Playoff long shot just weeks ago, but now it's a quarterfinalist.`\
 https://nytimes.com/athletic/6907237/2025/12/20/miami-texas-am-college-football-playoff-first-win/
