@@ -1,3 +1,11 @@
+**Bills' path to Super Bowl, 7 teams with clinching opportunities lead NFL Week 16 storylines**\
+`With the Chiefs out of the picture, it is now Josh Allen's time? Plus, who can join the Rams, Broncos, Seahawks and Eagles in the playoffs?`\
+https://nytimes.com/athletic/6900652/2025/12/21/nfl-week-16-storylines-bills-super-bowl-playoff-clinch/
+
+**The New York Times International Edition in Print for Monday, Dec. 22, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/12/21/todays-new-york-times-international-edition
+
 **How to watch Capitals vs. Red Wings: Time, TV, streaming**\
 `Find out how to watch the Washington Capitals play the Detroit Red Wings, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6908253/2025/12/21/capitals-vs-red-wings-stream-how-to-watch-dec-21/
