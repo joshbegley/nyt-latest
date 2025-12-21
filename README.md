@@ -1,4 +1,4 @@
-**J.T. Miller out week to week after suffering upper-body injury**\
+**J.T. Miller out week to week after suffering upper-body injury: Source**\
 `Miller's injury came after taking a reverse hit from Philadelphia's Nick Seeler, who appeared to make contact with Miller's shoulder.`\
 https://nytimes.com/athletic/6909133/2025/12/21/rangers-jt-miller-injury-update/
 
