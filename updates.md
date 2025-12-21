@@ -1,3 +1,11 @@
+**Guardiola is still a perfectionist — and he promises his City demands are not performative**\
+`Seven wins in a row in all competitions for Manchester City is not enough for Pep Guardiola to be satisfied`\
+https://nytimes.com/athletic/6906517/2025/12/21/pep-guardiola-manchester-city-west-ham/
+
+**Texas A&M sweeps Kentucky for first NCAA volleyball championship**\
+`As underdogs by seed in each of its last four matches, Texas A&M dispatched three No. 1 seeds consecutively.`\
+https://nytimes.com/athletic/6908513/2025/12/21/texas-am-ncaa-volleyball-championship-kentucky-2025/
+
 **As the NFL playoff field takes shape, who are the real contenders? Our experts' Week 16 takeaways**\
 `Also: How did the Panthers rise to the top of the NFC South, and why do going-nowhere teams like the Titans keep striving for wins?`\
 https://nytimes.com/athletic/6908966/2025/12/21/nfl-takeaways-week-16-scores-results/

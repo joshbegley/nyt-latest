@@ -1,3 +1,11 @@
+**Guardiola is still a perfectionist — and he promises his City demands are not performative**\
+`Seven wins in a row in all competitions for Manchester City is not enough for Pep Guardiola to be satisfied`\
+https://nytimes.com/athletic/6906517/2025/12/21/pep-guardiola-manchester-city-west-ham/
+
+**Texas A&M sweeps Kentucky for first NCAA volleyball championship**\
+`As underdogs by seed in each of its last four matches, Texas A&M dispatched three No. 1 seeds consecutively.`\
+https://nytimes.com/athletic/6908513/2025/12/21/texas-am-ncaa-volleyball-championship-kentucky-2025/
+
 **As the NFL playoff field takes shape, who are the real contenders? Our experts' Week 16 takeaways**\
 `Also: How did the Panthers rise to the top of the NFC South, and why do going-nowhere teams like the Titans keep striving for wins?`\
 https://nytimes.com/athletic/6908966/2025/12/21/nfl-takeaways-week-16-scores-results/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6908882/2025/12/21/vikings-giants-score-result-take
 **QB Tyler Shough beats Jets, leads Saints to third straight win: Takeaways**\
 `Shough, with his fourth victory, passed Archie Manning for the most wins by a Saints rookie quarterback in franchise history.`\
 https://nytimes.com/athletic/6908792/2025/12/21/jets-saints-score-result-takeaways-nfl/
-
-**Commanders pondering QB options as Marcus Mariota deals with hand, quad injuries**\
-`The Commanders have a quick turnaround before hosting the Dallas Cowboys on Christmas Day.`\
-https://nytimes.com/athletic/6909324/2025/12/21/marcus-mariota-hand-injury-commanders-quarterback/
-
-**Panthers hold off Bucs, take one-game lead in NFC South: Takeaways**\
-`The Panthers can clinch their first playoff berth since 2017 with a win next week and a Tampa Bay loss.`\
-https://nytimes.com/athletic/6908891/2025/12/21/panthers-bucs-score-result-takeaways-nfl/
 
