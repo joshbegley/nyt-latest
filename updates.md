@@ -1,3 +1,7 @@
+**Chiefs QB Gardner Minshew ruled out vs. Titans with knee injury**\
+`Minshew, starting for the Chiefs in place of the injured Patrick Mahomes, left the game in the second quarter. Chris Oladokun replaced him.`\
+https://nytimes.com/athletic/6908988/2025/12/21/gardner-minshew-injury-chiefs-backup-qb-chris-oladokun/
+
 **Vikings QB J.J. McCarthy ruled out of game vs. Giants with hand injury**\
 `The second-year quarterback was injured on a strip-sack just before halftime by Brian Burns. He was ruled out for the second half.`\
 https://nytimes.com/athletic/6909085/2025/12/21/jj-mccarthy-injury-vikings-giants/
