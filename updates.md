@@ -1,3 +1,19 @@
+**Trump Administration Live Updates: U.S. Boards Tanker Carrying Venezuelan Oil, Officials Say**\
+``\
+https://nytimes.com/live/2025/12/21/us/trump-news
+
+**Why Is Shopping an Abyss of Blah?**\
+`Shopping should be about lust. Instead, it’s become a slog.`\
+https://nytimes.com/2025/12/21/opinion/why-is-shopping-an-abyss-of-blah.html
+
+**How to Reduce Surging Health Care Costs**\
+`Readers suggest ways to bring medical costs under control for average Americans. Also: Australia sets an example for the U.S. on gun laws.`\
+https://nytimes.com/2025/12/21/opinion/heath-care-costs-crisis.html
+
+**College Football Playoff 2025 projections: Indiana favored over Alabama, plus more odds**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/12/21/college-football-playoff-bracket-projections-odds/
+
 **Older Americans Quit Weight-Loss Drugs in Droves**\
 `In some studies, half of patients stopped taking GLP-1s within a year despite the benefits, citing the expense and side effects.`\
 https://nytimes.com/2025/12/21/health/older-people-glp1-weight.html
