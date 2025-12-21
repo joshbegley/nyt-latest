@@ -1,4 +1,20 @@
-**How should Texas A&M's season be viewed? Magical run ends with thud against Miami**\
+**Commanders QB Josh Johnson enters game for injured Marcus Mariota**\
+`Washington’s quarterback situation got even more troubling against the Philadelphia Eagles.`\
+https://nytimes.com/athletic/6907220/2025/12/20/josh-johnson-qb-commanders-marcus-mariota-injury/
+
+**Flyers' Denver Barkey impressed in his NHL debut. Could he stick around?**\
+`Barkey, a bit of a surprise recall by the Flyers from the AHL Lehigh Valley Phantoms, made an immediate impact in his NHL debut.`\
+https://nytimes.com/athletic/6907046/2025/12/20/flyers-denver-barkey-nhl-debut/
+
+**UW-River Falls loses track of downs, later wins on 79-yard score in final minute**\
+`All's well that ends well for the Falcons, who advance to the Division III title game despite a potentially costly failed fourth-down try. `\
+https://nytimes.com/athletic/6906946/2025/12/20/uw-river-falls-loses-track-of-downs-wins/
+
+**Ole Miss vs. Tulane CFP takeaways: Pete Golding passes first test, Rebels roll into quarters**\
+`Ole Miss won its first-ever College Football Playoff game with relative ease, topping Tulane 41-10. `\
+https://nytimes.com/athletic/6907032/2025/12/20/ole-miss-tulane-college-football-playoff-takeaways-score/
+
+**Evaluating Texas A&M's season: Missed opportunity vs. Miami will haunt Aggies**\
 `“We came up 5 yards short and that’s something we’re going to have to live with throughout the offseason," Texas A&M coach Mike Elko said.`\
 https://nytimes.com/athletic/6907141/2025/12/20/texas-am-miami-college-football-playoff-season-ending/
 
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6906996/2025/12/20/ricky-pearsall-out-49ers-colts/
 **Present Time**\
 `David Kwong, the magician, branches out with a festive Sunday puzzle.`\
 https://nytimes.com/2025/12/20/crosswords/daily-puzzle-2025-12-21.html
-
-**NHL referee makes wrong goal call, reverses decision after Senators, fans celebrate**\
-`The mix-up following a goaltender interference review drastically changed the mood of Senators players and fans at the Canadian Tire Centre.`\
-https://nytimes.com/athletic/6906986/2025/12/20/senators-nhl-referee-goal-call-blackhawks/
-
-**Kenny Dillingham's new contract shows Arizona State is tired of 'sleeping giant' narrative**\
-`Dillingham said he never doubted the agreement would get done, which suggests his interest in Michigan may not have been that strong.`\
-https://nytimes.com/athletic/6906853/2025/12/20/kenny-dillingham-arizona-state-contract/
-
-**Frank calls decision to award Ekitike goal 'a mistake'**\
-`Ekitike scored his side's second during the 2-1 win at the Tottenham Hotspur Stadium, climbing above Cristian Romero to head home.`\
-https://nytimes.com/athletic/6907040/2025/12/20/thomas-frank-hugo-ekitike-goal-liverpool-tottenham/
-
-**Cowboys activate Trevon Diggs; cornerback hasn't played since Week 6**\
-`Diggs had said he expected to play last week against the Vikings and was “definitely disappointed” when he was not activated.`\
-https://nytimes.com/athletic/6906876/2025/12/20/cowboys-trevon-diggs-activated-against-chargers/
 

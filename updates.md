@@ -1,3 +1,23 @@
+**Commanders QB Josh Johnson enters game for injured Marcus Mariota**\
+`Washington’s quarterback situation got even more troubling against the Philadelphia Eagles.`\
+https://nytimes.com/athletic/6907220/2025/12/20/josh-johnson-qb-commanders-marcus-mariota-injury/
+
+**Flyers' Denver Barkey impressed in his NHL debut. Could he stick around?**\
+`Barkey, a bit of a surprise recall by the Flyers from the AHL Lehigh Valley Phantoms, made an immediate impact in his NHL debut.`\
+https://nytimes.com/athletic/6907046/2025/12/20/flyers-denver-barkey-nhl-debut/
+
+**UW-River Falls loses track of downs, later wins on 79-yard score in final minute**\
+`All's well that ends well for the Falcons, who advance to the Division III title game despite a potentially costly failed fourth-down try. `\
+https://nytimes.com/athletic/6906946/2025/12/20/uw-river-falls-loses-track-of-downs-wins/
+
+**Ole Miss vs. Tulane CFP takeaways: Pete Golding passes first test, Rebels roll into quarters**\
+`Ole Miss won its first-ever College Football Playoff game with relative ease, topping Tulane 41-10. `\
+https://nytimes.com/athletic/6907032/2025/12/20/ole-miss-tulane-college-football-playoff-takeaways-score/
+
+**Evaluating Texas A&M's season: Missed opportunity vs. Miami will haunt Aggies**\
+`“We came up 5 yards short and that’s something we’re going to have to live with throughout the offseason," Texas A&M coach Mike Elko said.`\
+https://nytimes.com/athletic/6907141/2025/12/20/texas-am-miami-college-football-playoff-season-ending/
+
 **How should Texas A&M's season be viewed? Magical run ends with thud against Miami**\
 `“We came up 5 yards short and that’s something we’re going to have to live with throughout the offseason," Texas A&M coach Mike Elko said.`\
 https://nytimes.com/athletic/6907141/2025/12/20/texas-am-miami-college-football-playoff-season-ending/
