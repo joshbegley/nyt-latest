@@ -1,3 +1,7 @@
+**Jets-Saints takeaways: Tyler Shough leads Saints blowout over Jets**\
+`New Orleans Saints rookie quarterback Tyler Shough leads Saints over New York Jets in week 16`\
+https://nytimes.com/athletic/6908792/2025/12/21/jets-saints-score-result-takeaways-nfl/
+
 **Commanders pondering QB options as Marcus Mariota deals with hand, quad injuries**\
 `The Commanders have a quick turnaround before hosting the Dallas Cowboys on Christmas Day.`\
 https://nytimes.com/athletic/6909324/2025/12/21/marcus-mariota-hand-injury-commanders-quarterback/

@@ -1,3 +1,7 @@
+**Jets-Saints takeaways: Tyler Shough leads Saints blowout over Jets**\
+`New Orleans Saints rookie quarterback Tyler Shough leads Saints over New York Jets in week 16`\
+https://nytimes.com/athletic/6908792/2025/12/21/jets-saints-score-result-takeaways-nfl/
+
 **Commanders pondering QB options as Marcus Mariota deals with hand, quad injuries**\
 `The Commanders have a quick turnaround before hosting the Dallas Cowboys on Christmas Day.`\
 https://nytimes.com/athletic/6909324/2025/12/21/marcus-mariota-hand-injury-commanders-quarterback/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6908827/2025/12/21/bengals-dolphins-score-result-ta
 **The Briefing: Morocco 2 Comoros 0 – El Kaabi's wonder strike and Brahim delivers in AFCON opener**\
 `Our writers analyse the key talking points from the opening game of the 2025 Africa Cup of Nations`\
 https://nytimes.com/athletic/6896155/2025/12/21/morocco-comoros-afcon-opening-game/
-
-**Devils' Jack Hughes will return to lineup Sunday after 18-game absence**\
-`Timo Meier and Arseny Gritsyuk are also slated to return Sunday against Buffalo.`\
-https://nytimes.com/athletic/6909294/2025/12/21/new-jersey-devils-jack-hughes-return/
 
