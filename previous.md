@@ -34,7 +34,7 @@ https://nytimes.com/athletic/6907680/2025/12/21/ashes-england-stokes-australia-b
 `Blackburn found something out of the bullpen to enhance his value in the final month of the season.`\
 https://nytimes.com/athletic/6907818/2025/12/21/yankees-re-sign-paul-blackburn/
 
-**Nine People Killed in Mass Shooting at Tavern in South Africa**\
-`Around a dozen gunmen opened fire at random at bar patrons. The police said they launched a manhunt to find the unknown assailants.`\
+**Nine Killed in Mass Shooting at Tavern in South Africa**\
+`Around a dozen gunmen opened fire at random at bar patrons, the police said. A manhunt for the unknown assailants was underway.`\
 https://nytimes.com/2025/12/21/world/africa/mass-shooting-tavern-south-africa.html
 
