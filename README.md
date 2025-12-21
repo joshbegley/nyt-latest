@@ -1,3 +1,7 @@
+**Brain injury charity Headway criticise handling of apparent Martinez head knock**\
+`Martinez appeared groggy and in visible pain following a clash with Matty Cash.`\
+https://nytimes.com/athletic/6909002/2025/12/21/martinez-injury-head-villa-united-news-critcism/
+
 **J.T. Miller out week to week after suffering upper-body injury: Source**\
 `Miller's injury came after taking a reverse hit from Philadelphia's Nick Seeler, who appeared to make contact with Miller's shoulder.`\
 https://nytimes.com/athletic/6909133/2025/12/21/rangers-jt-miller-injury-update/
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/6909064/2025/12/21/golden-knights-vs-oilers-stream-
 **Chiefs QB Gardner Minshew ruled out vs. Titans with knee injury**\
 `Minshew, starting for the Chiefs in place of the injured Patrick Mahomes, left the game in the second quarter. Chris Oladokun replaced him.`\
 https://nytimes.com/athletic/6908988/2025/12/21/gardner-minshew-injury-chiefs-backup-qb-chris-oladokun/
-
-**Browns' Quinshon Judkins carted off vs. Bills with right leg injury**\
-`Judkins has had an impressive rookie season, entering Sunday's game against Buffalo with 805 rushing yards and seven touchdowns. `\
-https://nytimes.com/athletic/6909008/2025/12/21/browns-quinshon-judkins-leg-injury/
 
