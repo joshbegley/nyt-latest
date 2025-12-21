@@ -11,7 +11,7 @@ https://nytimes.com/athletic/6907297/2025/12/20/montana-state-bobcats-grizzlies-
 https://nytimes.com/athletic/6907237/2025/12/20/miami-texas-am-college-football-playoff-first-win/
 
 **Cowboys eliminated from playoff contention after Eagles beat Commanders**\
-`The Eagles’ win over the Commanders on Saturday officially eliminated the 6-7-1 Cowboys from playoff contention.`\
+`The 6-7-1 Cowboys will miss the playoffs for the second consecutive year and fourth time in the last seven seasons.`\
 https://nytimes.com/athletic/6900851/2025/12/20/cowboys-eliminated-nfl-playoff-picture/
 
 **Michael Irvin's passion shines on sideline during Miami's win over Texas A&M**\

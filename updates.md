@@ -1,3 +1,7 @@
+**Cowboys eliminated from playoff contention after Eagles beat Commanders**\
+`The 6-7-1 Cowboys will miss the playoffs for the second consecutive year and fourth time in the last seven seasons.`\
+https://nytimes.com/athletic/6900851/2025/12/20/cowboys-eliminated-nfl-playoff-picture/
+
 **Eagles pull away from Commanders in second half to win NFC East again: Takeaways**\
 `Despite trailing a struggling Washington team at halftime, the Eagles now know they will host at least one playoff game.`\
 https://nytimes.com/athletic/6906856/2025/12/20/eagles-commanders-score-takeaways-week-16/
