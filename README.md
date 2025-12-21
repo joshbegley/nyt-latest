@@ -1,3 +1,7 @@
+**Australia Mourns Bondi Beach Shooting Victims**\
+`A week after gunmen killed 15 people at a Hanukkah celebration, hints of political divisions and anti-immigration rhetoric emerge in Australia.`\
+https://nytimes.com/2025/12/21/world/asia/australia-mourns-bondi-beach-shooting-victims.html
+
 **‘Avatar’ Sequel Is Neither Fire Nor Ash at North American Box Office**\
 `“Avatar: Fire and Ash” took in $88 million over the weekend, a sizable No. 1 total that nonetheless fell 34 percent behind the opening for its franchise predecessor.`\
 https://nytimes.com/2025/12/21/business/avatar-fire-and-ash-opening-weekend.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/21/theater/picnic-at-hanging-rock-musical-review.htm
 **How to watch Sabres vs. Devils: Time, TV, streaming**\
 `Find out how to watch the Buffalo Sabres play the New Jersey Devils, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6908773/2025/12/21/sabres-vs-devils-stream-how-to-watch-dec-21/
-
-**How to watch Avalanche vs. Wild: Time, TV, streaming**\
-`Find out how to watch the Colorado Avalanche play the Minnesota Wild, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6908770/2025/12/21/avalanche-vs-wild-stream-how-to-watch-dec-21/
 
