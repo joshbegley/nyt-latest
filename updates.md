@@ -1,3 +1,7 @@
+**The Briefing: Morocco 2 Comoros 0 – El Kaabi's wonder strike and Brahim delivers in AFCON opener**\
+`Our writers analyse the key talking points from the opening game of the 2025 Africa Cup of Nations`\
+https://nytimes.com/athletic/6896155/2025/12/21/morocco-comoros-afcon-opening-game/
+
 **Chargers pull away from Cowboys, close in on second straight playoff appearance**\
 `The Chargers are on the verge of a second straight playoff appearance under coach Jim Harbaugh. `\
 https://nytimes.com/athletic/6908851/2025/12/21/chargers-cowboys-score-result-takeaways-nfl/
