@@ -1,3 +1,7 @@
+**West Ham women to appoint Guarino, formerly of Inter and Juventus**\
+`Guarino replaces Rehanne Skinner, who left West Ham on Thursday after two-and-a-half seasons in charge.`\
+https://nytimes.com/athletic/6906112/2025/12/21/west-ham-women-manager-guarino/
+
 **Blanche Says Mentions of Trump in Epstein Files Won’t Be Removed**\
 `In an interview with NBC, the No. 2 official at the Justice Department denied that officials were protecting the president from what has been disclosed.`\
 https://nytimes.com/2025/12/21/us/politics/todd-blanche-epstein-files-trump-redactions.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6908762/2025/12/21/heat-vs-knicks-stream-how-to-wat
 **How to watch Rangers vs. Predators: Time, TV, streaming**\
 `Find out how to watch the New York Rangers play the Nashville Predators, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6908760/2025/12/21/rangers-vs-predators-stream-how-to-watch-dec-21/
-
-**How to watch Canadiens vs. Penguins: Time, TV, streaming**\
-`Find out how to watch the Montreal Canadiens play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6908758/2025/12/21/canadiens-vs-penguins-stream-how-to-watch-dec-21/
 

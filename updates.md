@@ -1,3 +1,7 @@
+**West Ham women to appoint Guarino, formerly of Inter and Juventus**\
+`Guarino replaces Rehanne Skinner, who left West Ham on Thursday after two-and-a-half seasons in charge.`\
+https://nytimes.com/athletic/6906112/2025/12/21/west-ham-women-manager-guarino/
+
 **Blanche Says Mentions of Trump in Epstein Files Won’t Be Removed**\
 `In an interview with NBC, the No. 2 official at the Justice Department denied that officials were protecting the president from what has been disclosed.`\
 https://nytimes.com/2025/12/21/us/politics/todd-blanche-epstein-files-trump-redactions.html
