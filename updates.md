@@ -1,3 +1,7 @@
+**Steakhouse Woes**\
+`We examine how rising beef prices have stressed restaurant owners this holiday season.`\
+https://nytimes.com/2025/12/21/briefing/steakhouse-woes.html
+
 **Mandel's Final Thoughts: Is 'The U' back? Alabama is chasing and G5 meets reality**\
 `Plus, Ole Miss doesn't miss Lane Kiffin, Texas A&M's historic season ends in a buzzkill and how the CFP will change next year. `\
 https://nytimes.com/athletic/6907605/2025/12/21/college-football-scores-results-playoff-first-round/
