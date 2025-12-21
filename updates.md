@@ -1,3 +1,7 @@
+**Ed Cooley apologizes for throwing water bottle that hit child behind Georgetown bench**\
+`The Georgetown coach said "it was out of character for me to be so frustrated" in his comments after the Hoyas' 80-77 loss to Xavier.`\
+https://nytimes.com/athletic/6908700/2025/12/21/ed-cooley-water-bottle-apology/
+
 **West Ham women to appoint Guarino, formerly of Inter and Juventus**\
 `Guarino replaces Rehanne Skinner, who left West Ham on Thursday after two-and-a-half seasons in charge.`\
 https://nytimes.com/athletic/6906112/2025/12/21/west-ham-women-manager-guarino/

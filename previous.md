@@ -1,3 +1,7 @@
+**Ed Cooley apologizes for throwing water bottle that hit child behind Georgetown bench**\
+`The Georgetown coach said "it was out of character for me to be so frustrated" in his comments after the Hoyas' 80-77 loss to Xavier.`\
+https://nytimes.com/athletic/6908700/2025/12/21/ed-cooley-water-bottle-apology/
+
 **West Ham women to appoint Guarino, formerly of Inter and Juventus**\
 `Guarino replaces Rehanne Skinner, who left West Ham on Thursday after two-and-a-half seasons in charge.`\
 https://nytimes.com/athletic/6906112/2025/12/21/west-ham-women-manager-guarino/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6908764/2025/12/21/raptors-vs-nets-stream-how-to-wa
 **How to watch Heat vs. Knicks: Time, TV, streaming**\
 `Find out how to watch the Miami Heat play the New York Knicks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6908762/2025/12/21/heat-vs-knicks-stream-how-to-watch-dec-21/
-
-**How to watch Rangers vs. Predators: Time, TV, streaming**\
-`Find out how to watch the New York Rangers play the Nashville Predators, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6908760/2025/12/21/rangers-vs-predators-stream-how-to-watch-dec-21/
 
