@@ -1,3 +1,7 @@
+**Enzo Maresca is committed to Chelsea despite Man City links — Newcastle draw showed that**\
+`All eyes were on Maresca after The Athletic reported City's interest in the Chelsea head coach if Pep Guardiola leaves`\
+https://nytimes.com/athletic/6906395/2025/12/21/enzo-maresca-chelsea-man-city-newcastle/
+
 **As dark cloud hovers over Maple Leafs, will it completely derail their season?**\
 `After a deflating 5-3 loss to Nashville, it seemed more difficult than ever for Toronto to keep the darkness at bay.`\
 https://nytimes.com/athletic/6907765/2025/12/21/maple-leafs-predators-nhl-atlantic-division/
