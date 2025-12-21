@@ -1,3 +1,7 @@
+**Nine People Killed in Mass Shooting at Tavern in South Africa**\
+`Around a dozen gunmen opened fire at random at bar patrons. The police said they launched a manhunt to find the unknown assailants.`\
+https://nytimes.com/2025/12/21/world/asia/mass-shooting-tavern-south-africa.html
+
 **The New York Times in Print for Sunday, Dec. 21, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/12/21/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6907586/2025/12/21/bears-packers-takeaways-score-we
 **Does surprise AFCON schedule change really benefit African football?**\
 `Moving AFCON to every four years and aligning with the FIFA calendar may bring upsides, but also leaves many questions unanswered`\
 https://nytimes.com/athletic/6899217/2025/12/21/afcon-schedule-change-fifa-caf-2025/
-
-**Tottenham lost at home again. But in the chaos there was unity**\
-`Sometimes fans get quieter when a game looks lost. This time they got louder and more supportive. And the team responded in kind`\
-https://nytimes.com/athletic/6906850/2025/12/21/tottenham-simons-romero-frank-unity/
 
