@@ -1,3 +1,7 @@
+**Enzo Maresca is committed to Chelsea despite Man City links — Newcastle draw showed that**\
+`All eyes were on Maresca after The Athletic reported City's interest in the Chelsea head coach if Pep Guardiola leaves`\
+https://nytimes.com/athletic/6906395/2025/12/21/enzo-maresca-chelsea-man-city-newcastle/
+
 **As dark cloud hovers over Maple Leafs, will it completely derail their season?**\
 `After a deflating 5-3 loss to Nashville, it seemed more difficult than ever for Toronto to keep the darkness at bay.`\
 https://nytimes.com/athletic/6907765/2025/12/21/maple-leafs-predators-nhl-atlantic-division/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/21/world/australia/bondi-massacre-jewish-australians
 **A Neighborhood in India Fears Being Blamed for a Distant Atrocity**\
 `The attacker killed at last week’s Hanukkah celebration in Australia came from a Muslim area whose residents have long gone abroad to seek better lives.`\
 https://nytimes.com/2025/12/21/world/asia/india-muslims-emigration-australia.html
-
-**No Corrections: Dec. 21, 2025**\
-`No corrections appeared in print on Sunday, Dec. 21, 2025.`\
-https://nytimes.com/2025/12/21/pageoneplus/no-corrections-dec-21-2025.html
 
