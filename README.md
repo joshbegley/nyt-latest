@@ -1,3 +1,11 @@
+**Sue Bird, Dirk Nowitzki headline 2026 FIBA Hall of Fame class**\
+`FIBA announced its next group of Hall of Fame inductees to celebrate World Basketball Day.`\
+https://nytimes.com/athletic/6909201/2025/12/21/sue-bird-dirk-nowitzki-2026-fiba-hall-of-fame/
+
+**James Cook's strong day vs. Browns helps Bills inch closer to playoff berth: Takeaways**\
+`Cook had 117 rushing yards and two touchdowns to help Buffalo secure a victory over Cleveland. `\
+https://nytimes.com/athletic/6908958/2025/12/21/bills-browns-score-result-takeaways-nfl/
+
 **How New York Keeps Its Unfiltered Water Safe: Spending Millions on Land**\
 `The city has bought more than 125,000 acres of land to provide a buffer around water reservoirs. It’s much cheaper than spending billions on filtration systems, officials say.`\
 https://nytimes.com/2025/12/21/nyregion/nyc-unfiltered-water-reservoirs.html
@@ -10,8 +18,8 @@ https://nytimes.com/athletic/6909210/2025/12/21/chiefs-titans-score-result-takea
 `The Vikings' win Sunday came at a cost, as young QB J.J. McCarthy exited early with a right-hand injury. `\
 https://nytimes.com/athletic/6908882/2025/12/21/vikings-giants-score-result-takeaways-nfl/
 
-**Jets-Saints takeaways: Tyler Shough leads Saints blowout over Jets**\
-`With his fourth win, Shough passed Archie Manning for the most wins by a Saints rookie quarterback in franchise history.`\
+**QB Tyler Shough's big day leads Saints to win over Jets: Takeaways**\
+`Shough, with his fourth victory, passed Archie Manning for the most wins by a Saints rookie quarterback in franchise history.`\
 https://nytimes.com/athletic/6908792/2025/12/21/jets-saints-score-result-takeaways-nfl/
 
 **Commanders pondering QB options as Marcus Mariota deals with hand, quad injuries**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6908851/2025/12/21/chargers-cowboys-score-result-ta
 **United's Mainoo to miss Newcastle clash, Fernandes has 'soft tissue' injury**\
 `Amorim provided updates on the midfield duo ahead of their game against Newcastle United on Boxing Day`\
 https://nytimes.com/athletic/6909000/2025/12/21/fernandes-mainoo-injury-man-united-news-update/
-
-**The Sibling Bond**\
-`Parenting is closely studied, but sibling relationships have gotten much less attention.`\
-https://nytimes.com/2025/12/21/world/siblings-shape-lives-venezuela-tanker-bondi.html
-
-**In a First, a Wheelchair User Joins a Short Flight to Space**\
-`A paraplegic engineer was part of a crew that made a suborbital journey on a spacecraft operated by Jeff Bezos’ private company, Blue Origin.`\
-https://nytimes.com/2025/12/21/us/spacex-blue-origin-wheelchair-user.html
 
