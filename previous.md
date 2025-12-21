@@ -1,3 +1,11 @@
+**J.T. Miller out week to week after suffering upper-body injury: Source**\
+`Miller's injury came after taking a reverse hit from Philadelphia's Nick Seeler, who appeared to make contact with Miller's shoulder.`\
+https://nytimes.com/athletic/6909133/2025/12/21/rangers-jt-miller-injury-update/
+
+**Thompson: Jimmy Butler, Warriors show fight vs. Dillon Brooks, Suns**\
+`Dillon Brooks served as a metaphor for the Warriors’ current state. A microcosm for their spirit, which was tested Saturday night.`\
+https://nytimes.com/athletic/6908925/2025/12/21/jimmy-butler-warriors-suns-dillion-brooks/
+
 **Vikings QB J.J. McCarthy ruled out of game vs. Giants with hand injury**\
 `The second-year quarterback was injured on a strip-sack just before halftime by Brian Burns. He was ruled out for the second half.`\
 https://nytimes.com/athletic/6909085/2025/12/21/jj-mccarthy-injury-vikings-giants/
@@ -31,12 +39,4 @@ https://nytimes.com/athletic/6908988/2025/12/21/gardner-minshew-injury-chiefs-ba
 **Browns' Quinshon Judkins carted off vs. Bills with right leg injury**\
 `Judkins has had an impressive rookie season, entering Sunday's game against Buffalo with 805 rushing yards and seven touchdowns. `\
 https://nytimes.com/athletic/6909008/2025/12/21/browns-quinshon-judkins-leg-injury/
-
-**How to watch Old Dominion vs. Ole Miss women's basketball: Time, TV, streaming**\
-`Find out how to watch the Old Dominion Monarchs play the Ole Miss Rebels, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6909050/2025/12/21/old-dominion-vs-ole-miss-stream-how-to-watch-dec-21/
-
-**How to watch North Dakota vs. Nebraska men's basketball: Time, TV, streaming**\
-`Find out how to watch the North Dakota Fightin' Hawks play the Nebraska Cornhuskers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6909033/2025/12/21/north-dakota-vs-nebraska-stream-how-to-watch-dec-21/
 

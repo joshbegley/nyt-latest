@@ -1,3 +1,11 @@
+**J.T. Miller out week to week after suffering upper-body injury: Source**\
+`Miller's injury came after taking a reverse hit from Philadelphia's Nick Seeler, who appeared to make contact with Miller's shoulder.`\
+https://nytimes.com/athletic/6909133/2025/12/21/rangers-jt-miller-injury-update/
+
+**Thompson: Jimmy Butler, Warriors show fight vs. Dillon Brooks, Suns**\
+`Dillon Brooks served as a metaphor for the Warriors’ current state. A microcosm for their spirit, which was tested Saturday night.`\
+https://nytimes.com/athletic/6908925/2025/12/21/jimmy-butler-warriors-suns-dillion-brooks/
+
 **Chiefs QB Gardner Minshew ruled out vs. Titans with knee injury**\
 `Minshew, starting for the Chiefs in place of the injured Patrick Mahomes, left the game in the second quarter. Chris Oladokun replaced him.`\
 https://nytimes.com/athletic/6908988/2025/12/21/gardner-minshew-injury-chiefs-backup-qb-chris-oladokun/
