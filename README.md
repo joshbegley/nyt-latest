@@ -1,3 +1,7 @@
+**Rosenthal: What I'm hearing about the Blue Jays' interest in Bregman; plus more MLB offseason notes**\
+`Bregman also is drawing attention from his previous club, the Red Sox, as well as the Cubs, Diamondbacks and others.`\
+https://nytimes.com/athletic/6907283/2025/12/20/what-im-hearing-about-the-blue-jays-interest-in-bregman-plus-more-mlb-offseason-notes/
+
 **Nearly a Third of San Francisco Loses Electricity**\
 `At least 124,000 customers out of 414,000 lost power on Saturday.`\
 https://nytimes.com/2025/12/20/us/san-francisco-electricity-out.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6907032/2025/12/20/ole-miss-tulane-college-football
 **How should Texas A&M’s season be viewed? Magical season ends with thud vs. Miami**\
 `“We came up 5 yards short and that’s something we’re going to have to live with throughout the offseason," Texas A&M coach Mike Elko said.`\
 https://nytimes.com/athletic/6907141/2025/12/20/texas-am-miami-college-football-playoff-season-ending/
-
-**Max Domi scratched as Maple Leafs make lineup changes**\
-`Domi is in the middle of a difficult season as Toronto sits just one point out of last place in the Eastern Conference.`\
-https://nytimes.com/athletic/6907202/2025/12/20/maple-leafs-max-domi-scratched-lineup/
 
