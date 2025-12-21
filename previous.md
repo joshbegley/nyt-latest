@@ -1,3 +1,15 @@
+**Fiorentina approach Tottenham's Paratici about shock return to Italian football**\
+`Fiorentina are yet to approach Spurs directly about Paratici, according to sources briefed on the situation.`\
+https://nytimes.com/athletic/6906661/2025/12/21/fabio-paratici-tottenham-fiorentina/
+
+**Is there any hope for Cinderella in the College Football Playoff?**\
+`Blowout losses by Tulane and James Madison illustrated the growing FBS divide. Times have changed since Boise State stunned Oklahoma.`\
+https://nytimes.com/athletic/6907614/2025/12/21/college-football-playoff-jmu-tulane-cinderellas-g5/
+
+**How to explain the Bears' latest and greatest jaw-dropping win? Belief**\
+`Down by 10 points and without a touchdown in the final minutes Saturday, the Bears somehow pulled off a breathtaking overtime victory.`\
+https://nytimes.com/athletic/6908082/2025/12/21/bears-caleb-williams-overtime-win-packers/
+
 **Watching the Ashes won (and lost) from the hill at Adelaide Oval: 'England are so easy to beat'**\
 `Australia's home dominance has been maintained with the urn again retained before Christmas, leaving fans of both teams craving competition`\
 https://nytimes.com/athletic/6908141/2025/12/21/ashes-australia-england-fans-adelaide-hill/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/12/21/opinion/dsa-zohran-mamdani-new-orleans.html
 **The Trump Vibe Shift Is Dead**\
 `What will come in its wake?`\
 https://nytimes.com/2025/12/21/opinion/trump-economy-vibe-shift.html
-
-**The Pete Golding Ole Miss Rebels looked like the Lane Kiffin Rebels — and that's a good thing**\
-`On Saturday, the focus finally shifted back to football and Ole Miss’ players. And the Rebels delivered with a stress-free win. `\
-https://nytimes.com/athletic/6907703/2025/12/21/pete-golding-ole-miss-lane-kiffin-playoff/
-
-**Christianity Is a Dangerous Faith**\
-`Living in the upside-down kingdom of God.`\
-https://nytimes.com/2025/12/21/opinion/christ-christmas-humility-kingdom-god.html
-
-**As Commanders limp to the finish line, emotions are boiling over**\
-`After a chippy loss to the Eagles continued a season of misery, the lingering anger in the Commanders’ locker room was palpable.`\
-https://nytimes.com/athletic/6908266/2025/12/21/commanders-eagles-fight-tension-ejections/
 
