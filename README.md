@@ -1,3 +1,19 @@
+**Chiefs QB Gardner Minshew questionable to return vs. Titans with knee injury**\
+`Minshew, starting for the Chiefs in place of the injured Patrick Mahomes, left the game in the second quarter. Chris Oladokun replaced him.`\
+https://nytimes.com/athletic/6908988/2025/12/21/gardner-minshew-injury-chiefs-backup-qb-chris-oladokun/
+
+**Browns' Quinshon Judkins carted off vs. Bills with right leg injury**\
+`Judkins has had an impressive rookie season, entering Sunday's game against Buffalo with 805 rushing yards and seven touchdowns. `\
+https://nytimes.com/athletic/6909008/2025/12/21/browns-quinshon-judkins-leg-injury/
+
+**How to watch Old Dominion vs. Ole Miss women's basketball: Time, TV, streaming**\
+`Find out how to watch the Old Dominion Monarchs play the Ole Miss Rebels, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6909050/2025/12/21/old-dominion-vs-ole-miss-stream-how-to-watch-dec-21/
+
+**How to watch North Dakota vs. Nebraska men's basketball: Time, TV, streaming**\
+`Find out how to watch the North Dakota Fightin' Hawks play the Nebraska Cornhuskers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6909033/2025/12/21/north-dakota-vs-nebraska-stream-how-to-watch-dec-21/
+
 **How to watch USC vs. Cal women's basketball: Time, TV, streaming**\
 `Find out how to watch the USC Trojans play the California Golden Bears, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6909030/2025/12/21/usc-vs-cal-stream-how-to-watch-dec-21/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/12/21/arts/television/kevin-arkadie-dead.html
 **Australia Mourns Bondi Beach Shooting Victims**\
 `A week after gunmen killed 15 people at a Hanukkah celebration, hints of political divisions and anti-immigration rhetoric emerge in Australia.`\
 https://nytimes.com/2025/12/21/world/asia/australia-mourns-bondi-beach-shooting-victims.html
-
-**‘Avatar’ Sequel Is Neither Fire Nor Ash at North American Box Office**\
-`“Avatar: Fire and Ash” took in $88 million over the weekend, a sizable No. 1 total that nonetheless fell 34 percent behind the opening for its franchise predecessor.`\
-https://nytimes.com/2025/12/21/business/avatar-fire-and-ash-opening-weekend.html
-
-**Aston Villa 2 Man Utd 1: Can Emery dream of the title? What impact did Fernandes injury have?**\
-`Dissecting the major talking points from the Premier League clash at Villa Park`\
-https://nytimes.com/athletic/6896157/2025/12/21/aston-villa-man-utd-result-analysis/
-
-**Michigan loses OC Chip Lindsey to Missouri as coaching search continues**\
-`Missouri coach Eli Drinkwitz has been mentioned as a possible Michigan candidate, but now he's hiring the Wolverines' offensive coordinator.`\
-https://nytimes.com/athletic/6908840/2025/12/21/missouri-chip-lindsey-michigan-offensive-coordinator/
-
-**Until Saturday: Blowouts happen**\
-`Until Saturday is The Athletic's free college football newsletter.`\
-https://nytimes.com/athletic/6908859/2025/12/21/college-football-playoff-blowouts-until-saturday/
 
