@@ -1,3 +1,7 @@
+**Sabres stretch winning streak to 5 after beating Islanders: 6 thoughts**\
+`With a 3-2 win over the Islanders, the Sabres are now five points back of the second wild-card spot in a crowded Eastern playoff picture.`\
+https://nytimes.com/athletic/6907539/2025/12/20/sabres-islanders-winning-streak-playoffs/
+
 **The Kings have to do more than trade Phillip Danault to spark their season**\
 `Pulling Danault out of an underperforming roster isn’t enough because the Kings aren't a better team after the trade.`\
 https://nytimes.com/athletic/6907177/2025/12/20/la-kings-phillip-danault-trade-season/
