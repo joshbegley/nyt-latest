@@ -14,7 +14,7 @@ https://nytimes.com/2025/12/21/briefing/testament-of-ann-lee.html
 `The Chinese government once focused on political dissidents and exiled activists. Now, federal officials say, it is targeting artists in the United States whose creative protests test its tolerance.`\
 https://nytimes.com/2025/12/21/world/asia/chinese-dissidents-protest-art.html
 
-**Trump Administration Live Updates: U.S. Boards Tanker Carrying Venezuelan Oil, Officials Say**\
+**Trump Administration Live Updates: Deputy A.G. Says Mentions of Trump Won’t Be Stripped From Epstein Files**\
 ``\
 https://nytimes.com/live/2025/12/21/us/trump-news
 
