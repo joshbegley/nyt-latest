@@ -1,3 +1,7 @@
+**Kevin Arkadie, ‘New York Undercover’ Co-Creator, Dies at 68**\
+`The screenwriter and producer created several television hits about law enforcement. He made one of the first police dramas to star two main characters of color.`\
+https://nytimes.com/2025/12/21/arts/television/kevin-arkadie-dead.html
+
 **Australia Mourns Bondi Beach Shooting Victims**\
 `A week after gunmen killed 15 people at a Hanukkah celebration, hints of political divisions and anti-immigration rhetoric emerge in Australia.`\
 https://nytimes.com/2025/12/21/world/asia/australia-mourns-bondi-beach-shooting-victims.html
