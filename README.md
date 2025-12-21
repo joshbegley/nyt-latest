@@ -35,6 +35,6 @@ https://nytimes.com/athletic/6907594/2025/12/21/sixers-maxey-edgecombe-mccain-ch
 https://nytimes.com/athletic/6905834/2025/12/21/newcastle-howe-winning-position-clean-sheets/
 
 **Arsenal are top at Christmas but history shows they cannot rest on their laurels**\
-`This club has been top on December 25 four times in the Premier League era but failed to go on to win the title on all those occasions`\
+`This club has been top on December 25 four times in the Premier League era… but failed to go on to win the title on all those occasions`\
 https://nytimes.com/athletic/6907311/2025/12/21/arsenal-christmas-top-arteta-everton/
 
