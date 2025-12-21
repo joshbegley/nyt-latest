@@ -1,3 +1,7 @@
+**Yankees re-sign right-hander Paul Blackburn to one-year contract: Source**\
+`Blackburn found something out of the bullpen to enhance his value in the final month of the season, and can also serve as rotation depth.`\
+https://nytimes.com/athletic/6907818/2025/12/21/yankees-re-sign-paul-blackburn/
+
 **Nine People Killed in Mass Shooting at Tavern in South Africa**\
 `Around a dozen gunmen opened fire at random at bar patrons. The police said they launched a manhunt to find the unknown assailants.`\
 https://nytimes.com/2025/12/21/world/asia/mass-shooting-tavern-south-africa.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6907311/2025/12/21/arsenal-christmas-top-arteta-eve
 **Bears stun Packers in OT with Caleb Williams-DJ Moore walk-off TD connection: Takeaways**\
 `The Bears erased a 10-point deficit in the final two minutes of regulation, recovering an onside kick, and hit the Packers in the gut in OT.`\
 https://nytimes.com/athletic/6907586/2025/12/21/bears-packers-takeaways-score-week-16/
-
-**Does surprise AFCON schedule change really benefit African football?**\
-`Moving AFCON to every four years and aligning with the FIFA calendar may bring upsides, but also leaves many questions unanswered`\
-https://nytimes.com/athletic/6899217/2025/12/21/afcon-schedule-change-fifa-caf-2025/
 

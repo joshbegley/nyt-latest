@@ -10,7 +10,7 @@ https://nytimes.com/2025/12/21/world/asia/mass-shooting-tavern-south-africa.html
 ``\
 https://nytimes.com/issue/todayspaper/2025/12/21/todays-new-york-times
 
-**My Oldest Old Friend**\
+**Our 55-Year Age Gap Didn’t Interfere With Our Bond**\
 `She was a great-grandmother, and I was a millennial. We could have talked forever.`\
 https://nytimes.com/2025/12/21/opinion/friendship-old-age.html
 
