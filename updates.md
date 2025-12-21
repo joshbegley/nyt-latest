@@ -1,3 +1,7 @@
+**9 Killed in Mass Shooting at Tavern in South Africa**\
+`Around a dozen gunmen opened fire at random at bar patrons, the police said. A manhunt for the unknown assailants was underway.`\
+https://nytimes.com/2025/12/21/world/africa/mass-shooting-tavern-south-africa.html
+
 **Nine Killed in Mass Shooting at Tavern in South Africa**\
 `Around a dozen gunmen opened fire at random at bar patrons, the police said. A manhunt for the unknown assailants was underway.`\
 https://nytimes.com/2025/12/21/world/africa/mass-shooting-tavern-south-africa.html
