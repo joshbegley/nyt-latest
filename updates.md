@@ -1,3 +1,7 @@
+**Caleb Williams to DJ Moore slayed the Packers. Here's how the Bears did it**\
+`Williams' 46-yard scoring strike to Moore was the Bears added and hit in practice this week, and they did it again to beat Green Bay.`\
+https://nytimes.com/athletic/6908046/2025/12/21/bears-caleb-williams-dj-moore-packers/
+
 **Penguins' losing streak hits 8 as Sidney Crosby is again scoreless: 10 observations**\
 `The Penguins were blanked for a second straight game for the first time in 16 years as they fell in Montreal, 4-0, on Saturday. `\
 https://nytimes.com/athletic/6907651/2025/12/21/penguins-losing-streak-hits-8-as-sidney-crosby-is-held-without-a-point-again-10-observations/
