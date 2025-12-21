@@ -1,3 +1,7 @@
+**How to watch Capitals vs. Red Wings: Time, TV, streaming**\
+`Find out how to watch the Washington Capitals play the Detroit Red Wings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6908253/2025/12/21/capitals-vs-red-wings-stream-how-to-watch-dec-21/
+
 **How to watch Oakland vs. Michigan women's basketball: Time, TV, streaming**\
 `Find out how to watch the Oakland Golden Grizzlies play the Michigan Wolverines, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6908242/2025/12/21/oakland-vs-michigan-stream-how-to-watch-dec-21/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/21/world/europe/belarus-sanctions-potash-ales-bialia
 **Amanda Seyfried Had a ‘Complete Spiritual Awakening’**\
 `She called on the experience to play a religious leader building a political utopia in “The Testament of Ann Lee,” coming out Christmas Day.`\
 https://nytimes.com/2025/12/21/briefing/amanda-seyfried-had-a-complete-spiritual-awakening.html
-
-**A Life Rooted in Activism and Listening to Others**\
-`Michele Singer Reiner was the guiding force in the lives of her family, stressing the need to help and respect one another.`\
-https://nytimes.com/2025/12/21/us/michele-singer-reiner.html
 
