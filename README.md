@@ -1,3 +1,7 @@
+**The Ashes Briefing: Australia retain the urn as Ben Stokes vows to fight on as England captain**\
+`Australia eventually overcame England's resistance to win the third Test by 82 runs and take an unassailable 3-0 lead in the series`\
+https://nytimes.com/athletic/6907680/2025/12/21/ashes-england-stokes-australia-briefing/
+
 **Yankees re-sign right-hander Paul Blackburn to one-year contract: Source**\
 `Blackburn found something out of the bullpen to enhance his value in the final month of the season, and can also serve as rotation depth.`\
 https://nytimes.com/athletic/6907818/2025/12/21/yankees-re-sign-paul-blackburn/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6905834/2025/12/21/newcastle-howe-winning-position-
 **Arsenal are top at Christmas but history shows they cannot rest on their laurels**\
 `This club has been top on December 25 four times in the Premier League era but failed to go on to win the title on all those occasions`\
 https://nytimes.com/athletic/6907311/2025/12/21/arsenal-christmas-top-arteta-everton/
-
-**Bears stun Packers in OT with Caleb Williams-DJ Moore walk-off TD connection: Takeaways**\
-`The Bears erased a 10-point deficit in the final two minutes of regulation, recovering an onside kick, and hit the Packers in the gut in OT.`\
-https://nytimes.com/athletic/6907586/2025/12/21/bears-packers-takeaways-score-week-16/
 
