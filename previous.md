@@ -1,3 +1,7 @@
+**Sydney Gunmen Met Muslim Religious Leaders on Philippine Trip, Officials Say**\
+`Intelligence authorities in the Philippines say the father and son apparently slipped out of Davao City during their monthlong stay, but details remain sketchy.`\
+https://nytimes.com/2025/12/21/world/asia/sydney-philippines-akram.html
+
 **Premier League club executive investigated over alleged non-recent sex offences**\
 `The man is still working in England’s top division while the case is investigated by London’s Metropolitan police.`\
 https://nytimes.com/athletic/6906698/2025/12/21/premier-league-executive-investigation/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6907680/2025/12/21/ashes-england-stokes-australia-b
 **Yankees re-sign right-hander Paul Blackburn to one-year contract: Source**\
 `Blackburn found something out of the bullpen to enhance his value in the final month of the season.`\
 https://nytimes.com/athletic/6907818/2025/12/21/yankees-re-sign-paul-blackburn/
-
-**9 Killed in Mass Shooting at Tavern in South Africa**\
-`Around a dozen gunmen opened fire at random at bar patrons, the police said. A manhunt for the unknown assailants was underway.`\
-https://nytimes.com/2025/12/21/world/africa/mass-shooting-tavern-south-africa.html
 

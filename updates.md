@@ -1,3 +1,7 @@
+**Sydney Gunmen Met Muslim Religious Leaders on Philippine Trip, Officials Say**\
+`Intelligence authorities in the Philippines say the father and son apparently slipped out of Davao City during their monthlong stay, but details remain sketchy.`\
+https://nytimes.com/2025/12/21/world/asia/sydney-philippines-akram.html
+
 **9 Killed in Mass Shooting at Tavern in South Africa**\
 `Around a dozen gunmen opened fire at random at bar patrons, the police said. A manhunt for the unknown assailants was underway.`\
 https://nytimes.com/2025/12/21/world/africa/mass-shooting-tavern-south-africa.html
