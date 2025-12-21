@@ -1,3 +1,7 @@
+**Brain injury charity Headway criticise handling of apparent Martinez head knock**\
+`Martinez appeared groggy and in visible pain following a clash with Matty Cash.`\
+https://nytimes.com/athletic/6909002/2025/12/21/martinez-injury-head-villa-united-news-critcism/
+
 **J.T. Miller out week to week after suffering upper-body injury: Source**\
 `Miller's injury came after taking a reverse hit from Philadelphia's Nick Seeler, who appeared to make contact with Miller's shoulder.`\
 https://nytimes.com/athletic/6909133/2025/12/21/rangers-jt-miller-injury-update/
