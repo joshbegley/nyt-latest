@@ -24,7 +24,7 @@ https://nytimes.com/athletic/6909066/2025/12/21/rockets-vs-kings-stream-how-to-w
 `Find out how to watch the Vegas Golden Knights play the Edmonton Oilers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6909064/2025/12/21/golden-knights-vs-oilers-stream-how-to-watch-dec-21/
 
-**Chiefs QB Gardner Minshew questionable to return vs. Titans with knee injury**\
+**Chiefs QB Gardner Minshew ruled out vs. Titans with knee injury**\
 `Minshew, starting for the Chiefs in place of the injured Patrick Mahomes, left the game in the second quarter. Chris Oladokun replaced him.`\
 https://nytimes.com/athletic/6908988/2025/12/21/gardner-minshew-injury-chiefs-backup-qb-chris-oladokun/
 
