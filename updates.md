@@ -1,3 +1,7 @@
+**Arsenal are top at Christmas but history shows they cannot rest on their laurels**\
+`This club has been top on December 25 four times in the Premier League era… but failed to go on to win the title on all those occasions`\
+https://nytimes.com/athletic/6907311/2025/12/21/arsenal-christmas-top-arteta-everton/
+
 **Nine People Killed in Mass Shooting at Tavern in South Africa**\
 `Around a dozen gunmen opened fire at random at bar patrons. The police said they launched a manhunt to find the unknown assailants.`\
 https://nytimes.com/2025/12/21/world/africa/mass-shooting-tavern-south-africa.html
