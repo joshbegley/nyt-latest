@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6907680/2025/12/21/ashes-england-stokes-australia-briefing/
 
 **Yankees re-sign right-hander Paul Blackburn to one-year contract: Source**\
-`Blackburn found something out of the bullpen to enhance his value in the final month of the season, and can also serve as rotation depth.`\
+`Blackburn found something out of the bullpen to enhance his value in the final month of the season.`\
 https://nytimes.com/athletic/6907818/2025/12/21/yankees-re-sign-paul-blackburn/
 
 **Nine People Killed in Mass Shooting at Tavern in South Africa**\

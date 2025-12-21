@@ -1,3 +1,7 @@
+**Yankees re-sign right-hander Paul Blackburn to one-year contract: Source**\
+`Blackburn found something out of the bullpen to enhance his value in the final month of the season.`\
+https://nytimes.com/athletic/6907818/2025/12/21/yankees-re-sign-paul-blackburn/
+
 **The Ashes Briefing: Australia retain the urn as Ben Stokes vows to fight on as England captain**\
 `Australia eventually overcame England's resistance to win the third Test by 82 runs and take an unassailable 3-0 lead in the series`\
 https://nytimes.com/athletic/6907680/2025/12/21/ashes-england-stokes-australia-briefing/
