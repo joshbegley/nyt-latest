@@ -1,3 +1,11 @@
+**Commanders pondering QB options as Marcus Mariota deals with hand, quad injuries**\
+`The Commanders have a quick turnaround before hosting the Dallas Cowboys on Christmas Day.`\
+https://nytimes.com/athletic/6909324/2025/12/21/marcus-mariota-hand-injury-commanders-quarterback/
+
+**Panthers hold off Bucs, take one-game lead in NFC South: Takeaways**\
+`The Panthers can clinch their first playoff berth since 2017 with a win next week and a Tampa Bay loss.`\
+https://nytimes.com/athletic/6908891/2025/12/21/panthers-bucs-score-result-takeaways-nfl/
+
 **The Briefing: Morocco 2 Comoros 0 – El Kaabi's wonder strike and Brahim delivers in AFCON opener**\
 `Our writers analyse the key talking points from the opening game of the 2025 Africa Cup of Nations`\
 https://nytimes.com/athletic/6896155/2025/12/21/morocco-comoros-afcon-opening-game/

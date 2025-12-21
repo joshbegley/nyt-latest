@@ -1,3 +1,11 @@
+**Commanders pondering QB options as Marcus Mariota deals with hand, quad injuries**\
+`The Commanders have a quick turnaround before hosting the Dallas Cowboys on Christmas Day.`\
+https://nytimes.com/athletic/6909324/2025/12/21/marcus-mariota-hand-injury-commanders-quarterback/
+
+**Panthers hold off Bucs, take one-game lead in NFC South: Takeaways**\
+`The Panthers can clinch their first playoff berth since 2017 with a win next week and a Tampa Bay loss.`\
+https://nytimes.com/athletic/6908891/2025/12/21/panthers-bucs-score-result-takeaways-nfl/
+
 **Chargers pull away from Cowboys, close in on second straight playoff appearance**\
 `The Chargers are on the verge of a second straight playoff appearance under coach Jim Harbaugh. `\
 https://nytimes.com/athletic/6908851/2025/12/21/chargers-cowboys-score-result-takeaways-nfl/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6896155/2025/12/21/morocco-comoros-afcon-opening-ga
 **Devils' Jack Hughes will return to lineup Sunday after 18-game absence**\
 `Timo Meier and Arseny Gritsyuk are also slated to return Sunday against Buffalo.`\
 https://nytimes.com/athletic/6909294/2025/12/21/new-jersey-devils-jack-hughes-return/
-
-**Brain injury charity Headway criticise handling of apparent Martinez head knock**\
-`Martinez appeared groggy and in visible pain following a clash with Matty Cash.`\
-https://nytimes.com/athletic/6909002/2025/12/21/martinez-injury-head-villa-united-news-critcism/
-
-**J.T. Miller out week to week after suffering upper-body injury: Source**\
-`Miller's injury came after taking a reverse hit from Philadelphia's Nick Seeler, who appeared to make contact with Miller's shoulder.`\
-https://nytimes.com/athletic/6909133/2025/12/21/rangers-jt-miller-injury-update/
 
