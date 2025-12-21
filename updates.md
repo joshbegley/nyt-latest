@@ -1,3 +1,19 @@
+**Mandel's Final Thoughts: Is 'The U' back? Alabama is chasing and G5 meets reality**\
+`Plus, Ole Miss doesn't miss Lane Kiffin, Texas A&M's historic season ends in a buzzkill and how the CFP will change next year. `\
+https://nytimes.com/athletic/6907605/2025/12/21/college-football-scores-results-playoff-first-round/
+
+**JJ Redick frustrated by officiating in Lakers' 103-88 loss to Clippers**\
+`Marcus Smart, who was fined $35,000 earlier in the day for a flare-up with an official Thursday, and Luka Dončić got T'd up Saturday night.`\
+https://nytimes.com/athletic/6907977/2025/12/21/jj-redick-frustrated-officiating-lakers-clippers-nba/
+
+**Without Jakob Poeltl, Raptors are forced into small-ball identity**\
+`Coach Darko Rajaković said the Raptors haven’t considered sitting Poeltl down for too long, thinking the injury isn't serious enough.`\
+https://nytimes.com/athletic/6907423/2025/12/21/toronto-raptors-small-ball-lineup-jakob-poeltl/
+
+**Lowetide: Analyzing Oilers' positional depth charts near 2025-26 midseason**\
+`The Oilers continue to make significant changes around their core evident across the 2025-26 roster.`\
+https://nytimes.com/athletic/6906306/2025/12/21/edmonton-oilers-depth-charts-2025-26/
+
 **Fiorentina approach Tottenham's Paratici about shock return to Italian football**\
 `Fiorentina are yet to approach Spurs directly about Paratici, according to sources briefed on the situation.`\
 https://nytimes.com/athletic/6906661/2025/12/21/fabio-paratici-tottenham-fiorentina/

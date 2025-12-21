@@ -1,3 +1,19 @@
+**Mandel's Final Thoughts: Is 'The U' back? Alabama is chasing and G5 meets reality**\
+`Plus, Ole Miss doesn't miss Lane Kiffin, Texas A&M's historic season ends in a buzzkill and how the CFP will change next year. `\
+https://nytimes.com/athletic/6907605/2025/12/21/college-football-scores-results-playoff-first-round/
+
+**JJ Redick frustrated by officiating in Lakers' 103-88 loss to Clippers**\
+`Marcus Smart, who was fined $35,000 earlier in the day for a flare-up with an official Thursday, and Luka Dončić got T'd up Saturday night.`\
+https://nytimes.com/athletic/6907977/2025/12/21/jj-redick-frustrated-officiating-lakers-clippers-nba/
+
+**Without Jakob Poeltl, Raptors are forced into small-ball identity**\
+`Coach Darko Rajaković said the Raptors haven’t considered sitting Poeltl down for too long, thinking the injury isn't serious enough.`\
+https://nytimes.com/athletic/6907423/2025/12/21/toronto-raptors-small-ball-lineup-jakob-poeltl/
+
+**Lowetide: Analyzing Oilers' positional depth charts near 2025-26 midseason**\
+`The Oilers continue to make significant changes around their core evident across the 2025-26 roster.`\
+https://nytimes.com/athletic/6906306/2025/12/21/edmonton-oilers-depth-charts-2025-26/
+
 **Fiorentina approach Tottenham's Paratici about shock return to Italian football**\
 `Fiorentina are yet to approach Spurs directly about Paratici, according to sources briefed on the situation.`\
 https://nytimes.com/athletic/6906661/2025/12/21/fabio-paratici-tottenham-fiorentina/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6908018/2025/12/21/bears-packers-overtime-victory-n
 **This Week in the NBA: Josh Hart caught in 4K, Chris Finch ejected in less than six minutes and more**\
 `Week 9 brought an NBA Cup title, a viral celebration moment, Jokić passing Kareem in assists and the fastest coach ejection of the season.`\
 https://nytimes.com/athletic/6907162/2025/12/21/nba-trending-chris-finch-josh-hart-jokic/
-
-**The 'crisis' is over but 17 mad minutes at Spurs proved Liverpool still have frailties**\
-`The champions may have beaten Tottenham but their game management was non-existent during a frantic finale`\
-https://nytimes.com/athletic/6908292/2025/12/21/liverpool-tottenham-match-analysis/
-
-**Eagles relish 'a good day' in NFC East-clinching offensive onslaught**\
-`The offense got a chance to celebrate as it continues working on establishing an identity under first-year coordinator Kevin Patullo.`\
-https://nytimes.com/athletic/6907323/2025/12/21/eagles-nfc-east-clinched-offense/
-
-**Inside a Democratic Socialist Convention Galvanized by Mamdani’s Big Win**\
-`The D.S.A. is still small. But as economic inequality keeps burning, Democratic Socialists are attracting intense interest and getting elected to office.`\
-https://nytimes.com/2025/12/21/opinion/dsa-zohran-mamdani-new-orleans.html
-
-**The Trump Vibe Shift Is Dead**\
-`What will come in its wake?`\
-https://nytimes.com/2025/12/21/opinion/trump-economy-vibe-shift.html
 
