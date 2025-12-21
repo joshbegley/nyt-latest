@@ -1,3 +1,7 @@
+**College Football Playoff 2025 projections: Who's favored to advance in the bracket?**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/12/20/college-football-playoff-bracket-projections-odds/
+
 **Commanders QB Josh Johnson enters Eagles game for injured starter Marcus Mariota**\
 `Mariota was cleared of a concussion but was declared questionable to return because of a hand injury.`\
 https://nytimes.com/athletic/6907220/2025/12/20/josh-johnson-qb-commanders-marcus-mariota-injury/
@@ -10,7 +14,7 @@ https://nytimes.com/athletic/6907046/2025/12/20/flyers-denver-barkey-nhl-debut/
 `All's well that ends well for the Falcons, who advance to the Division III title game despite a potentially costly failed fourth-down try. `\
 https://nytimes.com/athletic/6906946/2025/12/20/uw-river-falls-loses-track-of-downs-wins/
 
-**Ole Miss vs. Tulane CFP takeaways: Pete Golding passes first test, Rebels roll into quarters**\
+**Ole Miss vs. Tulane: Pete Golding passes first test, Rebels roll into CFP quarters**\
 `Ole Miss won its first-ever College Football Playoff game with relative ease, topping Tulane 41-10. `\
 https://nytimes.com/athletic/6907032/2025/12/20/ole-miss-tulane-college-football-playoff-takeaways-score/
 
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/100000010601541/epstein-doj-files-released.html
 **49ers' Ricky Pearsall out for Monday's game at Colts with knee injury**\
 `The 49ers have a 7-1 record in games Pearsall has played and are 3-3 in games he has missed.`\
 https://nytimes.com/athletic/6906996/2025/12/20/ricky-pearsall-out-49ers-colts/
-
-**Present Time**\
-`David Kwong, the magician, branches out with a festive Sunday puzzle.`\
-https://nytimes.com/2025/12/20/crosswords/daily-puzzle-2025-12-21.html
 

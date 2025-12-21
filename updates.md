@@ -1,3 +1,11 @@
+**College Football Playoff 2025 projections: Who's favored to advance in the bracket?**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/12/20/college-football-playoff-bracket-projections-odds/
+
+**Ole Miss vs. Tulane: Pete Golding passes first test, Rebels roll into CFP quarters**\
+`Ole Miss won its first-ever College Football Playoff game with relative ease, topping Tulane 41-10. `\
+https://nytimes.com/athletic/6907032/2025/12/20/ole-miss-tulane-college-football-playoff-takeaways-score/
+
 **Commanders QB Josh Johnson enters Eagles game for injured starter Marcus Mariota**\
 `Mariota was cleared of a concussion but was declared questionable to return because of a hand injury.`\
 https://nytimes.com/athletic/6907220/2025/12/20/josh-johnson-qb-commanders-marcus-mariota-injury/
