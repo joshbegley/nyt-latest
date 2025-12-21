@@ -1,3 +1,11 @@
+**Australia Mourns Bondi Beach Shooting Victims**\
+`A week after gunmen killed 15 people at a Hanukkah celebration, hints of political divisions and anti-immigration rhetoric emerge in Australia.`\
+https://nytimes.com/2025/12/21/world/asia/australia-mourns-bondi-beach-shooting-victims.html
+
+**‘Avatar’ Sequel Is Neither Fire Nor Ash at North American Box Office**\
+`“Avatar: Fire and Ash” took in $88 million over the weekend, a sizable No. 1 total that nonetheless fell 34 percent behind the opening for its franchise predecessor.`\
+https://nytimes.com/2025/12/21/business/avatar-fire-and-ash-opening-weekend.html
+
 **Aston Villa 2 Man Utd 1: Can Emery dream of the title? What impact did Bruno injury have?**\
 `Dissecting the major talking points from the Premier League clash at Villa Park`\
 https://nytimes.com/athletic/6896157/2025/12/21/aston-villa-man-utd-result-analysis/
