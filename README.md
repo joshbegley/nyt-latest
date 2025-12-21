@@ -1,3 +1,21 @@
+**Toilet Rats: Rare, but There**\
+`Heavy rains have prompted public health officials in Washington to warn residents about toilet rats, a rare plumbing nightmare that drives frantic calls to pest control experts.`\
+https://nytimes.com/2025/12/21/us/washington-flooding-toilet-rats.html
+
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>Round 1 is in the books. The quarterfinals will be here before you know it.</p>
+<p>Leave your questions here. Please include your city.</p>
+`\
+https://nytimes.com/athletic/6909058/2025/12/21/submit-a-question-for-stewart-mandels-college-football-mailbag-328/
+
+**How to watch Rockets vs. Kings: Time, TV, streaming**\
+`Find out how to watch the Houston Rockets play the Sacramento Kings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6909066/2025/12/21/rockets-vs-kings-stream-how-to-watch-dec-21/
+
+**How to watch Golden Knights vs. Oilers: Time, TV, streaming**\
+`Find out how to watch the Vegas Golden Knights play the Edmonton Oilers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6909064/2025/12/21/golden-knights-vs-oilers-stream-how-to-watch-dec-21/
+
 **Chiefs QB Gardner Minshew questionable to return vs. Titans with knee injury**\
 `Minshew, starting for the Chiefs in place of the injured Patrick Mahomes, left the game in the second quarter. Chris Oladokun replaced him.`\
 https://nytimes.com/athletic/6908988/2025/12/21/gardner-minshew-injury-chiefs-backup-qb-chris-oladokun/
@@ -21,20 +39,4 @@ https://nytimes.com/athletic/6909030/2025/12/21/usc-vs-cal-stream-how-to-watch-d
 **Munetaka Murakami signs short deal in potential windfall for the White Sox**\
 `The White Sox’s signing of the Japanese star third baseman was a shocker on two levels.`\
 https://nytimes.com/athletic/6908883/2025/12/21/white-sox-munetaka-murakami-signing-analysis/
-
-**Clippers, after getting 1st home win in 50 days, set sights on an achievable bar**\
-`After a win Saturday, the Clippers talked about the expectations for the remainder of the regular season.`\
-https://nytimes.com/athletic/6908165/2025/12/21/clippers-nba-win-lakers-season/
-
-**U.S. Coast Guard Is Pursuing an Oil Tanker Linked to Venezuela**\
-`U.S. forces had boarded a different tanker on Saturday. The actions signaled a crackdown on such vessels.`\
-https://nytimes.com/2025/12/21/us/politics/us-coast-guard-venezuela-oil-tankers.html
-
-**Kevin Arkadie, ‘New York Undercover’ Co-Creator, Dies at 68**\
-`The screenwriter and producer created several television hits about law enforcement. He made one of the first police dramas to star two main characters of color.`\
-https://nytimes.com/2025/12/21/arts/television/kevin-arkadie-dead.html
-
-**Australia Mourns Bondi Beach Shooting Victims**\
-`A week after gunmen killed 15 people at a Hanukkah celebration, hints of political divisions and anti-immigration rhetoric emerge in Australia.`\
-https://nytimes.com/2025/12/21/world/asia/australia-mourns-bondi-beach-shooting-victims.html
 
