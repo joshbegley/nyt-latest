@@ -1,3 +1,7 @@
+**U.S. Coast Guard Is Pursuing an Oil Tanker Linked to Venezuela**\
+`U.S. forces had boarded a different tanker on Saturday. The actions signaled a crackdown on such vessels.`\
+https://nytimes.com/2025/12/21/us/politics/us-coast-guard-venezuela-oil-tankers.html
+
 **Kevin Arkadie, ‘New York Undercover’ Co-Creator, Dies at 68**\
 `The screenwriter and producer created several television hits about law enforcement. He made one of the first police dramas to star two main characters of color.`\
 https://nytimes.com/2025/12/21/arts/television/kevin-arkadie-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6906112/2025/12/21/west-ham-women-manager-guarino/
 **Blanche Says Mentions of Trump in Epstein Files Won’t Be Removed**\
 `In an interview with NBC, the No. 2 official at the Justice Department denied that officials were protecting the president from what has been disclosed.`\
 https://nytimes.com/2025/12/21/us/politics/todd-blanche-epstein-files-trump-redactions.html
-
-**Review: A ‘Picnic at Hanging Rock’ Musical Is a Psychedelic Parable**\
-`At Greenwich House Theater, Greta Gertler Gold and Hilary Bell’s stage adaptation of Joan Lindsay’s novel hovers between reverie and reality.`\
-https://nytimes.com/2025/12/21/theater/picnic-at-hanging-rock-musical-review.html
 

@@ -1,3 +1,7 @@
+**U.S. Coast Guard Is Pursuing an Oil Tanker Linked to Venezuela**\
+`U.S. forces had boarded a different tanker on Saturday. The actions signaled a crackdown on such vessels.`\
+https://nytimes.com/2025/12/21/us/politics/us-coast-guard-venezuela-oil-tankers.html
+
 **Aston Villa 2 Man Utd 1: Can Emery dream of the title? What impact did Fernandes injury have?**\
 `Dissecting the major talking points from the Premier League clash at Villa Park`\
 https://nytimes.com/athletic/6896157/2025/12/21/aston-villa-man-utd-result-analysis/

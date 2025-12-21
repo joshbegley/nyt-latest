@@ -1,3 +1,7 @@
+**Clippers, after getting 1st home win in 50 days, set sights on an achievable bar**\
+`After a win Saturday, the Clippers talked about the expectations for the remainder of the regular season.`\
+https://nytimes.com/athletic/6908165/2025/12/21/clippers-nba-win-lakers-season/
+
 **U.S. Coast Guard Is Pursuing an Oil Tanker Linked to Venezuela**\
 `U.S. forces had boarded a different tanker on Saturday. The actions signaled a crackdown on such vessels.`\
 https://nytimes.com/2025/12/21/us/politics/us-coast-guard-venezuela-oil-tankers.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6908700/2025/12/21/ed-cooley-water-bottle-apology/
 **West Ham women to appoint Guarino, formerly of Inter and Juventus**\
 `Guarino replaces Rehanne Skinner, who left West Ham on Thursday after two-and-a-half seasons in charge.`\
 https://nytimes.com/athletic/6906112/2025/12/21/west-ham-women-manager-guarino/
-
-**Blanche Says Mentions of Trump in Epstein Files Won’t Be Removed**\
-`In an interview with NBC, the No. 2 official at the Justice Department denied that officials were protecting the president from what has been disclosed.`\
-https://nytimes.com/2025/12/21/us/politics/todd-blanche-epstein-files-trump-redactions.html
 
