@@ -1,3 +1,7 @@
+**College Football Playoff 2025 projections: Indiana favored over Alabama, plus more odds**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/12/20/college-football-playoff-bracket-projections-odds/
+
 **Cheer up, the CFP quarterfinals could be great: First look at Indiana-Alabama and more**\
 `An early guide to Indiana-Alabama, Oregon-Texas Tech, Ohio State-Miami and Georgia-Ole Miss in the College Football Playoff's second round.`\
 https://nytimes.com/athletic/6906863/2025/12/20/college-football-playoff-quarterfinals-bracket-matchups/
