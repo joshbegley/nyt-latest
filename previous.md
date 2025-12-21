@@ -1,3 +1,27 @@
+**76ers' Tyrese Maxey, V.J. Edgecombe, Jared McCain finding chemistry**\
+`Nurse didn't have much recourse, other than to put his three guards on the floor together. And on this night, they responded as a group.`\
+https://nytimes.com/athletic/6907594/2025/12/21/sixers-maxey-edgecombe-mccain-chemistry/
+
+**Another lead lost and no clean sheet: Newcastle's flaws are becoming a worrying pattern**\
+`Eddie Howe is worried by the way his side keep failing to build on their impressive starts to games`\
+https://nytimes.com/athletic/6905834/2025/12/21/newcastle-howe-winning-position-clean-sheets/
+
+**Arsenal are top at Christmas but history shows they cannot rest on their laurels**\
+`This club has been top on December 25 four times in the Premier League era but failed to go on to win the title on all those occasions`\
+https://nytimes.com/athletic/6907311/2025/12/21/arsenal-christmas-top-arteta-everton/
+
+**Bears stun Packers in OT with Caleb Williams-DJ Moore walk-off TD connection: Takeaways**\
+`The Bears erased a 10-point deficit in the final two minutes of regulation, recovering an onside kick, and hit the Packers in the gut in OT.`\
+https://nytimes.com/athletic/6907586/2025/12/21/bears-packers-takeaways-score-week-16/
+
+**Does surprise AFCON schedule change really benefit African football?**\
+`Moving AFCON to every four years and aligning with the FIFA calendar may bring upsides, but also leaves many questions unanswered`\
+https://nytimes.com/athletic/6899217/2025/12/21/afcon-schedule-change-fifa-caf-2025/
+
+**Tottenham lost at home again. But in the chaos there was unity**\
+`Sometimes fans get quieter when a game looks lost. This time they got louder and more supportive. And the team responded in kind`\
+https://nytimes.com/athletic/6906850/2025/12/21/tottenham-simons-romero-frank-unity/
+
 **Enzo Maresca is committed to Chelsea despite Man City links — Newcastle draw showed that**\
 `All eyes were on Maresca after The Athletic reported City's interest in the Chelsea head coach if Pep Guardiola leaves`\
 https://nytimes.com/athletic/6906395/2025/12/21/enzo-maresca-chelsea-man-city-newcastle/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6906818/2025/12/21/wolves-jeff-shi-nathan-shi-fosun
 **Antoine Semenyo fits perfectly into Bournemouth's system, but could he flourish elsewhere?**\
 `The much-coveted forward scored his eighth Premier League goal of the season against Burnley and showcased his range of attacking qualities`\
 https://nytimes.com/athletic/6907248/2025/12/21/antoine-semenyo-bournemouth-big-six-analysis/
-
-**This Museum Housed 120,000 Works of Art. Now It’s Empty.**\
-`The Pompidou Center is the place to see contemporary art in Paris. Or it was, until curators put its astonishing collection into storage.`\
-https://nytimes.com/2025/12/21/pompidou-empty-renovation-art.html
-
-**Quote of the Day: Seeking Global Patients, Despite Organ Shortage**\
-`Quotation of the Day for December 21, 2025.`\
-https://nytimes.com/2025/12/21/pageoneplus/quote-of-the-day-seeking-global-patients-despite-organ-shortage.html
-
-**The Anatomy of a Chinese Church Crackdown**\
-`Videos and photographs show how the Chinese authorities have tried to dismantle Zion Church, a Christian network with branches across the country.`\
-https://nytimes.com/2025/12/21/world/asia/china-christian-zion-church-raid.html
-
-**Connections: Sports Edition Coach: Hints for Dec. 21, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6907609/2025/12/21/connections-sports-edition-hints-for-dec-21-2025/
-
-**Long Before Bondi Massacre, Australian Jews Lived With a Sense of Peril**\
-`Armed guards, bollards and secretive precautions became part of life amid antisemitic attacks and blurred lines between anger at Israel and hatred of Jews.`\
-https://nytimes.com/2025/12/21/world/australia/bondi-massacre-jewish-australians.html
-
-**A Neighborhood in India Fears Being Blamed for a Distant Atrocity**\
-`The attacker killed at last week’s Hanukkah celebration in Australia came from a Muslim area whose residents have long gone abroad to seek better lives.`\
-https://nytimes.com/2025/12/21/world/asia/india-muslims-emigration-australia.html
 
