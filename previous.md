@@ -10,7 +10,7 @@ https://nytimes.com/athletic/6907523/2025/12/20/draymond-green-ejection-warriors
 `Several players from both teams got involved in an altercation late in Philadelphia's NFC East-clinching victory.`\
 https://nytimes.com/athletic/6907376/2025/12/20/eagles-commanders-brawl-ejections/
 
-**The Kings have to do more than trading Phillip Danault to spark their season**\
+**The Kings have to do more than trade Phillip Danault to spark their season**\
 `Pulling Danault out of an underperforming roster isn’t enough because the Kings aren't a better team after the trade.`\
 https://nytimes.com/athletic/6907177/2025/12/20/la-kings-phillip-danault-trade-season/
 

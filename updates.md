@@ -1,3 +1,7 @@
+**The Kings have to do more than trade Phillip Danault to spark their season**\
+`Pulling Danault out of an underperforming roster isn’t enough because the Kings aren't a better team after the trade.`\
+https://nytimes.com/athletic/6907177/2025/12/20/la-kings-phillip-danault-trade-season/
+
 **Packers' Jordan Love ruled out with concussion after helmet-to-helmet hit**\
 `The Packers quarterback left the game in the second quarter after a roughing-the-passer penalty.`\
 https://nytimes.com/athletic/6907499/2025/12/20/jordan-love-out-packers-bears-concussion/
