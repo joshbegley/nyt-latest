@@ -1,3 +1,7 @@
+**Steakhouse Woes**\
+`We examine how rising beef prices have stressed restaurant owners this holiday season.`\
+https://nytimes.com/2025/12/21/briefing/steakhouse-woes.html
+
 **Mandel's Final Thoughts: Is 'The U' back? Alabama is chasing and G5 meets reality**\
 `Plus, Ole Miss doesn't miss Lane Kiffin, Texas A&M's historic season ends in a buzzkill and how the CFP will change next year. `\
 https://nytimes.com/athletic/6907605/2025/12/21/college-football-scores-results-playoff-first-round/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6908141/2025/12/21/ashes-australia-england-fans-ade
 **Bears shock the world, but not themselves, with OT win over the Packers**\
 `How did the Bears (11-4) win it? The same way they have all season. But their sixth fourth-quarter comeback win was absurd even for them.`\
 https://nytimes.com/athletic/6908018/2025/12/21/bears-packers-overtime-victory-nfc-north-playoff-race/
-
-**This Week in the NBA: Josh Hart caught in 4K, Chris Finch ejected in less than six minutes and more**\
-`Week 9 brought an NBA Cup title, a viral celebration moment, Jokić passing Kareem in assists and the fastest coach ejection of the season.`\
-https://nytimes.com/athletic/6907162/2025/12/21/nba-trending-chris-finch-josh-hart-jokic/
 
