@@ -1,3 +1,7 @@
+**Our 55-Year Age Gap Didn’t Interfere With Our Bond**\
+`She was a great-grandmother, and I was a millennial. We could have talked forever.`\
+https://nytimes.com/2025/12/21/opinion/friendship-old-age.html
+
 **Yankees re-sign right-hander Paul Blackburn to one-year contract: Source**\
 `Blackburn found something out of the bullpen to enhance his value in the final month of the season, and can also serve as rotation depth.`\
 https://nytimes.com/athletic/6907818/2025/12/21/yankees-re-sign-paul-blackburn/
