@@ -1,3 +1,7 @@
+**Liverpool fear Isak suffered significant leg injury against Tottenham**\
+`Isak was injured in the act of scoring the opening goal in Liverpool's 2-1 win at Spurs on Saturday.`\
+https://nytimes.com/athletic/6908458/2025/12/21/alexander-isak-injury-liverpool-tottenham/
+
 **Barcelona fear Christensen may miss around four months with partial ACL tear**\
 `The club confirmed that the 29-year-old sustained the injury as a result of an "unfortunate twist" during a training session on Saturday.`\
 https://nytimes.com/athletic/6908497/2025/12/21/barcelona-christensen-injury-acl-news/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/12/21/us/trump-news
 **Why Is Shopping an Abyss of Blah?**\
 `Shopping should be about lust. Instead, it’s become a slog.`\
 https://nytimes.com/2025/12/21/opinion/why-is-shopping-an-abyss-of-blah.html
-
-**How to Reduce Surging Health Care Costs**\
-`Readers suggest ways to bring medical costs under control for average Americans. Also: Australia sets an example for the U.S. on gun laws.`\
-https://nytimes.com/2025/12/21/opinion/heath-care-costs-crisis.html
 
