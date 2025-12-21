@@ -1,3 +1,7 @@
+**Blue Jackets get Zach Werenski injury update; plus, assistant GM leaves for Buffalo**\
+`Tests on Werenski's leg revealed no broken bones, and the defenseman's prognosis for return is day to day.`\
+https://nytimes.com/athletic/6908511/2025/12/21/blue-jackets-zach-werenski-injury-update/
+
 **Liverpool fear Isak suffered significant leg injury against Tottenham**\
 `Isak was injured in the act of scoring the opening goal in Liverpool's 2-1 win at Spurs on Saturday.`\
 https://nytimes.com/athletic/6908458/2025/12/21/alexander-isak-injury-liverpool-tottenham/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/21/world/asia/chinese-dissidents-protest-art.html
 **Trump Administration Live Updates: Deputy A.G. Says Mentions of Trump Won’t Be Stripped From Epstein Files**\
 ``\
 https://nytimes.com/live/2025/12/21/us/trump-news
-
-**Why Is Shopping an Abyss of Blah?**\
-`Shopping should be about lust. Instead, it’s become a slog.`\
-https://nytimes.com/2025/12/21/opinion/why-is-shopping-an-abyss-of-blah.html
 
