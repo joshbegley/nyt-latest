@@ -1,3 +1,7 @@
+**Sydney Shooting Suspects Met Muslim Leaders in Philippines, Officials Say**\
+`Intelligence authorities in the Philippines say the father and son apparently slipped out of Davao City during their monthlong stay, but details remain sketchy.`\
+https://nytimes.com/2025/12/21/world/asia/sydney-philippines-akram.html
+
 **Sydney Gunmen Met Muslim Religious Leaders on Philippine Trip, Officials Say**\
 `Intelligence authorities in the Philippines say the father and son apparently slipped out of Davao City during their monthlong stay, but details remain sketchy.`\
 https://nytimes.com/2025/12/21/world/asia/sydney-philippines-akram.html
