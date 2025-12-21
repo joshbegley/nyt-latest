@@ -1,3 +1,19 @@
+**Eagles-Commanders brawl in fourth quarter results in three ejections**\
+`Several players from both teams got involved in an altercation late in Philadelphia's NFC East-clinching victory.`\
+https://nytimes.com/athletic/6907376/2025/12/20/eagles-commanders-brawl-ejections/
+
+**The Kings have to do more than trading Phillip Danault to spark their season**\
+`Pulling Danault out of an underperforming roster isn’t enough because the Kings aren't a better team after the trade.`\
+https://nytimes.com/athletic/6907177/2025/12/20/la-kings-phillip-danault-trade-season/
+
+**Vikings' plane returns to airport after landing gear malfunctions**\
+`The team switched planes and left for Sunday's game against the New York Giants at 7:30 p.m. local time`\
+https://nytimes.com/athletic/6907432/2025/12/20/vikings-plane-issues-late-departure-giants/
+
+**329 Days of Trump, Trump, Trump**\
+`President Trump dominates our collective consciousness. The Times broke down how he has relentlessly pursued attention in the first 329 days of his second term.`\
+https://nytimes.com/interactive/2025/12/20/business/media/trump-media-year-in-review-2025.html
+
 **Eagles pull away from Commanders in second half to win NFC East again: Takeaways**\
 `Despite trailing a struggling Washington team at halftime, the Eagles now know they will host at least one playoff game.`\
 https://nytimes.com/athletic/6906856/2025/12/20/eagles-commanders-score-takeaways-week-16/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6907092/2025/12/20/michael-irvin-kiss-mario-cristob
 **Wild get 5 players back, extend home point streak to franchise-record 14 games: Takeaways**\
 `With five of its seven injured players ready to return, Minnesota didn't miss a beat against Edmonton with a hard-fought 5-2 win.`\
 https://nytimes.com/athletic/6906884/2025/12/20/wild-oilers-injuries-point-streak-takeaways/
-
-**Panarin, Zibanejad step up to lead Rangers comeback, but Miller injury concerns loom**\
-`The burden on New York's top players could be even heavier moving forward if captain J.T. Miller misses time.`\
-https://nytimes.com/athletic/6907236/2025/12/20/rangers-panarin-zibanejad-comeback-jt-miller-injuries/
-
-**Rosenthal: What I'm hearing about the Blue Jays' interest in Bregman; plus more MLB offseason notes**\
-`Bregman also is drawing attention from his previous club, the Red Sox, as well as the Cubs, Diamondbacks and others.`\
-https://nytimes.com/athletic/6907283/2025/12/20/what-im-hearing-about-the-blue-jays-interest-in-bregman-plus-more-mlb-offseason-notes/
-
-**Nearly a Third of San Francisco Loses Electricity**\
-`At least 125,000 customers out of 414,000 lost power on Saturday.`\
-https://nytimes.com/2025/12/20/us/san-francisco-electricity-out.html
-
-**With Chambliss in CFP, Ferris State claims fourth D-II national title in five seasons**\
-`Ferris State QB Wyatt Bowser had five touchdowns, including three on the ground, to lead the Bulldogs to their 30th consecutive win.`\
-https://nytimes.com/athletic/6907303/2025/12/20/ferris-state-dii-football-championship-chambliss/
 

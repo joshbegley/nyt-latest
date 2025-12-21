@@ -1,3 +1,19 @@
+**Eagles-Commanders brawl in fourth quarter results in three ejections**\
+`Several players from both teams got involved in an altercation late in Philadelphia's NFC East-clinching victory.`\
+https://nytimes.com/athletic/6907376/2025/12/20/eagles-commanders-brawl-ejections/
+
+**The Kings have to do more than trading Phillip Danault to spark their season**\
+`Pulling Danault out of an underperforming roster isn’t enough because the Kings aren't a better team after the trade.`\
+https://nytimes.com/athletic/6907177/2025/12/20/la-kings-phillip-danault-trade-season/
+
+**Vikings' plane returns to airport after landing gear malfunctions**\
+`The team switched planes and left for Sunday's game against the New York Giants at 7:30 p.m. local time`\
+https://nytimes.com/athletic/6907432/2025/12/20/vikings-plane-issues-late-departure-giants/
+
+**329 Days of Trump, Trump, Trump**\
+`President Trump dominates our collective consciousness. The Times broke down how he has relentlessly pursued attention in the first 329 days of his second term.`\
+https://nytimes.com/interactive/2025/12/20/business/media/trump-media-year-in-review-2025.html
+
 **Cowboys eliminated from playoff contention after Eagles beat Commanders**\
 `The 6-7-1 Cowboys will miss the playoffs for the second consecutive year and fourth time in the last seven seasons.`\
 https://nytimes.com/athletic/6900851/2025/12/20/cowboys-eliminated-nfl-playoff-picture/

@@ -1,4 +1,4 @@
-**Eagles-Commanders brawl in fourth quarter results in three ejections**\
+**Eagles-Commanders brawl in fourth quarter results in 3 ejections**\
 `Several players from both teams got involved in an altercation late in Philadelphia's NFC East-clinching victory.`\
 https://nytimes.com/athletic/6907376/2025/12/20/eagles-commanders-brawl-ejections/
 
