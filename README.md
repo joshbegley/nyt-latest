@@ -1,3 +1,11 @@
+**Mamdani Inauguration to Usher in ‘New Era’ With Broadway Block Party**\
+`Zohran Mamdani will be sworn in as New York City’s new mayor on Jan. 1, alongside a party spanning seven blocks that will accommodate 40,000 spectators, his transition team said.`\
+https://nytimes.com/2025/12/21/nyregion/nyc-zohran-mamdani-inauguration-block-party.html
+
+**Behind the Curtain of Luxury Room Service at the Plaza Hotel**\
+`This is the busiest season for Syed Rahmani, who has been tending to well-heeled guests for 27 years.`\
+https://nytimes.com/2025/12/21/dining/plaza-hotel-on-the-job.html
+
 **In Pursuit of a Political Utopia**\
 `In “The Testament of Ann Lee,” coming out Christmas Day, Amanda Seyfried plays a woman in pursuit of another, better world.`\
 https://nytimes.com/2025/12/21/briefing/testament-of-ann-lee.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6560541/2025/12/21/college-football-playoff-bracket
 **Bowen Yang Sings His Swan Song on ‘S.N.L.’**\
 `Hosted by Ariana Grande and featuring Cher as its musical guest, the show had plenty of holiday tunes and a satirical greeting from President Trump.`\
 https://nytimes.com/2025/12/21/arts/television/bowen-yang-snl-recap-ariana-grande-cher.html
-
-**How to watch Bulls vs. Hawks: Time, TV, streaming**\
-`Find out how to watch the Chicago Bulls play the Atlanta Hawks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6908447/2025/12/21/bulls-vs-hawks-stream-how-to-watch-dec-21/
-
-**How to watch Texas Tech vs. Baylor women's basketball: Time, TV, streaming**\
-`Find out how to watch the Texas Tech Lady Raiders play the Baylor Bears, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6908444/2025/12/21/texas-tech-vs-baylor-stream-how-to-watch-dec-21/
 

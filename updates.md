@@ -1,3 +1,7 @@
+**In Pursuit of a Political Utopia**\
+`In “The Testament of Ann Lee,” coming out Christmas Day, Amanda Seyfried plays a woman in pursuit of another, better world.`\
+https://nytimes.com/2025/12/21/briefing/testament-of-ann-lee.html
+
 **‘Orwellian Climate of Fear’: How China Cracks Down on Critics in the U.S.**\
 `The Chinese government once focused on political dissidents and exiled activists. Now, federal officials say, it is targeting artists in the United States whose creative protests test its tolerance.`\
 https://nytimes.com/2025/12/21/world/asia/chinese-dissidents-protest-art.html
