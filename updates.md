@@ -1,3 +1,7 @@
+**Ole Miss has a new favorite son as Pete Golding leads Rebels to first Playoff win**\
+`The win was special for a fan base that has taken the first step in the healing process after losing Lane Kiffin to LSU.`\
+https://nytimes.com/athletic/6907548/2025/12/20/ole-miss-pete-golding-college-football-playoff/
+
 **Packers' sideline heaters malfunction during first half in Chicago**\
 `Temperatures hovered around freezing with first place in the NFC North on the line.`\
 https://nytimes.com/athletic/6907546/2025/12/20/packers-bench-heaters-malfunction-bears/
