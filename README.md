@@ -1,3 +1,7 @@
+**How New York Keeps Its Unfiltered Water Safe: Spending Millions on Land**\
+`The city has bought more than 125,000 acres of land to provide a buffer around water reservoirs. It’s much cheaper than spending billions on filtration systems, officials say.`\
+https://nytimes.com/2025/12/21/nyregion/nyc-unfiltered-water-reservoirs.html
+
 **Chiefs-Titans takeaways: Minshew injured, Chiefs guarantee losing season**\
 `Chiefs backup quarterback Gardner Minshew exited Sunday's game with a knee injury`\
 https://nytimes.com/athletic/6909210/2025/12/21/chiefs-titans-score-result-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/21/world/siblings-shape-lives-venezuela-tanker-bondi
 **In a First, a Wheelchair User Joins a Short Flight to Space**\
 `A paraplegic engineer was part of a crew that made a suborbital journey on a spacecraft operated by Jeff Bezos’ private company, Blue Origin.`\
 https://nytimes.com/2025/12/21/us/spacex-blue-origin-wheelchair-user.html
-
-**Engineer Is First Paraplegic Person in Space**\
-`A paraplegic engineer from Germany became the first wheelchair user to rocket into space. The small craft that blasted her to the edge of space was operated by Jeff Bezos’ company Blue Origin.`\
-https://nytimes.com/video/science/space/100000010602625/engineer-is-first-paraplegic-person-in-space.html
 

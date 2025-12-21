@@ -1,3 +1,11 @@
+**Chiefs-Titans takeaways: Minshew injured, Chiefs guarantee losing season**\
+`Chiefs backup quarterback Gardner Minshew exited Sunday's game with a knee injury`\
+https://nytimes.com/athletic/6909210/2025/12/21/chiefs-titans-score-result-takeaways/
+
+**Jets-Saints takeaways: Tyler Shough leads Saints blowout over Jets**\
+`With his fourth win, Shough passed Archie Manning for the most wins by a Saints rookie quarterback in franchise history.`\
+https://nytimes.com/athletic/6908792/2025/12/21/jets-saints-score-result-takeaways-nfl/
+
 **Vikings defense smothers Jaxson Dart, Giants, who are closing in on No. 1 draft pick**\
 `The Vikings' win Sunday came at a cost, as young QB J.J. McCarthy exited early with a right-hand injury. `\
 https://nytimes.com/athletic/6908882/2025/12/21/vikings-giants-score-result-takeaways-nfl/
