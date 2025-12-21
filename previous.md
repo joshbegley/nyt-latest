@@ -18,7 +18,7 @@ https://nytimes.com/athletic/6906941/2025/12/21/ncaa-womens-volleyball-final-ken
 `An apparent knee injury to Evans in Saturday night's win made the acquisition of Danault less than 24 hours earlier more important.`\
 https://nytimes.com/athletic/6907994/2025/12/21/canadiens-phillip-danault-jake-evans/
 
-**Penguins' losing streak hits 8 as Sidney Crosby is held without a point again: 10 observations**\
+**Penguins' losing streak hits 8 as Sidney Crosby is again scoreless: 10 observations**\
 `The Penguins were blanked for a second straight game for the first time in 16 years as they fell in Montreal, 4-0, on Saturday. `\
 https://nytimes.com/athletic/6907651/2025/12/21/penguins-losing-streak-hits-8-as-sidney-crosby-is-held-without-a-point-again-10-observations/
 

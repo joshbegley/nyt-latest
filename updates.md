@@ -1,3 +1,7 @@
+**Penguins' losing streak hits 8 as Sidney Crosby is again scoreless: 10 observations**\
+`The Penguins were blanked for a second straight game for the first time in 16 years as they fell in Montreal, 4-0, on Saturday. `\
+https://nytimes.com/athletic/6907651/2025/12/21/penguins-losing-streak-hits-8-as-sidney-crosby-is-held-without-a-point-again-10-observations/
+
 **How to watch the NCAA women's volleyball finals: Texas A&M vs. Kentucky for the title**\
 `The first all-SEC championship match in Division I women's volleyball history pits red-hot Texas A&M against No. 1 seed Kentucky.`\
 https://nytimes.com/athletic/6905163/2025/12/21/womens-volleyball-national-championship-texas-am-kentucky-tv/
