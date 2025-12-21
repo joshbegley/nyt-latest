@@ -1,11 +1,3 @@
-**Vikings' plane returns to airport after landing gear malfunctions**\
-`The team switched planes and left for Sunday's game against the New York Giants at 7:30 p.m. local time`\
-https://nytimes.com/athletic/6907432/2025/12/20/vikings-plane-issues-late-departure-giants/
-
-**329 Days of Trump, Trump, Trump**\
-`President Trump dominates our collective consciousness. The Times broke down how he has relentlessly pursued attention in the first 329 days of his second term.`\
-https://nytimes.com/interactive/2025/12/20/business/media/trump-media-year-in-review-2025.html
-
 **Eagles pull away from Commanders in second half to win NFC East again: Takeaways**\
 `Despite trailing a struggling Washington team at halftime, the Eagles now know they will host at least one playoff game.`\
 https://nytimes.com/athletic/6906856/2025/12/20/eagles-commanders-score-takeaways-week-16/
@@ -37,4 +29,12 @@ https://nytimes.com/athletic/6907236/2025/12/20/rangers-panarin-zibanejad-comeba
 **Rosenthal: What I'm hearing about the Blue Jays' interest in Bregman; plus more MLB offseason notes**\
 `Bregman also is drawing attention from his previous club, the Red Sox, as well as the Cubs, Diamondbacks and others.`\
 https://nytimes.com/athletic/6907283/2025/12/20/what-im-hearing-about-the-blue-jays-interest-in-bregman-plus-more-mlb-offseason-notes/
+
+**Nearly a Third of San Francisco Loses Electricity**\
+`At least 125,000 customers out of 414,000 lost power on Saturday.`\
+https://nytimes.com/2025/12/20/us/san-francisco-electricity-out.html
+
+**With Chambliss in CFP, Ferris State claims fourth D-II national title in five seasons**\
+`Ferris State QB Wyatt Bowser had five touchdowns, including three on the ground, to lead the Bulldogs to their 30th consecutive win.`\
+https://nytimes.com/athletic/6907303/2025/12/20/ferris-state-dii-football-championship-chambliss/
 
