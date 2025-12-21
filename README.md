@@ -1,4 +1,4 @@
-**Miami's first Playoff win was a long time coming — here's all it took to get there**\
+**How Miami pulled off its biggest win in 24 years — and why it was a moment of validation**\
 `Miami looked like a Playoff long shot just weeks ago, but now it's a quarterfinalist.`\
 https://nytimes.com/athletic/6907237/2025/12/20/miami-texas-am-college-football-playoff-first-win/
 
