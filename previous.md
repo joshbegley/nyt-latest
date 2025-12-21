@@ -1,3 +1,7 @@
+**‘Orwellian Climate of Fear’: How China Cracks Down on Critics in the U.S.**\
+`The Chinese government once focused on political dissidents and exiled activists. Now, federal officials say, it is targeting artists in the United States whose creative protests test its tolerance.`\
+https://nytimes.com/2025/12/21/world/asia/chinese-dissidents-protest-art.html
+
 **Trump Administration Live Updates: U.S. Boards Tanker Carrying Venezuelan Oil, Officials Say**\
 ``\
 https://nytimes.com/live/2025/12/21/us/trump-news
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6908444/2025/12/21/texas-tech-vs-baylor-stream-how-
 **How to watch La Salle vs. Michigan men's basketball: Time, TV, streaming**\
 `Find out how to watch the La Salle Explorers play the Michigan Wolverines, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6908442/2025/12/21/la-salle-vs-michigan-stream-how-to-watch-dec-21/
-
-**How to watch Gardner-Webb vs. Tennessee men's basketball: Time, TV, streaming**\
-`Find out how to watch the Gardner-Webb Runnin' Bulldogs play the Tennessee Volunteers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6908436/2025/12/21/gardner-webb-vs-tennessee-stream-how-to-watch-dec-21/
 
