@@ -1,5 +1,5 @@
-**Commanders QB Josh Johnson enters game for injured Marcus Mariota**\
-`Washington’s quarterback situation got even more troubling against the Philadelphia Eagles.`\
+**Commanders QB Josh Johnson enters Eagles game for injured starter Marcus Mariota**\
+`Mariota was cleared of a concussion but was declared questionable to return because of a hand injury.`\
 https://nytimes.com/athletic/6907220/2025/12/20/josh-johnson-qb-commanders-marcus-mariota-injury/
 
 **Flyers' Denver Barkey impressed in his NHL debut. Could he stick around?**\
