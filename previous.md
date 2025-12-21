@@ -1,3 +1,7 @@
+**Here Are Six Holiday Feasts for You**\
+`Pernil, prime rib roast and lemon butter salmon with dill anchor generous (but completely doable) holiday dinner menus.`\
+https://nytimes.com/2025/12/21/dining/here-are-six-holiday-feasts-for-you.html
+
 **United's Mainoo misses Aston Villa trip due to calf injury**\
 `With Casemiro suspended, Mainoo could have been in contention for a first Premier League start of the season.`\
 https://nytimes.com/athletic/6908304/2025/12/21/manchester-united-kobbie-mainoo-aston-villa-premier-league/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/21/briefing/testament-of-ann-lee.html
 **College football national title odds: OSU still favorite ahead of IU with quarters set**\
 `The top of the national title odds board remained the same after the four first-round games. Ohio State is still the favorite.`\
 https://nytimes.com/athletic/6907887/2025/12/21/college-football-national-title-odds-ohio-state-indiana/
-
-**‘Orwellian Climate of Fear’: How China Cracks Down on Critics in the U.S.**\
-`The Chinese government once focused on political dissidents and exiled activists. Now, federal officials say, it is targeting artists in the United States whose creative protests test its tolerance.`\
-https://nytimes.com/2025/12/21/world/asia/chinese-dissidents-protest-art.html
 

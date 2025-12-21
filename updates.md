@@ -1,3 +1,7 @@
+**Here Are Six Holiday Feasts for You**\
+`Pernil, prime rib roast and lemon butter salmon with dill anchor generous (but completely doable) holiday dinner menus.`\
+https://nytimes.com/2025/12/21/dining/here-are-six-holiday-feasts-for-you.html
+
 **United's Mainoo misses Aston Villa trip due to calf injury**\
 `With Casemiro suspended, Mainoo could have been in contention for a first Premier League start of the season.`\
 https://nytimes.com/athletic/6908304/2025/12/21/manchester-united-kobbie-mainoo-aston-villa-premier-league/
