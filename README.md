@@ -1,3 +1,15 @@
+**As dark cloud hovers over Maple Leafs, will it completely derail their season?**\
+`After a deflating 5-3 loss to Nashville, it seemed more difficult than ever for Toronto to keep the darkness at bay.`\
+https://nytimes.com/athletic/6907765/2025/12/21/maple-leafs-predators-nhl-atlantic-division/
+
+**Wolves' dramatic 24 hours in which everything — but also stayed the same**\
+`Jeff Shi is gone as Wolves chairman, replaced by Nathan Shi (no relation). But another defeat reminded the latter of the task ahead`\
+https://nytimes.com/athletic/6906818/2025/12/21/wolves-jeff-shi-nathan-shi-fosun/
+
+**Antoine Semenyo fits perfectly into Bournemouth's system, but could he flourish elsewhere?**\
+`The much-coveted forward scored his eighth Premier League goal of the season against Burnley and showcased his range of attacking qualities`\
+https://nytimes.com/athletic/6907248/2025/12/21/antoine-semenyo-bournemouth-big-six-analysis/
+
 **This Museum Housed 120,000 Works of Art. Now It’s Empty.**\
 `The Pompidou Center is the place to see contemporary art in Paris. Or it was, until curators put its astonishing collection into storage.`\
 https://nytimes.com/2025/12/21/pompidou-empty-renovation-art.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/12/21/world/asia/india-muslims-emigration-australia.htm
 **No Corrections: Dec. 21, 2025**\
 `No corrections appeared in print on Sunday, Dec. 21, 2025.`\
 https://nytimes.com/2025/12/21/pageoneplus/no-corrections-dec-21-2025.html
-
-**College Football Playoff 2025 projections: Indiana favored over Alabama, plus more odds**\
-`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
-https://nytimes.com/athletic/6560541/2025/12/20/college-football-playoff-bracket-projections-odds/
-
-**Cheer up, the CFP quarterfinals could be great: First look at Indiana-Alabama and more**\
-`An early guide to Indiana-Alabama, Oregon-Texas Tech, Ohio State-Miami and Georgia-Ole Miss in the College Football Playoff's second round.`\
-https://nytimes.com/athletic/6906863/2025/12/20/college-football-playoff-quarterfinals-bracket-matchups/
-
-**Oregon heading to Orange Bowl after coasting past JMU: Takeaways**\
-`No. 5 Oregon vs. No. 4 Texas Tech should be a heavyweight bout in the quarterfinals.`\
-https://nytimes.com/athletic/6907178/2025/12/20/oregon-james-madison-cfp-score-result/
 
