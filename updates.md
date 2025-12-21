@@ -1,3 +1,19 @@
+**Jimmy Kimmel Will Deliver Britain’s ‘Alternative Christmas Message’**\
+`Mr. Kimmel will speak out against fascism and about the importance of free speech in the holiday address, according to a Channel 4 spokesman.`\
+https://nytimes.com/2025/12/21/world/europe/jimmy-kimmel-holiday-message-uk-channel-4.html
+
+**Steelers' DK Metcalf swings at fan during sideline altercation**\
+`Broadcast cameras captured the receiver appearing to throw a punch at a Detroit Lions fan in the stands.`\
+https://nytimes.com/athletic/6909531/2025/12/21/steelers-dk-metcalf-strikes-fan-sideline-confrontation/
+
+**A New York Times Origin Story**\
+`A graphic designer recently discovered documents belonging to a distant relative, George Jones, the newspaper’s founding publisher.`\
+https://nytimes.com/2025/12/21/insider/george-jones.html
+
+**Don’t Blow It!**\
+`Suzanne Oliver makes her New York Times Crossword debut.`\
+https://nytimes.com/2025/12/21/crosswords/daily-puzzle-2025-12-22.html
+
 **How to watch New Mexico vs. Minnesota: Rate Bowl Start Time, TV, streaming**\
 `Find out how to watch the New Mexico Lobos play the Minnesota Golden Gophers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6909538/2025/12/21/new-mexico-vs-minnesota-stream-how-to-watch-dec-26/

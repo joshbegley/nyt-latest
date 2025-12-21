@@ -1,3 +1,19 @@
+**Jimmy Kimmel Will Deliver Britain’s ‘Alternative Christmas Message’**\
+`Mr. Kimmel will speak out against fascism and about the importance of free speech in the holiday address, according to a Channel 4 spokesman.`\
+https://nytimes.com/2025/12/21/world/europe/jimmy-kimmel-holiday-message-uk-channel-4.html
+
+**Steelers' DK Metcalf swings at fan during sideline altercation**\
+`Broadcast cameras captured the receiver appearing to throw a punch at a Detroit Lions fan in the stands.`\
+https://nytimes.com/athletic/6909531/2025/12/21/steelers-dk-metcalf-strikes-fan-sideline-confrontation/
+
+**A New York Times Origin Story**\
+`A graphic designer recently discovered documents belonging to a distant relative, George Jones, the newspaper’s founding publisher.`\
+https://nytimes.com/2025/12/21/insider/george-jones.html
+
+**Don’t Blow It!**\
+`Suzanne Oliver makes her New York Times Crossword debut.`\
+https://nytimes.com/2025/12/21/crosswords/daily-puzzle-2025-12-22.html
+
 **How to watch New Mexico vs. Minnesota: Rate Bowl Start Time, TV, streaming**\
 `Find out how to watch the New Mexico Lobos play the Minnesota Golden Gophers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6909538/2025/12/21/new-mexico-vs-minnesota-stream-how-to-watch-dec-26/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/12/21/nyregion/suspect-bow-arrow-killing-arrested-nj.ht
 **Sue Bird, Dirk Nowitzki headline 2026 FIBA Hall of Fame class**\
 `FIBA announced its next group of Hall of Fame inductees to celebrate World Basketball Day.`\
 https://nytimes.com/athletic/6909201/2025/12/21/sue-bird-dirk-nowitzki-2026-hall-of-fame/
-
-**James Cook's strong day vs. Browns helps Bills inch closer to playoff berth: Takeaways**\
-`Cook had 117 rushing yards and two touchdowns to help Buffalo secure a victory over Cleveland. `\
-https://nytimes.com/athletic/6908958/2025/12/21/bills-browns-score-result-takeaways-nfl/
-
-**How New York Keeps Its Unfiltered Water Safe: Spending Millions on Land**\
-`The city has bought more than 125,000 acres of land to provide a buffer around water reservoirs. It’s much cheaper than spending billions on filtration systems, officials say.`\
-https://nytimes.com/2025/12/21/nyregion/nyc-unfiltered-water-reservoirs.html
-
-**Chiefs' Gardner Minshew injured vs. Titans; K.C. guaranteed losing season: Takeaways**\
-`Chiefs quarterback Gardner Minshew, subbing for Patrick Mahomes, exited Sunday's game in the second quarter with a knee injury.`\
-https://nytimes.com/athletic/6909210/2025/12/21/chiefs-titans-score-result-takeaways/
-
-**Vikings defense smothers Jaxson Dart, Giants, who are closing in on No. 1 draft pick**\
-`The Vikings' win Sunday came at a cost, as young QB J.J. McCarthy exited early with a right-hand injury. `\
-https://nytimes.com/athletic/6908882/2025/12/21/vikings-giants-score-result-takeaways-nfl/
 
