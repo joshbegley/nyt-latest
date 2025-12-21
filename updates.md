@@ -1,3 +1,7 @@
+**United's Mainoo misses Aston Villa trip due to calf injury**\
+`With Casemiro suspended, Mainoo could have been in contention for a first Premier League start of the season.`\
+https://nytimes.com/athletic/6908304/2025/12/21/manchester-united-kobbie-mainoo-aston-villa-premier-league/
+
 **Blue Jackets get Zach Werenski injury update; plus, assistant GM leaves for Buffalo**\
 `Tests on Werenski's leg revealed no broken bones, and the defenseman's prognosis for return is day to day.`\
 https://nytimes.com/athletic/6908511/2025/12/21/blue-jackets-zach-werenski-injury-update/

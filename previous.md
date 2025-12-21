@@ -1,3 +1,7 @@
+**United's Mainoo misses Aston Villa trip due to calf injury**\
+`With Casemiro suspended, Mainoo could have been in contention for a first Premier League start of the season.`\
+https://nytimes.com/athletic/6908304/2025/12/21/manchester-united-kobbie-mainoo-aston-villa-premier-league/
+
 **Blue Jackets get Zach Werenski injury update; plus, assistant GM leaves for Buffalo**\
 `Tests on Werenski's leg revealed no broken bones, and the defenseman's prognosis for return is day to day.`\
 https://nytimes.com/athletic/6908511/2025/12/21/blue-jackets-zach-werenski-injury-update/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6907887/2025/12/21/college-football-national-title-
 **‘Orwellian Climate of Fear’: How China Cracks Down on Critics in the U.S.**\
 `The Chinese government once focused on political dissidents and exiled activists. Now, federal officials say, it is targeting artists in the United States whose creative protests test its tolerance.`\
 https://nytimes.com/2025/12/21/world/asia/chinese-dissidents-protest-art.html
-
-**Trump Administration Live Updates: Deputy A.G. Says Mentions of Trump Won’t Be Stripped From Epstein Files**\
-``\
-https://nytimes.com/live/2025/12/21/us/trump-news
 
