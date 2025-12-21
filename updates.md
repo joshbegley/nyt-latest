@@ -1,3 +1,7 @@
+**Montana State stomps Montana to reach FCS championship game**\
+`The Bobcats return to the finals for the second consecutive season and will face the Illinois State-Villanova winner on Jan. 5.`\
+https://nytimes.com/athletic/6907297/2025/12/20/montana-state-bobcats-grizzlies-fcs-semifinals/
+
 **Eagles-Commanders brawl in fourth quarter results in 3 ejections**\
 `Several players from both teams got involved in an altercation late in Philadelphia's NFC East-clinching victory.`\
 https://nytimes.com/athletic/6907376/2025/12/20/eagles-commanders-brawl-ejections/
