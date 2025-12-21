@@ -1,3 +1,11 @@
+**Blue Jackets get Zach Werenski injury update; plus, assistant GM leaves for Buffalo**\
+`Tests on Werenski's leg revealed no broken bones, and the defenseman's prognosis for return is day to day.`\
+https://nytimes.com/athletic/6908511/2025/12/21/blue-jackets-zach-werenski-injury-update/
+
+**Liverpool fear Isak suffered significant leg injury against Tottenham**\
+`Isak was injured in the act of scoring the opening goal in Liverpool's 2-1 win at Spurs on Saturday.`\
+https://nytimes.com/athletic/6908458/2025/12/21/alexander-isak-injury-liverpool-tottenham/
+
 **Barcelona fear Christensen may miss around four months with partial ACL tear**\
 `The club confirmed that the 29-year-old sustained the injury as a result of an "unfortunate twist" during a training session on Saturday.`\
 https://nytimes.com/athletic/6908497/2025/12/21/barcelona-christensen-injury-acl-news/
