@@ -1,3 +1,7 @@
+**Packers' sideline heaters malfunction during first half in Chicago**\
+`Temperatures hovered around freezing with first place in the NFC North on the line.`\
+https://nytimes.com/athletic/6907546/2025/12/20/packers-bench-heaters-malfunction-bears/
+
 **Sabres stretch winning streak to 5 after beating Islanders: 6 thoughts**\
 `With a 3-2 win over the Islanders, the Sabres are now five points back of the second wild-card spot in a crowded Eastern playoff picture.`\
 https://nytimes.com/athletic/6907539/2025/12/20/sabres-islanders-winning-streak-playoffs/
