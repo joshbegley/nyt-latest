@@ -1,3 +1,19 @@
+**Rosenthal: What I'm hearing about the Blue Jays' interest in Bregman; plus more MLB offseason notes**\
+`Bregman also is drawing attention from his previous club, the Red Sox, as well as the Cubs, Diamondbacks and others.`\
+https://nytimes.com/athletic/6907283/2025/12/20/what-im-hearing-about-the-blue-jays-interest-in-bregman-plus-more-mlb-offseason-notes/
+
+**Nearly a Third of San Francisco Loses Electricity**\
+`At least 124,000 customers out of 414,000 lost power on Saturday.`\
+https://nytimes.com/2025/12/20/us/san-francisco-electricity-out.html
+
+**Ferris State claims fourth D-II national title in five seasons**\
+`Ferris State QB Wyatt Bowser had five touchdowns, including three on the ground, to lead the Bulldogs to their 30th consecutive win.`\
+https://nytimes.com/athletic/6907303/2025/12/20/ferris-state-dii-football-championship-chambliss/
+
+**How should Texas A&M’s season be viewed? Magical season ends with thud vs. Miami**\
+`“We came up 5 yards short and that’s something we’re going to have to live with throughout the offseason," Texas A&M coach Mike Elko said.`\
+https://nytimes.com/athletic/6907141/2025/12/20/texas-am-miami-college-football-playoff-season-ending/
+
 **Ferris State claims fourth D-II national title in five seasons**\
 `While Trinidad Chambliss was leading Ole Miss to its first College Football Playoff victory, his former school won another national championship and continued a dynasty.`\
 https://nytimes.com/athletic/6907303/2025/12/20/ferris-state-dii-football-championship-chambliss/

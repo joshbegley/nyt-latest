@@ -1,5 +1,13 @@
+**Rosenthal: What I'm hearing about the Blue Jays' interest in Bregman; plus more MLB offseason notes**\
+`Bregman also is drawing attention from his previous club, the Red Sox, as well as the Cubs, Diamondbacks and others.`\
+https://nytimes.com/athletic/6907283/2025/12/20/what-im-hearing-about-the-blue-jays-interest-in-bregman-plus-more-mlb-offseason-notes/
+
+**Nearly a Third of San Francisco Loses Electricity**\
+`At least 124,000 customers out of 414,000 lost power on Saturday.`\
+https://nytimes.com/2025/12/20/us/san-francisco-electricity-out.html
+
 **Ferris State claims fourth D-II national title in five seasons**\
-`While Trinidad Chambliss was leading Ole Miss to its first College Football Playoff victory, his former school won another national championship and continued a dynasty.`\
+`Ferris State QB Wyatt Bowser had five touchdowns, including three on the ground, to lead the Bulldogs to their 30th consecutive win.`\
 https://nytimes.com/athletic/6907303/2025/12/20/ferris-state-dii-football-championship-chambliss/
 
 **Turning Point’s Annual Gathering Turns Into a Gripefest**\
@@ -26,15 +34,7 @@ https://nytimes.com/athletic/6906946/2025/12/20/uw-river-falls-loses-track-of-do
 `Ole Miss won its first-ever College Football Playoff game with relative ease, topping Tulane 41-10. `\
 https://nytimes.com/athletic/6907032/2025/12/20/ole-miss-tulane-college-football-playoff-takeaways-score/
 
-**Evaluating Texas A&M's season: Missed opportunity vs. Miami will haunt Aggies**\
+**How should Texas A&M’s season be viewed? Magical season ends with thud vs. Miami**\
 `“We came up 5 yards short and that’s something we’re going to have to live with throughout the offseason," Texas A&M coach Mike Elko said.`\
 https://nytimes.com/athletic/6907141/2025/12/20/texas-am-miami-college-football-playoff-season-ending/
-
-**Max Domi scratched as Maple Leafs make lineup changes**\
-`Domi is in the middle of a difficult season as Toronto sits just one point out of last place in the Eastern Conference.`\
-https://nytimes.com/athletic/6907202/2025/12/20/maple-leafs-max-domi-scratched-lineup/
-
-**Epstein Files Photos Disappear From Government Website, Including One of Trump**\
-`A total of 16 photos were taken down at some point on Saturday from the website that the Justice Department created. One featured an open drawer containing other photos, including at least one of President Trump.`\
-https://nytimes.com/2025/12/20/us/politics/trump-epstein-files-government-website.html
 
