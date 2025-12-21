@@ -10,7 +10,7 @@ https://nytimes.com/2025/12/21/world/asia/australia-mourns-bondi-beach-shooting-
 `“Avatar: Fire and Ash” took in $88 million over the weekend, a sizable No. 1 total that nonetheless fell 34 percent behind the opening for its franchise predecessor.`\
 https://nytimes.com/2025/12/21/business/avatar-fire-and-ash-opening-weekend.html
 
-**Aston Villa 2 Man Utd 1: Can Emery dream of the title? What impact did Bruno injury have?**\
+**Aston Villa 2 Man Utd 1: Can Emery dream of the title? What impact did Fernandes injury have?**\
 `Dissecting the major talking points from the Premier League clash at Villa Park`\
 https://nytimes.com/athletic/6896157/2025/12/21/aston-villa-man-utd-result-analysis/
 

@@ -1,3 +1,7 @@
+**Aston Villa 2 Man Utd 1: Can Emery dream of the title? What impact did Fernandes injury have?**\
+`Dissecting the major talking points from the Premier League clash at Villa Park`\
+https://nytimes.com/athletic/6896157/2025/12/21/aston-villa-man-utd-result-analysis/
+
 **Kevin Arkadie, ‘New York Undercover’ Co-Creator, Dies at 68**\
 `The screenwriter and producer created several television hits about law enforcement. He made one of the first police dramas to star two main characters of color.`\
 https://nytimes.com/2025/12/21/arts/television/kevin-arkadie-dead.html
