@@ -1,3 +1,7 @@
+**Ferris State claims fourth D-II national title in five seasons**\
+`While Trinidad Chambliss was leading Ole Miss to its first College Football Playoff victory, his former school won another national championship and continued a dynasty.`\
+https://nytimes.com/athletic/6907303/2025/12/20/ferris-state-dii-football-championship-chambliss/
+
 **Turning Point’s Annual Gathering Turns Into a Gripefest**\
 `At AmericaFest, conservative leaders insulted one another, revealing serious rifts over conspiracy theories, antisemitism and who belongs in America.`\
 https://nytimes.com/2025/12/20/us/politics/turning-points-americafest-ben-shapiro.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6907202/2025/12/20/maple-leafs-max-domi-scratched-l
 **Epstein Files Photos Disappear From Government Website, Including One of Trump**\
 `A total of 16 photos were taken down at some point on Saturday from the website that the Justice Department created. One featured an open drawer containing other photos, including at least one of President Trump.`\
 https://nytimes.com/2025/12/20/us/politics/trump-epstein-files-government-website.html
-
-**First Batch of Epstein Files Provides Few Revelations**\
-`The Justice Department, under pressure from Congress to comply with a law signed by President Trump, released more than 13,000 files on Friday arising from investigations into Jeffrey Epstein.`\
-https://nytimes.com/video/us/100000010601541/epstein-doj-files-released.html
 
