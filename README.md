@@ -1,3 +1,15 @@
+**In a First, a Wheelchair User Joins a Short Flight to Space**\
+`A paraplegic engineer was part of a crew that made a suborbital journey on a spacecraft operated by Jeff Bezos’ private company, Blue Origin.`\
+https://nytimes.com/2025/12/21/us/spacex-blue-origin-wheelchair-user.html
+
+**Engineer Is First Paraplegic Person in Space**\
+`A paraplegic engineer from Germany became the first wheelchair user to rocket into space. The small craft that blasted her to the edge of space was operated by Jeff Bezos’ company Blue Origin.`\
+https://nytimes.com/video/science/space/100000010602625/engineer-is-first-paraplegic-person-in-space.html
+
+**Bengals-Dolphins takeaways: Burrow shines with 4 TDs in 45-21 win**\
+`Cincinnati spoiled Quinn Ewers' debut in Miami with a dominant second half.`\
+https://nytimes.com/athletic/6908827/2025/12/21/bengals-dolphins-score-result-takeaways-nfl/
+
 **The Briefing: Morocco 2 Comoros 0 - El Kaabi's wonder strike and Diaz delivers in AFCON opener**\
 `Our writers analyse the key talking points from the opening game of the 2025 Africa Cup of Nations`\
 https://nytimes.com/athletic/6896155/2025/12/21/morocco-comoros-afcon-opening-game/
@@ -19,24 +31,10 @@ https://nytimes.com/athletic/6909133/2025/12/21/rangers-jt-miller-injury-update/
 https://nytimes.com/athletic/6908925/2025/12/21/jimmy-butler-warriors-suns-dillion-brooks/
 
 **Vikings QB J.J. McCarthy ruled out of game vs. Giants with hand injury**\
-`The second-year quarterback was injured on a strip-sack just before halftime by Brian Burns. He was ruled out for the second half.`\
+`The second-year quarterback appeared to hit his hand on a defender's helmet before halftime. The Vikings went on to win behind Max Brosmer.`\
 https://nytimes.com/athletic/6909085/2025/12/21/jj-mccarthy-injury-vikings-giants/
 
 **How to watch Central Michigan vs. Northwestern: GameAbove Sports Bowl Start Time, TV, streaming**\
 `Find out how to watch the Central Michigan Chippewas play the Northwestern Wildcats, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6909109/2025/12/21/central-michigan-vs-northwestern-stream-how-to-watch-dec-26/
-
-**Toilet Rats: Rare, but There**\
-`Heavy rains have prompted public health officials in Washington to warn residents about toilet rats, a rare plumbing nightmare that drives frantic calls to pest control experts.`\
-https://nytimes.com/2025/12/21/us/washington-flooding-toilet-rats.html
-
-**Submit a question for Stewart Mandel's College Football Mailbag**\
-`<p>Round 1 is in the books. The quarterfinals will be here before you know it.</p>
-<p>Leave your questions here. Please include your city.</p>
-`\
-https://nytimes.com/athletic/6909058/2025/12/21/submit-a-question-for-stewart-mandels-college-football-mailbag-328/
-
-**How to watch Rockets vs. Kings: Time, TV, streaming**\
-`Find out how to watch the Houston Rockets play the Sacramento Kings, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6909066/2025/12/21/rockets-vs-kings-stream-how-to-watch-dec-21/
 

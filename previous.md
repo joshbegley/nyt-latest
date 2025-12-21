@@ -1,3 +1,7 @@
+**The Briefing: Morocco 2 Comoros 0 - El Kaabi's wonder strike and Diaz delivers in AFCON opener**\
+`Our writers analyse the key talking points from the opening game of the 2025 Africa Cup of Nations`\
+https://nytimes.com/athletic/6896155/2025/12/21/morocco-comoros-afcon-opening-game/
+
 **Devils' Jack Hughes will return to lineup Sunday after 18-game absence**\
 `Timo Meier and Arseny Gritsyuk are also slated to return Sunday against Buffalo.`\
 https://nytimes.com/athletic/6909294/2025/12/21/new-jersey-devils-jack-hughes-return/
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/6909058/2025/12/21/submit-a-question-for-stewart-ma
 **How to watch Rockets vs. Kings: Time, TV, streaming**\
 `Find out how to watch the Houston Rockets play the Sacramento Kings, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6909066/2025/12/21/rockets-vs-kings-stream-how-to-watch-dec-21/
-
-**How to watch Golden Knights vs. Oilers: Time, TV, streaming**\
-`Find out how to watch the Vegas Golden Knights play the Edmonton Oilers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6909064/2025/12/21/golden-knights-vs-oilers-stream-how-to-watch-dec-21/
 

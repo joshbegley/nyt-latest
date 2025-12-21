@@ -1,3 +1,7 @@
+**The Briefing: Morocco 2 Comoros 0 - El Kaabi's wonder strike and Diaz delivers in AFCON opener**\
+`Our writers analyse the key talking points from the opening game of the 2025 Africa Cup of Nations`\
+https://nytimes.com/athletic/6896155/2025/12/21/morocco-comoros-afcon-opening-game/
+
 **Devils' Jack Hughes will return to lineup Sunday after 18-game absence**\
 `Timo Meier and Arseny Gritsyuk are also slated to return Sunday against Buffalo.`\
 https://nytimes.com/athletic/6909294/2025/12/21/new-jersey-devils-jack-hughes-return/
