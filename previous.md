@@ -1,3 +1,7 @@
+**Until Saturday: Blowouts happen**\
+`Until Saturday is The Athletic's free college football newsletter.`\
+https://nytimes.com/athletic/6908859/2025/12/21/college-football-playoff-blowouts-until-saturday/
+
 **Ed Cooley apologizes for throwing water bottle that hit child behind Georgetown bench**\
 `The Georgetown coach said "it was out of character for me to be so frustrated" in his comments after the Hoyas' 80-77 loss to Xavier.`\
 https://nytimes.com/athletic/6908700/2025/12/21/ed-cooley-water-bottle-apology/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6908766/2025/12/21/spurs-vs-wizards-stream-how-to-w
 **How to watch Raptors vs. Nets: Time, TV, streaming**\
 `Find out how to watch the Toronto Raptors play the Brooklyn Nets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6908764/2025/12/21/raptors-vs-nets-stream-how-to-watch-dec-21/
-
-**How to watch Heat vs. Knicks: Time, TV, streaming**\
-`Find out how to watch the Miami Heat play the New York Knicks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6908762/2025/12/21/heat-vs-knicks-stream-how-to-watch-dec-21/
 

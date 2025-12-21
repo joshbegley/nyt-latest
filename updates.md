@@ -1,3 +1,7 @@
+**Until Saturday: Blowouts happen**\
+`Until Saturday is The Athletic's free college football newsletter.`\
+https://nytimes.com/athletic/6908859/2025/12/21/college-football-playoff-blowouts-until-saturday/
+
 **Ed Cooley apologizes for throwing water bottle that hit child behind Georgetown bench**\
 `The Georgetown coach said "it was out of character for me to be so frustrated" in his comments after the Hoyas' 80-77 loss to Xavier.`\
 https://nytimes.com/athletic/6908700/2025/12/21/ed-cooley-water-bottle-apology/
