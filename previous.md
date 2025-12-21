@@ -1,3 +1,7 @@
+**How to watch Bulls vs. Hawks: Time, TV, streaming**\
+`Find out how to watch the Chicago Bulls play the Atlanta Hawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6908447/2025/12/21/bulls-vs-hawks-stream-how-to-watch-dec-21/
+
 **How to watch Texas Tech vs. Baylor women's basketball: Time, TV, streaming**\
 `Find out how to watch the Texas Tech Lady Raiders play the Baylor Bears, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6908444/2025/12/21/texas-tech-vs-baylor-stream-how-to-watch-dec-21/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6908414/2025/12/21/kennesaw-state-vs-alabama-stream
 **Steakhouse Woes**\
 `We examine how rising beef prices have stressed restaurant owners this holiday season.`\
 https://nytimes.com/2025/12/21/briefing/steakhouse-woes.html
-
-**Mandel's Final Thoughts: Is 'The U' back? Alabama is chasing and G5 meets reality**\
-`Plus, Ole Miss doesn't miss Lane Kiffin, Texas A&M's historic season ends in a buzzkill and how the CFP will change next year. `\
-https://nytimes.com/athletic/6907605/2025/12/21/college-football-scores-results-playoff-first-round/
 
