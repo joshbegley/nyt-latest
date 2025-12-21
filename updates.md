@@ -1,3 +1,15 @@
+**The New York Times in Print for Sunday, Dec. 21, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/12/21/todays-new-york-times
+
+**My Oldest Old Friend**\
+`She was a great-grandmother, and I was a millennial. We could have talked forever.`\
+https://nytimes.com/2025/12/21/opinion/friendship-old-age.html
+
+**A Lifeline for New York’s Working Families**\
+`Children’s Aid provides free after-school programs for low-income New Yorkers that students love and parents see as a solution.`\
+https://nytimes.com/2025/12/21/opinion/a-lifeline-for-new-yorks-working-families.html
+
 **Luka Dončić leaves Lakers-Clippers game with left leg contusion**\
 `Dončić appeared to be playing with a limp for most of his second-quarter minutes Saturday night.`\
 https://nytimes.com/athletic/6907867/2025/12/21/luka-doncic-leaves-game-leg-contusion-lakers-nba/

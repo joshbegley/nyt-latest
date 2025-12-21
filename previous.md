@@ -1,3 +1,15 @@
+**The New York Times in Print for Sunday, Dec. 21, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/12/21/todays-new-york-times
+
+**My Oldest Old Friend**\
+`She was a great-grandmother, and I was a millennial. We could have talked forever.`\
+https://nytimes.com/2025/12/21/opinion/friendship-old-age.html
+
+**A Lifeline for New York’s Working Families**\
+`Children’s Aid provides free after-school programs for low-income New Yorkers that students love and parents see as a solution.`\
+https://nytimes.com/2025/12/21/opinion/a-lifeline-for-new-yorks-working-families.html
+
 **Luka Dončić leaves Lakers-Clippers game with left leg contusion**\
 `Dončić appeared to be playing with a limp for most of his second-quarter minutes Saturday night.`\
 https://nytimes.com/athletic/6907867/2025/12/21/luka-doncic-leaves-game-leg-contusion-lakers-nba/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6899217/2025/12/21/afcon-schedule-change-fifa-caf-2
 **Tottenham lost at home again. But in the chaos there was unity**\
 `Sometimes fans get quieter when a game looks lost. This time they got louder and more supportive. And the team responded in kind`\
 https://nytimes.com/athletic/6906850/2025/12/21/tottenham-simons-romero-frank-unity/
-
-**Enzo Maresca is committed to Chelsea despite Man City links — Newcastle draw showed that**\
-`All eyes were on Maresca after The Athletic reported City's interest in the Chelsea head coach if Pep Guardiola leaves`\
-https://nytimes.com/athletic/6906395/2025/12/21/enzo-maresca-chelsea-man-city-newcastle/
-
-**As dark cloud hovers over Maple Leafs, will it completely derail their season?**\
-`After a deflating 5-3 loss to Nashville, it seemed more difficult than ever for Toronto to keep the darkness at bay.`\
-https://nytimes.com/athletic/6907765/2025/12/21/maple-leafs-predators-nhl-atlantic-division/
-
-**Wolves' dramatic 24 hours in which everything — but also stayed the same**\
-`Jeff Shi is gone as Wolves chairman, replaced by Nathan Shi (no relation). But another defeat reminded the latter of the task ahead`\
-https://nytimes.com/athletic/6906818/2025/12/21/wolves-jeff-shi-nathan-shi-fosun/
 
