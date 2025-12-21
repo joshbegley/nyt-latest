@@ -1,3 +1,11 @@
+**Cheer up, the CFP quarterfinals look great: First look at Indiana-Alabama and more**\
+`An early guide to Indiana-Alabama, Oregon-Texas Tech, Ohio State-Miami and Georgia-Ole Miss in the College Football Playoff's second round.`\
+https://nytimes.com/athletic/6906863/2025/12/20/college-football-playoff-quarterfinals-bracket-matchups/
+
+**Oregon heading to Orange Bowl after coasting past JMU: Takeaways**\
+`No. 5 Oregon vs. No. 4 Texas Tech should be a heavyweight bout in the quarterfinals.`\
+https://nytimes.com/athletic/6907178/2025/12/20/oregon-james-madison-cfp-score-result/
+
 **Texas Tech rallies from 17-point deficit to hand Duke first loss: 3 takeaways**\
 `Short-handed and in foul trouble, Texas Tech relied on two players to score its final 25 points.`\
 https://nytimes.com/athletic/6907668/2025/12/20/texas-tech-upsets-duke-college-basketball/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6907523/2025/12/20/draymond-green-ejection-warriors
 **Eagles-Commanders brawl in fourth quarter results in 3 ejections**\
 `Several players from both teams got involved in an altercation late in Philadelphia's NFC East-clinching victory.`\
 https://nytimes.com/athletic/6907376/2025/12/20/eagles-commanders-brawl-ejections/
-
-**The Kings have to do more than trade Phillip Danault to spark their season**\
-`Pulling Danault out of an underperforming roster isn’t enough because the Kings aren't a better team after the trade.`\
-https://nytimes.com/athletic/6907177/2025/12/20/la-kings-phillip-danault-trade-season/
-
-**Vikings' plane returns to airport after landing gear malfunctions**\
-`The team switched planes and left for Sunday's game against the New York Giants at 7:30 p.m. local time`\
-https://nytimes.com/athletic/6907432/2025/12/20/vikings-plane-issues-late-departure-giants/
 
