@@ -1,3 +1,11 @@
+**Wild get 5 players back, extend home point streak to franchise-record 14 games: Takeaways**\
+`With five of its seven injured players ready to return, Minnesota didn't miss a beat against Edmonton with a hard-fought 5-2 win.`\
+https://nytimes.com/athletic/6906884/2025/12/20/wild-oilers-injuries-point-streak-takeaways/
+
+**Panarin, Zibanejad step up to lead Rangers comeback, but Miller injury concerns loom**\
+`The burden on New York's top players could be even heavier moving forward if captain J.T. Miller misses time.`\
+https://nytimes.com/athletic/6907236/2025/12/20/rangers-panarin-zibanejad-comeback-jt-miller-injuries/
+
 **Rosenthal: What I'm hearing about the Blue Jays' interest in Bregman; plus more MLB offseason notes**\
 `Bregman also is drawing attention from his previous club, the Red Sox, as well as the Cubs, Diamondbacks and others.`\
 https://nytimes.com/athletic/6907283/2025/12/20/what-im-hearing-about-the-blue-jays-interest-in-bregman-plus-more-mlb-offseason-notes/
