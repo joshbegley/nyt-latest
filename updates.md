@@ -1,3 +1,7 @@
+**Luka Dončić leaves Lakers-Clippers game with left leg contusion**\
+`Dončić appeared to be playing with a limp for most of his second-quarter minutes Saturday night.`\
+https://nytimes.com/athletic/6907867/2025/12/21/luka-doncic-leaves-game-leg-contusion-lakers-nba/
+
 **76ers' Tyrese Maxey, V.J. Edgecombe, Jared McCain finding chemistry**\
 `Nurse didn't have much recourse, other than to put his three guards on the floor together. And on this night, they responded as a group.`\
 https://nytimes.com/athletic/6907594/2025/12/21/sixers-maxey-edgecombe-mccain-chemistry/
