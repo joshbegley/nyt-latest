@@ -1,3 +1,7 @@
+**How to watch New Mexico vs. Minnesota: Rate Bowl Start Time, TV, streaming**\
+`Find out how to watch the New Mexico Lobos play the Minnesota Golden Gophers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6909538/2025/12/21/new-mexico-vs-minnesota-stream-how-to-watch-dec-26/
+
 **Guardiola is still a perfectionist — and he promises his City demands are not performative**\
 `Seven wins in a row in all competitions for Manchester City is not enough for Pep Guardiola to be satisfied`\
 https://nytimes.com/athletic/6906517/2025/12/21/pep-guardiola-manchester-city-west-ham/
