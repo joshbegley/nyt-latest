@@ -1,3 +1,7 @@
+**The Sibling Bond**\
+`Parenting is closely studied, but sibling relationships have gotten much less attention.`\
+https://nytimes.com/2025/12/21/world/siblings-shape-lives-venezuela-tanker-bondi.html
+
 **In a First, a Wheelchair User Joins a Short Flight to Space**\
 `A paraplegic engineer was part of a crew that made a suborbital journey on a spacecraft operated by Jeff Bezos’ private company, Blue Origin.`\
 https://nytimes.com/2025/12/21/us/spacex-blue-origin-wheelchair-user.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6908925/2025/12/21/jimmy-butler-warriors-suns-dilli
 **Vikings QB J.J. McCarthy ruled out of game vs. Giants with hand injury**\
 `The second-year quarterback appeared to hit his hand on a defender's helmet before halftime. The Vikings went on to win behind Max Brosmer.`\
 https://nytimes.com/athletic/6909085/2025/12/21/jj-mccarthy-injury-vikings-giants/
-
-**How to watch Central Michigan vs. Northwestern: GameAbove Sports Bowl Start Time, TV, streaming**\
-`Find out how to watch the Central Michigan Chippewas play the Northwestern Wildcats, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6909109/2025/12/21/central-michigan-vs-northwestern-stream-how-to-watch-dec-26/
 
