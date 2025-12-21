@@ -1,3 +1,7 @@
+**How to watch Kansas vs. Iowa State women's basketball: Time, TV, streaming**\
+`Find out how to watch the Kansas Jayhawks play the Iowa State Cyclones, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6908217/2025/12/21/kansas-vs-iowa-state-stream-how-to-watch-dec-21/
+
 **Is Sydney Sweeney Today’s Most Perplexing Movie Star?**\
 `Onscreen, she tends to play women fighting the patriarchy; offscreen the image she cultivates has meant conservatives consider her one of their own.`\
 https://nytimes.com/2025/12/21/movies/sydney-sweeney-offscreen-image-movie-roles.html
