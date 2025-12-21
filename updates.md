@@ -1,3 +1,7 @@
+**Philip Rivers' NFL return drew unexpected audience in Alabama**\
+`As a coach, Rivers modeled his high school team's offense after the same Indianapolis Colts attack he's now leading as starting quarterback.`\
+https://nytimes.com/athletic/6907662/2025/12/21/philip-rivers-high-school-coach-colts/
+
 **Caleb Williams to DJ Moore slayed the Packers. Here's how the Bears did it**\
 `Williams' 46-yard scoring strike to Moore was the Bears added and hit in practice this week, and they did it again to beat Green Bay.`\
 https://nytimes.com/athletic/6908046/2025/12/21/bears-caleb-williams-dj-moore-packers/

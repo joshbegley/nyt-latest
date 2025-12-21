@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6908046/2025/12/21/bears-caleb-williams-dj-moore-pa
 https://nytimes.com/athletic/6905163/2025/12/21/womens-volleyball-national-championship-texas-am-kentucky-tv/
 
 **Philip Rivers' NFL return drew unexpected audience in Alabama**\
-`Philip Rivers modeled his high school team's offense after the same Indianapolis Colts attack he's now leading as starting quarterback.`\
+`As a coach, Rivers modeled his high school team's offense after the same Indianapolis Colts attack he's now leading as starting quarterback.`\
 https://nytimes.com/athletic/6907662/2025/12/21/philip-rivers-high-school-coach-colts/
 
 **Bruins’ Mark Kastelic, Tanner Jeannot and a promotion’s peaks and valleys**\

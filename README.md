@@ -1,40 +1,40 @@
-**Caleb Williams to DJ Moore slayed the Packers. Here's how the Bears did it**\
-`Williams' 46-yard scoring strike to Moore was the Bears added and hit in practice this week, and they did it again to beat Green Bay.`\
-https://nytimes.com/athletic/6908046/2025/12/21/bears-caleb-williams-dj-moore-packers/
+**Watching the Ashes won (and lost) from the hill at Adelaide Oval: 'England are so easy to beat'**\
+`Australia's home dominance has been maintained with the urn again retained before Christmas, leaving fans of both teams craving competition`\
+https://nytimes.com/athletic/6908141/2025/12/21/watching-the-ashes-won-and-lost-from-the-hill-at-adelaide-oval-england-are-so-easy-to-beat/
 
-**How to watch the NCAA women's volleyball finals: Texas A&M vs. Kentucky for the title**\
-`The first all-SEC championship match in Division I women's volleyball history pits red-hot Texas A&M against No. 1 seed Kentucky.`\
-https://nytimes.com/athletic/6905163/2025/12/21/womens-volleyball-national-championship-texas-am-kentucky-tv/
+**Bears shock the world, but not themselves, with OT win over the Packers**\
+`How did the Bears (11-4) win it? The same way they have all season. But their sixth fourth-quarter comeback win was absurd even for them.`\
+https://nytimes.com/athletic/6908018/2025/12/21/bears-packers-overtime-victory-nfc-north-playoff-race/
 
-**Philip Rivers' NFL return drew unexpected audience in Alabama**\
-`As a coach, Rivers modeled his high school team's offense after the same Indianapolis Colts attack he's now leading as starting quarterback.`\
-https://nytimes.com/athletic/6907662/2025/12/21/philip-rivers-high-school-coach-colts/
+**This Week in the NBA: Josh Hart caught in 4K, Chris Finch ejected in less than six minutes and more**\
+`Week 9 brought an NBA Cup title, a viral celebration moment, Jokić passing Kareem in assists and the fastest coach ejection of the season.`\
+https://nytimes.com/athletic/6907162/2025/12/21/nba-trending-chris-finch-josh-hart-jokic/
 
-**Bruins’ Mark Kastelic, Tanner Jeannot and a promotion’s peaks and valleys**\
-`Kastelic and Jeannot were back on the third line in the Bruins’ 5-4 shootout loss to the Canucks, and the results were mixed.`\
-https://nytimes.com/athletic/6907731/2025/12/21/bruins-mark-kastelic-tanner-jeannot/
+**The 'crisis' is over but 17 mad minutes at Spurs proved Liverpool still have frailties**\
+`The champions may have beaten Tottenham but their game management was non-existent during a frantic finale`\
+https://nytimes.com/athletic/6908292/2025/12/21/liverpool-tottenham-match-analysis/
 
-**NCAA women's volleyball final: Is the SEC poised to become a power in this sport, too?**\
-`As the sport of volleyball grows, the SEC sees its potential, and is now in a position to challenge the Big Ten nationally.`\
-https://nytimes.com/athletic/6906941/2025/12/21/ncaa-womens-volleyball-final-kentucky-texas-am-sec/
+**Eagles relish 'a good day' in NFC East-clinching offensive onslaught**\
+`The offense got a chance to celebrate as it continues working on establishing an identity under first-year coordinator Kevin Patullo.`\
+https://nytimes.com/athletic/6907323/2025/12/21/eagles-nfc-east-clinched-offense/
 
-**Canadiens' trade for Phillip Danault immediately offset by loss of Jake Evans**\
-`An apparent knee injury to Evans in Saturday night's win made the acquisition of Danault less than 24 hours earlier more important.`\
-https://nytimes.com/athletic/6907994/2025/12/21/canadiens-phillip-danault-jake-evans/
+**Inside a Democratic Socialist Convention Galvanized by Mamdani’s Big Win**\
+`The D.S.A. is still small. But as economic inequality keeps burning, Democratic Socialists are attracting intense interest and getting elected to office.`\
+https://nytimes.com/2025/12/21/opinion/dsa-zohran-mamdani-new-orleans.html
 
-**Penguins' losing streak hits 8 as Sidney Crosby is again scoreless: 10 observations**\
-`The Penguins were blanked for a second straight game for the first time in 16 years as they fell in Montreal, 4-0, on Saturday. `\
-https://nytimes.com/athletic/6907651/2025/12/21/penguins-losing-streak-hits-8-as-sidney-crosby-is-held-without-a-point-again-10-observations/
+**The Trump Vibe Shift Is Dead**\
+`What will come in its wake?`\
+https://nytimes.com/2025/12/21/opinion/trump-economy-vibe-shift.html
 
-**Packers clinging to NFC's last playoff spot after collapse against the Bears**\
-`Green Bay couldn't get out of its own way late in the fourth quarter and overtime, blowing a 10-point fourth-quarter lead in Chicago.`\
-https://nytimes.com/athletic/6908024/2025/12/21/packers-collapse-bears-nfc-playoffs/
+**The Pete Golding Ole Miss Rebels looked like the Lane Kiffin Rebels — and that's a good thing**\
+`On Saturday, the focus finally shifted back to football and Ole Miss’ players. And the Rebels delivered with a stress-free win. `\
+https://nytimes.com/athletic/6907703/2025/12/21/pete-golding-ole-miss-lane-kiffin-playoff/
 
-**Steve Kerr expresses gratitude for Steph Curry, highly successful journey with Warriors**\
-`“Did the Warriors go 40 years without a Steph?” Kerr asked. "Probably. So that's where you have to get lucky in the NBA."`\
-https://nytimes.com/athletic/6885085/2025/12/21/steve-kerr-steph-curry-warriors-historic-run/
+**Christianity Is a Dangerous Faith**\
+`Living in the upside-down kingdom of God.`\
+https://nytimes.com/2025/12/21/opinion/christ-christmas-humility-kingdom-god.html
 
-**Been there, won that: Eagles clinch NFC East again, feel they're 'trending' upward**\
-`The Eagles are staying focused on their bigger goals.`\
-https://nytimes.com/athletic/6907766/2025/12/21/eagles-nfc-east-playoff-spot-clinched/
+**As the Commanders limp to the finish line, emotions are boiling over**\
+`After a chippy loss to the Eagles continued a season of misery, the lingering anger in the Commanders’ locker room was palpable.`\
+https://nytimes.com/athletic/6908266/2025/12/21/commanders-eagles-fight-tension-ejections/
 
