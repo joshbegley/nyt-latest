@@ -1,3 +1,11 @@
+**Chargers pull away from Cowboys, close in on second straight playoff appearance**\
+`The Chargers are on the verge of a second straight playoff appearance under coach Jim Harbaugh. `\
+https://nytimes.com/athletic/6908851/2025/12/21/chargers-cowboys-score-result-takeaways-nfl/
+
+**United's Mainoo to miss Newcastle clash, Fernandes has 'soft tissue' injury**\
+`Amorim provided updates on the midfield duo ahead of their game against Newcastle United on Boxing Day`\
+https://nytimes.com/athletic/6909000/2025/12/21/fernandes-mainoo-injury-man-united-news-update/
+
 **The Sibling Bond**\
 `Parenting is closely studied, but sibling relationships have gotten much less attention.`\
 https://nytimes.com/2025/12/21/world/siblings-shape-lives-venezuela-tanker-bondi.html

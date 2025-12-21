@@ -22,7 +22,7 @@ https://nytimes.com/video/science/space/100000010602625/engineer-is-first-parapl
 `Cincinnati spoiled Quinn Ewers' debut in Miami with a dominant second half.`\
 https://nytimes.com/athletic/6908827/2025/12/21/bengals-dolphins-score-result-takeaways-nfl/
 
-**The Briefing: Morocco 2 Comoros 0 - El Kaabi's wonder strike and Diaz delivers in AFCON opener**\
+**The Briefing: Morocco 2 Comoros 0 – El Kaabi's wonder strike and Brahim delivers in AFCON opener**\
 `Our writers analyse the key talking points from the opening game of the 2025 Africa Cup of Nations`\
 https://nytimes.com/athletic/6896155/2025/12/21/morocco-comoros-afcon-opening-game/
 

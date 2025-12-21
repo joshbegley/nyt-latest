@@ -1,3 +1,11 @@
+**Chargers pull away from Cowboys, close in on second straight playoff appearance**\
+`The Chargers are on the verge of a second straight playoff appearance under coach Jim Harbaugh. `\
+https://nytimes.com/athletic/6908851/2025/12/21/chargers-cowboys-score-result-takeaways-nfl/
+
+**United's Mainoo to miss Newcastle clash, Fernandes has 'soft tissue' injury**\
+`Amorim provided updates on the midfield duo ahead of their game against Newcastle United on Boxing Day`\
+https://nytimes.com/athletic/6909000/2025/12/21/fernandes-mainoo-injury-man-united-news-update/
+
 **The Sibling Bond**\
 `Parenting is closely studied, but sibling relationships have gotten much less attention.`\
 https://nytimes.com/2025/12/21/world/siblings-shape-lives-venezuela-tanker-bondi.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6909002/2025/12/21/martinez-injury-head-villa-unite
 **J.T. Miller out week to week after suffering upper-body injury: Source**\
 `Miller's injury came after taking a reverse hit from Philadelphia's Nick Seeler, who appeared to make contact with Miller's shoulder.`\
 https://nytimes.com/athletic/6909133/2025/12/21/rangers-jt-miller-injury-update/
-
-**Thompson: Jimmy Butler, Warriors show fight vs. Dillon Brooks, Suns**\
-`Dillon Brooks served as a metaphor for the Warriors’ current state. A microcosm for their spirit, which was tested Saturday night.`\
-https://nytimes.com/athletic/6908925/2025/12/21/jimmy-butler-warriors-suns-dillion-brooks/
-
-**Vikings QB J.J. McCarthy ruled out of game vs. Giants with hand injury**\
-`The second-year quarterback appeared to hit his hand on a defender's helmet before halftime. The Vikings went on to win behind Max Brosmer.`\
-https://nytimes.com/athletic/6909085/2025/12/21/jj-mccarthy-injury-vikings-giants/
 
