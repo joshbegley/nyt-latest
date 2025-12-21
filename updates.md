@@ -1,3 +1,11 @@
+**Packers' Jordan Love ruled out with concussion after helmet-to-helmet hit**\
+`The Packers quarterback left the game in the second quarter after a roughing-the-passer penalty.`\
+https://nytimes.com/athletic/6907499/2025/12/20/jordan-love-out-packers-bears-concussion/
+
+**Draymond Green ejected for shoving Collin Gillespie, arguing with refs**\
+`Green got tangled up with Suns guard Collin Gillespie under the basket and the pair exchanged words coming back up the floor.`\
+https://nytimes.com/athletic/6907523/2025/12/20/draymond-green-ejection-warriors-suns-2/
+
 **Montana State stomps Montana to reach FCS championship game**\
 `The Bobcats return to the finals for the second consecutive season and will face the Illinois State-Villanova winner on Jan. 5.`\
 https://nytimes.com/athletic/6907297/2025/12/20/montana-state-bobcats-grizzlies-fcs-semifinals/

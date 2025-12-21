@@ -1,3 +1,11 @@
+**Packers' Jordan Love ruled out with concussion after helmet-to-helmet hit**\
+`The Packers quarterback left the game in the second quarter after a roughing-the-passer penalty.`\
+https://nytimes.com/athletic/6907499/2025/12/20/jordan-love-out-packers-bears-concussion/
+
+**Draymond Green ejected for shoving Collin Gillespie, arguing with refs**\
+`Green got tangled up with Suns guard Collin Gillespie under the basket and the pair exchanged words coming back up the floor.`\
+https://nytimes.com/athletic/6907523/2025/12/20/draymond-green-ejection-warriors-suns-2/
+
 **Eagles-Commanders brawl in fourth quarter results in 3 ejections**\
 `Several players from both teams got involved in an altercation late in Philadelphia's NFC East-clinching victory.`\
 https://nytimes.com/athletic/6907376/2025/12/20/eagles-commanders-brawl-ejections/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6907237/2025/12/20/miami-texas-am-college-football-
 **Cowboys eliminated from playoff contention after Eagles beat Commanders**\
 `The 6-7-1 Cowboys will miss the playoffs for the second consecutive year and fourth time in the last seven seasons.`\
 https://nytimes.com/athletic/6900851/2025/12/20/cowboys-eliminated-nfl-playoff-picture/
-
-**Michael Irvin's passion shines on sideline during Miami's win over Texas A&M**\
-`Irvin stood on the field for his alma mater’s game-winning touchdown pass to Malachi Toney and the Hurricanes’ ensuing goal-line stand.`\
-https://nytimes.com/athletic/6907092/2025/12/20/michael-irvin-kiss-mario-cristobal-miami/
-
-**Wild get 5 players back, extend home point streak to franchise-record 14 games: Takeaways**\
-`With five of its seven injured players ready to return, Minnesota didn't miss a beat against Edmonton with a hard-fought 5-2 win.`\
-https://nytimes.com/athletic/6906884/2025/12/20/wild-oilers-injuries-point-streak-takeaways/
 
