@@ -1,3 +1,7 @@
+**Review: A ‘Picnic at Hanging Rock’ Musical Is a Psychedelic Parable**\
+`At Greenwich House Theater, Greta Gertler Gold and Hilary Bell’s stage adaptation of Joan Lindsay’s novel hovers between reverie and reality.`\
+https://nytimes.com/2025/12/21/theater/picnic-at-hanging-rock-musical-review.html
+
 **How to watch Sabres vs. Devils: Time, TV, streaming**\
 `Find out how to watch the Buffalo Sabres play the New Jersey Devils, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6908773/2025/12/21/sabres-vs-devils-stream-how-to-watch-dec-21/

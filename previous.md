@@ -1,3 +1,7 @@
+**Review: A ‘Picnic at Hanging Rock’ Musical Is a Psychedelic Parable**\
+`At Greenwich House Theater, Greta Gertler Gold and Hilary Bell’s stage adaptation of Joan Lindsay’s novel hovers between reverie and reality.`\
+https://nytimes.com/2025/12/21/theater/picnic-at-hanging-rock-musical-review.html
+
 **How to watch Sabres vs. Devils: Time, TV, streaming**\
 `Find out how to watch the Buffalo Sabres play the New Jersey Devils, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6908773/2025/12/21/sabres-vs-devils-stream-how-to-watch-dec-21/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6908758/2025/12/21/canadiens-vs-penguins-stream-how
 **How to watch Jets vs. Mammoth: Time, TV, streaming**\
 `Find out how to watch the Winnipeg Jets play the Utah Mammoth, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6908756/2025/12/21/jets-vs-mammoth-stream-how-to-watch-dec-21/
-
-**How to watch Bucks vs. Timberwolves: Time, TV, streaming**\
-`Find out how to watch the Milwaukee Bucks play the Minnesota Timberwolves, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6908752/2025/12/21/bucks-vs-timberwolves-stream-how-to-watch-dec-21/
 
