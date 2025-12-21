@@ -1,3 +1,11 @@
+**Mamdani Inauguration to Usher in ‘New Era’ With Broadway Block Party**\
+`Zohran Mamdani will be sworn in as New York City’s new mayor on Jan. 1, alongside a party spanning seven blocks that will accommodate 40,000 spectators, his transition team said.`\
+https://nytimes.com/2025/12/21/nyregion/nyc-zohran-mamdani-inauguration-block-party.html
+
+**Behind the Curtain of Luxury Room Service at the Plaza Hotel**\
+`This is the busiest season for Syed Rahmani, who has been tending to well-heeled guests for 27 years.`\
+https://nytimes.com/2025/12/21/dining/plaza-hotel-on-the-job.html
+
 **In Pursuit of a Political Utopia**\
 `In “The Testament of Ann Lee,” coming out Christmas Day, Amanda Seyfried plays a woman in pursuit of another, better world.`\
 https://nytimes.com/2025/12/21/briefing/testament-of-ann-lee.html
