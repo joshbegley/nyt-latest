@@ -1,3 +1,11 @@
+**How Miami pulled off its biggest win in 24 years — and why it was a moment of validation**\
+`Miami looked like a Playoff long shot just weeks ago, but now it's a quarterfinalist.`\
+https://nytimes.com/athletic/6907237/2025/12/20/miami-texas-am-college-football-playoff-first-win/
+
+**With Chambliss in CFP, Ferris State claims fourth D-II national title in five seasons**\
+`Ferris State QB Wyatt Bowser had five touchdowns, including three on the ground, to lead the Bulldogs to their 30th consecutive win.`\
+https://nytimes.com/athletic/6907303/2025/12/20/ferris-state-dii-football-championship-chambliss/
+
 **Cowboys eliminated from playoffs after Eagles beat Commanders**\
 `The Eagles’ win over the Commanders on Saturday officially eliminated the 6-7-1 Cowboys from playoff contention.`\
 https://nytimes.com/athletic/6900851/2025/12/20/cowboys-eliminated-nfl-playoff-picture/

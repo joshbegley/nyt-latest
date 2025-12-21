@@ -1,3 +1,7 @@
+**How Miami pulled off its biggest win in 24 years — and why it was a moment of validation**\
+`Miami looked like a Playoff long shot just weeks ago, but now it's a quarterfinalist.`\
+https://nytimes.com/athletic/6907237/2025/12/20/miami-texas-am-college-football-playoff-first-win/
+
 **Cowboys eliminated from playoffs after Eagles beat Commanders**\
 `The Eagles’ win over the Commanders on Saturday officially eliminated the 6-7-1 Cowboys from playoff contention.`\
 https://nytimes.com/athletic/6900851/2025/12/20/cowboys-eliminated-nfl-playoff-picture/
@@ -22,7 +26,7 @@ https://nytimes.com/athletic/6907283/2025/12/20/what-im-hearing-about-the-blue-j
 `At least 124,000 customers out of 414,000 lost power on Saturday.`\
 https://nytimes.com/2025/12/20/us/san-francisco-electricity-out.html
 
-**Ferris State claims fourth D-II national title in five seasons**\
+**With Chambliss in CFP, Ferris State claims fourth D-II national title in five seasons**\
 `Ferris State QB Wyatt Bowser had five touchdowns, including three on the ground, to lead the Bulldogs to their 30th consecutive win.`\
 https://nytimes.com/athletic/6907303/2025/12/20/ferris-state-dii-football-championship-chambliss/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/20/us/politics/turning-points-americafest-ben-shapir
 **College Football Playoff 2025 projections: Indiana favored over Alabama, plus more odds**\
 `Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
 https://nytimes.com/athletic/6560541/2025/12/20/college-football-playoff-bracket-projections-odds/
-
-**Commanders QB Josh Johnson enters Eagles game for injured starter Marcus Mariota**\
-`Mariota was cleared of a concussion but was declared questionable to return because of a hand injury.`\
-https://nytimes.com/athletic/6907220/2025/12/20/josh-johnson-qb-commanders-marcus-mariota-injury/
 

@@ -2,7 +2,7 @@
 `Miami looked like a Playoff long shot just weeks ago, but now it's a quarterfinalist.`\
 https://nytimes.com/athletic/6907237/2025/12/20/miami-texas-am-college-football-playoff-first-win/
 
-**Cowboys eliminated from playoffs after Eagles beat Commanders**\
+**Cowboys eliminated from playoff contention after Eagles beat Commanders**\
 `The Eagles’ win over the Commanders on Saturday officially eliminated the 6-7-1 Cowboys from playoff contention.`\
 https://nytimes.com/athletic/6900851/2025/12/20/cowboys-eliminated-nfl-playoff-picture/
 
@@ -23,7 +23,7 @@ https://nytimes.com/athletic/6907236/2025/12/20/rangers-panarin-zibanejad-comeba
 https://nytimes.com/athletic/6907283/2025/12/20/what-im-hearing-about-the-blue-jays-interest-in-bregman-plus-more-mlb-offseason-notes/
 
 **Nearly a Third of San Francisco Loses Electricity**\
-`At least 124,000 customers out of 414,000 lost power on Saturday.`\
+`At least 125,000 customers out of 414,000 lost power on Saturday.`\
 https://nytimes.com/2025/12/20/us/san-francisco-electricity-out.html
 
 **With Chambliss in CFP, Ferris State claims fourth D-II national title in five seasons**\
