@@ -1,3 +1,7 @@
+**The Ashes Briefing: Australia retain the urn as Ben Stokes vows to fight on as England captain**\
+`Australia eventually overcame England's resistance to win the third Test by 82 runs and take an unassailable 3-0 lead in the series`\
+https://nytimes.com/athletic/6907680/2025/12/21/ashes-england-stokes-australia-briefing/
+
 **Our 55-Year Age Gap Didn’t Interfere With Our Bond**\
 `She was a great-grandmother, and I was a millennial. We could have talked forever.`\
 https://nytimes.com/2025/12/21/opinion/friendship-old-age.html
