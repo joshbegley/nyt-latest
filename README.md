@@ -1,3 +1,7 @@
+**Sabres stretch winning streak to 5 after beating Islanders: 6 thoughts**\
+`With a 3-2 win over the Islanders, the Sabres are now five points back of the second wild-card spot in a crowded Eastern playoff picture.`\
+https://nytimes.com/athletic/6907539/2025/12/20/sabres-islanders-winning-streak-playoffs/
+
 **Packers' Jordan Love ruled out with concussion after helmet-to-helmet hit**\
 `The Packers quarterback left the game in the second quarter after a roughing-the-passer penalty.`\
 https://nytimes.com/athletic/6907499/2025/12/20/jordan-love-out-packers-bears-concussion/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6907297/2025/12/20/montana-state-bobcats-grizzlies-
 **How Miami pulled off its biggest win in 24 years — and why it was a moment of validation**\
 `Miami looked like a Playoff long shot just weeks ago, but now it's a quarterfinalist.`\
 https://nytimes.com/athletic/6907237/2025/12/20/miami-texas-am-college-football-playoff-first-win/
-
-**Cowboys eliminated from playoff contention after Eagles beat Commanders**\
-`The 6-7-1 Cowboys will miss the playoffs for the second consecutive year and fourth time in the last seven seasons.`\
-https://nytimes.com/athletic/6900851/2025/12/20/cowboys-eliminated-nfl-playoff-picture/
 
