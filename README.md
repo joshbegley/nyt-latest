@@ -34,7 +34,7 @@ https://nytimes.com/athletic/6907703/2025/12/21/pete-golding-ole-miss-lane-kiffi
 `Living in the upside-down kingdom of God.`\
 https://nytimes.com/2025/12/21/opinion/christ-christmas-humility-kingdom-god.html
 
-**As the Commanders limp to the finish line, emotions are boiling over**\
+**As Commanders limp to the finish line, emotions are boiling over**\
 `After a chippy loss to the Eagles continued a season of misery, the lingering anger in the Commanders’ locker room was palpable.`\
 https://nytimes.com/athletic/6908266/2025/12/21/commanders-eagles-fight-tension-ejections/
 
