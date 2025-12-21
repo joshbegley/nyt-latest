@@ -1,6 +1,6 @@
 **Watching the Ashes won (and lost) from the hill at Adelaide Oval: 'England are so easy to beat'**\
 `Australia's home dominance has been maintained with the urn again retained before Christmas, leaving fans of both teams craving competition`\
-https://nytimes.com/athletic/6908141/2025/12/21/watching-the-ashes-won-and-lost-from-the-hill-at-adelaide-oval-england-are-so-easy-to-beat/
+https://nytimes.com/athletic/6908141/2025/12/21/ashes-australia-england-fans-adelaide-hill/
 
 **Bears shock the world, but not themselves, with OT win over the Packers**\
 `How did the Bears (11-4) win it? The same way they have all season. But their sixth fourth-quarter comeback win was absurd even for them.`\
