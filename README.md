@@ -1,3 +1,7 @@
+**College Football Playoff 2025 projections: Indiana favored over Alabama, plus more odds**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/12/20/college-football-playoff-bracket-projections-odds/
+
 **Cheer up, the CFP quarterfinals could be great: First look at Indiana-Alabama and more**\
 `An early guide to Indiana-Alabama, Oregon-Texas Tech, Ohio State-Miami and Georgia-Ole Miss in the College Football Playoff's second round.`\
 https://nytimes.com/athletic/6906863/2025/12/20/college-football-playoff-quarterfinals-bracket-matchups/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6907499/2025/12/20/jordan-love-out-packers-bears-co
 **Draymond Green ejected for shoving Collin Gillespie, arguing with refs**\
 `Green got tangled up with Suns guard Collin Gillespie under the basket and the pair exchanged words coming back up the floor.`\
 https://nytimes.com/athletic/6907523/2025/12/20/draymond-green-ejection-warriors-suns-2/
-
-**Eagles-Commanders brawl in fourth quarter results in 3 ejections**\
-`Several players from both teams got involved in an altercation late in Philadelphia's NFC East-clinching victory.`\
-https://nytimes.com/athletic/6907376/2025/12/20/eagles-commanders-brawl-ejections/
 
