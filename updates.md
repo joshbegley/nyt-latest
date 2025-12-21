@@ -1,3 +1,7 @@
+**Premier League club executive investigated over alleged non-recent sex offences**\
+`The man is still working in England’s top division while the case is investigated by London’s Metropolitan police.`\
+https://nytimes.com/athletic/6906698/2025/12/21/premier-league-executive-investigation/
+
 **N.Y.C. Holiday Markets Offer Profit and Peril for Small-Business Owners**\
 `The festive fairs have become vital to the success of many artists and retailers. But the booths are expensive, and the payoffs aren’t guaranteed.`\
 https://nytimes.com/2025/12/21/nyregion/nyc-holiday-markets-small-business.html
