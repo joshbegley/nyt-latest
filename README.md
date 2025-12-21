@@ -1,40 +1,40 @@
-**Sydney Shooting Suspects Met Muslim Leaders in Philippines, Officials Say**\
-`Intelligence authorities in the Philippines say the father and son apparently slipped out of Davao City during their monthlong stay, but details remain sketchy.`\
-https://nytimes.com/2025/12/21/world/asia/sydney-philippines-akram.html
+**Is Sydney Sweeney Today’s Most Perplexing Movie Star?**\
+`Onscreen, she tends to play women fighting the patriarchy; offscreen the image she cultivates has meant conservatives consider her one of their own.`\
+https://nytimes.com/2025/12/21/movies/sydney-sweeney-offscreen-image-movie-roles.html
 
-**Premier League club executive investigated over alleged non-recent sex offences**\
-`The man is still working in England’s top division while the case is investigated by London’s Metropolitan police.`\
-https://nytimes.com/athletic/6906698/2025/12/21/premier-league-executive-investigation/
+**Freed From a Belarus Prison, a Nobel Peace Laureate Experiences ‘Oxygen Intoxication’**\
+`Ales Bialiatski, who shared the Nobel in 2022, described long hours of backbreaking work and stints in solitary confinement.`\
+https://nytimes.com/2025/12/21/world/europe/belarus-sanctions-potash-ales-bialiatski.html
 
-**N.Y.C. Holiday Markets Offer Profit and Peril for Small-Business Owners**\
-`The festive fairs have become vital to the success of many artists and retailers. But the booths are expensive, and the payoffs aren’t guaranteed.`\
-https://nytimes.com/2025/12/21/nyregion/nyc-holiday-markets-small-business.html
+**Amanda Seyfried Had a ‘Complete Spiritual Awakening’**\
+`She called on the experience to play a religious leader building a political utopia in “The Testament of Ann Lee,” coming out Christmas Day.`\
+https://nytimes.com/2025/12/21/briefing/amanda-seyfried-had-a-complete-spiritual-awakening.html
 
-**At the Center of the Latest Mangione Hearings: A Battle Over a Backpack**\
-`For three weeks, defense lawyers argued that searches of Luigi Mangione’s bag were unconstitutional. But state prosecutors have other evidence — and a federal prosecution looms.`\
-https://nytimes.com/2025/12/21/nyregion/luigi-mangione-backpack-evidence.html
+**A Life Rooted in Activism and Listening to Others**\
+`Michele Singer Reiner was the guiding force in the lives of her family, stressing the need to help and respect one another.`\
+https://nytimes.com/2025/12/21/us/michele-singer-reiner.html
 
-**New York’s Hottest Dinner Party Is in an Apartment in the South Bronx**\
-`There are almost 4,500 people on a waiting list to get into Nine26, a monthly Dominican-themed supper club.`\
-https://nytimes.com/2025/12/21/nyregion/bronx-supper-club.html
+**How Many Toys Will Parents Buy for Their Kids This Christmas?**\
+`Ynon Kreiz, the chief executive of Mattel, believes consumers squeezed by tariffs and inflation will cut back on other things before they skimp on Barbies and Hot Wheels.`\
+https://nytimes.com/2025/12/21/business/mattel-ynon-kreiz-toys-tariffs.html
 
-**‘The Car Was Empty, and the Train Was Moving Fast’**\
-`An Upper West Side pizza taste test, a can in need of opening and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2025/12/21/nyregion/metropolitan-diary.html
+**Trump Takes America’s ‘Imperial Presidency’ to a New Level**\
+`In his first year back in the White House, President Trump has greatly expanded executive power while embracing the trappings of royalty in ways not seen in the modern era.`\
+https://nytimes.com/2025/12/21/us/politics/trump-imperial-presidency.html
 
-**As U.S. Guns Pour Into Canada, the Bodies Pile Up**\
-`The proliferation of illegal firearms from the United States has fueled a spike in gun violence in Canada, where most guns used in crimes are smuggled across the border.`\
-https://nytimes.com/2025/12/21/world/americas/canada-gun-violence-us.html
+**When Something Goes Wrong With Your Flight, These People Take Charge**\
+`Inside a tornado-hardened office in Texas, 1,700 American Airlines employees manage the carrier’s operations, responding to bad weather, plane trouble and ailing passengers.`\
+https://nytimes.com/2025/12/21/business/american-airlines-operations-hub.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/12/21/crosswords/spelling-bee-forum.html
+**Immigration Crackdown Creates Fault Lines Among Baptists**\
+`An increasingly loud contingent supports the Trump administration’s efforts to deport illegal immigrants.`\
+https://nytimes.com/2025/12/21/us/southern-baptists-immigration-trump.html
 
-**The Ashes Briefing: Australia retain the urn as Ben Stokes vows to fight on as England captain**\
-`Australia eventually overcame England's resistance to win the third Test by 82 runs and take an unassailable 3-0 lead in the series`\
-https://nytimes.com/athletic/6907680/2025/12/21/ashes-england-stokes-australia-briefing/
+**‘It’s Just Us’: The Firefighter, His Son and a Treacherous Choice**\
+`For two decades, Luis Martinez has fought wildfires for the U.S. government. Now he’s facing down cancer, debt and the threat of separation from his 11-year-old.`\
+https://nytimes.com/2025/12/21/us/wildfires-firefighters-immigration.html
 
-**Yankees re-sign right-hander Paul Blackburn to one-year contract: Source**\
-`Blackburn found something out of the bullpen to enhance his value in the final month of the season.`\
-https://nytimes.com/athletic/6907818/2025/12/21/yankees-re-sign-paul-blackburn/
+**The Harlem Handbag Maker Who Creates a Frenzy With Every Drop**\
+`If you’ve seen a chaotic scene on TikTok lately with people clamoring for brightly colored handbags, chances are good that it was for Pierre Laborde.`\
+https://nytimes.com/2025/12/21/style/pierre-laborde-bags-new-york-grand-bazaar.html
 
