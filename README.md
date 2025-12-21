@@ -1,3 +1,7 @@
+**Caleb Williams to DJ Moore slayed the Packers. Here's how the Bears did it**\
+`Williams' 46-yard scoring strike to Moore was the Bears added and hit in practice this week, and they did it again to beat Green Bay.`\
+https://nytimes.com/athletic/6908046/2025/12/21/bears-caleb-williams-dj-moore-packers/
+
 **How to watch the NCAA women's volleyball finals: Texas A&M vs. Kentucky for the title**\
 `The first all-SEC championship match in Division I women's volleyball history pits red-hot Texas A&M against No. 1 seed Kentucky.`\
 https://nytimes.com/athletic/6905163/2025/12/21/womens-volleyball-national-championship-texas-am-kentucky-tv/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6885085/2025/12/21/steve-kerr-steph-curry-warriors-
 **Been there, won that: Eagles clinch NFC East again, feel they're 'trending' upward**\
 `The Eagles are staying focused on their bigger goals.`\
 https://nytimes.com/athletic/6907766/2025/12/21/eagles-nfc-east-playoff-spot-clinched/
-
-**Once again, Eagles take Commanders, NFC East with relative ease**\
-`Washington's season of misery continued Saturday night with a reminder that it is still looking up at its division rival from Philly.`\
-https://nytimes.com/athletic/6906768/2025/12/21/eagles-commanders-nfc-east-title/
 
