@@ -15,7 +15,7 @@ https://nytimes.com/2025/12/21/nyregion/nyc-zohran-mamdani-inauguration-block-pa
 https://nytimes.com/2025/12/21/dining/plaza-hotel-on-the-job.html
 
 **In Pursuit of a Political Utopia**\
-`In “The Testament of Ann Lee,” coming out Christmas Day, Amanda Seyfried plays a woman in pursuit of another, better world.`\
+`In “The Testament of Ann Lee,” coming out Christmas Day, Amanda Seyfried plays a woman searching for another, better world.`\
 https://nytimes.com/2025/12/21/briefing/testament-of-ann-lee.html
 
 **College football national title odds: OSU still favorite ahead of IU with quarters set**\
