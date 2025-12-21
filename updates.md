@@ -1,3 +1,15 @@
+**329 Days of Trump, Trump, Trump**\
+`President Trump dominates our collective consciousness. The Times broke down how he has relentlessly pursued attention in the first 329 days of his second term.`\
+https://nytimes.com/interactive/2025/12/20/business/media/trump-media-year-in-review-2025.html
+
+**Eagles pull away from Commanders in second half to win NFC East again: Takeaways**\
+`Despite trailing a struggling Washington team at halftime, the Eagles now know they will host at least one playoff game.`\
+https://nytimes.com/athletic/6906856/2025/12/20/eagles-commanders-score-takeaways-week-16/
+
+**Montana State stomps Montana to reach FCS championship game**\
+`The Bobcats return to the finals for the second consecutive season and will face the Illinois State-Villanova winner on Jan. 5.`\
+https://nytimes.com/athletic/6907297/2025/12/20/montana-state-bobcats-grizzlies-fcs-semifinals/
+
 **Texas Tech rallies from 17-point deficit to hand Duke first loss: 3 takeaways**\
 `Short-handed and in foul trouble, Texas Tech relied on two players to score its final 25 points.`\
 https://nytimes.com/athletic/6907668/2025/12/20/texas-tech-upsets-duke-college-basketball/

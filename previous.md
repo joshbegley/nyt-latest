@@ -1,15 +1,3 @@
-**Texas Tech rallies from 17-point deficit to hand Duke first loss: 3 takeaways**\
-`Short-handed and in foul trouble, Texas Tech relied on two players to score its final 25 points.`\
-https://nytimes.com/athletic/6907668/2025/12/20/texas-tech-upsets-duke-college-basketball/
-
-**David Adelman's ejection vs. Rockets adds to theme of frustrated NBA coaches**\
-`Players and coaches don't mind physical matchups, but the frustration boils over when there is inconsistency behind the whistle.`\
-https://nytimes.com/athletic/6907471/2025/12/20/nba-coaches-referees-ejections-displeasure-adelman-finch-udoka/
-
-**Ole Miss has a new favorite son as Pete Golding leads Rebels to first Playoff win**\
-`The win was special for a fan base that has taken the first step in the healing process after losing Lane Kiffin to LSU.`\
-https://nytimes.com/athletic/6907548/2025/12/20/ole-miss-pete-golding-college-football-playoff/
-
 **Packers' sideline heaters malfunction during first half in Chicago**\
 `Temperatures hovered around freezing with first place in the NFC North on the line.`\
 https://nytimes.com/athletic/6907546/2025/12/20/packers-bench-heaters-malfunction-bears/
@@ -37,4 +25,16 @@ https://nytimes.com/athletic/6907177/2025/12/20/la-kings-phillip-danault-trade-s
 **Vikings' plane returns to airport after landing gear malfunctions**\
 `The team switched planes and left for Sunday's game against the New York Giants at 7:30 p.m. local time`\
 https://nytimes.com/athletic/6907432/2025/12/20/vikings-plane-issues-late-departure-giants/
+
+**329 Days of Trump, Trump, Trump**\
+`President Trump dominates our collective consciousness. The Times broke down how he has relentlessly pursued attention in the first 329 days of his second term.`\
+https://nytimes.com/interactive/2025/12/20/business/media/trump-media-year-in-review-2025.html
+
+**Eagles pull away from Commanders in second half to win NFC East again: Takeaways**\
+`Despite trailing a struggling Washington team at halftime, the Eagles now know they will host at least one playoff game.`\
+https://nytimes.com/athletic/6906856/2025/12/20/eagles-commanders-score-takeaways-week-16/
+
+**Montana State stomps Montana to reach FCS championship game**\
+`The Bobcats return to the finals for the second consecutive season and will face the Illinois State-Villanova winner on Jan. 5.`\
+https://nytimes.com/athletic/6907297/2025/12/20/montana-state-bobcats-grizzlies-fcs-semifinals/
 
