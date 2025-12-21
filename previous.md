@@ -1,3 +1,7 @@
+**Vikings defense smothers Jaxson Dart, Giants, who are closing in on No. 1 draft pick**\
+`The Vikings' win Sunday came at a cost, as young QB J.J. McCarthy exited early with a right-hand injury. `\
+https://nytimes.com/athletic/6908882/2025/12/21/vikings-giants-score-result-takeaways-nfl/
+
 **Jets-Saints takeaways: Tyler Shough leads Saints blowout over Jets**\
 `New Orleans Saints rookie quarterback Tyler Shough leads Saints over New York Jets in week 16`\
 https://nytimes.com/athletic/6908792/2025/12/21/jets-saints-score-result-takeaways-nfl/
@@ -33,8 +37,4 @@ https://nytimes.com/video/science/space/100000010602625/engineer-is-first-parapl
 **Bengals-Dolphins takeaways: Burrow shines with 4 TDs in 45-21 win**\
 `Cincinnati spoiled Quinn Ewers' debut in Miami with a dominant second half.`\
 https://nytimes.com/athletic/6908827/2025/12/21/bengals-dolphins-score-result-takeaways-nfl/
-
-**The Briefing: Morocco 2 Comoros 0 – El Kaabi's wonder strike and Brahim delivers in AFCON opener**\
-`Our writers analyse the key talking points from the opening game of the 2025 Africa Cup of Nations`\
-https://nytimes.com/athletic/6896155/2025/12/21/morocco-comoros-afcon-opening-game/
 

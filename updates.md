@@ -1,3 +1,7 @@
+**Vikings defense smothers Jaxson Dart, Giants, who are closing in on No. 1 draft pick**\
+`The Vikings' win Sunday came at a cost, as young QB J.J. McCarthy exited early with a right-hand injury. `\
+https://nytimes.com/athletic/6908882/2025/12/21/vikings-giants-score-result-takeaways-nfl/
+
 **Jets-Saints takeaways: Tyler Shough leads Saints blowout over Jets**\
 `New Orleans Saints rookie quarterback Tyler Shough leads Saints over New York Jets in week 16`\
 https://nytimes.com/athletic/6908792/2025/12/21/jets-saints-score-result-takeaways-nfl/
