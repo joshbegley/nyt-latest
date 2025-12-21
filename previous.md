@@ -1,3 +1,11 @@
+**Eagles pull away from Commanders in second half to win NFC East again: Takeaways**\
+`Despite trailing a struggling Washington team at halftime, the Eagles now know they will host at least one playoff game.`\
+https://nytimes.com/athletic/6906856/2025/12/20/eagles-commanders-score-takeaways-week-16/
+
+**Montana State stomps Montana to advance to FCS championship game**\
+`The Bobcats return to the finals for the second consecutive season and will face the Illinois State-Villanova winner on Jan. 5.`\
+https://nytimes.com/athletic/6907297/2025/12/20/montana-state-bobcats-grizzlies-fcs-semifinals/
+
 **How Miami pulled off its biggest win in 24 years — and why it was a moment of validation**\
 `Miami looked like a Playoff long shot just weeks ago, but now it's a quarterfinalist.`\
 https://nytimes.com/athletic/6907237/2025/12/20/miami-texas-am-college-football-playoff-first-win/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/20/us/san-francisco-electricity-out.html
 **With Chambliss in CFP, Ferris State claims fourth D-II national title in five seasons**\
 `Ferris State QB Wyatt Bowser had five touchdowns, including three on the ground, to lead the Bulldogs to their 30th consecutive win.`\
 https://nytimes.com/athletic/6907303/2025/12/20/ferris-state-dii-football-championship-chambliss/
-
-**Turning Point’s Annual Gathering Turns Into a Gripefest**\
-`At AmericaFest, conservative leaders insulted one another, revealing serious rifts over conspiracy theories, antisemitism and who belongs in America.`\
-https://nytimes.com/2025/12/20/us/politics/turning-points-americafest-ben-shapiro.html
-
-**College Football Playoff 2025 projections: Indiana favored over Alabama, plus more odds**\
-`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
-https://nytimes.com/athletic/6560541/2025/12/20/college-football-playoff-bracket-projections-odds/
 

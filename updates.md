@@ -1,3 +1,11 @@
+**Eagles pull away from Commanders in second half to win NFC East again: Takeaways**\
+`Despite trailing a struggling Washington team at halftime, the Eagles now know they will host at least one playoff game.`\
+https://nytimes.com/athletic/6906856/2025/12/20/eagles-commanders-score-takeaways-week-16/
+
+**Montana State stomps Montana to advance to FCS championship game**\
+`The Bobcats return to the finals for the second consecutive season and will face the Illinois State-Villanova winner on Jan. 5.`\
+https://nytimes.com/athletic/6907297/2025/12/20/montana-state-bobcats-grizzlies-fcs-semifinals/
+
 **Cowboys eliminated from playoff contention after Eagles beat Commanders**\
 `The Eagles’ win over the Commanders on Saturday officially eliminated the 6-7-1 Cowboys from playoff contention.`\
 https://nytimes.com/athletic/6900851/2025/12/20/cowboys-eliminated-nfl-playoff-picture/
