@@ -1,3 +1,7 @@
+**How New York Keeps Its Unfiltered Water Safe: Spending Millions on Land**\
+`The city has bought more than 125,000 acres of land to provide a buffer around water reservoirs. It’s much cheaper than spending billions on filtration systems, officials say.`\
+https://nytimes.com/2025/12/21/nyregion/nyc-unfiltered-water-reservoirs.html
+
 **Chiefs-Titans takeaways: Minshew injured, Chiefs guarantee losing season**\
 `Chiefs backup quarterback Gardner Minshew exited Sunday's game with a knee injury`\
 https://nytimes.com/athletic/6909210/2025/12/21/chiefs-titans-score-result-takeaways/
