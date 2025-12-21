@@ -1,3 +1,11 @@
+**Vikings QB J.J. McCarthy ruled out of game vs. Giants with hand injury**\
+`The second-year quarterback was injured on a strip-sack just before halftime by Brian Burns. He was ruled out for the second half.`\
+https://nytimes.com/athletic/6909085/2025/12/21/jj-mccarthy-injury-vikings-giants/
+
+**How to watch Central Michigan vs. Northwestern: GameAbove Sports Bowl Start Time, TV, streaming**\
+`Find out how to watch the Central Michigan Chippewas play the Northwestern Wildcats, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6909109/2025/12/21/central-michigan-vs-northwestern-stream-how-to-watch-dec-26/
+
 **Toilet Rats: Rare, but There**\
 `Heavy rains have prompted public health officials in Washington to warn residents about toilet rats, a rare plumbing nightmare that drives frantic calls to pest control experts.`\
 https://nytimes.com/2025/12/21/us/washington-flooding-toilet-rats.html
@@ -31,12 +39,4 @@ https://nytimes.com/athletic/6909050/2025/12/21/old-dominion-vs-ole-miss-stream-
 **How to watch North Dakota vs. Nebraska men's basketball: Time, TV, streaming**\
 `Find out how to watch the North Dakota Fightin' Hawks play the Nebraska Cornhuskers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6909033/2025/12/21/north-dakota-vs-nebraska-stream-how-to-watch-dec-21/
-
-**How to watch USC vs. Cal women's basketball: Time, TV, streaming**\
-`Find out how to watch the USC Trojans play the California Golden Bears, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6909030/2025/12/21/usc-vs-cal-stream-how-to-watch-dec-21/
-
-**Munetaka Murakami signs short deal in potential windfall for the White Sox**\
-`The White Sox’s signing of the Japanese star third baseman was a shocker on two levels.`\
-https://nytimes.com/athletic/6908883/2025/12/21/white-sox-munetaka-murakami-signing-analysis/
 
