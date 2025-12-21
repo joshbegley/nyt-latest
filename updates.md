@@ -1,3 +1,11 @@
+**How should Texas A&M's season be viewed? Magical run ends with thud against Miami**\
+`“We came up 5 yards short and that’s something we’re going to have to live with throughout the offseason," Texas A&M coach Mike Elko said.`\
+https://nytimes.com/athletic/6907141/2025/12/20/texas-am-miami-college-football-playoff-season-ending/
+
+**Max Domi scratched as Maple Leafs make lineup changes**\
+`Domi is in the middle of a difficult season as Toronto sits just one point out of last place in the Eastern Conference.`\
+https://nytimes.com/athletic/6907202/2025/12/20/maple-leafs-max-domi-scratched-lineup/
+
 **Epstein Files Photos Disappear From Government Website, Including One of Trump**\
 `A total of 16 photos were taken down at some point on Saturday from the website that the Justice Department created. One featured an open drawer containing other photos, including at least one of President Trump.`\
 https://nytimes.com/2025/12/20/us/politics/trump-epstein-files-government-website.html

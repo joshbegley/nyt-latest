@@ -1,3 +1,11 @@
+**How should Texas A&M's season be viewed? Magical run ends with thud against Miami**\
+`“We came up 5 yards short and that’s something we’re going to have to live with throughout the offseason," Texas A&M coach Mike Elko said.`\
+https://nytimes.com/athletic/6907141/2025/12/20/texas-am-miami-college-football-playoff-season-ending/
+
+**Max Domi scratched as Maple Leafs make lineup changes**\
+`Domi is in the middle of a difficult season as Toronto sits just one point out of last place in the Eastern Conference.`\
+https://nytimes.com/athletic/6907202/2025/12/20/maple-leafs-max-domi-scratched-lineup/
+
 **Epstein Files Photos Disappear From Government Website, Including One of Trump**\
 `A total of 16 photos were taken down at some point on Saturday from the website that the Justice Department created. One featured an open drawer containing other photos, including at least one of President Trump.`\
 https://nytimes.com/2025/12/20/us/politics/trump-epstein-files-government-website.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6907040/2025/12/20/thomas-frank-hugo-ekitike-goal-l
 **Cowboys activate Trevon Diggs; cornerback hasn't played since Week 6**\
 `Diggs had said he expected to play last week against the Vikings and was “definitely disappointed” when he was not activated.`\
 https://nytimes.com/athletic/6906876/2025/12/20/cowboys-trevon-diggs-activated-against-chargers/
-
-**Notre Dame fans cry foul over low-scoring Miami-Texas A&M Playoff matchup**\
-`Texas A&M-Miami was the first College Football Playoff game ever to go into halftime with a scoreless tie.`\
-https://nytimes.com/athletic/6906783/2025/12/20/miami-texas-aggies-cfp-notre-dame-reactions/
-
-**Mbappe equals Ronaldo record in Real Madrid win against Sevilla**\
-`Mbappe scored his 59th goal of 2025 with an 86th minute penalty against Sevilla during Saturday's La Liga win.`\
-https://nytimes.com/athletic/6906917/2025/12/20/kylian-mbappe-ronaldo-madrid-record/
 
