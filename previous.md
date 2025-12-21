@@ -1,3 +1,11 @@
+**Cowboys eliminated from playoffs after Eagles beat Commanders**\
+`The Eagles’ win over the Commanders on Saturday officially eliminated the 6-7-1 Cowboys from playoff contention.`\
+https://nytimes.com/athletic/6900851/2025/12/20/cowboys-eliminated-nfl-playoff-picture/
+
+**Michael Irvin's passion shines on sideline during Miami's win over Texas A&M**\
+`Irvin stood on the field for his alma mater’s game-winning touchdown pass to Malachi Toney and the Hurricanes’ ensuing goal-line stand.`\
+https://nytimes.com/athletic/6907092/2025/12/20/michael-irvin-kiss-mario-cristobal-miami/
+
 **Wild get 5 players back, extend home point streak to franchise-record 14 games: Takeaways**\
 `With five of its seven injured players ready to return, Minnesota didn't miss a beat against Edmonton with a hard-fought 5-2 win.`\
 https://nytimes.com/athletic/6906884/2025/12/20/wild-oilers-injuries-point-streak-takeaways/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6560541/2025/12/20/college-football-playoff-bracket
 **Commanders QB Josh Johnson enters Eagles game for injured starter Marcus Mariota**\
 `Mariota was cleared of a concussion but was declared questionable to return because of a hand injury.`\
 https://nytimes.com/athletic/6907220/2025/12/20/josh-johnson-qb-commanders-marcus-mariota-injury/
-
-**Flyers' Denver Barkey impressed in his NHL debut. Could he stick around?**\
-`Barkey, a bit of a surprise recall by the Flyers from the AHL Lehigh Valley Phantoms, made an immediate impact in his NHL debut.`\
-https://nytimes.com/athletic/6907046/2025/12/20/flyers-denver-barkey-nhl-debut/
-
-**UW-River Falls loses track of downs, later wins on 79-yard score in final minute**\
-`All's well that ends well for the Falcons, who advance to the Division III title game despite a potentially costly failed fourth-down try. `\
-https://nytimes.com/athletic/6906946/2025/12/20/uw-river-falls-loses-track-of-downs-wins/
 

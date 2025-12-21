@@ -1,3 +1,11 @@
+**Cowboys eliminated from playoffs after Eagles beat Commanders**\
+`The Eagles’ win over the Commanders on Saturday officially eliminated the 6-7-1 Cowboys from playoff contention.`\
+https://nytimes.com/athletic/6900851/2025/12/20/cowboys-eliminated-nfl-playoff-picture/
+
+**Michael Irvin's passion shines on sideline during Miami's win over Texas A&M**\
+`Irvin stood on the field for his alma mater’s game-winning touchdown pass to Malachi Toney and the Hurricanes’ ensuing goal-line stand.`\
+https://nytimes.com/athletic/6907092/2025/12/20/michael-irvin-kiss-mario-cristobal-miami/
+
 **Wild get 5 players back, extend home point streak to franchise-record 14 games: Takeaways**\
 `With five of its seven injured players ready to return, Minnesota didn't miss a beat against Edmonton with a hard-fought 5-2 win.`\
 https://nytimes.com/athletic/6906884/2025/12/20/wild-oilers-injuries-point-streak-takeaways/
