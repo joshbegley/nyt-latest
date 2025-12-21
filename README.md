@@ -1,3 +1,7 @@
+**In Pursuit of a Political Utopia**\
+`In “The Testament of Ann Lee,” coming out Christmas Day, Amanda Seyfried plays a woman in pursuit of another, better world.`\
+https://nytimes.com/2025/12/21/briefing/testament-of-ann-lee.html
+
 **‘Orwellian Climate of Fear’: How China Cracks Down on Critics in the U.S.**\
 `The Chinese government once focused on political dissidents and exiled activists. Now, federal officials say, it is targeting artists in the United States whose creative protests test its tolerance.`\
 https://nytimes.com/2025/12/21/world/asia/chinese-dissidents-protest-art.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6908447/2025/12/21/bulls-vs-hawks-stream-how-to-wat
 **How to watch Texas Tech vs. Baylor women's basketball: Time, TV, streaming**\
 `Find out how to watch the Texas Tech Lady Raiders play the Baylor Bears, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6908444/2025/12/21/texas-tech-vs-baylor-stream-how-to-watch-dec-21/
-
-**How to watch La Salle vs. Michigan men's basketball: Time, TV, streaming**\
-`Find out how to watch the La Salle Explorers play the Michigan Wolverines, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6908442/2025/12/21/la-salle-vs-michigan-stream-how-to-watch-dec-21/
 
