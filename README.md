@@ -1,3 +1,7 @@
+**Luka Dončić leaves Lakers-Clippers game with left leg contusion**\
+`Dončić appeared to be playing with a limp for most of his second-quarter minutes Saturday night.`\
+https://nytimes.com/athletic/6907867/2025/12/21/luka-doncic-leaves-game-leg-contusion-lakers-nba/
+
 **76ers' Tyrese Maxey, V.J. Edgecombe, Jared McCain finding chemistry**\
 `Nurse didn't have much recourse, other than to put his three guards on the floor together. And on this night, they responded as a group.`\
 https://nytimes.com/athletic/6907594/2025/12/21/sixers-maxey-edgecombe-mccain-chemistry/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6907765/2025/12/21/maple-leafs-predators-nhl-atlant
 **Wolves' dramatic 24 hours in which everything — but also stayed the same**\
 `Jeff Shi is gone as Wolves chairman, replaced by Nathan Shi (no relation). But another defeat reminded the latter of the task ahead`\
 https://nytimes.com/athletic/6906818/2025/12/21/wolves-jeff-shi-nathan-shi-fosun/
-
-**Antoine Semenyo fits perfectly into Bournemouth's system, but could he flourish elsewhere?**\
-`The much-coveted forward scored his eighth Premier League goal of the season against Burnley and showcased his range of attacking qualities`\
-https://nytimes.com/athletic/6907248/2025/12/21/antoine-semenyo-bournemouth-big-six-analysis/
 
