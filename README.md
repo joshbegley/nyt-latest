@@ -18,7 +18,7 @@ https://nytimes.com/interactive/2025/12/20/business/media/trump-media-year-in-re
 `Despite trailing a struggling Washington team at halftime, the Eagles now know they will host at least one playoff game.`\
 https://nytimes.com/athletic/6906856/2025/12/20/eagles-commanders-score-takeaways-week-16/
 
-**Montana State stomps Montana to advance to FCS championship game**\
+**Montana State stomps Montana to reach FCS championship game**\
 `The Bobcats return to the finals for the second consecutive season and will face the Illinois State-Villanova winner on Jan. 5.`\
 https://nytimes.com/athletic/6907297/2025/12/20/montana-state-bobcats-grizzlies-fcs-semifinals/
 
