@@ -1,3 +1,7 @@
+**Devils' Jack Hughes will return to lineup Sunday after 18-game absence**\
+`Timo Meier and Arseny Gritsyuk are also slated to return Sunday against Buffalo.`\
+https://nytimes.com/athletic/6909294/2025/12/21/new-jersey-devils-jack-hughes-return/
+
 **Brain injury charity Headway criticise handling of apparent Martinez head knock**\
 `Martinez appeared groggy and in visible pain following a clash with Matty Cash.`\
 https://nytimes.com/athletic/6909002/2025/12/21/martinez-injury-head-villa-united-news-critcism/
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/6909066/2025/12/21/rockets-vs-kings-stream-how-to-w
 **How to watch Golden Knights vs. Oilers: Time, TV, streaming**\
 `Find out how to watch the Vegas Golden Knights play the Edmonton Oilers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6909064/2025/12/21/golden-knights-vs-oilers-stream-how-to-watch-dec-21/
-
-**Chiefs QB Gardner Minshew ruled out vs. Titans with knee injury**\
-`Minshew, starting for the Chiefs in place of the injured Patrick Mahomes, left the game in the second quarter. Chris Oladokun replaced him.`\
-https://nytimes.com/athletic/6908988/2025/12/21/gardner-minshew-injury-chiefs-backup-qb-chris-oladokun/
 
