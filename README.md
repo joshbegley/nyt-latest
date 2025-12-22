@@ -1,4 +1,4 @@
-**DK Metcalf suspended 2 games for altercation with fan in Detroit**\
+**Steelers WR DK Metcalf suspended 2 games for altercation with fan in Detroit**\
 `CBS cameras captured the Steelers wide receiver taking a swing at a fan during Sunday's game at Ford Field.`\
 https://nytimes.com/athletic/6911229/2025/12/22/dk-metcalf-fan-punishment-nfl/
 
