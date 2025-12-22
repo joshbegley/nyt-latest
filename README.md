@@ -1,3 +1,23 @@
+**Change Bath Towels Every Three Days**\
+`How often do you wash your towels? It’s recommended to swap them out every three days. We’ve tested towels since 2017 and have some tips on how to care for them.`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010604854/change-bath-towels-every-three-days.html
+
+**Will You Have a White Christmas This Year?**\
+`Look up your location to find out.`\
+https://nytimes.com/interactive/2025/12/22/weather/white-christmas-forecast-2025.html
+
+**How We Test Bath Towels**\
+`Jackie Reeve has been testing towels for Wirecutter for nearly a decade. Five standout towels made the top of her list.`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010604827/how-we-test-bath-towels.html
+
+**Liverpool's Isak undergoes surgery for leg fracture, expected to miss multiple months**\
+`Isak suffered the injury in Saturday’s 2-1 win over Tottenham Hotspur.`\
+https://nytimes.com/athletic/6910643/2025/12/22/liverpool-alexander-isak-injury-latest/
+
+**What to Know About Norovirus**\
+`The virus, sometimes called the stomach bug, is incredibly contagious. Here’s how to stay safe this season.`\
+https://nytimes.com/2025/12/22/well/norovirus-symptoms-precautions.html
+
 **Chris Rea, Grammy-Nominated British Rocker, Dies at 74**\
 `The Blues-influenced singer and guitarist built a lasting career, particularly in Europe, with hits that included “Driving Home for Christmas” and “Fool (If You Think It’s Over).”`\
 https://nytimes.com/2025/12/22/arts/music/chris-rea-dead-driving-home-christmas.html
@@ -17,24 +37,4 @@ https://nytimes.com/video/dining/100000010604279/sesame-scallion-buns.html
 **Yuzu and Raspberry Tart**\
 `Yuzu is an East Asian citrus fruit whose flavor is similar to lemon or lime, with a slight floral undertone and pleasant bitterness. In this tart, the acidity of the yuzu is balanced with just enough sweetness to help it shine, and a bit of butter gives the citrus curd a smooth, creamy texture.`\
 https://nytimes.com/video/dining/100000010604281/yuzu-and-raspberry-tart.html
-
-**Tiramisù Pie**\
-`What happens when you cross a tiramisù with a cream pie? Here, rich tiramisù-flavored cream and coffee-soaked ladyfingers are layered into a dark, crisp Oreo crust and covered with a confetti of chocolate curls.`\
-https://nytimes.com/video/dining/100000010604284/tiramisu-pie.html
-
-**Pastis Gascon (Crispy Apple Pie)**\
-`Apple pie has a French cousin, and its name is pastis Gascon. Hailing from Gascony in southwestern France, it is the meeting of several divine things: Apples, Armagnac and phyllo.`\
-https://nytimes.com/video/dining/100000010604262/pastis-gascon-crispy-apple-pie.html
-
-**Ohio AD says he was 'surprised' by details of coach Brian Smith's firing**\
-`Smith’s lawyer has said they plan to fight what they claim is wrongful termination.`\
-https://nytimes.com/athletic/6911927/2025/12/22/ohio-football-brian-smith-slade-larscheid/
-
-**How to watch Penn State vs. Clemson: Pinstripe Bowl Start Time, TV, streaming**\
-`Find out how to watch the Penn State Nittany Lions play the Clemson Tigers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6912005/2025/12/22/penn-state-vs-clemson-stream-how-to-watch-dec-27/
-
-**Steve Kerr on Why N.B.A. Stars Are Playing Longer Than Ever**\
-`Steve Kerr joins Zena Keita on “The Athletic Show” to explain how modern training methods and financial investment allow superstars like Stephen Curry and LeBron James to extend their prime years far beyond the norms of the Michael Jordan-era.`\
-https://nytimes.com/video/the-athletic/100000010604391/steve-kerr-on-why-nba-stars-are-playing-longer-than-ever.html
 
