@@ -1,3 +1,7 @@
+**Bondi Beach Shooting Suspects Also Used Pipe Bombs in Attack, Police Say**\
+`But the explosives did not detonate, according to investigators, who also found a video of the two men training with firearms.`\
+https://nytimes.com/2025/12/22/world/australia/bondi-beach-shooting-pipebombs.html
+
 **Russian General Is Killed in Car Bombing in Moscow**\
 `The attack appeared to be the latest targeted assassination of a senior military official inside Russia’s borders.`\
 https://nytimes.com/2025/12/22/world/europe/russia-moscow-general-killed.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000010603089/epstein-files-trump.html
 **Word of the Day: magnanimous**\
 `This word has appeared in 43 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/12/22/learning/word-of-the-day-magnanimous.html
-
-**The New York Times in Print for Monday, Dec. 22, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/12/22/todays-new-york-times
 
