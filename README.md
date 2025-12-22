@@ -30,7 +30,3 @@ https://nytimes.com/athletic/6910791/2025/12/22/backup-qbs-fantasy-football-wr-o
 `Try this short quiz to see how many fun facts about authors and books you can recall.`\
 https://nytimes.com/interactive/2025/12/22/books/review/literary-trivia-quiz.html
 
-**How to watch Western Michigan vs. Ohio State women's basketball: Time, TV, streaming**\
-`Find out how to watch the Western Michigan Broncos play the Ohio State Buckeyes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6911413/2025/12/22/western-michigan-vs-ohio-state-stream-how-to-watch-dec-22/
-
