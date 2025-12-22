@@ -1,3 +1,7 @@
+**In Congress and at Home, Omar Faces Trump’s Anti-Somali Attacks**\
+`Representative Ilhan Omar, Democrat of Minnesota, has long been a target of racist insults by the president. Now her whole community faces an immigration crackdown.`\
+https://nytimes.com/2025/12/22/us/politics/ilhan-omar-trump-attacks.html
+
 **NBA Rewind: Coaches don't have much Christmas cheer for referees**\
 `Plus, who's hot (Spurs, Bulls) and not (Kings, Hawks) as the league's showcase holiday games loom.`\
 https://nytimes.com/athletic/6897185/2025/12/22/nba-rewind-coaches-officials-spurs/
