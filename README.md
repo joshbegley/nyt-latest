@@ -1,3 +1,7 @@
+**T206 Honus Wagner card going to auction after 116 years with one family**\
+`The once publicly unaccounted for T206 Wagner card is one of 53 examples that have been graded by authentication services PSA and SGC.`\
+https://nytimes.com/athletic/6911059/2025/12/22/t206-honus-wagner-auction-goldin/
+
 **NBA Power Rankings: Spurs are contenders; revisiting early-season questions**\
 `Some inquiries we had two months ago look silly now (sorry, Clippers). Other concerns were spot on.`\
 https://nytimes.com/athletic/6910999/2025/12/22/nba-power-rankings-spurs-thunder-knicks/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/22/us/politics/ilhan-omar-trump-attacks.html
 **NBA Rewind: Coaches don't have much Christmas cheer for referees**\
 `Plus, who's hot (Spurs, Bulls) and not (Kings, Hawks) as the league's showcase holiday games loom.`\
 https://nytimes.com/athletic/6897185/2025/12/22/nba-rewind-coaches-officials-spurs/
-
-**Trump Halts Five Wind Farms Off the East Coast**\
-`The Interior Department said the projects posed national security risks, without providing details. The decision imperils billions of dollars of investments.`\
-https://nytimes.com/2025/12/22/climate/trump-offshore-wind-farms.html
 
