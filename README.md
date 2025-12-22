@@ -1,3 +1,23 @@
+**Kilman critics, black balloons and Haaland’s revenge – Watching West Ham from the away end (again)**\
+`In August, The Athletic swapped the press box for the stands as West Ham won 3-0. Four months later, hopes of a repeat were slim...`\
+https://nytimes.com/athletic/6906497/2025/12/22/west-ham-manchester-city-premier-league-away-end-haaland/
+
+**The statistics speak for themselves - Brighton are too reliant on Danny Welbeck**\
+`Whether it be Evan Ferguson returning early from his Roma loan or a winter-window signing, the forward line needs bolstering`\
+https://nytimes.com/athletic/6906715/2025/12/22/brighton-sunderland-danny-welbeck-analysis/
+
+**From Old Trafford ghosts to Villa Park euphoria: Inside Emery’s Aston Villa transformation**\
+`If the previous game against United started the rut, the final match before Christmas was the end of it`\
+https://nytimes.com/athletic/6909114/2025/12/22/aston-villa-transformation-unai-emery/
+
+**Even Romero's most ardent advocates can't defend his latest act of petulance**\
+`With his team already a man down, Tottenham's captain picked up a late red card as they chased an equaliser against Liverpool`\
+https://nytimes.com/athletic/6907192/2025/12/22/cristian-romero-tottenham-liverpool-analysis/
+
+**Long throws, corners, free kicks – how old-school tactics are helping Leeds' survival bid**\
+`Set-piece goals will be crucial to keeping Leeds United in the league, a prospect that is looking rosier`\
+https://nytimes.com/athletic/6907922/2025/12/22/leeds-united-long-throws-crystal-palace/
+
 **Chelsea were facing defeat at Newcastle. This is how Maresca turned it around**\
 `The head coach's tactical tweak and personnel change altered the course of the match at St James' Park`\
 https://nytimes.com/athletic/6908261/2025/12/22/chelsea-maresca-newcastle-tactics/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6906161/2025/12/22/manchester-united-ineos-women-cy
 **Morocco want to be football's new superpower. The path will be a challenging one**\
 `While the Africa Cup of Nations hosts have grand ambitions on and off the field, not everyone is happy about it`\
 https://nytimes.com/athletic/6906264/2025/12/22/morocco-football-superpower-afcon-2025/
-
-**Liverpool's options without Isak: Buy in January? Restore Salah? Elliott's return?**\
-`Analysing how Arne Slot could deal with the lengthy absence of his record signing`\
-https://nytimes.com/athletic/6908907/2025/12/22/alexander-isak-liverpool-injury-options/
-
-**Everton were again subjected to 'Feed the Scousers' chants. They had the perfect riposte**\
-`Poverty chants are a bleak staple of the festive schedule on Merseyside, but Everton are using them to promote a foodbank initiative`\
-https://nytimes.com/athletic/6908128/2025/12/22/everton-feed-the-scousers-song/
-
-**Race to the No. 1 pick: Titans' win over Chiefs turns it into four-team race**\
-`It's now essentially a four-team race after Tennessee's win Sunday, with next week's Giants-Raiders match looming large. `\
-https://nytimes.com/athletic/6909125/2025/12/22/nfl-draft-2026-top-pick-raiders-giants-jets-browns/
-
-**No Corrections: Dec. 22, 2025**\
-`No corrections appeared in print on Monday, Dec. 22, 2025.`\
-https://nytimes.com/2025/12/22/corrections/no-corrections-dec-22-2025.html
-
-**Quote of the Day: A Weekly Salon for Those Who Fled Nazis Ends**\
-`Quotation of the Day for Monday, December 22, 2025.`\
-https://nytimes.com/2025/12/22/pageoneplus/quote-of-the-day-a-weekly-salon-for-those-who-fled-nazis-ends.html
 
