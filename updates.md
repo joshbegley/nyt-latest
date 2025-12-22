@@ -1,3 +1,15 @@
+**U.K. Man and 5 Others Charged With Sexual Offenses Against His Wife**\
+`Philip Young, 49, is accused of drugging and raping his now ex-wife over a 13-year period.`\
+https://nytimes.com/2025/12/22/world/europe/philip-young-wife-rape-charges.html
+
+**Mercedes to Pay $150 Million Over Claims It Cheated on Emissions Tests**\
+`It’s the latest in a decade-long scandal involving accusations that software “defeat devices” made diesel vehicles seem cleaner than they were.`\
+https://nytimes.com/2025/12/22/climate/mercedes-defeat-devices-dieselgate-emissions-settlement.html
+
+**Inside the Deportation Machine**\
+`An analysis of data on every ICE arrest, detention stay and deportation reveals the complexity and reach of President Trump’s immigration crackdown.`\
+https://nytimes.com/interactive/2025/12/22/us/trump-immigration-deportation-network-ice-arrests.html
+
 **Some of the World’s Atomic Clocks Were Off Last Week (by 5-Millionths of a Second)**\
 `How some of the world’s most precise clocks missed a very small beat.`\
 https://nytimes.com/2025/12/22/science/atomic-clock-late-colorado.html
