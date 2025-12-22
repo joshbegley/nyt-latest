@@ -1,3 +1,7 @@
+**USMNT's McKennie says he hopes to stay at Juventus with contract set to expire in 2026**\
+`McKennie has made 204 appearances for Juventus since joining in 2020, scoring 20 goals and providing 22 assists.`\
+https://nytimes.com/athletic/6912166/2025/12/22/weston-mckennie-juventus-contract-usmnt/
+
 **West Ham's Fullkrug given permission to undergo medical for Milan loan**\
 `Fullkrug, 32, has struggled for minutes and fitness since joining West Ham from Borussia Dortmund on a four-year deal in August 2024.`\
 https://nytimes.com/athletic/6911118/2025/12/22/milan-niclas-fullkrug-west-ham-loan-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/video/magazine/100000010604821/writer-raja-shehadeh-zionism-
 **Why Palestinians and Israelis Don’t Know One Another**\
 `Raja Shehadeh, the Palestinian writer, lawyer and human rights activist, believes that peace between Israelis and Palestinians remains possible. On the latest edition of “The Interview,” Shehadeh talks to David Marchese about his life, his work and what he thinks needs to happen to get there.`\
 https://nytimes.com/video/magazine/100000010604468/why-palestinians-and-israelis-dont-know-one-another.html
-
-**What righty Brad Keller brings to the Phillies after his breakthrough 2025**\
-`The Phillies believe the version of Keller who excelled in the Cubs' bullpen in 2025 is the version they'll see moving forward.`\
-https://nytimes.com/athletic/6911993/2025/12/22/brad-keller-phillies-team-fit/
 
