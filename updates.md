@@ -1,3 +1,7 @@
+**NFL overreactions: The stockings are stuffed with 13 picks for Christmas week**\
+`Toby Mergler gives the gift of Week 17 NFL picks — in the form of a Christmas poem. `\
+https://nytimes.com/athletic/6911298/2025/12/22/nfl-week-17-overreactions-betting-christmas/
+
 **Agriculture Department Sheds a Fifth of Its Workers**\
 `From January to June, more than 20,000 employees out of more than 110,000 left the agency, according a report by the agency’s inspector general.`\
 https://nytimes.com/2025/12/22/us/politics/trump-agriculture-department-resignations-cuts.html
