@@ -1,3 +1,11 @@
+**Chiefs announce plans to move to Kansas and build domed stadium**\
+`The Chiefs will move to a state-of-the-art domed stadium in Kansas rather than renovate 53-year-old Arrowhead Stadium in Missouri.`\
+https://nytimes.com/athletic/6911787/2025/12/22/chiefs-kansas-move-new-stadium-arrowhead/
+
+**Understanding Male Loneliness**\
+`Why is it harder for men to have intimate friendships into adulthood?`\
+https://nytimes.com/2025/12/22/world/male-loneliness-friendships-moscow-assassination.html
+
 **Change Bath Towels Every Three Days**\
 `How often do you wash your towels? It’s recommended to swap them out every three days. We’ve tested towels since 2017 and have some tips on how to care for them.`\
 https://nytimes.com/video/smarter-living/wirecutter/100000010604854/change-bath-towels-every-three-days.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/22/business/epstein-victims-justice-dept-files-relea
 **Restaurant Review: ChòpnBlok in Houston**\
 `In the age of boring bowls, Ope Amosu’s ChòpnBlok in Houston brings a welcome jolt of flavor, energy and joy.`\
 https://nytimes.com/video/dining/100000010604269/restaurant-review-chopnblok-in-houston.html
-
-**Sesame Scallion Buns**\
-`Crackly fried Chinese scallion pancakes take the form of baked buns here, crisp on the sesame-speckled outside and tender within.`\
-https://nytimes.com/video/dining/100000010604279/sesame-scallion-buns.html
-
-**Yuzu and Raspberry Tart**\
-`Yuzu is an East Asian citrus fruit whose flavor is similar to lemon or lime, with a slight floral undertone and pleasant bitterness. In this tart, the acidity of the yuzu is balanced with just enough sweetness to help it shine, and a bit of butter gives the citrus curd a smooth, creamy texture.`\
-https://nytimes.com/video/dining/100000010604281/yuzu-and-raspberry-tart.html
 

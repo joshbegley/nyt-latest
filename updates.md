@@ -1,3 +1,23 @@
+**Change Bath Towels Every Three Days**\
+`How often do you wash your towels? It’s recommended to swap them out every three days. We’ve tested towels since 2017 and have some tips on how to care for them.`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010604854/change-bath-towels-every-three-days.html
+
+**Will You Have a White Christmas This Year?**\
+`Look up your location to find out.`\
+https://nytimes.com/interactive/2025/12/22/weather/white-christmas-forecast-2025.html
+
+**How We Test Bath Towels**\
+`Jackie Reeve has been testing towels for Wirecutter for nearly a decade. Five standout towels made the top of her list.`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010604827/how-we-test-bath-towels.html
+
+**Liverpool's Isak undergoes surgery for leg fracture, expected to miss multiple months**\
+`Isak suffered the injury in Saturday’s 2-1 win over Tottenham Hotspur.`\
+https://nytimes.com/athletic/6910643/2025/12/22/liverpool-alexander-isak-injury-latest/
+
+**What to Know About Norovirus**\
+`The virus, sometimes called the stomach bug, is incredibly contagious. Here’s how to stay safe this season.`\
+https://nytimes.com/2025/12/22/well/norovirus-symptoms-precautions.html
+
 **Chris Rea, Grammy-Nominated British Rocker, Dies at 74**\
 `The Blues-influenced singer and guitarist built a lasting career, particularly in Europe, with hits that included “Driving Home for Christmas” and “Fool (If You Think It’s Over).”`\
 https://nytimes.com/2025/12/22/arts/music/chris-rea-dead-driving-home-christmas.html
