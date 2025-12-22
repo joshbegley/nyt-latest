@@ -1,3 +1,7 @@
+**Some of the World’s Atomic Clocks Were Off Last Week (by 5-Millionths of a Second)**\
+`How some of the world’s most precise clocks missed a very small beat.`\
+https://nytimes.com/2025/12/22/science/atomic-clock-late-colorado.html
+
 **Canada Announces Former BlackRock Executive as Ambassador to U.S.**\
 `Mark Wiseman has held high-profile roles in law, business consulting and finance, and will lead Canada’s efforts to reboot diplomatic relation with Washington at a critical moment.`\
 https://nytimes.com/2025/12/22/world/canada/mark-wiseman-canada-us-ambassador.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/22/opinion/holiday-hosting-stress.html
 **Arizona still No. 1, Duke drops to No. 6 in latest men's AP Top 25**\
 `The Blue Devils slid three spots to No. 6 after their first loss of the season, 82-81 to Texas Tech in New York City.`\
 https://nytimes.com/athletic/6910859/2025/12/22/ap-mens-basketball-top-25-rankings-arizona-duke/
-
-**Georgia starting edge rusher Gabe Harris dealing with turf toe injury**\
-`Harris' emergence has been key to the team’s defensive surge late this season.`\
-https://nytimes.com/athletic/6911659/2025/12/22/georgia-gabe-harris-turf-toe-injury/
 
