@@ -1,40 +1,40 @@
-**Take The Athletic’s 2025 college football TV survey**\
-`From conference realignment to Playoff debates to new faces, every year brings changes to college football's TV product.`\
-https://nytimes.com/athletic/6910008/2025/12/22/athletic-2025-college-football-tv-survey/
+**Injuries, illness and poor play combine for dismal loss: 'We didn't play with pride'**\
+`As center Vincent Trocheck put it, the Rangers "looked f---ing dead" in a sluggish loss to the bottom-feeding Predators.`\
+https://nytimes.com/athletic/6910227/2025/12/22/rangers-sullivan-trocheck-predators/
 
-**Kevin Stefanski and the Browns have fallen off a cliff in historical fashion**\
-`Once seven games over .500, Stefanski is now 13 below, and his offense is in the middle of the worst three-season stretch this century.`\
-https://nytimes.com/athletic/6910711/2025/12/22/kevin-stefanski-browns-hot-seat/
+**'It's not just tonight': Blowout is another signal of Bruins trouble**\
+`Boston is barely outside the playoff window, but trending downward after recent poor performances.`\
+https://nytimes.com/athletic/6910313/2025/12/22/bruins-in-trouble-loss-senators/
 
-**What did the Steelers expect from DK Metcalf?**\
-`Pittsburgh traded George Pickens over maturity concerns but invested in Metcalf despite a history of outbursts. That doesn't look great now.`\
-https://nytimes.com/athletic/6910683/2025/12/22/dk-metcalf-fan-lions-steelers/
+**A chaotic finish, a crushing penalty and the Lions now staring at elimination**\
+`There were plenty of reasons the Lions lost, from a stunning end-of-half TD, to 230 rushing yards allowed, to costly end-of-game penalties.`\
+https://nytimes.com/athletic/6910363/2025/12/22/lions-playoff-hopes-loss-steelers/
 
-**This time, the Steelers look like they belong in the NFL playoffs**\
-`With a wild win in Detroit, the Steelers made it three in a row at the most important juncture of the season.`\
-https://nytimes.com/athletic/6910445/2025/12/22/pittsburgh-steelers-win-detroit-lions-playoffs/
+**Notre Dame's two long weeks at the center of a CFP it didn't even play in**\
+`A year ago, Notre Dame was the center of the college football universe. This month, it has been a different kind of star of the CFP.`\
+https://nytimes.com/athletic/6908501/2025/12/22/notre-dame-college-football-playoff-controversy/
 
-**The Jets' most impressive feat in New Orleans came from the radio booth**\
-`Radio play-by-play man Bob Wischusen had a long journey to New Orleans after calling a CFP game in Oregon Saturday night.`\
-https://nytimes.com/athletic/6910205/2025/12/22/bob-wischusen-new-york-jets-radio-cfp/
+**Red Bull boss Laurent Mekies has seen it all in F1, but remains a keen fan**\
+`Red Bull team boss Laurent Mekies has always loved motorsport, but he never dared to dream he'd won day work - and win - in F1`\
+https://nytimes.com/athletic/6900409/2025/12/22/red-bull-f1-team-boss-laurent-mekies/
 
-**What we learned in NFL Week 16: Time to take Jaguars seriously, here come the Bears**\
-`After Caleb Williams' throw, Amon-Ra St. Brown's push-off and K'Lavon Chaisson's punch-out, the NFL’s playoff field is coming into focus.`\
-https://nytimes.com/athletic/6909980/2025/12/22/nfl-week-16-takeaways-jaguars-liam-coen-trevor-lawrence/
+**Sidney Crosby makes history and leads Penguins to a much-needed win: Yohe's observations**\
+`Sidney Crosby finally caught Mario Lemieux and the Penguins finally won a game in a shootout, beating Montreal 4-3 on Sunday. `\
+https://nytimes.com/athletic/6910221/2025/12/22/sidney-crosby-penguins-shootout-victory-observations/
 
-**Climb aboard the Bears’ magic carpet ride, stadium headaches be damned: Sando's Pick Six**\
-`The love between Caleb Williams and Ben Johnson seems real, and that's far from the only thing Bears fans should be thrilled about.`\
-https://nytimes.com/athletic/6889263/2025/12/22/bears-caleb-williams-ben-johnson-kevin-warren/
+**Shedeur Sanders shows fight, but Browns need to target QB in draft**\
+`Could Sanders improve with more reps? Of course. Unfortunately, the Browns don’t have time to waste, and they're likely to have a high pick.`\
+https://nytimes.com/athletic/6909897/2025/12/22/shedeur-sanders-browns-need-to-draft-qb/
 
-**The Jaguars' statement win was hardly their first. It also underscored a Broncos concern**\
-`The small-market Jaguars are demanding league-wide attention, exposing a Broncos defense that had quietly been struggling for weeks.`\
-https://nytimes.com/athletic/6910694/2025/12/22/jaguars-trevor-lawrence-broncos-defense/
+**Rosenthal: The Red Sox have created a financial path for a big move. Bregman should be their first choice**\
+`The way Craig Breslow has operated this offseason, with one economically shrewd move after another, the Sox are in position to strike.`\
+https://nytimes.com/athletic/6910359/2025/12/22/red-sox-finances-alex-bregman/
 
-**The New York Times International Edition in Print for Tuesday, Dec. 23, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/12/22/todays-new-york-times-international-edition
+**Ranking the top 25 NHL prospects playing at the 2026 World Juniors**\
+`Based on their NHL projections, these players are the top prospects at the 2026 World Juniors in Minnesota.`\
+https://nytimes.com/athletic/6893799/2025/12/22/top-nhl-prospect-2026-world-juniors-iihf/
 
-**How to watch North Carolina Central vs. Oklahoma women's basketball: Time, TV, streaming**\
-`Find out how to watch the North Carolina Central Eagles play the Oklahoma Sooners, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6910770/2025/12/22/north-carolina-central-vs-oklahoma-stream-how-to-watch-dec-22/
+**NHL weekend rankings: Time for another round of holiday panic**\
+`Sometimes you know what you're getting with a team, even when first impressions imply otherwise. Other times, it's hard to have a clue.`\
+https://nytimes.com/athletic/6909370/2025/12/22/nhl-weekend-rankings-blue-jackets-panthers-jets/
 
