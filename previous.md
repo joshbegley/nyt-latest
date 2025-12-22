@@ -1,3 +1,7 @@
+**Red Sox acquire Contreras from Cardinals, get needed righty bat: Sources**\
+`The Cardinals will receive pitcher Hunter Dobbins and two minor-league pitching prospects in exchange for the 33-year-old first baseman.`\
+https://nytimes.com/athletic/6894181/2025/12/21/willson-contreras-trade-cardinals-red-sox-mlb-news/
+
 **Is Jaxson Dart regressing, or are Giants QB's recent struggles just rookie growing pains?**\
 `It’s impossible to ignore that Dart's performance has declined in his three games since Brian Daboll was fired and Mike Kafka took over.`\
 https://nytimes.com/athletic/6909731/2025/12/21/ny-giants-jaxson-dart-regress-vikings/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6908807/2025/12/21/jaguars-broncos-score-result-tak
 **Russia Dismisses Reports of Progress in Ukraine Peace Talks**\
 `Proposals that emerged in recent negotiations with the United States were “rather unconstructive,” a Kremlin official said on Sunday.`\
 https://nytimes.com/2025/12/21/world/europe/ukraine-peace-talks.html
-
-**The lasting image from the Chiefs' latest loss — this one without Patrick Mahomes**\
-`A moment from the second quarter brought out the pride and anger of a couple of Chiefs veterans in their fourth straight loss.`\
-https://nytimes.com/athletic/6908835/2025/12/21/chiefs-titans-loss-trey-smith-creed-humphrey/
 
