@@ -1,3 +1,7 @@
+**Vince Zampella, Formative Designer of Call of Duty Games, Dies at 55**\
+`Mr. Zampella co-founded two game studios and worked on the Medal of Honor, Titanfall, Apex Legends and Battlefield franchises.`\
+https://nytimes.com/2025/12/22/arts/vince-zampella-dead.html
+
 **Are the White Sox and Munetaka Murakami a match made in desperation or potential?**\
 `This isn't a long-term deal but more of an opportunity for Munetaka to show what he can do in MLB while giving the Sox some star power.`\
 https://nytimes.com/athletic/6911955/2025/12/22/white-sox-munetaka-murakami-analysis/
