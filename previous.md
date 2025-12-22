@@ -1,3 +1,7 @@
+**Larry Ellison Personally Guarantees Paramount Bid for Warner Brothers**\
+`Mr. Ellison’s personal guarantee is meant to address concerns that the Warner Bros. Discovery’s board had expressed about Paramount’s original offer.`\
+https://nytimes.com/2025/12/22/business/larry-ellison-paramount-warner-brothers-bid.html
+
 **2025 in Pictures**\
 `Which of the images in this Times collection best captures how you’ll remember this year?`\
 https://nytimes.com/2025/12/22/learning/2025-in-pictures.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6908878/2025/12/22/evan-bouchard-stats-oilers-canad
 **Riding a High, Deal Makers Grow Bullish on 2026**\
 `It was a comeback year for I.P.O.s. and mergers and acquisitions. Wall Street is optimistic that the winning streak will continue.`\
 https://nytimes.com/2025/12/22/business/dealbook/deals-ipos-2026-forecast.html
-
-**Wordle Review No. 1,648**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, Dec. 23, 2025.`\
-https://nytimes.com/2025/12/22/crosswords/wordle-review-1648.html
 

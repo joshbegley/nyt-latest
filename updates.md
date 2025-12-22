@@ -1,3 +1,7 @@
+**Larry Ellison Personally Guarantees Paramount Bid for Warner Brothers**\
+`Mr. Ellison’s personal guarantee is meant to address concerns that the Warner Bros. Discovery’s board had expressed about Paramount’s original offer.`\
+https://nytimes.com/2025/12/22/business/larry-ellison-paramount-warner-brothers-bid.html
+
 **2025 in Pictures**\
 `Which of the images in this Times collection best captures how you’ll remember this year?`\
 https://nytimes.com/2025/12/22/learning/2025-in-pictures.html
