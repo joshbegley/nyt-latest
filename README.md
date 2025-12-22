@@ -1,3 +1,7 @@
+**Playwrights Horizons Is Sued Over Discounts to People of Color**\
+`The lawsuit, against the prominent Off Broadway theater, is backed by Edward Blum, who has long challenged race-based policies. Playwrights called it “meritless.”`\
+https://nytimes.com/2025/12/22/theater/playwrights-horizons-lawsuit-race-based-discounts.html
+
 **Jerry Kasenetz, a King of Bubblegum Pop Music, Dies at 82**\
 `With his producing partner, Jeffry Katz, he made lightweight ditties like “Yummy Yummy Yummy” that soared up the charts in the late 1960s.`\
 https://nytimes.com/2025/12/22/arts/music/jerry-kasenetz-dead.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/22/world/europe/philip-young-wife-rape-charges.html
 **Mercedes to Pay $150 Million Over Claims It Cheated on Emissions Tests**\
 `It’s the latest in a decade-long scandal involving accusations that software “defeat devices” made diesel vehicles seem cleaner than they were.`\
 https://nytimes.com/2025/12/22/climate/mercedes-defeat-devices-dieselgate-emissions-settlement.html
-
-**Inside the Deportation Machine**\
-`An analysis of data on every ICE arrest, detention stay and deportation reveals the complexity and reach of President Trump’s immigration crackdown.`\
-https://nytimes.com/interactive/2025/12/22/us/trump-immigration-deportation-network-ice-arrests.html
 
