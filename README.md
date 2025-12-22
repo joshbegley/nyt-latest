@@ -1,3 +1,7 @@
+**Fatigued-looking Wild get rolled in a rare flat performance at home: Takeaways**\
+`On the second night of a back-to-back, the Wild just didn't have the legs to keep up with the NHL's best team.`\
+https://nytimes.com/athletic/6909846/2025/12/21/wild-nelson-hughes-avalanche/
+
 **Vance Refuses to Take Sides in G.O.P. Fight Over Bigotry**\
 `The vice president’s plea for a big-tent coalition at an annual conservative gathering belied the cracks in his party over antisemitism, racism and conspiracy theories.`\
 https://nytimes.com/2025/12/21/us/politics/vance-republicans-trump-antisemitism.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6909877/2025/12/21/brian-flores-wrong-brian-giants-
 **First the Louvre, Now the Presidential Palace: New Theft Rattles France**\
 `In what prosecutors say was an inside job, copper pots, porcelain and Baccarat Champagne glasses were stolen from the inventory of the Élysée Palace.`\
 https://nytimes.com/2025/12/21/world/europe/elysee-palace-theft.html
-
-**'We want to be the underdog': Chargers, once an afterthought, are turning into contenders**\
-`The Chargers control their own path to the AFC West title with two weeks to play. `\
-https://nytimes.com/athletic/6909803/2025/12/21/chargers-win-cowboys-week-16-afc-playoff-picture/
 
