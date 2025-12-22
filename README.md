@@ -1,3 +1,7 @@
+**Agriculture Department Shed a Fifth of Its Workers**\
+`From January to June, more than 20,000 employees out of more than 110,000 left the agency, according a report by the agency’s inspector general.`\
+https://nytimes.com/2025/12/22/us/politics/agriculture-department-shed-a-fifth-of-its-workers.html
+
 **Fantasy football Week 16 recap, early waivers speed run: Surprises, letdowns and injuries**\
 `Jake Ciely looks ahead to Week 17 and reviews a Week 16 that had extreme highs and devastating lows. `\
 https://nytimes.com/athletic/6911203/2025/12/22/fantasy-football-week-16-recap-waivers/
@@ -25,8 +29,4 @@ https://nytimes.com/2025/12/22/dining/easy-new-years-party-spread.html
 **Ex-C.I.A. Chief Asks to Keep Justice Dept. From Steering Case to Favored Judge**\
 `The request, addressed to the top federal judge in Miami, sought to block a U.S. attorney from pursuing a politically charged inquiry before Judge Aileen Cannon, who has repeatedly decided in President Trump’s favor.`\
 https://nytimes.com/2025/12/22/us/politics/trump-doj-investigation-judge-cannon-brennan-cia.html
-
-**For Fallen Syrian Dictator Assad and Family, an Exile of Luxury and Impunity**\
-`Bashar al-Assad’s long, brutal reign ended swiftly, but he and his close circle have had a soft landing in Russia.`\
-https://nytimes.com/2025/12/22/world/middleeast/assad-syria-exile-luxury.html
 

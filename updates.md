@@ -1,3 +1,15 @@
+**Fantasy football Week 16 recap, early waivers speed run: Surprises, letdowns and injuries**\
+`Jake Ciely looks ahead to Week 17 and reviews a Week 16 that had extreme highs and devastating lows. `\
+https://nytimes.com/athletic/6911203/2025/12/22/fantasy-football-week-16-recap-waivers/
+
+**Notre Dame, USC fail to reach agreement, will not play until at least 2028 season**\
+`Excluding the 2020 pandemic season and three seasons during World War II in the 1940s, the two schools have played every year since 1926.`\
+https://nytimes.com/athletic/6911524/2025/12/22/notre-dame-usc-football-series-ending/
+
+**Jim Beam Halts Production, as Whiskey Market Struggles**\
+`The bourbon giant is closing its flagship distilling operation for all of 2026.`\
+https://nytimes.com/2025/12/22/dining/jim-beam-production-pause-whiskey-bourbon.html
+
 **Plans to host Serie A game between Milan and Como in Australia cancelled**\
 `Serie A's president said that the plans had been cancelled "due to an escalation of further unacceptable demands" by the AFC.`\
 https://nytimes.com/athletic/6486073/2025/12/22/serie-a-abroad-league-game/
