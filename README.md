@@ -1,3 +1,7 @@
+**Canada Announces Former BlackRock Executive as Ambassador to U.S.**\
+`Mark Wiseman has held high-profile roles in law, business consulting and finance, and will lead Canada’s efforts to reboot diplomatic relation with Washington at a critical moment.`\
+https://nytimes.com/2025/12/22/world/canada/mark-wiseman-canada-us-ambassador.html
+
 **Ryan Day to call plays for Ohio State during College Football Playoff**\
 `Day is stepping back into play-calling duties for Ohio State with Brian Hartline dividing time as South Florida's new head coach.`\
 https://nytimes.com/athletic/6911698/2025/12/22/ohio-state-ryan-day-play-calling-playoff/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6910859/2025/12/22/ap-mens-basketball-top-25-rankin
 **Georgia starting edge rusher Gabe Harris dealing with turf toe injury**\
 `Harris' emergence has been key to the team’s defensive surge late this season.`\
 https://nytimes.com/athletic/6911659/2025/12/22/georgia-gabe-harris-turf-toe-injury/
-
-**Barry Manilow Is Diagnosed With Lung Cancer**\
-`The “Mandy” and “Copacabana” singer said he would undergo surgery to remove a cancerous spot on his left lung, and he postponed several concert dates.`\
-https://nytimes.com/2025/12/22/arts/music/barry-manilow-lung-cancer-surgery.html
 

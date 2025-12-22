@@ -1,3 +1,15 @@
+**Ryan Day to call plays for Ohio State during College Football Playoff**\
+`Day is stepping back into play-calling duties for Ohio State with Brian Hartline dividing time as South Florida's new head coach.`\
+https://nytimes.com/athletic/6911698/2025/12/22/ohio-state-ryan-day-play-calling-playoff/
+
+**Bernie Sanders to Lead Zohran Mamdani’s Public Swearing-In Ceremony**\
+`Mr. Sanders, a democratic socialist senator from Vermont, has supported New York City’s mayor-elect since the Democratic primary.`\
+https://nytimes.com/2025/12/22/nyregion/mamdani-sanders-inauguration.html
+
+**Did Charlie Javice’s 147-Member Legal Team Expense $529 in Gummy Bears?**\
+`JPMorgan has had to pay tens of millions in legal costs for the convicted fraudster. It wants the public to see a newly unredacted list of itemized expenses.`\
+https://nytimes.com/2025/12/22/business/charlie-javice-jpmorgan-legal-bills.html
+
 **Who Is Jeff Landry, Trump’s Special Envoy to Greenland?**\
 `Mr. Landry, the governor of Louisiana, is a fierce supporter of the president. But his experience in international relations isn’t extensive.`\
 https://nytimes.com/2025/12/22/us/jeff-landry-greenland-envoy-trump.html
