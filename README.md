@@ -1,3 +1,15 @@
+**Is Quince Luxury Quality? We Tested It**\
+`Quince bills itself as bargain-priced luxury. Does it deliver? Editor Annemarie Conte was suspicious, so she went on a weeks long investigation to find out.`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010603785/is-quince-luxury-quality-we-tested-it.html
+
+**How U.S. Defense Industry Dodged a Rare-Earth Shortage After China’s Curbs**\
+`America’s ability to make precision-guided missiles was threatened during Trump’s tariff war. But experienced players have rescued the supply chain, for now.`\
+https://nytimes.com/2025/12/22/business/defense-industry-rare-earth-restrictions-china.html
+
+**It’s Time for Tamales**\
+`Rick Martínez’s recipe is a hit with readers: “Wow. This is as legit as it gets. Amazing recipe, truly, truly authentic.”`\
+https://nytimes.com/2025/12/22/dining/its-time-for-tamales.html
+
 **Inside Our Tinned Fish Taste Test**\
 `Good tinned fish is a treat. On a very fishy day in the office, we tasted 109 promising-looking options and found 24 that we’d happily serve at a party or give as a gift, though many would make a nice meal for one, too.`\
 https://nytimes.com/video/smarter-living/wirecutter/100000010603748/inside-our-tinned-fish-taste-test.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6910999/2025/12/22/nba-power-rankings-spurs-thunder
 **Bill Belichick hires Bobby Petrino as new offensive coordinator at North Carolina: Reports**\
 `Petrino, who served as Arkansas' interim head coach for seven games in 2025, will call plays for the Tar Heels in 2026.`\
 https://nytimes.com/athletic/6911238/2025/12/22/bobby-petrino-unc-offensive-coordinator-belichick/
-
-**The Windup: A Christmas miracle in Chicago?**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/6911265/2025/12/22/munetka-murakami-white-sox-skaggs-settlement-the-windup/
-
-**Christmas Is Back in Bethlehem, but Peace and Joy Have Yet to Arrive**\
-`Palestinian Christians are reviving their seasonal public celebrations, hoping to bring light and holiday spirit at the end of a gloomy year in the West Bank.`\
-https://nytimes.com/2025/12/22/world/middleeast/christmas-in-bethlehem-west-bank.html
-
-**How Trump’s First Year Reshaped U.S. Energy and Climate Policy**\
-`The sweeping changes have affected everything from coal plant retirements to international diplomacy over shipping emissions.`\
-https://nytimes.com/2025/12/22/climate/how-trumps-first-year-reshaped-us-energy-and-climate-policy.html
 
