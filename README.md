@@ -1,3 +1,11 @@
+**West Ham's Fullkrug given permission to undergo medical for Milan loan**\
+`Fullkrug, 32, has struggled for minutes and fitness since joining West Ham from Borussia Dortmund on a four-year deal in August 2024.`\
+https://nytimes.com/athletic/6911118/2025/12/22/milan-niclas-fullkrug-west-ham-loan-transfer/
+
+**Nicki Minaj Praises Trump and Vance at Turning Point Event**\
+`The rapper Nicki Minaj, who previously criticized President Trump’s policies, praised him and Vice President JD Vance during a surprise appearance at a Turning Point USA event on Sunday.`\
+https://nytimes.com/video/us/politics/100000010603768/nicki-minaj-erika-kirk-turning-point.html
+
 **Steelers WR DK Metcalf suspended 2 games for altercation with fan in Detroit**\
 `CBS cameras captured the Steelers wide receiver taking a swing at a fan during Sunday's game at Ford Field.`\
 https://nytimes.com/athletic/6911229/2025/12/22/dk-metcalf-fan-punishment-nfl/
@@ -29,12 +37,4 @@ https://nytimes.com/video/magazine/100000010604468/why-palestinians-and-israelis
 **What righty Brad Keller brings to the Phillies after his breakthrough 2025**\
 `The Phillies believe the version of Keller who excelled in the Cubs' bullpen in 2025 is the version they'll see moving forward.`\
 https://nytimes.com/athletic/6911993/2025/12/22/brad-keller-phillies-team-fit/
-
-**Young Turning Point Crowd Finds Infighting Distracting**\
-`“It’s creating division instead of building a movement that keeps everyone together.”`\
-https://nytimes.com/2025/12/22/style/americafest-turning-point-usa-charlie-kirk.html
-
-**Banksy Gives Britain Another Bittersweet Christmas Gift**\
-`Two new London murals, widely attributed to the mysterious street artist, combine seasonal themes with what appears to be social commentary on rising child homelessness in Britain.`\
-https://nytimes.com/2025/12/22/world/europe/uk-banksy-mural-children-homeless.html
 
