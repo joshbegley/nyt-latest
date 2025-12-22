@@ -1,3 +1,7 @@
+**Car Bomb Kills Russian General in Moscow**\
+`A senior Russian general was killed when a bomb placed under his car exploded, the country’s investigative committee said, adding that it was looking into whether the bombing had been orchestrated by Ukraine.`\
+https://nytimes.com/video/world/europe/100000010603300/russia-general-car-bomb-moscow.html
+
 **Inside Real Madrid: Why was Vinicius Jr jeered again? What's the latest on Alonso?**\
 `The 25-year-old Brazilian posted a cryptic message on social media after Saturday's 2-0 home win over Sevilla`\
 https://nytimes.com/athletic/6910787/2025/12/22/real-madrid-vinicius-jr-xabi-alonso-sevilla/
