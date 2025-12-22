@@ -1,3 +1,11 @@
+**How Trump’s First Year Reshaped U.S. Energy and Climate Policy**\
+`The sweeping changes have affected everything from coal plant retirements to international diplomacy over shipping emissions.`\
+https://nytimes.com/2025/12/22/climate/how-trumps-first-year-reshaped-us-energy-and-climate-policy.html
+
+**The Bounce: A defense better than the Thunder's? Plus, Shaedon Sharpe gets big air**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/6911186/2025/12/22/the-bounce-spurs-defense-shaedon-sharpe/
+
 **How can the Bucks stop losing road games? Might be time to 'pray about it'**\
 `Sure, Giannis has been out for much of it, but Milwaukee has not won a road game since Nov. 10.`\
 https://nytimes.com/athletic/6910790/2025/12/22/bucks-losing-road-games-change-analysis/
