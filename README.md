@@ -1,3 +1,7 @@
+**Judge Orders Administration to Share Plans for Deportees to El Salvador Prison**\
+`The judge said the administration had to decide by Jan. 5 whether it wanted to “facilitate” the men’s return to the United States or let them challenge their initial removals in the federal courts.`\
+https://nytimes.com/2025/12/22/us/trump-boasberg-alien-enemies-act-venezuela.html
+
 **Trump Administration Declares Foreign-Made Drones a Security Threat**\
 `Americans won’t be able to buy new models from DJI, the Chinese maker of most of the world’s drones. But U.S. pilots can keep the drones they have.`\
 https://nytimes.com/2025/12/22/us/dji-drones-china-barred-us.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000010603768/nicki-minaj-erika-kirk-tur
 **Steelers WR DK Metcalf suspended 2 games for altercation with fan in Detroit**\
 `CBS cameras captured the Steelers wide receiver taking a swing at a fan during Sunday's game at Ford Field.`\
 https://nytimes.com/athletic/6911229/2025/12/22/dk-metcalf-fan-punishment-nfl/
-
-**The Briefing: Egypt 2 Zimbabwe 1 - Salah scores late winner as Pharaohs fight back to avoid upset**\
-`Ahmed Walid and Nnamdi Onyeagwara analyse the main talking points from Egypt's dramtic victory over Zimbabwe`\
-https://nytimes.com/athletic/6896156/2025/12/22/egypt-zimbabwe-africa-cup-of-nations/
 
