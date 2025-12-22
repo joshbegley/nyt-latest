@@ -1,3 +1,11 @@
+**Vance Refuses to Take Sides in G.O.P. Fight Over Bigotry**\
+`The vice president’s plea for a big-tent coalition at an annual conservative gathering belied the cracks in his party over antisemitism, racism and conspiracy theories.`\
+https://nytimes.com/2025/12/21/us/politics/vance-republicans-trump-antisemitism.html
+
+**Bijan Robinson 'big-time' again, hitting 2,000-yard milestone in hometown victory**\
+`Robinson passed 2,000 yards from scrimmage in his home state on Sunday in the Falcons' 26-19 win at the Cardinals.`\
+https://nytimes.com/athletic/6910076/2025/12/21/bijan-robinson-falcons-cardinals-2000-yards/
+
 **Bijan Robinson 'big-time' again, hitting 2,000-yard milestone in hometown victory**\
 `Robinson passed 2,000 yards from scrimmage in his home state on Sunday in the Falcons' 26-19 win over the Cardinals.`\
 https://nytimes.com/athletic/6910076/2025/12/21/bijan-robinson-falcons-cardinals-2000-yards/
