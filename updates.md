@@ -1,3 +1,7 @@
+**Do You Speak 2025?**\
+`Test your knowledge of the language that entered the vernacular this year.`\
+https://nytimes.com/interactive/2025/12/22/style/23ST-QUIZ-DO-YOU-SPEAK-2025-ADVENTURE.html
+
 **Vince Zampella, Formative Designer of Call of Duty Games, Dies at 55**\
 `Mr. Zampella co-founded two game studios and worked on the Medal of Honor, Titanfall, Apex Legends and Battlefield franchises.`\
 https://nytimes.com/2025/12/22/arts/vince-zampella-dead.html
