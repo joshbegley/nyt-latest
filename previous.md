@@ -1,3 +1,7 @@
+**‘60 Minutes’ Pulled a Segment. A Correspondent Calls It ‘Political.’**\
+`Sharyn Alfonsi, a “60 Minutes” correspondent, criticized the network’s decision to remove her reporting from Sunday’s edition of the show.`\
+https://nytimes.com/2025/12/21/business/60-minutes-trump-bari-weiss.html
+
 **Betty Reid Soskin, Nation’s Oldest Park Ranger, Dies at 104**\
 `She began working as a park ranger at age 85, educating visitors about the women and people of color who served on the home front in World War II — herself among them.`\
 https://nytimes.com/2025/12/21/us/betty-reid-soskin-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6909761/2025/12/21/cowboys-lose-jerry-jones-changes
 **J.J. McCarthy's hand injury could complicate Vikings' QB future despite win over Giants**\
 `The second-year QB was solid Sunday prior to the injury, and the Vikings hope it won't further stunt his growth and development.`\
 https://nytimes.com/athletic/6909834/2025/12/21/jj-mccarthy-hand-injury-vikings-giants/
-
-**Red Sox acquire Contreras from Cardinals, get needed righty bat: Sources**\
-`The Cardinals will receive pitcher Hunter Dobbins and two minor-league pitching prospects in exchange for the 33-year-old first baseman.`\
-https://nytimes.com/athletic/6894181/2025/12/21/willson-contreras-trade-cardinals-red-sox-mlb-news/
 

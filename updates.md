@@ -1,3 +1,7 @@
+**‘60 Minutes’ Pulled a Segment. A Correspondent Calls It ‘Political.’**\
+`Sharyn Alfonsi, a “60 Minutes” correspondent, criticized the network’s decision to remove her reporting from Sunday’s edition of the show.`\
+https://nytimes.com/2025/12/21/business/60-minutes-trump-bari-weiss.html
+
 **Betty Reid Soskin, Nation’s Oldest Park Ranger, Dies at 104**\
 `She began working as a park ranger at age 85, educating visitors about the women and people of color who served on the home front in World War II — herself among them.`\
 https://nytimes.com/2025/12/21/us/betty-reid-soskin-dead.html
