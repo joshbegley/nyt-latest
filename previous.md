@@ -1,3 +1,11 @@
+**Who Is Jeff Landry, Trump’s Special Envoy to Greenland?**\
+`Mr. Landry, the governor of Louisiana, is a fierce supporter of the president. But his experience in international relations isn’t extensive.`\
+https://nytimes.com/2025/12/22/us/jeff-landry-greenland-envoy-trump.html
+
+**Got a question about the Pistons? Submit one for our mailbag**\
+`What's on your mind as the trade deadline looms and the Pistons work to sustain their start?`\
+https://nytimes.com/athletic/6911737/2025/12/22/detroit-pistons-mailbag-nba-eastern-conference/
+
 **NHL rumblings: No panic in Predators, no easy fixes for Maple Leafs and more**\
 `After a tough start to the season, the Predators have won seven of 10 and are in the wild-card mix. Are they still sellers?`\
 https://nytimes.com/athletic/6911622/2025/12/22/nhl-rumblings-predators-maple-leafs/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6911611/2025/12/22/biff-poggi-sherrone-moore-michig
 **Broncos' playoff scenarios wide open after 11-game win streak ends**\
 `Denver can land anywhere from the No. 1 seed to the No. 6 seed depending how the final two weeks of games unfold in the AFC.`\
 https://nytimes.com/athletic/6911449/2025/12/22/broncos-playoff-scenarios-week-17/
-
-**Travis Kelce leads all players in Pro Bowl fan voting**\
-`The Bears led all clubs in total fan votes received, followed by the Denver Broncos, Green Bay Packers, Chiefs and Detroit Lions.`\
-https://nytimes.com/athletic/6911650/2025/12/22/travis-kelce-chiefs-pro-bowl-fan-voting/
-
-**2025: The Year in Visual Stories and Graphics**\
-`Selected Times graphics, visualizations and multimedia stories published this year.`\
-https://nytimes.com/interactive/2025/12/22/us/2025-year-in-graphics.html
 

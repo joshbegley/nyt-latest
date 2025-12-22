@@ -1,3 +1,11 @@
+**Who Is Jeff Landry, Trump’s Special Envoy to Greenland?**\
+`Mr. Landry, the governor of Louisiana, is a fierce supporter of the president. But his experience in international relations isn’t extensive.`\
+https://nytimes.com/2025/12/22/us/jeff-landry-greenland-envoy-trump.html
+
+**Got a question about the Pistons? Submit one for our mailbag**\
+`What's on your mind as the trade deadline looms and the Pistons work to sustain their start?`\
+https://nytimes.com/athletic/6911737/2025/12/22/detroit-pistons-mailbag-nba-eastern-conference/
+
 **NHL rumblings: No panic in Predators, no easy fixes for Maple Leafs and more**\
 `After a tough start to the season, the Predators have won seven of 10 and are in the wild-card mix. Are they still sellers?`\
 https://nytimes.com/athletic/6911622/2025/12/22/nhl-rumblings-predators-maple-leafs/
