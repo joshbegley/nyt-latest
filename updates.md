@@ -1,3 +1,15 @@
+**Betty Reid Soskin, Nation’s Oldest Park Ranger, Dies at 104**\
+`She began working as a park ranger at age 85, educating visitors about the women and people of color who served on the home front in World War II — herself among them.`\
+https://nytimes.com/2025/12/21/us/betty-reid-soskin-dead.html
+
+**Bills-Browns: Crazy (bad) WR stats, Keon Coleman scratch, Greg Rousseau heats up**\
+`Finding a solid group of boundary receivers for Josh Allen has been a season-long journey.`\
+https://nytimes.com/athletic/6909816/2025/12/21/bills-streak-continues-wr-woes/
+
+**Steelers hold on after game-ending OPI flag; Lions now a playoff longshot**\
+`The Lions were flagged for offensive pass interference on the game's final play, erasing a touchdown lateraled to quarterback Jared Goff.`\
+https://nytimes.com/athletic/6909659/2025/12/21/steelers-lions-score-result-takeaways-nfl/
+
 **Jerry Jones talks change as Cowboys miss playoffs: 'We all underachieved'**\
 `Jones likes what the Cowboys have on offense, led by Dak Prescott, and believes they have the bones of a good defense in 2026.`\
 https://nytimes.com/athletic/6909761/2025/12/21/cowboys-lose-jerry-jones-changes/

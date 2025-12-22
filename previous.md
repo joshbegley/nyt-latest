@@ -1,3 +1,15 @@
+**Betty Reid Soskin, Nation’s Oldest Park Ranger, Dies at 104**\
+`She began working as a park ranger at age 85, educating visitors about the women and people of color who served on the home front in World War II — herself among them.`\
+https://nytimes.com/2025/12/21/us/betty-reid-soskin-dead.html
+
+**Bills-Browns: Crazy (bad) WR stats, Keon Coleman scratch, Greg Rousseau heats up**\
+`Finding a solid group of boundary receivers for Josh Allen has been a season-long journey.`\
+https://nytimes.com/athletic/6909816/2025/12/21/bills-streak-continues-wr-woes/
+
+**Steelers hold on after game-ending OPI flag; Lions now a playoff longshot**\
+`The Lions were flagged for offensive pass interference on the game's final play, erasing a touchdown lateraled to quarterback Jared Goff.`\
+https://nytimes.com/athletic/6909659/2025/12/21/steelers-lions-score-result-takeaways-nfl/
+
 **Brian Flores has proved the Giants hired the wrong Brian**\
 `Flores' defenses have allowed the Giants zero offensive touchdowns in their last 12 quarters of shared competition.`\
 https://nytimes.com/athletic/6909877/2025/12/21/brian-flores-wrong-brian-giants-vikings/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6909834/2025/12/21/jj-mccarthy-hand-injury-vikings-
 **Red Sox acquire Contreras from Cardinals, get needed righty bat: Sources**\
 `The Cardinals will receive pitcher Hunter Dobbins and two minor-league pitching prospects in exchange for the 33-year-old first baseman.`\
 https://nytimes.com/athletic/6894181/2025/12/21/willson-contreras-trade-cardinals-red-sox-mlb-news/
-
-**Is Jaxson Dart regressing, or are Giants QB's recent struggles just rookie growing pains?**\
-`It’s impossible to ignore that Dart's performance has declined in his three games since Brian Daboll was fired and Mike Kafka took over.`\
-https://nytimes.com/athletic/6909731/2025/12/21/ny-giants-jaxson-dart-regress-vikings/
-
-**Tee Higgins finds perspective — and a new helmet — amid 'anxious' concussion evaluations**\
-`The receiver made two circus catches and had a touchdown Sunday after missing last week's game after being in concussion protocol.`\
-https://nytimes.com/athletic/6909694/2025/12/21/tee-higgins-concussions-bengals-win-dolphins/
-
-**Falcons-Cardinals takeaways: Kirk Cousins accounts for 3 TDs in Atlanta win**\
-`C.J. Henderson's late interception seals Atlanta's win at Arizona.`\
-https://nytimes.com/athletic/6909742/2025/12/21/falcons-cardinals-score-result-takeaways-nfl/
 
