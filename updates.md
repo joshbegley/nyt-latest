@@ -1,3 +1,11 @@
+**Russian General Is Killed in a Car Bombing in Moscow**\
+`The attack appeared to be the latest targeted assassination of senior military officials inside Russia’s borders.`\
+https://nytimes.com/2025/12/22/world/europe/russia-moscow-general-killed.html
+
+**Raja Shehadeh Believes Israelis and Palestinians Can Still Find Peace**\
+`David Marchese spoke with the writer and lawyer Raja Shehadeh about how he maintains hope.`\
+https://nytimes.com/video/podcasts/100000010602448/raja-shehadeh-believes-israelis-and-palestinians-can-still-find-peace.html
+
 **Inside the Room Where MetroCard Will Take Its Last Ride**\
 `The floppy plastic fare card is retiring this month, after three decades of production at this high-security facility in Queens.`\
 https://nytimes.com/card/2025/12/22/nyregion/metrocard-nyc-subway

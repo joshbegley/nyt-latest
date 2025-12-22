@@ -1,3 +1,11 @@
+**Russian General Is Killed in a Car Bombing in Moscow**\
+`The attack appeared to be the latest targeted assassination of senior military officials inside Russia’s borders.`\
+https://nytimes.com/2025/12/22/world/europe/russia-moscow-general-killed.html
+
+**Raja Shehadeh Believes Israelis and Palestinians Can Still Find Peace**\
+`David Marchese spoke with the writer and lawyer Raja Shehadeh about how he maintains hope.`\
+https://nytimes.com/video/podcasts/100000010602448/raja-shehadeh-believes-israelis-and-palestinians-can-still-find-peace.html
+
 **Inside the Room Where MetroCard Will Take Its Last Ride**\
 `The floppy plastic fare card is retiring this month, after three decades of production at this high-security facility in Queens.`\
 https://nytimes.com/card/2025/12/22/nyregion/metrocard-nyc-subway
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/22/learning/word-of-the-day-magnanimous.html
 **The New York Times in Print for Monday, Dec. 22, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/12/22/todays-new-york-times
-
-**France Needs a New France**\
-`The time has come for a Sixth Republic.`\
-https://nytimes.com/2025/12/22/opinion/france-macron-sixth-republic.html
-
-**‘Cover-Up,’ Plus 8 Things on TV This Week**\
-`A documentary about the journalist Seymour Hersh premieres, and lots of shows wrap up their seasons.`\
-https://nytimes.com/2025/12/22/arts/television/cover-up-plus-8-things-on-tv-this-week.html
 
