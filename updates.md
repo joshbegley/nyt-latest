@@ -1,3 +1,7 @@
+**Fatigued-looking Wild get rolled in a rare flat performance at home: Takeaways**\
+`On the second night of a back-to-back, the Wild just didn't have the legs to keep up with the NHL's best team.`\
+https://nytimes.com/athletic/6909846/2025/12/21/wild-nelson-hughes-avalanche/
+
 **Vance Refuses to Take Sides in G.O.P. Fight Over Bigotry**\
 `The vice president’s plea for a big-tent coalition at an annual conservative gathering belied the cracks in his party over antisemitism, racism and conspiracy theories.`\
 https://nytimes.com/2025/12/21/us/politics/vance-republicans-trump-antisemitism.html
