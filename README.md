@@ -1,3 +1,11 @@
+**Panthers Beat Buccaneers in Key N.F.C. South Matchup**\
+`Baker Mayfield threw a late-game interception, securing a 23-20 win for the Carolina Panthers. They now own sole possession of the division with two games left.`\
+https://nytimes.com/video/the-athletic/100000010603476/panthers-beat-buccaneers-in-key-nfc-south-matchup.html
+
+**In These K-Dramas, Women Are Unjustly Accused (Maybe)**\
+`Netflix’s “The Price of Confession” and Hulu’s “Nine Puzzles” are thrillers with complicated plots and complicated protagonists.`\
+https://nytimes.com/2025/12/22/arts/television/netflix-the-price-of-confession-nine-puzzles-hulu.html
+
 **How will Miami challenge Ohio State? What I learned from studying Canes, covering Buckeyes**\
 `Miami has enough playmakers to give Ohio State plenty to worry about as it prepares for the CFP's Cotton Bowl quarterfinal on Dec. 31.`\
 https://nytimes.com/athletic/6909102/2025/12/22/ohio-state-miami-cotton-bowl-matchup/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6900801/2025/12/22/red-wings-playoffs-todd-mclellan
 **Cubs mailbag: It’s all about pitching with ​​Tatsuya Imai’s deadline looming**\
 `Pitching remains the focus, for the Cubs and these reader-submitted questions.`\
 https://nytimes.com/athletic/6908961/2025/12/22/cubs-mailbag-tatsuya-imais-deadline-looming/
-
-**Brendon McCullum eager to remain England coach despite Ashes humbling**\
-`Defeat at Adelaide Oval ensured Australia retained the Ashes with two games still to play, with McCullum admitting mistakes have been made`\
-https://nytimes.com/athletic/6908381/2025/12/22/brendon-mccullum-england-coach-stokes/
-
-**Blue Jackets Monday Gathering: Werenski's injury scare part of intense 48 hours**\
-`The Blue Jackets have had an eventful weekend, from trades, front-office shakeups and an update on Zach Werenski.`\
-https://nytimes.com/athletic/6909071/2025/12/22/blue-jackets-werenski-marchment-flynn/
 
