@@ -1,3 +1,15 @@
+**Fantasy football Week 16 takeaways: Josh Allen busts; Omarion Hampton's future looks bright**\
+`Michael Salfino shares his thoughts on Week 16, including a devastatingly poor fantasy performance from Josh Allen.`\
+https://nytimes.com/athletic/6909419/2025/12/21/fantasy-football-week-16-takeaways-allen-hampton/
+
+**Heavy Rains Bring Flooding to Northern California**\
+`As floodwaters submerged cars and prompted rescues in the state’s far north on Sunday, forecasters warned that Central California would receive heavy rain later in the week.`\
+https://nytimes.com/2025/12/21/us/flooding-shasta-count-california.html
+
+**Sabres, Josh Norris spoil Jack Hughes' return, extend winning streak to 6: 3 thoughts**\
+`The Sabres have won six consecutive games for the first time since December 2022.`\
+https://nytimes.com/athletic/6910292/2025/12/21/sabres-norris-benson-luukkonen-devils/
+
 **Cardinals' lost season poses big questions to answer over offseason**\
 `The lasting image of this season is medical staff huddled around a player. Even a “Next Man Up” mentality has limits.`\
 https://nytimes.com/athletic/6910056/2025/12/21/arizona-cardinals-lost-season-offseason-questions/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6910076/2025/12/21/bijan-robinson-falcons-cardinals
 **Ravens' Lamar Jackson out vs. Patriots with back injury**\
 `Jackson left the game late in the second quarter after taking a hit from the Patriots' Craig Woodson. `\
 https://nytimes.com/athletic/6910143/2025/12/21/ravens-lamar-jackson-back-injury-patriots/
-
-**‘60 Minutes’ Pulled a Segment. A Correspondent Calls It ‘Political.’**\
-`Sharyn Alfonsi, a “60 Minutes” correspondent, criticized the network’s decision to remove her reporting from Sunday’s edition of the show.`\
-https://nytimes.com/2025/12/21/business/60-minutes-trump-bari-weiss.html
-
-**Betty Reid Soskin, Nation’s Oldest Park Ranger, Dies at 104**\
-`She began working as a park ranger at age 85, educating visitors about the women and people of color who served on the home front in World War II — herself among them.`\
-https://nytimes.com/2025/12/21/us/betty-reid-soskin-dead.html
-
-**Bills-Browns: Crazy (bad) WR stats, Keon Coleman scratch, Greg Rousseau heats up**\
-`Finding a solid group of boundary receivers for Josh Allen has been a season-long journey that continued with a 23-20 win over Cleveland.`\
-https://nytimes.com/athletic/6909816/2025/12/21/bills-streak-continues-wr-woes/
 
