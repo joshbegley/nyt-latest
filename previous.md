@@ -1,6 +1,6 @@
-**Do You Speak 2025?**\
-`Test your knowledge of the language that entered the vernacular this year.`\
-https://nytimes.com/interactive/2025/12/22/style/23ST-QUIZ-DO-YOU-SPEAK-2025-ADVENTURE.html
+**Banksy Gives Britain Another Bittersweet Christmas Gift**\
+`Two new London murals, widely attributed to the mysterious street artist, combine seasonal themes with what appears to be social commentary on rising child homelessness in Britain.`\
+https://nytimes.com/2025/12/22/world/europe/uk-banksy-mural-children-homeless.html
 
 **Vince Zampella, Formative Designer of Call of Duty Games, Dies at 55**\
 `Mr. Zampella co-founded two game studios and worked on the Medal of Honor, Titanfall, Apex Legends and Battlefield franchises.`\
@@ -33,8 +33,4 @@ https://nytimes.com/video/smarter-living/wirecutter/100000010604854/change-bath-
 **Will You Have a White Christmas This Year?**\
 `Look up your location to find out.`\
 https://nytimes.com/interactive/2025/12/22/weather/white-christmas-forecast-2025.html
-
-**How We Test Bath Towels**\
-`Jackie Reeve has been testing towels for Wirecutter for nearly a decade. Five standout towels made the top of her list.`\
-https://nytimes.com/video/smarter-living/wirecutter/100000010604827/how-we-test-bath-towels.html
 

@@ -1,3 +1,7 @@
+**Banksy Gives Britain Another Bittersweet Christmas Gift**\
+`Two new London murals, widely attributed to the mysterious street artist, combine seasonal themes with what appears to be social commentary on rising child homelessness in Britain.`\
+https://nytimes.com/2025/12/22/world/europe/uk-banksy-mural-children-homeless.html
+
 **Do You Speak 2025?**\
 `Test your knowledge of the language that entered the vernacular this year.`\
 https://nytimes.com/interactive/2025/12/22/style/23ST-QUIZ-DO-YOU-SPEAK-2025-ADVENTURE.html
