@@ -1,5 +1,9 @@
+**NBA Rewind: Coaches don't have much Christmas cheer for referees**\
+`Plus, who's hot (Spurs, Bulls) and not (Kings, Hawks) as the league's showcase holiday games loom.`\
+https://nytimes.com/athletic/6897185/2025/12/22/nba-rewind-coaches-officials-spurs/
+
 **Trump Halts Five Wind Farms Off the East Coast**\
-`The Interior Department said the projects pose national security risks, without providing details. The decision imperils billions of dollars of investments.`\
+`The Interior Department said the projects posed national security risks, without providing details. The decision imperils billions of dollars of investments.`\
 https://nytimes.com/2025/12/22/climate/trump-offshore-wind-farms.html
 
 **'We should be in Miami': Will Barcelona eventually play a La Liga match in the U.S.?**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6907263/2025/12/22/siran-neal-49ers-special-teams-g
 **The Visuals That Defined Style This Year**\
 `Fashion, characters, celebrities, scenes and more incredible moments that made you look in 2025.`\
 https://nytimes.com/2025/12/22/style/best-photos-2025-nyt-styles.html
-
-**USMNT Tracker: Implications of Adams' injury, adaptable McKennie bags assist for Juventus**\
-`In this week's tracker, we look at Tyler Adams' injury worry, a blunder from Chris Richards, and the fine form of Weston McKennie`\
-https://nytimes.com/athletic/6910887/2025/12/22/usmnt-adams-injury-mckennie-assist/
 

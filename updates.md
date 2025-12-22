@@ -1,3 +1,7 @@
+**Trump Halts Five Wind Farms Off the East Coast**\
+`The Interior Department said the projects pose national security risks, without providing details. The decision imperils billions of dollars of investments.`\
+https://nytimes.com/2025/12/22/climate/trump-offshore-wind-farms.html
+
 **'We should be in Miami': Will Barcelona eventually play a La Liga match in the U.S.?**\
 `Plans to hold Villarreal's 'home' match with Barcelona in Miami were cancelled in October — but the idea is not over and done with yet`\
 https://nytimes.com/athletic/6910892/2025/12/22/barcelona-miami-la-liga-villarreal-fifa/
