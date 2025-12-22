@@ -1,3 +1,15 @@
+**NHL rumblings: No panic in Predators, no easy fixes for Maple Leafs and more**\
+`After a tough start to the season, the Predators have won seven of 10 and are in the wild-card mix. Are they still sellers?`\
+https://nytimes.com/athletic/6911622/2025/12/22/nhl-rumblings-predators-maple-leafs/
+
+**The Burdens and Joys of Holiday Hosting**\
+`Readers discuss whether or not to quit hosting holiday celebrations. Also: How to lighten the load for busy judges.`\
+https://nytimes.com/2025/12/22/opinion/holiday-hosting-stress.html
+
+**Arizona still No. 1, Duke drops to No. 6 in latest men's AP Top 25**\
+`The Blue Devils slid three spots to No. 6 after their first loss of the season, 82-81 to Texas Tech in New York City.`\
+https://nytimes.com/athletic/6910859/2025/12/22/ap-mens-basketball-top-25-rankings-arizona-duke/
+
 **Georgia starting edge rusher Gabe Harris dealing with turf toe injury**\
 `Harris' emergence has been key to the team’s defensive surge late this season.`\
 https://nytimes.com/athletic/6911659/2025/12/22/georgia-gabe-harris-turf-toe-injury/
@@ -6,7 +18,7 @@ https://nytimes.com/athletic/6911659/2025/12/22/georgia-gabe-harris-turf-toe-inj
 `The “Mandy” and “Copacabana” singer said he would undergo surgery to remove a cancerous spot on his left lung, and he postponed several concert dates.`\
 https://nytimes.com/2025/12/22/arts/music/barry-manilow-lung-cancer-surgery.html
 
-**Poggi wants full-time Michigan job: 'You can expect a lot of changes'**\
+**Interim Michigan coach Biff Poggi: U-M 'a malfunctioning organization' for past 5 years**\
 `Poggi offered a blunt assessment of what needs to change after the firing and arrest of former coach Sherrone Moore.`\
 https://nytimes.com/athletic/6911611/2025/12/22/biff-poggi-sherrone-moore-michigan/
 
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/6911650/2025/12/22/travis-kelce-chiefs-pro-bowl-fan
 **2025: The Year in Visual Stories and Graphics**\
 `Selected Times graphics, visualizations and multimedia stories published this year.`\
 https://nytimes.com/interactive/2025/12/22/us/2025-year-in-graphics.html
-
-**NFL overreactions: The stockings are stuffed with 13 picks for Christmas week**\
-`Toby Mergler gives the gift of Week 17 NFL picks — in the form of a Christmas poem. `\
-https://nytimes.com/athletic/6911298/2025/12/22/nfl-week-17-overreactions-betting-christmas/
-
-**'The Audible:' If you're debating Group of 5 teams in the Playoff, you're missing the point**\
-`Stewart Mandel, Bruce Feldman and Ralph Russo examine who among the first-round Playoff winners looks like a real contender.`\
-https://nytimes.com/athletic/6909932/2025/12/22/college-football-playoff-group-of-5-teams-the-audible-podcast/
-
-**Agriculture Department Sheds a Fifth of Its Workers**\
-`From January to June, more than 20,000 employees out of more than 110,000 left the agency, according to a report by the agency’s inspector general.`\
-https://nytimes.com/2025/12/22/us/politics/trump-agriculture-department-resignations-cuts.html
 

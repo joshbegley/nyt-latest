@@ -1,3 +1,19 @@
+**NHL rumblings: No panic in Predators, no easy fixes for Maple Leafs and more**\
+`After a tough start to the season, the Predators have won seven of 10 and are in the wild-card mix. Are they still sellers?`\
+https://nytimes.com/athletic/6911622/2025/12/22/nhl-rumblings-predators-maple-leafs/
+
+**The Burdens and Joys of Holiday Hosting**\
+`Readers discuss whether or not to quit hosting holiday celebrations. Also: How to lighten the load for busy judges.`\
+https://nytimes.com/2025/12/22/opinion/holiday-hosting-stress.html
+
+**Arizona still No. 1, Duke drops to No. 6 in latest men's AP Top 25**\
+`The Blue Devils slid three spots to No. 6 after their first loss of the season, 82-81 to Texas Tech in New York City.`\
+https://nytimes.com/athletic/6910859/2025/12/22/ap-mens-basketball-top-25-rankings-arizona-duke/
+
+**Interim Michigan coach Biff Poggi: U-M 'a malfunctioning organization' for past 5 years**\
+`Poggi offered a blunt assessment of what needs to change after the firing and arrest of former coach Sherrone Moore.`\
+https://nytimes.com/athletic/6911611/2025/12/22/biff-poggi-sherrone-moore-michigan/
+
 **Georgia starting edge rusher Gabe Harris dealing with turf toe injury**\
 `Harris' emergence has been key to the team’s defensive surge late this season.`\
 https://nytimes.com/athletic/6911659/2025/12/22/georgia-gabe-harris-turf-toe-injury/
