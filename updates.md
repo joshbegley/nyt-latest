@@ -1,3 +1,15 @@
+**Russia Dismisses Reports of Progress in Ukraine Peace Talks**\
+`Proposals that emerged in recent negotiations with the United States were “rather unconstructive,” a Kremlin official said on Sunday.`\
+https://nytimes.com/2025/12/21/world/europe/ukraine-peace-talks.html
+
+**The lasting image from the Chiefs' latest loss — this one without Patrick Mahomes**\
+`A moment from the second quarter brought out the pride and anger of a couple of Chiefs veterans in their fourth straight loss.`\
+https://nytimes.com/athletic/6908835/2025/12/21/chiefs-titans-loss-trey-smith-creed-humphrey/
+
+**Bulls and Hawks trade haymakers in a 300‑point shootout**\
+`Chicago’s offensive onslaught included 83 points in the first half, when the Bulls finished with a 10-point lead.`\
+https://nytimes.com/athletic/6909645/2025/12/21/bulls-hawks-300-point-shootout/
+
 **Sidney Crosby passes Mario Lemieux as Penguins' all-time points leader**\
 `Sidney Crosby set a Penguins franchise record with two points in the first period against the Montreal Canadiens.`\
 https://nytimes.com/athletic/6876502/2025/12/21/sidney-crosby-penguins-points-record-mario-lemieux/
