@@ -1,3 +1,11 @@
+**Lynching of a Hindu in Bangladesh Fans Fears of Rising Intolerance**\
+`Muslim co-workers accused the garment factory worker of blasphemy and dragged him into the street, where an angry mob murdered him.`\
+https://nytimes.com/2025/12/22/world/asia/bangladesh-hindu-muslim-lynching.html
+
+**The Pulse: New information on the Sherrone Moore scandal**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6909213/2025/12/22/sherrone-moore-michigan-women-the-pulse/
+
 **Meet the Notre Dame professor who turned a CFP snub into a philosophy lecture**\
 `For his final lecture of the semester, at students' prompting, he gave a logical articulation of whether or not Notre Dame got screwed`\
 https://nytimes.com/athletic/6909839/2025/12/22/notre-dame-cfp-committee-professor/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6910313/2025/12/22/bruins-in-trouble-loss-senators/
 **A chaotic finish, a crushing penalty and the Lions now staring at elimination**\
 `There were plenty of reasons the Lions lost, from a stunning end-of-half TD, to 230 rushing yards allowed, to costly end-of-game penalties.`\
 https://nytimes.com/athletic/6910363/2025/12/22/lions-playoff-hopes-loss-steelers/
-
-**Notre Dame's two long weeks at the center of a CFP it didn't even play in**\
-`A year ago, Notre Dame was the center of the college football universe. This month, it has been a different kind of star of the CFP.`\
-https://nytimes.com/athletic/6908501/2025/12/22/notre-dame-college-football-playoff-controversy/
-
-**Red Bull boss Laurent Mekies has seen it all in F1, but remains a keen fan**\
-`Red Bull team boss Laurent Mekies has always loved motorsport, but he never dared to dream he'd won day work - and win - in F1`\
-https://nytimes.com/athletic/6900409/2025/12/22/red-bull-f1-team-boss-laurent-mekies/
 

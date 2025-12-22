@@ -1,3 +1,11 @@
+**Lynching of a Hindu in Bangladesh Fans Fears of Rising Intolerance**\
+`Muslim co-workers accused the garment factory worker of blasphemy and dragged him into the street, where an angry mob murdered him.`\
+https://nytimes.com/2025/12/22/world/asia/bangladesh-hindu-muslim-lynching.html
+
+**The Pulse: New information on the Sherrone Moore scandal**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6909213/2025/12/22/sherrone-moore-michigan-women-the-pulse/
+
 **Meet the Notre Dame professor who turned a CFP snub into a philosophy lecture**\
 `For his final lecture of the semester, at students' prompting, he gave a logical articulation of whether or not Notre Dame got screwed`\
 https://nytimes.com/athletic/6909839/2025/12/22/notre-dame-cfp-committee-professor/

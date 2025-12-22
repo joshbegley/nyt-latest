@@ -1,3 +1,35 @@
+**Inside Barcelona: Will Christensen injury lead to new centre-back signing?**\
+`After overcoming a slump in form and an injury crisis which lasted until December, Barcelona are back on track`\
+https://nytimes.com/athletic/6910724/2025/12/22/inside-barcelona-christensen-joan-garcia/
+
+**Men's college basketball Top 25: Michigan, Arizona remain at top, but here come Purdue, Houston**\
+`Plus: Kentucky returns to our ranking after getting healthy and beating St. John's.`\
+https://nytimes.com/athletic/6910120/2025/12/22/college-basketball-top-25-mens-michigan-purdue-houston/
+
+**How the Bears found a way: 10 biggest moments before the winning TD vs. Packers**\
+`Reflecting on the biggest moments from the Bears' win over the Packers, and all the good and bad that led to the game-winning touchdown.`\
+https://nytimes.com/athletic/6909673/2025/12/22/bears-packers-biggest-moments/
+
+**Women's college basketball power rankings: Louisville's offense provides top-10 boost**\
+`Who's heating up the Big 12? Is Stanford making strides? Sabreena Merchant breaks down her top 25.`\
+https://nytimes.com/athletic/6910464/2025/12/22/womens-college-basketball-power-rankings-louisville/
+
+**The high school transformation that defined a rising Warriors rookie**\
+`Will Richard's journey to the NBA wasn't defined solely by talent. It was shaped by the work he put into his game and his body.`\
+https://nytimes.com/athletic/6892198/2025/12/22/warriors-rookie-will-richard/
+
+**Knicks trade chatter: Will any moves be made before the deadline?**\
+`The Knicks in recent years have made decisions well before the NBA trade deadline. Here's some insight as the team maneuvers until Feb. 5.`\
+https://nytimes.com/athletic/6908462/2025/12/22/knicks-trade-deadline-moves-nba/
+
+**Why Philip Rivers couldn't stay away, and why his friends adore him for it: 'He's my GOAT'**\
+`Antonio Gates, Eric Weddle and more ex-teammates explain Rivers' return: "I think the Colts need him, and the NFL needs him, too.”`\
+https://nytimes.com/athletic/6905065/2025/12/22/philip-rivers-colts-retrie-return-goat-chargers-49ers/
+
+**Sammon: Why Mets should forgo discipline, pursue Cody Bellinger**\
+`Free agent Cody Bellinger is a solid fit for the Mets. The issue is whether they end up doing what it takes to sign him.`\
+https://nytimes.com/athletic/6909620/2025/12/22/mets-cody-bellinger-mlb-free-agency/
+
 **Lynching of a Hindu in Bangladesh Fans Fears of Rising Intolerance**\
 `Muslim co-workers accused the garment factory worker of blasphemy and dragged him into the street, where an angry mob murdered him.`\
 https://nytimes.com/2025/12/22/world/asia/bangladesh-hindu-muslim-lynching.html
@@ -5,36 +37,4 @@ https://nytimes.com/2025/12/22/world/asia/bangladesh-hindu-muslim-lynching.html
 **The Pulse: New information on the Sherrone Moore scandal**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6909213/2025/12/22/sherrone-moore-michigan-women-the-pulse/
-
-**Meet the Notre Dame professor who turned a CFP snub into a philosophy lecture**\
-`For his final lecture of the semester, at students' prompting, he gave a logical articulation of whether or not Notre Dame got screwed`\
-https://nytimes.com/athletic/6909839/2025/12/22/notre-dame-cfp-committee-professor/
-
-**More Abducted Nigerian Children Released, Government Says**\
-`A spokesman for the Nigerian government said that the “remaining” students from a Catholic school had been freed, but the Diocese said only that a “second batch” had been released.`\
-https://nytimes.com/2025/12/22/world/africa/nigeria-school-students-children-released.html
-
-**Ravens didn't play winning football vs. Patriots. And that's been a theme all season**\
-`With untimely turnovers, defensive collapses and questionable coaching decisions, the devastating loss was Baltimore's season in a nutshell.`\
-https://nytimes.com/athletic/6910731/2025/12/22/ravens-season-playoff-hopes-loss-patriots/
-
-**Big trades, small trades, medium-sized trades: Raptors mailbag, part 2**\
-`Eric Koreen answers your trade-related Raptors questions.`\
-https://nytimes.com/athletic/6904597/2025/12/22/toronto-raptors-trades/
-
-**49ers at Colts on MNF: San Francisco's win streak, Philip Rivers' crusade against time**\
-`Week 16 wraps up with one playoff team and one playoff hopeful. The Niners are rising; the Colts are desperate.`\
-https://nytimes.com/athletic/6905234/2025/12/22/49ers-colts-monday-night-football-philip-rivers-stats/
-
-**Injuries, illness and poor play combine for dismal loss: 'We didn't play with pride'**\
-`As center Vincent Trocheck put it, the Rangers "looked f---ing dead" in a sluggish loss to the bottom-feeding Predators.`\
-https://nytimes.com/athletic/6910227/2025/12/22/rangers-sullivan-trocheck-predators/
-
-**'It's not just tonight': Blowout is another signal of Bruins trouble**\
-`Boston is barely outside the playoff window, but trending downward after recent poor performances.`\
-https://nytimes.com/athletic/6910313/2025/12/22/bruins-in-trouble-loss-senators/
-
-**A chaotic finish, a crushing penalty and the Lions now staring at elimination**\
-`There were plenty of reasons the Lions lost, from a stunning end-of-half TD, to 230 rushing yards allowed, to costly end-of-game penalties.`\
-https://nytimes.com/athletic/6910363/2025/12/22/lions-playoff-hopes-loss-steelers/
 
