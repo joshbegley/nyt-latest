@@ -1,3 +1,7 @@
+**J.J. McCarthy’s hand injury could complicate Vikings’ QB future despite win over Giants**\
+`The second-year QB was solid Sunday prior to the injury, and the Vikings hope it won't further stunt his growth and development.`\
+https://nytimes.com/athletic/6909834/2025/12/21/jj-mccarthy-hand-injury-vikings-giants/
+
 **Red Sox acquire Contreras from Cardinals, get needed righty bat: Sources**\
 `The Cardinals will receive pitcher Hunter Dobbins and two minor-league pitching prospects in exchange for the 33-year-old first baseman.`\
 https://nytimes.com/athletic/6894181/2025/12/21/willson-contreras-trade-cardinals-red-sox-mlb-news/
