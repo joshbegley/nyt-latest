@@ -1,3 +1,11 @@
+**NBA Rewind: Coaches don't have much Christmas cheer for referees**\
+`Plus, who's hot (Spurs, Bulls) and not (Kings, Hawks) as the league's showcase holiday games loom.`\
+https://nytimes.com/athletic/6897185/2025/12/22/nba-rewind-coaches-officials-spurs/
+
+**Trump Halts Five Wind Farms Off the East Coast**\
+`The Interior Department said the projects posed national security risks, without providing details. The decision imperils billions of dollars of investments.`\
+https://nytimes.com/2025/12/22/climate/trump-offshore-wind-farms.html
+
 **Trump Halts Five Wind Farms Off the East Coast**\
 `The Interior Department said the projects pose national security risks, without providing details. The decision imperils billions of dollars of investments.`\
 https://nytimes.com/2025/12/22/climate/trump-offshore-wind-farms.html

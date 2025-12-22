@@ -1,3 +1,7 @@
+**In Congress and at Home, Omar Faces Trump’s Anti-Somali Attacks**\
+`Representative Ilhan Omar, Democrat of Minnesota, has long been a target of racist insults by the president. Now her whole community faces an immigration crackdown.`\
+https://nytimes.com/2025/12/22/us/politics/ilhan-omar-trump-attacks.html
+
 **NBA Rewind: Coaches don't have much Christmas cheer for referees**\
 `Plus, who's hot (Spurs, Bulls) and not (Kings, Hawks) as the league's showcase holiday games loom.`\
 https://nytimes.com/athletic/6897185/2025/12/22/nba-rewind-coaches-officials-spurs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6909572/2025/12/22/rashid-shaheed-seahawks-nfc/
 **The story behind the best 49ers player this season no one ever talks about**\
 `Siran Neal is hardly a household name, but the special teams gunner has been one of the most important players for SF this season.`\
 https://nytimes.com/athletic/6907263/2025/12/22/siran-neal-49ers-special-teams-gunner/
-
-**The Visuals That Defined Style This Year**\
-`Fashion, characters, celebrities, scenes and more incredible moments that made you look in 2025.`\
-https://nytimes.com/2025/12/22/style/best-photos-2025-nyt-styles.html
 
