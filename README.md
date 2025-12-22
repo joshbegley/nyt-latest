@@ -1,3 +1,7 @@
+**J.J. McCarthy’s hand injury could complicate Vikings’ QB future despite win over Giants**\
+`The second-year QB was solid Sunday prior to the injury, and the Vikings hope it won't further stunt his growth and development.`\
+https://nytimes.com/athletic/6909834/2025/12/21/jj-mccarthy-hand-injury-vikings-giants/
+
 **Red Sox acquire Contreras from Cardinals, get needed righty bat: Sources**\
 `The Cardinals will receive pitcher Hunter Dobbins and two minor-league pitching prospects in exchange for the 33-year-old first baseman.`\
 https://nytimes.com/athletic/6894181/2025/12/21/willson-contreras-trade-cardinals-red-sox-mlb-news/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6907821/2025/12/21/bears-49ers-clinch-nfl-playoff-p
 **Trevor Lawrence, Jaguars solve Broncos defense in win, hold serve in AFC South**\
 `The Jaguars beat the Broncos 34-20 for their sixth straight win while snapping Denver's 11-game winning streak.`\
 https://nytimes.com/athletic/6908807/2025/12/21/jaguars-broncos-score-result-takeaways-nfl/
-
-**Russia Dismisses Reports of Progress in Ukraine Peace Talks**\
-`Proposals that emerged in recent negotiations with the United States were “rather unconstructive,” a Kremlin official said on Sunday.`\
-https://nytimes.com/2025/12/21/world/europe/ukraine-peace-talks.html
 
