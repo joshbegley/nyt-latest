@@ -1,3 +1,7 @@
+**Riding a High, Deal Makers Grow Bullish on 2026**\
+`It was a comeback year for I.P.O.s. and mergers and acquisitions. Wall Street is optimistic that the winning streak will continue.`\
+https://nytimes.com/2025/12/22/business/dealbook/deals-ipos-2026-forecast.html
+
 **Wordle Review No. 1,648**\
 `Scroll down for hints and conversation about the puzzle for Tuesday, Dec. 23, 2025.`\
 https://nytimes.com/2025/12/22/crosswords/wordle-review-1648.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6909131/2025/12/22/fantasy-premier-league-gameweek-
 **Inside Newcastle Q&A: Chris Waugh answers your questions**\
 `Most Mondays throughout the season, The Athletic hosts an hour-long ‘Inside Newcastle’ live Q&A with subscribers. Send us your questions now`\
 https://nytimes.com/athletic/6910681/2025/12/22/inside-newcastle-united-qa-premier-league/
-
-**Panthers Beat Buccaneers in Key N.F.C. South Matchup**\
-`Baker Mayfield threw a late-game interception, securing a 23-20 win for the Carolina Panthers. They now own sole possession of the division with two games left.`\
-https://nytimes.com/video/the-athletic/100000010603476/panthers-beat-buccaneers-in-key-nfc-south-matchup.html
 

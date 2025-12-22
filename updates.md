@@ -1,3 +1,7 @@
+**Riding a High, Deal Makers Grow Bullish on 2026**\
+`It was a comeback year for I.P.O.s. and mergers and acquisitions. Wall Street is optimistic that the winning streak will continue.`\
+https://nytimes.com/2025/12/22/business/dealbook/deals-ipos-2026-forecast.html
+
 **Wordle Review No. 1,648**\
 `Scroll down for hints and conversation about the puzzle for Tuesday, Dec. 23, 2025.`\
 https://nytimes.com/2025/12/22/crosswords/wordle-review-1648.html
