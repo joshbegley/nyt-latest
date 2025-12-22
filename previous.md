@@ -1,40 +1,40 @@
-**Bondi Beach Shooting Suspects Also Used Pipe Bombs in Attack, Police Say**\
-`But the explosives did not detonate, according to investigators, who also found a video of the two men training with firearms.`\
-https://nytimes.com/2025/12/22/world/australia/bondi-beach-shooting-pipebombs.html
+**Hundreds of Big Post-Election Donors Have Benefited From Trump’s Return to Office**\
+`Well into his second term, the president and his allies have continued aggressively raising money. Many donors have interests before his administration, The Times found.`\
+https://nytimes.com/interactive/2025/12/22/us/politics/trump-donors-fundraising-benefits.html
 
-**Russian General Is Killed in Car Bombing in Moscow**\
-`The attack appeared to be the latest targeted assassination of a senior military official inside Russia’s borders.`\
-https://nytimes.com/2025/12/22/world/europe/russia-moscow-general-killed.html
+**What We Know About U.S. Interceptions of Oil Tankers in Venezuela**\
+`A Venezuela-bound vessel fled after rebuffing an attempt by the Coast Guard to seize it, the latest twist in the escalating U.S. pressure campaign against the Maduro government.`\
+https://nytimes.com/2025/12/22/us/politics/trump-oil-tankers-venezuela.html
 
-**Raja Shehadeh Believes Israelis and Palestinians Can Still Find Peace**\
-`David Marchese spoke with the writer and lawyer Raja Shehadeh about how he maintains hope.`\
-https://nytimes.com/video/podcasts/100000010602448/raja-shehadeh-believes-israelis-and-palestinians-can-still-find-peace.html
+**Review: ‘The Seasons’ Jumbles Warnings About Climate Crisis**\
+`An operatic Vivaldi pastiche, with a new story by Sarah Ruhl, offers an ambivalent message about how art can make people pay attention.`\
+https://nytimes.com/2025/12/22/arts/music/the-seasons-opera-philadelphia-review.html
 
-**Inside the Room Where MetroCard Will Take Its Last Ride**\
-`The floppy plastic fare card is retiring this month, after three decades of production at this high-security facility in Queens.`\
-https://nytimes.com/card/2025/12/22/nyregion/metrocard-nyc-subway
+**A Conspicuous Gap May Undermine Trump’s Birthright Citizenship Plan**\
+`A historical review shows lawmakers without certain familial records went unchallenged as citizens when the 14th Amendment was adopted. The finding appeared to undercut the president’s claims on birthright citizenship.`\
+https://nytimes.com/2025/12/22/us/politics/trump-birthright-citizenship-congress.html
 
-**What to Know About OMNY, MetroCard’s Tap-and-Go Successor**\
-`With the MetroCard retiring at the end of 2025, the OMNY system will become the only way to pay for most transit riders.`\
-https://nytimes.com/2025/12/22/nyregion/omny-nyc-subway.html
+**Susie Wiles and the Intoxication of Power**\
+`There are no wallflowers in Trump’s White House.`\
+https://nytimes.com/2025/12/22/opinion/susie-wiles-vanity-fair-trump.html
 
-**Goodbye (and Good Riddance?) to the MetroCard**\
-`Thirty years ago, the newfangled method of paying for New York City’s buses and subways seemed like cutting-edge technology. Now, its days are numbered.`\
-https://nytimes.com/2025/12/22/nyregion/new-york-city-metrocard-end.html
+**The Economy Survived 2025, but Many Americans Are Reeling**\
+`A feared recession didn’t materialize, but unemployment rose, wage growth slowed and affordability challenges are mounting.`\
+https://nytimes.com/2025/12/22/business/economy-unemployment-wages-affordability.html
 
-**Behind closed doors at Michigan: Women describe social media messages from Sherrone Moore**\
-`Five women contacted by The Athletic said they had strange or uncomfortable exchanges on Instagram with ex-Michigan coach Sherrone Moore.`\
-https://nytimes.com/athletic/6909584/2025/12/22/sherrone-moore-michigan-firing-women/
+**How Can I Update My Party Look?**\
+`You may want to party like its 1999, but you don’t have to dress like it. Our critic offers tips for giving old classics a fresh boost.`\
+https://nytimes.com/2025/12/22/fashion/party-style-vintage.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/12/22/crosswords/spelling-bee-forum.html
+**Driving for the Holidays? How to Make Your Road Trip Safe.**\
+`Be sure you have the right equipment and apps for weather and traffic, and don’t forget to check those tires. Here are more tips for hitting the highway.`\
+https://nytimes.com/2025/12/22/travel/road-trip-driving-weather-safety-tips.html
 
-**Trump Photo Removed Then Reposted in Epstein Files**\
-`An image containing a photo of President Trump was removed from a Justice Department website that housed files related to the investigations of Jeffrey Epstein. The department said it reposted the image on Sunday after it was found to not feature Epstein’s victims.`\
-https://nytimes.com/video/us/politics/100000010603089/epstein-files-trump.html
+**A Last Meal With One of the Finest Food Writers in America**\
+`Betty Fussell’s new memoir offers insights on aging, stories about love and a recipe for coyote pie.`\
+https://nytimes.com/2025/12/22/books/review/betty-fussell-how-to-cook-a-coyote.html
 
-**Word of the Day: magnanimous**\
-`This word has appeared in 43 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/12/22/learning/word-of-the-day-magnanimous.html
+**The Rockettes, at 100, Need a Kick in the Right Direction**\
+`This year, “Christmas Spectacular Starring the Radio City Rockettes” pays homage to the legacy of the group, but its future seems to be more about sisterhood than dancing.`\
+https://nytimes.com/2025/12/22/arts/dance/the-rockettes-at-100.html
 
