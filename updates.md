@@ -1,3 +1,19 @@
+**First the Louvre, Now the Presidential Palace: New Theft Rattles France**\
+`In what prosecutors say was an inside job, copper pots, porcelain and Baccarat Champagne glasses were stolen from the inventory of the Élysée Palace.`\
+https://nytimes.com/2025/12/21/world/europe/elysee-palace-theft.html
+
+**'We want to be the underdog': Chargers, once an afterthought, are turning into contenders**\
+`The Chargers control their own path to the AFC West title with two weeks to play. `\
+https://nytimes.com/athletic/6909803/2025/12/21/chargers-win-cowboys-week-16-afc-playoff-picture/
+
+**At times, Browns’ offense played as well as it could vs. Bills. It still wasn’t enough**\
+`The loss was the latest example of Shedeur Sanders mixing in some nice throws with moments that show he's prone to some rookie mistakes.`\
+https://nytimes.com/athletic/6909726/2025/12/21/browns-offense-shedeur-sanders-loss-bills/
+
+**Cowboys have underachieved and Jerry Jones starts thinking about changes**\
+`Jones likes what the Cowboys have on offense, led by Dak Prescott, and believes they have the bones of a good defense in 2026.`\
+https://nytimes.com/athletic/6909761/2025/12/21/cowboys-lose-jerry-jones-changes/
+
 **J.J. McCarthy’s hand injury could complicate Vikings’ QB future despite win over Giants**\
 `The second-year QB was solid Sunday prior to the injury, and the Vikings hope it won't further stunt his growth and development.`\
 https://nytimes.com/athletic/6909834/2025/12/21/jj-mccarthy-hand-injury-vikings-giants/

@@ -1,3 +1,19 @@
+**First the Louvre, Now the Presidential Palace: New Theft Rattles France**\
+`In what prosecutors say was an inside job, copper pots, porcelain and Baccarat Champagne glasses were stolen from the inventory of the Élysée Palace.`\
+https://nytimes.com/2025/12/21/world/europe/elysee-palace-theft.html
+
+**'We want to be the underdog': Chargers, once an afterthought, are turning into contenders**\
+`The Chargers control their own path to the AFC West title with two weeks to play. `\
+https://nytimes.com/athletic/6909803/2025/12/21/chargers-win-cowboys-week-16-afc-playoff-picture/
+
+**At times, Browns’ offense played as well as it could vs. Bills. It still wasn’t enough**\
+`The loss was the latest example of Shedeur Sanders mixing in some nice throws with moments that show he's prone to some rookie mistakes.`\
+https://nytimes.com/athletic/6909726/2025/12/21/browns-offense-shedeur-sanders-loss-bills/
+
+**Cowboys have underachieved and Jerry Jones starts thinking about changes**\
+`Jones likes what the Cowboys have on offense, led by Dak Prescott, and believes they have the bones of a good defense in 2026.`\
+https://nytimes.com/athletic/6909761/2025/12/21/cowboys-lose-jerry-jones-changes/
+
 **J.J. McCarthy’s hand injury could complicate Vikings’ QB future despite win over Giants**\
 `The second-year QB was solid Sunday prior to the injury, and the Vikings hope it won't further stunt his growth and development.`\
 https://nytimes.com/athletic/6909834/2025/12/21/jj-mccarthy-hand-injury-vikings-giants/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6909742/2025/12/21/falcons-cardinals-score-result-t
 **Broncos' Pat Bryant carted off field after violent hit vs. Jaguars**\
 `The Jaguars' Montaric Brown was initially flagged on the play, but the officials eventually picked it up.`\
 https://nytimes.com/athletic/6909733/2025/12/21/broncos-pat-bryant-carted-off-jaguars/
-
-**Raiders-Texans takeaways: Houston holds off Las Vegas to keep wild card in sight**\
-`Despite major offensive struggles, the Texans defeated the Raiders and remain in position for the final wild-card spot in the AFC.`\
-https://nytimes.com/athletic/6909163/2025/12/21/raiders-texans-score-result-takeaways-nfl/
-
-**Rookie Lathan Ransom goes from goat to hero, pushing Panthers closer to playoffs**\
-`Ransom's penalty last week contributed to Carolina's loss and his pick vs. the Bucs put the Panthers in position to reach the postseason.`\
-https://nytimes.com/athletic/6909689/2025/12/21/panthers-playoffs-nfc-south-beat-bucs/
-
-**Bears, 49ers clinch playoff spots after Lions lose to Steelers**\
-`The Bears are postseason bound for the first time since 2020, while the 49ers will make a fifth appearance in seven years.`\
-https://nytimes.com/athletic/6907821/2025/12/21/bears-49ers-clinch-nfl-playoff-picture/
-
-**Trevor Lawrence, Jaguars solve Broncos defense in win, hold serve in AFC South**\
-`The Jaguars beat the Broncos 34-20 for their sixth straight win while snapping Denver's 11-game winning streak.`\
-https://nytimes.com/athletic/6908807/2025/12/21/jaguars-broncos-score-result-takeaways-nfl/
 
