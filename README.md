@@ -1,3 +1,7 @@
+**Palestinian Writer Raja Shehadeh: Israelis Live with a ‘Double Consciousness’**\
+`Raja Shehadeh, a Palestinian writer, lawyer and human rights activist, joined “The Interview” to talk about the conflict between Israelis and Palestinians and why he believes that peace remains possible.`\
+https://nytimes.com/video/magazine/100000010604857/palestinian-writer-raja-shehadeh-israelis-live-with-a-double-consciousness.html
+
 **Writer Raja Shehadeh: ‘Zionism Has Made My Life Impossible’**\
 `The Palestinian writer and human rights activist Raja Shehadeh has been documenting the experience of living under Israeli occupation for decades.`\
 https://nytimes.com/video/magazine/100000010604821/writer-raja-shehadeh-zionism-has-made-my-life-impossible.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6911955/2025/12/22/white-sox-munetaka-murakami-anal
 **Chiefs announce plans to move to Kansas and build domed stadium**\
 `The Chiefs will move to a state-of-the-art domed stadium in Kansas rather than renovate 53-year-old Arrowhead Stadium in Missouri.`\
 https://nytimes.com/athletic/6911787/2025/12/22/chiefs-kansas-move-new-stadium-arrowhead/
-
-**Chiefs' Gardner Minshew's season over after suffering tibial plateau fracture**\
-`The Chiefs also announced the signing of Shane Buechele off the Bills’ practice squad to help bolster the depleted quarterback group.`\
-https://nytimes.com/athletic/6912015/2025/12/22/gardner-minshew-tibial-fracture-injury/
 
