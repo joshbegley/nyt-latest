@@ -1,3 +1,7 @@
+**Trump Photo Removed Then Reposted in Epstein Files**\
+`An image containing a photo of President Trump was removed from a Justice Department website that housed files related to the investigations of Jeffrey Epstein. The department said it reposted the image on Sunday after it was found to not feature Epstein’s victims.`\
+https://nytimes.com/video/us/politics/100000010603089/epstein-files-trump.html
+
 **Word of the Day: magnanimous**\
 `This word has appeared in 43 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/12/22/learning/word-of-the-day-magnanimous.html

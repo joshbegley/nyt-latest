@@ -1,3 +1,7 @@
+**Trump Photo Removed Then Reposted in Epstein Files**\
+`An image containing a photo of President Trump was removed from a Justice Department website that housed files related to the investigations of Jeffrey Epstein. The department said it reposted the image on Sunday after it was found to not feature Epstein’s victims.`\
+https://nytimes.com/video/us/politics/100000010603089/epstein-files-trump.html
+
 **Word of the Day: magnanimous**\
 `This word has appeared in 43 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/12/22/learning/word-of-the-day-magnanimous.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6901472/2025/12/22/crystal-palace-leeds-united-anal
 **A preview of The Athletic’s live coverage this week**\
 `Our live coverage this week includes the Africa Cup of Nations, three NFL games on Christmas and Manchester United vs. Newcastle.`\
 https://nytimes.com/athletic/6909546/2025/12/22/live-coverage-schedule-nfl-afcon-christmas/
-
-**Kilman critics, black balloons and Haaland’s revenge – Watching West Ham from the away end (again)**\
-`In August, The Athletic swapped the press box for the stands as West Ham won 3-0. Four months later, hopes of a repeat were slim...`\
-https://nytimes.com/athletic/6906497/2025/12/22/west-ham-manchester-city-premier-league-away-end-haaland/
 
