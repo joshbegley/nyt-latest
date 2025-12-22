@@ -1,3 +1,15 @@
+**T206 Honus Wagner card going to auction after 116 years with one family**\
+`The once publicly unaccounted for T206 Wagner card is one of 53 examples that have been graded by authentication services PSA and SGC.`\
+https://nytimes.com/athletic/6911059/2025/12/22/t206-honus-wagner-auction-goldin/
+
+**NBA Power Rankings: Spurs are contenders; revisiting early-season questions**\
+`Some inquiries we had two months ago look silly now (sorry, Clippers). Other concerns were spot on.`\
+https://nytimes.com/athletic/6910999/2025/12/22/nba-power-rankings-spurs-thunder-knicks/
+
+**Bill Belichick hires Bobby Petrino as new offensive coordinator at North Carolina: Reports**\
+`Petrino, who served as Arkansas' interim head coach for seven games in 2025, will call plays for the Tar Heels in 2026.`\
+https://nytimes.com/athletic/6911238/2025/12/22/bobby-petrino-unc-offensive-coordinator-belichick/
+
 **The Windup: A Christmas miracle in Chicago?**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6911265/2025/12/22/munetka-murakami-white-sox-skaggs-settlement-the-windup/
