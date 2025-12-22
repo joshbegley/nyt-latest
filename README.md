@@ -1,3 +1,7 @@
+**'I don't know if I've felt like this before': Leafs' lack of offence is getting dire**\
+`The Leafs put up a good performance against a bona fide contender, except when it came to putting pucks in the net.`\
+https://nytimes.com/athletic/6910354/2025/12/21/maple-leafs-offence-nylander-stars/
+
 **Fantasy football Week 16 takeaways: Josh Allen busts; Omarion Hampton's future looks bright**\
 `Michael Salfino shares his thoughts on Week 16, including a devastatingly poor fantasy performance from Josh Allen.`\
 https://nytimes.com/athletic/6909419/2025/12/21/fantasy-football-week-16-takeaways-allen-hampton/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/21/us/politics/vance-republicans-trump-antisemitism.
 **Bijan Robinson 'big-time' again, hitting 2,000-yard milestone in hometown victory**\
 `Robinson passed 2,000 yards from scrimmage in his home state on Sunday in the Falcons' 26-19 win at the Cardinals.`\
 https://nytimes.com/athletic/6910076/2025/12/21/bijan-robinson-falcons-cardinals-2000-yards/
-
-**Ravens' Lamar Jackson out vs. Patriots with back injury**\
-`Jackson left the game late in the second quarter after taking a hit from the Patriots' Craig Woodson. `\
-https://nytimes.com/athletic/6910143/2025/12/21/ravens-lamar-jackson-back-injury-patriots/
 
