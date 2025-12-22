@@ -14,7 +14,7 @@ https://nytimes.com/2025/12/21/us/politics/vance-republicans-trump-antisemitism.
 `Robinson passed 2,000 yards from scrimmage in his home state on Sunday in the Falcons' 26-19 win at the Cardinals.`\
 https://nytimes.com/athletic/6910076/2025/12/21/bijan-robinson-falcons-cardinals-2000-yards/
 
-**Ravens' Lamar Jackson questionable to return vs. Patriots with back injury**\
+**Ravens' Lamar Jackson out vs. Patriots with back injury**\
 `Jackson left the game late in the second quarter after taking a hit from the Patriots' Craig Woodson. `\
 https://nytimes.com/athletic/6910143/2025/12/21/ravens-lamar-jackson-back-injury-patriots/
 
