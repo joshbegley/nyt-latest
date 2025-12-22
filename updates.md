@@ -1,3 +1,7 @@
+**'We should be in Miami': Will Barcelona eventually play a La Liga match in the U.S.?**\
+`Plans to hold Villarreal's 'home' match with Barcelona in Miami were cancelled in October — but the idea is not over and done with yet`\
+https://nytimes.com/athletic/6910892/2025/12/22/barcelona-miami-la-liga-villarreal-fifa/
+
 **Larry Ellison Personally Guarantees Paramount Bid for Warner Brothers**\
 `Mr. Ellison’s personal guarantee is meant to address concerns that the Warner Bros. Discovery’s board had expressed about Paramount’s original offer.`\
 https://nytimes.com/2025/12/22/business/larry-ellison-paramount-warner-brothers-bid.html
