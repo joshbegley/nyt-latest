@@ -1,3 +1,11 @@
+**Chris Rea, Grammy-Nominated British Rocker, Dies at 74**\
+`The Blues-influenced singer and guitarist built a lasting career, particularly in Europe, with hits that included “Driving Home for Christmas” and “Fool (If You Think It’s Over).”`\
+https://nytimes.com/2025/12/22/arts/music/chris-rea-dead-driving-home-christmas.html
+
+**Epstein Victims Ask Congress to Ensure Justice Dept. Releases All Files**\
+`More than a dozen women called for congressional hearings to ensure that the Justice Department is fully complying with the Epstein Files Transparency Act.`\
+https://nytimes.com/2025/12/22/business/epstein-victims-justice-dept-files-released.html
+
 **Restaurant Review: ChòpnBlok in Houston**\
 `In the age of boring bowls, Ope Amosu’s ChòpnBlok in Houston brings a welcome jolt of flavor, energy and joy.`\
 https://nytimes.com/video/dining/100000010604269/restaurant-review-chopnblok-in-houston.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6912005/2025/12/22/penn-state-vs-clemson-stream-how
 **Steve Kerr on Why N.B.A. Stars Are Playing Longer Than Ever**\
 `Steve Kerr joins Zena Keita on “The Athletic Show” to explain how modern training methods and financial investment allow superstars like Stephen Curry and LeBron James to extend their prime years far beyond the norms of the Michael Jordan-era.`\
 https://nytimes.com/video/the-athletic/100000010604391/steve-kerr-on-why-nba-stars-are-playing-longer-than-ever.html
-
-**Mistrial in Case of N.Y. Official Charged With Working for China**\
-`Linda Sun was accused by federal prosecutors of selling her allegiance and being rewarded handsomely for influence peddling.`\
-https://nytimes.com/2025/12/22/nyregion/linda-sun-mistrial.html
-
-**Mets trade Jeff McNeil to the Athletics: Sources**\
-`McNeil joins Pete Alonso, Brandon Nimmo and Edwin Díaz as long-tenured Mets finding new homes this offseason.`\
-https://nytimes.com/athletic/6840337/2025/12/22/jeff-mcneil-mets-athletics-trade/
 
