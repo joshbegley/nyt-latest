@@ -1,3 +1,7 @@
+**Drake Maye leads late comeback as Patriots clinch playoff spot with win over Ravens**\
+`Drake Maye was 31-of-44 passing for a career-high 380 yards, two touchdowns and an interception in the Patriots' 28-24 win over the Ravens.`\
+https://nytimes.com/athletic/6910021/2025/12/22/patriots-ravens-score-result-takeaways-nfl-snf/
+
 **Nasser Hussain: The Ashes were lost in 11 days. Where do England go from here?**\
 `England have serious questions to answer over their Ashes failure, but now is no time for knee-jerk reactions - and Ben Stokes must stay on`\
 https://nytimes.com/athletic/6905810/2025/12/22/nasser-hussain-england-ashes-stokes-mccullum-pope-bashir/
