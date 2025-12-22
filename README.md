@@ -1,4 +1,4 @@
-**Plans to host Serie A game between Milan and Como in Perth, Australia cancelled**\
+**Plans to host Serie A game between Milan and Como in Australia cancelled**\
 `Serie A's president said that the plans had been cancelled "due to an escalation of further unacceptable demands" by the AFC.`\
 https://nytimes.com/athletic/6486073/2025/12/22/serie-a-abroad-league-game/
 
