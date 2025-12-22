@@ -1,3 +1,7 @@
+**Trump Halts Offshore Wind Farms**\
+`Plus, Assad’s luxurious life in Moscow. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2025/12/22/briefing/wind-farms-assad.html
+
 **Maple Leafs fire assistant coach Marc Savard: What it means, what's next**\
 `Savard was responsible for the power play, which currently ranks dead last in the league.`\
 https://nytimes.com/athletic/6912267/2025/12/22/maple-leafs-fire-savard-power-play/
