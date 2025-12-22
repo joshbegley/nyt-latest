@@ -1,3 +1,7 @@
+**Trump Administration Loosens Protections for Iconic Greater Sage Grouse**\
+`The government moves to make it easier to drill, mine and graze on 50 million acres of land in the West.`\
+https://nytimes.com/2025/12/22/climate/trump-loosens-protections-greater-sage-grouse.html
+
 **Trump Halts Offshore Wind Farms**\
 `Plus, Assad’s luxurious life in Moscow. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2025/12/22/briefing/wind-farms-assad.html
