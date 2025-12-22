@@ -1,3 +1,7 @@
+**Your Bra Needs Days Off**\
+`Your favorite bra is likely working overtime. If you want to maintain a snug and supportive undergarment, make sure you’re giving the elastic some well-deserved breaks (ahem, try not to wear the same one day after day).`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010603708/your-bra-needs-days-off.html
+
 **T206 Honus Wagner card going to auction after 116 years with one family**\
 `The once publicly unaccounted for T206 Wagner card is one of 53 examples that have been graded by authentication services PSA and SGC.`\
 https://nytimes.com/athletic/6911059/2025/12/22/t206-honus-wagner-auction-goldin/
