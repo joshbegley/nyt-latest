@@ -1,3 +1,7 @@
+**Steelers hold on after game-ending OPI flag; Lions now a playoff longshot**\
+`The Lions were flagged for offensive pass interference on the game's final play, erasing a touchdown lateraled to quarterback Jared Goff.`\
+https://nytimes.com/athletic/6909659/2025/12/21/steelers-lions-score-result-takeaways-nfl/
+
 **Brian Flores has proved the Giants hired the wrong Brian**\
 `Flores' defenses have allowed the Giants zero offensive touchdowns in their last 12 quarters of shared competition.`\
 https://nytimes.com/athletic/6909877/2025/12/21/brian-flores-wrong-brian-giants-vikings/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6909731/2025/12/21/ny-giants-jaxson-dart-regress-vi
 **Tee Higgins finds perspective — and a new helmet — amid 'anxious' concussion evaluations**\
 `The receiver made two circus catches and had a touchdown Sunday after missing last week's game after being in concussion protocol.`\
 https://nytimes.com/athletic/6909694/2025/12/21/tee-higgins-concussions-bengals-win-dolphins/
-
-**Falcons-Cardinals takeaways: Kirk Cousins accounts for 3 TDs in Atlanta win**\
-`C.J. Henderson's late interception seals Atlanta's win at Arizona.`\
-https://nytimes.com/athletic/6909742/2025/12/21/falcons-cardinals-score-result-takeaways-nfl/
 

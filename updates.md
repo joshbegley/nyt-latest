@@ -1,3 +1,7 @@
+**Jerry Jones talks change as Cowboys miss playoffs: 'We all underachieved'**\
+`Jones likes what the Cowboys have on offense, led by Dak Prescott, and believes they have the bones of a good defense in 2026.`\
+https://nytimes.com/athletic/6909761/2025/12/21/cowboys-lose-jerry-jones-changes/
+
 **Brian Flores has proved the Giants hired the wrong Brian**\
 `Flores' defenses have allowed the Giants zero offensive touchdowns in their last 12 quarters of shared competition.`\
 https://nytimes.com/athletic/6909877/2025/12/21/brian-flores-wrong-brian-giants-vikings/
