@@ -1,3 +1,19 @@
+**Georgia starting edge rusher Gabe Harris dealing with turf toe injury**\
+`Harris' emergence has been key to the team’s defensive surge late this season.`\
+https://nytimes.com/athletic/6911659/2025/12/22/georgia-gabe-harris-turf-toe-injury/
+
+**Barry Manilow Is Diagnosed With Lung Cancer**\
+`The “Mandy” and “Copacabana” singer said he would undergo surgery to remove a cancerous spot on his left lung, and he postponed several concert dates.`\
+https://nytimes.com/2025/12/22/arts/music/barry-manilow-lung-cancer-surgery.html
+
+**Poggi wants full-time Michigan job: 'You can expect a lot of changes'**\
+`Poggi offered a blunt assessment of what needs to change after the firing and arrest of former coach Sherrone Moore.`\
+https://nytimes.com/athletic/6911611/2025/12/22/biff-poggi-sherrone-moore-michigan/
+
+**Broncos' playoff scenarios wide open after 11-game win streak ends**\
+`Denver can land anywhere from the No. 1 seed to the No. 6 seed depending how the final two weeks of games unfold in the AFC.`\
+https://nytimes.com/athletic/6911449/2025/12/22/broncos-playoff-scenarios-week-17/
+
 **Travis Kelce leads all players in Pro Bowl fan voting**\
 `The Bears led all clubs in total fan votes received, followed by the Denver Broncos, Green Bay Packers, Chiefs and Detroit Lions.`\
 https://nytimes.com/athletic/6911650/2025/12/22/travis-kelce-chiefs-pro-bowl-fan-voting/
@@ -17,16 +33,4 @@ https://nytimes.com/athletic/6909932/2025/12/22/college-football-playoff-group-o
 **Agriculture Department Sheds a Fifth of Its Workers**\
 `From January to June, more than 20,000 employees out of more than 110,000 left the agency, according to a report by the agency’s inspector general.`\
 https://nytimes.com/2025/12/22/us/politics/trump-agriculture-department-resignations-cuts.html
-
-**Fantasy football Week 16 recap, early waivers speed run: Surprises, letdowns and injuries**\
-`Jake Ciely looks ahead to Week 17 and reviews a Week 16 that had extreme highs and devastating lows. `\
-https://nytimes.com/athletic/6911203/2025/12/22/fantasy-football-week-16-recap-waivers/
-
-**Notre Dame, USC fail to reach agreement, putting historic football series on pause**\
-`Excluding the 2020 pandemic season and three seasons during World War II in the 1940s, the two schools have played every year since 1926.`\
-https://nytimes.com/athletic/6911524/2025/12/22/notre-dame-usc-football-series-ending/
-
-**Jim Beam Halts Production, as Whiskey Market Struggles**\
-`The bourbon giant is closing its flagship distilling operation for all of 2026.`\
-https://nytimes.com/2025/12/22/dining/jim-beam-production-pause-whiskey-bourbon.html
 
