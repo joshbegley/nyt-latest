@@ -1,3 +1,15 @@
+**Quarterback Nico Iamaleava will return to UCLA for the 2026 season**\
+`Iamaleava’s passing numbers were pedestrian, but he was critical to UCLA’s ground game in his first season with the Bruins.`\
+https://nytimes.com/athletic/6899422/2025/12/22/nico-iamaleava-ucla-quarterback-transfer-portal/
+
+**F.D.A. Approves New Weight-Loss Pill**\
+`The agency greenlit an oral version of the obesity drug Wegovy.`\
+https://nytimes.com/2025/12/22/well/fda-approves-wegovy-weight-loss-pill.html
+
+**Judge Orders Administration to Share Plans for Deportees to El Salvador Prison**\
+`The judge said the administration had to decide by Jan. 5 whether it wanted to “facilitate” the men’s return to the United States or let them challenge their initial removals in the federal courts.`\
+https://nytimes.com/2025/12/22/us/trump-boasberg-alien-enemies-act-venezuela.html
+
 **Trump Administration Declares Foreign-Made Drones a Security Threat**\
 `Americans won’t be able to buy new models from DJI, the Chinese maker of most of the world’s drones. But U.S. pilots can keep the drones they have.`\
 https://nytimes.com/2025/12/22/us/dji-drones-china-barred-us.html
