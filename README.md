@@ -1,3 +1,11 @@
+**Quarterback Nico Iamaleava will return to UCLA for the 2026 season**\
+`Iamaleava’s passing numbers were pedestrian, but he was critical to UCLA’s ground game in his first season with the Bruins.`\
+https://nytimes.com/athletic/6899422/2025/12/22/nico-iamaleava-ucla-quarterback-transfer-portal/
+
+**F.D.A. Approves New Weight-Loss Pill**\
+`The agency greenlit an oral version of the obesity drug Wegovy.`\
+https://nytimes.com/2025/12/22/well/fda-approves-wegovy-weight-loss-pill.html
+
 **Judge Orders Administration to Share Plans for Deportees to El Salvador Prison**\
 `The judge said the administration had to decide by Jan. 5 whether it wanted to “facilitate” the men’s return to the United States or let them challenge their initial removals in the federal courts.`\
 https://nytimes.com/2025/12/22/us/trump-boasberg-alien-enemies-act-venezuela.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6912166/2025/12/22/weston-mckennie-juventus-contrac
 **West Ham's Fullkrug given permission to undergo medical for Milan loan**\
 `Fullkrug, 32, has struggled for minutes and fitness since joining West Ham from Borussia Dortmund on a four-year deal in August 2024.`\
 https://nytimes.com/athletic/6911118/2025/12/22/milan-niclas-fullkrug-west-ham-loan-transfer/
-
-**Nicki Minaj Praises Trump and Vance at Turning Point Event**\
-`The rapper Nicki Minaj, who previously criticized President Trump’s policies, praised him and Vice President JD Vance during a surprise appearance at a Turning Point USA event on Sunday.`\
-https://nytimes.com/video/us/politics/100000010603768/nicki-minaj-erika-kirk-turning-point.html
-
-**Steelers WR DK Metcalf suspended 2 games for altercation with fan in Detroit**\
-`CBS cameras captured the Steelers wide receiver taking a swing at a fan during Sunday's game at Ford Field.`\
-https://nytimes.com/athletic/6911229/2025/12/22/dk-metcalf-fan-punishment-nfl/
 
