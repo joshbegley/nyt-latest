@@ -1,3 +1,7 @@
+**Drake Maye leads late comeback as Patriots clinch playoff spot with win over Ravens**\
+`Drake Maye was 31-of-44 passing for a career-high 380 yards, two touchdowns and an interception in the Patriots' 28-24 win over the Ravens.`\
+https://nytimes.com/athletic/6910021/2025/12/22/patriots-ravens-score-result-takeaways-nfl-snf/
+
 **Nasser Hussain: The Ashes were lost in 11 days. Where do England go from here?**\
 `England have serious questions to answer over their Ashes failure, but now is no time for knee-jerk reactions - and Ben Stokes must stay on`\
 https://nytimes.com/athletic/6905810/2025/12/22/nasser-hussain-england-ashes-stokes-mccullum-pope-bashir/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6907192/2025/12/22/cristian-romero-tottenham-liverp
 **Long throws, corners, free kicks – how old-school tactics are helping Leeds' survival bid**\
 `Set-piece goals will be crucial to keeping Leeds United in the league, a prospect that is looking rosier`\
 https://nytimes.com/athletic/6907922/2025/12/22/leeds-united-long-throws-crystal-palace/
-
-**Chelsea were facing defeat at Newcastle. This is how Maresca turned it around**\
-`The head coach's tactical tweak and personnel change altered the course of the match at St James' Park`\
-https://nytimes.com/athletic/6908261/2025/12/22/chelsea-maresca-newcastle-tactics/
 
