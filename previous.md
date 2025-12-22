@@ -1,3 +1,7 @@
+**Scoop City: Ranking 2025 gifts for all 32 teams**\
+`What's trending after Week 16, ranking Ben Johnson's arrival among the top 32 gifts of 2025 and how the Jets are trusting the process`\
+https://nytimes.com/athletic/6911846/2025/12/22/week-16-risers-and-fallers-ranking-2025-gifts-32-teams/
+
 **U.K. Man and 5 Others Charged With Sexual Offenses Against His Wife**\
 `Philip Young, 49, is accused of drugging and raping his now ex-wife over a 13-year period.`\
 https://nytimes.com/2025/12/22/world/europe/philip-young-wife-rape-charges.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/22/business/charlie-javice-jpmorgan-legal-bills.html
 **Who Is Jeff Landry, Trump’s Special Envoy to Greenland?**\
 `Mr. Landry, the governor of Louisiana, is a fierce supporter of the president. But his experience in international relations isn’t extensive.`\
 https://nytimes.com/2025/12/22/us/jeff-landry-greenland-envoy-trump.html
-
-**Got a question about the Pistons? Submit one for our mailbag**\
-`What's on your mind as the trade deadline looms and the Pistons work to sustain their start?`\
-https://nytimes.com/athletic/6911737/2025/12/22/detroit-pistons-mailbag-nba-eastern-conference/
 
