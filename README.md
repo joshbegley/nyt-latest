@@ -1,3 +1,7 @@
+**First the Louvre, Now the Presidential Palace: New Theft Rattles France**\
+`In what prosecutors say was an inside job, copper pots, porcelain and Baccarat Champagne glasses were stolen from the inventory of the Élysée Palace.`\
+https://nytimes.com/2025/12/21/world/europe/elysee-palace-theft.html
+
 **'We want to be the underdog': Chargers, once an afterthought, are turning into contenders**\
 `The Chargers control their own path to the AFC West title with two weeks to play. `\
 https://nytimes.com/athletic/6909803/2025/12/21/chargers-win-cowboys-week-16-afc-playoff-picture/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6909742/2025/12/21/falcons-cardinals-score-result-t
 **Broncos' Pat Bryant carted off field after violent hit vs. Jaguars**\
 `The Jaguars' Montaric Brown was initially flagged on the play, but the officials eventually picked it up.`\
 https://nytimes.com/athletic/6909733/2025/12/21/broncos-pat-bryant-carted-off-jaguars/
-
-**Raiders-Texans takeaways: Houston holds off Las Vegas to keep wild card in sight**\
-`Despite major offensive struggles, the Texans defeated the Raiders and remain in position for the final wild-card spot in the AFC.`\
-https://nytimes.com/athletic/6909163/2025/12/21/raiders-texans-score-result-takeaways-nfl/
 
