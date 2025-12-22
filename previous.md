@@ -2,7 +2,7 @@
 `Stewart Mandel, Bruce Feldman and Ralph Russo examine who among the first-round Playoff winners looks like a real contender.`\
 https://nytimes.com/athletic/6909932/2025/12/22/college-football-playoff-group-of-5-teams-the-audible-podcast/
 
-**Agriculture Department Shed a Fifth of Its Workers**\
+**Agriculture Department Sheds a Fifth of Its Workers**\
 `From January to June, more than 20,000 employees out of more than 110,000 left the agency, according a report by the agency’s inspector general.`\
 https://nytimes.com/2025/12/22/us/politics/trump-agriculture-department-resignations-cuts.html
 
