@@ -1,3 +1,7 @@
+**Are the White Sox and Munetaka Murakami a match made in desperation or potential?**\
+`This isn't a long-term deal but more of an opportunity for Munetaka to show what he can do in MLB while giving the Sox some star power.`\
+https://nytimes.com/athletic/6911955/2025/12/22/white-sox-munetaka-murakami-analysis/
+
 **Chiefs' Gardner Minshew's season over after suffering tibial plateau fracture**\
 `The Chiefs also announced the signing of Shane Buechele off the Bills’ practice squad to help bolster the depleted quarterback group.`\
 https://nytimes.com/athletic/6912015/2025/12/22/gardner-minshew-tibial-fracture-injury/

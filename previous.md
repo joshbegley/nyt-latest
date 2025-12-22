@@ -1,3 +1,11 @@
+**Are the White Sox and Munetaka Murakami a match made in desperation or potential?**\
+`This isn't a long-term deal but more of an opportunity for Munetaka to show what he can do in MLB while giving the Sox some star power.`\
+https://nytimes.com/athletic/6911955/2025/12/22/white-sox-munetaka-murakami-analysis/
+
+**Chiefs announce plans to move to Kansas and build domed stadium**\
+`The Chiefs will move to a state-of-the-art domed stadium in Kansas rather than renovate 53-year-old Arrowhead Stadium in Missouri.`\
+https://nytimes.com/athletic/6911787/2025/12/22/chiefs-kansas-move-new-stadium-arrowhead/
+
 **Chiefs' Gardner Minshew's season over after suffering tibial plateau fracture**\
 `The Chiefs also announced the signing of Shane Buechele off the Bills’ practice squad to help bolster the depleted quarterback group.`\
 https://nytimes.com/athletic/6912015/2025/12/22/gardner-minshew-tibial-fracture-injury/
@@ -5,10 +13,6 @@ https://nytimes.com/athletic/6912015/2025/12/22/gardner-minshew-tibial-fracture-
 **Après-Ski, Without the Ski**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/ski-chalets
-
-**Chiefs announce plans to move to Kansas and build domed stadium**\
-`The Chiefs will move to a state-of-the-art domed stadium in Kansas rather than renovate 53-year-old Arrowhead Stadium in Missouri.`\
-https://nytimes.com/athletic/6911787/2025/12/22/chiefs-kansas-move-new-stadium-arrowhead/
 
 **Understanding Male Loneliness**\
 `Why is it harder for men to have intimate friendships into adulthood?`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6910643/2025/12/22/liverpool-alexander-isak-injury-
 **What to Know About Norovirus**\
 `The virus, sometimes called the stomach bug, is incredibly contagious. Here’s how to stay safe this season.`\
 https://nytimes.com/2025/12/22/well/norovirus-symptoms-precautions.html
-
-**Chris Rea, Grammy-Nominated British Rocker, Dies at 74**\
-`The Blues-influenced singer and guitarist built a lasting career, particularly in Europe, with hits that included “Driving Home for Christmas” and “Fool (If You Think It’s Over).”`\
-https://nytimes.com/2025/12/22/arts/music/chris-rea-dead-driving-home-christmas.html
 
