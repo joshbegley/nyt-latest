@@ -1,3 +1,7 @@
+**Word of the Day: magnanimous**\
+`This word has appeared in 43 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/12/22/learning/word-of-the-day-magnanimous.html
+
 **The New York Times in Print for Monday, Dec. 22, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/12/22/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6909546/2025/12/22/live-coverage-schedule-nfl-afcon
 **Kilman critics, black balloons and Haaland’s revenge – Watching West Ham from the away end (again)**\
 `In August, The Athletic swapped the press box for the stands as West Ham won 3-0. Four months later, hopes of a repeat were slim...`\
 https://nytimes.com/athletic/6906497/2025/12/22/west-ham-manchester-city-premier-league-away-end-haaland/
-
-**The statistics speak for themselves - Brighton are too reliant on Danny Welbeck**\
-`Whether it be Evan Ferguson returning early from his Roma loan or a winter-window signing, the forward line needs bolstering`\
-https://nytimes.com/athletic/6906715/2025/12/22/brighton-sunderland-danny-welbeck-analysis/
 
