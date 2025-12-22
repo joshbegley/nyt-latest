@@ -1,3 +1,23 @@
+**Meet the Notre Dame professor who turned a CFP snub into a philosophy lecture**\
+`For his final lecture of the semester, at students' prompting, he gave a logical articulation of whether or not Notre Dame got screwed`\
+https://nytimes.com/athletic/6909839/2025/12/22/notre-dame-cfp-committee-professor/
+
+**More Abducted Nigerian Children Released, Government Says**\
+`A spokesman for the Nigerian government said that the “remaining” students from a Catholic school had been freed, but the Diocese said only that a “second batch” had been released.`\
+https://nytimes.com/2025/12/22/world/africa/nigeria-school-students-children-released.html
+
+**Ravens didn't play winning football vs. Patriots. And that's been a theme all season**\
+`With untimely turnovers, defensive collapses and questionable coaching decisions, the devastating loss was Baltimore's season in a nutshell.`\
+https://nytimes.com/athletic/6910731/2025/12/22/ravens-season-playoff-hopes-loss-patriots/
+
+**Big trades, small trades, medium-sized trades: Raptors mailbag, part 2**\
+`Eric Koreen answers your trade-related Raptors questions.`\
+https://nytimes.com/athletic/6904597/2025/12/22/toronto-raptors-trades/
+
+**49ers at Colts on MNF: San Francisco's win streak, Philip Rivers' crusade against time**\
+`Week 16 wraps up with one playoff team and one playoff hopeful. The Niners are rising; the Colts are desperate.`\
+https://nytimes.com/athletic/6905234/2025/12/22/49ers-colts-monday-night-football-philip-rivers-stats/
+
 **Injuries, illness and poor play combine for dismal loss: 'We didn't play with pride'**\
 `As center Vincent Trocheck put it, the Rangers "looked f---ing dead" in a sluggish loss to the bottom-feeding Predators.`\
 https://nytimes.com/athletic/6910227/2025/12/22/rangers-sullivan-trocheck-predators/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6908501/2025/12/22/notre-dame-college-football-play
 **Red Bull boss Laurent Mekies has seen it all in F1, but remains a keen fan**\
 `Red Bull team boss Laurent Mekies has always loved motorsport, but he never dared to dream he'd won day work - and win - in F1`\
 https://nytimes.com/athletic/6900409/2025/12/22/red-bull-f1-team-boss-laurent-mekies/
-
-**Sidney Crosby makes history and leads Penguins to a much-needed win: Yohe's observations**\
-`Sidney Crosby finally caught Mario Lemieux and the Penguins finally won a game in a shootout, beating Montreal 4-3 on Sunday. `\
-https://nytimes.com/athletic/6910221/2025/12/22/sidney-crosby-penguins-shootout-victory-observations/
-
-**Shedeur Sanders shows fight, but Browns need to target QB in draft**\
-`Could Sanders improve with more reps? Of course. Unfortunately, the Browns don’t have time to waste, and they're likely to have a high pick.`\
-https://nytimes.com/athletic/6909897/2025/12/22/shedeur-sanders-browns-need-to-draft-qb/
-
-**Rosenthal: The Red Sox have created a financial path for a big move. Bregman should be their first choice**\
-`The way Craig Breslow has operated this offseason, with one economically shrewd move after another, the Sox are in position to strike.`\
-https://nytimes.com/athletic/6910359/2025/12/22/red-sox-finances-alex-bregman/
-
-**Ranking the top 25 NHL prospects playing at the 2026 World Juniors**\
-`Based on their NHL projections, these players are the top prospects at the 2026 World Juniors in Minnesota.`\
-https://nytimes.com/athletic/6893799/2025/12/22/top-nhl-prospect-2026-world-juniors-iihf/
-
-**NHL weekend rankings: Time for another round of holiday panic**\
-`Sometimes you know what you're getting with a team, even when first impressions imply otherwise. Other times, it's hard to have a clue.`\
-https://nytimes.com/athletic/6909370/2025/12/22/nhl-weekend-rankings-blue-jackets-panthers-jets/
 
