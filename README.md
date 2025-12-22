@@ -14,7 +14,7 @@ https://nytimes.com/athletic/6909803/2025/12/21/chargers-win-cowboys-week-16-afc
 `The loss was the latest example of Shedeur Sanders mixing in some nice throws with moments that show he's prone to some rookie mistakes.`\
 https://nytimes.com/athletic/6909726/2025/12/21/browns-offense-shedeur-sanders-loss-bills/
 
-**Cowboys have underachieved and Jerry Jones starts thinking about changes**\
+**Jerry Jones talks change as Cowboys miss playoffs: 'We all underachieved'**\
 `Jones likes what the Cowboys have on offense, led by Dak Prescott, and believes they have the bones of a good defense in 2026.`\
 https://nytimes.com/athletic/6909761/2025/12/21/cowboys-lose-jerry-jones-changes/
 
