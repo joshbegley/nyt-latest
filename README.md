@@ -1,40 +1,40 @@
-**Car Bomb Kills Russian General in Moscow**\
-`A senior Russian general was killed when a bomb placed under his car exploded, the country’s investigative committee said, adding that it was looking into whether the bombing had been orchestrated by Ukraine.`\
-https://nytimes.com/video/world/europe/100000010603300/russia-general-car-bomb-moscow.html
+**How will Miami challenge Ohio State? What I learned from studying Canes, covering Buckeyes**\
+`Miami has enough playmakers to give Ohio State plenty to worry about as it prepares for the CFP's Cotton Bowl quarterfinal on Dec. 31.`\
+https://nytimes.com/athletic/6909102/2025/12/22/ohio-state-miami-cotton-bowl-matchup/
 
-**Inside Real Madrid: Why was Vinicius Jr jeered again? What's the latest on Alonso?**\
-`The 25-year-old Brazilian posted a cryptic message on social media after Saturday's 2-0 home win over Sevilla`\
-https://nytimes.com/athletic/6910787/2025/12/22/real-madrid-vinicius-jr-xabi-alonso-sevilla/
+**CFB bowl game guide: UVA vs. Mizzou, Pop-Tarts sacrifices, french fry baths**\
+`The holiday week ahead brings us 16 college football bowl games. Be on the lookout for accounting alligators and anthropomorphic pastries.`\
+https://nytimes.com/athletic/6904719/2025/12/22/college-football-bowls-byu-georgia-tech-pop-tarts/
 
-**Inside Barcelona: Will Christensen injury lead to new centre-back signing?**\
-`After overcoming a slump in form and an injury crisis which lasted until December, Barcelona are back on track`\
-https://nytimes.com/athletic/6910724/2025/12/22/inside-barcelona-christensen-joan-garcia/
+**Comeback kid: Drake Maye's fourth-quarter heroics put him back in the MVP discussion**\
+`A week after falling short against Buffalo, Maye led the winning, 89-yard touchdown drive and produced his first 300-yard game.`\
+https://nytimes.com/athletic/6910591/2025/12/22/patriots-ravens-drake-maye-mvp-talk/
 
-**Men's college basketball Top 25: Michigan, Arizona remain at top, but here come Purdue, Houston**\
-`Plus: Kentucky returns to our ranking after getting healthy and beating St. John's.`\
-https://nytimes.com/athletic/6910120/2025/12/22/college-basketball-top-25-mens-michigan-purdue-houston/
+**Packers on brink of playoffs, but who's starting at QB this week?**\
+`Jordan Love and Malik Willis are nursing injuries as the Packers look to clinch a playoff berth on Saturday night.`\
+https://nytimes.com/athletic/6910107/2025/12/22/packers-playoffs-scenario-jordan-love/
 
-**How the Bears found a way: 10 biggest moments before the winning TD vs. Packers**\
-`Reflecting on the biggest moments from the Bears' win over the Packers, and all the good and bad that led to the game-winning touchdown.`\
-https://nytimes.com/athletic/6909673/2025/12/22/bears-packers-biggest-moments/
+**Jesus is on the cusp of 100th Arsenal game. Are the club now in the best place for him?**\
+`The Brazilian could make a milestone appearance for the club against Crystal Palace in the Carabao Cup on Tuesday`\
+https://nytimes.com/athletic/6908258/2025/12/22/gabriel-jesus-arsenal-100-games-analysis/
 
-**Women's college basketball power rankings: Louisville's offense provides top-10 boost**\
-`Who's heating up the Big 12? Is Stanford making strides? Sabreena Merchant breaks down her top 25.`\
-https://nytimes.com/athletic/6910464/2025/12/22/womens-college-basketball-power-rankings-louisville/
+**Blackhawks prospect breakdown: Václav Nestrašil proving his potential as UMass freshman**\
+`Václav Nestrašil, a right wing with significant size, is second in UMass scoring as a freshman.`\
+https://nytimes.com/athletic/6909663/2025/12/22/blackhawks-vaclav-nestrasil-prospect-breakdown/
 
-**The high school transformation that defined a rising Warriors rookie**\
-`Will Richard's journey to the NBA wasn't defined solely by talent. It was shaped by the work he put into his game and his body.`\
-https://nytimes.com/athletic/6892198/2025/12/22/warriors-rookie-will-richard/
+**How the Red Wings have — and haven't — changed after a year of Todd McLellan**\
+`In one year, McLellan has taken the Red Wings from a delicate situation to playoff contention.`\
+https://nytimes.com/athletic/6900801/2025/12/22/red-wings-playoffs-todd-mclellan-nhl/
 
-**Knicks trade chatter: Will any moves be made before the deadline?**\
-`The Knicks in recent years have made decisions well before the NBA trade deadline. Here's some insight as the team maneuvers until Feb. 5.`\
-https://nytimes.com/athletic/6908462/2025/12/22/knicks-trade-deadline-moves-nba/
+**Cubs mailbag: It’s all about pitching with ​​Tatsuya Imai’s deadline looming**\
+`Pitching remains the focus, for the Cubs and these reader-submitted questions.`\
+https://nytimes.com/athletic/6908961/2025/12/22/cubs-mailbag-tatsuya-imais-deadline-looming/
 
-**Why Philip Rivers couldn't stay away, and why his friends adore him for it: 'He's my GOAT'**\
-`Antonio Gates, Eric Weddle and more ex-teammates explain Rivers' return: "I think the Colts need him, and the NFL needs him, too.”`\
-https://nytimes.com/athletic/6905065/2025/12/22/philip-rivers-colts-retrie-return-goat-chargers-49ers/
+**Brendon McCullum eager to remain England coach despite Ashes humbling**\
+`Defeat at Adelaide Oval ensured Australia retained the Ashes with two games still to play, with McCullum admitting mistakes have been made`\
+https://nytimes.com/athletic/6908381/2025/12/22/brendon-mccullum-england-coach-stokes/
 
-**Sammon: Why Mets should forgo discipline, pursue Cody Bellinger**\
-`Free agent Cody Bellinger is a solid fit for the Mets. The issue is whether they end up doing what it takes to sign him.`\
-https://nytimes.com/athletic/6909620/2025/12/22/mets-cody-bellinger-mlb-free-agency/
+**Blue Jackets Monday Gathering: Werenski's injury scare part of intense 48 hours**\
+`The Blue Jackets have had an eventful weekend, from trades, front-office shakeups and an update on Zach Werenski.`\
+https://nytimes.com/athletic/6909071/2025/12/22/blue-jackets-werenski-marchment-flynn/
 
