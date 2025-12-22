@@ -1,11 +1,3 @@
-**Flu Season Is Here**\
-`We have tips on how to stay safe.`\
-https://nytimes.com/2025/12/22/briefing/flu-season-is-here.html
-
-**TAFC: Poverty chant shame & a clever response. Plus: Isak's injury worry, AFCON calendar rethink**\
-`Today in TAFC: Everton's reaction to poverty chanting, Isak's injury nightmare, and huge changes to the AFCON calendar.`\
-https://nytimes.com/athletic/6910754/2025/12/22/everton-chant-isak-injury-tafc/
-
 **Car Bomb Kills Russian General in Moscow**\
 `A senior Russian general was killed when a bomb placed under his car exploded, the country’s investigative committee said, adding that it was looking into whether the bombing had been orchestrated by Ukraine.`\
 https://nytimes.com/video/world/europe/100000010603300/russia-general-car-bomb-moscow.html
@@ -37,4 +29,12 @@ https://nytimes.com/athletic/6892198/2025/12/22/warriors-rookie-will-richard/
 **Knicks trade chatter: Will any moves be made before the deadline?**\
 `The Knicks in recent years have made decisions well before the NBA trade deadline. Here's some insight as the team maneuvers until Feb. 5.`\
 https://nytimes.com/athletic/6908462/2025/12/22/knicks-trade-deadline-moves-nba/
+
+**Why Philip Rivers couldn't stay away, and why his friends adore him for it: 'He's my GOAT'**\
+`Antonio Gates, Eric Weddle and more ex-teammates explain Rivers' return: "I think the Colts need him, and the NFL needs him, too.”`\
+https://nytimes.com/athletic/6905065/2025/12/22/philip-rivers-colts-retrie-return-goat-chargers-49ers/
+
+**Sammon: Why Mets should forgo discipline, pursue Cody Bellinger**\
+`Free agent Cody Bellinger is a solid fit for the Mets. The issue is whether they end up doing what it takes to sign him.`\
+https://nytimes.com/athletic/6909620/2025/12/22/mets-cody-bellinger-mlb-free-agency/
 

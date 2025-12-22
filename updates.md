@@ -1,3 +1,11 @@
+**Flu Season Is Here**\
+`We have tips on how to stay safe.`\
+https://nytimes.com/2025/12/22/briefing/flu-season-is-here.html
+
+**TAFC: Poverty chant shame & a clever response. Plus: Isak's injury worry, AFCON calendar rethink**\
+`Today in TAFC: Everton's reaction to poverty chanting, Isak's injury nightmare, and huge changes to the AFCON calendar.`\
+https://nytimes.com/athletic/6910754/2025/12/22/everton-chant-isak-injury-tafc/
+
 **Car Bomb Kills Russian General in Moscow**\
 `A senior Russian general was killed when a bomb placed under his car exploded, the country’s investigative committee said, adding that it was looking into whether the bombing had been orchestrated by Ukraine.`\
 https://nytimes.com/video/world/europe/100000010603300/russia-general-car-bomb-moscow.html
