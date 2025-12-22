@@ -1,3 +1,27 @@
+**Who to trust in the fantasy football finals? Navigating WRs amid QB injury chaos**\
+`KC Joyner looks at wide receivers who are dealing with injuries at QB and how they might fare in fantasy football championships. `\
+https://nytimes.com/athletic/6910791/2025/12/22/backup-qbs-fantasy-football-wr-outlook/
+
+**Feel Like Testing Your Memory for Literary Trivia?**\
+`Try this short quiz to see how many fun facts about authors and books you can recall.`\
+https://nytimes.com/interactive/2025/12/22/books/review/literary-trivia-quiz.html
+
+**How to watch Western Michigan vs. Ohio State women's basketball: Time, TV, streaming**\
+`Find out how to watch the Western Michigan Broncos play the Ohio State Buckeyes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6911413/2025/12/22/western-michigan-vs-ohio-state-stream-how-to-watch-dec-22/
+
+**How to watch American vs. Virginia men's basketball: Time, TV, streaming**\
+`Find out how to watch the American Eagles play the Virginia Cavaliers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6911408/2025/12/22/american-vs-virginia-stream-how-to-watch-dec-22/
+
+**How to watch Southern Indiana vs. Tennessee women's basketball: Time, TV, streaming**\
+`Find out how to watch the Southern Indiana Screaming Eagles play the Tennessee Lady Volunteers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6911404/2025/12/22/southern-indiana-vs-tennessee-stream-how-to-watch-dec-22/
+
+**How to Care for a Wood Cutting Board**\
+`If you properly care for your wood cutting board, it can last for years and years.`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010603804/how-to-care-for-a-wood-cutting-board.html
+
 **Is Quince Luxury Quality? We Tested It**\
 `Quince bills itself as bargain-priced luxury. Does it deliver? Editor Annemarie Conte was suspicious, so she went on a weeks long investigation to find out.`\
 https://nytimes.com/video/smarter-living/wirecutter/100000010603785/is-quince-luxury-quality-we-tested-it.html
@@ -13,28 +37,4 @@ https://nytimes.com/2025/12/22/dining/its-time-for-tamales.html
 **Inside Our Tinned Fish Taste Test**\
 `Good tinned fish is a treat. On a very fishy day in the office, we tasted 109 promising-looking options and found 24 that we’d happily serve at a party or give as a gift, though many would make a nice meal for one, too.`\
 https://nytimes.com/video/smarter-living/wirecutter/100000010603748/inside-our-tinned-fish-taste-test.html
-
-**NFL Week 17 odds, spreads: These teams are in desperation mode now**\
-`The stakes are high for several teams in the penultimate week of the NFL regular season. Here's how the odds see it going.`\
-https://nytimes.com/athletic/6911137/2025/12/22/nfl-week-17-odds-spreads/
-
-**Your Humidifier Could Make You Sick**\
-`The standing water in an uncleaned humidifier can become a breeding ground for any number of nasty bacteria, amoebas, and fungi. But don’t worry, cleanup is pretty easy, especially if you do it consistently.`\
-https://nytimes.com/video/smarter-living/wirecutter/100000010603734/your-humidifier-could-make-you-sick.html
-
-**Your Bra Needs Days Off**\
-`Your favorite bra is likely working overtime. If you want to maintain a snug and supportive undergarment, make sure you’re giving the elastic some well-deserved breaks (ahem, try not to wear the same one day after day).`\
-https://nytimes.com/video/smarter-living/wirecutter/100000010603708/your-bra-needs-days-off.html
-
-**T206 Honus Wagner card going to auction after 116 years with one family**\
-`The once publicly unaccounted for T206 Wagner card is one of 53 examples that have been graded by authentication services PSA and SGC.`\
-https://nytimes.com/athletic/6911059/2025/12/22/t206-honus-wagner-auction-goldin/
-
-**NBA Power Rankings: Spurs are contenders; revisiting early-season questions**\
-`Some inquiries we had two months ago look silly now (sorry, Clippers). Other concerns were spot on.`\
-https://nytimes.com/athletic/6910999/2025/12/22/nba-power-rankings-spurs-thunder-knicks/
-
-**Bill Belichick hires Bobby Petrino as new offensive coordinator at North Carolina: Reports**\
-`Petrino, who served as Arkansas' interim head coach for seven games in 2025, will call plays for the Tar Heels in 2026.`\
-https://nytimes.com/athletic/6911238/2025/12/22/bobby-petrino-unc-offensive-coordinator-belichick/
 

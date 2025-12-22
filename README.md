@@ -1,3 +1,15 @@
+**How to watch Hornets vs. Cavaliers: Time, TV, streaming**\
+`Find out how to watch the Charlotte Hornets play the Cleveland Cavaliers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6911432/2025/12/22/hornets-vs-cavaliers-stream-how-to-watch-dec-22/
+
+**How to watch Blues vs. Lightning: Time, TV, streaming**\
+`Find out how to watch the St. Louis Blues play the Tampa Bay Lightning, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6911430/2025/12/22/blues-vs-lightning-stream-how-to-watch-dec-22/
+
+**Cuisinart’s Buy-It-For-Life Kitchen Tool**\
+`The Cuisinart food processor is about as close to a buy-it-for-life countertop appliance as you can get thanks to its enduringly-simple—yet effective—design.`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010603836/cuisinarts-buy-it-for-life-kitchen-tool.html
+
 **Who to trust in the fantasy football finals? Navigating WRs amid QB injury chaos**\
 `KC Joyner looks at wide receivers who are dealing with injuries at QB and how they might fare in fantasy football championships. `\
 https://nytimes.com/athletic/6910791/2025/12/22/backup-qbs-fantasy-football-wr-outlook/
@@ -25,16 +37,4 @@ https://nytimes.com/video/smarter-living/wirecutter/100000010603804/how-to-care-
 **Is Quince Luxury Quality? We Tested It**\
 `Quince bills itself as bargain-priced luxury. Does it deliver? Editor Annemarie Conte was suspicious, so she went on a weeks long investigation to find out.`\
 https://nytimes.com/video/smarter-living/wirecutter/100000010603785/is-quince-luxury-quality-we-tested-it.html
-
-**How U.S. Defense Industry Dodged a Rare-Earth Shortage After China’s Curbs**\
-`America’s ability to make precision-guided missiles was threatened during Trump’s tariff war. But experienced players have rescued the supply chain, for now.`\
-https://nytimes.com/2025/12/22/business/defense-industry-rare-earth-restrictions-china.html
-
-**It’s Time for Tamales**\
-`Rick Martínez’s recipe is a hit with readers: “Wow. This is as legit as it gets. Amazing recipe, truly, truly authentic.”`\
-https://nytimes.com/2025/12/22/dining/its-time-for-tamales.html
-
-**Inside Our Tinned Fish Taste Test**\
-`Good tinned fish is a treat. On a very fishy day in the office, we tasted 109 promising-looking options and found 24 that we’d happily serve at a party or give as a gift, though many would make a nice meal for one, too.`\
-https://nytimes.com/video/smarter-living/wirecutter/100000010603748/inside-our-tinned-fish-taste-test.html
 
