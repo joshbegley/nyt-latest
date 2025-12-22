@@ -1,3 +1,7 @@
+**The Briefing: Egypt 2 Zimbabwe 1 - Salah scores late winner as Pharaohs fight back to avoid upset**\
+`Ahmed Walid and Nnamdi Onyeagwara analyse the main talking points from Egypt's dramtic victory over Zimbabwe`\
+https://nytimes.com/athletic/6896156/2025/12/22/egypt-zimbabwe-africa-cup-of-nations/
+
 **Ella Cook, Killed in Shooting at Brown, Is Remembered for Her ‘Quiet Gravity’**\
 `At a funeral in Alabama, the Brown University student was mourned as a gifted musician and protective sister who was committed to her faith.`\
 https://nytimes.com/2025/12/22/us/ella-cook-funeral-brown-shooting.html

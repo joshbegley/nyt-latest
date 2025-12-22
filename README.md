@@ -1,3 +1,7 @@
+**DK Metcalf suspended 2 games for altercation with fan in Detroit**\
+`CBS cameras captured the Steelers wide receiver taking a swing at a fan during Sunday's game at Ford Field.`\
+https://nytimes.com/athletic/6911229/2025/12/22/dk-metcalf-fan-punishment-nfl/
+
 **The Briefing: Egypt 2 Zimbabwe 1 - Salah scores late winner as Pharaohs fight back to avoid upset**\
 `Ahmed Walid and Nnamdi Onyeagwara analyse the main talking points from Egypt's dramtic victory over Zimbabwe`\
 https://nytimes.com/athletic/6896156/2025/12/22/egypt-zimbabwe-africa-cup-of-nations/

@@ -1,3 +1,7 @@
+**The Briefing: Egypt 2 Zimbabwe 1 - Salah scores late winner as Pharaohs fight back to avoid upset**\
+`Ahmed Walid and Nnamdi Onyeagwara analyse the main talking points from Egypt's dramtic victory over Zimbabwe`\
+https://nytimes.com/athletic/6896156/2025/12/22/egypt-zimbabwe-africa-cup-of-nations/
+
 **Ella Cook, Killed in Shooting at Brown, Is Remembered for Her ‘Quiet Gravity’**\
 `At a funeral in Alabama, the Brown University student was mourned as a gifted musician and protective sister who was committed to her faith.`\
 https://nytimes.com/2025/12/22/us/ella-cook-funeral-brown-shooting.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/22/style/americafest-turning-point-usa-charlie-kirk.
 **Banksy Gives Britain Another Bittersweet Christmas Gift**\
 `Two new London murals, widely attributed to the mysterious street artist, combine seasonal themes with what appears to be social commentary on rising child homelessness in Britain.`\
 https://nytimes.com/2025/12/22/world/europe/uk-banksy-mural-children-homeless.html
-
-**Vince Zampella, Formative Designer of Call of Duty Games, Dies at 55**\
-`Mr. Zampella co-founded two game studios and worked on the Medal of Honor, Titanfall, Apex Legends and Battlefield franchises.`\
-https://nytimes.com/2025/12/22/arts/vince-zampella-dead.html
 
