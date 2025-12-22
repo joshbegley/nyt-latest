@@ -1,3 +1,7 @@
+**'I don't know if I've felt like this before': Leafs' lack of offence is getting dire**\
+`The Leafs put up a good performance against a bona fide contender, except when it came to putting pucks in the net.`\
+https://nytimes.com/athletic/6910354/2025/12/21/maple-leafs-offence-nylander-stars/
+
 **Fantasy football Week 16 takeaways: Josh Allen busts; Omarion Hampton's future looks bright**\
 `Michael Salfino shares his thoughts on Week 16, including a devastatingly poor fantasy performance from Josh Allen.`\
 https://nytimes.com/athletic/6909419/2025/12/21/fantasy-football-week-16-takeaways-allen-hampton/
