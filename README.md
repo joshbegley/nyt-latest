@@ -1,3 +1,15 @@
+**The New York Times in Print for Monday, Dec. 22, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/12/22/todays-new-york-times
+
+**France Needs a New France**\
+`The time has come for a Sixth Republic.`\
+https://nytimes.com/2025/12/22/opinion/france-macron-sixth-republic.html
+
+**‘Cover-Up,’ Plus 8 Things on TV This Week**\
+`A documentary about the journalist Seymour Hersh premieres, and lots of shows wrap up their seasons.`\
+https://nytimes.com/2025/12/22/arts/television/cover-up-plus-8-things-on-tv-this-week.html
+
 **Drake Maye leads late comeback as Patriots clinch playoff spot with win over Ravens**\
 `Drake Maye was 31-of-44 passing for a career-high 380 yards, two touchdowns and an interception in the Patriots' 28-24 win over the Ravens.`\
 https://nytimes.com/athletic/6910021/2025/12/22/patriots-ravens-score-result-takeaways-nfl-snf/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6906497/2025/12/22/west-ham-manchester-city-premier
 **The statistics speak for themselves - Brighton are too reliant on Danny Welbeck**\
 `Whether it be Evan Ferguson returning early from his Roma loan or a winter-window signing, the forward line needs bolstering`\
 https://nytimes.com/athletic/6906715/2025/12/22/brighton-sunderland-danny-welbeck-analysis/
-
-**From Old Trafford ghosts to Villa Park euphoria: Inside Emery’s Aston Villa transformation**\
-`If the previous game against United started the rut, the final match before Christmas was the end of it`\
-https://nytimes.com/athletic/6909114/2025/12/22/aston-villa-transformation-unai-emery/
-
-**Even Romero's most ardent advocates can't defend his latest act of petulance**\
-`With his team already a man down, Tottenham's captain picked up a late red card as they chased an equaliser against Liverpool`\
-https://nytimes.com/athletic/6907192/2025/12/22/cristian-romero-tottenham-liverpool-analysis/
-
-**Long throws, corners, free kicks – how old-school tactics are helping Leeds' survival bid**\
-`Set-piece goals will be crucial to keeping Leeds United in the league, a prospect that is looking rosier`\
-https://nytimes.com/athletic/6907922/2025/12/22/leeds-united-long-throws-crystal-palace/
 
