@@ -1,3 +1,7 @@
+**2025 in Pictures**\
+`Which of the images in this Times collection best captures how you’ll remember this year?`\
+https://nytimes.com/2025/12/22/learning/2025-in-pictures.html
+
 **China Vanke Gets Temporary Lifeline to Prevent Debt Default**\
 `Bondholders for one of China’s biggest real estate developers extended a grace period to negotiate a delayed repayment of a $285 million bond.`\
 https://nytimes.com/2025/12/22/business/china-vanke-real-estate-default.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/22/business/dealbook/deals-ipos-2026-forecast.html
 **Wordle Review No. 1,648**\
 `Scroll down for hints and conversation about the puzzle for Tuesday, Dec. 23, 2025.`\
 https://nytimes.com/2025/12/22/crosswords/wordle-review-1648.html
-
-**Trump Administration Live Updates: President to Make Announcement With Hegseth in Florida**\
-``\
-https://nytimes.com/live/2025/12/22/us/trump-news
 
