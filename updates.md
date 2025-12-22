@@ -1,3 +1,15 @@
+**How to watch Hornets vs. Cavaliers: Time, TV, streaming**\
+`Find out how to watch the Charlotte Hornets play the Cleveland Cavaliers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6911432/2025/12/22/hornets-vs-cavaliers-stream-how-to-watch-dec-22/
+
+**How to watch Blues vs. Lightning: Time, TV, streaming**\
+`Find out how to watch the St. Louis Blues play the Tampa Bay Lightning, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6911430/2025/12/22/blues-vs-lightning-stream-how-to-watch-dec-22/
+
+**Cuisinart’s Buy-It-For-Life Kitchen Tool**\
+`The Cuisinart food processor is about as close to a buy-it-for-life countertop appliance as you can get thanks to its enduringly-simple—yet effective—design.`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010603836/cuisinarts-buy-it-for-life-kitchen-tool.html
+
 **Who to trust in the fantasy football finals? Navigating WRs amid QB injury chaos**\
 `KC Joyner looks at wide receivers who are dealing with injuries at QB and how they might fare in fantasy football championships. `\
 https://nytimes.com/athletic/6910791/2025/12/22/backup-qbs-fantasy-football-wr-outlook/
