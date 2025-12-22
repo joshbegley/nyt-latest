@@ -1,3 +1,11 @@
+**Brian Flores has proved the Giants hired the wrong Brian**\
+`Flores' defenses have allowed the Giants zero offensive touchdowns in their last 12 quarters of shared competition.`\
+https://nytimes.com/athletic/6909877/2025/12/21/brian-flores-wrong-brian-giants-vikings/
+
+**J.J. McCarthy's hand injury could complicate Vikings' QB future despite win over Giants**\
+`The second-year QB was solid Sunday prior to the injury, and the Vikings hope it won't further stunt his growth and development.`\
+https://nytimes.com/athletic/6909834/2025/12/21/jj-mccarthy-hand-injury-vikings-giants/
+
 **First the Louvre, Now the Presidential Palace: New Theft Rattles France**\
 `In what prosecutors say was an inside job, copper pots, porcelain and Baccarat Champagne glasses were stolen from the inventory of the Élysée Palace.`\
 https://nytimes.com/2025/12/21/world/europe/elysee-palace-theft.html

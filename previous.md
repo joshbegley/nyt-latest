@@ -1,3 +1,7 @@
+**Brian Flores has proved the Giants hired the wrong Brian**\
+`Flores' defenses have allowed the Giants zero offensive touchdowns in their last 12 quarters of shared competition.`\
+https://nytimes.com/athletic/6909877/2025/12/21/brian-flores-wrong-brian-giants-vikings/
+
 **First the Louvre, Now the Presidential Palace: New Theft Rattles France**\
 `In what prosecutors say was an inside job, copper pots, porcelain and Baccarat Champagne glasses were stolen from the inventory of the Élysée Palace.`\
 https://nytimes.com/2025/12/21/world/europe/elysee-palace-theft.html
@@ -14,7 +18,7 @@ https://nytimes.com/athletic/6909726/2025/12/21/browns-offense-shedeur-sanders-l
 `Jones likes what the Cowboys have on offense, led by Dak Prescott, and believes they have the bones of a good defense in 2026.`\
 https://nytimes.com/athletic/6909761/2025/12/21/cowboys-lose-jerry-jones-changes/
 
-**J.J. McCarthy’s hand injury could complicate Vikings’ QB future despite win over Giants**\
+**J.J. McCarthy's hand injury could complicate Vikings' QB future despite win over Giants**\
 `The second-year QB was solid Sunday prior to the injury, and the Vikings hope it won't further stunt his growth and development.`\
 https://nytimes.com/athletic/6909834/2025/12/21/jj-mccarthy-hand-injury-vikings-giants/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6909694/2025/12/21/tee-higgins-concussions-bengals-
 **Falcons-Cardinals takeaways: Kirk Cousins accounts for 3 TDs in Atlanta win**\
 `C.J. Henderson's late interception seals Atlanta's win at Arizona.`\
 https://nytimes.com/athletic/6909742/2025/12/21/falcons-cardinals-score-result-takeaways-nfl/
-
-**Broncos' Pat Bryant carted off field after violent hit vs. Jaguars**\
-`The Jaguars' Montaric Brown was initially flagged on the play, but the officials eventually picked it up.`\
-https://nytimes.com/athletic/6909733/2025/12/21/broncos-pat-bryant-carted-off-jaguars/
 
