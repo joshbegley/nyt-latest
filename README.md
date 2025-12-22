@@ -1,3 +1,7 @@
+**Vance Refuses to Take Sides in G.O.P. Fight Over Bigotry**\
+`The vice president’s plea for a big-tent coalition at an annual conservative gathering belied the cracks in his party over antisemitism, racism and conspiracy theories.`\
+https://nytimes.com/2025/12/21/us/politics/vance-republicans-trump-antisemitism.html
+
 **Bijan Robinson 'big-time' again, hitting 2,000-yard milestone in hometown victory**\
 `Robinson passed 2,000 yards from scrimmage in his home state on Sunday in the Falcons' 26-19 win at the Cardinals.`\
 https://nytimes.com/athletic/6910076/2025/12/21/bijan-robinson-falcons-cardinals-2000-yards/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/21/world/europe/elysee-palace-theft.html
 **'We want to be the underdog': Chargers, once an afterthought, are turning into contenders**\
 `The Chargers control their own path to the AFC West title with two weeks to play. `\
 https://nytimes.com/athletic/6909803/2025/12/21/chargers-win-cowboys-week-16-afc-playoff-picture/
-
-**At times, Browns’ offense played as well as it could vs. Bills. It still wasn’t enough**\
-`The loss was the latest example of Shedeur Sanders mixing in some nice throws with moments that show he's prone to some rookie mistakes.`\
-https://nytimes.com/athletic/6909726/2025/12/21/browns-offense-shedeur-sanders-loss-bills/
 
