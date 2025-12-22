@@ -1,3 +1,7 @@
+**Mets trade Jeff McNeil to the Athletics: Sources**\
+`McNeil joins Pete Alonso, Brandon Nimmo and Edwin Díaz as long-tenured Mets finding new homes this offseason.`\
+https://nytimes.com/athletic/6840337/2025/12/22/jeff-mcneil-mets-athletics-trade/
+
 **How to watch Pistons vs. Trail Blazers: Time, TV, streaming**\
 `Find out how to watch the Detroit Pistons play the Portland Trail Blazers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6911984/2025/12/22/pistons-vs-trail-blazers-stream-how-to-watch-dec-22/

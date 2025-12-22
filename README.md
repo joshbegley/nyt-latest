@@ -1,3 +1,19 @@
+**Ohio AD says he was 'surprised' by details of coach Brian Smith's firing**\
+`Smith’s lawyer has said they plan to fight what they claim is wrongful termination.`\
+https://nytimes.com/athletic/6911927/2025/12/22/ohio-football-brian-smith-slade-larscheid/
+
+**How to watch Penn State vs. Clemson: Pinstripe Bowl Start Time, TV, streaming**\
+`Find out how to watch the Penn State Nittany Lions play the Clemson Tigers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6912005/2025/12/22/penn-state-vs-clemson-stream-how-to-watch-dec-27/
+
+**Steve Kerr on Why N.B.A. Stars Are Playing Longer Than Ever**\
+`Steve Kerr joins Zena Keita on “The Athletic Show” to explain how modern training methods and financial investment allow superstars like Stephen Curry and LeBron James to extend their prime years far beyond the norms of the Michael Jordan-era.`\
+https://nytimes.com/video/the-athletic/100000010604391/steve-kerr-on-why-nba-stars-are-playing-longer-than-ever.html
+
+**Mistrial in Case of N.Y. Official Charged With Working for China**\
+`Linda Sun was accused by federal prosecutors of selling her allegiance and being rewarded handsomely for influence peddling.`\
+https://nytimes.com/2025/12/22/nyregion/linda-sun-mistrial.html
+
 **Mets trade Jeff McNeil to the Athletics: Sources**\
 `McNeil joins Pete Alonso, Brandon Nimmo and Edwin Díaz as long-tenured Mets finding new homes this offseason.`\
 https://nytimes.com/athletic/6840337/2025/12/22/jeff-mcneil-mets-athletics-trade/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6911978/2025/12/22/blue-jackets-vs-kings-stream-how
 **How to watch Magic vs. Warriors: Time, TV, streaming**\
 `Find out how to watch the Orlando Magic play the Golden State Warriors, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6911972/2025/12/22/magic-vs-warriors-stream-how-to-watch-dec-22/
-
-**How to watch Canucks vs. Flyers: Time, TV, streaming**\
-`Find out how to watch the Vancouver Canucks play the Philadelphia Flyers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6911970/2025/12/22/canucks-vs-flyers-stream-how-to-watch-dec-22/
-
-**How to watch Mavericks vs. Pelicans: Time, TV, streaming**\
-`Find out how to watch the Dallas Mavericks play the New Orleans Pelicans, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6911965/2025/12/22/mavericks-vs-pelicans-stream-how-to-watch-dec-22/
-
-**How to watch Pacers vs. Celtics: Time, TV, streaming**\
-`Find out how to watch the Indiana Pacers play the Boston Celtics, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6911963/2025/12/22/pacers-vs-celtics-stream-how-to-watch-dec-22/
-
-**How to watch Kraken vs. Ducks: Time, TV, streaming**\
-`Find out how to watch the Seattle Kraken play the Anaheim Ducks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6911961/2025/12/22/kraken-vs-ducks-stream-how-to-watch-dec-22/
 
