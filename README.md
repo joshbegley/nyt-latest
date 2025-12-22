@@ -1,5 +1,5 @@
-**Russian General Is Killed in a Car Bombing in Moscow**\
-`The attack appeared to be the latest targeted assassination of senior military officials inside Russia’s borders.`\
+**Russian General Is Killed in Car Bombing in Moscow**\
+`The attack appeared to be the latest targeted assassination of a senior military official inside Russia’s borders.`\
 https://nytimes.com/2025/12/22/world/europe/russia-moscow-general-killed.html
 
 **Raja Shehadeh Believes Israelis and Palestinians Can Still Find Peace**\
