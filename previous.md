@@ -1,3 +1,11 @@
+**Bears, 49ers clinch playoff spots after Lions lose to Steelers**\
+`The Bears are postseason bound for the first time since 2020, while the 49ers will make a fifth appearance in seven years.`\
+https://nytimes.com/athletic/6907821/2025/12/21/bears-49ers-clinch-nfl-playoff-picture/
+
+**Trevor Lawrence, Jaguars solve Broncos defense in win, hold serve in AFC South**\
+`The Jaguars beat the Broncos 34-20 for their sixth straight win while snapping Denver's 11-game winning streak.`\
+https://nytimes.com/athletic/6908807/2025/12/21/jaguars-broncos-score-result-takeaways-nfl/
+
 **Russia Dismisses Reports of Progress in Ukraine Peace Talks**\
 `Proposals that emerged in recent negotiations with the United States were “rather unconstructive,” a Kremlin official said on Sunday.`\
 https://nytimes.com/2025/12/21/world/europe/ukraine-peace-talks.html
@@ -18,7 +26,7 @@ https://nytimes.com/athletic/6876502/2025/12/21/sidney-crosby-penguins-points-re
 `Crooks is the only player in the country to have multiple such outings this season.`\
 https://nytimes.com/athletic/6909715/2025/12/21/iowa-state-audi-crooks-4th-40-point-game/
 
-**Waymo Suspended Service in San Francisco After Problems During Power Outage**\
+**Waymo Suspended Service in San Francisco After Its Cars Stalled During Power Outage**\
 `The self-driving cars came to a halt at intersections when the power knocked out traffic signals, causing tie-ups but no accidents or injuries.`\
 https://nytimes.com/2025/12/21/us/waymo-suspended-service-in-san-francisco-after-problems-during-power-outage.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/21/arts/television/james-ransone-wire-dead.html
 **Although Warriors had a shaky start to season, Steve Kerr has confidence in playoff push**\
 `Kerr remains hopeful that his original goal can still come to fruition.`\
 https://nytimes.com/athletic/6909506/2025/12/21/warriors-steve-kerr-top-four-seed-playoff-nba/
-
-**Jimmy Kimmel Will Deliver Britain’s ‘Alternative Christmas Message’**\
-`Mr. Kimmel will speak out against fascism and about the importance of free speech in the holiday address, according to a Channel 4 spokesman.`\
-https://nytimes.com/2025/12/21/world/europe/jimmy-kimmel-holiday-message-uk-channel-4.html
-
-**Steelers' DK Metcalf swings at fan during sideline altercation**\
-`Broadcast cameras captured the receiver appearing to throw a punch at a fan in Lions attire in the stands.`\
-https://nytimes.com/athletic/6909531/2025/12/21/steelers-dk-metcalf-strikes-fan-sideline-confrontation/
 
