@@ -1,3 +1,7 @@
+**How Trump’s First Year Reshaped U.S. Energy and Climate Policy**\
+`The sweeping changes have affected everything from coal plant retirements to international diplomacy over shipping emissions.`\
+https://nytimes.com/2025/12/22/climate/how-trumps-first-year-reshaped-us-energy-and-climate-policy.html
+
 **The Bounce: A defense better than the Thunder's? Plus, Shaedon Sharpe gets big air**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/6911186/2025/12/22/the-bounce-spurs-defense-shaedon-sharpe/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/22/learning/2025-in-pictures.html
 **China Vanke Gets Temporary Lifeline to Prevent Debt Default**\
 `Bondholders for one of China’s biggest real estate developers extended a grace period to negotiate a delayed repayment of a $285 million bond.`\
 https://nytimes.com/2025/12/22/business/china-vanke-real-estate-default.html
-
-**What I'm seeing during Canucks' post-Hughes trade winning streak: 9 observations**\
-`The Canucks have won all four games they've played since Quinn Hughes was traded to Minnesota.`\
-https://nytimes.com/athletic/6910413/2025/12/22/vancouver-canucks-standings-stats-winning-streak-2025/
 
