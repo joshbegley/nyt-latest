@@ -30,7 +30,3 @@ https://nytimes.com/athletic/6911524/2025/12/22/notre-dame-usc-football-series-e
 `The bourbon giant is closing its flagship distilling operation for all of 2026.`\
 https://nytimes.com/2025/12/22/dining/jim-beam-production-pause-whiskey-bourbon.html
 
-**Plans to host Serie A game between Milan and Como in Australia cancelled**\
-`Serie A's president said that the plans had been cancelled "due to an escalation of further unacceptable demands" by the AFC.`\
-https://nytimes.com/athletic/6486073/2025/12/22/serie-a-abroad-league-game/
-

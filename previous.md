@@ -1,3 +1,7 @@
+**Travis Kelce leads all players in Pro Bowl fan voting**\
+`The Bears led all clubs in total fan votes received, followed by the Denver Broncos, Green Bay Packers, Chiefs and Detroit Lions.`\
+https://nytimes.com/athletic/6911650/2025/12/22/travis-kelce-chiefs-pro-bowl-fan-voting/
+
 **2025: The Year in Visual Stories and Graphics**\
 `Selected Times graphics, visualizations and multimedia stories published this year.`\
 https://nytimes.com/interactive/2025/12/22/us/2025-year-in-graphics.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/22/dining/jim-beam-production-pause-whiskey-bourbon.
 **Plans to host Serie A game between Milan and Como in Australia cancelled**\
 `Serie A's president said that the plans had been cancelled "due to an escalation of further unacceptable demands" by the AFC.`\
 https://nytimes.com/athletic/6486073/2025/12/22/serie-a-abroad-league-game/
-
-**Snoop Dogg will be analyst for Clippers vs. Warriors on NBC in New Year**\
-`Snoop and NBC continue to expand their relationship after he received mainly strong reviews during last year’s Summer Olympics.`\
-https://nytimes.com/athletic/6911386/2025/12/22/snoop-dogg-analyst-nbc-clippers-warriors-nba/
 
