@@ -1,3 +1,19 @@
+**Chiefs' Gardner Minshew's season over after suffering tibial plateau fracture**\
+`The Chiefs also announced the signing of Shane Buechele off the Bills’ practice squad to help bolster the depleted quarterback group.`\
+https://nytimes.com/athletic/6912015/2025/12/22/gardner-minshew-tibial-fracture-injury/
+
+**Après-Ski, Without the Ski**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/ski-chalets
+
+**Chiefs announce plans to move to Kansas and build domed stadium**\
+`The Chiefs will move to a state-of-the-art domed stadium in Kansas rather than renovate 53-year-old Arrowhead Stadium in Missouri.`\
+https://nytimes.com/athletic/6911787/2025/12/22/chiefs-kansas-move-new-stadium-arrowhead/
+
+**Understanding Male Loneliness**\
+`Why is it harder for men to have intimate friendships into adulthood?`\
+https://nytimes.com/2025/12/22/world/male-loneliness-friendships-moscow-assassination.html
+
 **Change Bath Towels Every Three Days**\
 `How often do you wash your towels? It’s recommended to swap them out every three days. We’ve tested towels since 2017 and have some tips on how to care for them.`\
 https://nytimes.com/video/smarter-living/wirecutter/100000010604854/change-bath-towels-every-three-days.html
