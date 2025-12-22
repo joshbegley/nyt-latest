@@ -1,6 +1,6 @@
 **Agriculture Department Shed a Fifth of Its Workers**\
 `From January to June, more than 20,000 employees out of more than 110,000 left the agency, according a report by the agency’s inspector general.`\
-https://nytimes.com/2025/12/22/us/politics/agriculture-department-shed-a-fifth-of-its-workers.html
+https://nytimes.com/2025/12/22/us/politics/trump-agriculture-department-resignations-cuts.html
 
 **Fantasy football Week 16 recap, early waivers speed run: Surprises, letdowns and injuries**\
 `Jake Ciely looks ahead to Week 17 and reviews a Week 16 that had extreme highs and devastating lows. `\
