@@ -1,3 +1,23 @@
+**What I'm seeing during Canucks' post-Hughes trade winning streak: 9 observations**\
+`The Canucks have won all four games they've played since Quinn Hughes was traded to Minnesota.`\
+https://nytimes.com/athletic/6910413/2025/12/22/vancouver-canucks-standings-stats-winning-streak-2025/
+
+**Seahawks' Rashid Shaheed is the difference-maker team needs to be a contender**\
+`Seattle has relied on Shaheed’s playmaking perhaps more than initially envisioned when the trade with the Saints was executed.`\
+https://nytimes.com/athletic/6909572/2025/12/22/rashid-shaheed-seahawks-nfc/
+
+**The story behind the best 49ers player this season no one ever talks about**\
+`Siran Neal is hardly a household name, but the special teams gunner has been one of the most important players for SF this season.`\
+https://nytimes.com/athletic/6907263/2025/12/22/siran-neal-49ers-special-teams-gunner/
+
+**The Visuals That Defined Style This Year**\
+`Fashion, characters, celebrities, scenes and more incredible moments that made you look in 2025.`\
+https://nytimes.com/2025/12/22/style/best-photos-2025-nyt-styles.html
+
+**USMNT Tracker: Implications of Adams' injury, adaptable McKennie bags assist for Juventus**\
+`In this week's tracker, we look at Tyler Adams' injury worry, a blunder from Chris Richards, and the fine form of Weston McKennie`\
+https://nytimes.com/athletic/6910887/2025/12/22/usmnt-adams-injury-mckennie-assist/
+
 **Lowetide: Why Evan Bouchard should (but won't) make Canada's Olympic team**\
 `Here are the key arguments for and against Bouchard playing for Team Canada in the Olympics.`\
 https://nytimes.com/athletic/6908878/2025/12/22/evan-bouchard-stats-oilers-canada-olympics/
@@ -17,24 +37,4 @@ https://nytimes.com/live/2025/12/22/us/trump-news
 **Yankees expect bullpen to be a strength in 2026 despite red flags**\
 `Adding at least one more quality reliever in the offseason should be a priority for Yankees GM Brian Cashman.`\
 https://nytimes.com/athletic/6908826/2025/12/22/yankees-bullpen-concerns-2026/
-
-**Angering Denmark, Trump Appoints Special Envoy to Greenland**\
-`President Trump, who has long said he wants to “get” the semiautonomous Danish territory, tapped Louisiana’s governor for the new position. Officials in Greenland and Denmark expressed outrage.`\
-https://nytimes.com/2025/12/22/world/europe/trump-special-envoy-greenland-denmark-landry.html
-
-**Four observations from the Bulls' 3-game win streak, including their double-big look**\
-`Now with a full lineup, Chicago has plenty of scoring options. Its defense is another story entirely. `\
-https://nytimes.com/athletic/6910543/2025/12/22/bulls-observations-matas-buzelis-defense/
-
-**Flash Floods Submerge Highways in Northern California**\
-`At least one person was killed in flash flooding caused by heavy rain in Northern California on Sunday, officials said.`\
-https://nytimes.com/video/weather/100000010603321/flash-flooding-shasta-california.html
-
-**Steve Kerr on Being in Two N.B.A. Dynasties and Closing a Third**\
-`Reflecting on his time with the Bulls, Spurs and Warriors, Steve Kerr speaks with Zena Keita on “The Athletic Show” about the distinct nature of each dynasty and the reality of facing the end of Golden State’s historic run.`\
-https://nytimes.com/video/the-athletic/100000010603493/steve-kerr-on-being-in-two-nba-dynasties-and-closing-a-third.html
-
-**FPL Gameweek 17 review: Replacing Fernandes, Liverpool’s form duo and Calvert-Lewin gamble**\
-`With four deadlines in 12 days from Gameweek 18 onward, it’s crucial to separate short-term purple patches from long-term value`\
-https://nytimes.com/athletic/6909131/2025/12/22/fantasy-premier-league-gameweek-17-review-fpl-tips/
 
