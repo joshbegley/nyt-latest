@@ -1,3 +1,11 @@
+**Ella Cook, Killed in Shooting at Brown, Is Remembered for Her ‘Quiet Gravity’**\
+`At a funeral in Alabama, the Brown University student was mourned as a gifted musician and protective sister who was committed to her faith.`\
+https://nytimes.com/2025/12/22/us/ella-cook-funeral-brown-shooting.html
+
+**Have Yourself a Very Warm Christmas**\
+`Unseasonably warm temperatures are expected across the United States this week, with many places hitting record highs and record-high lows.`\
+https://nytimes.com/2025/12/22/weather/warm-christmas-forecast.html
+
 **Palestinian Writer Raja Shehadeh: Israelis Live with a ‘Double Consciousness’**\
 `Raja Shehadeh, a Palestinian writer, lawyer and human rights activist, joined “The Interview” to talk about the conflict between Israelis and Palestinians and why he believes that peace remains possible.`\
 https://nytimes.com/video/magazine/100000010604857/palestinian-writer-raja-shehadeh-israelis-live-with-a-double-consciousness.html
@@ -25,12 +33,4 @@ https://nytimes.com/2025/12/22/world/europe/uk-banksy-mural-children-homeless.ht
 **Vince Zampella, Formative Designer of Call of Duty Games, Dies at 55**\
 `Mr. Zampella co-founded two game studios and worked on the Medal of Honor, Titanfall, Apex Legends and Battlefield franchises.`\
 https://nytimes.com/2025/12/22/arts/vince-zampella-dead.html
-
-**Are the White Sox and Munetaka Murakami a match made in desperation or potential?**\
-`This isn't a long-term deal but more of an opportunity for Munetaka to show what he can do in MLB while giving the Sox some star power.`\
-https://nytimes.com/athletic/6911955/2025/12/22/white-sox-munetaka-murakami-analysis/
-
-**Chiefs announce plans to move to Kansas and build domed stadium**\
-`The Chiefs will move to a state-of-the-art domed stadium in Kansas rather than renovate 53-year-old Arrowhead Stadium in Missouri.`\
-https://nytimes.com/athletic/6911787/2025/12/22/chiefs-kansas-move-new-stadium-arrowhead/
 
