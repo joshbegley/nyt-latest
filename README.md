@@ -1,40 +1,40 @@
+**How to watch Grizzlies vs. Thunder: Time, TV, streaming**\
+`Find out how to watch the Memphis Grizzlies play the Oklahoma City Thunder, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6911981/2025/12/22/grizzlies-vs-thunder-stream-how-to-watch-dec-22/
+
+**How to watch Blue Jackets vs. Kings: Time, TV, streaming**\
+`Find out how to watch the Columbus Blue Jackets play the Los Angeles Kings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6911978/2025/12/22/blue-jackets-vs-kings-stream-how-to-watch-dec-22/
+
+**How to watch Magic vs. Warriors: Time, TV, streaming**\
+`Find out how to watch the Orlando Magic play the Golden State Warriors, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6911972/2025/12/22/magic-vs-warriors-stream-how-to-watch-dec-22/
+
+**How to watch Canucks vs. Flyers: Time, TV, streaming**\
+`Find out how to watch the Vancouver Canucks play the Philadelphia Flyers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6911970/2025/12/22/canucks-vs-flyers-stream-how-to-watch-dec-22/
+
+**How to watch Mavericks vs. Pelicans: Time, TV, streaming**\
+`Find out how to watch the Dallas Mavericks play the New Orleans Pelicans, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6911965/2025/12/22/mavericks-vs-pelicans-stream-how-to-watch-dec-22/
+
+**How to watch Pacers vs. Celtics: Time, TV, streaming**\
+`Find out how to watch the Indiana Pacers play the Boston Celtics, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6911963/2025/12/22/pacers-vs-celtics-stream-how-to-watch-dec-22/
+
+**How to watch Kraken vs. Ducks: Time, TV, streaming**\
+`Find out how to watch the Seattle Kraken play the Anaheim Ducks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6911961/2025/12/22/kraken-vs-ducks-stream-how-to-watch-dec-22/
+
+**How to watch Jazz vs. Nuggets: Time, TV, streaming**\
+`Find out how to watch the Utah Jazz play the Denver Nuggets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6911959/2025/12/22/jazz-vs-nuggets-stream-how-to-watch-dec-22/
+
+**How to Make Döner Kebab Like a Cypriot Mom**\
+`Yes, you can take the kebab out of the shop and make a version at home. This viral recipe proves it.`\
+https://nytimes.com/2025/12/22/dining/nefise-kansu-doner-kebab.html
+
 **How to watch West Georgia vs. Georgia men's basketball: Time, TV, streaming**\
 `Find out how to watch the West Georgia Wolves play the Georgia Bulldogs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6911947/2025/12/22/west-georgia-vs-georgia-stream-how-to-watch-dec-22/
-
-**How to watch Bethune-Cookman vs. Arizona men's basketball: Time, TV, streaming**\
-`Find out how to watch the Bethune-Cookman Wildcats play the Arizona Wildcats, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6911943/2025/12/22/bethune-cookman-vs-arizona-stream-how-to-watch-dec-22/
-
-**How to watch Davidson vs. Kansas men's basketball: Time, TV, streaming**\
-`Find out how to watch the Davidson Wildcats play the Kansas Jayhawks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6911941/2025/12/22/davidson-vs-kansas-stream-how-to-watch-dec-22/
-
-**How to watch Illinois vs. Missouri men's basketball: Time, TV, streaming**\
-`Find out how to watch the Illinois Fighting Illini play the Missouri Tigers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6911937/2025/12/22/illinois-vs-missouri-stream-how-to-watch-dec-22/
-
-**How to watch Michigan State vs. Ole Miss women's basketball: Time, TV, streaming**\
-`Find out how to watch the Michigan State Spartans play the Ole Miss Rebels, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6911933/2025/12/22/michigan-state-vs-ole-miss-stream-how-to-watch-dec-22/
-
-**How to watch East Carolina vs. North Carolina men's basketball: Time, TV, streaming**\
-`Find out how to watch the East Carolina Pirates play the North Carolina Tar Heels, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6911930/2025/12/22/east-carolina-vs-north-carolina-stream-how-to-watch-dec-22/
-
-**How to watch Eastern Washington vs. BYU men's basketball: Time, TV, streaming**\
-`Find out how to watch the Eastern Washington Eagles play the BYU Cougars, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6911924/2025/12/22/eastern-washington-vs-byu-stream-how-to-watch-dec-22/
-
-**Playwrights Horizons Is Sued Over Discounts to People of Color**\
-`The lawsuit, against the prominent Off Broadway theater, is backed by Edward Blum, who has long challenged race-based policies. Playwrights called it “meritless.”`\
-https://nytimes.com/2025/12/22/theater/playwrights-horizons-lawsuit-race-based-discounts.html
-
-**Jerry Kasenetz, a King of Bubblegum Pop Music, Dies at 82**\
-`With his producing partner, Jeffry Katz, he made lightweight ditties like “Yummy Yummy Yummy” that soared up the charts in the late 1960s.`\
-https://nytimes.com/2025/12/22/arts/music/jerry-kasenetz-dead.html
-
-**The Most Inspiring Homes We Visited in 2025**\
-`No matter your personal taste, you’re sure to find spaces that delight and move you.`\
-https://nytimes.com/2025/12/22/t-magazine/favorite-house-stories.html
 
