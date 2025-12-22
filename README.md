@@ -1,3 +1,7 @@
+**NFL overreactions: The stockings are stuffed with 13 picks for Christmas week**\
+`Toby Mergler gives the gift of Week 17 NFL picks — in the form of a Christmas poem. `\
+https://nytimes.com/athletic/6911298/2025/12/22/nfl-week-17-overreactions-betting-christmas/
+
 **'The Audible:' If you're debating Group of 5 teams in the Playoff, you're missing the point**\
 `Stewart Mandel, Bruce Feldman and Ralph Russo examine who among the first-round Playoff winners looks like a real contender.`\
 https://nytimes.com/athletic/6909932/2025/12/22/college-football-playoff-group-of-5-teams-the-audible-podcast/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6911386/2025/12/22/snoop-dogg-analyst-nbc-clippers-
 **The Secret to the Easiest New Year’s Party Spread**\
 `Make these quick Melissa Clark recipes — a squash tart, baked Brie and tuna rillettes — and then supplement them with nuts, chips or whatever else you have on hand.`\
 https://nytimes.com/2025/12/22/dining/easy-new-years-party-spread.html
-
-**Ex-C.I.A. Chief Asks to Keep Justice Dept. From Steering Case to Favored Judge**\
-`The request, addressed to the top federal judge in Miami, sought to block a U.S. attorney from pursuing a politically charged inquiry before Judge Aileen Cannon, who has repeatedly decided in President Trump’s favor.`\
-https://nytimes.com/2025/12/22/us/politics/trump-doj-investigation-judge-cannon-brennan-cia.html
 
