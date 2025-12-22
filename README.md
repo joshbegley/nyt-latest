@@ -1,3 +1,7 @@
+**Texans hold off Raiders to keep wild card in sight: takeaways**\
+`Despite major offensive struggles, the Texans defeated the Raiders and remain in position for the final wild-card spot in the AFC.`\
+https://nytimes.com/athletic/6909163/2025/12/21/raiders-texans-score-result-takeaways-nfl/
+
 **Rookie Lathan Ransom goes from goat to hero, pushing Panthers closer to playoffs**\
 `Ransom's penalty last week contributed to Carolina's loss and his pick vs. the Bucs put the Panthers in position to reach the postseason.`\
 https://nytimes.com/athletic/6909689/2025/12/21/panthers-playoffs-nfc-south-beat-bucs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6909715/2025/12/21/iowa-state-audi-crooks-4th-40-po
 **Waymo Suspended Service in San Francisco After Its Cars Stalled During Power Outage**\
 `The self-driving cars came to a halt at intersections when the power outage knocked out traffic signals, causing tie-ups but no accidents or injuries.`\
 https://nytimes.com/2025/12/21/us/waymo-suspended-service-in-san-francisco-after-problems-during-power-outage.html
-
-**James Ransone, Actor Known for ‘The Wire,’ Dies at 46**\
-`The character actor had grown up in Maryland, where “The Wire” was set, and went on to star in horror films like “It Chapter Two.”`\
-https://nytimes.com/2025/12/21/arts/television/james-ransone-wire-dead.html
 
