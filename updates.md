@@ -1,3 +1,7 @@
+**James Ransone, Actor Known for ‘The Wire,’ Dies at 46**\
+`The character actor had grown up in Maryland, where “The Wire” was set, and went on to star in horror films like “It Chapter Two.”`\
+https://nytimes.com/2025/12/21/arts/television/james-ransone-wire-dead.html
+
 **Although Warriors had a shaky start to season, Steve Kerr has confidence in playoff push**\
 `Kerr remains hopeful that his original goal can still come to fruition.`\
 https://nytimes.com/athletic/6909506/2025/12/21/warriors-steve-kerr-top-four-seed-playoff-nba/

@@ -1,3 +1,7 @@
+**Waymo Suspended Service in San Francisco After Problems During Power Outage**\
+`The self-driving cars came to a halt at intersections when the power knocked out traffic signals, causing tie-ups but no accidents or injuries.`\
+https://nytimes.com/2025/12/21/us/waymo-suspended-service-in-san-francisco-after-problems-during-power-outage.html
+
 **James Ransone, Actor Known for ‘The Wire,’ Dies at 46**\
 `The character actor had grown up in Maryland, where “The Wire” was set, and went on to star in horror films like “It Chapter Two.”`\
 https://nytimes.com/2025/12/21/arts/television/james-ransone-wire-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6906517/2025/12/21/pep-guardiola-manchester-city-we
 **Texas A&M sweeps Kentucky for first NCAA volleyball championship**\
 `As underdogs by seed in each of its last four matches, Texas A&M dispatched three No. 1 seeds consecutively.`\
 https://nytimes.com/athletic/6908513/2025/12/21/texas-am-ncaa-volleyball-championship-kentucky-2025/
-
-**As the NFL playoff field takes shape, who are the real contenders? Our experts' Week 16 takeaways**\
-`Also: How did the Panthers rise to the top of the NFC South, and why do going-nowhere teams like the Titans keep striving for wins?`\
-https://nytimes.com/athletic/6908966/2025/12/21/nfl-takeaways-week-16-scores-results/
 

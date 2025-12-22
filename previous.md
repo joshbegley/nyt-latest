@@ -1,3 +1,7 @@
+**James Ransone, Actor Known for ‘The Wire,’ Dies at 46**\
+`The character actor had grown up in Maryland, where “The Wire” was set, and went on to star in horror films like “It Chapter Two.”`\
+https://nytimes.com/2025/12/21/arts/television/james-ransone-wire-dead.html
+
 **Although Warriors had a shaky start to season, Steve Kerr has confidence in playoff push**\
 `Kerr remains hopeful that his original goal can still come to fruition.`\
 https://nytimes.com/athletic/6909506/2025/12/21/warriors-steve-kerr-top-four-seed-playoff-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6908513/2025/12/21/texas-am-ncaa-volleyball-champio
 **As the NFL playoff field takes shape, who are the real contenders? Our experts' Week 16 takeaways**\
 `Also: How did the Panthers rise to the top of the NFC South, and why do going-nowhere teams like the Titans keep striving for wins?`\
 https://nytimes.com/athletic/6908966/2025/12/21/nfl-takeaways-week-16-scores-results/
-
-**Man Is Arrested in Bow-and-Arrow Killing After Overnight Standoff**\
-`The man was taken into custody on Sunday afternoon in Kearny, N.J., hours after a fire broke out in the building in which he was hiding.`\
-https://nytimes.com/2025/12/21/nyregion/suspect-bow-arrow-killing-arrested-nj.html
 
