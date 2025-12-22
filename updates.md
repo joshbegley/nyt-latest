@@ -1,3 +1,11 @@
+**How to watch Pistons vs. Trail Blazers: Time, TV, streaming**\
+`Find out how to watch the Detroit Pistons play the Portland Trail Blazers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6911984/2025/12/22/pistons-vs-trail-blazers-stream-how-to-watch-dec-22/
+
+**Google Buys Data Center Company for $4.75 Billion**\
+`The deal for Intersect, a data center and energy developer, is set to help Google built out its infrastructure for artificial intelligence.`\
+https://nytimes.com/2025/12/22/technology/google-intersect-data-centers.html
+
 **How to watch Grizzlies vs. Thunder: Time, TV, streaming**\
 `Find out how to watch the Memphis Grizzlies play the Oklahoma City Thunder, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6911981/2025/12/22/grizzlies-vs-thunder-stream-how-to-watch-dec-22/

@@ -1,3 +1,7 @@
+**Mets trade Jeff McNeil to the Athletics: Sources**\
+`McNeil joins Pete Alonso, Brandon Nimmo and Edwin Díaz as long-tenured Mets finding new homes this offseason.`\
+https://nytimes.com/athletic/6840337/2025/12/22/jeff-mcneil-mets-athletics-trade/
+
 **How to watch Pistons vs. Trail Blazers: Time, TV, streaming**\
 `Find out how to watch the Detroit Pistons play the Portland Trail Blazers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6911984/2025/12/22/pistons-vs-trail-blazers-stream-how-to-watch-dec-22/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6911963/2025/12/22/pacers-vs-celtics-stream-how-to-
 **How to watch Kraken vs. Ducks: Time, TV, streaming**\
 `Find out how to watch the Seattle Kraken play the Anaheim Ducks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6911961/2025/12/22/kraken-vs-ducks-stream-how-to-watch-dec-22/
-
-**How to watch Jazz vs. Nuggets: Time, TV, streaming**\
-`Find out how to watch the Utah Jazz play the Denver Nuggets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6911959/2025/12/22/jazz-vs-nuggets-stream-how-to-watch-dec-22/
 
