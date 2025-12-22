@@ -1,3 +1,7 @@
+**Lowetide: Why Evan Bouchard should (but won't) make Canada's Olympic team**\
+`Here are the key arguments for and against Bouchard playing for Team Canada in the Olympics.`\
+https://nytimes.com/athletic/6908878/2025/12/22/evan-bouchard-stats-oilers-canada-olympics/
+
 **Riding a High, Deal Makers Grow Bullish on 2026**\
 `It was a comeback year for I.P.O.s. and mergers and acquisitions. Wall Street is optimistic that the winning streak will continue.`\
 https://nytimes.com/2025/12/22/business/dealbook/deals-ipos-2026-forecast.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/the-athletic/100000010603493/steve-kerr-on-being-in-tw
 **FPL Gameweek 17 review: Replacing Fernandes, Liverpool’s form duo and Calvert-Lewin gamble**\
 `With four deadlines in 12 days from Gameweek 18 onward, it’s crucial to separate short-term purple patches from long-term value`\
 https://nytimes.com/athletic/6909131/2025/12/22/fantasy-premier-league-gameweek-17-review-fpl-tips/
-
-**Inside Newcastle Q&A: Chris Waugh answers your questions**\
-`Most Mondays throughout the season, The Athletic hosts an hour-long ‘Inside Newcastle’ live Q&A with subscribers. Send us your questions now`\
-https://nytimes.com/athletic/6910681/2025/12/22/inside-newcastle-united-qa-premier-league/
 
