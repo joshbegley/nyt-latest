@@ -1,3 +1,7 @@
+**Inside Real Madrid: Why was Vinicius Jr jeered again? What's the latest on Alonso?**\
+`The 25-year-old Brazilian posted a cryptic message on social media after Saturday's 2-0 home win over Sevilla`\
+https://nytimes.com/athletic/6910787/2025/12/22/real-madrid-vinicius-jr-xabi-alonso-sevilla/
+
 **Inside Barcelona: Will Christensen injury lead to new centre-back signing?**\
 `After overcoming a slump in form and an injury crisis which lasted until December, Barcelona are back on track`\
 https://nytimes.com/athletic/6910724/2025/12/22/inside-barcelona-christensen-joan-garcia/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6909620/2025/12/22/mets-cody-bellinger-mlb-free-age
 **Lynching of a Hindu in Bangladesh Fans Fears of Rising Intolerance**\
 `Muslim co-workers accused the garment factory worker of blasphemy and dragged him into the street, where an angry mob murdered him.`\
 https://nytimes.com/2025/12/22/world/asia/bangladesh-hindu-muslim-lynching.html
-
-**The Pulse: New information on the Sherrone Moore scandal**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6909213/2025/12/22/sherrone-moore-michigan-women-the-pulse/
 
