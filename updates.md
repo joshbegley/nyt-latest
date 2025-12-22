@@ -1,3 +1,11 @@
+**Tee Higgins finds perspective — and a new helmet — amid 'anxious' concussion evaluations**\
+`The receiver made two circus catches and a had a touchdown Sunday after missing last week's game after being in concussion protocol.`\
+https://nytimes.com/athletic/6909694/2025/12/21/tee-higgins-concussions-bengals-win-dolphins/
+
+**Falcons-Cardinals takeaways: Kirk Cousins accounts for 3 TDs in Atlanta win**\
+`C.J. Henderson's late interception seals Atlanta's win at Arizona.`\
+https://nytimes.com/athletic/6909742/2025/12/21/falcons-cardinals-score-result-takeaways-nfl/
+
 **Broncos' Pat Bryant carted off field after violent hit vs. Jaguars**\
 `The Jaguars' Montaric Brown was initially flagged on the play, but the officials eventually picked it up.`\
 https://nytimes.com/athletic/6909733/2025/12/21/broncos-pat-bryant-carted-off-jaguars/
