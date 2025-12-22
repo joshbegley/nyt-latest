@@ -1,3 +1,5 @@
+
+
 **Snoop Dogg will be analyst for Clippers vs. Warriors on NBC in New Year**\
 `Snoop and NBC continue to expand their relationship after he received mainly strong reviews during last year’s Summer Olympics.`\
 https://nytimes.com/athletic/6911386/2025/12/22/snoop-dogg-analyst-nbc-clippers-warriors-nba/
