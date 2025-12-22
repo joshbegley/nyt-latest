@@ -1,3 +1,11 @@
+**Cardinals' lost season poses big questions to answer over offseason**\
+`The lasting image of this season is medical staff huddled around a player. Even a “Next Man Up” mentality has limits.`\
+https://nytimes.com/athletic/6910056/2025/12/21/arizona-cardinals-lost-season-offseason-questions/
+
+**Bills escape Browns, still unable to get an easy win with playoffs just ahead**\
+`The Bills have had no shortage of dramatic wins this season.`\
+https://nytimes.com/athletic/6909776/2025/12/21/bills-slip-past-browns-playoff-mode/
+
 **Cracks in Broncos D split wide open in loss to Jaguars. Can fixes come soon enough?**\
 `The Broncos still control to their path to the AFC West title and the No. 1 seed, but they have little margin for error remaining.`\
 https://nytimes.com/athletic/6910146/2025/12/21/broncos-defense-problems-jaguars-playoff-seed/
@@ -27,14 +35,6 @@ https://nytimes.com/2025/12/21/business/60-minutes-trump-bari-weiss.html
 https://nytimes.com/2025/12/21/us/betty-reid-soskin-dead.html
 
 **Bills-Browns: Crazy (bad) WR stats, Keon Coleman scratch, Greg Rousseau heats up**\
-`Finding a solid group of boundary receivers for Josh Allen has been a season-long journey.`\
+`Finding a solid group of boundary receivers for Josh Allen has been a season-long journey that continued with a 23-20 win over Cleveland.`\
 https://nytimes.com/athletic/6909816/2025/12/21/bills-streak-continues-wr-woes/
-
-**Steelers hold on after game-ending OPI flag; Lions now a playoff longshot**\
-`The Lions were flagged for offensive pass interference on the game's final play, erasing a touchdown lateraled to quarterback Jared Goff.`\
-https://nytimes.com/athletic/6909659/2025/12/21/steelers-lions-score-result-takeaways-nfl/
-
-**Brian Flores has proved the Giants hired the wrong Brian**\
-`Flores' defenses have allowed the Giants zero offensive touchdowns in their last 12 quarters of shared competition.`\
-https://nytimes.com/athletic/6909877/2025/12/21/brian-flores-wrong-brian-giants-vikings/
 
