@@ -1,3 +1,11 @@
+**Flash Floods Submerge Highways in Northern California**\
+`At least one person was killed in flash flooding caused by heavy rain in Northern California on Sunday, officials said.`\
+https://nytimes.com/video/weather/100000010603321/flash-flooding-shasta-california.html
+
+**Steve Kerr on Being in Two N.B.A. Dynasties and Closing a Third**\
+`Reflecting on his time with the Bulls, Spurs and Warriors, Steve Kerr speaks with Zena Keita on “The Athletic Show” about the distinct nature of each dynasty and the reality of facing the end of Golden State’s historic run.`\
+https://nytimes.com/video/the-athletic/100000010603493/steve-kerr-on-being-in-two-nba-dynasties-and-closing-a-third.html
+
 **FPL Gameweek 17 review: Replacing Fernandes, Liverpool’s form duo and Calvert-Lewin gamble**\
 `With four deadlines in 12 days from Gameweek 18 onward, it’s crucial to separate short-term purple patches from long-term value`\
 https://nytimes.com/athletic/6909131/2025/12/22/fantasy-premier-league-gameweek-17-review-fpl-tips/
