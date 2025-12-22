@@ -1,3 +1,7 @@
+**Waymo Suspended Service in San Francisco After Problems During Power Outage**\
+`The self-driving cars came to a halt at intersections when the power knocked out traffic signals, causing tie-ups but no accidents or injuries.`\
+https://nytimes.com/2025/12/21/us/waymo-suspended-service-in-san-francisco-after-problems-during-power-outage.html
+
 **James Ransone, Actor Known for ‘The Wire,’ Dies at 46**\
 `The character actor had grown up in Maryland, where “The Wire” was set, and went on to star in horror films like “It Chapter Two.”`\
 https://nytimes.com/2025/12/21/arts/television/james-ransone-wire-dead.html
