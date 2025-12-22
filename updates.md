@@ -1,3 +1,7 @@
+**Some of the World’s Atomic Clocks Were Off Last Week (by 5-Millionths of a Second)**\
+`How some of the world’s most precise clocks missed a very small beat.`\
+https://nytimes.com/2025/12/22/science/atomic-clock-late-colorado.html
+
 **Canada Announces Former BlackRock Executive as Ambassador to U.S.**\
 `Mark Wiseman has held high-profile roles in law, business consulting and finance, and will lead Canada’s efforts to reboot diplomatic relation with Washington at a critical moment.`\
 https://nytimes.com/2025/12/22/world/canada/mark-wiseman-canada-us-ambassador.html

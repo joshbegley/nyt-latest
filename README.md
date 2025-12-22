@@ -1,3 +1,7 @@
+**Inside the Deportation Machine**\
+`An analysis of data on every ICE arrest, detention stay and deportation reveals the complexity and reach of President Trump’s immigration crackdown.`\
+https://nytimes.com/interactive/2025/12/22/us/trump-immigration-deportation-network-ice-arrests.html
+
 **Some of the World’s Atomic Clocks Were Off Last Week (by 5-Millionths of a Second)**\
 `How some of the world’s most precise clocks missed a very small beat.`\
 https://nytimes.com/2025/12/22/science/atomic-clock-late-colorado.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6911622/2025/12/22/nhl-rumblings-predators-maple-le
 **The Burdens and Joys of Holiday Hosting**\
 `Readers discuss whether or not to quit hosting holiday celebrations. Also: How to lighten the load for busy judges.`\
 https://nytimes.com/2025/12/22/opinion/holiday-hosting-stress.html
-
-**Arizona still No. 1, Duke drops to No. 6 in latest men's AP Top 25**\
-`The Blue Devils slid three spots to No. 6 after their first loss of the season, 82-81 to Texas Tech in New York City.`\
-https://nytimes.com/athletic/6910859/2025/12/22/ap-mens-basketball-top-25-rankings-arizona-duke/
 
