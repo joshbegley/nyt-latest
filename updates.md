@@ -1,3 +1,11 @@
+**Is Jaxson Dart regressing, or are Giants QB's recent struggles just rookie growing pains?**\
+`It’s impossible to ignore that Dart's performance has declined in his three games since Brian Daboll was fired and Mike Kafka took over.`\
+https://nytimes.com/athletic/6909731/2025/12/21/ny-giants-jaxson-dart-regress-vikings/
+
+**Tee Higgins finds perspective — and a new helmet — amid 'anxious' concussion evaluations**\
+`The receiver made two circus catches and had a touchdown Sunday after missing last week's game after being in concussion protocol.`\
+https://nytimes.com/athletic/6909694/2025/12/21/tee-higgins-concussions-bengals-win-dolphins/
+
 **Tee Higgins finds perspective — and a new helmet — amid 'anxious' concussion evaluations**\
 `The receiver made two circus catches and a had a touchdown Sunday after missing last week's game after being in concussion protocol.`\
 https://nytimes.com/athletic/6909694/2025/12/21/tee-higgins-concussions-bengals-win-dolphins/

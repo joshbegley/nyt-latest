@@ -1,5 +1,9 @@
+**Is Jaxson Dart regressing, or are Giants QB's recent struggles just rookie growing pains?**\
+`It’s impossible to ignore that Dart's performance has declined in his three games since Brian Daboll was fired and Mike Kafka took over.`\
+https://nytimes.com/athletic/6909731/2025/12/21/ny-giants-jaxson-dart-regress-vikings/
+
 **Tee Higgins finds perspective — and a new helmet — amid 'anxious' concussion evaluations**\
-`The receiver made two circus catches and a had a touchdown Sunday after missing last week's game after being in concussion protocol.`\
+`The receiver made two circus catches and had a touchdown Sunday after missing last week's game after being in concussion protocol.`\
 https://nytimes.com/athletic/6909694/2025/12/21/tee-higgins-concussions-bengals-win-dolphins/
 
 **Falcons-Cardinals takeaways: Kirk Cousins accounts for 3 TDs in Atlanta win**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/21/world/europe/ukraine-peace-talks.html
 **The lasting image from the Chiefs' latest loss — this one without Patrick Mahomes**\
 `A moment from the second quarter brought out the pride and anger of a couple of Chiefs veterans in their fourth straight loss.`\
 https://nytimes.com/athletic/6908835/2025/12/21/chiefs-titans-loss-trey-smith-creed-humphrey/
-
-**Bulls and Hawks combine for more than 300 points in high-scoring affair**\
-`Chicago’s offensive onslaught included 83 points in the first half, when the Bulls finished with a 10-point lead.`\
-https://nytimes.com/athletic/6909645/2025/12/21/bulls-hawks-high-scoring-affair/
 
