@@ -1,3 +1,19 @@
+**FPL Gameweek 17 review: Replacing Fernandes, Liverpool’s form duo and Calvert-Lewin gamble**\
+`With four deadlines in 12 days from Gameweek 18 onward, it’s crucial to separate short-term purple patches from long-term value`\
+https://nytimes.com/athletic/6909131/2025/12/22/fantasy-premier-league-gameweek-17-review-fpl-tips/
+
+**Inside Newcastle Q&A: Chris Waugh answers your questions**\
+`Most Mondays throughout the season, The Athletic hosts an hour-long ‘Inside Newcastle’ live Q&A with subscribers. Send us your questions now`\
+https://nytimes.com/athletic/6910681/2025/12/22/inside-newcastle-united-qa-premier-league/
+
+**Panthers Beat Buccaneers in Key N.F.C. South Matchup**\
+`Baker Mayfield threw a late-game interception, securing a 23-20 win for the Carolina Panthers. They now own sole possession of the division with two games left.`\
+https://nytimes.com/video/the-athletic/100000010603476/panthers-beat-buccaneers-in-key-nfc-south-matchup.html
+
+**In These K-Dramas, Women Are Unjustly Accused (Maybe)**\
+`Netflix’s “The Price of Confession” and Hulu’s “Nine Puzzles” are thrillers with complicated plots and complicated protagonists.`\
+https://nytimes.com/2025/12/22/arts/television/netflix-the-price-of-confession-nine-puzzles-hulu.html
+
 **How will Miami challenge Ohio State? What I learned from studying Canes, covering Buckeyes**\
 `Miami has enough playmakers to give Ohio State plenty to worry about as it prepares for the CFP's Cotton Bowl quarterfinal on Dec. 31.`\
 https://nytimes.com/athletic/6909102/2025/12/22/ohio-state-miami-cotton-bowl-matchup/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6908258/2025/12/22/gabriel-jesus-arsenal-100-games-
 **Blackhawks prospect breakdown: Václav Nestrašil proving his potential as UMass freshman**\
 `Václav Nestrašil, a right wing with significant size, is second in UMass scoring as a freshman.`\
 https://nytimes.com/athletic/6909663/2025/12/22/blackhawks-vaclav-nestrasil-prospect-breakdown/
-
-**How the Red Wings have — and haven't — changed after a year of Todd McLellan**\
-`In one year, McLellan has taken the Red Wings from a delicate situation to playoff contention.`\
-https://nytimes.com/athletic/6900801/2025/12/22/red-wings-playoffs-todd-mclellan-nhl/
-
-**Cubs mailbag: It’s all about pitching with ​​Tatsuya Imai’s deadline looming**\
-`Pitching remains the focus, for the Cubs and these reader-submitted questions.`\
-https://nytimes.com/athletic/6908961/2025/12/22/cubs-mailbag-tatsuya-imais-deadline-looming/
-
-**Brendon McCullum eager to remain England coach despite Ashes humbling**\
-`Defeat at Adelaide Oval ensured Australia retained the Ashes with two games still to play, with McCullum admitting mistakes have been made`\
-https://nytimes.com/athletic/6908381/2025/12/22/brendon-mccullum-england-coach-stokes/
-
-**Blue Jackets Monday Gathering: Werenski's injury scare part of intense 48 hours**\
-`The Blue Jackets have had an eventful weekend, from trades, front-office shakeups and an update on Zach Werenski.`\
-https://nytimes.com/athletic/6909071/2025/12/22/blue-jackets-werenski-marchment-flynn/
 
