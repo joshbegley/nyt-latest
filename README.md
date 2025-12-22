@@ -11,7 +11,7 @@ https://nytimes.com/athletic/6911298/2025/12/22/nfl-week-17-overreactions-bettin
 https://nytimes.com/athletic/6909932/2025/12/22/college-football-playoff-group-of-5-teams-the-audible-podcast/
 
 **Agriculture Department Sheds a Fifth of Its Workers**\
-`From January to June, more than 20,000 employees out of more than 110,000 left the agency, according a report by the agency’s inspector general.`\
+`From January to June, more than 20,000 employees out of more than 110,000 left the agency, according to a report by the agency’s inspector general.`\
 https://nytimes.com/2025/12/22/us/politics/trump-agriculture-department-resignations-cuts.html
 
 **Fantasy football Week 16 recap, early waivers speed run: Surprises, letdowns and injuries**\
