@@ -1,3 +1,23 @@
+**Race to the No. 1 pick: Titans' win over Chiefs turns it into four-team race**\
+`It's now essentially a four-team race after Tennessee's win Sunday, with next week's Giants-Raiders match looming large. `\
+https://nytimes.com/athletic/6909125/2025/12/22/nfl-draft-2026-top-pick-raiders-giants-jets-browns/
+
+**No Corrections: Dec. 22, 2025**\
+`No corrections appeared in print on Monday, Dec. 22, 2025.`\
+https://nytimes.com/2025/12/22/corrections/no-corrections-dec-22-2025.html
+
+**Quote of the Day: A Weekly Salon for Those Who Fled Nazis Ends**\
+`Quotation of the Day for Monday, December 22, 2025.`\
+https://nytimes.com/2025/12/22/pageoneplus/quote-of-the-day-a-weekly-salon-for-those-who-fled-nazis-ends.html
+
+**Connections: Sports Edition Coach: Hints for Dec. 22, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6910375/2025/12/22/connections-sports-edition-hints-for-dec-22-2025/
+
+**NFL playoff picture, Week 16: Jaguars the team to beat in AFC? Panthers control NFC South**\
+`While five teams have already clinched playoff spots in the NFC, the race for the No. 1 seed is heating up. `\
+https://nytimes.com/athletic/6903629/2025/12/21/nfl-playoff-picture-week-16-jaguars-panthers/
+
 **'I don't know if I've felt like this before': Leafs' lack of offence is getting dire**\
 `The Leafs put up a good performance against a bona fide contender, except when it came to putting pucks in the net.`\
 https://nytimes.com/athletic/6910354/2025/12/21/maple-leafs-offence-nylander-stars/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6910292/2025/12/21/sabres-norris-benson-luukkonen-d
 **Cardinals' lost season poses big questions to answer over offseason**\
 `The lasting image of this season is medical staff huddled around a player. Even a “Next Man Up” mentality has limits.`\
 https://nytimes.com/athletic/6910056/2025/12/21/arizona-cardinals-lost-season-offseason-questions/
-
-**Bills escape Browns, still unable to get an easy win with playoffs just ahead**\
-`The Bills have had no shortage of dramatic wins this season.`\
-https://nytimes.com/athletic/6909776/2025/12/21/bills-slip-past-browns-playoff-mode/
-
-**Cracks in Broncos D split wide open in loss to Jaguars. Can fixes come soon enough?**\
-`The Broncos still control to their path to the AFC West title and the No. 1 seed, but they have little margin for error remaining.`\
-https://nytimes.com/athletic/6910146/2025/12/21/broncos-defense-problems-jaguars-playoff-seed/
-
-**Fatigued-looking Wild get rolled in a rare flat performance at home: Takeaways**\
-`On the second night of a back-to-back, the Wild just didn't have the legs to keep up with the NHL's best team.`\
-https://nytimes.com/athletic/6909846/2025/12/21/wild-nelson-hughes-avalanche/
-
-**Vance Refuses to Take Sides in G.O.P. Fight Over Bigotry**\
-`The vice president’s plea for a big-tent coalition at an annual conservative gathering belied the cracks in his party over antisemitism, racism and conspiracy theories.`\
-https://nytimes.com/2025/12/21/us/politics/vance-republicans-trump-antisemitism.html
-
-**Bijan Robinson 'big-time' again, hitting 2,000-yard milestone in hometown victory**\
-`Robinson passed 2,000 yards from scrimmage in his home state on Sunday in the Falcons' 26-19 win at the Cardinals.`\
-https://nytimes.com/athletic/6910076/2025/12/21/bijan-robinson-falcons-cardinals-2000-yards/
 
