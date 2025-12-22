@@ -3,7 +3,7 @@
 https://nytimes.com/2025/12/22/world/europe/russia-moscow-general-killed.html
 
 **Raja Shehadeh Believes Israelis and Palestinians Can Still Find Peace**\
-`David Marchese spoke with the writer and lawyer Raja Shehadeh, who has been documenting the occupation for decades, about how he maintains hope.`\
+`David Marchese spoke with the writer and lawyer Raja Shehadeh about how he maintains hope.`\
 https://nytimes.com/video/podcasts/100000010602448/raja-shehadeh-believes-israelis-and-palestinians-can-still-find-peace.html
 
 **Inside the Room Where MetroCard Will Take Its Last Ride**\
