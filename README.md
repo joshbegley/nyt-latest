@@ -1,4 +1,4 @@
-**NHL rumblings: No panic in the Predators, no easy fixes for the Maple Leafs, more**\
+**NHL rumblings: No panic in Predators, no easy fixes for Maple Leafs and more**\
 `After a tough start to the season, the Predators have won seven of 10 and are in the wild-card mix. Are they still sellers?`\
 https://nytimes.com/athletic/6911622/2025/12/22/nhl-rumblings-predators-maple-leafs/
 
