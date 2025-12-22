@@ -1,3 +1,7 @@
+**Fantasy football Week 16 recap, early waivers speed run: Surprises, letdowns and injuries**\
+`Jake Ciely looks ahead to Week 17 and reviews a Week 16 that had extreme highs and devastating lows. `\
+https://nytimes.com/athletic/6911203/2025/12/22/fantasy-football-week-16-recap-waivers/
+
 **Notre Dame, USC fail to reach agreement, will not play until at least 2028 season**\
 `Excluding the 2020 pandemic season and three seasons during World War II in the 1940s, the two schools have played every year since 1926.`\
 https://nytimes.com/athletic/6911524/2025/12/22/notre-dame-usc-football-series-ending/
@@ -25,8 +29,4 @@ https://nytimes.com/2025/12/22/us/politics/trump-doj-investigation-judge-cannon-
 **For Fallen Syrian Dictator Assad and Family, an Exile of Luxury and Impunity**\
 `Bashar al-Assad’s long, brutal reign ended swiftly, but he and his close circle have had a soft landing in Russia.`\
 https://nytimes.com/2025/12/22/world/middleeast/assad-syria-exile-luxury.html
-
-**Assad’s Enforcers Brutalized Syria. Now They’re Living Large, Lying Low and Evading Justice.**\
-`A Times investigation into the whereabouts of top Syrian officials who fled after the regime’s fall shows many remain free — shielded by wealth and accommodating host nations.`\
-https://nytimes.com/2025/12/22/world/middleeast/assad-syria-enforcers-lives-now.html
 
