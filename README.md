@@ -1,3 +1,7 @@
+**Your Bra Needs Days Off**\
+`Your favorite bra is likely working overtime. If you want to maintain a snug and supportive undergarment, make sure you’re giving the elastic some well-deserved breaks (ahem, try not to wear the same one day after day).`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010603708/your-bra-needs-days-off.html
+
 **T206 Honus Wagner card going to auction after 116 years with one family**\
 `The once publicly unaccounted for T206 Wagner card is one of 53 examples that have been graded by authentication services PSA and SGC.`\
 https://nytimes.com/athletic/6911059/2025/12/22/t206-honus-wagner-auction-goldin/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6910790/2025/12/22/bucks-losing-road-games-change-a
 **In Congress and at Home, Omar Faces Trump’s Anti-Somali Attacks**\
 `Representative Ilhan Omar, Democrat of Minnesota, has long been a target of racist insults by the president. Now her whole community faces an immigration crackdown.`\
 https://nytimes.com/2025/12/22/us/politics/ilhan-omar-trump-attacks.html
-
-**NBA Rewind: Coaches don't have much Christmas cheer for referees**\
-`Plus, who's hot (Spurs, Bulls) and not (Kings, Hawks) as the league's showcase holiday games loom.`\
-https://nytimes.com/athletic/6897185/2025/12/22/nba-rewind-coaches-officials-spurs/
 
