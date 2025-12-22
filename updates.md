@@ -1,3 +1,11 @@
+**West Ham's Fullkrug given permission to undergo medical for Milan loan**\
+`Fullkrug, 32, has struggled for minutes and fitness since joining West Ham from Borussia Dortmund on a four-year deal in August 2024.`\
+https://nytimes.com/athletic/6911118/2025/12/22/milan-niclas-fullkrug-west-ham-loan-transfer/
+
+**Nicki Minaj Praises Trump and Vance at Turning Point Event**\
+`The rapper Nicki Minaj, who previously criticized President Trump’s policies, praised him and Vice President JD Vance during a surprise appearance at a Turning Point USA event on Sunday.`\
+https://nytimes.com/video/us/politics/100000010603768/nicki-minaj-erika-kirk-turning-point.html
+
 **Steelers WR DK Metcalf suspended 2 games for altercation with fan in Detroit**\
 `CBS cameras captured the Steelers wide receiver taking a swing at a fan during Sunday's game at Ford Field.`\
 https://nytimes.com/athletic/6911229/2025/12/22/dk-metcalf-fan-punishment-nfl/
