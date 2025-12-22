@@ -1,3 +1,7 @@
+**Four observations from the Bulls' 3-game win streak, including their double-big look**\
+`Now with a full lineup, Chicago has plenty of scoring options. Its defense is another story entirely. `\
+https://nytimes.com/athletic/6910543/2025/12/22/bulls-observations-matas-buzelis-defense/
+
 **Flash Floods Submerge Highways in Northern California**\
 `At least one person was killed in flash flooding caused by heavy rain in Northern California on Sunday, officials said.`\
 https://nytimes.com/video/weather/100000010603321/flash-flooding-shasta-california.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6904719/2025/12/22/college-football-bowls-byu-georg
 **Comeback kid: Drake Maye's fourth-quarter heroics put him back in the MVP discussion**\
 `A week after falling short against Buffalo, Maye led the winning, 89-yard touchdown drive and produced his first 300-yard game.`\
 https://nytimes.com/athletic/6910591/2025/12/22/patriots-ravens-drake-maye-mvp-talk/
-
-**Packers on brink of playoffs, but who's starting at QB this week?**\
-`Jordan Love and Malik Willis are nursing injuries as the Packers look to clinch a playoff berth on Saturday night.`\
-https://nytimes.com/athletic/6910107/2025/12/22/packers-playoffs-scenario-jordan-love/
 

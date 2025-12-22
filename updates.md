@@ -1,3 +1,7 @@
+**Four observations from the Bulls' 3-game win streak, including their double-big look**\
+`Now with a full lineup, Chicago has plenty of scoring options. Its defense is another story entirely. `\
+https://nytimes.com/athletic/6910543/2025/12/22/bulls-observations-matas-buzelis-defense/
+
 **Flash Floods Submerge Highways in Northern California**\
 `At least one person was killed in flash flooding caused by heavy rain in Northern California on Sunday, officials said.`\
 https://nytimes.com/video/weather/100000010603321/flash-flooding-shasta-california.html
