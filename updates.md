@@ -1,3 +1,15 @@
+**The New York Times in Print for Monday, Dec. 22, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/12/22/todays-new-york-times
+
+**France Needs a New France**\
+`The time has come for a Sixth Republic.`\
+https://nytimes.com/2025/12/22/opinion/france-macron-sixth-republic.html
+
+**‘Cover-Up,’ Plus 8 Things on TV This Week**\
+`A documentary about the journalist Seymour Hersh premieres, and lots of shows wrap up their seasons.`\
+https://nytimes.com/2025/12/22/arts/television/cover-up-plus-8-things-on-tv-this-week.html
+
 **Drake Maye leads late comeback as Patriots clinch playoff spot with win over Ravens**\
 `Drake Maye was 31-of-44 passing for a career-high 380 yards, two touchdowns and an interception in the Patriots' 28-24 win over the Ravens.`\
 https://nytimes.com/athletic/6910021/2025/12/22/patriots-ravens-score-result-takeaways-nfl-snf/
