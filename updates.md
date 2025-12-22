@@ -1,3 +1,7 @@
+**2025 in Pictures**\
+`Which of the images in this Times collection best captures how you’ll remember this year?`\
+https://nytimes.com/2025/12/22/learning/2025-in-pictures.html
+
 **China Vanke Gets Temporary Lifeline to Prevent Debt Default**\
 `Bondholders for one of China’s biggest real estate developers extended a grace period to negotiate a delayed repayment of a $285 million bond.`\
 https://nytimes.com/2025/12/22/business/china-vanke-real-estate-default.html
