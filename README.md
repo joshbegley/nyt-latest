@@ -1,3 +1,11 @@
+**U.K. Man and 5 Others Charged With Sexual Offenses Against His Wife**\
+`Philip Young, 49, is accused of drugging and raping his now ex-wife over a 13-year period.`\
+https://nytimes.com/2025/12/22/world/europe/philip-young-wife-rape-charges.html
+
+**Mercedes to Pay $150 Million Over Claims It Cheated on Emissions Tests**\
+`It’s the latest in a decade-long scandal involving accusations that software “defeat devices” made diesel vehicles seem cleaner than they were.`\
+https://nytimes.com/2025/12/22/climate/mercedes-defeat-devices-dieselgate-emissions-settlement.html
+
 **Inside the Deportation Machine**\
 `An analysis of data on every ICE arrest, detention stay and deportation reveals the complexity and reach of President Trump’s immigration crackdown.`\
 https://nytimes.com/interactive/2025/12/22/us/trump-immigration-deportation-network-ice-arrests.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/22/us/jeff-landry-greenland-envoy-trump.html
 **Got a question about the Pistons? Submit one for our mailbag**\
 `What's on your mind as the trade deadline looms and the Pistons work to sustain their start?`\
 https://nytimes.com/athletic/6911737/2025/12/22/detroit-pistons-mailbag-nba-eastern-conference/
-
-**NHL rumblings: No panic in Predators, no easy fixes for Maple Leafs and more**\
-`After a tough start to the season, the Predators have won seven of 10 and are in the wild-card mix. Are they still sellers?`\
-https://nytimes.com/athletic/6911622/2025/12/22/nhl-rumblings-predators-maple-leafs/
-
-**The Burdens and Joys of Holiday Hosting**\
-`Readers discuss whether or not to quit hosting holiday celebrations. Also: How to lighten the load for busy judges.`\
-https://nytimes.com/2025/12/22/opinion/holiday-hosting-stress.html
 
