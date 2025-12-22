@@ -1,3 +1,7 @@
+**Ryan Day to call plays for Ohio State during College Football Playoff**\
+`Day is stepping back into play-calling duties for Ohio State with Brian Hartline dividing time as South Florida's new head coach.`\
+https://nytimes.com/athletic/6911698/2025/12/22/ohio-state-ryan-day-play-calling-playoff/
+
 **Bernie Sanders to Lead Zohran Mamdani’s Public Swearing-In Ceremony**\
 `Mr. Sanders, a democratic socialist senator from Vermont, has supported New York City’s mayor-elect since the Democratic primary.`\
 https://nytimes.com/2025/12/22/nyregion/mamdani-sanders-inauguration.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6911659/2025/12/22/georgia-gabe-harris-turf-toe-inj
 **Barry Manilow Is Diagnosed With Lung Cancer**\
 `The “Mandy” and “Copacabana” singer said he would undergo surgery to remove a cancerous spot on his left lung, and he postponed several concert dates.`\
 https://nytimes.com/2025/12/22/arts/music/barry-manilow-lung-cancer-surgery.html
-
-**Interim Michigan coach Biff Poggi: U-M 'a malfunctioning organization' for past 5 years**\
-`Poggi offered a blunt assessment of what needs to change after the firing and arrest of former coach Sherrone Moore.`\
-https://nytimes.com/athletic/6911611/2025/12/22/biff-poggi-sherrone-moore-michigan/
 
