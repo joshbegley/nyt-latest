@@ -1,3 +1,11 @@
+**Bijan Robinson 'big-time' again, hitting 2,000-yard milestone in hometown victory**\
+`Robinson passed 2,000 yards from scrimmage in his home state on Sunday in the Falcons' 26-19 win over the Cardinals.`\
+https://nytimes.com/athletic/6910076/2025/12/21/bijan-robinson-falcons-cardinals-2000-yards/
+
+**Ravens' Lamar Jackson questionable to return vs. Patriots with back injury**\
+`Jackson left the game late in the second quarter after taking a hit from the Patriots' Craig Woodson. `\
+https://nytimes.com/athletic/6910143/2025/12/21/ravens-lamar-jackson-back-injury-patriots/
+
 **‘60 Minutes’ Pulled a Segment. A Correspondent Calls It ‘Political.’**\
 `Sharyn Alfonsi, a “60 Minutes” correspondent, criticized the network’s decision to remove her reporting from Sunday’s edition of the show.`\
 https://nytimes.com/2025/12/21/business/60-minutes-trump-bari-weiss.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6909803/2025/12/21/chargers-win-cowboys-week-16-afc
 **At times, Browns’ offense played as well as it could vs. Bills. It still wasn’t enough**\
 `The loss was the latest example of Shedeur Sanders mixing in some nice throws with moments that show he's prone to some rookie mistakes.`\
 https://nytimes.com/athletic/6909726/2025/12/21/browns-offense-shedeur-sanders-loss-bills/
-
-**Jerry Jones talks change as Cowboys miss playoffs: 'We all underachieved'**\
-`Jones likes what the Cowboys have on offense, led by Dak Prescott, and believes they have the bones of a good defense in 2026.`\
-https://nytimes.com/athletic/6909761/2025/12/21/cowboys-lose-jerry-jones-changes/
-
-**J.J. McCarthy's hand injury could complicate Vikings' QB future despite win over Giants**\
-`The second-year QB was solid Sunday prior to the injury, and the Vikings hope it won't further stunt his growth and development.`\
-https://nytimes.com/athletic/6909834/2025/12/21/jj-mccarthy-hand-injury-vikings-giants/
 
