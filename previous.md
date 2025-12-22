@@ -1,3 +1,7 @@
+**How can the Bucks stop losing road games? Might be time to 'pray about it'**\
+`Sure, Giannis has been out for much of it, but Milwaukee has not won a road game since Nov. 10.`\
+https://nytimes.com/athletic/6910790/2025/12/22/bucks-losing-road-games-change-analysis/
+
 **In Congress and at Home, Omar Faces Trump’s Anti-Somali Attacks**\
 `Representative Ilhan Omar, Democrat of Minnesota, has long been a target of racist insults by the president. Now her whole community faces an immigration crackdown.`\
 https://nytimes.com/2025/12/22/us/politics/ilhan-omar-trump-attacks.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6910413/2025/12/22/vancouver-canucks-standings-stat
 **Seahawks' Rashid Shaheed is the difference-maker team needs to be a contender**\
 `Seattle has relied on Shaheed’s playmaking perhaps more than initially envisioned when the trade with the Saints was executed.`\
 https://nytimes.com/athletic/6909572/2025/12/22/rashid-shaheed-seahawks-nfc/
-
-**The story behind the best 49ers player this season no one ever talks about**\
-`Siran Neal is hardly a household name, but the special teams gunner has been one of the most important players for SF this season.`\
-https://nytimes.com/athletic/6907263/2025/12/22/siran-neal-49ers-special-teams-gunner/
 
