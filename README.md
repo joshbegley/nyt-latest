@@ -1,5 +1,5 @@
-**Sidney Crosby ties Mario Lemieux as Penguins' all-time points leader**\
-`Sidney Crosby continues to climb the ranks of the NHL's greats with a goal against the Canadiens.`\
+**Sidney Crosby passes Mario Lemieux as Penguins' all-time points leader**\
+`Sidney Crosby set a Penguins franchise record with two points in the first period against the Montreal Canadiens.`\
 https://nytimes.com/athletic/6876502/2025/12/21/sidney-crosby-penguins-points-record-mario-lemieux/
 
 **Iowa State's Audi Crooks notches 3rd 40-point game this season in win over Kansas**\
