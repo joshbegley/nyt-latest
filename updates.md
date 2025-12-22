@@ -1,3 +1,7 @@
+**The Windup: A Christmas miracle in Chicago?**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6911265/2025/12/22/munetka-murakami-white-sox-skaggs-settlement-the-windup/
+
 **Christmas Is Back in Bethlehem, but Peace and Joy Have Yet to Arrive**\
 `Palestinian Christians are reviving their seasonal public celebrations, hoping to bring light and holiday spirit at the end of a gloomy year in the West Bank.`\
 https://nytimes.com/2025/12/22/world/middleeast/christmas-in-bethlehem-west-bank.html

@@ -1,3 +1,11 @@
+**NBA Power Rankings: Spurs are contenders; revisiting early-season questions**\
+`Some inquiries we had two months ago look silly now (sorry, Clippers). Other concerns were spot on.`\
+https://nytimes.com/athletic/6910999/2025/12/22/nba-power-rankings-spurs-thunder-knicks/
+
+**Bill Belichick hires Bobby Petrino as new offensive coordinator at North Carolina: Reports**\
+`Petrino, who served as Arkansas' interim head coach for seven games in 2025, will call plays for the Tar Heels in 2026.`\
+https://nytimes.com/athletic/6911238/2025/12/22/bobby-petrino-unc-offensive-coordinator-belichick/
+
 **The Windup: A Christmas miracle in Chicago?**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6911265/2025/12/22/munetka-murakami-white-sox-skaggs-settlement-the-windup/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6897185/2025/12/22/nba-rewind-coaches-officials-spu
 **Trump Halts Five Wind Farms Off the East Coast**\
 `The Interior Department said the projects posed national security risks, without providing details. The decision imperils billions of dollars of investments.`\
 https://nytimes.com/2025/12/22/climate/trump-offshore-wind-farms.html
-
-**'We should be in Miami': Will Barcelona eventually play a La Liga match in the U.S.?**\
-`Plans to hold Villarreal's 'home' match with Barcelona in Miami were cancelled in October — but the idea is not over and done with yet`\
-https://nytimes.com/athletic/6910892/2025/12/22/barcelona-miami-la-liga-villarreal-fifa/
-
-**Larry Ellison Personally Guarantees Paramount Bid for Warner Brothers**\
-`Mr. Ellison’s personal guarantee is meant to address concerns that the Warner Bros. Discovery’s board had expressed about Paramount’s original offer.`\
-https://nytimes.com/2025/12/22/business/larry-ellison-paramount-warner-brothers-bid.html
 
