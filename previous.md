@@ -1,3 +1,11 @@
+**Maple Leafs fire assistant coach Marc Savard: What it means, what's next**\
+`Savard was responsible for the power play, which currently ranks dead last in the league.`\
+https://nytimes.com/athletic/6912267/2025/12/22/maple-leafs-fire-savard-power-play/
+
+**U.S. Tanker Seizures Begin to Draw International and Domestic Scrutiny**\
+`Homeland Security Secretary Kristi Noem said the ship seizures were meant to force Venezuela’s president Nicolás Maduro from power.`\
+https://nytimes.com/2025/12/22/world/americas/trump-venezuela-oil-tankers-maduro.html
+
 **USMNT's McKennie says he hopes to stay at Juventus with contract set to expire in 2026**\
 `McKennie has made 204 appearances for Juventus since joining in 2020, scoring 20 goals and providing 22 assists.`\
 https://nytimes.com/athletic/6912166/2025/12/22/weston-mckennie-juventus-contract-usmnt/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/22/weather/warm-christmas-forecast.html
 **Palestinian Writer Raja Shehadeh: Israelis Live with a ‘Double Consciousness’**\
 `Raja Shehadeh, a Palestinian writer, lawyer and human rights activist, joined “The Interview” to talk about the conflict between Israelis and Palestinians and why he believes that peace remains possible.`\
 https://nytimes.com/video/magazine/100000010604857/palestinian-writer-raja-shehadeh-israelis-live-with-a-double-consciousness.html
-
-**Writer Raja Shehadeh: ‘Zionism Has Made My Life Impossible’**\
-`The Palestinian writer and human rights activist Raja Shehadeh has been documenting the experience of living under Israeli occupation for decades.`\
-https://nytimes.com/video/magazine/100000010604821/writer-raja-shehadeh-zionism-has-made-my-life-impossible.html
-
-**Why Palestinians and Israelis Don’t Know One Another**\
-`Raja Shehadeh, the Palestinian writer, lawyer and human rights activist, believes that peace between Israelis and Palestinians remains possible. On the latest edition of “The Interview,” Shehadeh talks to David Marchese about his life, his work and what he thinks needs to happen to get there.`\
-https://nytimes.com/video/magazine/100000010604468/why-palestinians-and-israelis-dont-know-one-another.html
 
