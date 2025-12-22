@@ -1,3 +1,23 @@
+**Inside the Room Where MetroCard Will Take Its Last Ride**\
+`The floppy plastic fare card is retiring this month, after three decades of production at this high-security facility in Queens.`\
+https://nytimes.com/card/2025/12/22/nyregion/metrocard-nyc-subway
+
+**What to Know About OMNY, MetroCard’s Tap-and-Go Successor**\
+`With the MetroCard retiring at the end of 2025, the OMNY system will become the only way to pay for most transit riders.`\
+https://nytimes.com/2025/12/22/nyregion/omny-nyc-subway.html
+
+**Goodbye (and Good Riddance?) to the MetroCard**\
+`Thirty years ago, the newfangled method of paying for New York City’s buses and subways seemed like cutting-edge technology. Now, its days are numbered.`\
+https://nytimes.com/2025/12/22/nyregion/new-york-city-metrocard-end.html
+
+**Behind closed doors at Michigan: Women describe social media messages from Sherrone Moore**\
+`Five women contacted by The Athletic said they had strange or uncomfortable exchanges on Instagram with ex-Michigan coach Sherrone Moore.`\
+https://nytimes.com/athletic/6909584/2025/12/22/sherrone-moore-michigan-firing-women/
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/12/22/crosswords/spelling-bee-forum.html
+
 **Trump Photo Removed Then Reposted in Epstein Files**\
 `An image containing a photo of President Trump was removed from a Justice Department website that housed files related to the investigations of Jeffrey Epstein. The department said it reposted the image on Sunday after it was found to not feature Epstein’s victims.`\
 https://nytimes.com/video/us/politics/100000010603089/epstein-files-trump.html
@@ -17,24 +37,4 @@ https://nytimes.com/2025/12/22/opinion/france-macron-sixth-republic.html
 **‘Cover-Up,’ Plus 8 Things on TV This Week**\
 `A documentary about the journalist Seymour Hersh premieres, and lots of shows wrap up their seasons.`\
 https://nytimes.com/2025/12/22/arts/television/cover-up-plus-8-things-on-tv-this-week.html
-
-**Drake Maye leads late comeback as Patriots clinch playoff spot with win over Ravens**\
-`Drake Maye was 31-of-44 passing for a career-high 380 yards, two touchdowns and an interception in the Patriots' 28-24 win over the Ravens.`\
-https://nytimes.com/athletic/6910021/2025/12/22/patriots-ravens-score-result-takeaways-nfl-snf/
-
-**Nasser Hussain: The Ashes were lost in 11 days. Where do England go from here?**\
-`England have serious questions to answer over their Ashes failure, but now is no time for knee-jerk reactions - and Ben Stokes must stay on`\
-https://nytimes.com/athletic/6905810/2025/12/22/nasser-hussain-england-ashes-stokes-mccullum-pope-bashir/
-
-**Manchester United are running low on gamechangers when Ruben Amorim needs them most**\
-`Events at Villa Park may bring about another period of suffering for United while Amorim deals with injury and AFCON absences`\
-https://nytimes.com/athletic/6884574/2025/12/22/manchester-united-aston-villa-premier-league-amorim-fernandes/
-
-**Crystal Palace's recent results prove one thing: They need reinforcements in January**\
-`Just as the tightly packed Premier League table offers an opportunity for Crystal Palace to climb up the table, it also presents a risk`\
-https://nytimes.com/athletic/6901472/2025/12/22/crystal-palace-leeds-united-analysis/
-
-**A preview of The Athletic’s live coverage this week**\
-`Our live coverage this week includes the Africa Cup of Nations, three NFL games on Christmas and Manchester United vs. Newcastle.`\
-https://nytimes.com/athletic/6909546/2025/12/22/live-coverage-schedule-nfl-afcon-christmas/
 
