@@ -1,3 +1,11 @@
+**Sidney Crosby passes Mario Lemieux as Penguins' all-time points leader**\
+`Sidney Crosby set a Penguins franchise record with two points in the first period against the Montreal Canadiens.`\
+https://nytimes.com/athletic/6876502/2025/12/21/sidney-crosby-penguins-points-record-mario-lemieux/
+
+**Iowa State's Audi Crooks notches 3rd 40-point game this season in win over Kansas**\
+`Crooks is the only player in the country to have multiple such outings this season.`\
+https://nytimes.com/athletic/6909715/2025/12/21/iowa-state-audi-crooks-4th-40-point-game/
+
 **Waymo Suspended Service in San Francisco After Problems During Power Outage**\
 `The self-driving cars came to a halt at intersections when the power knocked out traffic signals, causing tie-ups but no accidents or injuries.`\
 https://nytimes.com/2025/12/21/us/waymo-suspended-service-in-san-francisco-after-problems-during-power-outage.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/21/crosswords/daily-puzzle-2025-12-22.html
 **How to watch New Mexico vs. Minnesota: Rate Bowl Start Time, TV, streaming**\
 `Find out how to watch the New Mexico Lobos play the Minnesota Golden Gophers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6909538/2025/12/21/new-mexico-vs-minnesota-stream-how-to-watch-dec-26/
-
-**Guardiola is still a perfectionist — and he promises his City demands are not performative**\
-`Seven wins in a row in all competitions for Manchester City is not enough for Pep Guardiola to be satisfied`\
-https://nytimes.com/athletic/6906517/2025/12/21/pep-guardiola-manchester-city-west-ham/
-
-**Texas A&M sweeps Kentucky for first NCAA volleyball championship**\
-`As underdogs by seed in each of its last four matches, Texas A&M dispatched three No. 1 seeds consecutively.`\
-https://nytimes.com/athletic/6908513/2025/12/21/texas-am-ncaa-volleyball-championship-kentucky-2025/
 

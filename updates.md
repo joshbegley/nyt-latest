@@ -1,3 +1,11 @@
+**Sidney Crosby passes Mario Lemieux as Penguins' all-time points leader**\
+`Sidney Crosby set a Penguins franchise record with two points in the first period against the Montreal Canadiens.`\
+https://nytimes.com/athletic/6876502/2025/12/21/sidney-crosby-penguins-points-record-mario-lemieux/
+
+**Iowa State's Audi Crooks notches 3rd 40-point game this season in win over Kansas**\
+`Crooks is the only player in the country to have multiple such outings this season.`\
+https://nytimes.com/athletic/6909715/2025/12/21/iowa-state-audi-crooks-4th-40-point-game/
+
 **Waymo Suspended Service in San Francisco After Problems During Power Outage**\
 `The self-driving cars came to a halt at intersections when the power knocked out traffic signals, causing tie-ups but no accidents or injuries.`\
 https://nytimes.com/2025/12/21/us/waymo-suspended-service-in-san-francisco-after-problems-during-power-outage.html

@@ -1,3 +1,15 @@
+**Russia Dismisses Reports of Progress in Ukraine Peace Talks**\
+`Proposals that emerged in recent negotiations with the United States were “rather unconstructive,” a Kremlin official said on Sunday.`\
+https://nytimes.com/2025/12/21/world/europe/ukraine-peace-talks.html
+
+**The lasting image from the Chiefs' latest loss — this one without Patrick Mahomes**\
+`A moment from the second quarter brought out the pride and anger of a couple of Chiefs veterans in their fourth straight loss.`\
+https://nytimes.com/athletic/6908835/2025/12/21/chiefs-titans-loss-trey-smith-creed-humphrey/
+
+**Bulls and Hawks trade haymakers in a 300‑point shootout**\
+`Chicago’s offensive onslaught included 83 points in the first half, when the Bulls finished with a 10-point lead.`\
+https://nytimes.com/athletic/6909645/2025/12/21/bulls-hawks-300-point-shootout/
+
 **Sidney Crosby passes Mario Lemieux as Penguins' all-time points leader**\
 `Sidney Crosby set a Penguins franchise record with two points in the first period against the Montreal Canadiens.`\
 https://nytimes.com/athletic/6876502/2025/12/21/sidney-crosby-penguins-points-record-mario-lemieux/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/12/21/world/europe/jimmy-kimmel-holiday-message-uk-chan
 **Steelers' DK Metcalf swings at fan during sideline altercation**\
 `Broadcast cameras captured the receiver appearing to throw a punch at a fan in Lions attire in the stands.`\
 https://nytimes.com/athletic/6909531/2025/12/21/steelers-dk-metcalf-strikes-fan-sideline-confrontation/
-
-**A New York Times Origin Story**\
-`A graphic designer recently discovered documents belonging to a distant relative, George Jones, the newspaper’s founding publisher.`\
-https://nytimes.com/2025/12/21/insider/george-jones.html
-
-**Don’t Blow It!**\
-`Suzanne Oliver makes her New York Times Crossword debut.`\
-https://nytimes.com/2025/12/21/crosswords/daily-puzzle-2025-12-22.html
-
-**How to watch New Mexico vs. Minnesota: Rate Bowl Start Time, TV, streaming**\
-`Find out how to watch the New Mexico Lobos play the Minnesota Golden Gophers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6909538/2025/12/21/new-mexico-vs-minnesota-stream-how-to-watch-dec-26/
 
