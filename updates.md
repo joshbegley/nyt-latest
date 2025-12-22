@@ -1,3 +1,11 @@
+**Ella Cook, Killed in Shooting at Brown, Is Remembered for Her ‘Quiet Gravity’**\
+`At a funeral in Alabama, the Brown University student was mourned as a gifted musician and protective sister who was committed to her faith.`\
+https://nytimes.com/2025/12/22/us/ella-cook-funeral-brown-shooting.html
+
+**Have Yourself a Very Warm Christmas**\
+`Unseasonably warm temperatures are expected across the United States this week, with many places hitting record highs and record-high lows.`\
+https://nytimes.com/2025/12/22/weather/warm-christmas-forecast.html
+
 **Palestinian Writer Raja Shehadeh: Israelis Live with a ‘Double Consciousness’**\
 `Raja Shehadeh, a Palestinian writer, lawyer and human rights activist, joined “The Interview” to talk about the conflict between Israelis and Palestinians and why he believes that peace remains possible.`\
 https://nytimes.com/video/magazine/100000010604857/palestinian-writer-raja-shehadeh-israelis-live-with-a-double-consciousness.html
