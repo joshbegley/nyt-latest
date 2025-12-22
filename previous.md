@@ -1,3 +1,19 @@
+**Wordle Review No. 1,648**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Dec. 23, 2025.`\
+https://nytimes.com/2025/12/22/crosswords/wordle-review-1648.html
+
+**Trump Administration Live Updates: President to Make Announcement With Hegseth in Florida**\
+``\
+https://nytimes.com/live/2025/12/22/us/trump-news
+
+**Yankees expect bullpen to be a strength in 2026 despite red flags**\
+`Adding at least one more quality reliever in the offseason should be a priority for Yankees GM Brian Cashman.`\
+https://nytimes.com/athletic/6908826/2025/12/22/yankees-bullpen-concerns-2026/
+
+**Angering Denmark, Trump Appoints Special Envoy to Greenland**\
+`President Trump, who has long said he wants to “get” the semiautonomous Danish territory, tapped Louisiana’s governor for the new position. Officials in Greenland and Denmark expressed outrage.`\
+https://nytimes.com/2025/12/22/world/europe/trump-special-envoy-greenland-denmark-landry.html
+
 **Four observations from the Bulls' 3-game win streak, including their double-big look**\
 `Now with a full lineup, Chicago has plenty of scoring options. Its defense is another story entirely. `\
 https://nytimes.com/athletic/6910543/2025/12/22/bulls-observations-matas-buzelis-defense/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6910681/2025/12/22/inside-newcastle-united-qa-premi
 **Panthers Beat Buccaneers in Key N.F.C. South Matchup**\
 `Baker Mayfield threw a late-game interception, securing a 23-20 win for the Carolina Panthers. They now own sole possession of the division with two games left.`\
 https://nytimes.com/video/the-athletic/100000010603476/panthers-beat-buccaneers-in-key-nfc-south-matchup.html
-
-**In These K-Dramas, Women Are Unjustly Accused (Maybe)**\
-`Netflix’s “The Price of Confession” and Hulu’s “Nine Puzzles” are thrillers with complicated plots and complicated protagonists.`\
-https://nytimes.com/2025/12/22/arts/television/netflix-the-price-of-confession-nine-puzzles-hulu.html
-
-**How will Miami challenge Ohio State? What I learned from studying Canes, covering Buckeyes**\
-`Miami has enough playmakers to give Ohio State plenty to worry about as it prepares for the CFP's Cotton Bowl quarterfinal on Dec. 31.`\
-https://nytimes.com/athletic/6909102/2025/12/22/ohio-state-miami-cotton-bowl-matchup/
-
-**CFB bowl game guide: UVA vs. Mizzou, Pop-Tarts sacrifices, french fry baths**\
-`The holiday week ahead brings us 16 college football bowl games. Be on the lookout for accounting alligators and anthropomorphic pastries.`\
-https://nytimes.com/athletic/6904719/2025/12/22/college-football-bowls-byu-georgia-tech-pop-tarts/
-
-**Comeback kid: Drake Maye's fourth-quarter heroics put him back in the MVP discussion**\
-`A week after falling short against Buffalo, Maye led the winning, 89-yard touchdown drive and produced his first 300-yard game.`\
-https://nytimes.com/athletic/6910591/2025/12/22/patriots-ravens-drake-maye-mvp-talk/
 

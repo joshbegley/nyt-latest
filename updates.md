@@ -1,3 +1,19 @@
+**Wordle Review No. 1,648**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Dec. 23, 2025.`\
+https://nytimes.com/2025/12/22/crosswords/wordle-review-1648.html
+
+**Trump Administration Live Updates: President to Make Announcement With Hegseth in Florida**\
+``\
+https://nytimes.com/live/2025/12/22/us/trump-news
+
+**Yankees expect bullpen to be a strength in 2026 despite red flags**\
+`Adding at least one more quality reliever in the offseason should be a priority for Yankees GM Brian Cashman.`\
+https://nytimes.com/athletic/6908826/2025/12/22/yankees-bullpen-concerns-2026/
+
+**Angering Denmark, Trump Appoints Special Envoy to Greenland**\
+`President Trump, who has long said he wants to “get” the semiautonomous Danish territory, tapped Louisiana’s governor for the new position. Officials in Greenland and Denmark expressed outrage.`\
+https://nytimes.com/2025/12/22/world/europe/trump-special-envoy-greenland-denmark-landry.html
+
 **Four observations from the Bulls' 3-game win streak, including their double-big look**\
 `Now with a full lineup, Chicago has plenty of scoring options. Its defense is another story entirely. `\
 https://nytimes.com/athletic/6910543/2025/12/22/bulls-observations-matas-buzelis-defense/
