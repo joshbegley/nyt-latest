@@ -1,3 +1,23 @@
+**How to watch West Georgia vs. Georgia men's basketball: Time, TV, streaming**\
+`Find out how to watch the West Georgia Wolves play the Georgia Bulldogs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6911947/2025/12/22/west-georgia-vs-georgia-stream-how-to-watch-dec-22/
+
+**How to watch Bethune-Cookman vs. Arizona men's basketball: Time, TV, streaming**\
+`Find out how to watch the Bethune-Cookman Wildcats play the Arizona Wildcats, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6911943/2025/12/22/bethune-cookman-vs-arizona-stream-how-to-watch-dec-22/
+
+**How to watch Davidson vs. Kansas men's basketball: Time, TV, streaming**\
+`Find out how to watch the Davidson Wildcats play the Kansas Jayhawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6911941/2025/12/22/davidson-vs-kansas-stream-how-to-watch-dec-22/
+
+**How to watch Illinois vs. Missouri men's basketball: Time, TV, streaming**\
+`Find out how to watch the Illinois Fighting Illini play the Missouri Tigers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6911937/2025/12/22/illinois-vs-missouri-stream-how-to-watch-dec-22/
+
+**How to watch Michigan State vs. Ole Miss women's basketball: Time, TV, streaming**\
+`Find out how to watch the Michigan State Spartans play the Ole Miss Rebels, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6911933/2025/12/22/michigan-state-vs-ole-miss-stream-how-to-watch-dec-22/
+
 **How to watch East Carolina vs. North Carolina men's basketball: Time, TV, streaming**\
 `Find out how to watch the East Carolina Pirates play the North Carolina Tar Heels, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6911930/2025/12/22/east-carolina-vs-north-carolina-stream-how-to-watch-dec-22/
@@ -17,20 +37,4 @@ https://nytimes.com/2025/12/22/arts/music/jerry-kasenetz-dead.html
 **The Most Inspiring Homes We Visited in 2025**\
 `No matter your personal taste, you’re sure to find spaces that delight and move you.`\
 https://nytimes.com/2025/12/22/t-magazine/favorite-house-stories.html
-
-**How Blocking Illegal ‘Ghost’ Roads Could Protect Tropical Forests**\
-`New research tries to anticipate road building to identify areas in the Amazon, Asia and Africa that are likely to face deforestation.`\
-https://nytimes.com/2025/12/22/climate/amazon-tropical-rainforest-ghost-roads-research.html
-
-**Chargers' Perryman suspended 2 games after illegal hit vs. Cowboys**\
-`The suspension was a result of “repeated violations of playing rules intended to protect the health and safety of players."`\
-https://nytimes.com/athletic/6911839/2025/12/22/denzel-perryman-suspended-chargers-health-safety-violations/
-
-**Ravens' Lamar Jackson day-to-day with 'significant' back contusion**\
-`Jackson exited the game against the Patriots in the second quarter and did not return as Baltimore fell 28-24. `\
-https://nytimes.com/athletic/6911841/2025/12/22/lamar-jackson-ravens-day-to-day-back-injury/
-
-**Scoop City: Ranking 2025 gifts for all 32 teams**\
-`What's trending after Week 16, ranking Ben Johnson's arrival among the top 32 gifts of 2025 and how the Jets are trusting the process`\
-https://nytimes.com/athletic/6911846/2025/12/22/week-16-risers-and-fallers-ranking-2025-gifts-32-teams/
 

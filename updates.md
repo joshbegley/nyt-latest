@@ -1,3 +1,23 @@
+**How to watch West Georgia vs. Georgia men's basketball: Time, TV, streaming**\
+`Find out how to watch the West Georgia Wolves play the Georgia Bulldogs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6911947/2025/12/22/west-georgia-vs-georgia-stream-how-to-watch-dec-22/
+
+**How to watch Bethune-Cookman vs. Arizona men's basketball: Time, TV, streaming**\
+`Find out how to watch the Bethune-Cookman Wildcats play the Arizona Wildcats, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6911943/2025/12/22/bethune-cookman-vs-arizona-stream-how-to-watch-dec-22/
+
+**How to watch Davidson vs. Kansas men's basketball: Time, TV, streaming**\
+`Find out how to watch the Davidson Wildcats play the Kansas Jayhawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6911941/2025/12/22/davidson-vs-kansas-stream-how-to-watch-dec-22/
+
+**How to watch Illinois vs. Missouri men's basketball: Time, TV, streaming**\
+`Find out how to watch the Illinois Fighting Illini play the Missouri Tigers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6911937/2025/12/22/illinois-vs-missouri-stream-how-to-watch-dec-22/
+
+**How to watch Michigan State vs. Ole Miss women's basketball: Time, TV, streaming**\
+`Find out how to watch the Michigan State Spartans play the Ole Miss Rebels, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6911933/2025/12/22/michigan-state-vs-ole-miss-stream-how-to-watch-dec-22/
+
 **How to watch East Carolina vs. North Carolina men's basketball: Time, TV, streaming**\
 `Find out how to watch the East Carolina Pirates play the North Carolina Tar Heels, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6911930/2025/12/22/east-carolina-vs-north-carolina-stream-how-to-watch-dec-22/
