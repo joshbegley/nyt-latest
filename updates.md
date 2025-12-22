@@ -1,3 +1,7 @@
+**Bondi Beach Shooting Suspects Also Used Pipe Bombs in Attack, Police Say**\
+`But the explosives did not detonate, according to investigators, who also found a video of the two men training with firearms.`\
+https://nytimes.com/2025/12/22/world/australia/bondi-beach-shooting-pipebombs.html
+
 **Russian General Is Killed in Car Bombing in Moscow**\
 `The attack appeared to be the latest targeted assassination of a senior military official inside Russia’s borders.`\
 https://nytimes.com/2025/12/22/world/europe/russia-moscow-general-killed.html
