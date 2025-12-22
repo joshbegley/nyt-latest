@@ -1,3 +1,11 @@
+**Broncos' Pat Bryant carted off field after violent hit vs. Jaguars**\
+`The Jaguars' Montaric Brown was initially flagged on the play, but the officials eventually picked it up.`\
+https://nytimes.com/athletic/6909733/2025/12/21/broncos-pat-bryant-carted-off-jaguars/
+
+**Raiders-Texans takeaways: Houston holds off Las Vegas to keep wild card in sight**\
+`Despite major offensive struggles, the Texans defeated the Raiders and remain in position for the final wild-card spot in the AFC.`\
+https://nytimes.com/athletic/6909163/2025/12/21/raiders-texans-score-result-takeaways-nfl/
+
 **Texans hold off Raiders to keep wild card in sight: takeaways**\
 `Despite major offensive struggles, the Texans defeated the Raiders and remain in position for the final wild-card spot in the AFC.`\
 https://nytimes.com/athletic/6909163/2025/12/21/raiders-texans-score-result-takeaways-nfl/

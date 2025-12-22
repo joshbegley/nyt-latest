@@ -1,3 +1,11 @@
+**Tee Higgins finds perspective — and a new helmet — amid 'anxious' concussion evaluations**\
+`The receiver made two circus catches and a had a touchdown Sunday after missing last week's game after being in concussion protocol.`\
+https://nytimes.com/athletic/6909694/2025/12/21/tee-higgins-concussions-bengals-win-dolphins/
+
+**Falcons-Cardinals takeaways: Kirk Cousins accounts for 3 TDs in Atlanta win**\
+`C.J. Henderson's late interception seals Atlanta's win at Arizona.`\
+https://nytimes.com/athletic/6909742/2025/12/21/falcons-cardinals-score-result-takeaways-nfl/
+
 **Broncos' Pat Bryant carted off field after violent hit vs. Jaguars**\
 `The Jaguars' Montaric Brown was initially flagged on the play, but the officials eventually picked it up.`\
 https://nytimes.com/athletic/6909733/2025/12/21/broncos-pat-bryant-carted-off-jaguars/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6908835/2025/12/21/chiefs-titans-loss-trey-smith-cr
 **Bulls and Hawks combine for more than 300 points in high-scoring affair**\
 `Chicago’s offensive onslaught included 83 points in the first half, when the Bulls finished with a 10-point lead.`\
 https://nytimes.com/athletic/6909645/2025/12/21/bulls-hawks-high-scoring-affair/
-
-**Sidney Crosby passes Mario Lemieux as Penguins' all-time points leader**\
-`Sidney Crosby set a Penguins franchise record with two points in the first period against the Montreal Canadiens.`\
-https://nytimes.com/athletic/6876502/2025/12/21/sidney-crosby-penguins-points-record-mario-lemieux/
-
-**Iowa State's Audi Crooks notches 3rd 40-point game this season in win over Kansas**\
-`Crooks is the only player in the country to have multiple such outings this season.`\
-https://nytimes.com/athletic/6909715/2025/12/21/iowa-state-audi-crooks-4th-40-point-game/
 
