@@ -1,3 +1,7 @@
+**Christmas Is Back in Bethlehem, but Peace and Joy Have Yet to Arrive**\
+`Palestinian Christians are reviving their seasonal public celebrations, hoping to bring light and holiday spirit at the end of a gloomy year in the West Bank.`\
+https://nytimes.com/2025/12/22/world/middleeast/christmas-in-bethlehem-west-bank.html
+
 **How Trump’s First Year Reshaped U.S. Energy and Climate Policy**\
 `The sweeping changes have affected everything from coal plant retirements to international diplomacy over shipping emissions.`\
 https://nytimes.com/2025/12/22/climate/how-trumps-first-year-reshaped-us-energy-and-climate-policy.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/22/business/larry-ellison-paramount-warner-brothers-
 **2025 in Pictures**\
 `Which of the images in this Times collection best captures how you’ll remember this year?`\
 https://nytimes.com/2025/12/22/learning/2025-in-pictures.html
-
-**China Vanke Gets Temporary Lifeline to Prevent Debt Default**\
-`Bondholders for one of China’s biggest real estate developers extended a grace period to negotiate a delayed repayment of a $285 million bond.`\
-https://nytimes.com/2025/12/22/business/china-vanke-real-estate-default.html
 

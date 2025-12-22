@@ -1,3 +1,7 @@
+**The Windup: A Christmas miracle in Chicago?**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6911265/2025/12/22/munetka-murakami-white-sox-skaggs-settlement-the-windup/
+
 **Christmas Is Back in Bethlehem, but Peace and Joy Have Yet to Arrive**\
 `Palestinian Christians are reviving their seasonal public celebrations, hoping to bring light and holiday spirit at the end of a gloomy year in the West Bank.`\
 https://nytimes.com/2025/12/22/world/middleeast/christmas-in-bethlehem-west-bank.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6910892/2025/12/22/barcelona-miami-la-liga-villarre
 **Larry Ellison Personally Guarantees Paramount Bid for Warner Brothers**\
 `Mr. Ellison’s personal guarantee is meant to address concerns that the Warner Bros. Discovery’s board had expressed about Paramount’s original offer.`\
 https://nytimes.com/2025/12/22/business/larry-ellison-paramount-warner-brothers-bid.html
-
-**2025 in Pictures**\
-`Which of the images in this Times collection best captures how you’ll remember this year?`\
-https://nytimes.com/2025/12/22/learning/2025-in-pictures.html
 

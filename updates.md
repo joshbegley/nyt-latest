@@ -1,3 +1,7 @@
+**Christmas Is Back in Bethlehem, but Peace and Joy Have Yet to Arrive**\
+`Palestinian Christians are reviving their seasonal public celebrations, hoping to bring light and holiday spirit at the end of a gloomy year in the West Bank.`\
+https://nytimes.com/2025/12/22/world/middleeast/christmas-in-bethlehem-west-bank.html
+
 **How Trump’s First Year Reshaped U.S. Energy and Climate Policy**\
 `The sweeping changes have affected everything from coal plant retirements to international diplomacy over shipping emissions.`\
 https://nytimes.com/2025/12/22/climate/how-trumps-first-year-reshaped-us-energy-and-climate-policy.html
