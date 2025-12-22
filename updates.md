@@ -1,3 +1,15 @@
+**Fantasy football Week 16 takeaways: Josh Allen busts; Omarion Hampton's future looks bright**\
+`Michael Salfino shares his thoughts on Week 16, including a devastatingly poor fantasy performance from Josh Allen.`\
+https://nytimes.com/athletic/6909419/2025/12/21/fantasy-football-week-16-takeaways-allen-hampton/
+
+**Heavy Rains Bring Flooding to Northern California**\
+`As floodwaters submerged cars and prompted rescues in the state’s far north on Sunday, forecasters warned that Central California would receive heavy rain later in the week.`\
+https://nytimes.com/2025/12/21/us/flooding-shasta-count-california.html
+
+**Sabres, Josh Norris spoil Jack Hughes' return, extend winning streak to 6: 3 thoughts**\
+`The Sabres have won six consecutive games for the first time since December 2022.`\
+https://nytimes.com/athletic/6910292/2025/12/21/sabres-norris-benson-luukkonen-devils/
+
 **Cardinals' lost season poses big questions to answer over offseason**\
 `The lasting image of this season is medical staff huddled around a player. Even a “Next Man Up” mentality has limits.`\
 https://nytimes.com/athletic/6910056/2025/12/21/arizona-cardinals-lost-season-offseason-questions/
