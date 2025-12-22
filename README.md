@@ -1,4 +1,4 @@
-**McKennie says he hopes to stay at Juventus with contract set to expire in 2026**\
+**USMNT's McKennie says he hopes to stay at Juventus with contract set to expire in 2026**\
 `McKennie has made 204 appearances for Juventus since joining in 2020, scoring 20 goals and providing 22 assists.`\
 https://nytimes.com/athletic/6912166/2025/12/22/weston-mckennie-juventus-contract-usmnt/
 
