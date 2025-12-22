@@ -1,3 +1,15 @@
+**For Fallen Syrian Dictator Assad and Family, an Exile of Luxury and Impunity**\
+`Bashar al-Assad’s long, brutal reign ended swiftly, but he and his close circle have had a soft landing in Russia.`\
+https://nytimes.com/2025/12/22/world/middleeast/assad-syria-exile-luxury.html
+
+**Assad’s Enforcers Brutalized Syria. Now They’re Living Large, Lying Low and Evading Justice.**\
+`A Times investigation into the whereabouts of top Syrian officials who fled after the regime’s fall shows many remain free — shielded by wealth and accommodating host nations.`\
+https://nytimes.com/2025/12/22/world/middleeast/assad-syria-enforcers-lives-now.html
+
+**Liverpool fan pleads not guilty to racially abusing Semenyo**\
+`The alleged incident occurred during the first half of the Premier League's opening game at Anfield in August.`\
+https://nytimes.com/athletic/6911337/2025/12/22/antoine-semenyo-racism-bournemouth-liverpool/
+
 **How to watch Hornets vs. Cavaliers: Time, TV, streaming**\
 `Find out how to watch the Charlotte Hornets play the Cleveland Cavaliers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6911432/2025/12/22/hornets-vs-cavaliers-stream-how-to-watch-dec-22/
@@ -17,24 +29,4 @@ https://nytimes.com/athletic/6910791/2025/12/22/backup-qbs-fantasy-football-wr-o
 **Feel Like Testing Your Memory for Literary Trivia?**\
 `Try this short quiz to see how many fun facts about authors and books you can recall.`\
 https://nytimes.com/interactive/2025/12/22/books/review/literary-trivia-quiz.html
-
-**How to watch Western Michigan vs. Ohio State women's basketball: Time, TV, streaming**\
-`Find out how to watch the Western Michigan Broncos play the Ohio State Buckeyes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6911413/2025/12/22/western-michigan-vs-ohio-state-stream-how-to-watch-dec-22/
-
-**How to watch American vs. Virginia men's basketball: Time, TV, streaming**\
-`Find out how to watch the American Eagles play the Virginia Cavaliers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6911408/2025/12/22/american-vs-virginia-stream-how-to-watch-dec-22/
-
-**How to watch Southern Indiana vs. Tennessee women's basketball: Time, TV, streaming**\
-`Find out how to watch the Southern Indiana Screaming Eagles play the Tennessee Lady Volunteers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6911404/2025/12/22/southern-indiana-vs-tennessee-stream-how-to-watch-dec-22/
-
-**How to Care for a Wood Cutting Board**\
-`If you properly care for your wood cutting board, it can last for years and years.`\
-https://nytimes.com/video/smarter-living/wirecutter/100000010603804/how-to-care-for-a-wood-cutting-board.html
-
-**Is Quince Luxury Quality? We Tested It**\
-`Quince bills itself as bargain-priced luxury. Does it deliver? Editor Annemarie Conte was suspicious, so she went on a weeks long investigation to find out.`\
-https://nytimes.com/video/smarter-living/wirecutter/100000010603785/is-quince-luxury-quality-we-tested-it.html
 

@@ -1,3 +1,15 @@
+**For Fallen Syrian Dictator Assad and Family, an Exile of Luxury and Impunity**\
+`Bashar al-Assad’s long, brutal reign ended swiftly, but he and his close circle have had a soft landing in Russia.`\
+https://nytimes.com/2025/12/22/world/middleeast/assad-syria-exile-luxury.html
+
+**Assad’s Enforcers Brutalized Syria. Now They’re Living Large, Lying Low and Evading Justice.**\
+`A Times investigation into the whereabouts of top Syrian officials who fled after the regime’s fall shows many remain free — shielded by wealth and accommodating host nations.`\
+https://nytimes.com/2025/12/22/world/middleeast/assad-syria-enforcers-lives-now.html
+
+**Liverpool fan pleads not guilty to racially abusing Semenyo**\
+`The alleged incident occurred during the first half of the Premier League's opening game at Anfield in August.`\
+https://nytimes.com/athletic/6911337/2025/12/22/antoine-semenyo-racism-bournemouth-liverpool/
+
 **How to watch Hornets vs. Cavaliers: Time, TV, streaming**\
 `Find out how to watch the Charlotte Hornets play the Cleveland Cavaliers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6911432/2025/12/22/hornets-vs-cavaliers-stream-how-to-watch-dec-22/
