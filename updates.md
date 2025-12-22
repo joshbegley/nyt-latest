@@ -1,3 +1,7 @@
+**Lowetide: Why Evan Bouchard should (but won't) make Canada's Olympic team**\
+`Here are the key arguments for and against Bouchard playing for Team Canada in the Olympics.`\
+https://nytimes.com/athletic/6908878/2025/12/22/evan-bouchard-stats-oilers-canada-olympics/
+
 **Riding a High, Deal Makers Grow Bullish on 2026**\
 `It was a comeback year for I.P.O.s. and mergers and acquisitions. Wall Street is optimistic that the winning streak will continue.`\
 https://nytimes.com/2025/12/22/business/dealbook/deals-ipos-2026-forecast.html
