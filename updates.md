@@ -1,3 +1,11 @@
+**Cracks in Broncos D split wide open in loss to Jaguars. Can fixes come soon enough?**\
+`The Broncos still control to their path to the AFC West title and the No. 1 seed, but they have little margin for error remaining.`\
+https://nytimes.com/athletic/6910146/2025/12/21/broncos-defense-problems-jaguars-playoff-seed/
+
+**Ravens' Lamar Jackson out vs. Patriots with back injury**\
+`Jackson left the game late in the second quarter after taking a hit from the Patriots' Craig Woodson. `\
+https://nytimes.com/athletic/6910143/2025/12/21/ravens-lamar-jackson-back-injury-patriots/
+
 **Fatigued-looking Wild get rolled in a rare flat performance at home: Takeaways**\
 `On the second night of a back-to-back, the Wild just didn't have the legs to keep up with the NHL's best team.`\
 https://nytimes.com/athletic/6909846/2025/12/21/wild-nelson-hughes-avalanche/

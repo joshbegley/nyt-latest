@@ -1,3 +1,7 @@
+**Cracks in Broncos D split wide open in loss to Jaguars. Can fixes come soon enough?**\
+`The Broncos still control to their path to the AFC West title and the No. 1 seed, but they have little margin for error remaining.`\
+https://nytimes.com/athletic/6910146/2025/12/21/broncos-defense-problems-jaguars-playoff-seed/
+
 **Fatigued-looking Wild get rolled in a rare flat performance at home: Takeaways**\
 `On the second night of a back-to-back, the Wild just didn't have the legs to keep up with the NHL's best team.`\
 https://nytimes.com/athletic/6909846/2025/12/21/wild-nelson-hughes-avalanche/
@@ -10,7 +14,7 @@ https://nytimes.com/2025/12/21/us/politics/vance-republicans-trump-antisemitism.
 `Robinson passed 2,000 yards from scrimmage in his home state on Sunday in the Falcons' 26-19 win at the Cardinals.`\
 https://nytimes.com/athletic/6910076/2025/12/21/bijan-robinson-falcons-cardinals-2000-yards/
 
-**Ravens' Lamar Jackson questionable to return vs. Patriots with back injury**\
+**Ravens' Lamar Jackson out vs. Patriots with back injury**\
 `Jackson left the game late in the second quarter after taking a hit from the Patriots' Craig Woodson. `\
 https://nytimes.com/athletic/6910143/2025/12/21/ravens-lamar-jackson-back-injury-patriots/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6909659/2025/12/21/steelers-lions-score-result-take
 **Brian Flores has proved the Giants hired the wrong Brian**\
 `Flores' defenses have allowed the Giants zero offensive touchdowns in their last 12 quarters of shared competition.`\
 https://nytimes.com/athletic/6909877/2025/12/21/brian-flores-wrong-brian-giants-vikings/
-
-**First the Louvre, Now the Presidential Palace: New Theft Rattles France**\
-`In what prosecutors say was an inside job, copper pots, porcelain and Baccarat Champagne glasses were stolen from the inventory of the Élysée Palace.`\
-https://nytimes.com/2025/12/21/world/europe/elysee-palace-theft.html
 
