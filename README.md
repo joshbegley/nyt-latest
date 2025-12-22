@@ -1,3 +1,7 @@
+**Inside Our Tinned Fish Taste Test**\
+`Good tinned fish is a treat. On a very fishy day in the office, we tasted 109 promising-looking options and found 24 that we’d happily serve at a party or give as a gift, though many would make a nice meal for one, too.`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010603748/inside-our-tinned-fish-taste-test.html
+
 **NFL Week 17 odds, spreads: These teams are in desperation mode now**\
 `The stakes are high for several teams in the penultimate week of the NFL regular season. Here's how the odds see it going.`\
 https://nytimes.com/athletic/6911137/2025/12/22/nfl-week-17-odds-spreads/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/22/world/middleeast/christmas-in-bethlehem-west-bank
 **How Trump’s First Year Reshaped U.S. Energy and Climate Policy**\
 `The sweeping changes have affected everything from coal plant retirements to international diplomacy over shipping emissions.`\
 https://nytimes.com/2025/12/22/climate/how-trumps-first-year-reshaped-us-energy-and-climate-policy.html
-
-**The Bounce: A defense better than the Thunder's? Plus, Shaedon Sharpe gets big air**\
-`Zach Harper catches you up on the latest NBA news in our newsletter.`\
-https://nytimes.com/athletic/6911186/2025/12/22/the-bounce-spurs-defense-shaedon-sharpe/
 

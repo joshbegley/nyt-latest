@@ -1,3 +1,11 @@
+**NFL Week 17 odds, spreads: These teams are in desperation mode now**\
+`The stakes are high for several teams in the penultimate week of the NFL regular season. Here's how the odds see it going.`\
+https://nytimes.com/athletic/6911137/2025/12/22/nfl-week-17-odds-spreads/
+
+**Your Humidifier Could Make You Sick**\
+`The standing water in an uncleaned humidifier can become a breeding ground for any number of nasty bacteria, amoebas, and fungi. But don’t worry, cleanup is pretty easy, especially if you do it consistently.`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010603734/your-humidifier-could-make-you-sick.html
+
 **Your Bra Needs Days Off**\
 `Your favorite bra is likely working overtime. If you want to maintain a snug and supportive undergarment, make sure you’re giving the elastic some well-deserved breaks (ahem, try not to wear the same one day after day).`\
 https://nytimes.com/video/smarter-living/wirecutter/100000010603708/your-bra-needs-days-off.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/22/climate/how-trumps-first-year-reshaped-us-energy-
 **The Bounce: A defense better than the Thunder's? Plus, Shaedon Sharpe gets big air**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/6911186/2025/12/22/the-bounce-spurs-defense-shaedon-sharpe/
-
-**How can the Bucks stop losing road games? Might be time to 'pray about it'**\
-`Sure, Giannis has been out for much of it, but Milwaukee has not won a road game since Nov. 10.`\
-https://nytimes.com/athletic/6910790/2025/12/22/bucks-losing-road-games-change-analysis/
-
-**In Congress and at Home, Omar Faces Trump’s Anti-Somali Attacks**\
-`Representative Ilhan Omar, Democrat of Minnesota, has long been a target of racist insults by the president. Now her whole community faces an immigration crackdown.`\
-https://nytimes.com/2025/12/22/us/politics/ilhan-omar-trump-attacks.html
 

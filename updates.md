@@ -1,3 +1,11 @@
+**NFL Week 17 odds, spreads: These teams are in desperation mode now**\
+`The stakes are high for several teams in the penultimate week of the NFL regular season. Here's how the odds see it going.`\
+https://nytimes.com/athletic/6911137/2025/12/22/nfl-week-17-odds-spreads/
+
+**Your Humidifier Could Make You Sick**\
+`The standing water in an uncleaned humidifier can become a breeding ground for any number of nasty bacteria, amoebas, and fungi. But don’t worry, cleanup is pretty easy, especially if you do it consistently.`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010603734/your-humidifier-could-make-you-sick.html
+
 **Your Bra Needs Days Off**\
 `Your favorite bra is likely working overtime. If you want to maintain a snug and supportive undergarment, make sure you’re giving the elastic some well-deserved breaks (ahem, try not to wear the same one day after day).`\
 https://nytimes.com/video/smarter-living/wirecutter/100000010603708/your-bra-needs-days-off.html
