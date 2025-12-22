@@ -1,3 +1,7 @@
+**Trump Administration Declares Foreign-Made Drones a Security Threat**\
+`Americans won’t be able to buy new models from DJI, the Chinese maker of most of the world’s drones. But U.S. pilots can keep the drones they have.`\
+https://nytimes.com/2025/12/22/us/dji-drones-china-barred-us.html
+
 **Trump Administration Loosens Protections for Iconic Greater Sage Grouse**\
 `The government moves to make it easier to drill, mine and graze on 50 million acres of land in the West.`\
 https://nytimes.com/2025/12/22/climate/trump-loosens-protections-greater-sage-grouse.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6911229/2025/12/22/dk-metcalf-fan-punishment-nfl/
 **The Briefing: Egypt 2 Zimbabwe 1 - Salah scores late winner as Pharaohs fight back to avoid upset**\
 `Ahmed Walid and Nnamdi Onyeagwara analyse the main talking points from Egypt's dramtic victory over Zimbabwe`\
 https://nytimes.com/athletic/6896156/2025/12/22/egypt-zimbabwe-africa-cup-of-nations/
-
-**Ella Cook, Killed in Shooting at Brown, Is Remembered for Her ‘Quiet Gravity’**\
-`At a funeral in Alabama, the Brown University student was mourned as a gifted musician and protective sister who was committed to her faith.`\
-https://nytimes.com/2025/12/22/us/ella-cook-funeral-brown-shooting.html
 
