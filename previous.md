@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6912246/2025/12/23/bears-playoffs-super-bowl-possibility/
 
 **Colts haven't officially been eliminated yet, but that's just a formality: It's over**\
-`Philip Rivers brought 'juice' to the Colts, just not enough, after Monday night's loss dropped their playoff chances to 1 percent.`\
+`This isn’t Hollywood. This is Indianapolis, the city where a once proud franchise is floundering yet again.`\
 https://nytimes.com/athletic/6912923/2025/12/23/colts-playoffs-formality-loss-49ers/
 
 **GM Spotlight: How did Virginia revamp its roster and emerge as an ACC contender?**\

@@ -1,3 +1,7 @@
+**Why Doesn’t Trump Like Wind Farms?**\
+`We examine the Trump administration’s approach to the wind industry.`\
+https://nytimes.com/2025/12/23/briefing/why-doesnt-trump-like-wind-farms.html
+
 **The window is wide open for the Bears — with the Super Bowl in play**\
 `Surpassing expectations and defying the odds, the Bears' grandest dreams have become realistic behind Ben Johnson and Caleb Williams.`\
 https://nytimes.com/athletic/6912246/2025/12/23/bears-playoffs-super-bowl-possibility/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6912102/2025/12/23/panthers-tetairoa-mcmillan-oroy-
 **Cowboys' Tyler Smith will continue to start at left tackle, which could carry into 2026**\
 `"Ultimately, I’m gonna do what’s best for the team," Smith said of the end-of-season move to left tackle.`\
 https://nytimes.com/athletic/6912652/2025/12/23/cowboys-tyler-smith-left-tackle-future/
-
-**Flyers thriving under Tocchet, even as coach slow-plays Michkov's development**\
-`For all the noise around one specific player, the Flyers as a team have taken a leap in Tocchet's first year in charge.`\
-https://nytimes.com/athletic/6912698/2025/12/23/flyers-tocchet-coaching-michkov/
 

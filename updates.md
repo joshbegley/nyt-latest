@@ -1,3 +1,7 @@
+**Colts haven't officially been eliminated yet, but that's just a formality: It's over**\
+`This isn’t Hollywood. This is Indianapolis, the city where a once proud franchise is floundering yet again.`\
+https://nytimes.com/athletic/6912923/2025/12/23/colts-playoffs-formality-loss-49ers/
+
 **The window is wide open for the Bears — with the Super Bowl in play**\
 `Surpassing expectations and defying the odds, the Bears' grandest dreams have become realistic behind Ben Johnson and Caleb Williams.`\
 https://nytimes.com/athletic/6912246/2025/12/23/bears-playoffs-super-bowl-possibility/
