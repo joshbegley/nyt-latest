@@ -1,3 +1,11 @@
+**FanDuel SN channels could be sold as broadcaster scrambles for funds**\
+`If a sale falls through, Main Street Sports Group could ultimately be shut down following the current NBA and NHL seasons.`\
+https://nytimes.com/athletic/6914257/2025/12/23/fanduel-sports-network-sale-dazn-funds/
+
+**At the Sydney Hobart Yacht Race, Sailing Is Often a Family Affair**\
+`Fathers, mothers, daughters, sons and even twin brothers have tackled this race together, saying it’s an exciting bonding experience.`\
+https://nytimes.com/2025/12/23/sports/sailing/sydney-hobart-family-racing.html
+
 **How Did DOGE Disrupt So Much While Saving So Little?**\
 `The group’s biggest claims were largely incorrect, a New York Times analysis found. And its many smaller cuts added up to few savings.`\
 https://nytimes.com/2025/12/23/us/politics/doge-musk-trump-analysis.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/12/23/us/epstein-files-trump
 **Wolves captain Toti out for 'significant period', to miss Liverpool, Man Utd games**\
 `Toti joins Emmanuel Agbadou as a defensive absentee but Hugo Bueno could return from a hip injury in time for the trip to Liverpool.`\
 https://nytimes.com/athletic/6914303/2025/12/23/wolves-injury-news-toti/
-
-**In Ontario, the Uplifting Case of the Stolen ‘Nutcracker’ Sets**\
-`Ballet Jörgen’s holiday scare reaffirmed its mission: taking the art form to remote towns and outposts where most people have never seen a pas de deux.`\
-https://nytimes.com/2025/12/23/arts/dance/nutcracker-ballet-jorgen-stolen-set-toronto-canada.html
-
-**Spouses Wearing Complementary Patterns**\
-`For a couple from Los Angeles, choosing clothes is often a joint activity.`\
-https://nytimes.com/2025/12/23/style/street-style-look-spouses-complementary-patterns.html
 

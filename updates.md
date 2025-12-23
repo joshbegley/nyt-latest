@@ -1,3 +1,11 @@
+**FanDuel SN channels could be sold as broadcaster scrambles for funds**\
+`If a sale falls through, Main Street Sports Group could ultimately be shut down following the current NBA and NHL seasons.`\
+https://nytimes.com/athletic/6914257/2025/12/23/fanduel-sports-network-sale-dazn-funds/
+
+**At the Sydney Hobart Yacht Race, Sailing Is Often a Family Affair**\
+`Fathers, mothers, daughters, sons and even twin brothers have tackled this race together, saying it’s an exciting bonding experience.`\
+https://nytimes.com/2025/12/23/sports/sailing/sydney-hobart-family-racing.html
+
 **How Did DOGE Disrupt So Much While Saving So Little?**\
 `The group’s biggest claims were largely incorrect, a New York Times analysis found. And its many smaller cuts added up to few savings.`\
 https://nytimes.com/2025/12/23/us/politics/doge-musk-trump-analysis.html
