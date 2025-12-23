@@ -1,3 +1,7 @@
+**In Ontario, the Uplifting Case of the Stolen ‘Nutcracker’ Sets**\
+`Ballet Jörgen’s holiday scare reaffirmed its mission: taking the art form to remote towns and outposts where most people have never seen a pas de deux.`\
+https://nytimes.com/2025/12/23/arts/dance/nutcracker-ballet-jorgen-stolen-set-toronto-canada.html
+
 **Spouses Wearing Complementary Patterns**\
 `For a couple from Los Angeles, choosing clothes is often a joint activity.`\
 https://nytimes.com/2025/12/23/style/street-style-look-spouses-complementary-patterns.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/23/world/europe/greta-thunberg-arrest-uk-palestine-a
 **How to watch Penguins vs. Maple Leafs: Time, TV, streaming**\
 `Find out how to watch the Pittsburgh Penguins play the Toronto Maple Leafs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6913964/2025/12/23/penguins-vs-maple-leafs-stream-how-to-watch-dec-23/
-
-**World Cup Fan Fests may feature 'Freedom' trucks to celebrate U.S.'s 250th anniversary**\
-`A White House task force has facilitated a proposal to have trucks serve as patriotic mobile museums this summer`\
-https://nytimes.com/athletic/6912245/2025/12/23/world-cup-usa-freedom-trump-trucks/
 
