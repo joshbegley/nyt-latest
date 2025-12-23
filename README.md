@@ -12,7 +12,7 @@ https://nytimes.com/video/technology/100000010606225/former-roomba-ceo-reminisce
 
 **Document Hinted at Further Prosecutions in Epstein Investigation**\
 `The 2020 email laid out the criminal charges and investigative steps that prosecutors were mulling at the time.`\
-https://nytimes.com/2025/12/23/us/politics/document-hinted-at-further-prosecutions-in-epstein-investigation.html
+https://nytimes.com/2025/12/23/us/politics/epstein-investigation-criminal-charges.html
 
 **Did DOGE Really Cut Government Spending?**\
 `Did DOGE really cut government spending? A New York Times analysis found that the group’s biggest claims were largely incorrect, and that its many smaller cuts added up to few savings. Our reporters David Fahrenthold and Margot Sanger-Katz explain.`\

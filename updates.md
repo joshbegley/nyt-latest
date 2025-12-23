@@ -1,3 +1,19 @@
+**In 2025, They Asked What Racial Solidarity Really Looks Like**\
+`Across film (“Sinners,” “One Battle After Another”), theater (“Ragtime”) and TV (“The Lowdown”), four works suggested what achieving racial equality in America would take.`\
+https://nytimes.com/2025/12/23/arts/tv-film-race-solidarity-sinners-ragtime-lowdown.html
+
+**Read the Essay on Gender by a University of Oklahoma Student**\
+`The paper by Samantha Fulnecky, an undergraduate, received a zero by the instructor and has stirred a debate about academic freedom.`\
+https://nytimes.com/interactive/2025/12/23/us/nat-okla-prof-paper.html
+
+**Former Roomba C.E.O. Reminisces on 2008’s Viral ‘Shark Cat’ Meme**\
+`In conversation with Kevin Roose and Casey Newton on the “Hard Fork” podcast, the former Roomba C.E.O. Colin Angle shares how YouTube’s viral shark cat brought him joy in 2008.`\
+https://nytimes.com/video/technology/100000010606225/former-roomba-ceo-reminisces-on-2008s-viral-shark-cat-meme.html
+
+**Document Hinted at Further Prosecutions in Epstein Investigation**\
+`The 2020 email laid out the criminal charges and investigative steps that prosecutors were mulling at the time.`\
+https://nytimes.com/2025/12/23/us/politics/document-hinted-at-further-prosecutions-in-epstein-investigation.html
+
 **Did DOGE Really Cut Government Spending?**\
 `Did DOGE really cut government spending? A New York Times analysis found that the group’s biggest claims were largely incorrect, and that its many smaller cuts added up to few savings. Our reporters David Fahrenthold and Margot Sanger-Katz explain.`\
 https://nytimes.com/video/us/politics/100000010584489/did-doge-really-cut-government-spending.html
