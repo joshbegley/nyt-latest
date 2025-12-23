@@ -1,3 +1,7 @@
+**Siegel: The Maple Leafs chose an unusual half measure in firing Marc Savard**\
+`At this point, firing Savard screams "action!" while kicking the bigger can down the road.`\
+https://nytimes.com/athletic/6912498/2025/12/22/maple-leafs-savard-firing-berube-coach/
+
 **Trump Announces New ‘Trump Class’ of Warships**\
 `The president said development of the vessels would help maintain military superiority and improve the industrial base, but analysts suggested they were the wrong approach to current threats.`\
 https://nytimes.com/2025/12/22/us/politics/new-trump-class-warships.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6912532/2025/12/22/mets-jeff-mcneil-mlb-notes/
 **Lawmaker Sues to Remove Trump’s Name From the Kennedy Center**\
 `Representative Joyce Beatty, Democrat of Ohio, argues that only Congress is authorized to rename the D.C. performing arts institution.`\
 https://nytimes.com/2025/12/22/us/politics/lawsuit-trump-name-removal-kennedy-center.html
-
-**Trump Officials Sue to Loosen D.C.’s Gun Laws**\
-`The Justice Department challenged laws aimed at popular rifles including the AR-15 in the nation’s capital.`\
-https://nytimes.com/2025/12/22/us/politics/washington-dc-gun-laws-trump.html
 
