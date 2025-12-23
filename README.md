@@ -1,3 +1,15 @@
+**Red Light: The Sabres are good. Seriously!**\
+`Welcome to Red Light, The Athletic's NHL newsletter.`\
+https://nytimes.com/athletic/6914815/2025/12/23/sabres-nhl-standings-red-light/
+
+**Ben Sasse Says He Has Terminal Pancreatic Cancer**\
+`Mr. Sasse, a former senator from Nebraska, wrote on social media that he had received a diagnosis last week for Stage 4 pancreatic cancer.`\
+https://nytimes.com/2025/12/23/us/politics/ben-sasse-pancreatic-cancer.html
+
+**Maybe NBA teams shouldn't foul up 3 points, but what about 2?**\
+`Plus: Who stood out at the G League Winter Showcase? And could UNC's Caleb Wilson push higher up draft boards?`\
+https://nytimes.com/athletic/6910281/2025/12/23/nba-fouling-strategy-caleb-wilson-north-carolina/
+
 **Fancy Mains Without the Time Commitment**\
 `Chile crisp and honey roasted salmon, garlicky beef tenderloin and butter paneer for your holiday table.`\
 https://nytimes.com/2025/12/23/dining/fancy-mains-without-the-time-commitment.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6912762/2025/12/23/bears-pro-bowl-kevin-byard-joe-t
 **Federal Prosecutor Was Surprised by Trump’s Flights on Epstein’s Jet**\
 `A 2020 email noted that Donald Trump was listed as a passenger on Jeffrey Epstein’s jet at least eight times from 1993 to 1996.`\
 https://nytimes.com/2025/12/23/us/politics/trump-epstein-jet-flights.html
-
-**Rotating Cast of Wall Street Figures Were Listed as Executors of Epstein’s Will**\
-`Copies of Jeffrey Epstein’s last will and testament show that the convicted sex offender and disgraced financier provide a real-time glimpse of the power players who were part of his life.`\
-https://nytimes.com/2025/12/23/us/politics/epstein-will-executors-wall-street.html
-
-**We asked Ndamukong Suh to read the best stories about himself. Watch him react**\
-`Suh played 13 seasons in the NFL and won a Super Bowl. Here he shares stories about the mindset that helped him achieve that.`\
-https://nytimes.com/athletic/6911497/2025/12/23/ndamukong-suh-nfl-leadership-stories-teammates/
-
-**FanDuel SN channels could be sold as broadcaster scrambles for funds**\
-`If a sale falls through, Main Street Sports Group could ultimately be shut down following the current NBA and NHL seasons.`\
-https://nytimes.com/athletic/6914257/2025/12/23/fanduel-sports-network-sale-dazn-funds/
 

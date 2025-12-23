@@ -1,3 +1,19 @@
+**Fancy Mains Without the Time Commitment**\
+`Chile crisp and honey roasted salmon, garlicky beef tenderloin and butter paneer for your holiday table.`\
+https://nytimes.com/2025/12/23/dining/fancy-mains-without-the-time-commitment.html
+
+**Derik Queen is emerging as a force for the suddenly hot Pelicans**\
+`It hasn't been all roses for the rookie, but Queen's development has been an intriguing watch in New Orleans.`\
+https://nytimes.com/athletic/6914648/2025/12/23/derik-queen-talent-pelicans-win-streak/
+
+**Missouri DE sues Georgia, setting up landmark player vs. school NIL legal battle**\
+`Wilson’s attorneys allege the Bulldogs tried to 'punish Wilson for entering the portal' by lying about the former five-star’s NIL buyout.`\
+https://nytimes.com/athletic/6914369/2025/12/23/damon-wilson-lawsuit-georgia-missouri-nil/
+
+**What Song Did You Discover, or Rediscover, in 2025?**\
+`We want to know why it resonated with you.`\
+https://nytimes.com/2025/12/23/arts/music/what-song-did-you-discover-or-rediscover-in-2025.html
+
 **Yemen’s Warring Sides Agree to Largest Prisoner Swap in a Decade of Fighting**\
 `The Houthi rebels and the internationally recognized government plan to exchange about 2,900 detainees, a rare humanitarian win at a time of deepening political stalemate.`\
 https://nytimes.com/2025/12/23/world/middleeast/yemen-houthis-prisoner-exchange.html
