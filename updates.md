@@ -1,3 +1,7 @@
+**Turmoil at CBS News After Bari Weiss Pulls a ‘60 Minutes’ Segment**\
+`Several veteran correspondents questioned how Ms. Weiss, the new CBS News editor in chief, had handled the segment, after she defended her decision on a call with the newsroom.`\
+https://nytimes.com/2025/12/22/business/media/cbs-news-bari-weiss-60-minutes.html
+
 **After Power Outage, San Francisco Wonders: Can Robot Taxis Handle a Big Earthquake?**\
 `City officials have called for a hearing investigating Waymo after the company’s self-driving taxis suffered widespread problems during a power outage.`\
 https://nytimes.com/2025/12/22/us/waymo-san-francisco-power-earthquake.html

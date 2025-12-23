@@ -1,3 +1,7 @@
+**Turmoil at CBS News After Bari Weiss Pulls a ‘60 Minutes’ Segment**\
+`Several veteran correspondents questioned how Ms. Weiss, the new CBS News editor in chief, had handled the segment, after she defended her decision on a call with the newsroom.`\
+https://nytimes.com/2025/12/22/business/media/cbs-news-bari-weiss-60-minutes.html
+
 **After Power Outage, San Francisco Wonders: Can Robot Taxis Handle a Big Earthquake?**\
 `City officials have called for a hearing investigating Waymo after the company’s self-driving taxis suffered widespread problems during a power outage.`\
 https://nytimes.com/2025/12/22/us/waymo-san-francisco-power-earthquake.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6912358/2025/12/22/rick-carlisle-asks-bone-marrow-d
 **Trump Administration Will Investigate Brown’s Security After Shooting**\
 `The Department of Education is looking at whether security at Brown University, including its surveillance system, was up to standard. Brown said it would conduct its own investigation.`\
 https://nytimes.com/2025/12/22/us/brown-faces-trump-investigation-security-issues-shooting.html
-
-**How to watch Virginia vs. Missouri: Gator Bowl Start Time, TV, streaming**\
-`Find out how to watch the Virginia Cavaliers play the Missouri Tigers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6912521/2025/12/22/how-to-watch-virginia-vs-missouri-gator-bowl-tv-channel-and-streaming-options-for-december-27/
 
