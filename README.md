@@ -1,3 +1,15 @@
+**Taylor Swift Caps Her Eras Tour Era**\
+`Seven takeaways from the final episodes of “The End of an Era,” the Disney+ series exploring her globe-trotting concert extravaganza.`\
+https://nytimes.com/2025/12/23/arts/music/taylor-swift-eras-tour-episodes.html
+
+**Paolo Banchero and the Orlando Magic are still awaiting their breakthrough**\
+`Facing injuries, the Magic and their former No. 1 pick have not yet met the lofty expectations they held for this season. `\
+https://nytimes.com/athletic/6913110/2025/12/23/paolo-banchero-orlando-magic-season/
+
+**Semenyo: Chelsea enquire about January deal for Bournemouth forward**\
+`Chelsea had planned to sign a new forward in the summer but are considering accelerating their plans to January.`\
+https://nytimes.com/athletic/6826130/2025/12/23/antoine-semenyo-chelsea-transfer-bournemouth/
+
 **U.S. Economic Growth Surged in Third Quarter of 2025**\
 `Gross domestic product grew at a 4.3 percent annual rate, faster than the previous three months.`\
 https://nytimes.com/2025/12/23/business/us-economy-consumer-spending.html
@@ -25,12 +37,4 @@ https://nytimes.com/live/2025/12/23/us/trump-epstein-files-news
 **The Chargers still have everything to play for — the division, AFC's No. 1 seed**\
 `The Chargers haven't won a division title since 2009 but remain in the mix with two games to play.`\
 https://nytimes.com/athletic/6912310/2025/12/23/chargers-afc-playoff-path-division-1-seed/
-
-**49ers' young defense survives early scare from Philip Rivers, gains confidence in win**\
-`It's one thing to respect your elders, but the 49ers' young defensive players were taking it a little too far early on Monday night.`\
-https://nytimes.com/athletic/6913002/2025/12/23/49ers-colts-philip-rivers-defense/
-
-**Brock Purdy Outduels Philip Rivers in 49ers’ Primetime Win Over Colts**\
-`San Francisco quarterback Brock Purdy passed for a career-high five touchdowns to keep his team in the hunt for the N.F.C.’s top seed.`\
-https://nytimes.com/video/the-athletic/100000010605750/brock-purdy-outduels-philip-rivers-in-49ers-primetime-win-over-colts.html
 
