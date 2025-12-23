@@ -1,3 +1,19 @@
+**How Did DOGE Disrupt So Much While Saving So Little?**\
+`The group’s biggest claims were largely incorrect, a New York Times analysis found. And its many smaller cuts added up to few savings.`\
+https://nytimes.com/2025/12/23/us/politics/doge-musk-trump-analysis.html
+
+**The Brainiacs of the Seas**\
+`Navigators on racing yachts face complex challenges that go well beyond plotting a course. Their idol is a man known internationally as Stan.`\
+https://nytimes.com/2025/12/23/sports/sailing/sydney-hobart-navigators.html
+
+**The Skipper of Palm Beach XI Has High Hopes**\
+`The record-setting boat, previously known as Wild Oats XI, is returning after a major overhaul.`\
+https://nytimes.com/2025/12/23/sports/sailing/sydney-hobart-wild-oats.html
+
+**Kloke: Marc Savard paid the price. It's time for Leafs players to step up**\
+`One thing that's been missing during the Maple Leafs' slump: accountability from star players.`\
+https://nytimes.com/athletic/6912608/2025/12/23/maple-leafs-marc-savard-matthews-nylander/
+
 **Economic Growth Is Up. Unemployment Is, Too. What’s Going On?**\
 `There are some possible explanations for what’s happening with seemingly conflicting macroeconomic data.`\
 https://nytimes.com/2025/12/23/opinion/gdp-numbers-economy-job-numbers.html
