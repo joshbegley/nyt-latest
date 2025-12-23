@@ -1,3 +1,7 @@
+**Explosion at Pennsylvania Nursing Home Injures Several People**\
+`Multiple people were injured after a gas explosion caused a fire and a partial collapse of the Bristol Health and Rehab Center in Bristol, Pa., on Tuesday, according to authorities. Officials said that there were reports of people still trapped inside the building.`\
+https://nytimes.com/video/us/100000010607304/explosion-at-pennsylvania-nursing-home-injures-several-people.html
+
 **Justices Block National Guard Deployment in Chicago**\
 `Also, economic growth surged through the summer. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2025/12/23/briefing/justices-block-national-guard-deployment-in-chicago.html
@@ -21,8 +25,4 @@ https://nytimes.com/2025/12/23/us/politics/national-guard-new-orleans.html
 **Andy Reid discusses Travis Kelce's future with Chiefs**\
 `Reid said he “didn’t know” whether Thursday’s game against Denver would be Kelce’s last at Arrowhead Stadium`\
 https://nytimes.com/athletic/6916031/2025/12/23/andy-reid-travis-kelce-retirement/
-
-**The Briefing - Arsenal 1 Crystal Palace 1 (8-7 pens): How big was this win? Does Jesus help Martinelli? Should Nwaneri get a chance?**\
-`We break down the talking points from Arsenal's Carabao Cup quarter-final against Crystal Palace at the Emirates`\
-https://nytimes.com/athletic/6911616/2025/12/23/arsenal-crystal-palace-carabao-cup/
 
