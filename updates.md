@@ -1,3 +1,7 @@
+**England will investigate Noosa trip as Rob Key accepts team have played 'dumb' cricket at times**\
+`The England managing director of men's cricket dissected where he felt the Ashes tour had gone wrong and admitted the regime has to evolve`\
+https://nytimes.com/athletic/6912903/2025/12/23/england-ashes-rob-key-mccullum-stokes-noosa/
+
 **How to watch LSU vs. Houston: Texas Bowl Start Time, TV, streaming**\
 `Find out how to watch the LSU Tigers play the Houston Cougars, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6913051/2025/12/23/lsu-vs-houston-stream-how-to-watch-dec-27/
