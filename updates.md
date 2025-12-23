@@ -1,3 +1,7 @@
+**How to watch LSU vs. Houston: Texas Bowl Start Time, TV, streaming**\
+`Find out how to watch the LSU Tigers play the Houston Cougars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6913051/2025/12/23/lsu-vs-houston-stream-how-to-watch-dec-27/
+
 **Israel Needs to Get Out of Trump’s Way**\
 `President Trump should press Prime Minister Benjamin Netanyahu to ease military pressure on Gaza, Lebanon and Syria for the sake of his own policy.`\
 https://nytimes.com/2025/12/23/opinion/israel-trump-netanyahu-syria-lebanon-gaza.html

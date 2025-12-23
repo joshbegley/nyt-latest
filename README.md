@@ -1,3 +1,7 @@
+**England will investigate Noosa trip as Rob Key accepts team have played 'dumb' cricket at times**\
+`The England managing director of men's cricket dissected where he felt the Ashes tour had gone wrong and admitted the regime has to evolve`\
+https://nytimes.com/athletic/6912903/2025/12/23/england-ashes-rob-key-mccullum-stokes-noosa/
+
 **How to watch LSU vs. Houston: Texas Bowl Start Time, TV, streaming**\
 `Find out how to watch the LSU Tigers play the Houston Cougars, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6913051/2025/12/23/lsu-vs-houston-stream-how-to-watch-dec-27/
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000010605450/trump-warships-navy.html
 **Sunderland's 2025: Play-off turnaround, THAT Ballard header, and Xhaka influence**\
 `Sunderland's rise to the Premier League – and form since they arrived – has been remarkable. Phil Buckingham outlines the highlights of 2025`\
 https://nytimes.com/athletic/6896240/2025/12/23/sunderlands-2025-play-off-turnaround-that-ballard-header-and-xhaka-influence/
-
-**How a rare adjustment by Joe Mazzulla sparked a Celtics comeback win**\
-`Looking for a change of energy, Mazzulla pulled four of his second-half starters after the Celtics fell behind 69-49.`\
-https://nytimes.com/athletic/6912705/2025/12/23/celtics-joe-mazzulla-bench-performance-sparks-win/
 
