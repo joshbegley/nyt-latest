@@ -1,3 +1,11 @@
+**May Britt, 91, Dies; Her Marriage to Sammy Davis Jr. Sparked Outrage**\
+`She was a white actress, he was a popular Black entertainer, and their relationship elicited racist reactions in 1960, including from John F. Kennedy’s presidential campaign.`\
+https://nytimes.com/2025/12/22/movies/may-britt-dead.html
+
+**Eagles sticking with Jake Elliott after three missed field goals**\
+`Elliott is well below his career numbers this season.`\
+https://nytimes.com/athletic/6912655/2025/12/22/eagles-jake-elliott-missed-field-goals/
+
 **ECHL player union announces strike notice starting Friday**\
 `One of the top minor hockey leagues in North America could go dark after playing without a CBA since the start of the season.`\
 https://nytimes.com/athletic/6912603/2025/12/22/echl-player-union-nears-strike-cba/
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2025/12/22/us/politics/complaint-beatty-v-trump.
 **How to watch Ravens vs. Packers: Time, TV, streaming**\
 `Find out how to watch the Baltimore Ravens play the Green Bay Packers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6912579/2025/12/22/ravens-vs-packers-stream-how-to-watch-dec-27/
-
-**At Least 2 Dead in Crash of Medical Plane in Texas**\
-`The Mexican Navy said it was carrying out a medical support mission with a foundation that assists Mexican children with severe burns.`\
-https://nytimes.com/2025/12/22/us/galveston-plane-crash-mexico-navy.html
-
-**Rick Carlisle, Celtics seek bone marrow donor for former team trainer**\
-`Carlisle opened his pregame news conference Monday night with a call for help for former Boston Celtics trainer Ed Lacerte.`\
-https://nytimes.com/athletic/6912358/2025/12/22/rick-carlisle-asks-bone-marrow-donations-ed-lacerte-leukemia/
 
