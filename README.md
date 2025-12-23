@@ -1,3 +1,7 @@
+**Wizards guard Cam Whitmore out indefinitely with blood clot in shoulder**\
+`Whitmore is the latest NBA player to be diagnosed with the condition, joining a list that includes Victor Wembanyama and Damian Lillard.`\
+https://nytimes.com/athletic/6915885/2025/12/23/cam-whitmore-deep-vein-thombrosis-blood-clot-wizards/
+
 **Supreme Court Refuses to Allow Trump to Deploy National Guard in Chicago**\
 `President Trump ordered state-based troops to Portland, Ore.; Los Angeles; Washington; and Chicago over the objections of state and local officials.`\
 https://nytimes.com/2025/12/23/us/politics/supreme-court-national-guard-chicago.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6915931/2025/12/23/rockets-vs-clippers-stream-how-t
 **How to watch Kraken vs. Kings: Time, TV, streaming**\
 `Find out how to watch the Seattle Kraken play the Los Angeles Kings, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6915929/2025/12/23/kraken-vs-kings-stream-how-to-watch-dec-23/
-
-**How to watch Nuggets vs. Mavericks: Time, TV, streaming**\
-`Find out how to watch the Denver Nuggets play the Dallas Mavericks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6915924/2025/12/23/nuggets-vs-mavericks-stream-how-to-watch-dec-23/
 
