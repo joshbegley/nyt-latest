@@ -1,3 +1,7 @@
+**Trump Administration Will Investigate Brown’s Security After Shooting**\
+`The Department of Education is looking at whether security at Brown University, including its surveillance system, was up to standard. Brown said it would conduct its own investigation.`\
+https://nytimes.com/2025/12/22/us/brown-faces-trump-investigation-security-issues-shooting.html
+
 **How to watch Virginia vs. Missouri: Gator Bowl Start Time, TV, streaming**\
 `Find out how to watch the Virginia Cavaliers play the Missouri Tigers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6912521/2025/12/22/virginia-vs-missouri-stream-how-to-watch-dec-27/

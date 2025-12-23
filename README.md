@@ -1,3 +1,7 @@
+**Rick Carlisle, Celtics seek bone marrow donor for former team trainer**\
+`Carlisle opened his pregame news conference Monday night with a call for help for former Boston Celtics trainer Ed Lacerte.`\
+https://nytimes.com/athletic/6912358/2025/12/22/rick-carlisle-asks-bone-marrow-donations-ed-lacerte-leukemia/
+
 **Trump Administration Will Investigate Brown’s Security After Shooting**\
 `The Department of Education is looking at whether security at Brown University, including its surveillance system, was up to standard. Brown said it would conduct its own investigation.`\
 https://nytimes.com/2025/12/22/us/brown-faces-trump-investigation-security-issues-shooting.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/22/us/dji-drones-china-barred-us.html
 **Trump Administration Loosens Protections for Iconic Greater Sage Grouse**\
 `The government moves to make it easier to drill, mine and graze on 50 million acres of land in the West.`\
 https://nytimes.com/2025/12/22/climate/trump-loosens-protections-greater-sage-grouse.html
-
-**Trump Halts Offshore Wind Farms**\
-`Plus, Assad’s luxurious life in Moscow. Here’s the latest at the end of Monday.`\
-https://nytimes.com/2025/12/22/briefing/wind-farms-assad.html
 
