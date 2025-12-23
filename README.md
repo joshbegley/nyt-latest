@@ -30,7 +30,7 @@ https://nytimes.com/athletic/6840317/2025/12/23/wrexham-christmas-club-secretary
 `It has not been dull at Villa Park in the last 12 months — on or off the pitch. The Athletic assesses the highs, lows and unusual happenings`\
 https://nytimes.com/athletic/6854859/2025/12/23/aston-villa-2025-champions-league-konsa/
 
-**Everton 2025 in review: Ndiaye stars, a new home, and a 'broken' family no more**\
+**Everton's 2025: Ndiaye stars, a new home, and a 'broken' family no more**\
 `Plenty has changed on and off the pitch for Everton in the past 12 months. These were some of the high - and low - points`\
 https://nytimes.com/athletic/6893347/2025/12/23/everton-2025-review-ndiaye-moyes-hill-dickinson/
 
