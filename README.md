@@ -1,3 +1,23 @@
+**How to watch Magic vs. Trail Blazers: Time, TV, streaming**\
+`Find out how to watch the Orlando Magic play the Portland Trail Blazers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6915939/2025/12/23/magic-vs-trail-blazers-stream-how-to-watch-dec-23/
+
+**How to watch Pistons vs. Kings: Time, TV, streaming**\
+`Find out how to watch the Detroit Pistons play the Sacramento Kings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6915937/2025/12/23/pistons-vs-kings-stream-how-to-watch-dec-23/
+
+**How to watch Rockets vs. Clippers: Time, TV, streaming**\
+`Find out how to watch the Houston Rockets play the Los Angeles Clippers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6915931/2025/12/23/rockets-vs-clippers-stream-how-to-watch-dec-23/
+
+**How to watch Kraken vs. Kings: Time, TV, streaming**\
+`Find out how to watch the Seattle Kraken play the Los Angeles Kings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6915929/2025/12/23/kraken-vs-kings-stream-how-to-watch-dec-23/
+
+**How to watch Nuggets vs. Mavericks: Time, TV, streaming**\
+`Find out how to watch the Denver Nuggets play the Dallas Mavericks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6915924/2025/12/23/nuggets-vs-mavericks-stream-how-to-watch-dec-23/
+
 **How to watch Bulls vs. Hawks: Time, TV, streaming**\
 `Find out how to watch the Chicago Bulls play the Atlanta Hawks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6915922/2025/12/23/bulls-vs-hawks-stream-how-to-watch-dec-23/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6915910/2025/12/23/flyers-vs-blackhawks-stream-how-
 **How to watch Thunder vs. Spurs: Time, TV, streaming**\
 `Find out how to watch the Oklahoma City Thunder play the San Antonio Spurs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6915908/2025/12/23/thunder-vs-spurs-stream-how-to-watch-dec-23/
-
-**Browns win not activate Deshaun Watson to 53-man roster ahead of final two games**\
-`Watson hasn't played in a game since rupturing his Achilles tendon in October 2024. `\
-https://nytimes.com/athletic/6911626/2025/12/23/browns-win-not-activate-deshaun-watson-to-53-man-roster-ahead-of-final-two-games/
-
-**How to watch Knicks vs. Timberwolves: Time, TV, streaming**\
-`Find out how to watch the New York Knicks play the Minnesota Timberwolves, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6915905/2025/12/23/knicks-vs-timberwolves-stream-how-to-watch-dec-23/
-
-**How to watch Predators vs. Wild: Time, TV, streaming**\
-`Find out how to watch the Nashville Predators play the Minnesota Wild, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6915902/2025/12/23/predators-vs-wild-stream-how-to-watch-dec-23/
-
-**How to watch Flames vs. Oilers: Time, TV, streaming**\
-`Find out how to watch the Calgary Flames play the Edmonton Oilers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6915900/2025/12/23/flames-vs-oilers-stream-how-to-watch-dec-23/
-
-**How to watch Grizzlies vs. Jazz: Time, TV, streaming**\
-`Find out how to watch the Memphis Grizzlies play the Utah Jazz, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6915897/2025/12/23/grizzlies-vs-jazz-stream-how-to-watch-dec-23/
 
