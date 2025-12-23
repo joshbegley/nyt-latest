@@ -1,3 +1,11 @@
+**Libyan Military Leaders Are Killed in Plane Crash in Turkey**\
+`The internationally recognized government of Libya confirmed the deaths of Lt. Gen. Mohamed Ali Ahmed al-Haddad, the army chief of staff, and other officers flying home after a meeting in Turkey.`\
+https://nytimes.com/2025/12/23/world/middleeast/libya-general-plane-crash-turkey.html
+
+**Multiple People Injured in Explosion at Pennsylvania Nursing Home**\
+`The explosion, at the Bristol Health and Rehab Center in Bristol Township, Pa., caused a fire and partial collapse of the building, the authorities said.`\
+https://nytimes.com/2025/12/23/us/explosion-bristol-nursing-home.html
+
 **Dating ChatGPT**\
 `The bot has been marketed as a general-purpose tool that can write code, summarize documents and give advice. But can it be a good boyfriend?`\
 https://nytimes.com/2025/12/23/world/dating-chatgpt-greta-thunberg-russia-ukraine.html
