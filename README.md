@@ -1,3 +1,7 @@
+**Broncos longest-tenured players Bolles, Sutton finally earn Pro Bowl honors**\
+`Bolles, who made his first Pro Bowl at 33, pledged ahead of this season that he'd be "dominant player" for the Broncos — and he has.`\
+https://nytimes.com/athletic/6915754/2025/12/23/broncos-six-pro-bowl-selections-bolles-sutton/
+
 **Richards taken off on stretcher with foot injury, hopeful of January return**\
 `Oliver Glasner confirmed Richards required stitches to his foot and is a doubt to face Tottenham Hotspur on Sunday.`\
 https://nytimes.com/athletic/6916052/2025/12/23/chris-richards-injury-crystal-palace-usmnt/
@@ -21,8 +25,4 @@ https://nytimes.com/athletic/6916178/2025/12/23/brooks-koepka-leaving-liv-golf/
 **Explosion at Pennsylvania Nursing Home Injures Several People**\
 `Multiple people were injured after a gas explosion caused a fire and a partial collapse of the Bristol Health and Rehab Center in Bristol, Pa., on Tuesday, according to authorities. Officials said that there were reports of people still trapped inside the building.`\
 https://nytimes.com/video/us/100000010607304/explosion-at-pennsylvania-nursing-home-injures-several-people.html
-
-**Justices Block National Guard Deployment in Chicago**\
-`Also, economic growth surged through the summer. Here’s the latest at the end of Tuesday.`\
-https://nytimes.com/2025/12/23/briefing/justices-block-national-guard-deployment-in-chicago.html
 

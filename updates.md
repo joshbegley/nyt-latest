@@ -1,3 +1,7 @@
+**Richards taken off on stretcher with foot injury, hopeful of January return**\
+`Oliver Glasner confirmed Richards required stitches to his foot and is a doubt to face Tottenham Hotspur on Sunday.`\
+https://nytimes.com/athletic/6916052/2025/12/23/chris-richards-injury-crystal-palace-usmnt/
+
 **Louisville celebrates Bush's Boca Raton Bowl with bean tasting**\
 `The Cardinals got the chance to participate in the latest postgame bowl tradition.`\
 https://nytimes.com/athletic/6916125/2025/12/23/louisville-eats-beans-trophy-bushs-boca-raton-bowl/
