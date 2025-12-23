@@ -1,3 +1,15 @@
+**National Guard Troops to Arrive in New Orleans**\
+`The troops will join an existing wave of Border Patrol agents, months after Gov. Jeff Landry first suggested that the National Guard could help tamp down on crime in Louisiana.`\
+https://nytimes.com/2025/12/23/us/politics/national-guard-new-orleans.html
+
+**Andy Reid discusses Travis Kelce's future with Chiefs**\
+`Reid said he “didn’t know” whether Thursday’s game against Denver would be Kelce’s last at Arrowhead Stadium`\
+https://nytimes.com/athletic/6916031/2025/12/23/andy-reid-travis-kelce-retirement/
+
+**The Briefing - Arsenal 1 Crystal Palace 1 (8-7 pens): How big was this win? Does Jesus help Martinelli? Should Nwaneri get a chance?**\
+`We break down the talking points from Arsenal's Carabao Cup quarter-final against Crystal Palace at the Emirates`\
+https://nytimes.com/athletic/6911616/2025/12/23/arsenal-crystal-palace-carabao-cup/
+
 **The Briefing - Arsenal 1 Crystal Palace 1 (8-7 pens): How big was this? Does Jesus help Martinelli? Nwaneri deserves a chance?**\
 `We break down the talking points from Arsenal's Carabao Cup quarter-final against Crystal Palace at the Emirates.`\
 https://nytimes.com/athletic/6911616/2025/12/23/arsenal-crystal-palace-carabao-cup/
