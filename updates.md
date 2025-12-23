@@ -1,3 +1,7 @@
+**Luka Dončić to miss Lakers' matchup vs. Suns due to left leg contusion**\
+`When the Lakers opened practice to media on Monday, Dončić had a large wrap on the calf muscle.`\
+https://nytimes.com/athletic/6912487/2025/12/22/luka-doncic-injury-update-calf-contusion-ruled-out/
+
 **How to watch Texans vs. Chargers: Time, TV, streaming**\
 `Find out how to watch the Houston Texans play the Los Angeles Chargers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6912478/2025/12/22/texans-vs-chargers-stream-how-to-watch-dec-27/
