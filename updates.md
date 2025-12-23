@@ -1,3 +1,7 @@
+**Federal Prosecutor Was Surprised by Trump’s Flights on Epstein’s Jet**\
+`A 2020 email noted that Donald Trump was listed as a passenger on Jeffrey Epstein’s jet at least eight times from 1993 to 1996.`\
+https://nytimes.com/2025/12/23/us/politics/trump-epstein-jet-flights.html
+
 **Rotating Cast of Wall Street Figures Were Listed as Executors of Epstein’s Will**\
 `Copies of Jeffrey Epstein’s last will and testament show that the convicted sex offender and disgraced financier provide a real-time glimpse of the power players who were part of his life.`\
 https://nytimes.com/2025/12/23/us/politics/epstein-will-executors-wall-street.html

@@ -1,3 +1,7 @@
+**Federal Prosecutor Was Surprised by Trump’s Flights on Epstein’s Jet**\
+`A 2020 email noted that Donald Trump was listed as a passenger on Jeffrey Epstein’s jet at least eight times from 1993 to 1996.`\
+https://nytimes.com/2025/12/23/us/politics/trump-epstein-jet-flights.html
+
 **Rotating Cast of Wall Street Figures Were Listed as Executors of Epstein’s Will**\
 `Copies of Jeffrey Epstein’s last will and testament show that the convicted sex offender and disgraced financier provide a real-time glimpse of the power players who were part of his life.`\
 https://nytimes.com/2025/12/23/us/politics/epstein-will-executors-wall-street.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6912608/2025/12/23/maple-leafs-marc-savard-matthews
 **Economic Growth Is Up. Unemployment Is, Too. What’s Going On?**\
 `There are some possible explanations for what’s happening with seemingly conflicting macroeconomic data.`\
 https://nytimes.com/2025/12/23/opinion/gdp-numbers-economy-job-numbers.html
-
-**The Bounce: Duke's Cameron Boozer makes his case to be the No. 1 pick**\
-`Zach Harper catches you up on the latest NBA news in our newsletter.`\
-https://nytimes.com/athletic/6913549/2025/12/23/cameron-boozer-nba-draft-the-bounce/
 
