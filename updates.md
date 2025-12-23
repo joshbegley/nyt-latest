@@ -1,3 +1,11 @@
+**May Britt, 91, Dies; Her Marriage to Sammy Davis Jr. Sparked Outrage**\
+`She was a white actress, he was a popular Black entertainer, and their relationship elicited racist reactions in 1960, including from John F. Kennedy’s presidential campaign.`\
+https://nytimes.com/2025/12/22/movies/may-britt-dead.html
+
+**Eagles sticking with Jake Elliott after three missed field goals**\
+`Elliott is well below his career numbers this season.`\
+https://nytimes.com/athletic/6912655/2025/12/22/eagles-jake-elliott-missed-field-goals/
+
 **ECHL player union announces strike notice starting Friday**\
 `One of the top minor hockey leagues in North America could go dark after playing without a CBA since the start of the season.`\
 https://nytimes.com/athletic/6912603/2025/12/22/echl-player-union-nears-strike-cba/
