@@ -1,3 +1,7 @@
+**Trump Announces New ‘Trump Class’ of Warships**\
+`The president said development of the vessels would help maintain military superiority and improve the industrial base, but analysts suggested they were the wrong approach to current threats.`\
+https://nytimes.com/2025/12/22/us/politics/new-trump-class-warships.html
+
 **In a Fitting Way**\
 `Nathan Hale gets the corner office.`\
 https://nytimes.com/2025/12/22/crosswords/daily-puzzle-2025-12-23.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/22/us/politics/lawsuit-trump-name-removal-kennedy-ce
 **Trump Officials Sue to Loosen D.C.’s Gun Laws**\
 `The Justice Department challenged laws aimed at popular rifles including the AR-15 in the nation’s capital.`\
 https://nytimes.com/2025/12/22/us/politics/washington-dc-gun-laws-trump.html
-
-**Read the document**\
-`Representative Joyce Beatty, Democrat of Ohio, sued President Trump on Monday seeking to force the removal of his name from the John F. Kennedy Center for the Performing Arts.`\
-https://nytimes.com/interactive/2025/12/22/us/politics/complaint-beatty-v-trump.html
 
