@@ -1,3 +1,11 @@
+**Live Updates: More Epstein Files Are Released and Include Some References to Trump**\
+`The Justice Department released another batch of documents from the Jeffrey Epstein investigation — a wide mix of emails, tips and records from his death.`\
+https://nytimes.com/live/2025/12/23/us/epstein-files-trump
+
+**Wolves captain Toti out for 'significant period', to miss Liverpool, Man Utd games**\
+`Toti joins Emmanuel Agbadou as a defensive absentee but Hugo Bueno could return from a hip injury in time for the trip to Liverpool.`\
+https://nytimes.com/athletic/6914303/2025/12/23/wolves-injury-news-toti/
+
 **In Ontario, the Uplifting Case of the Stolen ‘Nutcracker’ Sets**\
 `Ballet Jörgen’s holiday scare reaffirmed its mission: taking the art form to remote towns and outposts where most people have never seen a pas de deux.`\
 https://nytimes.com/2025/12/23/arts/dance/nutcracker-ballet-jorgen-stolen-set-toronto-canada.html

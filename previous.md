@@ -1,3 +1,11 @@
+**Live Updates: More Epstein Files Are Released and Include Some References to Trump**\
+`The Justice Department released another batch of documents from the Jeffrey Epstein investigation — a wide mix of emails, tips and records from his death.`\
+https://nytimes.com/live/2025/12/23/us/epstein-files-trump
+
+**Wolves captain Toti out for 'significant period', to miss Liverpool, Man Utd games**\
+`Toti joins Emmanuel Agbadou as a defensive absentee but Hugo Bueno could return from a hip injury in time for the trip to Liverpool.`\
+https://nytimes.com/athletic/6914303/2025/12/23/wolves-injury-news-toti/
+
 **In Ontario, the Uplifting Case of the Stolen ‘Nutcracker’ Sets**\
 `Ballet Jörgen’s holiday scare reaffirmed its mission: taking the art form to remote towns and outposts where most people have never seen a pas de deux.`\
 https://nytimes.com/2025/12/23/arts/dance/nutcracker-ballet-jorgen-stolen-set-toronto-canada.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6826130/2025/12/23/antoine-semenyo-chelsea-transfer
 **U.S. Economic Growth Surged in Third Quarter of 2025**\
 `Gross domestic product grew at a 4.3 percent annual rate, faster than the previous three months.`\
 https://nytimes.com/2025/12/23/business/us-economy-consumer-spending.html
-
-**Thunberg Arrested in U.K. at Protest Supporting Palestine Action**\
-`The Swedish activist Greta Thunberg was arrested after holding a sign that the police said showed support for the group, which Britain banned this year.`\
-https://nytimes.com/2025/12/23/world/europe/greta-thunberg-arrest-uk-palestine-action.html
-
-**How to watch Penguins vs. Maple Leafs: Time, TV, streaming**\
-`Find out how to watch the Pittsburgh Penguins play the Toronto Maple Leafs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6913964/2025/12/23/penguins-vs-maple-leafs-stream-how-to-watch-dec-23/
 
