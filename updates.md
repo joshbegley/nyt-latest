@@ -1,3 +1,7 @@
+**Colts' loss to 49ers clinches playoff spots for Bills, Chargers, Jaguars**\
+`The Bills, Chargers and Jaguars all needed wins and a loss or tie from the Texans or Colts this week to secure postseason berths.`\
+https://nytimes.com/athletic/6909671/2025/12/22/bills-chargers-jaguars-clinch-afc-playoff-picture/
+
 **Red Sox roster 'incomplete,' Craig Breslow says; adding second bat a 'priority'**\
 `After adding to the starting rotation, Boston's acquisition of Willson Contreras doesn't look like the only move targeted toward offense.`\
 https://nytimes.com/athletic/6912674/2025/12/22/red-sox-roster-willson-contreras/

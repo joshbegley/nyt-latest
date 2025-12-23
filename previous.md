@@ -1,3 +1,7 @@
+**Colts' loss to 49ers clinches playoff spots for Bills, Chargers, Jaguars**\
+`The Bills, Chargers and Jaguars all needed wins and a loss or tie from the Texans or Colts this week to secure postseason berths.`\
+https://nytimes.com/athletic/6909671/2025/12/22/bills-chargers-jaguars-clinch-afc-playoff-picture/
+
 **Red Sox roster 'incomplete,' Craig Breslow says; adding second bat a 'priority'**\
 `After adding to the starting rotation, Boston's acquisition of Willson Contreras doesn't look like the only move targeted toward offense.`\
 https://nytimes.com/athletic/6912674/2025/12/22/red-sox-roster-willson-contreras/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6912655/2025/12/22/eagles-jake-elliott-missed-field
 **ECHL player union announces strike notice starting Friday**\
 `One of the top minor hockey leagues in North America could go dark after playing without a CBA since the start of the season.`\
 https://nytimes.com/athletic/6912603/2025/12/22/echl-player-union-nears-strike-cba/
-
-**Turmoil at CBS News After Bari Weiss Pulls a ‘60 Minutes’ Segment**\
-`Several veteran correspondents questioned how Ms. Weiss, the new CBS News editor in chief, had handled the segment, after she defended her decision on a call with the newsroom.`\
-https://nytimes.com/2025/12/22/business/media/cbs-news-bari-weiss-60-minutes.html
 
