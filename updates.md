@@ -1,3 +1,7 @@
+**Did DOGE Really Cut Government Spending?**\
+`Did DOGE really cut government spending? A New York Times analysis found that the group’s biggest claims were largely incorrect, and that its many smaller cuts added up to few savings. Our reporters David Fahrenthold and Margot Sanger-Katz explain.`\
+https://nytimes.com/video/us/politics/100000010584489/did-doge-really-cut-government-spending.html
+
 **Student Loan Borrowers in Default Could See Wages Garnished in Early 2026**\
 `Starting the week of Jan. 7, the Dept. of Education will begin sending notices about paycheck deductions to about 1,000 of five million borrowers in default.`\
 https://nytimes.com/2025/12/23/business/student-loan-debtors-default-wages-garnish.html
