@@ -1,3 +1,11 @@
+**Blunt Nottingham Forest must rediscover their edge to get clear of relegation fight**\
+`This was a fourth-straight loss at Craven Cottage for Forest, whose lack on consistency is frustrating manager Sean Dyche`\
+https://nytimes.com/athletic/6912558/2025/12/23/blunt-nottingham-forest-must-rediscover-their-edge-to-get-clear-of-relegation-fight/
+
+**Word of the Day: decorum**\
+`This word has appeared in 90 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/12/23/learning/word-of-the-day-decorum.html
+
 **Justice Dept. Sues Illinois Over Law Limiting Immigration Enforcement**\
 `The Justice Department said the law illegally regulates federal law enforcement by barring courthouse arrests and allowing residents to sue immigration agents.`\
 https://nytimes.com/2025/12/23/us/politics/illinois-immigration-lawsuit-justice-department.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6912705/2025/12/23/celtics-joe-mazzulla-bench-perfo
 **Inside Newcastle Q&A: Will Nick Pope return as No 1? Is Lewis Miley ahead of Joelinton?**\
 `After another lead was thrown away, and with the transfer window about to open, The Athletic answers your pressing questions`\
 https://nytimes.com/athletic/6905896/2025/12/23/inside-newcastle-qa-will-nick-pope-return-as-no-1-is-lewis-miley-ahead-of-joelinton/
-
-**Long-serving club secretary Geraint Parry has memories of Wrexham;s Christmases past**\
-`As their longest-serving employee, the 65-year-old can recall festive seasons when the club were in an altogether different state to today`\
-https://nytimes.com/athletic/6840317/2025/12/23/wrexham-christmas-club-secretary-parry/
-
-**Aston Villa's 2025: Double Champions League heartache, classy Konsa, Palace problems**\
-`It has not been dull at Villa Park in the last 12 months — on or off the pitch. The Athletic assesses the highs, lows and unusual happenings`\
-https://nytimes.com/athletic/6854859/2025/12/23/aston-villa-2025-champions-league-konsa/
 
