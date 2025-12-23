@@ -1,3 +1,7 @@
+**Richards taken off on stretcher with foot injury, hopeful of January return**\
+`Oliver Glasner confirmed Richards required stitches to his foot and is a doubt to face Tottenham Hotspur on Sunday.`\
+https://nytimes.com/athletic/6916052/2025/12/23/chris-richards-injury-crystal-palace-usmnt/
+
 **Louisville celebrates Bush's Boca Raton Bowl with bean tasting**\
 `The Cardinals got the chance to participate in the latest postgame bowl tradition.`\
 https://nytimes.com/athletic/6916125/2025/12/23/louisville-eats-beans-trophy-bushs-boca-raton-bowl/
@@ -21,8 +25,4 @@ https://nytimes.com/video/us/100000010607304/explosion-at-pennsylvania-nursing-h
 **Justices Block National Guard Deployment in Chicago**\
 `Also, economic growth surged through the summer. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2025/12/23/briefing/justices-block-national-guard-deployment-in-chicago.html
-
-**Jets place Justin Fields on IR, ending his season**\
-`Fields threw for 1,259 yards in nine games before he was benched in favor of veteran Tyrod Taylor.`\
-https://nytimes.com/athletic/6916124/2025/12/23/justin-fields-injury-update-injured-reserve-jets-qb/
 

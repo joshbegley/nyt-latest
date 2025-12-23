@@ -1,3 +1,7 @@
+**Louisville celebrates Bush's Boca Raton Bowl with bean tasting**\
+`The Cardinals got the chance to participate in the latest postgame bowl tradition.`\
+https://nytimes.com/athletic/6916125/2025/12/23/louisville-eats-beans-trophy-bushs-boca-raton-bowl/
+
 **SafeSport suspends two US gymnastics coaches for 'physical and emotional misconduct'**\
 `Al Fong and Armine Barutyan are a married couple who have coached numerous U.S. Olympic and world medalists.`\
 https://nytimes.com/athletic/6916057/2025/12/23/safesports-gymnastics-coaches-suspended-emotional-misconduct/
@@ -21,8 +25,4 @@ https://nytimes.com/2025/12/23/briefing/justices-block-national-guard-deployment
 **Jets place Justin Fields on IR, ending his season**\
 `Fields threw for 1,259 yards in nine games before he was benched in favor of veteran Tyrod Taylor.`\
 https://nytimes.com/athletic/6916124/2025/12/23/justin-fields-injury-update-injured-reserve-jets-qb/
-
-**U.S. Is Adding to Its Military Buildup in the Caribbean**\
-`Over the past week, C-17 heavy-lift cargo planes, which usually transport troops and equipment, flew to Puerto Rico at least 16 times, according to flight tracking data reviewed by The New York Times.`\
-https://nytimes.com/2025/12/23/us/politics/military-cargo-planes-caribbean-venezuela.html
 

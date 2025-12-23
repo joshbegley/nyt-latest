@@ -1,3 +1,7 @@
+**Louisville celebrates Bush's Boca Raton Bowl with bean tasting**\
+`The Cardinals got the chance to participate in the latest postgame bowl tradition.`\
+https://nytimes.com/athletic/6916125/2025/12/23/louisville-eats-beans-trophy-bushs-boca-raton-bowl/
+
 **SafeSport suspends two US gymnastics coaches for 'physical and emotional misconduct'**\
 `Al Fong and Armine Barutyan are a married couple who have coached numerous U.S. Olympic and world medalists.`\
 https://nytimes.com/athletic/6916057/2025/12/23/safesports-gymnastics-coaches-suspended-emotional-misconduct/
