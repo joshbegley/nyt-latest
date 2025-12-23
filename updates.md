@@ -1,3 +1,19 @@
+**Taylor Swift Caps Her Eras Tour Era**\
+`Seven takeaways from the final episodes of “The End of an Era,” the Disney+ series exploring her globe-trotting concert extravaganza.`\
+https://nytimes.com/2025/12/23/arts/music/taylor-swift-eras-tour-episodes.html
+
+**Paolo Banchero and the Orlando Magic are still awaiting their breakthrough**\
+`Facing injuries, the Magic and their former No. 1 pick have not yet met the lofty expectations they held for this season. `\
+https://nytimes.com/athletic/6913110/2025/12/23/paolo-banchero-orlando-magic-season/
+
+**Semenyo: Chelsea enquire about January deal for Bournemouth forward**\
+`Chelsea had planned to sign a new forward in the summer but are considering accelerating their plans to January.`\
+https://nytimes.com/athletic/6826130/2025/12/23/antoine-semenyo-chelsea-transfer-bournemouth/
+
+**U.S. Economic Growth Surged in Third Quarter of 2025**\
+`Gross domestic product grew at a 4.3 percent annual rate, faster than the previous three months.`\
+https://nytimes.com/2025/12/23/business/us-economy-consumer-spending.html
+
 **Thunberg Arrested in U.K. at Protest Supporting Palestine Action**\
 `The Swedish activist Greta Thunberg was arrested after holding a sign that the police said showed support for the group, which Britain banned this year.`\
 https://nytimes.com/2025/12/23/world/europe/greta-thunberg-arrest-uk-palestine-action.html

@@ -1,3 +1,7 @@
+**What I'm hearing about struggling Cavs: Kenny Atkinson's job security, trade deadline**\
+`Amid rocky start well below expectations, Atkinson professes confidence: “I’m buying this dip. I know what we got comin’."`\
+https://nytimes.com/athletic/6912871/2025/12/23/cavaliers-atkinson-roster-trade-deadline-news/
+
 **Taylor Swift Caps Her Eras Tour Era**\
 `Seven takeaways from the final episodes of “The End of an Era,” the Disney+ series exploring her globe-trotting concert extravaganza.`\
 https://nytimes.com/2025/12/23/arts/music/taylor-swift-eras-tour-episodes.html
@@ -22,7 +26,7 @@ https://nytimes.com/2025/12/23/world/europe/greta-thunberg-arrest-uk-palestine-a
 `Find out how to watch the Pittsburgh Penguins play the Toronto Maple Leafs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6913964/2025/12/23/penguins-vs-maple-leafs-stream-how-to-watch-dec-23/
 
-**World Cup Fan Fests will feature 'Freedom' trucks to celebrate U.S.'s 250th anniversary**\
+**World Cup Fan Fests may feature 'Freedom' trucks to celebrate U.S.'s 250th anniversary**\
 `A White House task force has facilitated a proposal to have trucks serve as patriotic mobile museums this summer`\
 https://nytimes.com/athletic/6912245/2025/12/23/world-cup-usa-freedom-trump-trucks/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/23/us/politics/epstein-files-trump.html
 **Trump Administration Live Updates: Justice Department Releases More Epstein Files**\
 ``\
 https://nytimes.com/live/2025/12/23/us/trump-epstein-files-news
-
-**The Chargers still have everything to play for — the division, AFC's No. 1 seed**\
-`The Chargers haven't won a division title since 2009 but remain in the mix with two games to play.`\
-https://nytimes.com/athletic/6912310/2025/12/23/chargers-afc-playoff-path-division-1-seed/
 
