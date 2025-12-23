@@ -1,3 +1,11 @@
+**San Luis Obispo County**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/things-to-do-san-luis-obispo
+
+**Mexican Medical Plane Crashes in Texas, Killing at Least 5**\
+`A Mexican Navy medical plane carrying eight passengers crashed into Galveston Bay in Texas as it was flying a child with burns to a specialized pediatric hospital for treatment, Mexico’s president said.`\
+https://nytimes.com/video/us/100000010606472/galveston-plane-crash-mexico-navy.html
+
 **Pirates to sign Ryan O'Hearn, add another bat to improving offense: Sources**\
 `O'Hearn is the second upgrade to the Pirates' offense in the past week.`\
 https://nytimes.com/athletic/6802605/2025/12/23/mlb-ryan-ohearn-free-agency-signing-pirates/
@@ -29,12 +37,4 @@ https://nytimes.com/newsgraphics/card-story/jaipur-india-food
 **Semenyo's preference to join Manchester City from Bournemouth**\
 `Semenyo's desire to win trophies is key to his decision.`\
 https://nytimes.com/athletic/6915594/2025/12/23/antoine-semenyo-manchester-city-transfer/
-
-**Vikings QB J.J. McCarthy to miss Christmas Day game vs. Lions with hairline fracture in hand injury**\
-`The second-year quarterback injured his hand late in the first half of the Vikings' win Sunday over the Giants.`\
-https://nytimes.com/athletic/6911794/2025/12/23/jj-mccarthy-vikings-injury-update-hand/
-
-**10 Songs That Explain My Year**\
-`From Gustav Mahler to Lady Gaga, a peek into Lindsay’s past 12 months in music.`\
-https://nytimes.com/2025/12/23/arts/music/amplifier-newsletter-2025-defining-songs.html
 

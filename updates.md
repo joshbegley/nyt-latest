@@ -1,3 +1,11 @@
+**San Luis Obispo County**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/things-to-do-san-luis-obispo
+
+**Mexican Medical Plane Crashes in Texas, Killing at Least 5**\
+`A Mexican Navy medical plane carrying eight passengers crashed into Galveston Bay in Texas as it was flying a child with burns to a specialized pediatric hospital for treatment, Mexico’s president said.`\
+https://nytimes.com/video/us/100000010606472/galveston-plane-crash-mexico-navy.html
+
 **Pirates to sign Ryan O'Hearn, add another bat to improving offense: Sources**\
 `O'Hearn is the second upgrade to the Pirates' offense in the past week.`\
 https://nytimes.com/athletic/6802605/2025/12/23/mlb-ryan-ohearn-free-agency-signing-pirates/
