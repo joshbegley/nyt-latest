@@ -1,3 +1,7 @@
+**In Ontario, the Uplifting Case of the Stolen ‘Nutcracker’ Sets**\
+`Ballet Jörgen’s holiday scare reaffirmed its mission: taking the art form to remote towns and outposts where most people have never seen a pas de deux.`\
+https://nytimes.com/2025/12/23/arts/dance/nutcracker-ballet-jorgen-stolen-set-toronto-canada.html
+
 **Spouses Wearing Complementary Patterns**\
 `For a couple from Los Angeles, choosing clothes is often a joint activity.`\
 https://nytimes.com/2025/12/23/style/street-style-look-spouses-complementary-patterns.html
