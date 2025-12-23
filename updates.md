@@ -1,3 +1,7 @@
+**How to watch Texans vs. Chargers: Time, TV, streaming**\
+`Find out how to watch the Houston Texans play the Los Angeles Chargers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6912478/2025/12/22/texans-vs-chargers-stream-how-to-watch-dec-27/
+
 **Quarterback Nico Iamaleava will return to UCLA for the 2026 season**\
 `Iamaleava's passing numbers were pedestrian, but he was critical to UCLA's ground game in his first season with the Bruins.`\
 https://nytimes.com/athletic/6899422/2025/12/22/nico-iamaleava-ucla-quarterback-transfer-portal/
