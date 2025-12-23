@@ -1,3 +1,7 @@
+**Dating ChatGPT**\
+`The bot has been marketed as a general-purpose tool that can write code, summarize documents and give advice. But can it be a good boyfriend?`\
+https://nytimes.com/2025/12/23/world/dating-chatgpt-greta-thunberg-russia-ukraine.html
+
 **Wizards guard Cam Whitmore out indefinitely with blood clot in shoulder**\
 `Whitmore is the latest NBA player to be diagnosed with the condition, joining a list that includes Victor Wembanyama and Damian Lillard.`\
 https://nytimes.com/athletic/6915885/2025/12/23/cam-whitmore-deep-vein-thombrosis-blood-clot-wizards/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6915937/2025/12/23/pistons-vs-kings-stream-how-to-w
 **How to watch Rockets vs. Clippers: Time, TV, streaming**\
 `Find out how to watch the Houston Rockets play the Los Angeles Clippers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6915931/2025/12/23/rockets-vs-clippers-stream-how-to-watch-dec-23/
-
-**How to watch Kraken vs. Kings: Time, TV, streaming**\
-`Find out how to watch the Seattle Kraken play the Los Angeles Kings, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6915929/2025/12/23/kraken-vs-kings-stream-how-to-watch-dec-23/
 
