@@ -1,3 +1,15 @@
+**Bundesliga 2025 review: Kane dominance, Karl's emergence – and a remarkable celebration escape**\
+`Seb Stafford-Bloor looks back on the fun and games of German football in 2025. Come for the Kane/Karl praise, stay for the crazy celebration`\
+https://nytimes.com/athletic/6893473/2025/12/23/bundesliga-kane-karl-bayern-review/
+
+**Thomas Tuchel has a wealth of options for England’s attack. It's a different story in goal**\
+`There are just three English goalkeepers regularly playing in the Premier League. Does that give Tuchel an issue for the World Cup?`\
+https://nytimes.com/athletic/6910951/2025/12/23/thomas-tuchel-england-pickford-henderson-trafford-pope-ramsdale-rushworth/
+
+**Five Premier League data trends: Villa defy odds, Leeds' tall order, Man City breakaways**\
+`We look at five data trends from recent Premier League games, that could give an insight into future weeks`\
+https://nytimes.com/athletic/6911006/2025/12/23/premier-league-data-trends/
+
 **The Calvert-Lewin goalscoring corridor and why he has so many chances from that range**\
 `Dominic Calvert-Lewin's goals against Crystal Palace highlighted the small area in which he has scored this season`\
 https://nytimes.com/athletic/6911494/2025/12/23/dominic-calvert-lewin-leeds-goals-analysis/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/12/23/business/china-autonomous-cars-driving.html
 **Corrections: Dec. 23, 2025**\
 `Corrections that appeared in print on Tuesday, Dec. 23, 2025.`\
 https://nytimes.com/2025/12/22/pageoneplus/corrections-dec-23-2025.html
-
-**Quote of the Day: To New Middle Class, Nothing Seems Affordable**\
-`Quotation of the Day for Tuesday, December 23, 2025.`\
-https://nytimes.com/2025/12/22/pageoneplus/quote-of-the-day-tto-new-middle-class-nothing-seems-affordable.html
-
-**Full Time: ’Tis the season in Portland**\
-`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
-https://nytimes.com/athletic/6912797/2025/12/22/sophia-wilson-portland-full-time/
-
-**Brock Purdy's 5 TDs put Philip Rivers, Colts on the brink: Takeaways**\
-`Purdy's career night kept the 49ers in the hunt for the NFC's top seed and damped the Colts' already faint playoff hopes.`\
-https://nytimes.com/athletic/6912776/2025/12/22/49ers-colts-score-result-takeaways-mnf-nfl/
 
