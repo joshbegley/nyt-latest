@@ -1,3 +1,15 @@
+**Economic Growth Is Up. Unemployment Is, Too. What’s Going On?**\
+`There are some possible explanations for what’s happening with seemingly conflicting macroeconomic data.`\
+https://nytimes.com/2025/12/23/opinion/gdp-numbers-economy-job-numbers.html
+
+**The Bounce: Duke's Cameron Boozer makes his case to be the No. 1 pick**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/6913549/2025/12/23/cameron-boozer-nba-draft-the-bounce/
+
+**Live Updates: More Epstein Files Are Released and Some Include References to Trump**\
+`The Justice Department released another batch of documents from the Jeffrey Epstein investigation — a wide mix of emails, tips and records from his death.`\
+https://nytimes.com/live/2025/12/23/us/epstein-files-trump
+
 **Live Updates: More Epstein Files Are Released and Include Some References to Trump**\
 `The Justice Department released another batch of documents from the Jeffrey Epstein investigation — a wide mix of emails, tips and records from his death.`\
 https://nytimes.com/live/2025/12/23/us/epstein-files-trump
