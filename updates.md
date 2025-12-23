@@ -1,3 +1,15 @@
+**Red Light: The Sabres are good. Seriously!**\
+`Welcome to Red Light, The Athletic's NHL newsletter.`\
+https://nytimes.com/athletic/6914815/2025/12/23/sabres-nhl-standings-red-light/
+
+**Ben Sasse Says He Has Terminal Pancreatic Cancer**\
+`Mr. Sasse, a former senator from Nebraska, wrote on social media that he had received a diagnosis last week for Stage 4 pancreatic cancer.`\
+https://nytimes.com/2025/12/23/us/politics/ben-sasse-pancreatic-cancer.html
+
+**Maybe NBA teams shouldn't foul up 3 points, but what about 2?**\
+`Plus: Who stood out at the G League Winter Showcase? And could UNC's Caleb Wilson push higher up draft boards?`\
+https://nytimes.com/athletic/6910281/2025/12/23/nba-fouling-strategy-caleb-wilson-north-carolina/
+
 **Fancy Mains Without the Time Commitment**\
 `Chile crisp and honey roasted salmon, garlicky beef tenderloin and butter paneer for your holiday table.`\
 https://nytimes.com/2025/12/23/dining/fancy-mains-without-the-time-commitment.html
