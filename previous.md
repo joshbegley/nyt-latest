@@ -1,3 +1,7 @@
+**We asked Ndamukong Suh to read the best stories about himself. Watch him react**\
+`Suh played 13 seasons in the NFL and won a Super Bowl. Here he shares stories about the mindset that helped him achieve that.`\
+https://nytimes.com/athletic/6911497/2025/12/23/ndamukong-suh-nfl-leadership-stories-teammates/
+
 **FanDuel SN channels could be sold as broadcaster scrambles for funds**\
 `If a sale falls through, Main Street Sports Group could ultimately be shut down following the current NBA and NHL seasons.`\
 https://nytimes.com/athletic/6914257/2025/12/23/fanduel-sports-network-sale-dazn-funds/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6913549/2025/12/23/cameron-boozer-nba-draft-the-bou
 **Live Updates: More Epstein Files Are Released and Some Include References to Trump**\
 `The Justice Department released another batch of documents from the Jeffrey Epstein investigation — a wide mix of emails, tips and records from his death.`\
 https://nytimes.com/live/2025/12/23/us/epstein-files-trump
-
-**Wolves captain Toti out for 'significant period', to miss Liverpool, Man Utd games**\
-`Toti joins Emmanuel Agbadou as a defensive absentee but Hugo Bueno could return from a hip injury in time for the trip to Liverpool.`\
-https://nytimes.com/athletic/6914303/2025/12/23/wolves-injury-news-toti/
 
