@@ -1,3 +1,15 @@
+**Fantasy football strength of schedule: Week 17 matchup rankings**\
+`Jake Ciely's Week 17 matchup rankings can help you decide who to start and sit in the championship. `\
+https://nytimes.com/athletic/6916054/2025/12/23/fantasy-football-strength-of-schedule-week-17-matchup-rankings/
+
+**Trooper Killed at Motor Vehicle Office in Delaware**\
+`Deputies responded to a report of an active shooter shortly after 2 p.m. at the Division of Motor Vehicles office in Wilmington, Del., the authorities said. The shooter has also died, the governor said.`\
+https://nytimes.com/2025/12/23/us/delaware-dmv-shooting-trooper-dead.html
+
+**Libyan Military Leaders Are Killed in Plane Crash in Turkey**\
+`The internationally recognized government of Libya confirmed the deaths of Lt. Gen. Mohamed Ali Ahmed al-Haddad, the army chief of general staff, and other officers flying home after a meeting in Turkey.`\
+https://nytimes.com/2025/12/23/world/middleeast/libya-general-plane-crash-turkey.html
+
 **Wizards forward Cam Whitmore out indefinitely with blood clot in shoulder**\
 `Whitmore is the latest NBA player to be diagnosed with the condition, joining a list that includes Victor Wembanyama and Damian Lillard.`\
 https://nytimes.com/athletic/6915885/2025/12/23/cam-whitmore-deep-vein-thombrosis-blood-clot-wizards/

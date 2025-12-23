@@ -1,3 +1,11 @@
+**Fantasy football strength of schedule: Week 17 matchup rankings**\
+`Jake Ciely's Week 17 matchup rankings can help you decide who to start and sit in the championship. `\
+https://nytimes.com/athletic/6916054/2025/12/23/fantasy-football-strength-of-schedule-week-17-matchup-rankings/
+
+**Trooper Killed at Motor Vehicle Office in Delaware**\
+`Deputies responded to a report of an active shooter shortly after 2 p.m. at the Division of Motor Vehicles office in Wilmington, Del., the authorities said. The shooter has also died, the governor said.`\
+https://nytimes.com/2025/12/23/us/delaware-dmv-shooting-trooper-dead.html
+
 **U.S. lifestyle entrepreneur Martha Stewart becomes minority owner of Swansea**\
 `Stewart, 84, joins rapper Snoop Dogg and six-time Champions League winner Luka Modric as an investor in Swansea.`\
 https://nytimes.com/athletic/6915983/2025/12/23/martha-stewart-swansea-city/
@@ -15,26 +23,10 @@ https://nytimes.com/2025/12/23/nyregion/nyc-scaffolding-crash.html
 https://nytimes.com/2025/12/23/climate/climate-forward-newsletter-trump-administration-policies.html
 
 **Libyan Military Leaders Are Killed in Plane Crash in Turkey**\
-`The internationally recognized government of Libya confirmed the deaths of Lt. Gen. Mohamed Ali Ahmed al-Haddad, the army chief of staff, and other officers flying home after a meeting in Turkey.`\
+`The internationally recognized government of Libya confirmed the deaths of Lt. Gen. Mohamed Ali Ahmed al-Haddad, the army chief of general staff, and other officers flying home after a meeting in Turkey.`\
 https://nytimes.com/2025/12/23/world/middleeast/libya-general-plane-crash-turkey.html
 
 **Multiple People Injured in Explosion at Pennsylvania Nursing Home**\
 `The explosion, at the Bristol Health and Rehab Center in Bristol Township, Pa., caused a fire and partial collapse of the building, the authorities said.`\
 https://nytimes.com/2025/12/23/us/explosion-bristol-nursing-home.html
-
-**Dating ChatGPT**\
-`The bot has been marketed as a general-purpose tool that can write code, summarize documents and give advice. But can it be a good boyfriend?`\
-https://nytimes.com/2025/12/23/world/dating-chatgpt-greta-thunberg-russia-ukraine.html
-
-**Wizards forward Cam Whitmore out indefinitely with blood clot in shoulder**\
-`Whitmore is the latest NBA player to be diagnosed with the condition, joining a list that includes Victor Wembanyama and Damian Lillard.`\
-https://nytimes.com/athletic/6915885/2025/12/23/cam-whitmore-deep-vein-thombrosis-blood-clot-wizards/
-
-**Supreme Court Refuses to Allow Trump to Deploy National Guard in Chicago**\
-`President Trump ordered state-based troops to Portland, Ore.; Los Angeles; Washington; and Chicago over the objections of state and local officials.`\
-https://nytimes.com/2025/12/23/us/politics/supreme-court-national-guard-chicago.html
-
-**‘60 Minutes’ Report Was Pulled Off the Air. Now It’s on the Internet.**\
-`At the last minute, CBS News held a segment about Venezuelan men who were deported by the Trump administration to a prison in El Salvador. It surfaced online anyway.`\
-https://nytimes.com/2025/12/23/business/media/60-minutes-cbs-news.html
 
