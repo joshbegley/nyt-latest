@@ -1,3 +1,7 @@
+**Draymond Green leaves Warriors bench, game after argument with coach Steve Kerr**\
+`The Golden State forward and coach got into it on the sideline during the third quarter of Monday night's win over the Magic.`\
+https://nytimes.com/athletic/6912967/2025/12/23/draymond-green-steve-kerr-warriors-argument/
+
 **The New York Times in Print for Tuesday, Dec. 23, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/12/23/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6854859/2025/12/23/aston-villa-2025-champions-leagu
 **Everton's 2025: Ndiaye stars, a new home, and a 'broken' family no more**\
 `Plenty has changed on and off the pitch for Everton in the past 12 months. These were some of the high - and low - points`\
 https://nytimes.com/athletic/6893347/2025/12/23/everton-2025-review-ndiaye-moyes-hill-dickinson/
-
-**Wolves' 2025: Pereira's pints, the good and bad of Cunha – and a lot of losses**\
-`There have been a handful of positives for Wolverhampton Wanderers, but they have come amid a seemingly endless stream of grim moments`\
-https://nytimes.com/athletic/6893414/2025/12/23/wolves-2025-pereiras-pints-the-good-and-bad-of-cunha-and-a-lot-of-losses/
 
