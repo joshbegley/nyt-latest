@@ -34,7 +34,3 @@ https://nytimes.com/athletic/6911345/2025/12/23/wild-insider-judd-brackett-quinn
 `Every Alabama incompletion and Oklahoma gain of 4 yards or more served as a referendum on the selection committee. Until the game flipped.`\
 https://nytimes.com/athletic/6912249/2025/12/23/college-football-playoff-complaints-notre-dame/
 
-**USMNT 2025 year in review: Highs, lows as Pochettino preps for 2026 World Cup**\
-`From Nations League malaise and player discomfort, to an impressive year-ending run, USMNT's 2025 was about Mauricio Pochettino's process`\
-https://nytimes.com/athletic/6911600/2025/12/23/usmnt-2025-year-in-review-world-cup-pochettino/
-
