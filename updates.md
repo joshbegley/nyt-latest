@@ -1,3 +1,7 @@
+**Rick Carlisle, Celtics seek bone marrow donor for former team trainer**\
+`Carlisle opened his pregame news conference Monday night with a call for help for former Boston Celtics trainer Ed Lacerte.`\
+https://nytimes.com/athletic/6912358/2025/12/22/rick-carlisle-asks-bone-marrow-donations-ed-lacerte-leukemia/
+
 **Trump Administration Will Investigate Brown’s Security After Shooting**\
 `The Department of Education is looking at whether security at Brown University, including its surveillance system, was up to standard. Brown said it would conduct its own investigation.`\
 https://nytimes.com/2025/12/22/us/brown-faces-trump-investigation-security-issues-shooting.html
