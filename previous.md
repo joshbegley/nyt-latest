@@ -1,40 +1,40 @@
-**Russia Bombards Ukraine Hours After Zelensky Calls Peace Plan ‘Quite Solid’**\
-`The Ukrainian leader cited progress on security guarantees, even as Russia bombed Ukraine overnight, indicating that it is prepared to continue fighting.`\
-https://nytimes.com/2025/12/23/world/europe/ukraine-russia-peace-plan-strikes.html
+**After big game vs. Bucs, Panthers' Tetairoa McMillan again the OROY betting favorite**\
+`Carolina's Tetairoa McMillan had six receptions for 73 yards and a TD vs. the Bucs and is approaching 1,000 receiving yards for the season.`\
+https://nytimes.com/athletic/6912102/2025/12/23/panthers-tetairoa-mcmillan-oroy-betting-favorite/
 
-**The lawsuit dividing tennis' biggest tournaments has its first player deal**\
-`Wimbledon and the French and U.S. Opens are still seeking to have the suit thrown out.`\
-https://nytimes.com/athletic/6913122/2025/12/23/tennis-lawsuit-ptpa-tennis-australia-settlement/
+**Cowboys' Tyler Smith will continue to start at left tackle, which could carry into 2026**\
+`"Ultimately, I’m gonna do what’s best for the team," Smith said of the end-of-season move to left tackle.`\
+https://nytimes.com/athletic/6912652/2025/12/23/cowboys-tyler-smith-left-tackle-future/
 
-**‘Jets Jake’ is the ring-searching, match-making (sort of) man behind the Kelce brothers**\
-`Jake Chatzky's life became surreal after he joined the Travis and Jason Kelce's 'New Heights' podcast.`\
-https://nytimes.com/athletic/6900951/2025/12/23/kelce-brothers-jets-jake-podcast-taylor-swift-nfl/
+**Flyers thriving under Tocchet, even as coach slow-plays Michkov's development**\
+`For all the noise around one specific player, the Flyers as a team have taken a leap in Tocchet's first year in charge.`\
+https://nytimes.com/athletic/6912698/2025/12/23/flyers-tocchet-coaching-michkov/
 
-**Why a career platoon bat just signed the biggest contract of his life at age 34**\
-`Rob Refsnyder’s unusual career arc, and his deal with the Seattle Mariners, helps explain an entire industry’s shift in offensive approach.`\
-https://nytimes.com/athletic/6912434/2025/12/23/seattle-mariners-rob-refsnyder-contract-platoon-bat/
+**Lions' playoffs hopes are fading: Which positions should they prioritize this offseason?**\
+`The Lions play on Christmas and are trying to stave off elimination from playoff contention, but have only a 3 percent chance. `\
+https://nytimes.com/athletic/6898632/2025/12/23/lions-offseason-wishlist-positions-playoff-odds/
 
-**Reviewing NFL broadcasts: Where do streaming services fit in with traditional networks?**\
-`Streaming services have increasingly become a part of NFL broadcasts, but how do they stack up with the longtime league partners?`\
-https://nytimes.com/athletic/6911372/2025/12/23/nfl-broadcast-reviews-netflix-youtube-prime-espn/
+**PWHL power rankings: Boston Fleet are the team to beat one month in**\
+`The PWHL power rankings are back for the 2025-26 season, and with every team having a few games under their belts, patterns have emerged.`\
+https://nytimes.com/athletic/6912297/2025/12/23/pwhl-power-rankings-december-fleet/
 
-**MLB offseason tiers: Which teams are loading up, who is rebuilding, who is running it back?**\
-`With the offseason roughly halfway over, we're getting a firmer handle on how each of MLB's 30 clubs are operating this winter. `\
-https://nytimes.com/athletic/6911878/2025/12/23/mlb-offseason-tiers-adding-rebuilding/
+**How Goldin convinced fans to sell Ohtani 50/50 ball amidst still ongoing legal battle**\
+`More than a year after the ball sold at auction, who will get its record proceeds is still yet to be determined. `\
+https://nytimes.com/athletic/6912748/2025/12/23/shohei-ohtani-50-50-ball-lawsuits/
 
-**NFL Week 17 power rankings: Seahawks soar to No. 1 as Broncos, Packers slide**\
-`This week's power rankings see the Seahawks leap into the top spot and the Jaguars continue to rise, while the Broncos and Packers drop.`\
-https://nytimes.com/athletic/6911522/2025/12/23/nfl-power-rankings-week-17-seahawks-broncos-packers/
+**49ers' Brock Purdy getting hot at just the right time: 'Pretty close to a perfect game'**\
+`Something Purdy had in common with 44-year-old Philip Rivers on Monday — mental sharpness, which came in handy in a big Monday night win.`\
+https://nytimes.com/athletic/6912951/2025/12/23/brock-purdy-49ers-colts-philip-rivers/
 
-**To trade or not to trade? What history tells us about the Tigers and Tarik Skubal**\
-`The Detroit Tigers have three choices. Trade Skubal now, trade him midseason, or hold him for a playoff run. Each option has its problems. `\
-https://nytimes.com/athletic/6912512/2025/12/23/tarik-skubal-detroit-tigers-trade-possibilties/
+**Why horses turn Nikola Jokić from an NBA MVP into a 'stable boy'**\
+`The world has witnessed Nikola Jokić's love of horses. But only a few see the depth of passion: "They don't look at me as an NBA player."`\
+https://nytimes.com/athletic/6892285/2025/12/23/nikola-jokic-nuggets-horses/
 
-**QB stock report, Week 17: Why Trevor Lawrence is finally tapping into his limitless potential**\
-`Jags coach Liam Coen: “We haven’t changed a single thing from the moment we started coaching him. Sometimes, it just takes time to click."`\
-https://nytimes.com/athletic/6911192/2025/12/23/nfl-qb-stock-report-rankings-trevor-lawrence/
+**What's it like to always lose? Inside an NFL star's fight against failure: 'It takes a toll'**\
+`Losing has defined Burns’ career. His teams' .250 winning percentage is the second worst for any player with 100 games since 2000. `\
+https://nytimes.com/athletic/6911141/2025/12/23/brian-burns-giants-losing-takes-toll/
 
-**The New York Times International Edition in Print for Wednesday, Dec. 24, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/12/23/todays-new-york-times-international-edition
+**Eight Eagles Thoughts: Playoff scenarios, tush push problems, two-point controversy**\
+`Plus, Saquon Barkley's late season surge arrives on schedule.`\
+https://nytimes.com/athletic/6912056/2025/12/23/eagles-playoffs-tush-push/
 

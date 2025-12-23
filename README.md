@@ -1,3 +1,7 @@
+**The Pulse: Maybe we should talk about the 49ers more**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6911562/2025/12/23/philip-rivers-49ers-playoffs-the-pulse/
+
 **After big game vs. Bucs, Panthers' Tetairoa McMillan again the OROY betting favorite**\
 `Carolina's Tetairoa McMillan had six receptions for 73 yards and a TD vs. the Bucs and is approaching 1,000 receiving yards for the season.`\
 https://nytimes.com/athletic/6912102/2025/12/23/panthers-tetairoa-mcmillan-oroy-betting-favorite/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6892285/2025/12/23/nikola-jokic-nuggets-horses/
 **What's it like to always lose? Inside an NFL star's fight against failure: 'It takes a toll'**\
 `Losing has defined Burns’ career. His teams' .250 winning percentage is the second worst for any player with 100 games since 2000. `\
 https://nytimes.com/athletic/6911141/2025/12/23/brian-burns-giants-losing-takes-toll/
-
-**Eight Eagles Thoughts: Playoff scenarios, tush push problems, two-point controversy**\
-`Plus, Saquon Barkley's late season surge arrives on schedule.`\
-https://nytimes.com/athletic/6912056/2025/12/23/eagles-playoffs-tush-push/
 
