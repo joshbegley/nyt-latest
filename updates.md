@@ -1,3 +1,15 @@
+**The New York Times in Print for Tuesday, Dec. 23, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/12/23/todays-new-york-times
+
+**Trump Can Bring Mideast Peace. Netanyahu Must Get Out of the Way.**\
+`President Trump should press Prime Minister Benjamin Netanyahu to ease military pressure on Gaza, Lebanon and Syria for the sake of his own policy.`\
+https://nytimes.com/2025/12/23/opinion/israel-trump-netanyahu-syria-lebanon-gaza.html
+
+**Trump Announces Construction of New Warships**\
+`President Trump announced on Monday the construction of new warships for the U.S. Navy he called a “golden fleet.” Navy officials said the vessels would notionally have the ability to launch hypersonic and nuclear-armed cruise missiles.`\
+https://nytimes.com/video/us/politics/100000010605450/trump-warships-navy.html
+
 **Sunderland's 2025: Play-off turnaround, THAT Ballard header, and Xhaka influence**\
 `Sunderland's rise to the Premier League – and form since they arrived – has been remarkable. Phil Buckingham outlines the highlights of 2025`\
 https://nytimes.com/athletic/6896240/2025/12/23/sunderlands-2025-play-off-turnaround-that-ballard-header-and-xhaka-influence/
