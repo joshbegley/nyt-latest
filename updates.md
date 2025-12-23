@@ -1,3 +1,11 @@
+**Blunt Nottingham Forest must rediscover their edge to get clear of relegation fight**\
+`This was a fourth-straight loss at Craven Cottage for Forest, whose lack on consistency is frustrating manager Sean Dyche`\
+https://nytimes.com/athletic/6912558/2025/12/23/blunt-nottingham-forest-must-rediscover-their-edge-to-get-clear-of-relegation-fight/
+
+**Word of the Day: decorum**\
+`This word has appeared in 90 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/12/23/learning/word-of-the-day-decorum.html
+
 **Justice Dept. Sues Illinois Over Law Limiting Immigration Enforcement**\
 `The Justice Department said the law illegally regulates federal law enforcement by barring courthouse arrests and allowing residents to sue immigration agents.`\
 https://nytimes.com/2025/12/23/us/politics/illinois-immigration-lawsuit-justice-department.html
