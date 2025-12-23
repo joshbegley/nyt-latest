@@ -1,4 +1,28 @@
-**Live Updates: More Epstein Files Are Released and Include Some References to Trump**\
+**How Did DOGE Disrupt So Much While Saving So Little?**\
+`The group’s biggest claims were largely incorrect, a New York Times analysis found. And its many smaller cuts added up to few savings.`\
+https://nytimes.com/2025/12/23/us/politics/doge-musk-trump-analysis.html
+
+**The Brainiacs of the Seas**\
+`Navigators on racing yachts face complex challenges that go well beyond plotting a course. Their idol is a man known internationally as Stan.`\
+https://nytimes.com/2025/12/23/sports/sailing/sydney-hobart-navigators.html
+
+**The Skipper of Palm Beach XI Has High Hopes**\
+`The record-setting boat, previously known as Wild Oats XI, is returning after a major overhaul.`\
+https://nytimes.com/2025/12/23/sports/sailing/sydney-hobart-wild-oats.html
+
+**Kloke: Marc Savard paid the price. It's time for Leafs players to step up**\
+`One thing that's been missing during the Maple Leafs' slump: accountability from star players.`\
+https://nytimes.com/athletic/6912608/2025/12/23/maple-leafs-marc-savard-matthews-nylander/
+
+**Economic Growth Is Up. Unemployment Is, Too. What’s Going On?**\
+`There are some possible explanations for what’s happening with seemingly conflicting macroeconomic data.`\
+https://nytimes.com/2025/12/23/opinion/gdp-numbers-economy-job-numbers.html
+
+**The Bounce: Duke's Cameron Boozer makes his case to be the No. 1 pick**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/6913549/2025/12/23/cameron-boozer-nba-draft-the-bounce/
+
+**Live Updates: More Epstein Files Are Released and Some Include References to Trump**\
 `The Justice Department released another batch of documents from the Jeffrey Epstein investigation — a wide mix of emails, tips and records from his death.`\
 https://nytimes.com/live/2025/12/23/us/epstein-files-trump
 
@@ -13,28 +37,4 @@ https://nytimes.com/2025/12/23/arts/dance/nutcracker-ballet-jorgen-stolen-set-to
 **Spouses Wearing Complementary Patterns**\
 `For a couple from Los Angeles, choosing clothes is often a joint activity.`\
 https://nytimes.com/2025/12/23/style/street-style-look-spouses-complementary-patterns.html
-
-**Victor Wembanyama is preaching ethical basketball. There's a larger truth to it all**\
-`The conversation around "ethical basketball" is about much more than just drawing fouls.`\
-https://nytimes.com/athletic/6912266/2025/12/23/victor-wembanyama-spurs-ethical-basketball-game-strategy/
-
-**What I'm hearing about struggling Cavs: Kenny Atkinson's job security, trade deadline**\
-`Amid rocky start well below expectations, Atkinson professes confidence: “I’m buying this dip. I know what we got comin’."`\
-https://nytimes.com/athletic/6912871/2025/12/23/cavaliers-atkinson-roster-trade-deadline-news/
-
-**Taylor Swift Caps Her Eras Tour Era**\
-`Seven takeaways from the final episodes of “The End of an Era,” the Disney+ series exploring her globe-trotting concert extravaganza.`\
-https://nytimes.com/2025/12/23/arts/music/taylor-swift-eras-tour-episodes.html
-
-**Paolo Banchero and the Orlando Magic are still awaiting their breakthrough**\
-`Facing injuries, the Magic and their former No. 1 pick have not yet met the lofty expectations they held for this season. `\
-https://nytimes.com/athletic/6913110/2025/12/23/paolo-banchero-orlando-magic-season/
-
-**Semenyo: Chelsea enquire about January deal for Bournemouth forward**\
-`Chelsea had planned to sign a new forward in the summer but are considering accelerating their plans to January.`\
-https://nytimes.com/athletic/6826130/2025/12/23/antoine-semenyo-chelsea-transfer-bournemouth/
-
-**U.S. Economic Growth Surged in Third Quarter of 2025**\
-`Gross domestic product grew at a 4.3 percent annual rate, faster than the previous three months.`\
-https://nytimes.com/2025/12/23/business/us-economy-consumer-spending.html
 
