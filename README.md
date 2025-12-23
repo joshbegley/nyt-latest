@@ -1,3 +1,11 @@
+**Super Bowl odds: 3 NFC West teams are in the top 8**\
+`The Seahawks beat the Rams, but the Rams are still the BetMGM's favorite to win the Super Bowl.`\
+https://nytimes.com/athletic/6915182/2025/12/23/super-bowl-odds-rams-seahawks/
+
+**Chasing Spice and Street Food in India’s Pink City**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/jaipur-india-food
+
 **Semenyo's preference to join Manchester City from Bournemouth**\
 `Semenyo's desire to win trophies is key to his decision.`\
 https://nytimes.com/athletic/6915594/2025/12/23/antoine-semenyo-manchester-city-transfer/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6915554/2025/12/23/cubs-jacob-webb-bullpen-signing/
 **Russell Brand Is Charged With Additional Counts of Rape and Sexual Assault**\
 `The actor, comedian and YouTuber now faces seven counts of rape and sexual assault in Britain.`\
 https://nytimes.com/2025/12/23/arts/russell-brand-charges-rape-sexual-assault.html
-
-**A.I.’s ‘Circular Money Machine’**\
-`Nvidia, OpenAI and other major artificial intelligence companies all invest in one another. This carries some risks, as Bloomberg’s Joe Weisenthal explains on “The Ezra Klein Show.”`\
-https://nytimes.com/video/opinion/100000010591211/ais-circular-money-machine.html
-
-**Is A.I. Actually a Bubble?**\
-`Tracy Alloway of Bloomberg News walks through the signs to watch for if an A.I. bubble is coming.`\
-https://nytimes.com/video/opinion/100000010591212/is-ai-actually-a-bubble.html
 
