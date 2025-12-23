@@ -1,3 +1,11 @@
+**Lyon finalising loan deal for Real Madrid's Endrick**\
+`Endrick has only played three times for Madrid this season under Xabi Alonso.`\
+https://nytimes.com/athletic/6855229/2025/12/23/endrick-lyon-real-madrid/
+
+**England to 'establish facts' after footage emerges of Ben Duckett appearing to be intoxicated**\
+`England's managing director Rob Key told reporters claims the team's mid-tour break in Noosa descended into a 'stag do' will be investigated`\
+https://nytimes.com/athletic/6914675/2025/12/23/england-duckett-video-australia/
+
 **Red Light: The Sabres are good. Seriously!**\
 `Welcome to Red Light, The Athletic's NHL newsletter.`\
 https://nytimes.com/athletic/6914815/2025/12/23/sabres-nhl-standings-red-light/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/23/arts/music/what-song-did-you-discover-or-rediscov
 **Yemen’s Warring Sides Agree to Largest Prisoner Swap in a Decade of Fighting**\
 `The Houthi rebels and the internationally recognized government plan to exchange about 2,900 detainees, a rare humanitarian win at a time of deepening political stalemate.`\
 https://nytimes.com/2025/12/23/world/middleeast/yemen-houthis-prisoner-exchange.html
-
-**Kevin Byard, Joe Thuney, Drew Dalman to rep Bears at Pro Bowl; Nahshon Wright snubbed**\
-`The Bears get three players to the Pro Bowl in San Francisco, but Wright was a curious snub.`\
-https://nytimes.com/athletic/6912762/2025/12/23/bears-pro-bowl-kevin-byard-joe-thuney/
-
-**Federal Prosecutor Was Surprised by Trump’s Flights on Epstein’s Jet**\
-`A 2020 email noted that Donald Trump was listed as a passenger on Jeffrey Epstein’s jet at least eight times from 1993 to 1996.`\
-https://nytimes.com/2025/12/23/us/politics/trump-epstein-jet-flights.html
 
