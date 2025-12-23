@@ -1,3 +1,7 @@
+**The Briefing - Arsenal 1 Palace 1 (8-7 on pens): How big was this? Does Jesus help Martinelli? Nwaneri deserve a chance?**\
+`We break down the talking points from Arsenal's Carabao Cup quarter-final against Crystal Palace at the Emirates.`\
+https://nytimes.com/athletic/6911616/2025/12/23/arsenal-crystal-palace-carabao-cup/
+
 **Scoop City: If Rams are NFL's top team, who is No. 2?**\
 `Brock Purdy's remarkable performance, the NFL's No. 2 contender, Jake Ciely's 2026 breakout candidates and my wish list for next season`\
 https://nytimes.com/athletic/6916089/2025/12/23/nfl-best-team-2025-rams-seahawks-patriots/
@@ -21,8 +25,4 @@ https://nytimes.com/athletic/6915983/2025/12/23/martha-stewart-swansea-city/
 **NFL Week 17 model-projected scores and point totals for every game**\
 `Austin Mock's NFL model has projected point spreads and totals for every Week 17 game.`\
 https://nytimes.com/athletic/6915992/2025/12/23/nfl-week-17-projected-scores-model-point-spreads-totals/
-
-**Woman Dies in East Harlem When Scaffolding Collapses After Truck Crash**\
-`A garbage truck hit a parked vehicle, pushing it into the scaffolding, the police said.`\
-https://nytimes.com/2025/12/23/nyregion/nyc-scaffolding-crash.html
 
