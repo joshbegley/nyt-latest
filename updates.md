@@ -1,3 +1,15 @@
+**Thunberg Arrested in U.K. at Protest Supporting Palestine Action**\
+`The Swedish activist Greta Thunberg was arrested after holding a sign that the police said showed support for the group, which Britain banned this year.`\
+https://nytimes.com/2025/12/23/world/europe/greta-thunberg-arrest-uk-palestine-action.html
+
+**How to watch Penguins vs. Maple Leafs: Time, TV, streaming**\
+`Find out how to watch the Pittsburgh Penguins play the Toronto Maple Leafs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6913964/2025/12/23/penguins-vs-maple-leafs-stream-how-to-watch-dec-23/
+
+**World Cup Fan Fests will feature 'Freedom' trucks to celebrate U.S.'s 250th anniversary**\
+`A White House task force has facilitated a proposal to have trucks serve as patriotic mobile museums this summer`\
+https://nytimes.com/athletic/6912245/2025/12/23/world-cup-usa-freedom-trump-trucks/
+
 **More Epstein Files Are Released and Include Some References to Trump**\
 `The Justice Department released another batch of documents from the Jeffrey Epstein investigation — a wide mix of emails, tips and records from his death.`\
 https://nytimes.com/2025/12/23/us/politics/epstein-files-trump.html

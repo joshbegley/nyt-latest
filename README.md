@@ -1,3 +1,7 @@
+**U.S. Economic Growth Surged in Third Quarter of 2025**\
+`Gross domestic product grew at a 4.3 percent annual rate, faster than the previous three months.`\
+https://nytimes.com/2025/12/23/business/us-economy-consumer-spending.html
+
 **Thunberg Arrested in U.K. at Protest Supporting Palestine Action**\
 `The Swedish activist Greta Thunberg was arrested after holding a sign that the police said showed support for the group, which Britain banned this year.`\
 https://nytimes.com/2025/12/23/world/europe/greta-thunberg-arrest-uk-palestine-action.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6913002/2025/12/23/49ers-colts-philip-rivers-defens
 **Brock Purdy Outduels Philip Rivers in 49ers’ Primetime Win Over Colts**\
 `San Francisco quarterback Brock Purdy passed for a career-high five touchdowns to keep his team in the hunt for the N.F.C.’s top seed.`\
 https://nytimes.com/video/the-athletic/100000010605750/brock-purdy-outduels-philip-rivers-in-49ers-primetime-win-over-colts.html
-
-**TAFC: Dan Elkayam, footballer who 'united people' killed in Bondi. Plus: Salah saves Egypt**\
-`Jacob Whitehead is here with Tuesday's TAFC newsletter`\
-https://nytimes.com/athletic/6913134/2025/12/23/footballer-bondi-attacks-salah-egypt/
 
