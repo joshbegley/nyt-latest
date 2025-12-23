@@ -1,3 +1,7 @@
+**Rotating Cast of Wall Street Figures Were Listed as Executors of Epstein’s Will**\
+`Copies of Jeffrey Epstein’s last will and testament show that the convicted sex offender and disgraced financier provide a real-time glimpse of the power players who were part of his life.`\
+https://nytimes.com/2025/12/23/us/politics/epstein-will-executors-wall-street.html
+
 **Epstein Files Live Updates: Trump Referenced in Some Newly Released Documents**\
 `The Justice Department released another batch of documents from the Jeffrey Epstein investigation — a wide mix of emails, tips and records from his death.`\
 https://nytimes.com/live/2025/12/23/us/epstein-files-trump
