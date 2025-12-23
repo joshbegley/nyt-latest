@@ -1,3 +1,7 @@
+**Did DOGE Really Cut Government Spending?**\
+`Did DOGE really cut government spending? A New York Times analysis found that the group’s biggest claims were largely incorrect, and that its many smaller cuts added up to few savings. Our reporters David Fahrenthold and Margot Sanger-Katz explain.`\
+https://nytimes.com/video/us/politics/100000010584489/did-doge-really-cut-government-spending.html
+
 **Lalyn Takes a Modern Approach to Thai Home Cooking**\
 `Bar Manje takes over the nights at Good Enough to Eat, the White Horse Tavern team open Dandelion and more restaurant news.`\
 https://nytimes.com/2025/12/23/dining/nyc-restaurant-news.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/23/books/review/captives-and-companions-justin-maroz
 **Stephen Miller Cites Children of Immigrants as a Problem**\
 `As it seeks to end birthright citizenship, the Trump administration is arguing that immigrants bring problems that extend for generations. The data shows otherwise.`\
 https://nytimes.com/2025/12/23/us/politics/stephen-miller-trump-immigrants.html
-
-**Bryce Harper to play for Team USA in the World Baseball Classic**\
-`He will join teammate Kyle Schwarber on the Team USA WBC roster, which also features Aaron Judge, Tarik Skubal, Paul Skenes and Cal Raleigh.`\
-https://nytimes.com/athletic/6914843/2025/12/23/bryce-harper-team-usa-world-baseball-classic/
 
