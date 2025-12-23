@@ -1,3 +1,35 @@
+**The Calvert-Lewin goalscoring corridor and why he has so many chances from that range**\
+`Dominic Calvert-Lewin's goals against Crystal Palace highlighted the small area in which he has scored this season`\
+https://nytimes.com/athletic/6911494/2025/12/23/dominic-calvert-lewin-leeds-goals-analysis/
+
+**The Pentagon and A.I. Giants Have a Weakness. Both Need China’s Batteries, Badly.**\
+`As warfare is reinvented in Ukraine, and Silicon Valley races to maintain its A.I. lead, China’s battery dominance is raising alarms far beyond the auto industry.`\
+https://nytimes.com/2025/12/23/climate/pentagon-weapons-ai-artificial-intelligence-china-batteries.html
+
+**Connections: Sports Edition Coach: Hints for Dec. 23, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6912710/2025/12/23/connections-sports-edition-hints-for-dec-23-2025/
+
+**Fantasy football waiver wire Week 17: Dylan Sampson, Jawhar Jordan, streamers**\
+`Jake Ciely points out the essential players to to target for Week 17 fantasy football championship matchups.`\
+https://nytimes.com/athletic/6911544/2025/12/23/fantasy-football-waiver-wire-week-17-dylan-sampson-jawhar-jordan-streamers/
+
+**After Bondi Massacre, a Moment of Unity. Then, Bitter Partisanship.**\
+`The political point scoring that has erupted after the terror attack last week is unusual in Australia, where leaders tend to unite after catastrophes.`\
+https://nytimes.com/2025/12/23/us/bondi-massacre-memorial.html
+
+**China Delays Plans for Mass Production of Self-Driving Cars After Accident**\
+`After years of planning for cars that would let drivers take their hands off the wheel and eyes off the road, China’s regulators have become more cautious.`\
+https://nytimes.com/2025/12/23/business/china-autonomous-cars-driving.html
+
+**Corrections: Dec. 23, 2025**\
+`Corrections that appeared in print on Tuesday, Dec. 23, 2025.`\
+https://nytimes.com/2025/12/22/pageoneplus/corrections-dec-23-2025.html
+
+**Quote of the Day: To New Middle Class, Nothing Seems Affordable**\
+`Quotation of the Day for Tuesday, December 23, 2025.`\
+https://nytimes.com/2025/12/22/pageoneplus/quote-of-the-day-tto-new-middle-class-nothing-seems-affordable.html
+
 **Full Time: ’Tis the season in Portland**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/6912797/2025/12/22/sophia-wilson-portland-full-time/
@@ -5,36 +37,4 @@ https://nytimes.com/athletic/6912797/2025/12/22/sophia-wilson-portland-full-time
 **Brock Purdy's 5 TDs put Philip Rivers, Colts on the brink: Takeaways**\
 `Purdy's career night kept the 49ers in the hunt for the NFC's top seed and damped the Colts' already faint playoff hopes.`\
 https://nytimes.com/athletic/6912776/2025/12/22/49ers-colts-score-result-takeaways-mnf-nfl/
-
-**Colts' loss to 49ers clinches playoff spots for Bills, Chargers, Jaguars**\
-`The Bills, Chargers and Jaguars all needed wins and a loss or tie from the Texans or Colts this week to secure postseason berths.`\
-https://nytimes.com/athletic/6909671/2025/12/22/bills-chargers-jaguars-clinch-afc-playoff-picture/
-
-**Red Sox roster 'incomplete,' Craig Breslow says; adding second bat a 'priority'**\
-`After adding to the starting rotation, Boston's acquisition of Willson Contreras doesn't look like the only move targeted toward offense.`\
-https://nytimes.com/athletic/6912674/2025/12/22/red-sox-roster-willson-contreras/
-
-**Trump Administration Orders Nearly 30 U.S. Ambassadors to Leave Their Posts**\
-`A union representing career diplomats said such a mass recall had never happened in the history of the U.S. Foreign Service.`\
-https://nytimes.com/2025/12/22/us/politics/trump-administration-ambassadors-posts.html
-
-**White House Invitees Are Asked About Donations to Trump’s Ballroom**\
-`Senator Richard Blumenthal is requesting information from an architect hired to oversee the ballroom design and people invited to a donor dinner with the president.`\
-https://nytimes.com/2025/12/22/us/politics/white-house-donations-ballroom.html
-
-**Siegel: The Maple Leafs chose an unusual half measure in firing Marc Savard**\
-`At this point, firing Savard screams "action!" while kicking the bigger can down the road.`\
-https://nytimes.com/athletic/6912498/2025/12/22/maple-leafs-savard-firing-berube-coach/
-
-**Trump Announces New ‘Trump Class’ of Warships**\
-`The president said development of the vessels would help maintain military superiority and improve the industrial base, but analysts suggested they were the wrong approach to current threats.`\
-https://nytimes.com/2025/12/22/us/politics/new-trump-class-warships.html
-
-**In a Fitting Way**\
-`Nathan Hale gets the corner office.`\
-https://nytimes.com/2025/12/22/crosswords/daily-puzzle-2025-12-23.html
-
-**May Britt, 91, Dies; Her Marriage to Sammy Davis Jr. Sparked Outrage**\
-`She was a white actress, he was a popular Black entertainer, and their relationship elicited racist reactions in 1960, worrying John F. Kennedy’s presidential campaign.`\
-https://nytimes.com/2025/12/22/movies/may-britt-dead.html
 
