@@ -1,3 +1,7 @@
+**Trump Administration Orders Nearly 30 U.S. Ambassadors to Leave Their Posts**\
+`A union representing career diplomats said such a mass recall had never happened in the history of the U.S. Foreign Service.`\
+https://nytimes.com/2025/12/22/us/politics/trump-administration-ambassadors-posts.html
+
 **White House Invitees Are Asked About Donations to Trump’s Ballroom**\
 `Senator Richard Blumenthal is requesting information from an architect hired to oversee the ballroom design and people invited to a donor dinner with the president.`\
 https://nytimes.com/2025/12/22/us/politics/white-house-donations-ballroom.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/22/business/media/cbs-news-bari-weiss-60-minutes.htm
 **After Power Outage, San Francisco Wonders: Can Robot Taxis Handle a Big Earthquake?**\
 `City officials have called for a hearing investigating Waymo after the company’s self-driving taxis suffered widespread problems during a power outage.`\
 https://nytimes.com/2025/12/22/us/waymo-san-francisco-power-earthquake.html
-
-**How the Mets will move forward after dealing Jeff McNeil, and more MLB notes**\
-`Why the Diamondbacks and Braves don't quite line up on a Ketel Marte deal, and a look at Japanese free-agent Kazuma Okamoto's market.`\
-https://nytimes.com/athletic/6912532/2025/12/22/mets-jeff-mcneil-mlb-notes/
 
