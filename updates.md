@@ -1,3 +1,7 @@
+**Everton's 2025: Ndiaye stars, a new home, and a 'broken' family no more**\
+`Plenty has changed on and off the pitch for Everton in the past 12 months. These were some of the high - and low - points`\
+https://nytimes.com/athletic/6893347/2025/12/23/everton-2025-review-ndiaye-moyes-hill-dickinson/
+
 **The New York Times in Print for Tuesday, Dec. 23, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/12/23/todays-new-york-times
