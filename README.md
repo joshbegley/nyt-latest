@@ -1,3 +1,7 @@
+**TAFC: Dan Elkayam, footballer who 'united people' killed in Bondi. Plus: Salah saves Egypt**\
+`Jacob Whitehead is here with Tuesday's TAFC newsletter`\
+https://nytimes.com/athletic/6913134/2025/12/23/footballer-bondi-attacks-salah-egypt/
+
 **Why the A.I. Rally (and the Bubble Talk) Could Continue Next Year**\
 `Big Tech’s huge investment in artificial intelligence is making investors nervous. But the technology continues to advance, buoying the bulls.`\
 https://nytimes.com/2025/12/23/business/dealbook/ai-rally-bubble-2026.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6911600/2025/12/23/usmnt-2025-year-in-review-world-
 **How every stop in Noah Dobson's life prepared him for Montreal spotlight**\
 `From a young age, Dobson proved he would not be limited by his geography.`\
 https://nytimes.com/athletic/6898789/2025/12/23/canadiens-noah-dobson-nhl-pei-canada/
-
-**2025 winners vs. losers: Which women's basketball stars deserve gifts? Who gets coal?**\
-`Injuries to stars and labor talks marred 2025, but Napheesa Collier and Paige Bueckers were bright spots. Our experts review the year.`\
-https://nytimes.com/athletic/6912482/2025/12/23/2025-winners-losers-womens-basketball/
 
