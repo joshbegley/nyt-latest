@@ -1,3 +1,7 @@
+**NWSL introduces rule allowing certain players to be paid up to $1m above salary cap**\
+`High Impact Player rule, was created in part as a way to try to keep Washington Spirit and U.S. forward Trinity Rodman in the league.`\
+https://nytimes.com/athletic/6914968/2025/12/23/nwsl-salary-cap-high-impact-player-rule/
+
 **Email From ‘A’ at ‘Balmoral’ Asks Maxwell About ‘Inappropriate Friends’**\
 `In an email sent to Ghislaine Maxwell in 2001, a sender writes about being at Balmoral, the British royal family’s summer residence in Scotland.`\
 https://nytimes.com/2025/12/23/us/politics/epstein-maxwell-balmoral-email.html
