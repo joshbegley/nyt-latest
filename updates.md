@@ -1,3 +1,7 @@
+**White House Invitees Are Asked About Donations to Trump’s Ballroom**\
+`Senator Richard Blumenthal is requesting information from an architect hired to oversee the ballroom design and people invited to a donor dinner with the president.`\
+https://nytimes.com/2025/12/22/us/politics/white-house-donations-ballroom.html
+
 **Siegel: The Maple Leafs chose an unusual half measure in firing Marc Savard**\
 `At this point, firing Savard screams "action!" while kicking the bigger can down the road.`\
 https://nytimes.com/athletic/6912498/2025/12/22/maple-leafs-savard-firing-berube-coach/
