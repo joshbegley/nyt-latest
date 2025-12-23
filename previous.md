@@ -1,3 +1,7 @@
+**Why the A.I. Rally (and the Bubble Talk) Could Continue Next Year**\
+`Big Tech’s huge investment in artificial intelligence is making investors nervous. But the technology continues to advance, buoying the bulls.`\
+https://nytimes.com/2025/12/23/business/dealbook/ai-rally-bubble-2026.html
+
 **What’s behind Vanderbilt’s resurgence? A team built on liking each other**\
 `Vanderbilt was picked to finish 11th in the SEC. Now it's winning with an unselfish culture that few teams have. `\
 https://nytimes.com/athletic/6912132/2025/12/23/vanderbilt-basketball/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6898789/2025/12/23/canadiens-noah-dobson-nhl-pei-ca
 **2025 winners vs. losers: Which women's basketball stars deserve gifts? Who gets coal?**\
 `Injuries to stars and labor talks marred 2025, but Napheesa Collier and Paige Bueckers were bright spots. Our experts review the year.`\
 https://nytimes.com/athletic/6912482/2025/12/23/2025-winners-losers-womens-basketball/
-
-**Ranking the best QBs available in college football's transfer portal**\
-`Many quarterbacks have already made their transfer portal intentions known. Here's how they stack up heading into the January window.`\
-https://nytimes.com/athletic/6906445/2025/12/23/college-football-transfer-portal-qb-rankings-brendan-sorsby-dj-lagway-and-the-best-available/
 
