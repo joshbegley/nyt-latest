@@ -1,3 +1,15 @@
+**A.I.’s ‘Circular Money Machine’**\
+`Nvidia, OpenAI and other major artificial intelligence companies all invest in one another. This carries some risks, as Bloomberg’s Joe Weisenthal explains on “The Ezra Klein Show.”`\
+https://nytimes.com/video/opinion/100000010591211/ais-circular-money-machine.html
+
+**Is A.I. Actually a Bubble?**\
+`Tracy Alloway of Bloomberg News walks through the signs to watch for if an A.I. bubble is coming.`\
+https://nytimes.com/video/opinion/100000010591212/is-ai-actually-a-bubble.html
+
+**Is Australia’s Social Media Ban for Kids a Good Idea?**\
+`On the “Hard Fork” podcast, the hosts Kevin Roose and Casey Newton discuss a new law in Australia barring kids under 16 from social media.`\
+https://nytimes.com/video/technology/100000010606588/is-australias-social-media-ban-for-kids-a-good-idea.html
+
 **Chelsea decide against Semenyo move following initial enquiry**\
 `The Stamford Bridge club admire Bournemouth’s Semenyo and made a late expression of interest`\
 https://nytimes.com/athletic/6915038/2025/12/23/antoine-semenyo-transfer-bournemouth-chelsea/
@@ -12,7 +24,7 @@ https://nytimes.com/2025/12/23/arts/tv-film-race-solidarity-sinners-ragtime-lowd
 
 **Read the Essay on Gender by a University of Oklahoma Student**\
 `The paper by Samantha Fulnecky, an undergraduate, received a zero by the instructor and has stirred a debate about academic freedom.`\
-https://nytimes.com/interactive/2025/12/23/us/nat-okla-prof-paper.html
+https://nytimes.com/interactive/2025/12/23/us/university-oklahoma-samantha-fulnecky-gender-essay.html
 
 **Fantasy football best and worst Week 17 matchups: Start Aaron Jones, Jake Ferguson**\
 `KC Joyner reviews the best and worst matchups in Week 17 to help with difficult start/sit decisions. `\
@@ -25,16 +37,4 @@ https://nytimes.com/video/technology/100000010606225/former-roomba-ceo-reminisce
 **Document Hinted at Further Prosecutions in Epstein Investigation**\
 `The 2020 email laid out the criminal charges and investigative steps that prosecutors were mulling at the time.`\
 https://nytimes.com/2025/12/23/us/politics/epstein-investigation-criminal-charges.html
-
-**Did DOGE Really Cut Government Spending?**\
-`Did DOGE really cut government spending? A New York Times analysis found that the group’s biggest claims were largely incorrect, and that its many smaller cuts added up to few savings. Our reporters David Fahrenthold and Margot Sanger-Katz explain.`\
-https://nytimes.com/video/us/politics/100000010584489/did-doge-really-cut-government-spending.html
-
-**Lalyn Takes a Modern Approach to Thai Home Cooking**\
-`Bar Manje takes over the nights at Good Enough to Eat, the White Horse Tavern team open Dandelion and more restaurant news.`\
-https://nytimes.com/2025/12/23/dining/nyc-restaurant-news.html
-
-**Student Loan Borrowers in Default Could See Wages Garnished in Early 2026**\
-`Starting the week of Jan. 7, the Dept. of Education will begin sending notices about paycheck deductions to about 1,000 of five million borrowers in default.`\
-https://nytimes.com/2025/12/23/business/student-loan-debtors-default-wages-garnish.html
 

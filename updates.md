@@ -1,3 +1,19 @@
+**A.I.’s ‘Circular Money Machine’**\
+`Nvidia, OpenAI and other major artificial intelligence companies all invest in one another. This carries some risks, as Bloomberg’s Joe Weisenthal explains on “The Ezra Klein Show.”`\
+https://nytimes.com/video/opinion/100000010591211/ais-circular-money-machine.html
+
+**Is A.I. Actually a Bubble?**\
+`Tracy Alloway of Bloomberg News walks through the signs to watch for if an A.I. bubble is coming.`\
+https://nytimes.com/video/opinion/100000010591212/is-ai-actually-a-bubble.html
+
+**Is Australia’s Social Media Ban for Kids a Good Idea?**\
+`On the “Hard Fork” podcast, the hosts Kevin Roose and Casey Newton discuss a new law in Australia barring kids under 16 from social media.`\
+https://nytimes.com/video/technology/100000010606588/is-australias-social-media-ban-for-kids-a-good-idea.html
+
+**Read the Essay on Gender by a University of Oklahoma Student**\
+`The paper by Samantha Fulnecky, an undergraduate, received a zero by the instructor and has stirred a debate about academic freedom.`\
+https://nytimes.com/interactive/2025/12/23/us/university-oklahoma-samantha-fulnecky-gender-essay.html
+
 **Chelsea decide against Semenyo move following initial enquiry**\
 `The Stamford Bridge club admire Bournemouth’s Semenyo and made a late expression of interest`\
 https://nytimes.com/athletic/6915038/2025/12/23/antoine-semenyo-transfer-bournemouth-chelsea/
