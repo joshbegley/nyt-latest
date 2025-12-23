@@ -1,3 +1,7 @@
+**British Police Drop Case Against Band That Chanted ‘Death, Death to the I.D.F.’**\
+`Bob Vylan, a punk rap duo, caused international outrage by chanting the message at the Glastonbury music festival this year.`\
+https://nytimes.com/2025/12/23/arts/music/bob-vylan-idf-chant.html
+
 **How Much Water Does the A.I. Industry Use?**\
 `Kevin Roose and Casey Newton, the hosts of “Hard Fork” at The New York Times, spoke with Andrew Marley, executive director for Effective Altruism DC, about how much water A.I. data centers use.`\
 https://nytimes.com/video/technology/100000010606632/how-much-water-does-the-ai-industry-use.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/technology/100000010606538/its-a-hard-forkin-christmas
 **In 2025, They Asked What Racial Solidarity Really Looks Like**\
 `Across film (“Sinners,” “One Battle After Another”), theater (“Ragtime”) and TV (“The Lowdown”), four works suggested what achieving racial equality in America would take.`\
 https://nytimes.com/2025/12/23/arts/tv-film-race-solidarity-sinners-ragtime-lowdown.html
-
-**Read the Essay on Gender by a University of Oklahoma Student**\
-`The paper by Samantha Fulnecky, an undergraduate, received a zero by the instructor and has stirred a debate about academic freedom.`\
-https://nytimes.com/interactive/2025/12/23/us/university-oklahoma-samantha-fulnecky-gender-essay.html
 

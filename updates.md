@@ -1,3 +1,7 @@
+**British Police Drop Case Against Band That Chanted ‘Death, Death to the I.D.F.’**\
+`Bob Vylan, a punk rap duo, caused international outrage by chanting the message at the Glastonbury music festival this year.`\
+https://nytimes.com/2025/12/23/arts/music/bob-vylan-idf-chant.html
+
 **How Much Water Does the A.I. Industry Use?**\
 `Kevin Roose and Casey Newton, the hosts of “Hard Fork” at The New York Times, spoke with Andrew Marley, executive director for Effective Altruism DC, about how much water A.I. data centers use.`\
 https://nytimes.com/video/technology/100000010606632/how-much-water-does-the-ai-industry-use.html
