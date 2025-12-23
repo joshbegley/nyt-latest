@@ -1,3 +1,11 @@
+**Yemen’s Warring Sides Agree to Largest Prisoner Swap in a Decade of Fighting**\
+`The Houthi rebels and the internationally recognized government plan to exchange about 2,900 detainees, a rare humanitarian win at a time of deepening political stalemate.`\
+https://nytimes.com/2025/12/23/world/middleeast/yemen-houthis-prisoner-exchange.html
+
+**Kevin Byard, Joe Thuney, Drew Dalman to rep Bears at Pro Bowl; Nahshon Wright snubbed**\
+`The Bears get three players to the Pro Bowl in San Francisco, but Wright was a curious snub.`\
+https://nytimes.com/athletic/6912762/2025/12/23/bears-pro-bowl-kevin-byard-joe-thuney/
+
 **Federal Prosecutor Was Surprised by Trump’s Flights on Epstein’s Jet**\
 `A 2020 email noted that Donald Trump was listed as a passenger on Jeffrey Epstein’s jet at least eight times from 1993 to 1996.`\
 https://nytimes.com/2025/12/23/us/politics/trump-epstein-jet-flights.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/23/sports/sailing/sydney-hobart-navigators.html
 **The Skipper of Palm Beach XI Has High Hopes**\
 `The record-setting boat, previously known as Wild Oats XI, is returning after a major overhaul.`\
 https://nytimes.com/2025/12/23/sports/sailing/sydney-hobart-wild-oats.html
-
-**Kloke: Marc Savard paid the price. It's time for Leafs players to step up**\
-`One thing that's been missing during the Maple Leafs' slump: accountability from star players.`\
-https://nytimes.com/athletic/6912608/2025/12/23/maple-leafs-marc-savard-matthews-nylander/
-
-**Economic Growth Is Up. Unemployment Is, Too. What’s Going On?**\
-`There are some possible explanations for what’s happening with seemingly conflicting macroeconomic data.`\
-https://nytimes.com/2025/12/23/opinion/gdp-numbers-economy-job-numbers.html
 

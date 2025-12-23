@@ -1,3 +1,11 @@
+**Missouri DE sues Georgia, setting up landmark player vs. school NIL legal battle**\
+`Wilson’s attorneys allege the Bulldogs tried to 'punish Wilson for entering the portal' by lying about the former five-star’s NIL buyout.`\
+https://nytimes.com/athletic/6914369/2025/12/23/damon-wilson-lawsuit-georgia-missouri-nil/
+
+**What Song Did You Discover, or Rediscover, in 2025?**\
+`We want to know why it resonated with you.`\
+https://nytimes.com/2025/12/23/arts/music/what-song-did-you-discover-or-rediscover-in-2025.html
+
 **Yemen’s Warring Sides Agree to Largest Prisoner Swap in a Decade of Fighting**\
 `The Houthi rebels and the internationally recognized government plan to exchange about 2,900 detainees, a rare humanitarian win at a time of deepening political stalemate.`\
 https://nytimes.com/2025/12/23/world/middleeast/yemen-houthis-prisoner-exchange.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/23/sports/sailing/sydney-hobart-family-racing.html
 **How Did DOGE Disrupt So Much While Saving So Little?**\
 `The group’s biggest claims were largely incorrect, a New York Times analysis found. And its many smaller cuts added up to few savings.`\
 https://nytimes.com/2025/12/23/us/politics/doge-musk-trump-analysis.html
-
-**The Brainiacs of the Seas**\
-`Navigators on racing yachts face complex challenges that go well beyond plotting a course. Their idol is a man known internationally as Stan.`\
-https://nytimes.com/2025/12/23/sports/sailing/sydney-hobart-navigators.html
-
-**The Skipper of Palm Beach XI Has High Hopes**\
-`The record-setting boat, previously known as Wild Oats XI, is returning after a major overhaul.`\
-https://nytimes.com/2025/12/23/sports/sailing/sydney-hobart-wild-oats.html
 
