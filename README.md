@@ -1,5 +1,9 @@
+**Submit your questions for Kevin Fishbain's Bears mailbag**\
+`The Bears' magic number to clinch the NFC North is one as they head to the Bay Area to face the 49ers. Let's see your questions.`\
+https://nytimes.com/athletic/6915760/2025/12/23/submit-your-questions-for-kevin-fishbains-bears-mailbag-20/
+
 **Nigeria 2 Tanzania 1: Why did Iwobi stand out? Was Osimhen unlucky? How was Tanzania's magic moment?**\
-`We break down the talking points from Nigeria's opening game of AFCON.`\
+`We break down the talking points from Nigeria's opening game of AFCON`\
 https://nytimes.com/athletic/6911615/2025/12/23/nigeria-tanzania-afcon-iwobi-osimhen/
 
 **Oklahoma Instructor Who Failed Student’s Gender Essay That Cited Bible Is Fired**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/23/arts/music/amplifier-newsletter-2025-defining-son
 **Hopes for Mamdani’s Vision for Child Care**\
 `Readers respond to a guest essay on the incoming mayor’s universal child care plan. Also: A gift that never grows old.`\
 https://nytimes.com/2025/12/23/opinion/mamdani-child-care.html
-
-**British Police Drop Case Against Band That Chanted ‘Death, Death to the I.D.F.’**\
-`Bob Vylan, a punk-rap duo, caused international outrage by chanting the message at the Glastonbury music festival this year.`\
-https://nytimes.com/2025/12/23/arts/music/bob-vylan-idf-chant.html
 
