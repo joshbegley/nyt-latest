@@ -1,3 +1,7 @@
+**Federal Agents Tried to Contact ‘Co-Conspirators’ in Epstein Case, Emails Show**\
+`The list of co-conspirators included Leslie Wexner, the retail magnate behind The Limited and Victoria’s Secret stores.`\
+https://nytimes.com/2025/12/23/us/politics/federal-agents-tried-to-contact-co-conspirators-in-epstein-case-emails-show.html
+
 **‘The Queen of Versailles’ Bombed on Broadway. What Went Wrong?**\
 `The show reunited Kristin Chenoweth and Stephen Schwartz for the first time since “Wicked.” It wasn’t enough to counter poor word of mouth and other challenges.`\
 https://nytimes.com/2025/12/23/theater/queen-versailles-broadway-closing.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6915009/2025/12/23/stars-vs-red-wings-stream-how-to
 **How to watch Rangers vs. Capitals: Time, TV, streaming**\
 `Find out how to watch the New York Rangers play the Washington Capitals, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6915007/2025/12/23/rangers-vs-capitals-stream-how-to-watch-dec-23/
-
-**How to watch Wizards vs. Hornets: Time, TV, streaming**\
-`Find out how to watch the Washington Wizards play the Charlotte Hornets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6915005/2025/12/23/wizards-vs-hornets-stream-how-to-watch-dec-23/
 

@@ -1,3 +1,7 @@
+**Federal Agents Tried to Contact ‘Co-Conspirators’ in Epstein Case, Emails Show**\
+`The list of co-conspirators included Leslie Wexner, the retail magnate behind The Limited and Victoria’s Secret stores.`\
+https://nytimes.com/2025/12/23/us/politics/federal-agents-tried-to-contact-co-conspirators-in-epstein-case-emails-show.html
+
 **‘The Queen of Versailles’ Bombed on Broadway. What Went Wrong?**\
 `The show reunited Kristin Chenoweth and Stephen Schwartz for the first time since “Wicked.” It wasn’t enough to counter poor word of mouth and other challenges.`\
 https://nytimes.com/2025/12/23/theater/queen-versailles-broadway-closing.html
