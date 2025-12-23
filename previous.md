@@ -1,3 +1,27 @@
+**The window is wide open for the Bears — with the Super Bowl in play**\
+`Surpassing expectations and defying the odds, the Bears' grandest dreams have become realistic behind Ben Johnson and Caleb Williams.`\
+https://nytimes.com/athletic/6912246/2025/12/23/bears-playoffs-super-bowl-possibility/
+
+**Colts haven't officially been eliminated yet, but that's just a formality: It's over**\
+`Philip Rivers brought 'juice' to the Colts, just not enough, after Monday night's loss dropped their playoff chances to 1 percent.`\
+https://nytimes.com/athletic/6912923/2025/12/23/colts-playoffs-formality-loss-49ers/
+
+**GM Spotlight: How did Virginia revamp its roster and emerge as an ACC contender?**\
+`Virginia's turnaround in 2025 was made possible, in large part, to a significant financial commitment from the school and its donors. `\
+https://nytimes.com/athletic/6912087/2025/12/23/college-football-general-manager-virginia/
+
+**NFL MVP odds: Drake Maye cuts into Matthew Stafford's lead, but is it too late?**\
+`The NFL MVP odds show a two-horse race between Stafford and Maye. Who has the strongest case?`\
+https://nytimes.com/athletic/6911311/2025/12/23/nfl-mvp-odds-drake-maye-matthew-stafford/
+
+**Chiefs' new stadium Q&A: Here's what you need to know about team's move to Kansas**\
+`Why did Chiefs move from Missouri to Kansas? Will the stadium's name change? And what will the cost be? Your questions answered here.`\
+https://nytimes.com/athletic/6912379/2025/12/23/chiefs-kansas-new-stadium-quesions-answers/
+
+**Kellen Moore, Liam Coen, Ben Johnson showcase why they were hired: Week 16 film review**\
+`The three first-year head coaches are getting the most out of their offenses and quarterbacks and showed it in Week 16.`\
+https://nytimes.com/athletic/6912244/2025/12/23/coen-kellen-moore-ben-johnson-film-review/
+
 **The Pulse: Maybe we should talk about the 49ers more**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6911562/2025/12/23/philip-rivers-49ers-playoffs-the-pulse/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6912652/2025/12/23/cowboys-tyler-smith-left-tackle-
 **Flyers thriving under Tocchet, even as coach slow-plays Michkov's development**\
 `For all the noise around one specific player, the Flyers as a team have taken a leap in Tocchet's first year in charge.`\
 https://nytimes.com/athletic/6912698/2025/12/23/flyers-tocchet-coaching-michkov/
-
-**Lions' playoffs hopes are fading: Which positions should they prioritize this offseason?**\
-`The Lions play on Christmas and are trying to stave off elimination from playoff contention, but have only a 3 percent chance. `\
-https://nytimes.com/athletic/6898632/2025/12/23/lions-offseason-wishlist-positions-playoff-odds/
-
-**PWHL power rankings: Boston Fleet are the team to beat one month in**\
-`The PWHL power rankings are back for the 2025-26 season, and with every team having a few games under their belts, patterns have emerged.`\
-https://nytimes.com/athletic/6912297/2025/12/23/pwhl-power-rankings-december-fleet/
-
-**How Goldin convinced fans to sell Ohtani 50/50 ball amidst still ongoing legal battle**\
-`More than a year after the ball sold at auction, who will get its record proceeds is still yet to be determined. `\
-https://nytimes.com/athletic/6912748/2025/12/23/shohei-ohtani-50-50-ball-lawsuits/
-
-**49ers' Brock Purdy getting hot at just the right time: 'Pretty close to a perfect game'**\
-`Something Purdy had in common with 44-year-old Philip Rivers on Monday — mental sharpness, which came in handy in a big Monday night win.`\
-https://nytimes.com/athletic/6912951/2025/12/23/brock-purdy-49ers-colts-philip-rivers/
-
-**Why horses turn Nikola Jokić from an NBA MVP into a 'stable boy'**\
-`The world has witnessed Nikola Jokić's love of horses. But only a few see the depth of passion: "They don't look at me as an NBA player."`\
-https://nytimes.com/athletic/6892285/2025/12/23/nikola-jokic-nuggets-horses/
-
-**What's it like to always lose? Inside an NFL star's fight against failure: 'It takes a toll'**\
-`Losing has defined Burns’ career. His teams' .250 winning percentage is the second worst for any player with 100 games since 2000. `\
-https://nytimes.com/athletic/6911141/2025/12/23/brian-burns-giants-losing-takes-toll/
 
