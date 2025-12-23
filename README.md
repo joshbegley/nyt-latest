@@ -1,3 +1,11 @@
+**Fancy Mains Without the Time Commitment**\
+`Chile crisp and honey roasted salmon, garlicky beef tenderloin and butter paneer for your holiday table.`\
+https://nytimes.com/2025/12/23/dining/fancy-mains-without-the-time-commitment.html
+
+**Derik Queen is emerging as a force for the suddenly hot Pelicans**\
+`It hasn't been all roses for the rookie, but Queen's development has been an intriguing watch in New Orleans.`\
+https://nytimes.com/athletic/6914648/2025/12/23/derik-queen-talent-pelicans-win-streak/
+
 **Missouri DE sues Georgia, setting up landmark player vs. school NIL legal battle**\
 `Wilson’s attorneys allege the Bulldogs tried to 'punish Wilson for entering the portal' by lying about the former five-star’s NIL buyout.`\
 https://nytimes.com/athletic/6914369/2025/12/23/damon-wilson-lawsuit-georgia-missouri-nil/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6911497/2025/12/23/ndamukong-suh-nfl-leadership-sto
 **FanDuel SN channels could be sold as broadcaster scrambles for funds**\
 `If a sale falls through, Main Street Sports Group could ultimately be shut down following the current NBA and NHL seasons.`\
 https://nytimes.com/athletic/6914257/2025/12/23/fanduel-sports-network-sale-dazn-funds/
-
-**At the Sydney Hobart Yacht Race, Sailing Is Often a Family Affair**\
-`Fathers, mothers, daughters, sons and even twin brothers have tackled this race together, saying it’s an exciting bonding experience.`\
-https://nytimes.com/2025/12/23/sports/sailing/sydney-hobart-family-racing.html
-
-**How Did DOGE Disrupt So Much While Saving So Little?**\
-`The group’s biggest claims were largely incorrect, a New York Times analysis found. And its many smaller cuts added up to few savings.`\
-https://nytimes.com/2025/12/23/us/politics/doge-musk-trump-analysis.html
 
