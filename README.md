@@ -1,3 +1,7 @@
+**In a Fitting Way**\
+`Nathan Hale gets the corner office.`\
+https://nytimes.com/2025/12/22/crosswords/daily-puzzle-2025-12-23.html
+
 **May Britt, 91, Dies; Her Marriage to Sammy Davis Jr. Sparked Outrage**\
 `She was a white actress, he was a popular Black entertainer, and their relationship elicited racist reactions in 1960, including from John F. Kennedy’s presidential campaign.`\
 https://nytimes.com/2025/12/22/movies/may-britt-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/22/us/politics/washington-dc-gun-laws-trump.html
 **Read the document**\
 `Representative Joyce Beatty, Democrat of Ohio, sued President Trump on Monday seeking to force the removal of his name from the John F. Kennedy Center for the Performing Arts.`\
 https://nytimes.com/interactive/2025/12/22/us/politics/complaint-beatty-v-trump.html
-
-**How to watch Ravens vs. Packers: Time, TV, streaming**\
-`Find out how to watch the Baltimore Ravens play the Green Bay Packers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6912579/2025/12/22/ravens-vs-packers-stream-how-to-watch-dec-27/
 
