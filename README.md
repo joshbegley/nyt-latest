@@ -3,7 +3,7 @@
 https://nytimes.com/2025/12/23/dining/nyc-restaurant-news.html
 
 **Student Loan Borrowers in Default Could See Wages Garnished in Early 2026**\
-`Starting Jan. 7, the Dept. of Education will begin sending notices about paycheck deductions to about 1,000 of five million borrowers in default.`\
+`Starting the week of Jan. 7, the Dept. of Education will begin sending notices about paycheck deductions to about 1,000 of five million borrowers in default.`\
 https://nytimes.com/2025/12/23/business/student-loan-debtors-default-wages-garnish.html
 
 **Kevin Byard, Joe Thuney, Drew Dalman to rep Bears at Pro Bowl; Nahshon Wright snubbed**\
@@ -11,7 +11,7 @@ https://nytimes.com/2025/12/23/business/student-loan-debtors-default-wages-garni
 https://nytimes.com/athletic/6912762/2025/12/23/bears-pro-bowl-kevin-byard-joe-thuney/
 
 **NWSL adds rule allowing stars to be paid $1m above salary cap, player union opposes**\
-`High Impact Player rule, was created in part as a way to try to keep Washington Spirit and U.S. forward Trinity Rodman in the league.`\
+`The High Impact Player rule was created in part as a way to try to keep Washington Spirit and U.S. forward Trinity Rodman in the league.`\
 https://nytimes.com/athletic/6914968/2025/12/23/nwsl-salary-cap-high-impact-player-rule/
 
 **Email From ‘A’ at ‘Balmoral’ Asks Maxwell About ‘Inappropriate Friends’**\

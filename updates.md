@@ -1,3 +1,15 @@
+**Lalyn Takes a Modern Approach to Thai Home Cooking**\
+`Bar Manje takes over the nights at Good Enough to Eat, the White Horse Tavern team open Dandelion and more restaurant news.`\
+https://nytimes.com/2025/12/23/dining/nyc-restaurant-news.html
+
+**Student Loan Borrowers in Default Could See Wages Garnished in Early 2026**\
+`Starting Jan. 7, the Dept. of Education will begin sending notices about paycheck deductions to about 1,000 of five million borrowers in default.`\
+https://nytimes.com/2025/12/23/business/student-loan-debtors-default-wages-garnish.html
+
+**NWSL adds rule allowing stars to be paid $1m above salary cap, player union opposes**\
+`High Impact Player rule, was created in part as a way to try to keep Washington Spirit and U.S. forward Trinity Rodman in the league.`\
+https://nytimes.com/athletic/6914968/2025/12/23/nwsl-salary-cap-high-impact-player-rule/
+
 **NWSL adds rule allowing stars to be paid $1m above salary cap, Players Association opposes**\
 `High Impact Player rule, was created in part as a way to try to keep Washington Spirit and U.S. forward Trinity Rodman in the league.`\
 https://nytimes.com/athletic/6914968/2025/12/23/nwsl-salary-cap-high-impact-player-rule/
