@@ -1,40 +1,40 @@
-**The Complicated Legacy of Eric Adams**\
-`Mr. Adams will be remembered for the drumbeat of scandals that derailed his mayoralty in New York City, a growing affordability crisis and progress on public safety and housing.`\
-https://nytimes.com/2025/12/23/nyregion/eric-adams-mayor-legacy.html
+**Trump’s War on Public Health Is a Battle to the Death**\
+`The MAHA pipe dream is going to hurt MAGA the most.`\
+https://nytimes.com/2025/12/23/opinion/trump-kennedy-health-death-maga-maha.html
 
-**N.Y.C. Housing Isn’t Being Built Fast Enough, Report Says**\
-`Housing experts and politicians agree that New York City needs to add hundreds of thousands of new homes. The Real Estate Board of New York is keeping tally.`\
-https://nytimes.com/2025/12/23/nyregion/nyc-housing-development.html
+**Miracle on 64th Street: Options for Holiday Opera**\
+`Usually, holiday opera is scarce on major stages in New York. But this year, there are two at Lincoln Center alone.`\
+https://nytimes.com/2025/12/23/arts/music/amahl-and-the-night-visitors-the-magic-flute-review.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/12/23/crosswords/spelling-bee-forum.html
+**What the Real-Life Marty Supreme Taught Me**\
+`When I first moved to New York City, Marty Reisman befriended me.`\
+https://nytimes.com/2025/12/23/opinion/culture/real-life-marty-supreme-reisman.html
 
-**In Pursuit of the Monarch’s Magnetic Sense**\
-`The magnetic compass is the last unknown sense in migrating animals. For some scientists, the monarch butterfly is leading the way.`\
-https://nytimes.com/2025/12/23/science/neuroscience-monarch-butterflies-migration.html
+**Trump’s TikTok Deal Won’t Protect National Security**\
+`Trump’s deal preserves many of the ties to China that the law was designed to sever.`\
+https://nytimes.com/2025/12/23/opinion/tiktok-deal-national-security.html
 
-**Did Mayor Eric Adams ‘Get Stuff Done’? A Look at His Record on 7 Issues.**\
-`The mayor has kept his vow to lower crime in New York City, but the city’s economic recovery has stalled and homelessness has risen.`\
-https://nytimes.com/2025/12/23/nyregion/eric-adams-record-mayor.html
+**Trump May Give 775 Acres of a Federal Wildlife Refuge to SpaceX**\
+`In exchange for the land in Texas, the rocket and satellite company would give the government some of its own property nearby, documents show.`\
+https://nytimes.com/2025/12/23/climate/spacex-land-exchange-texas.html
 
-**England will investigate Noosa trip as Rob Key accepts team have played 'dumb' cricket at times**\
-`The England managing director of men's cricket dissected where he felt the Ashes tour had gone wrong and admitted the regime has to evolve`\
-https://nytimes.com/athletic/6912903/2025/12/23/england-ashes-rob-key-mccullum-stokes-noosa/
+**The Three Forces Deranging the Economy in 2025**\
+`Joe Weisenthal and Tracy Alloway, the hosts of the economics podcast “Odd Lots,” walk through how Trump’s tariffs, A.I. and the vibecession are making for a strange close to the year.`\
+https://nytimes.com/2025/12/23/opinion/ezra-klein-podcast-alloway-weisenthal.html
 
-**How to watch LSU vs. Houston: Texas Bowl Start Time, TV, streaming**\
-`Find out how to watch the LSU Tigers play the Houston Cougars, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6913051/2025/12/23/lsu-vs-houston-stream-how-to-watch-dec-27/
+**Influencers Get Their Night at the Opera as the Met Courts New Fans**\
+`The Metropolitan Opera has invited 70 influencers to help convince a younger, online audience that opera isn’t scary or even unaffordable.`\
+https://nytimes.com/2025/12/23/arts/music/met-opera-social-media-influencers.html
 
-**Blunt Nottingham Forest must rediscover their edge to get clear of relegation fight**\
-`This was a fourth straight loss at Craven Cottage for Forest, whose lack on consistency is frustrating head coach Sean Dyche`\
-https://nytimes.com/athletic/6912558/2025/12/23/nottingham-forest-fulham-analysis-relegation/
+**Quiz: Do You Speak 2025?**\
+`An assortment of absurd, useful and funny words and phrases entered the vernacular this year. How well do you know them?`\
+https://nytimes.com/2025/12/23/style/slang-quiz-2025.html
 
-**Word of the Day: decorum**\
-`This word has appeared in 90 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/12/23/learning/word-of-the-day-decorum.html
+**To Slobber and Protect: Bomb-Sniffing Dogs Kept an Election Safe**\
+`For their heroics after a wave of bomb threats in New Jersey on Election Day, more than two dozen dogs were presented with an award from the state attorney general.`\
+https://nytimes.com/2025/12/23/us/politics/bomb-sniffing-dogs-new-jersey-election.html
 
-**Justice Dept. Sues Illinois Over Law Limiting Immigration Enforcement**\
-`The Justice Department said the law illegally regulates federal law enforcement by barring courthouse arrests and allowing residents to sue immigration agents.`\
-https://nytimes.com/2025/12/23/us/politics/illinois-immigration-lawsuit-justice-department.html
+**‘Emily in Paris’ Star Ashley Park’s 5 Favorite Places in Rome**\
+`Playing Emily’s spontaneous best friend, the actress discovered where to find good pasta and more when the popular Netflix series moved to Rome this season.`\
+https://nytimes.com/2025/12/23/travel/ashley-park-emily-in-paris-rome.html
 
