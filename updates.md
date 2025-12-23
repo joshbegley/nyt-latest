@@ -1,3 +1,7 @@
+**Kevin Byard, Joe Thuney, Drew Dalman to rep Bears at Pro Bowl; Nahshon Wright snubbed**\
+`The Bears get three players to the Pro Bowl in San Francisco, but Wright was a curious snub.`\
+https://nytimes.com/athletic/6912762/2025/12/23/bears-pro-bowl-kevin-byard-joe-thuney/
+
 **NWSL introduces rule allowing certain players to be paid up to $1m above salary cap**\
 `High Impact Player rule, was created in part as a way to try to keep Washington Spirit and U.S. forward Trinity Rodman in the league.`\
 https://nytimes.com/athletic/6914968/2025/12/23/nwsl-salary-cap-high-impact-player-rule/
