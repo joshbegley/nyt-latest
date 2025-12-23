@@ -1,3 +1,11 @@
+**‘The Queen of Versailles’ Bombed on Broadway. What Went Wrong?**\
+`The show reunited Kristin Chenoweth and Stephen Schwartz for the first time since “Wicked.” It wasn’t enough to counter poor word of mouth and other challenges.`\
+https://nytimes.com/2025/12/23/theater/queen-versailles-broadway-closing.html
+
+**The Trump administration delayed tariffs on Chinese semiconductors.**\
+`An investigation ruled that China’s inroads into the chip industry had hurt the United States. The administration delayed tariffs until 2027 amid a fragile truce between the countries.`\
+https://nytimes.com/live/2025/12/23/us/trump-news/trump-tariffs-chinese-semiconductors
+
 **Premier League big six Christmas fixture analysis: Who has it hardest?**\
 `Rating and analysing how each of the Big Six's fixture lists compare over Christmas and New Year.`\
 https://nytimes.com/athletic/6913679/2025/12/23/premier-league-big-six-christmas/

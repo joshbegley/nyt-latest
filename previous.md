@@ -1,3 +1,7 @@
+**‘The Queen of Versailles’ Bombed on Broadway. What Went Wrong?**\
+`The show reunited Kristin Chenoweth and Stephen Schwartz for the first time since “Wicked.” It wasn’t enough to counter poor word of mouth and other challenges.`\
+https://nytimes.com/2025/12/23/theater/queen-versailles-broadway-closing.html
+
 **Premier League big six Christmas fixture analysis: Who has it hardest?**\
 `Rating and analysing how each of the Big Six's fixture lists compare over Christmas and New Year.`\
 https://nytimes.com/athletic/6913679/2025/12/23/premier-league-big-six-christmas/
@@ -18,7 +22,7 @@ https://nytimes.com/athletic/6915017/2025/12/23/devils-vs-islanders-stream-how-t
 `Find out how to watch the Buffalo Sabres play the Ottawa Senators, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6915013/2025/12/23/sabres-vs-senators-stream-how-to-watch-dec-23/
 
-**The Trump Administration delayed Tariffs on Chinese semiconductors.**\
+**The Trump administration delayed tariffs on Chinese semiconductors.**\
 `An investigation ruled that China’s inroads into the chip industry had hurt the United States. The administration delayed tariffs until 2027 amid a fragile truce between the countries.`\
 https://nytimes.com/live/2025/12/23/us/trump-news/trump-tariffs-chinese-semiconductors
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6915007/2025/12/23/rangers-vs-capitals-stream-how-t
 **How to watch Wizards vs. Hornets: Time, TV, streaming**\
 `Find out how to watch the Washington Wizards play the Charlotte Hornets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6915005/2025/12/23/wizards-vs-hornets-stream-how-to-watch-dec-23/
-
-**How to watch Canadiens vs. Bruins: Time, TV, streaming**\
-`Find out how to watch the Montreal Canadiens play the Boston Bruins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6915003/2025/12/23/canadiens-vs-bruins-stream-how-to-watch-dec-23/
 
