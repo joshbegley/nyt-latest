@@ -18,7 +18,7 @@ https://nytimes.com/athletic/6912967/2025/12/23/draymond-green-steve-kerr-warrio
 ``\
 https://nytimes.com/issue/todayspaper/2025/12/23/todays-new-york-times
 
-**Trump Can Bring Mideast Peace. Netanyahu Must Get Out of the Way.**\
+**Israel Needs to Get Out of Trump’s Way**\
 `President Trump should press Prime Minister Benjamin Netanyahu to ease military pressure on Gaza, Lebanon and Syria for the sake of his own policy.`\
 https://nytimes.com/2025/12/23/opinion/israel-trump-netanyahu-syria-lebanon-gaza.html
 
