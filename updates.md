@@ -1,3 +1,11 @@
+**Wizards guard Cam Whitmore out indefinitely with blood clot in shoulder**\
+`Whitmore is the latest NBA player to be diagnosed with the condition, joining a list that includes Victor Wembanyama and Damian Lillard.`\
+https://nytimes.com/athletic/6915885/2025/12/23/cam-whitmore-deep-vein-thombrosis-blood-clot-wizards/
+
+**Supreme Court Refuses to Allow Trump to Deploy National Guard in Chicago**\
+`President Trump ordered state-based troops to Portland, Ore.; Los Angeles; Washington; and Chicago over the objections of state and local officials.`\
+https://nytimes.com/2025/12/23/us/politics/supreme-court-national-guard-chicago.html
+
 **‘60 Minutes’ Report Was Pulled Off the Air. Now It’s on the Internet.**\
 `At the last minute, CBS News held a segment about Venezuelan men who were deported by the Trump administration to a prison in El Salvador. It surfaced online anyway.`\
 https://nytimes.com/2025/12/23/business/media/60-minutes-cbs-news.html
