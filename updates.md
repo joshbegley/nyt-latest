@@ -1,3 +1,19 @@
+**How to Make Döner Kebab Like a Cypriot Mom**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/nefise-kansu-doner-kebab
+
+**Man Charged With Hate Crime in Attack Near Chabad Headquarters**\
+`Authorities say that Armani Charles, 23, accosted a man on the street before a running argument devolved into a stabbing.`\
+https://nytimes.com/2025/12/23/nyregion/chabad-stabbing-hate-crime-arrest.html
+
+**NFL Week 17 clinching scenarios: 7 teams can clinch divisional crowns**\
+`Five teams in each conference have already clinched berths, leaving four total spots up for grabs.`\
+https://nytimes.com/athletic/6915715/2025/12/23/nfl-week-17-clinching-scenarios-panthers-jaguars/
+
+**Treliving doubles down on Berube after Savard firing: ‘I support Craig fully’**\
+`Treliving went out of his way, for the second time in just over a month, to back Berube as head coach.`\
+https://nytimes.com/athletic/6915770/2025/12/23/leafs-brad-treliving-craig-berube-marc-savard/
+
 **San Luis Obispo County**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/things-to-do-san-luis-obispo
