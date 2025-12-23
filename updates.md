@@ -1,3 +1,7 @@
+**Wizards forward Cam Whitmore out indefinitely with blood clot in shoulder**\
+`Whitmore is the latest NBA player to be diagnosed with the condition, joining a list that includes Victor Wembanyama and Damian Lillard.`\
+https://nytimes.com/athletic/6915885/2025/12/23/cam-whitmore-deep-vein-thombrosis-blood-clot-wizards/
+
 **U.S. lifestyle entrepreneur Martha Stewart becomes minority owner of Swansea**\
 `Stewart, 84, joins rapper Snoop Dogg and six-time Champions League winner Luka Modric as an investor in Swansea.`\
 https://nytimes.com/athletic/6915983/2025/12/23/martha-stewart-swansea-city/
