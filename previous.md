@@ -1,3 +1,7 @@
+**Chelsea decide against Semenyo move following initial enquiry**\
+`The Stamford Bridge club admire Bournemouth’s Semenyo and made a late expression of interest`\
+https://nytimes.com/athletic/6915038/2025/12/23/antoine-semenyo-transfer-bournemouth-chelsea/
+
 **It’s a Hard Forkin’ Christmas!**\
 `The “Hard Fork” co-hosts Kevin Roose and Casey Newton sing an original, tech-inspired rendition of “The Twelve Days of Christmas.”`\
 https://nytimes.com/video/technology/100000010606538/its-a-hard-forkin-christmas.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/23/dining/nyc-restaurant-news.html
 **Student Loan Borrowers in Default Could See Wages Garnished in Early 2026**\
 `Starting the week of Jan. 7, the Dept. of Education will begin sending notices about paycheck deductions to about 1,000 of five million borrowers in default.`\
 https://nytimes.com/2025/12/23/business/student-loan-debtors-default-wages-garnish.html
-
-**Kevin Byard, Joe Thuney, Drew Dalman to rep Bears at Pro Bowl; Nahshon Wright snubbed**\
-`The Bears get three players to the Pro Bowl in San Francisco, but Wright was a curious snub.`\
-https://nytimes.com/athletic/6912762/2025/12/23/bears-pro-bowl-kevin-byard-joe-thuney/
 

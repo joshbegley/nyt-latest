@@ -1,3 +1,7 @@
+**Chelsea decide against Semenyo move following initial enquiry**\
+`The Stamford Bridge club admire Bournemouth’s Semenyo and made a late expression of interest`\
+https://nytimes.com/athletic/6915038/2025/12/23/antoine-semenyo-transfer-bournemouth-chelsea/
+
 **It’s a Hard Forkin’ Christmas!**\
 `The “Hard Fork” co-hosts Kevin Roose and Casey Newton sing an original, tech-inspired rendition of “The Twelve Days of Christmas.”`\
 https://nytimes.com/video/technology/100000010606538/its-a-hard-forkin-christmas.html

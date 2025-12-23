@@ -1,3 +1,7 @@
+**Is Australia’s Social Media Ban for Kids a Good Idea?**\
+`On the “Hard Fork” podcast, the hosts Kevin Roose and Casey Newton discuss a new law in Australia barring kids under 16 from social media.`\
+https://nytimes.com/video/technology/100000010606588/is-australias-social-media-ban-for-kids-a-good-idea.html
+
 **Chelsea decide against Semenyo move following initial enquiry**\
 `The Stamford Bridge club admire Bournemouth’s Semenyo and made a late expression of interest`\
 https://nytimes.com/athletic/6915038/2025/12/23/antoine-semenyo-transfer-bournemouth-chelsea/
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000010584489/did-doge-really-cut-govern
 **Lalyn Takes a Modern Approach to Thai Home Cooking**\
 `Bar Manje takes over the nights at Good Enough to Eat, the White Horse Tavern team open Dandelion and more restaurant news.`\
 https://nytimes.com/2025/12/23/dining/nyc-restaurant-news.html
-
-**Student Loan Borrowers in Default Could See Wages Garnished in Early 2026**\
-`Starting the week of Jan. 7, the Dept. of Education will begin sending notices about paycheck deductions to about 1,000 of five million borrowers in default.`\
-https://nytimes.com/2025/12/23/business/student-loan-debtors-default-wages-garnish.html
 
