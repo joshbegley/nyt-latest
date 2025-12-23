@@ -1,3 +1,7 @@
+**Rotating Cast of Wall Street Figures Were Listed as Executors of Epstein’s Will**\
+`Copies of Jeffrey Epstein’s last will and testament show that the convicted sex offender and disgraced financier provide a real-time glimpse of the power players who were part of his life.`\
+https://nytimes.com/2025/12/23/us/politics/epstein-will-executors-wall-street.html
+
 **We asked Ndamukong Suh to read the best stories about himself. Watch him react**\
 `Suh played 13 seasons in the NFL and won a Super Bowl. Here he shares stories about the mindset that helped him achieve that.`\
 https://nytimes.com/athletic/6911497/2025/12/23/ndamukong-suh-nfl-leadership-stories-teammates/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/23/opinion/gdp-numbers-economy-job-numbers.html
 **The Bounce: Duke's Cameron Boozer makes his case to be the No. 1 pick**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/6913549/2025/12/23/cameron-boozer-nba-draft-the-bounce/
-
-**Epstein Files Live Updates: Trump Referenced in Some Newly Released Documents**\
-`The Justice Department released another batch of documents from the Jeffrey Epstein investigation — a wide mix of emails, tips and records from his death.`\
-https://nytimes.com/live/2025/12/23/us/epstein-files-trump
 
