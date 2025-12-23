@@ -1,3 +1,11 @@
+**Super Bowl odds: 3 NFC West teams are in the top 8**\
+`The Seahawks beat the Rams, but the Rams are still the BetMGM's favorite to win the Super Bowl.`\
+https://nytimes.com/athletic/6915182/2025/12/23/super-bowl-odds-rams-seahawks/
+
+**Chasing Spice and Street Food in India’s Pink City**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/jaipur-india-food
+
 **Semenyo's preference to join Manchester City from Bournemouth**\
 `Semenyo's desire to win trophies is key to his decision.`\
 https://nytimes.com/athletic/6915594/2025/12/23/antoine-semenyo-manchester-city-transfer/
