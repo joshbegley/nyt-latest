@@ -1,6 +1,6 @@
 **Blunt Nottingham Forest must rediscover their edge to get clear of relegation fight**\
-`This was a fourth-straight loss at Craven Cottage for Forest, whose lack on consistency is frustrating manager Sean Dyche`\
-https://nytimes.com/athletic/6912558/2025/12/23/blunt-nottingham-forest-must-rediscover-their-edge-to-get-clear-of-relegation-fight/
+`This was a fourth straight loss at Craven Cottage for Forest, whose lack on consistency is frustrating head coach Sean Dyche`\
+https://nytimes.com/athletic/6912558/2025/12/23/nottingham-forest-fulham-analysis-relegation/
 
 **Word of the Day: decorum**\
 `This word has appeared in 90 articles on NYTimes.com in the past year. Can you use it in a sentence?`\

@@ -1,4 +1,8 @@
 **Blunt Nottingham Forest must rediscover their edge to get clear of relegation fight**\
+`This was a fourth straight loss at Craven Cottage for Forest, whose lack on consistency is frustrating head coach Sean Dyche`\
+https://nytimes.com/athletic/6912558/2025/12/23/nottingham-forest-fulham-analysis-relegation/
+
+**Blunt Nottingham Forest must rediscover their edge to get clear of relegation fight**\
 `This was a fourth-straight loss at Craven Cottage for Forest, whose lack on consistency is frustrating manager Sean Dyche`\
 https://nytimes.com/athletic/6912558/2025/12/23/blunt-nottingham-forest-must-rediscover-their-edge-to-get-clear-of-relegation-fight/
 
