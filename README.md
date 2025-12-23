@@ -1,8 +1,16 @@
+**Lalyn Takes a Modern Approach to Thai Home Cooking**\
+`Bar Manje takes over the nights at Good Enough to Eat, the White Horse Tavern team open Dandelion and more restaurant news.`\
+https://nytimes.com/2025/12/23/dining/nyc-restaurant-news.html
+
+**Student Loan Borrowers in Default Could See Wages Garnished in Early 2026**\
+`Starting Jan. 7, the Dept. of Education will begin sending notices about paycheck deductions to about 1,000 of five million borrowers in default.`\
+https://nytimes.com/2025/12/23/business/student-loan-debtors-default-wages-garnish.html
+
 **Kevin Byard, Joe Thuney, Drew Dalman to rep Bears at Pro Bowl; Nahshon Wright snubbed**\
 `The Bears get three players to the Pro Bowl in San Francisco, but Wright was a curious snub.`\
 https://nytimes.com/athletic/6912762/2025/12/23/bears-pro-bowl-kevin-byard-joe-thuney/
 
-**NWSL adds rule allowing stars to be paid $1m above salary cap, Players Association opposes**\
+**NWSL adds rule allowing stars to be paid $1m above salary cap, player union opposes**\
 `High Impact Player rule, was created in part as a way to try to keep Washington Spirit and U.S. forward Trinity Rodman in the league.`\
 https://nytimes.com/athletic/6914968/2025/12/23/nwsl-salary-cap-high-impact-player-rule/
 
@@ -25,12 +33,4 @@ https://nytimes.com/2025/12/23/us/politics/stephen-miller-trump-immigrants.html
 **Bryce Harper to play for Team USA in the World Baseball Classic**\
 `He will join teammate Kyle Schwarber on the Team USA WBC roster, which also features Aaron Judge, Tarik Skubal, Paul Skenes and Cal Raleigh.`\
 https://nytimes.com/athletic/6914843/2025/12/23/bryce-harper-team-usa-world-baseball-classic/
-
-**In Epstein Files, Administration Officials Point to Clinton, and Away From Trump**\
-`The Justice Department initially removed, then restored, a photograph that included an image of President Trump, and issued a statement calling mentions of him “untrue and sensationalist claims.”`\
-https://nytimes.com/2025/12/23/us/politics/clinton-trump-epstein-files.html
-
-**Heavy Rain Expected to Douse Los Angeles on Christmas Eve**\
-`Waves of atmospheric moisture could cause urban flooding and mudslides across California this week, according to the National Weather Service.`\
-https://nytimes.com/2025/12/23/weather/rain-los-angeles-california.html
 
