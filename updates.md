@@ -1,3 +1,11 @@
+**Woman Dies in East Harlem When Scaffolding Collapses After Truck Crash**\
+`A garbage truck hit a parked vehicle, pushing it into the scaffolding, the police said.`\
+https://nytimes.com/2025/12/23/nyregion/nyc-scaffolding-crash.html
+
+**Looking Back at a Historic Year of Dismantling Climate Policies**\
+`The Trump administration has aggressively pulled America away from its global role in climate and environmental research, diplomacy, regulation and investment.`\
+https://nytimes.com/2025/12/23/climate/climate-forward-newsletter-trump-administration-policies.html
+
 **Libyan Military Leaders Are Killed in Plane Crash in Turkey**\
 `The internationally recognized government of Libya confirmed the deaths of Lt. Gen. Mohamed Ali Ahmed al-Haddad, the army chief of staff, and other officers flying home after a meeting in Turkey.`\
 https://nytimes.com/2025/12/23/world/middleeast/libya-general-plane-crash-turkey.html

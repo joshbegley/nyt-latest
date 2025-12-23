@@ -1,3 +1,11 @@
+**Woman Dies in East Harlem When Scaffolding Collapses After Truck Crash**\
+`A garbage truck hit a parked vehicle, pushing it into the scaffolding, the police said.`\
+https://nytimes.com/2025/12/23/nyregion/nyc-scaffolding-crash.html
+
+**Looking Back at a Historic Year of Dismantling Climate Policies**\
+`The Trump administration has aggressively pulled America away from its global role in climate and environmental research, diplomacy, regulation and investment.`\
+https://nytimes.com/2025/12/23/climate/climate-forward-newsletter-trump-administration-policies.html
+
 **Libyan Military Leaders Are Killed in Plane Crash in Turkey**\
 `The internationally recognized government of Libya confirmed the deaths of Lt. Gen. Mohamed Ali Ahmed al-Haddad, the army chief of staff, and other officers flying home after a meeting in Turkey.`\
 https://nytimes.com/2025/12/23/world/middleeast/libya-general-plane-crash-turkey.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/europe/100000010606899/russia-ukraine-bombing-pe
 **Patriots have lengthy injury report with 'unfinished business' of playoff seeding ahead**\
 `After nine players were injured in Sunday's win, the Patriots could be without some key contributors in the final two regular-season games.`\
 https://nytimes.com/athletic/6915691/2025/12/23/patriots-injury-updates-treveyon-henderson/
-
-**Tomlin doesn't condone Metcalf's behavior, expresses support before appeal**\
-`Metcalf's appeal hearing is scheduled for Tuesday afternoon.`\
-https://nytimes.com/athletic/6912148/2025/12/23/pittsburgh-steelers-dk-metcalf-suspension-appeal/
-
-**How to watch Magic vs. Trail Blazers: Time, TV, streaming**\
-`Find out how to watch the Orlando Magic play the Portland Trail Blazers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6915939/2025/12/23/magic-vs-trail-blazers-stream-how-to-watch-dec-23/
 
