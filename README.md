@@ -1,3 +1,7 @@
+**How to Make Döner Kebab Like a Cypriot Mom**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/nefise-kansu-doner-kebab
+
 **Man Charged With Hate Crime in Attack Near Chabad Headquarters**\
 `Authorities say that Armani Charles, 23, accosted a man on the street before a running argument devolved into a stabbing.`\
 https://nytimes.com/2025/12/23/nyregion/chabad-stabbing-hate-crime-arrest.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6911615/2025/12/23/nigeria-tanzania-afcon-iwobi-osi
 **Oklahoma Instructor Is Fired Over Student’s Gender Essay That Cited Bible**\
 `The instructor, a graduate student at the University of Oklahoma, gave a zero to a student who wrote an essay arguing in favor of traditional gender definitions based on biblical teachings.`\
 https://nytimes.com/2025/12/23/us/mel-curth-oklahoma-instructor-firing.html
-
-**What a 'retool in a little bit of a hybrid form' really means for the Canucks**\
-`Canucks hockey operations won't be moved by a short-term winning streak like the 4-1-0 road trip after the Quinn Hughes trade.`\
-https://nytimes.com/athletic/6915339/2025/12/23/canucks-retool-hybrid-rutherford-allvin-sherwood-demko/
 
