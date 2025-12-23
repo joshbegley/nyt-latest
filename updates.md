@@ -1,3 +1,11 @@
+**Pirates to sign Ryan O'Hearn, add another bat to improving offense: Sources**\
+`O'Hearn is the second upgrade to the Pirates' offense in the past week.`\
+https://nytimes.com/athletic/6802605/2025/12/23/mlb-ryan-ohearn-free-agency-signing-pirates/
+
+**Oklahoma Instructor Is Fired Over Student’s Gender Essay That Cited Bible**\
+`The instructor, a graduate student at the University of Oklahoma, gave a zero to a student who wrote an essay arguing in favor of traditional gender definitions based on biblical teachings.`\
+https://nytimes.com/2025/12/23/us/mel-curth-oklahoma-instructor-firing.html
+
 **Submit your questions for Kevin Fishbain's Bears mailbag**\
 `The Bears' magic number to clinch the NFC North is one as they head to the Bay Area to face the 49ers. Let's see your questions.`\
 https://nytimes.com/athletic/6915760/2025/12/23/submit-your-questions-for-kevin-fishbains-bears-mailbag-20/
