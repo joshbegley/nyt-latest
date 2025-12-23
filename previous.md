@@ -1,3 +1,15 @@
+**After Power Outage, San Francisco Wonders: Can Robot Taxis Handle a Big Earthquake?**\
+`City officials have called for a hearing investigating Waymo after the company’s self-driving taxis suffered widespread problems during a power outage.`\
+https://nytimes.com/2025/12/22/us/waymo-san-francisco-power-earthquake.html
+
+**How the Mets will move forward after dealing Jeff McNeil, and more MLB notes**\
+`Why the Diamondbacks and Braves don't quite line up on a Ketel Marte deal, and a look at Japanese free-agent Kazuma Okamoto's market.`\
+https://nytimes.com/athletic/6912532/2025/12/22/mets-jeff-mcneil-mlb-notes/
+
+**Lawmaker Sues to Remove Trump’s Name From the Kennedy Center**\
+`Representative Joyce Beatty, Democrat of Ohio, argues that only Congress is authorized to rename the D.C. performing arts institution.`\
+https://nytimes.com/2025/12/22/us/politics/lawsuit-trump-name-removal-kennedy-center.html
+
 **Trump Officials Sue to Loosen D.C.’s Gun Laws**\
 `The Justice Department challenged laws aimed at popular rifles including the AR-15 in the nation’s capital.`\
 https://nytimes.com/2025/12/22/us/politics/washington-dc-gun-laws-trump.html
@@ -24,17 +36,5 @@ https://nytimes.com/2025/12/22/us/brown-faces-trump-investigation-security-issue
 
 **How to watch Virginia vs. Missouri: Gator Bowl Start Time, TV, streaming**\
 `Find out how to watch the Virginia Cavaliers play the Missouri Tigers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6912521/2025/12/22/virginia-vs-missouri-stream-how-to-watch-dec-27/
-
-**Luka Dončić to miss Lakers' matchup vs. Suns due to left leg contusion**\
-`When the Lakers opened practice to media on Monday, Dončić had a large wrap on the calf muscle.`\
-https://nytimes.com/athletic/6912487/2025/12/22/luka-doncic-injury-update-calf-contusion-ruled-out/
-
-**How to watch Texans vs. Chargers: Time, TV, streaming**\
-`Find out how to watch the Houston Texans play the Los Angeles Chargers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6912478/2025/12/22/how-to-watch-texans-vs-chargers-tv-channel-and-streaming-options-for-december-27/
-
-**Quarterback Nico Iamaleava will return to UCLA for the 2026 season**\
-`Iamaleava's passing numbers were pedestrian, but he was critical to UCLA's ground game in his first season with the Bruins.`\
-https://nytimes.com/athletic/6899422/2025/12/22/nico-iamaleava-ucla-quarterback-transfer-portal/
+https://nytimes.com/athletic/6912521/2025/12/22/how-to-watch-virginia-vs-missouri-gator-bowl-tv-channel-and-streaming-options-for-december-27/
 
