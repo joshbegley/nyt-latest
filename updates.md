@@ -1,3 +1,7 @@
+**ECHL player union announces strike notice starting Friday**\
+`One of the top minor hockey leagues in North America could go dark after playing without a CBA since the start of the season.`\
+https://nytimes.com/athletic/6912603/2025/12/22/echl-player-union-nears-strike-cba/
+
 **Turmoil at CBS News After Bari Weiss Pulls a ‘60 Minutes’ Segment**\
 `Several veteran correspondents questioned how Ms. Weiss, the new CBS News editor in chief, had handled the segment, after she defended her decision on a call with the newsroom.`\
 https://nytimes.com/2025/12/22/business/media/cbs-news-bari-weiss-60-minutes.html
