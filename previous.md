@@ -1,3 +1,7 @@
+**Brock Purdy's 5 TDs put Philip Rivers, Colts on the brink: Takeaways**\
+`Purdy's career night kept the 49ers in the hunt for the NFC's top seed and all damped the Colts' already faint playoff hopes.`\
+https://nytimes.com/athletic/6912776/2025/12/22/49ers-colts-score-result-takeaways-mnf-nfl/
+
 **Colts' loss to 49ers clinches playoff spots for Bills, Chargers, Jaguars**\
 `The Bills, Chargers and Jaguars all needed wins and a loss or tie from the Texans or Colts this week to secure postseason berths.`\
 https://nytimes.com/athletic/6909671/2025/12/22/bills-chargers-jaguars-clinch-afc-playoff-picture/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/22/movies/may-britt-dead.html
 **Eagles sticking with Jake Elliott after three missed field goals**\
 `Elliott is well below his career numbers this season.`\
 https://nytimes.com/athletic/6912655/2025/12/22/eagles-jake-elliott-missed-field-goals/
-
-**ECHL player union announces strike notice starting Friday**\
-`One of the top minor hockey leagues in North America could go dark after playing without a CBA since the start of the season.`\
-https://nytimes.com/athletic/6912603/2025/12/22/echl-player-union-nears-strike-cba/
 

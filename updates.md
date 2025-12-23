@@ -1,3 +1,7 @@
+**Brock Purdy's 5 TDs put Philip Rivers, Colts on the brink: Takeaways**\
+`Purdy's career night kept the 49ers in the hunt for the NFC's top seed and all damped the Colts' already faint playoff hopes.`\
+https://nytimes.com/athletic/6912776/2025/12/22/49ers-colts-score-result-takeaways-mnf-nfl/
+
 **Colts' loss to 49ers clinches playoff spots for Bills, Chargers, Jaguars**\
 `The Bills, Chargers and Jaguars all needed wins and a loss or tie from the Texans or Colts this week to secure postseason berths.`\
 https://nytimes.com/athletic/6909671/2025/12/22/bills-chargers-jaguars-clinch-afc-playoff-picture/
