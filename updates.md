@@ -1,3 +1,7 @@
+**The Pulse: Maybe we should talk about the 49ers more**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6911562/2025/12/23/philip-rivers-49ers-playoffs-the-pulse/
+
 **After big game vs. Bucs, Panthers' Tetairoa McMillan again the OROY betting favorite**\
 `Carolina's Tetairoa McMillan had six receptions for 73 yards and a TD vs. the Bucs and is approaching 1,000 receiving yards for the season.`\
 https://nytimes.com/athletic/6912102/2025/12/23/panthers-tetairoa-mcmillan-oroy-betting-favorite/
