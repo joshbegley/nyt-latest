@@ -1,3 +1,7 @@
+**Louisville eats from giant bean-filled trophy to celebrate Bush's Boca Raton Bowl win**\
+`The Cardinals got the chance to participate in the latest postgame Boca Raton Bowl tradition after beating Toledo 27-22 on Tuesday.`\
+https://nytimes.com/athletic/6916125/2025/12/23/louisville-eats-beans-trophy-bushs-boca-raton-bowl/
+
 **Robert Nakamura, ‘Godfather’ of Asian American Film, Dies at 88**\
 `In his work, he often returned to Manzanar, the camp in which he and his family, along with thousands of other people of Japanese descent, were interned during World War II.`\
 https://nytimes.com/2025/12/23/movies/robert-nakamura-dead.html

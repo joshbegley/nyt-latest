@@ -10,8 +10,8 @@ https://nytimes.com/athletic/6915754/2025/12/23/broncos-six-pro-bowl-selections-
 `Oliver Glasner confirmed Richards required stitches to his foot and is a doubt to face Tottenham Hotspur on Sunday.`\
 https://nytimes.com/athletic/6916052/2025/12/23/chris-richards-injury-crystal-palace-usmnt/
 
-**Louisville celebrates Bush's Boca Raton Bowl with bean tasting**\
-`The Cardinals got the chance to participate in the latest postgame bowl tradition.`\
+**Louisville eats from giant bean-filled trophy to celebrate Bush's Boca Raton Bowl win**\
+`The Cardinals got the chance to participate in the latest postgame Boca Raton Bowl tradition after beating Toledo 27-22 on Tuesday.`\
 https://nytimes.com/athletic/6916125/2025/12/23/louisville-eats-beans-trophy-bushs-boca-raton-bowl/
 
 **SafeSport suspends two US gymnastics coaches for 'physical and emotional misconduct'**\
