@@ -1,3 +1,11 @@
+**Red Sox roster 'incomplete,' Craig Breslow says; adding second bat a 'priority'**\
+`After adding to the starting rotation, Boston's acquisition of Willson Contreras doesn't look like the only move targeted toward offense.`\
+https://nytimes.com/athletic/6912674/2025/12/22/red-sox-roster-willson-contreras/
+
+**May Britt, 91, Dies; Her Marriage to Sammy Davis Jr. Sparked Outrage**\
+`She was a white actress, he was a popular Black entertainer, and their relationship elicited racist reactions in 1960, worrying John F. Kennedy’s presidential campaign.`\
+https://nytimes.com/2025/12/22/movies/may-britt-dead.html
+
 **Trump Administration Orders Nearly 30 U.S. Ambassadors to Leave Their Posts**\
 `A union representing career diplomats said such a mass recall had never happened in the history of the U.S. Foreign Service.`\
 https://nytimes.com/2025/12/22/us/politics/trump-administration-ambassadors-posts.html
