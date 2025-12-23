@@ -1,3 +1,7 @@
+**Why Doesn’t Trump Like Wind Farms?**\
+`We examine the Trump administration’s approach to the wind industry.`\
+https://nytimes.com/2025/12/23/briefing/why-doesnt-trump-like-wind-farms.html
+
 **Colts haven't officially been eliminated yet, but that's just a formality: It's over**\
 `This isn’t Hollywood. This is Indianapolis, the city where a once proud franchise is floundering yet again.`\
 https://nytimes.com/athletic/6912923/2025/12/23/colts-playoffs-formality-loss-49ers/
