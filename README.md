@@ -1,3 +1,7 @@
+**White House Invitees Are Asked About Donations to Trump’s Ballroom**\
+`Senator Richard Blumenthal is requesting information from an architect hired to oversee the ballroom design and people invited to a donor dinner with the president.`\
+https://nytimes.com/2025/12/22/us/politics/white-house-donations-ballroom.html
+
 **Siegel: The Maple Leafs chose an unusual half measure in firing Marc Savard**\
 `At this point, firing Savard screams "action!" while kicking the bigger can down the road.`\
 https://nytimes.com/athletic/6912498/2025/12/22/maple-leafs-savard-firing-berube-coach/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/22/us/waymo-san-francisco-power-earthquake.html
 **How the Mets will move forward after dealing Jeff McNeil, and more MLB notes**\
 `Why the Diamondbacks and Braves don't quite line up on a Ketel Marte deal, and a look at Japanese free-agent Kazuma Okamoto's market.`\
 https://nytimes.com/athletic/6912532/2025/12/22/mets-jeff-mcneil-mlb-notes/
-
-**Lawmaker Sues to Remove Trump’s Name From the Kennedy Center**\
-`Representative Joyce Beatty, Democrat of Ohio, argues that only Congress is authorized to rename the D.C. performing arts institution.`\
-https://nytimes.com/2025/12/22/us/politics/lawsuit-trump-name-removal-kennedy-center.html
 
