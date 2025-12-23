@@ -1,3 +1,11 @@
+**Libyan Military Leaders Are Killed in Plane Crash in Turkey**\
+`The internationally recognized government of Libya confirmed the deaths of Lt. Gen. Mohamed Ali Ahmed al-Haddad, the army chief of staff, and other officers flying home after a meeting in Turkey.`\
+https://nytimes.com/2025/12/23/world/middleeast/libya-general-plane-crash-turkey.html
+
+**Multiple People Injured in Explosion at Pennsylvania Nursing Home**\
+`The explosion, at the Bristol Health and Rehab Center in Bristol Township, Pa., caused a fire and partial collapse of the building, the authorities said.`\
+https://nytimes.com/2025/12/23/us/explosion-bristol-nursing-home.html
+
 **Dating ChatGPT**\
 `The bot has been marketed as a general-purpose tool that can write code, summarize documents and give advice. But can it be a good boyfriend?`\
 https://nytimes.com/2025/12/23/world/dating-chatgpt-greta-thunberg-russia-ukraine.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6912148/2025/12/23/pittsburgh-steelers-dk-metcalf-s
 **How to watch Magic vs. Trail Blazers: Time, TV, streaming**\
 `Find out how to watch the Orlando Magic play the Portland Trail Blazers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6915939/2025/12/23/magic-vs-trail-blazers-stream-how-to-watch-dec-23/
-
-**How to watch Pistons vs. Kings: Time, TV, streaming**\
-`Find out how to watch the Detroit Pistons play the Sacramento Kings, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6915937/2025/12/23/pistons-vs-kings-stream-how-to-watch-dec-23/
-
-**How to watch Rockets vs. Clippers: Time, TV, streaming**\
-`Find out how to watch the Houston Rockets play the Los Angeles Clippers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6915931/2025/12/23/rockets-vs-clippers-stream-how-to-watch-dec-23/
 
