@@ -34,7 +34,3 @@ https://nytimes.com/2025/12/23/us/politics/confederate-school-names.html
 `The list of co-conspirators included Leslie Wexner, the retail magnate behind The Limited and Victoria’s Secret stores.`\
 https://nytimes.com/2025/12/23/us/politics/co-conspirators-epstein-case.html
 
-**‘The Queen of Versailles’ Bombed on Broadway. What Went Wrong?**\
-`The show reunited Kristin Chenoweth and Stephen Schwartz for the first time since “Wicked.” It wasn’t enough to counter poor word of mouth and other challenges.`\
-https://nytimes.com/2025/12/23/theater/queen-versailles-broadway-closing.html
-

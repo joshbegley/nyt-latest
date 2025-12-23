@@ -1,3 +1,15 @@
+**Email From ‘A’ at ‘Balmoral’ Asks Maxwell About ‘Inappropriate Friends’**\
+`In an email sent to Ghislaine Maxwell in 2001, a sender writes about being at Balmoral, the British royal family’s summer residence in Scotland.`\
+https://nytimes.com/2025/12/23/us/politics/epstein-maxwell-balmoral-email.html
+
+**Jon Heacock, longtime Iowa State DC whose scheme took over Big 12, retires**\
+`Heacock has spent the last 12 years working for Matt Campbell, including two at Toledo before they left for Ames in 2016.`\
+https://nytimes.com/athletic/6914759/2025/12/23/jon-heacock-retires-isu-penn-state/
+
+**How Should We View the Middle East’s Legacy of Slavery?**\
+`In “Captives and Companions,” Justin Marozzi traces the stories of the eunuchs, harem women and forced laborers who underwrote empires in Asia and North Africa.`\
+https://nytimes.com/2025/12/23/books/review/captives-and-companions-justin-marozzi.html
+
 **Stephen Miller Cites Children of Immigrants as a Problem**\
 `As it seeks to end birthright citizenship, the Trump administration is arguing that immigrants bring problems that extend for generations. The data shows otherwise.`\
 https://nytimes.com/2025/12/23/us/politics/stephen-miller-trump-immigrants.html
