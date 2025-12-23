@@ -1,3 +1,7 @@
+**How to watch Ravens vs. Packers: Time, TV, streaming**\
+`Find out how to watch the Baltimore Ravens play the Green Bay Packers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6912579/2025/12/22/ravens-vs-packers-stream-how-to-watch-dec-27/
+
 **At Least 2 Dead in Crash of Medical Plane in Texas**\
 `The Mexican Navy said it was carrying out a medical support mission with a foundation that assists Mexican children with severe burns.`\
 https://nytimes.com/2025/12/22/us/galveston-plane-crash-mexico-navy.html
@@ -20,7 +24,7 @@ https://nytimes.com/athletic/6912487/2025/12/22/luka-doncic-injury-update-calf-c
 
 **How to watch Texans vs. Chargers: Time, TV, streaming**\
 `Find out how to watch the Houston Texans play the Los Angeles Chargers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6912478/2025/12/22/texans-vs-chargers-stream-how-to-watch-dec-27/
+https://nytimes.com/athletic/6912478/2025/12/22/how-to-watch-texans-vs-chargers-tv-channel-and-streaming-options-for-december-27/
 
 **Quarterback Nico Iamaleava will return to UCLA for the 2026 season**\
 `Iamaleava's passing numbers were pedestrian, but he was critical to UCLA's ground game in his first season with the Bruins.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/22/well/fda-approves-wegovy-weight-loss-pill.html
 **Judge Orders Administration to Share Plans for Deportees to El Salvador Prison**\
 `The judge said the administration had to decide by Jan. 5 whether it wanted to “facilitate” the men’s return to the United States or let them challenge their initial removals in the federal courts.`\
 https://nytimes.com/2025/12/22/us/trump-boasberg-alien-enemies-act-venezuela.html
-
-**Trump Administration Declares Foreign-Made Drones a Security Threat**\
-`Americans won’t be able to buy new models from DJI, the Chinese maker of most of the world’s drones. But U.S. pilots can keep the drones they have.`\
-https://nytimes.com/2025/12/22/us/dji-drones-china-barred-us.html
 

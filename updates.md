@@ -1,3 +1,7 @@
+**At Least 2 Dead in Crash of Medical Plane in Texas**\
+`The Mexican Navy said it was carrying out a medical support mission with a foundation that assists Mexican children with severe burns.`\
+https://nytimes.com/2025/12/22/us/galveston-plane-crash-mexico-navy.html
+
 **Rick Carlisle, Celtics seek bone marrow donor for former team trainer**\
 `Carlisle opened his pregame news conference Monday night with a call for help for former Boston Celtics trainer Ed Lacerte.`\
 https://nytimes.com/athletic/6912358/2025/12/22/rick-carlisle-asks-bone-marrow-donations-ed-lacerte-leukemia/
