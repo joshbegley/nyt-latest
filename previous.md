@@ -1,3 +1,7 @@
+**Brock Purdy Outduels Philip Rivers in 49ers’ Primetime Win Over Colts**\
+`San Francisco quarterback Brock Purdy passed for a career-high five touchdowns to keep his team in the hunt for the N.F.C.’s top seed.`\
+https://nytimes.com/video/the-athletic/100000010605750/brock-purdy-outduels-philip-rivers-in-49ers-primetime-win-over-colts.html
+
 **TAFC: Dan Elkayam, footballer who 'united people' killed in Bondi. Plus: Salah saves Egypt**\
 `Jacob Whitehead is here with Tuesday's TAFC newsletter`\
 https://nytimes.com/athletic/6913134/2025/12/23/footballer-bondi-attacks-salah-egypt/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6912249/2025/12/23/college-football-playoff-complai
 **USMNT 2025 year in review: Highs, lows as Pochettino preps for 2026 World Cup**\
 `From Nations League malaise and player discomfort, to an impressive year-ending run, USMNT's 2025 was about Mauricio Pochettino's process`\
 https://nytimes.com/athletic/6911600/2025/12/23/usmnt-2025-year-in-review-world-cup-pochettino/
-
-**How every stop in Noah Dobson's life prepared him for Montreal spotlight**\
-`From a young age, Dobson proved he would not be limited by his geography.`\
-https://nytimes.com/athletic/6898789/2025/12/23/canadiens-noah-dobson-nhl-pei-canada/
 

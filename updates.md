@@ -1,3 +1,7 @@
+**Brock Purdy Outduels Philip Rivers in 49ers’ Primetime Win Over Colts**\
+`San Francisco quarterback Brock Purdy passed for a career-high five touchdowns to keep his team in the hunt for the N.F.C.’s top seed.`\
+https://nytimes.com/video/the-athletic/100000010605750/brock-purdy-outduels-philip-rivers-in-49ers-primetime-win-over-colts.html
+
 **TAFC: Dan Elkayam, footballer who 'united people' killed in Bondi. Plus: Salah saves Egypt**\
 `Jacob Whitehead is here with Tuesday's TAFC newsletter`\
 https://nytimes.com/athletic/6913134/2025/12/23/footballer-bondi-attacks-salah-egypt/
