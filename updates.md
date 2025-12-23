@@ -1,3 +1,15 @@
+**How Much Water Does the A.I. Industry Use?**\
+`Kevin Roose and Casey Newton, the hosts of “Hard Fork” at The New York Times, spoke with Andrew Marley, executive director for Effective Altruism DC, about how much water A.I. data centers use.`\
+https://nytimes.com/video/technology/100000010606632/how-much-water-does-the-ai-industry-use.html
+
+**Cubs reach one-year deal with Jacob Webb, reinforcing their bullpen: Sources**\
+`Webb is the sort of low-cost, low-risk bullpen signing the Cubs have found success with in recent years.`\
+https://nytimes.com/athletic/6915554/2025/12/23/cubs-jacob-webb-bullpen-signing/
+
+**Russell Brand Is Charged With Additional Counts of Rape and Sexual Assault**\
+`The actor, comedian and YouTuber now faces seven counts of rape and sexual assault in Britain.`\
+https://nytimes.com/2025/12/23/arts/russell-brand-charges-rape-sexual-assault.html
+
 **A.I.’s ‘Circular Money Machine’**\
 `Nvidia, OpenAI and other major artificial intelligence companies all invest in one another. This carries some risks, as Bloomberg’s Joe Weisenthal explains on “The Ezra Klein Show.”`\
 https://nytimes.com/video/opinion/100000010591211/ais-circular-money-machine.html

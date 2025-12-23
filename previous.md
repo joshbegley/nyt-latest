@@ -1,3 +1,15 @@
+**How Much Water Does the A.I. Industry Use?**\
+`Kevin Roose and Casey Newton, the hosts of “Hard Fork” at The New York Times, spoke with Andrew Marley, executive director for Effective Altruism DC, about how much water A.I. data centers use.`\
+https://nytimes.com/video/technology/100000010606632/how-much-water-does-the-ai-industry-use.html
+
+**Cubs reach one-year deal with Jacob Webb, reinforcing their bullpen: Sources**\
+`Webb is the sort of low-cost, low-risk bullpen signing the Cubs have found success with in recent years.`\
+https://nytimes.com/athletic/6915554/2025/12/23/cubs-jacob-webb-bullpen-signing/
+
+**Russell Brand Is Charged With Additional Counts of Rape and Sexual Assault**\
+`The actor, comedian and YouTuber now faces seven counts of rape and sexual assault in Britain.`\
+https://nytimes.com/2025/12/23/arts/russell-brand-charges-rape-sexual-assault.html
+
 **A.I.’s ‘Circular Money Machine’**\
 `Nvidia, OpenAI and other major artificial intelligence companies all invest in one another. This carries some risks, as Bloomberg’s Joe Weisenthal explains on “The Ezra Klein Show.”`\
 https://nytimes.com/video/opinion/100000010591211/ais-circular-money-machine.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/12/23/arts/tv-film-race-solidarity-sinners-ragtime-lowd
 **Read the Essay on Gender by a University of Oklahoma Student**\
 `The paper by Samantha Fulnecky, an undergraduate, received a zero by the instructor and has stirred a debate about academic freedom.`\
 https://nytimes.com/interactive/2025/12/23/us/university-oklahoma-samantha-fulnecky-gender-essay.html
-
-**Fantasy football best and worst Week 17 matchups: Start Aaron Jones, Jake Ferguson**\
-`KC Joyner reviews the best and worst matchups in Week 17 to help with difficult start/sit decisions. `\
-https://nytimes.com/athletic/6913111/2025/12/23/fantasy-football-best-worst-matchups-week-17-aaron-jones/
-
-**Former Roomba C.E.O. Reminisces on 2008’s Viral ‘Shark Cat’ Meme**\
-`In conversation with Kevin Roose and Casey Newton on the “Hard Fork” podcast, the former Roomba C.E.O. Colin Angle shares how YouTube’s viral shark cat brought him joy in 2008.`\
-https://nytimes.com/video/technology/100000010606225/former-roomba-ceo-reminisces-on-2008s-viral-shark-cat-meme.html
-
-**Document Hinted at Further Prosecutions in Epstein Investigation**\
-`The 2020 email laid out the criminal charges and investigative steps that prosecutors were mulling at the time.`\
-https://nytimes.com/2025/12/23/us/politics/epstein-investigation-criminal-charges.html
 
