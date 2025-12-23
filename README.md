@@ -1,3 +1,7 @@
+**Supreme Court Refuses to Allow Trump to Deploy National Guard in Chicago**\
+`President Trump ordered state-based troops to Portland, Ore.; Los Angeles; Washington; and Chicago over the objections of state and local officials.`\
+https://nytimes.com/2025/12/23/us/politics/supreme-court-national-guard-chicago.html
+
 **‘60 Minutes’ Report Was Pulled Off the Air. Now It’s on the Internet.**\
 `At the last minute, CBS News held a segment about Venezuelan men who were deported by the Trump administration to a prison in El Salvador. It surfaced online anyway.`\
 https://nytimes.com/2025/12/23/business/media/60-minutes-cbs-news.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6915929/2025/12/23/kraken-vs-kings-stream-how-to-wa
 **How to watch Nuggets vs. Mavericks: Time, TV, streaming**\
 `Find out how to watch the Denver Nuggets play the Dallas Mavericks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6915924/2025/12/23/nuggets-vs-mavericks-stream-how-to-watch-dec-23/
-
-**How to watch Bulls vs. Hawks: Time, TV, streaming**\
-`Find out how to watch the Chicago Bulls play the Atlanta Hawks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6915922/2025/12/23/bulls-vs-hawks-stream-how-to-watch-dec-23/
 
