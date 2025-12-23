@@ -1,3 +1,7 @@
+**Full Time: ’Tis the season in Portland**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/6912797/2025/12/22/sophia-wilson-portland-full-time/
+
 **Brock Purdy's 5 TDs put Philip Rivers, Colts on the brink: Takeaways**\
 `Purdy's career night kept the 49ers in the hunt for the NFC's top seed and all damped the Colts' already faint playoff hopes.`\
 https://nytimes.com/athletic/6912776/2025/12/22/49ers-colts-score-result-takeaways-mnf-nfl/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/22/crosswords/daily-puzzle-2025-12-23.html
 **May Britt, 91, Dies; Her Marriage to Sammy Davis Jr. Sparked Outrage**\
 `She was a white actress, he was a popular Black entertainer, and their relationship elicited racist reactions in 1960, worrying John F. Kennedy’s presidential campaign.`\
 https://nytimes.com/2025/12/22/movies/may-britt-dead.html
-
-**Eagles sticking with Jake Elliott after three missed field goals**\
-`Elliott is well below his career numbers this season.`\
-https://nytimes.com/athletic/6912655/2025/12/22/eagles-jake-elliott-missed-field-goals/
 
