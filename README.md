@@ -1,3 +1,15 @@
+**Email From ‘A’ at ‘Balmoral’ Asks Maxwell About ‘Inappropriate Friends’**\
+`In an email sent to Ghislaine Maxwell in 2001, a sender writes about being at Balmoral, the British royal family’s summer residence in Scotland.`\
+https://nytimes.com/2025/12/23/us/politics/epstein-maxwell-balmoral-email.html
+
+**Jon Heacock, longtime Iowa State DC whose scheme took over Big 12, retires**\
+`Heacock has spent the last 12 years working for Matt Campbell, including two at Toledo before they left for Ames in 2016.`\
+https://nytimes.com/athletic/6914759/2025/12/23/jon-heacock-retires-isu-penn-state/
+
+**How Should We View the Middle East’s Legacy of Slavery?**\
+`In “Captives and Companions,” Justin Marozzi traces the stories of the eunuchs, harem women and forced laborers who underwrote empires in Asia and North Africa.`\
+https://nytimes.com/2025/12/23/books/review/captives-and-companions-justin-marozzi.html
+
 **Stephen Miller Cites Children of Immigrants as a Problem**\
 `As it seeks to end birthright citizenship, the Trump administration is arguing that immigrants bring problems that extend for generations. The data shows otherwise.`\
 https://nytimes.com/2025/12/23/us/politics/stephen-miller-trump-immigrants.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/12/23/us/politics/co-conspirators-epstein-case.html
 **‘The Queen of Versailles’ Bombed on Broadway. What Went Wrong?**\
 `The show reunited Kristin Chenoweth and Stephen Schwartz for the first time since “Wicked.” It wasn’t enough to counter poor word of mouth and other challenges.`\
 https://nytimes.com/2025/12/23/theater/queen-versailles-broadway-closing.html
-
-**Premier League big six Christmas fixture analysis: Who has it hardest?**\
-`Rating and analysing how each of the Big Six's fixture lists compare over Christmas and New Year.`\
-https://nytimes.com/athletic/6913679/2025/12/23/premier-league-big-six-christmas/
-
-**NFL Week 17 confidence picks: Jaguars and Seahawks are worthy road favorites**\
-`KC Joyner gives his straight-up and against-the-spread picks for the NFL's Week 17 slate.`\
-https://nytimes.com/athletic/6913259/2025/12/23/nfl-week-17-confidence-picks-jaguars-seahawks/
-
-**2026 Pro Bowl rosters: Ravens, Broncos, 49ers, Seahawks lead way with 6 selections**\
-`The Broncos have three first-timers among their six selections, while 49ers' Trent Williams and Kyle Juszczyk set positional records.`\
-https://nytimes.com/athletic/6914444/2025/12/23/2026-pro-bowl-games-rosters-nfl/
 
