@@ -1,3 +1,7 @@
+**Trump Administration Orders Nearly 30 U.S. Ambassadors to Leave Their Posts**\
+`A union representing career diplomats said such a mass recall had never happened in the history of the U.S. Foreign Service.`\
+https://nytimes.com/2025/12/22/us/politics/trump-administration-ambassadors-posts.html
+
 **White House Invitees Are Asked About Donations to Trump’s Ballroom**\
 `Senator Richard Blumenthal is requesting information from an architect hired to oversee the ballroom design and people invited to a donor dinner with the president.`\
 https://nytimes.com/2025/12/22/us/politics/white-house-donations-ballroom.html
