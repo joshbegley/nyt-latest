@@ -1,3 +1,7 @@
+**Israel Needs to Get Out of Trump’s Way**\
+`President Trump should press Prime Minister Benjamin Netanyahu to ease military pressure on Gaza, Lebanon and Syria for the sake of his own policy.`\
+https://nytimes.com/2025/12/23/opinion/israel-trump-netanyahu-syria-lebanon-gaza.html
+
 **Blunt Nottingham Forest must rediscover their edge to get clear of relegation fight**\
 `This was a fourth straight loss at Craven Cottage for Forest, whose lack on consistency is frustrating head coach Sean Dyche`\
 https://nytimes.com/athletic/6912558/2025/12/23/nottingham-forest-fulham-analysis-relegation/

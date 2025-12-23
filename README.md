@@ -1,3 +1,7 @@
+**How to watch LSU vs. Houston: Texas Bowl Start Time, TV, streaming**\
+`Find out how to watch the LSU Tigers play the Houston Cougars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6913051/2025/12/23/lsu-vs-houston-stream-how-to-watch-dec-27/
+
 **Blunt Nottingham Forest must rediscover their edge to get clear of relegation fight**\
 `This was a fourth straight loss at Craven Cottage for Forest, whose lack on consistency is frustrating head coach Sean Dyche`\
 https://nytimes.com/athletic/6912558/2025/12/23/nottingham-forest-fulham-analysis-relegation/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6896240/2025/12/23/sunderlands-2025-play-off-turnar
 **How a rare adjustment by Joe Mazzulla sparked a Celtics comeback win**\
 `Looking for a change of energy, Mazzulla pulled four of his second-half starters after the Celtics fell behind 69-49.`\
 https://nytimes.com/athletic/6912705/2025/12/23/celtics-joe-mazzulla-bench-performance-sparks-win/
-
-**Inside Newcastle Q&A: Will Nick Pope return as No 1? Is Lewis Miley ahead of Joelinton?**\
-`After another lead was thrown away, and with the transfer window about to open, The Athletic answers your pressing questions`\
-https://nytimes.com/athletic/6905896/2025/12/23/inside-newcastle-qa-will-nick-pope-return-as-no-1-is-lewis-miley-ahead-of-joelinton/
 
