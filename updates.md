@@ -1,3 +1,11 @@
+**Scoop City: If Rams are NFL's top team, who is No. 2?**\
+`Brock Purdy's remarkable performance, the NFL's No. 2 contender, Jake Ciely's 2026 breakout candidates and my wish list for next season`\
+https://nytimes.com/athletic/6916089/2025/12/23/nfl-best-team-2025-rams-seahawks-patriots/
+
+**Trump’s Tanker Crackdown Paralyzes Venezuelan Oil Exports**\
+`Oil exports, the country’s financial lifeblood, have plummeted after the United States took action against three ships that have been used to carry its crude.`\
+https://nytimes.com/2025/12/23/world/americas/trump-tankers-venezuela-oil-industry.html
+
 **Fantasy football strength of schedule: Week 17 matchup rankings**\
 `Jake Ciely's Week 17 matchup rankings can help you decide who to start and sit in the championship. `\
 https://nytimes.com/athletic/6916054/2025/12/23/fantasy-football-strength-of-schedule-week-17-matchup-rankings/
