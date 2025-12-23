@@ -1,3 +1,7 @@
+**Robert Nakamura, ‘Godfather’ of Asian American Film, Dies at 88**\
+`In his work, he often returned to Manzanar, the camp in which he and his family, along with thousands of other people of Japanese descent, were interned during World War II.`\
+https://nytimes.com/2025/12/23/movies/robert-nakamura-dead.html
+
 **Broncos longest-tenured players Bolles, Sutton finally earn Pro Bowl honors**\
 `Bolles, who made his first Pro Bowl at 33, pledged ahead of this season that he'd be "dominant player" for the Broncos — and he has.`\
 https://nytimes.com/athletic/6915754/2025/12/23/broncos-six-pro-bowl-selections-bolles-sutton/
@@ -21,8 +25,4 @@ https://nytimes.com/2025/12/23/nyregion/nypd-mental-health-exams-deal.html
 **Brooks Koepka leaving LIV Golf, citing family reasons**\
 `Koepka was one of several stars who left the PGA Tour in 2022 to join the upstart Saudi Arabian league.`\
 https://nytimes.com/athletic/6916178/2025/12/23/brooks-koepka-leaving-liv-golf/
-
-**Explosion at Pennsylvania Nursing Home Injures Several People**\
-`Multiple people were injured after a gas explosion caused a fire and a partial collapse of the Bristol Health and Rehab Center in Bristol, Pa., on Tuesday, according to authorities. Officials said that there were reports of people still trapped inside the building.`\
-https://nytimes.com/video/us/100000010607304/explosion-at-pennsylvania-nursing-home-injures-several-people.html
 
