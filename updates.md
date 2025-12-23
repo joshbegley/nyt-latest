@@ -1,3 +1,7 @@
+**TAFC: Dan Elkayam, footballer who 'united people' killed in Bondi. Plus: Salah saves Egypt**\
+`Jacob Whitehead is here with Tuesday's TAFC newsletter`\
+https://nytimes.com/athletic/6913134/2025/12/23/footballer-bondi-attacks-salah-egypt/
+
 **Why the A.I. Rally (and the Bubble Talk) Could Continue Next Year**\
 `Big Tech’s huge investment in artificial intelligence is making investors nervous. But the technology continues to advance, buoying the bulls.`\
 https://nytimes.com/2025/12/23/business/dealbook/ai-rally-bubble-2026.html
