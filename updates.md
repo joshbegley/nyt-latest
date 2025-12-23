@@ -1,3 +1,15 @@
+**It’s a Hard Forkin’ Christmas!**\
+`The “Hard Fork” co-hosts Kevin Roose and Casey Newton sing an original, tech-inspired rendition of “The Twelve Days of Christmas.”`\
+https://nytimes.com/video/technology/100000010606538/its-a-hard-forkin-christmas.html
+
+**Fantasy football best and worst Week 17 matchups: Start Aaron Jones, Jake Ferguson**\
+`KC Joyner reviews the best and worst matchups in Week 17 to help with difficult start/sit decisions. `\
+https://nytimes.com/athletic/6913111/2025/12/23/fantasy-football-best-worst-matchups-week-17-aaron-jones/
+
+**Document Hinted at Further Prosecutions in Epstein Investigation**\
+`The 2020 email laid out the criminal charges and investigative steps that prosecutors were mulling at the time.`\
+https://nytimes.com/2025/12/23/us/politics/epstein-investigation-criminal-charges.html
+
 **In 2025, They Asked What Racial Solidarity Really Looks Like**\
 `Across film (“Sinners,” “One Battle After Another”), theater (“Ragtime”) and TV (“The Lowdown”), four works suggested what achieving racial equality in America would take.`\
 https://nytimes.com/2025/12/23/arts/tv-film-race-solidarity-sinners-ragtime-lowdown.html
