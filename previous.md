@@ -1,3 +1,7 @@
+**Democratic Governors Are Fighting Trump’s War on Wind Energy**\
+`Leaders in Connecticut, Massachusetts, New York and Rhode Island are racing to save offshore wind farms targeted by the president.`\
+https://nytimes.com/2025/12/23/climate/governors-trump-offshore-wind.html
+
 **Robert Nakamura, ‘Godfather’ of Asian American Film, Dies at 88**\
 `In his work, he often returned to Manzanar, the camp in which he and his family, along with thousands of other people of Japanese descent, were interned during World War II.`\
 https://nytimes.com/2025/12/23/movies/robert-nakamura-dead.html
@@ -21,8 +25,4 @@ https://nytimes.com/athletic/6916057/2025/12/23/safesports-gymnastics-coaches-su
 **Officers Who Failed N.Y.P.D. Mental Health Exams Can Stay**\
 `The city and the union agreed to a 12-month probation for 30 officers. The department had moved to fire them after they failed psychological exams or background checks.`\
 https://nytimes.com/2025/12/23/nyregion/nypd-mental-health-exams-deal.html
-
-**Brooks Koepka leaving LIV Golf, citing family reasons**\
-`Koepka was one of several stars who left the PGA Tour in 2022 to join the upstart Saudi Arabian league.`\
-https://nytimes.com/athletic/6916178/2025/12/23/brooks-koepka-leaving-liv-golf/
 

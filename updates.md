@@ -1,3 +1,7 @@
+**Democratic Governors Are Fighting Trump’s War on Wind Energy**\
+`Leaders in Connecticut, Massachusetts, New York and Rhode Island are racing to save offshore wind farms targeted by the president.`\
+https://nytimes.com/2025/12/23/climate/governors-trump-offshore-wind.html
+
 **Louisville eats from giant bean-filled trophy to celebrate Bush's Boca Raton Bowl win**\
 `The Cardinals got the chance to participate in the latest postgame Boca Raton Bowl tradition after beating Toledo 27-22 on Tuesday.`\
 https://nytimes.com/athletic/6916125/2025/12/23/louisville-eats-beans-trophy-bushs-boca-raton-bowl/
