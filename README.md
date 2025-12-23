@@ -1,3 +1,7 @@
+**The lawsuit dividing tennis' biggest tournaments has its first player deal**\
+`Wimbledon and the French and U.S. Opens are still seeking to have the suit thrown out.`\
+https://nytimes.com/athletic/6913122/2025/12/23/tennis-lawsuit-ptpa-tennis-australia-settlement/
+
 **‘Jets Jake’ is the ring-searching, match-making (sort of) man behind the Kelce brothers**\
 `Jake Chatzky's life became surreal after he joined the Travis and Jason Kelce's 'New Heights' podcast.`\
 https://nytimes.com/athletic/6900951/2025/12/23/kelce-brothers-jets-jake-podcast-taylor-swift-nfl/
@@ -34,8 +38,4 @@ https://nytimes.com/issue/todaysinyt/2025/12/23/todays-new-york-times-internatio
 `Florian Wirtz is set to be fit for the visit of Wolverhampton Wanderers on Saturday, while Conor Bradley is rated a "50-50" chance to play.
 `\
 https://nytimes.com/athletic/6913148/2025/12/23/isak-liverpool-wirtz-injury-news/
-
-**Trump’s War on Public Health Is a Battle to the Death**\
-`The MAHA pipe dream is going to hurt MAGA the most.`\
-https://nytimes.com/2025/12/23/opinion/trump-kennedy-health-death-maga-maha.html
 

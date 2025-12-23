@@ -1,3 +1,8 @@
+**Slot confident Isak will make injury return for Liverpool this season**\
+`Florian Wirtz is set to be fit for the visit of Wolverhampton Wanderers on Saturday, while Conor Bradley is rated a "50-50" chance to play.
+`\
+https://nytimes.com/athletic/6913148/2025/12/23/isak-liverpool-wirtz-injury-news/
+
 **‘Jets Jake’ is the ring-searching, match-making (sort of) man behind the Kelce brothers**\
 `Jake Chatzky's life became surreal after he joined the Travis and Jason Kelce's 'New Heights' podcast.`\
 https://nytimes.com/athletic/6900951/2025/12/23/kelce-brothers-jets-jake-podcast-taylor-swift-nfl/
