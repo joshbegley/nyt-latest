@@ -1,3 +1,12 @@
+**The lawsuit dividing tennis' biggest tournaments has its first player deal**\
+`Wimbledon and the French and U.S. Opens are still seeking to have the suit thrown out.`\
+https://nytimes.com/athletic/6913122/2025/12/23/tennis-lawsuit-ptpa-tennis-australia-settlement/
+
+**Slot confident Isak will make injury return for Liverpool this season**\
+`Florian Wirtz is set to be fit for the visit of Wolverhampton Wanderers on Saturday, while Conor Bradley is rated a "50-50" chance to play.
+`\
+https://nytimes.com/athletic/6913148/2025/12/23/isak-liverpool-wirtz-injury-news/
+
 **Slot confident Isak will make injury return for Liverpool this season**\
 `Florian Wirtz is set to be fit for the visit of Wolverhampton Wanderers on Saturday, while Conor Bradley is rated a "50-50" chance to play.
 `\
