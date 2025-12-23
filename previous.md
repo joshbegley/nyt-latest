@@ -1,3 +1,11 @@
+**U.S. lifestyle entrepreneur Martha Stewart becomes minority owner of Swansea**\
+`Stewart, 84, joins rapper Snoop Dog and six-time Champions League winner Luka Modric as an investor in Swansea.`\
+https://nytimes.com/athletic/6915983/2025/12/23/martha-stewart-swansea-city/
+
+**NFL Week 17 model-projected scores and point totals for every game**\
+`Austin Mock's NFL model has projected point spreads and totals for every Week 17 game.`\
+https://nytimes.com/athletic/6915992/2025/12/23/nfl-week-17-projected-scores-model-point-spreads-totals/
+
 **Woman Dies in East Harlem When Scaffolding Collapses After Truck Crash**\
 `A garbage truck hit a parked vehicle, pushing it into the scaffolding, the police said.`\
 https://nytimes.com/2025/12/23/nyregion/nyc-scaffolding-crash.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/23/us/politics/supreme-court-national-guard-chicago.
 **‘60 Minutes’ Report Was Pulled Off the Air. Now It’s on the Internet.**\
 `At the last minute, CBS News held a segment about Venezuelan men who were deported by the Trump administration to a prison in El Salvador. It surfaced online anyway.`\
 https://nytimes.com/2025/12/23/business/media/60-minutes-cbs-news.html
-
-**Zelensky Calls Peace Plan ‘Quite Solid,’ Russia Then Launches Missiles**\
-`Tuesday morning, hours after President Volodymyr Zelensky of Ukraine said that the latest American-backed proposals for a peace deal between Kyiv and Moscow looked “quite solid,” Russia launched a series of drone and missiles strikes against Ukraine.`\
-https://nytimes.com/video/world/europe/100000010606899/russia-ukraine-bombing-peace-deal.html
-
-**Patriots have lengthy injury report with 'unfinished business' of playoff seeding ahead**\
-`After nine players were injured in Sunday's win, the Patriots could be without some key contributors in the final two regular-season games.`\
-https://nytimes.com/athletic/6915691/2025/12/23/patriots-injury-updates-treveyon-henderson/
 

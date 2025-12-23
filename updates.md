@@ -1,3 +1,11 @@
+**U.S. lifestyle entrepreneur Martha Stewart becomes minority owner of Swansea**\
+`Stewart, 84, joins rapper Snoop Dog and six-time Champions League winner Luka Modric as an investor in Swansea.`\
+https://nytimes.com/athletic/6915983/2025/12/23/martha-stewart-swansea-city/
+
+**NFL Week 17 model-projected scores and point totals for every game**\
+`Austin Mock's NFL model has projected point spreads and totals for every Week 17 game.`\
+https://nytimes.com/athletic/6915992/2025/12/23/nfl-week-17-projected-scores-model-point-spreads-totals/
+
 **Woman Dies in East Harlem When Scaffolding Collapses After Truck Crash**\
 `A garbage truck hit a parked vehicle, pushing it into the scaffolding, the police said.`\
 https://nytimes.com/2025/12/23/nyregion/nyc-scaffolding-crash.html
