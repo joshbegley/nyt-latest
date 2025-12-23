@@ -1,9 +1,13 @@
+**Vikings QB J.J. McCarthy to miss Christmas Day game vs. Lions with hand injury**\
+`The second-year quarterback injured his hand late in the first half of the Vikings' win Sunday over the Giants.`\
+https://nytimes.com/athletic/6911794/2025/12/23/jj-mccarthy-vikings-injury-update-hand/
+
 **10 Songs That Explain My Year**\
 `From Gustav Mahler to Lady Gaga, a peek into Lindsay’s past 12 months in music.`\
 https://nytimes.com/2025/12/23/arts/music/amplifier-newsletter-2025-defining-songs.html
 
 **Hopes for Mamdani’s Vision for Child Care**\
-`Readers respond to a guest essay on the best approaches for universal child care. Also: A gift that never grows old.`\
+`Readers respond to a guest essay on the incoming mayor’s universal child care plan. Also: A gift that never grows old.`\
 https://nytimes.com/2025/12/23/opinion/mamdani-child-care.html
 
 **British Police Drop Case Against Band That Chanted ‘Death, Death to the I.D.F.’**\
@@ -33,8 +37,4 @@ https://nytimes.com/video/opinion/100000010591212/is-ai-actually-a-bubble.html
 **Is Australia’s Social Media Ban for Kids a Good Idea?**\
 `On the “Hard Fork” podcast, the hosts Kevin Roose and Casey Newton discuss a new law in Australia barring kids under 16 from social media.`\
 https://nytimes.com/video/technology/100000010606588/is-australias-social-media-ban-for-kids-a-good-idea.html
-
-**Chelsea decide against Semenyo move following initial enquiry**\
-`The Stamford Bridge club admire Bournemouth’s Semenyo and made a late expression of interest`\
-https://nytimes.com/athletic/6915038/2025/12/23/antoine-semenyo-transfer-bournemouth-chelsea/
 

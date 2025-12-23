@@ -1,3 +1,11 @@
+**10 Songs That Explain My Year**\
+`From Gustav Mahler to Lady Gaga, a peek into Lindsay’s past 12 months in music.`\
+https://nytimes.com/2025/12/23/arts/music/amplifier-newsletter-2025-defining-songs.html
+
+**Hopes for Mamdani’s Vision for Child Care**\
+`Readers respond to a guest essay on the best approaches for universal child care. Also: A gift that never grows old.`\
+https://nytimes.com/2025/12/23/opinion/mamdani-child-care.html
+
 **British Police Drop Case Against Band That Chanted ‘Death, Death to the I.D.F.’**\
 `Bob Vylan, a punk rap duo, caused international outrage by chanting the message at the Glastonbury music festival this year.`\
 https://nytimes.com/2025/12/23/arts/music/bob-vylan-idf-chant.html
