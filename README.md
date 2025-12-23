@@ -34,7 +34,7 @@ https://nytimes.com/athletic/6854859/2025/12/23/aston-villa-2025-champions-leagu
 `Plenty has changed on and off the pitch for Everton in the past 12 months. These were some of the high - and low - points`\
 https://nytimes.com/athletic/6893347/2025/12/23/everton-2025-review-ndiaye-moyes-hill-dickinson/
 
-**Arsenal's 2025: Rice's magic vs Madrid, Merino steps up and injuries again take a toll**\
-`There were some historic Champions League performances and the team are top of the league at Christmas - but injuries again hit Arsenal`\
-https://nytimes.com/athletic/6878200/2025/12/23/arsenal-review-of-2025-rice-merino/
+**Wolves' 2025: Pereira's pints, the good and bad of Cunha – and a lot of losses**\
+`There have been a handful of positives for Wolverhampton Wanderers, but they have come amid a seemingly endless stream of grim moments`\
+https://nytimes.com/athletic/6893414/2025/12/23/wolves-2025-pereiras-pints-the-good-and-bad-of-cunha-and-a-lot-of-losses/
 
