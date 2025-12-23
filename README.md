@@ -2,7 +2,7 @@
 `Surpassing expectations and defying the odds, the Bears' grandest dreams have become realistic behind Ben Johnson and Caleb Williams.`\
 https://nytimes.com/athletic/6912246/2025/12/23/bears-playoffs-super-bowl-possibility/
 
-**Colts haven't officially been eliminated, but that's a formality: It's over**\
+**Colts haven't officially been eliminated yet, but that's just a formality: It's over**\
 `Philip Rivers brought 'juice' to the Colts, just not enough, after Monday night's loss dropped their playoff chances to 1 percent.`\
 https://nytimes.com/athletic/6912923/2025/12/23/colts-playoffs-formality-loss-49ers/
 
