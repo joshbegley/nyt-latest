@@ -1,40 +1,41 @@
+**‘Jets Jake’ is the ring-searching, match-making (sort of) man behind the Kelce brothers**\
+`Jake Chatzky's life became surreal after he joined the Travis and Jason Kelce's 'New Heights' podcast.`\
+https://nytimes.com/athletic/6900951/2025/12/23/kelce-brothers-jets-jake-podcast-taylor-swift-nfl/
+
+**Why a career platoon bat just signed the biggest contract of his life at age 34**\
+`Rob Refsnyder’s unusual career arc, and his deal with the Seattle Mariners, helps explain an entire industry’s shift in offensive approach.`\
+https://nytimes.com/athletic/6912434/2025/12/23/seattle-mariners-rob-refsnyder-contract-platoon-bat/
+
+**Reviewing NFL broadcasts: Where do streaming services fit in with traditional networks?**\
+`Streaming services have increasingly become a part of NFL broadcasts, but how do they stack up with the longtime league partners?`\
+https://nytimes.com/athletic/6911372/2025/12/23/nfl-broadcast-reviews-netflix-youtube-prime-espn/
+
+**MLB offseason tiers: Which teams are loading up, who is rebuilding, who is running it back?**\
+`With the offseason roughly halfway over, we're getting a firmer handle on how each of MLB's 30 clubs are operating this winter. `\
+https://nytimes.com/athletic/6911878/2025/12/23/mlb-offseason-tiers-adding-rebuilding/
+
+**NFL Week 17 power rankings: Seahawks soar to No. 1 as Broncos, Packers slide**\
+`This week's power rankings see the Seahawks leap into the top spot and the Jaguars continue to rise, while the Broncos and Packers drop.`\
+https://nytimes.com/athletic/6911522/2025/12/23/nfl-power-rankings-week-17-seahawks-broncos-packers/
+
+**To trade or not to trade? What history tells us about the Tigers and Tarik Skubal**\
+`The Detroit Tigers have three choices. Trade Skubal now, trade him midseason, or hold him for a playoff run. Each option has its problems. `\
+https://nytimes.com/athletic/6912512/2025/12/23/tarik-skubal-detroit-tigers-trade-possibilties/
+
+**QB stock report, Week 17: Why Trevor Lawrence is finally tapping into his limitless potential**\
+`Jags coach Liam Coen: “We haven’t changed a single thing from the moment we started coaching him. Sometimes, it just takes time to click."`\
+https://nytimes.com/athletic/6911192/2025/12/23/nfl-qb-stock-report-rankings-trevor-lawrence/
+
+**The New York Times International Edition in Print for Wednesday, Dec. 24, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/12/23/todays-new-york-times-international-edition
+
+**Slot confident Isak will make injury return for Liverpool this season**\
+`Florian Wirtz is set to be fit for the visit of Wolverhampton Wanderers on Saturday, while Conor Bradley is rated a "50-50" chance to play.
+`\
+https://nytimes.com/athletic/6913148/2025/12/23/isak-liverpool-wirtz-injury-news/
+
 **Trump’s War on Public Health Is a Battle to the Death**\
 `The MAHA pipe dream is going to hurt MAGA the most.`\
 https://nytimes.com/2025/12/23/opinion/trump-kennedy-health-death-maga-maha.html
-
-**Miracle on 64th Street: Options for Holiday Opera**\
-`Usually, holiday opera is scarce on major stages in New York. But this year, there are two at Lincoln Center alone.`\
-https://nytimes.com/2025/12/23/arts/music/amahl-and-the-night-visitors-the-magic-flute-review.html
-
-**What the Real-Life Marty Supreme Taught Me**\
-`When I first moved to New York City, Marty Reisman befriended me.`\
-https://nytimes.com/2025/12/23/opinion/culture/real-life-marty-supreme-reisman.html
-
-**Trump’s TikTok Deal Won’t Protect National Security**\
-`Trump’s deal preserves many of the ties to China that the law was designed to sever.`\
-https://nytimes.com/2025/12/23/opinion/tiktok-deal-national-security.html
-
-**Trump May Give 775 Acres of a Federal Wildlife Refuge to SpaceX**\
-`In exchange for the land in Texas, the rocket and satellite company would give the government some of its own property nearby, documents show.`\
-https://nytimes.com/2025/12/23/climate/spacex-land-exchange-texas.html
-
-**The Three Forces Deranging the Economy in 2025**\
-`Joe Weisenthal and Tracy Alloway, the hosts of the economics podcast “Odd Lots,” walk through how Trump’s tariffs, A.I. and the vibecession are making for a strange close to the year.`\
-https://nytimes.com/2025/12/23/opinion/ezra-klein-podcast-alloway-weisenthal.html
-
-**Influencers Get Their Night at the Opera as the Met Courts New Fans**\
-`The Metropolitan Opera has invited 70 influencers to help convince a younger, online audience that opera isn’t scary or even unaffordable.`\
-https://nytimes.com/2025/12/23/arts/music/met-opera-social-media-influencers.html
-
-**Quiz: Do You Speak 2025?**\
-`An assortment of absurd, useful and funny words and phrases entered the vernacular this year. How well do you know them?`\
-https://nytimes.com/2025/12/23/style/slang-quiz-2025.html
-
-**To Slobber and Protect: Bomb-Sniffing Dogs Kept an Election Safe**\
-`For their heroics after a wave of bomb threats in New Jersey on Election Day, more than two dozen dogs were presented with an award from the state attorney general.`\
-https://nytimes.com/2025/12/23/us/politics/bomb-sniffing-dogs-new-jersey-election.html
-
-**‘Emily in Paris’ Star Ashley Park’s 5 Favorite Places in Rome**\
-`Playing Emily’s spontaneous best friend, the actress discovered where to find good pasta and more when the popular Netflix series moved to Rome this season.`\
-https://nytimes.com/2025/12/23/travel/ashley-park-emily-in-paris-rome.html
 
