@@ -1,3 +1,7 @@
+**Siegel: The Maple Leafs chose an unusual half measure in firing Marc Savard**\
+`At this point, firing Savard screams "action!" while kicking the bigger can down the road.`\
+https://nytimes.com/athletic/6912498/2025/12/22/maple-leafs-savard-firing-berube-coach/
+
 **Trump Announces New ‘Trump Class’ of Warships**\
 `The president said development of the vessels would help maintain military superiority and improve the industrial base, but analysts suggested they were the wrong approach to current threats.`\
 https://nytimes.com/2025/12/22/us/politics/new-trump-class-warships.html
