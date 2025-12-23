@@ -1,5 +1,21 @@
+**Submit your questions for Kevin Fishbain's Bears mailbag**\
+`The Bears' magic number to clinch the NFC North is one as they head to the Bay Area to face the 49ers. Let's see your questions.`\
+https://nytimes.com/athletic/6915760/2025/12/23/submit-your-questions-for-kevin-fishbains-bears-mailbag-20/
+
+**Nigeria 2 Tanzania 1: Why did Iwobi stand out? Was Osimhen unlucky? How was Tanzania's magic moment?**\
+`We break down the talking points from Nigeria's opening game of AFCON`\
+https://nytimes.com/athletic/6911615/2025/12/23/nigeria-tanzania-afcon-iwobi-osimhen/
+
+**Oklahoma Instructor Who Failed Student’s Gender Essay That Cited Bible Is Fired**\
+`The instructor, a graduate student at the University of Oklahoma, gave a zero to a student who wrote an essay arguing in favor of traditional gender definitions based on biblical teachings.`\
+https://nytimes.com/2025/12/23/us/mel-curth-oklahoma-instructor-firing.html
+
+**What a 'retool in a little bit of a hybrid form' really means for the Canucks**\
+`Canucks hockey operations won't be moved by a short-term winning streak like the 4-1-0 road trip after the Quinn Hughes trade.`\
+https://nytimes.com/athletic/6915339/2025/12/23/canucks-retool-hybrid-rutherford-allvin-sherwood-demko/
+
 **Super Bowl odds: 3 NFC West teams are in the top 8**\
-`The Seahawks beat the Rams, but the Rams are still the BetMGM's favorite to win the Super Bowl.`\
+`The Seahawks beat the Rams, but the Rams are still BetMGM's favorite to win the Super Bowl.`\
 https://nytimes.com/athletic/6915182/2025/12/23/super-bowl-odds-rams-seahawks/
 
 **Chasing Spice and Street Food in India’s Pink City**\
@@ -10,7 +26,7 @@ https://nytimes.com/newsgraphics/card-story/jaipur-india-food
 `Semenyo's desire to win trophies is key to his decision.`\
 https://nytimes.com/athletic/6915594/2025/12/23/antoine-semenyo-manchester-city-transfer/
 
-**Vikings QB J.J. McCarthy to miss Christmas Day game vs. Lions with hand injury**\
+**Vikings QB J.J. McCarthy to miss Christmas Day game vs. Lions with hairline fracture in hand injury**\
 `The second-year quarterback injured his hand late in the first half of the Vikings' win Sunday over the Giants.`\
 https://nytimes.com/athletic/6911794/2025/12/23/jj-mccarthy-vikings-injury-update-hand/
 
@@ -21,20 +37,4 @@ https://nytimes.com/2025/12/23/arts/music/amplifier-newsletter-2025-defining-son
 **Hopes for Mamdani’s Vision for Child Care**\
 `Readers respond to a guest essay on the incoming mayor’s universal child care plan. Also: A gift that never grows old.`\
 https://nytimes.com/2025/12/23/opinion/mamdani-child-care.html
-
-**British Police Drop Case Against Band That Chanted ‘Death, Death to the I.D.F.’**\
-`Bob Vylan, a punk-rap duo, caused international outrage by chanting the message at the Glastonbury music festival this year.`\
-https://nytimes.com/2025/12/23/arts/music/bob-vylan-idf-chant.html
-
-**How Much Water Does the A.I. Industry Use?**\
-`Kevin Roose and Casey Newton, the hosts of “Hard Fork” at The New York Times, spoke with Andrew Marley, executive director for Effective Altruism DC, about how much water A.I. data centers use.`\
-https://nytimes.com/video/technology/100000010606632/how-much-water-does-the-ai-industry-use.html
-
-**Cubs reach one-year deal with Jacob Webb, reinforcing their bullpen: Sources**\
-`Webb is the sort of low-cost, low-risk bullpen signing the Cubs have found success with in recent years.`\
-https://nytimes.com/athletic/6915554/2025/12/23/cubs-jacob-webb-bullpen-signing/
-
-**Russell Brand Is Charged With Additional Counts of Rape and Sexual Assault**\
-`The actor, comedian and YouTuber now faces seven counts of rape and sexual assault in Britain.`\
-https://nytimes.com/2025/12/23/arts/russell-brand-charges-rape-sexual-assault.html
 

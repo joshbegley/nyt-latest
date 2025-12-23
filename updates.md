@@ -1,3 +1,27 @@
+**Submit your questions for Kevin Fishbain's Bears mailbag**\
+`The Bears' magic number to clinch the NFC North is one as they head to the Bay Area to face the 49ers. Let's see your questions.`\
+https://nytimes.com/athletic/6915760/2025/12/23/submit-your-questions-for-kevin-fishbains-bears-mailbag-20/
+
+**Nigeria 2 Tanzania 1: Why did Iwobi stand out? Was Osimhen unlucky? How was Tanzania's magic moment?**\
+`We break down the talking points from Nigeria's opening game of AFCON`\
+https://nytimes.com/athletic/6911615/2025/12/23/nigeria-tanzania-afcon-iwobi-osimhen/
+
+**Oklahoma Instructor Who Failed Student’s Gender Essay That Cited Bible Is Fired**\
+`The instructor, a graduate student at the University of Oklahoma, gave a zero to a student who wrote an essay arguing in favor of traditional gender definitions based on biblical teachings.`\
+https://nytimes.com/2025/12/23/us/mel-curth-oklahoma-instructor-firing.html
+
+**What a 'retool in a little bit of a hybrid form' really means for the Canucks**\
+`Canucks hockey operations won't be moved by a short-term winning streak like the 4-1-0 road trip after the Quinn Hughes trade.`\
+https://nytimes.com/athletic/6915339/2025/12/23/canucks-retool-hybrid-rutherford-allvin-sherwood-demko/
+
+**Super Bowl odds: 3 NFC West teams are in the top 8**\
+`The Seahawks beat the Rams, but the Rams are still BetMGM's favorite to win the Super Bowl.`\
+https://nytimes.com/athletic/6915182/2025/12/23/super-bowl-odds-rams-seahawks/
+
+**Vikings QB J.J. McCarthy to miss Christmas Day game vs. Lions with hairline fracture in hand injury**\
+`The second-year quarterback injured his hand late in the first half of the Vikings' win Sunday over the Giants.`\
+https://nytimes.com/athletic/6911794/2025/12/23/jj-mccarthy-vikings-injury-update-hand/
+
 **Super Bowl odds: 3 NFC West teams are in the top 8**\
 `The Seahawks beat the Rams, but the Rams are still the BetMGM's favorite to win the Super Bowl.`\
 https://nytimes.com/athletic/6915182/2025/12/23/super-bowl-odds-rams-seahawks/
