@@ -1,4 +1,8 @@
 **U.S. lifestyle entrepreneur Martha Stewart becomes minority owner of Swansea**\
+`Stewart, 84, joins rapper Snoop Dogg and six-time Champions League winner Luka Modric as an investor in Swansea.`\
+https://nytimes.com/athletic/6915983/2025/12/23/martha-stewart-swansea-city/
+
+**U.S. lifestyle entrepreneur Martha Stewart becomes minority owner of Swansea**\
 `Stewart, 84, joins rapper Snoop Dog and six-time Champions League winner Luka Modric as an investor in Swansea.`\
 https://nytimes.com/athletic/6915983/2025/12/23/martha-stewart-swansea-city/
 
