@@ -1,3 +1,7 @@
+**The Briefing - Arsenal 1 Crystal Palace 1 (8-7 pens): How big was this? Does Jesus help Martinelli? Nwaneri deserves a chance?**\
+`We break down the talking points from Arsenal's Carabao Cup quarter-final against Crystal Palace at the Emirates.`\
+https://nytimes.com/athletic/6911616/2025/12/23/arsenal-crystal-palace-carabao-cup/
+
 **The Briefing - Arsenal 1 Palace 1 (8-7 on pens): How big was this? Does Jesus help Martinelli? Nwaneri deserve a chance?**\
 `We break down the talking points from Arsenal's Carabao Cup quarter-final against Crystal Palace at the Emirates.`\
 https://nytimes.com/athletic/6911616/2025/12/23/arsenal-crystal-palace-carabao-cup/
