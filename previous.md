@@ -1,3 +1,7 @@
+**Nonalcoholic Smoky Citrus Punch**\
+`Historically, punch is an alcoholic drink, made with a spirit, sugar, citrus and spice, but this variation drops the spirit and doubles down on its other central components.`\
+https://nytimes.com/video/dining/100000010367311/nonalcoholic-smoky-citrus-punch.html
+
 **Kevin Porter Jr., Ryan Rollins click down the stretch in Giannis-less Bucks' win**\
 `After the Pacers got within single digits late in the fourth quarter, the Bucks' backcourt combo helped close out a win in Indiana.`\
 https://nytimes.com/athletic/6915745/2025/12/24/bucks-kevin-porter-jr-ryan-rollins-point-guards/
@@ -6,7 +10,7 @@ https://nytimes.com/athletic/6915745/2025/12/24/bucks-kevin-porter-jr-ryan-rolli
 `On the island of Djurgarden, the sisters behind the clothing line House of Dagmar hosted a traditional feast to celebrate the holiday and their friends.`\
 https://nytimes.com/2025/12/24/t-magazine/dagmar-julbord-holiday-party-stockholm.html
 
-**The Service Dogs Help Treat Veterans’ PTSD**\
+**The Service Dogs Helping Veterans With PTSD**\
 `There’s research suggesting that these four-legged “battle buddies” can reduce symptoms of depression and anxiety. But shortages and long wait times pose barriers.`\
 https://nytimes.com/2025/12/24/well/ptsd-service-dogs.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6917425/2025/12/24/terry-rozier-seeks-dismissal-cha
 **Prime Tire: Pick your top 10 F1 drivers of 2025**\
 `Welcome to Prime Tire, The Athletic's Formula One newsletter.`\
 https://nytimes.com/athletic/6916758/2025/12/24/formula-one-f1-driver-ranking-prime-tire/
-
-**What’s in Our Queue? Christmas Movies and More**\
-`Text by Nazaneen Ghaffar`\
-https://nytimes.com/card/2025/12/24/undefined/editors-recommendations-jazz
 

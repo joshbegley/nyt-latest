@@ -1,3 +1,7 @@
+**Crypto for Christmas? Gen Z-ers Are Cautiously Open to the Idea.**\
+`Despite recent volatility in the crypto market, younger generations are still open to receiving digital currencies as gifts.`\
+https://nytimes.com/2025/12/24/business/gen-z-crypto.html
+
 **Nonalcoholic Smoky Citrus Punch**\
 `Historically, punch is an alcoholic drink, made with a spirit, sugar, citrus and spice, but this variation drops the spirit and doubles down on its other central components.`\
 https://nytimes.com/video/dining/100000010367311/nonalcoholic-smoky-citrus-punch.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/01/07/us/palisades-brush-fires-snapshot-1
 **Heat's Terry Rozier seeks dismissal of charges in federal gambling case**\
 `Rozier was arrested in October along with 30 others.`\
 https://nytimes.com/athletic/6917425/2025/12/24/terry-rozier-seeks-dismissal-charges-betting-case/
-
-**Prime Tire: Pick your top 10 F1 drivers of 2025**\
-`Welcome to Prime Tire, The Athletic's Formula One newsletter.`\
-https://nytimes.com/athletic/6916758/2025/12/24/formula-one-f1-driver-ranking-prime-tire/
 
