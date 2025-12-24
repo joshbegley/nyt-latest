@@ -1,3 +1,11 @@
+**The Epstein File Releases Make Everything Worse**\
+`The fight was supposed to be about releasing them. But the way it’s being done seems designed to obscure the truth.`\
+https://nytimes.com/2025/12/24/opinion/epstein-file-release-truth.html
+
+**This Is What the Murder of a Whole City Looks Like**\
+`A militia accused of genocide has seized a city of a quarter-million people, and it now appears from satellites to be a ghost town.`\
+https://nytimes.com/2025/12/24/opinion/sudan-genocide.html
+
 **A Million More Epstein Documents Have Been Found, Justice Dept. Says**\
 `Democratic lawmakers, who had criticized the Justice Department’s release of the material, accused the Trump administration of violating the law mandating the release of the files.`\
 https://nytimes.com/2025/12/24/us/politics/epstein-files-documents-doj.html

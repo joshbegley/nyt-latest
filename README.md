@@ -1,3 +1,7 @@
+**Trump Tosses Lifelines to the Struggling Coal Industry**\
+`The Energy Department ordered two coal-burning power plants to remain open, and the Environmental Protection Agency gave utilities more time to tackle toxic coal ash.`\
+https://nytimes.com/2025/12/24/climate/coal-plant-closures-indiana.html
+
 **The Epstein File Releases Make Everything Worse**\
 `The fight was supposed to be about releasing them. But the way it’s being done seems designed to obscure the truth.`\
 https://nytimes.com/2025/12/24/opinion/epstein-file-release-truth.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6917883/2025/12/24/venus-williams-marries-andrea-pr
 **Texas A&M Will Not Reinstate Lecturer Fired Over Gender Lesson**\
 `The decision seemed likely to provoke a court battle in a state where Republican politicians have sought to influence public universities.`\
 https://nytimes.com/2025/12/24/us/texas-am-decline-reinstate-fired-faculty-member.html
-
-**Improving Flyers validating management's approach to ultimately building a winner**\
-`The Flyers placed importance on establishing a strong team culture as the foundation of their rebuild. It's starting to pay off.`\
-https://nytimes.com/athletic/6917834/2025/12/24/flyers-nhl-team-standings-rebuild/
 
