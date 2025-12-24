@@ -1,3 +1,7 @@
+**Sources: GK Coronel poised to back out of Orlando deal for São Paulo**\
+`The Brazil-born Paraguayan international had agreed to a deal with Orlando City but has backed out of it for an alternative`\
+https://nytimes.com/athletic/6918108/2025/12/24/carlos-coronel-orlando-city-sao-paulo/
+
 **Trump Tosses Lifelines to the Struggling Coal Industry**\
 `The Energy Department ordered two coal-burning power plants to remain open, and the Environmental Protection Agency gave utilities more time to tackle toxic coal ash.`\
 https://nytimes.com/2025/12/24/climate/coal-plant-closures-indiana.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6917933/2025/12/24/tj-watt-pittsburgh-steelers-prac
 **Venus Williams announces marriage to Andrea Preti**\
 `The couple were married in Florida over the weekend.`\
 https://nytimes.com/athletic/6917883/2025/12/24/venus-williams-marries-andrea-preti/
-
-**Texas A&M Will Not Reinstate Lecturer Fired Over Gender Lesson**\
-`The decision seemed likely to provoke a court battle in a state where Republican politicians have sought to influence public universities.`\
-https://nytimes.com/2025/12/24/us/texas-am-decline-reinstate-fired-faculty-member.html
 
