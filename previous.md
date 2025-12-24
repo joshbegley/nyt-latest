@@ -7,11 +7,11 @@ https://nytimes.com/video/weather/100000010608863/california-storm-weather-flood
 https://nytimes.com/2025/12/24/books/phyllis-lee-levin-dead.html
 
 **James Nnaji, former NBA first-round pick, commits to Baylor: Source**\
-`Nnaji will immediately join the team and he becomes the latest ex-pro to earn NCAA eligibility.`\
+`Nnaji will immediately join the team and becomes the latest ex-pro to earn NCAA eligibility.`\
 https://nytimes.com/athletic/6918026/2025/12/24/james-nnaji-commits-baylor-nba-draft-pick/
 
 **Honduras Declares Trump-Backed Candidate Winner of Presidential Election**\
-`Nasry Asfura was endorsed by President Trump in a contentious election. The process of counting votes experienced technical problems, revisions of disputed ballot boxes and claims of fraud.`\
+`Nasry Asfura was endorsed by President Trump in a contentious election and vote counting that experienced technical problems and claims of fraud.`\
 https://nytimes.com/2025/12/24/world/americas/honduras-election-results-asfura.html
 
 **Palau Agrees to Take Up to 75 Migrants From the U.S.**\
