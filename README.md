@@ -1,3 +1,7 @@
+**Venus Williams announces marriage to Andrea Preti**\
+`The couple were married in Florida over the weekend.`\
+https://nytimes.com/athletic/6917883/2025/12/24/venus-williams-marries-andrea-preti/
+
 **Texas A&M Will Not Reinstate Lecturer Fired Over Gender Lesson**\
 `The decision seemed likely to provoke a court battle in a state where Republican politicians have sought to influence public universities.`\
 https://nytimes.com/2025/12/24/us/texas-am-decline-reinstate-fired-faculty-member.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6764589/2025/12/24/sheffield-wednesday-james-bord-p
 **Luigi Mangione and Tyler Robinson Are a Worrying New Archetype**\
 `They complicate the narrative about political violence as well as our hopes for safety and justice.`\
 https://nytimes.com/2025/12/24/opinion/luigi-mangione-tyler-robinson-political-violence.html
-
-**‘Marty Supreme’ Review: Timothée Chalamet Sprints to the Top**\
-`The actor stars as a magnetic, striving table-tennis champ in Josh Safdie’s new movie, one of the most exciting movies of the year.`\
-https://nytimes.com/2025/12/24/movies/marty-supreme-review-timothee-chalamet.html
 
