@@ -1,3 +1,7 @@
+**Steelers' T.J. Watt returns to practice for first time since suffering partially collapsed lung**\
+`The Pro Bowl outside linebacker missed Pittsburgh's past two games.`\
+https://nytimes.com/athletic/6917933/2025/12/24/tj-watt-pittsburgh-steelers-practice-return-collapsed-lung/
+
 **Venus Williams announces marriage to Andrea Preti**\
 `The couple were married in Florida over the weekend.`\
 https://nytimes.com/athletic/6917883/2025/12/24/venus-williams-marries-andrea-preti/

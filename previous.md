@@ -1,3 +1,7 @@
+**Steelers' T.J. Watt returns to practice for first time since suffering partially collapsed lung**\
+`The Pro Bowl outside linebacker missed Pittsburgh's past two games.`\
+https://nytimes.com/athletic/6917933/2025/12/24/tj-watt-pittsburgh-steelers-practice-return-collapsed-lung/
+
 **Venus Williams announces marriage to Andrea Preti**\
 `The couple were married in Florida over the weekend.`\
 https://nytimes.com/athletic/6917883/2025/12/24/venus-williams-marries-andrea-preti/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6917734/2025/12/24/raiders-brock-bowers-injured-res
 **Consortium led by James Bord selected as Sheffield Wednesday preferred bidder**\
 `The bid beat a group led by American investor John McEvoy and the Chicago-based Storch family, and former Newcastle United owner Mike Ashley`\
 https://nytimes.com/athletic/6764589/2025/12/24/sheffield-wednesday-james-bord-preferred-bidder/
-
-**Luigi Mangione and Tyler Robinson Are a Worrying New Archetype**\
-`They complicate the narrative about political violence as well as our hopes for safety and justice.`\
-https://nytimes.com/2025/12/24/opinion/luigi-mangione-tyler-robinson-political-violence.html
 
