@@ -1,3 +1,11 @@
+**James Nnaji, former NBA first-round pick, commits to Baylor: Source**\
+`Nnaji will immediately join the team and he becomes the latest ex-pro to earn NCAA eligibility.`\
+https://nytimes.com/athletic/6918026/2025/12/24/james-nnaji-commits-baylor-nba-draft-pick/
+
+**Honduras Declares Trump-Backed Candidate Winner of Presidential Election**\
+`Nasry Asfura, a conservative, was endorsed by President Trump in a contentious vote that took weeks to conclude.`\
+https://nytimes.com/2025/12/24/world/americas/honduras-election-results-asfura.html
+
 **Palau Agrees to Take Up to 75 Migrants From the U.S.**\
 `The Pacific nation, with a population of 18,000, overcame the resistance of governmental leaders and advisers, to sign a memorandum of understanding with the U.S., and will get additional aid in return.`\
 https://nytimes.com/2025/12/24/us/politics/palau-us-migrants.html
