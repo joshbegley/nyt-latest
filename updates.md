@@ -1,3 +1,7 @@
+**CFP first-round ratings surge with brand-name matchups, dip for Group of 5**\
+`Alabama and Oklahoma notched 14.9 million viewers but Ole Miss-Tulane had 6.2 million viewers and Oregon-James Madison 4.4 million.`\
+https://nytimes.com/athletic/6916297/2025/12/23/college-football-playoff-first-round-viewership/
+
 **How to watch Giants vs. Raiders: Time, TV, streaming**\
 `Find out how to watch the New York Giants play the Las Vegas Raiders, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6916329/2025/12/23/giants-vs-raiders-stream-how-to-watch-dec-28/
