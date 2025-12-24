@@ -1,3 +1,15 @@
+**AL Central roundtable: Who will triumph in the race to 83 wins?**\
+`In a division that once again has no clear standout, who will do enough to get to the playoffs? `\
+https://nytimes.com/athletic/6911872/2025/12/24/al-central-roundtable-tigers-twins-guardians-royals-white-sox/
+
+**Long Carrier Deployment Projects U.S. Strength, and Carries Costs**\
+`The U.S.S. Ford has been deployed for six months, now in the Caribbean as part of President Trump’s pressure campaign on Venezuela. Maintenance woes and strains on sailors will likely mount.`\
+https://nytimes.com/2025/12/24/us/politics/aircraft-carrier-deployment-caribbean-costs.html
+
+**Why you’re spending Christmas with Netflix: MoneyCall**\
+`Welcome to MoneyCall, The Athletic's sports business newsletter.`\
+https://nytimes.com/athletic/6917412/2025/12/24/netflix-christmas-moneycall/
+
 **The Bounce: Eat up the NBA Christmas games with these perfect food pairings**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/6917381/2025/12/24/nba-christmas-food-spurs-thunder-the-bounce/
