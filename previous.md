@@ -1,3 +1,19 @@
+**Can an NFC North team win the Super Bowl? Our experts weigh in**\
+`How serious are the Bears as playoff contenders? Is the loss of Micah Parsons too much for the Packers to overcome? NFC North roundtable.`\
+https://nytimes.com/athletic/6916279/2025/12/24/bears-packers-lions-nfc-north-playoffs/
+
+**The Athletics are rising on the field, but will they spend now as they eye 2028?**\
+`The Athletics have a burgeoning core of young players. But they remain in something of an in-between phase ahead of their Las Vegas move. `\
+https://nytimes.com/athletic/6916229/2025/12/24/sacramento-las-vegas-athletics-roster-free-agency-stadium/
+
+**What's working (and not working) across the NBA's new TV landscape**\
+`Two of the NBA's three broadcast partners have changed, and the newcomers have added some welcome features. `\
+https://nytimes.com/athletic/6865583/2025/12/24/nba-tv-schedule-amazon-christmas/
+
+**Blast Kills Three in Moscow Near Site of General’s Car Bombing**\
+`Two police officers died in the explosion, the authorities said. Earlier this week a car bomb killed a military commander in the same area of Russia’s capital.`\
+https://nytimes.com/2025/12/24/world/europe/moscow-bomb-blast-police-officers.html
+
 **‘A Hard Time We Had of It’**\
 `A fitting poem for a transformative year.`\
 https://nytimes.com/2025/12/24/opinion/interesting-times-christmas-poem.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/12/24/us/ice-columbus-ohio-somalis-immigrants.html
 **The Year America Blew Up the Process**\
 `The 2025 revolt against process signaled the final collapse of a powerful idea that once promised to hold the country together.`\
 https://nytimes.com/2025/12/24/opinion/democracy-america-bureaucracy.html
-
-**Made in New York: The Magic of Holiday Windows in Stores**\
-`The windows date back decades and gave work to some famous artists. Today they are high tech but still aim to delight.`\
-https://nytimes.com/2025/12/24/nyregion/christmas-windows-department-stores.html
-
-**Kyle Pitts is closing strong, and the Falcons have a decision to make this offseason**\
-`Should the Falcons sign the young tight end to a second deal? Should they franchise tag him? Should they let him leave? A decision awaits.`\
-https://nytimes.com/athletic/6913806/2025/12/24/kyle-pitts-falcons-free-agent-franchise-tag/
-
-**Save Holiday Time With These Handy Smartphone Features**\
-`Try these useful shortcuts for sharing your Wi-Fi with guests, wrangling your to-do list or deciding what to do with family and friends.`\
-https://nytimes.com/2025/12/24/technology/personaltech/save-holiday-time-with-these-handy-smartphone-features.html
-
-**Warming Black-Eyed Peas to Welcome New Year’s Fortunes**\
-`David Tanis pairs his rich recipe with a bright cabbage salad and finishes it with some unforgettable spiced apple fritters.`\
-https://nytimes.com/2025/12/24/dining/new-years-eve-black-eyed-peas.html
 
