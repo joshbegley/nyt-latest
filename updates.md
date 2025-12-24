@@ -1,3 +1,7 @@
+**How to watch Bears vs. 49ers: Time, TV, streaming**\
+`Find out how to watch the Chicago Bears play the San Francisco 49ers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6916960/2025/12/24/bears-vs-49ers-stream-how-to-watch-dec-28/
+
 **Ben Stokes pledges support for under-fire players, Jofra Archer ruled out of rest of Ashes**\
 `Stokes has spoken to Ben Duckett, who will play at the MCG, after footage emerged on social media appearing to show the opener intoxicated`\
 https://nytimes.com/athletic/6916888/2025/12/24/ben-stokes-england-duckett-archer-ashes/

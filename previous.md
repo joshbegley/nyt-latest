@@ -1,3 +1,7 @@
+**How to watch Bears vs. 49ers: Time, TV, streaming**\
+`Find out how to watch the Chicago Bears play the San Francisco 49ers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6916960/2025/12/24/bears-vs-49ers-stream-how-to-watch-dec-28/
+
 **Ben Stokes pledges support for under-fire players, Jofra Archer ruled out of rest of Ashes**\
 `Stokes has spoken to Ben Duckett, who will play at the MCG, after footage emerged on social media appearing to show the opener intoxicated`\
 https://nytimes.com/athletic/6916888/2025/12/24/ben-stokes-england-duckett-archer-ashes/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6913087/2025/12/24/xabi-alonso-real-madrid-perez-vi
 **Newcastle United at Christmas after a life-changing 2025**\
 `On a day that Newcastle gives back to its community, The Athletic speaks to Eddie Howe, Bruno Guimaraes and others about a remarkable year`\
 https://nytimes.com/athletic/6914786/2025/12/24/newcastle-united-at-christmas-after-a-life-changing-2025/
-
-**Shamal George interview: Ex-Liverpool keeper on cup final success and playing up front for Klopp**\
-`The 27-year-old has forged a successful career away from Anfield - we speak to the goalkeeper about recent success and what the future holds`\
-https://nytimes.com/athletic/6913535/2025/12/24/shamal-george-liverpool-interview/
 

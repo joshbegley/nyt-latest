@@ -1,3 +1,7 @@
+**Australian State Passes ‘Extraordinary’ Gun, Protest Laws After Bondi Attack**\
+`While the new restrictions on firearms have broad support, new police powers to crack down on some protests were criticized as limits on civil liberties.`\
+https://nytimes.com/2025/12/24/world/australia/nsw-gun-protest-laws.html
+
 **How to watch Bears vs. 49ers: Time, TV, streaming**\
 `Find out how to watch the Chicago Bears play the San Francisco 49ers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6916960/2025/12/24/bears-vs-49ers-stream-how-to-watch-dec-28/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6916753/2025/12/24/wild-faber-oreilly-penalty-kill-
 **Xabi Alonso has made it to Christmas, but there's little comfort and joy at Real Madrid**\
 `The 44-year-old has survived an intense spell of pressure at the Bernabeu, but January will bring a tougher test`\
 https://nytimes.com/athletic/6913087/2025/12/24/xabi-alonso-real-madrid-perez-vinicius-jr-christmas/
-
-**Newcastle United at Christmas after a life-changing 2025**\
-`On a day that Newcastle gives back to its community, The Athletic speaks to Eddie Howe, Bruno Guimaraes and others about a remarkable year`\
-https://nytimes.com/athletic/6914786/2025/12/24/newcastle-united-at-christmas-after-a-life-changing-2025/
 
