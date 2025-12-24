@@ -1,3 +1,7 @@
+**Honduras Declares Trump-Backed Candidate Winner of Presidential Election**\
+`Nasry Asfura was endorsed by President Trump in a contentious election. His opponent, Salvador Nasralla, said he would not accept the results.`\
+https://nytimes.com/2025/12/24/world/americas/honduras-election-results-asfura.html
+
 **The Small Parisian Shop That’s Become a Retail Phenomenon**\
 `With her six-month-old store, Rubirosa’s, the designer Lauren Rubinski offers a colorful take on old-world charm.`\
 https://nytimes.com/2025/12/24/t-magazine/-parisian-shop-rubirosas.html
