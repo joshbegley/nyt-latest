@@ -1,3 +1,7 @@
+**In Private Letters, Harvard and Trump Administration Escalate Duel**\
+`It is the latest twist in the marquee battle of the administration’s campaign to rein in colleges and universities it views as too liberal.`\
+https://nytimes.com/2025/12/24/us/trump-harvard-letters-deal.html
+
 **Tiny Love Stories: ‘It’s Not Easy to Please a Woman’**\
 `To celebrate the season, we gathered five of our favorite holiday-themed Tiny Love Stories.`\
 https://nytimes.com/2025/12/24/style/tiny-modern-love-stories-its-not-easy-to-please-a-woman.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6917704/2025/12/24/la-galaxy-justin-haak-nycfc-mls-
 **Mixed Grades for Home-Schooling**\
 `Readers offer personal stories in response to a guest essay critical of home-schooling.`\
 https://nytimes.com/2025/12/24/opinion/letters/home-schooling-debate.html
-
-**QB Josh Johnson to start for Commanders vs. Cowboys on Christmas Day**\
-`The team will also sign practice squad quarterback Sam Hartman to the active roster and designate him as the emergency third quarterback.`\
-https://nytimes.com/athletic/6917763/2025/12/24/josh-johnson-commanders-qb-cowboys-christmas-day/
 
