@@ -1,3 +1,11 @@
+**Mixed Grades for Home-Schooling**\
+`Readers offer personal stories in response to a guest essay critical of home-schooling.`\
+https://nytimes.com/2025/12/24/opinion/letters/home-schooling-debate.html
+
+**QB Josh Johnson to start for Commanders vs. Cowboys on Christmas Day**\
+`The team will also sign practice squad quarterback Sam Hartman to the active roster and designate him as the emergency third quarterback.`\
+https://nytimes.com/athletic/6917763/2025/12/24/qb-josh-johnson-to-start-for-commanders-vs-cowboys-on-christmas-day/
+
 **How a Scholar Nudged the Supreme Court Toward Its Troop Deployment Ruling**\
 `Accepting an argument from a law professor that no party to the case had made, the Supreme Court handed the Trump administration a stinging loss that could lead to more aggressive tactics.`\
 https://nytimes.com/2025/12/24/us/politics/georgetown-scholar-supreme-court.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6916790/2025/12/24/marco-rossi-canucks/
 **Trump’s Seizures of Oil Tankers Challenge Maritime Rules and Customs**\
 `Recent U.S. actions against ships near Venezuela may embolden other countries to seize or detain ships, legal experts said.`\
 https://nytimes.com/2025/12/24/business/trump-venezuela-oil-tankers.html
-
-**To maximize Draymond Green, Warriors must accept the player he is today**\
-`Amid the latest Draymond Green drama, the Warriors need to adjust to the reality of what he brings now — and what his best purpose is.`\
-https://nytimes.com/athletic/6917518/2025/12/24/draymond-green-warriors-role-playoffs/
-
-**NFL still reviewing behavior of fan involved in DK Metcalf altercation**\
-`Metcalf's two-game suspension was upheld by the NFL on Tuesday.`\
-https://nytimes.com/athletic/6917527/2025/12/24/dk-metcalf-altercation-detroit-lions-fan-behavior/
 

@@ -1,3 +1,7 @@
+**How a Scholar Nudged the Supreme Court Toward Its Troop Deployment Ruling**\
+`Accepting an argument from a law professor that no party to the case had made, the Supreme Court handed the Trump administration a stinging loss that could lead to more aggressive tactics.`\
+https://nytimes.com/2025/12/24/us/politics/georgetown-scholar-supreme-court.html
+
 **Why Spurs-Thunder has all the makings of the NBA's next big rivalry**\
 `The Spurs have beaten the Thunder twice in 10 days, setting up a Christmas showdown that the NBA world will certainly be watching.`\
 https://nytimes.com/athletic/6916976/2025/12/24/spurs-thunder-rivalry-wembanyama-holmgren-nba/
