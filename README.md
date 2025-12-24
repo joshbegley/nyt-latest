@@ -1,3 +1,15 @@
+**Consortium led by James Bord selected as Sheffield Wednesday preferred bidder**\
+`The bid beat a group led by American investor John McEvoy and the Chicago-based Storch family, and former Newcastle United owner Mike Ashley`\
+https://nytimes.com/athletic/6764589/2025/12/24/sheffield-wednesday-james-bord-preferred-bidder/
+
+**Luigi Mangione and Tyler Robinson Are a Worrying New Archetype**\
+`They complicate the narrative about political violence as well as our hopes for safety and justice.`\
+https://nytimes.com/2025/12/24/opinion/luigi-mangione-tyler-robinson-political-violence.html
+
+**‘Marty Supreme’ Review: Timothée Chalamet Sprints to the Top**\
+`The actor stars as a magnetic, striving table-tennis champ in Josh Safdie’s new movie, one of the most exciting movies of the year.`\
+https://nytimes.com/2025/12/24/movies/marty-supreme-review-timothee-chalamet.html
+
 **Marlins to sign reliever Pete Fairbanks: Sources**\
 `Pete Fairbanks' 75 saves over the last three years rank 12th among all relievers.`\
 https://nytimes.com/athletic/6852285/2025/12/24/mlb-pete-fairbanks-free-agency-signing-marlins/
@@ -12,7 +24,7 @@ https://nytimes.com/2025/12/24/opinion/letters/home-schooling-debate.html
 
 **QB Josh Johnson to start for Commanders vs. Cowboys on Christmas Day**\
 `The team will also sign practice squad quarterback Sam Hartman to the active roster and designate him as the emergency third quarterback.`\
-https://nytimes.com/athletic/6917763/2025/12/24/qb-josh-johnson-to-start-for-commanders-vs-cowboys-on-christmas-day/
+https://nytimes.com/athletic/6917763/2025/12/24/josh-johnson-commanders-qb-cowboys-christmas-day/
 
 **How a Scholar Nudged the Supreme Court Toward Its Troop Deployment Ruling**\
 `Accepting an argument from a law professor that no party to the case had made, the Supreme Court handed the Trump administration a stinging loss that could lead to more aggressive tactics.`\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6916976/2025/12/24/spurs-thunder-rivalry-wembanyama
 **Shelters Won’t Let My Mother Adopt a Dog. Can I Pretend It’s for Me?**\
 `Which is the more ethical course: honoring the system’s ageist rules, or bending those rules in service of compassion?`\
 https://nytimes.com/2025/12/24/magazine/dog-adoption-ethics.html
-
-**Team USA finalizes 2026 World Juniors roster: Who are the final cuts?**\
-`Team USA's roster is set, albeit not without questions going into the tournament — especially in net.`\
-https://nytimes.com/athletic/6917710/2025/12/24/team-usa-2026-world-juniors-roster-cuts/
-
-**Rice Krispies Treats**\
-`These classic treats are salty-sweet and the perfect balance of crispy, gooey, soft and chewy. This version, inspired by the one Julia Moskin adapted from the chef Colin Alevras for The Times in 2007, is also enhanced by deeply browned butter.`\
-https://nytimes.com/video/dining/100000010367386/rice-krispies-treats.html
-
-**Classic Shrimp Scampi**\
-`Scampi are tiny, lobster-like crustaceans with pale pink shells (also called langoustines).`\
-https://nytimes.com/video/dining/100000010367420/classic-shrimp-scampi.html
 
