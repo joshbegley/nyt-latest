@@ -1,3 +1,11 @@
+**Here’s the latest on the fires.**\
+`By Corina Knoll, Orlando Mayorquín and Alexandra E. Petri`\
+https://nytimes.com/live/2025/12/24/us/palisades-brush-fires-snapshot-1/heres-the-latest-on-the-fires
+
+**Live Updates: Officials Warn of ‘Devastating Loss’ as Southern California Wildfires Burn Out of Control**\
+`Parts of Santa Monica were ordered to be evacuated as fast-moving flames destroyed homes along the coast in Los Angeles. Officials warned that winds would pick up overnight, fueling the fire.`\
+https://nytimes.com/live/2025/01/07/us/palisades-brush-fires-snapshot-1
+
 **Heat's Terry Rozier seeks dismissal of charges in federal gambling case**\
 `Rozier was arrested in October along with 30 others.`\
 https://nytimes.com/athletic/6917425/2025/12/24/terry-rozier-seeks-dismissal-charges-betting-case/
