@@ -1,3 +1,11 @@
+**With last orders at the Winslow Hotel, we should raise a glass to the football pub**\
+`As clubs, including Everton, leave their old stadiums behind, the pubs beloved of match-going fans for generations have struggled to survive`\
+https://nytimes.com/athletic/6884654/2025/12/24/everton-winslow-hotel-premier-league-arsenal/
+
+**The Alternative Premier League Table: No 18 – the Xmas xG check-in**\
+`As the Christmas fixtures approach, we look at the under- and over-performing teams in the English top flight`\
+https://nytimes.com/athletic/6914729/2025/12/24/alternative-premier-league-table-expected-goals/
+
 **Ayto interview: Brighton's sporting director on Hurzeler, transfer plans, and leaving Arsenal**\
 `Brighton's new sporting director tells The Athletic about what he learnt at Arsenal and how he can bring that to the south coast`\
 https://nytimes.com/athletic/6893923/2025/12/24/jason-ayto-interview-brighton-sporting-director-on-arsenal-hurzeler-and-january-transfers/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6914551/2025/12/24/connections-sports-edition-hints
 **Fantasy football rankings Week 17: Sleepers, starts, best Christmas songs and more**\
 `Looking for crucial Week 17 fantasy football championship guidance? Jake Ciely has made his rankings lists and checked them twice.`\
 https://nytimes.com/athletic/6911764/2025/12/24/fantasy-football-rankings-week-17-sleepers-starts-best-christmas-songs-and-more/
-
-**A Vintage Kabul Cinema Finally Falls to Taliban Bulldozers**\
-`Built during a cosmopolitan era in the 1960s, the Ariana was closed when the Taliban were in power but still standing. Now it’s making way for a shopping mall.`\
-https://nytimes.com/2025/12/24/world/asia/kabul-cinema-taliban-ariana.html
-
-**Corrections: Dec. 24, 2025**\
-`Corrections that appeared in print on Wednesday, Dec. 24, 2025.`\
-https://nytimes.com/2025/12/23/pageoneplus/corrections-dec-24-2025.html
 
