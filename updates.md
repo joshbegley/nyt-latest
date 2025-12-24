@@ -1,3 +1,7 @@
+**West Coast vibes remain high for surging Pistons**\
+`Detroit's turnaround began on last year's West Coast road trip. A win in Sacramento on Tuesday night kept the good times rolling.`\
+https://nytimes.com/athletic/6917052/2025/12/24/pistons-chemistry-win-sacramento/
+
 **Lowetide: Oilers prospect Ike Howard is on a historic scoring pace in the AHL**\
 `Howard is posting offensive totals that rival some of the best players in Oilers minor-league history.`\
 https://nytimes.com/athletic/6915033/2025/12/24/edmonton-oilers-prospect-ike-howard-stats-ahl/

@@ -1,3 +1,7 @@
+**West Coast vibes remain high for surging Pistons**\
+`Detroit's turnaround began on last year's West Coast road trip. A win in Sacramento on Tuesday night kept the good times rolling.`\
+https://nytimes.com/athletic/6917052/2025/12/24/pistons-chemistry-win-sacramento/
+
 **Lowetide: Oilers prospect Ike Howard is on a historic scoring pace in the AHL**\
 `Howard is posting offensive totals that rival some of the best players in Oilers minor-league history.`\
 https://nytimes.com/athletic/6915033/2025/12/24/edmonton-oilers-prospect-ike-howard-stats-ahl/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6915991/2025/12/24/college-football-playoff-michiga
 **Dane Brugler breaks down players to know for the Cowboys in 2026 NFL Draft**\
 `The Cowboys need upgrades at several key defensive positions going into next season.`\
 https://nytimes.com/athletic/6916492/2025/12/24/cowboys-nfl-draft-expert-needs/
-
-**The Photos That Defined Business and the Economy in 2025**\
-`Our photojournalists and others have captured images of how major changes from Washington and elsewhere rippled across the world.`\
-https://nytimes.com/2025/12/24/business/dealbook/musk-trump-mamdani-pictures-of-the-year.html
 
