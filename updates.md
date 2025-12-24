@@ -1,3 +1,7 @@
+**The Bounce: Eat up the NBA Christmas games with these perfect food pairings**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/6917381/2025/12/24/nba-christmas-food-spurs-thunder-the-bounce/
+
 **There Are Children in My House Who Don’t Speak English. Help!**\
 `A reader faults her husband’s relatives for not teaching their young children any English, which she worries may make for an awkward holiday visit.`\
 https://nytimes.com/2025/12/24/style/holiday-visit-language-barrier.html

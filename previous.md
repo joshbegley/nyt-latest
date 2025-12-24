@@ -1,3 +1,7 @@
+**The Bounce: Eat up the NBA Christmas games with these perfect food pairings**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/6917381/2025/12/24/nba-christmas-food-spurs-thunder-the-bounce/
+
 **There Are Children in My House Who Don’t Speak English. Help!**\
 `A reader faults her husband’s relatives for not teaching their young children any English, which she worries may make for an awkward holiday visit.`\
 https://nytimes.com/2025/12/24/style/holiday-visit-language-barrier.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/the-athletic/100000010607908/must-see-moments-from-the
 **Cooper Flagg puts on a show in front of twin brother in win over Nuggets**\
 `"He's really impressive," Denver coach David Adelman said after Flagg went for 33 points, nine rebounds and nine assists.`\
 https://nytimes.com/athletic/6916876/2025/12/24/cooper-flagg-mavericks-nuggets/
-
-**Mandel's Mailbag: What should the CFP value most? Plus, Jim Harbaugh and accountability**\
-`G5 blowouts in the CFP reignited debate over who truly deserves a spot; and how much blame should fall on Jim Harbaugh for Michigan’s mess?`\
-https://nytimes.com/athletic/6915991/2025/12/24/college-football-playoff-michigan-jim-harbaugh/
 
