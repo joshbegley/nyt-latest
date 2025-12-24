@@ -1,3 +1,7 @@
+**Blast Kills Three in Moscow Near Site of General’s Car Bombing**\
+`Two police officers died in the explosion, the authorities said. Earlier this week a car bomb killed a military commander in the same area of Russia’s capital.`\
+https://nytimes.com/2025/12/24/world/europe/moscow-bomb-blast-police-officers.html
+
 **‘A Hard Time We Had of It’**\
 `A fitting poem for a transformative year.`\
 https://nytimes.com/2025/12/24/opinion/interesting-times-christmas-poem.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6913806/2025/12/24/kyle-pitts-falcons-free-agent-fr
 **Save Holiday Time With These Handy Smartphone Features**\
 `Try these useful shortcuts for sharing your Wi-Fi with guests, wrangling your to-do list or deciding what to do with family and friends.`\
 https://nytimes.com/2025/12/24/technology/personaltech/save-holiday-time-with-these-handy-smartphone-features.html
-
-**Warming Black-Eyed Peas to Welcome New Year’s Fortunes**\
-`David Tanis pairs his rich recipe with a bright cabbage salad and finishes it with some unforgettable spiced apple fritters.`\
-https://nytimes.com/2025/12/24/dining/new-years-eve-black-eyed-peas.html
 
