@@ -3,7 +3,7 @@
 https://nytimes.com/2025/12/24/us/texas-am-decline-reinstate-fired-faculty-member.html
 
 **Improving Flyers validating management's approach to ultimately building a winner**\
-`The Flyers placed importance on establishing a strong team culture as the foundation of their rebuild. Now, it's starting to pay off.`\
+`The Flyers placed importance on establishing a strong team culture as the foundation of their rebuild. It's starting to pay off.`\
 https://nytimes.com/athletic/6917834/2025/12/24/flyers-nhl-team-standings-rebuild/
 
 **New Charges Could Carry Death Penalty in Attack on National Guard Members in D.C.**\
