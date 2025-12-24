@@ -1,3 +1,7 @@
+**Maple Leafs have a long climb ahead, but a win over Penguins was the first step**\
+`A day after firing assistant coach Marc Savard, the Leafs finally found their firepower after blowing a 3-1 lead on Tuesday.`\
+https://nytimes.com/athletic/6916418/2025/12/23/maple-leafs-domi-maccelli-berube-penguins/
+
 **Judge Blocks Conditions Imposed on States Seeking FEMA Grants**\
 `The Trump administration had sought to require states to account for population losses tied to deportations in order to receive emergency preparedness grants.`\
 https://nytimes.com/2025/12/23/us/politics/trump-fema-grants-states-population.html
