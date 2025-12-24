@@ -1,4 +1,4 @@
-**West Coast vibes remain high for surging Pistons**\
+**West Coast vibes remain high for the surging Pistons**\
 `Detroit's turnaround began on last year's West Coast road trip. A win in Sacramento on Tuesday night kept the good times rolling.`\
 https://nytimes.com/athletic/6917052/2025/12/24/pistons-chemistry-win-sacramento/
 
@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6917052/2025/12/24/pistons-chemistry-win-sacramento
 https://nytimes.com/athletic/6915033/2025/12/24/edmonton-oilers-prospect-ike-howard-stats-ahl/
 
 **Clippers finally win second in a row behind Kawhi Leonard's season-high**\
-`Leonard and the Clippers hadn't won consecutive games since the second and third games of the season before beating Houston Tuesday night.`\
+`The Clippers hadn't won two in a row since the second and third games of the season before beating Houston on Tuesday night.`\
 https://nytimes.com/athletic/6916941/2025/12/24/clippers-kawhi-leonard-win-rockets/
 
 **Trump Administration Live Updates: Supreme Court Decision Casts Doubt on National Guard Deployments**\
