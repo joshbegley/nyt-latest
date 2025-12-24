@@ -1,3 +1,7 @@
+**Must-See Moments from the N.B.A.**\
+`The San Antonio Spurs beat the Oklahoma City Thunder for the second time in 10 days, while Cooper Flagg notched his first 30-point home game for the Dallas Mavericks.`\
+https://nytimes.com/video/the-athletic/100000010607908/must-see-moments-from-the-nba.html
+
 **Cooper Flagg puts on a show in front of twin brother in win over Nuggets**\
 `"He's really impressive," Denver coach David Adelman said after Flagg went for 33 points, nine rebounds and nine assists.`\
 https://nytimes.com/athletic/6916876/2025/12/24/cooper-flagg-mavericks-nuggets/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6916397/2025/12/24/brooks-koepka-liv-golf-exit-pga-
 **Dillon Brooks' stat line in Suns' win over the Lakers: all points, no dirt**\
 `Brooks is just the sixth NBA player to register 25 points and five zeros since the league began tracking turnovers during the 1977-78 season`\
 https://nytimes.com/athletic/6917003/2025/12/24/dillon-brooks-rare-stat-line-suns-lakers/
-
-**Rain Begins in Southern California as Region Braces for Intense Storm**\
-`Heavy rain, strong winds, flooding and debris flow could affect Los Angeles County and the surrounding areas on Christmas Eve and Christmas Day.`\
-https://nytimes.com/2025/12/24/weather/rain-flooding-los-angeles-storm.html
 
