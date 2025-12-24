@@ -1,3 +1,7 @@
+**The Epstein Files Should Not Have Been Released This Way**\
+`The fight was supposed to be about releasing them. But the way it’s being done seems designed to obscure the truth.`\
+https://nytimes.com/2025/12/24/opinion/epstein-file-release-truth.html
+
 **Sources: GK Coronel poised to back out of Orlando deal for São Paulo**\
 `The Brazil-born Paraguayan international had agreed to a deal with Orlando City but has backed out of it for an alternative`\
 https://nytimes.com/athletic/6918108/2025/12/24/carlos-coronel-orlando-city-sao-paulo/
