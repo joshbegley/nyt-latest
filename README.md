@@ -1,3 +1,11 @@
+**Rice Krispies Treats**\
+`These classic treats are salty-sweet and the perfect balance of crispy, gooey, soft and chewy. This version, inspired by the one Julia Moskin adapted from the chef Colin Alevras for The Times in 2007, is also enhanced by deeply browned butter.`\
+https://nytimes.com/video/dining/100000010367386/rice-krispies-treats.html
+
+**Classic Shrimp Scampi**\
+`Scampi are tiny, lobster-like crustaceans with pale pink shells (also called langoustines).`\
+https://nytimes.com/video/dining/100000010367420/classic-shrimp-scampi.html
+
 **What I’m seeing from Marco Rossi and how the Canucks can unlock his upside**\
 `Here's a closer look at what Rossi brings to the table, including both the strengths and question marks of his game.`\
 https://nytimes.com/athletic/6916790/2025/12/24/marco-rossi-canucks/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6915745/2025/12/24/bucks-kevin-porter-jr-ryan-rolli
 **It Isn’t Swedish Christmas Without Three Kinds of Herring**\
 `On the island of Djurgarden, the sisters behind the clothing line House of Dagmar hosted a traditional feast to celebrate the holiday and their friends.`\
 https://nytimes.com/2025/12/24/t-magazine/dagmar-julbord-holiday-party-stockholm.html
-
-**The Service Dogs Helping Veterans With PTSD**\
-`There’s research suggesting that these four-legged “battle buddies” can reduce symptoms of depression and anxiety. But shortages and long wait times pose barriers.`\
-https://nytimes.com/2025/12/24/well/ptsd-service-dogs.html
-
-**The Best Songs of 2025, Part 2**\
-`Jon Caramanica, host of The Times’s “Popcast,” reveals his top five songs of the year in a crowded and fragmented year in pop.`\
-https://nytimes.com/video/podcasts/100000010607586/the-best-songs-of-2025-part-2.html
 
