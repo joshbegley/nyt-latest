@@ -1,3 +1,7 @@
+**An Immigrant Nurse Is Among the Dead From Blasts at a Troubled Nursing Home**\
+`Muthoni Nduthu was one of two killed by explosions at an eastern Pennsylvania facility that was plagued by poor ratings, citations and fines from the federal government.`\
+https://nytimes.com/2025/12/24/us/politics/nursing-home-blast.html
+
 **The Strange Death of Make America Great Again**\
 `Trump has begun to recede from the movement he created.`\
 https://nytimes.com/2025/12/24/opinion/turning-points-americafest-maga.html
