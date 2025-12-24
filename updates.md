@@ -1,3 +1,7 @@
+**Trump Tosses Lifelines to the Struggling Coal Industry**\
+`The Energy Department ordered two coal-burning power plants to remain open, and the Environmental Protection Agency gave utilities more time to tackle toxic coal ash.`\
+https://nytimes.com/2025/12/24/climate/coal-plant-closures-indiana.html
+
 **The Epstein File Releases Make Everything Worse**\
 `The fight was supposed to be about releasing them. But the way it’s being done seems designed to obscure the truth.`\
 https://nytimes.com/2025/12/24/opinion/epstein-file-release-truth.html
