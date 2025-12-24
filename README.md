@@ -1,3 +1,15 @@
+**Ayto interview: Brighton's sporting director on Hurzeler, transfer plans, and leaving Arsenal**\
+`Brighton's new sporting director tells The Athletic about what he learnt at Arsenal and how he can bring that to the south coast`\
+https://nytimes.com/athletic/6893923/2025/12/24/jason-ayto-interview-brighton-sporting-director-on-arsenal-hurzeler-and-january-transfers/
+
+**Inside Greek football’s rebirth: from Euro 2004 to the Battle of Thermopylae**\
+`An ambitious new plans for reforming football will blend a creative and technical approach with ideas drawn from national mythology`\
+https://nytimes.com/athletic/6896033/2025/12/24/inside-greek-footballs-rebirth-from-euro-2004-to-the-battle-of-thermopylae/
+
+**Rodon interview: 'I felt like a new car kept in the garage for four years. It's like I'm fresh'**\
+`The defender has made 115 Leeds appearances — and has never played this frequently for any club before United. He is in uncharted territory`\
+https://nytimes.com/athletic/6908448/2025/12/24/joe-rodon-leeds-tottenham-interview/
+
 **Reigning champs USA beats Finland in final World Juniors pre-tournament game**\
 `The first impressions of this Team USA left something to be desired despite the win in what was a tight-checking, low-event match.`\
 https://nytimes.com/athletic/6916788/2025/12/24/usa-world-juniors-finland-win-stats/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/12/24/world/asia/kabul-cinema-taliban-ariana.html
 **Corrections: Dec. 24, 2025**\
 `Corrections that appeared in print on Wednesday, Dec. 24, 2025.`\
 https://nytimes.com/2025/12/23/pageoneplus/corrections-dec-24-2025.html
-
-**Quote of the Day: YouTube Dominates the Daytime, And Rivals Are Trying to Respond**\
-`Quotation of the Day for Wednesday, December 24, 2025.`\
-https://nytimes.com/2025/12/23/pageoneplus/quote-of-the-day-youtube-dominates-the-daytime-and-rivals-are-trying-to-respond.html
-
-**Nuggets' Cameron Johnson injures right leg vs. Mavericks, to undergo MRI**\
-`With 9:18 remaining against the Mavericks, Johnson fell to the ground and clutched at his right knee.`\
-https://nytimes.com/athletic/6916709/2025/12/23/cam-johnson-injury-right-knee-nuggets-mavericks/
-
-**19 States Sue to Block White House Plan to End Gender-Related Care for Minors**\
-`The coalition of states seeks to stop a Trump administration effort to cut off federal funding to hospitals that provide such care.`\
-https://nytimes.com/2025/12/23/us/states-lawsuit-kennedy-gender-care-hospitals.html
 
