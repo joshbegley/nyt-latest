@@ -1,3 +1,7 @@
+**Crypto for Christmas? Gen Z-ers Are Cautiously Open to the Idea.**\
+`Despite recent volatility in the crypto market, younger generations are still open to receiving digital currencies as gifts.`\
+https://nytimes.com/2025/12/24/business/gen-z-crypto.html
+
 **Nonalcoholic Smoky Citrus Punch**\
 `Historically, punch is an alcoholic drink, made with a spirit, sugar, citrus and spice, but this variation drops the spirit and doubles down on its other central components.`\
 https://nytimes.com/video/dining/100000010367311/nonalcoholic-smoky-citrus-punch.html
