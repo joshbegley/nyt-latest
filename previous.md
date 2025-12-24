@@ -1,3 +1,11 @@
+**Trump’s Seizures of Oil Tankers Challenge Maritime Rules and Customs**\
+`Recent U.S. actions against ships near Venezuela may embolden other countries to seize or detain ships, legal experts said.`\
+https://nytimes.com/2025/12/24/business/trump-venezuela-oil-tankers.html
+
+**To maximize Draymond Green, Warriors must accept the player he is today**\
+`Amid the latest Draymond Green drama, the Warriors need to adjust to the reality of what he brings now — and what his best purpose is.`\
+https://nytimes.com/athletic/6917518/2025/12/24/draymond-green-warriors-role-playoffs/
+
 **NFL still reviewing behavior of fan involved in DK Metcalf altercation**\
 `Metcalf's two-game suspension was upheld by the NFL on Tuesday.`\
 https://nytimes.com/athletic/6917527/2025/12/24/dk-metcalf-altercation-detroit-lions-fan-behavior/
@@ -29,12 +37,4 @@ https://nytimes.com/video/podcasts/100000010607586/the-best-songs-of-2025-part-2
 **Cinnamon Rolls, but Make Them a Cake**\
 `No yeast, no proofing, just a big Bundt cake — cloaked in cream cheese frosting, of course — from Genevieve Ko.`\
 https://nytimes.com/2025/12/24/dining/cinnamon-rolls-but-make-them-a-cake.html
-
-**Here’s the latest on the fires.**\
-`By Corina Knoll, Orlando Mayorquín and Alexandra E. Petri`\
-https://nytimes.com/live/2025/01/07/us/palisades-brush-fires-snapshot-1/heres-the-latest-on-the-fires
-
-**Live Updates: Officials Warn of ‘Devastating Loss’ as Southern California Wildfires Burn Out of Control**\
-`Parts of Santa Monica were ordered to be evacuated as fast-moving flames destroyed homes along the coast in Los Angeles. Officials warned that winds would pick up overnight, fueling the fire.`\
-https://nytimes.com/live/2025/01/07/us/palisades-brush-fires-snapshot-1
 
