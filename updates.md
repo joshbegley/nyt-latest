@@ -1,3 +1,11 @@
+**Corrections: Dec. 24, 2025**\
+`Corrections that appeared in print on Wednesday, Dec. 24, 2025.`\
+https://nytimes.com/2025/12/23/pageoneplus/corrections-dec-24-2025.html
+
+**Quote of the Day: YouTube Dominates the Daytime, And Rivals Are Trying to Respond**\
+`Quotation of the Day for Wednesday, December 24, 2025.`\
+https://nytimes.com/2025/12/23/pageoneplus/quote-of-the-day-youtube-dominates-the-daytime-and-rivals-are-trying-to-respond.html
+
 **Nuggets' Cameron Johnson injures right leg vs. Mavericks, to undergo MRI**\
 `With 9:18 remaining against the Mavericks, Johnson fell to the ground and clutched at his right knee.`\
 https://nytimes.com/athletic/6916709/2025/12/23/cam-johnson-injury-right-knee-nuggets-mavericks/
