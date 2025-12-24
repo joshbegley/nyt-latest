@@ -1,3 +1,7 @@
+**Raiders TE Brock Bowers placed on IR ahead of pivotal game vs. Giants**\
+`The Raiders, now without Bowers for the rest of the season, face the Giants in a game that may determine who wins the No. 1 draft pick.`\
+https://nytimes.com/athletic/6917734/2025/12/24/raiders-brock-bowers-injured-reserve-giants/
+
 **Consortium led by James Bord selected as Sheffield Wednesday preferred bidder**\
 `The bid beat a group led by American investor John McEvoy and the Chicago-based Storch family, and former Newcastle United owner Mike Ashley`\
 https://nytimes.com/athletic/6764589/2025/12/24/sheffield-wednesday-james-bord-preferred-bidder/

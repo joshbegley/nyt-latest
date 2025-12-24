@@ -1,3 +1,7 @@
+**Raiders TE Brock Bowers placed on IR ahead of pivotal game vs. Giants**\
+`The Raiders, now without Bowers for the rest of the season, face the Giants in a game that may determine who wins the No. 1 draft pick.`\
+https://nytimes.com/athletic/6917734/2025/12/24/raiders-brock-bowers-injured-reserve-giants/
+
 **Consortium led by James Bord selected as Sheffield Wednesday preferred bidder**\
 `The bid beat a group led by American investor John McEvoy and the Chicago-based Storch family, and former Newcastle United owner Mike Ashley`\
 https://nytimes.com/athletic/6764589/2025/12/24/sheffield-wednesday-james-bord-preferred-bidder/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/24/us/politics/georgetown-scholar-supreme-court.html
 **Why Spurs-Thunder has all the makings of the NBA's next big rivalry**\
 `The Spurs have beaten the Thunder twice in 10 days, setting up a Christmas showdown that the NBA world will certainly be watching.`\
 https://nytimes.com/athletic/6916976/2025/12/24/spurs-thunder-rivalry-wembanyama-holmgren-nba/
-
-**Shelters Won’t Let My Mother Adopt a Dog. Can I Pretend It’s for Me?**\
-`Which is the more ethical course: honoring the system’s ageist rules, or bending those rules in service of compassion?`\
-https://nytimes.com/2025/12/24/magazine/dog-adoption-ethics.html
 
