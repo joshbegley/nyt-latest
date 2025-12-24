@@ -1,3 +1,7 @@
+**Here’s What Is in the 20-Point Peace Plan for Ukraine**\
+`The blueprint covers a broad range of issues, including territory, security guarantees and postwar reconstruction. But Russia has indicated little willingness to end the war.`\
+https://nytimes.com/2025/12/24/world/europe/what-is-in-the-20-point-ukraine-peace-plan.html
+
 **NWSL's new 'high impact' rule privileges a small pool of superstars – and they must be marketable**\
 `The league has risked losing power with its new rule, which benefits European players and U.S. internationals in particular.`\
 https://nytimes.com/athletic/6917069/2025/12/24/nwsl-rodman-rule-marketable-high-impact/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6911378/2025/12/24/vikings-andrew-depaola-all-pro-l
 **John Harbaugh not focused on job security, but the Ravens have decisions to make**\
 `Baltimore is in the process of authoring arguably the most disappointing regular season in franchise history. `\
 https://nytimes.com/athletic/6916575/2025/12/24/ravens-coach-john-harbaugh-job-security/
-
-**Wolves beat Knicks, as Julius Randle and Karl-Anthony Towns flex their muscles**\
-`Traded for each other right before last season began, Randle and Towns both showed out in Minnesota's win Tuesday night at Target Center.`\
-https://nytimes.com/athletic/6916430/2025/12/24/randle-towns-timberwolves-win-knicks/
 

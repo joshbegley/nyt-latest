@@ -1,3 +1,7 @@
+**Here’s What Is in the 20-Point Peace Plan for Ukraine**\
+`The blueprint covers a broad range of issues, including territory, security guarantees and postwar reconstruction. But Russia has indicated little willingness to end the war.`\
+https://nytimes.com/2025/12/24/world/europe/what-is-in-the-20-point-ukraine-peace-plan.html
+
 **NWSL's new 'high impact' rule privileges a small pool of superstars – and they must be marketable**\
 `The league has risked losing power with its new rule, which benefits European players and U.S. internationals in particular.`\
 https://nytimes.com/athletic/6917069/2025/12/24/nwsl-rodman-rule-marketable-high-impact/
