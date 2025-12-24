@@ -20,7 +20,7 @@ https://nytimes.com/athletic/6916297/2025/12/23/college-football-playoff-first-r
 
 **How to watch Giants vs. Raiders: Time, TV, streaming**\
 `Find out how to watch the New York Giants play the Las Vegas Raiders, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6916329/2025/12/23/giants-vs-raiders-stream-how-to-watch-dec-28/
+https://nytimes.com/athletic/6916329/2025/12/23/how-to-watch-giants-vs-raiders-tv-channel-and-streaming-options-for-december-28/
 
 **How to watch Eagles vs. Bills: Time, TV, streaming**\
 `Find out how to watch the Philadelphia Eagles play the Buffalo Bills, with time, TV channel and streaming information.`\
