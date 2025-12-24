@@ -1,4 +1,8 @@
-**Norwegian biathlete dies during Olympic training camp**\
+**Byram plays hero as Sabres push winning streak to 7: 3 thoughts**\
+`The Sabres head into the holiday break with the longest win streak in the league.`\
+https://nytimes.com/athletic/6916696/2025/12/23/sabres-byram-ostlund-senators/
+
+**Norwegian biathlete dies during Olympic training camp in Italy**\
 `Bakken was planning to compete in the upcoming Milan-Cortina Winter Olympics.`\
 https://nytimes.com/athletic/6916630/2025/12/23/sivert-bakken-norwegian-biathlete-dies-olympic-training/
 
@@ -14,7 +18,7 @@ https://nytimes.com/video/podcasts/100000010607564/the-best-songs-of-2025-part-1
 `Ella Dershowitz forges ahead.`\
 https://nytimes.com/2025/12/23/crosswords/daily-puzzle-2025-12-24.html
 
-**Karl-Anthony Towns notches 24-point half vs. Timberwolves, reflects on Minnesota**\
+**Still fond of Minnesota, Karl-Anthony Towns scores 40 points in loss to Timberwolves**\
 `Towns scored 24 of his 40 points in the first half against his former team Tuesday night. Minnesota beat the Knicks 115-104.`\
 https://nytimes.com/athletic/6916610/2025/12/23/anthony-towns-24-points-first-half-knicks-timberwolves/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/23/arts/music/sean-combs-diddy-appeal-sentence.html
 **A Democrat, a Republican and a Supermarket Baron Go to ‘Marty Supreme’**\
 `A “Marty Supreme” showing took a political turn when John Catsimatidis, who has a small role in the movie, invited both Gov. Kathy Hochul and her Republican rival, Bruce Blakeman.`\
 https://nytimes.com/2025/12/23/nyregion/hochul-blakeman-red-carpet.html
-
-**Maple Leafs have a long climb ahead, but a win over Penguins was the first step**\
-`A day after firing assistant coach Marc Savard, the Leafs finally found their firepower after blowing a 3-1 lead on Tuesday.`\
-https://nytimes.com/athletic/6916418/2025/12/23/maple-leafs-domi-maccelli-berube-penguins/
 

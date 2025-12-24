@@ -1,3 +1,15 @@
+**Byram plays hero as Sabres push winning streak to 7: 3 thoughts**\
+`The Sabres head into the holiday break with the longest win streak in the league.`\
+https://nytimes.com/athletic/6916696/2025/12/23/sabres-byram-ostlund-senators/
+
+**Norwegian biathlete dies during Olympic training camp in Italy**\
+`Bakken was planning to compete in the upcoming Milan-Cortina Winter Olympics.`\
+https://nytimes.com/athletic/6916630/2025/12/23/sivert-bakken-norwegian-biathlete-dies-olympic-training/
+
+**Still fond of Minnesota, Karl-Anthony Towns scores 40 points in loss to Timberwolves**\
+`Towns scored 24 of his 40 points in the first half against his former team Tuesday night. Minnesota beat the Knicks 115-104.`\
+https://nytimes.com/athletic/6916610/2025/12/23/anthony-towns-24-points-first-half-knicks-timberwolves/
+
 **Norwegian biathlete dies during Olympic training camp**\
 `Bakken was planning to compete in the upcoming Milan-Cortina Winter Olympics.`\
 https://nytimes.com/athletic/6916630/2025/12/23/sivert-bakken-norwegian-biathlete-dies-olympic-training/
