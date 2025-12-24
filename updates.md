@@ -1,3 +1,11 @@
+**19 States Sue to Block White House Plan to End Gender-Related Care for Minors**\
+`The coalition of states seeks to stop a Trump administration effort to cut off federal funding to hospitals that provide such care.`\
+https://nytimes.com/2025/12/23/us/states-lawsuit-kennedy-gender-care-hospitals.html
+
+**Cooper Flagg trades buckets with Jokić, building up Rookie of the Year case**\
+`Flagg’s flashes continue showing why Dallas could have brighter days ahead with him in the fold.`\
+https://nytimes.com/athletic/6916622/2025/12/23/cooper-flagg-nikola-jokic-nuggests-mavs-rookie/
+
 **Byram plays hero as Sabres push winning streak to 7: 3 thoughts**\
 `The Sabres head into the holiday break with the longest win streak in the league.`\
 https://nytimes.com/athletic/6916696/2025/12/23/sabres-byram-ostlund-senators/

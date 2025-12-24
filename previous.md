@@ -1,3 +1,11 @@
+**19 States Sue to Block White House Plan to End Gender-Related Care for Minors**\
+`The coalition of states seeks to stop a Trump administration effort to cut off federal funding to hospitals that provide such care.`\
+https://nytimes.com/2025/12/23/us/states-lawsuit-kennedy-gender-care-hospitals.html
+
+**Cooper Flagg trades buckets with Jokić, building up Rookie of the Year case**\
+`Flagg’s flashes continue showing why Dallas could have brighter days ahead with him in the fold.`\
+https://nytimes.com/athletic/6916622/2025/12/23/cooper-flagg-nikola-jokic-nuggests-mavs-rookie/
+
 **Byram plays hero as Sabres push winning streak to 7: 3 thoughts**\
 `The Sabres head into the holiday break with the longest win streak in the league.`\
 https://nytimes.com/athletic/6916696/2025/12/23/sabres-byram-ostlund-senators/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/climate/antarctica-thwaites-glacier/antarctica-tra
 **Judge Blocks Conditions Imposed on States Seeking FEMA Grants**\
 `The Trump administration had sought to require states to account for population losses tied to deportations in order to receive emergency preparedness grants.`\
 https://nytimes.com/2025/12/23/us/politics/trump-fema-grants-states-population.html
-
-**Sean Combs’s Lawyers File Appeal, Arguing His Sentence Was Unjust**\
-`The mogul’s lawyers say that a judge issued an excessively steep sentence for prostitution offenses after Mr. Combs was acquitted of more serious charges.`\
-https://nytimes.com/2025/12/23/arts/music/sean-combs-diddy-appeal-sentence.html
-
-**A Democrat, a Republican and a Supermarket Baron Go to ‘Marty Supreme’**\
-`A “Marty Supreme” showing took a political turn when John Catsimatidis, who has a small role in the movie, invited both Gov. Kathy Hochul and her Republican rival, Bruce Blakeman.`\
-https://nytimes.com/2025/12/23/nyregion/hochul-blakeman-red-carpet.html
 
