@@ -1,3 +1,15 @@
+**Cooper Flagg puts on a show in front of twin brother in win over Nuggets**\
+`"He's really impressive," Denver coach David Adelman said after Flagg went for 33 points, nine rebounds and nine assists.`\
+https://nytimes.com/athletic/6916876/2025/12/24/cooper-flagg-mavericks-nuggets/
+
+**Mandel's Mailbag: What should the CFP value most? Plus, Jim Harbaugh and accountability**\
+`G5 blowouts in the CFP reignited debate over who truly deserves a spot; and how much blame should fall on Jim Harbaugh for Michigan’s mess?`\
+https://nytimes.com/athletic/6915991/2025/12/24/college-football-playoff-michigan-jim-harbaugh/
+
+**Dane Brugler breaks down players to know for the Cowboys in 2026 NFL Draft**\
+`The Cowboys need upgrades at several key defensive positions going into next season.`\
+https://nytimes.com/athletic/6916492/2025/12/24/cowboys-nfl-draft-expert-needs/
+
 **The Photos That Defined Business and the Economy in 2025**\
 `Our photojournalists and others have captured images of how major changes from Washington and elsewhere rippled across the world.`\
 https://nytimes.com/2025/12/24/business/dealbook/musk-trump-mamdani-pictures-of-the-year.html
