@@ -1,3 +1,7 @@
+**Packers' Jordan Love appears on track to face Ravens: 'He's looked really good'**\
+`Love was still in concussion protocol on Wednesday, but teammates offered rave reviews of his practice performance.`\
+https://nytimes.com/athletic/6918238/2025/12/24/packers-jordan-love-on-track-ravens/
+
 **Honduras Declares Trump-Backed Candidate Winner of Presidential Election**\
 `Nasry Asfura was endorsed by President Trump in a contentious election. His opponent, Salvador Nasralla, said he would not accept the results.`\
 https://nytimes.com/2025/12/24/world/americas/honduras-election-results-asfura.html

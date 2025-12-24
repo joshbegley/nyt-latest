@@ -1,3 +1,7 @@
+**Packers' Jordan Love appears on track to face Ravens: 'He's looked really good'**\
+`Love was still in concussion protocol on Wednesday, but teammates offered rave reviews of his practice performance.`\
+https://nytimes.com/athletic/6918238/2025/12/24/packers-jordan-love-on-track-ravens/
+
 **The Small Parisian Shop That’s Become a Retail Phenomenon**\
 `With her six-month-old store, Rubirosa’s, the designer Lauren Rubinski offers a colorful take on old-world charm.`\
 https://nytimes.com/2025/12/24/t-magazine/-parisian-shop-rubirosas.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/24/world/americas/honduras-election-results-asfura.h
 **Palau Agrees to Take Up to 75 Migrants From the U.S.**\
 `The Pacific nation, with a population of 18,000, overcame the resistance of governmental leaders and advisers, to sign a memorandum of understanding with the U.S., and will get additional aid in return.`\
 https://nytimes.com/2025/12/24/us/politics/palau-us-migrants.html
-
-**Where are all the games? Why Christmas Eve historically lacks sports**\
-`Christmas Eve hasn't hosted an NBA or NHL game since 1972. `\
-https://nytimes.com/athletic/6918070/2025/12/24/christmas-eve-sports-games-hawaii-bowl/
 
