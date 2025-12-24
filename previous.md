@@ -1,3 +1,7 @@
+**The Small Parisian Shop That’s Become a Retail Phenomenon**\
+`With her six-month-old store, Rubirosa’s, the designer Lauren Rubinski offers a colorful take on old-world charm.`\
+https://nytimes.com/2025/12/24/t-magazine/-parisian-shop-rubirosas.html
+
 **T Magazine’s Favorite Food Stories of 2025**\
 `From a debate about the best seafood in Tokyo to a recipe for red velvet babka, these are some of the most intriguing and appetizing features we published this year.`\
 https://nytimes.com/2025/12/24/t-magazine/favorite-food-stories-recipes.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/24/us/politics/palau-us-migrants.html
 **Where are all the games? Why Christmas Eve historically lacks sports**\
 `Christmas Eve hasn't hosted an NBA or NHL game since 1972. `\
 https://nytimes.com/athletic/6918070/2025/12/24/christmas-eve-sports-games-hawaii-bowl/
-
-**Sources: GK Coronel poised to back out of Orlando deal for São Paulo**\
-`The Brazil-born Paraguayan international had agreed to a deal with Orlando City but has backed out of it for an alternative`\
-https://nytimes.com/athletic/6918108/2025/12/24/carlos-coronel-orlando-city-sao-paulo/
 

@@ -27,7 +27,7 @@ https://nytimes.com/2025/12/24/books/phyllis-lee-levin-dead.html
 https://nytimes.com/athletic/6918026/2025/12/24/james-nnaji-commits-baylor-nba-draft-pick/
 
 **Honduras Declares Trump-Backed Candidate Winner of Presidential Election**\
-`Nasry Asfura was endorsed by President Trump in a contentious election and vote counting that experienced technical problems and claims of fraud.`\
+`Nasry Asfura was endorsed by President Trump in a contentious election. His opponent, Salvador Nasralla, said he would not accept the results.`\
 https://nytimes.com/2025/12/24/world/americas/honduras-election-results-asfura.html
 
 **Palau Agrees to Take Up to 75 Migrants From the U.S.**\

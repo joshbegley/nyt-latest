@@ -1,3 +1,7 @@
+**The Small Parisian Shop That’s Become a Retail Phenomenon**\
+`With her six-month-old store, Rubirosa’s, the designer Lauren Rubinski offers a colorful take on old-world charm.`\
+https://nytimes.com/2025/12/24/t-magazine/-parisian-shop-rubirosas.html
+
 **T Magazine’s Favorite Food Stories of 2025**\
 `From a debate about the best seafood in Tokyo to a recipe for red velvet babka, these are some of the most intriguing and appetizing features we published this year.`\
 https://nytimes.com/2025/12/24/t-magazine/favorite-food-stories-recipes.html
