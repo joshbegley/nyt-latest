@@ -1,3 +1,7 @@
+**Australian State Passes ‘Extraordinary’ Gun, Protest Laws After Bondi Attack**\
+`While the new restrictions on firearms have broad support, new police powers to crack down on some protests were criticized as limits on civil liberties.`\
+https://nytimes.com/2025/12/24/world/australia/nsw-gun-protest-laws.html
+
 **How to watch Bears vs. 49ers: Time, TV, streaming**\
 `Find out how to watch the Chicago Bears play the San Francisco 49ers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6916960/2025/12/24/bears-vs-49ers-stream-how-to-watch-dec-28/
