@@ -1,3 +1,7 @@
+**Nuggets' Cameron Johnson injures right leg vs. Mavericks, to undergo MRI**\
+`With 9:18 remaining against the Mavericks, Johnson fell to the ground and clutched at his right knee.`\
+https://nytimes.com/athletic/6916709/2025/12/23/cam-johnson-injury-right-knee-nuggets-mavericks/
+
 **19 States Sue to Block White House Plan to End Gender-Related Care for Minors**\
 `The coalition of states seeks to stop a Trump administration effort to cut off federal funding to hospitals that provide such care.`\
 https://nytimes.com/2025/12/23/us/states-lawsuit-kennedy-gender-care-hospitals.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6916610/2025/12/23/anthony-towns-24-points-first-ha
 **How do you train for Antarctica? Go jump in a pool.**\
 `(No description)`\
 https://nytimes.com/live/2025/climate/antarctica-thwaites-glacier/antarctica-training
-
-**Judge Blocks Conditions Imposed on States Seeking FEMA Grants**\
-`The Trump administration had sought to require states to account for population losses tied to deportations in order to receive emergency preparedness grants.`\
-https://nytimes.com/2025/12/23/us/politics/trump-fema-grants-states-population.html
 

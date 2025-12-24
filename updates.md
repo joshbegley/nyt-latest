@@ -1,3 +1,7 @@
+**Nuggets' Cameron Johnson injures right leg vs. Mavericks, to undergo MRI**\
+`With 9:18 remaining against the Mavericks, Johnson fell to the ground and clutched at his right knee.`\
+https://nytimes.com/athletic/6916709/2025/12/23/cam-johnson-injury-right-knee-nuggets-mavericks/
+
 **19 States Sue to Block White House Plan to End Gender-Related Care for Minors**\
 `The coalition of states seeks to stop a Trump administration effort to cut off federal funding to hospitals that provide such care.`\
 https://nytimes.com/2025/12/23/us/states-lawsuit-kennedy-gender-care-hospitals.html
