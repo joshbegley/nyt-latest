@@ -1,3 +1,7 @@
+**Sharp Quality**\
+`Ella Dershowitz forges ahead.`\
+https://nytimes.com/2025/12/23/crosswords/daily-puzzle-2025-12-24.html
+
 **Karl-Anthony Towns notches 24-point half vs. Timberwolves, reflects on Minnesota**\
 `Towns went for 24 points on 9-of-13 shooting in the first half against his former team Tuesday night`\
 https://nytimes.com/athletic/6916610/2025/12/23/anthony-towns-24-points-first-half-knicks-timberwolves/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6916199/2025/12/23/ben-simmons-pro-fishing-ownershi
 **Penguins in the spirit of giving in loss to Maple Leafs: 10 observations**\
 `The Penguins made one mistake after another in a 6-3 loss to Toronto on Tuesday.`\
 https://nytimes.com/athletic/6916139/2025/12/23/penguins-maple-leafs-observations-nhl-holiday-break/
-
-**Journey to Antarctica Part 1**\
-`Abandoning ship, negotiating fires or hitting an iceberg are all risks when traveling to one of the fastest-melting glaciers on the continent. Our science reporter Raymond Zhong shares a glimpse into the survival training for his upcoming Antarctic trip.`\
-https://nytimes.com/video/climate/100000010596580/journey-to-antarctica-part-1.html
 
