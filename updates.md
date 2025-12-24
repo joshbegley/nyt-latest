@@ -1,3 +1,11 @@
+**From the Ashes to Punch: Inside the MCG library, the largest collection of cricket literature in the world**\
+`The archive in Melbourne has been open for 152 years and began with a donation after a newspaper, The Australasian, went out of business`\
+https://nytimes.com/athletic/6913056/2025/12/24/mcg-library-ashes-bodyline-cricket/
+
+**How to replace Bruno Fernandes in your FPL team**\
+`The Manchester United playmaker is now a major doubt heading into the most congested period of the season after picking up an injury`\
+https://nytimes.com/athletic/6913088/2025/12/24/fantasy-premier-league-bruno-fernandes-replacements-fpl-tips-gameweek-18/
+
 **Back-to-back losses leave Wild short of holiday cheer heading into break: Takeaways**\
 `The Wild kept up at five-on-five but allowed two power-play goals to the Nashville Predators before falling in overtime.`\
 https://nytimes.com/athletic/6916753/2025/12/24/wild-faber-oreilly-penalty-kill-predators/

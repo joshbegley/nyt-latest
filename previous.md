@@ -1,3 +1,11 @@
+**From the Ashes to Punch: Inside the MCG library, the largest collection of cricket literature in the world**\
+`The archive in Melbourne has been open for 152 years and began with a donation after a newspaper, The Australasian, went out of business`\
+https://nytimes.com/athletic/6913056/2025/12/24/mcg-library-ashes-bodyline-cricket/
+
+**How to replace Bruno Fernandes in your FPL team**\
+`The Manchester United playmaker is now a major doubt heading into the most congested period of the season after picking up an injury`\
+https://nytimes.com/athletic/6913088/2025/12/24/fantasy-premier-league-bruno-fernandes-replacements-fpl-tips-gameweek-18/
+
 **Back-to-back losses leave Wild short of holiday cheer heading into break: Takeaways**\
 `The Wild kept up at five-on-five but allowed two power-play goals to the Nashville Predators before falling in overtime.`\
 https://nytimes.com/athletic/6916753/2025/12/24/wild-faber-oreilly-penalty-kill-predators/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6913469/2025/12/24/lamine-yamal-barcelona-christmas
 **Nottingham Forest 2025 in review: Seville takeover, Anderson shines and City Ground hopes**\
 `Three managers, a return to Europe, another £200million recruitment drive and an unexpected slump. It's been quite the year at Forest`\
 https://nytimes.com/athletic/6891537/2025/12/24/nottingham-forest-review-2025/
-
-**Obi has not played for Man Utd's first team this season. What now for the striker?**\
-`Chido Obi played regularly for United's first team towards the end of last season but this has not been the case this season`\
-https://nytimes.com/athletic/6913163/2025/12/24/chido-obi-man-utd-latest/
-
-**With last orders at the Winslow Hotel, we should raise a glass to the football pub**\
-`As clubs, including Everton, leave their old stadiums behind, the pubs beloved of match-going fans for generations have struggled to survive`\
-https://nytimes.com/athletic/6884654/2025/12/24/everton-winslow-hotel-premier-league-arsenal/
 
