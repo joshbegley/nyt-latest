@@ -1,3 +1,5 @@
+
+
 **A Democrat, a Republican and a Supermarket Baron Go to ‘Marty Supreme’**\
 `A “Marty Supreme” showing took a political turn when John Catsimatidis, who has a small role in the movie, invited both Gov. Kathy Hochul and her Republican rival, Bruce Blakeman.`\
 https://nytimes.com/2025/12/23/nyregion/hochul-blakeman-red-carpet.html
