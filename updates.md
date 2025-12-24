@@ -1,3 +1,11 @@
+**The New York Times in Print for Wednesday, Dec. 24, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/12/24/todays-new-york-times
+
+**Arsenal may be playing tightrope football, but they are rarely putting a foot wrong**\
+`Arsenal's League Cup quarterfinal with Crystal Palace went the distance - as so many of their recent matches have done`\
+https://nytimes.com/athletic/6916447/2025/12/24/arsenal-crystal-palace-penalties/
+
 **From the Ashes to Punch: Inside the MCG library, the largest collection of cricket literature in the world**\
 `The archive in Melbourne has been open for 152 years and began with a donation after a newspaper, The Australasian, went out of business`\
 https://nytimes.com/athletic/6913056/2025/12/24/mcg-library-ashes-bodyline-cricket/
