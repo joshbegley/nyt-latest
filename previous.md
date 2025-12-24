@@ -1,3 +1,7 @@
+**Why Crystal Palace finally losing a big cup tie may not be the worst thing in the world**\
+`Palace go into every game believing they can win but they simply do not have the resources to compete on four fronts over a whole season`\
+https://nytimes.com/athletic/6911207/2025/12/24/crystal-palace-arsenal-carabao/
+
 **The New York Times in Print for Wednesday, Dec. 24, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/12/24/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6913535/2025/12/24/shamal-george-liverpool-intervie
 **How Erling Haaland is taking advantage of a key Man City move**\
 `The Manchester City striker continues to demonstrate why he is the perfect person to take advantage of this specific attacking move `\
 https://nytimes.com/athletic/6913232/2025/12/24/erling-haaland-manchester-city-cutbacks/
-
-**One to watch for 2026: Divine Mukasa, the Man City midfielder brimming with confidence**\
-`After breaking into the first team squad, the 18-year-old attacking midfielder has a big year ahead of him`\
-https://nytimes.com/athletic/6914713/2025/12/24/mukasa-man-city-2026/
 

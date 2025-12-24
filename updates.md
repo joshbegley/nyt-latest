@@ -1,3 +1,7 @@
+**Why Crystal Palace finally losing a big cup tie may not be the worst thing in the world**\
+`Palace go into every game believing they can win but they simply do not have the resources to compete on four fronts over a whole season`\
+https://nytimes.com/athletic/6911207/2025/12/24/crystal-palace-arsenal-carabao/
+
 **The New York Times in Print for Wednesday, Dec. 24, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/12/24/todays-new-york-times
