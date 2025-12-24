@@ -1,40 +1,40 @@
-**Can an NFC North team win the Super Bowl? Our experts weigh in**\
-`How serious are the Bears as playoff contenders? Is the loss of Micah Parsons too much for the Packers to overcome? NFC North roundtable.`\
-https://nytimes.com/athletic/6916279/2025/12/24/bears-packers-lions-nfc-north-playoffs/
+**Chiefs fans, Andy Reid don't agree on Matt Nagy. His K.C. future remains uncertain**\
+`Nagy, whose status as offensive coordinator is a hot-button issue with fans, could be an NFL head coach again in 2026.`\
+https://nytimes.com/athletic/6915716/2025/12/24/chiefs-matt-nagy-andy-reid-future/
 
-**The Athletics are rising on the field, but will they spend now as they eye 2028?**\
-`The Athletics have a burgeoning core of young players. But they remain in something of an in-between phase ahead of their Las Vegas move. `\
-https://nytimes.com/athletic/6916229/2025/12/24/sacramento-las-vegas-athletics-roster-free-agency-stadium/
+**TAFC: Was there a Christmas truce? Plus: Semenyo eyes Man City move, Yamal's curious figurine**\
+`Today in TAFC's special edition: Was there a Christmas Day Truce? Plus: Quiz questions and Yamal's curious Catalan figurine.`\
+https://nytimes.com/athletic/6917010/2025/12/24/christmas-truce-world-war-semenyo-man-city/
 
-**What's working (and not working) across the NBA's new TV landscape**\
-`Two of the NBA's three broadcast partners have changed, and the newcomers have added some welcome features. `\
-https://nytimes.com/athletic/6865583/2025/12/24/nba-tv-schedule-amazon-christmas/
+**What's behind the Red Wings' hot streak in December?**\
+`The Red Wings have been one of the league's hottest teams in December. How did they get here after some November slumps?`\
+https://nytimes.com/athletic/6916635/2025/12/24/red-wings-larkin-seider-gibson-stars/
 
-**Blast Kills Three in Moscow Near Site of General’s Car Bombing**\
-`Two police officers died in the explosion, the authorities said. Earlier this week a car bomb killed a military commander in the same area of Russia’s capital.`\
-https://nytimes.com/2025/12/24/world/europe/moscow-bomb-blast-police-officers.html
+**Blackhawks lose again as they navigate life without Connor Bedard, Frank Nazar**\
+`Ryan Donato provided the Blackhawks' lone goal in a 3-1 loss to Philadelphia at the United Center on Tuesday. Chicago has lost six straight.`\
+https://nytimes.com/athletic/6916731/2025/12/24/blackhawks-flyers-result-score/
 
-**‘A Hard Time We Had of It’**\
-`A fitting poem for a transformative year.`\
-https://nytimes.com/2025/12/24/opinion/interesting-times-christmas-poem.html
+**NHL trade matchmaker: Predicting where top targets go by the deadline, Part 1**\
+`Where could Rasmus Andersson, Steven Stamkos, Ryan O'Reilly and Kiefer Sherwood end up by the deadline? Our insiders make their picks.`\
+https://nytimes.com/athletic/6915721/2025/12/24/nhl-trade-board-matchmaker-oreilly-stamkos-andersson/
 
-**Americans Say They Want One Thing, Then Vote a Different Way. Here’s Why.**\
-`Voters keep resolving to change our country and yet we are increasingly disappointed in those we elect.`\
-https://nytimes.com/2025/12/24/opinion/voter-preferences-polls.html
+**The NFL's most improbable All-Pro? The odyssey of Vikings long snapper Andrew DePaola**\
+`It's been quite a voyage from high school QB to All-Pro long snapper for the Vikings. DePaola, 38, hopes his fairytale can continue.`\
+https://nytimes.com/athletic/6911378/2025/12/24/vikings-andrew-depaola-all-pro-long-snapper/
 
-**‘A Hard Time We Had of It’**\
-`A fitting poem for a transformative year.`\
-https://nytimes.com/video/opinion/100000010605912/a-hard-time-we-had-of-it.html
+**John Harbaugh not focused on job security, but the Ravens have decisions to make**\
+`Baltimore is in the process of authoring arguably the most disappointing regular season in franchise history. `\
+https://nytimes.com/athletic/6916575/2025/12/24/ravens-coach-john-harbaugh-job-security/
 
-**Chasing an Economic Boom, White House Dismisses Risks of A.I.**\
-`The administration has downplayed concerns — from mass job losses, to a potential financial bubble — as President Trump cheers soaring stock prices and faster growth.`\
-https://nytimes.com/2025/12/24/us/politics/trump-artificial-intelligence-economy-risks.html
+**Wolves beat Knicks, as Julius Randle and Karl-Anthony Towns flex their muscles**\
+`Traded for each other right before last season began, Randle and Towns both showed out in Minnesota's win Tuesday night at Target Center.`\
+https://nytimes.com/athletic/6916430/2025/12/24/randle-towns-timberwolves-win-knicks/
 
-**ICE Sweeps Into Ohio, Stirring Fear Among Somalis and Other Immigrants**\
-`After Mayor Andrew Ginther of Columbus said that its policy prohibited local cooperation on immigration enforcement, Elon Musk called him a “traitor.”`\
-https://nytimes.com/2025/12/24/us/ice-columbus-ohio-somalis-immigrants.html
+**Panthers' Derrick Brown fueled by Pro Bowl snub: 'Not gonna knock my confidence down any'**\
+`Brown finished third at his position across both conferences in the fan balloting, which counts for one-third of the process.`\
+https://nytimes.com/athletic/6916278/2025/12/24/panthers-derrick-brown-fueled-pro-bowl-snub/
 
-**The Year America Blew Up the Process**\
-`The 2025 revolt against process signaled the final collapse of a powerful idea that once promised to hold the country together.`\
-https://nytimes.com/2025/12/24/opinion/democracy-america-bureaucracy.html
+**Christmas should be for families, not NBA overload. Even LeBron James agrees**\
+`The NBA and NFL are dreaming of a green Christmas, and that's not cool. Never mind the TV overload. Think of all the people working them.`\
+https://nytimes.com/athletic/6916487/2025/12/24/christmas-sports-overload-nba-nfl/
 
