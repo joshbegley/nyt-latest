@@ -1,3 +1,7 @@
+**New Charges Could Carry Death Penalty in Attack on National Guard Members in D.C.**\
+`The case against Rahmanullah Lakanwal, an Afghan refugee accused of killing one Guard member and seriously injuring another, was transferred to D.C. District Court, where new firearms charges could bring capital punishment.`\
+https://nytimes.com/2025/12/24/us/politics/death-penalty-national-guard-dc-shooting.html
+
 **In Private Letters, Harvard and Trump Administration Escalate Duel**\
 `It is the latest twist in the marquee battle of the administration’s campaign to rein in colleges and universities it views as too liberal.`\
 https://nytimes.com/2025/12/24/us/trump-harvard-letters-deal.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6852285/2025/12/24/mlb-pete-fairbanks-free-agency-s
 **Sources: Galaxy continue defensive makeover, sign NYCFC's Justin Haak**\
 `The Galaxy are continuing their offseason resurgence after a title defense that went horribly wrong`\
 https://nytimes.com/athletic/6917704/2025/12/24/la-galaxy-justin-haak-nycfc-mls-free-agent/
-
-**Mixed Grades for Home-Schooling**\
-`Readers offer personal stories in response to a guest essay critical of home-schooling.`\
-https://nytimes.com/2025/12/24/opinion/letters/home-schooling-debate.html
 
