@@ -1,3 +1,11 @@
+**Prime Tire: Pick your top 10 F1 drivers of 2025**\
+`Welcome to Prime Tire, The Athletic's Formula One newsletter.`\
+https://nytimes.com/athletic/6916758/2025/12/24/formula-one-f1-driver-ranking-prime-tire/
+
+**What’s in Our Queue? Christmas Movies and More**\
+`Text by Nazaneen Ghaffar`\
+https://nytimes.com/card/2025/12/24/undefined/editors-recommendations-jazz
+
 **AL Central roundtable: Who will triumph in the race to 83 wins?**\
 `In a division that once again has no clear standout, who will do enough to get to the playoffs? `\
 https://nytimes.com/athletic/6911872/2025/12/24/al-central-roundtable-tigers-twins-guardians-royals-white-sox/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6915033/2025/12/24/edmonton-oilers-prospect-ike-how
 **Clippers finally win second in a row behind Kawhi Leonard's season-high**\
 `The Clippers hadn't won two in a row since the second and third games of the season before beating Houston on Tuesday night.`\
 https://nytimes.com/athletic/6916941/2025/12/24/clippers-kawhi-leonard-win-rockets/
-
-**Trump Administration Live Updates: Supreme Court Decision Casts Doubt on National Guard Deployments**\
-``\
-https://nytimes.com/live/2025/12/24/us/trump-news
-
-**They Seek to Curb Online Hate. The U.S. Accuses Them of Censorship.**\
-`The Trump administration said five regulators and researchers who work to tackle disinformation and abuse on the internet had been barred from entering the United States.`\
-https://nytimes.com/2025/12/24/business/europe-us-online-censorship-free-speech.html
 

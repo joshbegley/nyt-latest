@@ -1,3 +1,11 @@
+**Prime Tire: Pick your top 10 F1 drivers of 2025**\
+`Welcome to Prime Tire, The Athletic's Formula One newsletter.`\
+https://nytimes.com/athletic/6916758/2025/12/24/formula-one-f1-driver-ranking-prime-tire/
+
+**What’s in Our Queue? Christmas Movies and More**\
+`Text by Nazaneen Ghaffar`\
+https://nytimes.com/card/2025/12/24/undefined/editors-recommendations-jazz
+
 **AL Central roundtable: Who will triumph in the race to 83 wins?**\
 `In a division that once again has no clear standout, who will do enough to get to the playoffs? `\
 https://nytimes.com/athletic/6911872/2025/12/24/al-central-roundtable-tigers-twins-guardians-royals-white-sox/
