@@ -1,9 +1,13 @@
+**Phyllis Lee Levin, Times Fashion Reporter and Biographer, Dies at 104**\
+`Her 1960 essay about the frustrations of educated women prefigured Betty Friedan’s “The Feminine Mystique.” She later wrote books on John Quincy Adams and others.`\
+https://nytimes.com/2025/12/24/books/phyllis-lee-levin-dead.html
+
 **James Nnaji, former NBA first-round pick, commits to Baylor: Source**\
 `Nnaji will immediately join the team and he becomes the latest ex-pro to earn NCAA eligibility.`\
 https://nytimes.com/athletic/6918026/2025/12/24/james-nnaji-commits-baylor-nba-draft-pick/
 
 **Honduras Declares Trump-Backed Candidate Winner of Presidential Election**\
-`Nasry Asfura, a conservative, was endorsed by President Trump in a contentious vote that took weeks to conclude.`\
+`Nasry Asfura was endorsed by President Trump in a contentious election. The process of counting votes experienced technical problems, revisions of disputed ballot boxes and claims of fraud.`\
 https://nytimes.com/2025/12/24/world/americas/honduras-election-results-asfura.html
 
 **Palau Agrees to Take Up to 75 Migrants From the U.S.**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/24/us/politics/epstein-files-documents-doj.html
 **An Immigrant Nurse Is Among the Dead From Blasts at a Troubled Nursing Home**\
 `Muthoni Nduthu was one of two killed by explosions at an eastern Pennsylvania facility that was plagued by poor ratings, citations and fines from the federal government.`\
 https://nytimes.com/2025/12/24/us/politics/nursing-home-blast.html
-
-**The Strange Death of Make America Great Again**\
-`Trump has begun to recede from the movement he created.`\
-https://nytimes.com/2025/12/24/opinion/turning-points-americafest-maga.html
 
