@@ -1,3 +1,7 @@
+**Karl-Anthony Towns notches 24-point half vs. Timberwolves, reflects on Minnesota**\
+`Towns went for 24 points on 9-of-13 shooting in the first half against his former team Tuesday night`\
+https://nytimes.com/athletic/6916610/2025/12/23/anthony-towns-24-points-first-half-knicks-timberwolves/
+
 **How do you train for Antarctica? Go jump in a pool.**\
 `(No description)`\
 https://nytimes.com/live/2025/climate/antarctica-thwaites-glacier/antarctica-training
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6916139/2025/12/23/penguins-maple-leafs-observation
 **Journey to Antarctica Part 1**\
 `Abandoning ship, negotiating fires or hitting an iceberg are all risks when traveling to one of the fastest-melting glaciers on the continent. Our science reporter Raymond Zhong shares a glimpse into the survival training for his upcoming Antarctic trip.`\
 https://nytimes.com/video/climate/100000010596580/journey-to-antarctica-part-1.html
-
-**Journey to the Melting Continent**\
-`The New York Times is joining an expedition by sea to Antarctica’s fastest-thinning glaciers.`\
-https://nytimes.com/live/2025/climate/antarctica-thwaites-glacier
 

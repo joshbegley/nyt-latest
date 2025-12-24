@@ -1,3 +1,7 @@
+**Karl-Anthony Towns notches 24-point half vs. Timberwolves, reflects on Minnesota**\
+`Towns went for 24 points on 9-of-13 shooting in the first half against his former team Tuesday night`\
+https://nytimes.com/athletic/6916610/2025/12/23/anthony-towns-24-points-first-half-knicks-timberwolves/
+
 **How do you train for Antarctica? Go jump in a pool.**\
 `(No description)`\
 https://nytimes.com/live/2025/climate/antarctica-thwaites-glacier/antarctica-training
