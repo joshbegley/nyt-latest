@@ -1,3 +1,7 @@
+**Inside the Oval Office**\
+`Today we take a look at President Trump’s interior design.`\
+https://nytimes.com/2025/12/24/briefing/inside-the-oval-office.html
+
 **Here’s What Is in the 20-Point Peace Plan for Ukraine**\
 `The blueprint covers a broad range of issues, including territory, security guarantees and postwar reconstruction. But Russia has indicated little willingness to end the war.`\
 https://nytimes.com/2025/12/24/world/europe/what-is-in-the-20-point-ukraine-peace-plan.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6915721/2025/12/24/nhl-trade-board-matchmaker-oreil
 **The NFL's most improbable All-Pro? The odyssey of Vikings long snapper Andrew DePaola**\
 `It's been quite a voyage from high school QB to All-Pro long snapper for the Vikings. DePaola, 38, hopes his fairytale can continue.`\
 https://nytimes.com/athletic/6911378/2025/12/24/vikings-andrew-depaola-all-pro-long-snapper/
-
-**John Harbaugh not focused on job security, but the Ravens have decisions to make**\
-`Baltimore is in the process of authoring arguably the most disappointing regular season in franchise history. `\
-https://nytimes.com/athletic/6916575/2025/12/24/ravens-coach-john-harbaugh-job-security/
 

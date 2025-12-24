@@ -1,3 +1,7 @@
+**Inside the Oval Office**\
+`Today we take a look at President Trump’s interior design.`\
+https://nytimes.com/2025/12/24/briefing/inside-the-oval-office.html
+
 **Here’s What Is in the 20-Point Peace Plan for Ukraine**\
 `The blueprint covers a broad range of issues, including territory, security guarantees and postwar reconstruction. But Russia has indicated little willingness to end the war.`\
 https://nytimes.com/2025/12/24/world/europe/what-is-in-the-20-point-ukraine-peace-plan.html
