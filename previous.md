@@ -1,3 +1,7 @@
+**China Is Shifting Its Nuclear Forces to Swifter Footing, Pentagon Says**\
+`The country’s production of nuclear warheads has slowed, but its missiles may be poised to strike back fast in case of an attack, an annual assessment found.`\
+https://nytimes.com/2025/12/24/world/asia/china-nuclear-forces-pentagon-report.html
+
 **Zelensky Opens Way to Demilitarized Zone in Eastern Ukraine to Reach Peace**\
 `The offer was the closest Mr. Zelensky has come to addressing the thorny territorial disputes in Donetsk that have repeatedly derailed peace talks.`\
 https://nytimes.com/2025/12/24/world/europe/zelensky-demilitarized-zone-offer.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6916960/2025/12/24/bears-vs-49ers-stream-how-to-wat
 **Ben Stokes pledges support for under-fire players, Jofra Archer ruled out of rest of Ashes**\
 `Stokes has spoken to Ben Duckett, who will play at the MCG, after footage emerged on social media appearing to show the opener intoxicated`\
 https://nytimes.com/athletic/6916888/2025/12/24/ben-stokes-england-duckett-archer-ashes/
-
-**Why Crystal Palace finally losing a big cup tie may not be the worst thing in the world**\
-`Palace go into every game believing they can win but they simply do not have the resources to compete on four fronts over a whole season`\
-https://nytimes.com/athletic/6911207/2025/12/24/crystal-palace-arsenal-carabao/
 

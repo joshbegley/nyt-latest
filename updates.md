@@ -1,3 +1,7 @@
+**China Is Shifting Its Nuclear Forces to Swifter Footing, Pentagon Says**\
+`The country’s production of nuclear warheads has slowed, but its missiles may be poised to strike back fast in case of an attack, an annual assessment found.`\
+https://nytimes.com/2025/12/24/world/asia/china-nuclear-forces-pentagon-report.html
+
 **Zelensky Opens Way to Demilitarized Zone in Eastern Ukraine to Reach Peace**\
 `The offer was the closest Mr. Zelensky has come to addressing the thorny territorial disputes in Donetsk that have repeatedly derailed peace talks.`\
 https://nytimes.com/2025/12/24/world/europe/zelensky-demilitarized-zone-offer.html
