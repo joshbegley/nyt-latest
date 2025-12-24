@@ -1,3 +1,11 @@
+**Corrections: Dec. 24, 2025**\
+`Corrections that appeared in print on Wednesday, Dec. 24, 2025.`\
+https://nytimes.com/2025/12/23/pageoneplus/corrections-dec-24-2025.html
+
+**Quote of the Day: YouTube Dominates the Daytime, And Rivals Are Trying to Respond**\
+`Quotation of the Day for Wednesday, December 24, 2025.`\
+https://nytimes.com/2025/12/23/pageoneplus/quote-of-the-day-youtube-dominates-the-daytime-and-rivals-are-trying-to-respond.html
+
 **Nuggets' Cameron Johnson injures right leg vs. Mavericks, to undergo MRI**\
 `With 9:18 remaining against the Mavericks, Johnson fell to the ground and clutched at his right knee.`\
 https://nytimes.com/athletic/6916709/2025/12/23/cam-johnson-injury-right-knee-nuggets-mavericks/
@@ -29,12 +37,4 @@ https://nytimes.com/video/podcasts/100000010607564/the-best-songs-of-2025-part-1
 **Sharp Quality**\
 `Ella Dershowitz forges ahead.`\
 https://nytimes.com/2025/12/23/crosswords/daily-puzzle-2025-12-24.html
-
-**Still fond of Minnesota, Karl-Anthony Towns scores 40 points in loss to Timberwolves**\
-`Towns scored 24 of his 40 points in the first half against his former team Tuesday night. Minnesota beat the Knicks 115-104.`\
-https://nytimes.com/athletic/6916610/2025/12/23/anthony-towns-24-points-first-half-knicks-timberwolves/
-
-**How do you train for Antarctica? Go jump in a pool.**\
-`(No description)`\
-https://nytimes.com/live/2025/climate/antarctica-thwaites-glacier/antarctica-training
 
