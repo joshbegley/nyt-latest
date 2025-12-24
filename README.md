@@ -1,3 +1,11 @@
+**A Democrat, a Republican and a Supermarket Baron Go to ‘Marty Supreme’**\
+`A “Marty Supreme” showing took a political turn when John Catsimatidis, who has a small role in the movie, invited both Gov. Kathy Hochul and her Republican rival, Bruce Blakeman.`\
+https://nytimes.com/2025/12/23/nyregion/hochul-blakeman-red-carpet.html
+
+**The Leafs have a long climb ahead of them, but a win was the first step**\
+`A day after firing assistant coach Marc Savard, the Leafs finally found their firepower after blowing a 3-1 lead.`\
+https://nytimes.com/athletic/6916418/2025/12/23/maple-leafs-domi-maccelli-berube-penguins/
+
 **Judge Blocks Texas Age-Verification Law for App Stores**\
 `A preliminary injunction in federal court cited the First Amendment, handing a win to tech companies like Apple and Google.`\
 https://nytimes.com/2025/12/23/technology/texas-app-age-law-blocked.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/climate/antarctica-thwaites-glacier/about-this-voy
 **Palm Beach Rallies Behind a Restaurant Manager Held at ‘Alligator Alcatraz’**\
 `After nearly two weeks in detention, José Gonzalez, the popular host of an upscale restaurant, returns home.`\
 https://nytimes.com/2025/12/23/style/jose-gonzalez-alligator-alcatraz-palm-beach.html
-
-**CFP first-round ratings surge with brand-name matchups, dip for Group of 5**\
-`Alabama and Oklahoma notched 14.9 million viewers but Ole Miss-Tulane had 6.2 million viewers and Oregon-James Madison 4.4 million.`\
-https://nytimes.com/athletic/6916297/2025/12/23/college-football-playoff-first-round-viewership/
-
-**How to watch Giants vs. Raiders: Time, TV, streaming**\
-`Find out how to watch the New York Giants play the Las Vegas Raiders, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6916329/2025/12/23/how-to-watch-giants-vs-raiders-tv-channel-and-streaming-options-for-december-28/
 
