@@ -1,3 +1,7 @@
+**Rain Begins in Southern California as Region Braces for Intense Storm**\
+`Heavy rain, strong winds, flooding and debris flow could affect Los Angeles County and the surrounding areas on Christmas Eve and Christmas Day.`\
+https://nytimes.com/2025/12/24/weather/rain-flooding-los-angeles-storm.html
+
 **Must-See Moments from the N.B.A.**\
 `The San Antonio Spurs beat the Oklahoma City Thunder for the second time in 10 days, while Cooper Flagg notched his first 30-point home game for the Dallas Mavericks.`\
 https://nytimes.com/video/the-athletic/100000010607908/must-see-moments-from-the-nba.html
