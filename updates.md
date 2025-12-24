@@ -1,3 +1,7 @@
+**The Pulse: Our favorite moments, in GIFs**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6915652/2025/12/24/christmas-eve-gifs-the-pulse/
+
 **Chiefs fans, Andy Reid don't agree on Matt Nagy. His K.C. future remains uncertain**\
 `Nagy, whose status as offensive coordinator is a hot-button issue with fans, could be an NFL head coach again in 2026.`\
 https://nytimes.com/athletic/6915716/2025/12/24/chiefs-matt-nagy-andy-reid-future/
