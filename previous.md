@@ -1,40 +1,40 @@
-**Ex-Liverpool striker Origi has Milan contract terminated**\
-`The 32-time Belgium international has not played since Nottingham Forest's two-goal defeat at Everton in the Premier League in April 2024.`\
-https://nytimes.com/athletic/6917024/2025/12/24/divock-origi-milan-leaves/
+**‘A Hard Time We Had of It’**\
+`A fitting poem for a transformative year.`\
+https://nytimes.com/2025/12/24/opinion/interesting-times-christmas-poem.html
 
-**INEOS Grenadiers sign Onley in Grand Tour line-up revamp**\
-`Onley, who impressed in finishing a surprise fourth in the Tour de France last year, will join the British squad on a long-term deal.`\
-https://nytimes.com/athletic/6917014/2025/12/24/onley-ineos-grenadiers-cycling/
+**Americans Say They Want One Thing, Then Vote a Different Way. Here’s Why.**\
+`Voters keep resolving to change our country and yet we are increasingly disappointed in those we elect.`\
+https://nytimes.com/2025/12/24/opinion/voter-preferences-polls.html
 
-**China Is Shifting Its Nuclear Forces to Swifter Footing, Pentagon Says**\
-`The country’s production of nuclear warheads has slowed, but its missiles may be poised to strike back fast in case of an attack, an annual assessment found.`\
-https://nytimes.com/2025/12/24/world/asia/china-nuclear-forces-pentagon-report.html
+**‘A Hard Time We Had of It’**\
+`A fitting poem for a transformative year.`\
+https://nytimes.com/video/opinion/100000010605912/a-hard-time-we-had-of-it.html
 
-**Zelensky Opens Way to Demilitarized Zone in Eastern Ukraine to Reach Peace**\
-`The offer was the closest Mr. Zelensky has come to addressing the thorny territorial disputes in Donetsk that have repeatedly derailed peace talks.`\
-https://nytimes.com/2025/12/24/world/europe/zelensky-demilitarized-zone-offer.html
+**Chasing an Economic Boom, White House Dismisses Risks of A.I.**\
+`The administration has downplayed concerns — from mass job losses, to a potential financial bubble — as President Trump cheers soaring stock prices and faster growth.`\
+https://nytimes.com/2025/12/24/us/politics/trump-artificial-intelligence-economy-risks.html
 
-**Coquito Was Once a Puerto Rican Secret. Now Everybody Knows.**\
-`The Puerto Rican rum and coconut drink used to be passed down within families, but now it has become a holiday party staple beyond the community.`\
-https://nytimes.com/2025/12/24/nyregion/coquito-puerto-rico-nyc.html
+**ICE Sweeps Into Ohio, Stirring Fear Among Somalis and Other Immigrants**\
+`After Mayor Andrew Ginther of Columbus said that its policy prohibited local cooperation on immigration enforcement, Elon Musk called him a “traitor.”`\
+https://nytimes.com/2025/12/24/us/ice-columbus-ohio-somalis-immigrants.html
 
-**A Special Delivery From The New York Times: 1,000 Cookies**\
-`A newspaper truck had a festive makeover to celebrate the Cooking team’s annual Cookie Week.`\
-https://nytimes.com/2025/12/24/insider/nyt-cookie-week.html
+**The Year America Blew Up the Process**\
+`The 2025 revolt against process signaled the final collapse of a powerful idea that once promised to hold the country together.`\
+https://nytimes.com/2025/12/24/opinion/democracy-america-bureaucracy.html
 
-**He Was Locked Up in a Psych Ward. It Helped Him Get His Life Together.**\
-`Lamar Brown went through a rigorous program at a New York State psychiatric hospital aimed at stopping the “revolving door” for homeless people with mental illness.`\
-https://nytimes.com/2025/12/24/nyregion/nyc-homeless-mentally-ill-treatment.html
+**Made in New York: The Magic of Holiday Windows in Stores**\
+`The windows date back decades and gave work to some famous artists. Today they are high tech but still aim to delight.`\
+https://nytimes.com/2025/12/24/nyregion/christmas-windows-department-stores.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/12/24/crosswords/spelling-bee-forum.html
+**Kyle Pitts is closing strong, and the Falcons have a decision to make this offseason**\
+`Should the Falcons sign the young tight end to a second deal? Should they franchise tag him? Should they let him leave? A decision awaits.`\
+https://nytimes.com/athletic/6913806/2025/12/24/kyle-pitts-falcons-free-agent-franchise-tag/
 
-**$100 for a Cab to the Airport? It May Soon Get Worse.**\
-`The Port Authority is preparing to increase the charge for drivers to pick up and drop off passengers at the airports.`\
-https://nytimes.com/2025/12/24/nyregion/nyc-airports-taxi-ride-share-fee-hike.html
+**Save Holiday Time With These Handy Smartphone Features**\
+`Try these useful shortcuts for sharing your Wi-Fi with guests, wrangling your to-do list or deciding what to do with family and friends.`\
+https://nytimes.com/2025/12/24/technology/personaltech/save-holiday-time-with-these-handy-smartphone-features.html
 
-**Australian State Passes ‘Extraordinary’ Gun and Protest Laws After Bondi Attack**\
-`While the new restrictions on firearms have broad support, new police powers to crack down on some protests were criticized as limits on civil liberties.`\
-https://nytimes.com/2025/12/24/world/australia/nsw-gun-protest-laws.html
+**Warming Black-Eyed Peas to Welcome New Year’s Fortunes**\
+`David Tanis pairs his rich recipe with a bright cabbage salad and finishes it with some unforgettable spiced apple fritters.`\
+https://nytimes.com/2025/12/24/dining/new-years-eve-black-eyed-peas.html
 
