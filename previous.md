@@ -1,3 +1,7 @@
+**T Magazine’s Favorite Food Stories of 2025**\
+`From a debate about the best seafood in Tokyo to a recipe for red velvet babka, these are some of the most intriguing and appetizing features we published this year.`\
+https://nytimes.com/2025/12/24/t-magazine/favorite-food-stories-recipes.html
+
 **Warriors' Steve Kerr said he apologized to Draymond Green after argument**\
 `Kerr was more reflective in his commentary than usual after the Christmas Eve practice. "We are a fading dynasty. We know that," he said.`\
 https://nytimes.com/athletic/6918123/2025/12/24/draymond-green-steve-kerr-apology-warriors/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6918070/2025/12/24/christmas-eve-sports-games-hawai
 **Sources: GK Coronel poised to back out of Orlando deal for São Paulo**\
 `The Brazil-born Paraguayan international had agreed to a deal with Orlando City but has backed out of it for an alternative`\
 https://nytimes.com/athletic/6918108/2025/12/24/carlos-coronel-orlando-city-sao-paulo/
-
-**Trump Tosses Lifelines to the Struggling Coal Industry**\
-`The Energy Department ordered two coal-burning power plants to remain open, and the Environmental Protection Agency gave utilities more time to tackle toxic coal ash.`\
-https://nytimes.com/2025/12/24/climate/coal-plant-closures-indiana.html
 
