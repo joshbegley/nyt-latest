@@ -1,3 +1,27 @@
+**Zelensky Opens Way to Demilitarized Zone in Eastern Ukraine to Reach Peace**\
+`The offer was the closest Mr. Zelensky has come to addressing the thorny territorial disputes in Donetsk that have repeatedly derailed peace talks.`\
+https://nytimes.com/2025/12/24/world/europe/zelensky-demilitarized-zone-offer.html
+
+**Coquito Was Once a Puerto Rican Secret. Now Everybody Knows.**\
+`The Puerto Rican rum and coconut drink used to be passed down within families, but now it has become a holiday party staple beyond the community.`\
+https://nytimes.com/2025/12/24/nyregion/coquito-puerto-rico-nyc.html
+
+**A Special Delivery From The New York Times: 1,000 Cookies**\
+`A newspaper truck had a festive makeover to celebrate the Cooking team’s annual Cookie Week.`\
+https://nytimes.com/2025/12/24/insider/nyt-cookie-week.html
+
+**He Was Locked Up in a Psych Ward. It Helped Him Get His Life Together.**\
+`Lamar Brown went through a rigorous program at a New York State psychiatric hospital aimed at stopping the “revolving door” for homeless people with mental illness.`\
+https://nytimes.com/2025/12/24/nyregion/nyc-homeless-mentally-ill-treatment.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/12/24/crosswords/spelling-bee-forum.html
+
+**$100 for a Cab to the Airport? It May Soon Get Worse.**\
+`The Port Authority is preparing to increase the charge for drivers to pick up and drop off passengers at the airports.`\
+https://nytimes.com/2025/12/24/nyregion/nyc-airports-taxi-ride-share-fee-hike.html
+
 **Australian State Passes ‘Extraordinary’ Gun, Protest Laws After Bondi Attack**\
 `While the new restrictions on firearms have broad support, new police powers to crack down on some protests were criticized as limits on civil liberties.`\
 https://nytimes.com/2025/12/24/world/australia/nsw-gun-protest-laws.html
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6916888/2025/12/24/ben-stokes-england-duckett-arche
 **Why Crystal Palace finally losing a big cup tie may not be the worst thing in the world**\
 `Palace go into every game believing they can win but they simply do not have the resources to compete on four fronts over a whole season`\
 https://nytimes.com/athletic/6911207/2025/12/24/crystal-palace-arsenal-carabao/
-
-**The New York Times in Print for Wednesday, Dec. 24, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/12/24/todays-new-york-times
-
-**Arsenal may be playing tightrope football, but they are rarely putting a foot wrong**\
-`Arsenal's League Cup quarterfinal with Crystal Palace went the distance – as so many of their recent matches have done`\
-https://nytimes.com/athletic/6916447/2025/12/24/arsenal-crystal-palace-penalties/
-
-**From the Ashes to Punch: Inside the MCG library, the largest collection of cricket literature in the world**\
-`The archive in Melbourne has been open for 152 years and began with a donation after a newspaper, The Australasian, went out of business`\
-https://nytimes.com/athletic/6913056/2025/12/24/mcg-library-ashes-bodyline-cricket/
-
-**How to replace Bruno Fernandes in your FPL team**\
-`The Manchester United playmaker is now a major doubt heading into the most congested period of the season after picking up an injury`\
-https://nytimes.com/athletic/6913088/2025/12/24/fantasy-premier-league-bruno-fernandes-replacements-fpl-tips-gameweek-18/
-
-**Back-to-back losses leave Wild short of holiday cheer heading into break: Takeaways**\
-`The Wild kept up at five-on-five but allowed two power-play goals to the Nashville Predators before falling in overtime.`\
-https://nytimes.com/athletic/6916753/2025/12/24/wild-faber-oreilly-penalty-kill-predators/
-
-**Xabi Alonso has made it to Christmas, but there's little comfort and joy at Real Madrid**\
-`The 44-year-old has survived an intense spell of pressure at the Bernabeu, but January will bring a tougher test`\
-https://nytimes.com/athletic/6913087/2025/12/24/xabi-alonso-real-madrid-perez-vinicius-jr-christmas/
 
