@@ -1,3 +1,7 @@
+**There Are Children in My House Who Don’t Speak English. Help!**\
+`A reader faults her husband’s relatives for not teaching their young children any English, which she worries may make for an awkward holiday visit.`\
+https://nytimes.com/2025/12/24/style/holiday-visit-language-barrier.html
+
 **West Coast vibes remain high for the surging Pistons**\
 `Detroit's turnaround began on last year's West Coast road trip. A win in Sacramento on Tuesday night kept the good times rolling.`\
 https://nytimes.com/athletic/6917052/2025/12/24/pistons-chemistry-win-sacramento/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6916876/2025/12/24/cooper-flagg-mavericks-nuggets/
 **Mandel's Mailbag: What should the CFP value most? Plus, Jim Harbaugh and accountability**\
 `G5 blowouts in the CFP reignited debate over who truly deserves a spot; and how much blame should fall on Jim Harbaugh for Michigan’s mess?`\
 https://nytimes.com/athletic/6915991/2025/12/24/college-football-playoff-michigan-jim-harbaugh/
-
-**Dane Brugler breaks down players to know for the Cowboys in 2026 NFL Draft**\
-`The Cowboys need upgrades at several key defensive positions going into next season.`\
-https://nytimes.com/athletic/6916492/2025/12/24/cowboys-nfl-draft-expert-needs/
 
