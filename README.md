@@ -1,3 +1,11 @@
+**Here’s the latest on the fires.**\
+`By Corina Knoll, Orlando Mayorquín and Alexandra E. Petri`\
+https://nytimes.com/live/2025/12/24/us/palisades-brush-fires-snapshot-1/heres-the-latest-on-the-fires
+
+**Live Updates: Officials Warn of ‘Devastating Loss’ as Southern California Wildfires Burn Out of Control**\
+`Parts of Santa Monica were ordered to be evacuated as fast-moving flames destroyed homes along the coast in Los Angeles. Officials warned that winds would pick up overnight, fueling the fire.`\
+https://nytimes.com/live/2025/01/07/us/palisades-brush-fires-snapshot-1
+
 **Heat's Terry Rozier seeks dismissal of charges in federal gambling case**\
 `Rozier was arrested in October along with 30 others.`\
 https://nytimes.com/athletic/6917425/2025/12/24/terry-rozier-seeks-dismissal-charges-betting-case/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6917381/2025/12/24/nba-christmas-food-spurs-thunder
 **There Are Children in My House Who Don’t Speak English. Help!**\
 `A reader faults her husband’s relatives for not teaching their young children any English, which she worries may make for an awkward holiday visit.`\
 https://nytimes.com/2025/12/24/style/holiday-visit-language-barrier.html
-
-**West Coast vibes remain high for the surging Pistons**\
-`Detroit's turnaround began on last year's West Coast road trip. A win in Sacramento on Tuesday night kept the good times rolling.`\
-https://nytimes.com/athletic/6917052/2025/12/24/pistons-chemistry-win-sacramento/
-
-**Lowetide: Oilers prospect Ike Howard is on a historic scoring pace in the AHL**\
-`Howard is posting offensive totals that rival some of the best players in Oilers minor-league history.`\
-https://nytimes.com/athletic/6915033/2025/12/24/edmonton-oilers-prospect-ike-howard-stats-ahl/
 
