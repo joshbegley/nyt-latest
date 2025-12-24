@@ -1,3 +1,11 @@
+**Tiny Love Stories: ‘It’s Not Easy to Please a Woman’**\
+`To celebrate the season, we gathered five of our favorite holiday-themed Tiny Love Stories.`\
+https://nytimes.com/2025/12/24/style/tiny-modern-love-stories-its-not-easy-to-please-a-woman.html
+
+**Scoop City: Football's best gifts, from now and then**\
+`Football fans share the greatest gift the game has given them, plus what's at stake in Week 17`\
+https://nytimes.com/athletic/6917555/2025/12/24/football-gifts-2025-nfl-history-week-17/
+
 **Raiders TE Brock Bowers placed on IR ahead of pivotal game vs. Giants**\
 `The Raiders, now without Bowers for the rest of the season, face the Giants in a game that may determine who wins the No. 1 draft pick.`\
 https://nytimes.com/athletic/6917734/2025/12/24/raiders-brock-bowers-injured-reserve-giants/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/24/opinion/letters/home-schooling-debate.html
 **QB Josh Johnson to start for Commanders vs. Cowboys on Christmas Day**\
 `The team will also sign practice squad quarterback Sam Hartman to the active roster and designate him as the emergency third quarterback.`\
 https://nytimes.com/athletic/6917763/2025/12/24/josh-johnson-commanders-qb-cowboys-christmas-day/
-
-**How a Scholar Nudged the Supreme Court Toward Its Troop Deployment Ruling**\
-`Accepting an argument from a law professor that no party to the case had made, the Supreme Court handed the Trump administration a stinging loss that could lead to more aggressive tactics.`\
-https://nytimes.com/2025/12/24/us/politics/georgetown-scholar-supreme-court.html
-
-**Why Spurs-Thunder has all the makings of the NBA's next big rivalry**\
-`The Spurs have beaten the Thunder twice in 10 days, setting up a Christmas showdown that the NBA world will certainly be watching.`\
-https://nytimes.com/athletic/6916976/2025/12/24/spurs-thunder-rivalry-wembanyama-holmgren-nba/
 
