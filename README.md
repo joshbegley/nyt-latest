@@ -1,3 +1,11 @@
+**Warriors' Steve Kerr said he apologized to Draymond Green after argument**\
+`Kerr was more reflective in his commentary than usual after the Christmas Eve practice. "We are a fading dynasty. We know that," he said.`\
+https://nytimes.com/athletic/6918123/2025/12/24/draymond-green-steve-kerr-apology-warriors/
+
+**Lewis Berman, Veterinarian to the Stars, Is Dead at 90**\
+`He served a New York clientele with names like Kennedy, Kissinger, Fonda, Bacall and Trump by making sure Chappy, Buzzy, Spike and other cherished pets stayed healthy.`\
+https://nytimes.com/2025/12/24/nyregion/lewis-berman-dead.html
+
 **Christmas Eve Flooding Prompts Evacuations in California**\
 `An intense winter storm created flash flooding in Southern California, closing roadways and forcing residents to evacuate in parts of the Los Angeles region. The authorities said some residents had resisted leaving their homes on the holiday.`\
 https://nytimes.com/video/weather/100000010608863/california-storm-weather-flooding.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6918108/2025/12/24/carlos-coronel-orlando-city-sao-
 **Trump Tosses Lifelines to the Struggling Coal Industry**\
 `The Energy Department ordered two coal-burning power plants to remain open, and the Environmental Protection Agency gave utilities more time to tackle toxic coal ash.`\
 https://nytimes.com/2025/12/24/climate/coal-plant-closures-indiana.html
-
-**The Epstein Files Should Not Have Been Released This Way**\
-`The fight was supposed to be about releasing them. But the way it’s being done seems designed to obscure the truth.`\
-https://nytimes.com/2025/12/24/opinion/epstein-file-release-truth.html
-
-**A Million More Epstein Documents Have Been Found, Justice Dept. Says**\
-`Democratic lawmakers, who had criticized the Justice Department’s release of the material, accused the Trump administration of violating the law mandating the release of the files.`\
-https://nytimes.com/2025/12/24/us/politics/epstein-files-documents-doj.html
 
