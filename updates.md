@@ -1,4 +1,8 @@
 **NWSL's new 'high impact' rule privileges a small pool of superstars – and they must be marketable**\
+`The league has risked losing power with its new rule, which benefits European players and U.S. internationals in particular.`\
+https://nytimes.com/athletic/6917069/2025/12/24/nwsl-rodman-rule-marketable-high-impact/
+
+**NWSL's new 'high impact' rule privileges a small pool of superstars – and they must be marketable**\
 `The league has risked losing power its new rule, which benefits European players and U.S. internationals in particular.`\
 https://nytimes.com/athletic/6917069/2025/12/24/nwsl-rodman-rule-marketable-high-impact/
 
