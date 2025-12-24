@@ -1,3 +1,11 @@
+**Mamdani Names Fire Commissioner, but Comments From the Former One Linger**\
+`Zohran Mamdani chose Lillian Bonsignore to be fire commissioner, weeks after the former commissioner, Robert S. Tucker, resigned, citing Mr. Mamdani’s views on Israel.`\
+https://nytimes.com/2025/12/23/nyregion/zohran-mamdani-fire-commissioner.html
+
+**The Best Songs of 2025, Part 1**\
+`Jon Caramanica, host of The Times’s “Popcast,” counts down Nos. 10 through 6, from Tate McRae to the XXL Freshman Freestyle, ahead of his top five.`\
+https://nytimes.com/video/podcasts/100000010607564/the-best-songs-of-2025-part-1.html
+
 **Sharp Quality**\
 `Ella Dershowitz forges ahead.`\
 https://nytimes.com/2025/12/23/crosswords/daily-puzzle-2025-12-24.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6916418/2025/12/23/maple-leafs-domi-maccelli-berube
 **Judge Blocks Texas Age-Verification Law for App Stores**\
 `A preliminary injunction in federal court cited the First Amendment, handing a win to tech companies like Apple and Google.`\
 https://nytimes.com/2025/12/23/technology/texas-app-age-law-blocked.html
-
-**Ben Simmons' new team is on a boat. He buys stake in pro fishing team before NBA comeback attempt**\
-`Simmons, a controlling operator for a Sports Fishing Championship team, hopes to return to the NBA either this season or next season.`\
-https://nytimes.com/athletic/6916199/2025/12/23/ben-simmons-pro-fishing-ownership-group-nba/
-
-**Penguins in the spirit of giving in loss to Maple Leafs: 10 observations**\
-`The Penguins made one mistake after another in a 6-3 loss to Toronto on Tuesday.`\
-https://nytimes.com/athletic/6916139/2025/12/23/penguins-maple-leafs-observations-nhl-holiday-break/
 

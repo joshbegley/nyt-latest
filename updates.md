@@ -1,3 +1,11 @@
+**Mamdani Names Fire Commissioner, but Comments From the Former One Linger**\
+`Zohran Mamdani chose Lillian Bonsignore to be fire commissioner, weeks after the former commissioner, Robert S. Tucker, resigned, citing Mr. Mamdani’s views on Israel.`\
+https://nytimes.com/2025/12/23/nyregion/zohran-mamdani-fire-commissioner.html
+
+**The Best Songs of 2025, Part 1**\
+`Jon Caramanica, host of The Times’s “Popcast,” counts down Nos. 10 through 6, from Tate McRae to the XXL Freshman Freestyle, ahead of his top five.`\
+https://nytimes.com/video/podcasts/100000010607564/the-best-songs-of-2025-part-1.html
+
 **Sharp Quality**\
 `Ella Dershowitz forges ahead.`\
 https://nytimes.com/2025/12/23/crosswords/daily-puzzle-2025-12-24.html
