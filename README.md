@@ -1,3 +1,7 @@
+**Prominent Farmer in California Arrested in Killing of His Wife**\
+`Michael Abatti was charged with fatally shooting Kerri Ann Abatti, who had filed for divorce and was living apart from him in Arizona.`\
+https://nytimes.com/2025/12/24/us/farming-mogul-arrested-wife-murder.html
+
 **Steelers' T.J. Watt returns to practice for first time since suffering partially collapsed lung**\
 `The Pro Bowl outside linebacker missed Pittsburgh's past two games.`\
 https://nytimes.com/athletic/6917933/2025/12/24/tj-watt-pittsburgh-steelers-practice-return-collapsed-lung/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6917555/2025/12/24/football-gifts-2025-nfl-history-
 **Raiders TE Brock Bowers placed on IR ahead of pivotal game vs. Giants**\
 `The Raiders, now without Bowers for the rest of the season, face the Giants in a game that may determine who wins the No. 1 draft pick.`\
 https://nytimes.com/athletic/6917734/2025/12/24/raiders-brock-bowers-injured-reserve-giants/
-
-**Consortium led by James Bord selected as Sheffield Wednesday preferred bidder**\
-`The bid beat a group led by American investor John McEvoy and the Chicago-based Storch family, and former Newcastle United owner Mike Ashley`\
-https://nytimes.com/athletic/6764589/2025/12/24/sheffield-wednesday-james-bord-preferred-bidder/
 
