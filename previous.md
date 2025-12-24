@@ -1,40 +1,40 @@
+**Back-to-back losses leave Wild short of holiday cheer heading into break: Takeaways**\
+`The Wild kept up at five-on-five but allowed two power-play goals to the Nashville Predators before falling in overtime.`\
+https://nytimes.com/athletic/6916753/2025/12/24/wild-faber-oreilly-penalty-kill-predators/
+
+**Xabi Alonso has made it to Christmas, but there's little comfort and joy at Real Madrid**\
+`The 44-year-old has survived an intense spell of pressure at the Bernabeu, but January will bring a tougher test`\
+https://nytimes.com/athletic/6913087/2025/12/24/xabi-alonso-real-madrid-perez-vinicius-jr-christmas/
+
+**Newcastle United at Christmas after a life-changing 2025**\
+`On a day that Newcastle gives back to its community, The Athletic speaks to Eddie Howe, Bruno Guimaraes and others about a remarkable year`\
+https://nytimes.com/athletic/6914786/2025/12/24/newcastle-united-at-christmas-after-a-life-changing-2025/
+
+**Shamal George interview: Ex-Liverpool keeper on cup final success and playing up front for Klopp**\
+`The 27-year-old has forged a successful career away from Anfield - we speak to the goalkeeper about recent success and what the future holds`\
+https://nytimes.com/athletic/6913535/2025/12/24/shamal-george-liverpool-interview/
+
+**How Erling Haaland is taking advantage of a key Man City move**\
+`The Manchester City striker continues to demonstrate why he is the perfect person to take advantage of this specific attacking move `\
+https://nytimes.com/athletic/6913232/2025/12/24/erling-haaland-manchester-city-cutbacks/
+
+**One to watch for 2026: Divine Mukasa, the Man City midfielder brimming with confidence**\
+`After breaking into the first team squad, the 18-year-old attacking midfielder has a big year ahead of him`\
+https://nytimes.com/athletic/6914713/2025/12/24/mukasa-man-city-2026/
+
+**Lamine Yamal has a statuette of himself doing a poo: It’s Christmas in Catalonia**\
+`Why does one of the world's greatest footballers have a figure of himself doing a poo next to his trophies? Allow us to explain`\
+https://nytimes.com/athletic/6913469/2025/12/24/lamine-yamal-barcelona-christmas-caganer/
+
+**Nottingham Forest 2025 in review: Seville takeover, Anderson shines and City Ground hopes**\
+`Three managers, a return to Europe, another £200million recruitment drive and an unexpected slump. It's been quite the year at Forest`\
+https://nytimes.com/athletic/6891537/2025/12/24/nottingham-forest-review-2025/
+
+**Obi has not played for Man Utd's first team this season. What now for the striker?**\
+`Chido Obi played regularly for United's first team towards the end of last season but this has not been the case this season`\
+https://nytimes.com/athletic/6913163/2025/12/24/chido-obi-man-utd-latest/
+
 **With last orders at the Winslow Hotel, we should raise a glass to the football pub**\
 `As clubs, including Everton, leave their old stadiums behind, the pubs beloved of match-going fans for generations have struggled to survive`\
 https://nytimes.com/athletic/6884654/2025/12/24/everton-winslow-hotel-premier-league-arsenal/
-
-**The Alternative Premier League Table: No 18 – the Xmas xG check-in**\
-`As the Christmas fixtures approach, we look at the under- and over-performing teams in the English top flight`\
-https://nytimes.com/athletic/6914729/2025/12/24/alternative-premier-league-table-expected-goals/
-
-**Ayto interview: Brighton's sporting director on Hurzeler, transfer plans, and leaving Arsenal**\
-`Brighton's new sporting director tells The Athletic about what he learnt at Arsenal and how he can bring that to the south coast`\
-https://nytimes.com/athletic/6893923/2025/12/24/jason-ayto-interview-brighton-sporting-director-on-arsenal-hurzeler-and-january-transfers/
-
-**Inside Greek football’s rebirth: from Euro 2004 to the Battle of Thermopylae**\
-`An ambitious new plans for reforming football will blend a creative and technical approach with ideas drawn from national mythology`\
-https://nytimes.com/athletic/6896033/2025/12/24/inside-greek-footballs-rebirth-from-euro-2004-to-the-battle-of-thermopylae/
-
-**Rodon interview: 'I felt like a new car kept in the garage for four years. It's like I'm fresh'**\
-`The defender has made 115 Leeds appearances — and has never played this frequently for any club before United. He is in uncharted territory`\
-https://nytimes.com/athletic/6908448/2025/12/24/joe-rodon-leeds-tottenham-interview/
-
-**Reigning champs USA beats Finland in final World Juniors pre-tournament game**\
-`The first impressions of this Team USA left something to be desired despite the win in what was a tight-checking, low-event match.`\
-https://nytimes.com/athletic/6916788/2025/12/24/usa-world-juniors-finland-win-stats/
-
-**Thailand, Attacking Cambodia, Says Its Target Is the Scam Industry**\
-`Thai warplanes have bombed compounds where people are forced to defraud others online. Rights activists say trafficking victims’ lives are at risk.`\
-https://nytimes.com/2025/12/24/world/asia/cambodia-scam-centers-refugees-thailand.html
-
-**How much will squad depth and injuries impact the Premier League title race?**\
-`Arsenal, Manchester City and surprise package Aston Villa are duking it out at the top of the table as we near the halfway point of 2025-26`\
-https://nytimes.com/athletic/6895695/2025/12/24/how-much-will-squad-depth-and-injuries-impact-the-premier-league-title-race/
-
-**Connections: Sports Edition Coach: Hints for Dec. 24, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6914551/2025/12/24/connections-sports-edition-hints-for-dec-24-2025/
-
-**Fantasy football rankings Week 17: Sleepers, starts, best Christmas songs and more**\
-`Looking for crucial Week 17 fantasy football championship guidance? Jake Ciely has made his rankings lists and checked them twice.`\
-https://nytimes.com/athletic/6911764/2025/12/24/fantasy-football-rankings-week-17-sleepers-starts-best-christmas-songs-and-more/
 
