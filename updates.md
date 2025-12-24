@@ -1,3 +1,11 @@
+**Judge Blocks Conditions Imposed on States Seeking FEMA Grants**\
+`The Trump administration had sought to require states to account for population losses tied to deportations in order to receive emergency preparedness grants.`\
+https://nytimes.com/2025/12/23/us/politics/trump-fema-grants-states-population.html
+
+**Sean Combs’s Lawyers File Appeal, Arguing His Sentence Was Unjust**\
+`The mogul’s lawyers say that a judge issued an excessively steep sentence for prostitution offenses after Mr. Combs was acquitted of more serious charges.`\
+https://nytimes.com/2025/12/23/arts/music/sean-combs-diddy-appeal-sentence.html
+
 **Sean Combs’s Lawyers File Appeal, Arguing He Received an Unjust Sentence**\
 `The mogul’s lawyers say that a judge issued an excessively steep sentence for prostitution offenses after Mr. Combs was acquitted of more serious charges.`\
 https://nytimes.com/2025/12/23/arts/music/sean-combs-diddy-appeal-sentence.html
