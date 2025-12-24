@@ -7,7 +7,7 @@ https://nytimes.com/2025/12/23/climate/governors-trump-offshore-wind.html
 https://nytimes.com/2025/12/23/movies/robert-nakamura-dead.html
 
 **Broncos longest-tenured players Bolles, Sutton finally earn Pro Bowl honors**\
-`Bolles, who made his first Pro Bowl at 33, pledged ahead of this season that he'd be "dominant player" for the Broncos. He has delivered.`\
+`Bolles, who made his first Pro Bowl at 33, pledged ahead of this season that he'd be "dominant player" for the Broncos — and he has.`\
 https://nytimes.com/athletic/6915754/2025/12/23/broncos-six-pro-bowl-selections-bolles-sutton/
 
 **Richards taken off on stretcher with foot injury, hopeful of January return**\
