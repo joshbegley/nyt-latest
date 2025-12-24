@@ -1,4 +1,4 @@
-**West Coast vibes remain high for surging Pistons**\
+**West Coast vibes remain high for the surging Pistons**\
 `Detroit's turnaround began on last year's West Coast road trip. A win in Sacramento on Tuesday night kept the good times rolling.`\
 https://nytimes.com/athletic/6917052/2025/12/24/pistons-chemistry-win-sacramento/
 
