@@ -1,3 +1,7 @@
+**INEOS Grenadiers sign Onley in Grand Tour line-up revamp**\
+`Onley, who impressed in finishing a surprise fourth in the Tour de France last year, will join the British squad on a long-term deal.`\
+https://nytimes.com/athletic/6917014/2025/12/24/onley-ineos-grenadiers-cycling/
+
 **China Is Shifting Its Nuclear Forces to Swifter Footing, Pentagon Says**\
 `The country’s production of nuclear warheads has slowed, but its missiles may be poised to strike back fast in case of an attack, an annual assessment found.`\
 https://nytimes.com/2025/12/24/world/asia/china-nuclear-forces-pentagon-report.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/24/world/australia/nsw-gun-protest-laws.html
 **How to watch Bears vs. 49ers: Time, TV, streaming**\
 `Find out how to watch the Chicago Bears play the San Francisco 49ers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6916960/2025/12/24/bears-vs-49ers-stream-how-to-watch-dec-28/
-
-**Ben Stokes pledges support for under-fire players, Jofra Archer ruled out of rest of Ashes**\
-`Stokes has spoken to Ben Duckett, who will play at the MCG, after footage emerged on social media appearing to show the opener intoxicated`\
-https://nytimes.com/athletic/6916888/2025/12/24/ben-stokes-england-duckett-archer-ashes/
 
