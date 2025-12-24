@@ -1,3 +1,19 @@
+**How much will squad depth and injuries impact the Premier League title race?**\
+`Arsenal, Manchester City and surprise package Aston Villa are duking it out at the top of the table as we near the halfway point of 2025-26`\
+https://nytimes.com/athletic/6895695/2025/12/24/how-much-will-squad-depth-and-injuries-impact-the-premier-league-title-race/
+
+**Connections: Sports Edition Coach: Hints for Dec. 24, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6914551/2025/12/24/connections-sports-edition-hints-for-dec-24-2025/
+
+**Fantasy football rankings Week 17: Sleepers, starts, best Christmas songs and more**\
+`Looking for crucial Week 17 fantasy football championship guidance? Jake Ciely has made his rankings lists and checked them twice.`\
+https://nytimes.com/athletic/6911764/2025/12/24/fantasy-football-rankings-week-17-sleepers-starts-best-christmas-songs-and-more/
+
+**A Vintage Kabul Cinema Finally Falls to Taliban Bulldozers**\
+`Built during a cosmopolitan era in the 1960s, the Ariana was closed when the Taliban were in power but still standing. Now it’s making way for a shopping mall.`\
+https://nytimes.com/2025/12/24/world/asia/kabul-cinema-taliban-ariana.html
+
 **Corrections: Dec. 24, 2025**\
 `Corrections that appeared in print on Wednesday, Dec. 24, 2025.`\
 https://nytimes.com/2025/12/23/pageoneplus/corrections-dec-24-2025.html

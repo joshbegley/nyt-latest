@@ -1,3 +1,19 @@
+**How much will squad depth and injuries impact the Premier League title race?**\
+`Arsenal, Manchester City and surprise package Aston Villa are duking it out at the top of the table as we near the halfway point of 2025-26`\
+https://nytimes.com/athletic/6895695/2025/12/24/how-much-will-squad-depth-and-injuries-impact-the-premier-league-title-race/
+
+**Connections: Sports Edition Coach: Hints for Dec. 24, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6914551/2025/12/24/connections-sports-edition-hints-for-dec-24-2025/
+
+**Fantasy football rankings Week 17: Sleepers, starts, best Christmas songs and more**\
+`Looking for crucial Week 17 fantasy football championship guidance? Jake Ciely has made his rankings lists and checked them twice.`\
+https://nytimes.com/athletic/6911764/2025/12/24/fantasy-football-rankings-week-17-sleepers-starts-best-christmas-songs-and-more/
+
+**A Vintage Kabul Cinema Finally Falls to Taliban Bulldozers**\
+`Built during a cosmopolitan era in the 1960s, the Ariana was closed when the Taliban were in power but still standing. Now it’s making way for a shopping mall.`\
+https://nytimes.com/2025/12/24/world/asia/kabul-cinema-taliban-ariana.html
+
 **Corrections: Dec. 24, 2025**\
 `Corrections that appeared in print on Wednesday, Dec. 24, 2025.`\
 https://nytimes.com/2025/12/23/pageoneplus/corrections-dec-24-2025.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6916622/2025/12/23/cooper-flagg-nikola-jokic-nugges
 **Byram plays hero as Sabres push winning streak to 7: 3 thoughts**\
 `The Sabres head into the holiday break with the longest win streak in the league.`\
 https://nytimes.com/athletic/6916696/2025/12/23/sabres-byram-ostlund-senators/
-
-**Norwegian biathlete dies during Olympic training camp in Italy**\
-`Bakken was planning to compete in the upcoming Milan-Cortina Winter Olympics.`\
-https://nytimes.com/athletic/6916630/2025/12/23/sivert-bakken-norwegian-biathlete-dies-olympic-training/
-
-**Mamdani Names Fire Commissioner, but Comments From the Former One Linger**\
-`Zohran Mamdani chose Lillian Bonsignore to be fire commissioner, weeks after the former commissioner, Robert S. Tucker, resigned, citing Mr. Mamdani’s views on Israel.`\
-https://nytimes.com/2025/12/23/nyregion/zohran-mamdani-fire-commissioner.html
-
-**The Best Songs of 2025, Part 1**\
-`Jon Caramanica, host of The Times’s “Popcast,” counts down Nos. 10 through 6, from Tate McRae to the XXL Freshman Freestyle, ahead of his top five.`\
-https://nytimes.com/video/podcasts/100000010607564/the-best-songs-of-2025-part-1.html
-
-**Sharp Quality**\
-`Ella Dershowitz forges ahead.`\
-https://nytimes.com/2025/12/23/crosswords/daily-puzzle-2025-12-24.html
 

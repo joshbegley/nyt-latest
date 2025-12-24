@@ -1,3 +1,11 @@
+**Reigning champs USA beats Finland in final World Juniors pre-tournament game**\
+`The first impressions of this Team USA left something to be desired despite the win in what was a tight-checking, low-event match.`\
+https://nytimes.com/athletic/6916788/2025/12/24/usa-world-juniors-finland-win-stats/
+
+**Thailand, Attacking Cambodia, Says Its Target Is the Scam Industry**\
+`Thai warplanes have bombed compounds where people are forced to defraud others online. Rights activists say trafficking victims’ lives are at risk.`\
+https://nytimes.com/2025/12/24/world/asia/cambodia-scam-centers-refugees-thailand.html
+
 **How much will squad depth and injuries impact the Premier League title race?**\
 `Arsenal, Manchester City and surprise package Aston Villa are duking it out at the top of the table as we near the halfway point of 2025-26`\
 https://nytimes.com/athletic/6895695/2025/12/24/how-much-will-squad-depth-and-injuries-impact-the-premier-league-title-race/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6916709/2025/12/23/cam-johnson-injury-right-knee-nu
 **19 States Sue to Block White House Plan to End Gender-Related Care for Minors**\
 `The coalition of states seeks to stop a Trump administration effort to cut off federal funding to hospitals that provide such care.`\
 https://nytimes.com/2025/12/23/us/states-lawsuit-kennedy-gender-care-hospitals.html
-
-**Cooper Flagg trades buckets with Jokić, building up Rookie of the Year case**\
-`Flagg’s flashes continue showing why Dallas could have brighter days ahead with him in the fold.`\
-https://nytimes.com/athletic/6916622/2025/12/23/cooper-flagg-nikola-jokic-nuggests-mavs-rookie/
-
-**Byram plays hero as Sabres push winning streak to 7: 3 thoughts**\
-`The Sabres head into the holiday break with the longest win streak in the league.`\
-https://nytimes.com/athletic/6916696/2025/12/23/sabres-byram-ostlund-senators/
 
