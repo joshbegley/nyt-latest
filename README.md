@@ -1,3 +1,7 @@
+**Youth Hostels, Blood Banks, Yoga: How One Far-Right Network Spread Across the World**\
+`Far-right mobilization is not an inevitable consequence of the precariousness of our times.`\
+https://nytimes.com/2025/12/23/opinion/india-far-right-rss-hindu.html
+
 **Democratic Governors Are Fighting Trump’s War on Wind Energy**\
 `Leaders in Connecticut, Massachusetts, New York and Rhode Island are racing to save offshore wind farms targeted by the president.`\
 https://nytimes.com/2025/12/23/climate/governors-trump-offshore-wind.html
@@ -21,8 +25,4 @@ https://nytimes.com/athletic/6916125/2025/12/23/louisville-eats-beans-trophy-bus
 **SafeSport suspends two US gymnastics coaches for 'physical and emotional misconduct'**\
 `Al Fong and Armine Barutyan are a married couple who have coached numerous U.S. Olympic and world medalists.`\
 https://nytimes.com/athletic/6916057/2025/12/23/safesports-gymnastics-coaches-suspended-emotional-misconduct/
-
-**Officers Who Failed N.Y.P.D. Mental Health Exams Can Stay**\
-`The city and the union agreed to a 12-month probation for 30 officers. The department had moved to fire them after they failed psychological exams or background checks.`\
-https://nytimes.com/2025/12/23/nyregion/nypd-mental-health-exams-deal.html
 
