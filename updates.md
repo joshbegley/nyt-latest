@@ -1,3 +1,11 @@
+**Venus Williams announces marriage to Andrea Preti**\
+`The couple were married in Florida over the weekend.`\
+https://nytimes.com/athletic/6917883/2025/12/24/venus-williams-marries-andrea-preti/
+
+**Improving Flyers validating management's approach to ultimately building a winner**\
+`The Flyers placed importance on establishing a strong team culture as the foundation of their rebuild. It's starting to pay off.`\
+https://nytimes.com/athletic/6917834/2025/12/24/flyers-nhl-team-standings-rebuild/
+
 **Texas A&M Will Not Reinstate Lecturer Fired Over Gender Lesson**\
 `The decision seemed likely to provoke a court battle in a state where Republican politicians have sought to influence public universities.`\
 https://nytimes.com/2025/12/24/us/texas-am-decline-reinstate-fired-faculty-member.html
