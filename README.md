@@ -1,3 +1,11 @@
+**The New York Times in Print for Wednesday, Dec. 24, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/12/24/todays-new-york-times
+
+**Arsenal may be playing tightrope football, but they are rarely putting a foot wrong**\
+`Arsenal's League Cup quarterfinal with Crystal Palace went the distance - as so many of their recent matches have done`\
+https://nytimes.com/athletic/6916447/2025/12/24/arsenal-crystal-palace-penalties/
+
 **From the Ashes to Punch: Inside the MCG library, the largest collection of cricket literature in the world**\
 `The archive in Melbourne has been open for 152 years and began with a donation after a newspaper, The Australasian, went out of business`\
 https://nytimes.com/athletic/6913056/2025/12/24/mcg-library-ashes-bodyline-cricket/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6913232/2025/12/24/erling-haaland-manchester-city-c
 **One to watch for 2026: Divine Mukasa, the Man City midfielder brimming with confidence**\
 `After breaking into the first team squad, the 18-year-old attacking midfielder has a big year ahead of him`\
 https://nytimes.com/athletic/6914713/2025/12/24/mukasa-man-city-2026/
-
-**Lamine Yamal has a statuette of himself doing a poo: It’s Christmas in Catalonia**\
-`Why does one of the world's greatest footballers have a figure of himself doing a poo next to his trophies? Allow us to explain`\
-https://nytimes.com/athletic/6913469/2025/12/24/lamine-yamal-barcelona-christmas-caganer/
-
-**Nottingham Forest 2025 in review: Seville takeover, Anderson shines and City Ground hopes**\
-`Three managers, a return to Europe, another £200million recruitment drive and an unexpected slump. It's been quite the year at Forest`\
-https://nytimes.com/athletic/6891537/2025/12/24/nottingham-forest-review-2025/
 
