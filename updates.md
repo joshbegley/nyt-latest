@@ -1,3 +1,7 @@
+**NWSL's new 'high impact' rule privileges a small pool of superstars – and they must be marketable**\
+`The league has risked losing power its new rule, which benefits European players and U.S. internationals in particular.`\
+https://nytimes.com/athletic/6917069/2025/12/24/nwsl-rodman-rule-marketable-high-impact/
+
 **The Pulse: Our favorite moments, in GIFs**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6915652/2025/12/24/christmas-eve-gifs-the-pulse/

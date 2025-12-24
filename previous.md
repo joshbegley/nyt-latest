@@ -1,3 +1,7 @@
+**NWSL's new 'high impact' rule privileges a small pool of superstars – and they must be marketable**\
+`The league has risked losing power its new rule, which benefits European players and U.S. internationals in particular.`\
+https://nytimes.com/athletic/6917069/2025/12/24/nwsl-rodman-rule-marketable-high-impact/
+
 **The Pulse: Our favorite moments, in GIFs**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6915652/2025/12/24/christmas-eve-gifs-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6916575/2025/12/24/ravens-coach-john-harbaugh-job-s
 **Wolves beat Knicks, as Julius Randle and Karl-Anthony Towns flex their muscles**\
 `Traded for each other right before last season began, Randle and Towns both showed out in Minnesota's win Tuesday night at Target Center.`\
 https://nytimes.com/athletic/6916430/2025/12/24/randle-towns-timberwolves-win-knicks/
-
-**Panthers' Derrick Brown fueled by Pro Bowl snub: 'Not gonna knock my confidence down any'**\
-`Brown finished third at his position across both conferences in the fan balloting, which counts for one-third of the process.`\
-https://nytimes.com/athletic/6916278/2025/12/24/panthers-derrick-brown-fueled-pro-bowl-snub/
 
