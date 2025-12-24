@@ -1,3 +1,11 @@
+**Norwegian biathlete dies during Olympic training camp**\
+`Bakken was planning to compete in the upcoming Milan-Cortina Winter Olympics.`\
+https://nytimes.com/athletic/6916630/2025/12/23/sivert-bakken-norwegian-biathlete-dies-olympic-training/
+
+**Karl-Anthony Towns notches 24-point half vs. Timberwolves, reflects on Minnesota**\
+`Towns scored 24 of his 40 points in the first half against his former team Tuesday night. Minnesota beat the Knicks 115-104.`\
+https://nytimes.com/athletic/6916610/2025/12/23/anthony-towns-24-points-first-half-knicks-timberwolves/
+
 **Mamdani Names Fire Commissioner, but Comments From the Former One Linger**\
 `Zohran Mamdani chose Lillian Bonsignore to be fire commissioner, weeks after the former commissioner, Robert S. Tucker, resigned, citing Mr. Mamdani’s views on Israel.`\
 https://nytimes.com/2025/12/23/nyregion/zohran-mamdani-fire-commissioner.html
