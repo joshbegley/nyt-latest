@@ -1,3 +1,7 @@
+**Heat's Terry Rozier seeks dismissal of charges in federal gambling case**\
+`Rozier was arrested in October along with 30 others.`\
+https://nytimes.com/athletic/6917425/2025/12/24/terry-rozier-seeks-dismissal-charges-betting-case/
+
 **Prime Tire: Pick your top 10 F1 drivers of 2025**\
 `Welcome to Prime Tire, The Athletic's Formula One newsletter.`\
 https://nytimes.com/athletic/6916758/2025/12/24/formula-one-f1-driver-ranking-prime-tire/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6917052/2025/12/24/pistons-chemistry-win-sacramento
 **Lowetide: Oilers prospect Ike Howard is on a historic scoring pace in the AHL**\
 `Howard is posting offensive totals that rival some of the best players in Oilers minor-league history.`\
 https://nytimes.com/athletic/6915033/2025/12/24/edmonton-oilers-prospect-ike-howard-stats-ahl/
-
-**Clippers finally win second in a row behind Kawhi Leonard's season-high**\
-`The Clippers hadn't won two in a row since the second and third games of the season before beating Houston on Tuesday night.`\
-https://nytimes.com/athletic/6916941/2025/12/24/clippers-kawhi-leonard-win-rockets/
 
