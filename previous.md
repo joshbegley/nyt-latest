@@ -1,3 +1,7 @@
+**Christmas Eve Flooding Prompts Evacuations in California**\
+`An intense winter storm created flash flooding in Southern California, closing roadways and forcing residents to evacuate in parts of the Los Angeles region. The authorities said some residents had resisted leaving their homes on the holiday.`\
+https://nytimes.com/video/weather/100000010608863/california-storm-weather-flooding.html
+
 **Phyllis Lee Levin, Times Fashion Reporter and Biographer, Dies at 104**\
 `Her 1960 essay about the frustrations of educated women prefigured Betty Friedan’s “The Feminine Mystique.” She later wrote books on John Quincy Adams and others.`\
 https://nytimes.com/2025/12/24/books/phyllis-lee-levin-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/24/opinion/epstein-file-release-truth.html
 **A Million More Epstein Documents Have Been Found, Justice Dept. Says**\
 `Democratic lawmakers, who had criticized the Justice Department’s release of the material, accused the Trump administration of violating the law mandating the release of the files.`\
 https://nytimes.com/2025/12/24/us/politics/epstein-files-documents-doj.html
-
-**An Immigrant Nurse Is Among the Dead From Blasts at a Troubled Nursing Home**\
-`Muthoni Nduthu was one of two killed by explosions at an eastern Pennsylvania facility that was plagued by poor ratings, citations and fines from the federal government.`\
-https://nytimes.com/2025/12/24/us/politics/nursing-home-blast.html
 

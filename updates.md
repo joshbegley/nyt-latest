@@ -1,3 +1,7 @@
+**Christmas Eve Flooding Prompts Evacuations in California**\
+`An intense winter storm created flash flooding in Southern California, closing roadways and forcing residents to evacuate in parts of the Los Angeles region. The authorities said some residents had resisted leaving their homes on the holiday.`\
+https://nytimes.com/video/weather/100000010608863/california-storm-weather-flooding.html
+
 **Phyllis Lee Levin, Times Fashion Reporter and Biographer, Dies at 104**\
 `Her 1960 essay about the frustrations of educated women prefigured Betty Friedan’s “The Feminine Mystique.” She later wrote books on John Quincy Adams and others.`\
 https://nytimes.com/2025/12/24/books/phyllis-lee-levin-dead.html
