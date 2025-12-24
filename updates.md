@@ -1,3 +1,7 @@
+**Prominent Farmer in California Arrested in Killing of His Wife**\
+`Michael Abatti was charged with fatally shooting Kerri Ann Abatti, who had filed for divorce and was living apart from him in Arizona.`\
+https://nytimes.com/2025/12/24/us/farming-mogul-arrested-wife-murder.html
+
 **Steelers' T.J. Watt returns to practice for first time since suffering partially collapsed lung**\
 `The Pro Bowl outside linebacker missed Pittsburgh's past two games.`\
 https://nytimes.com/athletic/6917933/2025/12/24/tj-watt-pittsburgh-steelers-practice-return-collapsed-lung/
