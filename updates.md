@@ -1,3 +1,11 @@
+**Marlins to sign reliever Pete Fairbanks: Sources**\
+`Pete Fairbanks' 75 saves over the last three years rank 12th among all relievers.`\
+https://nytimes.com/athletic/6852285/2025/12/24/mlb-pete-fairbanks-free-agency-signing-marlins/
+
+**Sources: Galaxy continue defensive makeover, sign NYCFC's Justin Haak**\
+`The Galaxy are continuing their offseason resurgence after a title defense that went horribly wrong`\
+https://nytimes.com/athletic/6917704/2025/12/24/la-galaxy-justin-haak-nycfc-mls-free-agent/
+
 **Mixed Grades for Home-Schooling**\
 `Readers offer personal stories in response to a guest essay critical of home-schooling.`\
 https://nytimes.com/2025/12/24/opinion/letters/home-schooling-debate.html
