@@ -26,7 +26,7 @@ https://nytimes.com/2025/12/24/crosswords/spelling-bee-forum.html
 `The Port Authority is preparing to increase the charge for drivers to pick up and drop off passengers at the airports.`\
 https://nytimes.com/2025/12/24/nyregion/nyc-airports-taxi-ride-share-fee-hike.html
 
-**Australian State Passes ‘Extraordinary’ Gun, Protest Laws After Bondi Attack**\
+**Australian State Passes ‘Extraordinary’ Gun and Protest Laws After Bondi Attack**\
 `While the new restrictions on firearms have broad support, new police powers to crack down on some protests were criticized as limits on civil liberties.`\
 https://nytimes.com/2025/12/24/world/australia/nsw-gun-protest-laws.html
 
