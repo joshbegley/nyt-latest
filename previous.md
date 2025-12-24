@@ -1,3 +1,11 @@
+**Shelters Won’t Let My Mother Adopt a Dog. Can I Pretend It’s for Me?**\
+`Which is the more ethical course: honoring the system’s ageist rules, or bending those rules in service of compassion?`\
+https://nytimes.com/2025/12/24/magazine/dog-adoption-ethics.html
+
+**Team USA finalizes 2026 World Juniors roster: Who are the final cuts?**\
+`Team USA's roster is now set, albeit not without questions going into the tournament — especially in net.`\
+https://nytimes.com/athletic/6917710/2025/12/24/team-usa-2026-world-juniors-roster-cuts/
+
 **Rice Krispies Treats**\
 `These classic treats are salty-sweet and the perfect balance of crispy, gooey, soft and chewy. This version, inspired by the one Julia Moskin adapted from the chef Colin Alevras for The Times in 2007, is also enhanced by deeply browned butter.`\
 https://nytimes.com/video/dining/100000010367386/rice-krispies-treats.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/24/business/gen-z-crypto.html
 **Nonalcoholic Smoky Citrus Punch**\
 `Historically, punch is an alcoholic drink, made with a spirit, sugar, citrus and spice, but this variation drops the spirit and doubles down on its other central components.`\
 https://nytimes.com/video/dining/100000010367311/nonalcoholic-smoky-citrus-punch.html
-
-**Kevin Porter Jr., Ryan Rollins click down the stretch in Giannis-less Bucks' win**\
-`After the Pacers got within single digits late in the fourth quarter, the Bucks' backcourt combo helped close out a win in Indiana.`\
-https://nytimes.com/athletic/6915745/2025/12/24/bucks-kevin-porter-jr-ryan-rollins-point-guards/
-
-**It Isn’t Swedish Christmas Without Three Kinds of Herring**\
-`On the island of Djurgarden, the sisters behind the clothing line House of Dagmar hosted a traditional feast to celebrate the holiday and their friends.`\
-https://nytimes.com/2025/12/24/t-magazine/dagmar-julbord-holiday-party-stockholm.html
 

@@ -1,3 +1,11 @@
+**Shelters Won’t Let My Mother Adopt a Dog. Can I Pretend It’s for Me?**\
+`Which is the more ethical course: honoring the system’s ageist rules, or bending those rules in service of compassion?`\
+https://nytimes.com/2025/12/24/magazine/dog-adoption-ethics.html
+
+**Team USA finalizes 2026 World Juniors roster: Who are the final cuts?**\
+`Team USA's roster is now set, albeit not without questions going into the tournament — especially in net.`\
+https://nytimes.com/athletic/6917710/2025/12/24/team-usa-2026-world-juniors-roster-cuts/
+
 **Rice Krispies Treats**\
 `These classic treats are salty-sweet and the perfect balance of crispy, gooey, soft and chewy. This version, inspired by the one Julia Moskin adapted from the chef Colin Alevras for The Times in 2007, is also enhanced by deeply browned butter.`\
 https://nytimes.com/video/dining/100000010367386/rice-krispies-treats.html
