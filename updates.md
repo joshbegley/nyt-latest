@@ -1,3 +1,11 @@
+**Mixed Grades for Home-Schooling**\
+`Readers offer personal stories in response to a guest essay critical of home-schooling.`\
+https://nytimes.com/2025/12/24/opinion/letters/home-schooling-debate.html
+
+**QB Josh Johnson to start for Commanders vs. Cowboys on Christmas Day**\
+`The team will also sign practice squad quarterback Sam Hartman to the active roster and designate him as the emergency third quarterback.`\
+https://nytimes.com/athletic/6917763/2025/12/24/qb-josh-johnson-to-start-for-commanders-vs-cowboys-on-christmas-day/
+
 **How a Scholar Nudged the Supreme Court Toward Its Troop Deployment Ruling**\
 `Accepting an argument from a law professor that no party to the case had made, the Supreme Court handed the Trump administration a stinging loss that could lead to more aggressive tactics.`\
 https://nytimes.com/2025/12/24/us/politics/georgetown-scholar-supreme-court.html
