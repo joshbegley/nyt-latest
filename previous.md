@@ -1,9 +1,13 @@
+**Why Spurs-Thunder has all the makings of the NBA's next big rivalry**\
+`The Spurs have beaten the Thunder twice in 10 days, setting up a Christmas showdown that the NBA world will certainly be watching.`\
+https://nytimes.com/athletic/6916976/2025/12/24/spurs-thunder-rivalry-wembanyama-holmgren-nba/
+
 **Shelters Won’t Let My Mother Adopt a Dog. Can I Pretend It’s for Me?**\
 `Which is the more ethical course: honoring the system’s ageist rules, or bending those rules in service of compassion?`\
 https://nytimes.com/2025/12/24/magazine/dog-adoption-ethics.html
 
 **Team USA finalizes 2026 World Juniors roster: Who are the final cuts?**\
-`Team USA's roster is now set, albeit not without questions going into the tournament — especially in net.`\
+`Team USA's roster is set, albeit not without questions going into the tournament — especially in net.`\
 https://nytimes.com/athletic/6917710/2025/12/24/team-usa-2026-world-juniors-roster-cuts/
 
 **Rice Krispies Treats**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6917527/2025/12/24/dk-metcalf-altercation-detroit-l
 **Crypto for Christmas? Gen Z-ers Are Cautiously Open to the Idea.**\
 `Despite recent volatility in the crypto market, younger generations are still open to receiving digital currencies as gifts.`\
 https://nytimes.com/2025/12/24/business/gen-z-crypto.html
-
-**Nonalcoholic Smoky Citrus Punch**\
-`Historically, punch is an alcoholic drink, made with a spirit, sugar, citrus and spice, but this variation drops the spirit and doubles down on its other central components.`\
-https://nytimes.com/video/dining/100000010367311/nonalcoholic-smoky-citrus-punch.html
 

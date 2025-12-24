@@ -1,3 +1,11 @@
+**Why Spurs-Thunder has all the makings of the NBA's next big rivalry**\
+`The Spurs have beaten the Thunder twice in 10 days, setting up a Christmas showdown that the NBA world will certainly be watching.`\
+https://nytimes.com/athletic/6916976/2025/12/24/spurs-thunder-rivalry-wembanyama-holmgren-nba/
+
+**Team USA finalizes 2026 World Juniors roster: Who are the final cuts?**\
+`Team USA's roster is set, albeit not without questions going into the tournament — especially in net.`\
+https://nytimes.com/athletic/6917710/2025/12/24/team-usa-2026-world-juniors-roster-cuts/
+
 **Shelters Won’t Let My Mother Adopt a Dog. Can I Pretend It’s for Me?**\
 `Which is the more ethical course: honoring the system’s ageist rules, or bending those rules in service of compassion?`\
 https://nytimes.com/2025/12/24/magazine/dog-adoption-ethics.html
