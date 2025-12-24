@@ -1,3 +1,7 @@
+**Penguins in the spirit of giving in loss to Maple Leafs: 10 observations**\
+`The Penguins made one mistake after another in a 6-3 loss to Toronto on Tuesday.`\
+https://nytimes.com/athletic/6916139/2025/12/23/penguins-maple-leafs-observations-nhl-holiday-break/
+
 **Journey to Antarctica Part 1**\
 `Abandoning ship, negotiating fires or hitting an iceberg are all risks when traveling to one of the fastest-melting glaciers on the continent. Our science reporter Raymond Zhong shares a glimpse into the survival training for his upcoming Antarctic trip.`\
 https://nytimes.com/video/climate/100000010596580/journey-to-antarctica-part-1.html
