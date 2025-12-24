@@ -1,3 +1,7 @@
+**Australian State Passes ‘Extraordinary’ Gun and Protest Laws After Bondi Attack**\
+`While the new restrictions on firearms have broad support, new police powers to crack down on some protests were criticized as limits on civil liberties.`\
+https://nytimes.com/2025/12/24/world/australia/nsw-gun-protest-laws.html
+
 **China Is Shifting Its Nuclear Forces to Swifter Footing, Pentagon Says**\
 `The country’s production of nuclear warheads has slowed, but its missiles may be poised to strike back fast in case of an attack, an annual assessment found.`\
 https://nytimes.com/2025/12/24/world/asia/china-nuclear-forces-pentagon-report.html
