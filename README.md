@@ -1,3 +1,7 @@
+**The Pulse: Our favorite moments, in GIFs**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6915652/2025/12/24/christmas-eve-gifs-the-pulse/
+
 **Chiefs fans, Andy Reid don't agree on Matt Nagy. His K.C. future remains uncertain**\
 `Nagy, whose status as offensive coordinator is a hot-button issue with fans, could be an NFL head coach again in 2026.`\
 https://nytimes.com/athletic/6915716/2025/12/24/chiefs-matt-nagy-andy-reid-future/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6916430/2025/12/24/randle-towns-timberwolves-win-kn
 **Panthers' Derrick Brown fueled by Pro Bowl snub: 'Not gonna knock my confidence down any'**\
 `Brown finished third at his position across both conferences in the fan balloting, which counts for one-third of the process.`\
 https://nytimes.com/athletic/6916278/2025/12/24/panthers-derrick-brown-fueled-pro-bowl-snub/
-
-**Christmas should be for families, not NBA overload. Even LeBron James agrees**\
-`The NBA and NFL are dreaming of a green Christmas, and that's not cool. Never mind the TV overload. Think of all the people working them.`\
-https://nytimes.com/athletic/6916487/2025/12/24/christmas-sports-overload-nba-nfl/
 
