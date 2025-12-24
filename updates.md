@@ -1,3 +1,7 @@
+**How to watch Giants vs. Raiders: Time, TV, streaming**\
+`Find out how to watch the New York Giants play the Las Vegas Raiders, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6916329/2025/12/23/how-to-watch-giants-vs-raiders-tv-channel-and-streaming-options-for-december-28/
+
 **Journey to the Melting Continent**\
 `The New York Times is joining an expedition by sea to Antarctica’s fastest-thinning glaciers.`\
 https://nytimes.com/live/2025/climate/antarctica-thwaites-glacier
