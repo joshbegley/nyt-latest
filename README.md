@@ -1,3 +1,7 @@
+**Texas A&M Will Not Reinstate Lecturer Fired Over Gender Lesson**\
+`The decision seemed likely to provoke a court battle in a state where Republican politicians have sought to influence public universities.`\
+https://nytimes.com/2025/12/24/us/texas-am-decline-reinstate-fired-faculty-member.html
+
 **Improving Flyers validating management's approach to ultimately building a winner**\
 `The Flyers placed importance on establishing a strong team culture as the foundation of their rebuild. Now, it's starting to pay off.`\
 https://nytimes.com/athletic/6917834/2025/12/24/flyers-nhl-team-standings-rebuild/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/24/opinion/luigi-mangione-tyler-robinson-political-v
 **‘Marty Supreme’ Review: Timothée Chalamet Sprints to the Top**\
 `The actor stars as a magnetic, striving table-tennis champ in Josh Safdie’s new movie, one of the most exciting movies of the year.`\
 https://nytimes.com/2025/12/24/movies/marty-supreme-review-timothee-chalamet.html
-
-**Marlins to sign reliever Pete Fairbanks: Sources**\
-`Pete Fairbanks' 75 saves over the last three years rank 12th among all relievers.`\
-https://nytimes.com/athletic/6852285/2025/12/24/mlb-pete-fairbanks-free-agency-signing-marlins/
 
