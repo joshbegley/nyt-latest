@@ -1,3 +1,7 @@
+**Ben Stokes pledges support for under-fire players, Jofra Archer ruled out of rest of Ashes**\
+`Stokes has spoken to Ben Duckett, who will play at the MCG, after footage emerged on social media appearing to show the opener intoxicated`\
+https://nytimes.com/athletic/6916888/2025/12/24/ben-stokes-england-duckett-archer-ashes/
+
 **Why Crystal Palace finally losing a big cup tie may not be the worst thing in the world**\
 `Palace go into every game believing they can win but they simply do not have the resources to compete on four fronts over a whole season`\
 https://nytimes.com/athletic/6911207/2025/12/24/crystal-palace-arsenal-carabao/
@@ -7,7 +11,7 @@ https://nytimes.com/athletic/6911207/2025/12/24/crystal-palace-arsenal-carabao/
 https://nytimes.com/issue/todayspaper/2025/12/24/todays-new-york-times
 
 **Arsenal may be playing tightrope football, but they are rarely putting a foot wrong**\
-`Arsenal's League Cup quarterfinal with Crystal Palace went the distance - as so many of their recent matches have done`\
+`Arsenal's League Cup quarterfinal with Crystal Palace went the distance – as so many of their recent matches have done`\
 https://nytimes.com/athletic/6916447/2025/12/24/arsenal-crystal-palace-penalties/
 
 **From the Ashes to Punch: Inside the MCG library, the largest collection of cricket literature in the world**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6914786/2025/12/24/newcastle-united-at-christmas-af
 **Shamal George interview: Ex-Liverpool keeper on cup final success and playing up front for Klopp**\
 `The 27-year-old has forged a successful career away from Anfield - we speak to the goalkeeper about recent success and what the future holds`\
 https://nytimes.com/athletic/6913535/2025/12/24/shamal-george-liverpool-interview/
-
-**How Erling Haaland is taking advantage of a key Man City move**\
-`The Manchester City striker continues to demonstrate why he is the perfect person to take advantage of this specific attacking move `\
-https://nytimes.com/athletic/6913232/2025/12/24/erling-haaland-manchester-city-cutbacks/
 

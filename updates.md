@@ -1,3 +1,11 @@
+**Ben Stokes pledges support for under-fire players, Jofra Archer ruled out of rest of Ashes**\
+`Stokes has spoken to Ben Duckett, who will play at the MCG, after footage emerged on social media appearing to show the opener intoxicated`\
+https://nytimes.com/athletic/6916888/2025/12/24/ben-stokes-england-duckett-archer-ashes/
+
+**Arsenal may be playing tightrope football, but they are rarely putting a foot wrong**\
+`Arsenal's League Cup quarterfinal with Crystal Palace went the distance – as so many of their recent matches have done`\
+https://nytimes.com/athletic/6916447/2025/12/24/arsenal-crystal-palace-penalties/
+
 **Why Crystal Palace finally losing a big cup tie may not be the worst thing in the world**\
 `Palace go into every game believing they can win but they simply do not have the resources to compete on four fronts over a whole season`\
 https://nytimes.com/athletic/6911207/2025/12/24/crystal-palace-arsenal-carabao/
