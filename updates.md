@@ -1,3 +1,11 @@
+**Journey to Antarctica Part 1**\
+`Abandoning ship, negotiating fires or hitting an iceberg are all risks when traveling to one of the fastest-melting glaciers on the continent. Our science reporter Raymond Zhong shares a glimpse into the survival training for his upcoming Antarctic trip.`\
+https://nytimes.com/video/climate/100000010596580/journey-to-antarctica-part-1.html
+
+**How to watch Eagles vs. Bills: Time, TV, streaming**\
+`Find out how to watch the Philadelphia Eagles play the Buffalo Bills, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6916320/2025/12/23/how-to-watch-eagles-vs-bills-tv-channel-and-streaming-options-for-december-28/
+
 **How to watch Giants vs. Raiders: Time, TV, streaming**\
 `Find out how to watch the New York Giants play the Las Vegas Raiders, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6916329/2025/12/23/how-to-watch-giants-vs-raiders-tv-channel-and-streaming-options-for-december-28/
