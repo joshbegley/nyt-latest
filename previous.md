@@ -1,3 +1,11 @@
+**How to watch Giants vs. Raiders: Time, TV, streaming**\
+`Find out how to watch the New York Giants play the Las Vegas Raiders, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6916329/2025/12/23/giants-vs-raiders-stream-how-to-watch-dec-28/
+
+**How to watch Eagles vs. Bills: Time, TV, streaming**\
+`Find out how to watch the Philadelphia Eagles play the Buffalo Bills, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6916320/2025/12/23/eagles-vs-bills-stream-how-to-watch-dec-28/
+
 **U.S. Bars 5 European Tech Regulators and Researchers**\
 `The Trump administration, citing “foreign censorship,” imposed travel bans on experts involved in monitoring major tech platforms.`\
 https://nytimes.com/2025/12/23/technology/trump-rubio-european-tech-disinformation-digital-services-act.html
@@ -17,12 +25,4 @@ https://nytimes.com/2025/12/23/opinion/india-far-right-rss-hindu.html
 **Democratic Governors Are Fighting Trump’s War on Wind Energy**\
 `Leaders in Connecticut, Massachusetts, New York and Rhode Island are racing to save offshore wind farms targeted by the president.`\
 https://nytimes.com/2025/12/23/climate/governors-trump-offshore-wind.html
-
-**Robert Nakamura, ‘Godfather’ of Asian American Film, Dies at 88**\
-`In his work, he often returned to Manzanar, the camp in which he and his family, along with thousands of other people of Japanese descent, were interned during World War II.`\
-https://nytimes.com/2025/12/23/movies/robert-nakamura-dead.html
-
-**Broncos longest-tenured players Bolles, Sutton finally earn Pro Bowl honors**\
-`Bolles, who made his first Pro Bowl at 33, pledged ahead of this season that he'd be "dominant player" for the Broncos. He has delivered.`\
-https://nytimes.com/athletic/6915754/2025/12/23/broncos-six-pro-bowl-selections-bolles-sutton/
 
