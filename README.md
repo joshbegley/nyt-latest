@@ -1,3 +1,7 @@
+**The Photos That Defined Business and the Economy in 2025**\
+`Our photojournalists and others have captured images of how major changes from Washington and elsewhere rippled across the world.`\
+https://nytimes.com/2025/12/24/business/dealbook/musk-trump-mamdani-pictures-of-the-year.html
+
 **What Kansas Gov. Laura Kelly wants you to know about Chiefs' new stadium deal**\
 `Kelly said Chiefs' stadium negotiations took a notable turn during a meeting in Kansas City earlier in the month.`\
 https://nytimes.com/athletic/6916070/2025/12/24/chiefs-stadium-deal-kansas-governor/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6911746/2025/12/24/college-football-starting-qb-pre
 **Can Eagles stop the run? Bills' heavy formations pose playoff blueprint test**\
 `The Eagles are 1-5 this season when they surrender 125 rushing yards or more, facing the Bills who lead the NFL in rushing at 158.9 YPG.`\
 https://nytimes.com/athletic/6911499/2025/12/24/eagles-bills-james-cook-rushing-attack/
-
-**Bengals' 2023 draft class emerges as foundation for 2026 rebuild**\
-`Five players from Bengals' 2023 draft class logged at least 550 snaps this season, the most of any Cincinnati draft in Year 3 since 2011.`\
-https://nytimes.com/athletic/6916018/2025/12/24/bengals-2023-draft-class-dj-turner/
 
