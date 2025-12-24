@@ -1,3 +1,11 @@
+**The Strange Death of Make America Great Again**\
+`Trump has begun to recede from the movement he created.`\
+https://nytimes.com/2025/12/24/opinion/turning-points-americafest-maga.html
+
+**As We Speak of ‘Peace on Earth,’ We Seem Indifferent to a Mass Atrocity**\
+`A militia accused of genocide has seized a city of a quarter-million people, and it now appears from satellites to be a ghost town.`\
+https://nytimes.com/2025/12/24/opinion/sudan-genocide.html
+
 **Prominent Farmer in California Arrested in Killing of His Wife**\
 `Michael Abatti was charged with fatally shooting Kerri Ann Abatti, who had filed for divorce and was living apart from him in Arizona.`\
 https://nytimes.com/2025/12/24/us/farming-mogul-arrested-wife-murder.html

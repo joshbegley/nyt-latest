@@ -1,3 +1,11 @@
+**The Strange Death of Make America Great Again**\
+`Trump has begun to recede from the movement he created.`\
+https://nytimes.com/2025/12/24/opinion/turning-points-americafest-maga.html
+
+**As We Speak of ‘Peace on Earth,’ We Seem Indifferent to a Mass Atrocity**\
+`A militia accused of genocide has seized a city of a quarter-million people, and it now appears from satellites to be a ghost town.`\
+https://nytimes.com/2025/12/24/opinion/sudan-genocide.html
+
 **Prominent Farmer in California Arrested in Killing of His Wife**\
 `Michael Abatti was charged with fatally shooting Kerri Ann Abatti, who had filed for divorce and was living apart from him in Arizona.`\
 https://nytimes.com/2025/12/24/us/farming-mogul-arrested-wife-murder.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/24/us/trump-harvard-letters-deal.html
 **Tiny Love Stories: ‘It’s Not Easy to Please a Woman’**\
 `To celebrate the season, we gathered five of our favorite holiday-themed Tiny Love Stories.`\
 https://nytimes.com/2025/12/24/style/tiny-modern-love-stories-its-not-easy-to-please-a-woman.html
-
-**Scoop City: Football's best gifts, from now and then**\
-`Football fans share the greatest gift the game has given them, plus what's at stake in Week 17`\
-https://nytimes.com/athletic/6917555/2025/12/24/football-gifts-2025-nfl-history-week-17/
-
-**Raiders TE Brock Bowers placed on IR ahead of pivotal game vs. Giants**\
-`The Raiders, now without Bowers for the rest of the season, face the Giants in a game that may determine who wins the No. 1 draft pick.`\
-https://nytimes.com/athletic/6917734/2025/12/24/raiders-brock-bowers-injured-reserve-giants/
 
