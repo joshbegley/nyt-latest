@@ -1,3 +1,11 @@
+**James Nnaji, former NBA first-round pick, commits to Baylor: Source**\
+`Nnaji will immediately join the team and he becomes the latest ex-pro to earn NCAA eligibility.`\
+https://nytimes.com/athletic/6918026/2025/12/24/james-nnaji-commits-baylor-nba-draft-pick/
+
+**Honduras Declares Trump-Backed Candidate Winner of Presidential Election**\
+`Nasry Asfura, a conservative, was endorsed by President Trump in a contentious vote that took weeks to conclude.`\
+https://nytimes.com/2025/12/24/world/americas/honduras-election-results-asfura.html
+
 **Palau Agrees to Take Up to 75 Migrants From the U.S.**\
 `The Pacific nation, with a population of 18,000, overcame the resistance of governmental leaders and advisers, to sign a memorandum of understanding with the U.S., and will get additional aid in return.`\
 https://nytimes.com/2025/12/24/us/politics/palau-us-migrants.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/24/us/politics/nursing-home-blast.html
 **The Strange Death of Make America Great Again**\
 `Trump has begun to recede from the movement he created.`\
 https://nytimes.com/2025/12/24/opinion/turning-points-americafest-maga.html
-
-**This Is What the Murder of a Whole City Looks Like**\
-`A militia accused of genocide has seized a city of a quarter-million people, and it now appears from satellites to be a ghost town.`\
-https://nytimes.com/2025/12/24/opinion/sudan-genocide.html
-
-**Prominent Farmer in California Arrested in Killing of His Wife**\
-`Michael Abatti was charged with fatally shooting Kerri Ann Abatti, who had filed for divorce and was living apart from him in Arizona.`\
-https://nytimes.com/2025/12/24/us/farming-mogul-arrested-wife-murder.html
 

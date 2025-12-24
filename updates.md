@@ -1,3 +1,11 @@
+**Palau Agrees to Take Up to 75 Migrants From the U.S.**\
+`The Pacific nation, with a population of 18,000, overcame the resistance of governmental leaders and advisers, to sign a memorandum of understanding with the U.S., and will get additional aid in return.`\
+https://nytimes.com/2025/12/24/us/politics/palau-us-migrants.html
+
+**Where are all the games? Why Christmas Eve historically lacks sports**\
+`Christmas Eve hasn't hosted an NBA or NHL game since 1972. `\
+https://nytimes.com/athletic/6918070/2025/12/24/christmas-eve-sports-games-hawaii-bowl/
+
 **The Epstein Files Should Not Have Been Released This Way**\
 `The fight was supposed to be about releasing them. But the way it’s being done seems designed to obscure the truth.`\
 https://nytimes.com/2025/12/24/opinion/epstein-file-release-truth.html

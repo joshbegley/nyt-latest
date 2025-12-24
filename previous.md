@@ -1,3 +1,11 @@
+**Palau Agrees to Take Up to 75 Migrants From the U.S.**\
+`The Pacific nation, with a population of 18,000, overcame the resistance of governmental leaders and advisers, to sign a memorandum of understanding with the U.S., and will get additional aid in return.`\
+https://nytimes.com/2025/12/24/us/politics/palau-us-migrants.html
+
+**Where are all the games? Why Christmas Eve historically lacks sports**\
+`Christmas Eve hasn't hosted an NBA or NHL game since 1972. `\
+https://nytimes.com/athletic/6918070/2025/12/24/christmas-eve-sports-games-hawaii-bowl/
+
 **Sources: GK Coronel poised to back out of Orlando deal for São Paulo**\
 `The Brazil-born Paraguayan international had agreed to a deal with Orlando City but has backed out of it for an alternative`\
 https://nytimes.com/athletic/6918108/2025/12/24/carlos-coronel-orlando-city-sao-paulo/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/24/opinion/sudan-genocide.html
 **Prominent Farmer in California Arrested in Killing of His Wife**\
 `Michael Abatti was charged with fatally shooting Kerri Ann Abatti, who had filed for divorce and was living apart from him in Arizona.`\
 https://nytimes.com/2025/12/24/us/farming-mogul-arrested-wife-murder.html
-
-**Steelers' T.J. Watt returns to practice for first time since suffering partially collapsed lung**\
-`The Pro Bowl outside linebacker missed Pittsburgh's past two games.`\
-https://nytimes.com/athletic/6917933/2025/12/24/tj-watt-pittsburgh-steelers-practice-return-collapsed-lung/
-
-**Venus Williams announces marriage to Andrea Preti**\
-`The couple were married in Florida over the weekend.`\
-https://nytimes.com/athletic/6917883/2025/12/24/venus-williams-marries-andrea-preti/
 
