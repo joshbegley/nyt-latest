@@ -1,4 +1,8 @@
-**Sean Combs’s Lawyers File Appeal, Arguing He Received an Unjust Sentence**\
+**Judge Blocks Conditions Imposed on States Seeking FEMA Grants**\
+`The Trump administration had sought to require states to account for population losses tied to deportations in order to receive emergency preparedness grants.`\
+https://nytimes.com/2025/12/23/us/politics/trump-fema-grants-states-population.html
+
+**Sean Combs’s Lawyers File Appeal, Arguing His Sentence Was Unjust**\
 `The mogul’s lawyers say that a judge issued an excessively steep sentence for prostitution offenses after Mr. Combs was acquitted of more serious charges.`\
 https://nytimes.com/2025/12/23/arts/music/sean-combs-diddy-appeal-sentence.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/climate/antarctica-thwaites-glacier
 **New Jersey Lawmaker Returns to Migrant Center Where She Was Arrested**\
 `Representative LaMonica McIver, a Democrat, called on immigration officials to close Delaney Hall in Newark, calling detainees’ food and medical care inadequate.`\
 https://nytimes.com/2025/12/23/nyregion/lamonica-mciver-delaney-hall.html
-
-**About This Voyage**\
-`A Times reporter and photographer are joining scientists on a research expedition by sea to Antarctica.`\
-https://nytimes.com/live/2025/climate/antarctica-thwaites-glacier/about-this-voyage
 
