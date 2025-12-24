@@ -1,3 +1,15 @@
+**Cooper Flagg puts on a show in front of twin brother in win over Nuggets**\
+`"He's really impressive," Denver coach David Adelman said after Flagg went for 33 points, nine rebounds and nine assists.`\
+https://nytimes.com/athletic/6916876/2025/12/24/cooper-flagg-mavericks-nuggets/
+
+**Mandel's Mailbag: What should the CFP value most? Plus, Jim Harbaugh and accountability**\
+`G5 blowouts in the CFP reignited debate over who truly deserves a spot; and how much blame should fall on Jim Harbaugh for Michigan’s mess?`\
+https://nytimes.com/athletic/6915991/2025/12/24/college-football-playoff-michigan-jim-harbaugh/
+
+**Dane Brugler breaks down players to know for the Cowboys in 2026 NFL Draft**\
+`The Cowboys need upgrades at several key defensive positions going into next season.`\
+https://nytimes.com/athletic/6916492/2025/12/24/cowboys-nfl-draft-expert-needs/
+
 **The Photos That Defined Business and the Economy in 2025**\
 `Our photojournalists and others have captured images of how major changes from Washington and elsewhere rippled across the world.`\
 https://nytimes.com/2025/12/24/business/dealbook/musk-trump-mamdani-pictures-of-the-year.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6917003/2025/12/24/dillon-brooks-rare-stat-line-sun
 **Rain Begins in Southern California as Region Braces for Intense Storm**\
 `Heavy rain, strong winds, flooding and debris flow could affect Los Angeles County and the surrounding areas on Christmas Eve and Christmas Day.`\
 https://nytimes.com/2025/12/24/weather/rain-flooding-los-angeles-storm.html
-
-**49ers minutia minute: Young safeties bounce back; CJ West has his best game**\
-`Trent Williams, Malik Mustapha and Ji'Ayir Brown were among the 49ers with standout performances in Indianapolis.`\
-https://nytimes.com/athletic/6916250/2025/12/24/49ers-defense-colts-jiayir-brown-malik-mustapha/
-
-**Dylan Raiola at Louisville? DJ Lagway at Baylor? Predicting every P4 starting QB in 2026**\
-`We aren't waiting for any of the dominoes to fall. We are tampering and prepared to name starting QBs nine months before the season starts. `\
-https://nytimes.com/athletic/6911746/2025/12/24/college-football-starting-qb-predictions-2026/
-
-**Can Eagles stop the run? Bills' heavy formations pose playoff blueprint test**\
-`The Eagles are 1-5 this season when they surrender 125 rushing yards or more, facing the Bills who lead the NFL in rushing at 158.9 YPG.`\
-https://nytimes.com/athletic/6911499/2025/12/24/eagles-bills-james-cook-rushing-attack/
 
