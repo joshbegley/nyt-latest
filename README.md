@@ -1,3 +1,11 @@
+**Marlins to sign reliever Pete Fairbanks: Sources**\
+`Pete Fairbanks' 75 saves over the last three years rank 12th among all relievers.`\
+https://nytimes.com/athletic/6852285/2025/12/24/mlb-pete-fairbanks-free-agency-signing-marlins/
+
+**Sources: Galaxy continue defensive makeover, sign NYCFC's Justin Haak**\
+`The Galaxy are continuing their offseason resurgence after a title defense that went horribly wrong`\
+https://nytimes.com/athletic/6917704/2025/12/24/la-galaxy-justin-haak-nycfc-mls-free-agent/
+
 **Mixed Grades for Home-Schooling**\
 `Readers offer personal stories in response to a guest essay critical of home-schooling.`\
 https://nytimes.com/2025/12/24/opinion/letters/home-schooling-debate.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/dining/100000010367386/rice-krispies-treats.html
 **Classic Shrimp Scampi**\
 `Scampi are tiny, lobster-like crustaceans with pale pink shells (also called langoustines).`\
 https://nytimes.com/video/dining/100000010367420/classic-shrimp-scampi.html
-
-**What I’m seeing from Marco Rossi and how the Canucks can unlock his upside**\
-`Here's a closer look at what Rossi brings to the table, including both the strengths and question marks of his game.`\
-https://nytimes.com/athletic/6916790/2025/12/24/marco-rossi-canucks/
-
-**Trump’s Seizures of Oil Tankers Challenge Maritime Rules and Customs**\
-`Recent U.S. actions against ships near Venezuela may embolden other countries to seize or detain ships, legal experts said.`\
-https://nytimes.com/2025/12/24/business/trump-venezuela-oil-tankers.html
 
