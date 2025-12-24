@@ -1,3 +1,11 @@
+**Youth Hostels, Blood Banks, Yoga: How One Far-Right Network Spread Across the World**\
+`Far-right mobilization is not an inevitable consequence of the precariousness of our times.`\
+https://nytimes.com/2025/12/23/opinion/india-far-right-rss-hindu.html
+
+**Broncos longest-tenured players Bolles, Sutton finally earn Pro Bowl honors**\
+`Bolles, who made his first Pro Bowl at 33, pledged ahead of this season that he'd be "dominant player" for the Broncos. He has delivered.`\
+https://nytimes.com/athletic/6915754/2025/12/23/broncos-six-pro-bowl-selections-bolles-sutton/
+
 **Democratic Governors Are Fighting Trump’s War on Wind Energy**\
 `Leaders in Connecticut, Massachusetts, New York and Rhode Island are racing to save offshore wind farms targeted by the president.`\
 https://nytimes.com/2025/12/23/climate/governors-trump-offshore-wind.html
