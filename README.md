@@ -1,3 +1,7 @@
+**What I’m seeing from Marco Rossi and how the Canucks can unlock his upside**\
+`Here's a closer look at what Rossi brings to the table, including both the strengths and question marks of his game.`\
+https://nytimes.com/athletic/6916790/2025/12/24/marco-rossi-canucks/
+
 **Trump’s Seizures of Oil Tankers Challenge Maritime Rules and Customs**\
 `Recent U.S. actions against ships near Venezuela may embolden other countries to seize or detain ships, legal experts said.`\
 https://nytimes.com/2025/12/24/business/trump-venezuela-oil-tankers.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/24/well/ptsd-service-dogs.html
 **The Best Songs of 2025, Part 2**\
 `Jon Caramanica, host of The Times’s “Popcast,” reveals his top five songs of the year in a crowded and fragmented year in pop.`\
 https://nytimes.com/video/podcasts/100000010607586/the-best-songs-of-2025-part-2.html
-
-**Cinnamon Rolls, but Make Them a Cake**\
-`No yeast, no proofing, just a big Bundt cake — cloaked in cream cheese frosting, of course — from Genevieve Ko.`\
-https://nytimes.com/2025/12/24/dining/cinnamon-rolls-but-make-them-a-cake.html
 
