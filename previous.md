@@ -1,3 +1,7 @@
+**NFL still reviewing behavior of fan involved in DK Metcalf altercation**\
+`Metcalf's two-game suspension was upheld by the NFL on Tuesday.`\
+https://nytimes.com/athletic/6917527/2025/12/24/dk-metcalf-altercation-detroit-lions-fan-behavior/
+
 **Crypto for Christmas? Gen Z-ers Are Cautiously Open to the Idea.**\
 `Despite recent volatility in the crypto market, younger generations are still open to receiving digital currencies as gifts.`\
 https://nytimes.com/2025/12/24/business/gen-z-crypto.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/01/07/us/palisades-brush-fires-snapshot-1/heres-th
 **Live Updates: Officials Warn of ‘Devastating Loss’ as Southern California Wildfires Burn Out of Control**\
 `Parts of Santa Monica were ordered to be evacuated as fast-moving flames destroyed homes along the coast in Los Angeles. Officials warned that winds would pick up overnight, fueling the fire.`\
 https://nytimes.com/live/2025/01/07/us/palisades-brush-fires-snapshot-1
-
-**Heat's Terry Rozier seeks dismissal of charges in federal gambling case**\
-`Rozier was arrested in October along with 30 others.`\
-https://nytimes.com/athletic/6917425/2025/12/24/terry-rozier-seeks-dismissal-charges-betting-case/
 

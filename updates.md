@@ -1,3 +1,7 @@
+**NFL still reviewing behavior of fan involved in DK Metcalf altercation**\
+`Metcalf's two-game suspension was upheld by the NFL on Tuesday.`\
+https://nytimes.com/athletic/6917527/2025/12/24/dk-metcalf-altercation-detroit-lions-fan-behavior/
+
 **Crypto for Christmas? Gen Z-ers Are Cautiously Open to the Idea.**\
 `Despite recent volatility in the crypto market, younger generations are still open to receiving digital currencies as gifts.`\
 https://nytimes.com/2025/12/24/business/gen-z-crypto.html
