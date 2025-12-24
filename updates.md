@@ -1,3 +1,7 @@
+**Heat's Terry Rozier seeks dismissal of charges in federal gambling case**\
+`Rozier was arrested in October along with 30 others.`\
+https://nytimes.com/athletic/6917425/2025/12/24/terry-rozier-seeks-dismissal-charges-betting-case/
+
 **Prime Tire: Pick your top 10 F1 drivers of 2025**\
 `Welcome to Prime Tire, The Athletic's Formula One newsletter.`\
 https://nytimes.com/athletic/6916758/2025/12/24/formula-one-f1-driver-ranking-prime-tire/
