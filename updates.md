@@ -1,3 +1,11 @@
+**Judge Blocks Texas Age-Verification Law for App Stores**\
+`A preliminary injunction in federal court cited the First Amendment, handing a win to tech companies like Apple and Google.`\
+https://nytimes.com/2025/12/23/technology/texas-app-age-law-blocked.html
+
+**Ben Simmons' new team is on a boat. He buys stake in pro fishing team before NBA comeback**\
+`Simmons, a controlling operator for a Sports Fishing Championship team, hopes to return to the NBA either this season or next season.`\
+https://nytimes.com/athletic/6916199/2025/12/23/ben-simmons-pro-fishing-ownership-group-nba/
+
 **Penguins in the spirit of giving in loss to Maple Leafs: 10 observations**\
 `The Penguins made one mistake after another in a 6-3 loss to Toronto on Tuesday.`\
 https://nytimes.com/athletic/6916139/2025/12/23/penguins-maple-leafs-observations-nhl-holiday-break/

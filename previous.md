@@ -1,3 +1,11 @@
+**Judge Blocks Texas Age-Verification Law for App Stores**\
+`A preliminary injunction in federal court cited the First Amendment, handing a win to tech companies like Apple and Google.`\
+https://nytimes.com/2025/12/23/technology/texas-app-age-law-blocked.html
+
+**Ben Simmons' new team is on a boat. He buys stake in pro fishing team before NBA comeback**\
+`Simmons, a controlling operator for a Sports Fishing Championship team, hopes to return to the NBA either this season or next season.`\
+https://nytimes.com/athletic/6916199/2025/12/23/ben-simmons-pro-fishing-ownership-group-nba/
+
 **Penguins in the spirit of giving in loss to Maple Leafs: 10 observations**\
 `The Penguins made one mistake after another in a 6-3 loss to Toronto on Tuesday.`\
 https://nytimes.com/athletic/6916139/2025/12/23/penguins-maple-leafs-observations-nhl-holiday-break/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6916297/2025/12/23/college-football-playoff-first-r
 **How to watch Giants vs. Raiders: Time, TV, streaming**\
 `Find out how to watch the New York Giants play the Las Vegas Raiders, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6916329/2025/12/23/how-to-watch-giants-vs-raiders-tv-channel-and-streaming-options-for-december-28/
-
-**How to watch Eagles vs. Bills: Time, TV, streaming**\
-`Find out how to watch the Philadelphia Eagles play the Buffalo Bills, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6916320/2025/12/23/how-to-watch-eagles-vs-bills-tv-channel-and-streaming-options-for-december-28/
-
-**U.S. Bars 5 European Tech Regulators and Researchers**\
-`The Trump administration, citing “foreign censorship,” imposed travel bans on experts involved in monitoring major tech platforms.`\
-https://nytimes.com/2025/12/23/technology/trump-rubio-european-tech-disinformation-digital-services-act.html
 
