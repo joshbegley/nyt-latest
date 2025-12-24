@@ -1,3 +1,11 @@
+**Rice Krispies Treats**\
+`These classic treats are salty-sweet and the perfect balance of crispy, gooey, soft and chewy. This version, inspired by the one Julia Moskin adapted from the chef Colin Alevras for The Times in 2007, is also enhanced by deeply browned butter.`\
+https://nytimes.com/video/dining/100000010367386/rice-krispies-treats.html
+
+**Classic Shrimp Scampi**\
+`Scampi are tiny, lobster-like crustaceans with pale pink shells (also called langoustines).`\
+https://nytimes.com/video/dining/100000010367420/classic-shrimp-scampi.html
+
 **What I’m seeing from Marco Rossi and how the Canucks can unlock his upside**\
 `Here's a closer look at what Rossi brings to the table, including both the strengths and question marks of his game.`\
 https://nytimes.com/athletic/6916790/2025/12/24/marco-rossi-canucks/
