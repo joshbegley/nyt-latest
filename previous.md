@@ -1,3 +1,7 @@
+**A Million More Epstein Documents Have Been Found, Justice Dept. Says**\
+`Democratic lawmakers, who had criticized the Justice Department’s release of the material, accused the Trump administration of violating the law mandating the release of the files.`\
+https://nytimes.com/2025/12/24/us/politics/epstein-files-documents-doj.html
+
 **An Immigrant Nurse Is Among the Dead From Blasts at a Troubled Nursing Home**\
 `Muthoni Nduthu was one of two killed by explosions at an eastern Pennsylvania facility that was plagued by poor ratings, citations and fines from the federal government.`\
 https://nytimes.com/2025/12/24/us/politics/nursing-home-blast.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6917834/2025/12/24/flyers-nhl-team-standings-rebuil
 **New Charges Could Carry Death Penalty in Attack on National Guard Members in D.C.**\
 `The case against Rahmanullah Lakanwal, an Afghan refugee accused of killing one Guard member and seriously injuring another, was transferred to D.C. District Court, where new firearms charges could bring capital punishment.`\
 https://nytimes.com/2025/12/24/us/politics/death-penalty-national-guard-dc-shooting.html
-
-**In Private Letters, Harvard and Trump Administration Escalate Duel**\
-`It is the latest twist in the marquee battle of the administration’s campaign to rein in colleges and universities it views as too liberal.`\
-https://nytimes.com/2025/12/24/us/trump-harvard-letters-deal.html
 

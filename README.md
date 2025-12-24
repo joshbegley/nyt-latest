@@ -1,3 +1,7 @@
+**The Epstein File Releases Make Everything Worse**\
+`The fight was supposed to be about releasing them. But the way it’s being done seems designed to obscure the truth.`\
+https://nytimes.com/2025/12/24/opinion/epstein-file-release-truth.html
+
 **A Million More Epstein Documents Have Been Found, Justice Dept. Says**\
 `Democratic lawmakers, who had criticized the Justice Department’s release of the material, accused the Trump administration of violating the law mandating the release of the files.`\
 https://nytimes.com/2025/12/24/us/politics/epstein-files-documents-doj.html
@@ -10,7 +14,7 @@ https://nytimes.com/2025/12/24/us/politics/nursing-home-blast.html
 `Trump has begun to recede from the movement he created.`\
 https://nytimes.com/2025/12/24/opinion/turning-points-americafest-maga.html
 
-**As We Speak of ‘Peace on Earth,’ We Seem Indifferent to a Mass Atrocity**\
+**This Is What the Murder of a Whole City Looks Like**\
 `A militia accused of genocide has seized a city of a quarter-million people, and it now appears from satellites to be a ghost town.`\
 https://nytimes.com/2025/12/24/opinion/sudan-genocide.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/24/us/texas-am-decline-reinstate-fired-faculty-membe
 **Improving Flyers validating management's approach to ultimately building a winner**\
 `The Flyers placed importance on establishing a strong team culture as the foundation of their rebuild. It's starting to pay off.`\
 https://nytimes.com/athletic/6917834/2025/12/24/flyers-nhl-team-standings-rebuild/
-
-**New Charges Could Carry Death Penalty in Attack on National Guard Members in D.C.**\
-`The case against Rahmanullah Lakanwal, an Afghan refugee accused of killing one Guard member and seriously injuring another, was transferred to D.C. District Court, where new firearms charges could bring capital punishment.`\
-https://nytimes.com/2025/12/24/us/politics/death-penalty-national-guard-dc-shooting.html
 

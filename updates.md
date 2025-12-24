@@ -1,3 +1,7 @@
+**A Million More Epstein Documents Have Been Found, Justice Dept. Says**\
+`Democratic lawmakers, who had criticized the Justice Department’s release of the material, accused the Trump administration of violating the law mandating the release of the files.`\
+https://nytimes.com/2025/12/24/us/politics/epstein-files-documents-doj.html
+
 **An Immigrant Nurse Is Among the Dead From Blasts at a Troubled Nursing Home**\
 `Muthoni Nduthu was one of two killed by explosions at an eastern Pennsylvania facility that was plagued by poor ratings, citations and fines from the federal government.`\
 https://nytimes.com/2025/12/24/us/politics/nursing-home-blast.html
