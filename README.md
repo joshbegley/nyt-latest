@@ -1,3 +1,7 @@
+**Norwegian biathlete dies during Olympic training camp**\
+`Bakken was planning to compete in the upcoming Milan-Cortina Winter Olympics.`\
+https://nytimes.com/athletic/6916630/2025/12/23/sivert-bakken-norwegian-biathlete-dies-olympic-training/
+
 **Mamdani Names Fire Commissioner, but Comments From the Former One Linger**\
 `Zohran Mamdani chose Lillian Bonsignore to be fire commissioner, weeks after the former commissioner, Robert S. Tucker, resigned, citing Mr. Mamdani’s views on Israel.`\
 https://nytimes.com/2025/12/23/nyregion/zohran-mamdani-fire-commissioner.html
@@ -11,7 +15,7 @@ https://nytimes.com/video/podcasts/100000010607564/the-best-songs-of-2025-part-1
 https://nytimes.com/2025/12/23/crosswords/daily-puzzle-2025-12-24.html
 
 **Karl-Anthony Towns notches 24-point half vs. Timberwolves, reflects on Minnesota**\
-`Towns went for 24 points on 9-of-13 shooting in the first half against his former team Tuesday night`\
+`Towns scored 24 of his 40 points in the first half against his former team Tuesday night. Minnesota beat the Knicks 115-104.`\
 https://nytimes.com/athletic/6916610/2025/12/23/anthony-towns-24-points-first-half-knicks-timberwolves/
 
 **How do you train for Antarctica? Go jump in a pool.**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/23/nyregion/hochul-blakeman-red-carpet.html
 **Maple Leafs have a long climb ahead, but a win over Penguins was the first step**\
 `A day after firing assistant coach Marc Savard, the Leafs finally found their firepower after blowing a 3-1 lead on Tuesday.`\
 https://nytimes.com/athletic/6916418/2025/12/23/maple-leafs-domi-maccelli-berube-penguins/
-
-**Judge Blocks Texas Age-Verification Law for App Stores**\
-`A preliminary injunction in federal court cited the First Amendment, handing a win to tech companies like Apple and Google.`\
-https://nytimes.com/2025/12/23/technology/texas-app-age-law-blocked.html
 
