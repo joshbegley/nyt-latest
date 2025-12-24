@@ -1,3 +1,7 @@
+**The Photos That Defined Business and the Economy in 2025**\
+`Our photojournalists and others have captured images of how major changes from Washington and elsewhere rippled across the world.`\
+https://nytimes.com/2025/12/24/business/dealbook/musk-trump-mamdani-pictures-of-the-year.html
+
 **What Kansas Gov. Laura Kelly wants you to know about Chiefs' new stadium deal**\
 `Kelly said Chiefs' stadium negotiations took a notable turn during a meeting in Kansas City earlier in the month.`\
 https://nytimes.com/athletic/6916070/2025/12/24/chiefs-stadium-deal-kansas-governor/
