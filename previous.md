@@ -1,3 +1,7 @@
+**Ex-Liverpool striker Origi has Milan contract terminated**\
+`The 32-time Belgium international has not played since Nottingham Forest's two-goal defeat at Everton in the Premier League in April 2024.`\
+https://nytimes.com/athletic/6917024/2025/12/24/divock-origi-milan-leaves/
+
 **INEOS Grenadiers sign Onley in Grand Tour line-up revamp**\
 `Onley, who impressed in finishing a surprise fourth in the Tour de France last year, will join the British squad on a long-term deal.`\
 https://nytimes.com/athletic/6917014/2025/12/24/onley-ineos-grenadiers-cycling/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/24/nyregion/nyc-airports-taxi-ride-share-fee-hike.ht
 **Australian State Passes ‘Extraordinary’ Gun and Protest Laws After Bondi Attack**\
 `While the new restrictions on firearms have broad support, new police powers to crack down on some protests were criticized as limits on civil liberties.`\
 https://nytimes.com/2025/12/24/world/australia/nsw-gun-protest-laws.html
-
-**How to watch Bears vs. 49ers: Time, TV, streaming**\
-`Find out how to watch the Chicago Bears play the San Francisco 49ers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6916960/2025/12/24/bears-vs-49ers-stream-how-to-watch-dec-28/
 
