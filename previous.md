@@ -1,3 +1,19 @@
+**Journey to the Melting Continent**\
+`The New York Times is joining an expedition by sea to Antarctica’s fastest-thinning glaciers.`\
+https://nytimes.com/live/2025/climate/antarctica-thwaites-glacier
+
+**New Jersey Lawmaker Returns to Migrant Center Where She Was Arrested**\
+`Representative LaMonica McIver, a Democrat, called on immigration officials to close Delaney Hall in Newark, calling detainees’ food and medical care inadequate.`\
+https://nytimes.com/2025/12/23/nyregion/lamonica-mciver-delaney-hall.html
+
+**About This Voyage**\
+`A Times reporter and photographer are joining scientists on a research expedition by sea to Antarctica.`\
+https://nytimes.com/live/2025/climate/antarctica-thwaites-glacier/about-this-voyage
+
+**Palm Beach Rallies Behind a Restaurant Manager Held at ‘Alligator Alcatraz’**\
+`After nearly two weeks in detention, José Gonzalez, the popular host of an upscale restaurant, returns home.`\
+https://nytimes.com/2025/12/23/style/jose-gonzalez-alligator-alcatraz-palm-beach.html
+
 **CFP first-round ratings surge with brand-name matchups, dip for Group of 5**\
 `Alabama and Oklahoma notched 14.9 million viewers but Ole Miss-Tulane had 6.2 million viewers and Oregon-James Madison 4.4 million.`\
 https://nytimes.com/athletic/6916297/2025/12/23/college-football-playoff-first-round-viewership/
@@ -21,8 +37,4 @@ https://nytimes.com/2025/12/23/us/politics/epstein-files-redactions-doj.html
 **Mamdani Named His Fire Commissioner. Then Adams Did Too.**\
 `Mayor-elect Zohran Mamdani chose Lillian Bonsignore, the former chief of New York’s E.M.S., as the first openly gay person to lead the Fire Department.`\
 https://nytimes.com/2025/12/23/nyregion/nyc-fire-commissioner-bonsignore-mamdani.html
-
-**Youth Hostels, Blood Banks, Yoga: How One Far-Right Network Spread Across the World**\
-`Far-right mobilization is not an inevitable consequence of the precariousness of our times.`\
-https://nytimes.com/2025/12/23/opinion/india-far-right-rss-hindu.html
 
