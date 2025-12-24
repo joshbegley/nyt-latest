@@ -1,3 +1,7 @@
+**How do you train for Antarctica? Go jump in a pool.**\
+`(No description)`\
+https://nytimes.com/live/2025/climate/antarctica-thwaites-glacier/antarctica-training
+
 **Judge Blocks Conditions Imposed on States Seeking FEMA Grants**\
 `The Trump administration had sought to require states to account for population losses tied to deportations in order to receive emergency preparedness grants.`\
 https://nytimes.com/2025/12/23/us/politics/trump-fema-grants-states-population.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/climate/100000010596580/journey-to-antarctica-part-1.h
 **Journey to the Melting Continent**\
 `The New York Times is joining an expedition by sea to Antarctica’s fastest-thinning glaciers.`\
 https://nytimes.com/live/2025/climate/antarctica-thwaites-glacier
-
-**New Jersey Lawmaker Returns to Migrant Center Where She Was Arrested**\
-`Representative LaMonica McIver, a Democrat, called on immigration officials to close Delaney Hall in Newark, calling detainees’ food and medical care inadequate.`\
-https://nytimes.com/2025/12/23/nyregion/lamonica-mciver-delaney-hall.html
 
