@@ -1,3 +1,7 @@
+**49ers' Brandon Aiyuk apologizes after driving over 100 mph in video**\
+`The receiver posted a video of himself speeding down a California freeway days after the 49ers ended any possibility that he would return.`\
+https://nytimes.com/athletic/6918239/2025/12/24/49ers-brandon-aiyuk-apology-driving-over-100-mph/
+
 **Right-eous Path**\
 `Sam Ezersky will have you cracking up.`\
 https://nytimes.com/2025/12/24/crosswords/daily-puzzle-2025-12-25.html
