@@ -1,3 +1,7 @@
+**49ers' Brandon Aiyuk apologizes after driving over 100 mph in video**\
+`The receiver posted a video of himself speeding down a California freeway days after the 49ers ended any possibility that he would return.`\
+https://nytimes.com/athletic/6918239/2025/12/24/49ers-brandon-aiyuk-apology-driving-over-100-mph/
+
 **Right-eous Path**\
 `Sam Ezersky will have you cracking up.`\
 https://nytimes.com/2025/12/24/crosswords/daily-puzzle-2025-12-25.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/24/business/nvidia-groq-chips-deal.html
 **Packers' Jordan Love appears on track to face Ravens: 'He's looked really good'**\
 `Love was still in concussion protocol Wednesday, but teammates offered rave reviews of his practice performance.`\
 https://nytimes.com/athletic/6918238/2025/12/24/packers-jordan-love-on-track-ravens/
-
-**The Small Parisian Shop That’s Become a Retail Phenomenon**\
-`With her six-month-old store, Rubirosa’s, the designer Lauren Rubinski offers a colorful take on old-world charm.`\
-https://nytimes.com/2025/12/24/t-magazine/-parisian-shop-rubirosas.html
 
