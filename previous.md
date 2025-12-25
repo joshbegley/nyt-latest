@@ -1,3 +1,7 @@
+**Farewell, John Robertson – 'Little fat guy' who became Nottingham Forest's greatest player**\
+`A tribute to the talent and character of a player Brian Clough called "the Picasso of our game", after his death at age 72`\
+https://nytimes.com/athletic/6693576/2025/12/25/john-robertson-tribute-nottingham-forest/
+
 **How to watch Spurs vs. Thunder: Time, TV, streaming**\
 `Find out how to watch the San Antonio Spurs play the Oklahoma City Thunder, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6918572/2025/12/25/spurs-vs-thunder-stream-how-to-watch-dec-25/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/25/briefing/your-picks.html
 **The Pulse: More of our favorite 2025 GIFs**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6915859/2025/12/25/christmas-sports-watch-guide-the-pulse/
-
-**Vikings-Lions predictions: Can Minnesota spoil Detroit's playoff shot on Christmas?**\
-`Will Vikings QB Max Brosmer fare better in his second NFL start? Can the Minnesota defense keep the dangerous Detroit offense in check?`\
-https://nytimes.com/athletic/6917950/2025/12/25/vikings-lions-predictions-preview-playoffs-christmas/
 
