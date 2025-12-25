@@ -1,3 +1,7 @@
+**Our Last Chance to Talk ‘Gatsby’**\
+`There’s been a lot said on the book’s 100th anniversary. But there’s a lot to say.`\
+https://nytimes.com/video/podcasts/100000010589287/our-last-chance-to-talk-gatsby.html
+
 **Prospect for Premier Returns to Bangladesh After 17 Years in Exile**\
 `Tarique Rahman, who had managed his party’s political affairs from Britain, is back in his country to campaign in elections.`\
 https://nytimes.com/2025/12/25/world/asia/bangladesh-tarique-rahman-return-exile.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/25/us/powerball-jackpot-win-ticket-arkansas.html
 **The New York Times in Print for Thursday, Dec. 25, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/12/25/todays-new-york-times
-
-**The One-Act Play My Family Reads Together Each Christmas**\
-`A long-neglected one-act from a theatrical master offers the key to enjoying your family gatherings.`\
-https://nytimes.com/2025/12/25/opinion/holiday-dinner-endless.html
 
