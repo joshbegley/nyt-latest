@@ -1,3 +1,15 @@
+**If the Knicks want an NBA championship, Mitchell Robinson must stay all season**\
+`Robinson is the weapon New York has that only one other team does. The Knicks should cherish that.`\
+https://nytimes.com/athletic/6918815/2025/12/25/if-the-knicks-want-an-championship-mitchell-robinson-must-stay-past-trade-deadline/
+
+**One Relentless Year**\
+`Here are some of the most consequential, illuminating or just plain remarkable moments from Donald Trump’s first year back in the White House.`\
+https://nytimes.com/interactive/2025/12/25/us/politics/trump-presidency-moments-2025.html
+
+**Journey to Antarctica Part 3**\
+`What do you pack for a two-month expedition to Antarctica? Our climate reporter Raymond Zhong shows us what he is bringing along for his journey.`\
+https://nytimes.com/video/climate/100000010562897/journey-to-antarctica-part-3.html
+
 **Cavaliers' brutal Christmas loss reveals team flaw, slim margin for error**\
 `The Cavaliers already know rebounding is a challenge. The workaround would be to play with more poise, then, in other areas.`\
 https://nytimes.com/athletic/6918807/2025/12/25/cavaliers-knicks-christmas-loss-rebounding/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/12/25/dining/where-to-eat-like-youre-on-30-rock-and-mor
 **Athletics, Tyler Soderstrom agree on seven-year extension: Source**\
 `The extension comes days after the A's sent a pitching prospect to the Mets for infielder Jeff McNeil.`\
 https://nytimes.com/athletic/6918740/2025/12/25/athletics-tyler-soderstrom-extension/
-
-**How to watch Timberwolves vs. Nuggets: Time, TV, streaming**\
-`Find out how to watch the Minnesota Timberwolves play the Denver Nuggets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6918766/2025/12/25/timberwolves-vs-nuggets-stream-how-to-watch-dec-25/
-
-**How to watch Rockets vs. Lakers: Time, TV, streaming**\
-`Find out how to watch the Houston Rockets play the Los Angeles Lakers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6918764/2025/12/25/rockets-vs-lakers-stream-how-to-watch-dec-25/
-
-**John Carey, Literary Eminence Who Excoriated Snobbery, Dies at 91**\
-`An Oxford professor and renowned critic, he was pugnacious, fearless and disdainful of the received wisdom of his intellectual milieu.`\
-https://nytimes.com/2025/12/25/books/john-carey-dead.html
 

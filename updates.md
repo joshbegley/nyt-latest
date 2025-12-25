@@ -1,3 +1,15 @@
+**If the Knicks want an NBA championship, Mitchell Robinson must stay all season**\
+`Robinson is the weapon New York has that only one other team does. The Knicks should cherish that.`\
+https://nytimes.com/athletic/6918815/2025/12/25/if-the-knicks-want-an-championship-mitchell-robinson-must-stay-past-trade-deadline/
+
+**One Relentless Year**\
+`Here are some of the most consequential, illuminating or just plain remarkable moments from Donald Trump’s first year back in the White House.`\
+https://nytimes.com/interactive/2025/12/25/us/politics/trump-presidency-moments-2025.html
+
+**Journey to Antarctica Part 3**\
+`What do you pack for a two-month expedition to Antarctica? Our climate reporter Raymond Zhong shows us what he is bringing along for his journey.`\
+https://nytimes.com/video/climate/100000010562897/journey-to-antarctica-part-3.html
+
 **Cavaliers' brutal Christmas loss reveals team flaw, slim margin for error**\
 `The Cavaliers already know rebounding is a challenge. The workaround would be to play with more poise, then, in other areas.`\
 https://nytimes.com/athletic/6918807/2025/12/25/cavaliers-knicks-christmas-loss-rebounding/
