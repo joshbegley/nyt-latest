@@ -1,3 +1,11 @@
+**Helicopter Crash Kills 5 on Kilimanjaro, Africa’s Highest Peak**\
+`The aircraft was on its descent from the mountain when it crashed around the Barafu Camp area in Kilimanjaro National Park, officials said.`\
+https://nytimes.com/2025/12/25/world/africa/helicopter-crash-kilimanjaro.html
+
+**'Can you make it from here?': Caitlin Clark takes on challenge in new Nike ad**\
+`The commercial features Clark being asked the questions by fans, along with celebrities like Michael Che and Travis Scott.`\
+https://nytimes.com/athletic/6918678/2025/12/25/caitlin-clark-nike-commercial/
+
 **The 10 Most Popular Meatless Recipes of 2025**\
 `Porcini ragù. Roasted broccoli with whipped tofu. French lentil salad. Here’s what readers loved the most.`\
 https://nytimes.com/2025/12/25/dining/the-10-most-popular-meatless-recipes-of-2025.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6918638/2025/12/25/mavericks-vs-warriors-stream-how
 **We Wish You a Merry Christmas (and a Handful of Snacks)**\
 `By Mia Leimkuhler`\
 https://nytimes.com/2025/12/25/dining/we-wish-you-a-merry-christmas-and-a-handful-of-snacks.html
-
-**Trump Has a New Auto Loan Tax Break. Here’s Who Could Benefit.**\
-`Many Americans can take advantage of President Trump’s deduction on auto loan interest, but the tax break will provide only modest savings.`\
-https://nytimes.com/2025/12/25/us/politics/trump-auto-loan-deduction-benefits.html
-
-**Estonia’s Man on Capitol Hill Is on a Charm Offensive**\
-`The Baltic nation’s congressional liaison is using candy, an American flag outfit and “Die Hard” jokes to make friends in Congress as the Trump administration turns against Europe.`\
-https://nytimes.com/2025/12/25/us/politics/estonia-capitol-hill-liaison.html
 

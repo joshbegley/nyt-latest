@@ -1,3 +1,11 @@
+**Helicopter Crash Kills 5 on Kilimanjaro, Africa’s Highest Peak**\
+`The aircraft was on its descent from the mountain when it crashed around the Barafu Camp area in Kilimanjaro National Park, officials said.`\
+https://nytimes.com/2025/12/25/world/africa/helicopter-crash-kilimanjaro.html
+
+**'Can you make it from here?': Caitlin Clark takes on challenge in new Nike ad**\
+`The commercial features Clark being asked the questions by fans, along with celebrities like Michael Che and Travis Scott.`\
+https://nytimes.com/athletic/6918678/2025/12/25/caitlin-clark-nike-commercial/
+
 **The 10 Most Popular Meatless Recipes of 2025**\
 `Porcini ragù. Roasted broccoli with whipped tofu. French lentil salad. Here’s what readers loved the most.`\
 https://nytimes.com/2025/12/25/dining/the-10-most-popular-meatless-recipes-of-2025.html
