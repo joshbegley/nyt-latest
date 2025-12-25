@@ -1,6 +1,10 @@
-**If the Knicks want a NBA championship, Mitchell Robinson must stay all season**\
+**Judge Blocks Detention of British Researcher Who Scrutinizes Online Hate**\
+`Imran Ahmed, who runs an organization that chronicles disinformation, was among five Europeans the State Department had barred, claiming they promote censorship.`\
+https://nytimes.com/2025/12/25/us/politics/imran-ahmed-judge-order.html
+
+**If the Knicks want a championship, Mitchell Robinson must stay all season**\
 `Robinson is the weapon New York has that only one other team does. The Knicks should cherish that.`\
-https://nytimes.com/athletic/6918815/2025/12/25/if-the-knicks-want-an-championship-mitchell-robinson-must-stay-past-trade-deadline/
+https://nytimes.com/athletic/6918815/2025/12/25/if-the-knicks-want-a-championship-mitchell-robinson-must-stay-past-trade-deadline/
 
 **One Relentless Year**\
 `Here are some of the most consequential, illuminating or just plain remarkable moments from Donald Trump’s first year back in the White House.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/25/nyregion/snow-storm-nyc-weather-forecast.html
 **Where to Eat Like You’re on ‘30 Rock’ and More Reader Questions**\
 `Becky Hughes’ monthly advice column is back with hyper-specific answers to your hyper-specific queries.`\
 https://nytimes.com/2025/12/25/dining/where-to-eat-like-youre-on-30-rock-and-more-reader-questions.html
-
-**Athletics, Tyler Soderstrom agree on seven-year extension: Source**\
-`The extension comes days after the A's sent a pitching prospect to the Mets for infielder Jeff McNeil.`\
-https://nytimes.com/athletic/6918740/2025/12/25/athletics-tyler-soderstrom-extension/
 
