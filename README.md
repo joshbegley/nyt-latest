@@ -1,40 +1,40 @@
-**The chaos of NFL emergency signings: 'Roll with it, or you can go home'**\
-`NFL teams are prepared to bring in new players on a moment's notice, but there is turmoil beneath the well-rehearsed choreography.`\
-https://nytimes.com/athletic/6917792/2025/12/25/nfl-emergency-signing-jeff-driskel-commanders/
+**Vikings-Lions predictions: Can Minnesota spoil Detroit's playoff shot on Christmas?**\
+`Will Vikings QB Max Brosmer fare better in his second NFL start? Can the Minnesota defense keep the dangerous Detroit offense in check?`\
+https://nytimes.com/athletic/6917950/2025/12/25/vikings-lions-predictions-preview-playoffs-christmas/
 
-**What's Trending in the NFL: Five postseason matchups and the Super Bowl we want to see**\
-`Anybody up for another round of Rams vs. Seahawks? And what about a Bills-49ers Super Bowl in Levi's Stadium?`\
-https://nytimes.com/athletic/6916259/2025/12/25/nfl-trends-week-17-playoffs-super-bowl-matchups/
+**NFL Week 17 roundtable: One gift for struggling Lions? Who wins Ravens-Packers?**\
+`The NFL Week 17 action begins with a Christmas tripleheader and continues with two big games on Saturday, including Texans at Chargers.`\
+https://nytimes.com/athletic/6917438/2025/12/25/nfl-week-17-roundtable-lions-cowboys-chiefs/
 
-**The New York Times International Edition in Print for Friday, Dec. 26, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/12/25/todays-new-york-times-international-edition
+**This Christmas, the Warriors are stuck, and Steph Curry's time is running out**\
+`With the Warriors' options dwindling, Steph Curry might not be able to keep them competitive for much longer.`\
+https://nytimes.com/athletic/6916654/2025/12/25/steph-curry-golden-state-warriors-christmas-nba/
 
-**How to watch Cavaliers vs. Knicks: Time, TV, streaming**\
-`Find out how to watch the Cleveland Cavaliers play the New York Knicks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6918503/2025/12/25/cavaliers-vs-knicks-stream-how-to-watch-dec-25/
+**Vic's Picks, Week 17: Drake Maye and Trevor Lawrence keep rolling**\
+`It took me 16 weeks, but I am willing to concede that Drake Maye is pretty good.`\
+https://nytimes.com/athletic/6916892/2025/12/25/nfl-week-17-picks-predictions-betting-2025/
 
-**With Airspace Closed, a Lonely Christmas for Many Venezuelans**\
-`The holidays usually bring home huge numbers from the Venezuelan diaspora. But this year, after international airlines halted almost all service, many people are spending Christmas alone and on edge.`\
-https://nytimes.com/2025/12/25/world/americas/venezuela-christmas-closed-airspace.html
+**'Five-star' dinner, hope, patience: The formula for Kevin Garnett's Wolves return**\
+`The process of bringing the organization's "Babe Ruth" back into the fold began long ago.`\
+https://nytimes.com/athletic/6911903/2025/12/25/kevin-garnett-timberwolves-return-a-rod/
 
-**Martin Scorsese: Rob Reiner Had Me in the Palm of His Hand**\
-`“We had a natural affinity for each other,” Martin Scorsese writes of Rob Reiner.`\
-https://nytimes.com/2025/12/25/opinion/culture/martin-scorsese-rob-reiner.html
+**NFL Christmas streaming guide: Broadcast info for rivalry games across Netflix, Prime**\
+`All three 2025 Christmas games reheat longstanding division rivalries. Here's how to watch them across Netflix, Prime and local markets.`\
+https://nytimes.com/athletic/6918169/2025/12/25/cowboys-commanders-lions-vikings-broncos-chiefs-how-to-watch/
 
-**The Kingdom of God Is Ruled by the Humblest of Men**\
-`One reason Jesus was born human.`\
-https://nytimes.com/2025/12/25/opinion/christmas-jesus-human-kingdom-god.html
+**Connections Companion No. 929**\
+`Scroll down for hints and conversation about the puzzle for Friday, Dec. 26, 2025.`\
+https://nytimes.com/2025/12/25/crosswords/connections-companion-929.html
 
-**9 New Movies Our Critics Are Talking About This Week**\
-`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
-https://nytimes.com/2025/12/25/movies/new-movies-this-week-critics.html
+**Gold medal mom: American bobsledder wins first World Cup race since birth of son**\
+`Eighteen months after having a baby, Humphries Armbruster found herself back at the top of the podium stand.`\
+https://nytimes.com/athletic/6917610/2025/12/25/american-bobsledder-kaillie-humphries-armbruster-olympics-motherhood/
 
-**They Are Brazil’s Favorite Flip-Flops. Now, the Right Is Boycotting Them.**\
-`For decades, Havaianas flip-flops have been a beloved global symbol of Brazilian culture, worn by millions of people each day. They are now ensnared in a political fight.`\
-https://nytimes.com/2025/12/25/world/americas/havaianas-brazil-flip-flops-boycott.html
+**Strands Sidekick No. 663**\
+`Scroll down for hints and conversation about the puzzle for Friday, Dec. 26, 2025.`\
+https://nytimes.com/2025/12/25/crosswords/strands-sidekick-663.html
 
-**‘Carol of the Bells’ Once Filled the Air Here. Now It’s Only Bombs.**\
-`Mykola Leontovych, the Ukrainian composer of the famed festive song, lived in the eastern city of Pokrovsk. Months of Russian assaults have erased most tributes to his life there.`\
-https://nytimes.com/2025/12/25/world/europe/ukraine-carol-of-the-bells-pokrovsk.html
+**Wordle Review No. 1,651**\
+`Scroll down for hints and conversation about the puzzle for Friday, Dec. 26, 2025.`\
+https://nytimes.com/2025/12/25/crosswords/wordle-review-1651.html
 
