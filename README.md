@@ -1,3 +1,7 @@
+**On Christmas, Pope Leo Tells World’s Leaders to Talk Rather Than Make War**\
+`Leo XIV’s Christmas address was his first since being elected pontiff and was scrutinized for comparisons with those of his predecessor, Francis.`\
+https://nytimes.com/2025/12/25/world/asia/leo-christmas-first-speech-pope.html
+
 **NBA Christmas watch guide: Spurs-Thunder rematch, animated Knicks, LeBron vs. KD**\
 `The NBA's annual five-game Christmas set is unwrapped Thursday, with telecasts that total more than 12 hours of bucket-getting.`\
 https://nytimes.com/athletic/6912179/2025/12/25/nba-christmas-wembanyama-knicks-lebron-durant/
@@ -18,8 +22,8 @@ https://nytimes.com/athletic/6912141/2025/12/25/lebron-james-christmas-day-games
 `Readers reflect on a column by David French on religious belief. Also, A Trump order bullies states on A.I.`\
 https://nytimes.com/2025/12/25/opinion/christian-faith-conservatives.html
 
-**Your Picks**\
-`We revisit the most-read stories of 2025.`\
+**The Year in News**\
+`We look back at 2025.`\
 https://nytimes.com/2025/12/25/briefing/your-picks.html
 
 **The Pulse: More of our favorite 2025 GIFs**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6917950/2025/12/25/vikings-lions-predictions-previe
 **NFL Week 17 roundtable: One gift for struggling Lions? Who wins Ravens-Packers?**\
 `The NFL Week 17 action begins with a Christmas tripleheader and continues with two big games on Saturday, including Texans at Chargers.`\
 https://nytimes.com/athletic/6917438/2025/12/25/nfl-week-17-roundtable-lions-cowboys-chiefs/
-
-**This Christmas, the Warriors are stuck, and Steph Curry's time is running out**\
-`With the Warriors' options dwindling, Steph Curry might not be able to keep them competitive for much longer.`\
-https://nytimes.com/athletic/6916654/2025/12/25/steph-curry-golden-state-warriors-christmas-nba/
 
