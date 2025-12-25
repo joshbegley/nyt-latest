@@ -1,3 +1,15 @@
+**Remembering Those Who Died This Year**\
+`We look back at the lives of some of the artists, innovators and thinkers we lost in 2025.`\
+https://nytimes.com/2025/12/25/world/the-lives-they-lived-2025-ukraine-peace-plan-christmas.html
+
+**New York City Braces for Several Inches of Snow**\
+`The region could see accumulations of up to 5 to 7 inches from late Friday into Saturday.`\
+https://nytimes.com/2025/12/25/nyregion/snow-storm-nyc-weather-forecast.html
+
+**Where to Eat Like You’re on ‘30 Rock’ and More Reader Questions**\
+`Becky Hughes’ monthly advice column is back with hyper-specific answers to your hyper-specific queries.`\
+https://nytimes.com/2025/12/25/dining/where-to-eat-like-youre-on-30-rock-and-more-reader-questions.html
+
 **Athletics, Tyler Soderstrom agree on seven-year extension: Source**\
 `The extension comes days after the A's sent a pitching prospect to the Mets for infielder Jeff McNeil.`\
 https://nytimes.com/athletic/6918740/2025/12/25/athletics-tyler-soderstrom-extension/

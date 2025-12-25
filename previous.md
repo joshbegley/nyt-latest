@@ -1,3 +1,15 @@
+**Remembering Those Who Died This Year**\
+`We look back at the lives of some of the artists, innovators and thinkers we lost in 2025.`\
+https://nytimes.com/2025/12/25/world/the-lives-they-lived-2025-ukraine-peace-plan-christmas.html
+
+**New York City Braces for Several Inches of Snow**\
+`The region could see accumulations of up to 5 to 7 inches from late Friday into Saturday.`\
+https://nytimes.com/2025/12/25/nyregion/snow-storm-nyc-weather-forecast.html
+
+**Where to Eat Like You’re on ‘30 Rock’ and More Reader Questions**\
+`Becky Hughes’ monthly advice column is back with hyper-specific answers to your hyper-specific queries.`\
+https://nytimes.com/2025/12/25/dining/where-to-eat-like-youre-on-30-rock-and-more-reader-questions.html
+
 **Athletics, Tyler Soderstrom agree on seven-year extension: Source**\
 `The extension comes days after the A's sent a pitching prospect to the Mets for infielder Jeff McNeil.`\
 https://nytimes.com/athletic/6918740/2025/12/25/athletics-tyler-soderstrom-extension/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/12/25/books/robert-lindsey-dead.html
 **Helicopter Crash Kills 5 on Kilimanjaro, Africa’s Highest Peak**\
 `The aircraft was on its descent from the mountain when it crashed around the Barafu Camp area in Kilimanjaro National Park, officials said.`\
 https://nytimes.com/2025/12/25/world/africa/helicopter-crash-kilimanjaro.html
-
-**'Can you make it from here?': Caitlin Clark takes on challenge in new Nike ad**\
-`The commercial features Clark being asked the questions by fans, along with celebrities like Michael Che and Travis Scott.`\
-https://nytimes.com/athletic/6918678/2025/12/25/caitlin-clark-nike-commercial/
-
-**The 10 Most Popular Meatless Recipes of 2025**\
-`Porcini ragù. Roasted broccoli with whipped tofu. French lentil salad. Here’s what readers loved the most.`\
-https://nytimes.com/2025/12/25/dining/the-10-most-popular-meatless-recipes-of-2025.html
-
-**Kimmel Tells U.K. Viewers ‘Tyranny Is Booming’ in America**\
-`Chosen by a British TV station to give an “alternative” to the king’s speech, Jimmy Kimmel said it had been a great year for the U.S. “from a fascism perspective.”`\
-https://nytimes.com/2025/12/25/world/europe/jimmy-kimmel-christmas-uk.html
 
