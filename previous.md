@@ -1,3 +1,7 @@
+**We Wish You a Merry Christmas (and a Handful of Snacks)**\
+`By Mia Leimkuhler`\
+https://nytimes.com/2025/12/25/dining/we-wish-you-a-merry-christmas-and-a-handful-of-snacks.html
+
 **Trump Has a New Auto Loan Tax Break. Here’s Who Could Benefit.**\
 `Many Americans can take advantage of President Trump’s deduction on auto loan interest, but the tax break will provide only modest savings.`\
 https://nytimes.com/2025/12/25/us/politics/trump-auto-loan-deduction-benefits.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/25/world/asia/leo-christmas-first-speech-pope.html
 **NBA Christmas watch guide: Spurs-Thunder rematch, animated Knicks, LeBron vs. KD**\
 `The NBA's annual five-game Christmas set is unwrapped Thursday, with telecasts that total more than 12 hours of bucket-getting.`\
 https://nytimes.com/athletic/6912179/2025/12/25/nba-christmas-wembanyama-knicks-lebron-durant/
-
-**Meet the backup NFL QBs getting a starring role on Christmas Day**\
-`Injuries to Patrick Mahomes, Jayden Daniels and other NFL quarterbacks have thrust a trio of backups into the spotlight on Christmas Day.`\
-https://nytimes.com/athletic/6911641/2025/12/25/nfl-backup-quarterbacks-christmas-day/
 

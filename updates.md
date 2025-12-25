@@ -1,3 +1,7 @@
+**We Wish You a Merry Christmas (and a Handful of Snacks)**\
+`By Mia Leimkuhler`\
+https://nytimes.com/2025/12/25/dining/we-wish-you-a-merry-christmas-and-a-handful-of-snacks.html
+
 **Trump Has a New Auto Loan Tax Break. Here’s Who Could Benefit.**\
 `Many Americans can take advantage of President Trump’s deduction on auto loan interest, but the tax break will provide only modest savings.`\
 https://nytimes.com/2025/12/25/us/politics/trump-auto-loan-deduction-benefits.html
