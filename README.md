@@ -1,3 +1,7 @@
+**Fernandes to return in January, Mainoo 'the future of Man Utd' - Amorim**\
+`Fernandes pulled up towards the end of the first half of United's 2-1 defeat to Aston Villa on Sunday`\
+https://nytimes.com/athletic/6910722/2025/12/25/bruno-fernandes-injury-update-manchester-united/
+
 **Dak Prescott's big day helps Cowboys hold off Commanders: Takeaways**\
 `Prescott threw for 307 yards and two touchdowns as Washington won the NFC East matchup.`\
 https://nytimes.com/athletic/6918734/2025/12/25/cowboys-commanders-score-result-takeaways-nfl-christmas-day/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/25/books/john-carey-dead.html
 **NBA Christmas takeaways: Spurs have become Thunder's kryptonite**\
 `The Spurs dominated throughout to earn their third victory over the defending champions in 12 days. Elsewhere, the Knicks staged a big rally`\
 https://nytimes.com/athletic/6918642/2025/12/25/nba-christmas-games-2025-results-analysis/
-
-**Robert Lindsey, Times Reporter and Reagan Ghostwriter, Dies at 90**\
-`The nonfiction spy thriller “The Falcon and the Snowman,” which became a film, grew out of his work as a journalist covering the West Coast for The Times.`\
-https://nytimes.com/2025/12/25/books/robert-lindsey-dead.html
 
