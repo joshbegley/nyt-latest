@@ -1,3 +1,11 @@
+**Manchester United fans and their flags are 'reclaiming' the Stretford End**\
+`Manchester United fans - in conjunction with the club - are trying to improve the atmosphere at Old Trafford. Their flags are some sight...`\
+https://nytimes.com/athletic/6913468/2025/12/25/manchester-united-stretford-end-flags/
+
+**Football Quiz of 2025: Guess the scorer, 'finals', stats of the year, managerial merry-go-round**\
+`Think you know your football/soccer? Try these 40 questions and see how you fare...`\
+https://nytimes.com/athletic/6903018/2025/12/25/football-soccer-quiz-2025/
+
 **Who’s the Parasite Now? This Newly Discovered ‘Fairy Lantern’ Flower.**\
 `Found in a forest outside Kuala Lumpur, Malaysia, the plant steals nutrients from subterranean fungi.`\
 https://nytimes.com/2025/12/25/science/fairly-lantern-parasitic-flower-malaysia.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/24/pageoneplus/corrections-dec-25-2025.html
 **Quote of the Day: ESCAPE FROM THE ABYSS**\
 `Quotation of the Day for Thursday, December 25, 2025.`\
 https://nytimes.com/2025/12/24/pageoneplus/quote-of-the-day-escape-from-the-abyss.html
-
-**Preparing for a risk that’s small, but real.**\
-`(No description)`\
-https://nytimes.com/live/2025/climate/antarctica-thwaites-glacier/preparing-for-a-risk-thats-small-but-real
-
-**Kennedy Center’s Christmas Eve Jazz Show Canceled After Trump Name Added to Building**\
-`Chuck Redd, a jazz musician, said he canceled his annual concert after President Trump’s name was affixed to the Washington building’s facade.`\
-https://nytimes.com/2025/12/24/us/kennedy-center-christmas-eve-concert-trump.html
 

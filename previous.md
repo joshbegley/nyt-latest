@@ -1,40 +1,40 @@
+**Who’s the Parasite Now? This Newly Discovered ‘Fairy Lantern’ Flower.**\
+`Found in a forest outside Kuala Lumpur, Malaysia, the plant steals nutrients from subterranean fungi.`\
+https://nytimes.com/2025/12/25/science/fairly-lantern-parasitic-flower-malaysia.html
+
+**Why China, a One-Party State, Is Backing Elections in This Country**\
+`The vote in Myanmar, widely seen as a sham, is a bid for legitimacy by the military government. It is also a way for Beijing to exert its influence there.`\
+https://nytimes.com/2025/12/25/world/asia/china-myanmar-election.html
+
+**What Parents in China See in A.I. Toys**\
+`A video of a child crying over her broken A.I. chatbot stirred up conversation in China, with some viewers questioning whether the gadgets are good for children. But the girl’s father says it’s more than a toy; it’s a family member.`\
+https://nytimes.com/video/world/asia/100000010595407/china-ai-toy-chatbot.html
+
+**Connections: Sports Edition Coach: Hints for Dec. 25, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6918415/2025/12/25/connections-sports-edition-hints-for-dec-25-2025/
+
+**Murray Hill Knows How to Put on a Show. This One Doubled as a Wedding.**\
+`The actor and drag king hosts “A Murray Little Christmas” each year. At this year’s Lincoln Center performance, he married Michelle Cathey-Casino.`\
+https://nytimes.com/2025/12/25/style/murray-hill-wedding-michelle-cathey-casino-lincoln-center.html
+
+**Why Russia Is Likely to Reject the New U.S.-Ukrainian Peace Plan**\
+`The first draft essentially called for Ukraine’s surrender. The revised version includes the security guarantees Kyiv wants to prevent future Russian aggression.`\
+https://nytimes.com/2025/12/25/world/europe/russia-ukraine-peace-plan.html
+
+**Corrections: Dec. 25, 2025**\
+`Corrections that appeared in print on Thursday, Dec. 25, 2025.`\
+https://nytimes.com/2025/12/24/pageoneplus/corrections-dec-25-2025.html
+
+**Quote of the Day: ESCAPE FROM THE ABYSS**\
+`Quotation of the Day for Thursday, December 25, 2025.`\
+https://nytimes.com/2025/12/24/pageoneplus/quote-of-the-day-escape-from-the-abyss.html
+
+**Preparing for a risk that’s small, but real.**\
+`(No description)`\
+https://nytimes.com/live/2025/climate/antarctica-thwaites-glacier/preparing-for-a-risk-thats-small-but-real
+
 **Kennedy Center’s Christmas Eve Jazz Show Canceled After Trump Name Added to Building**\
 `Chuck Redd, a jazz musician, said he canceled his annual concert after President Trump’s name was affixed to the Washington building’s facade.`\
 https://nytimes.com/2025/12/24/us/kennedy-center-christmas-eve-concert-trump.html
-
-**49ers' Brandon Aiyuk apologizes after showing himself speeding in video**\
-`The receiver posted a video of himself speeding down a California freeway days after the 49ers ended any possibility that he would return.`\
-https://nytimes.com/athletic/6918239/2025/12/24/49ers-brandon-aiyuk-apology-driving-over-100-mph/
-
-**Right-eous Path**\
-`Sam Ezersky will have you cracking up.`\
-https://nytimes.com/2025/12/24/crosswords/daily-puzzle-2025-12-25.html
-
-**Former Broadway Child Actress, 25, Killed in New Jersey Stabbing**\
-`Imani Dia Smith, who appeared in “The Lion King,” died after she was stabbed at a home in Edison, the authorities said. A man faces murder charges related to the incident.`\
-https://nytimes.com/2025/12/24/us/imani-dia-smith-dead-lion-king.html
-
-**Peng Peiyun, 95, Dies; Official Renounced China’s One-Child Policy**\
-`She was given the “hardest job under heaven”: upholding birth limits enforced by often brutal local officials. She came to support softening the policy, then abolishing it.`\
-https://nytimes.com/2025/12/24/world/asia/peng-peiyun-dead.html
-
-**Man Shot in ICE Confrontation in Maryland, Officials Say**\
-`Federal and local officials said the man, an immigrant from Portugal, tried to flee and harm agents. He and another man were hospitalized after a vehicle they were in crashed.`\
-https://nytimes.com/2025/12/24/us/immigrant-shot-maryland-ice.html
-
-**Journey to Antarctica Part 2**\
-`To get to the fastest-melting glacier in Antarctica, flying on a helicopter over icy seas is mandatory. Our science reporter Raymond Zhong learns what to do in case of a helicopter crash.`\
-https://nytimes.com/video/climate/100000010542257/journey-to-antarctica-part-2.html
-
-**Masashi 'Jumbo' Ozaki, Japanese golfer who won 113 tournaments, dies at 78**\
-`Known for his driving ability, Jumbo played on the Japan Tour as recently as 2019. `\
-https://nytimes.com/athletic/6918228/2025/12/24/masashi-jumbo-ozaki-japanese-golfer-dies-obit/
-
-**After a Plane Crashed in the Texas Fog, 2 Stories of Rescue**\
-`A plane from Mexico was on a medical mission on Monday when it crashed into Galveston Bay, and two men on the water that day helped save two lives.`\
-https://nytimes.com/2025/12/24/us/galveston-plane-crash-rescue-mexico-navy.html
-
-**Nvidia Strikes a Deal With Groq, an A.I. Chip Start-Up**\
-`Nvidia will license Groq’s technology and hire its top executives, adding to the Silicon Valley giant’s heft in artificial intelligence chips.`\
-https://nytimes.com/2025/12/24/business/nvidia-groq-chips-deal.html
 
