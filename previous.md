@@ -1,40 +1,40 @@
-**Our Last Chance to Talk ‘Gatsby’**\
-`There’s been a lot said on the book’s 100th anniversary. But there’s a lot to say.`\
-https://nytimes.com/video/podcasts/100000010589287/our-last-chance-to-talk-gatsby.html
+**With Airspace Closed, a Lonely Christmas for Many Venezuelans**\
+`The holidays usually bring home huge numbers from the Venezuelan diaspora. But this year, after international airlines halted almost all service, many people are spending Christmas alone and on edge.`\
+https://nytimes.com/2025/12/25/world/americas/venezuela-christmas-closed-airspace.html
 
-**Prospect for Premier Returns to Bangladesh After 17 Years in Exile**\
-`Tarique Rahman, who had managed his party’s political affairs from Britain, is back in his country to campaign in elections.`\
-https://nytimes.com/2025/12/25/world/asia/bangladesh-tarique-rahman-return-exile.html
+**Martin Scorsese: Rob Reiner Had Me in the Palm of His Hand**\
+`“We had a natural affinity for each other,” Martin Scorsese writes of Rob Reiner.`\
+https://nytimes.com/2025/12/25/opinion/culture/martin-scorsese-rob-reiner.html
 
-**Will Mamdani Be the 111th or the 112th Mayor of New York? It Depends.**\
-`An arcane numbering system and the misplacement of an official record have caused confusion on where Zohran Mamdani falls in history.`\
-https://nytimes.com/2025/12/25/nyregion/will-mamdani-be-the-111th-or-the-112th-mayor-of-new-york-it-depends.html
+**The Kingdom of God Is Ruled by the Humblest of Men**\
+`One reason Jesus was born human.`\
+https://nytimes.com/2025/12/25/opinion/christmas-jesus-human-kingdom-god.html
 
-**That Old Classic Film in the Theater? It Might Be From This Man’s House.**\
-`The artifacts of 20th-century cinema are being preserved in museums, and in the care of private film collectors like Brian Darwas, who has hundreds of movie prints at his home.`\
-https://nytimes.com/2025/12/25/nyregion/old-film-collector.html
+**9 New Movies Our Critics Are Talking About This Week**\
+`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
+https://nytimes.com/2025/12/25/movies/new-movies-this-week-critics.html
 
-**They Were Supposed to Protect Young Workers. Instead, They Cashed In.**\
-`Profit-seekers co-opted America’s premier cultural exchange program, the J-1 visa, which brought young people to work in the United States. Some sponsors charged thousands in fees.`\
-https://nytimes.com/2025/12/25/nyregion/j1-visa-sponsors-profits-abuse.html
+**They Are Brazil’s Favorite Flip-Flops. Now, the Right Is Boycotting Them.**\
+`For decades, Havaianas flip-flops have been a beloved global symbol of Brazilian culture, worn by millions of people each day. They are now ensnared in a political fight.`\
+https://nytimes.com/2025/12/25/world/americas/havaianas-brazil-flip-flops-boycott.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/12/25/crosswords/spelling-bee-forum.html
+**‘Carol of the Bells’ Once Filled the Air Here. Now It’s Only Bombs.**\
+`Mykola Leontovych, the Ukrainian composer of the famed festive song, lived in the eastern city of Pokrovsk. Months of Russian assaults have erased most tributes to his life there.`\
+https://nytimes.com/2025/12/25/world/europe/ukraine-carol-of-the-bells-pokrovsk.html
 
-**Pope Leo Surprises St. Peter’s Crowd Before Christmas Eve Mass**\
-`Pope Leo XIV greeted the soggy faithful in St. Peter’s Square in both English and Italian and apologized that there wasn’t enough room in the basilica for them all.`\
-https://nytimes.com/2025/12/25/us/pope-leo-surprises-st-peters-crowd-before-christmas-eve-mass.html
+**Trump Says ‘Housing First’ Failed the Homeless. Here’s What the Evidence Says.**\
+`The Trump administration has sought to move away from the model, which supporters call “evidence based” but opponents consider overly permissive.`\
+https://nytimes.com/2025/12/25/us/trump-housing-first.html
 
-**How to watch Rams vs. Falcons: Time, TV, streaming**\
-`Find out how to watch the Los Angeles Rams play the Atlanta Falcons, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6918457/2025/12/25/rams-vs-falcons-stream-how-to-watch-dec-29/
+**Homes for Sale in New York and New Jersey**\
+`This week’s properties are four-bedroom homes, including a contemporary house Cutchogue and a modern farmhouse in Stockton.`\
+https://nytimes.com/2025/12/25/realestate/housing-market-near-nyc.html
 
-**Winner in Arkansas Takes $1.817 Billion Powerball Jackpot**\
-`A single ticket drawn Wednesday night won the second-largest U.S. lottery jackpot ever.`\
-https://nytimes.com/2025/12/25/us/powerball-jackpot-win-ticket-arkansas.html
+**Her Drawings Poke Fun at Online Attention Seekers**\
+`Daniya Stambekova has won fans by finding the Beavis or Butt-Head within the most attractive influencers.`\
+https://nytimes.com/2025/12/25/style/lemme-draw-you-daniya-stambekova.html
 
-**The New York Times in Print for Thursday, Dec. 25, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/12/25/todays-new-york-times
+**Can Democrats Reinvent Themselves as Washington Disrupters?**\
+`Since President Trump’s rise, Democrats have served as defenders of a political system many Americans believe is broken. Now the party is trying a new approach.`\
+https://nytimes.com/2025/12/25/us/politics/trump-democrats-washington-midterm-elections.html
 
