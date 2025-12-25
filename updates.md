@@ -1,3 +1,15 @@
+**The New York Times in Print for Thursday, Dec. 25, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/12/25/todays-new-york-times
+
+**Christmas Dinner With Family Can Feel Endless. Embrace It.**\
+`A long-neglected one-act from a theatrical master offers the key to enjoying your family gatherings.`\
+https://nytimes.com/2025/12/25/opinion/holiday-dinner-endless.html
+
+**I’ve Been the U.N. High Commissioner for Refugees for a Decade. This Is the Crisis I See.**\
+`Populist rhetoric is numbing us to the plight of others.`\
+https://nytimes.com/2025/12/25/opinion/filippo-grandi-united-nations.html
+
 **Welcome to The G: 'Melbourne, Boxing Day, a coliseum with 100,000 in — it can get to players'**\
 `The 11th biggest and one of the most intimidating stadia in world sport hosts the Boxing Day Test in front of a sell-out crowd of 100,000`\
 https://nytimes.com/athletic/6917149/2025/12/25/mcg-ashes-boxing-day-warne-13/

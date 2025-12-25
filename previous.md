@@ -1,3 +1,15 @@
+**The New York Times in Print for Thursday, Dec. 25, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/12/25/todays-new-york-times
+
+**Christmas Dinner With Family Can Feel Endless. Embrace It.**\
+`A long-neglected one-act from a theatrical master offers the key to enjoying your family gatherings.`\
+https://nytimes.com/2025/12/25/opinion/holiday-dinner-endless.html
+
+**I’ve Been the U.N. High Commissioner for Refugees for a Decade. This Is the Crisis I See.**\
+`Populist rhetoric is numbing us to the plight of others.`\
+https://nytimes.com/2025/12/25/opinion/filippo-grandi-united-nations.html
+
 **Welcome to The G: 'Melbourne, Boxing Day, a coliseum with 100,000 in — it can get to players'**\
 `The 11th biggest and one of the most intimidating stadia in world sport hosts the Boxing Day Test in front of a sell-out crowd of 100,000`\
 https://nytimes.com/athletic/6917149/2025/12/25/mcg-ashes-boxing-day-warne-13/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6904539/2025/12/25/christmas-day-footballers-down-t
 **Manchester United fans and their flags are 'reclaiming' the Stretford End**\
 `Manchester United fans - in conjunction with the club - are trying to improve the atmosphere at Old Trafford. Their flags are some sight...`\
 https://nytimes.com/athletic/6913468/2025/12/25/manchester-united-stretford-end-flags/
-
-**Football Quiz of 2025: Guess the scorer, 'finals', stats of the year, managerial merry-go-round**\
-`Think you know your football/soccer? Try these 40 questions and see how you fare...`\
-https://nytimes.com/athletic/6903018/2025/12/25/football-soccer-quiz-2025/
-
-**Who’s the Parasite Now? This Newly Discovered ‘Fairy Lantern’ Flower.**\
-`Found in a forest outside Kuala Lumpur, Malaysia, the plant steals nutrients from subterranean fungi.`\
-https://nytimes.com/2025/12/25/science/fairly-lantern-parasitic-flower-malaysia.html
-
-**Why China, a One-Party State, Is Backing Elections in This Country**\
-`The vote in Myanmar, widely seen as a sham, is a bid for legitimacy by the military government. It is also a way for Beijing to exert its influence there.`\
-https://nytimes.com/2025/12/25/world/asia/china-myanmar-election.html
 
