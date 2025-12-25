@@ -1,3 +1,7 @@
+**Robert Lindsey, Times Reporter and Reagan Ghostwriter, Dies at 90**\
+`The nonfiction spy thriller “The Falcon and the Snowman,” which became a film, grew out of his work as a journalist covering the West Coast for The Times.`\
+https://nytimes.com/2025/12/25/books/robert-lindsey-dead.html
+
 **Helicopter Crash Kills 5 on Kilimanjaro, Africa’s Highest Peak**\
 `The aircraft was on its descent from the mountain when it crashed around the Barafu Camp area in Kilimanjaro National Park, officials said.`\
 https://nytimes.com/2025/12/25/world/africa/helicopter-crash-kilimanjaro.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/25/technology/brown-university-shooting-disinformati
 **How to watch Mavericks vs. Warriors: Time, TV, streaming**\
 `Find out how to watch the Dallas Mavericks play the Golden State Warriors, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6918638/2025/12/25/mavericks-vs-warriors-stream-how-to-watch-dec-25/
-
-**We Wish You a Merry Christmas (and a Handful of Snacks)**\
-`By Mia Leimkuhler`\
-https://nytimes.com/2025/12/25/dining/we-wish-you-a-merry-christmas-and-a-handful-of-snacks.html
 
