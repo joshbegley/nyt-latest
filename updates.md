@@ -1,3 +1,11 @@
+**​North Korea Unveils the Completed Hull of What It Calls a Nuclear Submarine**\
+`The debut followed the North’s first test of a new surface-to-air missile and the arrival of a U.S. nuclear-powered attack sub for a port call in South Korea.`\
+https://nytimes.com/2025/12/25/world/asia/north-korea-nuclear-submarine.html
+
+**Why Newcastle's right-flank crossing is key to their attack — and Woltemade's goals**\
+`Newcastle's flanks serve different purposes in attack — with the right-hand side proving fruitful for crosses... and goals.`\
+https://nytimes.com/athletic/6913810/2025/12/25/newcastle-murphy-crossing-woltemade-goals/
+
 **Football through the generations, part 1: Getting spotted, sweeping terraces and playing against George Best**\
 `Part one of our interview with seven players from the 1950s to present day on how the game has changed through the years`\
 https://nytimes.com/athletic/6911014/2025/12/25/football-through-generations-starting-out/

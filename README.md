@@ -1,3 +1,7 @@
+**Welcome to The G: 'Melbourne, Boxing Day, a coliseum with 100,000 in — it can get to players'**\
+`The 11th biggest and one of the most intimidating stadia in world sport hosts the Boxing Day Test in front of a sell-out crowd of 100,000`\
+https://nytimes.com/athletic/6917149/2025/12/25/mcg-ashes-boxing-day-warne-13/
+
 **​North Korea Unveils the Completed Hull of What It Calls a Nuclear Submarine**\
 `The debut followed the North’s first test of a new surface-to-air missile and the arrival of a U.S. nuclear-powered attack sub for a port call in South Korea.`\
 https://nytimes.com/2025/12/25/world/asia/north-korea-nuclear-submarine.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/25/science/fairly-lantern-parasitic-flower-malaysia.
 **Why China, a One-Party State, Is Backing Elections in This Country**\
 `The vote in Myanmar, widely seen as a sham, is a bid for legitimacy by the military government. It is also a way for Beijing to exert its influence there.`\
 https://nytimes.com/2025/12/25/world/asia/china-myanmar-election.html
-
-**What Parents in China See in A.I. Toys**\
-`A video of a child crying over her broken A.I. chatbot stirred up conversation in China, with some viewers questioning whether the gadgets are good for children. But the girl’s father says it’s more than a toy; it’s a family member.`\
-https://nytimes.com/video/world/asia/100000010595407/china-ai-toy-chatbot.html
 

@@ -1,3 +1,11 @@
+**​North Korea Unveils the Completed Hull of What It Calls a Nuclear Submarine**\
+`The debut followed the North’s first test of a new surface-to-air missile and the arrival of a U.S. nuclear-powered attack sub for a port call in South Korea.`\
+https://nytimes.com/2025/12/25/world/asia/north-korea-nuclear-submarine.html
+
+**Why Newcastle's right-flank crossing is key to their attack — and Woltemade's goals**\
+`Newcastle's flanks serve different purposes in attack — with the right-hand side proving fruitful for crosses... and goals.`\
+https://nytimes.com/athletic/6913810/2025/12/25/newcastle-murphy-crossing-woltemade-goals/
+
 **Football through the generations, part 1: Getting spotted, sweeping terraces and playing against George Best**\
 `Part one of our interview with seven players from the 1950s to present day on how the game has changed through the years`\
 https://nytimes.com/athletic/6911014/2025/12/25/football-through-generations-starting-out/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/25/world/asia/china-myanmar-election.html
 **What Parents in China See in A.I. Toys**\
 `A video of a child crying over her broken A.I. chatbot stirred up conversation in China, with some viewers questioning whether the gadgets are good for children. But the girl’s father says it’s more than a toy; it’s a family member.`\
 https://nytimes.com/video/world/asia/100000010595407/china-ai-toy-chatbot.html
-
-**Connections: Sports Edition Coach: Hints for Dec. 25, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6918415/2025/12/25/connections-sports-edition-hints-for-dec-25-2025/
-
-**Murray Hill Knows How to Put on a Show. This One Doubled as a Wedding.**\
-`The actor and drag king hosts “A Murray Little Christmas” each year. At this year’s Lincoln Center performance, he married Michelle Cathey-Casino.`\
-https://nytimes.com/2025/12/25/style/murray-hill-wedding-michelle-cathey-casino-lincoln-center.html
 
