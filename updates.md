@@ -1,4 +1,8 @@
 **Journey to Antarctica Part 2**\
+`To get to the fastest-melting glacier in Antarctica, flying on a helicopter over icy seas is mandatory. Our science reporter Raymond Zhong learns what to do in case of a helicopter crash.`\
+https://nytimes.com/video/climate/100000010542257/journey-to-antarctica-part-2.html
+
+**Journey to Antarctica Part 2**\
 `To get to the fastest-melting glacier in Antarctica, flying on a helicopter over some rough seas is mandatory. Our science reporter Raymond Zhong learns what to do in case of a helicopter crash.`\
 https://nytimes.com/video/climate/100000010542257/journey-to-antarctica-part-2.html
 
