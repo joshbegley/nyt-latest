@@ -1,3 +1,7 @@
+**NBA Christmas takeaways: Spurs have become Thunder's kryptonite**\
+`The Spurs dominated throughout to earn their third victory over the defending champions in 12 days. Elsewhere, the Knicks staged a big rally`\
+https://nytimes.com/athletic/6918642/2025/12/25/nba-christmas-games-2025-results-analysis/
+
 **Dak Prescott's big day helps Cowboys hold off Commanders: Takeaways**\
 `Prescott threw for 307 yards and two touchdowns as Washington won the NFC East matchup.`\
 https://nytimes.com/athletic/6918734/2025/12/25/cowboys-commanders-score-result-takeaways-nfl-christmas-day/
