@@ -1,3 +1,7 @@
+**Prospect for Premier Returns to Bangladesh After 17 Years in Exile**\
+`Tarique Rahman, who had managed his party’s political affairs from Britain, is back in his country to campaign in elections.`\
+https://nytimes.com/2025/12/25/world/asia/bangladesh-tarique-rahman-return-exile.html
+
 **Will Mamdani Be the 111th or the 112th Mayor of New York? It Depends.**\
 `An arcane numbering system and the misplacement of an official record have caused confusion on where Zohran Mamdani falls in history.`\
 https://nytimes.com/2025/12/25/nyregion/will-mamdani-be-the-111th-or-the-112th-mayor-of-new-york-it-depends.html
@@ -33,8 +37,4 @@ https://nytimes.com/issue/todayspaper/2025/12/25/todays-new-york-times
 **The One-Act Play My Family Reads Together Each Christmas**\
 `A long-neglected one-act from a theatrical master offers the key to enjoying your family gatherings.`\
 https://nytimes.com/2025/12/25/opinion/holiday-dinner-endless.html
-
-**I’ve Been the U.N. High Commissioner for Refugees for a Decade. This Is the Crisis I See.**\
-`Populist rhetoric is numbing us to the plight of others.`\
-https://nytimes.com/2025/12/25/opinion/filippo-grandi-united-nations.html
 
