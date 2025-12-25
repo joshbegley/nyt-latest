@@ -1,3 +1,7 @@
+**Pope Leo Surprises St. Peter’s Crowd Before Christmas Eve Mass**\
+`Pope Leo XIV greeted the soggy faithful in St. Peter’s Square in both English and Italian and apologized that there wasn’t enough room in the basilica for them all.`\
+https://nytimes.com/2025/12/25/us/pope-leo-surprises-st-peters-crowd-before-christmas-eve-mass.html
+
 **How to watch Rams vs. Falcons: Time, TV, streaming**\
 `Find out how to watch the Los Angeles Rams play the Atlanta Falcons, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6918457/2025/12/25/rams-vs-falcons-stream-how-to-watch-dec-29/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6913810/2025/12/25/newcastle-murphy-crossing-woltem
 **Football through the generations, part 1: Getting spotted, sweeping terraces and playing against George Best**\
 `Part one of our interview with seven players from the 1950s to present day on how the game has changed through the years`\
 https://nytimes.com/athletic/6911014/2025/12/25/football-through-generations-starting-out/
-
-**Premier League predictions: Man United vs Newcastle, Chelsea vs Villa, and the rest of Matchday 18**\
-`Who's leading after MD17? And what do our writer, the algorithm, a child and this week's subscriber expect to see on Matchday 18?`\
-https://nytimes.com/athletic/6909582/2025/12/25/premier-league-predictions-md18/
 

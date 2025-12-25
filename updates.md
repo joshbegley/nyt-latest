@@ -1,3 +1,7 @@
+**Pope Leo Surprises St. Peter’s Crowd Before Christmas Eve Mass**\
+`Pope Leo XIV greeted the soggy faithful in St. Peter’s Square in both English and Italian and apologized that there wasn’t enough room in the basilica for them all.`\
+https://nytimes.com/2025/12/25/us/pope-leo-surprises-st-peters-crowd-before-christmas-eve-mass.html
+
 **How to watch Rams vs. Falcons: Time, TV, streaming**\
 `Find out how to watch the Los Angeles Rams play the Atlanta Falcons, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6918457/2025/12/25/rams-vs-falcons-stream-how-to-watch-dec-29/
