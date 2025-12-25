@@ -30,7 +30,7 @@ https://nytimes.com/2025/12/25/us/powerball-jackpot-win-ticket-arkansas.html
 ``\
 https://nytimes.com/issue/todayspaper/2025/12/25/todays-new-york-times
 
-**Christmas Dinner With Family Can Feel Endless. Embrace It.**\
+**The One-Act Play My Family Reads Together Each Christmas**\
 `A long-neglected one-act from a theatrical master offers the key to enjoying your family gatherings.`\
 https://nytimes.com/2025/12/25/opinion/holiday-dinner-endless.html
 

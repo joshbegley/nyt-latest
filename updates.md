@@ -1,3 +1,7 @@
+**The One-Act Play My Family Reads Together Each Christmas**\
+`A long-neglected one-act from a theatrical master offers the key to enjoying your family gatherings.`\
+https://nytimes.com/2025/12/25/opinion/holiday-dinner-endless.html
+
 **Will Mamdani Be the 111th or the 112th Mayor of New York? It Depends.**\
 `An arcane numbering system and the misplacement of an official record have caused confusion on where Zohran Mamdani falls in history.`\
 https://nytimes.com/2025/12/25/nyregion/will-mamdani-be-the-111th-or-the-112th-mayor-of-new-york-it-depends.html
