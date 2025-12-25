@@ -1,3 +1,11 @@
+**Trump Has a New Auto Loan Tax Break. Here’s Who Could Benefit.**\
+`Many Americans can take advantage of President Trump’s deduction on auto loan interest, but the tax break will provide only modest savings.`\
+https://nytimes.com/2025/12/25/us/politics/trump-auto-loan-deduction-benefits.html
+
+**Estonia’s Man on Capitol Hill Is on a Charm Offensive**\
+`The Baltic nation’s congressional liaison is using candy, an American flag outfit and “Die Hard” jokes to make friends in Congress as the Trump administration turns against Europe.`\
+https://nytimes.com/2025/12/25/us/politics/estonia-capitol-hill-liaison.html
+
 **King Charles Urges ‘Compassion’ and Finding Strength in Diversity**\
 `His annual Christmas message was more outward-looking than last year’s, when he focused on the medical workers who had helped him and his daughter-in-law after their cancer diagnoses.`\
 https://nytimes.com/2025/12/25/world/europe/king-charles-christmas.html

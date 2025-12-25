@@ -1,3 +1,11 @@
+**Trump Has a New Auto Loan Tax Break. Here’s Who Could Benefit.**\
+`Many Americans can take advantage of President Trump’s deduction on auto loan interest, but the tax break will provide only modest savings.`\
+https://nytimes.com/2025/12/25/us/politics/trump-auto-loan-deduction-benefits.html
+
+**Estonia’s Man on Capitol Hill Is on a Charm Offensive**\
+`The Baltic nation’s congressional liaison is using candy, an American flag outfit and “Die Hard” jokes to make friends in Congress as the Trump administration turns against Europe.`\
+https://nytimes.com/2025/12/25/us/politics/estonia-capitol-hill-liaison.html
+
 **King Charles Urges ‘Compassion’ and Finding Strength in Diversity**\
 `His annual Christmas message was more outward-looking than last year’s, when he focused on the medical workers who had helped him and his daughter-in-law after their cancer diagnoses.`\
 https://nytimes.com/2025/12/25/world/europe/king-charles-christmas.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6912179/2025/12/25/nba-christmas-wembanyama-knicks-
 **Meet the backup NFL QBs getting a starring role on Christmas Day**\
 `Injuries to Patrick Mahomes, Jayden Daniels and other NFL quarterbacks have thrust a trio of backups into the spotlight on Christmas Day.`\
 https://nytimes.com/athletic/6911641/2025/12/25/nfl-backup-quarterbacks-christmas-day/
-
-**49ers mailbag: Jauan Jennings, Skyy Moore and the free agents the 49ers will want back**\
-`Also among this week's questions: What previous 49ers team does this year's resemble? And who will play linebacker against the Bears?`\
-https://nytimes.com/athletic/6918251/2025/12/25/49ers-free-agents-jauan-jennings-skyy-moore/
-
-**Before LeBron James' 20th Christmas game, we look at some of his best holiday performances**\
-`LeBron James has played in and won more Christmas Day games than any other player in NBA history.`\
-https://nytimes.com/athletic/6912141/2025/12/25/lebron-james-christmas-day-games/
 
