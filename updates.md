@@ -1,3 +1,11 @@
+**How to watch Timberwolves vs. Nuggets: Time, TV, streaming**\
+`Find out how to watch the Minnesota Timberwolves play the Denver Nuggets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6918766/2025/12/25/timberwolves-vs-nuggets-stream-how-to-watch-dec-25/
+
+**How to watch Rockets vs. Lakers: Time, TV, streaming**\
+`Find out how to watch the Houston Rockets play the Los Angeles Lakers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6918764/2025/12/25/rockets-vs-lakers-stream-how-to-watch-dec-25/
+
 **John Carey, Literary Eminence Who Excoriated Snobbery, Dies at 91**\
 `An Oxford professor and renowned critic, he was pugnacious, fearless and disdainful of the received wisdom of his intellectual milieu.`\
 https://nytimes.com/2025/12/25/books/john-carey-dead.html

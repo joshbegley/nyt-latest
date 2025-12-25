@@ -1,3 +1,11 @@
+**How to watch Timberwolves vs. Nuggets: Time, TV, streaming**\
+`Find out how to watch the Minnesota Timberwolves play the Denver Nuggets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6918766/2025/12/25/timberwolves-vs-nuggets-stream-how-to-watch-dec-25/
+
+**How to watch Rockets vs. Lakers: Time, TV, streaming**\
+`Find out how to watch the Houston Rockets play the Los Angeles Lakers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6918764/2025/12/25/rockets-vs-lakers-stream-how-to-watch-dec-25/
+
 **John Carey, Literary Eminence Who Excoriated Snobbery, Dies at 91**\
 `An Oxford professor and renowned critic, he was pugnacious, fearless and disdainful of the received wisdom of his intellectual milieu.`\
 https://nytimes.com/2025/12/25/books/john-carey-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/25/world/europe/jimmy-kimmel-christmas-uk.html
 **Honduran Candidate Claims Fraud After Trump-Backed Opponent Is Declared Victor**\
 `After officials called the presidential race for Nasry Asfura, his rival, Salvador Nasralla, disputed the result and expressed ire over the U.S. role.`\
 https://nytimes.com/2025/12/25/world/americas/honduras-election-dispute.html
-
-**No Power, No Heat, No Water: Odesa’s Days of Hell Under Russian Fire**\
-`The toll on older people and those with disabilities is especially severe as Moscow’s forces repeatedly attack the port city’s infrastructure.`\
-https://nytimes.com/2025/12/25/world/europe/ukraine-odesa.html
-
-**Berry Jam Buns**\
-`A filling made from berry preserves and fresh berries replaces the buttery cinnamon sugar you might expect in a cinnamon roll, for a colorful twist on a favorite.`\
-https://nytimes.com/video/dining/100000010368710/berry-jam-buns.html
 
