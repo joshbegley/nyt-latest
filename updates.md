@@ -1,3 +1,7 @@
+**If the Knicks want a NBA championship, Mitchell Robinson must stay all season**\
+`Robinson is the weapon New York has that only one other team does. The Knicks should cherish that.`\
+https://nytimes.com/athletic/6918815/2025/12/25/if-the-knicks-want-an-championship-mitchell-robinson-must-stay-past-trade-deadline/
+
 **If the Knicks want an NBA championship, Mitchell Robinson must stay all season**\
 `Robinson is the weapon New York has that only one other team does. The Knicks should cherish that.`\
 https://nytimes.com/athletic/6918815/2025/12/25/if-the-knicks-want-an-championship-mitchell-robinson-must-stay-past-trade-deadline/
