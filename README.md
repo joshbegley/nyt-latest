@@ -1,4 +1,4 @@
-**Dak Prescott's big day helps Cowboys hold off the Commanders: Takeaways**\
+**Dak Prescott's big day helps Cowboys hold off Commanders: Takeaways**\
 `Prescott threw for 307 yards and two touchdowns as Washington won the NFC East matchup.`\
 https://nytimes.com/athletic/6918734/2025/12/25/cowboys-commanders-score-result-takeaways-nfl-christmas-day/
 
