@@ -1,3 +1,7 @@
+**Government Officials Once Stopped False Accusations After Violence. Now, Some Join In.**\
+`Prominent business and government figures spread rumors about the attack on Brown University’s campus this month, reigniting questions about accountability in online discourse.`\
+https://nytimes.com/2025/12/25/technology/brown-university-shooting-disinformation-politicians.html
+
 **How to watch Mavericks vs. Warriors: Time, TV, streaming**\
 `Find out how to watch the Dallas Mavericks play the Golden State Warriors, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6918638/2025/12/25/mavericks-vs-warriors-stream-how-to-watch-dec-25/
