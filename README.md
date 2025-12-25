@@ -1,3 +1,7 @@
+**How to watch Rams vs. Falcons: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Rams play the Atlanta Falcons, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6918457/2025/12/25/rams-vs-falcons-stream-how-to-watch-dec-29/
+
 **Winner in Arkansas Takes $1.817 Billion Powerball Jackpot**\
 `A single ticket drawn Wednesday night won the second-largest U.S. lottery jackpot ever.`\
 https://nytimes.com/2025/12/25/us/powerball-jackpot-win-ticket-arkansas.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6911014/2025/12/25/football-through-generations-sta
 **Premier League predictions: Man United vs Newcastle, Chelsea vs Villa, and the rest of Matchday 18**\
 `Who's leading after MD17? And what do our writer, the algorithm, a child and this week's subscriber expect to see on Matchday 18?`\
 https://nytimes.com/athletic/6909582/2025/12/25/premier-league-predictions-md18/
-
-**'It was a nonentity for me' – What Christmas Day has been like for footballers down the years**\
-`While all around them indulge in festive food and drink, footballers must maintain the usual levels of commitment to training and nutrition`\
-https://nytimes.com/athletic/6904539/2025/12/25/christmas-day-footballers-down-the-years/
 
