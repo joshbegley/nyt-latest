@@ -1,3 +1,7 @@
+**Peng Peiyun, 95, Dies; Official Renounced China’s One-Child Policy**\
+`She was given the “hardest job under heaven”: upholding birth limits enforced by often brutal local officials. She came to support softening the policy, then abolishing it.`\
+https://nytimes.com/2025/12/24/world/asia/peng-peiyun-dead.html
+
 **Man Shot in ICE Confrontation in Maryland, Officials Say**\
 `Federal and local officials said the man, an immigrant from Portugal, tried to flee and harm agents. He and another man were hospitalized after a vehicle they were in crashed.`\
 https://nytimes.com/2025/12/24/us/immigrant-shot-maryland-ice.html
@@ -30,11 +34,7 @@ https://nytimes.com/2025/12/24/t-magazine/-parisian-shop-rubirosas.html
 `From a debate about the best seafood in Tokyo to a recipe for red velvet babka, these are some of the most intriguing and appetizing features we published this year.`\
 https://nytimes.com/2025/12/24/t-magazine/favorite-food-stories-recipes.html
 
-**In candid news conference, Steve Kerr details apology to Draymond Green**\
+**Warriors coach Steve Kerr details apology to Draymond Green: 'Not my finest hour'**\
 `Kerr was more reflective in his commentary than usual after the Christmas Eve practice. "We are a fading dynasty. We know that," he said.`\
 https://nytimes.com/athletic/6918123/2025/12/24/draymond-green-steve-kerr-apology-warriors/
-
-**Lewis Berman, Veterinarian to the Stars, Is Dead at 90**\
-`He served a New York clientele with names like Kennedy, Kissinger, Fonda, Bacall and Trump by making sure Chappy, Buzzy, Spike and other cherished pets stayed healthy.`\
-https://nytimes.com/2025/12/24/nyregion/lewis-berman-dead.html
 

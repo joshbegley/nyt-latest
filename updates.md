@@ -1,3 +1,11 @@
+**Peng Peiyun, 95, Dies; Official Renounced China’s One-Child Policy**\
+`She was given the “hardest job under heaven”: upholding birth limits enforced by often brutal local officials. She came to support softening the policy, then abolishing it.`\
+https://nytimes.com/2025/12/24/world/asia/peng-peiyun-dead.html
+
+**Warriors coach Steve Kerr details apology to Draymond Green: 'Not my finest hour'**\
+`Kerr was more reflective in his commentary than usual after the Christmas Eve practice. "We are a fading dynasty. We know that," he said.`\
+https://nytimes.com/athletic/6918123/2025/12/24/draymond-green-steve-kerr-apology-warriors/
+
 **In candid news conference, Steve Kerr details apology to Draymond Green**\
 `Kerr was more reflective in his commentary than usual after the Christmas Eve practice. "We are a fading dynasty. We know that," he said.`\
 https://nytimes.com/athletic/6918123/2025/12/24/draymond-green-steve-kerr-apology-warriors/
