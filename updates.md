@@ -1,3 +1,7 @@
+**How to watch Mavericks vs. Warriors: Time, TV, streaming**\
+`Find out how to watch the Dallas Mavericks play the Golden State Warriors, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6918638/2025/12/25/mavericks-vs-warriors-stream-how-to-watch-dec-25/
+
 **We Wish You a Merry Christmas (and a Handful of Snacks)**\
 `By Mia Leimkuhler`\
 https://nytimes.com/2025/12/25/dining/we-wish-you-a-merry-christmas-and-a-handful-of-snacks.html
