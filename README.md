@@ -1,3 +1,7 @@
+**John Carey, Literary Eminence Who Excoriated Snobbery, Dies at 91**\
+`An Oxford professor and renowned critic, he was pugnacious, fearless and disdainful of the received wisdom of his intellectual milieu.`\
+https://nytimes.com/2025/12/25/books/john-carey-dead.html
+
 **NBA Christmas takeaways: Knicks' depth spurs another rally in a big spot**\
 `Cleveland looked poised for a crucial victory to kickstart its season. Instead, the Knicks' depth — and Jalen Brunson — saved the day.`\
 https://nytimes.com/athletic/6918642/2025/12/25/nba-christmas-games-2025-results-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/25/world/europe/ukraine-odesa.html
 **Berry Jam Buns**\
 `A filling made from berry preserves and fresh berries replaces the buttery cinnamon sugar you might expect in a cinnamon roll, for a colorful twist on a favorite.`\
 https://nytimes.com/video/dining/100000010368710/berry-jam-buns.html
-
-**Government Officials Once Stopped False Accusations After Violence. Now, Some Join In.**\
-`Prominent business and government figures spread rumors about the attack on Brown University’s campus this month, reigniting questions about accountability in online discourse.`\
-https://nytimes.com/2025/12/25/technology/brown-university-shooting-disinformation-politicians.html
 

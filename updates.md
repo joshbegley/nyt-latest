@@ -1,3 +1,7 @@
+**NBA Christmas takeaways: Knicks' depth spurs another rally in a big spot**\
+`Cleveland looked poised for a crucial victory to kickstart its season. Instead, the Knicks' depth — and Jalen Brunson — saved the day.`\
+https://nytimes.com/athletic/6918642/2025/12/25/nba-christmas-games-2025-results-analysis/
+
 **Robert Lindsey, Times Reporter and Reagan Ghostwriter, Dies at 90**\
 `The nonfiction spy thriller “The Falcon and the Snowman,” which became a film, grew out of his work as a journalist covering the West Coast for The Times.`\
 https://nytimes.com/2025/12/25/books/robert-lindsey-dead.html

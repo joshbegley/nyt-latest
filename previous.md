@@ -1,3 +1,7 @@
+**NBA Christmas takeaways: Knicks' depth spurs another rally in a big spot**\
+`Cleveland looked poised for a crucial victory to kickstart its season. Instead, the Knicks' depth — and Jalen Brunson — saved the day.`\
+https://nytimes.com/athletic/6918642/2025/12/25/nba-christmas-games-2025-results-analysis/
+
 **Robert Lindsey, Times Reporter and Reagan Ghostwriter, Dies at 90**\
 `The nonfiction spy thriller “The Falcon and the Snowman,” which became a film, grew out of his work as a journalist covering the West Coast for The Times.`\
 https://nytimes.com/2025/12/25/books/robert-lindsey-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/dining/100000010368710/berry-jam-buns.html
 **Government Officials Once Stopped False Accusations After Violence. Now, Some Join In.**\
 `Prominent business and government figures spread rumors about the attack on Brown University’s campus this month, reigniting questions about accountability in online discourse.`\
 https://nytimes.com/2025/12/25/technology/brown-university-shooting-disinformation-politicians.html
-
-**How to watch Mavericks vs. Warriors: Time, TV, streaming**\
-`Find out how to watch the Dallas Mavericks play the Golden State Warriors, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6918638/2025/12/25/mavericks-vs-warriors-stream-how-to-watch-dec-25/
 
