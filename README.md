@@ -30,8 +30,8 @@ https://nytimes.com/athletic/6918764/2025/12/25/rockets-vs-lakers-stream-how-to-
 `An Oxford professor and renowned critic, he was pugnacious, fearless and disdainful of the received wisdom of his intellectual milieu.`\
 https://nytimes.com/2025/12/25/books/john-carey-dead.html
 
-**NBA Christmas takeaways: Knicks' depth spurs another rally in a big spot**\
-`Cleveland looked poised for a crucial victory to kickstart its season. Instead, the Knicks' depth — and Jalen Brunson — saved the day.`\
+**NBA Christmas takeaways: Spurs have become Thunder's kryptonite**\
+`The Spurs dominated throughout to earn their third victory over the defending champions in 12 days. Elsewhere, the Knicks staged a big rally`\
 https://nytimes.com/athletic/6918642/2025/12/25/nba-christmas-games-2025-results-analysis/
 
 **Robert Lindsey, Times Reporter and Reagan Ghostwriter, Dies at 90**\
