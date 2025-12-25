@@ -1,3 +1,7 @@
+**Honduran Candidate Claims Fraud After Trump-Backed Opponent Is Declared Victor**\
+`After officials called the presidential race for Nasry Asfura, his rival, Salvador Nasralla, disputed the result but did not say if he would pursue a formal challenge.`\
+https://nytimes.com/2025/12/25/world/americas/honduras-election-dispute.html
+
 **No Power, No Heat, No Water: Odesa’s Days of Hell Under Russian Fire**\
 `The toll on older people and those with disabilities is especially severe as Moscow’s forces repeatedly attack the port city’s infrastructure.`\
 https://nytimes.com/2025/12/25/world/europe/ukraine-odesa.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/25/world/europe/king-charles-christmas.html
 **Fantasy football injuries, inactives, cheat sheet Week 17**\
 `Fantasy football relevant injuries and their impact, weather reports and game previews. Plus, Ciely's Week 17 player rankings and more.`\
 https://nytimes.com/athletic/6917879/2025/12/25/fantasy-football-injuries-inactives-cheat-sheet-week-17/
-
-**Christmas Celebrated Around the World**\
-`The holiday spirit is bringing people together, with celebrations of lights, dance and Santa.`\
-https://nytimes.com/2025/12/25/world/middleeast/christmas-2025-photos.html
 
