@@ -1,3 +1,7 @@
+**Cavaliers' brutal Christmas loss reveals team flaw, slim margin for error**\
+`The Cavaliers already know rebounding is a challenge. The workaround would be to play with more poise, then, in other areas.`\
+https://nytimes.com/athletic/6918807/2025/12/25/cavaliers-knicks-christmas-loss-rebounding/
+
 **Fernandes to return in January, Mainoo 'the future of Man Utd' - Amorim**\
 `Fernandes pulled up towards the end of the first half of United's 2-1 defeat to Aston Villa on Sunday`\
 https://nytimes.com/athletic/6910722/2025/12/25/bruno-fernandes-injury-update-manchester-united/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6918764/2025/12/25/rockets-vs-lakers-stream-how-to-
 **John Carey, Literary Eminence Who Excoriated Snobbery, Dies at 91**\
 `An Oxford professor and renowned critic, he was pugnacious, fearless and disdainful of the received wisdom of his intellectual milieu.`\
 https://nytimes.com/2025/12/25/books/john-carey-dead.html
-
-**NBA Christmas takeaways: Spurs have become Thunder's kryptonite**\
-`The Spurs dominated throughout to earn their third victory over the defending champions in 12 days. Elsewhere, the Knicks staged a big rally`\
-https://nytimes.com/athletic/6918642/2025/12/25/nba-christmas-games-2025-results-analysis/
 
