@@ -1,3 +1,7 @@
+**Christmas Celebrated Around the World**\
+`The holiday spirit is bringing people together, with celebrations of lights, dance and Santa.`\
+https://nytimes.com/2025/12/25/world/middleeast/christmas-2025-photos.html
+
 **Farewell, John Robertson – 'Little fat guy' who became Nottingham Forest's greatest player**\
 `A tribute to the talent and character of a player Brian Clough called "the Picasso of our game", after his death at age 72`\
 https://nytimes.com/athletic/6693576/2025/12/25/john-robertson-tribute-nottingham-forest/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/25/opinion/christian-faith-conservatives.html
 **The Year in News**\
 `We look back at 2025.`\
 https://nytimes.com/2025/12/25/briefing/your-picks.html
-
-**The Pulse: More of our favorite 2025 GIFs**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6915859/2025/12/25/christmas-sports-watch-guide-the-pulse/
 
