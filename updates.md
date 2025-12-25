@@ -1,3 +1,7 @@
+**Our Last Chance to Talk ‘Gatsby’**\
+`There’s been a lot said on the book’s 100th anniversary. But there’s a lot to say.`\
+https://nytimes.com/video/podcasts/100000010589287/our-last-chance-to-talk-gatsby.html
+
 **Prospect for Premier Returns to Bangladesh After 17 Years in Exile**\
 `Tarique Rahman, who had managed his party’s political affairs from Britain, is back in his country to campaign in elections.`\
 https://nytimes.com/2025/12/25/world/asia/bangladesh-tarique-rahman-return-exile.html
