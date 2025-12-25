@@ -1,3 +1,7 @@
+**How to watch Rams vs. Falcons: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Rams play the Atlanta Falcons, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6918457/2025/12/25/rams-vs-falcons-stream-how-to-watch-dec-29/
+
 **Winner in Arkansas Takes $1.817 Billion Powerball Jackpot**\
 `A single ticket drawn Wednesday night won the second-largest U.S. lottery jackpot ever.`\
 https://nytimes.com/2025/12/25/us/powerball-jackpot-win-ticket-arkansas.html
