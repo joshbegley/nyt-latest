@@ -1,3 +1,7 @@
+**Winner in Arkansas Takes $1.817 Billion Powerball Jackpot**\
+`A single ticket drawn Wednesday night won the second-largest U.S. lottery jackpot ever.`\
+https://nytimes.com/2025/12/25/us/powerball-jackpot-win-ticket-arkansas.html
+
 **The New York Times in Print for Thursday, Dec. 25, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/12/25/todays-new-york-times

@@ -1,3 +1,7 @@
+**Winner in Arkansas Takes $1.817 Billion Powerball Jackpot**\
+`A single ticket drawn Wednesday night won the second-largest U.S. lottery jackpot ever.`\
+https://nytimes.com/2025/12/25/us/powerball-jackpot-win-ticket-arkansas.html
+
 **The New York Times in Print for Thursday, Dec. 25, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/12/25/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6909582/2025/12/25/premier-league-predictions-md18/
 **'It was a nonentity for me' – What Christmas Day has been like for footballers down the years**\
 `While all around them indulge in festive food and drink, footballers must maintain the usual levels of commitment to training and nutrition`\
 https://nytimes.com/athletic/6904539/2025/12/25/christmas-day-footballers-down-the-years/
-
-**Manchester United fans and their flags are 'reclaiming' the Stretford End**\
-`Manchester United fans - in conjunction with the club - are trying to improve the atmosphere at Old Trafford. Their flags are some sight...`\
-https://nytimes.com/athletic/6913468/2025/12/25/manchester-united-stretford-end-flags/
 
