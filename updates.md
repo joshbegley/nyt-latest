@@ -1,3 +1,7 @@
+**Man Shot in ICE Confrontation in Maryland, Officials Say**\
+`Federal and local officials said the man, an immigrant from Portugal, tried to flee and harm agents. He and another man were hospitalized after a vehicle they were in crashed.`\
+https://nytimes.com/2025/12/24/us/immigrant-shot-maryland-ice.html
+
 **Journey to Antarctica Part 2**\
 `To get to the fastest-melting glacier in Antarctica, flying on a helicopter over icy seas is mandatory. Our science reporter Raymond Zhong learns what to do in case of a helicopter crash.`\
 https://nytimes.com/video/climate/100000010542257/journey-to-antarctica-part-2.html
