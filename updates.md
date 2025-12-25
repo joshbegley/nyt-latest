@@ -1,3 +1,7 @@
+**Fantasy football injuries, inactives, cheat sheet Week 17**\
+`Fantasy football relevant injuries and their impact, weather reports and game previews. Plus, Ciely's Week 17 player rankings and more.`\
+https://nytimes.com/athletic/6917879/2025/12/25/fantasy-football-injuries-inactives-cheat-sheet-week-17/
+
 **Christmas Celebrated Around the World**\
 `The holiday spirit is bringing people together, with celebrations of lights, dance and Santa.`\
 https://nytimes.com/2025/12/25/world/middleeast/christmas-2025-photos.html
