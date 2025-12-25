@@ -1,3 +1,7 @@
+**Robert Lindsey, Times Reporter and Reagan Ghostwriter, Dies at 90**\
+`The nonfiction spy thriller “The Falcon and the Snowman,” which became a film, grew out of his work as a journalist covering the West Coast for The Times.`\
+https://nytimes.com/2025/12/25/books/robert-lindsey-dead.html
+
 **Honduran Candidate Claims Fraud After Trump-Backed Opponent Is Declared Victor**\
 `After officials called the presidential race for Nasry Asfura, his rival, Salvador Nasralla, disputed the result and expressed ire over the U.S. role.`\
 https://nytimes.com/2025/12/25/world/americas/honduras-election-dispute.html
