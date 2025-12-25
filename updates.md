@@ -1,3 +1,19 @@
+**The chaos of NFL emergency signings: 'Roll with it, or you can go home'**\
+`NFL teams are prepared to bring in new players on a moment's notice, but there is turmoil beneath the well-rehearsed choreography.`\
+https://nytimes.com/athletic/6917792/2025/12/25/nfl-emergency-signing-jeff-driskel-commanders/
+
+**What's Trending in the NFL: Five postseason matchups and the Super Bowl we want to see**\
+`Anybody up for another round of Rams vs. Seahawks? And what about a Bills-49ers Super Bowl in Levi's Stadium?`\
+https://nytimes.com/athletic/6916259/2025/12/25/nfl-trends-week-17-playoffs-super-bowl-matchups/
+
+**The New York Times International Edition in Print for Friday, Dec. 26, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/12/25/todays-new-york-times-international-edition
+
+**How to watch Cavaliers vs. Knicks: Time, TV, streaming**\
+`Find out how to watch the Cleveland Cavaliers play the New York Knicks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6918503/2025/12/25/cavaliers-vs-knicks-stream-how-to-watch-dec-25/
+
 **With Airspace Closed, a Lonely Christmas for Many Venezuelans**\
 `The holidays usually bring home huge numbers from the Venezuelan diaspora. But this year, after international airlines halted almost all service, many people are spending Christmas alone and on edge.`\
 https://nytimes.com/2025/12/25/world/americas/venezuela-christmas-closed-airspace.html
