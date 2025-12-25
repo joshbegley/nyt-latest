@@ -1,3 +1,11 @@
+**On Christmas, Pope Leo Tells World’s Leaders to Talk Rather Than Make War**\
+`Leo XIV’s Christmas address was his first since being elected pontiff and was scrutinized for comparisons with those of his predecessor, Francis.`\
+https://nytimes.com/2025/12/25/world/asia/leo-christmas-first-speech-pope.html
+
+**The Year in News**\
+`We look back at 2025.`\
+https://nytimes.com/2025/12/25/briefing/your-picks.html
+
 **NBA Christmas watch guide: Spurs-Thunder rematch, animated Knicks, LeBron vs. KD**\
 `The NBA's annual five-game Christmas set is unwrapped Thursday, with telecasts that total more than 12 hours of bucket-getting.`\
 https://nytimes.com/athletic/6912179/2025/12/25/nba-christmas-wembanyama-knicks-lebron-durant/
