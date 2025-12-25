@@ -1,3 +1,7 @@
+**In candid news conference, Steve Kerr details apology to Draymond Green**\
+`Kerr was more reflective in his commentary than usual after the Christmas Eve practice. "We are a fading dynasty. We know that," he said.`\
+https://nytimes.com/athletic/6918123/2025/12/24/draymond-green-steve-kerr-apology-warriors/
+
 **Man Shot in ICE Confrontation in Maryland, Officials Say**\
 `Federal and local officials said the man, an immigrant from Portugal, tried to flee and harm agents. He and another man were hospitalized after a vehicle they were in crashed.`\
 https://nytimes.com/2025/12/24/us/immigrant-shot-maryland-ice.html
