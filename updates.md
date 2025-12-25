@@ -1,3 +1,11 @@
+**Kennedy Center’s Christmas Eve Jazz Show Canceled After Trump Name Added to Building**\
+`Chuck Redd, a jazz musician, said he canceled his annual concert after President Trump’s name was affixed to the Washington building’s facade.`\
+https://nytimes.com/2025/12/24/us/kennedy-center-christmas-eve-concert-trump.html
+
+**49ers' Brandon Aiyuk apologizes after showing himself speeding in video**\
+`The receiver posted a video of himself speeding down a California freeway days after the 49ers ended any possibility that he would return.`\
+https://nytimes.com/athletic/6918239/2025/12/24/49ers-brandon-aiyuk-apology-driving-over-100-mph/
+
 **49ers' Brandon Aiyuk apologizes after driving over 100 mph in video**\
 `The receiver posted a video of himself speeding down a California freeway days after the 49ers ended any possibility that he would return.`\
 https://nytimes.com/athletic/6918239/2025/12/24/49ers-brandon-aiyuk-apology-driving-over-100-mph/
