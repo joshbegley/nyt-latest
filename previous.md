@@ -1,3 +1,7 @@
+**Former Broadway Child Actress, 25, Killed in New Jersey Stabbing**\
+`Imani Dia Smith, who appeared in “The Lion King,” died after she was stabbed at a home in Edison, the authorities said. A man faces murder charges related to the incident.`\
+https://nytimes.com/2025/12/24/us/imani-dia-smith-dead-lion-king.html
+
 **Peng Peiyun, 95, Dies; Official Renounced China’s One-Child Policy**\
 `She was given the “hardest job under heaven”: upholding birth limits enforced by often brutal local officials. She came to support softening the policy, then abolishing it.`\
 https://nytimes.com/2025/12/24/world/asia/peng-peiyun-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/24/t-magazine/-parisian-shop-rubirosas.html
 **T Magazine’s Favorite Food Stories of 2025**\
 `From a debate about the best seafood in Tokyo to a recipe for red velvet babka, these are some of the most intriguing and appetizing features we published this year.`\
 https://nytimes.com/2025/12/24/t-magazine/favorite-food-stories-recipes.html
-
-**Warriors coach Steve Kerr details apology to Draymond Green: 'Not my finest hour'**\
-`Kerr was more reflective in his commentary than usual after the Christmas Eve practice. "We are a fading dynasty. We know that," he said.`\
-https://nytimes.com/athletic/6918123/2025/12/24/draymond-green-steve-kerr-apology-warriors/
 

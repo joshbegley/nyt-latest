@@ -1,3 +1,7 @@
+**Former Broadway Child Actress, 25, Killed in New Jersey Stabbing**\
+`Imani Dia Smith, who appeared in “The Lion King,” died after she was stabbed at a home in Edison, the authorities said. A man faces murder charges related to the incident.`\
+https://nytimes.com/2025/12/24/us/imani-dia-smith-dead-lion-king.html
+
 **Peng Peiyun, 95, Dies; Official Renounced China’s One-Child Policy**\
 `She was given the “hardest job under heaven”: upholding birth limits enforced by often brutal local officials. She came to support softening the policy, then abolishing it.`\
 https://nytimes.com/2025/12/24/world/asia/peng-peiyun-dead.html
