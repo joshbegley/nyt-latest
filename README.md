@@ -30,7 +30,7 @@ https://nytimes.com/2025/12/24/t-magazine/-parisian-shop-rubirosas.html
 `From a debate about the best seafood in Tokyo to a recipe for red velvet babka, these are some of the most intriguing and appetizing features we published this year.`\
 https://nytimes.com/2025/12/24/t-magazine/favorite-food-stories-recipes.html
 
-**Warriors' Steve Kerr said he apologized to Draymond Green after argument**\
+**In candid news conference, Steve Kerr details apology to Draymond Green**\
 `Kerr was more reflective in his commentary than usual after the Christmas Eve practice. "We are a fading dynasty. We know that," he said.`\
 https://nytimes.com/athletic/6918123/2025/12/24/draymond-green-steve-kerr-apology-warriors/
 
