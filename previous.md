@@ -15,7 +15,7 @@ https://nytimes.com/2025/12/25/dining/the-10-most-popular-meatless-recipes-of-20
 https://nytimes.com/2025/12/25/world/europe/jimmy-kimmel-christmas-uk.html
 
 **Honduran Candidate Claims Fraud After Trump-Backed Opponent Is Declared Victor**\
-`After officials called the presidential race for Nasry Asfura, his rival, Salvador Nasralla, disputed the result but did not say if he would pursue a formal challenge.`\
+`After officials called the presidential race for Nasry Asfura, his rival, Salvador Nasralla, disputed the result and expressed ire over the U.S. role.`\
 https://nytimes.com/2025/12/25/world/americas/honduras-election-dispute.html
 
 **No Power, No Heat, No Water: Odesa’s Days of Hell Under Russian Fire**\

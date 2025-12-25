@@ -1,3 +1,7 @@
+**Honduran Candidate Claims Fraud After Trump-Backed Opponent Is Declared Victor**\
+`After officials called the presidential race for Nasry Asfura, his rival, Salvador Nasralla, disputed the result and expressed ire over the U.S. role.`\
+https://nytimes.com/2025/12/25/world/americas/honduras-election-dispute.html
+
 **Helicopter Crash Kills 5 on Kilimanjaro, Africa’s Highest Peak**\
 `The aircraft was on its descent from the mountain when it crashed around the Barafu Camp area in Kilimanjaro National Park, officials said.`\
 https://nytimes.com/2025/12/25/world/africa/helicopter-crash-kilimanjaro.html
