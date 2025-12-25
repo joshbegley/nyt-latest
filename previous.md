@@ -1,3 +1,7 @@
+**How to watch Spurs vs. Thunder: Time, TV, streaming**\
+`Find out how to watch the San Antonio Spurs play the Oklahoma City Thunder, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6918572/2025/12/25/spurs-vs-thunder-stream-how-to-watch-dec-25/
+
 **On Christmas, Pope Leo Tells World’s Leaders to Talk Rather Than Make War**\
 `Leo XIV’s Christmas address was his first since being elected pontiff and was scrutinized for comparisons with those of his predecessor, Francis.`\
 https://nytimes.com/2025/12/25/world/asia/leo-christmas-first-speech-pope.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6915859/2025/12/25/christmas-sports-watch-guide-the
 **Vikings-Lions predictions: Can Minnesota spoil Detroit's playoff shot on Christmas?**\
 `Will Vikings QB Max Brosmer fare better in his second NFL start? Can the Minnesota defense keep the dangerous Detroit offense in check?`\
 https://nytimes.com/athletic/6917950/2025/12/25/vikings-lions-predictions-preview-playoffs-christmas/
-
-**NFL Week 17 roundtable: One gift for struggling Lions? Who wins Ravens-Packers?**\
-`The NFL Week 17 action begins with a Christmas tripleheader and continues with two big games on Saturday, including Texans at Chargers.`\
-https://nytimes.com/athletic/6917438/2025/12/25/nfl-week-17-roundtable-lions-cowboys-chiefs/
 

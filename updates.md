@@ -1,3 +1,7 @@
+**How to watch Spurs vs. Thunder: Time, TV, streaming**\
+`Find out how to watch the San Antonio Spurs play the Oklahoma City Thunder, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6918572/2025/12/25/spurs-vs-thunder-stream-how-to-watch-dec-25/
+
 **On Christmas, Pope Leo Tells World’s Leaders to Talk Rather Than Make War**\
 `Leo XIV’s Christmas address was his first since being elected pontiff and was scrutinized for comparisons with those of his predecessor, Francis.`\
 https://nytimes.com/2025/12/25/world/asia/leo-christmas-first-speech-pope.html
