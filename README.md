@@ -1,3 +1,7 @@
+**Kimmel Tells U.K. Viewers ‘Tyranny Is Booming’ in America**\
+`Chosen by a British TV station to give an “alternative” to the king’s speech, Jimmy Kimmel said it had been a great year for the U.S. “from a fascism perspective.”`\
+https://nytimes.com/2025/12/25/world/europe/jimmy-kimmel-christmas-uk.html
+
 **Honduran Candidate Claims Fraud After Trump-Backed Opponent Is Declared Victor**\
 `After officials called the presidential race for Nasry Asfura, his rival, Salvador Nasralla, disputed the result but did not say if he would pursue a formal challenge.`\
 https://nytimes.com/2025/12/25/world/americas/honduras-election-dispute.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/25/us/politics/estonia-capitol-hill-liaison.html
 **King Charles Urges ‘Compassion’ and Finding Strength in Diversity**\
 `His annual Christmas message was more outward-looking than last year’s, when he focused on the medical workers who had helped him and his daughter-in-law after their cancer diagnoses.`\
 https://nytimes.com/2025/12/25/world/europe/king-charles-christmas.html
-
-**Fantasy football injuries, inactives, cheat sheet Week 17**\
-`Fantasy football relevant injuries and their impact, weather reports and game previews. Plus, Ciely's Week 17 player rankings and more.`\
-https://nytimes.com/athletic/6917879/2025/12/25/fantasy-football-injuries-inactives-cheat-sheet-week-17/
 
