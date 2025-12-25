@@ -1,3 +1,11 @@
+**Nvidia Strikes a Deal With Groq, an A.I. Chip Start-Up**\
+`Nvidia will license Groq’s technology and hire its top executives, adding to the Silicon Valley giant’s heft in artificial intelligence chips.`\
+https://nytimes.com/2025/12/24/business/nvidia-groq-chips-deal.html
+
+**Packers' Jordan Love appears on track to face Ravens: 'He's looked really good'**\
+`Love was still in concussion protocol Wednesday, but teammates offered rave reviews of his practice performance.`\
+https://nytimes.com/athletic/6918238/2025/12/24/packers-jordan-love-on-track-ravens/
+
 **Packers' Jordan Love appears on track to face Ravens: 'He's looked really good'**\
 `Love was still in concussion protocol on Wednesday, but teammates offered rave reviews of his practice performance.`\
 https://nytimes.com/athletic/6918238/2025/12/24/packers-jordan-love-on-track-ravens/

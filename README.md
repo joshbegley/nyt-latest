@@ -1,3 +1,15 @@
+**Journey to Antarctica Part 2**\
+`To get to the fastest-melting glacier in Antarctica, flying on a helicopter over some rough seas is mandatory. Our science reporter Raymond Zhong learns what to do in case of a helicopter crash.`\
+https://nytimes.com/video/climate/100000010542257/journey-to-antarctica-part-2.html
+
+**Masashi 'Jumbo' Ozaki, Japanese golfer who won 113 tournaments, dies at 78**\
+`Known for his driving ability, Jumbo played on the Japan Tour as recently as 2019. `\
+https://nytimes.com/athletic/6918228/2025/12/24/masashi-jumbo-ozaki-japanese-golfer-dies-obit/
+
+**After a Plane Crashed in the Texas Fog, 2 Stories of Rescue**\
+`A plane from Mexico was on a medical mission on Monday when it crashed into Galveston Bay, and two men on the water that day helped save two lives.`\
+https://nytimes.com/2025/12/24/us/galveston-plane-crash-rescue-mexico-navy.html
+
 **Nvidia Strikes a Deal With Groq, an A.I. Chip Start-Up**\
 `Nvidia will license Groq’s technology and hire its top executives, adding to the Silicon Valley giant’s heft in artificial intelligence chips.`\
 https://nytimes.com/2025/12/24/business/nvidia-groq-chips-deal.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/12/24/nyregion/lewis-berman-dead.html
 **Christmas Eve Flooding Prompts Evacuations in California**\
 `An intense winter storm created flash flooding in Southern California, closing roadways and forcing residents to evacuate in parts of the Los Angeles region. The authorities said some residents had resisted leaving their homes on the holiday.`\
 https://nytimes.com/video/weather/100000010608863/california-storm-weather-flooding.html
-
-**Phyllis Lee Levin, Times Fashion Reporter and Biographer, Dies at 104**\
-`Her 1960 essay about the frustrations of educated women prefigured Betty Friedan’s “The Feminine Mystique.” She later wrote books on John Quincy Adams and others.`\
-https://nytimes.com/2025/12/24/books/phyllis-lee-levin-dead.html
-
-**James Nnaji, former NBA first-round pick, commits to Baylor: Source**\
-`Nnaji will immediately join the team and becomes the latest ex-pro to earn NCAA eligibility.`\
-https://nytimes.com/athletic/6918026/2025/12/24/james-nnaji-commits-baylor-nba-draft-pick/
-
-**Honduras Declares Trump-Backed Candidate Winner of Presidential Election**\
-`Nasry Asfura was endorsed by President Trump in a contentious election. His opponent, Salvador Nasralla, said he would not accept the results.`\
-https://nytimes.com/2025/12/24/world/americas/honduras-election-results-asfura.html
 
