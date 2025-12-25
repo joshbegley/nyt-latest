@@ -1,3 +1,11 @@
+**No Power, No Heat, No Water: Odesa’s Days of Hell Under Russian Fire**\
+`The toll on older people and those with disabilities is especially severe as Moscow’s forces repeatedly attack the port city’s infrastructure.`\
+https://nytimes.com/2025/12/25/world/europe/ukraine-odesa.html
+
+**Berry Jam Buns**\
+`A filling made from berry preserves and fresh berries replaces the buttery cinnamon sugar you might expect in a cinnamon roll, for a colorful twist on a favorite.`\
+https://nytimes.com/video/dining/100000010368710/berry-jam-buns.html
+
 **Government Officials Once Stopped False Accusations After Violence. Now, Some Join In.**\
 `Prominent business and government figures spread rumors about the attack on Brown University’s campus this month, reigniting questions about accountability in online discourse.`\
 https://nytimes.com/2025/12/25/technology/brown-university-shooting-disinformation-politicians.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6917879/2025/12/25/fantasy-football-injuries-inacti
 **Christmas Celebrated Around the World**\
 `The holiday spirit is bringing people together, with celebrations of lights, dance and Santa.`\
 https://nytimes.com/2025/12/25/world/middleeast/christmas-2025-photos.html
-
-**Farewell, John Robertson – 'Little fat guy' who became Nottingham Forest's greatest player**\
-`A tribute to the talent and character of a player Brian Clough called "the Picasso of our game", after his death at age 72`\
-https://nytimes.com/athletic/6693576/2025/12/25/john-robertson-tribute-nottingham-forest/
-
-**How to watch Spurs vs. Thunder: Time, TV, streaming**\
-`Find out how to watch the San Antonio Spurs play the Oklahoma City Thunder, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6918572/2025/12/25/spurs-vs-thunder-stream-how-to-watch-dec-25/
 
