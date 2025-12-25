@@ -1,3 +1,7 @@
+**Christmas Celebrated Around the World**\
+`The holiday spirit is bringing people together, with celebrations of lights, dance and Santa.`\
+https://nytimes.com/2025/12/25/world/middleeast/christmas-2025-photos.html
+
 **Farewell, John Robertson – 'Little fat guy' who became Nottingham Forest's greatest player**\
 `A tribute to the talent and character of a player Brian Clough called "the Picasso of our game", after his death at age 72`\
 https://nytimes.com/athletic/6693576/2025/12/25/john-robertson-tribute-nottingham-forest/
