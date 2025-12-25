@@ -1,3 +1,7 @@
+**Right-eous Path**\
+`Sam Ezersky will have you cracking up.`\
+https://nytimes.com/2025/12/24/crosswords/daily-puzzle-2025-12-25.html
+
 **Former Broadway Child Actress, 25, Killed in New Jersey Stabbing**\
 `Imani Dia Smith, who appeared in “The Lion King,” died after she was stabbed at a home in Edison, the authorities said. A man faces murder charges related to the incident.`\
 https://nytimes.com/2025/12/24/us/imani-dia-smith-dead-lion-king.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6918238/2025/12/24/packers-jordan-love-on-track-rav
 **The Small Parisian Shop That’s Become a Retail Phenomenon**\
 `With her six-month-old store, Rubirosa’s, the designer Lauren Rubinski offers a colorful take on old-world charm.`\
 https://nytimes.com/2025/12/24/t-magazine/-parisian-shop-rubirosas.html
-
-**T Magazine’s Favorite Food Stories of 2025**\
-`From a debate about the best seafood in Tokyo to a recipe for red velvet babka, these are some of the most intriguing and appetizing features we published this year.`\
-https://nytimes.com/2025/12/24/t-magazine/favorite-food-stories-recipes.html
 

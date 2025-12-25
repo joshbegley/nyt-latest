@@ -1,3 +1,7 @@
+**Right-eous Path**\
+`Sam Ezersky will have you cracking up.`\
+https://nytimes.com/2025/12/24/crosswords/daily-puzzle-2025-12-25.html
+
 **Former Broadway Child Actress, 25, Killed in New Jersey Stabbing**\
 `Imani Dia Smith, who appeared in “The Lion King,” died after she was stabbed at a home in Edison, the authorities said. A man faces murder charges related to the incident.`\
 https://nytimes.com/2025/12/24/us/imani-dia-smith-dead-lion-king.html
