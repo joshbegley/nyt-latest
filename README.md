@@ -1,3 +1,11 @@
+**Premier League predictions: Man United vs Newcastle, Chelsea vs Villa, and the rest of Matchday 18**\
+`Who's leading after MD17? And what do our writer, the algorithm, a child and this week's subscriber expect to see on Matchday 18?`\
+https://nytimes.com/athletic/6909582/2025/12/25/premier-league-predictions-md18/
+
+**'It was a nonentity for me' – What Christmas Day has been like for footballers down the years**\
+`While all around them indulge in festive food and drink, footballers must maintain the usual levels of commitment to training and nutrition`\
+https://nytimes.com/athletic/6904539/2025/12/25/christmas-day-footballers-down-the-years/
+
 **Manchester United fans and their flags are 'reclaiming' the Stretford End**\
 `Manchester United fans - in conjunction with the club - are trying to improve the atmosphere at Old Trafford. Their flags are some sight...`\
 https://nytimes.com/athletic/6913468/2025/12/25/manchester-united-stretford-end-flags/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/25/style/murray-hill-wedding-michelle-cathey-casino-
 **Why Russia Is Likely to Reject the New U.S.-Ukrainian Peace Plan**\
 `The first draft essentially called for Ukraine’s surrender. The revised version includes the security guarantees Kyiv wants to prevent future Russian aggression.`\
 https://nytimes.com/2025/12/25/world/europe/russia-ukraine-peace-plan.html
-
-**Corrections: Dec. 25, 2025**\
-`Corrections that appeared in print on Thursday, Dec. 25, 2025.`\
-https://nytimes.com/2025/12/24/pageoneplus/corrections-dec-25-2025.html
-
-**Quote of the Day: ESCAPE FROM THE ABYSS**\
-`Quotation of the Day for Thursday, December 25, 2025.`\
-https://nytimes.com/2025/12/24/pageoneplus/quote-of-the-day-escape-from-the-abyss.html
 
