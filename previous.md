@@ -1,3 +1,7 @@
+**King Charles Urges ‘Compassion’ and Finding Strength in Diversity**\
+`His annual Christmas message was more outward-looking than last year’s, when he focused on the medical workers who had helped him and his daughter-in-law after their cancer diagnoses.`\
+https://nytimes.com/2025/12/25/world/europe/king-charles-christmas.html
+
 **Fantasy football injuries, inactives, cheat sheet Week 17**\
 `Fantasy football relevant injuries and their impact, weather reports and game previews. Plus, Ciely's Week 17 player rankings and more.`\
 https://nytimes.com/athletic/6917879/2025/12/25/fantasy-football-injuries-inactives-cheat-sheet-week-17/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6918251/2025/12/25/49ers-free-agents-jauan-jennings
 **Before LeBron James' 20th Christmas game, we look at some of his best holiday performances**\
 `LeBron James has played in and won more Christmas Day games than any other player in NBA history.`\
 https://nytimes.com/athletic/6912141/2025/12/25/lebron-james-christmas-day-games/
-
-**The Risks and Rewards of Christian Faith**\
-`Readers reflect on a column by David French on religious belief. Also, A Trump order bullies states on A.I.`\
-https://nytimes.com/2025/12/25/opinion/christian-faith-conservatives.html
 
