@@ -1,3 +1,7 @@
+**How to watch Mavericks vs. Warriors: Time, TV, streaming**\
+`Find out how to watch the Dallas Mavericks play the Golden State Warriors, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6918638/2025/12/25/mavericks-vs-warriors-stream-how-to-watch-dec-25/
+
 **We Wish You a Merry Christmas (and a Handful of Snacks)**\
 `By Mia Leimkuhler`\
 https://nytimes.com/2025/12/25/dining/we-wish-you-a-merry-christmas-and-a-handful-of-snacks.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6918572/2025/12/25/spurs-vs-thunder-stream-how-to-w
 **On Christmas, Pope Leo Tells World’s Leaders to Talk Rather Than Make War**\
 `Leo XIV’s Christmas address was his first since being elected pontiff and was scrutinized for comparisons with those of his predecessor, Francis.`\
 https://nytimes.com/2025/12/25/world/asia/leo-christmas-first-speech-pope.html
-
-**NBA Christmas watch guide: Spurs-Thunder rematch, animated Knicks, LeBron vs. KD**\
-`The NBA's annual five-game Christmas set is unwrapped Thursday, with telecasts that total more than 12 hours of bucket-getting.`\
-https://nytimes.com/athletic/6912179/2025/12/25/nba-christmas-wembanyama-knicks-lebron-durant/
 
