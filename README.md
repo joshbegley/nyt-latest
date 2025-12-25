@@ -1,3 +1,7 @@
+**Dak Prescott's big day helps Cowboys hold off the Commanders: Takeaways**\
+`Prescott threw for 307 yards and two touchdowns as Washington won the NFC East matchup.`\
+https://nytimes.com/athletic/6918734/2025/12/25/cowboys-commanders-score-result-takeaways-nfl-christmas-day/
+
 **Remembering Those Who Died This Year**\
 `We look back at the lives of some of the artists, innovators and thinkers we lost in 2025.`\
 https://nytimes.com/2025/12/25/world/the-lives-they-lived-2025-ukraine-peace-plan-christmas.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6918642/2025/12/25/nba-christmas-games-2025-results
 **Robert Lindsey, Times Reporter and Reagan Ghostwriter, Dies at 90**\
 `The nonfiction spy thriller “The Falcon and the Snowman,” which became a film, grew out of his work as a journalist covering the West Coast for The Times.`\
 https://nytimes.com/2025/12/25/books/robert-lindsey-dead.html
-
-**Helicopter Crash Kills 5 on Kilimanjaro, Africa’s Highest Peak**\
-`The aircraft was on its descent from the mountain when it crashed around the Barafu Camp area in Kilimanjaro National Park, officials said.`\
-https://nytimes.com/2025/12/25/world/africa/helicopter-crash-kilimanjaro.html
 
