@@ -1,3 +1,7 @@
+**Athletics, Tyler Soderstrom agree on seven-year extension: Source**\
+`The extension comes days after the A's sent a pitching prospect to the Mets for infielder Jeff McNeil.`\
+https://nytimes.com/athletic/6918740/2025/12/25/athletics-tyler-soderstrom-extension/
+
 **How to watch Timberwolves vs. Nuggets: Time, TV, streaming**\
 `Find out how to watch the Minnesota Timberwolves play the Denver Nuggets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6918766/2025/12/25/timberwolves-vs-nuggets-stream-how-to-watch-dec-25/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/25/dining/the-10-most-popular-meatless-recipes-of-20
 **Kimmel Tells U.K. Viewers ‘Tyranny Is Booming’ in America**\
 `Chosen by a British TV station to give an “alternative” to the king’s speech, Jimmy Kimmel said it had been a great year for the U.S. “from a fascism perspective.”`\
 https://nytimes.com/2025/12/25/world/europe/jimmy-kimmel-christmas-uk.html
-
-**Honduran Candidate Claims Fraud After Trump-Backed Opponent Is Declared Victor**\
-`After officials called the presidential race for Nasry Asfura, his rival, Salvador Nasralla, disputed the result and expressed ire over the U.S. role.`\
-https://nytimes.com/2025/12/25/world/americas/honduras-election-dispute.html
 

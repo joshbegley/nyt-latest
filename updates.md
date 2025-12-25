@@ -1,3 +1,7 @@
+**Athletics, Tyler Soderstrom agree on seven-year extension: Source**\
+`The extension comes days after the A's sent a pitching prospect to the Mets for infielder Jeff McNeil.`\
+https://nytimes.com/athletic/6918740/2025/12/25/athletics-tyler-soderstrom-extension/
+
 **How to watch Timberwolves vs. Nuggets: Time, TV, streaming**\
 `Find out how to watch the Minnesota Timberwolves play the Denver Nuggets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6918766/2025/12/25/timberwolves-vs-nuggets-stream-how-to-watch-dec-25/
