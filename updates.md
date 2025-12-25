@@ -1,3 +1,7 @@
+**Football through the generations, part 1: Getting spotted, sweeping terraces and playing against George Best**\
+`Part one of our interview with seven players from the 1950s to present day on how the game has changed through the years`\
+https://nytimes.com/athletic/6911014/2025/12/25/football-through-generations-starting-out/
+
 **Premier League predictions: Man United vs Newcastle, Chelsea vs Villa, and the rest of Matchday 18**\
 `Who's leading after MD17? And what do our writer, the algorithm, a child and this week's subscriber expect to see on Matchday 18?`\
 https://nytimes.com/athletic/6909582/2025/12/25/premier-league-predictions-md18/
