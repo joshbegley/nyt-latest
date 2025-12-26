@@ -1,3 +1,15 @@
+**The Bounce: The Bounce: The Spurs loudly announce their arrival, and Jokić owns Christmas**\
+`The Bounce Newsletter  | This is The Athletic’s daily NBA newsletter.`\
+https://nytimes.com/athletic/6919697/2025/12/26/spurs-wembanyama-nuggets-jokic-christmas-nba-the-bounce/
+
+**CVS Worker Fatally Stabbed on Christmas Day on Long Island**\
+`A 23-year-old CVS employee was killed on Thursday in Lindenhurst, the authorities said. Police are searching for a suspect in his 40s who fled on foot.`\
+https://nytimes.com/2025/12/26/nyregion/stabbing-cvs-christmas-lindenhurst.html
+
+**Ex-Utah coach Kyle Whittingham emerges as focus of Michigan search: Source**\
+`Whittingham, 66, stepped down Dec. 12 after 21 seasons at Utah but made it known that he wasn’t done coaching.`\
+https://nytimes.com/athletic/6919643/2025/12/26/michigan-kyle-whittingham-head-coaching-search/
+
 **Canucks trade tiers: Ranking every player by market value entering 2026**\
 `The Canucks aren't just the NHL's 31st-placed team by point percentage — their hockey holdings are notably illiquid.`\
 https://nytimes.com/athletic/6915875/2025/12/26/vancouver-canucks-trade-tiers-2026/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6919536/2025/12/26/liverpool-diogo-jota-sons-mascot
 **Klay Thompson faced the Warriors again on Christmas. It didn't make a splash**\
 `The day was supposed to be about Klay. But Golden State had other things on its mind, and the sentimentality barely registered.`\
 https://nytimes.com/athletic/6919481/2025/12/26/klay-thompson-warriors-mavericks-christmas/
-
-**2 Killed in Car Ramming and Stabbing in Israel, Authorities Say**\
-`The attack comes amid heightened tensions between Israelis and Palestinians in the Israeli-occupied West Bank.`\
-https://nytimes.com/2025/12/26/world/middleeast/israel-car-ramming.html
-
-**Trump Administration Live Updates: Zelensky Says He Will Meet President This Weekend**\
-``\
-https://nytimes.com/live/2025/12/26/us/trump-news
-
-**Why can leaving 10mm of grass on a cricket pitch cause chaos?**\
-`The surface at Melbourne's MCG has come in for heavy criticism after 20 wickets fell on day one of the Ashes Test`\
-https://nytimes.com/athletic/6919534/2025/12/26/australia-england-melbourne-pitch-wickets/
 
