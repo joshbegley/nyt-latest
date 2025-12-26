@@ -1,3 +1,11 @@
+**The Commanders needed a spark against the Cowboys, and Bill was due**\
+`Playing behind a depleted Commanders offensive line, the rookie known as Bill took on a leading role.`\
+https://nytimes.com/athletic/6918942/2025/12/25/bill-croskey-merritt-commanders-cowboys-christmas/
+
+**U.S. Strikes ISIS in Nigeria After Trump Warned of Attacks on Christians**\
+`The attack comes after President Trump ordered the Defense Department last month to prepare to intervene militarily in Nigeria to protect Christians from Islamic militants.`\
+https://nytimes.com/2025/12/25/us/politics/trump-isis-nigeria-strike.html
+
 **Packers clinch playoff berth with Vikings' win over Lions on Christmas**\
 `The Packers have now made the playoffs in each of Jordan Love’s three seasons as their starting quarterback.`\
 https://nytimes.com/athletic/6918893/2025/12/25/packers-clinch-playoff-berth-lions-loss/
