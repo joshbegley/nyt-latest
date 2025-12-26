@@ -1,3 +1,19 @@
+**Zelensky Says He’ll Meet With Trump in the ‘Near Future’**\
+`There was no immediate confirmation from the White House about a meeting, which President Volodymyr Zelensky of Ukraine has sought since the latest U.S.-.led push for peace got underway.`\
+https://nytimes.com/2025/12/26/world/europe/zelensky-trump-ukraine-russia.html
+
+**MLB's Strange But True 2025: The plays, moments and stuff we couldn't believe**\
+`It’s time for that end-of-year extravaganza you’ve been eagerly awaiting. Let's celebrate another Strange But True baseball season. `\
+https://nytimes.com/athletic/6917451/2025/12/26/mlb-2025-season-weird-higlights/
+
+**AFC North whiparound: Who could be gone this offseason from the Steelers, Ravens, Bengals and Browns?**\
+`Plus, the division's most intriguing developments of the final two weeks.`\
+https://nytimes.com/athletic/6917419/2025/12/26/afc-north-free-agents-steelers-browns-bengals-ravens/
+
+**The New York Times International Edition in Print for Saturday, Dec. 27, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/12/26/todays-new-york-times-international-edition
+
 **Man City owner CFG exits Mumbai City over 'ongoing uncertainty in ISL'**\
 `The ISL season has not yet commenced having been due to begin in September 2025 and run through to April 2026.`\
 https://nytimes.com/athletic/6919384/2025/12/26/man-city-owner-cfg-india-mumbai/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/12/26/well/family/new-year-reflection-questions.html
 **How a Deadly Bond Develops in ‘Avatar: Fire and Ash’**\
 `James Cameron narrates a sequence from his film, featuring Oona Chaplin and Stephen Lang.`\
 https://nytimes.com/2025/12/26/movies/avatar-fire-and-ash-clip.html
-
-**Sick of Trump News? I’m Here for You.**\
-`Here are the best nonfiction essays of the year, according to me.`\
-https://nytimes.com/2025/12/26/opinion/good-essays-news-sidneys.html
-
-**Book Club: Read ‘The Hounding,’ by Xenobe Purvis, With the Book Review**\
-`In January, the Book Review Book Club will read and discuss Xenobe Purvis’s debut novel, about a small English village grappling with a dangerous rumor.`\
-https://nytimes.com/2025/12/26/books/review/the-hounding-xenobe-purvis-book-club.html
-
-**It Matters Who Owns the National Debt. And a Big Shift Is Occurring.**\
-`The size of the national debt matters. But so does who America’s lenders are — and that is changing.`\
-https://nytimes.com/2025/12/26/opinion/national-debt-owners-lenders-crisis.html
-
-**$750,000 Homes in New Brunswick, Canada**\
-`A cliffside home overlooking Lake Utopia, a waterfront home on Shediac Bay and a five-acre property near trails.`\
-https://nytimes.com/2025/12/26/realestate/new-brunswick-canada-homes.html
 
