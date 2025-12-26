@@ -1,3 +1,7 @@
+**New Jail Term and Enormous Fine for Ex-Malaysian Leader in Graft Scandal**\
+`Najib Razak, the former prime minister already serving a sentence linked to the looting of the 1MDB fund, was found guilty of corruption in a related case.`\
+https://nytimes.com/2025/12/26/world/asia/malaysia-najib-razak-corruption-sentence-1mdb.html
+
 **NFL Week 17 schedule rankings: Top 5 Sunday games that inspire New Year's resolutions**\
 `With Christmas in the books and a calendar flip on the horizon, the NFL turns from velvet red robes to 2026 resolutions.`\
 https://nytimes.com/athletic/6919073/2025/12/26/eagles-bills-bears-49ers-jaguars-colts-how-to-watch/
