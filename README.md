@@ -1,4 +1,8 @@
-**Vikings defense forces six turnovers in 23-10 win, ending Lions' playoff hopes: Takeaways**\
+**Cowboys' Christmas Day win should be last game of season for QB Dak Prescott**\
+`The Cowboys have a chance to finish at .500 with a win next week. Should Dallas play him or turn it over to backup Joe Milton?`\
+https://nytimes.com/athletic/6918947/2025/12/25/cowboys-christmas-win-dak-prescott/
+
+**Vikings defense forces 6 turnovers in 23-10 win, ending Lions' playoff hopes: Takeaways**\
 `The Vikings defense sacked Jared Goff five times and forced six turnovers in a 23-10 win that knocked the Lions out of playoff contention.`\
 https://nytimes.com/athletic/6918809/2025/12/25/lions-vikings-score-result-takeaways-nfl-christmas-day/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/25/us/politics/imran-ahmed-judge-order.html
 **If the Knicks want a championship, Mitchell Robinson must stay all season**\
 `Robinson is the weapon New York has that only one other team does. The Knicks should cherish that.`\
 https://nytimes.com/athletic/6918815/2025/12/25/if-the-knicks-want-a-championship-mitchell-robinson-must-stay-past-trade-deadline/
-
-**One Relentless Year**\
-`Here are some of the most consequential, illuminating or just plain remarkable moments from Donald Trump’s first year back in the White House.`\
-https://nytimes.com/interactive/2025/12/25/us/politics/trump-presidency-moments-2025.html
 
