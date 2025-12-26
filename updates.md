@@ -1,3 +1,7 @@
+**Vikings defense forces six turnovers in 23-10 win, ending Lions' playoff hopes: Takeaways**\
+`The Vikings defense sacked Jared Goff five times and forced six turnovers in a 23-10 win that knocked the Lions out of playoff contention.`\
+https://nytimes.com/athletic/6918809/2025/12/25/lions-vikings-score-result-takeaways-nfl-christmas-day/
+
 **The Commanders needed a spark against the Cowboys, and Bill was due**\
 `Playing behind a depleted Commanders offensive line, the rookie known as Bill took on a leading role.`\
 https://nytimes.com/athletic/6918942/2025/12/25/bill-croskey-merritt-commanders-cowboys-christmas/
