@@ -1,3 +1,19 @@
+**Ham Yesterday Means Ham and Bean Soup Today**\
+`This classic, comforting, stick-to-your-ribs soup makes the most of your holiday ham leftovers (especially if you have a ham bone or hock).`\
+https://nytimes.com/2025/12/26/dining/ham-yesterday-means-ham-and-bean-soup-today.html
+
+**The Beauty in Imagining Loss**\
+`A mother’s grief is well depicted in “Hamnet” and “The Correspondent.”`\
+https://nytimes.com/2025/12/26/opinion/culture/hamnet-loss-grief.html
+
+**These Deodorants Stood Up to Our Sweatiest, Most Stress-Filled Days (and Nights)**\
+`Text by Abbie Kozolchyk`\
+https://nytimes.com/card/2025/12/26/smarter-living/wirecutter/
+
+**Five Action Movies to Stream Now**\
+`This month’s picks include a World War I revenge tale, a vampire superhero and female assassins.`\
+https://nytimes.com/2025/12/26/movies/action-movies-streaming.html
+
 **Lowetide: 4 Oilers World Juniors moments worth remembering**\
 `There was a time in this fair land when Oilers prospects famously ruled the junior hockey world.`\
 https://nytimes.com/athletic/6918661/2025/12/26/edmonton-oilers-world-juniors-stories-eberle-gretzky/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6919643/2025/12/26/michigan-kyle-whittingham-head-c
 **Canucks trade tiers: Ranking every player by market value entering 2026**\
 `The Canucks aren't just the NHL's 31st-placed team by point percentage — their hockey holdings are notably illiquid.`\
 https://nytimes.com/athletic/6915875/2025/12/26/vancouver-canucks-trade-tiers-2026/
-
-**Looking Back at Nancy Pelosi’s Career, Through The Times**\
-`Images of the congresswoman have appeared in The New York Times throughout the decades. Here are a few noteworthy examples and others from our archives.`\
-https://nytimes.com/2025/12/26/insider/nancy-pelosi.html
-
-**NFL Week 17 schedule rankings: Top 5 Sunday games that inspire New Year's resolutions**\
-`With Christmas in the books and a calendar flip on the horizon, the NFL turns from velvet red robes to 2026 resolutions.`\
-https://nytimes.com/athletic/6919073/2025/12/26/eagles-bills-bears-49ers-jaguars-colts-how-to-watch/
-
-**New Jail Term and Enormous Fine for Ex-Malaysian Leader in Graft Scandal**\
-`Najib Razak, the former prime minister already serving a sentence linked to the looting of the 1MDB fund, was found guilty of corruption in a related case.`\
-https://nytimes.com/2025/12/26/world/asia/malaysia-najib-razak-corruption-sentence-1mdb.html
-
-**Top Highlights From a Star-Studded N.B.A. Slate on Christmas Day**\
-`The N.B.A. holiday showcase featured a stirring rally in New York and a loss in Oklahoma City that the left the defending champs facing an uncomfortable truth.`\
-https://nytimes.com/video/the-athletic/100000010610093/top-highlights-from-a-star-studded-nba-slate-on-christmas-day.html
 

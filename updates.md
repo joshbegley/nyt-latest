@@ -1,3 +1,19 @@
+**Ham Yesterday Means Ham and Bean Soup Today**\
+`This classic, comforting, stick-to-your-ribs soup makes the most of your holiday ham leftovers (especially if you have a ham bone or hock).`\
+https://nytimes.com/2025/12/26/dining/ham-yesterday-means-ham-and-bean-soup-today.html
+
+**The Beauty in Imagining Loss**\
+`A mother’s grief is well depicted in “Hamnet” and “The Correspondent.”`\
+https://nytimes.com/2025/12/26/opinion/culture/hamnet-loss-grief.html
+
+**These Deodorants Stood Up to Our Sweatiest, Most Stress-Filled Days (and Nights)**\
+`Text by Abbie Kozolchyk`\
+https://nytimes.com/card/2025/12/26/smarter-living/wirecutter/
+
+**Five Action Movies to Stream Now**\
+`This month’s picks include a World War I revenge tale, a vampire superhero and female assassins.`\
+https://nytimes.com/2025/12/26/movies/action-movies-streaming.html
+
 **Lowetide: 4 Oilers World Juniors moments worth remembering**\
 `There was a time in this fair land when Oilers prospects famously ruled the junior hockey world.`\
 https://nytimes.com/athletic/6918661/2025/12/26/edmonton-oilers-world-juniors-stories-eberle-gretzky/
