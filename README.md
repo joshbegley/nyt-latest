@@ -1,40 +1,40 @@
-**Nikola Jokić outduels Anthony Edwards with 56-point triple double in dramatic Christmas finale**\
-`Jokić's 56-point triple double, his second on Christmas, was the third-best scoring performance on the holiday in NBA history.`\
-https://nytimes.com/athletic/6919217/2025/12/26/nikola-jokic-highlights-nuggets-timberwolves-anthony-edwards/
+**Man Utd's January Transfer DealSheet: Latest on Kobbie Mainoo future**\
+`Manchester United's upcoming transfer window could be important for them fulfilling their goals this season`\
+https://nytimes.com/athletic/6910948/2025/12/26/manchester-united-transfer-january-latest/
 
-**This May Be Our Last Chance to Get It Right in Venezuela**\
-`For the past decade, every administration in Washington has said Venezuela represents an extraordinary threat to the United States.`\
-https://nytimes.com/2025/12/26/opinion/venezuela-america-maduro-security-strategy.html
+**Aston Villa's January Transfer DealSheet: Harvey Elliott's future, incoming Brazilians, loan exits?**\
+`What is the manager’s priority? Who will they be looking to sell? Do they need to sell to buy? What is their PSR position?`\
+https://nytimes.com/athletic/6881386/2025/12/26/aston-villa-january-transfer-plans-elliott/
 
-**The New York Times in Print for Friday, Dec. 26, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/12/26/todays-new-york-times
+**How to watch USC vs. TCU: Alamo Bowl Start Time, TV, streaming**\
+`Find out how to watch the USC Trojans play the TCU Horned Frogs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6919328/2025/12/26/usc-vs-tcu-stream-how-to-watch-dec-30/
 
-**The Prospects: Tyler Fletcher**\
-`While all attention was on twin Jack at Villa Park, The Athletic went to Tamworth to watch Tyler Fletcher in the National League Cup`\
-https://nytimes.com/athletic/6913731/2025/12/26/the-prospects-tyler-fletcher-manchester-united/
+**Arsenal's January Transfer DealSheet: Latest on plans and possible exits**\
+`Arsenal lead the Premier League after a summer of extensive strengthening — what will ensue in January?`\
+https://nytimes.com/athletic/6911433/2025/12/26/arsenal-transfer-january-window-latest/
 
-**Crystal Palace's January Transfer DealSheet: Brennan Johnson the month's main target**\
-`Their small squad is not used to the rigours of regularly playing twice a week - can they change that in January?`\
-https://nytimes.com/athletic/6910972/2025/12/26/crystal-palace-transfer-dealsheet-january-latest/
+**Liverpool's January Transfer DealSheet: Latest on Marc Guehi and Antoine Semenyo interest**\
+`Liverpool have had a difficult start to the season and are struggling with injuries`\
+https://nytimes.com/athletic/6913487/2025/12/26/liverpool-transfer-january-window-latest/
 
-**Brighton & Hove Albion's Transfer DealSheet: What to expect in January**\
-`Brighton don't often look to make big changes to their squad mid-season - will it be any different this time around...?`\
-https://nytimes.com/athletic/6875259/2025/12/26/brighton-transfer-latest-january-2026/
+**MLS Transfer DealSheet: Latest on what your club is planning in winter window**\
+`The winter window is important in MLS — here's what to expect from it`\
+https://nytimes.com/athletic/6916629/2025/12/26/mls-transfer-dealsheet-2026-inter-miami-lewandowski-chicago-fire/
 
-**The teams and players to target in FPL before the New Year**\
-`Whether it’s strong home form, a favourable fixture swing, or clear talismanic options, several teams stand out for the upcoming gameweeks`\
-https://nytimes.com/athletic/6915988/2025/12/26/fantasy-premier-league-fpl-tips/
+**Wrexham's January Transfer DealSheet: Will there be more player turnover in January after recent spending?**\
+`Wrexham have been incredibly active in the transfer market over the past few seasons. What does this mean for January?`\
+https://nytimes.com/athletic/6854637/2025/12/26/wrexham-transfers-january-2026/
 
-**Nottingham Forest's January Transfer DealSheet: McNeil interest? Boly moving on?**\
-`The club are not expected to be busy this window after investing heavily in the squad in the summer`\
-https://nytimes.com/athletic/6913819/2025/12/26/nottingham-forest-january-transfer-dealsheet/
+**Wolves' January Transfer DealSheet: Latest as Rob Edwards looks to lay foundations for future**\
+`Wolves, who are bottom of the Premier League, are in a tricky position heading into the January transfer window`\
+https://nytimes.com/athletic/6893557/2025/12/26/wolves-transfer-january-latest-analysis/
 
-**Newcastle's January Transfer DealSheet: A long-shot move for Kees Smit? Joe Willock for sale?**\
-`The latest on Newcastle's January transfer window plans, from players they are monitoring to those already at the club`\
-https://nytimes.com/athletic/6905892/2025/12/26/newcastle-january-transfer-dealsheet-a-long-shot-move-for-kees-smit-joe-willock-for-sale/
+**Everton's January Transfer DealSheet: Garner renewal talks, will they recall Armstrong?**\
+`It looks set to be a quiet window for Everton, but there could be developments with these two players`\
+https://nytimes.com/athletic/6910753/2025/12/26/everton-transfer-dealsheet-james-garner-harrison-armstrong/
 
-**Football through the generations, part 2: From the Dark Ages to a new world of money, pressure and scrutiny**\
-`In part two of our chats with seven footballers born 1935 to 2005, we look at the pros and cons of the modern game`\
-https://nytimes.com/athletic/6911017/2025/12/26/football-through-generations-part-2/
+**Tottenham Hotspur's January Transfer DealSheet: Latest on reinforcements and Van de Ven deal**\
+`Tottenham have had a difficult start to the season and the January window could be crucial`\
+https://nytimes.com/athletic/6906852/2025/12/26/tottenham-hotspur-transfer-january-latest/
 
