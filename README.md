@@ -1,3 +1,11 @@
+**Eagles DT Jalen Carter expected to return vs. Bills**\
+`Carter had chose to undergo a procedure to get him ready for the postseason.`\
+https://nytimes.com/athletic/6920248/2025/12/26/jalen-carter-eagles-bills-injury-return/
+
+**The Briefing - Man Utd 1 Newcastle 0: Has Amorim embraced the back four? How does Howe fix his side's away form?**\
+`Analysis of the Premier League's Boxing Day fixture at Old Trafford`\
+https://nytimes.com/athletic/6918693/2025/12/26/manchester-united-newcastle-premier-league-analysis/
+
 **As Nebraska's bowl week begins, Huskers' 2026 reset is also underway**\
 `When the calendar flips, it’s time to move on. Opportunity awaits. The Huskers’ January objectives: retain, refine and improve the roster.`\
 https://nytimes.com/athletic/6920332/2025/12/26/nebraska-football-las-vegas-bowl-2026-future/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6920455/2025/12/26/nebraska-vs-utah-stream-how-to-w
 **How to watch Iowa vs. Vanderbilt: ReliaQuest Bowl Start Time, TV, streaming**\
 `Find out how to watch the Iowa Hawkeyes play the Vanderbilt Commodores, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6920450/2025/12/26/iowa-vs-vanderbilt-stream-how-to-watch-dec-31/
-
-**How to watch Michigan vs. Texas: Citrus Bowl Start Time, TV, streaming**\
-`Find out how to watch the Michigan Wolverines play the Texas Longhorns, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6920435/2025/12/26/michigan-vs-texas-stream-how-to-watch-dec-31/
-
-**Israel Becomes the First Nation to Recognize Somaliland**\
-`The development carries potential benefits for both sides but still faces stiff international opposition, 34 years after the region broke away from Somalia.`\
-https://nytimes.com/2025/12/26/world/middleeast/israel-recognize-somaliland.html
 
