@@ -1,3 +1,11 @@
+**The Prospects: Tyler Fletcher**\
+`While all attention was on twin Jack at Villa Park, The Athletic went to Tamworth to watch Tyler Fletcher in the National League Cup`\
+https://nytimes.com/athletic/6913731/2025/12/26/the-prospects-tyler-fletcher-manchester-united/
+
+**Crystal Palace's January Transfer DealSheet: Brennan Johnson the month's main target**\
+`Their small squad is not used to the rigours of regularly playing twice a week - can they change that in January?`\
+https://nytimes.com/athletic/6910972/2025/12/26/crystal-palace-transfer-dealsheet-january-latest/
+
 **Brighton & Hove Albion's Transfer DealSheet: What to expect in January**\
 `Brighton don't often look to make big changes to their squad mid-season - will it be any different this time around...?`\
 https://nytimes.com/athletic/6875259/2025/12/26/brighton-transfer-latest-january-2026/

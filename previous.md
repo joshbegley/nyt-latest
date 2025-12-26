@@ -1,3 +1,11 @@
+**The Prospects: Tyler Fletcher**\
+`While all attention was on twin Jack at Villa Park, The Athletic went to Tamworth to watch Tyler Fletcher in the National League Cup`\
+https://nytimes.com/athletic/6913731/2025/12/26/the-prospects-tyler-fletcher-manchester-united/
+
+**Crystal Palace's January Transfer DealSheet: Brennan Johnson the month's main target**\
+`Their small squad is not used to the rigours of regularly playing twice a week - can they change that in January?`\
+https://nytimes.com/athletic/6910972/2025/12/26/crystal-palace-transfer-dealsheet-january-latest/
+
 **Brighton & Hove Albion's Transfer DealSheet: What to expect in January**\
 `Brighton don't often look to make big changes to their squad mid-season - will it be any different this time around...?`\
 https://nytimes.com/athletic/6875259/2025/12/26/brighton-transfer-latest-january-2026/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6902663/2025/12/26/futbology-football-fandom-travel
 **Myanmar’s Civil War Pushes Infectious Disease Over Its Borders**\
 `Fighting has caused the spread of illnesses like malaria and cholera. In a worst-case scenario, the situation could threaten regional health security, experts say.`\
 https://nytimes.com/2025/12/26/world/asia/myanmar-conflict-health-crisis.html
-
-**Quote of the Day: Estonia’s Star-Spangled Courting of Capitol Hill**\
-`Quotation of the Day for Thursday, December 26, 2025.`\
-https://nytimes.com/2025/12/26/pageoneplus/quote-of-the-day-estonias-star-spangled-courting-of-capitol-hill.html
-
-**Connections: Sports Edition Coach: Hints for Dec. 26, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6919104/2025/12/26/connections-sports-edition-hints-for-dec-26-2025/
 
