@@ -1,3 +1,15 @@
+**gws-lobster-trap-christmas-trees**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/lobster-trap-christmas-trees
+
+**Mexican authorities seize drugs, medals linked to former Olympian wanted by FBI**\
+`Officials did not name Ryan Wedding, but said the raids “are linked to a former Olympic athlete" who is a fugitive wanted by the US.`\
+https://nytimes.com/athletic/6919913/2025/12/26/ryan-wedding-fbi-fugitive-mexico-raids/
+
+**Should Colleges End Early Decision?**\
+`Readers respond to a guest essay arguing that it is an unfair “racket. Also: An attack on climate research and safety; the value of immigrants to America.`\
+https://nytimes.com/2025/12/26/opinion/colleges-early-decision-fairness.html
+
 **Spots Shaking Up Vienna’s Cafe Scene**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/vienna-new-cafes-coffee-shops-bakeries
