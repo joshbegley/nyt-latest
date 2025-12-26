@@ -1,3 +1,11 @@
+**How New York Is Preparing for Its First Major Snowstorm in Years**\
+`Streets were brined, plows were ready and flights were canceled as the metropolitan region braced for up to 10 inches of snow.`\
+https://nytimes.com/2025/12/26/nyregion/new-york-winter-storm-what-to-know.html
+
+**With playoffs looming, Lynch says Kittle and Warner 'doing everything' to get back**\
+`George Kittle is nursing an injured ankle, while Fred Warner is hoping to return if the 49ers make a deep playoff run.`\
+https://nytimes.com/athletic/6920228/2025/12/26/george-kittle-fred-warner-49ers-injury-updates-playoffs/
+
 **gws-panettone-pandoro**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/panettone-pandoro
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6920090/2025/12/26/jerry-jones-cowboys-defense-crit
 **Michal Urbaniak, Pioneering Jazz Fusion Violinist, Dies at 82**\
 `One of the first jazz musicians from Poland to gain an international following, he recorded more than 60 albums and played with stars like Miles Davis.`\
 https://nytimes.com/2025/12/26/arts/music/michal-urbaniak-dead.html
-
-**The Most Inspiring Homes We Visited in 2025**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/favorite-house-stories
-
-**The 40 Best Illustrations of 2025**\
-`The most memorable illustrations of the year, chosen by art directors at The New York Times.`\
-https://nytimes.com/2025/12/26/arts/year-in-illustration.html
 
