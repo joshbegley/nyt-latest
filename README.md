@@ -1,3 +1,7 @@
+**Why ‘The Great Gatsby’ is Worth Re-reading**\
+`In the final week of the 100th anniversary of “The Great Gatsby,” Wesley Morris, the host of ‘Cannonball,’ talks to the novelist Min Jin Lee and Gilbert Cruz, editor of The New York Times Book Review, about why all three of them have found themselves in a decades-long relationship with this book.`\
+https://nytimes.com/video/podcasts/100000010606974/why-the-great-gatsby-is-worth-re-reading.html
+
 **Which Premier League players are at risk of a yellow-card suspension?**\
 `A player will receive a one-match suspension if they receive a total of five yellow cards by the halfway point of the league season.`\
 https://nytimes.com/athletic/6919489/2025/12/26/premier-league-yellow-cards-who-banned/
@@ -33,9 +37,4 @@ https://nytimes.com/athletic/6919205/2025/12/26/lebron-james-kevin-durant-christ
 **Blackhawks must decide how to approach upcoming stretch without Connor Bedard, Frank Nazar**\
 `How can coach Jeff Blashill balance playing well with supporting young players when the team's two young stars will be out for a while?`\
 https://nytimes.com/athletic/6917898/2025/12/26/blackhawks-injuries-blashill-youth-bedard-nazar/
-
-**Predicting the World Juniors: Medalists, relegation and top draft-eligible player**\
-`Corey Pronman, Scott Wheeler and Max Bultman form an expert prospect panel to analyze our staff's picks ahead of this year's tournament.
-`\
-https://nytimes.com/athletic/6916692/2025/12/26/hockey-world-juniors-predictions-canada-usa-players/
 
