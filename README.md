@@ -1,3 +1,7 @@
+**Some G.O.P. senators join Democrats in urging Trump to adopt hard line with Putin.**\
+`By Tim Balk`\
+https://nytimes.com/live/2025/12/26/us/trump-news/trump-putin-russia-senate-republicans
+
 **Jordan Love ruled out, Packers will start Malik Willis Saturday vs. the Ravens**\
 `Love suffered a concussion in the Packers’ Week 16 loss to the Chicago Bears and was replaced by Willis.`\
 https://nytimes.com/athletic/6920552/2025/12/26/jordan-love-concussion-out-packers-ravens/
@@ -33,8 +37,4 @@ https://nytimes.com/video/podcasts/100000010606902/how-the-great-gatsby-captures
 **Winger Orellano on the move from FC Cincinnati to Liga MX's Monterrey**\
 `A key winger is on the move from MLS to Liga MX`\
 https://nytimes.com/athletic/6920429/2025/12/26/orellano-cincinnati-monterrey/
-
-**How to watch Nebraska vs. Utah: Las Vegas Bowl Start Time, TV, streaming**\
-`Find out how to watch the Nebraska Cornhuskers play the Utah Utes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6920455/2025/12/26/nebraska-vs-utah-stream-how-to-watch-dec-31/
 
