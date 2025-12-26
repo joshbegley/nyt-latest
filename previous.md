@@ -1,9 +1,13 @@
+**The 40 Best Illustrations of 2025**\
+`The most memorable illustrations of the year, chosen by art directors at The New York Times.`\
+https://nytimes.com/2025/12/26/arts/year-in-illustration.html
+
 **Flashback: Your Weekly History Quiz, Dec. 27, 2025**\
 `Can you sort 8 historical events?`\
 https://nytimes.com/interactive/2025/12/26/upshot/flashback.html
 
-**Egypt 1 South Africa 0: Salah and co top the group, but why was his penalty controversial?**\
-`Egypt secured top spot in Group B thanks to Salah's controversial spot kick in an intriguing match in Agadir that went past 101 minutes`\
+**Egypt 1 South Africa 0: Salah and Co top the group, but why was his penalty controversial?**\
+`Egypt continued their successful start to this tournament in Morocco — and kept Salah's hopes of a first AFCON triumph very much alive`\
 https://nytimes.com/athletic/6918694/2025/12/26/egypt-1-south-africa-0-mohamed-salah-penalty/
 
 **Why are the Lakers so bad on defense? It starts with the stars**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6920006/2025/12/26/heat-vs-hawks-stream-how-to-watc
 **How to watch Raptors vs. Wizards: Time, TV, streaming**\
 `Find out how to watch the Toronto Raptors play the Washington Wizards, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6920004/2025/12/26/raptors-vs-wizards-stream-how-to-watch-dec-26/
-
-**Trump’s Claims About Nigeria Strike Belie a Complex Situation on the Ground**\
-`President Trump said the targets of airstrikes in Nigeria were Islamic State terrorists responsible for killing Christians, but experts question his framing.`\
-https://nytimes.com/2025/12/26/world/africa/trump-isis-strikes-nigeria-christians-facts.html
 

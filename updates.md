@@ -1,3 +1,11 @@
+**The 40 Best Illustrations of 2025**\
+`The most memorable illustrations of the year, chosen by art directors at The New York Times.`\
+https://nytimes.com/2025/12/26/arts/year-in-illustration.html
+
+**Egypt 1 South Africa 0: Salah and Co top the group, but why was his penalty controversial?**\
+`Egypt continued their successful start to this tournament in Morocco — and kept Salah's hopes of a first AFCON triumph very much alive`\
+https://nytimes.com/athletic/6918694/2025/12/26/egypt-1-south-africa-0-mohamed-salah-penalty/
+
 **Flashback: Your Weekly History Quiz, Dec. 27, 2025**\
 `Can you sort 8 historical events?`\
 https://nytimes.com/interactive/2025/12/26/upshot/flashback.html
