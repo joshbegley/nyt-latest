@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6916692/2025/12/26/hockey-world-juniors-predictions-canada-usa-players/
 
+**Predicting the World Juniors: Medalists, relegation and top draft-eligible player**\
+`Corey Pronman, Scott Wheeler and Max Bultman form an expert prospect panel to analyze our staff's picks ahead of this year's tournament.
+`\
+https://nytimes.com/athletic/6916692/2025/12/26/hockey-world-juniors-predictions-canada-usa-players/
+
 **Which Premier League players are at risk of a yellow-card suspension?**\
 `A player will receive a one-match suspension if they receive a total of five yellow cards by the halfway point of the league season.`\
 https://nytimes.com/athletic/6919489/2025/12/26/premier-league-yellow-cards-who-banned/
