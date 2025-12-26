@@ -1,3 +1,11 @@
+**Lamar Jackson doubtful for Saturday's must-win game for the Ravens**\
+`If Jackson doesn't play, it would be the fourth game he has missed this season. `\
+https://nytimes.com/athletic/6918866/2025/12/25/lamar-jackson-ravens-injury-designation/
+
+**Cowboys' Christmas Day win should be Dak Prescott's last game of season**\
+`The Cowboys have a chance to finish .500 with a win next week. Should Dallas play Prescott or turn it over to backup Joe Milton?`\
+https://nytimes.com/athletic/6918947/2025/12/25/cowboys-christmas-win-dak-prescott/
+
 **Cowboys' Christmas Day win should be last game of season for QB Dak Prescott**\
 `The Cowboys have a chance to finish at .500 with a win next week. Should Dallas play him or turn it over to backup Joe Milton?`\
 https://nytimes.com/athletic/6918947/2025/12/25/cowboys-christmas-win-dak-prescott/
