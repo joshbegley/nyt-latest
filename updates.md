@@ -1,3 +1,11 @@
+**Ohio University promotes defensive coordinator John Hauser to head coach**\
+`Hauser was hired after Ohio fired Brian Smith for-cause earlier this month.`\
+https://nytimes.com/athletic/6920088/2025/12/26/ohio-football-hires-john-hauser-coach/
+
+**Jack Draper out of Australian Open, extending absence to five months**\
+`Draper, 24, has been managing bone bruising in his left elbow since clay-court season.`\
+https://nytimes.com/athletic/6920281/2025/12/26/tennis-jack-draper-australian-open-out/
+
 **How New York Is Preparing for Its First Major Snowstorm in Years**\
 `Streets were brined, plows were ready and flights were canceled as the metropolitan region braced for up to 10 inches of snow.`\
 https://nytimes.com/2025/12/26/nyregion/new-york-winter-storm-what-to-know.html
