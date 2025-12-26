@@ -1,5 +1,9 @@
 **Some G.O.P. senators join Democrats in urging Trump to adopt hard line with Putin.**\
 `By Tim Balk`\
+https://nytimes.com/2025/12/26/us/politics/trump-putin-russia-senate-republicans.html
+
+**Some G.O.P. senators join Democrats in urging Trump to adopt hard line with Putin.**\
+`By Tim Balk`\
 https://nytimes.com/live/2025/12/26/us/trump-news/trump-putin-russia-senate-republicans
 
 **Jordan Love ruled out, Packers will start Malik Willis Saturday vs. the Ravens**\
