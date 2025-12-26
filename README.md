@@ -1,40 +1,40 @@
-**Zelensky Says He’ll Meet With Trump in the ‘Near Future’**\
-`There was no immediate confirmation from the White House about a meeting, which President Volodymyr Zelensky of Ukraine has sought since the latest U.S.-.led push for peace got underway.`\
-https://nytimes.com/2025/12/26/world/europe/zelensky-trump-ukraine-russia.html
+**An all-around ugly day and Lions left figuring out what went wrong to promising season**\
+`"I think we all need to take a nice, good, long look in the mirror after this,” Dan Skipper said after the Lions' loss to the Vikings.`\
+https://nytimes.com/athletic/6919192/2025/12/26/lions-eliminated-playoffs-vikings-loss/
 
-**MLB's Strange But True 2025: The plays, moments and stuff we couldn't believe**\
-`It’s time for that end-of-year extravaganza you’ve been eagerly awaiting. Let's celebrate another Strange But True baseball season. `\
-https://nytimes.com/athletic/6917451/2025/12/26/mlb-2025-season-weird-higlights/
+**Dave Canales brought some Seattle to Carolina — now Panthers put it to test in huge game**\
+`Canales and offensive coordinator Brad Idzik spent years with the Seahawks under Pete Carroll and learned a lot in the process.`\
+https://nytimes.com/athletic/6918189/2025/12/26/panthers-seahawks-dave-canales-playoffs/
 
-**AFC North whiparound: Who could be gone this offseason from the Steelers, Ravens, Bengals and Browns?**\
-`Plus, the division's most intriguing developments of the final two weeks.`\
-https://nytimes.com/athletic/6917419/2025/12/26/afc-north-free-agents-steelers-browns-bengals-ravens/
+**Vikings' Harrison Smith produces vintage performance in Christmas win over Lions**\
+`Smith, the veteran safety who could be playing his final games for the Vikings, was a huge part of a dominant defensive performance.`\
+https://nytimes.com/athletic/6919137/2025/12/26/harrison-smith-vikings-vintage-defense-lions-christmas/
 
-**The New York Times International Edition in Print for Saturday, Dec. 27, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/12/26/todays-new-york-times-international-edition
+**In a lost season, a veteran QB nearing the end showed what competing really means**\
+`The Washington Commanders are going nowhere, but Josh Johnson still brought the best of his 39 years to the field.`\
+https://nytimes.com/athletic/6919085/2025/12/26/josh-johnson-commanders-cowboys-christmas-nfl/
 
-**Man City owner CFG exits Mumbai City over 'ongoing uncertainty in ISL'**\
-`The ISL season has not yet commenced having been due to begin in September 2025 and run through to April 2026.`\
-https://nytimes.com/athletic/6919384/2025/12/26/man-city-owner-cfg-india-mumbai/
+**Are the Spurs already the best team in the NBA?**\
+`Even as Victor Wembanyama finds his way back into the Spurs' system, San Antonio has made a compelling case for top dog in the NBA.`\
+https://nytimes.com/athletic/6918984/2025/12/26/spurs-best-team-nba-thunder/
 
-**Not Your Last Trump Quiz**\
-`Test your knowledge of current events with the latest — though not the last — Gail Collins quiz.`\
-https://nytimes.com/interactive/2025/12/26/opinion/contributors/26collins-quiz.html
+**No Super Bowl talk at 49ers' offseason gathering. Now they can reach it without leaving home**\
+`San Francisco will have home-field advantage in the playoffs if it beats the Bears and Seahawks. And Super Bowl LX is at Levi's Stadium.`\
+https://nytimes.com/athletic/6918898/2025/12/26/49ers-bears-nfc-top-seed-super-bowl/
 
-**An Undocumented Father’s Fears of Family Separation**\
-`He was once separated from his family. ICE could do it again.`\
-https://nytimes.com/interactive/2025/12/26/opinion/ice-family-separation-chapter3.html
+**NHL trade matchmaker: Predicting where top targets go by the deadline, part 2**\
+`Where could Jonathan Marchessault, Connor Murphy, Yegor Chinakhov and Marc-Andre Fleury end up by the deadline? Our insiders' picks.`\
+https://nytimes.com/athletic/6916104/2025/12/26/nhl-trade-board-matchmaker-marchessault-murphy-fleury/
 
-**6 Comedy Specials to Get You Through the Holidays**\
-`For very different reasons, new hours from Dave Chappelle, Kevin Hart, Kathleen Madigan, George Civeris and Jay Jurden are worth your time.`\
-https://nytimes.com/2025/12/26/arts/comedy-specials-dave-chappelle-kevin-hart.html
+**Ranking 2025's F1 rookie class in a changing-of-the-guard season**\
+`F1 had a bumper crop of rookie drivers in the 2025 season. Here's how they performed and we ranked them`\
+https://nytimes.com/athletic/6903218/2025/12/26/f1-2025-rookie-driver-rankings/
 
-**7 Questions to Ask Yourself for a Happier New Year**\
-`It’s time to look back — and forward.`\
-https://nytimes.com/2025/12/26/well/family/new-year-reflection-questions.html
+**Giants' offensive line injuries increase risk for Jaxson Dart in final 2 games**\
+`The Giants' offensive line had stayed mostly healthy this season, until two starting linemen had to leave Sunday's game with injuries.`\
+https://nytimes.com/athletic/6916080/2025/12/26/giants-offensive-line-injuries-jaxson-dart/
 
-**How a Deadly Bond Develops in ‘Avatar: Fire and Ash’**\
-`James Cameron narrates a sequence from his film, featuring Oona Chaplin and Stephen Lang.`\
-https://nytimes.com/2025/12/26/movies/avatar-fire-and-ash-clip.html
+**Frustration spills over as JJ Redick says stumbling Lakers 'don’t care enough right now'**\
+`"Tonight we were a terrible basketball team," Redick said after Thursday’s 119-96 loss to Houston, a third-straight blowout defeat.`\
+https://nytimes.com/athletic/6919252/2025/12/26/lakers-lose-jj-redick-frustration/
 
