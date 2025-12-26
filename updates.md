@@ -1,3 +1,7 @@
+**Trump Administration Live Updates: Zelensky Says He Will Meet President This Weekend**\
+``\
+https://nytimes.com/live/2025/12/26/us/trump-news
+
 **Canucks trade tiers: Ranking every player by market value entering 2026**\
 `The Canucks aren't just the NHL's 31st-placed team by point percentage — their hockey holdings are notably illiquid.`\
 https://nytimes.com/athletic/6915875/2025/12/26/vancouver-canucks-trade-tiers-2026/

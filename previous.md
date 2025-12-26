@@ -30,7 +30,7 @@ https://nytimes.com/athletic/6919481/2025/12/26/klay-thompson-warriors-mavericks
 `The attack comes amid heightened tensions between Israelis and Palestinians in the Israeli-occupied West Bank.`\
 https://nytimes.com/2025/12/26/world/middleeast/israel-car-ramming.html
 
-**Trump Administration Live Updates: Zelensky Says He Will Meet President Soon**\
+**Trump Administration Live Updates: Zelensky Says He Will Meet President This Weekend**\
 ``\
 https://nytimes.com/live/2025/12/26/us/trump-news
 
