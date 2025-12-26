@@ -1,3 +1,7 @@
+**Man City owner CFG exits Mumbai City over 'ongoing uncertainty in ISL'**\
+`The ISL season has not yet commenced having been due to begin in September 2025 and run through to April 2026.`\
+https://nytimes.com/athletic/6919384/2025/12/26/man-city-owner-cfg-india-mumbai/
+
 **Not Your Last Trump Quiz**\
 `Test your knowledge of current events with the latest — though not the last — Gail Collins quiz.`\
 https://nytimes.com/interactive/2025/12/26/opinion/contributors/26collins-quiz.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/26/opinion/national-debt-owners-lenders-crisis.html
 **$750,000 Homes in New Brunswick, Canada**\
 `A cliffside home overlooking Lake Utopia, a waterfront home on Shediac Bay and a five-acre property near trails.`\
 https://nytimes.com/2025/12/26/realestate/new-brunswick-canada-homes.html
-
-**What It’s Like When Your Wife Goes on Testosterone**\
-`She went on testosterone to help with her menopausal symptoms. The effects had unexpected consequences for their marriage.`\
-https://nytimes.com/2025/12/26/magazine/what-its-like-when-your-wife-goes-on-testosterone.html
 
