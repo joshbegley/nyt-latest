@@ -1,3 +1,7 @@
+**The Commanders needed a spark against the Cowboys, and Bill was due**\
+`Playing behind a depleted Commanders offensive line, the rookie known as Bill took on a leading role.`\
+https://nytimes.com/athletic/6918942/2025/12/25/bill-croskey-merritt-commanders-cowboys-christmas/
+
 **Packers clinch playoff berth with Vikings' win over Lions on Christmas**\
 `The Packers have now made the playoffs in each of Jordan Love’s three seasons as their starting quarterback.`\
 https://nytimes.com/athletic/6918893/2025/12/25/packers-clinch-playoff-berth-lions-loss/
@@ -10,7 +14,7 @@ https://nytimes.com/athletic/6918952/2025/12/25/tennessee-vs-illinois-stream-how
 `Davis' injury comes one year after former star Luka Dončić left Dallas' Christmas Day game early with an injury of his own.`\
 https://nytimes.com/athletic/6918936/2025/12/25/anthony-davis-injury-status-groin-mavericks-warriors/
 
-**Trump Announces Strike Against ISIS in Nigeria**\
+**U.S. Strikes ISIS in Nigeria After Trump Warned of Attacks on Christians**\
 `The attack comes after President Trump ordered the Defense Department last month to prepare to intervene militarily in Nigeria to protect Christians from Islamic militants.`\
 https://nytimes.com/2025/12/25/us/politics/trump-isis-nigeria-strike.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/12/25/us/politics/trump-presidency-moments-
 **Journey to Antarctica Part 3**\
 `What do you pack for a two-month expedition to Antarctica? Our climate reporter Raymond Zhong shows us what he is bringing along for his journey.`\
 https://nytimes.com/video/climate/100000010562897/journey-to-antarctica-part-3.html
-
-**Cavaliers' brutal Christmas loss reveals team flaw, slim margin for error**\
-`The Cavaliers already know rebounding is a challenge. The workaround would be to play with more poise, then, in other areas.`\
-https://nytimes.com/athletic/6918807/2025/12/25/cavaliers-knicks-christmas-loss-rebounding/
 
