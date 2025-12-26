@@ -1,3 +1,11 @@
+**What happens to the teams who top the Premier League at Christmas?**\
+`For the third time in four seasons, Arsenal are top at Christmas – can they finally turn that into a Premier League title?`\
+https://nytimes.com/athletic/6917048/2025/12/26/top-premier-league-christmas/
+
+**The story of Futbology – the app that allows football fans to tick off stadiums**\
+`Be warned: if this convinces you to get involved, the Futbology mindset is not just for Christmas, it’s for life`\
+https://nytimes.com/athletic/6902663/2025/12/26/futbology-football-fandom-travel/
+
 **Myanmar’s Civil War Pushes Infectious Disease Over Its Borders**\
 `Fighting has caused the spread of illnesses like malaria and cholera. In a worst-case scenario, the situation could threaten regional health security, experts say.`\
 https://nytimes.com/2025/12/26/world/asia/myanmar-conflict-health-crisis.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/26/style/sara-crisman-brandon-begin-wedding.html
 **They Matched Twice. The Second Time Changed Everything.**\
 `Rich Ferraro wasn’t sure that marriage was for him until he matched with David Mansur — and rediscovered a screenshot from their first match two years earlier.`\
 https://nytimes.com/2025/12/26/style/david-mansur-rich-ferraro-wedding.html
-
-**5 Key Moments in the Rise of India’s Hindu-First Powerhouse**\
-`The Rashtriya Swayamsevak Sangh, known as the R.S.S., has survived bans and vilification to emerge as the force reshaping India’s secular republic into a Hindu nation.`\
-https://nytimes.com/2025/12/26/world/asia/5-key-moments-in-the-rise-of-indias-hindu-first-powerhouse.html
-
-**Bo Nix, Broncos escape depleted Chiefs to stay on track for AFC's top seed: Takeaways**\
-`Bo Nix's late touchdown pass gave the Broncos a win at Arrowhead Stadium, where Travis Kelce may have played his last home game.`\
-https://nytimes.com/athletic/6919098/2025/12/25/broncos-chiefs-takeaways-denver-escapes-k-c-to-stay-on-track-for-afcs-top-seed/
 
