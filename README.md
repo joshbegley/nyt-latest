@@ -1,3 +1,11 @@
+**NFL Week 17 schedule rankings: Top 5 Sunday games that inspire New Year's resolutions**\
+`With Christmas in the books and a calendar flip on the horizon, the NFL turns from velvet red robes to 2026 resolutions.`\
+https://nytimes.com/athletic/6919073/2025/12/26/eagles-bills-bears-49ers-jaguars-colts-how-to-watch/
+
+**New Jail Term and Massive Fine for Ex-Malaysian Leader in Graft Scandal**\
+`Najib Razak, the former prime minister already serving a sentence linked to the looting of the 1MDB fund, was found guilty of corruption in a related case.`\
+https://nytimes.com/2025/12/26/world/asia/malaysia-najib-razak-corruption-sentence-1mdb.html
+
 **Top Highlights From a Star-Studded N.B.A. Slate on Christmas Day**\
 `The N.B.A. holiday showcase featured a stirring rally in New York and a loss in Oklahoma City that the left the defending champs facing an uncomfortable truth.`\
 https://nytimes.com/video/the-athletic/100000010610093/top-highlights-from-a-star-studded-nba-slate-on-christmas-day.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6916179/2025/12/26/chargers-greg-roman-offensive-ga
 **More Rain Heading for Southern California, Heightening Flood Risk**\
 `More rain was forecast for the Los Angeles Area on Friday, adding to wet weather that prompted emergency declarations across the state.`\
 https://nytimes.com/2025/12/26/weather/rain-flooding-southern-california-storm.html
-
-**Anthony Edwards is making a leap in clutch time for the Timberwolves**\
-`Edwards showed against Denver on Christmas that he's grasping the subtleties of the game in the most important moments.  `\
-https://nytimes.com/athletic/6919114/2025/12/26/anthony-edwards-timberwolves-clutch-time-denver/
-
-**Eating Like Zohran Mamdani for a Week**\
-`Take a tour through the Zohran Mamdani mayoral foodieverse with New York Times Food contributor, Luke Fortney.`\
-https://nytimes.com/video/dining/100000010604276/eating-like-zohran-mamdani-for-a-week.html
 
