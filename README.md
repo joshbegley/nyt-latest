@@ -1,3 +1,11 @@
+**Travis Kelce's final Chiefs home game? His last play Thursday tells us something**\
+`Netflix broadcast cameras followed Kelce closely for his potential final game at Arrowhead Stadium. But will it be?`\
+https://nytimes.com/athletic/6918985/2025/12/26/travis-kelce-chiefs-final-home-game/
+
+**NBA's latest idea to fix the lottery continues to ignore the problem: the lottery**\
+`The NBA continues to try to fix the lottery because the lottery continues to fail at what it's supposed to do.`\
+https://nytimes.com/athletic/6917604/2025/12/26/nba-draft-lottery-problem-solution-tanking/
+
 **5 Killed in Syria Mosque Blast, State Media Reports**\
 `No group has claimed responsibility for the blast, which happened on a day when many worshipers typically attend mosques for Friday prayers.`\
 https://nytimes.com/2025/12/26/world/africa/5-killed-in-syria-mosque-blast-state-media-reports.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6918984/2025/12/26/spurs-best-team-nba-thunder/
 **No Super Bowl talk at 49ers' offseason gathering. Now they can reach it without leaving home**\
 `San Francisco will have home-field advantage in the playoffs if it beats the Bears and Seahawks. And Super Bowl LX is at Levi's Stadium.`\
 https://nytimes.com/athletic/6918898/2025/12/26/49ers-bears-nfc-top-seed-super-bowl/
-
-**NHL trade matchmaker: Predicting where top targets go by the deadline, part 2**\
-`Where could Jonathan Marchessault, Connor Murphy, Yegor Chinakhov and Marc-Andre Fleury end up by the deadline? Our insiders' picks.`\
-https://nytimes.com/athletic/6916104/2025/12/26/nhl-trade-board-matchmaker-marchessault-murphy-fleury/
-
-**Ranking 2025's F1 rookie class in a changing-of-the-guard season**\
-`F1 had a bumper crop of rookie drivers in the 2025 season. Here's how they performed and we ranked them`\
-https://nytimes.com/athletic/6903218/2025/12/26/f1-2025-rookie-driver-rankings/
 
