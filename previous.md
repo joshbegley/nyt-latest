@@ -1,3 +1,7 @@
+**‘Avatar: Fire and Ash' | Anatomy of a Scene**\
+`James Cameron narrates a sequence from his film.`\
+https://nytimes.com/video/movies/100000010604615/avatar-fire-and-ash-scene.html
+
 **What Can Hundreds of Pieces of Litter Tell Us About Manhattan?**\
 `Shoes. A phone. Receipts. A comb. Traces of wild nights and hurried days are all around us.`\
 https://nytimes.com/2025/12/26/nyregion/nyc-litter.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6910948/2025/12/26/manchester-united-transfer-janua
 **Aston Villa's January Transfer DealSheet: Harvey Elliott's future, incoming Brazilians, loan exits?**\
 `What is the manager’s priority? Who will they be looking to sell? Do they need to sell to buy? What is their PSR position?`\
 https://nytimes.com/athletic/6881386/2025/12/26/aston-villa-january-transfer-plans-elliott/
-
-**How to watch USC vs. TCU: Alamo Bowl Start Time, TV, streaming**\
-`Find out how to watch the USC Trojans play the TCU Horned Frogs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6919328/2025/12/26/usc-vs-tcu-stream-how-to-watch-dec-30/
 

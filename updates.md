@@ -1,3 +1,7 @@
+**‘Avatar: Fire and Ash' | Anatomy of a Scene**\
+`James Cameron narrates a sequence from his film.`\
+https://nytimes.com/video/movies/100000010604615/avatar-fire-and-ash-scene.html
+
 **What Can Hundreds of Pieces of Litter Tell Us About Manhattan?**\
 `Shoes. A phone. Receipts. A comb. Traces of wild nights and hurried days are all around us.`\
 https://nytimes.com/2025/12/26/nyregion/nyc-litter.html
