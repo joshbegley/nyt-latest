@@ -1,3 +1,11 @@
+**Michal Urbaniak, Pioneering Jazz Fusion Violinist, Dies at 82**\
+`One of the first jazz musicians from Poland to gain an international following, he recorded more than 60 albums and played with stars like Miles Davis.`\
+https://nytimes.com/2025/12/26/arts/music/michal-urbaniak-dead.html
+
+**The Most Inspiring Homes We Visited in 2025**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/favorite-house-stories
+
 **The 40 Best Illustrations of 2025**\
 `The most memorable illustrations of the year, chosen by art directors at The New York Times.`\
 https://nytimes.com/2025/12/26/arts/year-in-illustration.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6920013/2025/12/26/celtics-vs-pacers-stream-how-to-
 **How to watch Hornets vs. Magic: Time, TV, streaming**\
 `Find out how to watch the Charlotte Hornets play the Orlando Magic, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6920011/2025/12/26/hornets-vs-magic-stream-how-to-watch-dec-26/
-
-**How to watch Heat vs. Hawks: Time, TV, streaming**\
-`Find out how to watch the Miami Heat play the Atlanta Hawks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6920006/2025/12/26/heat-vs-hawks-stream-how-to-watch-dec-26/
-
-**How to watch Raptors vs. Wizards: Time, TV, streaming**\
-`Find out how to watch the Toronto Raptors play the Washington Wizards, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6920004/2025/12/26/raptors-vs-wizards-stream-how-to-watch-dec-26/
 
