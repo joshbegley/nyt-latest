@@ -1,5 +1,5 @@
 **Death Toll in UPS Plane Crash Rises to 15**\
-`Alain Rodriguez Colina, who was injured when a cargo plane crashed into his workplace more than a month ago, died on Christmas Day.`\
+`Alain Rodriguez Colina, who was injured when a cargo plane crashed into his Kentucky workplace more than a month ago, died on Christmas Day.`\
 https://nytimes.com/2025/12/25/us/ups-plane-crash-louisville-kentucky.html
 
 **Austin Reaves exits Lakers' Christmas Day game, set for MRI on left calf**\
