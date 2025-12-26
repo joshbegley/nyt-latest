@@ -1,3 +1,7 @@
+**Anthony Davis suffers groin injury in Mavericks' Christmas game vs. Warriors**\
+`Davis' injury comes one year after former star Luka Dončić left Dallas' Christmas Day game early with an injury of his own.`\
+https://nytimes.com/athletic/6918936/2025/12/25/anthony-davis-injury-status-groin-mavericks-warriors/
+
 **Trump Announces Strike Against ISIS in Nigeria**\
 `The attack comes after President Trump ordered the Defense Department last month to prepare to intervene militarily in Nigeria to protect Christians from Islamic militants.`\
 https://nytimes.com/2025/12/25/us/politics/trump-isis-nigeria-strike.html

@@ -1,3 +1,7 @@
+**How to watch Tennessee vs. Illinois: Music City Bowl Start Time, TV, streaming**\
+`Find out how to watch the Tennessee Volunteers play the Illinois Fighting Illini, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6918952/2025/12/25/tennessee-vs-illinois-stream-how-to-watch-dec-30/
+
 **Anthony Davis suffers groin injury in Mavericks' Christmas game vs. Warriors**\
 `Davis' injury comes one year after former star Luka Dončić left Dallas' Christmas Day game early with an injury of his own.`\
 https://nytimes.com/athletic/6918936/2025/12/25/anthony-davis-injury-status-groin-mavericks-warriors/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6918807/2025/12/25/cavaliers-knicks-christmas-loss-
 **Fernandes to return in January, Mainoo 'the future of Man Utd' - Amorim**\
 `Fernandes pulled up towards the end of the first half of United's 2-1 defeat to Aston Villa on Sunday`\
 https://nytimes.com/athletic/6910722/2025/12/25/bruno-fernandes-injury-update-manchester-united/
-
-**Dak Prescott's big day helps Cowboys hold off Commanders: Takeaways**\
-`Prescott threw for 307 yards and two touchdowns as Washington won the NFC East matchup.`\
-https://nytimes.com/athletic/6918734/2025/12/25/cowboys-commanders-score-result-takeaways-nfl-christmas-day/
 
