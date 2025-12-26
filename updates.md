@@ -1,3 +1,7 @@
+**Nikola Jokić outduels Anthony Edwards with 56-point triple double in dramatic Christmas finale**\
+`Jokić's 56-point triple double, his second on Christmas, was the third-best scoring performance on the holiday in NBA history.`\
+https://nytimes.com/athletic/6919217/2025/12/26/nikola-jokic-highlights-nuggets-timberwolves-anthony-edwards/
+
 **This May Be Our Last Chance to Get It Right in Venezuela**\
 `For the past decade, every administration in Washington has said Venezuela represents an extraordinary threat to the United States.`\
 https://nytimes.com/2025/12/26/opinion/venezuela-america-maduro-security-strategy.html
