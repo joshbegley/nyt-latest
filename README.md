@@ -1,3 +1,7 @@
+**Nikola Jokić outduels Anthony Edwards with 56-point triple double in dramatic Christmas finale**\
+`Jokić's 56-point triple double, his second on Christmas, was the third-best scoring performance on the holiday in NBA history.`\
+https://nytimes.com/athletic/6919217/2025/12/26/nikola-jokic-highlights-nuggets-timberwolves-anthony-edwards/
+
 **This May Be Our Last Chance to Get It Right in Venezuela**\
 `For the past decade, every administration in Washington has said Venezuela represents an extraordinary threat to the United States.`\
 https://nytimes.com/2025/12/26/opinion/venezuela-america-maduro-security-strategy.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6905892/2025/12/26/newcastle-january-transfer-deals
 **Football through the generations, part 2: From the Dark Ages to a new world of money, pressure and scrutiny**\
 `In part two of our chats with seven footballers born 1935 to 2005, we look at the pros and cons of the modern game`\
 https://nytimes.com/athletic/6911017/2025/12/26/football-through-generations-part-2/
-
-**What happens to the teams who top the Premier League at Christmas?**\
-`For the third time in four seasons, Arsenal are top at Christmas – can they finally turn that into a Premier League title?`\
-https://nytimes.com/athletic/6917048/2025/12/26/top-premier-league-christmas/
 
