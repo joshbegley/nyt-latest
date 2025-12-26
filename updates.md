@@ -1,3 +1,7 @@
+**Man City owner CFG exits Mumbai City over 'ongoing uncertainty in ISL'**\
+`The ISL season has not yet commenced having been due to begin in September 2025 and run through to April 2026.`\
+https://nytimes.com/athletic/6919384/2025/12/26/man-city-owner-cfg-india-mumbai/
+
 **Not Your Last Trump Quiz**\
 `Test your knowledge of current events with the latest — though not the last — Gail Collins quiz.`\
 https://nytimes.com/interactive/2025/12/26/opinion/contributors/26collins-quiz.html
