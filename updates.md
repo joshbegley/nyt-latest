@@ -1,3 +1,7 @@
+**How to watch Tennessee vs. Illinois: Music City Bowl Start Time, TV, streaming**\
+`Find out how to watch the Tennessee Volunteers play the Illinois Fighting Illini, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6918952/2025/12/25/tennessee-vs-illinois-stream-how-to-watch-dec-30/
+
 **Anthony Davis suffers groin injury in Mavericks' Christmas game vs. Warriors**\
 `Davis' injury comes one year after former star Luka Dončić left Dallas' Christmas Day game early with an injury of his own.`\
 https://nytimes.com/athletic/6918936/2025/12/25/anthony-davis-injury-status-groin-mavericks-warriors/
