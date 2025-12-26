@@ -1,3 +1,11 @@
+**Anthony Edwards is making a leap in clutch time for the Timberwolves**\
+`Edwards showed against Denver on Christmas that he's grasping the subtleties of the game in the most important moments.  `\
+https://nytimes.com/athletic/6919114/2025/12/26/anthony-edwards-timberwolves-clutch-time-denver/
+
+**Eating Like Zohran Mamdani for a Week**\
+`Take a tour through the Zohran Mamdani mayoral foodieverse with New York Times Food contributor, Luke Fortney.`\
+https://nytimes.com/video/dining/100000010604276/eating-like-zohran-mamdani-for-a-week.html
+
 **Why ‘The Great Gatsby’ is Worth Re-reading**\
 `In the final week of the 100th anniversary of “The Great Gatsby,” Wesley Morris, the host of ‘Cannonball,’ talks to the novelist Min Jin Lee and Gilbert Cruz, editor of The New York Times Book Review, about why all three of them have found themselves in a decades-long relationship with this book.`\
 https://nytimes.com/video/podcasts/100000010606974/why-the-great-gatsby-is-worth-re-reading.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6911091/2025/12/26/nfl-draft-2026-prospects-makai-l
 **Broncos and an unlikely hero score Arrowhead redemption to keep lofty goals in sight**\
 `Alex Forsyth's special teams failure led to a heartbreaking loss at Arrowhead Stadium last year. On Thursday, he left with a game ball.`\
 https://nytimes.com/athletic/6919221/2025/12/26/broncos-chiefs-arrowhead-alex-forsyth-bo-nix/
-
-**LeBron James vs. Kevin Durant: Legacy highlighted in potential final Christmas matchup**\
-`James and Durant, after all these years, are still at an All-Star level and are still capable of pulling off amazing feats on the court.`\
-https://nytimes.com/athletic/6919205/2025/12/26/lebron-james-kevin-durant-christmas-lakers-rockets/
-
-**Blackhawks must decide how to approach upcoming stretch without Connor Bedard, Frank Nazar**\
-`How can coach Jeff Blashill balance playing well with supporting young players when the team's two young stars will be out for a while?`\
-https://nytimes.com/athletic/6917898/2025/12/26/blackhawks-injuries-blashill-youth-bedard-nazar/
 
