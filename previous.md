@@ -1,3 +1,15 @@
+**How to watch Bucks vs. Grizzlies: Time, TV, streaming**\
+`Find out how to watch the Milwaukee Bucks play the Memphis Grizzlies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6920411/2025/12/26/bucks-vs-grizzlies-stream-how-to-watch-dec-26/
+
+**How to watch Clippers vs. Trail Blazers: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Clippers play the Portland Trail Blazers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6920404/2025/12/26/clippers-vs-trail-blazers-stream-how-to-watch-dec-26/
+
+**How to watch Pistons vs. Jazz: Time, TV, streaming**\
+`Find out how to watch the Detroit Pistons play the Utah Jazz, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6920394/2025/12/26/pistons-vs-jazz-stream-how-to-watch-dec-26/
+
 **Mavs' Anthony Davis expected to miss multiple games with strained groin**\
 `Dallas has posted a 4-12 record in games Anthony Davis has been unable to play.`\
 https://nytimes.com/athletic/6920259/2025/12/26/mavericks-anthony-davis-injury-update-groin-strain/
@@ -6,7 +18,7 @@ https://nytimes.com/athletic/6920259/2025/12/26/mavericks-anthony-davis-injury-u
 `The Welsh side came into the fixture without a win in five games yet managed to find a victory after going 3-1 down in the first half. `\
 https://nytimes.com/athletic/6920317/2025/12/26/wrexham-championship-record-five-sheffield-utd/
 
-**Amazon releases first trailer for John Madden biopic starring Nicholas Cage**\
+**Amazon releases first trailer for John Madden biopic starring Nicolas Cage**\
 `Nicolas Cage and Christian Bale will bring football legends John Madden and Al Davis to life in Amazon MGM’s upcoming biopic.`\
 https://nytimes.com/athletic/6920292/2025/12/26/nicolas-cage-john-madden-movie-teaser/
 
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6920281/2025/12/26/tennis-jack-draper-australian-op
 **How New York Is Preparing for Its First Major Snowstorm in Years**\
 `Streets were brined, plows were ready and flights were canceled as the metropolitan region braced for up to 10 inches of snow.`\
 https://nytimes.com/2025/12/26/nyregion/new-york-winter-storm-what-to-know.html
-
-**With playoffs looming, Lynch says Kittle and Warner 'doing everything' to get back**\
-`George Kittle is nursing an injured ankle, while Fred Warner is hoping to return if the 49ers make a deep playoff run.`\
-https://nytimes.com/athletic/6920228/2025/12/26/george-kittle-fred-warner-49ers-injury-updates-playoffs/
-
-**gws-panettone-pandoro**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/panettone-pandoro
-
-**gws-lobster-trap-christmas-trees**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/lobster-trap-christmas-trees
 
