@@ -1,3 +1,15 @@
+**Flashback: Your Weekly History Quiz, Dec. 27, 2025**\
+`Can you sort 8 historical events?`\
+https://nytimes.com/interactive/2025/12/26/upshot/flashback.html
+
+**Egypt 1 South Africa 0: Salah and co top the group, but why was his penalty controversial?**\
+`Egypt secured top spot in Group B thanks to Salah's controversial spot kick in an intriguing match in Agadir that went past 101 minutes`\
+https://nytimes.com/athletic/6918694/2025/12/26/egypt-1-south-africa-0-mohamed-salah-penalty/
+
+**Trump’s Claims About Nigeria Strike Belie a Complex Situation on the Ground**\
+`President Trump said the targets of airstrikes in Nigeria were Islamic State terrorists responsible for killing Christians, but experts question his framing.`\
+https://nytimes.com/2025/12/26/world/africa/trump-isis-strikes-nigeria-christians-facts.html
+
 **Egypt 1 South Africa 0: Has Salah lived up to his AFCON billing so far? How was that a penalty?**\
 `Egypt secured top spot in Group B thanks to Salah's controversial spot kick in an intriguing match in Agadir that went past 101 minutes`\
 https://nytimes.com/athletic/6918694/2025/12/26/egypt-1-south-africa-0-mohamed-salah-penalty/
