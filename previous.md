@@ -1,3 +1,7 @@
+**A Wealth Tax Floated in California Has Billionaires Thinking of Leaving**\
+`It’s uncertain whether the proposal will reach the statewide ballot in November, but some billionaires like Peter Thiel and Larry Page may be unwilling to take the risk.`\
+https://nytimes.com/2025/12/26/technology/california-wealth-tax-page-thiel.html
+
 **Colts' Sauce Gardner to return vs. Jaguars; DeForest Buckner ruled out**\
 `Star DT DeForest Buckner will be placed on season-ending injured reserve due to a neck injury.`\
 https://nytimes.com/athletic/6920346/2025/12/26/colts-sauce-gardner-deforest-buckner-jaguars/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/26/world/middleeast/israel-recognize-somaliland.html
 **How to watch 76ers vs. Bulls: Time, TV, streaming**\
 `Find out how to watch the Philadelphia 76ers play the Chicago Bulls, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6920417/2025/12/26/76ers-vs-bulls-stream-how-to-watch-dec-26/
-
-**How to watch Suns vs. Pelicans: Time, TV, streaming**\
-`Find out how to watch the Phoenix Suns play the New Orleans Pelicans, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6920413/2025/12/26/suns-vs-pelicans-stream-how-to-watch-dec-26/
 

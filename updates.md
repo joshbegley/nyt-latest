@@ -1,3 +1,7 @@
+**A Wealth Tax Floated in California Has Billionaires Thinking of Leaving**\
+`It’s uncertain whether the proposal will reach the statewide ballot in November, but some billionaires like Peter Thiel and Larry Page may be unwilling to take the risk.`\
+https://nytimes.com/2025/12/26/technology/california-wealth-tax-page-thiel.html
+
 **Colts' Sauce Gardner to return vs. Jaguars; DeForest Buckner ruled out**\
 `Star DT DeForest Buckner will be placed on season-ending injured reserve due to a neck injury.`\
 https://nytimes.com/athletic/6920346/2025/12/26/colts-sauce-gardner-deforest-buckner-jaguars/
