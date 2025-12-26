@@ -1,40 +1,40 @@
-**‘Avatar: Fire and Ash' | Anatomy of a Scene**\
-`James Cameron narrates a sequence from his film.`\
-https://nytimes.com/video/movies/100000010604615/avatar-fire-and-ash-scene.html
+**Not Your Last Trump Quiz**\
+`Test your knowledge of current events with the latest — though not the last — Gail Collins quiz.`\
+https://nytimes.com/interactive/2025/12/26/opinion/contributors/26collins-quiz.html
 
-**What Can Hundreds of Pieces of Litter Tell Us About Manhattan?**\
-`Shoes. A phone. Receipts. A comb. Traces of wild nights and hurried days are all around us.`\
-https://nytimes.com/2025/12/26/nyregion/nyc-litter.html
+**An Undocumented Father’s Fears of Family Separation**\
+`He was once separated from his family. ICE could do it again.`\
+https://nytimes.com/interactive/2025/12/26/opinion/ice-family-separation-chapter3.html
 
-**Flu Cases Climb to Highest Levels in New York City in a Decade**\
-`The number of patients going to hospital emergency rooms with flulike symptoms has soared.`\
-https://nytimes.com/2025/12/26/nyregion/nyc-flu-cases.html
+**6 Comedy Specials to Get You Through the Holidays**\
+`For very different reasons, new hours from Dave Chappelle, Kevin Hart, Kathleen Madigan, George Civeris and Jay Jurden are worth your time.`\
+https://nytimes.com/2025/12/26/arts/comedy-specials-dave-chappelle-kevin-hart.html
 
-**With Help of Lina Khan, Mamdani Looks to Quickly Cut Costs for New Yorkers**\
-`Mayor-elect Zohran Mamdani’s signature plans for New York City will take time. Lina Khan, the former chair of the Federal Trade Commission, has ideas for making a swift impact.`\
-https://nytimes.com/2025/12/26/nyregion/lina-khan-mamdani-affordability-new-york-city.html
+**7 Questions to Ask Yourself for a Happier New Year**\
+`It’s time to look back — and forward.`\
+https://nytimes.com/2025/12/26/well/family/new-year-reflection-questions.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/12/26/crosswords/spelling-bee-forum.html
+**How a Deadly Bond Develops in ‘Avatar: Fire and Ash’**\
+`James Cameron narrates a sequence from his film, featuring Oona Chaplin and Stephen Lang.`\
+https://nytimes.com/2025/12/26/movies/avatar-fire-and-ash-clip.html
 
-**LawConnect defies owner’s faith again with fast start to Sydney Hobart race**\
-`Christian Beck has described his yacht as a 's**t box' but thanks to his crew, they have made a fine start to the Sydney-Hobart race`\
-https://nytimes.com/athletic/6919237/2025/12/26/sydney-hobart-race-law-connect/
+**Sick of Trump News? I’m Here for You.**\
+`Here are the best nonfiction essays of the year, according to me.`\
+https://nytimes.com/2025/12/26/opinion/good-essays-news-sidneys.html
 
-**The Ashes Briefing: England fold to hand Australia advantage as 20 wickets fall on Boxing Day**\
-`Josh Tongue's Test best figures of 5-45 counted for naught as Australia roared back on a bowler-friendly surface at the MCG`\
-https://nytimes.com/athletic/6918885/2025/12/26/australia-england-brook-neser-tongue-mcg-ashes-briefing/
+**Book Club: Read ‘The Hounding,’ by Xenobe Purvis, With the Book Review**\
+`In January, the Book Review Book Club will read and discuss Xenobe Purvis’s debut novel, about a small English village grappling with a dangerous rumor.`\
+https://nytimes.com/2025/12/26/books/review/the-hounding-xenobe-purvis-book-club.html
 
-**The Transfer DealSheet: The latest on your club's January window plans**\
-`Welcome to The Athletic's guide to the January transfer window`\
-https://nytimes.com/athletic/6908193/2025/12/26/transfer-latest-manchester-united-arsenal-liverpool-real-madrid-january-window/
+**It Matters Who Owns the National Debt. And a Big Shift Is Occurring.**\
+`The size of the national debt matters. But so does who America’s lenders are — and that is changing.`\
+https://nytimes.com/2025/12/26/opinion/national-debt-owners-lenders-crisis.html
 
-**Man Utd's January Transfer DealSheet: Latest on Kobbie Mainoo future**\
-`Manchester United's upcoming transfer window could be important for them fulfilling their goals this season`\
-https://nytimes.com/athletic/6910948/2025/12/26/manchester-united-transfer-january-latest/
+**$750,000 Homes in New Brunswick, Canada**\
+`A cliffside home overlooking Lake Utopia, a waterfront home on Shediac Bay and a five-acre property near trails.`\
+https://nytimes.com/2025/12/26/realestate/new-brunswick-canada-homes.html
 
-**Aston Villa's January Transfer DealSheet: Harvey Elliott's future, incoming Brazilians, loan exits?**\
-`What is the manager’s priority? Who will they be looking to sell? Do they need to sell to buy? What is their PSR position?`\
-https://nytimes.com/athletic/6881386/2025/12/26/aston-villa-january-transfer-plans-elliott/
+**What It’s Like When Your Wife Goes on Testosterone**\
+`She went on testosterone to help with her menopausal symptoms. The effects had unexpected consequences for their marriage.`\
+https://nytimes.com/2025/12/26/magazine/what-its-like-when-your-wife-goes-on-testosterone.html
 
