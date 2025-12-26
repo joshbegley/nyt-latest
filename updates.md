@@ -1,3 +1,11 @@
+**Facts Clash With Trump Claim of Hitting ISIS and Shielding Nigerian Christians**\
+`President Trump said the targets of airstrikes in Nigeria were Islamic State terrorists responsible for killing Christians, but experts question his framing.`\
+https://nytimes.com/2025/12/26/world/africa/trump-isis-strikes-nigeria-christians-facts.html
+
+**CVS Worker Fatally Stabbed on Christmas Day on Long Island**\
+`A 23-year-old CVS employee was killed on Thursday in Lindenhurst, the authorities said. Police were searching for a suspect in his 40s who fled on foot.`\
+https://nytimes.com/2025/12/26/nyregion/stabbing-cvs-christmas-lindenhurst.html
+
 **Ham Yesterday Means Ham and Bean Soup Today**\
 `This classic, comforting, stick-to-your-ribs soup makes the most of your holiday ham leftovers (especially if you have a ham bone or hock).`\
 https://nytimes.com/2025/12/26/dining/ham-yesterday-means-ham-and-bean-soup-today.html
