@@ -1,3 +1,7 @@
+**Colts' Sauce Gardner to return vs. Jaguars; DeForest Buckner ruled out**\
+`Star DT DeForest Buckner will be placed on season-ending injured reserve due to a neck injury.`\
+https://nytimes.com/athletic/6920346/2025/12/26/colts-sauce-gardner-deforest-buckner-jaguars/
+
 **The Evolution of the Women in ‘The Great Gatsby’**\
 `In the final week of the 100th anniversary of “The Great Gatsby,” Wesley Morris, the host of ‘Cannonball,’ talks to the novelist Min Jin Lee and Gilbert Cruz, editor of The New York Times Book Review, about why all three of them have found themselves in a decades-long relationship with this book.`\
 https://nytimes.com/video/podcasts/100000010606956/the-evolution-of-the-women-in-the-great-gatsby.html
