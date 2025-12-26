@@ -1,3 +1,15 @@
+**How to watch 76ers vs. Bulls: Time, TV, streaming**\
+`Find out how to watch the Philadelphia 76ers play the Chicago Bulls, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6920417/2025/12/26/76ers-vs-bulls-stream-how-to-watch-dec-26/
+
+**How to watch Suns vs. Pelicans: Time, TV, streaming**\
+`Find out how to watch the Phoenix Suns play the New Orleans Pelicans, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6920413/2025/12/26/suns-vs-pelicans-stream-how-to-watch-dec-26/
+
+**Amazon releases trailer for John Madden biopic starring Nicolas Cage**\
+`Nicolas Cage and Christian Bale will bring football legends John Madden and Al Davis to life in Amazon MGM’s upcoming biopic.`\
+https://nytimes.com/athletic/6920292/2025/12/26/nicolas-cage-john-madden-movie-teaser/
+
 **How to watch Bucks vs. Grizzlies: Time, TV, streaming**\
 `Find out how to watch the Milwaukee Bucks play the Memphis Grizzlies, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6920411/2025/12/26/bucks-vs-grizzlies-stream-how-to-watch-dec-26/
