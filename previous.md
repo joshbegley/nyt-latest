@@ -1,3 +1,7 @@
+**Jordan Love ruled out, Packers will start Malik Willis Saturday vs. the Ravens**\
+`Love suffered a concussion in the Packers’ Week 16 loss to the Chicago Bears and was replaced by Willis.`\
+https://nytimes.com/athletic/6920552/2025/12/26/jordan-love-concussion-out-packers-ravens/
+
 **Eagles DT Jalen Carter expected to return vs. Bills**\
 `Carter had chose to undergo a procedure to get him ready for the postseason.`\
 https://nytimes.com/athletic/6920248/2025/12/26/jalen-carter-eagles-bills-injury-return/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6920429/2025/12/26/orellano-cincinnati-monterrey/
 **How to watch Nebraska vs. Utah: Las Vegas Bowl Start Time, TV, streaming**\
 `Find out how to watch the Nebraska Cornhuskers play the Utah Utes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6920455/2025/12/26/nebraska-vs-utah-stream-how-to-watch-dec-31/
-
-**How to watch Iowa vs. Vanderbilt: ReliaQuest Bowl Start Time, TV, streaming**\
-`Find out how to watch the Iowa Hawkeyes play the Vanderbilt Commodores, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6920450/2025/12/26/iowa-vs-vanderbilt-stream-how-to-watch-dec-31/
 

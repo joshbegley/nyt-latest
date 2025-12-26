@@ -1,3 +1,7 @@
+**Jordan Love ruled out, Packers will start Malik Willis Saturday vs. the Ravens**\
+`Love suffered a concussion in the Packers’ Week 16 loss to the Chicago Bears and was replaced by Willis.`\
+https://nytimes.com/athletic/6920552/2025/12/26/jordan-love-concussion-out-packers-ravens/
+
 **Eagles DT Jalen Carter expected to return vs. Bills**\
 `Carter had chose to undergo a procedure to get him ready for the postseason.`\
 https://nytimes.com/athletic/6920248/2025/12/26/jalen-carter-eagles-bills-injury-return/
