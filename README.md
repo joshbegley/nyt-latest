@@ -1,3 +1,11 @@
+**Ohio University promotes defensive coordinator John Hauser to head coach**\
+`Hauser was hired after Ohio fired Brian Smith for-cause earlier this month.`\
+https://nytimes.com/athletic/6920088/2025/12/26/ohio-football-hires-john-hauser-coach/
+
+**Jack Draper out of Australian Open, extending absence to five months**\
+`Draper, 24, has been managing bone bruising in his left elbow since clay-court season.`\
+https://nytimes.com/athletic/6920281/2025/12/26/tennis-jack-draper-australian-open-out/
+
 **How New York Is Preparing for Its First Major Snowstorm in Years**\
 `Streets were brined, plows were ready and flights were canceled as the metropolitan region braced for up to 10 inches of snow.`\
 https://nytimes.com/2025/12/26/nyregion/new-york-winter-storm-what-to-know.html
@@ -29,12 +37,4 @@ https://nytimes.com/newsgraphics/card-story/vienna-new-cafes-coffee-shops-bakeri
 **Forest to rename Bridgford Stand in honour of Robertson**\
 `Club owner Evangelos Marinakis announced his intention to rename the stand in recognition of the club legend's "extraordinary contribution".`\
 https://nytimes.com/athletic/6920120/2025/12/26/nottingham-forest-john-robertson-stand-rename-marinakis/
-
-**Jerry Jones critical of Cowboys' scheme and defensive coaching despite win**\
-`Jones was pleased with Dallas' road win at Washington, but remains unhappy with the way the defense has played.`\
-https://nytimes.com/athletic/6920090/2025/12/26/jerry-jones-cowboys-defense-criticism/
-
-**Michal Urbaniak, Pioneering Jazz Fusion Violinist, Dies at 82**\
-`One of the first jazz musicians from Poland to gain an international following, he recorded more than 60 albums and played with stars like Miles Davis.`\
-https://nytimes.com/2025/12/26/arts/music/michal-urbaniak-dead.html
 
