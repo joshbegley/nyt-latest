@@ -1,3 +1,16 @@
+**Which Premier League players are at risk of a yellow-card suspension?**\
+`A player will receive a one-match suspension if they receive a total of five yellow cards by the halfway point of the league season.`\
+https://nytimes.com/athletic/6919489/2025/12/26/premier-league-yellow-cards-who-banned/
+
+**The 10 best 2026 NFL Draft prospects on non-Playoff teams**\
+`In what's becoming the norm, opt-outs will keep a lot of draft prospects off the field during bowl season.`\
+https://nytimes.com/athletic/6911091/2025/12/26/nfl-draft-2026-prospects-makai-lemon-utah/
+
+**Predicting the World Juniors: Medalists, relegation and top draft-eligible player**\
+`Corey Pronman, Scott Wheeler and Max Bultman form an expert prospect panel to analyze our staff's picks ahead of this year's tournament.
+`\
+https://nytimes.com/athletic/6916692/2025/12/26/hockey-world-juniors-predictions-canada-usa-players/
+
 **A College Freshman Is the Unlikely Source of Alabama’s New Political Maps**\
 `Daniel DiDonato, 19, has loved elections since he was in fourth grade. He also loves maps.`\
 https://nytimes.com/2025/12/26/us/alabama-redistricting-maps-college-student.html
