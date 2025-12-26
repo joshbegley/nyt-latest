@@ -1,3 +1,7 @@
+**Packers clinch playoff berth with Vikings' win over Lions on Christmas**\
+`The Packers have now made the playoffs in each of Jordan Love’s three seasons as their starting quarterback.`\
+https://nytimes.com/athletic/6918893/2025/12/25/packers-clinch-playoff-berth-lions-loss/
+
 **How to watch Tennessee vs. Illinois: Music City Bowl Start Time, TV, streaming**\
 `Find out how to watch the Tennessee Volunteers play the Illinois Fighting Illini, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6918952/2025/12/25/tennessee-vs-illinois-stream-how-to-watch-dec-30/
