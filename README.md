@@ -1,3 +1,7 @@
+**Death Toll in UPS Plane Crash Rises to 15**\
+`Alain Rodriguez Colina, who was injured when a cargo plane crashed into his workplace more than a month ago, died on Christmas Day.`\
+https://nytimes.com/2025/12/25/us/ups-plane-crash-louisville-kentucky.html
+
 **Austin Reaves exits Lakers' Christmas Day game, set for MRI on left calf**\
 `Reaves will undergo a MRI on the calf Friday, according to a league source.`\
 https://nytimes.com/athletic/6919111/2025/12/25/austin-reaves-lakers-calf-christmas-game-mri/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6918893/2025/12/25/packers-clinch-playoff-berth-lio
 **How to watch Tennessee vs. Illinois: Music City Bowl Start Time, TV, streaming**\
 `Find out how to watch the Tennessee Volunteers play the Illinois Fighting Illini, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6918952/2025/12/25/how-to-watch-tennessee-vs-illinois-music-city-bowl-tv-channel-and-streaming-options-for-december-30/
-
-**Anthony Davis suffers groin injury in Mavericks' Christmas game vs. Warriors**\
-`Davis' injury comes one year after former star Luka Dončić left Dallas' Christmas Day game early with an injury of his own.`\
-https://nytimes.com/athletic/6918936/2025/12/25/anthony-davis-injury-status-groin-mavericks-warriors/
 
