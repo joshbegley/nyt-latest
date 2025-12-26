@@ -1,3 +1,15 @@
+**Spots Shaking Up Vienna’s Cafe Scene**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/vienna-new-cafes-coffee-shops-bakeries
+
+**Forest to rename Bridgford Stand in honour of Robertson**\
+`Club owner Evangelos Marinakis announced his intention to rename the stand in recognition of the club legend's "extraordinary contribution".`\
+https://nytimes.com/athletic/6920120/2025/12/26/nottingham-forest-john-robertson-stand-rename-marinakis/
+
+**Jerry Jones critical of Cowboys' scheme and defensive coaching despite win**\
+`Jones was pleased with Dallas' road win at Washington, but remains unhappy with the way the defense has played.`\
+https://nytimes.com/athletic/6920090/2025/12/26/jerry-jones-cowboys-defense-criticism/
+
 **Jerry Jones critical of Cowboys' scheme and defensive coaching Jerry Jones critical of Cowboys' scheme and defensive coaching despite win**\
 `Jones was pleased with Dallas' road win at Washington, but remains unhappy with the way the defense has played.`\
 https://nytimes.com/athletic/6920090/2025/12/26/jerry-jones-cowboys-defense-criticism/

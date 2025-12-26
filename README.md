@@ -1,3 +1,7 @@
+**Should Colleges End Early Decision?**\
+`Readers respond to a guest essay arguing that it is an unfair “racket. Also: An attack on climate research and safety; the value of immigrants to America.`\
+https://nytimes.com/2025/12/26/opinion/colleges-early-decision-fairness.html
+
 **Spots Shaking Up Vienna’s Cafe Scene**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/vienna-new-cafes-coffee-shops-bakeries
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6918694/2025/12/26/egypt-1-south-africa-0-mohamed-s
 **Why are the Lakers so bad on defense? It starts with the stars**\
 `Houston became the latest team to torch the Lakers, who have a problem because their core trio struggles to guard.`\
 https://nytimes.com/athletic/6919259/2025/12/26/lakers-defense-bad-luka-doncic-lebron-james/
-
-**Harry Redknapp's horse wins King George in photo finish**\
-`The Jukebox Man — ridden by Ben Jones and trained by Ben Pauling — beat 2024 winner Banbridge and joint-favourite Gaelic Warrior by a nose.`\
-https://nytimes.com/athletic/6919877/2025/12/26/harry-redknapp-horse-racing-win-king-george/
 

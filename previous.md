@@ -1,4 +1,12 @@
-**Jerry Jones critical of Cowboys' scheme and defensive coaching Jerry Jones critical of Cowboys' scheme and defensive coaching despite win**\
+**Spots Shaking Up Vienna’s Cafe Scene**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/vienna-new-cafes-coffee-shops-bakeries
+
+**Forest to rename Bridgford Stand in honour of Robertson**\
+`Club owner Evangelos Marinakis announced his intention to rename the stand in recognition of the club legend's "extraordinary contribution".`\
+https://nytimes.com/athletic/6920120/2025/12/26/nottingham-forest-john-robertson-stand-rename-marinakis/
+
+**Jerry Jones critical of Cowboys' scheme and defensive coaching despite win**\
 `Jones was pleased with Dallas' road win at Washington, but remains unhappy with the way the defense has played.`\
 https://nytimes.com/athletic/6920090/2025/12/26/jerry-jones-cowboys-defense-criticism/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6919259/2025/12/26/lakers-defense-bad-luka-doncic-l
 **Harry Redknapp's horse wins King George in photo finish**\
 `The Jukebox Man — ridden by Ben Jones and trained by Ben Pauling — beat 2024 winner Banbridge and joint-favourite Gaelic Warrior by a nose.`\
 https://nytimes.com/athletic/6919877/2025/12/26/harry-redknapp-horse-racing-win-king-george/
-
-**Why Sears’s Last Great Hope Was a Promise That Never Materialized**\
-`Only five Sears stores remain in the country, with the end likely near for what was once the mightiest American retailer.`\
-https://nytimes.com/2025/12/26/business/sears-seritage-edward-lampert.html
-
-**How to watch Celtics vs. Pacers: Time, TV, streaming**\
-`Find out how to watch the Boston Celtics play the Indiana Pacers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6920013/2025/12/26/celtics-vs-pacers-stream-how-to-watch-dec-26/
 
