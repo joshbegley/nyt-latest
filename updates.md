@@ -1,3 +1,7 @@
+**Amazon releases first trailer for John Madden biopic starring Nicholas Cage**\
+`Nicolas Cage and Christian Bale will bring football legends John Madden and Al Davis to life in Amazon MGM’s upcoming biopic.`\
+https://nytimes.com/athletic/6920292/2025/12/26/nicolas-cage-john-madden-movie-teaser/
+
 **Mavs' Anthony Davis expected to miss multiple games with strained groin**\
 `Dallas has posted a 4-12 record in games Anthony Davis has been unable to play.`\
 https://nytimes.com/athletic/6920259/2025/12/26/mavericks-anthony-davis-injury-update-groin-strain/
