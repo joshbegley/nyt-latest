@@ -1,3 +1,7 @@
+**Lamar Jackson doubtful for Saturday's must-win game for the Ravens**\
+`If Jackson doesn't play, it would be the fourth game he has missed this season. `\
+https://nytimes.com/athletic/6918866/2025/12/25/lamar-jackson-ravens-injury-designation/
+
 **Cowboys' Christmas Day win should be last game of season for QB Dak Prescott**\
 `The Cowboys have a chance to finish at .500 with a win next week. Should Dallas play him or turn it over to backup Joe Milton?`\
 https://nytimes.com/athletic/6918947/2025/12/25/cowboys-christmas-win-dak-prescott/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6918849/2025/12/25/steph-curry-shoes-klay-thompson-
 **Judge Blocks Detention of British Researcher Who Scrutinizes Online Hate**\
 `Imran Ahmed, who runs an organization that chronicles disinformation, was among five Europeans the State Department had barred, claiming they promote censorship.`\
 https://nytimes.com/2025/12/25/us/politics/imran-ahmed-judge-order.html
-
-**If the Knicks want a championship, Mitchell Robinson must stay all season**\
-`Robinson is the weapon New York has that only one other team does. The Knicks should cherish that.`\
-https://nytimes.com/athletic/6918815/2025/12/25/if-the-knicks-want-a-championship-mitchell-robinson-must-stay-past-trade-deadline/
 

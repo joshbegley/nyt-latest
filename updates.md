@@ -1,3 +1,15 @@
+**Cowboys' Christmas Day win should be last game of season for QB Dak Prescott**\
+`The Cowboys have a chance to finish at .500 with a win next week. Should Dallas play him or turn it over to backup Joe Milton?`\
+https://nytimes.com/athletic/6918947/2025/12/25/cowboys-christmas-win-dak-prescott/
+
+**Vikings defense forces 6 turnovers in 23-10 win, ending Lions' playoff hopes: Takeaways**\
+`The Vikings defense sacked Jared Goff five times and forced six turnovers in a 23-10 win that knocked the Lions out of playoff contention.`\
+https://nytimes.com/athletic/6918809/2025/12/25/lions-vikings-score-result-takeaways-nfl-christmas-day/
+
+**How to watch Tennessee vs. Illinois: Music City Bowl Start Time, TV, streaming**\
+`Find out how to watch the Tennessee Volunteers play the Illinois Fighting Illini, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6918952/2025/12/25/how-to-watch-tennessee-vs-illinois-music-city-bowl-tv-channel-and-streaming-options-for-december-30/
+
 **Vikings defense forces six turnovers in 23-10 win, ending Lions' playoff hopes: Takeaways**\
 `The Vikings defense sacked Jared Goff five times and forced six turnovers in a 23-10 win that knocked the Lions out of playoff contention.`\
 https://nytimes.com/athletic/6918809/2025/12/25/lions-vikings-score-result-takeaways-nfl-christmas-day/
