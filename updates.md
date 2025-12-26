@@ -1,3 +1,19 @@
+**Trump Administration Emphasizes Religion in Official Christmas Messages**\
+`Government officials have traditionally steered clear of such overtly religious language, as the Constitution prohibits the establishment of an official state religion.`\
+https://nytimes.com/2025/12/25/admin/trump-administration-religion-christmas.html
+
+**Lamar Jackson doubtful for Saturday's must-win game for the Ravens**\
+`If Jackson doesn't play, it would be the fourth game he has missed this season. `\
+https://nytimes.com/athletic/6918866/2025/12/25/lamar-jackson-ravens-injury-designation/
+
+**Cowboys' Christmas Day win should be Dak Prescott's last game of season**\
+`The Cowboys have a chance to finish .500 with a win next week. Should Dallas play Prescott or turn it over to backup Joe Milton?`\
+https://nytimes.com/athletic/6918947/2025/12/25/cowboys-christmas-win-dak-prescott/
+
+**Why Steph Curry wore Klay Thompson's signature shoe on Christmas**\
+`Curry is currently a sneaker free agent after parting ways with Under Armour earlier this year. `\
+https://nytimes.com/athletic/6918849/2025/12/25/steph-curry-shoes-klay-thompson-warriors-mavericks-christmas/
+
 **Cowboys' Christmas Day win should be last game of season for QB Dak Prescott**\
 `The Cowboys have a chance to finish at .500 with a win next week. Should Dallas play him or turn it over to backup Joe Milton?`\
 https://nytimes.com/athletic/6918947/2025/12/25/cowboys-christmas-win-dak-prescott/

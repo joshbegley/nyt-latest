@@ -1,5 +1,13 @@
-**Cowboys' Christmas Day win should be last game of season for QB Dak Prescott**\
-`The Cowboys have a chance to finish at .500 with a win next week. Should Dallas play him or turn it over to backup Joe Milton?`\
+**Trump Administration Emphasizes Religion in Official Christmas Messages**\
+`Government officials have traditionally steered clear of such overtly religious language, as the Constitution prohibits the establishment of an official state religion.`\
+https://nytimes.com/2025/12/25/admin/trump-administration-religion-christmas.html
+
+**Lamar Jackson doubtful for Saturday's must-win game for the Ravens**\
+`If Jackson doesn't play, it would be the fourth game he has missed this season. `\
+https://nytimes.com/athletic/6918866/2025/12/25/lamar-jackson-ravens-injury-designation/
+
+**Cowboys' Christmas Day win should be Dak Prescott's last game of season**\
+`The Cowboys have a chance to finish .500 with a win next week. Should Dallas play Prescott or turn it over to backup Joe Milton?`\
 https://nytimes.com/athletic/6918947/2025/12/25/cowboys-christmas-win-dak-prescott/
 
 **Vikings defense forces 6 turnovers in 23-10 win, ending Lions' playoff hopes: Takeaways**\
@@ -26,15 +34,7 @@ https://nytimes.com/athletic/6918936/2025/12/25/anthony-davis-injury-status-groi
 `The attack comes after President Trump ordered the Defense Department last month to prepare to intervene militarily in Nigeria to protect Christians from Islamic militants.`\
 https://nytimes.com/2025/12/25/us/politics/trump-isis-nigeria-strike.html
 
-**Why Steph Curry is wearing Klay Thompson's signature shoe on Christmas**\
+**Why Steph Curry wore Klay Thompson's signature shoe on Christmas**\
 `Curry is currently a sneaker free agent after parting ways with Under Armour earlier this year. `\
 https://nytimes.com/athletic/6918849/2025/12/25/steph-curry-shoes-klay-thompson-warriors-mavericks-christmas/
-
-**Judge Blocks Detention of British Researcher Who Scrutinizes Online Hate**\
-`Imran Ahmed, who runs an organization that chronicles disinformation, was among five Europeans the State Department had barred, claiming they promote censorship.`\
-https://nytimes.com/2025/12/25/us/politics/imran-ahmed-judge-order.html
-
-**If the Knicks want a championship, Mitchell Robinson must stay all season**\
-`Robinson is the weapon New York has that only one other team does. The Knicks should cherish that.`\
-https://nytimes.com/athletic/6918815/2025/12/25/if-the-knicks-want-a-championship-mitchell-robinson-must-stay-past-trade-deadline/
 
