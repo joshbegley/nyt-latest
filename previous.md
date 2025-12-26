@@ -1,3 +1,11 @@
+**Canucks trade tiers: Ranking every player by market value entering 2026**\
+`The Canucks aren't just the NHL's 31st-placed team by point percentage — their hockey holdings are notably illiquid.`\
+https://nytimes.com/athletic/6915875/2025/12/26/vancouver-canucks-trade-tiers-2026/
+
+**Looking Back at Nancy Pelosi’s Career, Through The Times**\
+`Images of the congresswoman have appeared in The New York Times throughout the decades. Here are a few noteworthy examples and others from our archives.`\
+https://nytimes.com/2025/12/26/insider/nancy-pelosi.html
+
 **NFL Week 17 schedule rankings: Top 5 Sunday games that inspire New Year's resolutions**\
 `With Christmas in the books and a calendar flip on the horizon, the NFL turns from velvet red robes to 2026 resolutions.`\
 https://nytimes.com/athletic/6919073/2025/12/26/eagles-bills-bears-49ers-jaguars-colts-how-to-watch/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/12/26/us/trump-news
 **Why can leaving 10mm of grass on a cricket pitch cause chaos?**\
 `The surface at Melbourne's MCG has come in for heavy criticism after 20 wickets fell on day one of the Ashes Test`\
 https://nytimes.com/athletic/6919534/2025/12/26/australia-england-melbourne-pitch-wickets/
-
-**Chargers OC Greg Roman shows flexibility in last two game plans**\
-`Roman: "You want to be good at everything you do, and you want to be able to exploit the other team’s perceived weaknesses.”`\
-https://nytimes.com/athletic/6916179/2025/12/26/chargers-greg-roman-offensive-game-plan-texans/
-
-**More Rain Heading for Southern California, Heightening Flood Risk**\
-`More rain was forecast for the Los Angeles Area on Friday, adding to wet weather that prompted emergency declarations across the state.`\
-https://nytimes.com/2025/12/26/weather/rain-flooding-southern-california-storm.html
 

@@ -1,3 +1,11 @@
+**Canucks trade tiers: Ranking every player by market value entering 2026**\
+`The Canucks aren't just the NHL's 31st-placed team by point percentage — their hockey holdings are notably illiquid.`\
+https://nytimes.com/athletic/6915875/2025/12/26/vancouver-canucks-trade-tiers-2026/
+
+**Looking Back at Nancy Pelosi’s Career, Through The Times**\
+`Images of the congresswoman have appeared in The New York Times throughout the decades. Here are a few noteworthy examples and others from our archives.`\
+https://nytimes.com/2025/12/26/insider/nancy-pelosi.html
+
 **New Jail Term and Enormous Fine for Ex-Malaysian Leader in Graft Scandal**\
 `Najib Razak, the former prime minister already serving a sentence linked to the looting of the 1MDB fund, was found guilty of corruption in a related case.`\
 https://nytimes.com/2025/12/26/world/asia/malaysia-najib-razak-corruption-sentence-1mdb.html
