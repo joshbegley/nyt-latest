@@ -1,3 +1,23 @@
+**Why Sears’s Last Great Hope Was a Promise That Never Materialized**\
+`Only five Sears stores remain in the country, with the end likely near for what was once the mightiest American retailer.`\
+https://nytimes.com/2025/12/26/business/sears-seritage-edward-lampert.html
+
+**How to watch Celtics vs. Pacers: Time, TV, streaming**\
+`Find out how to watch the Boston Celtics play the Indiana Pacers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6920013/2025/12/26/celtics-vs-pacers-stream-how-to-watch-dec-26/
+
+**How to watch Hornets vs. Magic: Time, TV, streaming**\
+`Find out how to watch the Charlotte Hornets play the Orlando Magic, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6920011/2025/12/26/hornets-vs-magic-stream-how-to-watch-dec-26/
+
+**How to watch Heat vs. Hawks: Time, TV, streaming**\
+`Find out how to watch the Miami Heat play the Atlanta Hawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6920006/2025/12/26/heat-vs-hawks-stream-how-to-watch-dec-26/
+
+**How to watch Raptors vs. Wizards: Time, TV, streaming**\
+`Find out how to watch the Toronto Raptors play the Washington Wizards, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6920004/2025/12/26/raptors-vs-wizards-stream-how-to-watch-dec-26/
+
 **Facts Clash With Trump Claim of Hitting ISIS and Shielding Nigerian Christians**\
 `President Trump said the targets of airstrikes in Nigeria were Islamic State terrorists responsible for killing Christians, but experts question his framing.`\
 https://nytimes.com/2025/12/26/world/africa/trump-isis-strikes-nigeria-christians-facts.html
@@ -17,24 +37,4 @@ https://nytimes.com/card/2025/12/26/smarter-living/wirecutter/
 **Five Action Movies to Stream Now**\
 `This month’s picks include a World War I revenge tale, a vampire superhero and female assassins.`\
 https://nytimes.com/2025/12/26/movies/action-movies-streaming.html
-
-**Lowetide: 4 Oilers World Juniors moments worth remembering**\
-`There was a time in this fair land when Oilers prospects famously ruled the junior hockey world.`\
-https://nytimes.com/athletic/6918661/2025/12/26/edmonton-oilers-world-juniors-stories-eberle-gretzky/
-
-**The Pulse: NFL clunkers and NBA kryptonite**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6916394/2025/12/26/nfl-christmas-results-the-pulse/
-
-**The Bounce: The Spurs loudly announce their arrival, and Jokić owns Christmas**\
-`The Bounce Newsletter  | This is The Athletic’s daily NBA newsletter.`\
-https://nytimes.com/athletic/6919697/2025/12/26/spurs-wembanyama-nuggets-jokic-christmas-nba-the-bounce/
-
-**CVS Worker Fatally Stabbed on Christmas Day on Long Island**\
-`A 23-year-old CVS employee was killed on Thursday in Lindenhurst, the authorities said. Police were searching for a suspect in his 40s who fled on foot.`\
-https://nytimes.com/2025/12/26/nyregion/stabbing-cvs-christmas-lindenhurst.html
-
-**Ex-Utah coach Kyle Whittingham emerges as focus of Michigan search: Source**\
-`Whittingham, 66, stepped down Dec. 12 after 21 seasons at Utah but made it known that he wasn’t done coaching.`\
-https://nytimes.com/athletic/6919643/2025/12/26/michigan-kyle-whittingham-head-coaching-search/
 
