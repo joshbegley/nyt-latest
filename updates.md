@@ -1,3 +1,23 @@
+**How to watch Clippers vs. Trail Blazers: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Clippers play the Portland Trail Blazers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6920404/2025/12/26/clippers-vs-trail-blazers-stream-how-to-watch-dec-26/
+
+**How to watch Pistons vs. Jazz: Time, TV, streaming**\
+`Find out how to watch the Detroit Pistons play the Utah Jazz, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6920394/2025/12/26/pistons-vs-jazz-stream-how-to-watch-dec-26/
+
+**Mavs' Anthony Davis expected to miss multiple games with strained groin**\
+`Dallas has posted a 4-12 record in games Anthony Davis has been unable to play.`\
+https://nytimes.com/athletic/6920259/2025/12/26/mavericks-anthony-davis-injury-update-groin-strain/
+
+**Wrexham score five for first time in second tier with comeback win against Sheffield United**\
+`The Welsh side came into the fixture without a win in five games yet managed to find a victory after going 3-1 down in the first half. `\
+https://nytimes.com/athletic/6920317/2025/12/26/wrexham-championship-record-five-sheffield-utd/
+
+**Amazon releases trailer for John Madden biopic starring Nicolas Cage**\
+`Nicolas Cage and Christian Bale will bring football legends John Madden and Al Davis to life in Amazon MGM’s upcoming biopic.`\
+https://nytimes.com/athletic/6920292/2025/12/26/nicolas-cage-john-madden-movie-teaser/
+
 **The Evolution of the Women in ‘The Great Gatsby’**\
 `In the final week of the 100th anniversary of “The Great Gatsby,” Wesley Morris, the host of ‘Cannonball,’ talks to the novelist Min Jin Lee and Gilbert Cruz, editor of The New York Times Book Review, about why all three of them have found themselves in a decades-long relationship with this book.`\
 https://nytimes.com/video/podcasts/100000010606956/the-evolution-of-the-women-in-the-great-gatsby.html
