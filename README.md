@@ -1,3 +1,7 @@
+**Trump Announces Strike Against ISIS in Nigeria**\
+`The attack comes after President Trump ordered the Defense Department last month to prepare to intervene militarily in Nigeria to protect Christians from Islamic militants.`\
+https://nytimes.com/2025/12/25/us/politics/trump-isis-nigeria-strike.html
+
 **Why Steph Curry is wearing Klay Thompson's signature shoe on Christmas**\
 `Curry is currently a sneaker free agent after parting ways with Under Armour earlier this year. `\
 https://nytimes.com/athletic/6918849/2025/12/25/steph-curry-shoes-klay-thompson-warriors-mavericks-christmas/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6918734/2025/12/25/cowboys-commanders-score-result-
 **Remembering Those Who Died This Year**\
 `We look back at the lives of some of the artists, innovators and thinkers we lost in 2025.`\
 https://nytimes.com/2025/12/25/world/the-lives-they-lived-2025-ukraine-peace-plan-christmas.html
-
-**New York City Braces for Several Inches of Snow**\
-`The region could see accumulations of up to 5 to 7 inches from late Friday into Saturday.`\
-https://nytimes.com/2025/12/25/nyregion/snow-storm-nyc-weather-forecast.html
 
