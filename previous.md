@@ -1,3 +1,15 @@
+**LawConnect defies owner’s faith again with fast start to Sydney Hobart race**\
+`Christian Beck has described his yacht as a 's**t box' but thanks to his crew, they have made a fine start to the Sydney-Hobart race`\
+https://nytimes.com/athletic/6919237/2025/12/26/sydney-hobart-race-law-connect/
+
+**The Ashes Briefing: England fold to hand Australia advantage as 20 wickets fall on Boxing Day**\
+`Josh Tongue's Test best figures of 5-45 counted for naught as Australia roared back on a bowler-friendly surface at the MCG`\
+https://nytimes.com/athletic/6918885/2025/12/26/australia-england-brook-neser-tongue-mcg-ashes-briefing/
+
+**The Transfer DealSheet: The latest on your club's January window plans**\
+`Welcome to The Athletic's guide to the January transfer window`\
+https://nytimes.com/athletic/6908193/2025/12/26/transfer-latest-manchester-united-arsenal-liverpool-real-madrid-january-window/
+
 **Man Utd's January Transfer DealSheet: Latest on Kobbie Mainoo future**\
 `Manchester United's upcoming transfer window could be important for them fulfilling their goals this season`\
 https://nytimes.com/athletic/6910948/2025/12/26/manchester-united-transfer-january-latest/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6916629/2025/12/26/mls-transfer-dealsheet-2026-inte
 **Wrexham's January Transfer DealSheet: Will there be more player turnover in January after recent spending?**\
 `Wrexham have been incredibly active in the transfer market over the past few seasons. What does this mean for January?`\
 https://nytimes.com/athletic/6854637/2025/12/26/wrexham-transfers-january-2026/
-
-**Wolves' January Transfer DealSheet: Latest as Rob Edwards looks to lay foundations for future**\
-`Wolves, who are bottom of the Premier League, are in a tricky position heading into the January transfer window`\
-https://nytimes.com/athletic/6893557/2025/12/26/wolves-transfer-january-latest-analysis/
-
-**Everton's January Transfer DealSheet: Garner renewal talks, will they recall Armstrong?**\
-`It looks set to be a quiet window for Everton, but there could be developments with these two players`\
-https://nytimes.com/athletic/6910753/2025/12/26/everton-transfer-dealsheet-james-garner-harrison-armstrong/
-
-**Tottenham Hotspur's January Transfer DealSheet: Latest on reinforcements and Van de Ven deal**\
-`Tottenham have had a difficult start to the season and the January window could be crucial`\
-https://nytimes.com/athletic/6906852/2025/12/26/tottenham-hotspur-transfer-january-latest/
 

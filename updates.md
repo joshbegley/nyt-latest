@@ -1,3 +1,15 @@
+**LawConnect defies owner’s faith again with fast start to Sydney Hobart race**\
+`Christian Beck has described his yacht as a 's**t box' but thanks to his crew, they have made a fine start to the Sydney-Hobart race`\
+https://nytimes.com/athletic/6919237/2025/12/26/sydney-hobart-race-law-connect/
+
+**The Ashes Briefing: England fold to hand Australia advantage as 20 wickets fall on Boxing Day**\
+`Josh Tongue's Test best figures of 5-45 counted for naught as Australia roared back on a bowler-friendly surface at the MCG`\
+https://nytimes.com/athletic/6918885/2025/12/26/australia-england-brook-neser-tongue-mcg-ashes-briefing/
+
+**The Transfer DealSheet: The latest on your club's January window plans**\
+`Welcome to The Athletic's guide to the January transfer window`\
+https://nytimes.com/athletic/6908193/2025/12/26/transfer-latest-manchester-united-arsenal-liverpool-real-madrid-january-window/
+
 **Man Utd's January Transfer DealSheet: Latest on Kobbie Mainoo future**\
 `Manchester United's upcoming transfer window could be important for them fulfilling their goals this season`\
 https://nytimes.com/athletic/6910948/2025/12/26/manchester-united-transfer-january-latest/
