@@ -1,3 +1,7 @@
+**Lowetide: 4 Oilers World Juniors moments worth remembering**\
+`There was a time in this fair land when Oilers prospects famously ruled the junior hockey world.`\
+https://nytimes.com/athletic/6918661/2025/12/26/edmonton-oilers-world-juniors-stories-eberle-gretzky/
+
 **The Bounce: The Spurs loudly announce their arrival, and Jokić owns Christmas**\
 `The Bounce Newsletter  | This is The Athletic’s daily NBA newsletter.`\
 https://nytimes.com/athletic/6919697/2025/12/26/spurs-wembanyama-nuggets-jokic-christmas-nba-the-bounce/
