@@ -1,3 +1,7 @@
+**Why are the Lakers so bad on defense? It starts with the stars**\
+`Houston became the latest team to torch the Lakers, who have a problem because their core trio struggles to guard.`\
+https://nytimes.com/athletic/6919259/2025/12/26/lakers-defense-bad-luka-doncic-lebron-james/
+
 **Harry Redknapp's horse wins King George in photo finish**\
 `The Jukebox Man — ridden by Ben Jones and trained by Ben Pauling — beat 2024 winner Banbridge and joint-favourite Gaelic Warrior by a nose.`\
 https://nytimes.com/athletic/6919877/2025/12/26/harry-redknapp-horse-racing-win-king-george/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/26/dining/ham-yesterday-means-ham-and-bean-soup-toda
 **The Beauty in Imagining Loss**\
 `A mother’s grief is well depicted in “Hamnet” and “The Correspondent.”`\
 https://nytimes.com/2025/12/26/opinion/culture/hamnet-loss-grief.html
-
-**These Deodorants Stood Up to Our Sweatiest, Most Stress-Filled Days (and Nights)**\
-`Text by Abbie Kozolchyk`\
-https://nytimes.com/card/2025/12/26/smarter-living/wirecutter/
 
