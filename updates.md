@@ -1,3 +1,23 @@
+**Brighton & Hove Albion's Transfer DealSheet: What to expect in January**\
+`Brighton don't often look to make big changes to their squad mid-season - will it be any different this time around...?`\
+https://nytimes.com/athletic/6875259/2025/12/26/brighton-transfer-latest-january-2026/
+
+**The teams and players to target in FPL before the New Year**\
+`Whether it’s strong home form, a favourable fixture swing, or clear talismanic options, several teams stand out for the upcoming gameweeks`\
+https://nytimes.com/athletic/6915988/2025/12/26/fantasy-premier-league-fpl-tips/
+
+**Nottingham Forest's January Transfer DealSheet: McNeil interest? Boly moving on?**\
+`The club are not expected to be busy this window after investing heavily in the squad in the summer`\
+https://nytimes.com/athletic/6913819/2025/12/26/nottingham-forest-january-transfer-dealsheet/
+
+**Newcastle's January Transfer DealSheet: A long-shot move for Kees Smit? Joe Willock for sale?**\
+`The latest on Newcastle's January transfer window plans, from players they are monitoring to those already at the club`\
+https://nytimes.com/athletic/6905892/2025/12/26/newcastle-january-transfer-dealsheet-a-long-shot-move-for-kees-smit-joe-willock-for-sale/
+
+**Football through the generations, part 2: From the Dark Ages to a new world of money, pressure and scrutiny**\
+`In part two of our chats with seven footballers born 1935 to 2005, we look at the pros and cons of the modern game`\
+https://nytimes.com/athletic/6911017/2025/12/26/football-through-generations-part-2/
+
 **What happens to the teams who top the Premier League at Christmas?**\
 `For the third time in four seasons, Arsenal are top at Christmas – can they finally turn that into a Premier League title?`\
 https://nytimes.com/athletic/6917048/2025/12/26/top-premier-league-christmas/
