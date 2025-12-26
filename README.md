@@ -1,3 +1,7 @@
+**A College Freshman Is the Unlikely Source of Alabama’s New Political Maps**\
+`Daniel DiDonato, 19, has loved elections since he was in fourth grade. He also loves maps.`\
+https://nytimes.com/2025/12/26/us/alabama-redistricting-maps-college-student.html
+
 **What's the future of bowl games? Bowl Season director talks impact of CFP, opt-outs and more**\
 `Bowl Season director Nick Carparelli explains how bowls can coexist with CFP expansion, if there are too many bowl games and opt-outs.`\
 https://nytimes.com/athletic/6916274/2025/12/26/bowl-season-game-college-football-playoff/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6916692/2025/12/26/hockey-world-juniors-predictions
 **Where Is All the A.I.-Driven Scientific Progress?**\
 `A tech C.E.O. explains why A.I. probably won’t cure diseases anytime soon. Hint: You still need humans.`\
 https://nytimes.com/2025/12/26/podcasts/hardfork-ai-science.html
-
-**What to pack for a trip to the bottom of the world.**\
-`(No description)`\
-https://nytimes.com/live/2025/climate/antarctica-thwaites-glacier/packing-video
 
