@@ -1,3 +1,7 @@
+**Bo Nix, Broncos escape depleted Chiefs to stay on track for AFC's top seed: Takeaways**\
+`Bo Nix's late touchdown pass gave the Broncos a win at Arrowhead Stadium, where Travis Kelce may have played his last home game.`\
+https://nytimes.com/athletic/6919098/2025/12/25/broncos-chiefs-takeaways-denver-escapes-k-c-to-stay-on-track-for-afcs-top-seed/
+
 **Death Toll in UPS Plane Crash Rises to 15**\
 `Alain Rodriguez Colina, who was injured when a cargo plane crashed into his Kentucky workplace more than a month ago, died on Christmas Day.`\
 https://nytimes.com/2025/12/25/us/ups-plane-crash-louisville-kentucky.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6918942/2025/12/25/bill-croskey-merritt-commanders-
 **Packers clinch playoff berth with Vikings' win over Lions on Christmas**\
 `The Packers have now made the playoffs in each of Jordan Love’s three seasons as their starting quarterback.`\
 https://nytimes.com/athletic/6918893/2025/12/25/packers-clinch-playoff-berth-lions-loss/
-
-**How to watch Tennessee vs. Illinois: Music City Bowl Start Time, TV, streaming**\
-`Find out how to watch the Tennessee Volunteers play the Illinois Fighting Illini, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6918952/2025/12/25/how-to-watch-tennessee-vs-illinois-music-city-bowl-tv-channel-and-streaming-options-for-december-30/
 
