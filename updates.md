@@ -1,3 +1,7 @@
+**Diogo Jota's sons to be mascots for Liverpool vs Wolves**\
+`Jota played for both clubs during his time in English football.`\
+https://nytimes.com/athletic/6919536/2025/12/26/liverpool-diogo-jota-sons-mascots-wolves/
+
 **Klay Thompson faced the Warriors again on Christmas. It didn't make a splash**\
 `The day was supposed to be about Klay. But Golden State had other things on its mind, and the sentimentality barely registered.`\
 https://nytimes.com/athletic/6919481/2025/12/26/klay-thompson-warriors-mavericks-christmas/

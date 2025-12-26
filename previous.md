@@ -1,3 +1,7 @@
+**Diogo Jota's sons to be mascots for Liverpool vs Wolves**\
+`Jota played for both clubs during his time in English football.`\
+https://nytimes.com/athletic/6919536/2025/12/26/liverpool-diogo-jota-sons-mascots-wolves/
+
 **Klay Thompson faced the Warriors again on Christmas. It didn't make a splash**\
 `The day was supposed to be about Klay. But Golden State had other things on its mind, and the sentimentality barely registered.`\
 https://nytimes.com/athletic/6919481/2025/12/26/klay-thompson-warriors-mavericks-christmas/
@@ -33,8 +37,4 @@ https://nytimes.com/video/dining/100000010604276/eating-like-zohran-mamdani-for-
 **Why ‘The Great Gatsby’ is Worth Re-reading**\
 `In the final week of the 100th anniversary of “The Great Gatsby,” Wesley Morris, the host of ‘Cannonball,’ talks to the novelist Min Jin Lee and Gilbert Cruz, editor of The New York Times Book Review, about why all three of them have found themselves in a decades-long relationship with this book.`\
 https://nytimes.com/video/podcasts/100000010606974/why-the-great-gatsby-is-worth-re-reading.html
-
-**Which Premier League players are at risk of a yellow-card suspension?**\
-`A player will receive a one-match suspension if they receive a total of five yellow cards by the halfway point of the league season.`\
-https://nytimes.com/athletic/6919489/2025/12/26/premier-league-yellow-cards-who-banned/
 

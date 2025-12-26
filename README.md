@@ -1,3 +1,7 @@
+**Top Highlights From a Star-Studded N.B.A. Slate on Christmas Day**\
+`The N.B.A. holiday showcase featured a stirring rally in New York and a loss in Oklahoma City that the left the defending champs facing an uncomfortable truth.`\
+https://nytimes.com/video/the-athletic/100000010610093/top-highlights-from-a-star-studded-nba-slate-on-christmas-day.html
+
 **Diogo Jota's sons to be mascots for Liverpool vs Wolves**\
 `Jota played for both clubs during his time in English football.`\
 https://nytimes.com/athletic/6919536/2025/12/26/liverpool-diogo-jota-sons-mascots-wolves/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6919114/2025/12/26/anthony-edwards-timberwolves-clu
 **Eating Like Zohran Mamdani for a Week**\
 `Take a tour through the Zohran Mamdani mayoral foodieverse with New York Times Food contributor, Luke Fortney.`\
 https://nytimes.com/video/dining/100000010604276/eating-like-zohran-mamdani-for-a-week.html
-
-**Why ‘The Great Gatsby’ is Worth Re-reading**\
-`In the final week of the 100th anniversary of “The Great Gatsby,” Wesley Morris, the host of ‘Cannonball,’ talks to the novelist Min Jin Lee and Gilbert Cruz, editor of The New York Times Book Review, about why all three of them have found themselves in a decades-long relationship with this book.`\
-https://nytimes.com/video/podcasts/100000010606974/why-the-great-gatsby-is-worth-re-reading.html
 
