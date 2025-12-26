@@ -1,3 +1,11 @@
+**Travis Kelce's final Chiefs home game? His last play Thursday tells us something**\
+`Netflix broadcast cameras followed Kelce closely for his potential final game at Arrowhead Stadium. But will it be?`\
+https://nytimes.com/athletic/6918985/2025/12/26/travis-kelce-chiefs-final-home-game/
+
+**NBA's latest idea to fix the lottery continues to ignore the problem: the lottery**\
+`The NBA continues to try to fix the lottery because the lottery continues to fail at what it's supposed to do.`\
+https://nytimes.com/athletic/6917604/2025/12/26/nba-draft-lottery-problem-solution-tanking/
+
 **5 Killed in Syria Mosque Blast, State Media Reports**\
 `No group has claimed responsibility for the blast, which happened on a day when many worshipers typically attend mosques for Friday prayers.`\
 https://nytimes.com/2025/12/26/world/africa/5-killed-in-syria-mosque-blast-state-media-reports.html
