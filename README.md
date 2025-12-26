@@ -1,3 +1,7 @@
+**Anthony Davis suffers groin injury in Mavericks' Christmas game vs. Warriors**\
+`Davis' injury comes one year after former star Luka Dončić left Dallas' Christmas Day game early with an injury of his own.`\
+https://nytimes.com/athletic/6918936/2025/12/25/anthony-davis-injury-status-groin-mavericks-warriors/
+
 **Trump Announces Strike Against ISIS in Nigeria**\
 `The attack comes after President Trump ordered the Defense Department last month to prepare to intervene militarily in Nigeria to protect Christians from Islamic militants.`\
 https://nytimes.com/2025/12/25/us/politics/trump-isis-nigeria-strike.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6910722/2025/12/25/bruno-fernandes-injury-update-ma
 **Dak Prescott's big day helps Cowboys hold off Commanders: Takeaways**\
 `Prescott threw for 307 yards and two touchdowns as Washington won the NFC East matchup.`\
 https://nytimes.com/athletic/6918734/2025/12/25/cowboys-commanders-score-result-takeaways-nfl-christmas-day/
-
-**Remembering Those Who Died This Year**\
-`We look back at the lives of some of the artists, innovators and thinkers we lost in 2025.`\
-https://nytimes.com/2025/12/25/world/the-lives-they-lived-2025-ukraine-peace-plan-christmas.html
 
