@@ -1,40 +1,41 @@
-**Travis Kelce's final Chiefs home game? His last play Thursday tells us something**\
-`Netflix broadcast cameras followed Kelce closely for his potential final game at Arrowhead Stadium. But will it be?`\
-https://nytimes.com/athletic/6918985/2025/12/26/travis-kelce-chiefs-final-home-game/
+**A College Freshman Is the Unlikely Source of Alabama’s New Political Maps**\
+`Daniel DiDonato, 19, has loved elections since he was in fourth grade. He also loves maps.`\
+https://nytimes.com/2025/12/26/us/alabama-redistricting-maps-college-student.html
 
-**NBA's latest idea to fix the lottery continues to ignore the problem: the lottery**\
-`The NBA continues to try to fix the lottery because the lottery continues to fail at what it's supposed to do.`\
-https://nytimes.com/athletic/6917604/2025/12/26/nba-draft-lottery-problem-solution-tanking/
+**What's the future of bowl games? Bowl Season director talks impact of CFP, opt-outs and more**\
+`Bowl Season director Nick Carparelli explains how bowls can coexist with CFP expansion, if there are too many bowl games and opt-outs.`\
+https://nytimes.com/athletic/6916274/2025/12/26/bowl-season-game-college-football-playoff/
 
-**5 Killed in Syria Mosque Blast, State Media Reports**\
-`No group has claimed responsibility for the blast, which happened on a day when many worshipers typically attend mosques for Friday prayers.`\
-https://nytimes.com/2025/12/26/world/africa/5-killed-in-syria-mosque-blast-state-media-reports.html
+**Harry Brook charging Mitchell Starc first ball was surreal, but was there method to the madness?**\
+`The England batter came in with his team 8-3 on a seaming wicket and decided attack was his best form of defence. It worked — for a while`\
+https://nytimes.com/athletic/6919357/2025/12/26/harry-brook-england-mcg-pitch-australia/
 
-**Can the Bears slow down the 49ers? Best first-round matchup? Mailbag, Week 17 picks**\
-`Can the Bears sustain this success into 2026? Does it matter right now? That leads this week's mailbag, plus our Week 17 picks.`\
-https://nytimes.com/athletic/6918007/2025/12/26/bears-sustain-success-49ers-matchup/
+**Havertz could make Arsenal return within days - Arteta**\
+`The 26-year-old has been absent since August after suffering a knee injury that required surgery.`\
+https://nytimes.com/athletic/6917179/2025/12/26/kai-havertz-injury-update-arsenal/
 
-**An all-around ugly day and Lions left figuring out what went wrong to promising season**\
-`"I think we all need to take a nice, good, long look in the mirror after this,” Dan Skipper said after the Lions' loss to the Vikings.`\
-https://nytimes.com/athletic/6919192/2025/12/26/lions-eliminated-playoffs-vikings-loss/
+**10 best NFL Draft 2026 prospects on non-Playoff teams**\
+`In what's becoming the norm, opt-outs will keep a lot of draft prospects off the field during bowl season.`\
+https://nytimes.com/athletic/6911091/2025/12/26/nfl-draft-2026-prospects-makai-lemon-utah/
 
-**Dave Canales brought some Seattle to Carolina — now Panthers put it to test in huge game**\
-`Canales and offensive coordinator Brad Idzik spent years with the Seahawks under Pete Carroll and learned a lot in the process.`\
-https://nytimes.com/athletic/6918189/2025/12/26/panthers-seahawks-dave-canales-playoffs/
+**Broncos and an unlikely hero score Arrowhead redemption to keep lofty goals in sight**\
+`Alex Forsyth's special teams failure led to a heartbreaking loss at Arrowhead Stadium last year. On Thursday, he left with a game ball.`\
+https://nytimes.com/athletic/6919221/2025/12/26/broncos-chiefs-arrowhead-alex-forsyth-bo-nix/
 
-**Vikings' Harrison Smith produces vintage performance in Christmas win over Lions**\
-`Smith, the veteran safety who could be playing his final games for the Vikings, was a huge part of a dominant defensive performance.`\
-https://nytimes.com/athletic/6919137/2025/12/26/harrison-smith-vikings-vintage-defense-lions-christmas/
+**LeBron James vs. Kevin Durant: Legacy highlighted in potential final Christmas matchup**\
+`James and Durant, after all these years, are still at an All-Star level and are still capable of pulling off amazing feats on the court.`\
+https://nytimes.com/athletic/6919205/2025/12/26/lebron-james-kevin-durant-christmas-lakers-rockets/
 
-**In a lost season, a veteran QB nearing the end showed what competing really means**\
-`The Washington Commanders are going nowhere, but Josh Johnson still brought the best of his 39 years to the field.`\
-https://nytimes.com/athletic/6919085/2025/12/26/josh-johnson-commanders-cowboys-christmas-nfl/
+**Blackhawks must decide how to approach upcoming stretch without Connor Bedard, Frank Nazar**\
+`How can coach Jeff Blashill balance playing well with supporting young players when the team's two young stars will be out for a while?`\
+https://nytimes.com/athletic/6917898/2025/12/26/blackhawks-injuries-blashill-youth-bedard-nazar/
 
-**Are the Spurs already the best team in the NBA?**\
-`Even as Victor Wembanyama finds his way back into the Spurs' system, San Antonio has made a compelling case for top dog in the NBA.`\
-https://nytimes.com/athletic/6918984/2025/12/26/spurs-best-team-nba-thunder/
+**Predicting the World Juniors: Medalists, relegation and top draft-eligible player**\
+`Corey Pronman, Scott Wheeler and Max Bultman form an expert prospect panel to analyze our staff's picks ahead of this year's tournament.
+`\
+https://nytimes.com/athletic/6916692/2025/12/26/hockey-world-juniors-predictions-canada-usa-players/
 
-**No Super Bowl talk at 49ers' offseason gathering. Now they can reach it without leaving home**\
-`San Francisco will have home-field advantage in the playoffs if it beats the Bears and Seahawks. And Super Bowl LX is at Levi's Stadium.`\
-https://nytimes.com/athletic/6918898/2025/12/26/49ers-bears-nfc-top-seed-super-bowl/
+**Where Is All the A.I.-Driven Scientific Progress?**\
+`A tech C.E.O. explains why A.I. probably won’t cure diseases anytime soon. Hint: You still need humans.`\
+https://nytimes.com/2025/12/26/podcasts/hardfork-ai-science.html
 

@@ -1,3 +1,7 @@
+**Which Premier League players are at risk of a yellow-card suspension?**\
+`A player will receive a one-match suspension if they receive a total of five yellow cards by the halfway point of the league season.`\
+https://nytimes.com/athletic/6919489/2025/12/26/premier-league-yellow-cards-who-banned/
+
 **A College Freshman Is the Unlikely Source of Alabama’s New Political Maps**\
 `Daniel DiDonato, 19, has loved elections since he was in fourth grade. He also loves maps.`\
 https://nytimes.com/2025/12/26/us/alabama-redistricting-maps-college-student.html
@@ -14,7 +18,7 @@ https://nytimes.com/athletic/6919357/2025/12/26/harry-brook-england-mcg-pitch-au
 `The 26-year-old has been absent since August after suffering a knee injury that required surgery.`\
 https://nytimes.com/athletic/6917179/2025/12/26/kai-havertz-injury-update-arsenal/
 
-**10 best NFL Draft 2026 prospects on non-Playoff teams**\
+**The 10 best 2026 NFL Draft prospects on non-Playoff teams**\
 `In what's becoming the norm, opt-outs will keep a lot of draft prospects off the field during bowl season.`\
 https://nytimes.com/athletic/6911091/2025/12/26/nfl-draft-2026-prospects-makai-lemon-utah/
 
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6917898/2025/12/26/blackhawks-injuries-blashill-you
 `Corey Pronman, Scott Wheeler and Max Bultman form an expert prospect panel to analyze our staff's picks ahead of this year's tournament.
 `\
 https://nytimes.com/athletic/6916692/2025/12/26/hockey-world-juniors-predictions-canada-usa-players/
-
-**Where Is All the A.I.-Driven Scientific Progress?**\
-`A tech C.E.O. explains why A.I. probably won’t cure diseases anytime soon. Hint: You still need humans.`\
-https://nytimes.com/2025/12/26/podcasts/hardfork-ai-science.html
 
