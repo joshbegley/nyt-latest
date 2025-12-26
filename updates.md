@@ -1,3 +1,7 @@
+**LeBron James vs. Kevin Durant: Legacy highlighted in potential final Christmas matchup**\
+`James and Durant, after all these years, are still at an All-Star level and are still capable of pulling off amazing feats on the court.`\
+https://nytimes.com/athletic/6919205/2025/12/26/lebron-james-kevin-durant-christmas-lakers-rockets/
+
 **Anthony Edwards is making a leap in clutch time for the Timberwolves**\
 `Edwards showed against Denver on Christmas that he's grasping the subtleties of the game in the most important moments.  `\
 https://nytimes.com/athletic/6919114/2025/12/26/anthony-edwards-timberwolves-clutch-time-denver/
