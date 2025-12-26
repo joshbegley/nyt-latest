@@ -1,3 +1,11 @@
+**How to watch Michigan vs. Texas: Citrus Bowl Start Time, TV, streaming**\
+`Find out how to watch the Michigan Wolverines play the Texas Longhorns, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6920435/2025/12/26/michigan-vs-texas-stream-how-to-watch-dec-31/
+
+**Israel Becomes the First Nation to Recognize Somaliland**\
+`The development carries potential benefits for both sides but still faces stiff international opposition, 34 years after the region broke away from Somalia.`\
+https://nytimes.com/2025/12/26/world/middleeast/israel-recognize-somaliland.html
+
 **How to watch 76ers vs. Bulls: Time, TV, streaming**\
 `Find out how to watch the Philadelphia 76ers play the Chicago Bulls, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6920417/2025/12/26/76ers-vs-bulls-stream-how-to-watch-dec-26/
