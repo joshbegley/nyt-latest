@@ -1,3 +1,7 @@
+**Perry Bamonte, Guitarist and Keyboardist in the Cure, Dies at 65**\
+`A former roadie, Mr. Bamonte joined the band in 1990. He played on five albums and in hundreds of shows and was “a vital part of the Cure story,” the band said.`\
+https://nytimes.com/2025/12/26/arts/music/perry-bamonte-dead.html
+
 **Some G.O.P. senators join Democrats in urging Trump to adopt hard line with Putin.**\
 `By Tim Balk`\
 https://nytimes.com/2025/12/26/us/politics/trump-putin-russia-senate-republicans.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/podcasts/100000010606956/the-evolution-of-the-women-in
 **How ‘The Great Gatsby’ Captures the American Dream**\
 `In the final week of the 100th anniversary of “The Great Gatsby,” Wesley Morris, the host of ‘Cannonball,’ talks to the novelist Min Jin Lee and Gilbert Cruz, editor of The New York Times Book Review, about why all three of them have found themselves in a decades-long relationship with this book.`\
 https://nytimes.com/video/podcasts/100000010606902/how-the-great-gatsby-captures-the-american-dream.html
-
-**Winger Orellano on the move from FC Cincinnati to Liga MX's Monterrey**\
-`A key winger is on the move from MLS to Liga MX`\
-https://nytimes.com/athletic/6920429/2025/12/26/orellano-cincinnati-monterrey/
 
