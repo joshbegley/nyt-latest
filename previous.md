@@ -1,3 +1,7 @@
+**The Pulse: NFL clunkers and NBA kryptonite**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6916394/2025/12/26/nfl-christmas-results-the-pulse/
+
 **The Bounce: The Bounce: The Spurs loudly announce their arrival, and Jokić owns Christmas**\
 `The Bounce Newsletter  | This is The Athletic’s daily NBA newsletter.`\
 https://nytimes.com/athletic/6919697/2025/12/26/spurs-wembanyama-nuggets-jokic-christmas-nba-the-bounce/
@@ -33,8 +37,4 @@ https://nytimes.com/video/the-athletic/100000010610093/top-highlights-from-a-sta
 **Diogo Jota's sons to be mascots for Liverpool vs Wolves**\
 `Jota played for both clubs during his time in English football.`\
 https://nytimes.com/athletic/6919536/2025/12/26/liverpool-diogo-jota-sons-mascots-wolves/
-
-**Klay Thompson faced the Warriors again on Christmas. It didn't make a splash**\
-`The day was supposed to be about Klay. But Golden State had other things on its mind, and the sentimentality barely registered.`\
-https://nytimes.com/athletic/6919481/2025/12/26/klay-thompson-warriors-mavericks-christmas/
 
