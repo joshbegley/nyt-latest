@@ -1,3 +1,7 @@
+**Facts Clash With Trump Claim of Hitting ISIS and Shielding Nigerian Christians**\
+`President Trump said the targets of airstrikes in Nigeria were Islamic State terrorists responsible for killing Christians, but experts question his framing.`\
+https://nytimes.com/2025/12/26/world/africa/trump-isis-strikes-nigeria-christians-facts.html
+
 **Ham Yesterday Means Ham and Bean Soup Today**\
 `This classic, comforting, stick-to-your-ribs soup makes the most of your holiday ham leftovers (especially if you have a ham bone or hock).`\
 https://nytimes.com/2025/12/26/dining/ham-yesterday-means-ham-and-bean-soup-today.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/26/nyregion/stabbing-cvs-christmas-lindenhurst.html
 **Ex-Utah coach Kyle Whittingham emerges as focus of Michigan search: Source**\
 `Whittingham, 66, stepped down Dec. 12 after 21 seasons at Utah but made it known that he wasn’t done coaching.`\
 https://nytimes.com/athletic/6919643/2025/12/26/michigan-kyle-whittingham-head-coaching-search/
-
-**Canucks trade tiers: Ranking every player by market value entering 2026**\
-`The Canucks aren't just the NHL's 31st-placed team by point percentage — their hockey holdings are notably illiquid.`\
-https://nytimes.com/athletic/6915875/2025/12/26/vancouver-canucks-trade-tiers-2026/
 
