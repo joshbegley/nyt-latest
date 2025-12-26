@@ -1,3 +1,7 @@
+**Harry Redknapp's horse wins King George in photo finish**\
+`The Jukebox Man — ridden by Ben Jones and trained by Ben Pauling — beat 2024 winner Banbridge and joint-favourite Gaelic Warrior by a nose.`\
+https://nytimes.com/athletic/6919877/2025/12/26/harry-redknapp-horse-racing-win-king-george/
+
 **Why Sears’s Last Great Hope Was a Promise That Never Materialized**\
 `Only five Sears stores remain in the country, with the end likely near for what was once the mightiest American retailer.`\
 https://nytimes.com/2025/12/26/business/sears-seritage-edward-lampert.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/26/opinion/culture/hamnet-loss-grief.html
 **These Deodorants Stood Up to Our Sweatiest, Most Stress-Filled Days (and Nights)**\
 `Text by Abbie Kozolchyk`\
 https://nytimes.com/card/2025/12/26/smarter-living/wirecutter/
-
-**Five Action Movies to Stream Now**\
-`This month’s picks include a World War I revenge tale, a vampire superhero and female assassins.`\
-https://nytimes.com/2025/12/26/movies/action-movies-streaming.html
 
