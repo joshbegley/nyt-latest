@@ -1,3 +1,11 @@
+**Nicolas Cage to star as John Madden in upcoming “Madden” biopic**\
+`Nicolas Cage and Christian Bale will bring football legends John Madden and Al Davis to life in Amazon MGM’s upcoming biopic.`\
+https://nytimes.com/athletic/6920292/2025/12/26/nicolas-cage-john-madden-movie-teaser/
+
+**Trump Invited White South Africans to America. One Ended Up in Detention.**\
+`An Afrikaner flew to the United States expecting protection. Instead, he has spent months locked up in Georgia alongside hundreds of other immigrants.`\
+https://nytimes.com/2025/12/26/us/trump-afrikaner-ice.html
+
 **Ohio University promotes defensive coordinator John Hauser to head coach**\
 `Hauser was hired after Ohio fired Brian Smith for-cause earlier this month.`\
 https://nytimes.com/athletic/6920088/2025/12/26/ohio-football-hires-john-hauser-coach/
