@@ -1,3 +1,11 @@
+**Mavs' Anthony Davis expected to miss multiple games with strained groin**\
+`Dallas has posted a 4-12 record in games Anthony Davis has been unable to play.`\
+https://nytimes.com/athletic/6920259/2025/12/26/mavericks-anthony-davis-injury-update-groin-strain/
+
+**Wrexham score five for first time in second tier with comeback win against Sheffield United**\
+`The Welsh side came into the fixture without a win in five games yet managed to find a victory after going 3-1 down in the first half. `\
+https://nytimes.com/athletic/6920317/2025/12/26/wrexham-championship-record-five-sheffield-utd/
+
 **Nicolas Cage to star as John Madden in upcoming “Madden” biopic**\
 `Nicolas Cage and Christian Bale will bring football legends John Madden and Al Davis to life in Amazon MGM’s upcoming biopic.`\
 https://nytimes.com/athletic/6920292/2025/12/26/nicolas-cage-john-madden-movie-teaser/
@@ -29,12 +37,4 @@ https://nytimes.com/newsgraphics/card-story/panettone-pandoro
 **gws-lobster-trap-christmas-trees**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/lobster-trap-christmas-trees
-
-**Mexican authorities seize drugs, medals linked to former Olympian wanted by FBI**\
-`Officials did not name Ryan Wedding, but said the raids “are linked to a former Olympic athlete" who is a fugitive wanted by the US.`\
-https://nytimes.com/athletic/6919913/2025/12/26/ryan-wedding-fbi-fugitive-mexico-raids/
-
-**Should Colleges End Early Decision?**\
-`Readers respond to a guest essay arguing that it is an unfair “racket. Also: An attack on climate research and safety; the value of immigrants to America.`\
-https://nytimes.com/2025/12/26/opinion/colleges-early-decision-fairness.html
 

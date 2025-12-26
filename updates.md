@@ -1,3 +1,11 @@
+**Mavs' Anthony Davis expected to miss multiple games with strained groin**\
+`Dallas has posted a 4-12 record in games Anthony Davis has been unable to play.`\
+https://nytimes.com/athletic/6920259/2025/12/26/mavericks-anthony-davis-injury-update-groin-strain/
+
+**Wrexham score five for first time in second tier with comeback win against Sheffield United**\
+`The Welsh side came into the fixture without a win in five games yet managed to find a victory after going 3-1 down in the first half. `\
+https://nytimes.com/athletic/6920317/2025/12/26/wrexham-championship-record-five-sheffield-utd/
+
 **Nicolas Cage to star as John Madden in upcoming “Madden” biopic**\
 `Nicolas Cage and Christian Bale will bring football legends John Madden and Al Davis to life in Amazon MGM’s upcoming biopic.`\
 https://nytimes.com/athletic/6920292/2025/12/26/nicolas-cage-john-madden-movie-teaser/
