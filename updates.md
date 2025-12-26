@@ -1,3 +1,7 @@
+**Why ‘The Great Gatsby’ is Worth Re-reading**\
+`In the final week of the 100th anniversary of “The Great Gatsby,” Wesley Morris, the host of ‘Cannonball,’ talks to the novelist Min Jin Lee and Gilbert Cruz, editor of The New York Times Book Review, about why all three of them have found themselves in a decades-long relationship with this book.`\
+https://nytimes.com/video/podcasts/100000010606974/why-the-great-gatsby-is-worth-re-reading.html
+
 **Predicting the World Juniors: Medalists, relegation and top draft-eligible player**\
 `Corey Pronman, Scott Wheeler and Max Bultman form an expert prospect panel to analyze our staff's picks ahead of this year's tournament.
 `\
