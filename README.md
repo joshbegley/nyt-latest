@@ -31,7 +31,7 @@ https://nytimes.com/athletic/6916394/2025/12/26/nfl-christmas-results-the-pulse/
 https://nytimes.com/athletic/6919697/2025/12/26/spurs-wembanyama-nuggets-jokic-christmas-nba-the-bounce/
 
 **CVS Worker Fatally Stabbed on Christmas Day on Long Island**\
-`A 23-year-old CVS employee was killed on Thursday in Lindenhurst, the authorities said. Police are searching for a suspect in his 40s who fled on foot.`\
+`A 23-year-old CVS employee was killed on Thursday in Lindenhurst, the authorities said. Police were searching for a suspect in his 40s who fled on foot.`\
 https://nytimes.com/2025/12/26/nyregion/stabbing-cvs-christmas-lindenhurst.html
 
 **Ex-Utah coach Kyle Whittingham emerges as focus of Michigan search: Source**\
