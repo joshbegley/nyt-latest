@@ -2,8 +2,8 @@
 `A former roadie, Mr. Bamonte joined the band in 1990. He played on five albums and in hundreds of shows and was “a vital part of the Cure story,” the band said.`\
 https://nytimes.com/2025/12/26/arts/music/perry-bamonte-dead.html
 
-**Some G.O.P. senators join Democrats in urging Trump to adopt hard line with Putin.**\
-`By Tim Balk`\
+**Some G.O.P. Senators Join Democrats in Urging Trump to Adopt Hard Line With Putin**\
+`The president is planning to meet with the leader of Ukraine in Florida just as the lawmakers are applying some pressure.`\
 https://nytimes.com/2025/12/26/us/politics/trump-putin-russia-senate-republicans.html
 
 **Jordan Love ruled out, Packers will start Malik Willis Saturday vs. the Ravens**\
