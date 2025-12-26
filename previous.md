@@ -1,40 +1,40 @@
+**Myanmar’s Civil War Pushes Infectious Disease Over Its Borders**\
+`Fighting has caused the spread of illnesses like malaria and cholera. In a worst-case scenario, the situation could threaten regional health security, experts say.`\
+https://nytimes.com/2025/12/26/world/asia/myanmar-conflict-health-crisis.html
+
+**Quote of the Day: Estonia’s Star-Spangled Courting of Capitol Hill**\
+`Quotation of the Day for Thursday, December 26, 2025.`\
+https://nytimes.com/2025/12/26/pageoneplus/quote-of-the-day-estonias-star-spangled-courting-of-capitol-hill.html
+
+**Connections: Sports Edition Coach: Hints for Dec. 26, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6919104/2025/12/26/connections-sports-edition-hints-for-dec-26-2025/
+
+**From Designing Clothes for Children to a Wedding of Bows and Tinsel**\
+`Susanna Treacy and Nicholas Wiegand, who were both designers at babyGap, saw their casual elevator chats at work slowly turn into more after an unexpected night out in Brooklyn.`\
+https://nytimes.com/2025/12/26/style/susanna-treacy-nicholas-wiegand-wedding.html
+
+**From Cuddling to Cold Shoulder and Back Again (and Again)**\
+`We talked about our ideal wedding on our third date. That was probably too soon.`\
+https://nytimes.com/2025/12/26/style/modern-love-from-cuddling-to-cold-and-back-again-and-again.html
+
+**From Pariah to Power: The Hindu Right’s 100-Year Quest to Reshape India**\
+`The far right juggernaut known as the R.S.S. and its most prominent member, Prime Minister Narendra Modi, are remaking secular India as a Hindu-first society, pushing aside minorities.`\
+https://nytimes.com/2025/12/26/world/asia/india-hindu-right-rss-modi.html
+
+**He Asked for Five More Dates Before the First One Ended**\
+`A long-distance start and a fateful coincidence led Brandon Begin, a BMX rider, and Sara Crisman to wedding celebrations in Paris and New York.`\
+https://nytimes.com/2025/12/26/style/sara-crisman-brandon-begin-wedding.html
+
+**They Matched Twice. The Second Time Changed Everything.**\
+`Rich Ferraro wasn’t sure that marriage was for him until he matched with David Mansur — and rediscovered a screenshot from their first match two years earlier.`\
+https://nytimes.com/2025/12/26/style/david-mansur-rich-ferraro-wedding.html
+
+**5 Key Moments in the Rise of India’s Hindu-First Powerhouse**\
+`The Rashtriya Swayamsevak Sangh, known as the R.S.S., has survived bans and vilification to emerge as the force reshaping India’s secular republic into a Hindu nation.`\
+https://nytimes.com/2025/12/26/world/asia/5-key-moments-in-the-rise-of-indias-hindu-first-powerhouse.html
+
 **Bo Nix, Broncos escape depleted Chiefs to stay on track for AFC's top seed: Takeaways**\
 `Bo Nix's late touchdown pass gave the Broncos a win at Arrowhead Stadium, where Travis Kelce may have played his last home game.`\
 https://nytimes.com/athletic/6919098/2025/12/25/broncos-chiefs-takeaways-denver-escapes-k-c-to-stay-on-track-for-afcs-top-seed/
-
-**Death Toll in UPS Plane Crash Rises to 15**\
-`Alain Rodriguez Colina, who was injured when a cargo plane crashed into his Kentucky workplace more than a month ago, died on Christmas Day.`\
-https://nytimes.com/2025/12/25/us/ups-plane-crash-louisville-kentucky.html
-
-**Austin Reaves exits Lakers' Christmas Day game, set for MRI on left calf**\
-`Reaves will undergo a MRI on the calf Friday, according to a league source.`\
-https://nytimes.com/athletic/6919111/2025/12/25/austin-reaves-lakers-calf-christmas-game-mri/
-
-**Stick by a Fireplace**\
-`Andrew Spooner makes his New York Times Crossword debut.`\
-https://nytimes.com/2025/12/25/crosswords/daily-puzzle-2025-12-26.html
-
-**Trump Administration Emphasizes Religion in Official Christmas Messages**\
-`Government officials have traditionally steered clear of such overtly religious language, as the Constitution prohibits the establishment of an official state religion.`\
-https://nytimes.com/2025/12/25/admin/trump-administration-religion-christmas.html
-
-**Lamar Jackson doubtful for Saturday's must-win game for the Ravens**\
-`If Jackson doesn't play, it would be the fourth game he has missed this season. `\
-https://nytimes.com/athletic/6918866/2025/12/25/lamar-jackson-ravens-injury-designation/
-
-**Cowboys' Christmas Day win should be Dak Prescott's last game of season**\
-`The Cowboys have a chance to finish .500 with a win next week. Should Dallas play Prescott or turn it over to backup Joe Milton?`\
-https://nytimes.com/athletic/6918947/2025/12/25/cowboys-christmas-win-dak-prescott/
-
-**Vikings defense forces 6 turnovers in 23-10 win, ending Lions' playoff hopes: Takeaways**\
-`The Vikings defense sacked Jared Goff five times and forced six turnovers in a 23-10 win that knocked the Lions out of playoff contention.`\
-https://nytimes.com/athletic/6918809/2025/12/25/lions-vikings-score-result-takeaways-nfl-christmas-day/
-
-**The Commanders needed a spark against the Cowboys, and Bill was due**\
-`Playing behind a depleted Commanders offensive line, the rookie known as Bill took on a leading role.`\
-https://nytimes.com/athletic/6918942/2025/12/25/bill-croskey-merritt-commanders-cowboys-christmas/
-
-**Packers clinch playoff berth with Vikings' win over Lions on Christmas**\
-`The Packers have now made the playoffs in each of Jordan Love’s three seasons as their starting quarterback.`\
-https://nytimes.com/athletic/6918893/2025/12/25/packers-clinch-playoff-berth-lions-loss/
 
