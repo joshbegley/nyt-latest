@@ -1,3 +1,7 @@
+**gws-panettone-pandoro**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/panettone-pandoro
+
 **gws-lobster-trap-christmas-trees**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/lobster-trap-christmas-trees
