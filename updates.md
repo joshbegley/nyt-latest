@@ -1,3 +1,7 @@
+**Trump Announces Strike Against ISIS in Nigeria**\
+`The attack comes after President Trump ordered the Defense Department last month to prepare to intervene militarily in Nigeria to protect Christians from Islamic militants.`\
+https://nytimes.com/2025/12/25/us/politics/trump-isis-nigeria-strike.html
+
 **Why Steph Curry is wearing Klay Thompson's signature shoe on Christmas**\
 `Curry is currently a sneaker free agent after parting ways with Under Armour earlier this year. `\
 https://nytimes.com/athletic/6918849/2025/12/25/steph-curry-shoes-klay-thompson-warriors-mavericks-christmas/
