@@ -1,3 +1,19 @@
+**What Can Hundreds of Pieces of Litter Tell Us About Manhattan?**\
+`Shoes. A phone. Receipts. A comb. Traces of wild nights and hurried days are all around us.`\
+https://nytimes.com/2025/12/26/nyregion/nyc-litter.html
+
+**Flu Cases Climb to Highest Levels in New York City in a Decade**\
+`The number of patients going to hospital emergency rooms with flulike symptoms has soared.`\
+https://nytimes.com/2025/12/26/nyregion/nyc-flu-cases.html
+
+**With Help of Lina Khan, Mamdani Looks to Quickly Cut Costs for New Yorkers**\
+`Mayor-elect Zohran Mamdani’s signature plans for New York City will take time. Lina Khan, the former chair of the Federal Trade Commission, has ideas for making a swift impact.`\
+https://nytimes.com/2025/12/26/nyregion/lina-khan-mamdani-affordability-new-york-city.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/12/26/crosswords/spelling-bee-forum.html
+
 **LawConnect defies owner’s faith again with fast start to Sydney Hobart race**\
 `Christian Beck has described his yacht as a 's**t box' but thanks to his crew, they have made a fine start to the Sydney-Hobart race`\
 https://nytimes.com/athletic/6919237/2025/12/26/sydney-hobart-race-law-connect/

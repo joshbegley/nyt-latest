@@ -1,3 +1,19 @@
+**What Can Hundreds of Pieces of Litter Tell Us About Manhattan?**\
+`Shoes. A phone. Receipts. A comb. Traces of wild nights and hurried days are all around us.`\
+https://nytimes.com/2025/12/26/nyregion/nyc-litter.html
+
+**Flu Cases Climb to Highest Levels in New York City in a Decade**\
+`The number of patients going to hospital emergency rooms with flulike symptoms has soared.`\
+https://nytimes.com/2025/12/26/nyregion/nyc-flu-cases.html
+
+**With Help of Lina Khan, Mamdani Looks to Quickly Cut Costs for New Yorkers**\
+`Mayor-elect Zohran Mamdani’s signature plans for New York City will take time. Lina Khan, the former chair of the Federal Trade Commission, has ideas for making a swift impact.`\
+https://nytimes.com/2025/12/26/nyregion/lina-khan-mamdani-affordability-new-york-city.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/12/26/crosswords/spelling-bee-forum.html
+
 **LawConnect defies owner’s faith again with fast start to Sydney Hobart race**\
 `Christian Beck has described his yacht as a 's**t box' but thanks to his crew, they have made a fine start to the Sydney-Hobart race`\
 https://nytimes.com/athletic/6919237/2025/12/26/sydney-hobart-race-law-connect/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6881386/2025/12/26/aston-villa-january-transfer-pla
 **How to watch USC vs. TCU: Alamo Bowl Start Time, TV, streaming**\
 `Find out how to watch the USC Trojans play the TCU Horned Frogs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6919328/2025/12/26/usc-vs-tcu-stream-how-to-watch-dec-30/
-
-**Arsenal's January Transfer DealSheet: Latest on plans and possible exits**\
-`Arsenal lead the Premier League after a summer of extensive strengthening — what will ensue in January?`\
-https://nytimes.com/athletic/6911433/2025/12/26/arsenal-transfer-january-window-latest/
-
-**Liverpool's January Transfer DealSheet: Latest on Marc Guehi and Antoine Semenyo interest**\
-`Liverpool have had a difficult start to the season and are struggling with injuries`\
-https://nytimes.com/athletic/6913487/2025/12/26/liverpool-transfer-january-window-latest/
-
-**MLS Transfer DealSheet: Latest on what your club is planning in winter window**\
-`The winter window is important in MLS — here's what to expect from it`\
-https://nytimes.com/athletic/6916629/2025/12/26/mls-transfer-dealsheet-2026-inter-miami-lewandowski-chicago-fire/
-
-**Wrexham's January Transfer DealSheet: Will there be more player turnover in January after recent spending?**\
-`Wrexham have been incredibly active in the transfer market over the past few seasons. What does this mean for January?`\
-https://nytimes.com/athletic/6854637/2025/12/26/wrexham-transfers-january-2026/
 
