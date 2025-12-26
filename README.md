@@ -1,3 +1,11 @@
+**This May Be Our Last Chance to Get It Right in Venezuela**\
+`For the past decade, every administration in Washington has said Venezuela represents an extraordinary threat to the United States.`\
+https://nytimes.com/2025/12/26/opinion/venezuela-america-maduro-security-strategy.html
+
+**The New York Times in Print for Friday, Dec. 26, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/12/26/todays-new-york-times
+
 **The Prospects: Tyler Fletcher**\
 `While all attention was on twin Jack at Villa Park, The Athletic went to Tamworth to watch Tyler Fletcher in the National League Cup`\
 https://nytimes.com/athletic/6913731/2025/12/26/the-prospects-tyler-fletcher-manchester-united/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6911017/2025/12/26/football-through-generations-par
 **What happens to the teams who top the Premier League at Christmas?**\
 `For the third time in four seasons, Arsenal are top at Christmas – can they finally turn that into a Premier League title?`\
 https://nytimes.com/athletic/6917048/2025/12/26/top-premier-league-christmas/
-
-**The story of Futbology – the app that allows football fans to tick off stadiums**\
-`Be warned: if this convinces you to get involved, the Futbology mindset is not just for Christmas, it’s for life`\
-https://nytimes.com/athletic/6902663/2025/12/26/futbology-football-fandom-travel/
-
-**Myanmar’s Civil War Pushes Infectious Disease Over Its Borders**\
-`Fighting has caused the spread of illnesses like malaria and cholera. In a worst-case scenario, the situation could threaten regional health security, experts say.`\
-https://nytimes.com/2025/12/26/world/asia/myanmar-conflict-health-crisis.html
 
