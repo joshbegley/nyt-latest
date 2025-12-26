@@ -1,3 +1,11 @@
+**Michal Urbaniak, Pioneering Jazz Fusion Violinist, Dies at 82**\
+`One of the first jazz musicians from Poland to gain an international following, he recorded more than 60 albums and played with stars like Miles Davis.`\
+https://nytimes.com/2025/12/26/arts/music/michal-urbaniak-dead.html
+
+**The Most Inspiring Homes We Visited in 2025**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/favorite-house-stories
+
 **The 40 Best Illustrations of 2025**\
 `The most memorable illustrations of the year, chosen by art directors at The New York Times.`\
 https://nytimes.com/2025/12/26/arts/year-in-illustration.html
