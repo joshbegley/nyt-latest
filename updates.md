@@ -1,3 +1,7 @@
+**Bo Nix, Broncos escape depleted Chiefs to stay on track for AFC's top seed: Takeaways**\
+`Bo Nix's late touchdown pass gave the Broncos a win at Arrowhead Stadium, where Travis Kelce may have played his last home game.`\
+https://nytimes.com/athletic/6919098/2025/12/25/broncos-chiefs-takeaways-denver-escapes-k-c-to-stay-on-track-for-afcs-top-seed/
+
 **Death Toll in UPS Plane Crash Rises to 15**\
 `Alain Rodriguez Colina, who was injured when a cargo plane crashed into his Kentucky workplace more than a month ago, died on Christmas Day.`\
 https://nytimes.com/2025/12/25/us/ups-plane-crash-louisville-kentucky.html
