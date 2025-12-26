@@ -1,3 +1,11 @@
+**Death Toll in UPS Plane Crash Rises to 15**\
+`Alain Rodriguez Colina, who was injured when a cargo plane crashed into his workplace more than a month ago, died on Christmas Day.`\
+https://nytimes.com/2025/12/25/us/ups-plane-crash-louisville-kentucky.html
+
+**Austin Reaves exits Lakers' Christmas Day game, set for MRI on left calf**\
+`Reaves will undergo a MRI on the calf Friday, according to a league source.`\
+https://nytimes.com/athletic/6919111/2025/12/25/austin-reaves-lakers-calf-christmas-game-mri/
+
 **Stick by a Fireplace**\
 `Andrew Spooner makes his New York Times Crossword debut.`\
 https://nytimes.com/2025/12/25/crosswords/daily-puzzle-2025-12-26.html
