@@ -1,3 +1,11 @@
+**5 Killed in Syria Mosque Blast, State Media Reports**\
+`No group has claimed responsibility for the blast, which happened on a day when many worshipers typically attend mosques for Friday prayers.`\
+https://nytimes.com/2025/12/26/world/africa/5-killed-in-syria-mosque-blast-state-media-reports.html
+
+**Can the Bears slow down the 49ers? Best first-round matchup? Mailbag, Week 17 picks**\
+`Can the Bears sustain this success into 2026? Does it matter right now? That leads this week's mailbag, plus our Week 17 picks.`\
+https://nytimes.com/athletic/6918007/2025/12/26/bears-sustain-success-49ers-matchup/
+
 **An all-around ugly day and Lions left figuring out what went wrong to promising season**\
 `"I think we all need to take a nice, good, long look in the mirror after this,” Dan Skipper said after the Lions' loss to the Vikings.`\
 https://nytimes.com/athletic/6919192/2025/12/26/lions-eliminated-playoffs-vikings-loss/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6916104/2025/12/26/nhl-trade-board-matchmaker-march
 **Ranking 2025's F1 rookie class in a changing-of-the-guard season**\
 `F1 had a bumper crop of rookie drivers in the 2025 season. Here's how they performed and we ranked them`\
 https://nytimes.com/athletic/6903218/2025/12/26/f1-2025-rookie-driver-rankings/
-
-**Giants' offensive line injuries increase risk for Jaxson Dart in final 2 games**\
-`The Giants' offensive line had stayed mostly healthy this season, until two starting linemen had to leave Sunday's game with injuries.`\
-https://nytimes.com/athletic/6916080/2025/12/26/giants-offensive-line-injuries-jaxson-dart/
-
-**Frustration spills over as JJ Redick says stumbling Lakers 'don’t care enough right now'**\
-`"Tonight we were a terrible basketball team," Redick said after Thursday’s 119-96 loss to Houston, a third-straight blowout defeat.`\
-https://nytimes.com/athletic/6919252/2025/12/26/lakers-lose-jj-redick-frustration/
 
