@@ -1,3 +1,7 @@
+**Jerry Jones critical of Cowboys' scheme and defensive coaching Jerry Jones critical of Cowboys' scheme and defensive coaching despite win**\
+`Jones was pleased with Dallas' road win at Washington, but remains unhappy with the way the defense has played.`\
+https://nytimes.com/athletic/6920090/2025/12/26/jerry-jones-cowboys-defense-criticism/
+
 **Michal Urbaniak, Pioneering Jazz Fusion Violinist, Dies at 82**\
 `One of the first jazz musicians from Poland to gain an international following, he recorded more than 60 albums and played with stars like Miles Davis.`\
 https://nytimes.com/2025/12/26/arts/music/michal-urbaniak-dead.html
