@@ -1,3 +1,11 @@
+**This May Be Our Last Chance to Get It Right in Venezuela**\
+`For the past decade, every administration in Washington has said Venezuela represents an extraordinary threat to the United States.`\
+https://nytimes.com/2025/12/26/opinion/venezuela-america-maduro-security-strategy.html
+
+**The New York Times in Print for Friday, Dec. 26, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/12/26/todays-new-york-times
+
 **The Prospects: Tyler Fletcher**\
 `While all attention was on twin Jack at Villa Park, The Athletic went to Tamworth to watch Tyler Fletcher in the National League Cup`\
 https://nytimes.com/athletic/6913731/2025/12/26/the-prospects-tyler-fletcher-manchester-united/
