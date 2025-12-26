@@ -2,7 +2,7 @@
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6916394/2025/12/26/nfl-christmas-results-the-pulse/
 
-**The Bounce: The Bounce: The Spurs loudly announce their arrival, and Jokić owns Christmas**\
+**The Bounce: The Spurs loudly announce their arrival, and Jokić owns Christmas**\
 `The Bounce Newsletter  | This is The Athletic’s daily NBA newsletter.`\
 https://nytimes.com/athletic/6919697/2025/12/26/spurs-wembanyama-nuggets-jokic-christmas-nba-the-bounce/
 
