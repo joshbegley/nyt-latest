@@ -1,3 +1,11 @@
+**Patriots place Mack Hollins on IR, putting playoff availability in doubt**\
+`Mack Hollins' IR designation means he will miss at least four games, with the earliest chance to return in the AFC Championship Game.`\
+https://nytimes.com/athletic/6921899/2025/12/27/patriots-mack-hollins-injured-reserve/
+
+**On this day 25 years ago, Mario Lemieux stated his case as only he could**\
+`Lemieux's return to the NHL on Dec. 27, 2000, after a nearly four years away from the game, may have changed his legacy.`\
+https://nytimes.com/athletic/6921315/2025/12/27/mario-lemieux-penguins-nhl-legacy/
+
 **Raiders' Maxx Crosby expected to need knee surgery: Source**\
 `The Raiders announced that they were placing the five-time Pro Bowler on injured reserve Saturday, ending his season with two games to go.`\
 https://nytimes.com/athletic/6921862/2025/12/27/maxx-crosby-knee-surgery-raiders-out-season/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6921726/2025/12/27/avalanche-vs-golden-knights-stre
 **How to watch Ducks vs. Kings: Time, TV, streaming**\
 `Find out how to watch the Anaheim Ducks play the Los Angeles Kings, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6921724/2025/12/27/ducks-vs-kings-stream-how-to-watch-dec-27/
-
-**How to watch Oilers vs. Flames: Time, TV, streaming**\
-`Find out how to watch the Edmonton Oilers play the Calgary Flames, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6921722/2025/12/27/oilers-vs-flames-stream-how-to-watch-dec-27/
-
-**Cubs reach agreement with reliever Hunter Harvey: Sources**\
-`The Cubs are hoping to capitalize on an upside play with Harvey, who has dealt with injuries but has excellent stuff when healthy.`\
-https://nytimes.com/athletic/6921585/2025/12/27/chicago-cubs-hunter-harvey/
 

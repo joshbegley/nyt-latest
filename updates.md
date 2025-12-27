@@ -1,3 +1,11 @@
+**Patriots place Mack Hollins on IR, putting playoff availability in doubt**\
+`Mack Hollins' IR designation means he will miss at least four games, with the earliest chance to return in the AFC Championship Game.`\
+https://nytimes.com/athletic/6921899/2025/12/27/patriots-mack-hollins-injured-reserve/
+
+**On this day 25 years ago, Mario Lemieux stated his case as only he could**\
+`Lemieux's return to the NHL on Dec. 27, 2000, after a nearly four years away from the game, may have changed his legacy.`\
+https://nytimes.com/athletic/6921315/2025/12/27/mario-lemieux-penguins-nhl-legacy/
+
 **Raiders' Maxx Crosby expected to need knee surgery: Source**\
 `The Raiders announced that they were placing the five-time Pro Bowler on injured reserve Saturday, ending his season with two games to go.`\
 https://nytimes.com/athletic/6921862/2025/12/27/maxx-crosby-knee-surgery-raiders-out-season/
