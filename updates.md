@@ -1,3 +1,7 @@
+**Wood will be back for Forest within 'weeks' of surgery, Dyche hopes**\
+`The New Zealand international has been sidelined since mid-October with a knee issue after scoring 20 Premier League goals last season.`\
+https://nytimes.com/athletic/6921286/2025/12/27/chris-wood-nottingham-forest-surgery-update/
+
 **Charlotte FC to sign USMNT midfielder Luca de la Torre**\
 `De La Torre joins on a permanent deal. He spent 2025 on loan at San Diego FC in Major League Soccer.`\
 https://nytimes.com/athletic/6921271/2025/12/27/charlotte-fc-transfer-sign-luca-de-la-torre/
