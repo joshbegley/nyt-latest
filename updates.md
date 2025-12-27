@@ -1,3 +1,7 @@
+**Sesame Scallion Buns, and More Savory Bakes**\
+`Because I’m sugared out, but I still want the warmth and aroma of golden dough baking in the oven.`\
+https://nytimes.com/2025/12/27/dining/sesame-scallion-buns-and-more-savory-bakes.html
+
 **Back to school: Joe Mazzulla wants young team to keep learning at 'Celtic University'**\
 `Recognizing he couldn’t coach his new, much younger team the same way, Mazzulla tweaked some details of how his players receive information.`\
 https://nytimes.com/athletic/6920853/2025/12/27/joe-mazzulla-keep-learning-celtic-university/

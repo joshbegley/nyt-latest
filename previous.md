@@ -1,3 +1,7 @@
+**Sesame Scallion Buns, and More Savory Bakes**\
+`Because I’m sugared out, but I still want the warmth and aroma of golden dough baking in the oven.`\
+https://nytimes.com/2025/12/27/dining/sesame-scallion-buns-and-more-savory-bakes.html
+
 **Back to school: Joe Mazzulla wants young team to keep learning at 'Celtic University'**\
 `Recognizing he couldn’t coach his new, much younger team the same way, Mazzulla tweaked some details of how his players receive information.`\
 https://nytimes.com/athletic/6920853/2025/12/27/joe-mazzulla-keep-learning-celtic-university/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6920337/2025/12/27/blue-jackets-jet-greaves-john-da
 **Eagles-Bills Super Bowl preview? Plus, Saquon Barkley calls Nick Sirianni NFL's best coach**\
 `This matchup between two Super Bowl favorites has been anticipated all season.`\
 https://nytimes.com/athletic/6920677/2025/12/27/eagles-bills-prediction-super-bowl-preview/
-
-**Injuries mount on Bills' defense, questions at WR remain ahead of Eagles matchup**\
-`The Bills will be facing a potent offense and run defense when they host the defending Super Bowl champion Eagles on Sunday.`\
-https://nytimes.com/athletic/6920325/2025/12/27/bills-eagles-injuries-defense/
 
