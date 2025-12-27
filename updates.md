@@ -1,3 +1,7 @@
+**Karoline Leavitt Says She’s Expecting Her Second Child**\
+`The White House press secretary announced on Instagram that she was pregnant with a daughter who is due in May. She and her husband have a 1-year-old son.`\
+https://nytimes.com/2025/12/26/us/karoline-leavitt-says-shes-expecting-her-second-child.html
+
 **Kennedy Center Chief Threatens Legal Action Over Canceled Christmas Concert**\
 `The musician Chuck Redd called off the annual Christmas Eve performances after the Kennedy Center board added President Trump’s name to the performing arts center.`\
 https://nytimes.com/2025/12/27/us/kennedy-center-concert-lawsuit.html
