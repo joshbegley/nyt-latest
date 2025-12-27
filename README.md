@@ -1,3 +1,7 @@
+**Here are all the ways rich schools are getting around the college football spending cap**\
+`The revenue-sharing salary cap is a boon to plenty of schools. For the richest ones, workarounds are already in play.`\
+https://nytimes.com/athletic/6914668/2025/12/27/college-nil-revenue-sharing-house-settlement-coaches/
+
 **Good Calls**\
 `This week, we close out the year with your best advice of 2025.`\
 https://nytimes.com/2025/12/27/briefing/good-calls.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/27/crosswords/connections-companion-931.html
 **Strands Sidekick No. 665**\
 `Scroll down for hints and conversation about the puzzle for Sunday, Dec. 28, 2025.`\
 https://nytimes.com/2025/12/27/crosswords/strands-sidekick-665.html
-
-**Wordle Review No. 1,653**\
-`Scroll down for hints and conversation about the puzzle for Sunday, Dec. 28, 2025.`\
-https://nytimes.com/2025/12/27/crosswords/wordle-review-1653.html
 
