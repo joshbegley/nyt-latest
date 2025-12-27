@@ -1,3 +1,7 @@
+**Which NFL players are nearing contract incentives in Week 17?**\
+`If there's one player who has extra incentive to see his team's playoff seeding set by the end of Monday night, it's Mac Jones.`\
+https://nytimes.com/athletic/6921635/2025/12/27/stefon-diggs-2025-nfl-contract-incentives/
+
 **Mickey Lee, a Contestant on ‘Big Brother,’ Dies at 35**\
 `Ms. Lee, a party host in Atlanta, died from multiple cardiac arrests brought on by the flu, according to a social media post.`\
 https://nytimes.com/2025/12/27/arts/television/mickey-lee-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/27/arts/tyler-perry-mario-rodriguez-sexual-assault-l
 **The Briefing: Chelsea 1 Aston Villa 2 - How did Emery's subs change the game? Does Garnacho deserve Maresca's faith?**\
 `We analyse the talking points from Stamford Bridge as Aston Villa came from behind to extend their winning run to eight matches`\
 https://nytimes.com/athletic/6919601/2025/12/27/chelsea-1-aston-villa-2-maresca-emery-watkins-garnacho/
-
-**How Oil, Drugs and Immigration Fueled Trump’s Venezuela Campaign**\
-`New details of deliberations show how aides with overlapping agendas drove the United States toward a militarized confrontation with Venezuela.`\
-https://nytimes.com/2025/12/27/us/politics/venezuela-trump-maduro-oil-boat-strikes-immigration.html
 
