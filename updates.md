@@ -1,3 +1,11 @@
+**Eagles-Bills Super Bowl preview? Plus, Saquon Barkley calls Nick Sirianni NFL's best coach**\
+`This matchup between two Super Bowl favorites has been anticipated all season.`\
+https://nytimes.com/athletic/6920677/2025/12/27/eagles-bills-prediction-super-bowl-preview/
+
+**Injuries mount on Bills' defense, questions at WR remain ahead of Eagles matchup**\
+`The Bills will be facing a potent offense and run defense when they host the defending Super Bowl champion Eagles on Sunday.`\
+https://nytimes.com/athletic/6920325/2025/12/27/bills-eagles-injuries-defense/
+
 **Man Utd Women sign Lundkvist after release from the Wave**\
 `The defender was out of contract after leaving the San Diego Wave.`\
 https://nytimes.com/athletic/6904641/2025/12/27/hanna-lundkvist-man-utd-women/
