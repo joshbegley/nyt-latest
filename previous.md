@@ -1,3 +1,7 @@
+**Heaven is taking his chance at United, just when Amorim needs him most**\
+`Gradual improvement has been the story of Heaven’s reintroduction over these past five games.`\
+https://nytimes.com/athletic/6920770/2025/12/27/ayden-heaven-man-united-ruben-amorim/
+
 **The New York Times in Print for Saturday, Dec. 27, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/12/27/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6920798/2025/12/27/connections-sports-edition-hints
 **Corrections: December 27, 2025**\
 `Corrections that appeared in print on Saturday, December 27, 2025.`\
 https://nytimes.com/2025/12/26/pageoneplus/corrections-december-27-2025.html
-
-**Quote of the Day: It Was Lighter Than a Token. Now It’s Litter.**\
-`Quotation of the Day for Saturday, December 27, 2025.`\
-https://nytimes.com/2025/12/26/pageoneplus/quote-of-the-day-it-was-lighter-than-a-token-now-its-litter.html
 

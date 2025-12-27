@@ -1,3 +1,7 @@
+**Heaven is taking his chance at United, just when Amorim needs him most**\
+`Gradual improvement has been the story of Heaven’s reintroduction over these past five games.`\
+https://nytimes.com/athletic/6920770/2025/12/27/ayden-heaven-man-united-ruben-amorim/
+
 **The New York Times in Print for Saturday, Dec. 27, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/12/27/todays-new-york-times
