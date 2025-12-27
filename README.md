@@ -1,3 +1,11 @@
+**Thailand and Cambodia Reach Cease-Fire in Brutal Border War**\
+`The 72-hour cease-fire could pave the way for an end to the fighting, which has killed dozens and displaced thousands over nearly three weeks.`\
+https://nytimes.com/2025/12/26/world/asia/thailand-cambodia-cease-fire-border-war.html
+
+**Book Club: Let’s Talk About ‘What We Can Know’**\
+`Ian McEwan’s latest novel, one of the Book Review’s 100 Notable Books of 2025, is a literary mystery about a scholar’s search for a long-lost poem.`\
+https://nytimes.com/2025/12/26/books/review/what-we-can-know-ian-mcewan-podcast.html
+
 **What Many Wine Corks Do**\
 `Katie Hoody sweeps up solvers in a buoyant themeless puzzle`\
 https://nytimes.com/2025/12/26/crosswords/daily-puzzle-2025-12-27.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/26/world/asia/hong-kong-apartment-fire-corruption.ht
 **Crosby to miss Raiders' game vs. Giants despite pushback, Carroll says**\
 `Crosby, who has missed just five games over his seven-year Raiders career, left the facility after hearing that he wasn't playing Sunday.`\
 https://nytimes.com/athletic/6920492/2025/12/26/maxx-crosby-raiders-sit-out-pushes-back/
-
-**Annette Dionne, Last of the Celebrated Quintuplets, Dies at 91**\
-`She was the first to crawl, the first to cut a tooth, the first to recognize her name, and the last to die. And, like her sisters, she resented being exploited as part of a global sensation.`\
-https://nytimes.com/2025/12/26/world/canada/annette-dionne-dead.html
-
-**Perry Bamonte, Guitarist and Keyboardist in the Cure, Dies at 65**\
-`A former roadie, Mr. Bamonte joined the band in 1990. He played on five albums and in hundreds of shows and was “a vital part of the Cure story,” the band said.`\
-https://nytimes.com/2025/12/26/arts/music/perry-bamonte-dead.html
 
