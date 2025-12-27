@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6921697/2025/12/27/diego-pavia-ncaa-elibigility-law
 https://nytimes.com/athletic/6921899/2025/12/27/patriots-mack-hollins-injured-reserve/
 
 **On this day 25 years ago, Mario Lemieux stated his case as only he could**\
-`Lemieux's return to the NHL on Dec. 27, 2000, after a nearly four years away from the game, may have changed his legacy.`\
+`Lemieux's return to the NHL on Dec. 27, 2000, after nearly four years away from the game, may have changed his legacy.`\
 https://nytimes.com/athletic/6921315/2025/12/27/mario-lemieux-penguins-nhl-legacy/
 
 **Raiders' Maxx Crosby expected to need knee surgery: Source**\

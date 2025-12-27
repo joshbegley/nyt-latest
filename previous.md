@@ -1,3 +1,7 @@
+**Diego Pavia's eligibility lawsuit opens with poem, cites NBA draftee headed to Baylor**\
+`Diego Pavia is challenging an NCAA rule that counts athletes' junior-college years against their NCAA eligibility.`\
+https://nytimes.com/athletic/6921697/2025/12/27/diego-pavia-ncaa-elibigility-lawsuit-poem/
+
 **Patriots place Mack Hollins on IR, putting playoff availability in doubt**\
 `Mack Hollins' IR designation means he will miss at least four games, with the earliest chance to return in the AFC Championship Game.`\
 https://nytimes.com/athletic/6921899/2025/12/27/patriots-mack-hollins-injured-reserve/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6921730/2025/12/27/sharks-vs-canucks-stream-how-to-
 **How to watch Avalanche vs. Golden Knights: Time, TV, streaming**\
 `Find out how to watch the Colorado Avalanche play the Vegas Golden Knights, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6921726/2025/12/27/avalanche-vs-golden-knights-stream-how-to-watch-dec-27/
-
-**How to watch Ducks vs. Kings: Time, TV, streaming**\
-`Find out how to watch the Anaheim Ducks play the Los Angeles Kings, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6921724/2025/12/27/ducks-vs-kings-stream-how-to-watch-dec-27/
 
