@@ -1,3 +1,7 @@
+**What to Know About the Vote in Myanmar**\
+`Amid a ruinous civil war, the military government is holding elections that are widely seen as a sham, as the main opposition remains barred or jailed.`\
+https://nytimes.com/2025/12/27/world/asia/what-to-know-myanmar-vote.html
+
 **How a ‘Hamilton’ Star Spends a Day at His Brooklyn Bar**\
 `Anthony Ramos loves hanging out with customers during busy days that may find him writing a new musical, catching a friend in a show or performing in his own.`\
 https://nytimes.com/2025/12/27/nyregion/anthony-ramos-hamilton.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6920770/2025/12/27/ayden-heaven-man-united-ruben-am
 **The New York Times in Print for Saturday, Dec. 27, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/12/27/todays-new-york-times
-
-**Kennedy Center Chief Threatens Legal Action Over Canceled Christmas Concert**\
-`The musician Chuck Redd called off the annual Christmas Eve performances after the Kennedy Center board added President Trump’s name to the performing arts center.`\
-https://nytimes.com/2025/12/27/us/kennedy-center-concert-lawsuit.html
 
