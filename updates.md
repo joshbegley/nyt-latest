@@ -1,3 +1,7 @@
+**The New York Times in Print for Saturday, Dec. 27, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/12/27/todays-new-york-times
+
 **Karoline Leavitt Says She’s Expecting Her Second Child**\
 `The White House press secretary announced on Instagram that she was pregnant with a daughter who is due in May. She and her husband have a 1-year-old son.`\
 https://nytimes.com/2025/12/26/us/karoline-leavitt-says-shes-expecting-her-second-child.html

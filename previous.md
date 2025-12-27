@@ -1,3 +1,7 @@
+**The New York Times in Print for Saturday, Dec. 27, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/12/27/todays-new-york-times
+
 **Kennedy Center Chief Threatens Legal Action Over Canceled Christmas Concert**\
 `The musician Chuck Redd called off the annual Christmas Eve performances after the Kennedy Center board added President Trump’s name to the performing arts center.`\
 https://nytimes.com/2025/12/27/us/kennedy-center-concert-lawsuit.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/26/pageoneplus/corrections-december-27-2025.html
 **Quote of the Day: It Was Lighter Than a Token. Now It’s Litter.**\
 `Quotation of the Day for Saturday, December 27, 2025.`\
 https://nytimes.com/2025/12/26/pageoneplus/quote-of-the-day-it-was-lighter-than-a-token-now-its-litter.html
-
-**Karoline Leavitt Says She’s Expecting Her Second Child**\
-`The White House press secretary announced on Instagram that she was pregnant with a daughter who is due in May. She and her husband have a 1-year-old son.`\
-https://nytimes.com/2025/12/26/us/karoline-leavitt-says-shes-expecting-her-second-child.html
 
