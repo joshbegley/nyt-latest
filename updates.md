@@ -1,3 +1,7 @@
+**Russia Attacks Kyiv Ahead of Trump-Zelensky Meeting**\
+`The assault began around 1:30 a.m. local time and was continuing into the morning.`\
+https://nytimes.com/2025/12/27/world/europe/kyiv-ukraine-russia-trump-zelensky.html
+
 **What to Know About the Vote in Myanmar**\
 `Amid a ruinous civil war, the military government is holding elections that are widely seen as a sham, as the main opposition remains barred or jailed.`\
 https://nytimes.com/2025/12/27/world/asia/what-to-know-myanmar-vote.html
