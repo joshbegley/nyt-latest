@@ -1,3 +1,7 @@
+**Crosby to miss Raiders' game vs. Giants despite pushback, Carroll says**\
+`The 28-year-old pass rusher has missed just five games over his seven-year professional career.`\
+https://nytimes.com/athletic/6920492/2025/12/26/maxx-crosby-raiders-sit-out-pushes-back/
+
 **Annette Dionne, Last of the Celebrated Quintuplets, Dies at 91**\
 `She was the first to crawl, the first to cut a tooth, the first to recognize her name, and the last to die. And, like her sisters, she resented being exploited as part of a global sensation.`\
 https://nytimes.com/2025/12/26/world/canada/annette-dionne-dead.html
