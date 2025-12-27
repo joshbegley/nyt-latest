@@ -1,3 +1,7 @@
+**Charlotte FC to sign USMNT midfielder Luca de la Torre**\
+`De La Torre joins on a permanent deal. He spent 2025 on loan at San Diego FC in Major League Soccer.`\
+https://nytimes.com/athletic/6921271/2025/12/27/charlotte-fc-transfer-sign-luca-de-la-torre/
+
 **Trump Remakes America as Leader of the Brand**\
 `In attaching his name to buildings and programs while still president, Donald Trump is walking a path paved by conquerors and autocrats.`\
 https://nytimes.com/2025/12/27/us/politics/trump-renaming.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6920822/2025/12/27/what-brought-all-of-us-joy-in-20
 **Scoop City: Fantasy tips to win your title**\
 `It's championship time. Lock in. Here's how to win your title.`\
 https://nytimes.com/athletic/6920766/2025/12/27/everything-fantasy-football-managers-need-to-know-for-week-17/
-
-**Passion for history brought together Blue Jackets' Jet Greaves, John Davidson**\
-`It took courage for Jet Greaves to approach John Davidson for the first time. Davidson's still glad he did.`\
-https://nytimes.com/athletic/6920337/2025/12/27/blue-jackets-jet-greaves-john-davidson-hockey-history/
 

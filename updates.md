@@ -1,3 +1,7 @@
+**Charlotte FC to sign USMNT midfielder Luca de la Torre**\
+`De La Torre joins on a permanent deal. He spent 2025 on loan at San Diego FC in Major League Soccer.`\
+https://nytimes.com/athletic/6921271/2025/12/27/charlotte-fc-transfer-sign-luca-de-la-torre/
+
 **Trump Remakes America as Leader of the Brand**\
 `In attaching his name to buildings and programs while still president, Donald Trump is walking a path paved by conquerors and autocrats.`\
 https://nytimes.com/2025/12/27/us/politics/trump-renaming.html
