@@ -1,3 +1,7 @@
+**The all-women crew 'stepping up' at Sydney Hobart as breakages and seasickness reduce overall fleet**\
+`Elizabeth Tucker leads a six-strong all-women crew in the Sydney Hobart, but her plans go beyond the current race.`\
+https://nytimes.com/athletic/6920954/2025/12/27/sydney-hobart-elizabeth-tucker/
+
 **Russia Attacks Kyiv Ahead of Trump-Zelensky Meeting**\
 `The assault began around 1:30 a.m. local time and was continuing into the morning.`\
 https://nytimes.com/2025/12/27/world/europe/kyiv-ukraine-russia-trump-zelensky.html

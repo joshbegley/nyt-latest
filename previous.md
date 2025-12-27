@@ -1,3 +1,7 @@
+**The all-women crew 'stepping up' at Sydney Hobart as breakages and seasickness reduce overall fleet**\
+`Elizabeth Tucker leads a six-strong all-women crew in the Sydney Hobart, but her plans go beyond the current race.`\
+https://nytimes.com/athletic/6920954/2025/12/27/sydney-hobart-elizabeth-tucker/
+
 **What to Know About the Vote in Myanmar**\
 `Amid a ruinous civil war, the military government is holding elections that are widely seen as a sham, as the main opposition remains barred or jailed.`\
 https://nytimes.com/2025/12/27/world/asia/what-to-know-myanmar-vote.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6920566/2025/12/27/england-australia-stokes-carse-a
 **Heaven is taking his chance at United, just when Amorim needs him most**\
 `Gradual improvement has been the story of Heaven’s reintroduction over these past five games`\
 https://nytimes.com/athletic/6920770/2025/12/27/ayden-heaven-man-united-ruben-amorim/
-
-**The New York Times in Print for Saturday, Dec. 27, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/12/27/todays-new-york-times
 
