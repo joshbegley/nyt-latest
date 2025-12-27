@@ -1,3 +1,7 @@
+**Sources: Knicks' Josh Hart expected to miss at least 3 games with ankle injury**\
+`New York will also miss Hart's ability to push the pace in transition as the Knicks struggle to consistently play fast.`\
+https://nytimes.com/athletic/6921995/2025/12/27/josh-hart-ankle-injury-out-three-games-knicks/
+
 **Ankle injury to sideline Knicks' Josh Hart for at least the next three games**\
 `New York will also miss Hart's ability to push the pace in transition as the Knicks struggle to consistently play fast.`\
 https://nytimes.com/athletic/6921995/2025/12/27/josh-hart-ankle-injury-out-three-games-knicks/
