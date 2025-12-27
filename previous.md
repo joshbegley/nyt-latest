@@ -1,3 +1,7 @@
+**What Many Wine Corks Do**\
+`Katie Hoody sweeps up solvers in a buoyant themeless puzzle`\
+https://nytimes.com/2025/12/26/crosswords/daily-puzzle-2025-12-27.html
+
 **Grand Jury Declines to Indict Parent Who Fatally Shot Kentucky Student**\
 `The grand jury received testimony that the man had acted to defend his son, who had faced bullying before the shooting, a local prosecutor said.`\
 https://nytimes.com/2025/12/26/us/kentucky-state-shooting-murder-charge.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/26/world/canada/annette-dionne-dead.html
 **Perry Bamonte, Guitarist and Keyboardist in the Cure, Dies at 65**\
 `A former roadie, Mr. Bamonte joined the band in 1990. He played on five albums and in hundreds of shows and was “a vital part of the Cure story,” the band said.`\
 https://nytimes.com/2025/12/26/arts/music/perry-bamonte-dead.html
-
-**Some G.O.P. Senators Join Democrats in Urging Trump to Adopt Hard Line With Putin**\
-`The president is planning to meet with the leader of Ukraine in Florida just as the lawmakers are applying some pressure.`\
-https://nytimes.com/2025/12/26/us/politics/trump-putin-russia-senate-republicans.html
 

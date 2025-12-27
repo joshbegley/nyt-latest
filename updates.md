@@ -1,3 +1,7 @@
+**What Many Wine Corks Do**\
+`Katie Hoody sweeps up solvers in a buoyant themeless puzzle`\
+https://nytimes.com/2025/12/26/crosswords/daily-puzzle-2025-12-27.html
+
 **At Least 1 Injured in Shooting at an Idaho Sheriff’s Office**\
 `The shooting happened at the Shoshone County Sheriff’s Office in Wallace, Idaho, and the shooter had been “neutralized,” the authorities said.`\
 https://nytimes.com/2025/12/26/us/active-shooter-wallace-idaho.html
