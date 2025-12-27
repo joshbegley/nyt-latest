@@ -1,3 +1,11 @@
+**Mickey Lee, a Contestant on ‘Big Brother,’ Dies at 35**\
+`Ms. Lee, a party host in Atlanta, died from multiple cardiac arrests brought on by the flu, according to a social media post.`\
+https://nytimes.com/2025/12/27/arts/television/mickey-lee-dead.html
+
+**Penn State tops Clemson in battle of 2025 disappointments, avoids losing season**\
+`Both Penn State and Clemson were ranked in the top five in the preseason. They ended the year in a pre-New Year's day bowl game.`\
+https://nytimes.com/athletic/6921678/2025/12/27/penn-state-clemson-pinstripe-bowl-disappointing-season/
+
 **How to watch Sharks vs. Canucks: Time, TV, streaming**\
 `Find out how to watch the San Jose Sharks play the Vancouver Canucks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6921730/2025/12/27/sharks-vs-canucks-stream-how-to-watch-dec-27/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6919601/2025/12/27/chelsea-1-aston-villa-2-maresca-
 **How Oil, Drugs and Immigration Fueled Trump’s Venezuela Campaign**\
 `New details of deliberations show how aides with overlapping agendas drove the United States toward a militarized confrontation with Venezuela.`\
 https://nytimes.com/2025/12/27/us/politics/venezuela-trump-maduro-oil-boat-strikes-immigration.html
-
-**Referee Bill Kennedy's coach's challenge verdicts becoming must-see TV**\
-`Kennedy's signature style of announcing challenge results has become a storyline in the NBA.`\
-https://nytimes.com/athletic/6921347/2025/12/27/nba-refereee-bill-kennedy-coach-challenge-verdict/
-
-**Hundreds of Flights Canceled at New York Airports, Even With a Few Inches of Snow**\
-`To avoid the ripple effects of real-time adjustments to what was predicted to be up to nine inches of snow, the major airlines said they pre-emptively canceled flights.`\
-https://nytimes.com/2025/12/27/business/snowstorm-flight-cancel-new-york-airports.html
 
