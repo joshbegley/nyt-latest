@@ -1,3 +1,11 @@
+**Scoop City: Fantasy tips to win your title**\
+`It's championship time. Lock in. Here's how to win your title.`\
+https://nytimes.com/athletic/6920766/2025/12/27/everything-fantasy-football-managers-need-to-know-for-week-17/
+
+**Passion for history brought together Blue Jackets' Jet Greaves, John Davidson**\
+`It took courage for Jet Greaves to approach John Davidson for the first time. Davidson's still glad he did.`\
+https://nytimes.com/athletic/6920337/2025/12/27/blue-jackets-jet-greaves-john-davidson-hockey-history/
+
 **Eagles-Bills Super Bowl preview? Plus, Saquon Barkley calls Nick Sirianni NFL's best coach**\
 `This matchup between two Super Bowl favorites has been anticipated all season.`\
 https://nytimes.com/athletic/6920677/2025/12/27/eagles-bills-prediction-super-bowl-preview/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6920210/2025/12/27/bruins-goaltending-structure-dis
 **Would You Kill for a Job?**\
 `A Korean film resonates in a moment when America has its highest unemployment rate since 2021.`\
 https://nytimes.com/2025/12/27/opinion/no-other-choice-work-unemployment.html
-
-**In Which I Try Valiantly to Cheer You Up**\
-`OK, 2025 wasn’t the best year ever. But we’re arguably still in the best decade in the history of humanity.`\
-https://nytimes.com/2025/12/27/opinion/good-news.html
-
-**Trump’s First Year Back, in 10 Charts**\
-`Steven Rattner recaps the year of Trump in charts.`\
-https://nytimes.com/interactive/2025/12/27/opinion/year-in-charts-2025.html
 

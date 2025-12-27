@@ -1,3 +1,11 @@
+**Scoop City: Fantasy tips to win your title**\
+`It's championship time. Lock in. Here's how to win your title.`\
+https://nytimes.com/athletic/6920766/2025/12/27/everything-fantasy-football-managers-need-to-know-for-week-17/
+
+**Passion for history brought together Blue Jackets' Jet Greaves, John Davidson**\
+`It took courage for Jet Greaves to approach John Davidson for the first time. Davidson's still glad he did.`\
+https://nytimes.com/athletic/6920337/2025/12/27/blue-jackets-jet-greaves-john-davidson-hockey-history/
+
 **Eagles-Bills Super Bowl preview? Plus, Saquon Barkley calls Nick Sirianni NFL's best coach**\
 `This matchup between two Super Bowl favorites has been anticipated all season.`\
 https://nytimes.com/athletic/6920677/2025/12/27/eagles-bills-prediction-super-bowl-preview/
