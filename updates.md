@@ -1,3 +1,15 @@
+**Which NFL players are nearing contract incentives in Week 17?**\
+`If there's one player who has extra incentive to see his team's playoff seeding set by the end of Monday night, it's Mac Jones.`\
+https://nytimes.com/athletic/6921635/2025/12/27/stefon-diggs-2025-nfl-contract-incentives/
+
+**Mickey Lee, a Contestant on ‘Big Brother,’ Dies at 35**\
+`Ms. Lee, a party host in Atlanta, died from multiple cardiac arrests brought on by the flu, according to a social media post.`\
+https://nytimes.com/2025/12/27/arts/television/mickey-lee-dead.html
+
+**Penn State tops Clemson in battle of 2025 disappointments, avoids losing season**\
+`Both Penn State and Clemson were ranked in the top five in the preseason. They ended the year in a pre-New Year's day bowl game.`\
+https://nytimes.com/athletic/6921678/2025/12/27/penn-state-clemson-pinstripe-bowl-disappointing-season/
+
 **Referee Bill Kennedy's coach's challenge verdicts becoming must-see TV**\
 `Kennedy's signature style of announcing challenge results has become a storyline in the NBA.`\
 https://nytimes.com/athletic/6921347/2025/12/27/nba-refereee-bill-kennedy-coach-challenge-verdict/
