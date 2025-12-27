@@ -1,3 +1,11 @@
+**Thailand and Cambodia Reach Cease-Fire in Brutal Border War**\
+`The 72-hour cease-fire could pave the way for an end to the fighting, which has killed dozens and displaced thousands over nearly three weeks.`\
+https://nytimes.com/2025/12/26/world/asia/thailand-cambodia-cease-fire-border-war.html
+
+**Book Club: Let’s Talk About ‘What We Can Know’**\
+`Ian McEwan’s latest novel, one of the Book Review’s 100 Notable Books of 2025, is a literary mystery about a scholar’s search for a long-lost poem.`\
+https://nytimes.com/2025/12/26/books/review/what-we-can-know-ian-mcewan-podcast.html
+
 **At Least 3 Wounded in Shooting at an Idaho Sheriff’s Office**\
 `The shooting happened at the Shoshone County Sheriff’s Office in Wallace, Idaho, on Friday. The gunman was killed by the police, the authorities said.`\
 https://nytimes.com/2025/12/26/us/active-shooter-wallace-idaho.html
