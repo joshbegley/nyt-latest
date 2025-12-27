@@ -1,3 +1,7 @@
+**What’s this trip about? Here’s an overview.**\
+`(No description)`\
+https://nytimes.com/live/2025/climate/antarctica-thwaites-glacier/trip-overview-video
+
 **Russia Attacks Kyiv Ahead of Trump-Zelensky Meeting**\
 `The assault began at around 1:30 a.m. local time and was continuing into the morning.`\
 https://nytimes.com/2025/12/27/world/europe/kyiv-ukraine-russia-trump-zelensky.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6823690/2025/12/27/how-much-is-every-premier-league
 **Why are east African teams so far behind other nations?**\
 `Uganda and Tanzania play on December 27 but Kenya and Ethiopia are watching the Africa Cup of Nations from home`\
 https://nytimes.com/athletic/6911907/2025/12/27/afcon-2025-why-are-east-african-teams-so-far-behind-other-nations/
-
-**Why it is time for Federico Chiesa to seize the moment at Liverpool**\
-`The Italian is yet to start a game for Arne Slot's side in 2025-26 – but his relentless industry could be just what the team needs right now`\
-https://nytimes.com/athletic/6919550/2025/12/27/chiesa-liverpool-premier-league-slot-starts/
 
