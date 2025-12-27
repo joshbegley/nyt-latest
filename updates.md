@@ -1,3 +1,7 @@
+**Antarctic bound on a search for clues to Earth’s future**\
+`As vast, wild and beyond our comprehending as Antarctica may seem, its melting ice could decide the fates of coastal communities for centuries to come`\
+https://nytimes.com/live/2025/climate/antarctica-thwaites-glacier/antarctic-bound-on-a-search-for-clues-to-earths-future
+
 **How ‘Marty Supreme’ Got Table Tennis Right**\
 `The director Josh Safdie had a personal connection to 1950s players, but he also enlisted professionals to choreograph the action and employed a visual trick.`\
 https://nytimes.com/2025/12/27/movies/marty-supreme-table-tennis.html
