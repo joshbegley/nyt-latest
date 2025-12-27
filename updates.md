@@ -1,3 +1,7 @@
+**Gary Graffman, Piano Virtuoso and Renowned Teacher, Dies at 97**\
+`Mr. Graffman was a onetime child prodigy whose career was curtailed by a neurological condition that restricted him to his left hand.`\
+https://nytimes.com/2025/12/27/arts/music/gary-graffman-dead.html
+
 **Which NFL players are nearing contract incentives in Week 17?**\
 `If there's one player who has extra incentive to see his team's playoff seeding set by the end of Monday night, it's Mac Jones.`\
 https://nytimes.com/athletic/6921635/2025/12/27/stefon-diggs-2025-nfl-contract-incentives/
