@@ -1,3 +1,11 @@
+**How to watch Mavericks vs. Kings: Time, TV, streaming**\
+`Find out how to watch the Dallas Mavericks play the Sacramento Kings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6921205/2025/12/27/mavericks-vs-kings-stream-how-to-watch-dec-27/
+
+**Forest 1 Man City 2 - How did Cherki help unlock Forest? Why is Guardiola naming same XI?**\
+`We break down the talking points from the Premier League game at the City Ground.`\
+https://nytimes.com/athletic/6919570/2025/12/27/man-city-cherki-forest/
+
 **Saudi-led Group in Yemen Tells Separatists to Withdraw, or Be ‘Dealt With’**\
 `The Saudis ramped up their rhetoric against a faction that has seized parts of Yemen in recent weeks.`\
 https://nytimes.com/2025/12/27/world/middleeast/yemen-saudi-arabia-airstrikes.html
