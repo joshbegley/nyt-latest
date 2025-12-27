@@ -1,3 +1,15 @@
+**How to watch Red Wings vs. Hurricanes: Time, TV, streaming**\
+`Find out how to watch the Detroit Red Wings play the Carolina Hurricanes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6921436/2025/12/27/red-wings-vs-hurricanes-stream-how-to-watch-dec-27/
+
+**How to watch Rangers vs. Islanders: Time, TV, streaming**\
+`Find out how to watch the New York Rangers play the New York Islanders, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6921434/2025/12/27/rangers-vs-islanders-stream-how-to-watch-dec-27/
+
+**Girl, 4, Dies After Being Found Unconscious in the Bronx**\
+`An autopsy is being conducted to find the cause of death of the girl, whose name has not been released. The police have made no arrests.`\
+https://nytimes.com/2025/12/27/nyregion/girl-4-dies-after-being-found-unconscious-in-the-bronx.html
+
 **Maple Leafs are rolling out a new power play in the wake of Marc Savard's firing**\
 `Head coach Craig Berube said the Leafs were looking for a new voice and different setups.`\
 https://nytimes.com/athletic/6921306/2025/12/27/maple-leafs-power-play-marc-savard-firing/

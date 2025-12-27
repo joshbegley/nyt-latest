@@ -1,3 +1,15 @@
+**How to watch Red Wings vs. Hurricanes: Time, TV, streaming**\
+`Find out how to watch the Detroit Red Wings play the Carolina Hurricanes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6921436/2025/12/27/red-wings-vs-hurricanes-stream-how-to-watch-dec-27/
+
+**How to watch Rangers vs. Islanders: Time, TV, streaming**\
+`Find out how to watch the New York Rangers play the New York Islanders, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6921434/2025/12/27/rangers-vs-islanders-stream-how-to-watch-dec-27/
+
+**Girl, 4, Dies After Being Found Unconscious in the Bronx**\
+`An autopsy is being conducted to find the cause of death of the girl, whose name has not been released. The police have made no arrests.`\
+https://nytimes.com/2025/12/27/nyregion/girl-4-dies-after-being-found-unconscious-in-the-bronx.html
+
 **Maple Leafs are rolling out a new power play in the wake of Marc Savard's firing**\
 `Head coach Craig Berube said the Leafs were looking for a new voice and different setups.`\
 https://nytimes.com/athletic/6921306/2025/12/27/maple-leafs-power-play-marc-savard-firing/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/12/27/science/trump-wildfires-vance-epa.html
 **Got an Air Fryer? We Have Recipes.**\
 `Salmon fillets, chicken wings, green beans and broccoli all cook to quick perfection with these trusted air-fryer recipes.`\
 https://nytimes.com/2025/12/27/dining/got-an-air-fryer-we-have-recipes.html
-
-**Wood will be back for Forest within 'weeks' of surgery, Dyche hopes**\
-`The New Zealand international has been sidelined since mid-October with a knee issue after scoring 20 Premier League goals last season.`\
-https://nytimes.com/athletic/6921286/2025/12/27/chris-wood-nottingham-forest-surgery-update/
-
-**Charlotte FC to sign USMNT midfielder Luca de la Torre**\
-`De La Torre joins on a permanent deal. He spent 2025 on loan at San Diego FC in Major League Soccer.`\
-https://nytimes.com/athletic/6921271/2025/12/27/charlotte-fc-transfer-sign-luca-de-la-torre/
-
-**Trump Remakes America as Leader of the Brand**\
-`In attaching his name to buildings and programs while still president, Donald Trump is walking a path paved by conquerors and autocrats.`\
-https://nytimes.com/2025/12/27/us/politics/trump-renaming.html
 
