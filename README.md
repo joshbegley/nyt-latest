@@ -1,3 +1,15 @@
+**Why it is time for Federico Chiesa to seize the moment at Liverpool**\
+`The Italian is yet to start a game for Arne Slot's side in 2025-26 – but his relentless industry could be just what the team needs right now`\
+https://nytimes.com/athletic/6919550/2025/12/27/chiesa-liverpool-premier-league-slot-starts/
+
+**Before This Physicist Studied the Stars, He Was One**\
+`Brian Cox once toured as a keyboardist in major rock and pop bands. Now he’s a particle physicist on a new world tour with a dazzling show he designed in an era of science disinformation and denial.`\
+https://nytimes.com/2025/12/27/world/europe/brian-cox-astronomy-profile.html
+
+**Connections: Sports Edition Coach: Hints for Dec. 27, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6920798/2025/12/27/connections-sports-edition-hints-for-dec-27-2025/
+
 **Corrections: December 27, 2025**\
 `Corrections that appeared in print on Saturday, December 27, 2025.`\
 https://nytimes.com/2025/12/26/pageoneplus/corrections-december-27-2025.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/12/26/books/review/what-we-can-know-ian-mcewan-podcast.
 **What Many Wine Corks Do**\
 `Katie Hoody sweeps up solvers in a buoyant themeless puzzle`\
 https://nytimes.com/2025/12/26/crosswords/daily-puzzle-2025-12-27.html
-
-**Grand Jury Declines to Indict Parent Who Fatally Shot Kentucky Student**\
-`The grand jury received testimony that the man had acted to defend his son, who had faced bullying before the shooting, a local prosecutor said.`\
-https://nytimes.com/2025/12/26/us/kentucky-state-shooting-murder-charge.html
-
-**Why We Are Going to the Fastest-Melting Glacier**\
-`How much time does the Thwaites Glacier in Antarctica have left? Our reporter Raymond Zhong and our photographer Chang W. Lee are joining scientists and engineers who measure how much sea levels could rise as a result of melting ice.`\
-https://nytimes.com/video/climate/100000010542247/why-we-are-going-to-the-fastest-melting-glacier.html
-
-**Driver Livestreaming on TikTok Is Charged After Fatally Striking Pedestrian, Police Say**\
-`The driver, who is known to her followers as Tea Tyme, was charged with two felonies in connection with the crash last month, the police in Illinois said.`\
-https://nytimes.com/2025/12/26/us/tea-tyme-tiktok-accident-charges.html
 
