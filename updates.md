@@ -1,3 +1,11 @@
+**New York City Hit With Heaviest Snowfall in Years**\
+`A winter storm blanketed the Greater New York area, leading to more than 400 flight cancellations across the region’s major airports. Parts of Long Island saw up to nine inches of snow.`\
+https://nytimes.com/video/nyregion/100000010611680/ny-region-new-york-city-snow-storm.html
+
+**Five players fined for Eagles-Commanders fight; no suspensions**\
+`Commanders defensive lineman Javon Kinlaw drew the biggest fine because he “swung” in the fight, according to the NFL.`\
+https://nytimes.com/athletic/6921963/2025/12/27/eagles-commanders-fight-fines-nfl/
+
 **On this day 25 years ago, Mario Lemieux stated his case as only he could**\
 `Lemieux's return to the NHL on Dec. 27, 2000, after nearly four years away from the game, may have changed his legacy.`\
 https://nytimes.com/athletic/6921315/2025/12/27/mario-lemieux-penguins-nhl-legacy/

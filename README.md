@@ -1,3 +1,7 @@
+**Joseph Hartzler Dies at 75; Led Prosecution of Oklahoma City Bomber**\
+`He and his team secured the conviction of Timothy McVeigh, who in 1995 committed the deadliest domestic terror attack in American history.`\
+https://nytimes.com/2025/12/27/us/joseph-hartzler-dead.html
+
 **New York City Hit With Heaviest Snowfall in Years**\
 `A winter storm blanketed the Greater New York area, leading to more than 400 flight cancellations across the region’s major airports. Parts of Long Island saw up to nine inches of snow.`\
 https://nytimes.com/video/nyregion/100000010611680/ny-region-new-york-city-snow-storm.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6921635/2025/12/27/stefon-diggs-2025-nfl-contract-i
 **Mickey Lee, a Contestant on ‘Big Brother,’ Dies at 35**\
 `Ms. Lee, a party host in Atlanta, died from multiple cardiac arrests brought on by the flu, according to a social media post.`\
 https://nytimes.com/2025/12/27/arts/television/mickey-lee-dead.html
-
-**Penn State tops Clemson in battle of 2025 disappointments, avoids losing season**\
-`Both Penn State and Clemson were ranked in the top five in the preseason. They ended the year in a pre-New Year's day bowl game.`\
-https://nytimes.com/athletic/6921678/2025/12/27/penn-state-clemson-pinstripe-bowl-disappointing-season/
 

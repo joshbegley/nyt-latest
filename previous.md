@@ -1,3 +1,11 @@
+**New York City Hit With Heaviest Snowfall in Years**\
+`A winter storm blanketed the Greater New York area, leading to more than 400 flight cancellations across the region’s major airports. Parts of Long Island saw up to nine inches of snow.`\
+https://nytimes.com/video/nyregion/100000010611680/ny-region-new-york-city-snow-storm.html
+
+**Five players fined for Eagles-Commanders fight; no suspensions**\
+`Commanders defensive lineman Javon Kinlaw drew the biggest fine because he “swung” in the fight, according to the NFL.`\
+https://nytimes.com/athletic/6921963/2025/12/27/eagles-commanders-fight-fines-nfl/
+
 **Diego Pavia's eligibility lawsuit opens with poem, cites NBA draftee headed to Baylor**\
 `Diego Pavia is challenging an NCAA rule that counts athletes' junior-college years against their NCAA eligibility.`\
 https://nytimes.com/athletic/6921697/2025/12/27/diego-pavia-ncaa-elibigility-lawsuit-poem/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/27/arts/television/mickey-lee-dead.html
 **Penn State tops Clemson in battle of 2025 disappointments, avoids losing season**\
 `Both Penn State and Clemson were ranked in the top five in the preseason. They ended the year in a pre-New Year's day bowl game.`\
 https://nytimes.com/athletic/6921678/2025/12/27/penn-state-clemson-pinstripe-bowl-disappointing-season/
-
-**How to watch Sharks vs. Canucks: Time, TV, streaming**\
-`Find out how to watch the San Jose Sharks play the Vancouver Canucks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6921730/2025/12/27/sharks-vs-canucks-stream-how-to-watch-dec-27/
-
-**How to watch Avalanche vs. Golden Knights: Time, TV, streaming**\
-`Find out how to watch the Colorado Avalanche play the Vegas Golden Knights, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6921726/2025/12/27/avalanche-vs-golden-knights-stream-how-to-watch-dec-27/
 
