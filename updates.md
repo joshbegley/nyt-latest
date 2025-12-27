@@ -1,3 +1,15 @@
+**How to watch Miami (FL) vs. Ohio State: CFP Quarterfinal Start Time, TV, streaming**\
+`Find out how to watch the Miami (FL) Hurricanes play the Ohio State Buckeyes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6920650/2025/12/26/miami-fl-vs-ohio-state-stream-how-to-watch-dec-31/
+
+**What Went Wrong Before Hong Kong’s Apartment Inferno**\
+`Records show how government departments played down residents’ warnings about corrupt practices and substandard materials that fueled the deadly blaze.`\
+https://nytimes.com/2025/12/26/world/asia/hong-kong-apartment-fire-corruption.html
+
+**Crosby to miss Raiders' game vs. Giants despite pushback, Carroll says**\
+`Crosby, who has missed just five games over his seven-year Raiders career, left the facility after hearing that he wasn't playing Sunday.`\
+https://nytimes.com/athletic/6920492/2025/12/26/maxx-crosby-raiders-sit-out-pushes-back/
+
 **Crosby to miss Raiders' game vs. Giants despite pushback, Carroll says**\
 `The 28-year-old pass rusher has missed just five games over his seven-year professional career.`\
 https://nytimes.com/athletic/6920492/2025/12/26/maxx-crosby-raiders-sit-out-pushes-back/
