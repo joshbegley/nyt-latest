@@ -1,3 +1,7 @@
+**Trump Remakes America as Leader of the Brand**\
+`In attaching his name to buildings and programs while still president, Donald Trump is walking a path paved by conquerors and autocrats.`\
+https://nytimes.com/2025/12/27/us/politics/trump-renaming.html
+
 **Sesame Scallion Buns, and More Savory Bakes**\
 `Because I’m sugared out, but I still want the warmth and aroma of golden dough baking in the oven.`\
 https://nytimes.com/2025/12/27/dining/sesame-scallion-buns-and-more-savory-bakes.html
@@ -14,7 +18,7 @@ https://nytimes.com/athletic/6921205/2025/12/27/mavericks-vs-kings-stream-how-to
 `We break down the talking points from the Premier League game at the City Ground.`\
 https://nytimes.com/athletic/6919570/2025/12/27/man-city-cherki-forest/
 
-**Saudi-led Group in Yemen Tells Separatists to Withdraw, or Be ‘Dealt With’**\
+**Saudi-Led Group in Yemen Tells Separatists to Withdraw, or Be ‘Dealt With’**\
 `The Saudis ramped up their rhetoric against a faction that has seized parts of Yemen in recent weeks.`\
 https://nytimes.com/2025/12/27/world/middleeast/yemen-saudi-arabia-airstrikes.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6920766/2025/12/27/everything-fantasy-football-mana
 **Passion for history brought together Blue Jackets' Jet Greaves, John Davidson**\
 `It took courage for Jet Greaves to approach John Davidson for the first time. Davidson's still glad he did.`\
 https://nytimes.com/athletic/6920337/2025/12/27/blue-jackets-jet-greaves-john-davidson-hockey-history/
-
-**Eagles-Bills Super Bowl preview? Plus, Saquon Barkley calls Nick Sirianni NFL's best coach**\
-`This matchup between two Super Bowl favorites has been anticipated all season.`\
-https://nytimes.com/athletic/6920677/2025/12/27/eagles-bills-prediction-super-bowl-preview/
 

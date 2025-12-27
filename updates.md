@@ -1,3 +1,11 @@
+**Trump Remakes America as Leader of the Brand**\
+`In attaching his name to buildings and programs while still president, Donald Trump is walking a path paved by conquerors and autocrats.`\
+https://nytimes.com/2025/12/27/us/politics/trump-renaming.html
+
+**Saudi-Led Group in Yemen Tells Separatists to Withdraw, or Be ‘Dealt With’**\
+`The Saudis ramped up their rhetoric against a faction that has seized parts of Yemen in recent weeks.`\
+https://nytimes.com/2025/12/27/world/middleeast/yemen-saudi-arabia-airstrikes.html
+
 **Sesame Scallion Buns, and More Savory Bakes**\
 `Because I’m sugared out, but I still want the warmth and aroma of golden dough baking in the oven.`\
 https://nytimes.com/2025/12/27/dining/sesame-scallion-buns-and-more-savory-bakes.html
