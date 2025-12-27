@@ -1,40 +1,40 @@
+**A.J. Spellacy knows his NHL path with Blackhawks is 'playing that nasty style'**\
+`Spellacy understands how to carve out an NHL role among the many Blackhawks prospects.`\
+https://nytimes.com/athletic/6920078/2025/12/27/aj-spellacy-nhl-blackhawks-nasty-style/
+
+**NFL Saturday watch guide: Texans at Chargers, Ravens at Packers, playoff stakes**\
+`Two more Week 17 games are going down Saturday. Here's what to know and how to watch them.`\
+https://nytimes.com/athletic/6920528/2025/12/27/texans-chargers-ravens-packers-how-to-watch/
+
+**What will the College Football Playoff look like in 2026?**\
+`It remains to be seen whether next season’s Playoff format will be determined before this season’s champion has been crowned.`\
+https://nytimes.com/athletic/6919583/2025/12/27/college-football-playoff-2026-format-future-expansion/
+
+**How Carter George studied for this World Junior moment — and why he's ready to meet it**\
+`George's curiosity and intellect, as much as his talent, have led him back to the World Juniors as Canada's starter.`\
+https://nytimes.com/athletic/6920037/2025/12/27/carter-george-team-canada-world-juniors-kings/
+
+**Win a Reporting Trip With Me in 2026**\
+`Every year, I choose a university student to accompany me on a reporting trip.`\
+https://nytimes.com/2025/12/27/opinion/nicholas-kristof-win-a-trip-2026.html
+
+**A Sweeping Look at One Thing That Unites Canada: Winter**\
+`The National Gallery of Canada in Ottawa has a major exhibition of 164 works from around the world depicting winter and the place of people and animals within it.`\
+https://nytimes.com/2025/12/27/world/canada/a-sweeping-look-at-one-thing-that-unites-canada-winter.html
+
+**Connections Companion No. 931**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Dec. 28, 2025.`\
+https://nytimes.com/2025/12/27/crosswords/connections-companion-931.html
+
+**Strands Sidekick No. 665**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Dec. 28, 2025.`\
+https://nytimes.com/2025/12/27/crosswords/strands-sidekick-665.html
+
+**Wordle Review No. 1,653**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Dec. 28, 2025.`\
+https://nytimes.com/2025/12/27/crosswords/wordle-review-1653.html
+
 **Brighton captain Lewis Dunk triggers one-year contract extension**\
 `The 34-year-old defender secured a new deal with his 15th Premier League start of the campaign in the recent 2-0 defeat at Liverpool.`\
 https://nytimes.com/athletic/6921054/2025/12/27/brighton-lewis-dunk-contract-deal/
-
-**New Yorkers Wake Up to Snow, Though Not as Much as Forecast**\
-`Predictions were revised down on Friday. Central Park still saw more than 2 inches of snow, with higher totals outside of New York City.`\
-https://nytimes.com/2025/12/27/nyregion/new-york-city-snow-storm.html
-
-**History is not on Aaron Glenn's side**\
-`Glenn has preached patience. But head coaches who endured a first season like his have rarely found their way to success.`\
-https://nytimes.com/athletic/6919669/2025/12/27/aaron-glenn-new-york-jets-turnaround/
-
-**Divisional races, Super Bowl preview, Toilet Bowl highlight NFL Week 17 storylines**\
-`At one end of the spectrum is Sunday's matchup between the Eagles and Bills. And then there's the Giants-Raiders battle for the No. 1 pick.`\
-https://nytimes.com/athletic/6915888/2025/12/27/nfl-week-17-top-storylines-eagles-bills-giants-raiders/
-
-**Antarctic bound on a search for clues to Earth’s future**\
-`As vast, wild and beyond our comprehending as Antarctica may seem, its melting ice could decide the fates of coastal communities for centuries to come`\
-https://nytimes.com/live/2025/climate/antarctica-thwaites-glacier/antarctic-bound-on-a-search-for-clues-to-earths-future
-
-**How ‘Marty Supreme’ Got Table Tennis Right**\
-`The director Josh Safdie had a personal connection to 1950s players, but he also enlisted professionals to choreograph the action and employed a visual trick.`\
-https://nytimes.com/2025/12/27/movies/marty-supreme-table-tennis.html
-
-**Sleeping Bags (and Ear Plugs) for a Night at the Museum**\
-`Roaming the American Museum of Natural History in pajamas made for a night to remember for hundreds of children and their brave parents.`\
-https://nytimes.com/2025/12/27/arts/design/night-natural-history-museum.html
-
-**A Dancing Dictator and Bankers in Chains: The Other Venezuela Blockade**\
-`A crisis more than a century ago involved U.S. aims to assert military supremacy, a hard-partying dictator and frictions among the great powers.`\
-https://nytimes.com/2025/12/27/world/americas/venezuela-blockade-1903-us.html
-
-**7 Podcasts for Bookworms**\
-`In a world filled with digital distractions, these shows will help you indulge, develop or rekindle a love for reading.`\
-https://nytimes.com/2025/12/27/arts/book-podcasts.html
-
-**Park Chan-wook and the Funny Thing About Stomach-Churning Horror**\
-`When American studios wouldn’t back his film about a laid-off manager committing gruesome murders, the director returned to Korea. Now he has a hit on his hands.`\
-https://nytimes.com/2025/12/27/movies/park-chan-wook-no-other-choice-korea.html
 
