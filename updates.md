@@ -1,3 +1,15 @@
+**Why it is time for Federico Chiesa to seize the moment at Liverpool**\
+`The Italian is yet to start a game for Arne Slot's side in 2025-26 – but his relentless industry could be just what the team needs right now`\
+https://nytimes.com/athletic/6919550/2025/12/27/chiesa-liverpool-premier-league-slot-starts/
+
+**Before This Physicist Studied the Stars, He Was One**\
+`Brian Cox once toured as a keyboardist in major rock and pop bands. Now he’s a particle physicist on a new world tour with a dazzling show he designed in an era of science disinformation and denial.`\
+https://nytimes.com/2025/12/27/world/europe/brian-cox-astronomy-profile.html
+
+**Connections: Sports Edition Coach: Hints for Dec. 27, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6920798/2025/12/27/connections-sports-edition-hints-for-dec-27-2025/
+
 **Corrections: December 27, 2025**\
 `Corrections that appeared in print on Saturday, December 27, 2025.`\
 https://nytimes.com/2025/12/26/pageoneplus/corrections-december-27-2025.html
