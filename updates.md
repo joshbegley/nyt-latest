@@ -1,3 +1,7 @@
+**Here are all the ways rich schools are getting around the college football spending cap**\
+`The revenue-sharing salary cap is a boon to plenty of schools. For the richest ones, workarounds are already in play.`\
+https://nytimes.com/athletic/6914668/2025/12/27/college-nil-revenue-sharing-house-settlement-coaches/
+
 **Good Calls**\
 `This week, we close out the year with your best advice of 2025.`\
 https://nytimes.com/2025/12/27/briefing/good-calls.html
