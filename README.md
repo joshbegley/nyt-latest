@@ -1,3 +1,7 @@
+**Man Utd Women sign Lundkvist after release from the Wave**\
+`The defender was out of contract after leaving the San Diego Wave.`\
+https://nytimes.com/athletic/6904641/2025/12/27/hanna-lundkvist-man-utd-women/
+
 **Which NHL player should each team target in a trade after the holiday freeze?**\
 `With the league's holiday roster freeze almost over, it's a good time to start thinking about which players make sense for different teams.`\
 https://nytimes.com/athletic/6917958/2025/12/27/nhl-trade-targets-players-teams-holiday/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6920448/2025/12/27/kyle-whittingham-michigan-old-ag
 **I Love My Naturally Aging Face**\
 `But when I see Demi Moore, 63, looking far younger than me at 48, I wonder if I should be figuring out a way to keep up.`\
 https://nytimes.com/2025/12/27/opinion/aging-botox-cosmetic-surgery.html
-
-**The 1 Percent Solution to the Looming A.I. Job Crisis**\
-`Companies benefiting from A.I. should donate a small percentage of their profits to retrain the workers the tech will displace.`\
-https://nytimes.com/2025/12/27/opinion/artificial-intelligence-jobs-worker-training.html
 
