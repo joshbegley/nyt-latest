@@ -1,3 +1,7 @@
+**The Pulse: What brought us joy**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6920822/2025/12/27/what-brought-all-of-us-joy-in-2025/
+
 **Scoop City: Fantasy tips to win your title**\
 `It's championship time. Lock in. Here's how to win your title.`\
 https://nytimes.com/athletic/6920766/2025/12/27/everything-fantasy-football-managers-need-to-know-for-week-17/
