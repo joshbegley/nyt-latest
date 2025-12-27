@@ -1,3 +1,7 @@
+**At Least 3 Wounded in Shooting at an Idaho Sheriff’s Office**\
+`The shooting happened at the Shoshone County Sheriff’s Office in Wallace, Idaho, on Friday. The gunman was killed by the police, the authorities said.`\
+https://nytimes.com/2025/12/26/us/active-shooter-wallace-idaho.html
+
 **What Many Wine Corks Do**\
 `Katie Hoody sweeps up solvers in a buoyant themeless puzzle`\
 https://nytimes.com/2025/12/26/crosswords/daily-puzzle-2025-12-27.html
