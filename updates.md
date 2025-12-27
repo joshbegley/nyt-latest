@@ -1,3 +1,7 @@
+**Man Utd Women sign Lundkvist after release from the Wave**\
+`The defender was out of contract after leaving the San Diego Wave.`\
+https://nytimes.com/athletic/6904641/2025/12/27/hanna-lundkvist-man-utd-women/
+
 **Which NHL player should each team target in a trade after the holiday freeze?**\
 `With the league's holiday roster freeze almost over, it's a good time to start thinking about which players make sense for different teams.`\
 https://nytimes.com/athletic/6917958/2025/12/27/nhl-trade-targets-players-teams-holiday/
