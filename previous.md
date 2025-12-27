@@ -1,3 +1,11 @@
+**The Briefing: Chelsea 1 Aston Villa 2 - How did Emery subs change game? Does Garnacho deserve Maresca's faith?**\
+`We analyse the talking points from Stamford Bridge as Aston Villa came from behind to extend their winning run to eight matches`\
+https://nytimes.com/athletic/6919601/2025/12/27/chelsea-1-aston-villa-2-maresca-emery-watkins-garnacho/
+
+**How Oil, Drugs and Immigration Fueled Trump’s Venezuela Campaign**\
+`New details of deliberations show how aides with overlapping agendas drove the United States toward a militarized confrontation with Venezuela.`\
+https://nytimes.com/2025/12/27/us/politics/venezuela-trump-maduro-oil-boat-strikes-immigration.html
+
 **Referee Bill Kennedy's coach's challenge verdicts becoming must-see TV**\
 `Veteran official Bill Kennedy's signature style of announcing challenge results has become a storyline in the NBA.`\
 https://nytimes.com/athletic/6921347/2025/12/27/nba-refereee-bill-kennedy-coach-challenge-verdict/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6921463/2025/12/27/bucks-vs-bulls-stream-how-to-wat
 **How to watch Jazz vs. Spurs: Time, TV, streaming**\
 `Find out how to watch the Utah Jazz play the San Antonio Spurs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6921461/2025/12/27/jazz-vs-spurs-stream-how-to-watch-dec-27/
-
-**How to watch Wild vs. Jets: Time, TV, streaming**\
-`Find out how to watch the Minnesota Wild play the Winnipeg Jets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6921459/2025/12/27/wild-vs-jets-stream-how-to-watch-dec-27/
-
-**How to watch Predators vs. Blues: Time, TV, streaming**\
-`Find out how to watch the Nashville Predators play the St. Louis Blues, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6921457/2025/12/27/predators-vs-blues-stream-how-to-watch-dec-27/
 
