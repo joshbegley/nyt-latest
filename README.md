@@ -1,3 +1,7 @@
+**Russia Attacks Kyiv Ahead of Trump-Zelensky Meeting**\
+`The assault began at around 1:30 a.m. local time and was continuing into the morning.`\
+https://nytimes.com/2025/12/27/world/europe/kyiv-ukraine-russia-trump-zelensky.html
+
 **Sources: Giannis Antetokounmpo expected to return from calf injury Saturday vs. Bulls**\
 `Antetokounmpo, who hasn't played since Dec. 3 due to a calf strain, is expected to play against Chicago. The Bucks went 2-6 in his absence.`\
 https://nytimes.com/athletic/6920843/2025/12/27/giannis-antetokounmpo-injury-status-bucks-calf-return/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6911907/2025/12/27/afcon-2025-why-are-east-african-
 **Why it is time for Federico Chiesa to seize the moment at Liverpool**\
 `The Italian is yet to start a game for Arne Slot's side in 2025-26 – but his relentless industry could be just what the team needs right now`\
 https://nytimes.com/athletic/6919550/2025/12/27/chiesa-liverpool-premier-league-slot-starts/
-
-**Before This Physicist Studied the Stars, He Was One**\
-`Brian Cox once toured as a keyboardist in major rock and pop bands. Now he’s a particle physicist on a new world tour with a dazzling show he designed in an era of science disinformation and denial.`\
-https://nytimes.com/2025/12/27/world/europe/brian-cox-astronomy-profile.html
 
