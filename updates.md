@@ -1,3 +1,7 @@
+**Annette Dionne, Last of the Celebrated Quintuplets, Dies at 91**\
+`She was the first to crawl, the first to cut a tooth, the first to recognize her name, and the last to die. And, like her sisters, she resented being exploited as part of a global sensation.`\
+https://nytimes.com/2025/12/26/world/canada/annette-dionne-dead.html
+
 **Perry Bamonte, Guitarist and Keyboardist in the Cure, Dies at 65**\
 `A former roadie, Mr. Bamonte joined the band in 1990. He played on five albums and in hundreds of shows and was “a vital part of the Cure story,” the band said.`\
 https://nytimes.com/2025/12/26/arts/music/perry-bamonte-dead.html

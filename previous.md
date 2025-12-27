@@ -1,3 +1,7 @@
+**Annette Dionne, Last of the Celebrated Quintuplets, Dies at 91**\
+`She was the first to crawl, the first to cut a tooth, the first to recognize her name, and the last to die. And, like her sisters, she resented being exploited as part of a global sensation.`\
+https://nytimes.com/2025/12/26/world/canada/annette-dionne-dead.html
+
 **Perry Bamonte, Guitarist and Keyboardist in the Cure, Dies at 65**\
 `A former roadie, Mr. Bamonte joined the band in 1990. He played on five albums and in hundreds of shows and was “a vital part of the Cure story,” the band said.`\
 https://nytimes.com/2025/12/26/arts/music/perry-bamonte-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6920346/2025/12/26/colts-sauce-gardner-deforest-buc
 **The Evolution of the Women in ‘The Great Gatsby’**\
 `In the final week of the 100th anniversary of “The Great Gatsby,” Wesley Morris, the host of ‘Cannonball,’ talks to the novelist Min Jin Lee and Gilbert Cruz, editor of The New York Times Book Review, about why all three of them have found themselves in a decades-long relationship with this book.`\
 https://nytimes.com/video/podcasts/100000010606956/the-evolution-of-the-women-in-the-great-gatsby.html
-
-**How ‘The Great Gatsby’ Captures the American Dream**\
-`In the final week of the 100th anniversary of “The Great Gatsby,” Wesley Morris, the host of ‘Cannonball,’ talks to the novelist Min Jin Lee and Gilbert Cruz, editor of The New York Times Book Review, about why all three of them have found themselves in a decades-long relationship with this book.`\
-https://nytimes.com/video/podcasts/100000010606902/how-the-great-gatsby-captures-the-american-dream.html
 
