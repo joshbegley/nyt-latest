@@ -1,3 +1,7 @@
+**Ankle injury to sideline Knicks' Josh Hart for at least the next three games**\
+`New York will also miss Hart's ability to push the pace in transition as the Knicks struggle to consistently play fast.`\
+https://nytimes.com/athletic/6921995/2025/12/27/josh-hart-ankle-injury-out-three-games-knicks/
+
 **Off Broadway Musical**\
 `An Alex Eaton-Salners puzzle on a Sunday? Jazz hands!`\
 https://nytimes.com/2025/12/27/crosswords/daily-puzzle-2025-12-28.html
