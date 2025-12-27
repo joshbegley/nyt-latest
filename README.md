@@ -1,3 +1,7 @@
+**Raiders' Maxx Crosby expected to need knee surgery: Source**\
+`The Raiders announced that they were placing the five-time Pro Bowler on injured reserve Saturday, ending his season with two games to go.`\
+https://nytimes.com/athletic/6921862/2025/12/27/maxx-crosby-knee-surgery-raiders-out-season/
+
 **Gary Graffman, Piano Virtuoso and Renowned Teacher, Dies at 97**\
 `Mr. Graffman was a onetime child prodigy whose career was curtailed by a neurological condition that restricted him to his left hand.`\
 https://nytimes.com/2025/12/27/arts/music/gary-graffman-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6921722/2025/12/27/oilers-vs-flames-stream-how-to-w
 **Cubs reach agreement with reliever Hunter Harvey: Sources**\
 `The Cubs are hoping to capitalize on an upside play with Harvey, who has dealt with injuries but has excellent stuff when healthy.`\
 https://nytimes.com/athletic/6921585/2025/12/27/chicago-cubs-hunter-harvey/
-
-**A Second Lawsuit Accuses Tyler Perry of Sexual Assault**\
-`Mario Rodriguez, who had a role in one of Mr. Perry’s films, sued him on Thursday, months after another actor filed a similar lawsuit.`\
-https://nytimes.com/2025/12/27/arts/tyler-perry-mario-rodriguez-sexual-assault-lawsuit.html
 
