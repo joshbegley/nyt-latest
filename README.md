@@ -1,3 +1,15 @@
+**How a ‘Hamilton’ Star Spends a Day at His Brooklyn Bar**\
+`Anthony Ramos loves hanging out with customers during busy days that may find him writing a new musical, catching a friend in a show or performing in his own.`\
+https://nytimes.com/2025/12/27/nyregion/anthony-ramos-hamilton.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/12/27/crosswords/spelling-bee-forum.html
+
+**Another Front in the Trump Immigration Crackdown: Import Warehouses**\
+`Workers at facilities that stock shipped goods say customs officers who inspect merchandise are helping immigration agents arrest migrants.`\
+https://nytimes.com/2025/12/27/nyregion/immigration-arrests-import-warehouses-new-jersey.html
+
 **What’s this trip about? Here’s an overview.**\
 `(No description)`\
 https://nytimes.com/live/2025/climate/antarctica-thwaites-glacier/trip-overview-video
@@ -25,16 +37,4 @@ https://nytimes.com/issue/todayspaper/2025/12/27/todays-new-york-times
 **Kennedy Center Chief Threatens Legal Action Over Canceled Christmas Concert**\
 `The musician Chuck Redd called off the annual Christmas Eve performances after the Kennedy Center board added President Trump’s name to the performing arts center.`\
 https://nytimes.com/2025/12/27/us/kennedy-center-concert-lawsuit.html
-
-**Eddie Howe and a miserable milestone to reflect Newcastle's troubled campaign**\
-`The Newcastle head coach oversaw his 200th match, but there was little cause for celebration as familiar failings reared at Old Trafford`\
-https://nytimes.com/athletic/6920584/2025/12/27/eddie-howe-newcastle-season-200-manchester-united/
-
-**How much is every Premier League club worth?**\
-`Our calculations suggest the most valuable Premier League club is worth 20 times as much as the least. Why?`\
-https://nytimes.com/athletic/6823690/2025/12/27/how-much-is-every-premier-league-club-worth/
-
-**Why are east African teams so far behind other nations?**\
-`Uganda and Tanzania play on December 27 but Kenya and Ethiopia are watching the Africa Cup of Nations from home`\
-https://nytimes.com/athletic/6911907/2025/12/27/afcon-2025-why-are-east-african-teams-so-far-behind-other-nations/
 
