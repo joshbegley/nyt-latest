@@ -1,3 +1,7 @@
+**Canada wins tense rematch with Czechia on Day 1: World Juniors takeaways**\
+`The World Juniors kicked off on Boxing Day with a four-pack of games featuring the tournament's presumptive top five teams.`\
+https://nytimes.com/athletic/6919745/2025/12/26/world-juniors-canada-czechia-score-results-stats/
+
 **Thailand and Cambodia Reach Cease-Fire in Brutal Border War**\
 `The 72-hour cease-fire could pave the way for an end to the fighting, which has killed dozens and displaced thousands over nearly three weeks.`\
 https://nytimes.com/2025/12/26/world/asia/thailand-cambodia-cease-fire-border-war.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6920650/2025/12/26/how-to-watch-miami-fl-vs-no-3-oh
 **What Went Wrong Before Hong Kong’s Apartment Inferno**\
 `Records show how government departments played down residents’ warnings about corrupt practices and substandard materials that fueled the deadly blaze.`\
 https://nytimes.com/2025/12/26/world/asia/hong-kong-apartment-fire-corruption.html
-
-**Crosby to miss Raiders' game vs. Giants despite pushback, Carroll says**\
-`Crosby, who has missed just five games over his seven-year Raiders career, left the facility after hearing that he wasn't playing Sunday.`\
-https://nytimes.com/athletic/6920492/2025/12/26/maxx-crosby-raiders-sit-out-pushes-back/
 
