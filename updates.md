@@ -1,3 +1,7 @@
+**She Studied the Health Effects of Wildfires**\
+`Marina Vance had an E.P.A. grant to help homeowners counter the impact of wildfire smoke, until the agency deemed the research “no longer consistent” with its priorities.`\
+https://nytimes.com/2025/12/27/science/trump-lostsci-wildfires-vance.html
+
 **Got an Air Fryer? We Have Recipes.**\
 `Salmon fillets, chicken wings, green beans and broccoli all cook to quick perfection with these trusted air-fryer recipes.`\
 https://nytimes.com/2025/12/27/dining/got-an-air-fryer-we-have-recipes.html

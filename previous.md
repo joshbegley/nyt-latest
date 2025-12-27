@@ -1,3 +1,7 @@
+**She Studied the Health Effects of Wildfires**\
+`Marina Vance had an E.P.A. grant to help homeowners counter the impact of wildfire smoke, until the agency deemed the research “no longer consistent” with its priorities.`\
+https://nytimes.com/2025/12/27/science/trump-lostsci-wildfires-vance.html
+
 **Got an Air Fryer? We Have Recipes.**\
 `Salmon fillets, chicken wings, green beans and broccoli all cook to quick perfection with these trusted air-fryer recipes.`\
 https://nytimes.com/2025/12/27/dining/got-an-air-fryer-we-have-recipes.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6919570/2025/12/27/man-city-cherki-forest/
 **Saudi-Led Group in Yemen Tells Separatists to Withdraw, or Be ‘Dealt With’**\
 `The Saudis ramped up their rhetoric against a faction that has seized parts of Yemen in recent weeks.`\
 https://nytimes.com/2025/12/27/world/middleeast/yemen-saudi-arabia-airstrikes.html
-
-**49ers offensive line hitting its stride during 5-game win streak**\
-`After a rough start, the 49ers' offensive line has steadily improved and is now finishing the season strong.`\
-https://nytimes.com/athletic/6920635/2025/12/27/49ers-offensive-line-win-streak-nfl/
 
