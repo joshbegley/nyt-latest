@@ -1,3 +1,7 @@
+**Back to school: Joe Mazzulla wants young team to keep learning at 'Celtic University'**\
+`Recognizing he couldn’t coach his new, much younger team the same way, Mazzulla tweaked some details of how his players receive information.`\
+https://nytimes.com/athletic/6920853/2025/12/27/joe-mazzulla-keep-learning-celtic-university/
+
 **How to watch Mavericks vs. Kings: Time, TV, streaming**\
 `Find out how to watch the Dallas Mavericks play the Sacramento Kings, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6921205/2025/12/27/mavericks-vs-kings-stream-how-to-watch-dec-27/
