@@ -1,3 +1,7 @@
+**Heaven is taking his chance at United, just when Amorim needs him most**\
+`Gradual improvement has been the story of Heaven’s reintroduction over these past five games`\
+https://nytimes.com/athletic/6920770/2025/12/27/ayden-heaven-man-united-ruben-amorim/
+
 **Sources: Giannis Antetokounmpo expected to return from calf injury Saturday vs. Bulls**\
 `Antetokounmpo, who hasn't played since Dec. 3 due to a calf strain, is expected to play against Chicago. The Bucks went 2-6 in his absence.`\
 https://nytimes.com/athletic/6920843/2025/12/27/giannis-antetokounmpo-injury-status-bucks-calf-return/
