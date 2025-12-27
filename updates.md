@@ -1,3 +1,7 @@
+**Grand Jury Declines to Indict Parent Who Fatally Shot Kentucky Student**\
+`The grand jury received testimony that the man had acted to defend his son, who had faced bullying before the shooting, a local prosecutor said.`\
+https://nytimes.com/2025/12/26/us/kentucky-state-shooting-murder-charge.html
+
 **Why We Are Going to the Fastest-Melting Glacier**\
 `How much time does the Thwaites Glacier in Antarctica have left? Our reporter Raymond Zhong and our photographer Chang W. Lee are joining scientists and engineers who measure how much sea levels could rise as a result of melting ice.`\
 https://nytimes.com/video/climate/100000010542247/why-we-are-going-to-the-fastest-melting-glacier.html

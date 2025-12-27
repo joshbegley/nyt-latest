@@ -16,7 +16,7 @@ https://nytimes.com/2025/12/26/us/active-shooter-wallace-idaho.html
 
 **How to watch Miami (FL) vs. Ohio State: CFP Quarterfinal Start Time, TV, streaming**\
 `Find out how to watch the Miami (FL) Hurricanes play the Ohio State Buckeyes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6920650/2025/12/26/miami-fl-vs-ohio-state-stream-how-to-watch-dec-31/
+https://nytimes.com/athletic/6920650/2025/12/26/how-to-watch-miami-fl-vs-no-3-ohio-state-cfp-quarterfinal-tv-channel-and-streaming-options-for-december-31/
 
 **What Went Wrong Before Hong Kong’s Apartment Inferno**\
 `Records show how government departments played down residents’ warnings about corrupt practices and substandard materials that fueled the deadly blaze.`\
