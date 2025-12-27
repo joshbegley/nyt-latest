@@ -1,3 +1,15 @@
+**New Yorkers Wake Up to Snow, Though Not as Much as Forecast**\
+`Predictions were revised down on Friday. Central Park still saw more than 2 inches of snow, with higher totals outside of New York City.`\
+https://nytimes.com/2025/12/27/nyregion/new-york-city-snow-storm.html
+
+**History is not on Aaron Glenn's side**\
+`Glenn has preached patience. But head coaches who endured a first season like his have rarely found their way to success.`\
+https://nytimes.com/athletic/6919669/2025/12/27/aaron-glenn-new-york-jets-turnaround/
+
+**Divisional races, Super Bowl preview, Toilet Bowl highlight NFL Week 17 storylines**\
+`At one end of the spectrum is Sunday's matchup between the Eagles and Bills. And then there's the Giants-Raiders battle for the No. 1 pick.`\
+https://nytimes.com/athletic/6915888/2025/12/27/nfl-week-17-top-storylines-eagles-bills-giants-raiders/
+
 **Antarctic bound on a search for clues to Earth’s future**\
 `As vast, wild and beyond our comprehending as Antarctica may seem, its melting ice could decide the fates of coastal communities for centuries to come`\
 https://nytimes.com/live/2025/climate/antarctica-thwaites-glacier/antarctic-bound-on-a-search-for-clues-to-earths-future
@@ -25,16 +37,4 @@ https://nytimes.com/2025/12/27/movies/park-chan-wook-no-other-choice-korea.html
 **I Broke the Lease on an Illegal Rental. Can I Get My Security Deposit Back?**\
 `Absent a certificate of occupancy, the landlord is generally prohibited from recovering rent — but the specifics of your case matter.`\
 https://nytimes.com/2025/12/27/realestate/i-broke-the-lease-on-an-illegal-rental-can-i-get-my-security-deposit-back.html
-
-**Doctors Think Ovaries, Not Just Eggs, Are Factors in Fertility and Aging**\
-`Recent research highlights that the egg may be the leading lady, but she needs her supporting cast.`\
-https://nytimes.com/2025/12/27/health/eggs-ovaries-fertility-aging.html
-
-**More Student Loan Borrowers Are Shedding Debts in Bankruptcy**\
-`A new study suggests that distressed borrowers using a simpler bankruptcy process are succeeding — and that more people like them should try.`\
-https://nytimes.com/2025/12/27/business/student-loans-bankruptcy.html
-
-**Grand Slam classics, rising talents and a terrible poker face: Women's tennis in 2025**\
-`The best matches, biggest surprises, and most important storylines of 2025 on the WTA Tour.`\
-https://nytimes.com/athletic/6899239/2025/12/27/womens-tennis-season-review-best-players-matches-2025/
 
