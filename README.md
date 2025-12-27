@@ -1,3 +1,7 @@
+**How to watch Miami (FL) vs. Ohio State: CFP Quarterfinal Start Time, TV, streaming**\
+`Find out how to watch the Miami (FL) Hurricanes play the Ohio State Buckeyes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6920650/2025/12/26/miami-fl-vs-ohio-state-stream-how-to-watch-dec-31/
+
 **What Went Wrong Before Hong Kong’s Apartment Inferno**\
 `Records show how government departments played down residents’ warnings about corrupt practices and substandard materials that fueled the deadly blaze.`\
 https://nytimes.com/2025/12/26/world/asia/hong-kong-apartment-fire-corruption.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6918693/2025/12/26/manchester-united-newcastle-prem
 **As Nebraska's bowl week begins, Huskers' 2026 reset is also underway**\
 `When the calendar flips, it’s time to move on. Opportunity awaits. The Huskers’ January objectives: retain, refine and improve the roster.`\
 https://nytimes.com/athletic/6920332/2025/12/26/nebraska-football-las-vegas-bowl-2026-future/
-
-**A Wealth Tax Floated in California Has Billionaires Thinking of Leaving**\
-`It’s uncertain whether the proposal will reach the statewide ballot in November, but some billionaires like Peter Thiel and Larry Page may be unwilling to take the risk.`\
-https://nytimes.com/2025/12/26/technology/california-wealth-tax-page-thiel.html
 
