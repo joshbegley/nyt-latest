@@ -1,3 +1,7 @@
+**Saudi-led Group in Yemen Tells Separatists to Withdraw, or Be ‘Dealt With’**\
+`The Saudis ramped up their rhetoric against a faction that has seized parts of Yemen in recent weeks.`\
+https://nytimes.com/2025/12/27/world/middleeast/yemen-saudi-arabia-airstrikes.html
+
 **49ers offensive line hitting its stride during 5-game win streak**\
 `After a rough start, the 49ers' offensive line has steadily improved and is now finishing the season strong.`\
 https://nytimes.com/athletic/6920635/2025/12/27/49ers-offensive-line-win-streak-nfl/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6917958/2025/12/27/nhl-trade-targets-players-teams-
 **An Ashes Test victory in Australia. At last**\
 `The two-day success at the MCG has staved off the threat of another 5-0 humiliation and provided England with some much-needed positives`\
 https://nytimes.com/athletic/6920924/2025/12/27/england-australia-ashes-test-stokes-root-2011/
-
-**In World Juniors snub, Blues prospect Justin Carbonneau finds 'fuel' to improve**\
-`The 2025 No. 19 pick has 25 goals in 27 games this season, but being passed over by Canada reinforced a need to improve defensively.`\
-https://nytimes.com/athletic/6879993/2025/12/27/world-juniors-snub-justin-carbonneau/
 

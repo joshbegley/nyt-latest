@@ -1,3 +1,7 @@
+**49ers offensive line hitting its stride during 5-game win streak**\
+`After a rough start, the 49ers' offensive line has steadily improved and is now finishing the season strong.`\
+https://nytimes.com/athletic/6920635/2025/12/27/49ers-offensive-line-win-streak-nfl/
+
 **The Pulse: What brought us joy**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6920822/2025/12/27/what-brought-all-of-us-joy-in-2025/
