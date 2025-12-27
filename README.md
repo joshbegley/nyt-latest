@@ -1,3 +1,7 @@
+**The Pulse: What brought us joy**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6920822/2025/12/27/what-brought-all-of-us-joy-in-2025/
+
 **Scoop City: Fantasy tips to win your title**\
 `It's championship time. Lock in. Here's how to win your title.`\
 https://nytimes.com/athletic/6920766/2025/12/27/everything-fantasy-football-managers-need-to-know-for-week-17/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6879993/2025/12/27/world-juniors-snub-justin-carbon
 **What happened to the Bruins? Goaltending, structure, discipline absent**\
 `The Bruins have skidded to sixth in the Atlantic and out of the top eight in the East. They need to right the ship quickly post-break.`\
 https://nytimes.com/athletic/6920210/2025/12/27/bruins-goaltending-structure-discipline/
-
-**Would You Kill for a Job?**\
-`A Korean film resonates in a moment when America has its highest unemployment rate since 2021.`\
-https://nytimes.com/2025/12/27/opinion/no-other-choice-work-unemployment.html
 
