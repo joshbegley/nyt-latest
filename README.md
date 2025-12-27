@@ -35,6 +35,6 @@ https://nytimes.com/2025/12/26/pageoneplus/corrections-december-27-2025.html
 https://nytimes.com/2025/12/26/pageoneplus/quote-of-the-day-it-was-lighter-than-a-token-now-its-litter.html
 
 **Karoline Leavitt Says She’s Expecting Her Second Child**\
-`The White House press secretary announced on Instagram that she was pregnant with a daughter who was due in May. She and her husband have a 1-year-old son.`\
+`The White House press secretary announced on Instagram that she was pregnant with a daughter who is due in May. She and her husband have a 1-year-old son.`\
 https://nytimes.com/2025/12/26/us/karoline-leavitt-says-shes-expecting-her-second-child.html
 
