@@ -1,3 +1,7 @@
+**Arteta says injury issues uniting Arsenal after Timber, Calafiori absences**\
+`The league leaders are still without Ben White and Cristhian Mosquera but Gabriel came on to make his first appearance since November.`\
+https://nytimes.com/athletic/6921474/2025/12/27/timber-calafiori-arsenal-injury-update/
+
 **How to watch Oregon vs. Texas Tech: CFP Quarterfinal Start Time, TV, streaming**\
 `Find out how to watch the Oregon Ducks play the Texas Tech Red Raiders, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6921479/2025/12/27/oregon-vs-texas-tech-stream-how-to-watch-jan-1/

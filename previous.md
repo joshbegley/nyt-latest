@@ -1,3 +1,7 @@
+**Arteta says injury issues uniting Arsenal after Timber, Calafiori absences**\
+`The league leaders are still without Ben White and Cristhian Mosquera but Gabriel came on to make his first appearance since November.`\
+https://nytimes.com/athletic/6921474/2025/12/27/timber-calafiori-arsenal-injury-update/
+
 **How to watch Oregon vs. Texas Tech: CFP Quarterfinal Start Time, TV, streaming**\
 `Find out how to watch the Oregon Ducks play the Texas Tech Red Raiders, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6921479/2025/12/27/oregon-vs-texas-tech-stream-how-to-watch-jan-1/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6921454/2025/12/27/bruins-vs-sabres-stream-how-to-w
 **How to watch Cavaliers vs. Rockets: Time, TV, streaming**\
 `Find out how to watch the Cleveland Cavaliers play the Houston Rockets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6921452/2025/12/27/cavaliers-vs-rockets-stream-how-to-watch-dec-27/
-
-**How to watch Senators vs. Maple Leafs: Time, TV, streaming**\
-`Find out how to watch the Ottawa Senators play the Toronto Maple Leafs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6921450/2025/12/27/senators-vs-maple-leafs-stream-how-to-watch-dec-27/
 
