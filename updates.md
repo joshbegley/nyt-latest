@@ -1,3 +1,7 @@
+**Saudi-led Group in Yemen Tells Separatists to Withdraw, or Be ‘Dealt With’**\
+`The Saudis ramped up their rhetoric against a faction that has seized parts of Yemen in recent weeks.`\
+https://nytimes.com/2025/12/27/world/middleeast/yemen-saudi-arabia-airstrikes.html
+
 **49ers offensive line hitting its stride during 5-game win streak**\
 `After a rough start, the 49ers' offensive line has steadily improved and is now finishing the season strong.`\
 https://nytimes.com/athletic/6920635/2025/12/27/49ers-offensive-line-win-streak-nfl/
