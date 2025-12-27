@@ -1,5 +1,9 @@
 **She Studied the Health Effects of Wildfires**\
 `Marina Vance had an E.P.A. grant to help homeowners counter the impact of wildfire smoke, until the agency deemed the research “no longer consistent” with its priorities.`\
+https://nytimes.com/2025/12/27/science/trump-wildfires-vance-epa.html
+
+**She Studied the Health Effects of Wildfires**\
+`Marina Vance had an E.P.A. grant to help homeowners counter the impact of wildfire smoke, until the agency deemed the research “no longer consistent” with its priorities.`\
 https://nytimes.com/2025/12/27/science/trump-lostsci-wildfires-vance.html
 
 **Got an Air Fryer? We Have Recipes.**\
