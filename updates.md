@@ -1,3 +1,11 @@
+**Off Broadway Musical**\
+`An Alex Eaton-Salners puzzle on a Sunday? Jazz hands!`\
+https://nytimes.com/2025/12/27/crosswords/daily-puzzle-2025-12-28.html
+
+**Joseph Hartzler Dies at 75; Led Prosecution of Oklahoma City Bomber**\
+`He and his team secured the conviction of Timothy McVeigh, who in 1995 committed the deadliest domestic terror attack in American history.`\
+https://nytimes.com/2025/12/27/us/joseph-hartzler-dead.html
+
 **New York City Hit With Heaviest Snowfall in Years**\
 `A winter storm blanketed the Greater New York area, leading to more than 400 flight cancellations across the region’s major airports. Parts of Long Island saw up to nine inches of snow.`\
 https://nytimes.com/video/nyregion/100000010611680/ny-region-new-york-city-snow-storm.html
