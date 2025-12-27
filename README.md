@@ -1,3 +1,7 @@
+**Antarctic bound on a search for clues to Earth’s future**\
+`As vast, wild and beyond our comprehending as Antarctica may seem, its melting ice could decide the fates of coastal communities for centuries to come`\
+https://nytimes.com/live/2025/climate/antarctica-thwaites-glacier/antarctic-bound-on-a-search-for-clues-to-earths-future
+
 **How ‘Marty Supreme’ Got Table Tennis Right**\
 `The director Josh Safdie had a personal connection to 1950s players, but he also enlisted professionals to choreograph the action and employed a visual trick.`\
 https://nytimes.com/2025/12/27/movies/marty-supreme-table-tennis.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/27/business/student-loans-bankruptcy.html
 **Grand Slam classics, rising talents and a terrible poker face: Women's tennis in 2025**\
 `The best matches, biggest surprises, and most important storylines of 2025 on the WTA Tour.`\
 https://nytimes.com/athletic/6899239/2025/12/27/womens-tennis-season-review-best-players-matches-2025/
-
-**Before Electric Vehicles Became Political, There Was the Toyota Prius**\
-`The political polarization of battery-powered cars may have started when Toyota released its first hybrid model 25 years ago.`\
-https://nytimes.com/2025/12/27/business/electric-vehicles-poilitics-republicans-conservatives.html
 
