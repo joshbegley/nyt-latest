@@ -1,3 +1,7 @@
+**On this day 25 years ago, Mario Lemieux stated his case as only he could**\
+`Lemieux's return to the NHL on Dec. 27, 2000, after nearly four years away from the game, may have changed his legacy.`\
+https://nytimes.com/athletic/6921315/2025/12/27/mario-lemieux-penguins-nhl-legacy/
+
 **Diego Pavia's eligibility lawsuit opens with poem, cites NBA draftee headed to Baylor**\
 `Diego Pavia is challenging an NCAA rule that counts athletes' junior-college years against their NCAA eligibility.`\
 https://nytimes.com/athletic/6921697/2025/12/27/diego-pavia-ncaa-elibigility-lawsuit-poem/
