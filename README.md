@@ -1,4 +1,4 @@
-**The Briefing: Liverpool 2 Wolves 1 - Was Florian Wirtz goal worth the wait? Are set-pieces still a concern?**\
+**The Briefing: Liverpool 2 Wolves 1 - Was Florian Wirtz goal worth the wait? Are set pieces still a concern?**\
 `The Athletic's writers break down the key talking points from Saturday's game at Anfield`\
 https://nytimes.com/athletic/6919572/2025/12/27/liverpool-wolves-premier-league-analysis/
 
