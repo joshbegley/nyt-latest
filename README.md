@@ -1,3 +1,7 @@
+**Maple Leafs are rolling out a new power play in the wake of Marc Savard's firing**\
+`Head coach Craig Berube said the Leafs were looking for a new voice and different setups.`\
+https://nytimes.com/athletic/6921306/2025/12/27/maple-leafs-power-play-marc-savard-firing/
+
 **The Briefing: Liverpool 2 Wolves 1 - Was Florian Wirtz goal worth the wait? Are set pieces still a concern?**\
 `The Athletic's writers break down the key talking points from Saturday's game at Anfield`\
 https://nytimes.com/athletic/6919572/2025/12/27/liverpool-wolves-premier-league-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6921271/2025/12/27/charlotte-fc-transfer-sign-luca-
 **Trump Remakes America as Leader of the Brand**\
 `In attaching his name to buildings and programs while still president, Donald Trump is walking a path paved by conquerors and autocrats.`\
 https://nytimes.com/2025/12/27/us/politics/trump-renaming.html
-
-**Sesame Scallion Buns, and More Savory Bakes**\
-`Because I’m sugared out, but I still want the warmth and aroma of golden dough baking in the oven.`\
-https://nytimes.com/2025/12/27/dining/sesame-scallion-buns-and-more-savory-bakes.html
 
