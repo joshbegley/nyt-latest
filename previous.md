@@ -1,3 +1,11 @@
+**Corrections: December 27, 2025**\
+`Corrections that appeared in print on Saturday, December 27, 2025.`\
+https://nytimes.com/2025/12/26/pageoneplus/corrections-december-27-2025.html
+
+**Quote of the Day: It Was Lighter Than a Token. Now It’s Litter.**\
+`Quotation of the Day for Saturday, December 27, 2025.`\
+https://nytimes.com/2025/12/26/pageoneplus/quote-of-the-day-it-was-lighter-than-a-token-now-its-litter.html
+
 **Karoline Leavitt Says She’s Expecting Her Second Child**\
 `The White House press secretary announced on Instagram that she was pregnant with a daughter who was due in May. She and her husband have a 1-year-old son.`\
 https://nytimes.com/2025/12/26/us/karoline-leavitt-says-shes-expecting-her-second-child.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/climate/100000010542247/why-we-are-going-to-the-fastes
 **Driver Livestreaming on TikTok Is Charged After Fatally Striking Pedestrian, Police Say**\
 `The driver, who is known to her followers as Tea Tyme, was charged with two felonies in connection with the crash last month, the police in Illinois said.`\
 https://nytimes.com/2025/12/26/us/tea-tyme-tiktok-accident-charges.html
-
-**At Least 3 Wounded in Shooting at an Idaho Sheriff’s Office**\
-`The shooting happened at the Shoshone County Sheriff’s Office in Wallace, Idaho, on Friday. The gunman was killed by the police, the authorities said.`\
-https://nytimes.com/2025/12/26/us/active-shooter-wallace-idaho.html
-
-**How to watch Miami (FL) vs. Ohio State: CFP Quarterfinal Start Time, TV, streaming**\
-`Find out how to watch the Miami (FL) Hurricanes play the Ohio State Buckeyes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6920650/2025/12/26/how-to-watch-miami-fl-vs-no-3-ohio-state-cfp-quarterfinal-tv-channel-and-streaming-options-for-december-31/
 
