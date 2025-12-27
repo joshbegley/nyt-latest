@@ -1,3 +1,7 @@
+**Referee Bill Kennedy's coach's challenge verdicts becoming must-see TV**\
+`Veteran official Bill Kennedy's signature style of announcing challenge results has become a storyline in the NBA.`\
+https://nytimes.com/athletic/6921347/2025/12/27/nba-refereee-bill-kennedy-coach-challenge-verdict/
+
 **Hundreds of Flights Canceled at New York Airports, Even With a Few Inches of Snow**\
 `To avoid the ripple effects of real-time adjustments to what was predicted to be up to nine inches of snow, the major airlines said they pre-emptively canceled flights.`\
 https://nytimes.com/2025/12/27/business/snowstorm-flight-cancel-new-york-airports.html
