@@ -1,3 +1,7 @@
+**Brighton captain Lewis Dunk triggers one-year contract extension**\
+`The 34-year-old defender secured a new deal with his 15th Premier League start of the campaign in the recent 2-0 defeat at Liverpool.`\
+https://nytimes.com/athletic/6921054/2025/12/27/brighton-lewis-dunk-contract-deal/
+
 **New Yorkers Wake Up to Snow, Though Not as Much as Forecast**\
 `Predictions were revised down on Friday. Central Park still saw more than 2 inches of snow, with higher totals outside of New York City.`\
 https://nytimes.com/2025/12/27/nyregion/new-york-city-snow-storm.html
