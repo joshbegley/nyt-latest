@@ -1,3 +1,7 @@
+**Off Broadway Musical**\
+`An Alex Eaton-Salners puzzle on a Sunday? Jazz hands!`\
+https://nytimes.com/2025/12/27/crosswords/daily-puzzle-2025-12-28.html
+
 **Joseph Hartzler Dies at 75; Led Prosecution of Oklahoma City Bomber**\
 `He and his team secured the conviction of Timothy McVeigh, who in 1995 committed the deadliest domestic terror attack in American history.`\
 https://nytimes.com/2025/12/27/us/joseph-hartzler-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/27/arts/music/gary-graffman-dead.html
 **Which NFL players are nearing contract incentives in Week 17?**\
 `If there's one player who has extra incentive to see his team's playoff seeding set by the end of Monday night, it's Mac Jones.`\
 https://nytimes.com/athletic/6921635/2025/12/27/stefon-diggs-2025-nfl-contract-incentives/
-
-**Mickey Lee, a Contestant on ‘Big Brother,’ Dies at 35**\
-`Ms. Lee, a party host in Atlanta, died from multiple cardiac arrests brought on by the flu, according to a social media post.`\
-https://nytimes.com/2025/12/27/arts/television/mickey-lee-dead.html
 
