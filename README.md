@@ -1,3 +1,11 @@
+**Eagles-Bills Super Bowl preview? Plus, Saquon Barkley calls Nick Sirianni NFL's best coach**\
+`This matchup between two Super Bowl favorites has been anticipated all season.`\
+https://nytimes.com/athletic/6920677/2025/12/27/eagles-bills-prediction-super-bowl-preview/
+
+**Injuries mount on Bills' defense, questions at WR remain ahead of Eagles matchup**\
+`The Bills will be facing a potent offense and run defense when they host the defending Super Bowl champion Eagles on Sunday.`\
+https://nytimes.com/athletic/6920325/2025/12/27/bills-eagles-injuries-defense/
+
 **Man Utd Women sign Lundkvist after release from the Wave**\
 `The defender was out of contract after leaving the San Diego Wave.`\
 https://nytimes.com/athletic/6904641/2025/12/27/hanna-lundkvist-man-utd-women/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/27/opinion/good-news.html
 **Trump’s First Year Back, in 10 Charts**\
 `Steven Rattner recaps the year of Trump in charts.`\
 https://nytimes.com/interactive/2025/12/27/opinion/year-in-charts-2025.html
-
-**Kyle Whittingham among college football's oldest hires. How have others fared?**\
-`The 66-year-old is the fourth-oldest coach to be hired at a Power Four school since 2005.`\
-https://nytimes.com/athletic/6920448/2025/12/27/kyle-whittingham-michigan-old-age-coaches/
-
-**I Love My Naturally Aging Face**\
-`But when I see Demi Moore, 63, looking far younger than me at 48, I wonder if I should be figuring out a way to keep up.`\
-https://nytimes.com/2025/12/27/opinion/aging-botox-cosmetic-surgery.html
 
