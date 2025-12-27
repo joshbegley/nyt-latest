@@ -1,3 +1,7 @@
+**Why We Are Going to the Fastest-Melting Glacier**\
+`How much time does the Thwaites Glacier in Antarctica have left? Our reporter Raymond Zhong and our photographer Chang W. Lee are joining scientists and engineers who measure how much sea levels could rise as a result of melting ice.`\
+https://nytimes.com/video/climate/100000010542247/why-we-are-going-to-the-fastest-melting-glacier.html
+
 **Driver Livestreaming on TikTok Is Charged After Fatally Striking Pedestrian, Police Say**\
 `The driver, who is known to her followers as Tea Tyme, was charged with two felonies in connection with the crash last month, the police in Illinois said.`\
 https://nytimes.com/2025/12/26/us/tea-tyme-tiktok-accident-charges.html
