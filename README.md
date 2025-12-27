@@ -1,3 +1,7 @@
+**JJ Redick, Lakers cool things down after Christmas blowout loss**\
+`The two-way conversation between players and coaches centered on Redick taking responsibility and reorganizing his priorities.`\
+https://nytimes.com/athletic/6922077/2025/12/27/lakers-jj-redick-christmas-day-tension-cool-down/
+
 **How to watch Alabama vs. Indiana: CFP Quarterfinal Start Time, TV, streaming**\
 `Find out how to watch the Alabama Crimson Tide play the Indiana Hoosiers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6922121/2025/12/27/alabama-vs-indiana-stream-how-to-watch-jan-1/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6921899/2025/12/27/patriots-mack-hollins-injured-re
 **On this day 25 years ago, Mario Lemieux stated his case as only he could**\
 `Lemieux's return to the NHL on Dec. 27, 2000, after nearly four years away from the game, may have changed his legacy.`\
 https://nytimes.com/athletic/6921315/2025/12/27/mario-lemieux-penguins-nhl-legacy/
-
-**Raiders' Maxx Crosby expected to need knee surgery: Source**\
-`The Raiders announced that they were placing the five-time Pro Bowler on injured reserve Saturday, ending his season with two games to go.`\
-https://nytimes.com/athletic/6921862/2025/12/27/maxx-crosby-knee-surgery-raiders-out-season/
 
