@@ -1,3 +1,11 @@
+**How to watch Mavericks vs. Kings: Time, TV, streaming**\
+`Find out how to watch the Dallas Mavericks play the Sacramento Kings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6921205/2025/12/27/mavericks-vs-kings-stream-how-to-watch-dec-27/
+
+**Forest 1 Man City 2 - How did Cherki help unlock Forest? Why is Guardiola naming same XI?**\
+`We break down the talking points from the Premier League game at the City Ground.`\
+https://nytimes.com/athletic/6919570/2025/12/27/man-city-cherki-forest/
+
 **Saudi-led Group in Yemen Tells Separatists to Withdraw, or Be ‘Dealt With’**\
 `The Saudis ramped up their rhetoric against a faction that has seized parts of Yemen in recent weeks.`\
 https://nytimes.com/2025/12/27/world/middleeast/yemen-saudi-arabia-airstrikes.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6920325/2025/12/27/bills-eagles-injuries-defense/
 **Man Utd Women sign Lundkvist after release from the Wave**\
 `The defender was out of contract after leaving the San Diego Wave.`\
 https://nytimes.com/athletic/6904641/2025/12/27/hanna-lundkvist-man-utd-women/
-
-**Which NHL player should each team target in a trade after the holiday freeze?**\
-`With the league's holiday roster freeze almost over, it's a good time to start thinking about which players make sense for different teams.`\
-https://nytimes.com/athletic/6917958/2025/12/27/nhl-trade-targets-players-teams-holiday/
-
-**An Ashes Test victory in Australia. At last**\
-`The two-day success at the MCG has staved off the threat of another 5-0 humiliation and provided England with some much-needed positives`\
-https://nytimes.com/athletic/6920924/2025/12/27/england-australia-ashes-test-stokes-root-2011/
 
