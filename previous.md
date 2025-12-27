@@ -1,3 +1,7 @@
+**Myanmar’s Election Is Derided as Fake, but the Nation’s Suffering Is All Too Real**\
+`A coup set off a brutal civil war and made a poor country poorer. Now its military rulers are seeking a veneer of legitimacy by holding elections.`\
+https://nytimes.com/2025/12/27/world/asia/myanmar-election-democracy-junta.html
+
 **The all-women crew 'stepping up' at Sydney Hobart as breakages and seasickness reduce overall fleet**\
 `Elizabeth Tucker leads a six-strong all-women crew in the Sydney Hobart, but her plans go beyond the current race.`\
 https://nytimes.com/athletic/6920954/2025/12/27/sydney-hobart-elizabeth-tucker/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6920843/2025/12/27/giannis-antetokounmpo-injury-sta
 **The Ashes Briefing: England win in Australia for the first time since 2011 as Melbourne Test lasts two days**\
 `A Test was completed inside two days for the second time in the series as England dismissed their hosts and then sprinted to a target of 175`\
 https://nytimes.com/athletic/6920566/2025/12/27/england-australia-stokes-carse-ashes-briefing/
-
-**Heaven is taking his chance at United, just when Amorim needs him most**\
-`Gradual improvement has been the story of Heaven’s reintroduction over these past five games`\
-https://nytimes.com/athletic/6920770/2025/12/27/ayden-heaven-man-united-ruben-amorim/
 
