@@ -1,3 +1,11 @@
+**Driver Livestreaming on TikTok Is Charged After Fatally Striking Pedestrian, Police Say**\
+`The driver, who is known to her followers as Tea Tyme, was charged with two felonies in connection with the crash last month, the police in Illinois said.`\
+https://nytimes.com/2025/12/26/us/tea-tyme-tiktok-accident-charges.html
+
+**Police Respond to Report of a Shooting at an Idaho Sheriff’s Office**\
+`The shooting was reported at the Shoshone County Sheriff’s Office in Wallace, Idaho, officials said.`\
+https://nytimes.com/2025/12/26/us/active-shooter-wallace-idaho.html
+
 **How to watch Miami (FL) vs. Ohio State: CFP Quarterfinal Start Time, TV, streaming**\
 `Find out how to watch the Miami (FL) Hurricanes play the Ohio State Buckeyes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6920650/2025/12/26/miami-fl-vs-ohio-state-stream-how-to-watch-dec-31/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6920552/2025/12/26/jordan-love-concussion-out-packe
 **Eagles DT Jalen Carter expected to return vs. Bills**\
 `Carter had chose to undergo a procedure to get him ready for the postseason.`\
 https://nytimes.com/athletic/6920248/2025/12/26/jalen-carter-eagles-bills-injury-return/
-
-**The Briefing - Man Utd 1 Newcastle 0: Has Amorim embraced the back four? How does Howe fix his side's away form?**\
-`Analysis of the Premier League's Boxing Day fixture at Old Trafford`\
-https://nytimes.com/athletic/6918693/2025/12/26/manchester-united-newcastle-premier-league-analysis/
-
-**As Nebraska's bowl week begins, Huskers' 2026 reset is also underway**\
-`When the calendar flips, it’s time to move on. Opportunity awaits. The Huskers’ January objectives: retain, refine and improve the roster.`\
-https://nytimes.com/athletic/6920332/2025/12/26/nebraska-football-las-vegas-bowl-2026-future/
 

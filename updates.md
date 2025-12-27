@@ -1,3 +1,11 @@
+**Driver Livestreaming on TikTok Is Charged After Fatally Striking Pedestrian, Police Say**\
+`The driver, who is known to her followers as Tea Tyme, was charged with two felonies in connection with the crash last month, the police in Illinois said.`\
+https://nytimes.com/2025/12/26/us/tea-tyme-tiktok-accident-charges.html
+
+**Police Respond to Report of a Shooting at an Idaho Sheriff’s Office**\
+`The shooting was reported at the Shoshone County Sheriff’s Office in Wallace, Idaho, officials said.`\
+https://nytimes.com/2025/12/26/us/active-shooter-wallace-idaho.html
+
 **How to watch Miami (FL) vs. Ohio State: CFP Quarterfinal Start Time, TV, streaming**\
 `Find out how to watch the Miami (FL) Hurricanes play the Ohio State Buckeyes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6920650/2025/12/26/miami-fl-vs-ohio-state-stream-how-to-watch-dec-31/
