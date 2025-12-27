@@ -1,3 +1,7 @@
+**49ers offensive line hitting its stride during 5-game win streak**\
+`After a rough start, the 49ers' offensive line has steadily improved and is now finishing the season strong.`\
+https://nytimes.com/athletic/6920635/2025/12/27/49ers-offensive-line-win-streak-nfl/
+
 **The Pulse: What brought us joy**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6920822/2025/12/27/what-brought-all-of-us-joy-in-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6920924/2025/12/27/england-australia-ashes-test-sto
 **In World Juniors snub, Blues prospect Justin Carbonneau finds 'fuel' to improve**\
 `The 2025 No. 19 pick has 25 goals in 27 games this season, but being passed over by Canada reinforced a need to improve defensively.`\
 https://nytimes.com/athletic/6879993/2025/12/27/world-juniors-snub-justin-carbonneau/
-
-**What happened to the Bruins? Goaltending, structure, discipline absent**\
-`The Bruins have skidded to sixth in the Atlantic and out of the top eight in the East. They need to right the ship quickly post-break.`\
-https://nytimes.com/athletic/6920210/2025/12/27/bruins-goaltending-structure-discipline/
 
