@@ -1,3 +1,7 @@
+**Karoline Leavitt Says She’s Expecting Her Second Child**\
+`The White House press secretary announced on Instagram that she was pregnant with a daughter who was due in May. She and her husband have a 1-year-old son.`\
+https://nytimes.com/2025/12/26/us/karoline-leavitt-says-shes-expecting-her-second-child.html
+
 **Canada wins tense rematch with Czechia on Day 1: World Juniors takeaways**\
 `The World Juniors kicked off on Boxing Day with a four-pack of games featuring the tournament's presumptive top five teams.`\
 https://nytimes.com/athletic/6919745/2025/12/26/world-juniors-canada-czechia-score-results-stats/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/26/us/active-shooter-wallace-idaho.html
 **How to watch Miami (FL) vs. Ohio State: CFP Quarterfinal Start Time, TV, streaming**\
 `Find out how to watch the Miami (FL) Hurricanes play the Ohio State Buckeyes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6920650/2025/12/26/how-to-watch-miami-fl-vs-no-3-ohio-state-cfp-quarterfinal-tv-channel-and-streaming-options-for-december-31/
-
-**What Went Wrong Before Hong Kong’s Apartment Inferno**\
-`Records show how government departments played down residents’ warnings about corrupt practices and substandard materials that fueled the deadly blaze.`\
-https://nytimes.com/2025/12/26/world/asia/hong-kong-apartment-fire-corruption.html
 

@@ -1,3 +1,7 @@
+**Karoline Leavitt Says She’s Expecting Her Second Child**\
+`The White House press secretary announced on Instagram that she was pregnant with a daughter who was due in May. She and her husband have a 1-year-old son.`\
+https://nytimes.com/2025/12/26/us/karoline-leavitt-says-shes-expecting-her-second-child.html
+
 **Canada wins tense rematch with Czechia on Day 1: World Juniors takeaways**\
 `The World Juniors kicked off on Boxing Day with a four-pack of games featuring the tournament's presumptive top five teams.`\
 https://nytimes.com/athletic/6919745/2025/12/26/world-juniors-canada-czechia-score-results-stats/
