@@ -1,3 +1,27 @@
+**How to watch Knicks vs. Hawks: Time, TV, streaming**\
+`Find out how to watch the New York Knicks play the Atlanta Hawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6921468/2025/12/27/knicks-vs-hawks-stream-how-to-watch-dec-27/
+
+**How to watch Pacers vs. Heat: Time, TV, streaming**\
+`Find out how to watch the Indiana Pacers play the Miami Heat, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6921465/2025/12/27/pacers-vs-heat-stream-how-to-watch-dec-27/
+
+**How to watch Bucks vs. Bulls: Time, TV, streaming**\
+`Find out how to watch the Milwaukee Bucks play the Chicago Bulls, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6921463/2025/12/27/bucks-vs-bulls-stream-how-to-watch-dec-27/
+
+**How to watch Jazz vs. Spurs: Time, TV, streaming**\
+`Find out how to watch the Utah Jazz play the San Antonio Spurs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6921461/2025/12/27/jazz-vs-spurs-stream-how-to-watch-dec-27/
+
+**How to watch Wild vs. Jets: Time, TV, streaming**\
+`Find out how to watch the Minnesota Wild play the Winnipeg Jets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6921459/2025/12/27/wild-vs-jets-stream-how-to-watch-dec-27/
+
+**How to watch Predators vs. Blues: Time, TV, streaming**\
+`Find out how to watch the Nashville Predators play the St. Louis Blues, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6921457/2025/12/27/predators-vs-blues-stream-how-to-watch-dec-27/
+
 **How to watch Bruins vs. Sabres: Time, TV, streaming**\
 `Find out how to watch the Boston Bruins play the Buffalo Sabres, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6921454/2025/12/27/bruins-vs-sabres-stream-how-to-watch-dec-27/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6921450/2025/12/27/senators-vs-maple-leafs-stream-h
 **How to watch Lightning vs. Panthers: Time, TV, streaming**\
 `Find out how to watch the Tampa Bay Lightning play the Florida Panthers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6921448/2025/12/27/lightning-vs-panthers-stream-how-to-watch-dec-27/
-
-**How to watch Suns vs. Pelicans: Time, TV, streaming**\
-`Find out how to watch the Phoenix Suns play the New Orleans Pelicans, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6921446/2025/12/27/suns-vs-pelicans-stream-how-to-watch-dec-27/
-
-**How to watch Nets vs. Timberwolves: Time, TV, streaming**\
-`Find out how to watch the Brooklyn Nets play the Minnesota Timberwolves, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6921444/2025/12/27/nets-vs-timberwolves-stream-how-to-watch-dec-27/
-
-**How to watch Blackhawks vs. Stars: Time, TV, streaming**\
-`Find out how to watch the Chicago Blackhawks play the Dallas Stars, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6921442/2025/12/27/blackhawks-vs-stars-stream-how-to-watch-dec-27/
-
-**How to watch Nuggets vs. Magic: Time, TV, streaming**\
-`Find out how to watch the Denver Nuggets play the Orlando Magic, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6921440/2025/12/27/nuggets-vs-magic-stream-how-to-watch-dec-27/
-
-**How to watch Capitals vs. Devils: Time, TV, streaming**\
-`Find out how to watch the Washington Capitals play the New Jersey Devils, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6921438/2025/12/27/capitals-vs-devils-stream-how-to-watch-dec-27/
-
-**How to watch Red Wings vs. Hurricanes: Time, TV, streaming**\
-`Find out how to watch the Detroit Red Wings play the Carolina Hurricanes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6921436/2025/12/27/red-wings-vs-hurricanes-stream-how-to-watch-dec-27/
 
