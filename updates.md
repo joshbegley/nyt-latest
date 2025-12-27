@@ -1,3 +1,31 @@
+**How to watch Oregon vs. Texas Tech: CFP Quarterfinal Start Time, TV, streaming**\
+`Find out how to watch the Oregon Ducks play the Texas Tech Red Raiders, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6921479/2025/12/27/oregon-vs-texas-tech-stream-how-to-watch-jan-1/
+
+**How to watch Knicks vs. Hawks: Time, TV, streaming**\
+`Find out how to watch the New York Knicks play the Atlanta Hawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6921468/2025/12/27/knicks-vs-hawks-stream-how-to-watch-dec-27/
+
+**How to watch Pacers vs. Heat: Time, TV, streaming**\
+`Find out how to watch the Indiana Pacers play the Miami Heat, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6921465/2025/12/27/pacers-vs-heat-stream-how-to-watch-dec-27/
+
+**How to watch Bucks vs. Bulls: Time, TV, streaming**\
+`Find out how to watch the Milwaukee Bucks play the Chicago Bulls, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6921463/2025/12/27/bucks-vs-bulls-stream-how-to-watch-dec-27/
+
+**How to watch Jazz vs. Spurs: Time, TV, streaming**\
+`Find out how to watch the Utah Jazz play the San Antonio Spurs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6921461/2025/12/27/jazz-vs-spurs-stream-how-to-watch-dec-27/
+
+**How to watch Wild vs. Jets: Time, TV, streaming**\
+`Find out how to watch the Minnesota Wild play the Winnipeg Jets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6921459/2025/12/27/wild-vs-jets-stream-how-to-watch-dec-27/
+
+**How to watch Predators vs. Blues: Time, TV, streaming**\
+`Find out how to watch the Nashville Predators play the St. Louis Blues, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6921457/2025/12/27/predators-vs-blues-stream-how-to-watch-dec-27/
+
 **How to watch Bruins vs. Sabres: Time, TV, streaming**\
 `Find out how to watch the Boston Bruins play the Buffalo Sabres, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6921454/2025/12/27/bruins-vs-sabres-stream-how-to-watch-dec-27/
