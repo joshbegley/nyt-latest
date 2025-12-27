@@ -1,3 +1,23 @@
+**How to watch Sharks vs. Canucks: Time, TV, streaming**\
+`Find out how to watch the San Jose Sharks play the Vancouver Canucks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6921730/2025/12/27/sharks-vs-canucks-stream-how-to-watch-dec-27/
+
+**How to watch Avalanche vs. Golden Knights: Time, TV, streaming**\
+`Find out how to watch the Colorado Avalanche play the Vegas Golden Knights, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6921726/2025/12/27/avalanche-vs-golden-knights-stream-how-to-watch-dec-27/
+
+**How to watch Ducks vs. Kings: Time, TV, streaming**\
+`Find out how to watch the Anaheim Ducks play the Los Angeles Kings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6921724/2025/12/27/ducks-vs-kings-stream-how-to-watch-dec-27/
+
+**How to watch Oilers vs. Flames: Time, TV, streaming**\
+`Find out how to watch the Edmonton Oilers play the Calgary Flames, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6921722/2025/12/27/oilers-vs-flames-stream-how-to-watch-dec-27/
+
+**Cubs reach agreement with reliever Hunter Harvey: Sources**\
+`The Cubs are hoping to capitalize on an upside play with Harvey, who has dealt with injuries but has excellent stuff when healthy.`\
+https://nytimes.com/athletic/6921585/2025/12/27/chicago-cubs-hunter-harvey/
+
 **A Second Lawsuit Accuses Tyler Perry of Sexual Assault**\
 `Mario Rodriguez, who had a role in one of Mr. Perry’s films, sued him on Thursday, months after another actor filed a similar lawsuit.`\
 https://nytimes.com/2025/12/27/arts/tyler-perry-mario-rodriguez-sexual-assault-lawsuit.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6921347/2025/12/27/nba-refereee-bill-kennedy-coach-
 **Hundreds of Flights Canceled at New York Airports, Even With a Few Inches of Snow**\
 `To avoid the ripple effects of real-time adjustments to what was predicted to be up to nine inches of snow, the major airlines said they pre-emptively canceled flights.`\
 https://nytimes.com/2025/12/27/business/snowstorm-flight-cancel-new-york-airports.html
-
-**Arteta says injury issues uniting Arsenal after Timber, Calafiori absences**\
-`The league leaders are still without Ben White and Cristhian Mosquera but Gabriel came on to make his first appearance since November.`\
-https://nytimes.com/athletic/6921474/2025/12/27/timber-calafiori-arsenal-injury-update/
-
-**How to watch Oregon vs. Texas Tech: CFP Quarterfinal Start Time, TV, streaming**\
-`Find out how to watch the Oregon Ducks play the Texas Tech Red Raiders, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6921479/2025/12/27/oregon-vs-texas-tech-stream-how-to-watch-jan-1/
-
-**How to watch Knicks vs. Hawks: Time, TV, streaming**\
-`Find out how to watch the New York Knicks play the Atlanta Hawks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6921468/2025/12/27/knicks-vs-hawks-stream-how-to-watch-dec-27/
-
-**How to watch Pacers vs. Heat: Time, TV, streaming**\
-`Find out how to watch the Indiana Pacers play the Miami Heat, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6921465/2025/12/27/pacers-vs-heat-stream-how-to-watch-dec-27/
-
-**How to watch Bucks vs. Bulls: Time, TV, streaming**\
-`Find out how to watch the Milwaukee Bucks play the Chicago Bulls, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6921463/2025/12/27/bucks-vs-bulls-stream-how-to-watch-dec-27/
 
