@@ -1,3 +1,7 @@
+**What’s this trip about? Here’s an overview.**\
+`(No description)`\
+https://nytimes.com/live/2025/climate/antarctica-thwaites-glacier/trip-overview-video
+
 **Russia Attacks Kyiv Ahead of Trump-Zelensky Meeting**\
 `The assault began at around 1:30 a.m. local time and was continuing into the morning.`\
 https://nytimes.com/2025/12/27/world/europe/kyiv-ukraine-russia-trump-zelensky.html
