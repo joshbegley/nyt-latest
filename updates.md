@@ -1,3 +1,7 @@
+**California Drops Lawsuit Over $4 Billion Federal Cut to High-Speed Rail Project**\
+`California sued after the Trump administration cut grants for the long-planned project. The state says it will seek private investors instead.`\
+https://nytimes.com/2025/12/27/us/california-high-speed-rail-lawsuit-transportation-department.html
+
 **Myanmar’s Election Is Derided as Fake, but the Nation’s Suffering Is All Too Real**\
 `A coup set off a brutal civil war and made a poor country poorer. Now its military rulers are seeking a veneer of legitimacy by holding elections.`\
 https://nytimes.com/2025/12/27/world/asia/myanmar-election-democracy-junta.html

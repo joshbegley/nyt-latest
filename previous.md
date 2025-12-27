@@ -1,3 +1,7 @@
+**California Drops Lawsuit Over $4 Billion Federal Cut to High-Speed Rail Project**\
+`California sued after the Trump administration cut grants for the long-planned project. The state says it will seek private investors instead.`\
+https://nytimes.com/2025/12/27/us/california-high-speed-rail-lawsuit-transportation-department.html
+
 **Myanmar’s Election Is Derided as Fake, but the Nation’s Suffering Is All Too Real**\
 `A coup set off a brutal civil war and made a poor country poorer. Now its military rulers are seeking a veneer of legitimacy by holding elections.`\
 https://nytimes.com/2025/12/27/world/asia/myanmar-election-democracy-junta.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/27/world/europe/kyiv-ukraine-russia-trump-zelensky.h
 **Sources: Giannis Antetokounmpo expected to return from calf injury Saturday vs. Bulls**\
 `Antetokounmpo, who hasn't played since Dec. 3 due to a calf strain, is expected to play against Chicago. The Bucks went 2-6 in his absence.`\
 https://nytimes.com/athletic/6920843/2025/12/27/giannis-antetokounmpo-injury-status-bucks-calf-return/
-
-**The Ashes Briefing: England win in Australia for the first time since 2011 as Melbourne Test lasts two days**\
-`A Test was completed inside two days for the second time in the series as England dismissed their hosts and then sprinted to a target of 175`\
-https://nytimes.com/athletic/6920566/2025/12/27/england-australia-stokes-carse-ashes-briefing/
 
