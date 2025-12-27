@@ -1,4 +1,8 @@
-**The Briefing: Chelsea 1 Aston Villa 2 - How did Emery subs change game? Does Garnacho deserve Maresca's faith?**\
+**A Second Lawsuit Accuses Tyler Perry of Sexual Assault**\
+`Mario Rodriguez, who had a role in one of Mr. Perry’s films, sued him on Thursday, months after another actor filed a similar lawsuit.`\
+https://nytimes.com/2025/12/27/arts/tyler-perry-mario-rodriguez-sexual-assault-lawsuit.html
+
+**The Briefing: Chelsea 1 Aston Villa 2 - How did Emery's subs change the game? Does Garnacho deserve Maresca's faith?**\
 `We analyse the talking points from Stamford Bridge as Aston Villa came from behind to extend their winning run to eight matches`\
 https://nytimes.com/athletic/6919601/2025/12/27/chelsea-1-aston-villa-2-maresca-emery-watkins-garnacho/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6921465/2025/12/27/pacers-vs-heat-stream-how-to-wat
 **How to watch Bucks vs. Bulls: Time, TV, streaming**\
 `Find out how to watch the Milwaukee Bucks play the Chicago Bulls, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6921463/2025/12/27/bucks-vs-bulls-stream-how-to-watch-dec-27/
-
-**How to watch Jazz vs. Spurs: Time, TV, streaming**\
-`Find out how to watch the Utah Jazz play the San Antonio Spurs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6921461/2025/12/27/jazz-vs-spurs-stream-how-to-watch-dec-27/
 
