@@ -1,3 +1,7 @@
+**Hundreds of Flights Canceled at New York Airports, Even With a Few Inches of Snow**\
+`To avoid the ripple effects of real-time adjustments to what was predicted to be up to nine inches of snow, the major airlines said they pre-emptively canceled flights.`\
+https://nytimes.com/2025/12/27/business/snowstorm-flight-cancel-new-york-airports.html
+
 **How to watch Cavaliers vs. Rockets: Time, TV, streaming**\
 `Find out how to watch the Cleveland Cavaliers play the Houston Rockets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6921452/2025/12/27/cavaliers-vs-rockets-stream-how-to-watch-dec-27/
