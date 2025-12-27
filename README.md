@@ -1,3 +1,7 @@
+**Wood will be back for Forest within 'weeks' of surgery, Dyche hopes**\
+`The New Zealand international has been sidelined since mid-October with a knee issue after scoring 20 Premier League goals last season.`\
+https://nytimes.com/athletic/6921286/2025/12/27/chris-wood-nottingham-forest-surgery-update/
+
 **Charlotte FC to sign USMNT midfielder Luca de la Torre**\
 `De La Torre joins on a permanent deal. He spent 2025 on loan at San Diego FC in Major League Soccer.`\
 https://nytimes.com/athletic/6921271/2025/12/27/charlotte-fc-transfer-sign-luca-de-la-torre/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6920635/2025/12/27/49ers-offensive-line-win-streak-
 **The Pulse: What brought us joy**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6920822/2025/12/27/what-brought-all-of-us-joy-in-2025/
-
-**Scoop City: Fantasy tips to win your title**\
-`It's championship time. Lock in. Here's how to win your title.`\
-https://nytimes.com/athletic/6920766/2025/12/27/everything-fantasy-football-managers-need-to-know-for-week-17/
 
