@@ -31,7 +31,7 @@ https://nytimes.com/athletic/6919601/2025/12/27/chelsea-1-aston-villa-2-maresca-
 https://nytimes.com/2025/12/27/us/politics/venezuela-trump-maduro-oil-boat-strikes-immigration.html
 
 **Referee Bill Kennedy's coach's challenge verdicts becoming must-see TV**\
-`Veteran official Bill Kennedy's signature style of announcing challenge results has become a storyline in the NBA.`\
+`Kennedy's signature style of announcing challenge results has become a storyline in the NBA.`\
 https://nytimes.com/athletic/6921347/2025/12/27/nba-refereee-bill-kennedy-coach-challenge-verdict/
 
 **Hundreds of Flights Canceled at New York Airports, Even With a Few Inches of Snow**\

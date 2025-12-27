@@ -1,3 +1,7 @@
+**Referee Bill Kennedy's coach's challenge verdicts becoming must-see TV**\
+`Kennedy's signature style of announcing challenge results has become a storyline in the NBA.`\
+https://nytimes.com/athletic/6921347/2025/12/27/nba-refereee-bill-kennedy-coach-challenge-verdict/
+
 **How to watch Sharks vs. Canucks: Time, TV, streaming**\
 `Find out how to watch the San Jose Sharks play the Vancouver Canucks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6921730/2025/12/27/sharks-vs-canucks-stream-how-to-watch-dec-27/
