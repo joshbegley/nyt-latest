@@ -1,5 +1,9 @@
+**What Went Wrong Before Hong Kong’s Apartment Inferno**\
+`Records show how government departments played down residents’ warnings about corrupt practices and substandard materials that fueled the deadly blaze.`\
+https://nytimes.com/2025/12/26/world/asia/hong-kong-apartment-fire-corruption.html
+
 **Crosby to miss Raiders' game vs. Giants despite pushback, Carroll says**\
-`The 28-year-old pass rusher has missed just five games over his seven-year professional career.`\
+`Crosby, who has missed just five games over his seven-year Raiders career, left the facility after hearing that he wasn't playing Sunday.`\
 https://nytimes.com/athletic/6920492/2025/12/26/maxx-crosby-raiders-sit-out-pushes-back/
 
 **Annette Dionne, Last of the Celebrated Quintuplets, Dies at 91**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6920332/2025/12/26/nebraska-football-las-vegas-bowl
 **A Wealth Tax Floated in California Has Billionaires Thinking of Leaving**\
 `It’s uncertain whether the proposal will reach the statewide ballot in November, but some billionaires like Peter Thiel and Larry Page may be unwilling to take the risk.`\
 https://nytimes.com/2025/12/26/technology/california-wealth-tax-page-thiel.html
-
-**Colts' Sauce Gardner to return vs. Jaguars; DeForest Buckner ruled out**\
-`Star DT DeForest Buckner will be placed on season-ending injured reserve due to a neck injury.`\
-https://nytimes.com/athletic/6920346/2025/12/26/colts-sauce-gardner-deforest-buckner-jaguars/
 
