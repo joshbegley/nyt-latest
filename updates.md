@@ -1,3 +1,11 @@
+**At Least 1 Injured in Shooting at an Idaho Sheriff’s Office**\
+`The shooting happened at the Shoshone County Sheriff’s Office in Wallace, Idaho, officials said.`\
+https://nytimes.com/2025/12/26/us/active-shooter-wallace-idaho.html
+
+**How to watch Miami (FL) vs. Ohio State: CFP Quarterfinal Start Time, TV, streaming**\
+`Find out how to watch the Miami (FL) Hurricanes play the Ohio State Buckeyes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6920650/2025/12/26/how-to-watch-miami-fl-vs-no-3-ohio-state-cfp-quarterfinal-tv-channel-and-streaming-options-for-december-31/
+
 **Grand Jury Declines to Indict Parent Who Fatally Shot Kentucky Student**\
 `The grand jury received testimony that the man had acted to defend his son, who had faced bullying before the shooting, a local prosecutor said.`\
 https://nytimes.com/2025/12/26/us/kentucky-state-shooting-murder-charge.html

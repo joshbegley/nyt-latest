@@ -10,13 +10,13 @@ https://nytimes.com/video/climate/100000010542247/why-we-are-going-to-the-fastes
 `The driver, who is known to her followers as Tea Tyme, was charged with two felonies in connection with the crash last month, the police in Illinois said.`\
 https://nytimes.com/2025/12/26/us/tea-tyme-tiktok-accident-charges.html
 
-**Police Respond to Report of a Shooting at an Idaho Sheriff’s Office**\
-`The shooting was reported at the Shoshone County Sheriff’s Office in Wallace, Idaho, officials said.`\
+**At Least 1 Injured in Shooting at an Idaho Sheriff’s Office**\
+`The shooting happened at the Shoshone County Sheriff’s Office in Wallace, Idaho, officials said.`\
 https://nytimes.com/2025/12/26/us/active-shooter-wallace-idaho.html
 
 **How to watch Miami (FL) vs. Ohio State: CFP Quarterfinal Start Time, TV, streaming**\
 `Find out how to watch the Miami (FL) Hurricanes play the Ohio State Buckeyes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6920650/2025/12/26/miami-fl-vs-ohio-state-stream-how-to-watch-dec-31/
+https://nytimes.com/athletic/6920650/2025/12/26/how-to-watch-miami-fl-vs-no-3-ohio-state-cfp-quarterfinal-tv-channel-and-streaming-options-for-december-31/
 
 **What Went Wrong Before Hong Kong’s Apartment Inferno**\
 `Records show how government departments played down residents’ warnings about corrupt practices and substandard materials that fueled the deadly blaze.`\
