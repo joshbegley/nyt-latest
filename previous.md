@@ -1,40 +1,40 @@
-**MLB's weirdest injuries of 2025: Home run trots, bathroom breaks and Target runs gone bad**\
-`Celebrating the brilliantly creative ways that baseball players find to take their place in our annual SBT Injuries of the Year column. `\
-https://nytimes.com/athletic/6921038/2025/12/27/mlb-weird-injuries-2025/
+**Which NHL player should each team target in a trade after the holiday freeze?**\
+`With the league's holiday roster freeze almost over, it's a good time to start thinking about which players make sense for different teams.`\
+https://nytimes.com/athletic/6917958/2025/12/27/nhl-trade-targets-players-teams-holiday/
 
-**Here are all the ways rich schools are getting around the college football spending cap**\
-`The revenue-sharing salary cap is a boon to plenty of schools. For the richest ones, workarounds are already in play.`\
-https://nytimes.com/athletic/6914668/2025/12/27/college-nil-revenue-sharing-house-settlement-coaches/
+**An Ashes Test victory in Australia. At last**\
+`The two-day success at the MCG has staved off the threat of another 5-0 humiliation and provided England with some much-needed positives`\
+https://nytimes.com/athletic/6920924/2025/12/27/england-australia-ashes-test-stokes-root-2011/
 
-**Good Calls**\
-`This week, we close out the year with your best advice of 2025.`\
-https://nytimes.com/2025/12/27/briefing/good-calls.html
+**In World Juniors snub, Blues prospect Justin Carbonneau finds 'fuel' to improve**\
+`The 2025 No. 19 pick has 25 goals in 27 games this season, but being passed over by Canada reinforced a need to improve defensively.`\
+https://nytimes.com/athletic/6879993/2025/12/27/world-juniors-snub-justin-carbonneau/
 
-**A.J. Spellacy knows his NHL path with Blackhawks is 'playing that nasty style'**\
-`Spellacy understands how to carve out an NHL role among the many Blackhawks prospects.`\
-https://nytimes.com/athletic/6920078/2025/12/27/aj-spellacy-nhl-blackhawks-nasty-style/
+**What happened to the Bruins? Goaltending, structure, discipline absent**\
+`The Bruins have skidded to sixth in the Atlantic and out of the top eight in the East. They need to right the ship quickly post-break.`\
+https://nytimes.com/athletic/6920210/2025/12/27/bruins-goaltending-structure-discipline/
 
-**NFL Saturday watch guide: Texans at Chargers, Ravens at Packers, playoff stakes**\
-`Two more Week 17 games are going down Saturday. Here's what to know and how to watch them.`\
-https://nytimes.com/athletic/6920528/2025/12/27/texans-chargers-ravens-packers-how-to-watch/
+**Would You Kill for a Job?**\
+`A Korean film resonates in a moment when America has its highest unemployment rate since 2021.`\
+https://nytimes.com/2025/12/27/opinion/no-other-choice-work-unemployment.html
 
-**What will the College Football Playoff look like in 2026?**\
-`It remains to be seen whether next season’s Playoff format will be determined before this season’s champion has been crowned.`\
-https://nytimes.com/athletic/6919583/2025/12/27/college-football-playoff-2026-format-future-expansion/
+**In Which I Try Valiantly to Cheer You Up**\
+`OK, 2025 wasn’t the best year ever. But we’re arguably still in the best decade in the history of humanity.`\
+https://nytimes.com/2025/12/27/opinion/good-news.html
 
-**How Carter George studied for this World Junior moment — and why he's ready to meet it**\
-`George's curiosity and intellect, as much as his talent, have led him back to the World Juniors as Canada's starter.`\
-https://nytimes.com/athletic/6920037/2025/12/27/carter-george-team-canada-world-juniors-kings/
+**Trump’s First Year Back, in 10 Charts**\
+`Steven Rattner recaps the year of Trump in charts.`\
+https://nytimes.com/interactive/2025/12/27/opinion/year-in-charts-2025.html
 
-**Win a Reporting Trip With Me in 2026**\
-`Every year, I choose a university student to accompany me on a reporting trip.`\
-https://nytimes.com/2025/12/27/opinion/nicholas-kristof-win-a-trip-2026.html
+**Kyle Whittingham among college football's oldest hires. How have others fared?**\
+`The 66-year-old is the fourth-oldest coach to be hired at a Power Four school since 2005.`\
+https://nytimes.com/athletic/6920448/2025/12/27/kyle-whittingham-michigan-old-age-coaches/
 
-**A Sweeping Look at One Thing That Unites Canada: Winter**\
-`The National Gallery of Canada in Ottawa has a major exhibition of 164 works from around the world depicting winter and the place of people and animals within it.`\
-https://nytimes.com/2025/12/27/world/canada/a-sweeping-look-at-one-thing-that-unites-canada-winter.html
+**I Love My Naturally Aging Face**\
+`But when I see Demi Moore, 63, looking far younger than me at 48, I wonder if I should be figuring out a way to keep up.`\
+https://nytimes.com/2025/12/27/opinion/aging-botox-cosmetic-surgery.html
 
-**Connections Companion No. 931**\
-`Scroll down for hints and conversation about the puzzle for Sunday, Dec. 28, 2025.`\
-https://nytimes.com/2025/12/27/crosswords/connections-companion-931.html
+**The 1 Percent Solution to the Looming A.I. Job Crisis**\
+`Companies benefiting from A.I. should donate a small percentage of their profits to retrain the workers the tech will displace.`\
+https://nytimes.com/2025/12/27/opinion/artificial-intelligence-jobs-worker-training.html
 
