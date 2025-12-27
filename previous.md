@@ -1,3 +1,7 @@
+**Hundreds of Flights Canceled at New York Airports, Even With a Few Inches of Snow**\
+`To avoid the ripple effects of real-time adjustments to what was predicted to be up to nine inches of snow, the major airlines said they pre-emptively canceled flights.`\
+https://nytimes.com/2025/12/27/business/snowstorm-flight-cancel-new-york-airports.html
+
 **Arteta says injury issues uniting Arsenal after Timber, Calafiori absences**\
 `The league leaders are still without Ben White and Cristhian Mosquera but Gabriel came on to make his first appearance since November.`\
 https://nytimes.com/athletic/6921474/2025/12/27/timber-calafiori-arsenal-injury-update/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6921457/2025/12/27/predators-vs-blues-stream-how-to
 **How to watch Bruins vs. Sabres: Time, TV, streaming**\
 `Find out how to watch the Boston Bruins play the Buffalo Sabres, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6921454/2025/12/27/bruins-vs-sabres-stream-how-to-watch-dec-27/
-
-**How to watch Cavaliers vs. Rockets: Time, TV, streaming**\
-`Find out how to watch the Cleveland Cavaliers play the Houston Rockets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6921452/2025/12/27/cavaliers-vs-rockets-stream-how-to-watch-dec-27/
 

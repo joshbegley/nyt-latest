@@ -1,3 +1,7 @@
+**Hundreds of Flights Canceled at New York Airports, Even With a Few Inches of Snow**\
+`To avoid the ripple effects of real-time adjustments to what was predicted to be up to nine inches of snow, the major airlines said they pre-emptively canceled flights.`\
+https://nytimes.com/2025/12/27/business/snowstorm-flight-cancel-new-york-airports.html
+
 **Arteta says injury issues uniting Arsenal after Timber, Calafiori absences**\
 `The league leaders are still without Ben White and Cristhian Mosquera but Gabriel came on to make his first appearance since November.`\
 https://nytimes.com/athletic/6921474/2025/12/27/timber-calafiori-arsenal-injury-update/
