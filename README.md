@@ -1,3 +1,7 @@
+**Gary Graffman, Piano Virtuoso and Renowned Teacher, Dies at 97**\
+`Mr. Graffman was a onetime child prodigy whose career was curtailed by a neurological condition that restricted him to his left hand.`\
+https://nytimes.com/2025/12/27/arts/music/gary-graffman-dead.html
+
 **Which NFL players are nearing contract incentives in Week 17?**\
 `If there's one player who has extra incentive to see his team's playoff seeding set by the end of Monday night, it's Mac Jones.`\
 https://nytimes.com/athletic/6921635/2025/12/27/stefon-diggs-2025-nfl-contract-incentives/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6921585/2025/12/27/chicago-cubs-hunter-harvey/
 **A Second Lawsuit Accuses Tyler Perry of Sexual Assault**\
 `Mario Rodriguez, who had a role in one of Mr. Perry’s films, sued him on Thursday, months after another actor filed a similar lawsuit.`\
 https://nytimes.com/2025/12/27/arts/tyler-perry-mario-rodriguez-sexual-assault-lawsuit.html
-
-**The Briefing: Chelsea 1 Aston Villa 2 - How did Emery's subs change the game? Does Garnacho deserve Maresca's faith?**\
-`We analyse the talking points from Stamford Bridge as Aston Villa came from behind to extend their winning run to eight matches`\
-https://nytimes.com/athletic/6919601/2025/12/27/chelsea-1-aston-villa-2-maresca-emery-watkins-garnacho/
 
