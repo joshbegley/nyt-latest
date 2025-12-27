@@ -1,3 +1,7 @@
+**Good Calls**\
+`This week, we close out the year with your best advice of 2025.`\
+https://nytimes.com/2025/12/27/briefing/good-calls.html
+
 **A.J. Spellacy knows his NHL path with Blackhawks is 'playing that nasty style'**\
 `Spellacy understands how to carve out an NHL role among the many Blackhawks prospects.`\
 https://nytimes.com/athletic/6920078/2025/12/27/aj-spellacy-nhl-blackhawks-nasty-style/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/27/crosswords/strands-sidekick-665.html
 **Wordle Review No. 1,653**\
 `Scroll down for hints and conversation about the puzzle for Sunday, Dec. 28, 2025.`\
 https://nytimes.com/2025/12/27/crosswords/wordle-review-1653.html
-
-**Brighton captain Lewis Dunk triggers one-year contract extension**\
-`The 34-year-old defender secured a new deal with his 15th Premier League start of the campaign in the recent 2-0 defeat at Liverpool.`\
-https://nytimes.com/athletic/6921054/2025/12/27/brighton-lewis-dunk-contract-deal/
 

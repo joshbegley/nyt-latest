@@ -1,3 +1,7 @@
+**Good Calls**\
+`This week, we close out the year with your best advice of 2025.`\
+https://nytimes.com/2025/12/27/briefing/good-calls.html
+
 **A.J. Spellacy knows his NHL path with Blackhawks is 'playing that nasty style'**\
 `Spellacy understands how to carve out an NHL role among the many Blackhawks prospects.`\
 https://nytimes.com/athletic/6920078/2025/12/27/aj-spellacy-nhl-blackhawks-nasty-style/
