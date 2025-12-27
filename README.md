@@ -1,3 +1,7 @@
+**Brighton captain Lewis Dunk triggers one-year contract extension**\
+`The 34-year-old defender secured a new deal with his 15th Premier League start of the campaign in the recent 2-0 defeat at Liverpool.`\
+https://nytimes.com/athletic/6921054/2025/12/27/brighton-lewis-dunk-contract-deal/
+
 **New Yorkers Wake Up to Snow, Though Not as Much as Forecast**\
 `Predictions were revised down on Friday. Central Park still saw more than 2 inches of snow, with higher totals outside of New York City.`\
 https://nytimes.com/2025/12/27/nyregion/new-york-city-snow-storm.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/27/arts/book-podcasts.html
 **Park Chan-wook and the Funny Thing About Stomach-Churning Horror**\
 `When American studios wouldn’t back his film about a laid-off manager committing gruesome murders, the director returned to Korea. Now he has a hit on his hands.`\
 https://nytimes.com/2025/12/27/movies/park-chan-wook-no-other-choice-korea.html
-
-**I Broke the Lease on an Illegal Rental. Can I Get My Security Deposit Back?**\
-`Absent a certificate of occupancy, the landlord is generally prohibited from recovering rent — but the specifics of your case matter.`\
-https://nytimes.com/2025/12/27/realestate/i-broke-the-lease-on-an-illegal-rental-can-i-get-my-security-deposit-back.html
 
