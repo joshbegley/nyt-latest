@@ -1,3 +1,7 @@
+**How to watch Oregon vs. Texas Tech: CFP Quarterfinal Start Time, TV, streaming**\
+`Find out how to watch the Oregon Ducks play the Texas Tech Red Raiders, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6921479/2025/12/27/oregon-vs-texas-tech-stream-how-to-watch-jan-1/
+
 **How to watch Knicks vs. Hawks: Time, TV, streaming**\
 `Find out how to watch the New York Knicks play the Atlanta Hawks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6921468/2025/12/27/knicks-vs-hawks-stream-how-to-watch-dec-27/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6921452/2025/12/27/cavaliers-vs-rockets-stream-how-
 **How to watch Senators vs. Maple Leafs: Time, TV, streaming**\
 `Find out how to watch the Ottawa Senators play the Toronto Maple Leafs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6921450/2025/12/27/senators-vs-maple-leafs-stream-how-to-watch-dec-27/
-
-**How to watch Lightning vs. Panthers: Time, TV, streaming**\
-`Find out how to watch the Tampa Bay Lightning play the Florida Panthers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6921448/2025/12/27/lightning-vs-panthers-stream-how-to-watch-dec-27/
 
