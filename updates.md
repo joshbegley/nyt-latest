@@ -1,3 +1,7 @@
+**Russia Pummels Kyiv Before Trump-Zelensky Meeting**\
+`The assault began around 1:30 a.m. local time on Saturday and continued for nearly 10 hours.`\
+https://nytimes.com/2025/12/27/world/europe/kyiv-ukraine-russia-trump-zelensky.html
+
 **California Drops Lawsuit Over $4 Billion Federal Cut to High-Speed Rail Project**\
 `California sued after the Trump administration cut grants for the long-planned project. The state says it will seek private investors instead.`\
 https://nytimes.com/2025/12/27/us/california-high-speed-rail-lawsuit-transportation-department.html
