@@ -1,3 +1,7 @@
+**Got an Air Fryer? We Have Recipes.**\
+`Salmon fillets, chicken wings, green beans and broccoli all cook to quick perfection with these trusted air-fryer recipes.`\
+https://nytimes.com/2025/12/27/dining/got-an-air-fryer-we-have-recipes.html
+
 **Wood will be back for Forest within 'weeks' of surgery, Dyche hopes**\
 `The New Zealand international has been sidelined since mid-October with a knee issue after scoring 20 Premier League goals last season.`\
 https://nytimes.com/athletic/6921286/2025/12/27/chris-wood-nottingham-forest-surgery-update/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/27/world/middleeast/yemen-saudi-arabia-airstrikes.ht
 **49ers offensive line hitting its stride during 5-game win streak**\
 `After a rough start, the 49ers' offensive line has steadily improved and is now finishing the season strong.`\
 https://nytimes.com/athletic/6920635/2025/12/27/49ers-offensive-line-win-streak-nfl/
-
-**The Pulse: What brought us joy**\
-`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
-https://nytimes.com/athletic/6920822/2025/12/27/what-brought-all-of-us-joy-in-2025/
 

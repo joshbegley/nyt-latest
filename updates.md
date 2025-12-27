@@ -1,3 +1,7 @@
+**Got an Air Fryer? We Have Recipes.**\
+`Salmon fillets, chicken wings, green beans and broccoli all cook to quick perfection with these trusted air-fryer recipes.`\
+https://nytimes.com/2025/12/27/dining/got-an-air-fryer-we-have-recipes.html
+
 **Wood will be back for Forest within 'weeks' of surgery, Dyche hopes**\
 `The New Zealand international has been sidelined since mid-October with a knee issue after scoring 20 Premier League goals last season.`\
 https://nytimes.com/athletic/6921286/2025/12/27/chris-wood-nottingham-forest-surgery-update/
