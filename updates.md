@@ -1,3 +1,7 @@
+**Tyler Bertuzzi's consistency pays off as Blackhawks snap six-game skid**\
+`Bertuzzi scored twice and Chicago snapped a six-game losing streak with a 4-3 shootout win in Dallas.`\
+https://nytimes.com/athletic/6922495/2025/12/28/tyler-bertuzzi-blackhawks-stars-result-score/
+
 **Battle of the Sexes: Aryna Sabalenka and Nick Kyrgios' tennis show meets the weight of history**\
 `Half a century after Billie Jean King beat Bobby Riggs, the WTA world No. 1 believes this match is good for women's tennis. Critics disagree`\
 https://nytimes.com/athletic/6916114/2025/12/28/tennis-battle-of-the-sexes-sabalenka-kyrgios/
