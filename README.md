@@ -1,40 +1,40 @@
-**From Sex Appeal to the Far Right, Brigitte Bardot Symbolized a Changing France**\
-`In the decades after becoming a megastar, the French actress became as known for her politics as she once had been for her acting career.`\
-https://nytimes.com/2025/12/28/arts/brigitte-bardot-movies-songs-animal-rights.html
+**Rangers' scoring woes reach concerning point, plus other thoughts**\
+`For the Rangers, what’s become familiar is now reaching unprecedented levels after a 2-0 loss to the Islanders.`\
+https://nytimes.com/athletic/6922459/2025/12/28/rangers-islanders-scoring-shutout-loss/
 
-**How Giants-Raiders impacts race to No. 1 pick, with Browns, Jets still lurking**\
-`Yes, Sunday's game in Las Vegas will be a huge factor in determining the No. 1 pick. But there is still a path for three other teams.`\
-https://nytimes.com/athletic/6921300/2025/12/28/nfl-draft-number-1-pick-giants-raiders-browns-jets/
+**Mattias Samuelsson shines in Rasmus Dahlin's absence as Sabres win eighth straight**\
+`Samuelsson was the main event in the Sabres' convincing 4-1 win over the Bruins that stretched their winning streak to eight games.`\
+https://nytimes.com/athletic/6922473/2025/12/28/sabres-bruins-mattias-samuelsson-rasmus-dahlin/
 
-**The New York Times International Edition in Print for Monday, Dec. 29, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/12/28/todays-new-york-times-international-edition
+**After six straight losses, players-only meeting, where do Hawks go from here?**\
+`Atlanta is now 15-18 and in 10th place in the East, and its upcoming schedule offers few reprieves.`\
+https://nytimes.com/athletic/6922541/2025/12/28/hawks-six-straight-losses-trae-young-nba/
 
-**Brigitte Bardot, Movie Icon Who Renounced Stardom, Dies at 91**\
-`“And God Created Woman” made her a world-famous sex symbol in the 1950s. She later gave up acting to devote her life to animal welfare.`\
-https://nytimes.com/2025/12/28/movies/brigitte-bardot-dead.html
+**Tyler Bertuzzi's consistency pays off as Blackhawks snap six-game skid**\
+`Bertuzzi scored twice, and Chicago snapped a six-game losing streak with a 4-3 shootout win in Dallas.`\
+https://nytimes.com/athletic/6922495/2025/12/28/tyler-bertuzzi-blackhawks-stars-result-score/
 
-**How to watch Providence vs. South Carolina women's basketball: Time, TV, streaming**\
-`Find out how to watch the Providence Friars play the South Carolina Gamecocks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6922794/2025/12/28/providence-vs-south-carolina-stream-how-to-watch-dec-28/
+**Packers limping into playoffs after Ravens beatdown: 'This was just embarrassing'**\
+`Baltimore ran for a whopping 307 yards at Lambeau Field, with 216 of them and four touchdowns coming from Derrick Henry.`\
+https://nytimes.com/athletic/6922650/2025/12/28/packers-playoffs-ravens-loss/
 
-**Zelensky to Meet With Trump at Mar-a-Lago About Plan to End War With Russia**\
-`President Volodymyr Zelensky of Ukraine brings a revised 20-point peace proposal, as well as doubts about whether Russia is serious about pursuing peace.`\
-https://nytimes.com/2025/12/28/world/europe/zelensky-trump-ukraine-russia-talks.html
+**Senators suffer post-holiday letdown in Toronto: 4 thoughts**\
+`The Sens' familiar problems — inconsistent goaltending and spotty special teams — reared their ugly heads in Saturday's loss at Toronto.`\
+https://nytimes.com/athletic/6920491/2025/12/28/senators-ullmark-maple-leafs-4-thoughts/
 
-**Zero Hour for the Middle East**\
-`After more than a decade of wars, from Syria to Gaza, the Middle East is exhausted by conflict. Is it ready to find another way?`\
-https://nytimes.com/2025/12/28/world/middleeast/future-of-mideast.html
+**Chargers' blunders too much to overcome in loss to Texans: 'Some things to clean up'**\
+`The Chargers spotted the Texans an early 14-0 lead and still had chances to deliver a comeback. They couldn't.`\
+https://nytimes.com/athletic/6922482/2025/12/28/chargers-loss-texans-mistakes-week-17/
 
-**From A.I. to Chips, Big Tech Is Getting What It Wants From Trump**\
-`The president has backed policies that allow the industry to grow unfettered. The mutually beneficial alliance is causing concern among some conservatives.`\
-https://nytimes.com/2025/12/28/technology/tech-trump.html
+**We Don’t Seem to be Making America Healthy Again**\
+`So much in public health has changed.`\
+https://nytimes.com/2025/12/28/opinion/one-year-of-kennedy.html
 
-**Twins’ Peaks: The Gilbertson Brothers Want to Rewrite Your Country’s Map**\
-`Two brothers, both mechanical engineers, are climbing many of the world’s tall peaks to prove they have been measured incorrectly.`\
-https://nytimes.com/2025/12/28/science/eric-matthew-gilbertson-mountains.html
+**Sunday Special: The Best Movies of 2025**\
+`“One Battle After Another,” “Sinners” and other movies we loved this year.`\
+https://nytimes.com/2025/12/28/podcasts/the-daily/sunday-special-the-best-movies-of-2025.html
 
-**Matthew Riccitello interview: Why 2026 is a big year for American cycling's emerging star**\
-`After finishing fifth and winning the white jersey at the 2025 Vuelta a Espana, Riccitello is moving to a new team – with new ambitions `\
-https://nytimes.com/athletic/6913565/2025/12/28/matthew-riccitello-interview-cycling-vuelta/
+**Connections Companion No. 932**\
+`Scroll down for hints and conversation about the puzzle for Monday, Dec. 29, 2025.`\
+https://nytimes.com/2025/12/28/crosswords/connections-companion-932.html
 
