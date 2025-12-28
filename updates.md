@@ -1,5 +1,9 @@
 **Texans claim playoff berth, shut Chargers' AFC West title window: Takeaways**\
 `The Texans have now made the playoffs in all three seasons with coach DeMeco Ryans and quarterback C.J. Stroud.`\
+https://nytimes.com/athletic/6921897/2025/12/27/texans-chargers-score-result-takeaways-nfl/
+
+**Texans claim playoff berth, shut Chargers' AFC West title window: Takeaways**\
+`The Texans have now made the playoffs in all three seasons with coach DeMeco Ryans and quarterback C.J. Stroud.`\
 https://nytimes.com/athletic/6921897/2025/12/27/texans-commanders-score-result-takeaways-nfl/
 
 **Colts eliminated from playoff contention with Texans' win over Chargers**\

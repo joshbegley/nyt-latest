@@ -1,6 +1,6 @@
 **Texans claim playoff berth, shut Chargers' AFC West title window: Takeaways**\
 `The Texans have now made the playoffs in all three seasons with coach DeMeco Ryans and quarterback C.J. Stroud.`\
-https://nytimes.com/athletic/6921897/2025/12/27/texans-commanders-score-result-takeaways-nfl/
+https://nytimes.com/athletic/6921897/2025/12/27/texans-chargers-score-result-takeaways-nfl/
 
 **'Shame on the NCAA. Shame on the coaches': Tom Izzo rips James Nnaji signing**\
 `Michigan State coach says it's 'ridiculous' to allow a former NBA draft pick and overseas player have NCAA eligibility.`\
