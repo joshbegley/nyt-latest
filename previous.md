@@ -1,3 +1,7 @@
+**Giannis Antetokounmpo returns, leads Bucks to win over Bulls after 8-game absence**\
+`Down the stretch, the Bucks leaned on Antetokounmpo, and their All-NBA forward delivered.`\
+https://nytimes.com/athletic/6922434/2025/12/27/giannis-antetokounmpo-return-bucks-bulls/
+
 **A thrilling last-second comeback for Wild, with a side of irony: Takeaways**\
 `Mats Zuccarello tied the game in the final 30 seconds and Matt Boldy gave the Wild a 4-3 victory over the Jets in overtime.
 `\
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6922200/2025/12/27/victor-wembanyama-returns-spurs-
 **Texans claim playoff berth, shut Chargers' AFC West title window: Takeaways**\
 `The Texans have now made the playoffs in all three seasons with coach DeMeco Ryans and quarterback C.J. Stroud.`\
 https://nytimes.com/athletic/6921897/2025/12/27/texans-chargers-score-result-takeaways-nfl/
-
-**'Shame on the NCAA. Shame on the coaches': Izzo rips James Nnaji signing**\
-`Michigan State coach says it's 'ridiculous' to allow a former NBA draft pick and overseas player have NCAA eligibility.`\
-https://nytimes.com/athletic/6922089/2025/12/27/tom-izzo-james-nnaji-shame-on-ncaa-coaches/
 
