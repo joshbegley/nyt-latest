@@ -1,3 +1,7 @@
+**Team USA's Cole Hutson stretchered off ice at World Juniors**\
+`Hutson, who was one of the top defensemen in the tournament last year, was hit high with a puck in the second period.`\
+https://nytimes.com/athletic/6922149/2025/12/27/cole-hutson-injury-usa-world-juniors-switzerland/
+
 **Broncos claim AFC West title for first time since 2015 season**\
 `The Broncos can earn AFC's top seed by beating the Chargers in Week 18.`\
 https://nytimes.com/athletic/6922012/2025/12/27/broncos-clinch-afc-west-title-chargers/
