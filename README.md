@@ -18,8 +18,8 @@ https://nytimes.com/athletic/6923723/2025/12/28/steelers-browns-result-score-tak
 `The actress, who died at 91, had what can’t be taught: charisma and attitude onscreen. Here are some highlights.`\
 https://nytimes.com/2025/12/28/movies/brigitte-bardot-movies-to-stream.html
 
-**Saints-Titans takeaways: New Orleans rallies late to edge Tennessee**\
-`New Orleans Saints staged a dramatic late comeback to beat the Tennessee Titans 34–26 at Nissan Stadium in Nashville.`\
+**Tyler Shough's career day rallies Saints past Titans: Takeaways**\
+`The Saints staged a dramatic late comeback to beat the Titans 34-26 at Nissan Stadium in Nashville.`\
 https://nytimes.com/athletic/6923342/2025/12/28/saints-titans-score-result-takeaways/
 
 **Jaguars-Colts takeaways: Jacksonville stays in control of AFC South**\
