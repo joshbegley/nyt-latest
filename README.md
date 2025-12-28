@@ -1,4 +1,4 @@
-**The Briefing: Crystal Palace 0 Tottenham 1 - Archie Gray's goal eases pressure on Thomas Frank**\
+**The Briefing: Crystal Palace 0 Tottenham 1 – Archie Gray's goal eases pressure on Thomas Frank**\
 `Richarlison had two goals ruled out for offside in a nervy win that lifts Spurs up to 11th`\
 https://nytimes.com/athletic/6919843/2025/12/28/crystal-palace-tottenham-result-analysis/
 
