@@ -1,3 +1,11 @@
+**'Shame on the NCAA. Shame on the coaches': Tom Izzo rips James Nnaji signing**\
+`Michigan State coach says it's 'ridiculous' to allow a former NBA draft pick and overseas player have NCAA eligibility.`\
+https://nytimes.com/athletic/6922089/2025/12/27/tom-izzo-james-nnaji-shame-on-ncaa-coaches/
+
+**Slopes Are Empty as a Labor Dispute Shuts Down a Colorado Ski Town**\
+`Now, vacationers looking to ski are wondering what to do and merchants are hoping it doesn’t last.`\
+https://nytimes.com/2025/12/27/us/telluride-colorado-ski-resort-union-strike.html
+
 **Colts eliminated from playoff contention with Chargers' loss**\
 `The Colts became the fifth team since the AFL-NFL merger in 1970 to win seven of their first eight games and miss the playoffs.`\
 https://nytimes.com/athletic/6922183/2025/12/27/colts-eliminated-nfl-playoff-contention/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/27/crosswords/daily-puzzle-2025-12-28.html
 **Joseph Hartzler Dies at 75; Led Prosecution of Oklahoma City Bomber**\
 `He and his team secured the conviction of Timothy McVeigh, who in 1995 committed the deadliest domestic terror attack in American history.`\
 https://nytimes.com/2025/12/27/us/joseph-hartzler-dead.html
-
-**New York City Hit With Heaviest Snowfall in Years**\
-`A winter storm blanketed the Greater New York area, leading to more than 400 flight cancellations across the region’s major airports. Parts of Long Island saw up to nine inches of snow.`\
-https://nytimes.com/video/nyregion/100000010611680/ny-region-new-york-city-snow-storm.html
-
-**Five players fined for Eagles-Commanders fight; no suspensions**\
-`Commanders defensive lineman Javon Kinlaw drew the biggest fine because he “swung” in the fight, according to the NFL.`\
-https://nytimes.com/athletic/6921963/2025/12/27/eagles-commanders-fight-fines-nfl/
 
