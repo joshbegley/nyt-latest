@@ -1,41 +1,40 @@
+**Villa just don't know when they are beaten. The numbers prove it**\
+`The regularity with which Villa snatch wins from the jaws of defeat has happened too many times under Emery to be down to fortune`\
+https://nytimes.com/athletic/6921777/2025/12/28/aston-villa-unai-emery-tactics-record-winning-run/
+
+**David Raya's match-winning save was incredible, but why was it necessary?**\
+`Arsenal's bid to win the Premier League is being hampered by an inability to navigate comfortable games in a serene fashion`\
+https://nytimes.com/athletic/6921537/2025/12/28/arsenal-title-pressure-david-raya/
+
+**The Lure of a Rising Asian Metropolis? No Traffic.**\
+`Indonesia is building a new, green city in the jungle. Its future is far from certain, but new residents like living there.`\
+https://nytimes.com/2025/12/28/world/asia/indonesia-nusantara-future-capital.html
+
+**Quote of the Day: Social Media Causing Worry For Parents Around Globe**\
+`Quotation of the Day for Sunday, December 27, 2025.`\
+https://nytimes.com/2025/12/28/pageoneplus/quote-of-the-day-social-media-causing-worry-for-parents-around-globe.html
+
+**In Guinea Elections, Ruling Junta Seeks Legitimacy While Barring Rivals**\
+`Whoever wins faces the daunting task of feeding the West African country’s poor and navigating the interests of global powers seeking critical minerals, analysts say.`\
+https://nytimes.com/2025/12/28/world/africa/guinea-elections-junta-mining.html
+
+**Families Demand Answers a Year After Deadliest Plane Crash in South Korea**\
+`Many details of the Jeju Air disaster that killed 179 people remain unclear despite multiple investigations by officials and protests by the victims’ families.`\
+https://nytimes.com/2025/12/28/world/asia/jeju-air-crash-investigation-anniversary.html
+
+**As Some Boycott Myanmar’s Flawed Election, Others Hope for Change**\
+`The voting for Parliament is almost sure to favor the ruling military junta, which is stage-managing the polls. Still, some see them as the most pragmatic way to try to improve conditions.`\
+https://nytimes.com/2025/12/28/world/asia/myanmar-election.html
+
+**Connections: Sports Edition Coach: Hints for Dec. 28, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6922329/2025/12/28/connections-sports-edition-hints-for-dec-28-2025/
+
+**No Corrections: Dec. 28, 2025**\
+`No corrections appeared in print on Sunday, Dec. 28., 2025.`\
+https://nytimes.com/2025/12/28/pageoneplus/no-corrections-dec-28-2025.html
+
 **Derrick Henry reigns in win over Packers as Ravens keep playoff hopes alive: Takeaways**\
 `Baltimore needs Pittsburgh to falter Sunday to set up a Week 18 showdown for the AFC North crown.`\
 https://nytimes.com/athletic/6922238/2025/12/27/ravens-packers-score-result-takeaways-nfl/
-
-**Questions for Canada, Cole Hutson injury: World Juniors Day 2 takeaways**\
-`Day 2 at the 2026 World Juniors was another busy four-game slate that included a couple of tighter-than-expected games for Canada and USA.`\
-https://nytimes.com/athletic/6920664/2025/12/27/world-juniors-canada-cole-hutson-injury-usa/
-
-**Bears clinch first NFC North title since 2018 after Packers' loss to Ravens**\
-`The Bears are division champions for just the sixth time this century and still have a shot at the NFC's No. 1 seed.`\
-https://nytimes.com/athletic/6921939/2025/12/27/bears-clinch-nfc-north-nfl-playoff-picture/
-
-**Snoop Dogg's kickoff catch, Jeff Monken's Powerade bath and more fun bowl moments**\
-`There were a lot of wild and wacky moments in the big schedule of college bowl games Friday and Saturday.`\
-https://nytimes.com/athletic/6922240/2025/12/27/snoop-dogg-catch-jeff-monken-bowl-moments/
-
-**Giannis Antetokounmpo returns, leads Bucks to win over Bulls after 8-game absence**\
-`Down the stretch, the Bucks leaned on Antetokounmpo, and their All-NBA forward delivered.`\
-https://nytimes.com/athletic/6922434/2025/12/27/giannis-antetokounmpo-return-bucks-bulls/
-
-**A thrilling last-second comeback for Wild, with a side of irony: Takeaways**\
-`Mats Zuccarello tied the game in the final 30 seconds and Matt Boldy lifted the Wild to a 4-3 victory over the Jets in overtime.
-`\
-https://nytimes.com/athletic/6922106/2025/12/27/wild-jets-mats-zuccarello-matt-boldy-comeback/
-
-**Cooper Flagg-led rally falls short in Mavs' latest loss without Anthony Davis**\
-`When Davis has been out, Dallas has performed like a team bound for the lottery.`\
-https://nytimes.com/athletic/6922365/2025/12/27/cooper-flagg-mavericks-comeback-kings-anthony-davis/
-
-**The Year in Lists**\
-`As the year drew to a close, we reached out to Opinion columnists and contributors for personal lists.`\
-https://nytimes.com/2025/12/27/opinion/the-year-in-lists.html
-
-**How to watch Ole Miss vs. Georgia: CFP Quarterfinal Start Time, TV, streaming**\
-`Find out how to watch the Ole Miss Rebels play the Georgia Bulldogs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6922379/2025/12/27/ole-miss-vs-georgia-stream-how-to-watch-jan-1/
-
-**ECHL, PHPA reach tentative agreement to end strike**\
-`The news was announced Saturday night, one day after the PHPA's strike came into effect after failed talks over the CBA.`\
-https://nytimes.com/athletic/6922278/2025/12/27/echl-phpa-strike-agreement/
 

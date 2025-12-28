@@ -1,3 +1,15 @@
+**Why even Pep Guardiola is falling for Rayan Cherki’s smooth-talking football**\
+`Manchester City's No 10 is helping his manager nick games that previous City teams might not have won`\
+https://nytimes.com/athletic/6921540/2025/12/28/manchester-city-rayan-cherki-guardiola-smooth/
+
+**The day Liverpool and Wolves fans united in memory of Diogo Jota**\
+`It is not a normal sight to see two sets of Premier League fans united in a common purpose. But Saturday at Anfield was not a normal day`\
+https://nytimes.com/athletic/6921673/2025/12/28/liverpool-jota-wolves-anfield-result/
+
+**Revived Maple Leafs power play could help reset season after toppling Senators**\
+`The Leafs' power play attacked the Senators' penalty kill like a fiddle, darting the puck through them with newfound ease.`\
+https://nytimes.com/athletic/6922489/2025/12/28/maple-leafs-power-play-improvement-senators-win/
+
 **Villa just don't know when they are beaten. The numbers prove it**\
 `The regularity with which Villa snatch wins from the jaws of defeat has happened too many times under Emery to be down to fortune`\
 https://nytimes.com/athletic/6921777/2025/12/28/aston-villa-unai-emery-tactics-record-winning-run/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/12/28/world/asia/jeju-air-crash-investigation-anniversa
 **As Some Boycott Myanmar’s Flawed Election, Others Hope for Change**\
 `The voting for Parliament is almost sure to favor the ruling military junta, which is stage-managing the polls. Still, some see them as the most pragmatic way to try to improve conditions.`\
 https://nytimes.com/2025/12/28/world/asia/myanmar-election.html
-
-**Connections: Sports Edition Coach: Hints for Dec. 28, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6922329/2025/12/28/connections-sports-edition-hints-for-dec-28-2025/
-
-**No Corrections: Dec. 28, 2025**\
-`No corrections appeared in print on Sunday, Dec. 28., 2025.`\
-https://nytimes.com/2025/12/28/pageoneplus/no-corrections-dec-28-2025.html
-
-**Derrick Henry reigns in win over Packers as Ravens keep playoff hopes alive: Takeaways**\
-`Baltimore needs Pittsburgh to falter Sunday to set up a Week 18 showdown for the AFC North crown.`\
-https://nytimes.com/athletic/6922238/2025/12/27/ravens-packers-score-result-takeaways-nfl/
 
