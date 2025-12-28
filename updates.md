@@ -1,3 +1,7 @@
+**The Pulse: A snubbed champ is crowned**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6922599/2025/12/28/a-pop-tarts-champion-is-crowned-breathing-life-into-bowl-season/
+
 **Trump Administration Live Updates: Zelensky to Present Revised Peace Plan in Florida Meeting**\
 ``\
 https://nytimes.com/live/2025/12/28/us/trump-news-ukraine-zelensky
