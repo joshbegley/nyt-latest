@@ -1,3 +1,7 @@
+**Colts eliminated from playoff contention with Chargers' loss**\
+`The Colts became the fifth team since the AFL-NFL merger in 1970 to win seven of their first eight games and miss the playoffs.`\
+https://nytimes.com/athletic/6922183/2025/12/27/colts-eliminated-nfl-playoff-contention/
+
 **Team USA's Cole Hutson stretchered off ice at World Juniors**\
 `Hutson, who was one of the top defensemen in the tournament last year, was hit high with a puck in the second period.`\
 https://nytimes.com/athletic/6922149/2025/12/27/cole-hutson-injury-usa-world-juniors-switzerland/
@@ -33,8 +37,4 @@ https://nytimes.com/video/nyregion/100000010611680/ny-region-new-york-city-snow-
 **Five players fined for Eagles-Commanders fight; no suspensions**\
 `Commanders defensive lineman Javon Kinlaw drew the biggest fine because he “swung” in the fight, according to the NFL.`\
 https://nytimes.com/athletic/6921963/2025/12/27/eagles-commanders-fight-fines-nfl/
-
-**Diego Pavia's eligibility lawsuit opens with poem, cites NBA draftee headed to Baylor**\
-`Diego Pavia is challenging an NCAA rule that counts athletes' junior-college years against their NCAA eligibility.`\
-https://nytimes.com/athletic/6921697/2025/12/27/diego-pavia-ncaa-elibigility-lawsuit-poem/
 

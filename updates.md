@@ -1,3 +1,7 @@
+**Colts eliminated from playoff contention with Chargers' loss**\
+`The Colts became the fifth team since the AFL-NFL merger in 1970 to win seven of their first eight games and miss the playoffs.`\
+https://nytimes.com/athletic/6922183/2025/12/27/colts-eliminated-nfl-playoff-contention/
+
 **Team USA's Cole Hutson stretchered off ice at World Juniors**\
 `Hutson, who was one of the top defensemen in the tournament last year, was hit high with a puck in the second period.`\
 https://nytimes.com/athletic/6922149/2025/12/27/cole-hutson-injury-usa-world-juniors-switzerland/
