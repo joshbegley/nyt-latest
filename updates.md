@@ -1,3 +1,7 @@
+**Will Steelers or Ravens win AFC North? Did Drake Maye lock up MVP? Week 17 expert takeaways**\
+`The Panthers and Bucs are also stumbling into Week 18 after Sunday's losses. Only one can win the last NFC playoff berth. Who has the edge?`\
+https://nytimes.com/athletic/6923411/2025/12/28/nfl-takeaways-week-17-scores-results/
+
 **The Briefing: Ivory Coast 1 Cameroon 1 – Was Amad strike goal of tournament so far? How vital is Mbeumo?**\
 `Our writers break down the action from an enthralling AFCON group F encounter`\
 https://nytimes.com/athletic/6919844/2025/12/28/ivory-coast-amad-cameroon-mbeumo/
