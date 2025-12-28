@@ -1,3 +1,11 @@
+**Broncos claim AFC West title for first time since 2015 season**\
+`The Broncos can earn AFC's top seed by beating the Chargers in Week 18.`\
+https://nytimes.com/athletic/6922012/2025/12/27/broncos-clinch-afc-west-title-chargers/
+
+**Off Broadway Musicals**\
+`An Alex Eaton-Salners puzzle on a Sunday? Jazz hands!`\
+https://nytimes.com/2025/12/27/crosswords/daily-puzzle-2025-12-28.html
+
 **JJ Redick, Lakers cool things down after Christmas blowout loss**\
 `The two-way conversation between players and coaches centered on Redick taking responsibility and reorganizing his priorities.`\
 https://nytimes.com/athletic/6922077/2025/12/27/lakers-jj-redick-christmas-day-tension-cool-down/
