@@ -1,3 +1,15 @@
+**How to watch Pistons vs. Clippers: Time, TV, streaming**\
+`Find out how to watch the Detroit Pistons play the Los Angeles Clippers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6923562/2025/12/28/pistons-vs-clippers-stream-how-to-watch-dec-28/
+
+**How to watch Flyers vs. Kraken: Time, TV, streaming**\
+`Find out how to watch the Philadelphia Flyers play the Seattle Kraken, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6923560/2025/12/28/flyers-vs-kraken-stream-how-to-watch-dec-28/
+
+**How to watch Kings vs. Lakers: Time, TV, streaming**\
+`Find out how to watch the Sacramento Kings play the Los Angeles Lakers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6923558/2025/12/28/kings-vs-lakers-stream-how-to-watch-dec-28/
+
 **How to watch Gonzaga vs. Pepperdine men's basketball: Time, TV, streaming**\
 `Find out how to watch the Gonzaga Bulldogs play the Pepperdine Waves, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6923540/2025/12/28/gonzaga-vs-pepperdine-stream-how-to-watch-dec-28/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/12/28/technology/gmail-change-address-email.html
 **The Briefing: Crystal Palace 0 Tottenham 1 – Archie Gray's goal eases pressure on Thomas Frank**\
 `Richarlison had two goals ruled out for offside in a nervy win that lifts Spurs up to 11th`\
 https://nytimes.com/athletic/6919843/2025/12/28/crystal-palace-tottenham-result-analysis/
-
-**Syrian Protests Over Lack of Security Leave 2 Dead**\
-`Days after a bombing at a mosque in a predominantly Alawite area, members of the religious minority in Syria demonstrated for better protections.`\
-https://nytimes.com/2025/12/28/world/middleeast/syria-protests-alawite-two-killed.html
-
-**Adingra looking to take Sunderland chance after AFCON snub**\
-`In the 2024 AFCON final, Adingra was named man of the match as Ivory Coast triumphed over Nigeria.`\
-https://nytimes.com/athletic/6923397/2025/12/28/simon-adingra-sunderland-ivory-coast/
-
-**Sabalenka and Kyrgios' 'Battle of the Sexes' could have been tragedy. Instead, it was farce**\
-`The production value, court and style of tennis made a match using the name of a huge sports event hard to watch for unexpected reasons.`\
-https://nytimes.com/athletic/6923238/2025/12/28/tennis-sabalenka-kyrgios-battle-sexes/
 
