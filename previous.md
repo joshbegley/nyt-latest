@@ -1,40 +1,40 @@
-**The curious case of the MCG pitch, a two-day Ashes Test and a curator left in a 'state of shock'**\
-`The MCG groundsman has explained why he left too much grass on the strip for the Boxing Day Test as the financial implications become clear`\
-https://nytimes.com/athletic/6922016/2025/12/28/mcg-ashes-pitch-curator-page-australia-england/
+**Zelensky to Meet With Trump at Mar-a-Lago About Plan to End War With Russia**\
+`President Volodymyr Zelensky of Ukraine brings a revised 20-point peace proposal, as well as doubts about whether Russia is serious about pursuing peace.`\
+https://nytimes.com/2025/12/28/world/europe/zelensky-trump-ukraine-russia-talks.html
 
-**God as Black**\
-`During Kwanzaa, we look at the history of Black religious iconography.`\
-https://nytimes.com/2025/12/28/briefing/kwanzaa.html
+**Zero Hour for the Middle East**\
+`After more than a decade of wars, from Syria to Gaza, the Middle East is exhausted by conflict. Is it ready to find another way?`\
+https://nytimes.com/2025/12/28/world/middleeast/future-of-mideast.html
 
-**To See Mamdani Sworn In, Some Out-of-Towners Confront N.Y.C. Prices**\
-`Zohran Mamdani campaigned for mayor on a platform of taming the high cost of living for New Yorkers. Visitors will get a crash course in the affordability crisis.`\
-https://nytimes.com/2025/12/28/nyregion/mamdani-inauguration-visitors-new-york-prices.html
+**From A.I. to Chips, Big Tech Is Getting What It Wants From Trump**\
+`The president has backed policies that allow the industry to grow unfettered. The mutually beneficial alliance is causing concern among some conservatives.`\
+https://nytimes.com/2025/12/28/technology/tech-trump.html
 
-**The Best of Metropolitan Diary 2025: The Readers Speak**\
-`An anecdote about a questionable bagel order claims the top spot this year, outpolling four other favorites. All five are presented here.`\
-https://nytimes.com/2025/12/28/nyregion/metropolitan-diary.html
+**Twins’ Peaks: The Gilbertson Brothers Want to Rewrite Your Country’s Map**\
+`Two brothers, both mechanical engineers, are climbing many of the world’s tall peaks to prove they have been measured incorrectly.`\
+https://nytimes.com/2025/12/28/science/eric-matthew-gilbertson-mountains.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/12/28/crosswords/spelling-bee-forum.html
+**Matthew Riccitello interview: Why 2026 is a big year for American cycling's emerging star**\
+`After finishing fifth and winning the white jersey at the 2025 Vuelta a Espana, Riccitello is moving to a new team – with new ambitions `\
+https://nytimes.com/athletic/6913565/2025/12/28/matthew-riccitello-interview-cycling-vuelta/
 
-**The Briefing - Nigeria 3 Tunisia 2: Lookman lethal as a No 10, more VAR drama and Chelle's issue to solve**\
-`Nigeria were cruising into the round of 16 until late changes and a controversial penalty caused chaos. We assess the talking points...`\
-https://nytimes.com/athletic/6919602/2025/12/28/nigeria-3-tunisia-2-lookman-var-chelle/
+**What America Might Look Like With Zero Immigration**\
+`The Trump administration’s efforts to reduce the foreign-born population are being felt in hospitals and soccer leagues and on Main Streets across the country, with hints of what’s to come.`\
+https://nytimes.com/2025/12/28/business/us-immigration-trump-1920s.html
 
-**The New York Times in Print for Sunday, Dec. 28, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/12/28/todays-new-york-times
+**He Was a Supreme Court Lawyer. Then His Double Life Caught Up With Him.**\
+`Thomas Goldstein was a superstar in the legal world. He was also a secret high-stakes gambler, whose wild 10-year run may now land him in prison.`\
+https://nytimes.com/2025/12/28/magazine/thomas-goldstein-supreme-court-gambling.html
 
-**Florian Wirtz is now showing why Liverpool broke the bank to get him**\
-`The £116m signing finding his swagger feels crucial for Liverpool's hopes of success in 2026 `\
-https://nytimes.com/athletic/6921209/2025/12/28/liverpool-florian-wirtz-premier-league-goal/
+**We’re All Unique. Or Are We?**\
+`Two artists spent 30 years cataloging how people dress and learned a lot about humanity in the process.`\
+https://nytimes.com/2025/12/28/style/exactitudes-photography.html
 
-**Igor Jesus is filling the void of Chris Wood. Now he needs goals**\
-`Forest have lost their talisman from last season in Wood - but their Brazilian striker is proving a menace to defenders`\
-https://nytimes.com/athletic/6921358/2025/12/28/igor-jesus-chris-wood-nottingham-forest/
+**Trump Calls Petro a ‘Drug Leader.’ What’s the Colombian Leader’s Record?**\
+`President Gustavo Petro is locked in a war of words with President Trump over Colombia’s major role in the global drug trade. The issue is complicated.`\
+https://nytimes.com/2025/12/28/world/americas/colombia-drug-trade-trump-petro.html
 
-**Ruben Amorim is building a platform for victory – but his team still need more control**\
-`Whether a back three or a back four — what's important is how Manchester United operate inside those frameworks`\
-https://nytimes.com/athletic/6921040/2025/12/28/ruben-amorim-is-building-a-platform-for-victory-but-his-team-still-need-more-control/
+**Want to Build a Better World? The São Paulo Bienal Has Some Tips**\
+`“Not All Travelers Walk Roads,” the 36th edition of the exhibition, sees art as a guide for connecting with each other and with the earth.`\
+https://nytimes.com/2025/12/28/arts/design/sao-paolo-bienal-notebook.html
 
