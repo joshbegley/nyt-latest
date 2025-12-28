@@ -1,3 +1,7 @@
+**Man Charged in Fatal Shooting During Backyard Target Practice**\
+`The Oklahoma man had bought himself a Glock .45 handgun for Christmas and was shooting at an energy drink can when a woman nearby was fatally struck, officials said.`\
+https://nytimes.com/2025/12/28/us/oklahoma-shooting-neighbor-christmas.html
+
 **How to watch Islanders vs. Blue Jackets: Time, TV, streaming**\
 `Find out how to watch the New York Islanders play the Columbus Blue Jackets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6923270/2025/12/28/islanders-vs-blue-jackets-stream-how-to-watch-dec-28/
