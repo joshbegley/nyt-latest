@@ -1,3 +1,7 @@
+**Pop-Tarts Bowl takeaways: BYU rallies to beat Georgia Tech, Team Sprinkles sacrificed**\
+`MVP Bear Bachmeier ordered Team Sprinkles to be sacrificed after BYU's 25-21 come-from-behind victory over Georgia Tech.`\
+https://nytimes.com/athletic/6922198/2025/12/27/pop-tarts-bowl-byu-georgia-tech-sprinkles/
+
 **Victor Wembanyama returns to Spurs' starting lineup after six games as reserve**\
 `Before Wembanyama’s six-game stint as a reserve, he missed 12 consecutive games with a left calf strain.`\
 https://nytimes.com/athletic/6922200/2025/12/27/victor-wembanyama-returns-spurs-starting-lineup/
