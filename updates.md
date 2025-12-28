@@ -1,3 +1,19 @@
+**The Briefing: Crystal Palace 0 Tottenham 1 - Archie Gray's goal eases pressure on Thomas Frank**\
+`Richarlison had two goals ruled out for offside in a nervy win that lifts Spurs up to 11th`\
+https://nytimes.com/athletic/6919843/2025/12/28/crystal-palace-tottenham-result-analysis/
+
+**Two Killed as Syria’s Alawite Minority Protests Lack of Security**\
+`Days after a bombing at a mosque in a predominantly Alawite area, members of the religious minority in Syria demonstrated for better protections.`\
+https://nytimes.com/2025/12/28/world/middleeast/syria-protests-alawite-two-killed.html
+
+**Adingra looking to take Sunderland chance after AFCON snub**\
+`In the 2024 AFCON final, Adingra was named man of the match as Ivory Coast triumphed over Nigeria.`\
+https://nytimes.com/athletic/6923397/2025/12/28/simon-adingra-sunderland-ivory-coast/
+
+**Mikaela Shiffrin, with 'best possible' second run, wins her sixth straight World Cup slalom**\
+`Shiffrin delivered her "best possible run" to come from behind and win yet another World Cup slalom race with the Olympics nearing.`\
+https://nytimes.com/athletic/6921122/2025/12/28/mikaela-shiffrin-wins-slalom-world-cup-olympics-semmering/
+
 **Sabalenka and Kyrgios' 'Battle of the Sexes' could have been tragedy. Instead, it was farce**\
 `The production value, court and style of tennis made a match using the name of a huge sports event hard to watch for unexpected reasons.`\
 https://nytimes.com/athletic/6923238/2025/12/28/tennis-sabalenka-kyrgios-battle-sexes/
