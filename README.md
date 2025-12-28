@@ -1,3 +1,7 @@
+**Giannis throws down: 'We’re fighting for our lives and we gotta get our hands dirty'**\
+`His late windmill may have been an affront to basketball decorum, but to Giannis Antetokounpo, it was an absolute necessity.`\
+https://nytimes.com/athletic/6922761/2025/12/28/giannis-throws-down-bucks/
+
 **Rangers' scoring woes reach concerning point, plus other thoughts**\
 `For the Rangers, what’s become familiar is now reaching unprecedented levels after a 2-0 loss to the Islanders.`\
 https://nytimes.com/athletic/6922459/2025/12/28/rangers-islanders-scoring-shutout-loss/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/28/opinion/one-year-of-kennedy.html
 **Sunday Special: The Best Movies of 2025**\
 `“One Battle After Another,” “Sinners” and other movies we loved this year.`\
 https://nytimes.com/2025/12/28/podcasts/the-daily/sunday-special-the-best-movies-of-2025.html
-
-**Connections Companion No. 932**\
-`Scroll down for hints and conversation about the puzzle for Monday, Dec. 29, 2025.`\
-https://nytimes.com/2025/12/28/crosswords/connections-companion-932.html
 
