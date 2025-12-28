@@ -27,7 +27,7 @@ https://nytimes.com/athletic/6921540/2025/12/28/manchester-city-rayan-cherki-gua
 https://nytimes.com/athletic/6921673/2025/12/28/liverpool-jota-wolves-anfield-result/
 
 **Revived Maple Leafs power play could help reset season after toppling Senators**\
-`The Leafs' power play attacked the Senators' penalty kill like a fiddle, darting the puck through them with newfound ease.`\
+`The Leafs' power play attacked the Senators' penalty kill like a fiddle, darting the puck through them with newfound ease in a 7-5 win.`\
 https://nytimes.com/athletic/6922489/2025/12/28/maple-leafs-power-play-improvement-senators-win/
 
 **Villa just don't know when they are beaten. The numbers prove it**\
