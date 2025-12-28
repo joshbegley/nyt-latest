@@ -1,3 +1,11 @@
+**Behold the ‘God of Generous Out-Flowing Love’**\
+`A Q & A with N.T. Wright about why Jesus entered into human history.`\
+https://nytimes.com/2025/12/28/opinion/jesus-christmas-history-faith-belief-ntwright.html
+
+**The Democratic Party Avoids a Reckoning**\
+`Readers fault Democrats for stalling a report on their 2024 failures. Also: A lawyer’s faith in freedom; a rabbi responds to JD Vance’s claim of a Christian nation. `\
+https://nytimes.com/2025/12/28/opinion/dnc-2024-report-release.html
+
 **How to watch Warriors vs. Raptors: Time, TV, streaming**\
 `Find out how to watch the Golden State Warriors play the Toronto Raptors, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6923032/2025/12/28/warriors-vs-raptors-stream-how-to-watch-dec-28/

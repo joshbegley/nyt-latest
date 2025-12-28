@@ -1,3 +1,7 @@
+**Trump Administration Live Updates: Zelensky to Present Revised Peace Plan in Florida Meeting**\
+``\
+https://nytimes.com/live/2025/12/28/us/trump-news-ukraine-zelensky
+
 **Behold the ‘God of Generous Out-Flowing Love’**\
 `A Q & A with N.T. Wright about why Jesus entered into human history.`\
 https://nytimes.com/2025/12/28/opinion/jesus-christmas-history-faith-belief-ntwright.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6922996/2025/12/28/alabama-state-vs-lsu-stream-how-
 **How to watch Winthrop vs. Texas Tech men's basketball: Time, TV, streaming**\
 `Find out how to watch the Winthrop Eagles play the Texas Tech Red Raiders, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6922993/2025/12/28/winthrop-vs-texas-tech-stream-how-to-watch-dec-28/
-
-**How to watch Hofstra vs. Kentucky women's basketball: Time, TV, streaming**\
-`Find out how to watch the Hofstra Pride play the Kentucky Wildcats, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6922990/2025/12/28/hofstra-vs-kentucky-stream-how-to-watch-dec-28/
 
