@@ -1,3 +1,7 @@
+**Inside Vienna’s Ball Season of Waltzes and White Ties**\
+`The annual Vienna Philharmonic Ball anchors a winter calendar of some 450 dances across the city that open a window into Viennese tradition, then and now.`\
+https://nytimes.com/2025/12/28/arts/dance/vienna-balls-waltz-debutantes.html
+
 **A Star Conductor Brings Sparkle to Vienna’s New Year’s Concert**\
 `For the first time, Yannick Nézet-Séguin will lead the Vienna Philharmonic’s most-watched event of the year: its annual concert on New Year’s Day.`\
 https://nytimes.com/2025/12/28/arts/music/yannick-nezet-seguin-vienna-philharmonic-new-year.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6923238/2025/12/28/tennis-sabalenka-kyrgios-battle-
 **Mikaela Shiffrin, with 'best possible' second run, wins her sixth straight World Cup slalom**\
 `Shiffrin delivered her "best possible run" to come from behind and win yet another World Cup slalom race with the Olympics nearing.`\
 https://nytimes.com/athletic/6921122/2025/12/28/mikaela-shiffrin-wins-slalom-world-cup-olympics-semmering/
-
-**Kyle Whittingham on Michigan job: ‘I didn’t have any hesitation’**\
-`Whittingham said he spent 45 minutes with QB Bryce Underwood on Sunday as part of his efforts to retain as many players as possible.`\
-https://nytimes.com/athletic/6923334/2025/12/28/kyle-whittingham-michigan-football-introduction/
 

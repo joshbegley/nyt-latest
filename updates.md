@@ -1,3 +1,7 @@
+**Inside Vienna’s Ball Season of Waltzes and White Ties**\
+`The annual Vienna Philharmonic Ball anchors a winter calendar of some 450 dances across the city that open a window into Viennese tradition, then and now.`\
+https://nytimes.com/2025/12/28/arts/dance/vienna-balls-waltz-debutantes.html
+
 **A Star Conductor Brings Sparkle to Vienna’s New Year’s Concert**\
 `For the first time, Yannick Nézet-Séguin will lead the Vienna Philharmonic’s most-watched event of the year: its annual concert on New Year’s Day.`\
 https://nytimes.com/2025/12/28/arts/music/yannick-nezet-seguin-vienna-philharmonic-new-year.html
