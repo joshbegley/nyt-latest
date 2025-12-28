@@ -1,3 +1,7 @@
+**The Athletic’s review of 2025: MVP McTominay, the ever-dutiful Gianni and Ronaldo's red reprieve**\
+`Biggest surprise of the football year? Most predictable moment? Biggest injustice? Best quote? And a few predictions for 2026...`\
+https://nytimes.com/athletic/6897786/2025/12/28/football-soccer-2025-review/
+
 **Why even Pep Guardiola is falling for Rayan Cherki’s smooth-talking football**\
 `Manchester City's No 10 is helping his manager nick games that previous City teams might not have won`\
 https://nytimes.com/athletic/6921540/2025/12/28/manchester-city-rayan-cherki-guardiola-smooth/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/28/world/africa/guinea-elections-junta-mining.html
 **Families Demand Answers a Year After Deadliest Plane Crash in South Korea**\
 `Many details of the Jeju Air disaster that killed 179 people remain unclear despite multiple investigations by officials and protests by the victims’ families.`\
 https://nytimes.com/2025/12/28/world/asia/jeju-air-crash-investigation-anniversary.html
-
-**As Some Boycott Myanmar’s Flawed Election, Others Hope for Change**\
-`The voting for Parliament is almost sure to favor the ruling military junta, which is stage-managing the polls. Still, some see them as the most pragmatic way to try to improve conditions.`\
-https://nytimes.com/2025/12/28/world/asia/myanmar-election.html
 
