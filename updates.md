@@ -1,3 +1,16 @@
+**Bears clinch first NFC North title since 2018 after Packers' loss to Ravens**\
+`The Bears are division champions for just the sixth time this century and still have a shot at the NFC's No. 1 seed.`\
+https://nytimes.com/athletic/6921939/2025/12/27/bears-clinch-nfc-north-nfl-playoff-picture/
+
+**Snoop Dogg's kickoff catch, Jeff Monken's Gatorade escape, and more fun bowl moments**\
+`There were a lot of wild and wacky moments in the big schedule of bowl games Friday and Saturday.`\
+https://nytimes.com/athletic/6922240/2025/12/27/snoop-dogg-catch-jeff-monken-bowl-moments/
+
+**A thrilling last-second comeback for Wild, with a side of irony: Takeaways**\
+`Mats Zuccarello tied the game in the final 30 seconds and Matt Boldy gave the Wild a 4-3 victory over the Jets in overtime.
+`\
+https://nytimes.com/athletic/6922106/2025/12/27/wild-jets-mats-zuccarello-matt-boldy-comeback/
+
 **A thrilling last-second comeback for Wild, with a side of irony: Takeaways**\
 `Mats Zuccarello tied the game in the final 30 seconds and Matt Boldy gave the Wild a 4-3 victory over the Jets in overtime.
 `\

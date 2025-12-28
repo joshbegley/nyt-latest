@@ -11,7 +11,7 @@ https://nytimes.com/athletic/6922240/2025/12/27/snoop-dogg-catch-jeff-monken-bow
 https://nytimes.com/athletic/6922434/2025/12/27/giannis-antetokounmpo-return-bucks-bulls/
 
 **A thrilling last-second comeback for Wild, with a side of irony: Takeaways**\
-`Mats Zuccarello tied the game in the final 30 seconds and Matt Boldy gave the Wild a 4-3 victory over the Jets in overtime.
+`Mats Zuccarello tied the game in the final 30 seconds and Matt Boldy lifted the Wild to a 4-3 victory over the Jets in overtime.
 `\
 https://nytimes.com/athletic/6922106/2025/12/27/wild-jets-mats-zuccarello-matt-boldy-comeback/
 

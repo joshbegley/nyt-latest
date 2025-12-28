@@ -1,3 +1,11 @@
+**Bears clinch first NFC North title since 2018 after Packers' loss to Ravens**\
+`The Bears are division champions for just the sixth time this century and still have a shot at the NFC's No. 1 seed.`\
+https://nytimes.com/athletic/6921939/2025/12/27/bears-clinch-nfc-north-nfl-playoff-picture/
+
+**Snoop Dogg's kickoff catch, Jeff Monken's Gatorade escape, and more fun bowl moments**\
+`There were a lot of wild and wacky moments in the big schedule of bowl games Friday and Saturday.`\
+https://nytimes.com/athletic/6922240/2025/12/27/snoop-dogg-catch-jeff-monken-bowl-moments/
+
 **Giannis Antetokounmpo returns, leads Bucks to win over Bulls after 8-game absence**\
 `Down the stretch, the Bucks leaned on Antetokounmpo, and their All-NBA forward delivered.`\
 https://nytimes.com/athletic/6922434/2025/12/27/giannis-antetokounmpo-return-bucks-bulls/
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6922281/2025/12/27/jose-alvarado-mark-williams-ejec
 **Pop-Tarts Bowl takeaways: BYU rallies to beat Georgia Tech, Team Sprinkles sacrificed**\
 `MVP Bear Bachmeier ordered Team Sprinkles to be sacrificed after BYU's 25-21 come-from-behind victory over Georgia Tech.`\
 https://nytimes.com/athletic/6922198/2025/12/27/pop-tarts-bowl-byu-georgia-tech-sprinkles/
-
-**Victor Wembanyama returns to Spurs' starting lineup after six games as reserve**\
-`Before Wembanyama’s six-game stint as a reserve, he missed 12 consecutive games with a left calf strain.`\
-https://nytimes.com/athletic/6922200/2025/12/27/victor-wembanyama-returns-spurs-starting-lineup/
-
-**Texans claim playoff berth, shut Chargers' AFC West title window: Takeaways**\
-`The Texans have now made the playoffs in all three seasons with coach DeMeco Ryans and quarterback C.J. Stroud.`\
-https://nytimes.com/athletic/6921897/2025/12/27/texans-chargers-score-result-takeaways-nfl/
 
