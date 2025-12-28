@@ -1,3 +1,11 @@
+**Villa just don't know when they are beaten. The numbers prove it**\
+`The regularity with which Villa snatch wins from the jaws of defeat has happened too many times under Emery to be down to fortune`\
+https://nytimes.com/athletic/6921777/2025/12/28/aston-villa-unai-emery-tactics-record-winning-run/
+
+**David Raya's match-winning save was incredible, but why was it necessary?**\
+`Arsenal's bid to win the Premier League is being hampered by an inability to navigate comfortable games in a serene fashion`\
+https://nytimes.com/athletic/6921537/2025/12/28/arsenal-title-pressure-david-raya/
+
 **The Lure of a Rising Asian Metropolis? No Traffic.**\
 `Indonesia is building a new, green city in the jungle. Its future is far from certain, but new residents like living there.`\
 https://nytimes.com/2025/12/28/world/asia/indonesia-nusantara-future-capital.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/28/pageoneplus/no-corrections-dec-28-2025.html
 **Derrick Henry reigns in win over Packers as Ravens keep playoff hopes alive: Takeaways**\
 `Baltimore needs Pittsburgh to falter Sunday to set up a Week 18 showdown for the AFC North crown.`\
 https://nytimes.com/athletic/6922238/2025/12/27/ravens-packers-score-result-takeaways-nfl/
-
-**Questions for Canada, Cole Hutson injury: World Juniors Day 2 takeaways**\
-`Day 2 at the 2026 World Juniors was another busy four-game slate that included a couple of tighter-than-expected games for Canada and USA.`\
-https://nytimes.com/athletic/6920664/2025/12/27/world-juniors-canada-cole-hutson-injury-usa/
-
-**Bears clinch first NFC North title since 2018 after Packers' loss to Ravens**\
-`The Bears are division champions for just the sixth time this century and still have a shot at the NFC's No. 1 seed.`\
-https://nytimes.com/athletic/6921939/2025/12/27/bears-clinch-nfc-north-nfl-playoff-picture/
 
