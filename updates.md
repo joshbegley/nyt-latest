@@ -1,3 +1,7 @@
+**The Year in Lists**\
+`As the year drew to a close, we reached out to Opinion columnists and contributors for personal lists.`\
+https://nytimes.com/2025/12/27/opinion/the-year-in-lists.html
+
 **ECHL, PHPA reach tentative agreement to end strike**\
 `The news was announced Saturday night, one day after the PHPA's strike came into effect after failed talks over the CBA.`\
 https://nytimes.com/athletic/6922278/2025/12/27/echl-phpa-strike-agreement/
