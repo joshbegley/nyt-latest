@@ -1,3 +1,11 @@
+**The Battle of the Sexes: Can this week's Sabalenka vs Kyrgios spectacle live up to its name?**\
+`Half a century after Billie Jean King beat Bobby Riggs, the WTA world No. 1 believes this match is good for women's tennis. Critics disagree`\
+https://nytimes.com/athletic/6916114/2025/12/28/tennis-battle-of-the-sexes-sabalenka-kyrgios/
+
+**In powering through Packers, Ravens show much-needed fight to keep their season alive**\
+`Despite a season that has tested them in so many ways, Derrick Henry and Baltimore showed they still had some punch left. `\
+https://nytimes.com/athletic/6922850/2025/12/28/ravens-win-playoff-hopes-packers/
+
 **'We’re fighting for our lives and we gotta get our hands dirty': Giannis throws down**\
 `His late windmill may have been an affront to basketball decorum, but to Giannis Antetokounpo, it was an absolute necessity.`\
 https://nytimes.com/athletic/6922761/2025/12/28/giannis-throws-down-bucks/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6920491/2025/12/28/senators-ullmark-maple-leafs-4-t
 **Chargers' blunders too much to overcome in loss to Texans: 'Some things to clean up'**\
 `The Chargers spotted the Texans an early 14-0 lead and still had chances to deliver a comeback. They couldn't.`\
 https://nytimes.com/athletic/6922482/2025/12/28/chargers-loss-texans-mistakes-week-17/
-
-**We Don’t Seem to be Making America Healthy Again**\
-`So much in public health has changed.`\
-https://nytimes.com/2025/12/28/opinion/one-year-of-kennedy.html
-
-**Sunday Special: The Best Movies of 2025**\
-`“One Battle After Another,” “Sinners” and other movies we loved this year.`\
-https://nytimes.com/2025/12/28/podcasts/the-daily/sunday-special-the-best-movies-of-2025.html
 

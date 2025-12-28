@@ -1,3 +1,11 @@
+**The Battle of the Sexes: Can this week's Sabalenka vs Kyrgios spectacle live up to its name?**\
+`Half a century after Billie Jean King beat Bobby Riggs, the WTA world No. 1 believes this match is good for women's tennis. Critics disagree`\
+https://nytimes.com/athletic/6916114/2025/12/28/tennis-battle-of-the-sexes-sabalenka-kyrgios/
+
+**In powering through Packers, Ravens show much-needed fight to keep their season alive**\
+`Despite a season that has tested them in so many ways, Derrick Henry and Baltimore showed they still had some punch left. `\
+https://nytimes.com/athletic/6922850/2025/12/28/ravens-win-playoff-hopes-packers/
+
 **'We’re fighting for our lives and we gotta get our hands dirty': Giannis throws down**\
 `His late windmill may have been an affront to basketball decorum, but to Giannis Antetokounpo, it was an absolute necessity.`\
 https://nytimes.com/athletic/6922761/2025/12/28/giannis-throws-down-bucks/
