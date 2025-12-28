@@ -1,3 +1,7 @@
+**Broncos claim AFC West title for first time since 2015 season**\
+`The Broncos can earn AFC's top seed by beating the Chargers in Week 18.`\
+https://nytimes.com/athletic/6922012/2025/12/27/broncos-clinch-afc-west-title-chargers/
+
 **JJ Redick, Lakers cool things down after Christmas blowout loss**\
 `The two-way conversation between players and coaches centered on Redick taking responsibility and reorganizing his priorities.`\
 https://nytimes.com/athletic/6922077/2025/12/27/lakers-jj-redick-christmas-day-tension-cool-down/
@@ -10,7 +14,7 @@ https://nytimes.com/athletic/6922121/2025/12/27/alabama-vs-indiana-stream-how-to
 `New York will also miss Hart's ability to push the pace in transition as the Knicks struggle to consistently play fast.`\
 https://nytimes.com/athletic/6921995/2025/12/27/josh-hart-ankle-injury-out-three-games-knicks/
 
-**Off Broadway Musical**\
+**Off Broadway Musicals**\
 `An Alex Eaton-Salners puzzle on a Sunday? Jazz hands!`\
 https://nytimes.com/2025/12/27/crosswords/daily-puzzle-2025-12-28.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6921697/2025/12/27/diego-pavia-ncaa-elibigility-law
 **Patriots place Mack Hollins on IR, putting playoff availability in doubt**\
 `Mack Hollins' IR designation means he will miss at least four games, with the earliest chance to return in the AFC Championship Game.`\
 https://nytimes.com/athletic/6921899/2025/12/27/patriots-mack-hollins-injured-reserve/
-
-**On this day 25 years ago, Mario Lemieux stated his case as only he could**\
-`Lemieux's return to the NHL on Dec. 27, 2000, after nearly four years away from the game, may have changed his legacy.`\
-https://nytimes.com/athletic/6921315/2025/12/27/mario-lemieux-penguins-nhl-legacy/
 
