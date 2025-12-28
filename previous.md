@@ -1,3 +1,7 @@
+**Make-Ahead Breakfast Ideas**\
+`The host of our Cooking newsletter offers a few suggestions for New Year’s Day breakfasts that you can prep ahead of time.`\
+https://nytimes.com/2025/12/28/briefing/make-ahead-breakfast-ideas.html
+
 **Master Lock Comanche wins line honors in Sydney Hobart Yacht Race: 'She talks to you'**\
 `The victory by Master Lock Comanche in the 80th edition of the 628-nautical-mile race was one for the ages`\
 https://nytimes.com/athletic/6922883/2025/12/28/sydney-hobart-yacht-race-master-lock-comanche/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6922850/2025/12/28/ravens-win-playoff-hopes-packers
 **'We’re fighting for our lives and we gotta get our hands dirty': Giannis throws down**\
 `His late windmill may have been an affront to basketball decorum, but to Giannis Antetokounpo, it was an absolute necessity.`\
 https://nytimes.com/athletic/6922761/2025/12/28/giannis-throws-down-bucks/
-
-**Rangers' scoring woes reach concerning point, plus other thoughts**\
-`For the Rangers, what’s become familiar is now reaching unprecedented levels after a 2-0 loss to the Islanders.`\
-https://nytimes.com/athletic/6922459/2025/12/28/rangers-islanders-scoring-shutout-loss/
 

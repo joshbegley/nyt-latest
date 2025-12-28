@@ -1,3 +1,7 @@
+**Make-Ahead Breakfast Ideas**\
+`The host of our Cooking newsletter offers a few suggestions for New Year’s Day breakfasts that you can prep ahead of time.`\
+https://nytimes.com/2025/12/28/briefing/make-ahead-breakfast-ideas.html
+
 **Master Lock Comanche wins line honors in Sydney Hobart Yacht Race: 'She talks to you'**\
 `The victory by Master Lock Comanche in the 80th edition of the 628-nautical-mile race was one for the ages`\
 https://nytimes.com/athletic/6922883/2025/12/28/sydney-hobart-yacht-race-master-lock-comanche/
