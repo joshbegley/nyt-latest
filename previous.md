@@ -1,3 +1,7 @@
+**Texans claim playoff berth, shut Chargers' AFC West title window: Takeaways**\
+`The Texans have now made the playoffs in all three seasons with coach DeMeco Ryans and quarterback C.J. Stroud.`\
+https://nytimes.com/athletic/6921897/2025/12/27/texans-commanders-score-result-takeaways-nfl/
+
 **'Shame on the NCAA. Shame on the coaches': Tom Izzo rips James Nnaji signing**\
 `Michigan State coach says it's 'ridiculous' to allow a former NBA draft pick and overseas player have NCAA eligibility.`\
 https://nytimes.com/athletic/6922089/2025/12/27/tom-izzo-james-nnaji-shame-on-ncaa-coaches/
@@ -6,7 +10,7 @@ https://nytimes.com/athletic/6922089/2025/12/27/tom-izzo-james-nnaji-shame-on-nc
 `Now, vacationers looking to ski are wondering what to do and merchants are hoping it doesn’t last.`\
 https://nytimes.com/2025/12/27/us/telluride-colorado-ski-resort-union-strike.html
 
-**Colts eliminated from playoff contention with Chargers' loss**\
+**Colts eliminated from playoff contention with Texans' win over Chargers**\
 `The Colts became the fifth team since the AFL-NFL merger in 1970 to win seven of their first eight games and miss the playoffs.`\
 https://nytimes.com/athletic/6922183/2025/12/27/colts-eliminated-nfl-playoff-contention/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6921995/2025/12/27/josh-hart-ankle-injury-out-three
 **Off Broadway Musicals**\
 `An Alex Eaton-Salners puzzle on a Sunday? Jazz hands!`\
 https://nytimes.com/2025/12/27/crosswords/daily-puzzle-2025-12-28.html
-
-**Joseph Hartzler Dies at 75; Led Prosecution of Oklahoma City Bomber**\
-`He and his team secured the conviction of Timothy McVeigh, who in 1995 committed the deadliest domestic terror attack in American history.`\
-https://nytimes.com/2025/12/27/us/joseph-hartzler-dead.html
 
