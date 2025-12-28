@@ -1,8 +1,12 @@
+**Victor Wembanyama returns to Spurs' starting lineup after six games as reserve**\
+`Before Wembanyama’s six-game stint as a reserve, he missed 12 consecutive games with a left calf strain.`\
+https://nytimes.com/athletic/6922200/2025/12/27/victor-wembanyama-returns-spurs-starting-lineup/
+
 **Texans claim playoff berth, shut Chargers' AFC West title window: Takeaways**\
 `The Texans have now made the playoffs in all three seasons with coach DeMeco Ryans and quarterback C.J. Stroud.`\
 https://nytimes.com/athletic/6921897/2025/12/27/texans-chargers-score-result-takeaways-nfl/
 
-**'Shame on the NCAA. Shame on the coaches': Tom Izzo rips James Nnaji signing**\
+**'Shame on the NCAA. Shame on the coaches': Izzo rips James Nnaji signing**\
 `Michigan State coach says it's 'ridiculous' to allow a former NBA draft pick and overseas player have NCAA eligibility.`\
 https://nytimes.com/athletic/6922089/2025/12/27/tom-izzo-james-nnaji-shame-on-ncaa-coaches/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6922121/2025/12/27/alabama-vs-indiana-stream-how-to
 **Sources: Knicks' Josh Hart expected to miss at least 3 games with ankle injury**\
 `New York will also miss Hart's ability to push the pace in transition as the Knicks struggle to consistently play fast.`\
 https://nytimes.com/athletic/6921995/2025/12/27/josh-hart-ankle-injury-out-three-games-knicks/
-
-**Off Broadway Musicals**\
-`An Alex Eaton-Salners puzzle on a Sunday? Jazz hands!`\
-https://nytimes.com/2025/12/27/crosswords/daily-puzzle-2025-12-28.html
 
