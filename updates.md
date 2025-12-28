@@ -1,3 +1,7 @@
+**The Battle of the Sexes: Can Aryna Sabalenka and Nick Kyrgios live up to its history?**\
+`Half a century after Billie Jean King beat Bobby Riggs, the WTA world No. 1 believes this match is good for women's tennis. Critics disagree`\
+https://nytimes.com/athletic/6916114/2025/12/28/tennis-battle-of-the-sexes-sabalenka-kyrgios/
+
 **Carroll to appear in court after allegedly breaching non-molestation order**\
 `Carroll, 36, was arrested in April in relation to an alleged incident in March.`\
 https://nytimes.com/athletic/6921667/2025/12/28/andy-carroll-court-hearing/
