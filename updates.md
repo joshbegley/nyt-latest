@@ -1,3 +1,7 @@
+**Trump Administration Live Updates: Zelensky to Present Revised Peace Plan in Florida Meeting**\
+``\
+https://nytimes.com/live/2025/12/28/us/trump-news-ukraine-zelensky
+
 **Behold the ‘God of Generous Out-Flowing Love’**\
 `A Q & A with N.T. Wright about why Jesus entered into human history.`\
 https://nytimes.com/2025/12/28/opinion/jesus-christmas-history-faith-belief-ntwright.html
