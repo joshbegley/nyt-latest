@@ -1,3 +1,7 @@
+**The Year in Lists**\
+`As the year drew to a close, we reached out to Opinion columnists and contributors for personal lists.`\
+https://nytimes.com/2025/12/27/opinion/the-year-in-lists.html
+
 **How to watch Ole Miss vs. Georgia: CFP Quarterfinal Start Time, TV, streaming**\
 `Find out how to watch the Ole Miss Rebels play the Georgia Bulldogs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6922379/2025/12/27/ole-miss-vs-georgia-stream-how-to-watch-jan-1/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/27/us/telluride-colorado-ski-resort-union-strike.htm
 **Colts eliminated from playoff contention with Texans' win over Chargers**\
 `The Colts became the fifth team since the AFL-NFL merger in 1970 to win seven of their first eight games and miss the playoffs.`\
 https://nytimes.com/athletic/6922183/2025/12/27/colts-eliminated-nfl-playoff-contention/
-
-**Team USA's Cole Hutson stretchered off ice at World Juniors**\
-`Hutson, who was one of the top defensemen in the tournament last year, was hit high with a puck in the second period.`\
-https://nytimes.com/athletic/6922149/2025/12/27/cole-hutson-injury-usa-world-juniors-switzerland/
 
