@@ -1,3 +1,7 @@
+**The New York Times in Print for Sunday, Dec. 28, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/12/28/todays-new-york-times
+
 **Revived Maple Leafs power play could help reset season after toppling Senators**\
 `The Leafs' power play attacked the Senators' penalty kill like a fiddle, darting the puck through them with newfound ease in a 7-5 win.`\
 https://nytimes.com/athletic/6922489/2025/12/28/maple-leafs-power-play-improvement-senators-win/

@@ -1,3 +1,7 @@
+**The New York Times in Print for Sunday, Dec. 28, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/12/28/todays-new-york-times
+
 **Florian Wirtz is now showing why Liverpool broke the bank to get him**\
 `The £116m signing finding his swagger feels crucial for Liverpool's hopes of success in 2026 `\
 https://nytimes.com/athletic/6921209/2025/12/28/liverpool-florian-wirtz-premier-league-goal/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6922489/2025/12/28/maple-leafs-power-play-improveme
 **Villa just don't know when they are beaten. The numbers prove it**\
 `The regularity with which Villa snatch wins from the jaws of defeat has happened too many times under Emery to be down to fortune`\
 https://nytimes.com/athletic/6921777/2025/12/28/aston-villa-unai-emery-tactics-record-winning-run/
-
-**David Raya's match-winning save was incredible, but why was it necessary?**\
-`Arsenal's bid to win the Premier League is being hampered by an inability to navigate comfortable games in a serene fashion`\
-https://nytimes.com/athletic/6921537/2025/12/28/arsenal-title-pressure-david-raya/
 
