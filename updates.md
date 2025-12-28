@@ -1,3 +1,11 @@
+**How to watch Warriors vs. Raptors: Time, TV, streaming**\
+`Find out how to watch the Golden State Warriors play the Toronto Raptors, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6923032/2025/12/28/warriors-vs-raptors-stream-how-to-watch-dec-28/
+
+**How to watch 76ers vs. Thunder: Time, TV, streaming**\
+`Find out how to watch the Philadelphia 76ers play the Oklahoma City Thunder, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6923030/2025/12/28/76ers-vs-thunder-stream-how-to-watch-dec-28/
+
 **How to watch SE Louisiana vs. Texas women's basketball: Time, TV, streaming**\
 `Find out how to watch the SE Louisiana Lions play the Texas Longhorns, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6923013/2025/12/28/se-louisiana-vs-texas-stream-how-to-watch-dec-28/
