@@ -1,3 +1,7 @@
+**Revived Maple Leafs power play could help reset season after toppling Senators**\
+`The Leafs' power play attacked the Senators' penalty kill like a fiddle, darting the puck through them with newfound ease in a 7-5 win.`\
+https://nytimes.com/athletic/6922489/2025/12/28/maple-leafs-power-play-improvement-senators-win/
+
 **Florian Wirtz is now showing why Liverpool broke the bank to get him**\
 `The £116m signing finding his swagger feels crucial for Liverpool's hopes of success in 2026 `\
 https://nytimes.com/athletic/6921209/2025/12/28/liverpool-florian-wirtz-premier-league-goal/
