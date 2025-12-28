@@ -1,3 +1,11 @@
+**T Magazine’s Essential 2025 Travel Guides**\
+`Recommendations for where to go and how to get there, from the ultimate Japan itinerary to the best small cruise ships.`\
+https://nytimes.com/2025/12/28/t-magazine/essential-travel-guides.html
+
+**Senators goalie Linus Ullmark takes leave of absence for "personal reasons"**\
+`Ullmark holds a 14-8-5 record in 28 games this season with a 2.95 goals-against average and an .881 save percentage.`\
+https://nytimes.com/athletic/6923638/2025/12/28/senators-linus-ullmark-out-personal-reasons/
+
 **15-Year-Old Is Fatally Shot in Stairwell of Bronx Building**\
 `A 14-year-old boy was also wounded in the shooting, which happened at a New York City Housing Authority building. The police said they were looking for six people involved in the violence.`\
 https://nytimes.com/2025/12/28/nyregion/15-year-old-fatal-shooting-bronx.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/28/arts/dance/vienna-balls-waltz-debutantes.html
 **A Star Conductor Brings Sparkle to Vienna’s New Year’s Concert**\
 `For the first time, Yannick Nézet-Séguin will lead the Vienna Philharmonic’s most-watched event of the year: its annual concert on New Year’s Day.`\
 https://nytimes.com/2025/12/28/arts/music/yannick-nezet-seguin-vienna-philharmonic-new-year.html
-
-**Falcons have talked to Matt Ryan about front-office role: Sources**\
-`The Falcons have had conversations with the legendary QB about a potential role in the franchise's front office, league sources said.`\
-https://nytimes.com/athletic/6923445/2025/12/28/matt-ryan-falcons-front-office-role/
-
-**A Gender-Bending, Jazz Age Comedy Once Banned by Franco Arrives in Vienna**\
-`MusikTheater an der Wien will stage Pablo Luna’s “Benamor,” a rarely seen example of the Spanish zarzuela genre from the Roaring Twenties in Madrid.`\
-https://nytimes.com/2025/12/28/arts/music/benamor-vienna-pablo-luna.html
 
