@@ -1,3 +1,15 @@
+**A Star Conductor Brings Sparkle to Vienna’s New Year’s Concert**\
+`For the first time, Yannick Nézet-Séguin will lead the Vienna Philharmonic’s most-watched event of the year: its annual concert on New Year’s Day.`\
+https://nytimes.com/2025/12/28/arts/music/yannick-nezet-seguin-vienna-philharmonic-new-year.html
+
+**Falcons have talked to Matt Ryan about potential front-office role: Sources**\
+`The Falcons have had conversations with the legendary QB about a potential role in the franchise's front office, league sources said.`\
+https://nytimes.com/athletic/6923445/2025/12/28/matt-ryan-falcons-front-office-role/
+
+**A Gender-Bending, Jazz Age Comedy Once Banned by Franco Arrives in Vienna**\
+`MusikTheater an der Wien will stage Pablo Luna’s “Benamor,” a rarely seen example of the Spanish zarzuela genre from the Roaring Twenties in Madrid.`\
+https://nytimes.com/2025/12/28/arts/music/benamor-vienna-pablo-luna.html
+
 **Gmail to Let Users Change Their Addresses While Keeping Data**\
 `Under the shift, which Google said would eventually be rolled out to all users, old addresses would remain active. Messages and services would not be lost.`\
 https://nytimes.com/2025/12/28/technology/gmail-change-address-email.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6921122/2025/12/28/mikaela-shiffrin-wins-slalom-wor
 **Kyle Whittingham on Michigan job: ‘I didn’t have any hesitation’**\
 `Whittingham said he spent 45 minutes with QB Bryce Underwood on Sunday as part of his efforts to retain as many players as possible.`\
 https://nytimes.com/athletic/6923334/2025/12/28/kyle-whittingham-michigan-football-introduction/
-
-**Man Charged in Fatal Shooting During Backyard Target Practice**\
-`The Oklahoma man had bought himself a Glock .45 handgun for Christmas and was shooting at an energy drink can when a woman nearby was fatally struck, officials said.`\
-https://nytimes.com/2025/12/28/us/oklahoma-shooting-neighbor-christmas.html
-
-**How to watch Islanders vs. Blue Jackets: Time, TV, streaming**\
-`Find out how to watch the New York Islanders play the Columbus Blue Jackets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6923270/2025/12/28/islanders-vs-blue-jackets-stream-how-to-watch-dec-28/
-
-**How to watch Maple Leafs vs. Red Wings: Time, TV, streaming**\
-`Find out how to watch the Toronto Maple Leafs play the Detroit Red Wings, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6923267/2025/12/28/maple-leafs-vs-red-wings-stream-how-to-watch-dec-28/
 
