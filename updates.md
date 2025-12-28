@@ -1,3 +1,8 @@
+**A thrilling last-second comeback for Wild, with a side of irony: Takeaways**\
+`Mats Zuccarello tied the game in the final 30 seconds and Matt Boldy gave the Wild a 4-3 victory over the Jets in overtime.
+`\
+https://nytimes.com/athletic/6922106/2025/12/27/wild-jets-mats-zuccarello-matt-boldy-comeback/
+
 **Giannis Antetokounmpo returns, leads Bucks to win over Bulls after 8-game absence**\
 `Down the stretch, the Bucks leaned on Antetokounmpo, and their All-NBA forward delivered.`\
 https://nytimes.com/athletic/6922434/2025/12/27/giannis-antetokounmpo-return-bucks-bulls/
