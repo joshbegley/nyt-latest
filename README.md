@@ -1,3 +1,7 @@
+**The Pulse: A snubbed champ is crowned**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6922599/2025/12/28/a-pop-tarts-champion-is-crowned-breathing-life-into-bowl-season/
+
 **Trump Administration Live Updates: Zelensky to Present Revised Peace Plan in Florida Meeting**\
 ``\
 https://nytimes.com/live/2025/12/28/us/trump-news-ukraine-zelensky
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6923004/2025/12/28/ucla-vs-ohio-state-stream-how-to
 **How to watch Alabama State vs. LSU women's basketball: Time, TV, streaming**\
 `Find out how to watch the Alabama State Lady Hornets play the LSU Tigers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6922996/2025/12/28/alabama-state-vs-lsu-stream-how-to-watch-dec-28/
-
-**How to watch Winthrop vs. Texas Tech men's basketball: Time, TV, streaming**\
-`Find out how to watch the Winthrop Eagles play the Texas Tech Red Raiders, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6922993/2025/12/28/winthrop-vs-texas-tech-stream-how-to-watch-dec-28/
 
