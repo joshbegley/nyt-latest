@@ -1,3 +1,7 @@
+**How to watch Gonzaga vs. Pepperdine men's basketball: Time, TV, streaming**\
+`Find out how to watch the Gonzaga Bulldogs play the Pepperdine Waves, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6923540/2025/12/28/gonzaga-vs-pepperdine-stream-how-to-watch-dec-28/
+
 **Falcons have talked to Matt Ryan about front-office role: Sources**\
 `The Falcons have had conversations with the legendary QB about a potential role in the franchise's front office, league sources said.`\
 https://nytimes.com/athletic/6923445/2025/12/28/matt-ryan-falcons-front-office-role/
