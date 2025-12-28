@@ -1,3 +1,15 @@
+**From Sex Appeal to the Far Right, Brigitte Bardot Symbolized a Changing France**\
+`In the decades after becoming a megastar, the French actress became as known for her politics as she once had been for her acting career.`\
+https://nytimes.com/2025/12/28/arts/brigitte-bardot-movies-songs-animal-rights.html
+
+**How Giants-Raiders impacts race to No. 1 pick, with Browns, Jets still lurking**\
+`Yes, Sunday's game in Las Vegas will be a huge factor in determining the No. 1 pick. But there is still a path for three other teams.`\
+https://nytimes.com/athletic/6921300/2025/12/28/nfl-draft-number-1-pick-giants-raiders-browns-jets/
+
+**The New York Times International Edition in Print for Monday, Dec. 29, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/12/28/todays-new-york-times-international-edition
+
 **Brigitte Bardot, Movie Icon Who Renounced Stardom, Dies at 91**\
 `“And God Created Woman” made her a world-famous sex symbol in the 1950s. She later gave up acting to devote her life to animal welfare.`\
 https://nytimes.com/2025/12/28/movies/brigitte-bardot-dead.html
