@@ -1,3 +1,7 @@
+**Giannis throws down: 'We’re fighting for our lives and we gotta get our hands dirty'**\
+`His late windmill may have been an affront to basketball decorum, but to Giannis Antetokounpo, it was an absolute necessity.`\
+https://nytimes.com/athletic/6922761/2025/12/28/giannis-throws-down-bucks/
+
 **Rangers' scoring woes reach concerning point, plus other thoughts**\
 `For the Rangers, what’s become familiar is now reaching unprecedented levels after a 2-0 loss to the Islanders.`\
 https://nytimes.com/athletic/6922459/2025/12/28/rangers-islanders-scoring-shutout-loss/

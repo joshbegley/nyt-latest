@@ -1,4 +1,4 @@
-**Giannis throws down: 'We’re fighting for our lives and we gotta get our hands dirty'**\
+**'We’re fighting for our lives and we gotta get our hands dirty': Giannis throws down**\
 `His late windmill may have been an affront to basketball decorum, but to Giannis Antetokounpo, it was an absolute necessity.`\
 https://nytimes.com/athletic/6922761/2025/12/28/giannis-throws-down-bucks/
 
