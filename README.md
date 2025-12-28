@@ -10,7 +10,7 @@ https://nytimes.com/athletic/6921667/2025/12/28/andy-carroll-court-hearing/
 `Will the team's plummet continue? Or was the club that took the league by storm in October and November the real Penguins?`\
 https://nytimes.com/athletic/6921560/2025/12/28/penguins-sidney-crosby-nhl-standings/
 
-**The Battle of the Sexes: Can Aryna Sabalenka and Nick Kyrgios live up to its history?**\
+**Battle of the Sexes: Aryna Sabalenka and Nick Kyrgios' tennis show meets the weight of history**\
 `Half a century after Billie Jean King beat Bobby Riggs, the WTA world No. 1 believes this match is good for women's tennis. Critics disagree`\
 https://nytimes.com/athletic/6916114/2025/12/28/tennis-battle-of-the-sexes-sabalenka-kyrgios/
 
