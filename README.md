@@ -35,6 +35,6 @@ https://nytimes.com/athletic/6922473/2025/12/28/sabres-bruins-mattias-samuelsson
 https://nytimes.com/athletic/6922541/2025/12/28/hawks-six-straight-losses-trae-young-nba/
 
 **Tyler Bertuzzi's consistency pays off as Blackhawks snap six-game skid**\
-`Bertuzzi scored twice, and Chicago snapped a six-game losing streak with a 4-3 shootout win in Dallas.`\
+`Bertuzzi scored twice and Chicago snapped a six-game losing streak with a 4-3 shootout win in Dallas.`\
 https://nytimes.com/athletic/6922495/2025/12/28/tyler-bertuzzi-blackhawks-stars-result-score/
 

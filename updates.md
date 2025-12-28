@@ -1,3 +1,7 @@
+**Battle of the Sexes: Aryna Sabalenka and Nick Kyrgios' tennis show meets the weight of history**\
+`Half a century after Billie Jean King beat Bobby Riggs, the WTA world No. 1 believes this match is good for women's tennis. Critics disagree`\
+https://nytimes.com/athletic/6916114/2025/12/28/tennis-battle-of-the-sexes-sabalenka-kyrgios/
+
 **Miyazawa signs new Manchester United contract**\
 `The Japan international has signed a new deal through to 2029.`\
 https://nytimes.com/athletic/6922897/2025/12/28/hinata-miyazawa-manchester-united-contract/
