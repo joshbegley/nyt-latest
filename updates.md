@@ -1,4 +1,8 @@
 **The Briefing: Ivory Coast 1 Cameroon 1 – Was Amad strike goal of tournament so far? How vital is Mbeumo?**\
+`Our writers break down the action from an enthralling AFCON group F encounter`\
+https://nytimes.com/athletic/6919844/2025/12/28/ivory-coast-amad-cameroon-mbeumo/
+
+**The Briefing: Ivory Coast 1 Cameroon 1 – Was Amad strike goal of tournament so far? How vital is Mbeumo?**\
 `Our writers break down the action from an enthralling AFCON group F encounter.`\
 https://nytimes.com/athletic/6919844/2025/12/28/ivory-coast-amad-cameroon-mbeumo/
 
