@@ -1,3 +1,19 @@
+**The Briefing: Ivory Coast 1 Cameroon 1 – Was Amad strike goal of tournament so far? How vital is Mbeumo?**\
+`Our writers break down the action from an enthralling AFCON group F encounter.`\
+https://nytimes.com/athletic/6919844/2025/12/28/ivory-coast-amad-cameroon-mbeumo/
+
+**Steelers miss chance to clinch AFC North as Browns pull off upset: Takeaways**\
+`Cleveland's fourth straight home win over Pittsburgh came in a defensive struggle.`\
+https://nytimes.com/athletic/6923723/2025/12/28/steelers-browns-result-score-takeaways/
+
+**Five Brigitte Bardot Movies to Stream**\
+`The actress, who died at 91, had what can’t be taught: charisma and attitude onscreen. Here are some highlights.`\
+https://nytimes.com/2025/12/28/movies/brigitte-bardot-movies-to-stream.html
+
+**Patriots-Jets takeaways: Maye nearly perfect in New England's blowout win**\
+`Against the Jets, Maye became the first NFL player to complete 90 percent of his passes and throw for at least 250 yards and five TDs.`\
+https://nytimes.com/athletic/6923543/2025/12/28/patriots-jets-score-result-takeaways/
+
 **Saints-Titans takeaways: New Orleans rallies late to edge Tennessee**\
 `New Orleans Saints staged a dramatic late comeback to beat the Tennessee Titans 34–26 at Nissan Stadium in Nashville.`\
 https://nytimes.com/athletic/6923342/2025/12/28/saints-titans-score-result-takeaways/
