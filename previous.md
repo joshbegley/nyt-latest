@@ -1,3 +1,7 @@
+**Trump and Zelensky Meet to Iron Out Peace Plan, but Deal Remains Elusive**\
+`The U.S. president said after a meeting at Mar-a-Lago that a deal was “maybe very close.” But a joint U.S.-Ukraine proposal appeared unfinished, as Russia rejected several ideas.`\
+https://nytimes.com/2025/12/28/us/politics/trump-zelensky-peace-ukraine-putin.html
+
 **Admired Figures**\
 `Chase Dittrich brings us a first-class puzzle.`\
 https://nytimes.com/2025/12/28/crosswords/daily-puzzle-2025-12-29.html
@@ -18,8 +22,8 @@ https://nytimes.com/athletic/6923723/2025/12/28/steelers-browns-result-score-tak
 `The actress, who died at 91, had what can’t be taught: charisma and attitude onscreen. Here are some highlights.`\
 https://nytimes.com/2025/12/28/movies/brigitte-bardot-movies-to-stream.html
 
-**Saints-Titans takeaways: New Orleans rallies late to edge Tennessee**\
-`New Orleans Saints staged a dramatic late comeback to beat the Tennessee Titans 34–26 at Nissan Stadium in Nashville.`\
+**Tyler Shough's career day rallies Saints past Titans: Takeaways**\
+`The Saints staged a dramatic late comeback to beat the Titans 34-26 at Nissan Stadium in Nashville.`\
 https://nytimes.com/athletic/6923342/2025/12/28/saints-titans-score-result-takeaways/
 
 **Jaguars-Colts takeaways: Jacksonville stays in control of AFC South**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6923543/2025/12/28/patriots-jets-score-result-takea
 **Seahawks stuff Panthers, move one win from NFC's top seed: Takeaways**\
 `With a win next week at San Francisco, Seattle will earn the top overall seed in the NFC.`\
 https://nytimes.com/athletic/6923546/2025/12/28/seahawks-panthers-score-result-takeaways/
-
-**Buccaneers lose to Dolphins, but get playoff race assist from Seahawks**\
-`The NFC South winner will be decided in Week 18 when Tampa Bay faces the Carolina Panthers.`\
-https://nytimes.com/athletic/6917953/2025/12/28/bucs-dolphins-score-result-takeaways/
 

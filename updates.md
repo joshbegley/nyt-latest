@@ -1,3 +1,11 @@
+**Trump and Zelensky Meet to Iron Out Peace Plan, but Deal Remains Elusive**\
+`The U.S. president said after a meeting at Mar-a-Lago that a deal was “maybe very close.” But a joint U.S.-Ukraine proposal appeared unfinished, as Russia rejected several ideas.`\
+https://nytimes.com/2025/12/28/us/politics/trump-zelensky-peace-ukraine-putin.html
+
+**Tyler Shough's career day rallies Saints past Titans: Takeaways**\
+`The Saints staged a dramatic late comeback to beat the Titans 34-26 at Nissan Stadium in Nashville.`\
+https://nytimes.com/athletic/6923342/2025/12/28/saints-titans-score-result-takeaways/
+
 **Admired Figures**\
 `Chase Dittrich brings us a first-class puzzle.`\
 https://nytimes.com/2025/12/28/crosswords/daily-puzzle-2025-12-29.html
