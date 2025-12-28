@@ -1,9 +1,13 @@
+**Questions for Canada, Cole Hutson injury: World Juniors Day 2 takeaways**\
+`Day 2 at the 2026 World Juniors was another busy four-game slate that included a couple of tighter-than-expected games for Canada and USA.`\
+https://nytimes.com/athletic/6920664/2025/12/27/world-juniors-canada-cole-hutson-injury-usa/
+
 **Bears clinch first NFC North title since 2018 after Packers' loss to Ravens**\
 `The Bears are division champions for just the sixth time this century and still have a shot at the NFC's No. 1 seed.`\
 https://nytimes.com/athletic/6921939/2025/12/27/bears-clinch-nfc-north-nfl-playoff-picture/
 
-**Snoop Dogg's kickoff catch, Jeff Monken's Gatorade escape, and more fun bowl moments**\
-`There were a lot of wild and wacky moments in the big schedule of bowl games Friday and Saturday.`\
+**Snoop Dogg's kickoff catch, Jeff Monken's Powerade bath and more fun bowl moments**\
+`There were a lot of wild and wacky moments in the big schedule of college bowl games Friday and Saturday.`\
 https://nytimes.com/athletic/6922240/2025/12/27/snoop-dogg-catch-jeff-monken-bowl-moments/
 
 **Giannis Antetokounmpo returns, leads Bucks to win over Bulls after 8-game absence**\
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6922278/2025/12/27/echl-phpa-strike-agreement/
 **Pelicans' Jose Alvarado, Suns' Mark Williams ejected for throwing punches**\
 `Williams took exception to a foul by Alvarado and pushed him in the back. Alvarado responded by shoving Williams back.`\
 https://nytimes.com/athletic/6922281/2025/12/27/jose-alvarado-mark-williams-ejected-pelicans-suns/
-
-**Pop-Tarts Bowl takeaways: BYU rallies to beat Georgia Tech, Team Sprinkles sacrificed**\
-`MVP Bear Bachmeier ordered Team Sprinkles to be sacrificed after BYU's 25-21 come-from-behind victory over Georgia Tech.`\
-https://nytimes.com/athletic/6922198/2025/12/27/pop-tarts-bowl-byu-georgia-tech-sprinkles/
 
