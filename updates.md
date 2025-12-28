@@ -1,3 +1,7 @@
+**Cooper Flagg-led rally falls short in Mavs' latest loss without Anthony Davis**\
+`When Davis has been out, Dallas has performed like a team bound for the lottery.`\
+https://nytimes.com/athletic/6922365/2025/12/27/cooper-flagg-mavericks-comeback-kings-anthony-davis/
+
 **The Year in Lists**\
 `As the year drew to a close, we reached out to Opinion columnists and contributors for personal lists.`\
 https://nytimes.com/2025/12/27/opinion/the-year-in-lists.html
