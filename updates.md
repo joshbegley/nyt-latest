@@ -1,4 +1,8 @@
 **The Briefing - Nigeria 3 Tunisia 2: Lookman lethal as a No 10, more VAR drama and Chelle's issue to solve**\
+`Nigeria were cruising into the round of 16 until late changes and a controversial penalty caused chaos. We assess the talking points...`\
+https://nytimes.com/athletic/6919602/2025/12/28/nigeria-3-tunisia-2-lookman-var-chelle/
+
+**The Briefing - Nigeria 3 Tunisia 2: Lookman lethal as a No 10, more VAR drama and Chelle's issue to solve**\
 `Nigeria were cruising into the round of 16 until late changes and a controversial penalty caused chaos. We assess the talking points`\
 https://nytimes.com/athletic/6919602/2025/12/28/nigeria-3-tunisia-2-lookman-var-chelle/
 
