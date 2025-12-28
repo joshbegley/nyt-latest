@@ -1,3 +1,11 @@
+**Gmail to Let Users Change Their Addresses While Keeping Data**\
+`Under the shift, which Google said would eventually be rolled out to all users, old addresses would remain active. Messages and services would not be lost.`\
+https://nytimes.com/2025/12/28/technology/gmail-change-address-email.html
+
+**Syrian Protests Over Lack of Security Leave 2 Dead**\
+`Days after a bombing at a mosque in a predominantly Alawite area, members of the religious minority in Syria demonstrated for better protections.`\
+https://nytimes.com/2025/12/28/world/middleeast/syria-protests-alawite-two-killed.html
+
 **The Briefing: Crystal Palace 0 Tottenham 1 – Archie Gray's goal eases pressure on Thomas Frank**\
 `Richarlison had two goals ruled out for offside in a nervy win that lifts Spurs up to 11th`\
 https://nytimes.com/athletic/6919843/2025/12/28/crystal-palace-tottenham-result-analysis/
