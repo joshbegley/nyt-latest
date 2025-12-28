@@ -1,3 +1,7 @@
+**Pelicans' Jose Alvarado, Suns' Mark Williams ejected for throwing punches**\
+`Williams took exception to a foul by Alvarado and pushed him in the back. Alvarado responded by shoving Williams back.`\
+https://nytimes.com/athletic/6922281/2025/12/27/jose-alvarado-mark-williams-ejected-pelicans-suns/
+
 **Pop-Tarts Bowl takeaways: BYU rallies to beat Georgia Tech, Team Sprinkles sacrificed**\
 `MVP Bear Bachmeier ordered Team Sprinkles to be sacrificed after BYU's 25-21 come-from-behind victory over Georgia Tech.`\
 https://nytimes.com/athletic/6922198/2025/12/27/pop-tarts-bowl-byu-georgia-tech-sprinkles/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6922012/2025/12/27/broncos-clinch-afc-west-title-ch
 **JJ Redick, Lakers cool things down after Christmas blowout loss**\
 `The two-way conversation between players and coaches centered on Redick taking responsibility and reorganizing his priorities.`\
 https://nytimes.com/athletic/6922077/2025/12/27/lakers-jj-redick-christmas-day-tension-cool-down/
-
-**How to watch Alabama vs. Indiana: CFP Quarterfinal Start Time, TV, streaming**\
-`Find out how to watch the Alabama Crimson Tide play the Indiana Hoosiers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6922121/2025/12/27/alabama-vs-indiana-stream-how-to-watch-jan-1/
 
