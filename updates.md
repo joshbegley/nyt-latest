@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6922106/2025/12/27/wild-jets-mats-zuccarello-matt-boldy-comeback/
 
+**A thrilling last-second comeback for Wild, with a side of irony: Takeaways**\
+`Mats Zuccarello tied the game in the final 30 seconds and Matt Boldy lifted the Wild to a 4-3 victory over the Jets in overtime.
+`\
+https://nytimes.com/athletic/6922106/2025/12/27/wild-jets-mats-zuccarello-matt-boldy-comeback/
+
 **Bears clinch first NFC North title since 2018 after Packers' loss to Ravens**\
 `The Bears are division champions for just the sixth time this century and still have a shot at the NFC's No. 1 seed.`\
 https://nytimes.com/athletic/6921939/2025/12/27/bears-clinch-nfc-north-nfl-playoff-picture/
