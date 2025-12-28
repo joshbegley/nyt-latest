@@ -1,3 +1,19 @@
+**The Athletic’s review of 2025: MVP McTominay, the ever-dutiful Gianni and Ronaldo's red reprieve**\
+`Biggest surprise of the football year? Most predictable moment? Biggest injustice? Best quote? And a few predictions for 2026...`\
+https://nytimes.com/athletic/6897786/2025/12/28/football-soccer-2025-review/
+
+**Why even Pep Guardiola is falling for Rayan Cherki’s smooth-talking football**\
+`Manchester City's No 10 is helping his manager nick games that previous City teams might not have won`\
+https://nytimes.com/athletic/6921540/2025/12/28/manchester-city-rayan-cherki-guardiola-smooth/
+
+**The day Liverpool and Wolves fans united in memory of Diogo Jota**\
+`It is not a normal sight to see two sets of Premier League fans united in a common purpose. But Saturday at Anfield was not a normal day`\
+https://nytimes.com/athletic/6921673/2025/12/28/liverpool-jota-wolves-anfield-result/
+
+**Revived Maple Leafs power play could help reset season after toppling Senators**\
+`The Leafs' power play attacked the Senators' penalty kill like a fiddle, darting the puck through them with newfound ease.`\
+https://nytimes.com/athletic/6922489/2025/12/28/maple-leafs-power-play-improvement-senators-win/
+
 **Villa just don't know when they are beaten. The numbers prove it**\
 `The regularity with which Villa snatch wins from the jaws of defeat has happened too many times under Emery to be down to fortune`\
 https://nytimes.com/athletic/6921777/2025/12/28/aston-villa-unai-emery-tactics-record-winning-run/
