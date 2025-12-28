@@ -1,3 +1,7 @@
+**Brigitte Bardot: A Life in Pictures**\
+`The movies made the French actress a star, but photography sealed her stardom.`\
+https://nytimes.com/2025/12/28/movies/brigitte-bardot-photos.html
+
 **Until Saturday: Hang the banner, BYU**\
 `Until Saturday is The Athletic's free college football newsletter.`\
 https://nytimes.com/athletic/6923189/2025/12/28/byu-pop-tarts-bowl-until-saturday/
