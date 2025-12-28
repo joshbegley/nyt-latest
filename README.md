@@ -1,3 +1,7 @@
+**Trump and Zelensky Meet to Iron Out Peace Plan, but Deal Remains Elusive**\
+`The U.S. president said after a meeting at Mar-a-Lago that a deal was “maybe very close.” But a joint U.S.-Ukraine proposal appeared unfinished, as Russia rejected several ideas.`\
+https://nytimes.com/2025/12/28/us/politics/trump-zelensky-peace-ukraine-putin.html
+
 **Admired Figures**\
 `Chase Dittrich brings us a first-class puzzle.`\
 https://nytimes.com/2025/12/28/crosswords/daily-puzzle-2025-12-29.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6923543/2025/12/28/patriots-jets-score-result-takea
 **Seahawks stuff Panthers, move one win from NFC's top seed: Takeaways**\
 `With a win next week at San Francisco, Seattle will earn the top overall seed in the NFC.`\
 https://nytimes.com/athletic/6923546/2025/12/28/seahawks-panthers-score-result-takeaways/
-
-**Buccaneers lose to Dolphins, but get playoff race assist from Seahawks**\
-`The NFC South winner will be decided in Week 18 when Tampa Bay faces the Carolina Panthers.`\
-https://nytimes.com/athletic/6917953/2025/12/28/bucs-dolphins-score-result-takeaways/
 
