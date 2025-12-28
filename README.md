@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6922379/2025/12/27/ole-miss-vs-georgia-stream-how-to-watch-jan-1/
 
 **ECHL, PHPA reach tentative agreement to end strike**\
-`The news was announced Saturday night, one day after the PHPA's strike came into effect after failed talks over their CBA.`\
+`The news was announced Saturday night, one day after the PHPA's strike came into effect after failed talks over the CBA.`\
 https://nytimes.com/athletic/6922278/2025/12/27/echl-phpa-strike-agreement/
 
 **Pelicans' Jose Alvarado, Suns' Mark Williams ejected for throwing punches**\

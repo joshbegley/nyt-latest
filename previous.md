@@ -1,3 +1,11 @@
+**How to watch Ole Miss vs. Georgia: CFP Quarterfinal Start Time, TV, streaming**\
+`Find out how to watch the Ole Miss Rebels play the Georgia Bulldogs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6922379/2025/12/27/ole-miss-vs-georgia-stream-how-to-watch-jan-1/
+
+**ECHL, PHPA reach tentative agreement to end strike**\
+`The news was announced Saturday night, one day after the PHPA's strike came into effect after failed talks over their CBA.`\
+https://nytimes.com/athletic/6922278/2025/12/27/echl-phpa-strike-agreement/
+
 **Pelicans' Jose Alvarado, Suns' Mark Williams ejected for throwing punches**\
 `Williams took exception to a foul by Alvarado and pushed him in the back. Alvarado responded by shoving Williams back.`\
 https://nytimes.com/athletic/6922281/2025/12/27/jose-alvarado-mark-williams-ejected-pelicans-suns/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6922183/2025/12/27/colts-eliminated-nfl-playoff-con
 **Team USA's Cole Hutson stretchered off ice at World Juniors**\
 `Hutson, who was one of the top defensemen in the tournament last year, was hit high with a puck in the second period.`\
 https://nytimes.com/athletic/6922149/2025/12/27/cole-hutson-injury-usa-world-juniors-switzerland/
-
-**Broncos claim AFC West title for first time since 2015 season**\
-`The Broncos can earn AFC's top seed by beating the Chargers in Week 18.`\
-https://nytimes.com/athletic/6922012/2025/12/27/broncos-clinch-afc-west-title-chargers/
-
-**JJ Redick, Lakers cool things down after Christmas blowout loss**\
-`The two-way conversation between players and coaches centered on Redick taking responsibility and reorganizing his priorities.`\
-https://nytimes.com/athletic/6922077/2025/12/27/lakers-jj-redick-christmas-day-tension-cool-down/
 

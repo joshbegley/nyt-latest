@@ -1,3 +1,11 @@
+**How to watch Ole Miss vs. Georgia: CFP Quarterfinal Start Time, TV, streaming**\
+`Find out how to watch the Ole Miss Rebels play the Georgia Bulldogs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6922379/2025/12/27/ole-miss-vs-georgia-stream-how-to-watch-jan-1/
+
+**ECHL, PHPA reach tentative agreement to end strike**\
+`The news was announced Saturday night, one day after the PHPA's strike came into effect after failed talks over their CBA.`\
+https://nytimes.com/athletic/6922278/2025/12/27/echl-phpa-strike-agreement/
+
 **Pelicans' Jose Alvarado, Suns' Mark Williams ejected for throwing punches**\
 `Williams took exception to a foul by Alvarado and pushed him in the back. Alvarado responded by shoving Williams back.`\
 https://nytimes.com/athletic/6922281/2025/12/27/jose-alvarado-mark-williams-ejected-pelicans-suns/
