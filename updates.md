@@ -1,3 +1,7 @@
+**Kyle Whittingham on Michigan job: ‘I didn’t have any hesitation’**\
+`Whittingham said he spent 45 minutes with QB Bryce Underwood Sunday as part of his efforts to retain as many Michigan players as possible.`\
+https://nytimes.com/athletic/6923334/2025/12/28/kyle-whittingham-michigan-football-introduction/
+
 **Man Charged in Fatal Shooting During Backyard Target Practice**\
 `The Oklahoma man had bought himself a Glock .45 handgun for Christmas and was shooting at an energy drink can when a woman nearby was fatally struck, officials said.`\
 https://nytimes.com/2025/12/28/us/oklahoma-shooting-neighbor-christmas.html

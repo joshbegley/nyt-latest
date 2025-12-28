@@ -1,3 +1,7 @@
+**Kyle Whittingham on Michigan job: ‘I didn’t have any hesitation’**\
+`Whittingham said he spent 45 minutes with QB Bryce Underwood Sunday as part of his efforts to retain as many Michigan players as possible.`\
+https://nytimes.com/athletic/6923334/2025/12/28/kyle-whittingham-michigan-football-introduction/
+
 **Man Charged in Fatal Shooting During Backyard Target Practice**\
 `The Oklahoma man had bought himself a Glock .45 handgun for Christmas and was shooting at an energy drink can when a woman nearby was fatally struck, officials said.`\
 https://nytimes.com/2025/12/28/us/oklahoma-shooting-neighbor-christmas.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/28/dining/this-mushroom-stroganoff-is-quick-comfort.
 **The Briefing: Sunderland 1 Leeds 1 – A sublime team goal, Rodon injury, and a dominant second half**\
 `Beren Cross looks at the main talking points from Leeds' display at Sunderland`\
 https://nytimes.com/athletic/6919841/2025/12/28/sunderland-leeds-calvert-lewin-rodon-result-analysis/
-
-**Brigitte Bardot: A Life in Pictures**\
-`The movies made the French actress a star, but photography sealed her stardom.`\
-https://nytimes.com/2025/12/28/movies/brigitte-bardot-photos.html
 
