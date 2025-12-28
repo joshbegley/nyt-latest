@@ -1,3 +1,19 @@
+**Saints-Titans takeaways: New Orleans rallies late to edge Tennessee**\
+`New Orleans Saints staged a dramatic late comeback to beat the Tennessee Titans 34–26 at Nissan Stadium in Nashville.`\
+https://nytimes.com/athletic/6923342/2025/12/28/saints-titans-score-result-takeaways/
+
+**Jaguars-Colts takeaways: Jacksonville stays in control of AFC South**\
+`The Jaguars can win the division title next week with a win over the Titans. `\
+https://nytimes.com/athletic/6923421/2025/12/28/jaguars-colts-score-result-takeaways-2/
+
+**Patriots-Jets takeaways: Maye nearly perfect in New England's blowout win**\
+`Against the Jets, Maye became the first NFL player ever to complete 90 percent of his passes and throw for at least 250 yards and five TDs.`\
+https://nytimes.com/athletic/6923543/2025/12/28/patriots-jets-score-result-takeaways/
+
+**Seahawks stuff Panthers, move one win from NFC's top seed: Takeaways**\
+`With a win next week at San Francisco, Seattle will earn the top overall seed in the NFC.`\
+https://nytimes.com/athletic/6923546/2025/12/28/seahawks-panthers-score-result-takeaways/
+
 **Buccaneers lose to Dolphins, but get playoff race assist from Seahawks**\
 `The NFC South winner will be decided in Week 18 when Tampa Bay faces the Carolina Panthers.`\
 https://nytimes.com/athletic/6917953/2025/12/28/bucs-dolphins-score-result-takeaways/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/12/28/t-magazine/essential-travel-guides.html
 **Senators goalie Linus Ullmark takes leave of absence for "personal reasons"**\
 `Ullmark holds a 14-8-5 record in 28 games this season with a 2.95 goals-against average and an .881 save percentage.`\
 https://nytimes.com/athletic/6923638/2025/12/28/senators-linus-ullmark-out-personal-reasons/
-
-**15-Year-Old Is Fatally Shot in Stairwell of Bronx Building**\
-`A 14-year-old boy was also wounded in the shooting, which happened at a New York City Housing Authority building. The police said they were looking for six people involved in the violence.`\
-https://nytimes.com/2025/12/28/nyregion/15-year-old-fatal-shooting-bronx.html
-
-**Pilot Is Dead After Helicopters Crash in New Jersey**\
-`Another pilot was in critical condition, according to the fire chief in Hammonton, N.J., where the crash took place.`\
-https://nytimes.com/2025/12/28/nyregion/helicopters-crash-new-jersey.html
-
-**How to watch Pistons vs. Clippers: Time, TV, streaming**\
-`Find out how to watch the Detroit Pistons play the Los Angeles Clippers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6923562/2025/12/28/pistons-vs-clippers-stream-how-to-watch-dec-28/
-
-**How to watch Flyers vs. Kraken: Time, TV, streaming**\
-`Find out how to watch the Philadelphia Flyers play the Seattle Kraken, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6923560/2025/12/28/flyers-vs-kraken-stream-how-to-watch-dec-28/
 

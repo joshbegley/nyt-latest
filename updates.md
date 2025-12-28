@@ -1,3 +1,19 @@
+**Saints-Titans takeaways: New Orleans rallies late to edge Tennessee**\
+`New Orleans Saints staged a dramatic late comeback to beat the Tennessee Titans 34–26 at Nissan Stadium in Nashville.`\
+https://nytimes.com/athletic/6923342/2025/12/28/saints-titans-score-result-takeaways/
+
+**Jaguars-Colts takeaways: Jacksonville stays in control of AFC South**\
+`The Jaguars can win the division title next week with a win over the Titans. `\
+https://nytimes.com/athletic/6923421/2025/12/28/jaguars-colts-score-result-takeaways-2/
+
+**Patriots-Jets takeaways: Maye nearly perfect in New England's blowout win**\
+`Against the Jets, Maye became the first NFL player ever to complete 90 percent of his passes and throw for at least 250 yards and five TDs.`\
+https://nytimes.com/athletic/6923543/2025/12/28/patriots-jets-score-result-takeaways/
+
+**Seahawks stuff Panthers, move one win from NFC's top seed: Takeaways**\
+`With a win next week at San Francisco, Seattle will earn the top overall seed in the NFC.`\
+https://nytimes.com/athletic/6923546/2025/12/28/seahawks-panthers-score-result-takeaways/
+
 **Buccaneers lose to Dolphins, but get playoff race assist from Seahawks**\
 `The NFC South winner will be decided in Week 18 when Tampa Bay faces the Carolina Panthers.`\
 https://nytimes.com/athletic/6917953/2025/12/28/bucs-dolphins-score-result-takeaways/
