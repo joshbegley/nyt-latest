@@ -1,3 +1,15 @@
+**How to watch Grizzlies vs. Wizards: Time, TV, streaming**\
+`Find out how to watch the Memphis Grizzlies play the Washington Wizards, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6923263/2025/12/28/grizzlies-vs-wizards-stream-how-to-watch-dec-28/
+
+**How to watch Celtics vs. Trail Blazers: Time, TV, streaming**\
+`Find out how to watch the Boston Celtics play the Portland Trail Blazers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6923261/2025/12/28/celtics-vs-trail-blazers-stream-how-to-watch-dec-28/
+
+**How to watch Canadiens vs. Lightning: Time, TV, streaming**\
+`Find out how to watch the Montreal Canadiens play the Tampa Bay Lightning, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6923259/2025/12/28/canadiens-vs-lightning-stream-how-to-watch-dec-28/
+
 **This Mushroom Stroganoff Is Quick Comfort**\
 `I’m too exhausted to pull off anything big, but I still crave a meal that feels like a holiday. Enter Hetty Lui McKinnon’s 30-minute vegetarian wonder.`\
 https://nytimes.com/2025/12/28/dining/this-mushroom-stroganoff-is-quick-comfort.html
