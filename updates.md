@@ -1,3 +1,11 @@
+**How to watch SE Louisiana vs. Texas women's basketball: Time, TV, streaming**\
+`Find out how to watch the SE Louisiana Lions play the Texas Longhorns, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6923013/2025/12/28/se-louisiana-vs-texas-stream-how-to-watch-dec-28/
+
+**How to watch UConn vs. Butler women's basketball: Time, TV, streaming**\
+`Find out how to watch the UConn Huskies play the Butler Bulldogs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6923007/2025/12/28/uconn-vs-butler-stream-how-to-watch-dec-28/
+
 **How to watch UCLA vs. Ohio State women's basketball: Time, TV, streaming**\
 `Find out how to watch the UCLA Bruins play the Ohio State Buckeyes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6923004/2025/12/28/ucla-vs-ohio-state-stream-how-to-watch-dec-28/

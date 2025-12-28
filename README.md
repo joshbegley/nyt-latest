@@ -1,3 +1,11 @@
+**How to watch Warriors vs. Raptors: Time, TV, streaming**\
+`Find out how to watch the Golden State Warriors play the Toronto Raptors, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6923032/2025/12/28/warriors-vs-raptors-stream-how-to-watch-dec-28/
+
+**How to watch 76ers vs. Thunder: Time, TV, streaming**\
+`Find out how to watch the Philadelphia 76ers play the Oklahoma City Thunder, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6923030/2025/12/28/76ers-vs-thunder-stream-how-to-watch-dec-28/
+
 **How to watch SE Louisiana vs. Texas women's basketball: Time, TV, streaming**\
 `Find out how to watch the SE Louisiana Lions play the Texas Longhorns, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6923013/2025/12/28/se-louisiana-vs-texas-stream-how-to-watch-dec-28/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6922988/2025/12/28/stonehill-vs-vanderbilt-stream-h
 **How to watch Alcorn State vs. Ole Miss women's basketball: Time, TV, streaming**\
 `Find out how to watch the Alcorn State Braves play the Ole Miss Rebels, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6922982/2025/12/28/alcorn-state-vs-ole-miss-stream-how-to-watch-dec-28/
-
-**How to watch Penn State vs. Iowa women's basketball: Time, TV, streaming**\
-`Find out how to watch the Penn State Lady Lions play the Iowa Hawkeyes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6922978/2025/12/28/penn-state-vs-iowa-stream-how-to-watch-dec-28/
-
-**How to watch Rutgers vs. Michigan State women's basketball: Time, TV, streaming**\
-`Find out how to watch the Rutgers Scarlet Knights play the Michigan State Spartans, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6922974/2025/12/28/rutgers-vs-michigan-state-stream-how-to-watch-dec-28/
 
