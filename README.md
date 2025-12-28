@@ -1,9 +1,21 @@
+**The Briefing: Crystal Palace 0 Tottenham 1 - Archie Gray's goal eases pressure on Thomas Frank**\
+`Richarlison had two goals ruled out for offside in a nervy win that lifts Spurs up to 11th`\
+https://nytimes.com/athletic/6919843/2025/12/28/crystal-palace-tottenham-result-analysis/
+
+**Two Killed as Syria’s Alawite Minority Protests Lack of Security**\
+`Days after a bombing at a mosque in a predominantly Alawite area, members of the religious minority in Syria demonstrated for better protections.`\
+https://nytimes.com/2025/12/28/world/middleeast/syria-protests-alawite-two-killed.html
+
+**Adingra looking to take Sunderland chance after AFCON snub**\
+`In the 2024 AFCON final, Adingra was named man of the match as Ivory Coast triumphed over Nigeria.`\
+https://nytimes.com/athletic/6923397/2025/12/28/simon-adingra-sunderland-ivory-coast/
+
 **Sabalenka and Kyrgios' 'Battle of the Sexes' could have been tragedy. Instead, it was farce**\
 `The production value, court and style of tennis made a match using the name of a huge sports event hard to watch for unexpected reasons.`\
 https://nytimes.com/athletic/6923238/2025/12/28/tennis-sabalenka-kyrgios-battle-sexes/
 
 **Mikaela Shiffrin, with 'best possible' second run, wins her sixth straight World Cup slalom**\
-`Shiffrin delivered her "best, best possible run" to come from behind and win yet another World Cup slalom race, with the Olympics nearing.`\
+`Shiffrin delivered her "best possible run" to come from behind and win yet another World Cup slalom race with the Olympics nearing.`\
 https://nytimes.com/athletic/6921122/2025/12/28/mikaela-shiffrin-wins-slalom-world-cup-olympics-semmering/
 
 **Kyle Whittingham on Michigan job: ‘I didn’t have any hesitation’**\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6923267/2025/12/28/maple-leafs-vs-red-wings-stream-
 **How to watch Penguins vs. Blackhawks: Time, TV, streaming**\
 `Find out how to watch the Pittsburgh Penguins play the Chicago Blackhawks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6923265/2025/12/28/penguins-vs-blackhawks-stream-how-to-watch-dec-28/
-
-**How to watch Grizzlies vs. Wizards: Time, TV, streaming**\
-`Find out how to watch the Memphis Grizzlies play the Washington Wizards, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6923263/2025/12/28/grizzlies-vs-wizards-stream-how-to-watch-dec-28/
-
-**How to watch Celtics vs. Trail Blazers: Time, TV, streaming**\
-`Find out how to watch the Boston Celtics play the Portland Trail Blazers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6923261/2025/12/28/celtics-vs-trail-blazers-stream-how-to-watch-dec-28/
-
-**How to watch Canadiens vs. Lightning: Time, TV, streaming**\
-`Find out how to watch the Montreal Canadiens play the Tampa Bay Lightning, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6923259/2025/12/28/canadiens-vs-lightning-stream-how-to-watch-dec-28/
 
