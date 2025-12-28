@@ -1,3 +1,7 @@
+**Admired Figures**\
+`Chase Dittrich brings us a first-class puzzle.`\
+https://nytimes.com/2025/12/28/crosswords/daily-puzzle-2025-12-29.html
+
 **Will Steelers or Ravens win AFC North? Did Drake Maye lock up MVP? Week 17 takeaways**\
 `The Panthers and Bucs are also stumbling into Week 18 after Sunday's losses. Only one can win the last NFC playoff berth. Who has the edge?`\
 https://nytimes.com/athletic/6923411/2025/12/28/nfl-takeaways-week-17-scores-results/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6923546/2025/12/28/seahawks-panthers-score-result-t
 **Buccaneers lose to Dolphins, but get playoff race assist from Seahawks**\
 `The NFC South winner will be decided in Week 18 when Tampa Bay faces the Carolina Panthers.`\
 https://nytimes.com/athletic/6917953/2025/12/28/bucs-dolphins-score-result-takeaways/
-
-**Bengals-Cardinals takeaways: Burrow, Cincinnati continue late season heater**\
-`With both teams already eliminated from playoff contention, Burrow threw for over 300 yards in a Bengals rout of the Cardinals.`\
-https://nytimes.com/athletic/6923380/2025/12/28/cardinals-bengals-score-result-takeaways/
 

@@ -1,3 +1,7 @@
+**Admired Figures**\
+`Chase Dittrich brings us a first-class puzzle.`\
+https://nytimes.com/2025/12/28/crosswords/daily-puzzle-2025-12-29.html
+
 **Will Steelers or Ravens win AFC North? Did Drake Maye lock up MVP? Week 17 takeaways**\
 `The Panthers and Bucs are also stumbling into Week 18 after Sunday's losses. Only one can win the last NFC playoff berth. Who has the edge?`\
 https://nytimes.com/athletic/6923411/2025/12/28/nfl-takeaways-week-17-scores-results/
