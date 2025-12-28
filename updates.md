@@ -1,3 +1,7 @@
+**Pelicans' Jose Alvarado, Suns' Mark Williams ejected for throwing punches**\
+`Williams took exception to a foul by Alvarado and pushed him in the back. Alvarado responded by shoving Williams back.`\
+https://nytimes.com/athletic/6922281/2025/12/27/jose-alvarado-mark-williams-ejected-pelicans-suns/
+
 **Pop-Tarts Bowl takeaways: BYU rallies to beat Georgia Tech, Team Sprinkles sacrificed**\
 `MVP Bear Bachmeier ordered Team Sprinkles to be sacrificed after BYU's 25-21 come-from-behind victory over Georgia Tech.`\
 https://nytimes.com/athletic/6922198/2025/12/27/pop-tarts-bowl-byu-georgia-tech-sprinkles/
