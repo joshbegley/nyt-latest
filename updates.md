@@ -1,3 +1,7 @@
+**Florian Wirtz is now showing why Liverpool broke the bank to get him**\
+`The £116m signing finding his swagger feels crucial for Liverpool's hopes of success in 2026 `\
+https://nytimes.com/athletic/6921209/2025/12/28/liverpool-florian-wirtz-premier-league-goal/
+
 **Igor Jesus is filling the void of Chris Wood. Now he needs goals**\
 `Forest have lost their talisman from last season in Wood - but their Brazilian striker is proving a menace to defenders`\
 https://nytimes.com/athletic/6921358/2025/12/28/igor-jesus-chris-wood-nottingham-forest/
