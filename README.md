@@ -1,3 +1,7 @@
+**How to watch Gonzaga vs. Pepperdine men's basketball: Time, TV, streaming**\
+`Find out how to watch the Gonzaga Bulldogs play the Pepperdine Waves, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6923540/2025/12/28/gonzaga-vs-pepperdine-stream-how-to-watch-dec-28/
+
 **Inside Vienna’s Ball Season of Waltzes and White Ties**\
 `The annual Vienna Philharmonic Ball anchors a winter calendar of some 450 dances across the city that open a window into Viennese tradition, then and now.`\
 https://nytimes.com/2025/12/28/arts/dance/vienna-balls-waltz-debutantes.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6923397/2025/12/28/simon-adingra-sunderland-ivory-c
 **Sabalenka and Kyrgios' 'Battle of the Sexes' could have been tragedy. Instead, it was farce**\
 `The production value, court and style of tennis made a match using the name of a huge sports event hard to watch for unexpected reasons.`\
 https://nytimes.com/athletic/6923238/2025/12/28/tennis-sabalenka-kyrgios-battle-sexes/
-
-**Mikaela Shiffrin, with 'best possible' second run, wins her sixth straight World Cup slalom**\
-`Shiffrin delivered her "best possible run" to come from behind and win yet another World Cup slalom race with the Olympics nearing.`\
-https://nytimes.com/athletic/6921122/2025/12/28/mikaela-shiffrin-wins-slalom-world-cup-olympics-semmering/
 
