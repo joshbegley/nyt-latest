@@ -1,3 +1,15 @@
+**Sabalenka and Kyrgios' 'Battle of the Sexes' could have been tragedy. Instead, it was farce**\
+`The production value, court and style of tennis made a match using the name of a huge sports event hard to watch for unexpected reasons.`\
+https://nytimes.com/athletic/6923238/2025/12/28/tennis-sabalenka-kyrgios-battle-sexes/
+
+**Mikaela Shiffrin, with 'best possible' second run, wins her sixth straight World Cup slalom**\
+`Shiffrin delivered her "best, best possible run" to come from behind and win yet another World Cup slalom race, with the Olympics nearing.`\
+https://nytimes.com/athletic/6921122/2025/12/28/mikaela-shiffrin-wins-slalom-world-cup-olympics-semmering/
+
+**Kyle Whittingham on Michigan job: ‘I didn’t have any hesitation’**\
+`Whittingham said he spent 45 minutes with QB Bryce Underwood on Sunday as part of his efforts to retain as many players as possible.`\
+https://nytimes.com/athletic/6923334/2025/12/28/kyle-whittingham-michigan-football-introduction/
+
 **Kyle Whittingham on Michigan job: ‘I didn’t have any hesitation’**\
 `Whittingham said he spent 45 minutes with QB Bryce Underwood Sunday as part of his efforts to retain as many Michigan players as possible.`\
 https://nytimes.com/athletic/6923334/2025/12/28/kyle-whittingham-michigan-football-introduction/

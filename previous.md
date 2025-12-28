@@ -1,5 +1,13 @@
+**Sabalenka and Kyrgios' 'Battle of the Sexes' could have been tragedy. Instead, it was farce**\
+`The production value, court and style of tennis made a match using the name of a huge sports event hard to watch for unexpected reasons.`\
+https://nytimes.com/athletic/6923238/2025/12/28/tennis-sabalenka-kyrgios-battle-sexes/
+
+**Mikaela Shiffrin, with 'best possible' second run, wins her sixth straight World Cup slalom**\
+`Shiffrin delivered her "best, best possible run" to come from behind and win yet another World Cup slalom race, with the Olympics nearing.`\
+https://nytimes.com/athletic/6921122/2025/12/28/mikaela-shiffrin-wins-slalom-world-cup-olympics-semmering/
+
 **Kyle Whittingham on Michigan job: ‘I didn’t have any hesitation’**\
-`Whittingham said he spent 45 minutes with QB Bryce Underwood Sunday as part of his efforts to retain as many Michigan players as possible.`\
+`Whittingham said he spent 45 minutes with QB Bryce Underwood on Sunday as part of his efforts to retain as many players as possible.`\
 https://nytimes.com/athletic/6923334/2025/12/28/kyle-whittingham-michigan-football-introduction/
 
 **Man Charged in Fatal Shooting During Backyard Target Practice**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6923261/2025/12/28/celtics-vs-trail-blazers-stream-
 **How to watch Canadiens vs. Lightning: Time, TV, streaming**\
 `Find out how to watch the Montreal Canadiens play the Tampa Bay Lightning, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6923259/2025/12/28/canadiens-vs-lightning-stream-how-to-watch-dec-28/
-
-**This Mushroom Stroganoff Is Quick Comfort**\
-`I’m too exhausted to pull off anything big, but I still crave a meal that feels like a holiday. Enter Hetty Lui McKinnon’s 30-minute vegetarian wonder.`\
-https://nytimes.com/2025/12/28/dining/this-mushroom-stroganoff-is-quick-comfort.html
-
-**The Briefing: Sunderland 1 Leeds 1 – A sublime team goal, Rodon injury, and a dominant second half**\
-`Beren Cross looks at the main talking points from Leeds' display at Sunderland`\
-https://nytimes.com/athletic/6919841/2025/12/28/sunderland-leeds-calvert-lewin-rodon-result-analysis/
 
