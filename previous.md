@@ -1,3 +1,15 @@
+**Igor Jesus is filling the void of Chris Wood. Now he needs goals**\
+`Forest have lost their talisman from last season in Wood - but their Brazilian striker is proving a menace to defenders`\
+https://nytimes.com/athletic/6921358/2025/12/28/igor-jesus-chris-wood-nottingham-forest/
+
+**Ruben Amorim is building a platform for victory – but his team still need more control**\
+`Whether a back three or a back four — what's important is how Manchester United operate inside those frameworks`\
+https://nytimes.com/athletic/6921040/2025/12/28/ruben-amorim-is-building-a-platform-for-victory-but-his-team-still-need-more-control/
+
+**Raphinha and the myth of Sisyphus: In praise of Barcelona's unsung hero**\
+`The 29-year-old missed out on this year's big individual awards, so we decided we would recognise him instead`\
+https://nytimes.com/athletic/6913168/2025/12/28/raphinha-barcelona-flick-fifa-unsung-hero/
+
 **The Athletic’s review of 2025: MVP McTominay, the ever-dutiful Gianni and Ronaldo's red reprieve**\
 `Biggest surprise of the football year? Most predictable moment? Biggest injustice? Best quote? And a few predictions for 2026...`\
 https://nytimes.com/athletic/6897786/2025/12/28/football-soccer-2025-review/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6921537/2025/12/28/arsenal-title-pressure-david-ray
 **The Lure of a Rising Asian Metropolis? No Traffic.**\
 `Indonesia is building a new, green city in the jungle. Its future is far from certain, but new residents like living there.`\
 https://nytimes.com/2025/12/28/world/asia/indonesia-nusantara-future-capital.html
-
-**Quote of the Day: Social Media Causing Worry For Parents Around Globe**\
-`Quotation of the Day for Sunday, December 27, 2025.`\
-https://nytimes.com/2025/12/28/pageoneplus/quote-of-the-day-social-media-causing-worry-for-parents-around-globe.html
-
-**In Guinea Elections, Ruling Junta Seeks Legitimacy While Barring Rivals**\
-`Whoever wins faces the daunting task of feeding the West African country’s poor and navigating the interests of global powers seeking critical minerals, analysts say.`\
-https://nytimes.com/2025/12/28/world/africa/guinea-elections-junta-mining.html
-
-**Families Demand Answers a Year After Deadliest Plane Crash in South Korea**\
-`Many details of the Jeju Air disaster that killed 179 people remain unclear despite multiple investigations by officials and protests by the victims’ families.`\
-https://nytimes.com/2025/12/28/world/asia/jeju-air-crash-investigation-anniversary.html
 

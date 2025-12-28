@@ -1,3 +1,15 @@
+**Igor Jesus is filling the void of Chris Wood. Now he needs goals**\
+`Forest have lost their talisman from last season in Wood - but their Brazilian striker is proving a menace to defenders`\
+https://nytimes.com/athletic/6921358/2025/12/28/igor-jesus-chris-wood-nottingham-forest/
+
+**Ruben Amorim is building a platform for victory – but his team still need more control**\
+`Whether a back three or a back four — what's important is how Manchester United operate inside those frameworks`\
+https://nytimes.com/athletic/6921040/2025/12/28/ruben-amorim-is-building-a-platform-for-victory-but-his-team-still-need-more-control/
+
+**Raphinha and the myth of Sisyphus: In praise of Barcelona's unsung hero**\
+`The 29-year-old missed out on this year's big individual awards, so we decided we would recognise him instead`\
+https://nytimes.com/athletic/6913168/2025/12/28/raphinha-barcelona-flick-fifa-unsung-hero/
+
 **The Athletic’s review of 2025: MVP McTominay, the ever-dutiful Gianni and Ronaldo's red reprieve**\
 `Biggest surprise of the football year? Most predictable moment? Biggest injustice? Best quote? And a few predictions for 2026...`\
 https://nytimes.com/athletic/6897786/2025/12/28/football-soccer-2025-review/
