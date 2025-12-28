@@ -1,3 +1,15 @@
+**How to watch Pistons vs. Clippers: Time, TV, streaming**\
+`Find out how to watch the Detroit Pistons play the Los Angeles Clippers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6923562/2025/12/28/pistons-vs-clippers-stream-how-to-watch-dec-28/
+
+**How to watch Flyers vs. Kraken: Time, TV, streaming**\
+`Find out how to watch the Philadelphia Flyers play the Seattle Kraken, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6923560/2025/12/28/flyers-vs-kraken-stream-how-to-watch-dec-28/
+
+**How to watch Kings vs. Lakers: Time, TV, streaming**\
+`Find out how to watch the Sacramento Kings play the Los Angeles Lakers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6923558/2025/12/28/kings-vs-lakers-stream-how-to-watch-dec-28/
+
 **How to watch Gonzaga vs. Pepperdine men's basketball: Time, TV, streaming**\
 `Find out how to watch the Gonzaga Bulldogs play the Pepperdine Waves, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6923540/2025/12/28/gonzaga-vs-pepperdine-stream-how-to-watch-dec-28/
