@@ -1,3 +1,15 @@
+**How to watch Islanders vs. Blue Jackets: Time, TV, streaming**\
+`Find out how to watch the New York Islanders play the Columbus Blue Jackets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6923270/2025/12/28/islanders-vs-blue-jackets-stream-how-to-watch-dec-28/
+
+**How to watch Maple Leafs vs. Red Wings: Time, TV, streaming**\
+`Find out how to watch the Toronto Maple Leafs play the Detroit Red Wings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6923267/2025/12/28/maple-leafs-vs-red-wings-stream-how-to-watch-dec-28/
+
+**How to watch Penguins vs. Blackhawks: Time, TV, streaming**\
+`Find out how to watch the Pittsburgh Penguins play the Chicago Blackhawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6923265/2025/12/28/penguins-vs-blackhawks-stream-how-to-watch-dec-28/
+
 **How to watch Grizzlies vs. Wizards: Time, TV, streaming**\
 `Find out how to watch the Memphis Grizzlies play the Washington Wizards, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6923263/2025/12/28/grizzlies-vs-wizards-stream-how-to-watch-dec-28/

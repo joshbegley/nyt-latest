@@ -1,3 +1,15 @@
+**How to watch Islanders vs. Blue Jackets: Time, TV, streaming**\
+`Find out how to watch the New York Islanders play the Columbus Blue Jackets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6923270/2025/12/28/islanders-vs-blue-jackets-stream-how-to-watch-dec-28/
+
+**How to watch Maple Leafs vs. Red Wings: Time, TV, streaming**\
+`Find out how to watch the Toronto Maple Leafs play the Detroit Red Wings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6923267/2025/12/28/maple-leafs-vs-red-wings-stream-how-to-watch-dec-28/
+
+**How to watch Penguins vs. Blackhawks: Time, TV, streaming**\
+`Find out how to watch the Pittsburgh Penguins play the Chicago Blackhawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6923265/2025/12/28/penguins-vs-blackhawks-stream-how-to-watch-dec-28/
+
 **How to watch Grizzlies vs. Wizards: Time, TV, streaming**\
 `Find out how to watch the Memphis Grizzlies play the Washington Wizards, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6923263/2025/12/28/grizzlies-vs-wizards-stream-how-to-watch-dec-28/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/12/28/movies/brigitte-bardot-photos.html
 **Until Saturday: Hang the banner, BYU**\
 `Until Saturday is The Athletic's free college football newsletter.`\
 https://nytimes.com/athletic/6923189/2025/12/28/byu-pop-tarts-bowl-until-saturday/
-
-**The Pulse: A snubbed champ is crowned**\
-`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
-https://nytimes.com/athletic/6922599/2025/12/28/a-pop-tarts-champion-is-crowned-breathing-life-into-bowl-season/
-
-**Trump Administration Live Updates: Zelensky to Present Revised Peace Plan in Florida Meeting**\
-``\
-https://nytimes.com/live/2025/12/28/us/trump-news-ukraine-zelensky
-
-**Behold the ‘God of Generous Out-Flowing Love’**\
-`A Q & A with N.T. Wright about why Jesus entered into human history.`\
-https://nytimes.com/2025/12/28/opinion/jesus-christmas-history-faith-belief-ntwright.html
 
