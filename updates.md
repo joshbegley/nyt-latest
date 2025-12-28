@@ -23,6 +23,11 @@ https://nytimes.com/athletic/6922106/2025/12/27/wild-jets-mats-zuccarello-matt-b
 `\
 https://nytimes.com/athletic/6922106/2025/12/27/wild-jets-mats-zuccarello-matt-boldy-comeback/
 
+**A thrilling last-second comeback for Wild, with a side of irony: Takeaways**\
+`Mats Zuccarello tied the game in the final 30 seconds and Matt Boldy lifted the Wild to a 4-3 victory over the Jets in overtime.
+`\
+https://nytimes.com/athletic/6922106/2025/12/27/wild-jets-mats-zuccarello-matt-boldy-comeback/
+
 **Questions for Canada, Cole Hutson injury: World Juniors Day 2 takeaways**\
 `Day 2 at the 2026 World Juniors was another busy four-game slate that included a couple of tighter-than-expected games for Canada and USA.`\
 https://nytimes.com/athletic/6920664/2025/12/27/world-juniors-canada-cole-hutson-injury-usa/
