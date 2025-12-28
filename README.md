@@ -1,3 +1,7 @@
+**Miyazawa signs new Manchester United contract**\
+`The Japan international has signed a new deal through to 2029.`\
+https://nytimes.com/athletic/6922897/2025/12/28/hinata-miyazawa-manchester-united-contract/
+
 **Carroll to appear in court after allegedly breaching non-molestation order**\
 `Carroll, 36, was arrested in April in relation to an alleged incident in March.`\
 https://nytimes.com/athletic/6921667/2025/12/28/andy-carroll-court-hearing/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6922541/2025/12/28/hawks-six-straight-losses-trae-y
 **Tyler Bertuzzi's consistency pays off as Blackhawks snap six-game skid**\
 `Bertuzzi scored twice, and Chicago snapped a six-game losing streak with a 4-3 shootout win in Dallas.`\
 https://nytimes.com/athletic/6922495/2025/12/28/tyler-bertuzzi-blackhawks-stars-result-score/
-
-**Packers limping into playoffs after Ravens beatdown: 'This was just embarrassing'**\
-`Baltimore ran for a whopping 307 yards at Lambeau Field, with 216 of them and four touchdowns coming from Derrick Henry.`\
-https://nytimes.com/athletic/6922650/2025/12/28/packers-playoffs-ravens-loss/
 
