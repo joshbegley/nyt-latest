@@ -1,3 +1,7 @@
+**How to watch Providence vs. South Carolina women's basketball: Time, TV, streaming**\
+`Find out how to watch the Providence Friars play the South Carolina Gamecocks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6922794/2025/12/28/providence-vs-south-carolina-stream-how-to-watch-dec-28/
+
 **Zelensky to Meet With Trump at Mar-a-Lago About Plan to End War With Russia**\
 `President Volodymyr Zelensky of Ukraine brings a revised 20-point peace proposal, as well as doubts about whether Russia is serious about pursuing peace.`\
 https://nytimes.com/2025/12/28/world/europe/zelensky-trump-ukraine-russia-talks.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/28/style/exactitudes-photography.html
 **Trump Calls Petro a ‘Drug Leader.’ What’s the Colombian Leader’s Record?**\
 `President Gustavo Petro is locked in a war of words with President Trump over Colombia’s major role in the global drug trade. The issue is complicated.`\
 https://nytimes.com/2025/12/28/world/americas/colombia-drug-trade-trump-petro.html
-
-**Want to Build a Better World? The São Paulo Bienal Has Some Tips**\
-`“Not All Travelers Walk Roads,” the 36th edition of the exhibition, sees art as a guide for connecting with each other and with the earth.`\
-https://nytimes.com/2025/12/28/arts/design/sao-paolo-bienal-notebook.html
 

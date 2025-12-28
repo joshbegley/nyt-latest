@@ -1,3 +1,7 @@
+**How to watch Providence vs. South Carolina women's basketball: Time, TV, streaming**\
+`Find out how to watch the Providence Friars play the South Carolina Gamecocks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6922794/2025/12/28/providence-vs-south-carolina-stream-how-to-watch-dec-28/
+
 **Zelensky to Meet With Trump at Mar-a-Lago About Plan to End War With Russia**\
 `President Volodymyr Zelensky of Ukraine brings a revised 20-point peace proposal, as well as doubts about whether Russia is serious about pursuing peace.`\
 https://nytimes.com/2025/12/28/world/europe/zelensky-trump-ukraine-russia-talks.html
