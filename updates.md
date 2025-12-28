@@ -1,3 +1,11 @@
+**Winter Storm Batters Minnesota, Bringing ‘Potentially Life-Threatening Travel Conditions’**\
+`Blizzard warnings were posted in the western part of the state. Whiteout conditions reduced visibility on the roads as numerous crashes were reported.`\
+https://nytimes.com/2025/12/28/us/minnesota-winter-storm.html
+
+**The Best of Culture**\
+`Our culture and lifestyle editor looks back at the year’s top pop culture moments.`\
+https://nytimes.com/2025/12/28/world/best-of-culture-2025-trump-zelensky-lemurs-madagascar.html
+
 **T Magazine’s Essential 2025 Travel Guides**\
 `Recommendations for where to go and how to get there, from the ultimate Japan itinerary to the best small cruise ships.`\
 https://nytimes.com/2025/12/28/t-magazine/essential-travel-guides.html
