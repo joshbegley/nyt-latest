@@ -1,3 +1,12 @@
+**Derrick Henry reigns in win over Packers as Ravens keep playoff hopes alive: Takeaways**\
+`Baltimore needs Pittsburgh to falter Sunday to set up a Week 18 showdown for the AFC North crown.`\
+https://nytimes.com/athletic/6922238/2025/12/27/ravens-packers-score-result-takeaways-nfl/
+
+**A thrilling last-second comeback for Wild, with a side of irony: Takeaways**\
+`Mats Zuccarello tied the game in the final 30 seconds and Matt Boldy lifted the Wild to a 4-3 victory over the Jets in overtime.
+`\
+https://nytimes.com/athletic/6922106/2025/12/27/wild-jets-mats-zuccarello-matt-boldy-comeback/
+
 **A thrilling last-second comeback for Wild, with a side of irony: Takeaways**\
 `Mats Zuccarello tied the game in the final 30 seconds and Matt Boldy lifted the Wild to a 4-3 victory over the Jets in overtime.
 `\
