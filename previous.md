@@ -1,3 +1,11 @@
+**15-Year-Old Is Fatally Shot in Stairwell of Bronx Building**\
+`A 14-year-old boy was also wounded in the shooting, which happened at a New York City Housing Authority building. The police said they were looking for six people involved in the violence.`\
+https://nytimes.com/2025/12/28/nyregion/15-year-old-fatal-shooting-bronx.html
+
+**Pilot Is Dead After Helicopters Crash in New Jersey**\
+`Another pilot was in critical condition, according to the fire chief in Hammonton, N.J., where the crash took place.`\
+https://nytimes.com/2025/12/28/nyregion/helicopters-crash-new-jersey.html
+
 **How to watch Pistons vs. Clippers: Time, TV, streaming**\
 `Find out how to watch the Detroit Pistons play the Los Angeles Clippers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6923562/2025/12/28/pistons-vs-clippers-stream-how-to-watch-dec-28/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6923445/2025/12/28/matt-ryan-falcons-front-office-r
 **A Gender-Bending, Jazz Age Comedy Once Banned by Franco Arrives in Vienna**\
 `MusikTheater an der Wien will stage Pablo Luna’s “Benamor,” a rarely seen example of the Spanish zarzuela genre from the Roaring Twenties in Madrid.`\
 https://nytimes.com/2025/12/28/arts/music/benamor-vienna-pablo-luna.html
-
-**Gmail to Let Users Change Their Addresses While Keeping Data**\
-`Under the shift, which Google said would eventually be rolled out to all users, old addresses would remain active. Messages and services would not be lost.`\
-https://nytimes.com/2025/12/28/technology/gmail-change-address-email.html
-
-**The Briefing: Crystal Palace 0 Tottenham 1 – Archie Gray's goal eases pressure on Thomas Frank**\
-`Richarlison had two goals ruled out for offside in a nervy win that lifts Spurs up to 11th`\
-https://nytimes.com/athletic/6919843/2025/12/28/crystal-palace-tottenham-result-analysis/
 
