@@ -1,3 +1,11 @@
+**T Magazine’s Essential 2025 Travel Guides**\
+`Recommendations for where to go and how to get there, from the ultimate Japan itinerary to the best small cruise ships.`\
+https://nytimes.com/2025/12/28/t-magazine/essential-travel-guides.html
+
+**Senators goalie Linus Ullmark takes leave of absence for "personal reasons"**\
+`Ullmark holds a 14-8-5 record in 28 games this season with a 2.95 goals-against average and an .881 save percentage.`\
+https://nytimes.com/athletic/6923638/2025/12/28/senators-linus-ullmark-out-personal-reasons/
+
 **15-Year-Old Is Fatally Shot in Stairwell of Bronx Building**\
 `A 14-year-old boy was also wounded in the shooting, which happened at a New York City Housing Authority building. The police said they were looking for six people involved in the violence.`\
 https://nytimes.com/2025/12/28/nyregion/15-year-old-fatal-shooting-bronx.html
