@@ -1,3 +1,7 @@
+**Until Saturday: Hang the banner, BYU**\
+`Until Saturday is The Athletic's free college football newsletter.`\
+https://nytimes.com/athletic/6923189/2025/12/28/byu-pop-tarts-bowl-until-saturday/
+
 **The Pulse: A snubbed champ is crowned**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6922599/2025/12/28/a-pop-tarts-champion-is-crowned-breathing-life-into-bowl-season/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6923007/2025/12/28/uconn-vs-butler-stream-how-to-wa
 **How to watch UCLA vs. Ohio State women's basketball: Time, TV, streaming**\
 `Find out how to watch the UCLA Bruins play the Ohio State Buckeyes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6923004/2025/12/28/ucla-vs-ohio-state-stream-how-to-watch-dec-28/
-
-**How to watch Alabama State vs. LSU women's basketball: Time, TV, streaming**\
-`Find out how to watch the Alabama State Lady Hornets play the LSU Tigers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6922996/2025/12/28/alabama-state-vs-lsu-stream-how-to-watch-dec-28/
 

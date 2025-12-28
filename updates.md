@@ -1,3 +1,7 @@
+**Until Saturday: Hang the banner, BYU**\
+`Until Saturday is The Athletic's free college football newsletter.`\
+https://nytimes.com/athletic/6923189/2025/12/28/byu-pop-tarts-bowl-until-saturday/
+
 **The Pulse: A snubbed champ is crowned**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6922599/2025/12/28/a-pop-tarts-champion-is-crowned-breathing-life-into-bowl-season/
