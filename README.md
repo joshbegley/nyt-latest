@@ -1,3 +1,7 @@
+**Brigitte Bardot, Movie Icon Who Renounced Stardom, Dies at 91**\
+`“And God Created Woman” made her a world-famous sex symbol in the 1950s. She later gave up acting to devote her life to animal welfare.`\
+https://nytimes.com/2025/12/28/movies/brigitte-bardot-dead.html
+
 **How to watch Providence vs. South Carolina women's basketball: Time, TV, streaming**\
 `Find out how to watch the Providence Friars play the South Carolina Gamecocks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6922794/2025/12/28/providence-vs-south-carolina-stream-how-to-watch-dec-28/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/28/magazine/thomas-goldstein-supreme-court-gambling.
 **We’re All Unique. Or Are We?**\
 `Two artists spent 30 years cataloging how people dress and learned a lot about humanity in the process.`\
 https://nytimes.com/2025/12/28/style/exactitudes-photography.html
-
-**Trump Calls Petro a ‘Drug Leader.’ What’s the Colombian Leader’s Record?**\
-`President Gustavo Petro is locked in a war of words with President Trump over Colombia’s major role in the global drug trade. The issue is complicated.`\
-https://nytimes.com/2025/12/28/world/americas/colombia-drug-trade-trump-petro.html
 
