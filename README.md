@@ -1,3 +1,7 @@
+**Pop-Tarts Bowl takeaways: BYU rallies to beat Georgia Tech, Team Sprinkles sacrificed**\
+`MVP Bear Bachmeier ordered Team Sprinkles to be sacrificed after BYU's 25-21 come-from-behind victory over Georgia Tech.`\
+https://nytimes.com/athletic/6922198/2025/12/27/pop-tarts-bowl-byu-georgia-tech-sprinkles/
+
 **Victor Wembanyama returns to Spurs' starting lineup after six games as reserve**\
 `Before Wembanyama’s six-game stint as a reserve, he missed 12 consecutive games with a left calf strain.`\
 https://nytimes.com/athletic/6922200/2025/12/27/victor-wembanyama-returns-spurs-starting-lineup/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6922077/2025/12/27/lakers-jj-redick-christmas-day-t
 **How to watch Alabama vs. Indiana: CFP Quarterfinal Start Time, TV, streaming**\
 `Find out how to watch the Alabama Crimson Tide play the Indiana Hoosiers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6922121/2025/12/27/alabama-vs-indiana-stream-how-to-watch-jan-1/
-
-**Sources: Knicks' Josh Hart expected to miss at least 3 games with ankle injury**\
-`New York will also miss Hart's ability to push the pace in transition as the Knicks struggle to consistently play fast.`\
-https://nytimes.com/athletic/6921995/2025/12/27/josh-hart-ankle-injury-out-three-games-knicks/
 
