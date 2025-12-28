@@ -1,3 +1,15 @@
+**This Mushroom Stroganoff Is Quick Comfort**\
+`I’m too exhausted to pull off anything big, but I still crave a meal that feels like a holiday. Enter Hetty Lui McKinnon’s 30-minute vegetarian wonder.`\
+https://nytimes.com/2025/12/28/dining/this-mushroom-stroganoff-is-quick-comfort.html
+
+**The Briefing: Sunderland 1 Leeds 1 - A sublime team goal, Rodon injury and dominant second half**\
+`Beren Cross looks at the main talking points from Leeds' display at Sunderland`\
+https://nytimes.com/athletic/6919841/2025/12/28/sunderland-leeds-calvert-lewin-rodon-result-analysis/
+
+**Brigitte Bardot: A Life in Pictures**\
+`The movies made the French actress a star, but photography sealed her stardom.`\
+https://nytimes.com/2025/12/28/movies/brigitte-bardot-photos.html
+
 **Until Saturday: Hang the banner, BYU**\
 `Until Saturday is The Athletic's free college football newsletter.`\
 https://nytimes.com/athletic/6923189/2025/12/28/byu-pop-tarts-bowl-until-saturday/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6923032/2025/12/28/warriors-vs-raptors-stream-how-t
 **How to watch 76ers vs. Thunder: Time, TV, streaming**\
 `Find out how to watch the Philadelphia 76ers play the Oklahoma City Thunder, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6923030/2025/12/28/76ers-vs-thunder-stream-how-to-watch-dec-28/
-
-**How to watch SE Louisiana vs. Texas women's basketball: Time, TV, streaming**\
-`Find out how to watch the SE Louisiana Lions play the Texas Longhorns, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6923013/2025/12/28/se-louisiana-vs-texas-stream-how-to-watch-dec-28/
-
-**How to watch UConn vs. Butler women's basketball: Time, TV, streaming**\
-`Find out how to watch the UConn Huskies play the Butler Bulldogs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6923007/2025/12/28/uconn-vs-butler-stream-how-to-watch-dec-28/
-
-**How to watch UCLA vs. Ohio State women's basketball: Time, TV, streaming**\
-`Find out how to watch the UCLA Bruins play the Ohio State Buckeyes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6923004/2025/12/28/ucla-vs-ohio-state-stream-how-to-watch-dec-28/
 

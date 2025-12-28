@@ -1,3 +1,7 @@
+**How to watch UCLA vs. Ohio State women's basketball: Time, TV, streaming**\
+`Find out how to watch the UCLA Bruins play the Ohio State Buckeyes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6923004/2025/12/28/ucla-vs-ohio-state-stream-how-to-watch-dec-28/
+
 **Brigitte Bardot: A Life in Pictures**\
 `The movies made the French actress a star, but photography sealed her stardom.`\
 https://nytimes.com/2025/12/28/movies/brigitte-bardot-photos.html
