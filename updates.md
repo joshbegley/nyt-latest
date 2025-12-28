@@ -1,3 +1,15 @@
+**To See Mamdani Sworn In, Some Out-of-Towners Confront N.Y.C. Prices**\
+`Zohran Mamdani campaigned for mayor on a platform of taming the high cost of living for New Yorkers. Visitors will get a crash course in the affordability crisis.`\
+https://nytimes.com/2025/12/28/nyregion/mamdani-inauguration-visitors-new-york-prices.html
+
+**The Best of Metropolitan Diary 2025: The Readers Speak**\
+`An anecdote about a questionable bagel order claims the top spot this year, outpolling four other favorites. All five are presented here.`\
+https://nytimes.com/2025/12/28/nyregion/metropolitan-diary.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/12/28/crosswords/spelling-bee-forum.html
+
 **The Briefing - Nigeria 3 Tunisia 2: Lookman lethal as a No 10, more VAR drama and Chelle's issue to solve**\
 `Nigeria were cruising into the round of 16 until late changes and a controversial penalty caused chaos. We assess the talking points...`\
 https://nytimes.com/athletic/6919602/2025/12/28/nigeria-3-tunisia-2-lookman-var-chelle/
