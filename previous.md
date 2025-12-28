@@ -1,3 +1,7 @@
+**The curious case of the MCG pitch, a two-day Ashes Test and a curator left in a 'state of shock'**\
+`The MCG groundsman has explained why he left too much grass on the strip for the Boxing Day Test as the financial implications become clear`\
+https://nytimes.com/athletic/6922016/2025/12/28/mcg-ashes-pitch-curator-page-australia-england/
+
 **God as Black**\
 `During Kwanzaa, we look at the history of Black religious iconography.`\
 https://nytimes.com/2025/12/28/briefing/kwanzaa.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6921358/2025/12/28/igor-jesus-chris-wood-nottingham
 **Ruben Amorim is building a platform for victory – but his team still need more control**\
 `Whether a back three or a back four — what's important is how Manchester United operate inside those frameworks`\
 https://nytimes.com/athletic/6921040/2025/12/28/ruben-amorim-is-building-a-platform-for-victory-but-his-team-still-need-more-control/
-
-**Raphinha and the myth of Sisyphus: In praise of Barcelona's unsung hero**\
-`The 29-year-old missed out on this year's big individual awards, so we decided we would recognise him instead`\
-https://nytimes.com/athletic/6913168/2025/12/28/raphinha-barcelona-flick-fifa-unsung-hero/
 

@@ -1,3 +1,7 @@
+**The curious case of the MCG pitch, a two-day Ashes Test and a curator left in a 'state of shock'**\
+`The MCG groundsman has explained why he left too much grass on the strip for the Boxing Day Test as the financial implications become clear`\
+https://nytimes.com/athletic/6922016/2025/12/28/mcg-ashes-pitch-curator-page-australia-england/
+
 **God as Black**\
 `During Kwanzaa, we look at the history of Black religious iconography.`\
 https://nytimes.com/2025/12/28/briefing/kwanzaa.html
