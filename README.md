@@ -1,3 +1,11 @@
+**How to watch SE Louisiana vs. Texas women's basketball: Time, TV, streaming**\
+`Find out how to watch the SE Louisiana Lions play the Texas Longhorns, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6923013/2025/12/28/se-louisiana-vs-texas-stream-how-to-watch-dec-28/
+
+**How to watch UConn vs. Butler women's basketball: Time, TV, streaming**\
+`Find out how to watch the UConn Huskies play the Butler Bulldogs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6923007/2025/12/28/uconn-vs-butler-stream-how-to-watch-dec-28/
+
 **How to watch UCLA vs. Ohio State women's basketball: Time, TV, streaming**\
 `Find out how to watch the UCLA Bruins play the Ohio State Buckeyes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6923004/2025/12/28/ucla-vs-ohio-state-stream-how-to-watch-dec-28/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6922978/2025/12/28/penn-state-vs-iowa-stream-how-to
 **How to watch Rutgers vs. Michigan State women's basketball: Time, TV, streaming**\
 `Find out how to watch the Rutgers Scarlet Knights play the Michigan State Spartans, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6922974/2025/12/28/rutgers-vs-michigan-state-stream-how-to-watch-dec-28/
-
-**Make-Ahead Breakfast Ideas**\
-`The host of our Cooking newsletter offers a few suggestions for New Year’s Day breakfasts that you can prep ahead of time.`\
-https://nytimes.com/2025/12/28/briefing/make-ahead-breakfast-ideas.html
-
-**Master Lock Comanche wins line honors in Sydney Hobart Yacht Race: 'She talks to you'**\
-`The victory by Master Lock Comanche in the 80th edition of the 628-nautical-mile race was one for the ages`\
-https://nytimes.com/athletic/6922883/2025/12/28/sydney-hobart-yacht-race-master-lock-comanche/
 
