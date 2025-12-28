@@ -1,3 +1,7 @@
+**God as Black**\
+`During Kwanzaa, we look at the history of Black religious iconography.`\
+https://nytimes.com/2025/12/28/briefing/kwanzaa.html
+
 **To See Mamdani Sworn In, Some Out-of-Towners Confront N.Y.C. Prices**\
 `Zohran Mamdani campaigned for mayor on a platform of taming the high cost of living for New Yorkers. Visitors will get a crash course in the affordability crisis.`\
 https://nytimes.com/2025/12/28/nyregion/mamdani-inauguration-visitors-new-york-prices.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6921040/2025/12/28/ruben-amorim-is-building-a-platf
 **Raphinha and the myth of Sisyphus: In praise of Barcelona's unsung hero**\
 `The 29-year-old missed out on this year's big individual awards, so we decided we would recognise him instead`\
 https://nytimes.com/athletic/6913168/2025/12/28/raphinha-barcelona-flick-fifa-unsung-hero/
-
-**The Athletic’s review of 2025: MVP McTominay, the ever-dutiful Gianni and Ronaldo's red reprieve**\
-`Biggest surprise of the football year? Most predictable moment? Biggest injustice? Best quote? And a few predictions for 2026...`\
-https://nytimes.com/athletic/6897786/2025/12/28/football-soccer-2025-review/
 

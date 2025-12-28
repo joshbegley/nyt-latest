@@ -1,3 +1,7 @@
+**God as Black**\
+`During Kwanzaa, we look at the history of Black religious iconography.`\
+https://nytimes.com/2025/12/28/briefing/kwanzaa.html
+
 **To See Mamdani Sworn In, Some Out-of-Towners Confront N.Y.C. Prices**\
 `Zohran Mamdani campaigned for mayor on a platform of taming the high cost of living for New Yorkers. Visitors will get a crash course in the affordability crisis.`\
 https://nytimes.com/2025/12/28/nyregion/mamdani-inauguration-visitors-new-york-prices.html
