@@ -1,3 +1,11 @@
+**Buccaneers lose to Dolphins, but get playoff race assist from Seahawks**\
+`The NFC South winner will be decided in Week 18 when Tampa Bay faces the Carolina Panthers.`\
+https://nytimes.com/athletic/6917953/2025/12/28/bucs-dolphins-score-result-takeaways/
+
+**Bengals-Cardinals takeaways: Burrow, Cincinnati continue late season heater**\
+`With both teams already eliminated from playoff contention, Burrow threw for over 300 yards in a Bengals rout of the Cardinals.`\
+https://nytimes.com/athletic/6923380/2025/12/28/cardinals-bengals-score-result-takeaways/
+
 **Winter Storm Batters Minnesota, Bringing ‘Potentially Life-Threatening Travel Conditions’**\
 `Blizzard warnings were posted in the western part of the state. Whiteout conditions reduced visibility on the roads as numerous crashes were reported.`\
 https://nytimes.com/2025/12/28/us/minnesota-winter-storm.html

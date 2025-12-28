@@ -1,3 +1,11 @@
+**Buccaneers lose to Dolphins, but get playoff race assist from Seahawks**\
+`The NFC South winner will be decided in Week 18 when Tampa Bay faces the Carolina Panthers.`\
+https://nytimes.com/athletic/6917953/2025/12/28/bucs-dolphins-score-result-takeaways/
+
+**Bengals-Cardinals takeaways: Burrow, Cincinnati continue late season heater**\
+`With both teams already eliminated from playoff contention, Burrow threw for over 300 yards in a Bengals rout of the Cardinals.`\
+https://nytimes.com/athletic/6923380/2025/12/28/cardinals-bengals-score-result-takeaways/
+
 **Winter Storm Batters Minnesota, Bringing ‘Potentially Life-Threatening Travel Conditions’**\
 `Blizzard warnings were posted in the western part of the state. Whiteout conditions reduced visibility on the roads as numerous crashes were reported.`\
 https://nytimes.com/2025/12/28/us/minnesota-winter-storm.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6923562/2025/12/28/pistons-vs-clippers-stream-how-t
 **How to watch Flyers vs. Kraken: Time, TV, streaming**\
 `Find out how to watch the Philadelphia Flyers play the Seattle Kraken, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6923560/2025/12/28/flyers-vs-kraken-stream-how-to-watch-dec-28/
-
-**How to watch Kings vs. Lakers: Time, TV, streaming**\
-`Find out how to watch the Sacramento Kings play the Los Angeles Lakers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6923558/2025/12/28/kings-vs-lakers-stream-how-to-watch-dec-28/
-
-**How to watch Gonzaga vs. Pepperdine men's basketball: Time, TV, streaming**\
-`Find out how to watch the Gonzaga Bulldogs play the Pepperdine Waves, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6923540/2025/12/28/gonzaga-vs-pepperdine-stream-how-to-watch-dec-28/
 
