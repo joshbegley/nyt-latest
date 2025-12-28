@@ -1,3 +1,8 @@
+**A thrilling last-second comeback for Wild, with a side of irony: Takeaways**\
+`Mats Zuccarello tied the game in the final 30 seconds and Matt Boldy gave the Wild a 4-3 victory over the Jets in overtime.
+`\
+https://nytimes.com/athletic/6922106/2025/12/27/wild-jets-mats-zuccarello-matt-boldy-comeback/
+
 **Cooper Flagg-led rally falls short in Mavs' latest loss without Anthony Davis**\
 `When Davis has been out, Dallas has performed like a team bound for the lottery.`\
 https://nytimes.com/athletic/6922365/2025/12/27/cooper-flagg-mavericks-comeback-kings-anthony-davis/
@@ -33,8 +38,4 @@ https://nytimes.com/athletic/6921897/2025/12/27/texans-chargers-score-result-tak
 **'Shame on the NCAA. Shame on the coaches': Izzo rips James Nnaji signing**\
 `Michigan State coach says it's 'ridiculous' to allow a former NBA draft pick and overseas player have NCAA eligibility.`\
 https://nytimes.com/athletic/6922089/2025/12/27/tom-izzo-james-nnaji-shame-on-ncaa-coaches/
-
-**Slopes Are Empty as a Labor Dispute Shuts Down a Colorado Ski Town**\
-`Now, vacationers looking to ski are wondering what to do and merchants are hoping it doesn’t last.`\
-https://nytimes.com/2025/12/27/us/telluride-colorado-ski-resort-union-strike.html
 

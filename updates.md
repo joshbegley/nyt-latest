@@ -1,3 +1,8 @@
+**A thrilling last-second comeback for Wild, with a side of irony: Takeaways**\
+`Mats Zuccarello tied the game in the final 30 seconds and Matt Boldy gave the Wild a 4-3 victory over the Jets in overtime.
+`\
+https://nytimes.com/athletic/6922106/2025/12/27/wild-jets-mats-zuccarello-matt-boldy-comeback/
+
 **Cooper Flagg-led rally falls short in Mavs' latest loss without Anthony Davis**\
 `When Davis has been out, Dallas has performed like a team bound for the lottery.`\
 https://nytimes.com/athletic/6922365/2025/12/27/cooper-flagg-mavericks-comeback-kings-anthony-davis/
