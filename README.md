@@ -1,3 +1,7 @@
+**Derrick Henry reigns in win over Packers as Ravens keep playoff hopes alive: Takeaways**\
+`Baltimore needs Pittsburgh to falter Sunday to set up a Week 18 showdown for the AFC North crown.`\
+https://nytimes.com/athletic/6922238/2025/12/27/ravens-packers-score-result-takeaways-nfl/
+
 **Questions for Canada, Cole Hutson injury: World Juniors Day 2 takeaways**\
 `Day 2 at the 2026 World Juniors was another busy four-game slate that included a couple of tighter-than-expected games for Canada and USA.`\
 https://nytimes.com/athletic/6920664/2025/12/27/world-juniors-canada-cole-hutson-injury-usa/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6922379/2025/12/27/ole-miss-vs-georgia-stream-how-t
 **ECHL, PHPA reach tentative agreement to end strike**\
 `The news was announced Saturday night, one day after the PHPA's strike came into effect after failed talks over the CBA.`\
 https://nytimes.com/athletic/6922278/2025/12/27/echl-phpa-strike-agreement/
-
-**Pelicans' Jose Alvarado, Suns' Mark Williams ejected for throwing punches**\
-`Williams took exception to a foul by Alvarado and pushed him in the back. Alvarado responded by shoving Williams back.`\
-https://nytimes.com/athletic/6922281/2025/12/27/jose-alvarado-mark-williams-ejected-pelicans-suns/
 
