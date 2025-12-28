@@ -1,3 +1,15 @@
+**This Mushroom Stroganoff Is Quick Comfort**\
+`I’m too exhausted to pull off anything big, but I still crave a meal that feels like a holiday. Enter Hetty Lui McKinnon’s 30-minute vegetarian wonder.`\
+https://nytimes.com/2025/12/28/dining/this-mushroom-stroganoff-is-quick-comfort.html
+
+**The Briefing: Sunderland 1 Leeds 1 – A sublime team goal, Rodon injury, and a dominant second half**\
+`Beren Cross looks at the main talking points from Leeds' display at Sunderland`\
+https://nytimes.com/athletic/6919841/2025/12/28/sunderland-leeds-calvert-lewin-rodon-result-analysis/
+
+**Brigitte Bardot: A Life in Pictures**\
+`The movies made the French actress a star, but photography sealed her stardom.`\
+https://nytimes.com/2025/12/28/movies/brigitte-bardot-photos.html
+
 **How to watch UCLA vs. Ohio State women's basketball: Time, TV, streaming**\
 `Find out how to watch the UCLA Bruins play the Ohio State Buckeyes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6923004/2025/12/28/ucla-vs-ohio-state-stream-how-to-watch-dec-28/
