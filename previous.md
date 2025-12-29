@@ -1,3 +1,7 @@
+**New Year’s Eve Specials, Plus 4 Things to Watch on TV This Week**\
+`CNN, CBS and ABC ring in 2026, and a new reality show set in Palm Beach begins.`\
+https://nytimes.com/2025/12/29/arts/television/new-years-eve-specials-plus-4-things-to-watch-on-tv-this-week.html
+
 **The New York Times in Print for Monday, Dec. 29, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/12/29/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6923456/2025/12/29/leeds-sunderland-goal-calvert-le
 **Everton's need for more is clear**\
 `David Moyes has been deprived of his difference makers. The years of underinvestment are still being felt`\
 https://nytimes.com/athletic/6921854/2025/12/29/everton-david-moyes-squad-short/
-
-**Why are Liverpool so bad at defending set pieces?**\
-`Liverpool's familiar difficulties in defending set pieces came up again on Saturday. Why are they struggling with it?`\
-https://nytimes.com/athletic/6923018/2025/12/29/liverpool-premier-league-set-piece-analysis-problems/
 

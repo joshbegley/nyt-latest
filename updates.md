@@ -1,3 +1,7 @@
+**New Year’s Eve Specials, Plus 4 Things to Watch on TV This Week**\
+`CNN, CBS and ABC ring in 2026, and a new reality show set in Palm Beach begins.`\
+https://nytimes.com/2025/12/29/arts/television/new-years-eve-specials-plus-4-things-to-watch-on-tv-this-week.html
+
 **Leeds' brilliant 11-player equaliser in their own words: 'The sign of a top-class team goal'**\
 `Dominic Calvert-Lewin's remarkable equaliser involved every member of the Leeds side and had fans in raptures`\
 https://nytimes.com/athletic/6923456/2025/12/29/leeds-sunderland-goal-calvert-lewin/
