@@ -1,3 +1,7 @@
+**Melanie Watson Bernhardt, ‘Diff’rent Strokes’ Actress, Dies at 57**\
+`Her four episodes on the sitcom marked a rarity: a disabled actress onscreen.`\
+https://nytimes.com/2025/12/29/arts/melanie-watson-dead-different-strokes.html
+
 **NFL overreactions: Seattle is the pick in battle for NFC's No. 1 seed**\
 `Toby Mergler has a few wagers in mind for NFL Week 18.`\
 https://nytimes.com/athletic/6926137/2025/12/29/nfl-overreactions-betting-week-18-seattle-nfc/
@@ -29,8 +33,4 @@ https://nytimes.com/interactive/2025/12/29/books/review/romantic-adventures-quiz
 **How to watch Capitals vs. Panthers: Time, TV, streaming**\
 `Find out how to watch the Washington Capitals play the Florida Panthers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6926310/2025/12/29/capitals-vs-panthers-stream-how-to-watch-dec-29/
-
-**How to watch Bucks vs. Hornets: Time, TV, streaming**\
-`Find out how to watch the Milwaukee Bucks play the Charlotte Hornets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6926307/2025/12/29/bucks-vs-hornets-stream-how-to-watch-dec-29/
 

@@ -1,3 +1,7 @@
+**Melanie Watson Bernhardt, ‘Diff’rent Strokes’ Actress, Dies at 57**\
+`Her four episodes on the sitcom marked a rarity: a disabled actress onscreen.`\
+https://nytimes.com/2025/12/29/arts/melanie-watson-dead-different-strokes.html
+
 **NFL overreactions: Seattle is the pick in battle for NFC's No. 1 seed**\
 `Toby Mergler has a few wagers in mind for NFL Week 18.`\
 https://nytimes.com/athletic/6926137/2025/12/29/nfl-overreactions-betting-week-18-seattle-nfc/
