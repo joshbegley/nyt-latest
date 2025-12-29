@@ -1,3 +1,11 @@
+**Democrats Aim to Spotlight Republican Efforts to Rewrite the Jan. 6 Capitol Riot**\
+`On the fifth anniversary of the attack, which falls next Tuesday, Democrats plan to hold an informal hearing to review President Trump’s clemency for the rioters and G.O.P attempts to sanitize the event.`\
+https://nytimes.com/2025/12/29/us/politics/jan-6-anniversary-trump.html
+
+**What we're hearing about MLB offseason: Tyler Soderstrom, Brendan Donovan and more**\
+`Plus, what's next on the Nolan Arenado trade front, a looming deadline for two Japanese standouts and how Reds could upgrade their outfield.`\
+https://nytimes.com/athletic/6927521/2025/12/29/mlb-off-season-tyler-soderstrom-brendan-donovan/
+
 **NASCAR star Denny Hamlin's father, Dennis, dies of injuries from house fire**\
 `Dennis Hamlin died following a fire at their house Sunday night, and Hamlin's mother, Mary Lou, is in critical condition, authorities said.`\
 https://nytimes.com/athletic/6927154/2025/12/29/nascar-denny-hamlin-father-dennis-dies-house-fire/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/29/world/europe/idris-elba-cynthia-erivo-king-charle
 **Former Tottenham Hotspur chairman Daniel Levy awarded CBE in New Year Honours list**\
 `Levy has been given the honour for 'services to charity and the community in Tottenham'`\
 https://nytimes.com/athletic/6927006/2025/12/29/daniel-levy-cbe-tottenham/
-
-**Chargers to rest Justin Herbert vs. Broncos, as Denver eyes No. 1 seed**\
-`The Broncos would clinch the top seed in the AFC and a first-round bye with a win. A loss would open the door for the Patriots and Jaguars.`\
-https://nytimes.com/athletic/6927430/2025/12/29/chargers-rest-justin-herbert-broncos-top-seed-afc/
-
-**More Kennedy Center Performances Are Canceled After Trump’s Renaming**\
-`A dance company withdrew from two performances next year, and the arts center’s website says two New Year’s Eve jazz concerts have been canceled.`\
-https://nytimes.com/2025/12/29/arts/kennedy-center-new-years-eve-concerts-canceled.html
 

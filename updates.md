@@ -1,3 +1,15 @@
+**NASCAR star Denny Hamlin's father, Dennis, dies of injuries from house fire**\
+`Dennis Hamlin died following a fire at their house Sunday night, and Hamlin's mother, Mary Lou, is in critical condition, authorities said.`\
+https://nytimes.com/athletic/6927154/2025/12/29/nascar-denny-hamlin-father-dennis-dies-house-fire/
+
+**New York City Takes Over Brooklyn Health System With Shaky Finances**\
+`Maimonides Health is a community fixture that will become part of NYC Health + Hospitals. Many of its patients are on government medical plans.`\
+https://nytimes.com/2025/12/29/nyregion/nyc-takes-over-maimonides.html
+
+**Trump and Netanyahu Present United Front During Meeting**\
+`President Trump and Prime Minister Benjamin Netanyahu of Israel lavished each other with praise during their meeting on Monday. The two discussed Gaza’s reconstruction. Netanyahu also gave Trump the Israel Prize, the country’s highest cultural honor.`\
+https://nytimes.com/video/us/politics/100000010613968/trump-netanyahu-israel-pardon.html
+
 **Cardinals' Jonathan Gannon 'feels good' about potential return as coach**\
 `Although Gannon is 15-35 with the Cardinals, he helped Arizona go from four wins in his first season to eight the next.`\
 https://nytimes.com/athletic/6927465/2025/12/29/jonathan-gannon-cardinals-head-coach-status/

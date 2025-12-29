@@ -1,3 +1,15 @@
+**NASCAR star Denny Hamlin's father, Dennis, dies of injuries from house fire**\
+`Dennis Hamlin died following a fire at their house Sunday night, and Hamlin's mother, Mary Lou, is in critical condition, authorities said.`\
+https://nytimes.com/athletic/6927154/2025/12/29/nascar-denny-hamlin-father-dennis-dies-house-fire/
+
+**New York City Takes Over Brooklyn Health System With Shaky Finances**\
+`Maimonides Health is a community fixture that will become part of NYC Health + Hospitals. Many of its patients are on government medical plans.`\
+https://nytimes.com/2025/12/29/nyregion/nyc-takes-over-maimonides.html
+
+**Trump and Netanyahu Present United Front During Meeting**\
+`President Trump and Prime Minister Benjamin Netanyahu of Israel lavished each other with praise during their meeting on Monday. The two discussed Gaza’s reconstruction. Netanyahu also gave Trump the Israel Prize, the country’s highest cultural honor.`\
+https://nytimes.com/video/us/politics/100000010613968/trump-netanyahu-israel-pardon.html
+
 **Cardinals' Jonathan Gannon 'feels good' about potential return as coach**\
 `Although Gannon is 15-35 with the Cardinals, he helped Arizona go from four wins in his first season to eight the next.`\
 https://nytimes.com/athletic/6927465/2025/12/29/jonathan-gannon-cardinals-head-coach-status/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6927430/2025/12/29/chargers-rest-justin-herbert-bro
 **More Kennedy Center Performances Are Canceled After Trump’s Renaming**\
 `A dance company withdrew from two performances next year, and the arts center’s website says two New Year’s Eve jazz concerts have been canceled.`\
 https://nytimes.com/2025/12/29/arts/kennedy-center-new-years-eve-concerts-canceled.html
-
-**Deaths in 2025: A Yearlong Procession of Giants**\
-`Marquee names all, they found international fame in the arts, politics, the sciences and beyond.`\
-https://nytimes.com/2025/12/29/obituaries/2025-deaths-obituaries.html
-
-**Blue Jackets Monday Gathering: Flight delays change puck drop vs. Senators**\
-`Despite high winds in Columbus and freezing rain in Ottawa, it was a mechanical issue that grounded the Blue Jackets.`\
-https://nytimes.com/athletic/6925342/2025/12/29/blue-jackets-monday-gathering-flight-delay-senators/
-
-**Aston Villa question Premier League December schedule before Arsenal trip**\
-`Villa prepare for their second London away match in the space of four days while other teams have successive home games.`\
-https://nytimes.com/athletic/6927431/2025/12/29/aston-villa-premier-league-schedule/
 
