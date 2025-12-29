@@ -1,3 +1,7 @@
+**Submit a question for Pete Sampson's next Notre Dame football mailbag**\
+`It's been a busy December around Notre Dame football, even though the Fighting Irish haven't played since Thanksgiving weekend.`\
+https://nytimes.com/athletic/6925772/2025/12/29/submit-a-question-for-pete-sampsons-next-notre-dame-football-mailbag/
+
 **Brock Purdy, slinging and dancing, makes anything possible for these 49ers**\
 `When Purdy plays like this, he infuses an intoxicating aura into his team. And now, improbably, the 49ers are one win from the No. 1 seed.`\
 https://nytimes.com/athletic/6925221/2025/12/29/49ers-brock-purdy-qb-playoffs-super-bowl-dance/
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/americas/100000010612821/mexico-train-crash.html
 **Fernandes pushing for quick Man Utd return but out of Wolves game**\
 `United head coach Ruben Amorim also ruled out Kobbie Mainoo, Matthijs De Ligt and Harry Maguire ahead of Tuesday's match.`\
 https://nytimes.com/athletic/6921281/2025/12/29/bruno-fernandes-injury-latest-man-utd/
-
-**How to watch Wisconsin vs. Maryland women's basketball: Time, TV, streaming**\
-`Find out how to watch the Wisconsin Badgers play the Maryland Terrapins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6925397/2025/12/29/wisconsin-vs-maryland-stream-how-to-watch-dec-29/
 

@@ -1,3 +1,7 @@
+**Submit a question for Pete Sampson's next Notre Dame football mailbag**\
+`It's been a busy December around Notre Dame football, even though the Fighting Irish haven't played since Thanksgiving weekend.`\
+https://nytimes.com/athletic/6925772/2025/12/29/submit-a-question-for-pete-sampsons-next-notre-dame-football-mailbag/
+
 **Brock Purdy, slinging and dancing, makes anything possible for these 49ers**\
 `When Purdy plays like this, he infuses an intoxicating aura into his team. And now, improbably, the 49ers are one win from the No. 1 seed.`\
 https://nytimes.com/athletic/6925221/2025/12/29/49ers-brock-purdy-qb-playoffs-super-bowl-dance/
