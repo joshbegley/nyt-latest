@@ -1,3 +1,7 @@
+**What We’re Bringing to Antarctica**\
+`What do a New York Times reporter and photographer pack for a two-month expedition to the fastest-melting glacier in Antarctica? Raymond Zhong and Chang W. Lee compare the must-have gear that they’re bringing for the journey.`\
+https://nytimes.com/video/climate/100000010613980/what-were-bringing-to-antarctica.html
+
 **How to watch Mavericks vs. Trail Blazers: Time, TV, streaming**\
 `Find out how to watch the Dallas Mavericks play the Portland Trail Blazers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6927230/2025/12/29/mavericks-vs-trail-blazers-stream-how-to-watch-dec-29/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6927210/2025/12/29/hawks-vs-thunder-stream-how-to-w
 **How to watch Canucks vs. Kraken: Time, TV, streaming**\
 `Find out how to watch the Vancouver Canucks play the Seattle Kraken, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6927208/2025/12/29/canucks-vs-kraken-stream-how-to-watch-dec-29/
-
-**How to watch Knicks vs. Pelicans: Time, TV, streaming**\
-`Find out how to watch the New York Knicks play the New Orleans Pelicans, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6927205/2025/12/29/knicks-vs-pelicans-stream-how-to-watch-dec-29/
 
