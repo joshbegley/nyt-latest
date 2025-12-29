@@ -1,3 +1,7 @@
+**Au Revoir, Brigitte Bardot**\
+`In Brigitte Bardot’s death I see the passing of a generation: the Frenchwomen who tried to find a path to autonomy in the 1950s and ’60s.`\
+https://nytimes.com/2025/12/29/opinion/brigitte-bardot-france.html
+
 **Israel Strips U.N. Agency for Palestinian Refugees of Diplomatic Immunity**\
 `The legislation was the latest blow to the agency, known as UNRWA. Israel has accused it of being extensively infiltrated by Hamas.`\
 https://nytimes.com/2025/12/29/world/middleeast/israel-unrwa-diplomatic-immunity.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6927152/2025/12/29/kevin-stefanski-browns-coach-job
 **Why Sweden's Ivar Stenberg is a contender to go No. 1 in 2026 NHL Draft**\
 `If Stenberg is going to be picked at the top of the draft, his play for Sweden at the World Juniors could make the difference.`\
 https://nytimes.com/athletic/6922328/2025/12/29/ivar-stenberg-nhl-draft-sweden-stats/
-
-**What We’re Bringing to Antarctica**\
-`What do a New York Times reporter and photographer pack for a two-month expedition to the fastest-melting glacier in Antarctica? Raymond Zhong and Chang W. Lee compare the must-have gear that they’re bringing for the journey.`\
-https://nytimes.com/video/climate/100000010613980/what-were-bringing-to-antarctica.html
 

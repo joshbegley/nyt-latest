@@ -1,5 +1,13 @@
+**Israel Strips U.N. Agency for Palestinian Refugees of Diplomatic Immunity**\
+`The legislation was the latest blow to the agency, known as UNRWA. Israel has accused it of being extensively infiltrated by Hamas.`\
+https://nytimes.com/2025/12/29/world/middleeast/israel-unrwa-diplomatic-immunity.html
+
+**Martin among final candidates for Columbus Crew head coach role**\
+`Martin was sacked by Rangers in October after just four months in charge.`\
+https://nytimes.com/athletic/6927302/2025/12/29/russell-martin-among-final-candidates-for-columbus-crew-head-coach-role/
+
 **Mamdani Will Be Sworn In at Abandoned Subway Station Beneath City Hall**\
-`Hours before Mayor-elect Zohran Mamdani holds an inauguration block party outside City Hall, he will be officially become mayor in a small private ceremony.`\
+`Hours before Mayor-elect Zohran Mamdani holds an inauguration block party outside City Hall, he will officially become mayor in a small private ceremony.`\
 https://nytimes.com/2025/12/29/nyregion/mamdani-subway-sworn-in-mayor.html
 
 **Andy Reid dismisses retirement talk, plans to return to Chiefs next season**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6922328/2025/12/29/ivar-stenberg-nhl-draft-sweden-s
 **What We’re Bringing to Antarctica**\
 `What do a New York Times reporter and photographer pack for a two-month expedition to the fastest-melting glacier in Antarctica? Raymond Zhong and Chang W. Lee compare the must-have gear that they’re bringing for the journey.`\
 https://nytimes.com/video/climate/100000010613980/what-were-bringing-to-antarctica.html
-
-**How to watch Mavericks vs. Trail Blazers: Time, TV, streaming**\
-`Find out how to watch the Dallas Mavericks play the Portland Trail Blazers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6927230/2025/12/29/mavericks-vs-trail-blazers-stream-how-to-watch-dec-29/
-
-**How to watch Wild vs. Golden Knights: Time, TV, streaming**\
-`Find out how to watch the Minnesota Wild play the Vegas Golden Knights, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6927228/2025/12/29/wild-vs-golden-knights-stream-how-to-watch-dec-29/
 
