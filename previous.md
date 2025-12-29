@@ -1,40 +1,40 @@
-**Our Visual Journalism**\
-`We look at the best graphics from The Times in 2025.`\
-https://nytimes.com/2025/12/29/briefing/our-visual-journalism.html
+**Trinidad Chambliss is a star at Ole Miss. What other DII excelled shined in 2025?**\
+`Chambliss was one of the 130-plus players from the Division II, Division III and NAIA ranks who transferred into the FBS in 2025. `\
+https://nytimes.com/athletic/6921516/2025/12/29/college-football-transfers-division-ii-chambliss-ole-miss/
 
-**In Caleb Williams, the Bears have a QB who can always give them a chance**\
-`Williams had one of his best performances of the season in a playoff atmosphere, but the Bears fell just short in another wild game.`\
-https://nytimes.com/athletic/6924923/2025/12/29/bears-caleb-williams-49ers/
+**Adam Fox's return is near. Here's how much the Rangers missed him**\
+`The Rangers have been without their top defenseman for 13 games, and though they've kept pace in the standings, analytics show his absence.`\
+https://nytimes.com/athletic/6923706/2025/12/29/rangers-fox-injury-return-analytics/
 
-**49ers offense lit up the Bears, but defense won them the game**\
-`Brock Purdy may have scored five TDs and the offense may have piled up 496 yards. But it was San Francisco's defense that came up biggest.`\
-https://nytimes.com/athletic/6924920/2025/12/29/49ers-defense-won-game-bears/
+**In a tale of two cities, Patriots emerge as AFC East champions**\
+`From the beginning, Pats coach Mike Vrabel promised the division title. After 13 wins, he’s tossing in Jets beatdown as a bonus.`\
+https://nytimes.com/athletic/6924635/2025/12/29/patriots-jets-afc-east-champions-nfl-playoffs/
 
-**The Pulse: The most miserable NFL fans after Week 17**\
-`The Athletic has live coverage of Bears vs.`\
-https://nytimes.com/athletic/6924583/2025/12/29/nfl-week-17-fan-misery-index-the-pulse/
+**Wild insider: Could we see Zuccarello, Johansson and Bogosian extensions by season's end?**\
+`With the Wild potentially in the market to make more moves before the trade deadline, the three veterans' status is worth watching.`\
+https://nytimes.com/athletic/6923348/2025/12/29/wild-zuccarello-johansson-bogosian-contracts/
 
-**Rams at Falcons on MNF: Updated odds, playoff stakes, Stafford's MVP push**\
-`There's much to appreciate around this week's "Monday Night Football" offering. Here's what viewers should know before kickoff.`\
-https://nytimes.com/athletic/6924681/2025/12/29/rams-falcons-mnf-stafford-nacua-how-to-watch/
+**For Browns stalwarts Joel Bitonio and Wyatt Teller, Sunday's win felt a lot like goodbye**\
+`It's likely Bitonio and Teller, with 10 Pro Bowls between them, won't be back with Browns. If so, beating Steelers was a sweet home finale.`\
+https://nytimes.com/athletic/6924309/2025/12/29/browns-steelers-joel-bitonio-wyatt-teller-home-finale/
 
-**How important is winning finale for Cowboys? 5 things we're watching**\
-`The Cowboys could use this game to get closer looks at rookie RB Jaydon Blue, TE Brevyn Spann-Ford and backup QB Joe Milton.`\
-https://nytimes.com/athletic/6923721/2025/12/29/cowboys-week-18-final-game-dak-prescott/
+**Who are the 12 undefeated women's college basketball teams, and who can remain unbeaten?**\
+`Sabreena Merchant breaks down the unbeatens and their key stats. Can anyone take down UConn, Texas, LSU or TCU?`\
+https://nytimes.com/athletic/6924493/2025/12/29/womens-college-basketball-undefeated-uconn-lsu/
 
-**How will the Lions treat their final game? Multiple layers to that decision**\
-`Detroit's injury situation, draft position, 2026 schedule and finishing with a winning record all are considerations going into finale.`\
-https://nytimes.com/athletic/6923645/2025/12/29/lions-dan-campbe-decision-week-18-bears/
+**As AL East improves, pressure grows on Yankees' dormant offseason**\
+`The Yankees' offseason has been quiet. Can they afford to run it back in an increasingly competitive AL East?`\
+https://nytimes.com/athletic/6923583/2025/12/29/yankees-offseason-american-league-east/
 
-**Will Brian Flores be back as Vikings' DC in 2026? Why it's such a critical question**\
-`Flores' defense has been one of the league's best units in the second half of the season. But can the Vikings keep him around in 2026?`\
-https://nytimes.com/athletic/6923548/2025/12/29/brian-flores-vikings-defense-job-contract/
+**Meet the Texas high schooler who rushed for 1,628 yards in the state playoffs**\
+`SaRod Baker, a three-star prospect in the Class of 2027, averaged 271.3 yards in six postseason games for DeSoto (Texas) High. `\
+https://nytimes.com/athletic/6923460/2025/12/29/texas-high-school-sarod-baker-running-back/
 
-**Simon Edvinsson is finding the next level for the Red Wings**\
-`An overtime winner arguably wasn't even Simon Edvinsson's most impressive play of the night amid a strong season on Detroit's top pair.`\
-https://nytimes.com/athletic/6924598/2025/12/29/red-wings-simon-edvinsson-next-level-leafs/
+**College football bowl game weekly guide: Michigan, Texas, cereal and mayonnaise**\
+`Time to go bowling — for cheese, sugar and industrial vats of mayo. This week's action beyond the CFP is both compelling and comedic.`\
+https://nytimes.com/athletic/6924176/2025/12/29/michigan-texas-iowa-college-bowl-games-how-to-watch/
 
-**With Olympics roster deadline looming, Canada coach Jon Cooper is planning ahead**\
-`With the roster deadline on Wednesday, Cooper spoke of "a little sentiment" regarding the 4 Nations and the difficult path to a gold medal.`\
-https://nytimes.com/athletic/6923917/2025/12/29/team-canada-olympics-roster-cooper-nhl/
+**The major hurdle: Why 2026 is the year for these 3 golfers**\
+`From Jeeno Thitikul to Tommy Fleetwood, we project the stars ready to break through for their first major title in 2026.`\
+https://nytimes.com/athletic/6904870/2025/12/29/golf-majors-2026-first-time-contenders/
 
