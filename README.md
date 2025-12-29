@@ -1,40 +1,41 @@
-**Fire at home owned by NASCAR star Denny Hamlin leaves 2 hospitalized**\
-`It's not yet known whether anyone was home when the fire began.`\
-https://nytimes.com/athletic/6924458/2025/12/28/denny-hamlin-parents-giant-house-fire-nascar/
+**Good teams win when they play badly. Chelsea don't when they play well**\
+`This home defeat against Aston Villa was entirely of their own making - all-too-familiar issues need to be addressed
+`\
+https://nytimes.com/athletic/6922152/2025/12/29/chelsea-enzo-maresca-villa/
 
-**Should Giants draft a new QB? Jaxson Dart quiets chatter about future with win vs. Raiders**\
-`“I know I'm gonna be here for a very long time, and I'm just excited to start winning more games and turn this place around."`\
-https://nytimes.com/athletic/6924434/2025/12/28/giants-jaxson-dart-nfl-draft-fernando-mendoza/
+**Squad depth, aggression and tournament tactics - how Emery has made Villa a brilliant second-half team**\
+`The Spanish manager's football acumen came to the fore again away to Chelsea - he is succeeding in an unconventional style`\
+https://nytimes.com/athletic/6922163/2025/12/29/unai-emery-aston-villa-second-half-team/
 
-**Trump Says the U.S. Struck a ‘Big Facility’ in Campaign Against Venezuela**\
-`The administration provided no details of what the president said was an attack last week linked to U.S. efforts to disrupt drug trafficking from Latin America.`\
-https://nytimes.com/2025/12/28/us/politics/trump-drug-facility-venezuela.html
+**Women's football year in review: The best (and worst) of European football in 2025**\
+`The best games, biggest surprises, and key storylines from European women's football this year.`\
+https://nytimes.com/athletic/6921245/2025/12/29/womens-football-european-year-in-review/
 
-**Brazeau hat trick leads Penguins' demolition of Chicago: Observations**\
-`The Penguins put together a badly needed emphatic win with a 7-3 laugher over the Bedard-less Blackhawks.`\
-https://nytimes.com/athletic/6924407/2025/12/28/penguins-brazeau-hat-trick-blackhawks/
+**Kawhi Leonard's 55 points tie Clippers record, pave way for fourth straight win**\
+`The Clippers have now won four in a row, all by double digits. Leonard has gone on a run during this stretch.`\
+https://nytimes.com/athletic/6924642/2025/12/29/kawhi-leonard-first-50-point-game-clippers/
 
-**Don't tell Philip Rivers a game is 'meaningless.' Colts lost, but it meant something to him**\
-`To say there's "nothing to play for" is an insult to Rivers. "To say a game is meaningless is not in my DNA. (All) we do matters."`\
-https://nytimes.com/athletic/6923956/2025/12/28/colts-philip-rivers-retirement-jaguars-playoffs/
+**Defensive disarray, a faltering attack and Semenyo uncertainty. Iraola has issues to address**\
+`Bournemouth have plummeted down the Premier League table. They were once tactical darlings, so what is going so wrong?`\
+https://nytimes.com/athletic/6922719/2025/12/29/bournemouth-andoni-iraola-antoine-semenyo-problems/
 
-**Blue Jackets return the favor, score 3 late goals to defeat Islanders**\
-`In a mirror result of a November loss, the Blue Jackets pulled off their first back-to-back regulation wins in almost two months.`\
-https://nytimes.com/athletic/6924356/2025/12/28/blue-jackets-marchment-schaefer-islanders/
+**NFL playoff picture: Ravens-Steelers, Bucs-Panthers elimination showdowns set for Week 18**\
+`While all but two postseason berths remain unclaimed, the battles for the top seed in each conference will also be waged in Week 18. `\
+https://nytimes.com/athletic/6920350/2025/12/29/nfl-playoff-picture-week-17-ravens-steelers-buccaneers-panthers/
 
-**Train Derailment Kills 13 in Mexico**\
-`The train was carrying around 250 passengers and crew members on a cross-country route linking the Pacific and the Gulf of Mexico. Nearly 100 people were injured.`\
-https://nytimes.com/2025/12/28/world/americas/mexico-train-crash.html
+**The World Wants More Ube. Philippine Farmers Are Struggling to Keep Up.**\
+`Soaring demand and extreme weather worsened by climate change have wiped out harvests of the popular purple yam.`\
+https://nytimes.com/2025/12/29/world/asia/philippines-ube-purple-yam.html
 
-**Sixers searching for answers amid 3-game skid as third-quarter woes mount on road trip**\
-`The Sixers haven't won four consecutive games since the beginning of the season, but they also hadn't lost three straight until now.`\
-https://nytimes.com/athletic/6924112/2025/12/28/sixers-losing-streak-third-quarter-tyrese-maxey/
+**No Corrections: Dec. 29, 2025**\
+`No corrections appeared in print on Monday, Dec. 29, 2025.`\
+https://nytimes.com/2025/12/29/pageoneplus/no-corrections-dec-29-2025.html
 
-**We Asked for Environmental Fixes in Your State. You Sent In Thousands.**\
-`Readers submitted more than 3,200 ideas for our 50 States, 50 Fixes series. Before the year ends, we wanted to share just a few more of them.`\
-https://nytimes.com/interactive/2025/12/28/climate/us-eco-friendly-projects-readers.html
+**Quote of the Day: Brigitte Bardot, 91, French Actress Who Renounced Stardom, Dies**\
+`Quotation of the Day for Monday, December 29, 2025.`\
+https://nytimes.com/2025/12/29/pageoneplus/quote-of-the-day-brigitte-bardot-91-french-actress-who-renounced-stardom-dies.html
 
-**Pelicans' Jose Alvarado, Suns' Mark Williams suspended for throwing punches**\
-`The players were involved in an altercation during the teams' game on Saturday night.`\
-https://nytimes.com/athletic/6924447/2025/12/28/jose-alvarado-mark-williams-suspended-pelicans-suns/
+**With Critical Decisions Ahead, Netanyahu Faces Mounting Pressure**\
+`Prime Minister Benjamin Netanyahu of Israel has a series of vexing choices to make in the year ahead on issues including Gaza, conscription and a judicial overhaul, with elections looming.`\
+https://nytimes.com/2025/12/29/world/middleeast/israel-benjamin-netanyahu-decisions.html
 
