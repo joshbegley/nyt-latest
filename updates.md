@@ -1,3 +1,15 @@
+**An oral history of Bengal Cody Ford's hitch: 'I think we are actually going to call this'**\
+`The guard's 21-yard catch-and-run was a birthday memory he won't soon forget.`\
+https://nytimes.com/athletic/6924281/2025/12/28/cody-ford-reception-bengals-cardinals/
+
+**How to watch Wake Forest vs. Mississippi State: Duke's Mayo Bowl Start Time, TV, streaming**\
+`Find out how to watch the Wake Forest Demon Deacons play the Mississippi State Bulldogs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6924384/2025/12/28/wake-forest-vs-mississippi-state-stream-how-to-watch-jan-2/
+
+**There’s no way Jets owner Woody Johnson is OK with this**\
+`After a historically poor performance in December, is the owner's confidence shaken?`\
+https://nytimes.com/athletic/6924133/2025/12/28/new-york-jets-owner-woody-johnson-aaron-glenn-patriots-loss/
+
 **Despite no sacks, Myles Garrett wreaked havoc in Browns' upset win over Steelers**\
 `Cleveland's defense carried the day vs. Pittsburgh, closing a strong run of home performances with a masterpiece.`\
 https://nytimes.com/athletic/6924159/2025/12/28/browns-win-steelers-myles-garrett-sacks-record/

@@ -1,3 +1,11 @@
+**An oral history of Bengal Cody Ford's hitch: 'I think we are actually going to call this'**\
+`The guard's 21-yard catch-and-run was a birthday memory he won't soon forget.`\
+https://nytimes.com/athletic/6924281/2025/12/28/cody-ford-reception-bengals-cardinals/
+
+**How to watch Wake Forest vs. Mississippi State: Duke's Mayo Bowl Start Time, TV, streaming**\
+`Find out how to watch the Wake Forest Demon Deacons play the Mississippi State Bulldogs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6924384/2025/12/28/wake-forest-vs-mississippi-state-stream-how-to-watch-jan-2/
+
 **Despite no sacks, Myles Garrett wreaked havoc in Browns' upset win over Steelers**\
 `Cleveland's defense carried the day vs. Pittsburgh, closing a strong run of home performances with a masterpiece.`\
 https://nytimes.com/athletic/6924159/2025/12/28/browns-win-steelers-myles-garrett-sacks-record/
@@ -26,15 +34,7 @@ https://nytimes.com/athletic/6924068/2025/12/28/seahawks-panthers-defense-nfc-1-
 `Jrue Holiday has no hard feelings toward the Boston Celtics after they traded him over the offseason.`\
 https://nytimes.com/athletic/6923871/2025/12/28/jrue-holiday-discusses-trade-celtics-trail-blazers/
 
-**There’s no way Woody Johnson is OK with this**\
+**There’s no way Jets owner Woody Johnson is OK with this**\
 `After a historically poor performance in December, is the owner's confidence shaken?`\
 https://nytimes.com/athletic/6924133/2025/12/28/new-york-jets-owner-woody-johnson-aaron-glenn-patriots-loss/
-
-**Giants-Raiders takeaways: Las Vegas now favorite to land No. 1 pick after loss**\
-`The Raiders can clinch the No. 1 pick with a loss to Kansas City next week.`\
-https://nytimes.com/athletic/6923700/2025/12/28/giants-raiders-score-nfl-draft-no-1-pick/
-
-**Drake Maye's magical season rolls on as Patriots blast Jets. Could he be the MVP?**\
-`“They don’t give me a vote,” coach Mike Vrabel said of Maye’s MVP case. “But there’s nobody else that I want as our quarterback."`\
-https://nytimes.com/athletic/6924025/2025/12/28/drake-maye-patriots-jets-nfl-mvp-race/
 
