@@ -1,3 +1,7 @@
+**NBA Power Rankings: From trophies to trees, let's fill up our 2025 time capsule**\
+`By now, we can tell who's good and who isn't. The year is ending, but the season is just beginning.`\
+https://nytimes.com/athletic/6925519/2025/12/29/nba-power-rankings-thunder-spurs-knicks-suns/
+
 **The Windup: Your top 10 MLB stories of 2025**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6925952/2025/12/29/top-10-mlb-stories-2025-the-windup/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6925247/2025/12/29/usmnt-pulisic-aaronson-richards-
 **Trump and Zelensky Meet to Finalize Peace Plan**\
 `President Trump said a peace deal was “maybe very close” after meeting with President Volodymyr Zelensky of Ukraine. A joint U.S.-Ukraine proposal appeared to remain a work in progress as Russia rejected several ideas.`\
 https://nytimes.com/video/world/100000010612791/trump-zelensky-peace-ukraine-putin.html
-
-**No Corrections: Dec. 26, 2025**\
-`No corrections appeared in print on Friday, Dec. 26, 2025.`\
-https://nytimes.com/2025/12/29/pageoneplus/no-corrections-dec-26-2025.html
 

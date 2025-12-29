@@ -1,3 +1,7 @@
+**NBA Power Rankings: From trophies to trees, let's fill up our 2025 time capsule**\
+`By now, we can tell who's good and who isn't. The year is ending, but the season is just beginning.`\
+https://nytimes.com/athletic/6925519/2025/12/29/nba-power-rankings-thunder-spurs-knicks-suns/
+
 **The Windup: Your top 10 MLB stories of 2025**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6925952/2025/12/29/top-10-mlb-stories-2025-the-windup/
