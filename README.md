@@ -1,3 +1,15 @@
+**How to watch Blue Jackets vs. Senators: Time, TV, streaming**\
+`Find out how to watch the Columbus Blue Jackets play the Ottawa Senators, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6926300/2025/12/29/blue-jackets-vs-senators-stream-how-to-watch-dec-29/
+
+**How to watch Rangers vs. Hurricanes: Time, TV, streaming**\
+`Find out how to watch the New York Rangers play the Carolina Hurricanes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6926297/2025/12/29/rangers-vs-hurricanes-stream-how-to-watch-dec-29/
+
+**Hurzeler says inconsistency, lapses in concentration behind Brighton's form**\
+`Brighton are winless in five and have dropped to 13th in the Premier League.`\
+https://nytimes.com/athletic/6926233/2025/12/29/fabian-hurzeler-brighton-form/
+
 **NFL Week 18 odds, spreads: Both No. 1 seeds up for grabs**\
 `The Broncos, Patriots and Jaguars could all clinch the AFC's top seed. The NFC's is down to Seahawks vs. 49ers on Saturday.`\
 https://nytimes.com/athletic/6925883/2025/12/29/nfl-week-18-odds-spreads-afc-nfc-top-seeds/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6926236/2025/12/29/cornell-vs-michigan-state-stream
 **How to watch LIU vs. Georgia men's basketball: Time, TV, streaming**\
 `Find out how to watch the Long Island Sharks play the Georgia Bulldogs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6926228/2025/12/29/liu-vs-georgia-stream-how-to-watch-dec-29/
-
-**How to watch New Haven vs. Vanderbilt men's basketball: Time, TV, streaming**\
-`Find out how to watch the New Haven Chargers play the Vanderbilt Commodores, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6926224/2025/12/29/new-haven-vs-vanderbilt-stream-how-to-watch-dec-29/
-
-**How to watch Pittsburgh vs. Notre Dame women's basketball: Time, TV, streaming**\
-`Find out how to watch the Pittsburgh Panthers play the Notre Dame Fighting Irish, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6926216/2025/12/29/pittsburgh-vs-notre-dame-stream-how-to-watch-dec-29/
-
-**Surge of Economic Pain Pushes Iranians to the Streets**\
-`High inflation and a currency collapse have squeezed Iranians’ budgets, challenging the country’s leaders.`\
-https://nytimes.com/2025/12/29/world/middleeast/iran-currency-collapse-rial-inflation-protests.html
 
