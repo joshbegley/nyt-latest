@@ -1,3 +1,7 @@
+**Two stars in their own galaxy, unlikely runs and surreal moments: Men's tennis in 2025**\
+`The best matches, biggest surprises, and most important storylines of 2025 on the ATP Tour.`\
+https://nytimes.com/athletic/6875246/2025/12/29/mens-tennis-season-review-best-atp-matches-players-2025/
+
 **Parts of New York and New England Brace for Ice Storm**\
 `Several states were under weather warnings or advisories early Monday. The same winter storm battered the Midwest over the weekend.`\
 https://nytimes.com/2025/12/29/us/new-york-new-england-ice-storm.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/29/opinion/best-sentences-journalism-writing.html
 **5 Operas You Can Watch at Home Now**\
 `Recent stagings of classics like “La Traviata” and rarities like “Intermezzo” are among the highlights.`\
 https://nytimes.com/2025/12/29/arts/music/operas-to-watch-at-home.html
-
-**‘I Was Just So Naïve’: Inside Marjorie Taylor Greene’s Break With Trump**\
-`How the Georgia congresswoman went from the president’s loudest cheerleader to his loudest Republican critic.`\
-https://nytimes.com/2025/12/29/magazine/marjorie-taylor-greene-trump-maga-split.html
 
