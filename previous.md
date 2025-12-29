@@ -1,3 +1,11 @@
+**Don't tell Philip Rivers a game is 'meaningless.' Colts lost, but it meant something to him**\
+`To say there's "nothing to play for" is an insult to Philip Rivers. "To say a game is meaningless is not in my DNA. (All) we do matters."`\
+https://nytimes.com/athletic/6923956/2025/12/28/colts-philip-rivers-retirement-jaguars-playoffs/
+
+**Blue Jackets return the favor, score 3 late goals to defeat Islanders**\
+`In a mirror result of a November loss, the Blue Jackets pulled off their first back-to-back regulation wins in almost two months.`\
+https://nytimes.com/athletic/6924356/2025/12/28/blue-jackets-marchment-schaefer-islanders/
+
 **Train Derailment Kills 13 in Mexico**\
 `The train was carrying around 250 passengers and crew members on a cross-country route linking the Pacific and the Gulf of Mexico. Nearly 100 people were injured.`\
 https://nytimes.com/2025/12/28/world/americas/mexico-train-crash.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6924201/2025/12/28/pittsburgh-steelers-loss-browns-
 **Zach Eflin, Orioles reuniting on one-year deal: Source**\
 `Eflin was dogged by back problems for much of 2025, when he posted a 5.93 ERA in just 14 starts.`\
 https://nytimes.com/athletic/6792492/2025/12/28/mlb-zach-eflin-free-agency-signing-orioles/
-
-**An oral history of Bengal Cody Ford's hitch: 'I think we are actually going to call this'**\
-`The offensive lineman's 21-yard catch-and-run was a birthday memory he won't soon forget.`\
-https://nytimes.com/athletic/6924281/2025/12/28/cody-ford-reception-bengals-cardinals/
-
-**How to watch Wake Forest vs. Mississippi State: Duke's Mayo Bowl Start Time, TV, streaming**\
-`Find out how to watch the Wake Forest Demon Deacons play the Mississippi State Bulldogs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6924384/2025/12/28/wake-forest-vs-mississippi-state-stream-how-to-watch-jan-2/
 

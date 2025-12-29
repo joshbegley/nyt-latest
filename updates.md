@@ -1,3 +1,11 @@
+**Don't tell Philip Rivers a game is 'meaningless.' Colts lost, but it meant something to him**\
+`To say there's "nothing to play for" is an insult to Philip Rivers. "To say a game is meaningless is not in my DNA. (All) we do matters."`\
+https://nytimes.com/athletic/6923956/2025/12/28/colts-philip-rivers-retirement-jaguars-playoffs/
+
+**Blue Jackets return the favor, score 3 late goals to defeat Islanders**\
+`In a mirror result of a November loss, the Blue Jackets pulled off their first back-to-back regulation wins in almost two months.`\
+https://nytimes.com/athletic/6924356/2025/12/28/blue-jackets-marchment-schaefer-islanders/
+
 **Train Derailment Kills 13 in Mexico**\
 `The train was carrying around 250 passengers and crew members on a cross-country route linking the Pacific and the Gulf of Mexico. Nearly 100 people were injured.`\
 https://nytimes.com/2025/12/28/world/americas/mexico-train-crash.html
