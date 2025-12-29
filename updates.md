@@ -1,3 +1,11 @@
+**Panthers brace fo Bucs and opportunity to end 7-year playoff drought**\
+`Dave Canales could get a key lineman back and he'll also spend time this week trying to get Bryce Young back on track.`\
+https://nytimes.com/athletic/6926902/2025/12/29/panthers-bucs-nfc-south-playoffs-bryce-young/
+
+**Blue Jackets vs. Senators start time delayed due to Columbus' travel issues**\
+`The Blue Jackets were unable to leave for Ottawa until Monday afternoon, hours before the same night's game.`\
+https://nytimes.com/athletic/6927091/2025/12/29/blue-jackets-senators-game-time-airplane/
+
 **Broncos' muted celebration of AFC West title indicative of bigger goals ahead**\
 `Sean Payton didn't mark team's division title outside of distributing "ugly" shirts and hats. The No. 1 seed would bring bigger celebration.`\
 https://nytimes.com/athletic/6926935/2025/12/29/broncos-afc-west-champions-playoff-seed/

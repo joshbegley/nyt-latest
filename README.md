@@ -1,4 +1,8 @@
-**Panthers brace fo Bucs and opportunity to end 7-year playoff drought**\
+**Penguins acquiring Yegor Chinakhov in trade from Blue Jackets: Sources**\
+`Chinakhov, who requested a trade in the offseason, has six points in 29 games this season for Columbus.`\
+https://nytimes.com/athletic/6927105/2025/12/29/yegor-chinakhov-trade-penguins-blue-jackets-nhl/
+
+**Panthers brace for Bucs and opportunity to end 7-year playoff drought**\
 `Dave Canales could get a key lineman back and he'll also spend time this week trying to get Bryce Young back on track.`\
 https://nytimes.com/athletic/6926902/2025/12/29/panthers-bucs-nfc-south-playoffs-bryce-young/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/29/climate/antarctica-time-zone.html
 **How prediction markets mirrored the chaos of the college football coaching carousel**\
 `Prediction markets reflected the drama, and rumor-mongering, of the college football coaching carousel.`\
 https://nytimes.com/athletic/6880068/2025/12/29/prediction-markets-college-coaching-carousel-michigan-penn-state-lane-kiffin/
-
-**Russia Threatens to Toughen Its Stance on Ending the War in Ukraine**\
-`Moscow said a Ukrainian drone attack targeted a residence of President Vladimir V. Putin, which Ukraine denied, accusing the Kremlin of fabricating an excuse not to make peace.`\
-https://nytimes.com/2025/12/29/world/europe/russia-claims-ukraine-attack-putin.html
 
