@@ -1,3 +1,7 @@
+**Pelicans' Jose Alvarado, Suns' Mark Williams suspended for throwing punches**\
+`The players were involved in an altercation during the teams' game on Saturday night.`\
+https://nytimes.com/athletic/6924447/2025/12/28/jose-alvarado-mark-williams-suspended-pelicans-suns/
+
 **Lopsided loss to Penguins further proof process, not results, matters right now**\
 `Coach Jeff Blashill and captain Nick Foligno are taking the long-term view, with young players getting more opportunities every game.`\
 https://nytimes.com/athletic/6924371/2025/12/28/blackhawks-process-lardis-foligno-penguins/
