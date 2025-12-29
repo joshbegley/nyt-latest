@@ -1,3 +1,7 @@
+**Trump and Zelensky Meet to Finalize Peace Plan**\
+`President Trump said a peace deal was “maybe very close” after meeting with President Volodymyr Zelensky of Ukraine. A joint U.S.-Ukraine proposal appeared to remain a work in progress as Russia rejected several ideas.`\
+https://nytimes.com/video/world/100000010612791/trump-zelensky-peace-ukraine-putin.html
+
 **No Corrections: Dec. 26, 2025**\
 `No corrections appeared in print on Friday, Dec. 26, 2025.`\
 https://nytimes.com/2025/12/29/pageoneplus/no-corrections-dec-26-2025.html
@@ -9,6 +13,10 @@ https://nytimes.com/athletic/6920130/2025/12/29/spurs-thunder-giannis-nba-rewind
 **Arteta says Arsenal must be ‘actively looking’ at signings in January**\
 `Arsenal spent nearly £250million ($337m) on eight new players in the summer.`\
 https://nytimes.com/athletic/6925424/2025/12/29/mikel-arteta-arsenal-january-transfers/
+
+**Instant grades for college football's 2025-26 head-coaching hires**\
+`In college football, you never really know whether a coaching hire is going to work. But it's never too early to talk about fit.`\
+https://nytimes.com/athletic/6827060/2025/12/29/college-football-coaching-carousel-grades/
 
 **Train Derailment in Mexico Leaves Several Dead**\
 `More than a dozen people were killed when a passenger train derailed on Sunday in the Mexican state of Oaxaca, according to the authorities. An investigation into the cause has been opened.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6925398/2025/12/29/usc-vs-nebraska-stream-how-to-wa
 **How to watch Southern vs. Illinois men's basketball: Time, TV, streaming**\
 `Find out how to watch the Southern Jaguars play the Illinois Fighting Illini, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6925391/2025/12/29/southern-vs-illinois-stream-how-to-watch-dec-29/
-
-**Serie A briefing: Prime Pulisic, Hojlund's hot streak and Hannibal's crossing of the Alps**\
-`There were victories for Milan, Inter and Napoli as United States international Christian Pulisic continued his impressive form in Italy`\
-https://nytimes.com/athletic/6925182/2025/12/29/serie-a-pulisic-hojlund-milan-napoli-inter/
-
-**Trump Administration Live Updates: President Says U.S. Hit ‘Big Facility’ in Venezuela Last Week**\
-``\
-https://nytimes.com/live/2025/12/29/us/trump-news
 
