@@ -1,3 +1,11 @@
+**Idris Elba and Cynthia Erivo Make King Charles’s New Year Honors List**\
+`Mr. Elba received a knighthood and Ms. Erivo was also honored in an annual British tradition celebrating professional excellence and community service.`\
+https://nytimes.com/2025/12/29/world/europe/idris-elba-cynthia-erivo-king-charles-honors.html
+
+**Former Tottenham Hotspur chairman Daniel Levy awarded CBE in New Year Honours list**\
+`Levy has been given the honour for 'services to charity and the community in Tottenham'`\
+https://nytimes.com/athletic/6927006/2025/12/29/daniel-levy-cbe-tottenham/
+
 **Chargers to rest Justin Herbert vs. Broncos, as Denver eyes No. 1 seed**\
 `The Broncos would clinch the top seed in the AFC and a first-round bye with a win. A loss would open the door for the Patriots and Jaguars.`\
 https://nytimes.com/athletic/6927430/2025/12/29/chargers-rest-justin-herbert-broncos-top-seed-afc/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/29/business/louis-v-gerstner-dead.html
 **Au Revoir, Brigitte Bardot**\
 `In Brigitte Bardot’s death I see the passing of a generation: the Frenchwomen who tried to find a path to autonomy in the 1950s and ’60s.`\
 https://nytimes.com/2025/12/29/opinion/brigitte-bardot-france.html
-
-**Israel Strips U.N. Agency for Palestinian Refugees of Diplomatic Immunity**\
-`The legislation was the latest blow to the agency, known as UNRWA. Israel has accused it of being extensively infiltrated by Hamas.`\
-https://nytimes.com/2025/12/29/world/middleeast/israel-unrwa-diplomatic-immunity.html
-
-**Martin among final candidates for Columbus Crew head coach role**\
-`Martin was sacked by Rangers in October after just four months in charge.`\
-https://nytimes.com/athletic/6927302/2025/12/29/russell-martin-columbus-crew-head-coach/
 
