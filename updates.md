@@ -1,3 +1,7 @@
+**USC's Riley: If Notre Dame 'lived up to their word' rivals would play in 2026**\
+`Lincoln Riley’s words on Monday are USC’s strongest about the Trojans' longtime rival and the pause in the series.`\
+https://nytimes.com/athletic/6926886/2025/12/29/usc-notre-dame-rivalry-lincoln-riley/
+
 **Araujo returns to Barcelona training after leave of absence**\
 `Araujo has not played for Barcelona since the 3-0 Champions League loss at Chelsea on November 25, in which he was sent off 44 minutes in.`\
 https://nytimes.com/athletic/6926546/2025/12/29/ronald-araujo-barcelona-return-absence/
