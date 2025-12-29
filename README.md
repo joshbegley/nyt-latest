@@ -1,3 +1,7 @@
+**Fantasy basketball hot topics of the week: Injury fallout, two top-25 sells and more**\
+`Stan Son spins the top recent NBA storylines, including a recommendation to deal away two players currently returning top-25 value.`\
+https://nytimes.com/athletic/6926509/2025/12/29/fantasy-basketball-hot-topics-waiver-targets-injuries/
+
 **Penn State hiring USC defensive coordinator D’Anton Lynn for same role: Source**\
 `James Franklin pursued Lynn for the Penn State DC vacancy last offseason, but he stayed at USC. Now, Lynn is heading to Happy Valley.`\
 https://nytimes.com/athletic/6899760/2025/12/29/danton-lynn-penn-state-usc-defensive-coordinator/
@@ -25,8 +29,4 @@ https://nytimes.com/2025/12/29/arts/melanie-watson-dead-different-strokes.html
 **NFL overreactions: Seattle is the pick in battle for NFC's No. 1 seed**\
 `Toby Mergler has a few wagers in mind for NFL Week 18.`\
 https://nytimes.com/athletic/6926137/2025/12/29/nfl-overreactions-betting-week-18-seattle-nfc/
-
-**Nottingham Forest file PGMOL complaint over decisions vs. Man City**\
-`The club have put their concerns in writing regarding two key moments during the defeat.`\
-https://nytimes.com/athletic/6926463/2025/12/29/nottingham-forest-manchester-city-pgmol-refereeing/
 
