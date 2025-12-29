@@ -1,3 +1,7 @@
+**For Zelensky, Just Keeping Trump Talking Counts as a Win**\
+`Though discussions produced little tangible progress, President Volodymyr Zelensky of Ukraine at least avoided the type of setbacks that have blighted earlier meetings.`\
+https://nytimes.com/2025/12/29/world/europe/zelensky-trump-ukraine-peace-talks.html
+
 **The Buccaneers are skidding toward the finish line. Is the end near?**\
 `The Bucs' 6-2 start is long gone, and an interesting offseason is approaching in Tampa, perhaps faster than the team envisioned.`\
 https://nytimes.com/athletic/6924999/2025/12/29/bucs-dolphins-playoffs-baker-mayfield/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6924707/2025/12/29/bills-eagles-loss-playoffs-josh-
 **Whoever plays QB for the Packers under Matt LaFleur shines. Does it matter?**\
 `The Packers keep finding new ways to lose games despite great quarterback play, including their third loss this season without a punt.`\
 https://nytimes.com/athletic/6925031/2025/12/29/malik-willis-packers-matt-lafleur-ravens/
-
-**The New York Times International Edition in Print for Tuesday, Dec. 30, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/12/29/todays-new-york-times-international-edition
 
