@@ -1,3 +1,7 @@
+**Fire at home owned by NASCAR star Denny Hamlin leaves 2 hospitalized**\
+`It's not yet known whether anyone was home when the fire began.`\
+https://nytimes.com/athletic/6924458/2025/12/28/denny-hamlin-parents-giant-house-fire-nascar/
+
 **Should Giants draft a new QB? Jaxson Dart quiets chatter about future with win vs. Raiders**\
 `“I know I'm gonna be here for a very long time, and I'm just excited to start winning more games and turn this place around."`\
 https://nytimes.com/athletic/6924434/2025/12/28/giants-jaxson-dart-nfl-draft-fernando-mendoza/

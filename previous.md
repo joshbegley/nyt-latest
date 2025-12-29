@@ -1,3 +1,7 @@
+**Fire at home owned by NASCAR star Denny Hamlin leaves 2 hospitalized**\
+`It's not yet known whether anyone was home when the fire began.`\
+https://nytimes.com/athletic/6924458/2025/12/28/denny-hamlin-parents-giant-house-fire-nascar/
+
 **Should Giants draft a new QB? Jaxson Dart quiets chatter about future with win vs. Raiders**\
 `“I know I'm gonna be here for a very long time, and I'm just excited to start winning more games and turn this place around."`\
 https://nytimes.com/athletic/6924434/2025/12/28/giants-jaxson-dart-nfl-draft-fernando-mendoza/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/12/28/climate/us-eco-friendly-projects-read
 **Pelicans' Jose Alvarado, Suns' Mark Williams suspended for throwing punches**\
 `The players were involved in an altercation during the teams' game on Saturday night.`\
 https://nytimes.com/athletic/6924447/2025/12/28/jose-alvarado-mark-williams-suspended-pelicans-suns/
-
-**Updated 2026 NFL Draft order: Raiders hold No. 1 pick, Chiefs in top 10**\
-`What is the current order for Round 1 of the '26 draft?`\
-https://nytimes.com/athletic/6924232/2025/12/28/nfl-draft-order-2026-round-1-raiders/
 
