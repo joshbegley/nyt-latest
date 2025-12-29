@@ -1,3 +1,7 @@
+**Marcus Freeman to remain with Notre Dame in 2026 on new contract**\
+`Freeman is 43-12 in four seasons in South Bend, including a 24-4 record the last two years.`\
+https://nytimes.com/athletic/6926588/2025/12/29/notre-dame-marcus-freeman-contract-nfl/
+
 **Grim Evidence of Trump’s Airstrikes Washes Ashore on a Colombian Peninsula**\
 `First came the scorched boat. Then the mangled bodies. Then the packets with traces of marijuana. Now, fishermen fear the ocean that feeds them.`\
 https://nytimes.com/2025/12/29/world/americas/trump-boat-strikes-gulf-of-venezuela-wreckage.html
