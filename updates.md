@@ -1,3 +1,7 @@
+**11 Voters on Trump’s First Year**\
+`There is avid support, deep anger and for one person, regret over his choice last year.`\
+https://nytimes.com/2025/12/29/us/politics/trump-first-year-voter-voices.html
+
 **NBA Power Rankings: From trophies to trees, let's fill up our 2025 time capsule**\
 `By now, we can tell who's good and who isn't. The year is ending, but the season is just beginning.`\
 https://nytimes.com/athletic/6925519/2025/12/29/nba-power-rankings-thunder-spurs-knicks-suns/
