@@ -1,0 +1,40 @@
+**Nottingham Forest file PGMOL complaint over decisions vs. Man City**\
+`The club have put their concerns in writing regarding two key moments during the defeat.`\
+https://nytimes.com/athletic/6926463/2025/12/29/nottingham-forest-manchester-city-pgmol-refereeing/
+
+**Infantino says without World Cup ticket revenue 'there'd be no football in 150 countries'**\
+`FIFA has faced criticism after ticket prices for the 2026 tournament were revealed, which are the most expensive in World Cup history.`\
+https://nytimes.com/athletic/6926327/2025/12/29/gianni-infantino-world-cup-tickets-revenue/
+
+**The Sabres' hot streak has Buffalo buzzing. But can they sustain it?**\
+`The Sabres' stats paint the picture of a team that should be in the wild-card race, and that’s where they are.`\
+https://nytimes.com/athletic/6926225/2025/12/29/buffalo-sabres-stats-standings-streak-2025/
+
+**Blues' Pius Suter suffered right ankle injury, will be re-evaluated in 4 weeks**\
+`Pius Suter was injured in Saturday's game against the Predators.`\
+https://nytimes.com/athletic/6926195/2025/12/29/blues-pius-suter-ankle-injury/
+
+**Police Raid on Suspected ISIS Safe House in Turkey Turns Deadly**\
+`Three police officers and six militants were killed in clashes during a police raid on a suspected Islamic State safe house in Turkey on Monday, the authorities said.`\
+https://nytimes.com/video/world/europe/100000010613319/turkey-isis-police-raid.html
+
+**Do You Know These Romantic Adventures of Page and Screen?**\
+`Need something to read (or watch) this New Year’s week? This quiz brings the love.`\
+https://nytimes.com/interactive/2025/12/29/books/review/romantic-adventures-quiz.html
+
+**How to watch Capitals vs. Panthers: Time, TV, streaming**\
+`Find out how to watch the Washington Capitals play the Florida Panthers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6926310/2025/12/29/capitals-vs-panthers-stream-how-to-watch-dec-29/
+
+**How to watch Bucks vs. Hornets: Time, TV, streaming**\
+`Find out how to watch the Milwaukee Bucks play the Charlotte Hornets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6926307/2025/12/29/bucks-vs-hornets-stream-how-to-watch-dec-29/
+
+**How to watch Suns vs. Wizards: Time, TV, streaming**\
+`Find out how to watch the Phoenix Suns play the Washington Wizards, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6926303/2025/12/29/suns-vs-wizards-stream-how-to-watch-dec-29/
+
+**How to watch Blue Jackets vs. Senators: Time, TV, streaming**\
+`Find out how to watch the Columbus Blue Jackets play the Ottawa Senators, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6926300/2025/12/29/blue-jackets-vs-senators-stream-how-to-watch-dec-29/
+
