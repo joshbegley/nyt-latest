@@ -1,3 +1,11 @@
+**As Mamdani Leaves Queens for the Upper East Side, a Cool Welcome Awaits**\
+`Mayor-elect Zohran Mamdani loves his Astoria, Queens, neighborhood, and the feeling is mutual. But voters who live near Gracie Mansion, his new home, really wanted his opponent to win.`\
+https://nytimes.com/2025/12/29/nyregion/mamdani-gracie-neighborhood-astoria.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/12/29/crosswords/spelling-bee-forum.html
+
 **New Year’s Eve Specials, Plus 4 Things to Watch on TV This Week**\
 `CNN, CBS and ABC ring in 2026, and a new reality show set in Palm Beach begins.`\
 https://nytimes.com/2025/12/29/arts/television/new-years-eve-specials-plus-4-things-to-watch-on-tv-this-week.html
