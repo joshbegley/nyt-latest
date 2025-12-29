@@ -1,3 +1,7 @@
+**Updated 2026 NFL Draft order: Raiders hold No. 1 pick, Chiefs in top 10**\
+`What is the current order for Round 1 of the '26 draft?`\
+https://nytimes.com/athletic/6924232/2025/12/28/nfl-draft-order-2026-round-1-raiders/
+
 **Why Scottie Barnes' talent makes his flaws worth the trouble for Raptors**\
 `With a 23-point, 25-rebound, 10-assist afternoon, the Toronto star reminded everyone how he can dominate a game.`\
 https://nytimes.com/athletic/6924284/2025/12/28/scottie-barnes-triple-double-raptors-warriors/

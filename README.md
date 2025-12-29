@@ -15,7 +15,7 @@ https://nytimes.com/athletic/6924201/2025/12/28/pittsburgh-steelers-loss-browns-
 https://nytimes.com/athletic/6792492/2025/12/28/mlb-zach-eflin-free-agency-signing-orioles/
 
 **An oral history of Bengal Cody Ford's hitch: 'I think we are actually going to call this'**\
-`The guard's 21-yard catch-and-run was a birthday memory he won't soon forget.`\
+`The offensive lineman's 21-yard catch-and-run was a birthday memory he won't soon forget.`\
 https://nytimes.com/athletic/6924281/2025/12/28/cody-ford-reception-bengals-cardinals/
 
 **How to watch Wake Forest vs. Mississippi State: Duke's Mayo Bowl Start Time, TV, streaming**\
