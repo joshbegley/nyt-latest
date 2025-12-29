@@ -1,3 +1,7 @@
+**Panthers-Bucs for the NFC South title in Week 18: 'You wouldn't have it any other way'**\
+`Despite the loss Sunday, the Panthers travel to Tampa to play the Bucs in Week 18 with the opportunity to claim the division with a victory.`\
+https://nytimes.com/athletic/6924131/2025/12/28/panthers-nfc-south-playoffs-bucs-week-18/
+
 **Seahawks' defense carries the offense once again, putting NFC's top seed in reach**\
 `Led by DeMarcus Lawrence, Seattle's defense swamped the Panthers, moving within one win of a first-round playoff bye.`\
 https://nytimes.com/athletic/6924068/2025/12/28/seahawks-panthers-defense-nfc-1-seed/
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/6924065/2025/12/28/geno-smith-raiders-giants-injury
 <p>Leave your questions here. Please include your city.</p>
 `\
 https://nytimes.com/athletic/6924081/2025/12/28/submit-a-question-for-stewart-mandels-college-football-mailbag-329/
-
-**Trump and Zelensky Meet to Iron Out Peace Plan, but Deal Remains Elusive**\
-`The U.S. president said after a meeting at Mar-a-Lago that a deal was “maybe very close.” But a joint U.S.-Ukraine proposal appeared unfinished, as Russia rejected several ideas.`\
-https://nytimes.com/2025/12/28/us/politics/trump-zelensky-peace-ukraine-putin.html
 
