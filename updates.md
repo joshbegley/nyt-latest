@@ -1,3 +1,7 @@
+**An oral history of Bengal Cody Ford's hitch: 'I think we are actually going to call this'**\
+`The offensive lineman's 21-yard catch-and-run was a birthday memory he won't soon forget.`\
+https://nytimes.com/athletic/6924281/2025/12/28/cody-ford-reception-bengals-cardinals/
+
 **Updated 2026 NFL Draft order: Raiders hold No. 1 pick, Chiefs in top 10**\
 `What is the current order for Round 1 of the '26 draft?`\
 https://nytimes.com/athletic/6924232/2025/12/28/nfl-draft-order-2026-round-1-raiders/
