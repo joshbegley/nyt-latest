@@ -1,3 +1,7 @@
+**There’s no way Woody Johnson is OK with this**\
+`After a historically poor performance in December, is the owner's confidence shaken?`\
+https://nytimes.com/athletic/6924133/2025/12/28/new-york-jets-owner-woody-johnson-aaron-glenn-patriots-loss/
+
 **Giants-Raiders takeaways: Las Vegas now favorite to land No. 1 pick after loss**\
 `The Raiders can clinch the No. 1 pick with a loss to Kansas City next week.`\
 https://nytimes.com/athletic/6923700/2025/12/28/giants-raiders-score-nfl-draft-no-1-pick/
