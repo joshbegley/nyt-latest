@@ -1,3 +1,7 @@
+**More Kennedy Center Performances Are Canceled After Trump’s Renaming**\
+`A dance company withdrew from two performances next year, and the arts center’s website says two New Year’s Eve jazz concerts have been canceled.`\
+https://nytimes.com/2025/12/29/arts/more-kennedy-center-performances-are-canceled-after-trumps-renaming.html
+
 **Deaths in 2025: A Yearlong Procession of Giants**\
 `Marquee names all, they found international fame in the arts, politics, the sciences and beyond.`\
 https://nytimes.com/2025/12/29/obituaries/2025-deaths-obituaries.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6927302/2025/12/29/russell-martin-columbus-crew-hea
 **Mamdani Will Be Sworn In at Abandoned Subway Station Beneath City Hall**\
 `Hours before Mayor-elect Zohran Mamdani holds an inauguration block party outside City Hall, he will officially become mayor in a small private ceremony.`\
 https://nytimes.com/2025/12/29/nyregion/mamdani-subway-sworn-in-mayor.html
-
-**Andy Reid dismisses retirement talk, plans to return to Chiefs next season**\
-`Reid signed a contract extension in April 2024, which runs through the 2029 season and pays him more than $18 million per year.`\
-https://nytimes.com/athletic/6927238/2025/12/29/chiefs-andy-reid-plans-to-return/
 
