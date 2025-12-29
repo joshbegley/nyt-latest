@@ -1,3 +1,11 @@
+**Russia Threatens to Toughen Its Stance on Ending the War in Ukraine**\
+`Moscow said a Ukrainian drone attack targeted a residence of President Vladimir V. Putin, which Ukraine denied, accusing the Kremlin of fabricating an excuse not to make peace.`\
+https://nytimes.com/2025/12/29/world/europe/russia-claims-ukraine-attack-putin.html
+
+**When the Best New Year’s Plans Are No New Year’s Plans**\
+`Many opt out of the revelry, either as their own time-honored tradition or because of a different outlook this year.`\
+https://nytimes.com/2025/12/29/style/new-years-eve-no-plans.html
+
 **USC's Riley: If Notre Dame 'lived up to their word' rivals would play in 2026**\
 `Lincoln Riley’s words on Monday are USC’s strongest about the Trojans' longtime rival and the pause in the series.`\
 https://nytimes.com/athletic/6926886/2025/12/29/usc-notre-dame-rivalry-lincoln-riley/
