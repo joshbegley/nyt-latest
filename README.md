@@ -1,3 +1,11 @@
+**Train Derailment in Mexico Leaves Several Dead**\
+`More than a dozen people were killed when a passenger train derailed on Sunday in the Mexican state of Oaxaca, according to the authorities. An investigation into the cause has been opened.`\
+https://nytimes.com/video/world/americas/100000010612821/mexico-train-crash.html
+
+**Fernandes pushing for quick Man Utd return but out of Wolves game**\
+`United head coach Ruben Amorim also ruled out Kobbie Mainoo, Matthijs De Ligt and Harry Maguire ahead of Tuesday's match.`\
+https://nytimes.com/athletic/6921281/2025/12/29/bruno-fernandes-injury-latest-man-utd/
+
 **How to watch Wisconsin vs. Maryland women's basketball: Time, TV, streaming**\
 `Find out how to watch the Wisconsin Badgers play the Maryland Terrapins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6925397/2025/12/29/wisconsin-vs-maryland-stream-how-to-watch-dec-29/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6925119/2025/12/29/mike-bobo-georgia-football-playo
 **Lowetide: What are the Oilers' options for an outscoring third line?**\
 `The Oilers need to find a useful third line with some combination of skill, defensive acumen and physicality.`\
 https://nytimes.com/athletic/6922946/2025/12/29/edmonton-oilers-lineup-lines-stats-2025/
-
-**Nuno says West Ham need to 'rebalance' squad in transfer window**\
-`The London side are five points adrift of relegation safety after Saturday's loss to Fulham and are facing multiple departures in January.`\
-https://nytimes.com/athletic/6924971/2025/12/29/nuno-west-ham-transfer-rebalance/
-
-**ISIS Militants Kill 3 Police Officers in Turkey**\
-`A raid on a suspected safe house for the terrorist group Islamic State set off a clash that killed the police officers as well as six Turkish militants.`\
-https://nytimes.com/2025/12/29/world/middleeast/turkey-isis-raid.html
 
