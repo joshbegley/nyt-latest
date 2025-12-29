@@ -1,3 +1,7 @@
+**Brock Purdy, slinging and dancing, makes anything possible for these 49ers**\
+`When Purdy plays like this, he infuses an intoxicating aura into his team. And now, improbably, the 49ers are one win from the No. 1 seed.`\
+https://nytimes.com/athletic/6925221/2025/12/29/49ers-brock-purdy-qb-playoffs-super-bowl-dance/
+
 **USMNT Player Tracker: 'Diabolical' Pulisic, Aaronson impresses and no Richards panic**\
 `Our roundup of the U.S. contingent's contributions across Europe also sees Patrick Agyemang continue his scoring streak in the Championship`\
 https://nytimes.com/athletic/6925247/2025/12/29/usmnt-pulisic-aaronson-richards-tracker/
