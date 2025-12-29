@@ -1,3 +1,7 @@
+**ISIS Militants Kill 3 Police Officers in Turkey**\
+`A raid on a suspected safe house for the terrorist group Islamic State set off a clash that killed the police officers as well as six Turkish militants.`\
+https://nytimes.com/2025/12/29/world/middleeast/turkey-isis-raid.html
+
 **How the Bears' grand finale fizzled at the end of fireworks show with the 49ers**\
 `On a game-deciding play from the 2-yard line, the Bears were discombobulated from the start, leading to a cruel finish.`\
 https://nytimes.com/athletic/6924954/2025/12/29/bears-end-of-game-failure-49ers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6923348/2025/12/29/wild-zuccarello-johansson-bogosi
 **For Browns stalwarts Joel Bitonio and Wyatt Teller, Sunday's win felt a lot like goodbye**\
 `It's likely Bitonio and Teller, with 10 Pro Bowls between them, won't be back with Browns. If so, beating Steelers was a sweet home finale.`\
 https://nytimes.com/athletic/6924309/2025/12/29/browns-steelers-joel-bitonio-wyatt-teller-home-finale/
-
-**Who are the 12 undefeated women's college basketball teams, and who can remain unbeaten?**\
-`Sabreena Merchant breaks down the unbeatens and their key stats. Can anyone take down UConn, Texas, LSU or TCU?`\
-https://nytimes.com/athletic/6924493/2025/12/29/womens-college-basketball-undefeated-uconn-lsu/
 
