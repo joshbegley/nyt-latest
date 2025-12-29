@@ -1,3 +1,15 @@
+**The Windup: Your top 10 MLB stories of 2025**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6925952/2025/12/29/top-10-mlb-stories-2025-the-windup/
+
+**Canucks stock watch: Who's trending up, and down, since the Quinn Hughes trade?**\
+`Without game-breaking skaters, the Canucks have largely performed like a side that's consistently undermanned.`\
+https://nytimes.com/athletic/6924803/2025/12/29/canucks-jake-debrusk-thatcher-demko-stock-watch/
+
+**British heavyweight boxer Anthony Joshua involved in car crash in Nigeria**\
+`Police say Joshua suffered minor injuries and received medical attention at the scene.`\
+https://nytimes.com/athletic/6925572/2025/12/29/anthony-joshua-car-crash-nigeria/
+
 **The Bounce: How to make sense of the Lakers and Clippers. And was this Wemby's best dunk?**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/6925855/2025/12/29/nba-clippers-lakers-wembanyama-the-bounce/
@@ -25,16 +37,4 @@ https://nytimes.com/video/world/100000010612791/trump-zelensky-peace-ukraine-put
 **No Corrections: Dec. 26, 2025**\
 `No corrections appeared in print on Friday, Dec. 26, 2025.`\
 https://nytimes.com/2025/12/29/pageoneplus/no-corrections-dec-26-2025.html
-
-**NBA Rewind: Are the Thunder struggling, or are the Spurs just that good?**\
-`Plus, who's hot (Keyonte George) and not (Rockets' defense) around the league this week.`\
-https://nytimes.com/athletic/6920130/2025/12/29/spurs-thunder-giannis-nba-rewind/
-
-**Arteta says Arsenal must be ‘actively looking’ at signings in January**\
-`Arsenal spent nearly £250million ($337m) on eight new players in the summer.`\
-https://nytimes.com/athletic/6925424/2025/12/29/mikel-arteta-arsenal-january-transfers/
-
-**Instant grades for college football's 2025-26 head-coaching hires**\
-`In college football, you never really know whether a coaching hire is going to work. But it's never too early to talk about fit.`\
-https://nytimes.com/athletic/6827060/2025/12/29/college-football-coaching-carousel-grades/
 
