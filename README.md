@@ -1,3 +1,11 @@
+**In Caleb Williams, the Bears have a QB who can always give them a chance**\
+`Williams had one of his best performances of the season in a playoff atmosphere, but the Bears fell just short in another wild game.`\
+https://nytimes.com/athletic/6924923/2025/12/29/bears-caleb-williams-49ers/
+
+**49ers offense lit up the Bears, but defense won them the game**\
+`Brock Purdy may have scored five TDs and the offense may have piled up 496 yards. But it was San Francisco's defense that came up biggest.`\
+https://nytimes.com/athletic/6924920/2025/12/29/49ers-defense-won-game-bears/
+
 **The Pulse: The most miserable NFL fans after Week 17**\
 `The Athletic has live coverage of Bears vs.`\
 https://nytimes.com/athletic/6924583/2025/12/29/nfl-week-17-fan-misery-index-the-pulse/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6923917/2025/12/29/team-canada-olympics-roster-coop
 **Is this the most miserable Giants season in a decade? Let's rank the pain**\
 `This season has been rough on Giants fans, but is it the worst one of the past 10 years?`\
 https://nytimes.com/athletic/6922959/2025/12/29/ny-giants-worst-seasons-ranking-nfl-draft/
-
-**Predictive betting sites partner with X accounts claiming to be insiders**\
-`As Polymarket and Kalshi continue to grow in popularity, they have worked with social media accounts claiming to be breaking news reporters.`\
-https://nytimes.com/athletic/6876922/2025/12/29/kalshi-polymarket-predictive-betting-markets-x-sports-insiders/
-
-**Can NBA’s new proposals fix tanking? Is it even worth it for the league to try?**\
-`There are many reasons beyond wagering for the NBA to want to disincentivize teams from punting on games or seasons.`\
-https://nytimes.com/athletic/6920494/2025/12/29/nba-tanking-rules-preventions-restrictions/
 
