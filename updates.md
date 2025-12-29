@@ -1,3 +1,7 @@
+**Russia Threatens to Harden Its Stance on Ukraine**\
+`Plus, food trends for 2026. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2025/12/29/briefing/russia-venezuela-rfk.html
+
 **Wiegman, England women's team lead New Year Honours List**\
 `The coach and members of the England women's rugby team were also recognised after their World Cup win in the summer. `\
 https://nytimes.com/athletic/6925242/2025/12/29/new-year-honours-list-2026-wiegman/

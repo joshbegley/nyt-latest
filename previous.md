@@ -1,3 +1,7 @@
+**Russia Threatens to Harden Its Stance on Ukraine**\
+`Plus, food trends for 2026. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2025/12/29/briefing/russia-venezuela-rfk.html
+
 **Wiegman, England women's team lead New Year Honours List**\
 `The coach and members of the England women's rugby team were also recognised after their World Cup win in the summer. `\
 https://nytimes.com/athletic/6925242/2025/12/29/new-year-honours-list-2026-wiegman/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6927431/2025/12/29/aston-villa-premier-league-sched
 **2025 Notable Deaths**\
 `As the year winds to a close, we’re recalling those we’ve lost who forged consequential lives.`\
 https://nytimes.com/interactive/2025/obituaries/notable-deaths.html
-
-**Louis V. Gerstner, Who Revived a Faltering IBM in the ’90s, Dies at 83**\
-`Installed as an outsider, he engineered a comeback, shifting the company’s focus from a waning mainframe computer business toward consulting and services.`\
-https://nytimes.com/2025/12/29/business/louis-v-gerstner-dead.html
 

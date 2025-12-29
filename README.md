@@ -1,3 +1,7 @@
+**Cardinals' Jonathan Gannon 'feels good' about potential return as coach**\
+`Although Gannon is 15-35 with the Cardinals, he helped Arizona go from four wins in his first season to eight the next.`\
+https://nytimes.com/athletic/6927465/2025/12/29/jonathan-gannon-cardinals-head-coach-status/
+
 **Russia Threatens to Harden Its Stance on Ukraine**\
 `Plus, food trends for 2026. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2025/12/29/briefing/russia-venezuela-rfk.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6925342/2025/12/29/blue-jackets-monday-gathering-fl
 **Aston Villa question Premier League December schedule before Arsenal trip**\
 `Villa prepare for their second London away match in the space of four days while other teams have successive home games.`\
 https://nytimes.com/athletic/6927431/2025/12/29/aston-villa-premier-league-schedule/
-
-**2025 Notable Deaths**\
-`As the year winds to a close, we’re recalling those we’ve lost who forged consequential lives.`\
-https://nytimes.com/interactive/2025/obituaries/notable-deaths.html
 
