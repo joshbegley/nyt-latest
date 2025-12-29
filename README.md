@@ -24,7 +24,7 @@ https://nytimes.com/athletic/6927430/2025/12/29/chargers-rest-justin-herbert-bro
 
 **More Kennedy Center Performances Are Canceled After Trump’s Renaming**\
 `A dance company withdrew from two performances next year, and the arts center’s website says two New Year’s Eve jazz concerts have been canceled.`\
-https://nytimes.com/2025/12/29/arts/more-kennedy-center-performances-are-canceled-after-trumps-renaming.html
+https://nytimes.com/2025/12/29/arts/kennedy-center-new-years-eve-concerts-canceled.html
 
 **Deaths in 2025: A Yearlong Procession of Giants**\
 `Marquee names all, they found international fame in the arts, politics, the sciences and beyond.`\
