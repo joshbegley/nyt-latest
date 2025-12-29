@@ -1,3 +1,15 @@
+**Idris Elba and Cynthia Erivo Make King Charles’s New Year Honors List**\
+`Mr. Elba received a knighthood and Ms. Erivo was also honored in an annual British tradition celebrating professional excellence and community service.`\
+https://nytimes.com/2025/12/29/world/europe/idris-elba-cynthia-erivo-king-charles-honors.html
+
+**Former Tottenham Hotspur chairman Daniel Levy awarded CBE in New Year Honours list**\
+`Levy has been given the honour for 'services to charity and the community in Tottenham'`\
+https://nytimes.com/athletic/6927006/2025/12/29/daniel-levy-cbe-tottenham/
+
+**Chargers to rest Justin Herbert vs. Broncos, as Denver eyes No. 1 seed**\
+`The Broncos would clinch the top seed in the AFC and a first-round bye with a win. A loss would open the door for the Patriots and Jaguars.`\
+https://nytimes.com/athletic/6927430/2025/12/29/chargers-rest-justin-herbert-broncos-top-seed-afc/
+
 **More Kennedy Center Performances Are Canceled After Trump’s Renaming**\
 `A dance company withdrew from two performances next year, and the arts center’s website says two New Year’s Eve jazz concerts have been canceled.`\
 https://nytimes.com/2025/12/29/arts/more-kennedy-center-performances-are-canceled-after-trumps-renaming.html
