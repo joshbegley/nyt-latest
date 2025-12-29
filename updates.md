@@ -1,3 +1,7 @@
+**Broncos' muted celebration of AFC West title indicative of bigger goals ahead**\
+`Sean Payton didn't mark team's division title outside of distributing "ugly" shirts and hats. The No. 1 seed would bring bigger celebration.`\
+https://nytimes.com/athletic/6926935/2025/12/29/broncos-afc-west-champions-playoff-seed/
+
 **The story behind the Reggie Miller-Steve Alford reference in 'Stranger Things'**\
 `Should the Pacers have drafted Steve Alford over Miller in 1987? One character in the Indiana-based Netflix series thinks so.`\
 https://nytimes.com/athletic/6926513/2025/12/29/reggie-miller-steve-alford-stranger-things-reference/

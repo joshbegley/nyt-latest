@@ -1,3 +1,7 @@
+**Broncos' muted celebration of AFC West title indicative of bigger goals ahead**\
+`Sean Payton didn't mark team's division title outside of distributing "ugly" shirts and hats. The No. 1 seed would bring bigger celebration.`\
+https://nytimes.com/athletic/6926935/2025/12/29/broncos-afc-west-champions-playoff-seed/
+
 **U.S. Pledges $2 Billion for U.N. Aid but Tells Agencies to ‘Adapt, Shrink, or Die’**\
 `The announcement will likely keep the United States as the biggest international aid donor next year, even as the Trump administration slashes funding for foreign assistance programs.`\
 https://nytimes.com/2025/12/29/world/europe/us-un-aid-funding-foreign-assistance.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/29/style/new-years-eve-no-plans.html
 **USC's Riley: If Notre Dame 'lived up to their word' rivals would play in 2026**\
 `Lincoln Riley’s words on Monday are USC’s strongest about the Trojans' longtime rival and the pause in the series.`\
 https://nytimes.com/athletic/6926886/2025/12/29/usc-notre-dame-rivalry-lincoln-riley/
-
-**Araujo returns to Barcelona training after leave of absence**\
-`Araujo has not played for Barcelona since the 3-0 Champions League loss at Chelsea on November 25, in which he was sent off 44 minutes in.`\
-https://nytimes.com/athletic/6926546/2025/12/29/ronald-araujo-barcelona-return-absence/
 
