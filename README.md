@@ -1,5 +1,5 @@
 **Mamdani Will Be Sworn In at Abandoned Subway Station Beneath City Hall**\
-`Hours before Mayor-elect Zohran Mamdani holds an inauguration block party outside City Hall, he will be officially become mayor in a small private ceremony.`\
+`Hours before Mayor-elect Zohran Mamdani holds an inauguration block party outside City Hall, he will officially become mayor in a small private ceremony.`\
 https://nytimes.com/2025/12/29/nyregion/mamdani-subway-sworn-in-mayor.html
 
 **Andy Reid dismisses retirement talk, plans to return to Chiefs next season**\
