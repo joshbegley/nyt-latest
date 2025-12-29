@@ -1,3 +1,11 @@
+**Police Raid on Suspected ISIS Safe House in Turkey Turns Deadly**\
+`Three police officers and six militants were killed in clashes during a police raid on a suspected Islamic State safe house in Turkey on Monday, the authorities said.`\
+https://nytimes.com/video/world/europe/100000010613319/turkey-isis-police-raid.html
+
+**Do You Know These Romantic Adventures of Page and Screen?**\
+`Need something to read (or watch) this New Year’s week? This quiz brings the love.`\
+https://nytimes.com/interactive/2025/12/29/books/review/romantic-adventures-quiz.html
+
 **How to watch Capitals vs. Panthers: Time, TV, streaming**\
 `Find out how to watch the Washington Capitals play the Florida Panthers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6926310/2025/12/29/capitals-vs-panthers-stream-how-to-watch-dec-29/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6925883/2025/12/29/nfl-week-18-odds-spreads-afc-nfc
 **The Year Anime Came Out on Top**\
 `The medium has been bigger than niche for a long time. That became apparent to everyone in 2025.`\
 https://nytimes.com/2025/12/29/movies/anime-fandom-year.html
-
-**How to watch Kent State vs. Purdue men's basketball: Time, TV, streaming**\
-`Find out how to watch the Kent State Golden Flashes play the Purdue Boilermakers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6926254/2025/12/29/kent-state-vs-purdue-stream-how-to-watch-dec-29/
-
-**How to watch McNeese vs. Michigan men's basketball: Time, TV, streaming**\
-`Find out how to watch the McNeese Cowboys play the Michigan Wolverines, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6926248/2025/12/29/mcneese-vs-michigan-stream-how-to-watch-dec-29/
 

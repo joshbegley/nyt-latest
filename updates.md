@@ -1,3 +1,15 @@
+**How to watch Capitals vs. Panthers: Time, TV, streaming**\
+`Find out how to watch the Washington Capitals play the Florida Panthers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6926310/2025/12/29/capitals-vs-panthers-stream-how-to-watch-dec-29/
+
+**How to watch Bucks vs. Hornets: Time, TV, streaming**\
+`Find out how to watch the Milwaukee Bucks play the Charlotte Hornets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6926307/2025/12/29/bucks-vs-hornets-stream-how-to-watch-dec-29/
+
+**How to watch Suns vs. Wizards: Time, TV, streaming**\
+`Find out how to watch the Phoenix Suns play the Washington Wizards, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6926303/2025/12/29/suns-vs-wizards-stream-how-to-watch-dec-29/
+
 **How to watch Blue Jackets vs. Senators: Time, TV, streaming**\
 `Find out how to watch the Columbus Blue Jackets play the Ottawa Senators, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6926300/2025/12/29/blue-jackets-vs-senators-stream-how-to-watch-dec-29/
