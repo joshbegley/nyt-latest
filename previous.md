@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6924999/2025/12/29/bucs-dolphins-playoffs-baker-mayfield/
 
 **The Ravens' season is riding on Week 18. Lamar Jackson's future could be, too: Sando's Pick Six**\
-`The stage is set for two-time MVP quarterback Lamar Jackson to return from injury and save the Baltimore Ravens&#8217; season.`\
+`Does any team have more at stake on the final week of the regular season than Baltimore?`\
 https://nytimes.com/athletic/6909520/2025/12/29/lamar-jackson-ravens-contract-trade/
 
 **What we learned in NFL Week 17: 49ers, Seahawks set up clash for NFC's top seed**\

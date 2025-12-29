@@ -1,3 +1,7 @@
+**The Ravens' season is riding on Week 18. Lamar Jackson's future could be, too: Sando's Pick Six**\
+`Does any team have more at stake on the final week of the regular season than Baltimore?`\
+https://nytimes.com/athletic/6909520/2025/12/29/lamar-jackson-ravens-contract-trade/
+
 **The Buccaneers are skidding toward the finish line. Is the end near?**\
 `The Bucs' 6-2 start is long gone, and an interesting offseason is approaching in Tampa, perhaps faster than the team envisioned.`\
 https://nytimes.com/athletic/6924999/2025/12/29/bucs-dolphins-playoffs-baker-mayfield/
