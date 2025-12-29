@@ -1,3 +1,7 @@
+**Should Giants draft a new QB? Jaxson Dart quiets chatter about future with win vs. Raiders**\
+`“I know I'm gonna be here for a very long time, and I'm just excited to start winning more games and turn this place around."`\
+https://nytimes.com/athletic/6924434/2025/12/28/giants-jaxson-dart-nfl-draft-fernando-mendoza/
+
 **Trump Says the U.S. Struck a ‘Big Facility’ in Campaign Against Venezuela**\
 `The administration provided no details of what the president said was an attack last week linked to U.S. efforts to disrupt drug trafficking from Latin America.`\
 https://nytimes.com/2025/12/28/us/politics/trump-drug-facility-venezuela.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6924447/2025/12/28/jose-alvarado-mark-williams-susp
 **Updated 2026 NFL Draft order: Raiders hold No. 1 pick, Chiefs in top 10**\
 `What is the current order for Round 1 of the '26 draft?`\
 https://nytimes.com/athletic/6924232/2025/12/28/nfl-draft-order-2026-round-1-raiders/
-
-**Why Scottie Barnes' talent makes his flaws worth the trouble for Raptors**\
-`With a 23-point, 25-rebound, 10-assist afternoon, the Toronto star reminded everyone how he can dominate a game.`\
-https://nytimes.com/athletic/6924284/2025/12/28/scottie-barnes-triple-double-raptors-warriors/
 
