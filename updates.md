@@ -1,3 +1,15 @@
+**How to watch Wisconsin vs. Maryland women's basketball: Time, TV, streaming**\
+`Find out how to watch the Wisconsin Badgers play the Maryland Terrapins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6925397/2025/12/29/wisconsin-vs-maryland-stream-how-to-watch-dec-29/
+
+**How to watch USC vs. Nebraska women's basketball: Time, TV, streaming**\
+`Find out how to watch the USC Trojans play the Nebraska Cornhuskers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6925398/2025/12/29/usc-vs-nebraska-stream-how-to-watch-dec-29/
+
+**How to watch Southern vs. Illinois men's basketball: Time, TV, streaming**\
+`Find out how to watch the Southern Jaguars play the Illinois Fighting Illini, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6925391/2025/12/29/southern-vs-illinois-stream-how-to-watch-dec-29/
+
 **Serie A briefing: Prime Pulisic, Hojlund's hot streak and Hannibal's crossing of the Alps**\
 `There were victories for Milan, Inter and Napoli as United States international Christian Pulisic continued his impressive form in Italy`\
 https://nytimes.com/athletic/6925182/2025/12/29/serie-a-pulisic-hojlund-milan-napoli-inter/
