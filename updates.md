@@ -1,3 +1,7 @@
+**Jaylen Brown's ninth straight 30-point game ties Larry Bird's streak**\
+`Brown, whose streak now stands at nine games, will have a chance to pass Bird on Tuesday when Boston visits the Utah Jazz.`\
+https://nytimes.com/athletic/6924197/2025/12/28/jaylen-brown-nine-30-point-games-ties-larry-bird-record/
+
 **Jrue Holiday on Celtics-Trail Blazers trade, Brad Stevens' honesty and enjoying Portland**\
 `Jrue Holiday has no hard feelings toward the Boston Celtics after they traded him over the offseason.`\
 https://nytimes.com/athletic/6923871/2025/12/28/jrue-holiday-discusses-trade-celtics-trail-blazers/

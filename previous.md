@@ -1,3 +1,7 @@
+**Jaylen Brown's ninth straight 30-point game ties Larry Bird's streak**\
+`Brown, whose streak now stands at nine games, will have a chance to pass Bird on Tuesday when Boston visits the Utah Jazz.`\
+https://nytimes.com/athletic/6924197/2025/12/28/jaylen-brown-nine-30-point-games-ties-larry-bird-record/
+
 **Panthers-Bucs for the NFC South title in Week 18: 'You wouldn't have it any other way'**\
 `Despite the loss Sunday, the Panthers travel to Tampa to play the Bucs in Week 18 with the opportunity to claim the division with a victory.`\
 https://nytimes.com/athletic/6924131/2025/12/28/panthers-nfc-south-playoffs-bucs-week-18/
@@ -33,10 +37,4 @@ https://nytimes.com/2025/12/28/obituaries/don-bryant-dead.html
 **Geno Smith exits game vs. Giants with ankle injury**\
 `Smith had to be helped off the field and headed straight to the locker room.`\
 https://nytimes.com/athletic/6924065/2025/12/28/geno-smith-raiders-giants-injury/
-
-**Submit a question for Stewart Mandel's College Football Mailbag**\
-`<p>Michigan has a coach, BYU has its Pop-Tarts and the CFP quarterfinals are upon us.</p>
-<p>Leave your questions here. Please include your city.</p>
-`\
-https://nytimes.com/athletic/6924081/2025/12/28/submit-a-question-for-stewart-mandels-college-football-mailbag-329/
 
