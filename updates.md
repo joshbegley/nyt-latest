@@ -1,3 +1,11 @@
+**Cardinals' Jonathan Gannon 'feels good' about potential return as coach**\
+`Although Gannon is 15-35 with the Cardinals, he helped Arizona go from four wins in his first season to eight the next.`\
+https://nytimes.com/athletic/6927465/2025/12/29/jonathan-gannon-cardinals-head-coach-status/
+
+**More Kennedy Center Performances Are Canceled After Trump’s Renaming**\
+`A dance company withdrew from two performances next year, and the arts center’s website says two New Year’s Eve jazz concerts have been canceled.`\
+https://nytimes.com/2025/12/29/arts/kennedy-center-new-years-eve-concerts-canceled.html
+
 **Russia Threatens to Harden Its Stance on Ukraine**\
 `Plus, food trends for 2026. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2025/12/29/briefing/russia-venezuela-rfk.html
