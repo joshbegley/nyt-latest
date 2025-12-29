@@ -1,3 +1,7 @@
+**Drake Maye's magical season rolls on as Patriots blast Jets. Could he be the MVP?**\
+`“They don’t give me a vote,” coach Mike Vrabel said of Maye’s MVP case. “But there’s nobody else that I want as our quarterback."`\
+https://nytimes.com/athletic/6924025/2025/12/28/drake-maye-patriots-jets-nfl-mvp-race/
+
 **World Juniors Day 3: Sweden, Finland win but top teams still unconvincing**\
 `Day 3 of the 2026 World Juniors was highlighted by Sweden needing a third-period comeback to beat Switzerland.`\
 https://nytimes.com/athletic/6920668/2025/12/28/world-juniors-sweden-finland-2026-scores-results/
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/6919844/2025/12/28/ivory-coast-amad-cameroon-mbeumo
 **Steelers miss chance to clinch AFC North as Browns pull off upset: Takeaways**\
 `Cleveland's fourth straight home win over Pittsburgh came in a defensive struggle.`\
 https://nytimes.com/athletic/6923723/2025/12/28/steelers-browns-result-score-takeaways/
-
-**Five Brigitte Bardot Movies to Stream**\
-`The actress, who died at 91, had what can’t be taught: charisma and attitude onscreen. Here are some highlights.`\
-https://nytimes.com/2025/12/28/movies/brigitte-bardot-movies-to-stream.html
 

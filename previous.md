@@ -1,3 +1,11 @@
+**World Juniors Day 3: Sweden, Finland win but top teams still unconvincing**\
+`Day 3 of the 2026 World Juniors was highlighted by Sweden needing a third-period comeback to beat Switzerland.`\
+https://nytimes.com/athletic/6920668/2025/12/28/world-juniors-sweden-finland-2026-scores-results/
+
+**Don Bryant, 83, Dies; Co-Wrote ‘I Can’t Stand the Rain’ for His Wife**\
+`He and Ann Peebles made up one of Southern soul’s most accomplished partnerships. He finally broke through as a solo act at 75.`\
+https://nytimes.com/2025/12/28/obituaries/don-bryant-dead.html
+
 **Geno Smith exits game vs. Giants with ankle injury**\
 `Smith had to be helped off the field and headed straight to the locker room.`\
 https://nytimes.com/athletic/6924065/2025/12/28/geno-smith-raiders-giants-injury/
@@ -31,12 +39,4 @@ https://nytimes.com/athletic/6923723/2025/12/28/steelers-browns-result-score-tak
 **Five Brigitte Bardot Movies to Stream**\
 `The actress, who died at 91, had what can’t be taught: charisma and attitude onscreen. Here are some highlights.`\
 https://nytimes.com/2025/12/28/movies/brigitte-bardot-movies-to-stream.html
-
-**Tyler Shough's career day rallies Saints past Titans: Takeaways**\
-`The Saints staged a dramatic late comeback to beat the Titans 34-26 at Nissan Stadium in Nashville.`\
-https://nytimes.com/athletic/6923342/2025/12/28/saints-titans-score-result-takeaways/
-
-**Jaguars-Colts takeaways: Jacksonville stays in control of AFC South**\
-`The Jaguars can win the division title next week with a win over the Titans. `\
-https://nytimes.com/athletic/6923421/2025/12/28/jaguars-colts-score-result-takeaways-2/
 
