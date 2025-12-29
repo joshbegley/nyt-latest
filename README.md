@@ -1,3 +1,7 @@
+**Blues' Pius Suter suffered right ankle injury, will be re-evaluated in 4 weeks**\
+`ST.`\
+https://nytimes.com/athletic/6926195/2025/12/29/blues-pius-suter-suffered-right-ankle-injury-will-be-re-evaluated-in-4-weeks/
+
 **Police Raid on Suspected ISIS Safe House in Turkey Turns Deadly**\
 `Three police officers and six militants were killed in clashes during a police raid on a suspected Islamic State safe house in Turkey on Monday, the authorities said.`\
 https://nytimes.com/video/world/europe/100000010613319/turkey-isis-police-raid.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6926233/2025/12/29/fabian-hurzeler-brighton-form/
 **NFL Week 18 odds, spreads: Both No. 1 seeds up for grabs**\
 `The Broncos, Patriots and Jaguars could all clinch the AFC's top seed. The NFC's is down to Seahawks vs. 49ers on Saturday.`\
 https://nytimes.com/athletic/6925883/2025/12/29/nfl-week-18-odds-spreads-afc-nfc-top-seeds/
-
-**The Year Anime Came Out on Top**\
-`The medium has been bigger than niche for a long time. That became apparent to everyone in 2025.`\
-https://nytimes.com/2025/12/29/movies/anime-fandom-year.html
 
