@@ -1,3 +1,11 @@
+**U.S. Pledges $2 Billion for U.N. Aid but Tells Agencies to ‘Adapt, Shrink, or Die’**\
+`The announcement will likely keep the United States as the biggest international aid donor next year, even as the Trump administration slashes funding for foreign assistance programs.`\
+https://nytimes.com/2025/12/29/world/europe/us-un-aid-funding-foreign-assistance.html
+
+**Does Anybody Really Know What Time It Is?**\
+`The clocks aboard our icebreaker will be changed several times en route to Antarctica. It’s one of many things that make the expedition feel otherworldly.`\
+https://nytimes.com/2025/12/29/climate/antarctica-time-zone.html
+
 **How prediction markets mirrored the chaos of the college football coaching carousel**\
 `Prediction markets reflected the drama, and rumor-mongering, of the college football coaching carousel.`\
 https://nytimes.com/athletic/6880068/2025/12/29/prediction-markets-college-coaching-carousel-michigan-penn-state-lane-kiffin/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6899760/2025/12/29/danton-lynn-penn-state-usc-defen
 **South Africa qualify for AFCON last 16 with Zimbabwe win**\
 `South Africa beat Zimbabwe 3-2 to finish second in the group and qualify for the round of 16.`\
 https://nytimes.com/athletic/6926847/2025/12/29/south-africa-afcon-zimbabwe/
-
-**Auburn star WR Cam Coleman to enter transfer portal: Source**\
-`A former five-star prospect, Coleman was the nation's No. 3 player and No. 2 wide receiver, only behind Ohio State's Jeremiah Smith.`\
-https://nytimes.com/athletic/6926645/2025/12/29/cam-coleman-transfer-portal-auburn/
-
-**Grim Evidence of Trump’s Airstrikes Washes Ashore on a Colombian Peninsula**\
-`First came the scorched boat. Then the mangled bodies. Then the packets with traces of marijuana. Now, fishermen fear the ocean that feeds them.`\
-https://nytimes.com/2025/12/29/world/americas/trump-boat-strikes-gulf-of-venezuela-wreckage.html
 
