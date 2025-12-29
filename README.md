@@ -1,3 +1,11 @@
+**Panthers brace fo Bucs and opportunity to end 7-year playoff drought**\
+`Dave Canales could get a key lineman back and he'll also spend time this week trying to get Bryce Young back on track.`\
+https://nytimes.com/athletic/6926902/2025/12/29/panthers-bucs-nfc-south-playoffs-bryce-young/
+
+**Blue Jackets vs. Senators start time delayed due to Columbus' travel issues**\
+`The Blue Jackets were unable to leave for Ottawa until Monday afternoon, hours before the same night's game.`\
+https://nytimes.com/athletic/6927091/2025/12/29/blue-jackets-senators-game-time-airplane/
+
 **Broncos' muted celebration of AFC West title indicative of bigger goals ahead**\
 `Sean Payton didn't mark team's division title outside of distributing "ugly" shirts and hats. The No. 1 seed would bring bigger celebration.`\
 https://nytimes.com/athletic/6926935/2025/12/29/broncos-afc-west-champions-playoff-seed/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6880068/2025/12/29/prediction-markets-college-coach
 **Russia Threatens to Toughen Its Stance on Ending the War in Ukraine**\
 `Moscow said a Ukrainian drone attack targeted a residence of President Vladimir V. Putin, which Ukraine denied, accusing the Kremlin of fabricating an excuse not to make peace.`\
 https://nytimes.com/2025/12/29/world/europe/russia-claims-ukraine-attack-putin.html
-
-**When the Best New Year’s Plans Are No New Year’s Plans**\
-`Many opt out of the revelry, either as their own time-honored tradition or because of a different outlook this year.`\
-https://nytimes.com/2025/12/29/style/new-years-eve-no-plans.html
-
-**USC's Riley: If Notre Dame 'lived up to their word' rivals would play in 2026**\
-`Lincoln Riley’s words on Monday are USC’s strongest about the Trojans' longtime rival and the pause in the series.`\
-https://nytimes.com/athletic/6926886/2025/12/29/usc-notre-dame-rivalry-lincoln-riley/
 
