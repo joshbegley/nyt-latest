@@ -1,3 +1,7 @@
+**Should Giants draft a new QB? Jaxson Dart quiets chatter about future with win vs. Raiders**\
+`“I know I'm gonna be here for a very long time, and I'm just excited to start winning more games and turn this place around."`\
+https://nytimes.com/athletic/6924434/2025/12/28/giants-jaxson-dart-nfl-draft-fernando-mendoza/
+
 **Trump Says the U.S. Struck a ‘Big Facility’ in Campaign Against Venezuela**\
 `The administration provided no details of what the president said was an attack last week linked to U.S. efforts to disrupt drug trafficking from Latin America.`\
 https://nytimes.com/2025/12/28/us/politics/trump-drug-facility-venezuela.html
