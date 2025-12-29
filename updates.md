@@ -1,3 +1,15 @@
+**Despite no sacks, Myles Garrett wreaked havoc in Browns' upset win over Steelers**\
+`Cleveland's defense carried the day vs. Pittsburgh, closing a strong run of home performances with a masterpiece.`\
+https://nytimes.com/athletic/6924159/2025/12/28/browns-win-steelers-myles-garrett-sacks-record/
+
+**Suspect Confessed to Planting Pipe Bombs Near the Capitol Before Jan. 6**\
+`A Virginia man was charged with planting the bombs outside Democratic and Republican headquarters. Court documents show he believed that the 2020 election had been “tampered with.”`\
+https://nytimes.com/2025/12/28/us/politics/jan-6-pipe-bomb.html
+
+**Eagles defense staves off Bills' late, dramatic comeback attempt**\
+`The Eagles held the Bills to their lowest point total of the season.`\
+https://nytimes.com/athletic/6923838/2025/12/28/eagles-bills-score-result-takeaways/
+
 **Jaylen Brown's ninth straight 30-point game ties Larry Bird's streak**\
 `Brown, whose streak now stands at nine games, will have a chance to pass Bird on Tuesday when Boston visits the Utah Jazz.`\
 https://nytimes.com/athletic/6924197/2025/12/28/jaylen-brown-nine-30-point-games-ties-larry-bird-record/
