@@ -1,3 +1,11 @@
+**Trump Says the U.S. Struck a ‘Big Facility’ in Campaign Against Venezuela**\
+`The administration provided no details of what the president said was an attack last week linked to U.S. efforts to disrupt drug trafficking from Latin America.`\
+https://nytimes.com/2025/12/28/us/politics/trump-drug-facility-venezuela.html
+
+**Brazeau hat trick leads Penguins' demolition of Chicago: Observations**\
+`The Penguins put together a badly needed emphatic win with a 7-3 laugher over the Bedard-less Blackhawks.`\
+https://nytimes.com/athletic/6924407/2025/12/28/penguins-brazeau-hat-trick-blackhawks/
+
 **Don't tell Philip Rivers a game is 'meaningless.' Colts lost, but it meant something to him**\
 `To say there's "nothing to play for" is an insult to Rivers. "To say a game is meaningless is not in my DNA. (All) we do matters."`\
 https://nytimes.com/athletic/6923956/2025/12/28/colts-philip-rivers-retirement-jaguars-playoffs/
@@ -15,7 +23,7 @@ https://nytimes.com/2025/12/28/world/americas/mexico-train-crash.html
 https://nytimes.com/athletic/6924112/2025/12/28/sixers-losing-streak-third-quarter-tyrese-maxey/
 
 **We Asked for Environmental Fixes in Your State. You Sent In Thousands.**\
-`summary`\
+`Readers submitted more than 3,200 ideas for our 50 States, 50 Fixes series. Before the year ends, we wanted to share just a few more of them.`\
 https://nytimes.com/interactive/2025/12/28/climate/us-eco-friendly-projects-readers.html
 
 **Pelicans' Jose Alvarado, Suns' Mark Williams suspended for throwing punches**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6924232/2025/12/28/nfl-draft-order-2026-round-1-rai
 **Why Scottie Barnes' talent makes his flaws worth the trouble for Raptors**\
 `With a 23-point, 25-rebound, 10-assist afternoon, the Toronto star reminded everyone how he can dominate a game.`\
 https://nytimes.com/athletic/6924284/2025/12/28/scottie-barnes-triple-double-raptors-warriors/
-
-**Was this the worst regular-season loss of the Mike Tomlin era?**\
-`After missing a chance to clinch, Pittsburgh is now set up for a winner-take-all Week 18 game against the Ravens.`\
-https://nytimes.com/athletic/6924201/2025/12/28/pittsburgh-steelers-loss-browns-afc-north-clinch/
-
-**Zach Eflin, Orioles reuniting on one-year deal: Source**\
-`Eflin was dogged by back problems for much of 2025, when he posted a 5.93 ERA in just 14 starts.`\
-https://nytimes.com/athletic/6792492/2025/12/28/mlb-zach-eflin-free-agency-signing-orioles/
 
