@@ -1,3 +1,11 @@
+**The New York Times in Print for Monday, Dec. 29, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/12/29/todays-new-york-times
+
+**Why We Fall for Narcissistic Leaders, Starting in Grade School**\
+`We should know better. `\
+https://nytimes.com/2025/12/29/opinion/why-we-fall-for-narcissistic-leaders-starting-in-grade-school.html
+
 **Nasser Hussain: England's consolation win does matter, even as a reminder of what might have been**\
 `The ex-England captain also addresses rising concerns over two-day Tests and modern batting techniques, and the need not to over-compensate`\
 https://nytimes.com/athletic/6922755/2025/12/29/nasser-hussain-england-ashes-stokes-mcg-pitch/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6923018/2025/12/29/liverpool-premier-league-set-pie
 **Arsenal 2 Brighton 1: Did Hurzeler pick wrong team? Why the slow starts? And what about Minteh?**\
 `Andy Naylor analyses the defeat by Arsenal to understand how Brighton can get back to winning`\
 https://nytimes.com/athletic/6921160/2025/12/29/brighton-briefing-arsenal-defeat-hurzeler-selection-minteh/
-
-**Cameroon had a chaotic AFCON build-up, but they have proved they are not to be underestimated**\
-`Cameroon began the month in crisis, but suddenly they look like a real team, full of hunger.`\
-https://nytimes.com/athletic/6923843/2025/12/29/cameroon-etoo-pagou-brys/
-
-**Newcastle's 2025: Winners at last, Isak's 'betrayal' and Burn living the dream**\
-`It was a year in which Eddie Howe's team made history by winning a trophy… and learned how hard it is to stay competitive at the top`\
-https://nytimes.com/athletic/6891063/2025/12/29/newcastle-2025-review-isak-burn/
 
