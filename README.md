@@ -1,3 +1,15 @@
+**Despite no sacks, Myles Garrett wreaked havoc in Browns' upset win over Steelers**\
+`Cleveland's defense carried the day vs. Pittsburgh, closing a strong run of home performances with a masterpiece.`\
+https://nytimes.com/athletic/6924159/2025/12/28/browns-win-steelers-myles-garrett-sacks-record/
+
+**Suspect Confessed to Planting Pipe Bombs Near the Capitol Before Jan. 6**\
+`A Virginia man was charged with planting the bombs outside Democratic and Republican headquarters. Court documents show he believed that the 2020 election had been “tampered with.”`\
+https://nytimes.com/2025/12/28/us/politics/jan-6-pipe-bomb.html
+
+**Eagles defense staves off Bills' late, dramatic comeback attempt**\
+`The Eagles held the Bills to their lowest point total of the season.`\
+https://nytimes.com/athletic/6923838/2025/12/28/eagles-bills-score-result-takeaways/
+
 **Jaylen Brown's ninth straight 30-point game ties Larry Bird's streak**\
 `Brown, whose streak now stands at nine games, will have a chance to pass Bird on Tuesday when Boston visits the Utah Jazz.`\
 https://nytimes.com/athletic/6924197/2025/12/28/jaylen-brown-nine-30-point-games-ties-larry-bird-record/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6923700/2025/12/28/giants-raiders-score-nfl-draft-n
 **Drake Maye's magical season rolls on as Patriots blast Jets. Could he be the MVP?**\
 `“They don’t give me a vote,” coach Mike Vrabel said of Maye’s MVP case. “But there’s nobody else that I want as our quarterback."`\
 https://nytimes.com/athletic/6924025/2025/12/28/drake-maye-patriots-jets-nfl-mvp-race/
-
-**World Juniors Day 3: Sweden, Finland win but top teams still unconvincing**\
-`Day 3 of the 2026 World Juniors was highlighted by Sweden needing a third-period comeback to beat Switzerland.`\
-https://nytimes.com/athletic/6920668/2025/12/28/world-juniors-sweden-finland-2026-scores-results/
-
-**Don Bryant, 83, Dies; Co-Wrote ‘I Can’t Stand the Rain’ for His Wife**\
-`He and Ann Peebles made up one of Southern soul’s most accomplished partnerships. He finally broke through as a solo act at 75.`\
-https://nytimes.com/2025/12/28/obituaries/don-bryant-dead.html
-
-**Geno Smith exits game vs. Giants with ankle injury**\
-`Smith had to be helped off the field and headed straight to the locker room.`\
-https://nytimes.com/athletic/6924065/2025/12/28/geno-smith-raiders-giants-injury/
 
