@@ -1,3 +1,23 @@
+**What it is like inside the Guardiola bubble – as told by his assistants**\
+`Those who have worked with the Manchester City manager speak of an intense and invigorating environment where there is constant evolution`\
+https://nytimes.com/athletic/6873482/2025/12/29/working-for-guardiola-manchester-city/
+
+**Educating Arsenal: How young players balance sporting prowess with school**\
+`The majority of academy players won't make the first team, so there is now importance placed on developing youngsters on and off the pitch`\
+https://nytimes.com/athletic/6875109/2025/12/29/arsenal-educating-dowman-nwaneri-saka/
+
+**Steelers-Ravens to clash for AFC North title, 49ers-Seahawks for NFC West**\
+`Four division titles are still up for grabs, with two to be decided in winner-take-all matchups.`\
+https://nytimes.com/athletic/6923821/2025/12/29/nfl-week-18-schedule-times-games/
+
+**49ers outlast Bears in thriller to set up showdown for No. 1 seed: Takeaways**\
+`Brock Purdy hit Jauan Jennings with the winning TD pass and the 49ers held on in a game that featured 936 total yards and 10 offensive TDs.`\
+https://nytimes.com/athletic/6924633/2025/12/29/bears-49ers-score-result-takeaways-2/
+
+**From committee meetings to welcome calls from Hollywood - how Wrexham do transfers**\
+`Wrexham may boast celebrity owners and Premier League-level income streams, but there's a lot more to their recruitment operation...`\
+https://nytimes.com/athletic/6823003/2025/12/29/wrexham-transfer-reynolds-mcelhenney/
+
 **Good teams win when they play badly. Chelsea don't when they play well**\
 `This home defeat against Aston Villa was entirely of their own making - all-too-familiar issues need to be addressed
 `\
@@ -18,24 +38,4 @@ https://nytimes.com/athletic/6924642/2025/12/29/kawhi-leonard-first-50-point-gam
 **Defensive disarray, a faltering attack and Semenyo uncertainty. Iraola has issues to address**\
 `Bournemouth have plummeted down the Premier League table. They were once tactical darlings, so what is going so wrong?`\
 https://nytimes.com/athletic/6922719/2025/12/29/bournemouth-andoni-iraola-antoine-semenyo-problems/
-
-**NFL playoff picture: Ravens-Steelers, Bucs-Panthers elimination showdowns set for Week 18**\
-`While all but two postseason berths remain unclaimed, the battles for the top seed in each conference will also be waged in Week 18. `\
-https://nytimes.com/athletic/6920350/2025/12/29/nfl-playoff-picture-week-17-ravens-steelers-buccaneers-panthers/
-
-**The World Wants More Ube. Philippine Farmers Are Struggling to Keep Up.**\
-`Soaring demand and extreme weather worsened by climate change have wiped out harvests of the popular purple yam.`\
-https://nytimes.com/2025/12/29/world/asia/philippines-ube-purple-yam.html
-
-**No Corrections: Dec. 29, 2025**\
-`No corrections appeared in print on Monday, Dec. 29, 2025.`\
-https://nytimes.com/2025/12/29/pageoneplus/no-corrections-dec-29-2025.html
-
-**Quote of the Day: Brigitte Bardot, 91, French Actress Who Renounced Stardom, Dies**\
-`Quotation of the Day for Monday, December 29, 2025.`\
-https://nytimes.com/2025/12/29/pageoneplus/quote-of-the-day-brigitte-bardot-91-french-actress-who-renounced-stardom-dies.html
-
-**With Critical Decisions Ahead, Netanyahu Faces Mounting Pressure**\
-`Prime Minister Benjamin Netanyahu of Israel has a series of vexing choices to make in the year ahead on issues including Gaza, conscription and a judicial overhaul, with elections looming.`\
-https://nytimes.com/2025/12/29/world/middleeast/israel-benjamin-netanyahu-decisions.html
 
