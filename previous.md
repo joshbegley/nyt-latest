@@ -1,3 +1,15 @@
+**Deaths in 2025: A Yearlong Procession of Giants**\
+`Marquee names all, they found international fame in the arts, politics, the sciences and beyond.`\
+https://nytimes.com/2025/12/29/obituaries/2025-deaths-obituaries.html
+
+**Blue Jackets Monday Gathering: Flight delays change puck drop vs. Senators**\
+`Despite high winds in Columbus and freezing rain in Ottawa, it was a mechanical issue that grounded the Blue Jackets.`\
+https://nytimes.com/athletic/6925342/2025/12/29/blue-jackets-monday-gathering-flight-delay-senators/
+
+**Aston Villa question Premier League December schedule before Arsenal trip**\
+`Villa prepare for their second London away match in the space of four days while other teams have successive home games.`\
+https://nytimes.com/athletic/6927431/2025/12/29/aston-villa-premier-league-schedule/
+
 **2025 Notable Deaths**\
 `As the year winds to a close, we’re recalling those we’ve lost who forged consequential lives.`\
 https://nytimes.com/interactive/2025/obituaries/notable-deaths.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/12/29/nyregion/mamdani-subway-sworn-in-mayor.html
 **Andy Reid dismisses retirement talk, plans to return to Chiefs next season**\
 `Reid signed a contract extension in April 2024, which runs through the 2029 season and pays him more than $18 million per year.`\
 https://nytimes.com/athletic/6927238/2025/12/29/chiefs-andy-reid-plans-to-return/
-
-**Dončić, Jokić and Antetokounmpo lead early fan voting for NBA All-Star Game**\
-`The other surprise: Philadelphia's Tyrese Maxey ranks second in votes among all Eastern Conference players. `\
-https://nytimes.com/athletic/6926985/2025/12/29/nba-all-star-voting-fan-rankings/
-
-**The Year in Pictures**\
-`We look back on 2025 with some of the best New York Times photographs.`\
-https://nytimes.com/2025/12/29/world/the-year-in-pictures-trump-netanyahu-toronto.html
-
-**San Diego Wave and goalkeeper Sheridan agree to terminate contract**\
-`Sheridan's deal had been due to run through to the 2026 season.`\
-https://nytimes.com/athletic/6927233/2025/12/29/kailen-sheridan-san-diego-wave-contract/
 
