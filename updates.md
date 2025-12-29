@@ -1,3 +1,7 @@
+**Clothes With Stories to Tell**\
+`See all the outfits from around the world that were featured this year in our Look of the Week column.`\
+https://nytimes.com/2025/12/29/style/street-style-outfits-2025.html
+
 **Submit a question for Pete Sampson's next Notre Dame football mailbag**\
 `It's been a busy December around Notre Dame football, even though the Fighting Irish haven't played since Thanksgiving weekend.`\
 https://nytimes.com/athletic/6925772/2025/12/29/submit-a-question-for-pete-sampsons-next-notre-dame-football-mailbag/

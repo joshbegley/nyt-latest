@@ -1,3 +1,7 @@
+**Clothes With Stories to Tell**\
+`See all the outfits from around the world that were featured this year in our Look of the Week column.`\
+https://nytimes.com/2025/12/29/style/street-style-outfits-2025.html
+
 **Submit a question for Pete Sampson's next Notre Dame football mailbag**\
 `It's been a busy December around Notre Dame football, even though the Fighting Irish haven't played since Thanksgiving weekend.`\
 https://nytimes.com/athletic/6925772/2025/12/29/submit-a-question-for-pete-sampsons-next-notre-dame-football-mailbag/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6827060/2025/12/29/college-football-coaching-carous
 **Train Derailment in Mexico Leaves Several Dead**\
 `More than a dozen people were killed when a passenger train derailed on Sunday in the Mexican state of Oaxaca, according to the authorities. An investigation into the cause has been opened.`\
 https://nytimes.com/video/world/americas/100000010612821/mexico-train-crash.html
-
-**Fernandes pushing for quick Man Utd return but out of Wolves game**\
-`United head coach Ruben Amorim also ruled out Kobbie Mainoo, Matthijs De Ligt and Harry Maguire ahead of Tuesday's match.`\
-https://nytimes.com/athletic/6921281/2025/12/29/bruno-fernandes-injury-latest-man-utd/
 
