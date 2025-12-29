@@ -1,3 +1,19 @@
+**How to watch Mavericks vs. Trail Blazers: Time, TV, streaming**\
+`Find out how to watch the Dallas Mavericks play the Portland Trail Blazers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6927230/2025/12/29/mavericks-vs-trail-blazers-stream-how-to-watch-dec-29/
+
+**How to watch Wild vs. Golden Knights: Time, TV, streaming**\
+`Find out how to watch the Minnesota Wild play the Vegas Golden Knights, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6927228/2025/12/29/wild-vs-golden-knights-stream-how-to-watch-dec-29/
+
+**How to watch Warriors vs. Nets: Time, TV, streaming**\
+`Find out how to watch the Golden State Warriors play the Brooklyn Nets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6927225/2025/12/29/warriors-vs-nets-stream-how-to-watch-dec-29/
+
+**How to watch Nuggets vs. Heat: Time, TV, streaming**\
+`Find out how to watch the Denver Nuggets play the Miami Heat, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6927222/2025/12/29/nuggets-vs-heat-stream-how-to-watch-dec-29/
+
 **How to watch Predators vs. Mammoth: Time, TV, streaming**\
 `Find out how to watch the Nashville Predators play the Utah Mammoth, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6927219/2025/12/29/predators-vs-mammoth-stream-how-to-watch-dec-29/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6927208/2025/12/29/canucks-vs-kraken-stream-how-to-
 **How to watch Knicks vs. Pelicans: Time, TV, streaming**\
 `Find out how to watch the New York Knicks play the New Orleans Pelicans, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6927205/2025/12/29/knicks-vs-pelicans-stream-how-to-watch-dec-29/
-
-**How to watch Kings vs. Avalanche: Time, TV, streaming**\
-`Find out how to watch the Los Angeles Kings play the Colorado Avalanche, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6927203/2025/12/29/kings-vs-avalanche-stream-how-to-watch-dec-29/
-
-**How to watch Magic vs. Raptors: Time, TV, streaming**\
-`Find out how to watch the Orlando Magic play the Toronto Raptors, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6927198/2025/12/29/magic-vs-raptors-stream-how-to-watch-dec-29/
-
-**How to watch Sharks vs. Ducks: Time, TV, streaming**\
-`Find out how to watch the San Jose Sharks play the Anaheim Ducks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6927196/2025/12/29/sharks-vs-ducks-stream-how-to-watch-dec-29/
-
-**How to watch Pacers vs. Rockets: Time, TV, streaming**\
-`Find out how to watch the Indiana Pacers play the Houston Rockets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6927194/2025/12/29/pacers-vs-rockets-stream-how-to-watch-dec-29/
 
