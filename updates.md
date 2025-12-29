@@ -1,3 +1,7 @@
+**Martin among final candidates for Columbus Crew head coach role**\
+`Martin was sacked by Rangers in October after just four months in charge.`\
+https://nytimes.com/athletic/6927302/2025/12/29/russell-martin-columbus-crew-head-coach/
+
 **Louis V. Gerstner, Who Revived a Faltering IBM in the ’90s, Dies at 83**\
 `Installed as an outsider, he engineered a comeback, shifting the company’s focus from a waning mainframe computer business toward consulting and services.`\
 https://nytimes.com/2025/12/29/business/louis-v-gerstner-dead.html
