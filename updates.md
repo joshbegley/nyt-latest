@@ -1,3 +1,7 @@
+**Our Visual Journalism**\
+`We look at the best graphics from The Times in 2025.`\
+https://nytimes.com/2025/12/29/briefing/our-visual-journalism.html
+
 **In Caleb Williams, the Bears have a QB who can always give them a chance**\
 `Williams had one of his best performances of the season in a playoff atmosphere, but the Bears fell just short in another wild game.`\
 https://nytimes.com/athletic/6924923/2025/12/29/bears-caleb-williams-49ers/
