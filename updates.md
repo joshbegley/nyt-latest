@@ -1,3 +1,11 @@
+**The New York Times in Print for Monday, Dec. 29, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/12/29/todays-new-york-times
+
+**Why We Fall for Narcissistic Leaders, Starting in Grade School**\
+`We should know better. `\
+https://nytimes.com/2025/12/29/opinion/why-we-fall-for-narcissistic-leaders-starting-in-grade-school.html
+
 **Nasser Hussain: England's consolation win does matter, even as a reminder of what might have been**\
 `The ex-England captain also addresses rising concerns over two-day Tests and modern batting techniques, and the need not to over-compensate`\
 https://nytimes.com/athletic/6922755/2025/12/29/nasser-hussain-england-ashes-stokes-mcg-pitch/
