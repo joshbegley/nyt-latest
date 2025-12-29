@@ -1,3 +1,11 @@
+**Surge of Economic Pain Pushes Iranians to the Streets**\
+`High inflation and a currency collapse have squeezed Iranians’ budgets, challenging the country’s leaders.`\
+https://nytimes.com/2025/12/29/world/middleeast/iran-currency-collapse-rial-inflation-protests.html
+
+**7 Easy Ways to Make the Most Satisfying Tofu of Your Life**\
+`These easy upgrade will make that healthy vegetarian staple all the more special.`\
+https://nytimes.com/2025/12/29/dining/how-to-cook-tofu.html
+
 **The New Billionaires of the A.I. Boom**\
 `Just like past tech booms, the latest frenzy has produced a group of billionaires — at least on paper — from smaller start-ups.`\
 https://nytimes.com/2025/12/29/technology/new-billionaires-ai-boom.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6925952/2025/12/29/top-10-mlb-stories-2025-the-wind
 **Canucks stock watch: Who's trending up, and down, since the Quinn Hughes trade?**\
 `Without game-breaking skaters, the Canucks have largely performed like a side that's consistently undermanned.`\
 https://nytimes.com/athletic/6924803/2025/12/29/canucks-jake-debrusk-thatcher-demko-stock-watch/
-
-**British heavyweight boxer Anthony Joshua involved in car crash in Nigeria**\
-`Police say Joshua suffered minor injuries and received medical attention at the scene.`\
-https://nytimes.com/athletic/6925572/2025/12/29/anthony-joshua-car-crash-nigeria/
-
-**The Bounce: How to make sense of the Lakers and Clippers. And was this Wemby's best dunk?**\
-`Zach Harper catches you up on the latest NBA news in our newsletter.`\
-https://nytimes.com/athletic/6925855/2025/12/29/nba-clippers-lakers-wembanyama-the-bounce/
 

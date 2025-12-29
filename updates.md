@@ -1,3 +1,19 @@
+**The New Billionaires of the A.I. Boom**\
+`Just like past tech booms, the latest frenzy has produced a group of billionaires — at least on paper — from smaller start-ups.`\
+https://nytimes.com/2025/12/29/technology/new-billionaires-ai-boom.html
+
+**For Arizona State, coordinator Brian Ward's boxing past shapes a strong defense**\
+`"The way he prepares and the way he studies offenses ... in my mind, it all correlates back to boxing," says an ASU assistant of Ward.`\
+https://nytimes.com/athletic/6924536/2025/12/29/arizona-state-football-coordinator-brian-ward-boxing-sun-bowl/
+
+**A Love Letter to My Dutch Oven on Our 28th Anniversary**\
+`How a piece of kitchen equipment watched me grow up.`\
+https://nytimes.com/2025/12/29/opinion/dutch-oven-cooking-kitchen.html
+
+**Dan Dan Noodle Salad for Delicious Lounging**\
+`These (hopefully) lazy days between Christmas and the new year call for spicy, nutty noodles tangled around snappy green vegetables.`\
+https://nytimes.com/2025/12/29/dining/dan-dan-noodle-salad-for-delicious-lounging.html
+
 **11 Voters on Trump’s First Year**\
 `There is avid support, deep anger and for one person, regret over his choice last year.`\
 https://nytimes.com/2025/12/29/us/politics/trump-first-year-voter-voices.html

@@ -1,3 +1,19 @@
+**The New Billionaires of the A.I. Boom**\
+`Just like past tech booms, the latest frenzy has produced a group of billionaires — at least on paper — from smaller start-ups.`\
+https://nytimes.com/2025/12/29/technology/new-billionaires-ai-boom.html
+
+**For Arizona State, coordinator Brian Ward's boxing past shapes a strong defense**\
+`"The way he prepares and the way he studies offenses ... in my mind, it all correlates back to boxing," says an ASU assistant of Ward.`\
+https://nytimes.com/athletic/6924536/2025/12/29/arizona-state-football-coordinator-brian-ward-boxing-sun-bowl/
+
+**A Love Letter to My Dutch Oven on Our 28th Anniversary**\
+`How a piece of kitchen equipment watched me grow up.`\
+https://nytimes.com/2025/12/29/opinion/dutch-oven-cooking-kitchen.html
+
+**Dan Dan Noodle Salad for Delicious Lounging**\
+`These (hopefully) lazy days between Christmas and the new year call for spicy, nutty noodles tangled around snappy green vegetables.`\
+https://nytimes.com/2025/12/29/dining/dan-dan-noodle-salad-for-delicious-lounging.html
+
 **11 Voters on Trump’s First Year**\
 `There is avid support, deep anger and for one person, regret over his choice last year.`\
 https://nytimes.com/2025/12/29/us/politics/trump-first-year-voter-voices.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6925572/2025/12/29/anthony-joshua-car-crash-nigeria
 **The Bounce: How to make sense of the Lakers and Clippers. And was this Wemby's best dunk?**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/6925855/2025/12/29/nba-clippers-lakers-wembanyama-the-bounce/
-
-**Clothes With Stories to Tell**\
-`See all the outfits from around the world that were featured this year in our Look of the Week column.`\
-https://nytimes.com/2025/12/29/style/street-style-outfits-2025.html
-
-**Submit a question for Pete Sampson's next Notre Dame football mailbag**\
-`It's been a busy December around Notre Dame football, even though the Fighting Irish haven't played since Thanksgiving weekend.`\
-https://nytimes.com/athletic/6925772/2025/12/29/submit-a-question-for-pete-sampsons-next-notre-dame-football-mailbag/
-
-**Brock Purdy, slinging and dancing, makes anything possible for these 49ers**\
-`When Purdy plays like this, he infuses an intoxicating aura into his team. And now, improbably, the 49ers are one win from the No. 1 seed.`\
-https://nytimes.com/athletic/6925221/2025/12/29/49ers-brock-purdy-qb-playoffs-super-bowl-dance/
-
-**USMNT Player Tracker: 'Diabolical' Pulisic, Aaronson impresses and no Richards panic**\
-`Our roundup of the U.S. contingent's contributions across Europe also sees Patrick Agyemang continue his scoring streak in the Championship`\
-https://nytimes.com/athletic/6925247/2025/12/29/usmnt-pulisic-aaronson-richards-tracker/
 
