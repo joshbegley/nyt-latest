@@ -6,7 +6,7 @@ https://nytimes.com/athletic/6924131/2025/12/28/panthers-nfc-south-playoffs-bucs
 `Led by DeMarcus Lawrence, Seattle's defense swamped the Panthers, moving within one win of a first-round playoff bye.`\
 https://nytimes.com/athletic/6924068/2025/12/28/seahawks-panthers-defense-nfc-1-seed/
 
-**Jrue Holidays on Celtics-Trail Blazers trade, Brad Stevens' honesty and enjoying Portland**\
+**Jrue Holiday on Celtics-Trail Blazers trade, Brad Stevens' honesty and enjoying Portland**\
 `Jrue Holiday has no hard feelings toward the Boston Celtics after they traded him over the offseason.`\
 https://nytimes.com/athletic/6923871/2025/12/28/jrue-holiday-discusses-trade-celtics-trail-blazers/
 

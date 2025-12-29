@@ -1,3 +1,7 @@
+**Jrue Holiday on Celtics-Trail Blazers trade, Brad Stevens' honesty and enjoying Portland**\
+`Jrue Holiday has no hard feelings toward the Boston Celtics after they traded him over the offseason.`\
+https://nytimes.com/athletic/6923871/2025/12/28/jrue-holiday-discusses-trade-celtics-trail-blazers/
+
 **Panthers-Bucs for the NFC South title in Week 18: 'You wouldn't have it any other way'**\
 `Despite the loss Sunday, the Panthers travel to Tampa to play the Bucs in Week 18 with the opportunity to claim the division with a victory.`\
 https://nytimes.com/athletic/6924131/2025/12/28/panthers-nfc-south-playoffs-bucs-week-18/
