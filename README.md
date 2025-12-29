@@ -1,3 +1,7 @@
+**Brock Purdy, slinging and dancing, makes anything possible for these 49ers**\
+`When Purdy plays like this, he infuses an intoxicating aura into his team. And now, improbably, the 49ers are one win from the No. 1 seed.`\
+https://nytimes.com/athletic/6925221/2025/12/29/49ers-brock-purdy-qb-playoffs-super-bowl-dance/
+
 **USMNT Player Tracker: 'Diabolical' Pulisic, Aaronson impresses and no Richards panic**\
 `Our roundup of the U.S. contingent's contributions across Europe also sees Patrick Agyemang continue his scoring streak in the Championship`\
 https://nytimes.com/athletic/6925247/2025/12/29/usmnt-pulisic-aaronson-richards-tracker/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6921281/2025/12/29/bruno-fernandes-injury-latest-ma
 **How to watch Wisconsin vs. Maryland women's basketball: Time, TV, streaming**\
 `Find out how to watch the Wisconsin Badgers play the Maryland Terrapins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6925397/2025/12/29/wisconsin-vs-maryland-stream-how-to-watch-dec-29/
-
-**How to watch USC vs. Nebraska women's basketball: Time, TV, streaming**\
-`Find out how to watch the USC Trojans play the Nebraska Cornhuskers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6925398/2025/12/29/usc-vs-nebraska-stream-how-to-watch-dec-29/
 
