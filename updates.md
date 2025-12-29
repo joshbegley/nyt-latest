@@ -1,3 +1,7 @@
+**A preview of The Athletic’s live coverage this week**\
+`Our live coverage this week includes the NFL regular season finale, the CFP quarterfinals, and plenty of AFCON and Premier League soccer`\
+https://nytimes.com/athletic/6924994/2025/12/29/live-coverage-schedule-nfl-cfp-afcon/
+
 **How Did This Family End Up Back in a Toxic House?**\
 `A Times investigation has found that insurers are driving families into homes contaminated by smoke. Lab results show how one family was exposed to neurotoxins and carcinogens.`\
 https://nytimes.com/interactive/2025/12/29/us/insurers-smoke-damaged-homes-toxins.html
