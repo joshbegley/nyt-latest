@@ -1,3 +1,7 @@
+**Pelicans' Jose Alvarado, Suns' Mark Williams suspended for throwing punches**\
+`On Sunday, the NBA announced suspensions for New Orleans Pelicans guard Jose Alvarado and Phoenix Suns center Mark Williams.`\
+https://nytimes.com/athletic/6924447/2025/12/28/jose-alvarado-mark-williams-suspended-pelicans-suns/
+
 **Updated 2026 NFL Draft order: Raiders hold No. 1 pick, Chiefs in top 10**\
 `What is the current order for Round 1 of the '26 draft?`\
 https://nytimes.com/athletic/6924232/2025/12/28/nfl-draft-order-2026-round-1-raiders/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/28/us/politics/jan-6-pipe-bomb.html
 **Eagles defense staves off Bills' late, dramatic comeback attempt**\
 `The Eagles held the Bills to their lowest point total of the season.`\
 https://nytimes.com/athletic/6923838/2025/12/28/eagles-bills-score-result-takeaways/
-
-**Jaylen Brown's ninth straight 30-point game ties Larry Bird's streak**\
-`Brown, whose streak now stands at nine games, will have a chance to pass Bird on Tuesday when Boston visits the Utah Jazz.`\
-https://nytimes.com/athletic/6924197/2025/12/28/jaylen-brown-nine-30-point-games-ties-larry-bird-record/
 

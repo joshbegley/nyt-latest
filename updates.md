@@ -1,3 +1,7 @@
+**Pelicans' Jose Alvarado, Suns' Mark Williams suspended for throwing punches**\
+`On Sunday, the NBA announced suspensions for New Orleans Pelicans guard Jose Alvarado and Phoenix Suns center Mark Williams.`\
+https://nytimes.com/athletic/6924447/2025/12/28/jose-alvarado-mark-williams-suspended-pelicans-suns/
+
 **An oral history of Bengal Cody Ford's hitch: 'I think we are actually going to call this'**\
 `The offensive lineman's 21-yard catch-and-run was a birthday memory he won't soon forget.`\
 https://nytimes.com/athletic/6924281/2025/12/28/cody-ford-reception-bengals-cardinals/
