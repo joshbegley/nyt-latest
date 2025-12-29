@@ -1,3 +1,15 @@
+**Trump Says the U.S. Struck a ‘Big Facility’ in Campaign Against Venezuela**\
+`The administration provided no details of what the president said was an attack last week linked to U.S. efforts to disrupt drug trafficking from Latin America.`\
+https://nytimes.com/2025/12/28/us/politics/trump-drug-facility-venezuela.html
+
+**Brazeau hat trick leads Penguins' demolition of Chicago: Observations**\
+`The Penguins put together a badly needed emphatic win with a 7-3 laugher over the Bedard-less Blackhawks.`\
+https://nytimes.com/athletic/6924407/2025/12/28/penguins-brazeau-hat-trick-blackhawks/
+
+**We Asked for Environmental Fixes in Your State. You Sent In Thousands.**\
+`Readers submitted more than 3,200 ideas for our 50 States, 50 Fixes series. Before the year ends, we wanted to share just a few more of them.`\
+https://nytimes.com/interactive/2025/12/28/climate/us-eco-friendly-projects-readers.html
+
 **Don't tell Philip Rivers a game is 'meaningless.' Colts lost, but it meant something to him**\
 `To say there's "nothing to play for" is an insult to Rivers. "To say a game is meaningless is not in my DNA. (All) we do matters."`\
 https://nytimes.com/athletic/6923956/2025/12/28/colts-philip-rivers-retirement-jaguars-playoffs/
