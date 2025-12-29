@@ -1,3 +1,7 @@
+**The Pistons still have a 3-point shooting problem, with no easy solutions**\
+`While Detroit has been able to ride its defense to the top of the East, Sunday's loss showed the need to improve from long distance.`\
+https://nytimes.com/athletic/6924996/2025/12/29/detroit-pistons-3-point-shooting-loss-clippers/
+
 **Trinidad Chambliss is a star at Ole Miss. What other DII excelled shined in 2025?**\
 `Chambliss was one of the 130-plus players from the Division II, Division III and NAIA ranks who transferred into the FBS in 2025. `\
 https://nytimes.com/athletic/6921516/2025/12/29/college-football-transfers-division-ii-chambliss-ole-miss/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6923460/2025/12/29/texas-high-school-sarod-baker-ru
 **College football bowl game weekly guide: Michigan, Texas, cereal and mayonnaise**\
 `Time to go bowling — for cheese, sugar and industrial vats of mayo. This week's action beyond the CFP is both compelling and comedic.`\
 https://nytimes.com/athletic/6924176/2025/12/29/michigan-texas-iowa-college-bowl-games-how-to-watch/
-
-**The major hurdle: Why 2026 is the year for these 3 golfers**\
-`From Jeeno Thitikul to Tommy Fleetwood, we project the stars ready to break through for their first major title in 2026.`\
-https://nytimes.com/athletic/6904870/2025/12/29/golf-majors-2026-first-time-contenders/
 

@@ -1,3 +1,7 @@
+**The Pistons still have a 3-point shooting problem, with no easy solutions**\
+`While Detroit has been able to ride its defense to the top of the East, Sunday's loss showed the need to improve from long distance.`\
+https://nytimes.com/athletic/6924996/2025/12/29/detroit-pistons-3-point-shooting-loss-clippers/
+
 **Trinidad Chambliss is a star at Ole Miss. What other DII excelled shined in 2025?**\
 `Chambliss was one of the 130-plus players from the Division II, Division III and NAIA ranks who transferred into the FBS in 2025. `\
 https://nytimes.com/athletic/6921516/2025/12/29/college-football-transfers-division-ii-chambliss-ole-miss/
