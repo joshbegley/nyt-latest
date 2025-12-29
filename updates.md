@@ -1,3 +1,15 @@
+**U.S. Pledges $2 Billion for U.N. Aid but Tells Agencies to ‘Adapt, Shrink, or Die’**\
+`The announcement will likely keep the United States as the biggest international aid donor next year, even as the Trump administration slashes funding for foreign assistance programs.`\
+https://nytimes.com/2025/12/29/world/europe/us-un-aid-funding-foreign-assistance.html
+
+**Does Anybody Really Know What Time It Is?**\
+`The clocks aboard our icebreaker will be changed several times en route to Antarctica. It’s one of many things that make the expedition feel otherworldly.`\
+https://nytimes.com/2025/12/29/climate/antarctica-time-zone.html
+
+**How prediction markets mirrored the chaos of the college football coaching carousel**\
+`Prediction markets reflected the drama, and rumor-mongering, of the college football coaching carousel.`\
+https://nytimes.com/athletic/6880068/2025/12/29/prediction-markets-college-coaching-carousel-michigan-penn-state-lane-kiffin/
+
 **Russia Threatens to Toughen Its Stance on Ending the War in Ukraine**\
 `Moscow said a Ukrainian drone attack targeted a residence of President Vladimir V. Putin, which Ukraine denied, accusing the Kremlin of fabricating an excuse not to make peace.`\
 https://nytimes.com/2025/12/29/world/europe/russia-claims-ukraine-attack-putin.html

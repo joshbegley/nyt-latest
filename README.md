@@ -2,6 +2,18 @@
 `The announcement will likely keep the United States as the biggest international aid donor next year, even as the Trump administration slashes funding for foreign assistance programs.`\
 https://nytimes.com/2025/12/29/world/europe/us-un-aid-funding-foreign-assistance.html
 
+**The story behind the Reggie Miller-Steve Alford reference in 'Stranger Things'**\
+`Should the Pacers have drafted Steve Alford over Miller in 1987? One character in the Indiana-based Netflix series thinks so.`\
+https://nytimes.com/athletic/6926513/2025/12/29/reggie-miller-steve-alford-stranger-things-reference/
+
+**Trump, Pressing Ahead on Ukraine-Russia Talks, Confronts Difficult Realities**\
+`The U.S.-led negotiations have made some progress, but still face fundamental challenges, including over security guarantees to counter future Russian aggression.`\
+https://nytimes.com/2025/12/29/us/politics/trump-zelensky-putin-ukraine-russia.html
+
+**Fantasy football Week 17 recap, early waivers speed run**\
+`If your fantasy playoffs are still going, here's how to handle the last week of action.`\
+https://nytimes.com/athletic/6926088/2025/12/29/fantasy-football-week-17-recap-early-waivers-speed-run-how-to-handle-week-18/
+
 **Does Anybody Really Know What Time It Is?**\
 `The clocks aboard our icebreaker will be changed several times en route to Antarctica. It’s one of many things that make the expedition feel otherworldly.`\
 https://nytimes.com/2025/12/29/climate/antarctica-time-zone.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6926886/2025/12/29/usc-notre-dame-rivalry-lincoln-r
 **Araujo returns to Barcelona training after leave of absence**\
 `Araujo has not played for Barcelona since the 3-0 Champions League loss at Chelsea on November 25, in which he was sent off 44 minutes in.`\
 https://nytimes.com/athletic/6926546/2025/12/29/ronald-araujo-barcelona-return-absence/
-
-**Fantasy basketball hot topics of the week: Injury fallout, two top-25 sells and more**\
-`Stan Son spins the top recent NBA storylines, including a recommendation to deal away two players currently returning top-25 value.`\
-https://nytimes.com/athletic/6926509/2025/12/29/fantasy-basketball-hot-topics-waiver-targets-injuries/
-
-**Penn State hiring USC defensive coordinator D’Anton Lynn for same role: Source**\
-`James Franklin pursued Lynn for the Penn State DC vacancy last offseason, but he stayed at USC. Now, Lynn is heading to Happy Valley.`\
-https://nytimes.com/athletic/6899760/2025/12/29/danton-lynn-penn-state-usc-defensive-coordinator/
-
-**South Africa qualify for AFCON last 16 with Zimbabwe win**\
-`South Africa beat Zimbabwe 3-2 to finish second in the group and qualify for the round of 16.`\
-https://nytimes.com/athletic/6926847/2025/12/29/south-africa-afcon-zimbabwe/
 
