@@ -1,3 +1,8 @@
+**Good teams win when they play badly. Chelsea don't when they play well**\
+`This home defeat against Aston Villa was entirely of their own making - all-too-familiar issues need to be addressed
+`\
+https://nytimes.com/athletic/6922152/2025/12/29/chelsea-enzo-maresca-villa/
+
 **What it is like inside the Guardiola bubble – as told by his assistants**\
 `Those who have worked with the Manchester City manager speak of an intense and invigorating environment where there is constant evolution`\
 https://nytimes.com/athletic/6873482/2025/12/29/working-for-guardiola-manchester-city/
