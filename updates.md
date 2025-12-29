@@ -1,3 +1,11 @@
+**Trump and Zelensky Meet to Finalize Peace Plan**\
+`President Trump said a peace deal was “maybe very close” after meeting with President Volodymyr Zelensky of Ukraine. A joint U.S.-Ukraine proposal appeared to remain a work in progress as Russia rejected several ideas.`\
+https://nytimes.com/video/world/100000010612791/trump-zelensky-peace-ukraine-putin.html
+
+**Instant grades for college football's 2025-26 head-coaching hires**\
+`In college football, you never really know whether a coaching hire is going to work. But it's never too early to talk about fit.`\
+https://nytimes.com/athletic/6827060/2025/12/29/college-football-coaching-carousel-grades/
+
 **No Corrections: Dec. 26, 2025**\
 `No corrections appeared in print on Friday, Dec. 26, 2025.`\
 https://nytimes.com/2025/12/29/pageoneplus/no-corrections-dec-26-2025.html
