@@ -1,3 +1,7 @@
+**Giants-Raiders takeaways: Las Vegas now favorite to land No. 1 pick after loss**\
+`The Raiders can clinch the No. 1 pick with a loss to Kansas City next week.`\
+https://nytimes.com/athletic/6923700/2025/12/28/giants-raiders-score-nfl-draft-no-1-pick/
+
 **Drake Maye's magical season rolls on as Patriots blast Jets. Could he be the MVP?**\
 `“They don’t give me a vote,” coach Mike Vrabel said of Maye’s MVP case. “But there’s nobody else that I want as our quarterback."`\
 https://nytimes.com/athletic/6924025/2025/12/28/drake-maye-patriots-jets-nfl-mvp-race/
