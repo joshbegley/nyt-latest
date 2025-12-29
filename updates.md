@@ -1,3 +1,11 @@
+**Louis V. Gerstner, Who Revived a Faltering IBM in the ’90s, Dies at 83**\
+`Installed as an outsider, he engineered a comeback, shifting the company’s focus from a waning mainframe computer business toward consulting and services.`\
+https://nytimes.com/2025/12/29/business/louis-v-gerstner-dead.html
+
+**Au Revoir, Brigitte Bardot**\
+`In Brigitte Bardot’s death I see the passing of a generation: the Frenchwomen who tried to find a path to autonomy in the 1950s and ’60s.`\
+https://nytimes.com/2025/12/29/opinion/brigitte-bardot-france.html
+
 **Israel Strips U.N. Agency for Palestinian Refugees of Diplomatic Immunity**\
 `The legislation was the latest blow to the agency, known as UNRWA. Israel has accused it of being extensively infiltrated by Hamas.`\
 https://nytimes.com/2025/12/29/world/middleeast/israel-unrwa-diplomatic-immunity.html

@@ -12,7 +12,7 @@ https://nytimes.com/2025/12/29/world/middleeast/israel-unrwa-diplomatic-immunity
 
 **Martin among final candidates for Columbus Crew head coach role**\
 `Martin was sacked by Rangers in October after just four months in charge.`\
-https://nytimes.com/athletic/6927302/2025/12/29/russell-martin-among-final-candidates-for-columbus-crew-head-coach-role/
+https://nytimes.com/athletic/6927302/2025/12/29/russell-martin-columbus-crew-head-coach/
 
 **Mamdani Will Be Sworn In at Abandoned Subway Station Beneath City Hall**\
 `Hours before Mayor-elect Zohran Mamdani holds an inauguration block party outside City Hall, he will officially become mayor in a small private ceremony.`\
