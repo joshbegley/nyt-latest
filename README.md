@@ -1,40 +1,40 @@
-**Ian Thorpe completes challenging Sydney Hobart Race: 'I’m exhausted. I’m tired'**\
-`Five-time Olympic gold medalist Ian Thorpe took part in the Sydney Hobart Race for the first time`\
-https://nytimes.com/athletic/6924936/2025/12/29/sydney-hobart-race-ian-thorpe/
+**Brock Purdy’s 5 Total Touchdowns Lead 49ers Past Bears in Thriller**\
+`The San Francisco 49ers outlasted the Chicago Bears in a thrilling 42-38 win that fittingly came down to the final play.`\
+https://nytimes.com/video/sports/football/100000010612988/brock-purdys-5-total-touchdowns-lead-49ers-past-bears-in-thriller.html
 
-**A preview of The Athletic’s live coverage this week**\
-`Our live coverage this week includes the NFL regular season finale, the CFP quarterfinals, and plenty of AFCON and Premier League soccer`\
-https://nytimes.com/athletic/6924994/2025/12/29/live-coverage-schedule-nfl-cfp-afcon/
+**From A.I. to Immigration, These New State Laws Will Take Effect in 2026**\
+`States across the country have also passed new rules around cellphone usage for minors, medically assisted death and gender-related care.`\
+https://nytimes.com/2025/12/29/us/new-state-laws-2026.html
 
-**How Did This Family End Up Back in a Toxic House?**\
-`A Times investigation has found that insurers are driving families into homes contaminated by smoke. Lab results show how one family was exposed to neurotoxins and carcinogens.`\
-https://nytimes.com/interactive/2025/12/29/us/insurers-smoke-damaged-homes-toxins.html
+**A Bold Alliance Ends as Innovative Opera Director Bows Out in Detroit**\
+`Yuval Sharon will leave the financially strained Detroit Opera after this season. In March, he brings his unorthodox vision to Wagner at the Metropolitan Opera.`\
+https://nytimes.com/2025/12/29/arts/music/yuval-sharon-detroit-opera.html
 
-**As Mamdani Leaves Queens for the Upper East Side, a Cool Welcome Awaits**\
-`Mayor-elect Zohran Mamdani loves his Astoria, Queens, neighborhood, and the feeling is mutual. But voters who live near Gracie Mansion, his new home, really wanted his opponent to win.`\
-https://nytimes.com/2025/12/29/nyregion/mamdani-gracie-neighborhood-astoria.html
+**$3.25 Million Homes in California**\
+`This week’s properties include a midcentury modern house in Los Angeles, a full-floor condo in San Francisco and a cottage in Carmel.`\
+https://nytimes.com/2025/12/29/realestate/3-million-dollar-homes-san-francisco-carmel-los-angeles.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/12/29/crosswords/spelling-bee-forum.html
+**Three Great Documentaries to Stream**\
+`In this month’s picks, Sydney Pollack on Frank Gehry, Rob Reiner on Albert Brooks and Mike Figgis on Francis Ford Coppola.`\
+https://nytimes.com/2025/12/29/movies/streaming-documentaries-frank-gehry-rob-reiner.html
 
-**New Year’s Eve Specials, Plus 4 Things to Watch on TV This Week**\
-`CNN, CBS and ABC ring in 2026, and a new reality show set in Palm Beach begins.`\
-https://nytimes.com/2025/12/29/arts/television/new-years-eve-specials-plus-4-things-to-watch-on-tv-this-week.html
+**Five Takeaways From the New York Times Profile of Marjorie Taylor Greene**\
+`The congresswoman discussed her break with President Trump and her journey from MAGA zealot to political isolation.`\
+https://nytimes.com/2025/12/29/magazine/marjorie-taylor-greene-interview-takeaways.html
 
-**The New York Times in Print for Monday, Dec. 29, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/12/29/todays-new-york-times
+**The Best Sentences of 2025**\
+`Savor the words that made sense of our world.`\
+https://nytimes.com/2025/12/29/opinion/best-sentences-journalism-writing.html
 
-**Why We Fall for Narcissistic Leaders, Starting in Grade School**\
-`We should know better. `\
-https://nytimes.com/2025/12/29/opinion/why-we-fall-for-narcissistic-leaders-starting-in-grade-school.html
+**5 Operas You Can Watch at Home Now**\
+`Recent stagings of classics like “La Traviata” and rarities like “Intermezzo” are among the highlights.`\
+https://nytimes.com/2025/12/29/arts/music/operas-to-watch-at-home.html
 
-**Nasser Hussain: England's consolation win does matter, even as a reminder of what might have been**\
-`The ex-England captain also addresses rising concerns over two-day Tests and modern batting techniques, and the need not to over-compensate`\
-https://nytimes.com/athletic/6922755/2025/12/29/nasser-hussain-england-ashes-stokes-mcg-pitch/
+**‘I Was Just So Naïve’: Inside Marjorie Taylor Greene’s Break With Trump**\
+`How the Georgia congresswoman went from the president’s loudest cheerleader to his loudest Republican critic.`\
+https://nytimes.com/2025/12/29/magazine/marjorie-taylor-greene-trump-maga-split.html
 
-**The image that summed up all that is wrong at West Ham**\
-`Ollie Scarles is an academy graduate making his way in the first team. Where were West Ham's leaders after he was in tears?`\
-https://nytimes.com/athletic/6921248/2025/12/29/west-ham-ollie-scarles-tears-nuno-squad/
+**A Story of Hip-Hop Rehabilitation With the Body as Battleground**\
+`Dahlak Brathwaite’s “Try/Step/Trip,” part of the Under the Radar festival, uses the language of step to express the liberating and restricting power of groups.`\
+https://nytimes.com/2025/12/29/arts/dance/try-step-trip-under-the-radar-dahlak-brathwaite.html
 
