@@ -1,3 +1,15 @@
+**The story behind the Reggie Miller-Steve Alford reference in 'Stranger Things'**\
+`Should the Pacers have drafted Steve Alford over Miller in 1987? One character in the Indiana-based Netflix series thinks so.`\
+https://nytimes.com/athletic/6926513/2025/12/29/reggie-miller-steve-alford-stranger-things-reference/
+
+**Trump, Pressing Ahead on Ukraine-Russia Talks, Confronts Difficult Realities**\
+`The U.S.-led negotiations have made some progress, but still face fundamental challenges, including over security guarantees to counter future Russian aggression.`\
+https://nytimes.com/2025/12/29/us/politics/trump-zelensky-putin-ukraine-russia.html
+
+**Fantasy football Week 17 recap, early waivers speed run**\
+`If your fantasy playoffs are still going, here's how to handle the last week of action.`\
+https://nytimes.com/athletic/6926088/2025/12/29/fantasy-football-week-17-recap-early-waivers-speed-run-how-to-handle-week-18/
+
 **U.S. Pledges $2 Billion for U.N. Aid but Tells Agencies to ‘Adapt, Shrink, or Die’**\
 `The announcement will likely keep the United States as the biggest international aid donor next year, even as the Trump administration slashes funding for foreign assistance programs.`\
 https://nytimes.com/2025/12/29/world/europe/us-un-aid-funding-foreign-assistance.html
