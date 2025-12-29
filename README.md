@@ -1,3 +1,7 @@
+**Wiegman, England women's team lead New Year Honours List**\
+`The coach and members of the England women's rugby team were also recognised after their World Cup win in the summer. `\
+https://nytimes.com/athletic/6925242/2025/12/29/new-year-honours-list-2026-wiegman/
+
 **Idris Elba and Cynthia Erivo Make King Charles’s New Year Honors List**\
 `Mr. Elba received a knighthood and Ms. Erivo was also honored in an annual British tradition celebrating professional excellence and community service.`\
 https://nytimes.com/2025/12/29/world/europe/idris-elba-cynthia-erivo-king-charles-honors.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/obituaries/notable-deaths.html
 **Louis V. Gerstner, Who Revived a Faltering IBM in the ’90s, Dies at 83**\
 `Installed as an outsider, he engineered a comeback, shifting the company’s focus from a waning mainframe computer business toward consulting and services.`\
 https://nytimes.com/2025/12/29/business/louis-v-gerstner-dead.html
-
-**Au Revoir, Brigitte Bardot**\
-`In Brigitte Bardot’s death I see the passing of a generation: the Frenchwomen who tried to find a path to autonomy in the 1950s and ’60s.`\
-https://nytimes.com/2025/12/29/opinion/brigitte-bardot-france.html
 
