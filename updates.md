@@ -1,3 +1,11 @@
+**Train Derailment in Mexico Leaves Several Dead**\
+`More than a dozen people were killed when a passenger train derailed on Sunday in the Mexican state of Oaxaca, according to the authorities. An investigation into the cause has been opened.`\
+https://nytimes.com/video/world/americas/100000010612821/mexico-train-crash.html
+
+**Fernandes pushing for quick Man Utd return but out of Wolves game**\
+`United head coach Ruben Amorim also ruled out Kobbie Mainoo, Matthijs De Ligt and Harry Maguire ahead of Tuesday's match.`\
+https://nytimes.com/athletic/6921281/2025/12/29/bruno-fernandes-injury-latest-man-utd/
+
 **How to watch Wisconsin vs. Maryland women's basketball: Time, TV, streaming**\
 `Find out how to watch the Wisconsin Badgers play the Maryland Terrapins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6925397/2025/12/29/wisconsin-vs-maryland-stream-how-to-watch-dec-29/

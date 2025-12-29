@@ -1,3 +1,7 @@
+**Arteta says Arsenal must be ‘actively looking’ at signings in January**\
+`Arsenal spent nearly £250million ($337m) on eight new players in the summer.`\
+https://nytimes.com/athletic/6925424/2025/12/29/mikel-arteta-arsenal-january-transfers/
+
 **Train Derailment in Mexico Leaves Several Dead**\
 `More than a dozen people were killed when a passenger train derailed on Sunday in the Mexican state of Oaxaca, according to the authorities. An investigation into the cause has been opened.`\
 https://nytimes.com/video/world/americas/100000010612821/mexico-train-crash.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6925070/2025/12/29/how-the-premier-league-relegatio
 **Blame Bobo: Georgia’s longtime OC is often the focus of fan ire — and he is well aware**\
 `Mike Bobo's run at Georgia has inspired memes and social media consternation. But his offense has the Bulldogs in contention to win a title.`\
 https://nytimes.com/athletic/6925119/2025/12/29/mike-bobo-georgia-football-playoff/
-
-**Lowetide: What are the Oilers' options for an outscoring third line?**\
-`The Oilers need to find a useful third line with some combination of skill, defensive acumen and physicality.`\
-https://nytimes.com/athletic/6922946/2025/12/29/edmonton-oilers-lineup-lines-stats-2025/
 
