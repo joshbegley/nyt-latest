@@ -1,3 +1,7 @@
+**Lopsided loss to Penguins further proof process, not results, matters right now**\
+`Coach Jeff Blashill and captain Nick Foligno are taking the long-term view, with young players getting more opportunities every game.`\
+https://nytimes.com/athletic/6924371/2025/12/28/blackhawks-process-lardis-foligno-penguins/
+
 **Fire at home owned by NASCAR star Denny Hamlin leaves 2 hospitalized**\
 `It's not yet known whether anyone was home when the fire began.`\
 https://nytimes.com/athletic/6924458/2025/12/28/denny-hamlin-parents-giant-house-fire-nascar/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6924112/2025/12/28/sixers-losing-streak-third-quart
 **We Asked for Environmental Fixes in Your State. You Sent In Thousands.**\
 `Readers submitted more than 3,200 ideas for our 50 States, 50 Fixes series. Before the year ends, we wanted to share just a few more of them.`\
 https://nytimes.com/interactive/2025/12/28/climate/us-eco-friendly-projects-readers.html
-
-**Pelicans' Jose Alvarado, Suns' Mark Williams suspended for throwing punches**\
-`The players were involved in an altercation during the teams' game on Saturday night.`\
-https://nytimes.com/athletic/6924447/2025/12/28/jose-alvarado-mark-williams-suspended-pelicans-suns/
 
