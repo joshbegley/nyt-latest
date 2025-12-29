@@ -1,3 +1,7 @@
+**How Did This Family End Up Back in a Toxic House?**\
+`A Times investigation has found that insurers are driving families into homes contaminated by smoke. Lab results show how one family was exposed to neurotoxins and carcinogens.`\
+https://nytimes.com/interactive/2025/12/29/us/insurers-smoke-damaged-homes-toxins.html
+
 **As Mamdani Leaves Queens for the Upper East Side, a Cool Welcome Awaits**\
 `Mayor-elect Zohran Mamdani loves his Astoria, Queens, neighborhood, and the feeling is mutual. But voters who live near Gracie Mansion, his new home, really wanted his opponent to win.`\
 https://nytimes.com/2025/12/29/nyregion/mamdani-gracie-neighborhood-astoria.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/29/world/asia/china-taiwan-military-exercises.html
 **Yoro's first 18 months at United has shown potential - it just needs nurturing**\
 `The defender only recently turned 20 but has already played 50 games for the club. There's still work to do, but the signs are encouraging`\
 https://nytimes.com/athletic/6921538/2025/12/29/manchester-united-leny-yoro-potential/
-
-**Crystal Palace are running out of answers in attack – and Yeremy Pino is feeling the strain**\
-`The 23-year-old is a long-term option, but amid injuries and absences, Palace need him to step up sooner`\
-https://nytimes.com/athletic/6916457/2025/12/29/crystal-palace-yeremy-pino-attack-answers/
 
