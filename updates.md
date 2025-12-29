@@ -1,3 +1,7 @@
+**NFL overreactions: Seattle is the pick in battle for NFC's No. 1 seed**\
+`Toby Mergler has a few wagers in mind for NFL Week 18.`\
+https://nytimes.com/athletic/6926137/2025/12/29/nfl-overreactions-betting-week-18-seattle-nfc/
+
 **Nottingham Forest file PGMOL complaint over decisions vs. Man City**\
 `The club have put their concerns in writing regarding two key moments during the defeat.`\
 https://nytimes.com/athletic/6926463/2025/12/29/nottingham-forest-manchester-city-pgmol-refereeing/

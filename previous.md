@@ -1,3 +1,7 @@
+**NFL overreactions: Seattle is the pick in battle for NFC's No. 1 seed**\
+`Toby Mergler has a few wagers in mind for NFL Week 18.`\
+https://nytimes.com/athletic/6926137/2025/12/29/nfl-overreactions-betting-week-18-seattle-nfc/
+
 **Nottingham Forest file PGMOL complaint over decisions vs. Man City**\
 `The club have put their concerns in writing regarding two key moments during the defeat.`\
 https://nytimes.com/athletic/6926463/2025/12/29/nottingham-forest-manchester-city-pgmol-refereeing/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6926310/2025/12/29/capitals-vs-panthers-stream-how-
 **How to watch Bucks vs. Hornets: Time, TV, streaming**\
 `Find out how to watch the Milwaukee Bucks play the Charlotte Hornets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6926307/2025/12/29/bucks-vs-hornets-stream-how-to-watch-dec-29/
-
-**How to watch Suns vs. Wizards: Time, TV, streaming**\
-`Find out how to watch the Phoenix Suns play the Washington Wizards, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6926303/2025/12/29/suns-vs-wizards-stream-how-to-watch-dec-29/
 
