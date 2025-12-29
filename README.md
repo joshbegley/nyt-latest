@@ -1,3 +1,7 @@
+**Araujo returns to Barcelona training after leave of absence**\
+`Araujo has not played for Barcelona since the 3-0 Champions League loss at Chelsea on November 25, in which he was sent off 44 minutes in.`\
+https://nytimes.com/athletic/6926546/2025/12/29/ronald-araujo-barcelona-return-absence/
+
 **Fantasy basketball hot topics of the week: Injury fallout, two top-25 sells and more**\
 `Stan Son spins the top recent NBA storylines, including a recommendation to deal away two players currently returning top-25 value.`\
 https://nytimes.com/athletic/6926509/2025/12/29/fantasy-basketball-hot-topics-waiver-targets-injuries/
