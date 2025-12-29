@@ -1,3 +1,7 @@
+**How Did This Family End Up Back in a Toxic House?**\
+`A Times investigation has found that insurers are driving families into homes contaminated by smoke. Lab results show how one family was exposed to neurotoxins and carcinogens.`\
+https://nytimes.com/interactive/2025/12/29/us/insurers-smoke-damaged-homes-toxins.html
+
 **As Mamdani Leaves Queens for the Upper East Side, a Cool Welcome Awaits**\
 `Mayor-elect Zohran Mamdani loves his Astoria, Queens, neighborhood, and the feeling is mutual. But voters who live near Gracie Mansion, his new home, really wanted his opponent to win.`\
 https://nytimes.com/2025/12/29/nyregion/mamdani-gracie-neighborhood-astoria.html
