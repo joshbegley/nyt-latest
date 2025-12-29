@@ -1,3 +1,15 @@
+**The Pulse: The most miserable NFL fans after Week 17**\
+`The Athletic has live coverage of Bears vs.`\
+https://nytimes.com/athletic/6924583/2025/12/29/nfl-week-17-fan-misery-index-the-pulse/
+
+**Rams at Falcons on MNF: Updated odds, playoff stakes, Stafford's MVP push**\
+`There's much to appreciate around this week's "Monday Night Football" offering. Here's what viewers should know before kickoff.`\
+https://nytimes.com/athletic/6924681/2025/12/29/rams-falcons-mnf-stafford-nacua-how-to-watch/
+
+**How important is winning finale for Cowboys? 5 things we're watching**\
+`The Cowboys could use this game to get closer looks at rookie RB Jaydon Blue, TE Brevyn Spann-Ford and backup QB Joe Milton.`\
+https://nytimes.com/athletic/6923721/2025/12/29/cowboys-week-18-final-game-dak-prescott/
+
 **How will the Lions treat their final game? Multiple layers to that decision**\
 `Detroit's injury situation, draft position, 2026 schedule and finishing with a winning record all are considerations going into finale.`\
 https://nytimes.com/athletic/6923645/2025/12/29/lions-dan-campbe-decision-week-18-bears/

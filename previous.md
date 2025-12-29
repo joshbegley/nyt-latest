@@ -1,3 +1,15 @@
+**The Pulse: The most miserable NFL fans after Week 17**\
+`The Athletic has live coverage of Bears vs.`\
+https://nytimes.com/athletic/6924583/2025/12/29/nfl-week-17-fan-misery-index-the-pulse/
+
+**Rams at Falcons on MNF: Updated odds, playoff stakes, Stafford's MVP push**\
+`There's much to appreciate around this week's "Monday Night Football" offering. Here's what viewers should know before kickoff.`\
+https://nytimes.com/athletic/6924681/2025/12/29/rams-falcons-mnf-stafford-nacua-how-to-watch/
+
+**How important is winning finale for Cowboys? 5 things we're watching**\
+`The Cowboys could use this game to get closer looks at rookie RB Jaydon Blue, TE Brevyn Spann-Ford and backup QB Joe Milton.`\
+https://nytimes.com/athletic/6923721/2025/12/29/cowboys-week-18-final-game-dak-prescott/
+
 **How will the Lions treat their final game? Multiple layers to that decision**\
 `Detroit's injury situation, draft position, 2026 schedule and finishing with a winning record all are considerations going into finale.`\
 https://nytimes.com/athletic/6923645/2025/12/29/lions-dan-campbe-decision-week-18-bears/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6876922/2025/12/29/kalshi-polymarket-predictive-bet
 **Can NBA’s new proposals fix tanking? Is it even worth it for the league to try?**\
 `There are many reasons beyond wagering for the NBA to want to disincentivize teams from punting on games or seasons.`\
 https://nytimes.com/athletic/6920494/2025/12/29/nba-tanking-rules-preventions-restrictions/
-
-**F1's 2022 car era is over - it's unlikely to be missed**\
-`The cars will have to conform to fresh design rules in 2026 - will they be more popular than those which governed the past four seasons?`\
-https://nytimes.com/athletic/6915030/2025/12/29/f1-2022-car-rules-changes/
-
-**49ers' red-hot run game flourishes without George Kittle or Trent Williams**\
-`Little-known Austen Pleasants filled in for All-Pro Trent Williams for all but one snap — and the 49ers offense didn't miss a beat.`\
-https://nytimes.com/athletic/6924922/2025/12/29/49ers-run-game-george-kittle-trent-williams/
-
-**College football's ultimate question: How is Indiana doing this?**\
-`The Hoosiers’ rise was once hailed as a program-building miracle of biblical scale, but with each victory, their dominance gets more real.`\
-https://nytimes.com/athletic/6915590/2025/12/29/indiana-football-curt-cignetti-rose-bowl/
 
