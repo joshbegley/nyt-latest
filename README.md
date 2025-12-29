@@ -1,9 +1,17 @@
+**Train Derailment Kills 13 in Mexico**\
+`The train was carrying around 250 passengers and crew members on a cross-country route linking the Pacific and the Gulf of Mexico. Nearly 100 people were injured.`\
+https://nytimes.com/2025/12/28/world/americas/mexico-train-crash.html
+
+**Sixers searching for answers amid 3-game skid as third-quarter woes mount on road trip**\
+`The Sixers haven't won four consecutive games since the beginning of the season, but they also hadn't lost three straight until now.`\
+https://nytimes.com/athletic/6924112/2025/12/28/sixers-losing-streak-third-quarter-tyrese-maxey/
+
 **We Asked for Environmental Fixes in Your State. You Sent In Thousands.**\
 `summary`\
 https://nytimes.com/interactive/2025/12/28/climate/us-eco-friendly-projects-readers.html
 
 **Pelicans' Jose Alvarado, Suns' Mark Williams suspended for throwing punches**\
-`On Sunday, the NBA announced suspensions for New Orleans Pelicans guard Jose Alvarado and Phoenix Suns center Mark Williams.`\
+`The players were involved in an altercation during the teams' game on Saturday night.`\
 https://nytimes.com/athletic/6924447/2025/12/28/jose-alvarado-mark-williams-suspended-pelicans-suns/
 
 **Updated 2026 NFL Draft order: Raiders hold No. 1 pick, Chiefs in top 10**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6924281/2025/12/28/cody-ford-reception-bengals-card
 **How to watch Wake Forest vs. Mississippi State: Duke's Mayo Bowl Start Time, TV, streaming**\
 `Find out how to watch the Wake Forest Demon Deacons play the Mississippi State Bulldogs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6924384/2025/12/28/wake-forest-vs-mississippi-state-stream-how-to-watch-jan-2/
-
-**Despite no sacks, Myles Garrett wreaked havoc in Browns' upset win over Steelers**\
-`Cleveland's defense carried the day vs. Pittsburgh, closing a strong run of home performances with a masterpiece.`\
-https://nytimes.com/athletic/6924159/2025/12/28/browns-win-steelers-myles-garrett-sacks-record/
-
-**Suspect Confessed to Planting Pipe Bombs Near the Capitol Before Jan. 6**\
-`A Virginia man was charged with planting the bombs outside Democratic and Republican headquarters. Court documents show he believed that the 2020 election had been “tampered with.”`\
-https://nytimes.com/2025/12/28/us/politics/jan-6-pipe-bomb.html
 

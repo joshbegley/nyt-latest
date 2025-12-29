@@ -1,3 +1,7 @@
+**We Asked for Environmental Fixes in Your State. You Sent In Thousands.**\
+`summary`\
+https://nytimes.com/interactive/2025/12/28/climate/us-eco-friendly-projects-readers.html
+
 **Pelicans' Jose Alvarado, Suns' Mark Williams suspended for throwing punches**\
 `On Sunday, the NBA announced suspensions for New Orleans Pelicans guard Jose Alvarado and Phoenix Suns center Mark Williams.`\
 https://nytimes.com/athletic/6924447/2025/12/28/jose-alvarado-mark-williams-suspended-pelicans-suns/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6924159/2025/12/28/browns-win-steelers-myles-garret
 **Suspect Confessed to Planting Pipe Bombs Near the Capitol Before Jan. 6**\
 `A Virginia man was charged with planting the bombs outside Democratic and Republican headquarters. Court documents show he believed that the 2020 election had been “tampered with.”`\
 https://nytimes.com/2025/12/28/us/politics/jan-6-pipe-bomb.html
-
-**Eagles defense staves off Bills' late, dramatic comeback attempt**\
-`The Eagles held the Bills to their lowest point total of the season.`\
-https://nytimes.com/athletic/6923838/2025/12/28/eagles-bills-score-result-takeaways/
 
