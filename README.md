@@ -1,3 +1,7 @@
+**Why Sweden's Ivar Stenberg is a contender to go No. 1 in 2026 NHL Draft**\
+`If Stenberg is going to be picked at the top of the draft, his play for Sweden at the World Juniors could make the difference.`\
+https://nytimes.com/athletic/6922328/2025/12/29/ivar-stenberg-nhl-draft-sweden-stats/
+
 **What We’re Bringing to Antarctica**\
 `What do a New York Times reporter and photographer pack for a two-month expedition to the fastest-melting glacier in Antarctica? Raymond Zhong and Chang W. Lee compare the must-have gear that they’re bringing for the journey.`\
 https://nytimes.com/video/climate/100000010613980/what-were-bringing-to-antarctica.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6927213/2025/12/29/timberwolves-vs-bulls-stream-how
 **How to watch Hawks vs. Thunder: Time, TV, streaming**\
 `Find out how to watch the Atlanta Hawks play the Oklahoma City Thunder, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6927210/2025/12/29/hawks-vs-thunder-stream-how-to-watch-dec-29/
-
-**How to watch Canucks vs. Kraken: Time, TV, streaming**\
-`Find out how to watch the Vancouver Canucks play the Seattle Kraken, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6927208/2025/12/29/canucks-vs-kraken-stream-how-to-watch-dec-29/
 
