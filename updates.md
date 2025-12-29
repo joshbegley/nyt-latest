@@ -1,3 +1,7 @@
+**For Zelensky, Just Keeping Trump Talking Counts as a Win**\
+`Though discussions produced little tangible progress, President Volodymyr Zelensky of Ukraine at least avoided the type of setbacks that have blighted earlier meetings.`\
+https://nytimes.com/2025/12/29/world/europe/zelensky-trump-ukraine-peace-talks.html
+
 **The Ravens' season is riding on Week 18. Lamar Jackson's future could be, too: Sando's Pick Six**\
 `Does any team have more at stake on the final week of the regular season than Baltimore?`\
 https://nytimes.com/athletic/6909520/2025/12/29/lamar-jackson-ravens-contract-trade/
