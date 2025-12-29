@@ -1,3 +1,7 @@
+**Lopsided loss to Penguins further proof process, not results, matters right now**\
+`Coach Jeff Blashill and captain Nick Foligno are taking the long-term view, with young players getting more opportunities every game.`\
+https://nytimes.com/athletic/6924371/2025/12/28/blackhawks-process-lardis-foligno-penguins/
+
 **Fire at home owned by NASCAR star Denny Hamlin leaves 2 hospitalized**\
 `It's not yet known whether anyone was home when the fire began.`\
 https://nytimes.com/athletic/6924458/2025/12/28/denny-hamlin-parents-giant-house-fire-nascar/
