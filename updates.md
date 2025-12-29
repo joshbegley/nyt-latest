@@ -1,3 +1,15 @@
+**Train Derailment Kills 13 in Mexico**\
+`The train was carrying around 250 passengers and crew members on a cross-country route linking the Pacific and the Gulf of Mexico. Nearly 100 people were injured.`\
+https://nytimes.com/2025/12/28/world/americas/mexico-train-crash.html
+
+**Sixers searching for answers amid 3-game skid as third-quarter woes mount on road trip**\
+`The Sixers haven't won four consecutive games since the beginning of the season, but they also hadn't lost three straight until now.`\
+https://nytimes.com/athletic/6924112/2025/12/28/sixers-losing-streak-third-quarter-tyrese-maxey/
+
+**Pelicans' Jose Alvarado, Suns' Mark Williams suspended for throwing punches**\
+`The players were involved in an altercation during the teams' game on Saturday night.`\
+https://nytimes.com/athletic/6924447/2025/12/28/jose-alvarado-mark-williams-suspended-pelicans-suns/
+
 **We Asked for Environmental Fixes in Your State. You Sent In Thousands.**\
 `summary`\
 https://nytimes.com/interactive/2025/12/28/climate/us-eco-friendly-projects-readers.html
