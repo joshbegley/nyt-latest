@@ -1,3 +1,7 @@
+**Drake Maye's magical season rolls on as Patriots blast Jets. Could he be the MVP?**\
+`“They don’t give me a vote,” coach Mike Vrabel said of Maye’s MVP case. “But there’s nobody else that I want as our quarterback."`\
+https://nytimes.com/athletic/6924025/2025/12/28/drake-maye-patriots-jets-nfl-mvp-race/
+
 **World Juniors Day 3: Sweden, Finland win but top teams still unconvincing**\
 `Day 3 of the 2026 World Juniors was highlighted by Sweden needing a third-period comeback to beat Switzerland.`\
 https://nytimes.com/athletic/6920668/2025/12/28/world-juniors-sweden-finland-2026-scores-results/

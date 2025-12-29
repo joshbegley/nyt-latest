@@ -1,3 +1,7 @@
+**Giants-Raiders takeaways: Las Vegas now favorite to land No. 1 pick after loss**\
+`The Raiders can clinch the No. 1 pick with a loss to Kansas City next week.`\
+https://nytimes.com/athletic/6923700/2025/12/28/giants-raiders-score-nfl-draft-no-1-pick/
+
 **Drake Maye's magical season rolls on as Patriots blast Jets. Could he be the MVP?**\
 `“They don’t give me a vote,” coach Mike Vrabel said of Maye’s MVP case. “But there’s nobody else that I want as our quarterback."`\
 https://nytimes.com/athletic/6924025/2025/12/28/drake-maye-patriots-jets-nfl-mvp-race/
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/6923411/2025/12/28/nfl-takeaways-week-17-scores-res
 **The Briefing: Ivory Coast 1 Cameroon 1 – Was Amad strike goal of tournament so far? How vital is Mbeumo?**\
 `Our writers break down the action from an enthralling AFCON group F encounter`\
 https://nytimes.com/athletic/6919844/2025/12/28/ivory-coast-amad-cameroon-mbeumo/
-
-**Steelers miss chance to clinch AFC North as Browns pull off upset: Takeaways**\
-`Cleveland's fourth straight home win over Pittsburgh came in a defensive struggle.`\
-https://nytimes.com/athletic/6923723/2025/12/28/steelers-browns-result-score-takeaways/
 
