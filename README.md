@@ -1,3 +1,7 @@
+**How prediction markets mirrored the chaos of the college football coaching carousel**\
+`Prediction markets reflected the drama, and rumor-mongering, of the college football coaching carousel.`\
+https://nytimes.com/athletic/6880068/2025/12/29/prediction-markets-college-coaching-carousel-michigan-penn-state-lane-kiffin/
+
 **Russia Threatens to Toughen Its Stance on Ending the War in Ukraine**\
 `Moscow said a Ukrainian drone attack targeted a residence of President Vladimir V. Putin, which Ukraine denied, accusing the Kremlin of fabricating an excuse not to make peace.`\
 https://nytimes.com/2025/12/29/world/europe/russia-claims-ukraine-attack-putin.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6926645/2025/12/29/cam-coleman-transfer-portal-aubu
 **Grim Evidence of Trump’s Airstrikes Washes Ashore on a Colombian Peninsula**\
 `First came the scorched boat. Then the mangled bodies. Then the packets with traces of marijuana. Now, fishermen fear the ocean that feeds them.`\
 https://nytimes.com/2025/12/29/world/americas/trump-boat-strikes-gulf-of-venezuela-wreckage.html
-
-**Marcus Freeman to remain with Notre Dame in 2026 on new contract**\
-`Freeman is 43-12 in four seasons in South Bend, including a 24-4 record the last two years.`\
-https://nytimes.com/athletic/6926588/2025/12/29/notre-dame-marcus-freeman-contract-nfl/
 
