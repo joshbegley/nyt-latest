@@ -1,3 +1,15 @@
+**Why Scottie Barnes' talent makes his flaws worth the trouble for Raptors**\
+`With a 23-point, 25-rebound, 10-assist afternoon, the Toronto star reminded everyone how he can dominate a game.`\
+https://nytimes.com/athletic/6924284/2025/12/28/scottie-barnes-triple-double-raptors-warriors/
+
+**Was this the worst regular-season loss of the Mike Tomlin era?**\
+`After missing a chance to clinch, Pittsburgh is now set up for a winner-take-all Week 18 game against the Ravens.`\
+https://nytimes.com/athletic/6924201/2025/12/28/pittsburgh-steelers-loss-browns-afc-north-clinch/
+
+**Zach Eflin, Orioles reuniting on one-year deal: Source**\
+`Eflin was dogged by back problems for much of 2025, when he posted a 5.93 ERA in just 14 starts.`\
+https://nytimes.com/athletic/6792492/2025/12/28/mlb-zach-eflin-free-agency-signing-orioles/
+
 **An oral history of Bengal Cody Ford's hitch: 'I think we are actually going to call this'**\
 `The guard's 21-yard catch-and-run was a birthday memory he won't soon forget.`\
 https://nytimes.com/athletic/6924281/2025/12/28/cody-ford-reception-bengals-cardinals/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6924197/2025/12/28/jaylen-brown-nine-30-point-games
 **Panthers-Bucs for the NFC South title in Week 18: 'You wouldn't have it any other way'**\
 `Despite the loss Sunday, the Panthers travel to Tampa to play the Bucs in Week 18 with the opportunity to claim the division with a victory.`\
 https://nytimes.com/athletic/6924131/2025/12/28/panthers-nfc-south-playoffs-bucs-week-18/
-
-**Seahawks' defense carries the offense once again, putting NFC's top seed in reach**\
-`Led by DeMarcus Lawrence, Seattle's defense swamped the Panthers, moving within one win of a first-round playoff bye.`\
-https://nytimes.com/athletic/6924068/2025/12/28/seahawks-panthers-defense-nfc-1-seed/
-
-**Jrue Holiday on Celtics-Trail Blazers trade, Brad Stevens' honesty and enjoying Portland**\
-`Jrue Holiday has no hard feelings toward the Boston Celtics after they traded him over the offseason.`\
-https://nytimes.com/athletic/6923871/2025/12/28/jrue-holiday-discusses-trade-celtics-trail-blazers/
-
-**There’s no way Jets owner Woody Johnson is OK with this**\
-`After a historically poor performance in December, is the owner's confidence shaken?`\
-https://nytimes.com/athletic/6924133/2025/12/28/new-york-jets-owner-woody-johnson-aaron-glenn-patriots-loss/
 

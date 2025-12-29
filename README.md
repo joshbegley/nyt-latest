@@ -1,3 +1,7 @@
+**Updated 2026 NFL Draft order: Raiders hold No. 1 pick, Chiefs in top 10**\
+`What is the current order for Round 1 of the '26 draft?`\
+https://nytimes.com/athletic/6924232/2025/12/28/nfl-draft-order-2026-round-1-raiders/
+
 **Why Scottie Barnes' talent makes his flaws worth the trouble for Raptors**\
 `With a 23-point, 25-rebound, 10-assist afternoon, the Toronto star reminded everyone how he can dominate a game.`\
 https://nytimes.com/athletic/6924284/2025/12/28/scottie-barnes-triple-double-raptors-warriors/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6923838/2025/12/28/eagles-bills-score-result-takeaw
 **Jaylen Brown's ninth straight 30-point game ties Larry Bird's streak**\
 `Brown, whose streak now stands at nine games, will have a chance to pass Bird on Tuesday when Boston visits the Utah Jazz.`\
 https://nytimes.com/athletic/6924197/2025/12/28/jaylen-brown-nine-30-point-games-ties-larry-bird-record/
-
-**Panthers-Bucs for the NFC South title in Week 18: 'You wouldn't have it any other way'**\
-`Despite the loss Sunday, the Panthers travel to Tampa to play the Bucs in Week 18 with the opportunity to claim the division with a victory.`\
-https://nytimes.com/athletic/6924131/2025/12/28/panthers-nfc-south-playoffs-bucs-week-18/
 

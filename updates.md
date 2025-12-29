@@ -1,3 +1,15 @@
+**Why Scottie Barnes' talent makes his flaws worth the trouble for Raptors**\
+`With a 23-point, 25-rebound, 10-assist afternoon, the Toronto star reminded everyone how he can dominate a game.`\
+https://nytimes.com/athletic/6924284/2025/12/28/scottie-barnes-triple-double-raptors-warriors/
+
+**Was this the worst regular-season loss of the Mike Tomlin era?**\
+`After missing a chance to clinch, Pittsburgh is now set up for a winner-take-all Week 18 game against the Ravens.`\
+https://nytimes.com/athletic/6924201/2025/12/28/pittsburgh-steelers-loss-browns-afc-north-clinch/
+
+**Zach Eflin, Orioles reuniting on one-year deal: Source**\
+`Eflin was dogged by back problems for much of 2025, when he posted a 5.93 ERA in just 14 starts.`\
+https://nytimes.com/athletic/6792492/2025/12/28/mlb-zach-eflin-free-agency-signing-orioles/
+
 **An oral history of Bengal Cody Ford's hitch: 'I think we are actually going to call this'**\
 `The guard's 21-yard catch-and-run was a birthday memory he won't soon forget.`\
 https://nytimes.com/athletic/6924281/2025/12/28/cody-ford-reception-bengals-cardinals/
