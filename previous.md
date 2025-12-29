@@ -1,3 +1,23 @@
+**The image that summed up all that is wrong at West Ham**\
+`Ollie Scarles is an academy graduate making his way in the first team. Where were West Ham's leaders after he was in tears?`\
+https://nytimes.com/athletic/6921248/2025/12/29/west-ham-ollie-scarles-tears-nuno-squad/
+
+**China Will Hold Live-Fire Military Exercises Around Taiwan**\
+`The exercises end months of relative calm across the Taiwan Strait and come after the Trump administration announced arms sales to the island.`\
+https://nytimes.com/2025/12/29/world/asia/china-taiwan-military-exercises.html
+
+**Yoro's first 18 months at United has shown potential - it just needs nurturing**\
+`The defender only recently turned 20 but has already played 50 games for the club. There's still work to do, but the signs are encouraging`\
+https://nytimes.com/athletic/6921538/2025/12/29/manchester-united-leny-yoro-potential/
+
+**Crystal Palace are running out of answers in attack – and Yeremy Pino is feeling the strain**\
+`The 23-year-old is a long-term option, but amid injuries and absences, Palace need him to step up sooner`\
+https://nytimes.com/athletic/6916457/2025/12/29/crystal-palace-yeremy-pino-attack-answers/
+
+**Everton's need for more is clear**\
+`David Moyes has been deprived of his difference makers. The years of underinvestment are still being felt`\
+https://nytimes.com/athletic/6921854/2025/12/29/everton-david-moyes-squad-short/
+
 **Why are Liverpool so bad at defending set pieces?**\
 `Liverpool's familiar difficulties in defending set pieces came up again on Saturday. Why are they struggling with it?`\
 https://nytimes.com/athletic/6923018/2025/12/29/liverpool-premier-league-set-piece-analysis-problems/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6891063/2025/12/29/newcastle-2025-review-isak-burn/
 **Tottenham's away form is invaluable, but more is needed to convince fans they are on right path**\
 `For all the sluggishness, there are at least some areas where Frank’s Spurs are making clear measurable progress.`\
 https://nytimes.com/athletic/6911235/2025/12/29/tottenham-away-form-thomas-frank/
-
-**Barcelona in 2025: A domestic treble, Hansi Flick's ego message and Gavi uncut**\
-`Hansi Flick's side won all three domestic titles this season and have made a strong start to the new campaign too`\
-https://nytimes.com/athletic/6911132/2025/12/29/barcelona-la-liga-2025-review-pedri-yamal/
-
-**The Briefing: Is Emery best manager right now? Cherki signing of the season? Are three adrift doomed?**\
-`Stuart James analyses three of the main talking points from the weekend's Premier League action`\
-https://nytimes.com/athletic/6923696/2025/12/29/the-briefing-is-emery-best-manager-in-premier-league-cherki-signing-of-the-season-are-three-adrift-doomed/
-
-**Premier League predictions: Arsenal vs Villa, Sunderland vs Man City, and the rest of Matchday 19**\
-`Who's leading after MD18? And what do our writer, the algorithm, a child and this week's subscriber expect to see on Matchday 19?`\
-https://nytimes.com/athletic/6922843/2025/12/29/premier-league-predictions-matchday-19-arsena-aston-villa/
-
-**What it is like inside the Guardiola bubble – as told by his assistants**\
-`Those who have worked with the Manchester City manager speak of an intense and invigorating environment where there is constant evolution`\
-https://nytimes.com/athletic/6873482/2025/12/29/working-for-guardiola-manchester-city/
-
-**Educating Arsenal: How young players balance sporting prowess with school**\
-`The majority of academy players won't make the first team, so there is now importance placed on developing youngsters on and off the pitch`\
-https://nytimes.com/athletic/6875109/2025/12/29/arsenal-educating-dowman-nwaneri-saka/
 

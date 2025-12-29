@@ -1,3 +1,7 @@
+**Nasser Hussain: England's consolation win does matter, even as a reminder of what might have been**\
+`The ex-England captain also addresses rising concerns over two-day Tests and modern batting techniques, and the need not to over-compensate`\
+https://nytimes.com/athletic/6922755/2025/12/29/nasser-hussain-england-ashes-stokes-mcg-pitch/
+
 **The image that summed up all that is wrong at West Ham**\
 `Ollie Scarles is an academy graduate making his way in the first team. Where were West Ham's leaders after he was in tears?`\
 https://nytimes.com/athletic/6921248/2025/12/29/west-ham-ollie-scarles-tears-nuno-squad/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6923843/2025/12/29/cameroon-etoo-pagou-brys/
 **Newcastle's 2025: Winners at last, Isak's 'betrayal' and Burn living the dream**\
 `It was a year in which Eddie Howe's team made history by winning a trophy… and learned how hard it is to stay competitive at the top`\
 https://nytimes.com/athletic/6891063/2025/12/29/newcastle-2025-review-isak-burn/
-
-**Tottenham's away form is invaluable, but more is needed to convince fans they are on right path**\
-`For all the sluggishness, there are at least some areas where Frank’s Spurs are making clear measurable progress.`\
-https://nytimes.com/athletic/6911235/2025/12/29/tottenham-away-form-thomas-frank/
 
