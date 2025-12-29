@@ -1,3 +1,11 @@
+**In Caleb Williams, the Bears have a QB who can always give them a chance**\
+`Williams had one of his best performances of the season in a playoff atmosphere, but the Bears fell just short in another wild game.`\
+https://nytimes.com/athletic/6924923/2025/12/29/bears-caleb-williams-49ers/
+
+**49ers offense lit up the Bears, but defense won them the game**\
+`Brock Purdy may have scored five TDs and the offense may have piled up 496 yards. But it was San Francisco's defense that came up biggest.`\
+https://nytimes.com/athletic/6924920/2025/12/29/49ers-defense-won-game-bears/
+
 **The Pulse: The most miserable NFL fans after Week 17**\
 `The Athletic has live coverage of Bears vs.`\
 https://nytimes.com/athletic/6924583/2025/12/29/nfl-week-17-fan-misery-index-the-pulse/

@@ -1,3 +1,7 @@
+**Our Visual Journalism**\
+`We look at the best graphics from The Times in 2025.`\
+https://nytimes.com/2025/12/29/briefing/our-visual-journalism.html
+
 **In Caleb Williams, the Bears have a QB who can always give them a chance**\
 `Williams had one of his best performances of the season in a playoff atmosphere, but the Bears fell just short in another wild game.`\
 https://nytimes.com/athletic/6924923/2025/12/29/bears-caleb-williams-49ers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6924598/2025/12/29/red-wings-simon-edvinsson-next-l
 **With Olympics roster deadline looming, Canada coach Jon Cooper is planning ahead**\
 `With the roster deadline on Wednesday, Cooper spoke of "a little sentiment" regarding the 4 Nations and the difficult path to a gold medal.`\
 https://nytimes.com/athletic/6923917/2025/12/29/team-canada-olympics-roster-cooper-nhl/
-
-**Is this the most miserable Giants season in a decade? Let's rank the pain**\
-`This season has been rough on Giants fans, but is it the worst one of the past 10 years?`\
-https://nytimes.com/athletic/6922959/2025/12/29/ny-giants-worst-seasons-ranking-nfl-draft/
 
