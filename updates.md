@@ -1,3 +1,7 @@
+**Wiegman, England women's team lead New Year Honours List**\
+`The coach and members of the England women's rugby team were also recognised after their World Cup win in the summer. `\
+https://nytimes.com/athletic/6925242/2025/12/29/new-year-honours-list-2026-wiegman/
+
 **Idris Elba and Cynthia Erivo Make King Charles’s New Year Honors List**\
 `Mr. Elba received a knighthood and Ms. Erivo was also honored in an annual British tradition celebrating professional excellence and community service.`\
 https://nytimes.com/2025/12/29/world/europe/idris-elba-cynthia-erivo-king-charles-honors.html
