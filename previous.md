@@ -1,40 +1,40 @@
-**For Zelensky, Just Keeping Trump Talking Counts as a Win**\
-`Though discussions produced little tangible progress, President Volodymyr Zelensky of Ukraine at least avoided the type of setbacks that have blighted earlier meetings.`\
-https://nytimes.com/2025/12/29/world/europe/zelensky-trump-ukraine-peace-talks.html
+**How will the Lions treat their final game? Multiple layers to that decision**\
+`Detroit's injury situation, draft position, 2026 schedule and finishing with a winning record all are considerations going into finale.`\
+https://nytimes.com/athletic/6923645/2025/12/29/lions-dan-campbe-decision-week-18-bears/
 
-**The Buccaneers are skidding toward the finish line. Is the end near?**\
-`The Bucs' 6-2 start is long gone, and an interesting offseason is approaching in Tampa, perhaps faster than the team envisioned.`\
-https://nytimes.com/athletic/6924999/2025/12/29/bucs-dolphins-playoffs-baker-mayfield/
+**Will Brian Flores be back as Vikings' DC in 2026? Why it's such a critical question**\
+`Flores' defense has been one of the league's best units in the second half of the season. But can the Vikings keep him around in 2026?`\
+https://nytimes.com/athletic/6923548/2025/12/29/brian-flores-vikings-defense-job-contract/
 
-**The Ravens' season is riding on Week 18. Lamar Jackson's future could be, too: Sando's Pick Six**\
-`Does any team have more at stake on the final week of the regular season than Baltimore?`\
-https://nytimes.com/athletic/6909520/2025/12/29/lamar-jackson-ravens-contract-trade/
+**Simon Edvinsson is finding the next level for the Red Wings**\
+`An overtime winner arguably wasn't even Simon Edvinsson's most impressive play of the night amid a strong season on Detroit's top pair.`\
+https://nytimes.com/athletic/6924598/2025/12/29/red-wings-simon-edvinsson-next-level-leafs/
 
-**What we learned in NFL Week 17: 49ers, Seahawks set up clash for NFC's top seed**\
-`For the second straight year, we'll have a winner-take-all showdown in the final week of the regular season.`\
-https://nytimes.com/athletic/6924181/2025/12/29/49ers-bears-brock-purdy-caleb-williams/
+**With Olympics roster deadline looming, Canada coach Jon Cooper is planning ahead**\
+`With the roster deadline on Wednesday, Cooper spoke of "a little sentiment" regarding the 4 Nations and the difficult path to a gold medal.`\
+https://nytimes.com/athletic/6923917/2025/12/29/team-canada-olympics-roster-cooper-nhl/
 
-**Why the Steelers' decision on DK Metcalf's contract is complicated**\
-`The Steelers reportedly won't void guarantees in Metcalf's contract, but the issue could be revisited, and it's hardly a simple decision.`\
-https://nytimes.com/athletic/6925039/2025/12/29/dk-metcalf-suspension-contract-guarantees/
+**Is this the most miserable Giants season in a decade? Let's rank the pain**\
+`This season has been rough on Giants fans, but is it the worst one of the past 10 years?`\
+https://nytimes.com/athletic/6922959/2025/12/29/ny-giants-worst-seasons-ranking-nfl-draft/
 
-**MLB's Strange But True 2025: Wildest games of the year, including 3 postseason classics**\
-`What happens when a sport gives us 15 games a day, pretty much every day for six months? Some of those games can get downright wacky!`\
-https://nytimes.com/athletic/6924298/2025/12/29/mlb-2025-season-greatest-games/
+**Predictive betting sites partner with X accounts claiming to be insiders**\
+`As Polymarket and Kalshi continue to grow in popularity, they have worked with social media accounts claiming to be breaking news reporters.`\
+https://nytimes.com/athletic/6876922/2025/12/29/kalshi-polymarket-predictive-betting-markets-x-sports-insiders/
 
-**Drake Maye's game was No. 1 of 13.7K this century. Your turn, Matthew Stafford**\
-`Maye's historic day wasn't quite enough to overtake Stafford as the MVP favorite entering the Rams' game at Atlanta on Monday.`\
-https://nytimes.com/athletic/6925048/2025/12/29/nfl-mvp-race-drake-maye-matthew-stafford/
+**Can NBA’s new proposals fix tanking? Is it even worth it for the league to try?**\
+`There are many reasons beyond wagering for the NBA to want to disincentivize teams from punting on games or seasons.`\
+https://nytimes.com/athletic/6920494/2025/12/29/nba-tanking-rules-preventions-restrictions/
 
-**'I think we deserve a little respect': Imperfect Eagles unapologetic after 'heavyweight bout'**\
-`Despite their ups and downs this season, the defending champions are still a legitimate Super Bowl contender.`\
-https://nytimes.com/athletic/6924620/2025/12/29/sirianni-hurts-mailata-respect-eagles-bills-win/
+**F1's 2022 car era is over - it's unlikely to be missed**\
+`The cars will have to conform to fresh design rules in 2026 - will they be more popular than those which governed the past four seasons?`\
+https://nytimes.com/athletic/6915030/2025/12/29/f1-2022-car-rules-changes/
 
-**Time running out for Bills to learn from mistakes before playoffs**\
-`The Bills will face the lowly Jets in their regular season finale.`\
-https://nytimes.com/athletic/6924707/2025/12/29/bills-eagles-loss-playoffs-josh-allen/
+**49ers' red-hot run game flourishes without George Kittle or Trent Williams**\
+`Little-known Austen Pleasants filled in for All-Pro Trent Williams for all but one snap — and the 49ers offense didn't miss a beat.`\
+https://nytimes.com/athletic/6924922/2025/12/29/49ers-run-game-george-kittle-trent-williams/
 
-**Whoever plays QB for the Packers under Matt LaFleur shines. Does it matter?**\
-`The Packers keep finding new ways to lose games despite great quarterback play, including their third loss this season without a punt.`\
-https://nytimes.com/athletic/6925031/2025/12/29/malik-willis-packers-matt-lafleur-ravens/
+**College football's ultimate question: How is Indiana doing this?**\
+`The Hoosiers’ rise was once hailed as a program-building miracle of biblical scale, but with each victory, their dominance gets more real.`\
+https://nytimes.com/athletic/6915590/2025/12/29/indiana-football-curt-cignetti-rose-bowl/
 
