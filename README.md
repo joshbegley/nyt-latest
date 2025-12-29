@@ -1,3 +1,11 @@
+**As Mamdani Leaves Queens for the Upper East Side, a Cool Welcome Awaits**\
+`Mayor-elect Zohran Mamdani loves his Astoria, Queens, neighborhood, and the feeling is mutual. But voters who live near Gracie Mansion, his new home, really wanted his opponent to win.`\
+https://nytimes.com/2025/12/29/nyregion/mamdani-gracie-neighborhood-astoria.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/12/29/crosswords/spelling-bee-forum.html
+
 **New Year’s Eve Specials, Plus 4 Things to Watch on TV This Week**\
 `CNN, CBS and ABC ring in 2026, and a new reality show set in Palm Beach begins.`\
 https://nytimes.com/2025/12/29/arts/television/new-years-eve-specials-plus-4-things-to-watch-on-tv-this-week.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6921538/2025/12/29/manchester-united-leny-yoro-pote
 **Crystal Palace are running out of answers in attack – and Yeremy Pino is feeling the strain**\
 `The 23-year-old is a long-term option, but amid injuries and absences, Palace need him to step up sooner`\
 https://nytimes.com/athletic/6916457/2025/12/29/crystal-palace-yeremy-pino-attack-answers/
-
-**Leeds' brilliant 11-player equaliser in their own words: 'The sign of a top-class team goal'**\
-`Dominic Calvert-Lewin's remarkable equaliser involved every member of the Leeds side and had fans in raptures`\
-https://nytimes.com/athletic/6923456/2025/12/29/leeds-sunderland-goal-calvert-lewin/
-
-**Everton's need for more is clear**\
-`David Moyes has been deprived of his difference makers. The years of underinvestment are still being felt`\
-https://nytimes.com/athletic/6921854/2025/12/29/everton-david-moyes-squad-short/
 
