@@ -1,3 +1,19 @@
+**ISIS Militants Kill 3 Police Officers in Turkey**\
+`A raid on a suspected safe house for the terrorist group Islamic State set off a clash that killed the police officers as well as six Turkish militants.`\
+https://nytimes.com/2025/12/29/world/middleeast/turkey-isis-raid.html
+
+**How the Bears' grand finale fizzled at the end of fireworks show with the 49ers**\
+`On a game-deciding play from the 2-yard line, the Bears were discombobulated from the start, leading to a cruel finish.`\
+https://nytimes.com/athletic/6924954/2025/12/29/bears-end-of-game-failure-49ers/
+
+**Film study with Jalen Brunson: Knicks star breaks down five of his plays**\
+`Jalen Brunson, one of the NBA's most gifted offensive players, takes The Athletic into his mind during a film session.`\
+https://nytimes.com/athletic/6922523/2025/12/29/jalen-brunson-knicks-film-breakdown/
+
+**Inside Newcastle Q&A: Chris Waugh answers your questions**\
+`Most Mondays throughout the season, The Athletic hosts an hour-long ‘Inside Newcastle’ live Q&A with subscribers. Send us your questions now`\
+https://nytimes.com/athletic/6925032/2025/12/29/inside-newcastle-your-questions/
+
 **The Pistons still have a 3-point shooting problem, with no easy solutions**\
 `While Detroit has been able to ride its defense to the top of the East, Sunday's loss showed the need to improve from long distance.`\
 https://nytimes.com/athletic/6924996/2025/12/29/detroit-pistons-3-point-shooting-loss-clippers/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6923348/2025/12/29/wild-zuccarello-johansson-bogosi
 **For Browns stalwarts Joel Bitonio and Wyatt Teller, Sunday's win felt a lot like goodbye**\
 `It's likely Bitonio and Teller, with 10 Pro Bowls between them, won't be back with Browns. If so, beating Steelers was a sweet home finale.`\
 https://nytimes.com/athletic/6924309/2025/12/29/browns-steelers-joel-bitonio-wyatt-teller-home-finale/
-
-**Who are the 12 undefeated women's college basketball teams, and who can remain unbeaten?**\
-`Sabreena Merchant breaks down the unbeatens and their key stats. Can anyone take down UConn, Texas, LSU or TCU?`\
-https://nytimes.com/athletic/6924493/2025/12/29/womens-college-basketball-undefeated-uconn-lsu/
-
-**As AL East improves, pressure grows on Yankees' dormant offseason**\
-`The Yankees' offseason has been quiet. Can they afford to run it back in an increasingly competitive AL East?`\
-https://nytimes.com/athletic/6923583/2025/12/29/yankees-offseason-american-league-east/
-
-**Meet the Texas high schooler who rushed for 1,628 yards in the state playoffs**\
-`SaRod Baker, a three-star prospect in the Class of 2027, averaged 271.3 yards in six postseason games for DeSoto (Texas) High. `\
-https://nytimes.com/athletic/6923460/2025/12/29/texas-high-school-sarod-baker-running-back/
-
-**College football bowl game weekly guide: Michigan, Texas, cereal and mayonnaise**\
-`Time to go bowling — for cheese, sugar and industrial vats of mayo. This week's action beyond the CFP is both compelling and comedic.`\
-https://nytimes.com/athletic/6924176/2025/12/29/michigan-texas-iowa-college-bowl-games-how-to-watch/
 
