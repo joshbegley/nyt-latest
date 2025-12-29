@@ -1,6 +1,6 @@
 **Blues' Pius Suter suffered right ankle injury, will be re-evaluated in 4 weeks**\
-`ST.`\
-https://nytimes.com/athletic/6926195/2025/12/29/blues-pius-suter-suffered-right-ankle-injury-will-be-re-evaluated-in-4-weeks/
+`Pius Suter was injured in Saturday's game against the Predators.`\
+https://nytimes.com/athletic/6926195/2025/12/29/blues-pius-suter-ankle-injury/
 
 **Police Raid on Suspected ISIS Safe House in Turkey Turns Deadly**\
 `Three police officers and six militants were killed in clashes during a police raid on a suspected Islamic State safe house in Turkey on Monday, the authorities said.`\

@@ -1,3 +1,15 @@
+**Blues' Pius Suter suffered right ankle injury, will be re-evaluated in 4 weeks**\
+`ST.`\
+https://nytimes.com/athletic/6926195/2025/12/29/blues-pius-suter-suffered-right-ankle-injury-will-be-re-evaluated-in-4-weeks/
+
+**Police Raid on Suspected ISIS Safe House in Turkey Turns Deadly**\
+`Three police officers and six militants were killed in clashes during a police raid on a suspected Islamic State safe house in Turkey on Monday, the authorities said.`\
+https://nytimes.com/video/world/europe/100000010613319/turkey-isis-police-raid.html
+
+**Do You Know These Romantic Adventures of Page and Screen?**\
+`Need something to read (or watch) this New Year’s week? This quiz brings the love.`\
+https://nytimes.com/interactive/2025/12/29/books/review/romantic-adventures-quiz.html
+
 **How to watch Capitals vs. Panthers: Time, TV, streaming**\
 `Find out how to watch the Washington Capitals play the Florida Panthers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6926310/2025/12/29/capitals-vs-panthers-stream-how-to-watch-dec-29/
