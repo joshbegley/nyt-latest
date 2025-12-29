@@ -1,5 +1,5 @@
 **Don't tell Philip Rivers a game is 'meaningless.' Colts lost, but it meant something to him**\
-`To say there's "nothing to play for" is an insult to Philip Rivers. "To say a game is meaningless is not in my DNA. (All) we do matters."`\
+`To say there's "nothing to play for" is an insult to Rivers. "To say a game is meaningless is not in my DNA. (All) we do matters."`\
 https://nytimes.com/athletic/6923956/2025/12/28/colts-philip-rivers-retirement-jaguars-playoffs/
 
 **Blue Jackets return the favor, score 3 late goals to defeat Islanders**\
