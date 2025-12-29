@@ -1,3 +1,7 @@
+**11 Voters on Trump’s First Year**\
+`There is avid support, deep anger and for one person, regret over his choice last year.`\
+https://nytimes.com/2025/12/29/us/politics/trump-first-year-voter-voices.html
+
 **NBA Power Rankings: From trophies to trees, let's fill up our 2025 time capsule**\
 `By now, we can tell who's good and who isn't. The year is ending, but the season is just beginning.`\
 https://nytimes.com/athletic/6925519/2025/12/29/nba-power-rankings-thunder-spurs-knicks-suns/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6925221/2025/12/29/49ers-brock-purdy-qb-playoffs-su
 **USMNT Player Tracker: 'Diabolical' Pulisic, Aaronson impresses and no Richards panic**\
 `Our roundup of the U.S. contingent's contributions across Europe also sees Patrick Agyemang continue his scoring streak in the Championship`\
 https://nytimes.com/athletic/6925247/2025/12/29/usmnt-pulisic-aaronson-richards-tracker/
-
-**Trump and Zelensky Meet to Finalize Peace Plan**\
-`President Trump said a peace deal was “maybe very close” after meeting with President Volodymyr Zelensky of Ukraine. A joint U.S.-Ukraine proposal appeared to remain a work in progress as Russia rejected several ideas.`\
-https://nytimes.com/video/world/100000010612791/trump-zelensky-peace-ukraine-putin.html
 
