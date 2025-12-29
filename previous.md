@@ -1,3 +1,7 @@
+**2025 Notable Deaths**\
+`As the year winds to a close, we’re recalling those we’ve lost who forged consequential lives.`\
+https://nytimes.com/interactive/2025/obituaries/notable-deaths.html
+
 **Louis V. Gerstner, Who Revived a Faltering IBM in the ’90s, Dies at 83**\
 `Installed as an outsider, he engineered a comeback, shifting the company’s focus from a waning mainframe computer business toward consulting and services.`\
 https://nytimes.com/2025/12/29/business/louis-v-gerstner-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/29/world/the-year-in-pictures-trump-netanyahu-toront
 **San Diego Wave and goalkeeper Sheridan agree to terminate contract**\
 `Sheridan's deal had been due to run through to the 2026 season.`\
 https://nytimes.com/athletic/6927233/2025/12/29/kailen-sheridan-san-diego-wave-contract/
-
-**Kevin Stefanski 'privileged' to be head coach of Browns amid job security questions**\
-`The Browns improved to 4-12 with their Week 17 victory over Pittsburgh, Cleveland's first division win of the season.`\
-https://nytimes.com/athletic/6927152/2025/12/29/kevin-stefanski-browns-coach-job-security/
 

@@ -1,3 +1,7 @@
+**2025 Notable Deaths**\
+`As the year winds to a close, we’re recalling those we’ve lost who forged consequential lives.`\
+https://nytimes.com/interactive/2025/obituaries/notable-deaths.html
+
 **Martin among final candidates for Columbus Crew head coach role**\
 `Martin was sacked by Rangers in October after just four months in charge.`\
 https://nytimes.com/athletic/6927302/2025/12/29/russell-martin-columbus-crew-head-coach/
