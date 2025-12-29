@@ -1,3 +1,15 @@
+**No Corrections: Dec. 26, 2025**\
+`No corrections appeared in print on Friday, Dec. 26, 2025.`\
+https://nytimes.com/2025/12/29/pageoneplus/no-corrections-dec-26-2025.html
+
+**NBA Rewind: Are the Thunder struggling, or are the Spurs just that good?**\
+`Plus, who's hot (Keyonte George) and not (Rockets' defense) around the league this week.`\
+https://nytimes.com/athletic/6920130/2025/12/29/spurs-thunder-giannis-nba-rewind/
+
+**Arteta says Arsenal must be ‘actively looking’ at signings in January**\
+`Arsenal spent nearly £250million ($337m) on eight new players in the summer.`\
+https://nytimes.com/athletic/6925424/2025/12/29/mikel-arteta-arsenal-january-transfers/
+
 **Train Derailment in Mexico Leaves Several Dead**\
 `More than a dozen people were killed when a passenger train derailed on Sunday in the Mexican state of Oaxaca, according to the authorities. An investigation into the cause has been opened.`\
 https://nytimes.com/video/world/americas/100000010612821/mexico-train-crash.html

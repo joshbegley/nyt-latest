@@ -1,3 +1,15 @@
+**No Corrections: Dec. 26, 2025**\
+`No corrections appeared in print on Friday, Dec. 26, 2025.`\
+https://nytimes.com/2025/12/29/pageoneplus/no-corrections-dec-26-2025.html
+
+**NBA Rewind: Are the Thunder struggling, or are the Spurs just that good?**\
+`Plus, who's hot (Keyonte George) and not (Rockets' defense) around the league this week.`\
+https://nytimes.com/athletic/6920130/2025/12/29/spurs-thunder-giannis-nba-rewind/
+
+**Arteta says Arsenal must be ‘actively looking’ at signings in January**\
+`Arsenal spent nearly £250million ($337m) on eight new players in the summer.`\
+https://nytimes.com/athletic/6925424/2025/12/29/mikel-arteta-arsenal-january-transfers/
+
 **Train Derailment in Mexico Leaves Several Dead**\
 `More than a dozen people were killed when a passenger train derailed on Sunday in the Mexican state of Oaxaca, according to the authorities. An investigation into the cause has been opened.`\
 https://nytimes.com/video/world/americas/100000010612821/mexico-train-crash.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6925182/2025/12/29/serie-a-pulisic-hojlund-milan-na
 **Trump Administration Live Updates: President Says U.S. Hit ‘Big Facility’ in Venezuela Last Week**\
 ``\
 https://nytimes.com/live/2025/12/29/us/trump-news
-
-**Premier League relegation battle: Can West Ham avoid the drop?**\
-`How the relegation battle is shaping up after Matchweek 18`\
-https://nytimes.com/athletic/6925070/2025/12/29/how-the-premier-league-relegation-battle-looks-after-matchweek-18/
-
-**Blame Bobo: Georgia’s longtime OC is often the focus of fan ire — and he is well aware**\
-`Mike Bobo's run at Georgia has inspired memes and social media consternation. But his offense has the Bulldogs in contention to win a title.`\
-https://nytimes.com/athletic/6925119/2025/12/29/mike-bobo-georgia-football-playoff/
-
-**Lowetide: What are the Oilers' options for an outscoring third line?**\
-`The Oilers need to find a useful third line with some combination of skill, defensive acumen and physicality.`\
-https://nytimes.com/athletic/6922946/2025/12/29/edmonton-oilers-lineup-lines-stats-2025/
 
