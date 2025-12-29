@@ -1,3 +1,7 @@
+**Ian Thorpe completes challenging Sydney Hobart Race: 'I’m exhausted. I’m tired'**\
+`Five-time Olympic gold medalist Ian Thorpe took part in the Sydney Hobart Race for the first time`\
+https://nytimes.com/athletic/6924936/2025/12/29/sydney-hobart-race-ian-thorpe/
+
 **A preview of The Athletic’s live coverage this week**\
 `Our live coverage this week includes the NFL regular season finale, the CFP quarterfinals, and plenty of AFCON and Premier League soccer`\
 https://nytimes.com/athletic/6924994/2025/12/29/live-coverage-schedule-nfl-cfp-afcon/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6922755/2025/12/29/nasser-hussain-england-ashes-sto
 **The image that summed up all that is wrong at West Ham**\
 `Ollie Scarles is an academy graduate making his way in the first team. Where were West Ham's leaders after he was in tears?`\
 https://nytimes.com/athletic/6921248/2025/12/29/west-ham-ollie-scarles-tears-nuno-squad/
-
-**China Will Hold Live-Fire Military Exercises Around Taiwan**\
-`The exercises end months of relative calm across the Taiwan Strait and come after the Trump administration announced arms sales to the island.`\
-https://nytimes.com/2025/12/29/world/asia/china-taiwan-military-exercises.html
 
