@@ -1,3 +1,7 @@
+**USMNT Player Tracker: 'Diabolical' Pulisic, Aaronson impresses and no Richards panic**\
+`Our roundup of the U.S. contingent's contributions across Europe also sees Patrick Agyemang continue his scoring streak in the Championship`\
+https://nytimes.com/athletic/6925247/2025/12/29/usmnt-pulisic-aaronson-richards-tracker/
+
 **Trump and Zelensky Meet to Finalize Peace Plan**\
 `President Trump said a peace deal was “maybe very close” after meeting with President Volodymyr Zelensky of Ukraine. A joint U.S.-Ukraine proposal appeared to remain a work in progress as Russia rejected several ideas.`\
 https://nytimes.com/video/world/100000010612791/trump-zelensky-peace-ukraine-putin.html

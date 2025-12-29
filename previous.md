@@ -1,3 +1,7 @@
+**USMNT Player Tracker: 'Diabolical' Pulisic, Aaronson impresses and no Richards panic**\
+`Our roundup of the U.S. contingent's contributions across Europe also sees Patrick Agyemang continue his scoring streak in the Championship`\
+https://nytimes.com/athletic/6925247/2025/12/29/usmnt-pulisic-aaronson-richards-tracker/
+
 **Trump and Zelensky Meet to Finalize Peace Plan**\
 `President Trump said a peace deal was “maybe very close” after meeting with President Volodymyr Zelensky of Ukraine. A joint U.S.-Ukraine proposal appeared to remain a work in progress as Russia rejected several ideas.`\
 https://nytimes.com/video/world/100000010612791/trump-zelensky-peace-ukraine-putin.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6925397/2025/12/29/wisconsin-vs-maryland-stream-how
 **How to watch USC vs. Nebraska women's basketball: Time, TV, streaming**\
 `Find out how to watch the USC Trojans play the Nebraska Cornhuskers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6925398/2025/12/29/usc-vs-nebraska-stream-how-to-watch-dec-29/
-
-**How to watch Southern vs. Illinois men's basketball: Time, TV, streaming**\
-`Find out how to watch the Southern Jaguars play the Illinois Fighting Illini, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6925391/2025/12/29/southern-vs-illinois-stream-how-to-watch-dec-29/
 
