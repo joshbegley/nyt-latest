@@ -26,6 +26,10 @@ https://nytimes.com/athletic/6921538/2025/12/29/manchester-united-leny-yoro-pote
 `The 23-year-old is a long-term option, but amid injuries and absences, Palace need him to step up sooner`\
 https://nytimes.com/athletic/6916457/2025/12/29/crystal-palace-yeremy-pino-attack-answers/
 
+**Leeds' brilliant 11-player equaliser in their own words: 'The sign of a top-class team goal'**\
+`Dominic Calvert-Lewin's remarkable equaliser involved every member of the Leeds side and had fans in raptures`\
+https://nytimes.com/athletic/6923456/2025/12/29/leeds-sunderland-goal-calvert-lewin/
+
 **Everton's need for more is clear**\
 `David Moyes has been deprived of his difference makers. The years of underinvestment are still being felt`\
 https://nytimes.com/athletic/6921854/2025/12/29/everton-david-moyes-squad-short/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6921854/2025/12/29/everton-david-moyes-squad-short/
 **Why are Liverpool so bad at defending set pieces?**\
 `Liverpool's familiar difficulties in defending set pieces came up again on Saturday. Why are they struggling with it?`\
 https://nytimes.com/athletic/6923018/2025/12/29/liverpool-premier-league-set-piece-analysis-problems/
-
-**Arsenal 2 Brighton 1: Did Hurzeler pick wrong team? Why the slow starts? And what about Minteh?**\
-`Andy Naylor analyses the defeat by Arsenal to understand how Brighton can get back to winning`\
-https://nytimes.com/athletic/6921160/2025/12/29/brighton-briefing-arsenal-defeat-hurzeler-selection-minteh/
 

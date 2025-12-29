@@ -1,3 +1,7 @@
+**Leeds' brilliant 11-player equaliser in their own words: 'The sign of a top-class team goal'**\
+`Dominic Calvert-Lewin's remarkable equaliser involved every member of the Leeds side and had fans in raptures`\
+https://nytimes.com/athletic/6923456/2025/12/29/leeds-sunderland-goal-calvert-lewin/
+
 **The New York Times in Print for Monday, Dec. 29, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/12/29/todays-new-york-times
