@@ -1,3 +1,7 @@
+**Seahawks' defense carries the offense once again, putting NFC's top seed in reach**\
+`Led by DeMarcus Lawrence, Seattle's defense swamped the Panthers, moving within one win of a first-round playoff bye.`\
+https://nytimes.com/athletic/6924068/2025/12/28/seahawks-panthers-defense-nfc-1-seed/
+
 **Jrue Holidays on Celtics-Trail Blazers trade, Brad Stevens' honesty and enjoying Portland**\
 `Jrue Holiday has no hard feelings toward the Boston Celtics after they traded him over the offseason.`\
 https://nytimes.com/athletic/6923871/2025/12/28/jrue-holiday-discusses-trade-celtics-trail-blazers/
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/6924081/2025/12/28/submit-a-question-for-stewart-ma
 **Trump and Zelensky Meet to Iron Out Peace Plan, but Deal Remains Elusive**\
 `The U.S. president said after a meeting at Mar-a-Lago that a deal was “maybe very close.” But a joint U.S.-Ukraine proposal appeared unfinished, as Russia rejected several ideas.`\
 https://nytimes.com/2025/12/28/us/politics/trump-zelensky-peace-ukraine-putin.html
-
-**Admired Figures**\
-`Chase Dittrich brings us a first-class puzzle.`\
-https://nytimes.com/2025/12/28/crosswords/daily-puzzle-2025-12-29.html
 

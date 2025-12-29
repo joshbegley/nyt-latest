@@ -1,3 +1,7 @@
+**Jrue Holidays on Celtics-Trail Blazers trade, Brad Stevens' honesty and enjoying Portland**\
+`Jrue Holiday has no hard feelings toward the Boston Celtics after they traded him over the offseason.`\
+https://nytimes.com/athletic/6923871/2025/12/28/jrue-holiday-discusses-trade-celtics-trail-blazers/
+
 **There’s no way Woody Johnson is OK with this**\
 `After a historically poor performance in December, is the owner's confidence shaken?`\
 https://nytimes.com/athletic/6924133/2025/12/28/new-york-jets-owner-woody-johnson-aaron-glenn-patriots-loss/

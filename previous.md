@@ -1,3 +1,7 @@
+**Jrue Holidays on Celtics-Trail Blazers trade, Brad Stevens' honesty and enjoying Portland**\
+`Jrue Holiday has no hard feelings toward the Boston Celtics after they traded him over the offseason.`\
+https://nytimes.com/athletic/6923871/2025/12/28/jrue-holiday-discusses-trade-celtics-trail-blazers/
+
 **There’s no way Woody Johnson is OK with this**\
 `After a historically poor performance in December, is the owner's confidence shaken?`\
 https://nytimes.com/athletic/6924133/2025/12/28/new-york-jets-owner-woody-johnson-aaron-glenn-patriots-loss/
@@ -35,8 +39,4 @@ https://nytimes.com/2025/12/28/us/politics/trump-zelensky-peace-ukraine-putin.ht
 **Admired Figures**\
 `Chase Dittrich brings us a first-class puzzle.`\
 https://nytimes.com/2025/12/28/crosswords/daily-puzzle-2025-12-29.html
-
-**Will Steelers or Ravens win AFC North? Did Drake Maye lock up MVP? Week 17 takeaways**\
-`The Panthers and Bucs are also stumbling into Week 18 after Sunday's losses. Only one can win the last NFC playoff berth. Who has the edge?`\
-https://nytimes.com/athletic/6923411/2025/12/28/nfl-takeaways-week-17-scores-results/
 
