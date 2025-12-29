@@ -1,3 +1,7 @@
+**Grim Evidence of Trump’s Airstrikes Washes Ashore on a Colombian Peninsula**\
+`First came the scorched boat. Then the mangled bodies. Then the packets with traces of marijuana. Now, fishermen fear the ocean that feeds them.`\
+https://nytimes.com/2025/12/29/world/americas/trump-boat-strikes-gulf-of-venezuela-wreckage.html
+
 **Marcus Freeman to remain with Notre Dame in 2026 on new contract**\
 `Freeman is 43-12 in four seasons in South Bend, including a 24-4 record the past two years.`\
 https://nytimes.com/athletic/6926588/2025/12/29/notre-dame-marcus-freeman-contract-nfl/
@@ -25,8 +29,4 @@ https://nytimes.com/athletic/6926225/2025/12/29/buffalo-sabres-stats-standings-s
 **Blues' Pius Suter suffered right ankle injury, will be re-evaluated in 4 weeks**\
 `Pius Suter was injured in Saturday's game against the Predators.`\
 https://nytimes.com/athletic/6926195/2025/12/29/blues-pius-suter-ankle-injury/
-
-**Police Raid on Suspected ISIS Safe House in Turkey Turns Deadly**\
-`Three police officers and six militants were killed in clashes during a police raid on a suspected Islamic State safe house in Turkey on Monday, the authorities said.`\
-https://nytimes.com/video/world/europe/100000010613319/turkey-isis-police-raid.html
 

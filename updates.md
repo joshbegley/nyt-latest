@@ -1,3 +1,7 @@
+**Marcus Freeman to remain with Notre Dame in 2026 on new contract**\
+`Freeman is 43-12 in four seasons in South Bend, including a 24-4 record the past two years.`\
+https://nytimes.com/athletic/6926588/2025/12/29/notre-dame-marcus-freeman-contract-nfl/
+
 **Melanie Watson Bernhardt, ‘Diff’rent Strokes’ Actress, Dies at 57**\
 `Her four episodes on the sitcom marked a rarity: a disabled actress onscreen.`\
 https://nytimes.com/2025/12/29/arts/melanie-watson-dead-different-strokes.html
