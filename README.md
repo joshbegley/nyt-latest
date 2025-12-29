@@ -1,3 +1,7 @@
+**The Bounce: How to make sense of the Lakers and Clippers. And was this Wemby's best dunk?**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/6925855/2025/12/29/nba-clippers-lakers-wembanyama-the-bounce/
+
 **Clothes With Stories to Tell**\
 `See all the outfits from around the world that were featured this year in our Look of the Week column.`\
 https://nytimes.com/2025/12/29/style/street-style-outfits-2025.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6925424/2025/12/29/mikel-arteta-arsenal-january-tra
 **Instant grades for college football's 2025-26 head-coaching hires**\
 `In college football, you never really know whether a coaching hire is going to work. But it's never too early to talk about fit.`\
 https://nytimes.com/athletic/6827060/2025/12/29/college-football-coaching-carousel-grades/
-
-**Train Derailment in Mexico Leaves Several Dead**\
-`More than a dozen people were killed when a passenger train derailed on Sunday in the Mexican state of Oaxaca, according to the authorities. An investigation into the cause has been opened.`\
-https://nytimes.com/video/world/americas/100000010612821/mexico-train-crash.html
 
