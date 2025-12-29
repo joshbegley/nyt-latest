@@ -1,3 +1,7 @@
+**Parts of New York and New England Brace for Ice Storm**\
+`Several states were under weather warnings or advisories early Monday. The same winter storm battered the Midwest over the weekend.`\
+https://nytimes.com/2025/12/29/us/new-york-new-england-ice-storm.html
+
 **Brock Purdy’s 5 Total Touchdowns Lead 49ers Past Bears in Thriller**\
 `The San Francisco 49ers outlasted the Chicago Bears in a thrilling 42-38 win that fittingly came down to the final play.`\
 https://nytimes.com/video/sports/football/100000010612988/brock-purdys-5-total-touchdowns-lead-49ers-past-bears-in-thriller.html

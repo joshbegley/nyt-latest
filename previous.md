@@ -1,3 +1,7 @@
+**Parts of New York and New England Brace for Ice Storm**\
+`Several states were under weather warnings or advisories early Monday. The same winter storm battered the Midwest over the weekend.`\
+https://nytimes.com/2025/12/29/us/new-york-new-england-ice-storm.html
+
 **Brock Purdy’s 5 Total Touchdowns Lead 49ers Past Bears in Thriller**\
 `The San Francisco 49ers outlasted the Chicago Bears in a thrilling 42-38 win that fittingly came down to the final play.`\
 https://nytimes.com/video/sports/football/100000010612988/brock-purdys-5-total-touchdowns-lead-49ers-past-bears-in-thriller.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/29/arts/music/operas-to-watch-at-home.html
 **‘I Was Just So Naïve’: Inside Marjorie Taylor Greene’s Break With Trump**\
 `How the Georgia congresswoman went from the president’s loudest cheerleader to his loudest Republican critic.`\
 https://nytimes.com/2025/12/29/magazine/marjorie-taylor-greene-trump-maga-split.html
-
-**A Story of Hip-Hop Rehabilitation With the Body as Battleground**\
-`Dahlak Brathwaite’s “Try/Step/Trip,” part of the Under the Radar festival, uses the language of step to express the liberating and restricting power of groups.`\
-https://nytimes.com/2025/12/29/arts/dance/try-step-trip-under-the-radar-dahlak-brathwaite.html
 
