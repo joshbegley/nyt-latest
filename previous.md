@@ -1,3 +1,35 @@
+**Romney’s Pitch to Tax the Rich Is ‘Not Punishment’**\
+`Readers react to Mitt Romney’s call to raise taxes on the wealthy. Also: the moral bankruptcy revealed by the Epstein files.`\
+https://nytimes.com/2025/12/29/opinion/romney-tax-wealthy-proposal.html
+
+**How to watch North Carolina vs. Boston College women's basketball: Time, TV, streaming**\
+`Find out how to watch the North Carolina Tar Heels play the Boston College Eagles, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6927182/2025/12/29/north-carolina-vs-boston-college-stream-how-to-watch-dec-29/
+
+**How to watch Yale vs. Alabama men's basketball: Time, TV, streaming**\
+`Find out how to watch the Yale Bulldogs play the Alabama Crimson Tide, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6927179/2025/12/29/yale-vs-alabama-stream-how-to-watch-dec-29/
+
+**How to watch Michigan vs. Oregon women's basketball: Time, TV, streaming**\
+`Find out how to watch the Michigan Wolverines play the Oregon Ducks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6927177/2025/12/29/michigan-vs-oregon-stream-how-to-watch-dec-29/
+
+**How to watch Middle Tennessee vs. Houston men's basketball: Time, TV, streaming**\
+`Find out how to watch the Middle Tennessee Blue Raiders play the Houston Cougars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6927174/2025/12/29/middle-tennessee-vs-houston-stream-how-to-watch-dec-29/
+
+**How to watch Houston Christian vs. Iowa State men's basketball: Time, TV, streaming**\
+`Find out how to watch the Houston Christian Huskies play the Iowa State Cyclones, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6927172/2025/12/29/houston-christian-vs-iowa-state-stream-how-to-watch-dec-29/
+
+**How to watch James Madison vs. Arkansas men's basketball: Time, TV, streaming**\
+`Find out how to watch the James Madison Dukes play the Arkansas Razorbacks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6927169/2025/12/29/james-madison-vs-arkansas-stream-how-to-watch-dec-29/
+
+**How to watch South Dakota State vs. Arizona men's basketball: Time, TV, streaming**\
+`Find out how to watch the South Dakota State Jackrabbits play the Arizona Wildcats, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6927166/2025/12/29/south-dakota-state-vs-arizona-stream-how-to-watch-dec-29/
+
 **Penguins acquiring Yegor Chinakhov in trade from Blue Jackets: Sources**\
 `Chinakhov, who requested a trade in the offseason, has six points in 29 games this season for Columbus.`\
 https://nytimes.com/athletic/6927105/2025/12/29/yegor-chinakhov-trade-penguins-blue-jackets-nhl/
@@ -5,36 +37,4 @@ https://nytimes.com/athletic/6927105/2025/12/29/yegor-chinakhov-trade-penguins-b
 **Panthers brace for Bucs and opportunity to end 7-year playoff drought**\
 `Dave Canales could get a key lineman back and he'll also spend time this week trying to get Bryce Young back on track.`\
 https://nytimes.com/athletic/6926902/2025/12/29/panthers-bucs-nfc-south-playoffs-bryce-young/
-
-**Blue Jackets vs. Senators start time delayed due to Columbus' travel issues**\
-`The Blue Jackets were unable to leave for Ottawa until Monday afternoon, hours before the same night's game.`\
-https://nytimes.com/athletic/6927091/2025/12/29/blue-jackets-senators-game-time-airplane/
-
-**Broncos' muted celebration of AFC West title indicative of bigger goals ahead**\
-`Sean Payton didn't mark team's division title outside of distributing "ugly" shirts and hats. The No. 1 seed would bring bigger celebration.`\
-https://nytimes.com/athletic/6926935/2025/12/29/broncos-afc-west-champions-playoff-seed/
-
-**U.S. Pledges $2 Billion for U.N. Aid but Tells Agencies to ‘Adapt, Shrink, or Die’**\
-`The announcement will likely keep the United States as the biggest international aid donor next year, even as the Trump administration slashes funding for foreign assistance programs.`\
-https://nytimes.com/2025/12/29/world/europe/us-un-aid-funding-foreign-assistance.html
-
-**The story behind the Reggie Miller-Steve Alford reference in 'Stranger Things'**\
-`Should the Pacers have drafted Steve Alford over Miller in 1987? One character in the Indiana-based Netflix series thinks so.`\
-https://nytimes.com/athletic/6926513/2025/12/29/reggie-miller-steve-alford-stranger-things-reference/
-
-**Trump, Pressing Ahead on Ukraine-Russia Talks, Confronts Difficult Realities**\
-`The U.S.-led negotiations have made some progress, but still face fundamental challenges, including over security guarantees to counter future Russian aggression.`\
-https://nytimes.com/2025/12/29/us/politics/trump-zelensky-putin-ukraine-russia.html
-
-**Fantasy football Week 17 recap, early waivers speed run**\
-`If your fantasy playoffs are still going, here's how to handle the last week of action.`\
-https://nytimes.com/athletic/6926088/2025/12/29/fantasy-football-week-17-recap-early-waivers-speed-run-how-to-handle-week-18/
-
-**Does Anybody Really Know What Time It Is?**\
-`The clocks aboard our icebreaker will be changed several times en route to Antarctica. It’s one of many things that make the expedition feel otherworldly.`\
-https://nytimes.com/2025/12/29/climate/antarctica-time-zone.html
-
-**How prediction markets mirrored the chaos of the college football coaching carousel**\
-`Prediction markets reflected the drama, and rumor-mongering, of the college football coaching carousel.`\
-https://nytimes.com/athletic/6880068/2025/12/29/prediction-markets-college-coaching-carousel-michigan-penn-state-lane-kiffin/
 
