@@ -1,3 +1,23 @@
+**Fantasy Premier League live Q&A: Gameweek 19 advice from Ben Dinnery**\
+`To point you in the right direction, Ben Dinnery of premierinjuries.com is on hand to offer his expert FPL advice`\
+https://nytimes.com/athletic/6928285/2025/12/30/fantasy-premier-league-live-qa-gameweek-19-advice-from-ben-dinnery/
+
+**Mamdani Promised Universal Child Care. How Long Could It Take?**\
+`Here is what to expect if you’re expecting relief from the soaring cost of day care in New York City.`\
+https://nytimes.com/2025/12/30/nyregion/mamdani-nyc-mayor-free-childcare.html
+
+**So You Have Bacterial Vaginosis. What Do You Do Now?**\
+`Now that the condition is known to spread sexually, there are steps you and your partner can take to prevent it.`\
+https://nytimes.com/2025/12/30/health/bacterial-vaginosis-what-to-do.html
+
+**This Common Infection Was Thought to Affect Only Women. Now Doctors Know Better.**\
+`Gynecologists long viewed bacterial vaginosis as solely a women’s issue — until a study that treated their male partners, too, proved otherwise.`\
+https://nytimes.com/2025/12/30/health/bacterial-vaginosis-sexually-transmitted-infection.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/12/30/crosswords/spelling-bee-forum.html
+
 **China Holds Live-Fire Drills Around Taiwan**\
 `Beijing mobilized naval and air forces in its first major military exercise on all sides of Taiwan since April, state media showed.`\
 https://nytimes.com/video/world/asia/100000010615009/china-taiwan-military-drills.html
