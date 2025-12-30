@@ -1,3 +1,7 @@
+**Overlooked Stories**\
+`We look at some of our best stories of 2025 that you might have missed in the year’s avalanche of news.`\
+https://nytimes.com/2025/12/30/world/overlooked-stories-iran-protests-venezuela.html
+
 **Until Saturday: CFB's biggest 2025 stories**\
 `Until Saturday is The Athletic's free college football newsletter.`\
 https://nytimes.com/athletic/6930118/2025/12/30/college-football-2025-review-until-saturday/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6930032/2025/12/30/kings-vs-clippers-stream-how-to-
 **How to watch 76ers vs. Grizzlies: Time, TV, streaming**\
 `Find out how to watch the Philadelphia 76ers play the Memphis Grizzlies, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6930030/2025/12/30/76ers-vs-grizzlies-stream-how-to-watch-dec-30/
-
-**How to watch Celtics vs. Jazz: Time, TV, streaming**\
-`Find out how to watch the Boston Celtics play the Utah Jazz, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6930026/2025/12/30/celtics-vs-jazz-stream-how-to-watch-dec-30/
 

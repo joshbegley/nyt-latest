@@ -1,6 +1,14 @@
+**Duke lands 5-star PG Deron Rippey Jr.: What this means for Blue Devils**\
+`Rippey is an explosive lead guard who thrives on applying relentless ball pressure and making opposing guards uncomfortable.`\
+https://nytimes.com/athletic/6927402/2025/12/30/deron-rippey-duke-college-basketball-commitment/
+
 **Overlooked Stories**\
 `We look at some of our best stories of 2025 that you might have missed in the year’s avalanche of news.`\
 https://nytimes.com/2025/12/30/world/overlooked-stories-iran-protests-venezuela.html
+
+**Gaza Aid Groups Face Suspensions Under New Israeli Rules**\
+`The organizations, including Doctors Without Borders, have resisted providing Israel with detailed information about their workers.`\
+https://nytimes.com/2025/12/30/world/middleeast/gaza-aid-group-suspensions-israel.html
 
 **Until Saturday: CFB's biggest 2025 stories**\
 `Until Saturday is The Athletic's free college football newsletter.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6930021/2025/12/30/dc-united-louis-munteanu-club-re
 **Give these five fantasy football players all of the championship glory**\
 `Week 17 of 2025 saw five players deliver some some of the best final-week performances in the past 10 seasons.`\
 https://nytimes.com/athletic/6929549/2025/12/30/fantasy-football-playoff-heroes-records-points-henry-bijan-purdy-maye/
-
-**How to watch Kings vs. Clippers: Time, TV, streaming**\
-`Find out how to watch the Sacramento Kings play the Los Angeles Clippers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6930032/2025/12/30/kings-vs-clippers-stream-how-to-watch-dec-30/
-
-**How to watch 76ers vs. Grizzlies: Time, TV, streaming**\
-`Find out how to watch the Philadelphia 76ers play the Memphis Grizzlies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6930030/2025/12/30/76ers-vs-grizzlies-stream-how-to-watch-dec-30/
 
