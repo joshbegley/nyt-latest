@@ -1,3 +1,11 @@
+**Falcons win over Rams complicates NFC South race between Buccaneers and Panthers**\
+`A win by the Panthers over the Bucs on Saturday clinches the NFC South. If the Bucs win, the Falcons-Saints game on Sunday comes into play.`\
+https://nytimes.com/athletic/6928097/2025/12/29/buccaneers-panthers-nfc-south-complicated-falcons/
+
+**C.I.A. Conducted Drone Strike on Port in Venezuela**\
+`The attack last week, on a dock purportedly used for shipping narcotics, did not kill anyone, people briefed on the operation said. But it was the first known U.S. operation inside Venezuela.`\
+https://nytimes.com/2025/12/29/us/politics/cia-drone-strike-venezuela.html
+
 **Full Time: Celebrating 2025 and looking to 2026**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/6928088/2025/12/29/2025-womens-soccer-review-full-time/

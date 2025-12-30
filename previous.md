@@ -1,3 +1,11 @@
+**Falcons win over Rams complicates NFC South race between Buccaneers and Panthers**\
+`A win by the Panthers over the Bucs on Saturday clinches the NFC South. If the Bucs win, the Falcons-Saints game on Sunday comes into play.`\
+https://nytimes.com/athletic/6928097/2025/12/29/buccaneers-panthers-nfc-south-complicated-falcons/
+
+**C.I.A. Conducted Drone Strike on Port in Venezuela**\
+`The attack last week, on a dock purportedly used for shipping narcotics, did not kill anyone, people briefed on the operation said. But it was the first known U.S. operation inside Venezuela.`\
+https://nytimes.com/2025/12/29/us/politics/cia-drone-strike-venezuela.html
+
 **Full Time: Celebrating 2025 and looking to 2026**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/6928088/2025/12/29/2025-womens-soccer-review-full-time/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6927592/2025/12/29/doc-rivers-george-karl-nba-coach
 **Nikola Jokić leaves Nuggets-Heat game with left knee injury**\
 `Jokić was initially ruled questionable to return before Denver announced he would miss the rest of the game.`\
 https://nytimes.com/athletic/6927926/2025/12/29/nikola-jokic-nuggets-left-knee-injury/
-
-**Khaleda Zia, Bangladesh’s First Female Prime Minister, Dies**\
-`A leader for three terms, she traded the country’s leadership with Sheikh Hasina, the head of another political dynasty, over decades. She was believed to be 80.`\
-https://nytimes.com/2025/12/29/world/asia/khaleda-zia-bangladesh-dead.html
-
-**Our two journalists compare their packing lists.**\
-`(No description)`\
-https://nytimes.com/live/2025/climate/antarctica-thwaites-glacier/packing-conversation
 
