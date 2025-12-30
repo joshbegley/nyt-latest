@@ -1,40 +1,40 @@
-**Arsenal vs Aston Villa: Biggest game of season so far? Views on Emery? January transfer plans?**\
-`Our writers analyse the key talking points ahead of the top-of-the-table clash in the Premier League`\
-https://nytimes.com/athletic/6925654/2025/12/30/arsenal-aston-villa-premier-league-preview-title-race/
+**Tottenham's 2025: A trophy, turmoil and a horrible home record**\
+`It has been quite a year for all involved at Spurs... who knows what 2026 will bring them?`\
+https://nytimes.com/athletic/6907196/2025/12/30/tottenham-2025-review-trophy-thomas-frank/
 
-**In Lagos, December Is Time to Get Down and ‘Detty’**\
-`Detty December means a month of “back to back to back” partying in Nigeria’s megacity, both for locals and visiting members of the diaspora. Bring your stamina, dancing shoes and wads of cash.`\
-https://nytimes.com/2025/12/30/world/africa/detty-december-lagos-nigeria.html
+**Bijan Robinson's career night leads Falcons to upset victory over Rams: Takeaways**\
+`With the loss, the Rams need the Seahawks to defeat the 49ers in Week 18 and secure a win over the Cardinals to earn the NFC's No. 5 seed.`\
+https://nytimes.com/athletic/6928052/2025/12/30/falcons-rams-score-result-takeaways-mnf/
 
-**Connections: Sports Edition Coach: Hints for Dec. 30, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6928103/2025/12/30/connections-sports-edition-hints-for-dec-30-2025/
+**Real Madrid in 2025: A year of transition at a club that does not like to wait**\
+`With the team struggling to make the kind of progress that was expected under Xabi Alonso, we look back on Real Madrid's 2025`\
+https://nytimes.com/athletic/6914705/2025/12/30/real-madrid-alonso-la-liga-champions-league-2025/
 
-**The Tiny Japanese Island on the Front Lines of China’s Feud**\
-`Yonaguni, a tiny Japanese island near Taiwan, is getting soldiers, radar and missiles. As China’s dispute with Tokyo escalates, some residents are worried.`\
-https://nytimes.com/2025/12/30/world/asia/japan-china-island-yonaguni.html
+**Manchester City's 2025: Guardiola's rebuild, new signings and Haaland's goals**\
+`The club entered the year in a state of worrying decline, but with the squad overhauled, things are looking promising for 2026`\
+https://nytimes.com/athletic/6902457/2025/12/30/manchester-city-2025-guardiola-rebuild-captain-silva-haaland-goals/
 
-**Corrections: Dec. 30, 2025**\
-`Corrections that appeared in print on Tuesday, Dec. 30, 2025.`\
-https://nytimes.com/2025/12/30/pageoneplus/corrections-dec-30-2025.html
+**Reece James has gone a whole year injury-free. Both he and Chelsea deserve credit**\
+`Against Villa on Saturday, James made his 50th club appearance of 2025 — the highest figure he has reached in a calendar year since 2021`\
+https://nytimes.com/athletic/6923198/2025/12/30/reece-james-chelsea-premier-league-injury-free/
 
-**Quote of the Day: Green Marvel or Ghost City? Deciding the Fate of Nusantara.**\
-`Quotation of the Day for Tuesday, December 30, 2025.`\
-https://nytimes.com/2025/12/29/pageoneplus/quote-of-the-day-green-marvel-or-ghost-city-deciding-the-fate-of-nusantara.html
+**Inside Newcastle Q&A: Is Howe under pressure? Plans for the January transfer window?**\
+`Our correspondent answers your pressing questions about the club following a poor run of results`\
+https://nytimes.com/athletic/6925020/2025/12/30/newcastle-premier-league-eddie-howe/
 
-**Blue Jackets defy built-in excuses, finish strong again to beat Senators**\
-`After a travel nightmare and missing a veteran center, the Blue Jackets stepped up in the third period for the third straight game.`\
-https://nytimes.com/athletic/6928040/2025/12/29/blue-jackets-sillinger-monahan-travel-senators/
+**Dear fellow Forest fans, there's no excuse for poverty chanting**\
+`The other team aren't the enemy - and supporters should think about that before weaponising poverty in the name of 'banter'`\
+https://nytimes.com/athletic/6925464/2025/12/30/nottingham-forest-poverty-chanting-premier-league/
 
-**Race to the No. 1 pick: Raiders lead, Giants have a path, Jets eliminated**\
-`The Jets were knocked out of consideration with the Falcons' upset win over the Rams.`\
-https://nytimes.com/athletic/6921789/2025/12/29/nfl-draft-2026-top-pick-raiders-giants-jets/
+**AFCON, Mbekezeli Mbokazi and the flow of talent out of South Africa**\
+`Highly rated centre-back Mbokazi has agreed a move to Chicago Fire. What does it say about the current state of South African football?`\
+https://nytimes.com/athletic/6926876/2025/12/30/south-africa-mbokazi-afcon-motsepe-broos/
 
-**McKenna, Hagens break out, Jiricek front-runner for top D: World Juniors Day 4**\
-`Day 4 at the World Juniors was a big one, with arguably the tournament's top six teams all in action across four games.`\
-https://nytimes.com/athletic/6920672/2025/12/29/gavin-mckenna-world-juniors-canada-usa-adam-jiricek/
+**Forest's unwanted record, Haaland's strike rate, Howe makes history: 2025 in football stats**\
+`A look back at some of the numerical quirks of football in 2025`\
+https://nytimes.com/athletic/6895990/2025/12/30/2025-football-stats/
 
-**Falcons win over Rams complicates NFC South race between Buccaneers and Panthers**\
-`A win by the Panthers over the Bucs on Saturday clinches the NFC South. If the Bucs win, the Falcons-Saints game on Sunday comes into play.`\
-https://nytimes.com/athletic/6928097/2025/12/29/buccaneers-panthers-nfc-south-complicated-falcons/
+**What is it like to be a Premier League referee? An interview with Graham Scott**\
+`Scott refereed in the Premier League for a decade before retiring in 2024. He has spoken to The Athletic about  his career...`\
+https://nytimes.com/athletic/6895973/2025/12/30/graham-scott-interview-premier-league-referee/
 
