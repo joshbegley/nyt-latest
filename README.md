@@ -1,5 +1,5 @@
-**U.S. Kills 2 Men in Strike in Pacific, as Trump Pressures Venezuela**\
-`The strike was the 30th announced by the U.S. military since early September. It came days after President Trump said the U.S. had struck a coastal site related to drugs and Venezuela.`\
+**U.S. Kills 2 in Strike in Pacific, as Trump Pressures Venezuela**\
+`The attack was the 30th announced by the U.S. military since early September. It came days after President Trump said the U.S. had struck a coastal site related to drugs and Venezuela.`\
 https://nytimes.com/2025/12/29/us/politics/pacific-trump-venezuela-boat-strike.html
 
 **Hundreds Sue Virginia Hospital and Executives Over Unneeded Surgeries**\

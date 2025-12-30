@@ -1,3 +1,11 @@
+**U.S. Kills 2 Men in Strike in Pacific, as Trump Pressures Venezuela**\
+`The strike was the 30th announced by the U.S. military since early September. It came days after President Trump said the U.S. had struck a coastal site related to drugs and Venezuela.`\
+https://nytimes.com/2025/12/29/us/politics/pacific-trump-venezuela-boat-strike.html
+
+**Hundreds Sue Virginia Hospital and Executives Over Unneeded Surgeries**\
+`More than 500 women claimed that they had received unnecessary operations. Hospital leaders said they were not aware of a doctor’s misconduct.`\
+https://nytimes.com/2025/12/29/health/chesapeake-hospital-lawsuit-perwaiz.html
+
 **Clemson parts ways with OC Garrett Riley and safeties coach Mickey Conn**\
 `Clemson finished 7-6, the program's first six-loss season since 2010.`\
 https://nytimes.com/athletic/6927669/2025/12/29/clemson-parts-ways-garrett-riley/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/29/nyregion/nyc-takes-over-maimonides.html
 **Trump and Netanyahu Present United Front During Meeting**\
 `President Trump and Prime Minister Benjamin Netanyahu of Israel lavished each other with praise during their meeting on Monday. The two discussed Gaza’s reconstruction. Mr. Netanyahu also gave Mr. Trump the Israel Prize, the country’s highest cultural honor.`\
 https://nytimes.com/video/us/politics/100000010613968/trump-netanyahu-israel-pardon.html
-
-**Cardinals' Jonathan Gannon 'feels good' about potential return as coach**\
-`Although Gannon is 15-35 with the Cardinals, he helped Arizona go from four wins in his first season to eight the next.`\
-https://nytimes.com/athletic/6927465/2025/12/29/jonathan-gannon-cardinals-head-coach-status/
-
-**Russia Threatens to Harden Its Stance on Ukraine**\
-`Plus, food trends for 2026. Here’s the latest at the end of Monday.`\
-https://nytimes.com/2025/12/29/briefing/russia-venezuela-rfk.html
 
