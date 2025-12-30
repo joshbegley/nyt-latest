@@ -1,3 +1,15 @@
+**Saudi-Led Strike in Yemen Signals Worsening Rift With U.A.E.**\
+`A Saudi-led coalition said it had targeted an arms shipment in Yemen bound for a separatist group backed by the United Arab Emirates. The Emirates denied that the shipment included weapons.`\
+https://nytimes.com/video/world/middleeast/100000010615259/saudi-yemen-strike-uae.html
+
+**Kazuyoshi Miura, 58, signs with new club to extend record-breaking soccer career**\
+`The world's oldest professional soccer player is continuing his career into a 41st season.`\
+https://nytimes.com/athletic/6928990/2025/12/30/kazuyoshi-miura-age-oldest-player/
+
+**Forget a recalibration: The Commanders need to get back to basics**\
+`Multiple Commanders players who ended the 2024 season on the rise have taken perplexing steps back in 2025.`\
+https://nytimes.com/athletic/6928920/2025/12/30/commanders-regression-quan-martin-mike-sainristil/
+
 **Trump Administration Live Updates: C.I.A. Conducted Drone Strike on Venezuela Port**\
 ``\
 https://nytimes.com/live/2025/12/30/us/trump-news
