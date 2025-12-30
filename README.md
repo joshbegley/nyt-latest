@@ -1,3 +1,7 @@
+**Our Favorite Beauty Stories of 2025**\
+`In-depth guides and insider tips on how to best care for your hair, skin and nails.`\
+https://nytimes.com/2025/12/30/t-magazine/favorite-beauty-guides-stories.html
+
 **Dan Hurley calls for college basketball commissioner in wake of Nnaji eligibility**\
 `Hurley's comments come days after legendary Michigan State coach Tom Izzo criticized the NCAA for granting Nnaji eligibility.`\
 https://nytimes.com/athletic/6928906/2025/12/30/dan-hurley-college-basketball-commissioner-james-nnaji/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6928728/2025/12/30/top-matches-games-world-cup-2026
 **A Watch with Meaning in Action**\
 `How did a family-run business from Florence evolve into one of the world’s most innovative watch brands?`\
 https://nytimes.com/paidpost/panerai/a-watch-with-meaning-in-action.html
-
-**Kawhi Leonard and the Clippers are on a heater. Is it sustainable?**\
-`Leonard's recent surge of energy includes a 55-point game as LA has won four straight. Is this a turnaround or a blip?`\
-https://nytimes.com/athletic/6928174/2025/12/30/kawhi-leonard-clippers-hot-streak-sustainable/
 
