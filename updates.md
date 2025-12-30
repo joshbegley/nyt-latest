@@ -1,3 +1,11 @@
+**Doc Rivers passes George Karl for sixth place on NBA's coaching wins list**\
+`To this point in his career, Rivers has compiled a 1,176-835 record and a .585 win percentage.`\
+https://nytimes.com/athletic/6927592/2025/12/29/doc-rivers-george-karl-nba-coaching-wins/
+
+**Nikola Jokić leaves Nuggets-Heat game with left knee injury**\
+`Jokić was initially ruled questionable to return before Denver announced he would miss the rest of the game.`\
+https://nytimes.com/athletic/6927926/2025/12/29/nikola-jokic-nuggets-left-knee-injury/
+
 **Khaleda Zia, Bangladesh’s First Female Prime Minister, Dies**\
 `A leader for three terms, she traded the country’s leadership with Sheikh Hasina, the head of another political dynasty, over decades. She was believed to be 80.`\
 https://nytimes.com/2025/12/29/world/asia/khaleda-zia-bangladesh-dead.html
