@@ -1,3 +1,7 @@
+**Tanzania reach AFCON knockout stages for first time ever despite CAF confusion**\
+`The east African side did not win a game in the group stage but will face hosts Morocco in the round of 16 on Sunday. `\
+https://nytimes.com/athletic/6929785/2025/12/30/tanzania-afcon-knockout-stages/
+
 **The Briefing: Chelsea 2 Bournemouth 2 - Fans show frustration, costly Caicedo booking**\
 `Chelsea ended 2025 on a sour note, drawing at home to out-of-sorts Bournemouth to finish the year on a run of one win in seven league games`\
 https://nytimes.com/athletic/6922662/2025/12/30/chelsea-2-bournemouth-2/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6930037/2025/12/30/angels-kirby-yates-veteran-dodge
 **NCAA president: Players who signed NBA contracts aren't eligible for college hoops**\
 `Coaches and fans alike have been searching for clarity after a 2023 NBA Draft pick signed with Baylor on Christmas Eve.`\
 https://nytimes.com/athletic/6929930/2025/12/30/ncaa-nba-eligibility-charlie-baker/
-
-**The Separation: Inside the Unraveling U.S.-Ukraine Partnership**\
-`As President Trump sought a peace deal and Vladimir V. Putin sought victory, factions in the White House and Pentagon bled the Ukrainian war effort.`\
-https://nytimes.com/interactive/2025/12/30/world/europe/ukraine-war-us-russia.html
 
