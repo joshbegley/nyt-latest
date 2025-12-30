@@ -1,3 +1,7 @@
+**A Watch with Meaning in Action**\
+`How did a family-run business from Florence evolve into one of the world’s most innovative watch brands?`\
+https://nytimes.com/paidpost/panerai/a-watch-with-meaning-in-action.html
+
 **Kawhi Leonard and the Clippers are on a heater. Is it sustainable?**\
 `Leonard's recent surge of energy includes a 55-point game as LA has won four straight. Is this a turnaround or a blip?`\
 https://nytimes.com/athletic/6928174/2025/12/30/kawhi-leonard-clippers-hot-streak-sustainable/
@@ -11,7 +15,7 @@ https://nytimes.com/athletic/6928872/2025/12/30/miami-ohio-state-history-pass-in
 https://nytimes.com/2025/12/30/world/europe/spain-jesus-fresco-restoration-painter-gimenez-dead.html
 
 **Nostalgia in Denmark as Main Postal Carrier Ends Letter Delivery**\
-`PostNord, the country’s longtime service, will deliver its last letters this week. Few Danes send snail mail anymore, but some are mourning the end of an era.`\
+`PostNord, the country’s longtime service, is delivering its last letters. Few Danes send snail mail anymore, but some are mourning the end of an era.`\
 https://nytimes.com/2025/12/30/world/europe/denmark-letter-delivery-postnord-mailboxes.html
 
 **Our favorite athlete TV cameos of 2025, from 'Landman' to 'Abbott Elementary'**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/30/world/europe/eurostar-delays-channel-tunnel-londo
 **Naz Reid's breakout game comes on a big night for a beloved Timberwolves fan**\
 `Reid gave the struggling Minnesota bench a boost and perhaps inspired a fan in need.`\
 https://nytimes.com/athletic/6927164/2025/12/30/naz-reid-breakout-game-timberwolves-fan/
-
-**How Russia and Ukraine Are Fighting to Shape President Trump’s View of the War**\
-`Off the battlefield, each side is trying to influence the American leader’s perception as they look to negotiate a peace settlement in their favor.`\
-https://nytimes.com/2025/12/30/world/europe/russia-ukraine-trump-influence.html
 
