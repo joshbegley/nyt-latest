@@ -1,3 +1,11 @@
+**In One Year, Trump’s War on Immigration Alters the Face of America**\
+`The crackdown and detentions swept from one coast to the other: day laborers in Los Angeles, a flower seller in Chicago, immigrants in New York courtrooms.`\
+https://nytimes.com/interactive/2025/12/29/nyregion/nyregionspecial/trump-immigration-crackdown-first-year.html
+
+**Why This Glacier Worries Scientists the Most**\
+`Our climate reporter Raymond Zhong describes how the fast-melting Thwaites Glacier of Antarctica, which we’re visiting, is like a cork in a bottle: If it starts to really disintegrate, many more glaciers around it could do the same, with major consequences for sea levels.`\
+https://nytimes.com/video/climate/100000010542258/why-this-glacier-worries-scientists-the-most.html
+
 **Doc Rivers passes George Karl for sixth place on NBA's coaching wins list**\
 `To this point in his career, Rivers has compiled a 1,176-835 record and a .585 win percentage.`\
 https://nytimes.com/athletic/6927592/2025/12/29/doc-rivers-george-karl-nba-coaching-wins/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6927616/2025/12/29/scott-drew-james-nnaji-baylor/
 **An Anti-A.I. Movement Is Coming. Which Party Will Lead It?**\
 `The technology Is ruining much of what makes life worth living.`\
 https://nytimes.com/2025/12/29/opinion/ai-democracy.html
-
-**Two overhead kicks in eight days: Which of El Kaabi's outrageous AFCON goals was better?**\
-`The Morocco striker stunned viewers with his acrobatic finish against Zambia, but he'd already done it once before at this tournament`\
-https://nytimes.com/athletic/6927688/2025/12/29/ayoub-el-kaabi-overhead-kicks-morocco-afcon/
-
-**U.S. Kills 2 in Strike in Pacific, as Trump Pressures Venezuela**\
-`The attack was the 30th announced by the U.S. military since early September. It came days after President Trump said the U.S. had struck a coastal site related to drugs and Venezuela.`\
-https://nytimes.com/2025/12/29/us/politics/pacific-trump-venezuela-boat-strike.html
 

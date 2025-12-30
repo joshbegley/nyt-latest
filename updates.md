@@ -1,3 +1,11 @@
+**In One Year, Trump’s War on Immigration Alters the Face of America**\
+`The crackdown and detentions swept from one coast to the other: day laborers in Los Angeles, a flower seller in Chicago, immigrants in New York courtrooms.`\
+https://nytimes.com/interactive/2025/12/29/nyregion/nyregionspecial/trump-immigration-crackdown-first-year.html
+
+**Why This Glacier Worries Scientists the Most**\
+`Our climate reporter Raymond Zhong describes how the fast-melting Thwaites Glacier of Antarctica, which we’re visiting, is like a cork in a bottle: If it starts to really disintegrate, many more glaciers around it could do the same, with major consequences for sea levels.`\
+https://nytimes.com/video/climate/100000010542258/why-this-glacier-worries-scientists-the-most.html
+
 **Doc Rivers passes George Karl for sixth place on NBA's coaching wins list**\
 `To this point in his career, Rivers has compiled a 1,176-835 record and a .585 win percentage.`\
 https://nytimes.com/athletic/6927592/2025/12/29/doc-rivers-george-karl-nba-coaching-wins/
