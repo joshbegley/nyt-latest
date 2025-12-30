@@ -1,5 +1,5 @@
 **3 Hikers Are Found Dead on Mt. Baldy Amid ‘Extremely Dangerous’ Conditions, Sheriff Says**\
-`The authorities closed access to part of Mt. Baldy, the tallest peak in the San Gabriel Mountains in Southern California. They cited dangerous and unpredictable terrain and weather.`\
+`The authorities closed access to part of Mount Baldy, the tallest peak in the San Gabriel Mountains in Southern California. They cited dangerous and unpredictable terrain and weather.`\
 https://nytimes.com/2025/12/30/us/hikers-dead-mount-baldy-california.html
 
 **Brighton's Hurzeler accuses officials of guesswork in West Ham penalty**\
