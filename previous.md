@@ -1,3 +1,7 @@
+**Baylor's Drew defends signing NBA draftee amid criticism**\
+`Drew said the Bears are embracing the modern era of college basketball while prioritizing what’s best for their program.`\
+https://nytimes.com/athletic/6927616/2025/12/29/scott-drew-james-nnaji-baylor/
+
 **An Anti-A.I. Movement Is Coming. Which Party Will Lead It?**\
 `The technology Is ruining much of what makes life worth living.`\
 https://nytimes.com/2025/12/29/opinion/ai-democracy.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/29/us/politics/jan-6-anniversary-trump.html
 **What we're hearing about MLB offseason: Tyler Soderstrom, Brendan Donovan and more**\
 `Plus, what's next on the Nolan Arenado trade front, a looming deadline for two Japanese standouts and how Reds could upgrade their outfield.`\
 https://nytimes.com/athletic/6927521/2025/12/29/mlb-off-season-tyler-soderstrom-brendan-donovan/
-
-**NASCAR star Denny Hamlin's father, Dennis, dies of injuries from house fire**\
-`Dennis Hamlin died following a fire at their house Sunday night, and Hamlin's mother, Mary Lou, is in critical condition, authorities said.`\
-https://nytimes.com/athletic/6927154/2025/12/29/nascar-denny-hamlin-father-dennis-dies-house-fire/
 

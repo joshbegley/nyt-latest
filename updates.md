@@ -1,3 +1,7 @@
+**Baylor's Drew defends signing NBA draftee amid criticism**\
+`Drew said the Bears are embracing the modern era of college basketball while prioritizing what’s best for their program.`\
+https://nytimes.com/athletic/6927616/2025/12/29/scott-drew-james-nnaji-baylor/
+
 **An Anti-A.I. Movement Is Coming. Which Party Will Lead It?**\
 `The technology Is ruining much of what makes life worth living.`\
 https://nytimes.com/2025/12/29/opinion/ai-democracy.html
