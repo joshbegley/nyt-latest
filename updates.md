@@ -1,3 +1,19 @@
+**Give these five fantasy football players all of the championship glory**\
+`Week 17 of 2025 saw five players deliver some some of the best final-week performances in the past 10 seasons.`\
+https://nytimes.com/athletic/6929549/2025/12/30/fantasy-football-playoff-heroes-records-points-henry-bijan-purdy-maye/
+
+**How to watch Kings vs. Clippers: Time, TV, streaming**\
+`Find out how to watch the Sacramento Kings play the Los Angeles Clippers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6930032/2025/12/30/kings-vs-clippers-stream-how-to-watch-dec-30/
+
+**How to watch 76ers vs. Grizzlies: Time, TV, streaming**\
+`Find out how to watch the Philadelphia 76ers play the Memphis Grizzlies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6930030/2025/12/30/76ers-vs-grizzlies-stream-how-to-watch-dec-30/
+
+**How to watch Celtics vs. Jazz: Time, TV, streaming**\
+`Find out how to watch the Boston Celtics play the Utah Jazz, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6930026/2025/12/30/celtics-vs-jazz-stream-how-to-watch-dec-30/
+
 **How to watch Pistons vs. Lakers: Time, TV, streaming**\
 `Find out how to watch the Detroit Pistons play the Los Angeles Lakers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6930024/2025/12/30/pistons-vs-lakers-stream-how-to-watch-dec-30/

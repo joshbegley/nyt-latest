@@ -1,3 +1,7 @@
+**D.C. United near club-record deal for CFR Cluj forward Munteanu**\
+`The 23-year-old has two goals and five assists in 14 league appearances for the Romanian side. `\
+https://nytimes.com/athletic/6930021/2025/12/30/dc-united-louis-munteanu-club-record-transfer/
+
 **Give these five fantasy football players all of the championship glory**\
 `Week 17 of 2025 saw five players deliver some some of the best final-week performances in the past 10 seasons.`\
 https://nytimes.com/athletic/6929549/2025/12/30/fantasy-football-playoff-heroes-records-points-henry-bijan-purdy-maye/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6930008/2025/12/30/cowboys-vs-giants-stream-how-to-
 **How to watch South Carolina State vs. Tennessee men's basketball: Time, TV, streaming**\
 `Find out how to watch the South Carolina State Bulldogs play the Tennessee Volunteers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6930002/2025/12/30/south-carolina-state-vs-tennessee-stream-how-to-watch-dec-30/
-
-**How to watch New Hampshire vs. Nebraska men's basketball: Time, TV, streaming**\
-`Find out how to watch the New Hampshire Wildcats play the Nebraska Cornhuskers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6929999/2025/12/30/new-hampshire-vs-nebraska-stream-how-to-watch-dec-30/
 
