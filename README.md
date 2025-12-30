@@ -1,3 +1,7 @@
+**With Live Artillery and New Warships, China Practices Blockading Taiwan**\
+`China flew bombers and fired long-range artillery during a second day of exercises designed to show its ability to claim the island-democracy by force.`\
+https://nytimes.com/2025/12/30/world/asia/china-taiwan-military-drills.html
+
 **The New York Times in Print for Tuesday, Dec. 30, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/12/30/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6902457/2025/12/30/manchester-city-2025-guardiola-r
 **Reece James has gone a whole year injury-free. Both he and Chelsea deserve credit**\
 `Against Villa on Saturday, James made his 50th club appearance of 2025 — the highest figure he has reached in a calendar year since 2021`\
 https://nytimes.com/athletic/6923198/2025/12/30/reece-james-chelsea-premier-league-injury-free/
-
-**Inside Newcastle Q&A: Is Howe under pressure? Plans for the January transfer window?**\
-`Our correspondent answers your pressing questions about the club following a poor run of results`\
-https://nytimes.com/athletic/6925020/2025/12/30/newcastle-premier-league-eddie-howe/
 
