@@ -1,3 +1,11 @@
+**Naz Reid's breakout game comes on a big night for a beloved Timberwolves fan**\
+`Reid gave the struggling Minnesota bench a boost and perhaps inspired a fan in need.`\
+https://nytimes.com/athletic/6927164/2025/12/30/naz-reid-breakout-game-timberwolves-fan/
+
+**How Russia and Ukraine Are Fighting to Shape President Trump’s View of the War**\
+`Off the battlefield, each side is trying to influence the American leader’s perception as they look to negotiate a peace settlement in their favor.`\
+https://nytimes.com/2025/12/30/world/europe/russia-ukraine-trump-influence.html
+
 **Vanderbilt’s greatest season will end with memories, the best and worst kind**\
 `Doster had 1,621 rushing yards and 3,636 all-purpose in his first three years and was looking forward to a big senior season.`\
 https://nytimes.com/athletic/6923152/2025/12/30/vanderbilt-football-reliaquest-bowl-tampa-kwane-doster/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6926897/2025/12/30/maple-leafs-victor-johansson-wor
 **Why Georgia hasn't slipped amid college football's changes — it starts with Kirby Smart**\
 `Eleven months ago, Smart’s program seemed to be falling back to the pack. Now, it's a championship favorite.`\
 https://nytimes.com/athletic/6925176/2025/12/30/georgia-kirby-smart-college-football-playoff/
-
-**Cleveland's meh year in review: The top 10 sports stories in 2025**\
-`The Cavs collapsed, the Guardians were scandalous and the Browns were the Browns, but there were happy stories, starting with Bernie Kosar.`\
-https://nytimes.com/athletic/6916562/2025/12/30/cleveland-year-in-review-top-10-sports-stories/
-
-**Wild's Marcus Johansson hopes for Olympic nod after four-point night: takeaways**\
-`Johansson, who has had plenty of international success in the past, is making a strong case to play for Sweden's Olympic team.`\
-https://nytimes.com/athletic/6928037/2025/12/30/wild-marcus-johansson-olympics-four-point-night/
 

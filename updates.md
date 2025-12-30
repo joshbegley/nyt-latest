@@ -1,3 +1,11 @@
+**Naz Reid's breakout game comes on a big night for a beloved Timberwolves fan**\
+`Reid gave the struggling Minnesota bench a boost and perhaps inspired a fan in need.`\
+https://nytimes.com/athletic/6927164/2025/12/30/naz-reid-breakout-game-timberwolves-fan/
+
+**How Russia and Ukraine Are Fighting to Shape President Trump’s View of the War**\
+`Off the battlefield, each side is trying to influence the American leader’s perception as they look to negotiate a peace settlement in their favor.`\
+https://nytimes.com/2025/12/30/world/europe/russia-ukraine-trump-influence.html
+
 **Vanderbilt’s greatest season will end with memories, the best and worst kind**\
 `Doster had 1,621 rushing yards and 3,636 all-purpose in his first three years and was looking forward to a big senior season.`\
 https://nytimes.com/athletic/6923152/2025/12/30/vanderbilt-football-reliaquest-bowl-tampa-kwane-doster/
