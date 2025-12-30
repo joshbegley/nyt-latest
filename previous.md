@@ -1,40 +1,40 @@
-**The Steelers are reliving their WR nightmare — they have only themselves to blame**\
-`General Manager Omar Khan insisted the Steelers had sufficient depth behind DK Metcalf. Instead, with Metcalf out, they've been exposed.`\
-https://nytimes.com/athletic/6927859/2025/12/30/pittsburgh-steelers-wide-receiver-depth-problems/
+**The Cover-Up: Inside the Plot to Conceal Assad’s Crimes**\
+`Thousands of documents and interviews with Assad-era officials reveal how the regime worked to conceal evidence of its atrocities during the Syrian civil war.`\
+https://nytimes.com/2025/12/30/world/middleeast/assad-regime-crimes-syria-documents.html
 
-**NFL QB stock report: Has Cam Ward established himself as Titans' long-term QB?**\
-`The Titans' supporting cast has done Ward no favors this year. "He’s running for his life most of the time. His offensive line is terrible."`\
-https://nytimes.com/athletic/6926071/2025/12/30/nfl-qb-stock-report-rankings-cam-ward-titans/
+**How the Assad Regime Covered Up Its Crimes: Key Takeaways**\
+`We documented how the dictator Bashar al-Assad and his henchmen conspired to hide evidence of torture and deaths of detainees during Syria’s long civil war.`\
+https://nytimes.com/2025/12/30/world/middleeast/assad-regime-crimes-syria-documents-takeaways.html
 
-**Did Ohio State win a title, lose 14 draft picks and get better? We're about to find out**\
-`Even after winning a national title, Ohio State entered this season with a chip on its shoulder and something to prove. Can it repeat?`\
-https://nytimes.com/athletic/6927426/2025/12/30/ohio-state-college-football-playoff-ryan-day/
+**Sabres continue to show character, depth with ninth straight win: 5 thoughts**\
+`Buffalo is one win away from matching a franchise record and firmly back in the playoff hunt.`\
+https://nytimes.com/athletic/6928216/2025/12/30/sabres-depth-benson-kesselring-blues/
 
-**NFL Week 18 Power Rankings: Checking in on each head coach as Bills, Steelers tumble**\
-`The Seahawks remain on top of this week's power rankings, but they have to play the red-hot 49ers for the NFC West title Saturday.`\
-https://nytimes.com/athletic/6925417/2025/12/30/nfl-power-rankings-week-18-coaches-hot-seat-bills-steelers/
+**Transfer portal buzz: Brendan Sorsby to Texas Tech? And more QB news**\
+`The chance for improving 2026 rosters is right around the corner, as college football’s transfer portal officially opens on Friday.`\
+https://nytimes.com/athletic/6926325/2025/12/30/college-football-transfer-portal-brendan-sorsby-texas-tech/
 
-**Ravens have new life — and a chance to rewrite what's been a challenging season**\
-`This season hasn’t gone as Baltimore had hoped, but it has a chance to change that Sunday night vs. Pittsburgh for the AFC North crown.`\
-https://nytimes.com/athletic/6928209/2025/12/30/ravens-steelers-afc-north-title/
+**State of the 2026 World Cup cohosts: Outlooks for USA, Mexico, Canada**\
+`The pendulum has swung in favor of each 2026 World Cup cohost when it comes to regional superiority. So which is most set for the summer?`\
+https://nytimes.com/athletic/6917878/2025/12/30/world-cup-2026-usa-mexico-canada-host-teams/
 
-**Who's the Super Bowl favorite in this unhinged NFL season? Nobody.**\
-`The NFL playoff palette looks like a psychedelic rainbow, which means half of the league's teams can still dare to dream.`\
-https://nytimes.com/athletic/6927991/2025/12/30/nfl-super-bowl-favorite-contenders/
+**Jordan, Daniels, Clark and Ohtani dominated the last year in sports cards**\
+`Data from eBay, PSA and more that illustrates how 2025 took shape in the sports card world.`\
+https://nytimes.com/athletic/6925624/2025/12/30/2025-sports-card-recap-jordan-ohtani-bryant/
 
-**The New York Times International Edition in Print for Wednesday, Dec. 31, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/12/30/todays-new-york-times-international-edition
+**All eyes are on the NFL’s most atypical owner. Where will her curiosity lead her next?**\
+`Carlie Irsay-Gordon is younger than her peers, with her own distinctive vision of how an NFL owner can lead. It is about to be tested.`\
+https://nytimes.com/athletic/6893724/2025/12/30/carlie-irsay-gordon-colts-owner/
 
-**Bijan Robinson’s Career Night Leads Falcons to Upset Win Over Rams**\
-`A 229-yard game from the Atlanta Falcons running back Bijan Robinson helped the team upset the Los Angeles Rams and brought his season total to an N.F.L.-high 2,255 yards.`\
-https://nytimes.com/video/sports/football/100000010615063/bijan-robinsons-career-night-leads-falcons-to-upset-win-over-rams.html
+**Thinking of a New Year's resolution? These professional athletes have advice**\
+`In a lot of ways, creating New Year’s resolutions mirrors the process elite athletes go through at the start of each season.`\
+https://nytimes.com/athletic/6926100/2025/12/30/url-new-years-resolution-advice-ingold-catchings-still/
 
-**K-Pop Group NewJeans Faces New Uncertainty After Member Is Dropped**\
-`The band’s label said it had dropped one of the girl group’s five members. NewJeans’s legal battle has drawn public scrutiny of the K-pop industry.`\
-https://nytimes.com/2025/12/30/world/asia/new-jeans-danielle-ador.html
+**Inside the Knicks: OG Anunoby's All-NBA defense; Mohamed Diawara is fitting in**\
+`Anunoby talks defense and how much his coach at Indiana, Tom Crean, helped, while rookie Diawara says he wasn't sure he'd get drafted.`\
+https://nytimes.com/athletic/6928181/2025/12/30/knicks-og-anunoby-all-nba-defense/
 
-**Popcast’s Top 10 Music Moments of the Year**\
-`Counting down some personal favorites, including a major rap tour, the sublime bridge in a breakup song and Timothée Chalamet’s rapping.`\
-https://nytimes.com/2025/12/30/arts/music/favorite-music-moments-2025.html
+**In the wake of a fatal shooting, a college coach shows the essence of true leadership**\
+`There’s no playbook for coaching a team through the pain of an in-season tragedy. Damel Ling has been there for his players no matter what.`\
+https://nytimes.com/athletic/6912328/2025/12/30/damel-ling-monroe-university-coach-leadership-fatal-shooting/
 
