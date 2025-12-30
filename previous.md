@@ -1,3 +1,7 @@
+**Spanish Woman Scorned, Then Loved, for Botched Fresco Restoration Dies at 94**\
+`Cecilia Giménez’s repainting of an image of Jesus in 2012 was widely mocked online. But tourists flocked to see her work, reviving her struggling hometown.`\
+https://nytimes.com/2025/12/30/world/europe/spain-jesus-fresco-restoration-painter-gimenez-dead.html
+
 **Nostalgia in Denmark as Main Postal Carrier Ends Letter Delivery**\
 `PostNord, the country’s longtime service, will deliver its last letters this week. Few Danes send snail mail anymore, but some are mourning the end of an era.`\
 https://nytimes.com/2025/12/30/world/europe/denmark-letter-delivery-postnord-mailboxes.html
@@ -14,8 +18,8 @@ https://nytimes.com/athletic/6928402/2025/12/30/cooper-flagg-donovan-clingan-mav
 `The Athletic chatted with Stewart about his path to Nebraska from the NFL, the learning curve and differences between college and pro ball.`\
 https://nytimes.com/athletic/6926442/2025/12/30/nebraska-football-gm-pat-stewart-transfer-portal/
 
-**Eurostar Urges Passengers to Cancel Travel After Power Failure**\
-`A power failure in the Channel Tunnel has paralyzed the Eurostar service, causing delays for thousands of holiday travelers between London, Paris and Brussels.`\
+**Eurostar Cancels All Trains After Power Failure in Channel Tunnel**\
+`The high-speed train service connecting Britain and continental Europe was paralyzed on Tuesday during one of the busiest travel weeks of the year.`\
 https://nytimes.com/2025/12/30/world/europe/eurostar-delays-channel-tunnel-london-paris.html
 
 **Naz Reid's breakout game comes on a big night for a beloved Timberwolves fan**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6923152/2025/12/30/vanderbilt-football-reliaquest-b
 **Pistons mailbag: Is deadline approach shifting? What's the plan for Jaden Ivey?**\
 `Surprisingly, the Pistons find themselves atop the East, but don't expect their thinking ahead of Feb. 5 to change.`\
 https://nytimes.com/athletic/6922269/2025/12/30/jaden-ivey-pistons-nba-trade-deadline-mailbag/
-
-**Tari Eason’s randomness and versatility power Rockets' starting lineup**\
-`Houston has won three straight since Eason was inserted into the starting lineup, putting up eye-popping numbers in the process.`\
-https://nytimes.com/athletic/6928255/2025/12/30/rockets-tari-eason-starting-lineup/
 

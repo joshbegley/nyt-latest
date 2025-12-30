@@ -1,3 +1,11 @@
+**Spanish Woman Scorned, Then Loved, for Botched Fresco Restoration Dies at 94**\
+`Cecilia Giménez’s repainting of an image of Jesus in 2012 was widely mocked online. But tourists flocked to see her work, reviving her struggling hometown.`\
+https://nytimes.com/2025/12/30/world/europe/spain-jesus-fresco-restoration-painter-gimenez-dead.html
+
+**Eurostar Cancels All Trains After Power Failure in Channel Tunnel**\
+`The high-speed train service connecting Britain and continental Europe was paralyzed on Tuesday during one of the busiest travel weeks of the year.`\
+https://nytimes.com/2025/12/30/world/europe/eurostar-delays-channel-tunnel-london-paris.html
+
 **Nostalgia in Denmark as Main Postal Carrier Ends Letter Delivery**\
 `PostNord, the country’s longtime service, will deliver its last letters this week. Few Danes send snail mail anymore, but some are mourning the end of an era.`\
 https://nytimes.com/2025/12/30/world/europe/denmark-letter-delivery-postnord-mailboxes.html
