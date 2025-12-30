@@ -1,3 +1,7 @@
+**Kawhi Leonard and the Clippers are on a heater. Is it sustainable?**\
+`Leonard's recent surge of energy includes a 55-point game as LA has won four straight. Is this a turnaround or a blip?`\
+https://nytimes.com/athletic/6928174/2025/12/30/kawhi-leonard-clippers-hot-streak-sustainable/
+
 **Ohio State, Miami reunite carrying few remnants of a title game that changed CFB**\
 `Twenty-three years later, Miami and Ohio State's roles are reversed as they meet to keep their national title hopes alive.`\
 https://nytimes.com/athletic/6928872/2025/12/30/miami-ohio-state-history-pass-interference/
