@@ -1,3 +1,7 @@
+**Carmen de Lavallade, Dancer Whose Career Spanned the Arts, Dies at 94**\
+`Over six decades she worked in theater, opera, film and television alongside luminaries like Alvin Ailey, Lena Horne, Agnes de Mille and Harry Belafonte.`\
+https://nytimes.com/2025/12/30/arts/dance/carmen-de-lavallade-dead.html
+
 **Nikola Jokić to miss at least 4 weeks with knee injury**\
 `The 30-year-old is having another historically dominant season, averaging 29.6 points, 12.2 rebounds and 11.0 assists per game`\
 https://nytimes.com/athletic/6929039/2025/12/30/nikola-jokic-injury-update-nuggets-timetable/

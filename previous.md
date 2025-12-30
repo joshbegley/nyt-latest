@@ -1,3 +1,7 @@
+**Carmen de Lavallade, Dancer Whose Career Spanned the Arts, Dies at 94**\
+`Over six decades she worked in theater, opera, film and television alongside luminaries like Alvin Ailey, Lena Horne, Agnes de Mille and Harry Belafonte.`\
+https://nytimes.com/2025/12/30/arts/dance/carmen-de-lavallade-dead.html
+
 **Nikola Jokić to miss at least 4 weeks with knee injury**\
 `The 30-year-old is having another historically dominant season, averaging 29.6 points, 12.2 rebounds and 11.0 assists per game`\
 https://nytimes.com/athletic/6929039/2025/12/30/nikola-jokic-injury-update-nuggets-timetable/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/30/style/brigette-bardot-france.html
 **At the Met, Toasting With Traditional Puritans on New Year’s Eve**\
 `The Metropolitan Opera’s new production of Bellini’s “I Puritani,” directed by Charles Edwards, is “a retro move,” said Peter Gelb, the Met’s general manager.`\
 https://nytimes.com/2025/12/30/arts/music/i-puritani-metropolitan-opera-lisette-oropesa.html
-
-**Chip Kelly returns to college ranks as Northwestern's offensive coordinator**\
-`The veteran coach is returning to college after a disappointing season with the Las Vegas Raiders.`\
-https://nytimes.com/athletic/6928956/2025/12/30/chip-kelly-northwestern-offensive-coordinator/
 
