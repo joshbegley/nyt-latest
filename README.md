@@ -1,3 +1,7 @@
+**Rice could make Arsenal return against Bournemouth, Arteta says**\
+`The head coach said the swelling needs to "come right down" on the midfielder's knee after he picked up an injury against Brighton.`\
+https://nytimes.com/athletic/6930427/2025/12/30/declan-rice-arsenal-injury-bournemouth/
+
 **With Macklin Celebrini as their engine, Sharks are making a surprising playoff push**\
 `After six years and a brutal but necessary and rewarding bottoming out, San Jose is using the P-word and can do so with true conviction.`\
 https://nytimes.com/athletic/6929815/2025/12/30/macklin-celebrini-sharks-nhl-playoffs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6922663/2025/12/30/arsenal-aston-villa-odegaard-eme
 **Mother Is Charged With Murder in Death of 1-Year-Old Son**\
 `The baby was found unresponsive in a Queens home, where the mother had tried to kill herself, a police report said.`\
 https://nytimes.com/2025/12/30/nyregion/mother-baby-murder-charged-queens.html
-
-**The Briefing: Man Utd 1 Wolves 1 – Boos at Old Trafford as Amorim's side miss chance to go fourth**\
-`United were held to a draw by the Premier League's bottom-placed side in an embarrassing display for Amorim's men`\
-https://nytimes.com/athletic/6922664/2025/12/30/man-utd-1-wolves-1-amorim-premier-league/
 
