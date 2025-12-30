@@ -1,3 +1,15 @@
+**Ocasio-Cortez Will Give Opening Remarks at Mamdani’s Inauguration**\
+`Representative Alexandria Ocasio-Cortez, whose rise to prominence foreshadowed Zohran Mamdani’s success, will speak at his swearing-in outside City Hall on Thursday.`\
+https://nytimes.com/2025/12/30/nyregion/ocasio-cortez-mamdani-inauguration.html
+
+**Trump Pushes Venezuela**\
+`Plus, the inside story of how the U.S. split with Ukraine. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2025/12/30/briefing/venezuela-ukraine-mamdani.html
+
+**Patriots mailbag: Submit your playoff questions for reporter Chad Graff**\
+`As the Patriots’ first postseason trip in four years looms, we're resetting with a mailbag. Send in your playoff questions here.`\
+https://nytimes.com/athletic/6928899/2025/12/30/patriots-mailbag-playoffs-chad-graff/
+
 **3 Hikers Are Found Dead on Mt. Baldy Amid ‘Extremely Dangerous’ Conditions, Sheriff Says**\
 `The authorities closed access to part of Mount Baldy, the tallest peak in the San Gabriel Mountains in Southern California. They cited dangerous and unpredictable terrain and weather.`\
 https://nytimes.com/2025/12/30/us/hikers-dead-mount-baldy-california.html

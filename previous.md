@@ -1,3 +1,15 @@
+**Ocasio-Cortez Will Give Opening Remarks at Mamdani’s Inauguration**\
+`Representative Alexandria Ocasio-Cortez, whose rise to prominence foreshadowed Zohran Mamdani’s success, will speak at his swearing-in outside City Hall on Thursday.`\
+https://nytimes.com/2025/12/30/nyregion/ocasio-cortez-mamdani-inauguration.html
+
+**Trump Pushes Venezuela**\
+`Plus, the inside story of how the U.S. split with Ukraine. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2025/12/30/briefing/venezuela-ukraine-mamdani.html
+
+**Patriots mailbag: Submit your playoff questions for reporter Chad Graff**\
+`As the Patriots’ first postseason trip in four years looms, we're resetting with a mailbag. Send in your playoff questions here.`\
+https://nytimes.com/athletic/6928899/2025/12/30/patriots-mailbag-playoffs-chad-graff/
+
 **3 Hikers Are Found Dead on Mt. Baldy Amid ‘Extremely Dangerous’ Conditions, Sheriff Says**\
 `The authorities closed access to part of Mount Baldy, the tallest peak in the San Gabriel Mountains in Southern California. They cited dangerous and unpredictable terrain and weather.`\
 https://nytimes.com/2025/12/30/us/hikers-dead-mount-baldy-california.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6929785/2025/12/30/tanzania-afcon-knockout-stages/
 **The Briefing: Chelsea 2 Bournemouth 2 – Fans show frustration, costly Caicedo booking**\
 `Chelsea ended 2025 on a sour note, drawing at home to out-of-sorts Bournemouth to finish the year on a run of one win in seven league games`\
 https://nytimes.com/athletic/6922662/2025/12/30/chelsea-2-bournemouth-2/
-
-**The Briefing: Burnley 1 Newcastle 3 – How nervy was that? Wissa up and running? Did Pope perform on his return?**\
-`Newcastle labour to a 3-1 win at Burnley in the Premier League, just their second away victory of the season`\
-https://nytimes.com/athletic/6922661/2025/12/30/newcastle-burnley-premier-league-result-analysis/
-
-**6 Takeaways on the Unwinding U.S.-Ukraine Alliance**\
-`A Times investigation reveals the inside story of the Trump administration’s chaotic push for a peace deal and its erratic role in the war.`\
-https://nytimes.com/2025/12/30/world/europe/ukraine-us-russia-takeaways.html
-
-**Duke lands 5-star PG Deron Rippey Jr.: What this means for Blue Devils**\
-`Rippey is an explosive lead guard who thrives on applying relentless ball pressure and making opposing guards uncomfortable.`\
-https://nytimes.com/athletic/6927402/2025/12/30/deron-rippey-duke-college-basketball-commitment/
 
