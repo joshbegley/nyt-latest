@@ -1,3 +1,7 @@
+**Cowboys release 2-time Pro Bowler Trevon Diggs with one game remaining**\
+`Diggs dealt with a knee injury and concussion this season and never seemed like a good fit in Matt Eberflus' zone-heavy scheme.`\
+https://nytimes.com/athletic/6929799/2025/12/30/trevon-diggs-released-cowboys/
+
 **NFL MVP odds: Stafford's tough MNF flips the race**\
 `The MVP race got turned on its head after Matthew Stafford threw three interceptions in a loss on Monday.`\
 https://nytimes.com/athletic/6929726/2025/12/30/nfl-mvp-odds-drake-maye-matthew-stafford-mnf/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/30/nyregion/mamdani-poem-cornelius-eady-inauguration
 **Pet Owners, How Do You Deal With the High Costs of Grooming?**\
 `Making sure your furry friend’s nails and coat are groomed properly does not come cheap. As pet care costs continue to climb, how are you keeping up?`\
 https://nytimes.com/2025/12/30/us/pet-grooming-costs-dogs-cats.html
-
-**NFL Week 18 playoff-clinching scenarios: Final seeding up for grabs**\
-`Three division titles are directly on the line in Week 18.`\
-https://nytimes.com/athletic/6929467/2025/12/30/nfl-playoffs-scenarios-matchups-seed-team/
 
