@@ -1,3 +1,11 @@
+**Your Wait for These Space Events Is About to Pay Off**\
+`In 2026, there will be journeys to the moon and Mars, new visions of the cosmos and a solar eclipse that might be worth traveling for.`\
+https://nytimes.com/2025/12/30/science/space-nasa-spacex-blue-origin-astronomy.html
+
+**England name Jofra Archer in provisional squad for the T20 World Cup**\
+`Josh Tongue, who was player of the match for the Ashes victory at the MCG last week, is named in an England T20 squad for the first time`\
+https://nytimes.com/athletic/6928273/2025/12/30/england-t20-world-cup-squad-archer/
+
 **Saudis Say Airstrike in Yemen Targeted Arms From U.A.E.**\
 `The Saudi-led coalition said its strike, at a port in southern Yemen, targeted weapons bound for a separatist group backed by the United Arab Emirates.`\
 https://nytimes.com/2025/12/30/world/middleeast/yemen-saudi-strike-uae.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6907196/2025/12/30/tottenham-2025-review-trophy-tho
 **Bijan Robinson's career night leads Falcons to upset victory over Rams: Takeaways**\
 `With the loss, the Rams need the Seahawks to defeat the 49ers in Week 18 and secure a win over the Cardinals to earn the NFC's No. 5 seed.`\
 https://nytimes.com/athletic/6928052/2025/12/30/falcons-rams-score-result-takeaways-mnf/
-
-**Real Madrid in 2025: A year of transition at a club that does not like to wait**\
-`With the team struggling to make the kind of progress that was expected under Xabi Alonso, we look back on Real Madrid's 2025`\
-https://nytimes.com/athletic/6914705/2025/12/30/real-madrid-alonso-la-liga-champions-league-2025/
-
-**Manchester City's 2025: Guardiola's rebuild, new signings and Haaland's goals**\
-`The club entered the year in a state of worrying decline, but with the squad overhauled, things are looking promising for 2026`\
-https://nytimes.com/athletic/6902457/2025/12/30/manchester-city-2025-guardiola-rebuild-captain-silva-haaland-goals/
 
