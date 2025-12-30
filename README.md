@@ -1,3 +1,7 @@
+**Overlooked Stories**\
+`We look at some of our best stories from 2025 that Times editors thought deserved more attention.`\
+https://nytimes.com/2025/12/30/briefing/overlooked-stories.html
+
 **49ers offense sizzles while Seahawks' Sam Darnold sputters: Week 17 film review**\
 `Also, Malik Willis shows he has starting quarterback potential while filling in for the Packers.`\
 https://nytimes.com/athletic/6922716/2025/12/30/49ers-sam-darnold-malik-willis-film-review/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6927413/2025/12/30/caleb-williams-bears-passing-fra
 **The case for meaningless CFB bowl games: Remember, we are all sickos at heart**\
 `A college football bowl game is the rare version of sports without pain. `\
 https://nytimes.com/athletic/6926904/2025/12/30/college-football-bowl-games-sports-fandom-happiness/
-
-**The Cover-Up: Inside the Plot to Conceal Assad’s Crimes**\
-`Thousands of documents and interviews with Assad-era officials reveal how the regime worked to conceal evidence of its atrocities during the Syrian civil war.`\
-https://nytimes.com/2025/12/30/world/middleeast/assad-regime-crimes-syria-documents.html
 
