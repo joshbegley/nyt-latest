@@ -1,3 +1,11 @@
+**Drew Brees highlights Hall of Fame modern-era player finalists**\
+`Wide receiver Larry Fitzgerald, running back Frank Gore and tight end Jason Witten join Brees as first-year-eligible finalists.`\
+https://nytimes.com/athletic/6929537/2025/12/30/drew-brees-hall-of-fame-finalists-nfl/
+
+**Crew Paints Russian Flag on Tanker Pursued by the U.S. Coast Guard**\
+`The U.S. military tried to intercept the Bella 1 last week in the Caribbean Sea as it headed to Venezuela to pick up oil.`\
+https://nytimes.com/2025/12/30/us/politics/oil-tanker-venezuela-us-russia-bella-1.html
+
 **Penguins, Kyle Dubas are gearing up for something massive**\
 `Dubas' plan for building the Penguins has evolved — and this is just the beginning. `\
 https://nytimes.com/athletic/6929135/2025/12/30/penguins-nhl-trade-deadline-free-agency-2026/
@@ -7,7 +15,7 @@ https://nytimes.com/athletic/6929135/2025/12/30/penguins-nhl-trade-deadline-free
 https://nytimes.com/2025/12/30/arts/dance/carmen-de-lavallade-dead.html
 
 **Nikola Jokić to miss at least 4 weeks with knee injury**\
-`The 30-year-old is having another historically dominant season, averaging 29.6 points, 12.2 rebounds and 11.0 assists per game`\
+`The 30-year-old is having another historically dominant season, averaging 29.6 points, 12.2 rebounds and 11.0 assists per game.`\
 https://nytimes.com/athletic/6929039/2025/12/30/nikola-jokic-injury-update-nuggets-timetable/
 
 **How to watch Devils vs. Maple Leafs: Time, TV, streaming**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6929500/2025/12/30/canadiens-vs-panthers-stream-how
 **Athletic captain Williams says playing in Saudi Arabia is 's---'**\
 `The Spanish Football Federation has an agreement to hold the Super Cup there until 2029.`\
 https://nytimes.com/athletic/6929375/2025/12/30/inaki-williams-spanish-super-cup-saudi-arabia-criticism/
-
-**How to watch Florida State vs. North Carolina men's basketball: Time, TV, streaming**\
-`Find out how to watch the Florida State Seminoles play the North Carolina Tar Heels, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6929480/2025/12/30/florida-state-vs-north-carolina-stream-how-to-watch-dec-30/
-
-**More Than a Bombshell, Brigitte Bardot Became the Face of a Nation**\
-`A star who never played coy for the camera was once an emblem of France.`\
-https://nytimes.com/2025/12/30/style/brigette-bardot-france.html
 

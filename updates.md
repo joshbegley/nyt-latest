@@ -1,3 +1,7 @@
+**Penguins, Kyle Dubas are gearing up for something massive**\
+`Dubas' plan for building the Penguins has evolved — and this is just the beginning. `\
+https://nytimes.com/athletic/6929135/2025/12/30/penguins-nhl-trade-deadline-free-agency-2026/
+
 **Carmen de Lavallade, Dancer Whose Career Spanned the Arts, Dies at 94**\
 `Over six decades she worked in theater, opera, film and television alongside luminaries like Alvin Ailey, Lena Horne, Agnes de Mille and Harry Belafonte.`\
 https://nytimes.com/2025/12/30/arts/dance/carmen-de-lavallade-dead.html
