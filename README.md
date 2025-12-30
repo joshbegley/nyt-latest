@@ -1,3 +1,7 @@
+**How does college football roster building compare to NFL? Nebraska's GM explains**\
+`The Athletic chatted with Stewart about his path to Nebraska from the NFL, the learning curve and differences between college and pro ball.`\
+https://nytimes.com/athletic/6926442/2025/12/30/nebraska-football-gm-pat-stewart-transfer-portal/
+
 **Eurostar Urges Passengers to Cancel Travel After Power Failure**\
 `A power failure in the Channel Tunnel has paralyzed the Eurostar service, causing delays for thousands of holiday travelers between London, Paris and Brussels.`\
 https://nytimes.com/2025/12/30/world/europe/eurostar-delays-channel-tunnel-london-paris.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6927673/2025/12/30/texas-tech-football-joey-mcguire
 **Where Power 4 teams stand at quarterback heading into transfer portal season**\
 `The transfer portal opens on Friday, and each Power 4 program enters the window with varying degrees of need at quarterback.`\
 https://nytimes.com/athletic/6921794/2025/12/30/college-football-transfer-portal-quarterbacks-4/
-
-**Victor Johansson's World Juniors play is a step toward a possible Leafs career**\
-`The Leafs don't have anyone quite like the young Swedish defenceman in their prospect cupboard.`\
-https://nytimes.com/athletic/6926897/2025/12/30/maple-leafs-victor-johansson-world-juniors/
 
