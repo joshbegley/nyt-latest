@@ -1,3 +1,11 @@
+**Khaleda Zia, Bangladesh’s First Female Prime Minister, Dies**\
+`A leader for three terms, she traded the country’s leadership with Sheikh Hasina, the head of another political dynasty, over decades. She was believed to be 80.`\
+https://nytimes.com/2025/12/29/world/asia/khaleda-zia-bangladesh-dead.html
+
+**Our two journalists compare their packing lists.**\
+`(No description)`\
+https://nytimes.com/live/2025/climate/antarctica-thwaites-glacier/packing-conversation
+
 **Hurricanes' Pyotr Kochetkov to have surgery, 'probably' out for season**\
 `“It's (the injury) he's been dealing with all year,” Hurricanes coach Rod Brind'Amour told reporters on Monday.`\
 https://nytimes.com/athletic/6927863/2025/12/29/pyotr-kochetkov-canes-injury-season-ending-surgery/
