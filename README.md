@@ -1,3 +1,15 @@
+**Colts to start Riley Leonard over Philip Rivers in season finale: Sources**\
+`Leonard will be making the first start of his NFL career. `\
+https://nytimes.com/athletic/6929185/2025/12/30/colts-philip-rivers-riley-leonard-texans/
+
+**Protests Over Sinking Economy in Iran Spread to Universities**\
+`Iranian leaders face pressure over a currency collapse and threats of possible military strikes from Israel and the United States over Tehran’s nuclear activities.`\
+https://nytimes.com/2025/12/30/world/middleeast/iran-protests-currency-inflation-universities.html
+
+**Dolores, Crevette, Zimmi’s and Markette Reviewed**\
+`The latest batch of brief starred restaurant reviews, from our contributing critics Mahira Rivers and Ryan Sutton.`\
+https://nytimes.com/2025/12/30/dining/review-dolores-crevette-zimmis-markette.html
+
 **Drew Brees highlights Hall of Fame modern-era player finalists**\
 `Wide receiver Larry Fitzgerald, running back Frank Gore and tight end Jason Witten join Brees as first-year-eligible finalists.`\
 https://nytimes.com/athletic/6929537/2025/12/30/drew-brees-hall-of-fame-finalists-nfl/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6929531/2025/12/30/devils-vs-maple-leafs-stream-how
 **Cowboys owner Jerry Jones says defensive struggles on everyone, not just Matt Eberflus**\
 `Dallas has allowed more points (29.8) per game than any team in the NFL this season. Jerry Jones could move on from DC Matt Eberflus.`\
 https://nytimes.com/athletic/6929461/2025/12/30/cowboys-defense-jerry-jones-matt-eberflus/
-
-**How to watch Hurricanes vs. Penguins: Time, TV, streaming**\
-`Find out how to watch the Carolina Hurricanes play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6929502/2025/12/30/hurricanes-vs-penguins-stream-how-to-watch-dec-30/
-
-**How to watch Canadiens vs. Panthers: Time, TV, streaming**\
-`Find out how to watch the Montreal Canadiens play the Florida Panthers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6929500/2025/12/30/canadiens-vs-panthers-stream-how-to-watch-dec-30/
-
-**Athletic captain Williams says playing in Saudi Arabia is 's---'**\
-`The Spanish Football Federation has an agreement to hold the Super Cup there until 2029.`\
-https://nytimes.com/athletic/6929375/2025/12/30/inaki-williams-spanish-super-cup-saudi-arabia-criticism/
 
