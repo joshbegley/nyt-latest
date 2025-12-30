@@ -1,3 +1,7 @@
+**The Briefing: Burnley 1 Newcastle 3 - How nervy was that? How did Wissa do? How key was Pope?**\
+`Newcastle labour to a 3-1 win at Burnley in the Premier League, just their second away victory of the season`\
+https://nytimes.com/athletic/6922661/2025/12/30/newcastle-burnley-premier-league-result-analysis/
+
 **6 Takeaways on the Unwinding U.S.-Ukraine Alliance**\
 `A Times investigation reveals the inside story of the Trump administration’s chaotic push for a peace deal and its erratic role in the war.`\
 https://nytimes.com/2025/12/30/world/europe/ukraine-us-russia-takeaways.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/12/30/world/europe/ukraine-war-us-russia.ht
 **Liverpool's McConnell, Beck to have loan spells cut short in January**\
 `Both players, 21 and 23, have had limited game time this season having been on loan at Ajax and Derby County respectively. `\
 https://nytimes.com/athletic/6929969/2025/12/30/liverpool-mcconnell-beck-loan-recall-ajax-derby/
-
-**D.C. United near club-record deal for CFR Cluj forward Munteanu**\
-`The 23-year-old has two goals and five assists in 14 league appearances for the Romanian side. `\
-https://nytimes.com/athletic/6930021/2025/12/30/dc-united-louis-munteanu-club-record-transfer/
 
