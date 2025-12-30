@@ -1,3 +1,15 @@
+**Drew Brees highlights Hall of Fame modern-era player finalists**\
+`Wide receiver Larry Fitzgerald, running back Frank Gore and tight end Jason Witten join Brees as first-year-eligible finalists.`\
+https://nytimes.com/athletic/6929537/2025/12/30/drew-brees-hall-of-fame-finalists-nfl/
+
+**Crew Paints Russian Flag on Tanker Pursued by the U.S. Coast Guard**\
+`The U.S. military tried to intercept the Bella 1 last week in the Caribbean Sea as it headed to Venezuela to pick up oil.`\
+https://nytimes.com/2025/12/30/us/politics/oil-tanker-venezuela-us-russia-bella-1.html
+
+**Nikola Jokić to miss at least 4 weeks with knee injury**\
+`The 30-year-old is having another historically dominant season, averaging 29.6 points, 12.2 rebounds and 11.0 assists per game.`\
+https://nytimes.com/athletic/6929039/2025/12/30/nikola-jokic-injury-update-nuggets-timetable/
+
 **Penguins, Kyle Dubas are gearing up for something massive**\
 `Dubas' plan for building the Penguins has evolved — and this is just the beginning. `\
 https://nytimes.com/athletic/6929135/2025/12/30/penguins-nhl-trade-deadline-free-agency-2026/
