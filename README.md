@@ -1,3 +1,11 @@
+**Why scientists are studying the Thwaites glacier**\
+`(No description)`\
+https://nytimes.com/live/2025/climate/antarctica-thwaites-glacier/studying-thwaites-glacier
+
+**Masashi Ozaki, Japan’s Dominant Golfer Known as ‘Jumbo,’ Dies at 78**\
+`A World Golf Hall of Famer who could drive a ball more than 300 yards in his prime, he recorded 113 victories on the Japan Tour.`\
+https://nytimes.com/2025/12/30/sports/golf/masashi-ozaki-dead.html
+
 **Christian McCaffrey, Trent Williams not practicing, George Kittle returns**\
 `McCaffrey is battling a stiff back, while Williams has a hamstring injury but has not been ruled out for Saturday's game against Seattle.`\
 https://nytimes.com/athletic/6930383/2025/12/30/christian-mccaffrey-george-kittle-trent-williams-49ers-injuries/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/30/briefing/venezuela-ukraine-mamdani.html
 **Patriots mailbag: Submit your playoff questions for reporter Chad Graff**\
 `As the Patriots’ first postseason trip in four years looms, we're resetting with a mailbag. Send in your playoff questions here.`\
 https://nytimes.com/athletic/6928899/2025/12/30/patriots-mailbag-playoffs-chad-graff/
-
-**3 Hikers Are Found Dead on Mt. Baldy Amid ‘Extremely Dangerous’ Conditions, Sheriff Says**\
-`The authorities closed access to part of Mount Baldy, the tallest peak in the San Gabriel Mountains in Southern California. They cited dangerous and unpredictable terrain and weather.`\
-https://nytimes.com/2025/12/30/us/hikers-dead-mount-baldy-california.html
-
-**Brighton's Hurzeler accuses officials of guesswork in West Ham penalty**\
-`Lewis Dunk was penalised for handball after referee Michael Salisbury had not awarded a penalty, but the VAR official intervened. `\
-https://nytimes.com/athletic/6930318/2025/12/30/brighton-hurzeler-handball-guesswork-west-ham/
 
