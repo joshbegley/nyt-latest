@@ -1,3 +1,11 @@
+**With Macklin Celebrini as their engine, Sharks are making a surprising playoff push**\
+`After six years and a brutal but necessary and rewarding bottoming out, San Jose is using the P-word and can do so with true conviction.`\
+https://nytimes.com/athletic/6929815/2025/12/30/macklin-celebrini-sharks-nhl-playoffs/
+
+**Justice Dept. Leaders Pushed to Charge Abrego Garcia, Emails Show**\
+`The release of the emails raised serious questions about whether the Justice Department had misled a judge in telling him that local prosecutors had acted alone in charging Mr. Abrego Garcia.`\
+https://nytimes.com/2025/12/30/nyregion/abrego-garcia-charges-doj.html
+
 **Ocasio-Cortez Will Give Opening Remarks at Mamdani’s Inauguration**\
 `Representative Alexandria Ocasio-Cortez, whose rise to prominence foreshadowed Zohran Mamdani’s success, will speak at his swearing-in outside City Hall on Thursday.`\
 https://nytimes.com/2025/12/30/nyregion/ocasio-cortez-mamdani-inauguration.html
