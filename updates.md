@@ -1,3 +1,15 @@
+**Blue Jackets defy built-in excuses, finish strong again to beat Senators**\
+`After a travel nightmare and missing a veteran center, the Blue Jackets stepped up in the third period for the third straight game.`\
+https://nytimes.com/athletic/6928040/2025/12/29/blue-jackets-sillinger-monahan-travel-senators/
+
+**Race to the No. 1 pick: Raiders lead, Giants have a path, Jets eliminated**\
+`The Jets were knocked out of consideration with the Falcons' upset win over the Rams.`\
+https://nytimes.com/athletic/6921789/2025/12/29/nfl-draft-2026-top-pick-raiders-giants-jets/
+
+**U.S. sues Virginia over tuition aid for unauthorized immigrants.**\
+`By Tim Balk`\
+https://nytimes.com/2025/12/29/us/politics/us-sues-virginia-tuition-immigrants.html
+
 **McKenna, Hagens break out, Jiricek front-runner for top D: World Juniors Day 4**\
 `Day 4 at the World Juniors was a big one, with arguably the tournament's top six teams all in action across four games.`\
 https://nytimes.com/athletic/6920672/2025/12/29/gavin-mckenna-world-juniors-canada-usa-adam-jiricek/
