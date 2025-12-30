@@ -1,40 +1,40 @@
-**Blue Jackets defy built-in excuses, finish strong again to beat Senators**\
-`After a travel nightmare and missing a veteran center, the Blue Jackets stepped up in the third period for the third straight game.`\
-https://nytimes.com/athletic/6928040/2025/12/29/blue-jackets-sillinger-monahan-travel-senators/
+**Tottenham's 2025: A trophy, turmoil and a horrible home record**\
+`It has been quite a year for all involved at Spurs... who knows what 2026 will bring them?`\
+https://nytimes.com/athletic/6907196/2025/12/30/tottenham-2025-review-trophy-thomas-frank/
 
-**Race to the No. 1 pick: Raiders lead, Giants have a path, Jets eliminated**\
-`The Jets were knocked out of consideration with the Falcons' upset win over the Rams.`\
-https://nytimes.com/athletic/6921789/2025/12/29/nfl-draft-2026-top-pick-raiders-giants-jets/
+**Bijan Robinson's career night leads Falcons to upset victory over Rams: Takeaways**\
+`With the loss, the Rams need the Seahawks to defeat the 49ers in Week 18 and secure a win over the Cardinals to earn the NFC's No. 5 seed.`\
+https://nytimes.com/athletic/6928052/2025/12/30/falcons-rams-score-result-takeaways-mnf/
 
-**McKenna, Hagens break out, Jiricek front-runner for top D: World Juniors Day 4**\
-`Day 4 at the World Juniors was a big one, with arguably the tournament's top six teams all in action across four games.`\
-https://nytimes.com/athletic/6920672/2025/12/29/gavin-mckenna-world-juniors-canada-usa-adam-jiricek/
+**Real Madrid in 2025: A year of transition at a club that does not like to wait**\
+`With the team struggling to make the kind of progress that was expected under Xabi Alonso, we look back on Real Madrid's 2025`\
+https://nytimes.com/athletic/6914705/2025/12/30/real-madrid-alonso-la-liga-champions-league-2025/
 
-**Falcons win over Rams complicates NFC South race between Buccaneers and Panthers**\
-`A win by the Panthers over the Bucs on Saturday clinches the NFC South. If the Bucs win, the Falcons-Saints game on Sunday comes into play.`\
-https://nytimes.com/athletic/6928097/2025/12/29/buccaneers-panthers-nfc-south-complicated-falcons/
+**Manchester City's 2025: Guardiola's rebuild, new signings and Haaland's goals**\
+`The club entered the year in a state of worrying decline, but with the squad overhauled, things are looking promising for 2026`\
+https://nytimes.com/athletic/6902457/2025/12/30/manchester-city-2025-guardiola-rebuild-captain-silva-haaland-goals/
 
-**C.I.A. Conducted Drone Strike on Port in Venezuela**\
-`The attack last week, on a dock purportedly used for shipping narcotics, did not kill anyone, people briefed on the operation said. But it was the first known U.S. operation inside Venezuela.`\
-https://nytimes.com/2025/12/29/us/politics/cia-drone-strike-venezuela.html
+**Reece James has gone a whole year injury-free. Both he and Chelsea deserve credit**\
+`Against Villa on Saturday, James made his 50th club appearance of 2025 — the highest figure he has reached in a calendar year since 2021`\
+https://nytimes.com/athletic/6923198/2025/12/30/reece-james-chelsea-premier-league-injury-free/
 
-**Full Time: Celebrating 2025 and looking to 2026**\
-`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
-https://nytimes.com/athletic/6928088/2025/12/29/2025-womens-soccer-review-full-time/
+**Inside Newcastle Q&A: Is Howe under pressure? Plans for the January transfer window?**\
+`Our correspondent answers your pressing questions about the club following a poor run of results`\
+https://nytimes.com/athletic/6925020/2025/12/30/newcastle-premier-league-eddie-howe/
 
-**U.S. sues Virginia over tuition aid for unauthorized immigrants.**\
-`By Tim Balk`\
-https://nytimes.com/2025/12/29/us/politics/us-sues-virginia-tuition-immigrants.html
+**Dear fellow Forest fans, there's no excuse for poverty chanting**\
+`The other team aren't the enemy - and supporters should think about that before weaponising poverty in the name of 'banter'`\
+https://nytimes.com/athletic/6925464/2025/12/30/nottingham-forest-poverty-chanting-premier-league/
 
-**Five-star edge rusher DJ Jacobs commits to Ohio State, boosting 2027 class**\
-`The Buckeyes will have to keep Jacobs on board until signing day, and if so, they will have their first five-star edge rusher since 2021.`\
-https://nytimes.com/athletic/6928012/2025/12/29/dj-jacobs-ohio-state-commit-2027/
+**AFCON, Mbekezeli Mbokazi and the flow of talent out of South Africa**\
+`Highly rated centre-back Mbokazi has agreed a move to Chicago Fire. What does it say about the current state of South African football?`\
+https://nytimes.com/athletic/6926876/2025/12/30/south-africa-mbokazi-afcon-motsepe-broos/
 
-**Floating Marker**\
-`Geoffrey Schorkopf and Will Eisenberg have their first crossword collaboration in The New York Times.`\
-https://nytimes.com/2025/12/29/crosswords/daily-puzzle-2025-12-30.html
+**Forest's unwanted record, Haaland's strike rate, Howe makes history: 2025 in football stats**\
+`A look back at some of the numerical quirks of football in 2025`\
+https://nytimes.com/athletic/6895990/2025/12/30/2025-football-stats/
 
-**In One Year, Trump’s War on Immigration Alters the Face of America**\
-`The crackdown and detentions swept from one coast to the other: day laborers in Los Angeles, a flower seller in Chicago, immigrants in New York courtrooms.`\
-https://nytimes.com/interactive/2025/12/29/nyregion/nyregionspecial/trump-immigration-crackdown-first-year.html
+**What is it like to be a Premier League referee? An interview with Graham Scott**\
+`Scott refereed in the Premier League for a decade before retiring in 2024. He has spoken to The Athletic about  his career...`\
+https://nytimes.com/athletic/6895973/2025/12/30/graham-scott-interview-premier-league-referee/
 
