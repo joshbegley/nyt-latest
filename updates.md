@@ -1,4 +1,8 @@
 **How Maple Leafs are dealing with a rash of new injuries**\
+`Matthews will be a game-time decision versus Devils after blocking a shot during the second period of Sunday's loss against the Red Wings.`\
+https://nytimes.com/athletic/6929642/2025/12/30/maple-leafs-injury-auston-matthews-chris-tanev-dakota-joshua/
+
+**How Maple Leafs are dealing with a rash of new injuries**\
 `Matthews will be a game-time decision versus Devils after blocking a shot during the second period of Sunday's loss against the Red Wings`\
 https://nytimes.com/athletic/6929642/2025/12/30/maple-leafs-injury-auston-matthews-chris-tanev-dakota-joshua/
 
