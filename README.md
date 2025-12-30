@@ -1,3 +1,15 @@
+**How to watch Pistons vs. Lakers: Time, TV, streaming**\
+`Find out how to watch the Detroit Pistons play the Los Angeles Lakers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6930024/2025/12/30/pistons-vs-lakers-stream-how-to-watch-dec-30/
+
+**How to watch Islanders vs. Blackhawks: Time, TV, streaming**\
+`Find out how to watch the New York Islanders play the Chicago Blackhawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6930019/2025/12/30/islanders-vs-blackhawks-stream-how-to-watch-dec-30/
+
+**How to watch Flyers vs. Canucks: Time, TV, streaming**\
+`Find out how to watch the Philadelphia Flyers play the Vancouver Canucks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6930017/2025/12/30/flyers-vs-canucks-stream-how-to-watch-dec-30/
+
 **How to watch Cowboys vs. Giants: Time, TV, streaming**\
 `Find out how to watch the Dallas Cowboys play the New York Giants, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6930008/2025/12/30/cowboys-vs-giants-stream-how-to-watch-jan-4/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6929985/2025/12/30/packers-vs-vikings-stream-how-to
 **The C.I.A. Strike on Venezuela: What to Know**\
 `The drone attack, said to be on a dock where drugs were being prepared for loading on boats, represented a further escalation of the Trump administration’s campaign against Nicolás Maduro.`\
 https://nytimes.com/2025/12/30/us/politics/trump-venezuela-drone-strike-attack.html
-
-**How to watch Titans vs. Jaguars: Time, TV, streaming**\
-`Find out how to watch the Tennessee Titans play the Jacksonville Jaguars, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6929982/2025/12/30/titans-vs-jaguars-stream-how-to-watch-jan-4/
-
-**How to watch Saints vs. Falcons: Time, TV, streaming**\
-`Find out how to watch the New Orleans Saints play the Atlanta Falcons, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6929979/2025/12/30/saints-vs-falcons-stream-how-to-watch-jan-4/
-
-**How to watch Colts vs. Texans: Time, TV, streaming**\
-`Find out how to watch the Indianapolis Colts play the Houston Texans, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6929977/2025/12/30/colts-vs-texans-stream-how-to-watch-jan-4/
 
