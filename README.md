@@ -1,3 +1,11 @@
+**Khaleda Zia, Bangladesh’s First Female Prime Minister, Dies**\
+`A leader for three terms, she traded the country’s leadership with Sheikh Hasina, the head of another political dynasty, over decades. She was believed to be 80.`\
+https://nytimes.com/2025/12/29/world/asia/khaleda-zia-bangladesh-dead.html
+
+**Our two journalists compare their packing lists.**\
+`(No description)`\
+https://nytimes.com/live/2025/climate/antarctica-thwaites-glacier/packing-conversation
+
 **Hurricanes' Pyotr Kochetkov to have surgery, 'probably' out for season**\
 `“It's (the injury) he's been dealing with all year,” Hurricanes coach Rod Brind'Amour told reporters on Monday.`\
 https://nytimes.com/athletic/6927863/2025/12/29/pyotr-kochetkov-canes-injury-season-ending-surgery/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/29/health/chesapeake-hospital-lawsuit-perwaiz.html
 **Clemson parts ways with OC Garrett Riley and safeties coach Mickey Conn**\
 `Clemson finished 7-6, the program's first six-loss season since 2010.`\
 https://nytimes.com/athletic/6927669/2025/12/29/clemson-parts-ways-garrett-riley/
-
-**How to watch Panthers vs. Buccaneers: Time, TV, streaming**\
-`Find out how to watch the Carolina Panthers play the Tampa Bay Buccaneers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6927753/2025/12/29/how-to-watch-panthers-vs-buccaneers-tv-channel-and-streaming-options-for-january-3/
-
-**Despite Differences, Trump and Netanyahu Present United Front**\
-`The American and Israeli leaders showed few signs of disagreement after meeting in Florida, giving no public indication of their growing strains over Gaza, Syria and other issues.`\
-https://nytimes.com/2025/12/29/us/politics/trump-netanyahu-israel-meeting.html
 
