@@ -1,3 +1,15 @@
+**How to watch Cowboys vs. Giants: Time, TV, streaming**\
+`Find out how to watch the Dallas Cowboys play the New York Giants, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6930008/2025/12/30/cowboys-vs-giants-stream-how-to-watch-jan-4/
+
+**How to watch South Carolina State vs. Tennessee men's basketball: Time, TV, streaming**\
+`Find out how to watch the South Carolina State Bulldogs play the Tennessee Volunteers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6930002/2025/12/30/south-carolina-state-vs-tennessee-stream-how-to-watch-dec-30/
+
+**How to watch New Hampshire vs. Nebraska men's basketball: Time, TV, streaming**\
+`Find out how to watch the New Hampshire Wildcats play the Nebraska Cornhuskers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6929999/2025/12/30/new-hampshire-vs-nebraska-stream-how-to-watch-dec-30/
+
 **How to watch Gonzaga vs. San Diego men's basketball: Time, TV, streaming**\
 `Find out how to watch the Gonzaga Bulldogs play the San Diego Toreros, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6929992/2025/12/30/gonzaga-vs-san-diego-stream-how-to-watch-dec-30/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6929979/2025/12/30/saints-vs-falcons-stream-how-to-
 **How to watch Colts vs. Texans: Time, TV, streaming**\
 `Find out how to watch the Indianapolis Colts play the Houston Texans, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6929977/2025/12/30/colts-vs-texans-stream-how-to-watch-jan-4/
-
-**How to watch Browns vs. Bengals: Time, TV, streaming**\
-`Find out how to watch the Cleveland Browns play the Cincinnati Bengals, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6929975/2025/12/30/browns-vs-bengals-stream-how-to-watch-jan-4/
-
-**Studying the Melting Continent, if We Can Reach It**\
-`Times journalists are accompanying a group of scientists on an arduous, weekslong trip to study a key glacier in Antarctica. Here’s what to know.`\
-https://nytimes.com/2025/12/30/climate/thwaites-glacier-melting.html
-
-**Eurostar Trains Face Severe Delays After Power Outage**\
-`Eurostar and LeShuttle passengers had their New Year’s travel plans disrupted when the train services were temporarily suspended on Tuesday after a power failure in the Channel Tunnel.`\
-https://nytimes.com/video/world/europe/100000010615894/eurostar-delays-channel-tunnel.html
 
