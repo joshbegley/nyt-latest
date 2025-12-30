@@ -1,3 +1,11 @@
+**Your Wait for These Space Events Is About to Pay Off**\
+`In 2026, there will be journeys to the moon and Mars, new visions of the cosmos and a solar eclipse that might be worth traveling for.`\
+https://nytimes.com/2025/12/30/science/space-nasa-spacex-blue-origin-astronomy.html
+
+**England name Jofra Archer in provisional squad for the T20 World Cup**\
+`Josh Tongue, who was player of the match for the Ashes victory at the MCG last week, is named in an England T20 squad for the first time`\
+https://nytimes.com/athletic/6928273/2025/12/30/england-t20-world-cup-squad-archer/
+
 **With Artillery and Warships, China Practices Blockading Taiwan**\
 `China flew bombers and fired long-range artillery during a second day of exercises designed to show its ability to claim the island-democracy by force.`\
 https://nytimes.com/2025/12/30/world/asia/china-taiwan-military-drills.html
