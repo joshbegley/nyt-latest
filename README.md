@@ -1,7 +1,3 @@
-**NBA Rookie Rankings: The race between Cooper Flagg and Kon Knueppel is on**\
-`This is a deep and fun class, though two former Duke teammates clearly lead the way so far.`\
-https://nytimes.com/athletic/6913078/2025/12/30/nba-rookie-rankings-cooper-flagg-kon-knueppel/
-
 **The Steelers are reliving their WR nightmare — they have only themselves to blame**\
 `General Manager Omar Khan insisted the Steelers had sufficient depth behind DK Metcalf. Instead, with Metcalf out, they've been exposed.`\
 https://nytimes.com/athletic/6927859/2025/12/30/pittsburgh-steelers-wide-receiver-depth-problems/
@@ -37,4 +33,8 @@ https://nytimes.com/video/sports/football/100000010615063/bijan-robinsons-career
 **K-Pop Group NewJeans Faces New Uncertainty After Member Is Dropped**\
 `The band’s label said it had dropped one of the girl group’s five members. NewJeans’s legal battle has drawn public scrutiny of the K-pop industry.`\
 https://nytimes.com/2025/12/30/world/asia/new-jeans-danielle-ador.html
+
+**Popcast’s Top 10 Music Moments of the Year**\
+`Counting down some personal favorites, including a major rap tour, the sublime bridge in a breakup song and Timothée Chalamet’s rapping.`\
+https://nytimes.com/2025/12/30/arts/music/favorite-music-moments-2025.html
 
