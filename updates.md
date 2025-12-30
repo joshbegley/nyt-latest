@@ -1,3 +1,11 @@
+**A Watch with Meaning in Action**\
+`How did a family-run business from Florence evolve into one of the world’s most innovative watch brands?`\
+https://nytimes.com/paidpost/panerai/a-watch-with-meaning-in-action.html
+
+**Nostalgia in Denmark as Main Postal Carrier Ends Letter Delivery**\
+`PostNord, the country’s longtime service, is delivering its last letters. Few Danes send snail mail anymore, but some are mourning the end of an era.`\
+https://nytimes.com/2025/12/30/world/europe/denmark-letter-delivery-postnord-mailboxes.html
+
 **Kawhi Leonard and the Clippers are on a heater. Is it sustainable?**\
 `Leonard's recent surge of energy includes a 55-point game as LA has won four straight. Is this a turnaround or a blip?`\
 https://nytimes.com/athletic/6928174/2025/12/30/kawhi-leonard-clippers-hot-streak-sustainable/
