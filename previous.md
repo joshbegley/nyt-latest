@@ -1,4 +1,4 @@
-**Hurricanes' Pyotr Kochetkov to have surgery, 'probably' out for the season**\
+**Hurricanes' Pyotr Kochetkov to have surgery, 'probably' out for season**\
 `“It's (the injury) he's been dealing with all year,” Hurricanes coach Rod Brind'Amour told reporters on Monday.`\
 https://nytimes.com/athletic/6927863/2025/12/29/pyotr-kochetkov-canes-injury-season-ending-surgery/
 
