@@ -1,3 +1,11 @@
+**Cooper Flagg and Donovan Clingan share a special connection through their moms**\
+`The mothers of Clingan and Flagg were college teammates at Maine. The two promising young players bonded Monday in Portland.`\
+https://nytimes.com/athletic/6928402/2025/12/30/cooper-flagg-donovan-clingan-mavericks-blazers-moms/
+
+**How does college football roster building compare to NFL? Nebraska's GM explains**\
+`The Athletic chatted with Stewart about his path to Nebraska from the NFL, the learning curve and differences between college and pro ball.`\
+https://nytimes.com/athletic/6926442/2025/12/30/nebraska-football-gm-pat-stewart-transfer-portal/
+
 **Eurostar Urges Passengers to Cancel Travel After Power Failure**\
 `A power failure in the Channel Tunnel has paralyzed the Eurostar service, causing delays for thousands of holiday travelers between London, Paris and Brussels.`\
 https://nytimes.com/2025/12/30/world/europe/eurostar-delays-channel-tunnel-london-paris.html
