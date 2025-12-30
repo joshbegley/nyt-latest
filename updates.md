@@ -1,3 +1,7 @@
+**Eurostar Trains Face Severe Delays After Power Outage**\
+`Eurostar and LeShuttle passengers had their New Year’s travel plans disrupted when the train services were temporarily suspended on Tuesday after a power failure in the Channel Tunnel.`\
+https://nytimes.com/video/world/europe/100000010615894/eurostar-delays-channel-tunnel.html
+
 **Federal Judge Blocks Deportations of South Sudanese Migrants**\
 `The decision temporarily preserved deportation protections for more than 200 South Sudanese.`\
 https://nytimes.com/2025/12/30/us/politics/tps-south-sudan.html

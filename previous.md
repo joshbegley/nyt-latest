@@ -1,3 +1,7 @@
+**Eurostar Trains Face Severe Delays After Power Outage**\
+`Eurostar and LeShuttle passengers had their New Year’s travel plans disrupted when the train services were temporarily suspended on Tuesday after a power failure in the Channel Tunnel.`\
+https://nytimes.com/video/world/europe/100000010615894/eurostar-delays-channel-tunnel.html
+
 **Federal Judge Blocks Deportations of South Sudanese Migrants**\
 `The decision temporarily preserved deportation protections for more than 200 South Sudanese.`\
 https://nytimes.com/2025/12/30/us/politics/tps-south-sudan.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/12/30/arts/music/amplifier-newsletter-music-deaths-2025
 **Cowboys release 2-time Pro Bowler Trevon Diggs with one game remaining**\
 `Diggs dealt with a knee injury and concussion this season and never seemed like a good fit in Matt Eberflus' zone-heavy scheme.`\
 https://nytimes.com/athletic/6929799/2025/12/30/trevon-diggs-released-cowboys/
-
-**NFL MVP odds: Stafford's tough MNF flips the race**\
-`The MVP race got turned on its head after Matthew Stafford threw three interceptions in a loss on Monday.`\
-https://nytimes.com/athletic/6929726/2025/12/30/nfl-mvp-odds-drake-maye-matthew-stafford-mnf/
 

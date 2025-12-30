@@ -1,3 +1,7 @@
+**Studying the Melting Continent, if We Can Reach It**\
+`Times journalists are accompanying a group of scientists on an arduous, weekslong trip to study a key glacier in Antarctica. Here’s what to know.`\
+https://nytimes.com/2025/12/30/climate/thwaites-glacier-melting.html
+
 **Eurostar Trains Face Severe Delays After Power Outage**\
 `Eurostar and LeShuttle passengers had their New Year’s travel plans disrupted when the train services were temporarily suspended on Tuesday after a power failure in the Channel Tunnel.`\
 https://nytimes.com/video/world/europe/100000010615894/eurostar-delays-channel-tunnel.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6929813/2025/12/30/anthony-rendon-angels-buyout-mlb
 **The Musicians We Lost in 2025**\
 `Listen to songs by pop visionaries, neo-soul luminaries, country-adjacent outlaws and more.`\
 https://nytimes.com/2025/12/30/arts/music/amplifier-newsletter-music-deaths-2025.html
-
-**Cowboys release 2-time Pro Bowler Trevon Diggs with one game remaining**\
-`Diggs dealt with a knee injury and concussion this season and never seemed like a good fit in Matt Eberflus' zone-heavy scheme.`\
-https://nytimes.com/athletic/6929799/2025/12/30/trevon-diggs-released-cowboys/
 
