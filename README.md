@@ -1,3 +1,15 @@
+**Saudi-Led Strike in Yemen Signals Worsening Rift With U.A.E.**\
+`A Saudi-led coalition said it had targeted an arms shipment in Yemen bound for a separatist group backed by the United Arab Emirates. The Emirates denied that the shipment included weapons.`\
+https://nytimes.com/video/world/middleeast/100000010615259/saudi-yemen-strike-uae.html
+
+**Kazuyoshi Miura, 58, signs with new club to extend record-breaking soccer career**\
+`The world's oldest professional soccer player is continuing his career into a 41st season.`\
+https://nytimes.com/athletic/6928990/2025/12/30/kazuyoshi-miura-age-oldest-player/
+
+**Forget a recalibration: The Commanders need to get back to basics**\
+`Multiple Commanders players who ended the 2024 season on the rise have taken perplexing steps back in 2025.`\
+https://nytimes.com/athletic/6928920/2025/12/30/commanders-regression-quan-martin-mike-sainristil/
+
 **Trump Administration Live Updates: C.I.A. Conducted Drone Strike on Venezuela Port**\
 ``\
 https://nytimes.com/live/2025/12/30/us/trump-news
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6928872/2025/12/30/miami-ohio-state-history-pass-in
 **Spanish Woman Scorned, Then Loved, for Botched Fresco Restoration Dies at 94**\
 `Cecilia Giménez’s repainting of an image of Jesus in 2012 was widely mocked online. But tourists flocked to see her work, reviving her struggling hometown.`\
 https://nytimes.com/2025/12/30/world/europe/spain-jesus-fresco-restoration-painter-gimenez-dead.html
-
-**Nostalgia in Denmark as Main Postal Carrier Ends Letter Delivery**\
-`PostNord, the country’s longtime service, is delivering its last letters. Few Danes send snail mail anymore, but some are mourning the end of an era.`\
-https://nytimes.com/2025/12/30/world/europe/denmark-letter-delivery-postnord-mailboxes.html
-
-**Our favorite athlete TV cameos of 2025, from 'Landman' to 'Abbott Elementary'**\
-`A well-placed on-screen cameo elevates a show like few other bits can. Here are our favorite TV drop-ins from the sports world across 2025.`\
-https://nytimes.com/athletic/6927180/2025/12/30/lamar-jackson-acting-schwarber-abbott-jerry-jones-landman/
-
-**Cooper Flagg and Donovan Clingan share a special connection through their moms**\
-`The mothers of Clingan and Flagg were college teammates at Maine. The two promising young players bonded Monday in Portland.`\
-https://nytimes.com/athletic/6928402/2025/12/30/cooper-flagg-donovan-clingan-mavericks-blazers-moms/
 

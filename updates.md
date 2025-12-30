@@ -1,3 +1,15 @@
+**Trump Administration Live Updates: C.I.A. Conducted Drone Strike on Venezuela Port**\
+``\
+https://nytimes.com/live/2025/12/30/us/trump-news
+
+**Canadiens weekly notebook: Slafkovský's importance, Demidov on PP1, Danault's sense of purpose**\
+`Juraj Slafkovský is asserting his will on Canadiens opponents, Martin St. Louis' logic in selecting his top power-play unit might be flawed.`\
+https://nytimes.com/athletic/6928314/2025/12/30/canadiens-slafkovsky-demidov-danault/
+
+**Top football dates in 2026: Champions League, Premier League, and World Cup**\
+`Get all the 2026 football dates for your diary in one place. `\
+https://nytimes.com/athletic/6928728/2025/12/30/top-matches-games-world-cup-2026/
+
 **A Watch with Meaning in Action**\
 `How did a family-run business from Florence evolve into one of the world’s most innovative watch brands?`\
 https://nytimes.com/paidpost/panerai/a-watch-with-meaning-in-action.html

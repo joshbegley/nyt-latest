@@ -1,3 +1,15 @@
+**Trump Administration Live Updates: C.I.A. Conducted Drone Strike on Venezuela Port**\
+``\
+https://nytimes.com/live/2025/12/30/us/trump-news
+
+**Canadiens weekly notebook: Slafkovský's importance, Demidov on PP1, Danault's sense of purpose**\
+`Juraj Slafkovský is asserting his will on Canadiens opponents, Martin St. Louis' logic in selecting his top power-play unit might be flawed.`\
+https://nytimes.com/athletic/6928314/2025/12/30/canadiens-slafkovsky-demidov-danault/
+
+**Top football dates in 2026: Champions League, Premier League, and World Cup**\
+`Get all the 2026 football dates for your diary in one place. `\
+https://nytimes.com/athletic/6928728/2025/12/30/top-matches-games-world-cup-2026/
+
 **A Watch with Meaning in Action**\
 `How did a family-run business from Florence evolve into one of the world’s most innovative watch brands?`\
 https://nytimes.com/paidpost/panerai/a-watch-with-meaning-in-action.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6927180/2025/12/30/lamar-jackson-acting-schwarber-a
 **Cooper Flagg and Donovan Clingan share a special connection through their moms**\
 `The mothers of Clingan and Flagg were college teammates at Maine. The two promising young players bonded Monday in Portland.`\
 https://nytimes.com/athletic/6928402/2025/12/30/cooper-flagg-donovan-clingan-mavericks-blazers-moms/
-
-**How does college football roster building compare to NFL? Nebraska's GM explains**\
-`The Athletic chatted with Stewart about his path to Nebraska from the NFL, the learning curve and differences between college and pro ball.`\
-https://nytimes.com/athletic/6926442/2025/12/30/nebraska-football-gm-pat-stewart-transfer-portal/
-
-**Eurostar Cancels All Trains After Power Failure in Channel Tunnel**\
-`The high-speed train service connecting Britain and continental Europe was paralyzed on Tuesday during one of the busiest travel weeks of the year.`\
-https://nytimes.com/2025/12/30/world/europe/eurostar-delays-channel-tunnel-london-paris.html
-
-**Naz Reid's breakout game comes on a big night for a beloved Timberwolves fan**\
-`Reid gave the struggling Minnesota bench a boost and perhaps inspired a fan in need.`\
-https://nytimes.com/athletic/6927164/2025/12/30/naz-reid-breakout-game-timberwolves-fan/
 
