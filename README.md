@@ -1,3 +1,11 @@
+**Anthony Rendon agrees to buyout of Angels contract: Source**\
+`Rendon played in just 257 of 1,032 possible games during his five seasons with the Angels due to injuries.`\
+https://nytimes.com/athletic/6929813/2025/12/30/anthony-rendon-angels-buyout-mlb/
+
+**The Musicians We Lost in 2025**\
+`Listen to songs by pop visionaries, neo-soul luminaries, country-adjacent outlaws and more.`\
+https://nytimes.com/2025/12/30/arts/music/amplifier-newsletter-music-deaths-2025.html
+
 **Cowboys release 2-time Pro Bowler Trevon Diggs with one game remaining**\
 `Diggs dealt with a knee injury and concussion this season and never seemed like a good fit in Matt Eberflus' zone-heavy scheme.`\
 https://nytimes.com/athletic/6929799/2025/12/30/trevon-diggs-released-cowboys/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6928893/2025/12/30/blue-jackets-yegor-chinakhov-tra
 **Fulham have £26m bid rejected for U.S. striker Pepi**\
 `The 22-year-old has scored 10 goals for PSV this season `\
 https://nytimes.com/athletic/6929540/2025/12/30/ricardo-pepi-transfer-fulham-usmnt/
-
-**‘This Is Our Time’: Acclaimed Poet to Honor Mamdani With Inaugural Poem**\
-`Cornelius Eady, a National Book Award finalist, shared an excerpt from “Proof,” an original poem he has written for Zohran Mamdani’s inauguration as mayor of New York City.`\
-https://nytimes.com/2025/12/30/nyregion/mamdani-poem-cornelius-eady-inauguration.html
-
-**Pet Owners, How Do You Deal With the High Costs of Grooming?**\
-`Making sure your furry friend’s nails and coat are groomed properly does not come cheap. As pet care costs continue to climb, how are you keeping up?`\
-https://nytimes.com/2025/12/30/us/pet-grooming-costs-dogs-cats.html
 
