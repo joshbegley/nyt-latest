@@ -1,3 +1,7 @@
+**How to watch Panthers vs. Buccaneers: Time, TV, streaming**\
+`Find out how to watch the Carolina Panthers play the Tampa Bay Buccaneers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6927753/2025/12/29/panthers-vs-buccaneers-stream-how-to-watch-jan-3/
+
 **Despite Differences, Trump and Netanyahu Present United Front**\
 `The American and Israeli leaders showed few signs of disagreement after meeting in Florida, giving no public indication of their growing strains over Gaza, Syria and other issues.`\
 https://nytimes.com/2025/12/29/us/politics/trump-netanyahu-israel-meeting.html
