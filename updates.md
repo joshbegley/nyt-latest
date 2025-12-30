@@ -1,3 +1,11 @@
+**How to watch Seahawks vs. 49ers: Time, TV, streaming**\
+`Find out how to watch the Seattle Seahawks play the San Francisco 49ers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6927878/2025/12/29/seahawks-vs-49ers-stream-how-to-watch-jan-3/
+
+**How to watch Panthers vs. Buccaneers: Time, TV, streaming**\
+`Find out how to watch the Carolina Panthers play the Tampa Bay Buccaneers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6927753/2025/12/29/how-to-watch-panthers-vs-buccaneers-tv-channel-and-streaming-options-for-january-3/
+
 **Baylor's Drew defends signing NBA draftee amid criticism**\
 `Drew said the Bears are embracing the modern era of college basketball while prioritizing what’s best for their program.`\
 https://nytimes.com/athletic/6927616/2025/12/29/scott-drew-james-nnaji-baylor/
