@@ -1,3 +1,11 @@
+**The New York Times in Print for Tuesday, Dec. 30, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/12/30/todays-new-york-times
+
+**To Love, to Honor, to Exist: Palestinian Artists on War and Loss**\
+`Times Opinion asked eight working Palestinian artists about the role of art in the war in Gaza.`\
+https://nytimes.com/interactive/2025/12/30/opinion/palestinians-gaza-war-artists.html
+
 **Manchester United's 2025: Brilliant Bruno, Bilbao boredom and two magical Maguire moments**\
 `There have been signs of progress at Old Trafford in recent months but the past 12 months has been hit and miss for Ruben Amorim's team`\
 https://nytimes.com/athletic/6839512/2025/12/30/manchester-united-2025-amorim-bruno-maguire/
