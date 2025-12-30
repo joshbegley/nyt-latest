@@ -1,3 +1,15 @@
+**NFL MVP odds: Stafford's tough MNF flips the race**\
+`The MVP race got turned on its head after Matthew Stafford threw three interceptions in a loss on Monday.`\
+https://nytimes.com/athletic/6929726/2025/12/30/nfl-mvp-odds-drake-maye-matthew-stafford-mnf/
+
+**Encouraging Kids to Read Whole Books**\
+`Readers find a classroom trend of assigning shorter texts “troubling.” Also: Reaction to President Trump’s naming of a special envoy to Greenland.`\
+https://nytimes.com/2025/12/30/opinion/kids-whole-books.html
+
+**Iowa State Senate District 16 Special Election Results**\
+`Get live results and maps from the 2025 Iowa special election.`\
+https://nytimes.com/interactive/2025/12/30/us/elections/results-iowa-state-senate-district-16-unexpired-term-special.html
+
 **How Maple Leafs are dealing with a rash of new injuries**\
 `Matthews will be a game-time decision versus Devils after blocking a shot during the second period of Sunday's loss against the Red Wings.`\
 https://nytimes.com/athletic/6929642/2025/12/30/maple-leafs-injury-auston-matthews-chris-tanev-dakota-joshua/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/12/30/us/pet-grooming-costs-dogs-cats.html
 **NFL Week 18 playoff-clinching scenarios: Final seeding up for grabs**\
 `Three division titles are directly on the line in Week 18.`\
 https://nytimes.com/athletic/6929467/2025/12/30/nfl-playoffs-scenarios-matchups-seed-team/
-
-**USWNT 2025 in review: Heavy roster rotation, triumphant returns and practicing resilience**\
-`2025 was a year of experimentation for head coach Emma Hayes and the U.S.`\
-https://nytimes.com/athletic/6928405/2025/12/30/uswnt-2025-in-review-emma-hayes-development/
-
-**Patriots WR Stefon Diggs facing felony charges of strangulation, assault**\
-`Diggs is facing felony charges of strangulation and assault regarding an incident that allegedly occurred on Dec. 2. `\
-https://nytimes.com/athletic/6929494/2025/12/30/stefon-diggs-felony-charges-strangulation-assault-patriots/
-
-**Colts to start Riley Leonard over Philip Rivers in season finale: Sources**\
-`Leonard will be making the first start of his NFL career. `\
-https://nytimes.com/athletic/6929185/2025/12/30/colts-philip-rivers-riley-leonard-texans/
 
