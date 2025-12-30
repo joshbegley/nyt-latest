@@ -1,3 +1,7 @@
+**Rice likely to miss Arsenal-Villa due to knee injury**\
+`The midfielder sustained the issue playing against Brighton on Saturday.`\
+https://nytimes.com/athletic/6929158/2025/12/30/declan-rice-arsenal-villa-injury/
+
 **Rain Expected to Soak Another Holiday in Los Angeles**\
 `After Christmas-week storms, two rounds of rainfall starting on New Year’s Eve could cause more flooding and mudslides.`\
 https://nytimes.com/2025/12/30/weather/rain-los-angeles-new-years.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6928990/2025/12/30/kazuyoshi-miura-age-oldest-playe
 **Forget a recalibration: The Commanders need to get back to basics**\
 `Multiple Commanders players who ended the 2024 season on the rise have taken perplexing steps back in 2025.`\
 https://nytimes.com/athletic/6928920/2025/12/30/commanders-regression-quan-martin-mike-sainristil/
-
-**Trump Administration Live Updates: C.I.A. Conducted Drone Strike on Venezuela Port**\
-``\
-https://nytimes.com/live/2025/12/30/us/trump-news
 
