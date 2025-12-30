@@ -34,7 +34,3 @@ https://nytimes.com/athletic/6922665/2025/12/30/uganda-nigeria-onyedika-bassey/
 `Trading to acquire Mason Marchment from the Seattle Kraken earlier this month changed the situation, Don Waddell said.`\
 https://nytimes.com/athletic/6928893/2025/12/30/blue-jackets-yegor-chinakhov-trade-demands/
 
-**Fulham have £26m bid rejected for U.S. striker Pepi**\
-`The 22-year-old has scored 10 goals for PSV this season `\
-https://nytimes.com/athletic/6929540/2025/12/30/ricardo-pepi-transfer-fulham-usmnt/
-

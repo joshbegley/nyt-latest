@@ -1,3 +1,15 @@
+**Anthony Rendon agrees to buyout of Angels contract: Source**\
+`Rendon played in just 257 of 1,032 possible games during his five seasons with the Angels due to injuries.`\
+https://nytimes.com/athletic/6929813/2025/12/30/anthony-rendon-angels-buyout-mlb/
+
+**The Musicians We Lost in 2025**\
+`Listen to songs by pop visionaries, neo-soul luminaries, country-adjacent outlaws and more.`\
+https://nytimes.com/2025/12/30/arts/music/amplifier-newsletter-music-deaths-2025.html
+
+**Cowboys release 2-time Pro Bowler Trevon Diggs with one game remaining**\
+`Diggs dealt with a knee injury and concussion this season and never seemed like a good fit in Matt Eberflus' zone-heavy scheme.`\
+https://nytimes.com/athletic/6929799/2025/12/30/trevon-diggs-released-cowboys/
+
 **NFL MVP odds: Stafford's tough MNF flips the race**\
 `The MVP race got turned on its head after Matthew Stafford threw three interceptions in a loss on Monday.`\
 https://nytimes.com/athletic/6929726/2025/12/30/nfl-mvp-odds-drake-maye-matthew-stafford-mnf/
