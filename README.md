@@ -1,3 +1,7 @@
+**How to watch Devils vs. Maple Leafs: Time, TV, streaming**\
+`Find out how to watch the New Jersey Devils play the Toronto Maple Leafs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6929531/2025/12/30/devils-vs-maple-leafs-stream-how-to-watch-dec-30/
+
 **Cowboys owner Jerry Jones says defensive struggles on everyone, not just Matt Eberflus**\
 `Dallas has allowed more points (29.8) per game than any team in the NFL this season. Jerry Jones could move on from DC Matt Eberflus.`\
 https://nytimes.com/athletic/6929461/2025/12/30/cowboys-defense-jerry-jones-matt-eberflus/
@@ -24,7 +28,7 @@ https://nytimes.com/2025/12/30/arts/music/i-puritani-metropolitan-opera-lisette-
 
 **More Than a Bombshell, Brigitte Bardot Became the Face of a Nation**\
 `A star who never played coy for the camera was once an emblem of France.`\
-https://nytimes.com/2025/12/30/style/more-than-a-bombshell-brigitte-bardot-became-the-face-of-a-nation.html
+https://nytimes.com/2025/12/30/style/brigette-bardot-france.html
 
 **Chip Kelly returns to college ranks as Northwestern's offensive coordinator**\
 `The veteran coach is returning to college after a disappointing season with the Las Vegas Raiders.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6928956/2025/12/30/chip-kelly-northwestern-offensiv
 **Why the Canucks should make a trade and give young forwards more opportunity**\
 `The Canucks have a logjam of forwards that deserve playing time, and there aren't enough lineup spots to go around.`\
 https://nytimes.com/athletic/6927861/2025/12/30/canucks-trades-forwards-depth-chart/
-
-**9 Podcasts That Made Us Stop and Really Listen in 2025**\
-`In an ever-growing podcast universe, our writers select the shows that stood out.`\
-https://nytimes.com/2025/12/30/arts/podcasts-2025-heavyweight-gilmore.html
 
