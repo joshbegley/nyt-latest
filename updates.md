@@ -1,3 +1,7 @@
+**3 Hikers Are Found Dead on Mt. Baldy Amid ‘Extremely Dangerous’ Conditions, Sheriff Says**\
+`The authorities closed access to part of Mount Baldy, the tallest peak in the San Gabriel Mountains in Southern California. They cited dangerous and unpredictable terrain and weather.`\
+https://nytimes.com/2025/12/30/us/hikers-dead-mount-baldy-california.html
+
 **The Briefing: Arsenal 4 Aston Villa 1 – Where does this leave title race? Unplayable Odegaard? Missed chance for Villa?**\
 `Our writers break down the action from Arsenal's victory in this top-of-the-table clash at the Emirates`\
 https://nytimes.com/athletic/6922663/2025/12/30/arsenal-aston-villa-odegaard-emery/
