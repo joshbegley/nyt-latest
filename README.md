@@ -1,3 +1,11 @@
+**Athletic captain Williams says playing in Saudi Arabia is 's---'**\
+`The Spanish Football Federation has an agreement to hold the Super Cup there until 2029.`\
+https://nytimes.com/athletic/6929375/2025/12/30/inaki-williams-spanish-super-cup-saudi-arabia-criticism/
+
+**How to watch Florida State vs. North Carolina men's basketball: Time, TV, streaming**\
+`Find out how to watch the Florida State Seminoles play the North Carolina Tar Heels, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6929480/2025/12/30/florida-state-vs-north-carolina-stream-how-to-watch-dec-30/
+
 **At the Met, Toasting With Traditional Puritans on New Year’s Eve**\
 `The Metropolitan Opera’s new production of Bellini’s “I Puritani,” directed by Charles Edwards, is “a retro move,” said Peter Gelb, the Met’s general manager.`\
 https://nytimes.com/2025/12/30/arts/music/i-puritani-metropolitan-opera-lisette-oropesa.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/30/opinion/eric-adams-hurt-more-than-just-himself.ht
 **Bangladesh Mourns Death of First Female Prime Minister**\
 `Mourners gathered at a hospital in Dhaka on Tuesday after it was announced that Khaleda Zia, the country’s first female prime minister, had died.`\
 https://nytimes.com/video/world/asia/100000010615300/bangladesh-mourns-khaleda-zia.html
-
-**It's Olympic hockey roster week: Let's get you prepped**\
-`Plus: The NHL's trade deadline isn't actually a deadline. Wait, what?`\
-https://nytimes.com/athletic/6929273/2025/12/30/nhl-olympics-rosters-time-reveal-red-light/
-
-**Charlie Weis Jr. details 'strange' month coaching Ole Miss while prepping to join LSU**\
-`“It was it was a really hard decision,” Weis said. “But at the end of the day, I owe a lot to Coach Kiffin."`\
-https://nytimes.com/athletic/6929224/2025/12/30/lsu-ole-miss-charlie-weis-lane-kiffin/
 
