@@ -1,3 +1,23 @@
+**Until Saturday: CFB's biggest 2025 stories**\
+`Until Saturday is The Athletic's free college football newsletter.`\
+https://nytimes.com/athletic/6930118/2025/12/30/college-football-2025-review-until-saturday/
+
+**Angels to sign Kirby Yates, adding another veteran to their bullpen: Source**\
+`The 38-year-old Yates is coming off a disappointing season with the Los Angeles Dodgers.`\
+https://nytimes.com/athletic/6930037/2025/12/30/angels-kirby-yates-veteran-dodgers/
+
+**NCAA president: Players who signed NBA contracts aren't eligible for college hoops**\
+`Coaches and fans alike have been searching for clarity after a 2023 NBA Draft pick signed with Baylor on Christmas Eve.`\
+https://nytimes.com/athletic/6929930/2025/12/30/ncaa-nba-eligibility-charlie-baker/
+
+**The Separation: Inside the Unraveling U.S.-Ukraine Partnership**\
+`As President Trump sought a peace deal and Vladimir V. Putin sought victory, factions in the White House and Pentagon bled the Ukrainian war efforts.`\
+https://nytimes.com/interactive/2025/12/30/world/europe/ukraine-war-us-russia.html
+
+**Liverpool's McConnell, Beck to have loan spells cut short in January**\
+`Both players, 21 and 23, have had limited game time this season having been on loan at Ajax and Derby County respectively. `\
+https://nytimes.com/athletic/6929969/2025/12/30/liverpool-mcconnell-beck-loan-recall-ajax-derby/
+
 **D.C. United near club-record deal for CFR Cluj forward Munteanu**\
 `The 23-year-old has two goals and five assists in 14 league appearances for the Romanian side. `\
 https://nytimes.com/athletic/6930021/2025/12/30/dc-united-louis-munteanu-club-record-transfer/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6930030/2025/12/30/76ers-vs-grizzlies-stream-how-to
 **How to watch Celtics vs. Jazz: Time, TV, streaming**\
 `Find out how to watch the Boston Celtics play the Utah Jazz, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6930026/2025/12/30/celtics-vs-jazz-stream-how-to-watch-dec-30/
-
-**How to watch Pistons vs. Lakers: Time, TV, streaming**\
-`Find out how to watch the Detroit Pistons play the Los Angeles Lakers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6930024/2025/12/30/pistons-vs-lakers-stream-how-to-watch-dec-30/
-
-**How to watch Islanders vs. Blackhawks: Time, TV, streaming**\
-`Find out how to watch the New York Islanders play the Chicago Blackhawks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6930019/2025/12/30/islanders-vs-blackhawks-stream-how-to-watch-dec-30/
-
-**How to watch Flyers vs. Canucks: Time, TV, streaming**\
-`Find out how to watch the Philadelphia Flyers play the Vancouver Canucks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6930017/2025/12/30/flyers-vs-canucks-stream-how-to-watch-dec-30/
-
-**How to watch Cowboys vs. Giants: Time, TV, streaming**\
-`Find out how to watch the Dallas Cowboys play the New York Giants, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6930008/2025/12/30/cowboys-vs-giants-stream-how-to-watch-jan-4/
-
-**How to watch South Carolina State vs. Tennessee men's basketball: Time, TV, streaming**\
-`Find out how to watch the South Carolina State Bulldogs play the Tennessee Volunteers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6930002/2025/12/30/south-carolina-state-vs-tennessee-stream-how-to-watch-dec-30/
 
