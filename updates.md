@@ -1,3 +1,11 @@
+**49ers offense sizzles while Seahawks' Sam Darnold sputters: Week 17 film review**\
+`Also, Malik Willis shows he has starting quarterback potential while filling in for the Packers.`\
+https://nytimes.com/athletic/6922716/2025/12/30/49ers-sam-darnold-malik-willis-film-review/
+
+**TAFC – Gianni Infantino, World Cup tickets and Christian Pulisic: Plus: AFCON's goals show**\
+`Time to scratch off some more squares from your World Cup bingo card. Caoimhe O'Neill is here to update you on the latest`\
+https://nytimes.com/athletic/6890776/2025/12/30/infantino-tickets-pulisic-afcon-tafc/
+
 **TAFC – Gianni Infantino, World Cup tickets and Christian Pulisic: Plus: AFCON's goals show**\
 `Time to scratch off some more squares from your World Cup bingo card. Caoimhe O'Neill is here to update you on the latest`\
 https://nytimes.com/athletic/6890776/2025/12/30/gianni-infantino-world-cup-tickets-and-christian-pulisic-plus-afcons-goals-show/
