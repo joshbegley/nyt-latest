@@ -1,3 +1,11 @@
+**Federal Judge Blocks Deportations of South Sudanese Migrants**\
+`The decision temporarily preserved deportation protections for more than 200 South Sudanese.`\
+https://nytimes.com/2025/12/30/us/politics/tps-south-sudan.html
+
+**Deep Divide Inside Fed Raises Questions About Timing of Further Rate Cuts**\
+`Officials at the central bank have splintered over whether rising unemployment or elevated inflation poses the bigger economic risk.`\
+https://nytimes.com/2025/12/30/business/federal-reserve-minutes-december.html
+
 **How to Put a Celebrity at Ease? Make a Pizza.**\
 `Times Cooking’s Pizza Interview series introduces a note of nostalgia to encourage stars to open up.`\
 https://nytimes.com/2025/12/30/insider/pizza-interview-stranger-things.html

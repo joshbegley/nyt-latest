@@ -1,3 +1,11 @@
+**Federal Judge Blocks Deportations of South Sudanese Migrants**\
+`The decision temporarily preserved deportation protections for more than 200 South Sudanese.`\
+https://nytimes.com/2025/12/30/us/politics/tps-south-sudan.html
+
+**Deep Divide Inside Fed Raises Questions About Timing of Further Rate Cuts**\
+`Officials at the central bank have splintered over whether rising unemployment or elevated inflation poses the bigger economic risk.`\
+https://nytimes.com/2025/12/30/business/federal-reserve-minutes-december.html
+
 **How to Put a Celebrity at Ease? Make a Pizza.**\
 `Times Cooking’s Pizza Interview series introduces a note of nostalgia to encourage stars to open up.`\
 https://nytimes.com/2025/12/30/insider/pizza-interview-stranger-things.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6929799/2025/12/30/trevon-diggs-released-cowboys/
 **NFL MVP odds: Stafford's tough MNF flips the race**\
 `The MVP race got turned on its head after Matthew Stafford threw three interceptions in a loss on Monday.`\
 https://nytimes.com/athletic/6929726/2025/12/30/nfl-mvp-odds-drake-maye-matthew-stafford-mnf/
-
-**Encouraging Kids to Read Whole Books**\
-`Readers find a classroom trend of assigning shorter texts “troubling.” Also: Reaction to President Trump’s naming of a special envoy to Greenland.`\
-https://nytimes.com/2025/12/30/opinion/kids-whole-books.html
-
-**Iowa State Senate District 16 Special Election Results**\
-`Get live results and maps from the 2025 Iowa special election.`\
-https://nytimes.com/interactive/2025/12/30/us/elections/results-iowa-state-senate-district-16-unexpired-term-special.html
 
