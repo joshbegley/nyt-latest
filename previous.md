@@ -1,9 +1,13 @@
+**Full Time: Celebrating 2025 and looking to 2026**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/6928088/2025/12/29/2025-womens-soccer-review-full-time/
+
 **U.S. sues Virginia over tuition aid for unauthorized immigrants.**\
 `By Tim Balk`\
 https://nytimes.com/live/2025/12/29/us/trump-news/us-sues-virginia-tuition-immigrants
 
 **Five-star edge rusher DJ Jacobs commits to Ohio State, boosting 2027 class**\
-`The Buckeye will have to keep Jacobs on board until signing day, and if so, they will have their first five-star edge rusher since 2021.`\
+`The Buckeyes will have to keep Jacobs on board until signing day, and if so, they will have their first five-star edge rusher since 2021.`\
 https://nytimes.com/athletic/6928012/2025/12/29/dj-jacobs-ohio-state-commit-2027/
 
 **Floating Marker**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/29/world/asia/khaleda-zia-bangladesh-dead.html
 **Our two journalists compare their packing lists.**\
 `(No description)`\
 https://nytimes.com/live/2025/climate/antarctica-thwaites-glacier/packing-conversation
-
-**Hurricanes' Pyotr Kochetkov to have surgery, 'probably' out for season**\
-`“It's (the injury) he's been dealing with all year,” Hurricanes coach Rod Brind'Amour told reporters on Monday.`\
-https://nytimes.com/athletic/6927863/2025/12/29/pyotr-kochetkov-canes-injury-season-ending-surgery/
 
