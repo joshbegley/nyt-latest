@@ -1,3 +1,15 @@
+**How to watch Pistons vs. Lakers: Time, TV, streaming**\
+`Find out how to watch the Detroit Pistons play the Los Angeles Lakers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6930024/2025/12/30/pistons-vs-lakers-stream-how-to-watch-dec-30/
+
+**How to watch Islanders vs. Blackhawks: Time, TV, streaming**\
+`Find out how to watch the New York Islanders play the Chicago Blackhawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6930019/2025/12/30/islanders-vs-blackhawks-stream-how-to-watch-dec-30/
+
+**How to watch Flyers vs. Canucks: Time, TV, streaming**\
+`Find out how to watch the Philadelphia Flyers play the Vancouver Canucks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6930017/2025/12/30/flyers-vs-canucks-stream-how-to-watch-dec-30/
+
 **How to watch Cowboys vs. Giants: Time, TV, streaming**\
 `Find out how to watch the Dallas Cowboys play the New York Giants, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6930008/2025/12/30/cowboys-vs-giants-stream-how-to-watch-jan-4/
