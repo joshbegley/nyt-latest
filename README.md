@@ -1,40 +1,40 @@
-**The Pulse: The NFL spits out beautiful chaos, again**\
-`The Athletic has live coverage of Bears vs.`\
-https://nytimes.com/athletic/6927140/2025/12/30/falcons-rams-nfl-playoffs-the-pulse/
+**The Steelers are reliving their WR nightmare — they have only themselves to blame**\
+`General Manager Omar Khan insisted the Steelers had sufficient depth behind DK Metcalf. Instead, with Metcalf out, they've been exposed.`\
+https://nytimes.com/athletic/6927859/2025/12/30/pittsburgh-steelers-wide-receiver-depth-problems/
 
-**Palace reach agreement with Tottenham over Johnson deal**\
-`A fee approaching £35million is in place between the clubs for Johnson, who also has interest from other suitors.`\
-https://nytimes.com/athletic/6899543/2025/12/30/crystal-palace-brennan-johnson-tottenham-transfer/
+**NFL QB stock report: Has Cam Ward established himself as Titans' long-term QB?**\
+`The Titans' supporting cast has done Ward no favors this year. "He’s running for his life most of the time. His offensive line is terrible."`\
+https://nytimes.com/athletic/6926071/2025/12/30/nfl-qb-stock-report-rankings-cam-ward-titans/
 
-**George and Amal Clooney Become French Citizens**\
-`Mr. Clooney, who owns a farmhouse in France, has said that living there enabled him and his wife, a human rights lawyer, to pursue a quieter existence with their children.`\
-https://nytimes.com/2025/12/30/world/europe/george-clooney-amal-french-citizenship.html
+**Did Ohio State win a title, lose 14 draft picks and get better? We're about to find out**\
+`Even after winning a national title, Ohio State entered this season with a chip on its shoulder and something to prove. Can it repeat?`\
+https://nytimes.com/athletic/6927426/2025/12/30/ohio-state-college-football-playoff-ryan-day/
 
-**Liverpool part company with set piece coach Aaron Briggs**\
-`Set pieces have been an area of glaring weakness for Liverpool so far this season and the decision was taken that a change was required.`\
-https://nytimes.com/athletic/6928593/2025/12/30/liverpool-set-piece-coach-aaron-briggs/
+**NFL Week 18 Power Rankings: Checking in on each head coach as Bills, Steelers tumble**\
+`The Seahawks remain on top of this week's power rankings, but they have to play the red-hot 49ers for the NFC West title Saturday.`\
+https://nytimes.com/athletic/6925417/2025/12/30/nfl-power-rankings-week-18-coaches-hot-seat-bills-steelers/
 
-**The most impactful sports TV studio hosts of the 21st century**\
-`As the first quarter of the 21st century comes to a close, here are the top sports TV studio hosts of the last 25 years.`\
-https://nytimes.com/athletic/6591954/2025/12/30/most-impactful-studio-hosts-21st-century-list/
+**Ravens have new life — and a chance to rewrite what's been a challenging season**\
+`This season hasn’t gone as Baltimore had hoped, but it has a chance to change that Sunday night vs. Pittsburgh for the AFC North crown.`\
+https://nytimes.com/athletic/6928209/2025/12/30/ravens-steelers-afc-north-title/
 
-**What Caleb Williams’ quest for 4,000 yards means for the Bears**\
-`For the Bears, everything with quarterback history is relative. Still, Williams' bid to claim an elusive passing record has meaning.`\
-https://nytimes.com/athletic/6927413/2025/12/30/caleb-williams-bears-passing-franchise-record/
+**Who's the Super Bowl favorite in this unhinged NFL season? Nobody.**\
+`The NFL playoff palette looks like a psychedelic rainbow, which means half of the league's teams can still dare to dream.`\
+https://nytimes.com/athletic/6927991/2025/12/30/nfl-super-bowl-favorite-contenders/
 
-**The case for meaningless CFB bowl games: Remember, we are all sickos at heart**\
-`A college football bowl game is the rare version of sports without pain. `\
-https://nytimes.com/athletic/6926904/2025/12/30/college-football-bowl-games-sports-fandom-happiness/
+**The New York Times International Edition in Print for Wednesday, Dec. 31, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/12/30/todays-new-york-times-international-edition
 
-**The Cover-Up: Inside the Plot to Conceal Assad’s Crimes**\
-`Thousands of documents and interviews with Assad-era officials reveal how the regime worked to conceal evidence of its atrocities during the Syrian civil war.`\
-https://nytimes.com/2025/12/30/world/middleeast/assad-regime-crimes-syria-documents.html
+**Bijan Robinson’s Career Night Leads Falcons to Upset Win Over Rams**\
+`A 229-yard game from the Atlanta Falcons running back Bijan Robinson helped the team upset the Los Angeles Rams and brought his season total to an N.F.L.-high 2,255 yards.`\
+https://nytimes.com/video/sports/football/100000010615063/bijan-robinsons-career-night-leads-falcons-to-upset-win-over-rams.html
 
-**How the Assad Regime Covered Up Its Crimes: Key Takeaways**\
-`We documented how the dictator Bashar al-Assad and his henchmen conspired to hide evidence of torture and deaths of detainees during Syria’s long civil war.`\
-https://nytimes.com/2025/12/30/world/middleeast/assad-regime-crimes-syria-documents-takeaways.html
+**K-Pop Group NewJeans Faces New Uncertainty After Member Is Dropped**\
+`The band’s label said it had dropped one of the girl group’s five members. NewJeans’s legal battle has drawn public scrutiny of the K-pop industry.`\
+https://nytimes.com/2025/12/30/world/asia/new-jeans-danielle-ador.html
 
-**Sabres continue to show character, depth with ninth straight win: 5 thoughts**\
-`Buffalo is one win away from matching a franchise record and firmly back in the playoff hunt.`\
-https://nytimes.com/athletic/6928216/2025/12/30/sabres-depth-benson-kesselring-blues/
+**Popcast’s Top 10 Music Moments of the Year**\
+`Counting down some personal favorites, including a major rap tour, the sublime bridge in a breakup song and Timothée Chalamet’s rapping.`\
+https://nytimes.com/2025/12/30/arts/music/favorite-music-moments-2025.html
 
