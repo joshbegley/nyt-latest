@@ -1,3 +1,7 @@
+**McKenna, Hagens break out, Jiricek front-runner for top D: World Juniors Day 4**\
+`Day 4 at the World Juniors was a big one, with arguably the tournament's top six teams all in action across four games.`\
+https://nytimes.com/athletic/6920672/2025/12/29/gavin-mckenna-world-juniors-canada-usa-adam-jiricek/
+
 **Falcons win over Rams complicates NFC South race between Buccaneers and Panthers**\
 `A win by the Panthers over the Bucs on Saturday clinches the NFC South. If the Bucs win, the Falcons-Saints game on Sunday comes into play.`\
 https://nytimes.com/athletic/6928097/2025/12/29/buccaneers-panthers-nfc-south-complicated-falcons/
@@ -33,8 +37,4 @@ https://nytimes.com/video/climate/100000010542258/why-this-glacier-worries-scien
 **Doc Rivers passes George Karl for sixth place on NBA's coaching wins list**\
 `To this point in his career, Rivers has compiled a 1,176-835 record and a .585 win percentage.`\
 https://nytimes.com/athletic/6927592/2025/12/29/doc-rivers-george-karl-nba-coaching-wins/
-
-**Nikola Jokić leaves Nuggets-Heat game with left knee injury**\
-`Jokić was initially ruled questionable to return before Denver announced he would miss the rest of the game.`\
-https://nytimes.com/athletic/6927926/2025/12/29/nikola-jokic-nuggets-left-knee-injury/
 
