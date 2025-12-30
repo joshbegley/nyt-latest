@@ -1,4 +1,4 @@
-**The Briefing: Burnley 1 Newcastle 3 - How nervy was that? How did Wissa do? How key was Pope?**\
+**The Briefing: Burnley 1 Newcastle 3 – How nervy was that? Wissa up and running? Did Pope perform on his return?**\
 `Newcastle labour to a 3-1 win at Burnley in the Premier League, just their second away victory of the season`\
 https://nytimes.com/athletic/6922661/2025/12/30/newcastle-burnley-premier-league-result-analysis/
 

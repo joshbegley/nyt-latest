@@ -1,3 +1,7 @@
+**The Briefing: Burnley 1 Newcastle 3 - How nervy was that? How did Wissa do? How key was Pope?**\
+`Newcastle labour to a 3-1 win at Burnley in the Premier League, just their second away victory of the season`\
+https://nytimes.com/athletic/6922661/2025/12/30/newcastle-burnley-premier-league-result-analysis/
+
 **6 Takeaways on the Unwinding U.S.-Ukraine Alliance**\
 `A Times investigation reveals the inside story of the Trump administration’s chaotic push for a peace deal and its erratic role in the war.`\
 https://nytimes.com/2025/12/30/world/europe/ukraine-us-russia-takeaways.html
