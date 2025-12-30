@@ -1,3 +1,11 @@
+**Tatiana Schlossberg, Kennedy Daughter Who Wrote of Her Cancer, Dies at 35**\
+`An environmental journalist and child of Caroline Kennedy, she recently wrote of her battle with leukemia in The New Yorker, drawing worldwide sympathy.`\
+https://nytimes.com/2025/12/30/us/politics/tatiana-schlossberg-dead.html
+
+**Anthony Rendon agrees to restructuring of Angels contract: Source**\
+`Rendon played in just 257 of 1,032 possible games during his five seasons with the Angels due to injuries.`\
+https://nytimes.com/athletic/6929813/2025/12/30/anthony-rendon-angels-buyout-mlb/
+
 **Anthony Rendon agrees to buyout of Angels contract: Source**\
 `Rendon played in just 257 of 1,032 possible games during his five seasons with the Angels due to injuries.`\
 https://nytimes.com/athletic/6929813/2025/12/30/anthony-rendon-angels-buyout-mlb/
