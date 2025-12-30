@@ -1,3 +1,7 @@
+**Five-star edge rusher DJ Jacobs commits to Ohio State, boosting 2027 class**\
+`The Buckeye will have to keep Jacobs on board until signing day, and if so, they will have their first five-star edge rusher since 2021.`\
+https://nytimes.com/athletic/6928012/2025/12/29/dj-jacobs-ohio-state-commit-2027/
+
 **Floating Marker**\
 `Geoffrey Schorkopf and Will Eisenberg have their first crossword collaboration in The New York Times.`\
 https://nytimes.com/2025/12/29/crosswords/daily-puzzle-2025-12-30.html
