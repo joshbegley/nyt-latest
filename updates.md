@@ -1,3 +1,7 @@
+**With Live Artillery and New Warships, China Practices Blockading Taiwan**\
+`China flew bombers and fired long-range artillery during a second day of exercises designed to show its ability to claim the island-democracy by force.`\
+https://nytimes.com/2025/12/30/world/asia/china-taiwan-military-drills.html
+
 **The New York Times in Print for Tuesday, Dec. 30, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/12/30/todays-new-york-times
