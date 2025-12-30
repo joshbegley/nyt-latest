@@ -1,3 +1,7 @@
+**6 Takeaways on the Unwinding U.S.-Ukraine Alliance**\
+`A Times investigation reveals the inside story of the Trump administration’s chaotic push for a peace deal and its erratic role in the war.`\
+https://nytimes.com/2025/12/30/world/europe/ukraine-us-russia-takeaways.html
+
 **Duke lands 5-star PG Deron Rippey Jr.: What this means for Blue Devils**\
 `Rippey is an explosive lead guard who thrives on applying relentless ball pressure and making opposing guards uncomfortable.`\
 https://nytimes.com/athletic/6927402/2025/12/30/deron-rippey-duke-college-basketball-commitment/
@@ -23,7 +27,7 @@ https://nytimes.com/athletic/6930037/2025/12/30/angels-kirby-yates-veteran-dodge
 https://nytimes.com/athletic/6929930/2025/12/30/ncaa-nba-eligibility-charlie-baker/
 
 **The Separation: Inside the Unraveling U.S.-Ukraine Partnership**\
-`As President Trump sought a peace deal and Vladimir V. Putin sought victory, factions in the White House and Pentagon bled the Ukrainian war efforts.`\
+`As President Trump sought a peace deal and Vladimir V. Putin sought victory, factions in the White House and Pentagon bled the Ukrainian war effort.`\
 https://nytimes.com/interactive/2025/12/30/world/europe/ukraine-war-us-russia.html
 
 **Liverpool's McConnell, Beck to have loan spells cut short in January**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6929969/2025/12/30/liverpool-mcconnell-beck-loan-re
 **D.C. United near club-record deal for CFR Cluj forward Munteanu**\
 `The 23-year-old has two goals and five assists in 14 league appearances for the Romanian side. `\
 https://nytimes.com/athletic/6930021/2025/12/30/dc-united-louis-munteanu-club-record-transfer/
-
-**Give these five fantasy football players all of the championship glory**\
-`Week 17 of 2025 saw five players deliver some some of the best final-week performances in the past 10 seasons.`\
-https://nytimes.com/athletic/6929549/2025/12/30/fantasy-football-playoff-heroes-records-points-henry-bijan-purdy-maye/
 
