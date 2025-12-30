@@ -1,3 +1,7 @@
+**Rain Expected to Soak Another Holiday in Los Angeles**\
+`After Christmas-week storms, two rounds of rainfall starting on New Year’s Eve could cause more flooding and mudslides.`\
+https://nytimes.com/2025/12/30/weather/rain-los-angeles-new-years.html
+
 **Can the NBA truly solve the most egregious tanks? And how incredible is Joker?**\
 `As the league reportedly looks at ways to reduce tanking, one potential change is long overdue.`\
 https://nytimes.com/athletic/6927945/2025/12/30/nba-tanking-rule-changes-nikola-jokic-nuggets/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6928920/2025/12/30/commanders-regression-quan-marti
 **Trump Administration Live Updates: C.I.A. Conducted Drone Strike on Venezuela Port**\
 ``\
 https://nytimes.com/live/2025/12/30/us/trump-news
-
-**Canadiens weekly notebook: Slafkovský's importance, Demidov on PP1, Danault's sense of purpose**\
-`Juraj Slafkovský is asserting his will on Canadiens opponents, Martin St. Louis' logic in selecting his top power-play unit might be flawed.`\
-https://nytimes.com/athletic/6928314/2025/12/30/canadiens-slafkovsky-demidov-danault/
 
