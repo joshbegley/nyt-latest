@@ -1,3 +1,7 @@
+**Eurostar Urges Passengers to Cancel Travel After Power Failure**\
+`A power failure in the Channel Tunnel has paralyzed the Eurostar service, causing delays for thousands of holiday travelers between London, Paris and Brussels.`\
+https://nytimes.com/2025/12/30/world/europe/eurostar-delays-channel-tunnel-london-paris.html
+
 **Naz Reid's breakout game comes on a big night for a beloved Timberwolves fan**\
 `Reid gave the struggling Minnesota bench a boost and perhaps inspired a fan in need.`\
 https://nytimes.com/athletic/6927164/2025/12/30/naz-reid-breakout-game-timberwolves-fan/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6921794/2025/12/30/college-football-transfer-portal
 **Victor Johansson's World Juniors play is a step toward a possible Leafs career**\
 `The Leafs don't have anyone quite like the young Swedish defenceman in their prospect cupboard.`\
 https://nytimes.com/athletic/6926897/2025/12/30/maple-leafs-victor-johansson-world-juniors/
-
-**Why Georgia hasn't slipped amid college football's changes — it starts with Kirby Smart**\
-`Eleven months ago, Smart’s program seemed to be falling back to the pack. Now, it's a championship favorite.`\
-https://nytimes.com/athletic/6925176/2025/12/30/georgia-kirby-smart-college-football-playoff/
 

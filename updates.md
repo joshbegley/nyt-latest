@@ -1,3 +1,7 @@
+**Eurostar Urges Passengers to Cancel Travel After Power Failure**\
+`A power failure in the Channel Tunnel has paralyzed the Eurostar service, causing delays for thousands of holiday travelers between London, Paris and Brussels.`\
+https://nytimes.com/2025/12/30/world/europe/eurostar-delays-channel-tunnel-london-paris.html
+
 **Naz Reid's breakout game comes on a big night for a beloved Timberwolves fan**\
 `Reid gave the struggling Minnesota bench a boost and perhaps inspired a fan in need.`\
 https://nytimes.com/athletic/6927164/2025/12/30/naz-reid-breakout-game-timberwolves-fan/
