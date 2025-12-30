@@ -1,4 +1,8 @@
-**Anthony Rendon agrees to buyout of Angels contract: Source**\
+**Tatiana Schlossberg, Kennedy Daughter Who Wrote of Her Cancer, Dies at 35**\
+`An environmental journalist and child of Caroline Kennedy, she recently wrote of her battle with leukemia in The New Yorker, drawing worldwide sympathy.`\
+https://nytimes.com/2025/12/30/us/politics/tatiana-schlossberg-dead.html
+
+**Anthony Rendon agrees to restructuring of Angels contract: Source**\
 `Rendon played in just 257 of 1,032 possible games during his five seasons with the Angels due to injuries.`\
 https://nytimes.com/athletic/6929813/2025/12/30/anthony-rendon-angels-buyout-mlb/
 
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6929642/2025/12/30/maple-leafs-injury-auston-matthe
 **Uganda 1 Nigeria 3 - Why did Uganda need three 'keepers? Bassey's passing perfect? How did backups do?**\
 `Our writers break down the talking points as Nigeria finished the group stage on maximum points.`\
 https://nytimes.com/athletic/6922665/2025/12/30/uganda-nigeria-onyedika-bassey/
-
-**Blue Jackets' trade demands for Yegor Chinakhov changed in mid-December, GM says**\
-`Trading to acquire Mason Marchment from the Seattle Kraken earlier this month changed the situation, Don Waddell said.`\
-https://nytimes.com/athletic/6928893/2025/12/30/blue-jackets-yegor-chinakhov-trade-demands/
 
