@@ -1,3 +1,7 @@
+**Cooper Flagg and Donovan Clingan share a special connection through their moms**\
+`The mothers of Clingan and Flagg were college teammates at Maine. The two promising young players bonded Monday in Portland.`\
+https://nytimes.com/athletic/6928402/2025/12/30/cooper-flagg-donovan-clingan-mavericks-blazers-moms/
+
 **How does college football roster building compare to NFL? Nebraska's GM explains**\
 `The Athletic chatted with Stewart about his path to Nebraska from the NFL, the learning curve and differences between college and pro ball.`\
 https://nytimes.com/athletic/6926442/2025/12/30/nebraska-football-gm-pat-stewart-transfer-portal/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6926873/2025/12/30/rangers-midseason-report-cards-2
 **Boosters and oil money get credit for Texas Tech's CFP run. But don't forget Joey McGuire**\
 `McGuire embraced Texas Tech — and Lubbock, and West Texas — for exactly what it is, and steered it somewhere it’s never been.`\
 https://nytimes.com/athletic/6927673/2025/12/30/texas-tech-football-joey-mcguire/
-
-**Where Power 4 teams stand at quarterback heading into transfer portal season**\
-`The transfer portal opens on Friday, and each Power 4 program enters the window with varying degrees of need at quarterback.`\
-https://nytimes.com/athletic/6921794/2025/12/30/college-football-transfer-portal-quarterbacks-4/
 
