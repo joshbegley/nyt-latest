@@ -1,3 +1,15 @@
+**Our Favorite Beauty Stories of 2025**\
+`In-depth guides and insider tips on how to best care for your hair, skin and nails.`\
+https://nytimes.com/2025/12/30/t-magazine/favorite-beauty-guides-stories.html
+
+**Dan Hurley calls for college basketball commissioner in wake of Nnaji eligibility**\
+`Hurley's comments come days after legendary Michigan State coach Tom Izzo criticized the NCAA for granting Nnaji eligibility.`\
+https://nytimes.com/athletic/6928906/2025/12/30/dan-hurley-college-basketball-commissioner-james-nnaji/
+
+**Is Thwaites Still the ‘Doomsday Glacier’?**\
+`Recent research has led scientists to new conclusions about the fastest melting glacier in Antarctica. Some are reassuring, others the opposite.`\
+https://nytimes.com/2025/12/30/climate/thwaites-glacier-doomsday.html
+
 **Saudi-Led Strike in Yemen Signals Worsening Rift With U.A.E.**\
 `A Saudi-led coalition said it had targeted an arms shipment in Yemen bound for a separatist group backed by the United Arab Emirates. The Emirates denied that the shipment included weapons.`\
 https://nytimes.com/video/world/middleeast/100000010615259/saudi-yemen-strike-uae.html
