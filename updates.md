@@ -1,3 +1,7 @@
+**Clemson parts ways with OC Garrett Riley and safeties coach Mickey Conn**\
+`Clemson finished 7-6, the program's first six-loss season since 2010.`\
+https://nytimes.com/athletic/6927669/2025/12/29/clemson-parts-ways-garrett-riley/
+
 **How to watch Panthers vs. Buccaneers: Time, TV, streaming**\
 `Find out how to watch the Carolina Panthers play the Tampa Bay Buccaneers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6927753/2025/12/29/panthers-vs-buccaneers-stream-how-to-watch-jan-3/
