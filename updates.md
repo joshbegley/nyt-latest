@@ -1,3 +1,11 @@
+**Manchester United's 2025: Brilliant Bruno, Bilbao boredom and two magical Maguire moments**\
+`There have been signs of progress at Old Trafford in recent months but the past 12 months has been hit and miss for Ruben Amorim's team`\
+https://nytimes.com/athletic/6839512/2025/12/30/manchester-united-2025-amorim-bruno-maguire/
+
+**Liverpool's 2025: Triumph, tragedy and a title defence quickly in tatters**\
+`A look back to a year like no other at Anfield, where euphoria and grief were mingled in equal measure`\
+https://nytimes.com/athletic/6862845/2025/12/30/liverpool-review-2025/
+
 **Tottenham's 2025: A trophy, turmoil and a horrible home record**\
 `It has been quite a year for all involved at Spurs... who knows what 2026 will bring them?`\
 https://nytimes.com/athletic/6907196/2025/12/30/tottenham-2025-review-trophy-thomas-frank/
