@@ -1,3 +1,7 @@
+**Hurricanes' Pyotr Kochetkov to have surgery, 'probably' out for the season**\
+`“It's (the injury) he's been dealing with all year,” Hurricanes coach Rod Brind'Amour told reporters on Monday.`\
+https://nytimes.com/athletic/6927863/2025/12/29/pyotr-kochetkov-canes-injury-season-ending-surgery/
+
 **How to watch Seahawks vs. 49ers: Time, TV, streaming**\
 `Find out how to watch the Seattle Seahawks play the San Francisco 49ers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6927878/2025/12/29/seahawks-vs-49ers-stream-how-to-watch-jan-3/
