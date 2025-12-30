@@ -1,3 +1,11 @@
+**Despite Differences, Trump and Netanyahu Present United Front**\
+`The American and Israeli leaders showed few signs of disagreement after meeting in Florida, giving no public indication of their growing strains over Gaza, Syria and other issues.`\
+https://nytimes.com/2025/12/29/us/politics/trump-netanyahu-israel-meeting.html
+
+**Trump and Netanyahu Present United Front During Meeting**\
+`President Trump and Prime Minister Benjamin Netanyahu of Israel lavished each other with praise during their meeting on Monday. The two discussed Gaza’s reconstruction. Mr. Netanyahu also gave Mr. Trump the Israel Prize, the country’s highest cultural honor.`\
+https://nytimes.com/video/us/politics/100000010613968/trump-netanyahu-israel-pardon.html
+
 **Democrats Aim to Spotlight Republican Efforts to Rewrite the Jan. 6 Capitol Riot**\
 `On the fifth anniversary of the attack, which falls next Tuesday, Democrats plan to hold an informal hearing to review President Trump’s clemency for the rioters and G.O.P attempts to sanitize the event.`\
 https://nytimes.com/2025/12/29/us/politics/jan-6-anniversary-trump.html
