@@ -1,3 +1,11 @@
+**Athletic captain Williams says playing in Saudi Arabia is 's---'**\
+`The Spanish Football Federation has an agreement to hold the Super Cup there until 2029.`\
+https://nytimes.com/athletic/6929375/2025/12/30/inaki-williams-spanish-super-cup-saudi-arabia-criticism/
+
+**How to watch Florida State vs. North Carolina men's basketball: Time, TV, streaming**\
+`Find out how to watch the Florida State Seminoles play the North Carolina Tar Heels, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6929480/2025/12/30/florida-state-vs-north-carolina-stream-how-to-watch-dec-30/
+
 **At the Met, Toasting With Traditional Puritans on New Year’s Eve**\
 `The Metropolitan Opera’s new production of Bellini’s “I Puritani,” directed by Charles Edwards, is “a retro move,” said Peter Gelb, the Met’s general manager.`\
 https://nytimes.com/2025/12/30/arts/music/i-puritani-metropolitan-opera-lisette-oropesa.html

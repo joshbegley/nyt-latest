@@ -1,3 +1,15 @@
+**Cowboys owner Jerry Jones says defensive struggles on everyone, not just Matt Eberflus**\
+`Dallas has allowed more points (29.8) per game than any team in the NFL this season. Jerry Jones could move on from DC Matt Eberflus.`\
+https://nytimes.com/athletic/6929461/2025/12/30/cowboys-defense-jerry-jones-matt-eberflus/
+
+**How to watch Hurricanes vs. Penguins: Time, TV, streaming**\
+`Find out how to watch the Carolina Hurricanes play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6929502/2025/12/30/hurricanes-vs-penguins-stream-how-to-watch-dec-30/
+
+**How to watch Canadiens vs. Panthers: Time, TV, streaming**\
+`Find out how to watch the Montreal Canadiens play the Florida Panthers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6929500/2025/12/30/canadiens-vs-panthers-stream-how-to-watch-dec-30/
+
 **Athletic captain Williams says playing in Saudi Arabia is 's---'**\
 `The Spanish Football Federation has an agreement to hold the Super Cup there until 2029.`\
 https://nytimes.com/athletic/6929375/2025/12/30/inaki-williams-spanish-super-cup-saudi-arabia-criticism/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6927861/2025/12/30/canucks-trades-forwards-depth-ch
 **9 Podcasts That Made Us Stop and Really Listen in 2025**\
 `In an ever-growing podcast universe, our writers select the shows that stood out.`\
 https://nytimes.com/2025/12/30/arts/podcasts-2025-heavyweight-gilmore.html
-
-**Silky, Salty and Abundantly Satisfying Spaghetti Carbonara**\
-`And more festive (but still fast) dinners for the new year.`\
-https://nytimes.com/2025/12/30/dining/satisfying-spaghetti-carbonara.html
-
-**Eric Adams Hurt More Than Just Himself**\
-`He failed not only himself but also other Black politicians.`\
-https://nytimes.com/2025/12/30/opinion/eric-adams-hurt-more-than-just-himself.html
-
-**Bangladesh Mourns Death of First Female Prime Minister**\
-`Mourners gathered at a hospital in Dhaka on Tuesday after it was announced that Khaleda Zia, the country’s first female prime minister, had died.`\
-https://nytimes.com/video/world/asia/100000010615300/bangladesh-mourns-khaleda-zia.html
 
