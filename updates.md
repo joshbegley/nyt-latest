@@ -1,3 +1,11 @@
+**USWNT 2025 in review: Heavy roster rotation, triumphant returns and practicing resilience**\
+`2025 was a year of experimentation for head coach Emma Hayes and the U.S.`\
+https://nytimes.com/athletic/6928405/2025/12/30/uswnt-2025-in-review-emma-hayes-development/
+
+**Patriots WR Stefon Diggs facing felony charges of strangulation, assault**\
+`Diggs is facing felony charges of strangulation and assault regarding an incident that allegedly occurred on Dec. 2. `\
+https://nytimes.com/athletic/6929494/2025/12/30/stefon-diggs-felony-charges-strangulation-assault-patriots/
+
 **Colts to start Riley Leonard over Philip Rivers in season finale: Sources**\
 `Leonard will be making the first start of his NFL career. `\
 https://nytimes.com/athletic/6929185/2025/12/30/colts-philip-rivers-riley-leonard-texans/
