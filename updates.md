@@ -1,3 +1,7 @@
+**Nikola Jokić to miss at least 4 weeks with knee injury**\
+`The 30-year-old is having another historically dominant season, averaging 29.6 points, 12.2 rebounds and 11.0 assists per game`\
+https://nytimes.com/athletic/6929039/2025/12/30/nikola-jokic-injury-update-nuggets-timetable/
+
 **How to watch Devils vs. Maple Leafs: Time, TV, streaming**\
 `Find out how to watch the New Jersey Devils play the Toronto Maple Leafs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6929531/2025/12/30/devils-vs-maple-leafs-stream-how-to-watch-dec-30/

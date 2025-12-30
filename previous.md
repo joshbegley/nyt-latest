@@ -1,3 +1,7 @@
+**Nikola Jokić to miss at least 4 weeks with knee injury**\
+`The 30-year-old is having another historically dominant season, averaging 29.6 points, 12.2 rebounds and 11.0 assists per game`\
+https://nytimes.com/athletic/6929039/2025/12/30/nikola-jokic-injury-update-nuggets-timetable/
+
 **How to watch Devils vs. Maple Leafs: Time, TV, streaming**\
 `Find out how to watch the New Jersey Devils play the Toronto Maple Leafs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6929531/2025/12/30/devils-vs-maple-leafs-stream-how-to-watch-dec-30/
@@ -22,19 +26,15 @@ https://nytimes.com/athletic/6929375/2025/12/30/inaki-williams-spanish-super-cup
 `Find out how to watch the Florida State Seminoles play the North Carolina Tar Heels, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6929480/2025/12/30/florida-state-vs-north-carolina-stream-how-to-watch-dec-30/
 
-**At the Met, Toasting With Traditional Puritans on New Year’s Eve**\
-`The Metropolitan Opera’s new production of Bellini’s “I Puritani,” directed by Charles Edwards, is “a retro move,” said Peter Gelb, the Met’s general manager.`\
-https://nytimes.com/2025/12/30/arts/music/i-puritani-metropolitan-opera-lisette-oropesa.html
-
 **More Than a Bombshell, Brigitte Bardot Became the Face of a Nation**\
 `A star who never played coy for the camera was once an emblem of France.`\
 https://nytimes.com/2025/12/30/style/brigette-bardot-france.html
 
+**At the Met, Toasting With Traditional Puritans on New Year’s Eve**\
+`The Metropolitan Opera’s new production of Bellini’s “I Puritani,” directed by Charles Edwards, is “a retro move,” said Peter Gelb, the Met’s general manager.`\
+https://nytimes.com/2025/12/30/arts/music/i-puritani-metropolitan-opera-lisette-oropesa.html
+
 **Chip Kelly returns to college ranks as Northwestern's offensive coordinator**\
 `The veteran coach is returning to college after a disappointing season with the Las Vegas Raiders.`\
 https://nytimes.com/athletic/6928956/2025/12/30/chip-kelly-northwestern-offensive-coordinator/
-
-**Why the Canucks should make a trade and give young forwards more opportunity**\
-`The Canucks have a logjam of forwards that deserve playing time, and there aren't enough lineup spots to go around.`\
-https://nytimes.com/athletic/6927861/2025/12/30/canucks-trades-forwards-depth-chart/
 
