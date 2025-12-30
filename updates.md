@@ -1,3 +1,7 @@
+**Our favorite athlete TV cameos of 2025, from 'Landman' to 'Abbott Elementary'**\
+`A well-placed on-screen cameo elevates a show like few other bits can. Here are our favorite TV drop-ins from the sports world across 2025.`\
+https://nytimes.com/athletic/6927180/2025/12/30/lamar-jackson-acting-schwarber-abbott-jerry-jones-landman/
+
 **Cooper Flagg and Donovan Clingan share a special connection through their moms**\
 `The mothers of Clingan and Flagg were college teammates at Maine. The two promising young players bonded Monday in Portland.`\
 https://nytimes.com/athletic/6928402/2025/12/30/cooper-flagg-donovan-clingan-mavericks-blazers-moms/

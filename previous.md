@@ -1,3 +1,7 @@
+**Our favorite athlete TV cameos of 2025, from 'Landman' to 'Abbott Elementary'**\
+`A well-placed on-screen cameo elevates a show like few other bits can. Here are our favorite TV drop-ins from the sports world across 2025.`\
+https://nytimes.com/athletic/6927180/2025/12/30/lamar-jackson-acting-schwarber-abbott-jerry-jones-landman/
+
 **Cooper Flagg and Donovan Clingan share a special connection through their moms**\
 `The mothers of Clingan and Flagg were college teammates at Maine. The two promising young players bonded Monday in Portland.`\
 https://nytimes.com/athletic/6928402/2025/12/30/cooper-flagg-donovan-clingan-mavericks-blazers-moms/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6928255/2025/12/30/rockets-tari-eason-starting-line
 **Rangers midseason report: MVP, most improved and more awards**\
 `Halfway through the 2025-26 NHL season, let's dissect what's happened to the Rangers so far and size up what’s still to come.`\
 https://nytimes.com/athletic/6926873/2025/12/30/rangers-midseason-report-cards-2025-26/
-
-**Boosters and oil money get credit for Texas Tech's CFP run. But don't forget Joey McGuire**\
-`McGuire embraced Texas Tech — and Lubbock, and West Texas — for exactly what it is, and steered it somewhere it’s never been.`\
-https://nytimes.com/athletic/6927673/2025/12/30/texas-tech-football-joey-mcguire/
 
