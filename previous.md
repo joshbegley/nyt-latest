@@ -1,3 +1,7 @@
+**For the Bucks, winning two in a row marks real progress**\
+`The Bucks won two games in a row for the first time since October. `\
+https://nytimes.com/athletic/6928164/2025/12/30/giannis-antetokounmpo-bucks-win-two-straight/
+
 **2025 Was the Year of the Rotisserie Chicken**\
 `As food prices climb, a whole, glistening bird is especially attractive to restaurant owners and diners alike.`\
 https://nytimes.com/2025/12/30/dining/rotisserie-chicken-restaurants.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6928908/2025/12/30/sydney-hobart-race-tattersall-cu
 **Our Favorite Beauty Stories of 2025**\
 `In-depth guides and insider tips on how to best care for your hair, skin and nails.`\
 https://nytimes.com/2025/12/30/t-magazine/favorite-beauty-guides-stories.html
-
-**Dan Hurley calls for college basketball commissioner in wake of Nnaji eligibility**\
-`Hurley's comments come days after legendary Michigan State coach Tom Izzo criticized the NCAA for granting Nnaji eligibility.`\
-https://nytimes.com/athletic/6928906/2025/12/30/dan-hurley-college-basketball-commissioner-james-nnaji/
 

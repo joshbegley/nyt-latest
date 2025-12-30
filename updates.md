@@ -1,3 +1,7 @@
+**For the Bucks, winning two in a row marks real progress**\
+`The Bucks won two games in a row for the first time since October. `\
+https://nytimes.com/athletic/6928164/2025/12/30/giannis-antetokounmpo-bucks-win-two-straight/
+
 **2025 Was the Year of the Rotisserie Chicken**\
 `As food prices climb, a whole, glistening bird is especially attractive to restaurant owners and diners alike.`\
 https://nytimes.com/2025/12/30/dining/rotisserie-chicken-restaurants.html
