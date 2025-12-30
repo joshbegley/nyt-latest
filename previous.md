@@ -1,3 +1,11 @@
+**How to Put a Celebrity at Ease? Make a Pizza.**\
+`Times Cooking’s Pizza Interview series introduces a note of nostalgia to encourage stars to open up.`\
+https://nytimes.com/2025/12/30/insider/pizza-interview-stranger-things.html
+
+**Judge Rules That Consumer Bureau’s Funding Cannot Lapse**\
+`The Trump administration had tried to defund the Consumer Financial Protection Bureau, which acts as a guardrail for the safety of the financial system.`\
+https://nytimes.com/2025/12/30/business/consumer-financial-protection-bureau-funding-trump-vought.html
+
 **Tatiana Schlossberg, Kennedy Daughter Who Wrote of Her Cancer, Dies at 35**\
 `An environmental journalist and child of Caroline Kennedy, she recently wrote of her battle with leukemia in The New Yorker, drawing worldwide sympathy.`\
 https://nytimes.com/2025/12/30/us/politics/tatiana-schlossberg-dead.html
@@ -25,12 +33,4 @@ https://nytimes.com/2025/12/30/opinion/kids-whole-books.html
 **Iowa State Senate District 16 Special Election Results**\
 `Get live results and maps from the 2025 Iowa special election.`\
 https://nytimes.com/interactive/2025/12/30/us/elections/results-iowa-state-senate-district-16-unexpired-term-special.html
-
-**How Maple Leafs are dealing with a rash of new injuries**\
-`Matthews will be a game-time decision versus Devils after blocking a shot during the second period of Sunday's loss against the Red Wings.`\
-https://nytimes.com/athletic/6929642/2025/12/30/maple-leafs-injury-auston-matthews-chris-tanev-dakota-joshua/
-
-**Uganda 1 Nigeria 3 - Why did Uganda need three 'keepers? Bassey's passing perfect? How did backups do?**\
-`Our writers break down the talking points as Nigeria finished the group stage on maximum points.`\
-https://nytimes.com/athletic/6922665/2025/12/30/uganda-nigeria-onyedika-bassey/
 

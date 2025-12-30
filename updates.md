@@ -1,3 +1,11 @@
+**How to Put a Celebrity at Ease? Make a Pizza.**\
+`Times Cooking’s Pizza Interview series introduces a note of nostalgia to encourage stars to open up.`\
+https://nytimes.com/2025/12/30/insider/pizza-interview-stranger-things.html
+
+**Judge Rules That Consumer Bureau’s Funding Cannot Lapse**\
+`The Trump administration had tried to defund the Consumer Financial Protection Bureau, which acts as a guardrail for the safety of the financial system.`\
+https://nytimes.com/2025/12/30/business/consumer-financial-protection-bureau-funding-trump-vought.html
+
 **Tatiana Schlossberg, Kennedy Daughter Who Wrote of Her Cancer, Dies at 35**\
 `An environmental journalist and child of Caroline Kennedy, she recently wrote of her battle with leukemia in The New Yorker, drawing worldwide sympathy.`\
 https://nytimes.com/2025/12/30/us/politics/tatiana-schlossberg-dead.html
