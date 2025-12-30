@@ -1,3 +1,7 @@
+**49ers offense sizzles while Seahawks' Sam Darnold sputters: Week 17 film review**\
+`Also, Malik Willis shows he has starting quarterback potential while filling in for the Packers.`\
+https://nytimes.com/athletic/6922716/2025/12/30/49ers-sam-darnold-malik-willis-film-review/
+
 **TAFC – Gianni Infantino, World Cup tickets and Christian Pulisic: Plus: AFCON's goals show**\
 `Time to scratch off some more squares from your World Cup bingo card. Caoimhe O'Neill is here to update you on the latest`\
 https://nytimes.com/athletic/6890776/2025/12/30/infantino-tickets-pulisic-afcon-tafc/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6926904/2025/12/30/college-football-bowl-games-spor
 **The Cover-Up: Inside the Plot to Conceal Assad’s Crimes**\
 `Thousands of documents and interviews with Assad-era officials reveal how the regime worked to conceal evidence of its atrocities during the Syrian civil war.`\
 https://nytimes.com/2025/12/30/world/middleeast/assad-regime-crimes-syria-documents.html
-
-**How the Assad Regime Covered Up Its Crimes: Key Takeaways**\
-`We documented how the dictator Bashar al-Assad and his henchmen conspired to hide evidence of torture and deaths of detainees during Syria’s long civil war.`\
-https://nytimes.com/2025/12/30/world/middleeast/assad-regime-crimes-syria-documents-takeaways.html
 
