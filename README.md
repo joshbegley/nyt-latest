@@ -1,3 +1,7 @@
+**Kawhi Leonard and the Clippers are on a heater. Is it sustainable?**\
+`Leonard's recent surge of energy includes a 55-point game as LA has won four straight. Is this a turnaround or a blip?`\
+https://nytimes.com/athletic/6928174/2025/12/30/kawhi-leonard-clippers-hot-streak-sustainable/
+
 **Ohio State, Miami reunite carrying few remnants of a title game that changed CFB**\
 `Twenty-three years later, Miami and Ohio State's roles are reversed as they meet to keep their national title hopes alive.`\
 https://nytimes.com/athletic/6928872/2025/12/30/miami-ohio-state-history-pass-interference/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6927164/2025/12/30/naz-reid-breakout-game-timberwol
 **How Russia and Ukraine Are Fighting to Shape President Trump’s View of the War**\
 `Off the battlefield, each side is trying to influence the American leader’s perception as they look to negotiate a peace settlement in their favor.`\
 https://nytimes.com/2025/12/30/world/europe/russia-ukraine-trump-influence.html
-
-**Vanderbilt’s greatest season will end with memories, the best and worst kind**\
-`Doster had 1,621 rushing yards and 3,636 all-purpose in his first three years and was looking forward to a big senior season.`\
-https://nytimes.com/athletic/6923152/2025/12/30/vanderbilt-football-reliaquest-bowl-tampa-kwane-doster/
 

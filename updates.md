@@ -1,3 +1,7 @@
+**Ohio State, Miami reunite carrying few remnants of a title game that changed CFB**\
+`Twenty-three years later, Miami and Ohio State's roles are reversed as they meet to keep their national title hopes alive.`\
+https://nytimes.com/athletic/6928872/2025/12/30/miami-ohio-state-history-pass-interference/
+
 **Spanish Woman Scorned, Then Loved, for Botched Fresco Restoration Dies at 94**\
 `Cecilia Giménez’s repainting of an image of Jesus in 2012 was widely mocked online. But tourists flocked to see her work, reviving her struggling hometown.`\
 https://nytimes.com/2025/12/30/world/europe/spain-jesus-fresco-restoration-painter-gimenez-dead.html
