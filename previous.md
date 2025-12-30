@@ -1,3 +1,7 @@
+**An Anti-A.I. Movement Is Coming. Which Party Will Lead It?**\
+`The technology Is ruining much of what makes life worth living.`\
+https://nytimes.com/2025/12/29/opinion/ai-democracy.html
+
 **Two overhead kicks in eight days: Which of El Kaabi's outrageous AFCON goals was better?**\
 `The Morocco striker stunned viewers with his acrobatic finish against Zambia, but he'd already done it once before at this tournament`\
 https://nytimes.com/athletic/6927688/2025/12/29/ayoub-el-kaabi-overhead-kicks-morocco-afcon/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6927521/2025/12/29/mlb-off-season-tyler-soderstrom-
 **NASCAR star Denny Hamlin's father, Dennis, dies of injuries from house fire**\
 `Dennis Hamlin died following a fire at their house Sunday night, and Hamlin's mother, Mary Lou, is in critical condition, authorities said.`\
 https://nytimes.com/athletic/6927154/2025/12/29/nascar-denny-hamlin-father-dennis-dies-house-fire/
-
-**New York City Takes Over Brooklyn Health System With Shaky Finances**\
-`Maimonides Health is a community fixture that will become part of NYC Health + Hospitals. Many of its patients are on government medical plans.`\
-https://nytimes.com/2025/12/29/nyregion/nyc-takes-over-maimonides.html
 

@@ -1,3 +1,7 @@
+**An Anti-A.I. Movement Is Coming. Which Party Will Lead It?**\
+`The technology Is ruining much of what makes life worth living.`\
+https://nytimes.com/2025/12/29/opinion/ai-democracy.html
+
 **Two overhead kicks in eight days: Which of El Kaabi's outrageous AFCON goals was better?**\
 `The Morocco striker stunned viewers with his acrobatic finish against Zambia, but he'd already done it once before at this tournament`\
 https://nytimes.com/athletic/6927688/2025/12/29/ayoub-el-kaabi-overhead-kicks-morocco-afcon/
