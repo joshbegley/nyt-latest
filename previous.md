@@ -1,3 +1,7 @@
+**Arsenal vs Aston Villa: Biggest game of season so far? Views on Emery? January transfer plans?**\
+`Our writers analyse the key talking points ahead of the top-of-the-table clash in the Premier League`\
+https://nytimes.com/athletic/6925654/2025/12/30/arsenal-aston-villa-premier-league-preview-title-race/
+
 **In Lagos, December Is Time to Get Down and ‘Detty’**\
 `Detty December means a month of “back to back to back” partying in Nigeria’s megacity, both for locals and visiting members of the diaspora. Bring your stamina, dancing shoes and wads of cash.`\
 https://nytimes.com/2025/12/30/world/africa/detty-december-lagos-nigeria.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6920672/2025/12/29/gavin-mckenna-world-juniors-cana
 **Falcons win over Rams complicates NFC South race between Buccaneers and Panthers**\
 `A win by the Panthers over the Bucs on Saturday clinches the NFC South. If the Bucs win, the Falcons-Saints game on Sunday comes into play.`\
 https://nytimes.com/athletic/6928097/2025/12/29/buccaneers-panthers-nfc-south-complicated-falcons/
-
-**C.I.A. Conducted Drone Strike on Port in Venezuela**\
-`The attack last week, on a dock purportedly used for shipping narcotics, did not kill anyone, people briefed on the operation said. But it was the first known U.S. operation inside Venezuela.`\
-https://nytimes.com/2025/12/29/us/politics/cia-drone-strike-venezuela.html
 
