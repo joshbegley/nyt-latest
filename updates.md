@@ -1,3 +1,7 @@
+**Brighton's Hurzeler accuses officials of guesswork in West Ham penalty**\
+`Lewis Dunk was penalised for handball after referee Michael Salisbury had not awarded a penalty, but the VAR official intervened. `\
+https://nytimes.com/athletic/6930318/2025/12/30/brighton-hurzeler-handball-guesswork-west-ham/
+
 **The Briefing: Man Utd 1 Wolves 1 – Boos at Old Trafford as Amorim's side miss chance to go fourth**\
 `United were held to a draw by the Premier League's bottom-placed side in an embarrassing display for Amorim's men`\
 https://nytimes.com/athletic/6922664/2025/12/30/man-utd-1-wolves-1-amorim-premier-league/
