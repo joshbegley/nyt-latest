@@ -1,3 +1,7 @@
+**Nostalgia in Denmark as Main Postal Carrier Ends Letter Delivery**\
+`PostNord, the country’s longtime service, will deliver its last letters this week. Few Danes send snail mail anymore, but some are mourning the end of an era.`\
+https://nytimes.com/2025/12/30/world/europe/denmark-letter-delivery-postnord-mailboxes.html
+
 **Our favorite athlete TV cameos of 2025, from 'Landman' to 'Abbott Elementary'**\
 `A well-placed on-screen cameo elevates a show like few other bits can. Here are our favorite TV drop-ins from the sports world across 2025.`\
 https://nytimes.com/athletic/6927180/2025/12/30/lamar-jackson-acting-schwarber-abbott-jerry-jones-landman/

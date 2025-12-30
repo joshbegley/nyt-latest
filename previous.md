@@ -1,3 +1,7 @@
+**Nostalgia in Denmark as Main Postal Carrier Ends Letter Delivery**\
+`PostNord, the country’s longtime service, will deliver its last letters this week. Few Danes send snail mail anymore, but some are mourning the end of an era.`\
+https://nytimes.com/2025/12/30/world/europe/denmark-letter-delivery-postnord-mailboxes.html
+
 **Our favorite athlete TV cameos of 2025, from 'Landman' to 'Abbott Elementary'**\
 `A well-placed on-screen cameo elevates a show like few other bits can. Here are our favorite TV drop-ins from the sports world across 2025.`\
 https://nytimes.com/athletic/6927180/2025/12/30/lamar-jackson-acting-schwarber-abbott-jerry-jones-landman/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6922269/2025/12/30/jaden-ivey-pistons-nba-trade-dea
 **Tari Eason’s randomness and versatility power Rockets' starting lineup**\
 `Houston has won three straight since Eason was inserted into the starting lineup, putting up eye-popping numbers in the process.`\
 https://nytimes.com/athletic/6928255/2025/12/30/rockets-tari-eason-starting-lineup/
-
-**Rangers midseason report: MVP, most improved and more awards**\
-`Halfway through the 2025-26 NHL season, let's dissect what's happened to the Rangers so far and size up what’s still to come.`\
-https://nytimes.com/athletic/6926873/2025/12/30/rangers-midseason-report-cards-2025-26/
 
