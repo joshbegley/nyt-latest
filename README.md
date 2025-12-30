@@ -1,3 +1,7 @@
+**Clemson parts ways with OC Garrett Riley and safeties coach Mickey Conn**\
+`Clemson finished 7-6, the program's first six-loss season since 2010.`\
+https://nytimes.com/athletic/6927669/2025/12/29/clemson-parts-ways-garrett-riley/
+
 **How to watch Panthers vs. Buccaneers: Time, TV, streaming**\
 `Find out how to watch the Carolina Panthers play the Tampa Bay Buccaneers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6927753/2025/12/29/panthers-vs-buccaneers-stream-how-to-watch-jan-3/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6927465/2025/12/29/jonathan-gannon-cardinals-head-c
 **Russia Threatens to Harden Its Stance on Ukraine**\
 `Plus, food trends for 2026. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2025/12/29/briefing/russia-venezuela-rfk.html
-
-**Wiegman, England women's team lead New Year Honours List**\
-`The coach and members of the England women's rugby team were also recognised after their World Cup win in the summer. `\
-https://nytimes.com/athletic/6925242/2025/12/29/new-year-honours-list-2026-wiegman/
 
