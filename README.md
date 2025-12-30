@@ -1,3 +1,7 @@
+**Despite Differences, Trump and Netanyahu Present United Front**\
+`The American and Israeli leaders showed few signs of disagreement after meeting in Florida, giving no public indication of their growing strains over Gaza, Syria and other issues.`\
+https://nytimes.com/2025/12/29/us/politics/trump-netanyahu-israel-meeting.html
+
 **Democrats Aim to Spotlight Republican Efforts to Rewrite the Jan. 6 Capitol Riot**\
 `On the fifth anniversary of the attack, which falls next Tuesday, Democrats plan to hold an informal hearing to review President Trump’s clemency for the rioters and G.O.P attempts to sanitize the event.`\
 https://nytimes.com/2025/12/29/us/politics/jan-6-anniversary-trump.html
@@ -15,7 +19,7 @@ https://nytimes.com/athletic/6927154/2025/12/29/nascar-denny-hamlin-father-denni
 https://nytimes.com/2025/12/29/nyregion/nyc-takes-over-maimonides.html
 
 **Trump and Netanyahu Present United Front During Meeting**\
-`President Trump and Prime Minister Benjamin Netanyahu of Israel lavished each other with praise during their meeting on Monday. The two discussed Gaza’s reconstruction. Netanyahu also gave Trump the Israel Prize, the country’s highest cultural honor.`\
+`President Trump and Prime Minister Benjamin Netanyahu of Israel lavished each other with praise during their meeting on Monday. The two discussed Gaza’s reconstruction. Mr. Netanyahu also gave Mr. Trump the Israel Prize, the country’s highest cultural honor.`\
 https://nytimes.com/video/us/politics/100000010613968/trump-netanyahu-israel-pardon.html
 
 **Cardinals' Jonathan Gannon 'feels good' about potential return as coach**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6925242/2025/12/29/new-year-honours-list-2026-wiegm
 **Idris Elba and Cynthia Erivo Make King Charles’s New Year Honors List**\
 `Mr. Elba received a knighthood and Ms. Erivo was also honored in an annual British tradition celebrating professional excellence and community service.`\
 https://nytimes.com/2025/12/29/world/europe/idris-elba-cynthia-erivo-king-charles-honors.html
-
-**Former Tottenham Hotspur chairman Daniel Levy awarded CBE in New Year Honours list**\
-`Levy has been given the honour for 'services to charity and the community in Tottenham'`\
-https://nytimes.com/athletic/6927006/2025/12/29/daniel-levy-cbe-tottenham/
 
