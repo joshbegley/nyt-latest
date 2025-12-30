@@ -2,7 +2,7 @@
 `The east African side did not win a game in the group stage but will face hosts Morocco in the round of 16 on Sunday. `\
 https://nytimes.com/athletic/6929785/2025/12/30/tanzania-afcon-knockout-stages/
 
-**The Briefing: Chelsea 2 Bournemouth 2 - Fans show frustration, costly Caicedo booking**\
+**The Briefing: Chelsea 2 Bournemouth 2 – Fans show frustration, costly Caicedo booking**\
 `Chelsea ended 2025 on a sour note, drawing at home to out-of-sorts Bournemouth to finish the year on a run of one win in seven league games`\
 https://nytimes.com/athletic/6922662/2025/12/30/chelsea-2-bournemouth-2/
 
