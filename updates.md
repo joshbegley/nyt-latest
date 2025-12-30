@@ -1,3 +1,19 @@
+**6 Takeaways on the Unwinding U.S.-Ukraine Alliance**\
+`A Times investigation reveals the inside story of the Trump administration’s chaotic push for a peace deal and its erratic role in the war.`\
+https://nytimes.com/2025/12/30/world/europe/ukraine-us-russia-takeaways.html
+
+**Duke lands 5-star PG Deron Rippey Jr.: What this means for Blue Devils**\
+`Rippey is an explosive lead guard who thrives on applying relentless ball pressure and making opposing guards uncomfortable.`\
+https://nytimes.com/athletic/6927402/2025/12/30/deron-rippey-duke-college-basketball-commitment/
+
+**Gaza Aid Groups Face Suspensions Under New Israeli Rules**\
+`The organizations, including Doctors Without Borders, have resisted providing Israel with detailed information about their workers.`\
+https://nytimes.com/2025/12/30/world/middleeast/gaza-aid-group-suspensions-israel.html
+
+**The Separation: Inside the Unraveling U.S.-Ukraine Partnership**\
+`As President Trump sought a peace deal and Vladimir V. Putin sought victory, factions in the White House and Pentagon bled the Ukrainian war effort.`\
+https://nytimes.com/interactive/2025/12/30/world/europe/ukraine-war-us-russia.html
+
 **Overlooked Stories**\
 `We look at some of our best stories of 2025 that you might have missed in the year’s avalanche of news.`\
 https://nytimes.com/2025/12/30/world/overlooked-stories-iran-protests-venezuela.html
