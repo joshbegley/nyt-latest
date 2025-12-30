@@ -1,3 +1,23 @@
+**In Lagos, December Is Time to Get Down and ‘Detty’**\
+`Detty December means a month of “back to back to back” partying in Nigeria’s megacity, both for locals and visiting members of the diaspora. Bring your stamina, dancing shoes and wads of cash.`\
+https://nytimes.com/2025/12/30/world/africa/detty-december-lagos-nigeria.html
+
+**Connections: Sports Edition Coach: Hints for Dec. 30, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6928103/2025/12/30/connections-sports-edition-hints-for-dec-30-2025/
+
+**The Tiny Japanese Island on the Front Lines of China’s Feud**\
+`Yonaguni, a tiny Japanese island near Taiwan, is getting soldiers, radar and missiles. As China’s dispute with Tokyo escalates, some residents are worried.`\
+https://nytimes.com/2025/12/30/world/asia/japan-china-island-yonaguni.html
+
+**Corrections: Dec. 30, 2025**\
+`Corrections that appeared in print on Tuesday, Dec. 30, 2025.`\
+https://nytimes.com/2025/12/30/pageoneplus/corrections-dec-30-2025.html
+
+**Quote of the Day: Green Marvel or Ghost City? Deciding the Fate of Nusantara.**\
+`Quotation of the Day for Tuesday, December 30, 2025.`\
+https://nytimes.com/2025/12/29/pageoneplus/quote-of-the-day-green-marvel-or-ghost-city-deciding-the-fate-of-nusantara.html
+
 **Blue Jackets defy built-in excuses, finish strong again to beat Senators**\
 `After a travel nightmare and missing a veteran center, the Blue Jackets stepped up in the third period for the third straight game.`\
 https://nytimes.com/athletic/6928040/2025/12/29/blue-jackets-sillinger-monahan-travel-senators/

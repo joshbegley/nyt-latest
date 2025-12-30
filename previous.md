@@ -1,3 +1,23 @@
+**In Lagos, December Is Time to Get Down and ‘Detty’**\
+`Detty December means a month of “back to back to back” partying in Nigeria’s megacity, both for locals and visiting members of the diaspora. Bring your stamina, dancing shoes and wads of cash.`\
+https://nytimes.com/2025/12/30/world/africa/detty-december-lagos-nigeria.html
+
+**Connections: Sports Edition Coach: Hints for Dec. 30, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6928103/2025/12/30/connections-sports-edition-hints-for-dec-30-2025/
+
+**The Tiny Japanese Island on the Front Lines of China’s Feud**\
+`Yonaguni, a tiny Japanese island near Taiwan, is getting soldiers, radar and missiles. As China’s dispute with Tokyo escalates, some residents are worried.`\
+https://nytimes.com/2025/12/30/world/asia/japan-china-island-yonaguni.html
+
+**Corrections: Dec. 30, 2025**\
+`Corrections that appeared in print on Tuesday, Dec. 30, 2025.`\
+https://nytimes.com/2025/12/30/pageoneplus/corrections-dec-30-2025.html
+
+**Quote of the Day: Green Marvel or Ghost City? Deciding the Fate of Nusantara.**\
+`Quotation of the Day for Tuesday, December 30, 2025.`\
+https://nytimes.com/2025/12/29/pageoneplus/quote-of-the-day-green-marvel-or-ghost-city-deciding-the-fate-of-nusantara.html
+
 **Blue Jackets defy built-in excuses, finish strong again to beat Senators**\
 `After a travel nightmare and missing a veteran center, the Blue Jackets stepped up in the third period for the third straight game.`\
 https://nytimes.com/athletic/6928040/2025/12/29/blue-jackets-sillinger-monahan-travel-senators/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6928097/2025/12/29/buccaneers-panthers-nfc-south-co
 **C.I.A. Conducted Drone Strike on Port in Venezuela**\
 `The attack last week, on a dock purportedly used for shipping narcotics, did not kill anyone, people briefed on the operation said. But it was the first known U.S. operation inside Venezuela.`\
 https://nytimes.com/2025/12/29/us/politics/cia-drone-strike-venezuela.html
-
-**Full Time: Celebrating 2025 and looking to 2026**\
-`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
-https://nytimes.com/athletic/6928088/2025/12/29/2025-womens-soccer-review-full-time/
-
-**U.S. sues Virginia over tuition aid for unauthorized immigrants.**\
-`By Tim Balk`\
-https://nytimes.com/2025/12/29/us/politics/us-sues-virginia-tuition-immigrants.html
-
-**Five-star edge rusher DJ Jacobs commits to Ohio State, boosting 2027 class**\
-`The Buckeyes will have to keep Jacobs on board until signing day, and if so, they will have their first five-star edge rusher since 2021.`\
-https://nytimes.com/athletic/6928012/2025/12/29/dj-jacobs-ohio-state-commit-2027/
-
-**Floating Marker**\
-`Geoffrey Schorkopf and Will Eisenberg have their first crossword collaboration in The New York Times.`\
-https://nytimes.com/2025/12/29/crosswords/daily-puzzle-2025-12-30.html
-
-**In One Year, Trump’s War on Immigration Alters the Face of America**\
-`The crackdown and detentions swept from one coast to the other: day laborers in Los Angeles, a flower seller in Chicago, immigrants in New York courtrooms.`\
-https://nytimes.com/interactive/2025/12/29/nyregion/nyregionspecial/trump-immigration-crackdown-first-year.html
 
