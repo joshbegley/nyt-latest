@@ -1,3 +1,11 @@
+**Two overhead kicks in eight days: Which of El Kaabi's outrageous AFCON goals was better?**\
+`The Morocco striker stunned viewers with his acrobatic finish against Zambia, but he'd already done it once before at this tournament`\
+https://nytimes.com/athletic/6927688/2025/12/29/ayoub-el-kaabi-overhead-kicks-morocco-afcon/
+
+**U.S. Kills 2 in Strike in Pacific, as Trump Pressures Venezuela**\
+`The attack was the 30th announced by the U.S. military since early September. It came days after President Trump said the U.S. had struck a coastal site related to drugs and Venezuela.`\
+https://nytimes.com/2025/12/29/us/politics/pacific-trump-venezuela-boat-strike.html
+
 **U.S. Kills 2 Men in Strike in Pacific, as Trump Pressures Venezuela**\
 `The strike was the 30th announced by the U.S. military since early September. It came days after President Trump said the U.S. had struck a coastal site related to drugs and Venezuela.`\
 https://nytimes.com/2025/12/29/us/politics/pacific-trump-venezuela-boat-strike.html
