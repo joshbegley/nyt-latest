@@ -1,3 +1,7 @@
+**3 Hikers Are Found Dead on Mt. Baldy Amid ‘Extremely Dangerous’ Conditions, Sheriff Says**\
+`The authorities closed access to part of Mt. Baldy, the tallest peak in the San Gabriel Mountains in Southern California. They cited dangerous and unpredictable terrain and weather.`\
+https://nytimes.com/2025/12/30/us/hikers-dead-mount-baldy-california.html
+
 **Brighton's Hurzeler accuses officials of guesswork in West Ham penalty**\
 `Lewis Dunk was penalised for handball after referee Michael Salisbury had not awarded a penalty, but the VAR official intervened. `\
 https://nytimes.com/athletic/6930318/2025/12/30/brighton-hurzeler-handball-guesswork-west-ham/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/30/world/europe/ukraine-us-russia-takeaways.html
 **Duke lands 5-star PG Deron Rippey Jr.: What this means for Blue Devils**\
 `Rippey is an explosive lead guard who thrives on applying relentless ball pressure and making opposing guards uncomfortable.`\
 https://nytimes.com/athletic/6927402/2025/12/30/deron-rippey-duke-college-basketball-commitment/
-
-**Overlooked Stories**\
-`We look at some of our best stories of 2025 that you might have missed in the year’s avalanche of news.`\
-https://nytimes.com/2025/12/30/world/overlooked-stories-iran-protests-venezuela.html
 
