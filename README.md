@@ -1,3 +1,7 @@
+**Doc Rivers passes George Karl for sixth place on NBA's coaching wins list**\
+`To this point in his career, Rivers has compiled a 1,176-835 record and a .585 win percentage.`\
+https://nytimes.com/athletic/6927592/2025/12/29/doc-rivers-george-karl-nba-coaching-wins/
+
 **Nikola Jokić leaves Nuggets-Heat game with left knee injury**\
 `Jokić was initially ruled questionable to return before Denver announced he would miss the rest of the game.`\
 https://nytimes.com/athletic/6927926/2025/12/29/nikola-jokic-nuggets-left-knee-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6927688/2025/12/29/ayoub-el-kaabi-overhead-kicks-mo
 **U.S. Kills 2 in Strike in Pacific, as Trump Pressures Venezuela**\
 `The attack was the 30th announced by the U.S. military since early September. It came days after President Trump said the U.S. had struck a coastal site related to drugs and Venezuela.`\
 https://nytimes.com/2025/12/29/us/politics/pacific-trump-venezuela-boat-strike.html
-
-**Hundreds Sue Virginia Hospital and Executives Over Unneeded Surgeries**\
-`More than 500 women claimed that they had received unnecessary operations. Hospital leaders said they were not aware of a doctor’s misconduct.`\
-https://nytimes.com/2025/12/29/health/chesapeake-hospital-lawsuit-perwaiz.html
 
