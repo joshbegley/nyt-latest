@@ -1,3 +1,7 @@
+**U.S. sues Virginia over tuition aid for unauthorized immigrants.**\
+`By Tim Balk`\
+https://nytimes.com/live/2025/12/29/us/trump-news/us-sues-virginia-tuition-immigrants
+
 **Five-star edge rusher DJ Jacobs commits to Ohio State, boosting 2027 class**\
 `The Buckeye will have to keep Jacobs on board until signing day, and if so, they will have their first five-star edge rusher since 2021.`\
 https://nytimes.com/athletic/6928012/2025/12/29/dj-jacobs-ohio-state-commit-2027/
@@ -11,7 +15,7 @@ https://nytimes.com/2025/12/29/crosswords/daily-puzzle-2025-12-30.html
 https://nytimes.com/interactive/2025/12/29/nyregion/nyregionspecial/trump-immigration-crackdown-first-year.html
 
 **Why This Glacier Worries Scientists the Most**\
-`Our climate reporter Raymond Zhong describes how the fast-melting Thwaites Glacier of Antarctica, which we’re visiting, is like a cork in a bottle: If it starts to really disintegrate, many more glaciers around it could do the same, with major consequences for sea levels.`\
+`Our climate reporter Raymond Zhong describes how the fast-melting Thwaites Glacier of Antarctica, is like a cork in a bottle: If it starts to really disintegrate, many more glaciers around it could do the same, with major consequences for sea levels.`\
 https://nytimes.com/video/climate/100000010542258/why-this-glacier-worries-scientists-the-most.html
 
 **Doc Rivers passes George Karl for sixth place on NBA's coaching wins list**\
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/climate/antarctica-thwaites-glacier/packing-conver
 **Hurricanes' Pyotr Kochetkov to have surgery, 'probably' out for season**\
 `“It's (the injury) he's been dealing with all year,” Hurricanes coach Rod Brind'Amour told reporters on Monday.`\
 https://nytimes.com/athletic/6927863/2025/12/29/pyotr-kochetkov-canes-injury-season-ending-surgery/
-
-**How to watch Seahawks vs. 49ers: Time, TV, streaming**\
-`Find out how to watch the Seattle Seahawks play the San Francisco 49ers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6927878/2025/12/29/seahawks-vs-49ers-stream-how-to-watch-jan-3/
 

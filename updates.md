@@ -1,3 +1,11 @@
+**U.S. sues Virginia over tuition aid for unauthorized immigrants.**\
+`By Tim Balk`\
+https://nytimes.com/live/2025/12/29/us/trump-news/us-sues-virginia-tuition-immigrants
+
+**Why This Glacier Worries Scientists the Most**\
+`Our climate reporter Raymond Zhong describes how the fast-melting Thwaites Glacier of Antarctica, is like a cork in a bottle: If it starts to really disintegrate, many more glaciers around it could do the same, with major consequences for sea levels.`\
+https://nytimes.com/video/climate/100000010542258/why-this-glacier-worries-scientists-the-most.html
+
 **Five-star edge rusher DJ Jacobs commits to Ohio State, boosting 2027 class**\
 `The Buckeye will have to keep Jacobs on board until signing day, and if so, they will have their first five-star edge rusher since 2021.`\
 https://nytimes.com/athletic/6928012/2025/12/29/dj-jacobs-ohio-state-commit-2027/
