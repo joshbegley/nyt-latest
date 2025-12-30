@@ -1,3 +1,15 @@
+**How Maple Leafs are dealing with a rash of new injuries**\
+`Matthews will be a game-time decision versus Devils after blocking a shot during the second period of Sunday's loss against the Red Wings`\
+https://nytimes.com/athletic/6929642/2025/12/30/maple-leafs-injury-auston-matthews-chris-tanev-dakota-joshua/
+
+**Uganda 1 Nigeria 3 - Why did Uganda need three 'keepers? Bassey's passing perfect? How did backups do?**\
+`Our writers break down the talking points as Nigeria finished the group stage on maximum points.`\
+https://nytimes.com/athletic/6922665/2025/12/30/uganda-nigeria-onyedika-bassey/
+
+**Blue Jackets' trade demands for Yegor Chinakhov changed in mid-December, GM says**\
+`Trading to acquire Mason Marchment from the Seattle Kraken earlier this month changed the situation, Don Waddell said.`\
+https://nytimes.com/athletic/6928893/2025/12/30/blue-jackets-yegor-chinakhov-trade-demands/
+
 **Fulham have £26m bid rejected for U.S. striker Pepi**\
 `The 22-year-old has scored 10 goals for PSV this season `\
 https://nytimes.com/athletic/6929540/2025/12/30/ricardo-pepi-transfer-fulham-usmnt/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6929494/2025/12/30/stefon-diggs-felony-charges-stra
 **Colts to start Riley Leonard over Philip Rivers in season finale: Sources**\
 `Leonard will be making the first start of his NFL career. `\
 https://nytimes.com/athletic/6929185/2025/12/30/colts-philip-rivers-riley-leonard-texans/
-
-**Protests Over Sinking Economy in Iran Spread to Universities**\
-`Iranian leaders face pressure over a currency collapse and threats of possible military strikes from Israel and the United States over Tehran’s nuclear activities.`\
-https://nytimes.com/2025/12/30/world/middleeast/iran-protests-currency-inflation-universities.html
-
-**Dolores, Crevette, Zimmi’s and Markette Reviewed**\
-`The latest batch of brief starred restaurant reviews, from our contributing critics Mahira Rivers and Ryan Sutton.`\
-https://nytimes.com/2025/12/30/dining/review-dolores-crevette-zimmis-markette.html
-
-**Drew Brees highlights Hall of Fame modern-era player finalists**\
-`Wide receiver Larry Fitzgerald, running back Frank Gore and tight end Jason Witten join Brees as first-year-eligible finalists.`\
-https://nytimes.com/athletic/6929537/2025/12/30/drew-brees-hall-of-fame-finalists-nfl/
 
