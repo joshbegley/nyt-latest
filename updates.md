@@ -1,3 +1,15 @@
+**The Briefing: Arsenal 4 Aston Villa 1 - Where does this leave title race? Unplayable Odegaard? Missed chance for Villa?**\
+`Our writers break down the action from Arsenal's victory in this top-of-the-table clash at the Emirates.`\
+https://nytimes.com/athletic/6922663/2025/12/30/arsenal-aston-villa-odegaard-emery/
+
+**Mother Is Charged With Murder in Death of 1-Year-Old Son**\
+`The baby was found unresponsive in a Queens home, where the mother had tried to kill herself, a police report said.`\
+https://nytimes.com/2025/12/30/nyregion/mother-baby-murder-charged-queens.html
+
+**The Briefing: Man Utd 1 Wolves 1 - Boos at Old Trafford as normal service is resumed for Amorim's side**\
+`United were held to a draw by the Premier League's bottom-placed side in an embarrassing display for Amorim's men`\
+https://nytimes.com/athletic/6922664/2025/12/30/man-utd-1-wolves-1-amorim-premier-league/
+
 **The Briefing: Chelsea 2 Bournemouth 2 – Fans show frustration, costly Caicedo booking**\
 `Chelsea ended 2025 on a sour note, drawing at home to out-of-sorts Bournemouth to finish the year on a run of one win in seven league games`\
 https://nytimes.com/athletic/6922662/2025/12/30/chelsea-2-bournemouth-2/

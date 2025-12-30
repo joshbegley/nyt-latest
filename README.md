@@ -6,7 +6,7 @@ https://nytimes.com/athletic/6922663/2025/12/30/arsenal-aston-villa-odegaard-eme
 `The baby was found unresponsive in a Queens home, where the mother had tried to kill herself, a police report said.`\
 https://nytimes.com/2025/12/30/nyregion/mother-baby-murder-charged-queens.html
 
-**The Briefing: Man Utd 1 Wolves 1 - Boos at Old Trafford as normal service is resumed for Amorim's side**\
+**The Briefing: Man Utd 1 Wolves 1 – Boos at Old Trafford as Amorim's side miss chance to go fourth**\
 `United were held to a draw by the Premier League's bottom-placed side in an embarrassing display for Amorim's men`\
 https://nytimes.com/athletic/6922664/2025/12/30/man-utd-1-wolves-1-amorim-premier-league/
 

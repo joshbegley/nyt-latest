@@ -1,3 +1,15 @@
+**The Briefing: Arsenal 4 Aston Villa 1 - Where does this leave title race? Unplayable Odegaard? Missed chance for Villa?**\
+`Our writers break down the action from Arsenal's victory in this top-of-the-table clash at the Emirates.`\
+https://nytimes.com/athletic/6922663/2025/12/30/arsenal-aston-villa-odegaard-emery/
+
+**Mother Is Charged With Murder in Death of 1-Year-Old Son**\
+`The baby was found unresponsive in a Queens home, where the mother had tried to kill herself, a police report said.`\
+https://nytimes.com/2025/12/30/nyregion/mother-baby-murder-charged-queens.html
+
+**The Briefing: Man Utd 1 Wolves 1 - Boos at Old Trafford as normal service is resumed for Amorim's side**\
+`United were held to a draw by the Premier League's bottom-placed side in an embarrassing display for Amorim's men`\
+https://nytimes.com/athletic/6922664/2025/12/30/man-utd-1-wolves-1-amorim-premier-league/
+
 **Tanzania reach AFCON knockout stages for first time ever despite CAF confusion**\
 `The east African side did not win a game in the group stage but will face hosts Morocco in the round of 16 on Sunday. `\
 https://nytimes.com/athletic/6929785/2025/12/30/tanzania-afcon-knockout-stages/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/12/30/world/overlooked-stories-iran-protests-venezuela.
 **Gaza Aid Groups Face Suspensions Under New Israeli Rules**\
 `The organizations, including Doctors Without Borders, have resisted providing Israel with detailed information about their workers.`\
 https://nytimes.com/2025/12/30/world/middleeast/gaza-aid-group-suspensions-israel.html
-
-**Until Saturday: CFB's biggest 2025 stories**\
-`Until Saturday is The Athletic's free college football newsletter.`\
-https://nytimes.com/athletic/6930118/2025/12/30/college-football-2025-review-until-saturday/
-
-**Angels to sign Kirby Yates, adding another veteran to their bullpen: Source**\
-`The 38-year-old Yates is coming off a disappointing season with the Los Angeles Dodgers.`\
-https://nytimes.com/athletic/6930037/2025/12/30/angels-kirby-yates-veteran-dodgers/
-
-**NCAA president: Players who signed NBA contracts aren't eligible for college hoops**\
-`Coaches and fans alike have been searching for clarity after a 2023 NBA Draft pick signed with Baylor on Christmas Eve.`\
-https://nytimes.com/athletic/6929930/2025/12/30/ncaa-nba-eligibility-charlie-baker/
 
