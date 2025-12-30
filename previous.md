@@ -1,3 +1,7 @@
+**Floating Marker**\
+`Geoffrey Schorkopf and Will Eisenberg have their first crossword collaboration in The New York Times.`\
+https://nytimes.com/2025/12/29/crosswords/daily-puzzle-2025-12-30.html
+
 **In One Year, Trump’s War on Immigration Alters the Face of America**\
 `The crackdown and detentions swept from one coast to the other: day laborers in Los Angeles, a flower seller in Chicago, immigrants in New York courtrooms.`\
 https://nytimes.com/interactive/2025/12/29/nyregion/nyregionspecial/trump-immigration-crackdown-first-year.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6927878/2025/12/29/seahawks-vs-49ers-stream-how-to-
 **Baylor's Drew defends signing NBA draftee amid criticism**\
 `Drew said the Bears are embracing the modern era of college basketball while prioritizing what’s best for their program.`\
 https://nytimes.com/athletic/6927616/2025/12/29/scott-drew-james-nnaji-baylor/
-
-**An Anti-A.I. Movement Is Coming. Which Party Will Lead It?**\
-`The technology Is ruining much of what makes life worth living.`\
-https://nytimes.com/2025/12/29/opinion/ai-democracy.html
 
