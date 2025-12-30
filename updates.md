@@ -1,3 +1,11 @@
+**It's Olympic hockey roster week: Let's get you prepped**\
+`Plus: The NHL's trade deadline isn't actually a deadline. Wait, what?`\
+https://nytimes.com/athletic/6929273/2025/12/30/nhl-olympics-rosters-time-reveal-red-light/
+
+**Charlie Weis Jr. details 'strange' month coaching Ole Miss while prepping to join LSU**\
+`“It was it was a really hard decision,” Weis said. “But at the end of the day, I owe a lot to Coach Kiffin."`\
+https://nytimes.com/athletic/6929224/2025/12/30/lsu-ole-miss-charlie-weis-lane-kiffin/
+
 **For the Bucks, winning two in a row marks real progress**\
 `The Bucks won two games in a row for the first time since October. `\
 https://nytimes.com/athletic/6928164/2025/12/30/giannis-antetokounmpo-bucks-win-two-straight/
