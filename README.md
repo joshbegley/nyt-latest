@@ -1,3 +1,7 @@
+**Hurricanes' Pyotr Kochetkov to have surgery, 'probably' out for the season**\
+`“It's (the injury) he's been dealing with all year,” Hurricanes coach Rod Brind'Amour told reporters on Monday.`\
+https://nytimes.com/athletic/6927863/2025/12/29/pyotr-kochetkov-canes-injury-season-ending-surgery/
+
 **How to watch Seahawks vs. 49ers: Time, TV, streaming**\
 `Find out how to watch the Seattle Seahawks play the San Francisco 49ers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6927878/2025/12/29/seahawks-vs-49ers-stream-how-to-watch-jan-3/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6927753/2025/12/29/how-to-watch-panthers-vs-buccane
 **Despite Differences, Trump and Netanyahu Present United Front**\
 `The American and Israeli leaders showed few signs of disagreement after meeting in Florida, giving no public indication of their growing strains over Gaza, Syria and other issues.`\
 https://nytimes.com/2025/12/29/us/politics/trump-netanyahu-israel-meeting.html
-
-**Democrats Aim to Spotlight Republican Efforts to Rewrite the Jan. 6 Capitol Riot**\
-`On the fifth anniversary of the attack, which falls next Tuesday, Democrats plan to hold an informal hearing to review President Trump’s clemency for the rioters and G.O.P attempts to sanitize the event.`\
-https://nytimes.com/2025/12/29/us/politics/jan-6-anniversary-trump.html
 
