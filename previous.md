@@ -6,8 +6,8 @@ https://nytimes.com/2025/12/30/us/hikers-dead-mount-baldy-california.html
 `Lewis Dunk was penalised for handball after referee Michael Salisbury had not awarded a penalty, but the VAR official intervened. `\
 https://nytimes.com/athletic/6930318/2025/12/30/brighton-hurzeler-handball-guesswork-west-ham/
 
-**The Briefing: Arsenal 4 Aston Villa 1 - Where does this leave title race? Unplayable Odegaard? Missed chance for Villa?**\
-`Our writers break down the action from Arsenal's victory in this top-of-the-table clash at the Emirates.`\
+**The Briefing: Arsenal 4 Aston Villa 1 – Where does this leave title race? Unplayable Odegaard? Missed chance for Villa?**\
+`Our writers break down the action from Arsenal's victory in this top-of-the-table clash at the Emirates`\
 https://nytimes.com/athletic/6922663/2025/12/30/arsenal-aston-villa-odegaard-emery/
 
 **Mother Is Charged With Murder in Death of 1-Year-Old Son**\
