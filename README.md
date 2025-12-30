@@ -1,3 +1,11 @@
+**The New York Times in Print for Tuesday, Dec. 30, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/12/30/todays-new-york-times
+
+**To Love, to Honor, to Exist: Palestinian Artists on War and Loss**\
+`Times Opinion asked eight working Palestinian artists about the role of art in the war in Gaza.`\
+https://nytimes.com/interactive/2025/12/30/opinion/palestinians-gaza-war-artists.html
+
 **Manchester United's 2025: Brilliant Bruno, Bilbao boredom and two magical Maguire moments**\
 `There have been signs of progress at Old Trafford in recent months but the past 12 months has been hit and miss for Ruben Amorim's team`\
 https://nytimes.com/athletic/6839512/2025/12/30/manchester-united-2025-amorim-bruno-maguire/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6923198/2025/12/30/reece-james-chelsea-premier-leag
 **Inside Newcastle Q&A: Is Howe under pressure? Plans for the January transfer window?**\
 `Our correspondent answers your pressing questions about the club following a poor run of results`\
 https://nytimes.com/athletic/6925020/2025/12/30/newcastle-premier-league-eddie-howe/
-
-**Dear fellow Forest fans, there's no excuse for poverty chanting**\
-`The other team aren't the enemy - and supporters should think about that before weaponising poverty in the name of 'banter'`\
-https://nytimes.com/athletic/6925464/2025/12/30/nottingham-forest-poverty-chanting-premier-league/
-
-**AFCON, Mbekezeli Mbokazi and the flow of talent out of South Africa**\
-`Highly rated centre-back Mbokazi has agreed a move to Chicago Fire. What does it say about the current state of South African football?`\
-https://nytimes.com/athletic/6926876/2025/12/30/south-africa-mbokazi-afcon-motsepe-broos/
 
