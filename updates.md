@@ -1,3 +1,7 @@
+**China Holds Live-Fire Drills Around Taiwan**\
+`Beijing mobilized naval and air forces in its first major military exercise on all sides of Taiwan since April, state media showed.`\
+https://nytimes.com/video/world/asia/100000010615009/china-taiwan-military-drills.html
+
 **Your Wait for These Space Events Is About to Pay Off**\
 `In 2026, there will be journeys to the moon and Mars, new visions of the cosmos and a solar eclipse that might be worth traveling for.`\
 https://nytimes.com/2025/12/30/science/space-nasa-spacex-blue-origin-astronomy.html

@@ -1,3 +1,7 @@
+**China Holds Live-Fire Drills Around Taiwan**\
+`Beijing mobilized naval and air forces in its first major military exercise on all sides of Taiwan since April, state media showed.`\
+https://nytimes.com/video/world/asia/100000010615009/china-taiwan-military-drills.html
+
 **Your Wait for These Space Events Is About to Pay Off**\
 `In 2026, there will be journeys to the moon and Mars, new visions of the cosmos and a solar eclipse that might be worth traveling for.`\
 https://nytimes.com/2025/12/30/science/space-nasa-spacex-blue-origin-astronomy.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6862845/2025/12/30/liverpool-review-2025/
 **Tottenham's 2025: A trophy, turmoil and a horrible home record**\
 `It has been quite a year for all involved at Spurs... who knows what 2026 will bring them?`\
 https://nytimes.com/athletic/6907196/2025/12/30/tottenham-2025-review-trophy-thomas-frank/
-
-**Bijan Robinson's career night leads Falcons to upset victory over Rams: Takeaways**\
-`With the loss, the Rams need the Seahawks to defeat the 49ers in Week 18 and secure a win over the Cardinals to earn the NFC's No. 5 seed.`\
-https://nytimes.com/athletic/6928052/2025/12/30/falcons-rams-score-result-takeaways-mnf/
 
