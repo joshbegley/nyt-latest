@@ -1,3 +1,7 @@
+**McKenna, Hagens break out, Jiricek front-runner for top D: World Juniors Day 4**\
+`Day 4 at the World Juniors was a big one, with arguably the tournament's top six teams all in action across four games.`\
+https://nytimes.com/athletic/6920672/2025/12/29/gavin-mckenna-world-juniors-canada-usa-adam-jiricek/
+
 **Falcons win over Rams complicates NFC South race between Buccaneers and Panthers**\
 `A win by the Panthers over the Bucs on Saturday clinches the NFC South. If the Bucs win, the Falcons-Saints game on Sunday comes into play.`\
 https://nytimes.com/athletic/6928097/2025/12/29/buccaneers-panthers-nfc-south-complicated-falcons/
