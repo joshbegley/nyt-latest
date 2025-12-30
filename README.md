@@ -1,40 +1,40 @@
-**MLB's Strange But True Player of the Year? Paul Skenes for the win!**\
-`When the unhittable ace of the Pirates takes the mound, amazing things happen. It would be cool if winning was one of those things. `\
-https://nytimes.com/athletic/6928550/2025/12/30/paul-skenes-2025-season-pirates/
+**Vanderbilt’s greatest season will end with memories, the best and worst kind**\
+`Doster had 1,621 rushing yards and 3,636 all-purpose in his first three years and was looking forward to a big senior season.`\
+https://nytimes.com/athletic/6923152/2025/12/30/vanderbilt-football-reliaquest-bowl-tampa-kwane-doster/
 
-**Overlooked Stories**\
-`We look at some of our best stories from 2025 that Times editors thought deserved more attention.`\
-https://nytimes.com/2025/12/30/briefing/overlooked-stories.html
+**Pistons mailbag: Is deadline approach shifting? What's the plan for Jaden Ivey?**\
+`Surprisingly, the Pistons find themselves atop the East, but don't expect their thinking ahead of Feb. 5 to change.`\
+https://nytimes.com/athletic/6922269/2025/12/30/jaden-ivey-pistons-nba-trade-deadline-mailbag/
 
-**49ers offense sizzles while Seahawks' Sam Darnold sputters: Week 17 film review**\
-`Also, Malik Willis shows he has starting quarterback potential while filling in for the Packers.`\
-https://nytimes.com/athletic/6922716/2025/12/30/49ers-sam-darnold-malik-willis-film-review/
+**Tari Eason’s randomness and versatility power Rockets' starting lineup**\
+`Houston has won three straight since Eason was inserted into the starting lineup, putting up eye-popping numbers in the process.`\
+https://nytimes.com/athletic/6928255/2025/12/30/rockets-tari-eason-starting-lineup/
 
-**TAFC – Gianni Infantino, World Cup tickets and Christian Pulisic: Plus: AFCON's goals show**\
-`Time to scratch off some more squares from your World Cup bingo card. Caoimhe O'Neill is here to update you on the latest`\
-https://nytimes.com/athletic/6890776/2025/12/30/infantino-tickets-pulisic-afcon-tafc/
+**Rangers midseason report: MVP, most improved and more awards**\
+`Halfway through the 2025-26 NHL season, let's dissect what's happened to the Rangers so far and size up what’s still to come.`\
+https://nytimes.com/athletic/6926873/2025/12/30/rangers-midseason-report-cards-2025-26/
 
-**The Pulse: The NFL spits out beautiful chaos, again**\
-`The Athletic has live coverage of Bears vs.`\
-https://nytimes.com/athletic/6927140/2025/12/30/falcons-rams-nfl-playoffs-the-pulse/
+**Boosters and oil money get credit for Texas Tech's CFP run. But don't forget Joey McGuire**\
+`McGuire embraced Texas Tech — and Lubbock, and West Texas — for exactly what it is, and steered it somewhere it’s never been.`\
+https://nytimes.com/athletic/6927673/2025/12/30/texas-tech-football-joey-mcguire/
 
-**Palace reach agreement with Tottenham over Johnson deal**\
-`A fee approaching £35million is in place between the clubs for Johnson, who also has interest from other suitors.`\
-https://nytimes.com/athletic/6899543/2025/12/30/crystal-palace-brennan-johnson-tottenham-transfer/
+**Where Power 4 teams stand at quarterback heading into transfer portal season**\
+`The transfer portal opens on Friday, and each Power 4 program enters the window with varying degrees of need at quarterback.`\
+https://nytimes.com/athletic/6921794/2025/12/30/college-football-transfer-portal-quarterbacks-4/
 
-**George and Amal Clooney Become French Citizens**\
-`Mr. Clooney, who owns a farmhouse in France, has said that living there enabled him and his wife, a human rights lawyer, to pursue a quieter existence with their children.`\
-https://nytimes.com/2025/12/30/world/europe/george-clooney-amal-french-citizenship.html
+**Victor Johansson's World Juniors play is a step toward a possible Leafs career**\
+`The Leafs don't have anyone quite like the young Swedish defenceman in their prospect cupboard.`\
+https://nytimes.com/athletic/6926897/2025/12/30/maple-leafs-victor-johansson-world-juniors/
 
-**Liverpool part company with set piece coach Aaron Briggs**\
-`Set pieces have been an area of glaring weakness for Liverpool so far this season and the decision was taken that a change was required.`\
-https://nytimes.com/athletic/6928593/2025/12/30/liverpool-set-piece-coach-aaron-briggs/
+**Why Georgia hasn't slipped amid college football's changes — it starts with Kirby Smart**\
+`Eleven months ago, Smart’s program seemed to be falling back to the pack. Now, it's a championship favorite.`\
+https://nytimes.com/athletic/6925176/2025/12/30/georgia-kirby-smart-college-football-playoff/
 
-**The most impactful sports TV studio hosts of the 21st century**\
-`As the first quarter of the 21st century comes to a close, here are the top sports TV studio hosts of the last 25 years.`\
-https://nytimes.com/athletic/6591954/2025/12/30/most-impactful-studio-hosts-21st-century-list/
+**Cleveland's meh year in review: The top 10 sports stories in 2025**\
+`The Cavs collapsed, the Guardians were scandalous and the Browns were the Browns, but there were happy stories, starting with Bernie Kosar.`\
+https://nytimes.com/athletic/6916562/2025/12/30/cleveland-year-in-review-top-10-sports-stories/
 
-**What Caleb Williams’ quest for 4,000 yards means for the Bears**\
-`For the Bears, everything with quarterback history is relative. Still, Williams' bid to claim an elusive passing record has meaning.`\
-https://nytimes.com/athletic/6927413/2025/12/30/caleb-williams-bears-passing-franchise-record/
+**Wild's Marcus Johansson hopes for Olympic nod after four-point night: takeaways**\
+`Johansson, who has had plenty of international success in the past, is making a strong case to play for Sweden's Olympic team.`\
+https://nytimes.com/athletic/6928037/2025/12/30/wild-marcus-johansson-olympics-four-point-night/
 

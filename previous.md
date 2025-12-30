@@ -1,3 +1,7 @@
+**MLB's Strange But True Player of the Year? Paul Skenes for the win!**\
+`When the unhittable ace of the Pirates takes the mound, amazing things happen. It would be cool if winning was one of those things. `\
+https://nytimes.com/athletic/6928550/2025/12/30/paul-skenes-2025-season-pirates/
+
 **Overlooked Stories**\
 `We look at some of our best stories from 2025 that Times editors thought deserved more attention.`\
 https://nytimes.com/2025/12/30/briefing/overlooked-stories.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6591954/2025/12/30/most-impactful-studio-hosts-21st
 **What Caleb Williams’ quest for 4,000 yards means for the Bears**\
 `For the Bears, everything with quarterback history is relative. Still, Williams' bid to claim an elusive passing record has meaning.`\
 https://nytimes.com/athletic/6927413/2025/12/30/caleb-williams-bears-passing-franchise-record/
-
-**The case for meaningless CFB bowl games: Remember, we are all sickos at heart**\
-`A college football bowl game is the rare version of sports without pain. `\
-https://nytimes.com/athletic/6926904/2025/12/30/college-football-bowl-games-sports-fandom-happiness/
 

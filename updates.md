@@ -1,3 +1,7 @@
+**MLB's Strange But True Player of the Year? Paul Skenes for the win!**\
+`When the unhittable ace of the Pirates takes the mound, amazing things happen. It would be cool if winning was one of those things. `\
+https://nytimes.com/athletic/6928550/2025/12/30/paul-skenes-2025-season-pirates/
+
 **Overlooked Stories**\
 `We look at some of our best stories from 2025 that Times editors thought deserved more attention.`\
 https://nytimes.com/2025/12/30/briefing/overlooked-stories.html
