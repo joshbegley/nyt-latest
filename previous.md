@@ -1,3 +1,7 @@
+**TAFC – Gianni Infantino, World Cup tickets and Christian Pulisic: Plus: AFCON's goals show**\
+`Time to scratch off some more squares from your World Cup bingo card. Caoimhe O'Neill is here to update you on the latest`\
+https://nytimes.com/athletic/6890776/2025/12/30/gianni-infantino-world-cup-tickets-and-christian-pulisic-plus-afcons-goals-show/
+
 **The Pulse: The NFL spits out beautiful chaos, again**\
 `The Athletic has live coverage of Bears vs.`\
 https://nytimes.com/athletic/6927140/2025/12/30/falcons-rams-nfl-playoffs-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/30/world/middleeast/assad-regime-crimes-syria-docume
 **How the Assad Regime Covered Up Its Crimes: Key Takeaways**\
 `We documented how the dictator Bashar al-Assad and his henchmen conspired to hide evidence of torture and deaths of detainees during Syria’s long civil war.`\
 https://nytimes.com/2025/12/30/world/middleeast/assad-regime-crimes-syria-documents-takeaways.html
-
-**Sabres continue to show character, depth with ninth straight win: 5 thoughts**\
-`Buffalo is one win away from matching a franchise record and firmly back in the playoff hunt.`\
-https://nytimes.com/athletic/6928216/2025/12/30/sabres-depth-benson-kesselring-blues/
 

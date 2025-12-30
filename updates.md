@@ -1,3 +1,7 @@
+**TAFC – Gianni Infantino, World Cup tickets and Christian Pulisic: Plus: AFCON's goals show**\
+`Time to scratch off some more squares from your World Cup bingo card. Caoimhe O'Neill is here to update you on the latest`\
+https://nytimes.com/athletic/6890776/2025/12/30/gianni-infantino-world-cup-tickets-and-christian-pulisic-plus-afcons-goals-show/
+
 **The Pulse: The NFL spits out beautiful chaos, again**\
 `The Athletic has live coverage of Bears vs.`\
 https://nytimes.com/athletic/6927140/2025/12/30/falcons-rams-nfl-playoffs-the-pulse/
