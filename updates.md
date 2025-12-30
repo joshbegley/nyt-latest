@@ -1,3 +1,23 @@
+**2025 Was the Year of the Rotisserie Chicken**\
+`As food prices climb, a whole, glistening bird is especially attractive to restaurant owners and diners alike.`\
+https://nytimes.com/2025/12/30/dining/rotisserie-chicken-restaurants.html
+
+**Trump Upended the Federal Government. The Full Scope of the Impact Is Still Unclear.**\
+`President Trump achieved his goal of shrinking the work force. But many current and former officials say the government is less dependable and efficient than it was a year ago.`\
+https://nytimes.com/2025/12/30/us/politics/trump-federal-government-fallout.html
+
+**She Tried to Kill a President. He Loved Her Anyway.**\
+`A retired widower married Sara Jane Moore, who shot at President Ford in 1975. It tore his family apart.`\
+https://nytimes.com/2025/12/30/style/she-tried-to-kill-a-president-he-loved-her-anyway.html
+
+**The Bounce: Nikola Jokić's knee has us holding our breath. Plus, let's fix tanking**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/6926698/2025/12/30/nikola-jokic-knee-injury-tanking-nba-the-bounce/
+
+**Rice likely to miss Arsenal-Villa due to knee injury**\
+`The midfielder sustained the issue playing against Brighton on Saturday.`\
+https://nytimes.com/athletic/6929158/2025/12/30/declan-rice-arsenal-villa-injury/
+
 **Rain Expected to Soak Another Holiday in Los Angeles**\
 `After Christmas-week storms, two rounds of rainfall starting on New Year’s Eve could cause more flooding and mudslides.`\
 https://nytimes.com/2025/12/30/weather/rain-los-angeles-new-years.html
