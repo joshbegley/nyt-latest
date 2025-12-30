@@ -1,3 +1,15 @@
+**Christian McCaffrey, Trent Williams not practicing, George Kittle returns**\
+`McCaffrey is battling a stiff back, while Williams has a hamstring injury but has not been ruled out for Saturday's game against Seattle.`\
+https://nytimes.com/athletic/6930383/2025/12/30/christian-mccaffrey-george-kittle-trent-williams-49ers-injuries/
+
+**Scoop City: Most-clicked NFL stories from each month**\
+`Today and tomorrow are special, year-end editions of this newsletter. Plus: Jake Ciely shares his top five fantasy picks.`\
+https://nytimes.com/athletic/6930487/2025/12/30/most-clicked-nfl-stories-2025-scoop-city/
+
+**Rice could make Arsenal return against Bournemouth, Arteta says**\
+`The head coach said the swelling needs to "come right down" on the midfielder's knee after he picked up an injury against Brighton.`\
+https://nytimes.com/athletic/6930427/2025/12/30/declan-rice-arsenal-injury-bournemouth/
+
 **With Macklin Celebrini as their engine, Sharks are making a surprising playoff push**\
 `After six years and a brutal but necessary and rewarding bottoming out, San Jose is using the P-word and can do so with true conviction.`\
 https://nytimes.com/athletic/6929815/2025/12/30/macklin-celebrini-sharks-nhl-playoffs/

@@ -1,3 +1,15 @@
+**Christian McCaffrey, Trent Williams not practicing, George Kittle returns**\
+`McCaffrey is battling a stiff back, while Williams has a hamstring injury but has not been ruled out for Saturday's game against Seattle.`\
+https://nytimes.com/athletic/6930383/2025/12/30/christian-mccaffrey-george-kittle-trent-williams-49ers-injuries/
+
+**Scoop City: Most-clicked NFL stories from each month**\
+`Today and tomorrow are special, year-end editions of this newsletter. Plus: Jake Ciely shares his top five fantasy picks.`\
+https://nytimes.com/athletic/6930487/2025/12/30/most-clicked-nfl-stories-2025-scoop-city/
+
+**Rice could make Arsenal return against Bournemouth, Arteta says**\
+`The head coach said the swelling needs to "come right down" on the midfielder's knee after he picked up an injury against Brighton.`\
+https://nytimes.com/athletic/6930427/2025/12/30/declan-rice-arsenal-injury-bournemouth/
+
 **With Macklin Celebrini as their engine, Sharks are making a surprising playoff push**\
 `After six years and a brutal but necessary and rewarding bottoming out, San Jose is using the P-word and can do so with true conviction.`\
 https://nytimes.com/athletic/6929815/2025/12/30/macklin-celebrini-sharks-nhl-playoffs/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/12/30/us/hikers-dead-mount-baldy-california.html
 **Brighton's Hurzeler accuses officials of guesswork in West Ham penalty**\
 `Lewis Dunk was penalised for handball after referee Michael Salisbury had not awarded a penalty, but the VAR official intervened. `\
 https://nytimes.com/athletic/6930318/2025/12/30/brighton-hurzeler-handball-guesswork-west-ham/
-
-**The Briefing: Arsenal 4 Aston Villa 1 – Where does this leave title race? Unplayable Odegaard? Missed chance for Villa?**\
-`Our writers break down the action from Arsenal's victory in this top-of-the-table clash at the Emirates`\
-https://nytimes.com/athletic/6922663/2025/12/30/arsenal-aston-villa-odegaard-emery/
-
-**Mother Is Charged With Murder in Death of 1-Year-Old Son**\
-`The baby was found unresponsive in a Queens home, where the mother had tried to kill herself, a police report said.`\
-https://nytimes.com/2025/12/30/nyregion/mother-baby-murder-charged-queens.html
-
-**The Briefing: Man Utd 1 Wolves 1 – Boos at Old Trafford as Amorim's side miss chance to go fourth**\
-`United were held to a draw by the Premier League's bottom-placed side in an embarrassing display for Amorim's men`\
-https://nytimes.com/athletic/6922664/2025/12/30/man-utd-1-wolves-1-amorim-premier-league/
 
