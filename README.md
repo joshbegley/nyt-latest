@@ -1,3 +1,11 @@
+**Can the NBA truly solve the most egregious tanks? And how incredible is Joker?**\
+`As the league reportedly looks at ways to reduce tanking, one potential change is long overdue.`\
+https://nytimes.com/athletic/6927945/2025/12/30/nba-tanking-rule-changes-nikola-jokic-nuggets/
+
+**Duo on verge of Sydney Hobart history subject to protest over alleged rule breach**\
+`The overall winner of the Sydney Hobart Race is subject to a protest, which is scheduled to be heard on Wednesday morning local time`\
+https://nytimes.com/athletic/6928908/2025/12/30/sydney-hobart-race-tattersall-cup-protest/
+
 **Our Favorite Beauty Stories of 2025**\
 `In-depth guides and insider tips on how to best care for your hair, skin and nails.`\
 https://nytimes.com/2025/12/30/t-magazine/favorite-beauty-guides-stories.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/12/30/us/trump-news
 **Canadiens weekly notebook: Slafkovský's importance, Demidov on PP1, Danault's sense of purpose**\
 `Juraj Slafkovský is asserting his will on Canadiens opponents, Martin St. Louis' logic in selecting his top power-play unit might be flawed.`\
 https://nytimes.com/athletic/6928314/2025/12/30/canadiens-slafkovsky-demidov-danault/
-
-**Top football dates in 2026: Champions League, Premier League, and World Cup**\
-`Get all the 2026 football dates for your diary in one place. `\
-https://nytimes.com/athletic/6928728/2025/12/30/top-matches-games-world-cup-2026/
-
-**A Watch with Meaning in Action**\
-`How did a family-run business from Florence evolve into one of the world’s most innovative watch brands?`\
-https://nytimes.com/paidpost/panerai/a-watch-with-meaning-in-action.html
 
