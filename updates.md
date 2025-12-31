@@ -1,3 +1,11 @@
+**Is Carson Beck 'misunderstood' as Miami's quarterback?**\
+`Miami's transfer from Georgia is a lightning rod — and you may have to go beyond the box score to understand his full impact.`\
+https://nytimes.com/athletic/6930142/2025/12/31/carson-beck-miami-ohio-state-cotton-bowl-cfp/
+
+**Ryan Poles' 2025 report card: How the Bears GM helped change Chicago's trajectory**\
+`The turnaround began with the hiring of Ben Johnson, but not even the most optimistic Bears fans could've envisioned such a quick ascent.`\
+https://nytimes.com/athletic/6930218/2025/12/31/bears-gm-ryan-poles-report-card/
+
 **Is Ohio State ready to bounce back after Indiana? Here's what's changed ahead of Miami**\
 `What's going on with Ohio State's play calling, personnel usage and more ahead of the Cotton Bowl CFP quarterfinal vs. Miami.`\
 https://nytimes.com/athletic/6929493/2025/12/31/ohio-state-miami-prediction-cotton-bowl-playoff/
