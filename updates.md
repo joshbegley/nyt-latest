@@ -1,3 +1,7 @@
+**Top 5 players at every position (other than QB) on the transfer portal market**\
+`Before the transfer portal opens on Jan. 2, get a feel for the top players around the field expected to hit the open market.`\
+https://nytimes.com/athletic/6929115/2025/12/31/college-football-transfer-portal-player-rankings/
+
 **The Year in Video**\
 `We highlight some of The Times’s most-viewed videos of 2025.`\
 https://nytimes.com/2025/12/31/briefing/the-year-in-video.html

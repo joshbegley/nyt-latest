@@ -1,3 +1,7 @@
+**Top 5 players at every position (other than QB) on the transfer portal market**\
+`Before the transfer portal opens on Jan. 2, get a feel for the top players around the field expected to hit the open market.`\
+https://nytimes.com/athletic/6929115/2025/12/31/college-football-transfer-portal-player-rankings/
+
 **The Year in Video**\
 `We highlight some of The Times’s most-viewed videos of 2025.`\
 https://nytimes.com/2025/12/31/briefing/the-year-in-video.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/31/weather/cold-forecast-new-years-eve.html
 **An Intense White House Response From a Single Viral Video**\
 `A video purporting to expose extensive fraud at child care centers in Minnesota shows the relationship between the Trump administration and self-described citizen journalists.`\
 https://nytimes.com/2025/12/31/business/media/trump-conservatives-videos-viral-loop.html
-
-**A.I. Held Up Wall Street in 2025. Will That Continue?**\
-`The boom in artificial intelligence was the biggest driver of gains in the stock market. That could pose a risk in 2026.`\
-https://nytimes.com/2025/12/31/business/stock-market-2025-artificial-intelligence-bubble.html
 
