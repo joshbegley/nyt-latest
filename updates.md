@@ -1,3 +1,7 @@
+**Colombus Crew finalizing deal to name Henrik Rydström as head coach**\
+`Rydström was previously manager of Malmö, where he won two league titles, but is currently out of work.`\
+https://nytimes.com/athletic/6931784/2025/12/31/colombus-crew-head-coach-henrik-rydstrom/
+
 **Quick Outs: Malik Willis may have played his way into a starting job, somewhere**\
 `Willis could have a surprisingly robust market once he hits free agency. Also, we're not showing enough love to Bijan Robinson's play.`\
 https://nytimes.com/athletic/6929191/2025/12/31/nfl-week-17-willis-brock-purdy-quick-outs/

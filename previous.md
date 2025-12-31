@@ -1,3 +1,7 @@
+**Colombus Crew finalizing deal to name Henrik Rydström as head coach**\
+`Rydström was previously manager of Malmö, where he won two league titles, but is currently out of work.`\
+https://nytimes.com/athletic/6931784/2025/12/31/colombus-crew-head-coach-henrik-rydstrom/
+
 **Quick Outs: Malik Willis may have played his way into a starting job, somewhere**\
 `Willis could have a surprisingly robust market once he hits free agency. Also, we're not showing enough love to Bijan Robinson's play.`\
 https://nytimes.com/athletic/6929191/2025/12/31/nfl-week-17-willis-brock-purdy-quick-outs/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/31/movies/women-directed-fewer-box-office-hits-in-20
 **My Mother Is Estranged From Her Brother. Can I Help?**\
 `A reader is hesitant to interfere in a yearlong mother-and-uncle skirmish, despite one party’s track record for torpedoing close relationships.`\
 https://nytimes.com/2025/12/31/style/familial-estrangement-peacemaking.html
-
-**Bangladeshis Pay Last Respects to Former Leader in Tense Capital**\
-`Huge crowds turned out to say goodbye to Khaleda Zia, the country’s first female prime minister, amid a huge army presence following recent political violence.`\
-https://nytimes.com/2025/12/31/world/asia/bangladesh-zia-funeral.html
 
