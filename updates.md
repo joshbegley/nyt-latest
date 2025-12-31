@@ -1,3 +1,11 @@
+**How to watch TCU vs. BYU women's basketball: Time, TV, streaming**\
+`Find out how to watch the TCU Horned Frogs play the BYU Cougars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6932429/2025/12/31/tcu-vs-byu-stream-how-to-watch-dec-31/
+
+**These Texas Tech parents kept their promise to be at every game, with Orange Bowl next**\
+`The couple has attended all 26 of their son's Texas Tech games, documenting the trips on social media and becoming program celebrities.`\
+https://nytimes.com/athletic/6932292/2025/12/31/texas-tech-college-football-playoff-parents/
+
 **Eagles to rest key starters in Week 18 vs. Commanders**\
 `Expect Tanner McKee to start at quarterback in place of Jalen Hurts for the Eagles, who need a win and a Bears loss to earn the No. 2 seed.`\
 https://nytimes.com/athletic/6932334/2025/12/31/eagles-rest-starters-commanders-week-18-playoffs/

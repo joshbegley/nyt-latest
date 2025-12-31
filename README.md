@@ -1,3 +1,11 @@
+**How to watch Blues vs. Avalanche: Time, TV, streaming**\
+`Find out how to watch the St. Louis Blues play the Colorado Avalanche, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6932453/2025/12/31/blues-vs-avalanche-stream-how-to-watch-dec-31/
+
+**How to watch Sabres vs. Stars: Time, TV, streaming**\
+`Find out how to watch the Buffalo Sabres play the Dallas Stars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6932450/2025/12/31/sabres-vs-stars-stream-how-to-watch-dec-31/
+
 **How to watch TCU vs. BYU women's basketball: Time, TV, streaming**\
 `Find out how to watch the TCU Horned Frogs play the BYU Cougars, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6932429/2025/12/31/tcu-vs-byu-stream-how-to-watch-dec-31/
@@ -21,12 +29,4 @@ https://nytimes.com/2025/12/31/us/cop-city-activists-racketeering-charges.html
 **Mohammad Bakri, 72, Outspoken Palestinian Actor and Director, Dies**\
 `His work, including the 2002 documentary “Jenin, Jenin,” exposed the often harsh realities of life experienced by his fellow Arabs in Israel.`\
 https://nytimes.com/2025/12/31/movies/mohammad-bakri-dead.html
-
-**Anthony Davis to return as Mavericks seek to stop 3-game losing streak**\
-`Davis missed the last two games with what the Mavs described as right adductor soreness.`\
-https://nytimes.com/athletic/6932262/2025/12/31/anthony-davis-return-injury-mavericks-76ers/
-
-**Most of Iran Shuts Down as Government Grapples With Protests and Economy**\
-`Amid mounting street protests, businesses, universities and government offices stayed closed Wednesday under government orders, in 21 of 31 provinces, including the Tehran.`\
-https://nytimes.com/2025/12/31/world/middleeast/iran-shutdown-protests.html
 
