@@ -1,3 +1,27 @@
+**Raymond’s Biggest Question About the Trip**\
+`Our climate reporter Raymond Zhong sets out on his journey to Antarctica and shares his biggest question for the trip ahead.`\
+https://nytimes.com/video/climate/100000010614033/raymonds-biggest-question-about-the-trip.html
+
+**Iowa State Senate District 16 Special Election Results**\
+`Get live results and maps from the 2025 Iowa special election.`\
+https://nytimes.com/interactive/2025/12/30/us/elections/results-iowa-state-senate-district-16-unexpired-term-special.html
+
+**How to watch Lions vs. Bears: Time, TV, streaming**\
+`Find out how to watch the Detroit Lions play the Chicago Bears, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6930631/2025/12/30/lions-vs-bears-stream-how-to-watch-jan-4/
+
+**How to watch Cardinals vs. Rams: Time, TV, streaming**\
+`Find out how to watch the Arizona Cardinals play the Los Angeles Rams, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6930626/2025/12/30/cardinals-vs-rams-stream-how-to-watch-jan-4/
+
+**How to watch Chiefs vs. Raiders: Time, TV, streaming**\
+`Find out how to watch the Kansas City Chiefs play the Las Vegas Raiders, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6930624/2025/12/30/chiefs-vs-raiders-stream-how-to-watch-jan-4/
+
+**How to watch Jets vs. Bills: Time, TV, streaming**\
+`Find out how to watch the New York Jets play the Buffalo Bills, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6930618/2025/12/30/jets-vs-bills-stream-how-to-watch-jan-4/
+
 **How to watch Dolphins vs. Patriots: Time, TV, streaming**\
 `Find out how to watch the Miami Dolphins play the New England Patriots, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6930606/2025/12/30/dolphins-vs-patriots-stream-how-to-watch-jan-4/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6930594/2025/12/30/chargers-vs-broncos-stream-how-t
 **Why scientists are studying the Thwaites glacier**\
 `(No description)`\
 https://nytimes.com/live/2025/climate/antarctica-thwaites-glacier/studying-thwaites-glacier
-
-**Masashi Ozaki, Japan’s Dominant Golfer Known as ‘Jumbo,’ Dies at 78**\
-`A World Golf Hall of Famer who could drive a ball more than 300 yards in his prime, he recorded 113 victories on the Japan Tour.`\
-https://nytimes.com/2025/12/30/sports/golf/masashi-ozaki-dead.html
-
-**Christian McCaffrey, Trent Williams not practicing, George Kittle returns**\
-`McCaffrey is battling a stiff back, while Williams has a hamstring injury but has not been ruled out for Saturday's game against Seattle.`\
-https://nytimes.com/athletic/6930383/2025/12/30/christian-mccaffrey-george-kittle-trent-williams-49ers-injuries/
-
-**Scoop City: Most-clicked NFL stories from each month**\
-`Today and tomorrow are special, year-end editions of this newsletter. Plus: Jake Ciely shares his top five fantasy picks.`\
-https://nytimes.com/athletic/6930487/2025/12/30/most-clicked-nfl-stories-2025-scoop-city/
-
-**Rice could make Arsenal return against Bournemouth, Arteta says**\
-`The head coach said the swelling needs to "come right down" on the midfielder's knee after he picked up an injury against Brighton.`\
-https://nytimes.com/athletic/6930427/2025/12/30/declan-rice-arsenal-injury-bournemouth/
-
-**With Macklin Celebrini as their engine, Sharks are making a surprising playoff push**\
-`After six years and a brutal but necessary and rewarding bottoming out, San Jose is using the P-word and can do so with true conviction.`\
-https://nytimes.com/athletic/6929815/2025/12/30/macklin-celebrini-sharks-nhl-playoffs/
-
-**Justice Dept. Leaders Pushed to Charge Abrego Garcia, Emails Show**\
-`The release of the emails raised serious questions about whether the Justice Department had misled a judge in telling him that local prosecutors had acted alone in charging Mr. Abrego Garcia.`\
-https://nytimes.com/2025/12/30/nyregion/abrego-garcia-charges-doj.html
 
