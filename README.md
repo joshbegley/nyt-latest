@@ -1,3 +1,11 @@
+**Mohammad Bakri, 72, Outspoken Palestinian Actor and Director, Dies**\
+`His work, including the 2002 documentary “Jenin, Jenin,” exposed the often harsh realities of life experienced by his fellow Arabs in Israel.`\
+https://nytimes.com/2025/12/31/movies/mohammad-bakri-dead.html
+
+**Anthony Davis to return as Mavericks seek to stop 3-game losing streak**\
+`Davis missed the last two games with what the Mavs described as right adductor soreness.`\
+https://nytimes.com/athletic/6932262/2025/12/31/anthony-davis-return-injury-mavericks-76ers/
+
 **Most of Iran Shuts Down as Government Grapples With Protests and Economy**\
 `Amid mounting street protests, businesses, universities and government offices stayed closed Wednesday under government orders, in 21 of 31 provinces, including the Tehran.`\
 https://nytimes.com/2025/12/31/world/middleeast/iran-shutdown-protests.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6932097/2025/12/31/team-canada-2026-olympic-hockey-
 **NFL Week 18 confidence picks: Steelers and Giants can pull off upsets**\
 `KC Joyner makes his straight-up and against-the-spread picks for the final weekend of the NFL regular season.`\
 https://nytimes.com/athletic/6931185/2025/12/31/nfl-week-18-confidence-picks-steelers-giants-upsets/
-
-**‘Swipe, Swipe’: New Yorkers Give the MetroCard a Public Funeral**\
-`There were few tears at a funeral for the MetroCard, which included chants of “swipe, swipe” and an urn.`\
-https://nytimes.com/2025/12/31/nyregion/metrocard-funeral-new-york.html
-
-**Richard Smallwood, 77, Choral Leader and Composer of Gospel Hits, Dies**\
-`He sold millions of albums with the Richard Smallwood Singers, and his songs, many influenced by classical music, were recorded by stars like Whitney Houston.`\
-https://nytimes.com/2025/12/31/arts/music/richard-smallwood-dead.html
 
