@@ -1,3 +1,7 @@
+**T Magazine’s Most-Read Art and Culture Features From 2025**\
+`A look at Japan’s microseasons, a retrospective on Gen X and more: These were readers’ 15 favorite stories.`\
+https://nytimes.com/2025/12/31/t-magazine/favorite-art-culture-stories.html
+
 **Mamdani’s Man-of-the-People Style Could Present Security Challenges**\
 `Mayor-elect Zohran Mamdani, gregarious with constituents and vilified by a range of critics, is taking office at a time of anxiety about political violence.`\
 https://nytimes.com/2025/12/31/nyregion/zohran-mamdani-mayor-security-detail.html

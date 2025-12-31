@@ -1,3 +1,7 @@
+**T Magazine’s Most-Read Art and Culture Features From 2025**\
+`A look at Japan’s microseasons, a retrospective on Gen X and more: These were readers’ 15 favorite stories.`\
+https://nytimes.com/2025/12/31/t-magazine/favorite-art-culture-stories.html
+
 **Mamdani’s Man-of-the-People Style Could Present Security Challenges**\
 `Mayor-elect Zohran Mamdani, gregarious with constituents and vilified by a range of critics, is taking office at a time of anxiety about political violence.`\
 https://nytimes.com/2025/12/31/nyregion/zohran-mamdani-mayor-security-detail.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6932457/2025/12/31/bruins-vs-oilers-stream-how-to-w
 **How to watch Trail Blazers vs. Thunder: Time, TV, streaming**\
 `Find out how to watch the Portland Trail Blazers play the Oklahoma City Thunder, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6932455/2025/12/31/trail-blazers-vs-thunder-stream-how-to-watch-dec-31/
-
-**How to watch Blues vs. Avalanche: Time, TV, streaming**\
-`Find out how to watch the St. Louis Blues play the Colorado Avalanche, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6932453/2025/12/31/blues-vs-avalanche-stream-how-to-watch-dec-31/
 
