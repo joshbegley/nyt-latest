@@ -1,3 +1,7 @@
+**Is Ohio State ready to bounce back after Indiana? Here's what's changed ahead of Miami**\
+`What's going on with Ohio State's play calling, personnel usage and more ahead of the Cotton Bowl CFP quarterfinal vs. Miami.`\
+https://nytimes.com/athletic/6929493/2025/12/31/ohio-state-miami-prediction-cotton-bowl-playoff/
+
 **The Pulse: These stories moved us this year**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6929746/2025/12/31/the-athletic-wrapped-2025-the-pulse/
