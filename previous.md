@@ -1,3 +1,11 @@
+**Packers claim former Cowboys cornerback Trevon Diggs: Source**\
+`The two-time Pro Bowl corner could help a shorthanded Green Bay secondary.`\
+https://nytimes.com/athletic/6932532/2025/12/31/packers-signing-trevon-diggs/
+
+**NFL Week 18 staff picks: Survival, seeding and top spots on the line**\
+`Only two playoff spots are still up for grabs, but playoff seeding is still at stake for most of the teams in the playoff picture.`\
+https://nytimes.com/athletic/6931268/2025/12/31/nfl-week-18-staff-picks/
+
 **T Magazine’s Most-Read Art and Culture Features From 2025**\
 `A look at Japan’s microseasons, a retrospective on Gen X and more: These were readers’ 15 favorite stories.`\
 https://nytimes.com/2025/12/31/t-magazine/favorite-art-culture-stories.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6932462/2025/12/31/wizards-vs-bucks-stream-how-to-w
 **How to watch Nuggets vs. Raptors: Time, TV, streaming**\
 `Find out how to watch the Denver Nuggets play the Toronto Raptors, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6932459/2025/12/31/nuggets-vs-raptors-stream-how-to-watch-dec-31/
-
-**How to watch Bruins vs. Oilers: Time, TV, streaming**\
-`Find out how to watch the Boston Bruins play the Edmonton Oilers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6932457/2025/12/31/bruins-vs-oilers-stream-how-to-watch-dec-31/
-
-**How to watch Trail Blazers vs. Thunder: Time, TV, streaming**\
-`Find out how to watch the Portland Trail Blazers play the Oklahoma City Thunder, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6932455/2025/12/31/trail-blazers-vs-thunder-stream-how-to-watch-dec-31/
 

@@ -1,3 +1,11 @@
+**Packers claim former Cowboys cornerback Trevon Diggs: Source**\
+`The two-time Pro Bowl corner could help a shorthanded Green Bay secondary.`\
+https://nytimes.com/athletic/6932532/2025/12/31/packers-signing-trevon-diggs/
+
+**NFL Week 18 staff picks: Survival, seeding and top spots on the line**\
+`Only two playoff spots are still up for grabs, but playoff seeding is still at stake for most of the teams in the playoff picture.`\
+https://nytimes.com/athletic/6931268/2025/12/31/nfl-week-18-staff-picks/
+
 **T Magazine’s Most-Read Art and Culture Features From 2025**\
 `A look at Japan’s microseasons, a retrospective on Gen X and more: These were readers’ 15 favorite stories.`\
 https://nytimes.com/2025/12/31/t-magazine/favorite-art-culture-stories.html
