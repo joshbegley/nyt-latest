@@ -1,3 +1,7 @@
+**A.I. Held Up Wall Street in 2025. Will That Continue?**\
+`The boom in artificial intelligence was the biggest driver of gains in the stock market. That could pose a risk in 2026.`\
+https://nytimes.com/2025/12/31/business/stock-market-2025-artificial-intelligence-bubble.html
+
 **Top 5 players at every position (other than QB) on the transfer portal market**\
 `Before the transfer portal opens on Jan. 2, get a feel for the top players around the field expected to hit the open market.`\
 https://nytimes.com/athletic/6929115/2025/12/31/college-football-transfer-portal-player-rankings/
