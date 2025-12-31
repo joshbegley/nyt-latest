@@ -1,3 +1,11 @@
+**Quick Outs: Malik Willis may have played his way into a starting job, somewhere**\
+`Willis could have a surprisingly robust market once he hits free agency. Also, we're not showing enough love to Bijan Robinson's play.`\
+https://nytimes.com/athletic/6929191/2025/12/31/nfl-week-17-willis-brock-purdy-quick-outs/
+
+**New Year’s 2026 Around the World**\
+`See how people across the globe celebrated.`\
+https://nytimes.com/2025/12/31/world/new-years-2026-celebrations-photos.html
+
 **The Keys to the City of New York Are Made in New Jersey**\
 `Mayor Eric Adams has handed out dozens of ceremonial golden keys during his single term. Since 2023, they have come from across the Hudson River.`\
 https://nytimes.com/2025/12/31/nyregion/adams-nyc-keys-to-city.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/31/style/familial-estrangement-peacemaking.html
 **Bangladeshis Pay Last Respects to Former Leader in Tense Capital**\
 `Huge crowds turned out to say goodbye to Khaleda Zia, the country’s first female prime minister, amid a huge army presence following recent political violence.`\
 https://nytimes.com/2025/12/31/world/asia/bangladesh-zia-funeral.html
-
-**Mbappe set to miss Real Madrid's La Liga return with knee injury**\
-`Madrid confirmed on Wednesday Mbappe, 27, had suffered a sprain to his left knee.`\
-https://nytimes.com/athletic/6931655/2025/12/31/kylian-mbappe-real-madrid-injury-news/
-
-**Under pressure: Why these five teams desperately need to make a trade (or two)**\
-`With Hawks, Lakers, Warriors and more feeling the pressure, here's what they're considering ahead of the trade deadline.`\
-https://nytimes.com/athletic/6931252/2025/12/31/nba-trade-rumors-lakers-warriors-clippers-hawks-bucks/
 

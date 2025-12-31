@@ -1,3 +1,11 @@
+**Quick Outs: Malik Willis may have played his way into a starting job, somewhere**\
+`Willis could have a surprisingly robust market once he hits free agency. Also, we're not showing enough love to Bijan Robinson's play.`\
+https://nytimes.com/athletic/6929191/2025/12/31/nfl-week-17-willis-brock-purdy-quick-outs/
+
+**New Year’s 2026 Around the World**\
+`See how people across the globe celebrated.`\
+https://nytimes.com/2025/12/31/world/new-years-2026-celebrations-photos.html
+
 **The Keys to the City of New York Are Made in New Jersey**\
 `Mayor Eric Adams has handed out dozens of ceremonial golden keys during his single term. Since 2023, they have come from across the Hudson River.`\
 https://nytimes.com/2025/12/31/nyregion/adams-nyc-keys-to-city.html
