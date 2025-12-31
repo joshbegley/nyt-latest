@@ -1,3 +1,7 @@
+**How to watch Jets vs. Red Wings: Time, TV, streaming**\
+`Find out how to watch the Winnipeg Jets play the Detroit Red Wings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6932008/2025/12/31/jets-vs-red-wings-stream-how-to-watch-dec-31/
+
 **How to watch UConn vs. Xavier men's basketball: Time, TV, streaming**\
 `Find out how to watch the UConn Huskies play the Xavier Musketeers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6931997/2025/12/31/uconn-vs-xavier-stream-how-to-watch-dec-31/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6930364/2025/12/31/the-key-questions-that-will-shap
 **The Bounce: Scandals, sales and a shocking trade highlight top 10 moments of 2025**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/6931812/2025/12/31/the-bounce-top-10-nba-moments-2025/
-
-**Palace increasingly confident of signing Johnson from Tottenham**\
-`Eddie Nketiah's third hamstring issue of the season has exacerbated Palace's need for attacking reinforcements, with Ismalia Sarr at AFCON.`\
-https://nytimes.com/athletic/6931842/2025/12/31/brennan-johnson-crystal-palace-tottenham-transfer-confident/
 
