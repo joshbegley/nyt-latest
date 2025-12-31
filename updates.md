@@ -1,3 +1,5 @@
+
+
 **Mamdani Nominates Top City Lawyer and Deputy Mayor of Health**\
 `The mayor-elect said the selections indicate his administration’s commitment to help New York City’s vulnerable residents.`\
 https://nytimes.com/2025/12/30/nyregion/mamdani-nominates-top-city-lawyer-deputy-mayor-of-health.html
