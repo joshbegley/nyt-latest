@@ -1,5 +1,13 @@
+**Analysed: How Arsenal tightened the screw as Arteta righted the wrongs against Villa**\
+`Arsenal doubled down on their strengths in pressing high. It took some time to click, but it was crucial to their success against Villa`\
+https://nytimes.com/athletic/6931285/2025/12/31/arsenal-aston-villa-analysis/
+
+**From FCS to SEC: New Arkansas GM details rise in college football's new era**\
+`Before taking the job at Arkansas, Gaizka Crowley  helped construct a roster that produced one of the biggest FBS turnarounds at Arizona.`\
+https://nytimes.com/athletic/6882942/2025/12/31/gaizka-crowley-arkansas-football-gm-arizona/
+
 **MLB’s Strange But True 2025: Wildest hitting and pitching feats of the year**\
-`We’ve reached the end of 2025 — and the final piece in our Strange But True year-end series. Presenting the SBT hitting and pitching feats!`\
+`We’ve reached the end of 2025 — and the final piece in our Strange But True series. Presenting the hitting and pitching feats of the year!`\
 https://nytimes.com/athletic/6931365/2025/12/31/mlb-wild-hitting-pitching-facts-2025/
 
 **College Football Playoff watch guide: Broadcast info for New Year's quarterfinal games**\
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6930423/2025/12/31/college-football-playoff-predict
 **'I trust the team': Wild coach John Hynes' steady, calm demeanor big reason for turnaround**\
 `Hynes was never rattled during Minnesota's rough start, and his team found its footing because of it, leaping to third in the NHL standings.`\
 https://nytimes.com/athletic/6930363/2025/12/31/wild-coach-john-hynes-nhl-season-standings/
-
-**Blues focused on creating 'Stanley Cup' standard for process, not on losses: 'Results are secondary'**\
-`Coach Jim Montgomery says that at this stage of a retool, the goal is to develop players who "set the standard of a Stanley Cup tradition."`\
-https://nytimes.com/athletic/6926661/2025/12/31/blues-jim-montgomery-retool-results/
-
-**USLPA asks for 'livable wages' as talks stall before New Year deadline**\
-`Stalled talks have created a nervous limbo in the second tier of North American soccer`\
-https://nytimes.com/athletic/6929601/2025/12/31/usl-players-association-wages/
 

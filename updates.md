@@ -1,3 +1,20 @@
+**Analysed: How Arsenal tightened the screw as Arteta righted the wrongs against Villa**\
+`Arsenal doubled down on their strengths in pressing high. It took some time to click, but it was crucial to their success against Villa`\
+https://nytimes.com/athletic/6931285/2025/12/31/arsenal-aston-villa-analysis/
+
+**From FCS to SEC: New Arkansas GM details rise in college football's new era**\
+`Before taking the job at Arkansas, Gaizka Crowley  helped construct a roster that produced one of the biggest FBS turnarounds at Arizona.`\
+https://nytimes.com/athletic/6882942/2025/12/31/gaizka-crowley-arkansas-football-gm-arizona/
+
+**MLB’s Strange But True 2025: Wildest hitting and pitching feats of the year**\
+`We’ve reached the end of 2025 — and the final piece in our Strange But True series. Presenting the hitting and pitching feats of the year!`\
+https://nytimes.com/athletic/6931365/2025/12/31/mlb-wild-hitting-pitching-facts-2025/
+
+**Warming Blue Jackets brace for New Year's Eve rematch with struggling Devils**\
+`The last meeting between the Blue Jackets and Devils on Dec. 1 was a fight-filled, unexpectedly chaotic game.
+`\
+https://nytimes.com/athletic/6930208/2025/12/31/blue-jackets-devils-new-years-eve-fights/
+
 **MLB’s Strange But True 2025: Wildest hitting and pitching feats of the year**\
 `We’ve reached the end of 2025 — and the final piece in our Strange But True year-end series. Presenting the SBT hitting and pitching feats!`\
 https://nytimes.com/athletic/6931365/2025/12/31/mlb-wild-hitting-pitching-facts-2025/
