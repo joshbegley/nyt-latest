@@ -1,10 +1,10 @@
+**Tonight’s Ball Drop Is a Celebration of Both the New Year and Times History**\
+`The New York Times started the tradition in 1907, and this year’s ball drop will be a reminder that The Times played a role in making New Year’s Eve what it is.`\
+https://nytimes.com/2025/12/31/nyregion/new-year-ball-drop-new-york-times-square.html
+
 **For Zohran Mamdani, a Crowning Moment, With Challenges Looming**\
 `Mr. Mamdani will become mayor of New York City on Thursday, carrying the hopes of the left, Muslims and younger voters as he looks to improve affordability.`\
 https://nytimes.com/2025/12/31/nyregion/mamdani-mayor-nyc.html
-
-**Tonight’s Ball Drop Is a Celebration of Both the New Year and Times History**\
-`The New York Times started the tradition in 1907, and this year’s ball drop will be a reminder that The Times played a role in making New Year’s Eve what it is.`\
-https://nytimes.com/2025/12/31/nyregion/tonights-ball-drop-is-a-celebration-of-both-the-new-year-and-times-history.html
 
 **Mamdani Will Be First N.Y.C. Mayor to Use the Quran at His Swearing-In**\
 `Zohran Mamdani, New York City’s first Muslim mayor, will use two family Qurans and one that belonged to the writer Arturo Schomburg at his two swearing-in ceremonies.`\
