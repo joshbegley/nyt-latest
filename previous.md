@@ -1,40 +1,40 @@
-**Jiang Lin becomes first female skipper to win overall Sydney Hobart title**\
-`Min River is the first double-handed yacht to win the prestigious Tattersall Cup, winning the overall Sydney to Hobart race after a protest`\
-https://nytimes.com/athletic/6931237/2025/12/31/sydney-hobart-min-river-overall-race-winners/
+**An Intense White House Response From a Single Viral Video**\
+`A video purporting to expose extensive fraud at child care centers in Minnesota shows the relationship between the Trump administration and self-described citizen journalists.`\
+https://nytimes.com/2025/12/31/business/media/trump-conservatives-videos-viral-loop.html
 
-**Thailand Releases 18 Cambodian P.O.W.s**\
-`The repatriation of the Cambodian soldiers captured in July comes on the heels of a 72-hour cease-fire that could end months of border skirmishes.`\
-https://nytimes.com/2025/12/31/world/asia/thailand-cambodia-pows.html
+**A.I. Held Up Wall Street in 2025. Will That Continue?**\
+`The boom in artificial intelligence was the biggest driver of gains in the stock market. That could pose a risk in 2026.`\
+https://nytimes.com/2025/12/31/business/stock-market-2025-artificial-intelligence-bubble.html
 
-**For Zohran Mamdani, a Crowning Moment, With Challenges Looming**\
-`Mr. Mamdani will become mayor of New York City on Thursday, carrying the hopes of the left, Muslims and younger voters as he looks to improve affordability.`\
-https://nytimes.com/2025/12/31/nyregion/mamdani-mayor-nyc.html
+**How the U.S. Coast Guard Fights Drug Smuggling at Sea**\
+`New York Times reporters spent two days with the Coast Guard’s drug interdiction teams to see how they stop suspected drug smuggling boats and seize narcotics using nonlethal tactics.`\
+https://nytimes.com/video/us/100000010613888/us-coast-guard-drug-smuggling-boats.html
 
-**Tonight’s Ball Drop Is a Celebration of Both the New Year and Times History**\
-`The New York Times started the tradition in 1907, and this year’s ball drop will be a reminder that The Times played a role in making New Year’s Eve what it is.`\
-https://nytimes.com/2025/12/31/nyregion/new-year-ball-drop-new-york-times-square.html
+**One Factor Will Decide How Much You Enjoy TV Next Year**\
+`If Netflix acquires HBO, it will have won the streaming wars. But that’s not what will determine if TV shows get better, or worse.`\
+https://nytimes.com/2025/12/31/opinion/netlfix-hbo-streaming-war.html
 
-**Behind Oklahoma Cannabis Farms, New Yorkers With Ties to Beijing**\
-`In China, trafficking marijuana is punishable by death. But in the United States, it has become a lucrative sideline for some favored sons of the motherland.`\
-https://nytimes.com/2025/12/31/us/ny-china-hometown-association-oklahoma-marjiuana.html
+**How Thousands of Secret Russian Documents Were Exposed**\
+`Russian journalists learned that a government office inadvertently made thousands of sensitive complaints viewable online, including accounts of abuse and coercion in the military.`\
+https://nytimes.com/2025/12/31/world/europe/russia-ombudsman-complaints.html
 
-**Mamdani Will Be First N.Y.C. Mayor to Use the Quran at His Swearing-In**\
-`Zohran Mamdani, New York City’s first Muslim mayor, will use two family Qurans and one that belonged to the writer Arturo Schomburg at his two swearing-in ceremonies.`\
-https://nytimes.com/2025/12/31/nyregion/mamdani-quran-inauguration-muslim.html
+**How to Greet 2026 in New York City**\
+`Here’s the lowdown on venturing to Times Square to see the ball drop, plus some other options for New Year’s Eve. And at the stroke of midnight, a new mayor will be sworn in downtown.`\
+https://nytimes.com/2025/12/31/nyregion/new-years-eve-what-to-know.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/12/31/crosswords/spelling-bee-forum.html
+**The Top Movies of 2025, According to Times Readers**\
+`We asked you to vote on the best films of the year. The results ranged from big box office hits to small art-house indies.`\
+https://nytimes.com/2025/12/31/movies/2025-best-movies-marty-supreme.html
 
-**They, Too, Died After Beatings by Guards. No One Raised an Alarm.**\
-`Two brutal killings, less than three months apart, in New York State’s prison system raised troubling questions: Had other inmates met similar fates?`\
-https://nytimes.com/2025/12/31/nyregion/ny-prison-deaths-beatings-brooks-nantwi.html
+**$850,000 Homes in Arizona, Oklahoma and Connecticut**\
+`This week’s homes include a midcentury modern in Phoenix, a bungalow in Oklahoma City and a Colonial-Revival in Old Saybrook.`\
+https://nytimes.com/2025/12/31/realestate/850000-thousand-dollar-homes-in-oklahoma-city-old-saybrook-phoenix.html
 
-**One Lawyer’s Standoff With Trump’s Deportation Machine**\
-`Mahsa Khanbabai’s client, a graduate student, had been whisked away by masked agents and held in lockup for weeks. Would a court free her — and would the government let her go?`\
-https://nytimes.com/2025/12/31/nyregion/ozturk-lawyer-detention-release.html
+**Drug Smugglers Not Blown Up at Sea Still Risk Capture by Coast Guard**\
+`Cutters are still stopping smugglers and seizing drugs, but the prosecutions of go-fast boat crews are dwindling in a realignment of federal resources.`\
+https://nytimes.com/2025/12/31/us/politics/trump-boat-strikes-coast-guard-drug-operations.html
 
-**A tactical masterstroke, fight and a threat in attack. How Wolves impressed at Old Trafford**\
-`Wolves' draw against Manchester United is a crumb of comfort Rob Edwards will treasure like a diamond`\
-https://nytimes.com/athletic/6930785/2025/12/31/wolverhampton-wanderers-manchester-united-analysis/
+**The story of the 2025 cycling season in 12 photographs**\
+`As the new WorldTour season approaches, we look back at some of the key moments from this year...`\
+https://nytimes.com/athletic/6928448/2025/12/31/2025-men-worldtour-cycling-season-photos/
 
