@@ -1,3 +1,7 @@
+**VJ Edgecombe's game-winner shows why Sixers 'are blessed to have him'**\
+`On a night when both Tyrese Maxey and Joel Embiid were cooking, the rookie was the guy Philly turned to in clutch time against Memphis.`\
+https://nytimes.com/athletic/6931085/2025/12/31/vj-edgecombe-sixers-game-winner-rookie/
+
 **Trump Administration Live Updates: Justice Dept. Is Said to Be Reviewing 5 Million Pages of Epstein Files**\
 ``\
 https://nytimes.com/live/2025/12/31/us/trump-news
