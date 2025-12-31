@@ -1,3 +1,7 @@
+**NFL Week 18 confidence picks: Steelers and Giants can pull off upsets**\
+`KC Joyner makes his straight-up and against-the-spread picks for the final weekend of the NFL regular season.`\
+https://nytimes.com/athletic/6931185/2025/12/31/nfl-week-18-confidence-picks-steelers-giants-upsets/
+
 **‘Swipe, Swipe’: New Yorkers Give the MetroCard a Public Funeral**\
 `There were few tears at a funeral for the MetroCard, which included chants of “swipe, swipe” and an urn.`\
 https://nytimes.com/2025/12/31/nyregion/metrocard-funeral-new-york.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6932141/2025/12/31/leafs-chris-tanev-anthony-stolar
 **CFP quarterfinal picks ATS: Indiana favored by a touchdown against Alabama**\
 `Three of the four CFP quarterfinals have a spread around at least a touchdown. Will our experts take the underdogs?`\
 https://nytimes.com/athletic/6929860/2025/12/31/college-football-playoff-quarterfinals-picks-against-the-spread/
-
-**Tatiana Schlossberg’s Death: ‘Inexpressibly Sad’**\
-`Readers reflect on her life and the tragedies that have befallen the Kennedy family. Also: Protecting Planned Parenthood.`\
-https://nytimes.com/2025/12/31/opinion/tatiana-schlossberg-death-kennedys.html
 
