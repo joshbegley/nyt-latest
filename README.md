@@ -1,3 +1,11 @@
+**‘Swipe, Swipe’: New Yorkers Give the MetroCard a Public Funeral**\
+`There were few tears at a funeral for the MetroCard, which included chants of “swipe, swipe” and an urn.`\
+https://nytimes.com/2025/12/31/nyregion/metrocard-funeral-new-york.html
+
+**Richard Smallwood, 77, Choral Leader and Composer of Gospel Hits, Dies**\
+`He sold millions of albums with the Richard Smallwood Singers, and his songs, many influenced by classical music, were recorded by stars like Whitney Houston.`\
+https://nytimes.com/2025/12/31/arts/music/richard-smallwood-dead.html
+
 **Venezuela Detains Americans Amid Growing U.S. Pressure**\
 `The number of American citizens held in Venezuela has grown since the start of the U.S. military and economic campaign against President Nicolás Maduro.`\
 https://nytimes.com/2025/12/31/world/americas/venezuela-detained-americans.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6929860/2025/12/31/college-football-playoff-quarter
 **Tatiana Schlossberg’s Death: ‘Inexpressibly Sad’**\
 `Readers reflect on her life and the tragedies that have befallen the Kennedy family. Also: Protecting Planned Parenthood.`\
 https://nytimes.com/2025/12/31/opinion/tatiana-schlossberg-death-kennedys.html
-
-**Manhattan Man, 80, Faces Homicide Charge After Sidewalk Shoving**\
-`Dana Escoffier was indicted on a charge of criminally negligent homicide in the death of Dean Whetzel, 82, a neighbor whom he had known for decades.`\
-https://nytimes.com/2025/12/31/nyregion/nyc-man-homicide-charges-sidewalk-shoving.html
-
-**Thieves Make Off With Millions in German Bank Heist**\
-`The robbers stole valuables with an insured value of at least $36 million from a bank in Gelsenkirchen, western Germany.`\
-https://nytimes.com/2025/12/31/world/europe/germany-heist-bank-robbery.html
 
