@@ -1,3 +1,7 @@
+**In 2025, the Canadiens' success went from surprising to sustainable**\
+`The Canadiens completed the calendar year with a win on the road against the Panthers, much like last year. But this feels different.`\
+https://nytimes.com/athletic/6931103/2025/12/31/montreal-canadiens-success-2025/
+
 **Relationship Between U.S. and Germany Is ‘Changing,’ German Leader Says**\
 `Chancellor Friedrich Merz of Germany, making his New Year’s Eve address, said the change would force Europe to do more to defend itself.`\
 https://nytimes.com/2025/12/31/world/europe/merz-germany-new-years-speech.html

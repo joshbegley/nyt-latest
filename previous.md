@@ -1,3 +1,7 @@
+**In 2025, the Canadiens' success went from surprising to sustainable**\
+`The Canadiens completed the calendar year with a win on the road against the Panthers, much like last year. But this feels different.`\
+https://nytimes.com/athletic/6931103/2025/12/31/montreal-canadiens-success-2025/
+
 **Relationship Between U.S. and Germany Is ‘Changing,’ German Leader Says**\
 `Chancellor Friedrich Merz of Germany, making his New Year’s Eve address, said the change would force Europe to do more to defend itself.`\
 https://nytimes.com/2025/12/31/world/europe/merz-germany-new-years-speech.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/31/world/americas/human-rights-lawsuit-quero-silva.h
 **The keys to the Pistons' win over the Lakers? Soccer, selflessness and Sasser**\
 `Detroit took some time to decompress and then got an unexpected boost from a previously little-used role player, showing off its depth.`\
 https://nytimes.com/athletic/6931423/2025/12/31/pistons-marcus-sasser-lakers-win/
-
-**How to watch Magic vs. Pacers: Time, TV, streaming**\
-`Find out how to watch the Orlando Magic play the Indiana Pacers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6931641/2025/12/31/magic-vs-pacers-stream-how-to-watch-dec-31/
 
