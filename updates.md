@@ -1,3 +1,7 @@
+**Isiah Whitlock Jr., 71, Scene-Stealing Character Actor in ‘The Wire,’ Dies**\
+`In one of his most enduring roles, he played a corrupt state senator known for his ability to fashion an expletive into an outstretched catchphrase.`\
+https://nytimes.com/2025/12/30/arts/television/isiah-whitlock-jr-dead.html
+
 **Justice Dept. Now Said to Be Reviewing 5.2 Million Pages of Epstein Files**\
 `The number represents a more precise, and potentially much larger, figure than earlier estimates. The department is seeking to enlist about 400 lawyers to help in the review.`\
 https://nytimes.com/2025/12/30/us/politics/esptein-files-5-million-pages.html
