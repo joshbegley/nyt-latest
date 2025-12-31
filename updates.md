@@ -1,3 +1,7 @@
+**Josh Giddey expected to miss next few weeks with left hamstring strain**\
+`Giddey’s extended absence adds to a series of brutal blows for the Bulls.`\
+https://nytimes.com/athletic/6930920/2025/12/30/josh-giddey-injury-update-left-hamstring-out/
+
 **Isiah Whitlock Jr., 71, Scene-Stealing Character Actor in ‘The Wire,’ Dies**\
 `In one of his most enduring roles, he played a corrupt state senator known for his ability to fashion an expletive into an outstretched catchphrase.`\
 https://nytimes.com/2025/12/30/arts/television/isiah-whitlock-jr-dead.html

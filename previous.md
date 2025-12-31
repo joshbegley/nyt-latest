@@ -1,3 +1,7 @@
+**Josh Giddey expected to miss next few weeks with left hamstring strain**\
+`Giddey’s extended absence adds to a series of brutal blows for the Bulls.`\
+https://nytimes.com/athletic/6930920/2025/12/30/josh-giddey-injury-update-left-hamstring-out/
+
 **Justice Dept. Now Said to Be Reviewing 5.2 Million Pages of Epstein Files**\
 `The number represents a more precise, and potentially much larger, figure than earlier estimates. The department is seeking to enlist about 400 lawyers to help in the review.`\
 https://nytimes.com/2025/12/30/us/politics/esptein-files-5-million-pages.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/30/us/politics/hhs-minnesota-funds-day-care-fraud.ht
 **To the World, She Was a Kennedy. To Me, She Was a Rookie Ready to Work.**\
 `Tatiana Schlossberg, who died on Tuesday, was the granddaughter of John F. Kennedy. But as a journalist, her first editor remembers, she insisted on putting in the work.`\
 https://nytimes.com/2025/12/30/us/tatiana-schlossberg-journalist-kennedy.html
-
-**Dbacks' GM provides update on Ketel Marte trade talks, expects decision 'shortly'**\
-`A Silver Slugger award winner in each of the past two seasons, Marte is signed through the 2030 season. `\
-https://nytimes.com/athletic/6930636/2025/12/30/arizona-diamondbacks-ketel-marte-trade-talks-update/
 
