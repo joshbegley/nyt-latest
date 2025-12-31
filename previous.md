@@ -1,3 +1,7 @@
+**The Keys to the City of New York Are Made in New Jersey**\
+`Mayor Eric Adams has handed out dozens of ceremonial golden keys during his single term. Since 2023, they have come from across the Hudson River.`\
+https://nytimes.com/2025/12/31/nyregion/adams-nyc-keys-to-city.html
+
 **For the Knicks, every day provides a new Tyler Kolek**\
 `The New York Knicks wanted a coach who was willing to experiment with lineups in-season to unlock postseason success.`\
 https://nytimes.com/athletic/6931037/2025/12/31/mike-brown-knicks-coach-rotation-experiment/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6931655/2025/12/31/kylian-mbappe-real-madrid-injury
 **Under pressure: Why these five teams desperately need to make a trade (or two)**\
 `With Hawks, Lakers, Warriors and more feeling the pressure, here's what they're considering ahead of the trade deadline.`\
 https://nytimes.com/athletic/6931252/2025/12/31/nba-trade-rumors-lakers-warriors-clippers-hawks-bucks/
-
-**He Is Being Sued in the U.S. for Human Rights Abuses. He Could be Deported First.**\
-`Rafael Quero Silva faces a lawsuit brought by five people who say he oversaw their abuse and mistreatment as a military officer in Venezuela. But he could be deported before the case is heard.`\
-https://nytimes.com/2025/12/31/world/americas/human-rights-lawsuit-quero-silva.html
 

@@ -1,3 +1,7 @@
+**The Keys to the City of New York Are Made in New Jersey**\
+`Mayor Eric Adams has handed out dozens of ceremonial golden keys during his single term. Since 2023, they have come from across the Hudson River.`\
+https://nytimes.com/2025/12/31/nyregion/adams-nyc-keys-to-city.html
+
 **For the Knicks, every day provides a new Tyler Kolek**\
 `The New York Knicks wanted a coach who was willing to experiment with lineups in-season to unlock postseason success.`\
 https://nytimes.com/athletic/6931037/2025/12/31/mike-brown-knicks-coach-rotation-experiment/
