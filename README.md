@@ -1,3 +1,11 @@
+**Federal Judge Blocks Trump Move to Revoke Deportation Protection for Thousands of Migrants**\
+`The ruling found that the administration’s cancellation of the protections for migrants from Honduras, Nepal and Nicaragua was illegal.`\
+https://nytimes.com/2025/12/31/us/politics/judge-blocks-deportation-protections.html
+
+**The Best Movies and TV Shows Coming to Netflix in January**\
+`The first month of 2026 includes the latest Harlan Coben adaptation and the return of “Bridgerton.”`\
+https://nytimes.com/2025/12/31/arts/television/netflix-new-january-bridgerton.html
+
 **The Best Tabletop Party Games **\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/the-best-tabletop-party-games-
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6932512/2025/12/31/pascal-gross-brighton-borussia-d
 **Packers claim former Cowboys cornerback Trevon Diggs: Source**\
 `The two-time Pro Bowl corner could help a shorthanded Green Bay secondary.`\
 https://nytimes.com/athletic/6932532/2025/12/31/packers-signing-trevon-diggs/
-
-**NFL Week 18 staff picks: Survival, seeding and top spots on the line**\
-`Only two playoff spots are still up for grabs, but playoff seeding is still at stake for most of the teams in the playoff picture.`\
-https://nytimes.com/athletic/6931268/2025/12/31/nfl-week-18-staff-picks/
-
-**T Magazine’s Most-Read Art and Culture Features From 2025**\
-`A look at Japan’s microseasons, a retrospective on Gen X and more: These were readers’ 15 favorite stories.`\
-https://nytimes.com/2025/12/31/t-magazine/favorite-art-culture-stories.html
 
