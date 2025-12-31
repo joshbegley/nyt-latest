@@ -1,3 +1,7 @@
+**Sabotage Suspected in Cutting of Undersea Cable, Finnish Police Say**\
+`The authorities seized the Fitburg, a cargo ship that was en route from Russia to Israel when it sliced the cable in the Gulf of Finland.`\
+https://nytimes.com/2025/12/31/world/europe/underwater-cable-damaged-sabotage-finland-estonia.html
+
 **Mamdani Reverses Call to End Mayoral Control of Public Schools**\
 `The mayor-elect’s turnaround came as he selected Kamar Samuels to lead New York City’s school system at a precarious moment.`\
 https://nytimes.com/2025/12/31/nyregion/mamdani-nyc-public-schools-mayoral-control.html
