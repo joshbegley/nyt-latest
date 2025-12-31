@@ -1,3 +1,11 @@
+**Trump Administration Live Updates: Justice Dept. Is Said to Be Reviewing 5 Million Pages of Epstein Files**\
+``\
+https://nytimes.com/live/2025/12/31/us/trump-news
+
+**Lowetide: Why the Oilers' goalie tandem turnover looks like a winner**\
+`Since trading Stuart Skinner, Edmonton has received excellent goaltending no matter who's in net.`\
+https://nytimes.com/athletic/6929420/2025/12/31/edmonton-oilers-goalies-tristan-jarry-connor-ingram/
+
 **Warming Blue Jackets brace for New Year's Eve rematch with struggling Devils**\
 `The last meeting between the Blue Jackets and Devils on Dec. 1 was a fight-filled, unexpectedly chaotic game.
 `\
