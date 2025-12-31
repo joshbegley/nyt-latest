@@ -1,3 +1,15 @@
+**Arsenal have delivered the statement victory they needed**\
+`An emphatic win over a title rival answered many of the questions that had been bubbling up around Mikel Arteta's side`\
+https://nytimes.com/athletic/6930710/2025/12/31/arsenal-aston-villa-statement-win/
+
+**Last Orders, London?**\
+`A tale of two cities, told through its pubs.`\
+https://nytimes.com/2025/12/31/opinion/london-pubs.html
+
+**The New York Times in Print for Wednesday, Dec. 31, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/12/31/todays-new-york-times
+
 **Liverpool need to take set pieces seriously. A specialist coach would be a good start**\
 `With dead balls more important than ever, Liverpool need to appoint a best-in-class coach to improve an obvious weakness`\
 https://nytimes.com/athletic/6929507/2025/12/31/liverpool-set-piece-coach/
