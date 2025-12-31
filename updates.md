@@ -1,3 +1,7 @@
+**It’s Going to Be a Cold New Year’s Eve for Much of the U.S.**\
+`Some of the season’s most frigid temperatures are expected this week.`\
+https://nytimes.com/2025/12/31/weather/cold-forecast-new-years-eve.html
+
 **An Intense White House Response From a Single Viral Video**\
 `A video purporting to expose extensive fraud at child care centers in Minnesota shows the relationship between the Trump administration and self-described citizen journalists.`\
 https://nytimes.com/2025/12/31/business/media/trump-conservatives-videos-viral-loop.html
