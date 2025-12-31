@@ -1,3 +1,7 @@
+**Not taking Rangers' Adam Fox to the Olympics would be a mistake for Team USA**\
+`Leaving one of the NHL's premier defensemen off the roster would be a big miss on the part of the American decision-makers.`\
+https://nytimes.com/athletic/6932514/2025/12/31/usa-olympic-hockey-roster-adam-fox-rangers/
+
 **Florida WR Dallas Wilson to remain in Gainesville for 2026 season**\
 `In 2025, Wilson caught 12 passes for 174 yards and three touchdowns.`\
 https://nytimes.com/athletic/6932606/2025/12/31/dallas-wilson-will-return-florida-2026/
