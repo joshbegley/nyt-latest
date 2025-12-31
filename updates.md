@@ -1,3 +1,7 @@
+**Jacqueline de Ribes, Tastemaker and Fashion Avatar, Dies at 96**\
+`One of few people in the world of style who could legitimately claim the status of icon, she dressed to impress even before she became a designer.`\
+https://nytimes.com/2025/12/31/style/jacqueline-de-ribes-dead.html
+
 **Sabotage Suspected in Cutting of Undersea Cable, Finnish Police Say**\
 `The authorities seized the Fitburg, a cargo ship that was en route from Russia to Israel when it sliced the cable in the Gulf of Finland.`\
 https://nytimes.com/2025/12/31/world/europe/underwater-cable-damaged-sabotage-finland-estonia.html
