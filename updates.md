@@ -1,3 +1,11 @@
+**Manchester United right now: Annoying or embarrassing?**\
+`Amorim's side have moved on from last season, but the draw against a historically bad Wolves was met with a smattering of boos.`\
+https://nytimes.com/athletic/6928692/2025/12/31/man-united-amorim-annoying-embarrassing/
+
+**Maresca had a bad December. He cannot afford a poor January**\
+`The Italian is under mounting scrutiny after a poor run of form and next month's schedule looks just as daunting`\
+https://nytimes.com/athletic/6930820/2025/12/31/enzo-maresca-chelsea-manager-pressure/
+
 **Arsenal have delivered the statement victory they needed**\
 `An emphatic win over a title rival answered many of the questions that had been bubbling up around Mikel Arteta's side`\
 https://nytimes.com/athletic/6930710/2025/12/31/arsenal-aston-villa-statement-win/
