@@ -1,3 +1,7 @@
+**For the Knicks, every day provides a new Tyler Kolek**\
+`The New York Knicks wanted a coach who was willing to experiment with lineups in-season to unlock postseason success.`\
+https://nytimes.com/athletic/6931037/2025/12/31/mike-brown-knicks-coach-rotation-experiment/
+
 **In 2025, the Canadiens' success went from surprising to sustainable**\
 `The Canadiens completed the calendar year with a win on the road against the Panthers, much like last year. But this feels different.`\
 https://nytimes.com/athletic/6931103/2025/12/31/montreal-canadiens-success-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6931252/2025/12/31/nba-trade-rumors-lakers-warriors
 **He Is Being Sued in the U.S. for Human Rights Abuses. He Could be Deported First.**\
 `Rafael Quero Silva faces a lawsuit brought by five people who say he oversaw their abuse and mistreatment as a military officer in Venezuela. But he could be deported before the case is heard.`\
 https://nytimes.com/2025/12/31/world/americas/human-rights-lawsuit-quero-silva.html
-
-**The keys to the Pistons' win over the Lakers? Soccer, selflessness and Sasser**\
-`Detroit took some time to decompress and then got an unexpected boost from a previously little-used role player, showing off its depth.`\
-https://nytimes.com/athletic/6931423/2025/12/31/pistons-marcus-sasser-lakers-win/
 
