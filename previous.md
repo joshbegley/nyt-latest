@@ -1,3 +1,19 @@
+**How to watch Georgia Tech vs. Duke men's basketball: Time, TV, streaming**\
+`Find out how to watch the Georgia Tech Yellow Jackets play the Duke Blue Devils, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6931615/2025/12/31/georgia-tech-vs-duke-stream-how-to-watch-dec-31/
+
+**How to watch Iowa State vs. Houston women's basketball: Time, TV, streaming**\
+`Find out how to watch the Iowa State Cyclones play the Houston Cougars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6931612/2025/12/31/iowa-state-vs-houston-stream-how-to-watch-dec-31/
+
+**How to watch Baylor vs. Oklahoma State women's basketball: Time, TV, streaming**\
+`Find out how to watch the Baylor Bears play the Oklahoma State Cowgirls, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6931594/2025/12/31/baylor-vs-oklahoma-state-stream-how-to-watch-dec-31/
+
+**How to watch Virginia vs. Virginia Tech men's basketball: Time, TV, streaming**\
+`Find out how to watch the Virginia Cavaliers play the Virginia Tech Hokies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6931585/2025/12/31/virginia-vs-virginia-tech-stream-how-to-watch-dec-31/
+
 **VJ Edgecombe's game-winner shows why Sixers 'are blessed to have him'**\
 `On a night when both Tyrese Maxey and Joel Embiid were cooking, the rookie was the guy Philly turned to in clutch time against Memphis.`\
 https://nytimes.com/athletic/6931085/2025/12/31/vj-edgecombe-sixers-game-winner-rookie/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6931134/2025/12/31/derrick-white-celtics-shot-block
 **Ex-Real Madrid, Brazil defender Roberto Carlos undergoes heart surgery**\
 `Roberto Carlos, 52, underwent the operation in Brazil after initially being submitted to hospital to have tests on his leg.`\
 https://nytimes.com/athletic/6931471/2025/12/31/roberto-carlos-heart-surgery-brazil-real-madrid/
-
-**Analysed: How Arsenal tightened the screw as Arteta righted the wrongs against Villa**\
-`Arsenal doubled down on their strengths in pressing high. It took some time to click, but it was crucial to their success against Villa`\
-https://nytimes.com/athletic/6931285/2025/12/31/arsenal-aston-villa-analysis/
-
-**From FCS to SEC: New Arkansas GM details rise in college football's new era**\
-`Before taking the job at Arkansas, Gaizka Crowley  helped construct a roster that produced one of the biggest FBS turnarounds at Arizona.`\
-https://nytimes.com/athletic/6882942/2025/12/31/gaizka-crowley-arkansas-football-gm-arizona/
-
-**MLB’s Strange But True 2025: Wildest hitting and pitching feats of the year**\
-`We’ve reached the end of 2025 — and the final piece in our Strange But True series. Presenting the hitting and pitching feats of the year!`\
-https://nytimes.com/athletic/6931365/2025/12/31/mlb-wild-hitting-pitching-facts-2025/
-
-**College Football Playoff watch guide: Broadcast info for New Year's quarterfinal games**\
-`The College Football Playoff bracket branches into New Year's Eve and New Year's Day, with four games spread from Bourbon St. to Pasadena.`\
-https://nytimes.com/athletic/6927961/2025/12/31/cfp-watch-guide-ohio-state-miami-indiana-alabama-tv-schedule/
 

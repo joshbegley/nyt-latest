@@ -1,3 +1,19 @@
+**How to watch Georgia Tech vs. Duke men's basketball: Time, TV, streaming**\
+`Find out how to watch the Georgia Tech Yellow Jackets play the Duke Blue Devils, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6931615/2025/12/31/georgia-tech-vs-duke-stream-how-to-watch-dec-31/
+
+**How to watch Iowa State vs. Houston women's basketball: Time, TV, streaming**\
+`Find out how to watch the Iowa State Cyclones play the Houston Cougars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6931612/2025/12/31/iowa-state-vs-houston-stream-how-to-watch-dec-31/
+
+**How to watch Baylor vs. Oklahoma State women's basketball: Time, TV, streaming**\
+`Find out how to watch the Baylor Bears play the Oklahoma State Cowgirls, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6931594/2025/12/31/baylor-vs-oklahoma-state-stream-how-to-watch-dec-31/
+
+**How to watch Virginia vs. Virginia Tech men's basketball: Time, TV, streaming**\
+`Find out how to watch the Virginia Cavaliers play the Virginia Tech Hokies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6931585/2025/12/31/virginia-vs-virginia-tech-stream-how-to-watch-dec-31/
+
 **VJ Edgecombe's game-winner shows why Sixers 'are blessed to have him'**\
 `On a night when both Tyrese Maxey and Joel Embiid were cooking, the rookie was the guy Philly turned to in clutch time against Memphis.`\
 https://nytimes.com/athletic/6931085/2025/12/31/vj-edgecombe-sixers-game-winner-rookie/
