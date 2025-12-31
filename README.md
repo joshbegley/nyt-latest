@@ -1,3 +1,7 @@
+**Dbacks' GM provides update on Ketel Marte trade talks, expects decision 'shortly'**\
+`A Silver Slugger award winner in each of the past two seasons, Marte is signed through the 2030 season. `\
+https://nytimes.com/athletic/6930636/2025/12/30/arizona-diamondbacks-ketel-marte-trade-talks-update/
+
 **Mamdani Chooses a Veteran N.Y.C. Education Leader as Schools Chancellor**\
 `The selection of Kamar Samuels, who leads schools on the West Side of Manhattan, could help Mayor-elect Zohran Mamdani craft his schools agenda.`\
 https://nytimes.com/2025/12/30/nyregion/mamdani-schools-chancellor.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6930606/2025/12/30/how-to-watch-dolphins-vs-patriot
 **How to watch Commanders vs. Eagles: Time, TV, streaming**\
 `Find out how to watch the Washington Commanders play the Philadelphia Eagles, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6930597/2025/12/30/how-to-watch-commanders-vs-eagles-tv-channel-and-streaming-options-for-january-4/
-
-**How to watch Chargers vs. Broncos: Time, TV, streaming**\
-`Find out how to watch the Los Angeles Chargers play the Denver Broncos, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6930594/2025/12/30/how-to-watch-chargers-vs-broncos-tv-channel-and-streaming-options-for-january-4/
 
