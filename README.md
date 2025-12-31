@@ -1,3 +1,11 @@
+**Trump Vetoes 2 Bills, Drawing Accusations of Retaliation**\
+`The president said he blocked the bills to save taxpayers’ money. But he has grievances against a tribe in Florida and officials in Colorado.`\
+https://nytimes.com/2025/12/31/us/politics/trump-vetoes-retribution.html
+
+**How to watch Pelicans vs. Bulls: Time, TV, streaming**\
+`Find out how to watch the New Orleans Pelicans play the Chicago Bulls, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6932025/2025/12/31/pelicans-vs-bulls-stream-how-to-watch-dec-31/
+
 **How to watch Knicks vs. Spurs: Time, TV, streaming**\
 `Find out how to watch the New York Knicks play the San Antonio Spurs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6932023/2025/12/31/knicks-vs-spurs-stream-how-to-watch-dec-31/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6931124/2025/12/31/vancouver-canucks-standings-rebu
 **The Athletic's sports business predictions for 2026: MoneyCall**\
 `A range of reporters and editors from across The Athletic weigh in with sport-specific sports-business predictions for 2026.`\
 https://nytimes.com/athletic/6931621/2025/12/31/sports-business-predictions-2026-moneycall/
-
-**Hoppin’ John, Coconut Saag and Golden Potato and Greens Soup**\
-`Lively, lovely recipes to kick off the new year.`\
-https://nytimes.com/2025/12/31/dining/hoppin-john-coconut-saag-and-golden-potato-and-greens-soup.html
-
-**Fantasy trends and hidden gems: Steven Stamkos' resurgence; Igor Chernyshov's opportunity**\
-`Shayna Goldman points fantasy hockey managers towards the best waiver wire help while offering guidance for the tricky NHL holiday slate.`\
-https://nytimes.com/athletic/6930491/2025/12/31/fantasy-trends-and-hidden-gems-steven-stamkos-resurgence-igor-chernyshovs-opportunity/
 
