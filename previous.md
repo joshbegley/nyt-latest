@@ -1,3 +1,7 @@
+**Super Bowl odds: Should the 49ers get more love?**\
+`The NFC West has three teams in the top five of Super Bowl odds. Two of them play this Saturday.`\
+https://nytimes.com/athletic/6931875/2025/12/31/super-bowl-odds-rams-seahawks-broncos-49ers/
+
 **Trump Vetoes 2 Bills, Drawing Accusations of Retaliation**\
 `The president said he blocked the bills to save taxpayers’ money. But he has grievances against a tribe in Florida and officials in Colorado.`\
 https://nytimes.com/2025/12/31/us/politics/trump-vetoes-retribution.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6931989/2025/12/31/ucf-vs-texas-tech-stream-how-to-
 **Why 2025 was the year a rebuild became undeniable for the Canucks**\
 `After trading Quinn Hughes, the Canucks must accept their place at the bottom of the NHL standings.`\
 https://nytimes.com/athletic/6931124/2025/12/31/vancouver-canucks-standings-rebuild-2025/
-
-**The Athletic's sports business predictions for 2026: MoneyCall**\
-`A range of reporters and editors from across The Athletic weigh in with sport-specific sports-business predictions for 2026.`\
-https://nytimes.com/athletic/6931621/2025/12/31/sports-business-predictions-2026-moneycall/
 
