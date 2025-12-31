@@ -1,3 +1,11 @@
+**Health Dept. Pauses Child Care Funding to Minnesota, Citing State’s Fraud Scandal**\
+`The pause affects a funding stream that provides $185 million in annual aid to the state’s day care centers, as federal investigations into fraud in Minnesota’s social services programs continue.`\
+https://nytimes.com/2025/12/30/us/politics/hhs-minnesota-funds-day-care-fraud.html
+
+**To the World, She Was a Kennedy. To Me, She Was a Rookie Ready to Work.**\
+`Tatiana Schlossberg, who died on Tuesday, was the granddaughter of John F. Kennedy. But as a journalist, her first editor remembers, she insisted on putting in the work.`\
+https://nytimes.com/2025/12/30/us/tatiana-schlossberg-journalist-kennedy.html
+
 **Dbacks' GM provides update on Ketel Marte trade talks, expects decision 'shortly'**\
 `A Silver Slugger award winner in each of the past two seasons, Marte is signed through the 2030 season. `\
 https://nytimes.com/athletic/6930636/2025/12/30/arizona-diamondbacks-ketel-marte-trade-talks-update/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6930624/2025/12/30/how-to-watch-chiefs-vs-raiders-t
 **How to watch Jets vs. Bills: Time, TV, streaming**\
 `Find out how to watch the New York Jets play the Buffalo Bills, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6930618/2025/12/30/how-to-watch-jets-vs-bills-tv-channel-and-streaming-options-for-january-4/
-
-**How to watch Dolphins vs. Patriots: Time, TV, streaming**\
-`Find out how to watch the Miami Dolphins play the New England Patriots, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6930606/2025/12/30/how-to-watch-dolphins-vs-patriots-tv-channel-and-streaming-options-for-january-4/
-
-**How to watch Commanders vs. Eagles: Time, TV, streaming**\
-`Find out how to watch the Washington Commanders play the Philadelphia Eagles, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6930597/2025/12/30/how-to-watch-commanders-vs-eagles-tv-channel-and-streaming-options-for-january-4/
 
