@@ -1,3 +1,7 @@
+**Sabotage Suspected in Cutting of Undersea Cable, Finnish Police Say**\
+`The authorities seized the Fitburg, a cargo ship that was en route from Russia to Israel when it sliced the cable in the Gulf of Finland.`\
+https://nytimes.com/2025/12/31/world/europe/underwater-cable-damaged-sabotage-finland-estonia.html
+
 **Mamdani Reverses Call to End Mayoral Control of Public Schools**\
 `The mayor-elect’s turnaround came as he selected Kamar Samuels to lead New York City’s school system at a precarious moment.`\
 https://nytimes.com/2025/12/31/nyregion/mamdani-nyc-public-schools-mayoral-control.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6932401/2025/12/31/iowa-vanderbilt-mark-gronowski-d
 **Veto of Water Project Is Trump’s Latest Targeted Hit on Colorado**\
 `The president seems to be at war with the Democratic-led state as he raises the pressure on Colorado leaders to release a convicted election denier, Tina Peters, from state prison.`\
 https://nytimes.com/2025/12/31/us/politics/trump-veto-water-project-colorado.html
-
-**Meet the Ship Taking Us to Antarctica**\
-`Our climate reporter Raymond Zhong gives a tour of the Araon, the South Korean icebreaker that will take him, our photographer and a team of scientists to Antarctica.`\
-https://nytimes.com/video/climate/100000010606068/meet-the-ship-taking-us-to-antarctica.html
 

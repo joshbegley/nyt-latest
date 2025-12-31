@@ -1,3 +1,7 @@
+**Mamdani Reverses Call to End Mayoral Control of Public Schools**\
+`The mayor-elect’s turnaround came as he selected Kamar Samuels to lead New York City’s school system at a precarious moment.`\
+https://nytimes.com/2025/12/31/nyregion/mamdani-nyc-public-schools-mayoral-control.html
+
 **Trump Abandons Efforts to Deploy National Guard to 3 Major Cities**\
 `The troops had an almost nonexistent presence in two of the cities, Portland and Chicago, because of court fights to their deployment.`\
 https://nytimes.com/2025/12/31/us/politics/trump-national-guard.html
