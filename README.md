@@ -1,3 +1,7 @@
+**Ex-Real Madrid, Brazil defender Roberto Carlos undergoes heart surgery**\
+`Roberto Carlos, 52, underwent the operation in Brazil after initially being submitted to hospital to have tests on his leg.`\
+https://nytimes.com/athletic/6931471/2025/12/31/roberto-carlos-heart-surgery-brazil-real-madrid/
+
 **Analysed: How Arsenal tightened the screw as Arteta righted the wrongs against Villa**\
 `Arsenal doubled down on their strengths in pressing high. It took some time to click, but it was crucial to their success against Villa`\
 https://nytimes.com/athletic/6931285/2025/12/31/arsenal-aston-villa-analysis/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6930658/2025/12/31/49ers-contract-incentives-kendri
 **College Football Playoff oddly specific predictions: Will Miami upset Ohio State?**\
 `Can Ole Miss win in a rematch with Georgia? Why Indiana's run game will be the difference and more oddly specific Playoff predictions. `\
 https://nytimes.com/athletic/6930423/2025/12/31/college-football-playoff-predictions-miami-ohio-state/
-
-**'I trust the team': Wild coach John Hynes' steady, calm demeanor big reason for turnaround**\
-`Hynes was never rattled during Minnesota's rough start, and his team found its footing because of it, leaping to third in the NHL standings.`\
-https://nytimes.com/athletic/6930363/2025/12/31/wild-coach-john-hynes-nhl-season-standings/
 
