@@ -2,7 +2,7 @@
 `The Kremlin leader kept his speech short, spoke only briefly about the fighting in Ukraine, and did not mention U.S.-mediated talks on ending the war.`\
 https://nytimes.com/2025/12/31/world/europe/russia-putin-new-years-address.html
 
-**Canada announces men's hockey roster for Milan Olympics: Snubs, surprises and expectations**\
+**Canada announces men's hockey roster for 2026 Olympics: Snubs, surprises and expectations**\
 `Canada leaned into its experience after winning 4 Nations, but five players from that roster weren't announced for the Olympic team.`\
 https://nytimes.com/athletic/6931914/2025/12/31/canada-roster-milan-olympics-mens-hockey/
 
