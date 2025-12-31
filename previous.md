@@ -1,3 +1,7 @@
+**Tatiana Schlossberg’s Death: ‘Inexpressibly Sad’**\
+`Readers reflect on her life and the tragedies that have befallen the Kennedy family. Also: Protecting Planned Parenthood.`\
+https://nytimes.com/2025/12/31/opinion/tatiana-schlossberg-death-kennedys.html
+
 **Manhattan Man, 80, Faces Homicide Charge After Sidewalk Shoving**\
 `Dana Escoffier was indicted on a charge of criminally negligent homicide in the death of Dean Whetzel, 82, a neighbor whom he had known for decades.`\
 https://nytimes.com/2025/12/31/nyregion/nyc-man-homicide-charges-sidewalk-shoving.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6931914/2025/12/31/canada-roster-milan-olympics-men
 **Key Events in the Administration’s Pursuit of Abrego Garcia**\
 `In its parallel efforts to prosecute Mr. Abrego Garcia and to re-expel him from the country, the Justice Department has spent countless hours and untold sums of money pursuing a single immigrant.`\
 https://nytimes.com/2025/12/31/us/politics/abrego-garcia-timeline-trump.html
-
-**In Ukraine, a New Arsenal of Killer A.I. Drones Is Being Born**\
-`As the war grinds on, sophisticated Russian defenses have pushed Ukraine to develop a frightening new weapon: semiautonomous killing machines.`\
-https://nytimes.com/2025/12/31/magazine/ukraine-ai-drones-war-russia.html
 

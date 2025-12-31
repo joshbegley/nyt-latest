@@ -1,3 +1,7 @@
+**Tatiana Schlossberg’s Death: ‘Inexpressibly Sad’**\
+`Readers reflect on her life and the tragedies that have befallen the Kennedy family. Also: Protecting Planned Parenthood.`\
+https://nytimes.com/2025/12/31/opinion/tatiana-schlossberg-death-kennedys.html
+
 **Manhattan Man, 80, Faces Homicide Charge After Sidewalk Shoving**\
 `Dana Escoffier was indicted on a charge of criminally negligent homicide in the death of Dean Whetzel, 82, a neighbor whom he had known for decades.`\
 https://nytimes.com/2025/12/31/nyregion/nyc-man-homicide-charges-sidewalk-shoving.html
