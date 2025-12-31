@@ -1,6 +1,14 @@
+**Manchester United right now: Annoying or embarrassing?**\
+`Amorim's side have moved on from last season, but the draw against a historically bad Wolves was met with a smattering of boos.`\
+https://nytimes.com/athletic/6928692/2025/12/31/man-united-amorim-annoying-embarrassing/
+
 **Arsenal have delivered the statement victory they needed**\
 `An emphatic win over a title rival answered many of the questions that had been bubbling up around Mikel Arteta's side`\
 https://nytimes.com/athletic/6930710/2025/12/31/arsenal-aston-villa-statement-win/
+
+**Maresca had a bad December. He cannot afford a poor January**\
+`The Italian is under mounting scrutiny after a poor run of form and next month's schedule looks just as daunting`\
+https://nytimes.com/athletic/6930820/2025/12/31/enzo-maresca-chelsea-manager-pressure/
 
 **Last Orders, London?**\
 `A tale of two cities, told through its pubs.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6893620/2025/12/31/leeds-united-2025-review/
 **The big Fantasy Premier League review of 2025-26 (so far)**\
 `We asked our FPL experts to take a look back on 2025 and to preview what 2026 may bring, as well as the best strategies for January onwards`\
 https://nytimes.com/athletic/6928332/2025/12/31/fantasy-premier-league-review-of-the-year-fpl-tips/
-
-**Has Tottenham's year of change really set them up for 'more wins, more often'?**\
-`Spurs' new power-brokers insist on-pitch success is their priority - is the club now set up to achieve it?`\
-https://nytimes.com/athletic/6923901/2025/12/31/tottenham-levy-lewis-2025/
-
-**Nottingham Forest's expectation vs reality: What trajectory is Sean Dyche's side on?**\
-`After a bright start under Dyche, the expectation was Forest would not be drawn into a relegation fight. But they are not safe yet.`\
-https://nytimes.com/athletic/6930435/2025/12/31/forest-dyche-relegation-battle/
 
