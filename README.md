@@ -1,3 +1,7 @@
+**NASA’s Largest Library Is Closing Amid Staff and Lab Cuts**\
+`Holdings from the library at the Goddard Space Flight Center, which includes unique documents from the early 20th century to the Soviet space race, will be warehoused or thrown out.`\
+https://nytimes.com/2025/12/31/climate/nasa-goddard-library-closing.html
+
 **Snubbing Geekie and his goal scoring could hurt Canada when it matters**\
 `There will come a time during the Olympics when Canada needs a goal. It may be at that moment when they regret leaving Geekie at home.`\
 https://nytimes.com/athletic/6929640/2025/12/31/canada-olympics-morgan-geekie/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6932005/2025/12/31/christian-barmore-patriots-domes
 **Snub or sub? Injured Connor Bedard left off Canada's initial Olympic roster**\
 `Unless he finds his way onto the team as an injury replacement, Bedard will have to wait until Nice, France, in 2030.`\
 https://nytimes.com/athletic/6930717/2025/12/31/canada-2026-olympics-hockey-roster-connor-bedard-blackhawks/
-
-**A Heartbreaking Essay, Delivered Fully Formed**\
-`When Tatiana Schlossberg submitted an essay to The New Yorker, it had not been assigned or even expected. It was accepted immediately and barely edited.`\
-https://nytimes.com/2025/12/31/style/tatiana-schlossberg-new-yorker-essay-david-remnick.html
 
