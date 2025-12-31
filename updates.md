@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6930208/2025/12/31/blue-jackets-devils-new-years-eve-fights/
 
+**Warming Blue Jackets brace for New Year's Eve rematch with struggling Devils**\
+`The last meeting between the Blue Jackets and Devils on Dec. 1 was a fight-filled, unexpectedly chaotic game.
+`\
+https://nytimes.com/athletic/6930208/2025/12/31/blue-jackets-devils-new-years-eve-fights/
+
 **College Football Playoff watch guide: Broadcast info for New Year's quarterfinal games**\
 `The College Football Playoff bracket branches into New Year's Eve and New Year's Day, with four games spread from Bourbon St. to Pasadena.`\
 https://nytimes.com/athletic/6927961/2025/12/31/cfp-watch-guide-ohio-state-miami-indiana-alabama-tv-schedule/
