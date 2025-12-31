@@ -1,3 +1,7 @@
+**Thailand Releases 18 Cambodian P.O.W.s**\
+`The repatriation of the Cambodian soldiers captured in July comes on the heels of a 72-hour cease-fire that could end months of border skirmishes.`\
+https://nytimes.com/2025/12/31/world/asia/thailand-cambodia-pows.html
+
 **Tonight’s Ball Drop Is a Celebration of Both the New Year and Times History**\
 `The New York Times started the tradition in 1907, and this year’s ball drop will be a reminder that The Times played a role in making New Year’s Eve what it is.`\
 https://nytimes.com/2025/12/31/nyregion/new-year-ball-drop-new-york-times-square.html
