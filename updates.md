@@ -1,3 +1,7 @@
+**Trump Abandons Efforts to Deploy National Guard to 3 Major Cities**\
+`The troops had an almost nonexistent presence in two of the cities, Portland and Chicago, because of court fights to their deployment.`\
+https://nytimes.com/2025/12/31/us/politics/trump-national-guard.html
+
 **Brighton agree deal to re-sign Pascal Gross from Borussia Dortmund**\
 `Gross, 34, is set to have a medical with Brighton ahead of returning to the Premier League after 18 months in Germany.`\
 https://nytimes.com/athletic/6932512/2025/12/31/pascal-gross-brighton-borussia-dortmund-transfer/

@@ -1,3 +1,7 @@
+**Trump Abandons Efforts to Deploy National Guard to 3 Major Cities**\
+`The troops had an almost nonexistent presence in two of the cities, Portland and Chicago, because of court fights to their deployment.`\
+https://nytimes.com/2025/12/31/us/politics/trump-national-guard.html
+
 **Brighton agree deal to re-sign Pascal Gross from Borussia Dortmund**\
 `Gross, 34, is set to have a medical with Brighton ahead of returning to the Premier League after 18 months in Germany.`\
 https://nytimes.com/athletic/6932512/2025/12/31/pascal-gross-brighton-borussia-dortmund-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/video/climate/100000010606068/meet-the-ship-taking-us-to-ant
 **How to watch Flyers vs. Flames: Time, TV, streaming**\
 `Find out how to watch the Philadelphia Flyers play the Calgary Flames, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6932464/2025/12/31/flyers-vs-flames-stream-how-to-watch-dec-31/
-
-**How to watch Wizards vs. Bucks: Time, TV, streaming**\
-`Find out how to watch the Washington Wizards play the Milwaukee Bucks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6932462/2025/12/31/wizards-vs-bucks-stream-how-to-watch-dec-31/
 

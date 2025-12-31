@@ -1,3 +1,7 @@
+**Mamdani Reverses Call to End Mayoral Control of Public Schools**\
+`The mayor-elect’s turnaround came as he selected Kamar Samuels to lead New York City’s school system at a precarious moment.`\
+https://nytimes.com/2025/12/31/nyregion/mamdani-nyc-public-schools-mayoral-control.html
+
 **Trump Abandons Efforts to Deploy National Guard to 3 Major Cities**\
 `The troops had an almost nonexistent presence in two of the cities, Portland and Chicago, because of court fights to their deployment.`\
 https://nytimes.com/2025/12/31/us/politics/trump-national-guard.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/31/us/politics/trump-veto-water-project-colorado.htm
 **Meet the Ship Taking Us to Antarctica**\
 `Our climate reporter Raymond Zhong gives a tour of the Araon, the South Korean icebreaker that will take him, our photographer and a team of scientists to Antarctica.`\
 https://nytimes.com/video/climate/100000010606068/meet-the-ship-taking-us-to-antarctica.html
-
-**How to watch Flyers vs. Flames: Time, TV, streaming**\
-`Find out how to watch the Philadelphia Flyers play the Calgary Flames, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6932464/2025/12/31/flyers-vs-flames-stream-how-to-watch-dec-31/
 
