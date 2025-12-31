@@ -1,3 +1,15 @@
+**Arsenal have delivered the statement victory they needed**\
+`An emphatic win over a title rival answered many of the questions that had been bubbling up around Mikel Arteta's side`\
+https://nytimes.com/athletic/6930710/2025/12/31/arsenal-aston-villa-statement-win/
+
+**Last Orders, London?**\
+`A tale of two cities, told through its pubs.`\
+https://nytimes.com/2025/12/31/opinion/london-pubs.html
+
+**The New York Times in Print for Wednesday, Dec. 31, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/12/31/todays-new-york-times
+
 **Liverpool need to take set pieces seriously. A specialist coach would be a good start**\
 `With dead balls more important than ever, Liverpool need to appoint a best-in-class coach to improve an obvious weakness`\
 https://nytimes.com/athletic/6929507/2025/12/31/liverpool-set-piece-coach/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6923901/2025/12/31/tottenham-levy-lewis-2025/
 **Nottingham Forest's expectation vs reality: What trajectory is Sean Dyche's side on?**\
 `After a bright start under Dyche, the expectation was Forest would not be drawn into a relegation fight. But they are not safe yet.`\
 https://nytimes.com/athletic/6930435/2025/12/31/forest-dyche-relegation-battle/
-
-**Crystal Palace's 2025: FA Cup glory at Wembley, a European debut and THAT unbeaten run**\
-`Oliver Glasner's side made history as they defied all expectations to bring a first major trophy back to Selhurst Park`\
-https://nytimes.com/athletic/6907361/2025/12/31/crystal-palaces-2025-fa-cup-glory-at-wembley-a-european-debut-and-that-unbeaten-run/
-
-**James Garner's inspired performance gives depleted Everton cause for hope**\
-`Everton are sitting pretty under David Moyes, and Garner has played a big role in that`\
-https://nytimes.com/athletic/6930348/2025/12/31/james-garner-everton-nottingham-forest/
-
-**Arctic Blast Grips U.S. Ahead of the New Year**\
-`As people in the United States prepared to ring in the new year, temperatures plunged as much as 20 degrees below normal across much of the country.`\
-https://nytimes.com/video/us/100000010616655/cold-forecast-new-years-eve.html
 
