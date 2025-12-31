@@ -1,3 +1,7 @@
+**Key Events in the Administration’s Pursuit of Abrego Garcia**\
+`In its parallel efforts to prosecute Mr. Abrego Garcia and to re-expel him from the country, the Justice Department has spent countless hours and untold sums of money pursuing a single immigrant.`\
+https://nytimes.com/2025/12/31/us/politics/abrego-garcia-timeline-trump.html
+
 **In Ukraine, a New Arsenal of Killer A.I. Drones Is Being Born**\
 `As the war grinds on, sophisticated Russian defenses have pushed Ukraine to develop a frightening new weapon: semiautonomous killing machines.`\
 https://nytimes.com/2025/12/31/magazine/ukraine-ai-drones-war-russia.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6932008/2025/12/31/jets-vs-red-wings-stream-how-to-
 **How to watch UConn vs. Xavier men's basketball: Time, TV, streaming**\
 `Find out how to watch the UConn Huskies play the Xavier Musketeers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6931997/2025/12/31/uconn-vs-xavier-stream-how-to-watch-dec-31/
-
-**How to watch UCF vs. Texas Tech women's basketball: Time, TV, streaming**\
-`Find out how to watch the UCF Knights play the Texas Tech Lady Raiders, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6931989/2025/12/31/ucf-vs-texas-tech-stream-how-to-watch-dec-31/
 

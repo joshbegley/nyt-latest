@@ -1,3 +1,7 @@
+**Key Events in the Administration’s Pursuit of Abrego Garcia**\
+`In its parallel efforts to prosecute Mr. Abrego Garcia and to re-expel him from the country, the Justice Department has spent countless hours and untold sums of money pursuing a single immigrant.`\
+https://nytimes.com/2025/12/31/us/politics/abrego-garcia-timeline-trump.html
+
 **In Ukraine, a New Arsenal of Killer A.I. Drones Is Being Born**\
 `As the war grinds on, sophisticated Russian defenses have pushed Ukraine to develop a frightening new weapon: semiautonomous killing machines.`\
 https://nytimes.com/2025/12/31/magazine/ukraine-ai-drones-war-russia.html
