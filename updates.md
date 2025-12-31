@@ -1,3 +1,7 @@
+**2026 sports media predictions: World Cup, Olympics and ...TV's Aaron Rodgers?**\
+`What should viewers expect in sports media in 2026? For starters, a massive audience for the World Cup next summer.`\
+https://nytimes.com/athletic/6918673/2025/12/31/sports-media-predictions-2026-world-cup-fox/
+
 **Is Carson Beck 'misunderstood' as Miami's quarterback?**\
 `Miami's transfer from Georgia is a lightning rod — and you may have to go beyond the box score to understand his full impact.`\
 https://nytimes.com/athletic/6930142/2025/12/31/carson-beck-miami-ohio-state-cotton-bowl-cfp/

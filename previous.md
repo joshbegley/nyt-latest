@@ -18,7 +18,7 @@ https://nytimes.com/athletic/6929746/2025/12/31/the-athletic-wrapped-2025-the-pu
 `Something was in the air and on the horizon this year. The sports we love gave us incredible, indelible finishes all across 2025.`\
 https://nytimes.com/athletic/6929777/2025/12/31/best-games-2025-nba-nfl-soccer-ohtani-mcilroy/
 
-**2026 Sports Media Predictions: World Cup, Olympics and ...TV's Aaron Rodgers?**\
+**2026 sports media predictions: World Cup, Olympics and ...TV's Aaron Rodgers?**\
 `What should viewers expect in sports media in 2026? For starters, a massive audience for the World Cup next summer.`\
 https://nytimes.com/athletic/6918673/2025/12/31/sports-media-predictions-2026-world-cup-fox/
 
