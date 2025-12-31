@@ -1,3 +1,7 @@
+**VJ Edgecombe's game-winner shows why Sixers 'are blessed to have him'**\
+`On a night when both Tyrese Maxey and Joel Embiid were cooking, the rookie was the guy Philly turned to in clutch time against Memphis.`\
+https://nytimes.com/athletic/6931085/2025/12/31/vj-edgecombe-sixers-game-winner-rookie/
+
 **Trump Administration Live Updates: Justice Dept. Is Said to Be Reviewing 5 Million Pages of Epstein Files**\
 ``\
 https://nytimes.com/live/2025/12/31/us/trump-news
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6931365/2025/12/31/mlb-wild-hitting-pitching-facts-
 **College Football Playoff watch guide: Broadcast info for New Year's quarterfinal games**\
 `The College Football Playoff bracket branches into New Year's Eve and New Year's Day, with four games spread from Bourbon St. to Pasadena.`\
 https://nytimes.com/athletic/6927961/2025/12/31/cfp-watch-guide-ohio-state-miami-indiana-alabama-tv-schedule/
-
-**Why the Red Wings should add to their blue line at the trade deadline**\
-`The Red Wings season has gone about as well as it could so far, but Detroit would benefit from an upgrade on the blue line. `\
-https://nytimes.com/athletic/6929847/2025/12/31/red-wings-nhl-trade-deadline-need-midseason/
 
