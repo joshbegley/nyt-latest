@@ -1,3 +1,7 @@
+**Relationship Between U.S. and Germany Is ‘Changing,’ German Leader Says**\
+`Chancellor Friedrich Merz of Germany, making his New Year’s Eve address, said the change would force Europe to do more to defend itself.`\
+https://nytimes.com/2025/12/31/world/europe/merz-germany-new-years-speech.html
+
 **Newcastle recall Cordero from KVC Westerlo loan, will join Cadiz**\
 `Cordero returns to Spain after struggling for game time in Belgium.`\
 https://nytimes.com/athletic/6931696/2025/12/31/newcastle-transfer-news-cordero-cadiz-loan/
@@ -19,7 +23,7 @@ https://nytimes.com/2025/12/31/world/asia/bangladesh-zia-funeral.html
 https://nytimes.com/athletic/6931655/2025/12/31/kylian-mbappe-real-madrid-injury-news/
 
 **Under pressure: Why these five teams desperately need to make a trade (or two)**\
-`With Hawks, Lakers, Warriors, Bucks and Clippers feeling the pressure, here's what they're considering ahead of the NBA trade deadline.`\
+`With Hawks, Lakers, Warriors and more feeling the pressure, here's what they're considering ahead of the trade deadline.`\
 https://nytimes.com/athletic/6931252/2025/12/31/nba-trade-rumors-lakers-warriors-clippers-hawks-bucks/
 
 **He Is Being Sued in the U.S. for Human Rights Abuses. He Could be Deported First.**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6931423/2025/12/31/pistons-marcus-sasser-lakers-win
 **How to watch Magic vs. Pacers: Time, TV, streaming**\
 `Find out how to watch the Orlando Magic play the Indiana Pacers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6931641/2025/12/31/magic-vs-pacers-stream-how-to-watch-dec-31/
-
-**How to watch Suns vs. Cavaliers: Time, TV, streaming**\
-`Find out how to watch the Phoenix Suns play the Cleveland Cavaliers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6931639/2025/12/31/suns-vs-cavaliers-stream-how-to-watch-dec-31/
 

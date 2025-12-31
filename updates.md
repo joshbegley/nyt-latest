@@ -1,3 +1,11 @@
+**Relationship Between U.S. and Germany Is ‘Changing,’ German Leader Says**\
+`Chancellor Friedrich Merz of Germany, making his New Year’s Eve address, said the change would force Europe to do more to defend itself.`\
+https://nytimes.com/2025/12/31/world/europe/merz-germany-new-years-speech.html
+
+**Under pressure: Why these five teams desperately need to make a trade (or two)**\
+`With Hawks, Lakers, Warriors and more feeling the pressure, here's what they're considering ahead of the trade deadline.`\
+https://nytimes.com/athletic/6931252/2025/12/31/nba-trade-rumors-lakers-warriors-clippers-hawks-bucks/
+
 **Newcastle recall Cordero from KVC Westerlo loan, will join Cadiz**\
 `Cordero returns to Spain after struggling for game time in Belgium.`\
 https://nytimes.com/athletic/6931696/2025/12/31/newcastle-transfer-news-cordero-cadiz-loan/
