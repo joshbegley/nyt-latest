@@ -1,3 +1,15 @@
+**2026 Sports Media Predictions: World Cup, Olympics and ...TV's Aaron Rodgers?**\
+`What should viewers expect in sports media in 2026? For starters, a massive audience for the World Cup next summer.`\
+https://nytimes.com/athletic/6918673/2025/12/31/sports-media-predictions-2026-world-cup-fox/
+
+**Where will Chiefs pick in 2026 NFL Draft? What we know — and how it might change**\
+`How much draft value will the Chiefs gain by picking in the top 10 of the first round in 2026? Here's what the numbers tell us.`\
+https://nytimes.com/athletic/6929598/2025/12/31/chiefs-nfl-draft-position-2026/
+
+**Bryce Young ready to flush Seattle dud, move on to Panthers' big matchup vs. Bucs**\
+`Young threw for 191 yards and two TDs in the Panthers' Week 16 win vs. the Bucs. Can he bounce back from his Seattle performance?`\
+https://nytimes.com/athletic/6930428/2025/12/31/panthers-bryce-young-bucs-playoffs/
+
 **Raw and flawed: The story behind the Vikings' disappointing 2025 season**\
 `The Kevin O'Connell-J.J. McCarthy pairing has yet to live up to expectations in what has been an underwhelming season for the Vikings.`\
 https://nytimes.com/athletic/6929970/2025/12/31/vikings-2025-season-disappointing-jj-mccarthy-kevin-oconnell/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6930662/2025/12/31/us-mens-hockey-roster-olympics-f
 **Why Eli Manning and his .500 record belong in the Hall of Fame**\
 `Despite Super Bowl rings and big plays, "Manning fatigue" may hurt his case. That would be a shame because Eli was a master of NFL moments.`\
 https://nytimes.com/athletic/6930396/2025/12/31/eli-manning-hall-of-fame-giants/
-
-**Amarius Mims' evolution: Bengals RT is showing why he was a first-round pick**\
-`The selling point for the No. 17 pick in the 2024 draft has always been potential and it appears he's starting to live up to it.`\
-https://nytimes.com/athletic/6929699/2025/12/31/amarius-mims-bengals-offensive-line/
-
-**Why Tulsa turned a 5-bedroom house with pool and mini golf into its transfer portal HQ**\
-`Tulsa wanted to think outside the box. It ended up moving into an amenity-filled Airbnb to have a place to host transfer recruits.`\
-https://nytimes.com/athletic/6930725/2025/12/31/tulsa-portal-house-football-transfer-window/
-
-**What we learned about the NHL in December: How the Sabres got their groove back**\
-`Can the Sabres end their 14-year playoff drought? Plus Mark Stone has the Golden Knight's power play cooking again and stars of the month.`\
-https://nytimes.com/athletic/6929857/2025/12/31/nhl-buffalo-sabres-win-streak-december/
 

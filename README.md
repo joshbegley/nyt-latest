@@ -1,40 +1,40 @@
-**2026 Sports Media Predictions: World Cup, Olympics and ...TV's Aaron Rodgers?**\
-`What should viewers expect in sports media in 2026? For starters, a massive audience for the World Cup next summer.`\
-https://nytimes.com/athletic/6918673/2025/12/31/sports-media-predictions-2026-world-cup-fox/
+**The Year in Video**\
+`We highlight some of The Times’s most-viewed videos of 2025.`\
+https://nytimes.com/2025/12/31/briefing/the-year-in-video.html
 
-**Where will Chiefs pick in 2026 NFL Draft? What we know — and how it might change**\
-`How much draft value will the Chiefs gain by picking in the top 10 of the first round in 2026? Here's what the numbers tell us.`\
-https://nytimes.com/athletic/6929598/2025/12/31/chiefs-nfl-draft-position-2026/
+**'6-7' is officially out with 2025. Here's what's 'in' for 2026**\
+`Think you know what's trending in sports? Get a preview of what will drive the conversation in 2026.`\
+https://nytimes.com/athletic/6930575/2025/12/31/outgoing-2025-trends-whats-in-2026/
 
-**Bryce Young ready to flush Seattle dud, move on to Panthers' big matchup vs. Bucs**\
-`Young threw for 191 yards and two TDs in the Panthers' Week 16 win vs. the Bucs. Can he bounce back from his Seattle performance?`\
-https://nytimes.com/athletic/6930428/2025/12/31/panthers-bryce-young-bucs-playoffs/
+**NFL executives weigh in how Dante Moore, other QBs in CFP can boost their draft stock**\
+`With the heightened intensity and competition of the new playoff format, NFL evaluators have a better chance than ever to grade QBs.`\
+https://nytimes.com/athletic/6927293/2025/12/31/nfl-draft-2026-fernando-mendoza-dante-moore-ty-simpson-college-football-playoff/
 
-**Raw and flawed: The story behind the Vikings' disappointing 2025 season**\
-`The Kevin O'Connell-J.J. McCarthy pairing has yet to live up to expectations in what has been an underwhelming season for the Vikings.`\
-https://nytimes.com/athletic/6929970/2025/12/31/vikings-2025-season-disappointing-jj-mccarthy-kevin-oconnell/
+**Tales from the unfriendly confines of Highmark Stadium's singular tunnel**\
+`The Bills will play their last home game at the stadium on Sunday.`\
+https://nytimes.com/athletic/6912540/2025/12/31/bills-last-game-highmark-stadium/
 
-**How Malik Willis revived his career with the Packers: 'I'd put him up against anybody'**\
-`Willis flamed out in Tennessee, but the 26-year-old has earned a shot to start somewhere else next season.`\
-https://nytimes.com/athletic/6930221/2025/12/31/malik-willis-packers-backup-quarterback/
+**How to watch Warriors vs. Hornets: Time, TV, streaming**\
+`Find out how to watch the Golden State Warriors play the Charlotte Hornets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6931371/2025/12/31/warriors-vs-hornets-stream-how-to-watch-dec-31/
 
-**Inter Miami’s Champions Tour and the business behind the Messi effect**\
-`Inter Miami’s preseason tour across Colombia, Peru, and Ecuador highlights the business, logistics behind Lionel Messi’s global draw. `\
-https://nytimes.com/athletic/6930055/2025/12/31/inter-miami-champions-tour-business-messi-effect/
+**How to watch Rangers vs. Capitals: Time, TV, streaming**\
+`Find out how to watch the New York Rangers play the Washington Capitals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6931368/2025/12/31/rangers-vs-capitals-stream-how-to-watch-dec-31/
 
-**Will too much "success" spoil Wizards' dreams of landing a franchise player?**\
-`Washington, sooner than it likely wants, is nearing a crossroads in its rebuild.`\
-https://nytimes.com/athletic/6927579/2025/12/31/will-too-much-success-spoil-the-wizards-dreams-of-landing-a-franchise-player/
+**How to watch Ohio State vs. Purdue women's basketball: Time, TV, streaming**\
+`Find out how to watch the Ohio State Buckeyes play the Purdue Boilermakers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6931348/2025/12/31/ohio-state-vs-purdue-stream-how-to-watch-dec-31/
 
-**40 years of Air Jordans: A longtime appreciation with multiple stories to tell**\
-`Have a favorite pair of the Air Jordan signature shoe? Employees at The Athletic, along with two sneakerheads, discussed their favorites.`\
-https://nytimes.com/athletic/6912023/2025/12/31/air-jordan-sneakers-nike-history/
+**It’s Going to Be a Cold New Year’s Eve for Much of the U.S.**\
+`Some of the season’s most frigid temperatures are expected this week.`\
+https://nytimes.com/2025/12/31/weather/cold-forecast-new-years-eve.html
 
-**U.S. men’s hockey roster is set, and Bill Guerin won't be second-guessing any decisions**\
-`Here's our final projection of who's in and who's out after management's final meeting and decisions.`\
-https://nytimes.com/athletic/6930662/2025/12/31/us-mens-hockey-roster-olympics-final-decisions/
+**An Intense White House Response From a Single Viral Video**\
+`A video purporting to expose extensive fraud at child care centers in Minnesota shows the relationship between the Trump administration and self-described citizen journalists.`\
+https://nytimes.com/2025/12/31/business/media/trump-conservatives-videos-viral-loop.html
 
-**Why Eli Manning and his .500 record belong in the Hall of Fame**\
-`Despite Super Bowl rings and big plays, "Manning fatigue" may hurt his case. That would be a shame because Eli was a master of NFL moments.`\
-https://nytimes.com/athletic/6930396/2025/12/31/eli-manning-hall-of-fame-giants/
+**A.I. Held Up Wall Street in 2025. Will That Continue?**\
+`The boom in artificial intelligence was the biggest driver of gains in the stock market. That could pose a risk in 2026.`\
+https://nytimes.com/2025/12/31/business/stock-market-2025-artificial-intelligence-bubble.html
 

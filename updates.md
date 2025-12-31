@@ -1,3 +1,15 @@
+**2026 Sports Media Predictions: World Cup, Olympics and ...TV's Aaron Rodgers?**\
+`What should viewers expect in sports media in 2026? For starters, a massive audience for the World Cup next summer.`\
+https://nytimes.com/athletic/6918673/2025/12/31/sports-media-predictions-2026-world-cup-fox/
+
+**Where will Chiefs pick in 2026 NFL Draft? What we know — and how it might change**\
+`How much draft value will the Chiefs gain by picking in the top 10 of the first round in 2026? Here's what the numbers tell us.`\
+https://nytimes.com/athletic/6929598/2025/12/31/chiefs-nfl-draft-position-2026/
+
+**Bryce Young ready to flush Seattle dud, move on to Panthers' big matchup vs. Bucs**\
+`Young threw for 191 yards and two TDs in the Panthers' Week 16 win vs. the Bucs. Can he bounce back from his Seattle performance?`\
+https://nytimes.com/athletic/6930428/2025/12/31/panthers-bryce-young-bucs-playoffs/
+
 **Raw and flawed: The story behind the Vikings' disappointing 2025 season**\
 `The Kevin O'Connell-J.J. McCarthy pairing has yet to live up to expectations in what has been an underwhelming season for the Vikings.`\
 https://nytimes.com/athletic/6929970/2025/12/31/vikings-2025-season-disappointing-jj-mccarthy-kevin-oconnell/
