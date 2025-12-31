@@ -1,3 +1,19 @@
+**NFL executives weigh in how Dante Moore, other QBs in CFP can boost their draft stock**\
+`With the heightened intensity and competition of the new playoff format, NFL evaluators have a better chance than ever to grade QBs.`\
+https://nytimes.com/athletic/6927293/2025/12/31/nfl-draft-2026-fernando-mendoza-dante-moore-ty-simpson-college-football-playoff/
+
+**Tales from the unfriendly confines of Highmark Stadium's singular tunnel**\
+`The Bills will play their last home game at the stadium on Sunday.`\
+https://nytimes.com/athletic/6912540/2025/12/31/bills-last-game-highmark-stadium/
+
+**How to watch Warriors vs. Hornets: Time, TV, streaming**\
+`Find out how to watch the Golden State Warriors play the Charlotte Hornets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6931371/2025/12/31/warriors-vs-hornets-stream-how-to-watch-dec-31/
+
+**How to watch Rangers vs. Capitals: Time, TV, streaming**\
+`Find out how to watch the New York Rangers play the Washington Capitals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6931368/2025/12/31/rangers-vs-capitals-stream-how-to-watch-dec-31/
+
 **How to watch Ohio State vs. Purdue women's basketball: Time, TV, streaming**\
 `Find out how to watch the Ohio State Buckeyes play the Purdue Boilermakers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6931348/2025/12/31/ohio-state-vs-purdue-stream-how-to-watch-dec-31/

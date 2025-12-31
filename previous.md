@@ -1,3 +1,19 @@
+**NFL executives weigh in how Dante Moore, other QBs in CFP can boost their draft stock**\
+`With the heightened intensity and competition of the new playoff format, NFL evaluators have a better chance than ever to grade QBs.`\
+https://nytimes.com/athletic/6927293/2025/12/31/nfl-draft-2026-fernando-mendoza-dante-moore-ty-simpson-college-football-playoff/
+
+**Tales from the unfriendly confines of Highmark Stadium's singular tunnel**\
+`The Bills will play their last home game at the stadium on Sunday.`\
+https://nytimes.com/athletic/6912540/2025/12/31/bills-last-game-highmark-stadium/
+
+**How to watch Warriors vs. Hornets: Time, TV, streaming**\
+`Find out how to watch the Golden State Warriors play the Charlotte Hornets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6931371/2025/12/31/warriors-vs-hornets-stream-how-to-watch-dec-31/
+
+**How to watch Rangers vs. Capitals: Time, TV, streaming**\
+`Find out how to watch the New York Rangers play the Washington Capitals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6931368/2025/12/31/rangers-vs-capitals-stream-how-to-watch-dec-31/
+
 **How to watch Ohio State vs. Purdue women's basketball: Time, TV, streaming**\
 `Find out how to watch the Ohio State Buckeyes play the Purdue Boilermakers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6931348/2025/12/31/ohio-state-vs-purdue-stream-how-to-watch-dec-31/
@@ -21,20 +37,4 @@ https://nytimes.com/video/us/100000010613888/us-coast-guard-drug-smuggling-boats
 **One Factor Will Decide How Much You Enjoy TV Next Year**\
 `If Netflix acquires HBO, it will have won the streaming wars. But that’s not what will determine if TV shows get better, or worse.`\
 https://nytimes.com/2025/12/31/opinion/netlfix-hbo-streaming-war.html
-
-**How Thousands of Secret Russian Documents Were Exposed**\
-`Russian journalists learned that a government office inadvertently made thousands of sensitive complaints viewable online, including accounts of abuse and coercion in the military.`\
-https://nytimes.com/2025/12/31/world/europe/russia-ombudsman-complaints.html
-
-**How to Greet 2026 in New York City**\
-`Here’s the lowdown on venturing to Times Square to see the ball drop, plus some other options for New Year’s Eve. And at the stroke of midnight, a new mayor will be sworn in downtown.`\
-https://nytimes.com/2025/12/31/nyregion/new-years-eve-what-to-know.html
-
-**The Top Movies of 2025, According to Times Readers**\
-`We asked you to vote on the best films of the year. The results ranged from big box office hits to small art-house indies.`\
-https://nytimes.com/2025/12/31/movies/2025-best-movies-marty-supreme.html
-
-**$850,000 Homes in Arizona, Oklahoma and Connecticut**\
-`This week’s homes include a midcentury modern in Phoenix, a bungalow in Oklahoma City and a Colonial-Revival in Old Saybrook.`\
-https://nytimes.com/2025/12/31/realestate/850000-thousand-dollar-homes-in-oklahoma-city-old-saybrook-phoenix.html
 
