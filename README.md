@@ -1,40 +1,41 @@
-**Is Carson Beck 'misunderstood' as Miami's quarterback?**\
-`Miami's transfer from Georgia is a lightning rod — and you may have to go beyond the box score to understand his full impact.`\
-https://nytimes.com/athletic/6930142/2025/12/31/carson-beck-miami-ohio-state-cotton-bowl-cfp/
+**College Football Playoff watch guide: Broadcast info for New Year's quarterfinal games**\
+`The College Football Playoff bracket branches into New Year's Eve and New Year's Day, with four games spread from Bourbon St. to Pasadena.`\
+https://nytimes.com/athletic/6927961/2025/12/31/cfp-watch-guide-ohio-state-miami-indiana-alabama-tv-schedule/
 
-**Ryan Poles' 2025 report card: How the Bears GM helped change Chicago's trajectory**\
-`The turnaround began with the hiring of Ben Johnson, but not even the most optimistic Bears fans could've envisioned such a quick ascent.`\
-https://nytimes.com/athletic/6930218/2025/12/31/bears-gm-ryan-poles-report-card/
+**Why the Red Wings should add to their blue line at the trade deadline**\
+`The Red Wings season has gone about as well as it could so far, but Detroit would benefit from an upgrade on the blue line. `\
+https://nytimes.com/athletic/6929847/2025/12/31/red-wings-nhl-trade-deadline-need-midseason/
 
-**Is Ohio State ready to bounce back after Indiana? Here's what's changed ahead of Miami**\
-`What's going on with Ohio State's play calling, personnel usage and more ahead of the Cotton Bowl CFP quarterfinal vs. Miami.`\
-https://nytimes.com/athletic/6929493/2025/12/31/ohio-state-miami-prediction-cotton-bowl-playoff/
+**Warming Blue Jackets brace for New Year's Eve rematch with struggling Devils**\
+`The last meeting between the Blue Jackets and Devils on Dec. 1 was a fight-filled, unexpectedly chaotic game.
+`\
+https://nytimes.com/athletic/6930208/2025/12/31/blue-jackets-devils-new-years-eve-fights/
 
-**The Pulse: These stories moved us this year**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6929746/2025/12/31/the-athletic-wrapped-2025-the-pulse/
+**How Eagles coach Nick Sirianni will likely manage starters in Week 18**\
+`Why a shot at the No. 2 seed may not be enough incentive for Eagles' coach Nick Sirianni to play his starters versus the Commanders. `\
+https://nytimes.com/athletic/6929926/2025/12/31/eagles-nick-sirianni-starters-week-18/
 
-**The best games we watched in 2025: World Series, Haliburton heroics, a classic Clásico**\
-`Something was in the air and on the horizon this year. The sports we love gave us incredible, indelible finishes all across 2025.`\
-https://nytimes.com/athletic/6929777/2025/12/31/best-games-2025-nba-nfl-soccer-ohtani-mcilroy/
+**As 49ers wins pour in, so does the money, as players cash in contract bonuses**\
+`Mac Jones, Kendrick Bourne and Jauan Jennings have all pocketed bonuses this season, boosting an already thriving team morale.`\
+https://nytimes.com/athletic/6930658/2025/12/31/49ers-contract-incentives-kendrick-bourne-jauan-jennings/
 
-**2026 sports media predictions: World Cup, Olympics and ...TV's Aaron Rodgers?**\
-`What should viewers expect in sports media in 2026? For starters, a massive audience for the World Cup next summer.`\
-https://nytimes.com/athletic/6918673/2025/12/31/sports-media-predictions-2026-world-cup-fox/
+**College Football Playoff oddly specific predictions: Will Miami upset Ohio State?**\
+`Can Ole Miss win in a rematch with Georgia? Why Indiana's run game will be the difference and more oddly specific Playoff predictions. `\
+https://nytimes.com/athletic/6930423/2025/12/31/college-football-playoff-predictions-miami-ohio-state/
 
-**Where will Chiefs pick in 2026 NFL Draft? What we know — and how it might change**\
-`How much draft value will the Chiefs gain by picking in the top 10 of the first round in 2026? Here's what the numbers tell us.`\
-https://nytimes.com/athletic/6929598/2025/12/31/chiefs-nfl-draft-position-2026/
+**'I trust the team': Wild coach John Hynes' steady, calm demeanor big reason for turnaround**\
+`Hynes was never rattled during Minnesota's rough start, and his team found its footing because of it, leaping to third in the NHL standings.`\
+https://nytimes.com/athletic/6930363/2025/12/31/wild-coach-john-hynes-nhl-season-standings/
 
-**Bryce Young ready to flush Seattle dud, move on to Panthers' big matchup vs. Bucs**\
-`Young threw for 191 yards and two TDs in the Panthers' Week 16 win vs. the Bucs. Can he bounce back from his Seattle performance?`\
-https://nytimes.com/athletic/6930428/2025/12/31/panthers-bryce-young-bucs-playoffs/
+**Blues focused on creating 'Stanley Cup' standard for process, not on losses: 'Results are secondary'**\
+`Coach Jim Montgomery says that at this stage of a retool, the goal is to develop players who "set the standard of a Stanley Cup tradition."`\
+https://nytimes.com/athletic/6926661/2025/12/31/blues-jim-montgomery-retool-results/
 
-**Raw and flawed: The story behind the Vikings' disappointing 2025 season**\
-`The Kevin O'Connell-J.J. McCarthy pairing has yet to live up to expectations in what has been an underwhelming season for the Vikings.`\
-https://nytimes.com/athletic/6929970/2025/12/31/vikings-2025-season-disappointing-jj-mccarthy-kevin-oconnell/
+**USLPA asks for 'livable wages' as talks stall before New Year deadline**\
+`Stalled talks have created a nervous limbo in the second tier of North American soccer`\
+https://nytimes.com/athletic/6929601/2025/12/31/usl-players-association-wages/
 
-**How Malik Willis revived his career with the Packers: 'I'd put him up against anybody'**\
-`Willis flamed out in Tennessee, but the 26-year-old has earned a shot to start somewhere else next season.`\
-https://nytimes.com/athletic/6930221/2025/12/31/malik-willis-packers-backup-quarterback/
+**What Gunner Stockton, Trinidad Chambliss' success says about developing vs. transfer QBs**\
+`The contrast is a reminder that in the transfer portal era there’s still multiple ways to do it.`\
+https://nytimes.com/athletic/6930410/2025/12/31/gunner-stockton-trinidad-chambliss-georgia-ole-miss/
 
