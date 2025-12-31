@@ -1,3 +1,7 @@
+**Leafs get bad news on Tanev but glimmer of hope with Stolarz**\
+`The Leafs provided injury updates on multiple players: Chris Tanev, Anthony Stolarz, Auston Matthews, William Nylander and Dakota Joshua.`\
+https://nytimes.com/athletic/6932141/2025/12/31/leafs-chris-tanev-anthony-stolarz-injury-update/
+
 **NASA’s Largest Library Is Closing Amid Staff and Lab Cuts**\
 `Holdings from the library at the Goddard Space Flight Center, which includes unique documents from the early 20th century to the Soviet space race, will be warehoused or thrown out.`\
 https://nytimes.com/2025/12/31/climate/nasa-goddard-library-closing.html
