@@ -1,3 +1,27 @@
+**Newcastle recall Cordero from KVC Westerlo loan, will join Cadiz**\
+`Cordero returns to Spain after struggling for game time in Belgium.`\
+https://nytimes.com/athletic/6931696/2025/12/31/newcastle-transfer-news-cordero-cadiz-loan/
+
+**Women Directed Fewer Box Office Hits in 2025, Report Finds**\
+`The number of female filmmakers dropped to 8.1 percent this year from 13.4 percent in 2024, according to a study from the University of Southern California.`\
+https://nytimes.com/2025/12/31/movies/women-directed-fewer-box-office-hits-in-2025-report-finds.html
+
+**My Mother Is Estranged From Her Brother. Can I Help?**\
+`A reader is hesitant to interfere in a yearlong mother-and-uncle skirmish, despite one party’s track record for torpedoing close relationships.`\
+https://nytimes.com/2025/12/31/style/familial-estrangement-peacemaking.html
+
+**Bangladeshis Pay Last Respects to Former Leader in Tense Capital**\
+`Huge crowds turned out to say goodbye to Khaleda Zia, the country’s first female prime minister, amid a huge army presence following recent political violence.`\
+https://nytimes.com/2025/12/31/world/asia/bangladesh-zia-funeral.html
+
+**Mbappe set to miss Real Madrid's La Liga return with knee injury**\
+`Madrid confirmed on Wednesday Mbappe, 27, had suffered a sprain to his left knee.`\
+https://nytimes.com/athletic/6931655/2025/12/31/kylian-mbappe-real-madrid-injury-news/
+
+**Under pressure: Why these five teams desperately need to make a trade (or two)**\
+`With Hawks, Lakers, Warriors, Bucks and Clippers feeling the pressure, here's what they're considering ahead of the NBA trade deadline.`\
+https://nytimes.com/athletic/6931252/2025/12/31/nba-trade-rumors-lakers-warriors-clippers-hawks-bucks/
+
 **He Is Being Sued in the U.S. for Human Rights Abuses. He Could be Deported First.**\
 `Rafael Quero Silva faces a lawsuit brought by five people who say he oversaw their abuse and mistreatment as a military officer in Venezuela. But he could be deported before the case is heard.`\
 https://nytimes.com/2025/12/31/world/americas/human-rights-lawsuit-quero-silva.html
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6931641/2025/12/31/magic-vs-pacers-stream-how-to-wa
 **How to watch Suns vs. Cavaliers: Time, TV, streaming**\
 `Find out how to watch the Phoenix Suns play the Cleveland Cavaliers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6931639/2025/12/31/suns-vs-cavaliers-stream-how-to-watch-dec-31/
-
-**How to watch Timberwolves vs. Hawks: Time, TV, streaming**\
-`Find out how to watch the Minnesota Timberwolves play the Atlanta Hawks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6931637/2025/12/31/timberwolves-vs-hawks-stream-how-to-watch-dec-31/
-
-**How to watch Lightning vs. Ducks: Time, TV, streaming**\
-`Find out how to watch the Tampa Bay Lightning play the Anaheim Ducks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6931635/2025/12/31/lightning-vs-ducks-stream-how-to-watch-dec-31/
-
-**Ballon d'Or favourites and odds: Kylian Mbappe the frontrunner**\
-`Who is favourite to win the Ballon d'Or and Ballon d’Or Feminin as we head into 2026?`\
-https://nytimes.com/athletic/6931437/2025/12/31/ballon-dor-favourites-kylian-mbappe-clear-of-erling-haaland-heading-into-2026/
-
-**How to watch Wild vs. Sharks: Time, TV, streaming**\
-`Find out how to watch the Minnesota Wild play the San Jose Sharks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6931630/2025/12/31/wild-vs-sharks-stream-how-to-watch-dec-31/
-
-**How to watch Predators vs. Golden Knights: Time, TV, streaming**\
-`Find out how to watch the Nashville Predators play the Vegas Golden Knights, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6931628/2025/12/31/predators-vs-golden-knights-stream-how-to-watch-dec-31/
-
-**LeBron James' longevity remains a marvel, but that's not enough for these Lakers**\
-`James scored 17 points the day after his 41st birthday as the Lakers lost in an all-too-familiar way against the Pistons,`\
-https://nytimes.com/athletic/6931280/2025/12/31/lebron-lakers-birthday-loss/
 
