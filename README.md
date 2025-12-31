@@ -1,3 +1,11 @@
+**Liverpool need to take set pieces seriously. A specialist coach would be a good start**\
+`With dead balls more important than ever, Liverpool need to appoint a best-in-class coach to improve an obvious weakness`\
+https://nytimes.com/athletic/6929507/2025/12/31/liverpool-set-piece-coach/
+
+**Did England drop the ball by failing to appoint a fielding coach?**\
+`England have missed 11 chances across the Ashes which cost them a combined 383 runs, contributing heavily to their series loss in Australia`\
+https://nytimes.com/athletic/6923254/2025/12/31/england-fielding-coach-mccullum-ashes-drops/
+
 **West Ham fans have lost patience with their board – their manager could be next**\
 `West Ham United feels like a club that can’t get anything right at the moment...`\
 https://nytimes.com/athletic/6930373/2025/12/31/west-ham-fans-lost-patience-manager-next/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6930348/2025/12/31/james-garner-everton-nottingham-
 **Arctic Blast Grips U.S. Ahead of the New Year**\
 `As people in the United States prepared to ring in the new year, temperatures plunged as much as 20 degrees below normal across much of the country.`\
 https://nytimes.com/video/us/100000010616655/cold-forecast-new-years-eve.html
-
-**Cannabis, conveyer belts and Christmas trees: The magic of Real Madrid's pitch**\
-`The Spanish giants want to host as many non-match events as possible at their stadium to boost revenues even further`\
-https://nytimes.com/athletic/6925721/2025/12/31/real-madrid-bernabeu-pitch-stadium-design/
-
-**The best of 2025: Our staff pick their favourite pieces (by their colleagues)**\
-`The Athletic UK's team chose their favourite articles of 2025 written by their colleagues`\
-https://nytimes.com/athletic/6925123/2025/12/31/the-best-of-the-athletic-2025-review/
 
