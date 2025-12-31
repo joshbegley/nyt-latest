@@ -1,3 +1,7 @@
+**In Ukraine, a New Arsenal of Killer A.I. Drones Is Being Born**\
+`As the war grinds on, sophisticated Russian defenses have pushed Ukraine to develop a frightening new weapon: semiautonomous killing machines.`\
+https://nytimes.com/2025/12/31/magazine/ukraine-ai-drones-war-russia.html
+
 **Super Bowl odds: Should the 49ers get more love?**\
 `The NFC West has three teams in the top five of Super Bowl odds. Two of them play this Saturday.`\
 https://nytimes.com/athletic/6931875/2025/12/31/super-bowl-odds-rams-seahawks-broncos-49ers/
