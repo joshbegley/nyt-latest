@@ -1,3 +1,7 @@
+**The Athletic's sports business predictions for 2026: MoneyCall**\
+`A range of reporters and editors from across The Athletic weigh in with sport-specific sports-business predictions for 2026.`\
+https://nytimes.com/athletic/6931621/2025/12/31/sports-business-predictions-2026-moneycall/
+
 **Hoppin’ John, Coconut Saag and Golden Potato and Greens Soup**\
 `Lively, lovely recipes to kick off the new year.`\
 https://nytimes.com/2025/12/31/dining/hoppin-john-coconut-saag-and-golden-potato-and-greens-soup.html
