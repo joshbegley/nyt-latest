@@ -1,3 +1,7 @@
+**The Athletic's sports business predictions for 2026: MoneyCall**\
+`A range of reporters and editors from across The Athletic weigh in with sport-specific sports-business predictions for 2026.`\
+https://nytimes.com/athletic/6931621/2025/12/31/sports-business-predictions-2026-moneycall/
+
 **Hoppin’ John, Coconut Saag and Golden Potato and Greens Soup**\
 `Lively, lovely recipes to kick off the new year.`\
 https://nytimes.com/2025/12/31/dining/hoppin-john-coconut-saag-and-golden-potato-and-greens-soup.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6560541/2025/12/31/college-football-playoff-bracket
 **Mali and Burkina Faso Impose Travel Bans on Americans**\
 `The West African countries said they made the decisions in retaliation against the Trump administration’s move to block their citizens from entering the United States.`\
 https://nytimes.com/2025/12/31/world/africa/mali-burkina-faso-us-travel-ban.html
-
-**The Athletic has free newsletters across many sports. Sign up here!**\
-`Did you know The Athletic has a bunch of email newsletters with millions of subscribers? Well, now you do!`\
-https://nytimes.com/athletic/5803046/2025/12/31/the-athletic-newsletters-sign-up/
 

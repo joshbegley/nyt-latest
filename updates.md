@@ -1,3 +1,19 @@
+**Hoppin’ John, Coconut Saag and Golden Potato and Greens Soup**\
+`Lively, lovely recipes to kick off the new year.`\
+https://nytimes.com/2025/12/31/dining/hoppin-john-coconut-saag-and-golden-potato-and-greens-soup.html
+
+**Fantasy trends and hidden gems: Steven Stamkos' resurgence; Igor Chernyshov's opportunity**\
+`Shayna Goldman points fantasy hockey managers towards the best waiver wire help while offering guidance for the tricky NHL holiday slate.`\
+https://nytimes.com/athletic/6930491/2025/12/31/fantasy-trends-and-hidden-gems-steven-stamkos-resurgence-igor-chernyshovs-opportunity/
+
+**Key fantasy questions for 2026: Help for Jeanty? What's next for Hall?**\
+`Where does Breece Hall sign? Who's at quarterback in Miami and Arizona? The answers to these questions will shape fantasy drafts in 2026.`\
+https://nytimes.com/athletic/6930364/2025/12/31/the-key-questions-that-will-shape-fantasy-football-drafts-in-2026/
+
+**The Athletic has free newsletters across many sports. Sign up here!**\
+`Did you know The Athletic has a bunch of email newsletters with millions of subscribers? Well, now you do!`\
+https://nytimes.com/athletic/5803046/2025/12/31/the-athletic-newsletters-sign-up/
+
 **Ahead of New Year, Sydney Holds Vigil for Bondi Beach Attack Victims**\
 `Thousands gathered around the harbor to lift candles and phone lights during a minute of silence in solidarity with the Jewish community that was targeted in the attack.`\
 https://nytimes.com/2025/12/31/world/australia/bondi-beach-attack-vigil-new-year-sydney.html
