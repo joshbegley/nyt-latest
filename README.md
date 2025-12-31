@@ -1,3 +1,7 @@
+**Thailand Releases 18 Cambodian P.O.W.s**\
+`The repatriation of the Cambodian soldiers captured in July comes on the heels of a 72-hour cease-fire that could end months of border skirmishes.`\
+https://nytimes.com/2025/12/31/world/asia/thailand-cambodia-pows.html
+
 **Tonight’s Ball Drop Is a Celebration of Both the New Year and Times History**\
 `The New York Times started the tradition in 1907, and this year’s ball drop will be a reminder that The Times played a role in making New Year’s Eve what it is.`\
 https://nytimes.com/2025/12/31/nyregion/new-year-ball-drop-new-york-times-square.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6930785/2025/12/31/wolverhampton-wanderers-manchest
 **How to watch Ravens vs. Steelers: Time, TV, streaming**\
 `Find out how to watch the Baltimore Ravens play the Pittsburgh Steelers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6931194/2025/12/31/ravens-vs-steelers-stream-how-to-watch-jan-4/
-
-**Newcastle's victory over Burnley must be the spark that improves their away form**\
-`Newcastle's win away from home was long overdue but it was also far from convincing`\
-https://nytimes.com/athletic/6925076/2025/12/31/newcastle-burnley-win-premier-league-analysis/
 
