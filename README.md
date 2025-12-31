@@ -1,3 +1,11 @@
+**Newcastle's victory over Burnley must be the spark that improves their away form**\
+`Newcastle's win away from home was long overdue but it was also far from convincing`\
+https://nytimes.com/athletic/6925076/2025/12/31/newcastle-burnley-win-premier-league-analysis/
+
+**Jon Kyl, Former Arizona Senator, Says He Has Dementia**\
+`The Republican served for almost three decades in Congress. He said he was withdrawing from public life after the diagnosis.`\
+https://nytimes.com/2025/12/31/us/politics/jon-kyl-dementia-arizona-senator.html
+
 **Manchester United right now: Annoying or embarrassing?**\
 `Amorim's side have moved on from last season, but the draw against a historically bad Wolves was met with a smattering of boos.`\
 https://nytimes.com/athletic/6928692/2025/12/31/man-united-amorim-annoying-embarrassing/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6923254/2025/12/31/england-fielding-coach-mccullum-
 **West Ham fans have lost patience with their board – their manager could be next**\
 `West Ham United feels like a club that can’t get anything right at the moment...`\
 https://nytimes.com/athletic/6930373/2025/12/31/west-ham-fans-lost-patience-manager-next/
-
-**Leeds United 2025 in review: Rodon shines, a long-awaited promotion party and fire beasts**\
-`The year 2025 will likely be defined by promotion and the party that followed — but 2026 will be crucial`\
-https://nytimes.com/athletic/6893620/2025/12/31/leeds-united-2025-review/
-
-**The big Fantasy Premier League review of 2025-26 (so far)**\
-`We asked our FPL experts to take a look back on 2025 and to preview what 2026 may bring, as well as the best strategies for January onwards`\
-https://nytimes.com/athletic/6928332/2025/12/31/fantasy-premier-league-review-of-the-year-fpl-tips/
 
