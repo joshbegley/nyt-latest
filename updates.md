@@ -1,3 +1,7 @@
+**Guardiola 'proud' as Man City finish 2025 as best Premier League team**\
+`The head coach said City would not have made the Champions League without their January signings, and welcomed the return of Rodri. `\
+https://nytimes.com/athletic/6931741/2025/12/31/pep-guardiola-manchester-city-best-team-rodri/
+
 **Jacqueline de Ribes, Tastemaker and Fashion Avatar, Dies at 96**\
 `One of few people in the world of style who could legitimately claim the status of icon, she dressed to impress even before she became a designer.`\
 https://nytimes.com/2025/12/31/style/jacqueline-de-ribes-dead.html

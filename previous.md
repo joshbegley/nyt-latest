@@ -1,3 +1,7 @@
+**Guardiola 'proud' as Man City finish 2025 as best Premier League team**\
+`The head coach said City would not have made the Champions League without their January signings, and welcomed the return of Rodri. `\
+https://nytimes.com/athletic/6931741/2025/12/31/pep-guardiola-manchester-city-best-team-rodri/
+
 **Jacqueline de Ribes, Tastemaker and Fashion Avatar, Dies at 96**\
 `One of few people in the world of style who could legitimately claim the status of icon, she dressed to impress even before she became a designer.`\
 https://nytimes.com/2025/12/31/style/jacqueline-de-ribes-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/31/t-magazine/favorite-art-culture-stories.html
 **Mamdani’s Man-of-the-People Style Could Present Security Challenges**\
 `Mayor-elect Zohran Mamdani, gregarious with constituents and vilified by a range of critics, is taking office at a time of anxiety about political violence.`\
 https://nytimes.com/2025/12/31/nyregion/zohran-mamdani-mayor-security-detail.html
-
-**Mark Gronowski outduels Heisman runner-up Diego Pavia in Iowa's ReliaQuest Bowl win**\
-`Vanderbilt showed up in Tampa with something to prove. Instead, Iowa showed how close it was to being a CFP team.`\
-https://nytimes.com/athletic/6932401/2025/12/31/iowa-vanderbilt-mark-gronowski-diego-pavia/
 
