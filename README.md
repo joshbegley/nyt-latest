@@ -1,3 +1,7 @@
+**Mark Gronowski outduels Heisman runner-up Diego Pavia in Iowa's ReliaQuest Bowl win**\
+`Vanderbilt showed up in Tampa with something to prove. Instead, Iowa showed how close it was to being a CFP team.`\
+https://nytimes.com/athletic/6932401/2025/12/31/iowa-vanderbilt-mark-gronowski-diego-pavia/
+
 **Veto of Water Project Is Trump’s Latest Targeted Hit on Colorado**\
 `The president seems to be at war with the Democratic-led state as he raises the pressure on Colorado leaders to release a convicted election denier, Tina Peters, from state prison.`\
 https://nytimes.com/2025/12/31/us/politics/trump-veto-water-project-colorado.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6932453/2025/12/31/blues-vs-avalanche-stream-how-to
 **How to watch Sabres vs. Stars: Time, TV, streaming**\
 `Find out how to watch the Buffalo Sabres play the Dallas Stars, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6932450/2025/12/31/sabres-vs-stars-stream-how-to-watch-dec-31/
-
-**How to watch TCU vs. BYU women's basketball: Time, TV, streaming**\
-`Find out how to watch the TCU Horned Frogs play the BYU Cougars, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6932429/2025/12/31/tcu-vs-byu-stream-how-to-watch-dec-31/
 
