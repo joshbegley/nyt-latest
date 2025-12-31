@@ -1,3 +1,11 @@
+**In New Year’s Message to War-Weary Russia, Putin Says Little About War**\
+`The Kremlin leader kept his speech short, spoke only briefly about the fighting in Ukraine, and did not mention U.S.-mediated talks on ending the war.`\
+https://nytimes.com/2025/12/31/world/europe/russia-putin-new-years-address.html
+
+**Canada announces men's hockey roster for 2026 Olympics: Snubs, surprises and expectations**\
+`Canada leaned into its experience after winning 4 Nations, but five players from that roster weren't announced for the Olympic team.`\
+https://nytimes.com/athletic/6931914/2025/12/31/canada-roster-milan-olympics-mens-hockey/
+
 **Key Events in the Administration’s Pursuit of Abrego Garcia**\
 `In its parallel efforts to prosecute Mr. Abrego Garcia and to re-expel him from the country, the Justice Department has spent countless hours and untold sums of money pursuing a single immigrant.`\
 https://nytimes.com/2025/12/31/us/politics/abrego-garcia-timeline-trump.html

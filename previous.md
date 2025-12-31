@@ -1,3 +1,11 @@
+**In New Year’s Message to War-Weary Russia, Putin Says Little About War**\
+`The Kremlin leader kept his speech short, spoke only briefly about the fighting in Ukraine, and did not mention U.S.-mediated talks on ending the war.`\
+https://nytimes.com/2025/12/31/world/europe/russia-putin-new-years-address.html
+
+**Canada announces men's hockey roster for 2026 Olympics: Snubs, surprises and expectations**\
+`Canada leaned into its experience after winning 4 Nations, but five players from that roster weren't announced for the Olympic team.`\
+https://nytimes.com/athletic/6931914/2025/12/31/canada-roster-milan-olympics-mens-hockey/
+
 **Key Events in the Administration’s Pursuit of Abrego Garcia**\
 `In its parallel efforts to prosecute Mr. Abrego Garcia and to re-expel him from the country, the Justice Department has spent countless hours and untold sums of money pursuing a single immigrant.`\
 https://nytimes.com/2025/12/31/us/politics/abrego-garcia-timeline-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6930559/2025/12/31/nfl-college-football-betting-pic
 **How to watch Devils vs. Blue Jackets: Time, TV, streaming**\
 `Find out how to watch the New Jersey Devils play the Columbus Blue Jackets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6932015/2025/12/31/devils-vs-blue-jackets-stream-how-to-watch-dec-31/
-
-**How to watch Jets vs. Red Wings: Time, TV, streaming**\
-`Find out how to watch the Winnipeg Jets play the Detroit Red Wings, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6932008/2025/12/31/jets-vs-red-wings-stream-how-to-watch-dec-31/
-
-**How to watch UConn vs. Xavier men's basketball: Time, TV, streaming**\
-`Find out how to watch the UConn Huskies play the Xavier Musketeers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6931997/2025/12/31/uconn-vs-xavier-stream-how-to-watch-dec-31/
 
