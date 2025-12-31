@@ -1,3 +1,11 @@
+**Iowa Democrat Wins State Senate Seat, Fending Off G.O.P. Supermajority**\
+`By holding a left-leaning seat in suburban Des Moines, Democrats ensured that Republicans would not have a supermajority in the State Senate.`\
+https://nytimes.com/2025/12/30/us/iowa-senate-special-election.html
+
+**Iowa State Senate District 16 Special Election Results: Hardman Wins**\
+`Get live results and maps from the 2025 Iowa special election.`\
+https://nytimes.com/interactive/2025/12/30/us/elections/results-iowa-state-senate-district-16-unexpired-term-special.html
+
 **Health Dept. Pauses Child Care Funding to Minnesota, Citing State’s Fraud Scandal**\
 `The pause affects a funding stream that provides $185 million in annual aid to the state’s day care centers, as federal investigations into fraud in Minnesota’s social services programs continue.`\
 https://nytimes.com/2025/12/30/us/politics/hhs-minnesota-funds-day-care-fraud.html

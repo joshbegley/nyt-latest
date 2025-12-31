@@ -1,3 +1,7 @@
+**Iowa Democrat Wins State Senate Seat, Fending Off G.O.P. Supermajority**\
+`By holding a left-leaning seat in suburban Des Moines, Democrats ensured that Republicans would not have a supermajority in the State Senate.`\
+https://nytimes.com/2025/12/30/us/iowa-senate-special-election.html
+
 **Health Dept. Pauses Child Care Funding to Minnesota, Citing State’s Fraud Scandal**\
 `The pause affects a funding stream that provides $185 million in annual aid to the state’s day care centers, as federal investigations into fraud in Minnesota’s social services programs continue.`\
 https://nytimes.com/2025/12/30/us/politics/hhs-minnesota-funds-day-care-fraud.html
@@ -18,7 +22,7 @@ https://nytimes.com/2025/12/30/nyregion/mamdani-schools-chancellor.html
 `Our climate reporter Raymond Zhong sets out on his journey to Antarctica and shares his biggest question for the trip ahead.`\
 https://nytimes.com/video/climate/100000010614033/raymonds-biggest-question-about-the-trip.html
 
-**Iowa State Senate District 16 Special Election Results**\
+**Iowa State Senate District 16 Special Election Results: Hardman Wins**\
 `Get live results and maps from the 2025 Iowa special election.`\
 https://nytimes.com/interactive/2025/12/30/us/elections/results-iowa-state-senate-district-16-unexpired-term-special.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6930626/2025/12/30/how-to-watch-cardinals-vs-rams-t
 **How to watch Chiefs vs. Raiders: Time, TV, streaming**\
 `Find out how to watch the Kansas City Chiefs play the Las Vegas Raiders, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6930624/2025/12/30/how-to-watch-chiefs-vs-raiders-tv-channel-and-streaming-options-for-january-4/
-
-**How to watch Jets vs. Bills: Time, TV, streaming**\
-`Find out how to watch the New York Jets play the Buffalo Bills, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6930618/2025/12/30/how-to-watch-jets-vs-bills-tv-channel-and-streaming-options-for-january-4/
 
