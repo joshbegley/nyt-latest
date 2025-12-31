@@ -1,3 +1,7 @@
+**Brighton agree deal to re-sign Pascal Gross from Borussia Dortmund**\
+`Gross, 34, is set to have a medical with Brighton ahead of returning to the Premier League after 18 months in Germany.`\
+https://nytimes.com/athletic/6932512/2025/12/31/pascal-gross-brighton-borussia-dortmund-transfer/
+
 **Packers claim former Cowboys cornerback Trevon Diggs: Source**\
 `The two-time Pro Bowl corner could help a shorthanded Green Bay secondary.`\
 https://nytimes.com/athletic/6932532/2025/12/31/packers-signing-trevon-diggs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6932464/2025/12/31/flyers-vs-flames-stream-how-to-w
 **How to watch Wizards vs. Bucks: Time, TV, streaming**\
 `Find out how to watch the Washington Wizards play the Milwaukee Bucks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6932462/2025/12/31/wizards-vs-bucks-stream-how-to-watch-dec-31/
-
-**How to watch Nuggets vs. Raptors: Time, TV, streaming**\
-`Find out how to watch the Denver Nuggets play the Toronto Raptors, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6932459/2025/12/31/nuggets-vs-raptors-stream-how-to-watch-dec-31/
 
