@@ -1,3 +1,11 @@
+**Packers' QB situation uncertain as Jordan Love practices, Desmond Ridder added**\
+`Backup quarterback Malik Willis was limited at Wednesday's practice with a shoulder injury.`\
+https://nytimes.com/athletic/6932287/2025/12/31/packers-quarterback-jordan-love-malik-willis-desmond-ridder/
+
+**Macron Backs Social Media Restrictions for Children**\
+`French lawmakers are expected next month to discuss a ban on social media for children. In his New Year’s Eve address, the French president restated his support for restricting their access.`\
+https://nytimes.com/2025/12/31/world/europe/macron-social-media-children-ban-france.html
+
 **Emmanuel Macron Backs Social Media Restrictions for Children**\
 `French lawmakers are expected next month to discuss a ban on social media for children. In his New Year’s Eve address, the French president restated his support for restricting their access.`\
 https://nytimes.com/2025/12/31/world/europe/macron-social-media-children-ban-france.html

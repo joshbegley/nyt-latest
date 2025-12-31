@@ -1,3 +1,11 @@
+**Most of Iran Shuts Down as Government Grapples With Protests and Economy**\
+`Amid mounting street protests, businesses, universities and government offices stayed closed Wednesday under government orders, in 21 of 31 provinces, including the Tehran.`\
+https://nytimes.com/2025/12/31/world/middleeast/iran-shutdown-protests.html
+
+**Tyler Mahle agrees to join the Giants on a one-year deal: Source**\
+`Mahle is the Giants' second starting pitching addition this offseason, joining Adrian Houser.`\
+https://nytimes.com/athletic/6932235/2025/12/31/sf-giants-tyler-mahle-free-agent-signing/
+
 **Packers' QB situation uncertain as Jordan Love practices, Desmond Ridder added**\
 `Backup quarterback Malik Willis was limited at Wednesday's practice with a shoulder injury.`\
 https://nytimes.com/athletic/6932287/2025/12/31/packers-quarterback-jordan-love-malik-willis-desmond-ridder/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/31/nyregion/metrocard-funeral-new-york.html
 **Richard Smallwood, 77, Choral Leader and Composer of Gospel Hits, Dies**\
 `He sold millions of albums with the Richard Smallwood Singers, and his songs, many influenced by classical music, were recorded by stars like Whitney Houston.`\
 https://nytimes.com/2025/12/31/arts/music/richard-smallwood-dead.html
-
-**Venezuela Detains Americans Amid Growing U.S. Pressure**\
-`The number of American citizens held in Venezuela has grown since the start of the U.S. military and economic campaign against President Nicolás Maduro.`\
-https://nytimes.com/2025/12/31/world/americas/venezuela-detained-americans.html
-
-**Ravens QB Lamar Jackson returns to practice Wednesday**\
-`Jackson has been dealing with a significant lower back contusion. He could return for Sunday’s game, which will decide the AFC North.`\
-https://nytimes.com/athletic/6932000/2025/12/31/ravens-lamar-jackson-practice-return-status/
 

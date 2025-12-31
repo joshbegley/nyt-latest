@@ -1,4 +1,8 @@
-**Emmanuel Macron Backs Social Media Restrictions for Children**\
+**Packers' QB situation uncertain as Jordan Love practices, Desmond Ridder added**\
+`Backup quarterback Malik Willis was limited at Wednesday's practice with a shoulder injury.`\
+https://nytimes.com/athletic/6932287/2025/12/31/packers-quarterback-jordan-love-malik-willis-desmond-ridder/
+
+**Macron Backs Social Media Restrictions for Children**\
 `French lawmakers are expected next month to discuss a ban on social media for children. In his New Year’s Eve address, the French president restated his support for restricting their access.`\
 https://nytimes.com/2025/12/31/world/europe/macron-social-media-children-ban-france.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/31/world/americas/venezuela-detained-americans.html
 **Ravens QB Lamar Jackson returns to practice Wednesday**\
 `Jackson has been dealing with a significant lower back contusion. He could return for Sunday’s game, which will decide the AFC North.`\
 https://nytimes.com/athletic/6932000/2025/12/31/ravens-lamar-jackson-practice-return-status/
-
-**NASA’s Largest Library Is Closing Amid Staff and Lab Cuts**\
-`Holdings from the library at the Goddard Space Flight Center, which includes unique documents from the early 20th century to the Soviet space race, will be warehoused or thrown out.`\
-https://nytimes.com/2025/12/31/climate/nasa-goddard-library-closing.html
 
