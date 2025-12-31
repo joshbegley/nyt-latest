@@ -1,3 +1,11 @@
+**Venezuela Detains Americans Amid Growing U.S. Pressure**\
+`The number of American citizens held in Venezuela has grown since the start of the U.S. military and economic campaign against President Nicolás Maduro.`\
+https://nytimes.com/2025/12/31/world/americas/venezuela-detained-americans.html
+
+**Ravens QB Lamar Jackson returns to practice Wednesday**\
+`Jackson has been dealing with a significant lower back contusion. He could return for Sunday’s game, which will decide the AFC North.`\
+https://nytimes.com/athletic/6932000/2025/12/31/ravens-lamar-jackson-practice-return-status/
+
 **NASA’s Largest Library Is Closing Amid Staff and Lab Cuts**\
 `Holdings from the library at the Goddard Space Flight Center, which includes unique documents from the early 20th century to the Soviet space race, will be warehoused or thrown out.`\
 https://nytimes.com/2025/12/31/climate/nasa-goddard-library-closing.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/31/nyregion/nyc-man-homicide-charges-sidewalk-shovin
 **Thieves Make Off With Millions in German Bank Heist**\
 `The robbers stole valuables with an insured value of at least $36 million from a bank in Gelsenkirchen, western Germany.`\
 https://nytimes.com/2025/12/31/world/europe/germany-heist-bank-robbery.html
-
-**Patriots DT Christian Barmore facing assault and battery charge in domestic dispute**\
-`Barmore faces a misdemeanor assault and battery charge stemming from an alleged incident in August with his then-girlfriend.`\
-https://nytimes.com/athletic/6932005/2025/12/31/christian-barmore-patriots-domestic-assault-charges/
-
-**Snub or sub? Injured Connor Bedard left off Canada's initial Olympic roster**\
-`Unless he finds his way onto the team as an injury replacement, Bedard will have to wait until Nice, France, in 2030.`\
-https://nytimes.com/athletic/6930717/2025/12/31/canada-2026-olympics-hockey-roster-connor-bedard-blackhawks/
 

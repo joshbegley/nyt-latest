@@ -1,3 +1,11 @@
+**Venezuela Detains Americans Amid Growing U.S. Pressure**\
+`The number of American citizens held in Venezuela has grown since the start of the U.S. military and economic campaign against President Nicolás Maduro.`\
+https://nytimes.com/2025/12/31/world/americas/venezuela-detained-americans.html
+
+**Ravens QB Lamar Jackson returns to practice Wednesday**\
+`Jackson has been dealing with a significant lower back contusion. He could return for Sunday’s game, which will decide the AFC North.`\
+https://nytimes.com/athletic/6932000/2025/12/31/ravens-lamar-jackson-practice-return-status/
+
 **Leafs get bad news on Tanev but glimmer of hope with Stolarz**\
 `The Leafs provided injury updates on multiple players: Chris Tanev, Anthony Stolarz, Auston Matthews, William Nylander and Dakota Joshua.`\
 https://nytimes.com/athletic/6932141/2025/12/31/leafs-chris-tanev-anthony-stolarz-injury-update/
