@@ -1,3 +1,7 @@
+**Dbacks' GM provides update on Ketel Marte trade talks, expects decision 'shortly'**\
+`A Silver Slugger award winner in each of the past two seasons, Marte is signed through the 2030 season. `\
+https://nytimes.com/athletic/6930636/2025/12/30/arizona-diamondbacks-ketel-marte-trade-talks-update/
+
 **Mamdani Chooses a Veteran N.Y.C. Education Leader as Schools Chancellor**\
 `The selection of Kamar Samuels, who leads schools on the West Side of Manhattan, could help Mayor-elect Zohran Mamdani craft his schools agenda.`\
 https://nytimes.com/2025/12/30/nyregion/mamdani-schools-chancellor.html
