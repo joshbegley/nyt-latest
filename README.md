@@ -1,3 +1,7 @@
+**Mamdani’s Man-of-the-People Style Could Present Security Challenges**\
+`Mayor-elect Zohran Mamdani, gregarious with constituents and vilified by a range of critics, is taking office at a time of anxiety about political violence.`\
+https://nytimes.com/2025/12/31/nyregion/zohran-mamdani-mayor-security-detail.html
+
 **Mark Gronowski outduels Heisman runner-up Diego Pavia in Iowa's ReliaQuest Bowl win**\
 `Vanderbilt showed up in Tampa with something to prove. Instead, Iowa showed how close it was to being a CFP team.`\
 https://nytimes.com/athletic/6932401/2025/12/31/iowa-vanderbilt-mark-gronowski-diego-pavia/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6932455/2025/12/31/trail-blazers-vs-thunder-stream-
 **How to watch Blues vs. Avalanche: Time, TV, streaming**\
 `Find out how to watch the St. Louis Blues play the Colorado Avalanche, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6932453/2025/12/31/blues-vs-avalanche-stream-how-to-watch-dec-31/
-
-**How to watch Sabres vs. Stars: Time, TV, streaming**\
-`Find out how to watch the Buffalo Sabres play the Dallas Stars, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6932450/2025/12/31/sabres-vs-stars-stream-how-to-watch-dec-31/
 
