@@ -1,3 +1,8 @@
+**Warming Blue Jackets brace for New Year's Eve rematch with struggling Devils**\
+`The last meeting between the Blue Jackets and Devils on Dec. 1 was a fight-filled, unexpectedly chaotic game.
+`\
+https://nytimes.com/athletic/6930208/2025/12/31/blue-jackets-devils-new-years-eve-fights/
+
 **Thailand Repatriates 18 Cambodian Soldiers**\
 `On Wednesday, Thailand released 18 Cambodian soldiers it had held captive since July as part of a 72-hour cease-fire deal with Cambodia that was reached on Saturday.`\
 https://nytimes.com/video/world/asia/100000010616849/thailand-repatriates-18-cambodian-soldiers.html

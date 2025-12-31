@@ -1,3 +1,11 @@
+**Trump Administration Live Updates: Justice Dept. Is Said to Be Reviewing 5 Million Pages of Epstein Files**\
+``\
+https://nytimes.com/live/2025/12/31/us/trump-news
+
+**Lowetide: Why the Oilers' goalie tandem turnover looks like a winner**\
+`Since trading Stuart Skinner, Edmonton has received excellent goaltending no matter who's in net.`\
+https://nytimes.com/athletic/6929420/2025/12/31/edmonton-oilers-goalies-tristan-jarry-connor-ingram/
+
 **Thailand Repatriates 18 Cambodian Soldiers**\
 `On Wednesday, Thailand released 18 Cambodian soldiers it had held captive since July as part of a 72-hour cease-fire deal with Cambodia that was reached on Saturday.`\
 https://nytimes.com/video/world/asia/100000010616849/thailand-repatriates-18-cambodian-soldiers.html
@@ -29,13 +37,4 @@ https://nytimes.com/athletic/6927961/2025/12/31/cfp-watch-guide-ohio-state-miami
 **Why the Red Wings should add to their blue line at the trade deadline**\
 `The Red Wings season has gone about as well as it could so far, but Detroit would benefit from an upgrade on the blue line. `\
 https://nytimes.com/athletic/6929847/2025/12/31/red-wings-nhl-trade-deadline-need-midseason/
-
-**Warming Blue Jackets brace for New Year's Eve rematch with struggling Devils**\
-`The last meeting between the Blue Jackets and Devils on Dec. 1 was a fight-filled, unexpectedly chaotic game.
-`\
-https://nytimes.com/athletic/6930208/2025/12/31/blue-jackets-devils-new-years-eve-fights/
-
-**How Eagles coach Nick Sirianni will likely manage starters in Week 18**\
-`Why a shot at the No. 2 seed may not be enough incentive for Eagles' coach Nick Sirianni to play his starters versus the Commanders. `\
-https://nytimes.com/athletic/6929926/2025/12/31/eagles-nick-sirianni-starters-week-18/
 
