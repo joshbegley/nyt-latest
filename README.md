@@ -1,3 +1,7 @@
+**53 Fascinating Facts of 2025**\
+`Each day, Times Insider editors scour the newspaper for the most interesting facts to appear on our pages. This year, tidbits about plastic recycling, whale sharks and crab Rangoon enlightened and entertained us.`\
+https://nytimes.com/2025/12/31/insider/2025-fun-facts.html
+
 **Florida WR Dallas Wilson to remain in Gainesville for 2026 season**\
 `In 2025, Wilson caught 12 passes for 174 yards and three touchdowns.`\
 https://nytimes.com/athletic/6932606/2025/12/31/dallas-wilson-will-return-florida-2026/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6931741/2025/12/31/pep-guardiola-manchester-city-be
 **Jacqueline de Ribes, Tastemaker and Fashion Avatar, Dies at 96**\
 `One of few people in the world of style who could legitimately claim the status of icon, she dressed to impress even before she became a designer.`\
 https://nytimes.com/2025/12/31/style/jacqueline-de-ribes-dead.html
-
-**Sabotage Suspected in Cutting of Undersea Cable, Finnish Police Say**\
-`The authorities seized the Fitburg, a cargo ship that was en route from Russia to Israel when it sliced the cable in the Gulf of Finland.`\
-https://nytimes.com/2025/12/31/world/europe/underwater-cable-damaged-sabotage-finland-estonia.html
 
