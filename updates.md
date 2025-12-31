@@ -1,3 +1,11 @@
+**A tactical masterstroke, fight and a threat in attack. How Wolves impressed at Old Trafford**\
+`Wolves' draw against Manchester United is a crumb of comfort Rob Edwards will treasure like a diamond`\
+https://nytimes.com/athletic/6930785/2025/12/31/wolverhampton-wanderers-manchester-united-analysis/
+
+**Manchester United right now: Annoying or embarrassing?**\
+`Amorim's side have moved on from last season, but the draw against a historically bad Wolves was met with a smattering of boos`\
+https://nytimes.com/athletic/6928692/2025/12/31/man-united-amorim-annoying-embarrassing/
+
 **How to watch Ravens vs. Steelers: Time, TV, streaming**\
 `Find out how to watch the Baltimore Ravens play the Pittsburgh Steelers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6931194/2025/12/31/ravens-vs-steelers-stream-how-to-watch-jan-4/
