@@ -1,3 +1,11 @@
+**Raymond’s Biggest Question About the Trip**\
+`Our climate reporter Raymond Zhong sets out on his journey to Antarctica and shares his biggest question for the trip ahead.`\
+https://nytimes.com/video/climate/100000010614033/raymonds-biggest-question-about-the-trip.html
+
+**Iowa State Senate District 16 Special Election Results**\
+`Get live results and maps from the 2025 Iowa special election.`\
+https://nytimes.com/interactive/2025/12/30/us/elections/results-iowa-state-senate-district-16-unexpired-term-special.html
+
 **How to watch Lions vs. Bears: Time, TV, streaming**\
 `Find out how to watch the Detroit Lions play the Chicago Bears, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6930631/2025/12/30/lions-vs-bears-stream-how-to-watch-jan-4/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6930594/2025/12/30/chargers-vs-broncos-stream-how-t
 **Why scientists are studying the Thwaites glacier**\
 `(No description)`\
 https://nytimes.com/live/2025/climate/antarctica-thwaites-glacier/studying-thwaites-glacier
-
-**Masashi Ozaki, Japan’s Dominant Golfer Known as ‘Jumbo,’ Dies at 78**\
-`A World Golf Hall of Famer who could drive a ball more than 300 yards in his prime, he recorded 113 victories on the Japan Tour.`\
-https://nytimes.com/2025/12/30/sports/golf/masashi-ozaki-dead.html
-
-**Christian McCaffrey, Trent Williams not practicing, George Kittle returns**\
-`McCaffrey is battling a stiff back, while Williams has a hamstring injury but has not been ruled out for Saturday's game against Seattle.`\
-https://nytimes.com/athletic/6930383/2025/12/30/christian-mccaffrey-george-kittle-trent-williams-49ers-injuries/
 
