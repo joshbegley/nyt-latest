@@ -1,3 +1,7 @@
+**Hoppin’ John, Coconut Saag and Golden Potato and Greens Soup**\
+`Lively, lovely recipes to kick off the new year.`\
+https://nytimes.com/2025/12/31/dining/hoppin-john-coconut-saag-and-golden-potato-and-greens-soup.html
+
 **Fantasy trends and hidden gems: Steven Stamkos' resurgence; Igor Chernyshov's opportunity**\
 `Shayna Goldman points fantasy hockey managers towards the best waiver wire help while offering guidance for the tricky NHL holiday slate.`\
 https://nytimes.com/athletic/6930491/2025/12/31/fantasy-trends-and-hidden-gems-steven-stamkos-resurgence-igor-chernyshovs-opportunity/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/31/world/africa/mali-burkina-faso-us-travel-ban.html
 **The Athletic has free newsletters across many sports. Sign up here!**\
 `Did you know The Athletic has a bunch of email newsletters with millions of subscribers? Well, now you do!`\
 https://nytimes.com/athletic/5803046/2025/12/31/the-athletic-newsletters-sign-up/
-
-**Colombus Crew finalizing deal to name Henrik Rydström as head coach**\
-`Rydström was previously manager of Malmö, where he won two league titles, but is currently out of work.`\
-https://nytimes.com/athletic/6931784/2025/12/31/colombus-crew-head-coach-henrik-rydstrom/
 
