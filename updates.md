@@ -1,3 +1,11 @@
+**The Year in Video**\
+`We highlight some of The Times’s most-viewed videos of 2025.`\
+https://nytimes.com/2025/12/31/briefing/the-year-in-video.html
+
+**'6-7' is officially out with 2025. Here's what's 'in' for 2026**\
+`Think you know what's trending in sports? Get a preview of what will drive the conversation in 2026.`\
+https://nytimes.com/athletic/6930575/2025/12/31/outgoing-2025-trends-whats-in-2026/
+
 **NFL executives weigh in how Dante Moore, other QBs in CFP can boost their draft stock**\
 `With the heightened intensity and competition of the new playoff format, NFL evaluators have a better chance than ever to grade QBs.`\
 https://nytimes.com/athletic/6927293/2025/12/31/nfl-draft-2026-fernando-mendoza-dante-moore-ty-simpson-college-football-playoff/

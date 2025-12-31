@@ -1,3 +1,11 @@
+**The Year in Video**\
+`We highlight some of The Times’s most-viewed videos of 2025.`\
+https://nytimes.com/2025/12/31/briefing/the-year-in-video.html
+
+**'6-7' is officially out with 2025. Here's what's 'in' for 2026**\
+`Think you know what's trending in sports? Get a preview of what will drive the conversation in 2026.`\
+https://nytimes.com/athletic/6930575/2025/12/31/outgoing-2025-trends-whats-in-2026/
+
 **NFL executives weigh in how Dante Moore, other QBs in CFP can boost their draft stock**\
 `With the heightened intensity and competition of the new playoff format, NFL evaluators have a better chance than ever to grade QBs.`\
 https://nytimes.com/athletic/6927293/2025/12/31/nfl-draft-2026-fernando-mendoza-dante-moore-ty-simpson-college-football-playoff/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/31/business/media/trump-conservatives-videos-viral-l
 **A.I. Held Up Wall Street in 2025. Will That Continue?**\
 `The boom in artificial intelligence was the biggest driver of gains in the stock market. That could pose a risk in 2026.`\
 https://nytimes.com/2025/12/31/business/stock-market-2025-artificial-intelligence-bubble.html
-
-**How the U.S. Coast Guard Fights Drug Smuggling at Sea**\
-`New York Times reporters spent two days with the Coast Guard’s drug interdiction teams to see how they stop suspected drug smuggling boats and seize narcotics using nonlethal tactics.`\
-https://nytimes.com/video/us/100000010613888/us-coast-guard-drug-smuggling-boats.html
-
-**One Factor Will Decide How Much You Enjoy TV Next Year**\
-`If Netflix acquires HBO, it will have won the streaming wars. But that’s not what will determine if TV shows get better, or worse.`\
-https://nytimes.com/2025/12/31/opinion/netlfix-hbo-streaming-war.html
 
