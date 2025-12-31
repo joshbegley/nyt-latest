@@ -6,13 +6,13 @@ https://nytimes.com/athletic/6931237/2025/12/31/sydney-hobart-min-river-overall-
 `The repatriation of the Cambodian soldiers captured in July comes on the heels of a 72-hour cease-fire that could end months of border skirmishes.`\
 https://nytimes.com/2025/12/31/world/asia/thailand-cambodia-pows.html
 
-**For Zohran Mamdani, a Crowning Moment, With Challenges Looming**\
-`Mr. Mamdani will become mayor of New York City on Thursday, carrying the hopes of the left, Muslims and younger voters as he looks to improve affordability.`\
-https://nytimes.com/2025/12/31/nyregion/mamdani-mayor-nyc.html
-
 **Tonight’s Ball Drop Is a Celebration of Both the New Year and Times History**\
 `The New York Times started the tradition in 1907, and this year’s ball drop will be a reminder that The Times played a role in making New Year’s Eve what it is.`\
 https://nytimes.com/2025/12/31/nyregion/new-year-ball-drop-new-york-times-square.html
+
+**For Zohran Mamdani, a Crowning Moment, With Challenges Looming**\
+`Mr. Mamdani will become mayor of New York City on Thursday, carrying the hopes of the left, Muslims and younger voters as he looks to improve affordability.`\
+https://nytimes.com/2025/12/31/nyregion/mamdani-mayor-nyc.html
 
 **Behind Oklahoma Cannabis Farms, New Yorkers With Ties to Beijing**\
 `In China, trafficking marijuana is punishable by death. But in the United States, it has become a lucrative sideline for some favored sons of the motherland.`\
