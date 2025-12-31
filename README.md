@@ -1,3 +1,11 @@
+**As Nick Robertson plays some of his best hockey, should he get more ice time?**\
+`With peskiness and two key assists, Robertson torched the Devils in a 4-0 Leafs win with one of his best games of the season.`\
+https://nytimes.com/athletic/6931008/2025/12/31/maple-leafs-devils-nick-robertson-ice-time/
+
+**Misery in Marrakech: How AFCON fans faced sinkholes, a 'crush' and dodging traffic on foot**\
+`Conditions at the AFCON venue have been criticised by fans, raising concerns over its suitability for the 2030 World Cup`\
+https://nytimes.com/athletic/6926828/2025/12/31/afcon-marrakech-stadium-fans/
+
 **Brigitte Bardot’s Legacy of Racist Rhetoric**\
 `The actress, who died this week at 91, was an icon of 1960s cinema. She was also a hero to the French far right.`\
 https://nytimes.com/2025/12/31/world/europe/brigitte-bardot-racism-far-right.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/31/business/china-rare-earths-history.html
 **Quote of the Day: Mamdani Finds Inspiration at Old City Hall Subway Station**\
 `Quotation of the Day for Wednesday, December 31, 2025.`\
 https://nytimes.com/2025/12/30/pageoneplus/quote-of-the-day-mamdani-finds-inspiration-at-old-city-hall-subway-station.html
-
-**Josh Giddey expected to miss multiple weeks with left hamstring strain**\
-`Giddey’s extended absence adds to a series of brutal blows for the Bulls.`\
-https://nytimes.com/athletic/6930920/2025/12/30/josh-giddey-injury-update-left-hamstring-out/
-
-**Justice Dept. Now Said to Be Reviewing 5.2 Million Pages of Epstein Files**\
-`The number represents a more precise, and potentially much larger, figure than earlier estimates. The department is seeking to enlist about 400 lawyers to help in the review.`\
-https://nytimes.com/2025/12/30/us/politics/esptein-files-5-million-pages.html
 
