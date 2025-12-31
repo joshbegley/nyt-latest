@@ -1,3 +1,15 @@
+**How to watch Dolphins vs. Patriots: Time, TV, streaming**\
+`Find out how to watch the Miami Dolphins play the New England Patriots, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6930606/2025/12/30/dolphins-vs-patriots-stream-how-to-watch-jan-4/
+
+**How to watch Commanders vs. Eagles: Time, TV, streaming**\
+`Find out how to watch the Washington Commanders play the Philadelphia Eagles, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6930597/2025/12/30/commanders-vs-eagles-stream-how-to-watch-jan-4/
+
+**How to watch Chargers vs. Broncos: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Chargers play the Denver Broncos, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6930594/2025/12/30/chargers-vs-broncos-stream-how-to-watch-jan-4/
+
 **Why scientists are studying the Thwaites glacier**\
 `(No description)`\
 https://nytimes.com/live/2025/climate/antarctica-thwaites-glacier/studying-thwaites-glacier

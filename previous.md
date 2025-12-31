@@ -1,3 +1,15 @@
+**How to watch Dolphins vs. Patriots: Time, TV, streaming**\
+`Find out how to watch the Miami Dolphins play the New England Patriots, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6930606/2025/12/30/dolphins-vs-patriots-stream-how-to-watch-jan-4/
+
+**How to watch Commanders vs. Eagles: Time, TV, streaming**\
+`Find out how to watch the Washington Commanders play the Philadelphia Eagles, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6930597/2025/12/30/commanders-vs-eagles-stream-how-to-watch-jan-4/
+
+**How to watch Chargers vs. Broncos: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Chargers play the Denver Broncos, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6930594/2025/12/30/chargers-vs-broncos-stream-how-to-watch-jan-4/
+
 **Why scientists are studying the Thwaites glacier**\
 `(No description)`\
 https://nytimes.com/live/2025/climate/antarctica-thwaites-glacier/studying-thwaites-glacier
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6929815/2025/12/30/macklin-celebrini-sharks-nhl-pla
 **Justice Dept. Leaders Pushed to Charge Abrego Garcia, Emails Show**\
 `The release of the emails raised serious questions about whether the Justice Department had misled a judge in telling him that local prosecutors had acted alone in charging Mr. Abrego Garcia.`\
 https://nytimes.com/2025/12/30/nyregion/abrego-garcia-charges-doj.html
-
-**Ocasio-Cortez Will Give Opening Remarks at Mamdani’s Inauguration**\
-`Representative Alexandria Ocasio-Cortez, whose rise to prominence foreshadowed Zohran Mamdani’s success, will speak at his swearing-in outside City Hall on Thursday.`\
-https://nytimes.com/2025/12/30/nyregion/ocasio-cortez-mamdani-inauguration.html
-
-**Trump Pushes Venezuela**\
-`Plus, the inside story of how the U.S. split with Ukraine. Here’s the latest at the end of Tuesday.`\
-https://nytimes.com/2025/12/30/briefing/venezuela-ukraine-mamdani.html
-
-**Patriots mailbag: Submit your playoff questions for reporter Chad Graff**\
-`As the Patriots’ first postseason trip in four years looms, we're resetting with a mailbag. Send in your playoff questions here.`\
-https://nytimes.com/athletic/6928899/2025/12/30/patriots-mailbag-playoffs-chad-graff/
 
