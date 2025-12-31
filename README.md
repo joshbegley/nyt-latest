@@ -1,3 +1,7 @@
+**Mamdani Nominates Top City Lawyer and Deputy Mayor of Health**\
+`The mayor-elect said the selections indicate his administration’s commitment to help New York City’s vulnerable residents.`\
+https://nytimes.com/2025/12/30/nyregion/mamdani-nominates-top-city-lawyer-deputy-mayor-of-health.html
+
 **Ben Nighthorse Campbell, Former Colorado Senator, Dies at 92**\
 `A Democrat turned Republican, he was the only Native American during three terms in the House of Representatives and in 12 years in the Senate. He was also a judo expert and an Olympian.`\
 https://nytimes.com/2025/12/30/us/politics/ben-nighthorse-campbell-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/12/30/us/elections/results-iowa-state-senat
 **How to watch Lions vs. Bears: Time, TV, streaming**\
 `Find out how to watch the Detroit Lions play the Chicago Bears, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6930631/2025/12/30/how-to-watch-lions-vs-bears-tv-channel-and-streaming-options-for-january-4/
-
-**How to watch Cardinals vs. Rams: Time, TV, streaming**\
-`Find out how to watch the Arizona Cardinals play the Los Angeles Rams, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6930626/2025/12/30/how-to-watch-cardinals-vs-rams-tv-channel-and-streaming-options-for-january-4/
 
