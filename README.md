@@ -10,7 +10,7 @@ https://nytimes.com/live/2025/climate/antarctica-thwaites-glacier/leaving-london
 `Jeffrey Martinovic gives us the last laugh of 2025.`\
 https://nytimes.com/2025/12/30/crosswords/daily-puzzle-2025-12-31.html
 
-**Isiah Whitlock Jr., Scene-Stealing Character Actor in ‘The Wire,’ Dies at 71**\
+**Isiah Whitlock Jr., 71, Scene-Stealing Character Actor in ‘The Wire,’ Dies**\
 `In one of his most enduring roles, he played a corrupt state senator known for his ability to fashion an expletive into an outstretched catchphrase.`\
 https://nytimes.com/2025/12/30/arts/television/isiah-whitlock-jr-dead.html
 
