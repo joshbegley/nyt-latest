@@ -1,3 +1,7 @@
+**Josh Giddey expected to miss multiple weeks with left hamstring strain**\
+`Giddey’s extended absence adds to a series of brutal blows for the Bulls.`\
+https://nytimes.com/athletic/6930920/2025/12/30/josh-giddey-injury-update-left-hamstring-out/
+
 **Josh Giddey expected to miss next few weeks with left hamstring strain**\
 `Giddey’s extended absence adds to a series of brutal blows for the Bulls.`\
 https://nytimes.com/athletic/6930920/2025/12/30/josh-giddey-injury-update-left-hamstring-out/
