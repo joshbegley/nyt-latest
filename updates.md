@@ -1,3 +1,7 @@
+**One step too far for Aston Villa, but the main aspirations remain**\
+`Despite the result, the recent run under Emery has led Villa to be entrenched in a Champions League spot, which was, and is, the aim.`\
+https://nytimes.com/athletic/6930436/2025/12/31/aston-villa-arsenal-unai-emery-defeat/
+
 **Newcastle's victory over Burnley must be the spark that improves their away form**\
 `Newcastle's win away from home was long overdue but it was also far from convincing`\
 https://nytimes.com/athletic/6925076/2025/12/31/newcastle-burnley-win-premier-league-analysis/

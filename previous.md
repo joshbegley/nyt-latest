@@ -10,6 +10,10 @@ https://nytimes.com/2025/12/31/us/politics/jon-kyl-dementia-arizona-senator.html
 `Amorim's side have moved on from last season, but the draw against a historically bad Wolves was met with a smattering of boos.`\
 https://nytimes.com/athletic/6928692/2025/12/31/man-united-amorim-annoying-embarrassing/
 
+**One step too far for Aston Villa, but the main aspirations remain**\
+`Despite the result, the recent run under Emery has led Villa to be entrenched in a Champions League spot, which was, and is, the aim.`\
+https://nytimes.com/athletic/6930436/2025/12/31/aston-villa-arsenal-unai-emery-defeat/
+
 **Arsenal have delivered the statement victory they needed**\
 `An emphatic win over a title rival answered many of the questions that had been bubbling up around Mikel Arteta's side`\
 https://nytimes.com/athletic/6930710/2025/12/31/arsenal-aston-villa-statement-win/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6929507/2025/12/31/liverpool-set-piece-coach/
 **Did England drop the ball by failing to appoint a fielding coach?**\
 `England have missed 11 chances across the Ashes which cost them a combined 383 runs, contributing heavily to their series loss in Australia`\
 https://nytimes.com/athletic/6923254/2025/12/31/england-fielding-coach-mccullum-ashes-drops/
-
-**West Ham fans have lost patience with their board – their manager could be next**\
-`West Ham United feels like a club that can’t get anything right at the moment...`\
-https://nytimes.com/athletic/6930373/2025/12/31/west-ham-fans-lost-patience-manager-next/
 
