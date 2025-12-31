@@ -1,3 +1,7 @@
+**How to watch Ohio State vs. Purdue women's basketball: Time, TV, streaming**\
+`Find out how to watch the Ohio State Buckeyes play the Purdue Boilermakers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6931348/2025/12/31/ohio-state-vs-purdue-stream-how-to-watch-dec-31/
+
 **It’s Going to Be a Cold New Year’s Eve for Much of the U.S.**\
 `Some of the season’s most frigid temperatures are expected this week.`\
 https://nytimes.com/2025/12/31/weather/cold-forecast-new-years-eve.html
