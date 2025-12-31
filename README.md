@@ -1,3 +1,11 @@
+**Key fantasy questions for 2026: Help for Jeanty? What's next for Hall?**\
+`Where does Breece Hall sign? Who's at quarterback in Miam and Arizona? The answers to these questions will shape fantasy drafts in 2026.`\
+https://nytimes.com/athletic/6930364/2025/12/31/the-key-questions-that-will-shape-fantasy-football-drafts-in-2026/
+
+**The Bounce: Scandals, sales and a shocking trade highlight top 10 moments of 2025**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/6931812/2025/12/31/the-bounce-top-10-nba-moments-2025/
+
 **Palace increasingly confident of signing Johnson from Tottenham**\
 `Eddie Nketiah's third hamstring issue of the season has exacerbated Palace's need for attacking reinforcements, with Ismalia Sarr at AFCON.`\
 https://nytimes.com/athletic/6931842/2025/12/31/brennan-johnson-crystal-palace-tottenham-transfer-confident/
@@ -5,6 +13,10 @@ https://nytimes.com/athletic/6931842/2025/12/31/brennan-johnson-crystal-palace-t
 **Why can't Nikola Jokić still be MVP? The NBA's 65-game rule needs some changes**\
 `There were good intentions behind the 65-game rule, but it shouldn't punish players like Jokić who suffer legitmate injuries. `\
 https://nytimes.com/athletic/6931798/2025/12/31/nikola-jokic-mvp-65-game-rule/
+
+**College Football Playoff 2025 bracket projections: Who will advance to the semifinals?**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/12/31/college-football-playoff-bracket-projections-odds/
 
 **Mali and Burkina Faso Impose Travel Bans on Americans**\
 `The West African countries said they made the decisions in retaliation against the Trump administration’s move to block their citizens from entering the United States.`\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6899991/2025/12/31/college-football-playoff-nationa
 **New Year’s 2026 Around the World**\
 `See how people across the globe celebrated.`\
 https://nytimes.com/2025/12/31/world/new-years-2026-celebrations-photos.html
-
-**The Keys to the City of New York Are Made in New Jersey**\
-`Mayor Eric Adams has handed out dozens of ceremonial golden keys during his single term. Since 2023, they have come from across the Hudson River.`\
-https://nytimes.com/2025/12/31/nyregion/adams-nyc-keys-to-city.html
-
-**For the Knicks, every day provides a new Tyler Kolek**\
-`The New York Knicks wanted a coach who was willing to experiment with lineups in-season to unlock postseason success.`\
-https://nytimes.com/athletic/6931037/2025/12/31/mike-brown-knicks-coach-rotation-experiment/
-
-**In 2025, the Canadiens' success went from surprising to sustainable**\
-`The Canadiens completed the calendar year with a win on the road against the Panthers, much like last year. But this feels different.`\
-https://nytimes.com/athletic/6931103/2025/12/31/montreal-canadiens-success-2025/
 
