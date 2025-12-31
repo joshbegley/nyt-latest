@@ -1,3 +1,11 @@
+**How to watch TCU vs. BYU women's basketball: Time, TV, streaming**\
+`Find out how to watch the TCU Horned Frogs play the BYU Cougars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6932429/2025/12/31/tcu-vs-byu-stream-how-to-watch-dec-31/
+
+**These Texas Tech parents kept their promise to be at every game, with Orange Bowl next**\
+`The couple has attended all 26 of their son's Texas Tech games, documenting the trips on social media and becoming program celebrities.`\
+https://nytimes.com/athletic/6932292/2025/12/31/texas-tech-college-football-playoff-parents/
+
 **Eagles to rest key starters in Week 18 vs. Commanders**\
 `Expect Tanner McKee to start at quarterback in place of Jalen Hurts for the Eagles, who need a win and a Bears loss to earn the No. 2 seed.`\
 https://nytimes.com/athletic/6932334/2025/12/31/eagles-rest-starters-commanders-week-18-playoffs/
@@ -21,16 +29,4 @@ https://nytimes.com/athletic/6932262/2025/12/31/anthony-davis-return-injury-mave
 **Most of Iran Shuts Down as Government Grapples With Protests and Economy**\
 `Amid mounting street protests, businesses, universities and government offices stayed closed Wednesday under government orders, in 21 of 31 provinces, including the Tehran.`\
 https://nytimes.com/2025/12/31/world/middleeast/iran-shutdown-protests.html
-
-**Tyler Mahle agrees to join the Giants on a one-year deal: Source**\
-`Mahle is the Giants' second starting pitching addition this offseason, joining Adrian Houser.`\
-https://nytimes.com/athletic/6932235/2025/12/31/sf-giants-tyler-mahle-free-agent-signing/
-
-**Packers' QB situation uncertain as Jordan Love practices, Desmond Ridder added**\
-`Backup quarterback Malik Willis was limited at Wednesday's practice with a shoulder injury.`\
-https://nytimes.com/athletic/6932287/2025/12/31/packers-quarterback-jordan-love-malik-willis-desmond-ridder/
-
-**Macron Backs Social Media Restrictions for Children**\
-`French lawmakers are expected next month to discuss a ban on social media for children. In his New Year’s Eve address, the French president restated his support for restricting their access.`\
-https://nytimes.com/2025/12/31/world/europe/macron-social-media-children-ban-france.html
 
