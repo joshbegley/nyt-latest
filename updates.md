@@ -1,3 +1,7 @@
+**Eagles to rest key starters in Week 18 vs. Commanders**\
+`Expect Tanner McKee to start at quarterback in place of Jalen Hurts for the Eagles, who need a win and a Bears loss to earn the No. 2 seed.`\
+https://nytimes.com/athletic/6932334/2025/12/31/eagles-rest-starters-commanders-week-18-playoffs/
+
 **What to Know About Zohran Mamdani’s Inauguration**\
 `Zohran Mamdani will be sworn in as mayor of New York City at the abandoned City Hall subway station at midnight on New Year’s Day followed by a ceremonial inauguration later that day. Up to 40,000 people are expected to attend the event.`\
 https://nytimes.com/video/nyregion/100000010617548/zohran-mamdani-mayor-inauguration.html

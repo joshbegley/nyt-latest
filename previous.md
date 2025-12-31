@@ -1,3 +1,7 @@
+**Eagles to rest key starters in Week 18 vs. Commanders**\
+`Expect Tanner McKee to start at quarterback in place of Jalen Hurts for the Eagles, who need a win and a Bears loss to earn the No. 2 seed.`\
+https://nytimes.com/athletic/6932334/2025/12/31/eagles-rest-starters-commanders-week-18-playoffs/
+
 **What to Know About Zohran Mamdani’s Inauguration**\
 `Zohran Mamdani will be sworn in as mayor of New York City at the abandoned City Hall subway station at midnight on New Year’s Day followed by a ceremonial inauguration later that day. Up to 40,000 people are expected to attend the event.`\
 https://nytimes.com/video/nyregion/100000010617548/zohran-mamdani-mayor-inauguration.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6932287/2025/12/31/packers-quarterback-jordan-love-
 **Macron Backs Social Media Restrictions for Children**\
 `French lawmakers are expected next month to discuss a ban on social media for children. In his New Year’s Eve address, the French president restated his support for restricting their access.`\
 https://nytimes.com/2025/12/31/world/europe/macron-social-media-children-ban-france.html
-
-**Trump’s Tangled Web of Deal-Making, Policy and Riches**\
-`The president, his family and some of their closest associates have engaged in a sprawling campaign of deals that stretches across industries and the globe.`\
-https://nytimes.com/interactive/2025/12/31/us/trump-deals-policy-conflicts-web.html
 
