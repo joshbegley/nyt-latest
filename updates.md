@@ -1,3 +1,7 @@
+**James Garner's inspired performance gives depleted Everton cause for hope**\
+`Everton are sitting pretty under David Moyes, and Garner has played a big role in that`\
+https://nytimes.com/athletic/6930348/2025/12/31/james-garner-everton-nottingham-forest/
+
 **Arctic Blast Grips U.S. Ahead of the New Year**\
 `As people in the United States prepared to ring in the new year, temperatures plunged as much as 20 degrees below normal across much of the country.`\
 https://nytimes.com/video/us/100000010616655/cold-forecast-new-years-eve.html
