@@ -1,3 +1,11 @@
+**Federal Judge Blocks Trump Move to Revoke Deportation Protection for Thousands of Migrants**\
+`The ruling found that the administration’s cancellation of the protections for migrants from Honduras, Nepal and Nicaragua was illegal.`\
+https://nytimes.com/2025/12/31/us/politics/judge-blocks-deportation-protections.html
+
+**The Best Movies and TV Shows Coming to Netflix in January**\
+`The first month of 2026 includes the latest Harlan Coben adaptation and the return of “Bridgerton.”`\
+https://nytimes.com/2025/12/31/arts/television/netflix-new-january-bridgerton.html
+
 **The Best Tabletop Party Games **\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/the-best-tabletop-party-games-
