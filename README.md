@@ -1,3 +1,7 @@
+**West Ham fans have lost patience with their board – their manager could be next**\
+`West Ham United feels like a club that can’t get anything right at the moment...`\
+https://nytimes.com/athletic/6930373/2025/12/31/west-ham-fans-lost-patience-manager-next/
+
 **Leeds United 2025 in review: Rodon shines, a long-awaited promotion party and fire beasts**\
 `The year 2025 will likely be defined by promotion and the party that followed — but 2026 will be crucial`\
 https://nytimes.com/athletic/6893620/2025/12/31/leeds-united-2025-review/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6925721/2025/12/31/real-madrid-bernabeu-pitch-stadi
 **The best of 2025: Our staff pick their favourite pieces (by their colleagues)**\
 `The Athletic UK's team chose their favourite articles of 2025 written by their colleagues`\
 https://nytimes.com/athletic/6925123/2025/12/31/the-best-of-the-athletic-2025-review/
-
-**As Nick Robertson plays some of his best hockey, should he get more ice time?**\
-`With peskiness and two key assists, Robertson torched the Devils in a 4-0 Leafs win with one of his best games of the season.`\
-https://nytimes.com/athletic/6931008/2025/12/31/maple-leafs-devils-nick-robertson-ice-time/
 
