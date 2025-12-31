@@ -1,3 +1,11 @@
+**Trump administration moves to take control of D.C.'s municipal golf courses**\
+`National Links Trust, which holds a lease to run three D.C. courses, received a notice of termination from the Department of the Interior.`\
+https://nytimes.com/athletic/6932602/2025/12/31/trump-control-dc-public-golf-courses/
+
+**53 Fascinating Facts of 2025**\
+`Each day, Times Insider editors scour the newspaper for the most interesting facts to appear on our pages. This year, tidbits about plastic recycling, whale sharks and crab Rangoon enlightened and entertained us.`\
+https://nytimes.com/2025/12/31/insider/2025-fun-facts.html
+
 **Not taking Rangers' Adam Fox to the Olympics would be a mistake for Team USA**\
 `Leaving one of the NHL's premier defensemen off the roster would be a big miss on the part of the American decision-makers.`\
 https://nytimes.com/athletic/6932514/2025/12/31/usa-olympic-hockey-roster-adam-fox-rangers/
