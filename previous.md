@@ -1,3 +1,7 @@
+**Not taking Rangers' Adam Fox to the Olympics would be a mistake for Team USA**\
+`Leaving one of the NHL’s premier defensemen off the roster would be a big miss on the part of the American decision-makers.`\
+https://nytimes.com/athletic/6932514/2025/12/31/usa-olympic-hockey-roster-adam-fox-rangers/
+
 **Federal Judge Blocks Trump Move to Revoke Deportation Protection for Thousands of Migrants**\
 `The ruling found that the administration’s cancellation of the protections for migrants from Honduras, Nepal and Nicaragua was illegal.`\
 https://nytimes.com/2025/12/31/us/politics/judge-blocks-deportation-protections.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/31/us/politics/trump-national-guard.html
 **Brighton agree deal to re-sign Pascal Gross from Borussia Dortmund**\
 `Gross, 34, is set to have a medical with Brighton ahead of returning to the Premier League after 18 months in Germany.`\
 https://nytimes.com/athletic/6932512/2025/12/31/pascal-gross-brighton-borussia-dortmund-transfer/
-
-**Packers claim former Cowboys cornerback Trevon Diggs: Source**\
-`The two-time Pro Bowl corner could help a shorthanded Green Bay secondary.`\
-https://nytimes.com/athletic/6932532/2025/12/31/packers-signing-trevon-diggs/
 
