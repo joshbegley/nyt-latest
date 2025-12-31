@@ -1,3 +1,15 @@
+**Palace increasingly confident of signing Johnson from Tottenham**\
+`Eddie Nketiah's third hamstring issue of the season has exacerbated Palace's need for attacking reinforcements, with Ismalia Sarr at AFCON.`\
+https://nytimes.com/athletic/6931842/2025/12/31/brennan-johnson-crystal-palace-tottenham-transfer-confident/
+
+**Why can't Nikola Jokić still be MVP? The NBA's 65-game rule needs some changes**\
+`There were good intentions behind the 65-game rule, but it shouldn't punish players like Jokić who suffer legitmate injuries. `\
+https://nytimes.com/athletic/6931798/2025/12/31/nikola-jokic-mvp-65-game-rule/
+
+**Mali and Burkina Faso Impose Travel Bans on Americans**\
+`The West African countries said they made the decisions in retaliation against the Trump administration’s move to block their citizens from entering the United States.`\
+https://nytimes.com/2025/12/31/world/africa/mali-burkina-faso-us-travel-ban.html
+
 **Colombus Crew finalizing deal to name Henrik Rydström as head coach**\
 `Rydström was previously manager of Malmö, where he won two league titles, but is currently out of work.`\
 https://nytimes.com/athletic/6931784/2025/12/31/colombus-crew-head-coach-henrik-rydstrom/
@@ -5,6 +17,10 @@ https://nytimes.com/athletic/6931784/2025/12/31/colombus-crew-head-coach-henrik-
 **Quick Outs: Malik Willis may have played his way into a starting job, somewhere**\
 `Willis could have a surprisingly robust market once he hits free agency. Also, we're not showing enough love to Bijan Robinson's play.`\
 https://nytimes.com/athletic/6929191/2025/12/31/nfl-week-17-willis-brock-purdy-quick-outs/
+
+**Will college football have a new champion? Here's each CFP team's national title history**\
+`Three of the top five seeds in the College Football Playoff have never won a national title, including No. 1 Indiana.`\
+https://nytimes.com/athletic/6899991/2025/12/31/college-football-playoff-national-championships-history-teams/
 
 **New Year’s 2026 Around the World**\
 `See how people across the globe celebrated.`\
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6931037/2025/12/31/mike-brown-knicks-coach-rotation
 **In 2025, the Canadiens' success went from surprising to sustainable**\
 `The Canadiens completed the calendar year with a win on the road against the Panthers, much like last year. But this feels different.`\
 https://nytimes.com/athletic/6931103/2025/12/31/montreal-canadiens-success-2025/
-
-**Relationship Between U.S. and Germany Is ‘Changing,’ German Leader Says**\
-`Chancellor Friedrich Merz of Germany, making his New Year’s Eve address, said the change would force Europe to do more to defend itself.`\
-https://nytimes.com/2025/12/31/world/europe/merz-germany-new-years-speech.html
-
-**Newcastle recall Cordero from KVC Westerlo loan, will join Cadiz**\
-`Cordero returns to Spain after struggling for game time in Belgium.`\
-https://nytimes.com/athletic/6931696/2025/12/31/newcastle-transfer-news-cordero-cadiz-loan/
-
-**Women Directed Fewer Box Office Hits in 2025, Report Finds**\
-`The number of female filmmakers dropped to 8.1 percent this year from 13.4 percent in 2024, according to a study from the University of Southern California.`\
-https://nytimes.com/2025/12/31/movies/women-directed-fewer-box-office-hits-in-2025-report-finds.html
-
-**My Mother Is Estranged From Her Brother. Can I Help?**\
-`A reader is hesitant to interfere in a yearlong mother-and-uncle skirmish, despite one party’s track record for torpedoing close relationships.`\
-https://nytimes.com/2025/12/31/style/familial-estrangement-peacemaking.html
 
