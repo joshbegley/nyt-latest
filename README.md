@@ -1,3 +1,15 @@
+**Arctic Blast Grips U.S. Ahead of the New Year**\
+`As people in the United States prepared to ring in the new year, temperatures plunged as much as 20 degrees below normal across much of the country.`\
+https://nytimes.com/video/us/100000010616655/cold-forecast-new-years-eve.html
+
+**Cannabis, conveyer belts and Christmas trees: The magic of Real Madrid's pitch**\
+`The Spanish giants want to host as many non-match events as possible at their stadium to boost revenues even further`\
+https://nytimes.com/athletic/6925721/2025/12/31/real-madrid-bernabeu-pitch-stadium-design/
+
+**The best of 2025: Our staff pick their favourite pieces (by their colleagues)**\
+`The Athletic UK's team chose their favourite articles of 2025 written by their colleagues`\
+https://nytimes.com/athletic/6925123/2025/12/31/the-best-of-the-athletic-2025-review/
+
 **As Nick Robertson plays some of his best hockey, should he get more ice time?**\
 `With peskiness and two key assists, Robertson torched the Devils in a 4-0 Leafs win with one of his best games of the season.`\
 https://nytimes.com/athletic/6931008/2025/12/31/maple-leafs-devils-nick-robertson-ice-time/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6927049/2025/12/31/week-18-fantasy-football-ranking
 **Corrections: Dec. 31, 2025**\
 `Corrections that appeared in print on Wednesday, Dec. 31, 2025.`\
 https://nytimes.com/2025/12/31/pageoneplus/corrections-dec-31-2025.html
-
-**Slow Pace of Flood Recovery Stirs Anger in Far-Flung Corner of Indonesia**\
-`Protests have erupted in Aceh Province on the northern tip of Sumatra island, where anger and frustration are mounting over what many see as inadequate relief efforts by a distracted government.`\
-https://nytimes.com/2025/12/31/world/asia/indonesia-flood-recovery-aceh.html
-
-**Inside China’s Six-Decade Campaign to Dominate Rare Earths**\
-`From Deng Xiaoping to Xi Jinping, generations of Communist Party bosses and military leaders invested in a strategic but heavily polluting industry.`\
-https://nytimes.com/2025/12/31/business/china-rare-earths-history.html
-
-**Quote of the Day: Mamdani Finds Inspiration at Old City Hall Subway Station**\
-`Quotation of the Day for Wednesday, December 31, 2025.`\
-https://nytimes.com/2025/12/30/pageoneplus/quote-of-the-day-mamdani-finds-inspiration-at-old-city-hall-subway-station.html
 
