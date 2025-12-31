@@ -1,3 +1,11 @@
+**Liverpool need to take set pieces seriously. A specialist coach would be a good start**\
+`With dead balls more important than ever, Liverpool need to appoint a best-in-class coach to improve an obvious weakness`\
+https://nytimes.com/athletic/6929507/2025/12/31/liverpool-set-piece-coach/
+
+**Did England drop the ball by failing to appoint a fielding coach?**\
+`England have missed 11 chances across the Ashes which cost them a combined 383 runs, contributing heavily to their series loss in Australia`\
+https://nytimes.com/athletic/6923254/2025/12/31/england-fielding-coach-mccullum-ashes-drops/
+
 **West Ham fans have lost patience with their board – their manager could be next**\
 `West Ham United feels like a club that can’t get anything right at the moment...`\
 https://nytimes.com/athletic/6930373/2025/12/31/west-ham-fans-lost-patience-manager-next/
