@@ -1,3 +1,15 @@
+**Emmanuel Macron Backs Social Media Restrictions for Children**\
+`French lawmakers are expected next month to discuss a ban on social media for children. In his New Year’s Eve address, the French president restated his support for restricting their access.`\
+https://nytimes.com/2025/12/31/world/europe/macron-social-media-children-ban-france.html
+
+**Trump’s Tangled Web of Deal-Making, Policy and Riches**\
+`The president, his family and some of their closest associates have engaged in a sprawling campaign of deals that stretches across industries and the globe.`\
+https://nytimes.com/interactive/2025/12/31/us/trump-deals-policy-conflicts-web.html
+
+**Scoop City: A 2025 season to forget for Pete Carroll's Raiders**\
+`We'll end 2025 with a quick look at the contrasting seasons of Pete Carroll, Drake Maye and Myles Garrett`\
+https://nytimes.com/athletic/6932289/2025/12/31/2025-season-recap-raiders-patriots-browns/
+
 **Doug Armstrong on Canada's hardest Olympic hockey decision and why roster flexibility is key**\
 `Doug Armstrong spent the final few weeks agonizing over four roster decisions, two up front, one on D and one in goal.`\
 https://nytimes.com/athletic/6932097/2025/12/31/team-canada-2026-olympic-hockey-roster-doug-armstrong/
