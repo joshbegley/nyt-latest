@@ -1,3 +1,23 @@
+**Trump Vetoes 2 Bills, Drawing Accusations of Retaliation**\
+`The president said he blocked the bills to save taxpayers’ money. But he has grievances against a tribe in Florida and officials in Colorado.`\
+https://nytimes.com/2025/12/31/us/politics/trump-vetoes-retribution.html
+
+**How to watch Pelicans vs. Bulls: Time, TV, streaming**\
+`Find out how to watch the New Orleans Pelicans play the Chicago Bulls, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6932025/2025/12/31/pelicans-vs-bulls-stream-how-to-watch-dec-31/
+
+**How to watch Knicks vs. Spurs: Time, TV, streaming**\
+`Find out how to watch the New York Knicks play the San Antonio Spurs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6932023/2025/12/31/knicks-vs-spurs-stream-how-to-watch-dec-31/
+
+**Betting for (by) dummies: Will Ohio State-Miami turn into a laugher?**\
+`After a two-week hiatus, Jon Greenberg and Zac Jackson load up on bowl picks and NFL Week 18.`\
+https://nytimes.com/athletic/6930559/2025/12/31/nfl-college-football-betting-picks-bowl-week-18/
+
+**How to watch Devils vs. Blue Jackets: Time, TV, streaming**\
+`Find out how to watch the New Jersey Devils play the Columbus Blue Jackets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6932015/2025/12/31/devils-vs-blue-jackets-stream-how-to-watch-dec-31/
+
 **How to watch Jets vs. Red Wings: Time, TV, streaming**\
 `Find out how to watch the Winnipeg Jets play the Detroit Red Wings, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6932008/2025/12/31/jets-vs-red-wings-stream-how-to-watch-dec-31/
