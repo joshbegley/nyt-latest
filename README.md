@@ -1,3 +1,15 @@
+**Emmanuel Macron Backs Social Media Restrictions for Children**\
+`French lawmakers are expected next month to discuss a ban on social media for children. In his New Year’s Eve address, the French president restated his support for restricting their access.`\
+https://nytimes.com/2025/12/31/world/europe/macron-social-media-children-ban-france.html
+
+**Trump’s Tangled Web of Deal-Making, Policy and Riches**\
+`The president, his family and some of their closest associates have engaged in a sprawling campaign of deals that stretches across industries and the globe.`\
+https://nytimes.com/interactive/2025/12/31/us/trump-deals-policy-conflicts-web.html
+
+**Scoop City: A 2025 season to forget for Pete Carroll's Raiders**\
+`We'll end 2025 with a quick look at the contrasting seasons of Pete Carroll, Drake Maye and Myles Garrett`\
+https://nytimes.com/athletic/6932289/2025/12/31/2025-season-recap-raiders-patriots-browns/
+
 **Doug Armstrong on Canada's hardest Olympic hockey decision and why roster flexibility is key**\
 `Doug Armstrong spent the final few weeks agonizing over four roster decisions, two up front, one on D and one in goal.`\
 https://nytimes.com/athletic/6932097/2025/12/31/team-canada-2026-olympic-hockey-roster-doug-armstrong/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6932000/2025/12/31/ravens-lamar-jackson-practice-re
 **NASA’s Largest Library Is Closing Amid Staff and Lab Cuts**\
 `Holdings from the library at the Goddard Space Flight Center, which includes unique documents from the early 20th century to the Soviet space race, will be warehoused or thrown out.`\
 https://nytimes.com/2025/12/31/climate/nasa-goddard-library-closing.html
-
-**Snubbing Geekie and his goal scoring could hurt Canada when it matters**\
-`There will come a time during the Olympics when Canada needs a goal. It may be at that moment when they regret leaving Geekie at home.`\
-https://nytimes.com/athletic/6929640/2025/12/31/canada-olympics-morgan-geekie/
-
-**Submit your questions for Kevin Fishbain's Bears mailbag**\
-`The Bears host the Lions on Sunday before turning their full attention to their first playoff game in five years. What's on your mind?`\
-https://nytimes.com/athletic/6930065/2025/12/31/bears-mailbag-questions-53/
-
-**Leafs get bad news on Tanev but glimmer of hope with Stolarz**\
-`The Leafs provided injury updates on multiple players: Chris Tanev, Anthony Stolarz, Auston Matthews, William Nylander and Dakota Joshua.`\
-https://nytimes.com/athletic/6932141/2025/12/31/leafs-chris-tanev-anthony-stolarz-injury-update/
 
