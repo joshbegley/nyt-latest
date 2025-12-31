@@ -1,3 +1,11 @@
+**Newcastle's victory over Burnley must be the spark that improves their away form**\
+`Newcastle's win away from home was long overdue but it was also far from convincing`\
+https://nytimes.com/athletic/6925076/2025/12/31/newcastle-burnley-win-premier-league-analysis/
+
+**Jon Kyl, Former Arizona Senator, Says He Has Dementia**\
+`The Republican served for almost three decades in Congress. He said he was withdrawing from public life after the diagnosis.`\
+https://nytimes.com/2025/12/31/us/politics/jon-kyl-dementia-arizona-senator.html
+
 **Manchester United right now: Annoying or embarrassing?**\
 `Amorim's side have moved on from last season, but the draw against a historically bad Wolves was met with a smattering of boos.`\
 https://nytimes.com/athletic/6928692/2025/12/31/man-united-amorim-annoying-embarrassing/
