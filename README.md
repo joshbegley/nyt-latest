@@ -1,3 +1,15 @@
+**Manhattan Man, 80, Faces Homicide Charge After Sidewalk Shoving**\
+`Dana Escoffier was indicted on a charge of criminally negligent homicide in the death of Dean Whetzel, 82, a neighbor whom he had known for decades.`\
+https://nytimes.com/2025/12/31/nyregion/nyc-man-homicide-charges-sidewalk-shoving.html
+
+**Thieves Make Off With Millions in German Bank Heist**\
+`The robbers stole valuables with an insured value of at least $36 million from a bank in Gelsenkirchen, western Germany.`\
+https://nytimes.com/2025/12/31/world/europe/germany-heist-bank-robbery.html
+
+**Patriots DT Christian Barmore facing assault and battery charge in domestic dispute**\
+`Barmore faces a misdemeanor assault and battery charge stemming from an alleged incident in August with his then-girlfriend.`\
+https://nytimes.com/athletic/6932005/2025/12/31/christian-barmore-patriots-domestic-assault-charges/
+
 **Snub or sub? Injured Connor Bedard left off Canada's initial Olympic roster**\
 `Unless he finds his way onto the team as an injury replacement, Bedard will have to wait until Nice, France, in 2030.`\
 https://nytimes.com/athletic/6930717/2025/12/31/canada-2026-olympics-hockey-roster-connor-bedard-blackhawks/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/12/31/us/politics/abrego-garcia-timeline-trump.html
 **In Ukraine, a New Arsenal of Killer A.I. Drones Is Being Born**\
 `As the war grinds on, sophisticated Russian defenses have pushed Ukraine to develop a frightening new weapon: semiautonomous killing machines.`\
 https://nytimes.com/2025/12/31/magazine/ukraine-ai-drones-war-russia.html
-
-**Super Bowl odds: Should the 49ers get more love?**\
-`The NFC West has three teams in the top five of Super Bowl odds. Two of them play this Saturday.`\
-https://nytimes.com/athletic/6931875/2025/12/31/super-bowl-odds-rams-seahawks-broncos-49ers/
-
-**Trump Vetoes 2 Bills, Drawing Accusations of Retaliation**\
-`The president said he blocked the bills to save taxpayers’ money. But he has grievances against a tribe in Florida and officials in Colorado.`\
-https://nytimes.com/2025/12/31/us/politics/trump-vetoes-retribution.html
-
-**How to watch Pelicans vs. Bulls: Time, TV, streaming**\
-`Find out how to watch the New Orleans Pelicans play the Chicago Bulls, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6932025/2025/12/31/pelicans-vs-bulls-stream-how-to-watch-dec-31/
 

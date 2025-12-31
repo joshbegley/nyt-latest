@@ -1,3 +1,15 @@
+**Snub or sub? Injured Connor Bedard left off Canada's initial Olympic roster**\
+`Unless he finds his way onto the team as an injury replacement, Bedard will have to wait until Nice, France, in 2030.`\
+https://nytimes.com/athletic/6930717/2025/12/31/canada-2026-olympics-hockey-roster-connor-bedard-blackhawks/
+
+**A Heartbreaking Essay, Delivered Fully Formed**\
+`When Tatiana Schlossberg submitted an essay to The New Yorker, it had not been assigned or even expected. It was accepted immediately and barely edited.`\
+https://nytimes.com/2025/12/31/style/tatiana-schlossberg-new-yorker-essay-david-remnick.html
+
+**Botafogo given transfer ban over unpaid MLS record Almada fee to Atlanta**\
+`The sanction is set to run for three transfer windows.`\
+https://nytimes.com/athletic/6931904/2025/12/31/botafogo-transfer-ban-atlanta-thiago-almada/
+
 **In New Year’s Message to War-Weary Russia, Putin Says Little About War**\
 `The Kremlin leader kept his speech short, spoke only briefly about the fighting in Ukraine, and did not mention U.S.-mediated talks on ending the war.`\
 https://nytimes.com/2025/12/31/world/europe/russia-putin-new-years-address.html
