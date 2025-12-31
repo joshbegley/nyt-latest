@@ -1,3 +1,11 @@
+**‘Swipe, Swipe’: New Yorkers Give the MetroCard a Public Funeral**\
+`There were few tears at a funeral for the MetroCard, which included chants of “swipe, swipe” and an urn.`\
+https://nytimes.com/2025/12/31/nyregion/metrocard-funeral-new-york.html
+
+**Richard Smallwood, 77, Choral Leader and Composer of Gospel Hits, Dies**\
+`He sold millions of albums with the Richard Smallwood Singers, and his songs, many influenced by classical music, were recorded by stars like Whitney Houston.`\
+https://nytimes.com/2025/12/31/arts/music/richard-smallwood-dead.html
+
 **Venezuela Detains Americans Amid Growing U.S. Pressure**\
 `The number of American citizens held in Venezuela has grown since the start of the U.S. military and economic campaign against President Nicolás Maduro.`\
 https://nytimes.com/2025/12/31/world/americas/venezuela-detained-americans.html
