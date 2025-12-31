@@ -1,3 +1,7 @@
+**Brighton agree deal to re-sign Pascal Gross from Borussia Dortmund**\
+`Gross, 34, is set to have a medical with Brighton ahead of returning to the Premier League after 18 months in Germany.`\
+https://nytimes.com/athletic/6932512/2025/12/31/pascal-gross-brighton-borussia-dortmund-transfer/
+
 **Packers claim former Cowboys cornerback Trevon Diggs: Source**\
 `The two-time Pro Bowl corner could help a shorthanded Green Bay secondary.`\
 https://nytimes.com/athletic/6932532/2025/12/31/packers-signing-trevon-diggs/
