@@ -1,3 +1,7 @@
+**Jiang Lin becomes first female skipper to win overall Sydney Hobart title**\
+`Min River is the first double-handed yacht to win the prestigious Tattersall Cup, winning the overall Sydney to Hobart race after a protest`\
+https://nytimes.com/athletic/6931237/2025/12/31/sydney-hobart-min-river-overall-race-winners/
+
 **Thailand Releases 18 Cambodian P.O.W.s**\
 `The repatriation of the Cambodian soldiers captured in July comes on the heels of a 72-hour cease-fire that could end months of border skirmishes.`\
 https://nytimes.com/2025/12/31/world/asia/thailand-cambodia-pows.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/31/nyregion/ozturk-lawyer-detention-release.html
 **A tactical masterstroke, fight and a threat in attack. How Wolves impressed at Old Trafford**\
 `Wolves' draw against Manchester United is a crumb of comfort Rob Edwards will treasure like a diamond`\
 https://nytimes.com/athletic/6930785/2025/12/31/wolverhampton-wanderers-manchester-united-analysis/
-
-**How to watch Ravens vs. Steelers: Time, TV, streaming**\
-`Find out how to watch the Baltimore Ravens play the Pittsburgh Steelers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6931194/2025/12/31/ravens-vs-steelers-stream-how-to-watch-jan-4/
 

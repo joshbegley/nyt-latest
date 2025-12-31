@@ -1,3 +1,7 @@
+**Jiang Lin becomes first female skipper to win overall Sydney Hobart title**\
+`Min River is the first double-handed yacht to win the prestigious Tattersall Cup, winning the overall Sydney to Hobart race after a protest`\
+https://nytimes.com/athletic/6931237/2025/12/31/sydney-hobart-min-river-overall-race-winners/
+
 **Thailand Releases 18 Cambodian P.O.W.s**\
 `The repatriation of the Cambodian soldiers captured in July comes on the heels of a 72-hour cease-fire that could end months of border skirmishes.`\
 https://nytimes.com/2025/12/31/world/asia/thailand-cambodia-pows.html
