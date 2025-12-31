@@ -1,3 +1,7 @@
+**Ben Nighthorse Campbell, Former Colorado Senator, Dies at 92**\
+`A Democrat turned Republican, he was the only Native American during three terms in the House of Representatives and in 12 years in the Senate. He was also a judo expert and an Olympian.`\
+https://nytimes.com/2025/12/30/us/politics/ben-nighthorse-campbell-dead.html
+
 **Iowa Democrat Wins State Senate Seat, Fending Off G.O.P. Supermajority**\
 `By holding a left-leaning seat in suburban Des Moines, Democrats ensured that Republicans would not have a supermajority in the State Senate.`\
 https://nytimes.com/2025/12/30/us/iowa-senate-special-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6930631/2025/12/30/how-to-watch-lions-vs-bears-tv-c
 **How to watch Cardinals vs. Rams: Time, TV, streaming**\
 `Find out how to watch the Arizona Cardinals play the Los Angeles Rams, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6930626/2025/12/30/how-to-watch-cardinals-vs-rams-tv-channel-and-streaming-options-for-january-4/
-
-**How to watch Chiefs vs. Raiders: Time, TV, streaming**\
-`Find out how to watch the Kansas City Chiefs play the Las Vegas Raiders, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6930624/2025/12/30/how-to-watch-chiefs-vs-raiders-tv-channel-and-streaming-options-for-january-4/
 
