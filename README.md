@@ -1,3 +1,7 @@
+**How to watch Ohio State vs. Purdue women's basketball: Time, TV, streaming**\
+`Find out how to watch the Ohio State Buckeyes play the Purdue Boilermakers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6931348/2025/12/31/ohio-state-vs-purdue-stream-how-to-watch-dec-31/
+
 **It’s Going to Be a Cold New Year’s Eve for Much of the U.S.**\
 `Some of the season’s most frigid temperatures are expected this week.`\
 https://nytimes.com/2025/12/31/weather/cold-forecast-new-years-eve.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/31/movies/2025-best-movies-marty-supreme.html
 **$850,000 Homes in Arizona, Oklahoma and Connecticut**\
 `This week’s homes include a midcentury modern in Phoenix, a bungalow in Oklahoma City and a Colonial-Revival in Old Saybrook.`\
 https://nytimes.com/2025/12/31/realestate/850000-thousand-dollar-homes-in-oklahoma-city-old-saybrook-phoenix.html
-
-**Drug Smugglers Not Blown Up at Sea Still Risk Capture by Coast Guard**\
-`Cutters are still stopping smugglers and seizing drugs, but the prosecutions of go-fast boat crews are dwindling in a realignment of federal resources.`\
-https://nytimes.com/2025/12/31/us/politics/trump-boat-strikes-coast-guard-drug-operations.html
 
