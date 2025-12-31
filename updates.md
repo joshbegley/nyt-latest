@@ -1,3 +1,11 @@
+**He Is Being Sued in the U.S. for Human Rights Abuses. He Could be Deported First.**\
+`Rafael Quero Silva faces a lawsuit brought by five people who say he oversaw their abuse and mistreatment as a military officer in Venezuela. But he could be deported before the case is heard.`\
+https://nytimes.com/2025/12/31/world/americas/human-rights-lawsuit-quero-silva.html
+
+**The keys to the Pistons' win over the Lakers? Soccer, selflessness and Sasser**\
+`Detroit took some time to decompress and then got an unexpected boost from a previously little-used role player, showing off its depth.`\
+https://nytimes.com/athletic/6931423/2025/12/31/pistons-marcus-sasser-lakers-win/
+
 **How to watch Magic vs. Pacers: Time, TV, streaming**\
 `Find out how to watch the Orlando Magic play the Indiana Pacers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6931641/2025/12/31/magic-vs-pacers-stream-how-to-watch-dec-31/
