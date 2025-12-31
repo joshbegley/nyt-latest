@@ -1,3 +1,7 @@
+**MLB’s Strange But True 2025: Wildest hitting and pitching feats of the year**\
+`We’ve reached the end of 2025 — and the final piece in our Strange But True year-end series. Presenting the SBT hitting and pitching feats!`\
+https://nytimes.com/athletic/6931365/2025/12/31/mlb-wild-hitting-pitching-facts-2025/
+
 **College Football Playoff watch guide: Broadcast info for New Year's quarterfinal games**\
 `The College Football Playoff bracket branches into New Year's Eve and New Year's Day, with four games spread from Bourbon St. to Pasadena.`\
 https://nytimes.com/athletic/6927961/2025/12/31/cfp-watch-guide-ohio-state-miami-indiana-alabama-tv-schedule/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6926661/2025/12/31/blues-jim-montgomery-retool-resu
 **USLPA asks for 'livable wages' as talks stall before New Year deadline**\
 `Stalled talks have created a nervous limbo in the second tier of North American soccer`\
 https://nytimes.com/athletic/6929601/2025/12/31/usl-players-association-wages/
-
-**What Gunner Stockton, Trinidad Chambliss' success says about developing vs. transfer QBs**\
-`The contrast is a reminder that in the transfer portal era there’s still multiple ways to do it.`\
-https://nytimes.com/athletic/6930410/2025/12/31/gunner-stockton-trinidad-chambliss-georgia-ole-miss/
 

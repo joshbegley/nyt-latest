@@ -1,3 +1,12 @@
+**MLB’s Strange But True 2025: Wildest hitting and pitching feats of the year**\
+`We’ve reached the end of 2025 — and the final piece in our Strange But True year-end series. Presenting the SBT hitting and pitching feats!`\
+https://nytimes.com/athletic/6931365/2025/12/31/mlb-wild-hitting-pitching-facts-2025/
+
+**Warming Blue Jackets brace for New Year's Eve rematch with struggling Devils**\
+`The last meeting between the Blue Jackets and Devils on Dec. 1 was a fight-filled, unexpectedly chaotic game.
+`\
+https://nytimes.com/athletic/6930208/2025/12/31/blue-jackets-devils-new-years-eve-fights/
+
 **Warming Blue Jackets brace for New Year's Eve rematch with struggling Devils**\
 `The last meeting between the Blue Jackets and Devils on Dec. 1 was a fight-filled, unexpectedly chaotic game.
 `\
