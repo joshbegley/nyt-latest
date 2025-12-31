@@ -1,3 +1,11 @@
+**What to Know About Zohran Mamdani’s Inauguration**\
+`Zohran Mamdani will be sworn in as mayor of New York City at the abandoned City Hall subway station at midnight on New Year’s Day followed by a ceremonial inauguration later that day. Up to 40,000 people are expected to attend the event.`\
+https://nytimes.com/video/nyregion/100000010617548/zohran-mamdani-mayor-inauguration.html
+
+**Georgia Judge Dismisses Racketeering Charges Against ‘Cop City’ Activists**\
+`Dozens of protesters had been indicted after the state attorney general said that their movement amounted to a violent criminal enterprise.`\
+https://nytimes.com/2025/12/31/us/cop-city-activists-racketeering-charges.html
+
 **Mohammad Bakri, 72, Outspoken Palestinian Actor and Director, Dies**\
 `His work, including the 2002 documentary “Jenin, Jenin,” exposed the often harsh realities of life experienced by his fellow Arabs in Israel.`\
 https://nytimes.com/2025/12/31/movies/mohammad-bakri-dead.html
@@ -25,16 +33,4 @@ https://nytimes.com/2025/12/31/world/europe/macron-social-media-children-ban-fra
 **Trump’s Tangled Web of Deal-Making, Policy and Riches**\
 `The president, his family and some of their closest associates have engaged in a sprawling campaign of deals that stretches across industries and the globe.`\
 https://nytimes.com/interactive/2025/12/31/us/trump-deals-policy-conflicts-web.html
-
-**Scoop City: A 2025 season to forget for Pete Carroll's Raiders**\
-`We'll end 2025 with a quick look at the contrasting seasons of Pete Carroll, Drake Maye and Myles Garrett`\
-https://nytimes.com/athletic/6932289/2025/12/31/2025-season-recap-raiders-patriots-browns/
-
-**Doug Armstrong on Canada's hardest Olympic hockey decision and why roster flexibility is key**\
-`Doug Armstrong spent the final few weeks agonizing over four roster decisions, two up front, one on D and one in goal.`\
-https://nytimes.com/athletic/6932097/2025/12/31/team-canada-2026-olympic-hockey-roster-doug-armstrong/
-
-**NFL Week 18 confidence picks: Steelers and Giants can pull off upsets**\
-`KC Joyner makes his straight-up and against-the-spread picks for the final weekend of the NFL regular season.`\
-https://nytimes.com/athletic/6931185/2025/12/31/nfl-week-18-confidence-picks-steelers-giants-upsets/
 

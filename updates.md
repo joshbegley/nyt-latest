@@ -1,3 +1,11 @@
+**What to Know About Zohran Mamdani’s Inauguration**\
+`Zohran Mamdani will be sworn in as mayor of New York City at the abandoned City Hall subway station at midnight on New Year’s Day followed by a ceremonial inauguration later that day. Up to 40,000 people are expected to attend the event.`\
+https://nytimes.com/video/nyregion/100000010617548/zohran-mamdani-mayor-inauguration.html
+
+**Georgia Judge Dismisses Racketeering Charges Against ‘Cop City’ Activists**\
+`Dozens of protesters had been indicted after the state attorney general said that their movement amounted to a violent criminal enterprise.`\
+https://nytimes.com/2025/12/31/us/cop-city-activists-racketeering-charges.html
+
 **Mohammad Bakri, 72, Outspoken Palestinian Actor and Director, Dies**\
 `His work, including the 2002 documentary “Jenin, Jenin,” exposed the often harsh realities of life experienced by his fellow Arabs in Israel.`\
 https://nytimes.com/2025/12/31/movies/mohammad-bakri-dead.html
