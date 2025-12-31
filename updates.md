@@ -1,3 +1,8 @@
+**Warming Blue Jackets brace for New Year's Eve rematch with struggling Devils**\
+`The last meeting between the Blue Jackets and Devils on Dec. 1 was a fight-filled, unexpectedly chaotic game.
+`\
+https://nytimes.com/athletic/6930208/2025/12/31/blue-jackets-devils-new-years-eve-fights/
+
 **Analysed: How Arsenal tightened the screw as Arteta righted the wrongs against Villa**\
 `Arsenal doubled down on their strengths in pressing high. It took some time to click, but it was crucial to their success against Villa`\
 https://nytimes.com/athletic/6931285/2025/12/31/arsenal-aston-villa-analysis/
