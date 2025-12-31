@@ -1,3 +1,11 @@
+**The Pulse: These stories moved us this year**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6929746/2025/12/31/the-athletic-wrapped-2025-the-pulse/
+
+**The best games we watched in 2025: World Series, Haliburton heroics, a classic Clásico**\
+`Something was in the air and on the horizon this year. The sports we love gave us incredible, indelible finishes all across 2025.`\
+https://nytimes.com/athletic/6929777/2025/12/31/best-games-2025-nba-nfl-soccer-ohtani-mcilroy/
+
 **2026 Sports Media Predictions: World Cup, Olympics and ...TV's Aaron Rodgers?**\
 `What should viewers expect in sports media in 2026? For starters, a massive audience for the World Cup next summer.`\
 https://nytimes.com/athletic/6918673/2025/12/31/sports-media-predictions-2026-world-cup-fox/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6927579/2025/12/31/will-too-much-success-spoil-the-
 **40 years of Air Jordans: A longtime appreciation with multiple stories to tell**\
 `Have a favorite pair of the Air Jordan signature shoe? Employees at The Athletic, along with two sneakerheads, discussed their favorites.`\
 https://nytimes.com/athletic/6912023/2025/12/31/air-jordan-sneakers-nike-history/
-
-**U.S. men’s hockey roster is set, and Bill Guerin won't be second-guessing any decisions**\
-`Here's our final projection of who's in and who's out after management's final meeting and decisions.`\
-https://nytimes.com/athletic/6930662/2025/12/31/us-mens-hockey-roster-olympics-final-decisions/
-
-**Why Eli Manning and his .500 record belong in the Hall of Fame**\
-`Despite Super Bowl rings and big plays, "Manning fatigue" may hurt his case. That would be a shame because Eli was a master of NFL moments.`\
-https://nytimes.com/athletic/6930396/2025/12/31/eli-manning-hall-of-fame-giants/
 
