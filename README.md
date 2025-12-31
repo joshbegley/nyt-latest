@@ -14,13 +14,13 @@ https://nytimes.com/2025/12/31/nyregion/new-year-ball-drop-new-york-times-square
 `Mr. Mamdani will become mayor of New York City on Thursday, carrying the hopes of the left, Muslims and younger voters as he looks to improve affordability.`\
 https://nytimes.com/2025/12/31/nyregion/mamdani-mayor-nyc.html
 
-**Mamdani Will Be First N.Y.C. Mayor to Use the Quran at His Swearing-In**\
-`Zohran Mamdani, New York City’s first Muslim mayor, will use two family Qurans and one that belonged to the writer Arturo Schomburg at his two swearing-in ceremonies.`\
-https://nytimes.com/2025/12/31/nyregion/mamdani-quran-inauguration-muslim.html
-
 **Behind Oklahoma Cannabis Farms, New Yorkers With Ties to Beijing**\
 `In China, trafficking marijuana is punishable by death. But in the United States, it has become a lucrative sideline for some favored sons of the motherland.`\
 https://nytimes.com/2025/12/31/us/ny-china-hometown-association-oklahoma-marjiuana.html
+
+**Mamdani Will Be First N.Y.C. Mayor to Use the Quran at His Swearing-In**\
+`Zohran Mamdani, New York City’s first Muslim mayor, will use two family Qurans and one that belonged to the writer Arturo Schomburg at his two swearing-in ceremonies.`\
+https://nytimes.com/2025/12/31/nyregion/mamdani-quran-inauguration-muslim.html
 
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
