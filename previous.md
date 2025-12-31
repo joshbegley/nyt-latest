@@ -1,3 +1,7 @@
+**Ahead of New Year, Sydney Holds Vigil for Bondi Beach Attack Victims**\
+`Thousands gathered around the harbor to lift candles and phone lights during a minute of silence in solidarity with the Jewish community that was targeted in the attack.`\
+https://nytimes.com/2025/12/31/world/australia/bondi-beach-attack-vigil-new-year-sydney.html
+
 **Key fantasy questions for 2026: Help for Jeanty? What's next for Hall?**\
 `Where does Breece Hall sign? Who's at quarterback in Miam and Arizona? The answers to these questions will shape fantasy drafts in 2026.`\
 https://nytimes.com/athletic/6930364/2025/12/31/the-key-questions-that-will-shape-fantasy-football-drafts-in-2026/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6929191/2025/12/31/nfl-week-17-willis-brock-purdy-q
 **Will college football have a new champion? Here's each CFP team's national title history**\
 `Three of the top five seeds in the College Football Playoff have never won a national title, including No. 1 Indiana.`\
 https://nytimes.com/athletic/6899991/2025/12/31/college-football-playoff-national-championships-history-teams/
-
-**New Year’s 2026 Around the World**\
-`See how people across the globe celebrated.`\
-https://nytimes.com/2025/12/31/world/new-years-2026-celebrations-photos.html
 

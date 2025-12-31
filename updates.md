@@ -1,3 +1,7 @@
+**Ahead of New Year, Sydney Holds Vigil for Bondi Beach Attack Victims**\
+`Thousands gathered around the harbor to lift candles and phone lights during a minute of silence in solidarity with the Jewish community that was targeted in the attack.`\
+https://nytimes.com/2025/12/31/world/australia/bondi-beach-attack-vigil-new-year-sydney.html
+
 **Key fantasy questions for 2026: Help for Jeanty? What's next for Hall?**\
 `Where does Breece Hall sign? Who's at quarterback in Miam and Arizona? The answers to these questions will shape fantasy drafts in 2026.`\
 https://nytimes.com/athletic/6930364/2025/12/31/the-key-questions-that-will-shape-fantasy-football-drafts-in-2026/
