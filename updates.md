@@ -1,3 +1,7 @@
+**Several Dead After Explosion and Fire at New Year’s Party in Switzerland**\
+`The police said the fire broke out around 1:30 a.m. after an explosion at a bar in Crans-Montana. The number of deaths and injuries was unknown.`\
+https://nytimes.com/2026/01/01/world/europe/switzerland-bar-fire-deaths.html
+
 **Mamdani Names Transit Chief Tasked With Making Buses Fast and Free**\
 `As commissioner of New York City’s Department of Transportation, Michael Flynn will seek to implement one of the new mayor’s central campaign planks.`\
 https://nytimes.com/2026/01/01/nyregion/mamdani-transportation-commissioner-mike-flynn.html
