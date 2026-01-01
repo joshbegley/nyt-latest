@@ -1,9 +1,13 @@
+**Mamdani Names Transit Chief Whose Mandate Is to Improve Bus Service**\
+`As commissioner of the department of transportation, Michael Flynn will seek to implement one of the new mayor’s  central campaign planks.`\
+https://nytimes.com/2026/01/01/nyregion/mamdani-transportation-commissioner-mike-flynn.html
+
 **'We deserved to lose': Wizards pull off shocking road win over Bucks**\
 `With a 3-point lead, the Bucks were seconds away from their first three-game winning streak this season. And then it all fell apart.`\
 https://nytimes.com/athletic/6933150/2026/01/01/bucks-wizards-close-loss-nba/
 
 **Miami, a 9.5-point underdog to Ohio State, pulls off biggest CFP upset**\
-`Hurricanes got biggest point-spread upset in the CFP's 12-year history with a 24-14 win over the defending national champion Buckeyes.`\
+`Hurricanes got the biggest point-spread upset in the CFP's 12-year history with a 24-14 win over the defending national champion Buckeyes.`\
 https://nytimes.com/athletic/6933219/2026/01/01/miami-biggest-cfp-upset-ever/
 
 **The New York Times in Print for Thursday, Jan. 1, 2026**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6872328/2026/01/01/chelsea-2025-review-year/
 **Barcelona in 2026: Are they good enough to win the Champions League?**\
 `Barca fans dream of another European treble, but are Hansi Flick's side really capable of delivering that this year?`\
 https://nytimes.com/athletic/6922943/2026/01/01/barcelona-champions-league-la-liga-real-madrid/
-
-**Ranking the impact made by all 155 Premier League summer signings**\
-`Which players have exceeded expectations and which ones have yet to deliver? We re-assess the summer transfers as the January window opens`\
-https://nytimes.com/athletic/6931856/2026/01/01/premier-league-transfer-rankings/
 
