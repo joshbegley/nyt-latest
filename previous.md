@@ -1,3 +1,23 @@
+**How to watch Texas vs. Missouri women's basketball: Time, TV, streaming**\
+`Find out how to watch the Texas Longhorns play the Missouri Tigers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6934258/2026/01/01/texas-vs-missouri-stream-how-to-watch-jan-1/
+
+**New York Magazine Put Mamdani’s Team on Its Cover. One Aide Was Erased.**\
+`Catherine Almonte Da Costa was part of a photo shoot on the mayor-elect’s inner circle. The next day she resigned amid an uproar over antisemitic statements she had posted on social media years earlier.`\
+https://nytimes.com/2026/01/01/nyregion/new-york-magazine-cover-mamdani-aide-da-costa.html
+
+**How to watch Kentucky vs. LSU women's basketball: Time, TV, streaming**\
+`Find out how to watch the Kentucky Wildcats play the LSU Tigers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6934253/2026/01/01/kentucky-vs-lsu-stream-how-to-watch-jan-1/
+
+**Tiny Love Stories: ‘Am I Too Old to Experience Butterflies?’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2026/01/01/style/tiny-modern-love-stories-am-i-too-old-to-experience-butterflies.html
+
+**Rama Duwaji Gives ‘Statement Coat’ New Meaning at Inauguration**\
+`With her chocolate-brown princess-line coat, New York’s new first lady looked a little funky, a little vintage, a little Tolstoy, entirely proper and unlike anyone else on the stage.`\
+https://nytimes.com/2026/01/01/nyregion/rama-duwaji-coat-mamdani-inauguration.html
+
 **Venezuela Frees Dozens of Political Prisoners**\
 `At least 80 people were released, including one with U.S. ties, though more than 800 remain detained in Venezuela for opposing President Nicolás Maduro’s rule, rights groups say.`\
 https://nytimes.com/2026/01/01/world/americas/venezuela-prisoner-release.html
@@ -17,24 +37,4 @@ https://nytimes.com/2026/01/01/arts/design/janet-fish-dead.html
 **The Briefing: Liverpool 0 Leeds United 0 - Familiar issues for Arne Slot's side? More signs of progress for Leeds?**\
 `The Athletic's writers analyse the New Year's Day action from Anfield`\
 https://nytimes.com/athletic/6928465/2026/01/01/liverpool-leeds-premier-league-analysis/
-
-**Here’s Why Lucy Dacus Chose ‘Bread & Roses’ for Mamdani’s Inauguration**\
-`The Grammy-winning singer, part of the supergroup boygenius, followed a performance by Mandy Patinkin who sang “Over the Rainbow.”`\
-https://nytimes.com/2026/01/01/nyregion/lucy-dacus-bread-roses-mamdani.html
-
-**Bars, nightclubs and discos have been the sites of deadly fires.**\
-`Over`\
-https://nytimes.com/live/2026/01/01/world/switzerland-ski-resort-fire/bars-nightclubs-and-discos-have-been-the-sites-of-deadly-fires
-
-**Ocasio-Cortez Urges New Yorkers to Celebrate Mamdani’s Inauguration as Their Own**\
-`Representative Alexandria Ocasio-Cortez, speaking at Zohran Mamdani’s inauguration, said that his election represented New Yorkers’ choosing “prosperity for the many over spoils for the few.”`\
-https://nytimes.com/2026/01/01/nyregion/aoc-mamdani-inauguration.html
-
-**Cowboys DC Matt Eberflus: 'I don't think I'd do anything differently'**\
-`Dallas' defense has been one of the NFL's worst this season and the Cowboys missed the playoffs for the second consecutive season.`\
-https://nytimes.com/athletic/6933706/2026/01/01/cowboys-matt-eberflus-defense-problems/
-
-**This Diminutive Reptile Plays Rock-Paper-Scissors**\
-`Side-blotched lizards probably don’t call the game that, but they play a version of it anyway. A new study explains the hidden biology that makes this possible.`\
-https://nytimes.com/2026/01/01/science/this-diminutive-reptile-plays-rock-paper-scissors.html
 
