@@ -1,3 +1,15 @@
+**Live Updates: Dozens Believed Dead After Fire at New Year’s Party in Switzerland, Police Say**\
+`The fire broke out around 1:30 a.m. at a bar at the Crans-Montana ski resort. Roughly 100 people were injured in the overnight blaze, the Swiss police said.`\
+https://nytimes.com/live/2026/01/01/world/switzerland-explosion-fire
+
+**The Sexy, Multi-Dimensional Genius of Roberta Flack**\
+`The secret ingredient in her music was silence.`\
+https://nytimes.com/video/podcasts/100000010596320/the-sexy-multi-dimensional-genius-of-roberta-flack.html
+
+**Here’s the latest.**\
+`An`\
+https://nytimes.com/live/2026/01/01/world/switzerland-explosion-fire/switzerland-bar-fire-deaths
+
 **British boxer Joshua released from hospital after car crash**\
 `The 36-year-old two-time heavyweight champion was involved in the incident that killed two of his close friends on Monday. `\
 https://nytimes.com/athletic/6933385/2026/01/01/anthony-joshua-hospital-car-crash-nigeria/
