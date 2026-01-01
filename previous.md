@@ -1,3 +1,19 @@
+**Devon Dampier powers Utah to win over Nebraska in Las Vegas Bowl**\
+`Devon Dampier sets Las Vegas Bowl record with 458 total yards.`\
+https://nytimes.com/athletic/6932742/2025/12/31/devon-dampier-powers-utah-to-win-over-nebraska-in-las-vegas-bowl/
+
+**Oil Tanker Fleeing the Coast Guard Now Listed in Russian Ship Database**\
+`The listing could make it more challenging for U.S. forces to board the ship, which an arm of the Kremlin’s maritime authority says is now flying the Russian flag.`\
+https://nytimes.com/2025/12/31/us/politics/russia-oil-tanker-venezuela.html
+
+**Coast Guard Searches for Survivors After More Boat Strikes**\
+`The U.S. military attacked a convoy of three boats in the eastern Pacific as part of the Trump administration’s campaign against people suspected of drug trafficking.`\
+https://nytimes.com/2025/12/31/us/politics/coast-guard-survivors-boat-strikes.html
+
+**Appeals Court Orders End to Trump’s Command of California National Guard**\
+`The ruling is a win for Gov. Gavin Newsom, who has vigorously opposed President Trump’s moves to control California’s National Guard since the summer.`\
+https://nytimes.com/2025/12/31/us/trump-national-guard-california-newsom.html
+
 **Suicide Bomber in Syria Kills Security Officer in New Year’s Eve Attack**\
 `The attacker likely had links to the Islamic State and was possibly targeting a Christian church in the center of Aleppo, according to a government spokesman.`\
 https://nytimes.com/2025/12/31/world/middleeast/aleppo-syria-suicide-bomber-new-years-eve.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6932683/2025/12/31/hawks-wolves-anthony-edwards-kri
 **On His Last Day, Adams Drops From View but Still Flexes His Muscle**\
 `Mayor Eric Adams had one public appearance on his schedule, but that didn’t stop him from naming a third charter commission in the last hours of his administration.`\
 https://nytimes.com/2025/12/31/nyregion/eric-adams-last-day.html
-
-**Trump administration moves to take control of D.C.'s municipal golf courses**\
-`National Links Trust, which holds a lease to run three D.C. courses, received a notice of termination from the Department of the Interior.`\
-https://nytimes.com/athletic/6932602/2025/12/31/trump-control-dc-public-golf-courses/
-
-**53 Fascinating Facts of 2025**\
-`Each day, Times Insider editors scour the newspaper for the most interesting facts to appear on our pages. This year, tidbits about plastic recycling, whale sharks and crab Rangoon enlightened and entertained us.`\
-https://nytimes.com/2025/12/31/insider/2025-fun-facts.html
-
-**Florida WR Dallas Wilson to remain in Gainesville for 2026 season**\
-`In 2025, Wilson caught 12 passes for 174 yards and three touchdowns.`\
-https://nytimes.com/athletic/6932606/2025/12/31/dallas-wilson-will-return-florida-2026/
-
-**Mamdani Names Top Deputies for Child Care, Operations and Climate**\
-`Zohran Mamdani, the mayor-elect, announced several key appointments who could help implement central promises of his agenda, including universal child care.`\
-https://nytimes.com/2025/12/31/nyregion/mamdani-top-deputies-child-care-infrastructure-climate.html
 

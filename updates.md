@@ -1,3 +1,19 @@
+**Devon Dampier powers Utah to win over Nebraska in Las Vegas Bowl**\
+`Devon Dampier sets Las Vegas Bowl record with 458 total yards.`\
+https://nytimes.com/athletic/6932742/2025/12/31/devon-dampier-powers-utah-to-win-over-nebraska-in-las-vegas-bowl/
+
+**Oil Tanker Fleeing the Coast Guard Now Listed in Russian Ship Database**\
+`The listing could make it more challenging for U.S. forces to board the ship, which an arm of the Kremlin’s maritime authority says is now flying the Russian flag.`\
+https://nytimes.com/2025/12/31/us/politics/russia-oil-tanker-venezuela.html
+
+**Coast Guard Searches for Survivors After More Boat Strikes**\
+`The U.S. military attacked a convoy of three boats in the eastern Pacific as part of the Trump administration’s campaign against people suspected of drug trafficking.`\
+https://nytimes.com/2025/12/31/us/politics/coast-guard-survivors-boat-strikes.html
+
+**Appeals Court Orders End to Trump’s Command of California National Guard**\
+`The ruling is a win for Gov. Gavin Newsom, who has vigorously opposed President Trump’s moves to control California’s National Guard since the summer.`\
+https://nytimes.com/2025/12/31/us/trump-national-guard-california-newsom.html
+
 **Suicide Bomber in Syria Kills Security Officer in New Year’s Eve Attack**\
 `The attacker likely had links to the Islamic State and was possibly targeting a Christian church in the center of Aleppo, according to a government spokesman.`\
 https://nytimes.com/2025/12/31/world/middleeast/aleppo-syria-suicide-bomber-new-years-eve.html
