@@ -1,3 +1,7 @@
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/01/01/crosswords/spelling-bee-forum.html
+
 **Several Dead After Explosion and Fire at New Year’s Party in Switzerland**\
 `The police said the fire broke out around 1:30 a.m. after an explosion at a bar in Crans-Montana. The number of deaths and injuries was unknown.`\
 https://nytimes.com/2026/01/01/world/europe/switzerland-bar-fire-deaths.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6926648/2026/01/01/test-cricket-two-day-impatience-
 **Liverpool's loanees: How have they performed and what comes next?**\
 `Analysing the progress of the 10 players the club sent out on temporary moves in the summer`\
 https://nytimes.com/athletic/6913907/2026/01/01/liverpool-loan-players-report-cards/
-
-**Chelsea 2025 in review: Surreal Donald Trump moment, Estevao era and ill-discipline**\
-`Chelsea won the Club World Cup and the Conference League in 2025 but that was not the whole story of the year`\
-https://nytimes.com/athletic/6872328/2026/01/01/chelsea-2025-review-year/
 
