@@ -1,3 +1,15 @@
+**Miami upsets defending champion Ohio State, advancing to CFP semifinals**\
+`The Hurricanes will play Georgia or Ole Miss for a spot in the national championship next week.`\
+https://nytimes.com/athletic/6933033/2025/12/31/miami-ohio-state-score-result-college-football-playoff/
+
+**College Football Playoff 2025 bracket projections: Who will advance to the semifinals?**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/12/31/college-football-playoff-bracket-projections-odds/
+
+**Test Graders’ Aids**\
+`Topher Booth makes his New York Times Crossword debut.`\
+https://nytimes.com/2025/12/31/crosswords/daily-puzzle-2026-01-01.html
+
 **Victor Wembanyama leaves Spurs' win over Knicks with leg injury**\
 `The Spurs' star went up to grab a rebound and came down holding his knee. He was able to walk off under his own power.`\
 https://nytimes.com/athletic/6933060/2025/12/31/victor-wembanyama-spurs-leg-injury-nba/
