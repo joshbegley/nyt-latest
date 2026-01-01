@@ -1,3 +1,15 @@
+**The New York Times in Print for Thursday, Jan. 1, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/01/01/todays-new-york-times
+
+**Welcome to the Mamdani Era, New York**\
+`The new mayor is an entirely familiar type of New York politician.`\
+https://nytimes.com/2026/01/01/opinion/zohran-mamdani-mayor-new-york.html
+
+**A Trump Security Guarantee Is Empty, Mr. Zelensky**\
+`Ukraine’s president should stop pressing for U.S. security guarantees and pursue more effective means of self-protection.`\
+https://nytimes.com/2026/01/01/opinion/trump-zelensky-putin-ukraine-russia-war-us.html
+
 **Impatience, sports science, pitch quality... and the wanger - why are Test matches finishing so quickly?**\
 `Between the end of the Second World War and the turn of the millennium, no Tests ended in two days - but there have been 12 since then`\
 https://nytimes.com/athletic/6926648/2026/01/01/test-cricket-two-day-impatience-law-wanger/

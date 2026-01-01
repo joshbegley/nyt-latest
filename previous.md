@@ -1,3 +1,15 @@
+**The New York Times in Print for Thursday, Jan. 1, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/01/01/todays-new-york-times
+
+**Welcome to the Mamdani Era, New York**\
+`The new mayor is an entirely familiar type of New York politician.`\
+https://nytimes.com/2026/01/01/opinion/zohran-mamdani-mayor-new-york.html
+
+**A Trump Security Guarantee Is Empty, Mr. Zelensky**\
+`Ukraine’s president should stop pressing for U.S. security guarantees and pursue more effective means of self-protection.`\
+https://nytimes.com/2026/01/01/opinion/trump-zelensky-putin-ukraine-russia-war-us.html
+
 **Impatience, sports science, pitch quality... and the wanger - why are Test matches finishing so quickly?**\
 `Between the end of the Second World War and the turn of the millennium, no Tests ended in two days - but there have been 12 since then`\
 https://nytimes.com/athletic/6926648/2026/01/01/test-cricket-two-day-impatience-law-wanger/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6900088/2026/01/01/football-predictions-for-2026-ma
 **Man Utd fans want a busy transfer window. This is why they may not get it**\
 `History and circumstances suggest January will not see major additions being made, even though reinforcements are needed`\
 https://nytimes.com/athletic/6931530/2026/01/01/manchester-united-transfer-window/
-
-**This AFCON has yet to really capture the imagination in Morocco - on and off the field**\
-`Why no surprise results? Where is the joy? It is still early days, but the Africa Cup of Nations' group stage has been a little flat`\
-https://nytimes.com/athletic/6932389/2026/01/01/afcon-2025-morocco-hosts/
-
-**Is this season's Premier League ball enabling more spectacular goals?**\
-`The new Puma ball seems to be encouraging precise, well-judged finishes that reward technique and invention`\
-https://nytimes.com/athletic/6925491/2026/01/01/is-this-seasons-premier-league-ball-enabling-more-spectacular-goals/
-
-**Quote of the Day: Keys to City of New York Hop Hudson to Honorees**\
-`Quotation of the Day for Thursday, January 1, 2026.`\
-https://nytimes.com/2026/01/01/pageoneplus/quote-of-the-day-keys-to-city-of-new-york-hop-hudson-to-honorees.html
 
