@@ -1,3 +1,11 @@
+**Miami upsets defending champion Ohio State, advancing to CFP semifinals**\
+`The Hurricanes will play Georgia or Ole Miss for a spot in the national championship next week.`\
+https://nytimes.com/athletic/6933033/2025/12/31/miami-ohio-state-score-result-college-football-playoff/
+
+**College Football Playoff 2025 bracket projections: Who will advance to the semifinals?**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/12/31/college-football-playoff-bracket-projections-odds/
+
 **Victor Wembanyama leaves Spurs' win over Knicks with leg injury**\
 `The Spurs' star went up to grab a rebound and came down holding his knee. He was able to walk off under his own power.`\
 https://nytimes.com/athletic/6933060/2025/12/31/victor-wembanyama-spurs-leg-injury-nba/
@@ -8,7 +16,7 @@ https://nytimes.com/2025/12/31/nyregion/mamdani-mayor-swearing-in.html
 
 **Test Graders’ Aids**\
 `Topher Booth makes his New York Times Crossword debut.`\
-https://nytimes.com/2025/12/31/crosswords/daily-column-2026-01-01.html
+https://nytimes.com/2025/12/31/crosswords/daily-puzzle-2026-01-01.html
 
 **After being named to Canada's Olympic team, Macklin Celebrini burns Wild again: Takeaways**\
 `The young star and the Sharks completed a 3-0 season series sweep of Minnesota on Wednesday afternoon with a 4-3 shootout win.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6932468/2025/12/31/nickeil-alexander-walker-hawks-t
 **New Year’s Eve Celebrations Around the World**\
 `Revelers from around the world rang in the New Year with fireworks and light shows.`\
 https://nytimes.com/video/world/asia/100000010617699/nye-celebrations-world.html
-
-**Arch Manning puts on dual-threat show in Texas' Citrus Bowl win over Michigan**\
-`Manning threw for 221 yards and two touchdowns and rushed for 155 yards and two scores in Texas' 41-27 win over Michigan in the Citrus Bowl.`\
-https://nytimes.com/athletic/6932748/2025/12/31/arch-manning-citrus-bowl-texas-michigan/
-
-**Davidson names highway exit in honor of Stephen Curry as school legacy grows**\
-`Before Curry became a two-time NBA MVP with four championships and a finals MVP to his name, he dazzled the college landscape.`\
-https://nytimes.com/athletic/6932757/2025/12/31/steph-curry-highway-exit-davidson/
 
