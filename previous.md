@@ -1,3 +1,7 @@
+**Arch Manning puts on dual-threat show in Texas' Citrus Bowl win over Michigan**\
+`Manning threw for 221 yards and two touchdowns and rushed for 155 yards and two scores in Texas' 41-27 win over Michigan in the Citrus Bowl.`\
+https://nytimes.com/athletic/6932748/2025/12/31/arch-manning-citrus-bowl-texas-michigan/
+
 **Davidson names highway exit in honor of Stephen Curry as school legacy grows**\
 `Before Curry became a two-time NBA MVP with four championships and a finals MVP to his name, he dazzled the college landscape.`\
 https://nytimes.com/athletic/6932757/2025/12/31/steph-curry-highway-exit-davidson/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6932720/2025/12/31/michigan-texas-citrus-bowl-score
 **In Hearing Transcript, Jack Smith Defends Decision to Indict Trump**\
 `The former special counsel accused President Trump of “exploiting” violence on Jan. 6, 2021, according to an interview released by House Republicans.`\
 https://nytimes.com/2025/12/31/us/politics/jack-smith-deposition-house-trump.html
-
-**Revelers Crowd Into Times Square to Ring in 2026**\
-`The New Year’s Eve celebration drew spectators from around the world, despite cold and blustery weather.`\
-https://nytimes.com/2025/12/31/nyregion/times-square-new-years-eve.html
 

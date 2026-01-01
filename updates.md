@@ -1,3 +1,7 @@
+**Arch Manning puts on dual-threat show in Texas' Citrus Bowl win over Michigan**\
+`Manning threw for 221 yards and two touchdowns and rushed for 155 yards and two scores in Texas' 41-27 win over Michigan in the Citrus Bowl.`\
+https://nytimes.com/athletic/6932748/2025/12/31/arch-manning-citrus-bowl-texas-michigan/
+
 **Davidson names highway exit in honor of Stephen Curry as school legacy grows**\
 `Before Curry became a two-time NBA MVP with four championships and a finals MVP to his name, he dazzled the college landscape.`\
 https://nytimes.com/athletic/6932757/2025/12/31/steph-curry-highway-exit-davidson/
