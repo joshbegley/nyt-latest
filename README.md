@@ -1,3 +1,7 @@
+**Submit your questions for Kevin Kurz's Philadelphia Flyers mailbag**\
+`The Philadelphia Flyers are almost halfway through the NHL season at the start of the new year and sitting third in the Metropolitan Divisio`\
+https://nytimes.com/athletic/6934434/2026/01/01/philadelphia-flyers-submit-questions-mailbag/
+
 **With AFC North title on line, Lamar Jackson '100 percent' to face Steelers**\
 `Ravens QB said he feels good enough to face the Steelers in a game the Ravens (8-8) have to win to make the playoffs.`\
 https://nytimes.com/athletic/6934390/2026/01/01/lamar-jackson-ravens-week-18/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/01/01/world/switzerland-ski-resort-fire/switzerlan
 **‘You Are Worth It’: Jumaane Williams Delivers Powerful Inauguration Speech**\
 `Mr. Williams, New York City’s public advocate, teared up as he addressed a portion of his remarks to his younger self, captivating the crowd.`\
 https://nytimes.com/2026/01/01/nyregion/jumaane-williams-inauguration-speech.html
-
-**A Deadly Blaze in Switzerland**\
-`Plus, tips from our readers on how to stay informed without feeling overwhelmed in 2026.`\
-https://nytimes.com/2026/01/01/world/switzerland-fire-mamdani-newyork-reader-tips.html
 
