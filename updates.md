@@ -1,3 +1,15 @@
+**After being named to Canada's Olympic team, Macklin Celebrini burns Wild again: Takeaways**\
+`The young star and the Sharks completed a 3-0 season series sweep of Minnesota on Wednesday afternoon with a 4-3 shootout win.`\
+https://nytimes.com/athletic/6932612/2025/12/31/wild-macklin-celebrini-canada-olympic-sharks/
+
+**Colts QB Anthony Richardson to miss season finale, ends year on IR**\
+`Quarterback has not played since suffering an orbital fracture during pregame warmups in Week 6.`\
+https://nytimes.com/athletic/6932910/2025/12/31/colts-qb-anthony-richardson-eye-injury/
+
+**Ukraine Did Not Target Putin’s Home, C.I.A. Finds**\
+`The assessment rebutted a claim that the Russian leader made to President Trump in a phone call this week.`\
+https://nytimes.com/2025/12/31/us/politics/ukraine-putin-home-drone-strike-cia.html
+
 **Nickeil Alexander-Walker is boosting Hawks and making Wolves miss him**\
 `In a world full of inflated egos and forced braggadocio, Nickeil Alexander-Walker is All-NBA First Team when it comes to introspection.`\
 https://nytimes.com/athletic/6932468/2025/12/31/nickeil-alexander-walker-hawks-timberwolves-nba/
