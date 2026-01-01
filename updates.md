@@ -1,3 +1,7 @@
+**Live Updates: New York Readies Gala Inauguration of Mayor Zohran Mamdani**\
+`Mr. Mamdani, the city’s first Muslim and South Asian mayor and its youngest in more than a century, was sworn in at midnight. He will take part in a public ceremony in the early afternoon.`\
+https://nytimes.com/live/2026/01/01/nyregion/zohran-mamdani-inauguration-nyc-mayor
+
 **Broncos' win vs. Chiefs reminder of Bo Nix's impact as a runner. Will it grow in playoffs?**\
 `Nix has rushed less than he did as a rookie, but the playmaking ability with his legs could be a wild card for the Broncos in the playoffs.`\
 https://nytimes.com/athletic/6932286/2026/01/01/bo-nix-broncos-running-playoffs/
