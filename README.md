@@ -1,3 +1,11 @@
+**In Hearing Transcript, Jack Smith Defends Decision to Indict Trump**\
+`The former special counsel accused President Trump of “exploiting” violence on Jan. 6, 2021, according to an interview released by House Republicans.`\
+https://nytimes.com/2025/12/31/us/politics/jack-smith-deposition-house-trump.html
+
+**Revelers Crowd Into Times Square to Ring in 2026**\
+`The New Year’s Eve celebration drew spectators from around the world, despite cold and blustery weather.`\
+https://nytimes.com/2025/12/31/nyregion/times-square-new-years-eve.html
+
 **Anthony Edwards leaves Timberwolves-Hawks early as Hawks win sans Trae Young**\
 `A frustrated Edwards threw a towel up in the air when coach Chris Finch pulled the starters with 7:52 left in the game.`\
 https://nytimes.com/athletic/6932683/2025/12/31/hawks-wolves-anthony-edwards-kristaps-porzingis-trae-young/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/31/us/politics/chief-justice-annual-report-history.h
 **Not taking Rangers' Adam Fox to the Olympics would be a mistake for Team USA**\
 `Leaving one of the NHL's premier defensemen off the roster would be a big miss on the part of the American decision-makers.`\
 https://nytimes.com/athletic/6932514/2025/12/31/usa-olympic-hockey-roster-adam-fox-rangers/
-
-**Federal Judge Blocks Trump Move to Revoke Deportation Protection for Thousands of Migrants**\
-`The ruling found that the administration’s cancellation of the protections for migrants from Honduras, Nepal and Nicaragua was illegal.`\
-https://nytimes.com/2025/12/31/us/politics/judge-blocks-deportation-protections.html
-
-**The Best Movies and TV Shows Coming to Netflix in January**\
-`The first month of 2026 includes the latest Harlan Coben adaptation and the return of “Bridgerton.”`\
-https://nytimes.com/2025/12/31/arts/television/netflix-new-january-bridgerton.html
 
