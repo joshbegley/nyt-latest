@@ -1,3 +1,15 @@
+**Ten predictions for 2026 for Nebraska college football, basketball, softball and more**\
+`After a 44-22 loss to Utah in the Las Vegas Bowl on New Year's Eve, the turn of the calendar brings Nebraska a fresh start.`\
+https://nytimes.com/athletic/6933591/2026/01/01/nebraska-football-basketball-softball-predictions-2026/
+
+**Is Giants finale last we'll see of Wan'Dale Robinson, two more key free agents in NY?**\
+`The Giants have let some quality homegrown players leave in free agency in the past. Will they do it again?`\
+https://nytimes.com/athletic/6932531/2026/01/01/ny-giants-free-agents-wandale-robinson-jermaine-eluemunor-cordale-flott/
+
+**Crans-Montana Is a Historic Swiss Ski Resort Popular With International Tourists**\
+`Known for its gourmet food, luxury stores, and for hosting major sporting events, the high-end resort was acquired by Vail Resorts in 2024.`\
+https://nytimes.com/2026/01/01/world/europe/fire-crans-montana.html
+
 **How New York City miscounted its mayors for more than 300 years.**\
 `By Andy Newman`\
 https://nytimes.com/live/2026/01/01/nyregion/zohran-mamdani-inauguration-nyc-mayor/how-new-york-city-miscounted-its-mayors-for-more-than-300-years
