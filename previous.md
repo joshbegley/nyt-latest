@@ -1,3 +1,15 @@
+**Astros, Tatsuya Imai agree to 3-year contract: Source**\
+`Imai's deal maxes out at $63 million and contains opt-outs after every season.`\
+https://nytimes.com/athletic/6934001/2026/01/01/tatsuya-imai-astros-deal-mlb-free-agency/
+
+**Aina could make Nottingham Forest return against Villa - Dyche**\
+`The full-back was a key figure in last season’s seventh-placed finish, and can be added to the squad now that the transfer window is open.`\
+https://nytimes.com/athletic/6933994/2026/01/01/ola-aina-nottingham-forest-return/
+
+**Philip Rivers says he’s done playing, will return to high school coaching next fall**\
+`Rivers plans to return to his high school head coaching duties after a "fun three-week blur" with the Colts.`\
+https://nytimes.com/athletic/6933898/2026/01/01/philip-rivers-retire-again-colts-chargers/
+
 **Guinea’s Coup Leader Wins Election After Barring Leading Opponents**\
 `Col. Mamady Doumbouya, who seized power more than four years ago, took over 80 percent of the vote, according to a government-controlled agency that he set up.`\
 https://nytimes.com/2026/01/01/world/africa/guinea-election-mamady-doumbouya.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6933893/2026/01/01/heat-vs-pistons-stream-how-to-wa
 **How to watch Rockets vs. Nets: Time, TV, streaming**\
 `Find out how to watch the Houston Rockets play the Brooklyn Nets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6933889/2026/01/01/rockets-vs-nets-stream-how-to-watch-jan-1/
-
-**How to watch Lightning vs. Kings: Time, TV, streaming**\
-`Find out how to watch the Tampa Bay Lightning play the Los Angeles Kings, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6933887/2026/01/01/lightning-vs-kings-stream-how-to-watch-jan-1/
-
-**How to watch Red Wings vs. Penguins: Time, TV, streaming**\
-`Find out how to watch the Detroit Red Wings play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6933884/2026/01/01/red-wings-vs-penguins-stream-how-to-watch-jan-1/
-
-**How to watch Canadiens vs. Hurricanes: Time, TV, streaming**\
-`Find out how to watch the Montreal Canadiens play the Carolina Hurricanes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6933881/2026/01/01/canadiens-vs-hurricanes-stream-how-to-watch-jan-1/
 

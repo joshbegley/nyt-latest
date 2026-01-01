@@ -1,3 +1,15 @@
+**Astros, Tatsuya Imai agree to 3-year contract: Source**\
+`Imai's deal maxes out at $63 million and contains opt-outs after every season.`\
+https://nytimes.com/athletic/6934001/2026/01/01/tatsuya-imai-astros-deal-mlb-free-agency/
+
+**Aina could make Nottingham Forest return against Villa - Dyche**\
+`The full-back was a key figure in last season’s seventh-placed finish, and can be added to the squad now that the transfer window is open.`\
+https://nytimes.com/athletic/6933994/2026/01/01/ola-aina-nottingham-forest-return/
+
+**Philip Rivers says he’s done playing, will return to high school coaching next fall**\
+`Rivers plans to return to his high school head coaching duties after a "fun three-week blur" with the Colts.`\
+https://nytimes.com/athletic/6933898/2026/01/01/philip-rivers-retire-again-colts-chargers/
+
 **Guinea’s Coup Leader Wins Election After Barring Leading Opponents**\
 `Col. Mamady Doumbouya, who seized power more than four years ago, took over 80 percent of the vote, according to a government-controlled agency that he set up.`\
 https://nytimes.com/2026/01/01/world/africa/guinea-election-mamady-doumbouya.html
