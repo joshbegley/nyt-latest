@@ -1,5 +1,5 @@
 **Devon Dampier powers Utah to win over Nebraska in Las Vegas Bowl**\
-`Devon Dampier sets Las Vegas Bowl record with 458 total yards.`\
+`Dampier set a Las Vegas Bowl record with 458 total yards.`\
 https://nytimes.com/athletic/6932742/2025/12/31/devon-dampier-powers-utah-to-win-over-nebraska-in-las-vegas-bowl/
 
 **Oil Tanker Fleeing the Coast Guard Now Listed in Russian Ship Database**\
