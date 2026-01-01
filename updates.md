@@ -1,3 +1,7 @@
+**Chelsea and Enzo Maresca part ways with immediate effect**\
+`The Italian had been on a five-year deal through to 2029. `\
+https://nytimes.com/athletic/6933487/2026/01/01/chelsea-enzo-maresca-leaves/
+
 **The Pulse: A Playoff stunner**\
 `The Athletic has live coverage of Bears vs.`\
 https://nytimes.com/athletic/6931078/2026/01/01/miami-ohio-state-playoff-the-pulse/
