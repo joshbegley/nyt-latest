@@ -1,3 +1,7 @@
+**Chelsea board to hold talks with uncertainty over Enzo Maresca's future**\
+`The Stamford Bridge club are winless in their past three games and the Italian has come under scrutiny despite being on a contract to 2029.`\
+https://nytimes.com/athletic/6138238/2026/01/01/chelsea-enzo-maresca-board-talks-future/
+
 **Another New Year at War: Ukraine’s Troops Doubt It Will Be the Last**\
 `After a year of Russian advances, the goal for 2026 is simply to survive, said one officer in eastern Ukraine. “It’s hard to make any plans,” he said.`\
 https://nytimes.com/2026/01/01/world/europe/ukraine-russia-new-years-day-donetsk.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/01/opinion/zohran-mamdani-mayor-new-york.html
 **A Trump Security Is Empty, Mr. Zelensky**\
 `Ukraine’s president should stop pressing for U.S. security guarantees and pursue more effective means of self-protection.`\
 https://nytimes.com/2026/01/01/opinion/trump-zelensky-putin-ukraine-russia-war-us.html
-
-**Impatience, sports science, pitch quality... and the wanger - why are Test matches finishing so quickly?**\
-`Between the end of the Second World War and the turn of the millennium, no Tests ended in two days - but there have been 12 since then`\
-https://nytimes.com/athletic/6926648/2026/01/01/test-cricket-two-day-impatience-law-wanger/
 
