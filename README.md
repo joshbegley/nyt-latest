@@ -1,3 +1,7 @@
+**The Full Transcript of Zohran Mamdani’s Inauguration Speech**\
+`New York’s new mayor challenged his supporters and his opponents to make the city better, and to hold him to account.`\
+https://nytimes.com/2026/01/01/nyregion/mamdani-inauguration-speech-transcript.html
+
 **Fire in Swiss Alps Leaves Dozens of New Year’s Revelers Dead**\
 `About 40 people celebrating at a ski resort bar were killed, and 115 were injured, many of them young, the authorities said.`\
 https://nytimes.com/2026/01/01/world/europe/switzerland-fire-crans-montana-ski-resort.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6934279/2026/01/01/stars-vs-blackhawks-stream-how-t
 **In his invocation, an imam prays for the success of Mamdani and New York City.**\
 `By Maya King`\
 https://nytimes.com/live/2026/01/01/nyregion/zohran-mamdani-inauguration-nyc-mayor/in-his-invocation-an-imam-prays-for-the-success-of-mamdani-and-new-york-city
-
-**How to watch Oklahoma vs. Texas A&M women's basketball: Time, TV, streaming**\
-`Find out how to watch the Oklahoma Sooners play the Texas A&M Aggies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6934272/2026/01/01/oklahoma-vs-texas-a-m-stream-how-to-watch-jan-1/
 
