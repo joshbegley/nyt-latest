@@ -1,3 +1,7 @@
+**The Pulse: A Playoff stunner**\
+`The Athletic has live coverage of Bears vs.`\
+https://nytimes.com/athletic/6931078/2026/01/01/miami-ohio-state-playoff-the-pulse/
+
 **A Monumental Church in Amsterdam Is Ravaged by Flames on New Year’s Day**\
 `Local residents were evacuated after a fire broke out at the Vondelkerk shortly after midnight. The cause of the blaze has not yet been confirmed.`\
 https://nytimes.com/2026/01/01/world/europe/amsterdam-fire-church-new-years.html
