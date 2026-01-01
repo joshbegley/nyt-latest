@@ -1,4 +1,8 @@
-**Venus Williams receives Australian Open wild card for first appearance since 2021**\
+**Images From the Dawn of the Mamdani Era**\
+`Thousands of New Yorkers packed the plaza ouside City Hall and the streets of Lower Manhattan to see Mayor Zohran Mamdani take office.`\
+https://nytimes.com/2026/01/01/nyregion/images-from-the-dawn-of-the-mamdani-era.html
+
+**Venus Williams gets Australian Open wild card for first showing since 2021**\
 `45-year-old Williams last year played at the U.S. Open, but has not played a Grand Slam match outside of New York City since 2023.`\
 https://nytimes.com/athletic/6934518/2026/01/01/venus-williams-tennis-australian-open-wild-card/
 
@@ -7,7 +11,7 @@ https://nytimes.com/athletic/6934518/2026/01/01/venus-williams-tennis-australian
 https://nytimes.com/2026/01/01/world/europe/switzerland-fire-scene.html
 
 **Mamdani Pays Tribute to the Foods That Define and Sustain New York**\
-`In his inaugural address, Mayor Zohran Mamdani frequently invoked the cuisines of New York as metaphors for the city’s diversity, ambitions and promise.`\
+`In his inaugural address, Mayor Zohran Mamdani invoked the cuisines of New York as metaphors for the city’s diversity, ambitions and promise.`\
 https://nytimes.com/2026/01/01/nyregion/nyc-food-mamdani.html
 
 **J.J. McCarthy on track to play in Vikings' Week 18 game vs. Packers**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6928467/2026/01/01/sunderland-manchester-city-premi
 **The Briefing: Brentford 0 Tottenham 0 - why were Spurs so short of creative inspiration?**\
 `Elias Burke and Jack Pitt-Brooke analyse the main talking points from Tottenham's underwhelming draw at Brentford`\
 https://nytimes.com/athletic/6928466/2026/01/01/brentford-tottenham-analysis-thomas-frank/
-
-**Mamdani Vows to Govern ‘Audaciously’ and Protect New York’s Vulnerable**\
-`Zohran Mamdani gave his first public speech as mayor of New York City, after a public inauguration that drew tens of thousands of people.`\
-https://nytimes.com/2026/01/01/nyregion/mamdani-inauguration-mayor.html
 
