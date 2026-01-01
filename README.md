@@ -1,3 +1,7 @@
+**J.J. McCarthy on track to play in Vikings' Week 18 game vs. Packers**\
+`McCarthy has dealt with a plethora of injuries this season, including having to miss last week's game with a right-hand injury.`\
+https://nytimes.com/athletic/6934413/2026/01/01/jj-mccarthy-status-vikings-packers/
+
 **Usman Khawaja to retire from Test cricket after Sydney swansong**\
 `The 39-year-old was the first Muslim to play for Australia and has scored over 6,000 Test runs over a 15-year international career`\
 https://nytimes.com/athletic/6933514/2026/01/01/usman-khawaja-retire-test-australia-scg/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/01/arts/art-gallery-shows-to-see-in-january.html
 **‘Little Black Boy, You Were Worth it,’ Jumaane Williams Tells His Past Self**\
 `After being sworn in as New York City’s public advocate, Jumaane Williams, the son of immigrants, spoke on the challenges faced by immigrant New Yorkers and the systems of power that cause inequality.`\
 https://nytimes.com/video/nyregion/100000010619515/jumaane-williams-speech.html
-
-**Switzerland’s burn centers are so overwhelmed that fire victims are being sent to other countries.**\
-`By Nick Cumming-Bruce`\
-https://nytimes.com/live/2026/01/01/world/switzerland-ski-resort-fire/switzerlands-burn-centers-are-so-overwhelmed-that-fire-victims-are-being-sent-to-other-countries
 
