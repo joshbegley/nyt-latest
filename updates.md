@@ -1,3 +1,11 @@
+**Crans-Montana Bar Fire Victims Transported Across Switzerland for Treatment**\
+`Patients were taken by helicopter and jet to bigger, specialized hospitals in Geneva, Zurich and Lausanne.`\
+https://nytimes.com/2026/01/01/world/europe/crans-montana-switzerland-fire-victims-treatment.html
+
+**Eric Adams spent his final hours as mayor out of sight and undermining Mamdani.**\
+`By Jeffery C. Mays`\
+https://nytimes.com/live/2026/01/01/nyregion/zohran-mamdani-inauguration-nyc-mayor/eric-adams-spent-his-final-hours-as-mayor-out-of-sight-and-undermining-mamdani
+
 **Review: Singers Come First in the Met Opera’s New ‘Puritani’**\
 `Charles Edwards’s deceptively traditional, exceptionally sung production of Bellini’s “I Puritani” makes space for its stars.`\
 https://nytimes.com/2026/01/01/arts/music/puritani-met-opera-review.html

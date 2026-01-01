@@ -1,3 +1,11 @@
+**Crans-Montana Bar Fire Victims Transported Across Switzerland for Treatment**\
+`Patients were taken by helicopter and jet to bigger, specialized hospitals in Geneva, Zurich and Lausanne.`\
+https://nytimes.com/2026/01/01/world/europe/crans-montana-switzerland-fire-victims-treatment.html
+
+**Eric Adams spent his final hours as mayor out of sight and undermining Mamdani.**\
+`By Jeffery C. Mays`\
+https://nytimes.com/live/2026/01/01/nyregion/zohran-mamdani-inauguration-nyc-mayor/eric-adams-spent-his-final-hours-as-mayor-out-of-sight-and-undermining-mamdani
+
 **Review: Singers Come First in the Met Opera’s New ‘Puritani’**\
 `Charles Edwards’s deceptively traditional, exceptionally sung production of Bellini’s “I Puritani” makes space for its stars.`\
 https://nytimes.com/2026/01/01/arts/music/puritani-met-opera-review.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6932756/2026/01/01/seahawks-49ers-rematch-preview/
 **Napheesa Collier to miss Unrivaled season and possible WNBA start after ankle surgeries**\
 `The Lynx star is expected to need four to six months of recovery after next week's surgery. `\
 https://nytimes.com/athletic/6932746/2026/01/01/napheesa-collier-ankle-injury-lynx-unrivaled/
-
-**Our favorite 1/1 card stories from 2025: The intrigue behind the rarest cards in the hobby**\
-`Jan. 1 is now 1/1 card day, and to celebrate, we look back on some of the great 1/1 stories we told in 2025.`\
-https://nytimes.com/athletic/6930881/2026/01/01/1-of-1-sports-trading-cards-skenes-clark-daniels/
-
-**‘This is our time’: The poet Cornelius Eady will read an original work at the inauguration.**\
-`By Jeffery C. Mays`\
-https://nytimes.com/live/2026/01/01/nyregion/zohran-mamdani-inauguration-nyc-mayor/this-is-our-time-the-poet-cornelius-eady-will-read-an-original-work-at-the-inauguration
 
