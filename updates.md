@@ -1,3 +1,7 @@
+**The Briefing: Sunderland 0 Manchester City 0 - The Stadium of Light makes another intervention in Premier League title race**\
+`Analysis of Manchester City's goalless draw with Sunderland - a result that leaves them four points behind Arsenal in the table`\
+https://nytimes.com/athletic/6928467/2026/01/01/sunderland-manchester-city-premier-league-analysis/
+
 **The Briefing: Brentford 0 Tottenham 0 - why were Spurs so short of creative inspiration?**\
 `Elias Burke and Jack Pitt-Brooke analyse the main talking points from Tottenham's underwhelming draw at Brentford`\
 https://nytimes.com/athletic/6928466/2026/01/01/brentford-tottenham-analysis-thomas-frank/

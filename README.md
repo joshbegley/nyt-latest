@@ -1,5 +1,9 @@
+**With AFC North title on line, Lamar Jackson '100 percent' to face Steelers**\
+`Ravens QB said he feels good enough to face the Steelers in a game the Ravens (8-8) have to win to make the playoffs.`\
+https://nytimes.com/athletic/6934390/2026/01/01/lamar-jackson-ravens-week-18/
+
 **The Briefing: Sunderland 0 Manchester City 0 - The Stadium of Light makes another intervention in Premier League title race**\
-`Analysis of Manchester City's goalless draw with Sunderland - a result that leaves them four points behind Arsenal in the table`\
+`Analysis of Manchester City's goalless draw with Sunderland — a result that leaves them four points behind Arsenal in the table`\
 https://nytimes.com/athletic/6928467/2026/01/01/sunderland-manchester-city-premier-league-analysis/
 
 **The Briefing: Brentford 0 Tottenham 0 - why were Spurs so short of creative inspiration?**\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/01/nyregion/jumaane-williams-inauguration-speech.htm
 **A Deadly Blaze in Switzerland**\
 `Plus, tips from our readers on how to stay informed without feeling overwhelmed in 2026.`\
 https://nytimes.com/2026/01/01/world/switzerland-fire-mamdani-newyork-reader-tips.html
-
-**Green Soups for Gray Days**\
-`By Luke Fortney`\
-https://nytimes.com/2026/01/01/dining/green-soups-for-gray-days.html
 
