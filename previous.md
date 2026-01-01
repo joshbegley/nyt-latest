@@ -1,3 +1,23 @@
+**Ranking the impact made by all 155 Premier League summer signings**\
+`Which players have exceeded expectations and which ones have yet to deliver? We re-assess the summer transfers as the January window opens`\
+https://nytimes.com/athletic/6931856/2026/01/01/premier-league-transfer-rankings/
+
+**Football predictions for 2026: Manchester United being actually good, Trump smelting the World Cup and Salt Bae's return**\
+`Bielsa back at Leeds? VAR ruining the World Cup final? Lampard replacing Tuchel? Look forward to all this and more in the next 12 months...`\
+https://nytimes.com/athletic/6900088/2026/01/01/football-predictions-for-2026-man-united-being-actually-good-trump-smelting-the-world-cup-and-salt-baes-return/
+
+**Man Utd fans want a busy transfer window. This is why they may not get it**\
+`History and circumstances suggest January will not see major additions being made, even though reinforcements are needed`\
+https://nytimes.com/athletic/6931530/2026/01/01/manchester-united-transfer-window/
+
+**This AFCON has yet to really capture the imagination in Morocco - on and off the field**\
+`Why no surprise results? Where is the joy? It is still early days, but the Africa Cup of Nations' group stage has been a little flat`\
+https://nytimes.com/athletic/6932389/2026/01/01/afcon-2025-morocco-hosts/
+
+**Is this season's Premier League ball enabling more spectacular goals?**\
+`The new Puma ball seems to be encouraging precise, well-judged finishes that reward technique and invention`\
+https://nytimes.com/athletic/6925491/2026/01/01/is-this-seasons-premier-league-ball-enabling-more-spectacular-goals/
+
 **Quote of the Day: Keys to City of New York Hop Hudson to Honorees**\
 `Quotation of the Day for Thursday, January 1, 2026.`\
 https://nytimes.com/2026/01/01/pageoneplus/quote-of-the-day-keys-to-city-of-new-york-hop-hudson-to-honorees.html
@@ -17,24 +37,4 @@ https://nytimes.com/2026/01/01/pageoneplus/corrections-jan-1-2026.html
 **Winter transfer window opens: When it closes, registration rules and summer dates**\
 `The Athletic has all you need to know about the winter transfer window, which opened today.`\
 https://nytimes.com/athletic/6928960/2025/12/31/january-transfer-window-when-rules/
-
-**Canada, Sweden win groups, Hage making a statement: World Juniors takeaways**\
-`The preliminary round of the 2026 World Juniors wrapped up on New Year's Eve in St. Paul and Minneapolis.`\
-https://nytimes.com/athletic/6931853/2025/12/31/world-juniors-canada-sweden-usa-results/
-
-**NC State coach Will Wade erupts at media over Darrion Williams questions**\
-`The Wolfpack star forward hasn't been scoring as much recently and his coach is fed up with answering questions about it.`\
-https://nytimes.com/athletic/6933122/2025/12/31/north-carolina-state-coach-will-wade-darrion-williams/
-
-**Encountering Our First Iceberg**\
-`For Antarctic veterans and novices alike, the first sighting of an iceberg on an expedition stays “closest to your heart.”`\
-https://nytimes.com/2025/12/31/climate/antarctica-journey-first-iceberg.html
-
-**How Miami stunned defending champion Ohio State and announced itself as a contender**\
-`The Hurricanes will play Georgia or Ole Miss for a spot in the national championship next week.`\
-https://nytimes.com/athletic/6933033/2025/12/31/miami-ohio-state-score-result-college-football-playoff/
-
-**College Football Playoff 2025 bracket projections: Who will advance to the semifinals?**\
-`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
-https://nytimes.com/athletic/6560541/2025/12/31/college-football-playoff-bracket-projections-odds/
 
