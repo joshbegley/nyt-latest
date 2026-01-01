@@ -1,3 +1,7 @@
+**Final game with the Lions? Analyzing 8 players and their futures in Detroit**\
+`Will Taylor Decker play another season? Is this the end for Alex Anzalone? Are the Lions moving on from David Montgomery?`\
+https://nytimes.com/athletic/6932586/2026/01/01/detroit-lions-free-agency/
+
 **Fiorentina agree loan deal for Spurs winger Manor Solomon**\
 `The deal will include the option for Fiorentina to make the move permanent.`\
 https://nytimes.com/athletic/6932371/2026/01/01/tottenham-manor-solomon-loan-fiorentina-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6933291/2026/01/01/miami-ohio-state-win-mario-crist
 **Magic Johnson is ringing in 2026 as Rose Parade grand marshal. Here's what to know**\
 `A Lakers legend mints a New Year's tradition from Pasadena, becoming the most recent athlete to serve as Rose Parade grand marshal. `\
 https://nytimes.com/athletic/6928304/2026/01/01/magic-johnson-rose-parade-grand-marshal-history/
-
-**Tage Thompson, Sabres dominate Stars to push winning streak to 10: 5 thoughts**\
-`Buffalo's 10-game winning streak matches a franchise record the team has hit three other times, most recently in 2018.`\
-https://nytimes.com/athletic/6933236/2026/01/01/sabres-win-streak-stars-score-result/
 
