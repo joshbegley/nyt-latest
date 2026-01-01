@@ -1,3 +1,7 @@
+**'We deserved to lose': Wizards pull off shocking road win over Bucks**\
+`With a 3-point lead, the Bucks were seconds away from their first three-game winning streak this season. And then it all fell apart.`\
+https://nytimes.com/athletic/6933150/2026/01/01/bucks-wizards-close-loss-nba/
+
 **Miami, a 9.5-point underdog to Ohio State, pulls off biggest CFP upset ever**\
 `There have been several shockers in the 12 years of the College Football Playoff, but nothing like what the Hurricanes did Wednesday.`\
 https://nytimes.com/athletic/6933219/2026/01/01/miami-biggest-cfp-upset-ever/
@@ -10,7 +14,7 @@ https://nytimes.com/issue/todayspaper/2026/01/01/todays-new-york-times
 `The new mayor is an entirely familiar type of New York politician.`\
 https://nytimes.com/2026/01/01/opinion/zohran-mamdani-mayor-new-york.html
 
-**A Trump Security Guarantee Is Empty, Mr. Zelensky**\
+**A Trump Security Is Empty, Mr. Zelensky**\
 `Ukraine’s president should stop pressing for U.S. security guarantees and pursue more effective means of self-protection.`\
 https://nytimes.com/2026/01/01/opinion/trump-zelensky-putin-ukraine-russia-war-us.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6922943/2026/01/01/barcelona-champions-league-la-li
 **Ranking the impact made by all 155 Premier League summer signings**\
 `Which players have exceeded expectations and which ones have yet to deliver? We re-assess the summer transfers as the January window opens`\
 https://nytimes.com/athletic/6931856/2026/01/01/premier-league-transfer-rankings/
-
-**Football predictions for 2026: Manchester United being actually good, Trump smelting the World Cup and Salt Bae's return**\
-`Bielsa back at Leeds? VAR ruining the World Cup final? Lampard replacing Tuchel? Look forward to all this and more in the next 12 months...`\
-https://nytimes.com/athletic/6900088/2026/01/01/football-predictions-for-2026-man-united-being-actually-good-trump-smelting-the-world-cup-and-salt-baes-return/
 
