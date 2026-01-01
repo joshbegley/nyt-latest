@@ -1,3 +1,11 @@
+**The Full Transcript of Zohran Mamdani’s Inauguration Speech**\
+`New York’s new mayor challenged his supporters and his opponents to make the city better, and to hold him to account.`\
+https://nytimes.com/2026/01/01/nyregion/mamdani-inauguration-speech-transcript.html
+
+**College Football Playoff 2025 projections: Indiana is now the national title favorite**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2026/01/01/college-football-playoff-bracket-projections-odds/
+
 **Fire in Swiss Alps Leaves Dozens of New Year’s Revelers Dead**\
 `About 40 people celebrating at a ski resort bar were killed, and 115 were injured, many of them young, the authorities said.`\
 https://nytimes.com/2026/01/01/world/europe/switzerland-fire-crans-montana-ski-resort.html

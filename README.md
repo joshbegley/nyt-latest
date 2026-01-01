@@ -1,3 +1,7 @@
+**Green Soups for Gray Days**\
+`By Luke Fortney`\
+https://nytimes.com/2026/01/01/dining/green-soups-for-gray-days.html
+
 **The Full Transcript of Zohran Mamdani’s Inauguration Speech**\
 `New York’s new mayor challenged his supporters and his opponents to make the city better, and to hold him to account.`\
 https://nytimes.com/2026/01/01/nyregion/mamdani-inauguration-speech-transcript.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6933890/2026/01/01/oregon-texas-tech-score-orange-b
 **How to watch Predators vs. Kraken: Time, TV, streaming**\
 `Find out how to watch the Nashville Predators play the Seattle Kraken, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6934281/2026/01/01/predators-vs-kraken-stream-how-to-watch-jan-1/
-
-**How to watch Stars vs. Blackhawks: Time, TV, streaming**\
-`Find out how to watch the Dallas Stars play the Chicago Blackhawks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6934279/2026/01/01/stars-vs-blackhawks-stream-how-to-watch-jan-1/
 
