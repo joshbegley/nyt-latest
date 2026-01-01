@@ -11,7 +11,7 @@ https://nytimes.com/athletic/6932910/2025/12/31/colts-qb-anthony-richardson-eye-
 https://nytimes.com/2025/12/31/us/politics/ukraine-putin-home-drone-strike-cia.html
 
 **Nickeil Alexander-Walker is boosting Hawks and making Wolves miss him**\
-`In a world full of inflated egos and forced braggadocio, Nickeil Alexander-Walker is All-NBA First Team when it comes to introspection.`\
+`In a world full of inflated egos and forced braggadocio, Alexander-Walker is All-NBA First Team when it comes to introspection.`\
 https://nytimes.com/athletic/6932468/2025/12/31/nickeil-alexander-walker-hawks-timberwolves-nba/
 
 **New Year’s Eve Celebrations Around the World**\
