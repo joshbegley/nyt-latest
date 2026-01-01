@@ -1,3 +1,7 @@
+**Another New Year at War: Ukraine’s Troops Doubt It Will Be the Last**\
+`After a year of Russian advances, the goal for 2026 is simply to survive, said one officer in eastern Ukraine. “It’s hard to make any plans,” he said.`\
+https://nytimes.com/2026/01/01/world/europe/ukraine-russia-new-years-day-donetsk.html
+
 **Mamdani Names Transportation Chief With Job of Making Buses Fast and Free**\
 `As commissioner of New York City’s Department of Transportation, Michael Flynn will seek to implement one of the new mayor’s central campaign planks.`\
 https://nytimes.com/2026/01/01/nyregion/mamdani-transportation-commissioner-mike-flynn.html
