@@ -1,3 +1,15 @@
+**Mamdani trades a neighborhood that made him mayor for one that backed his opponents.**\
+`By Eliza Shapiro and Nicholas Fandos`\
+https://nytimes.com/live/2026/01/01/nyregion/zohran-mamdani-inauguration-nyc-mayor/mamdani-trades-a-neighborhood-that-made-him-mayor-for-one-that-backed-his-opponents
+
+**I Start Every New Year With This Soup**\
+`Ozoni — Japanese mochi soup — is soothing and sustaining, a grounding meal for the first day of the new year.`\
+https://nytimes.com/2026/01/01/dining/i-start-every-new-year-with-this-soup.html
+
+**College Football Playoff 2025 projections: Indiana is now the national title favorite**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2026/01/01/college-football-playoff-bracket-projections-odds/
+
 **What’s in Our Queue? Maggie Rogers and More**\
 `Text by Vanessa Friedman`\
 https://nytimes.com/card/2026/01/01/arts/editors-recommendations-maggierogers
