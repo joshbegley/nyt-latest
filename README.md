@@ -1,3 +1,7 @@
+**How to Watch Zohran Mamdani’s Inauguration**\
+`The new mayor was officially sworn in just after midnight on Thursday. A second public event will take place this afternoon.`\
+https://nytimes.com/2026/01/01/nyregion/how-to-watch-zohran-mamdanis-inauguration.html
+
 **For a Youthful Mayor, a Team of Government Veterans**\
 `Zohran Mamdani has stocked his administration with seasoned officials, in part to allay concerns about his inexperience and left-wing stances.`\
 https://nytimes.com/2026/01/01/nyregion/mamdani-administration-appointments.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6932531/2026/01/01/ny-giants-free-agents-wandale-ro
 **Crans-Montana is a Historic Swiss Ski Resort Popular with International Tourists**\
 `Known for its gourmet food, luxury stores, and for hosting major sporting events, the high-end resort was acquired by Vail Resorts in 2024.`\
 https://nytimes.com/2026/01/01/world/europe/fire-crans-montana.html
-
-**How New York City miscounted its mayors for more than 300 years.**\
-`By Andy Newman`\
-https://nytimes.com/live/2026/01/01/nyregion/zohran-mamdani-inauguration-nyc-mayor/how-new-york-city-miscounted-its-mayors-for-more-than-300-years
 
