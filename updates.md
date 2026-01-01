@@ -1,3 +1,7 @@
+**Minnesota Families Are Rattled by Threat to Cut Federal Aid for Child Care**\
+`After the federal government threatened to withhold funds for Minnesota’s child-care program, citing fraud concerns, parents and providers warned that the effects could be dire.`\
+https://nytimes.com/2026/01/01/us/minnesota-child-care-funding-impact-fraud.html
+
 **How to Watch Zohran Mamdani’s Inauguration**\
 `The new mayor was officially sworn in just after midnight on Thursday. A second public event will take place this afternoon.`\
 https://nytimes.com/2026/01/01/nyregion/how-to-watch-zohran-mamdanis-inauguration.html

@@ -1,3 +1,7 @@
+**Minnesota Families Are Rattled by Threat to Cut Federal Aid for Child Care**\
+`After the federal government threatened to withhold funds for Minnesota’s child-care program, citing fraud concerns, parents and providers warned that the effects could be dire.`\
+https://nytimes.com/2026/01/01/us/minnesota-child-care-funding-impact-fraud.html
+
 **How to Watch Zohran Mamdani’s Inauguration**\
 `The new mayor was officially sworn in just after midnight on Thursday. A second public event will take place this afternoon.`\
 https://nytimes.com/2026/01/01/nyregion/how-to-watch-zohran-mamdanis-inauguration.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6933591/2026/01/01/nebraska-football-basketball-sof
 **Is Giants finale last we'll see of Wan'Dale Robinson, two more key free agents in N.Y.?**\
 `The Giants have let some quality homegrown players leave in free agency in the past. Will they do it again?`\
 https://nytimes.com/athletic/6932531/2026/01/01/ny-giants-free-agents-wandale-robinson-jermaine-eluemunor-cordale-flott/
-
-**Crans-Montana is a Historic Swiss Ski Resort Popular with International Tourists**\
-`Known for its gourmet food, luxury stores, and for hosting major sporting events, the high-end resort was acquired by Vail Resorts in 2024.`\
-https://nytimes.com/2026/01/01/world/europe/fire-crans-montana.html
 

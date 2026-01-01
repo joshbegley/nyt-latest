@@ -1,9 +1,13 @@
+**Another first for Mamdani: using the Quran to take the mayoral oath of office.**\
+`By Maya King`\
+https://nytimes.com/live/2026/01/01/nyregion/zohran-mamdani-inauguration-nyc-mayor/mamdani-quran
+
 **Minnesota Families Are Rattled by Threat to Cut Federal Aid for Child Care**\
 `After the federal government threatened to withhold funds for Minnesota’s child-care program, citing fraud concerns, parents and providers warned that the effects could be dire.`\
 https://nytimes.com/2026/01/01/us/minnesota-child-care-funding-impact-fraud.html
 
 **How to Watch Zohran Mamdani’s Inauguration**\
-`The new mayor was officially sworn in just after midnight on Thursday. A second public event will take place this afternoon.`\
+`New York City’s new mayor was officially sworn in just after midnight on Thursday. A second public event will take place this afternoon.`\
 https://nytimes.com/2026/01/01/nyregion/how-to-watch-zohran-mamdanis-inauguration.html
 
 **For a Youthful Mayor, a Team of Government Veterans**\
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/01/01/nyregion/zohran-mamdani-inauguration-nyc-may
 **Ten predictions for 2026 for Nebraska college football, basketball, softball and more**\
 `After a 44-22 loss to Utah in the Las Vegas Bowl on New Year's Eve, the turn of the calendar brings Nebraska a fresh start.`\
 https://nytimes.com/athletic/6933591/2026/01/01/nebraska-football-basketball-softball-predictions-2026/
-
-**Is Giants finale last we'll see of Wan'Dale Robinson, two more key free agents in N.Y.?**\
-`The Giants have let some quality homegrown players leave in free agency in the past. Will they do it again?`\
-https://nytimes.com/athletic/6932531/2026/01/01/ny-giants-free-agents-wandale-robinson-jermaine-eluemunor-cordale-flott/
 
