@@ -1,3 +1,15 @@
+**How to watch Florida vs. Tennessee women's basketball: Time, TV, streaming**\
+`Find out how to watch the Florida Gators play the Tennessee Lady Volunteers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6933606/2026/01/01/florida-vs-tennessee-stream-how-to-watch-jan-1/
+
+**How to watch Vanderbilt vs. Arkansas women's basketball: Time, TV, streaming**\
+`Find out how to watch the Vanderbilt Commodores play the Arkansas Razorbacks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6933600/2026/01/01/vanderbilt-vs-arkansas-stream-how-to-watch-jan-1/
+
+**How to watch Notre Dame vs. Georgia Tech women's basketball: Time, TV, streaming**\
+`Find out how to watch the Notre Dame Fighting Irish play the Georgia Tech Yellow Jackets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6933595/2026/01/01/notre-dame-vs-georgia-tech-stream-how-to-watch-jan-1/
+
 **How to watch Georgia vs. Ole Miss women's basketball: Time, TV, streaming**\
 `Find out how to watch the Georgia Lady Bulldogs play the Ole Miss Rebels, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6933589/2026/01/01/georgia-vs-ole-miss-stream-how-to-watch-jan-1/
