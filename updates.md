@@ -1,3 +1,11 @@
+**A Deadly Blaze in Switzerland**\
+`Plus, tips from our readers on how to stay informed without feeling overwhelmed in 2026.`\
+https://nytimes.com/2026/01/01/world/switzerland-fire-mamdani-newyork-reader-tips.html
+
+**Green Soups for Gray Days**\
+`By Luke Fortney`\
+https://nytimes.com/2026/01/01/dining/green-soups-for-gray-days.html
+
 **The Full Transcript of Zohran Mamdani’s Inauguration Speech**\
 `New York’s new mayor challenged his supporters and his opponents to make the city better, and to hold him to account.`\
 https://nytimes.com/2026/01/01/nyregion/mamdani-inauguration-speech-transcript.html
