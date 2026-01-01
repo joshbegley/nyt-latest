@@ -1,3 +1,7 @@
+**‘Stranger Things’ Has Ended. What Happened in the Series Finale?**\
+`There was a lot to tie up after five seasons and nearly 10 years, and the show gave itself another two hours to do it. Here are the major events.`\
+https://nytimes.com/2026/01/01/arts/television/stranger-things-finale-ending.html
+
 **Take a tour of the Antarctica-bound icebreaker. It has a gym.**\
 `(No description)`\
 https://nytimes.com/live/2025/climate/antarctica-thwaites-glacier/tour-antarctica-icebreaker
