@@ -1,3 +1,15 @@
+**Venezuela Frees Dozens of Political Prisoners**\
+`At least 80 people were released, including one with U.S. ties, though more than 800 remain detained in Venezuela for opposing President Nicolás Maduro’s rule, rights groups say.`\
+https://nytimes.com/2026/01/01/world/americas/venezuela-prisoner-release.html
+
+**Saints’ Chris Olave out vs. Falcons after blood clot diagnosis: Sources**\
+`New Orleans receiver ends his career-best season with 100 receptions for 1,163 yards and nine touchdowns.`\
+https://nytimes.com/athletic/6934146/2026/01/01/saints-chris-olave-out-falcons-blood-clot/
+
+**Brennan Johnson: Palace set to complete signing of Spurs forward**\
+`A fee approaching £35million would represent a club-record transfer for Palace and the fourth-highest sale in Spurs history.`\
+https://nytimes.com/athletic/6928684/2026/01/01/crystal-palace-brennan-johnson-transfer-tottenham/
+
 **Janet Fish, Painter of Luminous Still Lifes, Dies at 87**\
 `From her student days, she stubbornly refused to follow popular artistic trends. Instead, she spent decades exploring the effects of light on glass.`\
 https://nytimes.com/2026/01/01/arts/design/janet-fish-dead.html
