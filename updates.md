@@ -1,3 +1,7 @@
+**Winter transfer window opens: When it closes, registration rules and summer dates**\
+`The Athletic has all you need to know about the winter transfer window, which opened today.`\
+https://nytimes.com/athletic/6928960/2025/12/31/january-transfer-window-when-rules/
+
 **Canada, Sweden win groups, Hage making a statement: World Juniors takeaways**\
 `The preliminary round of the 2026 World Juniors wrapped up on New Year's Eve in St. Paul and Minneapolis.`\
 https://nytimes.com/athletic/6931853/2025/12/31/world-juniors-canada-sweden-usa-results/
