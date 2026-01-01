@@ -1,3 +1,15 @@
+**'We deserved to lose': Wizards pull off shocking road win over Bucks**\
+`With a 3-point lead, the Bucks were seconds away from their first three-game winning streak this season. And then it all fell apart.`\
+https://nytimes.com/athletic/6933150/2026/01/01/bucks-wizards-close-loss-nba/
+
+**Miami, a 9.5-point underdog to Ohio State, pulls off biggest CFP upset**\
+`Hurricanes got biggest point-spread upset in the CFP's 12-year history with a 24-14 win over the defending national champion Buckeyes.`\
+https://nytimes.com/athletic/6933219/2026/01/01/miami-biggest-cfp-upset-ever/
+
+**A Trump Security Is Empty, Mr. Zelensky**\
+`Ukraine’s president should stop pressing for U.S. security guarantees and pursue more effective means of self-protection.`\
+https://nytimes.com/2026/01/01/opinion/trump-zelensky-putin-ukraine-russia-war-us.html
+
 **Miami, a 9.5-point underdog to Ohio State, pulls off biggest CFP upset ever**\
 `There have been several shockers in the 12 years of the College Football Playoff, but nothing like what the Hurricanes did Wednesday.`\
 https://nytimes.com/athletic/6933219/2026/01/01/miami-biggest-cfp-upset-ever/
