@@ -1,3 +1,15 @@
+**Canada, Sweden win groups, Hage making a statement: World Juniors takeaways**\
+`The preliminary round of the 2026 World Juniors wrapped up on New Year's Eve in St. Paul and Minneapolis.`\
+https://nytimes.com/athletic/6931853/2025/12/31/world-juniors-canada-sweden-usa-results/
+
+**NC State coach Will Wade erupts at media over Darrion Williams questions**\
+`The Wolfpack star forward hasn't been scoring as much recently and his coach is fed up with answering questions about it.`\
+https://nytimes.com/athletic/6933122/2025/12/31/north-carolina-state-coach-will-wade-darrion-williams/
+
+**Encountering Our First Iceberg**\
+`For Antarctic veterans and novices alike, the first sighting of an iceberg on an expedition stays “closest to your heart.”`\
+https://nytimes.com/2025/12/31/climate/antarctica-journey-first-iceberg.html
+
 **How Miami stunned defending champion Ohio State and announced itself as a contender**\
 `The Hurricanes will play Georgia or Ole Miss for a spot in the national championship next week.`\
 https://nytimes.com/athletic/6933033/2025/12/31/miami-ohio-state-score-result-college-football-playoff/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6932612/2025/12/31/wild-macklin-celebrini-canada-ol
 **Colts QB Anthony Richardson to miss season finale, ends year on IR**\
 `Quarterback has not played since suffering an orbital fracture during pregame warmups in Week 6.`\
 https://nytimes.com/athletic/6932910/2025/12/31/colts-qb-anthony-richardson-eye-injury/
-
-**Ukraine Did Not Target Putin’s Home, C.I.A. Finds**\
-`The assessment rebutted a claim that the Russian leader made to President Trump in a phone call this week.`\
-https://nytimes.com/2025/12/31/us/politics/ukraine-putin-home-drone-strike-cia.html
-
-**Nickeil Alexander-Walker is boosting Hawks and making Wolves miss him**\
-`In a world full of inflated egos and forced braggadocio, Alexander-Walker is All-NBA First Team when it comes to introspection.`\
-https://nytimes.com/athletic/6932468/2025/12/31/nickeil-alexander-walker-hawks-timberwolves-nba/
-
-**New Year’s Eve Celebrations Around the World**\
-`Revelers from around the world rang in the New Year with fireworks and light shows.`\
-https://nytimes.com/video/world/asia/100000010617699/nye-celebrations-world.html
 

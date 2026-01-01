@@ -1,3 +1,15 @@
+**Canada, Sweden win groups, Hage making a statement: World Juniors takeaways**\
+`The preliminary round of the 2026 World Juniors wrapped up on New Year's Eve in St. Paul and Minneapolis.`\
+https://nytimes.com/athletic/6931853/2025/12/31/world-juniors-canada-sweden-usa-results/
+
+**NC State coach Will Wade erupts at media over Darrion Williams questions**\
+`The Wolfpack star forward hasn't been scoring as much recently and his coach is fed up with answering questions about it.`\
+https://nytimes.com/athletic/6933122/2025/12/31/north-carolina-state-coach-will-wade-darrion-williams/
+
+**Encountering Our First Iceberg**\
+`For Antarctic veterans and novices alike, the first sighting of an iceberg on an expedition stays “closest to your heart.”`\
+https://nytimes.com/2025/12/31/climate/antarctica-journey-first-iceberg.html
+
 **How Miami stunned defending champion Ohio State and announced itself as a contender**\
 `The Hurricanes will play Georgia or Ole Miss for a spot in the national championship next week.`\
 https://nytimes.com/athletic/6933033/2025/12/31/miami-ohio-state-score-result-college-football-playoff/
