@@ -1,3 +1,7 @@
+**How Miami stunned defending champion Ohio State and announced itself as a contender**\
+`The Hurricanes will play Georgia or Ole Miss for a spot in the national championship next week.`\
+https://nytimes.com/athletic/6933033/2025/12/31/miami-ohio-state-score-result-college-football-playoff/
+
 **Miami upsets defending champion Ohio State, advancing to CFP semifinals**\
 `The Hurricanes will play Georgia or Ole Miss for a spot in the national championship next week.`\
 https://nytimes.com/athletic/6933033/2025/12/31/miami-ohio-state-score-result-college-football-playoff/
