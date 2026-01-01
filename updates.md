@@ -1,3 +1,7 @@
+**Historic Snowstorm Blankets Syracuse Just in Time for the New Year**\
+`Syracuse, N.Y., has received nearly twice its usual monthly amount of snow in December.`\
+https://nytimes.com/2025/12/31/nyregion/syracuse-record-snow.html
+
 **Devon Dampier powers Utah to win over Nebraska in Las Vegas Bowl**\
 `Dampier set a Las Vegas Bowl record with 458 total yards.`\
 https://nytimes.com/athletic/6932742/2025/12/31/devon-dampier-powers-utah-to-win-over-nebraska-in-las-vegas-bowl/
