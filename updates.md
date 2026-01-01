@@ -1,3 +1,11 @@
+**The Briefing: Brentford 0 Tottenham 0 - why were Spurs so short of creative inspiration?**\
+`Elias Burke and Jack Pitt-Brooke analyse the main talking points from Tottenham's underwhelming draw at Brentford`\
+https://nytimes.com/athletic/6928466/2026/01/01/brentford-tottenham-analysis-thomas-frank/
+
+**Mamdani Vows to Govern ‘Audaciously’ and Protect New York’s Vulnerable**\
+`Zohran Mamdani gave his first public speech as mayor of New York City, after a public inauguration that drew tens of thousands of people.`\
+https://nytimes.com/2026/01/01/nyregion/mamdani-inauguration-mayor.html
+
 **Richards could miss three more matches with foot injury - Glasner**\
 `The USMNT international has been absent since injuring his foot in the Carabao Cup quarter-final defeat by Arsenal.`\
 https://nytimes.com/athletic/6934373/2026/01/01/chris-richards-injury-palace-glasner-usmnt/

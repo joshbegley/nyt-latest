@@ -1,3 +1,11 @@
+**The Briefing: Brentford 0 Tottenham 0 - why were Spurs so short of creative inspiration?**\
+`Elias Burke and Jack Pitt-Brooke analyse the main talking points from Tottenham's underwhelming draw at Brentford`\
+https://nytimes.com/athletic/6928466/2026/01/01/brentford-tottenham-analysis-thomas-frank/
+
+**Mamdani Vows to Govern ‘Audaciously’ and Protect New York’s Vulnerable**\
+`Zohran Mamdani gave his first public speech as mayor of New York City, after a public inauguration that drew tens of thousands of people.`\
+https://nytimes.com/2026/01/01/nyregion/mamdani-inauguration-mayor.html
+
 **Richards could miss three more matches with foot injury - Glasner**\
 `The USMNT international has been absent since injuring his foot in the Carabao Cup quarter-final defeat by Arsenal.`\
 https://nytimes.com/athletic/6934373/2026/01/01/chris-richards-injury-palace-glasner-usmnt/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/01/dining/green-soups-for-gray-days.html
 **The Full Transcript of Zohran Mamdani’s Inauguration Speech**\
 `New York’s new mayor challenged his supporters and his opponents to make the city better, and to hold him to account.`\
 https://nytimes.com/2026/01/01/nyregion/mamdani-inauguration-speech-transcript.html
-
-**Fire in Swiss Alps Leaves Dozens of New Year’s Revelers Dead**\
-`About 40 people celebrating at a ski resort bar were killed, and 115 were injured, many of them young, the authorities said.`\
-https://nytimes.com/2026/01/01/world/europe/switzerland-fire-crans-montana-ski-resort.html
-
-**Rams sign safety Quentin Lake to 3-year extension upon return from injury**\
-`The new deal comes on the day of Lake's expected return to practice after a six-week trip to injured reserve to repair a dislocated elbow.`\
-https://nytimes.com/athletic/6934291/2026/01/01/rams-quentin-lake-extension-analysis/
 
