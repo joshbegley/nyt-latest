@@ -23,7 +23,7 @@ https://nytimes.com/2026/01/01/nyregion/mamdanis-rise-was-swift-now-he-faces-dau
 https://nytimes.com/live/2026/01/01/nyregion/zohran-mamdani-inauguration-nyc-mayor/mamdani-inauguration-updates
 
 **Live Updates: New York Readies Gala Inauguration of Mayor Zohran Mamdani**\
-`Mr. Mamdani, the city’s first Muslim and South Asian mayor and its youngest in more than a century, will be sworn in before the public in the early afternoon.`\
+`Mr. Mamdani, the city’s first Muslim and South Asian mayor and its youngest in more than a century, was sworn in at midnight. He will take part in a public ceremony in the early afternoon.`\
 https://nytimes.com/live/2026/01/01/nyregion/zohran-mamdani-inauguration-nyc-mayor
 
 **How Two Powerful U.S. Allies Came to Blows in Yemen**\
