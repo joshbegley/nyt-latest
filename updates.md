@@ -1,3 +1,7 @@
+**Hope in a Time of Cynicism**\
+`At a moment when Americans are distrusting and fearful, we examine the psychology of hope.`\
+https://nytimes.com/2026/01/01/briefing/hope-in-a-time-of-cynicism.html
+
 **What would Canada’s Olympic B-Team look like, and could it win a medal?**\
 `Even in the process of selecting a B-team, some very deserving and talented players are left off because of the number of options available.`\
 https://nytimes.com/athletic/6932545/2026/01/01/canada-olympic-hockey-b-team-roster/
