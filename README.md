@@ -1,3 +1,7 @@
+**Miami, a 9.5-point underdog to Ohio State, pulls off biggest CFP upset ever**\
+`There have been several shockers in the 12 years of the College Football Playoff, but nothing like what the Hurricanes did Wednesday.`\
+https://nytimes.com/athletic/6933219/2026/01/01/miami-biggest-cfp-upset-ever/
+
 **The New York Times in Print for Thursday, Jan. 1, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/01/01/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6931856/2026/01/01/premier-league-transfer-rankings
 **Football predictions for 2026: Manchester United being actually good, Trump smelting the World Cup and Salt Bae's return**\
 `Bielsa back at Leeds? VAR ruining the World Cup final? Lampard replacing Tuchel? Look forward to all this and more in the next 12 months...`\
 https://nytimes.com/athletic/6900088/2026/01/01/football-predictions-for-2026-man-united-being-actually-good-trump-smelting-the-world-cup-and-salt-baes-return/
-
-**Man Utd fans want a busy transfer window. This is why they may not get it**\
-`History and circumstances suggest January will not see major additions being made, even though reinforcements are needed`\
-https://nytimes.com/athletic/6931530/2026/01/01/manchester-united-transfer-window/
 
