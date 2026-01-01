@@ -1,3 +1,5 @@
+
+
 **J.J. McCarthy on track to play in Vikings' Week 18 game vs. Packers**\
 `McCarthy has dealt with a plethora of injuries this season, including having to miss last week's game with a right-hand injury.`\
 https://nytimes.com/athletic/6934413/2026/01/01/jj-mccarthy-status-vikings-packers/
