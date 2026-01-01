@@ -1,3 +1,19 @@
+**How to watch Jets vs. Maple Leafs: Time, TV, streaming**\
+`Find out how to watch the Winnipeg Jets play the Toronto Maple Leafs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6933895/2026/01/01/jets-vs-maple-leafs-stream-how-to-watch-jan-1/
+
+**How to watch Heat vs. Pistons: Time, TV, streaming**\
+`Find out how to watch the Miami Heat play the Detroit Pistons, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6933893/2026/01/01/heat-vs-pistons-stream-how-to-watch-jan-1/
+
+**How to watch Rockets vs. Nets: Time, TV, streaming**\
+`Find out how to watch the Houston Rockets play the Brooklyn Nets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6933889/2026/01/01/rockets-vs-nets-stream-how-to-watch-jan-1/
+
+**How to watch Lightning vs. Kings: Time, TV, streaming**\
+`Find out how to watch the Tampa Bay Lightning play the Los Angeles Kings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6933887/2026/01/01/lightning-vs-kings-stream-how-to-watch-jan-1/
+
 **How to watch Red Wings vs. Penguins: Time, TV, streaming**\
 `Find out how to watch the Detroit Red Wings play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6933884/2026/01/01/red-wings-vs-penguins-stream-how-to-watch-jan-1/
