@@ -1,3 +1,15 @@
+**Who should the 49ers avoid in the playoffs? Can they actually make a run? Mailbag**\
+`Among this week's questions: Why are the 49ers practicing so late, and why so many Jauan Jennings targets have resulted in interceptions?`\
+https://nytimes.com/athletic/6932363/2026/01/01/49ers-playoffs-matchups-super-bowl/
+
+**Three Seahawks who could swing the monumental rematch with the 49ers**\
+`Sam Darnold, Nick Emmanwori and Riq Woolen might want to forget Week 1's loss to the Niners. Saturday is their shot at redemption.`\
+https://nytimes.com/athletic/6932756/2026/01/01/seahawks-49ers-rematch-preview/
+
+**Napheesa Collier to miss Unrivaled season and possible WNBA start after ankle surgeries**\
+`The Lynx star is expected to need four to six months of recovery after next week's surgery. `\
+https://nytimes.com/athletic/6932746/2026/01/01/napheesa-collier-ankle-injury-lynx-unrivaled/
+
 **Our favorite 1/1 card stories from 2025: The intrigue behind the rarest cards in the hobby**\
 `Jan. 1 is now 1/1 card day, and to celebrate, we look back on some of the great 1/1 stories we told in 2025.`\
 https://nytimes.com/athletic/6930881/2026/01/01/1-of-1-sports-trading-cards-skenes-clark-daniels/

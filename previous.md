@@ -1,3 +1,15 @@
+**Who should the 49ers avoid in the playoffs? Can they actually make a run? Mailbag**\
+`Among this week's questions: Why are the 49ers practicing so late, and why so many Jauan Jennings targets have resulted in interceptions?`\
+https://nytimes.com/athletic/6932363/2026/01/01/49ers-playoffs-matchups-super-bowl/
+
+**Three Seahawks who could swing the monumental rematch with the 49ers**\
+`Sam Darnold, Nick Emmanwori and Riq Woolen might want to forget Week 1's loss to the Niners. Saturday is their shot at redemption.`\
+https://nytimes.com/athletic/6932756/2026/01/01/seahawks-49ers-rematch-preview/
+
+**Napheesa Collier to miss Unrivaled season and possible WNBA start after ankle surgeries**\
+`The Lynx star is expected to need four to six months of recovery after next week's surgery. `\
+https://nytimes.com/athletic/6932746/2026/01/01/napheesa-collier-ankle-injury-lynx-unrivaled/
+
 **Our favorite 1/1 card stories from 2025: The intrigue behind the rarest cards in the hobby**\
 `Jan. 1 is now 1/1 card day, and to celebrate, we look back on some of the great 1/1 stories we told in 2025.`\
 https://nytimes.com/athletic/6930881/2026/01/01/1-of-1-sports-trading-cards-skenes-clark-daniels/
@@ -25,16 +37,4 @@ https://nytimes.com/live/2026/01/01/nyregion/zohran-mamdani-inauguration-nyc-may
 **Gabon's government suspends national team after AFCON exit, bans Aubameyang**\
 `An official statement announced the decision to dissolve the technical staff and also ban the captain Bruno Ecuele Manga.`\
 https://nytimes.com/athletic/6933543/2026/01/01/gabon-aubameyang-government-afcon-ban/
-
-**How to watch Mammoth vs. Islanders: Time, TV, streaming**\
-`Find out how to watch the Utah Mammoth play the New York Islanders, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6933637/2026/01/01/mammoth-vs-islanders-stream-how-to-watch-jan-1/
-
-**How to watch SMU vs. Louisville women's basketball: Time, TV, streaming**\
-`Find out how to watch the SMU Mustangs play the Louisville Cardinals, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6933634/2026/01/01/smu-vs-louisville-stream-how-to-watch-jan-1/
-
-**How to watch Nebraska vs. Iowa women's basketball: Time, TV, streaming**\
-`Find out how to watch the Nebraska Cornhuskers play the Iowa Hawkeyes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6933631/2026/01/01/nebraska-vs-iowa-stream-how-to-watch-jan-1/
 

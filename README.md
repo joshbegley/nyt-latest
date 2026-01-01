@@ -1,3 +1,7 @@
+**For a Youthful Mayor, a Team of Government Veterans**\
+`Zohran Mamdani has stocked his administration with seasoned officials, in part to allay concerns about his inexperience and left-wing stances.`\
+https://nytimes.com/2026/01/01/nyregion/mamdani-administration-appointments.html
+
 **Who should the 49ers avoid in the playoffs? Can they actually make a run? Mailbag**\
 `Among this week's questions: Why are the 49ers practicing so late, and why so many Jauan Jennings targets have resulted in interceptions?`\
 https://nytimes.com/athletic/6932363/2026/01/01/49ers-playoffs-matchups-super-bowl/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/01/world/europe/fire-crans-montana.html
 **How New York City miscounted its mayors for more than 300 years.**\
 `By Andy Newman`\
 https://nytimes.com/live/2026/01/01/nyregion/zohran-mamdani-inauguration-nyc-mayor/how-new-york-city-miscounted-its-mayors-for-more-than-300-years
-
-**Gabon's government suspends national team after AFCON exit, bans Aubameyang**\
-`An official statement announced the decision to dissolve the technical staff and also ban the captain Bruno Ecuele Manga.`\
-https://nytimes.com/athletic/6933543/2026/01/01/gabon-aubameyang-government-afcon-ban/
 
