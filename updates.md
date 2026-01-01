@@ -1,3 +1,43 @@
+**Fiorentina agree loan deal for Spurs winger Manor Solomon**\
+`The deal will include the option for Fiorentina to make the move permanent.`\
+https://nytimes.com/athletic/6932371/2026/01/01/tottenham-manor-solomon-loan-fiorentina-transfer/
+
+**'He's a killer, man': Panthers rookie kicker Ryan Fitzgerald built for big moments**\
+`Fitzgerald has been good under pressure in Year 1; he has made four game-winning kicks, and Carolina would love another one Saturday.`\
+https://nytimes.com/athletic/6932636/2026/01/01/panthers-ryan-fitzgerald-kicker/
+
+**10 Red Wings thoughts at midseason: What will Detroit's second half bring?**\
+`It's been a dream first half for Detroit, as the Red Wings sit atop the Atlantic Division with 51 points after a 2-1 win over the Jets.`\
+https://nytimes.com/athletic/6932269/2026/01/01/detroit-red-wings-midseason-nhl-standings/
+
+**Luka Dončić, LeBron James and the Lakers' latest puzzle**\
+`"It's hard to get back. We're not getting back," James acknowledged after the Lakers fell to 20-11 in their final game of the year.`\
+https://nytimes.com/athletic/6932076/2026/01/01/lakers-lebron-james-luka-doncic-puzzle/
+
+**Experience some buyer's remorse with our all 'did we save the receipt?' team**\
+`Here are 20 players acquired over the offseason via trade and free agency who aren’t working out for their new teams.`\
+https://nytimes.com/athletic/6930784/2026/01/01/nhl-players-offseason-trade-free-agency-teams/
+
+**Fight night never materializes, but Blue Jackets' bad habits return in loss to Devils**\
+`Columbus gives up three goals in less than a two-minute span of the third period, undoing a 2-0 lead and producing a frustrating loss.`\
+https://nytimes.com/athletic/6933109/2026/01/01/blue-jackets-devils-score-result/
+
+**Why Team Canada's Braeden Cootes could be a 'coach's security blanket' for Canucks**\
+`Cootes has had a whirlwind few months that included gold at U18s, the draft and his NHL debut.`\
+https://nytimes.com/athletic/6921519/2026/01/01/braeden-cootes-canucks-canada-world-juniors/
+
+**This Miami team can win it all, and yes, Mario Cristobal is why**\
+`Miami is tough and physical, in the mold of Cristobal. But in the moment they needed something else, Cristobal pushed the right button.`\
+https://nytimes.com/athletic/6933291/2026/01/01/miami-ohio-state-win-mario-cristobal-college-football-playoff/
+
+**Magic Johnson is ringing in 2026 as Rose Parade grand marshal. Here's what to know**\
+`A Lakers legend mints a New Year's tradition from Pasadena, becoming the most recent athlete to serve as Rose Parade grand marshal. `\
+https://nytimes.com/athletic/6928304/2026/01/01/magic-johnson-rose-parade-grand-marshal-history/
+
+**Tage Thompson, Sabres dominate Stars to push winning streak to 10: 5 thoughts**\
+`Buffalo's 10-game winning streak matches a franchise record the team has hit three other times, most recently in 2018.`\
+https://nytimes.com/athletic/6933236/2026/01/01/sabres-win-streak-stars-score-result/
+
 **Meet my NBA All-Disappointment Team: Paolo, Draymond and a host of point guards**\
 `As 2026 begins, these players have done the most to fall short of our hopes and expectations, however misplaced they might have been.`\
 https://nytimes.com/athletic/6930954/2026/01/01/nba-season-2025-2026-disappointments/
