@@ -1,3 +1,15 @@
+**Art Gallery Shows to See in January**\
+`This week in Newly Reviewed, Will Heinrich covers Jana Euler’s delightful absurdity, Lotty Rosenfeld’s portraits of the Pinochet dictatorship and Erich Heckel’s eerie dream world.`\
+https://nytimes.com/2026/01/01/arts/art-gallery-shows-to-see-in-january.html
+
+**‘Little Black Boy, You Were Worth it,’ Jumaane Williams Tells His Past Self**\
+`After being sworn in as New York City’s public advocate, Jumaane Williams, the son of immigrants, spoke on the challenges faced by immigrant New Yorkers and the systems of power that cause inequality.`\
+https://nytimes.com/video/nyregion/100000010619515/jumaane-williams-speech.html
+
+**Switzerland’s burn centers are so overwhelmed that fire victims are being sent to other countries.**\
+`By Nick Cumming-Bruce`\
+https://nytimes.com/live/2026/01/01/world/switzerland-ski-resort-fire/switzerlands-burn-centers-are-so-overwhelmed-that-fire-victims-are-being-sent-to-other-countries
+
 **‘You Are Worth It’: Jumaane Williams Delivers Powerful Inauguration Speech**\
 `Mr. Williams, New York City’s public advocate, teared up as he addressed a portion of his remarks to his younger self, captivating the crowd.`\
 https://nytimes.com/2026/01/01/nyregion/jumaane-williams-inauguration-speech.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6934291/2026/01/01/rams-quentin-lake-extension-anal
 **College Football Playoff 2025 projections: Indiana is now the national title favorite**\
 `Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
 https://nytimes.com/athletic/6560541/2026/01/01/college-football-playoff-bracket-projections-odds/
-
-**How to watch Jazz vs. Clippers: Time, TV, streaming**\
-`Find out how to watch the Utah Jazz play the Los Angeles Clippers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6934290/2026/01/01/jazz-vs-clippers-stream-how-to-watch-jan-1/
-
-**How to watch Celtics vs. Kings: Time, TV, streaming**\
-`Find out how to watch the Boston Celtics play the Sacramento Kings, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6934287/2026/01/01/celtics-vs-kings-stream-how-to-watch-jan-1/
-
-**How to watch 76ers vs. Mavericks: Time, TV, streaming**\
-`Find out how to watch the Philadelphia 76ers play the Dallas Mavericks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6934284/2026/01/01/76ers-vs-mavericks-stream-how-to-watch-jan-1/
 

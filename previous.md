@@ -1,3 +1,7 @@
+**‘You Are Worth It’: Jumaane Williams Delivers Powerful Inauguration Speech**\
+`Mr. Williams, New York City’s public advocate, teared up as he addressed a portion of his remarks to his younger self, captivating the crowd.`\
+https://nytimes.com/2026/01/01/nyregion/jumaane-williams-inauguration-speech.html
+
 **A Deadly Blaze in Switzerland**\
 `Plus, tips from our readers on how to stay informed without feeling overwhelmed in 2026.`\
 https://nytimes.com/2026/01/01/world/switzerland-fire-mamdani-newyork-reader-tips.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6934287/2026/01/01/celtics-vs-kings-stream-how-to-w
 **How to watch 76ers vs. Mavericks: Time, TV, streaming**\
 `Find out how to watch the Philadelphia 76ers play the Dallas Mavericks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6934284/2026/01/01/76ers-vs-mavericks-stream-how-to-watch-jan-1/
-
-**Oregon locks down Texas Tech in Orange Bowl for third shutout in CFP history**\
-`The Ducks are now as close to a national title as they have been since reaching the championship game of the first four-team CFP.`\
-https://nytimes.com/athletic/6933890/2026/01/01/oregon-texas-tech-score-orange-bowl-cfp/
 
