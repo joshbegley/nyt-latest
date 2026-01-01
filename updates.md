@@ -1,3 +1,15 @@
+**Arch Manning bests Bryce Underwood as Texas pulls away in Citrus Bowl: Takeaways**\
+`Texas quarterback Arch Manning capped his late-season surge in style, while it was an up-and-down day for Bryce Underwood.`\
+https://nytimes.com/athletic/6932720/2025/12/31/michigan-texas-citrus-bowl-score-bryce-underwood/
+
+**In Hearing Transcript, Jack Smith Defends Decision to Indict Trump**\
+`The former special counsel accused President Trump of “exploiting” violence on Jan. 6, 2021, according to an interview released by House Republicans.`\
+https://nytimes.com/2025/12/31/us/politics/jack-smith-deposition-house-trump.html
+
+**Revelers Crowd Into Times Square to Ring in 2026**\
+`The New Year’s Eve celebration drew spectators from around the world, despite cold and blustery weather.`\
+https://nytimes.com/2025/12/31/nyregion/times-square-new-years-eve.html
+
 **Anthony Edwards leaves Timberwolves-Hawks early as Hawks win sans Trae Young**\
 `A frustrated Edwards threw a towel up in the air when coach Chris Finch pulled the starters with 7:52 left in the game.`\
 https://nytimes.com/athletic/6932683/2025/12/31/hawks-wolves-anthony-edwards-kristaps-porzingis-trae-young/

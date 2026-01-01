@@ -1,3 +1,7 @@
+**Suicide Bomber in Syria Kills Security Officer in New Year’s Eve Attack**\
+`The attacker likely had links to the Islamic State and was possibly targeting a Christian church in the center of Aleppo, according to a government spokesman.`\
+https://nytimes.com/2025/12/31/world/middleeast/aleppo-syria-suicide-bomber-new-years-eve.html
+
 **Arch Manning bests Bryce Underwood as Texas pulls away in Citrus Bowl: Takeaways**\
 `Texas quarterback Arch Manning capped his late-season surge in style, while it was an up-and-down day for Bryce Underwood.`\
 https://nytimes.com/athletic/6932720/2025/12/31/michigan-texas-citrus-bowl-score-bryce-underwood/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6932606/2025/12/31/dallas-wilson-will-return-florid
 **Mamdani Names Top Deputies for Child Care, Operations and Climate**\
 `Zohran Mamdani, the mayor-elect, announced several key appointments who could help implement central promises of his agenda, including universal child care.`\
 https://nytimes.com/2025/12/31/nyregion/mamdani-top-deputies-child-care-infrastructure-climate.html
-
-**In Chief Justice’s Annual Report, a History Lesson and Embrace of Independence**\
-`Chief Justice John G. Roberts Jr. did not directly address the tensions between the Trump administration and federal judges who have blocked the president’s agenda.`\
-https://nytimes.com/2025/12/31/us/politics/chief-justice-annual-report-history.html
 
