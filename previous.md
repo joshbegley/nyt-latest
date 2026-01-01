@@ -1,3 +1,7 @@
+**Bars, nightclubs and discos have been the sites of deadly fires.**\
+`Over`\
+https://nytimes.com/live/2026/01/01/world/switzerland-ski-resort-fire/bars-nightclubs-and-discos-have-been-the-sites-of-deadly-fires
+
 **Ocasio-Cortez Urges New Yorkers to Celebrate Mamdani’s Inauguration as Their Own**\
 `Representative Alexandria Ocasio-Cortez, speaking at Zohran Mamdani’s inauguration, said that his election represented New Yorkers’ choosing “prosperity for the many over spoils for the few.”`\
 https://nytimes.com/2026/01/01/nyregion/aoc-mamdani-inauguration.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6933555/2026/01/01/chelsea-liam-rosenior-enzo-mares
 **Russia Asks United States to Stop Pursuit of Fleeing Oil Tanker**\
 `The tanker, which had been sailing to Venezuela to pick up oil, has claimed Russian protection, although the U.S. authorities say it is a stateless vessel.`\
 https://nytimes.com/2026/01/01/us/politics/russia-oil-tanker-venezuela-us-pursuit.html
-
-**Jordan Love clears concussion protocol; GB starting third-stringer Tune vs. MIN**\
-`The Packers have already secured the No. 7 seed in the playoffs and don't plan to play Love unless injuries make it necessary.`\
-https://nytimes.com/athletic/6934039/2026/01/01/jordan-love-concussion-packers-vikings/
 

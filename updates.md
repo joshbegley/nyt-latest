@@ -1,3 +1,7 @@
+**Bars, nightclubs and discos have been the sites of deadly fires.**\
+`Over`\
+https://nytimes.com/live/2026/01/01/world/switzerland-ski-resort-fire/bars-nightclubs-and-discos-have-been-the-sites-of-deadly-fires
+
 **Ocasio-Cortez Urges New Yorkers to Celebrate Mamdani’s Inauguration as Their Own**\
 `Representative Alexandria Ocasio-Cortez, speaking at Zohran Mamdani’s inauguration, said that his election represented New Yorkers’ choosing “prosperity for the many over spoils for the few.”`\
 https://nytimes.com/2026/01/01/nyregion/aoc-mamdani-inauguration.html
