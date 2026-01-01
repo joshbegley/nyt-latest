@@ -1,3 +1,11 @@
+**In his invocation, an imam prays for the success of Mamdani and New York City.**\
+`By Maya King`\
+https://nytimes.com/live/2026/01/01/nyregion/zohran-mamdani-inauguration-nyc-mayor/in-his-invocation-an-imam-prays-for-the-success-of-mamdani-and-new-york-city
+
+**How to watch Oklahoma vs. Texas A&M women's basketball: Time, TV, streaming**\
+`Find out how to watch the Oklahoma Sooners play the Texas A&M Aggies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6934272/2026/01/01/oklahoma-vs-texas-a-m-stream-how-to-watch-jan-1/
+
 **How to watch Texas vs. Missouri women's basketball: Time, TV, streaming**\
 `Find out how to watch the Texas Longhorns play the Missouri Tigers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6934258/2026/01/01/texas-vs-missouri-stream-how-to-watch-jan-1/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6934146/2026/01/01/saints-chris-olave-out-falcons-b
 **Brennan Johnson: Palace set to complete signing of Spurs forward**\
 `A fee approaching £35million would represent a club-record transfer for Palace and the fourth-highest sale in Spurs history.`\
 https://nytimes.com/athletic/6928684/2026/01/01/crystal-palace-brennan-johnson-transfer-tottenham/
-
-**Janet Fish, Painter of Luminous Still Lifes, Dies at 87**\
-`From her student days, she stubbornly refused to follow popular artistic trends. Instead, she spent decades exploring the effects of light on glass.`\
-https://nytimes.com/2026/01/01/arts/design/janet-fish-dead.html
-
-**The Briefing: Liverpool 0 Leeds United 0 - Familiar issues for Arne Slot's side? More signs of progress for Leeds?**\
-`The Athletic's writers analyse the New Year's Day action from Anfield`\
-https://nytimes.com/athletic/6928465/2026/01/01/liverpool-leeds-premier-league-analysis/
 
