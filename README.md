@@ -1,3 +1,7 @@
+**Historic Snowstorm Blankets Syracuse Just in Time for the New Year**\
+`Syracuse, N.Y., has received nearly twice its usual monthly amount of snow in December.`\
+https://nytimes.com/2025/12/31/nyregion/syracuse-record-snow.html
+
 **Devon Dampier powers Utah to win over Nebraska in Las Vegas Bowl**\
 `Dampier set a Las Vegas Bowl record with 458 total yards.`\
 https://nytimes.com/athletic/6932742/2025/12/31/devon-dampier-powers-utah-to-win-over-nebraska-in-las-vegas-bowl/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/31/nyregion/times-square-new-years-eve.html
 **Anthony Edwards leaves Timberwolves-Hawks early as Hawks win sans Trae Young**\
 `A frustrated Edwards threw a towel up in the air when coach Chris Finch pulled the starters with 7:52 left in the game.`\
 https://nytimes.com/athletic/6932683/2025/12/31/hawks-wolves-anthony-edwards-kristaps-porzingis-trae-young/
-
-**On His Last Day, Adams Drops From View but Still Flexes His Muscle**\
-`Mayor Eric Adams had one public appearance on his schedule, but that didn’t stop him from naming a third charter commission in the last hours of his administration.`\
-https://nytimes.com/2025/12/31/nyregion/eric-adams-last-day.html
 
