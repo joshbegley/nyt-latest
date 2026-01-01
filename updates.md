@@ -1,3 +1,11 @@
+**Ocasio-Cortez Urges New Yorkers to Celebrate Mamdani’s Inauguration as Their Own**\
+`Representative Alexandria Ocasio-Cortez, speaking at Zohran Mamdani’s inauguration, said that his election represented New Yorkers’ choosing “prosperity for the many over spoils for the few.”`\
+https://nytimes.com/2026/01/01/nyregion/aoc-mamdani-inauguration.html
+
+**Cowboys DC Matt Eberflus: 'I don't think I'd do anything differently'**\
+`Dallas' defense has been one of the NFL's worst this season and the Cowboys missed the playoffs for the second consecutive season.`\
+https://nytimes.com/athletic/6933706/2026/01/01/cowboys-matt-eberflus-defense-problems/
+
 **This Diminutive Reptile Plays Rock-Paper-Scissors**\
 `Side-blotched lizards probably don’t call the game that, but they play a version of it anyway. A new study explains the hidden biology that makes this possible.`\
 https://nytimes.com/2026/01/01/science/this-diminutive-reptile-plays-rock-paper-scissors.html
