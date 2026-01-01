@@ -1,3 +1,11 @@
+**Mamdani trades a neighborhood that made him mayor for one that backed his opponents.**\
+`By Eliza Shapiro and Nicholas Fandos`\
+https://nytimes.com/live/2026/01/01/nyregion/zohran-mamdani-inauguration-nyc-mayor/mamdani-trades-a-neighborhood-that-made-him-mayor-for-one-that-backed-his-opponents
+
+**I Start Every New Year With This Soup**\
+`Ozoni — Japanese mochi soup — is soothing and sustaining, a grounding meal for the first day of the new year.`\
+https://nytimes.com/2026/01/01/dining/i-start-every-new-year-with-this-soup.html
+
 **What’s in Our Queue? Maggie Rogers and More**\
 `Text by Vanessa Friedman`\
 https://nytimes.com/card/2026/01/01/arts/editors-recommendations-maggierogers
@@ -9,6 +17,10 @@ https://nytimes.com/2026/01/01/world/europe/crans-montana-switzerland-fire-victi
 **Eric Adams spent his final hours as mayor out of sight and undermining Mamdani.**\
 `By Jeffery C. Mays`\
 https://nytimes.com/live/2026/01/01/nyregion/zohran-mamdani-inauguration-nyc-mayor/eric-adams-spent-his-final-hours-as-mayor-out-of-sight-and-undermining-mamdani
+
+**College Football Playoff 2025 projections: Indiana is now the national title favorite**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2026/01/01/college-football-playoff-bracket-projections-odds/
 
 **Review: Singers Come First in the Met Opera’s New ‘Puritani’**\
 `Charles Edwards’s deceptively traditional, exceptionally sung production of Bellini’s “I Puritani” makes space for its stars.`\
@@ -25,16 +37,4 @@ https://nytimes.com/2026/01/01/us/minnesota-child-care-funding-impact-fraud.html
 **How to Watch Zohran Mamdani’s Inauguration**\
 `New York City’s new mayor was officially sworn in just after midnight on Thursday. A second public event will take place this afternoon.`\
 https://nytimes.com/2026/01/01/nyregion/how-to-watch-zohran-mamdanis-inauguration.html
-
-**For a Youthful Mayor, a Team of Government Veterans**\
-`Zohran Mamdani has stocked his administration with seasoned officials, in part to allay concerns about his inexperience and left-wing stances.`\
-https://nytimes.com/2026/01/01/nyregion/mamdani-administration-appointments.html
-
-**Who should the 49ers avoid in the playoffs? Can they actually make a run? Mailbag**\
-`Among this week's questions: Why are the 49ers practicing so late, and why so many Jauan Jennings targets have resulted in interceptions?`\
-https://nytimes.com/athletic/6932363/2026/01/01/49ers-playoffs-matchups-super-bowl/
-
-**Three Seahawks who could swing the monumental rematch with the 49ers**\
-`Sam Darnold, Nick Emmanwori and Riq Woolen might want to forget Week 1's loss to the Niners. Saturday is their shot at redemption.`\
-https://nytimes.com/athletic/6932756/2026/01/01/seahawks-49ers-rematch-preview/
 
