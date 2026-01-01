@@ -1,3 +1,11 @@
+**Cubs still waiting for their biggest offseason move after Imai picks Astros**\
+`The Cubs need another mainstay for a rotation that has multiple starting pitchers on expiring contracts.`\
+https://nytimes.com/athletic/6933130/2026/01/01/cubs-tatsuya-imai-astros-mlb/
+
+**Strasbourg's Liam Rosenior the leading candidate for Chelsea job**\
+`Enzo Maresca made a shock departure from Chelsea on January 1.`\
+https://nytimes.com/athletic/6933555/2026/01/01/chelsea-liam-rosenior-enzo-maresca-strasbourg/
+
 **Russia Asks United States to Stop Pursuit of Fleeing Oil Tanker**\
 `The tanker, which had been sailing to Venezuela to pick up oil, has claimed Russian protection, although the U.S. authorities say it is a stateless vessel.`\
 https://nytimes.com/2026/01/01/us/politics/russia-oil-tanker-venezuela-us-pursuit.html

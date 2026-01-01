@@ -1,3 +1,7 @@
+**Iran Protests Turn Deadly as Violence and Anger Spread**\
+`Financial pressures have fueled a fifth day of demonstrations around Iran, with at least one person killed in the protests so far, according to the authorities.`\
+https://nytimes.com/2026/01/01/world/middleeast/iran-protests-deaths.html
+
 **Cubs still waiting for their biggest offseason move after Imai picks Astros**\
 `The Cubs need another mainstay for a rotation that has multiple starting pitchers on expiring contracts.`\
 https://nytimes.com/athletic/6933130/2026/01/01/cubs-tatsuya-imai-astros-mlb/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6933989/2026/01/01/at-less-than-full-orange-bowl-bi
 **Fire at Bar in Swiss Ski Resort Town Kills Dozens, Officials Say**\
 `Dozens of people were killed and more than 100 were injured after a fire broke out at a bar in a Swiss ski resort town during a New Year’s Eve celebration, the police said.`\
 https://nytimes.com/video/world/europe/100000010618958/switzerland-ski-bar-fire.html
-
-**Mamdani’s Parents ‘Look Forward to a Joyous Time’**\
-`Mahmood Mamdani and Mira Nair will host an intimate dinner after the festivities following their son’s swearing in ceremony.`\
-https://nytimes.com/2026/01/01/nyregion/mira-nair-mahmood-mamdani-parents.html
 
