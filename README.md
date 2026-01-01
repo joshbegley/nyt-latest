@@ -1,3 +1,7 @@
+**Hope in a Time of Cynicism**\
+`At a moment when Americans are distrusting and fearful, we examine the psychology of hope.`\
+https://nytimes.com/2026/01/01/briefing/hope-in-a-time-of-cynicism.html
+
 **What would Canada’s Olympic B-Team look like, and could it win a medal?**\
 `Even in the process of selecting a B-team, some very deserving and talented players are left off because of the number of options available.`\
 https://nytimes.com/athletic/6932545/2026/01/01/canada-olympic-hockey-b-team-roster/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6932371/2026/01/01/tottenham-manor-solomon-loan-fio
 **'He's a killer, man': Panthers rookie kicker Ryan Fitzgerald built for big moments**\
 `Fitzgerald has been good under pressure in Year 1; he has made four game-winning kicks, and Carolina would love another one Saturday.`\
 https://nytimes.com/athletic/6932636/2026/01/01/panthers-ryan-fitzgerald-kicker/
-
-**10 Red Wings thoughts at midseason: What will Detroit's second half bring?**\
-`It's been a dream first half for Detroit, as the Red Wings sit atop the Atlantic Division with 51 points after a 2-1 win over the Jets.`\
-https://nytimes.com/athletic/6932269/2026/01/01/detroit-red-wings-midseason-nhl-standings/
 

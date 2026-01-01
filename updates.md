@@ -1,3 +1,19 @@
+**What would Canada’s Olympic B-Team look like, and could it win a medal?**\
+`Even in the process of selecting a B-team, some very deserving and talented players are left off because of the number of options available.`\
+https://nytimes.com/athletic/6932545/2026/01/01/canada-olympic-hockey-b-team-roster/
+
+**The Steelers signed Aaron Rodgers for moments like this. They need him to deliver, again**\
+`The 42-year-old QB has a chance to lead the short-handed Steelers to an AFC North title against Baltimore on Sunday night.`\
+https://nytimes.com/athletic/6932675/2026/01/01/aaron-rodgers-pittsburgh-steelers-big-games/
+
+**Ryan Day has work to do after the bottom fell out on Ohio State's season**\
+`Ohio State wasn’t without some in-house adversity in the last month, but against Indiana and Miami, the Buckeyes were too slow to adjust.`\
+https://nytimes.com/athletic/6933448/2026/01/01/ohio-state-miami-ryan-day-offensive-line/
+
+**Is this the worst Jets team ever? By some measures, they have a case**\
+`Aaron Glenn's group is floundering toward the finish line of a disappointing 2025 season.`\
+https://nytimes.com/athletic/6932075/2026/01/01/new-york-jets-worst-teams-ever/
+
 **What's Trending in the NFL: What we got right — and wrong — in weird 2025 season**\
 `The Bills will be dangerous in the playoffs, but they could've been an even bigger threat had they addressed their needs at pass catcher.`\
 https://nytimes.com/athletic/6932470/2026/01/01/nfl-predictions-2025-season-2026/

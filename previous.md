@@ -1,3 +1,19 @@
+**What would Canada’s Olympic B-Team look like, and could it win a medal?**\
+`Even in the process of selecting a B-team, some very deserving and talented players are left off because of the number of options available.`\
+https://nytimes.com/athletic/6932545/2026/01/01/canada-olympic-hockey-b-team-roster/
+
+**The Steelers signed Aaron Rodgers for moments like this. They need him to deliver, again**\
+`The 42-year-old QB has a chance to lead the short-handed Steelers to an AFC North title against Baltimore on Sunday night.`\
+https://nytimes.com/athletic/6932675/2026/01/01/aaron-rodgers-pittsburgh-steelers-big-games/
+
+**Ryan Day has work to do after the bottom fell out on Ohio State's season**\
+`Ohio State wasn’t without some in-house adversity in the last month, but against Indiana and Miami, the Buckeyes were too slow to adjust.`\
+https://nytimes.com/athletic/6933448/2026/01/01/ohio-state-miami-ryan-day-offensive-line/
+
+**Is this the worst Jets team ever? By some measures, they have a case**\
+`Aaron Glenn's group is floundering toward the finish line of a disappointing 2025 season.`\
+https://nytimes.com/athletic/6932075/2026/01/01/new-york-jets-worst-teams-ever/
+
 **What's Trending in the NFL: What we got right — and wrong — in weird 2025 season**\
 `The Bills will be dangerous in the playoffs, but they could've been an even bigger threat had they addressed their needs at pass catcher.`\
 https://nytimes.com/athletic/6932470/2026/01/01/nfl-predictions-2025-season-2026/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6932636/2026/01/01/panthers-ryan-fitzgerald-kicker/
 **10 Red Wings thoughts at midseason: What will Detroit's second half bring?**\
 `It's been a dream first half for Detroit, as the Red Wings sit atop the Atlantic Division with 51 points after a 2-1 win over the Jets.`\
 https://nytimes.com/athletic/6932269/2026/01/01/detroit-red-wings-midseason-nhl-standings/
-
-**Luka Dončić, LeBron James and the Lakers' latest puzzle**\
-`"It's hard to get back. We're not getting back," James acknowledged after the Lakers fell to 20-11 in their final game of the year.`\
-https://nytimes.com/athletic/6932076/2026/01/01/lakers-lebron-james-luka-doncic-puzzle/
-
-**Experience some buyer's remorse with our all 'did we save the receipt?' team**\
-`Here are 20 players acquired over the offseason via trade and free agency who aren’t working out for their new teams.`\
-https://nytimes.com/athletic/6930784/2026/01/01/nhl-players-offseason-trade-free-agency-teams/
-
-**Fight night never materializes, but Blue Jackets' bad habits return in loss to Devils**\
-`Columbus gives up three goals in less than a two-minute span of the third period, undoing a 2-0 lead and producing a frustrating loss.`\
-https://nytimes.com/athletic/6933109/2026/01/01/blue-jackets-devils-score-result/
-
-**Why Team Canada's Braeden Cootes could be a 'coach's security blanket' for Canucks**\
-`Cootes has had a whirlwind few months that included gold at U18s, the draft and his NHL debut.`\
-https://nytimes.com/athletic/6921519/2026/01/01/braeden-cootes-canucks-canada-world-juniors/
 
