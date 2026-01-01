@@ -1,3 +1,11 @@
+**A Monumental Church in Amsterdam Is Ravaged by Flames on New Year’s Day**\
+`Local residents were evacuated after a fire broke out at the Vondelkerk shortly after midnight. The cause of the blaze has not yet been confirmed.`\
+https://nytimes.com/2026/01/01/world/europe/amsterdam-fire-church-new-years.html
+
+**Enzo Maresca leaves Chelsea: The only possible outcome for an increasingly unhappy marriage?**\
+`Three weeks after being named Premier League Manager of the Month, Maresca is gone, but the cracks have been visible for longer`\
+https://nytimes.com/athletic/6933362/2026/01/01/enzo-maresca-leaves-chelsea/
+
 **Chelsea part ways with Enzo Maresca with immediate effect**\
 `The Italian had been on a five-year deal through to 2029. `\
 https://nytimes.com/athletic/6933487/2026/01/01/chelsea-enzo-maresca-leaves/

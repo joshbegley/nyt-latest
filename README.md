@@ -1,3 +1,7 @@
+**The Pulse: A Playoff stunner**\
+`The Athletic has live coverage of Bears vs.`\
+https://nytimes.com/athletic/6931078/2026/01/01/miami-ohio-state-playoff-the-pulse/
+
 **A Monumental Church in Amsterdam Is Ravaged by Flames on New Year’s Day**\
 `Local residents were evacuated after a fire broke out at the Vondelkerk shortly after midnight. The cause of the blaze has not yet been confirmed.`\
 https://nytimes.com/2026/01/01/world/europe/amsterdam-fire-church-new-years.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6932033/2026/01/01/nfl-week-18-picks-predictions-be
 **Henrik Lundqvist offers outdoor expertise in advance of Rangers' Winter Classic appearance**\
 `The Hall of Fame goaltender ended his storied career with a 4-0 record in outdoor games, which still stands as an NHL record.`\
 https://nytimes.com/athletic/6932146/2026/01/01/rangers-nhl-winter-classic-henrik-lundqvist/
-
-**What's next for Chiefs' Bryan Cook? After career year in Kansas City, he discusses his future**\
-`Cook, a Kansas City Chiefs safety, will be a free agent. He talks about what K.C. has meant to him and whether he's open to coming back.`\
-https://nytimes.com/athletic/6932551/2026/01/01/whats-next-for-chiefs-bryan-cook-future/
 

@@ -1,3 +1,11 @@
+**A Monumental Church in Amsterdam Is Ravaged by Flames on New Year’s Day**\
+`Local residents were evacuated after a fire broke out at the Vondelkerk shortly after midnight. The cause of the blaze has not yet been confirmed.`\
+https://nytimes.com/2026/01/01/world/europe/amsterdam-fire-church-new-years.html
+
+**Enzo Maresca leaves Chelsea: The only possible outcome for an increasingly unhappy marriage?**\
+`Three weeks after being named Premier League Manager of the Month, Maresca is gone, but the cracks have been visible for longer`\
+https://nytimes.com/athletic/6933362/2026/01/01/enzo-maresca-leaves-chelsea/
+
 **Chelsea part ways with Enzo Maresca with immediate effect**\
 `The Italian had been on a five-year deal through to 2029. `\
 https://nytimes.com/athletic/6933487/2026/01/01/chelsea-enzo-maresca-leaves/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6932146/2026/01/01/rangers-nhl-winter-classic-henri
 **What's next for Chiefs' Bryan Cook? After career year in Kansas City, he discusses his future**\
 `Cook, a Kansas City Chiefs safety, will be a free agent. He talks about what K.C. has meant to him and whether he's open to coming back.`\
 https://nytimes.com/athletic/6932551/2026/01/01/whats-next-for-chiefs-bryan-cook-future/
-
-**Miami QB Carson Beck finally gets his Playoff moment — and might get his old team next**\
-`Beck admitted thinking about a hypothetical showdown with Georgia as he studied the Playoff bracket. Now, it's more possible than ever.`\
-https://nytimes.com/athletic/6933339/2026/01/01/carson-beck-miami-ohio-state-georgia-cfp/
-
-**Our Duty to Call Out Bigotry in America**\
-`Readers challenge a Republican politician’s views on prejudice and intolerance in the conservative movement. Also: The harm caused by organ transplant tourism.`\
-https://nytimes.com/2026/01/01/opinion/ramaswamy-racism-conservatives.html
 
