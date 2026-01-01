@@ -1,3 +1,7 @@
+**Arch Manning bests Bryce Underwood as Texas pulls away in Citrus Bowl: Takeaways**\
+`Texas quarterback Arch Manning capped his late-season surge in style, while it was an up-and-down day for Bryce Underwood.`\
+https://nytimes.com/athletic/6932720/2025/12/31/michigan-texas-citrus-bowl-score-bryce-underwood/
+
 **In Hearing Transcript, Jack Smith Defends Decision to Indict Trump**\
 `The former special counsel accused President Trump of “exploiting” violence on Jan. 6, 2021, according to an interview released by House Republicans.`\
 https://nytimes.com/2025/12/31/us/politics/jack-smith-deposition-house-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/31/nyregion/mamdani-top-deputies-child-care-infrastr
 **In Chief Justice’s Annual Report, a History Lesson and Embrace of Independence**\
 `Chief Justice John G. Roberts Jr. did not directly address the tensions between the Trump administration and federal judges who have blocked the president’s agenda.`\
 https://nytimes.com/2025/12/31/us/politics/chief-justice-annual-report-history.html
-
-**Not taking Rangers' Adam Fox to the Olympics would be a mistake for Team USA**\
-`Leaving one of the NHL's premier defensemen off the roster would be a big miss on the part of the American decision-makers.`\
-https://nytimes.com/athletic/6932514/2025/12/31/usa-olympic-hockey-roster-adam-fox-rangers/
 
