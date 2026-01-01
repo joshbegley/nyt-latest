@@ -1,3 +1,11 @@
+**What's Trending in the NFL: What we got right — and wrong — in weird 2025 season**\
+`The Bills will be dangerous in the playoffs, but they could've been an even bigger threat had they addressed their needs at pass catcher.`\
+https://nytimes.com/athletic/6932470/2026/01/01/nfl-predictions-2025-season-2026/
+
+**Michigan showed up when it could've folded. But the Whittingham era can't begin soon enough**\
+`Whittingham had to be encouraged by much of what he saw on the field from Michigan vs. Texas. Other parts probably made him grind his teeth.`\
+https://nytimes.com/athletic/6933120/2026/01/01/michigan-texas-bryce-underwood-kyle-whittingham/
+
 **Final game with the Lions? Analyzing 8 players and their futures in Detroit**\
 `Will Taylor Decker play another season? Is this the end for Alex Anzalone? Are the Lions moving on from David Montgomery?`\
 https://nytimes.com/athletic/6932586/2026/01/01/detroit-lions-free-agency/
