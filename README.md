@@ -1,3 +1,11 @@
+**Cubs still waiting for their biggest offseason move after Imai picks Astros**\
+`The Cubs need another mainstay for a rotation that has multiple starting pitchers on expiring contracts.`\
+https://nytimes.com/athletic/6933130/2026/01/01/cubs-tatsuya-imai-astros-mlb/
+
+**Strasbourg's Liam Rosenior the leading candidate for Chelsea job**\
+`Enzo Maresca made a shock departure from Chelsea on January 1.`\
+https://nytimes.com/athletic/6933555/2026/01/01/chelsea-liam-rosenior-enzo-maresca-strasbourg/
+
 **Russia Asks United States to Stop Pursuit of Fleeing Oil Tanker**\
 `The tanker, which had been sailing to Venezuela to pick up oil, has claimed Russian protection, although the U.S. authorities say it is a stateless vessel.`\
 https://nytimes.com/2026/01/01/us/politics/russia-oil-tanker-venezuela-us-pursuit.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/europe/100000010618958/switzerland-ski-bar-fire.
 **Mamdani’s Parents ‘Look Forward to a Joyous Time’**\
 `Mahmood Mamdani and Mira Nair will host an intimate dinner after the festivities following their son’s swearing in ceremony.`\
 https://nytimes.com/2026/01/01/nyregion/mira-nair-mahmood-mamdani-parents.html
-
-**Astros, Tatsuya Imai agree to 3-year contract: Source**\
-`Imai's deal maxes out at $63 million and contains opt-outs after every season.`\
-https://nytimes.com/athletic/6934001/2026/01/01/tatsuya-imai-astros-deal-mlb-free-agency/
-
-**Aina could make Nottingham Forest return against Villa - Dyche**\
-`The full-back was a key figure in last season’s seventh-placed finish, and can be added to the squad now that the transfer window is open.`\
-https://nytimes.com/athletic/6933994/2026/01/01/ola-aina-nottingham-forest-return/
 
