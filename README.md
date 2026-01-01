@@ -1,3 +1,7 @@
+**Winter transfer window opens: When it closes, registration rules and summer dates**\
+`The Athletic has all you need to know about the winter transfer window, which opened today.`\
+https://nytimes.com/athletic/6928960/2025/12/31/january-transfer-window-when-rules/
+
 **Canada, Sweden win groups, Hage making a statement: World Juniors takeaways**\
 `The preliminary round of the 2026 World Juniors wrapped up on New Year's Eve in St. Paul and Minneapolis.`\
 https://nytimes.com/athletic/6931853/2025/12/31/world-juniors-canada-sweden-usa-results/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/31/crosswords/daily-puzzle-2026-01-01.html
 **After being named to Canada's Olympic team, Macklin Celebrini burns Wild again: Takeaways**\
 `The young star and the Sharks completed a 3-0 season series sweep of Minnesota on Wednesday afternoon with a 4-3 shootout win.`\
 https://nytimes.com/athletic/6932612/2025/12/31/wild-macklin-celebrini-canada-olympic-sharks/
-
-**Colts QB Anthony Richardson to miss season finale, ends year on IR**\
-`Quarterback has not played since suffering an orbital fracture during pregame warmups in Week 6.`\
-https://nytimes.com/athletic/6932910/2025/12/31/colts-qb-anthony-richardson-eye-injury/
 
