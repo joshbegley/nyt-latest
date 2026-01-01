@@ -1,3 +1,11 @@
+**Ocasio-Cortez Urges New Yorkers to Celebrate Mamdani’s Inauguration as Their Own**\
+`Representative Alexandria Ocasio-Cortez, speaking at Zohran Mamdani’s inauguration, said that his election represented New Yorkers’ choosing “prosperity for the many over spoils for the few.”`\
+https://nytimes.com/2026/01/01/nyregion/aoc-mamdani-inauguration.html
+
+**Cowboys DC Matt Eberflus: 'I don't think I'd do anything differently'**\
+`Dallas' defense has been one of the NFL's worst this season and the Cowboys missed the playoffs for the second consecutive season.`\
+https://nytimes.com/athletic/6933706/2026/01/01/cowboys-matt-eberflus-defense-problems/
+
 **This Diminutive Reptile Plays Rock-Paper-Scissors**\
 `Side-blotched lizards probably don’t call the game that, but they play a version of it anyway. A new study explains the hidden biology that makes this possible.`\
 https://nytimes.com/2026/01/01/science/this-diminutive-reptile-plays-rock-paper-scissors.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/01/us/politics/russia-oil-tanker-venezuela-us-pursui
 **Jordan Love clears concussion protocol; GB starting third-stringer Tune vs. MIN**\
 `The Packers have already secured the No. 7 seed in the playoffs and don't plan to play Love unless injuries make it necessary.`\
 https://nytimes.com/athletic/6934039/2026/01/01/jordan-love-concussion-packers-vikings/
-
-**A Vegetarian Cooking Resolution Starter Pack**\
-`This simple and reliable collection of vegetarian staples — beans, pasta, tofu, salads and soups — will help you cook confidently all year long.`\
-https://nytimes.com/2026/01/01/dining/a-vegetarian-cooking-resolution-starter-pack.html
-
-**A DJ, a Poet and Politicians Make Up Mamdani’s Inaugural Lineup**\
-`Representative Alexandria Ocasio-Cortez will deliver opening remarks and Senator Bernie Sanders of Vermont will administer the oath of office.`\
-https://nytimes.com/2026/01/01/nyregion/mamdani-inauguration-dj-moma.html
 
