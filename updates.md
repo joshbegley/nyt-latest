@@ -1,3 +1,7 @@
+**Mamdani’s Parents ‘Look Forward to a Joyous Time’**\
+`Mahmood Mamdani and Mira Nair will host an intimate dinner after the festivities following their son’s swearing in ceremony.`\
+https://nytimes.com/2026/01/01/nyregion/mira-nair-mahmood-mamdani-parents.html
+
 **Astros, Tatsuya Imai agree to 3-year contract: Source**\
 `Imai's deal maxes out at $63 million and contains opt-outs after every season.`\
 https://nytimes.com/athletic/6934001/2026/01/01/tatsuya-imai-astros-deal-mlb-free-agency/

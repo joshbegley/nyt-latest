@@ -1,3 +1,7 @@
+**Mamdani’s Parents ‘Look Forward to a Joyous Time’**\
+`Mahmood Mamdani and Mira Nair will host an intimate dinner after the festivities following their son’s swearing in ceremony.`\
+https://nytimes.com/2026/01/01/nyregion/mira-nair-mahmood-mamdani-parents.html
+
 **Astros, Tatsuya Imai agree to 3-year contract: Source**\
 `Imai's deal maxes out at $63 million and contains opt-outs after every season.`\
 https://nytimes.com/athletic/6934001/2026/01/01/tatsuya-imai-astros-deal-mlb-free-agency/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6933895/2026/01/01/jets-vs-maple-leafs-stream-how-t
 **How to watch Heat vs. Pistons: Time, TV, streaming**\
 `Find out how to watch the Miami Heat play the Detroit Pistons, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6933893/2026/01/01/heat-vs-pistons-stream-how-to-watch-jan-1/
-
-**How to watch Rockets vs. Nets: Time, TV, streaming**\
-`Find out how to watch the Houston Rockets play the Brooklyn Nets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6933889/2026/01/01/rockets-vs-nets-stream-how-to-watch-jan-1/
 
