@@ -1,8 +1,12 @@
+**‘This is our time’: The poet Cornelius Eady will read an original work at the inauguration.**\
+`By Jeffery C. Mays`\
+https://nytimes.com/live/2026/01/01/nyregion/zohran-mamdani-inauguration-nyc-mayor/this-is-our-time-the-poet-cornelius-eady-will-read-an-original-work-at-the-inauguration
+
 **Ten predictions for 2026 for Nebraska college football, basketball, softball and more**\
 `After a 44-22 loss to Utah in the Las Vegas Bowl on New Year's Eve, the turn of the calendar brings Nebraska a fresh start.`\
 https://nytimes.com/athletic/6933591/2026/01/01/nebraska-football-basketball-softball-predictions-2026/
 
-**Is Giants finale last we'll see of Wan'Dale Robinson, two more key free agents in NY?**\
+**Is Giants finale last we'll see of Wan'Dale Robinson, two more key free agents in N.Y.?**\
 `The Giants have let some quality homegrown players leave in free agency in the past. Will they do it again?`\
 https://nytimes.com/athletic/6932531/2026/01/01/ny-giants-free-agents-wandale-robinson-jermaine-eluemunor-cordale-flott/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6933631/2026/01/01/nebraska-vs-iowa-stream-how-to-w
 **How to watch Alabama vs. South Carolina women's basketball: Time, TV, streaming**\
 `Find out how to watch the Alabama Crimson Tide play the South Carolina Gamecocks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6933624/2026/01/01/alabama-vs-south-carolina-stream-how-to-watch-jan-1/
-
-**How to watch Maryland vs. Illinois women's basketball: Time, TV, streaming**\
-`Find out how to watch the Maryland Terrapins play the Illinois Fighting Illini, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6933618/2026/01/01/maryland-vs-illinois-stream-how-to-watch-jan-1/
 
