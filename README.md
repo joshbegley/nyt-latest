@@ -1,5 +1,25 @@
-**Fire at Swiss Ski Resort Bar Kills Dozens, Officials Say**\
-`Dozens of people were killed and more than 100 were injured after a fire broke out in a bar at a Swiss ski resort during a New Year’s Eve celebration, the police said.`\
+**Jordan Love clears concussion protocol; GB starting third-stringer Tune vs. MIN**\
+`The Packers have already secured the No. 7 seed in the playoffs and don't plan to play Love unless injuries make it necessary.`\
+https://nytimes.com/athletic/6934039/2026/01/01/jordan-love-concussion-packers-vikings/
+
+**A Vegetarian Cooking Resolution Starter Pack**\
+`This simple and reliable collection of vegetarian staples — beans, pasta, tofu, salads and soups — will help you cook confidently all year long.`\
+https://nytimes.com/2026/01/01/dining/a-vegetarian-cooking-resolution-starter-pack.html
+
+**A DJ, a Poet and Politicians Make Up Mamdani’s Inaugural Lineup**\
+`Representative Alexandria Ocasio-Cortez will deliver opening remarks and Senator Bernie Sanders of Vermont will administer the oath of office.`\
+https://nytimes.com/2026/01/01/nyregion/mamdani-inauguration-dj-moma.html
+
+**Trump Has Renamed the Kennedy Center, but a Satirist Owns the URL**\
+`A comedy writer bought the web domain TrumpKennedyCenter.org and the satirical site he created is drawing attention amid the backlash over the institution’s renaming.`\
+https://nytimes.com/2026/01/01/us/politics/trump-kennedy-center-website-toby-morton.html
+
+**Big 12 commish: 'Everything's on the table' in CFP's examination of bowls vs. home games**\
+`The CFP management committee is facing a Jan. 23 deadline to inform ESPN of the format for next season.`\
+https://nytimes.com/athletic/6933989/2026/01/01/at-less-than-full-orange-bowl-big-12-commissioner-weighs-in-on-adding-more-cfp-home-games/
+
+**Fire at Bar in Swiss Ski Resort Town Kills Dozens, Officials Say**\
+`Dozens of people were killed and more than 100 were injured after a fire broke out at a bar in a Swiss ski resort town during a New Year’s Eve celebration, the police said.`\
 https://nytimes.com/video/world/europe/100000010618958/switzerland-ski-bar-fire.html
 
 **Mamdani’s Parents ‘Look Forward to a Joyous Time’**\
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6933994/2026/01/01/ola-aina-nottingham-forest-retur
 **Philip Rivers says he’s done playing, will return to high school coaching next fall**\
 `Rivers plans to return to his high school head coaching duties after a "fun three-week blur" with the Colts.`\
 https://nytimes.com/athletic/6933898/2026/01/01/philip-rivers-retire-again-colts-chargers/
-
-**Guinea’s Coup Leader Wins Election After Barring Leading Opponents**\
-`Col. Mamady Doumbouya, who seized power more than four years ago, took over 80 percent of the vote, according to a government-controlled agency that he set up.`\
-https://nytimes.com/2026/01/01/world/africa/guinea-election-mamady-doumbouya.html
-
-**Inside Caitlin Clark’s journey to her first signature Nike sneaker**\
-`Caitlin Clark shared insight into her upcoming Nike signature shoe, the technology behind it and her long-term Olympic goals.`\
-https://nytimes.com/athletic/6933797/2026/01/01/caitlin-clark-nike-shoe-sneakers-indiana-fever/
-
-**Mamdani’s home borough of Queens is having its moment in the spotlight.**\
-`By Jeffery C. Mays`\
-https://nytimes.com/live/2026/01/01/nyregion/zohran-mamdani-inauguration-nyc-mayor/mamdanis-home-borough-of-queens-is-having-its-moment-in-the-spotlight
-
-**His name is pronounced zuh-RON mom-DAH-nee. Not everyone gets it.**\
-`By Emma G. Fitzsimmons, Benjamin Oreskes and Andy Newman`\
-https://nytimes.com/live/2026/01/01/nyregion/zohran-mamdani-inauguration-nyc-mayor/his-name-is-pronounced-zuh-ron-mom-dah-nee-not-everyone-gets-it
-
-**How to watch Jets vs. Maple Leafs: Time, TV, streaming**\
-`Find out how to watch the Winnipeg Jets play the Toronto Maple Leafs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6933895/2026/01/01/jets-vs-maple-leafs-stream-how-to-watch-jan-1/
 

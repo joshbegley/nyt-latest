@@ -1,3 +1,15 @@
+**Fire at Swiss Ski Resort Bar Kills Dozens, Officials Say**\
+`Dozens of people were killed and more than 100 were injured after a fire broke out in a bar at a Swiss ski resort during a New Year’s Eve celebration, the police said.`\
+https://nytimes.com/video/world/europe/100000010618958/switzerland-ski-bar-fire.html
+
+**His name is pronounced zuh-RON mom-DAH-nee. Not everyone gets it.**\
+`By Emma G. Fitzsimmons, Benjamin Oreskes and Andy Newman`\
+https://nytimes.com/live/2026/01/01/nyregion/zohran-mamdani-inauguration-nyc-mayor/his-name-is-pronounced-zuh-ron-mom-dah-nee-not-everyone-gets-it
+
+**How to watch Jets vs. Maple Leafs: Time, TV, streaming**\
+`Find out how to watch the Winnipeg Jets play the Toronto Maple Leafs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6933895/2026/01/01/jets-vs-maple-leafs-stream-how-to-watch-jan-1/
+
 **Trump Has Renamed the Kennedy Center, but a Satirist Owns the URL**\
 `A comedy writer bought the web domain TrumpKennedyCenter.org and the satirical site he created is drawing attention amid the backlash over the institution’s renaming.`\
 https://nytimes.com/2026/01/01/us/politics/trump-kennedy-center-website-toby-morton.html
