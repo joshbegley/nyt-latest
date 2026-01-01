@@ -1,3 +1,7 @@
+**Final game with the Lions? Analyzing 8 players and their futures in Detroit**\
+`Will Taylor Decker play another season? Is this the end for Alex Anzalone? Are the Lions moving on from David Montgomery?`\
+https://nytimes.com/athletic/6932586/2026/01/01/detroit-lions-free-agency/
+
 **Fiorentina agree loan deal for Spurs winger Manor Solomon**\
 `The deal will include the option for Fiorentina to make the move permanent.`\
 https://nytimes.com/athletic/6932371/2026/01/01/tottenham-manor-solomon-loan-fiorentina-transfer/

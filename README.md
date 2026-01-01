@@ -1,3 +1,11 @@
+**What's Trending in the NFL: What we got right — and wrong — in weird 2025 season**\
+`The Bills will be dangerous in the playoffs, but they could've been an even bigger threat had they addressed their needs at pass catcher.`\
+https://nytimes.com/athletic/6932470/2026/01/01/nfl-predictions-2025-season-2026/
+
+**Michigan showed up when it could've folded. But the Whittingham era can't begin soon enough**\
+`Whittingham had to be encouraged by much of what he saw on the field from Michigan vs. Texas. Other parts probably made him grind his teeth.`\
+https://nytimes.com/athletic/6933120/2026/01/01/michigan-texas-bryce-underwood-kyle-whittingham/
+
 **Final game with the Lions? Analyzing 8 players and their futures in Detroit**\
 `Will Taylor Decker play another season? Is this the end for Alex Anzalone? Are the Lions moving on from David Montgomery?`\
 https://nytimes.com/athletic/6932586/2026/01/01/detroit-lions-free-agency/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6933109/2026/01/01/blue-jackets-devils-score-result
 **Why Team Canada's Braeden Cootes could be a 'coach's security blanket' for Canucks**\
 `Cootes has had a whirlwind few months that included gold at U18s, the draft and his NHL debut.`\
 https://nytimes.com/athletic/6921519/2026/01/01/braeden-cootes-canucks-canada-world-juniors/
-
-**This Miami team can win it all, and yes, Mario Cristobal is why**\
-`Miami is tough and physical, in the mold of Cristobal. But in the moment they needed something else, Cristobal pushed the right button.`\
-https://nytimes.com/athletic/6933291/2026/01/01/miami-ohio-state-win-mario-cristobal-college-football-playoff/
-
-**Magic Johnson is ringing in 2026 as Rose Parade grand marshal. Here's what to know**\
-`A Lakers legend mints a New Year's tradition from Pasadena, becoming the most recent athlete to serve as Rose Parade grand marshal. `\
-https://nytimes.com/athletic/6928304/2026/01/01/magic-johnson-rose-parade-grand-marshal-history/
 
