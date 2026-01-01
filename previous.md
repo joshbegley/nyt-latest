@@ -1,3 +1,7 @@
+**How to watch Georgia vs. Ole Miss women's basketball: Time, TV, streaming**\
+`Find out how to watch the Georgia Lady Bulldogs play the Ole Miss Rebels, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6933589/2026/01/01/georgia-vs-ole-miss-stream-how-to-watch-jan-1/
+
 **Broncos' win vs. Chiefs reminder of Bo Nix's impact as a runner. Will it grow in playoffs?**\
 `Nix has rushed less than he did as a rookie, but the playmaking ability with his legs could be a wild card for the Broncos in the playoffs.`\
 https://nytimes.com/athletic/6932286/2026/01/01/bo-nix-broncos-running-playoffs/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/01/world/middleeast/uae-saudi-arabia-yemen.html
 **The Pulse: A Playoff stunner**\
 `The Athletic has live coverage of Bears vs.`\
 https://nytimes.com/athletic/6931078/2026/01/01/miami-ohio-state-playoff-the-pulse/
-
-**A Monumental Church in Amsterdam Is Ravaged by Flames on New Year’s Day**\
-`Local residents were evacuated after a fire broke out at the Vondelkerk shortly after midnight. The cause of the blaze has not yet been confirmed.`\
-https://nytimes.com/2026/01/01/world/europe/amsterdam-fire-church-new-years.html
 

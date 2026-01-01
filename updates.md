@@ -1,3 +1,7 @@
+**How to watch Georgia vs. Ole Miss women's basketball: Time, TV, streaming**\
+`Find out how to watch the Georgia Lady Bulldogs play the Ole Miss Rebels, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6933589/2026/01/01/georgia-vs-ole-miss-stream-how-to-watch-jan-1/
+
 **Live Updates: New York Readies Gala Inauguration of Mayor Zohran Mamdani**\
 `Mr. Mamdani, the city’s first Muslim and South Asian mayor and its youngest in more than a century, was sworn in at midnight. He will take part in a public ceremony in the early afternoon.`\
 https://nytimes.com/live/2026/01/01/nyregion/zohran-mamdani-inauguration-nyc-mayor

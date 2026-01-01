@@ -1,3 +1,15 @@
+**How to watch Florida vs. Tennessee women's basketball: Time, TV, streaming**\
+`Find out how to watch the Florida Gators play the Tennessee Lady Volunteers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6933606/2026/01/01/florida-vs-tennessee-stream-how-to-watch-jan-1/
+
+**How to watch Vanderbilt vs. Arkansas women's basketball: Time, TV, streaming**\
+`Find out how to watch the Vanderbilt Commodores play the Arkansas Razorbacks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6933600/2026/01/01/vanderbilt-vs-arkansas-stream-how-to-watch-jan-1/
+
+**How to watch Notre Dame vs. Georgia Tech women's basketball: Time, TV, streaming**\
+`Find out how to watch the Notre Dame Fighting Irish play the Georgia Tech Yellow Jackets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6933595/2026/01/01/notre-dame-vs-georgia-tech-stream-how-to-watch-jan-1/
+
 **How to watch Georgia vs. Ole Miss women's basketball: Time, TV, streaming**\
 `Find out how to watch the Georgia Lady Bulldogs play the Ole Miss Rebels, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6933589/2026/01/01/georgia-vs-ole-miss-stream-how-to-watch-jan-1/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/01/01/nyregion/mamdanis-rise-was-swift-now-he-faces-dau
 **Here’s the latest.**\
 `By Andy Newman`\
 https://nytimes.com/live/2026/01/01/nyregion/zohran-mamdani-inauguration-nyc-mayor/mamdani-inauguration-updates
-
-**Live Updates: New York Readies Gala Inauguration of Mayor Zohran Mamdani**\
-`Mr. Mamdani, the city’s first Muslim and South Asian mayor and its youngest in more than a century, was sworn in at midnight. He will take part in a public ceremony in the early afternoon.`\
-https://nytimes.com/live/2026/01/01/nyregion/zohran-mamdani-inauguration-nyc-mayor
-
-**How Two Powerful U.S. Allies Came to Blows in Yemen**\
-`Tensions between Saudi Arabia and the United Arab Emirates burst into the open this week with an unusually direct confrontation that has global implications.`\
-https://nytimes.com/2026/01/01/world/middleeast/uae-saudi-arabia-yemen.html
-
-**The Pulse: A Playoff stunner**\
-`The Athletic has live coverage of Bears vs.`\
-https://nytimes.com/athletic/6931078/2026/01/01/miami-ohio-state-playoff-the-pulse/
 
