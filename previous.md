@@ -1,3 +1,7 @@
+**What’s in Our Queue? Maggie Rogers and More**\
+`Text by Vanessa Friedman`\
+https://nytimes.com/card/2026/01/01/arts/editors-recommendations-maggierogers
+
 **Crans-Montana Bar Fire Victims Transported Across Switzerland for Treatment**\
 `Patients were taken by helicopter and jet to bigger, specialized hospitals in Geneva, Zurich and Lausanne.`\
 https://nytimes.com/2026/01/01/world/europe/crans-montana-switzerland-fire-victims-treatment.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6932363/2026/01/01/49ers-playoffs-matchups-super-bo
 **Three Seahawks who could swing the monumental rematch with the 49ers**\
 `Sam Darnold, Nick Emmanwori and Riq Woolen might want to forget Week 1's loss to the Niners. Saturday is their shot at redemption.`\
 https://nytimes.com/athletic/6932756/2026/01/01/seahawks-49ers-rematch-preview/
-
-**Napheesa Collier to miss Unrivaled season and possible WNBA start after ankle surgeries**\
-`The Lynx star is expected to need four to six months of recovery after next week's surgery. `\
-https://nytimes.com/athletic/6932746/2026/01/01/napheesa-collier-ankle-injury-lynx-unrivaled/
 

@@ -1,3 +1,7 @@
+**What’s in Our Queue? Maggie Rogers and More**\
+`Text by Vanessa Friedman`\
+https://nytimes.com/card/2026/01/01/arts/editors-recommendations-maggierogers
+
 **Crans-Montana Bar Fire Victims Transported Across Switzerland for Treatment**\
 `Patients were taken by helicopter and jet to bigger, specialized hospitals in Geneva, Zurich and Lausanne.`\
 https://nytimes.com/2026/01/01/world/europe/crans-montana-switzerland-fire-victims-treatment.html
