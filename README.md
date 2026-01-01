@@ -1,3 +1,7 @@
+**‘Stranger Things’ Has Ended. What Happened in the Series Finale?**\
+`There was a lot to tie up after five seasons and nearly 10 years, and the show gave itself another two hours to do it. Here are the major events.`\
+https://nytimes.com/2026/01/01/arts/television/stranger-things-finale-ending.html
+
 **Take a tour of the Antarctica-bound icebreaker. It has a gym.**\
 `(No description)`\
 https://nytimes.com/live/2025/climate/antarctica-thwaites-glacier/tour-antarctica-icebreaker
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/01/opinion/global-economy-public-private-sectors.htm
 **Holger Rune suffered one of the worst injuries in sports. In pain, he sees opportunity**\
 `Rune is bidding to rehabilitate one of the worst sports injuries as quickly as he can. He is also searching for his tennis identity.`\
 https://nytimes.com/athletic/6894745/2026/01/01/holger-rune-injury-tennis-comeback/
-
-**Solve the January Bonus Puzzle**\
-`This month’s grid game show themed grid was constructed by Rena Cohen.`\
-https://nytimes.com/2026/01/01/crosswords/january-bonus-crossword-puzzle.html
 
