@@ -1,3 +1,7 @@
+**Barcelona in 2026: Are they good enough to win the Champions League?**\
+`Barca fans dream of another European treble, but are Hansi Flick's side really capable of delivering that this year?`\
+https://nytimes.com/athletic/6922943/2026/01/01/barcelona-champions-league-la-liga-real-madrid/
+
 **Ranking the impact made by all 155 Premier League summer signings**\
 `Which players have exceeded expectations and which ones have yet to deliver? We re-assess the summer transfers as the January window opens`\
 https://nytimes.com/athletic/6931856/2026/01/01/premier-league-transfer-rankings/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6933234/2026/01/01/connections-sports-edition-hints
 **Corrections: Jan. 1, 2026**\
 `Corrections that appeared in print on Thursday, Jan. 1, 2026.`\
 https://nytimes.com/2026/01/01/pageoneplus/corrections-jan-1-2026.html
-
-**Winter transfer window opens: When it closes, registration rules and summer dates**\
-`The Athletic has all you need to know about the winter transfer window, which opened today.`\
-https://nytimes.com/athletic/6928960/2025/12/31/january-transfer-window-when-rules/
 

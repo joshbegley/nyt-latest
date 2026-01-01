@@ -1,3 +1,7 @@
+**Barcelona in 2026: Are they good enough to win the Champions League?**\
+`Barca fans dream of another European treble, but are Hansi Flick's side really capable of delivering that this year?`\
+https://nytimes.com/athletic/6922943/2026/01/01/barcelona-champions-league-la-liga-real-madrid/
+
 **Ranking the impact made by all 155 Premier League summer signings**\
 `Which players have exceeded expectations and which ones have yet to deliver? We re-assess the summer transfers as the January window opens`\
 https://nytimes.com/athletic/6931856/2026/01/01/premier-league-transfer-rankings/
