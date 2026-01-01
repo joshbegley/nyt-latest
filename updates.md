@@ -1,3 +1,11 @@
+**How to watch Michigan State vs. Indiana women's basketball: Time, TV, streaming**\
+`Find out how to watch the Michigan State Spartans play the Indiana Hoosiers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6933435/2026/01/01/michigan-state-vs-indiana-stream-how-to-watch-jan-1/
+
+**How to watch Cal vs. North Carolina women's basketball: Time, TV, streaming**\
+`Find out how to watch the California Golden Bears play the North Carolina Tar Heels, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6933423/2026/01/01/cal-vs-north-carolina-stream-how-to-watch-jan-1/
+
 **‘Stranger Things’ Has Ended. What Happened in the Series Finale?**\
 `There was a lot to tie up after five seasons and nearly 10 years, and the show gave itself another two hours to do it. Here are the major events.`\
 https://nytimes.com/2026/01/01/arts/television/stranger-things-finale-ending.html
