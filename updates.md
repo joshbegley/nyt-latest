@@ -1,3 +1,11 @@
+**The Countdown Begins: New York City Awaits Mayor Mamdani**\
+`Zohran Mamdani will be sworn in shortly after the New Year’s Eve ball drops, in a private ceremony held at a shuttered relic of the city’s subway.`\
+https://nytimes.com/2025/12/31/nyregion/mamdani-mayor-swearing-in.html
+
+**Test Graders’ Aids**\
+`Topher Booth makes his New York Times Crossword debut.`\
+https://nytimes.com/2025/12/31/crosswords/daily-column-2026-01-01.html
+
 **Nickeil Alexander-Walker is boosting Hawks and making Wolves miss him**\
 `In a world full of inflated egos and forced braggadocio, Alexander-Walker is All-NBA First Team when it comes to introspection.`\
 https://nytimes.com/athletic/6932468/2025/12/31/nickeil-alexander-walker-hawks-timberwolves-nba/

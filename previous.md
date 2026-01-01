@@ -1,3 +1,11 @@
+**The Countdown Begins: New York City Awaits Mayor Mamdani**\
+`Zohran Mamdani will be sworn in shortly after the New Year’s Eve ball drops, in a private ceremony held at a shuttered relic of the city’s subway.`\
+https://nytimes.com/2025/12/31/nyregion/mamdani-mayor-swearing-in.html
+
+**Test Graders’ Aids**\
+`Topher Booth makes his New York Times Crossword debut.`\
+https://nytimes.com/2025/12/31/crosswords/daily-column-2026-01-01.html
+
 **After being named to Canada's Olympic team, Macklin Celebrini burns Wild again: Takeaways**\
 `The young star and the Sharks completed a 3-0 season series sweep of Minnesota on Wednesday afternoon with a 4-3 shootout win.`\
 https://nytimes.com/athletic/6932612/2025/12/31/wild-macklin-celebrini-canada-olympic-sharks/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6932757/2025/12/31/steph-curry-highway-exit-davidso
 **Historic Snowstorm Blankets Syracuse Just in Time for the New Year**\
 `Syracuse, N.Y., has received nearly twice its usual monthly amount of snow in December.`\
 https://nytimes.com/2025/12/31/nyregion/syracuse-record-snow.html
-
-**Devon Dampier powers Utah to win over Nebraska in Las Vegas Bowl**\
-`Dampier set a Las Vegas Bowl record with 458 total yards.`\
-https://nytimes.com/athletic/6932742/2025/12/31/devon-dampier-powers-utah-to-win-over-nebraska-in-las-vegas-bowl/
-
-**Oil Tanker Fleeing the Coast Guard Now Listed in Russian Ship Database**\
-`The listing could make it more challenging for U.S. forces to board the ship, which an arm of the Kremlin’s maritime authority says is now flying the Russian flag.`\
-https://nytimes.com/2025/12/31/us/politics/russia-oil-tanker-venezuela.html
 

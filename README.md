@@ -1,3 +1,7 @@
+**Victor Wembanyama leaves Spurs' win over Knicks with leg injury**\
+`The Spurs' star went up to grab a rebound and came down holding his knee. He was able to walk off under his own power.`\
+https://nytimes.com/athletic/6933060/2025/12/31/victor-wembanyama-spurs-leg-injury-nba/
+
 **The Countdown Begins: New York City Awaits Mayor Mamdani**\
 `Zohran Mamdani will be sworn in shortly after the New Year’s Eve ball drops, in a private ceremony held at a shuttered relic of the city’s subway.`\
 https://nytimes.com/2025/12/31/nyregion/mamdani-mayor-swearing-in.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6932748/2025/12/31/arch-manning-citrus-bowl-texas-m
 **Davidson names highway exit in honor of Stephen Curry as school legacy grows**\
 `Before Curry became a two-time NBA MVP with four championships and a finals MVP to his name, he dazzled the college landscape.`\
 https://nytimes.com/athletic/6932757/2025/12/31/steph-curry-highway-exit-davidson/
-
-**Historic Snowstorm Blankets Syracuse Just in Time for the New Year**\
-`Syracuse, N.Y., has received nearly twice its usual monthly amount of snow in December.`\
-https://nytimes.com/2025/12/31/nyregion/syracuse-record-snow.html
 
