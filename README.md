@@ -1,3 +1,19 @@
+**Quote of the Day: Keys to City of New York Hop Hudson to Honorees**\
+`Quotation of the Day for Thursday, January 1, 2026.`\
+https://nytimes.com/2026/01/01/pageoneplus/quote-of-the-day-keys-to-city-of-new-york-hop-hudson-to-honorees.html
+
+**How Japanese Scallops Became a Pawn in Diplomatic Tensions With China**\
+`Beijing is using a ban on the humble mollusk to punish Japan over its apparent willingness to defend Taiwan.`\
+https://nytimes.com/2026/01/01/business/japan-china-scallops.html
+
+**Connections: Sports Edition Coach: Hints for Jan. 1, 2026**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6933234/2026/01/01/connections-sports-edition-hints-for-jan-1-2026/
+
+**Corrections: Jan. 1, 2026**\
+`Corrections that appeared in print on Thursday, Jan. 1, 2026.`\
+https://nytimes.com/2026/01/01/pageoneplus/corrections-jan-1-2026.html
+
 **Winter transfer window opens: When it closes, registration rules and summer dates**\
 `The Athletic has all you need to know about the winter transfer window, which opened today.`\
 https://nytimes.com/athletic/6928960/2025/12/31/january-transfer-window-when-rules/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6933033/2025/12/31/miami-ohio-state-score-result-co
 **College Football Playoff 2025 bracket projections: Who will advance to the semifinals?**\
 `Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
 https://nytimes.com/athletic/6560541/2025/12/31/college-football-playoff-bracket-projections-odds/
-
-**Victor Wembanyama leaves Spurs' win over Knicks with leg injury**\
-`The Spurs' star went up to grab a rebound and came down holding his knee. He was able to walk off under his own power.`\
-https://nytimes.com/athletic/6933060/2025/12/31/victor-wembanyama-spurs-leg-injury-nba/
-
-**The Countdown Begins: New York City Awaits Mayor Mamdani**\
-`Zohran Mamdani will be sworn in shortly after the New Year’s Eve ball drops, in a private ceremony held at a shuttered relic of the city’s subway.`\
-https://nytimes.com/2025/12/31/nyregion/mamdani-mayor-swearing-in.html
-
-**Test Graders’ Aids**\
-`Topher Booth makes his New York Times Crossword debut.`\
-https://nytimes.com/2025/12/31/crosswords/daily-puzzle-2026-01-01.html
-
-**After being named to Canada's Olympic team, Macklin Celebrini burns Wild again: Takeaways**\
-`The young star and the Sharks completed a 3-0 season series sweep of Minnesota on Wednesday afternoon with a 4-3 shootout win.`\
-https://nytimes.com/athletic/6932612/2025/12/31/wild-macklin-celebrini-canada-olympic-sharks/
 
