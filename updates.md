@@ -1,3 +1,15 @@
+**Art Gallery Shows to See in January**\
+`This week in Newly Reviewed, Will Heinrich covers Jana Euler’s delightful absurdity, Lotty Rosenfeld’s portraits of the Pinochet dictatorship and Erich Heckel’s eerie dream world.`\
+https://nytimes.com/2026/01/01/arts/art-gallery-shows-to-see-in-january.html
+
+**‘Little Black Boy, You Were Worth it,’ Jumaane Williams Tells His Past Self**\
+`After being sworn in as New York City’s public advocate, Jumaane Williams, the son of immigrants, spoke on the challenges faced by immigrant New Yorkers and the systems of power that cause inequality.`\
+https://nytimes.com/video/nyregion/100000010619515/jumaane-williams-speech.html
+
+**Switzerland’s burn centers are so overwhelmed that fire victims are being sent to other countries.**\
+`By Nick Cumming-Bruce`\
+https://nytimes.com/live/2026/01/01/world/switzerland-ski-resort-fire/switzerlands-burn-centers-are-so-overwhelmed-that-fire-victims-are-being-sent-to-other-countries
+
 **‘You Are Worth It’: Jumaane Williams Delivers Powerful Inauguration Speech**\
 `Mr. Williams, New York City’s public advocate, teared up as he addressed a portion of his remarks to his younger self, captivating the crowd.`\
 https://nytimes.com/2026/01/01/nyregion/jumaane-williams-inauguration-speech.html

@@ -1,3 +1,7 @@
+**Richards could miss three more matches with foot injury - Glasner**\
+`The USMNT international has been absent since injuring his foot in the Carabao Cup quarter-final defeat by Arsenal.`\
+https://nytimes.com/athletic/6934373/2026/01/01/chris-richards-injury-palace-glasner-usmnt/
+
 **Art Gallery Shows to See in January**\
 `This week in Newly Reviewed, Will Heinrich covers Jana Euler’s delightful absurdity, Lotty Rosenfeld’s portraits of the Pinochet dictatorship and Erich Heckel’s eerie dream world.`\
 https://nytimes.com/2026/01/01/arts/art-gallery-shows-to-see-in-january.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/01/world/europe/switzerland-fire-crans-montana-ski-r
 **Rams sign safety Quentin Lake to 3-year extension upon return from injury**\
 `The new deal comes on the day of Lake's expected return to practice after a six-week trip to injured reserve to repair a dislocated elbow.`\
 https://nytimes.com/athletic/6934291/2026/01/01/rams-quentin-lake-extension-analysis/
-
-**College Football Playoff 2025 projections: Indiana is now the national title favorite**\
-`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
-https://nytimes.com/athletic/6560541/2026/01/01/college-football-playoff-bracket-projections-odds/
 
