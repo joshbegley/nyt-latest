@@ -1,3 +1,7 @@
+**How to Watch Zohran Mamdani’s Inauguration**\
+`The new mayor was officially sworn in just after midnight on Thursday. A second public event will take place this afternoon.`\
+https://nytimes.com/2026/01/01/nyregion/how-to-watch-zohran-mamdanis-inauguration.html
+
 **For a Youthful Mayor, a Team of Government Veterans**\
 `Zohran Mamdani has stocked his administration with seasoned officials, in part to allay concerns about his inexperience and left-wing stances.`\
 https://nytimes.com/2026/01/01/nyregion/mamdani-administration-appointments.html
