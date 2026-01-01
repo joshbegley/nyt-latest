@@ -1,5 +1,5 @@
 **Mamdani Names Transit Chief Whose Mandate Is to Improve Bus Service**\
-`As commissioner of the department of transportation, Michael Flynn will seek to implement one of the new mayor’s  central campaign planks.`\
+`As commissioner of the department of transportation, Michael Flynn will seek to implement one of the new mayor’s central campaign planks.`\
 https://nytimes.com/2026/01/01/nyregion/mamdani-transportation-commissioner-mike-flynn.html
 
 **'We deserved to lose': Wizards pull off shocking road win over Bucks**\
