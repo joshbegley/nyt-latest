@@ -1,3 +1,7 @@
+**Fire at Swiss Ski Resort Bar Kills Dozens, Officials Say**\
+`Dozens of people were killed and more than 100 were injured after a fire broke out in a bar at a Swiss ski resort during a New Year’s Eve celebration, the police said.`\
+https://nytimes.com/video/world/europe/100000010618958/switzerland-ski-bar-fire.html
+
 **Mamdani’s Parents ‘Look Forward to a Joyous Time’**\
 `Mahmood Mamdani and Mira Nair will host an intimate dinner after the festivities following their son’s swearing in ceremony.`\
 https://nytimes.com/2026/01/01/nyregion/mira-nair-mahmood-mamdani-parents.html

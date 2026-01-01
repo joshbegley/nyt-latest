@@ -1,3 +1,7 @@
+**Big 12 commish: 'Everything's on the table' in CFP's examination of bowls vs. home games**\
+`The CFP management committee is facing a Jan. 23 deadline to inform ESPN of the format for next season.`\
+https://nytimes.com/athletic/6933989/2026/01/01/at-less-than-full-orange-bowl-big-12-commissioner-weighs-in-on-adding-more-cfp-home-games/
+
 **Fire at Swiss Ski Resort Bar Kills Dozens, Officials Say**\
 `Dozens of people were killed and more than 100 were injured after a fire broke out in a bar at a Swiss ski resort during a New Year’s Eve celebration, the police said.`\
 https://nytimes.com/video/world/europe/100000010618958/switzerland-ski-bar-fire.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/01/01/nyregion/zohran-mamdani-inauguration-nyc-may
 **His name is pronounced zuh-RON mom-DAH-nee. Not everyone gets it.**\
 `By Emma G. Fitzsimmons, Benjamin Oreskes and Andy Newman`\
 https://nytimes.com/live/2026/01/01/nyregion/zohran-mamdani-inauguration-nyc-mayor/his-name-is-pronounced-zuh-ron-mom-dah-nee-not-everyone-gets-it
-
-**How to watch Jets vs. Maple Leafs: Time, TV, streaming**\
-`Find out how to watch the Winnipeg Jets play the Toronto Maple Leafs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6933895/2026/01/01/jets-vs-maple-leafs-stream-how-to-watch-jan-1/
 
