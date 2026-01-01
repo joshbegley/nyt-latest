@@ -1,3 +1,7 @@
+**A Deadly Blaze in Switzerland**\
+`Plus, tips from our readers on how to stay informed without feeling overwhelmed in 2026.`\
+https://nytimes.com/2026/01/01/world/switzerland-fire-mamdani-newyork-reader-tips.html
+
 **Green Soups for Gray Days**\
 `By Luke Fortney`\
 https://nytimes.com/2026/01/01/dining/green-soups-for-gray-days.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6934284/2026/01/01/76ers-vs-mavericks-stream-how-to
 **Oregon locks down Texas Tech in Orange Bowl for third shutout in CFP history**\
 `The Ducks are now as close to a national title as they have been since reaching the championship game of the first four-team CFP.`\
 https://nytimes.com/athletic/6933890/2026/01/01/oregon-texas-tech-score-orange-bowl-cfp/
-
-**How to watch Predators vs. Kraken: Time, TV, streaming**\
-`Find out how to watch the Nashville Predators play the Seattle Kraken, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6934281/2026/01/01/predators-vs-kraken-stream-how-to-watch-jan-1/
 
