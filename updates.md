@@ -1,3 +1,23 @@
+**Meet my NBA All-Disappointment Team: Paolo, Draymond and a host of point guards**\
+`As 2026 begins, these players have done the most to fall short of our hopes and expectations, however misplaced they might have been.`\
+https://nytimes.com/athletic/6930954/2026/01/01/nba-season-2025-2026-disappointments/
+
+**So much sports: Why 2026 will be a sports year unlike any other**\
+`Catch your breath while you still can because 2026 will be defined by an overflowing global sports calendar. `\
+https://nytimes.com/athletic/6928025/2026/01/01/sports-2026-year-world-cup-olympics/
+
+**Where does college football's most famous game fit in the sport's future?**\
+`The Rose Bowl's iconic sunset doubles as a metaphor for its unsettled outlook in college football’s ever-changing landscape.`\
+https://nytimes.com/athletic/6932094/2026/01/01/rose-bowl-history-future-indiana-alabama/
+
+**The New York Times International Edition in Print for Friday, Jan. 2, 2026**\
+``\
+https://nytimes.com/issue/todaysinyt/2026/01/01/todays-new-york-times-international-edition
+
+**How to watch Capitals vs. Senators: Time, TV, streaming**\
+`Find out how to watch the Washington Capitals play the Ottawa Senators, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6933451/2026/01/01/capitals-vs-senators-stream-how-to-watch-jan-1/
+
 **How to watch Michigan State vs. Indiana women's basketball: Time, TV, streaming**\
 `Find out how to watch the Michigan State Spartans play the Indiana Hoosiers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6933435/2026/01/01/michigan-state-vs-indiana-stream-how-to-watch-jan-1/

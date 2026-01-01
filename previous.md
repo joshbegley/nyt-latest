@@ -1,3 +1,23 @@
+**Meet my NBA All-Disappointment Team: Paolo, Draymond and a host of point guards**\
+`As 2026 begins, these players have done the most to fall short of our hopes and expectations, however misplaced they might have been.`\
+https://nytimes.com/athletic/6930954/2026/01/01/nba-season-2025-2026-disappointments/
+
+**So much sports: Why 2026 will be a sports year unlike any other**\
+`Catch your breath while you still can because 2026 will be defined by an overflowing global sports calendar. `\
+https://nytimes.com/athletic/6928025/2026/01/01/sports-2026-year-world-cup-olympics/
+
+**Where does college football's most famous game fit in the sport's future?**\
+`The Rose Bowl's iconic sunset doubles as a metaphor for its unsettled outlook in college football’s ever-changing landscape.`\
+https://nytimes.com/athletic/6932094/2026/01/01/rose-bowl-history-future-indiana-alabama/
+
+**The New York Times International Edition in Print for Friday, Jan. 2, 2026**\
+``\
+https://nytimes.com/issue/todaysinyt/2026/01/01/todays-new-york-times-international-edition
+
+**How to watch Capitals vs. Senators: Time, TV, streaming**\
+`Find out how to watch the Washington Capitals play the Ottawa Senators, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6933451/2026/01/01/capitals-vs-senators-stream-how-to-watch-jan-1/
+
 **How to watch Michigan State vs. Indiana women's basketball: Time, TV, streaming**\
 `Find out how to watch the Michigan State Spartans play the Indiana Hoosiers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6933435/2026/01/01/michigan-state-vs-indiana-stream-how-to-watch-jan-1/
@@ -17,24 +37,4 @@ https://nytimes.com/live/2025/climate/antarctica-thwaites-glacier/tour-antarctic
 **Life Led Them to Brooklyn, but to Which Two-Bedroom Condo?**\
 `A couple moved up from Asheville, N.C., to be closer to their children and grandchild. On the checklist: a newer building and fun things to do.`\
 https://nytimes.com/interactive/2026/01/01/realestate/brooklyn-condos-park-slope-boerum-hill.html
-
-**Repeat Moviegoers Help Hollywood Eke Out a Slightly Better 2025**\
-`Ticket sales in North America totaled $8.9 billion for the year, up 2 percent from 2024. But the box office remains far below prepandemic levels.`\
-https://nytimes.com/2026/01/01/business/cinema-hollywood-2025-ticket-sales.html
-
-**A Year of Fires and Floods in Southern California**\
-`The floods that struck last week just before the first anniversary of the January wildfires show how extreme weather is defining life in the L.A. region.`\
-https://nytimes.com/2026/01/01/us/los-angeles-fires-floods.html
-
-**He’s Chevy Chase, and He’s Still Like That**\
-`The famously prickly comedian found a sympathetic adversary in the director of a CNN documentary about him. Their conversation with a reporter was … spirited.`\
-https://nytimes.com/2026/01/01/arts/television/hes-chevy-chase-and-hes-still-like-that.html
-
-**8 Books We Love This Week**\
-`Reading recommendations from critics and editors at The New York Times.`\
-https://nytimes.com/2026/01/01/books/review/new-recommended-books.html
-
-**New York to Phase In Protections for Horseshoe Crabs**\
-`Gov. Kathy Hochul signed legislation that will ultimately ban the catch and biomedical use of the crabs.`\
-https://nytimes.com/2026/01/01/science/horseshoe-crab-protections-new-york.html
 
