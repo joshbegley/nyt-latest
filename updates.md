@@ -1,3 +1,7 @@
+**Crans-Montana is a Historic Swiss Ski Resort Popular with International Tourists**\
+`Known for its gourmet food, luxury stores, and for hosting major sporting events, the high-end resort was acquired by Vail Resorts in 2024.`\
+https://nytimes.com/2026/01/01/world/europe/fire-crans-montana.html
+
 **‘This is our time’: The poet Cornelius Eady will read an original work at the inauguration.**\
 `By Jeffery C. Mays`\
 https://nytimes.com/live/2026/01/01/nyregion/zohran-mamdani-inauguration-nyc-mayor/this-is-our-time-the-poet-cornelius-eady-will-read-an-original-work-at-the-inauguration
