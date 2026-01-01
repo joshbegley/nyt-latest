@@ -1,3 +1,7 @@
+**Richards could miss three more matches with foot injury - Glasner**\
+`The USMNT international has been absent since injuring his foot in the Carabao Cup quarter-final defeat by Arsenal.`\
+https://nytimes.com/athletic/6934373/2026/01/01/chris-richards-injury-palace-glasner-usmnt/
+
 **Art Gallery Shows to See in January**\
 `This week in Newly Reviewed, Will Heinrich covers Jana Euler’s delightful absurdity, Lotty Rosenfeld’s portraits of the Pinochet dictatorship and Erich Heckel’s eerie dream world.`\
 https://nytimes.com/2026/01/01/arts/art-gallery-shows-to-see-in-january.html
