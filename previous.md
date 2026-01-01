@@ -1,3 +1,11 @@
+**Anthony Edwards leaves Timberwolves-Hawks early as Hawks win sans Trae Young**\
+`A frustrated Edwards threw a towel up in the air when coach Chris Finch pulled the starters with 7:52 left in the game.`\
+https://nytimes.com/athletic/6932683/2025/12/31/hawks-wolves-anthony-edwards-kristaps-porzingis-trae-young/
+
+**On His Last Day, Adams Drops From View but Still Flexes His Muscle**\
+`Mayor Eric Adams had one public appearance on his schedule, but that didn’t stop him from naming a third charter commission in the last hours of his administration.`\
+https://nytimes.com/2025/12/31/nyregion/eric-adams-last-day.html
+
 **Trump administration moves to take control of D.C.'s municipal golf courses**\
 `National Links Trust, which holds a lease to run three D.C. courses, received a notice of termination from the Department of the Interior.`\
 https://nytimes.com/athletic/6932602/2025/12/31/trump-control-dc-public-golf-courses/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/12/31/us/politics/judge-blocks-deportation-protections.
 **The Best Movies and TV Shows Coming to Netflix in January**\
 `The first month of 2026 includes the latest Harlan Coben adaptation and the return of “Bridgerton.”`\
 https://nytimes.com/2025/12/31/arts/television/netflix-new-january-bridgerton.html
-
-**The Best Tabletop Party Games **\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/the-best-tabletop-party-games-
-
-**Guardiola 'proud' as Man City finish 2025 as best Premier League team**\
-`The head coach said City would not have made the Champions League without their January signings, and welcomed the return of Rodri. `\
-https://nytimes.com/athletic/6931741/2025/12/31/pep-guardiola-manchester-city-best-team-rodri/
 

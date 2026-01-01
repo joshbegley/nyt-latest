@@ -1,3 +1,11 @@
+**Anthony Edwards leaves Timberwolves-Hawks early as Hawks win sans Trae Young**\
+`A frustrated Edwards threw a towel up in the air when coach Chris Finch pulled the starters with 7:52 left in the game.`\
+https://nytimes.com/athletic/6932683/2025/12/31/hawks-wolves-anthony-edwards-kristaps-porzingis-trae-young/
+
+**On His Last Day, Adams Drops From View but Still Flexes His Muscle**\
+`Mayor Eric Adams had one public appearance on his schedule, but that didn’t stop him from naming a third charter commission in the last hours of his administration.`\
+https://nytimes.com/2025/12/31/nyregion/eric-adams-last-day.html
+
 **Trump administration moves to take control of D.C.'s municipal golf courses**\
 `National Links Trust, which holds a lease to run three D.C. courses, received a notice of termination from the Department of the Interior.`\
 https://nytimes.com/athletic/6932602/2025/12/31/trump-control-dc-public-golf-courses/
