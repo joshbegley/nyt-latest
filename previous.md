@@ -1,5 +1,9 @@
+**Usman Khawaja to retire from Test cricket after Sydney swansong**\
+`The 39-year-old was the first Muslim to play for Australia and has scored over 6,000 Test runs over a 15-year international career`\
+https://nytimes.com/athletic/6933514/2026/01/01/usman-khawaja-retire-test-australia-scg/
+
 **Submit your questions for Kevin Kurz's Philadelphia Flyers mailbag**\
-`The Philadelphia Flyers are almost halfway through the NHL season at the start of the new year and sitting third in the Metropolitan Divisio`\
+`The Philadelphia Flyers are almost halfway through the NHL season and sitting third in the Metropolitan Division.`\
 https://nytimes.com/athletic/6934434/2026/01/01/philadelphia-flyers-submit-questions-mailbag/
 
 **With AFC North title on line, Lamar Jackson '100 percent' to face Steelers**\
@@ -33,8 +37,4 @@ https://nytimes.com/video/nyregion/100000010619515/jumaane-williams-speech.html
 **Switzerland’s burn centers are so overwhelmed that fire victims are being sent to other countries.**\
 `By Nick Cumming-Bruce`\
 https://nytimes.com/live/2026/01/01/world/switzerland-ski-resort-fire/switzerlands-burn-centers-are-so-overwhelmed-that-fire-victims-are-being-sent-to-other-countries
-
-**‘You Are Worth It’: Jumaane Williams Delivers Powerful Inauguration Speech**\
-`Mr. Williams, New York City’s public advocate, teared up as he addressed a portion of his remarks to his younger self, captivating the crowd.`\
-https://nytimes.com/2026/01/01/nyregion/jumaane-williams-inauguration-speech.html
 
