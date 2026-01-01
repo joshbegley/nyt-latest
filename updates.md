@@ -1,3 +1,15 @@
+**Submit your questions for Kevin Kurz's Philadelphia Flyers mailbag**\
+`The Philadelphia Flyers are almost halfway through the NHL season at the start of the new year and sitting third in the Metropolitan Divisio`\
+https://nytimes.com/athletic/6934434/2026/01/01/philadelphia-flyers-submit-questions-mailbag/
+
+**With AFC North title on line, Lamar Jackson '100 percent' to face Steelers**\
+`Ravens QB said he feels good enough to face the Steelers in a game the Ravens (8-8) have to win to make the playoffs.`\
+https://nytimes.com/athletic/6934390/2026/01/01/lamar-jackson-ravens-week-18/
+
+**The Briefing: Sunderland 0 Manchester City 0 - The Stadium of Light makes another intervention in Premier League title race**\
+`Analysis of Manchester City's goalless draw with Sunderland — a result that leaves them four points behind Arsenal in the table`\
+https://nytimes.com/athletic/6928467/2026/01/01/sunderland-manchester-city-premier-league-analysis/
+
 **The Briefing: Sunderland 0 Manchester City 0 - The Stadium of Light makes another intervention in Premier League title race**\
 `Analysis of Manchester City's goalless draw with Sunderland - a result that leaves them four points behind Arsenal in the table`\
 https://nytimes.com/athletic/6928467/2026/01/01/sunderland-manchester-city-premier-league-analysis/
