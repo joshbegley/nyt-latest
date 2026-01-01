@@ -1,3 +1,7 @@
+**New Year’s Eve Celebrations Around the World**\
+`Revelers from around the world rang in the New Year with fireworks and light shows.`\
+https://nytimes.com/video/world/asia/100000010617699/nye-celebrations-world.html
+
 **Arch Manning puts on dual-threat show in Texas' Citrus Bowl win over Michigan**\
 `Manning threw for 221 yards and two touchdowns and rushed for 155 yards and two scores in Texas' 41-27 win over Michigan in the Citrus Bowl.`\
 https://nytimes.com/athletic/6932748/2025/12/31/arch-manning-citrus-bowl-texas-michigan/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/31/world/middleeast/aleppo-syria-suicide-bomber-new-
 **Arch Manning bests Bryce Underwood as Texas pulls away in Citrus Bowl: Takeaways**\
 `Texas quarterback Arch Manning capped his late-season surge in style, while it was an up-and-down day for Bryce Underwood.`\
 https://nytimes.com/athletic/6932720/2025/12/31/michigan-texas-citrus-bowl-score-bryce-underwood/
-
-**In Hearing Transcript, Jack Smith Defends Decision to Indict Trump**\
-`The former special counsel accused President Trump of “exploiting” violence on Jan. 6, 2021, according to an interview released by House Republicans.`\
-https://nytimes.com/2025/12/31/us/politics/jack-smith-deposition-house-trump.html
 
