@@ -1,3 +1,7 @@
+**This Diminutive Reptile Plays Rock-Paper-Scissors**\
+`Side-blotched lizards probably don’t call the game that, but they play a version of it anyway. A new study explains the hidden biology that makes this possible.`\
+https://nytimes.com/2026/01/01/science/this-diminutive-reptile-plays-rock-paper-scissors.html
+
 **At one hospital, survivors and desperate friends press for news of the victims.**\
 `By Ségolène Le Stradic`\
 https://nytimes.com/live/2026/01/01/world/switzerland-ski-resort-fire/swiss-fire-survivors-news-hospital-sion
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/01/dining/a-vegetarian-cooking-resolution-starter-pa
 **A DJ, a Poet and Politicians Make Up Mamdani’s Inaugural Lineup**\
 `Representative Alexandria Ocasio-Cortez will deliver opening remarks and Senator Bernie Sanders of Vermont will administer the oath of office.`\
 https://nytimes.com/2026/01/01/nyregion/mamdani-inauguration-dj-moma.html
-
-**Trump Has Renamed the Kennedy Center, but a Satirist Owns the URL**\
-`A comedy writer bought the web domain TrumpKennedyCenter.org and the satirical site he created is drawing attention amid the backlash over the institution’s renaming.`\
-https://nytimes.com/2026/01/01/us/politics/trump-kennedy-center-website-toby-morton.html
 
