@@ -1,3 +1,7 @@
+**Napheesa Collier to miss Unrivaled season and possible WNBA start after ankle surgeries**\
+`The Lynx star is expected to need four to six months of recovery after next week's surgery. `\
+https://nytimes.com/athletic/6932746/2026/01/01/napheesa-collier-ankle-injury-lynx-unrivaled/
+
 **Our favorite 1/1 card stories from 2025: The intrigue behind the rarest cards in the hobby**\
 `Jan. 1 is now 1/1 card day, and to celebrate, we look back on some of the great 1/1 stories we told in 2025.`\
 https://nytimes.com/athletic/6930881/2026/01/01/1-of-1-sports-trading-cards-skenes-clark-daniels/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6933637/2026/01/01/mammoth-vs-islanders-stream-how-
 **How to watch SMU vs. Louisville women's basketball: Time, TV, streaming**\
 `Find out how to watch the SMU Mustangs play the Louisville Cardinals, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6933634/2026/01/01/smu-vs-louisville-stream-how-to-watch-jan-1/
-
-**How to watch Nebraska vs. Iowa women's basketball: Time, TV, streaming**\
-`Find out how to watch the Nebraska Cornhuskers play the Iowa Hawkeyes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6933631/2026/01/01/nebraska-vs-iowa-stream-how-to-watch-jan-1/
 

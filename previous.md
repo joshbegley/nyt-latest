@@ -1,3 +1,7 @@
+**Our favorite 1/1 card stories from 2025: The intrigue behind the rarest cards in the hobby**\
+`Jan. 1 is now 1/1 card day, and to celebrate, we look back on some of the great 1/1 stories we told in 2025.`\
+https://nytimes.com/athletic/6930881/2026/01/01/1-of-1-sports-trading-cards-skenes-clark-daniels/
+
 **‘This is our time’: The poet Cornelius Eady will read an original work at the inauguration.**\
 `By Jeffery C. Mays`\
 https://nytimes.com/live/2026/01/01/nyregion/zohran-mamdani-inauguration-nyc-mayor/this-is-our-time-the-poet-cornelius-eady-will-read-an-original-work-at-the-inauguration
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6933634/2026/01/01/smu-vs-louisville-stream-how-to-
 **How to watch Nebraska vs. Iowa women's basketball: Time, TV, streaming**\
 `Find out how to watch the Nebraska Cornhuskers play the Iowa Hawkeyes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6933631/2026/01/01/nebraska-vs-iowa-stream-how-to-watch-jan-1/
-
-**How to watch Alabama vs. South Carolina women's basketball: Time, TV, streaming**\
-`Find out how to watch the Alabama Crimson Tide play the South Carolina Gamecocks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6933624/2026/01/01/alabama-vs-south-carolina-stream-how-to-watch-jan-1/
 

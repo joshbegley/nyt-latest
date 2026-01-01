@@ -1,3 +1,7 @@
+**Our favorite 1/1 card stories from 2025: The intrigue behind the rarest cards in the hobby**\
+`Jan. 1 is now 1/1 card day, and to celebrate, we look back on some of the great 1/1 stories we told in 2025.`\
+https://nytimes.com/athletic/6930881/2026/01/01/1-of-1-sports-trading-cards-skenes-clark-daniels/
+
 **Crans-Montana is a Historic Swiss Ski Resort Popular with International Tourists**\
 `Known for its gourmet food, luxury stores, and for hosting major sporting events, the high-end resort was acquired by Vail Resorts in 2024.`\
 https://nytimes.com/2026/01/01/world/europe/fire-crans-montana.html
