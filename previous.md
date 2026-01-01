@@ -1,3 +1,15 @@
+**Impatience, sports science, pitch quality... and the wanger - why are Test matches finishing so quickly?**\
+`Between the end of the Second World War and the turn of the millennium, no Tests ended in two days - but there have been 12 since then`\
+https://nytimes.com/athletic/6926648/2026/01/01/test-cricket-two-day-impatience-law-wanger/
+
+**Liverpool's loanees: How have they performed and what comes next?**\
+`Analysing the progress of the 10 players the club sent out on temporary moves in the summer`\
+https://nytimes.com/athletic/6913907/2026/01/01/liverpool-loan-players-report-cards/
+
+**Chelsea 2025 in review: Surreal Donald Trump moment, Estevao era and ill-discipline**\
+`Chelsea won the Club World Cup and the Conference League in 2025 but that was not the whole story of the year`\
+https://nytimes.com/athletic/6872328/2026/01/01/chelsea-2025-review-year/
+
 **Barcelona in 2026: Are they good enough to win the Champions League?**\
 `Barca fans dream of another European treble, but are Hansi Flick's side really capable of delivering that this year?`\
 https://nytimes.com/athletic/6922943/2026/01/01/barcelona-champions-league-la-liga-real-madrid/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6925491/2026/01/01/is-this-seasons-premier-league-b
 **Quote of the Day: Keys to City of New York Hop Hudson to Honorees**\
 `Quotation of the Day for Thursday, January 1, 2026.`\
 https://nytimes.com/2026/01/01/pageoneplus/quote-of-the-day-keys-to-city-of-new-york-hop-hudson-to-honorees.html
-
-**How Japanese Scallops Became a Pawn in Diplomatic Tensions With China**\
-`Beijing is using a ban on the humble mollusk to punish Japan over its apparent willingness to defend Taiwan.`\
-https://nytimes.com/2026/01/01/business/japan-china-scallops.html
-
-**Connections: Sports Edition Coach: Hints for Jan. 1, 2026**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6933234/2026/01/01/connections-sports-edition-hints-for-jan-1-2026/
-
-**Corrections: Jan. 1, 2026**\
-`Corrections that appeared in print on Thursday, Jan. 1, 2026.`\
-https://nytimes.com/2026/01/01/pageoneplus/corrections-jan-1-2026.html
 
