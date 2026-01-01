@@ -1,3 +1,7 @@
+**Nickeil Alexander-Walker is boosting Hawks and making Wolves miss him**\
+`In a world full of inflated egos and forced braggadocio, Nickeil Alexander-Walker is All-NBA First Team when it comes to introspection.`\
+https://nytimes.com/athletic/6932468/2025/12/31/nickeil-alexander-walker-hawks-timberwolves-nba/
+
 **New Year’s Eve Celebrations Around the World**\
 `Revelers from around the world rang in the New Year with fireworks and light shows.`\
 https://nytimes.com/video/world/asia/100000010617699/nye-celebrations-world.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/31/us/trump-national-guard-california-newsom.html
 **Suicide Bomber in Syria Kills Security Officer in New Year’s Eve Attack**\
 `The attacker likely had links to the Islamic State and was possibly targeting a Christian church in the center of Aleppo, according to a government spokesman.`\
 https://nytimes.com/2025/12/31/world/middleeast/aleppo-syria-suicide-bomber-new-years-eve.html
-
-**Arch Manning bests Bryce Underwood as Texas pulls away in Citrus Bowl: Takeaways**\
-`Texas quarterback Arch Manning capped his late-season surge in style, while it was an up-and-down day for Bryce Underwood.`\
-https://nytimes.com/athletic/6932720/2025/12/31/michigan-texas-citrus-bowl-score-bryce-underwood/
 

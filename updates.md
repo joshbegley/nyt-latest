@@ -1,3 +1,7 @@
+**Nickeil Alexander-Walker is boosting Hawks and making Wolves miss him**\
+`In a world full of inflated egos and forced braggadocio, Nickeil Alexander-Walker is All-NBA First Team when it comes to introspection.`\
+https://nytimes.com/athletic/6932468/2025/12/31/nickeil-alexander-walker-hawks-timberwolves-nba/
+
 **New Year’s Eve Celebrations Around the World**\
 `Revelers from around the world rang in the New Year with fireworks and light shows.`\
 https://nytimes.com/video/world/asia/100000010617699/nye-celebrations-world.html

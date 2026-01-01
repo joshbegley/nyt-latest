@@ -1,3 +1,7 @@
+**Ukraine Did Not Target Putin’s Home, C.I.A. Finds**\
+`The assessment rebutted a claim that the Russian leader made to President Trump in a phone call this week.`\
+https://nytimes.com/2025/12/31/us/politics/ukraine-putin-home-drone-strike-cia.html
+
 **Nickeil Alexander-Walker is boosting Hawks and making Wolves miss him**\
 `In a world full of inflated egos and forced braggadocio, Nickeil Alexander-Walker is All-NBA First Team when it comes to introspection.`\
 https://nytimes.com/athletic/6932468/2025/12/31/nickeil-alexander-walker-hawks-timberwolves-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/12/31/us/politics/coast-guard-survivors-boat-strikes.ht
 **Appeals Court Orders End to Trump’s Command of California National Guard**\
 `The ruling is a win for Gov. Gavin Newsom, who has vigorously opposed President Trump’s moves to control California’s National Guard since the summer.`\
 https://nytimes.com/2025/12/31/us/trump-national-guard-california-newsom.html
-
-**Suicide Bomber in Syria Kills Security Officer in New Year’s Eve Attack**\
-`The attacker likely had links to the Islamic State and was possibly targeting a Christian church in the center of Aleppo, according to a government spokesman.`\
-https://nytimes.com/2025/12/31/world/middleeast/aleppo-syria-suicide-bomber-new-years-eve.html
 
