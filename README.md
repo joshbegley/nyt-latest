@@ -10,6 +10,10 @@ https://nytimes.com/2026/01/01/world/europe/switzerland-fire-crans-montana-ski-r
 `The new deal comes on the day of Lake's expected return to practice after a six-week trip to injured reserve to repair a dislocated elbow.`\
 https://nytimes.com/athletic/6934291/2026/01/01/rams-quentin-lake-extension-analysis/
 
+**College Football Playoff 2025 projections: Indiana is now the national title favorite**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2026/01/01/college-football-playoff-bracket-projections-odds/
+
 **How to watch Jazz vs. Clippers: Time, TV, streaming**\
 `Find out how to watch the Utah Jazz play the Los Angeles Clippers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6934290/2026/01/01/jazz-vs-clippers-stream-how-to-watch-jan-1/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6934281/2026/01/01/predators-vs-kraken-stream-how-t
 **How to watch Stars vs. Blackhawks: Time, TV, streaming**\
 `Find out how to watch the Dallas Stars play the Chicago Blackhawks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6934279/2026/01/01/stars-vs-blackhawks-stream-how-to-watch-jan-1/
-
-**In his invocation, an imam prays for the success of Mamdani and New York City.**\
-`By Maya King`\
-https://nytimes.com/live/2026/01/01/nyregion/zohran-mamdani-inauguration-nyc-mayor/in-his-invocation-an-imam-prays-for-the-success-of-mamdani-and-new-york-city
 
