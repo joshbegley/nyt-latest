@@ -1,40 +1,40 @@
-**Hope in a Time of Cynicism**\
-`At a moment when Americans are distrusting and fearful, we examine the psychology of hope.`\
-https://nytimes.com/2026/01/01/briefing/hope-in-a-time-of-cynicism.html
+**Chelsea part ways with Enzo Maresca with immediate effect**\
+`The Italian had been on a five-year deal through to 2029. `\
+https://nytimes.com/athletic/6933487/2026/01/01/chelsea-enzo-maresca-leaves/
 
-**What would Canada’s Olympic B-Team look like, and could it win a medal?**\
-`Even in the process of selecting a B-team, some very deserving and talented players are left off because of the number of options available.`\
-https://nytimes.com/athletic/6932545/2026/01/01/canada-olympic-hockey-b-team-roster/
+**Justin Brazeau, Ben Kindel, Evgeni Malkin lead way in Penguins' midseason report cards**\
+`The Penguins are in a better place than we could have guessed three months ago, and their report cards say as much.`\
+https://nytimes.com/athletic/6931834/2026/01/01/penguins-midseason-report-cards/
 
-**The Steelers signed Aaron Rodgers for moments like this. They need him to deliver, again**\
-`The 42-year-old QB has a chance to lead the short-handed Steelers to an AFC North title against Baltimore on Sunday night.`\
-https://nytimes.com/athletic/6932675/2026/01/01/aaron-rodgers-pittsburgh-steelers-big-games/
+**With Wild energized by Quinn Hughes blockbuster trade, Bill Guerin likely not done**\
+`Hughes' addition has given the Wild a boost in the room and on the ice, fueling a turnaround that has the team sitting third in the NHL.`\
+https://nytimes.com/athletic/6932473/2026/01/01/wild-quinn-hughes-trade-deadline-bill-guerin/
 
-**Ryan Day has work to do after the bottom fell out on Ohio State's season**\
-`Ohio State wasn’t without some in-house adversity in the last month, but against Indiana and Miami, the Buckeyes were too slow to adjust.`\
-https://nytimes.com/athletic/6933448/2026/01/01/ohio-state-miami-ryan-day-offensive-line/
+**Woe Canada? Why the Jets and Maple Leafs have fallen off so much this season**\
+`Why are two of Canada's top teams from last season on pace for heartbreak in 2025-26?`\
+https://nytimes.com/athletic/6929711/2026/01/01/jets-maple-leafs-struggles/
 
-**Is this the worst Jets team ever? By some measures, they have a case**\
-`Aaron Glenn's group is floundering toward the finish line of a disappointing 2025 season.`\
-https://nytimes.com/athletic/6932075/2026/01/01/new-york-jets-worst-teams-ever/
+**Court Vision: What's next for college hoops after week of eligibility questions, complaints?**\
+`Multiple people we spoke to even predicted two new frontiers of eligibility disputes they expect to see this summer.`\
+https://nytimes.com/athletic/6932555/2026/01/01/college-basketball-nba-james-nnaji-future/
 
-**What's Trending in the NFL: What we got right — and wrong — in weird 2025 season**\
-`The Bills will be dangerous in the playoffs, but they could've been an even bigger threat had they addressed their needs at pass catcher.`\
-https://nytimes.com/athletic/6932470/2026/01/01/nfl-predictions-2025-season-2026/
+**Vic's Picks, Week 18: Why I'm trusting King Henry and the Ravens**\
+`Picking the Ravens over the Steelers is almost too easy. We also like the Seahawks over the 49ers and Bucs over Panthers in critical games.`\
+https://nytimes.com/athletic/6932033/2026/01/01/nfl-week-18-picks-predictions-betting-2025/
 
-**Michigan showed up when it could've folded. But the Whittingham era can't begin soon enough**\
-`Whittingham had to be encouraged by much of what he saw on the field from Michigan vs. Texas. Other parts probably made him grind his teeth.`\
-https://nytimes.com/athletic/6933120/2026/01/01/michigan-texas-bryce-underwood-kyle-whittingham/
+**Henrik Lundqvist offers outdoor expertise in advance of Rangers' Winter Classic appearance**\
+`The Hall of Fame goaltender ended his storied career with a 4-0 record in outdoor games, which still stands as an NHL record.`\
+https://nytimes.com/athletic/6932146/2026/01/01/rangers-nhl-winter-classic-henrik-lundqvist/
 
-**Final game with the Lions? Analyzing 8 players and their futures in Detroit**\
-`Will Taylor Decker play another season? Is this the end for Alex Anzalone? Are the Lions moving on from David Montgomery?`\
-https://nytimes.com/athletic/6932586/2026/01/01/detroit-lions-free-agency/
+**What's next for Chiefs' Bryan Cook? After career year in Kansas City, he discusses his future**\
+`Cook, a Kansas City Chiefs safety, will be a free agent. He talks about what K.C. has meant to him and whether he's open to coming back.`\
+https://nytimes.com/athletic/6932551/2026/01/01/whats-next-for-chiefs-bryan-cook-future/
 
-**Fiorentina agree loan deal for Spurs winger Manor Solomon**\
-`The deal will include the option for Fiorentina to make the move permanent.`\
-https://nytimes.com/athletic/6932371/2026/01/01/tottenham-manor-solomon-loan-fiorentina-transfer/
+**Miami QB Carson Beck finally gets his Playoff moment — and might get his old team next**\
+`Beck admitted thinking about a hypothetical showdown with Georgia as he studied the Playoff bracket. Now, it's more possible than ever.`\
+https://nytimes.com/athletic/6933339/2026/01/01/carson-beck-miami-ohio-state-georgia-cfp/
 
-**'He's a killer, man': Panthers rookie kicker Ryan Fitzgerald built for big moments**\
-`Fitzgerald has been good under pressure in Year 1; he has made four game-winning kicks, and Carolina would love another one Saturday.`\
-https://nytimes.com/athletic/6932636/2026/01/01/panthers-ryan-fitzgerald-kicker/
+**Our Duty to Call Out Bigotry in America**\
+`Readers challenge a Republican politician’s views on prejudice and intolerance in the conservative movement. Also: The harm caused by organ transplant tourism.`\
+https://nytimes.com/2026/01/01/opinion/ramaswamy-racism-conservatives.html
 
