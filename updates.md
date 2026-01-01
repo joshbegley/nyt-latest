@@ -1,3 +1,11 @@
+**‘This is our time’: The poet Cornelius Eady will read an original work at the inauguration.**\
+`By Jeffery C. Mays`\
+https://nytimes.com/live/2026/01/01/nyregion/zohran-mamdani-inauguration-nyc-mayor/this-is-our-time-the-poet-cornelius-eady-will-read-an-original-work-at-the-inauguration
+
+**Is Giants finale last we'll see of Wan'Dale Robinson, two more key free agents in N.Y.?**\
+`The Giants have let some quality homegrown players leave in free agency in the past. Will they do it again?`\
+https://nytimes.com/athletic/6932531/2026/01/01/ny-giants-free-agents-wandale-robinson-jermaine-eluemunor-cordale-flott/
+
 **Ten predictions for 2026 for Nebraska college football, basketball, softball and more**\
 `After a 44-22 loss to Utah in the Las Vegas Bowl on New Year's Eve, the turn of the calendar brings Nebraska a fresh start.`\
 https://nytimes.com/athletic/6933591/2026/01/01/nebraska-football-basketball-softball-predictions-2026/
