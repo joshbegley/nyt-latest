@@ -1,4 +1,8 @@
 **Russia Asks United States to Stop Pursuit of Fleeing Oil Tanker**\
+`The tanker, which had been sailing to Venezuela to pick up oil, has claimed Russian protection, although the U.S. authorities say it is a stateless vessel.`\
+https://nytimes.com/2026/01/01/us/politics/russia-oil-tanker-venezuela-us-pursuit.html
+
+**Russia Asks United States to Stop Pursuit of Fleeing Oil Tanker**\
 `The tanker, which had been sailing to Venezuela to pick up oil, has claimed Russian protection, although U.S. authorities say it is a stateless vessel.`\
 https://nytimes.com/2026/01/01/us/politics/russia-oil-tanker-venezuela-us-pursuit.html
 
