@@ -1,3 +1,7 @@
+**Another New Year at War: Ukraine’s Troops Doubt It Will Be the Last**\
+`After a year of Russian advances, the goal for 2026 is simply to survive, said one officer in eastern Ukraine. “It’s hard to make any plans,” he said.`\
+https://nytimes.com/2026/01/01/world/europe/ukraine-russia-new-years-day-donetsk.html
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2026/01/01/crosswords/spelling-bee-forum.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/01/opinion/trump-zelensky-putin-ukraine-russia-war-u
 **Impatience, sports science, pitch quality... and the wanger - why are Test matches finishing so quickly?**\
 `Between the end of the Second World War and the turn of the millennium, no Tests ended in two days - but there have been 12 since then`\
 https://nytimes.com/athletic/6926648/2026/01/01/test-cricket-two-day-impatience-law-wanger/
-
-**Liverpool's loanees: How have they performed and what comes next?**\
-`Analysing the progress of the 10 players the club sent out on temporary moves in the summer`\
-https://nytimes.com/athletic/6913907/2026/01/01/liverpool-loan-players-report-cards/
 
