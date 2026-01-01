@@ -1,3 +1,7 @@
+**Davidson names highway exit in honor of Stephen Curry as school legacy grows**\
+`Before Curry became a two-time NBA MVP with four championships and a finals MVP to his name, he dazzled the college landscape.`\
+https://nytimes.com/athletic/6932757/2025/12/31/steph-curry-highway-exit-davidson/
+
 **Historic Snowstorm Blankets Syracuse Just in Time for the New Year**\
 `Syracuse, N.Y., has received nearly twice its usual monthly amount of snow in December.`\
 https://nytimes.com/2025/12/31/nyregion/syracuse-record-snow.html
