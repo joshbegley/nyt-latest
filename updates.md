@@ -1,3 +1,7 @@
+**How to watch Michigan vs. Washington women's basketball: Time, TV, streaming**\
+`Find out how to watch the Michigan Wolverines play the Washington Huskies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6933863/2026/01/01/michigan-vs-washington-stream-how-to-watch-jan-1/
+
 **Mamdani trades a neighborhood that made him mayor for one that backed his opponents.**\
 `By Eliza Shapiro and Nicholas Fandos`\
 https://nytimes.com/live/2026/01/01/nyregion/zohran-mamdani-inauguration-nyc-mayor/mamdani-trades-a-neighborhood-that-made-him-mayor-for-one-that-backed-his-opponents

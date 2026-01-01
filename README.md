@@ -1,3 +1,19 @@
+**How to watch Red Wings vs. Penguins: Time, TV, streaming**\
+`Find out how to watch the Detroit Red Wings play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6933884/2026/01/01/red-wings-vs-penguins-stream-how-to-watch-jan-1/
+
+**How to watch Canadiens vs. Hurricanes: Time, TV, streaming**\
+`Find out how to watch the Montreal Canadiens play the Carolina Hurricanes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6933881/2026/01/01/canadiens-vs-hurricanes-stream-how-to-watch-jan-1/
+
+**Villa complete signing of Gremio forward Alysson on long-term deal**\
+`The right-winger fits the profile of the attacker Villa have identified for bolstering Unai Emery's first-team squad this month.`\
+https://nytimes.com/athletic/6933806/2026/01/01/aston-villa-transfer-alysson-gremio/
+
+**Revisit our coverage of Mamdani’s upbringing, his activism, his record and his campaign.**\
+`By Nicholas Fandos`\
+https://nytimes.com/live/2026/01/01/nyregion/zohran-mamdani-inauguration-nyc-mayor/revisit-our-coverage-of-mamdanis-upbringing-his-activism-his-record-and-his-campaign
+
 **How to watch Michigan vs. Washington women's basketball: Time, TV, streaming**\
 `Find out how to watch the Michigan Wolverines play the Washington Huskies, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6933863/2026/01/01/michigan-vs-washington-stream-how-to-watch-jan-1/
@@ -21,20 +37,4 @@ https://nytimes.com/2026/01/01/world/europe/crans-montana-switzerland-fire-victi
 **Eric Adams spent his final hours as mayor out of sight and undermining Mamdani.**\
 `By Jeffery C. Mays`\
 https://nytimes.com/live/2026/01/01/nyregion/zohran-mamdani-inauguration-nyc-mayor/eric-adams-spent-his-final-hours-as-mayor-out-of-sight-and-undermining-mamdani
-
-**College Football Playoff 2025 projections: Indiana is now the national title favorite**\
-`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
-https://nytimes.com/athletic/6560541/2026/01/01/college-football-playoff-bracket-projections-odds/
-
-**Review: Singers Come First in the Met Opera’s New ‘Puritani’**\
-`Charles Edwards’s deceptively traditional, exceptionally sung production of Bellini’s “I Puritani” makes space for its stars.`\
-https://nytimes.com/2026/01/01/arts/music/puritani-met-opera-review.html
-
-**Another first for Mamdani: using the Quran to take the mayoral oath of office.**\
-`By Maya King`\
-https://nytimes.com/live/2026/01/01/nyregion/zohran-mamdani-inauguration-nyc-mayor/mamdani-quran
-
-**Minnesota Families Are Rattled by Threat to Cut Federal Aid for Child Care**\
-`After the federal government threatened to withhold funds for Minnesota’s child-care program, citing fraud concerns, parents and providers warned that the effects could be dire.`\
-https://nytimes.com/2026/01/01/us/minnesota-child-care-funding-impact-fraud.html
 
