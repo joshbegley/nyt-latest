@@ -1,3 +1,15 @@
+**At one hospital, survivors and desperate friends press for news of the victims.**\
+`By Ségolène Le Stradic`\
+https://nytimes.com/live/2026/01/01/world/switzerland-ski-resort-fire/swiss-fire-survivors-news-hospital-sion
+
+**What We Know About the New Year’s Fire in Switzerland**\
+`The fire at a bar in a popular ski resort killed around 40 people and injured more than 100, officials said. The cause was still unknown.`\
+https://nytimes.com/2026/01/01/world/europe/what-happened-fire-switzerland-ski-resort.html
+
+**Iran Protests Turn Deadly as Violence and Anger Spread**\
+`Financial pressures have fueled a fifth day of demonstrations around Iran, with at least one person killed in the protests so far, according to the authorities.`\
+https://nytimes.com/2026/01/01/world/middleeast/iran-protests-deaths.html
+
 **Cubs still waiting for their biggest offseason move after Imai picks Astros**\
 `The Cubs need another mainstay for a rotation that has multiple starting pitchers on expiring contracts.`\
 https://nytimes.com/athletic/6933130/2026/01/01/cubs-tatsuya-imai-astros-mlb/
