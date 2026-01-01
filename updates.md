@@ -1,3 +1,7 @@
+**This Diminutive Reptile Plays Rock-Paper-Scissors**\
+`Side-blotched lizards probably don’t call the game that, but they play a version of it anyway. A new study explains the hidden biology that makes this possible.`\
+https://nytimes.com/2026/01/01/science/this-diminutive-reptile-plays-rock-paper-scissors.html
+
 **At one hospital, survivors and desperate friends press for news of the victims.**\
 `By Ségolène Le Stradic`\
 https://nytimes.com/live/2026/01/01/world/switzerland-ski-resort-fire/swiss-fire-survivors-news-hospital-sion
