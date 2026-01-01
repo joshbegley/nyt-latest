@@ -7,7 +7,7 @@ https://nytimes.com/2026/01/01/nyregion/mamdani-transportation-commissioner-mike
 https://nytimes.com/athletic/6933150/2026/01/01/bucks-wizards-close-loss-nba/
 
 **Miami, a 9.5-point underdog to Ohio State, pulls off biggest CFP upset**\
-`Hurricanes got biggest point-spread upset in the CFP's 12-year history with a 24-14 win over the defending national champion Buckeyes.`\
+`Hurricanes got the biggest point-spread upset in the CFP's 12-year history with a 24-14 win over the defending national champion Buckeyes.`\
 https://nytimes.com/athletic/6933219/2026/01/01/miami-biggest-cfp-upset-ever/
 
 **The New York Times in Print for Thursday, Jan. 1, 2026**\
