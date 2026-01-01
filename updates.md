@@ -1,3 +1,7 @@
+**Venus Williams receives Australian Open wild card for first appearance since 2021**\
+`45-year-old Williams last year played at the U.S. Open, but has not played a Grand Slam match outside of New York City since 2023.`\
+https://nytimes.com/athletic/6934518/2026/01/01/venus-williams-tennis-australian-open-wild-card/
+
 **How a Fire Ripped Through a Swiss Bar and Broke a Village’s Heart**\
 `It was a haven for the young, where they could find hot chocolate when they wanted quiet and affordable drinks when they did not. Then it turned into a place of death.`\
 https://nytimes.com/2026/01/01/world/europe/switzerland-fire-scene.html

@@ -1,3 +1,7 @@
+**Venus Williams receives Australian Open wild card for first appearance since 2021**\
+`45-year-old Williams last year played at the U.S. Open, but has not played a Grand Slam match outside of New York City since 2023.`\
+https://nytimes.com/athletic/6934518/2026/01/01/venus-williams-tennis-australian-open-wild-card/
+
 **How a Fire Ripped Through a Swiss Bar and Broke a Village’s Heart**\
 `It was a haven for the young, where they could find hot chocolate when they wanted quiet and affordable drinks when they did not. Then it turned into a place of death.`\
 https://nytimes.com/2026/01/01/world/europe/switzerland-fire-scene.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6928466/2026/01/01/brentford-tottenham-analysis-tho
 **Mamdani Vows to Govern ‘Audaciously’ and Protect New York’s Vulnerable**\
 `Zohran Mamdani gave his first public speech as mayor of New York City, after a public inauguration that drew tens of thousands of people.`\
 https://nytimes.com/2026/01/01/nyregion/mamdani-inauguration-mayor.html
-
-**Richards could miss three more matches with foot injury - Glasner**\
-`The USMNT international has been absent since injuring his foot in the Carabao Cup quarter-final defeat by Arsenal.`\
-https://nytimes.com/athletic/6934373/2026/01/01/chris-richards-injury-palace-glasner-usmnt/
 
