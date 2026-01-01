@@ -1,3 +1,11 @@
+**Fire in Swiss Alps Leaves Dozens of New Year’s Revelers Dead**\
+`About 40 people celebrating at a ski resort bar were killed, and 115 were injured, many of them young, the authorities said.`\
+https://nytimes.com/2026/01/01/world/europe/01int-switzerland-fire-crans-montana.html
+
+**Rams sign safety Quentin Lake to 3-year extension upon return from injury**\
+`The new deal comes on the day of Lake's expected return to practice after a six-week trip to injured reserve to repair a dislocated elbow.`\
+https://nytimes.com/athletic/6934291/2026/01/01/rams-quentin-lake-extension-analysis/
+
 **How to watch Jazz vs. Clippers: Time, TV, streaming**\
 `Find out how to watch the Utah Jazz play the Los Angeles Clippers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6934290/2026/01/01/jazz-vs-clippers-stream-how-to-watch-jan-1/
