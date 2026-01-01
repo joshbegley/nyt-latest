@@ -1,3 +1,11 @@
+**Is Giants finale last we'll see of Wan'Dale Robinson, two more key free agents in NY?**\
+`The Giants have let some quality homegrown players leave in free agency in the past. Will they do it again?`\
+https://nytimes.com/athletic/6932531/2026/01/01/ny-giants-free-agents-wandale-robinson-jermaine-eluemunor-cordale-flott/
+
+**Crans-Montana Is a Historic Swiss Ski Resort Popular With International Tourists**\
+`Known for its gourmet food, luxury stores, and for hosting major sporting events, the high-end resort was acquired by Vail Resorts in 2024.`\
+https://nytimes.com/2026/01/01/world/europe/fire-crans-montana.html
+
 **How New York City miscounted its mayors for more than 300 years.**\
 `By Andy Newman`\
 https://nytimes.com/live/2026/01/01/nyregion/zohran-mamdani-inauguration-nyc-mayor/how-new-york-city-miscounted-its-mayors-for-more-than-300-years
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6933618/2026/01/01/maryland-vs-illinois-stream-how-
 **How to watch Florida vs. Tennessee women's basketball: Time, TV, streaming**\
 `Find out how to watch the Florida Gators play the Tennessee Lady Volunteers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6933606/2026/01/01/florida-vs-tennessee-stream-how-to-watch-jan-1/
-
-**How to watch Vanderbilt vs. Arkansas women's basketball: Time, TV, streaming**\
-`Find out how to watch the Vanderbilt Commodores play the Arkansas Razorbacks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6933600/2026/01/01/vanderbilt-vs-arkansas-stream-how-to-watch-jan-1/
-
-**How to watch Notre Dame vs. Georgia Tech women's basketball: Time, TV, streaming**\
-`Find out how to watch the Notre Dame Fighting Irish play the Georgia Tech Yellow Jackets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6933595/2026/01/01/notre-dame-vs-georgia-tech-stream-how-to-watch-jan-1/
 
