@@ -1,3 +1,7 @@
+**Chelsea board to hold talks with uncertainty over Enzo Maresca's future**\
+`The Stamford Bridge club are winless in their past three games and the Italian has come under scrutiny despite being on a contract to 2029.`\
+https://nytimes.com/athletic/6138238/2026/01/01/chelsea-enzo-maresca-board-talks-future/
+
 **Another New Year at War: Ukraine’s Troops Doubt It Will Be the Last**\
 `After a year of Russian advances, the goal for 2026 is simply to survive, said one officer in eastern Ukraine. “It’s hard to make any plans,” he said.`\
 https://nytimes.com/2026/01/01/world/europe/ukraine-russia-new-years-day-donetsk.html
