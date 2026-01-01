@@ -1,3 +1,11 @@
+**How New York City miscounted its mayors for more than 300 years.**\
+`By Andy Newman`\
+https://nytimes.com/live/2026/01/01/nyregion/zohran-mamdani-inauguration-nyc-mayor/how-new-york-city-miscounted-its-mayors-for-more-than-300-years
+
+**Gabon's government suspends national team after AFCON exit, bans Aubameyang**\
+`An official statement announced the decision to dissolve the technical staff and also ban the captain Bruno Ecuele Manga.`\
+https://nytimes.com/athletic/6933543/2026/01/01/gabon-aubameyang-government-afcon-ban/
+
 **How to watch Mammoth vs. Islanders: Time, TV, streaming**\
 `Find out how to watch the Utah Mammoth play the New York Islanders, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6933637/2026/01/01/mammoth-vs-islanders-stream-how-to-watch-jan-1/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6933600/2026/01/01/vanderbilt-vs-arkansas-stream-ho
 **How to watch Notre Dame vs. Georgia Tech women's basketball: Time, TV, streaming**\
 `Find out how to watch the Notre Dame Fighting Irish play the Georgia Tech Yellow Jackets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6933595/2026/01/01/notre-dame-vs-georgia-tech-stream-how-to-watch-jan-1/
-
-**How to watch Georgia vs. Ole Miss women's basketball: Time, TV, streaming**\
-`Find out how to watch the Georgia Lady Bulldogs play the Ole Miss Rebels, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6933589/2026/01/01/georgia-vs-ole-miss-stream-how-to-watch-jan-1/
-
-**Broncos' win vs. Chiefs reminder of Bo Nix's impact as a runner. Will it grow in playoffs?**\
-`Nix has rushed less than he did as a rookie, but the playmaking ability with his legs could be a wild card for the Broncos in the playoffs.`\
-https://nytimes.com/athletic/6932286/2026/01/01/bo-nix-broncos-running-playoffs/
 

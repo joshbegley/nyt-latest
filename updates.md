@@ -1,3 +1,11 @@
+**How New York City miscounted its mayors for more than 300 years.**\
+`By Andy Newman`\
+https://nytimes.com/live/2026/01/01/nyregion/zohran-mamdani-inauguration-nyc-mayor/how-new-york-city-miscounted-its-mayors-for-more-than-300-years
+
+**Gabon's government suspends national team after AFCON exit, bans Aubameyang**\
+`An official statement announced the decision to dissolve the technical staff and also ban the captain Bruno Ecuele Manga.`\
+https://nytimes.com/athletic/6933543/2026/01/01/gabon-aubameyang-government-afcon-ban/
+
 **How to watch Mammoth vs. Islanders: Time, TV, streaming**\
 `Find out how to watch the Utah Mammoth play the New York Islanders, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6933637/2026/01/01/mammoth-vs-islanders-stream-how-to-watch-jan-1/
