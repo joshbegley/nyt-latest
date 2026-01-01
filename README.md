@@ -1,3 +1,7 @@
+**Janet Fish, Painter of Luminous Still Lifes, Dies at 87**\
+`From her student days, she stubbornly refused to follow popular artistic trends. Instead, she spent decades exploring the effects of light on glass.`\
+https://nytimes.com/2026/01/01/arts/design/janet-fish-dead.html
+
 **The Briefing: Liverpool 0 Leeds United 0 - Familiar issues for Arne Slot's side? More signs of progress for Leeds?**\
 `The Athletic's writers analyse the New Year's Day action from Anfield`\
 https://nytimes.com/athletic/6928465/2026/01/01/liverpool-leeds-premier-league-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/01/world/europe/what-happened-fire-switzerland-ski-r
 **Iran Protests Turn Deadly as Violence and Anger Spread**\
 `Financial pressures have fueled a fifth day of demonstrations around Iran, with at least one person killed in the protests so far, according to the authorities.`\
 https://nytimes.com/2026/01/01/world/middleeast/iran-protests-deaths.html
-
-**Cubs still waiting for their biggest offseason move after Imai picks Astros**\
-`The Cubs need another mainstay for a rotation that has multiple starting pitchers on expiring contracts.`\
-https://nytimes.com/athletic/6933130/2026/01/01/cubs-tatsuya-imai-astros-mlb/
 

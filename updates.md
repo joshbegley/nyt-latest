@@ -1,3 +1,11 @@
+**The Briefing: Liverpool 0 Leeds United 0 - Familiar issues for Arne Slot's side? More signs of progress for Leeds?**\
+`The Athletic's writers analyse the New Year's Day action from Anfield`\
+https://nytimes.com/athletic/6928465/2026/01/01/liverpool-leeds-premier-league-analysis/
+
+**Here’s Why Lucy Dacus Chose ‘Bread & Roses’ for Mamdani’s Inauguration**\
+`The Grammy-winning singer, part of the supergroup boygenius, followed a performance by Mandy Patinkin who sang “Over the Rainbow.”`\
+https://nytimes.com/2026/01/01/nyregion/lucy-dacus-bread-roses-mamdani.html
+
 **Bars, nightclubs and discos have been the sites of deadly fires.**\
 `Over`\
 https://nytimes.com/live/2026/01/01/world/switzerland-ski-resort-fire/bars-nightclubs-and-discos-have-been-the-sites-of-deadly-fires

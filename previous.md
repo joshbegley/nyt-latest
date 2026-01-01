@@ -1,3 +1,11 @@
+**The Briefing: Liverpool 0 Leeds United 0 - Familiar issues for Arne Slot's side? More signs of progress for Leeds?**\
+`The Athletic's writers analyse the New Year's Day action from Anfield`\
+https://nytimes.com/athletic/6928465/2026/01/01/liverpool-leeds-premier-league-analysis/
+
+**Here’s Why Lucy Dacus Chose ‘Bread & Roses’ for Mamdani’s Inauguration**\
+`The Grammy-winning singer, part of the supergroup boygenius, followed a performance by Mandy Patinkin who sang “Over the Rainbow.”`\
+https://nytimes.com/2026/01/01/nyregion/lucy-dacus-bread-roses-mamdani.html
+
 **Bars, nightclubs and discos have been the sites of deadly fires.**\
 `Over`\
 https://nytimes.com/live/2026/01/01/world/switzerland-ski-resort-fire/bars-nightclubs-and-discos-have-been-the-sites-of-deadly-fires
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/01/world/middleeast/iran-protests-deaths.html
 **Cubs still waiting for their biggest offseason move after Imai picks Astros**\
 `The Cubs need another mainstay for a rotation that has multiple starting pitchers on expiring contracts.`\
 https://nytimes.com/athletic/6933130/2026/01/01/cubs-tatsuya-imai-astros-mlb/
-
-**Strasbourg's Liam Rosenior the leading candidate for Chelsea job**\
-`Enzo Maresca made a shock departure from Chelsea on January 1.`\
-https://nytimes.com/athletic/6933555/2026/01/01/chelsea-liam-rosenior-enzo-maresca-strasbourg/
-
-**Russia Asks United States to Stop Pursuit of Fleeing Oil Tanker**\
-`The tanker, which had been sailing to Venezuela to pick up oil, has claimed Russian protection, although the U.S. authorities say it is a stateless vessel.`\
-https://nytimes.com/2026/01/01/us/politics/russia-oil-tanker-venezuela-us-pursuit.html
 
