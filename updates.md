@@ -1,3 +1,7 @@
+**Miami, a 9.5-point underdog to Ohio State, pulls off biggest CFP upset ever**\
+`There have been several shockers in the 12 years of the College Football Playoff, but nothing like what the Hurricanes did Wednesday.`\
+https://nytimes.com/athletic/6933219/2026/01/01/miami-biggest-cfp-upset-ever/
+
 **The New York Times in Print for Thursday, Jan. 1, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/01/01/todays-new-york-times
