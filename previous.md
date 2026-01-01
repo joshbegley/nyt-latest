@@ -1,3 +1,7 @@
+**British boxer Joshua released from hospital after car crash**\
+`The 36-year-old two-time heavyweight champion was involved in the incident that killed two of his close friends on Monday. `\
+https://nytimes.com/athletic/6933385/2026/01/01/anthony-joshua-hospital-car-crash-nigeria/
+
 **Chelsea board to hold talks with uncertainty over Enzo Maresca's future**\
 `The Stamford Bridge club are winless in their past three games and the Italian has come under scrutiny despite being on a contract to 2029.`\
 https://nytimes.com/athletic/6138238/2026/01/01/chelsea-enzo-maresca-board-talks-future/
@@ -33,8 +37,4 @@ https://nytimes.com/issue/todayspaper/2026/01/01/todays-new-york-times
 **Welcome to the Mamdani Era, New York**\
 `The new mayor is an entirely familiar type of New York politician.`\
 https://nytimes.com/2026/01/01/opinion/zohran-mamdani-mayor-new-york.html
-
-**A Trump Security Is Empty, Mr. Zelensky**\
-`Ukraine’s president should stop pressing for U.S. security guarantees and pursue more effective means of self-protection.`\
-https://nytimes.com/2026/01/01/opinion/trump-zelensky-putin-ukraine-russia-war-us.html
 

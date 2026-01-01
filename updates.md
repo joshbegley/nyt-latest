@@ -1,3 +1,7 @@
+**British boxer Joshua released from hospital after car crash**\
+`The 36-year-old two-time heavyweight champion was involved in the incident that killed two of his close friends on Monday. `\
+https://nytimes.com/athletic/6933385/2026/01/01/anthony-joshua-hospital-car-crash-nigeria/
+
 **Chelsea board to hold talks with uncertainty over Enzo Maresca's future**\
 `The Stamford Bridge club are winless in their past three games and the Italian has come under scrutiny despite being on a contract to 2029.`\
 https://nytimes.com/athletic/6138238/2026/01/01/chelsea-enzo-maresca-board-talks-future/
