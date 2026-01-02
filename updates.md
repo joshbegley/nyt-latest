@@ -1,3 +1,11 @@
+**Can 'maverick' Matheus Cunha step up in Bruno Fernandes' absence?**\
+`Matheus Cunha has adjusted well to life at Old Trafford but needs to deliver this month with United shorn of many top players`\
+https://nytimes.com/athletic/6519748/2026/01/02/matheus-cunha-bruno-fernandes-analysis/
+
+**'Intelligent, unorthodox, unique': Matt Jackson, the man tasked with turning Wolves around**\
+`The 54-year-old has a tough task ahead of him at Wolves, but those who know him believe he is more than well-equipped`\
+https://nytimes.com/athletic/6925885/2026/01/02/wolves-matt-jackson-profile-technical-director/
+
 **Ole Miss rallies to stun Georgia, continue magical run into CFP semifinals**\
 `Ole Miss is going on to the national semifinals, an improbable season becoming an improbable story.`\
 https://nytimes.com/athletic/6935031/2026/01/02/ole-miss-georgia-score-result-college-football-playoff/

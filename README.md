@@ -1,3 +1,19 @@
+**Premier League predictions: Man City vs Chelsea, Leeds vs Man Utd, and the rest of Matchday 20**\
+`Who's leading after MD19? And what do our writer, the algorithm, a child and this week's subscriber expect to see on Matchday 20?`\
+https://nytimes.com/athletic/6933375/2026/01/02/premier-league-predictions-md20/
+
+**Who gets top marks? Who gets an F? Who has surprised? Premier League report cards**\
+`The Athletic's writers give their verdicts on each team as the Premier League season reaches the halfway point`\
+https://nytimes.com/athletic/6933366/2026/01/02/premier-league-halfway-reports/
+
+**Mainoo to move? What now for Bobb? Neves future? Ten players to watch in the January transfer window**\
+`Likelihood of moving? Potential destinations? Incentives to stay put? A look at the state of play around the key men in this month's window`\
+https://nytimes.com/athletic/6928622/2026/01/02/players-to-watch-january-transfer-window/
+
+**College Football Playoff 2025 bracket projections: Who's the national title favorite?**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2026/01/02/college-football-playoff-bracket-projections-odds/
+
 **Can 'maverick' Matheus Cunha step up in Bruno Fernandes' absence?**\
 `Matheus Cunha has adjusted well to life at Old Trafford but needs to deliver this month with United shorn of many top players`\
 https://nytimes.com/athletic/6519748/2026/01/02/matheus-cunha-bruno-fernandes-analysis/
@@ -21,20 +37,4 @@ https://nytimes.com/2026/01/02/style/ginger-cutler-tom-glinkowski-wedding.html
 **They Met on a Summer Vacation That Never Ended**\
 `Rachel Leiner was reading at a cafe in Lisbon when she was invited to join a group of strangers, Jurgen Peeters among them.`\
 https://nytimes.com/2026/01/02/style/rachel-leiner-jurgen-peeters-wedding.html
-
-**She Passed the Audition — and Later Won His Heart**\
-`Lara Russell-Lasalandra met Umang Chaudhry at an audition for an a cappella ensemble. He was on the leadership committee.`\
-https://nytimes.com/2026/01/02/style/lara-russell-lasalandra-umang-chaudhry-wedding.html
-
-**Connections: Sports Edition Coach: Hints for Jan. 2, 2026**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6935012/2026/01/02/connections-sports-edition-hints-for-jan-2-2026/
-
-**My Mother’s Last, Best Gift Was an Astonishing Secret**\
-`It took my mother getting Alzheimer’s for my siblings and me to learn the truth about our family and childhood.`\
-https://nytimes.com/2026/01/02/style/modern-love-my-mother-and-fathers-long-happy-gay-marriage.html
-
-**Rushing to Her Father’s Hospital Bedside, with a Wedding in Tow**\
-`Arianna Lacerte grew up around the Boston Celtics because of her dad’s job. But it wasn’t just a mutual love of sports that attracted Josh Kipnis — it was their shared love of family.`\
-https://nytimes.com/2026/01/02/style/arianna-lacerte-josh-kipnis-wedding.html
 
