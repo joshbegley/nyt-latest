@@ -1,3 +1,11 @@
+**How Indiana dismantled Alabama in Rose Bowl rout that was never in doubt**\
+`Heisman winner Fernando Mendoza and No. 1 Indiana dominated Alabama 38-3 to win a College Football Playoff quarterfinal at the Rose Bowl.`\
+https://nytimes.com/athletic/6934348/2026/01/01/indiana-alabama-score-rose-bowl-cfp/
+
+**What I'm seeing from Winter Classic: Adam Fox on Olympic exclusion, Miami ice quality, more**\
+`Though the U.S. Olympic roster won't be formally announced until Friday, defenseman Adam Fox already knows he won't be on it.`\
+https://nytimes.com/athletic/6934532/2026/01/01/rangers-winter-classic-fox-olympics-rempe/
+
 **MNF's Troy Aikman will advise Miami Dolphins on their general manager search**\
 `The broadcaster and Hall of Fame quarterback reportedly will sit in on interviews as the team tries to find a replacement for Chris Grier.`\
 https://nytimes.com/athletic/6934545/2026/01/01/dolphins-bring-troy-aikman-gm-search/
