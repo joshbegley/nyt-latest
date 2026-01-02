@@ -1,3 +1,7 @@
+**Their Eyes**\
+`The unseen workers who help train self-driving cars to see.`\
+https://nytimes.com/video/opinion/100000010486246/their-eyes.html
+
 **Live Updates: Swiss Officials Search for Answers in Deadly New Year’s Fire**\
 `About 40 people were killed and more than 100 others injured in the blaze at a bar in a resort town. The authorities were trying to pinpoint the cause and identify bodies.`\
 https://nytimes.com/live/2026/01/02/world/switzerland-ski-resort-fire
