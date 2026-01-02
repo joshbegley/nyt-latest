@@ -1,3 +1,7 @@
+**MNF's Troy Aikman will advise Dolphins on general manager search**\
+`The broadcaster and Hall of Fame quarterback will sit in on interviews as the team tries to find a replacement for Chris Grier.`\
+https://nytimes.com/athletic/6934545/2026/01/01/dolphins-bring-troy-aikman-gm-search/
+
 **‘I Will Govern as a Democratic Socialist,’ Mamdani Says at Inauguration**\
 `Mayor Zohran Mamdani was inaugurated as the mayor of New York City on Thursday in a ceremony attended by thousands outside City Hall.`\
 https://nytimes.com/video/nyregion/100000010619911/mayor-zohran-mamdani-inauguration.html
