@@ -1,3 +1,11 @@
+**Five Laws Going Into Effect for New York in 2026**\
+`Among them, benefits for minimum wage workers, cancer patients and parents of young children. Also, a change to child abuse reporting.`\
+https://nytimes.com/2026/01/02/nyregion/2026-new-laws-new-york-state.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/01/02/crosswords/spelling-bee-forum.html
+
 **Manchester City take heart from Rodri return as focus fixes on the bigger picture**\
 `Pep Guardiola's side mustered 53 touches in the Sunderland penalty area but could not prise out a decisive goal against resolute opponents`\
 https://nytimes.com/athletic/6935241/2026/01/02/manchester-city-guardiola-rodri-sunderland/
@@ -6,7 +14,7 @@ https://nytimes.com/athletic/6935241/2026/01/02/manchester-city-guardiola-rodri-
 `This word has appeared in 23 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/01/02/learning/word-of-the-day-succor.html
 
-**Leeds had one eye on Man Utd against Liverpool and still kept rolling forward**\
+**Leeds had one eye on Man Utd against Liverpool and still kept rolling**\
 `Leeds held Liverpool to a 0-0 draw despite resting key players for Thursday night's game`\
 https://nytimes.com/athletic/6935072/2026/01/02/leeds-liverpool-analysis-man-utd/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6875271/2026/01/02/west-hams-2025-sackings-setbacks
 **Curt Cignetti, Lane Kiffin got a lot richer by Indiana, Ole Miss reaching CFP semis**\
 `The Indiana and former Ole Miss head coaches will receive tidy sums because of incentive bonuses in their contracts for winning CFP games.`\
 https://nytimes.com/athletic/6935051/2026/01/02/curt-cignetti-lane-kiffin-bonus-incentives-cfp-semifinal/
-
-**What the heck happened in the final seconds of Ole Miss vs. Georgia?**\
-`Sugar Bowl officials rolled the postgame stage onto the field, only for the game to continue with another play.`\
-https://nytimes.com/athletic/6935149/2026/01/02/ole-miss-georgia-final-play-delay-officials/
-
-**The New York Times in Print for Friday, Jan. 2, 2026**\
-``\
-https://nytimes.com/issue/todayspaper/2026/01/02/todays-new-york-times
 

@@ -1,3 +1,15 @@
+**Five Laws Going Into Effect for New York in 2026**\
+`Among them, benefits for minimum wage workers, cancer patients and parents of young children. Also, a change to child abuse reporting.`\
+https://nytimes.com/2026/01/02/nyregion/2026-new-laws-new-york-state.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/01/02/crosswords/spelling-bee-forum.html
+
+**Leeds had one eye on Man Utd against Liverpool and still kept rolling**\
+`Leeds held Liverpool to a 0-0 draw despite resting key players for Thursday night's game`\
+https://nytimes.com/athletic/6935072/2026/01/02/leeds-liverpool-analysis-man-utd/
+
 **Manchester City take heart from Rodri return as focus fixes on the bigger picture**\
 `Pep Guardiola's side mustered 53 touches in the Sunderland penalty area but could not prise out a decisive goal against resolute opponents`\
 https://nytimes.com/athletic/6935241/2026/01/02/manchester-city-guardiola-rodri-sunderland/
