@@ -1,3 +1,7 @@
+**Arteta uncertain whether Rice will be available for Bournemouth game**\
+`The England international missed Tuesday's win over Aston Villa with a knee injury.`\
+https://nytimes.com/athletic/6935401/2026/01/02/declan-rice-injury-arsenal-team-news/
+
 **Dak Prescott's contract talk advice to George Pickens: 'Don't let it get personal'**\
 `A new deal for Pickens is likely to average more than $30 million per season, and he hopes to remain in Dallas.`\
 https://nytimes.com/athletic/6934640/2026/01/02/george-pickens-cowboys-contract-negotiations-jerry-jones/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6935017/2026/01/02/cooper-flagg-vj-edgecombe-maveri
 **NHL trade matchmaker: Predicting where top targets go by the deadline, part 3**\
 `Where could Alex Tuch, Blake Coleman, Justin Faulk and Andrew Mangiapane end up by the deadline? Our insiders' picks.`\
 https://nytimes.com/athletic/6934000/2026/01/02/nhl-trade-board-matchmaker-tuch-coleman-faulk/
-
-**AFC North Whiparound: Delving into the Steelers-Ravens division title game**\
-`Also, awards season, regrettable decisions this season and whether Myles Garrett will get the sack record vs. the Bengals.`\
-https://nytimes.com/athletic/6934160/2026/01/02/afc-north-whiparound-ravens-steelers-week-18/
 
