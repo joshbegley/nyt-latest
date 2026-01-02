@@ -1,3 +1,11 @@
+**Software Error Will Force 325,000 Californians to Replace Real IDs**\
+`Some state-issued identification cards issued to legal immigrants could be valid longer than the people holding them are allowed to remain in the United States, state officials said.`\
+https://nytimes.com/2026/01/02/us/california-real-id-dmv-error.html
+
+**Mamdani Creates Office of Mass Engagement**\
+`Mayor Zohran Mamdani announced two appointments at Grand Army Plaza in Brooklyn on his second day as mayor of New York City, including the creation of an Office of Mass Engagement.`\
+https://nytimes.com/video/us/politics/100000010621144/mamdani-creates-office-of-mass-engagement.html
+
 **Trump Super PAC Raised More Than $100 Million in Recent Months**\
 `The haul highlights how the president’s team has continued aggressive fund-raising from donors with interests before the administration.`\
 https://nytimes.com/2026/01/02/us/politics/trump-super-pac-maga-inc-fundraising.html
