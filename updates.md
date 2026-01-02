@@ -1,3 +1,15 @@
+**College Football Playoff odds: Indiana emerges as title favorite ahead of semifinals**\
+`With four teams left, Indiana is the clear favorite to win the national title.`\
+https://nytimes.com/athletic/6934727/2026/01/02/college-football-playoff-odds-indiana-miami-ole-miss-oregon/
+
+**Charlotte interest in Harvey Elliott as Villa seek to terminate loan from Liverpool**\
+`Elliott's Villa loan includes obligation to make the transfer permanent from Liverpool in summer 2026 if he makes 10 appearances this season`\
+https://nytimes.com/athletic/6935669/2026/01/02/harvey-elliott-aston-villa-liverpool-transfer-charlotte-mls/
+
+**The Bounce: New Year's resolutions for every NBA team**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/6935722/2026/01/02/nba-new-years-resolution-knicks-lakers-spurs-the-bounce/
+
 **What’s Going On in This Graph? | Jan. 14, 2026**\
 `Who are the adults in children’s lives?`\
 https://nytimes.com/2026/01/02/learning/whats-going-on-in-this-graph-jan-14-2026.html
