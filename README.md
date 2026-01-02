@@ -1,3 +1,7 @@
+**Quote of the Day: ‘Zero Hour’ in Middle East As War-Weariness Sets In**\
+`Quotation of the Day for Friday, January 2, 2026.`\
+https://nytimes.com/2026/01/01/pageoneplus/quote-of-the-day-zero-hour-in-middle-east-as-war-weariness-sets-in.html
+
 **Scheifele holds head high despite Olympics snub: 'Don't know what else I could have done'**\
 `The Jets center ranks sixth among all Canadian skaters in points per game.`\
 https://nytimes.com/athletic/6934959/2026/01/01/mark-scheifele-team-canada-snub-olympics/
@@ -33,8 +37,4 @@ https://nytimes.com/video/nyregion/100000010619911/mayor-zohran-mamdani-inaugura
 **Jonas Valančiūnas out at least a month as injuries mount for Denver Nuggets**\
 `Already down four starters, the Denver Nuggets will be without backup big man Jonas Valančiūnas for at least a month.`\
 https://nytimes.com/athletic/6934688/2026/01/01/denver-nuggets-injuries-valanciunas-jokic-johnson-gordon-braun/
-
-**Dan Lanning's Oregon is unabashedly aggressive, and it fueled dominance against Texas Tech**\
-`Oregon's offense will need to be better against Indiana, but if the Ducks lose, it won't be because they melt under the spotlight.`\
-https://nytimes.com/athletic/6934560/2026/01/01/oregon-dan-lanning-texas-tech-college-football-playoff-win/
 
