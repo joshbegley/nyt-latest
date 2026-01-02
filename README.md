@@ -1,3 +1,7 @@
+**When is it time to part with a Super Bowl coach? Mike Tomlin, John Harbaugh in rare territory**\
+`As Mike Tomlin and John Harbaugh meet for a playoff spot, they're pushing historical boundaries for seasons without a Super Bowl title.`\
+https://nytimes.com/athletic/6934376/2026/01/02/mike-tomlin-john-harbaugh-hot-seat-ravens-steelers/
+
 **Map: 6.5-Magnitude Earthquake Shakes Mexico**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2026/01/02/world/americas/earthquake-mexico-tracker.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6560541/2026/01/02/college-football-playoff-bracket
 **Eintracht Frankfurt confident of signing Kalimuendo on loan from Forest**\
 `The 23-year-old forward has been used sparingly at Forest despite the injury to Chris Wood.`\
 https://nytimes.com/athletic/6935625/2026/01/02/arnaud-kalimuendo-forest-frankfurt/
-
-**No Corrections: Jan. 2, 2026**\
-`No corrections appeared in print on Friday, Jan. 2, 2026.`\
-https://nytimes.com/2026/01/02/pageoneplus/no-corrections-jan-2-2026.html
 
