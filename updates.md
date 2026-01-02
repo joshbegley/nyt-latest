@@ -1,3 +1,7 @@
+**‘I Will Govern as a Democratic Socialist,’ Mamdani Says at Inauguration**\
+`Mayor Zohran Mamdani was inaugurated as the mayor of New York City on Thursday in a ceremony attended by thousands outside City Hall.`\
+https://nytimes.com/video/nyregion/100000010619911/mayor-zohran-mamdani-inauguration.html
+
 **Jonas Valančiūnas out at least a month as injuries mount for Denver Nuggets**\
 `Already down four starters, the Denver Nuggets will be without backup big man Jonas Valančiūnas for at least a month.`\
 https://nytimes.com/athletic/6934688/2026/01/01/denver-nuggets-injuries-valanciunas-jokic-johnson-gordon-braun/
