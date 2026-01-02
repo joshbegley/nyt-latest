@@ -1,7 +1,3 @@
-**NFL Week 18 model-projected scores and point totals for every game**\
-`Austin Mock's NFL model has projected point spreads and totals for every Week 18 game.`\
-https://nytimes.com/athletic/6936256/2026/01/02/nfl-week-18-projected-scores-model-point-spreads-totals/
-
 **The Service Dogs Helping Veterans With PTSD**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/ptsd-service-dogs
@@ -37,4 +33,8 @@ https://nytimes.com/interactive/2026/01/02/upshot/flashback.html
 **Israeli Government Accuses Mamdani of Antisemitism Over Canceled Orders**\
 `Mayor Zohran Mamdani of New York canceled executive orders issued by his predecessor that had barred city agencies from boycotting Israel and defined some criticism of Israel as antisemitic.`\
 https://nytimes.com/2026/01/02/nyregion/mamdani-israel-executive-orders.html
+
+**A Diminished Congress Weighs Whether to Reassert Its Power**\
+`Lawmakers head into President Trump’s second year facing questions about whether they can reclaim congressional clout in the face of his power grab.`\
+https://nytimes.com/2026/01/02/us/politics/trump-congress-power-republicans-democrats.html
 

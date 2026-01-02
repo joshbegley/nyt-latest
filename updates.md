@@ -1,3 +1,7 @@
+**NFL Week 18 model-projected scores and point totals for every game**\
+`Austin Mock's NFL model has projected point spreads and totals for every Week 18 game.`\
+https://nytimes.com/athletic/6936256/2026/01/02/nfl-week-18-projected-scores-model-point-spreads-totals/
+
 **The Service Dogs Helping Veterans With PTSD**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/ptsd-service-dogs
