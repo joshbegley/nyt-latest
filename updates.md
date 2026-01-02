@@ -1,3 +1,11 @@
+**Feldman: Curt Cignetti beat Alabama with an Indiana team that looked like the Bama of old**\
+`If it wasn’t 2026, most football fans Thursday at the Rose Bowl would have thought Indiana was Alabama and the Tide were the Hoosiers.`\
+https://nytimes.com/athletic/6934917/2026/01/01/indiana-alabama-rose-bowl-curt-cignetti-cfp/
+
+**Will Ferrell dresses up as NHL referee at Kings game, makes calls in stands**\
+`The actor and longtime Kings fan wore full referee attire and was "ready to go at a moment’s notice" in case he was needed on the ice.`\
+https://nytimes.com/athletic/6934953/2026/01/01/will-ferrell-kings-nhl-referee-lightning/
+
 **Troy Aikman to advise Dolphins in their search for a general manager**\
 `The team wanted a voice from outside the organization with connections across the NFL to weigh in on the hire, a source confirmed.`\
 https://nytimes.com/athletic/6934545/2026/01/01/dolphins-bring-troy-aikman-gm-search/
