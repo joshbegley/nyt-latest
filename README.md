@@ -1,3 +1,11 @@
+**Texas Tech could be adding tallest player in women's college basketball**\
+`Stephanie Okechukwu, a 7-footer from Nigeria, will be joining the Red Raiders if the NCAA approves her eligibility.`\
+https://nytimes.com/athletic/6934745/2026/01/01/texas-tech-stephanie-okechukwu-tallest-player/
+
+**Indiana handed Alabama its worst bowl loss ever. Was it the Hoosiers' greatest win?**\
+`Ranking the top 10 wins in Indiana football history, a list that can't help but be heavily slanted toward a remarkable 2025 season.`\
+https://nytimes.com/athletic/6934737/2026/01/01/indiana-football-biggest-wins-rose-bowl-alabama/
+
 **Search Is Suspended for Passenger Who Went Overboard From Cruise Ship**\
 `The U.S. Coast Guard said on Thursday that it halted its hourslong search for a 77-year-old woman who went overboard from a Holland America Line cruise ship near Cuba.`\
 https://nytimes.com/2026/01/01/world/americas/passenger-overboard-holland-america-cruise.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6934348/2026/01/01/indiana-alabama-score-rose-bowl-
 **College Football Playoff 2025 projections: Indiana is now the national title favorite**\
 `Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
 https://nytimes.com/athletic/6560541/2026/01/01/college-football-playoff-bracket-projections-odds/
-
-**What I'm seeing from Winter Classic: Adam Fox on Olympic exclusion, Miami ice quality, more**\
-`Though the U.S. Olympic roster won't be formally announced until Friday, defenseman Adam Fox already knows he won't be on it.`\
-https://nytimes.com/athletic/6934532/2026/01/01/rangers-winter-classic-fox-olympics-rempe/
-
-**Amid Poetry, Song and the Cold, Mamdani’s Inauguration Evokes Hope**\
-`A communal spectacle, spilling out of City Hall into the streets of Broadway, conveyed how many New Yorkers see the promise in a Zohran Mamdani mayoralty.`\
-https://nytimes.com/2026/01/01/nyregion/mamdani-inauguration-scene.html
 
