@@ -1,3 +1,7 @@
+**The Rams are banking on Quentin Lake and others to stop their late-season slide**\
+`Sean McVay and his team know they can't go into the playoffs in their current form.`\
+https://nytimes.com/athletic/6935178/2026/01/02/rams-quentin-lake-late-season-form/
+
 **Where does Michigan go from here? 10 thoughts on Kyle Whittingham's rebuild**\
 `As Whittingham assembles his Michigan coaching staff, many things are on the to-do list with the transfer portal opening on Friday.`\
 https://nytimes.com/athletic/6934914/2026/01/02/michigan-kyle-whittingham-transfer-portal-underwood/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6935045/2026/01/02/maple-leafs-matthews-scoring-dom
 **Penguins overcome special-teams slugfest in Letang's 1,200th game: Observations**\
 `The Penguins struggled to keep themselves in check along with some questionable officiating in a dramatic back-and-forth with the Red Wings.`\
 https://nytimes.com/athletic/6934831/2026/01/02/penguins-letang-crosby-penalties-red-wings/
-
-**Panthers-Bucs showdown: Analyzing the matchup and predicting the winner**\
-`The Panthers have a couple of ways to reach the postseason, but beating the Bucs and clinching Saturday is what they prefer.`\
-https://nytimes.com/athletic/6934379/2026/01/02/panthers-bucs-prediction-nfc-south-playoffs/
 
