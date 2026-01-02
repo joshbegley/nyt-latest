@@ -1,3 +1,7 @@
+**Curt Cignetti and Lane Kiffin got a lot richer by Indiana and Ole Miss reaching the CFP semis**\
+`The Indiana and former Ole Miss head coaches will receive tidy sums because of incentive bonuses in their contracts.`\
+https://nytimes.com/athletic/6935051/2026/01/02/curt-cignetti-lane-kiffin-bonus-incentives-cfp-semifinal/
+
 **What the heck happened in the final seconds of Ole Miss vs. Georgia?**\
 `Sugar Bowl officials rolled the postgame stage onto the field, only for the game to continue with another play.`\
 https://nytimes.com/athletic/6935149/2026/01/02/ole-miss-georgia-final-play-delay-officials/
