@@ -1,3 +1,7 @@
+**Your Antarctica Questions, Answered**\
+`Our reporter Raymond Zhong takes a first round of questions about the trip to Antarctica. First up: How can data gathered on the trip tell us how much time is left for the glaciers?`\
+https://nytimes.com/video/climate/100000010617323/your-antarctica-questions-answered.html
+
 **Parachutist gets tangled in field goal net at Armed Forces bowl**\
 `The parachutist was not seriously injured and walked off under his own power, a bowl spokesman said.`\
 https://nytimes.com/athletic/6936454/2026/01/02/armed-forces-bowl-parachutist-tangled/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/02/us/mountain-lion-attack-hiker-dead-colorado.html
 **From sideline reporter to halftime host: How does ESPN's Laura Rutledge do it?**\
 `Video from Thursday's Georgia-Ole Miss CFP game shows just how much Rutledge has to hustle to fulfill her broadcasting duties.`\
 https://nytimes.com/athletic/6936309/2026/01/02/laura-rutledge-espn-cfp-host-sideline-reporter/
-
-**Neymar set to sign Santos contract extension**\
-`The extension is set to run through to December 2026.`\
-https://nytimes.com/athletic/6913369/2026/01/02/neymar-transfer-santos-contract/
 
