@@ -1,3 +1,7 @@
+**Tottenham defender Takai joins Gladbach on loan**\
+`Takai joined Spurs on a five-year contract from Kawasaki Frontale in July for a J-League record fee of around £5million.`\
+https://nytimes.com/athletic/6935553/2026/01/02/tottenham-kota-takai-monchengladbach-transfer/
+
 **Lamar Jackson, Ravens can redefine season vs. Steelers: 'I’ve never quit on anything'**\
 `The 2025 season has been a struggle for Lamar Jackson. But with his future with the Ravens uncertain, Week 18 presents a huge opportunity.`\
 https://nytimes.com/athletic/6934523/2026/01/02/lamar-jackson-ravens-steelers/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/02/world/europe/zelensky-budanov-ukraine-chief-of-st
 **Jamal Murray is standing tall as the Nuggets' last starter still standing**\
 `Denver has suffered a rash of injuries, including to Nikola Jokić. Luckily, Murray is playing at an All-Star level after a summer of rest.`\
 https://nytimes.com/athletic/6935319/2026/01/02/jamal-murray-injuries-nuggets-all-star/
-
-**Le Constellation, Where Fire Hit, Was Popular With Young People**\
-`More affordable prices and the lack of an entrance fee made the bar an attractive alternative to more upmarket establishments.`\
-https://nytimes.com/2026/01/02/world/europe/le-constellation-bar-switzerland-fire.html
 
