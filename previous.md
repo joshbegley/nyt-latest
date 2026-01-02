@@ -1,3 +1,7 @@
+**Is It Healthy to Take Aspirin Every Day?**\
+`Despite his doctors’ recommendations, President Trump takes a high dose.`\
+https://nytimes.com/2026/01/02/well/trump-health-asprin-dosage-blood.html
+
 **How to watch Kings vs. Suns: Time, TV, streaming**\
 `Find out how to watch the Sacramento Kings play the Phoenix Suns, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6936430/2026/01/02/kings-vs-suns-stream-how-to-watch-jan-2/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6936409/2026/01/02/hornets-vs-bucks-stream-how-to-w
 **Waterlogged California Braces for More Rain**\
 `Heavy rain has drenched California since mid-December, causing flooding and landslides. The National Weather Service forecasts another 1 to 6 inches of rain will fall this weekend.`\
 https://nytimes.com/video/weather/100000010620930/california-rain-weekend-forcast.html
-
-**How to watch Hawks vs. Knicks: Time, TV, streaming**\
-`Find out how to watch the Atlanta Hawks play the New York Knicks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6936405/2026/01/02/hawks-vs-knicks-stream-how-to-watch-jan-2/
 
