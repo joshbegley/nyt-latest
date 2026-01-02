@@ -1,3 +1,11 @@
+**When is it time to part with a Super Bowl coach? Mike Tomlin, John Harbaugh in rare territory**\
+`As Mike Tomlin and John Harbaugh meet for a playoff spot, they're pushing historical boundaries for seasons without a Super Bowl title.`\
+https://nytimes.com/athletic/6934376/2026/01/02/mike-tomlin-john-harbaugh-hot-seat-ravens-steelers/
+
+**Map: 6.5-Magnitude Earthquake Shakes Mexico**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2026/01/02/world/americas/earthquake-mexico-tracker.html
+
 **Chelsea head coach contender Rosenior offers no guarantees he will remain at Strasbourg**\
 `The Athletic reported on Thursday that Rosenior is currently the frontrunner to succeed Enzo Maresca at Stamford Bridge.`\
 https://nytimes.com/athletic/6935700/2026/01/02/liam-rosenior-chelsea-strasbourg-future/
