@@ -1,4 +1,8 @@
-**Texas Tech could be adding tallest player in women's college basketball**\
+**Dance Move**\
+`Adam Wagner and Rafael Musa’s puzzle is a lovely parting gift for this columnist.`\
+https://nytimes.com/2026/01/01/crosswords/daily-puzzle-2026-01-02.html
+
+**Texas Tech adding tallest player in women's college basketball: Report**\
 `Stephanie Okechukwu, a 7-footer from Nigeria, will be joining the Red Raiders if the NCAA approves her eligibility.`\
 https://nytimes.com/athletic/6934745/2026/01/01/texas-tech-stephanie-okechukwu-tallest-player/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6934535/2026/01/01/texas-tech-portal-playoff-orange
 **How Indiana dismantled Alabama in Rose Bowl rout that was never in doubt**\
 `Heisman winner Fernando Mendoza and No. 1 Indiana dominated Alabama 38-3 to win a College Football Playoff quarterfinal at the Rose Bowl.`\
 https://nytimes.com/athletic/6934348/2026/01/01/indiana-alabama-score-rose-bowl-cfp/
-
-**College Football Playoff 2025 projections: Indiana is now the national title favorite**\
-`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
-https://nytimes.com/athletic/6560541/2026/01/01/college-football-playoff-bracket-projections-odds/
 

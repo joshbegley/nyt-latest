@@ -1,3 +1,11 @@
+**Dance Move**\
+`Adam Wagner and Rafael Musa’s puzzle is a lovely parting gift for this columnist.`\
+https://nytimes.com/2026/01/01/crosswords/daily-puzzle-2026-01-02.html
+
+**Texas Tech adding tallest player in women's college basketball: Report**\
+`Stephanie Okechukwu, a 7-footer from Nigeria, will be joining the Red Raiders if the NCAA approves her eligibility.`\
+https://nytimes.com/athletic/6934745/2026/01/01/texas-tech-stephanie-okechukwu-tallest-player/
+
 **Texas Tech could be adding tallest player in women's college basketball**\
 `Stephanie Okechukwu, a 7-footer from Nigeria, will be joining the Red Raiders if the NCAA approves her eligibility.`\
 https://nytimes.com/athletic/6934745/2026/01/01/texas-tech-stephanie-okechukwu-tallest-player/
