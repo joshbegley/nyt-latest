@@ -1,3 +1,7 @@
+**‘I Just Ripped It Off’: How a Teenager Saved Lives at the Swiss Fire**\
+`Nestor Fischer, 17, forced open a blocked door at Le Constellation, the Swiss bar that caught fire on New Year’s Day`\
+https://nytimes.com/2026/01/02/world/europe/teenager-rescue-burning-bar.html
+
 **‘The Ezra Klein Show’ 2025 Book Recommendations**\
 `Readings that the podcast’s guests say shaped their thinking.`\
 https://nytimes.com/2026/01/02/opinion/the-ezra-klein-show-2025-book-recommendations.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/02/books/review/american-reich-eric-lichtblau.html
 **The Best Tabletop Party Games **\
 `Text by James Austin`\
 https://nytimes.com/card/2026/01/02/smarter-living/wirecutter/
-
-**Should You Tell a Stranger That She Has Bird Poop on Her Shoulder?**\
-`A ruling on a matter of coffee-shop etiquette.`\
-https://nytimes.com/interactive/2026/01/02/magazine/bird-poop-hodgman-quiz.html
 

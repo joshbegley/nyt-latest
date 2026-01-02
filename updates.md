@@ -1,3 +1,11 @@
+**‘The Ezra Klein Show’ 2025 Book Recommendations**\
+`Readings that the podcast’s guests say shaped their thinking.`\
+https://nytimes.com/2026/01/02/opinion/the-ezra-klein-show-2025-book-recommendations.html
+
+**North Carolina Man Accused of Planning Potential Terrorist Attack**\
+`The 18-year-old, radicalized online, was planning a New Year’s Eve attack in a Charlotte suburb, officials said.`\
+https://nytimes.com/2026/01/02/us/north-carolina-man-terrorist-attack-fbi.html
+
 **North Carolina Man Accused of Planning Potential Terrorist Attack, F.B.I. Says**\
 `The 18-year-old, radicalized online, was planning a New Year’s Eve attack in a Charlotte suburb, officials said.`\
 https://nytimes.com/2026/01/02/us/north-carolina-man-terrorist-attack-fbi.html
