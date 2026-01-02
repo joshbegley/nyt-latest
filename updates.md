@@ -1,3 +1,11 @@
+**Unboxing 450 Pounds of Returned Goods**\
+`What happens when you return something? Unfortunately, it doesn’t always make it back to the seller. We sifted through 450 pounds of returned products. Here’s what we found.`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010620830/unboxing-450-pounds-of-returned-goods.html
+
+**Why Tatsuya Imai went with short-term contract and more MLB offseason notes**\
+`We break down Imai's contract with the Astros, Kazuma Okamoto's versatility and more.`\
+https://nytimes.com/athletic/6935827/2026/01/02/tatsuya-imai-astros-contract-kazuma-okamoto-mlb-offseason/
+
 **My Grandchildren Don’t Thank Me for Christmas Gifts. Is This a Moral Failure?**\
 `Our Ask the Therapist columnist, Lori Gottlieb, advises a reader who worries that their grandkids are not being raised with good values or manners.`\
 https://nytimes.com/2026/01/02/well/mind/ask-therapist-grandkid-gifts.html
