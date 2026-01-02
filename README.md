@@ -1,3 +1,11 @@
+**Wall Street Sees Another Banner Year for Markets. Could Anything Stop It?**\
+`Analysts have forecast more stellar gains for the S&P 500. But concerns about inflation, the dollar and sky-high valuations could make for a choppy run.`\
+https://nytimes.com/2026/01/02/business/dealbook/wall-street-market-prediction.html
+
+**Zelensky Asks General to Replace Chief of Staff Ousted in Graft Scandal**\
+`Kyrylo Budanov, who has served as Ukraine’s military intelligence chief, is seen as a potential rival to Mr. Zelensky if elections are held.`\
+https://nytimes.com/2026/01/02/world/europe/zelensky-budanov-ukraine-chief-of-staff-yermak.html
+
 **Jamal Murray is standing tall as the Nuggets' last starter still standing**\
 `Denver has suffered a rash of injuries, including to Nikola Jokić. Luckily, Murray is playing at an All-Star level after a summer of rest.`\
 https://nytimes.com/athletic/6935319/2026/01/02/jamal-murray-injuries-nuggets-all-star/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6934861/2026/01/02/connor-bedard-olympics-mvp-black
 **49ers' Austen Pleasants gets tough love after replacing Trent Williams**\
 `Starting left tackle Trent Williams hasn't been ruled out for Saturday's game, but he didn't practice this week on his injured hamstring.`\
 https://nytimes.com/athletic/6934738/2026/01/02/austen-pleasants-49ers-left-tackle-trent-williams/
-
-**Notre Dame mailbag: Do the Irish have a scheduling problem without USC?**\
-`For Fighting Irish fans, this offseason already feels like a grind, and it has barely begun.`\
-https://nytimes.com/athletic/6933280/2026/01/02/notre-dame-mailbag-usc-byu-schedule/
-
-**The transfer portal opens Friday: Here's what you need to know**\
-`The open portal window is the most consequential period in roster construction and can turn a pretender into a contender in a hurry.`\
-https://nytimes.com/athletic/6933879/2026/01/02/college-football-transfer-portal-guide/
 
