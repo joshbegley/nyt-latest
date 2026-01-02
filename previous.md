@@ -1,3 +1,7 @@
+**Neymar set to sign Santos contract extension**\
+`The extension is set to run through to December 2026.`\
+https://nytimes.com/athletic/6913369/2026/01/02/neymar-transfer-santos-contract/
+
 **West Ham sign striker Pablo from Gil Vicente**\
 `Pablo, 22, has signed a four-and-a-half-year deal at West Ham.`\
 https://nytimes.com/athletic/6936489/2026/01/02/pablo-felipe-west-ham-transfer-news/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6936230/2026/01/02/michigan-offensive-defensive-coo
 **How a ‘Hamilton’ Star Spends a Day at His Brooklyn Bar**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/anthony-ramos-hamilton
-
-**Is It Healthy to Take Aspirin Every Day?**\
-`Despite his doctors’ recommendations, President Trump takes a high dose.`\
-https://nytimes.com/2026/01/02/well/trump-health-asprin-dosage-blood.html
 
