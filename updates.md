@@ -1,3 +1,11 @@
+**It’s Likely That a Flashover Occurred During the Swiss Bar Fire. Here’s What That Means.**\
+`A flashover is an event where an entire room is rapidly engulfed in flames.`\
+https://nytimes.com/2026/01/02/world/europe/switzerland-resort-bar-fire-flashover.html
+
+**Trump Says U.S. Is ‘Locked and Loaded’ if Iran Kills Protesters**\
+`Mr. Trump’s remarks that he was ready to come to the protesters’ “rescue” are a sharp escalation as protests over economic hardship turned deadly.`\
+https://nytimes.com/2026/01/02/world/middleeast/trump-iran-protests.html
+
 **Can anyone save the Raiders? It's time for Tom Brady to try**\
 `Brady as a silent advisor to the Las Vegas Raiders is one thing, but a present, fully accountable boss would send a far different message.`\
 https://nytimes.com/athletic/6926744/2026/01/02/tom-brady-las-vegas-raiders-worst-record-nfl/
