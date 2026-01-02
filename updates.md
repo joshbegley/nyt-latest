@@ -1,3 +1,7 @@
+**Why Exercise Is the Best Thing for Your Brain Health**\
+`Research shows that people who exercise regularly tend to perform better on attention, memory and executive functioning tests. Dana G. Smith, a reporter for Well, explains.`\
+https://nytimes.com/video/well/100000010594750/why-exercise-is-the-best-thing-for-your-brain-health.html
+
 **Trump Says U.S. Will Aid Protesters if Iran Uses Lethal Force on Them**\
 `After days of demonstrations across Iran, President Trump said that if the government there were to kill peaceful antigovernment protesters, the United States would intervene.`\
 https://nytimes.com/video/world/asia/100000010620223/iran-protests-trump.html
