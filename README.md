@@ -1,3 +1,15 @@
+**Overlooked No More: Pamela Colman Smith, Artist Behind a Famous Tarot Deck**\
+`She hand-painted around 80 illustrations for the Rider-Waite deck, which is still used around the world to predict destinies.`\
+https://nytimes.com/2026/01/02/obituaries/pamela-colman-smith-overlooked.html
+
+**Hiker Killed in Suspected Mountain Lion Attack, Colorado’s First in Decades**\
+`A woman’s body was found on a trail on Crosier Mountain this week, with a mountain lion nearby.`\
+https://nytimes.com/2026/01/02/us/mountain-lion-attack-hiker-dead-colorado.html
+
+**From sideline reporter to halftime host: How does ESPN's Laura Rutledge do it?**\
+`Video from Thursday's Georgia-Ole Miss CFP game shows just how much Rutledge has to hustle to fulfill her broadcasting duties.`\
+https://nytimes.com/athletic/6936309/2026/01/02/laura-rutledge-espn-cfp-host-sideline-reporter/
+
 **Neymar set to sign Santos contract extension**\
 `The extension is set to run through to December 2026.`\
 https://nytimes.com/athletic/6913369/2026/01/02/neymar-transfer-santos-contract/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/01/02/weather/california-rain-forecast.html
 **Saks C.E.O. Steps Down as Company Struggles to Pay Down Debt**\
 `Saks Global’s executive chairman, Richard Baker, is taking over the luxury retailer he created with the 2024 acquisition of Neiman Marcus and Bergdorf Goodman.`\
 https://nytimes.com/2026/01/02/business/saks-ceo-marc-metrick-steps-down.html
-
-**Myles Garrett on Browns' struggles: 'Tanking or rebuilding, that's not me'**\
-`Browns star, who could break the NFL's single-season sacks record on Sunday, is open to revisiting his status with fourth-place club.`\
-https://nytimes.com/athletic/6936302/2026/01/02/myles-garrett-browns-rebuild-comments/
-
-**Michigan hires offensive, defensive coordinators amid coaching staff overhaul**\
-`Jason Beck and Jay Hill will join new head coach Kyle Whittingham at Michigan after working with Whittingham at previous stops.`\
-https://nytimes.com/athletic/6936230/2026/01/02/michigan-offensive-defensive-coordinator-hires/
-
-**How a ‘Hamilton’ Star Spends a Day at His Brooklyn Bar**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/anthony-ramos-hamilton
 
