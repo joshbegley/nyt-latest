@@ -1,3 +1,7 @@
+**Troy Aikman to advise Dolphins in their search for a general manager**\
+`The team wanted a voice from outside the organization with connections across the NFL to weigh in on the hire, a source confirmed.`\
+https://nytimes.com/athletic/6934545/2026/01/01/dolphins-bring-troy-aikman-gm-search/
+
 **Dance Move**\
 `Adam Wagner and Rafael Musa’s puzzle is a lovely parting gift for this columnist.`\
 https://nytimes.com/2026/01/01/crosswords/daily-puzzle-2026-01-02.html

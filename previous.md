@@ -26,8 +26,8 @@ https://nytimes.com/athletic/6934688/2026/01/01/denver-nuggets-injuries-valanciu
 `Oregon's offense will need to be better against Indiana, but if the Ducks lose, it won't be because they melt under the spotlight.`\
 https://nytimes.com/athletic/6934560/2026/01/01/oregon-dan-lanning-texas-tech-college-football-playoff-win/
 
-**Troy Aikman criticized Dolphins on MNF last month. Now he’s advising team on GM search**\
-`The broadcaster and Hall of Fame quarterback will sit in on interviews as the team tries to find a replacement for Chris Grier.`\
+**Troy Aikman to advise Dolphins in their search for a general manager**\
+`The team wanted a voice from outside the organization with connections across the NFL to weigh in on the hire, a source confirmed.`\
 https://nytimes.com/athletic/6934545/2026/01/01/dolphins-bring-troy-aikman-gm-search/
 
 **$25 million, zero CFP points and another offseason climb ahead for Texas Tech**\
