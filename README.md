@@ -1,3 +1,7 @@
+**Israeli Government Accuses Mamdani of Antisemitism Over Canceled Orders**\
+`Mayor Zohran Mamdani of New York canceled executive orders issued by his predecessor that had barred city agencies from boycotting Israel and defined some criticism of Israel as antisemitic.`\
+https://nytimes.com/2026/01/02/nyregion/mamdani-israel-executive-orders.html
+
 **A Diminished Congress Weighs Whether to Reassert Its Power**\
 `Lawmakers head into President Trump’s second year facing questions about whether they can reclaim congressional clout in the face of his power grab.`\
 https://nytimes.com/2026/01/02/us/politics/trump-congress-power-republicans-democrats.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/02/business/media/richard-pollak-dead.html
 **Sweden, Finland announce men’s hockey rosters for 2026 Olympics: Snubs, surprises and expectations**\
 `Sweden had tough decisions on defense, while Finland has depth but lacks top talent.`\
 https://nytimes.com/athletic/6936117/2026/01/02/team-sweden-finland-2026-olympic-hockey-roster-mens/
-
-**Chants of ‘Tax the Rich’ Fuel a Brooklyn Rave for Mayor Mamdani**\
-`Democratic Socialists gathered at a Bushwick dance club to celebrate as one of their members began to govern New York City.`\
-https://nytimes.com/2026/01/02/style/mamdani-paragon-brooklyn-democratic-socialist.html
 
