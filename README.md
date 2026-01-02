@@ -1,3 +1,11 @@
+**Can 'maverick' Matheus Cunha step up in Bruno Fernandes' absence?**\
+`Matheus Cunha has adjusted well to life at Old Trafford but needs to deliver this month with United shorn of many top players`\
+https://nytimes.com/athletic/6519748/2026/01/02/matheus-cunha-bruno-fernandes-analysis/
+
+**'Intelligent, unorthodox, unique': Matt Jackson, the man tasked with turning Wolves around**\
+`The 54-year-old has a tough task ahead of him at Wolves, but those who know him believe he is more than well-equipped`\
+https://nytimes.com/athletic/6925885/2026/01/02/wolves-matt-jackson-profile-technical-director/
+
 **Ole Miss rallies to stun Georgia, continue magical run into CFP semifinals**\
 `Ole Miss is going on to the national semifinals, an improbable season becoming an improbable story.`\
 https://nytimes.com/athletic/6935031/2026/01/02/ole-miss-georgia-score-result-college-football-playoff/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/02/style/modern-love-my-mother-and-fathers-long-happ
 **Rushing to Her Father’s Hospital Bedside, with a Wedding in Tow**\
 `Arianna Lacerte grew up around the Boston Celtics because of her dad’s job. But it wasn’t just a mutual love of sports that attracted Josh Kipnis — it was their shared love of family.`\
 https://nytimes.com/2026/01/02/style/arianna-lacerte-josh-kipnis-wedding.html
-
-**In China, A.I. Is Finding Deadly Tumors That Doctors Might Miss**\
-`A tool for spotting pancreatic cancer in routine CT scans has had promising results, one example of how China is racing to apply A.I. to medicine’s tough problems.`\
-https://nytimes.com/2026/01/02/world/asia/china-ai-cancer-pancreatic.html
-
-**Can the Most Indebted Team in Global Soccer Fix Its Finances?**\
-`F.C. Barcelona’s liabilities have reached 2.5 billion euros, the result of financial mismanagement and vaulting ambition.`\
-https://nytimes.com/2026/01/02/world/europe/barcelona-debt-soccer.html
 
