@@ -1,3 +1,7 @@
+**Live Updates: Swiss Officials Search for Answers in Deadly New Year’s Fire**\
+`About 40 people were killed and more than 100 others injured in the blaze at a bar in a resort town. The authorities were trying to pinpoint the cause and identify bodies.`\
+https://nytimes.com/live/2026/01/02/world/switzerland-ski-resort-fire
+
 **Here’s the latest.**\
 `By Ségolène Le Stradic and Dan Watson`\
 https://nytimes.com/live/2026/01/02/world/switzerland-ski-resort-fire/heres-the-latest
