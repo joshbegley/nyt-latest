@@ -1,3 +1,7 @@
+**Park City, Utah**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/things-to-do-park-city
+
 **D.C. Pipe Bomb Suspect Ordered to Remain in Jail Until Trial**\
 `A magistrate judge said he was concerned that the defendant, Brian Cole Jr., had continued after Jan. 6, 2021, to purchase components similar to those prosecutors said he had used to make pipe bombs.`\
 https://nytimes.com/2026/01/02/us/politics/dc-pipe-bomb-suspect-jail.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/02/opinion/mamdani-nyc-future.html
 **Building Team USA: Guerin on leaving Robertson, other scorers off roster — 'Have to fill roles'**\
 `Olympic GM Bill Guerin called the process of finalizing the U.S. men's hockey roster "exhausting" but thinks he found the right mix.`\
 https://nytimes.com/athletic/6936038/2026/01/02/bill-guerin-mike-sullivan-team-usa-roster/
-
-**Rory McIlroy would accept return of LIV golfers to PGA Tour**\
-`McIlroy said it might be best for the sport's growth to bring back LIV golfers.`\
-https://nytimes.com/athletic/6936097/2026/01/02/rory-mcilroy-liv-golfers-return-pga-tour/
 
