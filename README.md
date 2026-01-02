@@ -1,3 +1,7 @@
+**Their Eyes**\
+`The unseen workers who help train self-driving cars to see.`\
+https://nytimes.com/video/opinion/100000010486246/their-eyes.html
+
 **Here’s the latest.**\
 `By Ségolène Le Stradic and Dan Watson`\
 https://nytimes.com/live/2026/01/02/world/switzerland-ski-resort-fire/heres-the-latest
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6929007/2026/01/02/tottenham-hotspur-brentford-thom
 **Teen Recounts Escape from Deadly Swiss Fire**\
 `People gathered at memorials in the resort town of Crans-Montana, Switzerland, to grieve for the victims of a deadly New Year’s fire at a bar. A survivor described her harrowing escape.`\
 https://nytimes.com/video/world/europe/100000010619991/switzerland-ski-resort-fire.html
-
-**New-look Liverpool were supposed to be built for beating low blocks. They're still struggling**\
-`Liverpool were held to a 0-0 draw by Leeds United on Thursday evening`\
-https://nytimes.com/athletic/6934027/2026/01/02/liverpool-leeds-analysis/
 
