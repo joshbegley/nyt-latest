@@ -1,3 +1,7 @@
+**It’s Likely That a Flashover Occurred During the Swiss Bar Fire. Here’s What That Means.**\
+`A flashover is an event where an entire room is rapidly engulfed in flames.`\
+https://nytimes.com/2026/01/02/world/europe/switzerland-resort-bar-fire-flashover.html
+
 **Can anyone save the Raiders? It's time for Tom Brady to try**\
 `Brady as a silent advisor to the Las Vegas Raiders is one thing, but a present, fully accountable boss would send a far different message.`\
 https://nytimes.com/athletic/6926744/2026/01/02/tom-brady-las-vegas-raiders-worst-record-nfl/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/02/opinion/contributors/aca-subsidies-expiring.html
 **The New York Times News Quiz, Jan. 2, 2026**\
 `Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
 https://nytimes.com/interactive/2026/01/02/briefing/news-quiz-trump-venezuela-new-years-eve.html
-
-**The Trouble With My Father’s Final Resting Place**\
-`If anyone should be prepared to know how to handle my dad’s ashes, it’s me.`\
-https://nytimes.com/2026/01/02/opinion/death-remains-ashes.html
 
