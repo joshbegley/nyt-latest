@@ -1,3 +1,19 @@
+**The Best Boxed Brownie Mixes**\
+`To find the gooiest, fudgiest brownies, we baked 15 batches from boxed mixes. We landed on four favorites — and sadly, Ghirardelli didn’t even make the cut.`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010620895/the-best-boxed-brownie-mixes.html
+
+**He Was Fascinated by the School Nazi. He Ended Up Dead.**\
+`In “American Reich,” the former New York Times journalist Eric Lichtblau dissects the culture of hate that led to the death of a gay man in Southern California.`\
+https://nytimes.com/2026/01/02/books/review/american-reich-eric-lichtblau.html
+
+**The Best Tabletop Party Games **\
+`Text by James Austin`\
+https://nytimes.com/card/2026/01/02/smarter-living/wirecutter/
+
+**Should You Tell a Stranger That She Has Bird Poop on Her Shoulder?**\
+`A ruling on a matter of coffee-shop etiquette.`\
+https://nytimes.com/interactive/2026/01/02/magazine/bird-poop-hodgman-quiz.html
+
 **Until Saturday: First new national champ since 1996?**\
 `Until Saturday is The Athletic's free college football newsletter.`\
 https://nytimes.com/athletic/6936029/2026/01/02/college-football-playoff-semifinals-until-saturday/
