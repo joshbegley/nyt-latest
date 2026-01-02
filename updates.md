@@ -1,3 +1,7 @@
+**D.C. Pipe Bomb Suspect Ordered to Remain in Jail Until Trial**\
+`A magistrate judge said he was concerned that the defendant, Brian Cole Jr., had continued after Jan. 6, 2021, to purchase components similar to those prosecutors said he had used to make pipe bombs.`\
+https://nytimes.com/2026/01/02/us/politics/dc-pipe-bomb-suspect-jail.html
+
 **Violinist on Will Smith’s Tour Files Wrongful Termination Lawsuit**\
 `A lawyer for the musician, Brian King Joseph, says in the court papers that Mr. Joseph was fired after reporting sexual harassment.`\
 https://nytimes.com/2026/01/02/arts/music/will-smith-lawsuit-brian-king-joseph.html
