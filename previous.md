@@ -1,3 +1,7 @@
+**West Ham sign striker Pablo from Gil Vicente**\
+`Pablo, 22, has signed a four-and-a-half-year deal at West Ham.`\
+https://nytimes.com/athletic/6936489/2026/01/02/pablo-felipe-west-ham-transfer-news/
+
 **'The Audible' podcast reacts to the College Football Playoff quarterfinals**\
 `Ralph Russo and Bruce Feldman react to the College Football Playoff quarterfinals.`\
 https://nytimes.com/athletic/6936312/2026/01/02/college-football-playoff-quarterfinals-reaction-analysis-the-audible/
@@ -11,7 +15,7 @@ https://nytimes.com/2026/01/02/us/politics/coast-guard-survivors-boat-strikes.ht
 https://nytimes.com/newsgraphics/card-story/where-do-aprons-go-to-retire-a-tiny-museum-in-mississippi
 
 **California Cannot Catch a Break as Another Storm Moves In**\
-`The latest storm is bringing flooding to the San Francisco Bay Area. Southern California has seen more than four times its typical rainfall in the last few months.`\
+`The latest storm is bringing flooding to the  San Francisco Bay Area. Southern California has seen more than four times its typical rainfall in the last few months.`\
 https://nytimes.com/2026/01/02/weather/california-rain-forecast.html
 
 **Saks C.E.O. Steps Down as Company Struggles to Pay Down Debt**\
@@ -33,8 +37,4 @@ https://nytimes.com/newsgraphics/card-story/anthony-ramos-hamilton
 **Is It Healthy to Take Aspirin Every Day?**\
 `Despite his doctors’ recommendations, President Trump takes a high dose.`\
 https://nytimes.com/2026/01/02/well/trump-health-asprin-dosage-blood.html
-
-**How to watch Kings vs. Suns: Time, TV, streaming**\
-`Find out how to watch the Sacramento Kings play the Phoenix Suns, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6936430/2026/01/02/kings-vs-suns-stream-how-to-watch-jan-2/
 

@@ -1,3 +1,11 @@
+**West Ham sign striker Pablo from Gil Vicente**\
+`Pablo, 22, has signed a four-and-a-half-year deal at West Ham.`\
+https://nytimes.com/athletic/6936489/2026/01/02/pablo-felipe-west-ham-transfer-news/
+
+**California Cannot Catch a Break as Another Storm Moves In**\
+`The latest storm is bringing flooding to the  San Francisco Bay Area. Southern California has seen more than four times its typical rainfall in the last few months.`\
+https://nytimes.com/2026/01/02/weather/california-rain-forecast.html
+
 **'The Audible' podcast reacts to the College Football Playoff quarterfinals**\
 `Ralph Russo and Bruce Feldman react to the College Football Playoff quarterfinals.`\
 https://nytimes.com/athletic/6936312/2026/01/02/college-football-playoff-quarterfinals-reaction-analysis-the-audible/
