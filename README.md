@@ -1,3 +1,7 @@
+**Amid Poetry, Song and the Cold, Mamdani’s Inauguration Evokes Hope**\
+`A communal spectacle, spilling out of City Hall into the streets of Broadway, conveyed how many New Yorkers see the promise in a Zohran Mamdani mayoralty.`\
+https://nytimes.com/2026/01/01/nyregion/mamdani-inauguration-scene.html
+
 **7 Takeaways From the Inauguration of Mayor Zohran Mamdani**\
 `Mr. Mamdani reaffirmed that he would govern New York City as a democratic socialist and assured even those who had not voted for him: “I am your mayor.”`\
 https://nytimes.com/2026/01/01/nyregion/mamdani-inauguration-takeaways.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6933514/2026/01/01/usman-khawaja-retire-test-austra
 **Submit your questions for Kevin Kurz's Philadelphia Flyers mailbag**\
 `The Philadelphia Flyers are almost halfway through the NHL season and sitting third in the Metropolitan Division.`\
 https://nytimes.com/athletic/6934434/2026/01/01/philadelphia-flyers-submit-questions-mailbag/
-
-**With AFC North title on line, Lamar Jackson '100 percent' to face Steelers**\
-`Ravens QB said he feels good enough to face the Steelers in a game the Ravens (8-8) have to win to make the playoffs.`\
-https://nytimes.com/athletic/6934390/2026/01/01/lamar-jackson-ravens-week-18/
 
