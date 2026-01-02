@@ -1,3 +1,11 @@
+**Dick Zimmer, N.J. Congressman Who Sponsored Megan’s Law, Dies at 81**\
+`The landmark legislation, a response to the rape and murder of a New Jersey child, required states to disclose where convicted sex-offenders live.`\
+https://nytimes.com/2026/01/02/nyregion/dick-zimmer-dead.html
+
+**Sprinkles Cupcakes, the Bakery That Sold From Vending Machines, Closes Suddenly**\
+`The boutique chain’s co-founder, Candace Nelson, said that the business had ceased operations at year’s end. It was sold to a private equity firm more than a decade ago.`\
+https://nytimes.com/2026/01/02/business/sprinkles-cupcakes-closed.html
+
 **Steelers' T.J. Watt feels 'really good,' ready for showdown vs. Ravens**\
 `Star missed three games after suffering a partially collapsed lung during a dry needling treatment, calling it a "fluke thing."`\
 https://nytimes.com/athletic/6936390/2026/01/02/tj-watt-steelers-feels-good-return/

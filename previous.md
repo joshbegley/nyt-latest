@@ -1,3 +1,7 @@
+**Dick Zimmer, N.J. Congressman Who Sponsored Megan’s Law, Dies at 81**\
+`The landmark legislation, a response to the rape and murder of a New Jersey child, required states to disclose where convicted sex-offenders live.`\
+https://nytimes.com/2026/01/02/nyregion/dick-zimmer-dead.html
+
 **Steelers' T.J. Watt feels 'really good,' ready for showdown vs. Ravens**\
 `Star missed three games after suffering a partially collapsed lung during a dry needling treatment, calling it a "fluke thing."`\
 https://nytimes.com/athletic/6936390/2026/01/02/tj-watt-steelers-feels-good-return/
@@ -10,7 +14,7 @@ https://nytimes.com/2026/01/02/climate/trump-offshore-wind-lawsuit-national-secu
 `Fireworks attached to bottles of Champagne sent up showers of sparks that appear to have ignited insulation in a bar. The blaze killed 40 people.`\
 https://nytimes.com/2026/01/02/world/europe/switzerland-ski-resort-bar-fire-crans-montana.html
 
-**Sprinkles Cupcakes, the Bakery That Sold From A.T.M.s, Closes Suddenly**\
+**Sprinkles Cupcakes, the Bakery That Sold From Vending Machines, Closes Suddenly**\
 `The boutique chain’s co-founder, Candace Nelson, said that the business had ceased operations at year’s end. It was sold to a private equity firm more than a decade ago.`\
 https://nytimes.com/2026/01/02/business/sprinkles-cupcakes-closed.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6913369/2026/01/02/neymar-transfer-santos-contract/
 **West Ham sign striker Pablo from Gil Vicente**\
 `Pablo, 22, has signed a four-and-a-half-year deal at West Ham.`\
 https://nytimes.com/athletic/6936489/2026/01/02/pablo-felipe-west-ham-transfer-news/
-
-**'The Audible' podcast reacts to the College Football Playoff quarterfinals**\
-`Ralph Russo and Bruce Feldman react to the College Football Playoff quarterfinals.`\
-https://nytimes.com/athletic/6936312/2026/01/02/college-football-playoff-quarterfinals-reaction-analysis-the-audible/
 
