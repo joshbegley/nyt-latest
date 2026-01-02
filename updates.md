@@ -1,3 +1,7 @@
+**Curt Cignetti, Lane Kiffin got a lot richer by Indiana, Ole Miss reaching CFP semis**\
+`The Indiana and former Ole Miss head coaches will receive tidy sums because of incentive bonuses in their contracts for winning CFP games.`\
+https://nytimes.com/athletic/6935051/2026/01/02/curt-cignetti-lane-kiffin-bonus-incentives-cfp-semifinal/
+
 **Sydney hopeful of five-day Ashes fifth test finale with SCG pitch preparation**\
 `It comes after the pitch for the fourth Test in Melbourne was labelled "unsatisfactory" following a two-day match.`\
 https://nytimes.com/athletic/6935326/2026/01/02/ashes-pitch-sydney-australia-england/
