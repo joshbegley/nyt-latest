@@ -1,3 +1,15 @@
+**What now for Ohio State? 8 thoughts on what went wrong vs. Miami and 2026 changes**\
+`The transfer portal opened Friday and Ohio State will return a lot of talent next season, but the Cotton Bowl loss will linger.`\
+https://nytimes.com/athletic/6935618/2026/01/02/ohio-state-miami-coaches-portal-2026/
+
+**What’s Going On in This Picture? | Jan. 5, 2026**\
+`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
+https://nytimes.com/2026/01/02/learning/whats-going-on-in-this-picture-jan-5-2026.html
+
+**Swiss Authorities Face the Grim Task of Identifying Fire Victims**\
+`Identifying the victims of a New Year’s fire in Crans-Montana that killed more than 40 people could take days or weeks because of the severity of the burns.`\
+https://nytimes.com/2026/01/02/world/europe/swiss-bar-fire-victims-burns-identification.html
+
 **Carrying for a Cause: Meet the Man Lugging Shelter Dogs Around New York**\
 `Bryan Reisberg built a social media following in the millions by carrying his corgi, Maxine, in a backpack. Now, he carries shelter dogs.`\
 https://nytimes.com/2026/01/02/nyregion/dog-backpack-adopt.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6935559/2026/01/02/fullkrug-milan-transfer-west-ham
 **Tottenham defender Takai joins Gladbach on loan**\
 `Takai joined Spurs on a five-year contract from Kawasaki Frontale in July for a J-League record fee of around £5million.`\
 https://nytimes.com/athletic/6935553/2026/01/02/tottenham-kota-takai-monchengladbach-transfer/
-
-**Lamar Jackson, Ravens can redefine season vs. Steelers: 'I’ve never quit on anything'**\
-`The 2025 season has been a struggle for Lamar Jackson. But with his future with the Ravens uncertain, Week 18 presents a huge opportunity.`\
-https://nytimes.com/athletic/6934523/2026/01/02/lamar-jackson-ravens-steelers/
-
-**Keys to a Bears playoff run? Goal-to-go challenges? Mailbag plus Week 18 picks**\
-`Being able to sustain long drives and punish an opposing defense will be key for the Bears to make a run in the playoffs.`\
-https://nytimes.com/athletic/6934408/2026/01/02/bears-mailbag-week-18-picks-nfl/
-
-**Oilers 2025-26 midseason assessment: The good, the bad and the ugly**\
-`The Oilers entered 2026 atop the Pacific Division with a 20-15-6 record but their flaws are apparent.`\
-https://nytimes.com/athletic/6933902/2026/01/02/edmonton-oilers-stats-lines-2025/
 

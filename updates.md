@@ -1,3 +1,15 @@
+**What now for Ohio State? 8 thoughts on what went wrong vs. Miami and 2026 changes**\
+`The transfer portal opened Friday and Ohio State will return a lot of talent next season, but the Cotton Bowl loss will linger.`\
+https://nytimes.com/athletic/6935618/2026/01/02/ohio-state-miami-coaches-portal-2026/
+
+**What’s Going On in This Picture? | Jan. 5, 2026**\
+`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
+https://nytimes.com/2026/01/02/learning/whats-going-on-in-this-picture-jan-5-2026.html
+
+**Swiss Authorities Face the Grim Task of Identifying Fire Victims**\
+`Identifying the victims of a New Year’s fire in Crans-Montana that killed more than 40 people could take days or weeks because of the severity of the burns.`\
+https://nytimes.com/2026/01/02/world/europe/swiss-bar-fire-victims-burns-identification.html
+
 **Carrying for a Cause: Meet the Man Lugging Shelter Dogs Around New York**\
 `Bryan Reisberg built a social media following in the millions by carrying his corgi, Maxine, in a backpack. Now, he carries shelter dogs.`\
 https://nytimes.com/2026/01/02/nyregion/dog-backpack-adopt.html
