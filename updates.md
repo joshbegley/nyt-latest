@@ -1,3 +1,11 @@
+**A Diminished Congress Weighs Whether to Reassert Its Power**\
+`Lawmakers head into President Trump’s second year facing questions about whether they can reclaim congressional clout in the face of his power grab.`\
+https://nytimes.com/2026/01/02/us/politics/trump-congress-power-republicans-democrats.html
+
+**Patriots left tackle Will Campbell on track to play Sunday**\
+`In addition to Campbell, wide receiver Kayshon Boutte and defensive tackle Milton Williams look poised to return from injury Sunday.`\
+https://nytimes.com/athletic/6936169/2026/01/02/patriots-will-campbell-injury-update/
+
 **Happy New Year, on the High Seas**\
 `Scientists aboard the icebreaker Araon welcomed 2026 with games, another time change and a soup that marks the years ticking past.`\
 https://nytimes.com/2026/01/02/climate/antarctic-expedition-new-years-2026.html
