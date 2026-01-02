@@ -1,40 +1,40 @@
-**How to watch Louisville vs. Stanford men's basketball: Time, TV, streaming**\
-`Find out how to watch the Louisville Cardinals play the Stanford Cardinal, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6936382/2026/01/02/louisville-vs-stanford-stream-how-to-watch-jan-2/
+**How to watch Kings vs. Suns: Time, TV, streaming**\
+`Find out how to watch the Sacramento Kings play the Phoenix Suns, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6936430/2026/01/02/kings-vs-suns-stream-how-to-watch-jan-2/
 
-**LA Galaxy's Puig set for knee surgery**\
-`Puig's status for 2026 is in question, sources briefed on the situation have told The Athletic.`\
-https://nytimes.com/athletic/6936331/2026/01/02/riqui-puig-la-galaxy-knee-surgery/
+**How to watch Grizzlies vs. Lakers: Time, TV, streaming**\
+`Find out how to watch the Memphis Grizzlies play the Los Angeles Lakers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6936428/2026/01/02/grizzlies-vs-lakers-stream-how-to-watch-jan-2/
 
-**How to watch Seattle U vs. Gonzaga men's basketball: Time, TV, streaming**\
-`Find out how to watch the Seattle U Redhawks play the Gonzaga Bulldogs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6936362/2026/01/02/seattle-u-vs-gonzaga-stream-how-to-watch-jan-2/
+**How to watch Trail Blazers vs. Pelicans: Time, TV, streaming**\
+`Find out how to watch the Portland Trail Blazers play the New Orleans Pelicans, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6936425/2026/01/02/trail-blazers-vs-pelicans-stream-how-to-watch-jan-2/
 
-**How to watch Michigan State vs. Nebraska men's basketball: Time, TV, streaming**\
-`Find out how to watch the Michigan State Spartans play the Nebraska Cornhuskers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6936342/2026/01/02/michigan-state-vs-nebraska-stream-how-to-watch-jan-2/
+**How to watch Magic vs. Bulls: Time, TV, streaming**\
+`Find out how to watch the Orlando Magic play the Chicago Bulls, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6936423/2026/01/02/magic-vs-bulls-stream-how-to-watch-jan-2/
 
-**The Best Breakup Lines (Said in Real Life)**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/best-breakup-lines
+**How to watch Rangers vs. Panthers: Time, TV, streaming**\
+`Find out how to watch the New York Rangers play the Florida Panthers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6936419/2026/01/02/rangers-vs-panthers-stream-how-to-watch-jan-2/
 
-**How to watch West Virginia vs. Iowa State men's basketball: Time, TV, streaming**\
-`Find out how to watch the West Virginia Mountaineers play the Iowa State Cyclones, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6936334/2026/01/02/west-virginia-vs-iowa-state-stream-how-to-watch-jan-2/
+**How to watch Nuggets vs. Cavaliers: Time, TV, streaming**\
+`Find out how to watch the Denver Nuggets play the Cleveland Cavaliers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6936415/2026/01/02/nuggets-vs-cavaliers-stream-how-to-watch-jan-2/
 
-**Chelsea fans plan ownership protest, question 'present day competitiveness'**\
-`The protest is scheduled to take place before the Premier League fixture against Brentford at Stamford Bridge on January 17.`\
-https://nytimes.com/athletic/6936241/2026/01/02/chelsea-fan-protest-ownership/
+**How to watch Thunder vs. Warriors: Time, TV, streaming**\
+`Find out how to watch the Oklahoma City Thunder play the Golden State Warriors, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6936412/2026/01/02/thunder-vs-warriors-stream-how-to-watch-jan-2/
 
-**Scoop City: Week 18 watch guide for playoff seeding, draft order**\
-`What's at stake in Week 18, from playoff positioning to the No. 1 draft slot. Plus, comparison Drew Brees and Eli Manning HoF worthiness`\
-https://nytimes.com/athletic/6936264/2026/01/02/nfl-week-18-watch-guide-playoff-draft-scoop-city/
+**How to watch Hornets vs. Bucks: Time, TV, streaming**\
+`Find out how to watch the Charlotte Hornets play the Milwaukee Bucks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6936409/2026/01/02/hornets-vs-bucks-stream-how-to-watch-jan-2/
 
-**Olympic skier Katharina Liensberger to miss Games after serious knee injury**\
-`The Austrian was expected to be a top contender at the 2026 Winter Olympics next month.`\
-https://nytimes.com/athletic/6936220/2026/01/02/katharina-liensberger-injury-winter-olympics/
+**Waterlogged California Braces for More Rain**\
+`Heavy rain has drenched California since mid-December, causing flooding and landslides. The National Weather Service forecasts another 1 to 6 inches of rain will fall this weekend.`\
+https://nytimes.com/video/weather/100000010620930/california-rain-weekend-forcast.html
 
-**NFL Week 18 model-projected scores and point totals for every game**\
-`Austin Mock's NFL model has projected point spreads and totals for every Week 18 game.`\
-https://nytimes.com/athletic/6936256/2026/01/02/nfl-week-18-projected-scores-model-point-spreads-totals/
+**How to watch Hawks vs. Knicks: Time, TV, streaming**\
+`Find out how to watch the Atlanta Hawks play the New York Knicks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6936405/2026/01/02/hawks-vs-knicks-stream-how-to-watch-jan-2/
 
