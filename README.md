@@ -1,3 +1,11 @@
+**Brook Lopez's spacing, Anthony Black's ascension and more NBA trends I'm watching**\
+`Rookie Derik Queen's exceptional passing is another trend worth paying attention to this week.`\
+https://nytimes.com/athletic/6934893/2026/01/02/anthony-black-brook-lopez-nba-trends/
+
+**Ole Miss, galvanized by coaching drama, shows its toughness in epic Sugar Bowl win**\
+`The Rebels, suddenly the most compelling story of this postseason, advanced to face Miami next Thursday in the Fiesta Bowl. `\
+https://nytimes.com/athletic/6935501/2026/01/02/ole-miss-georgia-sugar-bowl-trinidad-chambliss-pete-golding/
+
 **Fantasy Premier League live Q&A: Gameweek 20 advice from Ben Dinnery**\
 `Post your FPL questions, and Ben will be online to offer his insight today from 4pm to 5pm UK time (11am to 12pm ET)`\
 https://nytimes.com/athletic/6934538/2026/01/02/fantasy-premier-league-live-qa-gameweek-20-advice-from-ben-dinnery/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/02/briefing/why-do-americans-hate-ai.html
 **Does Georgia have a fatal flaw or is the College Football Playoff just a crapshoot?**\
 `After winning back-to-back national titles, Georgia has now gone three straight years without even being one of the final four standing.`\
 https://nytimes.com/athletic/6935467/2026/01/02/georgia-bulldogs-ole-miss-kirby-smart-sugar-bowl/
-
-**Sabres notes: How the win streak affects playoff chances, Noah Östlund's rise and more**\
-`Even after a 10-game win streak, the tightly contested Eastern Conference means playoffs aren't a sure thing for the Sabres yet.`\
-https://nytimes.com/athletic/6935011/2026/01/02/sabres-playoff-chances-ostlund-thompson-doan/
-
-**Never mind Team Canada. Is Bedard the most valuable player in the NHL?**\
-`The leap Bedard has taken this season is even more evident in his absence.`\
-https://nytimes.com/athletic/6934861/2026/01/02/connor-bedard-olympics-mvp-blackhawks/
 
