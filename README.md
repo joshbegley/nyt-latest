@@ -1,3 +1,7 @@
+**Jamal Murray is standing tall as the Nuggets' last starter still standing**\
+`Denver has suffered a rash of injuries, including to Nikola Jokić. Luckily, Murray is playing at an All-Star level after a summer of rest.`\
+https://nytimes.com/athletic/6935319/2026/01/02/jamal-murray-injuries-nuggets-all-star/
+
 **Le Constellation, Where Fire Hit, Was Popular With Young People**\
 `More affordable prices and the lack of an entrance fee made the bar an attractive alternative to more upmarket establishments.`\
 https://nytimes.com/2026/01/02/world/europe/le-constellation-bar-switzerland-fire.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6933280/2026/01/02/notre-dame-mailbag-usc-byu-sched
 **The transfer portal opens Friday: Here's what you need to know**\
 `The open portal window is the most consequential period in roster construction and can turn a pretender into a contender in a hurry.`\
 https://nytimes.com/athletic/6933879/2026/01/02/college-football-transfer-portal-guide/
-
-**How Bears rookie Colston Loveland continues to 'rise to the occasion'**\
-`Loveland's chemistry with Caleb Williams is growing. His studies of Nico Collins are part of the story, too.`\
-https://nytimes.com/athletic/6933697/2026/01/02/bears-colston-loveland-rookie-season/
 

@@ -1,3 +1,15 @@
+**Le Constellation, Where Fire Hit, Was Popular With Young People**\
+`More affordable prices and the lack of an entrance fee made the bar an attractive alternative to more upmarket establishments.`\
+https://nytimes.com/2026/01/02/world/europe/le-constellation-bar-switzerland-fire.html
+
+**NFL Week 18 schedule rankings: Top 5 Sunday rivalry games with lasting stakes**\
+`Week 18 is the league's true rivalry slate, with 16 divisional duels to round out the campaign.`\
+https://nytimes.com/athletic/6930670/2026/01/02/nfl-week-18-ravens-steelers-lions-bears-tv/
+
+**Why Do Americans Hate A.I.?**\
+`We look at the uniquely American animosity toward artificial intelligence.`\
+https://nytimes.com/2026/01/02/briefing/why-do-americans-hate-ai.html
+
 **Does Georgia have a fatal flaw or is the College Football Playoff just a crapshoot?**\
 `After winning back-to-back national titles, Georgia has now gone three straight years without even being one of the final four standing.`\
 https://nytimes.com/athletic/6935467/2026/01/02/georgia-bulldogs-ole-miss-kirby-smart-sugar-bowl/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6933879/2026/01/02/college-football-transfer-portal
 **How Bears rookie Colston Loveland continues to 'rise to the occasion'**\
 `Loveland's chemistry with Caleb Williams is growing. His studies of Nico Collins are part of the story, too.`\
 https://nytimes.com/athletic/6933697/2026/01/02/bears-colston-loveland-rookie-season/
-
-**NFL Draft takeaways: Trinidad Chambliss states his case, Rueben Bain Jr. dominates again**\
-`Which other 2026 NFL Draft prospects stood out during the College Football Playoff quarterfinals?`\
-https://nytimes.com/athletic/6934363/2026/01/02/nfl-draft-2026-fernando-mendoza-rueben-bain-jr/
-
-**Ben Stokes urges England not to rip it up and start again despite Ashes failure**\
-`The tourists have named a 12-man squad including Shoaib Bashir and Matthew Potts as they look to end a difficult series on a high in Sydney`\
-https://nytimes.com/athletic/6935224/2026/01/02/ben-stokes-urges-england-not-to-rip-it-up-and-start-again-despite-ashes-failure/
-
-**The Athletic’s Friday football quiz question #87**\
-`Can you answer the weekly poser plucked from deep inside The Athletic's trivia vaults?`\
-https://nytimes.com/athletic/6931719/2026/01/02/the-athletics-friday-football-quiz-question-87/
 

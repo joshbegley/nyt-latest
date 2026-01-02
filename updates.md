@@ -1,3 +1,15 @@
+**Le Constellation, Where Fire Hit, Was Popular With Young People**\
+`More affordable prices and the lack of an entrance fee made the bar an attractive alternative to more upmarket establishments.`\
+https://nytimes.com/2026/01/02/world/europe/le-constellation-bar-switzerland-fire.html
+
+**NFL Week 18 schedule rankings: Top 5 Sunday rivalry games with lasting stakes**\
+`Week 18 is the league's true rivalry slate, with 16 divisional duels to round out the campaign.`\
+https://nytimes.com/athletic/6930670/2026/01/02/nfl-week-18-ravens-steelers-lions-bears-tv/
+
+**Why Do Americans Hate A.I.?**\
+`We look at the uniquely American animosity toward artificial intelligence.`\
+https://nytimes.com/2026/01/02/briefing/why-do-americans-hate-ai.html
+
 **Does Georgia have a fatal flaw or is the College Football Playoff just a crapshoot?**\
 `After winning back-to-back national titles, Georgia has now gone three straight years without even being one of the final four standing.`\
 https://nytimes.com/athletic/6935467/2026/01/02/georgia-bulldogs-ole-miss-kirby-smart-sugar-bowl/
