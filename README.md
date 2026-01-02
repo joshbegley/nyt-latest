@@ -1,3 +1,7 @@
+**Parachutist gets tangled in field goal net at Armed Forces bowl**\
+`The parachutist was not seriously injured and walked off under his own power, a bowl spokesman said.`\
+https://nytimes.com/athletic/6936454/2026/01/02/armed-forces-bowl-parachutist-tangled/
+
 **Dick Zimmer, N.J. Congressman Who Sponsored Megan’s Law, Dies at 81**\
 `The landmark legislation, a response to the rape and murder of a New Jersey child, required states to disclose where convicted sex-offenders live.`\
 https://nytimes.com/2026/01/02/nyregion/dick-zimmer-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6936309/2026/01/02/laura-rutledge-espn-cfp-host-sid
 **Neymar set to sign Santos contract extension**\
 `The extension is set to run through to December 2026.`\
 https://nytimes.com/athletic/6913369/2026/01/02/neymar-transfer-santos-contract/
-
-**West Ham sign striker Pablo from Gil Vicente**\
-`Pablo, 22, has signed a four-and-a-half-year deal at West Ham.`\
-https://nytimes.com/athletic/6936489/2026/01/02/pablo-felipe-west-ham-transfer-news/
 
