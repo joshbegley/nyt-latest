@@ -1,3 +1,11 @@
+**Behind the Scenes With Our Photographer**\
+`“I have a lot of gear.” Our photographer Chang W. Lee describes how he plans to capture the journey to Antarctica from every angle, including from a long-range drone and a sound-triggered camera designed to capture a calving glacier.`\
+https://nytimes.com/video/climate/100000010615476/behind-the-scenes-with-our-photographer.html
+
+**Answers to Your Antarctica Questions, Part 1**\
+`Our reporter sends a dispatch from the icebreaker Araon, currently on its way to Antarctica, about the scientists, their work and how he’s battling seasickness.`\
+https://nytimes.com/2026/01/02/climate/reader-questions-part-1.html
+
 **Wild at the Olympics: At least 8 players headed to Milan, with a Swedish surprise — and snub**\
 `Wild goalie Jesper Wallstedt on making the cut for Sweden: “Now I can say I'm an Olympic athlete. So that's pretty cool at 23 years old."`\
 https://nytimes.com/athletic/6936625/2026/01/02/wild-olympics-wallstedt-johansson/
