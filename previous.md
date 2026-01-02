@@ -1,3 +1,11 @@
+**What the heck happened in the final seconds of Ole Miss vs. Georgia?**\
+`Sugar Bowl officials rolled the postgame stage onto the field, only for the game to continue with another play.`\
+https://nytimes.com/athletic/6935149/2026/01/02/ole-miss-georgia-final-play-delay-officials/
+
+**The New York Times in Print for Friday, Jan. 2, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/01/02/todays-new-york-times
+
 **Mamdani Revokes Executive Orders That Adams Signed to Support Israel**\
 `Former Mayor Eric Adams and some conservative-leaning Jewish leaders criticized the revocation of his executive orders, one of which he signed just last month.`\
 https://nytimes.com/2026/01/02/nyregion/mamdani-executive-orders-adams-israel.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6928622/2026/01/02/players-to-watch-january-transfe
 **College Football Playoff 2025 bracket projections: Who's the national title favorite?**\
 `Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
 https://nytimes.com/athletic/6560541/2026/01/02/college-football-playoff-bracket-projections-odds/
-
-**Can 'maverick' Matheus Cunha step up in Bruno Fernandes' absence?**\
-`Matheus Cunha has adjusted well to life at Old Trafford but needs to deliver this month with United shorn of many top players`\
-https://nytimes.com/athletic/6519748/2026/01/02/matheus-cunha-bruno-fernandes-analysis/
-
-**'Intelligent, unorthodox, unique': Matt Jackson, the man tasked with turning Wolves around**\
-`The 54-year-old has a tough task ahead of him at Wolves, but those who know him believe he is more than well-equipped`\
-https://nytimes.com/athletic/6925885/2026/01/02/wolves-matt-jackson-profile-technical-director/
 

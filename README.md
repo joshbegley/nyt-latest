@@ -1,3 +1,7 @@
+**Curt Cignetti and Lane Kiffin got a lot richer by Indiana and Ole Miss reaching the CFP semis**\
+`The Indiana and former Ole Miss head coaches will receive tidy sums because of incentive bonuses in their contracts.`\
+https://nytimes.com/athletic/6935051/2026/01/02/curt-cignetti-lane-kiffin-bonus-incentives-cfp-semifinal/
+
 **What the heck happened in the final seconds of Ole Miss vs. Georgia?**\
 `Sugar Bowl officials rolled the postgame stage onto the field, only for the game to continue with another play.`\
 https://nytimes.com/athletic/6935149/2026/01/02/ole-miss-georgia-final-play-delay-officials/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6933366/2026/01/02/premier-league-halfway-reports/
 **Mainoo to move? What now for Bobb? Neves future? Ten players to watch in the January transfer window**\
 `Likelihood of moving? Potential destinations? Incentives to stay put? A look at the state of play around the key men in this month's window`\
 https://nytimes.com/athletic/6928622/2026/01/02/players-to-watch-january-transfer-window/
-
-**College Football Playoff 2025 bracket projections: Who's the national title favorite?**\
-`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
-https://nytimes.com/athletic/6560541/2026/01/02/college-football-playoff-bracket-projections-odds/
 

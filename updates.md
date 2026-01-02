@@ -1,3 +1,11 @@
+**What the heck happened in the final seconds of Ole Miss vs. Georgia?**\
+`Sugar Bowl officials rolled the postgame stage onto the field, only for the game to continue with another play.`\
+https://nytimes.com/athletic/6935149/2026/01/02/ole-miss-georgia-final-play-delay-officials/
+
+**The New York Times in Print for Friday, Jan. 2, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/01/02/todays-new-york-times
+
 **Mamdani Revokes Executive Orders That Adams Signed to Support Israel**\
 `Former Mayor Eric Adams and some conservative-leaning Jewish leaders criticized the revocation of his executive orders, one of which he signed just last month.`\
 https://nytimes.com/2026/01/02/nyregion/mamdani-executive-orders-adams-israel.html
