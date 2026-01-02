@@ -1,3 +1,7 @@
+**Teen Recounts Escape from Deadly Swiss Fire**\
+`People gathered at memorials in the resort town of Crans-Montana, Switzerland, to grieve for the victims of a deadly New Year’s fire at a bar. A survivor described her harrowing escape.`\
+https://nytimes.com/video/world/europe/100000010619991/switzerland-ski-resort-fire.html
+
 **New-look Liverpool were supposed to be built for beating low blocks. They're still struggling**\
 `Liverpool were held to a 0-0 draw by Leeds United on Thursday evening`\
 https://nytimes.com/athletic/6934027/2026/01/02/liverpool-leeds-analysis/
@@ -6,8 +10,8 @@ https://nytimes.com/athletic/6934027/2026/01/02/liverpool-leeds-analysis/
 `The main positive for West Ham's 2025 is that it is now over. They need a lot of improvement in 2026...`\
 https://nytimes.com/athletic/6875271/2026/01/02/west-hams-2025-sackings-setbacks-protests-and-potts-potential/
 
-**Curt Cignetti and Lane Kiffin got a lot richer by Indiana and Ole Miss reaching the CFP semis**\
-`The Indiana and former Ole Miss head coaches will receive tidy sums because of incentive bonuses in their contracts.`\
+**Curt Cignetti, Lane Kiffin got a lot richer by Indiana, Ole Miss reaching CFP semis**\
+`The Indiana and former Ole Miss head coaches will receive tidy sums because of incentive bonuses in their contracts for winning CFP games.`\
 https://nytimes.com/athletic/6935051/2026/01/02/curt-cignetti-lane-kiffin-bonus-incentives-cfp-semifinal/
 
 **What the heck happened in the final seconds of Ole Miss vs. Georgia?**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6933452/2026/01/02/arsenal-arteta-strikers-gyokeres
 **Crystal Palace are down to the bare bones. Brennan Johnson is the attacking boost they need**\
 `Glasner has not been furnished with early signings in previous windows, but this incoming would be a welcome and necessary change`\
 https://nytimes.com/athletic/6923611/2026/01/02/crystal-palace-brennan-johnson/
-
-**Premier League predictions: Man City vs Chelsea, Leeds vs Man Utd, and the rest of Matchday 20**\
-`Who's leading after MD19? And what do our writer, the algorithm, a child and this week's subscriber expect to see on Matchday 20?`\
-https://nytimes.com/athletic/6933375/2026/01/02/premier-league-predictions-md20/
 

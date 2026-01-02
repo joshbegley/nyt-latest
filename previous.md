@@ -1,3 +1,11 @@
+**New-look Liverpool were supposed to be built for beating low blocks. They're still struggling**\
+`Liverpool were held to a 0-0 draw by Leeds United on Thursday evening`\
+https://nytimes.com/athletic/6934027/2026/01/02/liverpool-leeds-analysis/
+
+**West Ham's 2025: Sackings, setbacks, protests - and Potts' potential**\
+`The main positive for West Ham's 2025 is that it is now over. They need a lot of improvement in 2026...`\
+https://nytimes.com/athletic/6875271/2026/01/02/west-hams-2025-sackings-setbacks-protests-and-potts-potential/
+
 **Curt Cignetti and Lane Kiffin got a lot richer by Indiana and Ole Miss reaching the CFP semis**\
 `The Indiana and former Ole Miss head coaches will receive tidy sums because of incentive bonuses in their contracts.`\
 https://nytimes.com/athletic/6935051/2026/01/02/curt-cignetti-lane-kiffin-bonus-incentives-cfp-semifinal/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6923611/2026/01/02/crystal-palace-brennan-johnson/
 **Premier League predictions: Man City vs Chelsea, Leeds vs Man Utd, and the rest of Matchday 20**\
 `Who's leading after MD19? And what do our writer, the algorithm, a child and this week's subscriber expect to see on Matchday 20?`\
 https://nytimes.com/athletic/6933375/2026/01/02/premier-league-predictions-md20/
-
-**Who gets top marks? Who gets an F? Who has surprised? Premier League report cards**\
-`The Athletic's writers give their verdicts on each team as the Premier League season reaches the halfway point`\
-https://nytimes.com/athletic/6933366/2026/01/02/premier-league-halfway-reports/
-
-**Mainoo to move? What now for Bobb? Neves future? Ten players to watch in the January transfer window**\
-`Likelihood of moving? Potential destinations? Incentives to stay put? A look at the state of play around the key men in this month's window`\
-https://nytimes.com/athletic/6928622/2026/01/02/players-to-watch-january-transfer-window/
 

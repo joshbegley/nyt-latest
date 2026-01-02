@@ -1,3 +1,11 @@
+**New-look Liverpool were supposed to be built for beating low blocks. They're still struggling**\
+`Liverpool were held to a 0-0 draw by Leeds United on Thursday evening`\
+https://nytimes.com/athletic/6934027/2026/01/02/liverpool-leeds-analysis/
+
+**West Ham's 2025: Sackings, setbacks, protests - and Potts' potential**\
+`The main positive for West Ham's 2025 is that it is now over. They need a lot of improvement in 2026...`\
+https://nytimes.com/athletic/6875271/2026/01/02/west-hams-2025-sackings-setbacks-protests-and-potts-potential/
+
 **Curt Cignetti and Lane Kiffin got a lot richer by Indiana and Ole Miss reaching the CFP semis**\
 `The Indiana and former Ole Miss head coaches will receive tidy sums because of incentive bonuses in their contracts.`\
 https://nytimes.com/athletic/6935051/2026/01/02/curt-cignetti-lane-kiffin-bonus-incentives-cfp-semifinal/
