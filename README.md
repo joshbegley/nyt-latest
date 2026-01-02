@@ -1,3 +1,7 @@
+**'The Audible' podcast reacts to the College Football Playoff quarterfinals**\
+`Ralph Russo and Bruce Feldman react to the College Football Playoff quarterfinals.`\
+https://nytimes.com/athletic/6936312/2026/01/02/college-football-playoff-quarterfinals-reaction-analysis-the-audible/
+
 **Hopes Fade as Coast Guard Seeks Survivors of Latest Boat Strikes**\
 `The service said that conditions in the area where the search was taking place included nine-foot seas and winds approaching 50 miles per hour.`\
 https://nytimes.com/2026/01/02/us/politics/coast-guard-survivors-boat-strikes.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/02/well/trump-health-asprin-dosage-blood.html
 **How to watch Kings vs. Suns: Time, TV, streaming**\
 `Find out how to watch the Sacramento Kings play the Phoenix Suns, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6936430/2026/01/02/kings-vs-suns-stream-how-to-watch-jan-2/
-
-**How to watch Grizzlies vs. Lakers: Time, TV, streaming**\
-`Find out how to watch the Memphis Grizzlies play the Los Angeles Lakers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6936428/2026/01/02/grizzlies-vs-lakers-stream-how-to-watch-jan-2/
 
