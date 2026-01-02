@@ -1,3 +1,11 @@
+**Where does Michigan go from here? 10 thoughts on Kyle Whittingham's rebuild**\
+`As Whittingham assembles his Michigan coaching staff, many things are on the to-do list with the transfer portal opening on Friday.`\
+https://nytimes.com/athletic/6934914/2026/01/02/michigan-kyle-whittingham-transfer-portal-underwood/
+
+**Can these units bounce back? Rams, Texans, Bills among playoff teams with weak spots**\
+`Whoever can iron out or compensate for their deficiencies will bolster their Super Bowl hopes.`\
+https://nytimes.com/athletic/6932548/2026/01/02/playoff-weaknesses-rams-bills-texans-bears-49ers/
+
 **Ex-Barca defender Alves becomes co-owner of Portuguese club**\
 `The 42-year-old had a conviction of sexual assault and a four-and-a-half-year prison sentence overturned in March 2025.`\
 https://nytimes.com/athletic/6935383/2026/01/02/dani-alves-owner-portuguese-club/

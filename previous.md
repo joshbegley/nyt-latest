@@ -1,3 +1,11 @@
+**Where does Michigan go from here? 10 thoughts on Kyle Whittingham's rebuild**\
+`As Whittingham assembles his Michigan coaching staff, many things are on the to-do list with the transfer portal opening on Friday.`\
+https://nytimes.com/athletic/6934914/2026/01/02/michigan-kyle-whittingham-transfer-portal-underwood/
+
+**Can these units bounce back? Rams, Texans, Bills among playoff teams with weak spots**\
+`Whoever can iron out or compensate for their deficiencies will bolster their Super Bowl hopes.`\
+https://nytimes.com/athletic/6932548/2026/01/02/playoff-weaknesses-rams-bills-texans-bears-49ers/
+
 **Ex-Barca defender Alves becomes co-owner of Portuguese club**\
 `The 42-year-old had a conviction of sexual assault and a four-and-a-half-year prison sentence overturned in March 2025.`\
 https://nytimes.com/athletic/6935383/2026/01/02/dani-alves-owner-portuguese-club/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6934831/2026/01/02/penguins-letang-crosby-penalties
 **Panthers-Bucs showdown: Analyzing the matchup and predicting the winner**\
 `The Panthers have a couple of ways to reach the postseason, but beating the Bucs and clinching Saturday is what they prefer.`\
 https://nytimes.com/athletic/6934379/2026/01/02/panthers-bucs-prediction-nfc-south-playoffs/
-
-**World Juniors predictions: Quarterfinal matchups, who medals and who's relegated**\
-`Prospect experts Corey Pronman, Scott Wheeler and Max Bultman analyze our staff's updated picks ahead of the tournament's quarterfinals.`\
-https://nytimes.com/athletic/6934589/2026/01/02/2026-world-juniors-predictions-quarterfinal-matchups-medalists/
-
-**I play for the Miami Dolphins. This is the mental lesson I learned this season**\
-`Alec Ingold is a fullback for the Miami Dolphins. He shares the lightbulb moment this year that changed his perspective.`\
-https://nytimes.com/athletic/6934236/2026/01/02/miami-dolphins-alec-ingold-2025-season-lesson/
 
