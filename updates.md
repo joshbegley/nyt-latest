@@ -1,3 +1,7 @@
+**The Rams are banking on Quentin Lake and others to stop their late-season slide**\
+`Sean McVay and his team know they can't go into the playoffs in their current form.`\
+https://nytimes.com/athletic/6935178/2026/01/02/rams-quentin-lake-late-season-form/
+
 **Where does Michigan go from here? 10 thoughts on Kyle Whittingham's rebuild**\
 `As Whittingham assembles his Michigan coaching staff, many things are on the to-do list with the transfer portal opening on Friday.`\
 https://nytimes.com/athletic/6934914/2026/01/02/michigan-kyle-whittingham-transfer-portal-underwood/
