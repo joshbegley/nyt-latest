@@ -1,3 +1,15 @@
+**Why Mikel Arteta's No 9 selection headache has come at the perfect moment**\
+`Each of Arsenal's strikers has their flaws, but having all three available could be a difference maker in the second half of the season`\
+https://nytimes.com/athletic/6933452/2026/01/02/arsenal-arteta-strikers-gyokeres-havertz-jesus/
+
+**Crystal Palace are down to the bare bones. Brennan Johnson is the attacking boost they need**\
+`Glasner has not been furnished with early signings in previous windows, but this incoming would be a welcome and necessary change`\
+https://nytimes.com/athletic/6923611/2026/01/02/crystal-palace-brennan-johnson/
+
+**Ole Miss rallies to stun Georgia, continue magical run into CFP semifinals: Key takeaways**\
+`Ole Miss is going on to the national semifinals, an improbable season becoming an improbable story.`\
+https://nytimes.com/athletic/6935031/2026/01/02/ole-miss-georgia-score-result-college-football-playoff/
+
 **Premier League predictions: Man City vs Chelsea, Leeds vs Man Utd, and the rest of Matchday 20**\
 `Who's leading after MD19? And what do our writer, the algorithm, a child and this week's subscriber expect to see on Matchday 20?`\
 https://nytimes.com/athletic/6933375/2026/01/02/premier-league-predictions-md20/

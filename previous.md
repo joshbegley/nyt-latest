@@ -1,3 +1,11 @@
+**Why Mikel Arteta's No 9 selection headache has come at the perfect moment**\
+`Each of Arsenal's strikers has their flaws, but having all three available could be a difference maker in the second half of the season`\
+https://nytimes.com/athletic/6933452/2026/01/02/arsenal-arteta-strikers-gyokeres-havertz-jesus/
+
+**Crystal Palace are down to the bare bones. Brennan Johnson is the attacking boost they need**\
+`Glasner has not been furnished with early signings in previous windows, but this incoming would be a welcome and necessary change`\
+https://nytimes.com/athletic/6923611/2026/01/02/crystal-palace-brennan-johnson/
+
 **Premier League predictions: Man City vs Chelsea, Leeds vs Man Utd, and the rest of Matchday 20**\
 `Who's leading after MD19? And what do our writer, the algorithm, a child and this week's subscriber expect to see on Matchday 20?`\
 https://nytimes.com/athletic/6933375/2026/01/02/premier-league-predictions-md20/
@@ -22,19 +30,11 @@ https://nytimes.com/athletic/6519748/2026/01/02/matheus-cunha-bruno-fernandes-an
 `The 54-year-old has a tough task ahead of him at Wolves, but those who know him believe he is more than well-equipped`\
 https://nytimes.com/athletic/6925885/2026/01/02/wolves-matt-jackson-profile-technical-director/
 
-**Ole Miss rallies to stun Georgia, continue magical run into CFP semifinals**\
+**Ole Miss rallies to stun Georgia, continue magical run into CFP semifinals: Key takeaways**\
 `Ole Miss is going on to the national semifinals, an improbable season becoming an improbable story.`\
 https://nytimes.com/athletic/6935031/2026/01/02/ole-miss-georgia-score-result-college-football-playoff/
 
 **CFP semifinals first look: Previewing Ole Miss-Miami, Indiana-Oregon**\
 `Nothing signifies a new era of college football more than these four teams playing in the semifinals.`\
 https://nytimes.com/athletic/6934697/2026/01/02/college-football-playoff-semifinals-matchups/
-
-**A Marine Corps Pilot and a Netflix Producer. Who’d Have Guessed?**\
-`Ginger Cutler and Tom Glinkowski had very different jobs and very different opinions on cats.`\
-https://nytimes.com/2026/01/02/style/ginger-cutler-tom-glinkowski-wedding.html
-
-**They Met on a Summer Vacation That Never Ended**\
-`Rachel Leiner was reading at a cafe in Lisbon when she was invited to join a group of strangers, Jurgen Peeters among them.`\
-https://nytimes.com/2026/01/02/style/rachel-leiner-jurgen-peeters-wedding.html
 
