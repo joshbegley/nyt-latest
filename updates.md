@@ -1,3 +1,7 @@
+**Mamdani’s First Orders Focus on Housing and Undoing Adams’s Decisions**\
+`Mayor Zohran Mamdani signed a flurry of executive orders on his first day as mayor of New York City. They were aimed at protecting tenants and revoking some of ex-Mayor Eric Adams’s past orders.`\
+https://nytimes.com/2026/01/01/nyregion/mamdani-housing-executive-orders.html
+
 **Images From the Dawn of the Mamdani Era**\
 `Thousands of New Yorkers packed the plaza ouside City Hall and the streets of Lower Manhattan to see Mayor Zohran Mamdani take office.`\
 https://nytimes.com/2026/01/01/nyregion/images-from-the-dawn-of-the-mamdani-era.html

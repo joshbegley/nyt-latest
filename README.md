@@ -1,3 +1,7 @@
+**7 Takeaways From the Inauguration of Mayor Zohran Mamdani**\
+`Mr. Mamdani reaffirmed that he would govern New York City as a democratic socialist and assured even those who had not voted for him: “I am your mayor.”`\
+https://nytimes.com/2026/01/01/nyregion/mamdani-inauguration-takeaways.html
+
 **Mamdani’s First Orders Focus on Housing and Undoing Adams’s Decisions**\
 `Mayor Zohran Mamdani signed a flurry of executive orders on his first day as mayor of New York City. They were aimed at protecting tenants and revoking some of ex-Mayor Eric Adams’s past orders.`\
 https://nytimes.com/2026/01/01/nyregion/mamdani-housing-executive-orders.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6934434/2026/01/01/philadelphia-flyers-submit-quest
 **With AFC North title on line, Lamar Jackson '100 percent' to face Steelers**\
 `Ravens QB said he feels good enough to face the Steelers in a game the Ravens (8-8) have to win to make the playoffs.`\
 https://nytimes.com/athletic/6934390/2026/01/01/lamar-jackson-ravens-week-18/
-
-**The Briefing: Sunderland 0 Manchester City 0 - The Stadium of Light makes another intervention in Premier League title race**\
-`Analysis of Manchester City's goalless draw with Sunderland — a result that leaves them four points behind Arsenal in the table`\
-https://nytimes.com/athletic/6928467/2026/01/01/sunderland-manchester-city-premier-league-analysis/
 

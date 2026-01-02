@@ -1,3 +1,7 @@
+**Mamdani’s First Orders Focus on Housing and Undoing Adams’s Decisions**\
+`Mayor Zohran Mamdani signed a flurry of executive orders on his first day as mayor of New York City. They were aimed at protecting tenants and revoking some of ex-Mayor Eric Adams’s past orders.`\
+https://nytimes.com/2026/01/01/nyregion/mamdani-housing-executive-orders.html
+
 **Images From the Dawn of the Mamdani Era**\
 `Thousands of New Yorkers packed the plaza ouside City Hall and the streets of Lower Manhattan to see Mayor Zohran Mamdani take office.`\
 https://nytimes.com/2026/01/01/nyregion/images-from-the-dawn-of-the-mamdani-era.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6934390/2026/01/01/lamar-jackson-ravens-week-18/
 **The Briefing: Sunderland 0 Manchester City 0 - The Stadium of Light makes another intervention in Premier League title race**\
 `Analysis of Manchester City's goalless draw with Sunderland — a result that leaves them four points behind Arsenal in the table`\
 https://nytimes.com/athletic/6928467/2026/01/01/sunderland-manchester-city-premier-league-analysis/
-
-**The Briefing: Brentford 0 Tottenham 0 - why were Spurs so short of creative inspiration?**\
-`Elias Burke and Jack Pitt-Brooke analyse the main talking points from Tottenham's underwhelming draw at Brentford`\
-https://nytimes.com/athletic/6928466/2026/01/01/brentford-tottenham-analysis-thomas-frank/
 
