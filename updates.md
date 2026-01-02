@@ -1,3 +1,7 @@
+**Search Is Suspended for Passenger Who Went Overboard From Cruise Ship**\
+`The U.S. Coast Guard said on Thursday that it halted its hourslong search for a 77-year-old woman who went overboard from a Holland America Line cruise ship near Cuba.`\
+https://nytimes.com/2026/01/01/world/americas/passenger-overboard-holland-america-cruise.html
+
 **Troy Aikman criticized Dolphins on MNF last month. Now he’s advising team on GM search**\
 `The broadcaster and Hall of Fame quarterback will sit in on interviews as the team tries to find a replacement for Chris Grier.`\
 https://nytimes.com/athletic/6934545/2026/01/01/dolphins-bring-troy-aikman-gm-search/
