@@ -1,3 +1,7 @@
+**Until Saturday: First new national champ since 1996?**\
+`Until Saturday is The Athletic's free college football newsletter.`\
+https://nytimes.com/athletic/6936029/2026/01/02/college-football-playoff-semifinals-until-saturday/
+
 **Unboxing 450 Pounds of Returned Goods**\
 `What happens when you return something? Unfortunately, it doesn’t always make it back to the seller. We sifted through 450 pounds of returned products. Here’s what we found.`\
 https://nytimes.com/video/smarter-living/wirecutter/100000010620830/unboxing-450-pounds-of-returned-goods.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6935856/2026/01/02/olympics-hockey-rosters-nhl-red-
 **How to watch USC vs. Michigan men's basketball: Time, TV, streaming**\
 `Find out how to watch the USC Trojans play the Michigan Wolverines, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6935980/2026/01/02/usc-vs-michigan-stream-how-to-watch-jan-2/
-
-**Why Tatsuya Imai went with short-term contract and more MLB offseason notes**\
-`We break down Imai's contract with the Astros, Kazuma Okamoto's versatility and more.`\
-https://nytimes.com/athletic/6935827/2026/01/02/tatsuya-imai-astros-contract-kazuma-okamoto-mlb-offseason/
 
