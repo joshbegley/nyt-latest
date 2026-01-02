@@ -1,3 +1,7 @@
+**'We rate him highly' - Hurzeler praises Gross after Brighton agree deal with Dortmund**\
+`Hurzeler took charge of Brighton in June 2024, a few weeks before Gross joined boyhood club Borussia Dortmund.`\
+https://nytimes.com/athletic/6935392/2026/01/02/pascal-gross-brighton-transfers/
+
 **Trump Says U.S. Is ‘Locked and Loaded’ if Iran Kills Protesters**\
 `Mr. Trump’s remarks are a sharp escalation as protests over economic hardship turned deadly.`\
 https://nytimes.com/2026/01/02/world/middleeast/trump-iran-protests.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/02/well/alcohol-use-disorder-signs-tips.html
 **We’re Living Through the Great Detachment**\
 `America is becoming more loveless: less dating, less marriage, less friendship, less patriotism. But love outside of self is what makes life meaningful.`\
 https://nytimes.com/2026/01/02/opinion/americans-marriage-loneliness-love.html
-
-**$2 Million Homes in London**\
-`A loft in a 19th-century warehouse, a four-bedroom house in South London and a house on the former estate of Sir Henry Tate.`\
-https://nytimes.com/2026/01/02/realestate/homes-for-sale-in-london.html
 

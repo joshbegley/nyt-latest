@@ -1,3 +1,11 @@
+**Trump Says U.S. Is ‘Locked and Loaded’ if Iran Kills Protesters**\
+`Mr. Trump’s remarks are a sharp escalation as protests over economic hardship turned deadly.`\
+https://nytimes.com/2026/01/02/world/middleeast/trump-iran-protests.html
+
+**Emanuele Galeppini, an Italian Golfer, Is Among First Victims Named in Swiss Fire**\
+`Mr. Galeppini, 17, was a promising young golfer from Genoa who lived in Dubai with his family, the Italian media reported.`\
+https://nytimes.com/2026/01/02/world/europe/swiss-bar-fire-victims-golfer-galeppini.html
+
 **Why a Nuclear Plant Is a Big Sticking Point in the Ukraine Peace Plan**\
 `The Zaporizhzhia plant, occupied by Russia, would be crucial to powering Ukraine’s postwar recovery.`\
 https://nytimes.com/2026/01/02/world/europe/ukraine-peace-plan-zaporizhzhia-nuclear-plant.html

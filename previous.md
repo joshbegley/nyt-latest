@@ -1,3 +1,11 @@
+**Trump Says U.S. Is ‘Locked and Loaded’ if Iran Kills Protesters**\
+`Mr. Trump’s remarks are a sharp escalation as protests over economic hardship turned deadly.`\
+https://nytimes.com/2026/01/02/world/middleeast/trump-iran-protests.html
+
+**Emanuele Galeppini, an Italian Golfer, Is Among First Victims Named in Swiss Fire**\
+`Mr. Galeppini, 17, was a promising young golfer from Genoa who lived in Dubai with his family, the Italian media reported.`\
+https://nytimes.com/2026/01/02/world/europe/swiss-bar-fire-victims-golfer-galeppini.html
+
 **Why a Nuclear Plant Is a Big Sticking Point in the Ukraine Peace Plan**\
 `The Zaporizhzhia plant, occupied by Russia, would be crucial to powering Ukraine’s postwar recovery.`\
 https://nytimes.com/2026/01/02/world/europe/ukraine-peace-plan-zaporizhzhia-nuclear-plant.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/02/opinion/americans-marriage-loneliness-love.html
 **$2 Million Homes in London**\
 `A loft in a 19th-century warehouse, a four-bedroom house in South London and a house on the former estate of Sir Henry Tate.`\
 https://nytimes.com/2026/01/02/realestate/homes-for-sale-in-london.html
-
-**One Year and More Than 500,000 Deportations**\
-`New York Times journalists chronicled the first year of President Trump’s anti-immigration campaign in words and photos, from New York to Texas.`\
-https://nytimes.com/2026/01/02/nyregion/one-year-and-more-than-500000-deportations.html
-
-**In the Arctic, Drones Help Identify Deadly Virus in Whales**\
-`Scientists took samples from whale blow, identifying possible disease risks for marine mammals in northern seas.`\
-https://nytimes.com/2026/01/02/science/arctic-drones-whales-virus.html
 
