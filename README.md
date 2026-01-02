@@ -1,3 +1,11 @@
+**U.S. announces men’s hockey roster for 2026 Olympics: Snubs, surprises and expectations**\
+`The U.S. men’s hockey roster was officially unveiled Friday morning with 21 4 Nations returnees and four new faces.`\
+https://nytimes.com/athletic/6935084/2026/01/02/united-states-mens-olympic-hockey-roster-2026/
+
+**Is the College Football Playoff first-round bye cursed? Not so fast**\
+`Teams that receive a first-round bye are 1-7, with Indiana's Rose Bowl win over Alabama this year the only victory by a CFP top-four seed.`\
+https://nytimes.com/athletic/6935516/2026/01/02/college-football-playoff-first-round-bye-record/
+
 **How to watch Golden Knights vs. Blues: Time, TV, streaming**\
 `Find out how to watch the Vegas Golden Knights play the St. Louis Blues, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6935613/2026/01/02/golden-knights-vs-blues-stream-how-to-watch-jan-2/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6934893/2026/01/02/anthony-black-brook-lopez-nba-tr
 **Ole Miss, galvanized by coaching drama, shows its toughness in epic Sugar Bowl win**\
 `The Rebels, suddenly the most compelling story of this postseason, advanced to face Miami next Thursday in the Fiesta Bowl. `\
 https://nytimes.com/athletic/6935501/2026/01/02/ole-miss-georgia-sugar-bowl-trinidad-chambliss-pete-golding/
-
-**Fantasy Premier League live Q&A: Gameweek 20 advice from Ben Dinnery**\
-`Post your FPL questions, and Ben will be online to offer his insight today from 4pm to 5pm UK time (11am to 12pm ET)`\
-https://nytimes.com/athletic/6934538/2026/01/02/fantasy-premier-league-live-qa-gameweek-20-advice-from-ben-dinnery/
-
-**Wall Street Sees Another Banner Year for Markets. Could Anything Stop It?**\
-`Analysts have forecast more stellar gains for the S&P 500. But concerns about inflation, the dollar and sky-high valuations could make for a choppy run.`\
-https://nytimes.com/2026/01/02/business/dealbook/wall-street-market-prediction.html
 
