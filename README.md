@@ -1,3 +1,11 @@
+**Michigan hires offensive, defensive coordinators amid coaching staff overhaul**\
+`Jason Beck and Jay Hill will join new head coach Kyle Whittingham at Michigan after working with Whittingham at previous stops.`\
+https://nytimes.com/athletic/6936230/2026/01/02/michigan-offensive-defensive-coordinator-hires/
+
+**How a ‘Hamilton’ Star Spends a Day at His Brooklyn Bar**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/anthony-ramos-hamilton
+
 **Is It Healthy to Take Aspirin Every Day?**\
 `Despite his doctors’ recommendations, President Trump takes a high dose.`\
 https://nytimes.com/2026/01/02/well/trump-health-asprin-dosage-blood.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6936415/2026/01/02/nuggets-vs-cavaliers-stream-how-
 **How to watch Thunder vs. Warriors: Time, TV, streaming**\
 `Find out how to watch the Oklahoma City Thunder play the Golden State Warriors, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6936412/2026/01/02/thunder-vs-warriors-stream-how-to-watch-jan-2/
-
-**How to watch Hornets vs. Bucks: Time, TV, streaming**\
-`Find out how to watch the Charlotte Hornets play the Milwaukee Bucks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6936409/2026/01/02/hornets-vs-bucks-stream-how-to-watch-jan-2/
-
-**Waterlogged California Braces for More Rain**\
-`Heavy rain has drenched California since mid-December, causing flooding and landslides. The National Weather Service forecasts another 1 to 6 inches of rain will fall this weekend.`\
-https://nytimes.com/video/weather/100000010620930/california-rain-weekend-forcast.html
 
