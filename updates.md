@@ -1,3 +1,7 @@
+**Tesla Car Sales Dropped 9% in 2025, Falling Behind China’s BYD**\
+`As the largest maker of electric vehicles in the United States, Tesla suffered more than other carmakers from the elimination of federal incentives.`\
+https://nytimes.com/2026/01/02/business/tesla-electric-vehicles-fourth-quarter-sales.html
+
 **Eintracht Frankfurt confident of signing Kalimuendo on loan from Forest**\
 `The 23-year-old forward has been used sparingly at Forest despite the injury to Chris Wood.`\
 https://nytimes.com/athletic/6935625/2026/01/02/arnaud-kalimuendo-forest-frankfurt/
