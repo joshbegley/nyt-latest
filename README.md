@@ -2,6 +2,10 @@
 `Who are the adults in children’s lives?`\
 https://nytimes.com/2026/01/02/learning/whats-going-on-in-this-graph-jan-14-2026.html
 
+**College Football Playoff 2025 bracket projections: Who's the national title favorite?**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2026/01/02/college-football-playoff-bracket-projections-odds/
+
 **Eintracht Frankfurt confident of signing Kalimuendo on loan from Forest**\
 `The 23-year-old forward has been used sparingly at Forest despite the injury to Chris Wood.`\
 https://nytimes.com/athletic/6935625/2026/01/02/arnaud-kalimuendo-forest-frankfurt/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6935658/2026/01/02/ruben-amorim-man-utd-transfers/
 **What now for Ohio State? 8 thoughts on what went wrong vs. Miami and 2026 changes**\
 `The transfer portal opened Friday and Ohio State will return a lot of talent next season, but the Cotton Bowl loss will linger.`\
 https://nytimes.com/athletic/6935618/2026/01/02/ohio-state-miami-coaches-portal-2026/
-
-**What’s Going On in This Picture? | Jan. 5, 2026**\
-`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
-https://nytimes.com/2026/01/02/learning/whats-going-on-in-this-picture-jan-5-2026.html
 
