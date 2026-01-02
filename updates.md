@@ -1,3 +1,7 @@
+**Arteta uncertain whether Rice will be available for Bournemouth game**\
+`The England international missed Tuesday's win over Aston Villa with a knee injury.`\
+https://nytimes.com/athletic/6935401/2026/01/02/declan-rice-injury-arsenal-team-news/
+
 **Dak Prescott's contract talk advice to George Pickens: 'Don't let it get personal'**\
 `A new deal for Pickens is likely to average more than $30 million per season, and he hopes to remain in Dallas.`\
 https://nytimes.com/athletic/6934640/2026/01/02/george-pickens-cowboys-contract-negotiations-jerry-jones/

@@ -1,3 +1,11 @@
+**Ex-Barca defender Alves becomes co-owner of Portuguese club**\
+`The 42-year-old had a conviction of sexual assault and a four-and-a-half-year prison sentence overturned in March 2025.`\
+https://nytimes.com/athletic/6935383/2026/01/02/dani-alves-owner-portuguese-club/
+
+**The Pulse: Re-ranking the Playoff’s Final Four**\
+`The Athletic has live coverage of Bears vs.`\
+https://nytimes.com/athletic/6934106/2026/01/02/cfp-indiana-ole-miss-georgia-alabama-oregon-the-pulse/
+
 **Arteta uncertain whether Rice will be available for Bournemouth game**\
 `The England international missed Tuesday's win over Aston Villa with a knee injury.`\
 https://nytimes.com/athletic/6935401/2026/01/02/declan-rice-injury-arsenal-team-news/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6934589/2026/01/02/2026-world-juniors-predictions-q
 **I play for the Miami Dolphins. This is the mental lesson I learned this season**\
 `Alec Ingold is a fullback for the Miami Dolphins. He shares the lightbulb moment this year that changed his perspective.`\
 https://nytimes.com/athletic/6934236/2026/01/02/miami-dolphins-alec-ingold-2025-season-lesson/
-
-**Mavericks lose for sixth time in 7 games despite Anthony Davis' return**\
-`Philadelphia's dynamic backcourt duo of Tyrese Maxey and V.J. Edgecombe led the 76ers to an easy win over the stumbling Mavericks.`\
-https://nytimes.com/athletic/6935017/2026/01/02/cooper-flagg-vj-edgecombe-mavericks-loss/
-
-**NHL trade matchmaker: Predicting where top targets go by the deadline, part 3**\
-`Where could Alex Tuch, Blake Coleman, Justin Faulk and Andrew Mangiapane end up by the deadline? Our insiders' picks.`\
-https://nytimes.com/athletic/6934000/2026/01/02/nhl-trade-board-matchmaker-tuch-coleman-faulk/
 
