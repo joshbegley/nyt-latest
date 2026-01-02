@@ -1,3 +1,7 @@
+**What I'm seeing from the Winter Classic: Fox on Olympic exclusion, Miami ice quality, more**\
+`Though the U.S. Olympic roster won't be formally announced until Friday, defenseman Adam Fox already knows he won't be on it.`\
+https://nytimes.com/athletic/6934532/2026/01/01/rangers-winter-classic-fox-olympics-rempe/
+
 **Amid Poetry, Song and the Cold, Mamdani’s Inauguration Evokes Hope**\
 `A communal spectacle, spilling out of City Hall into the streets of Broadway, conveyed how many New Yorkers see the promise in a Zohran Mamdani mayoralty.`\
 https://nytimes.com/2026/01/01/nyregion/mamdani-inauguration-scene.html

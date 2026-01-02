@@ -1,3 +1,7 @@
+**What I'm seeing from the Winter Classic: Fox on Olympic exclusion, Miami ice quality, more**\
+`Though the U.S. Olympic roster won't be formally announced until Friday, defenseman Adam Fox already knows he won't be on it.`\
+https://nytimes.com/athletic/6934532/2026/01/01/rangers-winter-classic-fox-olympics-rempe/
+
 **Amid Poetry, Song and the Cold, Mamdani’s Inauguration Evokes Hope**\
 `A communal spectacle, spilling out of City Hall into the streets of Broadway, conveyed how many New Yorkers see the promise in a Zohran Mamdani mayoralty.`\
 https://nytimes.com/2026/01/01/nyregion/mamdani-inauguration-scene.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6934413/2026/01/01/jj-mccarthy-status-vikings-packe
 **Usman Khawaja to retire from Test cricket after Sydney swansong**\
 `The 39-year-old was the first Muslim to play for Australia and has scored over 6,000 Test runs over a 15-year international career`\
 https://nytimes.com/athletic/6933514/2026/01/01/usman-khawaja-retire-test-australia-scg/
-
-**Submit your questions for Kevin Kurz's Philadelphia Flyers mailbag**\
-`The Philadelphia Flyers are almost halfway through the NHL season and sitting third in the Metropolitan Division.`\
-https://nytimes.com/athletic/6934434/2026/01/01/philadelphia-flyers-submit-questions-mailbag/
 
