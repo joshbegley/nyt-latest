@@ -1,3 +1,7 @@
+**North Carolina Man Accused of Planning Potential Terrorist Attack, F.B.I. Says**\
+`The 18-year-old, radicalized online, was planning a New Year’s Eve attack in a Charlotte suburb, officials said.`\
+https://nytimes.com/2026/01/02/us/north-carolina-man-terrorist-attack-fbi.html
+
 **Sparklers Probably Caused Deadly Fire at Swiss Ski Resort, Officials Say**\
 `The Swiss authorities said that a deadly fire at a popular bar in the ski resort town of Crans-Montana was probably caused by sparklers attached to champagne bottles that were held too close to the ceiling.`\
 https://nytimes.com/video/world/europe/100000010620929/switzerland-ski-resort-fire-sparklers.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2026/01/02/magazine/bird-poop-hodgman-quiz.html
 **Until Saturday: First new national champ since 1996?**\
 `Until Saturday is The Athletic's free college football newsletter.`\
 https://nytimes.com/athletic/6936029/2026/01/02/college-football-playoff-semifinals-until-saturday/
-
-**Unboxing 450 Pounds of Returned Goods**\
-`What happens when you return something? Unfortunately, it doesn’t always make it back to the seller. We sifted through 450 pounds of returned products. Here’s what we found.`\
-https://nytimes.com/video/smarter-living/wirecutter/100000010620830/unboxing-450-pounds-of-returned-goods.html
 
