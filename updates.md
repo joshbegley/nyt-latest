@@ -1,3 +1,11 @@
+**What’s Going On in This Graph? | Jan. 14, 2026**\
+`Who are the adults in children’s lives?`\
+https://nytimes.com/2026/01/02/learning/whats-going-on-in-this-graph-jan-14-2026.html
+
+**College Football Playoff 2025 bracket projections: Who's the national title favorite?**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2026/01/02/college-football-playoff-bracket-projections-odds/
+
 **Tesla Car Sales Dropped 9% in 2025, Falling Behind China’s BYD**\
 `As the largest maker of electric vehicles in the United States, Tesla suffered more than other carmakers from the elimination of federal incentives.`\
 https://nytimes.com/2026/01/02/business/tesla-electric-vehicles-fourth-quarter-sales.html
