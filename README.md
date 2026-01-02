@@ -1,3 +1,15 @@
+**Why Tatsuya Imai went with short-term contract and more MLB offseason notes**\
+`We break down Tatsuya Imai's contract with the Astros, Kazuma Okamoto's versatility and more.`\
+https://nytimes.com/athletic/6935827/2026/01/02/tatsuya-imai-astros-contract-kazuma-okamoto-mlb-offseason/
+
+**Following Mamdani’s Win, Souvenir Shops Look to Cash In**\
+`Seemingly overnight, T-shirts with the likeness of the new mayor have become common in New York City.`\
+https://nytimes.com/2026/01/02/nyregion/mamdani-souvenirs-tshirts.html
+
+**Submit your Mets questions for the Will Sammon and Tim Britton mailbag**\
+`Submit your Mets questions for the Will Sammon and Tim Britton mailbag`\
+https://nytimes.com/athletic/6935924/2026/01/02/mets-mailbag-offseason-free-agency/
+
 **Liverpool in talks to sign 17-year-old centre-back Ndukwe from Austria Vienna**\
 `Liverpool hope that a deal can be agreed for him to move to Merseyside for the start of pre-season training in July.`\
 https://nytimes.com/athletic/6935695/2026/01/02/liverpool-ifeanyi-ndukwe-transfer-talks/
@@ -17,16 +29,4 @@ https://nytimes.com/2026/01/02/movies/horror-movies-streaming.html
 **Samin Nosrat’s Spinach Soup With Tahini and Lemon**\
 `And more very green, very good things to eat.`\
 https://nytimes.com/2026/01/02/dining/samin-nosrats-spinach-soup-with-tahini-and-lemon.html
-
-**Why Exercise Is the Best Thing for Your Brain Health**\
-`Research shows that people who exercise regularly tend to perform better on attention, memory and executive functioning tests. Dana G. Smith, a reporter for Well, explains.`\
-https://nytimes.com/video/well/100000010594750/why-exercise-is-the-best-thing-for-your-brain-health.html
-
-**Trump Says U.S. Will Aid Protesters if Iran Uses Lethal Force on Them**\
-`After days of demonstrations across Iran, President Trump said that if the government there were to kill peaceful antigovernment protesters, the United States would intervene.`\
-https://nytimes.com/video/world/asia/100000010620223/iran-protests-trump.html
-
-**When is it time to part with a Super Bowl coach? Mike Tomlin, John Harbaugh in rare territory**\
-`As Mike Tomlin and John Harbaugh meet for a playoff spot, they're pushing historical boundaries for seasons without a Super Bowl title.`\
-https://nytimes.com/athletic/6934376/2026/01/02/mike-tomlin-john-harbaugh-hot-seat-ravens-steelers/
 
