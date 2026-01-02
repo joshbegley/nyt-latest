@@ -1,3 +1,11 @@
+**Can anyone save the Raiders? It's time for Tom Brady to try**\
+`Brady as a silent advisor to the Las Vegas Raiders is one thing, but a present, fully accountable boss would send a far different message.`\
+https://nytimes.com/athletic/6926744/2026/01/02/tom-brady-las-vegas-raiders-worst-record-nfl/
+
+**Mandel's Final Thoughts: Were Indiana, Ole Miss wins a changing of the guard moment in CFB?**\
+`Indiana's and Ole Miss's win over the old powers is a sign of a new era in college football.`\
+https://nytimes.com/athletic/6935179/2026/01/02/college-football-playoff-scores-result-indiana-ole-miss/
+
 **The New York Times International Edition in Print for Saturday, Jan. 3, 2026**\
 ``\
 https://nytimes.com/issue/todaysinyt/2026/01/02/todays-new-york-times-international-edition

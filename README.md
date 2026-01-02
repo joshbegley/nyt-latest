@@ -15,7 +15,7 @@ https://nytimes.com/issue/todaysinyt/2026/01/02/todays-new-york-times-internatio
 https://nytimes.com/athletic/6935392/2026/01/02/pascal-gross-brighton-transfers/
 
 **Trump Says U.S. Is ‘Locked and Loaded’ if Iran Kills Protesters**\
-`Mr. Trump’s remarks are a sharp escalation as protests over economic hardship turned deadly.`\
+`Mr. Trump’s remarks that he was ready to come to the protesters’ “rescue” are a sharp escalation as protests over economic hardship turned deadly.`\
 https://nytimes.com/2026/01/02/world/middleeast/trump-iran-protests.html
 
 **Emanuele Galeppini, an Italian Golfer, Is Among First Victims Named in Swiss Fire**\
