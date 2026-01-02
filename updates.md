@@ -1,3 +1,7 @@
+**Mamdani Revokes Executive Orders That Adams Signed to Support Israel**\
+`Former Mayor Eric Adams and some conservative-leaning Jewish leaders criticized the revocation of his executive orders, one of which he signed just last month.`\
+https://nytimes.com/2026/01/02/nyregion/mamdani-executive-orders-adams-israel.html
+
 **Sam Konstas was branded an Australian superstar only for the Ashes to pass him by - but he will be back**\
 `A year on from a startling debut against India, the opener will be playing cricket in Sydney this weekend - but in the BBL, not in the Test`\
 https://nytimes.com/athletic/6928378/2026/01/02/sam-konstas-australia-nsw-thunder-bumrah/

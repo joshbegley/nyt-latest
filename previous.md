@@ -1,3 +1,7 @@
+**Mamdani Revokes Executive Orders That Adams Signed to Support Israel**\
+`Former Mayor Eric Adams and some conservative-leaning Jewish leaders criticized the revocation of his executive orders, one of which he signed just last month.`\
+https://nytimes.com/2026/01/02/nyregion/mamdani-executive-orders-adams-israel.html
+
 **Sam Konstas was branded an Australian superstar only for the Ashes to pass him by - but he will be back**\
 `A year on from a startling debut against India, the opener will be playing cricket in Sydney this weekend - but in the BBL, not in the Test`\
 https://nytimes.com/athletic/6928378/2026/01/02/sam-konstas-australia-nsw-thunder-bumrah/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6519748/2026/01/02/matheus-cunha-bruno-fernandes-an
 **'Intelligent, unorthodox, unique': Matt Jackson, the man tasked with turning Wolves around**\
 `The 54-year-old has a tough task ahead of him at Wolves, but those who know him believe he is more than well-equipped`\
 https://nytimes.com/athletic/6925885/2026/01/02/wolves-matt-jackson-profile-technical-director/
-
-**Ole Miss rallies to stun Georgia, continue magical run into CFP semifinals: Key takeaways**\
-`Ole Miss is going on to the national semifinals, an improbable season becoming an improbable story.`\
-https://nytimes.com/athletic/6935031/2026/01/02/ole-miss-georgia-score-result-college-football-playoff/
 
