@@ -1,3 +1,7 @@
+**Search Is Suspended for Passenger Who Went Overboard From Cruise Ship**\
+`The U.S. Coast Guard said on Thursday that it halted its hourslong search for a 77-year-old woman who went overboard from a Holland America Line cruise ship near Cuba.`\
+https://nytimes.com/2026/01/01/world/americas/passenger-overboard-holland-america-cruise.html
+
 **‘I Will Govern as a Democratic Socialist,’ Mamdani Says at Inauguration**\
 `Mayor Zohran Mamdani was inaugurated as the mayor of New York City on Thursday in a ceremony attended by thousands outside City Hall.`\
 https://nytimes.com/video/nyregion/100000010619911/mayor-zohran-mamdani-inauguration.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6934532/2026/01/01/rangers-winter-classic-fox-olymp
 **Amid Poetry, Song and the Cold, Mamdani’s Inauguration Evokes Hope**\
 `A communal spectacle, spilling out of City Hall into the streets of Broadway, conveyed how many New Yorkers see the promise in a Zohran Mamdani mayoralty.`\
 https://nytimes.com/2026/01/01/nyregion/mamdani-inauguration-scene.html
-
-**7 Takeaways From the Inauguration of Mayor Zohran Mamdani**\
-`Mr. Mamdani reaffirmed that he would govern New York City as a democratic socialist and assured even those who had not voted for him: “I am your mayor.”`\
-https://nytimes.com/2026/01/01/nyregion/mamdani-inauguration-takeaways.html
 
