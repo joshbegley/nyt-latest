@@ -1,40 +1,40 @@
-**Their Eyes**\
-`The unseen workers who help train self-driving cars to see.`\
-https://nytimes.com/video/opinion/100000010486246/their-eyes.html
+**Why a Nuclear Plant Is a Big Sticking Point in the Ukraine Peace Plan**\
+`The Zaporizhzhia plant, occupied by Russia, would be crucial to powering Ukraine’s postwar recovery.`\
+https://nytimes.com/2026/01/02/world/europe/ukraine-peace-plan-zaporizhzhia-nuclear-plant.html
 
-**Here’s the latest.**\
-`By Ségolène Le Stradic and Dan Watson`\
-https://nytimes.com/live/2026/01/02/world/switzerland-ski-resort-fire/heres-the-latest
+**Millions of Americans Will Pay More for Health Care This Year. Are You One of Them?**\
+`Tell us how you’re managing increases to your health care insurance costs.`\
+https://nytimes.com/2026/01/02/opinion/contributors/aca-subsidies-expiring.html
 
-**Live Updates: Swiss Officials Search for Answers in Deadly New Year’s Fire**\
-`About 40 people were killed and more than 100 others injured in the blaze at a bar in a resort town. The authorities were trying to pinpoint the cause and identify bodies.`\
-https://nytimes.com/live/2026/01/02/world/switzerland-ski-resort-fire
+**The New York Times News Quiz, Jan. 2, 2026**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://nytimes.com/interactive/2026/01/02/briefing/news-quiz-trump-venezuela-new-years-eve.html
 
-**Five Laws Going Into Effect for New York in 2026**\
-`Among them, benefits for minimum wage workers, cancer patients and parents of young children. Also, a change to child abuse reporting.`\
-https://nytimes.com/2026/01/02/nyregion/2026-new-laws-new-york-state.html
+**The Trouble With My Father’s Final Resting Place**\
+`If anyone should be prepared to know how to handle my dad’s ashes, it’s me.`\
+https://nytimes.com/2026/01/02/opinion/death-remains-ashes.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2026/01/02/crosswords/spelling-bee-forum.html
+**Mamdani Represents 21st-Century America**\
+`The mayor’s résumé looks like the broad coalition he built when he swept to victory in November.`\
+https://nytimes.com/2026/01/02/opinion/politics/zohran-mamdani-america.html
 
-**Manchester City take heart from Rodri return as focus fixes on the bigger picture**\
-`Pep Guardiola's side mustered 53 touches in the Sunderland penalty area but could not prise out a decisive goal against resolute opponents`\
-https://nytimes.com/athletic/6935241/2026/01/02/manchester-city-guardiola-rodri-sunderland/
+**Rethinking Your Drinking? Watch for These 5 Signs.**\
+`If you’re questioning your relationship with alcohol, here’s what to look for.`\
+https://nytimes.com/2026/01/02/well/alcohol-use-disorder-signs-tips.html
 
-**Word of the Day: succor**\
-`This word has appeared in 23 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2026/01/02/learning/word-of-the-day-succor.html
+**We’re Living Through the Great Detachment**\
+`America is becoming more loveless: less dating, less marriage, less friendship, less patriotism. But love outside of self is what makes life meaningful.`\
+https://nytimes.com/2026/01/02/opinion/americans-marriage-loneliness-love.html
 
-**Leeds had one eye on Man Utd against Liverpool and still kept rolling**\
-`Leeds held Liverpool to a 0-0 draw despite resting key players for Thursday night's game`\
-https://nytimes.com/athletic/6935072/2026/01/02/leeds-liverpool-analysis-man-utd/
+**$2 Million Homes in London**\
+`A loft in a 19th-century warehouse, a four-bedroom house in South London and a house on the former estate of Sir Henry Tate.`\
+https://nytimes.com/2026/01/02/realestate/homes-for-sale-in-london.html
 
-**Spurs fans reached their limit at Brentford. Thomas Frank needs to offer more than this**\
-`Thomas Frank was booed by the Tottenham fans at the end of their 0-0 draw with Brentford on Thursday`\
-https://nytimes.com/athletic/6929007/2026/01/02/tottenham-hotspur-brentford-thomas-frank-analysis/
+**One Year and More Than 500,000 Deportations**\
+`New York Times journalists chronicled the first year of President Trump’s anti-immigration campaign in words and photos, from New York to Texas.`\
+https://nytimes.com/2026/01/02/nyregion/one-year-and-more-than-500000-deportations.html
 
-**Teen Recounts Escape from Deadly Swiss Fire**\
-`People gathered at memorials in the resort town of Crans-Montana, Switzerland, to grieve for the victims of a deadly New Year’s fire at a bar. A survivor described her harrowing escape.`\
-https://nytimes.com/video/world/europe/100000010619991/switzerland-ski-resort-fire.html
+**In the Arctic, Drones Help Identify Deadly Virus in Whales**\
+`Scientists took samples from whale blow, identifying possible disease risks for marine mammals in northern seas.`\
+https://nytimes.com/2026/01/02/science/arctic-drones-whales-virus.html
 
