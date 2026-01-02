@@ -1,3 +1,11 @@
+**Behind the Scenes With Our Photographer**\
+`“I have a lot of gear.” Our photographer Chang W. Lee describes how he plans to capture the journey to Antarctica from every angle, including from a long-range drone and a sound-triggered camera designed to capture a calving glacier.`\
+https://nytimes.com/video/climate/100000010615476/behind-the-scenes-with-our-photographer.html
+
+**Answers to Your Antarctica Questions, Part 1**\
+`Our reporter sends a dispatch from the icebreaker Araon, currently on its way to Antarctica, about the scientists, their work and how he’s battling seasickness.`\
+https://nytimes.com/2026/01/02/climate/reader-questions-part-1.html
+
 **Sprinkles Cupcakes, the Bakery That Sold From Vending Machines, Closes Suddenly**\
 `The boutique chain’s co-founder, Candace Nelson, said that the business had ceased operations at year’s end. It was sold to a private equity firm more than a decade ago.`\
 https://nytimes.com/2026/01/02/business/sprinkles-cupcakes-closed.html
