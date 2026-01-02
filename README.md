@@ -1,3 +1,7 @@
+**Spurs fans reached their limit at Brentford. Thomas Frank needs to offer more than this**\
+`Thomas Frank was booed by the Tottenham fans at the end of their 0-0 draw with Brentford on Thursday`\
+https://nytimes.com/athletic/6929007/2026/01/02/tottenham-hotspur-brentford-thomas-frank-analysis/
+
 **Teen Recounts Escape from Deadly Swiss Fire**\
 `People gathered at memorials in the resort town of Crans-Montana, Switzerland, to grieve for the victims of a deadly New Year’s fire at a bar. A survivor described her harrowing escape.`\
 https://nytimes.com/video/world/europe/100000010619991/switzerland-ski-resort-fire.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6928378/2026/01/02/sam-konstas-australia-nsw-thunde
 **Why Mikel Arteta's No 9 selection headache has come at the perfect moment**\
 `Each of Arsenal's strikers has their flaws, but having all three available could be a difference maker in the second half of the season`\
 https://nytimes.com/athletic/6933452/2026/01/02/arsenal-arteta-strikers-gyokeres-havertz-jesus/
-
-**Crystal Palace are down to the bare bones. Brennan Johnson is the attacking boost they need**\
-`Glasner has not been furnished with early signings in previous windows, but this incoming would be a welcome and necessary change`\
-https://nytimes.com/athletic/6923611/2026/01/02/crystal-palace-brennan-johnson/
 

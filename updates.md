@@ -1,3 +1,11 @@
+**Teen Recounts Escape from Deadly Swiss Fire**\
+`People gathered at memorials in the resort town of Crans-Montana, Switzerland, to grieve for the victims of a deadly New Year’s fire at a bar. A survivor described her harrowing escape.`\
+https://nytimes.com/video/world/europe/100000010619991/switzerland-ski-resort-fire.html
+
+**Curt Cignetti, Lane Kiffin got a lot richer by Indiana, Ole Miss reaching CFP semis**\
+`The Indiana and former Ole Miss head coaches will receive tidy sums because of incentive bonuses in their contracts for winning CFP games.`\
+https://nytimes.com/athletic/6935051/2026/01/02/curt-cignetti-lane-kiffin-bonus-incentives-cfp-semifinal/
+
 **New-look Liverpool were supposed to be built for beating low blocks. They're still struggling**\
 `Liverpool were held to a 0-0 draw by Leeds United on Thursday evening`\
 https://nytimes.com/athletic/6934027/2026/01/02/liverpool-leeds-analysis/
