@@ -1,3 +1,15 @@
+**How to watch Louisville vs. Stanford men's basketball: Time, TV, streaming**\
+`Find out how to watch the Louisville Cardinals play the Stanford Cardinal, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6936382/2026/01/02/louisville-vs-stanford-stream-how-to-watch-jan-2/
+
+**LA Galaxy's Puig set for knee surgery**\
+`Puig's status for 2026 is in question, sources briefed on the situation have told The Athletic.`\
+https://nytimes.com/athletic/6936331/2026/01/02/riqui-puig-la-galaxy-knee-surgery/
+
+**How to watch Seattle U vs. Gonzaga men's basketball: Time, TV, streaming**\
+`Find out how to watch the Seattle U Redhawks play the Gonzaga Bulldogs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6936362/2026/01/02/seattle-u-vs-gonzaga-stream-how-to-watch-jan-2/
+
 **How to watch Michigan State vs. Nebraska men's basketball: Time, TV, streaming**\
 `Find out how to watch the Michigan State Spartans play the Nebraska Cornhuskers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6936342/2026/01/02/michigan-state-vs-nebraska-stream-how-to-watch-jan-2/
