@@ -1,3 +1,11 @@
+**Violinist on Will Smith’s Tour Files Wrongful Termination Lawsuit**\
+`A lawyer for the musician, Brian King Joseph, says in the court papers that Mr. Joseph was fired after reporting sexual harassment.`\
+https://nytimes.com/2026/01/02/arts/music/will-smith-lawsuit-brian-king-joseph.html
+
+**Flashback: Your Weekly History Quiz, Jan. 3, 2026**\
+`Can you sort 8 historical events?`\
+https://nytimes.com/interactive/2026/01/02/upshot/flashback.html
+
 **Israeli Government Accuses Mamdani of Antisemitism Over Canceled Orders**\
 `Mayor Zohran Mamdani of New York canceled executive orders issued by his predecessor that had barred city agencies from boycotting Israel and defined some criticism of Israel as antisemitic.`\
 https://nytimes.com/2026/01/02/nyregion/mamdani-israel-executive-orders.html

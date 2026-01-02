@@ -1,3 +1,11 @@
+**Violinist on Will Smith’s Tour Files Wrongful Termination Lawsuit**\
+`A lawyer for the musician, Brian King Joseph, says in the court papers that Mr. Joseph was fired after reporting sexual harassment.`\
+https://nytimes.com/2026/01/02/arts/music/will-smith-lawsuit-brian-king-joseph.html
+
+**Flashback: Your Weekly History Quiz, Jan. 3, 2026**\
+`Can you sort 8 historical events?`\
+https://nytimes.com/interactive/2026/01/02/upshot/flashback.html
+
 **Israeli Government Accuses Mamdani of Antisemitism Over Canceled Orders**\
 `Mayor Zohran Mamdani of New York canceled executive orders issued by his predecessor that had barred city agencies from boycotting Israel and defined some criticism of Israel as antisemitic.`\
 https://nytimes.com/2026/01/02/nyregion/mamdani-israel-executive-orders.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6936097/2026/01/02/rory-mcilroy-liv-golfers-return-
 **Oil Tanker Fleeing U.S. Coast Guard Broadcasts Location in North Atlantic**\
 `Russia requested this week that the United States end its pursuit of the vessel, which was intercepted in the Caribbean on its way to pick up oil in Venezuela.`\
 https://nytimes.com/2026/01/02/us/politics/oil-tanker-russia-north-atlantic.html
-
-**Richard Pollak, 91, Dies; Edited Magazine That Criticized the Media**\
-`He was a founder of More, which skewered the foibles of the press in the 1970s, and later wrote a critical biography of the psychoanalyst Bruno Bettelheim.`\
-https://nytimes.com/2026/01/02/business/media/richard-pollak-dead.html
-
-**Sweden, Finland announce men’s hockey rosters for 2026 Olympics: Snubs, surprises and expectations**\
-`Sweden had tough decisions on defense, while Finland has depth but lacks top talent.`\
-https://nytimes.com/athletic/6936117/2026/01/02/team-sweden-finland-2026-olympic-hockey-roster-mens/
 
