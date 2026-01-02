@@ -1,3 +1,7 @@
+**Word of the Day: succor**\
+`This word has appeared in 23 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/01/02/learning/word-of-the-day-succor.html
+
 **Leeds had one eye on Man Utd against Liverpool and still kept rolling forward**\
 `Leeds held Liverpool to a 0-0 draw despite resting key players for Thursday night's game`\
 https://nytimes.com/athletic/6935072/2026/01/02/leeds-liverpool-analysis-man-utd/

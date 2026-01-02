@@ -1,3 +1,7 @@
+**Word of the Day: succor**\
+`This word has appeared in 23 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/01/02/learning/word-of-the-day-succor.html
+
 **Leeds had one eye on Man Utd against Liverpool and still kept rolling forward**\
 `Leeds held Liverpool to a 0-0 draw despite resting key players for Thursday night's game`\
 https://nytimes.com/athletic/6935072/2026/01/02/leeds-liverpool-analysis-man-utd/
@@ -33,8 +37,4 @@ https://nytimes.com/issue/todayspaper/2026/01/02/todays-new-york-times
 **Mamdani Revokes Executive Orders That Adams Signed to Support Israel**\
 `Former Mayor Eric Adams and some conservative-leaning Jewish leaders criticized the revocation of his executive orders, one of which he signed just last month.`\
 https://nytimes.com/2026/01/02/nyregion/mamdani-executive-orders-adams-israel.html
-
-**Sam Konstas was branded an Australian superstar only for the Ashes to pass him by - but he will be back**\
-`A year on from a startling debut against India, the opener will be playing cricket in Sydney this weekend - but in the BBL, not in the Test`\
-https://nytimes.com/athletic/6928378/2026/01/02/sam-konstas-australia-nsw-thunder-bumrah/
 
