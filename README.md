@@ -1,3 +1,11 @@
+**Software Error Will Force 325,000 Californians to Replace Real IDs**\
+`Some state-issued identification cards issued to legal immigrants could be valid longer than the people holding them are allowed to remain in the United States, state officials said.`\
+https://nytimes.com/2026/01/02/us/california-real-id-dmv-error.html
+
+**Mamdani Creates Office of Mass Engagement**\
+`Mayor Zohran Mamdani announced two appointments at Grand Army Plaza in Brooklyn on his second day as mayor of New York City, including the creation of an Office of Mass Engagement.`\
+https://nytimes.com/video/us/politics/100000010621144/mamdani-creates-office-of-mass-engagement.html
+
 **Trump Super PAC Raised More Than $100 Million in Recent Months**\
 `The haul highlights how the president’s team has continued aggressive fund-raising from donors with interests before the administration.`\
 https://nytimes.com/2026/01/02/us/politics/trump-super-pac-maga-inc-fundraising.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6936454/2026/01/02/armed-forces-bowl-parachutist-ta
 **Dick Zimmer, N.J. Congressman Who Sponsored Megan’s Law, Dies at 81**\
 `The landmark legislation, a response to the rape and murder of a New Jersey child, required states to disclose where convicted sex-offenders live.`\
 https://nytimes.com/2026/01/02/nyregion/dick-zimmer-dead.html
-
-**Steelers' T.J. Watt feels 'really good,' ready for showdown vs. Ravens**\
-`Star missed three games after suffering a partially collapsed lung during a dry needling treatment, calling it a "fluke thing."`\
-https://nytimes.com/athletic/6936390/2026/01/02/tj-watt-steelers-feels-good-return/
-
-**Offshore Wind Projects Challenge Trump Administration’s Order to Stop Work**\
-`The developers of Revolution Wind off Rhode Island and Empire Wind off New York are the latest to sue the Trump administration.`\
-https://nytimes.com/2026/01/02/climate/trump-offshore-wind-lawsuit-national-security.html
 
