@@ -1,3 +1,7 @@
+**Rory McIlroy would accept return of LIV golfers to PGA Tour**\
+`McIlroy said it might be best for the sport's growth to bring back LIV golfers.`\
+https://nytimes.com/athletic/6936097/2026/01/02/rory-mcilroy-liv-golfers-return-pga-tour/
+
 **Oil Tanker Fleeing U.S. Coast Guard Broadcasts Location in North Atlantic**\
 `Russia requested this week that the United States end its pursuit of the vessel, which was intercepted in the Caribbean on its way to pick up oil in Venezuela.`\
 https://nytimes.com/2026/01/02/us/politics/oil-tanker-russia-north-atlantic.html

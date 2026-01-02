@@ -1,3 +1,7 @@
+**Building Team USA: Guerin on leaving Robertson, other scorers off roster — 'Have to fill roles'**\
+`Olympic GM Bill Guerin called the process of finalizing the U.S. men's hockey roster "exhausting" but thinks he found the right mix.`\
+https://nytimes.com/athletic/6936038/2026/01/02/bill-guerin-mike-sullivan-team-usa-roster/
+
 **Rory McIlroy would accept return of LIV golfers to PGA Tour**\
 `McIlroy said it might be best for the sport's growth to bring back LIV golfers.`\
 https://nytimes.com/athletic/6936097/2026/01/02/rory-mcilroy-liv-golfers-return-pga-tour/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/02/us/north-carolina-man-terrorist-attack-fbi.html
 **Sparklers Probably Caused Deadly Fire at Swiss Ski Resort, Officials Say**\
 `The Swiss authorities said that a deadly fire at a popular bar in the ski resort town of Crans-Montana was probably caused by sparklers attached to champagne bottles that were held too close to the ceiling.`\
 https://nytimes.com/video/world/europe/100000010620929/switzerland-ski-resort-fire-sparklers.html
-
-**Presenting the 2026 U.S. Olympics all-snub team**\
-`We're in the midst of an American hockey golden age, and this B-Team wouldn’t be an easy out for anyone.`\
-https://nytimes.com/athletic/6934781/2026/01/02/team-usa-2026-olympic-hockey-roster-snubs/
 

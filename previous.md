@@ -1,3 +1,7 @@
+**Rory McIlroy would accept return of LIV golfers to PGA Tour**\
+`McIlroy said it might be best for the sport's growth to bring back LIV golfers.`\
+https://nytimes.com/athletic/6936097/2026/01/02/rory-mcilroy-liv-golfers-return-pga-tour/
+
 **Oil Tanker Fleeing U.S. Coast Guard Broadcasts Location in North Atlantic**\
 `Russia requested this week that the United States end its pursuit of the vessel, which was intercepted in the Caribbean on its way to pick up oil in Venezuela.`\
 https://nytimes.com/2026/01/02/us/politics/oil-tanker-russia-north-atlantic.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/europe/100000010620929/switzerland-ski-resort-fi
 **Presenting the 2026 U.S. Olympics all-snub team**\
 `We're in the midst of an American hockey golden age, and this B-Team wouldn’t be an easy out for anyone.`\
 https://nytimes.com/athletic/6934781/2026/01/02/team-usa-2026-olympic-hockey-roster-snubs/
-
-**Driver involved in Anthony Joshua crash charged by police**\
-`Police confirmed Adeniyi Mobolaji Kayode, the driver of the Lexus SUV involved in the accident, has been charged.`\
-https://nytimes.com/athletic/6936062/2026/01/02/anthony-joshua-driver-charged/
 
