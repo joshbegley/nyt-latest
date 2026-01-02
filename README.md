@@ -1,3 +1,7 @@
+**Map: 6.5-Magnitude Earthquake Shakes Mexico**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2026/01/02/world/americas/earthquake-mexico-tracker.html
+
 **Chelsea head coach contender Rosenior offers no guarantees he will remain at Strasbourg**\
 `The Athletic reported on Thursday that Rosenior is currently the frontrunner to succeed Enzo Maresca at Stamford Bridge.`\
 https://nytimes.com/athletic/6935700/2026/01/02/liam-rosenior-chelsea-strasbourg-future/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6935625/2026/01/02/arnaud-kalimuendo-forest-frankfu
 **No Corrections: Jan. 2, 2026**\
 `No corrections appeared in print on Friday, Jan. 2, 2026.`\
 https://nytimes.com/2026/01/02/pageoneplus/no-corrections-jan-2-2026.html
-
-**Tesla Car Sales Dropped 9% in 2025, Falling Behind China’s BYD**\
-`As the largest maker of electric vehicles in the United States, Tesla suffered more than other carmakers from the elimination of federal incentives.`\
-https://nytimes.com/2026/01/02/business/tesla-electric-vehicles-fourth-quarter-sales.html
 

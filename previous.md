@@ -1,3 +1,7 @@
+**Chelsea head coach contender Rosenior offers no guarantees he will remain at Strasbourg**\
+`The Athletic reported on Thursday that Rosenior is currently the frontrunner to succeed Enzo Maresca at Stamford Bridge.`\
+https://nytimes.com/athletic/6935700/2026/01/02/liam-rosenior-chelsea-strasbourg-future/
+
 **Yemen Sends Military to Push Out Separatist Faction**\
 `The Saudi-backed government in Yemen said it would send forces to reclaim territory from a group that the United Arab Emirates supports.`\
 https://nytimes.com/2026/01/02/world/middleeast/yemen-separatists-government.html
@@ -6,7 +10,7 @@ https://nytimes.com/2026/01/02/world/middleeast/yemen-separatists-government.htm
 `With four teams left, Indiana is the clear favorite to win the national title.`\
 https://nytimes.com/athletic/6934727/2026/01/02/college-football-playoff-odds-indiana-miami-ole-miss-oregon/
 
-**Charlotte interest in Harvey Elliott as Villa seek to terminate loan from Liverpool**\
+**Charlotte interested in Harvey Elliott as Villa seek to terminate loan from Liverpool**\
 `Elliott's Villa loan includes obligation to make the transfer permanent from Liverpool in summer 2026 if he makes 10 appearances this season`\
 https://nytimes.com/athletic/6935669/2026/01/02/harvey-elliott-aston-villa-liverpool-transfer-charlotte-mls/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/02/pageoneplus/no-corrections-jan-2-2026.html
 **Tesla Car Sales Dropped 9% in 2025, Falling Behind China’s BYD**\
 `As the largest maker of electric vehicles in the United States, Tesla suffered more than other carmakers from the elimination of federal incentives.`\
 https://nytimes.com/2026/01/02/business/tesla-electric-vehicles-fourth-quarter-sales.html
-
-**Mikey Williams was basketball's next big star. He's happier now under a smaller spotlight**\
-`Followed by a documentary crew and millions on social media before gunfire derailed his career, he's back on the court, at Sacramento State.`\
-https://nytimes.com/athletic/6918025/2026/01/02/mikey-williams-sacramento-state-fear-nothing/
 

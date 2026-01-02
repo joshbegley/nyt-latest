@@ -1,3 +1,11 @@
+**Chelsea head coach contender Rosenior offers no guarantees he will remain at Strasbourg**\
+`The Athletic reported on Thursday that Rosenior is currently the frontrunner to succeed Enzo Maresca at Stamford Bridge.`\
+https://nytimes.com/athletic/6935700/2026/01/02/liam-rosenior-chelsea-strasbourg-future/
+
+**Charlotte interested in Harvey Elliott as Villa seek to terminate loan from Liverpool**\
+`Elliott's Villa loan includes obligation to make the transfer permanent from Liverpool in summer 2026 if he makes 10 appearances this season`\
+https://nytimes.com/athletic/6935669/2026/01/02/harvey-elliott-aston-villa-liverpool-transfer-charlotte-mls/
+
 **Yemen Sends Military to Push Out Separatist Faction**\
 `The Saudi-backed government in Yemen said it would send forces to reclaim territory from a group that the United Arab Emirates supports.`\
 https://nytimes.com/2026/01/02/world/middleeast/yemen-separatists-government.html
