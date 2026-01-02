@@ -1,3 +1,19 @@
+**Mikey Williams was basketball's next big star. He's happier now under a smaller spotlight**\
+`Followed by a documentary crew and millions on social media before gunfire derailed his career, he's back on the court, at Sacramento State.`\
+https://nytimes.com/athletic/6918025/2026/01/02/mikey-williams-sacramento-state-fear-nothing/
+
+**‘My Face Was Half-Burned’: Survivor Recounts Being on Fire in Bar**\
+`Noa Bersier went to Le Constellation with friends on a whim. An hour later, he was caught in one of Switzerland’s worst tragedies.`\
+https://nytimes.com/2026/01/02/world/europe/switzerland-ski-bar-fire-survivor-account.html
+
+**Big Changes Are Coming to Student Loans. Here’s What to Know if You’re Struggling.**\
+`Millions of borrowers who are behind can expect the government to tighten the options in 2026. Experts say take action now to get help.`\
+https://nytimes.com/2026/01/02/business/student-loan-debt-save-plan.html
+
+**Amorim says no transfer discussions at Man Utd**\
+`"We have no conversations in this moment to have any change in the squad," the United head coach said on Friday.`\
+https://nytimes.com/athletic/6935658/2026/01/02/ruben-amorim-man-utd-transfers/
+
 **What now for Ohio State? 8 thoughts on what went wrong vs. Miami and 2026 changes**\
 `The transfer portal opened Friday and Ohio State will return a lot of talent next season, but the Cotton Bowl loss will linger.`\
 https://nytimes.com/athletic/6935618/2026/01/02/ohio-state-miami-coaches-portal-2026/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6932762/2026/01/02/united-states-womens-olympic-hoc
 **Team USA announces men’s hockey roster for 2026 Olympics: Snubs, surprises and expectations**\
 `The U.S. men’s hockey roster was officially unveiled Friday morning with 21 4 Nations returnees and four new faces.`\
 https://nytimes.com/athletic/6935084/2026/01/02/united-states-mens-olympic-hockey-roster-2026/
-
-**Is the College Football Playoff first-round bye cursed? Not so fast**\
-`Teams that receive a first-round bye are 1-7, with Indiana's Rose Bowl win over Alabama this year the only victory by a CFP top-four seed.`\
-https://nytimes.com/athletic/6935516/2026/01/02/college-football-playoff-first-round-bye-record/
-
-**How to watch Golden Knights vs. Blues: Time, TV, streaming**\
-`Find out how to watch the Vegas Golden Knights play the St. Louis Blues, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6935613/2026/01/02/golden-knights-vs-blues-stream-how-to-watch-jan-2/
-
-**Milan complete loan signing of West Ham's Fullkrug**\
-`Milan hold the option of making Fullkrug's move permanent in the summer transfer window.`\
-https://nytimes.com/athletic/6935559/2026/01/02/fullkrug-milan-transfer-west-ham/
-
-**Tottenham defender Takai joins Gladbach on loan**\
-`Takai joined Spurs on a five-year contract from Kawasaki Frontale in July for a J-League record fee of around £5million.`\
-https://nytimes.com/athletic/6935553/2026/01/02/tottenham-kota-takai-monchengladbach-transfer/
 

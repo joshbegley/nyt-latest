@@ -1,3 +1,19 @@
+**Mikey Williams was basketball's next big star. He's happier now under a smaller spotlight**\
+`Followed by a documentary crew and millions on social media before gunfire derailed his career, he's back on the court, at Sacramento State.`\
+https://nytimes.com/athletic/6918025/2026/01/02/mikey-williams-sacramento-state-fear-nothing/
+
+**‘My Face Was Half-Burned’: Survivor Recounts Being on Fire in Bar**\
+`Noa Bersier went to Le Constellation with friends on a whim. An hour later, he was caught in one of Switzerland’s worst tragedies.`\
+https://nytimes.com/2026/01/02/world/europe/switzerland-ski-bar-fire-survivor-account.html
+
+**Big Changes Are Coming to Student Loans. Here’s What to Know if You’re Struggling.**\
+`Millions of borrowers who are behind can expect the government to tighten the options in 2026. Experts say take action now to get help.`\
+https://nytimes.com/2026/01/02/business/student-loan-debt-save-plan.html
+
+**Amorim says no transfer discussions at Man Utd**\
+`"We have no conversations in this moment to have any change in the squad," the United head coach said on Friday.`\
+https://nytimes.com/athletic/6935658/2026/01/02/ruben-amorim-man-utd-transfers/
+
 **What now for Ohio State? 8 thoughts on what went wrong vs. Miami and 2026 changes**\
 `The transfer portal opened Friday and Ohio State will return a lot of talent next season, but the Cotton Bowl loss will linger.`\
 https://nytimes.com/athletic/6935618/2026/01/02/ohio-state-miami-coaches-portal-2026/
