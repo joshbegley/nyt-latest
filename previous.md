@@ -1,3 +1,7 @@
+**Inside Enzo Maresca's Chelsea exit: Selection disagreements, Man City talks and defender woe**\
+`Enzo Maresca left Chelsea on New Year's Day but the seeds of his exit were sown many months before`\
+https://nytimes.com/athletic/6935634/2026/01/02/chelsea-enzo-maresca-exit-inside/
+
 **The Best Boxed Brownie Mixes**\
 `To find the gooiest, fudgiest brownies, we baked 15 batches from boxed mixes. We landed on four favorites — and sadly, Ghirardelli didn’t even make the cut.`\
 https://nytimes.com/video/smarter-living/wirecutter/100000010620895/the-best-boxed-brownie-mixes.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6935998/2026/01/02/spurs-vs-pacers-stream-how-to-wa
 **How to watch Nets vs. Wizards: Time, TV, streaming**\
 `Find out how to watch the Brooklyn Nets play the Washington Wizards, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6935996/2026/01/02/nets-vs-wizards-stream-how-to-watch-jan-2/
-
-**Families search for information about those unaccounted for.**\
-`Desperate families are searching for news about their missing children and loved ones, more than a day and a half after the inferno at a bar.`\
-https://nytimes.com/live/2026/01/02/world/switzerland-ski-resort-fire/families-search-for-information-about-those-unaccounted-for
 

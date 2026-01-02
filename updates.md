@@ -1,3 +1,7 @@
+**Inside Enzo Maresca's Chelsea exit: Selection disagreements, Man City talks and defender woe**\
+`Enzo Maresca left Chelsea on New Year's Day but the seeds of his exit were sown many months before`\
+https://nytimes.com/athletic/6935634/2026/01/02/chelsea-enzo-maresca-exit-inside/
+
 **The Best Boxed Brownie Mixes**\
 `To find the gooiest, fudgiest brownies, we baked 15 batches from boxed mixes. We landed on four favorites — and sadly, Ghirardelli didn’t even make the cut.`\
 https://nytimes.com/video/smarter-living/wirecutter/100000010620895/the-best-boxed-brownie-mixes.html

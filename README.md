@@ -1,3 +1,7 @@
+**Driver involved in Anthony Joshua crash charged by police**\
+`Police confirmed Adeniyi Mobolaji Kayode, the driver of the Lexus SUV involved in the accident, has been charged.`\
+https://nytimes.com/athletic/6936062/2026/01/02/anthony-joshua-driver-charged/
+
 **Inside Enzo Maresca's Chelsea exit: Selection disagreements, Man City talks and defender woe**\
 `Enzo Maresca left Chelsea on New Year's Day but the seeds of his exit were sown many months before`\
 https://nytimes.com/athletic/6935634/2026/01/02/chelsea-enzo-maresca-exit-inside/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/02/well/mind/ask-therapist-grandkid-gifts.html
 **How to watch Spurs vs. Pacers: Time, TV, streaming**\
 `Find out how to watch the San Antonio Spurs play the Indiana Pacers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6935998/2026/01/02/spurs-vs-pacers-stream-how-to-watch-jan-2/
-
-**How to watch Nets vs. Wizards: Time, TV, streaming**\
-`Find out how to watch the Brooklyn Nets play the Washington Wizards, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6935996/2026/01/02/nets-vs-wizards-stream-how-to-watch-jan-2/
 
