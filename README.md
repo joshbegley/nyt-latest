@@ -1,3 +1,7 @@
+**What’s Going On in This Graph? | Jan. 14, 2026**\
+`Who are the adults in children’s lives?`\
+https://nytimes.com/2026/01/02/learning/whats-going-on-in-this-graph-jan-14-2026.html
+
 **Eintracht Frankfurt confident of signing Kalimuendo on loan from Forest**\
 `The 23-year-old forward has been used sparingly at Forest despite the injury to Chris Wood.`\
 https://nytimes.com/athletic/6935625/2026/01/02/arnaud-kalimuendo-forest-frankfurt/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6935618/2026/01/02/ohio-state-miami-coaches-portal-
 **What’s Going On in This Picture? | Jan. 5, 2026**\
 `Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
 https://nytimes.com/2026/01/02/learning/whats-going-on-in-this-picture-jan-5-2026.html
-
-**Swiss Authorities Face the Grim Task of Identifying Fire Victims**\
-`Identifying the victims of a New Year’s fire in Crans-Montana that killed more than 40 people could take days or weeks because of the severity of the burns.`\
-https://nytimes.com/2026/01/02/world/europe/swiss-bar-fire-victims-burns-identification.html
 
