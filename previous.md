@@ -1,3 +1,7 @@
+**Fantasy Premier League live Q&A: Gameweek 20 advice from Ben Dinnery**\
+`Post your FPL questions, and Ben will be online to offer his insight today from 4pm to 5pm UK time (11am to 12pm ET)`\
+https://nytimes.com/athletic/6934538/2026/01/02/fantasy-premier-league-live-qa-gameweek-20-advice-from-ben-dinnery/
+
 **Wall Street Sees Another Banner Year for Markets. Could Anything Stop It?**\
 `Analysts have forecast more stellar gains for the S&P 500. But concerns about inflation, the dollar and sky-high valuations could make for a choppy run.`\
 https://nytimes.com/2026/01/02/business/dealbook/wall-street-market-prediction.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6935011/2026/01/02/sabres-playoff-chances-ostlund-t
 **Never mind Team Canada. Is Bedard the most valuable player in the NHL?**\
 `The leap Bedard has taken this season is even more evident in his absence.`\
 https://nytimes.com/athletic/6934861/2026/01/02/connor-bedard-olympics-mvp-blackhawks/
-
-**49ers' Austen Pleasants gets tough love after replacing Trent Williams**\
-`Starting left tackle Trent Williams hasn't been ruled out for Saturday's game, but he didn't practice this week on his injured hamstring.`\
-https://nytimes.com/athletic/6934738/2026/01/02/austen-pleasants-49ers-left-tackle-trent-williams/
 

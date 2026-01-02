@@ -1,3 +1,7 @@
+**Fantasy Premier League live Q&A: Gameweek 20 advice from Ben Dinnery**\
+`Post your FPL questions, and Ben will be online to offer his insight today from 4pm to 5pm UK time (11am to 12pm ET)`\
+https://nytimes.com/athletic/6934538/2026/01/02/fantasy-premier-league-live-qa-gameweek-20-advice-from-ben-dinnery/
+
 **Wall Street Sees Another Banner Year for Markets. Could Anything Stop It?**\
 `Analysts have forecast more stellar gains for the S&P 500. But concerns about inflation, the dollar and sky-high valuations could make for a choppy run.`\
 https://nytimes.com/2026/01/02/business/dealbook/wall-street-market-prediction.html
