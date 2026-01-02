@@ -1,3 +1,11 @@
+**Sparklers Probably Caused Deadly Fire at Swiss Ski Resort, Officials Say**\
+`The Swiss authorities said that a deadly fire at a popular bar in the ski resort town of Crans-Montana was probably caused by sparklers attached to champagne bottles that were held too close to the ceiling.`\
+https://nytimes.com/video/world/europe/100000010620929/switzerland-ski-resort-fire-sparklers.html
+
+**Presenting the 2026 U.S. Olympics all-snub team**\
+`We're in the midst of an American hockey golden age, and this B-Team wouldn’t be an easy out for anyone.`\
+https://nytimes.com/athletic/6934781/2026/01/02/team-usa-2026-olympic-hockey-roster-snubs/
+
 **Driver involved in Anthony Joshua crash charged by police**\
 `Police confirmed Adeniyi Mobolaji Kayode, the driver of the Lexus SUV involved in the accident, has been charged.`\
 https://nytimes.com/athletic/6936062/2026/01/02/anthony-joshua-driver-charged/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6936029/2026/01/02/college-football-playoff-semifin
 **Unboxing 450 Pounds of Returned Goods**\
 `What happens when you return something? Unfortunately, it doesn’t always make it back to the seller. We sifted through 450 pounds of returned products. Here’s what we found.`\
 https://nytimes.com/video/smarter-living/wirecutter/100000010620830/unboxing-450-pounds-of-returned-goods.html
-
-**My Grandchildren Don’t Thank Me for Christmas Gifts. Is This a Moral Failure?**\
-`Our Ask the Therapist columnist, Lori Gottlieb, advises a reader who worries that their grandkids are not being raised with good values or manners.`\
-https://nytimes.com/2026/01/02/well/mind/ask-therapist-grandkid-gifts.html
-
-**How to watch Spurs vs. Pacers: Time, TV, streaming**\
-`Find out how to watch the San Antonio Spurs play the Indiana Pacers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6935998/2026/01/02/spurs-vs-pacers-stream-how-to-watch-jan-2/
 

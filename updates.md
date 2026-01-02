@@ -1,3 +1,11 @@
+**Sparklers Probably Caused Deadly Fire at Swiss Ski Resort, Officials Say**\
+`The Swiss authorities said that a deadly fire at a popular bar in the ski resort town of Crans-Montana was probably caused by sparklers attached to champagne bottles that were held too close to the ceiling.`\
+https://nytimes.com/video/world/europe/100000010620929/switzerland-ski-resort-fire-sparklers.html
+
+**Presenting the 2026 U.S. Olympics all-snub team**\
+`We're in the midst of an American hockey golden age, and this B-Team wouldn’t be an easy out for anyone.`\
+https://nytimes.com/athletic/6934781/2026/01/02/team-usa-2026-olympic-hockey-roster-snubs/
+
 **Driver involved in Anthony Joshua crash charged by police**\
 `Police confirmed Adeniyi Mobolaji Kayode, the driver of the Lexus SUV involved in the accident, has been charged.`\
 https://nytimes.com/athletic/6936062/2026/01/02/anthony-joshua-driver-charged/
