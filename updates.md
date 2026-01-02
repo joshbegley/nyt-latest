@@ -1,3 +1,7 @@
+**Happy New Year, on the High Seas**\
+`Scientists aboard the icebreaker Araon welcomed 2026 with games, another time change and a soup that marks the years ticking past.`\
+https://nytimes.com/2026/01/02/climate/antarctic-expedition-new-years-2026.html
+
 **What to Expect From Mayor Mamdani**\
 `Readers share their hopes and anxieties as New York’s new mayor takes office. Also: Unsubscribing from the Kennedy Center; protesting Trump.`\
 https://nytimes.com/2026/01/02/opinion/mamdani-nyc-future.html

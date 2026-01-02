@@ -1,3 +1,7 @@
+**Happy New Year, on the High Seas**\
+`Scientists aboard the icebreaker Araon welcomed 2026 with games, another time change and a soup that marks the years ticking past.`\
+https://nytimes.com/2026/01/02/climate/antarctic-expedition-new-years-2026.html
+
 **What to Expect From Mayor Mamdani**\
 `Readers share their hopes and anxieties as New York’s new mayor takes office. Also: Unsubscribing from the Kennedy Center; protesting Trump.`\
 https://nytimes.com/2026/01/02/opinion/mamdani-nyc-future.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/02/world/europe/teenager-rescue-burning-bar.html
 **‘The Ezra Klein Show’ 2025 Book Recommendations**\
 `Readings that the podcast’s guests say shaped their thinking.`\
 https://nytimes.com/2026/01/02/opinion/the-ezra-klein-show-2025-book-recommendations.html
-
-**North Carolina Man Accused of Planning Potential Terrorist Attack**\
-`The 18-year-old, radicalized online, was planning a New Year’s Eve attack in a Charlotte suburb, officials said.`\
-https://nytimes.com/2026/01/02/us/north-carolina-man-terrorist-attack-fbi.html
 
