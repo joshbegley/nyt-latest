@@ -1,3 +1,7 @@
+**Wild at the Olympics: At least 8 players headed to Milan, with a Swedish surprise — and snub**\
+`Wild goalie Jesper Wallstedt on making the cut for Sweden: “Now I can say I'm an Olympic athlete. So that's pretty cool at 23 years old."`\
+https://nytimes.com/athletic/6936625/2026/01/02/wild-olympics-wallstedt-johansson/
+
 **Ole Miss backup QB planning to transfer but will stay on through CFP: Reports**\
 `Early reports indicate that Missouri is the team to watch in the race for Simmons.`\
 https://nytimes.com/athletic/6936649/2026/01/02/austin-simmons-transfer-ole-miss-quarterbacks/

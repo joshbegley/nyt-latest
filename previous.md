@@ -1,3 +1,7 @@
+**Wild at the Olympics: At least 8 players headed to Milan, with a Swedish surprise — and snub**\
+`Wild goalie Jesper Wallstedt on making the cut for Sweden: “Now I can say I'm an Olympic athlete. So that's pretty cool at 23 years old."`\
+https://nytimes.com/athletic/6936625/2026/01/02/wild-olympics-wallstedt-johansson/
+
 **Ole Miss backup QB planning to transfer but will stay on through CFP: Reports**\
 `Early reports indicate that Missouri is the team to watch in the race for Simmons.`\
 https://nytimes.com/athletic/6936649/2026/01/02/austin-simmons-transfer-ole-miss-quarterbacks/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/02/business/sprinkles-cupcakes-closed.html
 **Overlooked No More: Pamela Colman Smith, Artist Behind a Famous Tarot Deck**\
 `She hand-painted around 80 illustrations for the Rider-Waite deck, which is still used around the world to predict destinies.`\
 https://nytimes.com/2026/01/02/obituaries/pamela-colman-smith-overlooked.html
-
-**Hiker Killed in Suspected Mountain Lion Attack, Colorado’s First in Decades**\
-`A woman’s body was found on a trail on Crosier Mountain this week, with a mountain lion nearby.`\
-https://nytimes.com/2026/01/02/us/mountain-lion-attack-hiker-dead-colorado.html
 
