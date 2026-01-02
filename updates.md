@@ -1,3 +1,7 @@
+**Sydney hopeful of five-day Ashes fifth test finale with SCG pitch preparation**\
+`It comes after the pitch for the fourth Test in Melbourne was labelled "unsatisfactory" following a two-day match.`\
+https://nytimes.com/athletic/6935326/2026/01/02/ashes-pitch-sydney-australia-england/
+
 **Five Laws Going Into Effect for New York in 2026**\
 `Among them, benefits for minimum wage workers, cancer patients and parents of young children. Also, a change to child abuse reporting.`\
 https://nytimes.com/2026/01/02/nyregion/2026-new-laws-new-york-state.html
