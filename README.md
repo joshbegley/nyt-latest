@@ -1,3 +1,7 @@
+**‘I Will Govern as a Democratic Socialist,’ Mamdani Says at Inauguration**\
+`Mayor Zohran Mamdani was inaugurated as the mayor of New York City on Thursday in a ceremony attended by thousands outside City Hall.`\
+https://nytimes.com/video/nyregion/100000010619911/mayor-zohran-mamdani-inauguration.html
+
 **Jonas Valančiūnas out at least a month as injuries mount for Denver Nuggets**\
 `Already down four starters, the Denver Nuggets will be without backup big man Jonas Valančiūnas for at least a month.`\
 https://nytimes.com/athletic/6934688/2026/01/01/denver-nuggets-injuries-valanciunas-jokic-johnson-gordon-braun/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/01/nyregion/mamdani-inauguration-scene.html
 **7 Takeaways From the Inauguration of Mayor Zohran Mamdani**\
 `Mr. Mamdani reaffirmed that he would govern New York City as a democratic socialist and assured even those who had not voted for him: “I am your mayor.”`\
 https://nytimes.com/2026/01/01/nyregion/mamdani-inauguration-takeaways.html
-
-**Mamdani’s First Orders Focus on Housing and Undoing Adams’s Decisions**\
-`Mayor Zohran Mamdani signed a flurry of executive orders on his first day as mayor of New York City. They were aimed at protecting tenants and revoking some of ex-Mayor Eric Adams’s past orders.`\
-https://nytimes.com/2026/01/01/nyregion/mamdani-housing-executive-orders.html
 
