@@ -1,40 +1,40 @@
-**It’s Likely That a Flashover Occurred During the Swiss Bar Fire. Here’s What That Means.**\
-`A flashover is an event where an entire room is rapidly engulfed in flames.`\
-https://nytimes.com/2026/01/02/world/europe/switzerland-resort-bar-fire-flashover.html
+**Dak Prescott's contract talk advice to George Pickens: 'Don't let it get personal'**\
+`A new deal for Pickens is likely to average more than $30 million per season, and he hopes to remain in Dallas.`\
+https://nytimes.com/athletic/6934640/2026/01/02/george-pickens-cowboys-contract-negotiations-jerry-jones/
 
-**Can anyone save the Raiders? It's time for Tom Brady to try**\
-`Brady as a silent advisor to the Las Vegas Raiders is one thing, but a present, fully accountable boss would send a far different message.`\
-https://nytimes.com/athletic/6926744/2026/01/02/tom-brady-las-vegas-raiders-worst-record-nfl/
+**The Lions' coordinators conversation: What do their futures look like?**\
+`John Morton lost his play-calling responsibilities with Detroit, and Kelvin Sheppard's defense struggled in the back half of the season.`\
+https://nytimes.com/athletic/6934619/2026/01/02/lions-dan-campbell-coordinators-future/
 
-**Mandel's Final Thoughts: Were Indiana, Ole Miss wins a changing of the guard moment in CFB?**\
-`Indiana's and Ole Miss's win over the old powers is a sign of a new era in college football.`\
-https://nytimes.com/athletic/6935179/2026/01/02/college-football-playoff-scores-result-indiana-ole-miss/
+**Auston Matthews is knocking on the door of Leafs history. Is he back for real?**\
+`After a prolonged slump to start the season, Matthews looked more like his vintage self with a hat trick against the Jets.`\
+https://nytimes.com/athletic/6935045/2026/01/02/maple-leafs-matthews-scoring-domi-jets/
 
-**The New York Times International Edition in Print for Saturday, Jan. 3, 2026**\
-``\
-https://nytimes.com/issue/todaysinyt/2026/01/02/todays-new-york-times-international-edition
+**Penguins overcome special-teams slugfest in Letang's 1,200th game: Observations**\
+`The Penguins struggled to keep themselves in check along with some questionable officiating in a dramatic back-and-forth with the Red Wings.`\
+https://nytimes.com/athletic/6934831/2026/01/02/penguins-letang-crosby-penalties-red-wings/
 
-**'We rate him highly' - Hurzeler praises Gross after Brighton agree deal with Dortmund**\
-`Hurzeler took charge of Brighton in June 2024, a few weeks before Gross joined boyhood club Borussia Dortmund.`\
-https://nytimes.com/athletic/6935392/2026/01/02/pascal-gross-brighton-transfers/
+**Panthers-Bucs showdown: Analyzing the matchup and predicting the winner**\
+`The Panthers have a couple of ways to reach the postseason, but beating the Bucs and clinching Saturday is what they prefer.`\
+https://nytimes.com/athletic/6934379/2026/01/02/panthers-bucs-prediction-nfc-south-playoffs/
 
-**Trump Says U.S. Is ‘Locked and Loaded’ if Iran Kills Protesters**\
-`Mr. Trump’s remarks that he was ready to come to the protesters’ “rescue” are a sharp escalation as protests over economic hardship turned deadly.`\
-https://nytimes.com/2026/01/02/world/middleeast/trump-iran-protests.html
+**World Juniors predictions: Quarterfinal matchups, who medals and who's relegated**\
+`Prospect experts Corey Pronman, Scott Wheeler and Max Bultman analyze our staff's updated picks ahead of the tournament's quarterfinals.`\
+https://nytimes.com/athletic/6934589/2026/01/02/2026-world-juniors-predictions-quarterfinal-matchups-medalists/
 
-**Emanuele Galeppini, an Italian Golfer, Is Among First Victims Named in Swiss Fire**\
-`Mr. Galeppini, 17, was a promising young golfer from Genoa who lived in Dubai with his family, the Italian media reported.`\
-https://nytimes.com/2026/01/02/world/europe/swiss-bar-fire-victims-golfer-galeppini.html
+**I play for the Miami Dolphins. This is the mental lesson I learned this season**\
+`Alec Ingold is a fullback for the Miami Dolphins. He shares the lightbulb moment this year that changed his perspective.`\
+https://nytimes.com/athletic/6934236/2026/01/02/miami-dolphins-alec-ingold-2025-season-lesson/
 
-**Why a Nuclear Plant Is a Big Sticking Point in the Ukraine Peace Plan**\
-`The Zaporizhzhia plant, occupied by Russia, would be crucial to powering Ukraine’s postwar recovery.`\
-https://nytimes.com/2026/01/02/world/europe/ukraine-peace-plan-zaporizhzhia-nuclear-plant.html
+**Mavericks lose for sixth time in 7 games despite Anthony Davis' return**\
+`Philadelphia's dynamic backcourt duo of Tyrese Maxey and V.J. Edgecombe led the 76ers to an easy win over the stumbling Mavericks.`\
+https://nytimes.com/athletic/6935017/2026/01/02/cooper-flagg-vj-edgecombe-mavericks-loss/
 
-**Millions of Americans Will Pay More for Health Care This Year. Are You One of Them?**\
-`Tell us how you’re managing increases to your health care insurance costs.`\
-https://nytimes.com/2026/01/02/opinion/contributors/aca-subsidies-expiring.html
+**NHL trade matchmaker: Predicting where top targets go by the deadline, part 3**\
+`Where could Alex Tuch, Blake Coleman, Justin Faulk and Andrew Mangiapane end up by the deadline? Our insiders' picks.`\
+https://nytimes.com/athletic/6934000/2026/01/02/nhl-trade-board-matchmaker-tuch-coleman-faulk/
 
-**The New York Times News Quiz, Jan. 2, 2026**\
-`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
-https://nytimes.com/interactive/2026/01/02/briefing/news-quiz-trump-venezuela-new-years-eve.html
+**AFC North Whiparound: Delving into the Steelers-Ravens division title game**\
+`Also, awards season, regrettable decisions this season and whether Myles Garrett will get the sack record vs. the Bengals.`\
+https://nytimes.com/athletic/6934160/2026/01/02/afc-north-whiparound-ravens-steelers-week-18/
 
