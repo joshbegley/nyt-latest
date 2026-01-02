@@ -1,3 +1,7 @@
+**Milan complete loan signing of West Ham's Fullkrug**\
+`Milan hold the option of making Fullkrug's move permanent in the summer transfer window.`\
+https://nytimes.com/athletic/6935559/2026/01/02/fullkrug-milan-transfer-west-ham/
+
 **Tottenham defender Takai joins Gladbach on loan**\
 `Takai joined Spurs on a five-year contract from Kawasaki Frontale in July for a J-League record fee of around £5million.`\
 https://nytimes.com/athletic/6935553/2026/01/02/tottenham-kota-takai-monchengladbach-transfer/

@@ -1,3 +1,7 @@
+**How to watch Golden Knights vs. Blues: Time, TV, streaming**\
+`Find out how to watch the Vegas Golden Knights play the St. Louis Blues, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6935613/2026/01/02/golden-knights-vs-blues-stream-how-to-watch-jan-2/
+
 **Milan complete loan signing of West Ham's Fullkrug**\
 `Milan hold the option of making Fullkrug's move permanent in the summer transfer window.`\
 https://nytimes.com/athletic/6935559/2026/01/02/fullkrug-milan-transfer-west-ham/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6934538/2026/01/02/fantasy-premier-league-live-qa-g
 **Wall Street Sees Another Banner Year for Markets. Could Anything Stop It?**\
 `Analysts have forecast more stellar gains for the S&P 500. But concerns about inflation, the dollar and sky-high valuations could make for a choppy run.`\
 https://nytimes.com/2026/01/02/business/dealbook/wall-street-market-prediction.html
-
-**Zelensky Asks General to Replace Chief of Staff Ousted in Graft Scandal**\
-`Kyrylo Budanov, who has served as Ukraine’s military intelligence chief, is seen as a potential rival to Mr. Zelensky if elections are held.`\
-https://nytimes.com/2026/01/02/world/europe/zelensky-budanov-ukraine-chief-of-staff-yermak.html
 
