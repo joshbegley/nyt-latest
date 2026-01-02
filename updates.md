@@ -1,3 +1,7 @@
+**'We rate him highly' - Hurzeler praises Gross after Brighton agree deal with Dortmund**\
+`Hurzeler took charge of Brighton in June 2024, a few weeks before Gross joined boyhood club Borussia Dortmund.`\
+https://nytimes.com/athletic/6935392/2026/01/02/pascal-gross-brighton-transfers/
+
 **Trump Says U.S. Is ‘Locked and Loaded’ if Iran Kills Protesters**\
 `Mr. Trump’s remarks are a sharp escalation as protests over economic hardship turned deadly.`\
 https://nytimes.com/2026/01/02/world/middleeast/trump-iran-protests.html
