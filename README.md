@@ -1,3 +1,11 @@
+**Behind the Scenes With Our Photographer**\
+`“I have a lot of gear.” Our photographer Chang W. Lee describes how he plans to capture the journey to Antarctica from every angle, including from a long-range drone and a sound-triggered camera designed to capture a calving glacier.`\
+https://nytimes.com/video/climate/100000010615476/behind-the-scenes-with-our-photographer.html
+
+**Answers to Your Antarctica Questions, Part 1**\
+`Our reporter sends a dispatch from the icebreaker Araon, currently on its way to Antarctica, about the scientists, their work and how he’s battling seasickness.`\
+https://nytimes.com/2026/01/02/climate/reader-questions-part-1.html
+
 **Wild at the Olympics: At least 8 players headed to Milan, with a Swedish surprise — and snub**\
 `Wild goalie Jesper Wallstedt on making the cut for Sweden: “Now I can say I'm an Olympic athlete. So that's pretty cool at 23 years old."`\
 https://nytimes.com/athletic/6936625/2026/01/02/wild-olympics-wallstedt-johansson/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/02/climate/trump-offshore-wind-lawsuit-national-secu
 **Sparklers Probably Caused New Year’s Fire at Bar, Swiss Authorities Say**\
 `Fireworks attached to bottles of Champagne sent up showers of sparks that appear to have ignited insulation in a bar. The blaze killed 40 people.`\
 https://nytimes.com/2026/01/02/world/europe/switzerland-ski-resort-bar-fire-crans-montana.html
-
-**Sprinkles Cupcakes, the Bakery That Sold From Vending Machines, Closes Suddenly**\
-`The boutique chain’s co-founder, Candace Nelson, said that the business had ceased operations at year’s end. It was sold to a private equity firm more than a decade ago.`\
-https://nytimes.com/2026/01/02/business/sprinkles-cupcakes-closed.html
-
-**Overlooked No More: Pamela Colman Smith, Artist Behind a Famous Tarot Deck**\
-`She hand-painted around 80 illustrations for the Rider-Waite deck, which is still used around the world to predict destinies.`\
-https://nytimes.com/2026/01/02/obituaries/pamela-colman-smith-overlooked.html
 
