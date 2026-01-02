@@ -11,7 +11,7 @@ https://nytimes.com/2026/01/02/us/politics/coast-guard-survivors-boat-strikes.ht
 https://nytimes.com/newsgraphics/card-story/where-do-aprons-go-to-retire-a-tiny-museum-in-mississippi
 
 **California Cannot Catch a Break as Another Storm Moves In**\
-`The latest storm is bringing flooding to the San Francisco Bay Area. Southern California has seen more than four times its typical rainfall in the last few months.`\
+`The latest storm is bringing flooding to the  San Francisco Bay Area. Southern California has seen more than four times its typical rainfall in the last few months.`\
 https://nytimes.com/2026/01/02/weather/california-rain-forecast.html
 
 **Saks C.E.O. Steps Down as Company Struggles to Pay Down Debt**\
