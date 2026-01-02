@@ -1,3 +1,15 @@
+**Carrying for a Cause: Meet the Man Lugging Shelter Dogs Around New York**\
+`Bryan Reisberg built a social media following in the millions by carrying his corgi, Maxine, in a backpack. Now, he carries shelter dogs.`\
+https://nytimes.com/2026/01/02/nyregion/dog-backpack-adopt.html
+
+**Team USA announces women’s hockey roster for 2026 Olympics: Snubs, surprises and expectations**\
+`As the No. 1 team in the IIHF rankings, Team USA is the favorite to win its first Olympic gold medal since 2018.`\
+https://nytimes.com/athletic/6932762/2026/01/02/united-states-womens-olympic-hockey-roster-2026/
+
+**Team USA announces men’s hockey roster for 2026 Olympics: Snubs, surprises and expectations**\
+`The U.S. men’s hockey roster was officially unveiled Friday morning with 21 4 Nations returnees and four new faces.`\
+https://nytimes.com/athletic/6935084/2026/01/02/united-states-mens-olympic-hockey-roster-2026/
+
 **U.S. announces men’s hockey roster for 2026 Olympics: Snubs, surprises and expectations**\
 `The U.S. men’s hockey roster was officially unveiled Friday morning with 21 4 Nations returnees and four new faces.`\
 https://nytimes.com/athletic/6935084/2026/01/02/united-states-mens-olympic-hockey-roster-2026/

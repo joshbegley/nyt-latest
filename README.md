@@ -1,3 +1,7 @@
+**Swiss Authorities Face the Grim Task of Identifying Fire Victims**\
+`Identifying the victims of a New Year’s fire in Crans-Montana that killed more than 40 people could take days or weeks because of the severity of the burns.`\
+https://nytimes.com/2026/01/02/world/europe/swiss-bar-fire-victims-burns-identification.html
+
 **Carrying for a Cause: Meet the Man Lugging Shelter Dogs Around New York**\
 `Bryan Reisberg built a social media following in the millions by carrying his corgi, Maxine, in a backpack. Now, he carries shelter dogs.`\
 https://nytimes.com/2026/01/02/nyregion/dog-backpack-adopt.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6934523/2026/01/02/lamar-jackson-ravens-steelers/
 **Keys to a Bears playoff run? Goal-to-go challenges? Mailbag plus Week 18 picks**\
 `Being able to sustain long drives and punish an opposing defense will be key for the Bears to make a run in the playoffs.`\
 https://nytimes.com/athletic/6934408/2026/01/02/bears-mailbag-week-18-picks-nfl/
-
-**Oilers 2025-26 midseason assessment: The good, the bad and the ugly**\
-`The Oilers entered 2026 atop the Pacific Division with a 20-15-6 record but their flaws are apparent.`\
-https://nytimes.com/athletic/6933902/2026/01/02/edmonton-oilers-stats-lines-2025/
 
