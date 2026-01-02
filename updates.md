@@ -1,3 +1,11 @@
+**Jonas Valančiūnas out at least a month as injuries mount for Denver Nuggets**\
+`Already down four starters, the Denver Nuggets will be without backup big man Jonas Valančiūnas for at least a month.`\
+https://nytimes.com/athletic/6934688/2026/01/01/denver-nuggets-injuries-valanciunas-jokic-johnson-gordon-braun/
+
+**Dan Lanning's Oregon is unabashedly aggressive, and it fueled dominance against Texas Tech**\
+`Oregon's offense will need to be better against Indiana, but if the Ducks lose, it won't be because they melt under the spotlight.`\
+https://nytimes.com/athletic/6934560/2026/01/01/oregon-dan-lanning-texas-tech-college-football-playoff-win/
+
 **How Indiana dismantled Alabama in Rose Bowl rout that was never in doubt**\
 `Heisman winner Fernando Mendoza and No. 1 Indiana dominated Alabama 38-3 to win a College Football Playoff quarterfinal at the Rose Bowl.`\
 https://nytimes.com/athletic/6934348/2026/01/01/indiana-alabama-score-rose-bowl-cfp/
