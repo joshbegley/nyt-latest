@@ -1,3 +1,15 @@
+**College Football Playoff odds: Indiana emerges as title favorite ahead of semifinals**\
+`With four teams left, Indiana is the clear favorite to win the national title.`\
+https://nytimes.com/athletic/6934727/2026/01/02/college-football-playoff-odds-indiana-miami-ole-miss-oregon/
+
+**Charlotte interest in Harvey Elliott as Villa seek to terminate loan from Liverpool**\
+`Elliott's Villa loan includes obligation to make the transfer permanent from Liverpool in summer 2026 if he makes 10 appearances this season`\
+https://nytimes.com/athletic/6935669/2026/01/02/harvey-elliott-aston-villa-liverpool-transfer-charlotte-mls/
+
+**The Bounce: New Year's resolutions for every NBA team**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/6935722/2026/01/02/nba-new-years-resolution-knicks-lakers-spurs-the-bounce/
+
 **What’s Going On in This Graph? | Jan. 14, 2026**\
 `Who are the adults in children’s lives?`\
 https://nytimes.com/2026/01/02/learning/whats-going-on-in-this-graph-jan-14-2026.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6918025/2026/01/02/mikey-williams-sacramento-state-
 **‘My Face Was Half-Burned’: Survivor Recounts Being on Fire in Bar**\
 `Noa Bersier went to Le Constellation with friends on a whim. An hour later, he was caught in one of Switzerland’s worst tragedies.`\
 https://nytimes.com/2026/01/02/world/europe/switzerland-ski-bar-fire-survivor-account.html
-
-**Big Changes Are Coming to Student Loans. Here’s What to Know if You’re Struggling.**\
-`Millions of borrowers who are behind can expect the government to tighten the options in 2026. Experts say take action now to get help.`\
-https://nytimes.com/2026/01/02/business/student-loan-debt-save-plan.html
-
-**Amorim says no transfer discussions at Man Utd**\
-`"We have no conversations in this moment to have any change in the squad," the United head coach said on Friday.`\
-https://nytimes.com/athletic/6935658/2026/01/02/ruben-amorim-man-utd-transfers/
-
-**What now for Ohio State? 8 thoughts on what went wrong vs. Miami and 2026 changes**\
-`The transfer portal opened Friday and Ohio State will return a lot of talent next season, but the Cotton Bowl loss will linger.`\
-https://nytimes.com/athletic/6935618/2026/01/02/ohio-state-miami-coaches-portal-2026/
 
