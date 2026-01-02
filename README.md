@@ -1,3 +1,15 @@
+**Scoop City: Week 18 watch guide for playoff seeding, draft order**\
+`What's at stake in Week 18, from playoff positioning to the No. 1 draft slot. Plus, comparison Drew Brees and Eli Manning HoF worthiness`\
+https://nytimes.com/athletic/6936264/2026/01/02/nfl-week-18-watch-guide-playoff-draft-scoop-city/
+
+**Olympic skier Katharina Liensberger to miss Games after serious knee injury**\
+`The Austrian was expected to be a top contender at the 2026 Winter Olympics next month.`\
+https://nytimes.com/athletic/6936220/2026/01/02/katharina-liensberger-injury-winter-olympics/
+
+**NFL Week 18 model-projected scores and point totals for every game**\
+`Austin Mock's NFL model has projected point spreads and totals for every Week 18 game.`\
+https://nytimes.com/athletic/6936256/2026/01/02/nfl-week-18-projected-scores-model-point-spreads-totals/
+
 **The Service Dogs Helping Veterans With PTSD**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/ptsd-service-dogs
@@ -25,16 +37,4 @@ https://nytimes.com/2026/01/02/us/politics/dc-pipe-bomb-suspect-jail.html
 **Violinist on Will Smith’s Tour Files Wrongful Termination Lawsuit**\
 `A lawyer for the musician, Brian King Joseph, says in the court papers that Mr. Joseph was fired after reporting sexual harassment.`\
 https://nytimes.com/2026/01/02/arts/music/will-smith-lawsuit-brian-king-joseph.html
-
-**Flashback: Your Weekly History Quiz, Jan. 3, 2026**\
-`Can you sort 8 historical events?`\
-https://nytimes.com/interactive/2026/01/02/upshot/flashback.html
-
-**Israeli Government Accuses Mamdani of Antisemitism Over Canceled Orders**\
-`Mayor Zohran Mamdani of New York canceled executive orders issued by his predecessor that had barred city agencies from boycotting Israel and defined some criticism of Israel as antisemitic.`\
-https://nytimes.com/2026/01/02/nyregion/mamdani-israel-executive-orders.html
-
-**A Diminished Congress Weighs Whether to Reassert Its Power**\
-`Lawmakers head into President Trump’s second year facing questions about whether they can reclaim congressional clout in the face of his power grab.`\
-https://nytimes.com/2026/01/02/us/politics/trump-congress-power-republicans-democrats.html
 
