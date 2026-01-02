@@ -1,3 +1,7 @@
+**Trump Super PAC Raised More Than $100 Million in Recent Months**\
+`The haul highlights how the president’s team has continued aggressive fund-raising from donors with interests before the administration.`\
+https://nytimes.com/2026/01/02/us/politics/trump-super-pac-maga-inc-fundraising.html
+
 **Behind the Scenes With Our Photographer**\
 `“I have a lot of gear.” Our photographer Chang W. Lee describes how he plans to capture the journey to Antarctica from every angle, including from a long-range drone and a sound-triggered camera designed to capture a calving glacier.`\
 https://nytimes.com/video/climate/100000010615476/behind-the-scenes-with-our-photographer.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6936390/2026/01/02/tj-watt-steelers-feels-good-retu
 **Offshore Wind Projects Challenge Trump Administration’s Order to Stop Work**\
 `The developers of Revolution Wind off Rhode Island and Empire Wind off New York are the latest to sue the Trump administration.`\
 https://nytimes.com/2026/01/02/climate/trump-offshore-wind-lawsuit-national-security.html
-
-**Sparklers Probably Caused New Year’s Fire at Bar, Swiss Authorities Say**\
-`Fireworks attached to bottles of Champagne sent up showers of sparks that appear to have ignited insulation in a bar. The blaze killed 40 people.`\
-https://nytimes.com/2026/01/02/world/europe/switzerland-ski-resort-bar-fire-crans-montana.html
 
