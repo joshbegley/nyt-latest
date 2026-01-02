@@ -1,3 +1,7 @@
+**Does Georgia have a fatal flaw or is the College Football Playoff just a crapshoot?**\
+`After winning back-to-back national titles, Georgia has now gone three straight years without even being one of the final four standing.`\
+https://nytimes.com/athletic/6935467/2026/01/02/georgia-bulldogs-ole-miss-kirby-smart-sugar-bowl/
+
 **Sabres notes: How the win streak affects playoff chances, Noah Östlund's rise and more**\
 `Even after a 10-game win streak, the tightly contested Eastern Conference means playoffs aren't a sure thing for the Sabres yet.`\
 https://nytimes.com/athletic/6935011/2026/01/02/sabres-playoff-chances-ostlund-thompson-doan/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6935224/2026/01/02/ben-stokes-urges-england-not-to-
 **The Athletic’s Friday football quiz question #87**\
 `Can you answer the weekly poser plucked from deep inside The Athletic's trivia vaults?`\
 https://nytimes.com/athletic/6931719/2026/01/02/the-athletics-friday-football-quiz-question-87/
-
-**The exotic offense behind D-III football's ultimate underdog story**\
-`UW-River Falls is the smallest school in its conference. It's also led by the fastest and most prolific offense in all of college football.`\
-https://nytimes.com/athletic/6932150/2026/01/02/uw-river-falls-d3-national-championship-game/
 
