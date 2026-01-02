@@ -1,3 +1,11 @@
+**Oil Tanker Fleeing U.S. Coast Guard Broadcasts Location in North Atlantic**\
+`Russia requested this week that the United States end its pursuit of the vessel, which was intercepted in the Caribbean on its way to pick up oil in Venezuela.`\
+https://nytimes.com/2026/01/02/us/politics/oil-tanker-russia-north-atlantic.html
+
+**North Carolina Man Accused of Planning Potential Terrorist Attack**\
+`The 18-year-old, radicalized online, was planning a New Year’s Eve attack in a Charlotte suburb, officials said.`\
+https://nytimes.com/2026/01/02/us/north-carolina-man-terrorist-attack-fbi.html
+
 **Richard Pollak, 91, Dies; Edited Magazine That Criticized the Media**\
 `He was a founder of More, which skewered the foibles of the press in the 1970s, and later wrote a critical biography of the psychoanalyst Bruno Bettelheim.`\
 https://nytimes.com/2026/01/02/business/media/richard-pollak-dead.html

@@ -1,3 +1,7 @@
+**Oil Tanker Fleeing U.S. Coast Guard Broadcasts Location in North Atlantic**\
+`Russia requested this week that the United States end its pursuit of the vessel, which was intercepted in the Caribbean on its way to pick up oil in Venezuela.`\
+https://nytimes.com/2026/01/02/us/politics/oil-tanker-russia-north-atlantic.html
+
 **Richard Pollak, 91, Dies; Edited Magazine That Criticized the Media**\
 `He was a founder of More, which skewered the foibles of the press in the 1970s, and later wrote a critical biography of the psychoanalyst Bruno Bettelheim.`\
 https://nytimes.com/2026/01/02/business/media/richard-pollak-dead.html
@@ -18,7 +22,7 @@ https://nytimes.com/2026/01/02/world/europe/teenager-rescue-burning-bar.html
 `Readings that the podcast’s guests say shaped their thinking.`\
 https://nytimes.com/2026/01/02/opinion/the-ezra-klein-show-2025-book-recommendations.html
 
-**North Carolina Man Accused of Planning Potential Terrorist Attack, F.B.I. Says**\
+**North Carolina Man Accused of Planning Potential Terrorist Attack**\
 `The 18-year-old, radicalized online, was planning a New Year’s Eve attack in a Charlotte suburb, officials said.`\
 https://nytimes.com/2026/01/02/us/north-carolina-man-terrorist-attack-fbi.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6934781/2026/01/02/team-usa-2026-olympic-hockey-ros
 **Driver involved in Anthony Joshua crash charged by police**\
 `Police confirmed Adeniyi Mobolaji Kayode, the driver of the Lexus SUV involved in the accident, has been charged.`\
 https://nytimes.com/athletic/6936062/2026/01/02/anthony-joshua-driver-charged/
-
-**Inside Enzo Maresca's Chelsea exit: Selection disagreements, Man City talks and defender woe**\
-`Enzo Maresca left Chelsea on New Year's Day but the seeds of his exit were sown many months before`\
-https://nytimes.com/athletic/6935634/2026/01/02/chelsea-enzo-maresca-exit-inside/
 
