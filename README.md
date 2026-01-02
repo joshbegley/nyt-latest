@@ -10,7 +10,7 @@ https://nytimes.com/2026/01/02/climate/trump-offshore-wind-lawsuit-national-secu
 `Fireworks attached to bottles of Champagne sent up showers of sparks that appear to have ignited insulation in a bar. The blaze killed 40 people.`\
 https://nytimes.com/2026/01/02/world/europe/switzerland-ski-resort-bar-fire-crans-montana.html
 
-**Sprinkles Cupcakes, the Bakery That Sold From A.T.M.s, Closes Suddenly**\
+**Sprinkles Cupcakes, the Bakery That Sold From Vending Machines, Closes Suddenly**\
 `The boutique chain’s co-founder, Candace Nelson, said that the business had ceased operations at year’s end. It was sold to a private equity firm more than a decade ago.`\
 https://nytimes.com/2026/01/02/business/sprinkles-cupcakes-closed.html
 

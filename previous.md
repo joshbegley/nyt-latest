@@ -1,3 +1,15 @@
+**Steelers' T.J. Watt feels 'really good,' ready for showdown vs. Ravens**\
+`Star missed three games after suffering a partially collapsed lung during a dry needling treatment, calling it a "fluke thing."`\
+https://nytimes.com/athletic/6936390/2026/01/02/tj-watt-steelers-feels-good-return/
+
+**Offshore Wind Projects Challenge Trump Administration’s Order to Stop Work**\
+`The developers of Revolution Wind off Rhode Island and Empire Wind off New York are the latest to sue the Trump administration.`\
+https://nytimes.com/2026/01/02/climate/trump-offshore-wind-lawsuit-national-security.html
+
+**Sparklers Probably Caused New Year’s Fire at Bar, Swiss Authorities Say**\
+`Fireworks attached to bottles of Champagne sent up showers of sparks that appear to have ignited insulation in a bar. The blaze killed 40 people.`\
+https://nytimes.com/2026/01/02/world/europe/switzerland-ski-resort-bar-fire-crans-montana.html
+
 **Sprinkles Cupcakes, the Bakery That Sold From A.T.M.s, Closes Suddenly**\
 `The boutique chain’s co-founder, Candace Nelson, said that the business had ceased operations at year’s end. It was sold to a private equity firm more than a decade ago.`\
 https://nytimes.com/2026/01/02/business/sprinkles-cupcakes-closed.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6936489/2026/01/02/pablo-felipe-west-ham-transfer-n
 **'The Audible' podcast reacts to the College Football Playoff quarterfinals**\
 `Ralph Russo and Bruce Feldman react to the College Football Playoff quarterfinals.`\
 https://nytimes.com/athletic/6936312/2026/01/02/college-football-playoff-quarterfinals-reaction-analysis-the-audible/
-
-**Hopes Fade as Coast Guard Seeks Survivors of Latest Boat Strikes**\
-`The service said that conditions in the area where the search was taking place included nine-foot seas and winds approaching 50 miles per hour.`\
-https://nytimes.com/2026/01/02/us/politics/coast-guard-survivors-boat-strikes.html
-
-**Where Do Aprons Go to Retire? A Tiny Museum in Mississippi.**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/where-do-aprons-go-to-retire-a-tiny-museum-in-mississippi
-
-**California Cannot Catch a Break as Another Storm Moves In**\
-`The latest storm is bringing flooding to the  San Francisco Bay Area. Southern California has seen more than four times its typical rainfall in the last few months.`\
-https://nytimes.com/2026/01/02/weather/california-rain-forecast.html
 
