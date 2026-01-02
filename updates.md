@@ -1,3 +1,7 @@
+**Spurs fans reached their limit at Brentford. Thomas Frank needs to offer more than this**\
+`Thomas Frank was booed by the Tottenham fans at the end of their 0-0 draw with Brentford on Thursday`\
+https://nytimes.com/athletic/6929007/2026/01/02/tottenham-hotspur-brentford-thomas-frank-analysis/
+
 **Teen Recounts Escape from Deadly Swiss Fire**\
 `People gathered at memorials in the resort town of Crans-Montana, Switzerland, to grieve for the victims of a deadly New Year’s fire at a bar. A survivor described her harrowing escape.`\
 https://nytimes.com/video/world/europe/100000010619991/switzerland-ski-resort-fire.html
