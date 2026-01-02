@@ -1,3 +1,15 @@
+**My Grandchildren Don’t Thank Me for Christmas Gifts. Is This a Moral Failure?**\
+`Our Ask the Therapist columnist, Lori Gottlieb, advises a reader who worries that their grandkids are not being raised with good values or manners.`\
+https://nytimes.com/2026/01/02/well/mind/ask-therapist-grandkid-gifts.html
+
+**How to watch Spurs vs. Pacers: Time, TV, streaming**\
+`Find out how to watch the San Antonio Spurs play the Indiana Pacers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6935998/2026/01/02/spurs-vs-pacers-stream-how-to-watch-jan-2/
+
+**How to watch Nets vs. Wizards: Time, TV, streaming**\
+`Find out how to watch the Brooklyn Nets play the Washington Wizards, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6935996/2026/01/02/nets-vs-wizards-stream-how-to-watch-jan-2/
+
 **Families search for information about those unaccounted for.**\
 `Desperate families are searching for news about their missing children and loved ones, more than a day and a half after the inferno at a bar.`\
 https://nytimes.com/live/2026/01/02/world/switzerland-ski-resort-fire/families-search-for-information-about-those-unaccounted-for
