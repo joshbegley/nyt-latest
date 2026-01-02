@@ -1,3 +1,7 @@
+**Scheifele holds head high despite Olympics snub: 'Don't know what else I could have done'**\
+`The Jets center ranks sixth among all Canadian skaters in points per game.`\
+https://nytimes.com/athletic/6934959/2026/01/01/mark-scheifele-team-canada-snub-olympics/
+
 **Feldman: Curt Cignetti beat Alabama with an Indiana team that looked like the Bama of old**\
 `If it wasn’t 2026, most football fans Thursday at the Rose Bowl would have thought Indiana was Alabama and the Tide were the Hoosiers.`\
 https://nytimes.com/athletic/6934917/2026/01/01/indiana-alabama-rose-bowl-curt-cignetti-cfp/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6934688/2026/01/01/denver-nuggets-injuries-valanciu
 **Dan Lanning's Oregon is unabashedly aggressive, and it fueled dominance against Texas Tech**\
 `Oregon's offense will need to be better against Indiana, but if the Ducks lose, it won't be because they melt under the spotlight.`\
 https://nytimes.com/athletic/6934560/2026/01/01/oregon-dan-lanning-texas-tech-college-football-playoff-win/
-
-**Troy Aikman to advise Dolphins in their search for a general manager**\
-`The team wanted a voice from outside the organization with connections across the NFL to weigh in on the hire, a source confirmed.`\
-https://nytimes.com/athletic/6934545/2026/01/01/dolphins-bring-troy-aikman-gm-search/
 
