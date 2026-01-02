@@ -1,3 +1,7 @@
+**The Service Dogs Helping Veterans With PTSD**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/ptsd-service-dogs
+
 **It Isn’t Swedish Christmas Without Three Kinds of Herring**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/dagmar-julbord-holiday-party-stockholm
