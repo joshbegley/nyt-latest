@@ -1,3 +1,11 @@
+**Saks C.E.O. Steps Down as Company Struggles to Pay Down Debt**\
+`Saks Global’s executive chairman, Richard Baker, is taking over the luxury retailer he created with the 2024 acquisition of Neiman Marcus and Bergdorf Goodman.`\
+https://nytimes.com/2026/01/02/business/saks-ceo-marc-metrick-steps-down.html
+
+**Myles Garrett on Browns' struggles: 'Tanking or rebuilding, that's not me'**\
+`Browns star, who could break the NFL's single-season sack record on Sunday, is open to revisiting his status with fourth-place club.`\
+https://nytimes.com/athletic/6936302/2026/01/02/myles-garrett-browns-rebuild-comments/
+
 **Michigan hires offensive, defensive coordinators amid coaching staff overhaul**\
 `Jason Beck and Jay Hill will join new head coach Kyle Whittingham at Michigan after working with Whittingham at previous stops.`\
 https://nytimes.com/athletic/6936230/2026/01/02/michigan-offensive-defensive-coordinator-hires/

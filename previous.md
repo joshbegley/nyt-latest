@@ -1,3 +1,11 @@
+**Saks C.E.O. Steps Down as Company Struggles to Pay Down Debt**\
+`Saks Global’s executive chairman, Richard Baker, is taking over the luxury retailer he created with the 2024 acquisition of Neiman Marcus and Bergdorf Goodman.`\
+https://nytimes.com/2026/01/02/business/saks-ceo-marc-metrick-steps-down.html
+
+**Myles Garrett on Browns' struggles: 'Tanking or rebuilding, that's not me'**\
+`Browns star, who could break the NFL's single-season sack record on Sunday, is open to revisiting his status with fourth-place club.`\
+https://nytimes.com/athletic/6936302/2026/01/02/myles-garrett-browns-rebuild-comments/
+
 **Michigan hires offensive, defensive coordinators amid coaching staff overhaul**\
 `Jason Beck and Jay Hill will join new head coach Kyle Whittingham at Michigan after working with Whittingham at previous stops.`\
 https://nytimes.com/athletic/6936230/2026/01/02/michigan-offensive-defensive-coordinator-hires/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6936423/2026/01/02/magic-vs-bulls-stream-how-to-wat
 **How to watch Rangers vs. Panthers: Time, TV, streaming**\
 `Find out how to watch the New York Rangers play the Florida Panthers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6936419/2026/01/02/rangers-vs-panthers-stream-how-to-watch-jan-2/
-
-**How to watch Nuggets vs. Cavaliers: Time, TV, streaming**\
-`Find out how to watch the Denver Nuggets play the Cleveland Cavaliers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6936415/2026/01/02/nuggets-vs-cavaliers-stream-how-to-watch-jan-2/
-
-**How to watch Thunder vs. Warriors: Time, TV, streaming**\
-`Find out how to watch the Oklahoma City Thunder play the Golden State Warriors, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6936412/2026/01/02/thunder-vs-warriors-stream-how-to-watch-jan-2/
 
