@@ -1,3 +1,7 @@
+**Manchester City take heart from Rodri return as focus fixes on the bigger picture**\
+`Pep Guardiola's side mustered 53 touches in the Sunderland penalty area but could not prise out a decisive goal against resolute opponents`\
+https://nytimes.com/athletic/6935241/2026/01/02/manchester-city-guardiola-rodri-sunderland/
+
 **Word of the Day: succor**\
 `This word has appeared in 23 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/01/02/learning/word-of-the-day-succor.html
