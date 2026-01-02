@@ -1,3 +1,7 @@
+**Scheifele holds head high despite Olympics snub: 'Don't know what else I could have done'**\
+`The Jets center ranks sixth among all Canadian skaters in points per game.`\
+https://nytimes.com/athletic/6934959/2026/01/01/mark-scheifele-team-canada-snub-olympics/
+
 **Feldman: Curt Cignetti beat Alabama with an Indiana team that looked like the Bama of old**\
 `If it wasn’t 2026, most football fans Thursday at the Rose Bowl would have thought Indiana was Alabama and the Tide were the Hoosiers.`\
 https://nytimes.com/athletic/6934917/2026/01/01/indiana-alabama-rose-bowl-curt-cignetti-cfp/
