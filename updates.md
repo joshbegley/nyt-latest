@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Saturday, Jan. 3, 2026**\
+``\
+https://nytimes.com/issue/todaysinyt/2026/01/02/todays-new-york-times-international-edition
+
 **'We rate him highly' - Hurzeler praises Gross after Brighton agree deal with Dortmund**\
 `Hurzeler took charge of Brighton in June 2024, a few weeks before Gross joined boyhood club Borussia Dortmund.`\
 https://nytimes.com/athletic/6935392/2026/01/02/pascal-gross-brighton-transfers/

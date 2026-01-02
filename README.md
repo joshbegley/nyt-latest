@@ -1,3 +1,11 @@
+**Can anyone save the Raiders? It's time for Tom Brady to try**\
+`Brady as a silent advisor to the Las Vegas Raiders is one thing, but a present, fully accountable boss would send a far different message.`\
+https://nytimes.com/athletic/6926744/2026/01/02/tom-brady-las-vegas-raiders-worst-record-nfl/
+
+**Mandel's Final Thoughts: Were Indiana, Ole Miss wins a changing of the guard moment in CFB?**\
+`Indiana's and Ole Miss's win over the old powers is a sign of a new era in college football.`\
+https://nytimes.com/athletic/6935179/2026/01/02/college-football-playoff-scores-result-indiana-ole-miss/
+
 **The New York Times International Edition in Print for Saturday, Jan. 3, 2026**\
 ``\
 https://nytimes.com/issue/todaysinyt/2026/01/02/todays-new-york-times-international-edition
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2026/01/02/briefing/news-quiz-trump-venezuela-ne
 **The Trouble With My Father’s Final Resting Place**\
 `If anyone should be prepared to know how to handle my dad’s ashes, it’s me.`\
 https://nytimes.com/2026/01/02/opinion/death-remains-ashes.html
-
-**Mamdani Represents 21st-Century America**\
-`The mayor’s résumé looks like the broad coalition he built when he swept to victory in November.`\
-https://nytimes.com/2026/01/02/opinion/politics/zohran-mamdani-america.html
-
-**Rethinking Your Drinking? Watch for These 5 Signs.**\
-`If you’re questioning your relationship with alcohol, here’s what to look for.`\
-https://nytimes.com/2026/01/02/well/alcohol-use-disorder-signs-tips.html
 
