@@ -1,3 +1,7 @@
+**Quote of the Day: ‘Zero Hour’ in Middle East As War-Weariness Sets In**\
+`Quotation of the Day for Friday, January 2, 2026.`\
+https://nytimes.com/2026/01/01/pageoneplus/quote-of-the-day-zero-hour-in-middle-east-as-war-weariness-sets-in.html
+
 **Scheifele holds head high despite Olympics snub: 'Don't know what else I could have done'**\
 `The Jets center ranks sixth among all Canadian skaters in points per game.`\
 https://nytimes.com/athletic/6934959/2026/01/01/mark-scheifele-team-canada-snub-olympics/
