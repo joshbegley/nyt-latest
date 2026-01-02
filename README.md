@@ -1,4 +1,8 @@
-**North Carolina Man Accused of Planning Potential Terrorist Attack, F.B.I. Says**\
+**‘The Ezra Klein Show’ 2025 Book Recommendations**\
+`Readings that the podcast’s guests say shaped their thinking.`\
+https://nytimes.com/2026/01/02/opinion/the-ezra-klein-show-2025-book-recommendations.html
+
+**North Carolina Man Accused of Planning Potential Terrorist Attack**\
 `The 18-year-old, radicalized online, was planning a New Year’s Eve attack in a Charlotte suburb, officials said.`\
 https://nytimes.com/2026/01/02/us/north-carolina-man-terrorist-attack-fbi.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/card/2026/01/02/smarter-living/wirecutter/
 **Should You Tell a Stranger That She Has Bird Poop on Her Shoulder?**\
 `A ruling on a matter of coffee-shop etiquette.`\
 https://nytimes.com/interactive/2026/01/02/magazine/bird-poop-hodgman-quiz.html
-
-**Until Saturday: First new national champ since 1996?**\
-`Until Saturday is The Athletic's free college football newsletter.`\
-https://nytimes.com/athletic/6936029/2026/01/02/college-football-playoff-semifinals-until-saturday/
 

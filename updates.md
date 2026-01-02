@@ -1,3 +1,7 @@
+**North Carolina Man Accused of Planning Potential Terrorist Attack, F.B.I. Says**\
+`The 18-year-old, radicalized online, was planning a New Year’s Eve attack in a Charlotte suburb, officials said.`\
+https://nytimes.com/2026/01/02/us/north-carolina-man-terrorist-attack-fbi.html
+
 **Sparklers Probably Caused Deadly Fire at Swiss Ski Resort, Officials Say**\
 `The Swiss authorities said that a deadly fire at a popular bar in the ski resort town of Crans-Montana was probably caused by sparklers attached to champagne bottles that were held too close to the ceiling.`\
 https://nytimes.com/video/world/europe/100000010620929/switzerland-ski-resort-fire-sparklers.html
