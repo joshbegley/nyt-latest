@@ -1,3 +1,15 @@
+**Overlooked No More: Pamela Colman Smith, Artist Behind a Famous Tarot Deck**\
+`She hand-painted around 80 illustrations for the Rider-Waite deck, which is still used around the world to predict destinies.`\
+https://nytimes.com/2026/01/02/obituaries/pamela-colman-smith-overlooked.html
+
+**Hiker Killed in Suspected Mountain Lion Attack, Colorado’s First in Decades**\
+`A woman’s body was found on a trail on Crosier Mountain this week, with a mountain lion nearby.`\
+https://nytimes.com/2026/01/02/us/mountain-lion-attack-hiker-dead-colorado.html
+
+**From sideline reporter to halftime host: How does ESPN's Laura Rutledge do it?**\
+`Video from Thursday's Georgia-Ole Miss CFP game shows just how much Rutledge has to hustle to fulfill her broadcasting duties.`\
+https://nytimes.com/athletic/6936309/2026/01/02/laura-rutledge-espn-cfp-host-sideline-reporter/
+
 **Neymar set to sign Santos contract extension**\
 `The extension is set to run through to December 2026.`\
 https://nytimes.com/athletic/6913369/2026/01/02/neymar-transfer-santos-contract/

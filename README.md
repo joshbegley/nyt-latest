@@ -1,3 +1,7 @@
+**Sprinkles Cupcakes, the Bakery That Sold From A.T.M.s, Closes Suddenly**\
+`The boutique chain’s co-founder, Candace Nelson, said that the business had ceased operations at year’s end. It was sold to a private equity firm more than a decade ago.`\
+https://nytimes.com/2026/01/02/business/sprinkles-cupcakes-closed.html
+
 **Overlooked No More: Pamela Colman Smith, Artist Behind a Famous Tarot Deck**\
 `She hand-painted around 80 illustrations for the Rider-Waite deck, which is still used around the world to predict destinies.`\
 https://nytimes.com/2026/01/02/obituaries/pamela-colman-smith-overlooked.html
@@ -33,8 +37,4 @@ https://nytimes.com/newsgraphics/card-story/where-do-aprons-go-to-retire-a-tiny-
 **California Cannot Catch a Break as Another Storm Moves In**\
 `The latest storm is bringing flooding to the  San Francisco Bay Area. Southern California has seen more than four times its typical rainfall in the last few months.`\
 https://nytimes.com/2026/01/02/weather/california-rain-forecast.html
-
-**Saks C.E.O. Steps Down as Company Struggles to Pay Down Debt**\
-`Saks Global’s executive chairman, Richard Baker, is taking over the luxury retailer he created with the 2024 acquisition of Neiman Marcus and Bergdorf Goodman.`\
-https://nytimes.com/2026/01/02/business/saks-ceo-marc-metrick-steps-down.html
 
