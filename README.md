@@ -1,3 +1,7 @@
+**Jonas Valančiūnas out at least a month as injuries mount for Denver Nuggets**\
+`Already down four starters, the Denver Nuggets will be without backup big man Jonas Valančiūnas for at least a month.`\
+https://nytimes.com/athletic/6934688/2026/01/01/denver-nuggets-injuries-valanciunas-jokic-johnson-gordon-braun/
+
 **Dan Lanning's Oregon is unabashedly aggressive, and it fueled dominance against Texas Tech**\
 `Oregon's offense will need to be better against Indiana, but if the Ducks lose, it won't be because they melt under the spotlight.`\
 https://nytimes.com/athletic/6934560/2026/01/01/oregon-dan-lanning-texas-tech-college-football-playoff-win/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/01/nyregion/mamdani-inauguration-takeaways.html
 **Mamdani’s First Orders Focus on Housing and Undoing Adams’s Decisions**\
 `Mayor Zohran Mamdani signed a flurry of executive orders on his first day as mayor of New York City. They were aimed at protecting tenants and revoking some of ex-Mayor Eric Adams’s past orders.`\
 https://nytimes.com/2026/01/01/nyregion/mamdani-housing-executive-orders.html
-
-**Images From the Dawn of the Mamdani Era**\
-`Thousands of New Yorkers packed the plaza ouside City Hall and the streets of Lower Manhattan to see Mayor Zohran Mamdani take office.`\
-https://nytimes.com/2026/01/01/nyregion/images-from-the-dawn-of-the-mamdani-era.html
 
