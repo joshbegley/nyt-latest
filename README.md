@@ -14,7 +14,7 @@ https://nytimes.com/athletic/6934348/2026/01/01/indiana-alabama-score-rose-bowl-
 `Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
 https://nytimes.com/athletic/6560541/2026/01/01/college-football-playoff-bracket-projections-odds/
 
-**What I'm seeing from the Winter Classic: Fox on Olympic exclusion, Miami ice quality, more**\
+**What I'm seeing from Winter Classic: Adam Fox on Olympic exclusion, Miami ice quality, more**\
 `Though the U.S. Olympic roster won't be formally announced until Friday, defenseman Adam Fox already knows he won't be on it.`\
 https://nytimes.com/athletic/6934532/2026/01/01/rangers-winter-classic-fox-olympics-rempe/
 
