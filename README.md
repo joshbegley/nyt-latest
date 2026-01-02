@@ -1,3 +1,7 @@
+**The Service Dogs Helping Veterans With PTSD**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/ptsd-service-dogs
+
 **It Isn’t Swedish Christmas Without Three Kinds of Herring**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/dagmar-julbord-holiday-party-stockholm
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/02/nyregion/mamdani-israel-executive-orders.html
 **A Diminished Congress Weighs Whether to Reassert Its Power**\
 `Lawmakers head into President Trump’s second year facing questions about whether they can reclaim congressional clout in the face of his power grab.`\
 https://nytimes.com/2026/01/02/us/politics/trump-congress-power-republicans-democrats.html
-
-**Patriots left tackle Will Campbell on track to play Sunday**\
-`In addition to Campbell, wide receiver Kayshon Boutte and defensive tackle Milton Williams look poised to return from injury Sunday.`\
-https://nytimes.com/athletic/6936169/2026/01/02/patriots-will-campbell-injury-update/
 
