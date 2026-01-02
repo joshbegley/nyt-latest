@@ -1,3 +1,11 @@
+**U.S. announces men’s hockey roster for 2026 Olympics: Snubs, surprises and expectations**\
+`The U.S. men’s hockey roster was officially unveiled Friday morning with 21 4 Nations returnees and four new faces.`\
+https://nytimes.com/athletic/6935084/2026/01/02/united-states-mens-olympic-hockey-roster-2026/
+
+**Is the College Football Playoff first-round bye cursed? Not so fast**\
+`Teams that receive a first-round bye are 1-7, with Indiana's Rose Bowl win over Alabama this year the only victory by a CFP top-four seed.`\
+https://nytimes.com/athletic/6935516/2026/01/02/college-football-playoff-first-round-bye-record/
+
 **How to watch Golden Knights vs. Blues: Time, TV, streaming**\
 `Find out how to watch the Vegas Golden Knights play the St. Louis Blues, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6935613/2026/01/02/golden-knights-vs-blues-stream-how-to-watch-jan-2/

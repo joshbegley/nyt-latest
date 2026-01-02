@@ -1,3 +1,11 @@
+**Carrying for a Cause: Meet the Man Lugging Shelter Dogs Around New York**\
+`Bryan Reisberg built a social media following in the millions by carrying his corgi, Maxine, in a backpack. Now, he carries shelter dogs.`\
+https://nytimes.com/2026/01/02/nyregion/dog-backpack-adopt.html
+
+**Team USA announces women’s hockey roster for 2026 Olympics: Snubs, surprises and expectations**\
+`As the No. 1 team in the IIHF rankings, Team USA is the favorite to win its first Olympic gold medal since 2018.`\
+https://nytimes.com/athletic/6932762/2026/01/02/united-states-womens-olympic-hockey-roster-2026/
+
 **U.S. announces men’s hockey roster for 2026 Olympics: Snubs, surprises and expectations**\
 `The U.S. men’s hockey roster was officially unveiled Friday morning with 21 4 Nations returnees and four new faces.`\
 https://nytimes.com/athletic/6935084/2026/01/02/united-states-mens-olympic-hockey-roster-2026/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6934408/2026/01/02/bears-mailbag-week-18-picks-nfl/
 **Oilers 2025-26 midseason assessment: The good, the bad and the ugly**\
 `The Oilers entered 2026 atop the Pacific Division with a 20-15-6 record but their flaws are apparent.`\
 https://nytimes.com/athletic/6933902/2026/01/02/edmonton-oilers-stats-lines-2025/
-
-**Brook Lopez's spacing, Anthony Black's ascension and more NBA trends I'm watching**\
-`Rookie Derik Queen's exceptional passing is another trend worth paying attention to this week.`\
-https://nytimes.com/athletic/6934893/2026/01/02/anthony-black-brook-lopez-nba-trends/
-
-**Ole Miss, galvanized by coaching drama, shows its toughness in epic Sugar Bowl win**\
-`The Rebels, suddenly the most compelling story of this postseason, advanced to face Miami next Thursday in the Fiesta Bowl. `\
-https://nytimes.com/athletic/6935501/2026/01/02/ole-miss-georgia-sugar-bowl-trinidad-chambliss-pete-golding/
 
