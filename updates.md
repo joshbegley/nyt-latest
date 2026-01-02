@@ -1,3 +1,7 @@
+**Tottenham defender Takai joins Gladbach on loan**\
+`Takai joined Spurs on a five-year contract from Kawasaki Frontale in July for a J-League record fee of around £5million.`\
+https://nytimes.com/athletic/6935553/2026/01/02/tottenham-kota-takai-monchengladbach-transfer/
+
 **Lamar Jackson, Ravens can redefine season vs. Steelers: 'I’ve never quit on anything'**\
 `The 2025 season has been a struggle for Lamar Jackson. But with his future with the Ravens uncertain, Week 18 presents a huge opportunity.`\
 https://nytimes.com/athletic/6934523/2026/01/02/lamar-jackson-ravens-steelers/
