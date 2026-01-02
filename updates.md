@@ -1,3 +1,11 @@
+**What to Expect From Mayor Mamdani**\
+`Readers share their hopes and anxieties as New York’s new mayor takes office. Also: Unsubscribing from the Kennedy Center; protesting Trump.`\
+https://nytimes.com/2026/01/02/opinion/mamdani-nyc-future.html
+
+**Building Team USA: Guerin on leaving Robertson, other scorers off roster — 'Have to fill roles'**\
+`Olympic GM Bill Guerin called the process of finalizing the U.S. men's hockey roster "exhausting" but thinks he found the right mix.`\
+https://nytimes.com/athletic/6936038/2026/01/02/bill-guerin-mike-sullivan-team-usa-roster/
+
 **Rory McIlroy would accept return of LIV golfers to PGA Tour**\
 `McIlroy said it might be best for the sport's growth to bring back LIV golfers.`\
 https://nytimes.com/athletic/6936097/2026/01/02/rory-mcilroy-liv-golfers-return-pga-tour/
