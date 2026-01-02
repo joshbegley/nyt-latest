@@ -1,3 +1,7 @@
+**A Diminished Congress Weighs Whether to Reassert Its Power**\
+`Lawmakers head into President Trump’s second year facing questions about whether they can reclaim congressional clout in the face of his power grab.`\
+https://nytimes.com/2026/01/02/us/politics/trump-congress-power-republicans-democrats.html
+
 **NFL Week 18 model-projected scores and point totals for every game**\
 `Austin Mock's NFL model has projected point spreads and totals for every Week 18 game.`\
 https://nytimes.com/athletic/6936256/2026/01/02/nfl-week-18-projected-scores-model-point-spreads-totals/
