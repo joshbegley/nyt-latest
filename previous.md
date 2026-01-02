@@ -1,40 +1,40 @@
-**The Rams are banking on Quentin Lake and others to stop their late-season slide**\
-`Sean McVay and his team know they can't go into the playoffs in their current form.`\
-https://nytimes.com/athletic/6935178/2026/01/02/rams-quentin-lake-late-season-form/
+**Does Georgia have a fatal flaw or is the College Football Playoff just a crapshoot?**\
+`After winning back-to-back national titles, Georgia has now gone three straight years without even being one of the final four standing.`\
+https://nytimes.com/athletic/6935467/2026/01/02/georgia-bulldogs-ole-miss-kirby-smart-sugar-bowl/
 
-**Where does Michigan go from here? 10 thoughts on Kyle Whittingham's rebuild**\
-`As Whittingham assembles his Michigan coaching staff, many things are on the to-do list with the transfer portal opening on Friday.`\
-https://nytimes.com/athletic/6934914/2026/01/02/michigan-kyle-whittingham-transfer-portal-underwood/
+**Sabres notes: How the win streak affects playoff chances, Noah Östlund's rise and more**\
+`Even after a 10-game win streak, the tightly contested Eastern Conference means playoffs aren't a sure thing for the Sabres yet.`\
+https://nytimes.com/athletic/6935011/2026/01/02/sabres-playoff-chances-ostlund-thompson-doan/
 
-**Can these units bounce back? Rams, Texans, Bills among playoff teams with weak spots**\
-`Whoever can iron out or compensate for their deficiencies will bolster their Super Bowl hopes.`\
-https://nytimes.com/athletic/6932548/2026/01/02/playoff-weaknesses-rams-bills-texans-bears-49ers/
+**Never mind Team Canada. Is Bedard the most valuable player in the NHL?**\
+`The leap Bedard has taken this season is even more evident in his absence.`\
+https://nytimes.com/athletic/6934861/2026/01/02/connor-bedard-olympics-mvp-blackhawks/
 
-**Ex-Barca defender Alves becomes co-owner of Portuguese club**\
-`The 42-year-old had a conviction of sexual assault and a four-and-a-half-year prison sentence overturned in March 2025.`\
-https://nytimes.com/athletic/6935383/2026/01/02/dani-alves-owner-portuguese-club/
+**49ers' Austen Pleasants gets tough love after replacing Trent Williams**\
+`Starting left tackle Trent Williams hasn't been ruled out for Saturday's game, but he didn't practice this week on his injured hamstring.`\
+https://nytimes.com/athletic/6934738/2026/01/02/austen-pleasants-49ers-left-tackle-trent-williams/
 
-**The Pulse: Re-ranking the Playoff’s Final Four**\
-`The Athletic has live coverage of Bears vs.`\
-https://nytimes.com/athletic/6934106/2026/01/02/cfp-indiana-ole-miss-georgia-alabama-oregon-the-pulse/
+**Notre Dame mailbag: Do the Irish have a scheduling problem without USC?**\
+`For Fighting Irish fans, this offseason already feels like a grind, and it has barely begun.`\
+https://nytimes.com/athletic/6933280/2026/01/02/notre-dame-mailbag-usc-byu-schedule/
 
-**Arteta uncertain whether Rice will be available for Bournemouth game**\
-`The England international missed Tuesday's win over Aston Villa with a knee injury.`\
-https://nytimes.com/athletic/6935401/2026/01/02/declan-rice-injury-arsenal-team-news/
+**The transfer portal opens Friday: Here's what you need to know**\
+`The open portal window is the most consequential period in roster construction and can turn a pretender into a contender in a hurry.`\
+https://nytimes.com/athletic/6933879/2026/01/02/college-football-transfer-portal-guide/
 
-**Dak Prescott's contract talk advice to George Pickens: 'Don't let it get personal'**\
-`A new deal for Pickens is likely to average more than $30 million per season, and he hopes to remain in Dallas.`\
-https://nytimes.com/athletic/6934640/2026/01/02/george-pickens-cowboys-contract-negotiations-jerry-jones/
+**How Bears rookie Colston Loveland continues to 'rise to the occasion'**\
+`Loveland's chemistry with Caleb Williams is growing. His studies of Nico Collins are part of the story, too.`\
+https://nytimes.com/athletic/6933697/2026/01/02/bears-colston-loveland-rookie-season/
 
-**The Lions' coordinators conversation: What do their futures look like?**\
-`John Morton lost his play-calling responsibilities with Detroit, and Kelvin Sheppard's defense struggled in the back half of the season.`\
-https://nytimes.com/athletic/6934619/2026/01/02/lions-dan-campbell-coordinators-future/
+**NFL Draft takeaways: Trinidad Chambliss states his case, Rueben Bain Jr. dominates again**\
+`Which other 2026 NFL Draft prospects stood out during the College Football Playoff quarterfinals?`\
+https://nytimes.com/athletic/6934363/2026/01/02/nfl-draft-2026-fernando-mendoza-rueben-bain-jr/
 
-**Auston Matthews is knocking on the door of Leafs history. Is he back for real?**\
-`After a prolonged slump to start the season, Matthews looked more like his vintage self with a hat trick against the Jets.`\
-https://nytimes.com/athletic/6935045/2026/01/02/maple-leafs-matthews-scoring-domi-jets/
+**Ben Stokes urges England not to rip it up and start again despite Ashes failure**\
+`The tourists have named a 12-man squad including Shoaib Bashir and Matthew Potts as they look to end a difficult series on a high in Sydney`\
+https://nytimes.com/athletic/6935224/2026/01/02/ben-stokes-urges-england-not-to-rip-it-up-and-start-again-despite-ashes-failure/
 
-**Penguins overcome special-teams slugfest in Letang's 1,200th game: Observations**\
-`The Penguins struggled to keep themselves in check along with some questionable officiating in a dramatic back-and-forth with the Red Wings.`\
-https://nytimes.com/athletic/6934831/2026/01/02/penguins-letang-crosby-penalties-red-wings/
+**The Athletic’s Friday football quiz question #87**\
+`Can you answer the weekly poser plucked from deep inside The Athletic's trivia vaults?`\
+https://nytimes.com/athletic/6931719/2026/01/02/the-athletics-friday-football-quiz-question-87/
 
