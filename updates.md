@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By Ségolène Le Stradic and Dan Watson`\
+https://nytimes.com/live/2026/01/02/world/switzerland-ski-resort-fire/heres-the-latest
+
+**Live Updates: Swiss Officials Search for Answers in Deadly New Year’s Fire**\
+`About 40 people were killed and more than 100 others injured in the blaze at a bar in a resort town. The authorities were trying to pinpoint the cause of the fire and identify bodies.`\
+https://nytimes.com/live/2026/01/02/world/switzerland-ski-resort-fire
+
 **Curt Cignetti, Lane Kiffin got a lot richer by Indiana, Ole Miss reaching CFP semis**\
 `The Indiana and former Ole Miss head coaches will receive tidy sums because of incentive bonuses in their contracts for winning CFP games.`\
 https://nytimes.com/athletic/6935051/2026/01/02/curt-cignetti-lane-kiffin-bonus-incentives-cfp-semifinal/

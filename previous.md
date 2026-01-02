@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By Ségolène Le Stradic and Dan Watson`\
+https://nytimes.com/live/2026/01/02/world/switzerland-ski-resort-fire/heres-the-latest
+
+**Live Updates: Swiss Officials Search for Answers in Deadly New Year’s Fire**\
+`About 40 people were killed and more than 100 others injured in the blaze at a bar in a resort town. The authorities were trying to pinpoint the cause of the fire and identify bodies.`\
+https://nytimes.com/live/2026/01/02/world/switzerland-ski-resort-fire
+
 **Five Laws Going Into Effect for New York in 2026**\
 `Among them, benefits for minimum wage workers, cancer patients and parents of young children. Also, a change to child abuse reporting.`\
 https://nytimes.com/2026/01/02/nyregion/2026-new-laws-new-york-state.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/europe/100000010619991/switzerland-ski-resort-fi
 **New-look Liverpool were supposed to be built for beating low blocks. They're still struggling**\
 `Liverpool were held to a 0-0 draw by Leeds United on Thursday evening`\
 https://nytimes.com/athletic/6934027/2026/01/02/liverpool-leeds-analysis/
-
-**West Ham's 2025: Sackings, setbacks, protests - and Potts' potential**\
-`The main positive for West Ham's 2025 is that it is now over. They need a lot of improvement in 2026...`\
-https://nytimes.com/athletic/6875271/2026/01/02/west-hams-2025-sackings-setbacks-protests-and-potts-potential/
-
-**Curt Cignetti, Lane Kiffin got a lot richer by Indiana, Ole Miss reaching CFP semis**\
-`The Indiana and former Ole Miss head coaches will receive tidy sums because of incentive bonuses in their contracts for winning CFP games.`\
-https://nytimes.com/athletic/6935051/2026/01/02/curt-cignetti-lane-kiffin-bonus-incentives-cfp-semifinal/
 
