@@ -1,3 +1,7 @@
+**How Indiana dismantled Alabama in Rose Bowl rout that was never in doubt**\
+`Heisman winner Fernando Mendoza and No. 1 Indiana dominated Alabama 38-3 to win a College Football Playoff semifinal at the Rose Bowl.`\
+https://nytimes.com/athletic/6934348/2026/01/01/indiana-alabama-score-rose-bowl-cfp/
+
 **What I'm seeing from the Winter Classic: Fox on Olympic exclusion, Miami ice quality, more**\
 `Though the U.S. Olympic roster won't be formally announced until Friday, defenseman Adam Fox already knows he won't be on it.`\
 https://nytimes.com/athletic/6934532/2026/01/01/rangers-winter-classic-fox-olympics-rempe/

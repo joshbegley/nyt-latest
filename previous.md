@@ -1,3 +1,7 @@
+**How Indiana dismantled Alabama in Rose Bowl rout that was never in doubt**\
+`Heisman winner Fernando Mendoza and No. 1 Indiana dominated Alabama 38-3 to win a College Football Playoff semifinal at the Rose Bowl.`\
+https://nytimes.com/athletic/6934348/2026/01/01/indiana-alabama-score-rose-bowl-cfp/
+
 **What I'm seeing from the Winter Classic: Fox on Olympic exclusion, Miami ice quality, more**\
 `Though the U.S. Olympic roster won't be formally announced until Friday, defenseman Adam Fox already knows he won't be on it.`\
 https://nytimes.com/athletic/6934532/2026/01/01/rangers-winter-classic-fox-olympics-rempe/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/01/nyregion/nyc-food-mamdani.html
 **J.J. McCarthy on track to play in Vikings' Week 18 game vs. Packers**\
 `McCarthy has dealt with a plethora of injuries this season, including having to miss last week's game with a right-hand injury.`\
 https://nytimes.com/athletic/6934413/2026/01/01/jj-mccarthy-status-vikings-packers/
-
-**Usman Khawaja to retire from Test cricket after Sydney swansong**\
-`The 39-year-old was the first Muslim to play for Australia and has scored over 6,000 Test runs over a 15-year international career`\
-https://nytimes.com/athletic/6933514/2026/01/01/usman-khawaja-retire-test-australia-scg/
 
