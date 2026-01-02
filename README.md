@@ -1,3 +1,7 @@
+**Dan Lanning's Oregon is unabashedly aggressive, and it fueled dominance against Texas Tech**\
+`Oregon's offense will need to be better against Indiana, but if the Ducks lose, it won't be because they melt under the spotlight.`\
+https://nytimes.com/athletic/6934560/2026/01/01/oregon-dan-lanning-texas-tech-college-football-playoff-win/
+
 **MNF's Troy Aikman will advise Miami Dolphins on their general manager search**\
 `The broadcaster and Hall of Fame quarterback reportedly will sit in on interviews as the team tries to find a replacement for Chris Grier.`\
 https://nytimes.com/athletic/6934545/2026/01/01/dolphins-bring-troy-aikman-gm-search/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/01/nyregion/mamdani-housing-executive-orders.html
 **Images From the Dawn of the Mamdani Era**\
 `Thousands of New Yorkers packed the plaza ouside City Hall and the streets of Lower Manhattan to see Mayor Zohran Mamdani take office.`\
 https://nytimes.com/2026/01/01/nyregion/images-from-the-dawn-of-the-mamdani-era.html
-
-**Venus Williams gets Australian Open wild card for first showing since 2021**\
-`45-year-old Williams last year played at the U.S. Open, but has not played a Grand Slam match outside of New York City since 2023.`\
-https://nytimes.com/athletic/6934518/2026/01/01/venus-williams-tennis-australian-open-wild-card/
 
