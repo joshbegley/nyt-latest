@@ -1,3 +1,23 @@
+**Liverpool in talks to sign 17-year-old centre-back Ndukwe from Austria Vienna**\
+`Liverpool hope that a deal can be agreed for him to move to Merseyside for the start of pre-season training in July.`\
+https://nytimes.com/athletic/6935695/2026/01/02/liverpool-ifeanyi-ndukwe-transfer-talks/
+
+**Brennan Johnson is gone - was selling him a good idea?**\
+`Johnson struggled for starts under Thomas Frank but was last season's top scorer and one of the better finishers on the books`\
+https://nytimes.com/athletic/6933790/2026/01/02/brennan-johnson-sale/
+
+**A Study Is Retracted, Renewing Concerns About the Weedkiller Roundup**\
+`Problems with a 25-year-old landmark paper on the safety of Roundup’s active ingredient, glyphosate, have led to calls for the E.P.A. to reassess the widely used chemical.`\
+https://nytimes.com/2026/01/02/climate/glyphosate-roundup-retracted-study.html
+
+**Five Horror Movies to Stream Now**\
+`A new year brings thrillers galore, with evil emerging from a pandemic, a summer camp and a rideshare app.`\
+https://nytimes.com/2026/01/02/movies/horror-movies-streaming.html
+
+**Samin Nosrat’s Spinach Soup With Tahini and Lemon**\
+`And more very green, very good things to eat.`\
+https://nytimes.com/2026/01/02/dining/samin-nosrats-spinach-soup-with-tahini-and-lemon.html
+
 **Why Exercise Is the Best Thing for Your Brain Health**\
 `Research shows that people who exercise regularly tend to perform better on attention, memory and executive functioning tests. Dana G. Smith, a reporter for Well, explains.`\
 https://nytimes.com/video/well/100000010594750/why-exercise-is-the-best-thing-for-your-brain-health.html
@@ -17,24 +37,4 @@ https://nytimes.com/interactive/2026/01/02/world/americas/earthquake-mexico-trac
 **Chelsea head coach contender Rosenior offers no guarantees he will remain at Strasbourg**\
 `The Athletic reported on Thursday that Rosenior is currently the frontrunner to succeed Enzo Maresca at Stamford Bridge.`\
 https://nytimes.com/athletic/6935700/2026/01/02/liam-rosenior-chelsea-strasbourg-future/
-
-**Yemen Sends Military to Push Out Separatist Faction**\
-`The Saudi-backed government in Yemen said it would send forces to reclaim territory from a group that the United Arab Emirates supports.`\
-https://nytimes.com/2026/01/02/world/middleeast/yemen-separatists-government.html
-
-**College Football Playoff odds: Indiana emerges as title favorite ahead of semifinals**\
-`With four teams left, Indiana is the clear favorite to win the national title.`\
-https://nytimes.com/athletic/6934727/2026/01/02/college-football-playoff-odds-indiana-miami-ole-miss-oregon/
-
-**Charlotte interested in Harvey Elliott as Villa seek to terminate loan from Liverpool**\
-`Elliott's Villa loan includes obligation to make the transfer permanent from Liverpool in summer 2026 if he makes 10 appearances this season`\
-https://nytimes.com/athletic/6935669/2026/01/02/harvey-elliott-aston-villa-liverpool-transfer-charlotte-mls/
-
-**The Bounce: New Year's resolutions for every NBA team**\
-`Zach Harper catches you up on the latest NBA news in our newsletter.`\
-https://nytimes.com/athletic/6935722/2026/01/02/nba-new-years-resolution-knicks-lakers-spurs-the-bounce/
-
-**What’s Going On in This Graph? | Jan. 14, 2026**\
-`Who are the adults in children’s lives?`\
-https://nytimes.com/2026/01/02/learning/whats-going-on-in-this-graph-jan-14-2026.html
 
