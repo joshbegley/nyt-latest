@@ -1,3 +1,7 @@
+**Sam Konstas was branded an Australian superstar only for the Ashes to pass him by - but he will be back**\
+`A year on from a startling debut against India, the opener will be playing cricket in Sydney this weekend - but in the BBL, not in the Test`\
+https://nytimes.com/athletic/6928378/2026/01/02/sam-konstas-australia-nsw-thunder-bumrah/
+
 **Why Mikel Arteta's No 9 selection headache has come at the perfect moment**\
 `Each of Arsenal's strikers has their flaws, but having all three available could be a difference maker in the second half of the season`\
 https://nytimes.com/athletic/6933452/2026/01/02/arsenal-arteta-strikers-gyokeres-havertz-jesus/
