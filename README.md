@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Saturday, Jan. 3, 2026**\
+``\
+https://nytimes.com/issue/todaysinyt/2026/01/02/todays-new-york-times-international-edition
+
 **'We rate him highly' - Hurzeler praises Gross after Brighton agree deal with Dortmund**\
 `Hurzeler took charge of Brighton in June 2024, a few weeks before Gross joined boyhood club Borussia Dortmund.`\
 https://nytimes.com/athletic/6935392/2026/01/02/pascal-gross-brighton-transfers/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/02/opinion/politics/zohran-mamdani-america.html
 **Rethinking Your Drinking? Watch for These 5 Signs.**\
 `If you’re questioning your relationship with alcohol, here’s what to look for.`\
 https://nytimes.com/2026/01/02/well/alcohol-use-disorder-signs-tips.html
-
-**We’re Living Through the Great Detachment**\
-`America is becoming more loveless: less dating, less marriage, less friendship, less patriotism. But love outside of self is what makes life meaningful.`\
-https://nytimes.com/2026/01/02/opinion/americans-marriage-loneliness-love.html
 
