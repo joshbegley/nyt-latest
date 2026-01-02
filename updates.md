@@ -1,3 +1,7 @@
+**Yemen Sends Military to Push Out Separatist Faction**\
+`The Saudi-backed government in Yemen said it would send forces to reclaim territory from a group that the United Arab Emirates supports.`\
+https://nytimes.com/2026/01/02/world/middleeast/yemen-separatists-government.html
+
 **College Football Playoff odds: Indiana emerges as title favorite ahead of semifinals**\
 `With four teams left, Indiana is the clear favorite to win the national title.`\
 https://nytimes.com/athletic/6934727/2026/01/02/college-football-playoff-odds-indiana-miami-ole-miss-oregon/

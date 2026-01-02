@@ -1,3 +1,7 @@
+**Yemen Sends Military to Push Out Separatist Faction**\
+`The Saudi-backed government in Yemen said it would send forces to reclaim territory from a group that the United Arab Emirates supports.`\
+https://nytimes.com/2026/01/02/world/middleeast/yemen-separatists-government.html
+
 **College Football Playoff odds: Indiana emerges as title favorite ahead of semifinals**\
 `With four teams left, Indiana is the clear favorite to win the national title.`\
 https://nytimes.com/athletic/6934727/2026/01/02/college-football-playoff-odds-indiana-miami-ole-miss-oregon/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/02/business/tesla-electric-vehicles-fourth-quarter-s
 **Mikey Williams was basketball's next big star. He's happier now under a smaller spotlight**\
 `Followed by a documentary crew and millions on social media before gunfire derailed his career, he's back on the court, at Sacramento State.`\
 https://nytimes.com/athletic/6918025/2026/01/02/mikey-williams-sacramento-state-fear-nothing/
-
-**‘My Face Was Half-Burned’: Survivor Recounts Being on Fire in Bar**\
-`Noa Bersier went to Le Constellation with friends on a whim. An hour later, he was caught in one of Switzerland’s worst tragedies.`\
-https://nytimes.com/2026/01/02/world/europe/switzerland-ski-bar-fire-survivor-account.html
 
