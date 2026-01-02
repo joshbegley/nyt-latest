@@ -1,3 +1,15 @@
+**Eintracht Frankfurt confident of signing Kalimuendo on loan from Forest**\
+`The 23-year-old forward has been used sparingly at Forest despite the injury to Chris Wood.`\
+https://nytimes.com/athletic/6935625/2026/01/02/arnaud-kalimuendo-forest-frankfurt/
+
+**No Corrections: Jan. 2, 2026**\
+`No corrections appeared in print on Friday, Jan. 2, 2026.`\
+https://nytimes.com/2026/01/02/pageoneplus/no-corrections-jan-2-2026.html
+
+**Tesla Car Sales Dropped 9% in 2025 and Fell Behind China’s BYD**\
+`As the largest maker of electric vehicles in the United States, Tesla suffered more than other carmakers from the elimination of federal incentives.`\
+https://nytimes.com/2026/01/02/business/tesla-electric-vehicles-fourth-quarter-sales.html
+
 **Mikey Williams was basketball's next big star. He's happier now under a smaller spotlight**\
 `Followed by a documentary crew and millions on social media before gunfire derailed his career, he's back on the court, at Sacramento State.`\
 https://nytimes.com/athletic/6918025/2026/01/02/mikey-williams-sacramento-state-fear-nothing/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/01/02/learning/whats-going-on-in-this-picture-jan-5-202
 **Swiss Authorities Face the Grim Task of Identifying Fire Victims**\
 `Identifying the victims of a New Year’s fire in Crans-Montana that killed more than 40 people could take days or weeks because of the severity of the burns.`\
 https://nytimes.com/2026/01/02/world/europe/swiss-bar-fire-victims-burns-identification.html
-
-**Carrying for a Cause: Meet the Man Lugging Shelter Dogs Around New York**\
-`Bryan Reisberg built a social media following in the millions by carrying his corgi, Maxine, in a backpack. Now, he carries shelter dogs.`\
-https://nytimes.com/2026/01/02/nyregion/dog-backpack-adopt.html
-
-**Team USA announces women’s hockey roster for 2026 Olympics: Snubs, surprises and expectations**\
-`As the No. 1 team in the IIHF rankings, Team USA is the favorite to win its first Olympic gold medal since 2018.`\
-https://nytimes.com/athletic/6932762/2026/01/02/united-states-womens-olympic-hockey-roster-2026/
-
-**Team USA announces men’s hockey roster for 2026 Olympics: Snubs, surprises and expectations**\
-`The U.S. men’s hockey roster was officially unveiled Friday morning with 21 4 Nations returnees and four new faces.`\
-https://nytimes.com/athletic/6935084/2026/01/02/united-states-mens-olympic-hockey-roster-2026/
 

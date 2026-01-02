@@ -1,3 +1,15 @@
+**Eintracht Frankfurt confident of signing Kalimuendo on loan from Forest**\
+`The 23-year-old forward has been used sparingly at Forest despite the injury to Chris Wood.`\
+https://nytimes.com/athletic/6935625/2026/01/02/arnaud-kalimuendo-forest-frankfurt/
+
+**No Corrections: Jan. 2, 2026**\
+`No corrections appeared in print on Friday, Jan. 2, 2026.`\
+https://nytimes.com/2026/01/02/pageoneplus/no-corrections-jan-2-2026.html
+
+**Tesla Car Sales Dropped 9% in 2025 and Fell Behind China’s BYD**\
+`As the largest maker of electric vehicles in the United States, Tesla suffered more than other carmakers from the elimination of federal incentives.`\
+https://nytimes.com/2026/01/02/business/tesla-electric-vehicles-fourth-quarter-sales.html
+
 **Mikey Williams was basketball's next big star. He's happier now under a smaller spotlight**\
 `Followed by a documentary crew and millions on social media before gunfire derailed his career, he's back on the court, at Sacramento State.`\
 https://nytimes.com/athletic/6918025/2026/01/02/mikey-williams-sacramento-state-fear-nothing/
