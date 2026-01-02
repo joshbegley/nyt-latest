@@ -1,3 +1,11 @@
+**Michigan hires offensive, defensive coordinators amid coaching staff overhaul**\
+`Jason Beck and Jay Hill will join new head coach Kyle Whittingham at Michigan after working with Whittingham at previous stops.`\
+https://nytimes.com/athletic/6936230/2026/01/02/michigan-offensive-defensive-coordinator-hires/
+
+**How a ‘Hamilton’ Star Spends a Day at His Brooklyn Bar**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/anthony-ramos-hamilton
+
 **Is It Healthy to Take Aspirin Every Day?**\
 `Despite his doctors’ recommendations, President Trump takes a high dose.`\
 https://nytimes.com/2026/01/02/well/trump-health-asprin-dosage-blood.html
