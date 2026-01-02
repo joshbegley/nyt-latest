@@ -1,3 +1,7 @@
+**Leeds had one eye on Man Utd against Liverpool and still kept rolling forward**\
+`Leeds held Liverpool to a 0-0 draw despite resting key players for Thursday night's game`\
+https://nytimes.com/athletic/6935072/2026/01/02/leeds-liverpool-analysis-man-utd/
+
 **Spurs fans reached their limit at Brentford. Thomas Frank needs to offer more than this**\
 `Thomas Frank was booed by the Tottenham fans at the end of their 0-0 draw with Brentford on Thursday`\
 https://nytimes.com/athletic/6929007/2026/01/02/tottenham-hotspur-brentford-thomas-frank-analysis/

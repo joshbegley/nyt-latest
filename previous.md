@@ -1,3 +1,7 @@
+**Leeds had one eye on Man Utd against Liverpool and still kept rolling forward**\
+`Leeds held Liverpool to a 0-0 draw despite resting key players for Thursday night's game`\
+https://nytimes.com/athletic/6935072/2026/01/02/leeds-liverpool-analysis-man-utd/
+
 **Spurs fans reached their limit at Brentford. Thomas Frank needs to offer more than this**\
 `Thomas Frank was booed by the Tottenham fans at the end of their 0-0 draw with Brentford on Thursday`\
 https://nytimes.com/athletic/6929007/2026/01/02/tottenham-hotspur-brentford-thomas-frank-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/02/nyregion/mamdani-executive-orders-adams-israel.ht
 **Sam Konstas was branded an Australian superstar only for the Ashes to pass him by - but he will be back**\
 `A year on from a startling debut against India, the opener will be playing cricket in Sydney this weekend - but in the BBL, not in the Test`\
 https://nytimes.com/athletic/6928378/2026/01/02/sam-konstas-australia-nsw-thunder-bumrah/
-
-**Why Mikel Arteta's No 9 selection headache has come at the perfect moment**\
-`Each of Arsenal's strikers has their flaws, but having all three available could be a difference maker in the second half of the season`\
-https://nytimes.com/athletic/6933452/2026/01/02/arsenal-arteta-strikers-gyokeres-havertz-jesus/
 
