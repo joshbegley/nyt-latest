@@ -1,3 +1,7 @@
+**Trump Says U.S. Will Aid Protesters if Iran Uses Lethal Force on Them**\
+`After days of demonstrations across Iran, President Trump said that if the government there were to kill peaceful antigovernment protesters, the United States would intervene.`\
+https://nytimes.com/video/world/asia/100000010620223/iran-protests-trump.html
+
 **When is it time to part with a Super Bowl coach? Mike Tomlin, John Harbaugh in rare territory**\
 `As Mike Tomlin and John Harbaugh meet for a playoff spot, they're pushing historical boundaries for seasons without a Super Bowl title.`\
 https://nytimes.com/athletic/6934376/2026/01/02/mike-tomlin-john-harbaugh-hot-seat-ravens-steelers/

@@ -1,3 +1,7 @@
+**Why Exercise Is the Best Thing for Your Brain Health**\
+`Research shows that people who exercise regularly tend to perform better on attention, memory and executive functioning tests. Dana G. Smith, a reporter for Well, explains.`\
+https://nytimes.com/video/well/100000010594750/why-exercise-is-the-best-thing-for-your-brain-health.html
+
 **Trump Says U.S. Will Aid Protesters if Iran Uses Lethal Force on Them**\
 `After days of demonstrations across Iran, President Trump said that if the government there were to kill peaceful antigovernment protesters, the United States would intervene.`\
 https://nytimes.com/video/world/asia/100000010620223/iran-protests-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6935722/2026/01/02/nba-new-years-resolution-knicks-
 **What’s Going On in This Graph? | Jan. 14, 2026**\
 `Who are the adults in children’s lives?`\
 https://nytimes.com/2026/01/02/learning/whats-going-on-in-this-graph-jan-14-2026.html
-
-**College Football Playoff 2025 bracket projections: Who's the national title favorite?**\
-`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
-https://nytimes.com/athletic/6560541/2026/01/02/college-football-playoff-bracket-projections-odds/
 
