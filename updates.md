@@ -1,3 +1,7 @@
+**Your Antarctica Questions, Answered**\
+`Our reporter Raymond Zhong takes a first round of questions about the trip to Antarctica. First up: How can data gathered on the trip tell us how much time is left for the glaciers?`\
+https://nytimes.com/video/climate/100000010617323/your-antarctica-questions-answered.html
+
 **Parachutist gets tangled in field goal net at Armed Forces bowl**\
 `The parachutist was not seriously injured and walked off under his own power, a bowl spokesman said.`\
 https://nytimes.com/athletic/6936454/2026/01/02/armed-forces-bowl-parachutist-tangled/
