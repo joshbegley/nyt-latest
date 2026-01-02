@@ -1,3 +1,7 @@
+**Ole Miss backup QB planning to transfer but will stay on through CFP: Reports**\
+`Early reports indicate that Missouri is the team to watch in the race for Simmons.`\
+https://nytimes.com/athletic/6936649/2026/01/02/austin-simmons-transfer-ole-miss-quarterbacks/
+
 **Your Antarctica Questions, Answered**\
 `Our reporter Raymond Zhong takes a first round of questions about the trip to Antarctica. First up: How can data gathered on the trip tell us how much time is left for the glaciers?`\
 https://nytimes.com/video/climate/100000010617323/your-antarctica-questions-answered.html

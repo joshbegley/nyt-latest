@@ -1,3 +1,7 @@
+**Ole Miss backup QB planning to transfer but will stay on through CFP: Reports**\
+`Early reports indicate that Missouri is the team to watch in the race for Simmons.`\
+https://nytimes.com/athletic/6936649/2026/01/02/austin-simmons-transfer-ole-miss-quarterbacks/
+
 **Your Antarctica Questions, Answered**\
 `Our reporter Raymond Zhong takes a first round of questions about the trip to Antarctica. First up: How can data gathered on the trip tell us how much time is left for the glaciers?`\
 https://nytimes.com/video/climate/100000010617323/your-antarctica-questions-answered.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/02/obituaries/pamela-colman-smith-overlooked.html
 **Hiker Killed in Suspected Mountain Lion Attack, Colorado’s First in Decades**\
 `A woman’s body was found on a trail on Crosier Mountain this week, with a mountain lion nearby.`\
 https://nytimes.com/2026/01/02/us/mountain-lion-attack-hiker-dead-colorado.html
-
-**From sideline reporter to halftime host: How does ESPN's Laura Rutledge do it?**\
-`Video from Thursday's Georgia-Ole Miss CFP game shows just how much Rutledge has to hustle to fulfill her broadcasting duties.`\
-https://nytimes.com/athletic/6936309/2026/01/02/laura-rutledge-espn-cfp-host-sideline-reporter/
 
