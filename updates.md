@@ -1,3 +1,7 @@
+**Driver involved in Anthony Joshua crash charged by police**\
+`Police confirmed Adeniyi Mobolaji Kayode, the driver of the Lexus SUV involved in the accident, has been charged.`\
+https://nytimes.com/athletic/6936062/2026/01/02/anthony-joshua-driver-charged/
+
 **Inside Enzo Maresca's Chelsea exit: Selection disagreements, Man City talks and defender woe**\
 `Enzo Maresca left Chelsea on New Year's Day but the seeds of his exit were sown many months before`\
 https://nytimes.com/athletic/6935634/2026/01/02/chelsea-enzo-maresca-exit-inside/
