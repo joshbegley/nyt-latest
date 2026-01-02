@@ -1,3 +1,11 @@
+**Ex-Barca defender Alves becomes co-owner of Portuguese club**\
+`The 42-year-old had a conviction of sexual assault and a four-and-a-half-year prison sentence overturned in March 2025.`\
+https://nytimes.com/athletic/6935383/2026/01/02/dani-alves-owner-portuguese-club/
+
+**The Pulse: Re-ranking the Playoff’s Final Four**\
+`The Athletic has live coverage of Bears vs.`\
+https://nytimes.com/athletic/6934106/2026/01/02/cfp-indiana-ole-miss-georgia-alabama-oregon-the-pulse/
+
 **Arteta uncertain whether Rice will be available for Bournemouth game**\
 `The England international missed Tuesday's win over Aston Villa with a knee injury.`\
 https://nytimes.com/athletic/6935401/2026/01/02/declan-rice-injury-arsenal-team-news/
