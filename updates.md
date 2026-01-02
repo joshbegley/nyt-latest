@@ -1,3 +1,15 @@
+**It Isn’t Swedish Christmas Without Three Kinds of Herring**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/dagmar-julbord-holiday-party-stockholm
+
+**Adam Engström’s path to the Canadiens is a blueprint for David Reinbacher**\
+`Engström had time to prepare for his NHL opportunity in Laval, and Reinbacher is going through the same process.`\
+https://nytimes.com/athletic/6936167/2026/01/02/canadiens-david-reinbacher-adam-engstrom/
+
+**Who's playing, who's resting in NFL Week 18 with playoff seeds, draft picks on the line**\
+`The Rams "need to play better football," so their starters will play, while the Eagles and Chargers are among those who will rest players.`\
+https://nytimes.com/athletic/6936130/2026/01/02/nfl-week-18-starters-inactives-resting-playoffs-draft/
+
 **Park City, Utah**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/things-to-do-park-city
