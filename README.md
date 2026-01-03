@@ -1,3 +1,7 @@
+**How Manhattan Federal Court Would Handle the Trial of a President**\
+`Nicolás Maduro, Venezuela’s president, could stand trial in Federal District Court in New York City, the site of other high-profile court proceedings.`\
+https://nytimes.com/live/2026/01/03/world/trump-united-states-strikes-venezuela/maduro-trial-nyc-sdny
+
 **Base Pairs**\
 `This Sunday puzzle by Gene Louise De Vera breaks free from the laboratory.`\
 https://nytimes.com/2026/01/03/crosswords/daily-puzzle-2026-01-04.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6937383/2026/01/03/luke-littler-world-darts-champio
 **How Democrats are hitting Trump over his ouster of Maduro.**\
 `Some of the nation’s most influential Democrats condemned the move as unjustified and argued that the president was trying to distract from his domestic challenges.`\
 https://nytimes.com/live/2026/01/03/world/trump-united-states-strikes-venezuela/democrats-trump-venezuela-maduro
-
-**Arch's roommate calls transfer 'out of my control' as Texas seeks WR upgrades**\
-`Texas finished 10-3 in Arch Manning’s first season as the starting quarterback, a disappointment considering its preseason No. 1 ranking.`\
-https://nytimes.com/athletic/6938084/2026/01/03/parker-livingstone-transfer-portal-texas-receivers/
 
