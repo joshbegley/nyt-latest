@@ -1,3 +1,7 @@
+**Harrowing Videos Show the Swiss Bar Fire’s Rapid Spread**\
+`Videos shared on social media and verified by The New York Times show how the blaze quickly tore through a popular bar during a New Year’s celebration in the Alps, killing at least 40 people and injuring more than a hundred others.`\
+https://nytimes.com/video/world/europe/100000010620971/switzerland-ski-resort-fire-videos.html
+
 **Stephen Schwartz Criticizes Kennedy Center, Saying He Won’t Host Gala**\
 `The Washington National Opera said the “Wicked” composer was scheduled to host its annual event at the center this spring.`\
 https://nytimes.com/2026/01/02/arts/stephen-schwartz-kennedy-center-opera-gala.html
