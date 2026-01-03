@@ -1,3 +1,7 @@
+**How Tensions Escalated Between the U.S. and Venezuela**\
+`A U.S. pressure campaign has been building for years, through a series of indictments, sanctions and, recently, military actions.`\
+https://nytimes.com/2026/01/03/world/americas/how-tensions-escalated-between-the-us-and-venezuela.html
+
 **Trump’s Attack on Venezuela Is Illegal and Unwise**\
 `We know that Mr. Trump’s warmongering violates the law.`\
 https://nytimes.com/2026/01/03/opinion/venezuela-attack-trump-us.html
