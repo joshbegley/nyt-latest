@@ -1,3 +1,7 @@
+**The 1.4.25 Issue**\
+``\
+https://nytimes.com/issue/magazine/2026/01/02/the-1425-issue
+
 **Mamdani Creates Office to Encourage Public Participation in Government**\
 `Mayor Zohran Mamdani of New York said he hoped to reach communities that had been left out of the process.`\
 https://nytimes.com/2026/01/02/nyregion/mamdani-appointments.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/02/us/politics/trump-super-pac-maga-inc-fundraising.
 **Behind the Scenes With Our Photographer**\
 `“I have a lot of gear.” Our photographer Chang W. Lee describes how he plans to capture the journey to Antarctica from every angle, including from a long-range drone and a sound-triggered camera designed to capture a calving glacier.`\
 https://nytimes.com/video/climate/100000010615476/behind-the-scenes-with-our-photographer.html
-
-**Answers to Your Antarctica Questions, Part 1**\
-`Our reporter sends a dispatch from the icebreaker Araon, currently on its way to Antarctica, about the scientists, their work and how he’s battling seasickness.`\
-https://nytimes.com/2026/01/02/climate/reader-questions-part-1.html
 
