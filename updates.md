@@ -1,3 +1,7 @@
+**Legal Issues Raised by Trump’s Seizure of Maduro, Explained**\
+`The operation revives disputes over the legality of the 1989 Panama intervention, enhanced by President Trump’s vow to “run” Venezuela and Nicolás Maduro’s formal status as president.`\
+https://nytimes.com/2026/01/03/us/maduro-venezuela-trump-legal-issues.html
+
 **What We Know About the U.S. Operation in Venezuela**\
 `U.S. forces carried out an audacious raid on the country’s capital, seizing President Nicolás Maduro. President Trump said the United States now intends to “run” Venezuela.`\
 https://nytimes.com/2026/01/03/world/americas/venezuela-maduro-capture-trump.html
