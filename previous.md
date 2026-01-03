@@ -1,3 +1,7 @@
+**The New York Times in Print for Saturday, Jan. 3, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/01/03/todays-new-york-times
+
 **The SCG is a graveyard for English Test careers — but there is still joy to be found in the debris**\
 `Scott Borthwick and Mason Crane both played their only Test matches in Sydney, where too many England careers have fizzled out prematurely`\
 https://nytimes.com/athletic/6928374/2026/01/03/england-scg-borthwick-crane-graveyard-ashes/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6891253/2026/01/03/souleymane-coulibaly-interview-s
 **How Kazakhstan Aims to Tap More Oil Riches Below Its Grassy Plains**\
 `After spending nearly $50 billion to expand the country’s Tengiz oil field, Chevron and its partners encounter more uncertainty.`\
 https://nytimes.com/2026/01/03/business/chevron-kazakhstan-oil.html
-
-**Corrections: Jan. 3, 2026**\
-`Corrections that appeared in print on Saturday, Jan. 3, 2026.`\
-https://nytimes.com/2026/01/03/pageoneplus/corrections-jan-3-2026.html
 

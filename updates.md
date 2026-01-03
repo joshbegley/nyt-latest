@@ -1,3 +1,7 @@
+**The New York Times in Print for Saturday, Jan. 3, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/01/03/todays-new-york-times
+
 **Nebraska off to another perfect start with narrow win over Michigan State**\
 `The Huskers started 2026 as they ended 2025: with a perfect record in men's basketball.`\
 https://nytimes.com/athletic/6937093/2026/01/03/nebraska-basketball-perfect-start-michigan-state-win/
