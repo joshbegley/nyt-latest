@@ -1,3 +1,15 @@
+**Giannis' alley-oop slam helps Bucks avoid another bad loss at home**\
+`Antetokounmpo, who returned last week from a calf injury, led the Bucks with 30 points and 10 rebounds.`\
+https://nytimes.com/athletic/6937024/2026/01/02/giannis-bucks-hornets-kon-knueppel/
+
+**Federal Appeals Court Says California Open-Carry Ban Is Unconstitutional**\
+`A Ninth Circuit panel said the ban ran afoul of a 2022 Supreme Court ruling that required courts to evaluate gun laws based on the country’s “historical tradition of firearm regulation.”`\
+https://nytimes.com/2026/01/02/us/ninth-circuit-california-gun-law.html
+
+**2 Navy Service Members Accused of Entering Sham Marriages With Chinese Nationals**\
+`Federal prosecutors say two female service members are facing fraud charges after having accepted thousands of dollars for the marriages.`\
+https://nytimes.com/2026/01/02/us/politics/navy-sham-marriage-chinese-nationals.html
+
 **Corner Piece**\
 `Hannah Slovut-Einertson’s puzzle sets solvers on a cool, themeless pursuit.`\
 https://nytimes.com/2026/01/02/crosswords/daily-puzzle-2026-01-03.html
@@ -25,16 +37,4 @@ https://nytimes.com/video/world/europe/100000010620971/switzerland-ski-resort-fi
 **Stephen Schwartz Criticizes Kennedy Center, Saying He Won’t Host Gala**\
 `The Washington National Opera said the “Wicked” composer was scheduled to host its annual event at the center this spring.`\
 https://nytimes.com/2026/01/02/arts/stephen-schwartz-kennedy-center-opera-gala.html
-
-**Software Error Will Force 325,000 Californians to Replace Real IDs**\
-`Some state-issued identification cards issued to legal immigrants could be valid longer than the people holding them are allowed to remain in the United States, state officials said.`\
-https://nytimes.com/2026/01/02/us/california-real-id-dmv-error.html
-
-**Mamdani Creates Office of Mass Engagement**\
-`Mayor Zohran Mamdani announced two appointments at Grand Army Plaza in Brooklyn on his second day as mayor of New York City, including the creation of an Office of Mass Engagement.`\
-https://nytimes.com/video/us/politics/100000010621144/mamdani-creates-office-of-mass-engagement.html
-
-**Trump Super PAC Raised More Than $100 Million in Recent Months**\
-`The haul highlights how the president’s team has continued aggressive fund-raising from donors with interests before the administration.`\
-https://nytimes.com/2026/01/02/us/politics/trump-super-pac-maga-inc-fundraising.html
 
