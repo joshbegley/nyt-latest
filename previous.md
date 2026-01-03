@@ -1,3 +1,7 @@
+**In a Phone Interview, Trump Celebrated the Capture of Maduro**\
+`In a call with The New York Times, President Trump called the U.S. operation in Venezuela “brilliant" but did not address whether he had consulted Congress.`\
+https://nytimes.com/2026/01/03/world/americas/in-a-phone-interview-trump-celebrated-the-capture-of-maduro.html
+
 **'Women's tennis stands on its own': Iga Świątek says 'Battle of the Sexes' was unnecessary**\
 `The six-time Grand Slam champion and world No. 2 described mixed events as better ways of having men and women compete.`\
 https://nytimes.com/athletic/6937300/2026/01/03/tennis-iga-swiatek-battle-sexes-sabalenka-kyrgios/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/03/business/retirement-savings-2026.html
 **5 Workouts for Complete Beginners**\
 `Looking for a new fitness routine this January? Start here.`\
 https://nytimes.com/2026/01/03/well/move/beginner-workout-ideas.html
-
-**How to Make New Friends in the New Year**\
-`People’s ability to make new friends reflects the strength of the “friendship market” they are in.`\
-https://nytimes.com/2026/01/03/opinion/friendship-markets-new-friends.html
 
