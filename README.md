@@ -1,3 +1,27 @@
+**Esto es lo más reciente**\
+`El presidente Donald Trump anunció que las fuerzas estadounidenses habían llevado a cabo “un ataque a gran escala contra Venezuela” y estaban sacando del país al presidente Maduro y a su esposa.`\
+https://nytimes.com/live/2026/01/03/espanol/venezuela-estados-unidos-maduro-trump/esto-es-lo-mas-reciente
+
+**How to watch Penguins vs. Red Wings: Time, TV, streaming**\
+`Find out how to watch the Pittsburgh Penguins play the Detroit Red Wings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6937380/2026/01/03/penguins-vs-red-wings-stream-how-to-watch-jan-3/
+
+**Former Canada boss Herdman appointed Indonesia head coach**\
+`The Football Association of Indonesia confirmed Herdman's arrival on Saturday, praising his "diverse track record".`\
+https://nytimes.com/athletic/6937319/2026/01/03/john-herdman-indonesia-canada/
+
+**En directo: EE. UU. captura a Nicolás Maduro, dice Trump**\
+`El presidente Donald Trump anunció que las fuerzas estadounidenses habían llevado a cabo “un ataque a gran escala contra Venezuela” y estaban sacando del país al presidente Maduro y a su esposa.`\
+https://nytimes.com/live/2026/01/03/espanol/venezuela-estados-unidos-maduro-trump
+
+**How to watch Seton Hall vs. UConn women's basketball: Time, TV, streaming**\
+`Find out how to watch the Seton Hall Pirates play the UConn Huskies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6937376/2026/01/03/seton-hall-vs-uconn-stream-how-to-watch-jan-3/
+
+**How to watch BYU vs. Kansas State men's basketball: Time, TV, streaming**\
+`Find out how to watch the BYU Cougars play the Kansas State Wildcats, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6937375/2026/01/03/byu-vs-kansas-state-stream-how-to-watch-jan-3/
+
 **How to watch Oklahoma State vs. Texas Tech men's basketball: Time, TV, streaming**\
 `Find out how to watch the Oklahoma State Cowboys play the Texas Tech Red Raiders, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6937366/2026/01/03/oklahoma-state-vs-texas-tech-stream-how-to-watch-jan-3/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6937360/2026/01/03/houston-vs-cincinnati-stream-how
 **How to watch Kansas vs. UCF men's basketball: Time, TV, streaming**\
 `Find out how to watch the Kansas Jayhawks play the UCF Knights, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6937345/2026/01/03/kansas-vs-ucf-stream-how-to-watch-jan-3/
-
-**How to watch Kentucky vs. Alabama men's basketball: Time, TV, streaming**\
-`Find out how to watch the Kentucky Wildcats play the Alabama Crimson Tide, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6937333/2026/01/03/kentucky-vs-alabama-stream-how-to-watch-jan-3/
-
-**How to watch Auburn vs. Georgia men's basketball: Time, TV, streaming**\
-`Find out how to watch the Auburn Tigers play the Georgia Bulldogs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6937324/2026/01/03/auburn-vs-georgia-stream-how-to-watch-jan-3/
-
-**NFL Saturday watch guide: Panthers at Bucs, Seahawks at Niners for division titles**\
-`The NFL's last regular-season weekend begins with its most consequential games.`\
-https://nytimes.com/athletic/6936174/2026/01/03/nfl-panthers-buccaneers-seahawks-49ers-how-to-watch/
-
-**Rangers get needed Winter Classic win, but they must build on it for it to matter**\
-`After a 5-1 win against the Florida Panthers that snapped a three-game winless streak, the Rangers are 6-0 in outdoor games.`\
-https://nytimes.com/athletic/6937141/2026/01/03/rangers-winter-classic-win-panthers/
-
-**Flyers mailbag, part 1: Zegras' future, trade-deadline plans and is there Michkov concern?**\
-`Might Zegras return to center, and what would a contract extension look like?`\
-https://nytimes.com/athletic/6936378/2026/01/03/flyers-zegras-michkov-contract-trade/
-
-**Former Blue Jackets GM Jarmo Kekäläinen returns with Sabres, the NHL's hottest team**\
-`Kekäläinen served as the Blue Jackets' general manager for 11 years before his dismissal in February 2024.`\
-https://nytimes.com/athletic/6936654/2026/01/03/blue-jackets-sabres-jarmo-kekalainen-nhl/
 

@@ -1,3 +1,27 @@
+**How to watch Oklahoma State vs. Texas Tech men's basketball: Time, TV, streaming**\
+`Find out how to watch the Oklahoma State Cowboys play the Texas Tech Red Raiders, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6937366/2026/01/03/oklahoma-state-vs-texas-tech-stream-how-to-watch-jan-3/
+
+**How to watch Vanderbilt vs. South Carolina men's basketball: Time, TV, streaming**\
+`Find out how to watch the Vanderbilt Commodores play the South Carolina Gamecocks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6937364/2026/01/03/vanderbilt-vs-south-carolina-stream-how-to-watch-jan-3/
+
+**How to watch Houston vs. Cincinnati men's basketball: Time, TV, streaming**\
+`Find out how to watch the Houston Cougars play the Cincinnati Bearcats, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6937360/2026/01/03/houston-vs-cincinnati-stream-how-to-watch-jan-3/
+
+**How to watch Kansas vs. UCF men's basketball: Time, TV, streaming**\
+`Find out how to watch the Kansas Jayhawks play the UCF Knights, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6937345/2026/01/03/kansas-vs-ucf-stream-how-to-watch-jan-3/
+
+**How to watch Kentucky vs. Alabama men's basketball: Time, TV, streaming**\
+`Find out how to watch the Kentucky Wildcats play the Alabama Crimson Tide, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6937333/2026/01/03/kentucky-vs-alabama-stream-how-to-watch-jan-3/
+
+**How to watch Auburn vs. Georgia men's basketball: Time, TV, streaming**\
+`Find out how to watch the Auburn Tigers play the Georgia Bulldogs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6937324/2026/01/03/auburn-vs-georgia-stream-how-to-watch-jan-3/
+
 **NFL Saturday watch guide: Panthers at Bucs, Seahawks at Niners for division titles**\
 `The NFL's last regular-season weekend begins with its most consequential games.`\
 https://nytimes.com/athletic/6936174/2026/01/03/nfl-panthers-buccaneers-seahawks-49ers-how-to-watch/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6936378/2026/01/03/flyers-zegras-michkov-contract-t
 **Former Blue Jackets GM Jarmo Kekäläinen returns with Sabres, the NHL's hottest team**\
 `Kekäläinen served as the Blue Jackets' general manager for 11 years before his dismissal in February 2024.`\
 https://nytimes.com/athletic/6936654/2026/01/03/blue-jackets-sabres-jarmo-kekalainen-nhl/
-
-**NFL Week 18 roundtable: Myles Garrett's final shot, Ravens-Steelers hot seat and more**\
-`Division title games and playoff seeding aside, there is plenty worth following in Week 18. Our writers discuss.`\
-https://nytimes.com/athletic/6936707/2026/01/03/nfl-week-18-garrett-harbaugh-tomlin-division-title-clash/
-
-**Someone Made Anonymous Accusations About My Friend. What Should I Do?**\
-`Normally I would listen to my gut, but even my gut is stumped.`\
-https://nytimes.com/2026/01/03/magazine/anonymous-accusations-friend-ethics.html
-
-**How Adam Novotny, driven by strength and scoring, became a top 2026 NHL Draft prospect**\
-`When Novotny left for the World Juniors, he was the Peterborough Petes' team leader in goals and points.`\
-https://nytimes.com/athletic/6936305/2026/01/03/adam-novotny-czechia-nhl-draft-2026/
-
-**A Story of Extraordinary Celebrity and Terrible Exploitation Ends**\
-`The Dionne quintuplets were a global sensation during the Great Depression. The last of the five sisters, Annette, died in December.`\
-https://nytimes.com/2026/01/03/world/canada/dionne-quintuplets-ontario.html
-
-**Connections Companion No. 938**\
-`Scroll down for hints and conversation about the puzzle for Sunday, Jan. 4, 2026.`\
-https://nytimes.com/2026/01/03/crosswords/connections-companion-938.html
-
-**Vikings-Packers analysis: What we're watching in regular-season finale**\
-`The Vikings are playing for pride. The Packers are resting most of their starters. What can be taken from this regular-season finale?`\
-https://nytimes.com/athletic/6936225/2026/01/03/vikings-packers-predictions-analysis-j-j-mccarthy/
 

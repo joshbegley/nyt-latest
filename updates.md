@@ -1,3 +1,27 @@
+**How to watch Oklahoma State vs. Texas Tech men's basketball: Time, TV, streaming**\
+`Find out how to watch the Oklahoma State Cowboys play the Texas Tech Red Raiders, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6937366/2026/01/03/oklahoma-state-vs-texas-tech-stream-how-to-watch-jan-3/
+
+**How to watch Vanderbilt vs. South Carolina men's basketball: Time, TV, streaming**\
+`Find out how to watch the Vanderbilt Commodores play the South Carolina Gamecocks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6937364/2026/01/03/vanderbilt-vs-south-carolina-stream-how-to-watch-jan-3/
+
+**How to watch Houston vs. Cincinnati men's basketball: Time, TV, streaming**\
+`Find out how to watch the Houston Cougars play the Cincinnati Bearcats, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6937360/2026/01/03/houston-vs-cincinnati-stream-how-to-watch-jan-3/
+
+**How to watch Kansas vs. UCF men's basketball: Time, TV, streaming**\
+`Find out how to watch the Kansas Jayhawks play the UCF Knights, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6937345/2026/01/03/kansas-vs-ucf-stream-how-to-watch-jan-3/
+
+**How to watch Kentucky vs. Alabama men's basketball: Time, TV, streaming**\
+`Find out how to watch the Kentucky Wildcats play the Alabama Crimson Tide, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6937333/2026/01/03/kentucky-vs-alabama-stream-how-to-watch-jan-3/
+
+**How to watch Auburn vs. Georgia men's basketball: Time, TV, streaming**\
+`Find out how to watch the Auburn Tigers play the Georgia Bulldogs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6937324/2026/01/03/auburn-vs-georgia-stream-how-to-watch-jan-3/
+
 **NFL Saturday watch guide: Panthers at Bucs, Seahawks at Niners for division titles**\
 `The NFL's last regular-season weekend begins with its most consequential games.`\
 https://nytimes.com/athletic/6936174/2026/01/03/nfl-panthers-buccaneers-seahawks-49ers-how-to-watch/
