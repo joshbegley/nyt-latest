@@ -1,3 +1,7 @@
+**Stephen Schwartz Criticizes Kennedy Center, Saying He Won’t Host Gala**\
+`The Washington National Opera said the “Wicked” composer was scheduled to host its annual event at the center this spring.`\
+https://nytimes.com/2026/01/02/arts/stephen-schwartz-kennedy-center-opera-gala.html
+
 **Software Error Will Force 325,000 Californians to Replace Real IDs**\
 `Some state-issued identification cards issued to legal immigrants could be valid longer than the people holding them are allowed to remain in the United States, state officials said.`\
 https://nytimes.com/2026/01/02/us/california-real-id-dmv-error.html
