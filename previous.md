@@ -1,3 +1,23 @@
+**Taylor Fritz's shock defeat to Sebástian Báez leaves Coco Gauff with work to do at United Cup**\
+`The world No. 3 had previously never lost a set to the Argentine, who is a fixture of the ATP top 50.`\
+https://nytimes.com/athletic/6937413/2026/01/03/taylor-fritz-united-cup-sebastian-baez-result-analysis/
+
+**Macklin Celebrini's breakout continues with historic Canada roster spot: 'It's all surreal'**\
+`Celebrini will be the first teenager to represent Canada in men's hockey in an Olympics featuring NHL players.`\
+https://nytimes.com/athletic/6936091/2026/01/03/macklin-celebrini-sharks-olympics-roster-canada/
+
+**'Shoot the puck!' — or, actually, don't? NHL power plays booming by being selective and going low**\
+`Top PPs operate under a different principle than in the past: “We don’t need four low-danger chances. We need, literally, one high-danger."`\
+https://nytimes.com/athletic/6936554/2026/01/03/nhl-power-play-boom-selective-shooting/
+
+**It's been easy to wonder whether Suns knew what they were doing. Turns out, they did**\
+`Last year the Suns tried to win with star power. In a remarkable twist, this season they are winning mostly with (expanded) role players.`\
+https://nytimes.com/athletic/6937115/2026/01/03/suns-win-kings-oso-ighodaro-collin-gillespie/
+
+**8 Big Questions for 2026**\
+`Here are the biggest unknowns the DealBook team will be watching as we cover business and the economy this year.`\
+https://nytimes.com/2026/01/03/business/dealbook/2026-economy-business.html
+
 **Donald Trump’s Attack on Venezuela Is Illegal and Unwise**\
 `We know that Mr. Trump’s warmongering violates the law.`\
 https://nytimes.com/2026/01/03/opinion/venezuela-attack-trump-us.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6934134/2026/01/03/broncos-o-line-zach-strief-coach
 **The Winnipeg Jets records debate: Gary Bettman says it's complicated. It shouldn't be**\
 `Sean McIndoe weighs on the records debate around the Winnipeg Jets and shows there's a pretty simple solution.`\
 https://nytimes.com/athletic/6932495/2026/01/03/winnipeg-jets-records/
-
-**Maple Leafs midseason report cards: Whose grades are ticking up?**\
-`We're now halfway through Toronto's 2025-26 season, and the Leafs still find themselves near the bottom of the Atlantic Division.`\
-https://nytimes.com/athletic/6935794/2026/01/03/maple-leafs-season-report-cards-grades/
-
-**Australia will not lack motivation in Sydney - they are playing for their futures**\
-`The fifth Test at the SCG may be a dead rubber with the series already won, but there is plenty for those in Australian ranks to play for `\
-https://nytimes.com/athletic/6935381/2026/01/03/australia-ashes-future-labuschagne-green-weatherald/
-
-**Clippers are catching up by slowing down but still have 'steps' to take**\
-`LA has slowed its pace even more and transformed into the NBA's best offense and best defense over the past two weeks.`\
-https://nytimes.com/athletic/6935376/2026/01/03/la-clippers-winning-streak-nba/
-
-**Why the Giants coaching search needs some AFC North help**\
-`Mike Tomlin, John Harbaugh or Kevin Stefanski could become available in the coming days, which might be the break the Giants have needed.`\
-https://nytimes.com/athletic/6936942/2026/01/03/giants-coach-tomlin-harbaugh-stefanski-afc-north/
-
-**What Bears quarterbacks coach J.T. Barrett has meant for Caleb Williams**\
-`Barrett might be better known for his accomplishments at Ohio State, but he's been integral to the Bears' QB success in 2025.`\
-https://nytimes.com/athletic/6936465/2026/01/03/bears-jt-barrett-caleb-williams/
 
