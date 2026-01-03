@@ -1,3 +1,7 @@
+**Donald Trump’s Attack on Venezuela Is Illegal and Unwise**\
+`We know that Mr. Trump’s warmongering violates the law.`\
+https://nytimes.com/2026/01/03/opinion/venezuela-attack-trump-us.html
+
 **What I’m hearing about the NFL coaching carousel and the changes coming in Vegas**\
 `The latest intel about the Giants, Titans, Bengals, Browns, Falcons, Commanders and other franchises that are out of the playoff picture.`\
 https://nytimes.com/athletic/6936695/2026/01/03/nfl-rumors-news-coach-carousel-black-monday-2026/
