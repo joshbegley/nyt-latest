@@ -1,3 +1,7 @@
+**How to watch North Carolina vs. SMU men's basketball: Time, TV, streaming**\
+`Find out how to watch the North Carolina Tar Heels play the SMU Mustangs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6937510/2026/01/03/north-carolina-vs-smu-stream-how-to-watch-jan-3/
+
 **C.I.A. Source Inside Venezuelan Government Helped Track Maduro**\
 `The spy agency also used stealth drones to monitor the whereabouts of the Venezuelan leader.`\
 https://nytimes.com/2026/01/03/world/americas/cia-venezuela-maduro.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6937115/2026/01/03/suns-win-kings-oso-ighodaro-coll
 **8 Big Questions for 2026**\
 `Here are the biggest unknowns the DealBook team will be watching as we cover business and the economy this year.`\
 https://nytimes.com/2026/01/03/business/dealbook/2026-economy-business.html
-
-**Trump’s Attack on Venezuela Is Illegal and Unwise**\
-`We know that Mr. Trump’s warmongering violates the law.`\
-https://nytimes.com/2026/01/03/opinion/venezuela-attack-trump-us.html
 
