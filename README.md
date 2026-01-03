@@ -7,7 +7,7 @@ https://nytimes.com/2026/01/03/us/politics/trump-capture-maduro-venezuela.html
 https://nytimes.com/2026/01/03/world/americas/us-venezuela-tensions-timeline.html
 
 **Vance Justifies Capture as Bringing Maduro to Justice**\
-`Mr. Maduro has “multiple indictments in the United States for narcoterrorism,” the vice president said.`\
+`Nicolás Maduro has “multiple indictments in the United States for narcoterrorism,” the vice president said.`\
 https://nytimes.com/2026/01/03/world/americas/jd-vance-nicolas-maduro-venezuela.html
 
 **Judge Convicted of Obstructing Immigration Agents Resigns as Impeachment Looms**\

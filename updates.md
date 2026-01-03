@@ -1,3 +1,7 @@
+**Trump Says He Watched Capture of Maduro in Real Time**\
+`President Trump said members of the Army’s Delta Force broke through the doors of a safe house “in a matter of seconds” after practicing the operation using a replica of the structure.`\
+https://nytimes.com/2026/01/03/us/politics/trump-capture-maduro-venezuela.html
+
 **A Timeline of Rising Tension Between the U.S. and Venezuela**\
 `The Trump administration has for months increased pressure on the Maduro government through a series of diplomatic and military maneuvers.`\
 https://nytimes.com/2026/01/03/world/americas/us-venezuela-tensions-timeline.html
