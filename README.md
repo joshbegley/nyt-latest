@@ -34,7 +34,7 @@ https://nytimes.com/athletic/6935790/2026/01/03/penguins-red-wings-analysis-win-
 `Mayor Zohran Mamdani of New York accused President Trump of violating international law. It was the first time he had criticized the president since their White House meeting.`\
 https://nytimes.com/2026/01/03/world/americas/mamdani-trump-venezuela-maduro.html
 
-**Dabo Swinney hires Chad Morris to return as Clemson's offensive coordinator: Reports**\
+**Dabo Swinney hires Chad Morris to return as Clemson's offensive coordinator: Source**\
 `In Morris' first run as Clemson's OC, the Tigers set several offensive records in 2012.`\
 https://nytimes.com/athletic/6937942/2026/01/03/dabo-swinney-chad-morris-clemson-offensive-coordinator/
 
