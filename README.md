@@ -1,3 +1,15 @@
+**Diane Crump, First Woman to Ride in Kentucky Derby, Dies at 77**\
+`She was the first professional female jockey to compete at a track in the United States where betting was legal, and notched up 228 career victories.`\
+https://nytimes.com/2026/01/02/obituaries/diane-crump-dead.html
+
+**Casey Dawson, U.S. speed skating medal hopeful, is back for his Olympic 'villain arc'**\
+`Four years ago, Dawson's Olympic plans were disrupted by COVID. Now he's back, with redemption on his mind.`\
+https://nytimes.com/athletic/6937002/2026/01/02/casey-dawson-olympics-usa-speed-skating-5000-meter/
+
+**World Juniors quarterfinals: USA bounced, Canada wins big, Swiss honor fire victims**\
+`The World Juniors semifinals matchups in Minnesota on Sunday are Sweden vs. Finland and Canada vs. Czechia. `\
+https://nytimes.com/athletic/6935543/2026/01/02/world-juniors-2026-canada-usa-quarterfinals/
+
 **Giannis' late slam makes history, helps Bucks avoid loss to Hornets**\
 `The two-time NBA MVP now has the most 30/10/5 games in league history.`\
 https://nytimes.com/athletic/6937024/2026/01/02/giannis-bucks-hornets-kon-knueppel/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/01/02/nyregion/mamdani-appointments.html
 **Quote of the Day: Many People Gambling on Health Premiums for Obamacare Double**\
 `Quotation of the Day for Saturday, January 3, 2026.`\
 https://nytimes.com/2026/01/02/pageoneplus/quote-of-the-day-many-people-gambling-on-health-premiums-for-obamacare-double.html
-
-**Joe Burrow's sideline waffle is the latest surprising athletes' snack**\
-`Unique snacks are part of a long tradition of athletes experimenting with different refueling options during games.`\
-https://nytimes.com/athletic/6930813/2026/01/02/joe-burrow-waffle-athletes-snacks/
-
-**Harrowing Videos Show the Swiss Bar Fire’s Rapid Spread**\
-`Videos shared on social media and verified by The New York Times show how the blaze quickly tore through a popular bar during a New Year’s celebration in the Alps, killing at least 40 people and injuring more than a hundred others.`\
-https://nytimes.com/video/world/europe/100000010620971/switzerland-ski-resort-fire-videos.html
-
-**Stephen Schwartz Criticizes Kennedy Center, Saying He Won’t Host Gala**\
-`The Washington National Opera said the “Wicked” composer was scheduled to host its annual event at the center this spring.`\
-https://nytimes.com/2026/01/02/arts/stephen-schwartz-kennedy-center-opera-gala.html
 
