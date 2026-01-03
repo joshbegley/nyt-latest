@@ -1,3 +1,7 @@
+**Explosions Reported in Venezuela’s Capital**\
+`It was not immediately clear what caused the blasts. The United States has been building pressure on Nicolás Maduro, Venezuela’s authoritarian president, for months.`\
+https://nytimes.com/2026/01/03/world/americas/venezuela-caracas-explosions.html
+
 **Ex-MLB star Lenny Dykstra faces charges after drugs allegedly found in truck**\
 `Dykstra was arrested on suspicion of possessing narcotics and narcotic-related equipment while being a passenger in a truck, police said.`\
 https://nytimes.com/athletic/6936989/2026/01/03/lenny-dykstra-drugs-charges-mets-phillies/
