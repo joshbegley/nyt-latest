@@ -1,3 +1,7 @@
+**Live Updates: U.S. Military Strikes Caracas, Venezuela Says**\
+`President Nicolás Maduro denounced what he called an “imperialist attack” after explosions were heard at a military base in the Venezuelan capital. The Trump administration has been building pressure on Mr. Maduro for months.`\
+https://nytimes.com/live/2026/01/03/world/trump-united-states-strikes-venezuela
+
 **Mamdani Acts on Vow to Protect Renters With Move Against a Big Landlord**\
 `Mayor Zohran Mamdani said New York City would intervene in the Pinnacle Group’s bankruptcy case. Tenants have long complained about living conditions in the company’s properties.`\
 https://nytimes.com/2026/01/03/nyregion/mamdani-pinnacle-housing.html
