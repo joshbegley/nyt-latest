@@ -1,3 +1,7 @@
+**Crossing Barcelona's city divide: Joan Garcia, rats and fury at Espanyol**\
+`The 24-year-old goalkeeper returns to his old home ground for the first time since joining Barca last summer`\
+https://nytimes.com/athletic/6935730/2026/01/03/barcelona-joan-garcia-espanyol-rivalry-rats/
+
 **Forget managers – it's the muddled strategy of Chelsea's owners that is the problem**\
 `After Enzo Maresca became the fifth Chelsea manager to leave since 2022, maybe it's time to scrutinise those appointing them`\
 https://nytimes.com/athletic/6935334/2026/01/03/forget-managers-its-the-muddled-strategy-of-chelseas-owners-that-is-the-problem/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6936973/2026/01/03/connections-sports-edition-hints
 `With 5 points in a 5-1 win over the Panthers, Zibanejad was awarded "The Cocoa Cup" after the game, given to the MVP at the Winter Classic.
 `\
 https://nytimes.com/athletic/6937067/2026/01/02/mika-zibanejad-rangers-hat-trick-winter-classic/
-
-**Diane Crump, First Woman to Ride in Kentucky Derby, Dies at 77**\
-`She was the first professional female jockey to compete at a track in the United States where betting was legal, and notched up 228 career victories.`\
-https://nytimes.com/2026/01/02/obituaries/diane-crump-dead.html
 

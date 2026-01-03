@@ -1,3 +1,12 @@
+**Crossing Barcelona's city divide: Joan Garcia, rats and fury at Espanyol**\
+`The 24-year-old goalkeeper returns to his old home ground for the first time since joining Barca last summer`\
+https://nytimes.com/athletic/6935730/2026/01/03/barcelona-joan-garcia-espanyol-rivalry-rats/
+
+**Rangers' Mika Zibanejad records first hat trick in Winter Classic history**\
+`With 5 points in a 5-1 win over the Panthers, Zibanejad was awarded "The Cocoa Cup" after the game, given to the MVP at the Winter Classic.
+`\
+https://nytimes.com/athletic/6937067/2026/01/02/mika-zibanejad-rangers-hat-trick-winter-classic/
+
 **Rangers' Mika Zibanejad records first hat trick in Winter Classic history**\
 `With 5 points in a 5-1 win over the Panthers, Zibanejad was awarded "The Cocoa Cup" after the game, given to the MVP at the Winter Classic.
 `\
