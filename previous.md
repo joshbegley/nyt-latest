@@ -1,3 +1,7 @@
+**New York Giants' Theo Johnson appears at Knicks game despite being out with illness**\
+`Johnson appeared at a New York Knicks game hours after being ruled out of the Giants' season finale with an "illness."`\
+https://nytimes.com/athletic/6937838/2026/01/03/theo-johnson-new-york-giants-knicks-illness/
+
 **Trump Shares an Image of Maduro Blindfolded and Handcuffed**\
 `The Venezuelan president and his wife were flown out of Caracas by helicopter to the U.S.S. Iwo Jima, a warship taking them to New York.`\
 https://nytimes.com/live/2026/01/03/world/trump-united-states-strikes-venezuela/maduro-photo-trump
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6937634/2026/01/03/senators-steve-staios-linus-ullm
 **Kona Takahashi will return to Japan instead of signing with MLB team: Source**\
 `The 28-year-old is working on a multiyear contract with the Seibu Lions with the ability to opt out and become an international free agent.`\
 https://nytimes.com/athletic/6937826/2026/01/03/kona-takahashi-japan-return-free-agency-mlb/
-
-**Maps, Video and Photos: How Maduro’s Capture Unfolded**\
-`On Saturday, U.S. military forces carried out airstrikes in Venezuela and captured the country’s president, Nicolás Maduro. President Trump said he was being taken to New York to face drug and weapons charges.`\
-https://nytimes.com/interactive/2026/01/03/world/americas/maduro-capture-venezuela-strikes-maps.html
 

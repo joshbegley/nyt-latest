@@ -1,3 +1,7 @@
+**New York Giants' Theo Johnson appears at Knicks game despite being out with illness**\
+`Johnson appeared at a New York Knicks game hours after being ruled out of the Giants' season finale with an "illness."`\
+https://nytimes.com/athletic/6937838/2026/01/03/theo-johnson-new-york-giants-knicks-illness/
+
 **Trump Shares an Image of Maduro Blindfolded and Handcuffed**\
 `The Venezuelan president and his wife were flown out of Caracas by helicopter to the U.S.S. Iwo Jima, a warship taking them to New York.`\
 https://nytimes.com/live/2026/01/03/world/trump-united-states-strikes-venezuela/maduro-photo-trump
