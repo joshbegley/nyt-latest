@@ -1,3 +1,15 @@
+**Trump Long Wanted to ‘Take the Oil.’ He Says He’ll Do It in Venezuela.**\
+`The White House had pointed to drug trafficking and migration as reasons to crack down on Nicolás Maduro. But oil emerged as central to President Trump.`\
+https://nytimes.com/2026/01/03/us/politics/trump-venezuela-oil.html
+
+**WATCH: Why Jaxson Dart has what it takes to be NFL's next elite QB**\
+`We break down the improvements Dart has shown during his rookie season and discuss why the Giants still believe in their rookie QB`\
+https://nytimes.com/athletic/6938171/2026/01/03/jaxson-dart-film-breakdown-giants-nfl/
+
+**How Manhattan Federal Court Would Handle the Trial of a President**\
+`Nicolás Maduro, Venezuela’s president, could stand trial in Federal District Court in New York City, the site of other high-profile court proceedings.`\
+https://nytimes.com/live/2026/01/03/world/trump-united-states-strikes-venezuela/maduro-trial-nyc-sdny
+
 **Base Pairs**\
 `This Sunday puzzle by Gene Louise De Vera breaks free from the laboratory.`\
 https://nytimes.com/2026/01/03/crosswords/daily-puzzle-2026-01-04.html
