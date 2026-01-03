@@ -1,40 +1,36 @@
-**The U.S. Has Been Building Up Forces Off Venezuela for Months**\
-`The United States military’s Southern Command said in December that about 15,000 troops were in the Caribbean region.`\
-https://nytimes.com/2026/01/03/world/americas/us-military-buildup-caribbean-venezuela.html
+**Vaccines Are Helping Older People More Than We Knew**\
+`Many shots seem to have “off-target” benefits, such as lowering the risk of dementia, studies have found.`\
+https://nytimes.com/2026/01/03/health/vaccines-dementia-heart-elderly.html
 
-**How to watch Virginia vs. NC State men's basketball: Time, TV, streaming**\
-`Find out how to watch the Virginia Cavaliers play the NC State Wolfpack, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6937274/2026/01/03/virginia-vs-nc-state-stream-how-to-watch-jan-3/
+**Why Security Guarantees Are So Crucial, and Thorny, for Ukraine**\
+`While Kyiv has reported progress in negotiations, and is accelerating talks in the coming days, major questions remain unresolved about which countries will provide what kind of security for how long.`\
+https://nytimes.com/2026/01/03/world/europe/ukraine-russia-trump-peace-security-guarantees.html
 
-**Mamdani Acts on Vow to Protect Renters With Move Against a Big Landlord**\
-`Mayor Zohran Mamdani said New York City would intervene in the Pinnacle Group’s bankruptcy case. Tenants have long complained about living conditions in the company’s properties.`\
-https://nytimes.com/2026/01/03/nyregion/mamdani-pinnacle-housing.html
+**Why Haven’t Trump’s Tariffs Had a Bigger Impact?**\
+`Steep import taxes have raised prices and affected U.S. businesses, but not quite as much as expected. A new report offers some reasons.`\
+https://nytimes.com/2026/01/03/business/economy/trump-tariffs-prices-impact.html
 
-**Brighton coach Hurzeler wants more from Yankuba Minteh**\
-`Minteh has recorded one goal and four assist in 19 Premier League games this season.`\
-https://nytimes.com/athletic/6935942/2026/01/03/yankuba-minteh-brighton-hurzeler/
+**Julie Halston Sees Herself in Dorothy Parker**\
+`She stole the show in “And Just Like That …,” but theater is where the actress’s heart lies.`\
+https://nytimes.com/2026/01/03/theater/julie-halston-dorothy-parker.html
 
-**Whales Are in Danger in N.Y. Waterways: ‘Like Deer Crossing the Road’**\
-`As conservation efforts make the waters in the New York region more inviting for whales, increasing traffic from ships and boats has contributed to a climbing number of strandings.`\
-https://nytimes.com/2026/01/03/nyregion/new-york-whales-threat-waterways.html
+**Can Your Landlord Charge Extra for Building Amenities?**\
+`Fees for certain improvements and conveniences in rent-stabilized buildings can be allowed. But landlords can’t just charge for anything.`\
+https://nytimes.com/2026/01/03/realestate/landlords-extra-fees.html
 
-**How a ‘Nutcracker’ Ballerina Spends a Day of Business and Dance**\
-`Jenelle Manzi started a nutrition company while performing with New York City Ballet. Now she’s doing her makeup in cabs and taking Zoom meetings as she sews pointe shoes.`\
-https://nytimes.com/2026/01/03/nyregion/jenelle-manzi-nyc-ballet.html
+**The Year in Neanderthals**\
+`They drew with crayons, possibly fed on maggots and maybe even kissed us: Forty millenniums later, our ancient human cousins continued to make news.`\
+https://nytimes.com/2026/01/03/science/archaeology-neanderthals-genetics.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2026/01/03/crosswords/spelling-bee-forum.html
+**7 Numbers Shaping Retirement in 2026**\
+`As the new year begins, savings have hit unprecedented levels, but rising health care costs and growing poverty make retirement unaffordable for many.`\
+https://nytimes.com/2026/01/03/business/retirement-savings-2026.html
 
-**Here’s the latest.**\
-`By Anatoly Kurmanaev`\
-https://nytimes.com/live/2026/01/03/world/trump-united-states-strikes-venezuela/heres-the-latest
+**5 Workouts for Complete Beginners**\
+`Looking for a new fitness routine this January? Start here.`\
+https://nytimes.com/2026/01/03/well/move/beginner-workout-ideas.html
 
-**Live Updates: U.S. Captures Venezuelan Leader, Trump Says**\
-`President Trump announced that U.S. forces had carried out “a large scale strike against Venezuela” and were flying President Nicolás Maduro and his wife out of the country. The Trump administration had been building pressure on Mr. Maduro for months.`\
-https://nytimes.com/live/2026/01/03/world/trump-united-states-strikes-venezuela
-
-**Wake Forest's Jake Dickert welcomes Duke's mayo bath as MSU suffers in bowl loss**\
-`For the Bulldogs, Friday was one of the few times getting a full-body slathering of mayo would be better than what happened in a 43-29 loss.`\
-https://nytimes.com/athletic/6937134/2026/01/03/dukes-mayo-bowl-wake-forest-mississippi-state/
+**How to Make New Friends in the New Year**\
+`People’s ability to make new friends reflects the strength of the “friendship market” they are in.`\
+https://nytimes.com/2026/01/03/opinion/friendship-markets-new-friends.html
 
