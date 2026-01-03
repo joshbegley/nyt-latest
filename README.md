@@ -1,6 +1,18 @@
+**C.I.A. Source Inside Venezuelan Government Helped Track Maduro**\
+`The spy agency also used stealth drones to monitor the whereabouts of the Venezuelan leader.`\
+https://nytimes.com/2026/01/03/world/americas/cia-venezuela-maduro.html
+
+**Bondi says Maduro and his Wife to face a fresh indictment in Manhattan.**\
+`The Venezuela president was first charged in 2020 with narcoterrorism and other crimes. That indictment said Maduro and others “prioritized using cocaine as a weapon against America.”`\
+https://nytimes.com/live/2026/01/03/world/trump-united-states-strikes-venezuela/pam-bondi-maduro-indictment
+
+**The Pulse: Indiana makes a case**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6937087/2026/01/03/indiana-is-the-best-team-but-now-comes-the-hard-part/
+
 **How Tensions Escalated Between the U.S. and Venezuela**\
 `A U.S. pressure campaign has been building for years, through a series of indictments, sanctions and, recently, military actions.`\
-https://nytimes.com/2026/01/03/world/americas/how-tensions-escalated-between-the-us-and-venezuela.html
+https://nytimes.com/2026/01/03/world/americas/venezuela-us-tensions.html
 
 **Taylor Fritz's shock defeat to Sebástian Báez leaves Coco Gauff with work to do at United Cup**\
 `The world No. 3 had previously never lost a set to the Argentine, who is a fixture of the ATP top 50.`\
@@ -25,16 +37,4 @@ https://nytimes.com/2026/01/03/business/dealbook/2026-economy-business.html
 **Trump’s Attack on Venezuela Is Illegal and Unwise**\
 `We know that Mr. Trump’s warmongering violates the law.`\
 https://nytimes.com/2026/01/03/opinion/venezuela-attack-trump-us.html
-
-**What I’m hearing about the NFL coaching carousel and the changes coming in Vegas**\
-`The latest intel about the Giants, Titans, Bengals, Browns, Falcons, Commanders and other franchises that are out of the playoff picture.`\
-https://nytimes.com/athletic/6936695/2026/01/03/nfl-rumors-news-coach-carousel-black-monday-2026/
-
-**Inside Brayden Schenn's whirlwind: A private jet, welcoming a baby and a game winner**\
-`After the Blues' loss to the Avs, Schenn rushed home as his family welcomed a baby girl. In the next game, he scored the winning goal.`\
-https://nytimes.com/athletic/6936748/2026/01/03/brayden-schenn-blues-goal-baby/
-
-**How the Broncos have built one of NFL's best O-lines by 'coaching the mind'**\
-`Zach Strief played for Sean Payton in New Orleans for 12 years. Now, he's helped develop a stout O-line in Denver by establishing trust.`\
-https://nytimes.com/athletic/6934134/2026/01/03/broncos-o-line-zach-strief-coaching-mind/
 
