@@ -1,3 +1,7 @@
+**Amorim hints at behind scenes Man Utd rift over system**\
+`Amorim refused to elaborate on his comments about how United must spend “a lot of money” to play a “perfect” version of his 3-4-3 shape.`\
+https://nytimes.com/athletic/6937442/2026/01/03/ruben-amorim-manchester-united-system-tension/
+
 **Why I Cold-Called President Trump at 4:30 in the Morning**\
 `How did a New York Times reporter reach the president right after he announced that the United States had captured Venezuela’s leader?`\
 https://nytimes.com/2026/01/03/insider/trump-interview-venezuela-nyt-reporter.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6938026/2026/01/03/james-nnaji-baylor-debut-tcu-nba
 **Penguins stifle Red Wings in defensive clinic for fourth straight win**\
 `The Penguins allowed the fewest shots on goal in a road game in franchise history in a 4-1 win in Detroit. `\
 https://nytimes.com/athletic/6935790/2026/01/03/penguins-red-wings-analysis-win-streak/
-
-**Mamdani Called Trump to Criticize Venezuela Strikes**\
-`Mayor Zohran Mamdani of New York accused President Trump of violating international law. It was the first time he had criticized the president since their White House meeting.`\
-https://nytimes.com/2026/01/03/world/americas/mamdani-trump-venezuela-maduro.html
 

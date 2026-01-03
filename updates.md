@@ -1,3 +1,7 @@
+**Amorim hints at behind scenes Man Utd rift over system**\
+`Amorim refused to elaborate on his comments about how United must spend “a lot of money” to play a “perfect” version of his 3-4-3 shape.`\
+https://nytimes.com/athletic/6937442/2026/01/03/ruben-amorim-manchester-united-system-tension/
+
 **Why I Cold-Called President Trump at 4:30 in the Morning**\
 `How did a New York Times reporter reach the president right after he announced that the United States had captured Venezuela’s leader?`\
 https://nytimes.com/2026/01/03/insider/trump-interview-venezuela-nyt-reporter.html
