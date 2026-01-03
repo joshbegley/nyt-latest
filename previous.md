@@ -1,3 +1,7 @@
+**Kansas' Darryn Peterson stars in first half of return, but sits late as UCF beats Jayhawks**\
+`Peterson sat the final 10:55 as KU lost to UCF. Bill Self attributed it to a minutes restriction and Peterson's legs feeling differently.`\
+https://nytimes.com/athletic/6938183/2026/01/03/darryn-peterson-kansas-return-ucf-college-basketball/
+
 **A Pardon and a Prosecution in New York Show Trump’s Personal Geopolitics**\
 `The facts in the cases of Nicolás Maduro and Juan Orlando Hernández are strikingly similar. The men’s fates are not.`\
 https://nytimes.com/2026/01/03/world/americas/trump-maduro-juan-orlando-hernandez.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/03/nyregion/mamdani-mcguinness-boulevard-bike-lanes.
 **Sergio Ramos leading €400m bid to buy boyhood club Sevilla**\
 `Ramos was born in the Province of Seville and came through the club’s academy before signing for Real Madrid in 2005.`\
 https://nytimes.com/athletic/6937991/2026/01/03/sergio-ramos-sevilla-takeover-bid/
-
-**Who Is Cilia Flores, the Power Broker Captured Alongside Maduro?**\
-`Operating largely from the shadows, Ms. Flores, the first lady of Venezuela, helped consolidate Mr. Maduro’s rule while controlling the judiciary and amassing wealth through corruption, experts say.`\
-https://nytimes.com/2026/01/03/world/americas/cilia-flores-maduro-wife-venezuela.html
 
