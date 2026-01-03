@@ -1,3 +1,7 @@
+**2 Navy Service Members Accused of Entering Sham Marriages With Chinese Nationals**\
+`Federal prosecutors say two female service members are facing fraud charges after having accepted thousands of dollars for the marriages.`\
+https://nytimes.com/2026/01/02/us/politics/navy-sham-marriage-chinese-nationals.html
+
 **Corner Piece**\
 `Hannah Slovut-Einertson’s puzzle sets solvers on a cool, themeless pursuit.`\
 https://nytimes.com/2026/01/02/crosswords/daily-puzzle-2026-01-03.html
