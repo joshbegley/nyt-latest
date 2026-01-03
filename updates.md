@@ -1,3 +1,7 @@
+**'Women's tennis stands on its own': Iga Świątek says 'Battle of the Sexes' was unnecessary**\
+`The six-time Grand Slam champion and world No. 2 described mixed events as better ways of having men and women compete.`\
+https://nytimes.com/athletic/6937300/2026/01/03/tennis-iga-swiatek-battle-sexes-sabalenka-kyrgios/
+
 **Vaccines Are Helping Older People More Than We Knew**\
 `Many shots seem to have “off-target” benefits, such as lowering the risk of dementia, studies have found.`\
 https://nytimes.com/2026/01/03/health/vaccines-dementia-heart-elderly.html
