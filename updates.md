@@ -1,3 +1,7 @@
+**Nuno apologises to West Ham fans after ‘embarrassing’ performance against Wolves**\
+`West Ham are winless in their last nine league games for the first time since 2011.`\
+https://nytimes.com/athletic/6937783/2026/01/03/nuno-west-ham-wolves-reaction/
+
 **Nuno apologises to West Ham fans after 'embarrassing' performance against Wolves**\
 `West Ham are winless in their last nine league games for the first time since 2011.`\
 https://nytimes.com/athletic/6937783/2026/01/03/nuno-west-ham-wolves-reaction/
