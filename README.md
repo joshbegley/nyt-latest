@@ -1,3 +1,7 @@
+**Explosions Reported in Venezuela’s Capital**\
+`It was not immediately clear what caused the blasts. The United States has been building pressure on Nicolás Maduro, Venezuela’s authoritarian president, for months.`\
+https://nytimes.com/2026/01/03/world/americas/venezuela-caracas-explosions.html
+
 **Ex-MLB star Lenny Dykstra faces charges after drugs allegedly found in truck**\
 `Dykstra was arrested on suspicion of possessing narcotics and narcotic-related equipment while being a passenger in a truck, police said.`\
 https://nytimes.com/athletic/6936989/2026/01/03/lenny-dykstra-drugs-charges-mets-phillies/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6935545/2026/01/03/the-athletic-worst-games-attende
 **The anatomy of the Man Utd-Leeds rivalry - featuring three punches and 500 years of bile**\
 `The poison between the two Uniteds is real — as Andy Mitten discovered to his cost on a visit to Elland Road back in 1991`\
 https://nytimes.com/athletic/6931434/2026/01/03/manchester-united-leeds-united-rivalry-history/
-
-**Souleymane Coulibaly interview: Ivory Coast Under-17 star, Tottenham youth, legal disputes and non-League**\
-`The former Spurs youngster has packed a lot into his career and life - he is now playing in England's ninth tier`\
-https://nytimes.com/athletic/6891253/2026/01/03/souleymane-coulibaly-interview-spurs-ivory-coast/
 
