@@ -1,3 +1,7 @@
+**Rosenior acknowledges Chelsea links: 'If something happens, it happens'**\
+`Rosenior also described his 18 months with the Ligue 1 club as the “best months of my professional career."`\
+https://nytimes.com/athletic/6938060/2026/01/03/liam-rosenior-strasbourg-chelsea-latest/
+
 **Red Wings need more from their slumping top line as second half begins**\
 `Detroit's top line struggled at five-on-five in December, and those struggles found a new low in Saturday's 4-1 loss to the Penguins. `\
 https://nytimes.com/athletic/6937880/2026/01/03/red-wings-penguins-dylan-larkin-lucas-raymond/
