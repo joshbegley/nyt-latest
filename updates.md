@@ -9,6 +9,11 @@ https://nytimes.com/athletic/6937067/2026/01/02/mika-zibanejad-rangers-hat-trick
 https://nytimes.com/athletic/6937067/2026/01/02/mika-zibanejad-rangers-hat-trick-winter-classic/
 
 **Rangers' Mika Zibanejad records first hat trick in Winter Classic history**\
+`With five points in a 5-1 win over the Panthers, Zibanejad was awarded "The Cocoa Cup" postgame, given to the MVP at the Winter Classic.
+`\
+https://nytimes.com/athletic/6937067/2026/01/02/mika-zibanejad-rangers-hat-trick-winter-classic/
+
+**Rangers' Mika Zibanejad records first hat trick in Winter Classic history**\
 `The Rangers center recorded five points in a 5-1 New York win over the Florida Panthers, a record for outdoor games.`\
 https://nytimes.com/athletic/6937067/2026/01/02/mika-zibanejad-rangers-hat-trick-winter-classic/
 
