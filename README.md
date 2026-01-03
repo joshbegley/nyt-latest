@@ -1,3 +1,7 @@
+**When Life Gives You Limes …**\
+`Make my puckery salted margarita bars, a beach vacation in dessert form.`\
+https://nytimes.com/2026/01/03/dining/when-life-gives-you-limes.html
+
 **In South Florida, Venezuelans Revel in Maduro’s Capture**\
 `In Doral, Fla., where some 40 percent of people are of Venezuelan origin, music blared in celebration early on Saturday.`\
 https://nytimes.com/2026/01/03/world/americas/maduro-capture-florida-venezuelans-celebrations.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6937542/2026/01/03/duke-vs-florida-state-stream-how
 **Swiss Alpine skier Camille Rast honors fire victims after World Cup breakthrough**\
 `Rast, from the same canton in the Swiss Alps where the New Year's fire killed 40, said, "We race for (the victims) this weekend."`\
 https://nytimes.com/athletic/6937408/2026/01/03/camille-rast-switzerland-fire-world-cup-giant-slalom-win/
-
-**How to watch Tennessee vs. Arkansas men's basketball: Time, TV, streaming**\
-`Find out how to watch the Tennessee Volunteers play the Arkansas Razorbacks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6937530/2026/01/03/tennessee-vs-arkansas-stream-how-to-watch-jan-3/
 
