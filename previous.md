@@ -1,3 +1,7 @@
+**Lakers tip off 2026 by extending undefeated record in clutch-time games**\
+`Fueled by tight defense and some big 3s from non-shooters, the Lakers' pushed their record in clutch time to 11-0 this season.`\
+https://nytimes.com/athletic/6937243/2026/01/03/lakers-clutch-time-record-grizzlies/
+
 **United States Captures Maduro in Strikes on Venezuela, Trump Says**\
 `President Trump said the United States had captured Nicolás Maduro, the Venezuelan president, and were flying him and his wife out after a “large-scale” attack on the country.`\
 https://nytimes.com/video/world/americas/100000010622214/maduro-venezuela-us-strikes-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6937550/2026/01/03/canadiens-vs-blues-stream-how-to
 **How to watch Sabres vs. Blue Jackets: Time, TV, streaming**\
 `Find out how to watch the Buffalo Sabres play the Columbus Blue Jackets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6937548/2026/01/03/sabres-vs-blue-jackets-stream-how-to-watch-jan-3/
-
-**How to watch Lightning vs. Sharks: Time, TV, streaming**\
-`Find out how to watch the Tampa Bay Lightning play the San Jose Sharks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6937546/2026/01/03/lightning-vs-sharks-stream-how-to-watch-jan-3/
 
