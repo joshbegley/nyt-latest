@@ -1,3 +1,7 @@
+**When Life Gives You Limes …**\
+`Make my puckery salted margarita bars, a beach vacation in dessert form.`\
+https://nytimes.com/2026/01/03/dining/when-life-gives-you-limes.html
+
 **In South Florida, Venezuelans Revel in Maduro’s Capture**\
 `In Doral, Fla., where some 40 percent of people are of Venezuelan origin, music blared in celebration early on Saturday.`\
 https://nytimes.com/2026/01/03/world/americas/maduro-capture-florida-venezuelans-celebrations.html
