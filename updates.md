@@ -1,3 +1,7 @@
+**The Contradictions of the Venezuela Attack**\
+`“If you’re feeling contradictory about all of this, you’re not alone,” says the Times columnist Nicholas Kristof about the U.`\
+https://nytimes.com/video/opinion/100000010622258/the-contradictions-of-the-venezuela-attack.html
+
 **Notre Dame coach Micah Shrewsberry charges at official after devastating loss**\
 `On Saturday, the ACC issued a public reprimand with no disciplinary action.`\
 https://nytimes.com/athletic/6937626/2026/01/03/notre-dame-basketball-coach-micah-shrewsberry-cal-referees/
