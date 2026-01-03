@@ -1,3 +1,5 @@
+
+
 **Joe Burrow's sideline waffle is the latest surprising athletes' snack**\
 `Unique snacks are part of a long tradition of athletes experimenting with different refueling options during games.`\
 https://nytimes.com/athletic/6930813/2026/01/02/joe-burrow-waffle-athletes-snacks/
