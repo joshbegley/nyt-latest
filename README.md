@@ -15,7 +15,7 @@ https://nytimes.com/2026/01/03/opinion/venezuela-trump.html
 https://nytimes.com/2026/01/03/us/politics/asad-haider-dead.html
 
 **The Contradictions of the Venezuela Attack**\
-`“If you’re feeling contradictory about all of this, you’re not alone,” says Times columnist Nicholas Kristof about the U.`\
+`“If you’re feeling contradictory about all of this, you’re not alone,” says the Times columnist Nicholas Kristof about the U.`\
 https://nytimes.com/video/opinion/100000010622258/the-contradictions-of-the-venezuela-attack.html
 
 **How to watch Predators vs. Flames: Time, TV, streaming**\
