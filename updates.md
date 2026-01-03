@@ -1,3 +1,7 @@
+**Corner Piece**\
+`Hannah Slovut-Einertson’s puzzle sets solvers on a cool, themeless pursuit.`\
+https://nytimes.com/2026/01/02/crosswords/daily-puzzle-2026-01-03.html
+
 **The 1.4.25 Issue**\
 ``\
 https://nytimes.com/issue/magazine/2026/01/02/the-1425-issue
