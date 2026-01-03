@@ -1,3 +1,7 @@
+**Notre Dame coach Micah Shrewsberry charges at official after devastating loss**\
+`On Saturday, the ACC issued a public reprimand with no disciplinary action.`\
+https://nytimes.com/athletic/6937626/2026/01/03/notre-dame-basketball-coach-micah-shrewsberry-cal-referees/
+
 **Shock and Skepticism in World’s Capitals After U.S. Seizes Maduro**\
 `Several Latin American leaders responded with especial anger, while European leaders were more cautious. President Trump’s audacious raid drew support, too.`\
 https://nytimes.com/2026/01/03/world/americas/maduro-capture-venezuela-reaction-global.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6937723/2026/01/03/76ers-vs-knicks-stream-how-to-wa
 **How to watch Blackhawks vs. Capitals: Time, TV, streaming**\
 `Find out how to watch the Chicago Blackhawks play the Washington Capitals, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6937721/2026/01/03/blackhawks-vs-capitals-stream-how-to-watch-jan-3/
-
-**How to watch Maple Leafs vs. Islanders: Time, TV, streaming**\
-`Find out how to watch the Toronto Maple Leafs play the New York Islanders, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6937719/2026/01/03/maple-leafs-vs-islanders-stream-how-to-watch-jan-3/
 
