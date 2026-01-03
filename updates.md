@@ -1,3 +1,7 @@
+**Notre Dame coach Micah Shrewsberry charges at official after devastating loss**\
+`On Saturday, the ACC issued a public reprimand with no disciplinary action.`\
+https://nytimes.com/athletic/6937626/2026/01/03/notre-dame-basketball-coach-micah-shrewsberry-cal-referees/
+
 **Shock and Skepticism in World’s Capitals After U.S. Seizes Maduro**\
 `Several Latin American leaders responded with especial anger, while European leaders were more cautious. President Trump’s audacious raid drew support, too.`\
 https://nytimes.com/2026/01/03/world/americas/maduro-capture-venezuela-reaction-global.html
