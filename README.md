@@ -1,3 +1,7 @@
+**Harrowing Videos Show the Swiss Bar Fire’s Rapid Spread**\
+`Videos shared on social media and verified by The New York Times show how the blaze quickly tore through a popular bar during a New Year’s celebration in the Alps, killing at least 40 people and injuring more than a hundred others.`\
+https://nytimes.com/video/world/europe/100000010620971/switzerland-ski-resort-fire-videos.html
+
 **Stephen Schwartz Criticizes Kennedy Center, Saying He Won’t Host Gala**\
 `The Washington National Opera said the “Wicked” composer was scheduled to host its annual event at the center this spring.`\
 https://nytimes.com/2026/01/02/arts/stephen-schwartz-kennedy-center-opera-gala.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6936649/2026/01/02/austin-simmons-transfer-ole-miss
 **Your Antarctica Questions, Answered**\
 `Our reporter Raymond Zhong takes a first round of questions about the trip to Antarctica. First up: How can data gathered on the trip tell us how much time is left for the glaciers?`\
 https://nytimes.com/video/climate/100000010617323/your-antarctica-questions-answered.html
-
-**Parachutist gets tangled in field goal net at Armed Forces bowl**\
-`The parachutist was not seriously injured and walked off under his own power, a bowl spokesman said.`\
-https://nytimes.com/athletic/6936454/2026/01/02/armed-forces-bowl-parachutist-tangled/
 
