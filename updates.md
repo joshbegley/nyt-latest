@@ -1,3 +1,43 @@
+**Inside Brayden Schenn's whirlwind: A private jet, welcoming a baby and a game winner**\
+`After the Blues' loss to the Avs, Schenn rushed home as his family welcomed a baby girl. In the next game, he scored the winning goal.`\
+https://nytimes.com/athletic/6936748/2026/01/03/brayden-schenn-blues-goal-baby/
+
+**How the Broncos have built one of NFL's best O-lines by 'coaching the mind'**\
+`Zach Strief played for Sean Payton in New Orleans for 12 years. Now, he's helped develop a stout O-line in Denver by establishing trust.`\
+https://nytimes.com/athletic/6934134/2026/01/03/broncos-o-line-zach-strief-coaching-mind/
+
+**The Winnipeg Jets records debate: Gary Bettman says it's complicated. It shouldn't be**\
+`Sean McIndoe weighs on the records debate around the Winnipeg Jets and shows there's a pretty simple solution.`\
+https://nytimes.com/athletic/6932495/2026/01/03/winnipeg-jets-records/
+
+**Maple Leafs midseason report cards: Whose grades are ticking up?**\
+`We're now halfway through Toronto's 2025-26 season, and the Leafs still find themselves near the bottom of the Atlantic Division.`\
+https://nytimes.com/athletic/6935794/2026/01/03/maple-leafs-season-report-cards-grades/
+
+**Australia will not lack motivation in Sydney - they are playing for their futures**\
+`The fifth Test at the SCG may be a dead rubber with the series already won, but there is plenty for those in Australian ranks to play for `\
+https://nytimes.com/athletic/6935381/2026/01/03/australia-ashes-future-labuschagne-green-weatherald/
+
+**Clippers are catching up by slowing down but still have 'steps' to take**\
+`LA has slowed its pace even more and transformed into the NBA's best offense and best defense over the past two weeks.`\
+https://nytimes.com/athletic/6935376/2026/01/03/la-clippers-winning-streak-nba/
+
+**Why the Giants coaching search needs some AFC North help**\
+`Mike Tomlin, John Harbaugh or Kevin Stefanski could become available in the coming days, which might be the break the Giants have needed.`\
+https://nytimes.com/athletic/6936942/2026/01/03/giants-coach-tomlin-harbaugh-stefanski-afc-north/
+
+**What Bears quarterbacks coach J.T. Barrett has meant for Caleb Williams**\
+`Barrett might be better known for his accomplishments at Ohio State, but he's been integral to the Bears' QB success in 2025.`\
+https://nytimes.com/athletic/6936465/2026/01/03/bears-jt-barrett-caleb-williams/
+
+**En una entrevista telefónica, Trump celebró la captura de Maduro**\
+`En una llamada con The New York Times, el presidente Trump calificó de “brillante” la operación estadounidense en Venezuela, pero no se refirió a si había consultado al Congreso.`\
+https://nytimes.com/2026/01/03/espanol/america-latina/trump-captura-maduro.html
+
+**Ranking every Olympic hockey team's jerseys for Milan-Cortina 2026**\
+`A return to best-on-best hockey at the Olympics means heightened interest in the on-ice aesthetics of the 12 participating nations.`\
+https://nytimes.com/athletic/6936481/2026/01/03/olympic-hockey-jersey-rankings-2026-milan-cortina/
+
 **EE. UU. lleva meses reforzando sus fuerzas frente a las costas de Venezuela**\
 `El Comando Sur de Estados Unidos anunció en diciembre que había unos 15.000 soldados en la región del Caribe.`\
 https://nytimes.com/2026/01/03/espanol/america-latina/ee-uu-lleva-meses-reforzando-sus-fuerzas-frente-a-las-costas-de-venezuela.html
