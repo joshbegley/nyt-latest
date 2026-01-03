@@ -1,3 +1,7 @@
+**Live Updates: Explosions Are Reported in Venezuela’s Capital**\
+`It was not immediately clear what caused the blasts. The United States has been building pressure on Nicolás Maduro, Venezuela’s authoritarian president, for months.`\
+https://nytimes.com/live/2026/01/03/world/trump-united-states-strikes-venezuela
+
 **Here’s the latest.**\
 `By Anatoly Kurmanaev`\
 https://nytimes.com/live/2026/01/03/world/trump-united-states-strikes-venezuela/heres-the-latest
