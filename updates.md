@@ -1,3 +1,7 @@
+**A Pardon and a Prosecution in New York Show Trump’s Personal Geopolitics**\
+`The facts in the cases of Nicolás Maduro and Juan Orlando Hernández are strikingly similar. The men’s fates are not.`\
+https://nytimes.com/2026/01/03/world/americas/trump-maduro-juan-orlando-hernandez.html
+
 **What Travelers Need to Know About Canceled Flights in the Caribbean**\
 `The F.A.A. grounded U.S. flights in the region because of the Trump administration’s military action in Venezuela, stranding travelers and disrupting vacations.`\
 https://nytimes.com/2026/01/03/travel/caribbean-flight-cancellations-trump-venezuela.html

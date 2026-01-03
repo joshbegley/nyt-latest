@@ -1,3 +1,7 @@
+**A Pardon and a Prosecution in New York Show Trump’s Personal Geopolitics**\
+`The facts in the cases of Nicolás Maduro and Juan Orlando Hernández are strikingly similar. The men’s fates are not.`\
+https://nytimes.com/2026/01/03/world/americas/trump-maduro-juan-orlando-hernandez.html
+
 **What Travelers Need to Know About Canceled Flights in the Caribbean**\
 `The F.A.A. grounded U.S. flights in the region because of the Trump administration’s military action in Venezuela, stranding travelers and disrupting vacations.`\
 https://nytimes.com/2026/01/03/travel/caribbean-flight-cancellations-trump-venezuela.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6937991/2026/01/03/sergio-ramos-sevilla-takeover-bi
 **Who Is Cilia Flores, the Power Broker Captured Alongside Maduro?**\
 `Operating largely from the shadows, Ms. Flores, the first lady of Venezuela, helped consolidate Mr. Maduro’s rule while controlling the judiciary and amassing wealth through corruption, experts say.`\
 https://nytimes.com/2026/01/03/world/americas/cilia-flores-maduro-wife-venezuela.html
-
-**QB Drew Mestemaker following Eric Morris to Oklahoma State: Source**\
-`Mestamaker will be tasked with jumpstarting an Oklahoma State offense that was among the worst in the nation in 2025.`\
-https://nytimes.com/athletic/6933549/2026/01/03/drew-mestemaker-oklahoma-state-transfer-quarterback/
 
