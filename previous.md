@@ -1,3 +1,19 @@
+**How Kazakhstan Aims to Tap More Oil Riches Below Its Grassy Plains**\
+`After spending nearly $50 billion to expand the country’s Tengiz oil field, Chevron and its partners encounter more uncertainty.`\
+https://nytimes.com/2026/01/03/business/chevron-kazakhstan-oil.html
+
+**Corrections: Jan. 3, 2026**\
+`Corrections that appeared in print on Saturday, Jan. 3, 2026.`\
+https://nytimes.com/2026/01/03/pageoneplus/corrections-jan-3-2026.html
+
+**‘Chinese Peptides’ Are the Latest Biohacking Trend in the Tech World**\
+`The gray-market drugs flooding Silicon Valley reveal a community that believes it can move faster than the F.D.A.`\
+https://nytimes.com/2026/01/03/business/chinese-peptides-silicon-valley.html
+
+**Connections: Sports Edition Coach: Hints for Jan. 3, 2026**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6936973/2026/01/03/connections-sports-edition-hints-for-jan-3-2026/
+
 **Rangers' Mika Zibanejad records first hat trick in Winter Classic history**\
 `With five points in a 5-1 win over the Panthers, Zibanejad was awarded "The Cocoa Cup" postgame, given to the MVP at the Winter Classic.
 `\
@@ -22,20 +38,4 @@ https://nytimes.com/athletic/6937024/2026/01/02/giannis-bucks-hornets-kon-knuepp
 **Federal Appeals Court Says California Open-Carry Ban Is Unconstitutional**\
 `A Ninth Circuit panel said the ban ran afoul of a 2022 Supreme Court ruling that required courts to evaluate gun laws based on the country’s “historical tradition of firearm regulation.”`\
 https://nytimes.com/2026/01/02/us/ninth-circuit-california-gun-law.html
-
-**2 Navy Service Members Accused of Entering Sham Marriages With Chinese Nationals**\
-`Federal prosecutors say two female service members are facing fraud charges after having accepted thousands of dollars for the marriages.`\
-https://nytimes.com/2026/01/02/us/politics/navy-sham-marriage-chinese-nationals.html
-
-**Corner Piece**\
-`Hannah Slovut-Einertson’s puzzle sets solvers on a cool, themeless pursuit.`\
-https://nytimes.com/2026/01/02/crosswords/daily-puzzle-2026-01-03.html
-
-**The 1.4.25 Issue**\
-``\
-https://nytimes.com/issue/magazine/2026/01/02/the-1425-issue
-
-**Mamdani Creates Office to Encourage Public Participation in Government**\
-`Mayor Zohran Mamdani of New York said he hoped to reach communities that had been left out of the process.`\
-https://nytimes.com/2026/01/02/nyregion/mamdani-appointments.html
 

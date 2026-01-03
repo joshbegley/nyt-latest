@@ -1,3 +1,24 @@
+**How Kazakhstan Aims to Tap More Oil Riches Below Its Grassy Plains**\
+`After spending nearly $50 billion to expand the country’s Tengiz oil field, Chevron and its partners encounter more uncertainty.`\
+https://nytimes.com/2026/01/03/business/chevron-kazakhstan-oil.html
+
+**Corrections: Jan. 3, 2026**\
+`Corrections that appeared in print on Saturday, Jan. 3, 2026.`\
+https://nytimes.com/2026/01/03/pageoneplus/corrections-jan-3-2026.html
+
+**‘Chinese Peptides’ Are the Latest Biohacking Trend in the Tech World**\
+`The gray-market drugs flooding Silicon Valley reveal a community that believes it can move faster than the F.D.A.`\
+https://nytimes.com/2026/01/03/business/chinese-peptides-silicon-valley.html
+
+**Connections: Sports Edition Coach: Hints for Jan. 3, 2026**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6936973/2026/01/03/connections-sports-edition-hints-for-jan-3-2026/
+
+**Rangers' Mika Zibanejad records first hat trick in Winter Classic history**\
+`With five points in a 5-1 win over the Panthers, Zibanejad was awarded "The Cocoa Cup" postgame, given to the MVP at the Winter Classic.
+`\
+https://nytimes.com/athletic/6937067/2026/01/02/mika-zibanejad-rangers-hat-trick-winter-classic/
+
 **Rangers' Mika Zibanejad records first hat trick in Winter Classic history**\
 `With five points in a 5-1 win over the Panthers, Zibanejad was awarded "The Cocoa Cup" postgame, given to the MVP at the Winter Classic.
 `\

@@ -1,3 +1,11 @@
+**The anatomy of the Man Utd-Leeds rivalry - featuring three punches and 500 years of bile**\
+`The poison between the two Uniteds is real — as Andy Mitten discovered to his cost on a visit to Elland Road back in 1991`\
+https://nytimes.com/athletic/6931434/2026/01/03/manchester-united-leeds-united-rivalry-history/
+
+**Souleymane Coulibaly interview: Ivory Coast Under-17 star, Tottenham youth, legal disputes and non-League**\
+`The former Spurs youngster has packed a lot into his career and life - he is now playing in England's ninth tier`\
+https://nytimes.com/athletic/6891253/2026/01/03/souleymane-coulibaly-interview-spurs-ivory-coast/
+
 **How Kazakhstan Aims to Tap More Oil Riches Below Its Grassy Plains**\
 `After spending nearly $50 billion to expand the country’s Tengiz oil field, Chevron and its partners encounter more uncertainty.`\
 https://nytimes.com/2026/01/03/business/chevron-kazakhstan-oil.html
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6937002/2026/01/02/casey-dawson-olympics-usa-speed-
 **World Juniors quarterfinals: USA bounced, Canada wins big, Swiss honor fire victims**\
 `The World Juniors semifinals matchups in Minnesota on Sunday are Sweden vs. Finland and Canada vs. Czechia. `\
 https://nytimes.com/athletic/6935543/2026/01/02/world-juniors-2026-canada-usa-quarterfinals/
-
-**Giannis' late slam makes history, helps Bucks avoid loss to Hornets**\
-`The two-time NBA MVP now has the most 30/10/5 games in league history.`\
-https://nytimes.com/athletic/6937024/2026/01/02/giannis-bucks-hornets-kon-knueppel/
-
-**Federal Appeals Court Says California Open-Carry Ban Is Unconstitutional**\
-`A Ninth Circuit panel said the ban ran afoul of a 2022 Supreme Court ruling that required courts to evaluate gun laws based on the country’s “historical tradition of firearm regulation.”`\
-https://nytimes.com/2026/01/02/us/ninth-circuit-california-gun-law.html
 
