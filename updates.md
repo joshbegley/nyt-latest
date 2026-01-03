@@ -1,3 +1,11 @@
+**Who Is Cilia Flores, the Power Broker Captured Alongside Maduro?**\
+`Operating largely from the shadows, Ms. Flores, the first lady of Venezuela, helped consolidate Mr. Maduro’s rule while controlling the judiciary and amassing wealth through corruption, experts say.`\
+https://nytimes.com/2026/01/03/world/americas/cilia-flores-maduro-wife-venezuela.html
+
+**Quarterback Drew Mestemaker following Eric Morris from North Texas to Oklahoma State**\
+`Mestamaker will be tasked with jumpstarting an Oklahoma State offense that was among the worst in the nation in 2025.`\
+https://nytimes.com/athletic/6933549/2026/01/03/drew-mestemaker-oklahoma-state-transfer-quarterback/
+
 **Amorim hints at behind scenes Man Utd rift over system**\
 `Amorim refused to elaborate on his comments about how United must spend “a lot of money” to play a “perfect” version of his 3-4-3 shape.`\
 https://nytimes.com/athletic/6937442/2026/01/03/ruben-amorim-manchester-united-system-tension/
