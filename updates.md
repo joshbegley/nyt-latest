@@ -1,3 +1,15 @@
+**Here’s the latest.**\
+`By Anatoly Kurmanaev`\
+https://nytimes.com/live/2026/01/03/world/trump-united-states-strikes-venezuela/heres-the-latest
+
+**Live Updates: Explosions Reported in Venezuela’s Capital**\
+`It was not immediately clear what caused the blasts. The United States has been building pressure on Nicolás Maduro, Venezuela’s authoritarian president, for months.`\
+https://nytimes.com/live/2026/01/03/world/trump-united-states-strikes-venezuela
+
+**Wake Forest's Jake Dickert welcomes Duke's mayo bath as MSU suffers in bowl loss**\
+`For the Bulldogs, Friday was one of the few times getting a full-body slathering of mayo would be better than what happened in a 43-29 loss.`\
+https://nytimes.com/athletic/6937134/2026/01/03/dukes-mayo-bowl-wake-forest-mississippi-state/
+
 **Explosions Reported in Venezuela’s Capital**\
 `It was not immediately clear what caused the blasts. The United States has been building pressure on Nicolás Maduro, Venezuela’s authoritarian president, for months.`\
 https://nytimes.com/2026/01/03/world/americas/venezuela-caracas-explosions.html

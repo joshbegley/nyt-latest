@@ -1,3 +1,15 @@
+**Here’s the latest.**\
+`By Anatoly Kurmanaev`\
+https://nytimes.com/live/2026/01/03/world/trump-united-states-strikes-venezuela/heres-the-latest
+
+**Live Updates: Explosions Reported in Venezuela’s Capital**\
+`It was not immediately clear what caused the blasts. The United States has been building pressure on Nicolás Maduro, Venezuela’s authoritarian president, for months.`\
+https://nytimes.com/live/2026/01/03/world/trump-united-states-strikes-venezuela
+
+**Wake Forest's Jake Dickert welcomes Duke's mayo bath as MSU suffers in bowl loss**\
+`For the Bulldogs, Friday was one of the few times getting a full-body slathering of mayo would be better than what happened in a 43-29 loss.`\
+https://nytimes.com/athletic/6937134/2026/01/03/dukes-mayo-bowl-wake-forest-mississippi-state/
+
 **Explosions Reported in Venezuela’s Capital**\
 `It was not immediately clear what caused the blasts. The United States has been building pressure on Nicolás Maduro, Venezuela’s authoritarian president, for months.`\
 https://nytimes.com/2026/01/03/world/americas/venezuela-caracas-explosions.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6937093/2026/01/03/nebraska-basketball-perfect-star
 **Crossing Barcelona's city divide: Joan Garcia, rats and fury at Espanyol**\
 `The 24-year-old goalkeeper returns to his old home ground for the first time since joining Barca last summer`\
 https://nytimes.com/athletic/6935730/2026/01/03/barcelona-joan-garcia-espanyol-rivalry-rats/
-
-**Forget managers – it's the muddled strategy of Chelsea's owners that is the problem**\
-`After Enzo Maresca became the fifth Chelsea manager to leave since 2022, maybe it's time to scrutinise those appointing them`\
-https://nytimes.com/athletic/6935334/2026/01/03/forget-managers-its-the-muddled-strategy-of-chelseas-owners-that-is-the-problem/
-
-**'My pie looked more like scoring': Our writers pick the worst games they have ever attended**\
-`After the horror of Brentford 0-0 Tottenham, our experts select their personal lowlights from a lifetime watching football`\
-https://nytimes.com/athletic/6935545/2026/01/03/the-athletic-worst-games-attended/
-
-**The anatomy of the Man Utd-Leeds rivalry - featuring three punches and 500 years of bile**\
-`The poison between the two Uniteds is real — as Andy Mitten discovered to his cost on a visit to Elland Road back in 1991`\
-https://nytimes.com/athletic/6931434/2026/01/03/manchester-united-leeds-united-rivalry-history/
 
