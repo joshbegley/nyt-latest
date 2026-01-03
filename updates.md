@@ -1,3 +1,7 @@
+**Live Updates: U.S. Military Strikes Caracas, Venezuela Says**\
+`A statement attributed to President Nicolás Maduro denounced an “imperialist attack” after explosions were heard at a military base in the Venezuelan capital. The Trump administration has been building pressure on Mr. Maduro for months.`\
+https://nytimes.com/live/2026/01/03/world/trump-united-states-strikes-venezuela
+
 **How to watch Virginia vs. NC State men's basketball: Time, TV, streaming**\
 `Find out how to watch the Virginia Cavaliers play the NC State Wolfpack, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6937274/2026/01/03/virginia-vs-nc-state-stream-how-to-watch-jan-3/
