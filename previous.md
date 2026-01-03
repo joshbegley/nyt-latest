@@ -1,3 +1,7 @@
+**Arch's roommate calls transfer 'out of my control' as Texas seeks WR upgrades**\
+`Texas finished 10-3 in Arch Manning’s first season as the starting quarterback, a disappointment considering its preseason No. 1 ranking.`\
+https://nytimes.com/athletic/6938084/2026/01/03/parker-livingstone-transfer-portal-texas-receivers/
+
 **Rosenior acknowledges Chelsea links: 'If something happens, it happens'**\
 `Rosenior also described his 18 months with the Ligue 1 club as the “best months of my professional career."`\
 https://nytimes.com/athletic/6938060/2026/01/03/liam-rosenior-strasbourg-chelsea-latest/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6937864/2026/01/03/jalen-duren-tobias-harris-injuri
 **Delcy Rodríguez, Venezuela’s new leader, boasts leftist credentials**\
 `The interim leader is known for hewing to left-wing ideals, facing sanctions by the U.S. and European Union and building bridges with Venezuela’s business community.`\
 https://nytimes.com/2026/01/03/world/americas/delcy-rodriguez-venezuela-politics.html
-
-**Trump administration declines to back Venezuela’s opposition leader.**\
-`By Julie Turkewitz and Genevieve Glatsky`\
-https://nytimes.com/live/2026/01/03/world/trump-united-states-strikes-venezuela/trump-administration-opposition-leader
 

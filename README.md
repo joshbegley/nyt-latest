@@ -1,3 +1,11 @@
+**18-year-old Luke Littler wins World Darts Championship for second year in a row**\
+`Littler comfortably defeated Dutchman Gian van Veen 7-1 in the final on Saturday.`\
+https://nytimes.com/athletic/6937383/2026/01/03/luke-littler-world-darts-championship-2026/
+
+**How Democrats are hitting Trump over his ouster of Maduro.**\
+`Some of the nation’s most influential Democrats condemned the move as unjustified and argued that the president was trying to distract from his domestic challenges.`\
+https://nytimes.com/live/2026/01/03/world/trump-united-states-strikes-venezuela/democrats-trump-venezuela-maduro
+
 **Arch's roommate calls transfer 'out of my control' as Texas seeks WR upgrades**\
 `Texas finished 10-3 in Arch Manning’s first season as the starting quarterback, a disappointment considering its preseason No. 1 ranking.`\
 https://nytimes.com/athletic/6938084/2026/01/03/parker-livingstone-transfer-portal-texas-receivers/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/03/world/americas/mamdani-trump-venezuela-maduro.htm
 **Dabo Swinney hires Chad Morris to return as Clemson's offensive coordinator: Reports**\
 `In Morris' first run as Clemson's OC, the Tigers set several offensive records in 2012.`\
 https://nytimes.com/athletic/6937942/2026/01/03/dabo-swinney-chad-morris-clemson-offensive-coordinator/
-
-**Jalen Duren, Tobias Harris out vs. Cavaliers amid Pistons' injury woes**\
-`Their absences will temporarily thin the team's frontcourt depth, which means more minutes for players such as Isaiah Stewart and Paul Reed.`\
-https://nytimes.com/athletic/6937864/2026/01/03/jalen-duren-tobias-harris-injuries-pistons-cavaliers/
-
-**Delcy Rodríguez, Venezuela’s new leader, boasts leftist credentials**\
-`The interim leader is known for hewing to left-wing ideals, facing sanctions by the U.S. and European Union and building bridges with Venezuela’s business community.`\
-https://nytimes.com/2026/01/03/world/americas/delcy-rodriguez-venezuela-politics.html
 
