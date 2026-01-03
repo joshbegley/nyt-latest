@@ -1,3 +1,7 @@
+**Rangers' Mika Zibanejad records first hat trick in Winter Classic history**\
+`The Rangers center recorded five points in a 5-1 New York win over the Florida Panthers, a record for outdoor games.`\
+https://nytimes.com/athletic/6937067/2026/01/02/mika-zibanejad-rangers-hat-trick-winter-classic/
+
 **Diane Crump, First Woman to Ride in Kentucky Derby, Dies at 77**\
 `She was the first professional female jockey to compete at a track in the United States where betting was legal, and notched up 228 career victories.`\
 https://nytimes.com/2026/01/02/obituaries/diane-crump-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/issue/magazine/2026/01/02/the-1425-issue
 **Mamdani Creates Office to Encourage Public Participation in Government**\
 `Mayor Zohran Mamdani of New York said he hoped to reach communities that had been left out of the process.`\
 https://nytimes.com/2026/01/02/nyregion/mamdani-appointments.html
-
-**Quote of the Day: Many People Gambling on Health Premiums for Obamacare Double**\
-`Quotation of the Day for Saturday, January 3, 2026.`\
-https://nytimes.com/2026/01/02/pageoneplus/quote-of-the-day-many-people-gambling-on-health-premiums-for-obamacare-double.html
 

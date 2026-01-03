@@ -1,3 +1,7 @@
+**Rangers' Mika Zibanejad records first hat trick in Winter Classic history**\
+`The Rangers center recorded five points in a 5-1 New York win over the Florida Panthers, a record for outdoor games.`\
+https://nytimes.com/athletic/6937067/2026/01/02/mika-zibanejad-rangers-hat-trick-winter-classic/
+
 **Diane Crump, First Woman to Ride in Kentucky Derby, Dies at 77**\
 `She was the first professional female jockey to compete at a track in the United States where betting was legal, and notched up 228 career victories.`\
 https://nytimes.com/2026/01/02/obituaries/diane-crump-dead.html
