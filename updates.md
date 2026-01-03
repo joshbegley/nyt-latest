@@ -1,3 +1,7 @@
+**Maps, Video and Photos: How Maduro’s Capture Unfolded**\
+`On Saturday, U.S. military forces carried out airstrikes in Venezuela and captured the country’s president, Nicolás Maduro. President Trump said he was being taken to New York to face drug and weapons charges.`\
+https://nytimes.com/interactive/2026/01/03/world/americas/maduro-capture-venezuela-strikes-maps.html
+
 **Nuno apologises to West Ham fans after ‘embarrassing’ performance against Wolves**\
 `West Ham are winless in their last nine league games for the first time since 2011.`\
 https://nytimes.com/athletic/6937783/2026/01/03/nuno-west-ham-wolves-reaction/

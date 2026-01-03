@@ -1,3 +1,7 @@
+**Maps, Video and Photos: How Maduro’s Capture Unfolded**\
+`On Saturday, U.S. military forces carried out airstrikes in Venezuela and captured the country’s president, Nicolás Maduro. President Trump said he was being taken to New York to face drug and weapons charges.`\
+https://nytimes.com/interactive/2026/01/03/world/americas/maduro-capture-venezuela-strikes-maps.html
+
 **Nuno apologises to West Ham fans after ‘embarrassing’ performance against Wolves**\
 `West Ham are winless in their last nine league games for the first time since 2011.`\
 https://nytimes.com/athletic/6937783/2026/01/03/nuno-west-ham-wolves-reaction/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/03/opinion/venezuela-trump.html
 **Asad Haider, Leftist Critic of Identity Politics, Dies at 38**\
 `In “Mistaken Identity: Race and Class in the Age of Trump,” he argued that focusing on identity obscured a more fundamental injustice: economic inequality.`\
 https://nytimes.com/2026/01/03/us/politics/asad-haider-dead.html
-
-**The Contradictions of the Venezuela Attack**\
-`“If you’re feeling contradictory about all of this, you’re not alone,” says the Times columnist Nicholas Kristof about the U.`\
-https://nytimes.com/video/opinion/100000010622258/the-contradictions-of-the-venezuela-attack.html
 
