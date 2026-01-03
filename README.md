@@ -1,3 +1,7 @@
+**How Tensions Escalated Between the U.S. and Venezuela**\
+`A U.S. pressure campaign has been building for years, through a series of indictments, sanctions and, recently, military actions.`\
+https://nytimes.com/2026/01/03/world/americas/how-tensions-escalated-between-the-us-and-venezuela.html
+
 **Taylor Fritz's shock defeat to Sebástian Báez leaves Coco Gauff with work to do at United Cup**\
 `The world No. 3 had previously never lost a set to the Argentine, who is a fixture of the ATP top 50.`\
 https://nytimes.com/athletic/6937413/2026/01/03/taylor-fritz-united-cup-sebastian-baez-result-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6936748/2026/01/03/brayden-schenn-blues-goal-baby/
 **How the Broncos have built one of NFL's best O-lines by 'coaching the mind'**\
 `Zach Strief played for Sean Payton in New Orleans for 12 years. Now, he's helped develop a stout O-line in Denver by establishing trust.`\
 https://nytimes.com/athletic/6934134/2026/01/03/broncos-o-line-zach-strief-coaching-mind/
-
-**The Winnipeg Jets records debate: Gary Bettman says it's complicated. It shouldn't be**\
-`Sean McIndoe weighs on the records debate around the Winnipeg Jets and shows there's a pretty simple solution.`\
-https://nytimes.com/athletic/6932495/2026/01/03/winnipeg-jets-records/
 
