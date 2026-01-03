@@ -1,6 +1,6 @@
 **In South Florida, Venezuelans Revel in Maduro’s Capture**\
 `In Doral, Fla., where some 40 percent of people are of Venezuelan origin, music blared in celebration early on Saturday.`\
-https://nytimes.com/2026/01/03/world/americas/in-south-florida-venezuelans-revel-in-maduros-capture.html
+https://nytimes.com/2026/01/03/world/americas/maduro-capture-florida-venezuelans-celebrations.html
 
 **How to watch Mammoth vs. Devils: Time, TV, streaming**\
 `Find out how to watch the Utah Mammoth play the New Jersey Devils, with time, TV channel and streaming information.`\

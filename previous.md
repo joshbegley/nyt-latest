@@ -1,3 +1,23 @@
+**In South Florida, Venezuelans Revel in Maduro’s Capture**\
+`In Doral, Fla., where some 40 percent of people are of Venezuelan origin, music blared in celebration early on Saturday.`\
+https://nytimes.com/2026/01/03/world/americas/in-south-florida-venezuelans-revel-in-maduros-capture.html
+
+**How to watch Mammoth vs. Devils: Time, TV, streaming**\
+`Find out how to watch the Utah Mammoth play the New Jersey Devils, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6937554/2026/01/03/mammoth-vs-devils-stream-how-to-watch-jan-3/
+
+**How to watch Timberwolves vs. Heat: Time, TV, streaming**\
+`Find out how to watch the Minnesota Timberwolves play the Miami Heat, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6937553/2026/01/03/timberwolves-vs-heat-stream-how-to-watch-jan-3/
+
+**How to watch Canadiens vs. Blues: Time, TV, streaming**\
+`Find out how to watch the Montreal Canadiens play the St. Louis Blues, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6937550/2026/01/03/canadiens-vs-blues-stream-how-to-watch-jan-3/
+
+**How to watch Sabres vs. Blue Jackets: Time, TV, streaming**\
+`Find out how to watch the Buffalo Sabres play the Columbus Blue Jackets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6937548/2026/01/03/sabres-vs-blue-jackets-stream-how-to-watch-jan-3/
+
 **How to watch Lightning vs. Sharks: Time, TV, streaming**\
 `Find out how to watch the Tampa Bay Lightning play the San Jose Sharks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6937546/2026/01/03/lightning-vs-sharks-stream-how-to-watch-jan-3/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6937408/2026/01/03/camille-rast-switzerland-fire-wo
 **How to watch Tennessee vs. Arkansas men's basketball: Time, TV, streaming**\
 `Find out how to watch the Tennessee Volunteers play the Arkansas Razorbacks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6937530/2026/01/03/tennessee-vs-arkansas-stream-how-to-watch-jan-3/
-
-**How to watch Arizona vs. Utah men's basketball: Time, TV, streaming**\
-`Find out how to watch the Arizona Wildcats play the Utah Utes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6937516/2026/01/03/arizona-vs-utah-stream-how-to-watch-jan-3/
-
-**How to watch North Carolina vs. SMU men's basketball: Time, TV, streaming**\
-`Find out how to watch the North Carolina Tar Heels play the SMU Mustangs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6937510/2026/01/03/north-carolina-vs-smu-stream-how-to-watch-jan-3/
-
-**C.I.A. Source Inside Venezuelan Government Helped Track Maduro**\
-`The spy agency also used stealth drones to monitor the whereabouts of the Venezuelan leader.`\
-https://nytimes.com/2026/01/03/world/americas/cia-venezuela-maduro.html
-
-**Bondi says Maduro and his wife to face a fresh indictment in Manhattan.**\
-`The Venezuela president was first charged in 2020 with narcoterrorism and other crimes. That indictment said Maduro and others “prioritized using cocaine as a weapon against America.”`\
-https://nytimes.com/live/2026/01/03/world/trump-united-states-strikes-venezuela/pam-bondi-maduro-indictment
-
-**The Pulse: Indiana makes a case**\
-`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
-https://nytimes.com/athletic/6937087/2026/01/03/indiana-is-the-best-team-but-now-comes-the-hard-part/
 
