@@ -27,7 +27,7 @@ https://nytimes.com/2026/01/03/crosswords/spelling-bee-forum.html
 https://nytimes.com/live/2026/01/03/world/trump-united-states-strikes-venezuela/heres-the-latest
 
 **Live Updates: U.S. Military Strikes Caracas, Venezuela Says**\
-`President Nicolás Maduro denounced what he called an “imperialist attack” after explosions were heard at a military base in the Venezuelan capital. The Trump administration has been building pressure on Mr. Maduro for months.`\
+`A statement attributed to President Nicolás Maduro denounced an “imperialist attack” after explosions were heard at a military base in the Venezuelan capital. The Trump administration has been building pressure on Mr. Maduro for months.`\
 https://nytimes.com/live/2026/01/03/world/trump-united-states-strikes-venezuela
 
 **Wake Forest's Jake Dickert welcomes Duke's mayo bath as MSU suffers in bowl loss**\
