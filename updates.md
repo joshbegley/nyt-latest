@@ -1,3 +1,7 @@
+**Live Updates: U.S. Captures Venezuelan Leader, Trump Says**\
+`President Trump announced that U.S. forces had carried out “a large scale strike against Venezuela” and were flying President Nicolás Maduro and his wife out of the country. The Trump administration had been building pressure on Mr. Maduro for months.`\
+https://nytimes.com/live/2026/01/03/world/trump-united-states-strikes-venezuela
+
 **The U.S. Has Been Building Up Forces Off Venezuela for Months**\
 `The United States military’s Southern Command said in December that about 15,000 troops were in the Caribbean region.`\
 https://nytimes.com/2026/01/03/world/americas/us-military-buildup-caribbean-venezuela.html
