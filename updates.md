@@ -1,3 +1,7 @@
+**Ex-MLB star Lenny Dykstra faces charges after drugs allegedly found in truck**\
+`Dykstra was arrested on suspicion of possessing narcotics and narcotic-related equipment while being a passenger in a truck, police said.`\
+https://nytimes.com/athletic/6936989/2026/01/03/lenny-dykstra-drugs-charges-mets-phillies/
+
 **The New York Times in Print for Saturday, Jan. 3, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/01/03/todays-new-york-times
