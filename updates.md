@@ -1,3 +1,7 @@
+**EE. UU. lleva meses reforzando sus fuerzas frente a las costas de Venezuela**\
+`El Comando Sur de Estados Unidos anunció en diciembre que había unos 15.000 soldados en la región del Caribe.`\
+https://nytimes.com/2026/01/03/espanol/america-latina/ee-uu-lleva-meses-reforzando-sus-fuerzas-frente-a-las-costas-de-venezuela.html
+
 **An Operation in Venezuela**\
 `President Trump announced that U.S. forces had captured Venezuela’s president, Nicolás Maduro, following a “large-scale attack.”`\
 https://nytimes.com/2026/01/03/briefing/an-operation-in-venezuela.html

@@ -6,6 +6,10 @@ https://nytimes.com/2026/01/03/briefing/an-operation-in-venezuela.html
 `Hughes had four assists on Friday night, setting a new mark for Wild defensemen in his 10th game with the team.`\
 https://nytimes.com/athletic/6937057/2026/01/03/wild-ducks-quinn-hughes-takeaways/
 
+**EE. UU. lleva meses reforzando sus fuerzas frente a las costas de Venezuela**\
+`El Comando Sur de Estados Unidos anunció en diciembre que había unos 15.000 soldados en la región del Caribe.`\
+https://nytimes.com/2026/01/03/espanol/america-latina/ee-uu-lleva-meses-reforzando-sus-fuerzas-frente-a-las-costas-de-venezuela.html
+
 **Esto es lo más reciente**\
 `El presidente Donald Trump anunció que las fuerzas estadounidenses habían llevado a cabo “un ataque a gran escala contra Venezuela” y estaban sacando del país al presidente Maduro y a su esposa.`\
 https://nytimes.com/live/2026/01/03/espanol/venezuela-estados-unidos-maduro-trump/esto-es-lo-mas-reciente
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6937375/2026/01/03/byu-vs-kansas-state-stream-how-t
 **How to watch Oklahoma State vs. Texas Tech men's basketball: Time, TV, streaming**\
 `Find out how to watch the Oklahoma State Cowboys play the Texas Tech Red Raiders, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6937366/2026/01/03/oklahoma-state-vs-texas-tech-stream-how-to-watch-jan-3/
-
-**How to watch Vanderbilt vs. South Carolina men's basketball: Time, TV, streaming**\
-`Find out how to watch the Vanderbilt Commodores play the South Carolina Gamecocks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6937364/2026/01/03/vanderbilt-vs-south-carolina-stream-how-to-watch-jan-3/
 
