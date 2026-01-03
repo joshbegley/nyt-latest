@@ -1,3 +1,11 @@
+**Trump Long Wanted to ‘Take the Oil.’ He Says He’ll Do It in Venezuela.**\
+`The White House had pointed to drug trafficking and migration as reasons to crack down on Nicolás Maduro. But oil emerged as central to President Trump.`\
+https://nytimes.com/2026/01/03/us/politics/trump-venezuela-oil.html
+
+**WATCH: Why Jaxson Dart has what it takes to be NFL's next elite QB**\
+`We break down the improvements Dart has shown during his rookie season and discuss why the Giants still believe in their rookie QB`\
+https://nytimes.com/athletic/6938171/2026/01/03/jaxson-dart-film-breakdown-giants-nfl/
+
 **How Manhattan Federal Court Would Handle the Trial of a President**\
 `Nicolás Maduro, Venezuela’s president, could stand trial in Federal District Court in New York City, the site of other high-profile court proceedings.`\
 https://nytimes.com/live/2026/01/03/world/trump-united-states-strikes-venezuela/maduro-trial-nyc-sdny
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6937442/2026/01/03/ruben-amorim-manchester-united-s
 **Why I Cold-Called President Trump at 4:30 in the Morning**\
 `How did a New York Times reporter reach the president right after he announced that the United States had captured Venezuela’s leader?`\
 https://nytimes.com/2026/01/03/insider/trump-interview-venezuela-nyt-reporter.html
-
-**18-year-old Luke Littler wins World Darts Championship for second year in a row**\
-`Littler comfortably defeated Dutchman Gian van Veen 7-1 in the final on Saturday.`\
-https://nytimes.com/athletic/6937383/2026/01/03/luke-littler-world-darts-championship-2026/
-
-**How Democrats are hitting Trump over his ouster of Maduro.**\
-`Some of the nation’s most influential Democrats condemned the move as unjustified and argued that the president was trying to distract from his domestic challenges.`\
-https://nytimes.com/live/2026/01/03/world/trump-united-states-strikes-venezuela/democrats-trump-venezuela-maduro
 
