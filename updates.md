@@ -1,3 +1,15 @@
+**18-year-old Luke Littler wins World Darts Championship for second year in a row**\
+`Littler comfortably defeated Dutchman Gian van Veen 7-1 in the final on Saturday.`\
+https://nytimes.com/athletic/6937383/2026/01/03/luke-littler-world-darts-championship-2026/
+
+**How Democrats are hitting Trump over his ouster of Maduro.**\
+`Some of the nation’s most influential Democrats condemned the move as unjustified and argued that the president was trying to distract from his domestic challenges.`\
+https://nytimes.com/live/2026/01/03/world/trump-united-states-strikes-venezuela/democrats-trump-venezuela-maduro
+
+**Dabo Swinney hires Chad Morris to return as Clemson's offensive coordinator: Source**\
+`In Morris' first run as Clemson's OC, the Tigers set several offensive records in 2012.`\
+https://nytimes.com/athletic/6937942/2026/01/03/dabo-swinney-chad-morris-clemson-offensive-coordinator/
+
 **Arch's roommate calls transfer 'out of my control' as Texas seeks WR upgrades**\
 `Texas finished 10-3 in Arch Manning’s first season as the starting quarterback, a disappointment considering its preseason No. 1 ranking.`\
 https://nytimes.com/athletic/6938084/2026/01/03/parker-livingstone-transfer-portal-texas-receivers/
