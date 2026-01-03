@@ -1,3 +1,7 @@
+**Quote of the Day: Many People Gambling on Health Premiums for Obamacare Double**\
+`Quotation of the Day for Saturday, January 3, 2026.`\
+https://nytimes.com/2026/01/02/pageoneplus/quote-of-the-day-many-people-gambling-on-health-premiums-for-obamacare-double.html
+
 **Joe Burrow's sideline waffle is the latest surprising athletes' snack**\
 `Unique snacks are part of a long tradition of athletes experimenting with different refueling options during games.`\
 https://nytimes.com/athletic/6930813/2026/01/02/joe-burrow-waffle-athletes-snacks/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/02/climate/reader-questions-part-1.html
 **Wild at the Olympics: At least 8 players headed to Milan, with a Swedish surprise — and snub**\
 `Wild goalie Jesper Wallstedt on making the cut for Sweden: “Now I can say I'm an Olympic athlete. So that's pretty cool at 23 years old."`\
 https://nytimes.com/athletic/6936625/2026/01/02/wild-olympics-wallstedt-johansson/
-
-**Ole Miss backup QB planning to transfer but will stay on through CFP: Reports**\
-`Early reports indicate that Missouri is the team to watch in the race for Simmons.`\
-https://nytimes.com/athletic/6936649/2026/01/02/austin-simmons-transfer-ole-miss-quarterbacks/
 
