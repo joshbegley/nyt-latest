@@ -1,3 +1,7 @@
+**The Contradictions of the Venezuela Attack**\
+`“If you’re feeling contradictory about all of this, you’re not alone,” says Times columnist Nicholas Kristof about the U.`\
+https://nytimes.com/video/opinion/100000010622258/the-contradictions-of-the-venezuela-attack.html
+
 **How to watch Predators vs. Flames: Time, TV, streaming**\
 `Find out how to watch the Nashville Predators play the Calgary Flames, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6937730/2026/01/03/predators-vs-flames-stream-how-to-watch-jan-3/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6937715/2026/01/03/trail-blazers-vs-spurs-stream-ho
 **How to watch Avalanche vs. Hurricanes: Time, TV, streaming**\
 `Find out how to watch the Colorado Avalanche play the Carolina Hurricanes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6937713/2026/01/03/avalanche-vs-hurricanes-stream-how-to-watch-jan-3/
-
-**How to watch Purdue vs. Wisconsin men's basketball: Time, TV, streaming**\
-`Find out how to watch the Purdue Boilermakers play the Wisconsin Badgers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6937704/2026/01/03/purdue-vs-wisconsin-stream-how-to-watch-jan-3/
 
