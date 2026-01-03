@@ -30,8 +30,8 @@ https://nytimes.com/2026/01/03/crosswords/spelling-bee-forum.html
 `By Anatoly Kurmanaev`\
 https://nytimes.com/live/2026/01/03/world/trump-united-states-strikes-venezuela/heres-the-latest
 
-**Live Updates: U.S. Military Strikes Caracas, Venezuela Says**\
-`A statement attributed to President Nicolás Maduro denounced an “imperialist attack” after explosions were heard at a military base in the Venezuelan capital. The Trump administration has been building pressure on Mr. Maduro for months.`\
+**Live Updates: U.S. Captures Venezuelan Leader, Trump Says**\
+`President Trump announced that U.S. forces had carried out “a large scale strike against Venezuela” and were flying President Nicolás Maduro and his wife out of the country. The Trump administration had been building pressure on Mr. Maduro for months.`\
 https://nytimes.com/live/2026/01/03/world/trump-united-states-strikes-venezuela
 
 **Wake Forest's Jake Dickert welcomes Duke's mayo bath as MSU suffers in bowl loss**\
