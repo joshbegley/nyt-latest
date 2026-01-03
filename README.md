@@ -1,3 +1,7 @@
+**Mamdani Creates Office to Encourage Public Participation in Government**\
+`Mayor Zohran Mamdani of New York said he hoped to reach communities that had been left out of the process.`\
+https://nytimes.com/2026/01/02/nyregion/mamdani-appointments.html
+
 **Quote of the Day: Many People Gambling on Health Premiums for Obamacare Double**\
 `Quotation of the Day for Saturday, January 3, 2026.`\
 https://nytimes.com/2026/01/02/pageoneplus/quote-of-the-day-many-people-gambling-on-health-premiums-for-obamacare-double.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/climate/100000010615476/behind-the-scenes-with-our-pho
 **Answers to Your Antarctica Questions, Part 1**\
 `Our reporter sends a dispatch from the icebreaker Araon, currently on its way to Antarctica, about the scientists, their work and how he’s battling seasickness.`\
 https://nytimes.com/2026/01/02/climate/reader-questions-part-1.html
-
-**Wild at the Olympics: At least 8 players headed to Milan, with a Swedish surprise — and snub**\
-`Wild goalie Jesper Wallstedt on making the cut for Sweden: “Now I can say I'm an Olympic athlete. So that's pretty cool at 23 years old."`\
-https://nytimes.com/athletic/6936625/2026/01/02/wild-olympics-wallstedt-johansson/
 
