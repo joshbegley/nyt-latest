@@ -1,3 +1,7 @@
+**Trump Did Not Seek Congressional Authorization to Capture Maduro**\
+`Democrats raised constitutional concerns and said the Trump administration had misrepresented its goals in Venezuela, while most Republicans cheered the action.`\
+https://nytimes.com/2026/01/03/world/americas/trump-venezuela-congress-authorization.html
+
 **Lakers tip off 2026 by extending undefeated record in clutch-time games**\
 `Fueled by tight defense and some big 3s from non-shooters, the Lakers' pushed their record in clutch time to 11-0 this season.`\
 https://nytimes.com/athletic/6937243/2026/01/03/lakers-clutch-time-record-grizzlies/

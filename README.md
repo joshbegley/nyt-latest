@@ -1,3 +1,11 @@
+**What did our photographer take to Antarctica? A lot of cables.**\
+`(No description)`\
+https://nytimes.com/live/2025/climate/antarctica-thwaites-glacier/photographer-gear-video
+
+**Managers of Swiss Bar Are Suspected of Negligence in Deadly Fire, Police Say**\
+`Swiss authorities say the fire was probably sparked by small fireworks on champagne bottles that ignited foam insulation on the bar’s basement ceiling.`\
+https://nytimes.com/2026/01/03/world/europe/swiss-fire-bar-managers-charged.html
+
 **Trump Did Not Seek Congressional Authorization to Capture Maduro**\
 `Democrats raised constitutional concerns and said the Trump administration had misrepresented its goals in Venezuela, while most Republicans cheered the action.`\
 https://nytimes.com/2026/01/03/world/americas/trump-venezuela-congress-authorization.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/03/world/americas/maduro-capture-florida-venezuelans
 **How to watch Mammoth vs. Devils: Time, TV, streaming**\
 `Find out how to watch the Utah Mammoth play the New Jersey Devils, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6937554/2026/01/03/mammoth-vs-devils-stream-how-to-watch-jan-3/
-
-**How to watch Timberwolves vs. Heat: Time, TV, streaming**\
-`Find out how to watch the Minnesota Timberwolves play the Miami Heat, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6937553/2026/01/03/timberwolves-vs-heat-stream-how-to-watch-jan-3/
-
-**How to watch Canadiens vs. Blues: Time, TV, streaming**\
-`Find out how to watch the Montreal Canadiens play the St. Louis Blues, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6937550/2026/01/03/canadiens-vs-blues-stream-how-to-watch-jan-3/
 
