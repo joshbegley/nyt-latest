@@ -1,3 +1,7 @@
+**Live Updates: Explosions Are Reported in Venezuela’s Capital**\
+`The United States has been building pressure on Nicolás Maduro, Venezuela’s authoritarian president, for months.`\
+https://nytimes.com/live/2026/01/03/world/trump-united-states-strikes-venezuela
+
 **Australia and England to leave it late before naming teams for Ashes finale**\
 `Steve Smith and Ben Stokes are weighing up their selections as they attempt to read the pitch conditions ahead of the fifth Test in Sydney`\
 https://nytimes.com/athletic/6937188/2026/01/03/australia-england-ashes-sydney-toss-pitch/
