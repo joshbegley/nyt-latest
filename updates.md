@@ -1,3 +1,7 @@
+**What I’m hearing about the NFL coaching carousel and the changes coming in Vegas**\
+`The latest intel about the Giants, Titans, Bengals, Browns, Falcons, Commanders and other franchises that are out of the playoff picture.`\
+https://nytimes.com/athletic/6936695/2026/01/03/nfl-rumors-news-coach-carousel-black-monday-2026/
+
 **Inside Brayden Schenn's whirlwind: A private jet, welcoming a baby and a game winner**\
 `After the Blues' loss to the Avs, Schenn rushed home as his family welcomed a baby girl. In the next game, he scored the winning goal.`\
 https://nytimes.com/athletic/6936748/2026/01/03/brayden-schenn-blues-goal-baby/
