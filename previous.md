@@ -1,3 +1,7 @@
+**How to watch Virginia vs. NC State men's basketball: Time, TV, streaming**\
+`Find out how to watch the Virginia Cavaliers play the NC State Wolfpack, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6937274/2026/01/03/virginia-vs-nc-state-stream-how-to-watch-jan-3/
+
 **Mamdani Acts on Vow to Protect Renters With Move Against a Big Landlord**\
 `Mayor Zohran Mamdani said New York City would intervene in the Pinnacle Group’s bankruptcy case. Tenants have long complained about living conditions in the company’s properties.`\
 https://nytimes.com/2026/01/03/nyregion/mamdani-pinnacle-housing.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6937134/2026/01/03/dukes-mayo-bowl-wake-forest-miss
 **Explosions Reported in Venezuela’s Capital**\
 `It was not immediately clear what caused the blasts. The United States has been building pressure on Nicolás Maduro, Venezuela’s authoritarian president, for months.`\
 https://nytimes.com/2026/01/03/world/americas/venezuela-caracas-explosions.html
-
-**Ex-MLB star Lenny Dykstra faces charges after drugs allegedly found in truck**\
-`Dykstra was arrested on suspicion of possessing narcotics and narcotic-related equipment while being a passenger in a truck, police said.`\
-https://nytimes.com/athletic/6936989/2026/01/03/lenny-dykstra-drugs-charges-mets-phillies/
 
