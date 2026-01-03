@@ -1,3 +1,15 @@
+**Shock and Skepticism in World’s Capitals After U.S. Seizes Maduro**\
+`Several Latin American leaders responded with especial anger, while European leaders were more cautious. President Trump’s audacious raid drew support, too.`\
+https://nytimes.com/2026/01/03/world/americas/maduro-capture-venezuela-reaction-global.html
+
+**To Trump, on Venezuela: You Break It, You Own It**\
+`His administration just decapitated the country’s leadership; he’s now responsible for what comes next there.`\
+https://nytimes.com/2026/01/03/opinion/venezuela-trump.html
+
+**Asad Haider, Leftist Critic of Identity Politics, Dies at 38**\
+`In “Mistaken Identity: Race and Class in the Age of Trump,” he argued that focusing on identity obscured a more fundamental injustice: economic inequality.`\
+https://nytimes.com/2026/01/03/us/politics/asad-haider-dead.html
+
 **The Contradictions of the Venezuela Attack**\
 `“If you’re feeling contradictory about all of this, you’re not alone,” says Times columnist Nicholas Kristof about the U.`\
 https://nytimes.com/video/opinion/100000010622258/the-contradictions-of-the-venezuela-attack.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6937721/2026/01/03/blackhawks-vs-capitals-stream-ho
 **How to watch Maple Leafs vs. Islanders: Time, TV, streaming**\
 `Find out how to watch the Toronto Maple Leafs play the New York Islanders, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6937719/2026/01/03/maple-leafs-vs-islanders-stream-how-to-watch-jan-3/
-
-**How to watch Jets vs. Senators: Time, TV, streaming**\
-`Find out how to watch the Winnipeg Jets play the Ottawa Senators, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6937717/2026/01/03/jets-vs-senators-stream-how-to-watch-jan-3/
-
-**How to watch Trail Blazers vs. Spurs: Time, TV, streaming**\
-`Find out how to watch the Portland Trail Blazers play the San Antonio Spurs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6937715/2026/01/03/trail-blazers-vs-spurs-stream-how-to-watch-jan-3/
-
-**How to watch Avalanche vs. Hurricanes: Time, TV, streaming**\
-`Find out how to watch the Colorado Avalanche play the Carolina Hurricanes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6937713/2026/01/03/avalanche-vs-hurricanes-stream-how-to-watch-jan-3/
 
