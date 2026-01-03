@@ -1,3 +1,7 @@
+**Mamdani Creates Office to Encourage Public Participation in Government**\
+`Mayor Zohran Mamdani of New York said he hoped to reach communities that had been left out of the process.`\
+https://nytimes.com/2026/01/02/nyregion/mamdani-appointments.html
+
 **Quote of the Day: Many People Gambling on Health Premiums for Obamacare Double**\
 `Quotation of the Day for Saturday, January 3, 2026.`\
 https://nytimes.com/2026/01/02/pageoneplus/quote-of-the-day-many-people-gambling-on-health-premiums-for-obamacare-double.html
