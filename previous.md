@@ -1,3 +1,7 @@
+**In Toppling Maduro, Trump Risks Blowback from ‘America First’ Base**\
+`President Trump’s pledge that the United States would “run” Venezuela for an indefinite period showed he is willing to enter foreign conflicts he once promised to end.`\
+https://nytimes.com/2026/01/03/us/politics/in-toppling-maduro-trump-risks-blowback-from-america-first-base.html
+
 **Trump Long Wanted to ‘Take the Oil.’ He Says He’ll Do It in Venezuela.**\
 `The White House had pointed to drug trafficking and migration as reasons to crack down on Nicolás Maduro. But oil emerged as central to President Trump.`\
 https://nytimes.com/2026/01/03/us/politics/trump-venezuela-oil.html
@@ -8,7 +12,7 @@ https://nytimes.com/athletic/6938171/2026/01/03/jaxson-dart-film-breakdown-giant
 
 **How Manhattan Federal Court Would Handle the Trial of a President**\
 `Nicolás Maduro, Venezuela’s president, could stand trial in Federal District Court in New York City, the site of other high-profile court proceedings.`\
-https://nytimes.com/live/2026/01/03/world/trump-united-states-strikes-venezuela/maduro-trial-nyc-sdny
+https://nytimes.com/2026/01/03/world/americas/maduro-trial-nyc-sdny.html
 
 **Base Pairs**\
 `This Sunday puzzle by Gene Louise De Vera breaks free from the laboratory.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6933549/2026/01/03/drew-mestemaker-oklahoma-state-t
 **Amorim hints at behind scenes Man Utd rift over system**\
 `Amorim refused to elaborate on his comments about how United must spend “a lot of money” to play a “perfect” version of his 3-4-3 shape.`\
 https://nytimes.com/athletic/6937442/2026/01/03/ruben-amorim-manchester-united-system-tension/
-
-**Why I Cold-Called President Trump at 4:30 in the Morning**\
-`How did a New York Times reporter reach the president right after he announced that the United States had captured Venezuela’s leader?`\
-https://nytimes.com/2026/01/03/insider/trump-interview-venezuela-nyt-reporter.html
 

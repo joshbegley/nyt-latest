@@ -1,6 +1,10 @@
+**What Travelers Need to Know About Canceled Flights in the Caribbean**\
+`The F.A.A. grounded U.S. flights in the region because of the Trump administration’s military action in Venezuela, stranding travelers and disrupting vacations.`\
+https://nytimes.com/2026/01/03/travel/caribbean-flight-cancellations-trump-venezuela.html
+
 **In Toppling Maduro, Trump Risks Blowback from ‘America First’ Base**\
 `President Trump’s pledge that the United States would “run” Venezuela for an indefinite period showed he is willing to enter foreign conflicts he once promised to end.`\
-https://nytimes.com/2026/01/03/us/politics/in-toppling-maduro-trump-risks-blowback-from-america-first-base.html
+https://nytimes.com/2026/01/03/us/politics/maduro-trump-base-america-first.html
 
 **Trump Long Wanted to ‘Take the Oil.’ He Says He’ll Do It in Venezuela.**\
 `The White House had pointed to drug trafficking and migration as reasons to crack down on Nicolás Maduro. But oil emerged as central to President Trump.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/03/world/americas/cilia-flores-maduro-wife-venezuela
 **QB Drew Mestemaker following Eric Morris to Oklahoma State: Source**\
 `Mestamaker will be tasked with jumpstarting an Oklahoma State offense that was among the worst in the nation in 2025.`\
 https://nytimes.com/athletic/6933549/2026/01/03/drew-mestemaker-oklahoma-state-transfer-quarterback/
-
-**Amorim hints at behind scenes Man Utd rift over system**\
-`Amorim refused to elaborate on his comments about how United must spend “a lot of money” to play a “perfect” version of his 3-4-3 shape.`\
-https://nytimes.com/athletic/6937442/2026/01/03/ruben-amorim-manchester-united-system-tension/
 
