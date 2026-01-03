@@ -1,3 +1,7 @@
+**Legal Issues Raised by Trump’s Seizure of Maduro, Explained**\
+`The operation revives disputes over the legality of the 1989 Panama intervention, enhanced by President Trump’s vow to “run” Venezuela and Nicolás Maduro’s formal status as president.`\
+https://nytimes.com/2026/01/03/us/maduro-venezuela-trump-legal-issues.html
+
 **What We Know About the U.S. Operation in Venezuela**\
 `U.S. forces carried out an audacious raid on the country’s capital, seizing President Nicolás Maduro. President Trump said the United States now intends to “run” Venezuela.`\
 https://nytimes.com/2026/01/03/world/americas/venezuela-maduro-capture-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2026/01/03/world/americas/maduro-capture-venezue
 **Nuno apologises to West Ham fans after ‘embarrassing’ performance against Wolves**\
 `West Ham are winless in their last nine league games for the first time since 2011.`\
 https://nytimes.com/athletic/6937783/2026/01/03/nuno-west-ham-wolves-reaction/
-
-**Ole Miss coaching situation still in flux with College Football Playoff semifinals looming**\
-`Ole Miss coach Pete Golding says his program is stocked with capable coaches should any of the assistants leave before Thursday's game.`\
-https://nytimes.com/athletic/6937788/2026/01/03/ole-miss-assistant-coaches-pete-golding/
 

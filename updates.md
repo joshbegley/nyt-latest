@@ -1,3 +1,11 @@
+**What We Know About the U.S. Operation in Venezuela**\
+`U.S. forces carried out an audacious raid on the country’s capital, seizing President Nicolás Maduro. President Trump said the United States now intends to “run” Venezuela.`\
+https://nytimes.com/2026/01/03/world/americas/venezuela-maduro-capture-trump.html
+
+**Venezuela broadcasts messages of resistance from Maduro loyalists after the U.S. attack.**\
+`By Emiliano Rodríguez Mega`\
+https://nytimes.com/live/2026/01/03/world/trump-united-states-strikes-venezuela/venezuela-broadcasts-messages-of-resistance-from-maduro-loyalists-after-the-us-attack
+
 **Trump Says U.S. Forces Will Run Venezuela After Capturing Maduro**\
 `President Trump signaled plans for U.S. military presence in Venezuela after U.S. forces struck the nation and captured President Nicolás Maduro. The U.S. closed its embassy in Venezuela in 2019.`\
 https://nytimes.com/video/world/americas/100000010622485/trump-us-strikes-venezuela-maduro-capture.html
