@@ -1,3 +1,23 @@
+**How to watch Purdue vs. Wisconsin men's basketball: Time, TV, streaming**\
+`Find out how to watch the Purdue Boilermakers play the Wisconsin Badgers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6937704/2026/01/03/purdue-vs-wisconsin-stream-how-to-watch-jan-3/
+
+**Diane Crump, first female jockey to race in the Kentucky Derby, dies at 77**\
+`Crump was the first female jockey to ride professionally in a U.S. horse race in 1969, and the first woman to ride in the Derby in 1970.`\
+https://nytimes.com/athletic/6937585/2026/01/03/diane-crump-dies-female-jockey-kentucky-derby/
+
+**How to watch Arizona vs. Texas Tech women's basketball: Time, TV, streaming**\
+`Find out how to watch the Arizona Wildcats play the Texas Tech Lady Raiders, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6937699/2026/01/03/arizona-vs-texas-tech-stream-how-to-watch-jan-3/
+
+**How to watch Illinois vs. Penn State men's basketball: Time, TV, streaming**\
+`Find out how to watch the Illinois Fighting Illini play the Penn State Nittany Lions, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6937692/2026/01/03/illinois-vs-penn-state-stream-how-to-watch-jan-3/
+
+**How to watch USC vs. UCLA women's basketball: Time, TV, streaming**\
+`Find out how to watch the USC Trojans play the UCLA Bruins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6937687/2026/01/03/usc-vs-ucla-stream-how-to-watch-jan-3/
+
 **Read the Indictment Against Nicolás Maduro**\
 `The Venezuelan president was accused of narco-terrorism and conspiracy to import cocaine, among other charges. His wife, Cilia Flores, was also charged.`\
 https://nytimes.com/interactive/2026/01/03/nyregion/venezuela-maduro-indictment.html
@@ -17,24 +37,4 @@ https://nytimes.com/2026/01/03/world/americas/jd-vance-nicolas-maduro-venezuela.
 **Judge Convicted of Obstructing Immigration Agents Resigns as Impeachment Looms**\
 `Hannah C. Dugan, a state court judge, was convicted by a jury in federal court. Wisconsin lawmakers called on her to resign from the bench.`\
 https://nytimes.com/2026/01/03/us/hannah-dugan-wisconsin-judge-resigns.html
-
-**‘I Can’t Get Over Just How Good This Was’**\
-`The reader comments on Alexa Weibel’s five-star crispy tofu tacos are ecstatic: “I just finished the last of my leftovers and I want to run out and buy ingredients for another batch ASAP.”`\
-https://nytimes.com/2026/01/03/dining/i-cant-get-over-just-how-good-this-was.html
-
-**An ‘Avoidable Tragedy’: The Hazards That Led to the Swiss Fire Disaster**\
-`The fire that killed at least 40 people in a Swiss bar on New Year’s Day was made more likely by apparent flaws in the site’s design and management, experts say.`\
-https://nytimes.com/2026/01/03/world/europe/switzerland-fire-avoidable-hazards.html
-
-**What did our photographer take to Antarctica? A lot of cables.**\
-`(No description)`\
-https://nytimes.com/live/2025/climate/antarctica-thwaites-glacier/photographer-gear-video
-
-**Managers of Swiss Bar Are Suspected of Negligence in Deadly Fire, Police Say**\
-`Swiss authorities say the fire was probably sparked by small fireworks on champagne bottles that ignited foam insulation on the bar’s basement ceiling.`\
-https://nytimes.com/2026/01/03/world/europe/swiss-fire-bar-managers-charged.html
-
-**Trump Did Not Seek Congressional Authorization to Capture Maduro**\
-`Democrats raised constitutional concerns and said the Trump administration had misrepresented its goals in Venezuela, while most Republicans cheered the action.`\
-https://nytimes.com/2026/01/03/world/americas/trump-venezuela-congress-authorization.html
 
