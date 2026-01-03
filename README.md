@@ -1,4 +1,8 @@
-**The Briefing: Bournemouth 2 Arsenal 3 - How important is Declan Rice? Did Arteta's rotation work? What was Gabriel thinking?**\
+**Trump Says U.S. Forces Will Run Venezuela After Capturing Maduro**\
+`President Trump signaled plans for U.S. military presence in Venezuela after U.S. forces struck the nation and captured President Nicolás Maduro. The U.S. closed its embassy in Venezuela in 2019.`\
+https://nytimes.com/video/world/americas/100000010622485/trump-us-strikes-venezuela-maduro-capture.html
+
+**The Briefing: Bournemouth 2 Arsenal 3 - How important is Rice? Did Arteta's rotation work? What was Gabriel thinking?**\
 `Art de Roché analyses Arsenal's comeback win at the Vitality Stadium `\
 https://nytimes.com/athletic/6928590/2026/01/03/bournemouth-arsenal-premier-league-analysis/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6801822/2026/01/03/mlb-kazuma-okamoto-free-agency-s
 **NBA bans Magic's Jalen Suggs from wearing headband around his neck**\
 `Suggs has a habit of starting games with the cloth band around his neck, rather than across his forehead.`\
 https://nytimes.com/athletic/6937739/2026/01/03/jalen-suggs-headband-ban-magic/
-
-**The U.S. Captures Nicolás Maduro**\
-`What to know about the military operation in Venezuela.`\
-https://nytimes.com/2026/01/03/podcasts/the-headlines/the-us-captures-nicolas-maduro.html
 

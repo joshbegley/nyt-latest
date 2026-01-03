@@ -1,3 +1,11 @@
+**The Briefing: Bournemouth 2 Arsenal 3 - How important is Declan Rice? Did Arteta's rotation work? What was Gabriel thinking?**\
+`Art de Roché analyses Arsenal's comeback win at the Vitality Stadium `\
+https://nytimes.com/athletic/6928590/2026/01/03/bournemouth-arsenal-premier-league-analysis/
+
+**The Venezuelan Oil Industry Trump Is Planning to Revive**\
+`Venezuela claims to have more than 300 billion barrels in the ground, but it is only producing about one million barrels a day.`\
+https://nytimes.com/2026/01/03/business/venezuela-oil-industry-trump.html
+
 **Steve Staios says Senators will 'contend when we’re ready.' Are they?**\
 `Staios addressed the media near the season's midpoint and discussed the team's playoff hopes, Linus Ullmark's absence and more.`\
 https://nytimes.com/athletic/6937634/2026/01/03/senators-steve-staios-linus-ullmark/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6937739/2026/01/03/jalen-suggs-headband-ban-magic/
 **The U.S. Captures Nicolás Maduro**\
 `What to know about the military operation in Venezuela.`\
 https://nytimes.com/2026/01/03/podcasts/the-headlines/the-us-captures-nicolas-maduro.html
-
-**ACC reprimands Notre Dame's Shrewsberry for charging at official after loss**\
-`The game-deciding foul call that drew Shrewsberry's ire was based on the continuous motion rule, which the NCAA adopted this offseason`\
-https://nytimes.com/athletic/6937626/2026/01/03/notre-dame-basketball-coach-micah-shrewsberry-cal-referees/
-
-**Shock and Skepticism in World’s Capitals After U.S. Seizes Maduro**\
-`Several Latin American leaders responded with especial anger, while European leaders were more cautious. President Trump’s audacious raid drew support, too.`\
-https://nytimes.com/2026/01/03/world/americas/maduro-capture-venezuela-reaction-global.html
 
