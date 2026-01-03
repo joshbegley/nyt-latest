@@ -1,3 +1,7 @@
+**Jalen Duren, Tobias Harris out vs. Cavaliers amid Pistons' injury woes**\
+`Their absences will temporarily thin the Pistons' frontcourt depth, which means more minutes for players like Isaiah Stewart and Paul Reed.`\
+https://nytimes.com/athletic/6937864/2026/01/03/jalen-duren-tobias-harris-injuries-pistons-cavaliers/
+
 **Delcy Rodríguez, Venezuela’s new leader, boasts leftist credentials**\
 `The interim leader is known for hewing to left-wing ideals, facing sanctions by the U.S. and European Union and building bridges with Venezuela’s business community.`\
 https://nytimes.com/2026/01/03/world/americas/delcy-rodriguez-venezuela-politics.html

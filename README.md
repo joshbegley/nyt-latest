@@ -1,3 +1,15 @@
+**Penguins stifle Red Wings in defensive clinic for fourth straight win**\
+`The Penguins allowed the fewest shots on goal in a road game in franchise history in a 4-1 win in Detroit. `\
+https://nytimes.com/athletic/6935790/2026/01/03/penguins-red-wings-analysis-win-streak/
+
+**Mamdani Called Trump to Criticize Venezuela Strikes**\
+`Mayor Zohran Mamdani of New York accused President Trump of violating international law. It was the first time he had criticized the president since their White House meeting.`\
+https://nytimes.com/2026/01/03/world/americas/mamdani-trump-venezuela-maduro.html
+
+**Dabo Swinney hires Chad Morris to return as Clemson's offensive coordinator: Reports**\
+`In Morris' first run as Clemson's OC, the Tigers set several offensive records in 2012.`\
+https://nytimes.com/athletic/6937942/2026/01/03/dabo-swinney-chad-morris-clemson-offensive-coordinator/
+
 **Jalen Duren, Tobias Harris out vs. Cavaliers amid Pistons' injury woes**\
 `Their absences will temporarily thin the Pistons' frontcourt depth, which means more minutes for players like Isaiah Stewart and Paul Reed.`\
 https://nytimes.com/athletic/6937864/2026/01/03/jalen-duren-tobias-harris-injuries-pistons-cavaliers/
@@ -25,16 +37,4 @@ https://nytimes.com/video/opinion/100000010622424/this-is-purely-a-war-of-choice
 **How to watch Jazz vs. Warriors: Time, TV, streaming**\
 `Find out how to watch the Utah Jazz play the Golden State Warriors, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6937940/2026/01/03/jazz-vs-warriors-stream-how-to-watch-jan-3/
-
-**How to watch Celtics vs. Clippers: Time, TV, streaming**\
-`Find out how to watch the Boston Celtics play the Los Angeles Clippers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6937937/2026/01/03/celtics-vs-clippers-stream-how-to-watch-jan-3/
-
-**How to watch Rockets vs. Mavericks: Time, TV, streaming**\
-`Find out how to watch the Houston Rockets play the Dallas Mavericks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6937935/2026/01/03/rockets-vs-mavericks-stream-how-to-watch-jan-3/
-
-**How to watch Bruins vs. Canucks: Time, TV, streaming**\
-`Find out how to watch the Boston Bruins play the Vancouver Canucks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6937931/2026/01/03/bruins-vs-canucks-stream-how-to-watch-jan-3/
 
