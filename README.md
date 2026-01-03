@@ -1,3 +1,31 @@
+**Base Pairs**\
+`This Sunday puzzle by Gene Louise De Vera breaks free from the laboratory.`\
+https://nytimes.com/2026/01/03/crosswords/daily-puzzle-2026-01-04.html
+
+**On a Brooklyn Boulevard, Mamdani Revives a Project Hampered by Scandal**\
+`The bike-lane project, a source of corruption charges during the Adams administration, will be finished as planned in Greenpoint, Mayor Zohran Mamdani said.`\
+https://nytimes.com/2026/01/03/nyregion/mamdani-mcguinness-boulevard-bike-lanes.html
+
+**Sergio Ramos leading €400m bid to buy boyhood club Sevilla**\
+`Ramos was born in the Province of Seville and came through the club’s academy before signing for Real Madrid in 2005.`\
+https://nytimes.com/athletic/6937991/2026/01/03/sergio-ramos-sevilla-takeover-bid/
+
+**Who Is Cilia Flores, the Power Broker Captured Alongside Maduro?**\
+`Operating largely from the shadows, Ms. Flores, the first lady of Venezuela, helped consolidate Mr. Maduro’s rule while controlling the judiciary and amassing wealth through corruption, experts say.`\
+https://nytimes.com/2026/01/03/world/americas/cilia-flores-maduro-wife-venezuela.html
+
+**QB Drew Mestemaker following Eric Morris to Oklahoma State: Source**\
+`Mestamaker will be tasked with jumpstarting an Oklahoma State offense that was among the worst in the nation in 2025.`\
+https://nytimes.com/athletic/6933549/2026/01/03/drew-mestemaker-oklahoma-state-transfer-quarterback/
+
+**Amorim hints at behind scenes Man Utd rift over system**\
+`Amorim refused to elaborate on his comments about how United must spend “a lot of money” to play a “perfect” version of his 3-4-3 shape.`\
+https://nytimes.com/athletic/6937442/2026/01/03/ruben-amorim-manchester-united-system-tension/
+
+**Why I Cold-Called President Trump at 4:30 in the Morning**\
+`How did a New York Times reporter reach the president right after he announced that the United States had captured Venezuela’s leader?`\
+https://nytimes.com/2026/01/03/insider/trump-interview-venezuela-nyt-reporter.html
+
 **18-year-old Luke Littler wins World Darts Championship for second year in a row**\
 `Littler comfortably defeated Dutchman Gian van Veen 7-1 in the final on Saturday.`\
 https://nytimes.com/athletic/6937383/2026/01/03/luke-littler-world-darts-championship-2026/
@@ -9,32 +37,4 @@ https://nytimes.com/live/2026/01/03/world/trump-united-states-strikes-venezuela/
 **Arch's roommate calls transfer 'out of my control' as Texas seeks WR upgrades**\
 `Texas finished 10-3 in Arch Manning’s first season as the starting quarterback, a disappointment considering its preseason No. 1 ranking.`\
 https://nytimes.com/athletic/6938084/2026/01/03/parker-livingstone-transfer-portal-texas-receivers/
-
-**Rosenior acknowledges Chelsea links: 'If something happens, it happens'**\
-`Rosenior also described his 18 months with the Ligue 1 club as the “best months of my professional career."`\
-https://nytimes.com/athletic/6938060/2026/01/03/liam-rosenior-strasbourg-chelsea-latest/
-
-**Red Wings need more from their slumping top line as second half begins**\
-`Detroit's top line struggled at five-on-five in December, and those struggles found a new low in Saturday's 4-1 loss to the Penguins. `\
-https://nytimes.com/athletic/6937880/2026/01/03/red-wings-penguins-dylan-larkin-lucas-raymond/
-
-**With the President Gone, Venezuelans Race to Stock Up on Food**\
-`People hit grocery stores on Saturday as they anxiously waited for word on what would happen next.`\
-https://nytimes.com/2026/01/03/world/americas/venezuelans-food.html
-
-**James Nnaji comes off bench, flashes potential in Baylor debut as Bears lose at TCU**\
-`Baylor was plus-5 in Nnaji's 16 minutes on the floor and his 7-foot frame was impactful on the defensive end.`\
-https://nytimes.com/athletic/6938026/2026/01/03/james-nnaji-baylor-debut-tcu-nba-draft-pick/
-
-**Penguins stifle Red Wings in defensive clinic for fourth straight win**\
-`The Penguins allowed the fewest shots on goal in a road game in franchise history in a 4-1 win in Detroit. `\
-https://nytimes.com/athletic/6935790/2026/01/03/penguins-red-wings-analysis-win-streak/
-
-**Mamdani Called Trump to Criticize Venezuela Strikes**\
-`Mayor Zohran Mamdani of New York accused President Trump of violating international law. It was the first time he had criticized the president since their White House meeting.`\
-https://nytimes.com/2026/01/03/world/americas/mamdani-trump-venezuela-maduro.html
-
-**Dabo Swinney hires Chad Morris to return as Clemson's offensive coordinator: Reports**\
-`In Morris' first run as Clemson's OC, the Tigers set several offensive records in 2012.`\
-https://nytimes.com/athletic/6937942/2026/01/03/dabo-swinney-chad-morris-clemson-offensive-coordinator/
 
