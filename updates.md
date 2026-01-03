@@ -1,3 +1,11 @@
+**Nuno apologises to West Ham fans after 'embarrassing' performance against Wolves**\
+`West Ham are winless in their last nine league games for the first time since 2011.`\
+https://nytimes.com/athletic/6937783/2026/01/03/nuno-west-ham-wolves-reaction/
+
+**Ole Miss coaching situation still in flux with College Football Playoff semifinals looming**\
+`Ole Miss coach Pete Golding says his program is stocked with capable coaches should any of the assistants leave before Thursday's game.`\
+https://nytimes.com/athletic/6937788/2026/01/03/ole-miss-assistant-coaches-pete-golding/
+
 **Blue Jays reach agreement with Kazuma Okamoto: Source**\
 `Okamoto's pure hitting ability has been noted by many scouts but some view power as his biggest draw.`\
 https://nytimes.com/athletic/6801822/2026/01/03/mlb-kazuma-okamoto-free-agency-signing-blue-jays/

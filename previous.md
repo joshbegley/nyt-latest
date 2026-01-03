@@ -1,3 +1,11 @@
+**Nuno apologises to West Ham fans after 'embarrassing' performance against Wolves**\
+`West Ham are winless in their last nine league games for the first time since 2011.`\
+https://nytimes.com/athletic/6937783/2026/01/03/nuno-west-ham-wolves-reaction/
+
+**Ole Miss coaching situation still in flux with College Football Playoff semifinals looming**\
+`Ole Miss coach Pete Golding says his program is stocked with capable coaches should any of the assistants leave before Thursday's game.`\
+https://nytimes.com/athletic/6937788/2026/01/03/ole-miss-assistant-coaches-pete-golding/
+
 **Blue Jays reach agreement with Kazuma Okamoto: Source**\
 `Okamoto's pure hitting ability has been noted by many scouts but some view power as his biggest draw.`\
 https://nytimes.com/athletic/6801822/2026/01/03/mlb-kazuma-okamoto-free-agency-signing-blue-jays/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/03/us/politics/asad-haider-dead.html
 **The Contradictions of the Venezuela Attack**\
 `“If you’re feeling contradictory about all of this, you’re not alone,” says the Times columnist Nicholas Kristof about the U.`\
 https://nytimes.com/video/opinion/100000010622258/the-contradictions-of-the-venezuela-attack.html
-
-**How to watch Predators vs. Flames: Time, TV, streaming**\
-`Find out how to watch the Nashville Predators play the Calgary Flames, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6937730/2026/01/03/predators-vs-flames-stream-how-to-watch-jan-3/
-
-**How to watch Hawks vs. Raptors: Time, TV, streaming**\
-`Find out how to watch the Atlanta Hawks play the Toronto Raptors, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6937728/2026/01/03/hawks-vs-raptors-stream-how-to-watch-jan-3/
 
