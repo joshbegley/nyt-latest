@@ -1,3 +1,15 @@
+**Diane Crump, First Woman to Ride in Kentucky Derby, Dies at 77**\
+`She was the first professional female jockey to compete at a track in the United States where betting was legal, and notched up 228 career victories.`\
+https://nytimes.com/2026/01/02/obituaries/diane-crump-dead.html
+
+**Casey Dawson, U.S. speed skating medal hopeful, is back for his Olympic 'villain arc'**\
+`Four years ago, Dawson's Olympic plans were disrupted by COVID. Now he's back, with redemption on his mind.`\
+https://nytimes.com/athletic/6937002/2026/01/02/casey-dawson-olympics-usa-speed-skating-5000-meter/
+
+**World Juniors quarterfinals: USA bounced, Canada wins big, Swiss honor fire victims**\
+`The World Juniors semifinals matchups in Minnesota on Sunday are Sweden vs. Finland and Canada vs. Czechia. `\
+https://nytimes.com/athletic/6935543/2026/01/02/world-juniors-2026-canada-usa-quarterfinals/
+
 **Giannis' late slam makes history, helps Bucks avoid loss to Hornets**\
 `The two-time NBA MVP now has the most 30/10/5 games in league history.`\
 https://nytimes.com/athletic/6937024/2026/01/02/giannis-bucks-hornets-kon-knueppel/
