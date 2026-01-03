@@ -1,3 +1,15 @@
+**The SCG is a graveyard for English Test careers — but there is still joy to be found in the debris**\
+`Scott Borthwick and Mason Crane both played their only Test matches in Sydney, where too many England careers have fizzled out prematurely`\
+https://nytimes.com/athletic/6928374/2026/01/03/england-scg-borthwick-crane-graveyard-ashes/
+
+**Lenny Dykstra Faces Charges After Police Find Drugs During Traffic Stop**\
+`The Pennsylvania police did not say what charges would be filed against the former baseball star. His lawyer said the drugs were not Mr. Dykstra’s.`\
+https://nytimes.com/2026/01/03/us/lenny-dykstra-drugs-charges.html
+
+**Nebraska off to another perfect start with narrow win over Michigan State**\
+`The Huskers started 2026 like they ended 2025: with a perfect record in men's basketball.`\
+https://nytimes.com/athletic/6937093/2026/01/03/nebraska-basketball-perfect-start-michigan-state-win/
+
 **Crossing Barcelona's city divide: Joan Garcia, rats and fury at Espanyol**\
 `The 24-year-old goalkeeper returns to his old home ground for the first time since joining Barca last summer`\
 https://nytimes.com/athletic/6935730/2026/01/03/barcelona-joan-garcia-espanyol-rivalry-rats/

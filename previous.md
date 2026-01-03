@@ -1,3 +1,15 @@
+**The SCG is a graveyard for English Test careers — but there is still joy to be found in the debris**\
+`Scott Borthwick and Mason Crane both played their only Test matches in Sydney, where too many England careers have fizzled out prematurely`\
+https://nytimes.com/athletic/6928374/2026/01/03/england-scg-borthwick-crane-graveyard-ashes/
+
+**Lenny Dykstra Faces Charges After Police Find Drugs During Traffic Stop**\
+`The Pennsylvania police did not say what charges would be filed against the former baseball star. His lawyer said the drugs were not Mr. Dykstra’s.`\
+https://nytimes.com/2026/01/03/us/lenny-dykstra-drugs-charges.html
+
+**Nebraska off to another perfect start with narrow win over Michigan State**\
+`The Huskers started 2026 like they ended 2025: with a perfect record in men's basketball.`\
+https://nytimes.com/athletic/6937093/2026/01/03/nebraska-basketball-perfect-start-michigan-state-win/
+
 **Crossing Barcelona's city divide: Joan Garcia, rats and fury at Espanyol**\
 `The 24-year-old goalkeeper returns to his old home ground for the first time since joining Barca last summer`\
 https://nytimes.com/athletic/6935730/2026/01/03/barcelona-joan-garcia-espanyol-rivalry-rats/
@@ -25,17 +37,4 @@ https://nytimes.com/2026/01/03/business/chevron-kazakhstan-oil.html
 **Corrections: Jan. 3, 2026**\
 `Corrections that appeared in print on Saturday, Jan. 3, 2026.`\
 https://nytimes.com/2026/01/03/pageoneplus/corrections-jan-3-2026.html
-
-**‘Chinese Peptides’ Are the Latest Biohacking Trend in the Tech World**\
-`The gray-market drugs flooding Silicon Valley reveal a community that believes it can move faster than the F.D.A.`\
-https://nytimes.com/2026/01/03/business/chinese-peptides-silicon-valley.html
-
-**Connections: Sports Edition Coach: Hints for Jan. 3, 2026**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6936973/2026/01/03/connections-sports-edition-hints-for-jan-3-2026/
-
-**Rangers' Mika Zibanejad records first hat trick in Winter Classic history**\
-`With 5 points in a 5-1 win over the Panthers, Zibanejad was awarded "The Cocoa Cup" after the game, given to the MVP at the Winter Classic.
-`\
-https://nytimes.com/athletic/6937067/2026/01/02/mika-zibanejad-rangers-hat-trick-winter-classic/
 
