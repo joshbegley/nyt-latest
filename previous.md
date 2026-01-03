@@ -1,3 +1,7 @@
+**The U.S. Captures Nicolás Maduro**\
+`What to know about the military operation in Venezuela.`\
+https://nytimes.com/2026/01/03/podcasts/the-headlines/the-us-captures-nicolas-maduro.html
+
 **Notre Dame coach Micah Shrewsberry charges at official after devastating loss**\
 `On Saturday, the ACC issued a public reprimand with no disciplinary action.`\
 https://nytimes.com/athletic/6937626/2026/01/03/notre-dame-basketball-coach-micah-shrewsberry-cal-referees/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6937725/2026/01/03/hornets-vs-bulls-stream-how-to-w
 **How to watch 76ers vs. Knicks: Time, TV, streaming**\
 `Find out how to watch the Philadelphia 76ers play the New York Knicks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6937723/2026/01/03/76ers-vs-knicks-stream-how-to-watch-jan-3/
-
-**How to watch Blackhawks vs. Capitals: Time, TV, streaming**\
-`Find out how to watch the Chicago Blackhawks play the Washington Capitals, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6937721/2026/01/03/blackhawks-vs-capitals-stream-how-to-watch-jan-3/
 

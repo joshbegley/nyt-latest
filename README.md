@@ -1,9 +1,17 @@
+**Blue Jays reach agreement with Kazuma Okamoto: Source**\
+`Okamoto's pure hitting ability has been noted by many scouts but some view power as his biggest draw.`\
+https://nytimes.com/athletic/6801822/2026/01/03/mlb-kazuma-okamoto-free-agency-signing-blue-jays/
+
+**NBA bans Magic's Jalen Suggs from wearing headband around his neck**\
+`Suggs has a habit of starting games with the cloth band around his neck, rather than across his forehead.`\
+https://nytimes.com/athletic/6937739/2026/01/03/jalen-suggs-headband-ban-magic/
+
 **The U.S. Captures Nicolás Maduro**\
 `What to know about the military operation in Venezuela.`\
 https://nytimes.com/2026/01/03/podcasts/the-headlines/the-us-captures-nicolas-maduro.html
 
-**Notre Dame coach Micah Shrewsberry charges at official after devastating loss**\
-`On Saturday, the ACC issued a public reprimand with no disciplinary action.`\
+**ACC reprimands Notre Dame's Shrewsberry for charging at official after loss**\
+`The game-deciding foul call that drew Shrewsberry's ire was based on the continuous motion rule, which the NCAA adopted this offseason`\
 https://nytimes.com/athletic/6937626/2026/01/03/notre-dame-basketball-coach-micah-shrewsberry-cal-referees/
 
 **Shock and Skepticism in World’s Capitals After U.S. Seizes Maduro**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6937730/2026/01/03/predators-vs-flames-stream-how-t
 **How to watch Hawks vs. Raptors: Time, TV, streaming**\
 `Find out how to watch the Atlanta Hawks play the Toronto Raptors, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6937728/2026/01/03/hawks-vs-raptors-stream-how-to-watch-jan-3/
-
-**How to watch Hornets vs. Bulls: Time, TV, streaming**\
-`Find out how to watch the Charlotte Hornets play the Chicago Bulls, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6937725/2026/01/03/hornets-vs-bulls-stream-how-to-watch-jan-3/
-
-**How to watch 76ers vs. Knicks: Time, TV, streaming**\
-`Find out how to watch the Philadelphia 76ers play the New York Knicks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6937723/2026/01/03/76ers-vs-knicks-stream-how-to-watch-jan-3/
 

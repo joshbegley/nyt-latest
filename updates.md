@@ -1,3 +1,7 @@
+**The U.S. Captures Nicolás Maduro**\
+`What to know about the military operation in Venezuela.`\
+https://nytimes.com/2026/01/03/podcasts/the-headlines/the-us-captures-nicolas-maduro.html
+
 **The Contradictions of the Venezuela Attack**\
 `“If you’re feeling contradictory about all of this, you’re not alone,” says the Times columnist Nicholas Kristof about the U.`\
 https://nytimes.com/video/opinion/100000010622258/the-contradictions-of-the-venezuela-attack.html
