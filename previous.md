@@ -1,3 +1,7 @@
+**A Timeline of Rising Tension Between the U.S. and Venezuela**\
+`The Trump administration has for months increased pressure on the Maduro government through a series of diplomatic and military maneuvers.`\
+https://nytimes.com/2026/01/03/world/americas/us-venezuela-tensions-timeline.html
+
 **Vance Justifies Capture as Bringing Maduro to Justice**\
 `Mr. Maduro has “multiple indictments in the United States for narcoterrorism,” the vice president said.`\
 https://nytimes.com/2026/01/03/world/americas/jd-vance-nicolas-maduro-venezuela.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6937243/2026/01/03/lakers-clutch-time-record-grizzl
 **United States Captures Maduro in Strikes on Venezuela, Trump Says**\
 `President Trump said the United States had captured Nicolás Maduro, the Venezuelan president, and were flying him and his wife out after a “large-scale” attack on the country.`\
 https://nytimes.com/video/world/americas/100000010622214/maduro-venezuela-us-strikes-trump.html
-
-**Maduro’s Inner Circle Appears to Survive U.S. Strikes on Venezuela**\
-`Vice President Delcy Rodríguez, next in the line of succession, and other top Venezuelan officials issued defiant pronouncements after Mr. Maduro’s capture.`\
-https://nytimes.com/2026/01/03/world/americas/maduro-venezuela-strikes-delcy-rodriguez.html
 

@@ -1,3 +1,7 @@
+**A Timeline of Rising Tension Between the U.S. and Venezuela**\
+`The Trump administration has for months increased pressure on the Maduro government through a series of diplomatic and military maneuvers.`\
+https://nytimes.com/2026/01/03/world/americas/us-venezuela-tensions-timeline.html
+
 **Vance Justifies Capture as Bringing Maduro to Justice**\
 `Mr. Maduro has “multiple indictments in the United States for narcoterrorism,” the vice president said.`\
 https://nytimes.com/2026/01/03/world/americas/jd-vance-nicolas-maduro-venezuela.html

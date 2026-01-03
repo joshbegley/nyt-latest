@@ -1,3 +1,7 @@
+**Trump Says He Watched Capture of Maduro in Real Time**\
+`President Trump said members of the Army’s Delta Force broke through the doors of a safe house “in a matter of seconds” after practicing the operation using a replica of the structure.`\
+https://nytimes.com/2026/01/03/us/politics/trump-capture-maduro-venezuela.html
+
 **A Timeline of Rising Tension Between the U.S. and Venezuela**\
 `The Trump administration has for months increased pressure on the Maduro government through a series of diplomatic and military maneuvers.`\
 https://nytimes.com/2026/01/03/world/americas/us-venezuela-tensions-timeline.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/03/world/americas/trump-venezuela-congress-authoriza
 **Lakers tip off 2026 by extending undefeated record in clutch-time games**\
 `Fueled by tight defense and some big 3s from non-shooters, the Lakers' pushed their record in clutch time to 11-0 this season.`\
 https://nytimes.com/athletic/6937243/2026/01/03/lakers-clutch-time-record-grizzlies/
-
-**United States Captures Maduro in Strikes on Venezuela, Trump Says**\
-`President Trump said the United States had captured Nicolás Maduro, the Venezuelan president, and were flying him and his wife out after a “large-scale” attack on the country.`\
-https://nytimes.com/video/world/americas/100000010622214/maduro-venezuela-us-strikes-trump.html
 
