@@ -1,3 +1,7 @@
+**Donald Trump’s Attack on Venezuela Is Illegal and Unwise**\
+`We know that Mr. Trump’s warmongering violates the law.`\
+https://nytimes.com/2026/01/03/opinion/venezuela-attack-trump-us.html
+
 **What I’m hearing about the NFL coaching carousel and the changes coming in Vegas**\
 `The latest intel about the Giants, Titans, Bengals, Browns, Falcons, Commanders and other franchises that are out of the playoff picture.`\
 https://nytimes.com/athletic/6936695/2026/01/03/nfl-rumors-news-coach-carousel-black-monday-2026/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6936942/2026/01/03/giants-coach-tomlin-harbaugh-ste
 **What Bears quarterbacks coach J.T. Barrett has meant for Caleb Williams**\
 `Barrett might be better known for his accomplishments at Ohio State, but he's been integral to the Bears' QB success in 2025.`\
 https://nytimes.com/athletic/6936465/2026/01/03/bears-jt-barrett-caleb-williams/
-
-**En una entrevista telefónica, Trump celebró la captura de Maduro**\
-`En una llamada con The New York Times, el presidente Trump calificó de “brillante” la operación estadounidense en Venezuela, pero no se refirió a si había consultado al Congreso.`\
-https://nytimes.com/2026/01/03/espanol/america-latina/trump-captura-maduro.html
 
