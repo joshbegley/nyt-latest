@@ -1,3 +1,7 @@
+**Airlines are canceling flights after the U.S. closes Caribbean airspace.**\
+`The Federal Aviation Administration cited “safety-of-flight risks” in restricting the U.S.-controlled airspace as a result of the military operation in Venezuela.`\
+https://nytimes.com/live/2026/01/03/world/trump-united-states-strikes-venezuela/flights-canceled-caribbean-faa-venezuela
+
 **‘This Is Purely a War of Choice’**\
 `“This is a plainly illegal war, a plainly illegal action, one that violates international law, one that is plainly unconstitutional, even anti-constitutional,” says the Times columnist Jamelle Bouie about the U.S. attack on Venezuela.`\
 https://nytimes.com/video/opinion/100000010622424/this-is-purely-a-war-of-choice.html
