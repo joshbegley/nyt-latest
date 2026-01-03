@@ -1,3 +1,7 @@
+**Red Wings need more from their slumping top line as second half begins**\
+`Detroit's top line struggled at five-on-five in December, and those struggles found a new low in Saturday's 4-1 loss to the Penguins. `\
+https://nytimes.com/athletic/6937880/2026/01/03/red-wings-penguins-dylan-larkin-lucas-raymond/
+
 **With the President Gone, Venezuelans Race to Stock Up on Food**\
 `People hit grocery stores on Saturday as they anxiously waited for word on what would happen next.`\
 https://nytimes.com/2026/01/03/world/americas/venezuelans-food.html
