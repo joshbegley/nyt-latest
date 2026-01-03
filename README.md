@@ -1,3 +1,15 @@
+**How to watch Lightning vs. Sharks: Time, TV, streaming**\
+`Find out how to watch the Tampa Bay Lightning play the San Jose Sharks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6937546/2026/01/03/lightning-vs-sharks-stream-how-to-watch-jan-3/
+
+**How to watch Flyers vs. Oilers: Time, TV, streaming**\
+`Find out how to watch the Philadelphia Flyers play the Edmonton Oilers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6937544/2026/01/03/flyers-vs-oilers-stream-how-to-watch-jan-3/
+
+**How to watch Duke vs. Florida State men's basketball: Time, TV, streaming**\
+`Find out how to watch the Duke Blue Devils play the Florida State Seminoles, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6937542/2026/01/03/duke-vs-florida-state-stream-how-to-watch-jan-3/
+
 **Swiss Alpine skier Camille Rast honors fire victims after World Cup breakthrough**\
 `Rast, from the same canton in the Swiss Alps where the New Year's fire killed 40, said, "We race for (the victims) this weekend."`\
 https://nytimes.com/athletic/6937408/2026/01/03/camille-rast-switzerland-fire-world-cup-giant-slalom-win/
@@ -25,16 +37,4 @@ https://nytimes.com/live/2026/01/03/world/trump-united-states-strikes-venezuela/
 **The Pulse: Indiana makes a case**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6937087/2026/01/03/indiana-is-the-best-team-but-now-comes-the-hard-part/
-
-**How Tensions Escalated Between the U.S. and Venezuela**\
-`A U.S. pressure campaign has been building for years, through a series of indictments, sanctions and, recently, military actions.`\
-https://nytimes.com/2026/01/03/world/americas/venezuela-us-tensions.html
-
-**Taylor Fritz's shock defeat to Sebástian Báez leaves Coco Gauff with work to do at United Cup**\
-`The world No. 3 had previously never lost a set to the Argentine, who is a fixture of the ATP top 50.`\
-https://nytimes.com/athletic/6937413/2026/01/03/taylor-fritz-united-cup-sebastian-baez-result-analysis/
-
-**Macklin Celebrini's breakout continues with historic Canada roster spot: 'It's all surreal'**\
-`Celebrini will be the first teenager to represent Canada in men's hockey in an Olympics featuring NHL players.`\
-https://nytimes.com/athletic/6936091/2026/01/03/macklin-celebrini-sharks-olympics-roster-canada/
 
