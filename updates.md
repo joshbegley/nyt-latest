@@ -1,3 +1,11 @@
+**Delcy Rodríguez, Venezuela’s new leader, boasts leftist credentials**\
+`The interim leader is known for hewing to left-wing ideals, facing sanctions by the U.S. and European Union and building bridges with Venezuela’s business community.`\
+https://nytimes.com/2026/01/03/world/americas/delcy-rodriguez-venezuela-politics.html
+
+**Trump administration declines to back Venezuela’s opposition leader.**\
+`By Julie Turkewitz and Genevieve Glatsky`\
+https://nytimes.com/live/2026/01/03/world/trump-united-states-strikes-venezuela/trump-administration-opposition-leader
+
 **Before Nicolás Maduro, There Was Manuel Noriega**\
 `The Venezuelan leader is now in U.S. custody. Decades earlier, the United States deposed the strongman who led Panama.`\
 https://nytimes.com/2026/01/03/world/americas/maduro-noriega-panama-venezuela.html

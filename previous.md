@@ -1,3 +1,11 @@
+**Delcy Rodríguez, Venezuela’s new leader, boasts leftist credentials**\
+`The interim leader is known for hewing to left-wing ideals, facing sanctions by the U.S. and European Union and building bridges with Venezuela’s business community.`\
+https://nytimes.com/2026/01/03/world/americas/delcy-rodriguez-venezuela-politics.html
+
+**Trump administration declines to back Venezuela’s opposition leader.**\
+`By Julie Turkewitz and Genevieve Glatsky`\
+https://nytimes.com/live/2026/01/03/world/trump-united-states-strikes-venezuela/trump-administration-opposition-leader
+
 **Before Nicolás Maduro, There Was Manuel Noriega**\
 `The Venezuelan leader is now in U.S. custody. Decades earlier, the United States deposed the strongman who led Panama.`\
 https://nytimes.com/2026/01/03/world/americas/maduro-noriega-panama-venezuela.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6937931/2026/01/03/bruins-vs-canucks-stream-how-to-
 **How to watch Wild vs. Kings: Time, TV, streaming**\
 `Find out how to watch the Minnesota Wild play the Los Angeles Kings, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6937929/2026/01/03/wild-vs-kings-stream-how-to-watch-jan-3/
-
-**Venezuela’s Interim Leader Defies Trump and Calls Maduro the ‘Only President’**\
-`President Trump said that Venezuela’s new leader, Delcy Rodríguez, would help the United States run Venezuela. She quickly said the opposite.`\
-https://nytimes.com/2026/01/03/world/americas/delcy-rodriguez-maduro-only-president.html
-
-**How to watch Florida vs. Missouri men's basketball: Time, TV, streaming**\
-`Find out how to watch the Florida Gators play the Missouri Tigers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6937923/2026/01/03/florida-vs-missouri-stream-how-to-watch-jan-3/
 
