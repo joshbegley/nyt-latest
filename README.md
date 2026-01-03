@@ -1,3 +1,11 @@
+**Steve Staios says Senators will 'contend when we’re ready.' Are they?**\
+`Staios addressed the media near the season's midpoint and discussed the team's playoff hopes, Linus Ullmark's absence and more.`\
+https://nytimes.com/athletic/6937634/2026/01/03/senators-steve-staios-linus-ullmark/
+
+**Kona Takahashi will return to Japan instead of signing with MLB team: Source**\
+`The 28-year-old is working on a multiyear contract with the Seibu Lions with the ability to opt out and become an international free agent.`\
+https://nytimes.com/athletic/6937826/2026/01/03/kona-takahashi-japan-return-free-agency-mlb/
+
 **Maps, Video and Photos: How Maduro’s Capture Unfolded**\
 `On Saturday, U.S. military forces carried out airstrikes in Venezuela and captured the country’s president, Nicolás Maduro. President Trump said he was being taken to New York to face drug and weapons charges.`\
 https://nytimes.com/interactive/2026/01/03/world/americas/maduro-capture-venezuela-strikes-maps.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6937626/2026/01/03/notre-dame-basketball-coach-mica
 **Shock and Skepticism in World’s Capitals After U.S. Seizes Maduro**\
 `Several Latin American leaders responded with especial anger, while European leaders were more cautious. President Trump’s audacious raid drew support, too.`\
 https://nytimes.com/2026/01/03/world/americas/maduro-capture-venezuela-reaction-global.html
-
-**To Trump, on Venezuela: You Break It, You Own It**\
-`His administration just decapitated the country’s leadership; he’s now responsible for what comes next there.`\
-https://nytimes.com/2026/01/03/opinion/venezuela-trump.html
-
-**Asad Haider, Leftist Critic of Identity Politics, Dies at 38**\
-`In “Mistaken Identity: Race and Class in the Age of Trump,” he argued that focusing on identity obscured a more fundamental injustice: economic inequality.`\
-https://nytimes.com/2026/01/03/us/politics/asad-haider-dead.html
 
