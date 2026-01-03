@@ -1,3 +1,23 @@
+**How to watch North Carolina vs. SMU men's basketball: Time, TV, streaming**\
+`Find out how to watch the North Carolina Tar Heels play the SMU Mustangs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6937510/2026/01/03/north-carolina-vs-smu-stream-how-to-watch-jan-3/
+
+**C.I.A. Source Inside Venezuelan Government Helped Track Maduro**\
+`The spy agency also used stealth drones to monitor the whereabouts of the Venezuelan leader.`\
+https://nytimes.com/2026/01/03/world/americas/cia-venezuela-maduro.html
+
+**Bondi says Maduro and his Wife to face a fresh indictment in Manhattan.**\
+`The Venezuela president was first charged in 2020 with narcoterrorism and other crimes. That indictment said Maduro and others “prioritized using cocaine as a weapon against America.”`\
+https://nytimes.com/live/2026/01/03/world/trump-united-states-strikes-venezuela/pam-bondi-maduro-indictment
+
+**The Pulse: Indiana makes a case**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6937087/2026/01/03/indiana-is-the-best-team-but-now-comes-the-hard-part/
+
+**How Tensions Escalated Between the U.S. and Venezuela**\
+`A U.S. pressure campaign has been building for years, through a series of indictments, sanctions and, recently, military actions.`\
+https://nytimes.com/2026/01/03/world/americas/venezuela-us-tensions.html
+
 **How Tensions Escalated Between the U.S. and Venezuela**\
 `A U.S. pressure campaign has been building for years, through a series of indictments, sanctions and, recently, military actions.`\
 https://nytimes.com/2026/01/03/world/americas/how-tensions-escalated-between-the-us-and-venezuela.html
