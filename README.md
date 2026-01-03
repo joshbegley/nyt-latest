@@ -1,3 +1,7 @@
+**2 Navy Service Members Accused of Entering Sham Marriages With Chinese Nationals**\
+`Federal prosecutors say two female service members are facing fraud charges after having accepted thousands of dollars for the marriages.`\
+https://nytimes.com/2026/01/02/us/politics/navy-sham-marriage-chinese-nationals.html
+
 **Corner Piece**\
 `Hannah Slovut-Einertson’s puzzle sets solvers on a cool, themeless pursuit.`\
 https://nytimes.com/2026/01/02/crosswords/daily-puzzle-2026-01-03.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/02/us/california-real-id-dmv-error.html
 **Mamdani Creates Office of Mass Engagement**\
 `Mayor Zohran Mamdani announced two appointments at Grand Army Plaza in Brooklyn on his second day as mayor of New York City, including the creation of an Office of Mass Engagement.`\
 https://nytimes.com/video/us/politics/100000010621144/mamdani-creates-office-of-mass-engagement.html
-
-**Trump Super PAC Raised More Than $100 Million in Recent Months**\
-`The haul highlights how the president’s team has continued aggressive fund-raising from donors with interests before the administration.`\
-https://nytimes.com/2026/01/02/us/politics/trump-super-pac-maga-inc-fundraising.html
 
