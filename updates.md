@@ -1,3 +1,11 @@
+**Trump Says U.S. Forces Will Run Venezuela After Capturing Maduro**\
+`President Trump signaled plans for U.S. military presence in Venezuela after U.S. forces struck the nation and captured President Nicolás Maduro. The U.S. closed its embassy in Venezuela in 2019.`\
+https://nytimes.com/video/world/americas/100000010622485/trump-us-strikes-venezuela-maduro-capture.html
+
+**The Briefing: Bournemouth 2 Arsenal 3 - How important is Rice? Did Arteta's rotation work? What was Gabriel thinking?**\
+`Art de Roché analyses Arsenal's comeback win at the Vitality Stadium `\
+https://nytimes.com/athletic/6928590/2026/01/03/bournemouth-arsenal-premier-league-analysis/
+
 **The Briefing: Bournemouth 2 Arsenal 3 - How important is Declan Rice? Did Arteta's rotation work? What was Gabriel thinking?**\
 `Art de Roché analyses Arsenal's comeback win at the Vitality Stadium `\
 https://nytimes.com/athletic/6928590/2026/01/03/bournemouth-arsenal-premier-league-analysis/

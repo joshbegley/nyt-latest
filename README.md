@@ -1,3 +1,11 @@
+**What We Know About the U.S. Operation in Venezuela**\
+`U.S. forces carried out an audacious raid on the country’s capital, seizing President Nicolás Maduro. President Trump said the United States now intends to “run” Venezuela.`\
+https://nytimes.com/2026/01/03/world/americas/venezuela-maduro-capture-trump.html
+
+**Venezuela broadcasts messages of resistance from Maduro loyalists after the U.S. attack.**\
+`By Emiliano Rodríguez Mega`\
+https://nytimes.com/live/2026/01/03/world/trump-united-states-strikes-venezuela/venezuela-broadcasts-messages-of-resistance-from-maduro-loyalists-after-the-us-attack
+
 **Trump Says U.S. Forces Will Run Venezuela After Capturing Maduro**\
 `President Trump signaled plans for U.S. military presence in Venezuela after U.S. forces struck the nation and captured President Nicolás Maduro. The U.S. closed its embassy in Venezuela in 2019.`\
 https://nytimes.com/video/world/americas/100000010622485/trump-us-strikes-venezuela-maduro-capture.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6937783/2026/01/03/nuno-west-ham-wolves-reaction/
 **Ole Miss coaching situation still in flux with College Football Playoff semifinals looming**\
 `Ole Miss coach Pete Golding says his program is stocked with capable coaches should any of the assistants leave before Thursday's game.`\
 https://nytimes.com/athletic/6937788/2026/01/03/ole-miss-assistant-coaches-pete-golding/
-
-**Blue Jays reach agreement with Kazuma Okamoto: Source**\
-`Okamoto's pure hitting ability has been noted by many scouts but some view power as his biggest draw.`\
-https://nytimes.com/athletic/6801822/2026/01/03/mlb-kazuma-okamoto-free-agency-signing-blue-jays/
-
-**NBA bans Magic's Jalen Suggs from wearing headband around his neck**\
-`Suggs has a habit of starting games with the cloth band around his neck, rather than across his forehead.`\
-https://nytimes.com/athletic/6937739/2026/01/03/jalen-suggs-headband-ban-magic/
 
