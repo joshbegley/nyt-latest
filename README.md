@@ -12,7 +12,7 @@ https://nytimes.com/athletic/6938171/2026/01/03/jaxson-dart-film-breakdown-giant
 
 **How Manhattan Federal Court Would Handle the Trial of a President**\
 `Nicolás Maduro, Venezuela’s president, could stand trial in Federal District Court in New York City, the site of other high-profile court proceedings.`\
-https://nytimes.com/live/2026/01/03/world/trump-united-states-strikes-venezuela/maduro-trial-nyc-sdny
+https://nytimes.com/2026/01/03/world/americas/maduro-trial-nyc-sdny.html
 
 **Base Pairs**\
 `This Sunday puzzle by Gene Louise De Vera breaks free from the laboratory.`\
