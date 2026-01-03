@@ -1,3 +1,15 @@
+**United States Captures Maduro in Strikes on Venezuela, Trump Says**\
+`President Trump said the United States had captured Nicolás Maduro, the Venezuelan president, and were flying him and his wife out after a “large-scale” attack on the country.`\
+https://nytimes.com/video/world/americas/100000010622214/maduro-venezuela-us-strikes-trump.html
+
+**Maduro’s Inner Circle Appears to Survive U.S. Strikes on Venezuela**\
+`Vice President Delcy Rodríguez, next in the line of succession, and other top Venezuelan officials issued defiant pronouncements after Mr. Maduro’s capture.`\
+https://nytimes.com/2026/01/03/world/americas/maduro-venezuela-strikes-delcy-rodriguez.html
+
+**What to Know About the Protests in Iran**\
+`Galloping inflation and a currency crisis have provoked demonstrations across the country.`\
+https://nytimes.com/2026/01/03/world/middleeast/iran-protests-inflation-currency.html
+
 **When Life Gives You Limes …**\
 `Make my puckery salted margarita bars, a beach vacation in dessert form.`\
 https://nytimes.com/2026/01/03/dining/when-life-gives-you-limes.html
