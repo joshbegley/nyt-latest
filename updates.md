@@ -1,3 +1,15 @@
+**Penguins stifle Red Wings in defensive clinic for fourth straight win**\
+`The Penguins allowed the fewest shots on goal in a road game in franchise history in a 4-1 win in Detroit. `\
+https://nytimes.com/athletic/6935790/2026/01/03/penguins-red-wings-analysis-win-streak/
+
+**Mamdani Called Trump to Criticize Venezuela Strikes**\
+`Mayor Zohran Mamdani of New York accused President Trump of violating international law. It was the first time he had criticized the president since their White House meeting.`\
+https://nytimes.com/2026/01/03/world/americas/mamdani-trump-venezuela-maduro.html
+
+**Dabo Swinney hires Chad Morris to return as Clemson's offensive coordinator: Reports**\
+`In Morris' first run as Clemson's OC, the Tigers set several offensive records in 2012.`\
+https://nytimes.com/athletic/6937942/2026/01/03/dabo-swinney-chad-morris-clemson-offensive-coordinator/
+
 **Jalen Duren, Tobias Harris out vs. Cavaliers amid Pistons' injury woes**\
 `Their absences will temporarily thin the Pistons' frontcourt depth, which means more minutes for players like Isaiah Stewart and Paul Reed.`\
 https://nytimes.com/athletic/6937864/2026/01/03/jalen-duren-tobias-harris-injuries-pistons-cavaliers/
