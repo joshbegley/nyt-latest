@@ -1,3 +1,15 @@
+**Blue Jays reach agreement with Kazuma Okamoto: Source**\
+`Okamoto's pure hitting ability has been noted by many scouts but some view power as his biggest draw.`\
+https://nytimes.com/athletic/6801822/2026/01/03/mlb-kazuma-okamoto-free-agency-signing-blue-jays/
+
+**NBA bans Magic's Jalen Suggs from wearing headband around his neck**\
+`Suggs has a habit of starting games with the cloth band around his neck, rather than across his forehead.`\
+https://nytimes.com/athletic/6937739/2026/01/03/jalen-suggs-headband-ban-magic/
+
+**ACC reprimands Notre Dame's Shrewsberry for charging at official after loss**\
+`The game-deciding foul call that drew Shrewsberry's ire was based on the continuous motion rule, which the NCAA adopted this offseason`\
+https://nytimes.com/athletic/6937626/2026/01/03/notre-dame-basketball-coach-micah-shrewsberry-cal-referees/
+
 **The U.S. Captures Nicolás Maduro**\
 `What to know about the military operation in Venezuela.`\
 https://nytimes.com/2026/01/03/podcasts/the-headlines/the-us-captures-nicolas-maduro.html
