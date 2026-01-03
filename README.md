@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6928374/2026/01/03/england-scg-borthwick-crane-grav
 https://nytimes.com/2026/01/03/us/lenny-dykstra-drugs-charges.html
 
 **Nebraska off to another perfect start with narrow win over Michigan State**\
-`The Huskers started 2026 like they ended 2025: with a perfect record in men's basketball.`\
+`The Huskers started 2026 as they ended 2025: with a perfect record in men's basketball.`\
 https://nytimes.com/athletic/6937093/2026/01/03/nebraska-basketball-perfect-start-michigan-state-win/
 
 **Crossing Barcelona's city divide: Joan Garcia, rats and fury at Espanyol**\
