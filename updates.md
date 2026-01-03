@@ -1,3 +1,16 @@
+**Forget managers – it's the muddled strategy of Chelsea's owners that is the problem**\
+`After Enzo Maresca became the fifth Chelsea manager to leave since 2022, maybe it's time to scrutinise those appointing them`\
+https://nytimes.com/athletic/6935334/2026/01/03/forget-managers-its-the-muddled-strategy-of-chelseas-owners-that-is-the-problem/
+
+**'My pie looked more like scoring': Our writers pick the worst games they have ever attended**\
+`After the horror of Brentford 0-0 Tottenham, our experts select their personal lowlights from a lifetime watching football`\
+https://nytimes.com/athletic/6935545/2026/01/03/the-athletic-worst-games-attended/
+
+**Rangers' Mika Zibanejad records first hat trick in Winter Classic history**\
+`With 5 points in a 5-1 win over the Panthers, Zibanejad was awarded "The Cocoa Cup" after the game, given to the MVP at the Winter Classic.
+`\
+https://nytimes.com/athletic/6937067/2026/01/02/mika-zibanejad-rangers-hat-trick-winter-classic/
+
 **The anatomy of the Man Utd-Leeds rivalry - featuring three punches and 500 years of bile**\
 `The poison between the two Uniteds is real — as Andy Mitten discovered to his cost on a visit to Elland Road back in 1991`\
 https://nytimes.com/athletic/6931434/2026/01/03/manchester-united-leeds-united-rivalry-history/
