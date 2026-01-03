@@ -1,3 +1,19 @@
+**‘This Is Purely a War of Choice’**\
+`“This is a plainly illegal war, a plainly illegal action, one that violates international law, one that is plainly unconstitutional, even anti-constitutional,” says the Times columnist Jamelle Bouie about the U.S. attack on Venezuela.`\
+https://nytimes.com/video/opinion/100000010622424/this-is-purely-a-war-of-choice.html
+
+**How to watch Jazz vs. Warriors: Time, TV, streaming**\
+`Find out how to watch the Utah Jazz play the Golden State Warriors, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6937940/2026/01/03/jazz-vs-warriors-stream-how-to-watch-jan-3/
+
+**How to watch Celtics vs. Clippers: Time, TV, streaming**\
+`Find out how to watch the Boston Celtics play the Los Angeles Clippers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6937937/2026/01/03/celtics-vs-clippers-stream-how-to-watch-jan-3/
+
+**How to watch Rockets vs. Mavericks: Time, TV, streaming**\
+`Find out how to watch the Houston Rockets play the Dallas Mavericks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6937935/2026/01/03/rockets-vs-mavericks-stream-how-to-watch-jan-3/
+
 **How to watch Bruins vs. Canucks: Time, TV, streaming**\
 `Find out how to watch the Boston Bruins play the Vancouver Canucks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6937931/2026/01/03/bruins-vs-canucks-stream-how-to-watch-jan-3/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6937913/2026/01/03/tcu-vs-utah-stream-how-to-watch-
 **New York Giants' Theo Johnson appears at Knicks game despite being out with illness**\
 `Johnson appeared at a New York Knicks game hours after being ruled out of the Giants' season finale with an "illness."`\
 https://nytimes.com/athletic/6937838/2026/01/03/theo-johnson-new-york-giants-knicks-illness/
-
-**Trump Shares an Image of Maduro Blindfolded and Handcuffed**\
-`The Venezuelan president and his wife were flown out of Caracas by helicopter to the U.S.S. Iwo Jima, a warship taking them to New York.`\
-https://nytimes.com/live/2026/01/03/world/trump-united-states-strikes-venezuela/maduro-photo-trump
-
-**Legal Issues Raised by Trump’s Seizure of Maduro, Explained**\
-`The operation revives disputes over the legality of the 1989 Panama intervention, enhanced by President Trump’s vow to “run” Venezuela and Nicolás Maduro’s formal status as president.`\
-https://nytimes.com/2026/01/03/us/maduro-venezuela-trump-legal-issues.html
-
-**What We Know About the U.S. Operation in Venezuela**\
-`U.S. forces carried out an audacious raid on the country’s capital, seizing President Nicolás Maduro. President Trump said the United States now intends to “run” Venezuela.`\
-https://nytimes.com/2026/01/03/world/americas/venezuela-maduro-capture-trump.html
-
-**Venezuela broadcasts messages of resistance from Maduro loyalists after the U.S. attack.**\
-`By Emiliano Rodríguez Mega`\
-https://nytimes.com/live/2026/01/03/world/trump-united-states-strikes-venezuela/venezuela-broadcasts-messages-of-resistance-from-maduro-loyalists-after-the-us-attack
 
