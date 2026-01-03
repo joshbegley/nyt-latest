@@ -1,5 +1,5 @@
-**Giannis' alley-oop slam helps Bucks avoid another bad loss at home**\
-`Antetokounmpo, who returned last week from a calf injury, led the Bucks with 30 points and 10 rebounds.`\
+**Giannis' late slam makes history, helps Bucks avoid loss to Hornets**\
+`The two-time NBA MVP now has the most 30/10/5 games in league history.`\
 https://nytimes.com/athletic/6937024/2026/01/02/giannis-bucks-hornets-kon-knueppel/
 
 **Federal Appeals Court Says California Open-Carry Ban Is Unconstitutional**\
