@@ -1,3 +1,7 @@
+**Why I Cold-Called President Trump at 4:30 in the Morning**\
+`How did a New York Times reporter reach the president right after he announced that the United States had captured Venezuela’s leader?`\
+https://nytimes.com/2026/01/03/insider/trump-interview-venezuela-nyt-reporter.html
+
 **18-year-old Luke Littler wins World Darts Championship for second year in a row**\
 `Littler comfortably defeated Dutchman Gian van Veen 7-1 in the final on Saturday.`\
 https://nytimes.com/athletic/6937383/2026/01/03/luke-littler-world-darts-championship-2026/
