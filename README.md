@@ -1,3 +1,19 @@
+**Vance Justifies Capture as Bringing Maduro to Justice**\
+`Mr. Maduro has “multiple indictments in the United States for narcoterrorism,” the vice president said.`\
+https://nytimes.com/2026/01/03/world/americas/jd-vance-nicolas-maduro-venezuela.html
+
+**Judge Convicted of Obstructing Immigration Agents Resigns as Impeachment Looms**\
+`Hannah C. Dugan, a state court judge, was convicted by a jury in federal court. Wisconsin lawmakers called on her to resign from the bench.`\
+https://nytimes.com/2026/01/03/us/hannah-dugan-wisconsin-judge-resigns.html
+
+**‘I Can’t Get Over Just How Good This Was’**\
+`The reader comments on Alexa Weibel’s five-star crispy tofu tacos are ecstatic: “I just finished the last of my leftovers and I want to run out and buy ingredients for another batch ASAP.”`\
+https://nytimes.com/2026/01/03/dining/i-cant-get-over-just-how-good-this-was.html
+
+**An ‘Avoidable Tragedy’: The Hazards That Led to the Swiss Fire Disaster**\
+`The fire that killed at least 40 people in a Swiss bar on New Year’s Day was made more likely by apparent flaws in the site’s design and management, experts say.`\
+https://nytimes.com/2026/01/03/world/europe/switzerland-fire-avoidable-hazards.html
+
 **What did our photographer take to Antarctica? A lot of cables.**\
 `(No description)`\
 https://nytimes.com/live/2025/climate/antarctica-thwaites-glacier/photographer-gear-video
@@ -21,20 +37,4 @@ https://nytimes.com/video/world/americas/100000010622214/maduro-venezuela-us-str
 **Maduro’s Inner Circle Appears to Survive U.S. Strikes on Venezuela**\
 `Vice President Delcy Rodríguez, next in the line of succession, and other top Venezuelan officials issued defiant pronouncements after Mr. Maduro’s capture.`\
 https://nytimes.com/2026/01/03/world/americas/maduro-venezuela-strikes-delcy-rodriguez.html
-
-**What to Know About the Protests in Iran**\
-`Galloping inflation and a currency crisis have provoked demonstrations across the country.`\
-https://nytimes.com/2026/01/03/world/middleeast/iran-protests-inflation-currency.html
-
-**When Life Gives You Limes …**\
-`Make my puckery salted margarita bars, a beach vacation in dessert form.`\
-https://nytimes.com/2026/01/03/dining/when-life-gives-you-limes.html
-
-**In South Florida, Venezuelans Revel in Maduro’s Capture**\
-`In Doral, Fla., where some 40 percent of people are of Venezuelan origin, music blared in celebration early on Saturday.`\
-https://nytimes.com/2026/01/03/world/americas/maduro-capture-florida-venezuelans-celebrations.html
-
-**How to watch Mammoth vs. Devils: Time, TV, streaming**\
-`Find out how to watch the Utah Mammoth play the New Jersey Devils, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6937554/2026/01/03/mammoth-vs-devils-stream-how-to-watch-jan-3/
 

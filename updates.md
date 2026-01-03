@@ -1,3 +1,11 @@
+**What did our photographer take to Antarctica? A lot of cables.**\
+`(No description)`\
+https://nytimes.com/live/2025/climate/antarctica-thwaites-glacier/photographer-gear-video
+
+**Managers of Swiss Bar Are Suspected of Negligence in Deadly Fire, Police Say**\
+`Swiss authorities say the fire was probably sparked by small fireworks on champagne bottles that ignited foam insulation on the bar’s basement ceiling.`\
+https://nytimes.com/2026/01/03/world/europe/swiss-fire-bar-managers-charged.html
+
 **Trump Did Not Seek Congressional Authorization to Capture Maduro**\
 `Democrats raised constitutional concerns and said the Trump administration had misrepresented its goals in Venezuela, while most Republicans cheered the action.`\
 https://nytimes.com/2026/01/03/world/americas/trump-venezuela-congress-authorization.html
