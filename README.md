@@ -1,3 +1,7 @@
+**Before Nicolás Maduro, There Was Manuel Noriega**\
+`The Venezuelan leader is now in U.S. custody. Decades earlier, the United States deposed the strongman who led Panama.`\
+https://nytimes.com/2026/01/03/world/americas/maduro-noriega-panama-venezuela.html
+
 **Airlines are canceling flights after the U.S. closes Caribbean airspace.**\
 `The Federal Aviation Administration cited “safety-of-flight risks” in restricting the U.S.-controlled airspace as a result of the military operation in Venezuela.`\
 https://nytimes.com/live/2026/01/03/world/trump-united-states-strikes-venezuela/flights-canceled-caribbean-faa-venezuela
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/03/world/americas/delcy-rodriguez-maduro-only-presid
 **How to watch Florida vs. Missouri men's basketball: Time, TV, streaming**\
 `Find out how to watch the Florida Gators play the Missouri Tigers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6937923/2026/01/03/florida-vs-missouri-stream-how-to-watch-jan-3/
-
-**How to watch TCU vs. Utah women's basketball: Time, TV, streaming**\
-`Find out how to watch the TCU Horned Frogs play the Utah Utes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6937913/2026/01/03/tcu-vs-utah-stream-how-to-watch-jan-3/
 
