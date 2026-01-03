@@ -1,3 +1,7 @@
+**Corner Piece**\
+`Hannah Slovut-Einertson’s puzzle sets solvers on a cool, themeless pursuit.`\
+https://nytimes.com/2026/01/02/crosswords/daily-puzzle-2026-01-03.html
+
 **The 1.4.25 Issue**\
 ``\
 https://nytimes.com/issue/magazine/2026/01/02/the-1425-issue
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000010621144/mamdani-creates-office-of-
 **Trump Super PAC Raised More Than $100 Million in Recent Months**\
 `The haul highlights how the president’s team has continued aggressive fund-raising from donors with interests before the administration.`\
 https://nytimes.com/2026/01/02/us/politics/trump-super-pac-maga-inc-fundraising.html
-
-**Behind the Scenes With Our Photographer**\
-`“I have a lot of gear.” Our photographer Chang W. Lee describes how he plans to capture the journey to Antarctica from every angle, including from a long-range drone and a sound-triggered camera designed to capture a calving glacier.`\
-https://nytimes.com/video/climate/100000010615476/behind-the-scenes-with-our-photographer.html
 

@@ -1,3 +1,7 @@
+**The 1.4.25 Issue**\
+``\
+https://nytimes.com/issue/magazine/2026/01/02/the-1425-issue
+
 **Mamdani Creates Office to Encourage Public Participation in Government**\
 `Mayor Zohran Mamdani of New York said he hoped to reach communities that had been left out of the process.`\
 https://nytimes.com/2026/01/02/nyregion/mamdani-appointments.html
