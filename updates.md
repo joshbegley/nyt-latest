@@ -1,3 +1,16 @@
+**The anatomy of the Man Utd-Leeds rivalry - featuring three punches and 500 years of bile**\
+`The poison between the two Uniteds is real — as Andy Mitten discovered to his cost on a visit to Elland Road back in 1991`\
+https://nytimes.com/athletic/6931434/2026/01/03/manchester-united-leeds-united-rivalry-history/
+
+**Souleymane Coulibaly interview: Ivory Coast Under-17 star, Tottenham youth, legal disputes and non-League**\
+`The former Spurs youngster has packed a lot into his career and life - he is now playing in England's ninth tier`\
+https://nytimes.com/athletic/6891253/2026/01/03/souleymane-coulibaly-interview-spurs-ivory-coast/
+
+**Rangers' Mika Zibanejad records first hat trick in Winter Classic history**\
+`With five points in a 5-1 win over the Panthers, Zibanejad was awarded "The Cocoa Cup" postgame, given to the MVP at the Winter Classic.
+`\
+https://nytimes.com/athletic/6937067/2026/01/02/mika-zibanejad-rangers-hat-trick-winter-classic/
+
 **How Kazakhstan Aims to Tap More Oil Riches Below Its Grassy Plains**\
 `After spending nearly $50 billion to expand the country’s Tengiz oil field, Chevron and its partners encounter more uncertainty.`\
 https://nytimes.com/2026/01/03/business/chevron-kazakhstan-oil.html

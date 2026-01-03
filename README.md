@@ -1,3 +1,11 @@
+**Forget managers – it's the muddled strategy of Chelsea's owners that is the problem**\
+`After Enzo Maresca became the fifth Chelsea manager to leave since 2022, maybe it's time to scrutinise those appointing them`\
+https://nytimes.com/athletic/6935334/2026/01/03/forget-managers-its-the-muddled-strategy-of-chelseas-owners-that-is-the-problem/
+
+**'My pie looked more like scoring': Our writers pick the worst games they have ever attended**\
+`After the horror of Brentford 0-0 Tottenham, our experts select their personal lowlights from a lifetime watching football`\
+https://nytimes.com/athletic/6935545/2026/01/03/the-athletic-worst-games-attended/
+
 **The anatomy of the Man Utd-Leeds rivalry - featuring three punches and 500 years of bile**\
 `The poison between the two Uniteds is real — as Andy Mitten discovered to his cost on a visit to Elland Road back in 1991`\
 https://nytimes.com/athletic/6931434/2026/01/03/manchester-united-leeds-united-rivalry-history/
@@ -23,19 +31,11 @@ https://nytimes.com/2026/01/03/business/chinese-peptides-silicon-valley.html
 https://nytimes.com/athletic/6936973/2026/01/03/connections-sports-edition-hints-for-jan-3-2026/
 
 **Rangers' Mika Zibanejad records first hat trick in Winter Classic history**\
-`With five points in a 5-1 win over the Panthers, Zibanejad was awarded "The Cocoa Cup" postgame, given to the MVP at the Winter Classic.
+`With 5 points in a 5-1 win over the Panthers, Zibanejad was awarded "The Cocoa Cup" after the game, given to the MVP at the Winter Classic.
 `\
 https://nytimes.com/athletic/6937067/2026/01/02/mika-zibanejad-rangers-hat-trick-winter-classic/
 
 **Diane Crump, First Woman to Ride in Kentucky Derby, Dies at 77**\
 `She was the first professional female jockey to compete at a track in the United States where betting was legal, and notched up 228 career victories.`\
 https://nytimes.com/2026/01/02/obituaries/diane-crump-dead.html
-
-**Casey Dawson, U.S. speed skating medal hopeful, is back for his Olympic 'villain arc'**\
-`Four years ago, Dawson's Olympic plans were disrupted by COVID. Now he's back, with redemption on his mind.`\
-https://nytimes.com/athletic/6937002/2026/01/02/casey-dawson-olympics-usa-speed-skating-5000-meter/
-
-**World Juniors quarterfinals: USA bounced, Canada wins big, Swiss honor fire victims**\
-`The World Juniors semifinals matchups in Minnesota on Sunday are Sweden vs. Finland and Canada vs. Czechia. `\
-https://nytimes.com/athletic/6935543/2026/01/02/world-juniors-2026-canada-usa-quarterfinals/
 
