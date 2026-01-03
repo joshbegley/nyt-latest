@@ -1,3 +1,7 @@
+**Trump Shares an Image of Maduro Blindfolded and Handcuffed**\
+`The Venezuelan president and his wife were flown out of Caracas by helicopter to the U.S.S. Iwo Jima, a warship taking them to New York.`\
+https://nytimes.com/live/2026/01/03/world/trump-united-states-strikes-venezuela/maduro-photo-trump
+
 **Legal Issues Raised by Trump’s Seizure of Maduro, Explained**\
 `The operation revives disputes over the legality of the 1989 Panama intervention, enhanced by President Trump’s vow to “run” Venezuela and Nicolás Maduro’s formal status as president.`\
 https://nytimes.com/2026/01/03/us/maduro-venezuela-trump-legal-issues.html

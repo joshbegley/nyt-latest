@@ -1,3 +1,7 @@
+**Trump Shares an Image of Maduro Blindfolded and Handcuffed**\
+`The Venezuelan president and his wife were flown out of Caracas by helicopter to the U.S.S. Iwo Jima, a warship taking them to New York.`\
+https://nytimes.com/live/2026/01/03/world/trump-united-states-strikes-venezuela/maduro-photo-trump
+
 **Legal Issues Raised by Trump’s Seizure of Maduro, Explained**\
 `The operation revives disputes over the legality of the 1989 Panama intervention, enhanced by President Trump’s vow to “run” Venezuela and Nicolás Maduro’s formal status as president.`\
 https://nytimes.com/2026/01/03/us/maduro-venezuela-trump-legal-issues.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6937826/2026/01/03/kona-takahashi-japan-return-free
 **Maps, Video and Photos: How Maduro’s Capture Unfolded**\
 `On Saturday, U.S. military forces carried out airstrikes in Venezuela and captured the country’s president, Nicolás Maduro. President Trump said he was being taken to New York to face drug and weapons charges.`\
 https://nytimes.com/interactive/2026/01/03/world/americas/maduro-capture-venezuela-strikes-maps.html
-
-**Nuno apologises to West Ham fans after ‘embarrassing’ performance against Wolves**\
-`West Ham are winless in their last nine league games for the first time since 2011.`\
-https://nytimes.com/athletic/6937783/2026/01/03/nuno-west-ham-wolves-reaction/
 
