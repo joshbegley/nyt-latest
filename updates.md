@@ -1,3 +1,7 @@
+**The U.S. Has Been Building Up Forces Off Venezuela for Months**\
+`The United States military’s Southern Command said in December that about 15,000 troops were in the Caribbean region.`\
+https://nytimes.com/2026/01/03/world/americas/us-military-buildup-caribbean-venezuela.html
+
 **Live Updates: U.S. Military Strikes Caracas, Venezuela Says**\
 `A statement attributed to President Nicolás Maduro denounced an “imperialist attack” after explosions were heard at a military base in the Venezuelan capital. The Trump administration has been building pressure on Mr. Maduro for months.`\
 https://nytimes.com/live/2026/01/03/world/trump-united-states-strikes-venezuela

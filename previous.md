@@ -1,3 +1,7 @@
+**The U.S. Has Been Building Up Forces Off Venezuela for Months**\
+`The United States military’s Southern Command said in December that about 15,000 troops were in the Caribbean region.`\
+https://nytimes.com/2026/01/03/world/americas/us-military-buildup-caribbean-venezuela.html
+
 **How to watch Virginia vs. NC State men's basketball: Time, TV, streaming**\
 `Find out how to watch the Virginia Cavaliers play the NC State Wolfpack, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6937274/2026/01/03/virginia-vs-nc-state-stream-how-to-watch-jan-3/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/01/03/world/trump-united-states-strikes-venezuela
 **Wake Forest's Jake Dickert welcomes Duke's mayo bath as MSU suffers in bowl loss**\
 `For the Bulldogs, Friday was one of the few times getting a full-body slathering of mayo would be better than what happened in a 43-29 loss.`\
 https://nytimes.com/athletic/6937134/2026/01/03/dukes-mayo-bowl-wake-forest-mississippi-state/
-
-**Explosions Reported in Venezuela’s Capital**\
-`It was not immediately clear what caused the blasts. The United States has been building pressure on Nicolás Maduro, Venezuela’s authoritarian president, for months.`\
-https://nytimes.com/2026/01/03/world/americas/venezuela-caracas-explosions.html
 
