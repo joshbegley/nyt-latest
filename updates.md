@@ -1,3 +1,7 @@
+**Before Nicolás Maduro, There Was Manuel Noriega**\
+`The Venezuelan leader is now in U.S. custody. Decades earlier, the United States deposed the strongman who led Panama.`\
+https://nytimes.com/2026/01/03/world/americas/maduro-noriega-panama-venezuela.html
+
 **Airlines are canceling flights after the U.S. closes Caribbean airspace.**\
 `The Federal Aviation Administration cited “safety-of-flight risks” in restricting the U.S.-controlled airspace as a result of the military operation in Venezuela.`\
 https://nytimes.com/live/2026/01/03/world/trump-united-states-strikes-venezuela/flights-canceled-caribbean-faa-venezuela
