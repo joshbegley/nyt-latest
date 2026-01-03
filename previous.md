@@ -1,3 +1,7 @@
+**Read the Indictment Against Nicolás Maduro**\
+`The Venezuelan president was accused of narco-terrorism and conspiracy to import cocaine, among other charges. His wife, Cilia Flores, was also charged.`\
+https://nytimes.com/interactive/2026/01/03/nyregion/venezuela-maduro-indictment.html
+
 **Trump Says He Watched Capture of Maduro in Real Time**\
 `President Trump said members of the Army’s Delta Force broke through the doors of a safe house “in a matter of seconds” after practicing the operation using a replica of the structure.`\
 https://nytimes.com/2026/01/03/us/politics/trump-capture-maduro-venezuela.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/03/world/europe/swiss-fire-bar-managers-charged.html
 **Trump Did Not Seek Congressional Authorization to Capture Maduro**\
 `Democrats raised constitutional concerns and said the Trump administration had misrepresented its goals in Venezuela, while most Republicans cheered the action.`\
 https://nytimes.com/2026/01/03/world/americas/trump-venezuela-congress-authorization.html
-
-**Lakers tip off 2026 by extending undefeated record in clutch-time games**\
-`Fueled by tight defense and some big 3s from non-shooters, the Lakers' pushed their record in clutch time to 11-0 this season.`\
-https://nytimes.com/athletic/6937243/2026/01/03/lakers-clutch-time-record-grizzlies/
 
