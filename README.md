@@ -1,40 +1,40 @@
-**In a Phone Interview, Trump Celebrated the Capture of Maduro**\
-`In a call with The New York Times, President Trump called the U.S. operation in Venezuela “brilliant" but did not address whether he had consulted Congress.`\
-https://nytimes.com/2026/01/03/world/americas/in-a-phone-interview-trump-celebrated-the-capture-of-maduro.html
+**NFL Saturday watch guide: Panthers at Bucs, Seahawks at Niners for division titles**\
+`The NFL's last regular-season weekend begins with its most consequential games.`\
+https://nytimes.com/athletic/6936174/2026/01/03/nfl-panthers-buccaneers-seahawks-49ers-how-to-watch/
 
-**'Women's tennis stands on its own': Iga Świątek says 'Battle of the Sexes' was unnecessary**\
-`The six-time Grand Slam champion and world No. 2 described mixed events as better ways of having men and women compete.`\
-https://nytimes.com/athletic/6937300/2026/01/03/tennis-iga-swiatek-battle-sexes-sabalenka-kyrgios/
+**Rangers get needed Winter Classic win, but they must build on it for it to matter**\
+`After a 5-1 win against the Florida Panthers that snapped a three-game winless streak, the Rangers are 6-0 in outdoor games.`\
+https://nytimes.com/athletic/6937141/2026/01/03/rangers-winter-classic-win-panthers/
 
-**Vaccines Are Helping Older People More Than We Knew**\
-`Many shots seem to have “off-target” benefits, such as lowering the risk of dementia, studies have found.`\
-https://nytimes.com/2026/01/03/health/vaccines-dementia-heart-elderly.html
+**Flyers mailbag, part 1: Zegras' future, trade-deadline plans and is there Michkov concern?**\
+`Might Zegras return to center, and what would a contract extension look like?`\
+https://nytimes.com/athletic/6936378/2026/01/03/flyers-zegras-michkov-contract-trade/
 
-**Why Security Guarantees Are So Crucial, and Thorny, for Ukraine**\
-`While Kyiv has reported progress in negotiations, and is accelerating talks in the coming days, major questions remain unresolved about which countries will provide what kind of security for how long.`\
-https://nytimes.com/2026/01/03/world/europe/ukraine-russia-trump-peace-security-guarantees.html
+**Former Blue Jackets GM Jarmo Kekäläinen returns with Sabres, the NHL's hottest team**\
+`Kekäläinen served as the Blue Jackets' general manager for 11 years before his dismissal in February 2024.`\
+https://nytimes.com/athletic/6936654/2026/01/03/blue-jackets-sabres-jarmo-kekalainen-nhl/
 
-**Why Haven’t Trump’s Tariffs Had a Bigger Impact?**\
-`Steep import taxes have raised prices and affected U.S. businesses, but not quite as much as expected. A new report offers some reasons.`\
-https://nytimes.com/2026/01/03/business/economy/trump-tariffs-prices-impact.html
+**NFL Week 18 roundtable: Myles Garrett's final shot, Ravens-Steelers hot seat and more**\
+`Division title games and playoff seeding aside, there is plenty worth following in Week 18. Our writers discuss.`\
+https://nytimes.com/athletic/6936707/2026/01/03/nfl-week-18-garrett-harbaugh-tomlin-division-title-clash/
 
-**Julie Halston Sees Herself in Dorothy Parker**\
-`She stole the show in “And Just Like That …,” but theater is where the actress’s heart lies.`\
-https://nytimes.com/2026/01/03/theater/julie-halston-dorothy-parker.html
+**Someone Made Anonymous Accusations About My Friend. What Should I Do?**\
+`Normally I would listen to my gut, but even my gut is stumped.`\
+https://nytimes.com/2026/01/03/magazine/anonymous-accusations-friend-ethics.html
 
-**Can Your Landlord Charge Extra for Building Amenities?**\
-`Fees for certain improvements and conveniences in rent-stabilized buildings can be allowed. But landlords can’t just charge for anything.`\
-https://nytimes.com/2026/01/03/realestate/landlords-extra-fees.html
+**How Adam Novotny, driven by strength and scoring, became a top 2026 NHL Draft prospect**\
+`When Novotny left for the World Juniors, he was the Peterborough Petes' team leader in goals and points.`\
+https://nytimes.com/athletic/6936305/2026/01/03/adam-novotny-czechia-nhl-draft-2026/
 
-**The Year in Neanderthals**\
-`They drew with crayons, possibly fed on maggots and maybe even kissed us: Forty millenniums later, our ancient human cousins continued to make news.`\
-https://nytimes.com/2026/01/03/science/archaeology-neanderthals-genetics.html
+**A Story of Extraordinary Celebrity and Terrible Exploitation Ends**\
+`The Dionne quintuplets were a global sensation during the Great Depression. The last of the five sisters, Annette, died in December.`\
+https://nytimes.com/2026/01/03/world/canada/dionne-quintuplets-ontario.html
 
-**7 Numbers Shaping Retirement in 2026**\
-`As the new year begins, savings have hit unprecedented levels, but rising health care costs and growing poverty make retirement unaffordable for many.`\
-https://nytimes.com/2026/01/03/business/retirement-savings-2026.html
+**Connections Companion No. 938**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Jan. 4, 2026.`\
+https://nytimes.com/2026/01/03/crosswords/connections-companion-938.html
 
-**5 Workouts for Complete Beginners**\
-`Looking for a new fitness routine this January? Start here.`\
-https://nytimes.com/2026/01/03/well/move/beginner-workout-ideas.html
+**Vikings-Packers analysis: What we're watching in regular-season finale**\
+`The Vikings are playing for pride. The Packers are resting most of their starters. What can be taken from this regular-season finale?`\
+https://nytimes.com/athletic/6936225/2026/01/03/vikings-packers-predictions-analysis-j-j-mccarthy/
 
