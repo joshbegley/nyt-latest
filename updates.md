@@ -1,3 +1,11 @@
+**An Operation in Venezuela**\
+`President Trump announced that U.S. forces had captured Venezuela’s president, Nicolás Maduro, following a “large-scale attack.”`\
+https://nytimes.com/2026/01/03/briefing/an-operation-in-venezuela.html
+
+**Quinn Hughes puts on a show to lift the Wild to latest beatdown of Anaheim: Takeaways**\
+`Hughes had four assists on Friday night, setting a new mark for Wild defensemen in his 10th game with the team.`\
+https://nytimes.com/athletic/6937057/2026/01/03/wild-ducks-quinn-hughes-takeaways/
+
 **Esto es lo más reciente**\
 `El presidente Donald Trump anunció que las fuerzas estadounidenses habían llevado a cabo “un ataque a gran escala contra Venezuela” y estaban sacando del país al presidente Maduro y a su esposa.`\
 https://nytimes.com/live/2026/01/03/espanol/venezuela-estados-unidos-maduro-trump/esto-es-lo-mas-reciente

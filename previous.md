@@ -1,3 +1,11 @@
+**An Operation in Venezuela**\
+`President Trump announced that U.S. forces had captured Venezuela’s president, Nicolás Maduro, following a “large-scale attack.”`\
+https://nytimes.com/2026/01/03/briefing/an-operation-in-venezuela.html
+
+**Quinn Hughes puts on a show to lift the Wild to latest beatdown of Anaheim: Takeaways**\
+`Hughes had four assists on Friday night, setting a new mark for Wild defensemen in his 10th game with the team.`\
+https://nytimes.com/athletic/6937057/2026/01/03/wild-ducks-quinn-hughes-takeaways/
+
 **Esto es lo más reciente**\
 `El presidente Donald Trump anunció que las fuerzas estadounidenses habían llevado a cabo “un ataque a gran escala contra Venezuela” y estaban sacando del país al presidente Maduro y a su esposa.`\
 https://nytimes.com/live/2026/01/03/espanol/venezuela-estados-unidos-maduro-trump/esto-es-lo-mas-reciente
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6937366/2026/01/03/oklahoma-state-vs-texas-tech-str
 **How to watch Vanderbilt vs. South Carolina men's basketball: Time, TV, streaming**\
 `Find out how to watch the Vanderbilt Commodores play the South Carolina Gamecocks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6937364/2026/01/03/vanderbilt-vs-south-carolina-stream-how-to-watch-jan-3/
-
-**How to watch Houston vs. Cincinnati men's basketball: Time, TV, streaming**\
-`Find out how to watch the Houston Cougars play the Cincinnati Bearcats, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6937360/2026/01/03/houston-vs-cincinnati-stream-how-to-watch-jan-3/
-
-**How to watch Kansas vs. UCF men's basketball: Time, TV, streaming**\
-`Find out how to watch the Kansas Jayhawks play the UCF Knights, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6937345/2026/01/03/kansas-vs-ucf-stream-how-to-watch-jan-3/
 
