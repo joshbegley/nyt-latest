@@ -18,7 +18,7 @@ https://nytimes.com/athletic/6937115/2026/01/03/suns-win-kings-oso-ighodaro-coll
 `Here are the biggest unknowns the DealBook team will be watching as we cover business and the economy this year.`\
 https://nytimes.com/2026/01/03/business/dealbook/2026-economy-business.html
 
-**Donald Trump’s Attack on Venezuela Is Illegal and Unwise**\
+**Trump’s Attack on Venezuela Is Illegal and Unwise**\
 `We know that Mr. Trump’s warmongering violates the law.`\
 https://nytimes.com/2026/01/03/opinion/venezuela-attack-trump-us.html
 

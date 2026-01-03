@@ -1,3 +1,7 @@
+**Trump’s Attack on Venezuela Is Illegal and Unwise**\
+`We know that Mr. Trump’s warmongering violates the law.`\
+https://nytimes.com/2026/01/03/opinion/venezuela-attack-trump-us.html
+
 **Taylor Fritz's shock defeat to Sebástian Báez leaves Coco Gauff with work to do at United Cup**\
 `The world No. 3 had previously never lost a set to the Argentine, who is a fixture of the ATP top 50.`\
 https://nytimes.com/athletic/6937413/2026/01/03/taylor-fritz-united-cup-sebastian-baez-result-analysis/
