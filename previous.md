@@ -1,3 +1,23 @@
+**Mamdani Acts on Vow to Protect Renters With Move Against a Big Landlord**\
+`Mayor Zohran Mamdani said New York City would intervene in the Pinnacle Group’s bankruptcy case. Tenants have long complained about living conditions in the company’s properties.`\
+https://nytimes.com/2026/01/03/nyregion/mamdani-pinnacle-housing.html
+
+**Brighton coach Hurzeler wants more from Yankuba Minteh**\
+`Minteh has recorded one goal and four assist in 19 Premier League games this season.`\
+https://nytimes.com/athletic/6935942/2026/01/03/yankuba-minteh-brighton-hurzeler/
+
+**Whales Are in Danger in N.Y. Waterways: ‘Like Deer Crossing the Road’**\
+`As conservation efforts make the waters in the New York region more inviting for whales, increasing traffic from ships and boats has contributed to a climbing number of strandings.`\
+https://nytimes.com/2026/01/03/nyregion/new-york-whales-threat-waterways.html
+
+**How a ‘Nutcracker’ Ballerina Spends a Day of Business and Dance**\
+`Jenelle Manzi started a nutrition company while performing with New York City Ballet. Now she’s doing her makeup in cabs and taking Zoom meetings as she sews pointe shoes.`\
+https://nytimes.com/2026/01/03/nyregion/jenelle-manzi-nyc-ballet.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/01/03/crosswords/spelling-bee-forum.html
+
 **Here’s the latest.**\
 `By Anatoly Kurmanaev`\
 https://nytimes.com/live/2026/01/03/world/trump-united-states-strikes-venezuela/heres-the-latest
@@ -17,24 +37,4 @@ https://nytimes.com/2026/01/03/world/americas/venezuela-caracas-explosions.html
 **Ex-MLB star Lenny Dykstra faces charges after drugs allegedly found in truck**\
 `Dykstra was arrested on suspicion of possessing narcotics and narcotic-related equipment while being a passenger in a truck, police said.`\
 https://nytimes.com/athletic/6936989/2026/01/03/lenny-dykstra-drugs-charges-mets-phillies/
-
-**The New York Times in Print for Saturday, Jan. 3, 2026**\
-``\
-https://nytimes.com/issue/todayspaper/2026/01/03/todays-new-york-times
-
-**The SCG is a graveyard for English Test careers — but there is still joy to be found in the debris**\
-`Scott Borthwick and Mason Crane both played their only Test matches in Sydney, where too many England careers have fizzled out prematurely`\
-https://nytimes.com/athletic/6928374/2026/01/03/england-scg-borthwick-crane-graveyard-ashes/
-
-**Australia and England to leave it late before naming teams for Ashes finale**\
-`Steve Smith and Ben Stokes are weighing up their selections as they attempt to read the pitch conditions ahead of the fifth Test in Sydney`\
-https://nytimes.com/athletic/6937188/2026/01/03/australia-england-ashes-sydney-toss-pitch/
-
-**Lenny Dykstra Faces Charges After Police Find Drugs During Traffic Stop**\
-`The Pennsylvania police did not say what charges would be filed against the former baseball star. His lawyer said the drugs were not Mr. Dykstra’s.`\
-https://nytimes.com/2026/01/03/us/lenny-dykstra-drugs-charges.html
-
-**Nebraska off to another perfect start with narrow win over Michigan State**\
-`The Huskers started 2026 as they ended 2025: with a perfect record in men's basketball.`\
-https://nytimes.com/athletic/6937093/2026/01/03/nebraska-basketball-perfect-start-michigan-state-win/
 
