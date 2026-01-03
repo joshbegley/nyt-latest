@@ -1,3 +1,7 @@
+**Joe Burrow's sideline waffle is the latest surprising athletes' snack**\
+`Unique snacks are part of a long tradition of athletes experimenting with different refueling options during games.`\
+https://nytimes.com/athletic/6930813/2026/01/02/joe-burrow-waffle-athletes-snacks/
+
 **Harrowing Videos Show the Swiss Bar Fire’s Rapid Spread**\
 `Videos shared on social media and verified by The New York Times show how the blaze quickly tore through a popular bar during a New Year’s celebration in the Alps, killing at least 40 people and injuring more than a hundred others.`\
 https://nytimes.com/video/world/europe/100000010620971/switzerland-ski-resort-fire-videos.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6936625/2026/01/02/wild-olympics-wallstedt-johansso
 **Ole Miss backup QB planning to transfer but will stay on through CFP: Reports**\
 `Early reports indicate that Missouri is the team to watch in the race for Simmons.`\
 https://nytimes.com/athletic/6936649/2026/01/02/austin-simmons-transfer-ole-miss-quarterbacks/
-
-**Your Antarctica Questions, Answered**\
-`Our reporter Raymond Zhong takes a first round of questions about the trip to Antarctica. First up: How can data gathered on the trip tell us how much time is left for the glaciers?`\
-https://nytimes.com/video/climate/100000010617323/your-antarctica-questions-answered.html
 

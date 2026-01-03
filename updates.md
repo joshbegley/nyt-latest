@@ -1,3 +1,7 @@
+**Joe Burrow's sideline waffle is the latest surprising athletes' snack**\
+`Unique snacks are part of a long tradition of athletes experimenting with different refueling options during games.`\
+https://nytimes.com/athletic/6930813/2026/01/02/joe-burrow-waffle-athletes-snacks/
+
 **Harrowing Videos Show the Swiss Bar Fire’s Rapid Spread**\
 `Videos shared on social media and verified by The New York Times show how the blaze quickly tore through a popular bar during a New Year’s celebration in the Alps, killing at least 40 people and injuring more than a hundred others.`\
 https://nytimes.com/video/world/europe/100000010620971/switzerland-ski-resort-fire-videos.html
