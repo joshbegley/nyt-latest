@@ -1,3 +1,11 @@
+**Seahawks' defense snuffs out 49ers to claim NFC's top seed, playoff bye**\
+`The Seahawks held the 49ers to only 173 yards and three points to win the NFC West and secure home-field advantage throughout the playoffs.`\
+https://nytimes.com/athletic/6938392/2026/01/03/seahawks-49ers-score-result-takeaways-nfc-west/
+
+**NFL Week 18 playoff scenarios: With NFC West settled, what's next?**\
+`A look at which teams still have a shot at home-field advantage or a bye in the first round of the NFL playoffs.`\
+https://nytimes.com/athletic/6936896/2026/01/03/nfl-playoffs-scenarios-matchups-seed-team-week-18-nfc-west/
+
 **Anthony Edwards, Timberwolves reconnect in Miami to halt slide and restore belief**\
 `After losing three of their last four, Edwards and the Timberwolves responded with a statement win in Miami.`\
 https://nytimes.com/athletic/6938117/2026/01/03/edwards-timberwolves-overcoming-frustrations-nba-trade-deadline/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/03/world/americas/venezuela-maduro-approval-trump.ht
 **Sabres' winning streak ends at 10 games. How will they respond?**\
 `Buffalo needs to make sure its 5-1 loss to the Blue Jackets is just a blip and not the start of a slide.`\
 https://nytimes.com/athletic/6938258/2026/01/03/sabres-winning-streak-blue-jackets/
-
-**Maduro’s Final Plea: ‘No War. Yes Peace.’**\
-`Days before he was captured, Nicolás Maduro expounded on his precarious position — and tried to offer an olive branch to President Trump.`\
-https://nytimes.com/2026/01/03/world/americas/maduro-last-interview-before-capture.html
-
-**Americans turn out for protests in Chicago and Washington.**\
-`Opponents of the U.S. intervention in Venezuela called it illegal and warned of a widening war. Supporters celebrated an authoritarian president’s fall.`\
-https://nytimes.com/live/2026/01/03/world/trump-maduro-venezuela-us-strikes/venezuela-chicago-washington-protests
 
