@@ -1,3 +1,7 @@
+**Luke Littler is on the path to greatness: 'I'll be around for a very long time'**\
+`Luke Littler emphatically retained his world title and can now be regarded as an all-time great of his sport`\
+https://nytimes.com/athletic/6938693/2026/01/04/luke-littler-pdc-darts-world-championship-analysis/
+
 **After throttling the 49ers, the Seahawks had something to say about Sam Darnold**\
 `Sam Darnold's unflappable performance in the Seahawks' season-closing win over the 49ers should permanently retire his big-game stigma.`\
 https://nytimes.com/athletic/6938854/2026/01/04/sam-darnold-seahawks-49ers-big-games/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/04/opinion/dancing-happiness-new-year.html
 **49ers' inescapable flaw grows more glaring, an ominous sign for playoffs**\
 `The likeliest playoff scenario has the linebacker-needy 49ers traveling to play the Eagles, who are built a lot like the Seahawks.`\
 https://nytimes.com/athletic/6938641/2026/01/04/49ers-seahawks-run-defense-injuries-linebackers/
-
-**‘The Daily’ goes inside the U.S. raid in Venezuela.**\
-`By The New York Times`\
-https://nytimes.com/live/2026/01/04/world/trump-us-venezuela-maduro/the-daily-goes-inside-the-us-raid-in-venezuela
 
