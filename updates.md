@@ -1,3 +1,23 @@
+**Easy Does It**\
+`Our new collection of healthy dinner recipes is full of doable, delicious recipes to make on repeat, like this ginger chicken and rice soup with zucchini.`\
+https://nytimes.com/2026/01/04/dining/easy-does-it.html
+
+**Yemeni Forces, Backed by Saudi Arabia, Reclaim Territory From Separatists**\
+`An offensive by Yemeni government-allied forces appeared to turn the tide in a conflict that has become a proxy clash between Saudi Arabia and the United Arab Emirates.`\
+https://nytimes.com/2026/01/04/world/middleeast/yemeni-forces-backed-by-saudi-arabia-reclaim-territory-from-separatists.html
+
+**Healthy Sixers lineup seeing positive results: 3 straight road games, 3 wins**\
+`The 76ers are riding a three-game winning streak, with all of the victories on the road. The team is healthy and finding more rhythm.`\
+https://nytimes.com/athletic/6938547/2026/01/04/sixers-nba-health-embiid-edgecombe-maxey/
+
+**Lowetide: How Oilers, and NHL, could effectively use ECHL for development**\
+`There's no doubt that talented hockey players who turn pro would be best served by playing a lot.`\
+https://nytimes.com/athletic/6937786/2026/01/04/oilers-nhl-echl-development-league/
+
+**Would a format change help the CFP's rest vs. rust problem?**\
+`With no easy way to address the long layoffs within the current calendar, saying buh-bye to the byes might be the best way to go.`\
+https://nytimes.com/athletic/6938319/2026/01/04/college-football-playoff-first-round-byes/
+
 **Huijsen in contention for Madrid return in Supercopa de Espana**\
 `The defender missed Sunday's home game against Real Betis with a minor injury.`\
 https://nytimes.com/athletic/6939147/2026/01/04/dean-huijsen-real-madrid-injury/
