@@ -1,3 +1,7 @@
+**Jordan Stolz fell in his first race at the U.S. Olympic trials. But it's nothing to sweat**\
+`A new rule assured Stolz, U.S. speed skating's biggest star, was already a lock for the Olympics. Saturday showed the wisdom of that call.`\
+https://nytimes.com/athletic/6938307/2026/01/03/jordan-stolz-us-olympic-trials-fall-1000-meter/
+
 **Jordan Stolz fell in his first race at U.S. Olympic trials. But it's nothing to sweat**\
 `A new rule assured Stolz, U.S. speed skating's biggest star, was already a lock for the Olympics. Saturday showed the wisdom of that call.`\
 https://nytimes.com/athletic/6938307/2026/01/03/jordan-stolz-us-olympic-trials-fall-1000-meter/
