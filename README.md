@@ -1,3 +1,7 @@
+**How to watch Miami (FL) vs. Ole Miss: CFP Semifinal Start Time, TV, streaming**\
+`Find out how to watch the Miami (FL) Hurricanes play the Ole Miss Rebels, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6938402/2026/01/03/miami-fl-vs-ole-miss-stream-how-to-watch-jan-8/
+
 **Rockets' Alperen Şengün leaves game vs. Mavericks with sprained ankle**\
 `The All-Star center was injured a little more than one minute into Saturday's game for Houston, which was already missing Steven Adams.`\
 https://nytimes.com/athletic/6938325/2026/01/03/rockets-alperen-sengun-injury-status-ankle-sprain/
@@ -28,13 +32,9 @@ https://nytimes.com/athletic/6937420/2026/01/03/auston-matthews-maple-leafs-goal
 
 **Venezuelan asylum seekers worry about what comes next.**\
 `For many, the removal of the Venezuelan leader Nicolás Maduro has not eased uncertainty about their immigration status in the United States.`\
-https://nytimes.com/live/2026/01/03/world/trump-united-states-strikes-venezuela/venezuela-asylum-seekers
+https://nytimes.com/live/2026/01/03/world/trump-maduro-venezuela-us-strikes/venezuela-asylum-seekers
 
 **Bucs and Panthers must wait another day to know playoff fate: Takeaways**\
 `Carolina failed to clinch so both teams will be watching the Saints-Falcons on Sunday to determine the NFC South winner.`\
 https://nytimes.com/athletic/6938230/2026/01/03/panthers-buccaneers-score-result-takeaways-nfc-south/
-
-**Blue Jackets dial up checking to snap Sabres' 10-game win streak**\
-`Columbus made quick work of Buffalo, relying on five goal scorers and a sterling outing by goaltender Jet Greaves to win 5-1.`\
-https://nytimes.com/athletic/6938218/2026/01/03/blue-jackets-sabres-win-streak/
 
