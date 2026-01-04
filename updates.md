@@ -1,3 +1,7 @@
+**The Briefing: Fulham 2 Liverpool 2 - A stunning late leveller, offside calls, Wirtz scores again**\
+`Fulham come from behind to score a late leveller to deny Liverpool victory at Craven Cottage `\
+https://nytimes.com/athletic/6928592/2026/01/04/fulham-2-liverpool-2-wirtz-gakpo-reed/
+
 **The Briefing: Tottenham 1 Sunderland 1 - Rare Davies goal, Kudus injury and frustration for Frank**\
 `Elias Burke analyses the main talking points from Tottenham's draw against Sunderland`\
 https://nytimes.com/athletic/6929509/2026/01/04/tottenham-sunderland-analysis-premier-league/
