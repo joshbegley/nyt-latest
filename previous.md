@@ -1,3 +1,7 @@
+**Yankees looking into trading for Marlins starter Edward Cabrera: Sources**\
+`The Yankees are also looking into acquiring Milwaukee's Freddy Peralta as they look to add at least one more starting pitcher.`\
+https://nytimes.com/athletic/6939550/2026/01/04/yankees-interest-edward-cabrera-marlins/
+
 **The Briefing: Fulham 2 Liverpool 2 - A stunning late leveller, offside calls, Wirtz scores again**\
 `Fulham come from behind to score a late leveller to deny Liverpool victory at Craven Cottage `\
 https://nytimes.com/athletic/6928592/2026/01/04/fulham-2-liverpool-2-wirtz-gakpo-reed/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6939452/2026/01/04/golden-knights-vs-blackhawks-str
 **How to watch Timberwolves vs. Wizards: Time, TV, streaming**\
 `Find out how to watch the Minnesota Timberwolves play the Washington Wizards, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6939450/2026/01/04/timberwolves-vs-wizards-stream-how-to-watch-jan-4/
-
-**How to watch Hurricanes vs. Devils: Time, TV, streaming**\
-`Find out how to watch the Carolina Hurricanes play the New Jersey Devils, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6939448/2026/01/04/hurricanes-vs-devils-stream-how-to-watch-jan-4/
 

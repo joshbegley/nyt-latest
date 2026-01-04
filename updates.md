@@ -1,3 +1,7 @@
+**Yankees looking into trading for Marlins starter Edward Cabrera: Sources**\
+`The Yankees are also looking into acquiring Milwaukee's Freddy Peralta as they look to add at least one more starting pitcher.`\
+https://nytimes.com/athletic/6939550/2026/01/04/yankees-interest-edward-cabrera-marlins/
+
 **The Briefing: Fulham 2 Liverpool 2 - A stunning late leveller, offside calls, Wirtz scores again**\
 `Fulham come from behind to score a late leveller to deny Liverpool victory at Craven Cottage `\
 https://nytimes.com/athletic/6928592/2026/01/04/fulham-2-liverpool-2-wirtz-gakpo-reed/
