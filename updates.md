@@ -1,3 +1,11 @@
+**Auston Matthews passes Mats Sundin for Maple Leafs goals record**\
+`Matthews passed Sundin in just 664 games, 317 fewer than the 981 Sundin played for the Leafs.`\
+https://nytimes.com/athletic/6937420/2026/01/03/auston-matthews-maple-leafs-goals-record/
+
+**Bucs and Panthers must wait another day to know playoff fate: Takeaways**\
+`Carolina failed to clinch so both teams will be watching the Saints-Falcons on Sunday to determine the NFC South winner.`\
+https://nytimes.com/athletic/6938230/2026/01/03/panthers-buccaneers-score-result-takeaways-nfc-south/
+
 **Maduro’s Final Plea: ‘No War. Yes Peace.’**\
 `Days before he was captured, Nicolás Maduro expounded on his precarious position — and tried to offer an olive branch to President Trump.`\
 https://nytimes.com/2026/01/03/world/americas/maduro-last-interview-before-capture.html
