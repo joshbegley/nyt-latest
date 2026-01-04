@@ -1,3 +1,27 @@
+**For Mamdani, a Break With the President Just Three Days Into His New Job**\
+`New York City’s newly elected mayor planned to spend Saturday announcing a pedestrian safety plan. Then President Trump brought a captured foreign leader to his doorstep.`\
+https://nytimes.com/2026/01/04/nyregion/mamdani-trump-maduro-venezuela-nyc.html
+
+**Subway and Bus Fare Rises to $3 in New York City on Sunday**\
+`Fares will also increase on the Long Island Rail Road and Metro-North Railroad, as will tolls at several of the city’s bridges and tunnels.`\
+https://nytimes.com/2026/01/04/nyregion/nyc-subway-bus-fare-increase.html
+
+**The Birth of The Times**\
+`A prospectus in 1851 announced the arrival of a daily newspaper you might be familiar with.`\
+https://nytimes.com/2026/01/04/insider/the-birth-of-the-times.html
+
+**‘He Thrust the Lemon Toward Me as if It Were a Bouquet’**\
+`Self-service on a lazy day, fair fruit trade on the Upper West Side and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2026/01/04/nyregion/metropolitan-diary.html
+
+**Ambassador Kimberly Guilfoyle, the Talk of Athens**\
+`The former fiancée of Donald Trump Jr., and the former wife of Gov. Gavin Newsom, is working hard and pushing deals with American business interests. She’s also up late at parties.`\
+https://nytimes.com/2026/01/04/world/europe/kimberly-guilfoyle-trump-greece-ambassador.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/01/04/crosswords/spelling-bee-forum.html
+
 **What to know with Myles Garrett 1 sack from breaking NFL's single-season record**\
 `With one sack against the Bengals, Garrett can break the single-season record of 22.5 shared by Michael Strahan and T.J. Watt. `\
 https://nytimes.com/athletic/6921912/2026/01/04/myles-garrett-single-season-sacks-record/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6926660/2026/01/04/ashes-england-australia-root-bro
 **The New York Times in Print for Sunday, Jan. 4, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/01/04/todays-new-york-times
-
-**This Is What Venezuelans Really Want**\
-`We have long faced a brutal paradox: an absent yet omnipotent state.`\
-https://nytimes.com/2026/01/04/opinion/venezuela-maduro-trump-people.html
-
-**Mirtle: Forget 1967. Auston Matthews' latest feat should be celebrated for what it is**\
-`It's worth hitting pause on the angst around Toronto to appreciate the accomplishment of Matthews becoming its all-time leading goal scorer.`\
-https://nytimes.com/athletic/6938445/2026/01/04/maple-leafs-auston-matthews-goals-record-nhl/
-
-**Why the rise of Mateus Mane offers Wolves new hope in 2026 and beyond**\
-`The talented youngster – who scored in Saturday's win against West Ham – is contracted to his club until 2029`\
-https://nytimes.com/athletic/6937957/2026/01/04/mateus-mane-wolves-rise/
-
-**How Villa passed a frustrating test all Premier League title contenders must face**\
-`Low-block opponents must be patiently unpicked by elite sides - just as Unai Emery's team did against Nottingham Forest on Saturday`\
-https://nytimes.com/athletic/6938036/2026/01/04/aston-villa-test-low-block-premier-league/
-
-**The return of Matz Sels can help Nottingham Forest rediscover the spirit of 2024-25**\
-`With a huge game at fellow strugglers West Ham on Tuesday, it's time to utilise the defensive unit who shone so brightly last season`\
-https://nytimes.com/athletic/6937943/2026/01/04/forest-goalkeepers-dyche-sels-john-victor/
-
-**Pepsi, Budweiser and how Everton are using Hill Dickinson Stadium to build their brand**\
-`Everton's shiny new stadium is allowing them to leverage new commercial opportunities that previously wouldn't have been possible`\
-https://nytimes.com/athletic/6911179/2026/01/04/everton-hill-dickinson-budweiser-pepsi/
 
