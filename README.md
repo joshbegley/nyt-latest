@@ -1,3 +1,7 @@
+**Week 18 NFL top storylines: Conference seeding, final playoff spots, Black Monday and more**\
+`Playoff matchups, seedings and much more are all at stake on the final day of the NFL regular season.`\
+https://nytimes.com/athletic/6934211/2026/01/04/week-18-nfl-storylines-playoffs-black-monday/
+
 **The New York Times International Edition in Print for Monday, Jan. 5, 2026**\
 ``\
 https://nytimes.com/issue/todaysinyt/2026/01/04/todays-new-york-times-international-edition
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/04/insider/how-the-times-assessed-maduro-photos.html
 **Maduro, in Previous Stints in New York, Sought to Connect with Harlem**\
 `The self-described socialist leader tried to tie the Latin American fight against imperialism with the struggle of Black Americans against racism.`\
 https://nytimes.com/2026/01/04/nyregion/maduro-earlier-nyc-visit.html
-
-**Ukrainian Politics Has Reawakened. Zelensky Must Tread Carefully.**\
-`The Ukrainian leader is reshuffling his cabinet as a corruption scandal reshapes the political landscape at a pivotal point in peace negotiations.`\
-https://nytimes.com/2026/01/04/world/europe/ukraine-politics-cabinet-zelensky.html
 
