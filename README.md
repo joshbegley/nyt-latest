@@ -1,9 +1,13 @@
+**Saints-Falcons takeaways: Atlanta beats New Orleans to give NFC South win to Carolina**\
+`Atlanta's win created a three-way tie for the top of the NFC South, which the Panthers won on a tiebreaker.`\
+https://nytimes.com/athletic/6939684/2026/01/04/saints-falcons-score-result-takeaways-nfc-south-champion/
+
 **Jaguars guaranteed top-3 playoff seed after rout of Titans: Takeaways**\
 `Jaguars enter playoffs as one of the NFL's hottest teams with eight straight wins.`\
 https://nytimes.com/athletic/6939655/2026/01/04/titans-jaguars-score-result-takeaways-nfl-week-18/
 
 **Penn State landing ex-Iowa State QB Rocco Becht as transfer: Source**\
-`Becht’s numbers dipped this past season after Iowa State lost two receivers to the 2025 NFL Draft`\
+`Becht’s numbers dipped this past season after Iowa State lost two receivers to the 2025 NFL Draft.`\
 https://nytimes.com/athletic/6933796/2026/01/04/rocco-becht-penn-state-quarterback-transfer-iowa-state/
 
 **Chris Ballard has had long enough to fix the Colts. His time should be up.**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6938314/2026/01/04/raiders-no-1-pick-2026-nfl-draft
 **Strasbourg's Rosenior flies to London for Chelsea talks**\
 `The 41-year-old has previously held managerial positions at Derby County, on an interim basis, and Hull City. `\
 https://nytimes.com/athletic/6934475/2026/01/04/liam-rosenior-chelsea-manager-news/
-
-**Myles Garrett breaks NFL's single-season sacks record**\
-`Garrett broke the previous record of 22.5 that was shared by Michael Strahan and T.J. Watt. `\
-https://nytimes.com/athletic/6908796/2026/01/04/myles-garrett-single-season-sack-record-browns/
 

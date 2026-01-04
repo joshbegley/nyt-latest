@@ -1,3 +1,11 @@
+**Jaguars guaranteed top-3 playoff seed after rout of Titans: Takeaways**\
+`Jaguars enter playoffs as one of the NFL's hottest teams with eight straight wins.`\
+https://nytimes.com/athletic/6939655/2026/01/04/titans-jaguars-score-result-takeaways-nfl-week-18/
+
+**Penn State landing ex-Iowa State QB Rocco Becht as transfer: Source**\
+`Becht’s numbers dipped this past season after Iowa State lost two receivers to the 2025 NFL Draft`\
+https://nytimes.com/athletic/6933796/2026/01/04/rocco-becht-penn-state-quarterback-transfer-iowa-state/
+
 **Chris Ballard has had long enough to fix the Colts. His time should be up.**\
 `Ballard has had nine years to turn the Colts into a contender. He's failed every time. `\
 https://nytimes.com/athletic/6939670/2026/01/04/colts-chris-ballard-fired-carlie-irsay-gordon/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6934475/2026/01/04/liam-rosenior-chelsea-manager-ne
 **Myles Garrett breaks NFL's single-season sacks record**\
 `Garrett broke the previous record of 22.5 that was shared by Michael Strahan and T.J. Watt. `\
 https://nytimes.com/athletic/6908796/2026/01/04/myles-garrett-single-season-sack-record-browns/
-
-**Vikings QB J.J. McCarthy leaves game with apparent hand injury**\
-`The second-year quarterback left Sunday's game early in the third quarter with what appeared to be a reaggravated hand injury. `\
-https://nytimes.com/athletic/6939839/2026/01/04/jj-mccarthy-vikings-hand-injury-packers/
-
-**Venezuelans in Colombia Rejoice, but Are Not Ready to Rush Back Home**\
-`“I had utterly lost hope,” said one Venezuelan who has lived in exile from his country for seven years.`\
-https://nytimes.com/2026/01/04/world/americas/venezuelan-exiles-maduro.html
 
