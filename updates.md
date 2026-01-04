@@ -1,3 +1,11 @@
+**‘What Will Happen Tomorrow?’ Venezuelans Fear Chaos After U.S. Attack**\
+`Nicolás Maduro was deeply unpopular. But those who opposed him worry that U.S. intervention may reap further instability.`\
+https://nytimes.com/2026/01/03/world/americas/venezuela-maduro-approval-trump.html
+
+**Americans turn out for protests in Chicago and Washington.**\
+`Opponents of the U.S. intervention in Venezuela called it illegal and warned of a widening war. Supporters celebrated an authoritarian president’s fall.`\
+https://nytimes.com/live/2026/01/03/world/trump-maduro-venezuela-us-strikes/venezuela-chicago-washington-protests
+
 **Sabres' winning streak ends at 10 games. How will they respond?**\
 `Buffalo needs to make sure its 5-1 loss to the Blue Jackets is just a blip and not the start of a slide.`\
 https://nytimes.com/athletic/6938258/2026/01/03/sabres-winning-streak-blue-jackets/
