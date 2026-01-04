@@ -1,8 +1,16 @@
+**Celtics' Jordan Walsh believes he must do more to regain rotation spot**\
+`After the win against Sacramento, Joe Mazzulla said moving away from Walsh at halftime was not because of anything he’s doing wrong.`\
+https://nytimes.com/athletic/6938408/2026/01/03/jordan-walsh-out-rotation-celtics-clippers/
+
+**Surging Blackhawks hope Bedard, Nazar return to a reinvented, more versatile team**\
+`Without Bedard and Nazar, the Blackhawks have been trying to reinvent themselves as a team that grinds out low-scoring victories.`\
+https://nytimes.com/athletic/6938447/2026/01/03/blackhawks-capitals-connor-bedard-frank-nazar-injuries/
+
 **Panthers miss another chance to clinch, blame themselves for being in this position**\
 `A couple questionable officiating calls didn't help the Panthers, but neither did their lack of a run game and a botched flea flicker.`\
 https://nytimes.com/athletic/6938428/2026/01/03/panthers-lose-playoffs-nfc-south-bucs/
 
-**Seahawks' defense snuffs out 49ers to claim NFC's top seed, playoff bye**\
+**Seahawks' defense snuffs out 49ers to claim NFC's top seed, playoff bye: Takeaways**\
 `The Seahawks held the 49ers to only 173 yards and three points to win the NFC West and secure home-field advantage throughout the playoffs.`\
 https://nytimes.com/athletic/6938392/2026/01/03/seahawks-49ers-score-result-takeaways-nfc-west/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6938402/2026/01/03/miami-fl-vs-ole-miss-stream-how-
 **Rockets' Alperen Şengün leaves game vs. Mavericks with sprained ankle**\
 `The All-Star center was injured a little more than one minute into Saturday's game for Houston, which was already missing Steven Adams.`\
 https://nytimes.com/athletic/6938325/2026/01/03/rockets-alperen-sengun-injury-status-ankle-sprain/
-
-**Heavy Rain and King Tides Cause Flooding in California**\
-`Highways were blocked and a regional airport shut down on Saturday when the latest in a long run of drenching rainstorms coincided with especially high tides.`\
-https://nytimes.com/2026/01/03/us/california-flood-mudslide-santa-barbara.html
-
-**‘What Will Happen Tomorrow?’ Venezuelans Fear Chaos After U.S. Attack**\
-`Nicolás Maduro was deeply unpopular. But those who opposed him worry that U.S. intervention may reap further instability.`\
-https://nytimes.com/2026/01/03/world/americas/venezuela-maduro-approval-trump.html
 
