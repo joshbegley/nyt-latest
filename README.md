@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Monday, Jan. 5, 2026**\
+``\
+https://nytimes.com/issue/todaysinyt/2026/01/04/todays-new-york-times-international-edition
+
 **How to watch Missouri vs. Kentucky women's basketball: Time, TV, streaming**\
 `Find out how to watch the Missouri Tigers play the Kentucky Wildcats, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6938819/2026/01/04/missouri-vs-kentucky-stream-how-to-watch-jan-4/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/04/nyregion/maduro-earlier-nyc-visit.html
 **Ukrainian Politics Has Reawakened. Zelensky Must Tread Carefully.**\
 `The Ukrainian leader is reshuffling his cabinet as a corruption scandal reshapes the political landscape at a pivotal point in peace negotiations.`\
 https://nytimes.com/2026/01/04/world/europe/ukraine-politics-cabinet-zelensky.html
-
-**Inside Mamdani’s Decision to Revoke Executive Orders That Backed Israel**\
-`Mr. Mamdani, a staunch critic of Israel and its treatment of Palestinians, knew he would not extend the orders, but he had to decide how and when he would rescind them.`\
-https://nytimes.com/2026/01/04/nyregion/mamdani-revoke-israel-orders.html
 
