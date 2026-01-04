@@ -1,3 +1,7 @@
+**Myles Garrett breaks sacks record, Browns win season finale vs. Bengals**\
+`With two defensive touchdowns, the Browns earned a 20-18 win over their division rivals and finished the season 5-12.`\
+https://nytimes.com/athletic/6939515/2026/01/04/browns-bengals-score-result-takeaways-myles-garrett-sack-record/
+
 **Cowboys-Giants takeaways: Jaxson Dart guides New York to season-ending win**\
 `New York ended its season with two straight wins, while Dallas lost four of its last five games.`\
 https://nytimes.com/athletic/6939569/2026/01/04/cowboys-giants-score-result-takeaways-nfl-week-18/

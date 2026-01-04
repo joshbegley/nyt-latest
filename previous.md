@@ -19,7 +19,7 @@ https://nytimes.com/interactive/2026/01/04/espanol/venezuela-maduro-indictment-E
 https://nytimes.com/2026/01/04/opinion/putin-maduro-venezuela.html
 
 **Myles Garrett breaks sacks record, Browns win season finale vs. Bengals**\
-`With two defensive touchdowns, the Browns earned 20-18 a win over their division rivals and finished the season 5-12.`\
+`With two defensive touchdowns, the Browns earned a 20-18 win over their division rivals and finished the season 5-12.`\
 https://nytimes.com/athletic/6939515/2026/01/04/browns-bengals-score-result-takeaways-myles-garrett-sack-record/
 
 **Novak Djokovic steps away from tennis player organization over representation of 'my voice and image'**\
