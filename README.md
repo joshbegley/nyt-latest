@@ -2,7 +2,7 @@
 `All the key talking points analysed from Newcastle's victory over Crystal Palace`\
 https://nytimes.com/athletic/6929508/2026/01/04/newcastle-crystal-palace-briefing/
 
-**The Briefing: Tottenham 1 Sunderland 1 - rare Davies goal, Kudus injury and frustration for Frank**\
+**The Briefing: Tottenham 1 Sunderland 1 - Rare Davies goal, Kudus injury and frustration for Frank**\
 `Elias Burke analyses the main talking points from Tottenham's draw against Sunderland`\
 https://nytimes.com/athletic/6929509/2026/01/04/tottenham-sunderland-analysis-premier-league/
 
