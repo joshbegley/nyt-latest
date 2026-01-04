@@ -1,3 +1,7 @@
+**There is no positive spin - Australia and England have no faith in their slow bowling options**\
+`The hosts went into the fifth Test at the SCG without a specialist spinner for the first time since 1888, and may end up regretting it`\
+https://nytimes.com/athletic/6938650/2026/01/04/australia-england-scg-spin-murphy-bashir/
+
 **Luke Littler is on the path to greatness: 'I'll be around for a very long time'**\
 `Luke Littler emphatically retained his world title and can now be regarded as an all-time great of his sport`\
 https://nytimes.com/athletic/6938693/2026/01/04/luke-littler-pdc-darts-world-championship-analysis/
