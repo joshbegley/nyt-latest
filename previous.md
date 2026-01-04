@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6939615/2026/01/04/vinicius-jr-madrid-alonso-whistles/
 
 **Tottenham have £8m bid rejected by Santos for left-back Souza**\
-`The Brazilian side have turned down Spurs’ offer for the 19-year-old.`\
+`The 19-year-old made 24 Serie A appearances for Santos during the 2025 season.`\
 https://nytimes.com/athletic/6939595/2026/01/04/tottenham-transfer-news-souza-bid-santos/
 
 **Behind the Scenes of Our Nicolás Maduro Front Page**\

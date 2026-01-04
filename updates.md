@@ -1,3 +1,7 @@
+**Tottenham have £8m bid rejected by Santos for left-back Souza**\
+`The 19-year-old made 24 Serie A appearances for Santos during the 2025 season.`\
+https://nytimes.com/athletic/6939595/2026/01/04/tottenham-transfer-news-souza-bid-santos/
+
 **Vinicius Jr 'fundamental' to Madrid, Alonso insists after Brazilian jeered again**\
 `The Brazilian was again whistled at the Bernabeu, having gone 15 games without scoring for Madrid.`\
 https://nytimes.com/athletic/6939615/2026/01/04/vinicius-jr-madrid-alonso-whistles/

@@ -1,3 +1,7 @@
+**Brewers prospect Frank Cairone hospitalized after car crash**\
+`Milwaukee selected the left-hander out of high school with the No. 68 pick in the 2025 MLB Draft.`\
+https://nytimes.com/athletic/6939462/2026/01/04/brewers-prospect-frank-cairone-car-crash/
+
 **Vinicius Jr 'fundamental' to Madrid, Alonso insists after Brazilian jeered again**\
 `The Brazilian was again whistled at the Bernabeu, having gone 15 games without scoring for Madrid.`\
 https://nytimes.com/athletic/6939615/2026/01/04/vinicius-jr-madrid-alonso-whistles/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6929508/2026/01/04/newcastle-crystal-palace-briefin
 **The Briefing: Tottenham 1 Sunderland 1 - Rare Davies goal, Kudus injury and frustration for Frank**\
 `Elias Burke analyses the main talking points from Tottenham's draw against Sunderland`\
 https://nytimes.com/athletic/6929509/2026/01/04/tottenham-sunderland-analysis-premier-league/
-
-**Venezuela en vivo: EE. UU. mantendrá tropas en el Caribe, dice Rubio**\
-`Tras la captura del presidente Nicolás Maduro por parte de fuerzas estadounidenses, el secretario de Estado advirtió que los nuevos líderes venezolanos deben abrir la industria petrolera y enfrentar el narcotráfico.`\
-https://nytimes.com/live/2026/01/04/espanol/venezuela-trump
 
