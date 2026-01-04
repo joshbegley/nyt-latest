@@ -1,3 +1,7 @@
+**Mirtle: Forget 1967. Auston Matthews' latest feat should be celebrated for what it is**\
+`It's worth hitting pause on the angst around Toronto to appreciate the accomplishment of Matthews becoming its all-time leading goal scorer.`\
+https://nytimes.com/athletic/6938445/2026/01/04/maple-leafs-auston-matthews-goals-record-nhl/
+
 **Why the rise of Mateus Mane offers Wolves new hope in 2026 and beyond**\
 `The talented youngster – who scored in Saturday's win against West Ham – is contracted to his club until 2029`\
 https://nytimes.com/athletic/6937957/2026/01/04/mateus-mane-wolves-rise/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6935896/2026/01/04/how-brazil-won-the-1994-world-cu
 **It's not working with Nuno Espirito Santo, but he's not the only problem at West Ham**\
 `A 3-0 capitulation to the Premier League's cut-adrift bottom side has brought all of the club's shortcomings to the surface`\
 https://nytimes.com/athletic/6935461/2026/01/04/west-ham-nuno-relegation-battle-premier-league/
-
-**Wilfried Nancy is still Celtic manager - but for how much longer?**\
-`The Scottish champions lost 3-1 to arch-rivals Rangers on Saturday, continuing a very difficult start for their new boss`\
-https://nytimes.com/athletic/6937711/2026/01/04/wilfried-nancy-celtic-rangers/
 
