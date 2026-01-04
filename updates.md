@@ -1,3 +1,15 @@
+**Buccaneers gut out win over Panthers, settle in for uncomfortable waiting game**\
+`Tampa Bay coach Todd Bowles: “You can’t wait ’til tomorrow if you don’t win today, so, it was a gutsy performance."`\
+https://nytimes.com/athletic/6938464/2026/01/03/buccaneers-win-panthers-nfc-south-waiting-game/
+
+**Steph, Dell Curry set NBA record for most combined games by father-son duo**\
+`The Currys have become synonymous with high-level shooting through several decades.`\
+https://nytimes.com/athletic/6938449/2026/01/03/steph-dell-curry-nba-record-father-son-duo/
+
+**Panthers miss another chance to clinch, blame themselves for loss**\
+`A couple questionable officiating calls didn't help the Panthers, but neither did their lack of a run game and a botched flea flicker.`\
+https://nytimes.com/athletic/6938428/2026/01/03/panthers-lose-playoffs-nfc-south-bucs/
+
 **Celtics' Jordan Walsh believes he must do more to regain rotation spot**\
 `After the win against Sacramento, Joe Mazzulla said moving away from Walsh at halftime was not because of anything he’s doing wrong.`\
 https://nytimes.com/athletic/6938408/2026/01/03/jordan-walsh-out-rotation-celtics-clippers/
