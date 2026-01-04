@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Monday, Jan. 5, 2026**\
+``\
+https://nytimes.com/issue/todaysinyt/2026/01/04/todays-new-york-times-international-edition
+
 **How to watch Missouri vs. Kentucky women's basketball: Time, TV, streaming**\
 `Find out how to watch the Missouri Tigers play the Kentucky Wildcats, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6938819/2026/01/04/missouri-vs-kentucky-stream-how-to-watch-jan-4/
