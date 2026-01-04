@@ -1,3 +1,15 @@
+**Colts-Texans takeaways: Houston holds off Leonard, Indy even with rested starters**\
+`Since their last playoff appearance in 2020, the Colts are a combined 9-17 in December and January.`\
+https://nytimes.com/athletic/6939857/2026/01/04/colts-texans-score-result-takeaways-nfl-week-18/
+
+**Ex-TCU QB Josh Hoover commits to Indiana, set to be Fernando Mendoza's successor**\
+`Hoover, who has one year of eligibility left, threw for 3,472 yards and 29 touchdowns with 13 interceptions in 2025.`\
+https://nytimes.com/athletic/6933540/2026/01/04/josh-hoover-indiana-quarterback-transfer-portal/
+
+**Lee el acta de imputación contra Nicolás Maduro, en inglés**\
+`El presidente venezolano fue acusado de narcoterrorismo y conspiración para importar cocaína en EE. UU., entre otros cargos. Su esposa, Cilia Flores, también fue acusada.`\
+https://nytimes.com/interactive/2026/01/04/espanol/venezuela-maduro-indictment-ESP.html
+
 **Maduro’s Ouster Plays Right Into Putin’s Hands**\
 `Allies? Who needs allies?`\
 https://nytimes.com/2026/01/04/opinion/putin-maduro-venezuela.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6933796/2026/01/04/rocco-becht-penn-state-quarterba
 **Chris Ballard has had long enough to fix the Colts. His time should be up**\
 `Ballard has had nine years to turn the Colts into a contender. He's failed every time. `\
 https://nytimes.com/athletic/6939670/2026/01/04/colts-chris-ballard-fired-carlie-irsay-gordon/
-
-**Packers-Vikings takeaways: Minnesota stomps Green Bay to finish with winning record**\
-`The Minnesota Vikings rolled over resting Green Bay Packers in Week 18 to finish the 2025 NFL season with a winning record.`\
-https://nytimes.com/athletic/6939530/2026/01/04/packers-vikings-score-result-takeaways-nfl-week-18/
-
-**Venezuela, Democracy and Oil**\
-`One thing is clear after the U.S. raid: Gunboat diplomacy is back, with cascading implications not just for the Americas but for the world.`\
-https://nytimes.com/2026/01/04/world/venezuela-strikes-trump-oil-maduro.html
-
-**Panthers win NFC South title with assist from Falcons' win over Saints**\
-`The Panthers lost their final two games but backed into the playoffs after the Falcons' win over the Saints forced a three-way tie.`\
-https://nytimes.com/athletic/6939396/2026/01/04/nfc-south-championship-panthers-bucs-saints-falcons/
 
