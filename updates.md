@@ -1,3 +1,7 @@
+**Lowetide: How Oilers, and NHL, could effectively use ECHL for development**\
+`There's no doubt that talented hockey players who turn pro would be best served by playing a lot.`\
+https://nytimes.com/athletic/6937786/2026/01/04/oilers-nhl-echl-development-league/
+
 **Would a format change help the CFP's rest vs. rust problem?**\
 `With no easy way to address the long layoffs within the current calendar, saying buh-bye to the byes might be the best way to go.`\
 https://nytimes.com/athletic/6938319/2026/01/04/college-football-playoff-first-round-byes/
