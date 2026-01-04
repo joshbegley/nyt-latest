@@ -1,3 +1,11 @@
+**Iran’s Dual Challenge: Unrest at Home, Threat of Strikes From Abroad**\
+`Officials said that leaders were in survival mode amid anti-government protests and the prospect of again coming into the cross hairs of Israel and the United States.`\
+https://nytimes.com/2026/01/04/world/middleeast/iran-protests.html
+
+**Huijsen in contention for Madrid return in Supercopa de Espana**\
+`The defender missed Sunday's home game against Real Betis with a minor injury.`\
+https://nytimes.com/athletic/6939147/2026/01/04/dean-huijsen-real-madrid-injury/
+
 **What's going on with Ole Miss' assistant coaches? Here's what you need to know**\
 `Pete Golding made it clear that Ole Miss will have capable coaches with the team on Thursday no matter what happens.`\
 https://nytimes.com/athletic/6939065/2026/01/04/lane-kiffin-pete-golding-ole-miss-coaches/

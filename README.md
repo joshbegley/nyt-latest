@@ -1,3 +1,7 @@
+**Jessie Diggins wins third Tour de Ski as her final season builds toward Olympics**\
+`This could've been a ceremonial year for the American cross-country star. But she's giving herself quite the final sendoff.`\
+https://nytimes.com/athletic/6935882/2026/01/04/jessie-diggins-tour-de-ski-olympics-final-season/
+
 **Iran’s Dual Challenge: Unrest at Home, Threat of Strikes From Abroad**\
 `Officials said that leaders were in survival mode amid anti-government protests and the prospect of again coming into the cross hairs of Israel and the United States.`\
 https://nytimes.com/2026/01/04/world/middleeast/iran-protests.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6938931/2026/01/04/college-basketball-scores-result
 **On third-and-17, the Seahawks and reality hit the 49ers defense hard**\
 `The injury-depleted 49ers were somehow one win from the NFC's No. 1 seed. But everything caught up to them in one telltale moment Saturday.`\
 https://nytimes.com/athletic/6938840/2026/01/04/san-francisco-49ers-defense-seahawks-third-and-17-playoffs/
-
-**‘Everyone Is in Shock’: Swiss Town Grieves as More Fire Victims Are Identified**\
-`In Crans-Montana, the ski resort where at least 40 people died in a New Year’s Day blaze, residents were struggling to come to terms with one of the worst such disasters in Switzerland’s history.`\
-https://nytimes.com/2026/01/04/world/europe/crans-montana-victims.html
 
