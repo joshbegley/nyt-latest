@@ -1,3 +1,7 @@
+**The Bucs and Panthers have to wait another day to know playoff fate: Takeaways**\
+`Carolina fails to clinch so both teams will be watching the Saints-Falcons on Sunday to determine the NFC South winner.`\
+https://nytimes.com/athletic/6938230/2026/01/03/panthers-buccaneers-score-result-takeaways-nfc-south/
+
 **Blue Jackets dial up checking to snap Sabres' 10-game win streak**\
 `Columbus made quick work of Buffalo, relying on five goal scorers and a sterling outing by goaltender Jet Greaves to win 5-1.`\
 https://nytimes.com/athletic/6938218/2026/01/03/blue-jackets-sabres-win-streak/

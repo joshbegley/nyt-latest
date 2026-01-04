@@ -1,3 +1,7 @@
+**The Bucs and Panthers have to wait another day to know playoff fate: Takeaways**\
+`Carolina fails to clinch so both teams will be watching the Saints-Falcons on Sunday to determine the NFC South winner.`\
+https://nytimes.com/athletic/6938230/2026/01/03/panthers-buccaneers-score-result-takeaways-nfc-south/
+
 **Blue Jackets dial up checking to snap Sabres' 10-game win streak**\
 `Columbus made quick work of Buffalo, relying on five goal scorers and a sterling outing by goaltender Jet Greaves to win 5-1.`\
 https://nytimes.com/athletic/6938218/2026/01/03/blue-jackets-sabres-win-streak/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/03/travel/caribbean-flight-cancellations-trump-venez
 **In Toppling Maduro, Trump Risks Blowback from ‘America First’ Base**\
 `President Trump’s pledge that the United States would “run” Venezuela for an indefinite period showed he is willing to enter foreign conflicts he once promised to end.`\
 https://nytimes.com/2026/01/03/us/politics/maduro-trump-base-america-first.html
-
-**Trump Long Wanted to ‘Take the Oil.’ He Says He’ll Do It in Venezuela.**\
-`The White House had pointed to drug trafficking and migration as reasons to crack down on Nicolás Maduro. But oil emerged as central to President Trump.`\
-https://nytimes.com/2026/01/03/us/politics/trump-venezuela-oil.html
 
