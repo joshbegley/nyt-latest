@@ -1,3 +1,7 @@
+**What's going on with Ole Miss' assistant coaches? Here's what you need to know**\
+`Pete Golding made it clear that Ole Miss will have capable coaches with the team on Thursday no matter what happens.`\
+https://nytimes.com/athletic/6939065/2026/01/04/lane-kiffin-pete-golding-ole-miss-coaches/
+
 **U.S. Has No Troops in Venezuela, Defense Department Says**\
 `A significant buildup of U.S. soldiers and ships will remain in the Caribbean and surrounding countries to protect “our interests the region,” the Joint Chiefs chairman said.`\
 https://nytimes.com/2026/01/04/world/americas/us-troops-venezuela.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/04/world/europe/crans-montana-victims.html
 **The Pulse: An unserious division delivers**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6938642/2026/01/04/the-nfls-harebrained-division-does-it-yet-again/
-
-**Nicolás Maduro Is Being Held at a Troubled Brooklyn Jail**\
-`The Metropolitan Detention Center, known as the M.D.C., is one of the United States’ most notorious federal lockups.`\
-https://nytimes.com/2026/01/04/nyregion/nicolas-maduro-metropolitan-detention-center-mdc-brooklyn.html
 
