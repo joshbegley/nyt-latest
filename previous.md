@@ -1,3 +1,11 @@
+**How to watch Indiana vs. Maryland women's basketball: Time, TV, streaming**\
+`Find out how to watch the Indiana Hoosiers play the Maryland Terrapins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6939409/2026/01/04/indiana-vs-maryland-stream-how-to-watch-jan-4/
+
+**Venezuelans Brace for Uncertainty After U.S. Military Operation**\
+`People in Venezuela stocked up on supplies after the U.S. military struck the country and seized its president, Nicolás Maduro, in a pre-dawn raid on Saturday.`\
+https://nytimes.com/video/world/americas/100000010623077/venezuela-reactions-grocery-stores.html
+
 **Easy Does It**\
 `Our new collection of healthy dinner recipes is full of doable, delicious recipes to make on repeat, like this ginger chicken and rice soup with zucchini.`\
 https://nytimes.com/2026/01/04/dining/easy-does-it.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/04/world/americas/rubio-military-quarantine-venezuel
 **How Joan Garcia produced the performance of his life on the most challenging of days**\
 `Joan Garcia showed against Espanyol that he could become a Barcelona great with a string of match-winning saves`\
 https://nytimes.com/athletic/6938850/2026/01/04/joan-garcia-saves-barcelona-espanyol/
-
-**West Ham have no immediate plans to sack Nuno after Wolves defeat**\
-`The club are 18th in the Premier League after suffering a 3-0 loss at Wolves on Saturday.`\
-https://nytimes.com/athletic/6937601/2026/01/04/nuno-espirito-santo-west-ham-future/
-
-**Jessie Diggins wins third Tour de Ski as her final season builds toward Olympics**\
-`This could've been a ceremonial year for the American cross-country star. But she's giving herself quite the final sendoff.`\
-https://nytimes.com/athletic/6935882/2026/01/04/jessie-diggins-tour-de-ski-olympics-final-season/
 
