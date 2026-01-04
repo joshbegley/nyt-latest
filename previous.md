@@ -1,3 +1,15 @@
+**College basketball observations: Alabama the SEC's team to beat? Concern for St. John's?**\
+`Plus: Why it's time to rank Miami (Ohio), the last undefeated mid-major team.`\
+https://nytimes.com/athletic/6938931/2026/01/04/college-basketball-scores-results-alabama-st-johns/
+
+**On third-and-17, the Seahawks and reality hit the 49ers defense hard**\
+`The injury-depleted 49ers were somehow one win from the NFC's No. 1 seed. But everything caught up to them in one telltale moment Saturday.`\
+https://nytimes.com/athletic/6938840/2026/01/04/san-francisco-49ers-defense-seahawks-third-and-17-playoffs/
+
+**‘Everyone Is in Shock’: Swiss Town Grieves as More Fire Victims Are Identified**\
+`In Crans-Montana, the ski resort where at least 40 people died in a New Year’s Day blaze, residents were struggling to come to terms with one of the worst such disasters in Switzerland’s history.`\
+https://nytimes.com/2026/01/04/world/europe/crans-montana-victims.html
+
 **The Pulse: An unserious division delivers**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6938642/2026/01/04/the-nfls-harebrained-division-does-it-yet-again/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6939029/2026/01/04/canadiens-vs-stars-stream-how-to
 **How to watch Pistons vs. Cavaliers: Time, TV, streaming**\
 `Find out how to watch the Detroit Pistons play the Cleveland Cavaliers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6939027/2026/01/04/pistons-vs-cavaliers-stream-how-to-watch-jan-4/
-
-**How to watch Marquette vs. UConn men's basketball: Time, TV, streaming**\
-`Find out how to watch the Marquette Golden Eagles play the UConn Huskies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6939020/2026/01/04/marquette-vs-uconn-stream-how-to-watch-jan-4/
-
-**How to watch Mississippi State vs. Oklahoma women's basketball: Time, TV, streaming**\
-`Find out how to watch the Mississippi State Bulldogs play the Oklahoma Sooners, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6939017/2026/01/04/mississippi-state-vs-oklahoma-stream-how-to-watch-jan-4/
-
-**How to watch Purdue vs. Nebraska women's basketball: Time, TV, streaming**\
-`Find out how to watch the Purdue Boilermakers play the Nebraska Cornhuskers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6939011/2026/01/04/purdue-vs-nebraska-stream-how-to-watch-jan-4/
 

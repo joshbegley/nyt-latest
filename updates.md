@@ -1,3 +1,15 @@
+**College basketball observations: Alabama the SEC's team to beat? Concern for St. John's?**\
+`Plus: Why it's time to rank Miami (Ohio), the last undefeated mid-major team.`\
+https://nytimes.com/athletic/6938931/2026/01/04/college-basketball-scores-results-alabama-st-johns/
+
+**On third-and-17, the Seahawks and reality hit the 49ers defense hard**\
+`The injury-depleted 49ers were somehow one win from the NFC's No. 1 seed. But everything caught up to them in one telltale moment Saturday.`\
+https://nytimes.com/athletic/6938840/2026/01/04/san-francisco-49ers-defense-seahawks-third-and-17-playoffs/
+
+**‘Everyone Is in Shock’: Swiss Town Grieves as More Fire Victims Are Identified**\
+`In Crans-Montana, the ski resort where at least 40 people died in a New Year’s Day blaze, residents were struggling to come to terms with one of the worst such disasters in Switzerland’s history.`\
+https://nytimes.com/2026/01/04/world/europe/crans-montana-victims.html
+
 **The Pulse: An unserious division delivers**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6938642/2026/01/04/the-nfls-harebrained-division-does-it-yet-again/
