@@ -1,3 +1,7 @@
+**Vikings QB J.J. McCarthy leaves game with apparent hand injury**\
+`The second-year quarterback left Sunday's game early in the third quarter with what appeared to be a reaggravated hand injury. `\
+https://nytimes.com/athletic/6939839/2026/01/04/jj-mccarthy-vikings-hand-injury-packers/
+
 **Venezuelans in Colombia Rejoice, but Are Not Ready to Rush Back Home**\
 `“I had utterly lost hope,” said one Venezuelan who has lived in exile from his country for seven years.`\
 https://nytimes.com/2026/01/04/world/americas/venezuelan-exiles-maduro.html
