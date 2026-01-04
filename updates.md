@@ -1,3 +1,7 @@
+**The Briefing: Tottenham 1 Sunderland 1 - Rare Davies goal, Kudus injury and frustration for Frank**\
+`Elias Burke analyses the main talking points from Tottenham's draw against Sunderland`\
+https://nytimes.com/athletic/6929509/2026/01/04/tottenham-sunderland-analysis-premier-league/
+
 **The Briefing: Newcastle 2 Crystal Palace 0 - Long-overdue clean sheet, Miley's maturity and back-to-back wins**\
 `All the key talking points analysed from Newcastle's victory over Crystal Palace`\
 https://nytimes.com/athletic/6929508/2026/01/04/newcastle-crystal-palace-briefing/

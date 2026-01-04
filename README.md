@@ -1,3 +1,7 @@
+**The Briefing: Fulham 2 Liverpool 2 - A stunning late leveller, offside calls, Wirtz scores again**\
+`Fulham come from behind to score a late leveller to deny Liverpool victory at Craven Cottage `\
+https://nytimes.com/athletic/6928592/2026/01/04/fulham-2-liverpool-2-wirtz-gakpo-reed/
+
 **The Briefing: Newcastle 2 Crystal Palace 0 - Long-overdue clean sheet, Miley's maturity and back-to-back wins**\
 `All the key talking points analysed from Newcastle's victory over Crystal Palace`\
 https://nytimes.com/athletic/6929508/2026/01/04/newcastle-crystal-palace-briefing/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6939450/2026/01/04/timberwolves-vs-wizards-stream-h
 **How to watch Hurricanes vs. Devils: Time, TV, streaming**\
 `Find out how to watch the Carolina Hurricanes play the New Jersey Devils, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6939448/2026/01/04/hurricanes-vs-devils-stream-how-to-watch-jan-4/
-
-**How to watch Avalanche vs. Panthers: Time, TV, streaming**\
-`Find out how to watch the Colorado Avalanche play the Florida Panthers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6939445/2026/01/04/avalanche-vs-panthers-stream-how-to-watch-jan-4/
 
