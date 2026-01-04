@@ -1,3 +1,7 @@
+**‘They’re Invading Us’: The U.S. Attack Viewed From Venezuelans’ Cellphones**\
+`The videos, filmed on cellphones by people mainly in Caracas and La Guaira, showed the exact moments in which the U.S. air and ground incursion played out in real time.`\
+https://nytimes.com/2026/01/04/world/americas/venezuela-attack-videos-social-media.html
+
 **‘We Expect Big Parties:’ How New Year’s Eve Became a Mega Holiday for Eastern Europeans**\
 `After Communist leaders suppressed religious holidays, Dec. 31 became a catchall secular holiday — with a New Year’s tree, a blue-robed Santa Claus and giant, colorful parties.`\
 https://nytimes.com/card/2026/01/04/us/new-years-eve-parties-eastern-europeans

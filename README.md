@@ -1,3 +1,7 @@
+**Behind the Scenes of Our Nicolás Maduro Front Page**\
+`After President Trump’s surprise ouster of Venezuela’s authoritarian leader, a team of New York Times editors set to work redoing the front page.`\
+https://nytimes.com/2026/01/04/insider/nicolas-maduro-front-page.html
+
 **‘They’re Invading Us’: The U.S. Attack Viewed From Venezuelans’ Cellphones**\
 `The videos, filmed on cellphones by people mainly in Caracas and La Guaira, showed the exact moments in which the U.S. air and ground incursion played out in real time.`\
 https://nytimes.com/2026/01/04/world/americas/venezuela-attack-videos-social-media.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6939123/2026/01/04/mohammed-bati-diii-runner-augsbu
 **Ukrainians Welcome a U.S. Victory in Venezuela, and Lament a Double Standard**\
 `Ukraine’s government supports the removal of a dictator while members of Parliament question the wisdom of endorsing military interventions, even against a Russian ally.`\
 https://nytimes.com/2026/01/04/world/europe/ukraine-venezuela-maduro.html
-
-**How to watch Pelicans vs. Heat: Time, TV, streaming**\
-`Find out how to watch the New Orleans Pelicans play the Miami Heat, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6939455/2026/01/04/pelicans-vs-heat-stream-how-to-watch-jan-4/
 
