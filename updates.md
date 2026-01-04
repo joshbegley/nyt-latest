@@ -1,3 +1,19 @@
+**How to watch Miami (FL) vs. Ole Miss: CFP Semifinal Start Time, TV, streaming**\
+`Find out how to watch the Miami (FL) Hurricanes play the Ole Miss Rebels, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6938402/2026/01/03/miami-fl-vs-ole-miss-stream-how-to-watch-jan-8/
+
+**Rockets' Alperen Şengün leaves game vs. Mavericks with sprained ankle**\
+`The All-Star center was injured a little more than one minute into Saturday's game for Houston, which was already missing Steven Adams.`\
+https://nytimes.com/athletic/6938325/2026/01/03/rockets-alperen-sengun-injury-status-ankle-sprain/
+
+**Heavy Rain and King Tides Cause Flooding in California**\
+`Highways were blocked and a regional airport shut down on Saturday when the latest in a long run of drenching rainstorms coincided with especially high tides.`\
+https://nytimes.com/2026/01/03/us/california-flood-mudslide-santa-barbara.html
+
+**Venezuelan asylum seekers worry about what comes next.**\
+`For many, the removal of the Venezuelan leader Nicolás Maduro has not eased uncertainty about their immigration status in the United States.`\
+https://nytimes.com/live/2026/01/03/world/trump-maduro-venezuela-us-strikes/venezuela-asylum-seekers
+
 **‘What Will Happen Tomorrow?’ Venezuelans Fear Chaos After U.S. Attack**\
 `Nicolás Maduro was deeply unpopular. But those who opposed him worry that U.S. intervention may reap further instability.`\
 https://nytimes.com/2026/01/03/world/americas/venezuela-maduro-approval-trump.html

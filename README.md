@@ -1,3 +1,7 @@
+**Penguins suspend Egor Zamula for failing to report to AHL: Sources**\
+`Zamula's preference is to play in the NHL right now, but the Penguins don't currently have room for him on their NHL roster.`\
+https://nytimes.com/athletic/6938361/2026/01/03/penguins-egor-zamula-suspend-report-ahl/
+
 **How to watch Miami (FL) vs. Ole Miss: CFP Semifinal Start Time, TV, streaming**\
 `Find out how to watch the Miami (FL) Hurricanes play the Ole Miss Rebels, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6938402/2026/01/03/miami-fl-vs-ole-miss-stream-how-to-watch-jan-8/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6937420/2026/01/03/auston-matthews-maple-leafs-goal
 **Venezuelan asylum seekers worry about what comes next.**\
 `For many, the removal of the Venezuelan leader Nicolás Maduro has not eased uncertainty about their immigration status in the United States.`\
 https://nytimes.com/live/2026/01/03/world/trump-maduro-venezuela-us-strikes/venezuela-asylum-seekers
-
-**Bucs and Panthers must wait another day to know playoff fate: Takeaways**\
-`Carolina failed to clinch so both teams will be watching the Saints-Falcons on Sunday to determine the NFC South winner.`\
-https://nytimes.com/athletic/6938230/2026/01/03/panthers-buccaneers-score-result-takeaways-nfc-south/
 
