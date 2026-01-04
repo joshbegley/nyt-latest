@@ -1,3 +1,7 @@
+**Maduro’s Final Plea: ‘No War. Yes Peace.’**\
+`Days before he was captured, Nicolás Maduro expounded on his precarious position — and tried to offer an olive branch to President Trump.`\
+https://nytimes.com/2026/01/03/world/americas/maduro-last-interview-before-capture.html
+
 **Americans turn out for protests in Chicago and Washington.**\
 `Opponents of the U.S. intervention in Venezuela called it illegal and warned of a widening war. Supporters celebrated an authoritarian president’s fall.`\
 https://nytimes.com/live/2026/01/03/world/trump-united-states-strikes-venezuela/venezuela-chicago-washington-protests

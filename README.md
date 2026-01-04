@@ -6,8 +6,8 @@ https://nytimes.com/2026/01/03/world/americas/maduro-last-interview-before-captu
 `Opponents of the U.S. intervention in Venezuela called it illegal and warned of a widening war. Supporters celebrated an authoritarian president’s fall.`\
 https://nytimes.com/live/2026/01/03/world/trump-united-states-strikes-venezuela/venezuela-chicago-washington-protests
 
-**Auston Matthews ties Mats Sundin for Maple Leafs goals record**\
-`Matthews equaled Sundin in just 664 games, 317 fewer than the 981 Sundin played for the Leafs.`\
+**Auston Matthews passes Mats Sundin for Maple Leafs goals record**\
+`Matthews passed Sundin in just 664 games, 317 fewer than the 981 Sundin played for the Leafs.`\
 https://nytimes.com/athletic/6937420/2026/01/03/auston-matthews-maple-leafs-goals-record/
 
 **Venezuelan asylum seekers worry about what comes next.**\
