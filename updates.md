@@ -1,3 +1,8 @@
+**Senators outraged after Brady Tkachuk sucker punched by Logan Stanley, given misconduct**\
+`Tkachuk was assessed a 10-minute misconduct, while Stanley received two minor penalties.
+`\
+https://nytimes.com/athletic/6938503/2026/01/03/senators-brady-tkachuk-logan-stanley-punch-misconduct/
+
 **Declan Rice and Martin Odegaard are stepping up for Arsenal when it counts**\
 `Mikel Arteta rotated some of his team for Saturday's game at Bournemouth – but it was two of his main men who made the difference`\
 https://nytimes.com/athletic/6937968/2026/01/04/arsenal-rice-odegaard-bournemouth-premier-league/
