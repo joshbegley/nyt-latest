@@ -1,3 +1,7 @@
+**Sabres' winning streak ends at 10 games. How will they respond?**\
+`Buffalo needs to make sure its 5-1 loss to the Blue Jackets is just a blip and not the start of a slide.`\
+https://nytimes.com/athletic/6938258/2026/01/03/sabres-winning-streak-blue-jackets/
+
 **Auston Matthews passes Mats Sundin for Maple Leafs goals record**\
 `Matthews passed Sundin in just 664 games, 317 fewer than the 981 Sundin played for the Leafs.`\
 https://nytimes.com/athletic/6937420/2026/01/03/auston-matthews-maple-leafs-goals-record/

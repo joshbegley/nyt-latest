@@ -1,3 +1,7 @@
+**‘What Will Happen Tomorrow?’ Venezuelans Fear Chaos After U.S. Attack**\
+`Nicolás Maduro was deeply unpopular. But those who opposed him worry that U.S. intervention may reap further instability.`\
+https://nytimes.com/2026/01/03/world/americas/venezuela-maduro-approval-trump.html
+
 **Sabres' winning streak ends at 10 games. How will they respond?**\
 `Buffalo needs to make sure its 5-1 loss to the Blue Jackets is just a blip and not the start of a slide.`\
 https://nytimes.com/athletic/6938258/2026/01/03/sabres-winning-streak-blue-jackets/
@@ -8,7 +12,7 @@ https://nytimes.com/2026/01/03/world/americas/maduro-last-interview-before-captu
 
 **Americans turn out for protests in Chicago and Washington.**\
 `Opponents of the U.S. intervention in Venezuela called it illegal and warned of a widening war. Supporters celebrated an authoritarian president’s fall.`\
-https://nytimes.com/live/2026/01/03/world/trump-united-states-strikes-venezuela/venezuela-chicago-washington-protests
+https://nytimes.com/live/2026/01/03/world/trump-maduro-venezuela-us-strikes/venezuela-chicago-washington-protests
 
 **Auston Matthews passes Mats Sundin for Maple Leafs goals record**\
 `Matthews passed Sundin in just 664 games, 317 fewer than the 981 Sundin played for the Leafs.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/03/world/americas/venezuela-paramilitaries-colectivo
 **U.S. Indictment of Maduro Cites Cocaine Smuggling, Trade in Which Venezuela’s Role Is Believed to Be Modest**\
 `Experts have said that Venezuela is not a major drug producer but rather  a minor cocaine transit country, with most of the cocaine flowing through it headed to Europe.`\
 https://nytimes.com/2026/01/03/world/americas/venezuela-drug-trade.html
-
-**Trump Plunges the U.S. Into a New Era of Risk in Venezuela**\
-`President Trump opened a new chapter in American nation building as he declared that the United States had toppled Venezuela’s leader and would “run” the country for an indefinite period.`\
-https://nytimes.com/2026/01/03/us/politics/trump-venezuela-oil-risks.html
 
