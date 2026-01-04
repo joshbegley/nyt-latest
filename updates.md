@@ -1,3 +1,15 @@
+**Seahawks' defense snuffs out 49ers to claim NFC's top seed, playoff bye**\
+`The Seahawks held the 49ers to only 173 yards and three points to win the NFC West and secure home-field advantage throughout the playoffs.`\
+https://nytimes.com/athletic/6938392/2026/01/03/seahawks-49ers-score-result-takeaways-nfc-west/
+
+**NFL Week 18 playoff scenarios: With NFC West settled, what's next?**\
+`A look at which teams still have a shot at home-field advantage or a bye in the first round of the NFL playoffs.`\
+https://nytimes.com/athletic/6936896/2026/01/03/nfl-playoffs-scenarios-matchups-seed-team-week-18-nfc-west/
+
+**Anthony Edwards, Timberwolves reconnect in Miami to halt slide and restore belief**\
+`After losing three of their last four, Edwards and the Timberwolves responded with a statement win in Miami.`\
+https://nytimes.com/athletic/6938117/2026/01/03/edwards-timberwolves-overcoming-frustrations-nba-trade-deadline/
+
 **Jordan Stolz fell in his first race at the U.S. Olympic trials. But it's nothing to sweat**\
 `A new rule assured Stolz, U.S. speed skating's biggest star, was already a lock for the Olympics. Saturday showed the wisdom of that call.`\
 https://nytimes.com/athletic/6938307/2026/01/03/jordan-stolz-us-olympic-trials-fall-1000-meter/
