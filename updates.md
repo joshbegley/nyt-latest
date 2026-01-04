@@ -1,3 +1,7 @@
+**Blue Jackets dial up checking to snap Sabres' 10-game win streak**\
+`Columbus made quick work of Buffalo, relying on five goal scorers and a sterling outing by goaltender Jet Greaves to win 5-1.`\
+https://nytimes.com/athletic/6938218/2026/01/03/blue-jackets-sabres-win-streak/
+
 **U.S. Indictment of Maduro Cites Cocaine Smuggling, Trade in Which Venezuela’s Role Is Believed to Be Modest**\
 `Experts have said that Venezuela is not a major drug producer but rather  a minor cocaine transit country, with most of the cocaine flowing through it headed to Europe.`\
 https://nytimes.com/2026/01/03/world/americas/venezuela-drug-trade.html
