@@ -1,3 +1,11 @@
+**In Wake of U.S. Strike, Venezuelan Paramilitaries Are Little Seen**\
+`As the armed civilian groups often used to suppress protests kept a low profile, the role they might play in the country’s new situation remained unclear.`\
+https://nytimes.com/2026/01/03/world/americas/venezuela-paramilitaries-colectivos.html
+
+**The U.S. has indicted Maduro on charges of cocaine smuggling, but experts say Venezuela’s role in that trade is modest.**\
+`By Genevieve Glatsky and Annie Correal`\
+https://nytimes.com/2026/01/03/world/americas/venezuela-drug-trade.html
+
 **Trump Plunges the U.S. Into a New Era of Risk in Venezuela**\
 `President Trump opened a new chapter in American nation building as he declared that the United States had toppled Venezuela’s leader and would “run” the country for an indefinite period.`\
 https://nytimes.com/2026/01/03/us/politics/trump-venezuela-oil-risks.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/03/us/politics/trump-venezuela-oil.html
 **WATCH: Why Jaxson Dart has what it takes to be NFL's next elite QB**\
 `We break down the improvements Dart has shown during his rookie season and discuss why the Giants still believe in their rookie QB`\
 https://nytimes.com/athletic/6938171/2026/01/03/jaxson-dart-film-breakdown-giants-nfl/
-
-**How Manhattan Federal Court Would Handle the Trial of a President**\
-`Nicolás Maduro, Venezuela’s president, could stand trial in Federal District Court in New York City, the site of other high-profile court proceedings.`\
-https://nytimes.com/2026/01/03/world/americas/maduro-trial-nyc-sdny.html
-
-**Base Pairs**\
-`This Sunday puzzle by Gene Louise De Vera breaks free from the laboratory.`\
-https://nytimes.com/2026/01/03/crosswords/daily-puzzle-2026-01-04.html
 
