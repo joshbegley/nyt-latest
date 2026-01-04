@@ -1,3 +1,19 @@
+**Winter Storms Ease Drought in California, for Now**\
+`Experts say that it’s too early to tell what will happen during the rest of the state’s rainy season, but that extreme drought is unlikely.`\
+https://nytimes.com/2026/01/04/us/winter-storms-drought-california.html
+
+**Venezuela’s defense minister calls U.S. operation an ‘act of profound malice.’**\
+`By Jack Nicas and Talya Minsberg`\
+https://nytimes.com/live/2026/01/04/world/trump-us-venezuela-maduro/venezuelas-defense-minister-calls-us-operation-an-act-of-profound-malice
+
+**Home With a Dome**\
+`Lynn Lempel helps our minds wander.`\
+https://nytimes.com/2026/01/04/crosswords/daily-puzzle-2026-01-05.html
+
+**Critics Choice Awards 2026: The Complete Winners List**\
+`“Sinners” led the nominations tally with 17 going into the ceremony, followed by “One Battle After Another” with 14.`\
+https://nytimes.com/2026/01/04/movies/critics-choice-awards-winners-complete-list.html
+
 **Real's Mbappe expected to miss Atletico Super Cup clash on Thursday due to injury**\
 `Madrid reported on December 31 that Mbappe had sprained his left knee.`\
 https://nytimes.com/athletic/6940287/2026/01/04/mbappe-injury-news-real-madrid-spanish-super-club/

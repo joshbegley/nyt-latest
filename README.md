@@ -14,7 +14,7 @@ https://nytimes.com/2026/01/04/crosswords/daily-puzzle-2026-01-05.html
 `“Sinners” led the nominations tally with 17 going into the ceremony, followed by “One Battle After Another” with 14.`\
 https://nytimes.com/2026/01/04/movies/critics-choice-awards-winners-complete-list.html
 
-**Real's Mbappe expected to miss Atletico Super Cup clash on Thursday due to injury**\
+**Mbappe expected to miss Super Cup tie due to injury**\
 `Madrid reported on December 31 that Mbappe had sprained his left knee.`\
 https://nytimes.com/athletic/6940287/2026/01/04/mbappe-injury-news-real-madrid-spanish-super-club/
 
