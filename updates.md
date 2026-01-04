@@ -1,3 +1,7 @@
+**Strasbourg's Rosenior flies to London for Chelsea talks**\
+`The 41-year-old has previously held managerial positions at Derby County, on an interim basis, and Hull City. `\
+https://nytimes.com/athletic/6934475/2026/01/04/liam-rosenior-chelsea-manager-news/
+
 **Myles Garrett breaks NFL's single-season sacks record**\
 `Garrett broke the previous record of 22.5 that was shared by Michael Strahan and T.J. Watt. `\
 https://nytimes.com/athletic/6908796/2026/01/04/myles-garrett-single-season-sack-record-browns/
