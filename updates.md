@@ -1,3 +1,11 @@
+**The Pulse: An unserious division delivers**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6938642/2026/01/04/the-nfls-harebrained-division-does-it-yet-again/
+
+**Nicolás Maduro Is Being Held at a Troubled Brooklyn Jail**\
+`The Metropolitan Detention Center, known as the M.D.C., is one of the United States’ most notorious federal lockups.`\
+https://nytimes.com/2026/01/04/nyregion/nicolas-maduro-metropolitan-detention-center-mdc-brooklyn.html
+
 **How to watch Nuggets vs. Nets: Time, TV, streaming**\
 `Find out how to watch the Denver Nuggets play the Brooklyn Nets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6939037/2026/01/04/nuggets-vs-nets-stream-how-to-watch-jan-4/
