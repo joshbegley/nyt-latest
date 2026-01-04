@@ -1,3 +1,7 @@
+**Panthers miss another chance to clinch, blame themselves for being in this position**\
+`A couple questionable officiating calls didn't help the Panthers, but neither did their lack of a run game and a botched flea flicker.`\
+https://nytimes.com/athletic/6938428/2026/01/03/panthers-lose-playoffs-nfc-south-bucs/
+
 **Seahawks' defense snuffs out 49ers to claim NFC's top seed, playoff bye**\
 `The Seahawks held the 49ers to only 173 yards and three points to win the NFC West and secure home-field advantage throughout the playoffs.`\
 https://nytimes.com/athletic/6938392/2026/01/03/seahawks-49ers-score-result-takeaways-nfc-west/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/03/us/california-flood-mudslide-santa-barbara.html
 **‘What Will Happen Tomorrow?’ Venezuelans Fear Chaos After U.S. Attack**\
 `Nicolás Maduro was deeply unpopular. But those who opposed him worry that U.S. intervention may reap further instability.`\
 https://nytimes.com/2026/01/03/world/americas/venezuela-maduro-approval-trump.html
-
-**Sabres' winning streak ends at 10 games. How will they respond?**\
-`Buffalo needs to make sure its 5-1 loss to the Blue Jackets is just a blip and not the start of a slide.`\
-https://nytimes.com/athletic/6938258/2026/01/03/sabres-winning-streak-blue-jackets/
 
