@@ -1,3 +1,7 @@
+**Jessie Diggins wins third Tour de Ski as her final season builds toward Olympics**\
+`This could've been a ceremonial year for the American cross-country star. But she's giving herself quite the final sendoff.`\
+https://nytimes.com/athletic/6935882/2026/01/04/jessie-diggins-tour-de-ski-olympics-final-season/
+
 **Iran’s Dual Challenge: Unrest at Home, Threat of Strikes From Abroad**\
 `Officials said that leaders were in survival mode amid anti-government protests and the prospect of again coming into the cross hairs of Israel and the United States.`\
 https://nytimes.com/2026/01/04/world/middleeast/iran-protests.html
