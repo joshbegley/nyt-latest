@@ -1,3 +1,23 @@
+**China’s Russian Town Has Log Cabins and Cyrillic Signs, but No Russians**\
+`Enhe was once home to thousands of ethnic Russians. Under Xi Jinping’s push for ethnic unity, little remains beyond nostalgia and props for tourists.`\
+https://nytimes.com/2026/01/04/world/asia/china-russia-xi-putin.html
+
+**Quote of the Day: Ranchers Are Burning the Prairie to Save It From the Trees**\
+`Quotation of the Day for Sunday, January 3, 2025.`\
+https://nytimes.com/2026/01/04/pageoneplus/quote-of-the-day-ranchers-are-burning-the-prairie-to-save-it-from-the-trees.html
+
+**$650,000 in Pop Star Memorabilia? These Superfans Know Few Limits.**\
+`For megafans of megastars like Madonna and Mariah Carey, obsessive collecting is an emotional, not a financial, investment. The tradition dates to ancient Rome.`\
+https://nytimes.com/2026/01/04/arts/music/pop-star-superfans-memorabilia.html
+
+**Connections: Sports Edition Coach: Hints for Jan. 4, 2026**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6938355/2026/01/04/connections-sports-edition-hints-for-jan-4-2026/
+
+**Corrections: Jan. 4, 2026**\
+`Corrections that appeared in print on Sunday, Jan. 4, 2026.`\
+https://nytimes.com/2026/01/04/pageoneplus/corrections-jan-4-2026.html
+
 **Senators outraged after Brady Tkachuk sucker punched by Logan Stanley, given misconduct**\
 `Tkachuk was assessed a 10-minute misconduct, while Stanley received two minor penalties.
 `\
@@ -18,24 +38,4 @@ https://nytimes.com/athletic/6938464/2026/01/03/buccaneers-win-panthers-nfc-sout
 **Steph, Dell Curry set NBA record for most combined games by father-son duo**\
 `The Currys have become synonymous with high-level shooting through several decades.`\
 https://nytimes.com/athletic/6938449/2026/01/03/steph-dell-curry-nba-record-father-son-duo/
-
-**Celtics' Jordan Walsh believes he must do more to regain rotation spot**\
-`After the win against Sacramento, Joe Mazzulla said moving away from Walsh at halftime was not because of anything he’s doing wrong.`\
-https://nytimes.com/athletic/6938408/2026/01/03/jordan-walsh-out-rotation-celtics-clippers/
-
-**Surging Blackhawks hope Bedard, Nazar return to a reinvented, more versatile team**\
-`Without Bedard and Nazar, the Blackhawks have been trying to reinvent themselves as a team that grinds out low-scoring victories.`\
-https://nytimes.com/athletic/6938447/2026/01/03/blackhawks-capitals-connor-bedard-frank-nazar-injuries/
-
-**Panthers miss another chance to clinch, blame themselves for loss**\
-`A couple questionable officiating calls didn't help the Panthers, but neither did their lack of a run game and a botched flea flicker.`\
-https://nytimes.com/athletic/6938428/2026/01/03/panthers-lose-playoffs-nfc-south-bucs/
-
-**Seahawks' defense snuffs out 49ers to claim NFC's top seed, playoff bye: Takeaways**\
-`The Seahawks held the 49ers to only 173 yards and three points to win the NFC West and secure home-field advantage throughout the playoffs.`\
-https://nytimes.com/athletic/6938392/2026/01/03/seahawks-49ers-score-result-takeaways-nfc-west/
-
-**NFL Week 18 playoff scenarios: With NFC West title settled, what's next?**\
-`A look at which teams still have a shot at home-field advantage or a bye in the first round of the NFL playoffs.`\
-https://nytimes.com/athletic/6936896/2026/01/03/nfl-playoffs-scenarios-matchups-seed-team-week-18-nfc-west/
 
