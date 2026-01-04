@@ -1,3 +1,8 @@
+**Senators outraged after Brady Tkachuk sucker punched by Logan Stanley, given misconduct**\
+`Tkachuk was assessed a 10-minute misconduct, while Stanley received two minor penalties.
+`\
+https://nytimes.com/athletic/6938503/2026/01/03/senators-brady-tkachuk-logan-stanley-punch-misconduct/
+
 **Why Trump Removed Venezuela’s Maduro**\
 `David E. Sanger, our national security correspondent, describes the implications of President Trump’s launching of the attack that captured the Venezuelan president, and Trump’s declaration that the United States would “run the country.”`\
 https://nytimes.com/video/world/americas/100000010622273/why-trump-removed-venezuelas-maduro.html
@@ -33,8 +38,4 @@ https://nytimes.com/athletic/6938392/2026/01/03/seahawks-49ers-score-result-take
 **NFL Week 18 playoff scenarios: With NFC West title settled, what's next?**\
 `A look at which teams still have a shot at home-field advantage or a bye in the first round of the NFL playoffs.`\
 https://nytimes.com/athletic/6936896/2026/01/03/nfl-playoffs-scenarios-matchups-seed-team-week-18-nfc-west/
-
-**Anthony Edwards, Timberwolves reconnect in Miami to halt slide and restore belief**\
-`After losing three of their last four, Edwards and the Timberwolves responded with a statement win in Miami.`\
-https://nytimes.com/athletic/6938117/2026/01/03/edwards-timberwolves-overcoming-frustrations-nba-trade-deadline/
 
