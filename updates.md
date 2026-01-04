@@ -1,3 +1,11 @@
+**The New York Times in Print for Sunday, Jan. 4, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/01/04/todays-new-york-times
+
+**This Is What Venezuelans Really Want**\
+`We have long faced a brutal paradox: an absent yet omnipotent state.`\
+https://nytimes.com/2026/01/04/opinion/venezuela-maduro-trump-people.html
+
 **Mirtle: Forget 1967. Auston Matthews' latest feat should be celebrated for what it is**\
 `It's worth hitting pause on the angst around Toronto to appreciate the accomplishment of Matthews becoming its all-time leading goal scorer.`\
 https://nytimes.com/athletic/6938445/2026/01/04/maple-leafs-auston-matthews-goals-record-nhl/
