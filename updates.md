@@ -1,3 +1,7 @@
+**Top Democrats Say Trump Has Still Not Briefed Congress on U.S. Military Action in Venezuela**\
+`“This is just another example of absolute lawlessness on the part of this administration,” said Representative Jim Himes of Connecticut, the top Democrat on the House Intelligence Committee.`\
+https://nytimes.com/2026/01/04/us/politics/congress-venezuela-trump-maduro.html
+
 **Brewers prospect Frank Cairone hospitalized after car crash**\
 `Milwaukee selected the left-hander out of high school with the No. 68 pick in the 2025 MLB Draft.`\
 https://nytimes.com/athletic/6939462/2026/01/04/brewers-prospect-frank-cairone-car-crash/
