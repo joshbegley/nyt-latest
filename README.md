@@ -1,3 +1,7 @@
+**Blue Jackets dial up checking to snap Sabres' 10-game win streak**\
+`Columbus made quick work of Buffalo, relying on five different goal scorers and a sterling outing by goaltender Jet Greaves to win 5-1.`\
+https://nytimes.com/athletic/6938218/2026/01/03/blue-jackets-sabres-win-streak/
+
 **In Wake of U.S. Strike, Venezuelan Paramilitaries Are Little Seen**\
 `As the armed civilian groups often used to suppress protests kept a low profile, the role they might play in the country’s new situation remained unclear.`\
 https://nytimes.com/2026/01/03/world/americas/venezuela-paramilitaries-colectivos.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/03/us/politics/maduro-trump-base-america-first.html
 **Trump Long Wanted to ‘Take the Oil.’ He Says He’ll Do It in Venezuela.**\
 `The White House had pointed to drug trafficking and migration as reasons to crack down on Nicolás Maduro. But oil emerged as central to President Trump.`\
 https://nytimes.com/2026/01/03/us/politics/trump-venezuela-oil.html
-
-**WATCH: Why Jaxson Dart has what it takes to be NFL's next elite QB**\
-`We break down the improvements Dart has shown during his rookie season and discuss why the Giants still believe in their rookie QB`\
-https://nytimes.com/athletic/6938171/2026/01/03/jaxson-dart-film-breakdown-giants-nfl/
 
