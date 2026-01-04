@@ -1,3 +1,7 @@
+**Harrison Reed vs Liverpool: The best shot of the Premier League season?**\
+`A swerving, dipping 25-yard thunderbolt left Arne Slot's side in a state of disbelief - not to mention the goalscorer`\
+https://nytimes.com/athletic/6939592/2026/01/04/harrison-reed-goal-fulham-liverpool/
+
 **Top Democrats Say Trump Has Still Not Briefed Congress on U.S. Military Action in Venezuela**\
 `“This is just another example of absolute lawlessness on the part of this administration,” said Representative Jim Himes of Connecticut, the top Democrat on the House Intelligence Committee.`\
 https://nytimes.com/2026/01/04/us/politics/congress-venezuela-trump-maduro.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6939550/2026/01/04/yankees-interest-edward-cabrera-
 **The Briefing: Fulham 2 Liverpool 2 - A stunning late leveller, offside calls, Wirtz scores again**\
 `Fulham come from behind to score a late leveller to deny Liverpool victory at Craven Cottage `\
 https://nytimes.com/athletic/6928592/2026/01/04/fulham-2-liverpool-2-wirtz-gakpo-reed/
-
-**The Briefing: Newcastle 2 Crystal Palace 0 - Long-overdue clean sheet, Miley's maturity and back-to-back wins**\
-`All the key talking points analysed from Newcastle's victory over Crystal Palace`\
-https://nytimes.com/athletic/6929508/2026/01/04/newcastle-crystal-palace-briefing/
 
