@@ -1,5 +1,5 @@
 **Buccaneers gut out win over Panthers, settle in for uncomfortable waiting game**\
-`Tampa Bay coach Todd Bowles: “You can’t wait ’til tomorrow if you don’t win today, so, it was a gutsy performance."`\
+`Tampa Bay coach Todd Bowles: "You can't wait till tomorrow if you don't win today. So, it was a gutsy performance."`\
 https://nytimes.com/athletic/6938464/2026/01/03/buccaneers-win-panthers-nfc-south-waiting-game/
 
 **Steph, Dell Curry set NBA record for most combined games by father-son duo**\
