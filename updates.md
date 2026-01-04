@@ -1,3 +1,15 @@
+**Celtics' Jordan Walsh believes he must do more to regain rotation spot**\
+`After the win against Sacramento, Joe Mazzulla said moving away from Walsh at halftime was not because of anything he’s doing wrong.`\
+https://nytimes.com/athletic/6938408/2026/01/03/jordan-walsh-out-rotation-celtics-clippers/
+
+**Surging Blackhawks hope Bedard, Nazar return to a reinvented, more versatile team**\
+`Without Bedard and Nazar, the Blackhawks have been trying to reinvent themselves as a team that grinds out low-scoring victories.`\
+https://nytimes.com/athletic/6938447/2026/01/03/blackhawks-capitals-connor-bedard-frank-nazar-injuries/
+
+**Seahawks' defense snuffs out 49ers to claim NFC's top seed, playoff bye: Takeaways**\
+`The Seahawks held the 49ers to only 173 yards and three points to win the NFC West and secure home-field advantage throughout the playoffs.`\
+https://nytimes.com/athletic/6938392/2026/01/03/seahawks-49ers-score-result-takeaways-nfc-west/
+
 **Panthers miss another chance to clinch, blame themselves for being in this position**\
 `A couple questionable officiating calls didn't help the Panthers, but neither did their lack of a run game and a botched flea flicker.`\
 https://nytimes.com/athletic/6938428/2026/01/03/panthers-lose-playoffs-nfc-south-bucs/

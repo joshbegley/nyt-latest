@@ -1,3 +1,11 @@
+**Buccaneers gut out win over Panthers, settle in for uncomfortable waiting game**\
+`Tampa Bay coach Todd Bowles: “You can’t wait ’til tomorrow if you don’t win today, so, it was a gutsy performance."`\
+https://nytimes.com/athletic/6938464/2026/01/03/buccaneers-win-panthers-nfc-south-waiting-game/
+
+**Steph, Dell Curry set NBA record for most combined games by father-son duo**\
+`The Currys have become synonymous with high-level shooting through several decades.`\
+https://nytimes.com/athletic/6938449/2026/01/03/steph-dell-curry-nba-record-father-son-duo/
+
 **Celtics' Jordan Walsh believes he must do more to regain rotation spot**\
 `After the win against Sacramento, Joe Mazzulla said moving away from Walsh at halftime was not because of anything he’s doing wrong.`\
 https://nytimes.com/athletic/6938408/2026/01/03/jordan-walsh-out-rotation-celtics-clippers/
@@ -6,7 +14,7 @@ https://nytimes.com/athletic/6938408/2026/01/03/jordan-walsh-out-rotation-celtic
 `Without Bedard and Nazar, the Blackhawks have been trying to reinvent themselves as a team that grinds out low-scoring victories.`\
 https://nytimes.com/athletic/6938447/2026/01/03/blackhawks-capitals-connor-bedard-frank-nazar-injuries/
 
-**Panthers miss another chance to clinch, blame themselves for being in this position**\
+**Panthers miss another chance to clinch, blame themselves for loss**\
 `A couple questionable officiating calls didn't help the Panthers, but neither did their lack of a run game and a botched flea flicker.`\
 https://nytimes.com/athletic/6938428/2026/01/03/panthers-lose-playoffs-nfc-south-bucs/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6938307/2026/01/03/jordan-stolz-us-olympic-trials-f
 **Penguins suspend Egor Zamula for failing to report to AHL: Sources**\
 `Zamula's preference is to play in the NHL right now, but the Penguins don't currently have room for him on their roster.`\
 https://nytimes.com/athletic/6938361/2026/01/03/penguins-egor-zamula-suspend-report-ahl/
-
-**How to watch Miami (FL) vs. Ole Miss: CFP Semifinal Start Time, TV, streaming**\
-`Find out how to watch the Miami (FL) Hurricanes play the Ole Miss Rebels, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6938402/2026/01/03/miami-fl-vs-ole-miss-stream-how-to-watch-jan-8/
-
-**Rockets' Alperen Şengün leaves game vs. Mavericks with sprained ankle**\
-`The All-Star center was injured a little more than one minute into Saturday's game for Houston, which was already missing Steven Adams.`\
-https://nytimes.com/athletic/6938325/2026/01/03/rockets-alperen-sengun-injury-status-ankle-sprain/
 
