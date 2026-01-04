@@ -1,3 +1,7 @@
+**Caught Between Joy and Fear, Venezuelan Asylum Seekers Worry About What Comes Next**\
+`For many, the removal of the Venezuelan leader Nicolás Maduro has not eased uncertainty about their immigration status in the United States.`\
+https://nytimes.com/live/2026/01/03/world/trump-united-states-strikes-venezuela/venezuela-asylum-seekers
+
 **The Bucs and Panthers have to wait another day to know playoff fate: Takeaways**\
 `Carolina fails to clinch so both teams will be watching the Saints-Falcons on Sunday to determine the NFC South winner.`\
 https://nytimes.com/athletic/6938230/2026/01/03/panthers-buccaneers-score-result-takeaways-nfc-south/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/03/world/americas/trump-maduro-juan-orlando-hernande
 **What Travelers Need to Know About Canceled Flights in the Caribbean**\
 `The F.A.A. grounded U.S. flights in the region because of the Trump administration’s military action in Venezuela, stranding travelers and disrupting vacations.`\
 https://nytimes.com/2026/01/03/travel/caribbean-flight-cancellations-trump-venezuela.html
-
-**In Toppling Maduro, Trump Risks Blowback from ‘America First’ Base**\
-`President Trump’s pledge that the United States would “run” Venezuela for an indefinite period showed he is willing to enter foreign conflicts he once promised to end.`\
-https://nytimes.com/2026/01/03/us/politics/maduro-trump-base-america-first.html
 
