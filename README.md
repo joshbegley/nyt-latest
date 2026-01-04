@@ -1,3 +1,7 @@
+**Iran’s Dual Challenge: Unrest at Home, Threat of Strikes From Abroad**\
+`Officials said that leaders were in survival mode amid anti-government protests and the prospect of again coming into the cross hairs of Israel and the United States.`\
+https://nytimes.com/2026/01/04/world/middleeast/iran-protests.html
+
 **What's going on with Ole Miss' assistant coaches? Here's what you need to know**\
 `Pete Golding made it clear that Ole Miss will have capable coaches with the team on Thursday no matter what happens.`\
 https://nytimes.com/athletic/6939065/2026/01/04/lane-kiffin-pete-golding-ole-miss-coaches/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6938840/2026/01/04/san-francisco-49ers-defense-seah
 **‘Everyone Is in Shock’: Swiss Town Grieves as More Fire Victims Are Identified**\
 `In Crans-Montana, the ski resort where at least 40 people died in a New Year’s Day blaze, residents were struggling to come to terms with one of the worst such disasters in Switzerland’s history.`\
 https://nytimes.com/2026/01/04/world/europe/crans-montana-victims.html
-
-**The Pulse: An unserious division delivers**\
-`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
-https://nytimes.com/athletic/6938642/2026/01/04/the-nfls-harebrained-division-does-it-yet-again/
 
