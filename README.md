@@ -1,3 +1,7 @@
+**Days After U.S. Strikes in Nigeria, Gunmen Kill Dozens of Villagers**\
+`The attackers also abducted an unspecified number of people, including students from a Catholic school where over 300 people were kidnapped in November.`\
+https://nytimes.com/2026/01/04/world/africa/nigeria-killings-niger-state.html
+
 **How Venezuelans Worldwide Reacted to Overthrow of Maduro**\
 `For Venezuelans living abroad, news of the U.S. military intervention and President Nicolás Maduro’s capture triggered a wide spectrum of emotions, ranging from joy to anger and uncertainty.`\
 https://nytimes.com/video/world/americas/100000010623420/venezuelans-global-react-maduro-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6940085/2026/01/04/novak-djokovic-ptpa-tennis-playe
 **Saints-Falcons takeaways: Atlanta beats New Orleans to hand NFC South to Carolina**\
 `Atlanta's win created a three-way tie for the top of the NFC South, which the Panthers won on a tiebreaker.`\
 https://nytimes.com/athletic/6939684/2026/01/04/saints-falcons-score-result-takeaways-nfc-south-champion/
-
-**Jaguars guaranteed top-3 playoff seed after rout of Titans: Takeaways**\
-`Jacksonville enters the playoffs as one of the NFL's hottest teams, with eight straight wins.`\
-https://nytimes.com/athletic/6939655/2026/01/04/titans-jaguars-score-result-takeaways-nfl-week-18/
 

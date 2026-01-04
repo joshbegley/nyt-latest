@@ -1,3 +1,7 @@
+**How Venezuelans Worldwide Reacted to Overthrow of Maduro**\
+`For Venezuelans living abroad, news of the U.S. military intervention and President Nicolás Maduro’s capture triggered a wide spectrum of emotions, ranging from joy to anger and uncertainty.`\
+https://nytimes.com/video/world/americas/100000010623420/venezuelans-global-react-maduro-trump.html
+
 **Myles Garrett breaks sacks record, Browns win season finale vs. Bengals**\
 `With two defensive touchdowns, the Browns earned a 20-18 win over their division rivals and finished the season 5-12.`\
 https://nytimes.com/athletic/6939515/2026/01/04/browns-bengals-score-result-takeaways-myles-garrett-sack-record/
