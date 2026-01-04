@@ -1,3 +1,8 @@
+**Senators outraged after Brady Tkachuk sucker punched by Logan Stanley, given misconduct**\
+`Tkachuk was assessed a 10-minute misconduct, while Stanley received two minor penalties.
+`\
+https://nytimes.com/athletic/6938503/2026/01/03/senators-brady-tkachuk-logan-stanley-punch-misconduct/
+
 **Why Trump Removed Venezuela’s Maduro**\
 `David E. Sanger, our national security correspondent, describes the implications of President Trump’s launching of the attack that captured the Venezuelan president, and Trump’s declaration that the United States would “run the country.”`\
 https://nytimes.com/video/world/americas/100000010622273/why-trump-removed-venezuelas-maduro.html
