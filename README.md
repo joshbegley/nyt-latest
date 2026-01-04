@@ -1,3 +1,7 @@
+**Mikaela Shiffrin's World Cup streak ends as Camille Rast wins second straight race**\
+`Rast pulled off a weekend double to end Shiffrin's streak of six straight slalom victories.`\
+https://nytimes.com/athletic/6938871/2026/01/04/mikaela-shiffrin-camille-rast-world-cup-slalom-streak/
+
 **Luke Littler is on the path to greatness: 'I'll be around for a very long time'**\
 `Luke Littler emphatically retained his world title and can now be regarded as an all-time great of his sport`\
 https://nytimes.com/athletic/6938693/2026/01/04/luke-littler-pdc-darts-world-championship-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6938784/2026/01/04/jaylen-brown-celtics-best-two-wa
 **Want to Feel Better? Just Dance.**\
 `On a vacation abroad, my family started dancing in public. We haven’t stopped.`\
 https://nytimes.com/2026/01/04/opinion/dancing-happiness-new-year.html
-
-**49ers' inescapable flaw grows more glaring, an ominous sign for playoffs**\
-`The likeliest playoff scenario has the linebacker-needy 49ers traveling to play the Eagles, who are built a lot like the Seahawks.`\
-https://nytimes.com/athletic/6938641/2026/01/04/49ers-seahawks-run-defense-injuries-linebackers/
 
