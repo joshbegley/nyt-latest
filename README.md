@@ -1,5 +1,5 @@
 **Blue Jackets dial up checking to snap Sabres' 10-game win streak**\
-`Columbus made quick work of Buffalo, relying on five different goal scorers and a sterling outing by goaltender Jet Greaves to win 5-1.`\
+`Columbus made quick work of Buffalo, relying on five goal scorers and a sterling outing by goaltender Jet Greaves to win 5-1.`\
 https://nytimes.com/athletic/6938218/2026/01/03/blue-jackets-sabres-win-streak/
 
 **In Wake of U.S. Strike, Venezuelan Paramilitaries Are Little Seen**\
