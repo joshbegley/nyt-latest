@@ -1,3 +1,7 @@
+**Caught Between Joy and Fear, Venezuelan Asylum Seekers Worry About What Comes Next**\
+`For many, the removal of the Venezuelan leader Nicolás Maduro has not eased uncertainty about their immigration status in the United States.`\
+https://nytimes.com/live/2026/01/03/world/trump-united-states-strikes-venezuela/venezuela-asylum-seekers
+
 **The Bucs and Panthers have to wait another day to know playoff fate: Takeaways**\
 `Carolina fails to clinch so both teams will be watching the Saints-Falcons on Sunday to determine the NFC South winner.`\
 https://nytimes.com/athletic/6938230/2026/01/03/panthers-buccaneers-score-result-takeaways-nfc-south/
