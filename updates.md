@@ -1,3 +1,11 @@
+**Venezuelans in Colombia Rejoice, but Are Not Ready to Rush Back Home**\
+`“I had utterly lost hope,” said one Venezuelan who has lived in exile from his country for seven years.`\
+https://nytimes.com/2026/01/04/world/americas/venezuelan-exiles-maduro.html
+
+**Satellite Imagery Reveals Damage to Venezuelan Base Where Maduro Was Captured**\
+`Before-and-after imagery released on Sunday shows that at least five buildings at the complex were destroyed by U.S. forces.`\
+https://nytimes.com/2026/01/04/world/americas/maduro-capture-satellite-photos.html
+
 **Satellite Imagery Reveals Damage to Venezuelan Base Where Maduro Was Captured**\
 `Before-and-after imagery released on Sunday shows that at least five buildings at the complex were destroyed by U.S. forces.`\
 https://nytimes.com/2026/01/04/world/maduro-capture-satellite-photos.html
