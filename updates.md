@@ -1,3 +1,7 @@
+**Penguins suspend Egor Zamula for failing to report to AHL: Sources**\
+`Zamula's preference is to play in the NHL right now, but the Penguins don't currently have room for him on their NHL roster.`\
+https://nytimes.com/athletic/6938361/2026/01/03/penguins-egor-zamula-suspend-report-ahl/
+
 **How to watch Miami (FL) vs. Ole Miss: CFP Semifinal Start Time, TV, streaming**\
 `Find out how to watch the Miami (FL) Hurricanes play the Ole Miss Rebels, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6938402/2026/01/03/miami-fl-vs-ole-miss-stream-how-to-watch-jan-8/
