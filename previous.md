@@ -1,3 +1,7 @@
+**The Briefing: Man City 1 Chelsea 1 - will Fernandez's late equaliser be a big moment in the title race?**\
+`Jordan Campbell, Simon Johnson and Thom Harris analyse the main talking points from Manchester City's draw against over managerless Chelsea`\
+https://nytimes.com/athletic/6937624/2026/01/04/manchester-city-chelsea-analysis-premier-league/
+
 **Francis Patrelle, Founder of a Ballet Company, Dies at 78**\
 `A champion of the story ballet, he built a tightly knit community in New York around his classes at Ballet Academy East and his company, Dances Patrelle.`\
 https://nytimes.com/2026/01/04/arts/dance/francis-patrelle-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6939592/2026/01/04/harrison-reed-goal-fulham-liverp
 **Top Democrats Say Trump Has Still Not Briefed Congress on U.S. Military Action in Venezuela**\
 `“This is just another example of absolute lawlessness on the part of this administration,” said Representative Jim Himes of Connecticut, the top Democrat on the House Intelligence Committee.`\
 https://nytimes.com/2026/01/04/us/politics/congress-venezuela-trump-maduro.html
-
-**Brewers prospect Frank Cairone hospitalized after car crash**\
-`Milwaukee selected the left-hander out of high school with the No. 68 pick in the 2025 MLB Draft.`\
-https://nytimes.com/athletic/6939462/2026/01/04/brewers-prospect-frank-cairone-car-crash/
 

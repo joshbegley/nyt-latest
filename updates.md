@@ -1,3 +1,7 @@
+**The Briefing: Man City 1 Chelsea 1 - will Fernandez's late equaliser be a big moment in the title race?**\
+`Jordan Campbell, Simon Johnson and Thom Harris analyse the main talking points from Manchester City's draw against over managerless Chelsea`\
+https://nytimes.com/athletic/6937624/2026/01/04/manchester-city-chelsea-analysis-premier-league/
+
 **Francis Patrelle, Founder of a Ballet Company, Dies at 78**\
 `A champion of the story ballet, he built a tightly knit community in New York around his classes at Ballet Academy East and his company, Dances Patrelle.`\
 https://nytimes.com/2026/01/04/arts/dance/francis-patrelle-dead.html
