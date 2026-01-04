@@ -1,3 +1,7 @@
+**Huijsen in contention for Real Madrid return against Atletico**\
+`The defender missed Sunday's home game against Real Betis with a minor injury.`\
+https://nytimes.com/athletic/6939147/2026/01/04/dean-huijsen-real-madrid-injury/
+
 **Leeds 1 Man Utd 1: Where does this leave Amorim? A missed opportunity for Farke?**\
 `Dissecting the major talking points from the Premier League clash at Elland Road`\
 https://nytimes.com/athletic/6928591/2026/01/04/leeds-man-utd-amorim-analysis/
