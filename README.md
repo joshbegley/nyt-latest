@@ -1,3 +1,7 @@
+**Strasbourg's Rosenior flies to London for Chelsea talks**\
+`The 41-year-old has previously held managerial positions at Derby County, on an interim basis, and Hull City. `\
+https://nytimes.com/athletic/6934475/2026/01/04/liam-rosenior-chelsea-manager-news/
+
 **Myles Garrett breaks NFL's single-season sacks record**\
 `Garrett broke the previous record of 22.5 that was shared by Michael Strahan and T.J. Watt. `\
 https://nytimes.com/athletic/6908796/2026/01/04/myles-garrett-single-season-sack-record-browns/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/04/opinion/venezuela-maduro-trump.html
 **Mamdani Names Housing Leader and Pledges ‘Rental Rip-off’ Hearings**\
 `Mayor Zohran Mamdani named a housing commissioner and announced that the city would hold public hearings where frustrated renters could voice their complaints.`\
 https://nytimes.com/2026/01/04/nyregion/mamdani-dina-levy-housing-hpd.html
-
-**How to watch Bucks vs. Kings: Time, TV, streaming**\
-`Find out how to watch the Milwaukee Bucks play the Sacramento Kings, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6939772/2026/01/04/bucks-vs-kings-stream-how-to-watch-jan-4/
 
