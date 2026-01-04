@@ -1,3 +1,7 @@
+**Americans turn out for protests in Chicago and Washington.**\
+`Opponents of the U.S. intervention in Venezuela called it illegal and warned of a widening war. Supporters celebrated an authoritarian president’s fall.`\
+https://nytimes.com/live/2026/01/03/world/trump-united-states-strikes-venezuela/venezuela-chicago-washington-protests
+
 **Auston Matthews ties Mats Sundin for Maple Leafs goals record**\
 `Matthews equaled Sundin in just 664 games, 317 fewer than the 981 Sundin played for the Leafs.`\
 https://nytimes.com/athletic/6937420/2026/01/03/auston-matthews-maple-leafs-goals-record/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/03/world/americas/venezuela-airstrike-civilian-death
 **Kansas' Darryn Peterson stars in first half of return, but sits late as UCF beats Jayhawks**\
 `Peterson sat the final 10:55 as KU lost to UCF. Bill Self attributed it to a minutes restriction and Peterson's legs feeling differently.`\
 https://nytimes.com/athletic/6938183/2026/01/03/darryn-peterson-kansas-return-ucf-college-basketball/
-
-**A Pardon and a Prosecution in New York Show Trump’s Personal Geopolitics**\
-`The facts in the cases of Nicolás Maduro and Juan Orlando Hernández are strikingly similar. The men’s fates are not.`\
-https://nytimes.com/2026/01/03/world/americas/trump-maduro-juan-orlando-hernandez.html
 
