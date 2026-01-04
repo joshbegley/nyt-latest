@@ -1,3 +1,11 @@
+**Panthers win NFC South title with assist from Falcons' win over Saints**\
+`The Panthers lost their final two games but backed into the playoffs after the Falcons' win over the Saints forced a three-way tie.`\
+https://nytimes.com/athletic/6939396/2026/01/04/nfc-south-championship-panthers-bucs-saints-falcons/
+
+**Titans QB Cam Ward suffers AC joint sprain vs. Jaguars: Source**\
+`No. 1 pick in 2025 draft showed progress in rookie season, completing 59.8 percent of his passes for 15 TDs and seven interceptions.`\
+https://nytimes.com/athletic/6939846/2026/01/04/cam-ward-shoulder-injury-titans-nfl/
+
 **Las Vegas Raiders clinch No. 1 pick in 2026 NFL Draft**\
 `The Raiders secured the No. 1 pick before even playing Sunday, while the Giants could fall out of the top five.`\
 https://nytimes.com/athletic/6938314/2026/01/04/raiders-no-1-pick-2026-nfl-draft/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6939703/2026/01/04/royals-manager-matt-quatraro-ext
 **The Briefing: Man City 1 Chelsea 1 - will Fernandez's late equaliser be a big moment in the title race?**\
 `Jordan Campbell, Simon Johnson and Thom Harris analyse the main talking points from Manchester City's draw with managerless Chelsea`\
 https://nytimes.com/athletic/6937624/2026/01/04/manchester-city-chelsea-analysis-premier-league/
-
-**Francis Patrelle, Founder of a Ballet Company, Dies at 78**\
-`A champion of the story ballet, he built a tightly knit community in New York around his classes at Ballet Academy East and his company, Dances Patrelle.`\
-https://nytimes.com/2026/01/04/arts/dance/francis-patrelle-dead.html
-
-**What I Learned in Venezuela**\
-`Many are celebrating the ouster of a brutal dictator, but the Maduro regime may survive the loss of Maduro.`\
-https://nytimes.com/2026/01/04/opinion/venezuela-maduro-trump.html
 

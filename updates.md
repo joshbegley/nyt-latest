@@ -1,3 +1,7 @@
+**Las Vegas Raiders clinch No. 1 pick in 2026 NFL Draft**\
+`The Raiders secured the No. 1 pick before even playing Sunday, while the Giants could fall out of the top five.`\
+https://nytimes.com/athletic/6938314/2026/01/04/raiders-no-1-pick-2026-nfl-draft/
+
 **Strasbourg's Rosenior flies to London for Chelsea talks**\
 `The 41-year-old has previously held managerial positions at Derby County, on an interim basis, and Hull City. `\
 https://nytimes.com/athletic/6934475/2026/01/04/liam-rosenior-chelsea-manager-news/
