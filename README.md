@@ -19,7 +19,7 @@ https://nytimes.com/2026/01/04/world/americas/maduro-capture-satellite-photos.ht
 https://nytimes.com/athletic/6939703/2026/01/04/royals-manager-matt-quatraro-extension/
 
 **The Briefing: Man City 1 Chelsea 1 - will Fernandez's late equaliser be a big moment in the title race?**\
-`Jordan Campbell, Simon Johnson and Thom Harris analyse the main talking points from Manchester City's draw against over managerless Chelsea`\
+`Jordan Campbell, Simon Johnson and Thom Harris analyse the main talking points from Manchester City's draw with managerless Chelsea`\
 https://nytimes.com/athletic/6937624/2026/01/04/manchester-city-chelsea-analysis-premier-league/
 
 **Francis Patrelle, Founder of a Ballet Company, Dies at 78**\
