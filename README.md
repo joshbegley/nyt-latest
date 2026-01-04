@@ -1,3 +1,7 @@
+**Anthony Edwards, Timberwolves reconnect in Miami to halt slide and restore belief**\
+`After losing three of their last four, Edwards and the Timberwolves responded with a statement win in Miami.`\
+https://nytimes.com/athletic/6938117/2026/01/03/edwards-timberwolves-overcoming-frustrations-nba-trade-deadline/
+
 **Jordan Stolz fell in his first race at the U.S. Olympic trials. But it's nothing to sweat**\
 `A new rule assured Stolz, U.S. speed skating's biggest star, was already a lock for the Olympics. Saturday showed the wisdom of that call.`\
 https://nytimes.com/athletic/6938307/2026/01/03/jordan-stolz-us-olympic-trials-fall-1000-meter/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/03/world/americas/maduro-last-interview-before-captu
 **Americans turn out for protests in Chicago and Washington.**\
 `Opponents of the U.S. intervention in Venezuela called it illegal and warned of a widening war. Supporters celebrated an authoritarian president’s fall.`\
 https://nytimes.com/live/2026/01/03/world/trump-maduro-venezuela-us-strikes/venezuela-chicago-washington-protests
-
-**Auston Matthews passes Mats Sundin for Maple Leafs goals record**\
-`Matthews passed Sundin in just 664 games, 317 fewer than the 981 Sundin played for the Leafs.`\
-https://nytimes.com/athletic/6937420/2026/01/03/auston-matthews-maple-leafs-goals-record/
 
