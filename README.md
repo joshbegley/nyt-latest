@@ -1,3 +1,7 @@
+**The U.S. has indicted Maduro on charges of cocaine smuggling, but experts say Venezuela’s role in that trade is modest.**\
+`By Genevieve Glatsky and Annie Correal`\
+https://nytimes.com/live/2026/01/03/world/trump-united-states-strikes-venezuela/venezuela-drug-trade
+
 **Trump Plunges the U.S. Into a New Era of Risk in Venezuela**\
 `President Trump opened a new chapter in American nation building as he declared that the United States had toppled Venezuela’s leader and would “run” the country for an indefinite period.`\
 https://nytimes.com/2026/01/03/us/politics/trump-venezuela-oil-risks.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6938171/2026/01/03/jaxson-dart-film-breakdown-giant
 **How Manhattan Federal Court Would Handle the Trial of a President**\
 `Nicolás Maduro, Venezuela’s president, could stand trial in Federal District Court in New York City, the site of other high-profile court proceedings.`\
 https://nytimes.com/2026/01/03/world/americas/maduro-trial-nyc-sdny.html
-
-**Base Pairs**\
-`This Sunday puzzle by Gene Louise De Vera breaks free from the laboratory.`\
-https://nytimes.com/2026/01/03/crosswords/daily-puzzle-2026-01-04.html
 

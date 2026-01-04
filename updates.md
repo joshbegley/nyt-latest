@@ -1,3 +1,11 @@
+**Trump Plunges the U.S. Into a New Era of Risk in Venezuela**\
+`President Trump opened a new chapter in American nation building as he declared that the United States had toppled Venezuela’s leader and would “run” the country for an indefinite period.`\
+https://nytimes.com/2026/01/03/us/politics/trump-venezuela-oil-risks.html
+
+**Venezuelan Official Says at Least 40 People Were Killed in U.S. Attack**\
+`The official said the dead included civilians and military personnel. At least one of the civilians was killed in a U.S. airstrike outside of Caracas, according to her family.`\
+https://nytimes.com/2026/01/03/world/americas/venezuela-airstrike-civilian-deaths.html
+
 **Kansas' Darryn Peterson stars in first half of return, but sits late as UCF beats Jayhawks**\
 `Peterson sat the final 10:55 as KU lost to UCF. Bill Self attributed it to a minutes restriction and Peterson's legs feeling differently.`\
 https://nytimes.com/athletic/6938183/2026/01/03/darryn-peterson-kansas-return-ucf-college-basketball/
