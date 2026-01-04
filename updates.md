@@ -1,3 +1,7 @@
+**Mirtle: Forget 1967. Auston Matthews' latest feat should be celebrated for what it is**\
+`It's worth hitting pause on the angst around Toronto to appreciate the accomplishment of Matthews becoming its all-time leading goal scorer.`\
+https://nytimes.com/athletic/6938445/2026/01/04/maple-leafs-auston-matthews-goals-record-nhl/
+
 **Why the rise of Mateus Mane offers Wolves new hope in 2026 and beyond**\
 `The talented youngster – who scored in Saturday's win against West Ham – is contracted to his club until 2029`\
 https://nytimes.com/athletic/6937957/2026/01/04/mateus-mane-wolves-rise/
