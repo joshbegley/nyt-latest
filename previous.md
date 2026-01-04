@@ -1,5 +1,9 @@
+**Why Trump Removed Venezuela’s Maduro**\
+`David E. Sanger, our national security correspondent, describes the implications of President Trump’s launching of the attack that captured the Venezuelan president, and Trump’s declaration that the United States would “run the country.”`\
+https://nytimes.com/video/world/americas/100000010622273/why-trump-removed-venezuelas-maduro.html
+
 **Draymond Green gets 2 technical fouls, is ejected for arguing with refs**\
-`Saturday's dismissal in the game against the Jazz is the 25th time Green has been ejected in his career.`\
+`Saturday's dismissal in the game against the Jazz is the 22nd time Green has been ejected from a regular-season game in his career.`\
 https://nytimes.com/athletic/6938523/2026/01/03/draymond-green-ejected-warriors-jazz/
 
 **Buccaneers gut out win over Panthers, settle in for uncomfortable waiting game**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6936896/2026/01/03/nfl-playoffs-scenarios-matchups-
 **Anthony Edwards, Timberwolves reconnect in Miami to halt slide and restore belief**\
 `After losing three of their last four, Edwards and the Timberwolves responded with a statement win in Miami.`\
 https://nytimes.com/athletic/6938117/2026/01/03/edwards-timberwolves-overcoming-frustrations-nba-trade-deadline/
-
-**Jordan Stolz fell in his first race at the U.S. Olympic trials. But it's nothing to sweat**\
-`A new rule assured Stolz, U.S. speed skating's biggest star, was already a lock for the Olympics. Saturday showed the wisdom of that call.`\
-https://nytimes.com/athletic/6938307/2026/01/03/jordan-stolz-us-olympic-trials-fall-1000-meter/
 
