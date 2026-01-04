@@ -1,3 +1,11 @@
+**How to watch Rutgers vs. Ohio State women's basketball: Time, TV, streaming**\
+`Find out how to watch the Rutgers Scarlet Knights play the Ohio State Buckeyes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6938978/2026/01/04/rutgers-vs-ohio-state-stream-how-to-watch-jan-4/
+
+**The Venezuela Takeover**\
+`Here’s what you need to know about the U.S. incursion into Venezuela.`\
+https://nytimes.com/2026/01/04/briefing/the-venezuela-takeover.html
+
 **Mikaela Shiffrin's World Cup streak ends as Camille Rast wins second straight race**\
 `Rast pulled off a weekend double to end Shiffrin's streak of six straight slalom victories.`\
 https://nytimes.com/athletic/6938871/2026/01/04/mikaela-shiffrin-camille-rast-world-cup-slalom-streak/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/04/opinion/tom-brady-goat-football-greatness.html
 **Wild rally from a goal down four times, fall to Kings in a shootout: Takeaways**\
 `Minnesota was resilient time after time on Saturday night in Los Angeles, coming away with a hard-earned point.`\
 https://nytimes.com/athletic/6938405/2026/01/04/wild-rally-four-times-lose-kings-shootout/
-
-**'I believe I'm the best two-way player in the world': Jaylen Brown goes off**\
-`Brown made 18 of 26 shots, matched his career-high of 50 points and helped shut down Kawhi Leonard in the Celtics' blowout of the Clippers.`\
-https://nytimes.com/athletic/6938784/2026/01/04/jaylen-brown-celtics-best-two-way-player/
-
-**Want to Feel Better? Just Dance.**\
-`On a vacation abroad, my family started dancing in public. We haven’t stopped.`\
-https://nytimes.com/2026/01/04/opinion/dancing-happiness-new-year.html
 
