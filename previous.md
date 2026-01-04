@@ -1,3 +1,7 @@
+**Kentucky quarterback Cutter Boley commits to Arizona State: Source**\
+`Boley, who was one of the top young quarterbacks in the SEC, will compete to replace Sam Leavitt as the Sun Devils starter.`\
+https://nytimes.com/athletic/6938644/2026/01/04/cutter-boley-kentucky-commits-arizona-state/
+
 **The New York Times in Print for Sunday, Jan. 4, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/01/04/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/04/world/americas/trump-venezuela-leader-rodriguez-m
 **How do Strasbourg fans feel about Liam Rosenior's potential exit?**\
 `BlueCo's Strasbourg drew 1-1 with INEOS' Nice on Saturday – The Athletic spoke to supporters of both clubs about life in a multi-club model`\
 https://nytimes.com/athletic/6938153/2026/01/04/strasbourg-liam-rosenior-chelsea-nice-ineos/
-
-**Declan Rice and Martin Odegaard are stepping up for Arsenal when it counts**\
-`Mikel Arteta rotated some of his team for Saturday's game at Bournemouth – but it was two of his main men who made the difference`\
-https://nytimes.com/athletic/6937968/2026/01/04/arsenal-rice-odegaard-bournemouth-premier-league/
 
