@@ -1,3 +1,11 @@
+**How to watch Pelicans vs. Heat: Time, TV, streaming**\
+`Find out how to watch the New Orleans Pelicans play the Miami Heat, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6939455/2026/01/04/pelicans-vs-heat-stream-how-to-watch-jan-4/
+
+**How to watch Golden Knights vs. Blackhawks: Time, TV, streaming**\
+`Find out how to watch the Vegas Golden Knights play the Chicago Blackhawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6939452/2026/01/04/golden-knights-vs-blackhawks-stream-how-to-watch-jan-4/
+
 **How to watch Timberwolves vs. Wizards: Time, TV, streaming**\
 `Find out how to watch the Minnesota Timberwolves play the Washington Wizards, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6939450/2026/01/04/timberwolves-vs-wizards-stream-how-to-watch-jan-4/
