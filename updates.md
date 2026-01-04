@@ -1,3 +1,5 @@
+
+
 **DIII runner deemed ineligible after accepting $6K in donations for tuition**\
 `Mohammed Bati works full time while studying political science at Augsburg University and running 150 miles per week.`\
 https://nytimes.com/athletic/6939123/2026/01/04/mohammed-bati-diii-runner-augsburg-ineligible-donations/
