@@ -1,3 +1,7 @@
+**Caught between joy and fear, Venezuelan asylum seekers worry about what comes next**\
+`For many, the removal of the Venezuelan leader Nicolás Maduro has not eased uncertainty about their immigration status in the United States.`\
+https://nytimes.com/live/2026/01/03/world/trump-united-states-strikes-venezuela/venezuela-asylum-seekers
+
 **Caught Between Joy and Fear, Venezuelan Asylum Seekers Worry About What Comes Next**\
 `For many, the removal of the Venezuelan leader Nicolás Maduro has not eased uncertainty about their immigration status in the United States.`\
 https://nytimes.com/live/2026/01/03/world/trump-united-states-strikes-venezuela/venezuela-asylum-seekers
