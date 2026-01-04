@@ -1,3 +1,11 @@
+**How to watch Pelicans vs. Heat: Time, TV, streaming**\
+`Find out how to watch the New Orleans Pelicans play the Miami Heat, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6939455/2026/01/04/pelicans-vs-heat-stream-how-to-watch-jan-4/
+
+**How to watch Golden Knights vs. Blackhawks: Time, TV, streaming**\
+`Find out how to watch the Vegas Golden Knights play the Chicago Blackhawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6939452/2026/01/04/golden-knights-vs-blackhawks-stream-how-to-watch-jan-4/
+
 **How to watch Timberwolves vs. Wizards: Time, TV, streaming**\
 `Find out how to watch the Minnesota Timberwolves play the Washington Wizards, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6939450/2026/01/04/timberwolves-vs-wizards-stream-how-to-watch-jan-4/
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/americas/100000010623077/venezuela-reactions-gro
 **Easy Does It**\
 `Our new collection of healthy dinner recipes is full of doable, delicious recipes to make on repeat, like this ginger chicken and rice soup with zucchini.`\
 https://nytimes.com/2026/01/04/dining/easy-does-it.html
-
-**Yemeni Forces, Backed by Saudi Arabia, Reclaim Territory From Separatists**\
-`An offensive by Yemeni government-allied forces appeared to turn the tide in a conflict that has become a proxy clash between Saudi Arabia and the United Arab Emirates.`\
-https://nytimes.com/2026/01/04/world/middleeast/yemeni-forces-backed-by-saudi-arabia-reclaim-territory-from-separatists.html
-
-**Healthy Sixers lineup seeing positive results: 3 straight road games, 3 wins**\
-`The 76ers are riding a three-game winning streak, with all of the victories on the road. The team is healthy and finding more rhythm.`\
-https://nytimes.com/athletic/6938547/2026/01/04/sixers-nba-health-embiid-edgecombe-maxey/
 

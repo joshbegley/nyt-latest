@@ -1,3 +1,23 @@
+**How to watch Timberwolves vs. Wizards: Time, TV, streaming**\
+`Find out how to watch the Minnesota Timberwolves play the Washington Wizards, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6939450/2026/01/04/timberwolves-vs-wizards-stream-how-to-watch-jan-4/
+
+**How to watch Hurricanes vs. Devils: Time, TV, streaming**\
+`Find out how to watch the Carolina Hurricanes play the New Jersey Devils, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6939448/2026/01/04/hurricanes-vs-devils-stream-how-to-watch-jan-4/
+
+**How to watch Avalanche vs. Panthers: Time, TV, streaming**\
+`Find out how to watch the Colorado Avalanche play the Florida Panthers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6939445/2026/01/04/avalanche-vs-panthers-stream-how-to-watch-jan-4/
+
+**How to watch LSU vs. Vanderbilt women's basketball: Time, TV, streaming**\
+`Find out how to watch the LSU Tigers play the Vanderbilt Commodores, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6939434/2026/01/04/lsu-vs-vanderbilt-stream-how-to-watch-jan-4/
+
+**The SEC's dismal bowl record this season points to a fundamental truth: money matters**\
+`The SEC is 4-9 in bowl games this season. Does that point to an even playing field? `\
+https://nytimes.com/athletic/6938399/2026/01/04/sec-football-bowl-records-nil-transfer-portal/
+
 **How to watch Indiana vs. Maryland women's basketball: Time, TV, streaming**\
 `Find out how to watch the Indiana Hoosiers play the Maryland Terrapins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6939409/2026/01/04/indiana-vs-maryland-stream-how-to-watch-jan-4/
