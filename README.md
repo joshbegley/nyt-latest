@@ -1,3 +1,11 @@
+**Real's Mbappe expected to miss Atletico Super Cup clash on Thursday due to injury**\
+`Madrid reported on December 31 that Mbappe had sprained his left knee.`\
+https://nytimes.com/athletic/6940287/2026/01/04/mbappe-injury-news-real-madrid-spanish-super-club/
+
+**Sharks extend Alexander Wennberg: What it means for the surprise contenders**\
+`The Sharks announced Sunday they've re-signed Wennberg to a three-year, $18 million contract.`\
+https://nytimes.com/athletic/6940012/2026/01/04/alexander-wennberg-sharks-contract-playoff-contender/
+
 **Days After U.S. Strikes in Nigeria, Gunmen Kill Dozens of Villagers**\
 `The attackers also abducted an unspecified number of people, including students from a Catholic school where over 300 people were kidnapped in November.`\
 https://nytimes.com/2026/01/04/world/africa/nigeria-killings-niger-state.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/04/opinion/putin-maduro-venezuela.html
 **Myles Garrett breaks sacks record, Browns win season finale vs. Bengals**\
 `With two defensive touchdowns, the Browns earned a 20-18 win over their division rivals and finished the season 5-12.`\
 https://nytimes.com/athletic/6939515/2026/01/04/browns-bengals-score-result-takeaways-myles-garrett-sack-record/
-
-**Novak Djokovic steps away from tennis player organization over representation of 'my voice and image'**\
-`Djokovic, 38, leaves the organization at the center of its most significant undertaking since its founding.`\
-https://nytimes.com/athletic/6940085/2026/01/04/novak-djokovic-ptpa-tennis-player-organization-leaves/
-
-**Saints-Falcons takeaways: Atlanta beats New Orleans to hand NFC South to Carolina**\
-`Atlanta's win created a three-way tie for the top of the NFC South, which the Panthers won on a tiebreaker.`\
-https://nytimes.com/athletic/6939684/2026/01/04/saints-falcons-score-result-takeaways-nfc-south-champion/
 
