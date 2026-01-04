@@ -1,3 +1,15 @@
+**Americans turn out for protests in Chicago and Washington.**\
+`Opponents of the U.S. intervention in Venezuela called it illegal and warned of a widening war. Supporters celebrated an authoritarian president’s fall.`\
+https://nytimes.com/live/2026/01/03/world/trump-united-states-strikes-venezuela/venezuela-chicago-washington-protests
+
+**Auston Matthews ties Mats Sundin for Maple Leafs goals record**\
+`Matthews equaled Sundin in just 664 games, 317 fewer than the 981 Sundin played for the Leafs.`\
+https://nytimes.com/athletic/6937420/2026/01/03/auston-matthews-maple-leafs-goals-record/
+
+**Venezuelan asylum seekers worry about what comes next.**\
+`For many, the removal of the Venezuelan leader Nicolás Maduro has not eased uncertainty about their immigration status in the United States.`\
+https://nytimes.com/live/2026/01/03/world/trump-united-states-strikes-venezuela/venezuela-asylum-seekers
+
 **Caught between joy and fear, Venezuelan asylum seekers worry about what comes next**\
 `For many, the removal of the Venezuelan leader Nicolás Maduro has not eased uncertainty about their immigration status in the United States.`\
 https://nytimes.com/live/2026/01/03/world/trump-united-states-strikes-venezuela/venezuela-asylum-seekers

@@ -1,3 +1,7 @@
+**Maduro’s Final Plea: ‘No War. Yes Peace.’**\
+`Days before he was captured, Nicolás Maduro expounded on his precarious position — and tried to offer an olive branch to President Trump.`\
+https://nytimes.com/2026/01/03/world/americas/maduro-last-interview-before-capture.html
+
 **Americans turn out for protests in Chicago and Washington.**\
 `Opponents of the U.S. intervention in Venezuela called it illegal and warned of a widening war. Supporters celebrated an authoritarian president’s fall.`\
 https://nytimes.com/live/2026/01/03/world/trump-united-states-strikes-venezuela/venezuela-chicago-washington-protests
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/03/us/politics/trump-venezuela-oil-risks.html
 **Venezuelan Official Says at Least 40 People Were Killed in U.S. Attack**\
 `The official said the dead included civilians and military personnel. At least one of the civilians was killed in a U.S. airstrike outside of Caracas, according to her family.`\
 https://nytimes.com/2026/01/03/world/americas/venezuela-airstrike-civilian-deaths.html
-
-**Kansas' Darryn Peterson stars in first half of return, but sits late as UCF beats Jayhawks**\
-`Peterson sat the final 10:55 as KU lost to UCF. Bill Self attributed it to a minutes restriction and Peterson's legs feeling differently.`\
-https://nytimes.com/athletic/6938183/2026/01/03/darryn-peterson-kansas-return-ucf-college-basketball/
 
