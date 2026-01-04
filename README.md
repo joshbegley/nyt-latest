@@ -1,3 +1,11 @@
+**Who Is Regulating Data Centers in Outer Space?**\
+`Space is not as unregulated as one may think. The “Hard Fork” hosts Kevin Roose and Casey Newton discuss Google’s new plan to build data centers in space.`\
+https://nytimes.com/video/podcasts/100000010615394/who-is-regulating-data-centers-in-outer-space.html
+
+**Buccaneers Defeat Panthers to Keep Playoff Hopes Alive**\
+`Baker Mayfield led the Tampa Bay Buccaneers to victory in a must-win game against the Carolina Panthers. Now, both teams will wait for their fate to be decided on Sunday.`\
+https://nytimes.com/video/the-athletic/100000010622926/buccaneers-defeat-panthers-to-keep-playoff-hopes-alive.html
+
 **Sweden's Viggo Bjorck keeps proving he's one of 2026 NHL Draft's top prospects**\
 `As an underager, Viggo Bjorck is starring for Sweden at the 2026 World Juniors.`\
 https://nytimes.com/athletic/6937617/2026/01/04/viggo-bjorck-sweden-world-juniors-nhl-draft-2026/
@@ -29,12 +37,4 @@ https://nytimes.com/issue/todaysinyt/2026/01/04/todays-new-york-times-internatio
 **How to watch Missouri vs. Kentucky women's basketball: Time, TV, streaming**\
 `Find out how to watch the Missouri Tigers play the Kentucky Wildcats, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6938819/2026/01/04/missouri-vs-kentucky-stream-how-to-watch-jan-4/
-
-**How to watch Illinois vs. Michigan State women's basketball: Time, TV, streaming**\
-`Find out how to watch the Illinois Fighting Illini play the Michigan State Spartans, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6938812/2026/01/04/illinois-vs-michigan-state-stream-how-to-watch-jan-4/
-
-**How to watch Stanford vs. North Carolina women's basketball: Time, TV, streaming**\
-`Find out how to watch the Stanford Cardinal play the North Carolina Tar Heels, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6938802/2026/01/04/stanford-vs-north-carolina-stream-how-to-watch-jan-4/
 
