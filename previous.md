@@ -1,3 +1,7 @@
+**Cowboys-Giants takeaways: Jaxson Dart guides New York to season-ending win**\
+`New York ended its season with two straight wins, while Dallas lost four of its last five games.`\
+https://nytimes.com/athletic/6939569/2026/01/04/cowboys-giants-score-result-takeaways-nfl-week-18/
+
 **Colts-Texans takeaways: Houston holds off Leonard, Indy even with rested starters**\
 `Since their last playoff appearance in 2020, the Colts are a combined 9-17 in December and January.`\
 https://nytimes.com/athletic/6939857/2026/01/04/colts-texans-score-result-takeaways-nfl-week-18/
@@ -14,7 +18,7 @@ https://nytimes.com/interactive/2026/01/04/espanol/venezuela-maduro-indictment-E
 `Allies? Who needs allies?`\
 https://nytimes.com/2026/01/04/opinion/putin-maduro-venezuela.html
 
-**Myles Garrett breaks sack record, Browns win season finale vs. Bengals**\
+**Myles Garrett breaks sacks record, Browns win season finale vs. Bengals**\
 `With two defensive touchdowns, the Browns earned 20-18 a win over their division rivals and finished the season 5-12.`\
 https://nytimes.com/athletic/6939515/2026/01/04/browns-bengals-score-result-takeaways-myles-garrett-sack-record/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6939655/2026/01/04/titans-jaguars-score-result-take
 **Penn State landing ex-Iowa State QB Rocco Becht as transfer: Source**\
 `Becht’s numbers dipped this past season after Iowa State lost two receivers to the 2025 NFL Draft.`\
 https://nytimes.com/athletic/6933796/2026/01/04/rocco-becht-penn-state-quarterback-transfer-iowa-state/
-
-**Chris Ballard has had long enough to fix the Colts. His time should be up**\
-`Ballard has had nine years to turn the Colts into a contender. He's failed every time. `\
-https://nytimes.com/athletic/6939670/2026/01/04/colts-chris-ballard-fired-carlie-irsay-gordon/
 

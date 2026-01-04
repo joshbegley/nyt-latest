@@ -1,3 +1,11 @@
+**Cowboys-Giants takeaways: Jaxson Dart guides New York to season-ending win**\
+`New York ended its season with two straight wins, while Dallas lost four of its last five games.`\
+https://nytimes.com/athletic/6939569/2026/01/04/cowboys-giants-score-result-takeaways-nfl-week-18/
+
+**Myles Garrett breaks sacks record, Browns win season finale vs. Bengals**\
+`With two defensive touchdowns, the Browns earned 20-18 a win over their division rivals and finished the season 5-12.`\
+https://nytimes.com/athletic/6939515/2026/01/04/browns-bengals-score-result-takeaways-myles-garrett-sack-record/
+
 **Colts-Texans takeaways: Houston holds off Leonard, Indy even with rested starters**\
 `Since their last playoff appearance in 2020, the Colts are a combined 9-17 in December and January.`\
 https://nytimes.com/athletic/6939857/2026/01/04/colts-texans-score-result-takeaways-nfl-week-18/
