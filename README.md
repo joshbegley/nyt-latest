@@ -1,3 +1,11 @@
+**The New York Times in Print for Sunday, Jan. 4, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/01/04/todays-new-york-times
+
+**This Is What Venezuelans Really Want**\
+`We have long faced a brutal paradox: an absent yet omnipotent state.`\
+https://nytimes.com/2026/01/04/opinion/venezuela-maduro-trump-people.html
+
 **Mirtle: Forget 1967. Auston Matthews' latest feat should be celebrated for what it is**\
 `It's worth hitting pause on the angst around Toronto to appreciate the accomplishment of Matthews becoming its all-time leading goal scorer.`\
 https://nytimes.com/athletic/6938445/2026/01/04/maple-leafs-auston-matthews-goals-record-nhl/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6938153/2026/01/04/strasbourg-liam-rosenior-chelsea
 **Declan Rice and Martin Odegaard are stepping up for Arsenal when it counts**\
 `Mikel Arteta rotated some of his team for Saturday's game at Bournemouth – but it was two of his main men who made the difference`\
 https://nytimes.com/athletic/6937968/2026/01/04/arsenal-rice-odegaard-bournemouth-premier-league/
-
-**How Brazil won the 1994 World Cup: Parreira's pragmatism and Romario's goalscoring genius**\
-`Michael Cox's history of World Cup winners reaches USA '94 and a fourth title for Brazil  `\
-https://nytimes.com/athletic/6935896/2026/01/04/how-brazil-won-the-1994-world-cup-parreiras-pragmatism-and-romarios-goalscoring-genius/
-
-**It's not working with Nuno Espirito Santo, but he's not the only problem at West Ham**\
-`A 3-0 capitulation to the Premier League's cut-adrift bottom side has brought all of the club's shortcomings to the surface`\
-https://nytimes.com/athletic/6935461/2026/01/04/west-ham-nuno-relegation-battle-premier-league/
 
