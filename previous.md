@@ -1,3 +1,7 @@
+**Colts to retain GM Chris Ballard, coach Shane Steichen**\
+`The Colts failed to make the playoffs for a third straight season under Ballard and Steichen. `\
+https://nytimes.com/athletic/6008040/2026/01/04/colts-chris-ballard-shane-steichen/
+
 **Robert Heide, Angsty Playwright and Warhol Collaborator, Dies at 91**\
 `He helped create the Off Off Broadway theater scene, wrote and acted in Andy Warhol’s films, and made his apartment into a singular exhibit of Americana.`\
 https://nytimes.com/2026/01/04/obituaries/robert-heide-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6940012/2026/01/04/alexander-wennberg-sharks-contra
 **Days After U.S. Strikes in Nigeria, Gunmen Kill Dozens of Villagers**\
 `The attackers also abducted an unspecified number of people, including students from a Catholic school where over 300 people were kidnapped in November.`\
 https://nytimes.com/2026/01/04/world/africa/nigeria-killings-niger-state.html
-
-**How Venezuelans Worldwide Reacted to Overthrow of Maduro**\
-`For Venezuelans living abroad, news of the U.S. military intervention and President Nicolás Maduro’s capture triggered a wide spectrum of emotions, ranging from joy to anger and uncertainty.`\
-https://nytimes.com/video/world/americas/100000010623420/venezuelans-global-react-maduro-trump.html
 
