@@ -1,3 +1,7 @@
+**‘Arrogant, Dangerous and Illegal’: Trump’s Motives for the Attack on Venezuela**\
+`Readers weigh in on the military raid, the seizing of President Nicolás Maduro and what comes next.`\
+https://nytimes.com/2026/01/04/opinion/letters/trump-venezuela-us-motives.html
+
 **College basketball observations: Alabama the SEC's team to beat? Concern for St. John's?**\
 `Plus: Why it's time to rank Miami (Ohio), the last undefeated mid-major team.`\
 https://nytimes.com/athletic/6938931/2026/01/04/college-basketball-scores-results-alabama-st-johns/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6939031/2026/01/04/pacers-vs-magic-stream-how-to-wa
 **How to watch Canadiens vs. Stars: Time, TV, streaming**\
 `Find out how to watch the Montreal Canadiens play the Dallas Stars, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6939029/2026/01/04/canadiens-vs-stars-stream-how-to-watch-jan-4/
-
-**How to watch Pistons vs. Cavaliers: Time, TV, streaming**\
-`Find out how to watch the Detroit Pistons play the Cleveland Cavaliers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6939027/2026/01/04/pistons-vs-cavaliers-stream-how-to-watch-jan-4/
 
