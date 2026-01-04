@@ -1,3 +1,11 @@
+**Chris Ballard has had long enough to fix the Colts. His time should be up.**\
+`Ballard has had nine years to turn the Colts into a contender. He's failed every time. `\
+https://nytimes.com/athletic/6939670/2026/01/04/colts-chris-ballard-fired-carlie-irsay-gordon/
+
+**Packers-Vikings takeaways: Minnesota stomps Green Bay to finish with winning record**\
+`The Minnesota Vikings rolled over resting Green Bay Packers in Week 18 to finish the 2025 NFL season with a winning record.`\
+https://nytimes.com/athletic/6939530/2026/01/04/packers-vikings-score-result-takeaways-nfl-week-18/
+
 **Venezuela, Democracy and Oil**\
 `One thing is clear after the U.S. raid: Gunboat diplomacy is back, with cascading implications not just for the Americas but for the world.`\
 https://nytimes.com/2026/01/04/world/venezuela-strikes-trump-oil-maduro.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6939839/2026/01/04/jj-mccarthy-vikings-hand-injury-
 **Venezuelans in Colombia Rejoice, but Are Not Ready to Rush Back Home**\
 `“I had utterly lost hope,” said one Venezuelan who has lived in exile from his country for seven years.`\
 https://nytimes.com/2026/01/04/world/americas/venezuelan-exiles-maduro.html
-
-**Satellite Imagery Reveals Damage to Venezuelan Base Where Maduro Was Captured**\
-`Before-and-after imagery released on Sunday shows that at least five buildings at the complex were destroyed by U.S. forces.`\
-https://nytimes.com/2026/01/04/world/americas/maduro-capture-satellite-photos.html
-
-**Royals, manager Matt Quatraro agree on 3-year extension**\
-`Quatraro's extension starts in 2027 and includes a club option for 2030. `\
-https://nytimes.com/athletic/6939703/2026/01/04/royals-manager-matt-quatraro-extension/
 
