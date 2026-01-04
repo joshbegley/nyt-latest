@@ -1,3 +1,15 @@
+**How to watch Bucks vs. Kings: Time, TV, streaming**\
+`Find out how to watch the Milwaukee Bucks play the Sacramento Kings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6939772/2026/01/04/bucks-vs-kings-stream-how-to-watch-jan-4/
+
+**How to watch Grizzlies vs. Lakers: Time, TV, streaming**\
+`Find out how to watch the Memphis Grizzlies play the Los Angeles Lakers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6939768/2026/01/04/grizzlies-vs-lakers-stream-how-to-watch-jan-4/
+
+**How to watch Thunder vs. Suns: Time, TV, streaming**\
+`Find out how to watch the Oklahoma City Thunder play the Phoenix Suns, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6939766/2026/01/04/thunder-vs-suns-stream-how-to-watch-jan-4/
+
 **How to watch Loyola Marymount vs. Gonzaga men's basketball: Time, TV, streaming**\
 `Find out how to watch the Loyola Marymount Lions play the Gonzaga Bulldogs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6939738/2026/01/04/loyola-marymount-vs-gonzaga-stream-how-to-watch-jan-4/
