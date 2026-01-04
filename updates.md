@@ -1,3 +1,7 @@
+**Leeds 1 Man Utd 1: Where does this leave Amorim? A missed opportunity for Farke?**\
+`Dissecting the major talking points from the Premier League clash at Elland Road`\
+https://nytimes.com/athletic/6928591/2026/01/04/leeds-man-utd-amorim-analysis/
+
 **AD, Kyrie make formidable duo when healthy. As NBA trade deadline nears, can it exist?**\
 `As next month’s trade deadline draws closer, there’s a legitimate question of whether Davis and Irving will ever share the court again.`\
 https://nytimes.com/athletic/6938658/2026/01/04/anthony-davis-kyrie-irving-mavericks-nba-trade-deadline/
