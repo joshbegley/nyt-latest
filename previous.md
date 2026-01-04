@@ -2,8 +2,8 @@
 `As the armed civilian groups often used to suppress protests kept a low profile, the role they might play in the country’s new situation remained unclear.`\
 https://nytimes.com/2026/01/03/world/americas/venezuela-paramilitaries-colectivos.html
 
-**The U.S. has indicted Maduro on charges of cocaine smuggling, but experts say Venezuela’s role in that trade is modest.**\
-`By Genevieve Glatsky and Annie Correal`\
+**U.S. Indictment of Maduro Cites Cocaine Smuggling, Trade in Which Venezuela’s Role Is Believed to Be Modest**\
+`Experts have said that Venezuela is not a major drug producer but rather  a minor cocaine transit country, with most of the cocaine flowing through it headed to Europe.`\
 https://nytimes.com/2026/01/03/world/americas/venezuela-drug-trade.html
 
 **Trump Plunges the U.S. Into a New Era of Risk in Venezuela**\

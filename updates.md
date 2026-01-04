@@ -1,3 +1,7 @@
+**U.S. Indictment of Maduro Cites Cocaine Smuggling, Trade in Which Venezuela’s Role Is Believed to Be Modest**\
+`Experts have said that Venezuela is not a major drug producer but rather  a minor cocaine transit country, with most of the cocaine flowing through it headed to Europe.`\
+https://nytimes.com/2026/01/03/world/americas/venezuela-drug-trade.html
+
 **In Wake of U.S. Strike, Venezuelan Paramilitaries Are Little Seen**\
 `As the armed civilian groups often used to suppress protests kept a low profile, the role they might play in the country’s new situation remained unclear.`\
 https://nytimes.com/2026/01/03/world/americas/venezuela-paramilitaries-colectivos.html
