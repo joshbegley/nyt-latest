@@ -1,3 +1,19 @@
+**Declan Rice and Martin Odegaard are stepping up for Arsenal when it counts**\
+`Mikel Arteta rotated some of his team for Saturday's game at Bournemouth – but it was two of his main men who made the difference`\
+https://nytimes.com/athletic/6937968/2026/01/04/arsenal-rice-odegaard-bournemouth-premier-league/
+
+**How Brazil won the 1994 World Cup: Parreira's pragmatism and Romario's goalscoring genius**\
+`Michael Cox's history of World Cup winners reaches USA '94 and a fourth title for Brazil  `\
+https://nytimes.com/athletic/6935896/2026/01/04/how-brazil-won-the-1994-world-cup-parreiras-pragmatism-and-romarios-goalscoring-genius/
+
+**It's not working with Nuno Espirito Santo, but he's not the only problem at West Ham**\
+`A 3-0 capitulation to the Premier League's cut-adrift bottom side has brought all of the club's shortcomings to the surface`\
+https://nytimes.com/athletic/6935461/2026/01/04/west-ham-nuno-relegation-battle-premier-league/
+
+**Wilfried Nancy is still Celtic manager - but for how much longer?**\
+`The Scottish champions lost 3-1 to arch-rivals Rangers on Saturday, continuing a very difficult start for their new boss`\
+https://nytimes.com/athletic/6937711/2026/01/04/wilfried-nancy-celtic-rangers/
+
 **China’s Russian Town Has Log Cabins and Cyrillic Signs, but No Russians**\
 `Enhe was once home to thousands of ethnic Russians. Under Xi Jinping’s push for ethnic unity, little remains beyond nostalgia and props for tourists.`\
 https://nytimes.com/2026/01/04/world/asia/china-russia-xi-putin.html
@@ -22,20 +38,4 @@ https://nytimes.com/2026/01/04/pageoneplus/corrections-jan-4-2026.html
 `Tkachuk was assessed a 10-minute misconduct, while Stanley received two minor penalties.
 `\
 https://nytimes.com/athletic/6938503/2026/01/03/senators-brady-tkachuk-logan-stanley-punch-misconduct/
-
-**Why Trump Removed Venezuela’s Maduro**\
-`David E. Sanger, our national security correspondent, describes the implications of President Trump’s launching of the attack that captured the Venezuelan president, and Trump’s declaration that the United States would “run the country.”`\
-https://nytimes.com/video/world/americas/100000010622273/why-trump-removed-venezuelas-maduro.html
-
-**Draymond Green gets 2 technical fouls, is ejected for arguing with refs**\
-`Saturday's dismissal in the game against the Jazz is the 22nd time Green has been ejected from a regular-season game in his career.`\
-https://nytimes.com/athletic/6938523/2026/01/03/draymond-green-ejected-warriors-jazz/
-
-**Buccaneers gut out win over Panthers, settle in for uncomfortable waiting game**\
-`Tampa Bay coach Todd Bowles: "You can't wait till tomorrow if you don't win today. So, it was a gutsy performance."`\
-https://nytimes.com/athletic/6938464/2026/01/03/buccaneers-win-panthers-nfc-south-waiting-game/
-
-**Steph, Dell Curry set NBA record for most combined games by father-son duo**\
-`The Currys have become synonymous with high-level shooting through several decades.`\
-https://nytimes.com/athletic/6938449/2026/01/03/steph-dell-curry-nba-record-father-son-duo/
 

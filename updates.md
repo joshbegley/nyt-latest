@@ -1,3 +1,24 @@
+**Declan Rice and Martin Odegaard are stepping up for Arsenal when it counts**\
+`Mikel Arteta rotated some of his team for Saturday's game at Bournemouth – but it was two of his main men who made the difference`\
+https://nytimes.com/athletic/6937968/2026/01/04/arsenal-rice-odegaard-bournemouth-premier-league/
+
+**How Brazil won the 1994 World Cup: Parreira's pragmatism and Romario's goalscoring genius**\
+`Michael Cox's history of World Cup winners reaches USA '94 and a fourth title for Brazil  `\
+https://nytimes.com/athletic/6935896/2026/01/04/how-brazil-won-the-1994-world-cup-parreiras-pragmatism-and-romarios-goalscoring-genius/
+
+**It's not working with Nuno Espirito Santo, but he's not the only problem at West Ham**\
+`A 3-0 capitulation to the Premier League's cut-adrift bottom side has brought all of the club's shortcomings to the surface`\
+https://nytimes.com/athletic/6935461/2026/01/04/west-ham-nuno-relegation-battle-premier-league/
+
+**Wilfried Nancy is still Celtic manager - but for how much longer?**\
+`The Scottish champions lost 3-1 to arch-rivals Rangers on Saturday, continuing a very difficult start for their new boss`\
+https://nytimes.com/athletic/6937711/2026/01/04/wilfried-nancy-celtic-rangers/
+
+**Senators outraged after Brady Tkachuk sucker punched by Logan Stanley, given misconduct**\
+`Tkachuk was assessed a 10-minute misconduct, while Stanley received two minor penalties.
+`\
+https://nytimes.com/athletic/6938503/2026/01/03/senators-brady-tkachuk-logan-stanley-punch-misconduct/
+
 **Senators outraged after Brady Tkachuk sucker punched by Logan Stanley, given misconduct**\
 `Tkachuk was assessed a 10-minute misconduct, while Stanley received two minor penalties.
 `\
