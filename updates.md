@@ -1,3 +1,7 @@
+**What's going on with Ole Miss' assistant coaches? Here's what you need to know**\
+`Pete Golding made it clear that Ole Miss will have capable coaches with the team on Thursday no matter what happens.`\
+https://nytimes.com/athletic/6939065/2026/01/04/lane-kiffin-pete-golding-ole-miss-coaches/
+
 **U.S. Has No Troops in Venezuela, Defense Department Says**\
 `A significant buildup of U.S. soldiers and ships will remain in the Caribbean and surrounding countries to protect “our interests the region,” the Joint Chiefs chairman said.`\
 https://nytimes.com/2026/01/04/world/americas/us-troops-venezuela.html

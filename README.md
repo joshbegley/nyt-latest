@@ -6,7 +6,7 @@ https://nytimes.com/athletic/6939065/2026/01/04/lane-kiffin-pete-golding-ole-mis
 `A significant buildup of U.S. soldiers and ships will remain in the Caribbean and surrounding countries to protect “our interests the region,” the Joint Chiefs chairman said.`\
 https://nytimes.com/2026/01/04/world/americas/us-troops-venezuela.html
 
-**Huijsen in contention for Real Madrid return against Atletico**\
+**Huijsen in contention for Madrid return in Supercopa de Espana**\
 `The defender missed Sunday's home game against Real Betis with a minor injury.`\
 https://nytimes.com/athletic/6939147/2026/01/04/dean-huijsen-real-madrid-injury/
 
