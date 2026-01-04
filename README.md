@@ -1,3 +1,11 @@
+**DIII runner deemed ineligible after accepting $6K in donations for tuition**\
+`Mohammed Bati works full time while studying political science at Augsburg University and running 150 miles per week.`\
+https://nytimes.com/athletic/6939123/2026/01/04/mohammed-bati-diii-runner-augsburg-ineligible-donations/
+
+**Ukrainians Welcome a U.S. Victory in Venezuela, and Lament a Double Standard**\
+`Ukraine’s government supports the removal of a dictator while members of Parliament question the wisdom of endorsing military interventions, even against a Russian ally.`\
+https://nytimes.com/2026/01/04/world/europe/ukrainians-welcome-a-us-victory-in-venezuela-and-lament-a-double-standard.html
+
 **How to watch Pelicans vs. Heat: Time, TV, streaming**\
 `Find out how to watch the New Orleans Pelicans play the Miami Heat, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6939455/2026/01/04/pelicans-vs-heat-stream-how-to-watch-jan-4/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6938399/2026/01/04/sec-football-bowl-records-nil-tr
 **How to watch Indiana vs. Maryland women's basketball: Time, TV, streaming**\
 `Find out how to watch the Indiana Hoosiers play the Maryland Terrapins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6939409/2026/01/04/indiana-vs-maryland-stream-how-to-watch-jan-4/
-
-**Venezuelans Brace for Uncertainty After U.S. Military Operation**\
-`People in Venezuela stocked up on supplies after the U.S. military struck the country and seized its president, Nicolás Maduro, in a pre-dawn raid on Saturday.`\
-https://nytimes.com/video/world/americas/100000010623077/venezuela-reactions-grocery-stores.html
-
-**Easy Does It**\
-`Our new collection of healthy dinner recipes is full of doable, delicious recipes to make on repeat, like this ginger chicken and rice soup with zucchini.`\
-https://nytimes.com/2026/01/04/dining/easy-does-it.html
 
