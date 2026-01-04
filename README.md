@@ -1,3 +1,7 @@
+**‘The Daily’ goes inside the U.S. raid in Venezuela.**\
+`By The New York Times`\
+https://nytimes.com/live/2026/01/04/world/trump-us-venezuela-maduro/the-daily-goes-inside-the-us-raid-in-venezuela
+
 **Who Is Regulating Data Centers in Outer Space?**\
 `Space is not as unregulated as one may think. The “Hard Fork” hosts Kevin Roose and Casey Newton discuss Google’s new plan to build data centers in space.`\
 https://nytimes.com/video/podcasts/100000010615394/who-is-regulating-data-centers-in-outer-space.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6934211/2026/01/04/week-18-nfl-storylines-playoffs-
 **The New York Times International Edition in Print for Monday, Jan. 5, 2026**\
 ``\
 https://nytimes.com/issue/todaysinyt/2026/01/04/todays-new-york-times-international-edition
-
-**How to watch Missouri vs. Kentucky women's basketball: Time, TV, streaming**\
-`Find out how to watch the Missouri Tigers play the Kentucky Wildcats, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6938819/2026/01/04/missouri-vs-kentucky-stream-how-to-watch-jan-4/
 
