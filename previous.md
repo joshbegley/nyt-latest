@@ -1,5 +1,9 @@
+**How to watch Loyola Marymount vs. Gonzaga men's basketball: Time, TV, streaming**\
+`Find out how to watch the Loyola Marymount Lions play the Gonzaga Bulldogs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6939738/2026/01/04/loyola-marymount-vs-gonzaga-stream-how-to-watch-jan-4/
+
 **Harrison Reed vs Liverpool: The best shot of the Premier League season?**\
-`A swerving, dipping 25-yard thunderbolt left Arne Slot's side in a state of disbelief - not to mention the goalscorer`\
+`A swerving, dipping, stoppage-time 25-yard thunderbolt left Arne Slot's side in a state of disbelief - not to mention the goalscorer himself`\
 https://nytimes.com/athletic/6939592/2026/01/04/harrison-reed-goal-fulham-liverpool/
 
 **Top Democrats Say Trump Has Still Not Briefed Congress on U.S. Military Action in Venezuela**\
@@ -33,8 +37,4 @@ https://nytimes.com/card/2026/01/04/us/new-years-eve-parties-eastern-europeans
 **Yankees looking into trading for Marlins starter Edward Cabrera: Sources**\
 `The Yankees are also looking into acquiring Milwaukee's Freddy Peralta as they look to add at least one more starting pitcher.`\
 https://nytimes.com/athletic/6939550/2026/01/04/yankees-interest-edward-cabrera-marlins/
-
-**The Briefing: Fulham 2 Liverpool 2 - A stunning late leveller, offside calls, Wirtz scores again**\
-`Fulham come from behind to score a late leveller to deny Liverpool victory at Craven Cottage `\
-https://nytimes.com/athletic/6928592/2026/01/04/fulham-2-liverpool-2-wirtz-gakpo-reed/
 

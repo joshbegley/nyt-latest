@@ -1,3 +1,11 @@
+**How to watch Loyola Marymount vs. Gonzaga men's basketball: Time, TV, streaming**\
+`Find out how to watch the Loyola Marymount Lions play the Gonzaga Bulldogs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6939738/2026/01/04/loyola-marymount-vs-gonzaga-stream-how-to-watch-jan-4/
+
+**Harrison Reed vs Liverpool: The best shot of the Premier League season?**\
+`A swerving, dipping, stoppage-time 25-yard thunderbolt left Arne Slot's side in a state of disbelief - not to mention the goalscorer himself`\
+https://nytimes.com/athletic/6939592/2026/01/04/harrison-reed-goal-fulham-liverpool/
+
 **Harrison Reed vs Liverpool: The best shot of the Premier League season?**\
 `A swerving, dipping 25-yard thunderbolt left Arne Slot's side in a state of disbelief - not to mention the goalscorer`\
 https://nytimes.com/athletic/6939592/2026/01/04/harrison-reed-goal-fulham-liverpool/

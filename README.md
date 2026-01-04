@@ -1,3 +1,15 @@
+**How to watch Bucks vs. Kings: Time, TV, streaming**\
+`Find out how to watch the Milwaukee Bucks play the Sacramento Kings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6939772/2026/01/04/bucks-vs-kings-stream-how-to-watch-jan-4/
+
+**How to watch Grizzlies vs. Lakers: Time, TV, streaming**\
+`Find out how to watch the Memphis Grizzlies play the Los Angeles Lakers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6939768/2026/01/04/grizzlies-vs-lakers-stream-how-to-watch-jan-4/
+
+**How to watch Thunder vs. Suns: Time, TV, streaming**\
+`Find out how to watch the Oklahoma City Thunder play the Phoenix Suns, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6939766/2026/01/04/thunder-vs-suns-stream-how-to-watch-jan-4/
+
 **How to watch Loyola Marymount vs. Gonzaga men's basketball: Time, TV, streaming**\
 `Find out how to watch the Loyola Marymount Lions play the Gonzaga Bulldogs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6939738/2026/01/04/loyola-marymount-vs-gonzaga-stream-how-to-watch-jan-4/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6939595/2026/01/04/tottenham-transfer-news-souza-bi
 **Behind the Scenes of Our Nicolás Maduro Front Page**\
 `After President Trump’s surprise ouster of Venezuela’s authoritarian leader, a team of New York Times editors set to work redoing the front page.`\
 https://nytimes.com/2026/01/04/insider/nicolas-maduro-front-page.html
-
-**‘They’re Invading Us’: The U.S. Attack Viewed From Venezuelans’ Cellphones**\
-`The videos, filmed on cellphones by people mainly in Caracas and La Guaira, showed the exact moments in which the U.S. air and ground incursion played out in real time.`\
-https://nytimes.com/2026/01/04/world/americas/venezuela-attack-videos-social-media.html
-
-**‘We Expect Big Parties:’ How New Year’s Eve Became a Mega Holiday for Eastern Europeans**\
-`After Communist leaders suppressed religious holidays, Dec. 31 became a catchall secular holiday — with a New Year’s tree, a blue-robed Santa Claus and giant, colorful parties.`\
-https://nytimes.com/card/2026/01/04/us/new-years-eve-parties-eastern-europeans
-
-**Yankees looking into trading for Marlins starter Edward Cabrera: Sources**\
-`The Yankees are also looking into acquiring Milwaukee's Freddy Peralta as they look to add at least one more starting pitcher.`\
-https://nytimes.com/athletic/6939550/2026/01/04/yankees-interest-edward-cabrera-marlins/
 
