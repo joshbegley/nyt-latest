@@ -1,5 +1,9 @@
+**Jordan Stolz fell in his first race at U.S. Olympic trials. But it's nothing to sweat**\
+`A new rule assured Stolz, U.S. speed skating's biggest star, was already a lock for the Olympics. Saturday showed the wisdom of that call.`\
+https://nytimes.com/athletic/6938307/2026/01/03/jordan-stolz-us-olympic-trials-fall-1000-meter/
+
 **Penguins suspend Egor Zamula for failing to report to AHL: Sources**\
-`Zamula's preference is to play in the NHL right now, but the Penguins don't currently have room for him on their NHL roster.`\
+`Zamula's preference is to play in the NHL right now, but the Penguins don't currently have room for him on their roster.`\
 https://nytimes.com/athletic/6938361/2026/01/03/penguins-egor-zamula-suspend-report-ahl/
 
 **How to watch Miami (FL) vs. Ole Miss: CFP Semifinal Start Time, TV, streaming**\
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/01/03/world/trump-maduro-venezuela-us-strikes/vene
 **Auston Matthews passes Mats Sundin for Maple Leafs goals record**\
 `Matthews passed Sundin in just 664 games, 317 fewer than the 981 Sundin played for the Leafs.`\
 https://nytimes.com/athletic/6937420/2026/01/03/auston-matthews-maple-leafs-goals-record/
-
-**Venezuelan asylum seekers worry about what comes next.**\
-`For many, the removal of the Venezuelan leader Nicolás Maduro has not eased uncertainty about their immigration status in the United States.`\
-https://nytimes.com/live/2026/01/03/world/trump-maduro-venezuela-us-strikes/venezuela-asylum-seekers
 
