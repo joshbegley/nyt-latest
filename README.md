@@ -1,3 +1,7 @@
+**Lowetide: How Oilers, and NHL, could effectively use ECHL for development**\
+`There's no doubt that talented hockey players who turn pro would be best served by playing a lot.`\
+https://nytimes.com/athletic/6937786/2026/01/04/oilers-nhl-echl-development-league/
+
 **Would a format change help the CFP's rest vs. rust problem?**\
 `With no easy way to address the long layoffs within the current calendar, saying buh-bye to the byes might be the best way to go.`\
 https://nytimes.com/athletic/6938319/2026/01/04/college-football-playoff-first-round-byes/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6939065/2026/01/04/lane-kiffin-pete-golding-ole-mis
 **U.S. Has No Troops in Venezuela, Defense Department Says**\
 `A significant buildup of U.S. soldiers and ships will remain in the Caribbean and surrounding countries to protect “our interests the region,” the Joint Chiefs chairman said.`\
 https://nytimes.com/2026/01/04/world/americas/us-troops-venezuela.html
-
-**Huijsen in contention for Madrid return in Supercopa de Espana**\
-`The defender missed Sunday's home game against Real Betis with a minor injury.`\
-https://nytimes.com/athletic/6939147/2026/01/04/dean-huijsen-real-madrid-injury/
 

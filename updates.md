@@ -1,3 +1,7 @@
+**Would a format change help the CFP's rest vs. rust problem?**\
+`With no easy way to address the long layoffs within the current calendar, saying buh-bye to the byes might be the best way to go.`\
+https://nytimes.com/athletic/6938319/2026/01/04/college-football-playoff-first-round-byes/
+
 **Amorim insists he is 'manager' of Man Utd, not 'coach'**\
 `"It's going to be like this for 18 months or when the board decide to change,” Amorim said after the draw at Leeds. “I'm not going to quit.”`\
 https://nytimes.com/athletic/6939305/2026/01/04/ruben-amorim-man-utd-manager/
