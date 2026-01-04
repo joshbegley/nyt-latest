@@ -1,3 +1,11 @@
+**How to watch Missouri vs. Kentucky women's basketball: Time, TV, streaming**\
+`Find out how to watch the Missouri Tigers play the Kentucky Wildcats, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6938819/2026/01/04/missouri-vs-kentucky-stream-how-to-watch-jan-4/
+
+**How to watch Illinois vs. Michigan State women's basketball: Time, TV, streaming**\
+`Find out how to watch the Illinois Fighting Illini play the Michigan State Spartans, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6938812/2026/01/04/illinois-vs-michigan-state-stream-how-to-watch-jan-4/
+
 **How to watch Stanford vs. North Carolina women's basketball: Time, TV, streaming**\
 `Find out how to watch the Stanford Cardinal play the North Carolina Tar Heels, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6938802/2026/01/04/stanford-vs-north-carolina-stream-how-to-watch-jan-4/
