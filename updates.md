@@ -1,3 +1,15 @@
+**Draymond Green gets 2 technical fouls, is ejected for arguing with refs**\
+`Saturday's dismissal in the game against the Jazz is the 25th time Green has been ejected in his career.`\
+https://nytimes.com/athletic/6938523/2026/01/03/draymond-green-ejected-warriors-jazz/
+
+**Buccaneers gut out win over Panthers, settle in for uncomfortable waiting game**\
+`Tampa Bay coach Todd Bowles: "You can't wait till tomorrow if you don't win today. So, it was a gutsy performance."`\
+https://nytimes.com/athletic/6938464/2026/01/03/buccaneers-win-panthers-nfc-south-waiting-game/
+
+**NFL Week 18 playoff scenarios: With NFC West title settled, what's next?**\
+`A look at which teams still have a shot at home-field advantage or a bye in the first round of the NFL playoffs.`\
+https://nytimes.com/athletic/6936896/2026/01/03/nfl-playoffs-scenarios-matchups-seed-team-week-18-nfc-west/
+
 **Buccaneers gut out win over Panthers, settle in for uncomfortable waiting game**\
 `Tampa Bay coach Todd Bowles: “You can’t wait ’til tomorrow if you don’t win today, so, it was a gutsy performance."`\
 https://nytimes.com/athletic/6938464/2026/01/03/buccaneers-win-panthers-nfc-south-waiting-game/

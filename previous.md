@@ -1,5 +1,9 @@
+**Draymond Green gets 2 technical fouls, is ejected for arguing with refs**\
+`Saturday's dismissal in the game against the Jazz is the 25th time Green has been ejected in his career.`\
+https://nytimes.com/athletic/6938523/2026/01/03/draymond-green-ejected-warriors-jazz/
+
 **Buccaneers gut out win over Panthers, settle in for uncomfortable waiting game**\
-`Tampa Bay coach Todd Bowles: “You can’t wait ’til tomorrow if you don’t win today, so, it was a gutsy performance."`\
+`Tampa Bay coach Todd Bowles: "You can't wait till tomorrow if you don't win today. So, it was a gutsy performance."`\
 https://nytimes.com/athletic/6938464/2026/01/03/buccaneers-win-panthers-nfc-south-waiting-game/
 
 **Steph, Dell Curry set NBA record for most combined games by father-son duo**\
@@ -22,7 +26,7 @@ https://nytimes.com/athletic/6938428/2026/01/03/panthers-lose-playoffs-nfc-south
 `The Seahawks held the 49ers to only 173 yards and three points to win the NFC West and secure home-field advantage throughout the playoffs.`\
 https://nytimes.com/athletic/6938392/2026/01/03/seahawks-49ers-score-result-takeaways-nfc-west/
 
-**NFL Week 18 playoff scenarios: With NFC West settled, what's next?**\
+**NFL Week 18 playoff scenarios: With NFC West title settled, what's next?**\
 `A look at which teams still have a shot at home-field advantage or a bye in the first round of the NFL playoffs.`\
 https://nytimes.com/athletic/6936896/2026/01/03/nfl-playoffs-scenarios-matchups-seed-team-week-18-nfc-west/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6938117/2026/01/03/edwards-timberwolves-overcoming-
 **Jordan Stolz fell in his first race at the U.S. Olympic trials. But it's nothing to sweat**\
 `A new rule assured Stolz, U.S. speed skating's biggest star, was already a lock for the Olympics. Saturday showed the wisdom of that call.`\
 https://nytimes.com/athletic/6938307/2026/01/03/jordan-stolz-us-olympic-trials-fall-1000-meter/
-
-**Penguins suspend Egor Zamula for failing to report to AHL: Sources**\
-`Zamula's preference is to play in the NHL right now, but the Penguins don't currently have room for him on their roster.`\
-https://nytimes.com/athletic/6938361/2026/01/03/penguins-egor-zamula-suspend-report-ahl/
 
