@@ -1,3 +1,7 @@
+**Behind the Scenes of Our Nicolás Maduro Front Page**\
+`After President Trump’s surprise ouster of Venezuela’s authoritarian leader, a team of New York Times editors set to work redoing the front page.`\
+https://nytimes.com/2026/01/04/insider/nicolas-maduro-front-page.html
+
 **‘They’re Invading Us’: The U.S. Attack Viewed From Venezuelans’ Cellphones**\
 `The videos, filmed on cellphones by people mainly in Caracas and La Guaira, showed the exact moments in which the U.S. air and ground incursion played out in real time.`\
 https://nytimes.com/2026/01/04/world/americas/venezuela-attack-videos-social-media.html
