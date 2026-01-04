@@ -1,3 +1,7 @@
+**‘We Expect Big Parties:’ How New Year’s Eve Became a Mega Holiday for Eastern Europeans**\
+`After Communist leaders suppressed religious holidays, Dec. 31 became a catchall secular holiday — with a New Year’s tree, a blue-robed Santa Claus and giant, colorful parties.`\
+https://nytimes.com/card/2026/01/04/us/new-years-eve-parties-eastern-europeans
+
 **Yankees looking into trading for Marlins starter Edward Cabrera: Sources**\
 `The Yankees are also looking into acquiring Milwaukee's Freddy Peralta as they look to add at least one more starting pitcher.`\
 https://nytimes.com/athletic/6939550/2026/01/04/yankees-interest-edward-cabrera-marlins/
