@@ -1,3 +1,7 @@
+**Packers enter playoffs losing 4 straight, but Matt LaFleur emphasizes 'clean slate'**\
+`The Packers are reeling entering the postseason, but they'll have a chance to turn their fortunes around next weekend.`\
+https://nytimes.com/athletic/6940242/2026/01/04/packers-playoffs-matt-lafleur-vikings/
+
 **Winter Storms Ease Drought in California, for Now**\
 `Experts say that it’s too early to tell what will happen during the rest of the state’s rainy season, but that extreme drought is unlikely.`\
 https://nytimes.com/2026/01/04/us/winter-storms-drought-california.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/americas/100000010623420/venezuelans-global-reac
 **Cowboys-Giants takeaways: Jaxson Dart guides New York to season-ending win**\
 `New York ended its season with two straight wins, while Dallas lost four of its last five games.`\
 https://nytimes.com/athletic/6939569/2026/01/04/cowboys-giants-score-result-takeaways-nfl-week-18/
-
-**Colts-Texans takeaways: Houston holds off Leonard, Indy even with rested starters**\
-`Since their last playoff appearance in 2020, the Colts are a combined 9-17 in December and January.`\
-https://nytimes.com/athletic/6939857/2026/01/04/colts-texans-score-result-takeaways-nfl-week-18/
 

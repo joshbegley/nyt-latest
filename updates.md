@@ -1,3 +1,7 @@
+**Mbappe expected to miss Super Cup tie due to injury**\
+`Madrid reported on December 31 that Mbappe had sprained his left knee.`\
+https://nytimes.com/athletic/6940287/2026/01/04/mbappe-injury-news-real-madrid-spanish-super-club/
+
 **Winter Storms Ease Drought in California, for Now**\
 `Experts say that it’s too early to tell what will happen during the rest of the state’s rainy season, but that extreme drought is unlikely.`\
 https://nytimes.com/2026/01/04/us/winter-storms-drought-california.html
