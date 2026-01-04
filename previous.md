@@ -1,3 +1,15 @@
+**Francis Patrelle, Founder of a Ballet Company, Dies at 78**\
+`A champion of the story ballet, he built a tightly knit community in New York around his classes at Ballet Academy East and his company, Dances Patrelle.`\
+https://nytimes.com/2026/01/04/arts/dance/francis-patrelle-dead.html
+
+**What I Learned in Venezuela**\
+`Many are celebrating the ouster of a brutal dictator, but the Maduro regime may survive the loss of Maduro.`\
+https://nytimes.com/2026/01/04/opinion/venezuela-maduro-trump.html
+
+**Mamdani Names Housing Leader and Pledges ‘Rental Rip-off’ Hearings**\
+`Mayor Zohran Mamdani named a housing commissioner and announced that the city would hold public hearings where frustrated renters could voice their complaints.`\
+https://nytimes.com/2026/01/04/nyregion/mamdani-dina-levy-housing-hpd.html
+
 **How to watch Bucks vs. Kings: Time, TV, streaming**\
 `Find out how to watch the Milwaukee Bucks play the Sacramento Kings, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6939772/2026/01/04/bucks-vs-kings-stream-how-to-watch-jan-4/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/01/04/us/politics/congress-venezuela-trump-maduro.html
 **Brewers prospect Frank Cairone hospitalized after car crash**\
 `Milwaukee selected the left-hander out of high school with the No. 68 pick in the 2025 MLB Draft.`\
 https://nytimes.com/athletic/6939462/2026/01/04/brewers-prospect-frank-cairone-car-crash/
-
-**Vinicius Jr 'fundamental' to Madrid, Alonso insists after Brazilian jeered again**\
-`The Brazilian was again whistled at the Bernabeu, having gone 15 games without scoring for Madrid.`\
-https://nytimes.com/athletic/6939615/2026/01/04/vinicius-jr-madrid-alonso-whistles/
-
-**Tottenham have £8m bid rejected by Santos for left-back Souza**\
-`The 19-year-old made 24 Serie A appearances for Santos during the 2025 season.`\
-https://nytimes.com/athletic/6939595/2026/01/04/tottenham-transfer-news-souza-bid-santos/
-
-**Behind the Scenes of Our Nicolás Maduro Front Page**\
-`After President Trump’s surprise ouster of Venezuela’s authoritarian leader, a team of New York Times editors set to work redoing the front page.`\
-https://nytimes.com/2026/01/04/insider/nicolas-maduro-front-page.html
 

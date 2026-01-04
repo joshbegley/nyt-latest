@@ -1,3 +1,15 @@
+**Francis Patrelle, Founder of a Ballet Company, Dies at 78**\
+`A champion of the story ballet, he built a tightly knit community in New York around his classes at Ballet Academy East and his company, Dances Patrelle.`\
+https://nytimes.com/2026/01/04/arts/dance/francis-patrelle-dead.html
+
+**What I Learned in Venezuela**\
+`Many are celebrating the ouster of a brutal dictator, but the Maduro regime may survive the loss of Maduro.`\
+https://nytimes.com/2026/01/04/opinion/venezuela-maduro-trump.html
+
+**Mamdani Names Housing Leader and Pledges ‘Rental Rip-off’ Hearings**\
+`Mayor Zohran Mamdani named a housing commissioner and announced that the city would hold public hearings where frustrated renters could voice their complaints.`\
+https://nytimes.com/2026/01/04/nyregion/mamdani-dina-levy-housing-hpd.html
+
 **How to watch Bucks vs. Kings: Time, TV, streaming**\
 `Find out how to watch the Milwaukee Bucks play the Sacramento Kings, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6939772/2026/01/04/bucks-vs-kings-stream-how-to-watch-jan-4/
