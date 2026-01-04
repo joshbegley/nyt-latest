@@ -1,3 +1,7 @@
+**Myles Garrett breaks NFL's single-season sacks record**\
+`Garrett broke the previous record of 22.5 that was shared by Michael Strahan and T.J. Watt. `\
+https://nytimes.com/athletic/6908796/2026/01/04/myles-garrett-single-season-sack-record-browns/
+
 **Vikings QB J.J. McCarthy leaves game with apparent hand injury**\
 `The second-year quarterback left Sunday's game early in the third quarter with what appeared to be a reaggravated hand injury. `\
 https://nytimes.com/athletic/6939839/2026/01/04/jj-mccarthy-vikings-hand-injury-packers/
@@ -15,7 +19,7 @@ https://nytimes.com/2026/01/04/world/americas/maduro-capture-satellite-photos.ht
 https://nytimes.com/athletic/6939703/2026/01/04/royals-manager-matt-quatraro-extension/
 
 **The Briefing: Man City 1 Chelsea 1 - will Fernandez's late equaliser be a big moment in the title race?**\
-`Jordan Campbell, Simon Johnson and Thom Harris analyse the main talking points from Manchester City's draw against over managerless Chelsea`\
+`Jordan Campbell, Simon Johnson and Thom Harris analyse the main talking points from Manchester City's draw with managerless Chelsea`\
 https://nytimes.com/athletic/6937624/2026/01/04/manchester-city-chelsea-analysis-premier-league/
 
 **Francis Patrelle, Founder of a Ballet Company, Dies at 78**\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/04/nyregion/mamdani-dina-levy-housing-hpd.html
 **How to watch Bucks vs. Kings: Time, TV, streaming**\
 `Find out how to watch the Milwaukee Bucks play the Sacramento Kings, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6939772/2026/01/04/bucks-vs-kings-stream-how-to-watch-jan-4/
-
-**How to watch Grizzlies vs. Lakers: Time, TV, streaming**\
-`Find out how to watch the Memphis Grizzlies play the Los Angeles Lakers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6939768/2026/01/04/grizzlies-vs-lakers-stream-how-to-watch-jan-4/
 

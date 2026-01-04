@@ -1,3 +1,11 @@
+**Myles Garrett breaks NFL's single-season sacks record**\
+`Garrett broke the previous record of 22.5 that was shared by Michael Strahan and T.J. Watt. `\
+https://nytimes.com/athletic/6908796/2026/01/04/myles-garrett-single-season-sack-record-browns/
+
+**The Briefing: Man City 1 Chelsea 1 - will Fernandez's late equaliser be a big moment in the title race?**\
+`Jordan Campbell, Simon Johnson and Thom Harris analyse the main talking points from Manchester City's draw with managerless Chelsea`\
+https://nytimes.com/athletic/6937624/2026/01/04/manchester-city-chelsea-analysis-premier-league/
+
 **Vikings QB J.J. McCarthy leaves game with apparent hand injury**\
 `The second-year quarterback left Sunday's game early in the third quarter with what appeared to be a reaggravated hand injury. `\
 https://nytimes.com/athletic/6939839/2026/01/04/jj-mccarthy-vikings-hand-injury-packers/
