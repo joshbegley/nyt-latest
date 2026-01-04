@@ -1,3 +1,11 @@
+**Panthers win NFC South title with assist from Falcons' win over Saints**\
+`The Panthers lost their final two games but backed into the playoffs after the Falcons' win over the Saints forced a three-way tie.`\
+https://nytimes.com/athletic/6939396/2026/01/04/nfc-south-championship-panthers-bucs-saints-falcons/
+
+**Titans QB Cam Ward suffers AC joint sprain vs. Jaguars: Source**\
+`No. 1 pick in 2025 draft showed progress in rookie season, completing 59.8 percent of his passes for 15 TDs and seven interceptions.`\
+https://nytimes.com/athletic/6939846/2026/01/04/cam-ward-shoulder-injury-titans-nfl/
+
 **Las Vegas Raiders clinch No. 1 pick in 2026 NFL Draft**\
 `The Raiders secured the No. 1 pick before even playing Sunday, while the Giants could fall out of the top five.`\
 https://nytimes.com/athletic/6938314/2026/01/04/raiders-no-1-pick-2026-nfl-draft/
