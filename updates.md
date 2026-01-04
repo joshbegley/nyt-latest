@@ -1,3 +1,7 @@
+**What to know with Myles Garrett 1 sack from breaking NFL's single-season record**\
+`With one sack against the Bengals, Garrett can break the single-season record of 22.5 shared by Michael Strahan and T.J. Watt. `\
+https://nytimes.com/athletic/6921912/2026/01/04/myles-garrett-single-season-sacks-record/
+
 **The Ashes Briefing: England's Joe Root and Harry Brook fill their boots before weather closes in**\
 `Australia made early in-roads after losing the toss, but an unbeaten stand of 154 saw England recover impressively before the rain came`\
 https://nytimes.com/athletic/6926660/2026/01/04/ashes-england-australia-root-brook-spin-briefing/

@@ -1,3 +1,7 @@
+**What to know with Myles Garrett 1 sack from breaking NFL's single-season record**\
+`With one sack against the Bengals, Garrett can break the single-season record of 22.5 shared by Michael Strahan and T.J. Watt. `\
+https://nytimes.com/athletic/6921912/2026/01/04/myles-garrett-single-season-sacks-record/
+
 **Kentucky quarterback Cutter Boley commits to Arizona State: Source**\
 `Boley, who was one of the top young quarterbacks in the SEC, will compete to replace Sam Leavitt as the Sun Devils' starter.`\
 https://nytimes.com/athletic/6938644/2026/01/04/cutter-boley-kentucky-commits-arizona-state/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6937943/2026/01/04/forest-goalkeepers-dyche-sels-jo
 **Pepsi, Budweiser and how Everton are using Hill Dickinson Stadium to build their brand**\
 `Everton's shiny new stadium is allowing them to leverage new commercial opportunities that previously wouldn't have been possible`\
 https://nytimes.com/athletic/6911179/2026/01/04/everton-hill-dickinson-budweiser-pepsi/
-
-**How Trump Fixed On a Maduro Loyalist as Venezuela’s New Leader**\
-`Nicolás Maduro balked at a gilded exile. U.S. officials then saw a more pliant option in his vice president, Delcy Rodríguez, known for stabilizing Venezuela’s economy.`\
-https://nytimes.com/2026/01/04/world/americas/trump-venezuela-leader-rodriguez-machado.html
 
