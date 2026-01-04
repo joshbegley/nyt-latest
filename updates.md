@@ -1,3 +1,8 @@
+**Senators outraged after Brady Tkachuk sucker punched by Logan Stanley, given misconduct**\
+`Tkachuk was assessed a 10-minute misconduct, while Stanley received two minor penalties.
+`\
+https://nytimes.com/athletic/6938503/2026/01/03/senators-brady-tkachuk-logan-stanley-punch-misconduct/
+
 **China’s Russian Town Has Log Cabins and Cyrillic Signs, but No Russians**\
 `Enhe was once home to thousands of ethnic Russians. Under Xi Jinping’s push for ethnic unity, little remains beyond nostalgia and props for tourists.`\
 https://nytimes.com/2026/01/04/world/asia/china-russia-xi-putin.html
