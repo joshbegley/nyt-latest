@@ -1,3 +1,7 @@
+**Leeds 1 Man Utd 1: Where does this leave Amorim? A missed opportunity for Farke?**\
+`Dissecting the major talking points from the Premier League clash at Elland Road`\
+https://nytimes.com/athletic/6928591/2026/01/04/leeds-man-utd-amorim-analysis/
+
 **AD, Kyrie make formidable duo when healthy. As NBA trade deadline nears, can it exist?**\
 `As next month’s trade deadline draws closer, there’s a legitimate question of whether Davis and Irving will ever share the court again.`\
 https://nytimes.com/athletic/6938658/2026/01/04/anthony-davis-kyrie-irving-mavericks-nba-trade-deadline/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6939037/2026/01/04/nuggets-vs-nets-stream-how-to-wa
 **How to watch Penguins vs. Blue Jackets: Time, TV, streaming**\
 `Find out how to watch the Pittsburgh Penguins play the Columbus Blue Jackets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6939033/2026/01/04/penguins-vs-blue-jackets-stream-how-to-watch-jan-4/
-
-**How to watch Pacers vs. Magic: Time, TV, streaming**\
-`Find out how to watch the Indiana Pacers play the Orlando Magic, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6939031/2026/01/04/pacers-vs-magic-stream-how-to-watch-jan-4/
 
