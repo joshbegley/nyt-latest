@@ -1,4 +1,8 @@
 **Kentucky quarterback Cutter Boley commits to Arizona State: Source**\
+`Boley, who was one of the top young quarterbacks in the SEC, will compete to replace Sam Leavitt as the Sun Devils' starter.`\
+https://nytimes.com/athletic/6938644/2026/01/04/cutter-boley-kentucky-commits-arizona-state/
+
+**Kentucky quarterback Cutter Boley commits to Arizona State: Source**\
 `Boley, who was one of the top young quarterbacks in the SEC, will compete to replace Sam Leavitt as the Sun Devils starter.`\
 https://nytimes.com/athletic/6938644/2026/01/04/cutter-boley-kentucky-commits-arizona-state/
 
