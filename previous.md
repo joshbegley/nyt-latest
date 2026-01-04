@@ -1,3 +1,11 @@
+**Satellite Imagery Reveals Damage to Venezuelan Base Where Maduro Was Captured**\
+`Before-and-after imagery released on Sunday shows that at least five buildings at the complex were destroyed by U.S. forces.`\
+https://nytimes.com/2026/01/04/world/maduro-capture-satellite-photos.html
+
+**Royals, manager Matt Quatraro agree on 3-year extension**\
+`Quatraro's extension starts in 2027 and includes a club option for 2030. `\
+https://nytimes.com/athletic/6939703/2026/01/04/royals-manager-matt-quatraro-extension/
+
 **The Briefing: Man City 1 Chelsea 1 - will Fernandez's late equaliser be a big moment in the title race?**\
 `Jordan Campbell, Simon Johnson and Thom Harris analyse the main talking points from Manchester City's draw against over managerless Chelsea`\
 https://nytimes.com/athletic/6937624/2026/01/04/manchester-city-chelsea-analysis-premier-league/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6939766/2026/01/04/thunder-vs-suns-stream-how-to-wa
 **How to watch Loyola Marymount vs. Gonzaga men's basketball: Time, TV, streaming**\
 `Find out how to watch the Loyola Marymount Lions play the Gonzaga Bulldogs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6939738/2026/01/04/loyola-marymount-vs-gonzaga-stream-how-to-watch-jan-4/
-
-**Harrison Reed vs Liverpool: The best shot of the Premier League season?**\
-`A swerving, dipping, stoppage-time 25-yard thunderbolt left Arne Slot's side in a state of disbelief - not to mention the goalscorer himself`\
-https://nytimes.com/athletic/6939592/2026/01/04/harrison-reed-goal-fulham-liverpool/
-
-**Top Democrats Say Trump Has Still Not Briefed Congress on U.S. Military Action in Venezuela**\
-`“This is just another example of absolute lawlessness on the part of this administration,” said Representative Jim Himes of Connecticut, the top Democrat on the House Intelligence Committee.`\
-https://nytimes.com/2026/01/04/us/politics/congress-venezuela-trump-maduro.html
 

@@ -1,6 +1,10 @@
+**Venezuelans in Colombia Rejoice, but Are Not Ready to Rush Back Home**\
+`“I had utterly lost hope,” said one Venezuelan who has lived in exile from his country for seven years.`\
+https://nytimes.com/2026/01/04/world/americas/venezuelan-exiles-maduro.html
+
 **Satellite Imagery Reveals Damage to Venezuelan Base Where Maduro Was Captured**\
 `Before-and-after imagery released on Sunday shows that at least five buildings at the complex were destroyed by U.S. forces.`\
-https://nytimes.com/2026/01/04/world/maduro-capture-satellite-photos.html
+https://nytimes.com/2026/01/04/world/americas/maduro-capture-satellite-photos.html
 
 **Royals, manager Matt Quatraro agree on 3-year extension**\
 `Quatraro's extension starts in 2027 and includes a club option for 2030. `\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6939768/2026/01/04/grizzlies-vs-lakers-stream-how-t
 **How to watch Thunder vs. Suns: Time, TV, streaming**\
 `Find out how to watch the Oklahoma City Thunder play the Phoenix Suns, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6939766/2026/01/04/thunder-vs-suns-stream-how-to-watch-jan-4/
-
-**How to watch Loyola Marymount vs. Gonzaga men's basketball: Time, TV, streaming**\
-`Find out how to watch the Loyola Marymount Lions play the Gonzaga Bulldogs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6939738/2026/01/04/loyola-marymount-vs-gonzaga-stream-how-to-watch-jan-4/
 
