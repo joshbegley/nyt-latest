@@ -1,3 +1,11 @@
+**Amorim insists he is 'manager' of Man Utd, not 'coach'**\
+`"It's going to be like this for 18 months or when the board decide to change,” Amorim said after the draw at Leeds. “I'm not going to quit.”`\
+https://nytimes.com/athletic/6939305/2026/01/04/ruben-amorim-man-utd-manager/
+
+**U.S. Oil ‘Quarantine’ of Venezuela Will Remain, and Troops Could Land, Rubio Says**\
+`Secretary of State Marco Rubio said the Trump administration would work with Venezuela’s acting leader, Delcy Rodríguez, a Maduro ally, to get foreign investment into the oil industry.`\
+https://nytimes.com/2026/01/04/world/americas/rubio-military-quarantine-venezuela-oil.html
+
 **How Joan Garcia produced the performance of his life on the most challenging of days**\
 `Joan Garcia showed against Espanyol that he could become a Barcelona great with a string of match-winning saves`\
 https://nytimes.com/athletic/6938850/2026/01/04/joan-garcia-saves-barcelona-espanyol/
