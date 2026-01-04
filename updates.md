@@ -1,3 +1,7 @@
+**The Ashes Briefing: England's Joe Root and Harry Brook fill their boots before weather closes in**\
+`Australia made early in-roads after losing the toss, but an unbeaten stand of 154 saw England recover impressively before the rain came`\
+https://nytimes.com/athletic/6926660/2026/01/04/ashes-england-australia-root-brook-spin-briefing/
+
 **Kentucky quarterback Cutter Boley commits to Arizona State: Source**\
 `Boley, who was one of the top young quarterbacks in the SEC, will compete to replace Sam Leavitt as the Sun Devils' starter.`\
 https://nytimes.com/athletic/6938644/2026/01/04/cutter-boley-kentucky-commits-arizona-state/

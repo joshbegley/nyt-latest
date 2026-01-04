@@ -2,6 +2,10 @@
 `Boley, who was one of the top young quarterbacks in the SEC, will compete to replace Sam Leavitt as the Sun Devils' starter.`\
 https://nytimes.com/athletic/6938644/2026/01/04/cutter-boley-kentucky-commits-arizona-state/
 
+**The Ashes Briefing: England's Joe Root and Harry Brook fill their boots before weather closes in**\
+`Australia made early in-roads after losing the toss, but an unbeaten stand of 154 saw England recover impressively before the rain came`\
+https://nytimes.com/athletic/6926660/2026/01/04/ashes-england-australia-root-brook-spin-briefing/
+
 **The New York Times in Print for Sunday, Jan. 4, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/01/04/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6911179/2026/01/04/everton-hill-dickinson-budweiser
 **How Trump Fixed On a Maduro Loyalist as Venezuela’s New Leader**\
 `Nicolás Maduro balked at a gilded exile. U.S. officials then saw a more pliant option in his vice president, Delcy Rodríguez, known for stabilizing Venezuela’s economy.`\
 https://nytimes.com/2026/01/04/world/americas/trump-venezuela-leader-rodriguez-machado.html
-
-**How do Strasbourg fans feel about Liam Rosenior's potential exit?**\
-`BlueCo's Strasbourg drew 1-1 with INEOS' Nice on Saturday – The Athletic spoke to supporters of both clubs about life in a multi-club model`\
-https://nytimes.com/athletic/6938153/2026/01/04/strasbourg-liam-rosenior-chelsea-nice-ineos/
 
