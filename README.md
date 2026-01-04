@@ -1,3 +1,11 @@
+**Amorim insists he is 'manager' of Man Utd, not 'coach'**\
+`"It's going to be like this for 18 months or when the board decide to change,” Amorim said after the draw at Leeds. “I'm not going to quit.”`\
+https://nytimes.com/athletic/6939305/2026/01/04/ruben-amorim-man-utd-manager/
+
+**U.S. Oil ‘Quarantine’ of Venezuela Will Remain, and Troops Could Land, Rubio Says**\
+`Secretary of State Marco Rubio said the Trump administration would work with Venezuela’s acting leader, Delcy Rodríguez, a Maduro ally, to get foreign investment into the oil industry.`\
+https://nytimes.com/2026/01/04/world/americas/rubio-military-quarantine-venezuela-oil.html
+
 **How Joan Garcia produced the performance of his life on the most challenging of days**\
 `Joan Garcia showed against Espanyol that he could become a Barcelona great with a string of match-winning saves`\
 https://nytimes.com/athletic/6938850/2026/01/04/joan-garcia-saves-barcelona-espanyol/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6939147/2026/01/04/dean-huijsen-real-madrid-injury/
 **Leeds 1 Man Utd 1: Where does this leave Amorim? A missed opportunity for Farke?**\
 `Dissecting the major talking points from the Premier League clash at Elland Road`\
 https://nytimes.com/athletic/6928591/2026/01/04/leeds-man-utd-amorim-analysis/
-
-**AD, Kyrie make formidable duo when healthy. As NBA trade deadline nears, can it exist?**\
-`As next month’s trade deadline draws closer, there’s a legitimate question of whether Davis and Irving will ever share the court again.`\
-https://nytimes.com/athletic/6938658/2026/01/04/anthony-davis-kyrie-irving-mavericks-nba-trade-deadline/
-
-**‘Arrogant, Dangerous and Illegal’: Trump’s Motives for the Attack on Venezuela**\
-`Readers weigh in on the military raid, the seizing of President Nicolás Maduro and what comes next.`\
-https://nytimes.com/2026/01/04/opinion/letters/trump-venezuela-us-motives.html
 
