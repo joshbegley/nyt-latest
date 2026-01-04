@@ -1,3 +1,11 @@
+**The Pulse: An unserious division delivers**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6938642/2026/01/04/the-nfls-harebrained-division-does-it-yet-again/
+
+**Nicolás Maduro Is Being Held at a Troubled Brooklyn Jail**\
+`The Metropolitan Detention Center, known as the M.D.C., is one of the United States’ most notorious federal lockups.`\
+https://nytimes.com/2026/01/04/nyregion/nicolas-maduro-metropolitan-detention-center-mdc-brooklyn.html
+
 **How to watch Nuggets vs. Nets: Time, TV, streaming**\
 `Find out how to watch the Denver Nuggets play the Brooklyn Nets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6939037/2026/01/04/nuggets-vs-nets-stream-how-to-watch-jan-4/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6939017/2026/01/04/mississippi-state-vs-oklahoma-st
 **How to watch Purdue vs. Nebraska women's basketball: Time, TV, streaming**\
 `Find out how to watch the Purdue Boilermakers play the Nebraska Cornhuskers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6939011/2026/01/04/purdue-vs-nebraska-stream-how-to-watch-jan-4/
-
-**How to watch Virginia Tech vs. Louisville women's basketball: Time, TV, streaming**\
-`Find out how to watch the Virginia Tech Hokies play the Louisville Cardinals, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6939007/2026/01/04/virginia-tech-vs-louisville-stream-how-to-watch-jan-4/
-
-**How to watch South Carolina vs. Florida women's basketball: Time, TV, streaming**\
-`Find out how to watch the South Carolina Gamecocks play the Florida Gators, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6939001/2026/01/04/south-carolina-vs-florida-stream-how-to-watch-jan-4/
 
