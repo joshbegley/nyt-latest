@@ -1,3 +1,7 @@
+**Edmundo González, regarded as the winner of the 2024 vote, says he is president of Venezuela.**\
+`The`\
+https://nytimes.com/live/2026/01/04/world/trump-us-venezuela-maduro/edmundo-gonzalez-regarded-as-the-winner-of-the-2024-vote-says-he-is-president-of-venezuela
+
 **Colts to retain GM Chris Ballard, coach Shane Steichen**\
 `The Colts failed to make the playoffs for a third straight season under Ballard and Steichen. `\
 https://nytimes.com/athletic/6008040/2026/01/04/colts-chris-ballard-shane-steichen/

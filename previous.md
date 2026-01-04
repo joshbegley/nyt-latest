@@ -1,3 +1,7 @@
+**Edmundo González, regarded as the winner of the 2024 vote, says he is president of Venezuela.**\
+`The`\
+https://nytimes.com/live/2026/01/04/world/trump-us-venezuela-maduro/edmundo-gonzalez-regarded-as-the-winner-of-the-2024-vote-says-he-is-president-of-venezuela
+
 **Colts to retain GM Chris Ballard, coach Shane Steichen**\
 `The Colts failed to make the playoffs for a third straight season under Ballard and Steichen. `\
 https://nytimes.com/athletic/6008040/2026/01/04/colts-chris-ballard-shane-steichen/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6940287/2026/01/04/mbappe-injury-news-real-madrid-s
 **Sharks extend Alexander Wennberg: What it means for the surprise contenders**\
 `The Sharks announced Sunday they've re-signed Wennberg to a three-year, $18 million contract.`\
 https://nytimes.com/athletic/6940012/2026/01/04/alexander-wennberg-sharks-contract-playoff-contender/
-
-**Days After U.S. Strikes in Nigeria, Gunmen Kill Dozens of Villagers**\
-`The attackers also abducted an unspecified number of people, including students from a Catholic school where over 300 people were kidnapped in November.`\
-https://nytimes.com/2026/01/04/world/africa/nigeria-killings-niger-state.html
 
