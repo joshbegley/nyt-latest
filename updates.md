@@ -1,3 +1,11 @@
+**Huijsen in contention for Madrid return in Supercopa de Espana**\
+`The defender missed Sunday's home game against Real Betis with a minor injury.`\
+https://nytimes.com/athletic/6939147/2026/01/04/dean-huijsen-real-madrid-injury/
+
+**Leeds 1 Man Utd 1: Where does this leave Amorim? A missed opportunity for Farke?**\
+`Dissecting the major talking points from the Premier League clash at Elland Road`\
+https://nytimes.com/athletic/6928591/2026/01/04/leeds-man-utd-amorim-analysis/
+
 **Lowetide: How Oilers, and NHL, could effectively use ECHL for development**\
 `There's no doubt that talented hockey players who turn pro would be best served by playing a lot.`\
 https://nytimes.com/athletic/6937786/2026/01/04/oilers-nhl-echl-development-league/
