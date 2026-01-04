@@ -1,3 +1,7 @@
+**AD, Kyrie make formidable duo when healthy. As NBA trade deadline nears, can it exist?**\
+`As next month’s trade deadline draws closer, there’s a legitimate question of whether Davis and Irving will ever share the court again.`\
+https://nytimes.com/athletic/6938658/2026/01/04/anthony-davis-kyrie-irving-mavericks-nba-trade-deadline/
+
 **‘Arrogant, Dangerous and Illegal’: Trump’s Motives for the Attack on Venezuela**\
 `Readers weigh in on the military raid, the seizing of President Nicolás Maduro and what comes next.`\
 https://nytimes.com/2026/01/04/opinion/letters/trump-venezuela-us-motives.html
