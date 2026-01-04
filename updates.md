@@ -1,3 +1,7 @@
+**Robert Heide, Angsty Playwright and Warhol Collaborator, Dies at 91**\
+`He helped create the Off Off Broadway theater scene, wrote and acted in Andy Warhol’s films, and made his apartment into a singular exhibit of Americana.`\
+https://nytimes.com/2026/01/04/obituaries/robert-heide-dead.html
+
 **Packers enter playoffs losing 4 straight, but Matt LaFleur emphasizes 'clean slate'**\
 `The Packers are reeling entering the postseason, but they'll have a chance to turn their fortunes around next weekend.`\
 https://nytimes.com/athletic/6940242/2026/01/04/packers-playoffs-matt-lafleur-vikings/
