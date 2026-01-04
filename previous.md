@@ -1,3 +1,7 @@
+**U.S. Has No Troops in Venezuela, Defense Department Says**\
+`A significant buildup of U.S. soldiers and ships will remain in the Caribbean and surrounding countries to protect “our interests the region,” the Joint Chiefs chairman said.`\
+https://nytimes.com/2026/01/04/world/americas/us-troops-venezuela.html
+
 **Huijsen in contention for Real Madrid return against Atletico**\
 `The defender missed Sunday's home game against Real Betis with a minor injury.`\
 https://nytimes.com/athletic/6939147/2026/01/04/dean-huijsen-real-madrid-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6938642/2026/01/04/the-nfls-harebrained-division-do
 **Nicolás Maduro Is Being Held at a Troubled Brooklyn Jail**\
 `The Metropolitan Detention Center, known as the M.D.C., is one of the United States’ most notorious federal lockups.`\
 https://nytimes.com/2026/01/04/nyregion/nicolas-maduro-metropolitan-detention-center-mdc-brooklyn.html
-
-**How to watch Nuggets vs. Nets: Time, TV, streaming**\
-`Find out how to watch the Denver Nuggets play the Brooklyn Nets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6939037/2026/01/04/nuggets-vs-nets-stream-how-to-watch-jan-4/
 
