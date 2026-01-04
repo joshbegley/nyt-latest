@@ -1,3 +1,7 @@
+**Packers enter playoffs losing 4 straight, but Matt LaFleur emphasizes 'clean slate'**\
+`The Packers are reeling entering the postseason, but they'll have a chance to turn their fortunes around next weekend.`\
+https://nytimes.com/athletic/6940242/2026/01/04/packers-playoffs-matt-lafleur-vikings/
+
 **Mbappe expected to miss Super Cup tie due to injury**\
 `Madrid reported on December 31 that Mbappe had sprained his left knee.`\
 https://nytimes.com/athletic/6940287/2026/01/04/mbappe-injury-news-real-madrid-spanish-super-club/
