@@ -1,3 +1,7 @@
+**Venezuela, Democracy and Oil**\
+`One thing is clear after the U.S. raid: Gunboat diplomacy is back, with cascading implications not just for the Americas but for the world.`\
+https://nytimes.com/2026/01/04/world/venezuela-strikes-trump-oil-maduro.html
+
 **Panthers win NFC South title with assist from Falcons' win over Saints**\
 `The Panthers lost their final two games but backed into the playoffs after the Falcons' win over the Saints forced a three-way tie.`\
 https://nytimes.com/athletic/6939396/2026/01/04/nfc-south-championship-panthers-bucs-saints-falcons/
