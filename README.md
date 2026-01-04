@@ -1,3 +1,7 @@
+**Maduro’s Ouster Plays Right Into Putin’s Hands**\
+`Allies? Who needs allies?`\
+https://nytimes.com/2026/01/04/opinion/putin-maduro-venezuela.html
+
 **Myles Garrett breaks sack record, Browns win season finale vs. Bengals**\
 `With two defensive touchdowns, the Browns earned 20-18 a win over their division rivals and finished the season 5-12.`\
 https://nytimes.com/athletic/6939515/2026/01/04/browns-bengals-score-result-takeaways-myles-garrett-sack-record/
@@ -6,7 +10,7 @@ https://nytimes.com/athletic/6939515/2026/01/04/browns-bengals-score-result-take
 `Djokovic, 38, leaves the organization at the center of its most significant undertaking since its founding.`\
 https://nytimes.com/athletic/6940085/2026/01/04/novak-djokovic-ptpa-tennis-player-organization-leaves/
 
-**Saints-Falcons takeaways: Atlanta beats New Orleans to give NFC South win to Carolina**\
+**Saints-Falcons takeaways: Atlanta beats New Orleans to hand NFC South to Carolina**\
 `Atlanta's win created a three-way tie for the top of the NFC South, which the Panthers won on a tiebreaker.`\
 https://nytimes.com/athletic/6939684/2026/01/04/saints-falcons-score-result-takeaways-nfc-south-champion/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/04/world/venezuela-strikes-trump-oil-maduro.html
 **Panthers win NFC South title with assist from Falcons' win over Saints**\
 `The Panthers lost their final two games but backed into the playoffs after the Falcons' win over the Saints forced a three-way tie.`\
 https://nytimes.com/athletic/6939396/2026/01/04/nfc-south-championship-panthers-bucs-saints-falcons/
-
-**Titans QB Cam Ward suffers AC joint sprain vs. Jaguars: Source**\
-`No. 1 pick in 2025 draft showed progress in rookie season, completing 59.8 percent of his passes for 15 TDs and seven interceptions.`\
-https://nytimes.com/athletic/6939846/2026/01/04/cam-ward-shoulder-injury-titans-nfl/
 

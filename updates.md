@@ -1,3 +1,11 @@
+**Myles Garrett breaks sack record, Browns win season finale vs. Bengals**\
+`With two defensive touchdowns, the Browns earned 20-18 a win over their division rivals and finished the season 5-12.`\
+https://nytimes.com/athletic/6939515/2026/01/04/browns-bengals-score-result-takeaways-myles-garrett-sack-record/
+
+**Novak Djokovic steps away from tennis player organization over representation of 'my voice and image'**\
+`Djokovic, 38, leaves the organization at the center of its most significant undertaking since its founding.`\
+https://nytimes.com/athletic/6940085/2026/01/04/novak-djokovic-ptpa-tennis-player-organization-leaves/
+
 **Browns-Bengals takeaways: Garrett breaks sack record, Browns win season finale**\
 `With two defensive touchdowns, the Browns earned 20-18 a win over their division rivals and finished the season 5-12.`\
 https://nytimes.com/athletic/6939515/2026/01/04/browns-bengals-score-result-takeaways-myles-garrett-sack-record/
