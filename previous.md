@@ -1,3 +1,11 @@
+**Vinicius Jr 'fundamental' to Madrid, Alonso insists after Brazilian jeered again**\
+`The Brazilian was again whistled at the Bernabeu, having gone 15 games without scoring for Madrid.`\
+https://nytimes.com/athletic/6939615/2026/01/04/vinicius-jr-madrid-alonso-whistles/
+
+**Tottenham have £8m bid rejected by Santos for left-back Souza**\
+`The Brazilian side have turned down Spurs’ offer for the 19-year-old.`\
+https://nytimes.com/athletic/6939595/2026/01/04/tottenham-transfer-news-souza-bid-santos/
+
 **Behind the Scenes of Our Nicolás Maduro Front Page**\
 `After President Trump’s surprise ouster of Venezuela’s authoritarian leader, a team of New York Times editors set to work redoing the front page.`\
 https://nytimes.com/2026/01/04/insider/nicolas-maduro-front-page.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6929509/2026/01/04/tottenham-sunderland-analysis-pr
 **Venezuela en vivo: EE. UU. mantendrá tropas en el Caribe, dice Rubio**\
 `Tras la captura del presidente Nicolás Maduro por parte de fuerzas estadounidenses, el secretario de Estado advirtió que los nuevos líderes venezolanos deben abrir la industria petrolera y enfrentar el narcotráfico.`\
 https://nytimes.com/live/2026/01/04/espanol/venezuela-trump
-
-**DIII runner deemed ineligible after accepting $6K in donations for tuition**\
-`Mohammed Bati works full time while studying political science at Augsburg University and running 150 miles per week.`\
-https://nytimes.com/athletic/6939123/2026/01/04/mohammed-bati-diii-runner-augsburg-ineligible-donations/
-
-**Ukrainians Welcome a U.S. Victory in Venezuela, and Lament a Double Standard**\
-`Ukraine’s government supports the removal of a dictator while members of Parliament question the wisdom of endorsing military interventions, even against a Russian ally.`\
-https://nytimes.com/2026/01/04/world/europe/ukraine-venezuela-maduro.html
 
