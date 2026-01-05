@@ -1,3 +1,23 @@
+**Broncos-Chargers takeaways: Denver earns top seed, Chargers fall to No. 7 seed**\
+`Denver earned a first-round bye, while the Chargers will play the Patriots in the first round`\
+https://nytimes.com/athletic/6940308/2026/01/04/chargers-broncos-score-result-takeaways-nfl-week-18/
+
+**A Test for Venezuela’s New Leader: Solidifying Power, but Pleasing Trump**\
+`Delcy Rodríguez is the torchbearer of a government whose revolutionary roots are in disarray. She must appease constituencies who loathe U.S. meddling while fielding Washington’s demands.`\
+https://nytimes.com/2026/01/04/world/americas/delcy-rodriguez-venezuela.html
+
+**Eagles-Commanders takeaways: Philadelphia opts for rest, falls to Washington**\
+`The Eagles lost an opportunity to secure the No. 2 seed in the NFC, and they’re now preparing to host the San Francisco 49ers.`\
+https://nytimes.com/athletic/6939870/2026/01/04/commanders-eagles-score-result-takeaways-nfc-seeds/
+
+**Clippers' Derrick Jones Jr. resprains right MCL and will miss 6 weeks: Source**\
+`It is the same injury to the same knee and against the same Celtics team that caused Jones to miss six weeks earlier this season.`\
+https://nytimes.com/athletic/6940571/2026/01/04/clippers-derrick-jones-injury-right-mcl-out-six-weeks/
+
+**Jerry Jones: Cowboys are eyeing moves that could make 'dramatic difference'**\
+`The Cowboys finish the season 7-9-1 and Brian Schottenheimer said he expected this team to be in the playoffs.`\
+https://nytimes.com/athletic/6940533/2026/01/04/cowboys-lose-giants-defensive-coordinator-matt-eberflus/
+
 **Bears get NFC's No. 2 seed, will host Packers despite loss to Lions**\
 `The Lions blew a 16-0 fourth-quarter lead but kicked the winning field goal to end their season on a high note.`\
 https://nytimes.com/athletic/6940374/2026/01/04/lions-bears-score-result-takeaways-nfl-week-18/
@@ -17,24 +37,4 @@ https://nytimes.com/2026/01/04/us/politics/trump-republicans-venezuela.html
 **Patriots-Dolphins takeaways: New England nabs No. 2 seed, will host Chargers**\
 `Patriots end season with run-heavy attack in rout of Dolphins.`\
 https://nytimes.com/athletic/6940446/2026/01/04/dolphins-patriots-score-result-takeaways-nfl-week-18/
-
-**Rams-Cardinals takeaways: L.A. locks up No. 5 seed, will travel to Carolina**\
-`Stafford joins Peyton Manning and Dan Marino as the only players with multiple touchdown passes in 15 games.`\
-https://nytimes.com/athletic/6940322/2026/01/04/cardinals-rams-score-result-takeaways-nfl-week-18/
-
-**Iran and Venezuela found kinship in anti-American ideology and in evading U.S. sanctions.**\
-`By Farnaz Fassihi`\
-https://nytimes.com/live/2026/01/04/world/trump-us-venezuela-maduro/iran-relationship-oil-venezuela
-
-**While Browns' future remains uncertain, they closed the season with reason to celebrate**\
-`Cleveland finishes its season with Myles Garrett setting a new sacks record and Shedeur Sanders leading a game-winning drive. `\
-https://nytimes.com/athletic/6940383/2026/01/04/browns-season-myles-garrett-sacks-record/
-
-**Crosby's overtime goal caps sensational comeback win in Columbus: Observations**\
-`The Penguins have now won five straight after mustering the energy for a comeback on the second night of a back-to-back.`\
-https://nytimes.com/athletic/6940332/2026/01/04/penguins-crosby-overtime-comeback-blue-jackets/
-
-**Chiefs takeaways: Las Vegas wins late, Kelce potentially plays last game**\
-`The Chiefs lost six straight games to finish 6-11, their worst record since 2012, giving them a top-10 draft pick in 2026.`\
-https://nytimes.com/athletic/6939581/2026/01/04/chiefs-raiders-score-result-takeaways-nfl-week-18/
 

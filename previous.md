@@ -1,3 +1,11 @@
+**Bears get NFC's No. 2 seed, will host Packers despite loss to Lions**\
+`The Lions blew a 16-0 fourth-quarter lead but kicked the winning field goal to end their season on a high note.`\
+https://nytimes.com/athletic/6940374/2026/01/04/lions-bears-score-result-takeaways-nfl-week-18/
+
+**Buffalo gets one last win in Highmark Stadium: Bills-Jets takeaways**\
+`The Bills will travel to play the Jacksonville Jaguars in the first round of the playoffs.`\
+https://nytimes.com/athletic/6940369/2026/01/04/jets-bills-score-result-takeaways-nfl-week-18/
+
 **10-Minute Challenge: An Artist in Greenland**\
 `We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
 https://nytimes.com/interactive/2026/01/04/upshot/ten-minute-challenge-greenland.html
@@ -27,14 +35,6 @@ https://nytimes.com/athletic/6940383/2026/01/04/browns-season-myles-garrett-sack
 https://nytimes.com/athletic/6940332/2026/01/04/penguins-crosby-overtime-comeback-blue-jackets/
 
 **Chiefs takeaways: Las Vegas wins late, Kelce potentially plays last game**\
-`The Chiefs lost six straight games to finish 6-11, their worst record since 2012, but did secure a top-10 draft pick.`\
+`The Chiefs lost six straight games to finish 6-11, their worst record since 2012, giving them a top-10 draft pick in 2026.`\
 https://nytimes.com/athletic/6939581/2026/01/04/chiefs-raiders-score-result-takeaways-nfl-week-18/
-
-**Giants will pick No. 5 in the 2026 NFL Draft**\
-`The Giants' win over the Cowboys lost them a top two pick in April's 2026 draft.`\
-https://nytimes.com/athletic/6940456/2026/01/04/ny-giants-nfl-draft-pick-spot/
-
-**Maduro’s Capture Shows Trump’s Goal to Dominate the Americas**\
-`Latin America was already struggling with how to handle President Trump’s interventions in the region. Then he attacked Venezuela.`\
-https://nytimes.com/2026/01/04/world/americas/trump-latin-america-venezuela.html
 
