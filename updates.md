@@ -1,3 +1,11 @@
+**Penguins put Egor Zamula on waivers, plan to terminate his contract**\
+`Zamula will become an unrestricted free agent if he goes unclaimed by 2 p.m. ET on Tuesday.`\
+https://nytimes.com/athletic/6943054/2026/01/05/penguins-egor-zamula-contract-termination/
+
+**Maduro, Yanked Into the U.S. Justice System, Says He Was Kidnapped**\
+`“I’m innocent. I’m not guilty. I am a decent man,” the captured Venezuelan president told a judge in Manhattan federal court. “I am still president of my country.”`\
+https://nytimes.com/2026/01/05/world/americas/maduro-yanked-into-the-us-justice-system-says-he-was-kidnapped.html
+
 **'He cares about the club': What Fletcher will offer Man Utd as interim manager**\
 `The Scot served Old Trafford superbly as a player and feels the natural fit to steady the club in a turbulent week`\
 https://nytimes.com/athletic/6942814/2026/01/05/darren-fletcher-manchester-united-interim-manager/

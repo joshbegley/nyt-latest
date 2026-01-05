@@ -1,3 +1,11 @@
+**Penguins put Egor Zamula on waivers, plan to terminate his contract**\
+`Zamula will become an unrestricted free agent if he goes unclaimed by 2 p.m. ET on Tuesday.`\
+https://nytimes.com/athletic/6943054/2026/01/05/penguins-egor-zamula-contract-termination/
+
+**Maduro, Yanked Into the U.S. Justice System, Says He Was Kidnapped**\
+`“I’m innocent. I’m not guilty. I am a decent man,” the captured Venezuelan president told a judge in Manhattan federal court. “I am still president of my country.”`\
+https://nytimes.com/2026/01/05/world/americas/maduro-yanked-into-the-us-justice-system-says-he-was-kidnapped.html
+
 **'He cares about the club': What Fletcher will offer Man Utd as interim manager**\
 `The Scot served Old Trafford superbly as a player and feels the natural fit to steady the club in a turbulent week`\
 https://nytimes.com/athletic/6942814/2026/01/05/darren-fletcher-manchester-united-interim-manager/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/05/travel/venezuela-caribbean-stranded-travelers.htm
 **Detained American Is Held by Venezuelan Counterintelligence**\
 `The location of James Luckey-Lange of New York City, who went missing in Venezuela in early December, was previously unknown.`\
 https://nytimes.com/2026/01/05/world/americas/james-luckey-lange-american-detained-venezuela-counterintelligence.html
-
-**Oil Stocks Rally as Investors Bet on Return to Venezuela**\
-`The energy sector of the S&P 500 rose 2.9 percent on Monday, lifting the broader market.`\
-https://nytimes.com/2026/01/05/business/oil-stocks-venezuela.html
-
-**The Best Movies and TV Shows Coming to Disney+, Amazon, HBO Max, Peacock and More in January**\
-`“The Pitt” Season 2, “Star Trek: Starfleet Academy,” “The Beauty,” “Wonder Man,” “Shrinking” Season 3 and more arrive.`\
-https://nytimes.com/2026/01/05/arts/television/movies-tv-shows-january-2026-streaming.html
 
