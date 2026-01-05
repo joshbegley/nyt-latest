@@ -1,3 +1,11 @@
+**A preview of The Athletic’s live coverage this week**\
+`The Athletic's live coverage this week includes the start of the NFL playoffs and the semifinals of the College Football Playoff.`\
+https://nytimes.com/athletic/6939906/2026/01/05/nfl-playoffs-cfp-afcon/
+
+**Creativity, leadership, experience: Why Brighton signing Pascal Gross makes sense**\
+`During his second spell at Brighton, Pascal Gross will add much-needed creativity to the midfield and will be a plus in the dressing room`\
+https://nytimes.com/athletic/6937105/2026/01/05/pascal-gross-brighton-burnley-analysis/
+
 **Projecting each NFL playoff team’s odds to win Super Bowl, with wild-card matchup analysis**\
 `The Broncos and Seahawks have next week off, but 12 NFL wild-card teams will be fighting to keep their Super Bowl dreams alive.`\
 https://nytimes.com/athletic/6931898/2026/01/05/nfl-playoff-chances-matchups-super-bowl-odds/
