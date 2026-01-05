@@ -1,3 +1,23 @@
+**Tim Walz to Drop Bid for Third Term and Amy Klobuchar May Run Instead**\
+`Mr. Walz and Ms. Klobuchar met Sunday in Minnesota, where he informed her of his plans and she confirmed her interest in running to replace him.`\
+https://nytimes.com/2026/01/05/us/walz-governor-fraud-klobuchar.html
+
+**Browns fire Kevin Stefanski after 6 seasons**\
+`Stefanski was named NFL Coach of the Year in 2020 and 2023, but the team failed to find a long-term answer at QB during his tenure. `\
+https://nytimes.com/athletic/6812748/2026/01/05/browns-fire-kevin-stefanski-nfl/
+
+**Submit your questions for the college basketball mailbag**\
+`What's on your mind after the first full weekend of conference play? Let us know.`\
+https://nytimes.com/athletic/6942291/2026/01/05/college-basketball-mailbag-questions-2026/
+
+**Four Canucks thoughts on the Sherwood buzz, Karlsson extension and more**\
+`Unpacking some of the hot topics surrounding the Canucks coming out of this weekend's games.`\
+https://nytimes.com/athletic/6940265/2026/01/05/canucks-kiefer-sherwood-trade-linus-karlsson-contract/
+
+**Dallas Turner finishes Year 2 in style, laying groundwork for promising future**\
+`The Vikings' second-year pass rusher had two sacks and a forced fumble in Sunday's season finale against the Packers.`\
+https://nytimes.com/athletic/6939913/2026/01/05/dallas-turner-vikings-packers-sacks/
+
 **Inside Barcelona: Ake, Cancelo transfer links — will they take advantage of Christensen's injury?**\
 `Christensen's long-term knee injury could force Barcelona into the market for a defender`\
 https://nytimes.com/athletic/6942151/2026/01/05/inside-barcelona-ake-cancelo-christensen-transfers/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6942102/2026/01/05/inside-real-madrid-gonzalo-garci
 **Next Manchester United manager favourites: Maresca and Southgate are front runners**\
 `Who will be the next Manchester United manager following the departure of Ruben Amorim?`\
 https://nytimes.com/athletic/6941959/2026/01/05/manchester-united-future-manager-odds-enzo-maresca-gareth-southgate/
-
-**Lowetide: Is the Oilers' approach to free agency delivering enough value?**\
-`Stan Bowman's spring 2025 signings should represent a clear change in direction for the franchise.`\
-https://nytimes.com/athletic/6939430/2026/01/05/edmonton-oilers-contracts-salary-cap-signings/
-
-**Premier League tactical notebook: Arsenal the cutback kings, Chelsea's back-post threat, Newcastle set pieces**\
-`The Athletic's data writers break down some of the key trends from the weekend's Premier League action`\
-https://nytimes.com/athletic/6941934/2026/01/05/premier-league-data-tactics-notebook-md20/
-
-**Where Bills' roster stands heading into playoffs: position-by-position breakdown**\
-`The Bills have turned their attention to the Jaguars, and will have to navigate some depth issues on both sides of the ball.`\
-https://nytimes.com/athletic/6941292/2026/01/05/bills-playoff-game-jaguars-roster/
-
-**Wilson in talks to leave West Ham five months after joining club**\
-`The 33-year-old striker has scored four goals in 18 games for West Ham after joining on a one-year deal in the summer.`\
-https://nytimes.com/athletic/6942017/2026/01/05/callum-wilson-west-ham-exit/
-
-**West Ham complete deal for Lazio striker Castellanos**\
-`The 27-year-old has signed a four-and-a-half-year contract with the option for an additional year.`\
-https://nytimes.com/athletic/6937289/2026/01/05/west-ham-sign-valentin-castellanos/
 
