@@ -1,3 +1,11 @@
+**10 Convicted of Cyberbullying France’s First Lady**\
+`The defendants made false claims about Brigitte Macron, the wife of President Emmanuel Macron of France.`\
+https://nytimes.com/2026/01/05/world/europe/france-brigitte-macron-cyberbullying-trial-owens.html
+
+**The Jets' season was miserable, but Aaron Glenn is staying. Who will return with him?**\
+`An early look at how the 2026 Jets might begin to take shape.`\
+https://nytimes.com/athletic/6941508/2026/01/05/new-york-jets-aaron-glenn-returning-players/
+
 **Guardiola says ‘it doesn’t look good’ on Gvardiol, Dias injuries**\
 `Both players were substituted in the second half of City’s 1-1 draw with Chelsea on Sunday.`\
 https://nytimes.com/athletic/6941918/2026/01/05/manchester-city-dias-gvardiol-injuries/
