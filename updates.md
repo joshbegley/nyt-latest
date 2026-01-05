@@ -1,3 +1,15 @@
+**Bengals keeping coach Zac Taylor, de-facto GM Duke Tobin**\
+`The Bengals were 6-11 this season and missed the playoffs for the third straight year.`\
+https://nytimes.com/athletic/6942444/2026/01/05/bengals-keeping-zac-taylor-duke-tobin/
+
+**Just Before Publishing, a Reporter Receives a Crucial Tip**\
+`We were nearly finished with our narrative on a Cold War mystery. Then juicy new info suddenly emerged. Now what?`\
+https://nytimes.com/2026/01/05/insider/cold-war-spy-mission-tip.html
+
+**Trump’s Threat of Force Against Colombia Draws Rebuke From Its Leader**\
+`President Gustavo Petro said that he had asked the Colombian people to defend him “against any illegitimate violent act.” His defense minister emphasized that security cooperation with Washington continued.`\
+https://nytimes.com/2026/01/05/world/americas/trump-petro-colombia-venezuela.html
+
 **Trinidad Chambliss to return to Ole Miss in 2026, pending eligibility waiver: Source**\
 `Chambliss enrolled at Ferris State in 2021 but did not play in either of his first two seasons with the Division II powerhouse.`\
 https://nytimes.com/athletic/6942392/2026/01/05/trinidad-chambliss-ole-miss-ncaa-eligibility-waiver/

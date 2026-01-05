@@ -1,3 +1,15 @@
+**Bengals keeping coach Zac Taylor, de-facto GM Duke Tobin**\
+`The Bengals were 6-11 this season and missed the playoffs for the third straight year.`\
+https://nytimes.com/athletic/6942444/2026/01/05/bengals-keeping-zac-taylor-duke-tobin/
+
+**Just Before Publishing, a Reporter Receives a Crucial Tip**\
+`We were nearly finished with our narrative on a Cold War mystery. Then juicy new info suddenly emerged. Now what?`\
+https://nytimes.com/2026/01/05/insider/cold-war-spy-mission-tip.html
+
+**Trump’s Threat of Force Against Colombia Draws Rebuke From Its Leader**\
+`President Gustavo Petro said that he had asked the Colombian people to defend him “against any illegitimate violent act.” His defense minister emphasized that security cooperation with Washington continued.`\
+https://nytimes.com/2026/01/05/world/americas/trump-petro-colombia-venezuela.html
+
 **Trinidad Chambliss to return to Ole Miss in 2026, pending eligibility waiver: Source**\
 `Chambliss enrolled at Ferris State in 2021 but did not play in either of his first two seasons with the Division II powerhouse.`\
 https://nytimes.com/athletic/6942392/2026/01/05/trinidad-chambliss-ole-miss-ncaa-eligibility-waiver/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6942338/2026/01/05/falcons-matt-ryan-arthur-blank-c
 **JD Vance’s Ohio Home Is Targeted in Vandalism Attack**\
 `U.S. Secret Service agents detained a man early Monday after the vice president’s home in Cincinnati was damaged. No injuries were reported.`\
 https://nytimes.com/2026/01/05/us/jd-vance-home-damage-cincinnati-arrest.html
-
-**Tim Walz Drops Bid for Third Term and Amy Klobuchar May Run Instead**\
-`Mr. Walz and Ms. Klobuchar met on Sunday in Minnesota, where he informed her of his plans and she confirmed her interest in running to succeed him as governor.`\
-https://nytimes.com/2026/01/05/us/walz-governor-fraud-klobuchar.html
-
-**Browns fire coach Kevin Stefanski after six seasons**\
-`Stefanski was named NFL Coach of the Year in 2020 and 2023, but the team failed to find a long-term answer at QB during his tenure. `\
-https://nytimes.com/athletic/6812748/2026/01/05/browns-fire-kevin-stefanski-nfl/
-
-**Submit your questions for the college basketball mailbag**\
-`What's on your mind after the first full weekend of conference play? Let us know.`\
-https://nytimes.com/athletic/6942291/2026/01/05/college-basketball-mailbag-questions-2026/
 
