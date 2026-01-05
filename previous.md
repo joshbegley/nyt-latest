@@ -1,3 +1,7 @@
+**Denmark Tells Trump to ‘Stop the Threats’ About Greenland**\
+`The Danish prime minister told President Trump to back down after he repeated his threat to acquire Greenland in the wake of the U.S. military raid in Venezuela.`\
+https://nytimes.com/2026/01/05/world/europe/trump-greenland-denmark.html
+
 **Can the Lakers fix the bad habits that have frustrated JJ Redick?**\
 `Redick has called out his team for a lack of energy, effort and execution. But there have been signs of improvement in two straight wins.`\
 https://nytimes.com/athletic/6941679/2026/01/05/lakers-bad-habits-jj-redick-memphis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6939880/2026/01/05/lane-kiffin-big-picture-ole-miss
 **Monday Morning Leafs Report: How Matthews can improve his complicated legacy**\
 `For all of Auston Matthews' many accomplishments in a Maple Leafs sweater, he needs something else to truly become the greatest Leaf.`\
 https://nytimes.com/athletic/6939528/2026/01/05/maple-leafs-matthews-legacy-playoffs/
-
-**Flyers mailbag, part 2: Is Vladar the answer? Should the club try to land a center?**\
-`If Vlad is able to maintain his level of play, the Flyers could potentially work on a contract extension with him this summer.`\
-https://nytimes.com/athletic/6939383/2026/01/05/flyers-dan-vladar-owen-tippett-trade-rumors/
 

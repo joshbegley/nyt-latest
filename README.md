@@ -1,3 +1,15 @@
+**Farewell Ruben Amorim, we’ll miss your bizarre media conferences**\
+`Managers are usually very good at deflecting - but Amorim is among the easiest to get a quote out of that the Premier League has ever seen`\
+https://nytimes.com/athletic/6942033/2026/01/05/ruben-amorim-man-united-press-conference/
+
+**Man City's Echeverri finalising loan move to Girona**\
+`The 20-year-old had his season-long loan at Bayer Leverkusen cut short in December after making just three starts for the Bundesliga club.`\
+https://nytimes.com/athletic/6903367/2026/01/05/man-city-transfer-news-girona-echeverri/
+
+**How to shape your Fantasy Premier League team after Gameweek 21**\
+`From Arsenal’s varied attack to Ruben Amorim leaving Manchester United, these important takeaways should guide your FPL plans`\
+https://nytimes.com/athletic/6940199/2026/01/05/fantasy-premier-league-tips-fpl-gameweek-21/
+
 **Denmark Tells Trump to ‘Stop the Threats’ About Greenland**\
 `The Danish prime minister told President Trump to back down after he repeated his threat to acquire Greenland in the wake of the U.S. military raid in Venezuela.`\
 https://nytimes.com/2026/01/05/world/europe/trump-greenland-denmark.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6939597/2026/01/05/wild-jiricek-world-juniors-kivih
 **Manchester City’s late stumble came as no surprise. Their regulars are running on reserve**\
 `After 20 Premier League games, are we seeing the cost of Guardiola asking the same City players to make such frequent visits to the well?`\
 https://nytimes.com/athletic/6941753/2026/01/05/manchester-city-chelsea-premier-league-analysis/
-
-**Transfer portal buzz: QB dominoes falling, what we're hearing after the first weekend**\
-`Quarterback Brendan Sorsby's commitment to Texas Tech on Sunday night capped a wild weekend of portal activity. `\
-https://nytimes.com/athletic/6941050/2026/01/05/transfer-portal-updates-brendan-sorsby-sam-leavitt/
-
-**If Lane Kiffin understands the big picture, Ole Miss will have all its coaches on Thursday**\
-`We don’t need sworn statements from the six coaches in question to know they want to see things through with Ole Miss.`\
-https://nytimes.com/athletic/6939880/2026/01/05/lane-kiffin-big-picture-ole-miss-coaches/
-
-**Monday Morning Leafs Report: How Matthews can improve his complicated legacy**\
-`For all of Auston Matthews' many accomplishments in a Maple Leafs sweater, he needs something else to truly become the greatest Leaf.`\
-https://nytimes.com/athletic/6939528/2026/01/05/maple-leafs-matthews-legacy-playoffs/
 
