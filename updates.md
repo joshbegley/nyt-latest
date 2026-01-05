@@ -1,3 +1,7 @@
+**Can the Lakers fix the bad habits that have frustrated JJ Redick?**\
+`Redick has called out his team for a lack of energy, effort and execution. But there have been signs of improvement in two straight wins.`\
+https://nytimes.com/athletic/6941679/2026/01/05/lakers-bad-habits-jj-redick-memphis/
+
 **'I think he can be a great player': Rudy Gobert is impressed by countryman Alex Sarr**\
 `Gobert and the Timberwolves dominated Sarr and the Wizards on Sunday. But Gobert predicted that Sarr can have a great future. `\
 https://nytimes.com/athletic/6941266/2026/01/05/rudy-gobert-alex-sarr/

@@ -1,3 +1,7 @@
+**Can the Lakers fix the bad habits that have frustrated JJ Redick?**\
+`Redick has called out his team for a lack of energy, effort and execution. But there have been signs of improvement in two straight wins.`\
+https://nytimes.com/athletic/6941679/2026/01/05/lakers-bad-habits-jj-redick-memphis/
+
 **'I think he can be a great player': Rudy Gobert is impressed by countryman Alex Sarr**\
 `Gobert and the Timberwolves dominated Sarr and the Wizards on Sunday. But Gobert predicted that Sarr can have a great future. `\
 https://nytimes.com/athletic/6941266/2026/01/05/rudy-gobert-alex-sarr/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6939528/2026/01/05/maple-leafs-matthews-legacy-play
 **Flyers mailbag, part 2: Is Vladar the answer? Should the club try to land a center?**\
 `If Vlad is able to maintain his level of play, the Flyers could potentially work on a contract extension with him this summer.`\
 https://nytimes.com/athletic/6939383/2026/01/05/flyers-dan-vladar-owen-tippett-trade-rumors/
-
-**Bruins at NHL halfway point: Nastier? Yes. Playoff team? Not yet**\
-`This is general manager Don Sweeney’s vision and first-year coach Marco Sturm’s mandate for 2025-26.`\
-https://nytimes.com/athletic/6939778/2026/01/05/bruins-nastier-yes-playoff-team-not-yet/
 
