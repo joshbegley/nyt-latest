@@ -1,3 +1,11 @@
+**Broncos-Chargers takeaways: Denver earns top seed, Chargers fall to No. 7 seed**\
+`Denver earned a first-round bye, while the Chargers will play the Patriots in the first round.`\
+https://nytimes.com/athletic/6940308/2026/01/04/chargers-broncos-score-result-takeaways-nfl-week-18/
+
+**Eagles-Commanders takeaways: Philadelphia opts for rest before playoffs, falls to Washington**\
+`The Eagles lost an opportunity to secure the No. 2 seed in the NFC, and they’re now preparing to host the 49ers in the playoffs.`\
+https://nytimes.com/athletic/6939870/2026/01/04/commanders-eagles-score-result-takeaways-nfc-seeds/
+
 **Welcome to the 5-Day Brain Health Challenge**\
 `It’s never too early or too late to start healthy brain habits. Today, test your knowledge with a pop quiz.`\
 https://nytimes.com/interactive/2026/well/brain-health-challenge-quiz.html

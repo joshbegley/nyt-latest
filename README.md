@@ -10,9 +10,9 @@ https://nytimes.com/athletic/6940598/2026/01/04/gabriel-landeskog-avalanche-inju
 `Find out how to watch the Oregon Ducks play the Indiana Hoosiers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6940845/2026/01/04/oregon-vs-indiana-stream-how-to-watch-jan-9/
 
-**Falcons fire head coach Raheem Morris after 2 seasons**\
-`The Falcons fired Morris after his second straight losing season. The franchise now has eight consecutive losing campaigns.`\
-https://nytimes.com/athletic/6871719/2026/01/04/falcons-fire-raheem-morris-coach/
+**Falcons fire head coach Raheem Morris, general manager Terry Fontenot: Source**\
+`The Falcons fired Morris and Fontenot after the team's season-ending Week 18 win. The franchise now has eight consecutive losing campaigns.`\
+https://nytimes.com/athletic/6871719/2026/01/04/falcons-fire-raheem-morris-coach-terry-fontenot-gm/
 
 **Giants owners demanded improvement and didn't get it, so Joe Schoen’s fate should be clear**\
 `The bar to make progress was incredibly low after a three-win season, but the roster built by Schoen still could barely clear it.`\
