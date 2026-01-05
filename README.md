@@ -1,3 +1,7 @@
+**Who Is Delcy Rodríguez?**\
+`Ms. Rodríguez, who is leading Venezuela after the U.S. captured Nicolás Maduro, established a reputation as a shrewd operator guiding the country’s economy.`\
+https://nytimes.com/2026/01/05/world/americas/venezuela-president-delcy-rodriguez.html
+
 **Gustavo Petro reprueba las amenazas de Trump contra Colombia**\
 `El presidente colombiano pidió a su pueblo que lo defienda “de cualquier acto violento ilegítimo”. Su ministro de Defensa subrayó que continuaba la cooperación en seguridad con Washington.`\
 https://nytimes.com/2026/01/05/espanol/america-latina/petro-trump-colombia.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6942184/2026/01/05/usmnt-tracker-aaronson-mckennie-
 **How to watch Minnesota vs. Michigan women's basketball: Time, TV, streaming**\
 `Find out how to watch the Minnesota Golden Gophers play the Michigan Wolverines, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6942642/2026/01/05/minnesota-vs-michigan-stream-how-to-watch-jan-5/
-
-**How to watch Nebraska vs. Ohio State men's basketball: Time, TV, streaming**\
-`Find out how to watch the Nebraska Cornhuskers play the Ohio State Buckeyes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6942640/2026/01/05/nebraska-vs-ohio-state-stream-how-to-watch-jan-5/
 

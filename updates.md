@@ -1,3 +1,11 @@
+**Gustavo Petro reprueba las amenazas de Trump contra Colombia**\
+`El presidente colombiano pidió a su pueblo que lo defienda “de cualquier acto violento ilegítimo”. Su ministro de Defensa subrayó que continuaba la cooperación en seguridad con Washington.`\
+https://nytimes.com/2026/01/05/espanol/america-latina/petro-trump-colombia.html
+
+**Blues sign winger Alexey Toropchenko to 2-year extension**\
+`The 26-year-old mostly occupies a fourth-line role, but coach Jim Montgomery has shown he's comfortable moving him up the lineup in a pinch.`\
+https://nytimes.com/athletic/6942634/2026/01/05/blues-alexey-toropchenko-extension/
+
 **How to watch Knicks vs. Pistons: Time, TV, streaming**\
 `Find out how to watch the New York Knicks play the Detroit Pistons, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6942674/2026/01/05/knicks-vs-pistons-stream-how-to-watch-jan-5/
