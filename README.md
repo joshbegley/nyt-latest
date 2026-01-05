@@ -1,3 +1,7 @@
+**Newcastle contact police after Willock threats and abuse**\
+`Newcastle have called on social-media companies, and in particular Meta, to take swift action.`\
+https://nytimes.com/athletic/6942510/2026/01/05/newcastle-joe-willock-online-abuse-threats/
+
 **Charvarius Ward Sr. mulling retirement after suffering 3 concussions in 2025**\
 `The Colts acquired Ward in free agency last offseason. `\
 https://nytimes.com/athletic/6942471/2026/01/05/charvarius-ward-retirement-concussions/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6942357/2026/01/05/don-mattingly-hired-bench-coach-
 **When Fashion Designers and Financiers Need a Suit, They Go to Him**\
 `At just 32, Ralph Fitzgerald, a raffish Brit with the look of a Guy Ritchie character, has become the tailor to movie stars, financial executives and Marc Jacobs.`\
 https://nytimes.com/2026/01/05/style/ralph-fitzgerald-bespoke-suits-manhattan.html
-
-**One Sleep Habit Experts Wish You Would Adopt**\
-`Working this overlooked practice into your sleep routine could have real benefits for your health.`\
-https://nytimes.com/2026/01/05/well/health-benefits-sleep-consistency.html
 
