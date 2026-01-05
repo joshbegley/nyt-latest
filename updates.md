@@ -1,3 +1,11 @@
+**Entering the Antarctic Sea Ice, and a New World**\
+`After 10 days with only the open ocean and the occasional iceberg at our sides, sailing into the sea ice felt like crossing into a whole new realm.`\
+https://nytimes.com/2026/01/05/climate/antarctica-expedition-sea-ice.html
+
+**Chevron’s Risky Bet to Stay in Venezuela May Now Give It an Advantage**\
+`The second-largest U.S. oil company, which kept pumping oil in the country after others left, could find it relatively easy to expand its operations if the political conditions there improve.`\
+https://nytimes.com/2026/01/05/business/energy-environment/venezuela-chevron-trump-oil.html
+
 **Checo Pérez says being Max Verstappen’s teammate at Red Bull was F1’s 'worst job'**\
 `Sergio Pérez calls being Max Verstappen’s teammate at Red Bull the worst job in F1, reflecting on the intense pressure he faced.`\
 https://nytimes.com/athletic/6943415/2026/01/05/checo-perez-max-verstappen-red-bull-f1-worst-job/
