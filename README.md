@@ -1,3 +1,11 @@
+**Hochul to Press for New Safeguards to Protect Children Online**\
+`In her upcoming State of the State address, Gov. Kathy Hochul will propose that the default setting for online platforms should ban viewing or messaging minors.`\
+https://nytimes.com/2026/01/05/nyregion/hocul-social-media-children-protections.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/01/05/crosswords/spelling-bee-forum.html
+
 **Chelsea owners know what to expect by hiring from within, but only results will win doubters around**\
 `Calum McFarlane stepped in for the draw against City - but fans have been critical of the possible hiring of Strasbourg's Liam Rosenior`\
 https://nytimes.com/athletic/6941397/2026/01/05/chelsea-rosenior-maresca-successor/
@@ -29,12 +37,4 @@ https://nytimes.com/issue/todayspaper/2026/01/05/todays-new-york-times
 **A preview of The Athletic’s live coverage this week**\
 `The Athletic's live coverage this week includes the start of the NFL playoffs and the semifinals of the College Football Playoff.`\
 https://nytimes.com/athletic/6939906/2026/01/05/nfl-playoffs-cfp-afcon/
-
-**Projecting each NFL playoff team’s odds to win Super Bowl, with wild-card matchup analysis**\
-`The Broncos and Seahawks have next week off, but 12 NFL wild-card teams will be fighting to keep their Super Bowl dreams alive.`\
-https://nytimes.com/athletic/6931898/2026/01/05/nfl-playoff-chances-matchups-super-bowl-odds/
-
-**UW-River Falls upsets North Central for DIII title as Kaleb Blaha breaks Joe Burrow's record**\
-`The Falcons quarterback broke the former LSU star's record for total yards in a season to lead the upset victory.`\
-https://nytimes.com/athletic/6941257/2026/01/05/kaleb-blaha-joe-burrows-ncaa-stagg-bowl/
 
