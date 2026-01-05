@@ -27,7 +27,7 @@ https://nytimes.com/athletic/6940623/2026/01/04/bengals-joe-burrow-playoff-droug
 https://nytimes.com/athletic/6940370/2026/01/04/blue-jackets-late-lead-loss-penguins/
 
 **Broncos-Chargers takeaways: Denver earns top seed, Chargers fall to No. 7 seed**\
-`Denver earned a first-round bye, while the Chargers will play the Patriots in the first round`\
+`Denver earned a first-round bye, while the Chargers will play the Patriots in the first round.`\
 https://nytimes.com/athletic/6940308/2026/01/04/chargers-broncos-score-result-takeaways-nfl-week-18/
 
 **A Test for Venezuela’s New Leader: Solidifying Power, but Pleasing Trump**\

@@ -1,3 +1,19 @@
+**Welcome to the 5-Day Brain Health Challenge**\
+`It’s never too early or too late to start healthy brain habits. Today, test your knowledge with a pop quiz.`\
+https://nytimes.com/interactive/2026/well/brain-health-challenge-quiz.html
+
+**Avalanche captain Gabriel Landeskog to miss 'some time' with injury**\
+`Landeskog has played in each of the Avalanche’s 41 games this season, scoring seven goals and 22 points.`\
+https://nytimes.com/athletic/6940598/2026/01/04/gabriel-landeskog-avalanche-injury/
+
+**How to watch Oregon vs. Indiana: CFP Semifinal Start Time, TV, streaming**\
+`Find out how to watch the Oregon Ducks play the Indiana Hoosiers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6940845/2026/01/04/oregon-vs-indiana-stream-how-to-watch-jan-9/
+
+**Falcons fire head coach Raheem Morris after 2 seasons**\
+`The Falcons fired Morris after his second straight losing season. The franchise now has eight consecutive losing campaigns.`\
+https://nytimes.com/athletic/6871719/2026/01/04/falcons-fire-raheem-morris-coach/
+
 **Giants owners demanded improvement and didn't get it, so Joe Schoen’s fate should be clear**\
 `The bar to make progress was incredibly low after a three-win season, but the roster built by Schoen still could barely clear it.`\
 https://nytimes.com/athletic/6936547/2026/01/04/ny-giants-joe-shoen-john-mara-fired/
@@ -19,22 +35,6 @@ https://nytimes.com/athletic/6940308/2026/01/04/chargers-broncos-score-result-ta
 https://nytimes.com/2026/01/04/world/americas/delcy-rodriguez-venezuela.html
 
 **Eagles-Commanders takeaways: Philadelphia opts for rest, falls to Washington**\
-`The Eagles lost an opportunity to secure the No. 2 seed in the NFC, and they’re now preparing to host the San Francisco 49ers.`\
+`The Eagles lost an opportunity to secure the No. 2 seed in the NFC, and they’re now preparing to host the 49ers in the playoffs.`\
 https://nytimes.com/athletic/6939870/2026/01/04/commanders-eagles-score-result-takeaways-nfc-seeds/
-
-**Clippers' Derrick Jones Jr. resprains right MCL and will miss 6 weeks: Source**\
-`It is the same injury to the same knee and against the same Celtics team that caused Jones to miss six weeks earlier this season.`\
-https://nytimes.com/athletic/6940571/2026/01/04/clippers-derrick-jones-injury-right-mcl-out-six-weeks/
-
-**Jerry Jones: Cowboys are eyeing moves that could make 'dramatic difference'**\
-`The Cowboys finish the season 7-9-1 and Brian Schottenheimer said he expected this team to be in the playoffs.`\
-https://nytimes.com/athletic/6940533/2026/01/04/cowboys-lose-giants-defensive-coordinator-matt-eberflus/
-
-**Bears get NFC's No. 2 seed, will host Packers despite loss to Lions**\
-`The Lions blew a 16-0 fourth-quarter lead but kicked the winning field goal to end their season on a high note.`\
-https://nytimes.com/athletic/6940374/2026/01/04/lions-bears-score-result-takeaways-nfl-week-18/
-
-**Buffalo gets one last win in Highmark Stadium: Bills-Jets takeaways**\
-`The Bills will travel to play the Jacksonville Jaguars in the first round of the playoffs.`\
-https://nytimes.com/athletic/6940369/2026/01/04/jets-bills-score-result-takeaways-nfl-week-18/
 
