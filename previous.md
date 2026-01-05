@@ -1,3 +1,11 @@
+**Corporation for Public Broadcasting Votes to Shut Down**\
+`Executives debated whether to allow the corporation to lie dormant after federal funding ended last year, but decided against it.`\
+https://nytimes.com/2026/01/05/business/media/corporation-for-public-broadcasting.html
+
+**Venezuela’s ‘Dirtiest’ Oil and the Environment: Three Things to Know**\
+`Most of the reserves in the country are extra-heavy oil that’s tough to extract and generates more greenhouse gases.`\
+https://nytimes.com/2026/01/05/climate/venezuela-dirty-oil.html
+
 **Super Bowl odds: Who can knock on Rams, Broncos door?**\
 `Seattle and Denver are the top seeds, but the Rams are still a force in Super Bowl odds. See who else stacks up.`\
 https://nytimes.com/athletic/6942912/2026/01/05/super-bowl-odds-seahawks-rams-broncos/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6943280/2026/01/05/warriors-vs-clippers-stream-how-
 **How to watch Hornets vs. Thunder: Time, TV, streaming**\
 `Find out how to watch the Charlotte Hornets play the Oklahoma City Thunder, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6943273/2026/01/05/hornets-vs-thunder-stream-how-to-watch-jan-5/
-
-**How to watch Hawks vs. Raptors: Time, TV, streaming**\
-`Find out how to watch the Atlanta Hawks play the Toronto Raptors, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6943269/2026/01/05/hawks-vs-raptors-stream-how-to-watch-jan-5/
-
-**How to watch Suns vs. Rockets: Time, TV, streaming**\
-`Find out how to watch the Phoenix Suns play the Houston Rockets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6943267/2026/01/05/suns-vs-rockets-stream-how-to-watch-jan-5/
 

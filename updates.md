@@ -1,3 +1,11 @@
+**Corporation for Public Broadcasting Votes to Shut Down**\
+`Executives debated whether to allow the corporation to lie dormant after federal funding ended last year, but decided against it.`\
+https://nytimes.com/2026/01/05/business/media/corporation-for-public-broadcasting.html
+
+**Venezuela’s ‘Dirtiest’ Oil and the Environment: Three Things to Know**\
+`Most of the reserves in the country are extra-heavy oil that’s tough to extract and generates more greenhouse gases.`\
+https://nytimes.com/2026/01/05/climate/venezuela-dirty-oil.html
+
 **Super Bowl odds: Who can knock on Rams, Broncos door?**\
 `Seattle and Denver are the top seeds, but the Rams are still a force in Super Bowl odds. See who else stacks up.`\
 https://nytimes.com/athletic/6942912/2026/01/05/super-bowl-odds-seahawks-rams-broncos/
