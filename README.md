@@ -1,3 +1,7 @@
+**Bears defense gets exposed again. Can they fix it for playoff meeting with Packers?**\
+`The Bears have allowed the second-most explosive plays in the NFL season, a major weakness as they enter the playoffs.`\
+https://nytimes.com/athletic/6941127/2026/01/05/bears-defense-exposed-nfl-playoffs/
+
 **The Lions wanted this last one and got it — now, the tough decisions begin**\
 `The prideful Lions weren't going to just roll over against the Bears, it's not in their nature. They played to win.`\
 https://nytimes.com/athletic/6941317/2026/01/05/lions-beat-bears-nfc-north-offseason/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6936246/2026/01/05/mlb-most-improved-orioles-pirate
 **NHL weekend rankings: On the Rangers, the Red Wings and the awful Pacific Division**\
 `The point of this column is to rank who's most likely to win the Stanley Cup. Normally that means a team from each division. Not today.`\
 https://nytimes.com/athletic/6940123/2026/01/05/nhl-weekend-rankings-pacific-rangers-red-wings/
-
-**Matthew Stafford makes final MVP push to cap off a regular season that saved his joy**\
-`Stafford's age and experience became his weapon, not his downfall, as he led the Rams to a 12-5 record this season at 37 years old.`\
-https://nytimes.com/athletic/6940884/2026/01/05/rams-matthew-stafford-mvp-case/
 
