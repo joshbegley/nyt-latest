@@ -1,3 +1,15 @@
+**Trump’s Move for Regime Change in Venezuela Threatens a New MAGA Rift**\
+`Some Republicans are asking how Mr. Trump’s military intervention in Venezuela squares with his past pledges to avoid foreign entanglements and nation building.`\
+https://nytimes.com/2026/01/04/us/politics/trump-republicans-venezuela.html
+
+**Patriots-Dolphins takeaways: New England nabs No. 2 seed, will host Chargers**\
+`Patriots end season with run-heavy attack in rout of Dolphins.`\
+https://nytimes.com/athletic/6940446/2026/01/04/dolphins-patriots-score-result-takeaways-nfl-week-18/
+
+**Rams-Cardinals takeaways: L.A. locks up No. 5 seed, will travel to Carolina**\
+`Stafford joins Peyton Manning and Dan Marino as the only players with multiple touchdown passes in 15 games.`\
+https://nytimes.com/athletic/6940322/2026/01/04/cardinals-rams-score-result-takeaways-nfl-week-18/
+
 **Iran and Venezuela found kinship in anti-American ideology and in evading U.S. sanctions.**\
 `By Farnaz Fassihi`\
 https://nytimes.com/live/2026/01/04/world/trump-us-venezuela-maduro/iran-relationship-oil-venezuela
@@ -19,22 +31,10 @@ https://nytimes.com/athletic/6939581/2026/01/04/chiefs-raiders-score-result-take
 https://nytimes.com/athletic/6940456/2026/01/04/ny-giants-nfl-draft-pick-spot/
 
 **Maduro’s Capture Shows Trump’s Goal to Dominate the Americas**\
-`Latin America was already struggling to how to handle President Trump’s interventions in the region. Then he attacked Venezuela.`\
+`Latin America was already struggling with how to handle President Trump’s interventions in the region. Then he attacked Venezuela.`\
 https://nytimes.com/2026/01/04/world/americas/trump-latin-america-venezuela.html
 
 **NFL playoff schedule: Where things stand with Steelers-Ravens set to decide AFC North**\
 `The wild-card round of the NFL playoffs begins with two games Saturday followed by three Sunday and the finale on Monday night.`\
 https://nytimes.com/athletic/6938288/2026/01/04/nfl-playoff-schedule-2026/
-
-**Losing record or not, NFC South-champion Panthers has a nice ring to it**\
-`Despite an 8-9 finish, Carolina wins the NFC South for the first time since 2015 and will host a home playoff game versus the Rams.`\
-https://nytimes.com/athletic/6940476/2026/01/04/carolina-panthers-nfc-south-champions-playoffs/
-
-**Bengals' Zac Taylor upset about delay after Myles Garrett set NFL sack record**\
-`Taylor said officials never mentioned in their pregame meeting that the game clock would pause if Garrett broke the record.`\
-https://nytimes.com/athletic/6940397/2026/01/04/zac-taylor-myles-garrett-delay-nfl-sack-record/
-
-**Seahawks, LT Charles Cross agree to largest deal for non-QB in franchise history: Source**\
-`Cross' reported four-year, $104.4 million deal with Seattle comes with $75 million guaranteed.`\
-https://nytimes.com/athletic/6940469/2026/01/04/seahawks-charles-cross-contract-extension-4-years/
 
