@@ -14,7 +14,7 @@ https://nytimes.com/2026/01/05/weather/hawaii-storm-rain-forecast.html
 `A first-look at the 2026 playoff picture, plus NFL Draft order, team needs and coaches to watch on Black Monday`\
 https://nytimes.com/athletic/6942808/2026/01/05/nfl-playoff-bracket-draft-order-2026-seahawks-raiders/
 
-**Novak Djokovic withdraws from Adelaide International, will not play Australian Open warmup**\
+**Novak Djokovic withdraws from Adelaide International, will enter Australian Open without warmup**\
 `The 24-time Grand Slam champion said he is “not quite physically ready to compete” at the event.`\
 https://nytimes.com/athletic/6942793/2026/01/05/tennis-novak-djokovic-australian-open-warmup-out/
 
