@@ -1,3 +1,15 @@
+**Charvarius Ward Sr. mulling retirement after suffering 3 concussions in 2025**\
+`The Colts acquired Ward in free agency last offseason. `\
+https://nytimes.com/athletic/6942471/2026/01/05/charvarius-ward-retirement-concussions/
+
+**Wilfried Nancy sacked by Celtic after 33 days in charge**\
+`Nancy was appointed on a two-and-a-half-year deal by the Scottish champions on December 3, joining from MLS side Columbus Crew.`\
+https://nytimes.com/athletic/6899248/2026/01/05/celtic-manager-nancy-sacked/
+
+**Bengals keeping coach Zac Taylor, de facto GM Duke Tobin**\
+`The Bengals were 6-11 this season and missed the playoffs for the third straight year.`\
+https://nytimes.com/athletic/6942444/2026/01/05/bengals-keeping-zac-taylor-duke-tobin/
+
 **Bengals keeping coach Zac Taylor, de-facto GM Duke Tobin**\
 `The Bengals were 6-11 this season and missed the playoffs for the third straight year.`\
 https://nytimes.com/athletic/6942444/2026/01/05/bengals-keeping-zac-taylor-duke-tobin/
