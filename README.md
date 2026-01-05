@@ -1,3 +1,7 @@
+**Ahn Sung Ki, Towering Figure in South Korean Film, Dies at 74**\
+`Mr. Ahn, who made his onscreen debut as a 5-year-old, appeared in more than 180 films. President Lee Jae-myung said he “left a great footprint in Korean film history.”`\
+https://nytimes.com/2026/01/05/world/asia/ahn-sung-ki-dead.html
+
 **China Needed Oil. Venezuela Needed Cash. Their Deal Faces a Turning Point.**\
 `Beijing has lent billions to Caracas in recent decades, and the fate of money it is owed is in question after the ouster of Venezuela’s leader.`\
 https://nytimes.com/2026/01/05/business/venezuela-oil-china-deal.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6940573/2026/01/05/college-basketball-top-25-mens-m
 **Where the Cubs, Yankees, Blue Jays and more teams stand as MLB's offseason moves into January**\
 `The new year is upon us. The baseball offseason is entering its third month. And unfinished business abounds.`\
 https://nytimes.com/athletic/6941044/2026/01/05/mlb-offseason-latest-yankees-dodgers-mets-red-sox-blue-jays/
-
-**Orioles head the list of MLB's 7 most-improved teams so far this offseason**\
-`The Pirates, Blue Jays and Red Sox are among the other teams who have made strong moves this offseason.`\
-https://nytimes.com/athletic/6936246/2026/01/05/mlb-most-improved-orioles-pirates-braves-red-sox/
 
