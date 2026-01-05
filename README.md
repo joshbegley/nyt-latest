@@ -1,3 +1,19 @@
+**Mike McDaniel on Dolphins future: 'I am the coach ... until told otherwise'**\
+`The Dolphins finished 7-10, dropping McDaniel to 35-33 overall since he took over as Miami's head coach four years ago.`\
+https://nytimes.com/athletic/6943471/2026/01/05/mike-mcdaniel-dolphins-coach-future/
+
+**Nvidia Details New A.I. Chips and Autonomous Car Project With Mercedes**\
+`At the CES conference, Jensen Huang, the company’s chief executive, said the more efficient and powerful chip would begin shipping later this year.`\
+https://nytimes.com/2026/01/05/technology/nvidia-chips-mercedes.html
+
+**Six Big Political Questions for 2026**\
+`A wildly important midterm year is off to a chaotic start, with a raid in Venezuela, an uneasy economy and more. Here’s what we’re curious about.`\
+https://nytimes.com/2026/01/05/us/politics/trump-democrats-gop-midterms-venezuela-economy.html
+
+**Maduro Pleads Not Guilty**\
+`Also, health officials scaled back the number of vaccines recommended for children. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2026/01/05/briefing/maduro-pleads-not-guilty.html
+
 **Maduro Is the Latest High-Profile Client for His Lawyer, Barry Pollack**\
 `Mr. Pollack has also represented Julian Assange and an official of Enron.`\
 https://nytimes.com/2026/01/05/world/americas/barry-pollack-maduro-lawyer-assange.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6943235/2026/01/05/giants-gm-joe-schoen-head-coach-
 **13 Unforgettable Looks at the Critics Choice Awards**\
 `Saturated colors, sculptural silhouettes, doses of whiplash and more.`\
 https://nytimes.com/2026/01/05/style/critics-choice-awards-looks-fashion.html
-
-**Nuno Espirito Santo says West Ham's poor form keeps him up at night**\
-`The relegation-threatened side are on a nine-game winless run and could be seven points from safety if they lose on Tuesday.`\
-https://nytimes.com/athletic/6943192/2026/01/05/nuno-espirito-santo-west-ham-poor-form/
-
-**Maduro Says He Is a Prisoner of War, Not a Defendant. The Words Matter.**\
-`His simple statement in federal court was aimed directly at contradictions in the Trump administration’s actions in the Caribbean.`\
-https://nytimes.com/2026/01/05/world/americas/maduro-court-appearance-pow.html
-
-**Russia Once Offered U.S. Control of Venezuela for Free Rein in Ukraine**\
-`The exchange offer was recounted at the time in congressional testimony by Fiona Hill, who ran Russian and European affairs on the National Security Council during the first Trump administration.`\
-https://nytimes.com/2026/01/06/world/americas/russia-us-venezuela-ukraine.html
-
-**Entering the Antarctic Sea Ice, and a New World**\
-`After 10 days with only the open ocean and the occasional iceberg at our sides, sailing into the sea ice felt like crossing into a whole new realm.`\
-https://nytimes.com/2026/01/05/climate/antarctica-expedition-sea-ice.html
 
