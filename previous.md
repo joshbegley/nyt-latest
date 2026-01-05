@@ -1,3 +1,7 @@
+**Was it Travis Kelce's last game? Inside the Chiefs' locker room after his 2025 finale**\
+`Was that really Kelce's final NFL game? One Chiefs teammate and close friend isn't convinced.`\
+https://nytimes.com/athletic/6939812/2026/01/04/chiefs-travis-kelce-last-game-2025/
+
 **Bears back their way into No. 2 seed, but are playing like a playoff 1-and-done**\
 `Chicago will host Green Bay in the first round on Saturday night, but two losses and two bad defensive performances in a row are concerning.`\
 https://nytimes.com/athletic/6940977/2026/01/04/bears-lions-nfl-playoffs-no-2-seed/
@@ -8,7 +12,7 @@ https://nytimes.com/athletic/6941079/2026/01/04/broncos-chargers-afc-playoffs-no
 
 **Cuba says 32 of its citizens were killed in Venezuela, including military personnel.**\
 `By Jack Nicas`\
-https://nytimes.com/live/2026/01/04/world/trump-us-venezuela-maduro/cuba-says-32-of-its-citizens-were-killed-in-venezuela-including-military-personnel
+https://nytimes.com/2026/01/04/world/cuba-says-32-of-its-citizens-were-killed-in-venezuela-including-military-personnel.html
 
 **After ugly loss, Bears head into the playoffs with an aggravated edge**\
 `A remarkable regular season ended on a sour note for the Bears, presenting a demanding resetting process as the playoffs arrive.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6940700/2026/01/04/jj-mccarthy-vikings-packers-qb-f
 **Venezuela’s acting president calls for dialogue and ‘coexistence’ with the U.S.**\
 `By Frances Robles`\
 https://nytimes.com/live/2026/01/04/world/trump-us-venezuela-maduro/venezuelas-acting-president-calls-for-dialogue-and-coexistence-with-the-us
-
-**Commanders' 2026 offseason guide: Biggest needs, draft capital, financials and more**\
-`As the page flips to 2026, here’s a quick guide to the Commanders' next few months.`\
-https://nytimes.com/athletic/6940800/2026/01/04/commanders-offseason-guide-free-agents-draft-picks-2026/
 

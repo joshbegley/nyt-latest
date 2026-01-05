@@ -1,3 +1,11 @@
+**Was it Travis Kelce's last game? Inside the Chiefs' locker room after his 2025 finale**\
+`Was that really Kelce's final NFL game? One Chiefs teammate and close friend isn't convinced.`\
+https://nytimes.com/athletic/6939812/2026/01/04/chiefs-travis-kelce-last-game-2025/
+
+**Cuba says 32 of its citizens were killed in Venezuela, including military personnel.**\
+`By Jack Nicas`\
+https://nytimes.com/2026/01/04/world/cuba-says-32-of-its-citizens-were-killed-in-venezuela-including-military-personnel.html
+
 **Brendan Sorsby, top QB in transfer portal, headed to Texas Tech**\
 `Sorsby, a redshirt junior with one year of eligibility remaining, is expected to arrive with a hefty price tag.`\
 https://nytimes.com/athletic/6933542/2026/01/04/brendan-sorsby-texas-tech-transfer-portal-quarterback/
