@@ -1,3 +1,15 @@
+**Steelers win AFC North, eliminate Ravens with Aaron Rodgers-led rally**\
+`The Steelers will host the Texans in a wild-card game next week on "Monday Night Football." `\
+https://nytimes.com/athletic/6941023/2026/01/04/ravens-steelers-score-result-takeaways-afc-north-title/
+
+**Updated 2026 NFL Draft order: Raiders at No. 1; Jets, Giants both finish in top 5**\
+`The Raiders have clinched the No. 1 pick in April's draft, and they'll be followed by the Jets, Cardinals, Titans and Giants in the order`\
+https://nytimes.com/athletic/6938320/2026/01/04/nfl-draft-order-2026-round-1-raiders-jets-giants/
+
+**Trump Suggests U.S. Could Take Action Against More Countries**\
+`On Air Force One, President Trump threatened Colombia and its president, described Cuba as “ready to fall” and reasserted his desire to acquire Greenland.`\
+https://nytimes.com/2026/01/04/us/politics/trump-cuba-greenland-colombia.html
+
 **Commanders end brutal season with moment of joy for three veteran players**\
 `Bobby Wagner, Josh Johnson and Von Miller reached significant milestones to cap a tough season in Washington.`\
 https://nytimes.com/athletic/6939191/2026/01/04/commanders-bobby-wagner-josh-johnson-von-miller/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6941079/2026/01/04/broncos-chargers-afc-playoffs-no
 **Cuba Says 32 of Its Citizens Died in Venezuela, Including Military Personnel**\
 `President Miguel Díaz-Canel said the casualties were from Cuba’s armed forces or interior ministry. The country is a longstanding ally of Venezuela.`\
 https://nytimes.com/2026/01/04/world/americas/cubans-killed-venezuela.html
-
-**After ugly loss, Bears head into the playoffs with an aggravated edge**\
-`A remarkable regular season ended on a sour note for the Bears, presenting a demanding resetting process as the playoffs arrive.`\
-https://nytimes.com/athletic/6941010/2026/01/04/bears-enter-playoffs-after-ugly-loss/
-
-**Brendan Sorsby, top QB in transfer portal, headed to Texas Tech**\
-`Sorsby, a redshirt junior with one year of eligibility remaining, is expected to arrive with a hefty price tag.`\
-https://nytimes.com/athletic/6933542/2026/01/04/brendan-sorsby-texas-tech-transfer-portal-quarterback/
-
-**DeVonta Smith's legacy did not need another 1,000-yard season. He got it anyway**\
-`Smith said he wanted to play, even when the risk of injury was there.`\
-https://nytimes.com/athletic/6940034/2026/01/04/devonta-smith-1000-yard-season-legacy/
 
