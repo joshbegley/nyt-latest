@@ -1,3 +1,7 @@
+**Giants owners demanded improvement and didn't get it, so Joe Schoen’s fate should be clear**\
+`The bar to make progress was incredibly low after a three-win season, but the roster built by Schoen still could barely clear it.`\
+https://nytimes.com/athletic/6936547/2026/01/04/ny-giants-joe-shoen-john-mara-fired/
+
 **Joe Burrow sets stage for 2026 as pressure mounts in Bengals’ playoff drought**\
 `The defense needs closers and the front office must address that in the draft and free agency.`\
 https://nytimes.com/athletic/6940623/2026/01/04/bengals-joe-burrow-playoff-drought-browns/
