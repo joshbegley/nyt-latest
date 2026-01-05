@@ -1,3 +1,7 @@
+**Brendan Sorsby, top QB in transfer portal, headed to Texas Tech**\
+`Sorsby, a redshirt junior with one year of eligibility remaining, is expected to arrive with a hefty price tag.`\
+https://nytimes.com/athletic/6933542/2026/01/04/brendan-sorsby-texas-tech-transfer-portal-quarterback/
+
 **Bears back their way into No. 2 seed, but are playing like a playoff 1-and-done**\
 `Chicago will host Green Bay in the first round on Saturday night, but two losses and two bad defensive performances in a row are concerning.`\
 https://nytimes.com/athletic/6940977/2026/01/04/bears-lions-nfl-playoffs-no-2-seed/
