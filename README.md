@@ -1,3 +1,7 @@
+**For Many Jan. 6 Rioters, a Pardon From Trump Wasn’t Enough**\
+`Some pardoned rioters have been rearrested. Others returned to the poverty and mental health challenges. And many became consumed by resentment and demands for payback.`\
+https://nytimes.com/2026/01/05/us/politics/trump-jan-6-pardons-rioters.html
+
 **At the U.N., Even Allies Condemn U.S. Action in Venezuela**\
 `The deputy French U.N. ambassador said it chipped “away at the very foundation of international order.”`\
 https://nytimes.com/2026/01/05/world/americas/un-security-council.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6943136/2026/01/05/nigeria-mozambique-afcon-analysi
 **49ers LBs reeling with injuries, Fred Warner not yet ready to return**\
 `The 49ers lost another linebacker and could be down two more. Meanwhile, Trent Williams' and Ricky Pearsall's statuses are to be determined.`\
 https://nytimes.com/athletic/6943215/2026/01/05/49ers-injuries-fred-warner-tatum-bethune-trent-williams/
-
-**Giants decision to bring back Joe Schoen makes it clear: They have no standards anymore**\
-`A once proud franchise has been driven into the ground by its own ownership group over the past decade.`\
-https://nytimes.com/athletic/6942819/2026/01/05/ny-giants-joe-schoen-ownership-no-standards/
 
