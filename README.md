@@ -1,3 +1,7 @@
+**The Briefing: Nigeria 4 Mozambique 0 - can anyone stop Osimhen and co? How vital is Iwobi?**\
+`Our writers analyse the main talking points from Nigeria's Africa Cup of Nations last-16 victory`\
+https://nytimes.com/athletic/6943136/2026/01/05/nigeria-mozambique-afcon-analysis/
+
 **49ers LBs reeling with injuries, Fred Warner not yet ready to return**\
 `The 49ers lost another linebacker and could be down two more. Meanwhile, Trent Williams' and Ricky Pearsall's statuses are to be determined.`\
 https://nytimes.com/athletic/6943215/2026/01/05/49ers-injuries-fred-warner-tatum-bethune-trent-williams/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6942564/2026/01/05/world-juniors-2026-attendance-ol
 **How to watch Bulls vs. Celtics: Time, TV, streaming**\
 `Find out how to watch the Chicago Bulls play the Boston Celtics, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6943291/2026/01/05/bulls-vs-celtics-stream-how-to-watch-jan-5/
-
-**How to watch Nuggets vs. 76ers: Time, TV, streaming**\
-`Find out how to watch the Denver Nuggets play the Philadelphia 76ers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6943289/2026/01/05/nuggets-vs-76ers-stream-how-to-watch-jan-5/
 

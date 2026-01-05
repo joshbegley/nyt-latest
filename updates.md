@@ -1,3 +1,11 @@
+**49ers LBs reeling with injuries, Fred Warner not yet ready to return**\
+`The 49ers lost another linebacker and could be down two more. Meanwhile, Trent Williams' and Ricky Pearsall's statuses are to be determined.`\
+https://nytimes.com/athletic/6943215/2026/01/05/49ers-injuries-fred-warner-tatum-bethune-trent-williams/
+
+**Giants decision to bring back Joe Schoen makes it clear: They have no standards anymore**\
+`A once proud franchise has been driven into the ground by its own ownership group over the past decade.`\
+https://nytimes.com/athletic/6942819/2026/01/05/ny-giants-joe-schoen-ownership-no-standards/
+
 **Dolphins QB Tua Tagovailoa open to a fresh start with a new team**\
 `Tagovailoa threw a career-high 15 interceptions in 2025. He was benched in favor of Quinn Ewers late in the season.`\
 https://nytimes.com/athletic/6943183/2026/01/05/dolphins-tua-tagovailoa-fresh-start-offseason-miami/
