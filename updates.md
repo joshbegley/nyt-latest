@@ -1,3 +1,11 @@
+**United fans: What are your thoughts on Amorim's sacking? What's next?**\
+`Ruben Amorim has been sacked after 14 months at Old Trafford - what are your views on his tenure, and what happens next?`\
+https://nytimes.com/athletic/6941877/2026/01/05/man-united-fans-amorim-sacked/
+
+**Arsenal Women complete signing of defender Holmberg from Hammarby IF**\
+`The 19-year-old right-back, who will wear the number 31 shirt at Arsenal, has signed a long-term contract.`\
+https://nytimes.com/athletic/6941765/2026/01/05/arsenal-women-transfer-news-holmberg/
+
 **Gunboat Diplomacy Is Back. What Could Go Wrong?**\
 `The high cost of forgetting what world war is really like.`\
 https://nytimes.com/2026/01/05/opinion/trump-venezuela-maduro-clausewitz-aquinas.html
