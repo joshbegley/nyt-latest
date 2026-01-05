@@ -1,3 +1,15 @@
+**Giants will pick No. 5 in the 2026 NFL Draft**\
+`The Giants' win over the Cowboys lost them the No. 2 overall pick in April's 2026 draft.`\
+https://nytimes.com/athletic/6940456/2026/01/04/ny-giants-nfl-draft-pick-spot/
+
+**Maduro’s Capture Shows Trump’s Goal to Dominate the Americas**\
+`Latin America was already struggling to how to handle President Trump’s interventions in the region. Then he attacked Venezuela.`\
+https://nytimes.com/2026/01/04/world/americas/trump-latin-america-venezuela.html
+
+**Seahawks, LT Charles Cross agree to largest deal for non-QB in franchise history: Source**\
+`Cross' reported four-year, $104.4 million deal with Seattle comes with $75 million guaranteed.`\
+https://nytimes.com/athletic/6940469/2026/01/04/seahawks-charles-cross-contract-extension-4-years/
+
 **NFL playoff schedule: Where things stand with Steelers-Ravens set to decide AFC North**\
 `The wild-card round of the NFL playoffs begins with two games Saturday followed by three Sunday and the finale on Monday night.`\
 https://nytimes.com/athletic/6938288/2026/01/04/nfl-playoff-schedule-2026/
