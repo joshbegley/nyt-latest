@@ -1,3 +1,19 @@
+**At the U.N., Even Allies Condemn U.S. Action in Venezuela**\
+`The deputy French U.N. ambassador said it chipped “away at the very foundation of international order.”`\
+https://nytimes.com/2026/01/05/world/americas/un-security-council.html
+
+**Browns chose to fire their head coach but stick with the GM. Was it the right move?**\
+`It feels like Kevin Stefanski took the fall for a struggling offensive unit that was assembled by Andrew Berry, who retained his job as GM. `\
+https://nytimes.com/athletic/6943167/2026/01/05/kevin-stefanski-fired-andrew-berry-browns/
+
+**Sabres notes: Doan wants to be in Buffalo 'a long time,' Zucker returns and more**\
+`Doan, who has 27 points in 40 games, is in the final year of his contract before becoming a restricted free agent.`\
+https://nytimes.com/athletic/6943331/2026/01/05/sabres-josh-doan-contract-jason-zucker-lineup/
+
+**The Robot Cars Have Come for the Kids**\
+`Because families have complicated schedules.`\
+https://nytimes.com/2026/01/05/us/waymo-kids-los-angeles.html
+
 **Global Ripples From Venezuela**\
 `It’s only been days since the U.S. raid, but it already feels like the world is living in a new reality. China and Russia are watching.`\
 https://nytimes.com/2026/01/05/world/venezuela-global-implications-trump-maduro-iran.html
