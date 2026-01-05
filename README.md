@@ -1,3 +1,11 @@
+**This Organizer Reclaims Counter Space**\
+`When you have a small kitchen, finding space for a plethora of tools and equipment can feel like a frustrating game of Tetris.`\
+https://nytimes.com/video/smarter-living/100000010624835/this-organizer-reclaims-counter-space.html
+
+**Eva Schloss, Anne Frank’s Stepsister and Auschwitz Survivor, Dies at 96**\
+`Ms. Schloss, who was sent to Auschwitz as a teenager, spoke in prisons and schools about her experiences and the dangers of prejudice.`\
+https://nytimes.com/2026/01/05/world/europe/eva-schloss-dead.html
+
 **Cardinals fire Jonathan Gannon after 3 seasons, no playoff appearances: Source**\
 `The Cardinals were pegged as a breakout team entering Gannon's third season. They never got close. `\
 https://nytimes.com/athletic/6883060/2026/01/05/jonathan-gannon-fired-cardinals-nfl/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/05/espanol/america-latina/petro-trump-colombia.html
 **Blues sign winger Alexey Toropchenko to 2-year extension**\
 `The 26-year-old mostly occupies a fourth-line role, but coach Jim Montgomery has shown he's comfortable moving him up the lineup in a pinch.`\
 https://nytimes.com/athletic/6942634/2026/01/05/blues-alexey-toropchenko-extension/
-
-**How to watch Knicks vs. Pistons: Time, TV, streaming**\
-`Find out how to watch the New York Knicks play the Detroit Pistons, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6942674/2026/01/05/knicks-vs-pistons-stream-how-to-watch-jan-5/
-
-**How to watch Mammoth vs. Rangers: Time, TV, streaming**\
-`Find out how to watch the Utah Mammoth play the New York Rangers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6942670/2026/01/05/mammoth-vs-rangers-stream-how-to-watch-jan-5/
 
