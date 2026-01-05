@@ -1,3 +1,7 @@
+**Newcastle contact police after Willock threats and abuse**\
+`Newcastle have called on social-media companies, and in particular Meta, to take swift action.`\
+https://nytimes.com/athletic/6942510/2026/01/05/newcastle-joe-willock-online-abuse-threats/
+
 **Charvarius Ward Sr. mulling retirement after suffering 3 concussions in 2025**\
 `The Colts acquired Ward in free agency last offseason. `\
 https://nytimes.com/athletic/6942471/2026/01/05/charvarius-ward-retirement-concussions/
