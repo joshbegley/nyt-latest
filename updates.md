@@ -1,3 +1,15 @@
+**NFL playoff schedule: Where things stand with Steelers-Ravens set to decide AFC North**\
+`The wild-card round of the NFL playoffs begins with two games Saturday followed by three Sunday and the finale on Monday night.`\
+https://nytimes.com/athletic/6938288/2026/01/04/nfl-playoff-schedule-2026/
+
+**Losing record or not, NFC South-champion Panthers has a nice ring to it**\
+`Despite an 8-9 finish, Carolina wins the NFC South for the first time since 2015 and will host a home playoff game vs. the Rams.`\
+https://nytimes.com/athletic/6940476/2026/01/04/carolina-panthers-nfc-south-champions-playoffs/
+
+**After 4 straight Falcons wins, what's next? The answer could be up to Matt Ryan**\
+`The Falcons won their fourth straight game Sunday, but head coach Raheem Morris doesn't know if it's enough to save his job.`\
+https://nytimes.com/athletic/6940377/2026/01/04/matt-ryan-falcons-saints-raheem-morris-terry-fontenot/
+
 **Bengals' Zac Taylor upset about delay after Myles Garrett set NFL sack record**\
 `Taylor said officials never mentioned in their pregame meeting that the game clock would pause if Garrett broke the record.`\
 https://nytimes.com/athletic/6940397/2026/01/04/zac-taylor-myles-garrett-delay-nfl-sack-record/
