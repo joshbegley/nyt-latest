@@ -1,3 +1,11 @@
+**So, Your House Is Stinky. Here’s How to Fix It. **\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/so-your-house-is-stinky-heres-how-to-fix-it-
+
+**After four straight Falcons wins, what's next? The answer could be up to Matt Ryan**\
+`The Falcons won their fourth straight game on Sunday, but head coach Raheem Morris doesn't know if it's enough to save his job.`\
+https://nytimes.com/athletic/6940377/2026/01/04/matt-ryan-falcons-saints-raheem-morris-terry-fontenot/
+
 **Edmundo González, regarded as the winner of the 2024 vote, says he is president of Venezuela.**\
 `The`\
 https://nytimes.com/live/2026/01/04/world/trump-us-venezuela-maduro/edmundo-gonzalez-regarded-as-the-winner-of-the-2024-vote-says-he-is-president-of-venezuela
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/04/crosswords/daily-puzzle-2026-01-05.html
 **Critics Choice Awards 2026: The Complete Winners List**\
 `“Sinners” led the nominations tally with 17 going into the ceremony, followed by “One Battle After Another” with 14.`\
 https://nytimes.com/2026/01/04/movies/critics-choice-awards-winners-complete-list.html
-
-**Mbappe expected to miss Super Cup tie due to injury**\
-`Madrid reported on December 31 that Mbappe had sprained his left knee.`\
-https://nytimes.com/athletic/6940287/2026/01/04/mbappe-injury-news-real-madrid-spanish-super-club/
-
-**Sharks extend Alexander Wennberg: What it means for the surprise contenders**\
-`The Sharks announced Sunday they've re-signed Wennberg to a three-year, $18 million contract.`\
-https://nytimes.com/athletic/6940012/2026/01/04/alexander-wennberg-sharks-contract-playoff-contender/
 
