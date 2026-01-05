@@ -1,3 +1,11 @@
+**Super Bowl odds: Who can knock on Rams, Broncos door?**\
+`Seattle and Denver are the top seeds, but the Rams are still a force in Super Bowl odds. See who else stacks up.`\
+https://nytimes.com/athletic/6942912/2026/01/05/super-bowl-odds-seahawks-rams-broncos/
+
+**Olympic arena situation, Minnesota WJC attendance addressed by IIHF president**\
+`While the Olympics led the IIHF's news conference on Monday, disappointing attendance in Minnesota was key World Juniors topic.`\
+https://nytimes.com/athletic/6942564/2026/01/05/world-juniors-2026-attendance-olympics-arena/
+
 **How to watch Bulls vs. Celtics: Time, TV, streaming**\
 `Find out how to watch the Chicago Bulls play the Boston Celtics, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6943291/2026/01/05/bulls-vs-celtics-stream-how-to-watch-jan-5/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6943269/2026/01/05/hawks-vs-raptors-stream-how-to-w
 **How to watch Suns vs. Rockets: Time, TV, streaming**\
 `Find out how to watch the Phoenix Suns play the Houston Rockets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6943267/2026/01/05/suns-vs-rockets-stream-how-to-watch-jan-5/
-
-**How to watch Red Wings vs. Senators: Time, TV, streaming**\
-`Find out how to watch the Detroit Red Wings play the Ottawa Senators, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6943260/2026/01/05/red-wings-vs-senators-stream-how-to-watch-jan-5/
-
-**How to watch Wild vs. Kings: Time, TV, streaming**\
-`Find out how to watch the Minnesota Wild play the Los Angeles Kings, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6943258/2026/01/05/wild-vs-kings-stream-how-to-watch-jan-5/
 
