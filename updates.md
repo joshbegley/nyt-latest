@@ -1,3 +1,7 @@
+**Chelsea owners know what to expect by hiring from within, but only results will win doubters around**\
+`U21s coach McFarlane stepped in for the draw against City - but fans have been critical of the possible hiring of Strasbourg's Liam Rosenior`\
+https://nytimes.com/athletic/6941397/2026/01/05/chelsea-rosenior-maresca-successor/
+
 **Remembering Latif Ayodele and Sina Ghami – and what they meant to Anthony Joshua**\
 `The former world heavyweight champion did not just lose two trusted colleagues in Nigeria last week – but two dear friends`\
 https://nytimes.com/athletic/6940015/2026/01/05/latif-ayodele-sina-ghami-anthony-joshua/
