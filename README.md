@@ -1,4 +1,12 @@
-**Ravens' star safety Kyle Hamilton ruled out vs. Steelers with concussion**\
+**Brendan Sorsby, top QB in transfer portal, headed to Texas Tech: Sources**\
+`Sorsby, a redshirt junior with one year of eligibility remaining, is expected to arrive with a hefty price tag.`\
+https://nytimes.com/athletic/6933542/2026/01/04/brendan-sorsby-texas-tech-transfer-portal-quarterback/
+
+**DeVonta Smith's legacy did not need another 1,000-yard season. He got it anyway.**\
+`Smith said he wanted to play, even when the risk of injury was there.`\
+https://nytimes.com/athletic/6940034/2026/01/04/devonta-smith-1000-yard-season-legacy/
+
+**Ravens star safety Kyle Hamilton ruled out vs. Steelers with concussion**\
 `Hamilton collided with teammate Alohi Gilman and both were evaluated for a concussion. Gilman returned; Hamilton was ruled out.`\
 https://nytimes.com/athletic/6941094/2026/01/04/kyle-hamilton-injury-safety-ravens-steelers/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6940480/2026/01/04/kevin-stefanski-browns-bengals-s
 **Welcome to the 5-Day Brain Health Challenge**\
 `It’s never too early or too late to start healthy brain habits. Today, test your knowledge with a pop quiz.`\
 https://nytimes.com/interactive/2026/well/brain-health-challenge-quiz.html
-
-**Avalanche captain Gabriel Landeskog to miss 'some time' with injury**\
-`Landeskog has played in each of the Avalanche’s 41 games this season, scoring seven goals and 22 points.`\
-https://nytimes.com/athletic/6940598/2026/01/04/gabriel-landeskog-avalanche-injury/
-
-**How to watch Oregon vs. Indiana: CFP Semifinal Start Time, TV, streaming**\
-`Find out how to watch the Oregon Ducks play the Indiana Hoosiers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6940845/2026/01/04/oregon-vs-indiana-stream-how-to-watch-jan-9/
 

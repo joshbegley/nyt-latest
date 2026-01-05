@@ -1,3 +1,7 @@
+**Ravens' star safety Kyle Hamilton ruled out vs. Steelers with concussion**\
+`Hamilton collided with teammate Alohi Gilman and both were evaluated for a concussion. Gilman returned; Hamilton was ruled out.`\
+https://nytimes.com/athletic/6941094/2026/01/04/kyle-hamilton-injury-safety-ravens-steelers/
+
 **J.J. McCarthy's early exit in Week 18 win underscores Vikings' uncertain future at QB**\
 `The Vikings got a little bit of everything from McCarthy on Sunday — the good and the bad. But it's still not clear what they have.`\
 https://nytimes.com/athletic/6940700/2026/01/04/jj-mccarthy-vikings-packers-qb-future/
