@@ -1,3 +1,7 @@
+**Falcons to hire 'president of football' — perhaps Matt Ryan? — to oversee GM, head coach**\
+`In a letter to his team's fans, Falcons owner Arthur Blank wrote that he will be hiring a president of football. Will it be ex-QB Matt Ryan?`\
+https://nytimes.com/athletic/6942338/2026/01/05/falcons-matt-ryan-arthur-blank-coach-gm-fired/
+
 **JD Vance’s Ohio Home Is Targeted in Vandalism Attack**\
 `U.S. Secret Service agents detained a man early Monday after the vice president’s home in Cincinnati was damaged. No injuries were reported.`\
 https://nytimes.com/2026/01/05/us/jd-vance-home-damage-cincinnati-arrest.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6939473/2026/01/05/nfl-playoff-bracket-the-pulse/
 **How Maduro’s Capture Could Reshape the Global Order**\
 `The U.S. seizure of Venezuela’s president has governments, executives and investors bracing for wide-reaching business and geopolitical fallout.`\
 https://nytimes.com/2026/01/05/business/dealbook/venezuela-trump-oil-global-order.html
-
-**Inside Real Madrid: Gonzalo hat-trick eases pressure on Alonso with all eyes on Supercopa**\
-`Our reporters on the latest at Madrid, including how a spate of recent injuries is seen within the club and proposed ownership model changes`\
-https://nytimes.com/athletic/6942102/2026/01/05/inside-real-madrid-gonzalo-garcia-xabi-alonso/
 

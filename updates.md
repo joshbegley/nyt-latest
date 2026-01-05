@@ -1,3 +1,7 @@
+**Falcons to hire 'president of football' — perhaps Matt Ryan? — to oversee GM, head coach**\
+`In a letter to his team's fans, Falcons owner Arthur Blank wrote that he will be hiring a president of football. Will it be ex-QB Matt Ryan?`\
+https://nytimes.com/athletic/6942338/2026/01/05/falcons-matt-ryan-arthur-blank-coach-gm-fired/
+
 **JD Vance’s Ohio Home Is Targeted in Vandalism Attack**\
 `U.S. Secret Service agents detained a man early Monday after the vice president’s home in Cincinnati was damaged. No injuries were reported.`\
 https://nytimes.com/2026/01/05/us/jd-vance-home-damage-cincinnati-arrest.html
