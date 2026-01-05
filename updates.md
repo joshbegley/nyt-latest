@@ -1,3 +1,7 @@
+**West Ham complete deal for Lazio striker Castellanos**\
+`The 27-year-old has signed a four and a half year contract with the option for an additional year.`\
+https://nytimes.com/athletic/6937289/2026/01/05/west-ham-sign-valentin-castellanos/
+
 **Farewell Ruben Amorim, we’ll miss your bizarre media conferences**\
 `Managers are usually very good at deflecting - but Amorim is among the easiest to get a quote out of that the Premier League has ever seen`\
 https://nytimes.com/athletic/6942033/2026/01/05/ruben-amorim-man-united-press-conference/

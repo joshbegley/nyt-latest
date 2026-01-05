@@ -1,3 +1,7 @@
+**West Ham complete deal for Lazio striker Castellanos**\
+`The 27-year-old has signed a four and a half year contract with the option for an additional year.`\
+https://nytimes.com/athletic/6937289/2026/01/05/west-ham-sign-valentin-castellanos/
+
 **Farewell Ruben Amorim, we’ll miss your bizarre media conferences**\
 `Managers are usually very good at deflecting - but Amorim is among the easiest to get a quote out of that the Premier League has ever seen`\
 https://nytimes.com/athletic/6942033/2026/01/05/ruben-amorim-man-united-press-conference/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6941387/2026/01/05/smith-weatherald-england-austral
 **Wild insider: Lots of faith in Jiricek, Kaprizov handicaps the Olympics and more**\
 `Plus: fourth-round pick Aron Kiviharju's exploits at the World Juniors with Finland and how playing pro is helping his development.`\
 https://nytimes.com/athletic/6939597/2026/01/05/wild-jiricek-world-juniors-kiviharju-olympics/
-
-**Manchester City’s late stumble came as no surprise. Their regulars are running on reserve**\
-`After 20 Premier League games, are we seeing the cost of Guardiola asking the same City players to make such frequent visits to the well?`\
-https://nytimes.com/athletic/6941753/2026/01/05/manchester-city-chelsea-premier-league-analysis/
 
