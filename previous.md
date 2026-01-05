@@ -1,3 +1,11 @@
+**‘The Pitt,’ Plus 10 Things to Watch on TV This Week**\
+`The series, set in a Pittsburgh emergency room and starring Noah Wyle, returns. And a new group of players enter a castle in Scotland for “The Traitors.”`\
+https://nytimes.com/2026/01/05/arts/television/pitt-traitors-antiques-roadshow.html
+
+**The New York Times in Print for Monday, Jan. 5, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/01/05/todays-new-york-times
+
 **A preview of The Athletic’s live coverage this week**\
 `The Athletic's live coverage this week includes the start of the NFL playoffs and the semifinals of the College Football Playoff.`\
 https://nytimes.com/athletic/6939906/2026/01/05/nfl-playoffs-cfp-afcon/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6938826/2026/01/05/the-incredible-lewis-miley-deser
 **Everton need recruits if their stop-start season is to take off. But will they get them?**\
 `David Moyes' side have been very inconsistent and perhaps only a foray in the January transfer window will see their fortunes improve`\
 https://nytimes.com/athletic/6939734/2026/01/05/everton-premier-league-january-transfer-window/
-
-**Sam Smith has filled Wrexham's Kieffer Moore-shaped hole with two superb all-round displays**\
-`Fears that the injury to the Welsh club's talisman could derail their play-off bid have been eased by his impressive replacement`\
-https://nytimes.com/athletic/6935623/2026/01/05/sam-smith-kieffer-moore-wrexham-championship/
-
-**The Briefing: Is Amorim to blame for Man Utd's dysfunction? Could Nuno make unwanted history?**\
-`Oliver Kay analyses the main talking points from the weekend, including managerial turbulence at more than one Premier League club`\
-https://nytimes.com/athletic/6938896/2026/01/05/the-briefing-amorim-nuno-manchester-city/
 

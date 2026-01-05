@@ -1,3 +1,11 @@
+**‘The Pitt,’ Plus 10 Things to Watch on TV This Week**\
+`The series, set in a Pittsburgh emergency room and starring Noah Wyle, returns. And a new group of players enter a castle in Scotland for “The Traitors.”`\
+https://nytimes.com/2026/01/05/arts/television/pitt-traitors-antiques-roadshow.html
+
+**The New York Times in Print for Monday, Jan. 5, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/01/05/todays-new-york-times
+
 **A preview of The Athletic’s live coverage this week**\
 `The Athletic's live coverage this week includes the start of the NFL playoffs and the semifinals of the College Football Playoff.`\
 https://nytimes.com/athletic/6939906/2026/01/05/nfl-playoffs-cfp-afcon/
