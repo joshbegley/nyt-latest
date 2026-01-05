@@ -1,3 +1,23 @@
+**Blackhawks continue to defy expectations with another improbable but deserved win**\
+`Tyler Bertuzzi's hat trick goal in overtime sent the suddenly surging Blackhawks past the Golden Knights for seven points in four games.`\
+https://nytimes.com/athletic/6941122/2026/01/04/blackhawks-defy-expectations-bertuzzi-hat-trick/
+
+**Giannis Antetokounmpo, Bucks beating bad opponents, but still stacking wins**\
+`Antetokounmpo led the Bucks with 37 points and 11 rebounds in 31 minutes, the most minutes he has played since getting back on the floor.`\
+https://nytimes.com/athletic/6941206/2026/01/04/bucks-giannis-winning-streak-targets-kings/
+
+**Steelers win AFC North, eliminate Ravens with Aaron Rodgers-led rally**\
+`The Steelers will host the Texans in a wild-card game next week on "Monday Night Football." `\
+https://nytimes.com/athletic/6941023/2026/01/04/ravens-steelers-score-result-takeaways-afc-north-title/
+
+**Updated 2026 NFL Draft order: Raiders at No. 1; Jets, Giants both finish in top 5**\
+`The Raiders have clinched the No. 1 pick in April's draft, and they'll be followed by the Jets, Cardinals, Titans and Giants in the order`\
+https://nytimes.com/athletic/6938320/2026/01/04/nfl-draft-order-2026-round-1-raiders-jets-giants/
+
+**Trump Suggests U.S. Could Take Action Against More Countries**\
+`On Air Force One, President Trump threatened Colombia and its president, described Cuba as “ready to fall” and reasserted his desire to acquire Greenland.`\
+https://nytimes.com/2026/01/04/us/politics/trump-cuba-greenland-colombia.html
+
 **Cuba Says 32 of Its Citizens Died in Venezuela, Including Military Personnel**\
 `President Miguel Díaz-Canel said the casualties were from Cuba’s armed forces or interior ministry. The country is a longstanding ally of Venezuela.`\
 https://nytimes.com/2026/01/04/world/americas/cubans-killed-venezuela.html
