@@ -1,3 +1,11 @@
+**Super Bowl odds: Who can knock on Rams, Broncos door?**\
+`Seattle and Denver are the top seeds, but the Rams are still a force in Super Bowl odds. See who else stacks up.`\
+https://nytimes.com/athletic/6942912/2026/01/05/super-bowl-odds-seahawks-rams-broncos/
+
+**Olympic arena situation, Minnesota WJC attendance addressed by IIHF president**\
+`While the Olympics led the IIHF's news conference on Monday, disappointing attendance in Minnesota was key World Juniors topic.`\
+https://nytimes.com/athletic/6942564/2026/01/05/world-juniors-2026-attendance-olympics-arena/
+
 **How to watch Bulls vs. Celtics: Time, TV, streaming**\
 `Find out how to watch the Chicago Bulls play the Boston Celtics, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6943291/2026/01/05/bulls-vs-celtics-stream-how-to-watch-jan-5/
