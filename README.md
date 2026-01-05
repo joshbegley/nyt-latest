@@ -1,3 +1,7 @@
+**How to watch Knicks vs. Pistons: Time, TV, streaming**\
+`Find out how to watch the New York Knicks play the Detroit Pistons, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6942674/2026/01/05/knicks-vs-pistons-stream-how-to-watch-jan-5/
+
 **How to watch Mammoth vs. Rangers: Time, TV, streaming**\
 `Find out how to watch the Utah Mammoth play the New York Rangers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6942670/2026/01/05/mammoth-vs-rangers-stream-how-to-watch-jan-5/
@@ -6,8 +10,8 @@ https://nytimes.com/athletic/6942670/2026/01/05/mammoth-vs-rangers-stream-how-to
 `Find out how to watch the Anaheim Ducks play the Washington Capitals, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6942668/2026/01/05/ducks-vs-capitals-stream-how-to-watch-jan-5/
 
-**Raiders fire Pete Carroll after miserable first season in Las Vegas: Source**\
-`The Raiders' next hire will be their fifth full-time coach since 2021.`\
+**Raiders fire Pete Carroll after miserable first season in Las Vegas**\
+`GM John Spytek and minority owner Tom Brady will lead all football operations, including the search for a new head coach.`\
 https://nytimes.com/athletic/6871066/2026/01/05/pete-carroll-fired-raiders-coach-nfl/
 
 **After Venezuela, Trump Says U.S. Needs Control of Greenland**\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/05/us/politics/hegseth-mark-kelly.html
 **NFL wild-card odds: 4 games with close spreads including 2 toss-ups**\
 `The first round of the NFL playoffs features several tight matchups in the odds, and one major favorite.`\
 https://nytimes.com/athletic/6942325/2026/01/05/nfl-wild-card-week-odds-rams-packers-bears/
-
-**Should You Buy a Vintage Bread Maker?**\
-`Bread machines are easy to come by at the thrift store or on eBay, but is it actually smart to buy one secondhand? We ordered a Welbilt ABM 100-3 — a model popular in the ’80s — to see how it stood up to more modern machines (spoiler alert: not too well).`\
-https://nytimes.com/video/smarter-living/100000010624666/should-you-buy-a-vintage-bread-maker.html
 
