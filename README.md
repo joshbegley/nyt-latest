@@ -1,3 +1,7 @@
+**Philip Rivers says NFL coaching jobs not on his radar, but he's open to the possibility**\
+`“There’s nothing concrete with that,” Rivers told reporters. “This past month has taught me, you’re open to obviously anything.”`\
+https://nytimes.com/athletic/6942995/2026/01/05/philip-rivers-nfl-coaching-opportunities/
+
 **Thousands in Berlin Go Days Without Power and Cell Service After Cables Are Set on Fire**\
 `A far-left group took responsibility, saying it was targeting the energy industry. Officials predicted it would take until Thursday to re-establish power in all areas.`\
 https://nytimes.com/2026/01/05/world/europe/berlin-power-failure-fire.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6943054/2026/01/05/penguins-egor-zamula-contract-te
 **Maduro, Yanked Into the U.S. Justice System, Says He Was Kidnapped**\
 `“I’m innocent. I’m not guilty. I am a decent man,” the captured Venezuelan president told a judge in Manhattan federal court. “I am still president of my country.”`\
 https://nytimes.com/2026/01/05/world/americas/maduro-us-court-arraignment-kidnapped.html
-
-**'He cares about the club': What Fletcher will offer Man Utd as interim manager**\
-`The Scot served Old Trafford superbly as a player and feels the natural fit to steady the club in a turbulent week`\
-https://nytimes.com/athletic/6942814/2026/01/05/darren-fletcher-manchester-united-interim-manager/
 

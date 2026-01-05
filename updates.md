@@ -1,3 +1,7 @@
+**Thousands in Berlin Go Days Without Power and Cell Service After Cables Are Set on Fire**\
+`A far-left group took responsibility, saying it was targeting the energy industry. Officials predicted it would take until Thursday to re-establish power in all areas.`\
+https://nytimes.com/2026/01/05/world/europe/berlin-power-failure-fire.html
+
 **This Isn’t Regime Change. It’s Extortion.**\
 `To understand what’s unfolding in Venezuela, you have to look to the mob, not traditional foreign policy doctrines.`\
 https://nytimes.com/2026/01/05/opinion/trump-venezuela-regime-change.html
