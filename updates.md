@@ -1,5 +1,13 @@
 **Checo Pérez says being Max Verstappen’s teammate at Red Bull was F1’s 'worst job'**\
 `Sergio Pérez calls being Max Verstappen’s teammate at Red Bull the worst job in F1, reflecting on the intense pressure he faced.`\
+https://nytimes.com/athletic/6943415/2026/01/05/checo-perez-max-verstappen-red-bull-f1-worst-job/
+
+**For Many Jan. 6 Rioters, a Pardon From Trump Wasn’t Enough**\
+`Some pardoned rioters have been rearrested. Others returned to poverty and mental health challenges. And many became consumed by resentment and demands for payback.`\
+https://nytimes.com/2026/01/05/us/politics/trump-jan-6-pardons-rioters.html
+
+**Checo Pérez says being Max Verstappen’s teammate at Red Bull was F1’s 'worst job'**\
+`Sergio Pérez calls being Max Verstappen’s teammate at Red Bull the worst job in F1, reflecting on the intense pressure he faced.`\
 https://nytimes.com/athletic/6943415/2026/01/05/checo-perez-says-being-max-verstappens-teammate-at-red-bull-was-f1s-worst-job/
 
 **Broncos playoff mailbag: Submit questions for beat writer Nick Kosmider**\
