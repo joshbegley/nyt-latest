@@ -1,3 +1,11 @@
+**Scoop City: Final playoff picture and draft order takeaways**\
+`A first-look at the 2026 playoff picture, plus NFL Draft order, team needs and coaches to watch on Black Monday`\
+https://nytimes.com/athletic/6942808/2026/01/05/nfl-playoff-bracket-draft-order-2026-seahawks-raiders/
+
+**Novak Djokovic withdraws from Adelaide International, will not play Australian Open warmup**\
+`The 24-time Grand Slam champion said he is “not quite physically ready to compete” at the event.`\
+https://nytimes.com/athletic/6942793/2026/01/05/tennis-novak-djokovic-australian-open-warmup-out/
+
 **The Aftermath of Trump’s Raid on Venezuela**\
 `Readers worry about the repercussions and a resurfacing of “America’s imperialist past.”`\
 https://nytimes.com/2026/01/05/opinion/letters/venezuela-trump-maduro.html
@@ -11,7 +19,7 @@ https://nytimes.com/video/smarter-living/100000010624835/this-organizer-reclaims
 https://nytimes.com/2026/01/05/world/europe/eva-schloss-dead.html
 
 **Cardinals fire Jonathan Gannon after 3 seasons, no playoff appearances: Source**\
-`The Cardinals were pegged as a likely breakout team entering Gannon's third season. They never got close. `\
+`General manager Monti Ossenfort will remain in place and conduct the search for a new head coach.`\
 https://nytimes.com/athletic/6883060/2026/01/05/jonathan-gannon-fired-cardinals-nfl/
 
 **Why Ruben Amorim's devotion to 3-4-3 made his Man United spell feel doomed from the start**\
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/05/world/middleeast/israel-mamdani-antisemitism.html
 **New Car Sales Are Rising Thanks to Purchases by the Well-Off**\
 `A larger proportion of new cars are being bought by affluent Americans as prices and interest rates for auto loans climb, analysts said.`\
 https://nytimes.com/2026/01/05/business/new-car-sales.html
-
-**Who Is Delcy Rodríguez?**\
-`Ms. Rodríguez, who is leading Venezuela after the U.S. captured Nicolás Maduro, established a reputation as a shrewd operator guiding the country’s economy.`\
-https://nytimes.com/2026/01/05/world/americas/venezuela-president-delcy-rodriguez.html
-
-**Gustavo Petro reprueba las amenazas de Trump contra Colombia**\
-`El presidente colombiano pidió a su pueblo que lo defienda “de cualquier acto violento ilegítimo”. Su ministro de Defensa subrayó que continuaba la cooperación en seguridad con Washington.`\
-https://nytimes.com/2026/01/05/espanol/america-latina/petro-trump-colombia.html
 
