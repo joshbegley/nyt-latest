@@ -1,3 +1,7 @@
+**Hegseth Starts Proceedings Against Sen. Mark Kelly Over His Remarks**\
+`Defense Secretary Pete Hegseth blasted the senator for his “seditious” remarks. Mr. Kelly said he had done nothing wrong and cited similar comments by Mr. Hegseth.`\
+https://nytimes.com/2026/01/05/us/politics/hegseth-mark-kelly.html
+
 **NFL wild-card odds: 4 games with close spreads including 2 toss-ups**\
 `The first round of the NFL playoffs features several tight matchups in the odds, and one major favorite.`\
 https://nytimes.com/athletic/6942325/2026/01/05/nfl-wild-card-week-odds-rams-packers-bears/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6942150/2026/01/05/nba-power-rankings-celtics-rocke
 **Tottenham's Kudus likely to miss Bournemouth game with leg injury**\
 `The Ghana international was substituted in the 19th minute of Tottenham’s 1-1 draw against Sunderland on Sunday after going down injured.`\
 https://nytimes.com/athletic/6942528/2026/01/05/tottenham-mohammed-kudus-injury-update/
-
-**The Bounce: Is Jaylen Brown officially a superstar? Plus, an epic John Calipari rant**\
-`Zach Harper catches you up on the latest NBA news in our newsletter.`\
-https://nytimes.com/athletic/6942447/2026/01/05/jaylen-brown-celtics-john-calipari-nba-the-bounce/
 
