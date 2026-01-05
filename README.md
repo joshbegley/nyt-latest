@@ -1,3 +1,7 @@
+**Trump’s Harshest Republican Critics? Members Headed for the Exits.**\
+`It turns out that few things liberate Republicans to speak their minds about President Trump like the fact that they are departing Congress.`\
+https://nytimes.com/article/trump-republican-critics-lawmakers-exit.html
+
 **NBA Power Rankings: Celtics, Rockets are contenders; New Year's resolutions for all**\
 `Better health? All-Star recognition? Roster revamp? Here's what all 30 teams should aim for in 2026.`\
 https://nytimes.com/athletic/6942150/2026/01/05/nba-power-rankings-celtics-rockets-lakers-knicks/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2026/01/05/books/review/literary-buildings-quiz.
 **Giants to retain Joe Schoen as general manager**\
 `Schoen will lead the team's search for their next head coach. `\
 https://nytimes.com/athletic/6940251/2026/01/05/ny-giants-joe-schoen-retianed-general-manager/
-
-**Esto es lo más reciente**\
-`By Benjamin Weiser, William K. Rashbaum, Annie Karni and Hurubie Meko`\
-https://nytimes.com/live/2026/01/05/espanol/venezuela-nicolas-maduro-juicio-trump/venezuela-nicolas-maduro-que-pasa
 
