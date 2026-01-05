@@ -1,3 +1,11 @@
+**Projecting each NFL playoff team’s odds to win Super Bowl, with wild-card matchup analysis**\
+`The Broncos and Seahawks have next week off, but 12 NFL wild-card teams will be fighting to keep their Super Bowl dreams alive.`\
+https://nytimes.com/athletic/6931898/2026/01/05/nfl-playoff-chances-matchups-super-bowl-odds/
+
+**UW-River Falls upsets North Central for DIII title as Kaleb Blaha breaks Joe Burrow's record**\
+`The Falcons quarterback broke the former LSU star's record for total yards in a season to lead the upset victory.`\
+https://nytimes.com/athletic/6941257/2026/01/05/kaleb-blaha-joe-burrows-ncaa-stagg-bowl/
+
 **UW-River Falls upsets North Central for DIII title as Kaleb Blaha breaks Joe Burrow's record**\
 `The quarterback led the Falcons to a shocking championship victory in the school's first playoffs in nearly 30 years.`\
 https://nytimes.com/athletic/6941257/2026/01/05/kaleb-blaha-joe-burrows-ncaa-stagg-bowl/
