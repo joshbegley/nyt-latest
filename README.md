@@ -1,3 +1,7 @@
+**Ruben Amorim sacked by Manchester United**\
+`Former midfielder and current Under-18s coach Darren Fletcher is set to take charge on an interim basis.`\
+https://nytimes.com/athletic/6594285/2026/01/05/ruben-amorim-sacked-manchester-united/
+
 **Steelers Clinch N.F.L. Playoffs Behind Aaron Rodgers’s Late Rally**\
 `The Pittsburgh Steelers won a division title for the first time since 2020 and kept the Baltimore Ravens from making the playoffs for the first time since 2021.`\
 https://nytimes.com/video/sports/football/100000010624217/steelers-clinch-nfl-playoffs-behind-aaron-rodgerss-late-rally.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6940230/2026/01/05/root-head-australia-england-smit
 **Remembering Latif Ayodele and Sina Ghami – and what they meant to Anthony Joshua**\
 `The former world heavyweight champion did not just lose two trusted colleagues in Nigeria last week – but two dear friends`\
 https://nytimes.com/athletic/6940015/2026/01/05/latif-ayodele-sina-ghami-anthony-joshua/
-
-**Word of the Day: didactic**\
-`This word has appeared in 58 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2026/01/05/learning/word-of-the-day-didactic.html
 
