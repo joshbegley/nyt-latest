@@ -1,3 +1,7 @@
+**Global Ripples From Venezuela**\
+`It’s only been days since the U.S. raid, but it already feels like the world is living in a new reality. China and Russia are watching.`\
+https://nytimes.com/2026/01/05/world/venezuela-global-implications-trump-maduro-iran.html
+
 **Is This MAGA Foreign Policy or Something Else Entirely?**\
 `M. Gessen and David French on why the ends do not justify the means in Venezuela.`\
 https://nytimes.com/2026/01/05/opinion/trump-maduro-capture-venezuela.html

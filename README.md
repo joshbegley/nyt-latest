@@ -1,3 +1,11 @@
+**Sabres notes: Doan wants to be in Buffalo 'a long time,' Zucker returns and more**\
+`Doan, who has 27 points in 40 games, is in the final year of his contract before becoming a restricted free agent.`\
+https://nytimes.com/athletic/6943331/2026/01/05/sabres-josh-doan-contract-jason-zucker-lineup/
+
+**The Robot Cars Have Come for the Kids**\
+`Because families have complicated schedules.`\
+https://nytimes.com/2026/01/05/us/waymo-kids-los-angeles.html
+
 **Global Ripples From Venezuela**\
 `It’s only been days since the U.S. raid, but it already feels like the world is living in a new reality. China and Russia are watching.`\
 https://nytimes.com/2026/01/05/world/venezuela-global-implications-trump-maduro-iran.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6943183/2026/01/05/dolphins-tua-tagovailoa-fresh-st
 **Rob Hunt has been out since Week 2, but Panthers could get him back for matchup vs. Rams**\
 `The Panthers opened Hunt's practice window Dec. 24 and he's been working toward a potential return since his Week 2 injury. `\
 https://nytimes.com/athletic/6942905/2026/01/05/panthers-playoffs-rams-injury-update-rob-hunt/
-
-**Corporation for Public Broadcasting Votes to Shut Down**\
-`Executives debated whether to allow the corporation to lie dormant after federal funding ended last year, but decided against it.`\
-https://nytimes.com/2026/01/05/business/media/corporation-for-public-broadcasting.html
-
-**Venezuela’s ‘Dirtiest’ Oil and the Environment: Three Things to Know**\
-`Most of the reserves in the country are extra-heavy oil that’s tough to extract and generates more greenhouse gases.`\
-https://nytimes.com/2026/01/05/climate/venezuela-dirty-oil.html
 
