@@ -1,3 +1,11 @@
+**Bears back their way into No. 2 seed, but are playing like a playoff 1-and-done**\
+`Chicago will host Green Bay in the first round on Saturday night, but two losses and two bad defensive performances in a row are concerning.`\
+https://nytimes.com/athletic/6940977/2026/01/04/bears-lions-nfl-playoffs-no-2-seed/
+
+**Broncos aren't a perfect No. 1 seed, but can reach Super Bowl in wide-open field**\
+`The Broncos have their flaws, but they have also shown an ability to overcome them time and again. It earned them the No. 1 seed Sunday.`\
+https://nytimes.com/athletic/6941079/2026/01/04/broncos-chargers-afc-playoffs-no-1-seed/
+
 **Cuba says 32 of its citizens were killed in Venezuela, including military personnel.**\
 `By Jack Nicas`\
 https://nytimes.com/live/2026/01/04/world/trump-us-venezuela-maduro/cuba-says-32-of-its-citizens-were-killed-in-venezuela-including-military-personnel
