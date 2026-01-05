@@ -1,3 +1,11 @@
+**13 Unforgettable Looks at the Critics Choice Awards**\
+`Saturated colors, sculptural silhouettes, doses of whiplash and more.`\
+https://nytimes.com/2026/01/05/style/critics-choice-awards-looks-fashion.html
+
+**Nuno Espirito Santo says West Ham's poor form keeps him up at night**\
+`The relegation-threatened side are on a nine-game winless run and could be seven points from safety if they lose on Tuesday.`\
+https://nytimes.com/athletic/6943192/2026/01/05/nuno-espirito-santo-west-ham-poor-form/
+
 **Maduro Says He Is a Prisoner of War, Not a Defendant. The Words Matter.**\
 `His simple statement in federal court was aimed directly at contradictions in the Trump administration’s actions in the Caribbean.`\
 https://nytimes.com/2026/01/05/world/americas/maduro-court-appearance-pow.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/01/05/us/politics/trump-jan-6-pardons-rioters.html
 **At the U.N., Even Allies Condemn U.S. Action in Venezuela**\
 `The deputy French U.N. ambassador said it chipped “away at the very foundation of international order.”`\
 https://nytimes.com/2026/01/05/world/americas/un-security-council.html
-
-**Browns chose to fire their head coach but stick with the GM. Was it the right move?**\
-`It feels like Kevin Stefanski took the fall for a struggling offensive unit that was assembled by Andrew Berry, who retained his job as GM. `\
-https://nytimes.com/athletic/6943167/2026/01/05/kevin-stefanski-fired-andrew-berry-browns/
-
-**Sabres notes: Doan wants to be in Buffalo 'a long time,' Zucker returns and more**\
-`Doan, who has 27 points in 40 games, is in the final year of his contract before becoming a restricted free agent.`\
-https://nytimes.com/athletic/6943331/2026/01/05/sabres-josh-doan-contract-jason-zucker-lineup/
 
