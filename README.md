@@ -1,3 +1,7 @@
+**True to form, Blue Jackets choke away late lead in frustrating OT loss to Penguins**\
+`For the third straight game against the Penguins this season, the Blue Jackets blew a late lead to fall in extra time.`\
+https://nytimes.com/athletic/6940370/2026/01/04/blue-jackets-late-lead-loss-penguins/
+
 **Broncos-Chargers takeaways: Denver earns top seed, Chargers fall to No. 7 seed**\
 `Denver earned a first-round bye, while the Chargers will play the Patriots in the first round`\
 https://nytimes.com/athletic/6940308/2026/01/04/chargers-broncos-score-result-takeaways-nfl-week-18/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2026/01/04/upshot/ten-minute-challenge-greenland
 **Trump’s Move for Regime Change in Venezuela Threatens a New MAGA Rift**\
 `Some Republicans are asking how Mr. Trump’s military intervention in Venezuela squares with his past pledges to avoid foreign entanglements and nation building.`\
 https://nytimes.com/2026/01/04/us/politics/trump-republicans-venezuela.html
-
-**Patriots-Dolphins takeaways: New England nabs No. 2 seed, will host Chargers**\
-`Patriots end season with run-heavy attack in rout of Dolphins.`\
-https://nytimes.com/athletic/6940446/2026/01/04/dolphins-patriots-score-result-takeaways-nfl-week-18/
 
