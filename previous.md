@@ -1,3 +1,31 @@
+**How to watch Bulls vs. Celtics: Time, TV, streaming**\
+`Find out how to watch the Chicago Bulls play the Boston Celtics, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6943291/2026/01/05/bulls-vs-celtics-stream-how-to-watch-jan-5/
+
+**How to watch Nuggets vs. 76ers: Time, TV, streaming**\
+`Find out how to watch the Denver Nuggets play the Philadelphia 76ers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6943289/2026/01/05/nuggets-vs-76ers-stream-how-to-watch-jan-5/
+
+**How to watch Jazz vs. Trail Blazers: Time, TV, streaming**\
+`Find out how to watch the Utah Jazz play the Portland Trail Blazers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6943285/2026/01/05/jazz-vs-trail-blazers-stream-how-to-watch-jan-5/
+
+**How to watch Kraken vs. Flames: Time, TV, streaming**\
+`Find out how to watch the Seattle Kraken play the Calgary Flames, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6943282/2026/01/05/kraken-vs-flames-stream-how-to-watch-jan-5/
+
+**How to watch Warriors vs. Clippers: Time, TV, streaming**\
+`Find out how to watch the Golden State Warriors play the Los Angeles Clippers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6943280/2026/01/05/warriors-vs-clippers-stream-how-to-watch-jan-5/
+
+**How to watch Hornets vs. Thunder: Time, TV, streaming**\
+`Find out how to watch the Charlotte Hornets play the Oklahoma City Thunder, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6943273/2026/01/05/hornets-vs-thunder-stream-how-to-watch-jan-5/
+
+**How to watch Hawks vs. Raptors: Time, TV, streaming**\
+`Find out how to watch the Atlanta Hawks play the Toronto Raptors, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6943269/2026/01/05/hawks-vs-raptors-stream-how-to-watch-jan-5/
+
 **How to watch Suns vs. Rockets: Time, TV, streaming**\
 `Find out how to watch the Phoenix Suns play the Houston Rockets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6943267/2026/01/05/suns-vs-rockets-stream-how-to-watch-jan-5/
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/6943260/2026/01/05/red-wings-vs-senators-stream-how
 **How to watch Wild vs. Kings: Time, TV, streaming**\
 `Find out how to watch the Minnesota Wild play the Los Angeles Kings, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6943258/2026/01/05/wild-vs-kings-stream-how-to-watch-jan-5/
-
-**Zelensky Taps High-Profile Canadian Politician as Economic Adviser**\
-`Ukraine’s president appointed Chrystia Freeland, a former deputy prime minister of Canada, to a role in which she would advise on postwar reconstruction, if peace talks are successful.`\
-https://nytimes.com/2026/01/05/world/europe/chrystia-freeland-ukraine-economic-adviser.html
-
-**White House to Present Updated Plans for Trump’s Ballroom**\
-`After pressure from preservationists, the administration is expected to present the plans to a planning commission and make them public for the first time.`\
-https://nytimes.com/2026/01/05/us/politics/white-house-updated-plans-ballroom.html
-
-**How to watch Iowa vs. Northwestern women's basketball: Time, TV, streaming**\
-`Find out how to watch the Iowa Hawkeyes play the Northwestern Wildcats, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6943225/2026/01/05/iowa-vs-northwestern-stream-how-to-watch-jan-5/
-
-**How to watch USC vs. Michigan State men's basketball: Time, TV, streaming**\
-`Find out how to watch the USC Trojans play the Michigan State Spartans, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6943222/2026/01/05/usc-vs-michigan-state-stream-how-to-watch-jan-5/
-
-**Philip Rivers says NFL coaching jobs not on his radar, but he's open to the possibility**\
-`“There’s nothing concrete with that,” Rivers told reporters. “This past month has taught me, you’re open to obviously anything.”`\
-https://nytimes.com/athletic/6942995/2026/01/05/philip-rivers-nfl-coaching-opportunities/
-
-**Thousands in Berlin Go Days Without Power and Cell Service After Cables Are Set on Fire**\
-`A far-left group took responsibility, saying it was targeting the energy industry. Officials predicted it would take until Thursday to re-establish power in all areas.`\
-https://nytimes.com/2026/01/05/world/europe/berlin-power-failure-fire.html
-
-**This Isn’t Regime Change. It’s Extortion.**\
-`To understand what’s unfolding in Venezuela, you have to look to the mob, not traditional foreign policy doctrines.`\
-https://nytimes.com/2026/01/05/opinion/trump-venezuela-regime-change.html
 
