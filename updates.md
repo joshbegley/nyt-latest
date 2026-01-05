@@ -1,3 +1,5 @@
+
+
 **West Ham complete deal for Lazio striker Castellanos**\
 `The 27-year-old has signed a four-and-a-half-year contract with the option for an additional year.`\
 https://nytimes.com/athletic/6937289/2026/01/05/west-ham-sign-valentin-castellanos/
