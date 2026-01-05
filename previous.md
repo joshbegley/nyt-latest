@@ -1,3 +1,27 @@
+**Why I ‘Bricked’ My Phone**\
+`When writer Elissa Sanci set out to try the Brick for an article (boss’s orders), it wasn’t her first time trying to wean herself off her phone. But this device was different, and surprisingly effective.`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010624596/why-i-bricked-my-phone.html
+
+**Después de Venezuela, ¿Trump podría ir contra Cuba?**\
+`El gobierno cubano se encuentra en una situación precaria tras la captura de Maduro, un socio político y económico crucial, ya que enfrenta una crisis económica y un creciente descontento político.`\
+https://nytimes.com/2026/01/05/espanol/america-latina/venezuela-cuba-trump-rubio.html
+
+**Do You Know Where in the World These Books Are Set?**\
+`Try this short quiz to see how many locations you remember from your reading.`\
+https://nytimes.com/interactive/2026/01/05/books/review/literary-buildings-quiz.html
+
+**Giants to retain Joe Schoen as general manager**\
+`Schoen will lead the team's search for their next head coach. `\
+https://nytimes.com/athletic/6940251/2026/01/05/ny-giants-joe-schoen-retianed-general-manager/
+
+**Esto es lo más reciente**\
+`By Benjamin Weiser, William K. Rashbaum, Annie Karni and Hurubie Meko`\
+https://nytimes.com/live/2026/01/05/espanol/venezuela-nicolas-maduro-juicio-trump/venezuela-nicolas-maduro-que-pasa
+
+**En vivo: Maduro llega al tribunal en Nueva York y Trump intensifica amenazas a la región**\
+`Nicolás Maduro, el líder venezolano derrocado, y su esposa serán procesados por tráfico de drogas y otros cargos. El presidente Trump sugirió que podría tomar medidas contra otros países, incluidos Colombia y México.`\
+https://nytimes.com/live/2026/01/05/espanol/venezuela-nicolas-maduro-juicio-trump
+
 **Newcastle contact police after Willock threats and abuse**\
 `Newcastle have called on social-media companies, and in particular Meta, to take swift action.`\
 https://nytimes.com/athletic/6942510/2026/01/05/newcastle-joe-willock-online-abuse-threats/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6899248/2026/01/05/celtic-manager-nancy-sacked/
 **Bengals keeping coach Zac Taylor, de facto GM Duke Tobin**\
 `The Bengals were 6-11 this season and missed the playoffs for the third straight year.`\
 https://nytimes.com/athletic/6942444/2026/01/05/bengals-keeping-zac-taylor-duke-tobin/
-
-**Just Before Publishing, a Reporter Receives a Crucial Tip**\
-`We were nearly finished with our narrative on a Cold War mystery. Then juicy new info suddenly emerged. Now what?`\
-https://nytimes.com/2026/01/05/insider/cold-war-spy-mission-tip.html
-
-**Trump’s Threat of Force Against Colombia Draws Rebuke From Its Leader**\
-`President Gustavo Petro said that he had asked the Colombian people to defend him “against any illegitimate violent act.” His defense minister emphasized that security cooperation with Washington continued.`\
-https://nytimes.com/2026/01/05/world/americas/trump-petro-colombia-venezuela.html
-
-**Trinidad Chambliss to return to Ole Miss in 2026, pending eligibility waiver: Source**\
-`Chambliss enrolled at Ferris State in 2021 but did not play in either of his first two seasons with the Division II powerhouse.`\
-https://nytimes.com/athletic/6942392/2026/01/05/trinidad-chambliss-ole-miss-ncaa-eligibility-waiver/
-
-**Broncos' 4 potential playoff opponents: Ranking who Denver should, shouldn't want first**\
-`The Bills, Texans, Chargers and Steelers would all present unique challenges the Broncos would have to overcome to reach the AFC title game.`\
-https://nytimes.com/athletic/6941584/2026/01/05/broncos-afc-playoffs-bills-texans-steelers-chargers/
-
-**Don Mattingly joins Phillies' staff as bench coach, reuniting with son Preston**\
-`Mattingly now works in the same organization for which one of his sons, Preston, serves as vice president and general manager.`\
-https://nytimes.com/athletic/6942357/2026/01/05/don-mattingly-hired-bench-coach-phillies/
-
-**When Fashion Designers and Financiers Need a Suit, They Go to Him**\
-`At just 32, Ralph Fitzgerald, a raffish Brit with the look of a Guy Ritchie character, has become the tailor to movie stars, financial executives and Marc Jacobs.`\
-https://nytimes.com/2026/01/05/style/ralph-fitzgerald-bespoke-suits-manhattan.html
 
