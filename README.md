@@ -1,3 +1,7 @@
+**Maduro and His Wife to Appear in Court on Monday**\
+`Nicolás Maduro, the Venezuelan president who was captured by U.S. forces, is scheduled to appear in federal court in Manhattan on Monday with his wife, Cilia Flores. Both are accused of conspiring to import cocaine.`\
+https://nytimes.com/video/world/americas/100000010623934/maduro-trial-nyc-sdny.html
+
 **Hochul to Press for New Safeguards to Protect Children Online**\
 `In her upcoming State of the State address, Gov. Kathy Hochul will propose that the default setting for online platforms should ban viewing or messaging minors.`\
 https://nytimes.com/2026/01/05/nyregion/hocul-social-media-children-protections.html
@@ -6,7 +10,7 @@ https://nytimes.com/2026/01/05/nyregion/hocul-social-media-children-protections.
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2026/01/05/crosswords/spelling-bee-forum.html
 
-**Chelsea owners know what to expect by hiring from within, but only results will win doubters around**\
+**Chelsea owners know what to expect by hiring from within, but only results will win doubters over**\
 `Calum McFarlane stepped in for the draw against City - but fans have been critical of the possible hiring of Strasbourg's Liam Rosenior`\
 https://nytimes.com/athletic/6941397/2026/01/05/chelsea-rosenior-maresca-successor/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/05/arts/television/pitt-traitors-antiques-roadshow.h
 **The New York Times in Print for Monday, Jan. 5, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/01/05/todays-new-york-times
-
-**A preview of The Athletic’s live coverage this week**\
-`The Athletic's live coverage this week includes the start of the NFL playoffs and the semifinals of the College Football Playoff.`\
-https://nytimes.com/athletic/6939906/2026/01/05/nfl-playoffs-cfp-afcon/
 
