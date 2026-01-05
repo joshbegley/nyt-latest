@@ -1,40 +1,40 @@
-**Amorim had grand ideas for Manchester United. The reality was simply grim**\
-`The virtues of United's first ever 'head coach' quickly turned to vices in a tenure that failed to live up to expectations`\
-https://nytimes.com/athletic/6320716/2026/01/05/ruben-amorim-manchester-united-fired-why/
+**China Needed Oil. Venezuela Needed Cash. Their Deal Faces a Turning Point.**\
+`Beijing has lent billions to Caracas in recent decades, and the fate of money it is owed is in question after the ouster of Venezuela’s leader.`\
+https://nytimes.com/2026/01/05/business/venezuela-oil-china-deal.html
 
-**Tina Brown Thinks the Über-Rich Have It Coming**\
-`Tina Brown, the longtime editor and chronicler of the elite, says she’s liberated and is letting it rip.`\
-https://nytimes.com/video/podcasts/100000010624223/tina-brown-thinks-the-uber-rich-have-it-coming.html
+**Bears defense gets exposed again. Can they fix it for playoff meeting with Packers?**\
+`The Bears have allowed the second-most explosive plays in the NFL season, a major weakness as they enter the playoffs.`\
+https://nytimes.com/athletic/6941127/2026/01/05/bears-defense-exposed-nfl-playoffs/
 
-**10 Convicted of Cyberbullying France’s First Lady**\
-`The defendants made false claims about Brigitte Macron, the wife of President Emmanuel Macron of France.`\
-https://nytimes.com/2026/01/05/world/europe/france-brigitte-macron-cyberbullying-trial-owens.html
+**The Lions wanted this last one and got it — now, the tough decisions begin**\
+`The prideful Lions weren't going to just roll over against the Bears, it's not in their nature. They played to win.`\
+https://nytimes.com/athletic/6941317/2026/01/05/lions-beat-bears-nfc-north-offseason/
 
-**Myles Garrett earned the sack king title. How does his record season compare across eras?**\
-`Myles Garrett finished the 2023 regular season with more sacks than the entire 49ers team.`\
-https://nytimes.com/athletic/6941832/2026/01/05/myles-garrett-sack-record-browns/
+**Tennis in 2026 mailbag: The Alcaraz vs. Sinner rivalry, WTA Slam winners and more**\
+`The Athletic's tennis team answer your questions as the 2026 tennis season begins.`\
+https://nytimes.com/athletic/6900368/2026/01/05/tennis-2026-players-matches/
 
-**Tommy Pham makes his case for MLB's next big metric: He calls it PhamGraphs**\
-`Pham proposes a statistical system that would account for how often a hitter faces high-leverage relievers and how defenders cope with wind.`\
-https://nytimes.com/athletic/6940461/2026/01/05/mlb-free-agency-metrics-tommy-pham/
+**In 'devastating' loss to Steelers, Ravens reminded this just wasn't their year**\
+`A challenging season for Baltimore ended in excruciating fashion. Now the team is left to ponder all the changes that will inevitably occur.`\
+https://nytimes.com/athletic/6941649/2026/01/05/ravens-loss-steelers-afc-north-title/
 
-**The Jets and Aaron Glenn's defense made the wrong kind of history**\
-`As a player, Aaron Glenn had an interception in 13 consecutive seasons. As a first-year head coach, his team went a full season without one.`\
-https://nytimes.com/athletic/6941807/2026/01/05/jets-interceptions-defense-aaron-glenn/
+**Maple Leafs after 41: How did injuries affect Toronto's first half?**\
+`The Leafs have yet to play a single game this season with a fully healthy lineup, but how bad do they have it relative to opponents?`\
+https://nytimes.com/athletic/6939864/2026/01/05/maple-leafs-first-half-injuries-analysis/
 
-**What we learned in NFL Week 18: Steelers qualify for wide-open playoffs in instant classic**\
-`While the Steelers prepare for a wild-card matchup with the Texans, the Ravens will limp into an offseason facing huge questions.`\
-https://nytimes.com/athletic/6940743/2026/01/05/nfl-week-18-takeaways-steelers-ravens-aaron-rodgers/
+**Mike Brown used to babysit J.B. Bickerstaff. Now the coaches are atop the East**\
+`Babysitting matured into a mentor-mentee relationship, and more than 30 years later, the two bond over hoops and ... Jelly Roll.`\
+https://nytimes.com/athletic/6937828/2026/01/05/mike-brown-knicks-jb-bickerstaff-pistons-babysitting-jelly-roll/
 
-**The Falcons fired Raheem Morris amid a 4-game win streak. Yes, that's quite rare**\
-`Atlanta fired GM Terry Fontenot after five seasons without a winning record. Morris, out after only two, might have been collateral damage.`\
-https://nytimes.com/athletic/6941851/2026/01/05/falcons-fire-raheem-morris-win-streak/
+**The Athletic's men's basketball Top 25: Michigan's dominance is breaking Vegas**\
+`Plus: How Purdue's Braden Smith makes passing magic and why SMU and Villanova are the newest teams in our ranking.`\
+https://nytimes.com/athletic/6940573/2026/01/05/college-basketball-top-25-mens-michigan-arizona-purdue/
 
-**Seahawks the Super Bowl favorite? Who wins wide-open AFC playoff race? Pick Six**\
-`The stage is set for the most unpredictable playoffs in years, especially in the AFC. Coaches and execs helped us break down the field.`\
-https://nytimes.com/athletic/6923819/2026/01/05/nfl-playoffs-afc-nfc-seahawks-patriots-bills-broncos/
+**Where the Cubs, Yankees, Blue Jays and more teams stand as MLB's offseason moves into January**\
+`The new year is upon us. The baseball offseason is entering its third month. And unfinished business abounds.`\
+https://nytimes.com/athletic/6941044/2026/01/05/mlb-offseason-latest-yankees-dodgers-mets-red-sox-blue-jays/
 
-**The Jets' season was miserable, but Aaron Glenn is staying. Who will return with him?**\
-`An early look at how the 2026 Jets might begin to take shape.`\
-https://nytimes.com/athletic/6941508/2026/01/05/new-york-jets-aaron-glenn-returning-players/
+**Orioles head the list of MLB's 7 most-improved teams so far this offseason**\
+`The Pirates, Blue Jays and Red Sox are among the other teams who have made strong moves this offseason.`\
+https://nytimes.com/athletic/6936246/2026/01/05/mlb-most-improved-orioles-pirates-braves-red-sox/
 
