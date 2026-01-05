@@ -1,3 +1,7 @@
+**Rangers' James Dolan reiterates faith in Chris Drury in first interview since 2023**\
+`Asked directly if he still has trust in Drury, Dolan responded with a firm “yes.”`\
+https://nytimes.com/athletic/6943731/2026/01/05/rangers-james-dolan-chris-drury/
+
 **Mamdani and Hochul Unite to Cheer Congestion Pricing on Anniversary**\
 `The tolling program, which charges motorists to enter Manhattan’s busiest streets, had a largely successful first year after a delayed start.`\
 https://nytimes.com/2026/01/05/nyregion/nyc-congestion-pricing-anniversary-mamdani-hochul.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/01/05/travel/hilton-hotel-reservations-minneapolis-minn
 **Mike McDaniel on Dolphins future: 'I am the coach ... until told otherwise'**\
 `The Dolphins finished 7-10, dropping McDaniel to 35-33 overall since he took over as Miami's head coach four years ago.`\
 https://nytimes.com/athletic/6943471/2026/01/05/mike-mcdaniel-dolphins-coach-future/
-
-**Nvidia Details New A.I. Chips and Autonomous Car Project With Mercedes**\
-`At the CES conference, Jensen Huang, the company’s chief executive, said the more efficient and powerful chip would begin shipping later this year.`\
-https://nytimes.com/2026/01/05/technology/nvidia-chips-mercedes.html
 
