@@ -1,3 +1,7 @@
+**Steelers Clinch N.F.L. Playoffs Behind Aaron Rodgers’s Late Rally**\
+`The Pittsburgh Steelers won a division title for the first time since 2020 and kept the Baltimore Ravens from making the playoffs for the first time since 2021.`\
+https://nytimes.com/video/sports/football/100000010624217/steelers-clinch-nfl-playoffs-behind-aaron-rodgerss-late-rally.html
+
 **Sanctioned Oil Tankers Flee Venezuela in Defiance of U.S. Blockade**\
 `The ships are using deceptive tactics as part of a seemingly coordinated attempt to bypass American naval forces in the region.`\
 https://nytimes.com/2026/01/05/world/americas/oil-tankers-venezuela-blockade.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6940015/2026/01/05/latif-ayodele-sina-ghami-anthony
 **Word of the Day: didactic**\
 `This word has appeared in 58 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/01/05/learning/word-of-the-day-didactic.html
-
-**O'Neil in talks to become Strasbourg head coach as Rosenior nears Chelsea move**\
-`If O’Neil is appointed Strasbourg head coach, it will be the first time he has coached outside of England.`\
-https://nytimes.com/athletic/6941658/2026/01/05/chelsea-strasbourg-oneil-talks-rosenior/
 

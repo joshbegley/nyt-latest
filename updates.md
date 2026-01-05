@@ -1,3 +1,7 @@
+**Steelers Clinch N.F.L. Playoffs Behind Aaron Rodgers’s Late Rally**\
+`The Pittsburgh Steelers won a division title for the first time since 2020 and kept the Baltimore Ravens from making the playoffs for the first time since 2021.`\
+https://nytimes.com/video/sports/football/100000010624217/steelers-clinch-nfl-playoffs-behind-aaron-rodgerss-late-rally.html
+
 **Sanctioned Oil Tankers Flee Venezuela in Defiance of U.S. Blockade**\
 `The ships are using deceptive tactics as part of a seemingly coordinated attempt to bypass American naval forces in the region.`\
 https://nytimes.com/2026/01/05/world/americas/oil-tankers-venezuela-blockade.html
